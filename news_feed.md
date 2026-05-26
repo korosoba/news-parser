@@ -1,3 +1,289 @@
+# Naruto's Jiraiya Officially Returns In New Anime Trailer That Should Be The Franchise's Blueprint
+
+Anime, Naruto
+
+Tue, 26 May 2026 23:30:20 GMT
+
+https://screenrant.com/naruto-jiraiya-return-new-anime-trailer-blueprint/
+
+This new animation shows just how closely Naruto and Jiraiya are connected, and the rest of the franchise should take note of its outstanding quality.
+---------
+
+# The Bourne Identity Meets Sicario In Prime Video's Hit 2-Part Action Thriller
+
+TV, Masked Recs
+
+Tue, 26 May 2026 23:28:20 GMT
+
+https://screenrant.com/the-terminal-list-amazon-prime-bourne-meets-sicario-show/
+
+One dark, star-studded spy thriller from Prime Video marries the cynicism of the Bourne movies with the brutal action of Taylor Sheridan's Sicario.
+---------
+
+# Hellboy Returns in New 4-Part Series, Finally Exploring the Missing Chapter of Guillermo del Toro’s Films
+
+Comics, Hellboy
+
+Tue, 26 May 2026 23:00:20 GMT
+
+https://screenrant.com/young-hellboy-return-new-series-missing-chapter-guillermo-del-toros-film/
+
+Hellboy has officially returned in a new series that explores a missing chapter in his history, one that not even Guillermo del Toro fully explored.
+---------
+
+# Sebastian Stan's Real Batman Part 2 Role Revealed In Matt Reeves Sequel Theory
+
+Movies, The Batman Part II
+
+Tue, 26 May 2026 23:00:20 GMT
+
+https://screenrant.com/the-batman-2-sebastian-stan-character-hush-theory/
+
+Sebastian Stan is reportedly set to appear as Harvey Dent in Matt Reeves' The Batman Part II, but some theories suggest he might play someone else.
+---------
+
+# Assassin's Creed Black Flag Resynced Officially Fixes Major Open World Problem
+
+Gaming, Assassin's Creed Black Flag Resynced, Assassin's Creed, Triple-A Games, PC
+
+Tue, 26 May 2026 22:50:39 GMT
+
+https://screenrant.com/assassins-creed-black-flag-resynced-no-loading-screens/
+
+Assassin's Creed 4: Black Flag came around near the beginning of the big open-world game boom, and Resynced is making an important change.
+---------
+
+# How To Read Holly Jackson's A Good Girl's Guide To Murder Books In Order
+
+Books, A Good Girl's Guide to Murder
+
+Tue, 26 May 2026 22:45:19 GMT
+
+https://screenrant.com/holly-jackson-good-girls-guide-to-murder-books-in-order/
+
+Pip Fitz-Amobi investigates cases in Holly Jackson's A Good Girl's Guide to Murder books, and this is the best way to read them in order.
+---------
+
+# DC Officially Confirms Its Next Animated Universe Launching In 2026
+
+Streaming TV, Masked Recs
+
+Tue, 26 May 2026 22:37:19 GMT
+
+https://screenrant.com/dc-new-animated-universe-my-adventures-with-superman-green-lantern/
+
+DC continues expanding with the DC Universe and its Elseworlds branch, and in the latter, a new animated universe will officially launch this year.
+---------
+
+# Sam Neill's 3-Part Agatha Christie Series Makes Kenneth Branagh's Hercule Poirot Movies Look Tame
+
+TV, Masked Recs
+
+Tue, 26 May 2026 22:33:20 GMT
+
+https://screenrant.com/sam-neill-and-there-were-none-agatha-christie-darkest-adaptation/
+
+One underrated Agatha Christie adaptation is so dark, the show feels more like a psychological thriller than one of Kenneth Branagh's Poirot movies.
+---------
+
+# Spider-Noir Uses Marvel's Deepest Villain Cuts To Build Prime Video's Dark New Spider-Man World
+
+TV, Spider-Noir, Spider-Noir - Season 1, Spider-Man, Marvel Cinematic Universe
+
+Tue, 26 May 2026 22:31:16 GMT
+
+https://screenrant.com/spider-noir-marvel-deep-villain-cuts-spiderman-world-oren-uziel/
+
+Exclusive: Creator Oren Uziel explains how Spider-Noir uses some of Marvel's deepest villain cuts in order to build out his new Spider-Man world.
+---------
+
+# Marvel Officially Reveals New Doctor Strange Design For Next Spider-Man Appearance
+
+Comics, Doctor Strange, Your Friendly Neighborhood Spider-Man
+
+Tue, 26 May 2026 22:30:20 GMT
+
+https://screenrant.com/friendly-neighborhood-spider-man-doctor-strange-design/
+
+Doctor Strange plays a pivotal role in Marvel's new hit version of Spider-Man, and now fans can get an in-depth look at how his look was developed.
+---------
+
+# Escape From New York Replacement Series Launches This Summer (Exclusive)
+
+Comics, indie comics
+
+Tue, 26 May 2026 23:24:15 GMT
+
+https://www.cbr.com/escape-from-new-york-denver-new-series-exclusive/
+
+In a CBR exclusive announcement, learn about Mad Cave's new series, Denver, which is an Escape From New York style adventure in a dystopian future
+---------
+
+# Jared Leto's Process for Discovering His Skeletor Was Way More Complicated Than You'd Think
+
+Movies, Masters of the Universe, He-Man, He-Man and the Masters of the Universe
+
+Tue, 26 May 2026 23:18:05 GMT
+
+https://www.cbr.com/jared-leto-complicated-skeletor-process-masters-of-the-universe/
+
+Jared Leto's process for deciding how to portray the iconic Skeletor was a grueling one, says Masters of the Universe director Travis Knight.
+---------
+
+# 6 Biggest Mandoverse Characters Missing From The Mandalorian and Grogu
+
+Movies, The Mandalorian and Grogu, Star Wars, Sci-Fi
+
+Tue, 26 May 2026 23:00:13 GMT
+
+https://www.cbr.com/mandoverse-characters-missing-from-mandalorian-and-grogu-star-wars-sci-fi/
+
+The Mandalorian and Grogu is a fun return to the big screen for Star Wars, but we would have loved to see these MandoVerse characters show up.
+---------
+
+# Bosch’s Most Powerful Quote Is Still the Greatest Line in Crime TV History
+
+TV, Bosch, Crime
+
+Tue, 26 May 2026 23:00:13 GMT
+
+https://www.cbr.com/bosch-everybody-counts-nobody-counts-crime-tv-quote/
+
+Bosch's memorable quote 'Everybody counts, or nobody counts' has influenced crime TV, with shows like Law & Order: SVU embracing the motto.
+---------
+
+# 10 Lost Anime You Can't Watch Legally Anymore
+
+Anime
+
+Tue, 26 May 2026 23:00:13 GMT
+
+https://www.cbr.com/forgotten-anime-cant-stream-anywhere/
+
+Anime that can no longer be accessed through legal means makes it incredibly hard for it to be discovered by new and old fans.
+---------
+
+# Dandadan Reveals First Look at New Official Designs for Momo, Okarun and More
+
+Anime, Dandadan, Netflix, Shonen Jump
+
+Tue, 26 May 2026 22:30:12 GMT
+
+https://www.cbr.com/dandadan-occultic-stage-momo-okarun-reveal/
+
+Dandadan reveals the first round of official cast photos for its first-ever stage adaptation, set to debut in August 2026.
+---------
+
+# 10 Dark Shonen Anime Like Jujutsu Kaisen
+
+Anime, Jujutsu Kaisen, Noragami, Yu Yu Hakusho
+
+Tue, 26 May 2026 22:15:12 GMT
+
+https://www.cbr.com/dark-shonen-anime-like-jujutsu-kaisen/
+
+Jujutsu Kaisen has made waves as a modern anime classic, but its fans have many other dark shonen hits to explore.
+---------
+
+# First ‘The Batman’ Sequel Set Image Officially Confirms a Major Change
+
+Movie News, The Batman, The Batman Part II, Robert Pattinson, Matt Reeves
+
+Tue, 26 May 2026 23:30:13 GMT
+
+https://collider.com/the-batman-2-sequel-set-photos-robert-pattinson-new-bat-symbol-image/
+
+The first set photo from Matt Reeves' The Batman: Part II teases a major design change for Robert Pattinson’s Dark Knight.
+---------
+
+# Forget Marvel, Netflix’s Newest 8-Part Superhero Series Is the Perfect Weekend Binge After 2.7M Views
+
+TV Features, Marvel, Netflix, The WONDERfools, Superhero
+
+Tue, 26 May 2026 23:29:13 GMT
+
+https://collider.com/marvel-replacement-superhero-series-wonderfools-netflix-viewership-record/
+
+The new Netflix superhero series WONDERfools is subverting the genre, and winning over millions of fans in the process.
+---------
+
+# Tom Hardy's Exit From Guy Ritchie's Crime Thriller May Be the Shake-Up It Needs
+
+TV Features, MobLand, Paramount Plus, Guy Ritchie, Tom Hardy
+
+Tue, 26 May 2026 23:18:12 GMT
+
+https://collider.com/tom-hardy-mobland-exit-season-2-guy-ritchie-crime-thriller/
+
+Tom Hardy's unexpected firing from MobLand throws the future of the crime thriller series into question, but could the show still thrive?
+---------
+
+# Prime Video's Biggest Sci-Fi Series Ever Officially Slammed With Audience Review Bombing After Finale
+
+TV News, The Boys, Prime Video, Sci-Fi, IMDb
+
+Tue, 26 May 2026 23:15:13 GMT
+
+https://collider.com/prime-video-sci-fi-the-boys-season-5-series-finale-review-bombing-worst-episode-ever/
+
+The Boys' highly anticipated finale has been review-bombed, receiving the lowest ratings in the series' history. Get all the details here.
+---------
+
+# This 10/10 James Bond Movie Is Director Denis Villeneuve’s Favorite (and Could Influence Bond 26)
+
+Movie Features, James Bond, Casino Royale, Daniel Craig, Denis Villeneuve
+
+Tue, 26 May 2026 23:15:13 GMT
+
+https://collider.com/denis-villeneuve-favorite-bond-casino-royale/
+
+Bond 26 director Denis Villeneuve revealed his favorite 007 movie is Casino Royale, which might hint at what his Bond movie might look like.
+---------
+
+# 92% Rotten Tomatoes Star Wars Masterpiece Finally Gets Season 2 Return Update
+
+TV News, Star Wars: Skeleton Crew, Star Wars, Disney+, Kerry Condon
+
+Tue, 26 May 2026 23:00:14 GMT
+
+https://collider.com/disney-star-wars-skeleton-crew-season-2-update-kerry-condon-response/
+
+Star Wars: Skeleton Crew star Kerry Condon weighs in on the possibility of a second season while promoting her new WW2 movie, Pressure.
+---------
+
+# 10 Forgotten Sci-Fi Movies That Are Perfect From Start to Finish
+
+Movie, Science Fiction, Strange Days, Coherence, The Hidden
+
+Tue, 26 May 2026 22:21:12 GMT
+
+https://collider.com/forgotten-sci-fi-movies-perfect-start-to-finish/
+
+From Seconds to The Face of Another, these remarkable sci-fi movies are truly flawless but sadly remain underappreciated by most mainstream audiences.
+---------
+
+# Quentin Tarantino's 100%-RT Action Classic Becomes Streaming Hit After Debut
+
+Movie News, Kill Bill: The Whole Bloody Affair, Hot on Streaming
+
+Tue, 26 May 2026 23:30:18 GMT
+
+https://movieweb.com/kill-bill-hit-streaming-hulu-may-2026/
+
+The 4-hour plus supercut of Tarantino's masterpiece is finally streaming, and fans are showing why it remains the director's only 100%-rated project.
+---------
+
+# 'Tuner' Star Leo Woodall Explains How His On-Screen Condition Changed His Life Forever
+
+Movie News, Leo Woodall, Tuner
+
+Tue, 26 May 2026 23:29:43 GMT
+
+https://movieweb.com/tuner-movie-leo-woodall-changed-life/
+
+Leo Woodall has gotten the best reviews of his career for this critically lauded movie.
+---------
+
 # Prime Video's New Jack Ryan Movie Rewrites His Ending 3 Years Later
 
 Movies, Tom Clancy's Jack Ryan: Ghost War
