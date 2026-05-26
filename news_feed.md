@@ -1,3 +1,377 @@
+# Prime Video's New Jack Ryan Movie Rewrites His Ending 3 Years Later
+
+Movies, Tom Clancy's Jack Ryan: Ghost War
+
+Tue, 26 May 2026 22:00:35 GMT
+
+https://screenrant.com/jack-ryan-movie-retcon-prime-video-ending/
+
+Tom Clancy's Jack Ryan concluded three years ago on Prime Video, but the movie continuation retcons the character's ending, and mostly for the better.
+---------
+
+# DC Officially Confirms Shock Cameo for Lobo's Next Appearance, the Last Person You Expect
+
+Comics, Lobo, Jason Momoa
+
+Tue, 26 May 2026 22:00:35 GMT
+
+https://screenrant.com/lobo-supergirl-jason-momoa-cameo-art/
+
+Jason Momoa fans shouldn't miss this.
+---------
+
+# Dune Is Officially Changing Genres This Year
+
+New Movies, Dune: Part Three, Dune
+
+Tue, 26 May 2026 21:50:32 GMT
+
+https://screenrant.com/dune-3-change-genre/
+
+After two excellent sci-fi movies, Dune is changing genres later this year when Dune 3 comes out, with Denis Villeneuve confirming the major switch.
+---------
+
+# GTA 5 And GTA Online Officially Enter The End Of An Era
+
+Gaming
+
+Tue, 26 May 2026 21:49:46 GMT
+
+https://screenrant.com/gta-6-gta-online-ragemp-shutdown/
+
+Rockstar Games has made a legal move that will change the landscape of GTA Online going forward and could impact GTA 6.
+---------
+
+# Toy Story 5 Originally Didn’t Bring Woody Back
+
+Movies, Toy Story 5, Toy Story
+
+Tue, 26 May 2026 21:46:21 GMT
+
+https://screenrant.com/toy-story-5-no-woody-first-draft-andrew-stanton-explained/
+
+Despite how important Woody is to the franchise, there was originally a version of Toy Story 5 that didn't bring Tom Hanks' beloved character back.
+---------
+
+# 007 First Light: All Intel Locations
+
+Gaming, 007 First Light, Triple-A Games, PC
+
+Tue, 26 May 2026 21:37:38 GMT
+
+https://screenrant.com/007-first-light-all-intel-locations-collectibles/
+
+007 First Light hides intel on 23 major characters and organizations throughout the game, and picking up each one will require a keen eye.
+---------
+
+# Backrooms Star Responds To Fake Director Rumors
+
+Movies, Backrooms, Mark Duplass
+
+Tue, 26 May 2026 21:30:52 GMT
+
+https://screenrant.com/backrooms-movie-kane-parsons-ghost-director-rumors-mark-duplass-response/
+
+With days to go until A24 releases Backrooms, one of the stars breaks his silence about a rumor that Kane Parsons didn’t direct the horror film.
+---------
+
+# HBO's 'The Godfather Meets Peaky Blinders' Crime Series Doesn't Have A Single Bad Episode
+
+TV, Masked Recs
+
+Tue, 26 May 2026 21:30:24 GMT
+
+https://screenrant.com/boardwalk-empire-no-bad-episodes/
+
+One HBO crime series masterfully blends The Godfather and Peaky Blinders, offering a fresh perspective on the well-explored gangster genre.
+---------
+
+# 10 Years Ago, One Of The Best & Most Creative Animated Movies Ever Came Out
+
+Movies, Your Name, Op-Ed
+
+Tue, 26 May 2026 21:20:20 GMT
+
+https://screenrant.com/your-name-best-creative-animated-movie-10-year-anniversary/
+
+In 2016, the world was treated to Your Name, an incredibly creative animated movie with wild plot twists and stunning visuals, making it a classic.
+---------
+
+# Apple TV's 8-Episode Crime Thriller Remake Is So Good, It's Coming Back As An Anthology
+
+Streaming TV, Masked Recs
+
+Tue, 26 May 2026 21:15:20 GMT
+
+https://screenrant.com/presumed-innocent-season-2-apple-tv-anthology-thriller/
+
+Among Apple TV's best TV shows is a crime thriller remake that is coming back now as an anthology series, which could be great for its future.
+---------
+
+# Netflix's The Blacklist Replacement Shoots to No. 1 With 11.4M Views
+
+TV, Nemesis
+
+Tue, 26 May 2026 22:00:33 GMT
+
+https://www.cbr.com/nemesis-netflix-number-one-streaming/
+
+Netflix's new crime drama is now the king of streaming following its recent debut.
+---------
+
+# The Rocketeer Franchise Soars Again With a New Sequel
+
+Comics, The Rocketeer
+
+Tue, 26 May 2026 22:00:33 GMT
+
+https://www.cbr.com/the-rocketeer-the-island-3-release-date-confirmed/
+
+The Rocketeer's latest adventure is about to be interrupted by the emergence of one of the biggest movie stars of all time. Literally.
+---------
+
+# Obsession Is Officially 2026's Most Traumatic Movie
+
+Movies, Obsession
+
+Tue, 26 May 2026 22:00:33 GMT
+
+https://www.cbr.com/scariest-horror-movie-2026-obsession/
+
+This horror debut from a well-known YouTuber has traumatised audiences with its spine-chilling scares and uncomfortable social commentary.
+---------
+
+# Sorry, Tom Hanks: 50 Buzz Lightyears Are The Real Star of Toy Story 5
+
+CBR Exclusives, Toy Story 5
+
+Tue, 26 May 2026 21:52:58 GMT
+
+https://www.cbr.com/50-buzz-lightyears-steal-toy-story-from-tom-hanks/
+
+Based on footage CBR was able to see, Buzz Lightyear is going to steal scenes in the upcoming Pixar comedy.
+---------
+
+# Sony Announces PlayStation 5 Exclusive Shutting Down Servers
+
+Games, PlayStation 5, Destruction AllStars
+
+Tue, 26 May 2026 21:45:31 GMT
+
+https://www.cbr.com/ps5-exclusive-official-shutting-down-may-2026/
+
+After five years, Sony announced that it is shutting down the servers for one of its PlayStation 5 exclusives, with single-player content staying up.
+---------
+
+# Steven Spielberg's Disclosure Day Described by Lead Star in New High-Stakes Featurette
+
+Movies, Disclosure Day, steven spielberg
+
+Tue, 26 May 2026 21:39:30 GMT
+
+https://www.cbr.com/steven-spielberg-disclosure-day-described-by-lead-star-high-stakes-featurette/
+
+The anticipation for the release of Disclosure Day just rocketed into high gear.
+---------
+
+# 007 First Light Review: 2026's Game of the Summer Has Officially Arrived
+
+Games, James Bond
+
+Tue, 26 May 2026 21:35:21 GMT
+
+https://www.cbr.com/007-first-light-review-may-2026/
+
+007 First Light does justice to James Bond as the combination of incredible stealth gameplay and thrilling setpieces make it an incredible game
+---------
+
+# Everything to Remember About The Bear Before Season 5
+
+TV, The Bear
+
+Tue, 26 May 2026 21:30:19 GMT
+
+https://www.cbr.com/the-bear-season-4-recap/
+
+The Bear is returning soon for its fifth and final season, so a refresher is in order not only on Season 4 but also on the final moments in "Gary."
+---------
+
+# 10 Comforting Games Perfect for Bad Mental Health Days
+
+Games, Indie Games, Stardew Valley, Animal Crossing: New Horizons, Nintendo
+
+Tue, 26 May 2026 21:15:13 GMT
+
+https://www.cbr.com/most-comforting-games-perfect-for-bad-days/
+
+From cozy farms to cathartic cries, these games know exactly what a bad mental health day needs.
+---------
+
+# Midnight X-Men First Look Revealed by Marvel
+
+Comics, X-Men
+
+Tue, 26 May 2026 21:07:40 GMT
+
+https://www.cbr.com/marvel-officially-reveals-first-look-at-midnight-x-men/
+
+In a dark twist, the X-Men find themselves in the most terrifying era of their existence with vampires and mutant empires on the brink of war.
+---------
+
+# U2's Greatest Deep Cut from Every Studio Album
+
+Music News, U2: Elevation 2001 - Live from Boston, Music, Rock, Bono
+
+Tue, 26 May 2026 22:00:30 GMT
+
+https://collider.com/u2s-greatest-deep-cut-from-every-album/
+
+From The Electric Co. to Wire to Exit to Acrobat to Kite, U2's greatest album cut from every studio album
+---------
+
+# The Insane Reactions to Christopher Nolan's 'The Odyssey' Are Part of a Bigger Problem Hollywood Can't Ignore
+
+Movie Features, The Odyssey, Christopher Nolan, Matt Damon, Fantasy
+
+Tue, 26 May 2026 21:55:28 GMT
+
+https://collider.com/the-odyssey-reactions-casting-lupita-nyongo-elliot-page/
+
+Christopher Nolan's The Odyssey has been fuel for internet outrage before it's even been released, which is part of a bigger issue for Hollywood.
+---------
+
+# 10 Must-Watch Shows After You Finish Prime Video's 'Off Campus'
+
+TV, Off Campus, Romance, Tell Me Lies, Heated Rivalry
+
+Tue, 26 May 2026 21:44:29 GMT
+
+https://collider.com/tv-shows-like-off-campus-prime-video/
+
+Heated Rivalry, The Summer I Turned Pretty, Tell Me Lies, and Maxton Hall are perfect to watch after you finish watching Prime Video's Off Campus.
+---------
+
+# It's the End of an Era for the Greatest Superhero Movie Ever on HBO Max
+
+Movie Features, Logan, HBO Max, Hugh Jackman, James Mangold
+
+Tue, 26 May 2026 21:42:24 GMT
+
+https://collider.com/hbo-max-logan-greatest-superhero-movie-ever-leaving-may-31/
+
+The end of May marks the end of viewing Logan on HBO Max, so you'll want to hurry and give it a watch.
+---------
+
+# Watch Martin Scorsese's Most Epic Crime Saga Before It Leaves Netflix in 6 Days
+
+Movie Features, Casino, Martin Scorsese, Robert De Niro, Netflix
+
+Tue, 26 May 2026 21:23:15 GMT
+
+https://collider.com/casino-leaving-netflix-june-1-2026-martin-scorsese/
+
+Martin Scorsese's 1995 crime movie Casino, starring Robert De Niro, Joe Pesci, Sharon Stone, is a must-watch before it leaves Netflix.
+---------
+
+# ‘Talk to Me’ Meets ‘It Follows’ in Twisted New Look at NEON’s Next Horror Movie
+
+Exclusives, Leviticus, Horror, Sundance Film Festival, Collider Exclusive Preview
+
+Tue, 26 May 2026 21:00:13 GMT
+
+https://collider.com/new-horror-movie-leviticus-sneak-peek-joe-bird-stacy-clausen/
+
+A new image from the Sundance breakout hit horror film Leviticus spotlights the terrifying love story between Joe Bird and Stacy Clausen.
+---------
+
+# 10 Best Dark Shōnen Manga of All Time, Ranked
+
+TV, Manga, Black Butler, Jujutsu Kaisen, Attack On Titan
+
+Tue, 26 May 2026 20:30:12 GMT
+
+https://collider.com/best-dark-shonen-manga-all-time-ranked/
+
+Juggernauts like Attack on Titan and Jujutsu Kaisen exemplify the high stakes and ruthless, bleak, emotional storytelling of dark shōnen at its best.
+---------
+
+# Apple TV's Ambitious 'Wheel of Time' Replacement Moves Forward With Colossal Update
+
+TV News, Apple TV, The Wheel of Time, Brandon Sanderson, The Stormlight Archive
+
+Tue, 26 May 2026 20:15:13 GMT
+
+https://collider.com/apple-tv-sci-fi-fantasy-series-cosmere-universe-script-update-brandon-sanderson/
+
+Apple TV's upcoming Cosmere Universe adaptations have gotten a colossal script update from sci-fi fantasy author Brandon Sanderson.
+---------
+
+# Netflix’s Most Underrated Thriller Series Returns This Week After 2 Years
+
+Features, Netflix, A Good Girl's Guide to Murder, Upcoming Tease
+
+Tue, 26 May 2026 22:00:33 GMT
+
+https://movieweb.com/good-girls-guide-to-murder-netflix-season-2/
+
+Netflix is known for its excellent thriller series, from 'Mindhunter' to 'His & Hers,' and one underrated show's new season premieres May 27, 2026.
+---------
+
+# New Look at 'House of the Dragon' Unveils Biggest 'Game of Thrones' Battle Yet
+
+TV News, House of the Dragon, Game of Thrones, HBO Max
+
+Tue, 26 May 2026 21:36:54 GMT
+
+https://movieweb.com/house-of-the-dragon-battle-gullet/
+
+'House of the Dragon' Season 3 could open with "arguably the craziest episode of television ever made."
+---------
+
+# 'Toy Story 5' Director Explains Jessie Taking Over for Woody as Sequel's Main Hero
+
+Movie News, Toy Story 5, Andrew Stanton
+
+Tue, 26 May 2026 21:36:47 GMT
+
+https://movieweb.com/toy-story-5-jessie-woody-change-explained/
+
+Director Andrew Stanton spoke with MovieWeb about the decision to make Jessie the lead character in 'Toy Story 5.'
+---------
+
+# The Greatest Quote in John Wayne's Final Western Was the Perfect Ending
+
+Features, John Wayne, The Shootist
+
+Tue, 26 May 2026 21:13:37 GMT
+
+https://movieweb.com/john-wayne-the-shootist-western-quote/
+
+One quote from John Wayne's final Western movie sums up both the actor's on-screen and off-screen persona.
+---------
+
+# Hulu's New 2-Part True Crime Docuseries Dominates Streaming
+
+TV News, Hulu, Hot on Streaming
+
+Tue, 26 May 2026 21:00:19 GMT
+
+https://movieweb.com/the-nightmare-upstairs-streaming-hit-hulu-may-2026/
+
+Hulu has landed yet another hit with an original true crime journey that's as divisive as you can imagine.
+---------
+
+# 11 Movies With Better Memorial Day Box Office Openings Than 'The Mandalorian & Grogu'
+
+Movie Lists, The Mandalorian and Grogu, box office
+
+Tue, 26 May 2026 20:29:38 GMT
+
+https://movieweb.com/movies-higher-box-office-openings-mandalorian-grogu/
+
+'The Mandalorian and Grogu,' the latest movie in the Star Wars franchise, opened in theaters on May 22, 2026.
+---------
+
 # Ranking Every Action Sequence In The Mandalorian & Grogu
 
 Movies, The Mandalorian and Grogu
