@@ -1,3 +1,443 @@
+# Disclosure Day First Reactions Are In
+
+Movies, Disclosure Day
+
+Wed, 27 May 2026 17:34:58 GMT
+
+https://screenrant.com/disclosure-day-reactions-steven-spielberg/
+
+The first batch of reactions to Steven Spielberg's Disclosure Day movie, starring Emily Blunt and Josh O'Connor, has finally been released.
+---------
+
+# Amazon MGM Studios Has Found The New James Bond
+
+Movies, James Bond, 007 First Light, Quiz CV
+
+Wed, 27 May 2026 17:15:11 GMT
+
+https://screenrant.com/james-bond-movie-casting-patrick-gibson-007-first-light-perfect/
+
+Amazon MGM Studios has already found the replacement for Daniel Craig as James Bond, as this actor is simply perfect for the famous spy.
+---------
+
+# How The Legend Of Vox Machina Season 5 Will End Prime Video's Fantasy Masterpiece Explained By Critical Role In New Production Update
+
+TV, The Legend of Vox Machina, The Legend of Vox Machina - Season 5, Travis Willingham, Sam Riegel
+
+Wed, 27 May 2026 17:14:26 GMT
+
+https://screenrant.com/legend-vox-machina-season-5-ending-production-update-critical-role/
+
+EXCLUSIVE: Ahead of The Legend of Vox Machina season 4, producers are already deep in production on the final season and tease what fans can expect.
+---------
+
+# Hulu Brings Back 20-Year-Old Western Masterpiece For Yellowstone Fans
+
+Movies, Hulu, Masked Recs, Western, Brokeback Mountain
+
+Wed, 27 May 2026 17:03:58 GMT
+
+https://screenrant.com/brokeback-mountain-hulu-yellowstone/
+
+A 20-year-old Western masterpiece returns to Hulu June 1. Here is why fans of Taylor Sheridan and Yellowstone need to stream this 2005 Oscar winner.
+---------
+
+# Marvel Permanently Kills Off Powerful Hero After 26 Years
+
+Marvel Comics, Marvel
+
+Wed, 27 May 2026 17:00:20 GMT
+
+https://screenrant.com/sentry-watchdog-death-void/
+
+Marvel reveals the tragic death of a superhero's closest ally, whose tragic demise may kick off a chain of events that might doom his world.
+---------
+
+# Katie Cassidy & William H. Macy Investigate Unsettling Anomalies In Speed Demon Clip
+
+Exclusive, Katie Cassidy, William H. Macy
+
+Wed, 27 May 2026 17:00:20 GMT
+
+https://screenrant.com/video/speed-demon-movie-katie-cassidy-william-h-macy-clip/
+
+Exclusive: ScreenRant presents a clip from Speed Demon, in which Katie Cassidy & William H. Macy are trapped on a train taken over by a demon.
+---------
+
+# 10 Best Documentaries Released In 2026 (So Far)
+
+Streaming TV
+
+Wed, 27 May 2026 17:00:20 GMT
+
+https://screenrant.com/best-documentaries-streaming-2026/
+
+As 2026 unfolds, the documentary landscape is at its best with titles that not only educate audiences but also challenge their assumptions.
+---------
+
+# Nicolas Cage's Spider-Noir Future & Season 2 Chances Explained
+
+Streaming TV, Spider-Noir
+
+Wed, 27 May 2026 16:45:19 GMT
+
+https://screenrant.com/spider-noir-season-2-chances-explained/
+
+Spider-Noir seems to be off to a strong start, but does the series have a future, and will Nicolas Cage return after his TV debut for season 2?
+---------
+
+# Summer House Season 10 Reunion Draws Major Response After Ciara Miller & Amanda Batula Battle
+
+Reality TV, Summer House
+
+Wed, 27 May 2026 16:31:35 GMT
+
+https://screenrant.com/summer-house-season-10-reunion-part-1-reactions/
+
+The Summer House season 10 reunion sees a heated confrontation between Ciara Miller and Amanda Batula over Batula's secret romance with West Wilson.
+---------
+
+# Mad Max Abruptly Switched Genres 41 Years Ago, Then Realized Its Mistake
+
+Movies, Mad Max
+
+Wed, 27 May 2026 16:31:19 GMT
+
+https://screenrant.com/mad-max-switch-genre-thunderdome-fury-road/
+
+Mad Max redefined the post-apocalypse subgenre, but performed an abrupt genre switch that didn't work out. Fortunately, Mad Max corrected course.
+---------
+
+# 5 Masterpiece Western Movies That Feel Like Playing Red Dead Redemption 2
+
+Movies, Western, Red Dead Redemption
+
+Wed, 27 May 2026 17:31:14 GMT
+
+https://www.cbr.com/western-movies-like-red-dead-redemption-2-list/
+
+Red Dead Redemption 2 is a perfect and immersive Western, and there are more than a few movies in the genre that embody what the game delivers.
+---------
+
+# 6 HBO Shows Better Than True Detective
+
+TV, True Detective, hbo, The Sopranos, The Wire
+
+Wed, 27 May 2026 17:31:14 GMT
+
+https://www.cbr.com/hbo-shows-better-than-true-detective-list/
+
+From systemic failure to mob life, HBO shows like The Sopranos and The Wire topped True Detective in storytelling, intensity, and performance.
+---------
+
+# 10 Hardest Modern Games of All Time, Ranked
+
+Games, Video Games, hollow knight silksong, Elden Ring, Sekiro: Shadows Die Twice
+
+Wed, 27 May 2026 17:31:14 GMT
+
+https://www.cbr.com/hardest-modern-games-ranked/
+
+Many classic games are notorious for their high difficulty, guaranteeing gamers will continue to play until they master them.
+---------
+
+# Agatha Christie's Tommy & Tuppence Official Teaser
+
+TV
+
+Wed, 27 May 2026 17:25:53 GMT
+
+https://www.cbr.com/video/agatha-christies-tommy-tuppence-teaser/
+
+BritBox unveiled the official teaser for Agatha Christie's Tommy & Tuppence
+---------
+
+# X-Men ’97 Finally Confirms Season 2 Return Date
+
+TV, X-Men, X-Men '97, Marvel, MCU, Marvel Comics, Avengers: Doomsday
+
+Wed, 27 May 2026 17:14:34 GMT
+
+https://www.cbr.com/x-men-97-season-2-official-trailer-release-date/
+
+The official release date of X-Men '97 is now confirmed and the first trailer is mind-blowing.
+---------
+
+# Marvel Animation’s X-Men ‘97 Season 2   Official Trailer
+
+TV, X-Men '97
+
+Wed, 27 May 2026 17:05:26 GMT
+
+https://www.cbr.com/video/x-men-97-season-2-trailer/
+
+Marvel Animation officially unveiled the Season 2 trailer for X-Men '97
+---------
+
+# Anthony Maras on Pressure, D-Day, and the Weather That Changed History
+
+Movies, Pressure
+
+Wed, 27 May 2026 17:00:13 GMT
+
+https://www.cbr.com/video/anthony-maras-on-pressure-d-day-and-the-weather-that-changed-history/
+
+Pressure director Anthony Maras breaks down the incredible true story behind the D-Day weather forecast that helped shape World War II history. In this interview, Maras explains how Pressure explores the impossible decisions facing military leaders, why Andrew Scott’s character resonates today, and how the film recreated massive wartime operations with minimal CGI.
+---------
+
+# A Fan-Favorite WEBTOON Launches Its 10th Anniversary With Major 400th Episode Milestone
+
+Anime, webtoon
+
+Wed, 27 May 2026 17:00:13 GMT
+
+https://www.cbr.com/webtoon-unordinary-10th-anniversary-reveal/
+
+One of creator Uru-chan's most beloved WEBTOON series is officially back with brand-new episodes ahead of two massive milestones.
+---------
+
+# The Lord of the Rings: Trials Of Saruman Review
+
+Games, The Lord of the Rings
+
+Wed, 27 May 2026 16:55:12 GMT
+
+https://www.cbr.com/lotr-trials-of-saruman-tabletop-dnd-5e-review/
+
+Trials of Saruman is a Lord of the Rings 5e campaign set before the War of the Ring, where players have a chance of redeeming the White Wizard.
+---------
+
+# Toy Story 5 Director Officially Confirms an 84-Year-Old Disney Easter Egg That Fans Will Adore
+
+CBR Exclusives, Toy Story 5
+
+Wed, 27 May 2026 16:35:13 GMT
+
+https://www.cbr.com/toy-story-5-director-confirms-bambi-easter-egg/
+
+Longtime fans of animated Disney classics will get a kick out of this moment in the upcoming Toy Story 5.
+---------
+
+# Prime Video Is Locking Down Alan Ritchson After Turning ‘Reacher’ Into a Powerhouse
+
+TV News, Reacher, Prime Video, Alan Ritchson, Jack Reacher
+
+Wed, 27 May 2026 17:34:00 GMT
+
+https://collider.com/reacher-star-alan-ritchson-prime-video-amazon-mgm-television-first-look-deal/
+
+Prime Video's Reacher isn't going anywhere, as Alan Ritchson has signed a historic first-look deal with Amazon MGM Television.
+---------
+
+# Star Wars Finally Fixes Its Biggest Disney+ Problem With Its Next Spin-off Series
+
+TV Features, Ahsoka, Star Wars, Disney+, Rosario Dawson
+
+Wed, 27 May 2026 17:11:13 GMT
+
+https://collider.com/star-wars-ahsoka-season-2-fixes-disney-problem-spin-off/
+
+Disney+ reportedly reigned in the budget for Ahsoka Season 2, signaling a more sustainable era for Star Wars content.
+---------
+
+# Will Poulter and Noah Centineo’s 10/10 New Movie Gets Heart-Pounding First Look
+
+Exclusives, Union County, Will Poulter, Noah Centineo, Collider Exclusive Preview
+
+Wed, 27 May 2026 17:00:13 GMT
+
+https://collider.com/union-county-images-will-poulter-noah-centineo-opiod-crisis-movie/
+
+New images from the opioid epidemic drama Union County pair Will Poulter and Noah Centineo up for an emotional journey through recovery.
+---------
+
+# Deadpool Officially Returns in Marvel's Most Anticipated Project of 2026
+
+TV News, X-Men '97, Deadpool & Wolverine, Ryan Reynolds, Deadpool
+
+Wed, 27 May 2026 16:43:15 GMT
+
+https://collider.com/x-men-97-season-2-trailer-deadpool-appearance-confirmed/
+
+The first X-Men '97 Season 2 trailer features a shock appearance from Deadpool, with Marvel's favorite anti-hero now confirmed for the show's return.
+---------
+
+# Only 5 DC Heroes Can Officially Beat Batman in a Fight
+
+Movie, DC Comics, Batman, comic books, Nightwing
+
+Wed, 27 May 2026 16:34:13 GMT
+
+https://collider.com/dc-heroes-can-beat-batman/
+
+When it comes to non-powered DC heroes, Batman is at the peak of human skill and strength, but heroes like Nightwing and Lady Shiva can 100% beat him.
+---------
+
+# Paramount+’s Longest-Running Crime Thriller Puts Its Secret Weapon Back on the Case [Exclusive]
+
+TV News, Paramount Plus, Criminal Minds, Crime, Thriller
+
+Wed, 27 May 2026 16:30:13 GMT
+
+https://collider.com/criminal-minds-evolution-season-19-sneak-peek-kirsten-vangsness-paramount-plus/
+
+A new sneak peek from the premiere of Criminal Minds: Evolution Season 19 sees Kirsten Vangsness working her magic to find a killer.
+---------
+
+# 'Lord of the Rings' Legend Officially Joins Prime Video's Best Fantasy Series Next Week
+
+TV News, The Legend of Vox Machina, Prime Video, Andy Serkis, The Lord of the Rings
+
+Wed, 27 May 2026 16:13:23 GMT
+
+https://collider.com/prime-video-fantasy-series-legend-of-vox-machina-cast-andy-serkis-lord-of-the-rings/
+
+A Lord of the Rings legend is officially joining Prime Video’s most ambitious fantasy series in just one week.
+---------
+
+# First 'X-Men '97' Season 2 Trailer Officially Reveals the Age of Apocalypse
+
+TV News, X-Men '97, Disney+, Marvel Animation, MCU
+
+Wed, 27 May 2026 16:10:28 GMT
+
+https://collider.com/x-men-97-season-2-trailer-release-date-july-1-2026-disney-plus/
+
+At long last, Marvel has revealed the first trailer for X-Men '97 Season 2, as well as its release date.
+---------
+
+# ‘The Testaments’ Chase Infiniti and Lucy Halliday Explain How That Final Scene Sets Up Season 2
+
+Interviews, The Testaments, Chase Infiniti, Lucy Halliday, The Handmaid's Tale
+
+Wed, 27 May 2026 16:01:13 GMT
+
+https://collider.com/the-testaments-ending-explained-season-2-chase-infiniti-lucy-halliday-interview/
+
+Chase Infiniti and Lucy Halliday discuss The Testaments, the meaning of that finale kiss, the life-changing reveal for Agnes, and teases for Season 2.
+---------
+
+# ‘The Testaments’ Showrunner Explains the Deeper Meaning Behind That “Complicated” Finale Kiss
+
+Interviews, The Testaments, Bruce Miller, Chase Infiniti, The Handmaid's Tale
+
+Wed, 27 May 2026 16:00:14 GMT
+
+https://collider.com/the-testaments-finale-agnes-becka-kiss-showrunner-bruce-miller-interview/
+
+Showrunner Bruce Miller discusses The Testaments, that finale kiss, the strength of the girls in Gilead, the final moment, and the theme of Season 2.
+---------
+
+# 'Project Hail Mary' Targets 'Doctor Strange' at Worldwide Box Office
+
+Movie News, Project Hail Mary
+
+Wed, 27 May 2026 17:30:18 GMT
+
+https://movieweb.com/project-hail-doctor-strange-box-office/
+
+Ryan Gosling's 'Project Hail Mary' is almost shooting past Benedict Cumberbatch's 'Doctor Strange' at the global box office.
+---------
+
+# Two of the Best Sci-Fi Movies Ever Made Opened on the Same Day 44 Years Ago
+
+Features, Sci-Fi, The Thing, Blade Runner
+
+Wed, 27 May 2026 17:30:18 GMT
+
+https://movieweb.com/blade-runner-the-thing-same-release-box-office-flop/
+
+Now regarded as two of the silver screen's finest sci-fi masterpieces, these two movies struggled to find an audience in theaters.
+---------
+
+# 'Spider-Noir' Title Sequence Sets Stage for Nicolas Cage Spider-Man Series
+
+TV News, Spider-Noir, Spider-Noir (2025), Nicolas Cage, Spider-Man
+
+Wed, 27 May 2026 17:15:10 GMT
+
+https://movieweb.com/spider-noir-opening-title-sequence/
+
+The opening title sequence for Prime Video's live-action 'Spider-Noir' series has debuted online, teasing Nicolas Cage's Spider-Man outing.
+---------
+
+# Netflix’s Sci-Fi Thriller Is So Good, Stephen King Called It “an Absolute Delight”
+
+Features, The Boroughs, Netflix, Stephen King
+
+Wed, 27 May 2026 17:00:18 GMT
+
+https://movieweb.com/the-boroughs-netflix-stephen-king/
+
+Stephen King recommended a new Netflix sci-fi thriller series on his Threads account, and it's an enjoyable binge-watch.
+---------
+
+# Forget 'Marshals,' Taylor Sheridan’s Best Action Western Hits New Streamer
+
+Movie News, Hell or High Water, Coming/Leaving Streaming, Taylor Sheridan
+
+Wed, 27 May 2026 17:00:18 GMT
+
+https://movieweb.com/hell-or-high-water-hbo-max-streaming-june-2026/
+
+The 2016 film starring Chris Pine and Jeff Bridges remains Taylor Sheridan's single Academy Award nomination (so far).
+---------
+
+# 'Disclosure Day' Trailer Adds Fuel to Secret Sci-Fi Classic Sequel Theory
+
+Movie News, Disclosure Day, Steven Spielberg
+
+Wed, 27 May 2026 16:36:36 GMT
+
+https://movieweb.com/final-disclosure-day-trailer-adds-fuel-to-close-encounters-sequel-theory/
+
+The latest look at Steven Spielberg's newest film gives an up-close new look at the aliens in the film.
+---------
+
+# 'X-Men '97' Season 2 Trailer Officially Released by Marvel & Disney+
+
+TV News, X-Men '97, Disney+
+
+Wed, 27 May 2026 16:19:42 GMT
+
+https://movieweb.com/x-men-97-season-2-trailer/
+
+Marvel and Disney+ unveiled the first full look at 'X-Men '97' Season 2 in a new trailer ahead of its July 1 release.
+---------
+
+# Amazon's New 'The Boys' Show Needs To Break a 4-Year Curse To Save the Franchise
+
+Features, The Boys
+
+Wed, 27 May 2026 16:00:19 GMT
+
+https://movieweb.com/vought-rising-the-boys-spinoff-curse/
+
+'The Boys' Season 5 ended in May 2026, and the Amazon Prime Video series has an upcoming spin-off series.
+---------
+
+# 'Toy Story 5' Buzz Lighyear Popcorn Bucket Revealed Ahead of Disney & Pixar Sequel Release
+
+Movie News, Toy Story 5
+
+Wed, 27 May 2026 15:42:44 GMT
+
+https://movieweb.com/toy-story-5-buzz-lightyear-popcorn-bucket/
+
+Disney and Pixar shared an exciting new popcorn bucket to celebrate the release of 'Toy Story 5' in theaters.
+---------
+
+# The Official Disney Princess Rules, Explained
+
+Features, Disney
+
+Wed, 27 May 2026 15:00:18 GMT
+
+https://movieweb.com/official-disney-princess-rules/
+
+To be considered an official princess, like Cinderella and Ariel, a woman Disney character must meet certain criteria.
+---------
+
 # After 25 Years, An Iconic X-Men Hero Officially Unleashes Their Ultimate Form
 
 Comics, X-Men
