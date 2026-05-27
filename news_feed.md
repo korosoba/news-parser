@@ -1,3 +1,377 @@
+# Fallout's Long-Awaited Video Game Return Leaves Fans Torn
+
+Gaming, Fallout, Triple-A Games
+
+Wed, 27 May 2026 02:00:32 GMT
+
+https://screenrant.com/fallout-2027-return-gamers-react/
+
+The Fallout series has a lot of ways it could go in the future, especially given the implications of the TV show, but Bethesda has yet to reveal them.
+---------
+
+# DC Officially Unveils Batman’s Sinister Six, And They’re Even Scarier Than Spider-Man’s
+
+DC Comics, Batman, DC
+
+Wed, 27 May 2026 02:00:32 GMT
+
+https://screenrant.com/batman-sinister-six-spider-man-comparison/
+
+Batman has been treated to wonderful new villains in Matt Fraction and Jorge Jiménez's run thus far, and even more are slated to join this summer.
+---------
+
+# Brendan Fraser's New WWII Movie Pressure Debuts With Strong Rotten Tomatoes Score
+
+Movies, Pressure
+
+Wed, 27 May 2026 01:09:11 GMT
+
+https://screenrant.com/pressure-brendan-fraser-movie-rotten-tomatoes-score-debut/
+
+Before The Mummy 4, Brendan Fraser stars in Pressure, a new World War II movie about D-Day in which he plays the role of Dwight D. Eisenhower.
+---------
+
+# Xbox Game Pass Quietly Drops Free "10/10 Soulslike"
+
+Gaming, Xbox Game Pass, Triple-A Games
+
+Wed, 27 May 2026 01:00:20 GMT
+
+https://screenrant.com/xbox-game-pass-10-10-soulslike-may-2026/
+
+Although Xbox Game Pass is constantly dropping tons of games on a monthly basis, one quietly snuck into the service this month.
+---------
+
+# Pressure Review: Andrew Scott & Brendan Fraser Are The Best Reasons To See This WW2 Drama
+
+Movies, Pressure
+
+Wed, 27 May 2026 00:45:20 GMT
+
+https://screenrant.com/pressure-2026-movie-review/
+
+Pressure's two lead performances elevate an otherwise dry narrative about the mechanics that went into planning the D-Day invasion during WWII.
+---------
+
+# 6 Years Later, It's The End Of An Era For Blue Lock After Shocking New Twist
+
+Anime, Blue Lock, Op-Ed
+
+Wed, 27 May 2026 00:30:19 GMT
+
+https://screenrant.com/blue-lock-chapter-347-massive-loss-great/
+
+Blue Lock's biggest loss in ages.
+---------
+
+# Shakespeare Meets Sword Art Online In Award-Winning New Netflix Anime Movie
+
+Anime, Scarlet, Netflix
+
+Wed, 27 May 2026 00:00:21 GMT
+
+https://screenrant.com/scarlet-shakespeare-sword-art-online-netflix/
+
+One of 2025's biggest anime films is finally coming to streaming on Netflix this summer, and it is the perfect watch for fans of Shakespeare and SAO.
+---------
+
+# Disney+'s Smash Hit Sci-Fi Movie Is Great, But Its 2-Part Prequel Is Even Better
+
+Streaming TV, Masked Recs
+
+Wed, 27 May 2026 00:00:21 GMT
+
+https://screenrant.com/andor-disney-plus-better-than-rogue-one/
+
+Rogue One is one of the best Star Wars movies ever made, but its prequel series Andor is a nearly perfect modern masterpiece that surpasses it.
+---------
+
+# PlayStation Drops New Free Game, Zero PlayStation Plus Required
+
+Gaming, PlayStation, PlayStation Plus, JRPG
+
+Wed, 27 May 2026 00:00:21 GMT
+
+https://screenrant.com/playstation-free-jrpg-may-2026-no-ps-plus/
+
+A new freebie has just been dropped on the PlayStation storefront, and you don't need to be a subscriber to PlayStation Plus to grab it.
+---------
+
+# 10 Games That Make You the Villain
+
+Games, Undertale, Villains, Baldur's Gate 3, Shadow of the Colossus
+
+Wed, 27 May 2026 02:15:12 GMT
+
+https://www.cbr.com/best-games-play-the-villain-list/
+
+Good is overrated. These villain-protagonist games prove that the dark side has the best mechanics and cookies.
+---------
+
+# For All Mankind: Margo Madison's Absence in Season 5
+
+TV, For All Mankind, Apple TV
+
+Wed, 27 May 2026 02:00:23 GMT
+
+https://www.cbr.com/for-all-mankind-season-5-margo-madison-absence/
+
+Many of For All Mankind's most prominent characters have been missing in Season 5, but one absence is more heartbreaking than most.
+---------
+
+# The 5 Best Cyberpunk Movies of the Last 40 Years, Ranked
+
+Movies, Blade Runner, The Matrix, Sci-Fi
+
+Wed, 27 May 2026 02:00:23 GMT
+
+https://www.cbr.com/best-cyberpunk-movies-last-40-years-list/
+
+The cyberpunk subgenre of sci-fi has always been a popular one, and over the last 4 decades, there have been some truly outstanding movies.
+---------
+
+# Star Wars Star Pushes for Polarizing Disney+ Series to Finally Continue
+
+TV, The Book of Boba Fett
+
+Wed, 27 May 2026 01:57:38 GMT
+
+https://www.cbr.com/star-wars-ming-na-wen-the-book-of-boba-fett-season-2/
+
+A Star Wars franchise star is calling for a new season of the polarizing Disney+ series after its recent rise on the streaming charts.
+---------
+
+# 10 Best Male Tsundere in Anime
+
+Anime, Dragon Ball, My Hero Academia, Naruto
+
+Wed, 27 May 2026 01:45:14 GMT
+
+https://www.cbr.com/official-best-male-tsundere-in-anime/
+
+Anime fans don't typically associate male characters with the tsundere label, but there are many fan-favorite icons that definitely qualify.
+---------
+
+# 5 Perfect Anime I Knew Were Masterpieces From the Opening Scene
+
+Anime, Cowboy Bebop, Gurren Lagann, Code Geass: Lelouch of the Rebellion, Berserk
+
+Wed, 27 May 2026 01:25:16 GMT
+
+https://www.cbr.com/perfect-anime-masterpieces-start-to-finish/
+
+Only a select few anime become instant masterpieces from the first episode
+---------
+
+# HBO's 12-Episode Sci-Fi Sleeper With 100% RT Loses Its Streaming Home in Just 5 Days
+
+TV, Scavengers Reign, Sci-Fi, Netflix
+
+Wed, 27 May 2026 01:00:13 GMT
+
+https://www.cbr.com/hbo-scavengers-reign-leaving-netflix-may-2026/
+
+Time is running out to watch HBO's most overlooked sci-fi series.
+---------
+
+# Crunchyroll’s 10/10 Fantasy Anime Finally Ends the Subs vs. Dubs Debate
+
+Anime, Witch Hat Atelier, Crunchyroll
+
+Wed, 27 May 2026 01:00:13 GMT
+
+https://www.cbr.com/crunchyroll-witch-hat-atelier-director-english-dub-interview/
+
+Crunchyroll's critically acclaimed fantasy anime Witch Hat Atelier reveals how the English dub adds to the fantastical worldbuilding of the original.
+---------
+
+# The Best Video Games Officially 20 Years Old in 2026
+
+Games, Video Games, The Legend of Zelda, Final Fantasy
+
+Wed, 27 May 2026 00:45:13 GMT
+
+https://www.cbr.com/best-video-games-20-years-old-2026/
+
+Two decades later, games like The Legend of Zelda: Twilight Princess and Okami are still near-perfect masterpieces.
+---------
+
+# Netflix's The Eternaut Is the Sci-Fi TV Event of the Decade
+
+TV, The Eternaut, Netflix, Sci-Fi
+
+Wed, 27 May 2026 00:30:12 GMT
+
+https://www.cbr.com/netflix-the-eternaut-sci-fi-tv-event/
+
+The acclaimed Netflix series is a dominant force in modern sci-fi television, making it a must-watch for fans of the genre.
+---------
+
+# ‘The Walking Dead’ Star's Criminally Overlooked Sci-Fi Hit Is Taking Over Hulu
+
+Movie News, The Walking Dead, Descendent, Hulu, Ross Marquand
+
+Wed, 27 May 2026 02:00:24 GMT
+
+https://collider.com/the-walking-dead-favorite-ross-marquand-sci-fi-hit-descendent-streaming-hulu-may-2026/
+
+Descendent, a sci-fi thriller starring The Walking Dead's Ross Marquand, has found a new streaming home less than a year after its release.
+---------
+
+# Paramount+ Brings Back TV’s Most Chaotic Series With a Major Change
+
+TV Features, Jackass, Jackass: Best and Last, Johnny Knoxville, Paramount Plus
+
+Wed, 27 May 2026 01:42:13 GMT
+
+https://collider.com/jackass-original-series-streaming-paramount-plus-restored-version/
+
+After being pulled from streaming in 2025, Jackass is back on Paramount+ and every episode has been restored to the version that first aired on MTV.
+---------
+
+# Prime Video’s #1 Series Confirms Whether Your Favorite Couple Will Return in Season 2
+
+TV News, Off Campus, Prime Video, Romance, Drama
+
+Wed, 27 May 2026 01:30:13 GMT
+
+https://collider.com/prime-videos-hit-romance-series-off-campus-season-2-hannah-garrett-romance-confirmed-showrunner-louisa-levy/
+
+Off Campus showrunner has revealed whether the leading couple in Season 1 will return in the next chapter. Here's all to know.
+---------
+
+# Every Rachel Zegler Movie, Ranked by Rewatchability
+
+Movie, Rachel Zegler, Y2K, The Hunger Games: The Ballad of Songbirds and Snakes, Snow White
+
+Wed, 27 May 2026 01:13:14 GMT
+
+https://collider.com/rachel-zegler-movies-ranked-rewatchability/
+
+From West Side Story, to Snow White, to Y2K, we've ranked every Rachel Zegler movie according to how rewatchable they are.
+---------
+
+# Every Karate Kid Movie Is Dropping on a New Streamer in 6 Days
+
+Movie News, The Karate Kid, Netflix, The Karate Kid Part II
+
+Wed, 27 May 2026 01:00:13 GMT
+
+https://collider.com/karate-kid-action-franchise-streaming-netflix-june-1-2026/
+
+The entirety of the Karate Kid franchise will soon be available to stream on Netflix, 1 year after Cobra Kai came to an end.
+---------
+
+# 8 Classic Movies Nobody Wants to See a Remake Of
+
+Movie, The Princess Bride, The Lord of the Rings, Back to the Future, Spirited Away
+
+Wed, 27 May 2026 00:55:13 GMT
+
+https://collider.com/classic-movies-no-remakes/
+
+The Goonies, All About Eve, The Princess Bride, Spirited Away, Back to the Future, and more make our list of classic movies nobody wants a remake of.
+---------
+
+# 10 Greatest Western Movies Worth Watching Over and Over
+
+Movie, Western, The Searchers, Once Upon a Time in the West, The Good, the Bad and the Ugly
+
+Wed, 27 May 2026 00:51:13 GMT
+
+https://collider.com/greatest-western-movies-worth-watching-over-and-over/
+
+From The Searchers to Unforgiven, these forgotten Western movies hold up better than any modern filmmaking in the genre.
+---------
+
+# 25 Years Later, Tom Hanks and Steven Spielberg’s 10/10 WWII Miniseries Is Taking Over the World
+
+TV News, Band of Brothers, Steven Spielberg, Tom Hanks, Saving Private Ryan
+
+Wed, 27 May 2026 00:45:13 GMT
+
+https://collider.com/best-ww2-miniseries-band-of-brothers-streaming-success-itunes-may-2026-world-war-2-with-tom-hanks/
+
+The greatest WWII series of all time, Band of Brothers, spiked on streaming after the release of World War II with Tom Hanks. Find out more.
+---------
+
+# Director of Brad Pitt’s Sci-Fi Gem Claims Studio Wrecked His Vision: “That’s Not My Cut”
+
+Movie News, Ad Astra, James Gray, Brad Pitt, Sci-Fi
+
+Wed, 27 May 2026 00:30:13 GMT
+
+https://collider.com/brad-pitt-sci-fi-epic-ad-astra-director-james-gray-disowns-disney-movie-cut-comments/
+
+Effectively disowning his sci-fi movie Ad Astra, starring Brad Pitt, director James Gray said that it was “taken away” from him by the studio.
+---------
+
+# Taylor Sheridan's 3-Part Neo-Western Surges on Streaming Amid Crossover Speculation
+
+TV News, Landman, Taylor Sheridan, Western, Paramount Plus
+
+Wed, 27 May 2026 00:15:20 GMT
+
+https://collider.com/taylor-sheridan-western-landman-streaming-success-paramount-plus-may-2026/
+
+Taylor Sheridan's hit neo-western is seeing an uptick in streaming numbers following award conversations. Get all the details here.
+---------
+
+# 8 Hidden Gem Sci-Fi Shows That Will Keep You Hooked From Start to Finish
+
+TV Lists, Scavengers Reign, Lexx, Outer Range, Red Dwarf, Made For Love, Raised by Wolves, Sci-Fi
+
+Wed, 27 May 2026 02:00:30 GMT
+
+https://movieweb.com/sci-fi-shows-underrated-hooked/
+
+With around 50 new sci-fi shows premiering each year, and thousands already in existence, it’s inevitable that some fall under the radar.
+---------
+
+# 'Pressure' Review: Riveting Performances Bring Unsung WWII Heroes to Life
+
+4 star movies, Pressure, Brendan Fraser
+
+Wed, 27 May 2026 01:41:04 GMT
+
+https://movieweb.com/pressure-review/
+
+Brendan Fraser and Andrew Scott make an already-thrilling story all the more electric.
+---------
+
+# 'Upgrade' Star Reveals New Details About Scrapped Cyberpunk Thriller Follow-Up
+
+Movie News, Upgrade, Logan Marshall-Green
+
+Wed, 27 May 2026 00:40:24 GMT
+
+https://movieweb.com/upgrade-movie-sequel-plot-details/
+
+Logan Marshall-Green still isn't giving up hope on reviving the project.
+---------
+
+# Sam Worthington & Jack Quaid Cast in New Western Drama 'Blood on the Promontory'
+
+Movie News, Sam Worthington, Jack Quaid, Western
+
+Tue, 26 May 2026 23:56:35 GMT
+
+https://movieweb.com/blood-on-the-promontory-sam-worthington-jack-quaid/
+
+Ray Mendoza is set to direct a new Western thriller titled 'Blood on the Promontory,' featuring Sam Worthington and Jack Quaid in its cast.
+---------
+
+# Sebastian Stan Gives Positive Update About MCU Return After 'The Batman - Part II'
+
+Movie News, Sebastian Stan, The Batman Part II, MCU
+
+Tue, 26 May 2026 23:42:49 GMT
+
+https://movieweb.com/sebastian-stan-mcu-update-after-batman-2/
+
+Speaking at the Cannes Film Festival, Sebastian Stan says he hopes to return to the MCU after his trip to Gotham City in 'The Batman - Part II.'
+---------
+
 # Naruto's Jiraiya Officially Returns In New Anime Trailer That Should Be The Franchise's Blueprint
 
 Anime, Naruto
