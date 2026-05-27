@@ -1,3 +1,421 @@
+# X-Men '97 Season 4 Is Officially In Development At Marvel
+
+TV, X-Men '97
+
+Wed, 27 May 2026 20:02:59 GMT
+
+https://screenrant.com/x-men-97-season-4-development-update/
+
+Ahead of X-Men '97 season 2 premiering on DIsney+, one of the show's executive producers has confirmed that season 4 is also being worked on.
+---------
+
+# Flash's Superpowers Just Officially Changed Forever
+
+DC Comics, The Flash
+
+Wed, 27 May 2026 20:00:19 GMT
+
+https://screenrant.com/flash-new-power-precognition-insight/
+
+DC confirms the Flash has developed a new superpower that makes him go from the Fastest Man Alive to a nearly omniscient, omnipresent god.
+---------
+
+# Tom Hanks' New WW2 Series Is His Spiritual Fourth Entry In The Band Of Brothers Franchise
+
+Streaming TV, Masked Recs
+
+Wed, 27 May 2026 20:00:19 GMT
+
+https://screenrant.com/tom-hanks-ww2-documentary-fourth-band-of-brothers-franchise/
+
+The A-List producer of the greatest small-screen WW2 trilogy of all time is returns to the conflict to learn from humanity's darkest hour.
+---------
+
+# If You Didn’t Like The Mandalorian And Grogu, The Next Star Wars Movie May Be For You
+
+Movies, Star Wars
+
+Wed, 27 May 2026 19:56:21 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-star-wars-starfighter-movie-for-you/
+
+Star Wars: Starfighter releases next year and is set to have a huge scale and story, with a cast full of acclaimed actors.
+---------
+
+# Quentin Tarantino’s New Version Of 22-Year-Old Crime Thriller Is Now An American Streaming Hit
+
+Movies, Masked Recs
+
+Wed, 27 May 2026 19:52:17 GMT
+
+https://screenrant.com/kill-bill-the-whole-bloody-affair-peacock-streaming-success-may-2026/
+
+The updated version of Quentin Tarantino's 22-year-old crime thriller is here, and it has just become a major American streaming sensation.
+---------
+
+# Steven Spielberg's $235M 'Blade Runner Meets Pinocchio' Sci-Fi Thriller Officially Releases On Hulu Next Week
+
+Movies, Masked Recs, Steven Spielberg
+
+Wed, 27 May 2026 19:47:48 GMT
+
+https://screenrant.com/steven-spielberg-ai-artificial-intelligence-hulu-streaming-release-june-2026/
+
+The Steven Spielberg sci-fi movie sometimes called “Blade Runner meets Pinocchio” is officially coming to Hulu in the very near future.
+---------
+
+# Prime Video Officially Confirms Black Cat's' Design For Spider-Man's New Appearance
+
+Streaming TV, Masked Recs
+
+Wed, 27 May 2026 19:46:33 GMT
+
+https://screenrant.com/spider-noir-prime-video-spiderman-marvel-black-cat-reveal/
+
+Black Cat's design for Spider-Man's new live-action appearance is unique, and it fits this 2026 release's dark street-level Marvel story.
+---------
+
+# Harry Potter X Magic The Gathering Gets Official Update Fans Won't Like
+
+Gaming
+
+Wed, 27 May 2026 19:39:22 GMT
+
+https://screenrant.com/harry-potter-mtg-official-update/
+
+Wizards of the Coast has given an official statement on the status of a possible Harry Potter Universes Beyond set, but fans might not like it.
+---------
+
+# Netflix’s Crime Thriller With One Of Its Best Casts Officially Leaves May 31 – Binge Before It’s Gone
+
+Streaming TV, Masked Recs
+
+Wed, 27 May 2026 19:34:20 GMT
+
+https://screenrant.com/netflix-dirty-john-crime-thriller-series-leaving-soon/
+
+The 2-season crime thriller series Dirty John on Netflix has one of the best ensemble casts on the platform, but it's leaving in just a few days.
+---------
+
+# Marvel Studios Unveils New X-Men Lineup For 2026
+
+Streaming TV, Masked Recs
+
+Wed, 27 May 2026 19:30:20 GMT
+
+https://screenrant.com/x-men-97-season-2-new-lineup-heroes-confirmed/
+
+Marvel has revealed the lineup of X-Men heroes set to appear in X-Men '97 season 2, and they'll be on screen months before Avengers: Doomsday.
+---------
+
+# Leonardo DiCaprio's $213M Crime Thriller Masterpiece Takes Over Prime Video
+
+Movies, One Battle After Another, Prime Video
+
+Wed, 27 May 2026 20:00:12 GMT
+
+https://www.cbr.com/leonardo-dicaprio-one-battle-after-another-prime-video-success-may-2026/
+
+Prime Video subscribers cannot stop watching the movie.
+---------
+
+# Batman’s Sinister Six Officially Introduced by DC Comics
+
+Comics, Batman
+
+Wed, 27 May 2026 20:00:12 GMT
+
+https://www.cbr.com/dc-comics-batman-12-new-villains-like-sinister-six/
+
+Perhaps Batman should ask Spider-Man how to deal with his latest batch of DC villains.
+---------
+
+# Brad Pitt's Ad Astra Is Aging Like a Fine Wine
+
+Movies, Ad Astra, Brad Pitt
+
+Wed, 27 May 2026 20:00:12 GMT
+
+https://www.cbr.com/perfect-sci-fi-movie-brad-pitt-ad-astra/
+
+James Gray's psychological sci-fi hit is as powerful now as it was back when we first met Brad Pitt's Roy McBride back in 2019.
+---------
+
+# What's Coming to Tubi in June 2026? Full List
+
+TV, Tubi
+
+Wed, 27 May 2026 19:54:01 GMT
+
+https://www.cbr.com/whats-coming-to-tubi-in-june-2026-full-list/
+
+Many exciting titles are going to be added to Tubi's free streaming library in June.
+---------
+
+# Marvel Icon Stan Lee Returning Via AI in Shocking New Project
+
+Comics, Stan Lee
+
+Wed, 27 May 2026 19:36:26 GMT
+
+https://www.cbr.com/marvel-stan-lee-returning-ai-elevenlabs/
+
+How might the true believers feel about the manner of Stan Lee's resurrection?
+---------
+
+# Chiwetel Ejiofor's Highly-Anticipated Indie Horror Debuts to Solid Rotten Tomatoes Score
+
+Movies, Backrooms
+
+Wed, 27 May 2026 19:30:24 GMT
+
+https://www.cbr.com/chiwetel-ejiofor-backdoors-rotten-tomatoes-score/
+
+2026 is a fantastic year for horror, and the latest entry is already off to a great start.
+---------
+
+# Zorro Officially Returns With New 8-Part Series In Just 1 Month
+
+TV, Zorro
+
+Wed, 27 May 2026 19:01:34 GMT
+
+https://www.cbr.com/zorro-series-trailer-mhz-choice/
+
+The world's greatest swashbuckling swordsman is returning in an all-new Zorro series.
+---------
+
+# 35 Most Popular Characters In Anime History
+
+Anime
+
+Wed, 27 May 2026 19:00:17 GMT
+
+https://www.cbr.com/most-popular-anime-characters/
+
+From Naruto's Kakashi Hatake to Attack on Titan's Eren Yeager, anime has left fans with some of the most memorable characters in history.
+---------
+
+# Picard's Single Most Powerful Star Trek Quote Hits Hard
+
+TV, Star Trek, Star Trek: The Next Generation
+
+Wed, 27 May 2026 19:00:15 GMT
+
+https://www.cbr.com/star-trek-tng-the-drumhead-picard-best-quote/
+
+One Picard line from Star Trek: The Next Generation Season 4 still resonates today and serves as a reminder to stay vigilant.
+---------
+
+# July 4 Will Be a Great Day for Frieren Season 3 Fans
+
+Anime, Frieren: Beyond Journey's End
+
+Wed, 27 May 2026 19:00:15 GMT
+
+https://www.cbr.com/frieren-season-3-anime-expo-announcement/
+
+Anime Expo 2026 is shaping up to be a massive event for fans of Frieren: Beyond Journey's End.
+---------
+
+# ‘Search Party’ Star’s Directorial Debut Gets Fantastic First Look Ahead of Summer Release
+
+Movie News, Maddie's Secret, John Early, Comedy, Collider Exclusive Preview
+
+Wed, 27 May 2026 20:01:13 GMT
+
+https://collider.com/maddies-secret-john-early-first-look-image-food-influencer/
+
+Get a first look at a new image from Maddie’s Secret, Search Party star John Early’s directorial debut, featuring Kate Berlant and Kristen Johnston.
+---------
+
+# Nicolas Cage Officially Breaks Silence on 'True Detective' Season 5 Rumors
+
+TV News, Nicolas Cage, True Detective, Issa López, HBO
+
+Wed, 27 May 2026 19:57:39 GMT
+
+https://collider.com/hbo-crime-thriller-true-detective-season-5-nicolas-cage-casting-response/
+
+Nicolas Cage has officially responded to reports that he's starring in the next season of HBO's True Detective. Read on for more.
+---------
+
+# Steven Spielberg's First Sci-Fi Movie in 8 Years Officially Praised as a Near-Perfect Return
+
+Movie News, Disclosure Day, Steven Spielberg, Emily Blunt, Sci-Fi
+
+Wed, 27 May 2026 19:32:53 GMT
+
+https://collider.com/new-steven-spielberg-sci-fi-movie-disclosure-day-first-reactions/
+
+The first reactions for Steven Spielberg's Disclosure Day have arrived, and so far it sounds like a new "home run" for the legendary director.
+---------
+
+# Taylor Sheridan Favorite Confirms Their 1 Condition for ‘Landman’ Season 3
+
+TV News, Landman, Taylor Sheridan, Sam Elliott, Paramount Plus
+
+Wed, 27 May 2026 19:30:13 GMT
+
+https://collider.com/taylor-sheridan-landman-season-3-sam-elliott-tl-cheyenne-relationship/
+
+Landman star Sam Elliott opens up about TL’s relationship with Cheyenne and what he hopes Taylor Sheridan preserves in Season 3.
+---------
+
+# 5 Near-Perfect Hard Sci-Fi Movies That Got Better With Age
+
+Movie, Science Fiction, The Martian, Colossus: The Forbin Project, Interstellar
+
+Wed, 27 May 2026 19:19:13 GMT
+
+https://collider.com/near-perfect-hard-sci-fi-movies-better-with-age/
+
+Hard sci-fi movies like Interstellar and Colossus: The Forbin Project come rather close to cinematic perfection, and time has only made them better.
+---------
+
+# ‘Airplane!’ Meets ‘Drag Race’ in Bonkers New Look at RuPaul’s Bold Disaster Movie
+
+Exclusives, Stop! That! Train!, RuPaul, Collider Exclusive Preview, Comedy
+
+Wed, 27 May 2026 19:00:15 GMT
+
+https://collider.com/stop-that-train-sneak-peek-rupaul-disaster-action-comedy/
+
+A new look at RuPual's bizarre disaster comedy Stop! That! Train! teases a runaway train of chaos and laughter heading for theaters this summer.
+---------
+
+# Nicolas Cage Is Already Teasing ‘Spider-Noir’ Season 2 on Prime Video
+
+Exclusives, Spider-Noir, Nicolas Cage, Prime Video, Spider-Man
+
+Wed, 27 May 2026 18:56:15 GMT
+
+https://collider.com/spider-noir-season-2-update-nicolas-cage-prime-video-spider-man-interview/
+
+Nicolas Cage and the Spider-Noir cast tease Season 2, Ben Reilly’s future out of NYC, and the finale’s emotional fallout.
+---------
+
+# New ‘The Witcher’ Spin-Off Officially Sets 2027 Release
+
+Gaming News, The Witcher 3: Wild Hunt, The Witcher, Henry Cavill, Netflix
+
+Wed, 27 May 2026 18:22:23 GMT
+
+https://collider.com/the-witcher-3-wild-hunt-songs-of-the-past-video-game-release-2027-pc-xbox-playstation/
+
+The Witcher 3: Wild Hunt is officially getting a new expansion, bringing Geralt of Rivia back in 2027.
+---------
+
+# 'The Walking Dead' Left Fans With a 5-Word Quote That Still Hits Hard Today
+
+TV Features, The Walking Dead, AMC, Robert Kirkman, Andrew Lincoln
+
+Wed, 27 May 2026 18:11:13 GMT
+
+https://collider.com/the-walking-dead-best-quote-season-5-show-title-meaning/
+
+In The Walking Dead Season 5, Rick Grimes delivers an especially poignant 5-word quote that still hits hard years later.
+---------
+
+# The Pups Go Prehistoric in First Look at ‘PAW Patrol 3: The Dino Movie’
+
+Movie News, PAW Patrol, PAW Patrol: The Dino Movie, Jurassic Park, Collider Exclusive Preview
+
+Wed, 27 May 2026 18:00:13 GMT
+
+https://collider.com/paw-patrol-the-dino-movie-new-image-first-look/
+
+Get an exclusive first look at PAW Patrol 3: The Dino Movie, the latest big-screen adventure for Ryder and the pups, coming to theaters in August.
+---------
+
+# Steven Spielberg's 7 Most Underrated Movies, Ranked
+
+Movie Lists, Steven Spielberg, Empire of the Sun, The Terminal, A.I. Artificial Intelligence
+
+Wed, 27 May 2026 20:00:18 GMT
+
+https://movieweb.com/steven-spielberg-underrated-movies-ranked/
+
+Before 'Disclosure Day' releases in the summer of 2026, relive the most underrated movies directed by the great Steven Spielberg.
+---------
+
+# Kane Parsons' A24 Debut Film 'Backrooms' Debuts to Strong Rotten Tomatoes Score
+
+Movie News, Backrooms, A24
+
+Wed, 27 May 2026 19:34:43 GMT
+
+https://movieweb.com/backrooms-rotten-tomatoes-score/
+
+The directorial debut of 20-year-old Kane Parsons has received its first wave of reviews online.
+---------
+
+# MovieWeb's FanExpo Philadelphia 2026 Panels
+
+Features
+
+Wed, 27 May 2026 19:07:04 GMT
+
+https://movieweb.com/movieweb-fanxpo-philadelphia-2026-panels/
+
+MovieWeb is covering all of your favorites at FanExpo Philadelphia 2026. Here's our full schedule for the upcoming weekend.
+---------
+
+# 'X-Men '97' Season 2 Trailer Features Deadpool Cameo
+
+TV News, X-Men '97, Deadpool
+
+Wed, 27 May 2026 19:00:56 GMT
+
+https://movieweb.com/deadpool-cameo-x-men-97-season-2/
+
+It appears the shape-shifting X-Men Morph will take on Deadpool's appearance to fight an alien threat.
+---------
+
+# 10 Fantasy Shows Better Than 'House of the Dragon'
+
+TV Lists, House of the Dragon, Fantasy
+
+Wed, 27 May 2026 19:00:19 GMT
+
+https://movieweb.com/fantasy-tv-shows-better-house-of-dragon/
+
+'House of the Dragon,' the HBO 'Game of Thrones' prequel series, is great, but these fantasy TV shows are even more impressive.
+---------
+
+# Steven Spielberg's $607M Sci-Fi Action Epic Hits Streaming June 1
+
+Movie News, Ready Player One, Coming/Leaving Streaming
+
+Wed, 27 May 2026 19:00:19 GMT
+
+https://movieweb.com/ready-player-one-streaming-hbo-max-june-2026/
+
+Are you a fan of everything '80s? Then this one is a must-watch.
+---------
+
+# Tom Hardy Reportedly "Refused" To Leave Trailer in New 'MobLand' BTS Drama Details
+
+TV News, Tom Hardy, MobLand
+
+Wed, 27 May 2026 18:54:08 GMT
+
+https://movieweb.com/tom-hardy-mobland-bts-drama-details/
+
+Tom Hardy reportedly refused to leave his trailer for hours at a time, leading to series Pierce Brosnan and Helen Mirren waiting.
+---------
+
+# Christopher Lee's Dracula Returns With Newly Discovered Long-Lost Footage
+
+Movie News, Horror Of Dracula, Christopher Lee
+
+Wed, 27 May 2026 18:16:22 GMT
+
+https://movieweb.com/dracula-christopher-lee-uncensored-cut/
+
+Censors blocked the original 'Horror of Dracula' release with these scenes.
+---------
+
 # Disclosure Day First Reactions Are In
 
 Movies, Disclosure Day
