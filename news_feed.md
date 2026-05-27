@@ -1,3 +1,201 @@
+# The Star Wars Timeline Explained, Completely & Succinctly
+
+Movies, Star Wars
+
+Wed, 27 May 2026 03:46:15 GMT
+
+https://screenrant.com/star-wars-timeline-explained/
+
+The Star Wars timeline is only going to get more expansive as the franchise continues, making it more necessary than ever to explore every era.
+---------
+
+# Oldboy Fans Simply Can't Miss Netflix's Upcoming Psychological Thriller
+
+TV, Netflix, Masked Recs
+
+Wed, 27 May 2026 03:30:21 GMT
+
+https://screenrant.com/oldboy-notes-from-the-last-row-netflix-psychological-thriller/
+
+For those craving more of the most iconic revenge thriller's star, June 2026 has a tantalizing new psychological thriller coming to Netflix.
+---------
+
+# All 4 Seasons Of Apple TV's M. Night Shyamalan Thriller Are Perfect From Start To Finish
+
+Streaming TV, Masked Recs
+
+Wed, 27 May 2026 03:15:20 GMT
+
+https://screenrant.com/servant-apple-tv-m-night-shyamalan-thriller-every-season-good/
+
+M. Night Shyamalan’s 4-season psychological horror thriller on Apple TV is a near-perfect show that remains compelling almost throughout its runtime.
+---------
+
+# Every Star Wars Character Played By Jon Favreau & Dave Filoni
+
+Star Wars, The Mandalorian and Grogu, Dave Filoni, Jon Favreau
+
+Wed, 27 May 2026 02:56:59 GMT
+
+https://screenrant.com/every-star-wars-character-played-by-jon-favreau-dave-filoni/
+
+Over the years, Lucasfilm's Dave Filoni and director Jon Favreau have both played more than a few Star Wars roles, and it's a pretty wild roster.
+---------
+
+# Solo Leveling Becomes First Anime on Crunchyroll to Hit 1 Million Ratings
+
+Anime, Solo Leveling
+
+Wed, 27 May 2026 04:15:12 GMT
+
+https://www.cbr.com/solo-leveling-crunchyroll-million-rating-record/
+
+A year after its second season aired, Solo Leveling has beaten both One Piece & JJK to become the first anime to hit 1 million ratings on Crunchyroll.
+---------
+
+# Amazon’s Fourth Wing TV Adaptation: Cast, Release Window & Everything We Know
+
+TV
+
+Wed, 27 May 2026 03:47:43 GMT
+
+https://www.cbr.com/amazon-fourth-wing-tv-show-cast-release-date-story-update/
+
+Amazon is adapting Rebecca Yarros’ Fourth Wing for TV. Here’s every major update on the fantasy series so far.
+---------
+
+# 5 Underrated 2000s Anime That Are Flawless From Start to Finish
+
+Anime, Monster, Fullmetal Alchemist: Brotherhood, Samurai Champloo
+
+Wed, 27 May 2026 03:46:20 GMT
+
+https://www.cbr.com/flawless-underrated-2000s-anime-list/
+
+The 2000s were a decade for the record books, and anime like Monster and Samurai Champloo are considered the pinnacle of flawless anime storytelling.
+---------
+
+# All 5 'Scary Movie' Films, Ranked
+
+Movies, Scary Movie
+
+Wed, 27 May 2026 03:46:20 GMT
+
+https://www.cbr.com/every-scary-movie-film-ranked-list/
+
+The Scary Movie franchise took horror parodies to new heights, but some entries have aged better than others.
+---------
+
+# Star Trek: DS9's Darkest Episode Still Has the Best Space Battle in Sci-Fi History
+
+TV, Sci-Fi, Star Trek: Deep Space Nine, Paramount
+
+Wed, 27 May 2026 03:31:13 GMT
+
+https://www.cbr.com/star-trek-ds9-way-of-the-warrior-best-sci-fi-space-battle/
+
+With each passing moment, the stakes grow higher and the consequences more dire in this unforgettable Star Trek battle.
+---------
+
+# Apple's New Mistborn Movie Looks Even Better Than The Lord of the Rings
+
+Movies, Mistborn, Brandon Sanderson, The Lord of the Rings
+
+Wed, 27 May 2026 03:15:13 GMT
+
+https://www.cbr.com/apple-mistborn-movie-better-than-lord-of-the-rings/
+
+The Lord of the Rings has dominated the fantasy world but there is a new hero on the horizon.
+---------
+
+# 5 Open-World Adventure Games That Let You Play At Your Own Pace
+
+Games, open world, Ghost of Yotei, Elden Ring, The Legend of Zelda
+
+Wed, 27 May 2026 03:15:13 GMT
+
+https://www.cbr.com/open-world-adventure-games-play-at-your-own-pace-list/
+
+Open-world adventure games like Elden Ring and Ghost of Yōtei that allow you to explore and progress at your own pace, without feeling rushed.
+---------
+
+# 5 Best Superhero Anime Ever Made
+
+Anime, Tiger & Bunny, Samurai Flamenco
+
+Wed, 27 May 2026 02:45:13 GMT
+
+https://www.cbr.com/best-superhero-anime-ever-list/
+
+Anime is a medium that loves to celebrate superhero stories, with Tiger & Bunny and Samurai Flamenco representing some of the genre's very best.
+---------
+
+# Spider-Man: Brand New Day Will Break Marvel's Aunt May Movie Record
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Wed, 27 May 2026 02:45:13 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-first-spider-man-movie-no-aunt-may/
+
+Destin Daniel Cretton's upcoming Spider-Man: Brand New Day will break a huge record in Peter Parker's live-action movie history.
+---------
+
+# Disney+’s $40M Action Fantasy Series Is Aging Like Fine Wine
+
+TV Features, Echo, Alaqua Cox, Zahn McClarnon, Vincent D'Onofrio
+
+Wed, 27 May 2026 04:45:53 GMT
+
+https://collider.com/echo-disney-action-fantasy-series/
+
+Echo explores Maya Lopez's origin story, delving into her heritage and past while showcasing the MCU's potential for smaller-scale stories.
+---------
+
+# 8 Most Perfect TV Dramas of the Last 6 Years, Ranked
+
+TV, Interview with the Vampire, Half Man, Drama, Andor
+
+Wed, 27 May 2026 04:27:13 GMT
+
+https://collider.com/most-perfect-tv-drama-shows-last-6-years-ranked/
+
+Shōgun, Andor, Paradise, Half Man, Severance, and more make up our list of the most perfect TV dramas of the last six years.
+---------
+
+# 10 Greatest Dark Fantasy Movies of the Last 25 Years, Ranked
+
+Movie, Fantasy, Pan's Labyrinth, Coraline
+
+Wed, 27 May 2026 03:26:13 GMT
+
+https://collider.com/best-dark-fantasy-movies-last-25-years-ranked/
+
+The 21st century has delivered some truly impressive dark fantasy movies, from Oscar winners like The Shape of Water to formative gems like Coraline.
+---------
+
+# 10 R-Rated Thriller Movies That Are Perfect From Start to Finish
+
+Movie, Thriller, Deadpool, Die Hard, Pulp Fiction
+
+Wed, 27 May 2026 03:18:15 GMT
+
+https://collider.com/r-rated-thriller-movies-perfect-start-to-finish/
+
+From Die Hard to Pulp Fiction, Goodfellas to John Wick, these perfect R-rated thriller movies sure know how to earn their rating.
+---------
+
+# Nicolas Cage Reveals Why Christopher Nolan Won't Work With Him
+
+Movie News, Nicolas Cage, Christopher Nolan, The Odyssey, Spider-Noir
+
+Wed, 27 May 2026 04:47:17 GMT
+
+https://movieweb.com/nicolas-cage-christopher-nolan/
+
+Nicolas Cage once turned down Christopher Nolan's offer to appear in a movie, and apparently Nolan hasn't gotten over it.
+---------
+
 # Fallout's Long-Awaited Video Game Return Leaves Fans Torn
 
 Gaming, Fallout, Triple-A Games
