@@ -1,3 +1,388 @@
+# Prime Video's The Boys Replacement Just Arrived & It Features A Major Season 5 Connection
+
+Streaming TV, Masked Recs
+
+Wed, 27 May 2026 22:13:56 GMT
+
+https://screenrant.com/spider-noir-the-boys-replacement-season-5-connection/
+
+The Boys' replacement is now available on Prime Video, and the new 8-episode superhero series repeats a key season 5 storyline with plenty of action.
+---------
+
+# Every Spider-Man Villain In Spider-Noir
+
+Superheroes, Spider-Noir, Marvel Cinematic Universe, Spider-Man
+
+Wed, 27 May 2026 22:09:41 GMT
+
+https://screenrant.com/every-spider-man-villain-in-spider-noir/
+
+Sony and Amazon's new Spider-Noir series features an impressive collection of Marvel villains, re-imagined for the streets of 1930s New York.
+---------
+
+# Crash Bandicoot, Spyro Unite In Beautiful Crossover Gameplay
+
+Gaming, Crash Bandicoot, Spyro the Dragon, Triple-A Games
+
+Wed, 27 May 2026 22:00:20 GMT
+
+https://screenrant.com/crash-bandicoot-spyro-multiplayer-crossover-mod/
+
+Spyro and Crash Bandicoot unite in new gameplay, and showcase how long these franchises have both been around since the retro era.
+---------
+
+# Castlevania Meets Pirates of the Caribbean in New Dark Fantasy Series, And It Already Looks Epic
+
+Comics, Masked Recs, Fantasy
+
+Wed, 27 May 2026 22:00:20 GMT
+
+https://screenrant.com/vampyrates-castlevania-meets-pirates-carribean-dark-fantasy/
+
+Fans of Castlevania and Pirates of the Caribbean won’t want to miss this summer’s dark fantasy epic, where vampires and pirates collide.
+---------
+
+# 10 Best PlayStation Days Of Play 2026 Deals
+
+Gaming, PlayStation, Triple-A Games
+
+Wed, 27 May 2026 21:54:43 GMT
+
+https://screenrant.com/playstation-days-of-play-2026-best-deals/
+
+Days of Play has returned in 2026 with more than 2,000 sales on the PlayStation Store; we've narrowed it down to the 10 absolute best deals.
+---------
+
+# House Of The Dragon Season 3 Is Officially Rewriting Rhaenyra Targaryen
+
+Streaming TV, House of the Dragon, Game of Thrones
+
+Wed, 27 May 2026 21:32:20 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-rewriting-rhaenyra-targaryen/
+
+Rhaenyra Targaryen has already been through a couple of rewrites in House of the Dragon, but season 3 is about to lean into a much darker twist.
+---------
+
+# 12 Best James Bond Games Of All Time, Ranked
+
+Gaming, 007 First Light, James Bond, Triple-A Games, PC
+
+Wed, 27 May 2026 21:30:21 GMT
+
+https://screenrant.com/best-james-bond-games-ranked/
+
+007 First Light is far from the first Triple-A bond title released, with plenty of incredible adaptations over the years that are still worth playing.
+---------
+
+# 46 Years Later, Star Wars Is Redefining One Of Its Most Famous Quotes
+
+Movies, The Mandalorian and Grogu, Star Wars: Episode V - The Empire Strikes Back, Star Wars
+
+Wed, 27 May 2026 21:30:20 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-yoda-quote-size-matters-not/
+
+The Mandalorian and Grogu is redefining Yoda' iconic "Size matters not" Star Wars quote nearly half a century after The Empire Strikes Back.
+---------
+
+# Rivals Season 2 Interviews with David Tennant, Claire Rushbrook & More Cast Members
+
+Videos, Rivals, Rivals - Season 2, David Tennant
+
+Wed, 27 May 2026 21:21:42 GMT
+
+https://screenrant.com/video/rivals-season-2-david-tennant-claire-rushbrook-cast-interview/
+
+Rivals stars David Tennant, Claire Rushbrook, Danny Dyer, and Katherine Parkinson react to the huge success of season 1 and share what sets season 2 apart.
+---------
+
+# Rick & Morty Season 9 Officially Sets Rotten Tomatoes Record For Series' New Era
+
+TV, Rick and Morty
+
+Wed, 27 May 2026 21:12:23 GMT
+
+https://screenrant.com/rick-morty-season-9-audience-rotten-tomatoes-score-debut/
+
+Rick and Morty season 9 has been billed as one of the show's best, and it has now broken a major Rotten Tomatoes score record for the sci-fi series.
+---------
+
+# Nicolas Cage's Indiana Jones Replacement Returns as a Hulu Streaming Hit
+
+Movies, National Treasure, Hulu, Nicolas Cage
+
+Wed, 27 May 2026 22:00:14 GMT
+
+https://www.cbr.com/nicolas-cage-national-treasure-hulu-streaming-hit-may-2026/
+
+Spider-Noir isn't the only Nicolas Cage that audiences are streaming in the U.S. right now.
+---------
+
+# It's Official, Demi Moore's New Crime Comedy Beat Star Wars at Its Own Game
+
+Movies, I Love Boosters, Star Wars, The Mandalorian and Grogu
+
+Wed, 27 May 2026 22:00:14 GMT
+
+https://www.cbr.com/i-love-boosters-stop-motion-better-than-star-wars-mandalorian-grogu/
+
+This hilarious sci-fi crime epic features better effects work than the latest Star Wars flick.
+---------
+
+# HBO's True Detective Hit With Frustrating Season 5 Update 1 Year After Major Casting News
+
+TV, True Detective
+
+Wed, 27 May 2026 21:47:20 GMT
+
+https://www.cbr.com/hbo-true-detective-season-5-update/
+
+Two years after Night Country, fans get a frustrating update on True Detective's future.
+---------
+
+# Timothy Olyphant’s New 10-Part Netflix Series Officially a Streaming Hit
+
+TV, Mating Season
+
+Wed, 27 May 2026 21:30:12 GMT
+
+https://www.cbr.com/timothy-olyphant-mating-season-netflix-hit/
+
+The newest series featuring Timothy Olyphant has quietly become a success on Netflix.
+---------
+
+# 3 Perfect Movies That Are Impossible to Improve
+
+Movies
+
+Wed, 27 May 2026 21:30:12 GMT
+
+https://www.cbr.com/perfect-movie-need-no-improvement-list/
+
+In a world where remakes, reboots, and re-releases are all the rage, some movies show that not everything needs updating.
+---------
+
+# Tom Hardy Snubbed Pierce Brosnan & Helen Mirren Before MobLand Firing
+
+TV, MobLand
+
+Wed, 27 May 2026 21:18:22 GMT
+
+https://www.cbr.com/tom-hardy-snubbed-pierce-brosnan-helen-mirren-mobland-firing/
+
+New details are coming to light about Tom Hardy's reported firing.
+---------
+
+# 4 PS2 Games Better Than Final Fantasy 10
+
+Games, Kingdom Hearts, Persona, Dragon Quest, Final Fantasy
+
+Wed, 27 May 2026 21:15:12 GMT
+
+https://www.cbr.com/ps2-games-better-than-ff10/
+
+Final Fantasy 10 followed the successful return to the franchise one year earlier, but these four PS2 titles make an argument as the superior titles.
+---------
+
+# Paramount+'s New Record-Breaking Yellowstone Spin-Off Has Lost Its Number 1 Streaming Spot
+
+TV, Yellowstone, Dutton Ranch, Paramount Plus
+
+Wed, 27 May 2026 21:01:13 GMT
+
+https://www.cbr.com/yellowstone-dutton-ranch-western-drama-paramount-success-may-2026/
+
+The Yellowstone universe continues to grow, but not every spin-off can hold the No. 1 spot.
+---------
+
+# 5 Batman Movie Villains More Terrifying Than The Joker, Ranked
+
+Movies, Batman
+
+Wed, 27 May 2026 21:01:13 GMT
+
+https://www.cbr.com/batman-movie-villains-more-terrifying-than-the-joker-list/
+
+Viewers have just about had enough of the Joker in live action, and it's time to turn attention to Batman's real terrifying villains.
+---------
+
+# 5 Lord of the Rings Characters More Important Than Frodo Baggins
+
+Movies, The Lord of the Rings
+
+Wed, 27 May 2026 21:01:13 GMT
+
+https://www.cbr.com/important-lord-of-the-rings-characters-not-frodo-baggins-list/
+
+Frodo Baggins may be the Hobbit that defended Middle-earth and destroyed the Ring, but there are many characters more important than him.
+---------
+
+# 8 Adult Animated Shows With Better Writing Than 'Rick & Morty'
+
+TV, Rick & Morty, Animation, Invincible, The Boondocks
+
+Wed, 27 May 2026 22:03:14 GMT
+
+https://collider.com/adult-animated-tv-shows-better-writing-than-rick-and-morty/
+
+Even though Rick & Morty boasts strong writing, adult animated series like Prime Video's Invincible and Netflix's BoJack Horseman are arguably better.
+---------
+
+# A24’s New Horror Obsession Is Already One of the Best-Reviewed Thrillers of the Year
+
+Movie News, A24, Horror, Backrooms, Rotten Tomatoes
+
+Wed, 27 May 2026 22:01:14 GMT
+
+https://collider.com/a24-horror-movie-backrooms-rotten-tomatoes-score-is-it-good-chiwetel-ejiofor/
+
+Based on a viral YouTube series, A24's new movie, Backrooms, is one of the most talked-about horror films of the year. Find out more here.
+---------
+
+# 10 Greatest Canadian Horror Movies You've Never Heard Of, Ranked
+
+Movie, The Retreat, Backcountry, The Interior, Ghostkeeper
+
+Wed, 27 May 2026 21:51:15 GMT
+
+https://collider.com/best-canadian-horror-movies-youve-never-heard-of-ranked/
+
+The Carpenter, The Retreat, and The Interior are all excellent Canadian horror movies that you probably haven't even heard of.
+---------
+
+# ‘Reacher’ Creator Turned Down James Bond Twice for One Brutally Simple Reason
+
+TV News, Reacher, Jack Reacher, James Bond, Lee Child
+
+Wed, 27 May 2026 21:31:13 GMT
+
+https://collider.com/reacher-creator-james-bond-books-lee-child-turned-down-offer-to-write/
+
+Reacher creator Lee Child reveals why he rejected two offers to write official James Bond novels and why he thinks 007 struggles today.
+---------
+
+# 19 Years Later, Samuel L. Jackson's Homicide Thriller Is Taking Over the World
+
+Movie Features, Samuel L. Jackson, Cleaner, Netflix, Ed Harris
+
+Wed, 27 May 2026 21:29:13 GMT
+
+https://collider.com/samuel-l-jackson-cleaner-crime-thriller-netflix-top-10/
+
+Years after it was unfairly panned, the Samuel L. Jackson-led Cleaner is topping the charts on Netflix thanks to a clever mystery & star-studded cast.
+---------
+
+# The Mandalorian & Grogu: The 62-Pound Armor Problem | Collider BTS
+
+Movie, The Mandalorian and Grogu
+
+Wed, 27 May 2026 21:12:12 GMT
+
+https://collider.com/video/the-mandalorian-grogu-the-62-pound-armor-problem-collider-bts/
+
+Behind The Mandalorian & Grogu, Collider BTS reveals how a 62-pound armor problem shaped the Star Wars production, stunt work, and Din Djarin’s return.
+---------
+
+# Star Wars Finally Returns to Theaters but Can’t Beat Ryan Gosling’s Sci-Fi Hit in One Category
+
+Movie News, The Mandalorian and Grogu, Project Hail Mary, Sci-Fi, Box Office
+
+Wed, 27 May 2026 21:01:13 GMT
+
+https://collider.com/project-hail-mary-tops-the-mandalorian-and-grogu-box-office-per-theater-average/
+
+The Mandalorian and Grogu's theatrical debut falls short of expectations, losing to Ryan Gosling's new sci-fi masterpiece in one key metric.
+---------
+
+# HBO Max Officially Has Its Answer to 'Bosch' and 'The Lincoln Lawyer'
+
+TV News, Bosch, The Lincoln Lawyer
+
+Wed, 27 May 2026 20:55:47 GMT
+
+https://collider.com/hbo-max-new-bosch-replacement-series-michael-connelly-adaptation-lincoln-lawyer-creator-davd-e-kelley/
+
+After Netflix cancelled The Lincoln Lawyer, HBO Max has ordered a new crime thriller adaptation of a beloved novel from the author of Bosch.
+---------
+
+# 10 Perfect Horror Movies That Are About 90 Minutes Long
+
+Movie, The Witch, The Texas Chain Saw Massacre, The Evil Dead, Horror
+
+Wed, 27 May 2026 20:54:13 GMT
+
+https://collider.com/perfect-horror-movies-90-minutes-long/
+
+Nosferatu, The Witch, and The Night of the Hunter are all among the very best, genuinely perfect horror movies that run about 90 minutes long.
+---------
+
+# One of the Most Influential Fantasy Adventures of All Time Officially Returns Next Week
+
+Gaming News, Final Fantasy, Final Fantasy 9, Final Fantasy XV, Final Fantasy: Unlimited
+
+Wed, 27 May 2026 20:31:13 GMT
+
+https://collider.com/final-fantasy-6-pixel-remaster-xbox-game-pass-june-2026/
+
+One of the most beloved fantasy RPGs of all time is officially returning in one week. Get the details.
+---------
+
+# Netflix’s Most Underrated Returning Series Has One of the Greatest Casts
+
+Features, The Four Seasons, Netflix
+
+Wed, 27 May 2026 22:00:19 GMT
+
+https://movieweb.com/four-seasons-netflix-great-cast/
+
+Netflix has several popular TV shows with famous cast members, and one show coming back for its second season on May 28, 2026, has a talented cast.
+---------
+
+# 'Disclosure Day' Reactions Confirm It's Steven Spielberg's Best Film in Decades
+
+Movie News, Disclosure Day, Steven Spielberg, Emily Blunt, Sci-Fi
+
+Wed, 27 May 2026 21:58:41 GMT
+
+https://movieweb.com/disclosure-day-reactions-steven-spielberg/
+
+Emily Blunt may also give the performance of her career.
+---------
+
+# 'Toy Story 5' Filmmakers Reveal How Sequel Story Changed Completely During Development
+
+Movie News, Toy Story 5, Andrew Stanton
+
+Wed, 27 May 2026 21:47:38 GMT
+
+https://movieweb.com/toy-story-5-story-changes-lilypad/
+
+Andrew Stanton and Kenna Harris, the writers of 'Toy Story 5,' explained how the 'toys vs. tech' story came together organically during development.
+---------
+
+# Marvel Officially Sets up Wolverine's Darkest X-Men Storyline Yet
+
+Features, MCU, X-Men, X-Men '97
+
+Wed, 27 May 2026 21:38:20 GMT
+
+https://movieweb.com/marvel-x-men-97-wolverine-darkest-storyline/
+
+Logan may be set to endure one of his bleakest storylines from Marvel comics this summer in the next 'X-Men' outing.
+---------
+
+# Nicolas Cage Reveals the Truth About 'True Detective' Season 5 Casting
+
+TV News, True Detective, Nicolas Cage, Spider-Noir
+
+Wed, 27 May 2026 20:12:53 GMT
+
+https://movieweb.com/nicolas-cage-true-detective-season-5-update/
+
+The 'Spider-Noir' actor has addressed the possibility of starring in another television series.
+---------
+
 # X-Men '97 Season 4 Is Officially In Development At Marvel
 
 TV, X-Men '97
