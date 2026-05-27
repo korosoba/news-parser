@@ -1,3 +1,443 @@
+# After 25 Years, An Iconic X-Men Hero Officially Unleashes Their Ultimate Form
+
+Comics, X-Men
+
+Wed, 27 May 2026 14:15:38 GMT
+
+https://screenrant.com/x-men-glob-herman-ultimate-form-hulk/
+
+You need to see this god-tier glow-up.
+---------
+
+# Rings Of Power Gets Major Season 4 Update Ahead Of Season 3's 2026 Release
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Prime Video
+
+Wed, 27 May 2026 14:11:54 GMT
+
+https://screenrant.com/rings-of-power-season-4-development-filming-update-primevideo/
+
+While season 3 is releasing in 2026, Prime Video has officially revealed The Rings of Power season 4's fate, as a major new update has been shared.
+---------
+
+# Steam Gamers Have 24 Hours To Grab 2 Excellent Free Games
+
+Gaming, Steam, PC, Indie, Warhammer 40K
+
+Wed, 27 May 2026 14:10:18 GMT
+
+https://screenrant.com/steam-free-games-24-hours-warhammer-40k/
+
+There are only 24 hours left to grab and play two excellent games for free on Steam, after which, the titles will return to their regular price.
+---------
+
+# Gillian Anderson Resurrects A Slasher Franchise In R-Rated Teenage Sex & Death At Camp Miasma Trailer
+
+Movies, Teenage Sex and Death at Camp Miasma
+
+Wed, 27 May 2026 14:00:19 GMT
+
+https://screenrant.com/teenage-sex-and-death-at-camp-miasma-trailer/
+
+X-Files' Gillian Anderson and Hacks' Hannah Einbinder work to resurrect a slasher franchise in the Teenage Sex and Death at Camp Miasma trailer.
+---------
+
+# Oni Press and Dave Baker's HALLOWEEN BOY is the Perfect Hero for 2026
+
+Comics, Oni Press
+
+Wed, 27 May 2026 14:00:19 GMT
+
+https://screenrant.com/halloween-boy-dave-baker-oni-press-preview/
+
+No tricks.
+---------
+
+# 007 First Light Teases Another Iconic James Bond Character's Return
+
+Gaming, 007 First Light, James Bond, Triple-A Games, PC
+
+Wed, 27 May 2026 14:00:19 GMT
+
+https://screenrant.com/007-first-light-felix-leiter-reference/
+
+007 First Light is brimming with franchise staple characters, but one recurring role is only mentioned in passing, and may easily return in a sequel.
+---------
+
+# After 32 Years, It’s Sadly Too Late For The Biggest Star Trek Dream To Come True
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Wed, 27 May 2026 14:00:19 GMT
+
+https://screenrant.com/star-trek-william-shatner-kirk-comeback-never-happen/
+
+William Shatner last played Captain Kirk in Star Trek Generations. Since then, attempts to have Shatner reprise Kirk have been for naught.
+---------
+
+# Backrooms Rotten Tomatoes Score Debut Revealed
+
+Movies, Backrooms
+
+Wed, 27 May 2026 13:55:00 GMT
+
+https://screenrant.com/backrooms-movie-rotten-tomatoes-score-debut/
+
+Backrooms has debuted with a high Rotten Tomatoes score, setting the stage for the new horror movie to dominate the box office on opening weekend.
+---------
+
+# Fallout: New Vegas Officially Returns Next Month
+
+Gaming, Fallout, Fallout: New Vegas
+
+Wed, 27 May 2026 13:30:19 GMT
+
+https://screenrant.com/fallout-new-vegas-june-2026-new-release/
+
+Fallout: New Vegas is still the peak of the franchise for many who follow it closely, and it's back with a new release next month.
+---------
+
+# Disney's Global Sensation Franchise Is So Good, It Has At Least 8 More Movies Coming
+
+New Movies, Masked Recs
+
+Wed, 27 May 2026 13:30:19 GMT
+
+https://screenrant.com/disney-mcu-franchise-more-movies/
+
+Disney has built a global smash hit franchise over the years that has become so good, the studio has confirmed plans to make 8 more movies, at least.
+---------
+
+# 5 Strongest Naruto Characters Weaker Than Sarada Uchiha
+
+Anime, Naruto, Naruto: Shippuden, Boruto: Naruto Next Generations
+
+Wed, 27 May 2026 14:15:13 GMT
+
+https://www.cbr.com/strongest-naruto-characters-weaker-than-sarada-uchiha/
+
+Sarada Uchiha makes a compelling case for being one of the strongest characters in Naruto, and she'd destroy these classic powerful characters.
+---------
+
+# Primetime   Official Teaser
+
+Movies, Primetime
+
+Wed, 27 May 2026 14:06:25 GMT
+
+https://www.cbr.com/video/primetime-official-teaser/
+
+A24 unveiled the official teaser for Robert Pattinson's Primetime
+---------
+
+# Gillian Anderson's 100% RT Slasher Drops Beautifully Bloody Trailer
+
+Movies, Teenage Sex and Death at Camp Miasma
+
+Wed, 27 May 2026 14:00:13 GMT
+
+https://www.cbr.com/teenage-sex-and-death-at-camp-miasma-official-trailer/
+
+The meta slasher movie drops an official trailer after earning universal acclaim from critics at Cannes.
+---------
+
+# 7 Forgotten Shonen Manga That Are 10/10 No Notes
+
+Anime, Manga, Shonen
+
+Wed, 27 May 2026 13:15:12 GMT
+
+https://www.cbr.com/forgotten-shonen-manga-flawless-start-to-finish/
+
+While many Shonen manga are as famous as Superman and Batman comics, others have been completely forgotten, despite their brilliant quality.
+---------
+
+# 1 Week After Finale, Starz's Divisive New Historical Drama Is Fighting Outlander for No. 1
+
+TV, Amadeus
+
+Wed, 27 May 2026 13:00:14 GMT
+
+https://www.cbr.com/starz-amadeus-outlander-streaming-battle-may-2026/
+
+It's a battle of the historical dramas, with Paul Bettany's new offering on Starz going head-to-head with Outlander for the throne.
+---------
+
+# Sydney Sweeney’s The Housemaid 2 Is Already the Thriller Event of the Decade
+
+Movies, The Housemaid, The Housemaid's Secret, Thriller
+
+Wed, 27 May 2026 13:00:14 GMT
+
+https://www.cbr.com/ssydney-sweeney-housemaid-2-thriller-movie-event-of-decade/
+
+Grossing 11 times its budget, this R-rated thriller became one of the decade's most surprising hits and is set to return in 2027.
+---------
+
+# Supernatural Season 5 Tested the Winchesters' Unbreakable Bond
+
+TV, Supernatural
+
+Wed, 27 May 2026 13:00:14 GMT
+
+https://www.cbr.com/supernatural-season-5-dark-side-of-the-moon-devastating-episode/
+
+One episode in Supernatural Season 5 nearly shattered the bond between Sam and Dean Winchester.
+---------
+
+# Henry Cavill's Sherlock Holmes Returns With New Trailer for Netflix's Murder Mystery Franchise
+
+Movies, Enola Holmes 3
+
+Wed, 27 May 2026 12:03:21 GMT
+
+https://www.cbr.com/henry-cavill-enola-holmes-3-trailer/
+
+Four years later, Henry Cavill returns as Sherlock Holmes in a new installment.
+---------
+
+# The Predator Finds Streaming Redemption 8 Years After Flopping in Theaters
+
+Movies, The Predator
+
+Wed, 27 May 2026 12:00:13 GMT
+
+https://www.cbr.com/the-predator-sci-fi-streaming-success-tubi-may-2026/
+
+The most infamous entry in a classic sci-fi franchise is finding surprise redemption nearly a decade after a historic box office flop.
+---------
+
+# DC Comics Just Replaced the Bat-Family — And Fans Didn’t See It Coming
+
+Comics, Batman
+
+Wed, 27 May 2026 12:00:13 GMT
+
+https://www.cbr.com/dc-comics-batman-h2sh-bat-family-replacement/
+
+Batman: H2SH sees the Dark Knight allying with the last people fans would expect.
+---------
+
+# Hannah Einbinder Goes From 'Hacks' to Slashers in Chilling New 'Camp Miasma' Trailer [Exclusive]
+
+Movie News, Teenage Sex and Death at Camp Miasma, Hannah Einbinder, Gillian Anderson, Jane Schoenbrun
+
+Wed, 27 May 2026 14:00:14 GMT
+
+https://collider.com/hannah-einbinder-gillian-anderson-horror-camp-miasma-trailer-poster/
+
+Hannah Einbinder and Gillian Anderson try to bring a slasher franchise back from the dead in the new trailer for Camp Miasma. Watch it now.
+---------
+
+# ‘Euphoria’ Star’s New Shudder Thriller Gets First Look Ahead of June Release
+
+Movie News, Euphoria, Thriller, Find Your Friends, Collider Exclusive Preview
+
+Wed, 27 May 2026 14:00:14 GMT
+
+https://collider.com/new-horror-thriller-shudder-find-your-friends-chloe-cherry-first-look-image/
+
+Get a new look at Find Your Friends, the Shudder thriller starring Chloe Cherry and inspired by a terrifying true story.
+---------
+
+# 'Criminal Minds: Evolution' Is Finally Going Back to Its Psychological Thriller Roots With Season 4 | Review
+
+TV Reviews, Criminal Minds, CBS, A.J. Cook, Paget Brewster
+
+Wed, 27 May 2026 13:29:57 GMT
+
+https://collider.com/criminal-minds-evolution-season-4-review/
+
+Criminal Minds: Evolution Season 4 leans into intense cinematography, compelling storylines, and strong performances from the cast.
+---------
+
+# Robert Pattinson Takes on the Criminal Underworld in First 'Primetime' Trailer
+
+Movie News, Robert Pattinson, Skyler Gisondo, Merritt Wever, Anna Faris
+
+Wed, 27 May 2026 13:01:13 GMT
+
+https://collider.com/robert-pattinson-crime-thriller-primetime-trailer-to-catch-a-predator-chris-hansen/
+
+In Primetime, Robert Pattinson stars as To Catch a Predator's Chris Hansen, delving into the controversial TV phenomenon. See the trailer now.
+---------
+
+# 10 Years Later, Your Favorite Music Video Is Getting the Movie Treatment With Breathtaking First Look
+
+Movie News, Girls Like Girls, Zach Braff, Scrubs, Collider Exclusive Preview
+
+Wed, 27 May 2026 13:01:13 GMT
+
+https://collider.com/hayley-kiyoko-girls-like-girls-image-maya-de-costa-myra-molloy-zach-braff/
+
+Focus Features has released a new image from the steamy upcoming drama, Girls Like Girls, directed by Hayley Kiyoko.
+---------
+
+# 26 Years Later, Star Trek Finally Fixes Voyager’s Biggest Sci-Fi Mistake
+
+TV Features, Star Trek: Starfleet Academy, Star Trek: Voyager, Paramount Plus, Star Trek
+
+Wed, 27 May 2026 12:24:14 GMT
+
+https://collider.com/star-trek-starfleet-academy-voyager-harry-kim-promotion-26-years-later/
+
+Star Trek: Starfleet Academy might be ending, yet it's managed to give a character from Star Trek Voyager a much-needed promotion.
+---------
+
+# Forget 'Alien,' This Crime Caper is Ridley Scott's True Masterpiece 35 Years Later
+
+Movie Features, Thelma & Louise, Susan Sarandon, Adventure, Ridley Scott
+
+Wed, 27 May 2026 12:20:13 GMT
+
+https://collider.com/ridley-scott-best-movie-thelma-and-louise/
+
+Ridley Scott's Thelma and Louise, starring Geena Davis and Susan Sarandon, is still a crime-adventure masterpiece 35 years later.
+---------
+
+# Netflix's 3-Part Sherlock Holmes Series Returns With Must-See New Trailer
+
+Movie News, Enola Holmes, Millie Bobby Brown, Henry Cavill, Sam Claflin
+
+Wed, 27 May 2026 12:07:35 GMT
+
+https://collider.com/netflix-sherlock-holmes-enola-holmes-3-trailer/
+
+Millie Bobby Brown stars as Enola Holmes in the third film when her crime solving sister of Sherlock.
+---------
+
+# 7 Forgotten Superhero Movies That Are Perfect for a Rewatch
+
+Movie, The Rocketeer, Blade, The Iron Giant, Unbreakable
+
+Wed, 27 May 2026 11:51:14 GMT
+
+https://collider.com/forgotten-superhero-movies-perfect-for-a-rewatch/
+
+The Rocketeer, Defendor, and Darkman are underrated and unconventional superhero movies that deserve to be revisited.
+---------
+
+# 7 Must-Watch Movies Leaving Netflix in June
+
+Movie, Netflix, Fifty Shades of Grey, The Lego Movie, The Expendables
+
+Wed, 27 May 2026 11:36:14 GMT
+
+https://collider.com/movies-leaving-netflix-june-2026/
+
+Say goodbye to beloved gems like The Lego Movie and dark romances like Fifty Shades of Grey, as these movies are set to leave Netflix in June.
+---------
+
+# 'The Lord of the Rings: The Rings of Power' Season 4 Officially in Development, Filming Date Confirmed
+
+TV News, The Lord of the Rings: The Rings of Power
+
+Wed, 27 May 2026 14:15:49 GMT
+
+https://movieweb.com/the-rings-of-power-season-4-development/
+
+The fate of 'The Lord of the Rings' prequel series has been confirmed ahead of the show's return this November.
+---------
+
+# 'Spider-Noir' Ending, Explained: How Amazon's Spider-Man Series Sets Up Season 2
+
+Features, Spider-Noir, Nicolas Cage
+
+Wed, 27 May 2026 14:00:18 GMT
+
+https://movieweb.com/spider-noir-ending-explained/
+
+Prime Video and MGM's superhero series starring Nicolas Cage features a climactic ending that puts the future of the show in an interesting situation.
+---------
+
+# Robert Pattinson Is Predator Catcher Chris Hansen in First 'Primetime' Trailer
+
+Movie News, Robert Pattinson
+
+Wed, 27 May 2026 13:26:29 GMT
+
+https://movieweb.com/primetime-trailer-robert-pattinson-drama/
+
+A24 has released the first teaser trailer for 'Primetime,' a dark crime drama starring Robert Pattinson as Chris Hansen.
+---------
+
+# Disney’s Mandalorian Rival Made 82% More Box Office Gross on the Same Opening Weekend
+
+Movie News, The Mandalorian and Grogu, Lilo & Stitch, Box Office Milestones, Star Wars
+
+Wed, 27 May 2026 13:12:34 GMT
+
+https://movieweb.com/star-wars-the-mandalorian-and-grogu-beaten-lilo-and-stich-box-office/
+
+'Star Wars: The Mandalorian & Grogu' suffers at the Memorial Day box office, losing to Disney's rival live-action 'Lilo & Stitch.'
+---------
+
+# Marvel Risks Continuing a 20-Year X-Men Curse with 'Avengers: Doomsday'
+
+Features, X-Men, MCU, Avengers: Doomsday, X-Men: The Last Stand, X-Men: Apocalypse
+
+Wed, 27 May 2026 13:00:07 GMT
+
+https://movieweb.com/avengers-doomsday-marvel-x-men-curse/
+
+Two Marvel movies are celebrating major milestones in 2026, the same year that the X-Men return to theaters.
+---------
+
+# Netflix's First 'Enola Holmes 3' Trailer Finds Henry Cavill's Sherlock in Trouble
+
+Movie News, Enola Holmes 3, Millie Bobby Brown, Netflix, Henry Cavill
+
+Wed, 27 May 2026 12:38:39 GMT
+
+https://movieweb.com/enola-holmes-3-netflix-trailer/
+
+Millie Bobby Brown is on the case again as third entry in Netflix's hit movie series releases its first official trailer ahead of July debut.
+---------
+
+# Netflix's Newest Action Hero Is Back for Sequel in Underrated Thriller Franchise
+
+Movie News, The Roundup: Punishment, Don Lee, Action, Crime, Thriller
+
+Wed, 27 May 2026 12:14:17 GMT
+
+https://movieweb.com/the-roundup-5-don-lee-action-thriller/
+
+MCU star and underrated action icon Don Lee is coming back for another round.
+---------
+
+# Only James Gunn Can Redeem Alan Ritchson's Abandoned DC Spin-off
+
+Features, Alan Ritchson, James Gunn, DCU
+
+Wed, 27 May 2026 12:00:19 GMT
+
+https://movieweb.com/alan-ritchson-james-gunn-superhero-redemption/
+
+Alan Ritchson isn't known for superhero media, but maybe he should be. He has played a DC icon before, and should do so again. Read on for more.
+---------
+
+# Brendan Fraser's WWII Epic 'Pressure' Lands Solid Rotten Tomatoes Score
+
+Movie News, Pressure, Brendan Fraser
+
+Wed, 27 May 2026 11:52:18 GMT
+
+https://movieweb.com/pressure-rotten-tomatoes-score/
+
+Brendan Fraser's World War II thriller 'Pressure' has debuted to rave reviews and a solid Rotten Tomatoes score ahead of its release.
+---------
+
+# Aaron Taylor-Johnson's Explosive New Action Thriller Hits Digital Streaming
+
+Movie News, Aaron Taylor-Johnson, Action, Thriller, Fuze, Theo James
+
+Wed, 27 May 2026 11:30:18 GMT
+
+https://movieweb.com/fuze-digital-streaming-action/
+
+The action outing stars fellow James Bond favorite Theo James and 'Avatar's Sam Worthington alongside Taylor-Johnson.
+---------
+
 # The Witcher 3: Songs Of The Past DLC Officially Unplayable For Millions
 
 Gaming, The Witcher 3: Wild Hunt, The Witcher
