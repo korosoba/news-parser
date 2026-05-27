@@ -1,3 +1,289 @@
+# Netflix's Little House On The Prairie Remake Casts Iconic Season 2 Villain Ahead Of Series Premiere
+
+TV, Little House on the Prairie
+
+Wed, 27 May 2026 23:34:29 GMT
+
+https://screenrant.com/netflix-little-house-on-the-prairie-nellie-oleson-willa-dunn-cast/
+
+Netflix's new remake of a classic 43-year-old Western, Little House on the Prairie, casts an iconic villain for season 2 ahead of its series premiere.
+---------
+
+# DC Just Introduced the Coolest Artifact Since the Infinity Gauntlet
+
+Comics
+
+Wed, 27 May 2026 23:30:20 GMT
+
+https://screenrant.com/dc-justice-league-weapon-energy-nuclei/
+
+Feel the power.
+---------
+
+# Prime Video's Spider-Noir Quietly Brings Back The Multiverse After Spider-Man: No Way Home
+
+Streaming TV, Spider-Noir, Spider-Man: No Way Home, Spider-Man, Marvel Cinematic Universe
+
+Wed, 27 May 2026 23:27:23 GMT
+
+https://screenrant.com/prime-video-spider-noir-spiderman-no-way-home-multiverse-return/
+
+Prime Video's new Spider-Man TV show surprisingly brings back the multiverse, and its use is perfect after Tom Holland's Spider-Man: No Way Home.
+---------
+
+# Friends: A Complete Timeline of Ross & Rachel's Relationship
+
+Network TV, Friends
+
+Wed, 27 May 2026 23:00:23 GMT
+
+https://screenrant.com/friends-ross-rachel-relationship-break-timeline/
+
+Ross and Rachel's relationship was a complicated one, and it's easy to forget some moments that happened in between arguments and dating other people.
+---------
+
+# Resident Evil Requiem Free Limited-Time Download Officially Announced
+
+Gaming, Resident Evil 9, Triple-A Games
+
+Wed, 27 May 2026 23:00:20 GMT
+
+https://screenrant.com/resident-evil-requiem-free-demo-may-2026/
+
+Resident Evil Requiem has broken some records for Capcom, but there are still plenty of people who haven't played it yet - you can change that.
+---------
+
+# 20 Years Later, X-Men: The Last Stand Has Officially Earned Its Redemption
+
+Movies, X-Men: The Last Stand, X-Men
+
+Wed, 27 May 2026 23:00:20 GMT
+
+https://screenrant.com/xmen-the-last-stand-20-years-later-redemption/
+
+X-Men: The Last Stand is officially turning 20 this year, and despite two decades of criticisms, it's earned its redemption in the series.
+---------
+
+# The Godfather Part IV Is Now The Closest It Has Ever Been To Happening
+
+Movies, The Godfather
+
+Wed, 27 May 2026 23:00:20 GMT
+
+https://screenrant.com/the-godfather-4-updates-2026/
+
+The Godfather is arguably the most beloved film series in cinematic history, and rumblings have recently begun concerning another chapter.
+---------
+
+# Smallville: When Each Main Character Discovered Clark Was Superman
+
+Superheroes, Smallville, DC Universe
+
+Wed, 27 May 2026 22:25:20 GMT
+
+https://screenrant.com/smallville-clark-superman-identity-characters-know-when/
+
+Smallville characters discovered that Clark Kent (Tom Welling) was Superman, an alien with super powers, at different times during the show's run.
+---------
+
+# Amazon's Spider-Noir Has Rotten Tomatoes Critics & Audiences in Agreement
+
+TV, Spider-Noir
+
+Wed, 27 May 2026 23:35:01 GMT
+
+https://www.cbr.com/spider-noir-rotten-tomatoes-audience-score/
+
+Critics and audiences are in complete agreement on Nicolas Cage's Spider-Man series.
+---------
+
+# Scary Movie 6 Reverses Course for the Franchise With Official Rating
+
+Movies, Scary Movie
+
+Wed, 27 May 2026 23:02:23 GMT
+
+https://www.cbr.com/scary-movie-6-rated-r/
+
+The official rating for the new Scary Movie installment has been revealed.
+---------
+
+# 5 Best Fantasy Movie Adaptations That Are Nothing Like the Book
+
+Movies, Fantasy, How to Train Your Dragon, Wicked
+
+Wed, 27 May 2026 23:00:13 GMT
+
+https://www.cbr.com/best-fantasy-movie-adaptations-not-like-the-book-list/
+
+From Wicked to How to Train Your Dragon, these popular fantasy movies barely resemble the books that inspired them.
+---------
+
+# Masters of the Universe Has Erased He-Man's Origin After 45 Years
+
+TV, Masters of the Universe, He-Man
+
+Wed, 27 May 2026 23:00:13 GMT
+
+https://www.cbr.com/masters-of-the-universe-erased-he-man-origin/
+
+Masters of the Universe is less firmly defined than other '80s franchises, and this might be because its hero's classic origins have been forgotten.
+---------
+
+# It's Official, Blade Runner: Replicant Rebellion Available Now
+
+Games, Blade Runner
+
+Wed, 27 May 2026 22:45:12 GMT
+
+https://www.cbr.com/blade-runner-replicant-rebellion-official-reveal-available-now/
+
+It's time for the artifical humans to rise up, as Blade Runner: Replicant Rebellion has finally hit shelves, opening new doors to adventure.
+---------
+
+# 29 Years Later, Dragon Ball Officially Brings Back Gogeta With a New Super Saiyan 4 Design
+
+Anime, Dragon Ball GT, Dragon Ball
+
+Wed, 27 May 2026 22:32:59 GMT
+
+https://www.cbr.com/dragon-ball-super-saiyan-4-gogeta-release/
+
+After nearly three decades, Gogeta takes Super Saiyan 4 to the next level with a brand-new design from a fan-favorite figure line.
+---------
+
+# Kevin Costner’s Horizon: An American Saga – Chapter 1 Has a New Streaming Home
+
+Movies, Horizon: An American Saga - Chapter 1
+
+Wed, 27 May 2026 22:30:13 GMT
+
+https://www.cbr.com/kevin-costner-horizon-an-american-saga-chapter-1-streaming-prime-video/
+
+The first entry in Kevin Costner's Horizon: An American Saga finally has a new streaming home as fans await the release of Chapter 2.
+---------
+
+# Disclsoure Day Gets Fantastic Early Reception: 'Top Tier Spielberg'
+
+Movies, Disclosure Day
+
+Wed, 27 May 2026 22:28:57 GMT
+
+https://www.cbr.com/steven-spielberg-disclosure-day-first-reactions/
+
+The first reactions to Steven Spielberg's latest epic have been revealed.
+---------
+
+# New Elden Ring Game Officially Confirmed for June 2026
+
+Games, Elden Ring
+
+Wed, 27 May 2026 22:20:12 GMT
+
+https://www.cbr.com/new-elden-ring-game-official-june-2026-nightreign-ttrpg/
+
+Elden Ring fans can enjoy a new tabletop RPG coming this June.
+---------
+
+# 10 Anime Sidekicks Who Should Have Been the Main Hero
+
+Anime, Dragon Ball, Jujutsu Kaisen, One Piece
+
+Wed, 27 May 2026 22:15:12 GMT
+
+https://www.cbr.com/anime-characters-should-have-been-protagonist/
+
+In anime like Jujutsu Kaisen and Dragon Ball Z, the writers chose the wrong character to be the protagonist.
+---------
+
+# Netflix's Near-Perfect Sci-Fi Hit Is in a Neck-and-Neck Battle With the Streamer's New Crime Thriller
+
+TV News, The Boroughs, Nemesis, Netflix, Stranger Things
+
+Wed, 27 May 2026 23:30:13 GMT
+
+https://collider.com/netflix-sci-fi-series-the-boroughs-ratings-battle-crime-thriller-nemesis-may-2026/
+
+The Boroughs, Netflix's sci-fi series with a 96% Rotten Tomatoes score, is in a ratings battle with the hit crime thriller, Nemesis. Read on for more.
+---------
+
+# Hulu’s Greatest 2-Part Series Makes a Bold Change That Officially Goes Off-Book
+
+TV Features, Rivals, Drama
+
+Wed, 27 May 2026 23:24:13 GMT
+
+https://collider.com/hulu-rivals-season-2-episode-3-change-election-venturer-rupert/
+
+Rivals Season 2 takes a major turn by having Rupert lose everything, pushing him to grow in ways that differ from Jilly Cooper's books.
+---------
+
+# This Sci-Fi Horror Trilogy Is So Good, You Can Rewatch It Multiple Times
+
+Movie Features, alien, Aliens, Alien 3, Sigourney Weaver
+
+Wed, 27 May 2026 23:21:12 GMT
+
+https://collider.com/alien-trilogy-sci-fi-horror-rewatch/
+
+Ridley Scott’s Alien, James Cameron’s Aliens, and Alien 3 form a sci-fi horror trilogy starring Ellen Ripley, spanning terror, action, and survival.
+---------
+
+# Netflix’s 2-Part ‘White Lotus’ Rival Officially Returns Tomorrow
+
+TV News, The Four Seasons, The White Lotus, Netflix, Tina Fey
+
+Wed, 27 May 2026 23:00:13 GMT
+
+https://collider.com/netflix-white-lotus-replacement-the-four-seasons-season-2-release-date-may-28-2026/
+
+The Four Seasons, Netflix's bingeable series with shades of The White Lotus, officially returns this week..
+---------
+
+# Forget ‘The Walking Dead,’ Hulu’s 4-Part Fantasy Thriller Is the Perfect Weekend Binge
+
+TV Features, The Walking Dead, the strain, Guillermo del Toro, Corey Stoll
+
+Wed, 27 May 2026 22:57:13 GMT
+
+https://collider.com/best-walking-dead-replacement-series-the-strain-horror/
+
+The Walking Dead's replacement is The Strain, Guillermo del Toro's grimy horror series about a vampire apocalypse and a ragtag group of survivors.
+---------
+
+# Tom Hardy Fans Officially Turn on Paramount+’s Hit Crime Thriller After 'Peaky Blinders' Star's Firing
+
+TV News, MobLand, Guy Ritchie, Paramount Plus, Tom Hardy
+
+Wed, 27 May 2026 22:30:13 GMT
+
+https://collider.com/guy-ritchie-crime-thriller-mobland-streaming-drop-paramount-plus-may-2026-tom-hardy-firing/
+
+Guy Ritchie's MobLand is tanking on streaming charts following the news that Tom Hardy has been fired from his role as Harry Da Souza.
+---------
+
+# HBO Max's 89% Rotten Tomatoes Thriller Is a Masterpiece From Start to Finish
+
+Movie Features, Heretic, Hugh Grant, Sophie Thatcher, A24
+
+Wed, 27 May 2026 22:22:13 GMT
+
+https://collider.com/hbo-max-heretic-masterpiece-thriller/
+
+Heretic is a thrilling masterpiece that shows two teenage Mormon missionaries who make the mistake of knocking on the wrong door.
+---------
+
+# Jon Hamm's 89% Rated Crime Thriller Isn't Backing Down on Streaming
+
+TV News, Your Friends and Neighbors, Apple TV, Hot on Streaming
+
+Wed, 27 May 2026 23:00:18 GMT
+
+https://movieweb.com/your-friends-and-neighbors-streaming-success-apple-may-2026/
+
+Jon Hamm's Apple TV crime thriller 'Your Friends & Neighbors' is a major streaming success in 2026.
+---------
+
 # Prime Video's The Boys Replacement Just Arrived & It Features A Major Season 5 Connection
 
 Streaming TV, Masked Recs
