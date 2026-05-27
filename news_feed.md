@@ -1,3 +1,278 @@
+# The Witcher 3: Songs Of The Past DLC Officially Unplayable For Millions
+
+Gaming, The Witcher 3: Wild Hunt, The Witcher
+
+Wed, 27 May 2026 10:30:29 GMT
+
+https://screenrant.com/the-witcher-3-songs-of-the-past-dlc-unplayable-for-millions/
+
+The Witcher 3 is officially back with a new DLC, but there are a lot of players who will be left out of the proverbial party.
+---------
+
+# PlayStation Plus Free 12 Month Access Officially Announced
+
+Gaming, PlayStation Plus
+
+Wed, 27 May 2026 10:30:20 GMT
+
+https://screenrant.com/playstation-days-of-play-100-dollars-free-store-credit-giveaway/
+
+PlayStation is hosting a very exciting competition in the near future that could eliminate the need for a PS Plus subscription if it goes well.
+---------
+
+# A Good Girl’s Guide To Murder Season 2 Ending Explained: What Happens To Jamie & Max Hastings?
+
+Streaming TV, A Good Girl's Guide to Murder, A Good Girl's Guide to Murder - Season 2
+
+Wed, 27 May 2026 10:30:20 GMT
+
+https://screenrant.com/a-good-girls-guide-to-murder-season-2-ending-explained/
+
+A Good Girl's Guide to Murder season 2 weaves an exciting mystery, and the ending provides answers about Jamie's disappearance and Max's trial.
+---------
+
+# Backrooms Review: A Quietly Terrifying Piece Of Liminal Horror
+
+New Movies, Backrooms
+
+Wed, 27 May 2026 10:00:30 GMT
+
+https://screenrant.com/backrooms-movie-2026-review/
+
+What Backrooms lacks in its script, the movie makes up for in its meticulously terrifying approach to liminal horror that gets under the skin.
+---------
+
+# Star Wars Fans Praise "Perfect" Official Darth Vader Recast
+
+Gaming, Star Wars
+
+Wed, 27 May 2026 09:51:29 GMT
+
+https://screenrant.com/star-wars-darth-vader-perfect-recast-matt-sloan/
+
+As the Star Wars franchise continues, fans are divided over whether AI or human voice actors should bring iconic villain Darth Vader to life.
+---------
+
+# Witcher 3: Songs Of The Past Officially Announced
+
+Gaming, The Witcher 3: Wild Hunt
+
+Wed, 27 May 2026 09:36:13 GMT
+
+https://screenrant.com/witcher-3-dlc-3-officially-announced/
+
+CD Projekt RED officially announces 'Songs of the Past,' the third DLC for the popular RPG The Witcher 3: Wild Hunt.
+---------
+
+# Fallout 4 Officially Releases Game-Changing New Expansion, Available Now
+
+Gaming, Fallout 4, Fallout
+
+Wed, 27 May 2026 09:27:27 GMT
+
+https://screenrant.com/fallout-4-update-may-2026-creation-club-expansion/
+
+Fallout 4 is continuing to receive support in the absence of another game, and the latest update rolled out today with a major change.
+---------
+
+# 25 TV Shows With The Most Nudity
+
+Classic TV
+
+Wed, 27 May 2026 09:01:21 GMT
+
+https://screenrant.com/10-tv-shows-most-nudity/
+
+Small-screen nakedness isn't the controversial statement it once was, but the TV shows with the most nudity are renowned for how much skin they show.
+---------
+
+# A Good Girl's Guide To Murder Season 2 Review: Emma Myers Breaks Bad In A Bland Mystery That Doesn’t Deserve Her
+
+Streaming TV, A Good Girl's Guide to Murder - Season 2, A Good Girl's Guide to Murder
+
+Wed, 27 May 2026 09:01:20 GMT
+
+https://screenrant.com/a-good-girls-guide-to-murder-season-2-review/
+
+Emma Myers' Pip is back in season 2 of Netflix's A Good Girl's Guide to Murder, but the actress's talents are wasted in the Holly Jackson adaptation.
+---------
+
+# Star Wars' Greatest Mystery Still Remains Unsolved
+
+Movies, Star Wars
+
+Wed, 27 May 2026 10:00:27 GMT
+
+https://www.cbr.com/star-wars-luke-skywalker-lightsaber-mystery-unsolved/
+
+Star Wars is a franchise with many great mysteries, but the mystery of how Maz got Luke's lightsaber still needs an answer.
+---------
+
+# Why Grimm Surpasses Supernatural as TV's Best Monster Hunter Show
+
+TV, Grimm, Supernatural, Fantasy
+
+Wed, 27 May 2026 10:00:27 GMT
+
+https://www.cbr.com/grimm-supernatural-monster-hunting-show-comparison/
+
+Supernatural has some iconic monster-hunting moments, but Grimm is an even better series that does the same thing wiht a fantasy twist.
+---------
+
+# Backrooms Review: A24's Creepypasta Horror Movie Is Impressively Creepy But Uneven
+
+Movies, Backrooms
+
+Wed, 27 May 2026 10:00:27 GMT
+
+https://www.cbr.com/backrooms-review/
+
+Backrooms brings Kane Parsons' viral horror universe to A24 with immersive dread, eerie production design, and an uneven story.
+---------
+
+# Say Goodbye to Reacher as the King of Prime Video Thanks to Amazon's Historic New Bosch Strategy
+
+TV, Bosch, Preacher
+
+Wed, 27 May 2026 09:33:31 GMT
+
+https://www.cbr.com/prime-video-bosch-universe-expansion-vs-reacher/
+
+The Bosch universe is redefining the approach to police procedural media franchises with Ballard and Bosch: Start of Watch.
+---------
+
+# The Most Misunderstood Sci-Fi Horror Movie of the Last 10 Years Just Took Over Netflix
+
+Movie Features, Nope, Jordan Peele, Daniel Kaluuya, Keke Palmer, Netflix
+
+Wed, 27 May 2026 10:38:13 GMT
+
+https://collider.com/nope-explained-horror-sci-fi-streaming-netflix/
+
+Nope has finally started streaming on Netflix, but director Jordan Peele's message can be easily missed.
+---------
+
+# James Bond’s First New Mission in 5 Years Is Officially an Instant Success
+
+Movie News, 007 First Light, James Bond, Patrick Gibson, IO Interactive
+
+Wed, 27 May 2026 10:31:12 GMT
+
+https://collider.com/james-bond-return-007-first-light-out-now-story-details-reviews-is-it-good/
+
+Five years after Daniel Craig's No Time to Die, James Bond is officially back with a new release that's earning strong reviews.
+---------
+
+# 10 Most Perfect Romantic Movies of the Last 40 Years, Ranked
+
+Movie, Romance, Portrait of a Lady on Fire, Before Sunset, In the Mood For Love
+
+Wed, 27 May 2026 10:05:28 GMT
+
+https://collider.com/most-perfect-romantic-movies-last-40-years-ranked/
+
+Portrait of a Lady on Fire, Before Sunset, and In the Mood for Love are all among the absolute best, most perfect romance movies of the last 40 years.
+---------
+
+# Prime Video Officially Releases Kevin Costner's $100M Western on Streaming
+
+Movie News, Prime Video, Kevin Costner, Horizon: An American Saga - Chapter 1, Yellowstone
+
+Wed, 27 May 2026 10:00:26 GMT
+
+https://collider.com/prime-video-kevin-costner-yellowstone-replacement-horizon-an-american-saga-streaming-may-2026/
+
+Kevin Costner's passion project, Horizon: An American Saga - Chapter 1, is officially available to stream on Prime Video.
+---------
+
+# A24's 'Backrooms' Is a Near-Flawless Horror Film That Demands To Be Seen
+
+Movie Reviews, Backrooms, Horror, Chiwetel Ejiofor, A24
+
+Wed, 27 May 2026 10:00:26 GMT
+
+https://collider.com/backrooms-a24-movie-horror-kane-parsons/
+
+Kane Parsons' Backrooms, adapted from his viral YouTube web series, is one of the best horror movies of 2026.
+---------
+
+# 8 Great Sci-Fi Movies That Just Don't Make Sense
+
+Movie, Science Fiction, Donnie Darko, Stalker, Interstellar
+
+Wed, 27 May 2026 09:40:13 GMT
+
+https://collider.com/best-sci-fi-movies-dont-make-sense/
+
+Movies like Interstellar and Brazil are absolute masterpieces of the sci-fi genre, but upon closer inspection, their plots don't make any damn sense.
+---------
+
+# 9 Harsh Realities of Rewatching ‘The Mummy Returns’ 25 Years Later
+
+Movie, The Mummy Returns, Brendan Fraser, Rachel Weisz, Stephen Sommers
+
+Wed, 27 May 2026 09:34:21 GMT
+
+https://collider.com/the-mummy-returns-harsh-realities-25-years-later/
+
+Rick and Evelyn's bad parenting, inauthentic casting, and more make our list of harsh realities you'll discover when rewatching The Mummy Returns.
+---------
+
+# Netflix Finally Releases Final Season of Beloved Cancelled Sci-Fi Series
+
+TV News, Netflix, Sci-Fi, Resident Alien, Alan Tudyk
+
+Wed, 27 May 2026 09:30:21 GMT
+
+https://collider.com/netflix-sci-fi-series-resident-alien-final-season-streaming-release-may-2026/
+
+Netflix is finally restoring one of TV’s weirdest cancelled sci-fi gems for one last chaotic, emotional binge-watch ride.
+---------
+
+# The 15 Best Spy Comedy Movies, Ranked
+
+Movie, Spy, Austin Powers: International Man of Mystery, Comedy, Kingsman: The Secret Service
+
+Wed, 27 May 2026 09:24:15 GMT
+
+https://collider.com/best-spy-comedy-movies-ranked/
+
+Spy, Kingsman: The Secret Service, and Austin Powers: International Man of Mystery are among the best and funniest spy comedy movies.
+---------
+
+# Netflix's New Michael Jackson Series Will Show What the Biopic Skipped Over
+
+TV News, Michael, Netflix, Documentary, Biopic
+
+Wed, 27 May 2026 09:00:13 GMT
+
+https://collider.com/netflix-michael-jackson-the-verdict-release-date-june-3-2026-how-to-watch/
+
+Michael Jackson's new biopic avoids that conversation, but a new Netflix series gets to the heart of it. Get all the details here.
+---------
+
+# 'Backrooms' Review: A24 Offers Another Atmospheric but Underbaked Horror Film
+
+3 star movies, Backrooms, Chiwetel Ejiofor, Renate Reinsve
+
+Wed, 27 May 2026 10:00:30 GMT
+
+https://movieweb.com/backrooms-review/
+
+Director Kane Parsons proves he knows how to visually unnerve an audience, even in a movie that loses its message.
+---------
+
+# Taylor Sheridan's New 'Yellowstone' Sequel 'Dutton Ranch' Breaks Streaming Records
+
+TV News, Dutton Ranch, Yellowstone, Cole Hauser, Kelly Reilly, Taylor Sheridan
+
+Wed, 27 May 2026 08:25:26 GMT
+
+https://movieweb.com/dutton-ranch-streaming-records-biggest-launch/
+
+Beth and Rip get 'Dutton Ranch' off to a great start with the biggest-ever launch on Paramount+.
+---------
+
 # The Star Wars Timeline Explained, Completely & Succinctly
 
 Movies, Star Wars
