@@ -1,3 +1,432 @@
+# Prime Video's Biggest Fantasy Show Is So Ambitious, It's Already Renewed For 2 More Seasons
+
+Streaming TV, Masked Recs
+
+Thu, 28 May 2026 20:23:38 GMT
+
+https://screenrant.com/the-rings-of-power-future-amazon-prime-franchise-renewed/
+
+Amazon is no stranger to treating TV shows like blockbuster cinema, but the scale of a single fantasy series overshadows anything else on Prime Video.
+---------
+
+# Witcher 4 Gets Unexpected Official Update
+
+Gaming, The Witcher 4, The Witcher, Triple-A Games
+
+Thu, 28 May 2026 20:17:04 GMT
+
+https://screenrant.com/witcher-4-update-progress-cd-projekt-red/
+
+Right after we got some big news regarding the series' last game, CD Projekt Red has offered a glimpse of The Witcher 4's development progress.
+---------
+
+# Netflix's Chilling New Crime Movie Hits #1 With 43.7 Million Hours Viewed
+
+Movies, Masked Recs
+
+Thu, 28 May 2026 20:15:32 GMT
+
+https://screenrant.com/the-crash-movie-netflix-streaming-success-hours-viewed/
+
+Netflix's latest true crime documentary, The Crash, tells Mackenzie Shirilla's story, highlighting the trial and an original interview.
+---------
+
+# The Deadliest Member Of The Boys In Season 5 Isn't Who You Expect
+
+Streaming TV, The Boys
+
+Thu, 28 May 2026 20:00:20 GMT
+
+https://screenrant.com/the-boys-member-most-kills-season-5/
+
+The Boys are responsible for taking down Homelander and many other superpowered villains, but one member is surprisingly deadlier than the rest.
+---------
+
+# LEGO Pokémon TCG Sets Are Here, & You Can Pick Which Ones Get Made
+
+Gaming, Pokemon Trading Card Game, LEGO, Pokemon
+
+Thu, 28 May 2026 19:51:12 GMT
+
+https://screenrant.com/lego-pokemon-tcg-sets-voting-winners/
+
+LEGO has revealed five new Pokémon TCG-themed sets, and fans are already able to vote for the ones that they want to see get officially made.
+---------
+
+# Netflix’s Hit Remake Of 45-Year-Old Movie Returns With Stellar Rotten Tomatoes Score
+
+TV, Masked Recs
+
+Thu, 28 May 2026 19:50:48 GMT
+
+https://screenrant.com/the-four-seasons-season-2-rotten-tomatoes-score-debut/
+
+After season 1's strong critical reception, Netflix's hit remake of a 45-year-old movie has returned with a stellar Rotten Tomatoes score.
+---------
+
+# HBO Max’s Near-Perfect Comedy Series Is So Good, It Deserves More Seasons
+
+Streaming TV, Masked Recs
+
+Thu, 28 May 2026 19:48:21 GMT
+
+https://screenrant.com/hbo-max-hacks-season-5-ending-deserves-more/
+
+HBO Max's beloved comedy series, with a near-perfect Rotten Tomatoes score and multiple Emmy Awards, deserves more seasons despite its recent finale.
+---------
+
+# MobLand’s Helen Mirren Responds To Tom Hardy Feud Rumors After Season 3 Firing Reports
+
+TV, MobLand
+
+Thu, 28 May 2026 19:47:35 GMT
+
+https://screenrant.com/mobland-season-3-tom-hardy-feud-helen-mirren-response/
+
+After Tom Hardy's MobLand season 3 firing reports, co-star Helen Mirren has responded to the controversy, breaking her silence about the actor.
+---------
+
+# Obsession Lands On Major All-Time Box Office Chart After Just 2 Weeks In Theaters
+
+Movies, Box Office, Horror, Obsession
+
+Thu, 28 May 2026 19:42:24 GMT
+
+https://screenrant.com/obsession-box-office-top-20-focus-features-movies-chart/
+
+The buzzy smash hit horror movie Obsession closes out its second week in theaters by landing a spot on a major all-time box office chart.
+---------
+
+# Sylvester Stallone's Rambo Prequel Sets Official Release Date
+
+Movies, John Rambo, Rambo
+
+Thu, 28 May 2026 19:38:23 GMT
+
+https://screenrant.com/john-rambo-movie-release-date-2027/
+
+Lionsgate is working on a Rambo prequel called John Rambo starring Noah Centineo, and the official release date has just been revealed.
+---------
+
+# Jim Carrey's $405M Video Game Sequel Turns Into Netflix Hit Ahead of New Installment
+
+Movies, Sonic the Hedgehog 2, Sonic the Hedgehog
+
+Thu, 28 May 2026 20:16:49 GMT
+
+https://www.cbr.com/jim-carrey-sonic-the-hedgehog-2-success-may-2026/
+
+One of the biggest animated sequels of the decade is racing to the top of the Netflix streaming charts before the next entry in the series arrives.
+---------
+
+# 10 Most Mysterious Characters in Witch Hat Atelier, Ranked
+
+Anime, Witch Hat Atelier, Manga
+
+Thu, 28 May 2026 20:15:13 GMT
+
+https://www.cbr.com/witch-hat-atelier-most-mysterious-characters/
+
+Witch Hat Atelier has some of the best character writing in modern anime and manga, and these are the series' heroes with the most secrets to hide.
+---------
+
+# Sylvester Stallone's New Rambo Movie Finally Sets Release Date
+
+Movies, John Rambo
+
+Thu, 28 May 2026 20:02:45 GMT
+
+https://www.cbr.com/john-rambo-official-release-date/
+
+The newest Rambo movie has officially gotten its premiere date, set to arrive between two other major franchise releases.
+---------
+
+# Ian Fleming’s Classic James Bond Comic Strip Collection Is Essential Reading for 007 Fans
+
+Comics, James Bond
+
+Thu, 28 May 2026 20:00:12 GMT
+
+https://www.cbr.com/james-bond-signature-comic-strip-collection/
+
+This comic strip collection will leave readers shaken and stirred.
+---------
+
+# 35 Years Later, Dragon Ball Officially Reveals Akira Toriyama’s Secret to Mastering Goku, Piccolo, and Vegeta
+
+Anime, Dragon Ball
+
+Thu, 28 May 2026 20:00:12 GMT
+
+https://www.cbr.com/dragon-ball-goku-piccolo-vegeta-reveal/
+
+Dragon Ball's most underrated (almost) daily feature revisits a classic lesson in fans' favorite characters nearly forty years later.
+---------
+
+# Apple TV’s For All Mankind Spinoff Debuts to Fantastic Rotten Tomatoes Score, In Line With the Original
+
+TV, Star City, Rotten Tomatoes, For All Mankind
+
+Thu, 28 May 2026 19:44:55 GMT
+
+https://www.cbr.com/apple-tv-star-city-rotten-tomatoes-score/
+
+The same day as For All Mankind's Season 5 finale, the franchise returns with the first spinoff.
+---------
+
+# It's Official: 2026's Best-Reviewed Game Has Finally Arrived
+
+Games, Video Games
+
+Thu, 28 May 2026 19:31:18 GMT
+
+https://www.cbr.com/mina-the-hollower-best-reviewed-game-2026/
+
+The best-reviewed game of the year is drawing comparisons to classic Legend of Zelda titles.
+---------
+
+# 5 Best Ranching Sims That Feel Like Taylor Sheridan's Yellowstone
+
+Games, Video Games, Indie Games, Yellowstone
+
+Thu, 28 May 2026 19:15:13 GMT
+
+https://www.cbr.com/ranching-sim-games-like-taylor-sheridan-yellowstone/
+
+These games offer the fun of running a ranch like the Yellowstone with none of the hard work.
+---------
+
+# Tom Holland Teases Spider-Man's Future Ahead of Brand New Day
+
+Movies, Marvel, MCU, Marvel Comics, Spider-Man, Spider-Man: Brand New Day, Spider-Man: Beyond the Spider-Verse, Spider-Verse, Spider-Man: Across the Spider-Verse, Spider-Noir, Avengers: Doomsday, Avengers: Doomsday (2026)
+
+Thu, 28 May 2026 19:11:44 GMT
+
+https://www.cbr.com/tom-holland-teases-spider-man-future-brand-new-day/
+
+Tom Holland just made MCU fans excited and terrified at the exact same time.
+---------
+
+# Toy Story 5 Projected to Break Franchise Record at the Box Office With Biggest 2026 Opening
+
+Movies, Toy Story 5, Pixar
+
+Thu, 28 May 2026 19:06:16 GMT
+
+https://www.cbr.com/toy-story-5-box-office-projections/
+
+The seven-year wait for Toy Story 5 seems to have paid off big time for Pixar and Disney.
+---------
+
+# Netflix’s 10-Part Mystery Thriller Is the Best Rewatch on the Platform Right Now
+
+TV Features, Dispatches from Elsewhere, Netflix, Series, AMC
+
+Thu, 28 May 2026 20:07:13 GMT
+
+https://collider.com/dispatches-from-elsewhere-netflix-sci-fi-thriller-weekend-binge/
+
+Before it leaves Netflix, binge Jason Segel’s strange, heartfelt sci-fi mystery series Dispatches from Elsewhere.
+---------
+
+# A24’s Gritty Robin Hood Remake Reveals Hugh Jackman’s Battle-Scarred Outlaw
+
+Movie News, The Death of Robin Hood, Hugh Jackman, Collider Exclusive Preview, A24
+
+Thu, 28 May 2026 20:00:12 GMT
+
+https://collider.com/hugh-jackman-death-of-robin-hood-a24-movie-first-look/
+
+Get an exclusive look at The Death of Robin Hood, A24’s dark Robin Hood reimagining starring Hugh Jackman and Jodie Comer.
+---------
+
+# 10 Praiseworthy Fantasy Movies No One Ever Talks About
+
+Movie, Krull, The Black Cauldron, Time Bandits, Fantasy
+
+Thu, 28 May 2026 19:52:14 GMT
+
+https://collider.com/great-fantasy-movies-no-one-talks-about/
+
+The City of Lost Children, Dragonheart, Stardust, Willow, Krull, and more make up our list of praiseworthy fantasy movies no one ever talks about.
+---------
+
+# 10 Years Later, ‘Sing Street’s Director Shares His Real Take on That Ambiguous Ending
+
+Exclusives, Sing Street, John Carney, Power Ballad, Paul Rudd
+
+Thu, 28 May 2026 19:36:19 GMT
+
+https://collider.com/sing-street-ending-meaning-john-carney-power-ballad-interview/
+
+Director John Carney shares his thoughts on the ending of his 2016 drama Sing Street, putting a decade-long debate to rest, and discusses Power Ballad
+---------
+
+# 10 Most Original Movies of the Last 15 Years, Ranked
+
+Movie, The Substance, The Lobster, Parasite, The Unbearable Weight of Massive Talent
+
+Thu, 28 May 2026 19:34:14 GMT
+
+https://collider.com/most-original-movies-last-15-years-ranked/
+
+From quirky comedies like The Lobster to subversive horrors like Barbarian, these are the most original movies to have come out in the last 15 years.
+---------
+
+# The 'Summer House' Reunion's Real Powder Keg Had Nothing To Do With Kyle Cooke
+
+TV, Summer House, Bravo, Andy Cohen, Reality-TV
+
+Thu, 28 May 2026 19:10:33 GMT
+
+https://collider.com/summer-house-reunion-carl-radke-defends-kyle-cooke/
+
+Carl Radke, not Kyle Cooke, emerged as the unexpected voice of accountability during the explosive Summer House reunion.
+---------
+
+# Halo’s Most Underrated Character Officially Returns in New Prequel
+
+Gaming News, Halo, Halo 4, Halo 2, Gaming
+
+Thu, 28 May 2026 19:03:57 GMT
+
+https://collider.com/halo-new-prequel-release-waypoint-chronicles-spartan-story-release-may-2026/
+
+Halo: Waypoint Chronicles officially expands the franchise’s universe with a new story centered on one of Halo’s most legendary Spartans.
+---------
+
+# ‘John Rambo’ Prequel From ‘Sisu’ Director Officially Sets Release Date
+
+Movie News, John Rambo, First Blood, Noah Centineo, Sylvester Stallone
+
+Thu, 28 May 2026 19:01:30 GMT
+
+https://collider.com/john-rambo-prequel-release-date-june-2027-noah-centineo/
+
+Sylvester Stallone’s most iconic action hero is officially returning as John Rambo prequel sets 2027 release date.
+---------
+
+# Adam Scott and Robert De Niro’s New Netflix Crime Thriller Gets First Look Ahead of August Release
+
+Movie News, The Whisper Man, Collider Exclusive Preview, Adam Scott, Robert De Niro
+
+Thu, 28 May 2026 19:00:13 GMT
+
+https://collider.com/adam-scott-the-whisper-man-image-director-james-ashcroft-interview/
+
+Netflix has released a new look at Adam Scott in The Whisper Man, the new psychological thriller co-starring Robert De Niro and Michelle Monaghan.
+---------
+
+# 8 Years Later, the Greatest Jump Scare in Horror TV History Still Hasn't Been Topped
+
+TV Features, The Haunting of Hill House, Netflix, Mike Flanagan, Horror
+
+Thu, 28 May 2026 18:58:13 GMT
+
+https://collider.com/the-haunting-of-hill-house-car-jumpscare-mike-flanagan-series-opinion/
+
+Mike Flanagan's hit Netflix horror series The Haunting of Hill House is terrifying, featuring the best TV jump scare with the car scene.
+---------
+
+# 'John Rambo' Officially Confirms Release Date
+
+Movie News, John Rambo
+
+Thu, 28 May 2026 20:08:55 GMT
+
+https://movieweb.com/john-rambo-release-date-2027/
+
+The prequel film 'John Rambo' will open in theaters on June 4, 2027.
+---------
+
+# The Best Movies in Theaters Right Now
+
+Movie Lists, Movie Theaters
+
+Thu, 28 May 2026 20:00:18 GMT
+
+https://movieweb.com/best-movies-right-now-in-theaters/
+
+These are some of the best movies currently playing in theaters.
+---------
+
+# 10 Classic Epics to Watch Before Christopher Nolan's 'The Odyssey'
+
+Movie Lists, The Odyssey, Christopher Nolan
+
+Thu, 28 May 2026 20:00:17 GMT
+
+https://movieweb.com/classic-epics-before-christopher-nolan-the-odyssey/
+
+There's only one way to prepare for the biggest movie event of the year: watching the movies that inspired it.
+---------
+
+# 19 Years Later, $5.4 Billion 80s Sci-Fi Action Reboot Lands New Streaming Home
+
+Movie News, Transformers, Coming/Leaving Streaming
+
+Thu, 28 May 2026 20:00:17 GMT
+
+https://movieweb.com/transformers-streaming-hulu-june-2026/
+
+While the franchise is not a critics' favorite, no one can deny the first one is actually a pretty solid movie.
+---------
+
+# Elisabeth Moss Says June's 'The Testaments' Return Was Years in the Making
+
+TV News, The Handmaid's Tale, The Testaments, Elizabeth Moss
+
+Thu, 28 May 2026 19:45:57 GMT
+
+https://movieweb.com/the-testaments-elisabeth-moss-june-return-explained/
+
+Elisabeth Moss confirms her June Osborne return in 'The Testaments' was planned for years and kept secret, as the finale teases season 2's fight.
+---------
+
+# Prime Video's 'Off Campus' Confirms Dean and Allie as Season 2's Central Couple
+
+TV News, Off Campus
+
+Thu, 28 May 2026 19:45:12 GMT
+
+https://movieweb.com/prime-video-off-campus-season-2-new-couple/
+
+Prime Video has officially confirmed that 'Off Campus' Season 2 will swap leads, with Dean and Allie taking over from Hannah and Garrett.
+---------
+
+# Robert De Niro's 'Casino' Crime Epic Leaving Netflix in June 2026
+
+Movie News, Casino
+
+Thu, 28 May 2026 18:30:18 GMT
+
+https://movieweb.com/casino-leaving-netflix-streaming-june-2026/
+
+Cash in on the Scorsese classic 'Casino' before it leaves Netflix in June.
+---------
+
+# Disney & Pixar's 'Hoppers' Sets Streaming Release Date on Disney+
+
+Movie News, Hoppers, Disney+
+
+Thu, 28 May 2026 18:15:10 GMT
+
+https://movieweb.com/hoppers-disney-plus-release-date/
+
+Pixar's 30th theatrical movie, 'Hoppers,' now has an official date set for its arrival on Disney+.
+---------
+
+# 'Backrooms' Director Kane Parsons Speaks Out on Rumors Someone Else Directed the Movie
+
+Movie News, Backrooms, A24
+
+Thu, 28 May 2026 18:08:46 GMT
+
+https://movieweb.com/backrooms-secret-director-kane-parsons-reaction/
+
+Internet conspiracies claim that another filmmaker actually brought the A24 movie to life.
+---------
+
 # Forza Horizon 6: Minamino Region Treasure Hunt Location
 
 Gaming, Forza Horizon 6
