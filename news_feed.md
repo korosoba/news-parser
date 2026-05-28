@@ -1,3 +1,245 @@
+# Star Wars' Rey Replacement Sets Up The New Jedi Order Coming In 2026
+
+Streaming TV, Masked Recs
+
+Thu, 28 May 2026 23:30:20 GMT
+
+https://screenrant.com/star-wars-ninth-jedi-lah-kara-rebuild-jedi-order-2026/
+
+Star Wars: Visions' Lah Kara is going to beat Rey Skywalker to the punch of rebuilding the Jedi Order thanks to the upcoming Ninth Jedi series.
+---------
+
+# Marvel Officially Unveils New Codename for Iconic Avengers Hero
+
+Comics, The Avengers
+
+Thu, 28 May 2026 23:30:20 GMT
+
+https://screenrant.com/she-hulk-new-codename-ultimate-universe/
+
+This one gets bloody.
+---------
+
+# NBC's Canceled Sci-Fi Series La Brea Becomes #1 Streaming Sensation After New Netflix Release
+
+TV, La Brea, La Brea - Season 1, La Brea - Season 2, La Brea - Season 3
+
+Thu, 28 May 2026 23:25:42 GMT
+
+https://screenrant.com/la-brea-top-acquired-series-streaming-success-netflix-release/
+
+NBC's original series, La Brea, was licensed to Netflix and became the number one acquired series and the third most-watched overall.
+---------
+
+# Why For All Mankind's Major Recastings In New Spinoff Help Apple TV Series Explained By Stars
+
+TV, Star City, For All Mankind
+
+Thu, 28 May 2026 23:23:24 GMT
+
+https://screenrant.com/for-all-mankind-star-city-recastings-helpful-ocasey-englert-mcleod/
+
+Exclusive: The major recastings in For All Mankind's new spin-off actually help improve the Apple TV series, as explained by several stars.
+---------
+
+# Marvel’s Spider-Man 3 PlayStation 6 Launch Has Gamers Seriously Concerned
+
+Gaming, Marvel's Spider-Man 3, Triple-A Games, PlayStation 6
+
+Thu, 28 May 2026 23:00:20 GMT
+
+https://screenrant.com/marvels-spider-man-3-playstation-6-fears/
+
+Marvel's Spider-Man 3 could be a PS6 launch title, assuming the next-gen console releases sometime soon, and many fans are unhappy about that.
+---------
+
+# Hello Kitty's Official Converse Collaboration Is Here, And It's Beyond Adorable
+
+Anime, Hello Kitty
+
+Thu, 28 May 2026 23:00:20 GMT
+
+https://screenrant.com/hello-kitty-converse-shoes-adorable/
+
+This crossover between Hello Kitty and Converse brings sneakers, apparel, and accessories that feel tailor-made for longtime Sanrio fans.
+---------
+
+# Superman's New Costume Is Destined to Be His Most Hated Yet
+
+DC Comics, Superman
+
+Thu, 28 May 2026 22:30:20 GMT
+
+https://screenrant.com/superman-new-costume-superboy-prime-punk-vertigo/
+
+Superman's replacement debuts a new look for the Man of Steel, and it's already destined to go down as one of the hero's most hated looks yet.
+---------
+
+# 10 Hunter x Hunter Battles That Still Feel Ahead of Their Time
+
+Anime, Hunter x Hunter
+
+Thu, 28 May 2026 23:15:14 GMT
+
+https://www.cbr.com/best-hunter-x-hunter-hxh-fights-ahead-of-their-time/
+
+Hunter x Hunter stopped airing more than a decade ago, but a few of its fights remain fascinating all these years later.
+---------
+
+# The 5 Greatest Directorial Debuts of the Last 10 Years, Ranked
+
+Movies, Lady Bird
+
+Thu, 28 May 2026 23:00:13 GMT
+
+https://www.cbr.com/directorial-debuts-last-10-years-list/
+
+Some movie directors have come right out the gate giving their best work, and these five rising stars are no exception.
+---------
+
+# Xbox Officially Reveals New Ultimate Controller Available Now
+
+Games, Microsoft, Xbox Series X (1)
+
+Thu, 28 May 2026 22:50:13 GMT
+
+https://www.cbr.com/xbox-new-ultimate-controller-3-8bitdo/
+
+Microsoft's latest official Xbox collaboration could me a major hit with fans of competitive shooters.
+---------
+
+# James Gunn's Superhero Horror Movie Streams for Free Next Month
+
+Movies, Brightburn
+
+Thu, 28 May 2026 22:41:53 GMT
+
+https://www.cbr.com/brightburn-streaming-tubi-june-2026/
+
+After seven years, James Gunn's superhero horror flick can be watched for free.
+---------
+
+# AMC's NOS4A2 Is the Perfect Binge for Stephen King Fans
+
+TV, NOS4A2, Horror, Stephen King
+
+Thu, 28 May 2026 22:31:14 GMT
+
+https://www.cbr.com/amc-nos4a2-horror-masterpiece-perfect-binge-stephen-king/
+
+This underrated supernatural horror story has one of the best villains in the genre and feels like it's straight from the brain of Stephen King.
+---------
+
+# Every Remaining One Piece Villain, Ranked (By Strength)
+
+Anime, One Piece
+
+Thu, 28 May 2026 22:15:13 GMT
+
+https://www.cbr.com/strongest-one-piece-villains-luffy-needs-to-defeat/
+
+From Blackbeard to Mihawk, there are still a number of major villains for Luffy and the Straw Hat Pirates to overcome before One Piece ends.
+---------
+
+# 10 Most Perfect K-Dramas of the Last 5 Years, Ranked
+
+TV, South Korea, Squid Game, The Glory, Bloodhounds
+
+Thu, 28 May 2026 23:39:15 GMT
+
+https://collider.com/most-perfect-k-dramas-last-5-years-ranked/
+
+Squid Game, Bloodhounds, Weak Hero, and When Life Gives You Tangerines are among the best K-dramas of the last 5 years, but which is the greatest?
+---------
+
+# 10 Greatest John Wayne Westerns That Are Free To Stream
+
+Movie, John Wayne, Western, The Searchers, True Grit
+
+Thu, 28 May 2026 23:21:14 GMT
+
+https://collider.com/best-john-wayne-westerns-free-to-stream/
+
+Find out where John Wayne Western masterpieces like The Searchers, Rio Bravo, and The Searchers are free to stream for a limited time.
+---------
+
+# 20 Old Animated Movies From Your Childhood That You Forgot About
+
+Movie, Animation, The Prince of Egypt, Chicken Run, Brother Bear
+
+Thu, 28 May 2026 23:12:14 GMT
+
+https://collider.com/old-animated-movies-forgotten-childhood/
+
+You've probably forgotten a lot of classic animated movies you've seen in your childhood, ranging from Thumbelina to Rock-A-Doodle.
+---------
+
+# Hulu's 3-Part Sci-Fi Series Is the Perfect Weekend Binge for Dungeon Crawler Carl Fans
+
+TV Features, Future Man, Josh Hutcherson, Dungeon Crawler Carl, Hulu
+
+Thu, 28 May 2026 23:05:15 GMT
+
+https://collider.com/dungeon-crawler-carl-replacement-series-future-man/
+
+Perfectly blending sci-fi and absurd, over-the-top comedy, Hulu's Future Man sees a video game-playing janitor sent through time to save the world.
+---------
+
+# HBO’s Best New 10-Part Comedy Is the Perfect Weekend Binge
+
+TV Features, Rooster, Steve Carell, Bill Lawrence, Danielle Deadwyler
+
+Thu, 28 May 2026 22:58:14 GMT
+
+https://collider.com/hbo-best-new-comedy-rooster-steve-carell-perfect-binge/
+
+Rooster, HBO's latest comedy series by Bill Lawrence, is revitalizing the genre with its warm, optimistic storytelling and well-rounded ensemble cast.
+---------
+
+# Tom Hardy and James Gandolfini's Overlooked Gangster Thriller Remains a Hidden Gem 12 Years Later
+
+Movie Features, James Gandolfini, Tom Hardy, The Sopranos, The Drop
+
+Thu, 28 May 2026 22:54:13 GMT
+
+https://collider.com/tom-hardy-the-drop-thriller-james-gandolfini-hidden-gem/
+
+Tom Hardy and James Gandolfini's 88% Rotten Tomatoes thriller The Drop is a forgotten entry in their filmographies.
+---------
+
+# 10 Most Perfect Classic Rock Instrumentals of All Time, Ranked
+
+Music Features, Music, Lists, Green Day, Van Halen
+
+Thu, 28 May 2026 22:49:14 GMT
+
+https://collider.com/best-classic-rock-instrumentals/
+
+"The Star Spangled Banner" by Jimi Hendrix and "One of These Days" by Pink Floyd are among the all-time greatest rock instrumentals.
+---------
+
+# Netflix’s New K-Pop Movie Lets Anderson .Paak Put a Spotlight on Fatherhood in New BTS Images [Exclusive]
+
+Movie News, Anderson .Paak, K-Pops!, Comedy
+
+Thu, 28 May 2026 22:30:15 GMT
+
+https://collider.com/k-pops-bts-images-anderson-paak-soul-rasheed/
+
+New behind-the-scenes shots from Anderson .Paak's directorial debut K-Pops! shows a joyful atmosphere of music, laughter, and fun.
+---------
+
+# Apple TV Releases First Trailer for Colin Farrell's 'Sugar' Season 2
+
+TV News, Sugar, Colin Farrell
+
+Thu, 28 May 2026 22:32:29 GMT
+
+https://movieweb.com/sugar-season-2-trailer-colin-farrell/
+
+The streaming series had a Season 1 twist that most viewers never saw coming.
+---------
+
 # Alvez's Heartbreaking Criminal Minds: Evolution Season 19 Premiere Shocker & Future Impact Explained By Showrunner & Star
 
 TV, Criminal Minds, Criminal Minds - Season 19, Criminal Minds (Franchise), Adam Rodriguez
