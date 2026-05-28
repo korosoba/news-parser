@@ -1,3 +1,267 @@
+# One Piece Is Repeating The Same Major Mistake That Killed Naruto's Ending
+
+Anime, One Piece, Naruto
+
+Thu, 28 May 2026 02:03:28 GMT
+
+https://screenrant.com/one-piece-naruto-ending-mistake-big-twist-gods/
+
+As the Elbaph arc introduces god-tier threats, One Piece risks falling into the same power-scaling trap that derailed Naruto's finale.
+---------
+
+# The Mandalorian Season 4 Is Officially Better Than Season 3
+
+Star Wars, Masked Recs
+
+Thu, 28 May 2026 01:30:21 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-better-than-season-3/
+
+The Mandalorian season 3 was easily the most disappointing of the show so far, with the fourth installment officially improving upon it greatly.
+---------
+
+# 7 Best-Written Female Demon Slayer Characters
+
+Anime, Demon Slayer
+
+Thu, 28 May 2026 01:30:21 GMT
+
+https://screenrant.com/best-demon-slayer-female-characters/
+
+Demon Slayer has plenty of great characters, and there are a handful of female characters so well-written that they standout in the best way possible.
+---------
+
+# The Naruto Franchise's Definitive Worst Villain Just Became Boruto's Most Important Character
+
+Anime, Naruto, Boruto: Two Blue Vortex
+
+Thu, 28 May 2026 01:00:19 GMT
+
+https://screenrant.com/naruto-franchise-worst-villain-boruto-code-important/
+
+Naruto had his fair share of villains, winning either in battle or by changing hearts and minds, but Boruto may have found his most chaotic adversary.
+---------
+
+# Star Wars Battlefront 3 Setting Leaves Gamers Divided, And We Get It
+
+Gaming, Star Wars, Star Wars Battlefront 2 (2017), Star Wars: Battlefront II, Triple-A Games
+
+Thu, 28 May 2026 01:00:19 GMT
+
+https://screenrant.com/star-wars-battlefront-3-clone-wars-setting-gamers-react/
+
+Star Wars Battlefront 3 may still be a pipe dream, but the franchise's stalwart fanbase is unified on which settings or eras they hope are reprised.
+---------
+
+# 25 Easter Eggs And Marvel References In Nicolas Cage's Spider-Noir Series
+
+Superheroes, Spider-Noir, Spider-Man, Marvel Cinematic Universe
+
+Thu, 28 May 2026 00:23:40 GMT
+
+https://screenrant.com/nicolas-cage-spider-noir-easter-eggs-marvel-references/
+
+Amazon and Sony's 8-part Spider-Noir series has arrived, starring Nicolas Cage as Ben Reilly and featuring a wide collection of fun Easter eggs.
+---------
+
+# Tomb Raider Official Lara Croft Recast Rallies Gamers
+
+Gaming, Tomb Raider, Tomb Raider: Legacy of Atlantis, Tomb Raider: Catalyst, Triple-A Games
+
+Thu, 28 May 2026 00:00:21 GMT
+
+https://screenrant.com/tomb-raider-lara-croft-recast-catalyst-gamers-react/
+
+Tomb Raider's new era is debuting a brand-new actor for the role of Lara Croft, and gamers have accepted her with open arms and anticipation.
+---------
+
+# 10 Isekai Anime That Secretly Have Horror-Level Stakes
+
+Anime, Isekai
+
+Thu, 28 May 2026 02:15:13 GMT
+
+https://www.cbr.com/isekai-anime-with-horror-level-stakes/
+
+Isekai anime often present under the illusion of unexpected power in a fantastical world, but under the surface there lie unexpected horrors.
+---------
+
+# 10 Anime That Tried & Failed To Be The Next One Piece
+
+Anime, One Piece
+
+Thu, 28 May 2026 02:00:24 GMT
+
+https://www.cbr.com/anime-like-one-piece-failed-successors-list/
+
+One Piece is one of the most popular shonen anime ever, but many series tried to follow in its footsteps and failed.
+---------
+
+# In Just 3 Months, HBO Releases the Best Sci-Fi Murder Mystery Event of the Decade
+
+TV, Lanterns, DCU, Sci-Fi
+
+Thu, 28 May 2026 02:00:24 GMT
+
+https://www.cbr.com/hbo-lanterns-sci-fi-murder-mystery-tv-event/
+
+HBO's upcoming DCU series, Lanterns, is poised to launch a perfect sci-fi/murder mystery fusion in just three months.
+---------
+
+# 5 Western Showdowns Better Than Doc Holliday's In Tombstone
+
+Movies, Western, Tombstone, Unforgiven
+
+Thu, 28 May 2026 02:00:24 GMT
+
+https://www.cbr.com/western-showdowns-better-than-doc-holliday-tombstone-list/
+
+As great as Doc Holliday's showdown with Johnny Ringo was, some movies have even better finales than the ending of Tombstone.
+---------
+
+# 1 Year Later, Netflix’s Delicious in Dungeon Finally Returns This July With a Major U.S. Debut
+
+Anime, Delicious in Dungeon
+
+Thu, 28 May 2026 02:00:24 GMT
+
+https://www.cbr.com/netflix-delicious-in-dungeon-july-2026/
+
+The series is returning with brand new offering for fans who missed the previous instalment.
+---------
+
+# 7 Forgotten Cult Classic Games Everyone Should Play
+
+Games, Video Games, Nintendo, sega, Shadow of the Colossus
+
+Thu, 28 May 2026 01:45:13 GMT
+
+https://www.cbr.com/underrated-cult-classic-games/
+
+Eternal Darkness and Skies of Arcadia are among the best games that don't deserve to be forgotten.
+---------
+
+# Dragon Quest 12 Officially Revealed in New 40th Anniversary Trailer
+
+Games, Dragon Quest
+
+Thu, 28 May 2026 01:35:14 GMT
+
+https://www.cbr.com/dragon-quest-12-official-reveal-40th-anniversary-trailer/
+
+Fans have officially gotten their first real look at all the epic action to come when Dragon Quest XII: Beyond Dreams finally arrives.
+---------
+
+# 10 Hardest Anime Battles of All Time, Ranked
+
+Anime, shonen anime, Naruto: Shippuden
+
+Thu, 28 May 2026 01:26:13 GMT
+
+https://www.cbr.com/hardest-anime-battles-ranked/
+
+Some of the most difficult battles in anime push beyond the physical, quickly turing into clashes of timing, intelligence, endurance and survival.
+---------
+
+# Fallout: Maximus Officially Arrives August 2027
+
+Games, Fallout
+
+Thu, 28 May 2026 01:05:13 GMT
+
+https://www.cbr.com/fallout-maximus-official-new-release-coming-august-2027/
+
+Fans of Prime Video's live-action Fallout streaming series can soon welcome greatest member of the Brotherhood of Steel into their own homes.
+---------
+
+# 10 Best Star Wars Comics That Should Become Animated Shows
+
+Comics, Star Wars
+
+Thu, 28 May 2026 01:00:12 GMT
+
+https://www.cbr.com/star-wars-comics-that-deserve-animated-adaptations/
+
+These Star Wars comics could soon be adapted in some form on Disney+ as the next animated series.
+---------
+
+# 10 Upcoming Fantasy Movies, Ranked by Anticipation
+
+Movie, Fantasy, Narnia: The Magician's Nephew, The Lord of the Rings: The Hunt for Gollum, The Odyssey
+
+Thu, 28 May 2026 00:31:14 GMT
+
+https://collider.com/upcoming-fantasy-movies-ranked-by-anticipation/
+
+There are many high profile upcoming fantasy movies worth getting excited for, including The Legend of Zelda, Wildwood, and The Odyssey.
+---------
+
+# 10 Forgotten Disaster Movies That Are Amazing From Start to Finish
+
+Movie, A Night to Remember, Fail Safe, These Final Hours, Miracle Mile
+
+Thu, 28 May 2026 00:17:14 GMT
+
+https://collider.com/forgotten-disaster-movies-amazing/
+
+Fail Safe and Miracle Mile anchor forgotten disaster gems where collapse turns into moral panic, chaos, and human truth.
+---------
+
+# 2026’s Viral Horror Sensation Officially Overtakes A24’s Most Terrifying Movie
+
+Movie News, Obsession, Hereditary, Horror, A24
+
+Thu, 28 May 2026 00:00:15 GMT
+
+https://collider.com/2026-horror-movie-obsession-overtakes-a24-classic-hereditary-box-office-90-million/
+
+The biggest surprise hit of 2026, Obsession, has overtaken the modern horror classic Hereditary. Find out how much it has grossed at the box office.
+---------
+
+# 8 Fan Theories That Totally Change Your Favorite Movies
+
+Movie Lists, Sci-Fi, Action, The Matrix, The Shining, The Lord of the Rings, Star Wars
+
+Thu, 28 May 2026 02:00:30 GMT
+
+https://movieweb.com/fan-theories-that-change-your-favorite-movies/
+
+You'll never watch these movies the same way again after diving into wild fan theories that change everything.
+---------
+
+# New 6-Part Agatha Christie Mystery Thriller 'Tommy & Tuppence' Sets Release Date
+
+TV News, Tommy & Tuppence, Agatha Christie
+
+Thu, 28 May 2026 01:01:24 GMT
+
+https://movieweb.com/tommy-and-tuppence-show-agatha-christie-release-date/
+
+The new adaptation is coming to BritBox in September.
+---------
+
+# The 8 Best Movies of 2026 So Far
+
+Movie Lists, Project Hail Mary, Blue Heron, Nirvanna the Band the Show the Movie
+
+Thu, 28 May 2026 00:00:20 GMT
+
+https://movieweb.com/2026-best-movies/
+
+2026 has been an exciting year for movies, from horror to action, comedy, and drama, and these are the most impressive films.
+---------
+
+# Armie Hammer's Long-Awaited Thriller 'Citizen Vigilante' Lands Trailer & Release Date
+
+Movie News, Citizen Vigilante, Armie Hammer, Uwe Boll
+
+Wed, 27 May 2026 23:51:43 GMT
+
+https://movieweb.com/citizen-vigilante-armie-hammer-trailer/
+
+The actor teamed up with infamous filmmaker Uwe Boll for the movie, which will be released on June 19.
+---------
+
 # Netflix's Little House On The Prairie Remake Casts Iconic Season 2 Villain Ahead Of Series Premiere
 
 TV, Little House on the Prairie
