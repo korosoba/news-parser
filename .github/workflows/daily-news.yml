@@ -30,20 +30,33 @@ jobs:
 
       - name: Send file to bot for processing
         if: steps.check.outputs.has_content == 'true'
+        env:
+          TELEGRAM_CHAT_ID: ${{ secrets.TELEGRAM_CHAT_ID }}
+          BOT_URL: https://sr-bot-kqwv.onrender.com/process
+          TODAY: ${{ steps.date.outputs.today }}
         run: |
-          TEXT=$(cat news_feed.md)
-          PAYLOAD=$(python3 -c "
-          import json, sys
-          text = open('news_feed.md', encoding='utf-8').read()
-          print(json.dumps({
-              'text': text,
-              'date': '${{ steps.date.outputs.today }}',
-              'chat_id': '${{ secrets.TELEGRAM_CHAT_ID }}'
-          }))
-          ")
-          curl -s -X POST "https://sr-bot-kqwv.onrender.com/process" \
-            -H "Content-Type: application/json" \
-            -d "$PAYLOAD"
+          python3 - <<'EOF'
+          import json
+          import urllib.request
+          import os
+
+          text = open("news_feed.md", encoding="utf-8").read()
+          payload = json.dumps({
+              "text": text,
+              "date": os.environ["TODAY"],
+              "chat_id": os.environ["TELEGRAM_CHAT_ID"]
+          }).encode("utf-8")
+
+          req = urllib.request.Request(
+              os.environ["BOT_URL"],
+              data=payload,
+              headers={"Content-Type": "application/json"},
+              method="POST"
+          )
+          with urllib.request.urlopen(req, timeout=30) as resp:
+              print(f"Status: {resp.status}")
+              print(f"Response: {resp.read().decode()}")
+          EOF
 
       - name: Reset news_feed.md
         if: always()
