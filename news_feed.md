@@ -1,3 +1,443 @@
+# 10 Best-Selling Light Novels Of 2026 (So Far) Revealed
+
+Anime
+
+Thu, 28 May 2026 14:30:19 GMT
+
+https://screenrant.com/best-selling-light-novels-2026-midterm/
+
+What are the best-selling light novels right now?
+---------
+
+# 35 Best Shows On Apple TV Right Now
+
+Streaming TV, Apple TV
+
+Thu, 28 May 2026 14:30:19 GMT
+
+https://screenrant.com/apple-tv-best-shows-right-now/
+
+Apple TV has a wide variety of original content from all genres and for viewers of all ages, ensuring that there's something to watch for everyone.
+---------
+
+# Prime Video's Spider-Noir Is Officially No. 1 On Streaming In Just 1 Day
+
+TV, Spider-Noir, Spider-Man, Marvel Cinematic Universe
+
+Thu, 28 May 2026 14:24:14 GMT
+
+https://screenrant.com/spider-noir-prime-video-spiderman-streaming-success-may-2026/
+
+Nicolas Cage's Spider-Noir TV show has officially already become a worldwide streaming hit for Prime Video a day after its big series launch.
+---------
+
+# Elden Ring May 2026 Official Update Announced
+
+Gaming, Elden Ring
+
+Thu, 28 May 2026 14:13:59 GMT
+
+https://screenrant.com/elden-ring-may-2026-free-update/
+
+FromSoftware announces Elden Ring patch 1.16.2 with stability fixes for freezing, termination, and rendering issues.
+---------
+
+# Apple TV's Hit Gritty Detective Crime Thriller Series Finally Returns In Sugar Season 2 Trailer
+
+TV, Sugar
+
+Thu, 28 May 2026 14:12:34 GMT
+
+https://screenrant.com/sugar-season-2-trailer-apple-tv/
+
+Colin Farrell is back as private investigator John Sugar in the official trailer for Sugar season 2, which premieres in June on Apple TV.
+---------
+
+# Wheel Of Time's Official New Finale Leaves Fans Torn, And We Get Why
+
+Gaming, The Wheel of Time, PC
+
+Thu, 28 May 2026 14:11:24 GMT
+
+https://screenrant.com/wheel-of-time-2026-return-finale-gamers-react/
+
+Wheel of Time fans are completely torn on the epic new finale that's set to release this year, and it's completely understandable.
+---------
+
+# The Vampire Diaries: Damon & Elena's Relationship, Season By Season
+
+Network TV, The Vampire Diaries
+
+Thu, 28 May 2026 14:00:21 GMT
+
+https://screenrant.com/the-vampire-diaries-damon-salvatore-elena-gilbert-delena-relationship-season-by-season/
+
+Damon and Elena were arguably the central romance of The Vampire Diaries, but how did their relationship progress from season to season?
+---------
+
+# Before Season 2 Of Star Wars’ Darth Maul Show, Its Secret Prequel Is A Must-See
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars
+
+Thu, 28 May 2026 14:00:18 GMT
+
+https://screenrant.com/maul-shadow-lord-prequel-series-star-wars/
+
+Although it's not yet finished, Maul - Shadow Lord's lesser-known prequel series is a must-read while Star Wars fans wait for the next season.
+---------
+
+# Supernatural's New Castiel Spinoff Is The Beginning Of A New Era For The Hit Franchise
+
+Comics, Supernatural
+
+Thu, 28 May 2026 14:00:18 GMT
+
+https://screenrant.com/supernatural-new-castiel-series-new-era-franchise/
+
+The launch of Supernatural’s Castiel spinoff is on the horizon, and if one thing is clear, it’s that the Supernatural franchise is far from over.
+---------
+
+# Sci-Fi's Obsession With Empire Explained by An Expert
+
+Movies, Originals, The Mandalorian and Grogu, Dune, Blade Runner, Avatar
+
+Thu, 28 May 2026 14:00:18 GMT
+
+https://screenrant.com/video/sci-fi-s-obsession-with-empire-explained-by-an-expert/
+
+What ties The Mandalorian and Grogu, Dune, Blade Runner and Avatar together? The shared theme of colonial empire. If you've ever wanted a lecture directly from a sci fi expert this is the video essay for you.Georgia Tech professor Lisa Yaszek joins The Expert Take to explain why science fiction keeps returning to empire, control, rebellion and identity. From Blade Runner’s iconic “Tears in Rain” speech to The Mandalorian’s redefinition of heroism, Yaszek explores how sci-fi reflects real-world fears about war, colonialism and corporate power. She dives into Avatar’s obsession with embodied freedom and why Dune remains one of the genre’s most powerful stories about extraction and empire. If you’ve ever wondered why Star Wars, Blade Runner and Dune still feel so relevant, this breakdown connects the dots.
+---------
+
+# 10 Forgotten Cult Classic Anime Movies Everyone Should Watch
+
+Anime, Redline, Jin-Roh: The Wolf Brigade
+
+Thu, 28 May 2026 14:15:16 GMT
+
+https://www.cbr.com/must-watch-forgotten-cult-classic-anime-movies/
+
+No matter how much anime trends change, these cult classic movie masterpieces deserve to be remembered forever.
+---------
+
+# LEGO Batman: Legacy of the Dark Knight Goes Full Arkham
+
+Games, The Lego Batman Movie
+
+Thu, 28 May 2026 14:15:16 GMT
+
+https://www.cbr.com/video/lego-batman-legacy-of-the-dark-knight-goes-full-arkham/
+
+LEGO Batman: Legacy of the Dark Knight brings Arkham-inspired combat, deep Batman lore, and a massive Gotham City into one ambitious LEGO game. Head of development Jonathan Smith breaks down how the team balanced decades of Batman references while creating what they call the definitive Bruce Wayne story.Smith explains how Rocksteady’s Arkham trilogy influenced combat design, why the game introduces difficulty options for the first time in a LEGO title, and how iconic moments from Batman ‘89 — including Joker’s museum sequence with Prince’s “Party Man” — made it into the game. He also discusses Gotham exploration, playable allies like Robin and Catwoman, and why the focus stayed entirely on Batman instead of the wider DC Universe.
+---------
+
+# Colin Farrell's True Detective Replacement Officially Returns
+
+TV, Sugar
+
+Thu, 28 May 2026 14:00:12 GMT
+
+https://www.cbr.com/apple-tv-sugar-season-2-official-trailer/
+
+Colin Farrell's detective show is finally returning after two years.
+---------
+
+# Transformers Officially Reveals Optimus Prime’s Predecessor in New Age of the Primes Release
+
+Anime, Transformers, merchandise
+
+Thu, 28 May 2026 14:00:12 GMT
+
+https://www.cbr.com/transformers-sentinel-prime-age-of-the-primes-release/
+
+Transformers: Age of the Primes adds the comic book version of Sentinel Prime, who comes with an artifact uniting all of the Primes' weapons.
+---------
+
+# Sherlock Holmes Universe Expands With New Series on Iconic Villain
+
+TV, Sherlock Holmes
+
+Thu, 28 May 2026 13:28:57 GMT
+
+https://www.cbr.com/sherlock-holmes-moriarty-spinoff/
+
+The Sherlock Holmes franchise keeps thriving.
+---------
+
+# 10 Dragon Ball Characters Who Have Been Wasted Since DBZ Ended
+
+Anime, Dragon Ball, Dragon Ball Z
+
+Thu, 28 May 2026 13:15:12 GMT
+
+https://www.cbr.com/dragon-ball-characters-wasted-since-dbz-ended/
+
+These characters highlight how difficult it has been for Dragon Ball to balance its massive cast.
+---------
+
+# Star Trek: Captain Kirk's Powerful Anti-War Quote Still Hits Hard
+
+TV, Star Trek, Sci-Fi
+
+Thu, 28 May 2026 13:00:13 GMT
+
+https://www.cbr.com/star-trek-captain-kirk-dark-anti-war-quote/
+
+This Star Trek episode contains Kirk’s most haunting line, transforming a simple quote into a timeless warning about conflict that transcends sci-fi.
+---------
+
+# Hollywood Is Officially Replacing Indiana Jones After 45 Years
+
+Movies, Indiana Jones, Broken Sword
+
+Thu, 28 May 2026 13:00:13 GMT
+
+https://www.cbr.com/broken-sword-replacing-indiana-jones/
+
+Hollywood has been trying to replace Indiana Jones since The Last Crusade, and the Broken Sword film adaptation might finally be the success they want
+---------
+
+# Godzilla Officially Set to Invade San Diego Comic-Con
+
+Comics, Godzilla, San Diego Comic-Con
+
+Thu, 28 May 2026 12:00:12 GMT
+
+https://www.cbr.com/godzilla-vs-america-san-diego-release-date-confirmed/
+
+Godzilla is about to take on one of the most beloved industry events of all time, and San Diego Comic-Con might never be able to recover.
+---------
+
+# Everything You Forgot About Silo Season 2
+
+TV, Silo, Apple TV
+
+Thu, 28 May 2026 11:30:13 GMT
+
+https://www.cbr.com/apple-tv-silo-season-2-recap-before-season-3/
+
+Silo returns soon for its third season, almost two years after Season 2, and there are plenty of tidbits you need to remember.
+---------
+
+# 'For All Mankind's First Official Spin-Off 'Star City' Is a Tense, Gripping Spy Thriller | Review
+
+TV Reviews, Star City, Apple TV, Rhys Ifans, Alice Englert
+
+Thu, 28 May 2026 14:30:13 GMT
+
+https://collider.com/star-city-review-apple-tv-for-all-mankind-spinoff/
+
+For All Mankind spin-off Star City is a tense spy thriller that pulls back the curtain on a completely new side of the franchise.
+---------
+
+# Apple TV's Near-Perfect Detective Thriller Sets Season 2 Release Date With Sinister First Trailer
+
+TV News, Sugar, Colin Farrell, Apple TV, Anna Gunn
+
+Thu, 28 May 2026 14:00:13 GMT
+
+https://collider.com/apple-tv-near-perfect-detective-thriller-sugar-season-2-trailer-colin-farrell/
+
+Apple TV has officially released the first Season 2 trailer for Sugar, the detective series starring Colin Farrell as the titular character.
+---------
+
+# Kiernan Shipka Goes Full Natasha Lyonne in Bonkers First Look at New Dave Franco Movie
+
+Exclusives, Idiots, Mason Thames, Dave Franco, Collider Exclusive Preview
+
+Thu, 28 May 2026 14:00:13 GMT
+
+https://collider.com/new-dave-franco-movie-idiots-kiernan-shipka-mason-thames-oshea-jackson-jr-first-look/
+
+Get a new look at Idiots, Macon Blair’s dark comedy starring Dave Franco, O’Shea Jackson Jr., Kiernan Shipka, and Mason Thames.
+---------
+
+# Pixar's Zany Sci-Fi Hit Unveils Its Biggest Secret in New Behind-the-Scenes Sneak Peek [Exclusive]
+
+Exclusives, Hoppers, Disney+, Pixar, Bobby Moynihan
+
+Thu, 28 May 2026 13:30:12 GMT
+
+https://collider.com/pixar-sci-fi-hoppers-streaming-release-date-disney-plus-sneak-peek-easter-eggs/
+
+A new sneak peek at Hoppers teases its streaming arrival with an exploration of the many creative Pixar Easter eggs that appear on-screen.
+---------
+
+# 'Spider-Man' Star's New 'Bridget Jones' Diary' Replacement Is Your Next Favorite Rom-Com
+
+Movie News, Bridget Jones's Diary, Finding Emily, Angourie Rice, Collider Exclusive Preview
+
+Thu, 28 May 2026 13:00:13 GMT
+
+https://collider.com/new-british-rom-com-finding-emily-angourie-rice-first-look/
+
+Get a fresh look at Finding Emily, the new 10/10 British rom-com from the producers of Notting Hill and Bridget Jones’s Diary.
+---------
+
+# Netflix’s Newest 8-Part Crime Thriller Just Made the Best Case for Season 2 After 89M Hours Viewed
+
+TV Features, Netflix, Nemesis, Crime, Abbott Elementary
+
+Thu, 28 May 2026 12:39:13 GMT
+
+https://collider.com/netflix-crime-thriller-series-nemesis-89-million-hours-season-2/
+
+Less than a month since its release, Netflix’s Nemesis has risen in the charts and become the #1 show worldwide.
+---------
+
+# James Cameron Quietly Made One of the Best Sci-Fi TV Projects of the Last Decade
+
+TV Features, James Cameron’s Story of Science Fiction, James Cameron, AMC+, Ridley Scott
+
+Thu, 28 May 2026 12:39:13 GMT
+
+https://collider.com/james-cameron-best-sci-fi-series-science-fiction-story/
+
+James Cameron's Science Fiction Story on AMC+ is an under-appreciated series for science fiction fans.
+---------
+
+# ‘Spider-Noir’ Co-Showrunner Breaks Down the Brutal Finale and Teases Season 2 Future
+
+Interviews, Spider-Noir, Prime Video, Nicolas Cage, Spider-Man
+
+Thu, 28 May 2026 12:34:13 GMT
+
+https://collider.com/spider-noir-season-finale-meaning-prime-video-creator-oren-uziel-interview-season-2/
+
+Oren Uziel breaks down Spider-Noir’s finale, Ben Reilly’s failing powers, and what Season 2 could bring on Prime Video.
+---------
+
+# 15 Best International Sci-Fi Movies, Ranked
+
+Movie, Sci-Fi, District 9, Metropolis, Godzilla
+
+Thu, 28 May 2026 12:32:14 GMT
+
+https://collider.com/international-sci-fi-movies-ranked/
+
+From District 9 to Godzilla, these are the best non-Hollywood and foreign-language sci-fi movies.
+---------
+
+# Timothy Olyphant's 105-Minute Splatter-Comedy Thriller is the Perfect Late-Night Watch
+
+Movie Features, Jason Segel, Timothy Olyphant, Samara Weaving, Jorma Taccone
+
+Thu, 28 May 2026 12:17:13 GMT
+
+https://collider.com/timothy-olyphant-comedy-thriller-over-your-dead-body/
+
+Over Your Dead Body, starring Jason Segel and Samara Weaving, combines stomach-turning gore and laugh-out-loud comedy for a thrilling watch.
+---------
+
+# HBO Max's John Wick Inspired Sci-Fi Action Thriller is an Award Winning Streaming Hit
+
+Features, Lazarus, HBO Max, Streaming Recommendations, John Wick, Action
+
+Thu, 28 May 2026 14:30:18 GMT
+
+https://movieweb.com/lazarus-scifi-action-streaming-hbo-max-anime-awards/
+
+HBO Max's 'John Wick'-esque action thriller is a Crunchyroll Anime Award winner, and now is the perfect time to stream it.
+---------
+
+# ‘The White Lotus’ Season 4 First Photos Reveal Laura Dern, Chris Messina & More
+
+TV News, Laura Dern, The White Lotus, Chris Messina
+
+Thu, 28 May 2026 14:08:33 GMT
+
+https://movieweb.com/white-lotus-season-4-first-set-photos-cannes/
+
+Set photos from 'The White Lotus' Season 4 offer a first look at Laura Dern, Chris Messina and the cast filming on the Cannes red carpet.
+---------
+
+# 133 Years Later, One of the Greatest Villains Is Getting a Modern-Day Reboot
+
+TV News, Sherlock Holmes, Andrew Scott, Jared Harris
+
+Thu, 28 May 2026 14:00:46 GMT
+
+https://movieweb.com/moriarty-series-sherlock-holmes-villain-reboot/
+
+Sherlock Holmes' nemesis Moriarty is getting a modern reboot series 133 years after his debut, and casting will be key.
+---------
+
+# What Exactly Are the Backrooms?
+
+Features, Backrooms
+
+Thu, 28 May 2026 14:00:17 GMT
+
+https://movieweb.com/what-exactly-are-the-backrooms/
+
+The haunting fictional location lies outside of our reality and is at the heart of A24's latest horror movie, Kane Parsons' feature debut 'Backrooms'.
+---------
+
+# Apple TV Officially Confirms It’s the King of Sci-Fi This Week
+
+Features, Apple TV, For All Mankind, Star City, Upcoming Tease
+
+Thu, 28 May 2026 13:50:25 GMT
+
+https://movieweb.com/star-city-for-all-mankind-spinoff/
+
+Apple TV is known as the streaming service that has some incredible sci-fi series, from 'Severance' to 'Pluribus' to 'Silo.'
+---------
+
+# Nicolas Cage Has Legally Changed His Name
+
+Movie News, Nicolas Cage
+
+Thu, 28 May 2026 13:38:28 GMT
+
+https://movieweb.com/nicolas-cage-name-change/
+
+Nicolas Cage has revealed that he has legally changed his name and explained why he decided to ditch his birth moniker.
+---------
+
+# Henry Cavill Straight to Streaming Sci-Fi Action Remake Finally Gets Release Date
+
+Movie News, Henry Cavill, Action, Sci-Fi, Prime Video, Voltron
+
+Thu, 28 May 2026 13:24:00 GMT
+
+https://movieweb.com/henry-cavill-voltron-remake-streaming-release-date/
+
+The former Man of Steel's remake of a beloved 80s series 'Voltron' is now confirmed for streaming release.
+---------
+
+# The Greatest Quote From the 20th Century's Best War Movie Lives Rent-Free
+
+Features, Saving Private Ryan, Steven Spielberg, War, Great Line
+
+Thu, 28 May 2026 13:00:18 GMT
+
+https://movieweb.com/saving-private-ryan-greatest-war-movie-quote/
+
+The quote perfectly encapsulates the hellish realities of war from a soldier's perspective, proving why Spielberg understands his characters.
+---------
+
+# Superman/Batman Team-Up Movie Lands on Streaming Before 'Supergirl'
+
+Movie News, Superman/Batman: Apocalypse, HBO Max, Coming/Leaving Streaming, DCU
+
+Thu, 28 May 2026 12:00:18 GMT
+
+https://movieweb.com/superman-batman-apocalypse-streaming-hbo-max-june-2026/
+
+Before 'Supergirl,' HBO Max releases 'Superman/Batman: Apocalypse' action movie on streaming.
+---------
+
+# 12 Actors Whose Careers Were Destroyed By A Single Movie
+
+Movie Lists, Showgirls 2, Waterworld
+
+Thu, 28 May 2026 12:00:18 GMT
+
+https://movieweb.com/actors-careers-ruined-one-movie/
+
+Several actors starred in one movie that changed their careers for the worse, from blockbusters to genre films.
+---------
+
 # Witcher 3: Songs Of The Past Freebie Officially Available To Grab Now
 
 Gaming, The Witcher 3: Wild Hunt
