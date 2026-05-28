@@ -1,3 +1,333 @@
+# Alvez's Heartbreaking Criminal Minds: Evolution Season 19 Premiere Shocker & Future Impact Explained By Showrunner & Star
+
+TV, Criminal Minds, Criminal Minds - Season 19, Criminal Minds (Franchise), Adam Rodriguez
+
+Thu, 28 May 2026 22:13:37 GMT
+
+https://screenrant.com/criminal-minds-evolution-season-19-alvez-roxy-death-explained-erica-messer-adam-rodriguez/
+
+Adam Rodriguez and showrunner Erica Messer talk Criminal Minds: Evolution season 19's premiere shocker reveal for Alvez and its future impact.
+---------
+
+# Apple TV's 7-Year Sci-Fi Franchise Is Officially Changing Genres With New Spinoff
+
+TV, Star City, Star City - Season 1, For All Mankind
+
+Thu, 28 May 2026 22:12:41 GMT
+
+https://screenrant.com/apple-tv-for-all-mankind-star-city-genre-switch-espionage-explained/
+
+EXCLUSIVE: Apple TV is releasing a spinoff of its Emmy-winning sci-fi series that debuted in 2019, but the two shows are in very different genres.
+---------
+
+# Spider-Noir Just Set Up The Perfect Spider-Man Project
+
+Gaming, Spider-Noir, PC, Spider-Man, Marvel
+
+Thu, 28 May 2026 22:00:20 GMT
+
+https://screenrant.com/spider-noir-video-game-adaptation/
+
+Spider-Noir is officially a huge hit among Spider-Man fans, and it just set up the perfect next project for the franchise.
+---------
+
+# New Horror Series Is Five Nights at Freddy's Worthy Successor, With Awesome Killer Design
+
+Comics, Masked Recs, Horror
+
+Thu, 28 May 2026 22:00:20 GMT
+
+https://screenrant.com/new-horror-series-exquisite-corpses-rascal-randy/
+
+This mascot has some serious history...
+---------
+
+# 3 HBO Max Shows To Watch This Weekend (May 29-31)
+
+Streaming TV, HBO Max, What to Watch on Max
+
+Thu, 28 May 2026 21:48:20 GMT
+
+https://screenrant.com/hbo-max-shows-to-watch-weekend-may-29-31/
+
+The top three HBO Max shows to watch this weekend, May 29–31, are all critically acclaimed hits that are dropping their finale episodes by Sunday.
+---------
+
+# Prime Video’s 4-Part Spy Thriller Resurrected As US Streaming Hit After Film Revival
+
+TV, Masked Recs
+
+Thu, 28 May 2026 21:34:27 GMT
+
+https://screenrant.com/prime-video-jack-ryan-streaming-success-may-2026/
+
+Prime Video's 4-part spy thriller series is one of the streamer's most important shows, and it has been resurrected as an American sensation.
+---------
+
+# Why Ryan Reynolds Might Not Play Deadpool In His Next Appearance
+
+Streaming TV, Masked Recs
+
+Thu, 28 May 2026 21:30:21 GMT
+
+https://screenrant.com/x-men-97-season-2-deadpool-voice-not-ryan-reynolds/
+
+Deadpool's next appearance will technically be in X-Men '97 season 2 thanks to Morph, but Ryan Reynolds likely won't be voicing Wade Wilson.
+---------
+
+# Witcher 3: Songs Of The Past Official Release Date Update Is Great For Everyone
+
+Gaming, The Witcher 3: Wild Hunt
+
+Thu, 28 May 2026 21:00:21 GMT
+
+https://screenrant.com/witcher-3-songs-of-the-past-2027-release-date-opinion/
+
+It's honestly a massive relief that The Witcher 3's new Songs of the Past DLC isn't coming as soon as we originally hoped.
+---------
+
+# Tracker's Big Reveal About Colter's Secret Life Could Save Justin Hartley's Show In The Long Run
+
+Network TV, Tracker
+
+Thu, 28 May 2026 21:00:21 GMT
+
+https://screenrant.com/tracker-season-3-colter-secret-home-save-future/
+
+Tracker's season 3 finale ended on the reveal that Colter has a secret home base, and it could be key to the drama running for a long time on CBS.
+---------
+
+# 3 Apple TV Shows To Watch This Weekend (May 29-31)
+
+Streaming TV, Apple TV, What to Watch on Apple TV+
+
+Thu, 28 May 2026 20:36:20 GMT
+
+https://screenrant.com/apple-tv-shows-to-watch-weekend-may-29-31/
+
+ScreenRant's TV experts have hand-selected the top 3 shows to watch this weekend, May 29–31, 2026, now streaming exclusively on Apple TV.
+---------
+
+# Invincible Actor Doesn't Know Why Role Was Recast After 3 Seasons
+
+TV, Invincible
+
+Thu, 28 May 2026 22:13:23 GMT
+
+https://www.cbr.com/invincible-season-4-voice-role-recast/
+
+Invincible recast one role after three seasons without letting the voice actor know why.
+---------
+
+# 29 Years Later, One Piece Officially Reveals a New Devil Fruit to Rival Gear 5 Luffy
+
+Anime, One Piece, Shonen Jump
+
+Thu, 28 May 2026 22:00:14 GMT
+
+https://www.cbr.com/one-piece-gear-5-luffy-new-devil-fruit/
+
+One Piece officially debuts a new Devil Fruit capable of dethroning the Celestial Dragons and Gear 5 Luffy.
+---------
+
+# It's Official, Prime Video's James Bond Reboot Is Already The Action Movie Event of the Decade
+
+Movies, James Bond, Prime Video
+
+Thu, 28 May 2026 22:00:14 GMT
+
+https://www.cbr.com/james-bond-reboot-action-movie-event-of-the-decade/
+
+After the recent release of the James Bond video game, the Prime Video spy reboot is already one of the best upcoming action movies of the decade.
+---------
+
+# Nicholas Galitzine Loves Prince Adam’s Glow-Up In Masters Of The Universe
+
+Movies, Masters of the Universe
+
+Thu, 28 May 2026 21:56:46 GMT
+
+https://www.cbr.com/video/nicholas-galitzine-loves-prince-adam-s-glow-up-in-masters-of-the-universe/
+
+Nicholas Galitzine says playing He-Man in Masters of the Universe was one of the biggest challenges of his career.The Masters of the Universe star joins CBR to talk about transforming from Prince Adam into He-Man, including the physical training, the emotional arc and even the intentionally “flat” hairstyle that evolves throughout the movie.Galitzine reflects on childhood action figures, the pressure of carrying a massive fantasy franchise and the nonstop demands of balancing comedy, action and emotional scenes on set. Plus, he explains why Masters of the Universe needed both massive action moments and real emotional depth to make Prince Adam’s journey work.
+---------
+
+# Gundam writer Hiroyuki Kawasaki Has Died at 60
+
+Anime, Gundam
+
+Thu, 28 May 2026 21:46:49 GMT
+
+https://www.cbr.com/gundam-writer-hiroyuki-kawasaki-dead/
+
+The legendary anime writer behind Gundam, Sakura Wars, and more has passed away at the age of 60.
+---------
+
+# 15 Best Ross Geller Quotes In Friends
+
+TV, Friends, Sitcoms
+
+Thu, 28 May 2026 21:30:15 GMT
+
+https://www.cbr.com/friends-ross-geller-best-quotes/
+
+Whether he's insulting Chandler or Monica or telling Rachel they were on a break, Ross Geller has some of the best lines in Friends.
+---------
+
+# Tom Hanks' New World War II Series Officially Dominates PVOD In Just 1 Day
+
+TV, Tom Hanks
+
+Thu, 28 May 2026 21:30:14 GMT
+
+https://www.cbr.com/world-war-2-with-tom-hanks-pvod-success-may-2026/
+
+The docuseries turned into an instant hit on digital platforms.
+---------
+
+# What's Coming to Paramount+ in June 2026? Everything Arriving Next Month
+
+TV, Paramount Plus
+
+Thu, 28 May 2026 21:15:24 GMT
+
+https://www.cbr.com/what-coming-paramount-june-2026-full-list/
+
+Summer starts with a mix of new premieres, live events, and returning series.
+---------
+
+# Final Fantasy Games That Should Be Next In Line For A Remake
+
+Games, Final Fantasy
+
+Thu, 28 May 2026 21:15:13 GMT
+
+https://www.cbr.com/final-fantasy-games-most-need-remakes/
+
+Square Enix has been remaking classic Final Fantasy games for years now, but there are some that badly need to jump to the top of the queue.
+---------
+
+# In Just 1 Day, Netflix's Hit Mystery Series Becomes an Instant Global Streaming Hit
+
+TV, A Good Girl's Guide to Murder, Netflix
+
+Thu, 28 May 2026 21:00:13 GMT
+
+https://www.cbr.com/netflix-a-good-girls-guide-to-murder-season-2-streaming-success/
+
+Netflix's easy-to-binge mystery show is a streaming hit globally upon its return.
+---------
+
+# All 3 Movies Called 'King Kong,' Ranked
+
+Movie, King Kong
+
+Thu, 28 May 2026 22:08:15 GMT
+
+https://collider.com/movies-called-king-kong-ranked/
+
+There are three movies that share the name King Kong, with all being similar in terms of plot and spectacle, but which is the best overall?
+---------
+
+# 14 Years Later, This All-Star Trilogy Remains the Best Action Binge on HBO Max
+
+Movie Features, Christopher Nolan, Christian Bale, The Dark Knight Trilogy, Gary Oldman
+
+Thu, 28 May 2026 21:46:13 GMT
+
+https://collider.com/christopher-nolan-batman-trilogy-best-action-hbo-max/
+
+Christopher Nolan's Batman, starring Christian Bale, popularized the gritty superhero genre in a series of action-heavy films that are hard to beat.
+---------
+
+# Paul Simon's Most Controversial Album Became One of the Greatest Records Ever Made
+
+Music Features, Paul Simon: Under African Skies, Rock, Music, Billboard Hot 100
+
+Thu, 28 May 2026 21:30:28 GMT
+
+https://collider.com/paul-simon-greatest-album-1986-graceland/
+
+Paul Simon's album, its controversial creation during apartheid-era South Africa, and how it became a classic despite the cultural appropriation concerns.
+---------
+
+# Tom Hanks Officially Confirms Major Plot Details for His New WWII Sequel
+
+TV News, Greyhound, Tom Hanks, World War II, Apple TV
+
+Thu, 28 May 2026 21:30:15 GMT
+
+https://collider.com/tom-hanks-ww2-movie-greyhound-2-plot-details-true-story-ship-19-bombings/
+
+Tom Hanks reveals new details about Greyhound 2, saying the World War II sequel is inspired by a true naval survival story.
+---------
+
+# 'Rick and Morty's New Movie Is a Mistake the Show Can't Afford To Make
+
+TV Features, Rick and Morty, Dan Harmon, Adult Swim, Cartoon Network
+
+Thu, 28 May 2026 21:27:13 GMT
+
+https://collider.com/rick-and-morty-movie-announcement-mistake/
+
+Rick and Morty's upcoming movie raises concerns about the franchise, given the show's recent decline in quality and consistency.
+---------
+
+# 55 Years Ago, the Planet of the Apes Franchise Had One of Sci-Fi's Boldest Time Travel Stories
+
+Movie Features, Planet of the Apes, Escape from the Planet of the Apes, Charlton Heston, Sci-Fi
+
+Thu, 28 May 2026 21:10:14 GMT
+
+https://collider.com/escape-from-the-planet-of-the-apes-time-travel-story/
+
+Escape From the Planet of the Apes features an incredibly complex time travel love story that is far deeper than people might think.
+---------
+
+# 'Death at a Funeral' Meets 'Happy Gilmore' In First Look at New R-Rated Dramedy
+
+Movie News, Edward Burns, Collider Exclusive Preview, Comedy, Sports
+
+Thu, 28 May 2026 21:00:13 GMT
+
+https://collider.com/finnegans-foursome-image-edward-bruns-brian-darcy-james/
+
+A new look at the sports comedy Finnegan's Foursome shows Edward Burns and Brian d'Arcy James happily sharing a pint.
+---------
+
+# 8 Great Actors Who Had Bad Final Movies
+
+Movie, Jack Nicholson, Sean Connery, Marlon Brando, Robin Williams
+
+Thu, 28 May 2026 20:57:13 GMT
+
+https://collider.com/great-actors-bad-final-movies/
+
+Not all actors get a great role to finish their careers on, as the likes of Sean Connery, Jack Nicholson, Marlon Brando, and Bela Lugosi go to show.
+---------
+
+# Zac Efron Starring in HBO Remake of Robert De Niro Thriller 'Angel Heart'
+
+TV News, Angel Heart, Zac Efron, HBO Max
+
+Thu, 28 May 2026 22:13:08 GMT
+
+https://movieweb.com/angel-heart-reboot-zac-efron-hbo/
+
+Both the 1987 movie and the upcoming series are based on William Hjortsberg’s 1978 novel Fallen Angel.
+---------
+
+# Tom Hardy's 'MobLand' Fate Reportedly Revealed as Helen Mirren Officially Addresses Feud Rumors
+
+TV News, MobLand, Tom Hardy, Helen Mirren
+
+Thu, 28 May 2026 20:27:23 GMT
+
+https://movieweb.com/tom-hardy-helen-mirren-mobland-feud-rumors/
+
+The 'MobLand' drama hits another turn, as it is reported that Tom Hardy has not been fired, while Helen Mirren has clarifed her stance on the actor.
+---------
+
 # Prime Video's Biggest Fantasy Show Is So Ambitious, It's Already Renewed For 2 More Seasons
 
 Streaming TV, Masked Recs
