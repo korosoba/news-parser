@@ -1,3 +1,443 @@
+# Forza Horizon 6: Minamino Region Treasure Hunt Location
+
+Gaming, Forza Horizon 6
+
+Thu, 28 May 2026 17:54:20 GMT
+
+https://screenrant.com/forza-horizon-6-minamino-region-treasure-hunt-location/
+
+Here's where to find this seasonal treasure hunt in Forza Horizon 6.
+---------
+
+# DC Officially Unveils Superboy's Design For Superman's Next Appearance
+
+Superheroes, Masked Recs
+
+Thu, 28 May 2026 17:45:20 GMT
+
+https://screenrant.com/my-adventures-with-superman-hbo-max-superboy-dc-series-reveal/
+
+Superboy will debut in Superman's next appearance, and DC has revealed the first look at the hero ahead of the Man of Steel's upcoming release.
+---------
+
+# 3 Reasons Why Backrooms Reviews Are So Positive
+
+Movies, Backrooms
+
+Thu, 28 May 2026 17:45:20 GMT
+
+https://screenrant.com/backrooms-movie-reviews-positive-explained/
+
+Kane Parsons' upcoming adaptation of the Backrooms creepypasta is getting rave reviews from critics, and here are some reasons explaining the praise.
+---------
+
+# Upcoming Live-Action Anime Adaptation Will Be 'One Piece Meets Avatar: The Last Airbender'
+
+Movies, Masked Recs
+
+Thu, 28 May 2026 17:30:20 GMT
+
+https://screenrant.com/naruto-live-action-anime-adaptation-one-piece-avatar/
+
+There are plenty of live-action anime adaptations, but one of the most highly anticipated will blend elements of Netflix's One Piece and Avatar shows.
+---------
+
+# We're Officially 3 Months Away From A Sci-Fi Master's Return
+
+New Movies, The Dog Stars, Ridley Scott
+
+Thu, 28 May 2026 17:20:20 GMT
+
+https://screenrant.com/ridley-scott-sci-fi-movie-return-dog-stars/
+
+One of the most influential sci-fi movie directors is returning to the genre in three months with a fresh challenge after taking a long break.
+---------
+
+# Marvel Studios Officially Kills Off An X-Men 6 Years After Their Movie Debut
+
+Streaming TV, Masked Recs
+
+Thu, 28 May 2026 17:00:20 GMT
+
+https://screenrant.com/x-men-97-season-2-magik-death-genosha-confirmed/
+
+X-Men '97 season 2 has already confirmed that it will kill off Magik just six years after Anya Taylor-Joy portrayed her in The New Mutants.
+---------
+
+# Cyberpunk 2077 Sequel Gets Official Update
+
+Gaming, Cyberpunk 2077, PC
+
+Thu, 28 May 2026 16:59:36 GMT
+
+https://screenrant.com/cyberpunk-2077-sequel-official-update-may-28/
+
+Cyberpunk 2077's highly anticipated sequel just got an official update from developers at CD Projekt Red, and it's looking quite promising.
+---------
+
+# The Simpsons Officially Returning This Summer With New Episodes
+
+TV, The Simpsons
+
+Thu, 28 May 2026 16:46:32 GMT
+
+https://screenrant.com/the-simpsons-disney-plus-exclusive-episodes-release-date-summer-2026/
+
+The Simpsons season 38 will premiere in fall 2026 on FOX, but fans will get the chance to watch brand-new episodes throughout the summer.
+---------
+
+# Star Wars’ 8 Best Zeb Orrelios Episodes To Watch After The Mandalorian & Grogu
+
+TV, Star Wars Rebels, The Mandalorian and Grogu, Star Wars
+
+Thu, 28 May 2026 16:45:20 GMT
+
+https://screenrant.com/star-wars-best-zeb-orrelios-episodes/
+
+Before helping Din Djarin and Grogu, Zeb Orrelios played an important role in eight episodes of Star Wars television that are well worth watching.
+---------
+
+# Neon Just Replaced A24 As The Most Exciting Indie Studio In 2026
+
+Movies, A24
+
+Thu, 28 May 2026 16:45:20 GMT
+
+https://screenrant.com/neon-a24-cannes-palme-dor-studio-2026/
+
+A24 may be the more well-known brand, but Neon just made an enormous move in cementing their reputation as one of the best distributors in the world.
+---------
+
+# Anya Taylor-Joy's $982M Sequel Officially Defeats Jack Black's 2025 Surprise Hit at the Box Office
+
+Movies, The Super Mario Galaxy Movie, A Minecraft Movie
+
+Thu, 28 May 2026 17:54:54 GMT
+
+https://www.cbr.com/the-super-mario-galaxy-movie-defeats-a-minecraft-movie-box-office/
+
+Sorry, Jack Black, but your 2025 blockbuster has just been knocked down a peg on the box office chart by a different movie that stars you.
+---------
+
+# X-Men '97: 10 Comic Storylines Teased by the Season 2 Trailer
+
+TV, X-Men '97, X-Men, Disney+
+
+Thu, 28 May 2026 17:30:12 GMT
+
+https://www.cbr.com/xmen-97-s2-trailer-comic-storylines-list/
+
+The first trailer for X-Men '97's second season bet big on fan service, teasing epic returns, shocking deaths, and beloved comic storylines.
+---------
+
+# Tuner Is 'Baby Driver' Meets 'Thief'
+
+Movies, Tuner, Baby Driver, Thief
+
+Thu, 28 May 2026 17:30:12 GMT
+
+https://www.cbr.com/tuner-perfect-crime-thriller-baby-driver-thief-replacement/
+
+The new crime thriller from Oscar-winning filmmaker Daniel Rohr (Navalny) is stealthily one of the summer's most enjoyable new films.
+---------
+
+# DC Just Officially Killed Off One of Batman’s Most Iconic Villains
+
+Comics, Batman
+
+Thu, 28 May 2026 17:27:22 GMT
+
+https://www.cbr.com/batman-163-talia-al-ghul-kills-hush/
+
+The Dark Knight's rogues' gallery is suddenly a bit smaller.
+---------
+
+# Secrets We Keep: Netflix's 100% Rotten Tomatoes Noir Thriller
+
+TV, The Secrets We Keep, Netflix, Thriller
+
+Thu, 28 May 2026 17:25:13 GMT
+
+https://www.cbr.com/netflix-secrets-we-keep-best-slow-burn-thriller-2020s/
+
+Netflix is home to some of the best slow-burn thrillers, and at the top of the watch stack is the Nordic Noir mystery, Secrets We Keep.
+---------
+
+# 10 JRPGs You Can Complete In One Weekend
+
+Games, Super Mario RPG: Legend of the Seven Stars, Dragon Quest I & II HD-2D Remake, Crisis Core – Final Fantasy VII – Reunion, JRPG, RPG
+
+Thu, 28 May 2026 17:16:12 GMT
+
+https://www.cbr.com/jrpgs-to-complete-in-1-weekend/
+
+The JRPG genre is notorious for it's long playthroughs and tedious grinding mechanics, but these ten titles give players a much shorter experience.
+---------
+
+# The Most Anticipated WWII Movie of 2026 Opens to Fantastic Rotten Tomatoes Score
+
+Movies, Pressure, Rotten Tomatoes
+
+Thu, 28 May 2026 17:08:50 GMT
+
+https://www.cbr.com/brendan-fraser-pressure-rotten-tomatoes-score/
+
+The movie season is open, and Brendan Fraser's new WWII Movie is here.
+---------
+
+# The Lincoln Lawyer Replacement Officially in the Works at HBO Ahead of Fifth and Final Season
+
+TV, The Lincoln Lawyer, HBO Max, Welcome to Catalina
+
+Thu, 28 May 2026 17:08:00 GMT
+
+https://www.cbr.com/the-lincoln-lawyer-replacement-officially-in-the-works-hbo/
+
+HBO Max has the perfect replacement for The Lincoln Lawyer, created by the same award-winning mind, David E. Kelley.
+---------
+
+# Eric Bana's Forgotten True Crime Anthology Is the Perfect Weekend Binge (Before It Leaves Netflix)
+
+TV, Untamed, Netflix, Dirty John
+
+Thu, 28 May 2026 17:00:14 GMT
+
+https://www.cbr.com/eric-bana-dirty-john-anthology-leaving-netflix-june-2026/
+
+One of the most criminally underrated true crime anthology series is about to leave Netflix before Untamed brings Eric Bana back for another thriller.
+---------
+
+# Pixar's New Animated Hit With 94% RT Finally Sets Disney+ Release Date
+
+Movies, Hoppers
+
+Thu, 28 May 2026 16:36:49 GMT
+
+https://www.cbr.com/pixar-hoppers-disney-plus-release-date/
+
+After a successful run in theaters and on digital, Pixar's latest animated movie is finally heading to Disney+.
+---------
+
+# 8 Best Thriller Shows on Apple TV, Ranked
+
+TV, Apple TV, Thriller, Severance, Black Bird
+
+Thu, 28 May 2026 17:18:14 GMT
+
+https://collider.com/best-thriller-shows-apple-tv-ranked/
+
+Dark Matter, Silo, The Shrink Next Door, Slow Horses, Severance, and more make up our list of the best thriller shows on Apple TV.
+---------
+
+# Sonny Rollins, Master Saxophonist and Jazz Pioneer, Dead at 95
+
+Music News, Jazz, Music
+
+Thu, 28 May 2026 17:10:22 GMT
+
+https://collider.com/sonny-rollins-jazz-master-saxophonist-saxophone-colossus-dead/
+
+Nicknamed "The Saxophone Colossus," Sonny Rollins' legacy cannot be overstated.
+---------
+
+# 10 Most Perfect Horror Movies for Beginners, Ranked
+
+Movie, Jaws, Gremlins, Night of the Living Dead, Horror
+
+Thu, 28 May 2026 17:08:12 GMT
+
+https://collider.com/most-perfect-horror-movies-for-beginners/
+
+Horror classics like Jaws, Halloween, and An American Werewolf in Paris are perfect entry points for viewers who are new to the genre.
+---------
+
+# Johnny Knoxville’s Jackass Crew Is Officially Back for One More Round of Glorious Bad Ideas
+
+Exclusives, Jackass, Jackass: Best and Last, Collider Exclusive Preview, Johnny Knoxville
+
+Thu, 28 May 2026 17:00:14 GMT
+
+https://collider.com/jackass-best-and-last-johnny-knoxville-wee-man-electrocution-image/
+
+Get a new look at Jackass: Best and Last, which brings Johnny Knoxville, Wee Man, Steve-O, and the crew back for more chaos.
+---------
+
+# Fallout: Maximus Officially Sets 2027 Release Date
+
+Gaming News, Fallout, Fallout: Nuka Break, Fallout 76
+
+Thu, 28 May 2026 16:48:14 GMT
+
+https://collider.com/fallout-maximus-official-new-release-august-2027-power-armor-statue/
+
+Prime 1 Studio’s new Fallout Maximus Power Armor statue sets 2027 release, giving fans a high-end collectible based on the Prime Video series.
+---------
+
+# New Elden Ring Game Officially Confirmed for June 2026 Release
+
+Gaming News, George R.R. Martin, Elden Ring, Gaming
+
+Thu, 28 May 2026 16:37:58 GMT
+
+https://collider.com/new-elden-ring-game-official-release-june-2026-nightreign-tabletop-rpg-ttrpg/
+
+Elden Ring is expanding with Nightreign a new tabletop RPG release giving fans a new way to experience the Lands Between in just 3 weeks.
+---------
+
+# Apple TV Lands Another 10/10 Sci-Fi Thriller
+
+TV News, Star City, Apple TV, Sci-Fi, Thriller
+
+Thu, 28 May 2026 16:36:11 GMT
+
+https://collider.com/star-city-apple-tv-rotten-tomatoes-score-is-it-good/
+
+Apple TV's new sci-fi debuts with a perfect 100% score on Rotten Tomatoes ahead of tomorrow's premiere. Get all the details here.
+---------
+
+# Sherlock Holmes’ Greatest Villain Is Getting His Own Crime Series
+
+TV News, Andrew Scott, Sherlock Holmes, Sherlock
+
+Thu, 28 May 2026 16:35:23 GMT
+
+https://collider.com/new-sherlock-holmes-spin-off-crime-series-moriarty/
+
+A modern Sherlock Holmes-inspired crime thriller focused on Professor Moriarty is officially in the works from Fremantle and Archery Pictures.
+---------
+
+# New ‘Call of Duty’ Trailer Proves Taylor Sheridan’s Movie Has No Excuse To Play It Safe
+
+Movie News, Call of Duty, Taylor Sheridan, Peter Berg
+
+Thu, 28 May 2026 16:32:35 GMT
+
+https://collider.com/call-of-duty-modern-warfare-4-trailer-taylor-sheridan-movie-script-update/
+
+Taylor Sheridan is writing Paramount’s upcoming Call of Duty movie, and the franchise’s new trailer delivers a perfect action-driven blueprint.
+---------
+
+# Disney+ Quietly Removes a Key Feature Users Have Had for Years
+
+TV News, Disney, Disney+, Streaming
+
+Thu, 28 May 2026 16:32:24 GMT
+
+https://collider.com/disney-plus-removes-a-z-search-feature-streaming/
+
+Disney+ quietly removes a key search feature users have had for years, making it harder to find what you’re looking for on the streamer.
+---------
+
+# Jason Statham Takes Aim in Intense New Look at Action Thriller 'Mutiny'
+
+Movie News, Jason Statham, Mutiny
+
+Thu, 28 May 2026 17:24:56 GMT
+
+https://movieweb.com/jason-statham-mutiny-new-photo/
+
+Jason Statham is locked and loaded in new image from highly anticipated action thriller 'Mutiny.'
+---------
+
+# Forget 'Reacher,' This Action Remake Is So Good, You Won't Stop Watching
+
+Features, Reacher, Walker
+
+Thu, 28 May 2026 17:00:19 GMT
+
+https://movieweb.com/walker-perfect-reacher-replacement/
+
+'Reacher,' the action series starring Alan Ritchson that streams on Amazon Prime Video, is popular, but there is another show that fans will enjoy.
+---------
+
+# 'Obsession' Breakout Horror Star Officially Joins the MCU as Major X-Men Character
+
+Movie News, Obsession, MCU, X-Men '97, X-Men
+
+Thu, 28 May 2026 16:58:57 GMT
+
+https://movieweb.com/obsession-star-joins-mcu-x-men-97/
+
+'Obsession's breakout star is officially joining the Marvel universe in a major superhero role set to thrill audiences this summer.
+---------
+
+# 'Spider-Man: Brand New Day' Photos Offers New Look at The Hand in MCU Sequel
+
+Movie News, Spider-Man: Brand New Day
+
+Thu, 28 May 2026 16:30:22 GMT
+
+https://movieweb.com/the-hand-spider-man-brand-new-day/
+
+Empire's newest cover puts the ninja organization front and center with Spider-Man, teasing their larger involvement in the MCU sequel.
+---------
+
+# Daniel Craig's 'Narnia' Officially Rewrites the Rules of Netflix
+
+Features, Narnia: The Magician's Nephew, Netflix, Daniel Craig, Fantasy
+
+Thu, 28 May 2026 16:00:17 GMT
+
+https://movieweb.com/narnia-daniel-craig-netflix-theatrical-release/
+
+Netflix is shaking things up with its titles, and the upcoming 'Narnia' adaptation will be the first to be released in a whole new way.
+---------
+
+# 'In the Hand of Dante' Trailer: First Look at Gerard Butler's Netflix Crime Epic
+
+Movie News, In the Hand of Dante, Gerard Butler, Netflix
+
+Thu, 28 May 2026 15:45:09 GMT
+
+https://movieweb.com/in-the-hand-of-dante-trailer/
+
+Netflix has released the first trailer for 'In the Hand of Dante,' offering a first look at Julian Schnabel's star-studded historical crime drama.
+---------
+
+# Sepideh Moafi Shuts Down 'The Pitt' Noah Wyle Feud Rumors, Confirms Season 3
+
+TV News, The Pitt
+
+Thu, 28 May 2026 15:40:48 GMT
+
+https://movieweb.com/the-pitt-sepideh-moafi-feud-rumors-season-3/
+
+Sepideh Moafi calls 'The Pitt' feud rumors with Noah Wyle "completely false" and confirms her Dr. Al-Hashimi returns for Season 3.
+---------
+
+# Fate of 'X-Men '97' Season 4 Officially Confirmed by Disney+
+
+TV News, X-Men '97, Disney+
+
+Thu, 28 May 2026 15:25:11 GMT
+
+https://movieweb.com/x-men-97-disney-plus-season-4/
+
+Disney+ officially confirmed whether 'X-Men '97' will get another season of animated action on Disney+.
+---------
+
+# James Gunn Officially Addresses 'Teen Titans' Movie Amidst Director Rumors
+
+Movie News, James Gunn, Teen Titans (DCU)
+
+Thu, 28 May 2026 15:23:18 GMT
+
+https://movieweb.com/james-gunn-teen-titans-movie-director-rumors/
+
+Will the 'Teen Titans' movie see the light of day? James Gunn has addressed a rumor about Sam Levinson directing the DCU title.
+---------
+
+# Best Biopics Ever Made, Ranked
+
+Movie Lists
+
+Thu, 28 May 2026 15:01:19 GMT
+
+https://movieweb.com/best-biopics-biographical-movies/
+
+The genre is undisputedly the darling of both the Academy Awards and Tinseltown; these are the best of the best, ranked.
+---------
+
 # 10 Best-Selling Light Novels Of 2026 (So Far) Revealed
 
 Anime
