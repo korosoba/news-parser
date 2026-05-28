@@ -17,6 +17,8 @@ FEEDS = [
     "https://movieweb.com/feed/",
 ]
 
+MAX_ARTICLES = 500  # Максимальное количество статей в файле
+
 def load_seen_guids() -> set:
     if os.path.exists(SEEN_FILE):
         with open(SEEN_FILE, "r", encoding="utf-8") as f:
@@ -56,6 +58,17 @@ def format_item(item: dict) -> str:
 {item['description']}
 ---------
 """
+
+def trim_articles(content: str, max_articles: int) -> tuple[str, int]:
+    """Обрезает файл до max_articles статей, возвращает контент и количество удалённых."""
+    blocks = content.split("---------")
+    # Первый и последний элементы могут быть пустыми после split
+    blocks = [b for b in blocks if b.strip()]
+    if len(blocks) <= max_articles:
+        return content, 0
+    removed = len(blocks) - max_articles
+    trimmed = "---------".join(blocks[:max_articles]) + "---------"
+    return trimmed, removed
 
 def main():
     seen = load_seen_guids()
@@ -107,8 +120,15 @@ def main():
         new_content = "\n".join([format_item(item) for item in new_items])
 
         # Пишем новые сверху + старые
+        combined = new_content + "\n" + existing_content
+
+        # Обрезаем до MAX_ARTICLES
+        combined, removed = trim_articles(combined, MAX_ARTICLES)
+        if removed:
+            print(f"Удалили {removed} старых статей (лимит {MAX_ARTICLES})")
+
         with open(OUTPUT_FILE, "w", encoding="utf-8") as f:
-            f.write(new_content + "\n" + existing_content)
+            f.write(combined)
 
         save_seen_guids(seen)
         print(f"Обновили {OUTPUT_FILE}")
@@ -117,4 +137,3 @@ def main():
 
 if __name__ == "__main__":
     main()
-
