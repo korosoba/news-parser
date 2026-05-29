@@ -1,3 +1,322 @@
+# Jason Statham Leads A Fight For Survival On A Cargo Ship In New Action Thriller
+
+Movies, Masked Recs
+
+Fri, 29 May 2026 02:27:38 GMT
+
+https://screenrant.com/jason-statham-leads-a-fight-for-survival-on-a-cargo-ship-in-new-action-thriller/
+
+In a new action thriller film, Jason Statham finds himself framed for murder and on a cargo ship as he tries to uncover an international conspiracy.
+---------
+
+# Mortal Kombat 2 Star Reveals Grueling Process For Role
+
+Movies, Mortal Kombat II
+
+Fri, 29 May 2026 02:05:39 GMT
+
+https://screenrant.com/mortal-kombat-2-adeline-rudolph-training-process-intense/
+
+Mortal Kombat II star discusses the challenges that came with her role and the process she had to go through to bring her character to life.
+---------
+
+# Chainsaw Man: Reze Arc Deserved Anime Film Of The Year, Not Infinity Castle
+
+Anime, Chainsaw Man - The Movie: Reze Arc, Demon Slayer: Kimetsu no Yaiba Infinity Castle
+
+Fri, 29 May 2026 02:00:33 GMT
+
+https://screenrant.com/chainsaw-man-reze-better-demon-slayer-infinity-castle/
+
+While Demon Slayer: Infinity Castle had its flaws, Chainsaw Man: Reze Arc delivered a more balanced and powerful emotional experience.
+---------
+
+# Richard Gadd Breaks Down Half Man's Brutal Finale & The Meaning Behind Its Ending
+
+TV, Half Man
+
+Fri, 29 May 2026 02:00:33 GMT
+
+https://screenrant.com/half-man-show-ending-explained-richard-gadd-interview/
+
+Half Man's creator and star Richard Gadd breaks down the tragic ending of the HBO miniseries and reflects on the real meaning of the bleak show.
+---------
+
+# This A New Hope Plot Point Still Makes No Sense 49 Years Later
+
+Movies, Star Wars: Episode IV - A New Hope, Star Wars
+
+Fri, 29 May 2026 02:00:33 GMT
+
+https://screenrant.com/star-wars-attack-of-the-clones-uncle-owen-knew-c-3po/
+
+Almost 50 years after Star Wars began with A New Hope, this one plot point still hasn't been explained—and the prequels actually created the problem.
+---------
+
+# Mitchell Robertson Reflects On Half Man As Richard Gadd & Jamie Bell Series Ends
+
+TV, Half Man
+
+Fri, 29 May 2026 02:00:33 GMT
+
+https://screenrant.com/half-man-show-ending-niall-mitchell-robertson-interview/
+
+Half Man's Mitchell Robertson said goodbye to Niall after episode 3, but the character stuck with the young actor long after Jamie Bell took over.
+---------
+
+# Hacks Series Finale Ending Explained: Deborah Vance Has The Ultimate Last Laugh
+
+Streaming TV, Hacks, Hacks - Season 5
+
+Fri, 29 May 2026 01:45:21 GMT
+
+https://screenrant.com/hacks-series-finale-ending-explained/
+
+The series finale of Hacks hits the ultimate high note for Deborah Vance and Ava Daniels as they share plenty of laughs and tears for the last time.
+---------
+
+# 10 Spider-Man Spin-Offs Sony Needs To Make After Spider-Noir
+
+Superheroes, Spider-Noir, Spider-Man, Marvel Cinematic Universe
+
+Fri, 29 May 2026 01:30:21 GMT
+
+https://screenrant.com/10-spider-man-spinoffs-sony-needs-to-make-after-spider-noir/
+
+Spider-Noir is already a clear success for Sony Pictures, so here are 10 more Spider-Man spin-off projects they should start developing ASAP.
+---------
+
+# Spider-Man's New Superhero Name Officially Revealed In 2026 Release
+
+Streaming TV, Masked Recs
+
+Fri, 29 May 2026 01:00:21 GMT
+
+https://screenrant.com/prime-video-spider-noir-superhero-series-spiderman-new-name-reveal/
+
+Spider-Man's live-action return in 2026 sees the Marvel hero take on a new superhero name, and it makes perfect sense for this street-level story.
+---------
+
+# Vin Diesel's Sci-Fi Trilogy Returns to Streaming Amid Wait for Part 4
+
+Movies, The Chronicles of Riddick, Netflix, vin diesel
+
+Fri, 29 May 2026 02:27:29 GMT
+
+https://www.cbr.com/chronicles-of-riddick-franchise-netflix-june-2026/
+
+The three-part sci-fi series gets a new streaming home which could bring about an update on the fourth installment.
+---------
+
+# 5 Dark Shonen Anime Perfect for Fans of Jujutsu Kaisen
+
+Anime, Jujutsu Kaisen, Shonen, Yu Yu Hakusho, Chainsaw Man
+
+Fri, 29 May 2026 02:15:15 GMT
+
+https://www.cbr.com/best-dark-shonen-anime-for-fans-jujutsu-kaisen-fans/
+
+Jujutsu Kaisen continues the modern trend of dark shonen anime, but it's far from the only example of this grim, gritty and grisly archetype.
+---------
+
+# Chainsaw Man Unleashes Denji, Power and Pochita in New Limited Edition Anime Collection
+
+Anime, Chainsaw Man
+
+Fri, 29 May 2026 02:00:25 GMT
+
+https://www.cbr.com/chainsaw-man-nevermind-denji-power-pochita-collab/
+
+Chainsaw Man's latest collaboration is perfect for fans looking forward to the return of the series' anime adaptation.
+---------
+
+# 5 Forgotten R-Rated Comedies That Are Perfect From Start to Finish
+
+Movies, Comedy
+
+Fri, 29 May 2026 02:00:25 GMT
+
+https://www.cbr.com/perfect-r-rated-comedies-no-one-remembers-list/
+
+These forgotten R-rated comedies still stand out because they remain consistently funny from the opening scene to the end.
+---------
+
+# Hannibal's 'Mizumono' Is TV's Best Psychological Horror Finale
+
+TV, Hannibal, Horror
+
+Fri, 29 May 2026 02:00:25 GMT
+
+https://www.cbr.com/hannibal-season-2-mizumono-best-tv-finale/
+
+One of TV's best psychological horror shows ever created had a season finale that changed everything.
+---------
+
+# 10 Manga That Quietly Became Bestsellers Overnight
+
+Anime, Manga, Demon Slayer, Jujutsu Kaisen, The Apothecary Diaries
+
+Fri, 29 May 2026 01:45:14 GMT
+
+https://www.cbr.com/manga-overnight-bestsellers/
+
+The world of manga has changed significantly, due to the ready availability of anime adaptations driving series' popularity through the roof.
+---------
+
+# CBS Touts Major Profit Gains by Canceling Stephen Colbert's Late Show
+
+TV, The Late Show with Stephen Colbert
+
+Fri, 29 May 2026 01:25:41 GMT
+
+https://www.cbr.com/cbs-profits-byron-allen-stephen-colbert/
+
+CBS reveals how profitable it has been putting an end to Colbert's Late Show, though there's still some bad news for the network.
+---------
+
+# 10 Strongest Isekai Characters Ranked by Pure Chaos Potential
+
+Anime, Isekai
+
+Fri, 29 May 2026 01:25:14 GMT
+
+https://www.cbr.com/strongest-isekai-characters-ranked-by-chaos-potential/
+
+The kind of chaos that dismantles systems, breaks fundamental rules and forces societies to adapt or collapse is isekai is made of.
+---------
+
+# 25 Most Successful Gacha Games Of All Time
+
+Games, Mobile, Video Games, Genshin Impact
+
+Fri, 29 May 2026 01:20:13 GMT
+
+https://www.cbr.com/highest-grossing-gacha-games/
+
+Thanks to their exciting gameplay, prizes, and fanbases, gacha games like Genshi Impact and Dragon Ball Z: Dokkan Battle have made a huge profit.
+---------
+
+# It's Officially The End of an Era for Toy Story
+
+Movies, Toy Story 5
+
+Fri, 29 May 2026 01:00:14 GMT
+
+https://www.cbr.com/toy-story-5-end-of-era/
+
+Toy Story 5 marks the end of the road for the franchise for now and it appears to be tackling a major new theme.
+---------
+
+# 'Hacks' Was Always Going To End This Way for Ava and Deborah
+
+Exclusives, Hacks, HBO Max, Lucia Aniello, Jen Statsky
+
+Fri, 29 May 2026 02:18:14 GMT
+
+https://collider.com/hacks-series-finale-interview-jen-statsky-lucia-aniello/
+
+Hacks co-creators Jen Statsky and Lucia Aniello explain how Ava and Deborah end up exactly where they belong in the series finale of the HBO comedy.
+---------
+
+# 8 Near-Perfect Netflix Shows You've Never Heard Of
+
+TV, Netflix, Midnight Mass, Babylon Berlin, Godless
+
+Fri, 29 May 2026 01:49:14 GMT
+
+https://collider.com/near-perfect-netflix-shows-youve-never-heard-of/
+
+Shows like Giri/Haji and Delhi Crime prove Netflix still hides some of the smartest, strangest, and most unforgettable TV around.
+---------
+
+# Everything To Remember About Apple TV's ‘For All Mankind’ Before ‘Star City’ Premieres
+
+TV Features, For All Mankind, Star City, Apple TV, Sci-Fi
+
+Fri, 29 May 2026 01:36:15 GMT
+
+https://collider.com/for-all-mankind-recap-before-star-city-apple-tv-prequel-spinoff/
+
+Before Star City premieres, revisit the Soviet space achievements that shape the world of For All Mankind, from Moon landings to the space race.
+---------
+
+# ‘Marshals’ Season Finale Has Made a Colossal Mistake for Season 2
+
+TV Features, Marshals, Luke Grimes, Yellowstone, CBS
+
+Fri, 29 May 2026 00:13:14 GMT
+
+https://collider.com/marshals-season-finale-tom-weaver-villain/
+
+Marshals' season finale exposes the real "big bad" behind attacks on Broken Rock and East Camp, but the anticlimactic villain reveal is disappointing.
+---------
+
+# 6 Best Things To Do at Big Lick Comic Con NOVA 2026
+
+TV, Big Lick Comic Con, Supernatural, X-Men: The Animated Series, Disney
+
+Fri, 29 May 2026 00:11:14 GMT
+
+https://collider.com/big-lick-comic-con-nova-2026-best-things-to-do/
+
+From cast reunions of beloved shows like Supernatural to exciting cosplay contests, these are the best things to do at Big Lick Comic Con NOVA 2026.
+---------
+
+# 10 Worst Twists in '90s Thrillers, Ranked
+
+Movie, Color of Night, Sliver, I Still Know What You Did Last Summer, Body of Evidence
+
+Thu, 28 May 2026 23:48:14 GMT
+
+https://collider.com/worst-90s-thrillers-twists-ranked/
+
+Critically lambasted '90s thrillers like Color of Night, Body of Evidence, and Jade had head-scratching plot twists that are simply indefensible.
+---------
+
+# 8 TV Masterpieces From 2026 (So Far) That Are Perfect to Binge This Weekend
+
+TV Lists
+
+Fri, 29 May 2026 02:00:31 GMT
+
+https://movieweb.com/tv-masterpieces-2026-so-far/
+
+There's a lot of TV out there. We've narrowed down the options from 2026 to give you just the best of what's available.
+---------
+
+# 'Backrooms' and 'Obsession' Is the Best Horror Double Feature of 2026
+
+Features, Backrooms, Obsession, Horror
+
+Fri, 29 May 2026 01:00:20 GMT
+
+https://movieweb.com/horror-double-feature-obsession-backrooms-2026/
+
+A24's liminal horror movie 'Backrooms' can be paired with the box office-busting 'Obsession' this weekend for a truly memorable double feature.
+---------
+
+# Nicolas Cage Confirms Disappointing Status of Long-Awaited 'Face/Off' Sequel
+
+Movie News, Nicolas Cage, Face/Off 2, Face/Off
+
+Fri, 29 May 2026 00:34:36 GMT
+
+https://movieweb.com/face-off-sequel-nicolas-cage-update/
+
+The actor admitted he has "zero idea" if the movie will ever come together.
+---------
+
+# Brendan Fraser's Highly-Anticipated WWII Epic Is Much More Than a "Dad Movie"
+
+Features, Pressure, Brendan Fraser
+
+Fri, 29 May 2026 00:00:19 GMT
+
+https://movieweb.com/brendan-fraser-wwii-epic-pressure-2026-more-than-dad-movie/
+
+Brendan Fraser transforms himself once again, this time into General Dwight D. Eisenhower in Anthony Maras' gripping WWII drama 'Pressure'.
+---------
+
 # Star Wars' Rey Replacement Sets Up The New Jedi Order Coming In 2026
 
 Streaming TV, Masked Recs
