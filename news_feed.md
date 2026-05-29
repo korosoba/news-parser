@@ -1,3 +1,245 @@
+# Mina The Hollower: All Weapons And Upgrades
+
+Gaming
+
+Fri, 29 May 2026 04:00:32 GMT
+
+https://screenrant.com/mina-the-hollower-all-weapons-and-upgrades/
+
+There are five weapons to try out in Mina the Hollower, and each one has two upgrades to improve them further. Here's what you need to know.
+---------
+
+# Mina The Hollower: New Game Plus Guide
+
+Gaming
+
+Fri, 29 May 2026 04:00:32 GMT
+
+https://screenrant.com/mina-the-hollower-new-game-plus-guide/
+
+There are a lot of changes to contend with in each cycle of New Game Plus, so here's what you need to know before diving in.
+---------
+
+# Mina The Hollower: How To Use Modifiers To Adjust Difficulty
+
+Gaming
+
+Fri, 29 May 2026 04:00:32 GMT
+
+https://screenrant.com/mina-the-hollower-use-these-modifiers-to-adjust-the-difficulty/
+
+Mina the Hollower has a wide variety of modifiers that can be turned off and on at any time to adjust the game's overall difficulty.
+---------
+
+# Mina The Hollower: Best Starting Weapon
+
+Gaming
+
+Fri, 29 May 2026 04:00:32 GMT
+
+https://screenrant.com/mina-the-hollower-best-starting-weapon/
+
+You're given three weapon choices at the beginning of your playthrough of Mina the Hollower, so which one should you take into battle?
+---------
+
+# 10 Best Enemies-to-Lovers Arcs in All of Anime
+
+Anime
+
+Fri, 29 May 2026 03:30:25 GMT
+
+https://screenrant.com/best-enemy-lovers-anime-arcs/
+
+Explore the top 10 best enemies-to-lovers anime arcs, showcasing popular romances that start with rivalry and evolve into love.
+---------
+
+# 30 Years Later, X-Men ’97 Season 2 Can Finally Pay Off A Major OG Series Tease
+
+Superheroes, X-Men '97, Marvel Cinematic Universe
+
+Fri, 29 May 2026 03:15:22 GMT
+
+https://screenrant.com/xmen-97-season-2-original-series-tease-deadpool-debut/
+
+Nearly 30 years later, X-Men '97 season 2 is teasing that Marvel Studios will finally pay off a major tease from the original series.
+---------
+
+# Steam Drops 6 Free Games This Week, Yours Forever With No Strings Attached
+
+Gaming, Steam
+
+Fri, 29 May 2026 03:00:20 GMT
+
+https://screenrant.com/steam-6-free-games-download-keep-forever-may-2026/
+
+Steam gamers can download and keep eight new games, all completely free and with no strings attached. We love to see it.
+---------
+
+# Jason Statham Leads A Fight For Survival On A Cargo Ship In New Action Thriller
+
+Movies, Masked Recs
+
+Fri, 29 May 2026 02:27:38 GMT
+
+https://screenrant.com/jason-statham-mutiny-preview-image/
+
+In a new action thriller film, Jason Statham finds himself framed for murder and on a cargo ship as he tries to uncover an international conspiracy.
+---------
+
+# Jason Statham Action Thriller Unveils New Look Ahead of Summer Release
+
+Movies, Mutiny
+
+Fri, 29 May 2026 03:46:14 GMT
+
+https://www.cbr.com/jason-statham-mutiny-new-look/
+
+Jason Statham is back in action in the newest look at his next feature film, coming this summer.
+---------
+
+# 10 Smartest Anime Villains of All Time, Ranked
+
+Anime, Naruto, Fullmetal Alchemist: Brotherhood, Bleach, Monster
+
+Fri, 29 May 2026 03:45:15 GMT
+
+https://www.cbr.com/smartest-anime-villains-of-all-time-ranked/
+
+While some anime villains dominate with physical strength, these antagonists show their power through intelligence.
+---------
+
+# Prime Video's The Captive's War Aims to Overtake Dune: Prophecy
+
+TV, Sci-Fi, Prime Video
+
+Fri, 29 May 2026 03:30:13 GMT
+
+https://www.cbr.com/prime-video-captives-war-hbo-dune-prophecy-comparison/
+
+Prime Video's upcoming sci-fi series is set to cement the streamer as the king of space-opera TV, taking on competition from HBO.
+---------
+
+# Tom Holland Confirms Spider-Man Is Replacing Iron Man In The MCU
+
+Movies, Spider-Man, MCU, Iron Man
+
+Fri, 29 May 2026 03:15:14 GMT
+
+https://www.cbr.com/tom-holland-iron-man-mcu-replacement-spider-man/
+
+The Spider-Man star revealed the hero taking Iron Man's place in the future of the MCU.
+---------
+
+# CBS' Monk Replacement Show Officially Casts Tony Shalhoub
+
+TV, Monk, Einstein, CBS
+
+Fri, 29 May 2026 03:13:25 GMT
+
+https://www.cbr.com/cbs-tony-shalhoub-einstein/
+
+The upcoming Monk replacement series at CBS has fittingly cast Tony Shalhoub.
+---------
+
+# 10 Anime Rivals Who Became Stronger Than the Main Protagonist By The End
+
+Anime
+
+Fri, 29 May 2026 03:00:13 GMT
+
+https://www.cbr.com/anime-rivals-stronger-main-character-list/
+
+Many of the best anime heroes have rivals, but some rivals were so strong that they actually surpassed the series protagonist.
+---------
+
+# 5 Avatar: The Last Airbender Villains Who Were More Complex Than Expected
+
+Anime, Avatar: The Last Airbender
+
+Fri, 29 May 2026 02:45:14 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-most-complex-villains/
+
+While many action anime rely on evil villains with no redemption arcs, Avatar: The Last Airbender has complex antagonists with sad histories.
+---------
+
+# 5 Masterpiece Fantasy Movies Better Than The Lord of the Rings
+
+Movies, Fantasy, The Lord of the Rings
+
+Fri, 29 May 2026 02:45:14 GMT
+
+https://www.cbr.com/fantasy-movies-better-than-the-lord-of-the-rings-list/
+
+The Lord of the Rings is a modern fantasy classic, but many other movies in the genre could easily take its crown.
+---------
+
+# 7 Most Satisfying TV Show Rewatches of All Time
+
+TV, Schitt's Creek, Jury Duty, The Boys, Avatar: The Last Airbender
+
+Fri, 29 May 2026 04:52:14 GMT
+
+https://collider.com/most-satisfying-tv-show-rewatches/
+
+The Boys, Jury Duty, Schitt's Creek: Avatar: The Last Airbender, and more make up our list of the most satisfying TV rewatches of all time.
+---------
+
+# 7 Must-Watch Shows Coming to Netflix in June
+
+TV, Netflix, Avatar: The Last Airbender, Sweet Magnolias, I Will Find You
+
+Fri, 29 May 2026 04:07:13 GMT
+
+https://collider.com/tv-shows-netflix-june-2026/
+
+From the new Harlan Coben adaptation I Will Find You to Avatar: The Last Airbender Season 2, these are the best shows coming to Netflix this June.
+---------
+
+# 10 Fantasy Book Series That Are Better Than Harry Potter
+
+Movie, Books, Harry Potter, A Song of Ice and Fire, The Lord of the Rings
+
+Fri, 29 May 2026 04:06:13 GMT
+
+https://collider.com/fantasy-book-series-better-than-harry-potter/
+
+For all its strengths, the Harry Potter saga is far from perfect, and fantasy literary sagas like A Song of Ice and Fire and Mistborn far surpass it.
+---------
+
+# 11 Years Ago, This ‘Rookie’ Star Was a Total Badass in a Sci-Fi Hidden Gem
+
+TV Features, Melissa O'Neil, The Rookie, Dark Matter, Sci-Fi
+
+Fri, 29 May 2026 03:43:14 GMT
+
+https://collider.com/dark-matter-underrated-sci-fi-series-rookie-star-melissa-oneil/
+
+Melissa O’Neil led a crew of criminals across the galaxy in SyFy’s adaptation of the Dark Horse comic Dark Matter.
+---------
+
+# 'Tracker' Just Laid the Perfect Groundwork for a Jensen Ackles-Led Spin-Off
+
+TV Features, Tracker, Jensen Ackles, CBS, Justin Hartley
+
+Fri, 29 May 2026 03:05:14 GMT
+
+https://collider.com/tracker-season-3-finale-jensen-ackles-spin-off/
+
+Tracker's Season 3 finale sets up a potential spin-off starring Jensen Ackles, exploring new adventures and untapped storylines for Russell Shaw.
+---------
+
+# 1 Year Later, the Greatest Suspense Thriller of the Decade Is Officially on Prime Video
+
+Movie Features, One Battle After Another, Leonardo DiCaprio, Paul Thomas Anderson, Sean Penn
+
+Fri, 29 May 2026 03:03:14 GMT
+
+https://collider.com/one-battle-after-another-greatest-suspense-thriller-of-decade-prime-video/
+
+One Battle After Another already feels like a modern classic, as far as thrillers go, and it's recently become available to stream on Prime Video.
+---------
+
 # Jason Statham Leads A Fight For Survival On A Cargo Ship In New Action Thriller
 
 Movies, Masked Recs
