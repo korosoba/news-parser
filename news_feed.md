@@ -1,3 +1,366 @@
+# “Millennium Falcon Has Sailed”: Star Wars Alum Won’t Return To Disney Franchise After $392M Flop
+
+Movies, Solo: A Star Wars Story, Star Wars, Emilia Clarke
+
+Fri, 29 May 2026 21:43:23 GMT
+
+https://screenrant.com/star-wars-qira-return-not-happening-emilia-clarke-response/
+
+Disney has brought Star Wars back to the big screen this year, but a former cast member is opening up about whether they would ever return.
+---------
+
+# 3 Disney+ Shows To Watch This Weekend (#1 Just Dropped Its Thrilling Finale)
+
+Streaming TV, Disney+, What to Watch on Disney Plus
+
+Fri, 29 May 2026 21:35:21 GMT
+
+https://screenrant.com/disney-plus-shows-to-watch-weekend-may-29-31/
+
+These 3 Disney+ shows are absolutely worth watching this weekend, May 29–31, 2026, including a #1 hit that just dropped a thrilling season finale.
+---------
+
+# Prime Video's Returning Detective Show Brings Back One Of Amazon's Best Shared Universes
+
+Streaming TV, Masked Recs
+
+Fri, 29 May 2026 21:32:46 GMT
+
+https://screenrant.com/ballard-season-2-bosch-amazon-franchise-return/
+
+Interconnected crime procedurals are alive and well in the age of streaming, though none have grown as fiercely as Prime Video's hit franchise.
+---------
+
+# How Apple TV's New Sci-Fi Spinoff Series Tweaks The Canon Of 6-Part Hit Explained By Star City Cast & Creators
+
+TV, Star City, Star City - Season 1, For All Mankind
+
+Fri, 29 May 2026 21:31:21 GMT
+
+https://screenrant.com/star-city-apple-tv-for-all-mankind-canon-tweaks-explained-cast-creators/
+
+Star City creators Ben Nedivi & Matt Wolpert and their cast discuss the Apple TV sci-fi spinoff series and tweaking the canon from their original hit.
+---------
+
+# Next Month, Supergirl Will Finally Redeem DC’s Third Lowest-Grossing Box Office Ever
+
+Movies, Supergirl, DC Universe
+
+Fri, 29 May 2026 21:31:21 GMT
+
+https://screenrant.com/supergirl-movie-dc-lowest-box-office-ever-return/
+
+The new Supergirl movie will redeem the superhero, who's held the title of DC's third lowest-grossing box office character for many years.
+---------
+
+# Michael Fassbender's Hope Breaks Record Ahead Of Fall Release
+
+Movies, hope, Michael Fassbender
+
+Fri, 29 May 2026 21:20:28 GMT
+
+https://screenrant.com/hope-breaks-korea-sales-records-michael-fassbender/
+
+Michael Fassbender's upcoming science fiction thriller breaks a massive record before the movie's US theatrical release this fall.
+---------
+
+# Marvel Studios Officially Makes The X-Men Timeline Even More Confusing
+
+Streaming TV, Masked Recs
+
+Fri, 29 May 2026 21:20:21 GMT
+
+https://screenrant.com/x-men-97-season-2-timeline-first-class-confusing/
+
+Marvel Studios has made the one of its X-Men timelines more confusing as a result of a new look at an upcoming project featured the mutants.
+---------
+
+# All Seasons Of The Boys & Gen V, Ranked Worst To Best
+
+Classic TV, The Boys, Gen V
+
+Fri, 29 May 2026 21:16:23 GMT
+
+https://screenrant.com/boys-gen-v-seasons-ranked/
+
+The Boys universe has produced three seasons of the main series as well as a spinoff show, Gen V. Here is every season ranked from worst to best.
+---------
+
+# Spider-Noir Interviews with Creator & Cast
+
+TV, Spider-Noir, Spider-Noir - Season 1
+
+Fri, 29 May 2026 21:16:22 GMT
+
+https://screenrant.com/video/spider-noir-show-lamorne-morris-li-jun-li-cast-creator-interview/
+
+Spider-Noir creator Oren Uziel and his cast discuss Prime Video's R-rated Spider-Man series and how it mixed three different genres into one.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (May 30-31)
+
+Movies, Prime Video, Recommendation
+
+Fri, 29 May 2026 21:10:12 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-may-30/
+
+Prime Video's best movies to watch this weekend are a hilarious comedy, a Jason Momoa action adventure, and a Kevin Costner Western epic.
+---------
+
+# Avengers: Age of Ultron Secretly Set Up Tony Stark's Doctor Doom
+
+Movies, Avengers: Doomsday
+
+Fri, 29 May 2026 21:30:14 GMT
+
+https://www.cbr.com/mcu-age-of-ultron-quote-secretly-set-up-doctor-doom/
+
+MCU fans wondering how RDJ's Doctor Doom becomes the villain don't need to look any further than this chilling line from Avengers: Age of Ultron.
+---------
+
+# What's Coming to Pluto TV in June 2026? Everything Arriving for Free
+
+TV, Pluto
+
+Fri, 29 May 2026 21:20:24 GMT
+
+https://www.cbr.com/what-coming-pluto-tv-june-2026-full-list/
+
+Paramount's free streaming platform is filled with blockbusters and hit films that are worth a (re)watch.
+---------
+
+# One Piece Mysteries Oda Keeps Avoiding on Purpose
+
+Anime, One Piece, Shonen, shonen anime
+
+Fri, 29 May 2026 21:15:15 GMT
+
+https://www.cbr.com/one-piece-mysteries-oda-avoids/
+
+One Piece has many mysteries in its world that Eiichiro Oda keeps avoiding, likely to build up to a massive reveal further down the road.
+---------
+
+# Cyberpunk 2077 Officially Drops Controversial New Update
+
+Games, Cyberpunk 2077
+
+Fri, 29 May 2026 21:03:21 GMT
+
+https://www.cbr.com/cyberpunk-2077-update-windows-11/
+
+Cyberpunk 2077 fans get some bad news.
+---------
+
+# Marvel Officially Redesigns Spider-Man, Wolverine and More
+
+Comics, Spider-Man, Wolverine, Marvel
+
+Fri, 29 May 2026 21:00:14 GMT
+
+https://www.cbr.com/marvel-officially-redesigns-spider-man-wolverine-and-more/
+
+The next hit Marvel title is redesigning some of fans' favorite characters, and every single one of them looks absolutely incredible.
+---------
+
+# 10 Masterpiece Thriller Movies That Deserve a Sequel
+
+Movies, Thriller
+
+Fri, 29 May 2026 21:00:14 GMT
+
+https://www.cbr.com/perfect-thriller-movies-still-need-sequel-list/
+
+Some of the best thriller movies in recent memory haven't been given sequels, even though they might have perfect franchise potential.
+---------
+
+# GTA 6 Officially Forces Another Open-World Game Out of 2026
+
+Games, Fable
+
+Fri, 29 May 2026 20:48:14 GMT
+
+https://www.cbr.com/xbox-fable-reboot-release-delay-gta-vi/
+
+Fans of this upcoming RPG will have to wait just a bit longer thanks to the blockbuster return of Grand Theft Auto VI.
+---------
+
+# Netflix’s Collateral Perfected the One-Night Binge
+
+TV, Netflix, Collateral, Thriller
+
+Fri, 29 May 2026 20:30:14 GMT
+
+https://www.cbr.com/netflix-collateral-perfect-one-streaming-night-binge/
+
+With a less-than-four-hour runtime, Netflix's Collateral proves that short crime thrillers pack more punch than overdrawn limited series.
+---------
+
+# 5 Westerns That Tried to Be the Next Tombstone (But Failed)
+
+Movies, Western, Tombstone, kevin costner
+
+Fri, 29 May 2026 20:30:14 GMT
+
+https://www.cbr.com/failed-western-tombstone-replacements-list/
+
+In 1993, Tombstone became the new blueprint for telling a great Western story, inspiring countless filmmakers to attempt to do the same.
+---------
+
+# 'Cormac McCarthy Meets John Carpenter' Neo-Noir Western Series Heads to FX
+
+TV, That Texas Blood, FX
+
+Fri, 29 May 2026 20:18:32 GMT
+
+https://www.cbr.com/that-texas-blood-fx-western/
+
+An acclaimed comic book is getting a new TV series adaptation at FX.
+---------
+
+# 13 Forgotten Fantasy Movies That Have Aged Like Fine Wine
+
+Movie, Fantasy, Death Becomes Her, Dragonheart, Stardust
+
+Fri, 29 May 2026 21:35:14 GMT
+
+https://collider.com/forgotten-fantasy-movies-aged-like-fine-wine/
+
+Time has been kind to forgotten fantasy movies like Death Becomes Her, Stardust, and The Sword in the Stone, with their reputation improving with age.
+---------
+
+# 2018’s Cult Classic Video Game Movie Is a Shock Streaming Hit Ahead of Prime Video’s Reboot
+
+Movie News, Tomb Raider, HBO Max, Alicia Vikander, Streaming
+
+Fri, 29 May 2026 21:31:14 GMT
+
+https://collider.com/video-game-adaptation-reboot-tomb-raider-2018-hbo-max-streaming-success-may-2026/
+
+Ahead of Prime Video's reboot with Sophie Turner, HBO Max's Tomb Raider 2018 is surging on streaming. Read on for more.
+---------
+
+# This ‘Hacks’ Series Finale Easter Egg Will Make You Want to Start Your Rewatch Immediately [Exclusive]
+
+TV News, Hacks, HBO Max, Hannah Einbinder, Jean Smart
+
+Fri, 29 May 2026 21:15:13 GMT
+
+https://collider.com/hacks-series-finale-season-1-episode-1-opening-oner-callback-perfect-match-production-design/
+
+Hacks production designer Rob Tokarz reveals the series finale’s hidden Season 1 callback, giving Ava her own Deborah Vance moment.
+---------
+
+# ‘Deli Boys’ Season 3 Will Get “Dark” After That Twisted Finale Bombshell
+
+Interviews, Deli Boys, Poorna Jagannathan, Asif Ali, Saagar Shaikh, Hulu
+
+Fri, 29 May 2026 21:13:15 GMT
+
+https://collider.com/deli-boys-season-2-finale-eldest-dar-meaning-cast-showrunner-interview/
+
+Michelle Nader and the Deli Boys cast break down the Eldest Dar reveal, Max Sugar's downfall, and Season 3 possibilities.
+---------
+
+# Jim Carrey's $405 Million Sequel Is Officially Taking Over Netflix
+
+Movie News, Jim Carrey, Sonic the Hedgehog, Sonic the Hedgehog 2, Netflix
+
+Fri, 29 May 2026 21:08:28 GMT
+
+https://collider.com/jim-carrey-sci-fi-sequel-sonic-the-hedgehog-2-streaming-success-netflix-may-2026/
+
+Ahead of his return in the fourth chapter, Jim Carrey's Sonic the Hedgehog 2 is completely dominating Netflix.
+---------
+
+# 35 Must-Watch Summer 2026 Movies
+
+Movie, Collider Exclusive Preview, Backrooms, Supergirl, Leviticus
+
+Fri, 29 May 2026 21:05:14 GMT
+
+https://collider.com/movie-summer-preview-exclusive-images-sneak-peeks-backrooms-supergirl-disclosure-day/
+
+The summer of 2026 is sure to be a real party for movie fans, and Collider has exclusive previews for movies like Backrooms, Supergirl, and Leviticus.
+---------
+
+# Michael B. Jordan’s New Netflix Movie Is Becoming a Massive Streaming Hit
+
+Movie News, Michael B. Jordan, Swapped, Netflix, Juno Temple
+
+Fri, 29 May 2026 21:00:14 GMT
+
+https://collider.com/netflix-fantasy-movie-swapped-100-million-views-milestone-michael-b-jordan/
+
+Michael B. Jordan's new Netflix movie is officially becoming a massive streaming hit as it approaches a bonkers milestone. Read on for more details.
+---------
+
+# Mads Mikkelsen Shares What It’s Really Like To Work With His Hero Martin Scorsese on ‘What Happens at Night’
+
+Interviews, Mads Mikkelsen, The Last Viking, Hannibal
+
+Fri, 29 May 2026 21:00:14 GMT
+
+https://collider.com/the-last-viking-mads-mikkelsen-interview-martin-scorsese/
+
+Mads Mikkelsen discusses The Last Viking, collaborating with director Anders Thomas Jensen, and working with Martin Scorsese on What Happens at Night.
+---------
+
+# The Forgotten Beatles Song John and Paul Deeply Loved That Became Their Greatest Legacy
+
+Music Features, The Beatles, John Lennon, Paul McCartney, Rock, Music
+
+Fri, 29 May 2026 20:59:26 GMT
+
+https://collider.com/the-beatles-you-know-my-name-look-up-the-number-1970/
+
+The Beatles turned a joke idea into one of their strangest recordings, and John Lennon later called it one of the group’s favorite tracks.
+---------
+
+# This Absurd 133-Minute Thriller Marked the End of an Era for James Bond
+
+Movie Features, Die Another Day, James Bond, Thriller, Pierce Brosnan
+
+Fri, 29 May 2026 20:50:14 GMT
+
+https://collider.com/die-another-day-james-bond-last-pierce-brosnan-movie/
+
+Pierce Brosnan and Halle Berry's goofy James Bond film Die Another Day paved the way for Daniel Craig's epic franchise.
+---------
+
+# 12 Classic Kung Fu Movies With Great Action That No One Talks About
+
+Movie Lists, Martial Arts, Action, Jackie Chan
+
+Fri, 29 May 2026 21:00:19 GMT
+
+https://movieweb.com/classic-kung-fu-movies-great-action-no-one-talks-about/
+
+Martial arts movie fans need to check out these underrated kung fu classics that deliver on impeccable action thrills.
+---------
+
+# Apple TV's New Sci-Fi Thriller Spin-Off Debuts Interstellar Rotten Tomatoes Score
+
+TV News, Star City, For All Mankind, Apple TV
+
+Fri, 29 May 2026 20:08:17 GMT
+
+https://movieweb.com/star-city-rotten-tomatoes-score/
+
+The 'For All Mankind' spin-off 'Star City' is earning the same kind of praise as the proper series.
+---------
+
+# Zendaya's Steamy R-Rated Smash Leaving Hulu Soon — Stream It While You Can
+
+Movie News, Zendaya Coleman, Challengers, Hulu, Coming/Leaving Streaming
+
+Fri, 29 May 2026 20:00:18 GMT
+
+https://movieweb.com/zendaya-challengers-stream-may-2026/
+
+Before it leaves Hulu in June, Zendaya fans need to stream the hit erotic sports drama 'Challengers.'
+---------
+
 # Timothy Olyphant's New 10-Part Netflix Series Debuts With Solid Rotten Tomatoes Audience Score
 
 TV, Masked Recs
