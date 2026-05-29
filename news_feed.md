@@ -1,3 +1,443 @@
+# Ilya Naishuller Breaks Down His "Fast & Furious On Steroids" Approach To World Of Tanks: HEAT
+
+Gaming, World of Tanks: HEAT, Nobody, Road House 2, Heads of State
+
+Fri, 29 May 2026 17:25:41 GMT
+
+https://screenrant.com/world-of-tanks-heat-ilya-naishuller-interview/
+
+ScreenRant interviews Ilya Naishuller about his excitement at playing in the action sandbox of World of Tanks and its cinematic chances.
+---------
+
+# 10 Greatest 90s Kids Movies Guaranteed To Make You Cry
+
+Movies, Pokémon the Movie: Mewtwo Strikes Back - Evolution, Homeward Bound: The Incredible Journey, Fly Away Home, Balto, Free Willy, The Iron Giant, Shiloh, My Girl, Babe: Pig in the City, The Lion King
+
+Fri, 29 May 2026 17:20:20 GMT
+
+https://screenrant.com/best-90s-kids-movies-make-you-cry/
+
+The 90s were responsible for some of the most beloved and influential kids' movies, and some were so impactful that they reduced audiences to tears.
+---------
+
+# For All Mankind S5's Ending Feels Like The Perfect Series Finale (But There's Still One Season Left)
+
+Streaming TV, For All Mankind
+
+Fri, 29 May 2026 17:16:20 GMT
+
+https://screenrant.com/for-all-mankind-season-5-ending-explained/
+
+For All Mankind season 5 has come to an end, and despite the finality of it all, the show will continue for one more season regardless.
+---------
+
+# Jenna Ortega's Jurassic World Show That's Made To Be Binged Is One Of Netflix's Best Sci-Fi Series
+
+TV, Masked Recs
+
+Fri, 29 May 2026 17:03:21 GMT
+
+https://screenrant.com/jurassic-world-camp-cretaceous-jenna-ortega-netflix-sci-fi-show/
+
+Jenna Ortega's early role in the Jurassic Park spinoff series is a must-watch for fans of the franchise, offering a darker, more unpredictable take.
+---------
+
+# Fan Wish Fulfillment Takes a Dark Turn in Image's DREAD THE HALL H
+
+Comics, image comics
+
+Fri, 29 May 2026 17:00:20 GMT
+
+https://screenrant.com/dread-the-hall-h-image-comics/
+
+A dark twist.
+---------
+
+# The 15 Summer Movies People Literally Can't Wait To Talk About
+
+New Movies
+
+Fri, 29 May 2026 17:00:20 GMT
+
+https://screenrant.com/most-anticipated-movies-june-july-august-summer-2026/
+
+Here are the movies releasing in June, July, and August that have generated the most anticipatory engagement online, according to real data.
+---------
+
+# 28 Years Later Trilogy Finale Gets Filming Start Window From Danny Boyle
+
+Movies, 28 Years Later, 28 Years Later: The Bone Temple, Danny Boyle
+
+Fri, 29 May 2026 16:59:16 GMT
+
+https://screenrant.com/28-years-later-trilogy-finale-filming-update-danny-boyle/
+
+Danny Boyle is directing another movie in the 28 Years Later franchise after The Bone Temple, and he’s now revealing when filming will get underway.
+---------
+
+# Red Dead Redemption 3 Release Date May Be Closer Than Expected Following Official Update
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2, PC
+
+Fri, 29 May 2026 16:56:12 GMT
+
+https://screenrant.com/red-dead-redemption-3-release-date-hopes-take-two/
+
+After an official new update from Take-Two's Strauss Zelnick, Red Dead Redemption 3 might be releasing way sooner than we thought.
+---------
+
+# 20 Years Later, X-Men: The Last Stand's Mistakes Are Avengers: Doomsday's Roadmap
+
+Movies, Avengers: Doomsday, Explainer
+
+Fri, 29 May 2026 16:55:21 GMT
+
+https://screenrant.com/xmen-last-stand-20-anniversary-avengers-doomsday/
+
+X-Men: The Last Stand destroyed the original trilogy thanks to terrible reviews, but the MCU can use that as a template for what not to do.
+---------
+
+# One Piece Officially Unveils Its New God-Tier Villains, And The Straw Hats Don't Stand A Chance
+
+Anime, One Piece
+
+Fri, 29 May 2026 16:42:40 GMT
+
+https://screenrant.com/one-piece-god-knights-villains-trailer/
+
+The Holy Knights of God are finally here.
+---------
+
+# Final Fantasy 7's Biggest Mystery Could Officially Be Answered
+
+Games, Final Fantasy
+
+Fri, 29 May 2026 17:15:15 GMT
+
+https://www.cbr.com/final-fantasy-7-biggest-mystery-officially-getting-answered/
+
+A new update for an existing Final Fantasy 7 game could answer one of the franchise's longest-running mysteries.
+---------
+
+# My Hero Academia’s Anime of the Year Win Heralds a New Era for Superheroes
+
+Anime, Avengers: Endgame, Crunchyroll, Invincible, My Hero Academia
+
+Fri, 29 May 2026 17:07:45 GMT
+
+https://www.cbr.com/crunchyroll-awards-mha-best-superhero-anime-new-era/
+
+Marvel's Avengers: Endgame ended an era for live-action superhero productions, and it's finally time for the next era of stories starring superheroes.
+---------
+
+# 10 Highest-Grossing Anime Franchises Of All Time, Ranked
+
+Anime
+
+Fri, 29 May 2026 16:50:15 GMT
+
+https://www.cbr.com/highest-grossing-anime-franchises/
+
+Anime has become a massive industry not only in Japan but worldwide. Some of the most popular anime franchises have brought in a ton of cash.
+---------
+
+# It's Official, We're Finally Getting the Sherlock Holmes TV Event of the Decade
+
+TV, Sherlock Holmes, Mystery
+
+Fri, 29 May 2026 16:19:44 GMT
+
+https://www.cbr.com/moriarty-series-sherlock-holmes-tv-event/
+
+A new television series focused on James Moriarty could be the Sherlock Holmes TV event of the decade because the famous villain can finally shine.
+---------
+
+# 2 Days After Confirmation, Amazon-Backed AI Project Is Officially Scrapped After Criticism
+
+TV, Artificial Intelligence, Prime Video
+
+Fri, 29 May 2026 16:19:11 GMT
+
+https://www.cbr.com/amazon-backed-ai-project-punky-duck-scrapped-criticism/
+
+More and more studios are pushing for AI for films and shows but, luckily, fans won't have it.
+---------
+
+# Netflix's New 8-Part Harlan Coben Mystery Series Officially Releases Next Month
+
+TV, I Will Find You
+
+Fri, 29 May 2026 16:08:25 GMT
+
+https://www.cbr.com/netflix-harlan-coben-i-will-find-you-june-2026-release/
+
+More Harlan Coben adaptations are on the way, with one arriving as soon as next month.
+---------
+
+# Official Tomb Raider Deep Dive Exploration Set for Fall 2026
+
+Comics, Tomb Raider
+
+Fri, 29 May 2026 16:02:51 GMT
+
+https://www.cbr.com/chronicles-of-tomb-raider-release-date-confirmed/
+
+Tomb Raider fans are about to get a whole new way to revisit their favorite video game franchise ahead of the next hotly-anticipated title.
+---------
+
+# Pokémon Unleashes the Ultimate Pokémon Trainer Experience for 30th Anniversary
+
+Anime, Pokemon, Nintendo
+
+Fri, 29 May 2026 16:00:13 GMT
+
+https://www.cbr.com/pokemon-trainer-experience-30th-anniversary/
+
+Next year, Pokémon fans all around the world will toss away their consoles and cards and experience the thrill of being trainers in real life.
+---------
+
+# Star Trek's Wrath of Khan Proves Fans' Were Wrong the Whole Time
+
+Movies, Star Trek, Star Trek II: The Wrath of Khan
+
+Fri, 29 May 2026 16:00:13 GMT
+
+https://www.cbr.com/star-trek-wrath-of-khan-best-directors-not-franchise-fans/
+
+The fans most disappointed with Star Trek's current direction feel like a "fan" in charge would solve everything, but that's not the answer.
+---------
+
+# As X-Men ’97 Season 2 Approaches, One Character Was Done Dirty In The Comics
+
+Comics, X-Men, Marvel Comics, Animation
+
+Fri, 29 May 2026 16:00:13 GMT
+
+https://www.cbr.com/x-men-97-season-2-moprh-was-done-dirty/
+
+This X-Men character hasn't had the most uncanny run in the comics pages of the mutant team.
+---------
+
+# Netflix's 10-Part Crime Thriller Is the Perfect Weekend Binge for Detective Fans
+
+TV Features, Bloodlands, Netflix, Crime, Series
+
+Fri, 29 May 2026 17:28:20 GMT
+
+https://collider.com/netflix-bloodlands-perfect-weekend-crime-thriller-binge/
+
+Bloodlands mixes noir atmosphere, buried secrets, and sharp detective drama into one seriously bingeable thriller.
+---------
+
+# 10 Most Entertaining Action Thrillers of All Time, Ranked
+
+Movie, Speed, Action, Thriller, Hard Boiled
+
+Fri, 29 May 2026 17:04:13 GMT
+
+https://collider.com/most-entertaining-action-thrillers-of-all-time-ranked/
+
+Exciting classics like Speed, Die Hard, and Hard Boiled are all among the best and most purely entertaining action thriller movies of all time.
+---------
+
+# A Punk Band Chases Green Day Dreams in First Look at Mckenna Grace’s New Coming-of-Age Movie
+
+Exclusives, Collider Exclusive Preview, Mckenna Grace, Mason Thames, Green Day
+
+Fri, 29 May 2026 17:00:14 GMT
+
+https://collider.com/green-day-movie-nimrods-mason-thames-mckenna-grace-first-look-image/
+
+Get an exclusive look at Nimrods, the Green Day-inspired coming-of-age movie starring Mason Thames and Mckenna Grace.
+---------
+
+# 'Victorian Psycho' Director Is Officially Doubling Down After His Horror Thriller's Cannes Success [Exclusive]
+
+Movie News, Victorian Psycho, Anonymous Content, Cannes Film Festival, Maika Monroe
+
+Fri, 29 May 2026 16:31:13 GMT
+
+https://collider.com/victorian-psycho-director-zachary-wigon-signs-anonymous-content-cannes/
+
+Hot off the debut of his horror thriller Victorian Psycho at Cannes, Zachary Wigon has inked a new deal with Anonymous Content. Here's what we know.
+---------
+
+# Andrew Scott Details the "Huge Amount of Pressure" of Taking on a Legend in His Upcoming Biopic
+
+Exclusives, Pressure, Andrew Scott, Saving Private Ryan, Brendan Fraser
+
+Fri, 29 May 2026 16:25:40 GMT
+
+https://collider.com/andrew-scott-saving-private-ryan-elsinore-movie-hamlet-pressure-interview/
+
+Andrew Scott also shares details about his upcoming biopic, 'Elsinore,' about Ian Charleson, and more.
+---------
+
+# 10 Thriller Movies So Good You Could Argue Any One Is the Best Ever Made
+
+Movie, Thriller, Vertigo, Jaws, Psycho
+
+Fri, 29 May 2026 16:07:14 GMT
+
+https://collider.com/best-thrillers-of-all-time/
+
+From Zodiac to Oldboy, these thrillers prove the greatest suspense movies are the ones that permanently haunt you.
+---------
+
+# 'Dutton Ranch's 5-Minute Cattle Shocker Just Put Beth and Rip at an All-Time Low
+
+Exclusives, Dutton Ranch, Cole Hauser, Paramount Plus, Yellowstone
+
+Fri, 29 May 2026 16:00:13 GMT
+
+https://collider.com/dutton-ranch-episode-4-cole-hauser-interview/
+
+Dutton Ranch's Cole Hauser discusses Episode 4's most shocking turn of events for Beth and Rip and reveals which moment he improvised during filming.
+---------
+
+# Tom Holland Teases Spider-Man and Punisher’s “Special” Dynamic in ‘Brand New Day’
+
+Movie News, Spider-Man: Brand New Day, Tom Holland, Collider Exclusive Preview, Jon Bernthal
+
+Fri, 29 May 2026 16:00:13 GMT
+
+https://collider.com/spider-man-brand-new-day-tom-holland-preview-punisher-relationship-mcu-movie/
+
+Tom Holland opened up about Peter Parker's darker, more mature journey in Spider-Man: Brand New Day, defined by his relationships.
+---------
+
+# Sleeper Hit Survival Thriller Officially Returns With an Even More Terrifying Sequel This Summer
+
+Exclusives, Fall, Fall 2, Thriller, Collider Exclusive Preview
+
+Fri, 29 May 2026 15:00:13 GMT
+
+https://collider.com/new-survival-thriller-sequel-fall-2-first-look-image/
+
+Get an exclusive look at Fall 2, the survival thriller sequel that traps its heroes 3,000 feet up on a dangerous plank walk in Thailand.
+---------
+
+# 'Star City's Opening Credits Are Boldly Different From 'For All Mankind' for a Reason
+
+Exclusives, Star City, Apple TV, Rhys Ifans, For All Mankind
+
+Fri, 29 May 2026 14:45:14 GMT
+
+https://collider.com/star-city-apple-tv-opening-credits-meaning-for-all-mankind-creators-rhys-ifans-interview/
+
+Star City co-creators Matt Wolpert and Ben Nedivi reveal why the spin-off's opening credits are so different from For All Mankind.
+---------
+
+# Ryan Reynolds & Hugh Jackman's Sailing Team Set for Disney+ Streaming Series
+
+TV News, Ryan Reynolds, Hugh Jackman, Disney+, Hulu
+
+Fri, 29 May 2026 17:08:41 GMT
+
+https://movieweb.com/ryan-reynolds-hugh-jackman-sailgp-disney-plus/
+
+Ryan Reynolds and Hugh Jackman, the stars of Marvel's 'Deadpool and Wolverine,' have a new reality streaming show set for release on Disney+.
+---------
+
+# 8 Alan Ritchson Movies & Shows to Watch Instead of 'Reacher'
+
+Movie Lists, Reacher
+
+Fri, 29 May 2026 17:00:18 GMT
+
+https://movieweb.com/alan-ritchson-reacher-alternatives/
+
+Alan Ritchson is mainly known for 'Reacher,' but several of his other movies and shows are equally good.
+---------
+
+# Netflix Lands New Sci-Fi Thriller Series 'The Long Now' From 'Mad Men' Creative
+
+TV News, Netflix
+
+Fri, 29 May 2026 16:59:49 GMT
+
+https://movieweb.com/netflix-sci-fi-thriller-the-long-now/
+
+Netflix is developing a new sci-fi thriller series 'Mad Men' and 'The Audacity' writer and producer Semi Chellas.
+---------
+
+# New WWII Thriller 'Pressure' Reveals Hidden D-Day Story Nobody Knew About [Exclusive]
+
+Movie News, Pressure, Andrew Scott, Anthony Maras
+
+Fri, 29 May 2026 16:16:28 GMT
+
+https://movieweb.com/pressure-reveals-hidden-d-day-story-wwii/
+
+Key details often overlooked about the historic D-Day landing are central to 'Pressure.'
+---------
+
+# I Watched Every 'Backrooms' YouTube Video - Everyone Should Remember One Thing
+
+Features, Backrooms, Horror, Kane Parsons
+
+Fri, 29 May 2026 16:00:18 GMT
+
+https://movieweb.com/backrooms-expert-one-thing-to-know/
+
+I've watched all of Kane Parsons' 'The Backrooms' web series, supplemental Backrooms lore, and now the movie, and there's one key thing to remember.
+---------
+
+# 'Obsession' Director Confirms Follow-Up Film 'Anything but Ghosts'
+
+Movie News, Obsession, Curry Barker, Horror
+
+Fri, 29 May 2026 15:35:11 GMT
+
+https://movieweb.com/obsession-follow-up-curry-barker-anything-but-ghosts/
+
+Director Curry Barker has confirmed that his next horror film, 'Anything but Ghosts,' takes place in the same cinematic universe as 'Obsession.'
+---------
+
+# Henry Cavill Is John Wick With a Sword in New Look at 80s Action Reboot
+
+Movie News, Henry Cavill, Highlander, Action, Fantasy
+
+Fri, 29 May 2026 15:17:49 GMT
+
+https://movieweb.com/henry-cavill-john-wick-swords-highlander-clip/
+
+The former Witcher wields a blade once again as he does battle in new footage from 'Highlander.'
+---------
+
+# 'The Far Side': Cow Tools, Explained
+
+Features, gary larson, comics
+
+Fri, 29 May 2026 15:00:18 GMT
+
+https://movieweb.com/far-side-cow-tools-explained/
+
+The 1982 comic strip "Cow Tools" by Gary Larson caused confusion and outrage; decades later, people still discuss it.
+---------
+
+# Before 'Supergirl,' HBO Max's Superman Series Returns to Streaming
+
+Movie News, My Adventures With Superman, HBO Max, Coming/Leaving Streaming, DCU
+
+Fri, 29 May 2026 14:31:18 GMT
+
+https://movieweb.com/new-season-my-adventures-with-superman-streaming-hbo-june/
+
+In June 2026, the new season of HBO Max's DC series 'My Adventures with Superman' returns for Season 3 on streaming.
+---------
+
+# 'House of the Dragon' Season 3 Final Trailer Reveals the Epic Battle Season 2 Cut
+
+TV News, House of the Dragon
+
+Fri, 29 May 2026 14:27:30 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-final-trailer/
+
+The biggest battle in 'Game of Thrones' history has offically been unveiled in the latest trailer for 'House of the Dragon.'
+---------
+
 # Netflix's Long Story Short Could Rival Creator's Award-Winning 6-Part Masterpiece
 
 Interviews, Long Story Short, Long Story Short - Season 1, Lisa Edelstein, Raphael Bob-Waksberg
