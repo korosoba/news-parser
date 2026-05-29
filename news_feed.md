@@ -1,3 +1,399 @@
+# 10 Years Later, Naruto Is Officially Returning In 2027
+
+Anime, Naruto
+
+Fri, 29 May 2026 23:02:00 GMT
+
+https://screenrant.com/naruto-return-2027-25th-anniversary/
+
+A full decade after Naruto: Shippuden concluded in 2017, the mega-franchise is poised for a massive comeback with a new anime.
+---------
+
+# Cyberpunk 2077 Officially Confirms The End Of An Era
+
+Gaming, Cyberpunk 2077, Triple-A Games
+
+Fri, 29 May 2026 23:01:20 GMT
+
+https://screenrant.com/cyberpunk-2077-windows-10-support-ending-opinion/
+
+Cyberpunk 2077 is nearly six years old at this point, but its legacy has lived on, including the end of multiple eras, one of which just hit.
+---------
+
+# Don Winslow's "Cartel Trilogy" Of Novels Is Sicario Meets The Godfather Meets Heat
+
+Books, Sicario, The Godfather, Heat
+
+Fri, 29 May 2026 23:01:20 GMT
+
+https://screenrant.com/this-2005-masterpiece-is-sicario-meets-the-godfather-meets-heat/
+
+This trilogy of crime novels covers the same territory as "Sicario," but mixes in genre tropes perfected by "The Godfather" and "Heat."
+---------
+
+# Dragon Ball's Little-Known Prequel Is One Of Akira Toriyama's Best
+
+Classic TV, Masked Recs
+
+Fri, 29 May 2026 23:01:20 GMT
+
+https://screenrant.com/dragon-ball-prequel-jaco-akira-toriyama-best/
+
+Dragon Ball creator Akira Toriyama wrote a manga prequel called Jaco the Galactic Patrolman that fans of the franchise should check out.
+---------
+
+# Why SWAT Was Cancelled By CBS (3 Different Times)
+
+Network TV, S.W.A.T.
+
+Fri, 29 May 2026 22:45:22 GMT
+
+https://screenrant.com/swat-show-cancellation-cbs-multiple-times-explained/
+
+The reasons behind CBS' decision to cancel SWAT three times, despite strong fan engagement and a popular cast led by Shemar Moore.
+---------
+
+# HBO's 4-Part Sci-Fi Western Has One Of The Century's Best Casts
+
+Classic TV, Masked Recs
+
+Fri, 29 May 2026 22:44:46 GMT
+
+https://screenrant.com/westworld-hbo-century-best-cast/
+
+HBO's Westworld show had one of the most famous casts of celebrities in television history, but that may have contributed to its cancellation.
+---------
+
+# Emilia Clarke Reacts To Marvel And Star Wars Backlash
+
+Movies, Emilia Clarke, Solo: A Star Wars Story, Secret Invasion, Terminator Genisys
+
+Fri, 29 May 2026 22:37:26 GMT
+
+https://screenrant.com/emilia-clarke-marvel-star-wars-roles-reaction/
+
+Game of Thrones actor shared her perspective on her Marvel and Star Wars projects, including the negative reactions of the franchises' fans.
+---------
+
+# How Allison Janney's New HBO Movie Pulled Off Its 20-Minute Single Take Explained By Director & Cast
+
+Movies, Miss You, Love You, Allison Janney, Andrew Rannells, Jim Rash, HBO
+
+Fri, 29 May 2026 22:32:39 GMT
+
+https://screenrant.com/allison-janney-miss-you-love-you-hbo-single-take-explained-rash-rannells/
+
+Allison Janney, Andrew Rannells and Jim Rash talk their new HBO movie Miss You, Love You and how they pulled off its 20-minute single take.
+---------
+
+# 30 Best Online Games To Play With Friends Right Now
+
+Gaming, Baldur's Gate 3, Counter-Strike: Global Offensive, PC
+
+Fri, 29 May 2026 22:31:22 GMT
+
+https://screenrant.com/best-online-games-play-friends-coop-multiplayer/
+
+If you’ve been seeking that perfect title to play with your friends, you’ll need to investigate these solid multiplayer titles.
+---------
+
+# The Testaments Finale's Big Reveal Promises More June In Season 2
+
+Streaming TV, The Testaments
+
+Fri, 29 May 2026 22:31:20 GMT
+
+https://screenrant.com/the-testaments-more-june-season-2-finale-reveal/
+
+Daisy's bold decisions in The Testaments' season 1 finale just made June that much more invested in the success of their Mayday mission.
+---------
+
+# After Flopping in Theaters, the DCEU's Final Film Finds Redemption as a Streaming Hit on Prime Video
+
+Movies, Aquaman and the Lost Kingdom
+
+Fri, 29 May 2026 23:00:14 GMT
+
+https://www.cbr.com/aquaman-and-the-lost-kingdom-superhero-prime-video-success-may-2026/
+
+The DCU is now thriving, but fans are now catching up on the final film.
+---------
+
+# 5 Darkest Sci-Fi Movies of the Last 25 Years, Ranked
+
+Movies, Sci-Fi
+
+Fri, 29 May 2026 23:00:14 GMT
+
+https://www.cbr.com/darkest-sci-fi-movies-of-the-last-25-years-list/
+
+The past 25 years have delivered some incredibly grim sci-fi movies, but in that time, the best of them have made a huge impact.
+---------
+
+# Brandon Sanderson's Skyward: A Top Gun & The Expanse Mashup
+
+TV, Skyward, Sci-Fi
+
+Fri, 29 May 2026 23:00:14 GMT
+
+https://www.cbr.com/brandon-sanderson-skyward-top-gun-the-expanse-mashup/
+
+Brandon Sanderson's upcoming sci-fi series may just be the next big thing, but fans will find that some familiar comparisons can be made.
+---------
+
+# Iconic Alfred Hitchcock Horror Gets Rebooted 63 Years Later
+
+TV, The Birds, alfred hitchcock
+
+Fri, 29 May 2026 22:44:30 GMT
+
+https://www.cbr.com/alfred-hitchcock-the-birds-tv-remake-sarah-snook/
+
+One of Alfred Hitchcock's most iconic horror movies is getting a modern reimagining.
+---------
+
+# Euphoria Star Talks Jacob Elordi’s Fate, Snakes, & the ‘Bigger Wolf’ Waiting Around the Corner
+
+TV, Euphoria
+
+Fri, 29 May 2026 22:25:00 GMT
+
+https://www.cbr.com/euphoria-season-3-nate-jacobs-death-jack-topalian-naz-interview/
+
+Jack Topalian breaks down Naz’s role in Euphoria Season 3, Nate Jacobs’ shocking death, and the rattlesnake twist.
+---------
+
+# 7 PS3 Games That Are That Are 10/10, No Notes
+
+Games, The Last of Us, Red Dead Redemption, Grand Theft Auto 5
+
+Fri, 29 May 2026 22:15:13 GMT
+
+https://www.cbr.com/greatest-ps3-games-flawless-start-to-finish/
+
+The PS3 era gave players many outstanding titles over the years, but these seven games are absolutely flawless.
+---------
+
+# Colin Farrell's Neo-Noir Mystery Drama Returns to Apple TV Ahead of Season 2
+
+TV, Sugar
+
+Fri, 29 May 2026 22:00:14 GMT
+
+https://www.cbr.com/sugar-apple-tv-streaming-may-2026/
+
+Colin Farrell's detective series makes a comeback just ahead of Season 2.
+---------
+
+# Anya Taylor-Joy's The Gorge Is Still the Best Sci-Fi Thriller of the 2020s
+
+Movies, The Gorge, Sci-Fi, Apple TV
+
+Fri, 29 May 2026 22:00:14 GMT
+
+https://www.cbr.com/anya-taylor-joy-the-gorge-apple-tv-best-sci-fi-thriller-2020s/
+
+Anya Taylor-Joy's underrated sci-fi thriller, The Gorge, has turned into one of the best movies of the 2020s and a modern cult classic.
+---------
+
+# Bleach: Thousand-Year Blood War Is Officially Over With Final Anime Release
+
+Anime, Bleach, Bleach: Thousand Year Blood War, Shonen Jump
+
+Fri, 29 May 2026 22:00:14 GMT
+
+https://www.cbr.com/bleach-final-anime-season-june-2026/
+
+After 22 years, Bleach is officially saying goodbye with its final anime release premiering exclusively in U.S. theaters this June.
+---------
+
+# Matt Damon & Jude Law's Thriller Contagion Heading to HBO Max June 1
+
+Movies, Contagion, Thriller, HBO Max
+
+Fri, 29 May 2026 21:50:20 GMT
+
+https://www.cbr.com/matt-damon-jude-law-contagion-medical-thriller-streaming-hbo-max-june/
+
+The 2011 medical thriller that went viral in 2020, Contagion, is heading to HBO Max in June.
+---------
+
+# All 12 Stephen King Story Collections, Ranked
+
+Movie, Stephen King, Nightmares & Dreamscapes: From the Stories of Stephen King, hearts in atlantis, The Shawshank Redemption
+
+Fri, 29 May 2026 23:05:15 GMT
+
+https://collider.com/stephen-king-story-collections-ranked/
+
+There are a dozen official collections of short fiction written by Stephen King, including Different Seasons and Skeleton Crew, but which is the best?
+---------
+
+# Star Wars Officially Sets Major Event This Weekend
+
+Gaming News, Fortnite, Star Wars, The Mandalorian and Grogu, Gaming
+
+Fri, 29 May 2026 23:00:14 GMT
+
+https://collider.com/fortnite-star-wars-droid-tycoon-beskar-event-weekend/
+
+Fortnite’s Star Wars event continues with a Droid Tycoon Mandalorian event centered on building droids with stolen Beskar.
+---------
+
+# As a Non-Bond Fan, Here's How I'd Rank the Daniel Craig 007 Movies
+
+Movie, No Time to Die, Casino Royale, Daniel Craig, James Bond
+
+Fri, 29 May 2026 22:48:15 GMT
+
+https://collider.com/daniel-craig-james-bond-movies-ranked-by-a-non-fan/
+
+I don't really consider myself a Bond fan, but I have enough appreciation of the Daniel Craig movies to rank them all, from Casino Royale to Skyfall.
+---------
+
+# Alfred Hitchcock's Most Terrifying Movie Is Getting a New Horror Miniseries
+
+TV News, The Birds, Sarah Snook, Alfred Hitchcock, Horror
+
+Fri, 29 May 2026 22:45:47 GMT
+
+https://collider.com/alfred-hitchcock-the-birds-remake-miniseries-sarah-snook-cast-universal/
+
+Alfred Hitchcock's scariest movie is being remade as a miniseries, with Succession's Sarah Snook set to star.
+---------
+
+# Win Tickets to Our 'Widow's Bay' Screening and Q&A With Apple TV
+
+Exclusives, Screening, Widow's Bay, Matthew Rhys, Apple TV
+
+Fri, 29 May 2026 22:44:18 GMT
+
+https://collider.com/widows-bay-screening-matthew-rhys-katie-dippold-hiro-murai-q-and-a/
+
+Details on how to enter for your chance to win free tickets to our screening of Apple TV's Widow's Bay, Episode 3, and Q&amp;A with Matthew Rhys and more!
+---------
+
+# 10 Great Sci-Fi Shows You'll Wish You Watched Sooner
+
+TV, Sci-Fi, The X-Files, The Twilight Zone, Star Trek: The Next Generation
+
+Fri, 29 May 2026 22:44:14 GMT
+
+https://collider.com/best-sci-fi-shows-wish-you-watched-sooner/
+
+Discover the sci-fi shows that every fan of the genre should watch, including The Twilight Zone, The X-Files, and Star Trek: The Next Generation.
+---------
+
+# 8 Netflix Thrillers That Get More Intense With Every Episode
+
+TV, Netflix, Thriller, Money Heist, Dept. Q
+
+Fri, 29 May 2026 22:37:14 GMT
+
+https://collider.com/netflix-thriller-shows-more-intense-with-every-episode/
+
+From Dark to Money Heist, these Netflix thrillers keep escalating until every episode feels like controlled chaos.
+---------
+
+# Prime Video's Long-Awaited Stephen King Epic Could Replace 'The Rings of Power'
+
+TV Features, The Dark Tower, Stephen King, The Lord of the Rings: The Rings of Power, Prime Video
+
+Fri, 29 May 2026 22:34:14 GMT
+
+https://collider.com/prime-video-the-dark-tower-stephen-king-replace-rings-of-power/
+
+Amazon Studios has invested a lot in The Rings of Power, but The Dark Tower could rival it in both scale and popularity with a faithful adaptation.
+---------
+
+# Johnny Depp's Sherlock Holmes Movie Officially Sets New Streaming Release Date
+
+Movie News, Johnny Depp, Sherlock Holmes, Sherlock Gnomes, MGM
+
+Fri, 29 May 2026 22:30:14 GMT
+
+https://collider.com/sherlock-holmes-movie-johnny-depp-sherlock-gnomes-mgm-plus-streaming-june-2026/
+
+Johnny Depp’s animated Sherlock Holmes movie, Sherlock Gnomes, has landed a new streaming home. Here's where you can watch it in June.
+---------
+
+# James Cameron Says This Sci-Fi Thriller Is "the Best Space Film Ever Done" — and He's Right
+
+Movie Features, Gravity, James Cameron, Alfonso Cuaron, Sandra Bullock
+
+Fri, 29 May 2026 22:19:14 GMT
+
+https://collider.com/gravity-james-cameron-explains-why-its-good/
+
+James Cameron is considered a titan of sci-fi, but he declares Gravity to be the best sci-fi movie he’s ever watched.
+---------
+
+# Book ’em, Danno! 'Hawaii Five-0' Is Coming to Netflix
+
+TV News, Netflix, Hawaii Five-0
+
+Fri, 29 May 2026 23:00:19 GMT
+
+https://movieweb.com/hawaii-five-0-netflix-return/
+
+The CBS hit series, 'Hawaii Five-0,' is coming to Netflix. Why not Paramount+?  We have the answers.
+---------
+
+# 'Spider-Noir's Biggest Multiverse Connection Is Hidden in Plain Sight
+
+Features, Spider-Noir, Spider-Man
+
+Fri, 29 May 2026 23:00:19 GMT
+
+https://movieweb.com/spider-noir-multiverse-connection-ruby/
+
+Every Spider-Man across the multiverse has a heartbreaking origin story. 'Spider-Noir's main character experienced it later than most.
+---------
+
+# 'Jurassic Park' Replacement 'The End of Oak Street' Debuts Fresh Looks at Dino Mayhem
+
+Movie News, The End of Oak Street, Anne Hathaway, Ewan McGregor
+
+Fri, 29 May 2026 22:31:46 GMT
+
+https://movieweb.com/the-end-of-oak-street-dinosaur-pictures/
+
+Director David Robert Mitchell promises Amblin vibes from the upcoming adventure.
+---------
+
+# 'Spider-Noir' Star Nicolas Cage Picks Best Live-Action Spider-Man Actor
+
+Movie News, Nicolas Cage, Spider-Man, Andrew Garfield
+
+Fri, 29 May 2026 22:16:14 GMT
+
+https://movieweb.com/nicolas-cage-andrew-garfield-best-spider-man/
+
+'Spider-Noir' star Nicolas Cage picked who he believes is the best live-action Spider-Man between Tobey Maguire, Andrew Garfield, and Tom Holland.
+---------
+
+# Kevin Feige Confirms "Classic" Spider-Man Story in 'Brand New Day'
+
+Movie News, Spider-Man: Brand New Day
+
+Fri, 29 May 2026 22:14:11 GMT
+
+https://movieweb.com/kevin-feige-confirms-spider-man-mcu-change/
+
+Speaking with Empire, Kevin Feige revealed how Spider-Man is changing in the MCU.
+---------
+
+# Netflix's Action Thriller Smash Hit Defeated by New 100% Rated Superhero Series
+
+TV News, Netflix, Man on Fire, The WONDERfools, Superhero, Action, Thriller, Comparison Recommendation
+
+Fri, 29 May 2026 22:00:19 GMT
+
+https://movieweb.com/netflix-man-fire-wonderfools-stream-may-2026/
+
+The streamer's 'Man on Fire' reboot is no match for Netflix's new superhero show when it comes to viewers.
+---------
+
 # “Millennium Falcon Has Sailed”: Star Wars Alum Won’t Return To Disney Franchise After $392M Flop
 
 Movies, Solo: A Star Wars Story, Star Wars, Emilia Clarke
