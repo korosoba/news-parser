@@ -1,3 +1,366 @@
+# Timothy Olyphant's New 10-Part Netflix Series Debuts With Solid Rotten Tomatoes Audience Score
+
+TV, Masked Recs
+
+Fri, 29 May 2026 19:50:10 GMT
+
+https://screenrant.com/mating-season-netflix-rotten-tomatoes-audience-score-debut/
+
+After landing on streaming charts, Timothy Olyphant's new Netflix series is receiving an encouraging response from audiences on Rotten Tomatoes.
+---------
+
+# Mortal Kombat II Box Office Officially Breaks Movie Franchise's 31-Year Record In Just 3 Weeks
+
+Movies, Box Office, Mortal Kombat, Mortal Kombat II
+
+Fri, 29 May 2026 19:42:04 GMT
+
+https://screenrant.com/mortal-kombat-2-franchise-comparison-worldwide-box-office/
+
+At the end of its third full week in theaters, the video game adaptation Mortal Kombat II breaks an all-time record for the live-action franchise.
+---------
+
+# 3 Best Movies To Watch On Netflix This Weekend (May 30-31)
+
+Movies, Netflix, Recommendation
+
+Fri, 29 May 2026 19:38:27 GMT
+
+https://screenrant.com/best-netflix-movies-watch-weekend-may-30/
+
+Netflix's best movies to watch this weekend are a Tom Hardy action thriller, a hit sci-fi franchise's second entry, and a new Original comedy.
+---------
+
+# Michelle Pfeiffer Wants To Remake Dark Shadows After Tim Burton & Johnny Depp’s $245M Adaptation
+
+TV, Dark Shadows
+
+Fri, 29 May 2026 19:34:31 GMT
+
+https://screenrant.com/michelle-pfeiffer-dark-shadows-tv-remake-after-tim-burton-movie/
+
+Michelle Pfeiffer wants to star in a new small-screen version of the show that inspired Johnny Depp and Tim Burton’s 2012 dark fantasy movie.
+---------
+
+# The Penguin's Confirmed Sequel Officially Makes HBO's Batman Show Even Better
+
+Streaming TV, Masked Recs
+
+Fri, 29 May 2026 19:30:21 GMT
+
+https://screenrant.com/the-penguin-return-batman-part-2-matt-reeves-crime-saga/
+
+The confirmed sequel to HBO’s Batman TV show, The Penguin, is on the horizon, making the latter even better than it already was upon release.
+---------
+
+# Girls Gets A Re-Evaluation From OG Star Nearly 10 Years After Hit HBO Show Ended
+
+TV, Girls, Andrew Rannells
+
+Fri, 29 May 2026 19:20:30 GMT
+
+https://screenrant.com/girls-hbo-series-re-evaluation-andrew-rannells/
+
+EXCLUSIVE: HBO’s Girls ended almost 10 years ago, and one of the stars is reflecting back on how fan perception of the characters has changed.
+---------
+
+# When Robbie Learned About The Spider's True Identity Addressed By Spider-Noir Star
+
+TV, Spider-Noir, Spider-Noir - Season 1, Spider-Man, Marvel Cinematic Universe, Prime Video, Lamorne Morris
+
+Fri, 29 May 2026 19:09:30 GMT
+
+https://screenrant.com/spider-noir-robbie-the-spider-identity-learned-when-lamorne-morris/
+
+Exclusive: Lamorne Morris addresses when Robbie Robertson learned about The Spider's true identity in Spider-Noir and how it impacted the dynamic.
+---------
+
+# It's Officially The End Of An Era For Bloodborne
+
+Gaming, Bloodborne
+
+Fri, 29 May 2026 19:00:20 GMT
+
+https://screenrant.com/bloodborne-end-of-era-famous-player-retires/
+
+DDiscover the enduring legacy of Bloodborne, a fan-favorite FromSoftware title, and its PlayStation exclusivity, despite fan calls for a PC port.
+---------
+
+# Xbox Game Pass 10/10 Perfect Freebie Has Gamers Completely In Love
+
+Gaming, Xbox Game Pass, Forza Horizon 6, Triple-A Games, PC
+
+Fri, 29 May 2026 18:56:33 GMT
+
+https://screenrant.com/xbox-game-pass-free-masterpiece-forza-horizon-6/
+
+One of the latest additions to Xbox Game Pass is winning over plenty of fans, even those who don't usually dip their toes into the genre.
+---------
+
+# Netflix's 6-Part Crime Series Adaptation Receives Rare Rotten Tomatoes Audience Score
+
+TV, A Good Girl's Guide to Murder
+
+Fri, 29 May 2026 18:50:50 GMT
+
+https://screenrant.com/netflix-a-good-girls-guide-to-murder-season-2-rotten-tomatoes-audience-score/
+
+Netflix's new crime series has achieved a rare feat, as the streaming giant has released season 2 of this underrated Holly Jackson adaptation.
+---------
+
+# Star Wars Officially Confirms The Return Of Rogue One's Saw Gerrera
+
+Comics, Star Wars, Rogue One: A Star Wars Story
+
+Fri, 29 May 2026 19:28:37 GMT
+
+https://www.cbr.com/star-wars-saw-gerrera-exclusive-preview-early-misssion/
+
+In a CBR exclusive preview, we take a look at Marvel's upcoming spotlight comic on Saw Gerrera to celebrate Rogue One's 10th anniversary
+---------
+
+# Game of Thrones' Mad King Prequel Officially Casts New Ned Stark, Jamie & Cersei Lannister
+
+TV, Game Of Thrones
+
+Fri, 29 May 2026 19:21:55 GMT
+
+https://www.cbr.com/game-of-thrones-the-mad-king-ned-stark-casting/
+
+These actors will have some big boots to fill in the next Game of Thrones prequel story.
+---------
+
+# 7 Anime Series Perfect for Fans of Classic Westerns
+
+Anime, Western, Trigun, Jojo's Bizarre Adventure
+
+Fri, 29 May 2026 19:15:14 GMT
+
+https://www.cbr.com/best-anime-series-perfect-for-fans-of-classic-westerns/
+
+The Wild West is an exciting genre that doesn't always get its due in anime, but titles like Trigun and Gun X Sword should please western fanatics.
+---------
+
+# Timothy Olyphant’s $2M R-Rated Flop Finds Instant Redemption as a Digital Streaming Hit
+
+Movies, Over Your Dead Body
+
+Fri, 29 May 2026 19:00:13 GMT
+
+https://www.cbr.com/timothy-olyphant-over-your-dead-body-thriller-pvod-success-may-2026/
+
+The movie flopped in theaters, but it's getting its payback on streaming.
+---------
+
+# Star Trek: Picard Quietly Killed the Biggest Fumble in Sci-Fi History
+
+TV, Star Trek, Star Trek: Picard, Sci-Fi
+
+Fri, 29 May 2026 19:00:13 GMT
+
+https://www.cbr.com/star-trek-picard-balanced-fan-service-with-storytelling/
+
+Long-running sci-fi series can lean too much into fan service, but Star Trek: Picard eventually found the right way to balance it with new ideas.
+---------
+
+# The 10 Greatest Fantasy Books of the Last 25 Years, Ranked
+
+Movies, Fantasy
+
+Fri, 29 May 2026 19:00:13 GMT
+
+https://www.cbr.com/best-fantasy-books-last-25-years-list/
+
+Fantasy has evolved exponentially in the last 25 years but these fictional masterpieces are already considered modern classics of a beloved genre.
+---------
+
+# James Gunn Explains Superman and Brainiac's 'Beef' Ahead of Man of Tomorrow
+
+Comics, DC Comics, DCU, Man of Tomorrow, Superman: Man of Tomorrow, Supergirl, James Gunn, Superman
+
+Fri, 29 May 2026 18:57:31 GMT
+
+https://www.cbr.com/james-gunn-explains-superman-and-brainiacs-man-of-tomorrow-beef/
+
+James Gunn just explained why Brainiac and Superman have beef that spans 70 years.
+---------
+
+# Scream 7 Franchise Record Record Officially Surpassed by New Horror
+
+Movies, Scream 7, Horror, Backrooms
+
+Fri, 29 May 2026 18:48:42 GMT
+
+https://www.cbr.com/scream-7-record-surpassed-backrooms/
+
+A new horror movie rolls past the franchise-best record for Scream 7.
+---------
+
+# 10 Best The Far Side Comics About Myths and Legends
+
+Comics, The Far Side
+
+Fri, 29 May 2026 18:35:31 GMT
+
+https://www.cbr.com/10-best-far-side-comics-about-myths-and-legends/
+
+Gary Larson's The Far Side is known for its dark humor, but in the context of legends and myths, this strip is only darker and funnier.
+---------
+
+# Stan Lee's Unreleased Superhero Comic Finally Revealed
+
+Comics, Marvel, Marvel Comics, MCU, Spider-Man: Brand New Day, Spider-Man: Beyond the Spider-Verse, Avengers, Avengers: Doomsday, Avengers: Doomsday (2026), Wonder Man, X-Men, X-Men '97
+
+Fri, 29 May 2026 18:32:23 GMT
+
+https://www.cbr.com/stan-lee-unreleased-superhero-comic-finally-revealed/
+
+The world had no clue Stan Lee had this Airwalker gem up his sleeve before he passed.
+---------
+
+# 10 Near-Perfect Soft Sci-Fi Movies That Aged Into Masterpieces
+
+Movie, Science Fiction, The Truman Show, Brazil, Dark City
+
+Fri, 29 May 2026 19:29:14 GMT
+
+https://collider.com/near-perfect-soft-sci-fi-movies-masterpieces/
+
+From insightful tales like Dark City to grounded gems like The Truman Show, these near-perfect soft sci-fi movies became true masterpieces over time.
+---------
+
+# 10 Greatest Crime Shows of the Last 5 Years, Ranked
+
+TV, Crime, MobLand, Adolescence, The Penguin
+
+Fri, 29 May 2026 19:08:15 GMT
+
+https://collider.com/best-crime-shows-last-5-years-ranked/
+
+Discover the best crime TV shows released in the last five years, featuring critically acclaimed series like Adolescence, The Penguin, and MobLand.
+---------
+
+# Sophia Bush and Jerry O’Connell’s New Summer Movie Gets a Chaotic First Look
+
+Movie News, Sophia Bush, Jerry O'Connell, Tubi, Collider Exclusive Preview
+
+Fri, 29 May 2026 19:00:13 GMT
+
+https://collider.com/sophia-bush-jerry-oconnell-summers-last-resort-first-look-tubi/
+
+Get an exclusive look at Summer’s Last Resort, Tubi’s summer comedy starring Sophia Bush, Jerry O’Connell, and Violet McGraw.
+---------
+
+# Your Favorite Green Goblin Re-Evaluates His Legacy in 'Late Fame'
+
+Movie News, Willem Dafoe, Greta Lee, Drama, Collider Exclusive Preview
+
+Fri, 29 May 2026 18:01:13 GMT
+
+https://collider.com/new-willem-dafoe-movie-late-fame-image-first-look/
+
+Get an exclusive look at Late Fame, a new drama starring Willem Dafoe and Greta Lee ahead of its August release.
+---------
+
+# The Fantasy Remake Fans Have Waited 16 Years For Hit With Devastating Delay
+
+Movie News, Fable, Xbox Series X/S, Video Game, Fantasy
+
+Fri, 29 May 2026 17:46:41 GMT
+
+https://collider.com/xbox-fantasy-remake-fable-delayed-february-2027/
+
+Xbox's ambitious remake of Fable has hit another snag, with the fantasy RPG now slated to release in February 2027.
+---------
+
+# 'Terrifier' Director and 'Evil Dead' Creator Officially Team-Up For New Horror Nightmare
+
+Movie News, Damien Leone, Horror, Sam Raimi, Terrifier
+
+Fri, 29 May 2026 17:35:59 GMT
+
+https://collider.com/terrifier-creator-damien-leone-new-horror-movie-after-terrifier-4-tortures-of-the-damned-sam-raimi-producing/
+
+Horror filmmaker Damien Leone has officially found his first new horror project after Terrifier 4, with genre icon Sam Raimi producing.
+---------
+
+# '28 Years Later 3' Filming Start Finally Revealed by Horror Sequel Director Danny Boyle
+
+Movie News, Danny Boyle, Horror, 28 Years Later, 28 Years Later: The Bone Temple, 28 Days Later
+
+Fri, 29 May 2026 19:46:26 GMT
+
+https://movieweb.com/28-years-later-3-filming-start-revealed-danny-boyle/
+
+Director Danny Boyle knows when cameras will roll on the next '28 Years Later' sequel, continuing his lauded horror franchise.
+---------
+
+# Prime Video Superhero Series Named Biggest on Streaming Following Divisive Series Finale
+
+TV News, The Boys, Prime Video
+
+Fri, 29 May 2026 19:05:15 GMT
+
+https://movieweb.com/the-boys-season-5-prime-video-streaming-chart/
+
+Prime Video's hit superhero series soared to the top of the steaming charts after a series finale that split the fanbase
+---------
+
+# 'Backrooms' Ending Explained - What Happened to Clark and Mary
+
+Features, Backrooms, Horror, Kane Parsons
+
+Fri, 29 May 2026 19:00:18 GMT
+
+https://movieweb.com/backrooms-2026-ending-explained/
+
+A24's latest horror movie takes the audience on an unsettling journey into an alternate reality, ultimately ending with more questions than answers.
+---------
+
+# 16 Best Liminal Space Horror Movies That Define the Genre
+
+Movie Lists, Horror
+
+Fri, 29 May 2026 18:00:18 GMT
+
+https://movieweb.com/horror-liminal-movies-define-the-genre/
+
+The genre has been around much longer than many realize, and these movies over the decades define liminal horror.
+---------
+
+# Chris Hemsworth Is Back in Action in New Off-Road Racing Movie
+
+Movie News, Chris Hemsworth
+
+Fri, 29 May 2026 17:40:11 GMT
+
+https://movieweb.com/chris-hemsworth-tatts-finke-desert-race-movie/
+
+Chris Hemsworth is set to star in and produce a newly announced feature film based on Australia's legendary Tatts Finke Desert Race.
+---------
+
+# Spider-Man Goes To War With the Punisher in New 'Brand New Day' Image
+
+Movie News, Spider-Man: Brand New Day, MCU
+
+Fri, 29 May 2026 17:32:55 GMT
+
+https://movieweb.com/spider-man-the-punisher-brand-new-day-image/
+
+A new image features the two street-level heroes, Spider-Man (Tom Holland) and The Punisher (Jon Bernthal), engaged in intense action.
+---------
+
+# Marvel's Best Trilogy Hits Hulu for the Perfect Pre-'Avengers: Doomsday' Binge
+
+Movie News, MCU, Captain America, Hulu
+
+Fri, 29 May 2026 17:30:19 GMT
+
+https://movieweb.com/captain-america-trilogy-stream-may-2026-hulu/
+
+The Captain America trilogy starring Chris Evans arrives on Hulu soon, making it a perfect pre-Avengers: Doomsday watch.
+---------
+
 # Ilya Naishuller Breaks Down His "Fast & Furious On Steroids" Approach To World Of Tanks: HEAT
 
 Gaming, World of Tanks: HEAT, Nobody, Road House 2, Heads of State
