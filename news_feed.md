@@ -1,3 +1,267 @@
+# This 7-Part Murder Mystery Drama Made Twin Peaks Look Small
+
+TV, Masked Recs
+
+Sat, 30 May 2026 13:03:20 GMT
+
+https://screenrant.com/riverdale-murder-mystery-drama-makes-twin-peaks-small/
+
+One series borrowed the blend of teen drama and murder mystery that made Twin Peaks great, but took its story down a bigger, weirder, wilder path.
+---------
+
+# Chris Pratt’s Hardcore $164M Western Thriller Remake Sets Free Streaming Release Next Week
+
+Movies, Masked Recs
+
+Sat, 30 May 2026 13:00:21 GMT
+
+https://screenrant.com/chris-pratt-the-magnificent-seven-pluto-tv-streaming-release-june-2026/
+
+Starting next month, fans of Chris Pratt's Western thriller remake released a decade ago will finally be available to stream for free.
+---------
+
+# 27 Years Later, The First Magical Girl Officially Returns With A Gorgeous New Netflix Anime
+
+Anime, Masked Recs, Netflix
+
+Sat, 30 May 2026 13:00:21 GMT
+
+https://screenrant.com/27-years-later-the-first-magical-girl-officially-returns-with-a-gorgeous-new-netflix-anime/
+
+Magical girl anime have never looked so good.
+---------
+
+# GTA 6 Fans Divided On Recent Official Xbox Updates
+
+Gaming, Grand Theft Auto 6, Rockstar Games, Xbox, Triple-A Games
+
+Sat, 30 May 2026 13:00:21 GMT
+
+https://screenrant.com/gta-6-xbox-marketing-rockstar-fan-reaction/
+
+GTA 6 is launching exclusively on PS5/PS5 Pro and Xbox Series X/S, with Xbox alone being more vocal than Rockstar has been about the game's marketing.
+---------
+
+# 10 Best New Movies Coming To Peacock In June 2026
+
+Movies, Peacock
+
+Sat, 30 May 2026 12:55:19 GMT
+
+https://screenrant.com/peacock-best-new-movies-june-2026/
+
+A bunch of great new movies are coming to Peacock in June 2026, but these 10 picks are the best new additions to the platform.
+---------
+
+# The Mandalorian And Grogu Officially Kept One Star Wars Tradition Alive That Improved Over 7 Years
+
+Movies, The Mandalorian and Grogu, Star Wars, The Mandalorian
+
+Sat, 30 May 2026 12:50:36 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-star-wars-puppet-tradition-john-knoll-explained/
+
+The Mandalorian & Grogu not only brought back one tradition from the title characters' TV show, it improved upon this aspect for their film debut.
+---------
+
+# New Pokémon Adventure Officially Announced For 2027 Alongside Winds & Waves
+
+Gaming, Pokemon Winds and Waves, Triple-A Games
+
+Sat, 30 May 2026 12:43:52 GMT
+
+https://screenrant.com/pokemon-2027-new-immersive-experience/
+
+The Pokémon Company has officially announced that the upcoming Gen-10 Pokémon Winds & Waves will be paired with a second, very different adventure.
+---------
+
+# X-Men ’97’s Season 4 Confirms A Major Marvel Change
+
+TV, X-Men '97, Marvel Cinematic Universe
+
+Sat, 30 May 2026 12:30:20 GMT
+
+https://screenrant.com/x-men-97-season-4-marvel-show-length-change/
+
+New updates about X-Men '97 season 4 confirm that Marvel is intended to go forward with one previously discussed change to its releases.
+---------
+
+# After 87 Years, Superman's Father Finally Reveals His Human Name
+
+DC Comics, Superman
+
+Sat, 30 May 2026 12:30:20 GMT
+
+https://screenrant.com/new-superman-father-name-change/
+
+In DC's new Superman project, Clark Kent's Kryptonian father Jor-El reveals his official human name as he lives up to Kal-El's heroic legacy.
+---------
+
+# Final Fantasy Returns With A Gorgeous New Official Release
+
+Gaming, Magic: The Gathering, tabletop games, PC
+
+Sat, 30 May 2026 12:30:20 GMT
+
+https://screenrant.com/final-fantasy-mtg-accessories-2026/
+
+MTG is back with yet another Final Fantasy collaboration, offering some of the most visually impressive designs we've seen from the crossover yet.
+---------
+
+# 5 Spy Movie Heroes More Capable Than James Bond
+
+Movies, James Bond
+
+Sat, 30 May 2026 13:01:12 GMT
+
+https://www.cbr.com/spy-movie-heroes-more-capable-than-james-bond-list/
+
+James Bond is cinema's most famous spy, but when it comes to who is more capable, there are others who surpass him.
+---------
+
+# 6 Perfect TV Shows With 6 Episodes or Less
+
+TV, television
+
+Sat, 30 May 2026 12:30:13 GMT
+
+https://www.cbr.com/perfect-tv-shows-fewer-than-6-episodes-list/
+
+Some of the best modern TV shows don't overstay their welcome and have helped deliver amazing stories that audiences should watch immediately.
+---------
+
+# DC’s New Batman and Robin Reveal Their Best Redesigns Yet
+
+Comics, Batman, Robin
+
+Sat, 30 May 2026 12:00:12 GMT
+
+https://www.cbr.com/batman-and-robin-new-costumes-superman-father-of-tomorrow/
+
+The Dynamic Duo looks beyond awesome in Superman: Father of Tomorrow.
+---------
+
+# The Batman Part II Sets Up a Major Franchise Change With New Color Scheme
+
+Movies, The Batman, The Batman Part II
+
+Sat, 30 May 2026 12:00:12 GMT
+
+https://www.cbr.com/the-batman-part-2-symbol-change-end-of-an-era/
+
+The Batman Part II is finally on the way, and a major change to the character is already marking the end of an era for the Matt Reeves franchise.
+---------
+
+# Netflix Officially Has This 2025 Crime Thriller Masterpiece With an 'IT: Welcome to Derry' Star
+
+Movie Features, Dead Man's Wire, Gus Van Sant, Bill Skarsgård, Thriller
+
+Sat, 30 May 2026 12:46:13 GMT
+
+https://collider.com/dead-mans-wire-streaming-netflix-bill-skarsgard/
+
+The 2025 movie Dead Man's Wire, starring Bill Skarsgård, Dacre Montgomery, and Al Pacino, is a brilliant crime thriller ready for streaming.
+---------
+
+# 'Yellowstone' Meets 'True Grit' in Taylor Sheridan’s Western Epic Coming to Netflix
+
+TV News, Yellowstone, True Grit, Taylor Sheridan, Lawmen: Bass Reeves
+
+Sat, 30 May 2026 12:45:12 GMT
+
+https://collider.com/taylor-sheridan-western-lawmen-bass-reeves-coming-to-netflix-june-2026-yellowstone-true-grit/
+
+Lawmen: Bass Reeves, Taylor Sheridan’s Western series starring David Oyelowo, is coming to Netflix this June. Here's what you should know.
+---------
+
+# Apple TV’s Mind-Bending Sci-Fi Hit Is Taking Over the Planet
+
+TV News, Pluribus, Apple TV, Rhea Seehorn, Vince Gilligan
+
+Sat, 30 May 2026 12:31:12 GMT
+
+https://collider.com/apple-tv-mind-bending-sci-fi-series-pluribus-streaming-success-may-2026/
+
+Pluribus, the spellbinding sci-fi series starring Rhea Seehorn, is staging a streaming takeover on its home platform of Apple TV.
+---------
+
+# 10 Video Games That Are Perfect From Start to Finish
+
+Movie, Video Game, Legend of Zelda: Breath of the Wild, Portal, God of War
+
+Sat, 30 May 2026 12:21:14 GMT
+
+https://collider.com/video-games-perfect-start-to-finish/
+
+From survival horrors like Resident Evil 4 to masterclasses in puzzle-solving like Portal 2, these amazing video games are truly flawless throughout.
+---------
+
+# HBO’s 96% Rotten Tomatoes Video Game Series Is One of the Best Shows Ever Made
+
+TV Features, The Last of Us, Pedro Pascal, Bella Ramsey, HBO Max
+
+Sat, 30 May 2026 12:17:13 GMT
+
+https://collider.com/hbo-the-last-of-us-best-video-game-series/
+
+The Last of Us is the best video game series because of its painful and realistic exploration of the terrible things people do for love.
+---------
+
+# One of the Greatest Sitcoms of All Time Shoots Up Apple TV's Charts 11 Years Later
+
+TV Features, Parks and Recreation, NBC, Sitcom, Amy Poehler
+
+Sat, 30 May 2026 12:03:13 GMT
+
+https://collider.com/greatest-sitcoms-all-time-parks-and-recreation-apple-tv-charts/
+
+NBC's Parks and Recreation is a beloved sitcom that continues to captivate audiences over a decade after its premiere.
+---------
+
+# 10 Greatest Tie-In Video Games of All Time, Ranked
+
+Movie, Video Game, GoldenEye, The Simpsons, X-Men Origins: Wolverine
+
+Sat, 30 May 2026 12:02:13 GMT
+
+https://collider.com/best-tie-in-video-games-ranked/
+
+There have been surprisingly high number of effective video games created as a tie-in to other media, including Spider-Man 2, Aladdin, and GoldenEye.
+---------
+
+# 'Rogue One' Meets 'Blade Runner' in the Sci-Fi Epic Leaving Netflix Soon
+
+Movie News, The Creator, Sci-Fi, Gareth Edwards, John David Washington
+
+Sat, 30 May 2026 12:00:13 GMT
+
+https://collider.com/gareth-edwards-sci-fi-epic-the-creator-leaving-netflix-june-2026/
+
+Gareth Edwards’ visually stunning sci-fi epic The Creator, starring John David Washington, is leaving Netflix soon. Find out when here.
+---------
+
+# Forget 'The Shining,' Stephen King's Forgotten Haunted Thriller Is Aging Like Fine Wine
+
+Movie Features, Stephen King, 1408, John Cusack, Samuel L. Jackson
+
+Sat, 30 May 2026 11:53:14 GMT
+
+https://collider.com/stephen-king-1408-haunted-thriller-the-shining/
+
+This John Cusack-led supernatural horror film, adapted from a Stephen King short story, leaned into what audiences come to expect from the author.
+---------
+
+# Netflix Quietly Adding Beloved 80s Martial Arts Action Franchise
+
+Movie News, The Karate Kid, Coming/Leaving Streaming, Netflix, Martial Arts, Action
+
+Sat, 30 May 2026 13:00:19 GMT
+
+https://movieweb.com/karate-kid-franchise-streaming-netflix-june-2026/
+
+It's time to revisit the best martial arts franchise of all time as 'The Karate Kid' franchise hits Netflix.
+---------
+
 # Pokémon Officially Returns To Johto For Stunning New Release
 
 Gaming, Pokemon
