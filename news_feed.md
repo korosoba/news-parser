@@ -1,3 +1,256 @@
+# 10 Best Underrated Horror Movies On Netflix
+
+Movies, Netflix, Horror, Recommendation
+
+Sat, 30 May 2026 15:55:21 GMT
+
+https://screenrant.com/netflix-best-underrated-horror-movies-2026/
+
+Netflix is home to some fantastic horror films that not enough people talk about, from slashers to cult classics to video game adaptations.
+---------
+
+# Obsession Box Office Continues Unheard-Of Growth With Shocking Week 3 Boost
+
+Movies, Box Office, Obsession, Horror
+
+Sat, 30 May 2026 15:34:53 GMT
+
+https://screenrant.com/obsession-2026-movie-box-office-week-3-domestic-drop/
+
+After a record-shattering sophomore weekend, the sleeper horror hit Obsession earns even more in its third weekend, with a nearly unprecedented rise.
+---------
+
+# Criminal Minds Season 19 Missed A Prime Reunion Opportunity
+
+Streaming TV, Criminal Minds
+
+Sat, 30 May 2026 15:30:22 GMT
+
+https://screenrant.com/criminal-minds-season-19-tara-wedding-time-jump-reunion-missed-opportunity/
+
+Criminal Minds: Evolution fails to capitalize on potential original cast reunions, leaving fans disappointed and missing out on nostalgic milestones.
+---------
+
+# The Mandalorian And Grogu Secretly Makes A 49-Year-Old Star Wars Movie Dream Reality
+
+Movies, The Mandalorian and Grogu, Star Wars
+
+Sat, 30 May 2026 15:30:22 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-star-wars-movie-han-solo-chewbacca/
+
+After almost half a decade, one Star Wars movie dream has become reality in an unexpected way thanks to the franchise's most beloved new duo.
+---------
+
+# The Four Seasons Season 2 Interviews with Cast & Creator
+
+TV, The Four Seasons, The Four Seasons - Season 2
+
+Sat, 30 May 2026 15:18:50 GMT
+
+https://screenrant.com/video/the-four-seasons-2-tina-fey-cast-creators-interview/
+
+The cast and creators of Netflix's The Four Seasons talk season 2 of the comedy and how it honors Steve Carrell's character after his season 1 death.
+---------
+
+# The Mandalorian And Grogu Box Office Suffers With Star Wars' Worst-Ever Week 2 Drop
+
+Star Wars, The Mandalorian and Grogu, Box Office
+
+Sat, 30 May 2026 15:14:25 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-box-office-week-2-domestic-drop/
+
+The Mandalorian and Grogu slips from No. 1 to No. 3 during its sophomore frame at the domestic box office with one of Star Wars' worst-ever drops.
+---------
+
+# Netflix's 6-Part Martial Arts Show Perfected Its Genre
+
+TV, Masked Recs
+
+Sat, 30 May 2026 15:10:20 GMT
+
+https://screenrant.com/cobra-kai-martial-arts-show-perfected-genre/
+
+Netflix's iconic six-season series became one of the most critically acclaimed martial arts shows of all time by making one pivotal change.
+---------
+
+# Backrooms Box Office Skyrockets, Beating The Mandalorian With Debut That Shatters Records For A24 & 2026 Horror
+
+Movies, Box Office, Horror, Backrooms
+
+Sat, 30 May 2026 15:08:20 GMT
+
+https://screenrant.com/backrooms-box-office-opening-weekend-domestic-chart-report/
+
+The buzzy horror movie Backrooms earns the best debut for the genre in 2026, blowing past projections to take No. 1 over The Mandalorian and Grogu.
+---------
+
+# Ciara Miller's Return To Summer House Season 11 Addressed By Bravo Exec
+
+TV, Summer House
+
+Sat, 30 May 2026 15:05:56 GMT
+
+https://screenrant.com/summer-house-ciara-miller-season-11-return-bravo-joshn-brown/
+
+Summer House could be facing another breakup as a Bravo executive addresses whether Ciara Miller will return for season 11 after the ongoing scandal.
+---------
+
+# Prime Video's New 8-Part Detective Series With Near-Perfect RT Score Is The Ideal Weekend Binge
+
+Streaming TV, Masked Recs
+
+Sat, 30 May 2026 15:03:50 GMT
+
+https://screenrant.com/spider-noir-prime-video-detective-series-must-watch/
+
+Prime Video's new 8-episode detective series has become an instant global hit, and the near-perfect Rotten Tomatoes score show is ideal for a binge.
+---------
+
+# HBO's 96% RT Sleeper Hit Gets Promising Season 2 Update
+
+TV, Heated Rivalry
+
+Sat, 30 May 2026 15:51:42 GMT
+
+https://www.cbr.com/hbo-heated-rivalry-season-2-filming-update/
+
+The show was one of the best releases in 2025.
+---------
+
+# James Bond King Zero Officially Solves the Reboot's Timeline Problem
+
+Movies, James Bond, Denis Villeneuve, Action
+
+Sat, 30 May 2026 15:30:14 GMT
+
+https://www.cbr.com/james-bond-king-zero-solves-reboot-timeline-problem-reboot/
+
+With so much speculation about what course the new James Bond series will take, it's evident that Amazon is already telegraphing its plans.
+---------
+
+# Guy Ritchie's New Mystery Thriller Gets Season 2 First Look & Return Update
+
+TV, guy ritchie, Young Sherlock
+
+Sat, 30 May 2026 15:25:01 GMT
+
+https://www.cbr.com/guy-ritchie-young-sherlock-season-2-first-look-filming/
+
+Guy Ritchie has multiple projects in development, and a recent fan-favorite has received a major update.
+---------
+
+# 10 Best Shonen Anime Like One Piece
+
+Anime, One Piece, Hunter X Hunter
+
+Sat, 30 May 2026 15:15:13 GMT
+
+https://www.cbr.com/best-shonen-anime-like-one-piece/
+
+One Piece might be a one-of-a-kind shonen sensation, yet these anime series have plenty of greatness to offer its fans.
+---------
+
+# Game of Thrones’ Emilia Clarke Reveals She Had No Role in Shaping Daenerys' Fate
+
+TV, Game Of Thrones, House of the Dragon, A Knight Of The Seven Kingdoms
+
+Sat, 30 May 2026 15:07:29 GMT
+
+https://www.cbr.com/game-of-thrones-emilia-clarke-surprising-daenerys-confession/
+
+The Mother of Dragons had no say in what happened to her in Game of Thrones.
+---------
+
+# It's Officially the End of an Era for Final Fantasy 7
+
+Games, Final Fantasy, Final Fantasy 7 Remake
+
+Sat, 30 May 2026 15:05:13 GMT
+
+https://www.cbr.com/ff7-official-end-of-era-dirge-of-cerberus/
+
+It's the end of an era for the Compilation of Final Fantasy 7, as the climactic story in the series has run its course in the Ever Crisis mobile game.
+---------
+
+# The Perfect Video Game For Fans of Taylor Sheridan Yellowstone
+
+Games, Yellowstone, Far Cry
+
+Sat, 30 May 2026 15:00:13 GMT
+
+https://www.cbr.com/yellowstone-perfect-game-for-taylor-sheridan-fans/
+
+If fans of Yellowstone are looking for a new video game to play, there's only one title that beautifully shows off gorgeous Montana land.
+---------
+
+# Taylor Sheridan Director’s ‘The Hurt Locker’ Meets ‘Heat’ Thriller Is a Sudden Streaming Hit
+
+Movie News, Fuze, Heat, Theo James, Aaron Taylor-Johnson
+
+Sat, 30 May 2026 15:40:14 GMT
+
+https://collider.com/aaron-taylor-johnson-theo-james-crime-thriller-fuze-streaming-success-apple-tv-may-2026/
+
+Theo James and Aaron Taylor-Johnson’s recent crime thriller is surging on streaming 1 year after its debut. Read on for more details
+---------
+
+# Netflix’s 94% RT Gothic Fantasy Is One of Streaming’s Greatest Video Game Adaptations
+
+TV Features, Castlevania, Netflix, Video Game, Castlevania: Nocturne
+
+Sat, 30 May 2026 15:23:14 GMT
+
+https://collider.com/netflix-castlevania-gothic-fantasy-best-video-game-adaptation/
+
+Castlevania's intricate world and action-packed fights make it a standout video game adaptation you won't want to miss.
+---------
+
+# Apple TV’s New Sci-Fi Series Is Officially Taking Over the World
+
+TV News, Apple TV, Star City, For All Mankind, Sci-Fi
+
+Sat, 30 May 2026 15:15:13 GMT
+
+https://collider.com/apple-tv-new-sci-fi-for-all-mankind-spin-off-star-city-streaming-success-may-2026/
+
+Apple TV’s For All Mankind spin-off, Star City, is an instant streaming sensation, becoming the streamer’s next big sci-fi epic.
+---------
+
+# IMAX Kicks New Star Wars Out of Theaters for He-Man Reboot
+
+Movie News, Masters of the Universe, IMAX, Nicholas Galitzine, The Mandalorian and Grogu
+
+Sat, 30 May 2026 15:00:22 GMT
+
+https://collider.com/new-star-wars-movie-the-mandalorian-and-grogu-leaving-imax-theaters-early-masters-of-the-universe/
+
+IMAX is kicking The Mandalorian and Grogu out of theaters early in favor of giving Masters of the Universe a last minute release.
+---------
+
+# When 'Backrooms' Will Stream on HBO Max
+
+Features, Backrooms, Horror
+
+Sat, 30 May 2026 15:00:18 GMT
+
+https://movieweb.com/when-backrooms-will-stream-on-hbo-max/
+
+A24's liminal horror experience is making waves at the box office, but for those excited to rewatch it at home there will be a bit of a wait.
+---------
+
+# 'Twilight': The Cheesiest Quotes from the Franchise
+
+Movie Lists, The Twilight Saga
+
+Sat, 30 May 2026 15:00:18 GMT
+
+https://movieweb.com/twilight-cheesiest-quotes-from-the-franchise/
+
+Character dialogue often contributes to the Twilight films' high camp factor, unforgettable aesthetic, and expected tropes.
+---------
+
 # George Lucas' Best Plot Twist Is Even More Surprising Thanks To This Weird Star Wars Fact
 
 Movies, Star Wars
