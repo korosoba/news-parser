@@ -1,3 +1,300 @@
+# Netflix's Pacific Rim Sequel Is So Good, It Makes Pacific Rim: Uprising Even Worse
+
+Classic TV, Masked Recs
+
+Sat, 30 May 2026 21:30:20 GMT
+
+https://screenrant.com/pacific-rim-the-black-netflix-sequel-better-than-uprising/
+
+Netflix's two-season spinoff from Guillermo del Toro's monster mash, Pacific Rim: The Black, is much better than the underwhelming movie sequel.
+---------
+
+# 10 Movies Set Inside Single, Inescapable Locations
+
+Classic Movies, Horror, Ranking
+
+Sat, 30 May 2026 21:30:20 GMT
+
+https://screenrant.com/movies-set-inside-inescapable-locations/
+
+There are a lot of great movies that take place in inescapable locations and these are the best of the movies that make this subgenre terrifying.
+---------
+
+# Former Superman Actor Repeats Classic Christopher Reeve Scene In 2026 Superhero Return
+
+Streaming TV, Masked Recs
+
+Sat, 30 May 2026 21:25:45 GMT
+
+https://screenrant.com/spider-noir-christopher-reeve-superman-lois-lane-reveal-repeat/
+
+A former Superman actor has returned to the superhero genre, and his new 2026 release repeats a major moment from Christopher Reeve's Superman.
+---------
+
+# Criminal Minds Officially Says Goodbye To An OG Character After 19 Years
+
+Network TV, Criminal Minds
+
+Sat, 30 May 2026 21:16:20 GMT
+
+https://screenrant.com/criminal-minds-season-19-will-lamontagne-exit/
+
+Criminal Minds has changed drastically over the last four years, but season 19 just resolved a 19-year storyline with a bittersweet sendoff.
+---------
+
+# Captain America: Brave New World Failed For One Key Reason
+
+Movies, Captain America: Brave New World, Op-Ed
+
+Sat, 30 May 2026 21:16:20 GMT
+
+https://screenrant.com/captain-america-brave-new-world-failed-hulk-sequel/
+
+The fourth Captain America movie attempted to be a sequel to a film from nearly two decades prior, which is the main reason why it was a misfire.
+---------
+
+# The 12 Best Astarion Quotes In Baldur's Gate 3, Ranked
+
+Gaming, PC, Baldur's Gate 3
+
+Sat, 30 May 2026 21:00:23 GMT
+
+https://screenrant.com/baldurs-gate-3-best-astarion-quotes-bg3/
+
+Astarion can be highly sarcastic, but he also has some of the most emotional lines in Baldur’s Gate 3 that reveal how tragic his character is.
+---------
+
+# Sekiro Fans Rally Around New DLC Following Official Announcement
+
+Gaming, Sekiro: Shadows Die Twice, Sekiro: No Defeat, PC
+
+Sat, 30 May 2026 21:00:21 GMT
+
+https://screenrant.com/sekiro-official-dlc-witcher-3-fan-reaction/
+
+With the new Sekiro anime set to release this summer, fans are all on the same page when it comes to an official new DLC announcement.
+---------
+
+# 10 Anime Heroes Who Would Be Villains in Other World
+
+Anime
+
+Sat, 30 May 2026 21:00:21 GMT
+
+https://screenrant.com/iconic-anime-heroes-should-be-villains/
+
+Explore how iconic anime heroes would be perceived as villains in different genres, highlighting their powerful abilities and potential dangers.
+---------
+
+# Age Of Ultron Is The Only Avengers Movie To Leave Out This 1 MCU Character (Who Will Return In Doomsday)
+
+Superheroes, Avengers: Age of Ultron, Marvel Cinematic Universe
+
+Sat, 30 May 2026 21:00:21 GMT
+
+https://screenrant.com/avengers-age-of-ultron-movie-missing-loki/
+
+One MCU character missed out on Avengers: Age of Ultron despite appearing in every other Avengers movie, including a confirmed role in Doomsday.
+---------
+
+# Hannah Waddingham Opens Up About Popular Ted Lasso Relationship: "They Are Undoubtedly Soulmates"
+
+TV, Ted Lasso, Ted Lasso - Season 4
+
+Sat, 30 May 2026 20:53:26 GMT
+
+https://screenrant.com/ted-lasso-hannah-waddingham-ted-rebecca-relationship-soulmates/
+
+Ted Lasso's Hannah Waddingham discusses Rebecca and Ted's relationship ahead of the season 4 premiere.
+---------
+
+# Chainsaw Man Part 2 Review: A Subversive Manga Masterpiece
+
+Anime, Chainsaw Man
+
+Sat, 30 May 2026 21:17:14 GMT
+
+https://www.cbr.com/chainsaw-man-part-2-manga-review-analysis/
+
+Chainsaw Man Part 2 and its divisive ending achieve a thematic density that even surpass Part 1 when looking beneath the surface of Denji's story.
+---------
+
+# 7 Naruto Characters Who Were Cooler Before They Started Talking
+
+Anime, Naruto
+
+Sat, 30 May 2026 21:15:13 GMT
+
+https://www.cbr.com/naruto-characters-cooler-before-they-started-talking/
+
+From Kiba to Kabuto, these Naruto characters lost part of their mystique once their personalities were fully revealed.
+---------
+
+# 5 R-Rated Thriller Movies Better Than Silence of the Lambs
+
+Movies, Thriller, The Silence of the Lambs, Chinatown
+
+Sat, 30 May 2026 21:00:14 GMT
+
+https://www.cbr.com/r-rated-thrillers-better-than-silence-of-the-lambs-list/
+
+In 1991, Jonathan Demme brought the serial killer genre to its height with Silence of the Lambs, but some R-rated thrillers have it beat.
+---------
+
+# Emilia Clarke's 8-Part Spy Thriller Series Gets Encouraging Season 2 Update
+
+TV, Ponies
+
+Sat, 30 May 2026 20:33:23 GMT
+
+https://www.cbr.com/emilia-clarke-ponies-season-2-update/
+
+Emilia Clarke comments on the future of her spy thriller series, which has a near-perfect Rotten Tomatoes score.
+---------
+
+# 7 Romance Anime That Are 10/10, No Notes
+
+Anime, Kaguya-Sama: Love Is War, Your Lie in April
+
+Sat, 30 May 2026 20:15:13 GMT
+
+https://www.cbr.com/romance-anime-flawless-start-to-finish/
+
+Anime excels at portraying compelling romances, with Your Lie in April and Clannad telling some of the best love stories in fiction.
+---------
+
+# What's the Greatest Martial Arts Movie Ever Made? Surely It's One of These 10 Films
+
+Movie, Martial Arts, Enter the Dragon, Fist of Fury, Police Story
+
+Sat, 30 May 2026 21:30:14 GMT
+
+https://collider.com/best-martial-arts-movies/
+
+From Ip Man to Crouching Tiger, Hidden Dragon, these martial arts classics redefine action through pain, philosophy, and power.
+---------
+
+# Forget ‘Reacher,’ Prime Video’s Stylish Detective Obsession Is Dominating Streaming Worldwide
+
+TV News, Spider-Noir, Prime Video, Nicolas Cage, Oren Uziel
+
+Sat, 30 May 2026 21:30:14 GMT
+
+https://collider.com/prime-video-nicolas-cage-spider-man-detective-series-spider-noir-streaming-success-may-2026/
+
+Spider-Noir, Prime Video's new eight-part series starring Nicolas Cage as a version of Spider-Man, is the #1 worldwide show in the world on streaming.
+---------
+
+# Russell Crowe’s $108 Million Sports Masterpiece Is Coming to Streaming Soon
+
+Movie News, Cinderella Man, Russell Crowe, Sports, Renée Zellweger
+
+Sat, 30 May 2026 21:15:13 GMT
+
+https://collider.com/russell-crowe-sports-masterpiece-cinderella-man-coming-to-netflix-june-2026/
+
+Russell Crowe’s $108 million boxing drama Cinderella Man, also starring Renee Zellweger, is coming to Netflix soon. Read on for more.
+---------
+
+# 5 Forgotten '90s Thrillers That Have Aged Like Fine Wine
+
+Movie, Arlington Road, Bad Influence, Hoodlum, The Newton Boys
+
+Sat, 30 May 2026 21:14:13 GMT
+
+https://collider.com/forgotten-90s-thrillers-aged-like-fine-wine/
+
+Arlington Road, The Newton Boys and Midnight in the Garden of Good and Evil are forgotten '90s thriller movies that have aged very well.
+---------
+
+# Forget 'Dark,' This 8-Part Supernatural Mystery Is the Perfect Late-Night Watch
+
+TV Features, Sapphire & Steel, Joanna Lumley, Dark, Sci-Fi
+
+Sat, 30 May 2026 21:10:14 GMT
+
+https://collider.com/supernatural-sci-fi-show-sapphire-and-steel/
+
+BBC's Sapphire & Steel is a '70s supernatural sci-fi mystery that masterfully blends confusion and dread.
+---------
+
+# Netflix’s Official ‘Stranger Things’ Replacement Is Your New Favorite Sci-Fi Series
+
+TV News, The Boroughs, Netflix, Stranger Things, Duffer Brothers
+
+Sat, 30 May 2026 21:00:14 GMT
+
+https://collider.com/netflix-stranger-things-replacement-sci-fi-series-the-boroughs-streaming-success-may-2026/
+
+The Boroughs, which has been positioned as Netflix's next Stranger Things, is quietly becoming the #1 sci-fi series in the world. Find out more here.
+---------
+
+# This Perfect Zombie Horror Has a 100% on Rotten Tomatoes and Deserves Way More Attention
+
+Movie Features, One Cut of the Dead, Zombie, Horror, Shaun of the Dead
+
+Sat, 30 May 2026 20:53:14 GMT
+
+https://collider.com/perfect-zombie-movie-one-cut-of-the-dead-rotten-tomatoes-fresh/
+
+One Cut of the Dead has the most breathtaking scenes you'll ever see in a zombie movie.
+---------
+
+# Forget ‘The Equalizer,’ Denzel Washington’s Smartest Crime Thriller Is Coming Back to Streaming
+
+Movie News, Denzel Washington, Inside Man, Spike Lee, Clive Owen
+
+Sat, 30 May 2026 20:30:15 GMT
+
+https://collider.com/denzel-washington-smartest-crime-thriller-inside-man-coming-to-netflix-june-2026/
+
+Denzel Washington’s underrated $186 million heist thriller Inside Man returns to streaming on Netflix this June. Find out more here.
+---------
+
+# This Relentless WWII Movie Beat Steven Spielberg and 'Saving Private Ryan' to the Punch 20 Years Before
+
+Movie Features, Saving Private Ryan, War, The Dirty Dozen, The Longest Day
+
+Sat, 30 May 2026 20:11:14 GMT
+
+https://collider.com/overlord-1975-ww2-movie/
+
+Overlord reimagines D-Day with haunting realism, blending WWII drama and documentary footage into a devastating war film.
+---------
+
+# ‘Off Campus’ Season 2 Officially Changes the Books With Its Next Prime Video Romance
+
+TV Features, Off Campus, Prime Video, Books, Series
+
+Sat, 30 May 2026 20:06:15 GMT
+
+https://collider.com/off-campus-season-2-dean-allie-book-changes-details/
+
+Off Campus Season 2 skips The Mistake and jumps to Dean and Allie’s romance, reshaping how Prime Video adapts the books.
+---------
+
+# 'For All Mankind' Finale Theory Sets up a Massive Season 6 Transformation
+
+Features, For All Mankind
+
+Sat, 30 May 2026 21:30:18 GMT
+
+https://movieweb.com/for-all-mankind-season-5-finale-theory/
+
+Apple TV's generational space opera has long been a surprisingly grounded affair. That could all be about to change.
+---------
+
+# Every ‘Dexter’ Franchise Season, Ranked
+
+TV Lists, Dexter, Dexter: Resurrection
+
+Sat, 30 May 2026 21:00:19 GMT
+
+https://movieweb.com/every-dexter-franchise-season-ranked/
+
+This is the definitive ranking of all 11 seasons across the three TV shows, exploring the franchise's fluctuating quality.
+---------
+
 # Witcher 3: Songs Of The Past Gameplay Officially Teased
 
 Gaming, The Witcher 3: Wild Hunt, The Witcher 4, Triple-A Games
