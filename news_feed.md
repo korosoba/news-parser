@@ -1,3 +1,300 @@
+# Witcher 3: Songs Of The Past Gameplay Officially Teased
+
+Gaming, The Witcher 3: Wild Hunt, The Witcher 4, Triple-A Games
+
+Sat, 30 May 2026 20:01:22 GMT
+
+https://screenrant.com/witcher-3-expansion-gamescom-reveal-gameplay/
+
+The Witcher 3: Wild Hunt - Songs of the Past isn't releasing until 2027, but we won't have to wait nearly that long to see its gameplay reveal.
+---------
+
+# Boston Blue Season 2 Character Tease Will Make Blue Bloods Fans Very Happy
+
+Network TV, Boston Blue
+
+Sat, 30 May 2026 20:01:22 GMT
+
+https://screenrant.com/boston-blue-season-2-more-blue-bloods-characters/
+
+The first season of Boston Blue brought in Blue Bloods alums like Erin Regan and Maria Baez, and fans will get even more familiar faces in season 2.
+---------
+
+# 10 Best New Movies Coming To Hulu In June 2026
+
+Movies
+
+Sat, 30 May 2026 19:55:22 GMT
+
+https://screenrant.com/hulu-best-new-movies-june-2026/
+
+June starts with a bang on Hulu as a collection of top titles enter the streamer on the first of the month, including a Best Picture Oscar winner.
+---------
+
+# The 10/10 Gangster Franchise So Good It Spawned 3 Spinoffs In Under 2 Years
+
+Streaming TV, Masked Recs
+
+Sat, 30 May 2026 19:30:20 GMT
+
+https://screenrant.com/power-franchise-crime-series-spinoffs-good/
+
+Any spinoff series is a testament to success, but when a show gets three additional expansions within two years, you know it's a pretty big deal.
+---------
+
+# Sonic's Spinoff Movie Story Was Secretly Confirmed By Sonic 4's Trailer
+
+Movies, Sonic the Hedgehog 4, Sonic the Hedgehog
+
+Sat, 30 May 2026 19:25:22 GMT
+
+https://screenrant.com/sonic-4-trailer-spinoff-movie-shadow-chaos-emeralds/
+
+Sonic the Hedgehog is getting a spinoff movie soon, with a story that was secretly confirmed by Sonic the Hedgehog 4's title reveal trailer.
+---------
+
+# Netflix’s 8-Part Show With One Of Its Best Casts Dethrones Stephen-King Approved Sci-Fi Series
+
+TV, Masked Recs
+
+Sat, 30 May 2026 19:17:29 GMT
+
+https://screenrant.com/the-four-seasons-season-2-netflix-streaming-success-may-2026/
+
+A science-fiction series that Stephen King called "an absolute delight" has been dethroned by a show featuring one of Netflix's best casts.
+---------
+
+# Brendan Fraser Sets Impressive New Rotten Tomatoes Streak Ahead Of The Mummy 4
+
+Movies, Brendan Fraser
+
+Sat, 30 May 2026 19:01:20 GMT
+
+https://screenrant.com/pressure-rotten-tomatoes-audience-score-brendan-fraser-streak/
+
+As anticipation continues to build for The Mummy 4, Brendan Fraser has set an impressive new Rotten Tomatoes streak with his latest movie.
+---------
+
+# Valve's Latest Price Update Is Terrible News For Steam Machine
+
+Gaming, Steam, Gaming Hardware, PC
+
+Sat, 30 May 2026 19:01:20 GMT
+
+https://screenrant.com/steam-machine-valve-update-steam-deck-price-increase/
+
+Valve still hasn't announced the price of the upcoming Steam Machine, but a recent update is perhaps the most dire sign yet for the new gaming rig.
+---------
+
+# 7 Studio Ghibli Films That Hit Different As An Adult
+
+Anime, Studio Ghibli
+
+Sat, 30 May 2026 19:01:20 GMT
+
+https://screenrant.com/studio-ghibli-films-better-as-adult/
+
+These Studio Ghibli films have aged tremendously well, revealing layers of complexity that are refreshing to watch as an adult.
+---------
+
+# 15 Rarest Pokémon in Ruby, Sapphire, & Emerald
+
+Games, Pokemon
+
+Sat, 30 May 2026 20:00:15 GMT
+
+https://www.cbr.com/rare-pokemon-ruby-sapphire-emerald/
+
+Pokémon's rare catches make the games all the more exciting, and Ruby, Sapphire, and Emerald have some exciting Pokemon like Lugia, Ho-Oh, and Deoxys.
+---------
+
+# Dragon Ball Super’s Toyotarou Returns With 5 New Official Designs of the Most Sinister Scientists
+
+Anime, Dragon Ball
+
+Sat, 30 May 2026 20:00:14 GMT
+
+https://www.cbr.com/dragon-ball-super-toyotarou-evil-scientists-release/
+
+The new release is a follow-up to Toyotarou’s previous illustration featuring other evil minds from Dragon Ball
+---------
+
+# 8 Fantasy Movie Remakes Nobody Asked For
+
+Movies, Fantasy
+
+Sat, 30 May 2026 20:00:14 GMT
+
+https://www.cbr.com/fantasy-movie-remakes-nobody-asked-for-list/
+
+Fantasy movies can leave a huge mark on audiences, but when they're remade, they don't always hit the same mark.
+---------
+
+# What's Coming to Peacock in June 2026? Everything Arriving Next Month
+
+Movies, Peacock
+
+Sat, 30 May 2026 19:48:44 GMT
+
+https://www.cbr.com/what-coming-peacock-june-2026-full-list/
+
+Summer is starting with a dose of early 2000s nostalgia on Peacock, with two very different franchises: Shrek and Fast and Furious.
+---------
+
+# 10 Best Jean Grey Costumes, Ranked
+
+Comics, jean grey, X-Men, superheroes
+
+Sat, 30 May 2026 19:30:14 GMT
+
+https://www.cbr.com/jean-grey-best-xmen-costumes-ranked-list/
+
+Jean Grey's iconic X-Men costumes showcase her fashion evolution in the comics, symbolizing her character growth and inspiring her looks in X-Men '97.
+---------
+
+# Prime Video's Spider-Noir Ends Spider-Man's Live-Action TV Drought
+
+TV, Prime Video, Spider-Noir, Spider-Man
+
+Sat, 30 May 2026 19:30:14 GMT
+
+https://www.cbr.com/prime-video-spider-noir-end-live-action-spider-man-tv-drought/
+
+Prime Video's Spider-Noir is finally here and has ended a Spider-Man TV trend that has gone on for almost 50 years.
+---------
+
+# 5 Best Book-to-Movie Adaptations of the 2010s, Ranked
+
+Movies, Drama, books, The Social Network
+
+Sat, 30 May 2026 19:30:14 GMT
+
+https://www.cbr.com/best-book-to-movie-adaptations-2010s-list/
+
+These masterpiece book adaptations took movie fans by storm in the 2010s.
+---------
+
+# 4 Anime Villains Smarter Than Light Yagami
+
+Anime, Death Note, Dr. Stone, Hunter x Hunter, Monster
+
+Sat, 30 May 2026 19:15:13 GMT
+
+https://www.cbr.com/anime-villains-smarter-than-light-yagami-death-note/
+
+Light Yagami's days of mental superiority are over because some anime villains are way ahead in the game.
+---------
+
+# Jamie Lee Curtis Announces Death of Actress Sister Kelly Lee Curtis
+
+Movies, obituary
+
+Sat, 30 May 2026 19:10:39 GMT
+
+https://www.cbr.com/kelly-lee-curtis-dead/
+
+Kelly Lee Curtis, the eldest daughter of Tony Curtis and Janet Leigh, has passed away.
+---------
+
+# Clint Eastwood's Unforgiven Is the Anti-Tombstone
+
+Movies, Western, Unforgiven, Tombstone
+
+Sat, 30 May 2026 19:00:14 GMT
+
+https://www.cbr.com/clint-eastwood-western-unforgiven-anti-tombstone/
+
+Released one year before Tombstone, Clint Eastwood's Unforgiven is a bleak and brutal critique of Western tropes
+---------
+
+# 32 Years Later, Quentin Tarantino’s Cult Classic Crime Epic Still Owns Late-Night Streaming
+
+Movie News, Pulp Fiction, Quentin Tarantino, Samuel L. Jackson, The Adventures of Cliff Booth
+
+Sat, 30 May 2026 20:00:15 GMT
+
+https://collider.com/quentin-tarantino-cult-classic-crime-epic-pulp-fiction-streaming-success-paramount-plus-peacock-may-2026/
+
+Pulp Fiction, Quentin Tarantino's most popular movie, is charting on streaming before his next film, The Adventures of Cliff Booth, arrives in IMAX.
+---------
+
+# Only 3 Fantasy Movies Have Better Visual Effects Than The Lord of the Rings
+
+Movie, The Lord of the Rings, Doctor Strange, Pirates of the Caribbean: Dead Man's Chest, Avatar: Fire and Ash
+
+Sat, 30 May 2026 19:36:14 GMT
+
+https://collider.com/fantasy-movies-better-visual-effects-than-lord-of-the-rings/
+
+The Lord of the Rings trilogy marked a before and after in VFX in the industry, but fantasy movies like Avatar: Fire and Ash have surpassed it since.
+---------
+
+# Cillian Murphy’s Intense WWII Survival Thriller Is Finding a New Streaming Home
+
+Movie News, Cillian Murphy, Jamie Dornan, World War II, Netflix
+
+Sat, 30 May 2026 19:01:14 GMT
+
+https://collider.com/cillian-murphy-wwii-survival-thriller-anthropoid-coming-to-netflix-june-2026/
+
+Cillian Murphy’s underseen WW2 thriller Anthropoid is coming to Netflix soon. Find out more about the epic here.
+---------
+
+# Forget 'The Office,' Hulu's Overlooked Comedy Series Is the Perfect Rewatch Every Single Time
+
+TV Features, Superstore, NBC, America Ferrera, Ben Feldman
+
+Sat, 30 May 2026 18:38:15 GMT
+
+https://collider.com/comedy-series-like-the-office-superstore-rewatch/
+
+Superstore is an underrated series filled with heart, humor, and serious topics that make it a perfect comfort watch for fans of The Office.
+---------
+
+# 12 Great Star Wars Fan Films That Nearly Outshine the Movies
+
+Movie Lists, Star Wars
+
+Sat, 30 May 2026 20:00:20 GMT
+
+https://movieweb.com/great-star-wars-fan-films/
+
+Star Wars fans have been making their own fan films since the franchise began. These standout projects would make George Lucas proud.
+---------
+
+# Scariest 'Courage the Cowardly Dog' Episodes, Ranked
+
+TV Lists, Courage the Cowardly Dog
+
+Sat, 30 May 2026 20:00:20 GMT
+
+https://movieweb.com/courage-the-cowardly-dog-scariest-episodes/
+
+Every episode of 'Courage the Cowardly Dog' was terrifying in some way, but these are some of the scariest.
+---------
+
+# The Stephen King Movie & TV Multiverse, Explained
+
+Features, Stephen King, Horror, Fantasy, Sci-Fi
+
+Sat, 30 May 2026 19:31:20 GMT
+
+https://movieweb.com/stephen-king-shared-universe-movies-tv-shows/
+
+While not official, there is a very obvious multiverse in Stephen King's movies and TV shows, which connects many of his stories together.
+---------
+
+# I Watched Every Coen Brothers Movie - This Is Their Greatest Hidden Gem
+
+Features, The Man Who Wasn't There, Thriller, Cultural Reassessment, Coen Brothers
+
+Sat, 30 May 2026 19:00:20 GMT
+
+https://movieweb.com/coen-brothers-movies-man-who-wasnt-there/
+
+In a filmography of classics, one underrated crime thriller masterpiece flew under the radar. It's time to do justice to a fantastic movie.
+---------
+
 # 27 Years Later, One Of Buffy’s Worst Episodes Has Aged Like Milk
 
 TV, Buffy The Vampire Slayer
