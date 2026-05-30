@@ -1,3 +1,256 @@
+# Prime Video's Hit Action Franchise Is So Good, It Already Has 5 Different Shows
+
+Streaming TV, Masked Recs
+
+Sat, 30 May 2026 23:30:20 GMT
+
+https://screenrant.com/the-boys-prime-video-franchise-shows-good/
+
+Prime Video has so much faith in The Boys universe that it already has three shows, including the flagship, with another two spinoffs on the way.
+---------
+
+# Five Years Later, Star Trek Finally Makes A Fan-Favorite Couple Official
+
+Comics, Star Trek, Star Trek Lower Decks
+
+Sat, 30 May 2026 23:30:20 GMT
+
+https://screenrant.com/star-trek-lower-decks-mariner-jennifer-canon-relationship/
+
+So cool.
+---------
+
+# 10 Best New Movies Coming To Netflix In June 2026
+
+Movies, Netflix
+
+Sat, 30 May 2026 23:27:35 GMT
+
+https://screenrant.com/netflix-best-new-movies-june-2026/
+
+Netflix's new movies in June 2026 include many exciting franchises, high-profile Netflix Original movies, and several stars that audiences love.
+---------
+
+# Star City Review: Apple TV's First Shared Universe Is Off To A Spectacular Start
+
+Streaming TV, Star City
+
+Sat, 30 May 2026 23:19:47 GMT
+
+https://screenrant.com/star-city-tv-review/
+
+Star City has broken the mold for Apple TV as they enter the world of expanded universes, but this show stands out on its own as a stellar spy drama.
+---------
+
+# Before Reacher’s 2026 Return, Netflix’s 9-Part Crime Thriller Flipped Its Genre Formula
+
+Streaming TV, Masked Recs
+
+Sat, 30 May 2026 23:15:21 GMT
+
+https://screenrant.com/reacher-jo-nesbo-detective-hole-netflix-flips-genre/
+
+Reacher is all set to return to Prime Video in 2026, but before its season 4’s premiere, an 8-part Netflix thriller has flipped its genre formula.
+---------
+
+# Backrooms Star Renate Reinsve's 8 Best Performances, Ranked
+
+Movies, Renate Reinsve, Backrooms
+
+Sat, 30 May 2026 23:15:21 GMT
+
+https://screenrant.com/backrooms-renate-reinsves-8-best-performances-ranked/
+
+From The Worst Person in the World to Sentimental Value, Renate Reinsve has already built up one of the best bodies of work in Hollywood.
+---------
+
+# That Time I Got Reincarnated as a Slime Is Back To Raise The Bar For Every Crunchyroll Isekai
+
+Anime, Crunchyroll, That Time I Got Reincarnated as a Slime
+
+Sat, 30 May 2026 23:00:21 GMT
+
+https://screenrant.com/that-time-reincarnated-as-slime-back-season-4-crunchyroll-best-isekai/
+
+After a rocky third season, That time I Got Reincarnated as a Slime is back and better than ever, showing why it's Crunchyroll's favorite isekai.
+---------
+
+# The Testaments Introduces Its Replacement For The Handmaid's Tale's Janine
+
+Streaming TV, The Testaments
+
+Sat, 30 May 2026 23:00:21 GMT
+
+https://screenrant.com/the-testaments-becka-janine-replacement-handmaids-tale/
+
+In The Handmaid's Tale, the character of Janine had a particular impact on Aunt Lydia. In The Testaments, another girl is following in her footsteps.
+---------
+
+# GTA 6 Online Gameplay Teaser Has Fans Seriously Hyped
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto Online, Triple-A Games
+
+Sat, 30 May 2026 23:00:21 GMT
+
+https://screenrant.com/gta-6-online-gameplay-teaser-gamers-react/
+
+Grand Theft Auto 6 has not revealed explicit gameplay beyond cinematics and possible transitions, but GTA Online may have been revealing it all along.
+---------
+
+# 7 One Piece Mysteries Oda Is Dragging Out Too Long
+
+Anime, One Piece
+
+Sat, 30 May 2026 23:45:13 GMT
+
+https://www.cbr.com/one-piece-mysteries-taking-too-long/
+
+These One Piece secrets have lingered in the background far longer than most fans expected.
+---------
+
+# Apple TV Launches 10/10 Sci-Fi Thriller & It's an Instant Streaming Hit
+
+TV, Star City
+
+Sat, 30 May 2026 23:30:13 GMT
+
+https://www.cbr.com/star-city-streaming-apple-tv-june-2026/
+
+A must-see sci-fi series has just launched to instant success on Apple TV.
+---------
+
+# Spider-Man: Brand New Day Officially Teases Venom’s MCU Debut
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 30 May 2026 23:30:13 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-venom-mcu-debut/
+
+Fans are desperate to see Spider-Man battle Venom in the MCU, and one scene from Brand New Day might make this even more likely.
+---------
+
+# 10 Strongest Demon Slayer Hashira, Officially Ranked
+
+Anime, Demon Slayer, Shonen, Demon Slayer: Kimetsu no Yaiba, shonen anime
+
+Sat, 30 May 2026 23:15:13 GMT
+
+https://www.cbr.com/strongest-demon-slayer-hashira-ranked/
+
+The Hashira are the very best the Demon Slayer Corps have to offer, but which one is the best?
+---------
+
+# Beavis and Butt-Head's Newest Episodes Finally Set for Streaming Debut
+
+TV, Beavis and Butt-Head
+
+Sat, 30 May 2026 23:00:14 GMT
+
+https://www.cbr.com/mike-judges-beavis-and-butthead-season-3-paramount-plus/
+
+Fans have been waiting for Mike Judge's Beavis and Butt-Head's newest season to hit streaming after first airing on Comedy Central.
+---------
+
+# Steam Officially Makes 2 Games 100% Free to Keep for a Limited Time
+
+Games, Steam
+
+Sat, 30 May 2026 22:56:43 GMT
+
+https://www.cbr.com/steam-2-free-games-june-2026/
+
+Steam users can download two games to keep forever if they add it to their gaming library before the imminent deadline.
+---------
+
+# The HBO War Miniseries That Set a New Streaming Standard Is Still Finding Viewers 25 Years Later
+
+TV Features, Band of Brothers, HBO, Tom Hanks, Steven Spielberg
+
+Sat, 30 May 2026 23:53:14 GMT
+
+https://collider.com/best-hbo-war-miniseries-band-of-brothers-streaming-apple-tv-store/
+
+HBO's acclaimed war miniseries Band of Brothers remains a standout 25 years later for its cinematic quality and historical accuracy.
+---------
+
+# 12 Years Later, Liam Neeson’s Best Thriller Since ‘Taken’ Is Finding New Life on Streaming
+
+Movie News, Liam Neeson, Scott Frank, A Walk Among The Tombstones, Prime Video
+
+Sat, 30 May 2026 23:46:14 GMT
+
+https://collider.com/liam-neeson-taken-replacement-thriller-a-walk-among-the-tombstones-coming-to-prime-video-june-2026/
+
+Liam Neeson's slick neo-noir movie, A Walk Among the Tombstones, is coming to Prime Video. Here's when you can watch it.
+---------
+
+# Monty Python Meets 'The Princess Bride' in This Near-Perfect 2-Part Fantasy Series
+
+TV Features, Galavant, ABC, Fantasy, Prime Video
+
+Sat, 30 May 2026 23:37:15 GMT
+
+https://collider.com/most-underrated-fantasy-series-galavant/
+
+Despite its cancellation, Galavant offers a compelling story and memorable characters that make it a must-watch for fantasy fans.
+---------
+
+# Daniel Radcliffe’s Wild A24 Fantasy Is the Perfect Late-Night Streaming Adventure
+
+Movie News, Harry Potter, A24, Swiss Army Man, Plex
+
+Sat, 30 May 2026 23:30:13 GMT
+
+https://collider.com/daniel-radcliffe-a24-fantasy-movie-swiss-army-man-streaming-on-plex-june-2026/
+
+The bonkers A24 movie Swiss Army Man, starring Daniel Radcliffe and Paul Dano, is coming to a new streamer. Read on for more.
+---------
+
+# This 98-Minute Pamela Anderson Cult Classic Is the Perfect Late-Night Streaming Watch
+
+Movie News, Barb Wire, Pamela Anderson, Prime Video, Superhero
+
+Sat, 30 May 2026 23:16:14 GMT
+
+https://collider.com/pamela-anderson-superhero-cult-classic-barb-wire-coming-to-prime-video-june-2026/
+
+Pamela Anderson's forgotten superhero bomb, Barb Wire, is coming to Prime Video soon. Here's when you can watch it.
+---------
+
+# 'Backrooms' Star's Devastating Thriller Uncovers the Perfect Free Streaming Home
+
+Movie News, Nicole Kidman, Thriller, Secret in Their Eyes, Plex
+
+Sat, 30 May 2026 23:00:14 GMT
+
+https://collider.com/nicole-kidman-chiwetel-ejiofor-thriller-secret-in-their-eyes-free-streaming-plex-june-2026/
+
+Chiwetel Ejiofor's emotional thriller Secret in Their Eyes is coming to a new streamer next month. Here's what you should know.
+---------
+
+# Netflix's Award Winning 'John Wick'-Esque Action Thriller
+
+TV News, Sakamoto Days, Netflix, Streaming Recommendations, Action, John Wick
+
+Sat, 30 May 2026 23:02:54 GMT
+
+https://movieweb.com/sakamoto-days-netflix-john-wick-action-anime-awards/
+
+Netflix subscribers need to watch the best 'John Wick'-like action thriller on streaming, 'Sakamoto Days.'
+---------
+
+# Mike Flanagan's Masterpiece Thriller is the Perfect Netflix Binge-Watch
+
+Features, The Haunting of Hill House, Mike Flanagan, Netflix
+
+Sat, 30 May 2026 23:00:20 GMT
+
+https://movieweb.com/haunting-of-hill-house-netflix-binge-watch/
+
+Mike Flanagan has five Netflix thriller series: The Haunting of Hill House, The Haunting of Bly Manor, The Midnight Club, and Midnight Mass.
+---------
+
 # Netflix's Complex 8-Part Sci-Fi Series Can Only Get Better In Season 2
 
 Streaming TV, Masked Recs
