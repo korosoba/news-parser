@@ -1,3 +1,333 @@
+# Red Dead Redemption 2 Free Download Officially Up For 48 More Hours
+
+Gaming, Red Dead Redemption 2
+
+Sat, 30 May 2026 04:45:20 GMT
+
+https://screenrant.com/red-dead-redemption-2-june-2026-online-freebie-48-hours/
+
+Rockstar's Red Dead Online is giving players the chance to earn free limited-time cosmetics during The Naturalist event in May and June.
+---------
+
+# Cyberpunk 2077 Prequel Official Teaser Has Gamers Losing It
+
+Gaming, Cyberpunk 2077
+
+Sat, 30 May 2026 04:30:19 GMT
+
+https://screenrant.com/cyberpunk-2077-prequel-edgerunners-gamers-react/
+
+Get a first look at the standalone sequel to the critically acclaimed Cyberpunk Edgerunners anime, set to premiere at Anime Expo 2026.
+---------
+
+# Xbox Makes 2 Iconic Games Free For Next 24 Hours
+
+Gaming, Xbox, Indie Games
+
+Sat, 30 May 2026 04:15:19 GMT
+
+https://screenrant.com/xbox-2-free-games-24-hours-may-2026/
+
+Xbox has made two classic games completely free, but you'll have to act fast because they're only available for a very limited time.
+---------
+
+# Fallout 4: Beast Hunter Is An Unexpected Official DLC You Can Play Free
+
+Gaming, Fallout 4, Fallout
+
+Sat, 30 May 2026 04:00:30 GMT
+
+https://screenrant.com/fallout-4-beast-hunter-official-creation-club-mod/
+
+Fallout 4: Beast Hunter is an ambitious download that adds an entirely original storyline to the beloved RPG.
+---------
+
+# Sony's New Spider-Man Spinoff Makes Morbius And Madame Web Even Worse
+
+Superheroes, Spider-Noir, Morbius, Madame Web, Spider-Man, Marvel Cinematic Universe
+
+Sat, 30 May 2026 03:39:25 GMT
+
+https://screenrant.com/spider-noir-makes-morbius-and-madame-web-even-worse-op-ed/
+
+Without a doubt, Sony's latest Spider-Man spin-off has managed to make Morbius and Madame Web look even worse (which is quite the feat).
+---------
+
+# Netflix's Upcoming Action Thriller Is Taken Meets Mercy For None
+
+Anime, Netflix, Masked Recs
+
+Sat, 30 May 2026 03:31:22 GMT
+
+https://screenrant.com/netflix-action-thriller-taken-mercy-for-none-agent-kim-reactivated/
+
+So Ji-sub is back in this glorious action thriller where an unassuming father tears apart his enemies in search of his daughter.
+---------
+
+# 10 Strongest Naruto Techniques That Belong In Dragon Ball
+
+Classic TV, Naruto
+
+Sat, 30 May 2026 03:31:22 GMT
+
+https://screenrant.com/strongest-naruto-techniques-belong-in-dragon-ball/
+
+Naruto's power scale doesn't quite match that of Dragon Ball, but its devastating techniques could have easily been pulled from one to the other.
+---------
+
+# HBO’s 10-Part Sci-Fi With Near-Perfect RT Redefined The Post-Apocalyptic Genre
+
+Classic TV, Masked Recs
+
+Sat, 30 May 2026 03:15:21 GMT
+
+https://screenrant.com/station-eleven-post-apocalyptic-genre-redefine/
+
+A 10-episode sci-fi miniseries on HBO, which boasts a near perfect Rotten Tomatoes score of 98%, brilliantly redefined the post-apocalyptic genre.
+---------
+
+# Diablo Meets Dungeons & Dragons In New RPG You Can Play Free Now
+
+Gaming
+
+Sat, 30 May 2026 03:00:21 GMT
+
+https://screenrant.com/steam-free-rpg-demo-dungeons-dragons-meets-diablo/
+
+An upcoming Steam game does a surprisingly good job recreating the feel of a Diablo title in a much more casual setting.
+---------
+
+# Martin Scorsese & Leonardo DiCaprio’s New 2026 Movie Is A Major Genre Switch For Both
+
+Movies, Masked Recs
+
+Sat, 30 May 2026 03:00:21 GMT
+
+https://screenrant.com/martin-scoresese-leonardo-dicaprio-what-happens-night-genre-shift/
+
+Leonardo DiCaprio and Martin Scorsese’s upcoming movie project in 2026 will seemingly mark a major genre change for both the actor and the director.
+---------
+
+# 10 Anime Characters Who Accidentally Became Internet Icons
+
+Anime, One Piece, Jujutsu Kaisen
+
+Sat, 30 May 2026 03:45:13 GMT
+
+https://www.cbr.com/most-iconic-anime-characters-became-memes/
+
+In the age of the internet, many anime characters stumble into massive online fame completely by accident, becoming world-famous internet icons.
+---------
+
+# The 5 Best War Movies of the Last 10 Years, Ranked
+
+Movies, War, 1917, Dunkirk
+
+Sat, 30 May 2026 03:45:13 GMT
+
+https://www.cbr.com/best-war-movies-of-the-last-10-years-list/
+
+War movies like Dunkirk and 1917 have helped define a new era for the genre, and since then, the decade has proven to be truly transformative.
+---------
+
+# Netflix Quietly Erased the Sci-Fi Series 1899
+
+TV, 1899, Netflix, Sci-Fi
+
+Sat, 30 May 2026 03:31:15 GMT
+
+https://www.cbr.com/netflix-1899-sci-fi-show-quietly-erased/
+
+Netflix is no stranger to canceling great shows, but erasing one of its best sci-fi series feels like a crime.
+---------
+
+# Star City Review: For All Mankind's 8-Part Alt-History Spinoff Is a Surprising Win
+
+TV, Star City, Apple TV, For All Mankind
+
+Sat, 30 May 2026 03:24:51 GMT
+
+https://www.cbr.com/star-city-tv-review/
+
+Despite flying under the radar, the first spinoff to For All Mankind breaks ground as a political heart-pounding thriller based in the Soviet Union.
+---------
+
+# It's Officially the End of an Era for Netflix's Enola Holmes Franchise
+
+Movies, Enola Holmes 3, Enola Holmes, Netflix
+
+Sat, 30 May 2026 03:15:13 GMT
+
+https://www.cbr.com/enola-holmes-3-dark-movie-end-of-franchise-era/
+
+With its protagonist growing from a girl into a woman, Enola Holmes 3 is already taking the franchise in a new direction.
+---------
+
+# 10 Most Devastating Anime Moments That Felt Like the End of the World
+
+Anime, Banana Fish, Demon Slayer: Mugen Train, One Piece
+
+Sat, 30 May 2026 03:15:13 GMT
+
+https://www.cbr.com/devastating-anime-moments-world-ending/
+
+Sometimes, the devastation hits so hard in your favorite anime that it actually feels like the end of the world.
+---------
+
+# 10 Best Pokémon Cards to Buy Right Now
+
+Games, Pokemon, Pokemon Trading Card Game, Pokemon TCG
+
+Sat, 30 May 2026 03:15:13 GMT
+
+https://www.cbr.com/official-best-pokmon-cards-to-buy-right-now/
+
+The Pokémon TCG market is ever-changing, but these are the best cards to buy in May 2026.
+---------
+
+# The 3 Greatest Decades in Anime History, Ranked
+
+Anime, Dragon Ball Z, Shonen, mecha, Gundam, toonami
+
+Sat, 30 May 2026 02:15:13 GMT
+
+https://www.cbr.com/3-greatest-decades-in-anime-history/
+
+As much as people love shows like Solo Leveling or Jujutsu Kaisen, anime went through a lot of transformations to get to that point in its history.
+---------
+
+# Nicolas Cage Shares Unfortunate Update on Face/Off 2
+
+Movies, Face/Off 2, Face/Off
+
+Sat, 30 May 2026 02:01:27 GMT
+
+https://www.cbr.com/nicolas-cage-face-off-2-update/
+
+Nicolas Cage reveals what he knows about the long-gestating sequel to Face/Off.
+---------
+
+# 5 Masterpiece Time Travel Movies Better Than Back to the Future
+
+Movies, Sci-Fi
+
+Sat, 30 May 2026 02:00:25 GMT
+
+https://www.cbr.com/time-travel-movies-better-than-back-to-the-future-list/
+
+Back to the Future may be one of the most well-known time travel films, but there are some movies that outshine even that masterpiece.
+---------
+
+# 8 Most Replayable Pokémon Games
+
+TV, Pokémon, Video Game, Pokemon Legends   Arceus, Animation
+
+Sat, 30 May 2026 04:09:13 GMT
+
+https://collider.com/pokemon-games-most-replayable/
+
+Across ten generations and twenty years, Pokémon has released multiple entertaining and beloved video games, but which have the highest replay value?
+---------
+
+# 'For All Mankind' Just Dropped Its Biggest Shocker on Fans Before the Final Season
+
+TV Features, For All Mankind, Cynthy Wu, Apple TV, Sci-Fi
+
+Sat, 30 May 2026 04:02:15 GMT
+
+https://collider.com/for-all-mankind-season-5-finale-kelly-baldwin-death/
+
+For All Mankind's Season 5 finale ends in a major shocker that sets the stage for the next generation to lead humanity.
+---------
+
+# Nicolas Cage Reveals the 21st Century TV Masterpiece That Convinced Him To Do ‘Spider-Noir’
+
+TV Features, Spider-Noir, Nicolas Cage, Breaking Bad, Television
+
+Sat, 30 May 2026 03:46:14 GMT
+
+https://collider.com/nicolas-cage-breaking-bad-21st-century-tv-masterpiece-inspired-spider-noir/
+
+Nicolas Cage cites the masterful 21st century TV series Breaking Bad as something that convinced him Spider-Noir would be worth starring in.
+---------
+
+# 10 Greatest Sci-Fi Movie Masterpieces of the Last 50 Years
+
+Movie, Science Fiction, Blade Runner, Alien, District 9
+
+Sat, 30 May 2026 03:09:14 GMT
+
+https://collider.com/best-sci-fi-movie-masterpieces-last-50-years-ranked/
+
+From Alien and Aliens to The Matrix and Blade Runner, these sci-fi movies released over the last half a century are true masterpieces of the genre.
+---------
+
+# Tina Fey Reveals the Greatest Forgotten 'SNL' Sketch Featuring Will Ferrell
+
+Exclusives, The Four Seasons, Tina Fey, Will Forte, Netflix
+
+Sat, 30 May 2026 02:30:14 GMT
+
+https://collider.com/tina-fey-best-will-ferrell-snl-sketch-the-four-seasons-season-2-interview/
+
+Tina Fey and Will Forte discuss Season 2's big cliffhanger ending, David Tennant's surprise cameo, the potential for Season 3, and more.
+---------
+
+# 'Fire Country's Perfect Season Finale Proves It's Officially Time To Reset the Show
+
+TV Features, Fire Country, Max Thieriot, CBS
+
+Sat, 30 May 2026 01:55:13 GMT
+
+https://collider.com/fire-country-season-4-finale-perfect-reset-show/
+
+Fire Country just had its best season finale ending ever, and it's important the show capitalizes on the ending for a reset in Season 5.
+---------
+
+# 10 Spy Thrillers With the Greatest Action, Ranked
+
+Movie, The Bourne Ultimatum, Thriller, Action, Casino Royale
+
+Sat, 30 May 2026 01:41:15 GMT
+
+https://collider.com/spy-thrillers-great-action-ranked/
+
+Spy thrillers like Casino Royale, The Bourne Ultimatum, and Sicario have some of the best, most explosive action in the history of the subgenre.
+---------
+
+# Netflix’s New 8-Part Sci-Fi Series Hits 35 Million Hours Viewed in 3 Days
+
+TV News, The Boroughs, Duffer Brothers, Sci-Fi, Netflix
+
+Sat, 30 May 2026 01:30:14 GMT
+
+https://collider.com/the-boroughs-netflix-sci-fi-series-viewership-35-million-hours-viewed/
+
+Netflix and the Duffer Brothers' latest sci-fi offering, The Boroughs, is off to an excellent start in terms of viewership. Find out more.
+---------
+
+# Star Wars Creator George Lucas's Oscar-Winning Wife, Marcia Lucas, Dies at 80
+
+Movie News, Marcia Lucas, Star Wars
+
+Sat, 30 May 2026 02:04:14 GMT
+
+https://movieweb.com/marcia-lucas-star-wars-dies-80/
+
+Marcia Lucas, Star Wars creator George Lucas's first wife, passed away in May 2026 at the age of 80.
+---------
+
+# The 10 Most Perfect TV Shows of the Last 10 Years, Ranked
+
+TV Lists, The Pitt, Reacher, Slow Horses
+
+Sat, 30 May 2026 02:00:31 GMT
+
+https://movieweb.com/perfect-tv-shows-last-decade/
+
+These perfect TV shows were released from 2016 to 2026 and are from a range of genres, including sci-fi, drama, comedy, and horror.
+---------
+
 # Alfred Hitchcock’s The Birds Is Getting New TV Remake
 
 TV, The Birds
