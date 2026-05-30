@@ -1,3 +1,333 @@
+# 27 Years Later, One Of Buffy’s Worst Episodes Has Aged Like Milk
+
+TV, Buffy The Vampire Slayer
+
+Sat, 30 May 2026 18:34:21 GMT
+
+https://screenrant.com/buffy-worst-episode-aged-like-milk-reboot-bad/
+
+One of Buffy the Vampire Slayer's most controversial episodes did more harm than good when the iconic '90s horror series tackled a serious issue.
+---------
+
+# 10 Things A24 Needs To Do To Save The Texas Chainsaw Massacre Franchise
+
+Movies, The Texas Chainsaw Massacre
+
+Sat, 30 May 2026 18:05:22 GMT
+
+https://screenrant.com/things-a24-must-save-the-texas-chainsaw-massacre-franchise/
+
+A24 has acquired the rights to the beleaguered Texas Chainsaw Massacre series, and this is what the studio must do to save the franchise.
+---------
+
+# Disney's 2-Part Mystery Series Was Named One Of The Best By Guillermo del Toro
+
+TV, Masked Recs
+
+Sat, 30 May 2026 18:02:22 GMT
+
+https://screenrant.com/gravity-falls-disney-guillermo-del-toro-praise/
+
+Leegendary horror director Guillermo del Toro praised this acclaimed Disney hit, calling it 'one of the best realized, most compelling series around.'
+---------
+
+# The Boys Has Officially Lost Its Throne As Prime Video's Best Superhero Show
+
+Streaming TV, Masked Recs
+
+Sat, 30 May 2026 18:01:21 GMT
+
+https://screenrant.com/spider-noir-prime-video-best-superhero-show-boys-dethroned/
+
+The Boys only just ended its run, but Prime Video already has an even better superhero show: Spider-Noir, starring Nicolas Cage as a webslinging P.I.
+---------
+
+# Naruto's Tragic Backstory Is Nothing Compared To One Piece's Saddest Figure
+
+Anime, One Piece, Naruto
+
+Sat, 30 May 2026 18:01:21 GMT
+
+https://screenrant.com/naruto-tragic-origin-one-piece-anime-robin-better/
+
+While Naruto and Sasuke did have it rough, one child in One Piece lived a lifetime of betrayal and tragedy before finally finding acceptance.
+---------
+
+# 3 Best Shows To Watch On Paramount+ This Weekend (May 29-31)
+
+Streaming TV, Paramount Plus, What to Watch on Paramount+
+
+Sat, 30 May 2026 17:53:22 GMT
+
+https://screenrant.com/best-paramount-plus-shows-watch-weekend-may-30/
+
+The best shows to watch on Paramount+ this weekend, May 29–31, 2026, include two popular Yellowstone spinoffs and a long-running crime series.
+---------
+
+# Prime Video's Batman Show Is So Good, It's Already Renewed For Season 2
+
+Streaming TV, Masked Recs
+
+Sat, 30 May 2026 17:45:17 GMT
+
+https://screenrant.com/batman-caped-crusader-season-2-prime-video-returning-2026/
+
+Prime Video's Batman series is one of the Dark Knight's best recent releases, and it is so good that Bruce Wayne is confirmed to return for season 2.
+---------
+
+# Every Named Viltrumite In Invincible, Ranked From Weakest To Strongest
+
+Comics, Invincible
+
+Sat, 30 May 2026 17:30:20 GMT
+
+https://screenrant.com/invincible-every-named-viltrumite-ranked-weakest-strongest/
+
+The Viltrumite civilization sits atop the power chain. Nonetheless, their place at the top remains guided by a hierarchy of raw strength.
+---------
+
+# There's No Better Time To Buy Nintendo Hardware Than Right Now
+
+Gaming, Nintendo Switch 2, Nintendo, Triple-A Games
+
+Sat, 30 May 2026 17:30:20 GMT
+
+https://screenrant.com/switch-2-best-bundle-2026/
+
+While Nintendo products aren't exactly cheap, if you're remotely considering investing in its hardware, waiting too long will have a major downside.
+---------
+
+# New Brendan Fraser WWII Movie Pressure Earns The Star's Best Box Office Debut In 12 Years
+
+Movies, Box Office, Pressure
+
+Sat, 30 May 2026 17:28:59 GMT
+
+https://screenrant.com/pressure-2026-movie-domestic-box-office-debut-brendan-fraser-record/
+
+Brendan Fraser's World War II movie, Pressure, earns the star his best opening weekend at the domestic box office in more than a decade, since 2014.
+---------
+
+# 10 Thrillers With Zero Predictable Scenes
+
+Movies, Thriller, Gone Girl, Shutter Island
+
+Sat, 30 May 2026 18:30:14 GMT
+
+https://www.cbr.com/thriller-movies-no-predictable-scenes-list/
+
+While the thriller genre has become generic in recent years, some films continue to defy expectations, keeping viewers guessing until the final frame.
+---------
+
+# 10 Manga Series Quietly On Their Way To Becoming the Next Global Phenomenon
+
+Anime, Manga, Sakamoto Days, The Summer Hikaru Died, Delicious in Dungeon, Kagurabachi, Gachiakuta
+
+Sat, 30 May 2026 18:15:14 GMT
+
+https://www.cbr.com/manga-becoming-global-phenomenon/
+
+The next global phenomenon will not just come from sales numbers, but from manga that people constantly discuss, recommend and reinterpret online.
+---------
+
+# After Punisher: One Last Kill, The Punisher’s Future in the MCU Deserves Closer Examination
+
+Comics, The Punisher, Marvel Comics, The Punisher: One Last Kill
+
+Sat, 30 May 2026 18:00:14 GMT
+
+https://www.cbr.com/mcu-punisher-trajectory-examined-comics-roots/
+
+From vigilante to anti-hero, The Punisher gave rise to a new archetype in comics, and quickly rose up in the ranks at Marvel to blockbuster status.
+---------
+
+# Naruto Fans Are Finally Eating Good With New International Release
+
+Anime, Naruto
+
+Sat, 30 May 2026 18:00:14 GMT
+
+https://www.cbr.com/naruto-sasuke-sakura-ramen-bowls-new-release/
+
+Fans of Naruto, Sasuke, & Sakura can now eat out of ramen bowls inspired by the Ichiraku Restaurant from the golden days of the beloved shonen anime.
+---------
+
+# Dustin Hoffman's New R-Rated Crime Thriller Has Critics & Audiences in Agreement on Rotten Tomatoes
+
+Movies, Rotten Tomatoes, Tuner
+
+Sat, 30 May 2026 17:57:58 GMT
+
+https://www.cbr.com/dustin-hoffman-tuner-critics-audiences-rotten-tomatoes/
+
+Although the film isn't getting too much attention online, it has already won over critics and audiences.
+---------
+
+# Spider-Noir Season 2 Gets Uncertain Answer From Nicolas Cage
+
+TV, Spider-Noir
+
+Sat, 30 May 2026 17:57:18 GMT
+
+https://www.cbr.com/spider-noir-season-2-addressed-nicolas-cage/
+
+Nicolas Cage comments on Spider-Noir getting a second season on Prime Video.
+---------
+
+# The 20 Darkest The Far Side Comics
+
+Comics, The Far Side
+
+Sat, 30 May 2026 17:48:08 GMT
+
+https://www.cbr.com/the-20-darkest-the-far-side-comics/
+
+The Far Side, created by Gary Larson, simply wouldn't be the same without some of the wicked, dark comics that define the series as a whole.
+---------
+
+# Backrooms Director Officially Confirms Franchise Plans Amid Record-Breaking Opening Weekend
+
+Movies, The Backrooms
+
+Sat, 30 May 2026 17:34:24 GMT
+
+https://www.cbr.com/backrooms-kane-parsons-franchise-plans/
+
+Director Kane Parsons opens up about his plans for the future of The Backrooms following the film's record-breaking opening weekend at the box office.
+---------
+
+# 10 Most Perfect Games of the Last 10 Years
+
+Games, Video Games, The Legend of Zelda, Elden Ring, Final Fantasy
+
+Sat, 30 May 2026 17:15:13 GMT
+
+https://www.cbr.com/most-perfect-games-of-last-10-years/
+
+The last ten years have brought gaming to new heights of perfection, with both new additions to classic franchises, and entirely original epic titles.
+---------
+
+# What's the Greatest Sci-Fi Movie of the 21st Century? Surely It's One of These 10 Films
+
+Movie, Sci-Fi, Blade Runner 2049, Children of Men, Arrival
+
+Sat, 30 May 2026 18:28:15 GMT
+
+https://collider.com/best-sci-fi-movies-21st-century/
+
+From Interstellar to Arrival, these sci-fi masterpieces make the “best of the century” argument gloriously impossible.
+---------
+
+# HBO Max’s Forgotten 4-Part Fantasy Series Is So Good, You Can Rewatch It Multiple Times
+
+TV Features, Doom Patrol, HBO Max, Brendan Fraser, DC
+
+Sat, 30 May 2026 18:27:15 GMT
+
+https://collider.com/hbo-max-doom-patrol-fantasy-series-rewatch/
+
+HBO Max's Doom Patrol combines wild humor with personal character development, making it a perfect choice for multiple rewatches.
+---------
+
+# After 26 Years, Russell Crowe’s Greatest Historical Epic Still Hasn’t Been Topped
+
+Movie News, Gladiator, Russell Crowe, Ridley Scott, Gladiator II
+
+Sat, 30 May 2026 18:00:15 GMT
+
+https://collider.com/russell-crowe-best-historical-epic-gladiator-streaming-success-paramount-plus-may-2026/
+
+Russell Crowe's most ambitious historical epic, Gladiator, still hasn't been matched in the 26 years since it was released in theaters.
+---------
+
+# 8 International Thrillers You'll Wish You Watched Sooner
+
+Movie, Thriller, Sirat, The Guilty, The Invisible Guest
+
+Sat, 30 May 2026 17:58:15 GMT
+
+https://collider.com/best-international-thrillers-underrated/
+
+The Guilty, A Hard Day, Marshland, Sirāt, Confessions, and more make up our list of the best international thrillers you'll wish you watched sooner.
+---------
+
+# All 4 Dark James Bond Movie Endings, Ranked Worst to Best
+
+Movie, Casino Royale, James Bond, No Time to Die, Skyfall
+
+Sat, 30 May 2026 17:52:14 GMT
+
+https://collider.com/darkest-james-bond-movie-endings/
+
+Only 4 movies in the James Bond series, including Casino Royale and Skyfall, have downbeat endings. We've ranked them all from best to worst.
+---------
+
+# Christian Bale's Greatest Performance Is in a Spielberg WWII Drama You've Never Heard Of
+
+Movie Features, Christian Bale, Empire of the Sun, Steven Spielberg, War
+
+Sat, 30 May 2026 17:28:15 GMT
+
+https://collider.com/steven-spielberg-ww2-movies-empire-of-the-sun-christian-bale/
+
+Christian Bale is an undeniable force in Empire of the Sun, an overlooked WWII movie from Steven Spielberg that remains a masterpiece.
+---------
+
+# 10 Great Disney Channel Shows That No One Remembers
+
+TV, Disney Channel, Andi Mack, K.C. Undercover, Phil of the Future
+
+Sat, 30 May 2026 17:19:15 GMT
+
+https://collider.com/disney-channel-shows-no-one-remembers/
+
+K.C. Undercover, Andi Mack, A.N.T. Farm, and Phil of the Future are a handful of great Disney Channel TV shows that not many people remember.
+---------
+
+# Steven Spielberg Summed Up His Entire Career With One Perfect Movie Quote
+
+Features, The Fabelmans, Steven Spielberg, Great Line
+
+Sat, 30 May 2026 18:30:20 GMT
+
+https://movieweb.com/the-fabelmans-steven-spielberg-quote/
+
+Steven Spielberg has made some of the most popular movies of the past few decades, from 'E.T.' to 'Jurassic Park,' and one film sums up his career.
+---------
+
+# The 14 Greatest 'The Far Side' Comics of the '90s
+
+Movie Lists, The Far Side
+
+Sat, 30 May 2026 18:30:20 GMT
+
+https://movieweb.com/far-side-best-90s/
+
+These are the best comics celebrating Gary Larson's creative peak in his final decade, and why the comic's conclusion hit fans so hard in 1995.
+---------
+
+# 'Reacher' Spin-Off May Have Already Been Ruined by Unavoidable Leak
+
+Features, Neagley, Reacher
+
+Sat, 30 May 2026 18:00:19 GMT
+
+https://movieweb.com/reacher-spin-off-neagley-leak/
+
+A recent leak has revealed a key detail about the upcoming 'Reacher' spin-off, which could harm the show before it's even premiered.
+---------
+
+# Taylor Sheridan's Near-Perfect Western Is Already Confirmed To Run for Years
+
+Features, Taylor Sheridan, The Madison, Western
+
+Sat, 30 May 2026 17:31:22 GMT
+
+https://movieweb.com/taylor-sheridan-the-madison-renewed-two-seasons/
+
+Taylor Sheridan is a modern Western master, and one of his latest projects is breaking records that 'Yellowstone' never touched.
+---------
+
 # Star Wars' New Jedi Order Officially Ignores Disney's Canon
 
 Streaming TV, Star Wars, Masked Recs
