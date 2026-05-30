@@ -1,3 +1,256 @@
+# George Lucas' Best Plot Twist Is Even More Surprising Thanks To This Weird Star Wars Fact
+
+Movies, Star Wars
+
+Sat, 30 May 2026 14:40:20 GMT
+
+https://screenrant.com/star-wars-darth-vader-plot-twist-name-surprising/
+
+The Empire Strikes Back has one of the greatest movie plot twists of all time, but one lesser-known aspect of this twist makes it even more shocking.
+---------
+
+# Why Repo! The Genetic Opera Couldn’t Be Made Today Explained By Director
+
+Movies, Repo! The Genetic Opera
+
+Sat, 30 May 2026 14:34:31 GMT
+
+https://screenrant.com/repo-the-genetic-opera-not-possible-today-darren-lynn-bousman/
+
+Exclusive: Repo! The Genetic Opera director Darren Lynn Bousman explains why the gory horror-musical couldn’t be made in today’s Hollywood.
+---------
+
+# Prime Video's 8-Part Fantasy Series Is The Perfect Weekend Binge For Dungeon Crawler Carl Fans
+
+Streaming TV, Masked Recs
+
+Sat, 30 May 2026 14:30:21 GMT
+
+https://screenrant.com/the-mighty-nein-weekend-watch-prime-video-dungeon-crawler-carl/
+
+The wait is still on for the live-action Dungeon Crawler Carl series, but Prime Video's The Mighty Nein is a perfect binge-watch that's available now.
+---------
+
+# The Legend Of Zelda 40th Anniversary HD Collection Unites Gamers
+
+Gaming, The Legend of Zelda
+
+Sat, 30 May 2026 14:30:21 GMT
+
+https://screenrant.com/zelda-40th-anniversary-hd-collection-gamer-hopes/
+
+The Legend of Zelda is celebrating a big birthday this year, and we could be due some big announcements to go with it.
+---------
+
+# This Classic Series Only Became Iconic When It Switched Genres Three Seasons In
+
+TV, Masked Recs
+
+Sat, 30 May 2026 14:15:20 GMT
+
+https://screenrant.com/mash-show-genre-change-sitcom-dramedy-classic/
+
+A hit medical drama only became a classic series when it completely switched genres after three seasons, and broke a major television rule.
+---------
+
+# Dexter: Resurrection Season 2 Goes Global With Unusual Filming Location
+
+TV, Dexter: Resurrection
+
+Sat, 30 May 2026 14:14:24 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-marcos-siega-istanbul-production/
+
+Dexter: Resurrection is taking the kill room around the world as director and producer Marcos Siega scouts a potential and unusual filming location.
+---------
+
+# Netflix's New 8-Part Duffer Bros Sci-Fi Series With 95% RT Score Conquers Stranger Things Season 5's Flaw
+
+TV, Masked Recs
+
+Sat, 30 May 2026 14:07:14 GMT
+
+https://screenrant.com/netflix-the-boroughs-stranger-things-deaths-comparison/
+
+Netflix's new Sci-Fi series from the creators of Stranger Things defeats the streaming juggernaut's season 5 in a controversial element.
+---------
+
+# Iconic Star Wars Editor Marcia Lucas Dies At 80
+
+Movies, Star Wars
+
+Sat, 30 May 2026 14:05:46 GMT
+
+https://screenrant.com/marcia-lucas-death-obituary/
+
+Marcia Lucas, the former wife of George Lucas, who is known for editing Star Wars and making invaluable contributions, has died at 80 years old.
+---------
+
+# Ichi the Witch Is Officially Shonen Jump's Next Black Clover-Level Mega Hit
+
+Anime, Shonen Jump
+
+Sat, 30 May 2026 14:00:20 GMT
+
+https://screenrant.com/shonen-jump-ichi-the-witch-next-black-clover-hit/
+
+Weekly Shonen Jump's next Black Clover level mega hit is officially here, with the Ichi the Witch manga selling a record amount of copies.
+---------
+
+# Netflix's Canceled 8-Part Paranormal Drama With Rare Perfect Rotten Tomatoes Score Deserved Stranger Things' Success
+
+Streaming TV, Masked Recs
+
+Sat, 30 May 2026 14:00:20 GMT
+
+https://screenrant.com/lockwood-co-netflix-deserved-stranger-things-success/
+
+Three years ago, Netflix canceled one of its best book adaptations, a show that deserved just as much acclaim and success as Stranger Things.
+---------
+
+# Amazon's Next Hit Adaptation Powerless Shows Game of Thrones How It's Done
+
+TV, Game Of Thrones, Prime Video, Fantasy
+
+Sat, 30 May 2026 14:31:14 GMT
+
+https://www.cbr.com/amazon-powerless-challenges-hbo-game-of-thrones/
+
+Amazon's latest fantasy adaptation has a captivating premise, strong source material, and could dethrone HBO as the king of fantasy TV.
+---------
+
+# The Most Important Dragon Ball Bloodlines, Ranked
+
+Anime, Dragon Ball
+
+Sat, 30 May 2026 14:15:13 GMT
+
+https://www.cbr.com/dragon-ball-most-important-families-ranked/
+
+These families have changed the Dragon Ball universe on dozens of occasions.
+---------
+
+# Travis Knight Says Masters Of The Universe Was Built By A Real He-Man Fan
+
+Movies, Masters of the Universe
+
+Sat, 30 May 2026 14:02:13 GMT
+
+https://www.cbr.com/video/travis-knight-says-masters-of-the-universe-was-built-by-a-real-he-man-fan/
+
+Travis Knight says Masters of the Universe was made by someone who truly loves He-Man and Eternia.The director of Masters of the Universe tells us what it's like adapting the iconic franchise, embracing the series’ 1980s roots and building a fantasy blockbuster with real emotional weight. Knight explains how Flash Gordon inspired the movie’s tone and soundtrack, why Brian May playing on the score felt surreal and how the film balances goofy fantasy fun with heartfelt themes about identity and self-acceptance. He also opens up about possible future stories in Eternia, reveals that he already has dream casting ideas for additional characters and explains why this movie needed to stand on its own first.
+---------
+
+# Transformers Rolls Out Like Never Before in New Official 40th Anniversary Release
+
+Anime, Transformers, merchandise, The Transformers: The Movie, The Transformers
+
+Sat, 30 May 2026 14:00:13 GMT
+
+https://www.cbr.com/transformers-official-stern-pinball-machine/
+
+40 years later, Transformers fans can relive the original cartoon through new Stern Pinball machines that truly "transform" the gaming experience.
+---------
+
+# Netflix's Jurassic World: Camp Cretaceous Still Outshines the Movies
+
+TV, Jurassic Park, Jurassic World: Camp Cretaceous, Netflix
+
+Sat, 30 May 2026 13:30:12 GMT
+
+https://www.cbr.com/jurassic-world-camp-cretaceous-better-than-jurassic-world-movies/
+
+One Netflix dinosaur series outshines the show's franchise films in several ways, making it a must-watch for dino fans.
+---------
+
+# 6 Anime That Tried to Copy Cowboy Bebop and Missed the Point
+
+Anime, Cowboy Bebop, Black Cat
+
+Sat, 30 May 2026 13:15:12 GMT
+
+https://www.cbr.com/anime-that-failed-to-copy-cowboy-bebop/
+
+These anime borrowed some of the style of Cowboy Bebop without understanding what made the series special.
+---------
+
+# A24’s New Horror Movie Is an Instant Box Office Mega-Hit
+
+Movie News, Backrooms, John Wick, Box Office, Renate Reinsve
+
+Sat, 30 May 2026 14:47:59 GMT
+
+https://collider.com/a24-horror-movie-backrooms-box-office-38-million/
+
+A24’s Backrooms has all the makings of a breakout horror hit, already passing the first John Wick in its very first weekend.
+---------
+
+# Legendary 'Star Wars' Editor Marcia Lucas Dead at 80
+
+Movie News, Star Wars, Star Wars: Episode IV - A New Hope, George Lucas
+
+Sat, 30 May 2026 14:44:23 GMT
+
+https://collider.com/star-wars-editor-marcia-lucas-dead-at-80-george-lucas-former-wife/
+
+Marcia Lucas, the legendary editor of the original Star Wars trilogy and American Graffiti, has died at the age of 80.
+---------
+
+# 10 Star Wars Characters Who Could Easily Lead a Solo Movie
+
+Movie, Star Wars, The Mandalorian and Grogu, Solo: A Star Wars Story, Rogue One: A Star Wars Story
+
+Sat, 30 May 2026 14:28:14 GMT
+
+https://collider.com/star-wars-characters-deserve-solo-movies/
+
+From Jedi masters like Qui-Gon Jinn to charismatic pilots like Poe Dameron, these Star Wars characters are interesting enough for their own solo film.
+---------
+
+# 'Dutton Ranch's New Villain Just Got a Lot More Complicated With That Episode 4 Reveal
+
+Exclusives, Dutton Ranch, Annette Bening, Kelly Reilly, Paramount Plus
+
+Sat, 30 May 2026 14:00:13 GMT
+
+https://collider.com/dutton-ranch-episode-4-kelly-reilly-annette-bening-interview/
+
+Dutton Ranch's Kelly Reilly and Annette Bening break down Beth and Beulah's complicated dynamic and the complexity of Beulah's surprising romance.
+---------
+
+# 8 Best Action Movies That Made $1 Billion, Ranked
+
+Movie, Box Office, Rogue One: A Star Wars Story, Skyfall, Action
+
+Sat, 30 May 2026 13:41:14 GMT
+
+https://collider.com/best-action-movies-1-billion-box-office/
+
+Only the biggest of action blockbuster successes manage to surpass the $1 billion mark, including films like Top Gun: Maverick and The Dark Knight.
+---------
+
+# Netflix Wins Streaming War as Most Popular 2026 Shows Officially Revealed
+
+TV News, Netflix, Hulu, Paramount Plus
+
+Sat, 30 May 2026 14:31:24 GMT
+
+https://movieweb.com/netflix-wins-most-popular-2026-shows/
+
+The megastreamer didn't need to buy Warner Bros. after all.
+---------
+
+# 7 Massive Misconceptions About Classic Movies You Probably Believe
+
+Movie Lists
+
+Sat, 30 May 2026 14:00:18 GMT
+
+https://movieweb.com/massive-misconceptions-classic-movies/
+
+From 'The Wizard of Oz' to 'Snow White', even the most beloved classics aren't immune to tall tales and misleading myths.
+---------
+
 # This 7-Part Murder Mystery Drama Made Twin Peaks Look Small
 
 TV, Masked Recs
