@@ -1,3 +1,322 @@
+# Star Wars' New Jedi Order Officially Ignores Disney's Canon
+
+Streaming TV, Star Wars, Masked Recs
+
+Sat, 30 May 2026 17:07:19 GMT
+
+https://screenrant.com/star-wars-ninth-jedi-new-order-ignores-disney-canon/
+
+While Rey Skywalker's New Jedi Order movie has experienced a significant delay in development, another Star Wars story is rebuilding the Jedi Order.
+---------
+
+# The Boys: 25 Strongest Supe Characters, Ranked
+
+Classic TV, The Boys
+
+Sat, 30 May 2026 17:00:22 GMT
+
+https://screenrant.com/boys-strongest-characters-ranked/
+
+The Boys features some pretty crazy strong super-abled characters. Here are the toughest the show has to offer.
+---------
+
+# The Greatest Isekai Anime Of All Time Proves Solo Leveling Doesn't Deserve The Hype
+
+Anime, That Time I Got Reincarnated as a Slime, Solo Leveling
+
+Sat, 30 May 2026 17:00:20 GMT
+
+https://screenrant.com/that-time-reincarnated-slime-best-isekai-anime-solo-leveling-hype/
+
+In just two seasons, Solo Leveling has become one of the most talked about anime series around, but one isekai show might be taking its throne soon.
+---------
+
+# Dark Souls Meets Skyrim In New Fantasy RPG Coming June 2
+
+Gaming, RPG, Steam, PC, Dark Souls, The Elder Scrolls V: Skyrim
+
+Sat, 30 May 2026 17:00:20 GMT
+
+https://screenrant.com/fatekeeper-dark-souls-style-rpg-june-2026-release-date/
+
+June 2 will mark the release of a new fantasy RPG that seems heavily inspired by both Skyrim and Dark Souls, and you won’t want to miss it.
+---------
+
+# 5 Most Underrated James Woods Movies, Ranked By Box Office
+
+Classic Movies, James Woods
+
+Sat, 30 May 2026 16:55:21 GMT
+
+https://screenrant.com/james-woods-movies-underrated-ranked-box-office/
+
+As one of the most interesting actors of his generation, there are plenty of hidden, underrated gems in James Woods vast filmography
+---------
+
+# 10 Horror Film Franchises With The Most Movies, Ranked
+
+Movies, Amityville, Children of the Corn, Friday the 13th, Friday The 13th, Halloween, The Ring, Hellraiser, Horror, Puppet Master, The Grudge, Ju-On: The Grudge
+
+Sat, 30 May 2026 16:55:21 GMT
+
+https://screenrant.com/horror-film-franchises-most-movies-ranked/
+
+Jason, Pinhead, and Sadako are just the beginning. These horror franchises became massive movie sagas with chaotic timelines and endless sequels.
+---------
+
+# Tony Shalhoub Reunites With Monk Creator For Einstein Detective Series
+
+TV, Einstein, Tony Shalhoub
+
+Sat, 30 May 2026 16:49:26 GMT
+
+https://screenrant.com/einstein-tony-shalhoub-cast-andy-breckman-reunion/
+
+After bringing the beloved Monk series to life, star Tony Shalhoub and creator Andy Breckman have reunited for an upcoming detective series.
+---------
+
+# 10 Greatest Non-Disney Animated Movie Villains of All Time, Ranked
+
+Movies, Animation, FernGully: The Last Rainforest, The Secret of NIMH, Chicken Run, The Prince of Egypt, Batman: Mask of the Phantasm, Princess Mononoke, Shrek 2, The Last Unicorn, Puss in Boots: The Last Wish, Wallace & Gromit: The Wrong Trousers
+
+Sat, 30 May 2026 16:41:19 GMT
+
+https://screenrant.com/best-non-disney-animated-movie-villains-ever-ranked/
+
+Everyone remembers Maleficent, Skar, and the Evil Queen, but some of the most iconic villains in animation came from outside of Disney.
+---------
+
+# Skyrim's Surprise Paid DLC Adds 70 New Quests
+
+Gaming, The Elder Scrolls V: Skyrim, PC
+
+Sat, 30 May 2026 16:30:21 GMT
+
+https://screenrant.com/skyrim-paid-dlc-may-2026-gamers-react/
+
+Fans of The Elder Scrolls 5: Skyrim can keep the 15-year-old game going strong with an epic DLC-sized, paid expansion set in the Old Lands.
+---------
+
+# Animal Kingdom True Story: The Real Family That Inspired The 6-Part Crime Drama
+
+Classic TV, Animal Kingdom
+
+Sat, 30 May 2026 16:30:21 GMT
+
+https://screenrant.com/animal-kingdom-true-story-pettingill-crime-family-explained/
+
+TNT's 6-part crime drama Animal Kingdom was based on an Australian movie which was, in turn, inspired by the real-life Pettingill crime family.
+---------
+
+# In Just 1 Day, Netflix's Remake of 45-Year-Old Classic Is the No. 1 Show in America After Stronger Rotten Tomatoes Score
+
+TV, The Four Seasons
+
+Sat, 30 May 2026 17:00:13 GMT
+
+https://www.cbr.com/netflix-the-four-seasons-comedy-season-2-success-may-2026/
+
+The limited series was so successful it led to a Season 2 renewal.
+---------
+
+# A Minecraft Movie Sequel Officially Reveals Title & First Look at Alex
+
+Movies, A Minecraft Movie 2
+
+Sat, 30 May 2026 16:58:33 GMT
+
+https://www.cbr.com/a-minecraft-movie-sequel-title-kirsten-dunst-alex/
+
+A Minecraft Movie 2 unveils its official title along with the first look at Alex's arrival.
+---------
+
+# Prime Video's Upload Is the Perfect Altered Carbon Replacement
+
+TV, Upload, Prime Video, Sci-Fi
+
+Sat, 30 May 2026 16:31:13 GMT
+
+https://www.cbr.com/prime-video-upload-altered-carbon-replacement/
+
+Prime Video’s series turns digital immortality into dark comedy, blending smart sci-fi, relatable characters, and satire for Altered Carbon fans.
+---------
+
+# 5 MCU Heroes Stronger Than The Hulk, Ranked
+
+Movies, MCU, the hulk, superheroes
+
+Sat, 30 May 2026 16:31:13 GMT
+
+https://www.cbr.com/mcu-heroes-stronger-than-hulk-list-ranked/
+
+The Hulk is the strongest there is... with a few key exceptions.
+---------
+
+# The 30 Strongest Naruto Characters of All Time
+
+Anime, Naruto: Shippuden, Naruto
+
+Sat, 30 May 2026 16:31:13 GMT
+
+https://www.cbr.com/naruto-strongest-characters/
+
+Some of Naruto's strongest characters didn't make it to the end of the series, but they certainly left a powerful impression on all who watched.
+---------
+
+# Jujutsu Kaisen’s Gojo Problem Started Long Before the Shibuya Incident
+
+Anime, Jujutsu Kaisen
+
+Sat, 30 May 2026 16:15:13 GMT
+
+https://www.cbr.com/jujutsu-kaisen-gojo-story-problem/
+
+Problems tied to Gojo’s overwhelming presence were visible much earlier in Jujutsu Kaisen.
+---------
+
+# James Gunn Confirms 2 Iconic Villains Are Coming to the DCU Soon
+
+Movies, DC Comics, DCU, Supergirl, Superman, Lanterns, Clayface, The Batman, The Batman Part II, Batman, James Gunn, Peacemaker
+
+Sat, 30 May 2026 16:12:43 GMT
+
+https://www.cbr.com/james-gunn-confirms-2-iconic-villains-are-coming-to-the-dcu-soon/
+
+There's not one, but two, legendary villains on the way to the DCU ... and soon.
+---------
+
+# 10 Greatest Anime War Arcs of All Time
+
+Anime
+
+Sat, 30 May 2026 16:01:13 GMT
+
+https://www.cbr.com/greatest-anime-war-arcs-of-all-time-list/
+
+The best anime war arcs, like the Thousand-Year Blood War arc in Bleach, are action-packed and take the story to new heights.
+---------
+
+# The Phantom Officially Returns For A Thrilling New Sequel
+
+Comics, The Phantom
+
+Sat, 30 May 2026 16:01:13 GMT
+
+https://www.cbr.com/the-phantom-vs-the-singh-brotherhood-release-date-confirmed/
+
+The Phantom's next story is officially giving fans the showdown they have been begging for, and it could be the biggest fight of the Phantom's life.
+---------
+
+# One Piece Anime Studio Wants an Anime Awards Without Crunchyroll
+
+Anime, One Piece, Netflix, Crunchyroll
+
+Sat, 30 May 2026 16:01:13 GMT
+
+https://www.cbr.com/one-piece-wit-studio-anime-awards-without-crunchyroll/
+
+Crunchyroll discourse has risen again in the wake of its tenth Anime Awards, and Wit Studio president calls for a way to honor anime without it.
+---------
+
+# ‘Obsession’ Hides Its Most Twisted Mystery in Plain Sight
+
+Movie Features, Obsession, Curry Barker, Horror, Inde Navarrette
+
+Sat, 30 May 2026 17:09:15 GMT
+
+https://collider.com/obsession-curry-barker-one-wish-willow-customer-service-rep-cameo-analysis/
+
+The customer service representative in Obsession voiced by Curry Barker is one of the scariest and most mysterious aspects.
+---------
+
+# 6 New Crime Shows That Are Perfect From Start to Finish
+
+TV, Crime, Scarpetta, The Breakthrough, The Gold
+
+Sat, 30 May 2026 17:04:15 GMT
+
+https://collider.com/new-crime-shows-perfect-start-to-finish/
+
+Discover how these groundbreaking crime shows are redefining the genre, including new series like Task, Jo Nesbø's Detective Hole, and Scarpetta.
+---------
+
+# 'Spider-Man' Icon Joins the Biggest Video Game Franchise in the World in First Look at Sequel
+
+Movie News, A Minecraft Movie 2, A Minecraft Movie, Kirsten Dunst, Warner Bros.
+
+Sat, 30 May 2026 17:03:48 GMT
+
+https://collider.com/jason-momoa-jack-black-a-minecraft-movie-2-sequel-kirsten-dunst-first-look-title-squared/
+
+Jason Momoa and Jack Black's video game sequel to A Minecraft Movie has an official title and a first look at new cast member Kirsten Dunst.
+---------
+
+# Apple TV's 10-Part Mystery Series Is Officially Taking Over the World
+
+TV News, Matthew Rhys, Widow's Bay, Apple TV, Mystery
+
+Sat, 30 May 2026 17:00:14 GMT
+
+https://collider.com/apple-tv-matthew-rhys-mystery-series-widows-bay-streaming-success-may-2026/
+
+Matthew Rhys' new series receives high praise from critics and becomes a streaming hit. Get all the details about the mysterious Widow's Bay here.
+---------
+
+# 12 Best Lightsaber Designs in ‘Star Wars'
+
+Movie, Star Wars, Sci-Fi, Fantasy, Darth Vader
+
+Sat, 30 May 2026 16:52:14 GMT
+
+https://collider.com/star-wars-lightsaber-designs-best-ranked/
+
+From Darth Maul's double blade to Count Dooku's curved hilt, this is the definitive ranking of the best lightsaber designs in all of Star Wars.
+---------
+
+# The Scariest Movie of 2026 Isn’t 'Backrooms' or 'Obsession'
+
+Movie News, Backrooms, The AI Doc: Or How I Became an Apocaloptimist, Documentary, Sci-Fi
+
+Sat, 30 May 2026 16:40:14 GMT
+
+https://collider.com/scariest-movie-2026-the-ai-doc-streaming-success-peacock-may-2026/
+
+As Backrooms and Obsession dominate theaters, a surprising documentary is proving to be one of the scariest movies on streaming.
+---------
+
+# 10 Greatest Books of the '90s
+
+Movie, Books, Harry Potter and the Philosopher's Stone, Game Of Thrones
+
+Sat, 30 May 2026 16:36:12 GMT
+
+https://collider.com/best-books-90s-ranked/
+
+Seminal fantasies like A Game of Thrones and harrowing memoirs like Angela's Ashes are among the best and most iconic books released during the 1990s.
+---------
+
+# Gore Verbinski’s Near-Perfect Sci-Fi Masterpiece Surges on Streaming After Struggling at the Box Office
+
+Movie News, Gore Verbinski, Sci-Fi, Sam Rockwell, Good Luck, Have Fun, Don't Die
+
+Sat, 30 May 2026 16:10:15 GMT
+
+https://collider.com/gore-verbinski-sci-fi-cult-classic-good-luck-have-fun-dont-die-streaming-success-apple-itunes-may-2026/
+
+Sam Rockwell and Gore Verbinski’s cult classic sci-fi movie just passed a colossal streaming milestone. Read on for more details.
+---------
+
+# 8 DC Characters More Powerful Than Superman
+
+Movie Lists, DCU, Superman
+
+Sat, 30 May 2026 17:00:19 GMT
+
+https://movieweb.com/dc-characters-more-powerful-than-superman/
+
+Superman might be labeled the strongest hero in the DC Universe, but even he would struggle against these characters.
+---------
+
 # 10 Best Underrated Horror Movies On Netflix
 
 Movies, Netflix, Horror, Recommendation
