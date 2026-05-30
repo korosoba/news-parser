@@ -1,3 +1,344 @@
+# Netflix's Complex 8-Part Sci-Fi Series Can Only Get Better In Season 2
+
+Streaming TV, Masked Recs
+
+Sat, 30 May 2026 22:45:22 GMT
+
+https://screenrant.com/3-body-problem-netflix-season-2-get-better/
+
+Netflix is the streaming home of a wonderfully complex 8-part science fiction series that can only get significantly better in its upcoming seasons.
+---------
+
+# Jake Gyllenhaal’s Return In “Massive” Road House 2
+
+Movies, Road House 2, World of Tanks: HEAT, World of Tanks, Jake Gyllenhaal
+
+Sat, 30 May 2026 22:33:45 GMT
+
+https://screenrant.com/road-house-2-jake-gyllenhaal-return-scale-tease-ilya-naishuller/
+
+Exclusive: Jake Gyllenhaal reprises his role in the sequel, Road House 2, and director Illya Naishuller discussed the film's increased scale.
+---------
+
+# 10 Greatest Heroes In High Fantasy
+
+Fantasy
+
+Sat, 30 May 2026 22:30:20 GMT
+
+https://screenrant.com/best-high-fantasy-heroes/
+
+The high fantasy genre is defined by its vast worldbuilding, high stakes, and iconic heroes, who can take many forms, including the unexpected.
+---------
+
+# 21 Years Later, Resurrecting Jason Todd Still Ranks Among DC's Biggest Mistakes
+
+Comics, Batman, Jason Todd, Red Hood
+
+Sat, 30 May 2026 22:30:20 GMT
+
+https://screenrant.com/jason-todd-resurrection-mistake-dc-comics/
+
+DC Comics brought Jason Todd back and never figured out what to do with him.
+---------
+
+# Aquaman: Lord Of The Deep Officially Arrives This November
+
+Gaming, Aquaman, PC, DC
+
+Sat, 30 May 2026 22:30:20 GMT
+
+https://screenrant.com/aquaman-lord-of-the-deep-sideshow-mythos-release/
+
+Aquaman: Lord of the Deep is officially slated to arrive this November, and fans of the iconic superhero will want to mark their calendars.
+---------
+
+# Mushi-shi Silently Changed the Industry, And It’s Officially Been Removed from Streaming
+
+Anime, Mushi-Shi
+
+Sat, 30 May 2026 22:26:44 GMT
+
+https://screenrant.com/mushi-shi-changed-anime-industry-removed-streaming/
+
+Mushi-shi has been removed from major streaming services, highlighting the troubling trend of classic anime becoming unavailable to fans.
+---------
+
+# Finally! Marvel Admitted Past MCU Spider-Man Movies Were Missing Something Crucial
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Sat, 30 May 2026 22:26:20 GMT
+
+https://screenrant.com/marvel-mcu-spider-man-movies-missing-classic-comics/
+
+Kevin Feige's latest comments about Spider-Man: Brand New Day make it clear that Marvel Studios knew the MCU Spidey movies were missing something.
+---------
+
+# Crunchyroll's Latest Romance Anime Is More Than Its Ridiculous Name
+
+Anime, Crunchyroll, Masked Recs
+
+Sat, 30 May 2026 22:00:21 GMT
+
+https://screenrant.com/made-friends-second-prettiest-girl-class-crunchyroll-romance/
+
+There's a new trend of anime series using ridiculous names to get attention, but this new Crunchyroll hit is so much more than a wildly funny name.
+---------
+
+# Grogu's Star Wars Future Without Din Djarin Has An Easy Fix Now
+
+Movies, The Mandalorian and Grogu, Star Wars
+
+Sat, 30 May 2026 22:00:21 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-future-no-din-djarin-rotta-replace/
+
+Din Djarin won't live forever, but Star Wars has already introduced another companion for Grogu that can also be around for hundreds of years.
+---------
+
+# Resident Evil's Best-Selling Game Isn't The One You'd Expect
+
+Gaming, Resident Evil, Triple-A Games, PC
+
+Sat, 30 May 2026 22:00:21 GMT
+
+https://screenrant.com/resident-evil-5-best-selling-game/
+
+The Resident Evil series has been Capcom's golden goose for years, but a recent report reveals one jaw-dropping insight we never saw coming.
+---------
+
+# 8 Most Perfect Thrillers of The 1990s
+
+Movies, Thriller, Fight Club, The Silence of the Lambs
+
+Sat, 30 May 2026 22:30:13 GMT
+
+https://www.cbr.com/most-perfect-thrillers-1990s-list/
+
+These masterpiece 1990s thrillers are perfect from start to finish.
+---------
+
+# 5 Near-Perfect RPGs You Should Play in 2026
+
+Games, Baldur's Gate 3, Elden Ring, Cyberpunk 2077, Video Games, Gaming, RPG
+
+Sat, 30 May 2026 22:15:13 GMT
+
+https://www.cbr.com/near-perfect-rpgs-to-play-2026/
+
+The role-playing game genre has an exceptional line-up of stand-out titles, and players should consider jumping into these fives games in 2026.
+---------
+
+# Xbox Game Pass Confirms 2 More Day One Releases for June 2026
+
+Games, Xbox Series X (1)
+
+Sat, 30 May 2026 22:10:32 GMT
+
+https://www.cbr.com/xbox-game-pass-june-2026-full-list/
+
+Two more day one releases are officially confirmed for the full list of June 2026 additions to Xbox Game Pass.
+---------
+
+# In Just 1 Day, Paramount’s Controversial $214M Slasher Sequel Is Officially the No. 1 Title on Streaming
+
+Movies, Scream, Scream 7
+
+Sat, 30 May 2026 22:00:14 GMT
+
+https://www.cbr.com/scream-7-slasher-paramount-plus-success-may-2026/
+
+After setting franchise records, the new entry is a major hit despite abysmal reviews.
+---------
+
+# Hasbro Reveals New G.I. Joe Comic-Con Exclusive Figures: First Look and Details
+
+Games, G.I. Joe, GI Joe, hasbro, merchandise
+
+Sat, 30 May 2026 22:00:14 GMT
+
+https://www.cbr.com/hasbro-reveals-the-newest-comic-con-exclusive-gi-joe-figures/
+
+A duo of exclusive G.I. Joe: Classified action figures is coming to Comic-Con, and fans of the classic cartoon will instantly recognize the homage.
+---------
+
+# George Kirk's Death is Star Trek's Kelvin Timeline's Best Moment
+
+Movies, Star Trek
+
+Sat, 30 May 2026 22:00:14 GMT
+
+https://www.cbr.com/star-trek-kelvin-timeline-best-moment-george-kirk-death/
+
+It's been 17 years since J.J. Abrams rebooted Star Trek with the Kelvin Timeline, and its opening moment is still the franchise's best moment ever.
+---------
+
+# Netflix Officially Revives Osamu Tezuka’s 73-Year-Old Masterpiece The Ribbon Hero With New First Look
+
+Anime, Netflix, Princess Knight
+
+Sat, 30 May 2026 22:00:14 GMT
+
+https://www.cbr.com/netflix-osamu-tezuka-the-ribbon-hero-new-first-look/
+
+Legendary shojo series Princess Knight is coming back to screens in a new Netflix anime film, THE RIBBON HERO.
+---------
+
+# Dutton Ranch Finally Reveals John Dutton's Yellowstone Replacement
+
+TV, Yellowstone, Dutton Ranch
+
+Sat, 30 May 2026 21:30:39 GMT
+
+https://www.cbr.com/yellowstone-dutton-ranch-replace-john-with-beth/
+
+Yellowstone officially confirms John Dutton's spiritual successor in Taylor Sheridan's Beth and Rip spinoff for Paramount+, Dutton Ranch.
+---------
+
+# Steam Officially Makes Hit Action RPG 100% Free Until June 1
+
+Games, Steam, Path of Exile
+
+Sat, 30 May 2026 21:30:31 GMT
+
+https://www.cbr.com/steam-path-of-exile-2-free-june-2026/
+
+Steam gamers better move quickly to play the acclaimed RPG for free.
+---------
+
+# 20 Years Later, M. Night Shyamalan’s Favorite Movie That Fans Hated Deserves a Rewatch
+
+Movie Features, M. Night Shyamalan, Lady In The Water, Bryce Dallas Howard, Paul Giamatti
+
+Sat, 30 May 2026 22:51:13 GMT
+
+https://collider.com/lady-in-the-water-m-night-shyamalan-favorite-movie/
+
+M. Night Shyamalan has said he has a fondness for Lady in the Water, one of his most maligned films, which deserves a rewatch.
+---------
+
+# Prime Video Officially Revives a 'Game of Thrones' Icon's Forgotten Historical Epic
+
+Movie News, Cyrano, Peter Dinklage, Prime Video, Haley Bennett
+
+Sat, 30 May 2026 22:46:13 GMT
+
+https://collider.com/game-of-thrones-star-peter-dinklage-historical-epic-cyrano-coming-to-prime-video-june-2026/
+
+The undeserving box-office bomb Cyrano, starring Peter Dinklage, is coming to Prime Video. Find out when you can watch it.
+---------
+
+# 'Tulsa King' Star's $1 Billion Action Saga Is Coming to Netflix Soon
+
+Movie News, Rocky, Rocky Balboa, Sylvester Stallone, Sports
+
+Sat, 30 May 2026 22:30:14 GMT
+
+https://collider.com/sylvester-stallone-action-saga-rocky-franchise-coming-to-netflix-june-2026/
+
+Sylvester Stallone’s billion-dollar Rocky saga is coming to Netflix this June with several classic entries arriving at once. Find out more here.
+---------
+
+# Prime Video Recruits One of the Greatest War Movies Ever Made This June
+
+Movie News, Paths of Glory, Stanley Kubrick, Kirk Douglas, Prime Video
+
+Sat, 30 May 2026 22:15:13 GMT
+
+https://collider.com/stanley-kubrick-paths-of-glory-greatest-anti-war-film-coming-to-prime-video-june-2026/
+
+The best anti-war movie ever made, Stanley Kubrick's Paths of Glory, is coming to Prime Video. Here's when you can watch it.
+---------
+
+# 9 Most Romantic Scenes in 'Off Campus' Season 1, Ranked
+
+TV, Off Campus, Prime Video, Romance, Sports
+
+Sat, 30 May 2026 22:08:14 GMT
+
+https://collider.com/off-campus-season-1-romantic-scenes-ranked/
+
+Off Campus is the romance sports series breaking records on Prime Video. While we wait for Season 2, revisit the most romantic scenes from Season 1.
+---------
+
+# 2 Days Until the Best Modern Movie Trilogy Hits Netflix For the First Time
+
+Movie Features, Creed, Creed II, Creed III, Michael B. Jordan
+
+Sat, 30 May 2026 22:05:14 GMT
+
+https://collider.com/creed-trilogy-streaming-netflix-new-movies/
+
+Decades after Rocky took the world by storm, Creed launched and began one of the best movie trilogies of the modern era.
+---------
+
+# The Greatest Detective Saga of All Time Returns to Netflix Ahead of Streamer's Reboot
+
+Movie News, Scooby-Doo, Scooby-Doo 2: Monsters Unleashed, Warner Bros.
+
+Sat, 30 May 2026 22:00:14 GMT
+
+https://collider.com/netflix-detective-saga-scooby-doo-collection-streaming-june-2026/
+
+The live-action Scooby-Doo movies are coming to Netflix this June, bringing the $457 million mystery series back to streaming.
+---------
+
+# Netflix's Forgotten 6-Part Noir Thriller Series Is One of Its Best Hidden Gems
+
+TV Features, Netflix, Nicolas Winding Refn, Cliff Martinez, Copenhagen Cowboy
+
+Sat, 30 May 2026 21:47:14 GMT
+
+https://collider.com/netflix-forgotten-noir-thriller-copenhagen-cowboy-nicolas-winding-refn/
+
+Netflix's forgotten neo-noir series Copenhagen Cowboy showcases Nicolas Winding Refn's unique storytelling and visual craftsmanship.
+---------
+
+# 10 Near-Perfect Sitcoms Nobody Remembers
+
+TV, Sitcom, Raising Hope, Don't Trust The B---- in Apartment 23, Herman's Head
+
+Sat, 30 May 2026 21:41:13 GMT
+
+https://collider.com/forgotten-near-perfect-sitcoms/
+
+Discover near-perfect sitcoms from the past that have fallen into obscurity despite their quality, from Small Wonder to Herman's Head.
+---------
+
+# 5 Action Heroes With the Initials "J.R."
+
+TV, Reacher, The Terminal List, First Blood, Tom Clancy's Jack Ryan
+
+Sat, 30 May 2026 21:32:13 GMT
+
+https://collider.com/action-heroes-with-initials-jr-ranked/
+
+From Jack Reacher, to Jack Ryan, to John Rambo, we've ranked iconic action heroes who all bear the initials J.R., from great to greatest.
+---------
+
+# 6 Great Fantasy Series To Read While Waiting For 'The Winds of Winter'
+
+TV Lists, Game Of Thrones, Game of Thrones, Fantasy
+
+Sat, 30 May 2026 22:30:19 GMT
+
+https://movieweb.com/great-fantasy-series-winds-of-winter/
+
+There are too many fantasy books out there to find what you're looking for without a plan. That's why I did the research for you.
+---------
+
+# 'For All Mankind' Season 6: Everything We Know: Confirmation, Release Window, & Everything We Know
+
+Features, For All Mankind
+
+Sat, 30 May 2026 22:00:20 GMT
+
+https://movieweb.com/for-all-mankind-season-6-everything-we-know/
+
+Although Apple TV is being understandably tight-lipped about what's to come in 'For All Mankind,' some things can be figured out.
+---------
+
 # Netflix's Pacific Rim Sequel Is So Good, It Makes Pacific Rim: Uprising Even Worse
 
 Classic TV, Masked Recs
