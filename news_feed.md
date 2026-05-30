@@ -1,3 +1,366 @@
+# Alfred Hitchcock’s The Birds Is Getting New TV Remake
+
+TV, The Birds
+
+Sat, 30 May 2026 01:22:59 GMT
+
+https://screenrant.com/the-birds-limited-series-sarah-snook-tv-market/
+
+A TV remake of one of Alfred Hitchcock's iconic films is officially moving forward and there's already a major name attached to the project.
+---------
+
+# The Mandalorian & Grogu’s Dragonsnake Has A Bigger Star Wars History Than You Think
+
+Star Wars, The Mandalorian and Grogu
+
+Sat, 30 May 2026 01:16:25 GMT
+
+https://screenrant.com/mandalorian-grogu-dragonsnake-star-wars-history-explained/
+
+The dragonsnake is one of The Mandalorian & Grogu's best Star Wars monsters, though its history goes back much farther than most realize.
+---------
+
+# Dragon Ball Is Officially Switching Genres In 2027, And It Will Be Epic
+
+Anime, Dragon Ball Super, Dragon Ball Super: The Galactic Patrol
+
+Sat, 30 May 2026 01:00:21 GMT
+
+https://screenrant.com/dragon-ball-super-galactic-patrol-change-genre/
+
+Dragon Ball Super's epic continuation is coming soon, and it'll bring more than just new villains to the iconic franchise.
+---------
+
+# Cyberpunk 2077 Meets Fallout In Stunning New Sci-Fi Adventure Game
+
+Gaming, Steam, PC, Indie Games
+
+Sat, 30 May 2026 01:00:21 GMT
+
+https://screenrant.com/cyberpunk-2077-meets-fallout-supreme-experiment/
+
+An ambitious upcoming Sci-Fi title from an indie developer is set to make a splash with Cyberpunk 2077 and Fallout fans looking for a new adventure.
+---------
+
+# KPop Demon Hunters Meets Avatar: The Last Airbender In Netflix's 3-Part Fantasy Series
+
+Streaming TV, Masked Recs
+
+Sat, 30 May 2026 00:45:21 GMT
+
+https://screenrant.com/trollhunters-netflix-show-kpop-demon-hunters-meets-avatar/
+
+Netflix knows how to do animated fantasy, and with such a legendary creator, this 3-part series is the perfect follow-up for fans of KPDH and Avatar.
+---------
+
+# 7 Years Later, Spider-Man Just Had His Identity Revealed Again
+
+Streaming TV, Masked Recs
+
+Sat, 30 May 2026 00:30:20 GMT
+
+https://screenrant.com/prime-video-spider-man-tv-show-identity-reveal/
+
+Spider-Man's secret identity is revealed in the hero's new live-action appearance, repeating what the MCU did before with an even darker twist.
+---------
+
+# House Of The Dragon Is Finally Showing GOT Season 9 If Daenerys Never Died
+
+Streaming TV, House of the Dragon, Game Of Thrones
+
+Sat, 30 May 2026 00:30:20 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-rhaenyra-throne-tyrant-daenerys-death/
+
+Rhaenyra's storyline in House of the Dragon season 3 is essentially what would've happened to Daenerys if she'd survived Game of Thrones.
+---------
+
+# One Piece Chapter #1184 Release Date and Time
+
+Anime, One Piece
+
+Sat, 30 May 2026 00:30:20 GMT
+
+https://screenrant.com/one-piece-chapter-1184-release-date-time/
+
+As Brook's missing backstory unfolds in the Esperia Kingdom, Imu's mysterious mention of "Dozan" hints at a crucial Void Century secret.
+---------
+
+# Netflix’s 8-Part Horror Masterpiece With 100% RT Is As Perfect As Mike Flanagan’s Hill House
+
+Classic TV, Masked Recs
+
+Sat, 30 May 2026 00:15:20 GMT
+
+https://screenrant.com/marianne-netflix-best-horror-flanagan-hill-house/
+
+An 8-part horror masterpiece on Netflix, which boasts a perfect 100% score on Rotten Tomatoes, is as perfect as Flanagan’s The Haunting Of Hill House.
+---------
+
+# How The Four Seasons Season 2 Honors Steve Carell's Character After Season 1's Shocking Death
+
+TV, The Four Seasons, The Four Seasons - Season 2, Netflix
+
+Sat, 30 May 2026 00:00:21 GMT
+
+https://screenrant.com/four-seasons-season-2-steve-carell-character-death-honor-cast-creators/
+
+The cast and creators of Netflix's The Four Seasons talk season 2 of the comedy and how it honors Steve Carrell's character after his season 1 death.
+---------
+
+# 10 Shonen Anime Heroes Who Would Be Terrifying in Real Life
+
+Anime, Shonen, shonen anime
+
+Sat, 30 May 2026 01:25:13 GMT
+
+https://www.cbr.com/shonen-anime-heroes-terrifying-in-real-life/
+
+These shonen anime characters can go from enjoying snacks to causing catastrophes in the span of a few seconds, making them threats not heroes.
+---------
+
+# 10 Reasons Why Deadpool Is Overrated in Marvel Comics
+
+Comics, Deadpool
+
+Sat, 30 May 2026 01:00:14 GMT
+
+https://www.cbr.com/deadpool-isnt-even-a-top-tier-character/
+
+Deadpool is one of Marvel's greatest characters, but he hasn't been considered in that main event bracket like some of his contemporaries.
+---------
+
+# Marcia Lucas, Oscar-Winning Star Wars Editor, Dies at 80
+
+Movies, Star Wars
+
+Sat, 30 May 2026 00:59:36 GMT
+
+https://www.cbr.com/star-wars-marcia-lucas-dead/
+
+Marcia Lucas, who won an Academy Award for the original Star Wars, has passed away.
+---------
+
+# 28 Years Later 3's Status Officially Revealed by Danny Boyle
+
+Movies, 28 Years Later
+
+Sat, 30 May 2026 00:48:57 GMT
+
+https://www.cbr.com/28-years-later-3-update-danny-boyle/
+
+28 Years Later director Danny Boyle reveals the status of the third chapter following cancellation rumors.
+---------
+
+# 4 Masterpiece Anime Movies Better Than Studio Ghibli
+
+Anime, Perfect Blue, A Silent Voice, Studio Ghibli
+
+Sat, 30 May 2026 00:45:15 GMT
+
+https://www.cbr.com/anime-movie-masterpieces-better-than-studio-ghibli/
+
+Studio Ghibli is responsible for unforgettable cinematic masterpieces, but other films like Perfect Blue and A Silent Voice tell even stronger stories
+---------
+
+# 10 Fantasy Games With Perfect Worldbuilding
+
+Games, Fantasy, Video Games, Gaming, Baldur's Gate 3, The Witcher 3: Wild Hunt
+
+Sat, 30 May 2026 00:30:14 GMT
+
+https://www.cbr.com/fantasy-games-perfect-worldbuilding/
+
+Fantasy games like Baldur's Gate 3 and The Witcher 3 go above and beyond to make players feel at home in their worlds.
+---------
+
+# Every Awakened Devil Fruit in One Piece, Explained
+
+Anime, One Piece
+
+Sat, 30 May 2026 00:20:16 GMT
+
+https://www.cbr.com/one-piece-every-awakened-devil-fruit-explained/
+
+Awakened Devil Fruits have become one of the most important parts of One Piece's complex world-building & power-scaling.
+---------
+
+# 8 Most Important One Piece Episodes Every Fan Should Rewatch
+
+Anime, One Piece
+
+Sat, 30 May 2026 00:15:14 GMT
+
+https://www.cbr.com/most-important-one-piece-episodes-must-rewatch/
+
+One Piece has well over 1,100 episodes today, and there are several that need to be watched more than once.
+---------
+
+# Terrifier Creator Teams Up With Sam Raimi for Next Horror Movie
+
+Movies, sam raimi, Terrifier 4
+
+Sat, 30 May 2026 00:02:44 GMT
+
+https://www.cbr.com/damien-leone-sam-raimi-tortures-of-the-damned/
+
+Art the Clown gets sidelined as Terrifier creator Damien Leone goes in another direction for his next horror project.
+---------
+
+# Dragon Ball Gives Super Saiyan 3 Goku an Alternative Look Ahead of New Anime Release
+
+Anime, Dragon Ball
+
+Sat, 30 May 2026 00:00:14 GMT
+
+https://www.cbr.com/dragon-ball-super-saiyan-3-goku-shfiguarts-release/
+
+Dragon Ball goes small for its biggest release yet, featuring Super Saiyan 3 Goku and more.
+---------
+
+# 10 Heaviest Comedies of All Time, Ranked
+
+Movie, Happiness, Dr. Strangelove Or: How I Learned To Stop Worrying And Love The Bomb, Brazil, Beau Is Afraid
+
+Sat, 30 May 2026 01:14:14 GMT
+
+https://collider.com/heaviest-comedies-all-time-ranked/
+
+If you're after the heaviest comedies of all time, it's worth watching uncompromising masterpieces like Happiness, A Serious Man, and Man Bites Dog.
+---------
+
+# Forget ‘The Last of Us,’ This 2-Part Post-Apocalyptic Sci-Fi Is Still a Streaming Hit
+
+TV Features, Twisted Metal, Anthony Mackie, Stephanie Beatriz, Peacock
+
+Sat, 30 May 2026 01:14:14 GMT
+
+https://collider.com/twisted-metal-peacock-post-apocalyptic-sci-fi-streaming-apple-tv-store/
+
+Peacock's Twisted Metal, based on the successful video game franchise, has become a streaming hit on a completely different platform.
+---------
+
+# Paramount+’s Hit Sci-Fi Adventure Spin-Off May Never Get a Season 2
+
+TV News, Knuckles, Sonic the Hedgehog, Sonic the Hedgehog 2, Paramount Plus
+
+Sat, 30 May 2026 01:01:13 GMT
+
+https://collider.com/sonic-spin-off-knuckles-season-2-update-limited-series-adam-pally-paramount-plus/
+
+Adam Pally gives an uncertain update on Season 2 of the Paramount+ Sonic spin-off, Knuckles.
+---------
+
+# 'Sheriff Country' Completely Lost the Plot With Its Latest Unhinged, Shocking Plot Twist
+
+TV Features, Sheriff Country, Fire Country, Morena Baccarin, CBS
+
+Sat, 30 May 2026 00:39:14 GMT
+
+https://collider.com/sheriff-country-season-1-finale-eva-mickey-mom-twist/
+
+Sheriff Country leans heavily on soap opera-style plot twist, but the latest development in the season finale completely loses the plot.
+---------
+
+# Fantasy Legend Confirms Leaked 'The Lord of the Rings: The Hunt for Gollum' Plot Details
+
+Movie News, The Lord of the Rings: The Hunt for Gollum, Elijah Wood, The Lord of the Rings, Andy Serkis
+
+Sat, 30 May 2026 00:31:13 GMT
+
+https://collider.com/lord-of-the-rings-hunt-for-gollum-plot-details-elijah-wood-confirmed/
+
+Elijah Wood confirms setting and plot details for The Lord of the Rings: The Hunt for Gollum.
+---------
+
+# Sorry, but The Two Towers in The Lord of the Rings Aren’t the Ones You Think
+
+Movie Features, The Lord of the Rings: The Two Towers, The Lord of the Rings, J.R.R. Tolkien, Peter Jackson
+
+Sat, 30 May 2026 00:11:14 GMT
+
+https://collider.com/the-lord-of-the-rings-the-towers-isengard-orthanc-minas-morgul/
+
+There is still confusion over which towers are "The Two Towers" in the title of J.R.R. Tolkien's second Lord of the Rings book.
+---------
+
+# 'House of the Dragon' Sets New Release Date for Season 3
+
+TV News, Game Of Thrones, House of the Dragon, A Knight Of The Seven Kingdoms, George R.R. Martin
+
+Sat, 30 May 2026 00:04:21 GMT
+
+https://collider.com/house-of-the-dragon-season-3-early-release-date-june-10-2026-taormina-festival-how-to-watch/
+
+HBO’s House of the Dragon Season 3 will officially arrive earlier than expected with a premiere at the Taormina Festival.
+---------
+
+# 10 Sitcoms That Are Bangers From Start to Finish
+
+TV, Sitcom, The Office, Malcolm in the Middle, New Girl
+
+Sat, 30 May 2026 00:02:14 GMT
+
+https://collider.com/sitcoms-bangers-from-start-to-finish/
+
+The Office, Malcolm in the Middle, New Girl, and Parks and Recreation are TV sitcoms that can be considered excellent throughout its entire run.
+---------
+
+# Star Wars Is Finally Moving Beyond the Skywalker Saga With a New Trilogy
+
+Movie News, Star Wars, Star Wars: Episode IX - The Rise of Skywalker, Simon Kinberg
+
+Sat, 30 May 2026 00:01:15 GMT
+
+https://collider.com/star-wars-new-trilogy-after-skywalker-saga-update/
+
+An upcoming Star Wars trilogy is set to follow the Skywalker Saga as Lucasfilm plans the franchise’s theatrical future.
+---------
+
+# This 26-Episode Sci-Fi Hidden Gem Is So Good, It Deserves a Second Life
+
+TV Features, Dollhouse, Eliza Dushku, Fox, Sci-Fi
+
+Fri, 29 May 2026 23:52:14 GMT
+
+https://collider.com/dollhouse-sci-fi-series-hidden-gem-ai-relevance/
+
+Dollhouse remains a sharp sci-fi hidden gem, with Eliza Dushku’s 26-episode series feeling even more relevant in the AI era.
+---------
+
+# 63 Years Later, Thriller Masterpiece Officially Getting Brand-New Reboot
+
+TV News, The Birds, Alfred Hitchcock, Sarah Snook
+
+Sat, 30 May 2026 01:04:46 GMT
+
+https://movieweb.com/the-birds-remake-sarah-snook/
+
+Alfred Hitchcock's 'The Birds' is being revived and reimagined for the present day.
+---------
+
+# 7 Years Later, 'Game of Thrones' Star Still "Absolutely Livid" About Finale
+
+TV News, Game Of Thrones, Emilia Clarke
+
+Sat, 30 May 2026 00:16:16 GMT
+
+https://movieweb.com/game-of-thrones-finale-emilia-clarke-daenerys/
+
+Emilia Clarke admits she is still grappling with her character's fate.
+---------
+
+# 'Yellowstone' Quietly Confirms the End of a Dutton Era in 'Dutton Ranch'
+
+Features, Dutton Ranch, Yellowstone
+
+Sat, 30 May 2026 00:00:19 GMT
+
+https://movieweb.com/dutton-ranch-carter-new-era-yellowstone-legacy/
+
+The 'Yellowstone' sequel series 'Dutton Ranch' follows Beth and Rip after the events in Montana, and it includes a major shift in the Dutton legacy.
+---------
+
 # 10 Years Later, Naruto Is Officially Returning In 2027
 
 Anime, Naruto
