@@ -1,3 +1,300 @@
+# The Despicable Me Franchise's Streaming Popularity Is A Great Sign For Its Upcoming Sequel
+
+Movies, Despicable Me
+
+Sun, 31 May 2026 14:41:21 GMT
+
+https://screenrant.com/despicable-me-franchise-streaming-success-minions-monsters-future/
+
+Two Despicable Me movies are currently trending on streaming, and it's a promising sign for the success of the franchise's upcoming film.
+---------
+
+# Major Witcher 4 Complaint Addressed By Upcoming Expansion
+
+Gaming, The Witcher 3: Wild Hunt, Triple-A Games, The Witcher 4
+
+Sun, 31 May 2026 14:30:21 GMT
+
+https://screenrant.com/witcher-4-songs-of-the-past-expansion-geralt/
+
+The Witcher 3: Wild Hunt's newly announced expansion will be a great treat for Geralt of Rivia fans, and in more ways than just one.
+---------
+
+# Prime Video Is Officially Slated To Beat HBO As The Ultimate Dragon Fantasy Streamer
+
+Streaming TV, Masked Recs
+
+Sun, 31 May 2026 14:30:21 GMT
+
+https://screenrant.com/prime-video-hbo-dragon-tv-shows-movies/
+
+After 16 years as the reigning monarch of dragon fantasy, HBO is finally getting knocked out of first place thanks to Prime Video's upcoming projects.
+---------
+
+# James Marsden’s Netflix Psychological Thriller From Record-Setting Director Wraps Filming
+
+Movies, James Marsden, Masked Recs
+
+Sun, 31 May 2026 14:23:06 GMT
+
+https://screenrant.com/an-innocent-girl-netflix-james-marsden-filming-wrap/
+
+James Marsden and Kerry Washington celebrate wrapping work on their new Netflix psychological thriller movie from the director of Carry-On.
+---------
+
+# Why For All Mankind Season 5's Aleida-Margo Relationship Is A Game-Changer Detailed By Wrenn Schmidt
+
+Interviews, For All Mankind, For All Mankind - Season 5, Wrenn Schmidt
+
+Sun, 31 May 2026 14:08:10 GMT
+
+https://screenrant.com/for-all-mankind-season-5-finale-wrenn-schmidt-interview/
+
+Wrenn Schmidt did not expect Margo to spend For All Mankind season 5 unemployed and jailed, but the Aleida dynamic was key to unlocking her character.
+---------
+
+# Stephen King’s The Institute Gets Major Season 2 Update From Ben Barnes
+
+TV, The Institute
+
+Sun, 31 May 2026 14:02:51 GMT
+
+https://screenrant.com/the-insitute-season-2-filming-update-almost-done-ben-barnes/
+
+Ben Barnes reveals an exciting and promising update for season 2 of Stephen King's underrated science-fiction thriller series on MGM+.
+---------
+
+# Red Dead Redemption 2 Fans Can Play 100+ New Missions Right Now
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2
+
+Sun, 31 May 2026 14:00:20 GMT
+
+https://screenrant.com/red-dead-redemption-2-bandit-hideouts-by-fans-for-fans/
+
+Red Dead Redemption 2 might be coming up on its eighth birthday, but there's still plenty of fun to be had with new content.
+---------
+
+# Prime Video's Record-Breaking New Drama With 93% Rotten Tomatoes Score Is One Of Its Best Book Adaptations
+
+Streaming TV, Masked Recs
+
+Sun, 31 May 2026 14:00:20 GMT
+
+https://screenrant.com/off-campus-prime-video-best-book-adaptation/
+
+Prime Video's new record-breaking, eight-part drama series deserves its critical acclaim. It's one of the streamer's best book adaptations.
+---------
+
+# DC's New Superman Debuts Official Logo and Costume, With Different Meaning to Clark Kent
+
+Comics, Superman
+
+Sun, 31 May 2026 14:00:20 GMT
+
+https://screenrant.com/new-superman-costume-logo-jor-el/
+
+This Superman is a very different kind of hero...
+---------
+
+# 10 Star Trek: The Next Generation Episodes Everyone Should Watch
+
+TV, Star Trek: The Next Generation
+
+Sun, 31 May 2026 13:46:20 GMT
+
+https://screenrant.com/star-trek-tng-episodes-everyone-should-watch/
+
+Star Trek: The Next Generation is the pinnacle of excellence in science fiction television, and these 10 episodes are required viewing for every fan.
+---------
+
+# Transformers Reveals First Look at Arcee's Official New Design
+
+Anime, Transformers, The Transformers: The Movie, merchandise
+
+Sun, 31 May 2026 14:39:29 GMT
+
+https://www.cbr.com/transformers-arcee-cyber-goddess-reveal/
+
+40 years after her debut, Arcee is set to receive one of her most impressive toys yet that finally captures yet modernizes her Generation 1 design.
+---------
+
+# Extraction Is Still Chris Hemsworth's Best Action Movie
+
+Movies, Extraction, chris hemsworth, Netflix
+
+Sun, 31 May 2026 14:30:14 GMT
+
+https://www.cbr.com/netflix-extraction-chris-hemsworth-best-action-movie/
+
+John Wick left a huge mark on the action genre, but Chris Hemsworth's Extraction took it in a totally different direction that audiences still love.
+---------
+
+# The Walking Dead's Norman Reedus Reveals He's a Chainsaw Man Fan
+
+Anime, Chainsaw Man
+
+Sun, 31 May 2026 14:15:15 GMT
+
+https://www.cbr.com/walking-dead-norman-reedus-chainsaw-man-anime-fan/
+
+The Walking Dead star Norman Reedus' recent comments have Chainsaw Man fans talking about a potential live-action adaptation of the hit anime series.
+---------
+
+# Leonardo DiCaprio & Martin Scorsese's First Film in 3 Years Gets New Production Update
+
+Movies, What Happens at Night, Martin Scorsese, Leonardo DiCaprio
+
+Sun, 31 May 2026 13:49:32 GMT
+
+https://www.cbr.com/leonardo-dicaprio-martin-scorsese-what-happens-at-night-filming-update/
+
+The latest cinematic collaboration between Martin Scorsese and Leonardo DiCaprio just got a major production update, and fans couldn't be more excited
+---------
+
+# Paramount Is Officially Rebooting the Star Trek Franchise
+
+Movies, Star Trek, Sci-Fi, paramount pictures
+
+Sun, 31 May 2026 13:30:13 GMT
+
+https://www.cbr.com/paramount-officially-rebooting-star-trek-movie/
+
+The upcoming Star Trek reboot is set to be a standalone story unconnected to the previous Kelvin Timeline and series.
+---------
+
+# Mystery Road is a Must-Watch Series Even Better Than Yellowstone
+
+TV, Western, Mystery Road
+
+Sun, 31 May 2026 13:30:13 GMT
+
+https://www.cbr.com/yellowstone-fans-must-watch-mystery-road-show/
+
+Yellowstone has defined modern neo-Western television, but Australia's Mystery Road may be even better.
+---------
+
+# 6 Jujutsu Kaisen Characters Who Deserved Their Own Arc
+
+Anime, Jujutsu Kaisen
+
+Sun, 31 May 2026 13:15:13 GMT
+
+https://www.cbr.com/jujutsu-kaisen-characters-who-deserved-their-own-arc/
+
+These sorcerers prove that not every standout figure in Jujutsu Kaisen was given the spotlight they earned.
+---------
+
+# 15 Funniest Far Side Comics About Music
+
+Comics, The Far Side
+
+Sun, 31 May 2026 13:00:14 GMT
+
+https://www.cbr.com/15-funniest-far-side-comics-about-music/
+
+Gary Larson's The Far Side tackled several subjects over the years, though his particular take on music appealed to a number of comic strip fans.
+---------
+
+# 8 Most Perfect Thrillers of The 1980s
+
+Movies, Thriller, The Terminator, Blow Out
+
+Sun, 31 May 2026 13:00:14 GMT
+
+https://www.cbr.com/most-perfect-thrillers-1980s-list/
+
+These masterpiece '80s thrillers are the decade's most perfect genre outings.
+---------
+
+# ‘Backrooms’ Makes A24 History in Record-Breaking Box Office Debut
+
+Movie News, Backrooms, Renate Reinsve, Chiwetel Ejiofor, Box Office
+
+Sun, 31 May 2026 14:44:45 GMT
+
+https://collider.com/a24-horror-movie-backrooms-box-office-118-million/
+
+Backrooms movie is already a major hit, becoming one of A24’s highest grossing movies ever in its first weekend.
+---------
+
+# What's the Greatest Animated Movie of All Time? Surely It's One of These 10 Films
+
+Movie, Animation, Spirited Away, Disney's Pinocchio, Grave of the Fireflies
+
+Sun, 31 May 2026 14:33:15 GMT
+
+https://collider.com/best-animated-movies/
+
+Universally beloved films like Spirited Away, The Lion King, and Toy Story still dominate the debate for best animated movie ever made.
+---------
+
+# 27 Years Later, This Is Officially the Most Horrifying Scene in All of Star Wars
+
+Movie Features, Star Wars, Star Wars: Episode I - The Phantom Menace, Liam Neeson, George Lucas
+
+Sun, 31 May 2026 13:55:13 GMT
+
+https://collider.com/star-wars-the-phantom-menace-podrace-ratts-tyerell-death-horrifying/
+
+The death of Ratts Tyerell in Star Wars Episode 1: The Phantom Menace is the most horrifying scene in the franchise.
+---------
+
+# Anya Taylor-Joy’s 2025 Sci-Fi Hit Is Still Dominating Apple TV 1 Year Later
+
+Movie News, Anya Taylor-Joy, The Gorge, Miles Teller, Sci-Fi
+
+Sun, 31 May 2026 13:30:13 GMT
+
+https://collider.com/apple-tv-anya-taylor-joy-sci-fi-movie-the-gorge-streaming-success-may-2026/
+
+1 year later, Anya Taylor-Joy’s hit Apple TV movie is still proving to be one of the most successful sci-fi films of the decade.
+---------
+
+# One of the Most Brutal Crime Thrillers Ever Made Is a Must-Watch for ‘MobLand’ Fans
+
+TV News, MobLand, Gangs of London, Tom Hardy, Crime
+
+Sun, 31 May 2026 13:00:14 GMT
+
+https://collider.com/british-mobland-replacement-gangs-of-london-streaming-success-amc-plus-may-2026/
+
+As MobLand tries to regain its footing after a week of controversy, Gangs of London is still proving to be a big streaming hit.
+---------
+
+# 20 Years Later, This 'Friends' Guest Star Reveals The Truth Behind the Series Finale
+
+Exclusives, Miss You, Love You, Jim Rash
+
+Sun, 31 May 2026 13:00:14 GMT
+
+https://collider.com/friends-series-finale-jim-rash-comments-miss-you-love-you-interview/
+
+Jim Rash on his career from the "prickly" Friends finale to his 17-day shoot for HBO Max's Miss You, Love You with Allison Janney and Andrew Rannells.
+---------
+
+# 9 Greatest Netflix Sci-Fi TV Series That Rewrote the Rules of the Genre
+
+TV Lists, Sci-Fi, Netflix
+
+Sun, 31 May 2026 14:00:19 GMT
+
+https://movieweb.com/netflix-sci-fi-series-rewrote-genre-rules/
+
+Sci-fi offers some of TV's most prolific titles, including Netflix releases that have brought the genre into the modern era.
+---------
+
+# Vin Diesel Action Fantasy Epic Hits Free Streaming Ahead of Long-Awaited Sequel
+
+Movie News, Vin Diesel, Action, Fantasy, Tubi, The Last Witch Hunter, The Last Witch Hunter 2
+
+Sun, 31 May 2026 13:00:20 GMT
+
+https://movieweb.com/vin-diesel-last-witch-hunter-stream-june-2026/
+
+An immortal warrior battles across time in 'The Last Witch Hunter,' which is set to hit free streaming in June.
+---------
+
 # Clair Obscur: Expedition 33's Movie Has One Huge Obstacle To Overcome
 
 Movies, Clair Obscur: Expedition 33
