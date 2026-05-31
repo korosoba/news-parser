@@ -1,3 +1,289 @@
+# 32 Years Ago, A Near-Perfect Sitcom Walked So That Friends Could Run
+
+Classic TV, Masked Recs, Friends
+
+Sun, 31 May 2026 17:30:21 GMT
+
+https://screenrant.com/living-single-nbc-sitcom-friends-predecessor/
+
+Friends will always be remembered, but this similar and arguably better sitcom actually came a whole year before Friends and ran for 5 seasons.
+---------
+
+# A Beloved Nintendo 64 RPG Just Made An Unexpected Return After 26 Years
+
+Gaming, Nintendo
+
+Sun, 31 May 2026 17:30:21 GMT
+
+https://screenrant.com/paper-mario-recut-n64-decomp/
+
+Experience nostalgia with this classic N64 RPG, now available on PC through an unofficial port. Of course, it does come with a catch.
+---------
+
+# Euphoria Star Clarifies Retirement Rumors Ahead Of Series Finale
+
+TV, Euphoria
+
+Sun, 31 May 2026 17:29:22 GMT
+
+https://screenrant.com/euphoria-alexa-demie-acting-retirement-confirmation/
+
+Alexa Demie, best known for playing Maddy on Euphoria, sets the record straight regarding the rumors that she plans on retiring from acting.
+---------
+
+# Marvel's Real Hulk Officially Returns In 2 Months After Nearly A Decade
+
+Superheroes, Hulk, Marvel Cinematic Universe, Spider-Man: Brand New Day
+
+Sun, 31 May 2026 17:15:21 GMT
+
+https://screenrant.com/marvel-real-hulk-return-spider-man-brand-new-day/
+
+The Marvel Cinematic Universe is officially two months away from bringing back the real Hulk, as he hasn't been seen in nearly a decade.
+---------
+
+# Guillermo Del Toro Calls Apple TV’s New 10-Part Horror Series “Mesmerizing” In Glowing Review
+
+TV, Masked Recs
+
+Sun, 31 May 2026 17:03:54 GMT
+
+https://screenrant.com/widows-bay-apple-tv-review-guillermo-del-toro/
+
+Guillermo del Toro knows horror well, which makes his praise of Apple TV's "mesmerizing" new 10-episode horror-comedy series quite notable.
+---------
+
+# Apple TV's 8-Part Noir Thriller Boldly Switches Genres Before Season 2
+
+TV, Masked Recs
+
+Sun, 31 May 2026 17:01:20 GMT
+
+https://screenrant.com/sugar-apple-tv-change-genre/
+
+Apple TV's underrated, eight-episode noir thriller boldly switched genres before season 2, making its return all the more compelling.
+---------
+
+# One Piece's Newest Flashback Hints At A Major Villain Redemption
+
+Anime, One Piece
+
+Sun, 31 May 2026 17:01:20 GMT
+
+https://screenrant.com/one-piece-flashback-gunko-redemption/
+
+One Piece's newest flashback is finally uncovering Brook's secret past but it's also setting up one major villain for redemption.
+---------
+
+# There's Only Weeks Left To Watch Kipo And The Age Of Wonderbeasts On Netflix Before It Leaves
+
+TV, Kipo and the Age of Wonderbeasts, Netflix
+
+Sun, 31 May 2026 16:56:22 GMT
+
+https://screenrant.com/netflix-kipo-and-the-age-of-wonderbeasts-exit/
+
+One Netflix sci-fi show with a 100% review score is reportedly set to leave the streaming service in just weeks, making it harder to experience.
+---------
+
+# Crucial Spider-Noir Hero's Real-Life Inspiration Revealed By Lamorne Morris
+
+Interviews, Spider-Noir, Spider-Noir - Season 1, Lamorne Morris
+
+Sun, 31 May 2026 16:56:10 GMT
+
+https://screenrant.com/spider-noir-robbie-robertson-real-life-inspiration-lamorne-morris/
+
+At a special Spider-Noir screening hosted by ScreenRant, Lamorne Morris explained which real-life journalist he molded Robbie Robertson after.
+---------
+
+# 9 Impressive Movie Directors Who Started On YouTube
+
+Movies, YouTube, Explainer
+
+Sun, 31 May 2026 16:41:21 GMT
+
+https://screenrant.com/movie-directors-started-youtube/
+
+The popularity of Backrooms and Obsession has people discussing the great movies made by filmmakers who got their starts as YouTube creators.
+---------
+
+# The Rookie Spinoff Star Explains What Makes the New Show Different: 'A Little Bit More Rugged'
+
+TV, The Rookie
+
+Sun, 31 May 2026 17:31:19 GMT
+
+https://www.cbr.com/the-rookie-north-jay-ellis-the-rookie-differences/
+
+The Rookie: North star Jay Ellis explains why the hotly-anticipated spinoff series is "a little bit more rugged" than its fan-favorite predecessor.
+---------
+
+# 10 N64 Games That Aged Like Fine Wine
+
+Games, Nintendo 64, Nintendo, Video Games
+
+Sun, 31 May 2026 17:16:14 GMT
+
+https://www.cbr.com/best-n64-games-aged-fine-wine/
+
+There's no arguing that N64 games like Super Mario 64 and Resident Evil 2 are still great thirty years later.
+---------
+
+# Euphoria Star Reacts To Sydney Sweeney's OnlyFans Storyline
+
+CBR Exclusives, Euphoria
+
+Sun, 31 May 2026 17:07:53 GMT
+
+https://www.cbr.com/euphoria-jack-topalian-reacts-sydney-sweeney-cassie-onlyfans-storyline/
+
+Euphoria star Jack Topalian reveals how Naz would react to Cassie Howard’s OnlyFans storyline in Season 3.
+---------
+
+# Kill la Kill Officially Revives Ryuko vs Satsuki With New 13th Anniversary Design
+
+Anime, Kill la Kill, merchandise
+
+Sun, 31 May 2026 17:00:14 GMT
+
+https://www.cbr.com/kill-la-kill-ryuko-vs-satsuki-new-anniversary-reveal/
+
+Kill la Kill's epic action comes to life in a striking new limited edition Prime 1 Studio statue that pits Ryuko against Satsuki once again.
+---------
+
+# Alex Garland’s Devs Is an Overlooked Sci-Fi Thriller Series
+
+TV, Devs, Sci-Fi
+
+Sun, 31 May 2026 16:30:13 GMT
+
+https://www.cbr.com/alex-garland-devs-perfect-sci-fi-thriller-binge/
+
+Alex Garland's sci-fi tech thriller keeps viewers questioning reality, making it a binge-worthy series.
+---------
+
+# Hulu's New 8-Part Comedy Is Officially Dubbed the Gen-Z Version of Friends
+
+TV, Not Suitable for Work, Friends
+
+Sun, 31 May 2026 16:19:51 GMT
+
+https://www.cbr.com/hulu-not-suitable-for-work-gen-z-version-friends/
+
+The new series comes from The Office star Mindy Kaling.
+---------
+
+# 10 Naruto Plot Holes Fans Still Debate Today
+
+Anime, Naruto
+
+Sun, 31 May 2026 16:15:14 GMT
+
+https://www.cbr.com/worst-naruto-plot-holes-fans-debate-today/
+
+Naruto fans still remember everything about the classic 2000s shonen anime, including all of its many plot holes.
+---------
+
+# Robert Redford's Wild War Movie Is the Thrilling American Action Flick You Need to Watch
+
+Movie Features, The Great Waldo Pepper, Robert Redford, Butch Cassidy and the Sundance Kid, All the President's Men
+
+Sun, 31 May 2026 17:31:15 GMT
+
+https://collider.com/robert-redford-war-movie-the-great-waldo-pepper/
+
+George Roy Hill’s overlooked Redford film still delivers some of the most nerve-rattling flying scenes ever put onscreen.
+---------
+
+# ‘Euphoria’ Breakout Anna Van Patten Felt Pressure To Make Kitty’s Dark Story “Hit Hard”
+
+Interviews, Euphoria, HBO
+
+Sun, 31 May 2026 17:28:14 GMT
+
+https://collider.com/euphoria-anna-van-patten-interview/
+
+Anna Van Patten talks Euphoria Season 3, Kitty's dark story, Sam Levinson, and how playing the dancer changed her relationship with her body for good.
+---------
+
+# 7 Must-Watch Shows If You Love AMC's 'The Audacity'
+
+TV, The Audacity, Succession, Silicon Valley, Bad Sisters
+
+Sun, 31 May 2026 17:19:14 GMT
+
+https://collider.com/shows-like-the-audacity-amc/
+
+Succession, Silicon Valley, Bad Sisters, and The Chair Company are perfect to watch if you love AMC's The Audacity, starring Billy Magnussen.
+---------
+
+# Tim Burton’s Biggest Blockbuster in 15 Years Is Officially Haunting Prime Video
+
+Movie News, Tim Burton, Beetlejuice Beetlejuice, Jenna Ortega, Prime Video
+
+Sun, 31 May 2026 17:00:15 GMT
+
+https://collider.com/beetlejuice-beetlejuice-tim-burton-biggest-blockbuster-in-15-years-coming-to-prime-video-june-2026/
+
+Tim Burton's highest-grossing movie in 15 years, Beetlejuice Beetlejuice, is coming to Prime Video. Find out when the Ghost with the Most arrives.
+---------
+
+# 10 Most Meticulously Constructed Thrillers of All Time
+
+Movie, Thriller, Memento, Rear Window
+
+Sun, 31 May 2026 16:23:15 GMT
+
+https://collider.com/thriller-movies-meticulously-constructed-all-time/
+
+Many great thrillers have found success through meticulous and detailed storytelling, including classics like Zodiac, Children of Men, and Memento.
+---------
+
+# Grogu Officially Dethrones Pikachu In Unexpected Box-Office Cute-Off
+
+Movie News, The Mandalorian and Grogu, Box Office, Pokémon Detective Pikachu, Star Wars
+
+Sun, 31 May 2026 16:15:14 GMT
+
+https://collider.com/new-star-wars-movie-the-mandalorian-and-grogu-overtakes-ryan-reynolds-sci-fi-movie-pokemon-detective-pikachu-box-office-140-million/
+
+The Mandalorian and Grogu has finally gotten a box office win, overtaking Ryan Reynolds’ hit sci-fi video game adaptation.
+---------
+
+# How Jason Statham's Most Divisive Action Thriller Gave Him a Unique Challenge
+
+Features, Jason Statham, Killer Elite, Quote
+
+Sun, 31 May 2026 17:30:19 GMT
+
+https://movieweb.com/killer-elite-jason-statham-divisive-action-thriller/
+
+Jason Statham has made a career out of playing a particular type of character, which makes his occasional deviations all the more exciting.
+---------
+
+# CBS' 'Reacher'-Esque Action Show Declared One of the Year's Biggest & Best
+
+TV News, Reacher, Tracker, CBS All Access
+
+Sun, 31 May 2026 17:10:56 GMT
+
+https://movieweb.com/cbs-reacher-tracker-marshals-stranger-things/
+
+'Tracker' is another sturdy action series about a guy who wanders the Earth helping others.
+---------
+
+# The 6 Best Action Movies of 2026 So Far
+
+Movie Lists, Action
+
+Sun, 31 May 2026 17:00:20 GMT
+
+https://movieweb.com/best-action-movies-2026-so-far/
+
+Grab the popcorn bucket and take a seat. These action movies, featuring some of the genre's biggest stars, are sure to keep you entertained.
+---------
+
 # 10 Best Steam Deck Games For Summer 2026
 
 Gaming, Steam Deck
