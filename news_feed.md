@@ -1,3 +1,256 @@
+# Clair Obscur: Expedition 33's Movie Has One Huge Obstacle To Overcome
+
+Movies, Clair Obscur: Expedition 33
+
+Sun, 31 May 2026 12:56:21 GMT
+
+https://screenrant.com/clair-obscur-expedition-33-movie-story-obstacle/
+
+Clair Obscur: Expedition 33’s movie adaptation faces a major challenge adapting the game’s biggest, and heavily discussed, plot development.
+---------
+
+# 8 Best New Movies Coming To Disney+ In June 2026
+
+Movies, Disney+
+
+Sun, 31 May 2026 12:44:21 GMT
+
+https://screenrant.com/disney-plus-best-new-movies-june-2026/
+
+Get ready for summer streaming. Here are the best new movies arriving on Disney+ and the Disney+/Hulu bundle in June 2026, including Avatar: Fire and
+---------
+
+# 40 Years Later, The Original Superman's Official Canon Ending Still Ranks Among Alan Moore's Best
+
+Comics, Superman, Alan Moore
+
+Sun, 31 May 2026 12:30:20 GMT
+
+https://screenrant.com/original-superman-canon-ending-alan-moore/
+
+Alan Moore loved Superman enough to put the Man of Tomorrow through hell and back
+---------
+
+# 10 Best New Movies Coming To HBO Max In June 2026
+
+Movies, HBO Max
+
+Sun, 31 May 2026 12:30:20 GMT
+
+https://screenrant.com/hbo-max-best-new-movies-june-2026/
+
+A ton of amazing movies are coming to HBO Max in June 2026, but these 10 picks are the best of the streamer's new additions for the month.
+---------
+
+# Studio Ghibli Collides With Zelda And Valheim In Stunning New Open-World RPG
+
+Gaming
+
+Sun, 31 May 2026 12:30:20 GMT
+
+https://screenrant.com/zelda-of-peaks-and-tides-ghibli-valheim-vibes/
+
+Explore a vast, ancient land where Studio Ghibli visuals meet Zelda's lands and Valheim's survival mechanics.
+---------
+
+# Evangelion’s Creator Has A Dire Warning For The Anime Industry, And Even Critics Have To Admit He Has A Point
+
+Anime, Neon Genesis Evangelion
+
+Sun, 31 May 2026 12:29:32 GMT
+
+https://screenrant.com/neon-genesis-evangelion-hideaki-anno-anime-warning/
+
+Hideaki Anno's influence on the anime industry can not be overemphasized, and this time, his warnings on anime's future should be taken seriously.
+---------
+
+# The Russo Brothers Reveal Major Doctor Doom Symbol Ahead Of Avengers: Doomsday Release
+
+Movies, Avengers: Doomsday
+
+Sun, 31 May 2026 12:25:25 GMT
+
+https://screenrant.com/avengers-doomsday-russo-brothers-doctor-doom-latveria-flag/
+
+Avengers: Doomsday could rewrite the entirety of the MCU as the Russo Brothers share a major Doctor Doom symbol as fans await the movie trailer.
+---------
+
+# From Is Officially The Most Meta Show On TV
+
+Streaming TV, From
+
+Sun, 31 May 2026 12:16:21 GMT
+
+https://screenrant.com/mgm-plus-from-horror-show-meta/
+
+The townspeople of the twisty MGM+ horror series know that they are characters in a story, but the show's self-awareness goes beyond even that.
+---------
+
+# Fallout: New York Leaves Gamers Split For One Reason
+
+Gaming, Fallout
+
+Sun, 31 May 2026 12:00:20 GMT
+
+https://screenrant.com/fallout-new-york-setting-gamer-speculation/
+
+Fallout has been to some cool cities, and there are plenty more candidates, but one in particular continues to fascinate fans.
+---------
+
+# Dutton Ranch's Most Yellowstone Moment Yet Was A Surprisingly Dumb Move By Beth & Rip
+
+TV, Dutton Ranch, Yellowstone, Op-Ed
+
+Sun, 31 May 2026 12:00:20 GMT
+
+https://screenrant.com/dutton-ranch-beth-rip-revenge-not-smart/
+
+Beth and Rip tap into their Yellowstone roots and exact fiery vengeance on someone who wronged them in Dutton Ranch, but they made a mistake.
+---------
+
+# Star Trek's Lost Kirk Episode Finally Solved a Classic Mirror Universe Error
+
+TV, Star Trek, Star Trek: Enterprise, Star Trek: The Original Series
+
+Sun, 31 May 2026 12:30:13 GMT
+
+https://www.cbr.com/star-trek-enterprise-lost-kirk-episode-fixed-mirror-universe-error/
+
+A lost episode of Enterprise would have brought back William Shatner and solved an unanswered mystery about Star Trek's Mirror Universe.
+---------
+
+# Major Anime Streaming Site HiAnime Officially Shuts Down
+
+Anime, piracy
+
+Sun, 31 May 2026 11:55:41 GMT
+
+https://www.cbr.com/hianime-anime-streaming-site-shuts-down/
+
+After being offline for 80 days, one of the biggest anime streaming sites worldwide is officially shutting down for good.
+---------
+
+# The Legend of Zelda Movie's Rumored Composer Is Great News
+
+Movies, The Legend of Zelda, Nintendo
+
+Sun, 31 May 2026 11:30:13 GMT
+
+https://www.cbr.com/legend-of-zelda-movie-john-paesano-great-news/
+
+A recent development hinted at a key figure who may be involved in the upcoming live-action film adaptation of Nintendo's The Legend of Zelda.
+---------
+
+# 3 Years Later, Netflix's 'Fallout' Replacement Is the Perfect Late-Night Watch
+
+Movie Features, Leave the World Behind, Julia Roberts, Mahershala Ali, Fallout
+
+Sun, 31 May 2026 12:56:15 GMT
+
+https://collider.com/netflix-leave-the-world-behind-fallout-replacement/
+
+Netflix's Leave the World Behind envisions a Fallout-style apocalypse in a true nightmare come to life.
+---------
+
+# Anthony Mackie’s Harrowing 143-Minute Crime Epic Is Finally Coming to Free Streaming
+
+Movie News, Anthony Mackie, Crime, Detroit, John Boyega
+
+Sun, 31 May 2026 12:45:14 GMT
+
+https://collider.com/anthony-mackie-crime-thriller-detroit-streaming-on-plex-june-2026/
+
+Anthony Mackie's crime thriller alongside a Star Wars icon and Will Poulter, Detroit, is heading to free streaming. Find out more below.
+---------
+
+# 5 Years Later, the 10-Part Series Tom Hanks Passed on Is Still a Near-Perfect Puzzle
+
+TV Features, The Lost Symbol, Tom Hanks, Peacock, The Da Vinci Code
+
+Sun, 31 May 2026 12:39:15 GMT
+
+https://collider.com/divisive-mystery-series-tom-hanks-passed-the-lost-symbol/
+
+Back in 2021, Peacock released the first-ever TV adaptation of a Dan Brown novel in The Lost Symbol.
+---------
+
+# 10 Worst Action Movie Endings, Ranked
+
+Movie, The Flash, Next, Sweet Girl, Terminator Genisys
+
+Sun, 31 May 2026 12:34:13 GMT
+
+https://collider.com/worst-action-movie-endings-ranked/
+
+Action movies like Savages, The Grey, and The Flash feature some of the worst endings imaginable, entirely ruining the whole experience for audiences.
+---------
+
+# Apple TV’s 9-Part Crime Thriller Is So Addictive, You’ll Finish It in One Weekend
+
+TV News, Smoke, Apple TV, True Detective, Mindhunter
+
+Sun, 31 May 2026 12:30:13 GMT
+
+https://collider.com/apple-tv-taron-egerton-crime-thriller-smoke-streaming-success-may-2026-season-2-update/
+
+Smoke, the Apple TV detective show with shades of True Detective and Mindhunter, is surging right now as fans demand a second season.
+---------
+
+# Robert Redford's Underseen Neo-Western on Paramount+ Is the Anti-'Yellowstone'
+
+Movie Features, An Unfinished Life, Robert Redford, Yellowstone, Western
+
+Sun, 31 May 2026 12:27:14 GMT
+
+https://collider.com/robert-redfored-neo-western-an-unfinished-life-streaming-paramount-plus/
+
+The overlooked neo-Western An Unfinished Life, starring Robert Redford and Jennifer Lopez, is a must-watch hidden gem for Western fans.
+---------
+
+# Only 6 Fantasy Shows Are More Rewatchable Than 'Lost'
+
+TV, Fantasy, Supernatural, Lost, Buffy The Vampire Slayer
+
+Sun, 31 May 2026 12:21:13 GMT
+
+https://collider.com/fantasy-shows-more-rewatchable-lost/
+
+Dive into great fantasy TV shows are more rewatchable than Lost, featuring fan favorites and classics like Supernatural and What We Do in the Shadows.
+---------
+
+# This Addictive 2-Part Mystery Phenomenon Is the Perfect Binge for ‘Wednesday’ Fans
+
+TV News, A Good Girl's Guide to Murder, Wednesday, Netflix, Streaming
+
+Sun, 31 May 2026 12:00:13 GMT
+
+https://collider.com/netflix-wednesday-replacement-mystery-series-a-good-girls-guide-to-murder-season-2-streaming-success-june-2026/
+
+A Good Girl's Guide to Murder has returned to the Netflix charts. Read on to find out how it's doing here.
+---------
+
+# 10 Film Noir Movies So Good You Could Argue Any One Is the Best Ever Made
+
+Movie, Film Noir, Double Indemnity, Sunset Boulevard, Out Of The Past
+
+Sun, 31 May 2026 11:58:13 GMT
+
+https://collider.com/best-film-noir-movies-all-time/
+
+From Double Indemnity to Sunset Boulevard, these noir masterpieces prove the genre was always about beautiful ruin.
+---------
+
+# Netflix's 5-Part Comedy Series Is as Close to Perfect as the Genre Gets
+
+TV Features, Cunk on Earth, Netflix, Charlie Brooker, Cunk on Life
+
+Sun, 31 May 2026 11:58:13 GMT
+
+https://collider.com/netflix-cunk-on-earth-comedy-deserves-100-rt-score/
+
+Perhaps the greatest comedic character of the 21st century is a clueless, deadpan documentarian who goes by the name of Philomena Cunk.
+---------
+
 # 10 Forgotten Sitcoms With Surprisingly A-List Casts
 
 Classic TV, Sitcoms
