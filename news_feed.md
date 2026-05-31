@@ -1,3 +1,278 @@
+# 10 Best Steam Deck Games For Summer 2026
+
+Gaming, Steam Deck
+
+Sun, 31 May 2026 16:00:19 GMT
+
+https://screenrant.com/best-steam-deck-games-summer-2026/
+
+Our list of top 10 must-play titles includes a variety of genres, all verified to run smoothly on the handheld Steam Deck console this summer.
+---------
+
+# Game Of Thrones' 10 Strongest Night's Watch Members
+
+Streaming TV, Game Of Thrones
+
+Sun, 31 May 2026 16:00:19 GMT
+
+https://screenrant.com/game-of-thrones-strongest-nights-watch-members/
+
+Several strong members of the Night’s Watch have defended the realms of men in the Game of Thrones universe; here are the 10 most powerful.
+---------
+
+# A24's 8 Most Unique Horror Movies
+
+Movies, A24, Horror, Ranking
+
+Sun, 31 May 2026 15:56:20 GMT
+
+https://screenrant.com/a24-most-unique-horror-movies/
+
+A24 has put out some fantastic horror films over the years, including some truly unique projects like the buzzworthy Backrooms and some hidden gems.
+---------
+
+# Shonen Jump Launching Three New Series Following Today's Brutal Cancellation
+
+Anime, Shonen Jump
+
+Sun, 31 May 2026 15:45:21 GMT
+
+https://screenrant.com/shonen-jump-alien-headbutt-cancelled-new-manga-announcement/
+
+Shonen Jump makes great sacrifices to keep its hits coming, with three new series teasing exciting additions to manga's biggest magazine.
+---------
+
+# What That Door Means In From Season 4, Episode 6
+
+Streaming TV, From, FROM - Season 4
+
+Sun, 31 May 2026 15:45:21 GMT
+
+https://screenrant.com/from-season-4-episode-6-door-meaning/
+
+From season 4, episode 6, "The Heart Is a Lonely Hunter" reveals a door that provides answers and new mysteries moving forward.
+---------
+
+# Steam's New Free Sci-Fi Single-Player Game Has 98% Positive Reviews
+
+Gaming
+
+Sun, 31 May 2026 15:45:21 GMT
+
+https://screenrant.com/steam-free-sci-fi-single-player-adventure/
+
+Steam has a free sci-fi title available right now that players have expressed mostly positive feelings about, and for good reason.
+---------
+
+# Michael Jackson Biopic Hits Huge Box Office Milestone, Gets Close To Joining All-Time Top 100
+
+Movies, Box Office Milestone, Michael
+
+Sun, 31 May 2026 15:41:37 GMT
+
+https://screenrant.com/michael-2026-movie-box-office-800-million-global-milestone/
+
+Michael continues to rocket up the charts during its sixth weekend, hitting a new global box office milestone and closing in on the all-time Top 100.
+---------
+
+# Captain America: Civil War Is Officially Getting Another Sequel After 10 Years
+
+Superheroes, Masked Recs
+
+Sun, 31 May 2026 15:35:20 GMT
+
+https://screenrant.com/captain-america-civil-war-sequel-avengers-doomsday-rdj-evans/
+
+Despite being released over 10 years ago, an official sequel to Captain America: Civil War is on the horizon, with big implications for the MCU.
+---------
+
+# Shonen Jump's Best Chainsaw Man Successor, Alien Headbutt, Is Officially Cancelled
+
+Anime, Shonen Jump
+
+Sun, 31 May 2026 15:30:21 GMT
+
+https://screenrant.com/alien-headbutt-best-chainsaw-man-successor-cancelled/
+
+It's a sad day for Alien Headbutt fans.
+---------
+
+# Black Myth Fans Left Scratching Their Heads Over New Game
+
+Gaming, Black Myth: Wukong, Black Myth: Zhong Kui, PC
+
+Sun, 31 May 2026 15:30:21 GMT
+
+https://screenrant.com/black-myth-whisper-of-fall-jinyiwei-confusion/
+
+Black Myth: Wukong fans are getting a bit confused about an upcoming new release that takes players back to the Ming Dynasty.
+---------
+
+# Mark Ruffalo's $100M Forgotten Fantasy Adventure Film Heads to Paramount+ 17 Years After Flopping in Theaters
+
+Movies, Where the Wild Things Are, mark ruffalo
+
+Sun, 31 May 2026 16:00:13 GMT
+
+https://www.cbr.com/mark-ruffalo-where-the-wild-things-are-paramount-plus-june-2026/
+
+The groundbreaking 2009 adaptation of a classic children's book is heading to Paramount+ very soon.
+---------
+
+# Marvel Reveals Doctor Strange’s Stunning New Look for Upcoming Spider-Man Appearance
+
+TV, Your Friendly Neighborhood Spider-Man, Doctor Strange
+
+Sun, 31 May 2026 16:00:13 GMT
+
+https://www.cbr.com/the-art-of-marvel-animation-your-friendly-neighborhood-spider-man-release-date/
+
+Marvel Animation is officially unveiling the process behind bringing Doctor Strange's latest look to life on the small screen.
+---------
+
+# 5 Greatest Western Villains Who Stole the Show
+
+Movies, Western, The Good, the Bad and the Ugly, Unforgiven
+
+Sun, 31 May 2026 16:00:13 GMT
+
+https://www.cbr.com/greatest-western-villains-all-time-list/
+
+As with every genre, the Western relies on great villains to tell good stories, but these antagonists stole every scene from the heroes.
+---------
+
+# Pokémon Officially Reveals Winds and Waves Opening
+
+Games, Pokemon
+
+Sun, 31 May 2026 15:55:14 GMT
+
+https://www.cbr.com/pokemon-winds-and-waves-opening-official-reveal/
+
+Pokémon fans just got their first look at the opening sequence for Winds and Waves courtesy of a truly stunning behind-the-scenes featurette.
+---------
+
+# CBS' NCIS Quietly Stole Its Formula From CSI
+
+TV, NCIS, CSI: Crime Scene Investigation
+
+Sun, 31 May 2026 15:30:13 GMT
+
+https://www.cbr.com/ncis-copied-csi-crime-scene-investigation-formula/
+
+NCIS has dominated television ratings, but it uses a formula nearly identical to that of another hit CBS show.
+---------
+
+# Backrooms Defeats The Mandalorian at the Box Office With Record-Breaking Debut For A24 & 2026 Horror
+
+Movies, box office, Backrooms
+
+Sun, 31 May 2026 15:23:27 GMT
+
+https://www.cbr.com/backrooms-record-breaking-a24-box-office/
+
+It's a great time to be a horror fan.
+---------
+
+# One Piece Characters Who Feel Like They Belong in Different Anime
+
+Anime, One Piece
+
+Sun, 31 May 2026 15:15:13 GMT
+
+https://www.cbr.com/one-piece-characters-belong-in-different-anime/
+
+Although there's no debate that Oda uses them well, characters like Cavendish and Perona seem pulled from completely different stories.
+---------
+
+# The Witcher Begins an Official New Era In 2027
+
+Games, The Witcher, The Witcher 3: Wild Hunt
+
+Sun, 31 May 2026 15:00:13 GMT
+
+https://www.cbr.com/the-witcher-begins-official-new-era-2027/
+
+The Witcher TV show might have come to an end, but the franchise is going to enter an exciting new era in 2027, thanks to fresh video game content.
+---------
+
+# 7 Years Later, the Most Unhinged 5-Part Drama Series Is Still the Best Weekend Binge
+
+TV Features, Jane the Virgin, The CW, Prime Video, Gina Rodriguez
+
+Sun, 31 May 2026 15:54:15 GMT
+
+https://collider.com/jane-the-virgin-unhinged-drama-weekend-binge/
+
+Jane the Virgin is a telenovela-inspired series that keeps you hooked with its wild twists and loving family dynamics.
+---------
+
+# Brendan Fraser’s WWII Thriller Unleashes a Box-Office Blitz on Russell Crowe’s ‘Nuremberg’
+
+Movie News, Brendan Fraser, Pressure, Nuremberg, Box Office
+
+Sun, 31 May 2026 15:00:13 GMT
+
+https://collider.com/new-brendan-fraser-ww2-thriller-pressure-overtakes-russell-crowe-nuremberg-box-office-5-million/
+
+Brendan Fraser’s new WW2 thriller has officially overtaken Russell Crowe’s streaming super-hit Nuremberg at the box office.
+---------
+
+# I Binged Over 100 Prestige TV Dramas - This Thriller Is the Gold Standard
+
+Features, Mindhunter, Netflix, Thriller, Holds Up
+
+Sun, 31 May 2026 16:00:17 GMT
+
+https://movieweb.com/prestige-tv-netflix-mindhunter-gold-standard/
+
+While it only lasted for two seasons, this prestige drama is truly the gold standard for prestige TV. Do you agree?
+---------
+
+# 'Minecraft' Sequel Reveals Official Title, First Look at Kirsten Dunst
+
+Movie News, A Minecraft Movie 2, A Minecraft Movie, Kirsten Dunst
+
+Sun, 31 May 2026 16:00:05 GMT
+
+https://movieweb.com/minecraft-movie-squared-kirsten-dunst/
+
+Kirsten Dunst will play Alex in 'A Minecraft Movie Squared.'
+---------
+
+# 'Avengers: Doomsday' Directors Reveal Key Part of Doctor Doom's Lore
+
+Movie News, Avengers: Doomsday, MCU, Superhero
+
+Sun, 31 May 2026 15:01:17 GMT
+
+https://movieweb.com/avengers-doomsday-doctor-doom-latveria-flag/
+
+Doctor Doom is a monarch, and a monarch needs their symbols.
+---------
+
+# The Greatest Season Finale in TV History Belongs To a Divisive Sci-Fi Show
+
+Features, Lost, Sci-Fi
+
+Sun, 31 May 2026 15:00:19 GMT
+
+https://movieweb.com/lost-season-3-best-finale/
+
+This sci-fi TV series may be divisive, but it has one of the most moving and memorable season finales of any TV show, even decades later.
+---------
+
+# 'Friends': Every Main Character's Age, Explained
+
+Features, Friends
+
+Sun, 31 May 2026 15:00:19 GMT
+
+https://movieweb.com/friends-how-old-are-the-main-characters/
+
+The ages and birthdays of the characters in 'Friends' were depicted inconsistently throughout the series.
+---------
+
 # The Despicable Me Franchise's Streaming Popularity Is A Great Sign For Its Upcoming Sequel
 
 Movies, Despicable Me
