@@ -1,3 +1,311 @@
+# HBO's High Fantasy Show Is So Good, It's Already Renewed For 2 Seasons
+
+Streaming TV, Masked Recs
+
+Sun, 31 May 2026 22:50:13 GMT
+
+https://screenrant.com/house-of-the-dragon-renewed-hbo-future-confirmed/
+
+HBO is known for its fantasy shows, with a current high fantasy series being so good that it has already been renewed for two more seasons.
+---------
+
+# Seth Rogen’s $180M Sci-Fi That’s “The Best Movie” In 42-Year-Old Franchise Officially Sets Free Streaming Release Date
+
+Movies, Masked Recs, Teenage Mutant Ninja Turtles: Mutant Mayhem, Seth Rogen
+
+Sun, 31 May 2026 22:49:54 GMT
+
+https://screenrant.com/teenage-mutant-ninja-turtles-mutant-mayhem-pluto-tv-free-streaming-release-date/
+
+Seth Rogen's critically acclaimed sci-fi reboot, a critical darling and box office hit, is set to make its free streaming debut very soon.
+---------
+
+# There’s No Better Time To Binge All 3 Seasons Of HBO Max’s #1 Show Worldwide
+
+Streaming TV, Masked Recs
+
+Sun, 31 May 2026 22:42:20 GMT
+
+https://screenrant.com/hbo-max-euphoria-season-3-finale-must-watch/
+
+There is no better time to binge Euphoria, the #1 show on HBO Max worldwide now, following the highly anticipated release of its season 3 finale.
+---------
+
+# One Piece’s HBO Rival Is Already One Of The Best Modern Manga Adaptations
+
+Streaming TV, Masked Recs
+
+Sun, 31 May 2026 22:40:50 GMT
+
+https://screenrant.com/song-of-the-samurai-one-piece-rival-best-manga-adaptations/
+
+History proves that bringing manga to live-action is no easy task, but HBO's new series is following One Piece's lead toward greatness.
+---------
+
+# How To Beat Giovanni In Pokémon GO (June 2026)
+
+Gaming, Pokemon GO, Pokemon, Mobile, Live Service Games
+
+Sun, 31 May 2026 22:30:20 GMT
+
+https://screenrant.com/pokemon-go-how-to-beat-giovanni-counters-june-2026/
+
+Giovanni and Team Rocket return to Pokémon GO in June 2026, sporting a refreshed team from last month that can still give Trainers a challenge.
+---------
+
+# Hunter x Hunter Has Anime's Most Tragic Character, And It's Not Close
+
+Anime, Hunter X Hunter
+
+Sun, 31 May 2026 22:30:20 GMT
+
+https://screenrant.com/hunter-x-hunter-kurapika-most-tragic-anime-character/
+
+One of Hunter x Hunter's best characters is so consumed by his own hatred that it warped his character, and it's heartbreaking to watch.
+---------
+
+# Avengers: Doomsday Is A Changing Of The Guard For The MCU
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
+
+Sun, 31 May 2026 22:25:21 GMT
+
+https://screenrant.com/avengers-doomsday-changing-of-the-guard/
+
+Avengers: Doomsday has assembled an impressive cast list filled with familiar characters, and it represents a changing of the guard for the MCU.
+---------
+
+# The First True Marvel Movie Will Finally Be Released In Theaters
+
+Movies, Masked Recs
+
+Sun, 31 May 2026 22:15:20 GMT
+
+https://screenrant.com/avengers-doomsday-true-marvel-comic-accurate-universe/
+
+The MCU might have been dominating theaters for the past couple of decades, but the time has come for the first true Marvel adaptation to premiere.
+---------
+
+# Though I am an Inept Villainess, Is Crunchyroll's New Apothecary Diaries Meets Freaky Friday Anime
+
+Anime, Crunchyroll
+
+Sun, 31 May 2026 22:06:16 GMT
+
+https://screenrant.com/inept-villainess-apothecary-diaries-meets-freaky-friday-crunchyroll/
+
+The perfect anime replacement for The Apothecary Diaries is a must-watch series that gives a new perspective to Freaky Friday's twist.
+---------
+
+# 10 Years Later, ABC’s Forgotten 2-Part Musical Comedy Still Deserves A Revival
+
+Network TV, Masked Recs
+
+Sun, 31 May 2026 22:03:20 GMT
+
+https://screenrant.com/galavant-revival-needed-explainer/
+
+A full decade has passed since ABC cancelled Galavant, the underrated musical comedy that definitely deserves a revival with the original cast.
+---------
+
+# Prison Break's Forgotten Spinoff Starts Streaming for Free in June
+
+TV, Breakout Kings
+
+Sun, 31 May 2026 22:51:45 GMT
+
+https://www.cbr.com/breakout-kings-streaming-tubi-june-2026/
+
+The Prison Break universe series most fans forgot existed can be revisited for free on streaming.
+---------
+
+# 40 Best Anime Of All Time
+
+Anime, Shonen, Shojo, shonen anime
+
+Sun, 31 May 2026 22:30:13 GMT
+
+https://www.cbr.com/best-anime-of-all-time/
+
+Anime quality is often subjective, with one fan absolutely loving an aspect another doesn't enjoy, but many agree on the most popular of all time.
+---------
+
+# 10 Best Jinx Quotes in Arcane
+
+TV, Netflix, League of Legends, Arcane
+
+Sun, 31 May 2026 22:30:13 GMT
+
+https://www.cbr.com/arcane-jinx-best-quotes-netflix-league-legends/
+
+Conflicted and traumatized, Arcane's Jinx is one of the most interesting characters in the Netflix series.
+---------
+
+# Pokémon Officially Gives Players New Look At Winds and Waves Starter
+
+Games, Pokemon
+
+Sun, 31 May 2026 22:25:13 GMT
+
+https://www.cbr.com/pokemon-official-new-look-winds-and-waves-starter/
+
+Every single Starter Pokémon from across all ten generations of the series is taking to the skies, and the Winds and Waves trio couldn't look better
+---------
+
+# Accessibility in Gaming Launched a Revolution
+
+Games, world of warcraft, Star Wars, Nintendo, Xbox One, Video Games, Gaming
+
+Sun, 31 May 2026 22:15:12 GMT
+
+https://www.cbr.com/accessibility-in-gaming-revolution/
+
+From the Xbox Adaptive Controller to Naughty Dog's landmark title, accessibility in gaming is finally leveling up.
+---------
+
+# Disney's Next Inspector Gadget Reboot Finally Gets Casting Update
+
+Movies, Inspector Gadget
+
+Sun, 31 May 2026 22:13:57 GMT
+
+https://www.cbr.com/disney-inspector-gadget-reboot-will-ferrell/
+
+Disney will once again reimagine the iconic 43-year-old character with a new actor.
+---------
+
+# New Invincible Story From Robert Kirkman Marks Major Sell-Out Milestone
+
+Comics, Invincible
+
+Sun, 31 May 2026 22:00:13 GMT
+
+https://www.cbr.com/robert-kirkman-capes-7-sold-out-reprinting/
+
+Capes continues to build momentum with a second printing, new cover and the start of a fan favorite's origin story.
+---------
+
+# 10 Strongest Sci-fi Movie Heroes Of the Last 25 Years, Ranked
+
+Movies, Sci-Fi
+
+Sun, 31 May 2026 22:00:13 GMT
+
+https://www.cbr.com/best-sci-fi-movie-heroes-last-25-years-list/
+
+The following sci-fi movie heroes became some of the most unstoppable characters audiences have seen in the genre over the last 25 years.
+---------
+
+# Masters of the Universe Director Officially Confirms Franchise Plans After Fantastic First Reactions
+
+CBR Exclusives, Masters of the Universe
+
+Sun, 31 May 2026 21:54:58 GMT
+
+https://www.cbr.com/masters-of-the-universe-travis-knight-franchise-plans/
+
+Exclusive: Masters of the Universe director Travis Knight teases franchise plans ahead of release.
+---------
+
+# Netflix's Near-Perfect 2-Part Heist Thriller Is the Perfect Weekend Binge
+
+Movie Features, Inside Man, Netflix, Denzel Washington, Spike Lee
+
+Sun, 31 May 2026 22:49:13 GMT
+
+https://collider.com/netflix-inside-man-denzel-washington-2-part-heist-thriller-perfect-weekend-binge/
+
+Looking for a good heist movie? Inside Man and its sequel will be dropping on Netflix on June 1.
+---------
+
+# Paramount+’s 10-Part Bourne Meets Bond Spy Thriller Is the Perfect Weekend Binge Before Season 2
+
+TV Features, The Agency, Michael Fassbender, Paramount Plus, Series
+
+Sun, 31 May 2026 22:49:13 GMT
+
+https://collider.com/paramount-plus-the-agency-season-1-binge-watch-before-season-2/
+
+Why Michael Fassbender’s spy thriller The Agency is the perfect binge before Season 2 arrives on Paramount+ this June.
+---------
+
+# HBO Max's Superhero Series Is Still Its Best Sci-Fi Binge 4 Years Later
+
+TV Features, Young Justice, DC, HBO Max, Animation
+
+Sun, 31 May 2026 22:46:14 GMT
+
+https://collider.com/young-justice-hbo-max-superhero-series-sci-fi-binge/
+
+Young Justice offers unique stories, complex themes, and a mature tone that makes it one of the best superhero shows on HBO Max.
+---------
+
+# Apple TV's Remake of Martin Scorsese's Scariest Crime Thriller Officially Premieres This Week
+
+TV News, Cape Fear, Apple TV, Thriller
+
+Sun, 31 May 2026 22:45:12 GMT
+
+https://collider.com/apple-tv-martin-scorsese-crime-thriller-remake-cape-fear-premiere-date-june-5-2026/
+
+Apple TV's remake of the Martin Scorsese classic crime thriller officially premieres on June 5, 2026. Get all the details here.
+---------
+
+# 15 Years Later, Gore Verbinski's Western Masterpiece Officially Stakes Its Claim on Paramount+
+
+Movie News, Rango, Johnny Depp, Gore Verbinski, Western
+
+Sun, 31 May 2026 22:30:13 GMT
+
+https://collider.com/gore-verbinski-johnny-depp-western-rango-streaming-paramount-plus-june-2026/
+
+Johnny Depp’s Oscar-winning Western is streaming on Paramount+ now. Here's everything you should know about Rango.
+---------
+
+# 5 Years Later, Ridley Scott’s Near-Perfect Historical Epic Is Finding New Life on Streaming
+
+Movie News, The Last Duel, Ben Affleck, Matt Damon, Ridley Scott
+
+Sun, 31 May 2026 22:15:12 GMT
+
+https://collider.com/ridley-scott-historical-epic-the-last-duel-paramount-plus-streaming-june-2026/
+
+Ridley Scott’s underrated historical epic The Last Duel, starring Adam Driver and Matt Damon, is coming to Paramount+ in June.
+---------
+
+# Chris Pratt's Biggest Military Story Since 'The Terminal List' Hits Apple TV on November 20
+
+Movie News, Chris Pratt, Apple TV, Drama, The Terminal List
+
+Sun, 31 May 2026 22:00:13 GMT
+
+https://collider.com/apple-tv-chris-pratt-military-movie-way-of-the-warrior-kid-release-date-plot-november-20-2026/
+
+In Apple TV's upcoming drama film Chris Pratt plays a Navy SEAL who uses his training to help his nephew. Get all the details.
+---------
+
+# 5 Most Important James Bond Movies That Define the Franchise
+
+Movie, GoldenEye, James Bond, On Her Majesty's Secret Service, Goldfinger
+
+Sun, 31 May 2026 21:55:13 GMT
+
+https://collider.com/most-important-james-bond-movies-ranked/
+
+Goldfinger, GoldenEye, and The Spy Who Loved Me are among the most important James Bond movies that define the historic franchise and its legacy.
+---------
+
+# 51 Years Later, Dustin Hoffman's Biopic Masterpiece Is Better Than Ever
+
+Features, Lenny
+
+Sun, 31 May 2026 22:00:19 GMT
+
+https://movieweb.com/dusttin-hoffman-lenny-4k-release/
+
+An underrated '70s classic starring Dustin Hoffman has resurfaced thanks to the Criterion Collection. Here's what you need to know.
+---------
+
 # 10 Greatest D-Day Movies, Ranked
 
 Classic Movies, War, Ranking
