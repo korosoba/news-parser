@@ -1,3 +1,289 @@
+# Prime Video's 2-Part 'Yellowstone Meets Lost' Series Was Cancelled Too Soon
+
+Classic TV, Masked Recs
+
+Sun, 31 May 2026 19:02:20 GMT
+
+https://screenrant.com/outer-range-prime-video-yellowstone-meets-lost-canceled-soon/
+
+Prime Video was onto something with its dark sci-fi Western series, but the streamer cancelled it just as it was about to hit its stride.
+---------
+
+# Law & Order: SVU Season 28 Is Officially Addressing An Ongoing Character Concern
+
+Network TV, Law & Order: Special Victims Unit
+
+Sun, 31 May 2026 19:00:21 GMT
+
+https://screenrant.com/law-order-svu-season-28-ice-t-fin-more-episodes/
+
+Law & Order: SVU was missing Ice-T as Fin for most of season 27, but the showrunner shared plans for season 28 that could fix that concern.
+---------
+
+# GTA 6 Trailer 3 Wait Breaks Red Dead Redemption 2 Record
+
+Gaming
+
+Sun, 31 May 2026 19:00:21 GMT
+
+https://screenrant.com/gta-6-trailer-3-wait-longer-red-dead-2/
+
+As the wait drags on for a third GTA 6 trailer, it surpasses a milestone previously established by Rockstar's last major game, Red Dead Redemption 2.
+---------
+
+# Prime Video’s New Spider-Man Series Required “Almost A Year” Of Reshoots For Multi-Format Release
+
+TV, Spider-Noir, Spider-Noir - Season 1, Spider-Man
+
+Sun, 31 May 2026 18:41:33 GMT
+
+https://screenrant.com/spider-noir-reshoots-multi-format-release-update/
+
+Spider-Noir crew members reveal the hard work that went into creating both black-and-white and color versions of the Prime Video Spider-Man show.
+---------
+
+# Is Euphoria Season 4 Happening? What We Know
+
+Streaming TV, Euphoria
+
+Sun, 31 May 2026 18:30:20 GMT
+
+https://screenrant.com/euphoria-season-4-explained/
+
+Explore the possibility of Euphoria Season 4, as creator Sam Levinson hints at open-ended ending & fans remain invested in the show's characters.
+---------
+
+# Hollow Knight: Silksong Fans Universally Praise New Release
+
+Gaming, Hollow Knight: Silksong, Hollow Knight, Indie
+
+Sun, 31 May 2026 18:30:20 GMT
+
+https://screenrant.com/hollow-knight-silksong-physical-release-reaction/
+
+Hollow Knight: Silksong's latest release update confirms when we will see its new launch and estimates when the new DLC may launch, too.
+---------
+
+# 10 Greatest 80s Kids Movies That Traumatized Children
+
+Movies, The Transformers: The Movie, The Fox and the Hound, The Last Unicorn, Return to Oz, The Brave Little Toaster, The Dark Crystal, E.T. the Extra-Terrestrial, The Secret of NIMH, The Land Before Time, The Neverending Story
+
+Sun, 31 May 2026 18:30:20 GMT
+
+https://screenrant.com/best-80s-kids-movies-traumatized-children/
+
+The 80s were an experimental time for kids' movies. Some were far darker than you would ever find nowadays, and many traumatized a young audience.
+---------
+
+# 10 Praiseworthy War Movies No One Ever Talks About
+
+Movies, War
+
+Sun, 31 May 2026 18:30:20 GMT
+
+https://screenrant.com/great-war-movies-nobody-talks-about/
+
+Despite being some of the greatest examples of their genre, these praiseworthy war movies don't get that attention they deserve.
+---------
+
+# David Tennant’s Surprise Cameo & Potential Future In Netflix’s New Streaming Hit Explained By Creator
+
+TV, David Tennant
+
+Sun, 31 May 2026 18:24:19 GMT
+
+https://screenrant.com/the-four-seasons-david-tennant-cameo-tracey-wigfield-lang-fisher-explained/
+
+After starring in Doctor Who, Jessica Jones, Broadchurch, and Star Wars: The Clone Wars, David Tennant has now joined a Netflix streaming hit.
+---------
+
+# New Final Fantasy 7 DLC is Officially Here
+
+Games, Final Fantasy
+
+Sun, 31 May 2026 19:05:13 GMT
+
+https://www.cbr.com/final-fantasy-7-new-dlc-officially-announced/
+
+Sephiroth fans can't afford to miss the latest Final Fantasy 7 update.
+---------
+
+# The Adventures of Cyclops and Phoenix is an X-Men Comic You Should Be Reading
+
+Comics, Comics You Should Be Reading, X-Men, Marvel
+
+Sun, 31 May 2026 19:00:13 GMT
+
+https://www.cbr.com/xmen-adventures-of-cyclops-and-phoenix-comic-you-should-be-reading/
+
+Set the stage for X-Men '97's second season by delving into an often-overlooked storyline that connects the X-Men's past, present, and dark future.
+---------
+
+# Paramount+ Officially Releases Lauren Graham's 6-Season Gilmore Girls Replacement in Just 1 Day
+
+TV, Parenthood
+
+Sun, 31 May 2026 19:00:13 GMT
+
+https://www.cbr.com/lauren-graham-parenthood-paramount-plus-june-2026/
+
+Fans who can't stop binge-watching Gilmore Girls will have the perfect replacement on Paramount+.
+---------
+
+# 5 Action Movie Heroes Better Than John Wick, Ranked
+
+Movies, John Wick, Keanu Reeves, ian mcshane
+
+Sun, 31 May 2026 19:00:13 GMT
+
+https://www.cbr.com/action-movie-heroes-better-than-john-wick-list/
+
+John Wick has dominated action movies for so long that some have forgotten that there was a time before.
+---------
+
+# It’s Officially Over for One-Punch Man Fans, New Report Reveals
+
+Anime, One Punch Man
+
+Sun, 31 May 2026 18:35:40 GMT
+
+https://www.cbr.com/one-punch-man-bandai-namco-2026-report/
+
+One-Punch Man fans just got a one-two punch with the best and worst news possible ahead of the upcoming new anime season.
+---------
+
+# Emilia Clarke Clarifies Games of Thrones Salaries: 'We Didn't Earn That Much'
+
+TV, Game Of Thrones
+
+Sun, 31 May 2026 18:21:59 GMT
+
+https://www.cbr.com/emilia-clarke-game-of-thrones-salaries/
+
+Emilia Clarke sets the record straight on her Game of Thrones salary.
+---------
+
+# 5 Times Satoru Gojo Was Officially More Dangerous Than JJK's Villains
+
+Anime, Jujutsu Kaisen, shonen anime, Shonen
+
+Sun, 31 May 2026 18:15:14 GMT
+
+https://www.cbr.com/satoru-gojo-more-dangerous-than-jjk-villains/
+
+Satoru Gojo may be lauded as Jujutsu Kaisen's strongest sorcerer, but that strength goes to his head in the most villainous ways sometimes.
+---------
+
+# The 30 Strongest Anime Characters of All Time
+
+Anime
+
+Sun, 31 May 2026 18:00:15 GMT
+
+https://www.cbr.com/strongest-anime-characters/
+
+Heroes Naruto, Luffy, and Goku have proven themselves among anime's most powerful characters, but are any of them the strongest of all time?
+---------
+
+# John Hughes' $70M Comedy Classic Finds New Streaming Home 40 Years After Making 14x Its Budget
+
+Movies, Ferris Bueller's Day Off
+
+Sun, 31 May 2026 18:00:14 GMT
+
+https://www.cbr.com/john-hughes-ferris-buellers-day-off-mgm-plus-june-2026/
+
+The cult classic celebrates its 40th anniversary by streaming on MGM+ on June 11.
+---------
+
+# 10 Marvel Comics That Deserve Animated Adaptations
+
+Comics, Marvel, X-Men, Spider-Man
+
+Sun, 31 May 2026 18:00:14 GMT
+
+https://www.cbr.com/marvel-comics-need-animated-adaptations-list/
+
+These Marvel masterpieces need to be brought to life in animation as soon as possible.
+---------
+
+# Netflix’s 2026 Action Juggernaut Is One Massive Milestone Away From the All-Time Greats
+
+Movie News, Apex, Charlize Theron, Taron Egerton, Netflix
+
+Sun, 31 May 2026 19:00:14 GMT
+
+https://collider.com/netflix-charlize-theron-action-blockbuster-apex-all-time-top-10-viewership-list-110-million-views/
+
+Netflix's newest tent-pole, Apex, is on the verge of entering an elite viewership list by overtaking a Millie Bobby Brown movie. Find out more.
+---------
+
+# This So-Bad-It's-Good Horror Slasher Cost Just $400 To Make
+
+Movie Features, Woodchipper Massacre, Horror, Slasher, Comedy
+
+Sun, 31 May 2026 18:40:14 GMT
+
+https://collider.com/woodchipper-massacre-1988-horror-movie/
+
+Woodchipper Massacre became a cult horror favorite thanks to its $400 budget, hilariously bad acting, cheap effects, and chaotic kills.
+---------
+
+# Johnny Depp’s Most Overlooked Crime Thriller Is Finding a New Audience on Streaming
+
+Movie News, Johnny Depp, Plex, Streaming, City of Lies
+
+Sun, 31 May 2026 18:00:15 GMT
+
+https://collider.com/johnn-depp-crime-thriller-city-of-lies-streaming-on-plex-june-2026/
+
+Johnny Depp's answer to Training Day is heading to a free streamer. Find out more about City of Lies here.
+---------
+
+# Matthew Rhys' 2-Part Noir Crime Drama Is So Good, You’ll Wish You Found It Sooner
+
+TV Features, Perry Mason, Matthew Rhys, John Lithgow, Chris Chalk
+
+Sun, 31 May 2026 17:58:14 GMT
+
+https://collider.com/matthew-rhys-hbo-noir-crime-drama-perry-mason/
+
+Matthew Rhys' underrated HBO noir drama Perry Mason delivers the kind of compelling mystery that's so good, you'll wish you watched it sooner.
+---------
+
+# 'Backrooms' Wins Opening Weekend at Box Office, Bests 'The Mandalorian and Grogu'
+
+Movie News, Backrooms, The Mandalorian and Grogu, box office
+
+Sun, 31 May 2026 19:04:59 GMT
+
+https://movieweb.com/backrooms-mandalorian-grogu-box-office/
+
+Kane Parsons's 'Backrooms' had an impressive opening weekend, winning the box office and topping 'The Mandalorian and Grogu' on the charts.
+---------
+
+# Taylor Sheridan Finally Pushes Rip Over the Edge in Episode 4 of 'Dutton Ranch'
+
+Features, Dutton Ranch, Yellowstone, Taylor Sheridan
+
+Sun, 31 May 2026 18:30:18 GMT
+
+https://movieweb.com/taylor-sheridan-rip-cow-slaughter-episode-4-dutton-ranch/
+
+Rip Wheeler did John Dutton's dirtiest work throughout 'Yellowstone', but episode 4 of 'Dutton Ranch' just put him through his worst task yet.
+---------
+
+# 11 Masterpiece Neo-Western Movies That Rewrote the Rules of the Genre
+
+Movie Lists, Western
+
+Sun, 31 May 2026 18:00:19 GMT
+
+https://movieweb.com/masterpiece-neo-western-movies-rewrote-genre-rules/
+
+The neo-Westerns that changed everything.
+---------
+
 # 32 Years Ago, A Near-Perfect Sitcom Walked So That Friends Could Run
 
 Classic TV, Masked Recs, Friends
