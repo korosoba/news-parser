@@ -1,3 +1,322 @@
+# Johnny Depp's New Movie Revives A 25-Year Partnership
+
+Movies, Masked Recs
+
+Sun, 31 May 2026 02:45:21 GMT
+
+https://screenrant.com/johnny-depp-day-drinker-penelope-cruz-partnership/
+
+Johnny Depp is back for his first mainstream Hollywood project in more than eight years, and this return will also mean a meaningful reunion.
+---------
+
+# Netflix's Hit Teen Drama Is So Good, It's Already Renewed For 2 More Seasons
+
+Streaming TV, Masked Recs
+
+Sun, 31 May 2026 02:30:20 GMT
+
+https://screenrant.com/my-life-with-the-walter-boys-netflix-renew-more-seasons/
+
+Netflix has quietly been releasing one of the best teen dramas on television, and the streaming favorite already has a bright future guaranteed.
+---------
+
+# Ghost in the Shell's New Anime Is The Genre Evolution True Fans Have Waited 31 Years For
+
+Anime, The Ghost in the Shell, Ghost in the Shell, Prime Video
+
+Sun, 31 May 2026 02:23:36 GMT
+
+https://screenrant.com/ghost-in-the-shell-prime-video-cyberpunk-genre-evolution/
+
+Discover how Science Saru's Ghost in the Shell anime faithfully adapts Masamune Shirow's manga, offering a fresh take on the iconic franchise.
+---------
+
+# Masters Of The Universe Tackles Inconsistent Character
+
+Movies, Masters of the Universe
+
+Sun, 31 May 2026 02:04:43 GMT
+
+https://screenrant.com/masters-of-the-universe-he-man-inconsistent-origins/
+
+Director of 2026's live-action Masters of the Universe film explains how he handles a character who has been "wildly inconsistent" for decades.
+---------
+
+# Star Wars: Unexpected Hero Is An Official New Release Perfect For Mando Fans
+
+Gaming, Star Wars, The Mandalorian, The Mandalorian and Grogu, PC
+
+Sun, 31 May 2026 02:00:32 GMT
+
+https://screenrant.com/star-wars-unexpected-hero-fine-art-print-2026/
+
+Star Wars: Unexpected Hero is perfect for fans of The Mandalorian and Grogu, brought to us from Sideshow and ACME Archives.
+---------
+
+# 10 Classic Sci-Fi Books You Should Read In 2026
+
+Books
+
+Sun, 31 May 2026 01:45:21 GMT
+
+https://screenrant.com/classic-sci-fi-books-worth-reading-2026/
+
+From alien invasions to advanced technology, these classic science fiction novels tackled topics that are still worth exploring in 2026.
+---------
+
+# The Internet Is Obsessed With This Surprising Darth Vader Fact In Maul - Shadow Lord
+
+Movies, Anakin Skywalker/Darth Vader, Star Wars: Maul - Shadow Lord
+
+Sun, 31 May 2026 01:45:21 GMT
+
+https://screenrant.com/star-wars-darth-vader-maul-shadow-lord-age/
+
+Darth Vader has been a fan-favorite character for decades, and Star Wars fans still can't get enough of this fact about him in Maul - Shadow Lord.
+---------
+
+# Bridgerton Season 5 Is Officially The End Of An Era
+
+Streaming TV, Bridgerton
+
+Sun, 31 May 2026 01:30:20 GMT
+
+https://screenrant.com/bridgerton-season-5-end-of-an-era/
+
+Bridgerton's upcoming fifth season will be groundbreaking in more ways than one. Francesca and Michaela's love story will change the show forever.
+---------
+
+# 5 Steam Machine Leaks We Hope Aren't True
+
+Gaming, Steam
+
+Sun, 31 May 2026 01:30:20 GMT
+
+https://screenrant.com/5-steam-machine-leaks-we-hope-arent-true/
+
+With the Steam Machine on the way, there are a lot of rumors we're hoping aren't true. Here are five of the biggest.
+---------
+
+# If You're Comparing Gon to Killua, You're Missing the Whole Point of Hunter x Hunter
+
+Anime, Hunter X Hunter
+
+Sun, 31 May 2026 01:00:20 GMT
+
+https://screenrant.com/hunter-x-hunter-gon-killua-best-anime-duo-opposites/
+
+Hunter x Hunter is a balance of opposites, a comparison of two characters who reflect one another, and if you're comparing them, you don't get it.
+---------
+
+# 5 Near-Perfect 80s Anime Movies That No One Remembers
+
+Anime, Toward the Terra, Urusei Yatsura: Beautiful Dreamer
+
+Sun, 31 May 2026 02:45:14 GMT
+
+https://www.cbr.com/near-perfect-forgotten-80s-anime-list/
+
+The 1980s were a banner decade for anime feature films, including underrated masterpieces like They Were Eleven that have slipped through the cracks.
+---------
+
+# Godzilla: Minus One Is Still the Monster Movie Event of the Decade
+
+Movies, Godzilla, Godzilla Minus One
+
+Sun, 31 May 2026 02:41:13 GMT
+
+https://www.cbr.com/godzilla-minus-one-monster-movie-event-of-decade-netflix/
+
+With Godzilla: Minus One streaming on Netflix, it continues to prove how the film is still the decade's biggest and best monster movie.
+---------
+
+# Tracker Season 3's Finale Makes CBS History for Justin Hartley's Show
+
+TV, Tracker, CBS
+
+Sun, 31 May 2026 02:34:58 GMT
+
+https://www.cbr.com/cbs-tracker-season-3-episode-22-finale-colter-shaw-home/
+
+CBS ushers in a historic upgrade to Justin Hartley's character in the finale of Tracker Season 3, as Colter Shaw makes a game-changing reveal.
+---------
+
+# 10 Greatest Sci-Fi Games of the Last 15 Years
+
+Games, Sci-Fi, Star Wars Jedi: Survivor, Control
+
+Sun, 31 May 2026 02:15:13 GMT
+
+https://www.cbr.com/best-sci-fi-games-past-15-years-list/
+
+The best sci-fi games from the past 15 years, like FFVII and Control, featured engaging stories and innovative gameplay across various genres.
+---------
+
+# The Most Powerful Rings in The Lord of the Rings, Ranked
+
+Movies, The Lord of the Rings, The Hobbit, The Lord of the Rings: The Rings of Power
+
+Sun, 31 May 2026 02:00:25 GMT
+
+https://www.cbr.com/lord-of-the-rings-most-powerful-rings-list/
+
+The One Ring was far from the only magical ring in J. R. R. Tolkien's The Lord of the Rings, so which were the most powerful in Middle-earth?
+---------
+
+# 10 Saddest Shojo Anime Moments Ranked by Emotional Damage
+
+Anime, Shojo
+
+Sun, 31 May 2026 01:45:13 GMT
+
+https://www.cbr.com/saddest-shojo-anime-moments/
+
+Emotional storytelling in shojo anime thrives on vulnerability, capturing the ache of growing up, letting go and facing quiet tragedies.
+---------
+
+# The 10 Greatest Opening Shots of the Last 50 Years, Ranked
+
+Movies, Star Wars
+
+Sun, 31 May 2026 01:30:14 GMT
+
+https://www.cbr.com/greatest-opening-movie-shots-last-50-year-ranked/
+
+The opening of any film might be its most important moment and these movies perfected that art.
+---------
+
+# The Official Best Sports Anime Ever Made
+
+Anime, Haikyu!!, Slam Dunk
+
+Sun, 31 May 2026 01:25:13 GMT
+
+https://www.cbr.com/official-best-sports-anime-ever-made/
+
+Anime has tremendous respect for sports, with series like Slam Dunk and Haikyu!! exemplifying the medium's greatest titles that play in this space.
+---------
+
+# Superman, Supergirl, and More Lead DC’s Return to Classic Storytelling Eras
+
+Comics, DC Comics, Superman, Supergirl
+
+Sun, 31 May 2026 01:00:13 GMT
+
+https://www.cbr.com/dc-finest-superman-supergirl-dc-universe-infinite-release-confirmed/
+
+Fans can revisit some of the best DC stories on DC Universe Infinite.
+---------
+
+# Rosa Salazar's 'Delightfully Deranged' Netflix Horror Miniseries Is an Instant Cult Classic
+
+TV, Horror, Brand New Cherry Flavor, Netflix
+
+Sun, 31 May 2026 01:00:13 GMT
+
+https://www.cbr.com/netflix-brand-new-cherry-instant-horror-cult-classic/
+
+Netflix’s Brand New Cherry Flavor stands out as a disturbing modern cult series packed with surreal visuals and brutal body horror moments.
+---------
+
+# 10 Greatest Documentaries of the Last 10 Years, Ranked
+
+Movie, Documentary, 13th, Navalny, Summer of Soul
+
+Sun, 31 May 2026 01:33:13 GMT
+
+https://collider.com/best-documentaries-last-10-years-ranked/
+
+Summer of Soul, My Octopus Teacher, Won't You Be My Neighbor, and more make up our list of the best documentaries of the last 10 years.
+---------
+
+# 10 Superhero Shows That Are Amazing From Start to Finish
+
+TV, Superhero, Daredevil, Superman & Lois, Teen Titans
+
+Sun, 31 May 2026 01:03:14 GMT
+
+https://collider.com/superhero-shows-amazing-start-to-finish/
+
+Daredevil, Superman & Lois, Teen Titans, and Batman: The Animated Series are among the superhero TV shows that are amazing from start to finish.
+---------
+
+# Disney's 2-Part Sci-Fi Series Has a Quote That Hits Harder Than Anything on TV
+
+TV Features, Disney+, Star Wars, Stellan Skarsgård, Andor
+
+Sun, 31 May 2026 01:01:13 GMT
+
+https://collider.com/star-wars-andor-sci-fi-series-luthen-rael-best-quote/
+
+Luthen Rael's monologue in Andor perfectly showcases the show's complex characters and mature storytelling approach.
+---------
+
+# 13 Years Later, Jason Statham’s Bone-Crunching Action Gem Is Finding New Life on Streaming
+
+Movie News, Jason Statham, Homefront, Action, Plex
+
+Sun, 31 May 2026 00:15:15 GMT
+
+https://collider.com/jason-statham-action-packed-hidden-gem-homefront-streaming-on-plex-june-2026/
+
+Jason Statham's 100-minute ass-kicking action flick Homefront is getting a new streaming home. Read on for more details.
+---------
+
+# Nearly 70 Years Later, the Greatest Legal Thriller Ever Made Is Coming to Prime Video
+
+Movie News, 12 Angry Men, Henry Fonda, Sidney Lumet, Prime Video
+
+Sun, 31 May 2026 00:00:15 GMT
+
+https://collider.com/greatest-legal-thriller-ever-made-12-angry-men-coming-to-prime-video-june-2026/
+
+The greatest legal drama ever made, Sidney Lumet's 12 Angry Men, is coming to Prime Video. Here's when you can watch it.
+---------
+
+# The 12 Most Intense Movies of the 21st Century
+
+Movie Lists, Thriller
+
+Sun, 31 May 2026 02:00:31 GMT
+
+https://movieweb.com/most-intense-movies-21st-century/
+
+You're going to want to put down your phone for these movies, which are perfectly designed to keep you hooked from start to finish.
+---------
+
+# The 10 Greatest Final Lines in Movie History, Ranked
+
+Movie Lists, Drama, Sci-Fi, The Usual Suspects, Back to the Future, The Silence of the Lambs
+
+Sun, 31 May 2026 01:00:18 GMT
+
+https://movieweb.com/greatest-final-lines-movie-history-ranked/
+
+From haunting dialogue to squeezing in one last joke, how do the best movie-ending quotes of all time stack up?
+---------
+
+# 'Reacher' Suffers Major Setback on Streaming Ahead of Season 4
+
+TV News, Reacher, Prime Video, Hot on Streaming, Action
+
+Sun, 31 May 2026 00:00:19 GMT
+
+https://movieweb.com/reacher-streaming-failure-prime-video-action-may-2026/
+
+Prime Video's action-packed 'Reacher' adaptation suffers on streaming charts before Season 4's release in 2026.
+---------
+
+# 4 Confirmed George Lucas Sequel Plans That Disney Completely Ignored
+
+Movie Lists, Star Wars, George Lucas, Quote
+
+Sun, 31 May 2026 00:00:19 GMT
+
+https://movieweb.com/george-lucas-sequel-plans-disney-ignored/
+
+While the sequel trilogy did incorporate some of George Lucas original ideas, Disney made plenty of big changes.
+---------
+
 # Prime Video's Hit Action Franchise Is So Good, It Already Has 5 Different Shows
 
 Streaming TV, Masked Recs
