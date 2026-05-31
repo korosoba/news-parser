@@ -1,3 +1,223 @@
+# Fallout: Siege of New Vegas Trailer Leaves Fans Absolutely Floored
+
+Gaming, Fallout: New Vegas, Fallout
+
+Sun, 31 May 2026 04:30:20 GMT
+
+https://screenrant.com/fallout-siege-of-new-vegas-fan-film-trailer/
+
+Fallout: Siege of New Vegas is a fan-made film built in Unreal Engine, and it looks like a spectacular new adventure in the beloved game.
+---------
+
+# RE9's DLC Could Solve The Game's Biggest Problem
+
+Gaming
+
+Sun, 31 May 2026 04:00:30 GMT
+
+https://screenrant.com/resident-evil-9-dlc-grace-problem/
+
+Resident Evil Requiem's free DLC mode adds a lot to the game, but it could also help fix one of the major complaints about its characters.
+---------
+
+# Nintendo Switch 10/10 Game Is Free For 24 More Hours
+
+Gaming, Nintendo Switch, Nintendo Switch 2, PC, Indie, BALL x PIT
+
+Sun, 31 May 2026 04:00:30 GMT
+
+https://screenrant.com/nintendo-switch-june-2026-free-game-24-hours/
+
+If you own a Nintendo Switch, you may be eligible to play an incredibly well-reviewed game for free, but you will have to rush to enjoy it.
+---------
+
+# June 2026 Video Game Releases: Full List And Highlights
+
+Gaming
+
+Sun, 31 May 2026 04:00:30 GMT
+
+https://screenrant.com/june-2026-video-games-releases-schedule-lineup/
+
+June isn't historically the biggest month for video game releases, but there are still some exciting titles kicking off the summer this year.
+---------
+
+# Only One Z Fighter Earned Vegeta's Respect Before Goku
+
+Anime, Dragon Ball, Dragon Ball Z
+
+Sun, 31 May 2026 03:30:10 GMT
+
+https://screenrant.com/gohan-earned-vegeta-respect-before-goku/
+
+Discover how Gohan was the only Z Fighter to earn Vegeta's respect before Goku, setting a new dynamic in the Dragon Ball series.
+---------
+
+# 8 Lines From The Boys Season 5 We Can't Believe Were Actually Said
+
+Streaming TV, The Boys
+
+Sun, 31 May 2026 03:07:38 GMT
+
+https://screenrant.com/the-boys-season-5-most-shocking-lines-insults/
+
+The Boys season 5 is packed with many hilarious and equally shocking lines, but 8, in particular, are significantly more unforgettable than others.
+---------
+
+# The Mandalorian & Grogu’s Red Jammer Reference Is A Star Wars Deep-Cut Going Back 49 Years
+
+Star Wars, The Mandalorian and Grogu, Star Wars: Episode IV - A New Hope
+
+Sun, 31 May 2026 03:04:02 GMT
+
+https://screenrant.com/mandalorian-and-grogu-red-jammer-reference-star-wars-new-hope-explained/
+
+One of The Mandalorian & Grogu's best Star Wars references dates back 49 years, bringing the entire franchise full circle with the "Red Jammer."
+---------
+
+# 007 First Light Reverses Bond's Biggest Craig-Era Change
+
+Gaming, 007 First Light, Triple-A Games, PC, James Bond
+
+Sun, 31 May 2026 03:00:21 GMT
+
+https://screenrant.com/007-first-light-james-bond-daniel-craig-change/
+
+007 First Light takes some lessons from the Daniel Craig Bond movies, but it also undoes one of the most fundamental changes in direction.
+---------
+
+# 8 Greatest Live-Action Sherlock Holmes Villains
+
+Classic TV, Sherlock Holmes
+
+Sun, 31 May 2026 03:00:21 GMT
+
+https://screenrant.com/sherlock-holmes-best-live-action-villains/
+
+Sherlock Holmes might be locked in a battle with Moriarty, but the character has faced several enemies, whose actors have given spot-on performances.
+---------
+
+# 10 Major Manga Series That Are Ending Soon
+
+Anime
+
+Sun, 31 May 2026 03:00:21 GMT
+
+https://screenrant.com/major-manga-ending-soon/
+
+These are the biggest manga series that will conclude soon, with endings planned between this year and 2027.
+---------
+
+# Pokémon Officially Returns to Kanto With New 30th Anniversary LEGO Set
+
+Games, Pokemon
+
+Sun, 31 May 2026 04:30:12 GMT
+
+https://www.cbr.com/pokemon-official-new-30th-anniversary-lego-set-kanto-return/
+
+To celebrate Pokémon's 30th anniversary, LEGO has officially announced the return of a set that fans have been waiting for.
+---------
+
+# North America’s Most Mature Anime Streamer Beats the Odds at the 47th Annual Telly Awards
+
+Anime
+
+Sun, 31 May 2026 03:55:13 GMT
+
+https://www.cbr.com/oceanveil-mature-anime-streamer-telly-awards/
+
+A streaming company dedicated to highly risqué anime content has a record-breaking performance at the 47th Annual Telly Awards.
+---------
+
+# 10 Strongest Pokémon in the Anime That Aren't Legendary
+
+Anime, Pokemon, Pokémon, Pokémon Origins
+
+Sun, 31 May 2026 03:45:14 GMT
+
+https://www.cbr.com/most-powerful-non-legendary-pokemon-anime-list/
+
+The Pokémon anime featured incredibly powerful legendary Pokémon, but these ten non-legendary monsters provided just as much power in their bodies.
+---------
+
+# Nathan Fillion's Serenity Remains the Biggest Stealth Masterpiece in Sci-Fi Movie History
+
+Movies, Serenity, Firefly
+
+Sun, 31 May 2026 03:40:13 GMT
+
+https://www.cbr.com/serenity-best-stealth-masterpiece-sci-fi-movie-history/
+
+Serenity might not have been a roaring financial success, but the Firefly sequel does everything a great follow-up movie needs to do.
+---------
+
+# Sailor Moon Creator's Revolutionary '90s Anime Finally Returns After 27 Years in New Official U.S. Release
+
+Anime, Revolutionary Girl Utena, Sailor Moon
+
+Sun, 31 May 2026 03:39:36 GMT
+
+https://www.cbr.com/sailor-moon-creator-adolescence-of-utena-june-2026/
+
+Next month, GKIDS is treating U.S. moviegoers to an elusive, "avant-garde" anime gem from Sailor Moon Director Kunihiko Ikuhara .
+---------
+
+# ‘A Wonderful Story’: The Expanse Gets High Praise From Space Expert
+
+TV, The Expanse, Prime Video, Sci-Fi
+
+Sun, 31 May 2026 03:30:13 GMT
+
+https://www.cbr.com/prime-video-the-expanse-sci-fi-high-praise-space-expert/
+
+One of Amazon's biggest sci-fi epics receives high praise from a real-life astrophysicist in a hit interview series.
+---------
+
+# 5 Forgotten PS1 Games That Are Officially 10/10, No Notes
+
+Games, PlayStation (Original), Sony, RPG
+
+Sun, 31 May 2026 03:15:14 GMT
+
+https://www.cbr.com/perfect-forgotten-ps1-games-list/
+
+The PS1 era has a library of instant classics and groundbreaking titles, but these five hidden gems slipped under the radar for many gamers.
+---------
+
+# 14 Years Later, J.J. Abrams’ Forgotten Thriller Is Still a Stellar 21st-Century Sci-Fi Show
+
+TV Features, Alcatraz, Sam Neill, J.J. Abrams, Fox
+
+Sun, 31 May 2026 03:45:15 GMT
+
+https://collider.com/jj-abrams-best-sci-fi-show-alcatraz/
+
+J.J. Abrams’ Alcatraz remains a stellar 21st-century sci-fi thriller with a chilling mystery, strong cast, and case-of-the-week hook.
+---------
+
+# 8 Forgotten ‘90s Movies That Deserve to Be Rediscovered on Prime Video
+
+Movie, 90s, Prime Video, Lionheart, Heat
+
+Sun, 31 May 2026 03:39:14 GMT
+
+https://collider.com/forgotten-90s-movies-prime-video/
+
+Heat, Empire Records, Lionheart, Major Payne, and more make up our list of forgotten '90s movies that deserve to be rediscovered on Prime Video.
+---------
+
+# Zack Snyder's Visually Stunning Superhero Flop That Became a Cult Classic Is the Perfect Late-Night Watch
+
+Movie Features, Watchmen, Zack Snyder, Alan Moore, HBO Max
+
+Sun, 31 May 2026 03:38:12 GMT
+
+https://collider.com/zack-snyder-watchmen-streaming-hbo-max-explained/
+
+Zack Snyder's adaptation of Alan Moore's landmark graphic novel was technically faithful, but didn't reach its audience in theaters.
+---------
+
 # Johnny Depp's New Movie Revives A 25-Year Partnership
 
 Movies, Masked Recs
