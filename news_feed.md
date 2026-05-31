@@ -1,3 +1,278 @@
+# 10 Greatest D-Day Movies, Ranked
+
+Classic Movies, War, Ranking
+
+Sun, 31 May 2026 21:30:20 GMT
+
+https://screenrant.com/greatest-d-day-movies-ranked/
+
+With Brendan Fraser's Pressure in theaters, here is a look at the best movies ever released about the World War II attack on the legendary D-Day.
+---------
+
+# Fans Torn On GTA 6 Directly Causing A Major Game Delay
+
+Gaming, Triple-A Games, Fable, Grand Theft Auto 6, PC
+
+Sun, 31 May 2026 21:30:20 GMT
+
+https://screenrant.com/gta-6-fable-delay-fan-reaction/
+
+Grand Theft Auto 6 is going to be one of the biggest and most popular games of all time, and XBOX has acknowledged that before it was too late.
+---------
+
+# Legend Of Zelda Switch 2 Debut's Leaked Setting Splits Gamers
+
+Gaming, The Legend of Zelda, Nintendo Switch 2
+
+Sun, 31 May 2026 21:15:20 GMT
+
+https://screenrant.com/zelda-switch-2-new-game-leak-reactions/
+
+The next Legend of Zelda game still hasn't been confirmed by Nintendo, and fans aren't loving what the rumors suggest it could be like.
+---------
+
+# Netflix's Smash Hit Sci-Fi Franchise Is So Good, It's Already Renewed For 2 More Seasons
+
+Streaming TV, Masked Recs
+
+Sun, 31 May 2026 21:15:20 GMT
+
+https://screenrant.com/stranger-things-franchise-netflix-renewed-spinoffs/
+
+Netflix isn't going to let one of its best sci-fi TV franchises of all time die, so get ready for, at the very least, two more full seasons.
+---------
+
+# The Greatest Hulk Adaptation Ever Was Released 30 Years Ago This Year
+
+Superheroes, Hulk, The Incredible Hulk
+
+Sun, 31 May 2026 21:15:20 GMT
+
+https://screenrant.com/best-hulk-adaptation-animated-series-anniversary/
+
+30 years later, one Hulk adaptation still captures Bruce Banner's tragedy, rage, and complexity better than any movie, TV show, or MCU project.
+---------
+
+# Prime Video's Biggest Action Franchise Is So Good, You Can Start From Any Season
+
+Streaming TV, Masked Recs
+
+Sun, 31 May 2026 21:10:21 GMT
+
+https://screenrant.com/reacher-prime-video-start-any-season/
+
+Prime Video is the streaming platform for action TV shows, but unlike most of the best franchises on the platform, one is self-contained by season.
+---------
+
+# DC Already Did Its Own Version Of Spider-Noir 12 Years Ago
+
+Classic TV, Masked Recs
+
+Sun, 31 May 2026 21:02:19 GMT
+
+https://screenrant.com/gotham-dc-version-spider-noir/
+
+Prime Video's gritty noir take on Marvel's iconic wall crawler is getting heaps of praise, but without a bold DC series it may never happened.
+---------
+
+# Manga's Undisputed Greatest Mystery Creator Of All Time Drops Fresh Look At Revived Masterpiece (Exclusive)
+
+Anime, Monster, Pluto
+
+Sun, 31 May 2026 21:00:22 GMT
+
+https://screenrant.com/billy-bat-best-mystery-manga-creator-english-release-exclusive/
+
+Naoki Urasawa and Takashi Nagasaki's 2008 masterpiece had fans fearing it may never get a US release—but no more, with this latest glimpse.
+---------
+
+# Prime Video's Hit Supernatural Series Is Already Guaranteed To End Properly
+
+TV, Masked Recs
+
+Sun, 31 May 2026 21:00:22 GMT
+
+https://screenrant.com/hazbin-hotel-prime-video-guaranteed-proper-ending/
+
+Prime Video's hit supernatural TV show is already guaranteed to end properly, with the final season announced far in advance of its arrival.
+---------
+
+# In The Hand Of Dante Features Al Pacino & Martin Scorsese In Its Star-Studded Cast
+
+Movies, In the Hand of Dante, Netflix
+
+Sun, 31 May 2026 21:00:22 GMT
+
+https://screenrant.com/2026-in-the-hand-of-dante-cast-al-pacino-martin-scorsese/
+
+June 2026 brings many movies to Netflix, including a new release that features some major figures like Al Pacino and Martin Scorsese within it.
+---------
+
+# Game of Thrones Officially Returns With New Release in 5 Months
+
+TV, Game Of Thrones
+
+Sun, 31 May 2026 21:15:21 GMT
+
+https://www.cbr.com/game-of-thrones-complete-collection-4k-uhd-15th-anniversary/
+
+Game of Thrones returns 15 years after its debut on HBO with an exciting new release.
+---------
+
+# 10 Greatest Action Anime Masterpieces, Ranked
+
+Anime, Shonen, One Piece, Dragon Ball Z, Fullmetal Alchemist Brotherhood, shonen anime
+
+Sun, 31 May 2026 21:15:13 GMT
+
+https://www.cbr.com/best-action-anime-masterpieces/
+
+An action anime masterpiece has strong characters and a plot that viewers want to stick with, because being invested makes every fight better.
+---------
+
+# Dark Souls 3 Remastered Officially Wows Gamers
+
+Games, Dark Souls III
+
+Sun, 31 May 2026 21:00:56 GMT
+
+https://www.cbr.com/dark-souls-3-visual-remaster/
+
+A decade after its initial release, Dark Souls III is finally getting a visual overhaul thanks to its fanbase.
+---------
+
+# Berserk Is Finally Back With a New Official God Hand Design
+
+Anime, Berserk
+
+Sun, 31 May 2026 21:00:14 GMT
+
+https://www.cbr.com/berserk-new-god-hand-release-summer-2026/
+
+The God Hand have never looked gnarlier than in the latest Berserk release, and both versions are absolutely perfect for fans and collectors.
+---------
+
+# Netflix's Rebel Moon Is the Anti-Star Wars Franchise
+
+Movies, Star Wars, Rebel Moon, Rebel Moon - Part Two: The Scargiver
+
+Sun, 31 May 2026 21:00:14 GMT
+
+https://www.cbr.com/netflix-rebel-moon-anti-star-wars-movies/
+
+Whereas Star Wars embodies classical heroism and grandeur, Zack Snyder's Rebel Moon is a violent and much darker take on the galaxy far, far away.
+---------
+
+# 10 'My Hero Academia' Episodes That Can Be Called Masterpieces
+
+TV, Anime, My Hero Academia, Science Fiction, Fantasy
+
+Sun, 31 May 2026 21:46:14 GMT
+
+https://collider.com/best-my-hero-academia-episodes-masterpieces/
+
+Some of the best My Hero Academia episodes, from "Izuku Midoriya: Rising" to "Light Fades to Rain," can be called genuine anime masterpieces.
+---------
+
+# 10 Action Movies So Good You Could Argue Any One Is the Best Ever Made
+
+Movie, Action, Die Hard, Mad Max: Fury Road, Aliens
+
+Sun, 31 May 2026 21:42:15 GMT
+
+https://collider.com/best-action-movies-all-time/
+
+From The Matrix to Mad Max: Fury Road, these action classics still define how chaos, speed, and spectacle should feel on screen.
+---------
+
+# Forget ‘The Wolf of Wall Street,’ Michael Bay’s Insane True-Story Crime Epic Is Back on Streaming
+
+Movie News, Pain & Gain, Michael Bay, Paramount Plus, Thriller
+
+Sun, 31 May 2026 21:30:14 GMT
+
+https://collider.com/michael-bay-underrated-true-crime-movie-pain-and-gain-streaming-paramount-plus-june-2026/
+
+Michael Bay’s underrated true-crime movie Pain & Gain, starring Dwayne Johnson, is now streaming on Paramount+.
+---------
+
+# 10 Alfred Hitchcock Movies That Are Amazing From Start to Finish.
+
+Movie, Alfred Hitchcock, Psycho, Rear Window, North By Northwest
+
+Sun, 31 May 2026 21:23:14 GMT
+
+https://collider.com/best-alfred-hitchcock-movies-that-are-amazing/
+
+From Psycho to Rear Window, these Hitchcock classics prove why he mastered suspense better than anyone in cinema history.
+---------
+
+# Russell Crowe’s 122-Minute Western Masterpiece Is Finally Coming to Free Streaming 19 Years Later
+
+Movie News, Russell Crowe, Western, 3:10 to Yuma, Plex
+
+Sun, 31 May 2026 21:15:13 GMT
+
+https://collider.com/russell-crowe-christian-bale-western-masterpiece-310-to-yuma-streaming-on-plex-june-2026/
+
+Russell Crowe's 122-minute Western gem alongside Christian Bale is heading to a free streamer. Here's what you should know.
+---------
+
+# Netflix’s Latest True-Crime Obsession Is Taking Over the World After a Massive Debut
+
+Movie News, Netflix, True Crime, Documentary, Crime
+
+Sun, 31 May 2026 21:00:15 GMT
+
+https://collider.com/netflix-true-crime-obsession-the-crash-mackenzie-shirilla-viewership-35-million-views-in-2-weeks/
+
+Viewership data is in for Netflix's newest true-crime sensation, The Crash. Find out where it stands.
+---------
+
+# Jason Statham's Remake of an Action Classic Lands Free Streaming Release
+
+Movie News, The Italian Job, Pluto TV, Coming/Leaving Streaming, Action, Jason Statham
+
+Sun, 31 May 2026 21:47:14 GMT
+
+https://movieweb.com/jason-statham-italian-job-streaming-free-pluto-june-2026/
+
+Jason Statham's 2003 action remake of the crime thriller 'The Italian Job' will stream for free on Pluto TV in June 2026.
+---------
+
+# 'Andor' Creator Confirms Everything That's Wrong With Disney Star Wars
+
+Features, Star Wars, Andor, The Mandalorian and Grogu, Quote
+
+Sun, 31 May 2026 21:30:19 GMT
+
+https://movieweb.com/andor-creator-wrong-disney-star-wars/
+
+Tony Gilroy shared his philosophy relating to big franchises, and it couldn’t be further from the creative instincts of Dave Filoni and Jon Favreau.
+---------
+
+# Every Major Streaming Service, Ranked by Value
+
+TV Lists
+
+Sun, 31 May 2026 21:00:20 GMT
+
+https://movieweb.com/every-major-streaming-service-ranked/
+
+From Netflix to HBO Max to Peacock, I worked out the strengths and weaknesses of every streaming service so you won't have to.
+---------
+
+# 'Backrooms' Director Officially Confirms Sci-Fi Franchise's Fate
+
+Movie News, Backrooms, A24, Kane Parsons
+
+Sun, 31 May 2026 20:52:52 GMT
+
+https://movieweb.com/backrooms-director-officially-confirms-sci-fi-franchises-fate/
+
+The horror filmmaker has opened up about his aspirations and ambitions for Backrooms, which started as a YouTube video series.
+---------
+
 # Marvel Confirms Spider-Man Has Officially Broken His Number 1 Rule
 
 Streaming TV, Masked Recs
