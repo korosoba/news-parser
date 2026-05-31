@@ -1,3 +1,388 @@
+# Marvel Confirms Spider-Man Has Officially Broken His Number 1 Rule
+
+Streaming TV, Masked Recs
+
+Sun, 31 May 2026 20:35:20 GMT
+
+https://screenrant.com/spider-noir-show-broke-spider-man-no-kill-rule/
+
+Spider-Man has always had a golden rule at the heart of his character, but Marvel has officially confirmed the abandonment of it in a new story.
+---------
+
+# This Classic 90s Sci-Fi Detective Show Was So Good, It Got 2 Movies and 2 Revivals
+
+TV, Masked Recs
+
+Sun, 31 May 2026 20:31:20 GMT
+
+https://screenrant.com/x-files-hulu-franchise-revival-ryan-coogler-movies/
+
+This iconic '90s classic, which is soon to return, revolutionized TV storytelling with its innovative blend of detective show and sci-fi mystery.
+---------
+
+# Steam Machine Price Narrowed Down, And You Really Need To Start Saving
+
+Gaming, Steam, Valve
+
+Sun, 31 May 2026 20:30:11 GMT
+
+https://screenrant.com/steam-machine-price-narrowed-down-steam-deck-increase/
+
+The Steam Machine seems to have become an anchor round Valve's neck, and fans won't be happy at the purported price point.
+---------
+
+# Why There's No Tracker Tonight (May 31) & When New Episodes Release
+
+Network TV, Tracker
+
+Sun, 31 May 2026 20:01:21 GMT
+
+https://screenrant.com/tracker-no-new-episode-may-31-2026-season-4-release-date/
+
+Justin Hartley's hit series on network TV is taking an extended break, leaving its millions of viewers waiting for what's next for Colter in Tracker.
+---------
+
+# Goku’s 10 Most Impressive Feats Of Power In Dragon Ball, Ranked
+
+Anime, Goku, Dragon Ball
+
+Sun, 31 May 2026 20:01:21 GMT
+
+https://screenrant.com/goku-most-impressive-feats-dragon-ball-history/
+
+Throughout the Dragon Ball franchise, Goku evolves from a martial artist into a divine warrior, achieving breathtaking feats of power along the way.
+---------
+
+# The Most Popular Pokémon Of Each Gen Revealed In Huge Poll
+
+Gaming, Pokemon
+
+Sun, 31 May 2026 20:01:21 GMT
+
+https://screenrant.com/pokemon-most-popular-every-generation-fan-vote/
+
+A massive poll with almost 300,000 votes has decided which Pokémon is most popular, including the most popular Pokémon for each generation so far.
+---------
+
+# Robert Downey Jr. Insisted On Casting 1 Actor For Pivotal Captain America: Civil War Scene
+
+Movies, Marvel Cinematic Universe, Captain America: Civil War
+
+Sun, 31 May 2026 20:01:17 GMT
+
+https://screenrant.com/captain-america-civil-war-alfre-woodard-cast-robert-downey-jr-insist/
+
+In one of Captain America: Civil War's most pivotal scenes, Robert Downey Jr. insisted that one specific actor needed to be cast for the role.
+---------
+
+# Toy Story 5 Is Tied To The Last Movie You'd Expect Based On One Major Movie Theory
+
+Movies, Toy Story 5
+
+Sun, 31 May 2026 19:55:20 GMT
+
+https://screenrant.com/toy-story-5-inside-out-bonnie-anderson-riley-andersen-related/
+
+This Toy Story theory suggests that a major character from the franchise could be the younger version of yet another Disney Pixar character.
+---------
+
+# Netflix’s New 8-Part Harlan Coben Adaptation Has Officially Found The Perfect Lead Actor
+
+Streaming TV, Masked Recs
+
+Sun, 31 May 2026 19:45:20 GMT
+
+https://screenrant.com/i-will-find-you-netflix-harlan-coben-sam-worthington-perfect/
+
+The 13th Netflix adaptation of a Harlan Coben novel features a lead performer who's previously played several characters just like its protagonist.
+---------
+
+# Why There's No Marshals Tonight (May 31) & When New Episodes Release
+
+Network TV, Marshals, Yellowstone
+
+Sun, 31 May 2026 19:30:22 GMT
+
+https://screenrant.com/marshals-no-new-episode-may-31-2026-season-2-release-date/
+
+The Yellowstone franchise is taking a break on traditional broadcast, as Luke Grimes' Marshals isn't airing a brand new episode of Marshals on CBS.
+---------
+
+# The Brady Bunch Star Recalls How 'No Adult Would Admit' to Watching It
+
+TV, The Brady Bunch
+
+Sun, 31 May 2026 20:30:31 GMT
+
+https://www.cbr.com/the-brady-bunch-eve-plumb-cult-classic/
+
+One of the stars of The Brady Bunch addresses the show becoming a cult classic that fans wouldn't admit to watching.
+---------
+
+# 5 Masterpiece Superhero Movies Better Than The Dark Knight
+
+Movies, The Dark Knight, Marvel, Batman
+
+Sun, 31 May 2026 20:30:13 GMT
+
+https://www.cbr.com/masterpiece-superhero-movies-better-than-the-dark-knight-list/
+
+The Dark Knight is an all-time masterpiece, but these five superhero flicks are arguably even better.
+---------
+
+# 6 Manga Too Good to Get a Perfect Anime Adaptation
+
+Anime, Vagabond, Goodnight Punpun, Manga
+
+Sun, 31 May 2026 20:15:13 GMT
+
+https://www.cbr.com/manga-too-good-for-perfect-anime-adaptation/
+
+These manga possess a level of detail and atmosphere that would be almost impossible for anime to fully capture.
+---------
+
+# Harry Potter's New Casting Goes Viral as Fans Claim Star Was Cast in the Wrong Role
+
+TV, Harry Potter
+
+Sun, 31 May 2026 20:08:30 GMT
+
+https://www.cbr.com/harry-potter-morgana-casting-viral-fans-miscast-lily-potter/
+
+A new casting for Harry Potter and the Philosopher's Stone is going viral.
+---------
+
+# Red & Blue's Strongest Pokémon, Ranked
+
+Games, Pokemon
+
+Sun, 31 May 2026 20:01:14 GMT
+
+https://www.cbr.com/strongest-pokemon-red-blue/
+
+Pokémon Red and Blue were the games that started it all, but which were the strongest and most desirable Pokémon for players to catch?
+---------
+
+# Why 'The Rise of Skywalker' is The Most Disappointing Star Wars Movie
+
+Movies, Star Wars: Episode IX - The Rise of Skywalker
+
+Sun, 31 May 2026 20:01:13 GMT
+
+https://www.cbr.com/the-rise-of-skywalker-worst-star-wars-movie-list/
+
+With The Mandalorian and Grogu now in theaters, it's easy to remember why The Rise of Skywalker is the biggest disappointment in Star Wars history.
+---------
+
+# New Open-World RPG Brings Studio Ghibli and The Legend of Zelda Together
+
+Games, The Legend of Zelda, Studio Ghibli
+
+Sun, 31 May 2026 19:55:13 GMT
+
+https://www.cbr.com/of-peaks-and-tides-studio-ghibli-legend-of-zelda-inspiration/
+
+Of Peaks and Tides is combining all the best elements of Studio Ghibli movies, The Legend of Zelda, and more.
+---------
+
+# 5 Stephen King Books Better Than Carrie
+
+TV, Stephen King, Carrie, Horror
+
+Sun, 31 May 2026 19:30:14 GMT
+
+https://www.cbr.com/stephen-king-books-better-than-carrie/
+
+Even though Carrie was Stephen King's first novel, and definitely put him on the map as a horror author, it isn't among his best works.
+---------
+
+# Jake Gyllenhaal's Sequel to Prime Video's 37-Year-Old Remake Will Have a Much Bigger Scale
+
+Movies, Road House, Road House 2
+
+Sun, 31 May 2026 19:22:59 GMT
+
+https://www.cbr.com/jake-gyllenhaal-road-house-2-bigger-scale/
+
+Two years later, the record-breaking sequel gets a massive update.
+---------
+
+# 10 Best Anime Mentors of the 2020s So Far
+
+Anime, shonen anime, Jujutsu Kaisen, Mob Psycho 100, Bleach: Thousand Year Blood War, Demon Slayer: Mugen Train
+
+Sun, 31 May 2026 19:15:14 GMT
+
+https://www.cbr.com/best-anime-mentors-of-the-2020s/
+
+Across shonen, isekai and beyond, these anime mentors prove that fueling someone else’s growth is its own kind of heroism.
+---------
+
+# ‘Firefly’s Greatest 44 Minutes Are Still Its Most Overlooked Sci-Fi Masterpiece
+
+TV Features, Firefly, Nathan Fillion, Fox, Sci-Fi
+
+Sun, 31 May 2026 20:34:13 GMT
+
+https://collider.com/firefly-greatest-episode-objects-in-space-sci-fi-masterpiece/
+
+In just 14 episodes, Firefly became one of the best sci-fi series ever, with "Objects in Space" serving as its most overlooked.
+---------
+
+# Say Hello to One of the Most Quietly Devastating Films of the Century
+
+Movie News, Aftersun, Paul Mescal, Plex, Streaming
+
+Sun, 31 May 2026 20:30:13 GMT
+
+https://collider.com/paul-mescal-devastating-movie-aftersun-streaming-plex-june-2026/
+
+One of the most quietly devastating films of the century, Aftersun, starring Paul Mescal, is heading to free streaming. Read on for details.
+---------
+
+# What's the Greatest Period Movie of All Time? Surely It's One of These 10 Films
+
+Movie, Lawrence of Arabia, Barry Lyndon, Amadeus, Schindler’s List
+
+Sun, 31 May 2026 20:27:14 GMT
+
+https://collider.com/best-period-movies/
+
+From Barry Lyndon to The Favourite, these stunning period films transform history into obsession, desire, power, and ruin.
+---------
+
+# 6 Most Perfect Marilyn Monroe Movies, Ranked
+
+Movie, Marilyn Monroe, Some Like It Hot, Classics, The Misfits
+
+Sun, 31 May 2026 20:03:14 GMT
+
+https://collider.com/most-perfect-marilyn-monroe-movies-ranked/
+
+Movies like Some Like it Hot, The Misfits, and Gentlemen Prefer Blondes perfectly encapsulate the timeless talent and mystique of Marilyn Monroe.
+---------
+
+# Cillian Murphy Goes Full John Wick in the Overlooked Action Thriller Coming to Free Streaming
+
+Movie News, Cillian Murphy, John Wick, Anna, Plex
+
+Sun, 31 May 2026 20:00:15 GMT
+
+https://collider.com/cillian-murphy-john-wick-replacement-action-thriller-anna-streaming-on-plex-june-2026/
+
+Cillian Murphy led this John Wick replacement heading to free streaming. Find out more about the action thriller, Anna.
+---------
+
+# 6 Forgotten Fantasy Movies That Are Perfect From Start to Finish
+
+Movie, Fantasy, The Adventures of Baron Munchausen, Excalibur, Stardust
+
+Sun, 31 May 2026 19:56:14 GMT
+
+https://collider.com/forgotten-fantasy-movies-perfect/
+
+Stardust, Excalibur, and other forgotten fantasy gems still feel more magical, emotional, and complete than modern epics.
+---------
+
+# Paramount+’s Divisive Sci-Fi Video Game Series Is So Good, It Deserves Another Chance
+
+TV Features, Halo, Paramount Plus, Netflix, Pablo Schreiber
+
+Sun, 31 May 2026 19:55:14 GMT
+
+https://collider.com/paramount-plus-halo-series-best-video-game-adaptation-series/
+
+Despite stirring up controversy among hardcore fans, Paramount+'s adaptation of Halo captured the core elements of the video games.
+---------
+
+# Now Is the Perfect Time To Catch Up on Prime Video’s 3-Part Fantasy Masterpiece Before Season 4 Premieres
+
+TV Features, The Legend of Vox Machina, Critical Role, Laura Bailey, Prime Video
+
+Sun, 31 May 2026 19:41:14 GMT
+
+https://collider.com/prime-video-fantasy-masterpiece-legend-of-vox-machina-binge-before-season-4/
+
+Now is the time to catch up on Prime Video's must-watch fantasy masterpiece, The Legend of Vox Machina, before Season 4 premieres.
+---------
+
+# 7 Mystery Movies That Are Amazing From Start to Finish
+
+Movie, Mystery, The Prestige, The Housemaid, Gone Girl
+
+Sun, 31 May 2026 19:38:14 GMT
+
+https://collider.com/mystery-movies-amazing-start-to-finish/
+
+From Christopher Nolan's thriller The Prestige to new releases like The Housemaid, these mystery movies are genuinely amazing from start to finish.
+---------
+
+# Only 3 Movie Trilogies Have More Replay Value Than ‘The Lord of the Rings’
+
+Movie, The Lord of the Rings, Back to the Future, Indiana Jones, Star Wars
+
+Sun, 31 May 2026 19:20:14 GMT
+
+https://collider.com/movie-trilogies-more-rewatchable-than-lord-of-the-rings/
+
+Only three trilogies can rival the cozy, endlessly rewatchable magic of The Lord of the Rings after all these years.
+---------
+
+# Disney Finally Released the Star Wars Movie They Should Have Made 11 Years Ago
+
+Features, The Mandalorian and Grogu, Star Wars
+
+Sun, 31 May 2026 20:30:18 GMT
+
+https://movieweb.com/star-wars-mandalorian-grogu-disney-first-movie/
+
+'The Mandalorian and Grogu' isn't a masterpiece, but there's something to love about it. Was this the right movie at the wrong time?
+---------
+
+# Has Clint Eastwood Officially Made His Final Film?
+
+Movie News, Clint Eastwood, Juror #2, Western
+
+Sun, 31 May 2026 20:18:33 GMT
+
+https://movieweb.com/clint-eastwood-96-years-final-film/
+
+According to his son, Clint Eastwood is now "retired."
+---------
+
+# 8 Most Original TV Shows of the 2020s (So Far)
+
+TV Lists, Paradise, Margo's Got Money Troubles, The Bear
+
+Sun, 31 May 2026 20:00:19 GMT
+
+https://movieweb.com/original-tv-shows-2020s/
+
+These TV shows that have been released since 2020 are creative, original, and impressive, ranging from quirky sitcoms to thrillers.
+---------
+
+# What Happened to Jabba the Hutt's Other Children
+
+Features, The Mandalorian and Grogu, Star Wars
+
+Sun, 31 May 2026 19:30:19 GMT
+
+https://movieweb.com/what-happened-jabba-the-hutt-children/
+
+One simple line of dialogue in 'The Mandalorian and Grogu' implies Rotta was not Jabba's only child. Here's what we know.
+---------
+
+# 'Obsession' Could Become One of the Most Profitable Films of All Time
+
+Movie News, Obsession, box office, Avatar
+
+Sun, 31 May 2026 19:26:12 GMT
+
+https://movieweb.com/obsession-most-profitable-films-ever-backrooms/
+
+Indie horror film 'Obsession' is embarrassing big-budget fare like 'Star Wars: The Mandalorian and Grogu.'
+---------
+
 # Prime Video's 2-Part 'Yellowstone Meets Lost' Series Was Cancelled Too Soon
 
 Classic TV, Masked Recs
