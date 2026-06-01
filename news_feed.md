@@ -1,3 +1,278 @@
+# How Paris Hilton Aced Her Repo! The Genetic Opera Audition
+
+Movies, Repo! The Genetic Opera
+
+Sun, 31 May 2026 23:40:36 GMT
+
+https://screenrant.com/repo-the-genetic-opera-paris-hilton-audtion/
+
+Exclusive: Paris Hilton revealed the time and effort that went into her audition for unconventional cult movie Repo! The Genetic Opera.
+---------
+
+# All Ditto Disguises In Pokémon GO (June 2026)
+
+Gaming, Pokemon GO, Pokemon, Live Service Games, Mobile
+
+Sun, 31 May 2026 23:30:20 GMT
+
+https://screenrant.com/pokemon-go-all-ditto-disguises-june-2026/
+
+The Normal-type Pokémon Ditto is one of the rarest creatures you can find in Pokémon GO, but disguise patterns in June 2026 make it easier to track.
+---------
+
+# The Secret Star Wars History Of Sigourney Weaver’s Mandalorian & Grogu Character Explained
+
+Star Wars, The Mandalorian and Grogu
+
+Sun, 31 May 2026 23:30:20 GMT
+
+https://screenrant.com/mandalorian-and-grogu-sigourney-weaver-star-wars-character-history-explained/
+
+The Mandalorian & Grogu introduces Sigourney Weaver as Colonel Ward, a New Republic officer whose secret Star Wars history was briefly teased.
+---------
+
+# 10 Funniest Star Wars Plot Points You May Not Have Considered
+
+Movies, Star Wars
+
+Sun, 31 May 2026 23:15:20 GMT
+
+https://screenrant.com/star-wars-10-funny-plot-points/
+
+There are plenty of funny moments throughout Star Wars movies and TV shows, but these 10 hilarious plot details might fly under the radar.
+---------
+
+# Netflix's Best Fantasy Cast Just Keeps Getting Better
+
+Streaming TV, Masked Recs
+
+Sun, 31 May 2026 23:15:20 GMT
+
+https://screenrant.com/wednesday-season-3-cast-getting-better-netflix-show/
+
+Netflix's biggest fantasy show of all time also features one of the most impressive casts the streamer has ever assembled, and there's more to come.
+---------
+
+# Resident Evil's Zach Cregger Shares An Unexpected Source Of Inspiration
+
+Movies, Resident Evil
+
+Sun, 31 May 2026 23:03:13 GMT
+
+https://screenrant.com/resident-evil-zach-cregger-unexpected-inspiration/
+
+Zach Cregger, director of the upcoming Resident Evil reboot, reveals a surprising and relatable source of inspiration for the film.
+---------
+
+# Fallout: New California Is An Official Expansion You Shouldn't Miss
+
+Gaming, Fallout
+
+Sun, 31 May 2026 23:00:20 GMT
+
+https://screenrant.com/fallout-new-california-expansion-board-game/
+
+California has always been very important to the Fallout franchise, and this expansion puts it front and center.
+---------
+
+# Demon Slayer: Infinity Castle Part 2 Will Finally Give the One Demon Scarier Than Muzan His Time To Shine
+
+Anime, Demon Slayer, Demon Slayer: Kimetsu no Yaiba Infinity Castle
+
+Sun, 31 May 2026 23:00:20 GMT
+
+https://screenrant.com/demon-slayer-infinity-castle-part-2-kokushibo-demon-scarier-muzan/
+
+Demon Slayer: Infinity Castle Part 2 is going to be one of the best anime movies of the year when it's released, and this brutal Demon will be why.
+---------
+
+# Anya Taylor-Joy's New Crime Thriller Quietly Continues The Queen's Gambit
+
+Streaming TV, Masked Recs
+
+Sun, 31 May 2026 23:00:20 GMT
+
+https://screenrant.com/anya-taylor-joy-lucky-queens-gambit-continue/
+
+The main character in Apple TV's upcoming limited series allows Anya Taylor-Joy to continue exploring the things that made Beth Harmon fascinating.
+---------
+
+# 10 Most Satisfying New-Gen Anime Villain Defeats
+
+Anime, shonen anime, Jujutsu Kaisen, Hell's Paradise: Jigokuraku
+
+Sun, 31 May 2026 23:45:13 GMT
+
+https://www.cbr.com/satisfying-new-gen-anime-villain-defeats/
+
+The best new-gen anime make their villains genuinely threatening first, which means the cruelest antagonists tend to earn the most cathartic endings.
+---------
+
+# Star Trek: Scouts Final Episodes Released on YouTube
+
+TV, Star Trek
+
+Sun, 31 May 2026 23:30:13 GMT
+
+https://www.cbr.com/star-trek-scouts-finale-free-on-youtube/
+
+The final installments of the Star Trek series are available to watch on YouTube.
+---------
+
+# Fourth Wing Series Fancasting Officially Gets Response From Avan Jogia
+
+TV, Fourth Wing, Backrooms
+
+Sun, 31 May 2026 23:27:26 GMT
+
+https://www.cbr.com/amazon-fourth-wing-series-xaden-avan-jogia/
+
+Fans are fantasizing about the perfect actors for the lead roles in Amazon's live-action Fourth Wing series.
+---------
+
+# 4 Anime Heroes More Powerful Than Goku
+
+Anime, Dragon Ball, One Punch Man, Jojo's Bizarre Adventure, Goku, shonen anime
+
+Sun, 31 May 2026 23:15:13 GMT
+
+https://www.cbr.com/anime-heroes-more-powerful-than-goku/
+
+Goku is the leading force of the Dragon Ball universe and Earth's strongest fighter, but these four anime heroes could probably take him in a fight.
+---------
+
+# Taylor Sheridan Revives a Key Kevin Costner Moment in Dutton Ranch
+
+TV, Yellowstone, Dutton Ranch
+
+Sun, 31 May 2026 23:09:36 GMT
+
+https://www.cbr.com/yellowstone-dutton-ranch-kevin-costner-john-dutton-quote/
+
+Kevin Costner's John Dutton is back in Yellowstone as Beth and Rip's spinoff, Dutton Ranch, revisits a key moment for the flagship character.
+---------
+
+# 2 New Sailor Moon Designs Officially Revealed in New First Look
+
+Anime, Sailor Moon
+
+Sun, 31 May 2026 23:00:13 GMT
+
+https://www.cbr.com/sailor-moon-new-design-minato-ward-manhole-cover/
+
+Sailor Moon fans should stay on the lookout for the franchise's latest official collaboration.
+---------
+
+# 10 Wizarding World Characters Stronger Than Harry Potter, Ranked
+
+Movies, Harry Potter
+
+Sun, 31 May 2026 23:00:13 GMT
+
+https://www.cbr.com/wizarding-world-characters-stronger-than-harry-potter-list/
+
+Harry Potter is an incredibly skilled wizard with immense power, but there are others who have surpassed his strength with little effort.
+---------
+
+# 10 Beloved Thriller Movies That Would’ve Been Better as TV Shows
+
+Movies, Thriller
+
+Sun, 31 May 2026 23:00:13 GMT
+
+https://www.cbr.com/thriller-movies-better-as-tv-shows-list/
+
+If these thriller movies had been television shows instead, they might have captured our imaginations even more as long-form stories.
+---------
+
+# Denzel Washington's Remake of a Classic Frank Sinatra Thriller Is a Must-Watch on Paramount+
+
+Movie News, Denzel Washington, Liev Schreiber, The Manchurian Candidate, Paramount Plus
+
+Sun, 31 May 2026 23:46:14 GMT
+
+https://collider.com/denzel-washington-legal-thriller-the-manchurian-candidate-paramount-plus-streaming-june-2026/
+
+Denzel Washington’s political thriller with Meryl Streep is coming to Paramount+ in June. Here's everything you should know.
+---------
+
+# Prime Video’s 2 Biggest New Hits Are Battling for Streaming Supremacy
+
+TV News, Off Campus, Spider-Noir, Prime Video, Nicolas Cage
+
+Sun, 31 May 2026 23:30:13 GMT
+
+https://collider.com/prime-video-steamy-blockbuster-off-campus-versus-spider-noir-may-2026/
+
+Prime Video's steamy streaming sensation, Off Campus, is in a tense face-off against Spider-Noir, starring Nicolas Cage. Find out more.
+---------
+
+# HBO's Most Unfairly Cancelled Sci-Fi Series Is Climbing Another Streamer's Charts 4 Years Later
+
+TV Features, Westworld, Lisa Joy, Jonathan Nolan, HBO
+
+Sun, 31 May 2026 23:27:13 GMT
+
+https://collider.com/hbo-westworld-unfairly-cancelled-sci-fi-streaming-apple-tv-store/
+
+HBO's Westworld, which was cancelled after four seasons, is having a resurgence on another streaming platform.
+---------
+
+# Russell Crowe's Forgotten '90s Sci-Fi Thriller Is Officially Taking Over Paramount+
+
+Movie News, Nicolas Cage, Virtuosity, Sci-Fi, Paramount Plus
+
+Sun, 31 May 2026 23:15:13 GMT
+
+https://collider.com/russell-crowe-denzel-washington-sci-fi-action-thriller-virtuosity-streaming-paramount-plus-june-2026/
+
+The Russell Crowe-starring sci-fi action thriller also featuring Denzel Washington is coming to Paramount+ in June. Read on for details.
+---------
+
+# Forget 'The Fugitive,' This 112-Minute Crime Thriller Is Harrison Ford's Best Performance
+
+Movie News, Witness, Harrison Ford, Thriller, Paramount Plus
+
+Sun, 31 May 2026 23:00:13 GMT
+
+https://collider.com/harrison-ford-crime-thriller-best-performance-witness-streaming-paramount-plus-june-2026/
+
+Harrison Ford’s Oscar-nominated crime thriller Witness is coming to Paramount+ in June. Here's everything you should know.
+---------
+
+# 10 Near-Perfect Action Fantasy TV Shows That No One Remembers Today
+
+TV Lists, Fantasy
+
+Sun, 31 May 2026 23:30:18 GMT
+
+https://movieweb.com/best-forgotten-action-fantasy-tv-shows/
+
+You've got yourself 10 shows to watch.
+---------
+
+# Ridley Scott's Newest Action Hit Becomes a Global Sensation on Streaming
+
+Movie News, Gladiator II, Paramount Plus, Hot on Streaming, Ridley Scott
+
+Sun, 31 May 2026 23:00:18 GMT
+
+https://movieweb.com/gladiator-2-streaming-success-paramount-may-2026-action/
+
+Ridley Scott's 2024 action sequel, 'Gladiator II,' is a global streaming sensation on Paramount+ in 2026.
+---------
+
+# 'Silo' Fans Need To Watch Netflix's Major 2025 Thriller - It's a Perfect Season 3 Tie-in
+
+Features, Silo, Comparison Recommendation, A House of Dynamite, Netflix
+
+Sun, 31 May 2026 23:00:18 GMT
+
+https://movieweb.com/silo-house-of-dynamite-comparison/
+
+While unnervingly plausible in today's political climate, it could also act as an explanation for the world-building of 'Silo'.
+---------
+
 # HBO's High Fantasy Show Is So Good, It's Already Renewed For 2 Seasons
 
 Streaming TV, Masked Recs
