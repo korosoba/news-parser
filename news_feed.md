@@ -1,3 +1,443 @@
+# Apple TV's 'Lost Meets 1984' Series Is So Good, It's Already Renewed For 2 Seasons
+
+Streaming TV, Masked Recs
+
+Mon, 01 Jun 2026 20:35:22 GMT
+
+https://screenrant.com/silo-apple-tv-show-future-renewed-final-two-seasons/
+
+Dystopian sci-fi TV shows feel a dime a dozen in the 2020s, but one Apple TV hit manages to stand out from the pack by weaponizing a need for answers.
+---------
+
+# Marvel's Hit Superhero Franchise Is So Good, It's Already Renewed For 3 More Seasons And A Movie
+
+Superheroes, Masked Recs, Quiz CV
+
+Mon, 01 Jun 2026 20:30:22 GMT
+
+https://screenrant.com/marvel-x-men-franchise-renewed-more-seasons-mcu-movie/
+
+One of Marvel Studios' biggest franchises is officially coming back for more, with new seasons of a hit series and a highly anticipated new movie.
+---------
+
+# Reacher Star's Spinoff Update Is Great News After The Franchise's Confirmed 2026 Return
+
+TV, Neagley, Reacher
+
+Mon, 01 Jun 2026 20:30:22 GMT
+
+https://screenrant.com/reacher-neagley-spinoff-update-good-news-2026/
+
+Reacher star Maria Sten's newest update on the action thriller's upcoming spinoff is great news after the franchise's confirmed 2026 return.
+---------
+
+# It's Officially The End Of An Era For Doctor Who
+
+Streaming TV, Doctor Who
+
+Mon, 01 Jun 2026 20:22:24 GMT
+
+https://screenrant.com/doctor-who-end-of-an-era-new-actor/
+
+The future of Doctor Who hangs in the balance as fans eagerly await the announcement of the next Doctor, and the wait could soon be over.
+---------
+
+# Euphoria Series Finale Explained: Rue's Fate Is Sam Levinson's Ultimate Controversy
+
+Streaming TV, Euphoria, Euphoria - Season 3
+
+Mon, 01 Jun 2026 20:11:48 GMT
+
+https://screenrant.com/euphoria-season-3-episode-8-ending-explained/
+
+Euphoria season 3 is officially the HBO show's last, and episode 8 is full of shocking controversy, particularly surrounding the fate of Rue Bennett.
+---------
+
+# The Boys: 20 Best Soldier Boy Quotes
+
+Streaming TV, The Boys
+
+Mon, 01 Jun 2026 20:00:21 GMT
+
+https://screenrant.com/the-boys-soldier-boy-best-quotes/
+
+From hilarious one-liners to quite deep character quotes, Soldier Boy has some fantastic lines in The Boys - some of the show's best, in fact.
+---------
+
+# Outlander: Blood Of My Blood Season 2 Release Date & Teaser Officially Revealed
+
+TV, Outlander: Blood of My Blood
+
+Mon, 01 Jun 2026 20:00:20 GMT
+
+https://screenrant.com/outlander-blood-of-my-blood-season-2-release-date-teaser/
+
+Outlander is returning sooner than originally thought, as Starz reveals an unexpected teaser and release date on World Outlander Day.
+---------
+
+# Pokémon Omega Ruby & Alpha Sapphire Making Unexpected Official Return
+
+Gaming, Pokemon
+
+Mon, 01 Jun 2026 20:00:20 GMT
+
+https://screenrant.com/pokemon-alpha-sapphire-omega-ruby-lego-character-return/
+
+Pokémon Omega Ruby and Alpha Sapphire, the amazing Gen 3 remakes, appear to making a nice return soon, thanks to a new leak that's sufraced online.
+---------
+
+# John Wick Creator's First-Ever Adaptation Of Iconic 35-Year-Old Action Video Game Series Gets Exciting New Update
+
+Movies, Streets of Rage
+
+Mon, 01 Jun 2026 19:59:00 GMT
+
+https://screenrant.com/streets-of-rage-movie-director-writers-confirmed/
+
+John Wick creator Derek Kolstad's first-ever adaptation of an iconic 35-year-old video game series receives an exciting new update from Lionsgate.
+---------
+
+# Spider-Man: Brand New Day May Be Hiding A Villain In Plain Sight
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Mon, 01 Jun 2026 19:55:21 GMT
+
+https://screenrant.com/spider-man-brand-new-day-villain-hiding-mj-boyfriend/
+
+Spider-Man: Brand New Day has lots of villains, but one of them may be hiding in plain sight and hold a stronger connection to Peter Parker.
+---------
+
+# The 10 Greatest Sci-fi Movie Opening Shots Ever, Ranked
+
+Movies, Sci-Fi
+
+Mon, 01 Jun 2026 20:30:15 GMT
+
+https://www.cbr.com/best-sci-fi-movie-opening-scenes-list/
+
+Sci-fi movies have featured the most technically impressive and visually striking opening shots ever, setting the tone for their far-reaching stories.
+---------
+
+# Doctor Who Showrunner Confirms When the 16th Doctor Will Be Announced
+
+TV, Doctor Who, Sci-Fi
+
+Mon, 01 Jun 2026 20:30:11 GMT
+
+https://www.cbr.com/doctor-who-russell-t-davies-16th-doctor-announcement/
+
+It sounds like Doctor Who fans don't have much longer to wait before officially meeting 16.
+---------
+
+# 10 Smartest Anime Villains Ever, Ranked By Intelligence
+
+Anime, Code Geass: Lelouch of the Rebellion, Monster, Death Note
+
+Mon, 01 Jun 2026 20:16:14 GMT
+
+https://www.cbr.com/smartest-anime-villains-ranked-by-intelligence/
+
+Anime has no shortage of powerful antagonists, but power alone rarely produces a deeply frightening villain. Sometimes it's just how smart they are.
+---------
+
+# Disney Officially Confirms Atlantis: The Lost Empire Sequel After 20+ Years
+
+Comics, Atlantis: The Lost Empire
+
+Mon, 01 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/disneys-atlantis-the-lost-empire-sequel-officially-confirmed/
+
+Disney has officially confirmed a long-awaited sequel to Atlantis: The Lost Empire, reviving the beloved animated adventure for a new generation.
+---------
+
+# Hell or High Water Is Mandatory Viewing for Yellowstone Fans
+
+Movies, Hell or High Water, Yellowstone
+
+Mon, 01 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/hell-or-high-water-yellowstone-replacement-chris-pine/
+
+Yellowstone may define the neo-Western, but this Chris Pine vehicle is one of the best in the genre.
+---------
+
+# Frieren Unveils New ‘Golden Age’ Design in Official First Look Ahead of Season 3 Release
+
+Anime, Frieren: Beyond Journey's End
+
+Mon, 01 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/frieren-new-design-season-3-reveal/
+
+Frieren creators have officially collaborated with a Golden Age artist, turning the elven mage into a literal masterpiece of the modern world.
+---------
+
+# What's Coming to Netflix in June 2026? Everything Arriving This Month
+
+TV, Netflix
+
+Mon, 01 Jun 2026 19:45:19 GMT
+
+https://www.cbr.com/what-coming-netflix-june-2026-full-list/
+
+With a new Jennifer Lopez rom-com, another Harlan Coben limited series, and John Cena's new comedy, Netflix's June slate is packed.
+---------
+
+# Starfleet Academy and War College Cadets Clash in Official New Star Trek Story
+
+Comics, Star Trek: Starfleet Academy, Star Trek
+
+Mon, 01 Jun 2026 19:27:14 GMT
+
+https://www.cbr.com/starfleet-academy-lost-contact-2-review-war-college-conflict/
+
+In a CBR review of Starfleet Academy: Lost Contact #2, see how a clash of personalities makes a dangerous mission even worse
+---------
+
+# Critical Role Confessions, Dares and Reveals | We're Not Really Strangers
+
+TV, Critical Role, The Legend of Vox Machina
+
+Mon, 01 Jun 2026 19:12:30 GMT
+
+https://www.cbr.com/video/critical-role-confessions-dares-and-reveals-we-re-not-really-strangers/
+
+The Critical Role team gets up close and intimate with CBR ahead of the season 4 premiere of the Legend of Vox Machina.Ashley Johnson tells the story of her first time meeting Matthew Mercer and Marisha Ray at their home DnD game. Liam O'Brien is forced to compliment Sam Riegel. Taliesin Jaffe exposes Marisha Ray's entrepreneurial origins and Travis Willingham explains how his childhood dreams have finally come true.You want intimacy with a side of giggles? Honesty can get a little spicy...
+---------
+
+# Zack Snyder Officially Rebooting John Carpenter's 45-Year-Old Sci-Fi Classic
+
+Movies, Escape From New York, Sci-Fi
+
+Mon, 01 Jun 2026 19:02:26 GMT
+
+https://www.cbr.com/zack-snyder-escape-from-new-york-reboot/
+
+Zack Snyder will show audiences a new way to Escape from New York.
+---------
+
+# Timothy Olyphant's New R-Rated Netflix Series Is Officially Taking Over the World
+
+TV News, Timothy Olyphant, Netflix, Mating Season, Animation
+
+Mon, 01 Jun 2026 20:30:15 GMT
+
+https://collider.com/timothy-olyphant-mating-season-netflix-r-rated-series-streaming-success-june-2026/
+
+Netflix’s bizarre new animated obsession is quietly climbing global charts with chaos, heartbreak, hookups, and savage humor.
+---------
+
+# Beloved Sci-Fi Fantasy Spin-Off Series Officially Returns This Year
+
+TV News, Outlander: Blood of My Blood, Outlander, STARZ, Fantasy
+
+Mon, 01 Jun 2026 20:06:13 GMT
+
+https://collider.com/outlander-blood-of-my-blood-season-2-trailer-release-date-september-18-starz/
+
+Starz has released the first Season 2 trailer for Outlander: Blood of my Blood, also confirming that the show will return on September 18.
+---------
+
+# 7 Best Anime Coming to Netflix and Crunchyroll in June
+
+TV, Crunchyroll, Netflix, Anime, Pokémon Horizons
+
+Mon, 01 Jun 2026 20:05:14 GMT
+
+https://collider.com/best-anime-shows-netflix-crunchyroll-june-2026/
+
+From new episodes of One Piece to the Season 3 debut of Pokémon Horizons, these are the best anime shows coming to Crunchyroll and Netflix this June.
+---------
+
+# Deli Boys Season 2: The Fake Deli That Fooled Everyone | Collider Access
+
+Hulu, Deli Boys, Poorna Jagannathan, Asif Ali
+
+Mon, 01 Jun 2026 19:48:43 GMT
+
+https://collider.com/video/deli-boys-season-2-the-fake-deli-that-fooled-everyone-collider-access/
+
+In the debut episode of Access, Asif Ali and Saagar Shaikh take Collider behind the scenes of Hulu’s Deli Boys, touring the meticulously recreated deli, Baba’s secret apartment, and Max’s outrageous casino office while sharing some of the funniest memories from filming Season 1 and 2.
+---------
+
+# 5 Perfect Book-to-Movie Adaptations That No One Talks About Anymore
+
+Movie, The Age of Innocence, The Road, Holes, Fear and Loathing in Las Vegas
+
+Mon, 01 Jun 2026 19:41:14 GMT
+
+https://collider.com/perfect-book-to-movie-adaptations-no-one-talks-about/
+
+The Age of Innocence and Fear and Loathing in Las Vegas are among the masterful book-to-movie adaptations that have been all but forgotten by fans.
+---------
+
+# The Perfect ‘KPop Demon Hunters’ Replacement Is Now on Netflix
+
+Movie, Netflix, K-Pops!, Scooby-Doo, Rocky
+
+Mon, 01 Jun 2026 19:30:14 GMT
+
+https://collider.com/best-netflix-movies-watch-week-june-1-kpop-demon-hunters/
+
+Scooby-Doo, K-Pops!, and Rocky make up our list of the best Netflix movies to watch the week of June 1, 2026.
+---------
+
+# John Carpenter’s Sci-Fi Classic Is Officially Getting a Zack Snyder Remake
+
+Movie News, Zack Snyder, Escape From New York, John Carpenter, studiocanal
+
+Mon, 01 Jun 2026 19:05:47 GMT
+
+https://collider.com/zack-snyder-directing-sci-fi-remake-escape-from-new-york-john-carpenter/
+
+Zack Snyder is circling StudioCanal’s Escape From New York remake, a new reimagining of John Carpenter’s 1981 sci-fi classic.
+---------
+
+# Hulu's New Dystopian Sci-Fi Hit Gets Official Season 2 Update
+
+TV News, The Testaments, The Handmaid's Tale, Hulu, Elisabeth Moss
+
+Mon, 01 Jun 2026 19:00:13 GMT
+
+https://collider.com/the-testaments-season-2-written-production-update-warren-littlefield/
+
+Hulu's new dystopian sci-fi hit gets an official Season 2 update after explosive cliffhanger finale. Find out more here!
+---------
+
+# After 'Spider-Noir', Prime Video Needs To Revisit This Unfairly Shelved Sci-Fi Series
+
+TV Features, Spider-Noir, Prime Video, Spider-Man: Into The Spider-Verse, MGM TV
+
+Mon, 01 Jun 2026 18:56:14 GMT
+
+https://collider.com/spider-noir-prime-video-silk-spider-society-needs-a-revisit/
+
+The success of Spider-Noir should persuade Prime Video to revisit Silk: Spider-Society, especially if it wants to explore alternate Spider-Men.
+---------
+
+# 'Rivals' David Tennant Hints at an Ominous "Darkened" Future for the End of Season 2
+
+Interviews, Rivals, David Tennant, Claire Rushbrook, Hulu
+
+Mon, 01 Jun 2026 18:30:13 GMT
+
+https://collider.com/rivals-season-2-interview-david-tennant-claire-rushbrook-monica-tony-maud/
+
+David Tennant and Claire Rushbrook talk Tony and Monica's rocky relationship in the upcoming Rivals Season 2 midseason finale.
+---------
+
+# Every New Movie and TV Show Coming to Netflix in June 2026
+
+Features, Netflix
+
+Mon, 01 Jun 2026 20:31:20 GMT
+
+https://movieweb.com/netflix-new-tv-movie-june-2026/
+
+A plethora of new series and a raunchy new comedy lead the news of every new movie and TV show coming to Netflix in June.
+---------
+
+# Apple TV Finds Its Newest Sci-Fi Streaming Hit With 94% Rated Spin-off
+
+TV News, Star City, Hot on Streaming, For All Mankind, Sci-Fi
+
+Mon, 01 Jun 2026 20:01:22 GMT
+
+https://movieweb.com/star-city-apple-tv-streaming-success-june-2026/
+
+Following its premiere on May 29, Apple TV's newest sci-fi series, 'Star City,' wasted no time making its presence known on the streaming platform.
+---------
+
+# Tom Holland Wants to See "R-Rated" Spider-Man in Disney+ Series
+
+Movie News, Spider-Man: Brand New Day
+
+Mon, 01 Jun 2026 19:38:31 GMT
+
+https://movieweb.com/tom-holland-r-rated-spider-man/
+
+After 'Spider-Man: Brand New Day', Tom Holland wants to see what Spider-Man would look like in an R-rated Punisher story.
+---------
+
+# 'Power Ballad' Review: Nick Jonas Outshines Paul Rudd in Just Fine Music Comedy
+
+3.5 star movies, Power Ballad, Paul Rudd, Nick Jonas
+
+Mon, 01 Jun 2026 19:36:31 GMT
+
+https://movieweb.com/power-ballad-review/
+
+The director of 'Sing Street' brings another charmer that somewhat misses its mark.
+---------
+
+# Zack Snyder Officially Remaking John Carpenter's '80s Sci-Fi Action Classic
+
+Movie News, Zack Snyder, John Carpenter, Escape from New York
+
+Mon, 01 Jun 2026 19:26:09 GMT
+
+https://movieweb.com/zack-snyder-remaking-john-carpenters-escape-from-new-york/
+
+The '300' and 'Watchmen' director has signed on to a "reimagining" of the dystopian '80s action film 'Escape from New York.'
+---------
+
+# The Best 'Odyssey' Movie Was Made 26 Years Before Christopher Nolan's Epic
+
+Features, O Brother, Where Art Thou?, The Odyssey
+
+Mon, 01 Jun 2026 19:00:19 GMT
+
+https://movieweb.com/o-brother-where-art-thou-perfect-odyssey/
+
+Christopher Nolan fans anticipating 'The Odyssey,' which will be released in July 2026, need to watch this movie from two decades ago.
+---------
+
+# Taylor Swift Announces New Original Song for 'Toy Story 5'
+
+Movie News, Toy Story 5, Taylor Swift
+
+Mon, 01 Jun 2026 18:45:33 GMT
+
+https://movieweb.com/taylor-swift-toy-story-5/
+
+After months of speculation, Taylor Swift announces a new original song, "I Knew It, I Knew You," for the Pixar sequel.
+---------
+
+# Every New Movie and TV Show Coming to Hulu and Disney+ in June 2026
+
+Features, Disney+, Hulu
+
+Mon, 01 Jun 2026 18:30:18 GMT
+
+https://movieweb.com/hulu-disney-new-movie-tv-june-2026/
+
+New movies and TV Shows coming to Hulu include the final season of 'The Bear' and 'Avatar: Fire and Ash.'
+---------
+
+# New '90s Cult Classic 'Streets of Rage' Video Game Adaptation Adds 'Sonic the Hedgehog' Team
+
+Movie News, video games, Action, Sonic the Hedgehog
+
+Mon, 01 Jun 2026 18:27:00 GMT
+
+https://movieweb.com/cult-classic-video-game-adaptation-writer-director/
+
+A new cult classic video game adaptation just picked up supersonic speed, adding the creative team behind 'Sonic the Hedgehog'.
+---------
+
+# Mark Wahlberg's 124-Minute Old-School Action Thriller Shoots Onto Free Streaming
+
+Movie News, Mark Wahlberg, Shooter, Action, Thriller
+
+Mon, 01 Jun 2026 18:00:18 GMT
+
+https://movieweb.com/mark-wahlberg-shooter-stream-free-june-2026/
+
+19 years later, the 'Transformers' star is gunning for justice and revenge.
+---------
+
 # DC Officially Confirms Shock New Costume for A-List Batman Character
 
 DC Comics, Batman
