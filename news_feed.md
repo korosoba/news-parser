@@ -1,3 +1,366 @@
+# Scream Meets Cabin In The Woods The 2026 Horror Release Every Fan Needs To See
+
+Comics, IDW Publishing
+
+Mon, 01 Jun 2026 04:09:11 GMT
+
+https://screenrant.com/fatal-fest-scream-meets-cabin-woods/
+
+The next horror hit of the year is a must-see that features parallels to classic slashers like Saw, Scream, The Long Walk, and Cabin in the Woods.
+---------
+
+# 25 Greatest Short Anime Series You Must See At Least Once
+
+TV
+
+Mon, 01 Jun 2026 03:59:20 GMT
+
+https://screenrant.com/best-anime-short-series-watch-few-episodes/
+
+Not every anime fan has time for huge series like Naruto or One Piece, but these short single-season anime outings should be seen by everyone.
+---------
+
+# There’s Only One Way For Lego To Top Batman: Legacy of the Dark Knight
+
+Gaming, LEGO Batman: Legacy of the Dark Knight, Spider-Man, LEGO
+
+Mon, 01 Jun 2026 03:46:26 GMT
+
+https://screenrant.com/lego-can-top-batman-legacy-of-the-dark-knight-with-spiderman-game/
+
+After the massive success of LEGO Batman: Legacy of the Dark Knight, I think there's only one real path if LEGO ever wants to try and top it.
+---------
+
+# Grey's Anatomy: Meredith & Derek's Relationship Timeline, Explained
+
+Network TV, Grey's Anatomy
+
+Mon, 01 Jun 2026 03:46:21 GMT
+
+https://screenrant.com/greys-anatomy-meredith-derek-relationship-timeline-explained/
+
+From post-it note weddings, elevator love letters, and a lot of breakups, Meredith Grey and Derek Shepherd had a wild romance on Grey's Anatomy.
+---------
+
+# Attack On Titan Meets Jujutsu Kaisen In A Wildly Underrated 17-Part Series
+
+Classic TV, Masked Recs
+
+Mon, 01 Jun 2026 03:17:25 GMT
+
+https://screenrant.com/iron-knight-series-underrated-manga/
+
+An incredibly entertaining 17-part series seems to brilliantly combine some of the best story aspects of both Attack on Titan and Jujutsu Kaisen.
+---------
+
+# Star Wars Has Never Been More Ready To Make Ahsoka Tano A Primary Franchise Lead
+
+Star Wars, The Mandalorian and Grogu, Ahsoka
+
+Mon, 01 Jun 2026 03:04:11 GMT
+
+https://screenrant.com/star-wars-movies-ahsoka-tano-as-primary-franchise-lead-op-ed/
+
+Following new changes at Lucasfilm and The Mandalorian & Grogu's release, it feels like Ahsoka Tano is primed for a central Star Wars role.
+---------
+
+# DC Crowns Joker’s Official Replacement In Batman Lore
+
+Comics, Batman, DC, DC Comics
+
+Mon, 01 Jun 2026 03:00:21 GMT
+
+https://screenrant.com/batman-new-nemesis-vandal-savage-replace-joker/
+
+Joker may no longer be the super-villain he once was, giving one character the chance to rise as the greatest nemesis to Batman and the Bat-Family.
+---------
+
+# Steam Officially Kicks Off June With Free Game You Have 24 Hours To Keep Forever
+
+Gaming, Steam
+
+Mon, 01 Jun 2026 03:00:21 GMT
+
+https://screenrant.com/steam-june-2026-free-games-24-hours/
+
+Steam gamers have a little over 24 hours left to get their hands on a real hidden gem of a game completely free.
+---------
+
+# 10 Weirdest Anime That Every Fan Needs To Watch At Least Once
+
+Anime
+
+Mon, 01 Jun 2026 03:00:21 GMT
+
+https://screenrant.com/weirdest-anime-fans-need-watch-once/
+
+Anime has continuously tested the boundaries of animation and art in general for the last three decades but some works have become the boundary itself
+---------
+
+# Apple TV's New Sci-Fi Shared Universe Is Already A 10/10
+
+Streaming TV, Masked Recs
+
+Mon, 01 Jun 2026 03:00:21 GMT
+
+https://screenrant.com/for-all-mankind-shared-universe-star-city-spinoff/
+
+Apple TV+ has quietly become the most reliable home for original sci-fi shows, but its latest release finally gives it a cinematic universe.
+---------
+
+# One Piece Characters Who Are Objectively More Dangerous Than Luffy
+
+Anime, One Piece
+
+Mon, 01 Jun 2026 03:55:12 GMT
+
+https://www.cbr.com/one-piece-characters-more-dangerous-than-luffy/
+
+Luffy is currently one of the most powerful characters in One piece, but the threat these characters pose goes beyond raw strength alone.
+---------
+
+# 10 Anime Protagonists With the Most Realistic Trauma
+
+Anime, Tokyo Ghoul, Frieren: Beyond Journey's End
+
+Mon, 01 Jun 2026 03:45:14 GMT
+
+https://www.cbr.com/anime-protagonists-most-realistic-trauma-list/
+
+Anime protagonists like Subaru and Frieren carry the most realistic trauma, as scars, struggles, and losses forged them into formidable characters.
+---------
+
+# The Legend of Zelda Officially Returns in 2026 With Brand-New Port
+
+Games, The Legend of Zelda
+
+Mon, 01 Jun 2026 03:30:13 GMT
+
+https://www.cbr.com/zelda-twilight-princess-2026-new-port-pc-loz/
+
+One of the best Legend of Zelda games, Twilight Princess, has a PC port that has to be seen to be believed.
+---------
+
+# Star Trek: The Animated Series' Impact on the Star Trek Canon
+
+TV, Star Trek, Star Trek: The Animated Series
+
+Mon, 01 Jun 2026 03:30:13 GMT
+
+https://www.cbr.com/star-trek-the-animated-series-gene-roddenberry-erased-canon/
+
+One Star Trek series was erased from canon by Gene Roddenberry himself, but it continued to shape the universe just the same.
+---------
+
+# 5 JRPG Protagonists More Likable Than Cloud
+
+Games, Final Fantasy VII, JRPG, Yakuza: Like a Dragon, Kingdom Hearts
+
+Mon, 01 Jun 2026 03:15:13 GMT
+
+https://www.cbr.com/jrpg-protagonists-better-than-cloud-list/
+
+From earnest optimism to relatable vulnerability, JRPG protagonists like Sora and Ness give Cloud Strife a run for his money in the likability stakes.
+---------
+
+# 29 Years Later, A New Pokémon Revival Is Officially Revealed
+
+Anime, Pokemon, Nintendo
+
+Mon, 01 Jun 2026 03:00:13 GMT
+
+https://www.cbr.com/pokemon-plakoro-bandai-return-official/
+
+After nearly three decades, a lost Pokémon game is making an official comeback.
+---------
+
+# 10 Anime Movies That Are Terrible From Beginning to End
+
+Anime, Dragon Ball Z: Bio-Broly, Wicked City, Tales from Earthsea
+
+Mon, 01 Jun 2026 02:45:12 GMT
+
+https://www.cbr.com/anime-movies-start-to-finish-bad-list/
+
+Not all anime movies can live up to high expectations, and these ten titles left fans underwhelmed from the opening moments to the final credits roll.
+---------
+
+# Best '80s Games That Are Worth Revisiting
+
+Games, Video Games, Super Mario Bros. 3, Contra
+
+Mon, 01 Jun 2026 02:15:12 GMT
+
+https://www.cbr.com/best-80s-games-worth-revisiting-list/
+
+The '70s may have birthed video games as we know them, but it was the '80s that transformed the industry, creating classics that are worth playing.
+---------
+
+# 6 Shows to Watch if You Loved Widow's Bay on Apple TV
+
+TV, Widow's Bay, Horror, Comedy
+
+Mon, 01 Jun 2026 02:00:24 GMT
+
+https://www.cbr.com/shows-like-apple-tv-widows-bay-list/
+
+Widow's Bay has become a surprisingly hilarious and terrifying hit on Apple TV, and a few other shows capture similar vibes.
+---------
+
+# Brad Dourif Vows to Keep Voicing Chucky Forever After Retirement
+
+Movies, Chucky, Child's Play
+
+Mon, 01 Jun 2026 01:58:41 GMT
+
+https://www.cbr.com/brad-dourif-voice-chucky-forever/
+
+Brad Dourif promises horror fans that nobody else is going to play the OG Chucky but him.
+---------
+
+# HBO's 5-Part 'The Sopranos' Meets 'Peaky Blinders' Crime Drama Is One of Its Best
+
+TV Features, Boardwalk Empire, Steve Buscemi, HBO, Terence Winter
+
+Mon, 01 Jun 2026 03:59:13 GMT
+
+https://collider.com/hbo-boardwalk-empire-crime-drama-sopranos-meets-peaky-blinders/
+
+HBO's Boardwalk Empire combines the best elements of The Sopranos and Peaky Blinders, set against the backdrop of the 1920s Prohibition era.
+---------
+
+# 16 Years Later, DC’s 2-Part Action Spy Series Is Still One of Its Greatest Hidden Gems
+
+TV Features, Human Target, DC Comics, Chi McBride, Jackie Earle Haley
+
+Mon, 01 Jun 2026 03:32:14 GMT
+
+https://collider.com/dc-comics-greatest-adaptation-human-target-fox-series/
+
+Human Target remains one of DC’s most underrated TV adaptations, with Mark Valley leading a stellar action series.
+---------
+
+# Forget 'Jack Ryan', Prime Video's Sci-Fi Military Thriller Is Worth a Weekend Watch
+
+Movie Features, Tom Clancy's Jack Ryan: Ghost War, Battleship, Prime Video, Taylor Kitsch
+
+Mon, 01 Jun 2026 03:30:13 GMT
+
+https://collider.com/jack-ryan-prime-video-battleship-sci-fi-thriller-weekend-watch/
+
+While Jack Ryan: Shadow War is tearing up Prime Video charts, Battleship is another military action thriller worth a watch, thanks to its sci-fi edge.
+---------
+
+# Only 5 Thriller Shows Are Better Than 'Breaking Bad'
+
+TV, Breaking Bad, Thriller, The Sopranos, Mindhunter
+
+Mon, 01 Jun 2026 03:23:13 GMT
+
+https://collider.com/thriller-shows-better-than-breaking-bad/
+
+Breaking Bad is one of the greatest series ever made, but as a thriller, shows like FX's The Shield and HBO's True Detective are arguably better.
+---------
+
+# The Greatest Western of All Time Is Officially Free to Watch
+
+Movie Features, The Good, the Bad and the Ugly, Clint Eastwood, Sergio Leone, Western
+
+Mon, 01 Jun 2026 03:03:48 GMT
+
+https://collider.com/greatest-western-of-all-time-the-good-the-bad-the-ugly-free-streaming/
+
+Sergio Leone’s unforgettable The Good, the Bad and the Ugly is a perfect Western that defined Clint Eastwood’s career — and it’s streaming for free.
+---------
+
+# 8 Near-Perfect Netflix Shows That Are Worth Your Time
+
+TV, Netflix, Sense8, Black Mirror, Stranger Things
+
+Mon, 01 Jun 2026 01:22:14 GMT
+
+https://collider.com/near-perfect-netflix-shows-worth-your-time/
+
+Explore Netflix's most rewarding series that offer consistently gripping storytelling and engaging characters, from Stranger Things to Arcane.
+---------
+
+# Hulu's Sci-Fi Phenomenon Is Quietly Taking Over Netflix's World
+
+TV News, The Handmaid's Tale, Netflix, Hulu, The Testaments
+
+Mon, 01 Jun 2026 01:01:15 GMT
+
+https://collider.com/hulu-sci-fi-phenomenon-the-handmaids-tale-streaming-success-netflix-may-2026/
+
+The Handmaid's Tale, Hulu's critically acclaimed sci-fi series, is surging on Netflix globally, ranking among the Top 10 most-watched shows.
+---------
+
+# ‘Dutton Ranch’ Meets ‘Disclosure Day’ in Controversial 7-Part Streaming Sensation
+
+TV News, Disclosure Day, Dutton Ranch, The Secret of Skinwalker Ranch, Sci-Fi
+
+Mon, 01 Jun 2026 00:45:12 GMT
+
+https://collider.com/prime-video-sci-fi-docuseries-secret-of-skinwalker-ranch-streaming-success-itunes-may-2026-disclosure-day-dutton-ranch/
+
+World War II with Tom Hanks isn't the only History Channel series dominating streaming; The Secret of Skinwalker Ranch isn't far behind.
+---------
+
+# 6 '90s Thrillers That Are Better Than Anything Released This Decade
+
+Movie, Thriller, Jacob's Ladder, 12 Monkeys, Heat
+
+Mon, 01 Jun 2026 00:42:13 GMT
+
+https://collider.com/1990s-thrillers-better-than-modern-movies/
+
+From Seven to Heat to Silence of the Lambs, these ’90s thrillers still outclass modern movies with atmosphere, tension, and real risks.
+---------
+
+# 73 Years Later, the Western That Helped Define Hollywood Is Coming Back to Streaming
+
+Movie News, Shane, Western, Paramount Plus, Streaming
+
+Mon, 01 Jun 2026 00:30:12 GMT
+
+https://collider.com/genre-defining-western-masterpiece-shane-streaming-paramount-plus-june-2026/
+
+The 94% Rotten Tomatoes Western, Shane, is coming to streaming soon. Find out when and where to watch the genre-defining classic.
+---------
+
+# 'Game of Thrones': The 10 Greatest Kings in Franchise History, Ranked
+
+TV Lists, Game of Thrones
+
+Mon, 01 Jun 2026 02:30:20 GMT
+
+https://movieweb.com/game-of-thrones-best-kings-ranked/
+
+Not every ruler in Westeros was like Mad King Aerys.
+---------
+
+# 10 Most Underrated Godzilla Movies, Ranked
+
+Features, Godzilla
+
+Mon, 01 Jun 2026 02:00:31 GMT
+
+https://movieweb.com/10-most-undertated-godzilla-movies-ranked/
+
+Godzilla is in the midst of a new golden era, which is the perfect reason to go back and re-experience some of his most underrated adventures.
+---------
+
+# Every Nicolas Cage Superhero Movie & TV Series, Ranked (Including 'Spider-Noir')
+
+Movie Lists, Spider-Noir, Nicolas Cage, Spider-Man: Into The Spider-Verse, Ghost Rider, Superhero
+
+Mon, 01 Jun 2026 00:30:18 GMT
+
+https://movieweb.com/every-nicolas-cage-superhero-movie-tv-series-ranked/
+
+How does Nicolas Cage's lauded 'Spider-Noir' series stack up against his other superhero movies and TV shows?
+---------
+
 # How Paris Hilton Aced Her Repo! The Genetic Opera Audition
 
 Movies, Repo! The Genetic Opera
