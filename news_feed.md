@@ -1,3 +1,366 @@
+# Jujutsu Kaisen Fans Hungry For Season 4 Should Look Forward To June 14th
+
+Anime, Jujutsu Kaisen, Chainsaw Man
+
+Mon, 01 Jun 2026 22:50:52 GMT
+
+https://screenrant.com/jujutsu-kaisen-season-4-mappa-new-info/
+
+The animation studio, MAPPA, has confirmed that Jujutsu Kaisen will have an update soon, so fans have a new date to mark on their calendars.
+---------
+
+# Jason Momoa's $440M Sci-Fi Fantasy Movie Trending On Prime Video Officially Marks The End Of An Era
+
+Superheroes, Masked Recs
+
+Mon, 01 Jun 2026 22:41:22 GMT
+
+https://screenrant.com/aquaman-and-the-lost-kingdom-prime-video-dceu-final-movie/
+
+Jason Momoa's hit sci-fi fantasy movie has become a streaming sensation on Prime Video, and it marks the end of an era for a major franchise.
+---------
+
+# 5 Best Shows To Watch On Prime Video This Week (June 1-5)
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Mon, 01 Jun 2026 22:37:20 GMT
+
+https://screenrant.com/best-prime-video-shows-watch-week-june-1/
+
+The top five shows to watch now on Prime Video include a trending true crime series, a star-studded superhero epic, and a perfect fantasy masterpiece.
+---------
+
+# After 77 Years, James Gunn Finally Adds The One Thing Superman Movies Have Been Missing
+
+Superheroes, Superman, DC Universe, Lex Luthor
+
+Mon, 01 Jun 2026 22:32:27 GMT
+
+https://screenrant.com/man-of-tomorrow-lex-luthor-warsuit-live-action-first-time-superman-dcu/
+
+After 77 years of multiple Superman movies on the big screen, a major DC first is coming next year with James Gunn's Man of Tomorrow sequel.
+---------
+
+# Netflix Has 3 Stranger Things Replacements, But Only 2 Are Great
+
+Streaming TV, Masked Recs
+
+Mon, 01 Jun 2026 22:30:21 GMT
+
+https://screenrant.com/stranger-things-netflix-replacements-great-bad/
+
+Following the end of Stranger Things, there are three replacements that can also be streamed on Netflix, but only two of them are decent watches.
+---------
+
+# Weak Hero Meets Bloodhounds In June’s Most Brutal Netflix Action Series
+
+TV, Netflix, Masked Recs
+
+Mon, 01 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/viral-hit-netflix-action-weak-hero-bloodhounds/
+
+Netflix's new upcoming live-action series is bringing the same grounded, underdog street brawls that made Bloodhounds a massive success.
+---------
+
+# Mindhunter Meets Poirot In Agatha Christie’s Darkest 3-Part Adaptation
+
+TV, Masked Recs
+
+Mon, 01 Jun 2026 21:58:21 GMT
+
+https://screenrant.com/the-abc-murders-agatha-christie-darkest-hercule-poirot-show/
+
+This show's shockingly dark twist on Hercule Poirot's world stars Agatha Christie's beloved detective in a story fit for Netflix's Mindhunter.
+---------
+
+# 23-Year-Old Bestselling Fantasy Series Adaptation Officially Lands Marvel Showrunner & Star Wars Director
+
+TV
+
+Mon, 01 Jun 2026 21:57:17 GMT
+
+https://screenrant.com/warrior-cats-show-ac-bradley-showrunner-rodrigo-blaas-director/
+
+Fantasy adaptations continue to be on the rise, with a 23-year-old bestselling book series now being turned into a TV show from a Marvel showrunner.
+---------
+
+# Millie Bobby Brown Officially Returns To Netflix Next Month After Stranger Things Recasting
+
+New Movies, Netflix, Enola Holmes 3
+
+Mon, 01 Jun 2026 21:50:21 GMT
+
+https://screenrant.com/millie-bobby-brown-netflix-return-enola-holmes-3/
+
+Millie Bobby Brown has moved on from Stranger Things, but she'll officially return to Netflix in one month for a new release after Eleven's recasting.
+---------
+
+# No Matter What Avengers: Doomsday Does, It Will Never Eclipse My Favorite Moment From Avengers: Endgame
+
+Movies, Masked Recs
+
+Mon, 01 Jun 2026 21:30:22 GMT
+
+https://screenrant.com/avengers-doomsday-will-never-top-endgame-cap-holding-mjolnir/
+
+Avengers: Doomsday should have some great moments, but none of them will be as jaw-dropping as Captain America wielding Mjolnir in Endgame.
+---------
+
+# Paramount+'s Returning Crime Show Is Officially a Major Streaming Hit
+
+TV, Criminal Minds, Crime, Paramount Plus
+
+Mon, 01 Jun 2026 22:25:50 GMT
+
+https://www.cbr.com/criminal-minds-crime-success-paramount-plus-june-2026/
+
+After returning for a new season, this long-running crime series is a hit on Paramount+.
+---------
+
+# 7 Near-Perfect Manga Officially Turning 50 In 2026
+
+Anime, Crest Of The Royal Family, Manga, The Fantastic Adventures of Unico, Glass Mask
+
+Mon, 01 Jun 2026 22:15:18 GMT
+
+https://www.cbr.com/manga-turning-50-in-2026/
+
+50 years on, these manga series still hold up as genre-defining for their captivating stories and nostalgic artwork.
+---------
+
+# Naruto Officially Launches Its 25th Anniversary With a New Anime Release
+
+Anime, Naruto
+
+Mon, 01 Jun 2026 22:01:12 GMT
+
+https://www.cbr.com/naruto-25th-anniversary-new-anime/
+
+The new Naruto project could either be a brand new anime or the long-delayed anniversary episodes.
+---------
+
+# Top Gun: Maverick is the Greatest Sequel Ever
+
+Movies, Top Gun: Maverick
+
+Mon, 01 Jun 2026 22:01:12 GMT
+
+https://www.cbr.com/top-gun-maverick-greatest-sequel-ever/
+
+Legacy sequels have become a prominent trend and so much of that momentum can be credited to an all-time great.
+---------
+
+# Red Dead Redemption 2: How To Get The Legend Of The East Satchel
+
+Games, Red Dead Redemption II, Video Games, rockstar games, Red Dead Redemption
+
+Mon, 01 Jun 2026 21:35:13 GMT
+
+https://www.cbr.com/rdr2-legend-east-satchel-guide-rockstar/
+
+In open-world RPGs, players want more space for their loot. In RDR2, this can be done by crafting new satchels, the best being The Legend of the East.
+---------
+
+# 8 Steamiest Scenes in Game of Thrones
+
+Lists, Game Of Thrones
+
+Mon, 01 Jun 2026 21:30:14 GMT
+
+https://www.cbr.com/steamiest-love-scenes-in-game-of-thrones/
+
+Game of Thrones isn't just about violence. It has some of the hottest scenes in modern TV.
+---------
+
+# Jake Gyllenhaal’s Source Code is a Modern Sci-Fi Classic
+
+Movies, Source Code
+
+Mon, 01 Jun 2026 21:30:13 GMT
+
+https://www.cbr.com/jake-gyllenhaal-source-code-perfect-sci-fi-thriller/
+
+Jake Gyllenhaal once appeared in a sci-fi film that Roger Ebert loved, but no one knows about it even after decades.
+---------
+
+# Chris Hemsworth's Transformation for New Crime Movie May Seal Thor’s MCU Future
+
+Movies, Kockroach, Crime, MCU
+
+Mon, 01 Jun 2026 21:26:24 GMT
+
+https://www.cbr.com/chris-hemsworth-transformation-kockroach/
+
+A new look at Kockroach has some fans doubting Chris Hemsworth's return to the MCU as Thor.
+---------
+
+# CBS Officially Confirms the End of an Era for Yellowstone (& It's About Time)
+
+TV, Marshals, Yellowstone
+
+Mon, 01 Jun 2026 21:20:13 GMT
+
+https://www.cbr.com/yellowstone-marshals-viewership-numbers-end-of-era/
+
+Taylor Sheridan's Yellowstone empire has surpassed its former limits, ushering in a new era with the CBS sequel, Marshals.
+---------
+
+# 4 N64 Games Better Than Ocarina of Time
+
+Games, Video Games, Nintendo 64, The Legend of Zelda: Ocarina of Time
+
+Mon, 01 Jun 2026 21:15:13 GMT
+
+https://www.cbr.com/n64-games-better-than-zelda-ocarina-of-time/
+
+Ocarina of Time is often considered the gold standard for N64, but there are a handful of other N64 games that surpass it without effort.
+---------
+
+# 10 Years Later, This 3-Part Fantasy Book Adaptation Is the Perfect Weekend Binge
+
+TV Features, Shadowhunters, Freeform, Hulu, Fantasy
+
+Mon, 01 Jun 2026 22:52:13 GMT
+
+https://collider.com/shadowhunters-fantasy-book-adaptation-weekend-binge/
+
+Shadowhunters is an urban fantasy adaptation that is the perfect binge-worthy watch, with an ensemble cast and thrilling plot twists.
+---------
+
+# 9 Years Later, Spider-Man: Homecoming’s Greatest Quote Remains 100% Undisputed
+
+Movie Features, Spider-Man: Homecoming, MCU, Spider-Man, Superhero
+
+Mon, 01 Jun 2026 22:42:14 GMT
+
+https://collider.com/spider-man-homecoming-tony-stark-greatest-quote-the-boys-homelander-comparison/
+
+Tony Stark’s iconic quote in Spider-Man: Homecoming remains Spider-Man’s greatest lesson, and even other superhero franchises prove it.
+---------
+
+# Anya Taylor-Joy’s Twisty Thriller Is Officially on Prime Video
+
+Movie, Prime Video, Thoroughbreds, A Man Called Otto, Heartbreakers
+
+Mon, 01 Jun 2026 22:34:14 GMT
+
+https://collider.com/best-movies-prime-video-june-1/
+
+A Man Called Otto, Heartbreakers, and Thoroughbreds make up our list of the best Prime Video movies to watch the week of June 1, 2026.
+---------
+
+# 3 Years Later, Timothy Olyphant’s Most Divisive Western Miniseries Is Suddenly a Smash Hit
+
+TV News, Justified: City Primeval, Timothy Olyphant, Justified, Walton Goggins
+
+Mon, 01 Jun 2026 22:30:13 GMT
+
+https://collider.com/timothy-olyphant-western-sequel-miniseries-justified-city-primeval-streaming-success-hulu-may-2026/
+
+Justified: City Primeval, Timothy Olyphant's eight-episode Western miniseries, is officially taking over the world as the perfect weekend binge.
+---------
+
+# 10 Greatest Forgotten '90s Cult Classic Movies, Ranked
+
+Movie, Go, True Romance, Swimming with Sharks, The Long Kiss Goodnight
+
+Mon, 01 Jun 2026 22:15:18 GMT
+
+https://collider.com/best-forgotten-90s-cult-classic-movies-ranked/
+
+The Long Kiss Goodnight, The Last Seduction, and True Romance are among the very best '90s cult classic movies that are sadly mostly forgotten today.
+---------
+
+# Robert De Niro's Greatest Movie Has Officially Been Removed From Streaming
+
+Movie News, Martin Scorsese, Raging Bull, Robert De Niro, Plex
+
+Mon, 01 Jun 2026 22:00:13 GMT
+
+https://collider.com/martin-scorsese-robert-de-niro-action-masterpiece-raging-bull-leaving-free-streaming-plex-june-2026/
+
+One of Martin Scorsese and Robert De Niro's best movies is about to lose its free streaming home. Read on for more.
+---------
+
+# Ridley Scott's All-Star Sci-Fi Thriller Remains the Best of the Genre 11 Years Later
+
+Movie Features, The Martian, Ridley Scott, Matt Damon, Sci-Fi
+
+Mon, 01 Jun 2026 21:53:14 GMT
+
+https://collider.com/the-martian-ridley-scott-movie-sci-fi-thriller-best-in-genre/
+
+Ridley Scott has several masterpieces, with this star-studded sci-fi thriller being among the best of his filmography.
+---------
+
+# 10 Superhero Shows To Watch Now That 'The Boys' Is Over
+
+TV, The Boys, Superhero, Gen V, Invincible
+
+Mon, 01 Jun 2026 21:36:13 GMT
+
+https://collider.com/superhero-shows-like-the-boys/
+
+Now that the Prime Video series The Boys has come to a close, it's officially time to check out superhero shows like Invincible, Gen V, and Daredevil.
+---------
+
+# 10 Greatest Final Horror Shots of All Time, Ranked
+
+Movie, Texas Chain Saw Massacre, Psycho, The Shining, The Mist
+
+Mon, 01 Jun 2026 21:31:13 GMT
+
+https://collider.com/best-final-horror-shots-all-time-ranked/
+
+Particularly great final shots from horror movie history can be found in classics like The Shining, The Texas Chain Saw Massacre, and Psycho.
+---------
+
+# Hugh Jackman's Gritty Fantasy Remake Officially Arrives on June 19
+
+Movie News, The Death of Robin Hood, Hugh Jackman, A24, Russell Crowe
+
+Mon, 01 Jun 2026 21:30:13 GMT
+
+https://collider.com/a24-the-death-of-robin-hood-release-date-june-19-2026-hugh-jackman/
+
+The Death of Robin Hood, the new A24 film starring Hugh Jackman as the titular character, is officially releasing in theaters next month.
+---------
+
+# 'Andor' Character Change Prevented Tony Gilroy's Star Wars Show From Having a Notable Plot Hole
+
+Features, Andor, Star Wars
+
+Mon, 01 Jun 2026 22:00:18 GMT
+
+https://movieweb.com/star-wars-villain-andor-mandoverse/
+
+It turns out that Andor almost featured a direct connection to a major Mandoverse villain: Grand Admiral Thrawn.
+---------
+
+# Jason Statham's Chaotic 87-Minute Action Thriller Lands On Free Streaming
+
+Movie News, Jason Statham, Coming/Leaving Streaming, Crank, Crank: High Voltage, Action
+
+Mon, 01 Jun 2026 21:01:19 GMT
+
+https://movieweb.com/jason-statham-crank-action-streaming-pluto-tv-june-2026/
+
+Statham's 2006 action thriller, 'Crank,' and its sequel, 'Crank: High Voltage,' have both arrived on free streaming to kickstart your summer.
+---------
+
+# Netflix’s New Sci-Thriller Is So Good, You'll Forget 'Stranger Things'
+
+Features, The Boroughs, Stranger Things, Netflix
+
+Mon, 01 Jun 2026 21:01:19 GMT
+
+https://movieweb.com/the-boroughs-netflix-better-stranger-things/
+
+'Stranger Things' may be a popular sci-fi horror series on Netflix, but a new sci-fi thriller is even more interesting.
+---------
+
 # Apple TV's 'Lost Meets 1984' Series Is So Good, It's Already Renewed For 2 Seasons
 
 Streaming TV, Masked Recs
