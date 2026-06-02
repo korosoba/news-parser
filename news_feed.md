@@ -1,3 +1,256 @@
+# 10 Best New Movies Coming To Hulu In June 2026
+
+Movies, Film Noir
+
+Tue, 02 Jun 2026 00:01:20 GMT
+
+https://screenrant.com/film-noir-movies-on-hbo-max-june-2026/
+
+A long list of classic movies joined HBO Max's library on June 1, including some must-watch entries into the film noir genre from the 1940s.
+---------
+
+# Netflix's 10/10 Anime Adaptation Makes Even Naruto Look Small
+
+Streaming TV, Masked Recs
+
+Mon, 01 Jun 2026 23:30:20 GMT
+
+https://screenrant.com/one-piece-netflix-live-action-naruto-look-small/
+
+One of Netflix’s best anime live-action adaptations is a sprawling fantasy television show that makes even Naruto look small in comparison.
+---------
+
+# Box Office Hits Key Milestone Without Marvel For First Time In History
+
+Movies, Box Office
+
+Mon, 01 Jun 2026 23:09:35 GMT
+
+https://screenrant.com/box-office-may-1-billion-no-marvel-first-time/
+
+The domestic box office has hit a key milestone in the month of May without the Marvel Cinematic Universe for the first time in history.
+---------
+
+# 22 Years Later, Frasier's Worst Episode Has Aged Like Milk
+
+TV, Frasier, Cheers
+
+Mon, 01 Jun 2026 23:07:21 GMT
+
+https://screenrant.com/frasier-worst-episode-aged-like-milk/
+
+Frasier's worst episode was a surprisingly ambitious attempt to break out of the sitcom's usual formula, but the Cheers spinoff failed in this effort.
+---------
+
+# Backrooms Ending Explained: What Happens To Mary And What’s Next?
+
+Movies, Backrooms
+
+Mon, 01 Jun 2026 23:01:20 GMT
+
+https://screenrant.com/backrooms-movie-ending-explained/
+
+A24's Backrooms movie releases this weekend, with huge expectation and anticipation for this adaptation of the internet phenomenon.
+---------
+
+# Zoe Kravitz Joins Apple’s Mysterious New Movie Amid The Batman 2 Absence
+
+Movies, Zoë Kravitz
+
+Mon, 01 Jun 2026 22:56:26 GMT
+
+https://screenrant.com/apple-megan-park-new-movie-zoe-kravitz-cast/
+
+While she won't be in Matt Reeves' The Batman: Part II, the Caught Stealing actor will team up with director Megan Park for an unnamed project.
+---------
+
+# Solo Leveling Season 3 Finally Gets Official Update From Crunchyroll: 'Soon'
+
+Anime, Solo Leveling
+
+Tue, 02 Jun 2026 00:00:13 GMT
+
+https://www.cbr.com/solo-leveling-season-3-crunchyroll-president-interview-comments/
+
+A-1 Pictures is “actively working on” the next season of the Solo Leveling anime according to Crunchyroll President Rahil Pirini.
+---------
+
+# The Backrooms Movie Officially Confirms Mary's Fate
+
+Movies, Backrooms
+
+Tue, 02 Jun 2026 00:00:13 GMT
+
+https://www.cbr.com/backrooms-movie-ending-explained-mary-fate/
+
+The final moments of the Backrooms movie adaptation have caused some confusion, but Mary's true fate has already been revealed.
+---------
+
+# New Hellboy Series Finally Uncovers a Missing Chapter in Guillermo del Toro’s Film Saga
+
+Comics, Hellboy
+
+Tue, 02 Jun 2026 00:00:13 GMT
+
+https://www.cbr.com/young-hellboy-thrilling-sky-adventures-now-available/
+
+Fans of the Hellboy movies will witness an unseen part of the character in new comic.
+---------
+
+# 10 Strongest Gachiakuta Characters From the Manga, Ranked
+
+Anime, Gachiakuta
+
+Mon, 01 Jun 2026 23:20:13 GMT
+
+https://www.cbr.com/gachiakuta-strongest-characters-manga-ranked/
+
+Gachiakuta has a memorable cast of characters, but which among them are truly the strongest?
+---------
+
+# The Punisher's Marvel Special Returns to No. 1 on Disney+ 2 Weeks Later
+
+TV, The Punisher: One Last Kill, MCU, Disney+
+
+Mon, 01 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/the-punisher-one-last-kill-streaming-success-disney-plus-june-2026/
+
+Marvel's latest Disney+ special is surging on the streaming charts two weeks after its premiere.
+---------
+
+# Chainsaw Man’s Extra Final Volume Pages Give Denji’s Arc Closure
+
+Anime, Chainsaw Man
+
+Mon, 01 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/chainsaw-man-manga-volume-24-extra-pages-denji-closure/
+
+The extra pages of Chainsaw Man’s final volume leaked early. It’s not the additional chapter fans thought, but Denji does at least get poetic justice.
+---------
+
+# 5 Flawless Fantasy Movies Better Than Harry Potter
+
+Movies, Fantasy, Harry Potter, The Lord of the Rings
+
+Mon, 01 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/best-fantasy-movies-better-than-harry-potter-list/
+
+As easy as it is to label Harry Potter the greatest fantasy movie franchise ever, some films have it beat on everything from worldbuilding to casting.
+---------
+
+# Forget 'Back to the Future,' This Dark Drama Features Michael J. Fox's Very Best Performance
+
+Movie Features, Michael J. Fox, Bright Lights, Big City, Back to the Future, Kiefer Sutherland
+
+Tue, 02 Jun 2026 00:09:13 GMT
+
+https://collider.com/michael-j-fox-best-performance-bright-lights-big-city/
+
+Michael J. Fox is known best for Back to the Future, but he gave his best performance in Bright Lights, Big City.
+---------
+
+# Hollywood's Most Infamous Western Flop Was Just Removed From Free Streaming
+
+Movie News, Western, Christopher Walken, Plex, Heaven's Gate
+
+Tue, 02 Jun 2026 00:00:14 GMT
+
+https://collider.com/christopher-walken-western-epic-heavens-gate-removed-free-streaming-plex-june-2026/
+
+Hollywood's most infamous Western flop, starring Christopher Walken and John Hurt, has officially been removed from streaming. Get the details.
+---------
+
+# Ewan McGregor's Most Divisive Sci-Fi Series Returns to Streaming Charts
+
+TV News, Star Wars, Ewan McGregor, Sci-Fi, Obi-Wan Kenobi
+
+Mon, 01 Jun 2026 23:30:14 GMT
+
+https://collider.com/obi-wan-kenobi-ewan-mcgregor-star-wars-sci-fi-spin-off-series-streaming-success-disney-plus-june-2026/
+
+Obi-Wan Kenobi, the Star Wars series starring Ewan McGregor, has experienced a streaming resurgence, 2 years after its release.
+---------
+
+# 'Deli Boys' Kicks Off Collider's New BTS Series With a Bonkers Set Tour of Hulu's Hit Crime Series
+
+TV News, Deli Boys, Poorna Jagannathan, Asif Ali, Hulu
+
+Mon, 01 Jun 2026 23:30:14 GMT
+
+https://collider.com/deli-boys-cast-asif-ali-saagar-shaikh-hulu-series-behind-the-scenes-stories-collider-access/
+
+Uncover the secrets behind the scenes of Hulu's Deli Boys, from the cast's hilarious memories to the experiences that brought the characters to life.
+---------
+
+# 9 Most Perfect Fantasy Shows of the Last 10 Years
+
+TV, Fantasy, Arcane, A Knight Of The Seven Kingdoms, Interview with the Vampire
+
+Mon, 01 Jun 2026 23:14:14 GMT
+
+https://collider.com/most-perfect-fantasy-shows-last-10-years-ranked/
+
+Arcane, Shadow and Bone, and A Knight of the Seven Kingdoms are among the best fantasy shows of the last decade, but which series is the greatest?
+---------
+
+# Zack Snyder's Overlooked Secret Weapon for the DCEU Was Only in 1 Movie
+
+Movie Features, Justice League, Zack Snyder's Justice League, DC Extended Universe, J.K. Simmons
+
+Mon, 01 Jun 2026 23:08:14 GMT
+
+https://collider.com/justice-league-2017-zack-snyder-jk-simmons-gordon-dceu/
+
+Commissioner Jim Gordon, one of Batman's greatest allies, was played by J.K. Simmons in Justice League, only to then appear in the scrapped Batgirl.
+---------
+
+# 10 Nearly Perfect HBO Miniseries, Ranked
+
+TV, HBO, Angels in America, Band of Brothers, Chernobyl
+
+Mon, 01 Jun 2026 23:06:13 GMT
+
+https://collider.com/nearly-perfect-hbo-miniseries-ranked/
+
+From Chernobyl, to Sharp Objects, to Band of Brothers, these HBO miniseries prove a limited run can leave an unlimited impact.
+---------
+
+# Mark Wahlberg Is Unrecognizable in First Look at New Revenge Thriller 'By Any Means'
+
+Movie News, By Any Means, Mark Wahlberg, Yahya Abdul-Mateen II
+
+Mon, 01 Jun 2026 23:09:16 GMT
+
+https://movieweb.com/mark-wahlberg-unrecognizable-by-any-means-movie/
+
+The makeover was a key part of bringing a real-life hitman to life.
+---------
+
+# Marvel Perfectly Blends an Iconic Live-Action Spider-Man Twist With an Infamous Animated Moment
+
+Features, Spider-Noir, Spider-Man
+
+Mon, 01 Jun 2026 23:01:19 GMT
+
+https://movieweb.com/marvel-spider-man-scenes-combination/
+
+'Spider-Noir' is a fresh take on a Marvel icon, but it's also a creative remake of familiar characters and situations. Read on for more.
+---------
+
+# Netflix's 97% Rated Sci-Fi Hit Faces Its Toughest Challenge Yet on Streaming
+
+TV News, The Four Seasons, The Boroughs, Netflix, Hot on Streaming
+
+Mon, 01 Jun 2026 23:01:19 GMT
+
+https://movieweb.com/the-boroughs-netflix-scifi-beaten-four-seasons-streaming-june-2026/
+
+Netflix's hit sci-fi series 'The Boroughs' defeated on the streaming charts by Season 2 of 'The Four Seasons.'
+---------
+
 # Jujutsu Kaisen Fans Hungry For Season 4 Should Look Forward To June 14th
 
 Anime, Jujutsu Kaisen, Chainsaw Man
