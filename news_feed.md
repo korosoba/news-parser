@@ -1,3 +1,443 @@
+# Game Of Thrones’ Peaceful Ending Left Westeros Weaker
+
+Classic TV, Game Of Thrones, Op-Ed
+
+Tue, 02 Jun 2026 18:00:21 GMT
+
+https://screenrant.com/game-of-thrones-ending-weaker-seven-kingdoms/
+
+Game of Thrones' controversial ending left Westeros' Seven Kingdoms in new hands, but this new era of peace also leaves Westeros vulnerable.
+---------
+
+# Before Robert Pattinson's Primetime Is Released, This 2025 Documentary Is A Must-Watch
+
+Movies, Predators, Primetime
+
+Tue, 02 Jun 2026 17:45:20 GMT
+
+https://screenrant.com/robert-pattinson-primetime-movie-predators-documentary/
+
+Before going to see Chris Hansen play To Catch a Predator host Chris Hansen in Primetime , moviegoers should watch this 2025 documentary first.
+---------
+
+# Interview With The Vampire's Soft Reboot Debuts To Perfect Rotten Tomatoes Score
+
+TV, Interview with the Vampire, The Vampire Lestat, Immortal Universe
+
+Tue, 02 Jun 2026 17:41:16 GMT
+
+https://screenrant.com/vampire-lestat-interview-with-the-vampire-season-3-rotten-tomatoes-score-debut/
+
+Interview with the Vampire's soft reboot debuts to a perfect Rotten Tomatoes score as the show returns to tell a very different story.
+---------
+
+# All Magic: The Gathering Cards Revealed For The Marvel Super Heroes Set
+
+Gaming, Magic: The Gathering, Triple-A Games
+
+Tue, 02 Jun 2026 17:30:21 GMT
+
+https://screenrant.com/magic-the-gathering-cards-marvel-super-heroes-reveal/
+
+Although Wizards of the Coast has dabbled in Marvel sets before, including Spider-Man, Marvel Super Heroes is a huge celebration of the universe.
+---------
+
+# After Spider-Man: Brand New Day, Tom Holland Will Return To His Roots With New Biopic Movie Filming Next Year
+
+Movies, Tom Holland, Fred Astaire
+
+Tue, 02 Jun 2026 17:26:19 GMT
+
+https://screenrant.com/tom-holland-fred-astaire-movie-filming-start-window/
+
+After Spider-Man: Brand New Day, Tom Holland will return to his roots for a new biopic movie that is expected to start shooting next year.
+---------
+
+# All 11 New D&D Feats In Ravenloft: The Horrors Within
+
+Tabletop, Dungeons and Dragons, Dungeons & Dragons, tabletop games
+
+Tue, 02 Jun 2026 17:15:32 GMT
+
+https://screenrant.com/dungeons-dragons-ravenloft-horrors-within-every-feat-dnd/
+
+The release of the Ravenloft: The Horrors Within sourcebook saw the addition of 11 new Feats to Dungeons and Dragons; here are all of them.
+---------
+
+# Chris Evans’ Captain America Resists Doctor Doom’s Magic In New Avengers: Doomsday Art
+
+Superheroes, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Tue, 02 Jun 2026 17:06:55 GMT
+
+https://screenrant.com/avengers-doomsday-doctor-doom-magic-captain-america-fight-marvel-art/
+
+As the wait for the Avengers: Doomsday trailer continues, Robert Downey Jr.'s Doctor Doom fights Chris Evans' Captain America with magic in MCU art.
+---------
+
+# This Rarely Seen Chapter in Spider-Man's History Is Returning (Exclusive)
+
+Comics, Spider-Man
+
+Tue, 02 Jun 2026 17:00:21 GMT
+
+https://screenrant.com/spider-man-daily-comic-strips-clover-press-kickstarter/
+
+A daily dose.
+---------
+
+# Avengers: Doomsday Officially Goes Back To "Phase Zero," Russo Bros Explain Reason For MCU Reset
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe, Russo Bros
+
+Tue, 02 Jun 2026 16:47:57 GMT
+
+https://screenrant.com/avengers-doomsday-phase-zero-russo-bros-confirmed/
+
+Just as Infinity War and Endgame changed the MCU, Avengers: Doomsday will do the same for the franchise, and the Russo Brothers just revealed why.
+---------
+
+# Miss You Love You Interviews with Allison Janney, Andrew Rannells & Jim Rash
+
+Videos, Miss You, Love You, Jim Rash, Allison Janney, Andrew Rannells
+
+Tue, 02 Jun 2026 16:43:31 GMT
+
+https://screenrant.com/video/miss-you-love-you-allison-janney-andrew-rannells-jim-rash-interview/
+
+Miss You, Love You stars Allison Janney and Andrew Rannells join writer-director Jim Rash to discuss the film's long-take sequences and their impeccable chemistry as actors.
+---------
+
+# 6 Space Movies Better Than Apollo 13
+
+Movies, Apollo 13
+
+Tue, 02 Jun 2026 18:00:13 GMT
+
+https://www.cbr.com/sci-fi-movies-better-than-apollo-13-list/
+
+Ron Howard's Apollo 13 is a beloved docudrama about the real NASA mission, but movies like The Martian and Interstellar explore space even better.
+---------
+
+# It’s Over: Chainsaw Man Finally Dethrones Jujutsu Kaisen in Newest Anime Release
+
+Anime, Chainsaw Man, Jujutsu Kaisen, Shonen Jump
+
+Tue, 02 Jun 2026 18:00:13 GMT
+
+https://www.cbr.com/chainsaw-man-dethrones-jujutsu-kaisen-death-battle/
+
+A brand-new anime release settles the long-standing debate between which dark shonen titan would win in a death match: Yuji Itadori or Denji.
+---------
+
+# DC Comics Is Today's Top Superhero Publisher, Thanks To The Absolute Universe's Influence
+
+Comics, DC Comics, Absolute Batman, Justice League
+
+Tue, 02 Jun 2026 18:00:13 GMT
+
+https://www.cbr.com/dc-comics-best-superhero-publisher/
+
+Compact Editions, Next Level, and the Absolute Universes Expansion are only.a few examples of how DC is leading the pack.
+---------
+
+# Malcolm in the Middle Quietly Confirmed Its Harshest Reality Years Before Hulu's Revival
+
+TV, Malcolm in the Middle, Sitcoms
+
+Tue, 02 Jun 2026 17:30:13 GMT
+
+https://www.cbr.com/malcolm-in-the-middle-reese-tragic-character/
+
+Malcolm in the Middle was one of the best sitcoms of the 2000s, but there's one character whose reality flew under the radar, and it's heartbreaking.
+---------
+
+# Apple TV's 2-Part Crime Thriller Continues Peter Capaldi & Cush Jumbo's Power Grab in Tense Conversation
+
+TV, Criminal Record
+
+Tue, 02 Jun 2026 17:30:13 GMT
+
+https://www.cbr.com/criminal-record-season-2-episode-7-power-grab-clip/
+
+Exclusive: The second-to-last episode of Criminal Record continues the power grab between the two leads.
+---------
+
+# Spider-Man: Brand New Day Will Officially Release in China
+
+Movies, Spider-Man, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Tue, 02 Jun 2026 17:30:13 GMT
+
+https://www.cbr.com/spider-man-brand-new-official-release-china-theaters/
+
+Spider-Man: Brand New Way is confirmed for a Chinese release, setting it up for major box office potential that even its predecessor didn't have.
+---------
+
+# Masters of the Universe's RT Score Proves the He-Man Movie Has the Power
+
+Movies, Masters of the Universe, Fantasy
+
+Tue, 02 Jun 2026 17:16:30 GMT
+
+https://www.cbr.com/masters-of-the-universe-rotten-tomatoes-score/
+
+The new He-Man movie proves far more powerful than the last on Rotten Tomatoes.
+---------
+
+# Valve Officially Enters Unfortunate New Era 2026
+
+Games, Steam
+
+Tue, 02 Jun 2026 17:15:12 GMT
+
+https://www.cbr.com/valve-officially-entering-new-era-2026/
+
+Valve recently made a shocking announcement about the Steam Deck, which spells terrible news for the upcoming Steam Machine, assuming it launches.
+---------
+
+# Rebecca Ferguson's Hit Apple TV Sci-Fi Series Finally Returns With Season 3 Trailer
+
+TV, Silo
+
+Tue, 02 Jun 2026 16:51:46 GMT
+
+https://www.cbr.com/rebecca-ferguson-silo-season-3-trailer/
+
+The long-awaited series finally returns with new episodes this summer.
+---------
+
+# Ahead of Man of Tomorrow, Adria Arjona Fights a Killing Machine in A24 'Gonzo' Action Movie
+
+Movies, Onslaught, Action, onslaught
+
+Tue, 02 Jun 2026 16:21:41 GMT
+
+https://www.cbr.com/onslaught-a24-gonzo-action-movie-trailer/
+
+Adria Arjona takes center stage in the action-packed first trailer for the new Adam Wingard movie, Onslaught.
+---------
+
+# 10 Greatest Psychopath Villains in Movies
+
+Movie, Villains, The Silence of the Lambs, Ralph Fiennes, American Psycho
+
+Tue, 02 Jun 2026 17:52:20 GMT
+
+https://collider.com/best-psychopath-villains-in-movies-ranked/
+
+These psychopathic villains are evil characters that have been portrayed perfectly, and therefore, remain engraved in our minds.
+---------
+
+# After 'The Mandalorian and Grogu,' Director of Next Star Wars Movie Confirms the Pressure of Making His Film [Exclusive]
+
+Exclusives, Star Wars: Starfighter, Shawn Levy, Star Wars, Ryan Gosling
+
+Tue, 02 Jun 2026 17:45:14 GMT
+
+https://collider.com/new-star-wars-movie-making-pressure-after-mandalorian-and-grogu-shawn-levy-ryan-gosling/
+
+Star Wars: Starfighter director Shawn Levy praises Ryan Gosling and Flynn Gray after speaking with Collider.
+---------
+
+# A Rare Coming-of-Age Story Is Heading to Theaters Next Month [Exclusive]
+
+Movie News, Gretchen Mol, Tony Hale, Indie, Movie Trailers
+
+Tue, 02 Jun 2026 17:00:14 GMT
+
+https://collider.com/horsegirls-trailer-poster-gretchen-mol-tony-hale/
+
+Get an exclusive look at the first trailer and poster for Horsegirls, a Tribeca indie drama about autism, independence, and hobby horsing.
+---------
+
+# The First Horror Film Ever Made Was Overrun with Studio Interference
+
+Movie Features, Fritz Lang, The Cabinet of Dr. Caligari, Horror
+
+Tue, 02 Jun 2026 16:45:15 GMT
+
+https://collider.com/cabinet-of-dr-caligari-horror-movie-studio-interference/
+
+The Cabinet of Dr. Caligari is considered to one of the first-ever horror movies, but even it couldn't avoid some fiddling by a producer.
+---------
+
+# David Harbour Gives Honest 'Avengers: Doomsday' Reaction After Test Screening Rumors [Exclusive]
+
+Exclusives, Thunderbolts*, Avengers: Doomsday, David Harbour, MCU
+
+Tue, 02 Jun 2026 16:30:13 GMT
+
+https://collider.com/avengers-doomsday-6-minutes-test-screening-silenced-criticism-david-harbour/
+
+David Harbour praises Avengers: Doomsday after seeing 6 minutes of footage, saying the Russo Brothers understand Marvel’s secret sauce.
+---------
+
+# Henry Cavill's New 98-Minute Action Thriller Is Now Streaming After Box Office Disappointment
+
+Movie News, In the Grey, Henry Cavill, Guy Ritchie, Jake Gyllenhaal
+
+Tue, 02 Jun 2026 16:29:40 GMT
+
+https://collider.com/henry-cavill-guy-ritchie-action-thriller-in-the-grey-digital-release-date/
+
+Henry Cavill and Jake Gyllenhaal’s Guy Ritchie action thriller In the Grey is now available on digital after struggling at the box office.
+---------
+
+# 25 Years Later, Disney’s Most Underrated Sci-Fi Classic Is Officially Getting a Sequel
+
+Movie News, Atlantis: The Lost Empire, Disney, Disney+, Animation
+
+Tue, 02 Jun 2026 16:26:58 GMT
+
+https://collider.com/disney-underrated-sci-fi-atlantis-the-lost-empire-sequel-graphic-novel-comic/
+
+Disney’s ‘Atlantis: The Lost Empire’ is returning.
+---------
+
+# New Horror Movie Officially Earns Over 140x Its Budget
+
+Movie News, Obsession, Curry Barker, Inde Navarrette, Box Office
+
+Tue, 02 Jun 2026 15:43:24 GMT
+
+https://collider.com/obsession-140x-box-office-multiple-record-breaking-weekend/
+
+Director Curry Barker's Obsession delivered yet another record-breaking performance at the box office. Find out how much it has grossed so far.
+---------
+
+# Marvel’s 'X-Men' Director Officially Addresses Those Casting Rumors [Exclusive]
+
+Exclusives, X-Men, Jake Schreier, MCU
+
+Tue, 02 Jun 2026 15:15:13 GMT
+
+https://collider.com/mcu-x-men-movie-casting-rumors-update-jake-schreier/
+
+X-Men director Jake Schreier addresses casting rumors for Marvel’s upcoming reboot after speaking with Collider.
+---------
+
+# Forget 'MobLand,' Tom Hardy's Diabolical Role in This Action Thriller Is Perfect From Start to Finish
+
+Movie Features, Tom Hardy, MobLand, Christopher Nolan, The Dark Knight Rises
+
+Tue, 02 Jun 2026 15:13:18 GMT
+
+https://collider.com/mobland-tom-hardy-repacement-bane-dark-knight-rises/
+
+Tom Hardy perfectly melds camp and seriousness in his terrifying version of Bane in The Dark Knight Rises.
+---------
+
+# 'The Pitt' Spin-off Sounds So Good, Its Star Calls It a "No-Brainer"
+
+Features, The Pitt
+
+Tue, 02 Jun 2026 18:00:19 GMT
+
+https://movieweb.com/the-pitt-spin-off-night-shift-shawn-hatosy/
+
+'The Pitt' Season 3 is on its way, and one of the HBO Max medical drama's main stars has praised a potential spin-off idea.
+---------
+
+# Record-Breaking Horror Thriller Phenomenon 'Backrooms' Already Working on Sequel
+
+Movie News, Backrooms, Kane Parsons, Horror, Thriller
+
+Tue, 02 Jun 2026 17:53:29 GMT
+
+https://movieweb.com/backrooms-horror-thriller-already-working-sequel/
+
+It looks like director Kane Parsons is already gathering talent for his horror sequel.
+---------
+
+# 'Avengers: Doomsday' Tease Leaves Marvel Fans Angry
+
+Movie News, Avengers: Doomsday
+
+Tue, 02 Jun 2026 17:49:40 GMT
+
+https://movieweb.com/avengers-doomsday-angers-fans/
+
+The Russo brothers Doctor Doom tease turned out to be for a coffee shop pop-up that has left Marvel fans frustrated.
+---------
+
+# 'Michael' Officially Sets Digital Streaming Release Date
+
+Movie News, Michael
+
+Tue, 02 Jun 2026 17:02:30 GMT
+
+https://movieweb.com/michael-digital-streaming-release-date/
+
+Lionsgate has officially confirmed when Antoine Fuqua's Michael Jackson biopic, 'Michael,' will begin streaming.
+---------
+
+# Christian Bale's "Misjudged" Sci-Fi Action Masterpiece Hits Free Streaming
+
+Movie News, Christian Bale, Equilibrium, Action, Sci-Fi
+
+Tue, 02 Jun 2026 17:00:19 GMT
+
+https://movieweb.com/christian-bale-equilibrium-stream-free-june-2026/
+
+Before 'The Dark Knight' and Oscar victory, Christian Bale overthrew an entire government.
+---------
+
+# Netflix's 3-Part Political Thriller Masterpiece Changed My Mind About the Entire Genre
+
+Features, The Diplomat, Netflix
+
+Tue, 02 Jun 2026 17:00:19 GMT
+
+https://movieweb.com/the-diplomat-netflix-political-thriller-genre/
+
+'The Diplomat' is so good that it almost transcends its political thriller genre label. Read on for more.
+---------
+
+# Shailene Woodley Says 'Big Little Lies' Season 3 "Is Happening" in New Interview
+
+TV News, Big Little Lies, Shailene Woodley
+
+Tue, 02 Jun 2026 16:55:49 GMT
+
+https://movieweb.com/big-little-lies-season-3-shailene-woodley-update/
+
+Shailene Woodley says 'Big Little Lies' Season 3 is "supposedly" happening, the first real update on HBO's Emmy-winning thriller in years.
+---------
+
+# Every New Movie and TV Show Coming to Prime Video in June 2026
+
+Features, Prime Video
+
+Tue, 02 Jun 2026 16:30:19 GMT
+
+https://movieweb.com/prime-vide-new-movie-tv-june-2026/
+
+Here is every new movie and TV show landing on Prime Video in 2026, including classic and new romantic titles.
+---------
+
+# 'Masters of the Universe' Reboot Lands Powerful Rotten Tomatoes Debut
+
+Movie News, Masters of the Universe
+
+Tue, 02 Jun 2026 16:12:55 GMT
+
+https://movieweb.com/masters-of-the-universe-rotten-tomatoes-score/
+
+The 'Masters of the Universe' reboot has landed a powerful Rotten Tomatoes score, as He-Man's big screen return receives praise from critics.
+---------
+
+# How Christopher Nolan Saved Tom Holland's 'Spider-Man: Brand New Day'
+
+Movie News, Spider-Man: Brand New Day, Tom Holland, Christopher Nolan, The Odyssey
+
+Tue, 02 Jun 2026 16:05:31 GMT
+
+https://movieweb.com/christopher-nolan-tom-holland-spider-man-brand-new-day/
+
+'The Odyssey' led to a filming delay for 'Spider-Man: Brand New Day,' but it was for the best.
+---------
+
 # 10 Major The Boys Comic Characters Who Never Appeared In The Show
 
 Classic TV, The Boys
