@@ -1,3 +1,333 @@
+# Pedro Pascal Was Wasted In The Mandalorian And Grogu
+
+Star Wars, The Mandalorian and Grogu
+
+Tue, 02 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/star-wars-mandalorian-grogu-movie-pedro-pascal-wasted/
+
+Pedro Pascal finally shows his face in a Star Wars project, six years after the last time he did so, but it didn't have the same impact in the movie.
+---------
+
+# David Corenswet’s First Movie After Supergirl Gets Near-Perfect Early Reviews
+
+Movies, David Corenswet
+
+Tue, 02 Jun 2026 22:48:27 GMT
+
+https://screenrant.com/mr-irrelevant-david-corenswet-movie-near-perfect-test-screening-scores/
+
+After he reprises the role of Superman in the DCU's Supergirl, David Corenswet's next movie comes out in December, and it has near-perfect reviews.
+---------
+
+# One Of The Best Spy Thrillers Of All Time Was Just Released & It's A Can't-Miss
+
+Gaming, Masked Recs
+
+Tue, 02 Jun 2026 22:33:58 GMT
+
+https://screenrant.com/007-first-light-release-june-2026-must-play/
+
+This new spy thriller with an iconic character has already become one of the genre's best releases of all time, and it is not to be missed.
+---------
+
+# A New Supernatural Finale Is on the Way, and Fans Finally Have a Date
+
+Comics, Supernatural
+
+Tue, 02 Jun 2026 22:30:21 GMT
+
+https://screenrant.com/supernatural-new-series-finale-release-date/
+
+Supernatural fans finally have a date for a brand-new series finale, giving Sam and Dean a fresh ending while leaving room for future adventures.
+---------
+
+# Rue's Fate In Euphoria Officially Sets Up The Summer Of Zendaya
+
+Streaming TV, Masked Recs
+
+Tue, 02 Jun 2026 22:30:21 GMT
+
+https://screenrant.com/zendaya-euphoria-rue-fate-summer-movie-star/
+
+Rue Bennett, the Euphoria character who made Zendaya famous, had a controversial fate, but the backlash could lead to a fantastic summer for the star.
+---------
+
+# David Corenswet's Superman Costume For Man Of Tomorrow Breaks A Man Of Steel Rule
+
+Movies, Superman, Man of Tomorrow
+
+Tue, 02 Jun 2026 22:16:21 GMT
+
+https://screenrant.com/man-of-tomorrow-david-corenswet-costume-breaks-superman-trend/
+
+David Corenswet is already set to return as Superman in two more DC Universe movies, and he's breaking a big Man of Steel costume tradition.
+---------
+
+# PlayStation Plus Officially Confirms 3 New Classic Free Games
+
+Gaming, PlayStation Plus, State of Play
+
+Tue, 02 Jun 2026 22:13:40 GMT
+
+https://screenrant.com/playstation-plus-free-classic-games/
+
+In a sea of brand-new release announcements, Sony announced 3 classic games making their long-awaited return free for PlayStation Plus members.
+---------
+
+# "We're Making Baby Steps": Top Gun 3 Gets Exciting Script Progress As Star Plans To Return
+
+Movies, Top Gun 3
+
+Tue, 02 Jun 2026 22:05:09 GMT
+
+https://screenrant.com/top-gun-3-script-update-jay-ellis/
+
+One of the stars of Top Gun: Maverick has shared an exciting update on where things stand with Top Gun 3, which they expect to appear in.
+---------
+
+# 5 MCU Characters Richer Than Tony Stark, Ranked by Wealth
+
+Movies, Marvel Cinematic Universe
+
+Tue, 02 Jun 2026 23:00:13 GMT
+
+https://www.cbr.com/mcu-characters-richer-than-tony-stark-list/
+
+Tony Stark is one of the richest characters in the Marvel Cinematic Universe, but there are others who own and control even more.
+---------
+
+# Until Dawn 2 Officially Revealed
+
+Games, Until Dawn, PlayStation 5
+
+Tue, 02 Jun 2026 22:55:13 GMT
+
+https://www.cbr.com/until-dawn-2-officially-revealed/
+
+Until Dawn 2 has officially been shown off at Sony's 2026 PlayStation State of Play.
+---------
+
+# Prime Video Officially Confirms Stargate Reboot's Future
+
+TV, Stargate, Prime Video, Sci-Fi
+
+Tue, 02 Jun 2026 22:34:24 GMT
+
+https://www.cbr.com/stargate-reboot-canceled-prime-video/
+
+The Stargate reboot's future has been decided.
+---------
+
+# 10 Anime Final Episodes That Are 10/10, No Notes
+
+Anime, mecha, Neon Genesis Evangelion, Code Geass: Lelouch of the Rebellion
+
+Tue, 02 Jun 2026 22:15:13 GMT
+
+https://www.cbr.com/near-perfect-anime-finales/
+
+Some anime end on terrible notes, but series like Code Geass and Neon Genesis Evangelion prove perfect finales are possible.
+---------
+
+# Brad Pitt's Oscar-Winning Sports Drama Overtakes Keanu Reeves' Panned Comedy for No. 2 on Streaming
+
+Movies, Apple TV, F1, Outcome
+
+Tue, 02 Jun 2026 22:01:14 GMT
+
+https://www.cbr.com/f1-overtakes-outcome-apple-tv-no-2-movie/
+
+Audiences are opting to revisit Brad Pitt's Oscar-winning sports drama on streaming instead of pressing play on Keanu Reeves' new comedy film.
+---------
+
+# The Mandalorian and Grogu Reveals Surprise George Lucas Easter Egg
+
+Movies, The Mandalorian and Grogu, Star Wars, Sci-Fi
+
+Tue, 02 Jun 2026 22:01:14 GMT
+
+https://www.cbr.com/the-mandalorian-and-grogu-embo-secret-george-lucas-easter-egg-sci-fi/
+
+There's a surprise easter egg in The Mandalorian and Grogu that connects back to Star Wars' original creator, George Lucas.
+---------
+
+# Naruto Officially Revives Urashiki in Powerful Otsutsuki God Reveal
+
+Anime, Naruto
+
+Tue, 02 Jun 2026 22:01:14 GMT
+
+https://www.cbr.com/naruto-mobile-urashiki-otsutsuki-revival/
+
+One of the Boruto anime's strongest villains has officially made their unexpected return to the battlefield.
+---------
+
+# New God of War Game Officially Revealed
+
+Games, God of War
+
+Tue, 02 Jun 2026 21:54:13 GMT
+
+https://www.cbr.com/new-god-of-war-game-official-reveal/
+
+A brand-new God of War game starring Kratos' wife Faye was officially revealed at today's State of Play.
+---------
+
+# Why Mandy Patinkin's Jason Gideon Left Criminal Minds
+
+TV, Criminal Minds
+
+Tue, 02 Jun 2026 21:30:13 GMT
+
+https://www.cbr.com/why-jason-gideon-left-criminal-minds/
+
+Mandy Patinkin starred as FBI profiler Jason Gideon on Criminal Minds, but he only appeared in the first three seasons before disappearing.
+---------
+
+# 'Landman' Co-Creator Officially Finds His Next Project
+
+TV News, Landman, Taylor Sheridan, Paramount Plus
+
+Tue, 02 Jun 2026 23:00:49 GMT
+
+https://collider.com/taylor-sheridan-landman-co-creator-christian-wallace-george-washingtons-secret-six-movie-adapatation/
+
+Landman co-creator Christian Wallace will officially make his feature film debut with a new George Washington movie.
+---------
+
+# One of Hulu’s Biggest New Sci-Fi Shows Just Got a Major Multi-Season Update
+
+TV News, The Testaments, Hulu, The Handmaid's Tale, Bruce Miller
+
+Tue, 02 Jun 2026 23:00:13 GMT
+
+https://collider.com/hulu-the-handmaids-tale-sci-fi-spin-off-the-testaments-how-many-seasons-update-bruce-miller/
+
+The Season 1 finale aired on May 27, 2026.
+---------
+
+# One of ‘Supernatural’s Weirdest Bonds Worked Because It Never Became a Romance [Exclusive]
+
+TV News, Supernatural, Jensen Ackles, The CW, Big Lick Comic Con
+
+Tue, 02 Jun 2026 23:00:13 GMT
+
+https://collider.com/supernatural-dean-amara-romance-explained-emily-swallow-jensen-ackles/
+
+Supernatural star Emily Swallow explains how she and Jensen Ackles worked to keep Dean and Amara’s bond unique instead of romantic.
+---------
+
+# The Greatest Movie Franchises of the '80s Officially Unite in New Action Game
+
+Gaming News, Back to the Future, Knight Rider, Gaming, The Fast and the Furious
+
+Tue, 02 Jun 2026 22:57:57 GMT
+
+https://collider.com/stuntman-hollywood-trailer-back-to-the-future-knight-rider-crossover/
+
+Back to the Future, Knight Rider, and more of your favorite movie cars unite in the new trailer for Stuntman: Hollywood.
+---------
+
+# One of the Best Horror Series Ever Made Is Officially Getting a Sequel
+
+Gaming News, Until Dawn, PlayStation 5, Peter Stormare
+
+Tue, 02 Jun 2026 22:56:14 GMT
+
+https://collider.com/until-dawn-2-sequel-confirmed-playstation-5-peter-stormare-returning/
+
+Until Dawn is officially back, with PlayStation officially revealing a brand-new sequel is on the way.
+---------
+
+# 'Breaking Bad' Is a Masterpiece, but This 7-Part Thriller Series Might Be Even Better
+
+TV Features, Breaking Bad, Bryan Cranston, The Shield, Michael Chiklis
+
+Tue, 02 Jun 2026 22:46:14 GMT
+
+https://collider.com/breaking-bad-replacement-series-fx-the-shield/
+
+Breaking Bad may be iconic, but The Shield's groundbreaking antihero and gritty storytelling make a strong case for being the better crime drama.
+---------
+
+# 'Top Gun's Best Replacement Enters the Danger Zone With an Incredible New Trailer
+
+Gaming News, Top Gun, Top Gun: Maverick, Tom Cruise, Paramount
+
+Tue, 02 Jun 2026 22:24:27 GMT
+
+https://collider.com/action-franchise-top-gun-replacement-ace-combat-8-trailer/
+
+Ace Combat, PlayStation's best answer to Top Gun gets a striking new trailer for its eighth installment.
+---------
+
+# Daredevil's Deborah Ann Woll to Lead New 'God of War' Epic
+
+Video Games, Deborah Ann Woll, God of War, PlayStation (Original), Daredevil
+
+Tue, 02 Jun 2026 22:22:45 GMT
+
+https://collider.com/playstation-new-god-of-war-game-fae-spin-off-deborah-ann-woll/
+
+God of War officially returns in a brand-new spin-off starring Daredevil's Deborah Ann Woll.
+---------
+
+# A Real-Life Tragedy During a Ridley Scott Production Changed James Bond Movies Forever
+
+Movie Features, Legend, A View to a Kill, Ridley Scott, James Bond
+
+Tue, 02 Jun 2026 22:21:14 GMT
+
+https://collider.com/legend-ridley-scott-movie-production-fire-pinewood-studios-james-bond-stage/
+
+A fire on the set of an overlooked Ridley Scott fantasy movie ended up directly impacting Roger Moore's final James Bond outing in an unexpected way.
+---------
+
+# Tomb Raider's Biggest Project Since 2018 Gets a New 2027 Release Date
+
+Gaming News
+
+Tue, 02 Jun 2026 22:07:12 GMT
+
+https://collider.com/tomb-raider-legacy-of-atlantis-trailer-delayed-release-date-february-2027/
+
+Amazon's Tomb Raider: Legacy of Atlantis has a new release date and a stunning new trailer. See them both here!
+---------
+
+# Apple TV's 2-Part Sci-Fi Masterpiece Struggles to Keep Up on Streaming
+
+TV News, Severance, Apple TV, Hot on Streaming, Sci-Fi
+
+Tue, 02 Jun 2026 23:00:19 GMT
+
+https://movieweb.com/severance-scifi-streaming-failure-apple-june-2026/
+
+Apple TV's sci-fi masterpiece 'Severance' struggles on the streaming charts before Season 3's release.
+---------
+
+# 'Mindhunter' Star Returns With New Psychological Thriller
+
+Movie News, Holt McCallany
+
+Tue, 02 Jun 2026 22:18:24 GMT
+
+https://movieweb.com/mindhunter-holt-mccallany-thriller-hyde/
+
+The star of the Netflix series has been cast in a role not too dissimilar to his character Bill Tench.
+---------
+
+# Netflix’s Returning 6-Part Thriller Is the Perfect One-Night Binge
+
+Features, Netflix, A Good Girl's Guide to Murder
+
+Tue, 02 Jun 2026 22:01:18 GMT
+
+https://movieweb.com/good-girls-guide-to-murder-netflix-binge/
+
+Netflix has released many thriller TV series in 2026, including 'His & Hers' and 'Run Away,' and Season 2 of a popular series returned in May.
+---------
+
 # Marvel Officially Unveils Our New Green Goblin And Carnage
 
 Gaming, Marvel Tokon: Fighting Souls, Marvel, Triple-A Games, PC
