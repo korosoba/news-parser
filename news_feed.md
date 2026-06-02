@@ -1,3 +1,443 @@
+# Marvel Officially Unveils Our New Green Goblin And Carnage
+
+Gaming, Marvel Tokon: Fighting Souls, Marvel, Triple-A Games, PC
+
+Tue, 02 Jun 2026 21:25:12 GMT
+
+https://screenrant.com/marvel-tokon-fighting-souls-green-goblin-carnage/
+
+Green Goblin and Carnage are two of the most enduring Spider-Man villains, and Marvel just showed of official brand-new looks for each one.
+---------
+
+# Netflix's Top 10 Most Watched 2026 TV Shows
+
+TV, Netflix
+
+Tue, 02 Jun 2026 21:21:21 GMT
+
+https://screenrant.com/netflix-shows-2026-most-watched/
+
+Netflix has an endless stream of new series, and several become major streaming hits. These are the 10 most-watched Netflix TV shows from 2026.
+---------
+
+# It's Officially The End Of An Era For Titus Welliver's Harry Bosch
+
+TV, Masked Recs
+
+Tue, 02 Jun 2026 21:15:20 GMT
+
+https://screenrant.com/its-officially-the-end-of-an-era-for-titus-wellivers-harry-bosch/
+
+For 12 years, Titus Welliver has been the face of Prime Video's most successful crime franchise, but Bosch is about to change completely in 2026.
+---------
+
+# Prime Video's 7-Season Detective Show Is So Good, It Got A Sequel, A Prequel, And A Spinoff
+
+TV, Masked Recs
+
+Tue, 02 Jun 2026 21:10:21 GMT
+
+https://screenrant.com/bosch-universe-amazon-prime-sequel-prequel-spinoff/
+
+A 7-season detective drama on Prime Video became so iconic, the crime drama managed to inspired a 3-season sequel, a prequel, and a 2-season spinoff.
+---------
+
+# HBO’s New 3-Part Cult Series Is Officially A Must-Watch For True Crime Fans
+
+Streaming TV, Masked Recs
+
+Tue, 02 Jun 2026 21:06:21 GMT
+
+https://screenrant.com/hbo-bring-me-the-beauties-model-cult-series-must-watch/
+
+A new 3-part HBO Max series is officially a must-watch for all true crime fans, especially those who can't get enough of "cults gone wrong" stories.
+---------
+
+# Marvel's Wolverine Gameplay Trailer Reveals Surprise Cameo
+
+Gaming, Marvel's Wolverine, State of Play
+
+Tue, 02 Jun 2026 21:04:49 GMT
+
+https://screenrant.com/marvels-wolverine-new-trailer-gameplay-reveal/
+
+Marvel's Wolverine has finally debuted gameplay, showing off bloody fights befitting Logan in Insomniac's latest trailer during June's State of Play.
+---------
+
+# Apple TV's 3-Season Sci-Fi Series Is The Expanse Meets Game Of Thrones
+
+TV, Masked Recs
+
+Tue, 02 Jun 2026 21:01:20 GMT
+
+https://screenrant.com/foundation-show-apple-the-expanse-meets-game-of-thrones/
+
+Apple TV created an acclaimed sci-fi show that seamlessly blends the intricate world-building of Game of Thrones with the space opera of The Expanse.
+---------
+
+# The DCU Just Made A 43-Year-Long Superman Fan Dream Come True With One Image
+
+Movies, Superman, DC Universe
+
+Tue, 02 Jun 2026 21:00:22 GMT
+
+https://screenrant.com/dc-universe-superman-dream-lex-luthor-warsuit-movie/
+
+One major Superman dream that's almost half a century old is now confirmed to be coming true thanks to the DC Universe and its next movies.
+---------
+
+# Prime Video Officially Confirms Sandman's Design For Spider-Man's New Appearance
+
+Streaming TV, Masked Recs
+
+Tue, 02 Jun 2026 20:58:00 GMT
+
+https://screenrant.com/spider-noir-prime-video-spiderman-marvel-sandman-reveal/
+
+Sandman's design for Spider-Man's new appearance looks incredible, with two key variations, and the Marvel villain has a surprising story.
+---------
+
+# PlayStation State Of Play June 2026 Live Updates: All Announcements & New Game Reveals
+
+Gaming, State of Play, PlayStation, Triple-A Games
+
+Tue, 02 Jun 2026 20:49:53 GMT
+
+https://screenrant.com/playstation-state-of-play-june-2026-live-blog/
+
+PlayStation's State of Play returns with another look at upcoming games, and Screen Rant's live coverage is documenting every big reveal.
+---------
+
+# Robert Downey Jr. Reveals Whether Thanos or Doctor Doom Is More Powerful
+
+Movies, SXSW, Avengers: Doomsday
+
+Tue, 02 Jun 2026 21:19:39 GMT
+
+https://www.cbr.com/robert-downey-jr-doctor-doom-thanos-debate-answered/
+
+During a special screening of Avengers: Infinity War, Robert Downey Jr. made one bold claim about Doctor Doom.
+---------
+
+# 5 Early Video Game Deaths That Haunt The Narrative
+
+Games, Video Games, The Last of Us, Far Cry, Cyberpunk 2077
+
+Tue, 02 Jun 2026 21:15:13 GMT
+
+https://www.cbr.com/early-video-game-deaths-that-changed-everything/
+
+These gaming icons died quickly, but were never forgotten.
+---------
+
+# 8 Reasons It's Tough To Watch Michael Bay's Transformers Movies Today
+
+Movies, Transformers
+
+Tue, 02 Jun 2026 21:00:15 GMT
+
+https://www.cbr.com/michael-bay-transformers-tough-to-watch-today-list/
+
+Michael Bay's Transformers movies impacted a generation of fans, but there are more than a few reasons they are hard to revisit.
+---------
+
+# Game of Thrones: Dragonfire Officially Gets Surprise Release Today
+
+Games, Game Of Thrones, House of the Dragon
+
+Tue, 02 Jun 2026 20:55:14 GMT
+
+https://www.cbr.com/game-of-thrones-dragonfire-official-surprise-release-june-2026/
+
+A new Game of Thrones game was unexpectedly released today, boosting the hype for House of the Dragon's third season.
+---------
+
+# Stranger Things Creators’ Stephen King-Approved 8-Part Sci-Fi Officially Netflix’s No. 1 Show
+
+TV, The Boroughs, Netflix, Sci-Fi
+
+Tue, 02 Jun 2026 20:33:55 GMT
+
+https://www.cbr.com/the-boroughs-netflix-most-watched-show/
+
+The Duffer Bros. have given Netflix another big hit.
+---------
+
+# Jack Nicholson's Final TV Appearance Was in This 59-Year-Old Western Show
+
+TV, Western
+
+Tue, 02 Jun 2026 20:31:14 GMT
+
+https://www.cbr.com/jack-nicholson-last-tv-role-guns-of-will-sonnett-forgotten-western/
+
+Jack Nicholson is best known for his film career, but many decades ago, he starred in an underappreciated Western TV show.
+---------
+
+# 10 Most Exciting James Bond Action Scenes of the Daniel Craig Era, Ranked
+
+Movies, James Bond, daniel craig, Action
+
+Tue, 02 Jun 2026 20:31:14 GMT
+
+https://www.cbr.com/best-daniel-craig-james-bond-action-scenes-list/
+
+These action scenes were the most thrilling of them all amongst the Daniel Craig Bond movies.
+---------
+
+# Netflix Orders TV Remake of Al Pacino's Classic '70s Legal Drama
+
+TV, Netflix, ...And Justice for All
+
+Tue, 02 Jun 2026 20:30:46 GMT
+
+https://www.cbr.com/netflix-and-justice-for-all-tv-series/
+
+Netflix will be replacing The Lincoln Lawyer with a reboot of a classic Al Pacino film.
+---------
+
+# Hulu's New 9-Part Friends Replacement Doesn't Impress Critics on Rotten Tomatoes
+
+TV, Friends, Not Suitable for Work, Rotten Tomatoes
+
+Tue, 02 Jun 2026 20:24:38 GMT
+
+https://www.cbr.com/hulu-not-suitable-for-work-rotten-tomatoes-score/
+
+The show will have a more special release pattern, but critics aren't impressed.
+---------
+
+# 5 Anime Heroes Stronger Than Gojo
+
+Anime, Dragon Ball, Black Clover, Bleach, Jujutsu Kaisen
+
+Tue, 02 Jun 2026 20:15:13 GMT
+
+https://www.cbr.com/anime-heroes-stronger-than-gojo/
+
+Gojo is the pinnacle of power in Jujutsu Kaisen, but if these five anime heroes were transported to his world, that title would be heavily contested.
+---------
+
+# Only 5 Sith Are More Powerful Than Darth Maul
+
+Movie, Star Wars, Star Wars: Episode I - The Phantom Menace, Star Wars: Episode V - The Empire Strikes Back, Star Wars: Episode IX - The Rise of Skywalker
+
+Tue, 02 Jun 2026 21:23:13 GMT
+
+https://collider.com/star-wars-sith-lords-powerful-not-darth-maul/
+
+Darth Maul may be great, but in the entire Star Wars galaxy, other Sith Lords, including the iconic Darth Vader and Darth Tyranus, are more powerful.
+---------
+
+# Marvel's Wolverine Reunites With a Fan-Favorite X-Men in New Trailer
+
+Gaming News, Wolverine, Insomniac Games, Marvel, Hugh Jackman
+
+Tue, 02 Jun 2026 21:16:59 GMT
+
+https://collider.com/marvel-wolverine-gameplay-trailer-jean-grey-sabertooth-reveal/
+
+Marvel's Wolverine gets a gorey new look in a jaw-dropping new gameplay trailer that introduces a fan-favorite X-Men.
+---------
+
+# ‘Aliens’ Star Reveals How the US Military Co-Opted James Cameron’s Sci-Fi Tech [Exclusive]
+
+Exclusives, Alien, Aliens, James Cameron, Sci-Fi
+
+Tue, 02 Jun 2026 20:00:14 GMT
+
+https://collider.com/aliens-james-cameron-futuristic-cameras-ricco-ross-jeannette-goldstein-comments/
+
+Aliens stars say James Cameron’s ideas for the sci-fi classic were years ahead of their time, from weapon rigs to tiny cameras.
+---------
+
+# 7 Forgotten Movie Trilogies Where Every Film Is a Masterpiece
+
+Movie, Pusher, Pather Panchali, Desperado, Babel
+
+Tue, 02 Jun 2026 19:44:13 GMT
+
+https://collider.com/forgotten-movie-trilogies-every-film-masterpiece/
+
+The Three Colours Trilogy, The Human Condition Trilogy, and more make up our list of forgotten movie trilogies where every film is a masterpiece.
+---------
+
+# Fred Armisen, Lilly Singh, Andrew Rannells and the Cast of Deli Boys Play Make Me Laugh
+
+TV, Deli Boys
+
+Tue, 02 Jun 2026 19:33:12 GMT
+
+https://collider.com/video/fred-armisen-lilly-singh-andrew-rannells-and-the-cast-of-deli-boys-play-make-me-laugh/
+
+Poorna Jagannathan, Saagar Shaikh and Asif Ali are joined by Deli Boys Season 2's new cast members: Fred Armisen, Lilly Singh, Tan France and Andrew Rannells, to play Make Me Laugh!!These all-star comedians go head to head in a game of meme vs. meme. Inside joke vs. inside joke. Who will come out on top?
+---------
+
+# Prime Video Will Officially Release 'Spider-Man: Brand New Day' 2 Days Early
+
+Movie News, Spider-Man: Brand New Day, Prime Video, Tom Holland, MCU
+
+Tue, 02 Jun 2026 19:31:55 GMT
+
+https://collider.com/tom-holland-spider-man-brand-new-day-early-theater-screenings-prime-video-july-29-2026/
+
+Prime Video subscribers will be able to see Tom Holland's Spider-Man: Brand New Day early. Read on to find out how and when.
+---------
+
+# 10 Greatest Hard Sci-Fi Books of All Time
+
+Movie, Books, Foundation, Science Fiction, Neuromancer
+
+Tue, 02 Jun 2026 19:23:14 GMT
+
+https://collider.com/best-hard-sci-fi-books-all-time-ranked/
+
+From Children of Time to The Three-Body Problem, these books prove that hard sci-fi can be just as affecting and poignant even at its most cerebral.
+---------
+
+# Netflix's 5-Part Historical Drama Is the Perfect Weekend Binge for 'Rivals' Fans
+
+TV Features, Poldark, Aidan Turner, Kyle Soller, PBS
+
+Tue, 02 Jun 2026 19:21:15 GMT
+
+https://collider.com/netflix-aidan-turner-poldark-historical-drama/
+
+Poldark is a historical romance that combines realistic characters with sweeping epic storytelling set in 18th-century Cornwall.
+---------
+
+# Netflix’s Biggest 2026 Sci-Fi Thriller Is Officially Getting a Sequel
+
+Movie News, War Machine
+
+Tue, 02 Jun 2026 19:17:32 GMT
+
+https://collider.com/netflix-alan-ritchson-sci-fi-movie-war-machine-2-sequel-confirmed/
+
+It’s official! A sequel to Alan Ritchson’s War Machine is now in development at Netflix after the 2026 sci-fi movie’s unprecedented success.
+---------
+
+# Netflix Officially Announces the Perfect 'Lincoln Lawyer' Replacement
+
+TV News, ...And Justice for All, Al Pacino, Netflix, The Lincoln Lawyer
+
+Tue, 02 Jun 2026 19:16:42 GMT
+
+https://collider.com/netflix-legal-thriller-remake-series-and-justice-for-all-lincoln-lawyer-replacement-al-pacino/
+
+Following 'The Lincoln Lawyer's shock cancellation, Netflix has announced another legal thriller that is a remake of an all-time classic film.
+---------
+
+# Javier Bardem Was "Inspired" by 'The Simpsons' for New Apple Crime Thriller Remake
+
+TV News, Cape Fear, Javier Bardem, The Simpsons
+
+Tue, 02 Jun 2026 21:24:28 GMT
+
+https://movieweb.com/cape-fear-javier-bardem-the-simpsons/
+
+The actor joked that it was Sideshow Bob who inspired him, before expanding on the long legacy of Max Cady.
+---------
+
+# Here's What I Learned Watching the Entire Game of Thrones Franchise for the First Time in 2026
+
+Features, Game of Thrones, Game Of Thrones, A Knight Of The Seven Kingdoms, House of the Dragon
+
+Tue, 02 Jun 2026 21:01:19 GMT
+
+https://movieweb.com/game-of-thrones-first-time-binge/
+
+Until recently, I'd never seen a single second of 'Game of Thrones.' Now I've seen every episode of the franchise. Read on for more.
+---------
+
+# One of the Best Sci-Fi Action Movies Ever Made Touches Down on Free Streaming
+
+Movie News, The Fifth Element, Pluto TV, Coming/Leaving Streaming, Sci-Fi
+
+Tue, 02 Jun 2026 21:01:19 GMT
+
+https://movieweb.com/the-fifth-element-scifi-streaming-free-pluto-june-2026/
+
+Bruce Willis' 1990s sci-fi action movie 'The Fifth Element' is streaming for free on Pluto TV.
+---------
+
+# Martin Scorsese Officially Embraces Generative A.I. Ahead of Upcoming Production
+
+Movie News, Martin Scorsese
+
+Tue, 02 Jun 2026 20:58:20 GMT
+
+https://movieweb.com/martin-scorsese-generative-ai-production/
+
+The legendary auteur director finds a specific use for A.I.
+---------
+
+# David Corenswet's 'Mr. Irrelevant' Earns Perfect Test Scores Ahead of 2026 Release
+
+Movie News
+
+Tue, 02 Jun 2026 20:48:34 GMT
+
+https://movieweb.com/mr-irrelevant-david-corenswet-perfect-test-screening/
+
+Superman star David Corenswet's new movie, 'Mr. Irrelevant,' earned a perfect round of test scores after recent screenings.
+---------
+
+# Every New Movie and TV Show Coming to Paramount+ in June 2026
+
+Features, Paramount Plus
+
+Tue, 02 Jun 2026 20:30:20 GMT
+
+https://movieweb.com/paramount-new-movie-tv-june-2026/
+
+A new season of The Agency leads an action-packed month on Paramount+ this June 2026.
+---------
+
+# Florence Pugh's Modern Horror Classic 'Midsommar' Finds New Streaming Home
+
+Movie News, Coming/Leaving Streaming, Midsommar
+
+Tue, 02 Jun 2026 20:00:20 GMT
+
+https://movieweb.com/midsommar-streaming-hbo-max-june-2026/
+
+It's also known as the film you shouldn't see if you're planning a summer trip to Sweden.
+---------
+
+# 'The Vampire Lestat' Season 3 Review: AMC's Gothic Vampire Show Goes Wild & Weird
+
+TV Reviews, The Vampire Lestat, Interview with the Vampire, AMC+
+
+Tue, 02 Jun 2026 19:41:25 GMT
+
+https://movieweb.com/interview-with-the-vampire-lestat-review/
+
+Just like its title character, 'The Vampire Lestat' is a lot, for better and worse.
+---------
+
+# Netflix  Officially Confirms Fate of 'War Machine 2' Starring Alan Ritchson
+
+Movie News, War Machine, Alan Ritchson, Netflix
+
+Tue, 02 Jun 2026 19:38:13 GMT
+
+https://movieweb.com/netflix-officially-announces-sequel-to-war-machine/
+
+The action sci-fi blockbuster may have a bigger story to tell on the streaming platform.
+---------
+
+# 'The Simpsons' Writers Address Long-Awaited Reboot of Cult Classic Sitcom 'The Critic'
+
+TV News, The Critic, The Simpsons, Comedy
+
+Tue, 02 Jun 2026 19:29:10 GMT
+
+https://movieweb.com/the-simpsons-the-critic-reboot/
+
+The reboot of the cult classic animated sitcom 'The Critic' has "never been closer to actually happening.”
+---------
+
 # Game Of Thrones’ Peaceful Ending Left Westeros Weaker
 
 Classic TV, Game Of Thrones, Op-Ed
