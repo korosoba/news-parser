@@ -1,3 +1,366 @@
+# Beth & Rip Go On The Attack In New First Look At Dutton Ranch Season 1's Second Half
+
+TV, Yellowstone, Dutton Ranch
+
+Tue, 02 Jun 2026 04:33:37 GMT
+
+https://screenrant.com/dutton-ranch-season-1-sizzle-reel-second-half/
+
+New footage from the upcoming episodes of Dutton Ranch show Beth and Rip on the offense and the secrets of the 10-Petals Ranch being revealed.
+---------
+
+# Who Is Asta's Father In Black Clover? Explained
+
+Anime, Black Clover, Black Clover - Season 1
+
+Tue, 02 Jun 2026 03:45:21 GMT
+
+https://screenrant.com/black-clover-asta-father-identity-theory-anime/
+
+Black Clover manga secretly dropped a new hint about Asta's father in the final arc and everyone missed it.
+---------
+
+# 8 Anime Characters So Strong, They Had To Be Written Out Of The Story
+
+Streaming TV, Masked Recs
+
+Tue, 02 Jun 2026 03:15:29 GMT
+
+https://screenrant.com/anime-characters-op-written-out-of-the-story/
+
+Overpowered anime characters seem fascinating on paper, but they usually have to be written out of the story to main some balance in power scales.
+---------
+
+# Steam's Biggest Game Right Now Is Completely Free
+
+Gaming
+
+Tue, 02 Jun 2026 03:00:22 GMT
+
+https://screenrant.com/steam-june-2026-trending-free-game/
+
+At the time of writing, the number one trending game on Steam is also completely free to own.
+---------
+
+# David Corenswet's Superman Return Revealed In Man Of Tomorrow Set Photos & Video
+
+Movies, Man of Tomorrow, Superman, DC Universe
+
+Tue, 02 Jun 2026 02:36:28 GMT
+
+https://screenrant.com/man-of-tomorrow-david-corenswet-superman-return-set-photos-video/
+
+The first look at David Corenswet's Superman return in James Gunn's Man of Tomorrow has finally been revealed through DC Universe set photos.
+---------
+
+# Arcane's Teased Replacement Would Make Netflix's Fantasy Series Look Tame
+
+Streaming TV, Arcane, League of Legends
+
+Tue, 02 Jun 2026 02:30:21 GMT
+
+https://screenrant.com/arcane-noxus-replacement-netflix-fantasy-show-look-tame/
+
+The next League of Legends show after Netflix's Arcane will likely take place in Noxus, and that setting could make it a truly brutal fantasy show.
+---------
+
+# From Season 4: The Real Reason For Donna’s Near-Death Experience Addressed By Star
+
+TV, From, FROM - Season 4
+
+Tue, 02 Jun 2026 02:27:50 GMT
+
+https://screenrant.com/from-season-4-episode-6-donna-heart-attack-elizabeth-saunders-explained/
+
+EXCLUSIVE: After Donna nearly died in From season 4, episode 6, actor Elizabeth Saunders digs into the real reason behind this near-death experience.
+---------
+
+# The Boys Has Already Teased Homelander's Successor After Season 5
+
+TV, The Boys
+
+Tue, 02 Jun 2026 02:00:32 GMT
+
+https://screenrant.com/the-boys-homelander-successor-after-ending/
+
+The Boys has already teased who Homelander's successor will be after season 5, and it's a familiar face with plenty of history tied to Vought.
+---------
+
+# NBC’s Medical Drama Brilliant Minds Deserved So Much Better
+
+Network TV, Brilliant Minds
+
+Tue, 02 Jun 2026 01:30:20 GMT
+
+https://screenrant.com/brilliant-minds-nbc-cancel-after-season-2-deserved-better/
+
+Brilliant Minds was cancelled after two seasons despite solid reviews from fans and critics alike, and Zachary Quinto's series deserved to last.
+---------
+
+# 33 Years Later, The Sandlot Cast Officially Reunites In New TV Show
+
+Movies, The Sandlot
+
+Tue, 02 Jun 2026 01:24:19 GMT
+
+https://screenrant.com/the-sandlot-cast-reunion-little-league-dads-show/
+
+After rumors of a Disney+ sequel series for The Sandlot, a reunion between the cast members is officially underway in a different show.
+---------
+
+# 10 Jujutsu Kaisen Fights That Felt More Like Horror Than Shonen
+
+Anime, Jujutsu Kaisen, shonen anime
+
+Tue, 02 Jun 2026 03:45:13 GMT
+
+https://www.cbr.com/jjk-fights-more-like-horror-than-shonen/
+
+Jujutsu Kaisen battles pull no punches, often reaching limits more horrific than some horror movies.
+---------
+
+# Patrick Stewart's Favorite Star Trek Episode Deserves to Be Called a Sci-Fi Masterpiece
+
+TV, Star Trek, Star Trek: The Next Generation
+
+Tue, 02 Jun 2026 03:30:13 GMT
+
+https://www.cbr.com/patrick-stewart-favorite-star-trek-tng-episode-inner-light/
+
+Patrick Stewart has named his favorite Star Trek episode, and it is worthy of the actor's praise.
+---------
+
+# 10 Most Perfect A24 Movies of the 2020s, Ranked
+
+Movies, A24, Minari, Civil War
+
+Tue, 02 Jun 2026 03:15:23 GMT
+
+https://www.cbr.com/best-a24-movies-2020s-ranked-list/
+
+A24 has been ruling the 2020s with remarkable movies like Civil War, Past Lives, Talk to Me and more.
+---------
+
+# 10 Best Valheim Mods for an Enhanced Experience
+
+Games, Gaming, Valheim, Video Games
+
+Tue, 02 Jun 2026 03:15:23 GMT
+
+https://www.cbr.com/best-valheim-game-mods/
+
+These fan made mods offer the best features and new content to enhance the overall Valheim experience.
+---------
+
+# Jensen Ackles’ Tracker Return Quietly Abandons CBS' Best Season 4 Setup
+
+TV, Tracker, CBS, Jensen Ackles
+
+Tue, 02 Jun 2026 02:51:25 GMT
+
+https://www.cbr.com/tracker-season-3-finale-jensen-ackles-russell-shaw-return-season-4/
+
+Jensen Ackles's return as Russell Shaw in the finale of Tracker Season 3 ushers in unfortunate developments for Season 4 of Justin Hartley's CBS show.
+---------
+
+# 10 Flawless Anime With Near-Perfect Rotten Tomatoes Scores
+
+Anime, FLCL, Vinland Saga
+
+Tue, 02 Jun 2026 02:46:14 GMT
+
+https://www.cbr.com/anime-near-perfect-rotten-tomatoes-score/
+
+It's not easy for an anime to universally connect with critics, but series like FLCL and Paranoia Agent reflect flawless Rotten Tomatoes scores.
+---------
+
+# 10 Must-Watch Thriller Movies Better Than Sydney Sweeney's The Housemaid
+
+Movies, Thriller, The Housemaid
+
+Tue, 02 Jun 2026 02:46:14 GMT
+
+https://www.cbr.com/thriller-movies-better-than-sydney-sweeney-the-housemaid-list/
+
+Sydney Sweeney's The Housemaid is definitely a fun ride, but these 10 masterclass thrillers are just as suspenseful and are all quality watch options.
+---------
+
+# 5 Best Anime For Clair Obscur: Expedition 33 Fans
+
+Anime, Attack on Titan, Puella Magi Madoka Magica, Frieren: Beyond Journey's End, Gaming, Video Games
+
+Tue, 02 Jun 2026 02:15:14 GMT
+
+https://www.cbr.com/best-anime-clair-obscur-fans/
+
+Fans of the Clair Obscur: Expedition 33 game that are looking for an anime that brings the same level of value will find it with these five titles.
+---------
+
+# Jujutsu Kaisen Director Reveals Stunning First Look at Hatsune Miku’s Official New Design
+
+Anime, Jujutsu Kaisen, Hatsune Miku
+
+Tue, 02 Jun 2026 02:00:24 GMT
+
+https://www.cbr.com/jujutsu-kaisen-director-hatsune-miku-official-new-design/
+
+Yuki Kamiya, director of JJK Season 2 opening, produces a Hatsune Miku music video that's surprisingly soft and elegant.
+---------
+
+# 5 Pokémon Clones You've Probably Never Heard Of
+
+Games, Pokemon, Nintendo, Square Enix, Gaming, Video Games
+
+Tue, 02 Jun 2026 01:45:14 GMT
+
+https://www.cbr.com/obscure-pokemon-clone-games/
+
+Even in the immediate aftermath of the original Pokémon games, other developers were quick to borrow from them.
+---------
+
+# 9 Greatest Sci-Fi Shows With Parallel Universes
+
+TV, Sci-Fi, Rick and Morty, Loki, Counterpart
+
+Tue, 02 Jun 2026 04:19:13 GMT
+
+https://collider.com/best-sci-fi-shows-parallel-universes-ranked/
+
+Rick and Morty, Loki, Dark Matter, and The Man in the High Castle are incredible sci-fi shows that feature parallel universes, but which is the best?
+---------
+
+# 7 Upcoming Thriller Movies, Ranked by Anticipation
+
+Movie, Thriller, Verity, The Dog Stars, How to Rob a Bank
+
+Tue, 02 Jun 2026 04:05:13 GMT
+
+https://collider.com/upcoming-thriller-movies-ranked-anticipation/
+
+From Verity to The Dog Stars, these upcoming thrillers are generating massive anticipation with mystery, danger, and intrigue.
+---------
+
+# Disney+'s 9-Part Fantasy Series Is the Perfect Binge Before 'VisionQuest' Arrives This Year
+
+TV Features, Agatha All Along, Disney+, Sci-Fi, Kathryn Hahn
+
+Tue, 02 Jun 2026 03:16:16 GMT
+
+https://collider.com/agatha-all-along-mcu-fantasy-series-before-visionquest/
+
+Before VisionQuest's new series, it's time to go back and revisit one of the MCU's favorite witches by bingeing Agatha All Along.
+---------
+
+# Only 3 Movies Realistically Capture the Horrors of War
+
+Movie, War, All Quiet on the Western Front, Saving Private Ryan, Come And See
+
+Tue, 02 Jun 2026 03:11:15 GMT
+
+https://collider.com/war-movies-realistically-capture-horrors/
+
+Only a few movies truly commit to portraying the hell of war in all its brutality, including masterpieces like Saving Private Ryan and Come and See.
+---------
+
+# Alan Ritchson’s ‘Reacher’ Just Hit a Rare Streaming Setback on Prime Video
+
+TV News, Reacher, Jack Reacher, Alan Ritchson, Prime Video
+
+Tue, 02 Jun 2026 02:15:14 GMT
+
+https://collider.com/reacher-season-4-prime-video-streaming-charts-setback-june-2026/
+
+Reacher has suffered a streaming setback ahead of Season 4, as Alan Ritchson’s action series drops out of Prime Video’s Top 10.
+---------
+
+# One of Studio Ghibli’s Most Beloved Stories Is Officially Getting a Sequel
+
+Movie News, Kiki's Delivery Service, Studio Ghibli, Fantasy, Anime
+
+Tue, 02 Jun 2026 02:00:24 GMT
+
+https://collider.com/kikis-delivery-service-sequel-book-kiki-and-the-new-magic-studio-ghibli-fantasy/
+
+Kiki's story continues in Eiko Kadono's Kiki and the New Magic, a new sequel to Kiki's Delivery Service, releasing this year.
+---------
+
+# 'Daredevil: Born Again's Latest Update Could Finally Redeem This Divisive MCU Hero
+
+TV Features, Daredevil: Born Again, The Defenders, Iron Fist, Disney+
+
+Tue, 02 Jun 2026 01:47:14 GMT
+
+https://collider.com/daredevil-born-again-season-3-iron-fist-redemption-comics-storyline/
+
+New set photos confirm that Finn Jones is returning for Daredevil: Born Again Season 3, and this could give Iron Fist the perfect storyline.
+---------
+
+# Tom Selleck Returns to TV in First Role Since ‘Blue Bloods’
+
+TV News, Blue Bloods, Boston Blue, History, Tom Selleck
+
+Tue, 02 Jun 2026 01:45:14 GMT
+
+https://collider.com/blue-bloods-tom-selleck-tv-return-history-channel-series-crime-and-justice/
+
+Tom Selleck makes a grand return to television since Blue Bloods, hosting a 10-episode documentary series on the History Channel. Here's all to know.
+---------
+
+# 10 Action Movies That Deserve to Be in the Criterion Collection, Ranked
+
+Movie, First Blood, Terminator 2: Judgment Day, Heat, Logan
+
+Tue, 02 Jun 2026 01:38:13 GMT
+
+https://collider.com/best-action-movies-deserve-to-be-in-criterion-collection/
+
+Great action movies like First Blood, Terminator 2: Judgment Day, and Die Hard are revered enough to warrant a place in the Criterion Collection.
+---------
+
+# James Gunn Debunks Highly-Anticipated DCU Movie Rumor
+
+Movie News, James Gunn, DCU, Sam Levinson, Teen Titans
+
+Tue, 02 Jun 2026 01:30:13 GMT
+
+https://collider.com/james-gunn-teen-titans-dcu-movie-director-rumor-sam-levinson/
+
+DC Studios co-CEO James Gunn debunks rumors that a Teen Titans movie is in development with Sam Levinson directing and Ana Nogueira writing.
+---------
+
+# 'Euphoria' Concludes Third and Final Season With the Death of Zendaya's Rue
+
+TV News, Euphoria, Sam Levinson, Zendaya Coleman
+
+Tue, 02 Jun 2026 02:30:28 GMT
+
+https://movieweb.com/euphoria-season-3-finale-rue-death/
+
+Rue Bennett, the central character in HBO's hit series, 'Euphoria,' met a tragic and dramatic end in the show's final episode.
+---------
+
+# 8 Underrated TV Crime Thrillers That Are Even Better Than ‘True Detective’
+
+TV Lists, True Detective
+
+Tue, 02 Jun 2026 02:00:30 GMT
+
+https://movieweb.com/tv-crime-thrillers-better-true-detective/
+
+'True Detective' is a popular HBO anthology series with six seasons so far, but these other crime thrillers are even better.
+---------
+
+# Netflix Reunites With Anna Kendrick for Scandalous New Book Adaptation
+
+Movie News, The Seven Husbands of Evelyn Hugo, Anna Kendrick
+
+Tue, 02 Jun 2026 00:27:55 GMT
+
+https://movieweb.com/anna-kendrick-seven-husbands-evelyn-hugo-netflix/
+
+Kendrick previously delivered the streamer the acclaimed thriller 'Woman of the Hour.'
+---------
+
 # 10 Best New Movies Coming To Hulu In June 2026
 
 Movies, Film Noir
