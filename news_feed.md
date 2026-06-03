@@ -1,3 +1,443 @@
+# Reacher Season 4 Will Make All Previous Seasons Look Tame
+
+Streaming TV, Reacher
+
+Wed, 03 Jun 2026 20:31:22 GMT
+
+https://screenrant.com/reacher-season-4-past-episodes-look-tame/
+
+Prime Video's Reacher season 4 sees Alan Ritchson's hero face his darkest challenge yet thanks to the source novel's grim and unsettling journey.
+---------
+
+# 10 Movies To Watch If You Cannot Wait For Scary Movie 6
+
+Movies, National Lampoon's Loaded Weapon 1, Zombieland, White Chicks, Not Another Teen Movie, Hot Shots! Part Deux, Tucker & Dale vs. Evil, Scream, Don't Be a Menace to South Central While Drinking Your Juice in the Hood, Airplane!, A Haunted House
+
+Wed, 03 Jun 2026 20:30:20 GMT
+
+https://screenrant.com/movies-like-scary-movie-6/
+
+Few parody comedies are as laugh-out-loud funny as the Scary Movie series, but some classics in the genre are absolutely worth a watch.
+---------
+
+# Tulsa King Season 5's Biggest Series Change Yet Could Make Sylvester Stallone's Show Unrecognizable
+
+Streaming TV, Tulsa King, Sylvester Stallone
+
+Wed, 03 Jun 2026 20:15:21 GMT
+
+https://screenrant.com/tulsa-king-season-5-new-york-relocation-change-show/
+
+Tulsa King season 5 is set to relocate production to New York, which indicates Dwight will also return to the Big Apple, changing the show entirely.
+---------
+
+# MCU's X-Men Movie Director Finally Addresses Multiple Casting Reports
+
+Movies, Marvel's X-Men, X-Men, Marvel Cinematic Universe
+
+Wed, 03 Jun 2026 20:14:54 GMT
+
+https://screenrant.com/xmen-movie-marvel-casting-reports-jake-schreier-response/
+
+After several Marvel Cinematic Universe casting reports for the X-Men reboot, director Jake Schreier finally sets the record straight on the rumors.
+---------
+
+# Masters of the Universe Finally Breaks He-Man’s Live-Action Curse | REVIEW
+
+Movies, Originals
+
+Wed, 03 Jun 2026 20:06:23 GMT
+
+https://screenrant.com/video/masters-of-the-universe-finally-breaks-he-man-s-live-action-curse-review/
+
+Discover why Masters of the Universe finally ends He-Man’s live-action losing streak with a faithful adaptation, standout performances, epic Eternia world-building, and the strongest big-screen take on the iconic hero yet.
+---------
+
+# Taylor Sheridan's New 9-Part Yellowstone Spinoff Has 1 "Looming Presence," Details Dutton Ranch Star
+
+TV, Dutton Ranch, Dutton Ranch - Season 1, Yellowstone, Marc Menchaca, Paramount Plus
+
+Wed, 03 Jun 2026 20:00:22 GMT
+
+https://screenrant.com/dutton-ranch-yellowstone-zachariah-looming-presence-azul-father-marc-menchaca/
+
+Dutton Ranch star Marc Menchaca details the "looming presence" over his character in the new Yellowstone spinoff and the show's reception.
+---------
+
+# Resident Evil 10 Setting Tease Has Gamers Seriously Excited
+
+Gaming, Resident Evil, Triple-A Games
+
+Wed, 03 Jun 2026 20:00:22 GMT
+
+https://screenrant.com/resident-evil-10-japan-tease-gamers-react/
+
+The Resident Evil franchise has taken fans all across the world to hunt down biohazards, but an official tease has gamers seriously pumped.
+---------
+
+# Bloodborne 60fps Remaster Is Everything We Ever Wanted
+
+Gaming, Bloodborne
+
+Wed, 03 Jun 2026 20:00:22 GMT
+
+https://screenrant.com/bloodborne-60fps-unofficial-remaster-pc-dreams/
+
+Discover how Bloodborne fans are enjoying the game like never before with 60fps emulation and graphical mods on PC.
+---------
+
+# Tracker's Replacement 13-Part Action Series With Jensen Ackles Is The Perfect Weekend Binge
+
+TV, Masked Recs
+
+Wed, 03 Jun 2026 19:56:22 GMT
+
+https://screenrant.com/countdown-prime-video-action-series-tracker-replacement-must-watch/
+
+Tracker's replacement is here, as fans of the Justin Hartley show might want to watch Russell Shaw actor Jensen Ackles in this 13-part action series.
+---------
+
+# Michael Jackson Biopic Is Now One Of History's Highest-Grossing Movies
+
+Movies, Box Office, Michael
+
+Wed, 03 Jun 2026 19:37:47 GMT
+
+https://screenrant.com/michael-2026-box-office-top-100-global-movies-chart/
+
+The Michael Jackson biopic, which stars the King of Pop's nephew, lands on a huge all-time box office chart midway through its sixth week in theaters.
+---------
+
+# Forget Firefly, Morena Baccarin's 2-Part Sci-Fi Remake Is an Undisputed Masterpiece
+
+TV, V, Sci-Fi, morena baccarin
+
+Wed, 03 Jun 2026 20:30:13 GMT
+
+https://www.cbr.com/firefly-morena-baccarin-v-sci-fi-remake-masterpiece/
+
+Morena Baccarin's 2009 remake offers a clever twist on the alien invasion trope and deserves more recognition than her previous cult classic, Firefly.
+---------
+
+# 5 Flawless MCU Movies Even Better than Avengers: Endgame
+
+Movies, Marvel Cinematic Universe
+
+Wed, 03 Jun 2026 20:30:13 GMT
+
+https://www.cbr.com/perfect-mcu-movies-better-than-avengers-endgame-list/
+
+While Avengers: Endgame is often seen as the best the MCU can offer, there are some perfect films that are even better.
+---------
+
+# 10 Dark Shonen Anime That Broke Shonen's Biggest Rules
+
+Anime, Chainsaw Man, Fullmetal Alchemist: Brotherhood, The Promised Neverland, Jujutsu Kaisen
+
+Wed, 03 Jun 2026 20:15:14 GMT
+
+https://www.cbr.com/dark-shonen-anime-broke-all-the-rules/
+
+These dark shonen series had to break the rules of the genre to set themselves apart as deep, devastating, and complex.
+---------
+
+# Kagurabachi Finally Gets Its Official Anime Reveal With Stunning New First Look
+
+Anime, Kagurabachi
+
+Wed, 03 Jun 2026 20:01:14 GMT
+
+https://www.cbr.com/kagurabachi-anime-reveal-world-tour-dates/
+
+Fans worldwide are invited to witness the dawn of a new era as the first stroke of the epic Kagurabachi saga.
+---------
+
+# Avengers: Doomsday's Latest Update Is Officially Bad News For Marvel Fans
+
+Movies, Avengers: Doomsday
+
+Wed, 03 Jun 2026 20:01:14 GMT
+
+https://www.cbr.com/avengers-doomsdays-mcu-reboot-bad-news-superhero-sci-fi/
+
+Joe and Anthony Russo just gave a massive update on Avengers: Doomsday, but MCU fans won't be happy about it.
+---------
+
+# DC Comics Reveals First Look At Absolute Catwoman
+
+Comics, Absolute Universe, Catwoman
+
+Wed, 03 Jun 2026 20:01:14 GMT
+
+https://www.cbr.com/dc-comics-absolute-catwoman-trailer-release-date-confirmed/
+
+Just when it seemed like Absolute Catwoman's upcoming debut could not be more exciting...
+---------
+
+# Battlestar Galactica's Darkest Story Is Still 1 of Sci-Fi's Best, 22 Years Later
+
+TV, Battlestar Galactica, Sci-Fi
+
+Wed, 03 Jun 2026 19:00:14 GMT
+
+https://www.cbr.com/battlestar-galactica-darkest-story-saul-tigh-ellen-death/
+
+No matter how much time has passed, Battlestar Galactica is still the gold standard of sci-fi storytelling.
+---------
+
+# 10 Greatest Outlaw Westerns of All Time, Ranked
+
+Movies, Western, Unforgiven, The Good, the Bad and the Ugly
+
+Wed, 03 Jun 2026 19:00:14 GMT
+
+https://www.cbr.com/greatest-western-outlaws-list/
+
+Outlaws have been the backbone of the Western genre since Hollywood's golden age, and these stories stand out as enduring proof of their appeal.
+---------
+
+# 10 Near-Perfect Anime With Next-Level Storytelling
+
+Anime, shonen anime, seinen, Attack On Titan, Mushi-Shi, Steins;Gate, Cowboy Bebop
+
+Wed, 03 Jun 2026 18:45:13 GMT
+
+https://www.cbr.com/near-perfect-anime-next-level-storytelling/
+
+Anime that achieve next-level storytelling insure that every scene exists for a reason, every character choice has a cost and nothing feels wasted.
+---------
+
+# Paramount+ Shakes Up Sylvester Stallone’s Crime Drama With Big Season 5 Change
+
+TV, Tulsa King
+
+Wed, 03 Jun 2026 18:44:22 GMT
+
+https://www.cbr.com/paramount-sylvester-stallone-tulsa-king-season-5-location-change/
+
+The Taylor Sheridan-created gritty crime series has experienced multiple recent shakeups.
+---------
+
+# The Biggest Fantasy Series of 2026 Officially Returns This Month
+
+TV News, House of the Dragon, Game Of Thrones, A Knight Of The Seven Kingdoms, HBO Max
+
+Wed, 03 Jun 2026 20:30:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-release-date-june-21-how-to-watch/
+
+The biggest fantasy project of 2026, House of the Dragon, officially returns this month with a new season.
+---------
+
+# 21st-Century Thriller Movies That Are 10/10, No Notes
+
+Movie, Parasite, Gone Girl, Thriller, Oldboy
+
+Wed, 03 Jun 2026 20:28:14 GMT
+
+https://collider.com/best-21st-century-thriller-movies/
+
+Nightcrawler, Oldboy, Anatomy of a Fall, Uncut Gems, Gone Girl, and more make up our list of 21st-century thriller movies that are 10/10, no notes.
+---------
+
+# Netflix's Nasty 2-Part Quick Binge Series Is One of Its Most Divisive Shows
+
+TV Features, Netflix, Bad Thoughts, Comedy, Tom Segura: Sledgehammer
+
+Wed, 03 Jun 2026 20:07:15 GMT
+
+https://collider.com/netflix-most-controversial-series-bad-thoughts/
+
+Comedian Tom Segura released his most twisted dark comedy project to date in Netflix’s Bad Thoughts.
+---------
+
+# 10 Best Modern Shōnen Manga
+
+TV, Manga, Dr. Stone, Delicious in Dungeon, Dandadan
+
+Wed, 03 Jun 2026 20:05:14 GMT
+
+https://collider.com/best-shonen-manga-modern-ranked/
+
+From Delicious in Dungeon to Frieren: Beyond Journey's End, these are the best shōnen manga series that have come out in the last fifteen years or so.
+---------
+
+# 'Landman' May Finally Do What 'Yellowstone' Never Could for Taylor Sheridan
+
+TV News, Taylor Sheridan, Landman, Billy Bob Thornton, Emmy Awards
+
+Wed, 03 Jun 2026 20:00:15 GMT
+
+https://collider.com/landman-season-2-taylor-sheridan-emmys-awards-chances-billy-bob-thornton/
+
+Taylor Sheridan’s Landman Season 2 could finally break through at the Emmys after years of awards snubs for his biggest shows.
+---------
+
+# 'The Mandalorian and Grogu' Officially Evades a Brutal Marvel Box Office Record
+
+Movie News, The Mandalorian and Grogu, The Marvels, The Mandalorian, Star Wars
+
+Wed, 03 Jun 2026 19:30:14 GMT
+
+https://collider.com/the-mandalorian-and-grogu-box-office-overtakes-the-marvels-139-million-domestic/
+
+Despite underperforming compared to other Star Wars films, The Mandalorian and Grogu has managed to earn more than Marvel's lowest-grossing movie.
+---------
+
+# 6 Adventure Movies That Are Impossible To Hate
+
+Movie, Adventure, Raiders of the Lost Ark, The Mummy, The Princess Bride
+
+Wed, 03 Jun 2026 19:19:14 GMT
+
+https://collider.com/adventure-movies-impossible-to-hate/
+
+Adventure movies like The Mummy and Raiders of the Lost Ark embody the genre's escapist nature so perfectly that they become near-impossible to hate.
+---------
+
+# DCU Officially Reveals David Corenswet's New Look in Next Superman Movie
+
+Movie News, Superman, Supergirl, David Corenswet, James Gunn
+
+Wed, 03 Jun 2026 19:00:14 GMT
+
+https://collider.com/man-of-tomorrow-set-photos-superman-sequel-costume-david-corenswet/
+
+New Man of Tomorrow set photos reveal David Corenswet back as Superman, with his sequel costume looking very familiar.
+---------
+
+# One of 'Aliens' Best Lines Was Improvised [Exclusive]
+
+Exclusives, Aliens, James Cameron, Sci-Fi, Big Lick Comic Con
+
+Wed, 03 Jun 2026 19:00:14 GMT
+
+https://collider.com/aliens-james-cameron-improv-ad-lib-script-ricco-ross-best-quotes-comments/
+
+Aliens star Ricco Ross reveals James Cameron allowed some improv on set, but only kept it if the moment actually worked.
+---------
+
+# David Harbour’s 7-Part Crime Thriller Miniseries Becomes an Instant Global Streaming Hit
+
+TV News, DTF St. Louis, HBO Max, David Harbour, Jason Bateman
+
+Wed, 03 Jun 2026 18:30:15 GMT
+
+https://collider.com/dtf-st-louis-hbo-max-david-harbour-gotham-tv-awards-win-streaming-success-june-2026/
+
+David Harbour’s acclaimed HBO crime series DTF St. Louis is climbing HBO Max streaming charts after wrapping its seven-episode run.
+---------
+
+# Every Must-See TV Show Streaming in June 2026
+
+Features, Streaming
+
+Wed, 03 Jun 2026 20:30:19 GMT
+
+https://movieweb.com/tv-streaming-june-2026/
+
+Here is every TV show coming in June, including 'The Bear' on Hulu and "House of the Dragon' on HBO Max.
+---------
+
+# Arnold Schwarzenegger & Liam Hemsworth Team Up for New Prime Video Movie 'The Kellys'
+
+Movie News, Arnold Schwarzenegger, Liam Hemsworth, Prime Video
+
+Wed, 03 Jun 2026 20:14:53 GMT
+
+https://movieweb.com/the-kellys-arnold-schwarzenegger-liam-hemsworth-prime-video/
+
+A new Prime Video movie titled 'The Kellys' was announced for development, which will star Arnold Schwarzenegger and Liam Hemsworth.
+---------
+
+# Crunchyroll's New #1 Fantasy Epic Is Saving the Dead Genre
+
+TV News, Witch Hat Atelier, Crunchyroll, Hot on Streaming, Fantasy
+
+Wed, 03 Jun 2026 19:01:19 GMT
+
+https://movieweb.com/witch-hat-atelier-trending-on-crunchyroll/
+
+Crunchyroll's new 10/10 fantasy anime, 'Witch Hat Atelier,' is saving the fantasy genre after 'The Rings of Power' and 'The Witcher's failure.
+---------
+
+# 'F1' Star Breaks Silence on Speculation About Returning for Action Sequel
+
+Movie News, F1, Javier Bardem
+
+Wed, 03 Jun 2026 18:48:32 GMT
+
+https://movieweb.com/f1-sequel-javier-bardem-reaction/
+
+Javier Bardem admits he's just as in the dark about the next chapter, but hopes to hop behind the wheel.
+---------
+
+# Netflix Remaking Al Pacino Crime Classic to Replace 'The Lincoln Lawyer'
+
+TV News, ...And Justice for All, Al Pacino, Netflix
+
+Wed, 03 Jun 2026 18:45:12 GMT
+
+https://movieweb.com/and-justice-for-all-series-adaptation-netflix/
+
+A series adaptation of Al Pacino's classic '70s crime thriller 'And Justice for All' is in development at Netflix.
+---------
+
+# Every Must-See Movie Streaming in June 2026
+
+Features, Streaming
+
+Wed, 03 Jun 2026 18:30:20 GMT
+
+https://movieweb.com/movies-streaming-june-2026/
+
+Here are all the movies coming to streaming platforms like Prime Video, Netflix, and Disney+ in June.
+---------
+
+# Amazon's Long-Awaited Epic Fantasy Series Just Launched a Divisive Spin-off Option Ahead of Its Release
+
+Features, God of War, Prime Video
+
+Wed, 03 Jun 2026 18:20:20 GMT
+
+https://movieweb.com/god-of-war-amazon-spin-off-option/
+
+'God of War' is edging closer to its live-action debut, but a potential new spin-off show has made unfortunate waves. Read on for more.
+---------
+
+# Apple TV's Remake of a Classic Martin Scorsese Thriller Releases This Week
+
+Features, Cape Fear, Apple TV, Upcoming Tease
+
+Wed, 03 Jun 2026 18:01:21 GMT
+
+https://movieweb.com/cape-fear-apple-tv-remake-upcoming/
+
+Apple TV's remake of an underrated 1991 thriller movie is releasing soon, and it has an all-star cast.
+---------
+
+# Zack Snyder's Favorite Movie Is One of Liam Neeson's First
+
+Features, Zack Snyder, Liam Neeson
+
+Wed, 03 Jun 2026 18:01:21 GMT
+
+https://movieweb.com/excalibur-snyder-favorite-movie-liam-neeson-fantasy/
+
+Snyder has repeatedly praised this film, which helped launch several actors' careers, including Liam Neeson's.
+---------
+
+# Taylor Sheridan's 'Tulsa King' Making Big Changes as Season 5 Writers' Room Is Formed
+
+TV News, Tulsa King, Sylvester Stallone, Taylor Sheridan
+
+Wed, 03 Jun 2026 17:51:28 GMT
+
+https://movieweb.com/tulsa-king-new-york-season-5/
+
+The Sylvester Stallone-led crime drama from Taylor Sheridan is moving cities as a new report claims Season 5 is already in the works.
+---------
+
 # Brendan Fraser Reveals His Reaction To The Mummy 4 Script
 
 Movies, The Mummy, The Mummy 4
