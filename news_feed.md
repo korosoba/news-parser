@@ -1,3 +1,377 @@
+# John Wick Writer & Production Company Hit With $10M Lawsuit
+
+Movies, John Wick
+
+Wed, 03 Jun 2026 02:00:36 GMT
+
+https://screenrant.com/john-wick-thunder-road-lionsgate-copyright-infringement-lawsuit/
+
+A lawsuit has been filed against John Wick writer Derek Kolstad, Lionsgate, and Thunder Road Pictures concerning accusations of plagarism.
+---------
+
+# Halo Finally Returns With An Unexpected Prequel
+
+Gaming, Halo, Triple-A Games
+
+Wed, 03 Jun 2026 02:00:33 GMT
+
+https://screenrant.com/halo-fireteam-raven-pc-port-unofficial-prequel/
+
+Although the Halo series is bound to continue at some point, the only thing on the horizon is Campaign Evolved, and this unexpected prequel.
+---------
+
+# West Wilson & Amanda Batula Reach New Lows In Part 2 Of Summer House Season 10's Reunion
+
+Reality TV, Summer House
+
+Wed, 03 Jun 2026 01:48:23 GMT
+
+https://screenrant.com/summer-house-season-10-reunion-part-2-west-wilson-amanda-batula-new-low/
+
+In part 2 of Summer House season 10's reunion, Amanda Batula and West Wilson face harsh criticism from their castmates over their secretive romance.
+---------
+
+# Underrated Adventure TV Show With 78% RT Score Helped Make Star Wars What It Is Today
+
+Streaming TV, Fan Expo, Masked Recs
+
+Wed, 03 Jun 2026 01:45:22 GMT
+
+https://screenrant.com/the-young-indiana-jones-chronicles-star-wars-prequels-connection/
+
+At Denver Fan Expo 2026, actor Matthew Wood revealed the underrated early 90s TV show that helped make Star Wars the sprawling franchise it is today.
+---------
+
+# Peter Krause Breaks Silence After Controversial 9-1-1 Exit For TV Comeback
+
+Network TV, 9-1-1
+
+Wed, 03 Jun 2026 01:34:45 GMT
+
+https://screenrant.com/peter-krause-line-of-fire-explain-tv-comeback/
+
+More than a year after Bobby Nash's controversial death that truly rocked Ryan Murphy's 9-1-1, Peter Krause is gearing up for his TV comeback.
+---------
+
+# All 11 Walking Dead Actors In Invincible
+
+Streaming TV, Invincible, The Walking Dead
+
+Wed, 03 Jun 2026 01:30:20 GMT
+
+https://screenrant.com/invincible-amazon-walking-dead-actors/
+
+Both Invincible and The Walking Dead are created by Robert Kirkman, meaning many actors who appeared in the latter also have roles in the former.
+---------
+
+# Every New D&D Subclass In Ravenloft: The Horrors Within
+
+Gaming, Dungeons and Dragons, Dungeons & Dragons, tabletop games
+
+Wed, 03 Jun 2026 01:25:38 GMT
+
+https://screenrant.com/dnd-new-subclasses-ravenloft-horrors-within/
+
+Dungeons & Dragons is adding plenty of new subclasses in Ravenloft: The Horrors Within, and they can be the perfect way to make any campaign darker.
+---------
+
+# Sydney Sweeney Officially Joins Remake Of 206-Year-Old Classic Horror Story
+
+Movies, Sydney Sweeney
+
+Wed, 03 Jun 2026 01:24:51 GMT
+
+https://screenrant.com/hollow-movie-sydney-sweeney-cast-produce/
+
+Sydney Sweeney's list of upcoming projects continues to grow, with the popular star now starring in a remake of a classic horror story.
+---------
+
+# PlayStation Officially Drops New 9/10 Free Game, Zero PS Plus Required
+
+Gaming, PlayStation, PlayStation 4, PlayStation 5, PlayStation Plus, PC
+
+Wed, 03 Jun 2026 01:00:21 GMT
+
+https://screenrant.com/playstation-free-game-june-2026-no-ps-plus/
+
+This new PlayStation game is officially free to claim now without a PlayStation Plus subscription, and it has overwhelmingly positive reviews.
+---------
+
+# Prime Video's Batman Show From Matt Reeves Gives Batman: The Animated Series A Modern Update
+
+Streaming TV, Masked Recs
+
+Wed, 03 Jun 2026 00:30:21 GMT
+
+https://screenrant.com/batman-caped-crusader-modern-animated-series-bruce-timm/
+
+Batman: Caped Crusader is a spiritual successor to Batman: The Animated Series, but it features Matt Reeves' patented maturity and darkness.
+---------
+
+# 10 Strongest Dragon Ball Super Remake Characters, Ranked
+
+Anime, Dragon Ball
+
+Wed, 03 Jun 2026 02:00:24 GMT
+
+https://www.cbr.com/dragon-ball-super-beerus-strongest-characters-ranked-list/
+
+Dragon Ball Super: Beerus power levels are intense, and some of the most powerful Dragon Ball characters may surprise fans.
+---------
+
+# Makoto Shinkai's Your Name Gets New 10th Anniversary Official U.S. Release
+
+Anime, Your Name, Makoto Shinkai, GKIDS
+
+Wed, 03 Jun 2026 02:00:24 GMT
+
+https://www.cbr.com/makoto-shinkai-your-name-new-4k-release/
+
+Makoto Shinkai fanatics will soon have a brand-new way to experience the director's 10-year-old supernatural fantasy masterpiece.
+---------
+
+# The Best New Shows of 2026 So Far
+
+TV, Maximum Pleasure Guaranteed, Cape Fear, Widow's Bay
+
+Wed, 03 Jun 2026 02:00:24 GMT
+
+https://www.cbr.com/best-new-2026-shows-list/
+
+2026 is already shaping up to be a great one for television. Not only are high-profile shows returning with new seasons, but there are hot new shows.
+---------
+
+# The 10 Must-Watch WWII Movies of the 21st Century, Ranked
+
+Movies, Oppenheimer
+
+Wed, 03 Jun 2026 02:00:24 GMT
+
+https://www.cbr.com/best-wwii-movies-21st-century-list/
+
+Among countless movies set during World War II, some have stood out as the most impactful, poignant, thrilling, and heartbreaking.
+---------
+
+# 7 Anime Series That Are a Masterclass in Escalation
+
+Anime, Bleach, Hunter X Hunter, Attack on Titan
+
+Wed, 03 Jun 2026 01:45:13 GMT
+
+https://www.cbr.com/anime-with-the-best-action-escalation/
+
+Escalation is a key part of any great story, and anime like Gurren Lagann and Bleach demonstrate how to execute it best.
+---------
+
+# A Gene Wilder Biopic Is Happening & Fans Have Picked the Perfect Actor
+
+Movies
+
+Wed, 03 Jun 2026 01:41:09 GMT
+
+https://www.cbr.com/gene-wilder-biopic-fans-want-jeremy-allen-white/
+
+It didn't take long for fans to declare the perfect casting for the Gene Wilder biopic that's now in the works.
+---------
+
+# The Official Heaviest Manga of All Time
+
+Anime, Berserk, Fire Punch, Goodnight Punpun
+
+Wed, 03 Jun 2026 01:25:13 GMT
+
+https://www.cbr.com/official-heaviest-manga-of-all-time/
+
+The manga medium contains many excellent stories geared towards all audiences, but these five titles are clearly not for the faint of heart.
+---------
+
+# 20 Best DC Animated Movies, Ranked
+
+Superheroes, Batman, DC animated movies, Justice League, Superman
+
+Wed, 03 Jun 2026 01:00:14 GMT
+
+https://www.cbr.com/best-dc-animated-films/
+
+While Marvel may own live-action films in recent years, DC Animated Films are among the best superhero movies available.
+---------
+
+# Major Planet of the Apes Lore Change Could Rewrite the Franchise
+
+Comics, Planet of the Apes, Marvel
+
+Wed, 03 Jun 2026 01:00:13 GMT
+
+https://www.cbr.com/planet-of-the-apes-just-made-its-biggest-lore-change-yet/
+
+In a shocking twist, Dr. Zaius keeps a monumental secret about his encounter with The Fantastic Four, changing the Planet of the Apes lore forever.
+---------
+
+# Xbox and Steam Officially Make Adventure Game 100% Free All Month Long
+
+Games, Tell Me Why, Steam, Xbox Series X (1)
+
+Wed, 03 Jun 2026 00:48:33 GMT
+
+https://www.cbr.com/xbox-steam-tell-me-why-free-june-2026/
+
+An adventure game is free to claim all month long on both Xbox and Steam in honor of Pride Month.
+---------
+
+# 7 Upcoming Blockbuster Movies, Ranked by Anticipation
+
+Movie, Blockbuster, The Odyssey, Avengers: Doomsday, Spider-Man: Brand New Day
+
+Wed, 03 Jun 2026 01:44:14 GMT
+
+https://collider.com/8-upcoming-blockbuster-movies-ranked-by-anticipation/
+
+Spider-Man: Brand New Day, The Odyssey, and Dune: Part Three lead the hype as 2026's biggest blockbuster battles start taking shape.
+---------
+
+# 'X-Men ’97' Season 2 Just Cracked Open the Door to an Avengers Revival
+
+TV Features, X-Men '97, Spider-Man: The Animated Series, The Avengers: United They Stand, Disney+
+
+Wed, 03 Jun 2026 01:42:14 GMT
+
+https://collider.com/x-men-97-season-2-avengers-revival-winter-soldier-meaning/
+
+An unexpected cameo in X-Men '97's Season 2 trailer might have opened the door to an animated Avengers series.
+---------
+
+# 8 Animated Shows That Are Better Than 'Naruto'
+
+TV, Naruto, Animation, Best TV Shows, Batman: The Animated Series
+
+Wed, 03 Jun 2026 01:31:15 GMT
+
+https://collider.com/animated-shows-better-than-naruto/
+
+Naruto is great, but critically acclaimed, fan-favorite animated shows like Batman: The Animated Series, Monster, and Attack on Titan are even better.
+---------
+
+# In Just 6 Days, Prime Video's New Detective Thriller Becomes the Streamer’s No. 1 Series in the World
+
+TV News, Spider-Noir, Prime Video, Spider-Man, Nicolas Cage
+
+Wed, 03 Jun 2026 01:30:14 GMT
+
+https://collider.com/prime-video-detective-series-spider-noir-streaming-success-june-2026-nicolas-cage/
+
+Prime Video's newest detective series, Spider-Noir, has officially taken over the world after just 6 days, becoming a #1 streaming hit.
+---------
+
+# 10 Greatest Jimi Hendrix Songs
+
+Music Features, Jimi Hendrix, Hendrix: Band of Gypsys, Jimi Hendrix: Voodoo Child, Music
+
+Wed, 03 Jun 2026 01:12:13 GMT
+
+https://collider.com/best-jimi-hendrix-songs-ranked/
+
+Jimi Hendrix is one of the greatest artists of all time, and his very best songs include rock staples like "Little Wing," "Purple Haze," and "Fire."
+---------
+
+# Netflix’s Best Crime Thriller Spin-Off Is Officially One of Streaming’s Biggest Hits
+
+TV News, Netflix, Crime, Money Heist, Berlin and the Lady with an Ermine
+
+Wed, 03 Jun 2026 01:00:14 GMT
+
+https://collider.com/netflix-crime-thriller-money-heist-spin-off-berlin-and-the-lady-with-an-ermine-streaming-success-june-2026/
+
+Netflix’s biggest crime-thriller universe is dominating global charts again as the latest spin-off storms streaming rankings worldwide.
+---------
+
+# 9 Actors Who Appeared in Both Lord of the Rings and Star Wars
+
+Movie, The Lord of the Rings, Star Wars, Christopher Lee, Andy Serkis
+
+Wed, 03 Jun 2026 00:55:13 GMT
+
+https://collider.com/lord-of-the-rings-actors-in-star-wars/
+
+Andy Serkis, Elijah Wood, Karl Urban, and more make up the list of actors who appeared in both The Lord of the Rings and Star Wars.
+---------
+
+# Denzel Washington's 2006 Sci-Fi Thriller Is the Time-Bending Masterpiece You Probably Missed
+
+Movie Features, Sci-Fi, Déjà Vu, Tony Scott, Denzel Washington
+
+Wed, 03 Jun 2026 00:32:13 GMT
+
+https://collider.com/denzel-washington-deja-vu-sci-fi-thriller-masterpiece/
+
+ony Scott's Déjà Vu remains a thrilling blend of sci-fi, romance, and action powered by Denzel Washington's performance.
+---------
+
+# Netflix Is Finally Bringing Vin Diesel's Best Sci-Fi Series to Streaming
+
+Movie News, Vin Diesel, Riddick, Pitch Black, Sci-Fi
+
+Wed, 03 Jun 2026 00:30:14 GMT
+
+https://collider.com/vin-diesel-sci-fi-trilogy-riddick-streaming-netflix-june-2026/
+
+Vin Diesel’s cult sci-fi franchise crashes back onto Netflix while fans are still stuck waiting for the long-promised next chapter.
+---------
+
+# 10 Thriller Shows That Are Perfectly Written
+
+TV, Thriller, Breaking Bad, Squid Game, Bosch
+
+Wed, 03 Jun 2026 00:11:13 GMT
+
+https://collider.com/thriller-shows-perfect-writing/
+
+Thriller shows like Breaking Bad, Squid Game, Bosch, and The Night Manager, boast some of the most compelling narratives put to television ever.
+---------
+
+# 10 Greatest Sci-Fi Shows of the 21st Century, Ranked
+
+TV Lists, Science Fiction
+
+Wed, 03 Jun 2026 02:00:31 GMT
+
+https://movieweb.com/best-sci-fi-shows-21st-century/
+
+These sci-fi TV shows are some of the most impressive from the 21st century,
+---------
+
+# The 10 Best 'Star Wars' Characters Introduced in TV Shows
+
+TV Lists, Star Wars
+
+Wed, 03 Jun 2026 01:00:19 GMT
+
+https://movieweb.com/best-star-wars-tv-characters/
+
+While most of Star Wars' most iconic characters originate in the movies, some of the franchise's best characters made their debut on television.
+---------
+
+# Prime Video Already Cancels Highly Anticipated Cult-Classic Sci-Fi Reboot
+
+TV News, Stargate, Prime Video
+
+Wed, 03 Jun 2026 01:00:04 GMT
+
+https://movieweb.com/stargate-reboot-canceled-prime-video/
+
+The streamer is rethinking its approach to reviving 'Stargate' for a new generation.
+---------
+
+# 'Mortal Kombat II' Officially Sets Digital Streaming Date
+
+Movie News, Mortal Kombat II
+
+Tue, 02 Jun 2026 23:59:50 GMT
+
+https://movieweb.com/mortal-kombat-ii-digital-streaming-date/
+
+The brutal video game adaptation will soon be available to watch at home.
+---------
+
 # Pedro Pascal Was Wasted In The Mandalorian And Grogu
 
 Star Wars, The Mandalorian and Grogu
