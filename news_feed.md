@@ -1,3 +1,443 @@
+# Brendan Fraser Reveals His Reaction To The Mummy 4 Script
+
+Movies, The Mummy, The Mummy 4
+
+Wed, 03 Jun 2026 17:21:25 GMT
+
+https://screenrant.com/the-mummy-4-movie-script-brendan-fraser-response/
+
+Brendan Fraser shares his reaction to the script for The Mummy 4, which brings back adventurer Rick O'Connell alongside Rachel Weisz's Evelyn.
+---------
+
+# Michael B. Jordan Has Completely Taken Over Netflix With Four Global Smash Hits
+
+Classic Movies, Netflix, Michael B. Jordan
+
+Wed, 03 Jun 2026 17:21:21 GMT
+
+https://screenrant.com/michael-b-jordan-movies-trending-netflix-top-10/
+
+Michael B. Jordan is single-handedly responsible for dominating Netflix, as the actor has four major movies trending on the streaming service.
+---------
+
+# Behind DC Studios' Supergirl: A Set Visit Report From Krypton's Argo City To Kara Zor-El's Rise To Heroism
+
+Exclusive, Supergirl, DC Universe
+
+Wed, 03 Jun 2026 17:02:33 GMT
+
+https://screenrant.com/supergirl-2026-set-visit-report/
+
+Discover the making of DC's Supergirl film, from Krypton's destruction to Kara's rise as a hero, with exclusive behind the scenes insights.
+---------
+
+# All Marvel's Wolverine Pre-Order Bonuses & Editions
+
+Gaming, Marvel's Wolverine, PlayStation 5
+
+Wed, 03 Jun 2026 17:00:21 GMT
+
+https://screenrant.com/marvels-wolverine-preorder-bonuses-editions/
+
+There are quite a few bonuses for players who decide to pre-order Insomniac's Marvel's Wolverine before it launches later this year.
+---------
+
+# Marvel Reveals True Identity of Spider-Man's Permanent New Sibling
+
+Comics
+
+Wed, 03 Jun 2026 17:00:21 GMT
+
+https://screenrant.com/spider-man-brother-cousin-identity-confirmed/
+
+Spider-Man's world is going to change forever.
+---------
+
+# Prime Video Is Cancelling The Sci-Fi Series That Should Have Been Its Answer To Star Trek
+
+Streaming TV, Masked Recs
+
+Wed, 03 Jun 2026 17:00:21 GMT
+
+https://screenrant.com/prime-video-stargate-cancel-star-trek-answer/
+
+With Paramount's Star Trek TV empire gradually winding down, Prime Video looked to have the perfect replacement. Now it too has crumbled.
+---------
+
+# James Gunn Officially Confirms Man Of Tomorrow's Time Jump After Superman In DCU Timeline
+
+Movies, Man of Tomorrow, Superman, DC Universe, James Gunn
+
+Wed, 03 Jun 2026 16:53:54 GMT
+
+https://screenrant.com/superman-man-of-tomorrow-time-jump-james-gunn/
+
+Man of Tomorrow is being released two years after 2025’s Superman, but James Gunn is finally revealing what that means for the DCU timeline.
+---------
+
+# Netflix’s 5-Part Psychological Thriller Series Is So Good, It Was Renewed For 4 Seasons After It Got Canceled
+
+TV, Masked Recs
+
+Wed, 03 Jun 2026 16:45:21 GMT
+
+https://screenrant.com/you-netflix-thriller-series-renewed-four-seasons-after-cancellation/
+
+This generational Netflix psychological thriller series was initially canceled after one season, but it was so good that it was renewed for four more.
+---------
+
+# How I Met Your Mother Actor Sentenced To 32 Years To Life For Attempted Murder
+
+TV, How I Met Your Mother
+
+Wed, 03 Jun 2026 16:40:37 GMT
+
+https://screenrant.com/how-i-met-your-mother-star-attempted-murder-sentence-nick-pasqual/
+
+After attacking his estranged girlfriend in 2024 and being found guilty by a jury, a How I Met Your Mother guest star receives his sentencing.
+---------
+
+# Sylvester Stallone's Tulsa King Season 5 Future Looks Bright With Major Location Change
+
+TV, Tulsa King
+
+Wed, 03 Jun 2026 16:39:25 GMT
+
+https://screenrant.com/sylvester-stallone-tulsa-king-season-5-new-york-location-filming-change/
+
+The future of Sylvester Stallone's gangster series Tulsa King seems secure after season 5 heads to a new location with a new writers' room opening.
+---------
+
+# Supergirl Gets Her Super Suit in Final Trailer for DCU's Next Movie
+
+Movies, Supergirl, DCU
+
+Wed, 03 Jun 2026 17:21:41 GMT
+
+https://www.cbr.com/supergirl-movie-trailer/
+
+Supergirl inherits the mantle in the final trailer for the upcoming DC Universe movie.
+---------
+
+# Apple TV’s Remake of 35-Year-Old Crime Thriller Honors the Original's Rotten Tomatoes Score
+
+TV, Cape Fear, Rotten Tomatoes
+
+Wed, 03 Jun 2026 17:17:57 GMT
+
+https://www.cbr.com/apple-tv-cape-fear-remake-rotten-tomatoes-score/
+
+The bestselling novel has received multiple adaptations but Apple TV still manages to impress with its new take.
+---------
+
+# 10 Greatest RPG Masterpieces of All Time, Ranked
+
+Games, Final Fantasy VII, Baldur's Gate 3, Elden Ring, Video Games, RPG
+
+Wed, 03 Jun 2026 17:15:15 GMT
+
+https://www.cbr.com/greatest-rpg-masterpieces-all-time-ranked/
+
+The RPG genre is easily one of gaming's greatest of all time, with titles like Baldur's Gate III and Elden Ring raising the genre to new heights.
+---------
+
+# The 50 Saddest Anime of All Time
+
+Anime, Steins;Gate, Fullmetal Alchemist
+
+Wed, 03 Jun 2026 17:00:14 GMT
+
+https://www.cbr.com/saddest-anime-series-ever/
+
+From Banana Fish to Elfen Lied, some of anime's saddest films and series were created to tug at viewers' heartstrings.
+---------
+
+# HBO’s 4-Season Sci-Fi Slow Burn Returns as a PVOD Sensation Ahead of Remake
+
+TV, Westworld
+
+Wed, 03 Jun 2026 17:00:13 GMT
+
+https://www.cbr.com/hbo-westworld-sci-fi-pvod-sensation-may-2026/
+
+With a remake on the way, HBO's four-part sci-fi series that was canceled too soon has grown in popularity on PVOD platforms.
+---------
+
+# Supergirl Producer Explains How Jason Momoa Joined the DC Universe as Lobo
+
+CBR Exclusives, Supergirl
+
+Wed, 03 Jun 2026 17:00:13 GMT
+
+https://www.cbr.com/supergirl-producer-jason-momoa-lobo-joining-explained/
+
+The secrets behind how Jason Momoa joined Supergirl are finally revealed.
+---------
+
+# Supergirl Costume Designer Details The ‘Hundreds’ Of Arguments They Had Over Kara’s T-Shirt
+
+CBR Exclusives
+
+Wed, 03 Jun 2026 17:00:13 GMT
+
+https://www.cbr.com/supergirl-costume-designer-details-the-hundreds-of-arguments-they-had-over-karas-t-shirt/
+
+The shirt you wear when you are at your most comfortable matters.
+---------
+
+# 10 Anime Series With the Most Memorable Final Episodes Ever
+
+Anime, Mob Psycho 100, Neon Genesis Evangelion, Dragon Ball GT, Gintama
+
+Wed, 03 Jun 2026 16:15:14 GMT
+
+https://www.cbr.com/most-memorable-final-anime-episodes/
+
+Endings aren't easy, but there are some special anime like Mob Psycho 100 that build to perfect conclusions that are still being talked about.
+---------
+
+# Al Pacino's New 106-Minute Crime Thriller With 91% RT Becomes an Instant Netflix Streaming Hit
+
+Movies, Dead Man's Wire
+
+Wed, 03 Jun 2026 16:10:37 GMT
+
+https://www.cbr.com/al-pacino-dead-mans-wire-netflix-streaming/
+
+Al Pacino's newest movie makes an impact upon its arrival on Netflix.
+---------
+
+# Dune: Prophecy's Sardaukar May Break Frank Herbert's Dune Lore (But It Makes Perfect Sense)
+
+TV, Dune: Prophecy, Sci-Fi
+
+Wed, 03 Jun 2026 16:00:15 GMT
+
+https://www.cbr.com/dune-prophecy-sardaukar-lore-timeline-change/
+
+Dune: Prophecy is set thousands of years before the original novels and movies, but it may be introducing an important faction in the setting’s lore.
+---------
+
+# Jason Momoa's HBO Max Adventure Series Returns in Style in New Look [Exclusive]
+
+Exclusives, On the Roam, Jason Momoa, HBO Max, Documentary
+
+Wed, 03 Jun 2026 17:00:14 GMT
+
+https://collider.com/on-the-roam-season-2-episode-4-sneak-peek-jason-momoa/
+
+A new sneak peek at On the Roam Season 2 Episode 4 sees Jason Momoa enjoying a ride through the mountains with a friend.
+---------
+
+# 'Supergirl' Boldly Soars in DC's Surprising Sci-Fi Western, Plus Everything We Learned On Set
+
+Movie Features, Supergirl, Milly Alcock, Craig Gillespie
+
+Wed, 03 Jun 2026 17:00:14 GMT
+
+https://collider.com/supergirl-woman-of-tomorrow-dc-studios-set-visit/
+
+From the set of Supergirl, Collider learned more about Kara, Lobo, and the tragedy of Krypton in DC's latest movie.
+---------
+
+# 10 Greatest Fantasy Books of the Last 50 Years
+
+Movie, Books, Fantasy, A Song of Ice and Fire, The Lord of the Rings
+
+Wed, 03 Jun 2026 16:34:15 GMT
+
+https://collider.com/best-fantasy-books-last-50-years-ranked/
+
+Fantasy literature has thrived over the past 50 years, producing several genuine masterpieces like Northern Lights, A Game of Thrones, and Tehanu.
+---------
+
+# A24’s New Horror Hit Crosses $100 Million in Just 5 Days
+
+Movie News, Backrooms, A24, Box Office, Chiwetel Ejiofor
+
+Wed, 03 Jun 2026 16:32:30 GMT
+
+https://collider.com/new-a24-horror-hit-backrooms-domestic-box-office-record-100-million/
+
+It's a great time for horror at the box office, as A24's Backrooms has made box office history for the indie giant in less than a week.
+---------
+
+# It's Officially the End of an Era for Taylor Sheridan's 'Tulsa King' After a Major Change
+
+TV News, Tulsa King, Sylvester Stallone, Taylor Sheridan, Paramount Plus
+
+Wed, 03 Jun 2026 16:17:15 GMT
+
+https://collider.com/taylor-sheridan-crime-thriller-tulsa-king-season-5-writers-room-location-change-new-york-sylvester-stallone/
+
+Ahead of Season 4 and the Frisco King spin-off, Taylor Sheridan's Tulsa King is already making a major change for Season 5.
+---------
+
+# ‘Supergirl’ Smashes Into Action With Colorful 4DX Poster Before June 26 Release [Exclusive]
+
+Movie News, Supergirl, Milly Alcock, DCU, Jason Momoa
+
+Wed, 03 Jun 2026 16:00:15 GMT
+
+https://collider.com/supergirl-new-4dx-poster-release-date-june-26/
+
+DC has released a new 4DX poster for Supergirl, starring Milly Alcock, ahead of the film's worldwide premiere on June 26.
+---------
+
+# Get an Early Look at Samara Weaving and Kyle Gallner's New Crime Thriller Before It Hits Theaters [Exclusive]
+
+Exclusives, Carolina Caroline, Samara Weaving, Kyle Gallner, Romance
+
+Wed, 03 Jun 2026 16:00:15 GMT
+
+https://collider.com/samara-weaving-kyle-gallner-crime-thriller-carolina-caroline-sneak-peek-kyle-gallner/
+
+A new sneak peek at the crime romance Carolina Caroline has Kyle Gallner and Samara Weaving on the run from the police in a tense getaway.
+---------
+
+# ‘Punisher’ Star’s Monster-Hunting Horror Epic Finally Sets Physical Release [Exclusive]
+
+Exclusives, Thomas Jane, Horror, Comic Book, Digital
+
+Wed, 03 Jun 2026 16:00:15 GMT
+
+https://collider.com/the-lycan-comic-book-thomas-jane/
+
+The Lycan, a horror comic co-created by Thomas Jane, is coming to print for the very first time. Read on for more.
+---------
+
+# This Twisted 3-Part Sci-Fi Horror Is One of Stephen King's Greatest Adaptations
+
+TV Features, Stephen King, Under the Dome, Sci-Fi, Horror
+
+Wed, 03 Jun 2026 15:52:14 GMT
+
+https://collider.com/stephen-king-greatest-adaptation-under-the-dome-cbs-series/
+
+Stephen King's Under the Dome deserves a revisit, with Season 1 still working as a tense, human survival thriller.
+---------
+
+# Brendan Fraser Gives Cryptic Update on 'The Mummy 4' Script
+
+Exclusives, Pressure, Brendan Fraser, The Mummy, The Mummy 4
+
+Wed, 03 Jun 2026 15:36:36 GMT
+
+https://collider.com/brendan-fraser-the-mummy-4-update-pressure-movie-interview/
+
+Brendan Fraser reveals his reaction to The Mummy 4 script, discusses Operation Tiger, and shares insights into his role in the WWII thriller Pressure.
+---------
+
+# 50 Years Later, the 'Rocky' Franchise Is Streaming on Netflix
+
+Movie News, Rocky, Creed, Sylvester Stallone, Coming/Leaving Streaming
+
+Wed, 03 Jun 2026 17:00:20 GMT
+
+https://movieweb.com/rocky-franchise-streaming-netflix-june-2026/
+
+As popular as the series is, it's rare that all the movies become available on one streamer.
+---------
+
+# 'Cape Fear' Rotten Tomatoes Score Reveals Verdict on Apple TV's Martin Scorsese Remake
+
+TV News, Cape Fear, Apple TV
+
+Wed, 03 Jun 2026 16:55:24 GMT
+
+https://movieweb.com/cape-fear-apple-tv-rotten-tomatoes/
+
+The third adaptation of John D, Macdonald's novel stars Amy Adams, Javier Bardem, and Patrick Wilson.
+---------
+
+# Final 'Supergirl' Trailer Released as Tickets Go On Sale
+
+Movie News, Supergirl
+
+Wed, 03 Jun 2026 16:45:43 GMT
+
+https://movieweb.com/final-supergirl-trailer/
+
+Warner Bros. has released the final trailer for 'Supergirl,' showcasing more action and a Superman cameo.
+---------
+
+# Anya Taylor-Joy Runs From the Law in New Trailer for Apple TV Crime Thriller 'Lucky'
+
+TV News, Lucky, Apple TV, Anya Taylor-Joy
+
+Wed, 03 Jun 2026 16:42:50 GMT
+
+https://movieweb.com/lucky-trailer-apple-tv/
+
+Apple TV has released a new trailer for 'Lucky,' an upcoming crime thriller starring and executive produced by Anya Taylor-Joy.
+---------
+
+# Every New Movie and TV Show Coming to Peacock in June 2026
+
+Features, Peacock
+
+Wed, 03 Jun 2026 16:30:19 GMT
+
+https://movieweb.com/peacock-new-movie-tv-june-2026/
+
+Peacock bolsters its content of great movies this month, alongside two returning, fan-favorite TV series.
+---------
+
+# HBO's New Fantasy Series Will Show 'Percy Jackson' How It's Done
+
+Features, Harry Potter, Percy Jackson & the Olympians
+
+Wed, 03 Jun 2026 16:01:19 GMT
+
+https://movieweb.com/harry-potter-hbo-better-than-percy-jackson/
+
+'Percy Jackson and the Olympians' has two seasons on Disney+ and an upcoming fantasy TV series on HBO will be even better.
+---------
+
+# Tom Holland Accused of Spoiling Christopher Nolan's 'The Odyssey' Ending
+
+Movie News, Tom Holland, Christopher Nolan, The Odyssey
+
+Wed, 03 Jun 2026 15:44:52 GMT
+
+https://movieweb.com/tom-holland-the-odyssey-spoiler-nolan/
+
+Tom Holland is accused of spoiling the ending of Christopher Nolan's 'The Odyssey' in a now-deleted video, reviving his reputation for spoilers.
+---------
+
+# Netflix's Hit Crime Thriller Dethroned by Near-Perfect Sci-Fi Adventure Smash
+
+TV News, Nemesis, The Boroughs, Hot on Streaming, Sci-Fi, Thriller, Netflix
+
+Wed, 03 Jun 2026 15:30:21 GMT
+
+https://movieweb.com/the-boroughs-beats-nemesis-netflix-streaming-numbers-may-25-31/
+
+Netflix's hot new crime thriller has already been dethroned as the #1 series on the streaming platform after just one week.
+---------
+
+# Chris Hemsworth & Taron Edgerton Shine in First Official Images From 'Kockroach'
+
+Movie News, Kockroach, Chris Hemsworth, Taron Egerton
+
+Wed, 03 Jun 2026 15:25:46 GMT
+
+https://movieweb.com/kockroach-chris-hemsworth-taron-egerton-first-look/
+
+New official images from the upcoming crime thriller 'Kockroach' showed off a look at stars Chris Hemsworth and Taron Edgerton.
+---------
+
+# NBC Confirms Fate of 81% Rated Crime Drama 'The Hunting Party' After 2 Seasons
+
+TV News, The Hunting Party, Peacock, Crime
+
+Wed, 03 Jun 2026 15:21:40 GMT
+
+https://movieweb.com/the-hunting-party-canceled-nbc/
+
+'The Hunting Party' was about a group of highly dangerous criminals and the investigators charged with catching them.
+---------
+
 # NCIS Sets Up The Exit Of A 400-Episode Veteran (& You Missed It)
 
 Network TV, NCIS
