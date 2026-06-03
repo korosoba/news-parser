@@ -1,3 +1,212 @@
+# What Happened To Jarrod Schulz After Storage Wars Season 13
+
+Reality TV, Storage Wars
+
+Wed, 03 Jun 2026 03:59:21 GMT
+
+https://screenrant.com/what-happened-jarrod-schulz-after-storage-wars-season-13-updates/
+
+Storage Wars' Jarrod Schulz no longer appears on the show, and has moved on to a new career in the bar industry. Does he ever think about returning?
+---------
+
+# I’m Even More Excited For Ryan Gosling’s Star Wars: Starfighter After 1 Mandalorian & Grogu Scene
+
+Star Wars, The Mandalorian and Grogu, Star Wars: Starfighter
+
+Wed, 03 Jun 2026 03:29:41 GMT
+
+https://screenrant.com/mandalorian-grogu-next-star-wars-movie-ryan-gosling-starfighter/
+
+The Mandalorian & Grogu has me even more excited for Shawn Levy and Ryan Gosling's upcoming Star Wars: Starfighter movie for one big reason.
+---------
+
+# Mortal Kombat Meets The Raid In Netflix's 10-Part Martial Arts Series
+
+Classic TV, Masked Recs
+
+Wed, 03 Jun 2026 03:19:11 GMT
+
+https://screenrant.com/wu-assassins-netflix-mortal-kombat-meets-the-raid/
+
+Netflix's 10-part martial arts TV show is "Mortal Kombat meets The Raid," making it a great choice for a quick and entertaining bingewatch.
+---------
+
+# Star Wars Is Officially Wasting One Of Its Best New Republic Heroes
+
+Star Wars, The Mandalorian and Grogu
+
+Wed, 03 Jun 2026 02:30:53 GMT
+
+https://screenrant.com/star-wars-wasting-new-republic-hero-carson-teva-mandalorian-grogu/
+
+Especially after The Mandalorian & Grogu, it's become clear that Star Wars has been wasting one of its most popular New Republic heroes.
+---------
+
+# 27 Years Later, Naruto's Next Anime Is Officially Switching Genres
+
+Anime, Naruto, Boruto: Two Blue Vortex
+
+Wed, 03 Jun 2026 02:30:20 GMT
+
+https://screenrant.com/naruto-boruto-two-blue-vortex-anime-change-genre/
+
+The future of the Naruto anime franchise is a promising one due to some noteworthy tone and genre changes in its latest manga.
+---------
+
+# Spider-Man Actor Tom Holland Explains Turning Down Saturday Night Live
+
+TV, Saturday Night Live, tom holland
+
+Wed, 03 Jun 2026 03:49:51 GMT
+
+https://www.cbr.com/tom-holland-turns-down-saturday-night-live/
+
+Spider-Man: Brand New Day's Tom Holland shares the real reason he has rejected hosting SNL multiple times.
+---------
+
+# 10 Strongest Naruto Clans, Ranked
+
+Anime, Naruto
+
+Wed, 03 Jun 2026 03:45:14 GMT
+
+https://www.cbr.com/strongest-naruto-clans-ranked-list/
+
+From shadow-bending to insect manipulation, the true strength of Naruto's bloodline clans lies in their unique abilities and strategic advantages.
+---------
+
+# The 10 Best Movies of Disney's Revival Era, Ranked
+
+Movies, Disney, Disney+, Animation
+
+Wed, 03 Jun 2026 03:45:14 GMT
+
+https://www.cbr.com/best-disney-revival-era-movies-list/
+
+From 2009 to 2019, Disney thrived with what has been referred to as its Revival Era, and this era created countless classics and a few rare misses.
+---------
+
+# Discovery: Why Doctor Kovich's Real Name Has Major Star Trek Implications
+
+TV, Star Trek: Discovery, Star Trek, Sci-Fi, Paramount
+
+Wed, 03 Jun 2026 03:30:15 GMT
+
+https://www.cbr.com/star-trek-discovery-doctor-kovich-agent-daniels-connection/
+
+In the series finale of Star Trek: Discovery, Dr. Kovich revealed his real name, which establishes his deep connection to Star Trek's canon history.
+---------
+
+# Outrageous Video Game Fan Theories That Were Officially Confirmed
+
+Games, Video Games, Super Mario Bros. 3, Final Fantasy
+
+Wed, 03 Jun 2026 03:15:13 GMT
+
+https://www.cbr.com/outrageous-confirmed-video-game-fan-theories-list/
+
+Video game players love creating fan theories about their favorite titles, and a lucky few have had their ideas officially confirmed by the creator.
+---------
+
+# 5 Weird Goku Habits That Would Annoy Real People
+
+Anime, Dragon Ball, Goku
+
+Wed, 03 Jun 2026 02:45:13 GMT
+
+https://www.cbr.com/x-weird-goku-habits-that-would-annoy-real-people/
+
+Dragon Ball's Goku might be heroic in the anime, but he would be an incredibly frustrating person to handle in real life.
+---------
+
+# Sydney Sweeney to Star in The Legend of Sleepy Hollow Reboot With a Twist
+
+Movies, The Legend of Sleepy Hollow
+
+Wed, 03 Jun 2026 02:23:36 GMT
+
+https://www.cbr.com/sydney-sweeney-legend-of-sleepy-hollow-movie/
+
+Sydney Sweeney is set to star in the latest reboot of The Legend of Sleepy Hollow that puts a new spin on the classic story.
+---------
+
+# 10 Sega Genesis Games That Aged Like Fine Wine
+
+Games, Sega Genesis, Sonic the Hedgehog, Disney
+
+Wed, 03 Jun 2026 02:15:13 GMT
+
+https://www.cbr.com/best-sega-genesis-games-aged-like-fine-wine/
+
+Sega Genesis games like Sonic 3 and Knuckles have only gotten better with time.
+---------
+
+# 'Maximum Pleasure Guaranteed's Tatiana Maslany Reveals the "Horror" Episode 4 Unleashes on Paula
+
+Interviews, Maximum Pleasure Guaranteed, Tatiana Maslany, Apple TV, Thriller
+
+Wed, 03 Jun 2026 07:00:13 GMT
+
+https://collider.com/maximum-pleasure-guaranteed-episode-4-tatiana-maslany-interview/
+
+Tatiana Maslany explains how Maximum Pleasure Guaranteed Episode 4 reveals a different, unpredictable side of Paula.
+---------
+
+# Horror Master Guillermo del Toro Just Confirmed That Apple TV’s “Best Streaming Series” Is Worth the Hype
+
+TV Features, Widow's Bay, Guillermo del Toro, Apple TV, Matthew Rhys
+
+Wed, 03 Jun 2026 04:45:13 GMT
+
+https://collider.com/guillermo-del-toro-widows-bay-apple-tv-horror-recommendation/
+
+It's no surprise that Guillermo del Toro has praised Apple TV's horror-comedy Widow's Bay as "the best streaming series in a long time."
+---------
+
+# Only 6 Action Shows Have Better Endings Than ‘The Boys’
+
+TV, The Boys, Justified, The Shield, Action
+
+Wed, 03 Jun 2026 04:28:13 GMT
+
+https://collider.com/action-shows-better-endings-than-the-boys/
+
+The Boys ended on a high note, but action shows like The Shield, Justified, Black Sails, and Banshee have even better series finales.
+---------
+
+# 10 Movie Trilogies Worth Rewatching From Start to Finish
+
+Movie, The Dark Knight Trilogy, The Lord of the Rings, Star Wars, Back to the Future
+
+Wed, 03 Jun 2026 04:14:14 GMT
+
+https://collider.com/movie-trilogies-worth-rewatching-from-start-to-finish/
+
+Classic movie trilogies like Back to the Future, The Lord of the Rings, and Pirates of the Caribbean are truly worth revisiting again and again.
+---------
+
+# Only 3 Fantasy Movies Have Better Music Than The Lord of the Rings
+
+Movie, The Lord of the Rings, Harry Potter and the Sorcerer's Stone, Disney's Pinocchio, Pirates of the Caribbean: The Curse of the Black Pearl
+
+Wed, 03 Jun 2026 03:26:14 GMT
+
+https://collider.com/fantasy-movies-better-music-than-lord-of-the-rings/
+
+Howard Shore's score for The Lord of the Rings is widely considered the best in fantasy, but movies like Disney's Pinocchio arguably surpass it.
+---------
+
+# 8 Most Anticipated Upcoming Superhero Shows
+
+TV, Daredevil: Born Again, X-Men '97, Lanterns, Superhero
+
+Wed, 03 Jun 2026 02:43:13 GMT
+
+https://collider.com/upcoming-superhero-shows-ranked-anticipation/
+
+Lanterns, Vought Rising, and a new season of Invincible are all among the most exciting and hotly anticipated superhero TV shows on the horizon.
+---------
+
 # John Wick Writer & Production Company Hit With $10M Lawsuit
 
 Movies, John Wick
