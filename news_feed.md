@@ -1,3 +1,388 @@
+# Michael Fassbender’s Spy Thriller With A Perfect RT Audience Score Finally Returns This Month
+
+Streaming TV, Masked Recs
+
+Wed, 03 Jun 2026 22:41:20 GMT
+
+https://screenrant.com/michael-fassbender-the-agency-season-2-returns-soon/
+
+Michael Fassbender's fan-favorite spy thriller series with a perfect 100% Rotten Tomatoes audience score returns in just a few weeks on Paramount+.
+---------
+
+# Apple TV's New 8-Part Sci-Fi Series Debuts To Solid Rotten Tomatoes Audience Score
+
+TV, Masked Recs
+
+Wed, 03 Jun 2026 22:34:59 GMT
+
+https://screenrant.com/apple-tv-star-city-rotten-tomatoes-audience-score-debut/
+
+Apple TV's new sci-fi series, which establishes a shared universe at the streaming service, has debuted to a solid Rotten Tomatoes audience score.
+---------
+
+# Apple TV's Best Dystopian Sci-Fi Show Officially Returns In One Month
+
+Streaming TV, Masked Recs
+
+Wed, 03 Jun 2026 22:30:22 GMT
+
+https://screenrant.com/apple-tv-sci-fi-dystopian-silo-return-season-3-july-2026/
+
+Apple TV has plenty of sci-fi shows worth watching, but one of the streamer's best titles, Silo, is set to return for season 3 in early July.
+---------
+
+# Dungeons & Dragons Drops First Look at Forgotten Realms Villain's Return in New Ravenloft Series
+
+Comics, Dungeons & Dragons
+
+Wed, 03 Jun 2026 22:29:21 GMT
+
+https://screenrant.com/dungeons-dragons-valindra-shadowmantle-design-new-ravenloft-series/
+
+A major Dungeons & Dragons Forgotten Realms villain is set to return this fall in a brand-new Ravenloft-set D&amp;D series. Find the first look here!
+---------
+
+# Crimson Desert Is Officially Changing The Game's Story
+
+Gaming, Crimson Desert, PlayStation 5, Xbox Series X/S
+
+Wed, 03 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/crimson-desert-official-update-story-changes/
+
+Pearl Abyss announces plans to enhance Crimson Desert's narrative, aiming to improve coherence and engagement in the main quest storylines.
+---------
+
+# Netflix's One Piece Is Secretly Making The Entire Franchise Better... No, Really
+
+Anime, One Piece
+
+Wed, 03 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/one-piece-netflix-franchise-better-oda/
+
+One Piece's live-action series has been a game-changer for the franchise, and now it's indirectly helping the manga in one major way.
+---------
+
+# Evil Dead Rise 2 Potential Addressed By Lee Cronin After Record-Breaking Box Office
+
+Movies, Evil Dead Rise, Evil Dead Rise 2, Evil Dead
+
+Wed, 03 Jun 2026 21:58:57 GMT
+
+https://screenrant.com/evil-dead-rise-2-franchise-future-response-lee-cronin/
+
+EXCLUSIVE: After directing Evil Dead Rise, Lee Cronin moved on to The Mummy, but he’s now revealing if he plans to return to the world of Sam Raimi.
+---------
+
+# Quentin Tarantino Raves About Ben Affleck's Netflix Thriller As Director Slams Hollywood Movies For "Flavorless Sausage Factory"
+
+Movies, Quentin Tarantino
+
+Wed, 03 Jun 2026 21:56:34 GMT
+
+https://screenrant.com/quentin-tarantino-the-rip-review-hollywood-criticism/
+
+When it comes to modern Hollywood movies, Quentin Tarantino is not a fan, unless it's Ben Affleck and Matt Damon's recent Netflix crime thriller.
+---------
+
+# Alien: Earth Season 2 Filming Start Officially Confirmed By Star
+
+TV, Alien: Earth
+
+Wed, 03 Jun 2026 21:54:42 GMT
+
+https://screenrant.com/alien-earth-season-2-filming-date-confirmed/
+
+Alien: Earth season 2 's filming start date has officially been confirmed by one of the series' stars and it's sooner than expected.
+---------
+
+# 4000 Days Director Breaks Down Hazing, Loss, And The Power Of Documentaries
+
+Movies, Tribeca Film Festival, Documentary
+
+Wed, 03 Jun 2026 21:48:26 GMT
+
+https://screenrant.com/4000-days-documentary-daniel-catullo-tribeca-festival-interview/
+
+Daniel Catullo shares unique insight into his harrowing documentary 4000 Days, premiering at Tribeca, which highlights the deadly nature of hazing.
+---------
+
+# Netflix Officially Orders Adults-Only Superstore Replacement Show 5 Years After Cancellation
+
+TV, Netflix, Animation
+
+Wed, 03 Jun 2026 22:46:30 GMT
+
+https://www.cbr.com/netflix-dealies-animated-series/
+
+A new Netflix show could scratch the Superstore itch.
+---------
+
+# 10 Greatest Anime Fights of All Time, Ranked
+
+Anime, Bleach, One Piece, My Hero Academia, Berserk, shonen anime, Shonen
+
+Wed, 03 Jun 2026 22:15:13 GMT
+
+https://www.cbr.com/greatest-anime-fights-all-time-ranked/
+
+Unrestricted by the limitations of live-action, anime has also long been home to some of the most breathtaking battles ever put to screen.
+---------
+
+# Pokémon's Original Starters Officially Return for 'Golden' 30th Anniversary Reveal
+
+Anime, Pokemon
+
+Wed, 03 Jun 2026 22:00:14 GMT
+
+https://www.cbr.com/pokemon-gen-1-starter-anniversary-official-release-goldfish/
+
+Pokémon keeps finding strange new ways to celebrate its 30th Anniversary, and its new collaboration with Goldfish crackers is its strangest yet.
+---------
+
+# Apple TV's Reboot of Steven Spielberg's '80s Anthology Is Dominating PVOD Charts 6 Years Later
+
+TV, Amazing Stories, Sci-Fi, Apple TV
+
+Wed, 03 Jun 2026 22:00:14 GMT
+
+https://www.cbr.com/steven-spielberg-amazing-stories-sci-fi-apple-tv-pvod-success-june-2026/
+
+The 2020 reboot of Steven Spielberg's sci-fi anthology series, Amazing Stories, is now a hit on PVOD.
+---------
+
+# It's the End of an Era for Western Movies After 68 Years
+
+Movies, Western, Clint Eastwood, Unforgiven
+
+Wed, 03 Jun 2026 22:00:14 GMT
+
+https://www.cbr.com/clint-eastwood-retirement-end-of-era-western-movies/
+
+The Western genre has experienced a great deal of turmoil and change over the last few decades, but recent news brings about the end of an era.
+---------
+
+# Transformers G1 Officially Returns, Promising the Definitive Endgame for Optimus Prime and Megatron
+
+Comics, The Transformers: The Movie, Transformers
+
+Wed, 03 Jun 2026 22:00:14 GMT
+
+https://www.cbr.com/transformers-the-movie-40th-anniversary-edition-comic-release-date-confirmed/
+
+The most heartbreaking chapter in the entire history of The Transformers franchise is officially returning in celebration of its 40th anniversary.
+---------
+
+# 18-Year-Old How to Train Your Dragon Star Lands John Wick Role
+
+Movies, Caine John Wick Spinoff, John Wick, Action
+
+Wed, 03 Jun 2026 21:52:15 GMT
+
+https://www.cbr.com/mason-thames-john-wick-caine-cast/
+
+The young just landed a role in the John Wick franchise.
+---------
+
+# 5 Must-Watch Netflix Crime Dramas Based on True Stories
+
+Movies, Crime
+
+Wed, 03 Jun 2026 21:30:13 GMT
+
+https://www.cbr.com/best-crime-dramas-based-on-true-stories-streaming-netflix-list/
+
+Some crime dramas are more terrifying because they're based on real-life events, like these compelling Netflix movies.
+---------
+
+# 10 Most Shocking Scenes in The Boys, Ranked
+
+TV, The Boys, television, amazon
+
+Wed, 03 Jun 2026 21:30:13 GMT
+
+https://www.cbr.com/the-boys-most-shocking-scenes-ranked/
+
+The Boys features tons of shocking moments, but some of them are too much, even for this show's standards.
+---------
+
+# 10 Best Western RPGs That Respect Your Time
+
+Games, Video Games, RPG, South Park: The Stick of Truth
+
+Wed, 03 Jun 2026 21:15:14 GMT
+
+https://www.cbr.com/best-western-rpgs-that-respect-your-time/
+
+Some western RPGs like to bog the adventure down with dozens of side quests, but games like Clair Obscur: Expedition 33 get straight to the point.
+---------
+
+# This 19-Episode ‘Stargate SG-1’ Meets ‘12 Monkeys’ Series Is One of TV’s Best Sci-Fi Shows
+
+TV Features, Odyssey 5, Showtime, Science Fiction, Stargate SG-1
+
+Wed, 03 Jun 2026 22:57:15 GMT
+
+https://collider.com/odyssey-5-underrated-sci-fi-show/
+
+Why Odyssey 5 remains one of the most underrated sci-fi shows ever, blending time travel, AI conspiracies, and strong characters.
+---------
+
+# ‘Solo Leveling’ Season 3 Just Took Its Biggest Step Forward Yet
+
+TV Features, Netflix, Solo Leveling, Crunchyroll, Anime Expo
+
+Wed, 03 Jun 2026 22:57:15 GMT
+
+https://collider.com/solo-leveling-season-3-crunchyroll-series-update/
+
+Crunchyroll CEO Rahul Purini just teased a Solo Leveling Season 3 announcement "soon," which is exciting with Anime Expo 2026 right around the corner.
+---------
+
+# It's Official, a New Kaiju Franchise Is Assembling the Greatest Monster Movie Cast Ever [Exclusive]
+
+Movie News, Godzilla vs. King Ghidorah, Science Fiction, Horror, Action
+
+Wed, 03 Jun 2026 22:30:14 GMT
+
+https://collider.com/kaiju-island-of-fire-casting-update/
+
+Get a first look at the cast of Kaiju: Island of Fire, including stars from Godzilla, Gamera, and classic kaiju films.
+---------
+
+# Netflix's 2-Part Assassin Thriller Quietly Fixed What John Wick Couldn't
+
+Movie Features, Nobody, Nobody 2, Bob Odenkirk, Action
+
+Wed, 03 Jun 2026 22:22:14 GMT
+
+https://collider.com/nobody-bob-odenkirk-movies-netflix-streaming-john-wick/
+
+The John Wick franchise remains unmatched, but Bob Odenkirk's Nobody duology nails something that the Keanu Reeves movies don't.
+---------
+
+# 10 Most Shocking Moments of 'Euphoria' Season 3
+
+TV, Euphoria, HBO, Drama, Zendaya
+
+Wed, 03 Jun 2026 22:03:14 GMT
+
+https://collider.com/euphoria-season-3-shocking-moments-ranked/
+
+HBO's Euphoria, starring Zendaya and Sydney Sweeney, is filled with many jaw-dropping moments, but which scene is the most shocking of Season 3?
+---------
+
+# ‘Euphoria’ Star Adewale Akinnuoye-Agbaje Reveals the Deleted Scenes He Shot With Sydney Sweeney
+
+Exclusives, Adewale Akinnuoye-Agbaje, Euphoria, Sydney Sweeney, Sam Levinson
+
+Wed, 03 Jun 2026 22:00:14 GMT
+
+https://collider.com/euphoria-series-finale-meaning-alamo-rue-adewale-akinnuoye-agbaje/
+
+Euphoria star Adewale Akinnuoye-Agbaje reveals the deleted scenes he shot with Sydney Sweeney and breaks down those shocking finale deaths.
+---------
+
+# Dune Officially Returns This Year With New Must-Have Release Before 'Part 3'
+
+Gaming News, Dune: Part Three, Dune: Prophecy, Dune: Part Two, Dune
+
+Wed, 03 Jun 2026 22:00:14 GMT
+
+https://collider.com/dune-awakening-ps5-release-date-september-22-details/
+
+A new Dune project will be released in September, mere months before the worldwide premiere of Dune: Part Three.
+---------
+
+# Get Ready, the Greatest Fantasy Franchise of the 2010s Is Finally Hitting Netflix
+
+Movie Features, Percy Jackson & The Olympians: The Lightning Thief, Percy Jackson: Sea of Monsters, Percy Jackson & The Olympians, Fantasy
+
+Wed, 03 Jun 2026 21:51:15 GMT
+
+https://collider.com/percy-jackson-movies-streaming-netflix-june/
+
+Percy Jackson & the Olympians: The Lightning Thief and Sea of Monsters arrive on Netflix this June, giving fans a chance to revisit Camp Half-Blood.
+---------
+
+# ‘James Bond’ Meets ‘Inception’ in the $200 Million Sci-Fi Experiment Taking Over the World
+
+Movie News, Tenet, James Bond, Inception, Christopher Nolan
+
+Wed, 03 Jun 2026 21:30:14 GMT
+
+https://collider.com/james-bond-meets-inception-200-million-sci-fi-movie-tenet-streaming-success-june-2026-how-to-watch/
+
+Tenet, the sci-fi movie with shades of James Bond and Inception, is taking over the world on streaming after bombing at the box office.
+---------
+
+# 10 Greatest Steamy Movies Worth Watching Over and Over
+
+Movie, Eyes Wide Shut, The Handmaiden, Body Heat, Basic Instinct
+
+Wed, 03 Jun 2026 21:29:14 GMT
+
+https://collider.com/best-steamy-movies-worth-watching-over-and-over/
+
+From Basic Instinct to The Handmaiden, these endlessly rewatchable steamy movies prove desire is only part of the story.
+---------
+
+# Ridley Scott's Sci-Fi Masterpiece Left Out the Best Part of the Book
+
+Features, Blade Runner, Ridley Scott
+
+Wed, 03 Jun 2026 22:00:19 GMT
+
+https://movieweb.com/blade-runner-missing-book-part/
+
+'Blade Runner' is hailed as one of the best sci-fi movies ever, but it completely bypasses a key part of the source material. Read on for more.
+---------
+
+# 'Weapons' Meets Willy Wonka in One of the Bloodiest Trailers of the Year
+
+Movie News, Ice Cream Man
+
+Wed, 03 Jun 2026 21:47:35 GMT
+
+https://movieweb.com/ice-cream-man-trailer-eli-roth/
+
+Eli Roth's 'Ice Cream Man' looks like it will be the most intense horror movie of the summer.
+---------
+
+# ‘Seinfeld’s Greatest George Costanza Quote Still Lives Rent-Free in Our Heads
+
+Features, Seinfeld, Great Line
+
+Wed, 03 Jun 2026 21:00:19 GMT
+
+https://movieweb.com/seinfeld-george-architect-best-quote/
+
+'Seinfeld' aired for 9 seasons and has many great quotes from George Costanza, played by Jason Alexander.
+---------
+
+# Ridley Scott's Panned Historical Action Epic Slashes Onto Streaming
+
+Movie News, Kingdom of Heaven, Peacock, Coming/Leaving Streaming, Ridley Scott, Action
+
+Wed, 03 Jun 2026 21:00:19 GMT
+
+https://movieweb.com/kingdom-of-heaven-ridley-scott-streaming-peacock-june-2026/
+
+Liam Neeson and Ridley Scott's Certified Rotten historical action 'Gladiator' replacement, 'Kingdom of Heaven,' is streaming on Peacock.
+---------
+
+# Lee Cronin Confirms the Next Monster He Wants to Reboot and 'The Mummy' Future
+
+Movie News, Lee Cronin, Lee Cronin's The Mummy
+
+Wed, 03 Jun 2026 20:35:59 GMT
+
+https://movieweb.com/the-mummy-lee-cronin-sequel-future-plans/
+
+The filmmaker knows how sprawling the mythology of his movie is and what could be explored next.
+---------
+
 # Reacher Season 4 Will Make All Previous Seasons Look Tame
 
 Streaming TV, Reacher
