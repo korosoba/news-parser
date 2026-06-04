@@ -1,3 +1,311 @@
+# Marvel Officially Reveals Wolverine's Costume For His Next Appearance After Deadpool & Wolverine
+
+Streaming TV, Masked Recs
+
+Thu, 04 Jun 2026 22:38:57 GMT
+
+https://screenrant.com/x-men-97-season-2-wolverine-brown-yellow-suit-confirmed/
+
+Wolverine's next appearance after Marvel's Deadpool & Wolverine has been confirmed, and Logan's new suit for the upcoming release might be his best.
+---------
+
+# After 3 Seasons, The Legend Of Vox Machina Finally Adds A New Member
+
+Streaming TV, The Legend of Vox Machina
+
+Thu, 04 Jun 2026 22:30:21 GMT
+
+https://screenrant.com/the-legend-of-vox-machina-new-member-taryon-darrington/
+
+The Legend of Vox Machina has had the same core cast members for three seasons, but season 4 changes the mould by adding a completely new one.
+---------
+
+# It's Officially The Start Of An Era For Taylor Sheridan's Yellowstone
+
+Streaming TV, Masked Recs
+
+Thu, 04 Jun 2026 22:17:20 GMT
+
+https://screenrant.com/marshals-cbs-success-yellowstone-franchise-network-tv/
+
+Taylor Sheridan's Marshals signals a new era in the Yellowstone universe, and it could signal a new era for Paramount+ streaming shows in general.
+---------
+
+# Sherlock Alum's New Detective Mystery Movie Is Officially Releasing In The United States Later This Year
+
+Movies, Martin Freeman
+
+Thu, 04 Jun 2026 22:14:58 GMT
+
+https://screenrant.com/martin-freeman-flavia-united-states-release-date/
+
+Sherlock's Martin Freeman stars in the new mystery movie Flavia, and this film adaptation has secured a release date in the United States.
+---------
+
+# Two The Boys Stars Reunite With A Totally Different Dynamic In Amazon's New Comedy Series
+
+TV, The Boys, Chace Crawford, P.J. Byrne
+
+Thu, 04 Jun 2026 22:06:11 GMT
+
+https://screenrant.com/we-were-once-men-chace-crawford-pj-byrne-the-boys-reunion/
+
+The Boys just ended in May 2026, but two of the actors from the superhero series are staying put at Prime Video with a new black comedy.
+---------
+
+# How The Legend Of Vox Machina Season 4's Time Jump Has Changed The Team's Dynamic Explained By Critical Role
+
+TV, The Legend of Vox Machina, The Legend of Vox Machina - Season 4, Prime Video, Critical Role
+
+Thu, 04 Jun 2026 22:01:20 GMT
+
+https://screenrant.com/legend-vox-machina-season-4-time-jump-team-dynamic-change-critical-role/
+
+Critical Role and Wayne Brady discuss The Legend of Vox Machina season 4, Taryon Darrington's introduction and how the time jump impacts the team.
+---------
+
+# 10 Greatest Comics Written by Women
+
+Comics
+
+Thu, 04 Jun 2026 22:01:20 GMT
+
+https://screenrant.com/best-comics-written-women/
+
+There are so many amazing comic choices in the world, but here are the 10 greatest comics of all time that are written and created by women.
+---------
+
+# Steam 9/10 Lovecraftian Horror Nobody Talks About Is Completely Free
+
+Gaming, Steam, PC, Horror
+
+Thu, 04 Jun 2026 22:01:20 GMT
+
+https://screenrant.com/steam-lovecraft-horror-dagon-hidden-gem-free/
+
+This Lovecraftian Steam game with 95% positive reviews is a serious hidden gem that nobody talks about, and completely free to play.
+---------
+
+# Netflix's 6-Part Neo-Western Is So Good, It Got Renewed For 3 More Seasons After Being Canceled
+
+TV, Masked Recs
+
+Thu, 04 Jun 2026 22:01:20 GMT
+
+https://screenrant.com/longmire-netflix-western-renewed-more-seasons/
+
+A bold move by Netflix breathed new life into a critically acclaimed neo-Western show, doubling its run by three seasons after a sudden cancellation.
+---------
+
+# Netflix's 10-Part Superman Series Quietly Returns To Top Charts As Worldwide Streaming Sensation At The Perfect Time
+
+TV, Masked Recs, Netflix
+
+Thu, 04 Jun 2026 21:49:48 GMT
+
+https://screenrant.com/smallville-streaming-success-worldwide-netflix-june-2026/
+
+A massive Superman TV show is making its way back to the top of the streaming charts for Netflix, and the timing couldn't be better for the series.
+---------
+
+# Game of Thrones: Masters of Intrigue Officially Arrives June 15
+
+Games, Game Of Thrones
+
+Thu, 04 Jun 2026 22:42:02 GMT
+
+https://www.cbr.com/game-of-thrones-masters-of-intrigue-game/
+
+The next big release for the Game of Thrones franchise is coming this month.
+---------
+
+# Masters of the Universe Director Confirms Major Connection to 1980's Flash Gordon
+
+Movies, Masters of the Universe, Flash Gordon
+
+Thu, 04 Jun 2026 22:36:10 GMT
+
+https://www.cbr.com/master-of-the-universe-director-flash-gordon-connection-confirmed/
+
+The director of Masters of the Universe explains how the new feature film connects back to 1980's Flash Gordon in the best possible way.
+---------
+
+# Dragon Ball Finally Brings Back Gohan With New Official First Look
+
+Anime, Dragon Ball, Dragon Ball Z, Shonen Jump
+
+Thu, 04 Jun 2026 22:30:13 GMT
+
+https://www.cbr.com/dragon-ball-gohan-z-fighter-release/
+
+The new Gohan release is available for pre-order and will hit the shelves later this year.
+---------
+
+# 10 Best One Piece Fights of All Time, Ranked
+
+Anime, One Piece, shonen anime, Shonen
+
+Thu, 04 Jun 2026 22:16:12 GMT
+
+https://www.cbr.com/best-one-piece-fights-all-time-ranked/
+
+Across almost 1200 episodes, One Piece has amassed some epic battles, but which are the most memorable?
+---------
+
+# Jason Statham Stole My Bike Officially Sets Release Date
+
+Movies, Jason Statham
+
+Thu, 04 Jun 2026 22:13:20 GMT
+
+https://www.cbr.com/jason-statham-stole-my-bike-release-date/
+
+Jason Statham has wrapped filming on what might be his most bizarre action movie yet.
+---------
+
+# In Just 6 Days, Nicolas Cage's Hit Superhero Series Loses No. 1 to Prime Video's Record-Breaking Show
+
+TV, Spider-Noir, Off Campus
+
+Thu, 04 Jun 2026 22:00:14 GMT
+
+https://www.cbr.com/nicolas-cage-spider-noir-superhero-streaming-success-prime-video-june-2026/
+
+Nicolas Cage's new hit superhero series has already been knocked off the top of the charts by the latest Prime Video streaming sensation
+---------
+
+# Shaquille O'Neal Teams With Archie Comics for New Comic Book Collaboration
+
+Comics, Archie Comics, NBA, comics
+
+Thu, 04 Jun 2026 22:00:14 GMT
+
+https://www.cbr.com/archie-comics-shaquille-oneal-vengeance-unchained-the-legend-of-black-caesar-confirmed/
+
+Archie Comics and basketball legend Shaquille O'Neal team up for a new comic series following a mythological West African pirate.
+---------
+
+# He-Man Director Confirms Unexpected Background Cameo Fans Haven’t Noticed Yet
+
+CBR Exclusives, Masters of the Universe
+
+Thu, 04 Jun 2026 21:56:58 GMT
+
+https://www.cbr.com/he-man-director-hidden-cameos-revealed/
+
+Director Travis Knight confirms one fan-favorite character made their way into Masters of the Universe, although he isn't easy to spot on-screen.
+---------
+
+# Kevin Costner’s Western Box Office Bomb Finds New Life on Streaming as Fans Hope for Sequel
+
+Movies, Horizon: An American Saga - Chapter 1
+
+Thu, 04 Jun 2026 21:41:50 GMT
+
+https://www.cbr.com/kevin-costner-horizon-an-american-saga-streaming-june-2026/
+
+Fans are hopeful that the Western's streaming resurgence will get the ball rolling on the sequel's release.
+---------
+
+# In Just Days, ‘Michael’ Locks in a Spot Among the 100 Highest-Grossing Movies Ever
+
+Movie News, Michael, Box Office, Venom, Colman Domingo
+
+Thu, 04 Jun 2026 22:30:13 GMT
+
+https://collider.com/michael-jackson-biopic-100-highest-grossing-movies-of-all-time/
+
+Antoine Fuqua's musical biopic Michael is set to become one of the 100 highest-grossing movies of all time, with a sequel already in development.
+---------
+
+# 10 Greatest War Video Game Masterpieces of All Time
+
+Video Games, Video Game, War, Battlefield, Ghost of Tsushima
+
+Thu, 04 Jun 2026 22:08:14 GMT
+
+https://collider.com/best-war-video-game-masterpieces-all-time-ranked/
+
+War games like Battlefield and Call of Duty are among the most immersive and thrilling experiences in gaming, cementing their place as masterpieces.
+---------
+
+# Sylvester Stallone’s Greatest Franchise of All Time Is Now Streaming on Netflix
+
+Movie News, Rocky, Sylvester Stallone, Creed, Netflix
+
+Thu, 04 Jun 2026 22:00:14 GMT
+
+https://collider.com/sylvester-stallone-rocky-franchise-streaming-netflix-creed-movies/
+
+Get ready for a thrilling boxing journey as the entire Rocky franchise is now available to stream in one place. Here's how to watch it.
+---------
+
+# 10 Most Perfect Thriller Movies of the Last 40 Years, Ranked
+
+Movie, Thriller, Parasite, The Silence of the Lambs, Se7en
+
+Thu, 04 Jun 2026 21:19:15 GMT
+
+https://collider.com/most-perfect-thriller-movies-last-40-years-ranked/
+
+Suspenseful masterpieces like Se7en, Parasite, and The Silence of the Lambs are all among the greatest thrillers of the last 40 years.
+---------
+
+# 10 Best Westerns To Watch if You Don’t Like the Genre
+
+Movie, The Good, the Bad and the Ugly, Butch Cassidy and the Sundance Kid, Blazing Saddles, Django Unchained
+
+Thu, 04 Jun 2026 21:09:15 GMT
+
+https://collider.com/best-western-movies-for-non-fans/
+
+Even if you don't usually love Westerns, you should still seek out masterpieces like Unforgiven, Once Upon a Time in the West, and The Wild Bunch.
+---------
+
+# Netflix Officially Confirms 'Devil May Cry' is Ending After Season 3
+
+TV News, Devil May Cry
+
+Thu, 04 Jun 2026 22:29:13 GMT
+
+https://movieweb.com/devil-may-cry-season-3-ending-netflix/
+
+The video game adaptation may still have more story to tell.
+---------
+
+# Peacock Officially Lands Perfect 'All Her Fault' Mystery Thriller Replacement Series
+
+TV News, Thriller, Peacock
+
+Thu, 04 Jun 2026 22:01:16 GMT
+
+https://movieweb.com/all-her-fault-creator-new-series-peacock/
+
+The creatives behind the hit thriller are reuniting for another mystery novel adaptation.
+---------
+
+# Missing Original 'Scrubs' Character Has Irreversibly Transformed the Revival
+
+Features, Scrubs
+
+Thu, 04 Jun 2026 22:00:20 GMT
+
+https://movieweb.com/scrubs-revival-transformed-missing-character/
+
+Sam Lloyd's death means Ted hasn't been able to factor into the 'Scrubs' revival, and his absence has been massive. Read for more.
+---------
+
+# Netflix Finds New Global Hit With Taylor Sheridan's Overlooked Western Series
+
+TV News, Lawmen: Bass Reeves, Netflix, Hot on Streaming, Taylor Sheridan
+
+Thu, 04 Jun 2026 22:00:20 GMT
+
+https://movieweb.com/taylor-sheridan-lawman-bass-reeves-streaming-success-netflix-june-2026/
+
+Taylor Sheridan's 'Yellowstone' alternative, 'Lawman: Bass Reeves,' is a global streaming success on Netflix.
+---------
+
 # Netflix’s “Desperate Housewives Meets Sharp Objects” Thriller Is So Good, It's Already Renewed For Season 2
 
 TV, Masked Recs
