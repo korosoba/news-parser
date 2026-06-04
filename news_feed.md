@@ -1,3 +1,399 @@
+# Netflix’s New 3-Part Crime Thriller Is An Easy One-Night Weekend Binge
+
+Streaming TV, Masked Recs
+
+Thu, 04 Jun 2026 19:05:22 GMT
+
+https://screenrant.com/netflix-the-witness-thriller-series-must-watch/
+
+The Witness, Netflix's new 3-part crime thriller series, is an easy one-night binge this weekend following its premiere on Thursday, June 4, 2026.
+---------
+
+# Hogwarts Legacy: Back To Hogwarts Officially Has Gamers Marking Their Calendars
+
+Gaming, Hogwarts Legacy, Harry Potter
+
+Thu, 04 Jun 2026 19:01:23 GMT
+
+https://screenrant.com/hogwarts-legacy-back-to-hogwarts-event-september-2026-hopes/
+
+Harry Potter fans are marking their calendars for a potential Hogwarts Legacy 2 announcement, and the date is quickly approaching. Are you ready?
+---------
+
+# Demon Slayer Infinity Castle Studio's Next Film, Witch on the Holy Night, Gets First Major Tease
+
+Anime
+
+Thu, 04 Jun 2026 18:55:59 GMT
+
+https://screenrant.com/witch-holy-night-first-look-demon-slayer-studio-ufotable/
+
+Ufotable, the anime studio behind the Demon Slayer: Infinity Castle films, just announced a huge tease for their next big upcoming movie.
+---------
+
+# DC Officially Gender-Swaps A Major Batman Villain
+
+Streaming TV, Masked Recs
+
+Thu, 04 Jun 2026 18:55:56 GMT
+
+https://screenrant.com/batman-caped-crusader-season-2-mad-hatter-gender-swapped/
+
+One of DC's Batman projects on TV is coming back with a second season and a twist to a classic villain, who has now been gender-swapped.
+---------
+
+# Hulu's Returning 2-Season Crime Series Officially Becomes Streaming Hit With An Unusual Trend
+
+TV, Masked Recs
+
+Thu, 04 Jun 2026 18:55:08 GMT
+
+https://screenrant.com/deli-boys-season-2-disney-june-2026-streaming-charts/
+
+Hulu's returning 2-season crime series has officially become a streaming hit across the United States, fueled by a highly unusual trend.
+---------
+
+# Amazon's Hit Detective Franchise Can Last Forever Thanks To New Spinoff Plans
+
+TV, Masked Recs
+
+Thu, 04 Jun 2026 18:34:28 GMT
+
+https://screenrant.com/bosch-amazon-detective-franchise-last-forever/
+
+As Prime Video's greatest detective show franchise grows with the announcement of a prequel, the series could potentially last for over a decade.
+---------
+
+# Ellen Pompeo Books Second Project Beyond Grey's Anatomy With New Hulu Series Chicks
+
+TV, Ellen Pompeo
+
+Thu, 04 Jun 2026 18:28:31 GMT
+
+https://screenrant.com/ellen-pompeo-chicks-hulu-series-development/
+
+After decreasing her workload on Grey’s Anatomy, Ellen Pompeo starred on the Hulu limited series Good American Family. Now she’s lined up a new show.
+---------
+
+# Taylor Sheridan's The Madison Season 2 Release Timeline On Paramount+ Gets Major 2026 Update
+
+TV, The Madison
+
+Thu, 04 Jun 2026 18:24:18 GMT
+
+https://screenrant.com/taylor-sheridan-the-madison-season-2-release-window-update/
+
+The Madison season 2's release date gets an exciting update, as lead star and executive producer Michelle Pfeiffer previews Stacy’s next chapter.
+---------
+
+# Sadie Sink Sets First TV Project As Major Book Adaptation After Stranger Things Season 5
+
+TV, Sadie Sink, FX
+
+Thu, 04 Jun 2026 18:17:25 GMT
+
+https://screenrant.com/sadie-sink-the-marriage-plot-show-fx/
+
+Stranger Things and Spider-Man 4 star Sadie Sink has landed her next major TV show, which will be adapting a major book from page to screen.
+---------
+
+# 10 Strongest Autobots in Transformers, Officially Ranked
+
+Anime, Transformers, Transformers: Victory, mecha
+
+Thu, 04 Jun 2026 19:15:13 GMT
+
+https://www.cbr.com/transformers-official-strongest-autobots-anked/
+
+Optimus Prime is far from the strongest Autobot, with several Transformers anime featuring cosmic-powered and time-traveling heroic Cybertronians.
+---------
+
+# Netflix’s 5-Part Sci-Fi Is Officially the Most-Watched Show of the Year in America
+
+TV, Stranger Things
+
+Thu, 04 Jun 2026 19:13:25 GMT
+
+https://www.cbr.com/netflix-most-watched-show-stranger-things-2025-2026/
+
+Nielsen's streaming numbers officially reveal the most-watched TV show in America over the past year.
+---------
+
+# Jujutsu Kaisen Finally Reveals the Truth About Gojo and Geto's Relationship
+
+CBR Exclusives, Jujutsu Kaisen
+
+Thu, 04 Jun 2026 19:08:51 GMT
+
+https://www.cbr.com/kaiji-tang-gojo-and-geto-relationship-status/
+
+Yo, Satoru!
+---------
+
+# Stranger Things Officially Returns With More New Episodes at Netflix This Year
+
+TV, Stranger Things, Stranger Things: Tales from '85, Netflix
+
+Thu, 04 Jun 2026 19:05:04 GMT
+
+https://www.cbr.com/stranger-things-tales-from-85-season-2-netflix-2026/
+
+Stranger Things: Tales From '85 bridged the gap between Seasons 2 and 3 of the main show, and Netflix is delivering more episodes soon.
+---------
+
+# Steven Spielberg's Reboot of a Hit '90s Cartoon Is Hulu's Best-Kept Secret
+
+TV, Animaniacs, Hulu, steven spielberg
+
+Thu, 04 Jun 2026 19:01:14 GMT
+
+https://www.cbr.com/steven-spielberg-hulu-animaniacs-reboot-hidden-gem/
+
+Spielberg might be having a return to form on the big screen, but on streaming, he was already reviving one of the classic cartoons of a bygone age.
+---------
+
+# FF VII Rebirth Nintendo Switch 2 Review
+
+Games, Final Fantasy VII
+
+Thu, 04 Jun 2026 19:01:14 GMT
+
+https://www.cbr.com/final-fantasy-7-rebirth-nintendo-switch-2-review/
+
+Switch 2 adds a juggernaut to its collection with Final Fantasy VII Rebirth that despite some caveats is an impressive port for Nintendo
+---------
+
+# 10 Most Disappointing Movies Of the Last 20 Years, Ranked
+
+Movies, Star Wars: Episode IX - The Rise of Skywalker
+
+Thu, 04 Jun 2026 19:01:14 GMT
+
+https://www.cbr.com/most-disappointing-movies-last-20-years-list/
+
+Not every major movie has lived up to expectations. In fact, many have come to be regarded as some of the biggest disappointments in cinema history.
+---------
+
+# 6 Movies That Tried to Be the Next Pirates of the Caribbean
+
+Movies, Pirates of the Caribbean
+
+Thu, 04 Jun 2026 18:30:18 GMT
+
+https://www.cbr.com/failed-pirates-of-the-caribbean-replacements-list/
+
+Pirates of the Caribbean is one of the biggest Disney franchises of all time, but the studio still hasn't been able to match its success.
+---------
+
+# 47 Years Later, Bill Murray’s First Movie Officially Returns as a TV Reboot With 1 Big Catch
+
+TV, Meatballs
+
+Thu, 04 Jun 2026 18:23:35 GMT
+
+https://www.cbr.com/meatballs-tv-series-reboot/
+
+The movie that turned Bill Murray into a comedy star is getting a modern reimagining with a big change.
+---------
+
+# 7 Most Problematic 2000s Anime, Ranked
+
+Anime, School Days, Black Butler, Azumanga Daioh, Junjo Romantica, Elfen Lied, Love Hina, Chobits, seinen
+
+Thu, 04 Jun 2026 18:15:13 GMT
+
+https://www.cbr.com/most-problematic-2000s-anime-ranked/
+
+Not every 2000s anime has aged well, and these series have more questionable moments than redeeming ones.
+---------
+
+# James Mangold’s Forgotten 3-Part Sci-Fi Thriller Is the Perfect Weekend Binge
+
+TV Features, Sci-Fi, Zoo, James Mangold, CBS
+
+Thu, 04 Jun 2026 18:58:14 GMT
+
+https://collider.com/james-mangold-best-series-cbs-zoo/
+
+Zoo is a sci-fi thriller that started as a chaotic mess and transformed into a critically acclaimed cult hit over three unforgettable seasons.
+---------
+
+# It's Officially the End of an Era for 'Solo Leveling'
+
+TV News, Solo Leveling, The Leveling of Solo Leveling, Netflix
+
+Thu, 04 Jun 2026 18:20:41 GMT
+
+https://collider.com/solo-leveling-ending-print-run-japan-final-volume-release-date/
+
+Solo Leveling is officially ending its Japanese print run after seven years, with the final volume set to release this month.
+---------
+
+# Steam Officially Makes Near-Perfect Sci-Fi Game Completely Free Until June 9
+
+Gaming News, Bungie, Halo 4, Destiny, Gaming
+
+Thu, 04 Jun 2026 18:19:23 GMT
+
+https://collider.com/steam-free-game-marathon-bungie-june-2026/
+
+Halo meets Destiny in a new, near-perfect sci-fi game available to play for free on Steam until June 9. Get the details.
+---------
+
+# America’s Sweethearts: Why Favorite DCC Moments Got Cut | Collider BTS
+
+TV, America’s Sweethearts: Dallas Cowboys Cheerleaders
+
+Thu, 04 Jun 2026 18:15:13 GMT
+
+https://collider.com/video/america-s-sweethearts-why-favorite-dcc-moments-got-cut-collider-bts/
+
+Behind-the-scenes of America’s Sweethearts reveal why favorite Dallas Cowboys Cheerleaders moments were cut, from emotional DCC footage to tough editing choices.
+---------
+
+# 9 Heaviest TV Episodes of the Last 5 Years
+
+TV, Television, The Pitt, Severance, Adolescence
+
+Thu, 04 Jun 2026 18:09:14 GMT
+
+https://collider.com/heaviest-tv-episodes-last-5-years-ranked/
+
+The Pitt, Severance, Adolescence, and Succession have hit audiences with brutal moments over the last 5 years, but which TV episode is the heaviest?
+---------
+
+# Jason Statham's Most Explosive Action Thriller Yet Officially Sets 2027 Release
+
+Movie News, Jason Statham, David Leitch, Shelter, Mutiny
+
+Thu, 04 Jun 2026 17:59:46 GMT
+
+https://collider.com/jason-statham-stole-my-bike-action-movie-release-date-august-6-2027/
+
+Jason Statham Stole My Bike, the hysterically titled action film from David Leitch, now has an official release date.
+---------
+
+# 2026’s Biggest Fantasy Blockbuster Officially Breaks Fandango on Ticket Sale Day
+
+Movie News, The Odyssey, Christopher Nolan, Matt Damon, Fantasy
+
+Thu, 04 Jun 2026 17:41:24 GMT
+
+https://collider.com/the-odyssey-fantasy-epic-tickets-on-sale-fandango-crash-christopher-nolan-imax/
+
+Christopher Nolan fans are overwhelming Fandango while trying to secure IMAX tickets for The Odyssey ahead of next month’s release.
+---------
+
+# ‘Supernatural’ Finale Officially Confirms New Release Date
+
+TV News, Supernatural, Jensen Ackles, Misha Collins, Jared Padalecki
+
+Thu, 04 Jun 2026 17:29:07 GMT
+
+https://collider.com/supernatural-comic-series-finale-release-date-august-2026-dynamite/
+
+The new Supernatural comic series from Dynamite gives Sam and Dean Winchester another finale, with the final issue coming this summer.
+---------
+
+# 6 John Wayne Western Movies That Are Still 10/10 Masterpieces
+
+Movie, John Wayne, Western, The Searchers, Turner Classic Movies
+
+Thu, 04 Jun 2026 17:18:14 GMT
+
+https://collider.com/john-wayne-western-movies-perfect-masterpieces/
+
+Stagecoach, Red River, The Searchers, True Grit, and more make up our list of John Wayne Western movies that are still perfect masterpieces.
+---------
+
+# 7 Best Things To Do at Indiana Comic Convention 2026
+
+Movie, FanX, Nicolas Cage, The Vampire Diaries, X-Men '97
+
+Thu, 04 Jun 2026 17:08:14 GMT
+
+https://collider.com/indiana-comic-convention-2026-best-things-to-do/
+
+From cosplay contests to meeting thee Nicolas Cage, here are the best things to do at the Indiana Comic Convention 2026, taking place June 5 to 7.
+---------
+
+# Lee Cronin Reveals the Truth Behind 'The Mummy's Negative Rotten Tomatoes Scores
+
+Movie News, Lee Cronin, Lee Cronin's The Mummy
+
+Thu, 04 Jun 2026 19:14:38 GMT
+
+https://movieweb.com/the-mummy-lee-cronin-rotten-score-reaction/
+
+The filmmaker offered a candid response about his reaction to his movie earning polarizing reviews.
+---------
+
+# 20th Century's $3.2 Billion Franchise 'Ice Age' Returns in New Trailer
+
+Movie News, Ice Age
+
+Thu, 04 Jun 2026 18:47:54 GMT
+
+https://movieweb.com/ice-age-boiling-point-first-trailer/
+
+The Blue Sky Studios produced series is finally coming back to the big screen.
+---------
+
+# 'NCIS' Season 24 Star Wilmer Valderrama Confirms Major Casting Changes Ahead of Show's Return
+
+TV News, NCIS, Wilmer Valderrama
+
+Thu, 04 Jun 2026 18:17:27 GMT
+
+https://movieweb.com/ncis-season-24-wilmer-valderrama-casting-change/
+
+Wilmer Valderrama addressed major casting changes coming to 'NCIS' ahead of the show's return for Season 24.
+---------
+
+# Prime Video's Batman Series Gives The Joker a Radical New Look
+
+TV News, Batman: Caped Crusader, Prime Video, Batman
+
+Thu, 04 Jun 2026 18:10:45 GMT
+
+https://movieweb.com/batman-caped-crusader-season-2-first-look-joker/
+
+Prime Video has released several images from 'Batman: Caped Crusader' Season 2, offering a first look at The Joker's radical new redesign.
+---------
+
+# Jason Statham Meets 'Reacher' in 100-Minute Action Thriller Now Streaming Free
+
+Movie News, Jason Statham, Homefront, Action, Thriller
+
+Thu, 04 Jun 2026 18:01:19 GMT
+
+https://movieweb.com/jason-statham-homefront-stream-free-june-2026/
+
+The 2013 action outing 'Homefront' finds Statham playing a father fighting for a quiet life.
+---------
+
+# 8 "Modern War" Movies That Are Already Classics
+
+Movie Lists, War
+
+Thu, 04 Jun 2026 18:01:19 GMT
+
+https://movieweb.com/modern-war-movies-classics/
+
+These war movies are already modern classics and tell meaningful stories with more than just action scenes.
+---------
+
+# Alan Ritchson Flies High in Explosive New Poster for 'Reacher'-Esque Action Thriller
+
+Movie News, Alan Ritchson, Motor City
+
+Thu, 04 Jun 2026 17:48:34 GMT
+
+https://movieweb.com/alan-ritchson-motor-city-new-poster/
+
+Alan Ritchson is out for blood is the high-flying new look at his upcoming action thriller 'Motor City.'
+---------
+
 # Criminal Minds Season 19 Solves Its Voit Problem Before It Totally Ruins Evolution
 
 Network TV, Criminal Minds
