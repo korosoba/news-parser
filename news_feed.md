@@ -1,3 +1,322 @@
+# Netflix’s “Desperate Housewives Meets Sharp Objects” Thriller Is So Good, It's Already Renewed For Season 2
+
+TV, Masked Recs
+
+Thu, 04 Jun 2026 21:02:20 GMT
+
+https://screenrant.com/the-hunting-wives-netflix-thriller-season-2-future/
+
+A rare achievement: Netflix's murder mystery thriller proved so popular that the novel adaptation received a second season without a book sequel.
+---------
+
+# Jared Leto Smeared "Blood" On His Face To Terrify Masters Of The Universe Cast As Skeletor
+
+Movies, Masters of the Universe, Jared Leto
+
+Thu, 04 Jun 2026 21:00:29 GMT
+
+https://screenrant.com/masters-of-the-universe-skeletor-terrifying-jared-leto-extreme-measure/
+
+EXCLUSIVE: Director Travis Knight opens up about working with Jared Leto on Masters of the Universe and reveals why he smeared “blood” on his face.
+---------
+
+# The Rings Of Power's Next 2 Seasons Will Redefine Sauron For LOTR Fans
+
+Streaming TV, The Lord of the Rings: The Rings of Power
+
+Thu, 04 Jun 2026 21:00:21 GMT
+
+https://screenrant.com/the-rings-of-power-seasons-3-4-redefine-sauron/
+
+After The Rings of Power's Sauron reveal, the Prime Video series is now exploring his past, and this will change the game for Lord of the Rings fans.
+---------
+
+# It's Officially The End Of An Era For Marvel And PlayStation
+
+Gaming, Marvel's Wolverine, Wolverine, Triple-A Games
+
+Thu, 04 Jun 2026 21:00:21 GMT
+
+https://screenrant.com/marvels-wolverine-collectors-edition-insomniac-tradition/
+
+Marvel's Wolverine revealed new gameplay, as well as pre-order bonuses and a special edition, but fans will be sad to see that one edition is absent.
+---------
+
+# The Vampire Lestat Review: Interview With The Vampire's Dazzling, Emotional Reinvention
+
+Streaming TV, The Vampire Lestat, Interview with the Vampire, Immortal Universe
+
+Thu, 04 Jun 2026 21:00:19 GMT
+
+https://screenrant.com/the-vampire-lestat-tv-review/
+
+The Vampire Lestat brings all the pomp and circumstance of its lead immortal to the forefront in this complex, emotional, music-driven drama.
+---------
+
+# Harry Potter Meets The Witcher In Syfy's 5-Part Fantasy Show With Near-Perfect RT Score
+
+Classic TV, Masked Recs
+
+Thu, 04 Jun 2026 20:46:20 GMT
+
+https://screenrant.com/the-magicians-show-syfy-harry-potter-meets-the-witcher/
+
+One of the best fantasy series of the century is a criminally-overlooked gem that draws upon franchise favorites like Harry Potter and The Witcher.
+---------
+
+# Prime Video's Batman Show Officially Reveals Its Robin Design With Major Adam West Callback
+
+Streaming TV, Masked Recs
+
+Thu, 04 Jun 2026 20:36:20 GMT
+
+https://screenrant.com/batman-caped-crusader-season-2-robin-carrie-kelley-gray-ghost/
+
+In the lead up to Batman: Caped Crusader season 2, Prime Video has officially revealed its Robin design, giving a callback to Batman actor Adam West.
+---------
+
+# Prime Video's 4-Part Action Show Is So Good, You Can Start From Any Season
+
+TV, Masked Recs
+
+Thu, 04 Jun 2026 20:33:20 GMT
+
+https://screenrant.com/jack-ryan-amazon-prime-show-start-from-any-season/
+
+Dive into the world of Prime Video's action thriller where each season stands alone, making every outing perfect for newcomers and long-time fans.
+---------
+
+# The Mandalorian And Grogu’s Box Office Is Disappointing, But The Next Star Wars Movie Can Redeem It
+
+Star Wars, The Mandalorian and Grogu
+
+Thu, 04 Jun 2026 20:30:22 GMT
+
+https://screenrant.com/mandalorian-grogu-box-office-next-star-wars-movie/
+
+The Mandalorian and Grogu is underperforming at the box office, but the Star Wars franchise still has plenty of hope in this regard moving forward.
+---------
+
+# Scary Movie 6 Brings Back Cindy And Brenda For A Messy Horror Revival | REVIEW
+
+Movies, Scary Movie, Originals
+
+Thu, 04 Jun 2026 20:29:26 GMT
+
+https://screenrant.com/video/scary-movie-6-brings-back-cindy-and-brenda-for-a-messy-horror-revival-review/
+
+Scary Movie 6 reunites fan-favorite duo Cindy and Brenda for a nostalgia-fueled horror comedy revival that lampoons modern horror hits, but uneven jokes and messy storytelling keep the franchise’s long-awaited return from fully landing.
+---------
+
+# Universal's $7.4B High-Octane Action Franchise Returns as a Peacock Streaming Hit Ahead of Final Entry
+
+Movies, The Fast and the Furious, Fast Forever
+
+Thu, 04 Jun 2026 21:01:13 GMT
+
+https://www.cbr.com/fast-and-furious-action-success-peacock-june-2026/
+
+One of the biggest (and fastest) action film franchises in history is outpacing the streaming competition before reaching its ultimate finish line.
+---------
+
+# 5 Strongest Characters in the Avatar Movies, Ranked By Power Level
+
+Movies, Avatar, Avatar: Fire and Ash, Sci-Fi
+
+Thu, 04 Jun 2026 21:01:13 GMT
+
+https://www.cbr.com/strongest-characters-avatar-movies-ranked-list/
+
+Avatar has been a runaway sci-fi franchise and it features many incredible characters, some who are beyond powerful.
+---------
+
+# Sadie Sink Officially Lands First TV Role Since Stranger Things Ended
+
+TV, FX
+
+Thu, 04 Jun 2026 20:37:46 GMT
+
+https://www.cbr.com/sadie-sink-fx-hulu-the-marriage-plot/
+
+Spider-Man: Brand New Day's Sadie Sink is heading back to the small screen for her next major role.
+---------
+
+# HBO's Hit 3-Season Period Drama Shoots to No. 8 Ahead of Season 4
+
+TV, The Gilded Age, hbo
+
+Thu, 04 Jun 2026 20:33:12 GMT
+
+https://www.cbr.com/the-gilded-age-drama-success-hbo-max-june-2026/
+
+One of the most beloved period dramas of an entire generation is making its way up the streaming charts ahead of its hotly-anticipated fourth season.
+---------
+
+# It's Officially the End of an Era for Game of Thrones
+
+TV, Game Of Thrones, Fantasy, The Stormlight Archive
+
+Thu, 04 Jun 2026 20:31:13 GMT
+
+https://www.cbr.com/game-of-thrones-vs-the-stormlight-archive/
+
+Game of Thrones is about to get some stiff competition in the form of a brand-new fantasy series with a massive built-in following.
+---------
+
+# 5 Forgotten Clint Eastwood Movies That Are Perfect From Start to Finish
+
+Movies, Clint Eastwood
+
+Thu, 04 Jun 2026 20:31:13 GMT
+
+https://www.cbr.com/best-clint-eastwood-movies-no-one-remembers-list/
+
+Clint Eastwood's biggest hits get all the attention, but these forgotten movies showcase some of his strongest acting and directing work.
+---------
+
+# 5 Classic Anime Officially More Brutal Than Chainsaw Man
+
+Anime, Chainsaw Man, Gantz, shonen anime, Shonen, Berserk
+
+Thu, 04 Jun 2026 20:15:19 GMT
+
+https://www.cbr.com/classic-anime-more-brutal-than-chainsaw-man/
+
+Chainsaw Man is one of this decade's biggest and most brutal anime, but classic titles like Devil Lady and Genocyber beat it at its own game.
+---------
+
+# Kevin Costner's Horizon: An American Saga Is the Perfect Western Movie
+
+Movies, Western, Horizon: An American Saga - Chapter 1, kevin costner
+
+Thu, 04 Jun 2026 20:00:14 GMT
+
+https://www.cbr.com/kevin-costner-horizon-american-saga-western-movie-event-of-decade/
+
+Kevin Costner has remained a stalwart champion of the Western genre for four decades, and his recent epic is his most ambitious project yet.
+---------
+
+# Transformers Gives Bumblebee and Waspinator Adorable Makeovers in New First Look
+
+Anime, Transformers, Beast Wars: Transformers, Transformers: Rise of the Beasts, merchandise
+
+Thu, 04 Jun 2026 20:00:14 GMT
+
+https://www.cbr.com/transformers-prototypes-bumblebee-waspinator-reveal/
+
+Both Bumblebee and Waspinator are set to receive adorable new toys, with prototypes now revealed for these adorable Transformers action figures.
+---------
+
+# The 'Best Straight-Up Martial Arts Flick in Years' With 100% RT Hits Theaters This Month
+
+Movies, The Furious
+
+Thu, 04 Jun 2026 19:45:45 GMT
+
+https://www.cbr.com/the-furious-hits-theaters-june-2026/
+
+The action movie event of the year is happening this month.
+---------
+
+# 8 Unanswered 'Project Hail Mary' Questions Andy Weir's Novel Explained
+
+Movie, Project Hail Mary, Ryan Gosling, Books, Science Fiction
+
+Thu, 04 Jun 2026 20:57:13 GMT
+
+https://collider.com/project-hail-mary-questions-book-answers/
+
+Before Project Hail Mary was a movie, it was a novel by Andy Weir, which included a lot of explanatory details that did not make it into the film.
+---------
+
+# The Simpsons Officially Drops New Animated Short With an Iconic Game Twist
+
+TV Features, The Simpsons, Monopoly, Fox, Will Ferrell
+
+Thu, 04 Jun 2026 20:07:13 GMT
+
+https://collider.com/the-simpsons-new-animated-short-iconic-game-monopoly-go/
+
+The Simpsons' collaboration with Monopoly Go! launched with a surprisingly great animated short, setting the standard for a brand tie-in that doesn't
+---------
+
+# 7 Most Addictive Thriller Shows of the 21st Century, Ranked
+
+TV, How to Get Away With Murder, Severance, Thriller, Bad Sisters
+
+Thu, 04 Jun 2026 19:52:15 GMT
+
+https://collider.com/most-addictive-thriller-shows-21st-century-ranked/
+
+Bad Sisters, Yellowjackets, Barry, How to Get Away With Murder, and more make up our list of the most addictive thriller shows of the 21st century.
+---------
+
+# 10 Best Monsters in Sci-Fi Movies
+
+Movie, Science Fiction, Alien, The Thing
+
+Thu, 04 Jun 2026 19:33:14 GMT
+
+https://collider.com/best-monsters-sci-fi-movies-ranked/
+
+From the mystery of Cloverfield's Clover to the changing fury of the alien xenomorph, these are the best and most memorable monsters in sci-fi movies.
+---------
+
+# Anna Faris Reveals MAGA Joke That Was Cut From 'Scary Movie'
+
+Movie News, Scary Movie, Anna Faris
+
+Thu, 04 Jun 2026 20:22:37 GMT
+
+https://movieweb.com/anna-faris-reveals-maga-cut-from-scary-movie/
+
+The star of the upcoming parody movie spoke to MovieWeb about one joke that didn't make it into the movie.
+---------
+
+# Jason Statham's New Action Comedy From 'John Wick’ Director Officially Sets Release Date
+
+Movie News, Jason Statham
+
+Thu, 04 Jun 2026 20:13:59 GMT
+
+https://movieweb.com/jason-statham-stole-my-bike-summer-2027-release/
+
+Statham reteams with 'The Fast & the Furious Presents: Hobbs & Shaw' director David Leitch.
+---------
+
+# Nicole Kidman's Twisted 99-Minute Hitchcockian Thriller Hits HBO Max
+
+Movie News, Stoker, Thriller, Nicole Kidman, HBO Max
+
+Thu, 04 Jun 2026 20:00:21 GMT
+
+https://movieweb.com/stoker-streaming-hbo-max-june-2026/
+
+Director Park Chan-Wook delivers the best psychological thriller you've never seen.
+---------
+
+# 10 Facts Everyone Always Gets Wrong About Star Wars
+
+Movie Lists, Star Wars
+
+Thu, 04 Jun 2026 20:00:21 GMT
+
+https://movieweb.com/star-wars-facts-everyone-gets-wrong/
+
+With nearly 50 years of history and a vast expanded universe, there’s a lot to know about Star Wars. Here are 10 pieces of trivia everyone gets wrong.
+---------
+
+# Christopher Nolan's 'The Odyssey' Gets Official Rating From MPA Ahead of Release
+
+Movie News, The Odyssey, Christopher Nolan
+
+Thu, 04 Jun 2026 19:48:24 GMT
+
+https://movieweb.com/the-odyssey-christopher-nolan-official-rating/
+
+Christopher Nolan's 'The Odyssey' will come to theaters with a surprising rating given by the Motion Picture Association.
+---------
+
 # Netflix’s New 3-Part Crime Thriller Is An Easy One-Night Weekend Binge
 
 Streaming TV, Masked Recs
