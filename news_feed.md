@@ -1,3 +1,443 @@
+# Criminal Minds Season 19 Solves Its Voit Problem Before It Totally Ruins Evolution
+
+Network TV, Criminal Minds
+
+Thu, 04 Jun 2026 16:45:20 GMT
+
+https://screenrant.com/criminal-minds-evolution-season-19-episode-3-voit-problem-solve/
+
+Criminal Minds: Evolution explores how using Elias Voit to assist the BAU could be the best path forward, solving the series' long-standing problem.
+---------
+
+# Forza Horizon 6 Snack Attack: Where To Find Vending Machines
+
+Gaming, Forza Horizon 6
+
+Thu, 04 Jun 2026 16:32:48 GMT
+
+https://screenrant.com/forza-horizon-6-snack-attack-where-to-find-vending-machines/
+
+If you're trying to complete the Snack Attack collectibles challenge, we'll tell you where to find vending machines below.
+---------
+
+# Tomb Raider: Legacy Of Atlantis Facing Boycott From Unhappy Gamers
+
+Gaming, Tomb Raider: Legacy of Atlantis, Tomb Raider, Triple-A Games, PC
+
+Thu, 04 Jun 2026 16:31:49 GMT
+
+https://screenrant.com/tomb-raider-legacy-atlantis-boycott-ai/
+
+Tomb Raider: Legacy of Atlantis just revealed a brand-new trailer, but along with a delay, some accompanying news is less exciting for fans.
+---------
+
+# House Of The Dragon Season 4 Episode Count & Filming Window Teased For "Biggest" Game Of Thrones Spinoff Finale
+
+TV, House of the Dragon, Game of Thrones
+
+Thu, 04 Jun 2026 16:31:26 GMT
+
+https://screenrant.com/house-of-the-dragon-season-4-episode-count-filming-window-plans-ryan-condal/
+
+House of the Dragon season 4 gets an update from executive producer Ryan Condal, pulling back the curtain on the episode count and scale.
+---------
+
+# Hacks Is Over, But The Final Episode Promises A Sequel
+
+Streaming TV, Hacks
+
+Thu, 04 Jun 2026 16:30:22 GMT
+
+https://screenrant.com/hacks-finale-sequel-series-spinoff-setup/
+
+Hacks has come to an end with the perfect series finale, but that last episode may have set up a much-needed spinoff for Jimmy and Kayla.
+---------
+
+# Scary Movie Review: Aimless Legacy Horror Parody Cuts With A Dull Blade
+
+Movies, Scary Movie
+
+Thu, 04 Jun 2026 16:28:35 GMT
+
+https://screenrant.com/scary-movie-6-2026-review/
+
+While there are some funny gags and performances to be found in the film, the Scary Movie revival leans too much into broad comedy to be effective.
+---------
+
+# NCIS’s Sean Murray Gets Candid About Replacing Mark Harmon’s Gibbs
+
+Network TV, NCIS
+
+Thu, 04 Jun 2026 16:22:42 GMT
+
+https://screenrant.com/ncis-replacing-mark-harmon-gibbs-sean-murray/
+
+Five years after Mark Harmon's exit from NCIS, Sean Murray offers his candid thoughts about replacing Leroy Jethro Gibbs in the CBS procedural.
+---------
+
+# The Ice Age Is Over In First Trailer For 6th Franchise Movie Boiling Point
+
+Movies, Ice Age: Boiling Point, Ice Age
+
+Thu, 04 Jun 2026 16:17:16 GMT
+
+https://screenrant.com/ice-age-6-boiling-point-movie-trailer/
+
+Disney teases what fans can expect from Manny, Sid and the rest of the fan-favorite characters in the Ice Age: Boiling Point teaser trailer.
+---------
+
+# Hulu’s Best K-Drama Of 2026 Is ‘The Prince & Me Meets Bridgerton’ (#2 Trending Worldwide)
+
+Streaming TV, Masked Recs
+
+Thu, 04 Jun 2026 16:15:18 GMT
+
+https://screenrant.com/perfect-crown-hulu-k-drama-alternate-history/
+
+Korean dramas have some of the best love stories on television, but the newest streaming sensation is a captivating royal romance for the ages.
+---------
+
+# Hulu Officially Remaking Underseen R-Rated Murder Mystery Movie 6 Years Later
+
+TV, Hulu, The Kid Detective
+
+Thu, 04 Jun 2026 16:07:44 GMT
+
+https://screenrant.com/hulu-the-kid-detective-tv-remake-development-details/
+
+An underseen and underrated murder mystery, headlined by Adam Brody, is getting another look six years after quietly releasing in theaters.
+---------
+
+# After 13 Years, Scary Movie Returns With a Ghastly RT Score
+
+Movies, Scary Movie
+
+Thu, 04 Jun 2026 16:30:24 GMT
+
+https://www.cbr.com/scary-movie-6-rotten-tomatoes-score/
+
+Scary Movie 6 revives the horror comedy franchise with an unfortunate Rotten Tomatoes score.
+---------
+
+# Solo Leveling Manhwa Finally Gives Liu Zhigang a Real Fight
+
+Anime, Solo Leveling, Solo Leveling:ARISE
+
+Thu, 04 Jun 2026 16:21:13 GMT
+
+https://www.cbr.com/solo-leveling-arise-hunter-origin-liu-zhigang-backstory-power-scaling/
+
+Solo Leveling’s latest manhwa chapter reveals the true power of Chinese National Level Hunter Liu Zhigang, the #2 rated Hunter under Thomas Andre.
+---------
+
+# 5 Greatest Anime of the Last 5 Years, Ranked
+
+Anime, Frieren: Beyond Journey's End, Attack On Titan
+
+Thu, 04 Jun 2026 16:15:12 GMT
+
+https://www.cbr.com/greatest-anime-last-5-years-ranked/
+
+The past five years have produced some of the most impressive anime that have already earned a place among the medium’s best.
+---------
+
+# James Gunn Officially Confirms the DCU's Superman Timeline
+
+Movies, Man of Tomorrow, DCU
+
+Thu, 04 Jun 2026 16:01:43 GMT
+
+https://www.cbr.com/man-of-tomorrow-dcu-superman-timeline-james-gunn/
+
+Ahead of Supergirl and Man of Tomorrow, James Gunn reveals where the superhero movies fit into the DC Universe timeline.
+---------
+
+# Stephen King Officially Revives His 'Unfilmable' Dark Fantasy Franchise Ahead of Prime Video Series
+
+TV, Stephen King, The Talisman, The Dark Tower
+
+Thu, 04 Jun 2026 16:00:14 GMT
+
+https://www.cbr.com/stephen-king-talisman-trilogy-other-worlds-than-these/
+
+Stephen King revisits one of his biggest franchises ahead of Prime Video's upcoming TV series adaptation.
+---------
+
+# DC Comics Officially Replaces Batman's Famous Bat-Signal
+
+Comics, Batman
+
+Thu, 04 Jun 2026 16:00:14 GMT
+
+https://www.cbr.com/batman-10-bat-signal-replacement/
+
+How will Gotham summon The Dark Knight now?
+---------
+
+# Overhated & Underrated: Jordan Peele's Most Devisive Film Still Gets Too Much Hate
+
+Movies, Overhated & Underrated
+
+Thu, 04 Jun 2026 16:00:14 GMT
+
+https://www.cbr.com/overhated-underrated-nope/
+
+Jordan Peele has redefined horror films for hte modern age, but his most ambitious film still gets too much negative attention.
+---------
+
+# Matt Damon's $252M John Wayne Western Remake Is Finally Available on Paramount+
+
+Movies, True Grit
+
+Thu, 04 Jun 2026 15:45:46 GMT
+
+https://www.cbr.com/true-grit-2010-streaming-paramount-plus-june-2026/
+
+One of the most critically-acclaimed John Wayne remakes of the past two decades is now available for streaming on one of the biggest platforms.
+---------
+
+# Owain Rhys Davies, Twin Peaks and the OA Actor, Dies at 44
+
+TV, Twin Peaks, The OA
+
+Thu, 04 Jun 2026 15:20:24 GMT
+
+https://www.cbr.com/owain-rhys-davies-dead-44/
+
+Fan-favorite stage actor, The OA guest star, and Twin Peaks: The Return featured actor Owain Rhys Davies passes away at the age of 44.
+---------
+
+# Transformers Officially Gives Optimus Prime Upgrade Fans Waited 40 Years For July 2026
+
+Anime, Transformers
+
+Thu, 04 Jun 2026 15:18:13 GMT
+
+https://www.cbr.com/transformers-robosen-elite-optimus-prime-trailer-kit-july-2026/
+
+After four decades, Optimus Prime is finally getting an essential upgrade.
+---------
+
+# Christopher Nolan's 'The Odyssey' Is Officially His Second Longest Film Ever
+
+Movie News, Christopher Nolan, The Odyssey, Oppenheimer, The Films of Christopher Nolan
+
+Thu, 04 Jun 2026 16:45:02 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-runtime-confirmed-2-hours-52-minutes/
+
+Christopher Nolan's The Odyssey runtime has reportedly been revealed, making the highly anticipated fantasy epic slightly shorter than Oppenheimer.
+---------
+
+# 10 Years Later, Ice Age Officially Returns in Explosive First Teaser
+
+Movie News, Ice Age: Boiling Point, Ice Age, Ray Romano, John Leguizamo
+
+Thu, 04 Jun 2026 16:40:11 GMT
+
+https://collider.com/disney-ice-age-6-boiling-point-teaser-trailer-ray-romano-john-leguizamo/
+
+Ice Age is officially back, as Disney has released the first trailer for the franchise's sixth movie just in time for Toy Story 5.
+---------
+
+# Rock’s Biggest 1992 Summer Tour Was a Disaster
+
+Music Features, Metallica, Guns N' Roses, Music, Metal, James Hetfield
+
+Thu, 04 Jun 2026 16:10:15 GMT
+
+https://collider.com/rocks-biggest-1992-summer-tour-was-a-disaster/
+
+Guns N' Roses and Metallica teamed up for a tour that was an unmitigated disaster.
+---------
+
+# Marvel's Most Underrated Villain Team Officially Slithers Into Magic: The Gathering [Exclusive]
+
+Exclusives, Magic: The Gathering, Marvel
+
+Thu, 04 Jun 2026 16:00:15 GMT
+
+https://collider.com/magic-the-gathering-marvel-super-heroes-serpent-society-card-reveal/
+
+See Marvel's Serpent Society card from Magic: The Gathering | Marvel Super Heroes, featuring deathtouch, poison counters, and sacrifice effects.
+---------
+
+# Prime Video’s 2-Part Spy Thriller Is Quietly Becoming a Streaming Sensation
+
+TV Features, Citadel, Priyanka Chopra Jonas, Richard Madden, Prime Video
+
+Thu, 04 Jun 2026 15:49:14 GMT
+
+https://collider.com/prime-video-citadel-season-2-spy-thriller-streaming/
+
+Prime Video's Citadel is climbing streaming charts with its thrilling second season, offering high-stakes action and genre clichés that fans love.
+---------
+
+# Every MCU Show, Ranked by Action
+
+TV, MCU, Daredevil: Born Again, WandaVision, Wonder Man
+
+Thu, 04 Jun 2026 15:36:14 GMT
+
+https://collider.com/mcu-shows-action-ranked/
+
+From the genre-blending miniseries WandaVision to the thrilling crime drama Daredevil: Born Again, which MCU series is the most action-packed?
+---------
+
+# Netflix Officially Ends Beloved Video Game Series
+
+TV News, Devil May Cry, Netflix, Animation, Adi Shankar
+
+Thu, 04 Jun 2026 15:33:27 GMT
+
+https://collider.com/devil-may-cry-season-3-renewed-final-season-netflix/
+
+Netflix has renewed Devil May Cry for a third and final season, which showrunner Adi Shankar says will complete The Force Edge Saga.
+---------
+
+# In Just 1 Episode, 'Criminal Minds: Evolution' Reminds Viewers How Chilling the Show Can Be | Review
+
+TV Reviews, Criminal Minds, Paramount Plus, Zach Gilford, A.J. Cook
+
+Thu, 04 Jun 2026 15:30:14 GMT
+
+https://collider.com/criminal-minds-evoution-season-4-episode-3-recap-review/
+
+Elias Voit's true intentions are more unsettling than ever in the latest episode of Criminal Minds: Evolution.
+---------
+
+# Divisive New God of War Game Gets Called Out by... Domino's Pizza
+
+Gaming News, God of War, Deborah Ann Woll, Video Game
+
+Thu, 04 Jun 2026 15:29:04 GMT
+
+https://collider.com/new-god-of-war-game-laufey-no-kratos-fan-reactions-dominos-pizza-sony-studio-response/
+
+Sony’s divisive new God of War game, Laufey, was unexpectedly called out by Domino's Pizza as fans react to the lack of Kratos.
+---------
+
+# Survival Thriller Sequel Officially Sets Release Date With a Vertigo-Inducing First Trailer
+
+Movie News, Fall, Fall 2: Deadpoint, Horror, Lionsgate
+
+Thu, 04 Jun 2026 15:00:14 GMT
+
+https://collider.com/new-survival-thriller-fall-2-deadpoint-teaser-trailer-release-date-lionsgate/
+
+Fall 2: Deadpoint unleashes a new terrifying teaser trailer, as Lionsgate sets a September release date for the survival thriller sequel.
+---------
+
+# 'Toy Story 5' Rating Breaks 30-Year Streak for Disney Franchise
+
+Movie News, Toy Story 5, Toy Story, Pixar
+
+Thu, 04 Jun 2026 16:09:42 GMT
+
+https://movieweb.com/toy-story-5-rating-pixar-disney/
+
+Every 'Toy Story' movie thus far has been rated 'G.' That ends with 'Toy Story 5.'
+---------
+
+# Prime Video's Raunchy R-Rated Hit Topples New Superhero Smash on Streaming
+
+TV News, Off Campus, Spider-Noir, Hot on Streaming, Prime Video
+
+Thu, 04 Jun 2026 16:00:21 GMT
+
+https://movieweb.com/off-campus-beats-spider-noir-prime-video-streaming-june-2026/
+
+After taking the top spot on Prime Video earlier this week, 'Spider-Noir' has already fallen to Prime's new 'Heated Rivalry' replacement.
+---------
+
+# I Need Greta Gerwig to Keep Daniel Craig's 'Narnia' Villain True to the Books
+
+Features, Narnia: The Magician's Nephew, Netflix, Greta Gerwig, Daniel Craig, The Chronicles of Narnia, Fantasy
+
+Thu, 04 Jun 2026 16:00:21 GMT
+
+https://movieweb.com/narnia-greta-gerwig-daniel-craig-villain-books/
+
+Greta Gerwig's upcoming 'Narnia' movie will likely be amazing, but the director needs to be careful when it comes to this character's book story.
+---------
+
+# 'Scary Movie' Rotten Tomatoes Score Officially Reveals If Sequel Is Dead on Arrival
+
+Movie News, Scary Movie, Rotten Tomatoes
+
+Thu, 04 Jun 2026 15:54:34 GMT
+
+https://movieweb.com/scary-movie-rotten-tomatoes-score/
+
+Rotten Tomatoes officially revealed its critics score for 2026's 'Scary Movie,,' the sixth film in the horror-comedy franchise.
+---------
+
+# Hugh Laurie Cast in John le Carré Anti-James Bond Spy Series 'Legacy of Spies'
+
+TV News, Hugh Laurie, The Night Manager, Matthew Macfadyen
+
+Thu, 04 Jun 2026 15:38:36 GMT
+
+https://movieweb.com/hugh-laurie-legacy-of-spies-cast/
+
+Hugh Laurie has joined the cast of BBC and MGM+ spy series 'Legacy of Spies' in a secret role, returning to the world of John le Carré.
+---------
+
+# This Ryan Gosling Thriller Is Based on a Chilling True Story
+
+Features, Ryan Gosling, All Good Things
+
+Thu, 04 Jun 2026 15:00:20 GMT
+
+https://movieweb.com/ryan-gosling-thriller-all-good-things-based-on-a-true-story/
+
+Ryan Gosling and Kirsten Dunst starred in this underrated film that hides a baffling true case.
+---------
+
+# ‘Birdman’ Ending, Explained by Director Alejandro González Iñárritu
+
+Features, Birdman, Alejandro González Iñárritu, Michael Keaton
+
+Thu, 04 Jun 2026 15:00:20 GMT
+
+https://movieweb.com/birdman-ending-director-explaination/
+
+Everyone has theories about what the ending to 'Birdman' really means. Director Iñárritu gave some insight (and he isn't taking sides).
+---------
+
+# 'Fall 2: Deadpoint' Trailer Teases New Terror in Even "Deadlier" Sequel
+
+Movie News, Fall 2: Deadpoint, Fall
+
+Thu, 04 Jun 2026 15:00:19 GMT
+
+https://movieweb.com/fall-2-deadpoint-trailer/
+
+Lionsgate has released the first trailer for 'Fall 2: Deadpoint,' teasing an even "deadlier" survival thriller sequel.
+---------
+
+# Prime Video Finds New Action Thriller Hit With 97-Minute 'Die Hard' Knockoff
+
+Movie News, Cleaner, Action, Thriller, Prime Video
+
+Thu, 04 Jun 2026 14:30:20 GMT
+
+https://movieweb.com/prime-video-cleaner-stream-june-2026/
+
+The 2025 action thriller finds a seemingly mild-mannered cleaner fighting to save 300 hostages in a high-rise building.
+---------
+
+# Quentin Tarantino Slams Hollywood but Endorses New Netflix Action Thriller
+
+Movie News, Quentin Tarantino, The Rip
+
+Thu, 04 Jun 2026 14:25:13 GMT
+
+https://movieweb.com/quentin-tarantino-slams-hollywood-praises-the-rip-netflix/
+
+Quentin Tarantino has labeled modern Hollywood a "flavorless sausage factory," but highlighted one exception on Netflix that he managed to enjoy.
+---------
+
 # Fallout Officially Returns With Brand-New Release For Gamers
 
 Gaming, Fallout, Fallout 76, PC, Fallout 4
