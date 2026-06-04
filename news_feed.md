@@ -1,3 +1,377 @@
+# Hulu's Stunning 2024 Dark Fantasy Legal Thriller Just Got Better With Season 2 & Star Return Confirmed
+
+TV, Hulu, Masked Recs
+
+Thu, 04 Jun 2026 01:30:21 GMT
+
+https://screenrant.com/hulu-dark-fantasy-legal-thriller-judge-from-hell-season-2-return/
+
+Park Shin-hye is on a hot streak lately, with an exciting return to one of her most iconic roles ever in 2027.
+---------
+
+# Netflix's 2-Part Crime Thriller Was So Good, It Got 3 Extra Seasons & Multiple Spinoffs
+
+Classic TV, Masked Recs
+
+Thu, 04 Jun 2026 01:30:21 GMT
+
+https://screenrant.com/netflix-money-heist-more-seasons-spinoffs/
+
+This Netflix crime thriller series was only supposed to have two seasons, but it ended up getting three extra ones and multiple spinoffs.
+---------
+
+# Game Of Thrones Is Officially Back, Better Than Ever
+
+Streaming TV, Game of Thrones
+
+Thu, 04 Jun 2026 01:00:21 GMT
+
+https://screenrant.com/game-of-thrones-franchise-back-better-than-ever/
+
+Game of Thrones went through a downward spiral with its divisive ending, but 2026 officially brings this franchise back to the top.
+---------
+
+# 34 Years Later, Crunchyroll's Best '90s Anime Is Still The Hit Shonen That's Dragon Ball Meets Jujutsu Kaisen
+
+Anime, Crunchyroll
+
+Thu, 04 Jun 2026 01:00:21 GMT
+
+https://screenrant.com/yuyu-hakusho-1992-best-anime-dragon-ball-meets-jujutsu-kaisen/
+
+The 1990s Dragon Ball and Jujutsu Kaisen predecessor that set the stage for modern shonen deserves more recognition for its influence on the genre.
+---------
+
+# A Critical Role Actor Now Canonically Exists In The Legend Of Vox Machina
+
+Streaming TV, The Legend of Vox Machina
+
+Thu, 04 Jun 2026 00:30:21 GMT
+
+https://screenrant.com/the-legend-of-vox-machina-matthew-mercer-canon/
+
+The Legend of Vox Machina includes many voice actors and their respective characters, but one of the former actually exists within the fantasy world.
+---------
+
+# The Lord Of The Rings: Two Towers PS2 Game Just Got A Gorgeous HD Remaster
+
+Gaming, The Lord of the Rings, Triple-A Games
+
+Thu, 04 Jun 2026 00:00:21 GMT
+
+https://screenrant.com/lord-of-the-rings-two-towers-ps2-game-hd-remaster-unofficial/
+
+The Lord of the Rings franchise has lasted many decades in terms of popularity, but some projects get lost in the fold - now, one is returning.
+---------
+
+# Hello Kitty's Official Powerpuff Girls Crossover Is Here, And It's Inventing New Levels Of Cute
+
+Anime, Hello Kitty, Powerpuff Girls
+
+Thu, 04 Jun 2026 00:00:21 GMT
+
+https://screenrant.com/hello-kitty-powerpuff-girls-collaboration-too-cute/
+
+In the perfect match between two cute icons, Hello Kitty has officially teamed up with the Powerpuff Girls for an adorable crossover.
+---------
+
+# Peacock's 9-Part Crime Thriller Is So Good, Season 2 Is Almost Guaranteed
+
+Streaming TV, Masked Recs
+
+Thu, 04 Jun 2026 00:00:21 GMT
+
+https://screenrant.com/peacock-mia-good-season-2-crime-series/
+
+Peacock's new crime thriller M.I.A. premiered just a month ago, but it's so good that it's basically guaranteed to be renewed for a second season.
+---------
+
+# 6 Spider-Man Villains Who Deserve To Appear In Spider-Noir Season 2
+
+TV, Spider-Noir
+
+Thu, 04 Jun 2026 00:00:21 GMT
+
+https://screenrant.com/spider-noir-season-2-villains-should-introduce/
+
+If Spider-Noir season 2 happens, who should Ben Reilly fight next? The comic books offer all sorts of possibilities.
+---------
+
+# Marvel Studios Will Officially Give Fans A Taste Of Avengers: Doomsday In July
+
+Streaming TV, Masked Recs
+
+Wed, 03 Jun 2026 23:57:26 GMT
+
+https://screenrant.com/marvel-studios-x-men-97-season-2-avengers-doomsday-tease/
+
+December can't come fast enough for MCU fans, but Marvel Studios will give fans their first taste of Avengers: Doomsday next month.
+---------
+
+# Stephen King Underseen $131M Sleeper Hit Returns as a PVOD Sensation 19 Years Later
+
+Movies, 1408, Horror, Stephen King
+
+Thu, 04 Jun 2026 01:00:14 GMT
+
+https://www.cbr.com/stephen-king-1408-psychological-horror-pvod-success-june-2026/
+
+One of Stephen King's most underrated adaptations, 1408, is a hit on PVOD, proving its cult classic status.
+---------
+
+# 20 Strongest Star Wars Bounty Hunters (& Their Backstories)
+
+Movies, Star Wars
+
+Thu, 04 Jun 2026 01:00:14 GMT
+
+https://www.cbr.com/strongest-star-wars-bounty-hunters-backstories/
+
+Some of the strongest characters in Star Wars aren't Jedi or Sith, but bounty hunters with fascinating histories.
+---------
+
+# Adam Scott's New R-Rated Horror Becomes an Instant PVOD Hit After Grossing 4x Its Budget
+
+Movies, Hokum
+
+Thu, 04 Jun 2026 00:49:44 GMT
+
+https://www.cbr.com/hokum-pvod-success-june-2026/
+
+After a tremendous run in theaters, the R-rated horror flick is finding more success with viewers at home.
+---------
+
+# These Controversial Video Game Endings Had to Be Changed
+
+Games, Video Games, Metal Gear Solid, The Simpsons
+
+Thu, 04 Jun 2026 00:45:13 GMT
+
+https://www.cbr.com/games-changed-controversial-endings/
+
+There are some classic video games that changed their endings at the last minute, with fans discovering the cut concepts hidden within their files.
+---------
+
+# Hogwarts Legacy 2 Finally Gets Release Date Update
+
+Games, Hogwarts Legacy
+
+Thu, 04 Jun 2026 00:30:13 GMT
+
+https://www.cbr.com/hogwarts-legacy-2-official-release-update-2026-avalanche/
+
+Job postings and leaks suggest that Hogwarts Legacy 2 will be arriving sooner than gamers think.
+---------
+
+# 35 Best Quotes In The Last Of Us
+
+TV, hbo, The Last of Us
+
+Thu, 04 Jun 2026 00:20:14 GMT
+
+https://www.cbr.com/best-quotes-the-last-of-us-tv/
+
+Ranging from heartfelt discussions to hilarious quips, Joel and Ellie delivered many of the best lines in HBO's adaptation of The Last of Us.
+---------
+
+# 5 Anime Villains More Powerful Than Black Frieza
+
+Anime, Dragon Ball, Sailor Moon
+
+Thu, 04 Jun 2026 00:15:13 GMT
+
+https://www.cbr.com/anime-villains-more-powerful-than-black-frieza/
+
+These anime antagonists possess power that makes even the a fearsome threat like Frieza look manageable.
+---------
+
+# Steam Officially Makes 9/10 Sci-Fi Game Completely Free Until June 9th
+
+Games, Steam
+
+Thu, 04 Jun 2026 00:00:14 GMT
+
+https://www.cbr.com/steam-official-free-game-july-2026/
+
+A brand-new, positively reviewed sci-game from the creators of Halo is currently available to play on Steam for absolutely free.
+---------
+
+# 7 Months Later, Disney's $184M Sci-Fi Sequel Is One of America's Most-Streamed Movies on PVOD
+
+Movies, Predator, Predator: Badlands, Sci-Fi
+
+Thu, 04 Jun 2026 00:00:14 GMT
+
+https://www.cbr.com/predator-badlands-sci-fi-success-pvod-apple-tv-june-2026/
+
+Disney's hit sequel is continues its streaming domination.
+---------
+
+# The Backrooms Teases Ivan Beck's Introduction
+
+Movies, Backrooms
+
+Thu, 04 Jun 2026 00:00:14 GMT
+
+https://www.cbr.com/the-backrooms-movie-teases-youtube-ivan-beck-villain/
+
+A new theory hints at the most enigmatic antagonist on YouTube finally making his live-action debut in the upcoming sequel to Backrooms.
+---------
+
+# ‘The Matrix’ Meets ‘John Wick’ in Christian Bale’s Overlooked Cult Sci-Fi Streaming Free
+
+Movie News, Equilibrium, Christian Bale, The Matrix, Pluto TV
+
+Thu, 04 Jun 2026 01:30:13 GMT
+
+https://collider.com/christian-bale-sci-fi-cult-classic-equilibrium-free-streaming-pluto-tv-june-2026-the-matrix-john-wick/
+
+Christian Bale’s overlooked cult sci-fi thriller, Equilibrium, has found a free streaming home 24 years after its release. Here's all to know.
+---------
+
+# Taylor Sheridan’s Binge-Worthy Answer to ‘The Wire’ Gets Perfect Season 5 Update
+
+TV News, Mayor of Kingstown, Taylor Sheridan, Jeremy Renner, Paramount Plus
+
+Thu, 04 Jun 2026 01:00:14 GMT
+
+https://collider.com/taylor-sheridan-crime-thriller-mayor-of-kingstown-final-season-5-filming-update-jeremy-renner/
+
+Jeremy Renner provides a progress update for Mayor of Kingstown Season 5, which is confirmed to be the final season of the Taylor Sheridan show.
+---------
+
+# Apple TV’s New Crime Thriller Reboot Officially Beats Martin Scorsese’s Original in One Key Way
+
+TV News, Cape Fear, Martin Scorsese, Apple TV, Thriller
+
+Thu, 04 Jun 2026 00:45:13 GMT
+
+https://collider.com/new-apple-tv-crime-thriller-cape-fear-reboot-rotten-tomatoes-score-is-it-good-martin-scorsese/
+
+Apple TV's new Martin Scorsese-produced crime thriller is a big hit with critics on Rotten Tomatoes. Get all the details here.
+---------
+
+# The Best Zombie Franchise Ever Will Return Despite the 2026 Sequel’s Box Office Disapointment
+
+Movie News, Danny Boyle, 28 Years Later: The Bone Temple, Alex Garland, Horror
+
+Thu, 04 Jun 2026 00:45:13 GMT
+
+https://collider.com/horror-masterpiece-28-years-later-3-sequel-update-danny-boyle-filming-2027/
+
+Director Danny Boyle reveals the reason behind the delay in filming 28 Years Later 3. Read on for all the details.
+---------
+
+# This Is the Mount Rushmore of Horror Movies
+
+Movie, The Exorcist, Horror, Night of the Living Dead, Psycho
+
+Thu, 04 Jun 2026 00:31:15 GMT
+
+https://collider.com/most-important-horror-movies-of-all-time/
+
+The modern horror industry is built on the success and influence of these four incredible masterpieces, from The Exorcist to Psycho.
+---------
+
+# Crunchyroll's Biggest Rival Launches 24/7 Free Access to Your Favorite Anime Classics
+
+TV News, Crunchyroll, Anime, Naruto, Demon Slayer
+
+Thu, 04 Jun 2026 00:30:14 GMT
+
+https://collider.com/crunchyroll-rival-amasian-tv-anime-24-7-naruto-demon-slayer/
+
+A new free streaming challenger is shaking up anime viewing habits, and its biggest advantage could change the industry forever.
+---------
+
+# 10 Greatest Metaphorical Horror Movies of All Time
+
+Movie, Night of the Living Dead, Carrie, The Substance, It Follows
+
+Thu, 04 Jun 2026 00:17:14 GMT
+
+https://collider.com/best-metaphorical-horror-movies-all-time-ranked/
+
+Horror classics like Dawn of the Dead, The Fly, and They Live prove that the genre can be an uncommonly powerful means of artistic metaphor.
+---------
+
+# 10 Crime Shows I Knew Would Be Masterpieces After the First 10 Minutes
+
+TV, Crime, Breaking Bad, Dexter, Better Call Saul
+
+Thu, 04 Jun 2026 00:06:13 GMT
+
+https://collider.com/crime-shows-masterpieces-first-10-minutes/
+
+Certain crime shows kick off in amazing fashion and then never let up, including series like Breaking Bad, Dexter, Ozark, and True Detective.
+---------
+
+# James Bond Star's 10/10 Mystery Movie Is a Shock Streaming Sensation
+
+Movie News, Eva Green, Alicia Vikander, James Bond, Euphoria
+
+Thu, 04 Jun 2026 00:00:14 GMT
+
+https://collider.com/james-bond-star-eva-green-mystery-movie-euphoria-streaming-success-hbo-max-june-2026/
+
+A 'Game of Thrones' star also bolsters the cast.
+---------
+
+# Tom Hardy’s Forgotten Star Trek Movie Is Now Streaming for Free
+
+Movie News, Star Trek, Star Trek: The Next Generation, Star Trek: First Contact, Plex
+
+Wed, 03 Jun 2026 23:45:14 GMT
+
+https://collider.com/tom-hardy-star-trek-the-next-generation-movies-free-streaming-plex-june-2026/
+
+Fans of the iconic Star Trek franchise can now watch all four films from The Next Generation era for free on streaming. Find out more here.
+---------
+
+# Showrunner Slams Prime Video for Killing Revival of Sci-Fi Masterpiece
+
+TV News, Stargate, Prime Video
+
+Thu, 04 Jun 2026 00:58:12 GMT
+
+https://movieweb.com/stargate-showrunner-prime-video-canceled-reaction/
+
+Former writer and producer Joseph Mallozzi didn't hold back about the cancellation.
+---------
+
+# The 6 Best Horror Movies of 2026 So Far
+
+Movie Lists, Horror
+
+Thu, 04 Jun 2026 00:01:19 GMT
+
+https://movieweb.com/best-horror-movies-2026/
+
+2026 has been an exciting year for the horror genre, and many movies have been critical hits, box office successes, and audience favorites.
+---------
+
+# 'Star Wars' Director Pitches Wild Crossover With 'Backrooms'
+
+Movie News, Star Wars, Shawn Levy, Backrooms
+
+Wed, 03 Jun 2026 23:49:57 GMT
+
+https://movieweb.com/star-wars-backrooms-crossover-shawn-levy/
+
+Shawn Levy was a producer on the A24 movie and is also currently working on 'Star Wars: Starfighter.'
+---------
+
+# Disney Animated Classic Loses Box Office Crown to One of 2026's Biggest CGI Hits
+
+Movie News, The Super Mario Galaxy Movie, The Lion King, Box Office Milestones
+
+Wed, 03 Jun 2026 23:00:20 GMT
+
+https://movieweb.com/super-mario-galaxy-movie-beats-disney-lion-king-box-office-2026/
+
+It's the end of an era for traditional animation now that one of Disney's best hand-drawn movies has been bested by a CGI favorite.
+---------
+
 # Michael Fassbender’s Spy Thriller With A Perfect RT Audience Score Finally Returns This Month
 
 Streaming TV, Masked Recs
