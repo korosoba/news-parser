@@ -1,3 +1,300 @@
+# X-Men '97 Officially Debuts Its X-Force. All Members And Powers Explained
+
+Marvel Comics, X-Men '97
+
+Thu, 04 Jun 2026 05:05:37 GMT
+
+https://screenrant.com/x-men-97-xforce-debut-cable-psylocke/
+
+X-Men '97 finally pays off The Animated Series' teases and introduces X-Force, led by Cable and promising a crucial role in season 2 of the show.
+---------
+
+# Xbox Game Pass Confirms New Day-One Release For June 8
+
+Gaming, Xbox Game Pass, Indie Games, PC
+
+Thu, 04 Jun 2026 04:00:30 GMT
+
+https://screenrant.com/xbox-game-pass-solarpunk-day-one-release/
+
+Yet another brand-new game will land on Xbox Game Pass day one, and it will be of special interest to fans of the survival crafting genre.
+---------
+
+# 4 Years Later, DC Secretly Revives Leslie Grace And Brendan Fraser’s Canceled Batgirl Film
+
+Superheroes, Batgirl, DC Universe, LEGO Batman: Legacy of the Dark Knight
+
+Thu, 04 Jun 2026 03:48:24 GMT
+
+https://screenrant.com/lego-batman-dc-revives-canceled-batgirl-film-leslie-grace-and-brendan-fraser/
+
+4 years after it was canceled by Warner Bros, DC has secretly revived Leslie Grace and Brendan Fraser's Batgirl movie in the coolest way.
+---------
+
+# Doctor Who Would Have Been Very Different If David Tennant Followed His Original Instincts
+
+Streaming TV, Doctor Who, Fan Expo
+
+Thu, 04 Jun 2026 03:11:28 GMT
+
+https://screenrant.com/doctor-who-david-tennant-almost-turned-down/
+
+At Denver Fan Expo 2026, David Tennant shared his original thoughts about playing the Tenth Doctor, and it could have changed everything.
+---------
+
+# Who Is Cynthia von Doom? Avengers: Doomsday’s Major New Villain Teases Explained
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe, Doctor Doom
+
+Thu, 04 Jun 2026 02:30:21 GMT
+
+https://screenrant.com/cynthia-von-doom-avengers-doomsday-new-villain-teases-explained/
+
+A brand-new Avengers: Doomsday promo has revealed several exciting clues and hints about Robert Downey Jr.'s Doctor Doom (including Cynthia von Doom)
+---------
+
+# Scanlan's Absence In The Legend Of Vox Machina Season 4 Explained
+
+Streaming TV, The Legend of Vox Machina
+
+Thu, 04 Jun 2026 02:30:21 GMT
+
+https://screenrant.com/the-legend-of-vox-machina-season-4-scanlan-missing-explained/
+
+The first three episodes of The Legend of Vox Machina season 4 are without the show’s fun-loving bard, Scanlan, with many wondering why he is absent.
+---------
+
+# Steam Drops 4 New Free Games You Can Keep Forever, No Strings Attached
+
+Gaming, Steam, Triple-A Games
+
+Thu, 04 Jun 2026 02:00:33 GMT
+
+https://screenrant.com/steam-free-games-june-2026-yours-forever/
+
+There are four new games on Steam this week that you can claim now, and you'll be able to keep them forever.
+---------
+
+# Netflix's Chainsaw Man Meets Berserk Dark Fantasy Masterpiece Is So Good, It's Already Renewed For A Third Season
+
+Anime, Netflix, Masked Recs
+
+Thu, 04 Jun 2026 02:00:33 GMT
+
+https://screenrant.com/dorohedoro-chainsaw-man-berserk-dark-fantasy-anime-netflix/
+
+Fans of Chainsaw Man and Berserk absolutely need to check out this dark fantasy masterpiece anime that just got renewed for a third season.
+---------
+
+# Lord of the Rings Officially Reunites the Fellowship in 2026 With Limited Edition Statue
+
+Movies, The Lord of the Rings
+
+Thu, 04 Jun 2026 04:15:14 GMT
+
+https://www.cbr.com/lotr-official-fellowship-statue-limited-edition-2026/
+
+Fans of The Lord of the Rings with a lot of gold can now buy a spectacular statue depicting the Fellowship of the Ring on one of their adventures.
+---------
+
+# The MCU Is Officially Replacing Iron Man After 18 Years
+
+Movies, Marvel Cinematic Universe, Spider-Man: Brand New Day
+
+Thu, 04 Jun 2026 03:45:13 GMT
+
+https://www.cbr.com/mcu-officially-replacing-iron-man-spider-man-mentor/
+
+Tony Stark defined the MCU with his first appearance, and now Spider-Man: Brand New Day could be having someone else take his place.
+---------
+
+# 8 Strongest Hokage in Naruto, Ranked
+
+Anime, Naruto
+
+Thu, 04 Jun 2026 03:45:13 GMT
+
+https://www.cbr.com/naruto-official-strongest-hokage-ranked/
+
+Hokage is one of the most prestigious positions in the Naruto universe, and it's one only powerful shinobi like Hashirama and Kakashi have claimed.
+---------
+
+# Lord of the Flies Star Reveals the Show’s Most Disturbing Scenes
+
+CBR Exclusives, Lord of the Flies, Netflix
+
+Thu, 04 Jun 2026 03:36:38 GMT
+
+https://www.cbr.com/lord-of-the-flies-netflix-disturbing-scenes-david-mckenna-interview/
+
+Lord of the Flies star David McKenna and creator Jack Thorne explain the Netflix series’ most disturbing moments.
+---------
+
+# Apple TV's 'Unfilmable' Space Opera Series Beats Star Wars at Its Own Game
+
+TV, Apple TV, Foundation, Sci-Fi, Star Wars
+
+Thu, 04 Jun 2026 03:30:14 GMT
+
+https://www.cbr.com/apple-tv-foundation-sci-fi-series-better-than-star-wars/
+
+Apple TV's best sci-fi show is secretly everything that Star Wars wants to be.
+---------
+
+# Euphoria Series Finale Ends HBO Show With 1 Last Controversy
+
+TV, Euphoria
+
+Thu, 04 Jun 2026 03:20:16 GMT
+
+https://www.cbr.com/euphoria-series-finale-coca-cola-product-placement/
+
+Fans are crying foul about Euphoria one last time after the finale, and it has nothing to do with the Cassie's controversial storyline or Rue's fate.
+---------
+
+# 22 Years Ago, Harry Potter and the Prisoner of Azkaban Became An All-Time Fantasy Masterpiece
+
+Movies, Harry Potter and the Prisoner of Azkaban, Harry Potter, Fantasy
+
+Thu, 04 Jun 2026 03:15:13 GMT
+
+https://www.cbr.com/harry-potter-prisoner-of-azkaban-greatest-fantasy-movie-ever/
+
+This legendary fantasy masterpiece changed the genre forever 22 years ago.
+---------
+
+# Marvel's Wolverine Marks an Official New Era for the X-Men
+
+Games, X-Men, PlayStation 5, Video Games, Marvel's Wolverine
+
+Thu, 04 Jun 2026 03:15:13 GMT
+
+https://www.cbr.com/x-men-new-era-playstation-5-marvels-wolverine/
+
+The future of X-Men video games on PS5 is looking to be uncanny.
+---------
+
+# 10 Perfect SNES Games Nobody Remembers
+
+Games, Nintendo, retro games
+
+Thu, 04 Jun 2026 03:00:13 GMT
+
+https://www.cbr.com/perfect-snes-games-nobody-remembers/
+
+Some of the best SNES games ever slipped through the cracks and are barely remembered today.
+---------
+
+# 5 Classic Western Movies That Never Get Old
+
+Movies, Western, Tombstone, The Good, the Bad, & the Ugly
+
+Thu, 04 Jun 2026 02:45:13 GMT
+
+https://www.cbr.com/5-rewatchable-classic-western-movies-list/
+
+These five Western masterpieces are still endlessly rewatchable today.
+---------
+
+# Only 3 Masterpiece Fantasy Movies Are Better Than The Lord of the Rings
+
+Movie, The Lord of the Rings, The Wizard of Oz, The Princess Bride, Spirited Away
+
+Thu, 04 Jun 2026 04:07:13 GMT
+
+https://collider.com/fantasy-movie-masterpieces-better-than-lord-of-the-rings/
+
+The Lord of the Rings is often considered the apex of fantasy in cinema, but movies like The Wizard of Oz are far better representatives of the genre.
+---------
+
+# This Forgotten ‘Arrested Development’ Reunion Was Considered Cancelled After Just 4 Episodes
+
+TV Features, Sit Down, Shut Up, Mitch Hurwitz, Arrested Development, Sitcom
+
+Thu, 04 Jun 2026 04:06:13 GMT
+
+https://collider.com/arrested-development-sit-down-shut-up-sitcom/
+
+Mitch Hurwitz followed up Arrested Development with Sit Down, Shut Up, an animated sitcom that didn't even make it through one season on Fox.
+---------
+
+# Prime Video's Newest Superhero Show Is One of Its Best Comic Book Series
+
+TV Features, Spider-Noir, Prime Video, Nicolas Cage, Spider-Man: Into The Spider-Verse
+
+Thu, 04 Jun 2026 03:54:42 GMT
+
+https://collider.com/prime-video-spider-noir-best-comic-book-series/
+
+It's only been a week since its release, but Spider-Noir has proven that it's one of Prime Video's best comic book adaptations.
+---------
+
+# 'Spider-Noir' Shows Exactly What Sony's Spider-Man Universe Should've Been Doing All Along
+
+TV Features, Spider-Noir, Nicolas Cage, Spider-Man, Sony Pictures Entertainment
+
+Thu, 04 Jun 2026 03:15:14 GMT
+
+https://collider.com/spider-noir-new-direction-sony-spider-man-universe/
+
+Spider-Noir sets a new standard for Sony's Spider-Man universe by focusing on standalone stories, avoiding failed crossover attempts.
+---------
+
+# This 8-Part Apocalyptic Sci-Fi Thriller Is the Perfect ‘The Last of Us’ Replacement
+
+TV Features, The Passage, Sci-Fi, Mark-Paul Gosselaar, The Last of Us
+
+Thu, 04 Jun 2026 03:09:15 GMT
+
+https://collider.com/the-last-of-us-replacement-series-the-passage-fox/
+
+Waiting for The Last of Us to return? The Passage, an apocalyptic thriller series, is the perfect show to watch in the meantime.
+---------
+
+# 10 Best Martial Arts Movies of the 2020s
+
+Movie, Everything Everywhere All at Once, Martial Arts, Monkey Man, John Wick: Chapter 4
+
+Thu, 04 Jun 2026 03:03:13 GMT
+
+https://collider.com/best-martial-arts-movies-2020s-ranked/
+
+Although the genre isn't what it once was, many great martial arts movies have thrived throughout the 2020s, including Polite Society and Monkey Man.
+---------
+
+# 10 'The Flash' Episodes That Can Be Called Masterpieces, Ranked
+
+TV, Superhero, The CW, The Flash, Grant Gustin
+
+Thu, 04 Jun 2026 02:41:13 GMT
+
+https://collider.com/best-the-flash-episodes-masterpieces-ranked/
+
+Episodes of the superhero show The Flash like "Fast Enough" and "The Man In the Yellow Suit" are so great they can be called masterpieces.
+---------
+
+# Ridley Scott's 78% Historical Epic Captivates Global Audience on Streaming
+
+Movie News, Ridley Scott, Gladiator II, Paul Mescal, Pedro Pascal
+
+Thu, 04 Jun 2026 02:00:25 GMT
+
+https://collider.com/ridley-scott-historical-epic-sequel-gladiator-2-streaming-success-paramount-plus-june-2026/
+
+Ridley Scott's Gladiator 2, starring Paul Mescal and an A-list cast, has become a global streaming hit on Paramount+.
+---------
+
+# 8 Sci-Fi Space Opera Series That Are Better Than 'Star Trek'
+
+Movie Lists, Star Trek
+
+Thu, 04 Jun 2026 02:01:19 GMT
+
+https://movieweb.com/sci-fi-space-opera-shows-better-than-star-trek/
+
+'Star Trek' may be a popular and fantastic sci-fi series, but these other space opera shows are much more exciting.
+---------
+
 # Hulu's Stunning 2024 Dark Fantasy Legal Thriller Just Got Better With Season 2 & Star Return Confirmed
 
 TV, Hulu, Masked Recs
