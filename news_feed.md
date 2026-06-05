@@ -1,3 +1,399 @@
+# Steam Adds 4 New Free Games You Can Officially Keep Forever
+
+Gaming, Steam
+
+Fri, 05 Jun 2026 04:00:30 GMT
+
+https://screenrant.com/steam-4-free-games-june-2026-keep-forever/
+
+Discover four new free games added to Steam, including full releases and an early access roguelike deckbuilder. Explore unique art styles and genres!
+---------
+
+# Star Wars Just Teased Their Own Version of John Wick - Theory Explained
+
+Star Wars, The Mandalorian and Grogu, John Wick
+
+Fri, 05 Jun 2026 03:43:32 GMT
+
+https://screenrant.com/star-wars-teased-john-wick-story-embo-marrok-mandalorian-and-grogu-theory/
+
+New reveals from Lucasfilm head Dave Filoni confirm the possibility for an exciting John Wick-esque Star Wars story (which would be incredibly cool).
+---------
+
+# The Mandalorian And Grogu Box Office Officially Passes Major Global Milestone After Unfortunate Star Wars Record
+
+Movies, The Mandalorian and Grogu, Star Wars, Box Office Milestone
+
+Fri, 05 Jun 2026 03:38:53 GMT
+
+https://screenrant.com/star-wars-the-mandalorian-and-grogu-box-office-250-million-global-milestone/
+
+Following an unfortunate Star Wars record, The Mandalorian and Grogu is trying to bounce back by passing a major milestone at the global box office.
+---------
+
+# Marvel Officially Unveils Incredible Iron Man Redesign
+
+Gaming, Marvel, Marvel Rivals, PC, Iron Man
+
+Fri, 05 Jun 2026 03:00:22 GMT
+
+https://screenrant.com/marvel-rivals-iron-man-samurai-redesign/
+
+Marvel just revealed an incredible new Iron Man design for the ages, giving the iconic suit a fresh and one-of-a-kind overhaul.
+---------
+
+# James Gunn’s Superman Sequel Just Showed How Marvel’s Failed Iron Man For Years
+
+Superheroes, Man of Tomorrow, Iron Man, DC Universe
+
+Fri, 05 Jun 2026 02:48:47 GMT
+
+https://screenrant.com/man-of-tomorrow-lex-luthor-armor-marvel-has-failed-iron-man-for-years/
+
+New reveals from the set of James Gunn's Man of Tomorrow highlight a major disappointment with the MCU's Iron Man after Marvel's first phase.
+---------
+
+# Steam Makes Beloved Game Completely Free For Limited Time Before It's Removed Forever
+
+Gaming, Steam, PC, Indie Games
+
+Fri, 05 Jun 2026 02:00:32 GMT
+
+https://screenrant.com/steam-free-game-june-2026-last-chance/
+
+A beloved social party game is leaving Steam forever soon, but until it does, you can get the title for free to keep forever if you act fast!
+---------
+
+# A Quiet Place Part 3 Set Photos Reveal First Look At Cillian Murphy’s Return
+
+Movies, A Quiet Place Part III
+
+Fri, 05 Jun 2026 01:56:35 GMT
+
+https://screenrant.com/a-quiet-place-3-new-set-photos-cillian-murphy-jack-oconnell/
+
+Cillian Murphy is reprising Emmett in A Quiet Place Part 3, and set photos have come out showing him filming scenes for the upcoming movie.
+---------
+
+# Top Gun: Maverick Actor James Handy Passes Away At 81
+
+Movies, Top Gun: Maverick
+
+Fri, 05 Jun 2026 01:50:46 GMT
+
+https://screenrant.com/james-handy-passes-away-after-stabbing/
+
+Beloved Top Gun: Maverick and Jumanji actor, James Handy, has tragically passed away at 81 years old after a fatal attack.
+---------
+
+# 4 All-Time Great Film Noir Movies To Watch If You Enjoyed Spider-Noir
+
+TV, Spider-Noir
+
+Fri, 05 Jun 2026 01:30:21 GMT
+
+https://screenrant.com/film-noir-movies-to-watch-after-spider-noir/
+
+Those who enjoyed Prime Video's Spider-Noir show would likely find a lot to appreciate about these incredible film noir classics.
+---------
+
+# Disney’s Toy Story 5 Finally Reveals Jessie’s Owner In Official Clip
+
+Movies, Toy Story 5
+
+Fri, 05 Jun 2026 01:06:25 GMT
+
+https://screenrant.com/toy-story-5-jessie-owner-official-clip-disney/
+
+Disney’s Toy Story 5 officially releases a heart-wrenching new clip on social media, finally showing the face of Jessie's original owner, Emily.
+---------
+
+# 27 Years After Event Horizon, Its Official Sequel Confirms the True Meaning of Hell
+
+Comics, Event Horizon
+
+Fri, 05 Jun 2026 03:58:31 GMT
+
+https://www.cbr.com/event-horizon-inferno-2-review-true-meaning-hell/
+
+In a CBR review of Event Horizon: Inferno #2, see how the official sequel to the classic film, Event Horizon, shares the true meaning of Hell
+---------
+
+# In 2 Months, Ridley Scott Officially Returns to Sci-Fi
+
+Movies, The Dog Stars, Sci-Fi, ridley scott
+
+Fri, 05 Jun 2026 03:45:15 GMT
+
+https://www.cbr.com/ridley-scott-sci-fi-movie-return-the-dog-stars/
+
+Eight years after his last sci-fi movie, one of the genre's best directors is set to return with a new book adaptation this summer.
+---------
+
+# 10 Short Anime Series You Can Binge in One Weekend
+
+Anime, FLCL, Anohana: The Flower We Saw That Day, Mobile Suit Gundam
+
+Fri, 05 Jun 2026 03:45:15 GMT
+
+https://www.cbr.com/short-anime-series-to-binge-in-one-weekend/
+
+Time can be a fleeting thing, but short anime like FLCL and Alien Nine can easily be binged in a day.
+---------
+
+# Star Trek's Cancellation Makes This 10-Part Sci-Fi Masterpiece Mandatory Viewing
+
+TV, Star Trek, Sci-Fi, Stargate SG-1
+
+Fri, 05 Jun 2026 03:30:14 GMT
+
+https://www.cbr.com/star-trek-cancellation-sci-fi-replacement-stargate-sg1/
+
+Military action, politics, and complex characters make this sci-fi series a must-watch, especially for Star Trek fans looking for something different.
+---------
+
+# Ethan Hawke's FX Neo-Noir With 98% RT Gets Exciting Season 2 Update
+
+TV, The Lowdown
+
+Fri, 05 Jun 2026 03:26:10 GMT
+
+https://www.cbr.com/the-lowdown-season-2-starts-filming/
+
+The hit crime dramedy series starring Ethan Hawke and Keith David gets a big update on its anticipated second season.
+---------
+
+# Ghostface's Best Quotes, Ranked
+
+Movies, Scream
+
+Fri, 05 Jun 2026 03:25:13 GMT
+
+https://www.cbr.com/scream-ghostfaces-quotes-ranked/
+
+Ghostface stands out from other killers by their creative and terrifying verbal taunts delivered throughout the Scream franchise.
+---------
+
+# Sega Is Officially Replacing Sonic The Hedgehog After 35 Years
+
+Movies, Streets of Rage, Sonic the Hedgehog, sega
+
+Fri, 05 Jun 2026 03:15:15 GMT
+
+https://www.cbr.com/sega-streets-of-rage-movie-replacing-sonic/
+
+Sonic the Hedgehog has beaten other Sega game franchises to the big screen, but a "Bare Knuckle" brawler could give him a run for his money.
+---------
+
+# 5 Open-World Games That Are Objectively Better Than GTA
+
+Games, Red Dead Redemption 2, Cyberpunk 2077, Yakuza 0, Grand Theft Auto
+
+Fri, 05 Jun 2026 03:15:15 GMT
+
+https://www.cbr.com/open-world-games-officially-better-than-gta/
+
+While Grand Theft Auto has a special place in the heart of open-world gaming fans, these five titles are objectively better and more expansive.
+---------
+
+# 5 Characters Who Must Appear in The Legend of Zelda Movie
+
+Movies, The Legend of Zelda, Nintendo
+
+Fri, 05 Jun 2026 02:45:14 GMT
+
+https://www.cbr.com/legend-of-zelda-movie-biggest-missing-characters-list/
+
+Of the many fan-favorite characters in The Legend of Zelda video game series, very few have been confirmed to appear in the live-action film.
+---------
+
+# The Official Hardest Platformers of All Time, Ranked
+
+Games, Celeste, cuphead, Spelunky, Video Games
+
+Fri, 05 Jun 2026 02:45:14 GMT
+
+https://www.cbr.com/hardest-platformers-of-all-time-ranked/
+
+Even since the classic NES era, platformers have been some of the hardest video games out there.
+---------
+
+# 10 Perfect HBO Shows That Get Better With Every Rewatch
+
+TV, HBO, Succession, Sex and the City, Curb Your Enthusiasm
+
+Fri, 05 Jun 2026 04:08:14 GMT
+
+https://collider.com/perfect-hbo-shows-better-with-rewatch/
+
+Succession, Sex and the City, and Curb Your Enthusiasm were already beloved in their initial run, and these HBO shows are even better upon rewatch.
+---------
+
+# 10 Most Ambitious Superhero Movies of All Time
+
+Movie, Avengers: Infinity War, Avengers: Endgame, Spider-Man: Across the Spider-Verse, Zack Snyder's Justice League
+
+Fri, 05 Jun 2026 04:05:12 GMT
+
+https://collider.com/most-ambitious-superhero-movies-all-time-ranked/
+
+Massive superhero movies like Avengers: Infinity War, Spider-Man: Across the Spider-Verse, and Watchmen are among the most ambitious of all time.
+---------
+
+# 10 Fantasy Movies That Are Perfect From the First Scene to the Last
+
+Movie, Fantasy, The Wizard of Oz, The Princess Bride, Harvey
+
+Fri, 05 Jun 2026 03:03:14 GMT
+
+https://collider.com/fantasy-movies-perfect-first-scene-last/
+
+From modern epics like The Lord of the Rings to acclaimed classics like Harvey, these great fantasy movies are truly faultless from beginning to end.
+---------
+
+# Henry Cavill’s Latest Box Office Bomb Redeems Itself on Streaming
+
+Movie News, In the Grey, Henry Cavill, Guy Ritchie, Jake Gyllenhaal
+
+Fri, 05 Jun 2026 02:15:14 GMT
+
+https://collider.com/guy-ritchie-henry-cavill-action-thriller-in-the-grey-box-office-bomb-streaming-success-itunes-june-2026/
+
+Henry Cavill and Guy Ritchie's third box-office bomb in a row, In the Grey, is seeking redemption on the home video market. Find out more.
+---------
+
+# ‘Severance’ Star’s New Horror Movie Is Officially Taking Over Apple TV
+
+Movie News, Hokum, Adam Scott, Horror, The Shining
+
+Fri, 05 Jun 2026 02:01:13 GMT
+
+https://collider.com/adam-scott-hokum-psychological-horror-movie-streaming-success-apple-tv-june-2026/
+
+As Apple TV preps for Severance Season 3, Adam Scott's new thriller is officially taking over the world on streaming.
+---------
+
+# Taylor Sheridan's New 2-Part ‘Yellowstone’ Spin-Off Officially Ends Season 1 on a Major High Note
+
+TV News, Marshals, Taylor Sheridan, Yellowstone, CBS
+
+Fri, 05 Jun 2026 01:45:13 GMT
+
+https://collider.com/taylor-sheridan-cbs-yellowstone-spin-off-marshals-nielsen-ratings-second-biggest-show-on-tv/
+
+The hit CBS series Marshals remains one of the most popular shows on television, bringing new audiences to Taylor Sheridan's Yellowstone universe.
+---------
+
+# Netflix’s 8-Part Sci-Fi Horror Series Just Made the Best Case Yet for Season 2 With 1 Important Scene
+
+TV Features, The Boroughs, Alfred Molina, Duffer Brothers, Netflix
+
+Fri, 05 Jun 2026 01:36:13 GMT
+
+https://collider.com/netflix-the-boroughs-final-scene-sam-glitch-meaning-season-2/
+
+Netflix's The Boroughs ends with a mysterious glitch in the final scene, hinting at a potential second season for the sci-fi adventure series.
+---------
+
+# 10 Years Later, Rebecca Ferguson’s Forgotten Crime Thriller Speeds Up Netflix's Charts
+
+Movie News, Rebecca Ferguson, Gone Girl, The Girl on the Train, Netflix
+
+Fri, 05 Jun 2026 01:30:14 GMT
+
+https://collider.com/rebecca-ferguson-crime-thriller-the-girl-on-the-train-streaming-success-netflix-june-2026/
+
+The Girl on the Train, starring Emily Blunt and Rebecca Ferguson, is one of the biggest surprise streaming hits of the year.
+---------
+
+# Only 7 Sci-Fi Movies Are More Rewatchable Than ‘The Matrix’
+
+Movie, Sci-Fi, Moon, Interstellar, Snowpiercer
+
+Fri, 05 Jun 2026 01:25:13 GMT
+
+https://collider.com/sci-fi-movies-more-rewatchable-than-the-matrix/
+
+Only seven sci-fi movies surpass The Matrix in rewatch value, from Arrival and Interstellar to deeper mysteries that reveal more with every viewing.
+---------
+
+# The Final Season of Prime Video’s 5-Part Sci-Fi Saga Falls Short of Final Streaming Milestone
+
+TV News, The Boys, Prime Video, Karl Urban, Sci-Fi
+
+Fri, 05 Jun 2026 01:15:15 GMT
+
+https://collider.com/prime-video-sci-fi-superhero-series-the-boys-season-5-falls-short-of-1-billion-views-mark/
+
+Prime Video's platform-defining superhero satire, The Boys, fell short of a coveted viewership milestone in the final month of its run. Find out more.
+---------
+
+# 'Backrooms' Director Kane Parsons Addresses Chances of Making 'Backrooms 2'
+
+Movie News, Backrooms
+
+Fri, 05 Jun 2026 02:27:10 GMT
+
+https://movieweb.com/backrooms-2-director-kane-parsons-future/
+
+Director Kane Parsons changed his tune on whether he will make a second 'Backrooms' movie after his most recent film was released.
+---------
+
+# 10 Near-Perfect Stephen King TV Shows No One Remembers Today
+
+TV Lists, Stephen King
+
+Fri, 05 Jun 2026 02:00:31 GMT
+
+https://movieweb.com/stephen-king-tv-shows-forgotten/
+
+Stephen King has many acclaimed TV shows, including 'It,' 'Salem's Lot,' and 'Castle Rock,' but he has some underrated series, too.
+---------
+
+# 'Supergirl' Promotional Art Accidentally Features 'Star Wars' Alien
+
+Movie News, Supergirl, Star Wars
+
+Fri, 05 Jun 2026 01:27:49 GMT
+
+https://movieweb.com/supergirl-star-wars-mix-up/
+
+A recent piece of art by 'Supergirl: Woman of Tomorrow' artist Bilquis Evely features an alien cut from 'The Last Jedi.'
+---------
+
+# Netflix's Long-Awaited Western Classic Reboot Renewed Ahead of Season 1 Debut
+
+TV News, Little House on the Prairie, Netflix
+
+Fri, 05 Jun 2026 01:04:42 GMT
+
+https://movieweb.com/little-house-on-the-prairie-reboot-netflix-renewed/
+
+There will be plenty more 'Little House on the Prairie' on the horizon.
+---------
+
+# 'Euphoria' Season 3 Finale Earns Excellent Ratings, Despite Backlash
+
+TV News, Euphoria, Sydney Sweeney
+
+Fri, 05 Jun 2026 01:01:36 GMT
+
+https://movieweb.com/euphoria-series-finale-viewing-numbers-hbo/
+
+Sydney Sweeney & Zendaya's 'Euphoria' ended on a high note after the ratings for its Season 3 finale were revealed.
+---------
+
+# Netflix's Masterpiece 'Arcane' Deserves Its 100% Rotten Tomatoes Score
+
+Features, Arcane, Fantasy, Netflix, Animation, Holds Up
+
+Fri, 05 Jun 2026 00:00:19 GMT
+
+https://movieweb.com/arcane-netflix-masterpiece-100-rt-score/
+
+From the world of 'League of Legends' comes 'Arcane,' one of the greatest animated TV shows ever, and a masterclass in story and worldbuilding.
+---------
+
 # It's Officially The Start Of An Era For Apple TV's 10/10 Dystopian Sci-Fi Series
 
 TV, Masked Recs
