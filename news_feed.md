@@ -1,3 +1,410 @@
+# Paramount and Warner Bros. Deal Blocked By Lawsuit
+
+TV, Paramount, Warner Bros.
+
+Fri, 05 Jun 2026 21:02:50 GMT
+
+https://screenrant.com/paramount-warner-bros-lawsuit-blocking-deal/
+
+A massive lawsuit is reportedly on the way in another attempt to dismantle the controversial agreement between Paramount and Warner Bros.
+---------
+
+# The Legend of Little Red Riding Hood Gets a Dark Fantasy Upgrade Courtesy John Carpenter
+
+Comics, John Carpenter
+
+Fri, 05 Jun 2026 21:01:21 GMT
+
+https://screenrant.com/red-riding-rise-of-the-alpha-huntress-john-carpenter/
+
+A dark twist.
+---------
+
+# Masters Of The Universe Soundtrack Guide: Every Song & When They Play
+
+Movies, Masters of the Universe
+
+Fri, 05 Jun 2026 21:01:21 GMT
+
+https://screenrant.com/masters-of-the-universe-movie-soundtrack-song-guide/
+
+Masters of the Universe has a lot of great songs that play in the movie, and a few of them have deep Easter eggs involved in the choice of song.
+---------
+
+# John Dutton's Yellowstone Universe Replacement Is Better Than The Kevin Costner Character
+
+Streaming TV, Masked Recs
+
+Fri, 05 Jun 2026 21:01:21 GMT
+
+https://screenrant.com/dutton-ranch-beulah-jackson-john-dutton-replacement-better-charater/
+
+One Dutton Ranch villain instantly emerged as the replacement for Yellowstone's patriarch, and now, the Kevin Costner character has been surpassed.
+---------
+
+# Summer Game Fest 2026 Opening Night Live Updates - All Announcements & New Game Reveals
+
+Gaming, Summer Game Fest, Triple-A Games, PC
+
+Fri, 05 Jun 2026 20:50:33 GMT
+
+https://screenrant.com/summer-game-fest-2026-live-blog/
+
+Summer Game Fest is back with the Opening Night Live event, and Screen Rant is live-blogging all two hours of new game announcements and reveals.
+---------
+
+# Criminal Minds Hasn't Learned Its Lesson From JJ & Reid's Romance Abomination
+
+Network TV, Criminal Minds
+
+Fri, 05 Jun 2026 20:45:20 GMT
+
+https://screenrant.com/criminal-minds-jj-reid-romance-mistake-lesson-garcia-alvez/
+
+The romantic subplot between Jennifer "JJ" Jareau and Spencer Reid has always bothered Criminal Minds fans, but the crime drama is repeating history.
+---------
+
+# Fox's Cult Classic Sitcom Was So Good, It Was Revived For 18 More Seasons After Cancellation
+
+Streaming TV, Masked Recs
+
+Fri, 05 Jun 2026 20:31:20 GMT
+
+https://screenrant.com/family-guy-fox-sitcom-revived-after-cancellation/
+
+Fox tried to cancel Family Guy after three seasons, but it proved to be so popular that it came back and it's still here more than two decades later.
+---------
+
+# Prime Video’s Perfect Fantasy Masterpiece Has Returned & Is Officially A Must-Watch
+
+Streaming TV, Masked Recs
+
+Fri, 05 Jun 2026 20:06:22 GMT
+
+https://screenrant.com/prime-video-legend-of-vox-machina-season-4-must-watch/
+
+Prime Video's fantasy masterpiece series, with a perfect Rotten Tomatoes score across four seasons, has officially returned and is a must-watch.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (June 6-7)
+
+Movies, Prime Video, Recommendation
+
+Fri, 05 Jun 2026 20:00:26 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-june-6/
+
+Prime Video's best movies to watch on the first weekend of June are a horror film, one of the most beloved romances, and Nathan Fillion's space opera.
+---------
+
+# Marvel Studios Officially Confirms Jean Grey's New Costume For Her Next Appearance
+
+Streaming TV, Masked Recs
+
+Fri, 05 Jun 2026 20:00:21 GMT
+
+https://screenrant.com/x-men-97-season-2-jean-grey-new-costume-morrison-era/
+
+Jean Grey is changing costumes for her upcoming appearance in X-Men '97 season 2, and she could change outfits again for Spider-Man: Brand New Day.
+---------
+
+# In Just 2 Days, Pixar's $387M Animated Film Becomes the No. 1 Title on Disney+
+
+Movies, Hoppers, Disney+
+
+Fri, 05 Jun 2026 21:00:13 GMT
+
+https://www.cbr.com/pixar-hoppers-success-disney-plus-june-2026/
+
+Disney+ subscribers made quick work of sending the latest Pixar animated film to the top of the streaming charts.
+---------
+
+# 10 Most Shocking Movie Twist Endings of the Last 25 Years, Ranked
+
+Movies, Thriller, The Others, Quentin Tarantino
+
+Fri, 05 Jun 2026 21:00:13 GMT
+
+https://www.cbr.com/best-twist-movie-endings-last-25-years-list/
+
+While not every movie needs a subversive twist to be memorable, these films prove a shocking ending can elevate an already great story.
+---------
+
+# Anthony Stewart Head Remembered by Buffy the Vampire Slayer Cast: “There’s a Hole in the World”
+
+TV
+
+Fri, 05 Jun 2026 20:32:39 GMT
+
+https://www.cbr.com/anthony-steward-head-dead-buffy-cast-remember/
+
+Sarah Michelle Gellar, David Boreanaz, James Marsters, and others remember Buffy the Vampire Slayer co-star, Anthony Stewart Head.
+---------
+
+# 4 Netflix Movies Better Than KPop Demon Hunters
+
+Movies, KPop Demon Hunters
+
+Fri, 05 Jun 2026 20:30:14 GMT
+
+https://www.cbr.com/netflix-movies-better-than-kpop-demon-hunters-list/
+
+KPop Demon Hunters is still stuck in our heads, but there are Netflix movies with better storytelling and higher emotional stakes.
+---------
+
+# Every One Piece Yonko, Ranked By How Dangerous They Are
+
+Anime, One Piece, shonen anime, Shonen
+
+Fri, 05 Jun 2026 20:15:13 GMT
+
+https://www.cbr.com/one-piece-yonkos-ranked-by-danger/
+
+The Emperors of the Sea remain influential figures in One Piece, and every one of them is a dangerous force to be reckoned with.
+---------
+
+# Netflix Doubles Down on Theatrical Release Policy Ahead of Narnia Release
+
+Movies, Netflix, Narnia: The Magician's Nephew
+
+Fri, 05 Jun 2026 20:05:26 GMT
+
+https://www.cbr.com/netflix-theatrical-release-policy-narnia-release/
+
+The streamer lost multiple projects because of its theatrical release policy, but Narnia will make a historic change.
+---------
+
+# Black Clover Officially Returns August 2026 With a New Ending
+
+Anime, Black Clover, Shonen Jump, Crunchyroll
+
+Fri, 05 Jun 2026 20:00:14 GMT
+
+https://www.cbr.com/black-clover-new-ending-august-2026/
+
+Black Clover is finally back this summer with a brand-new official ending that fans deserve.
+---------
+
+# Michael Bay’s Biggest Transformers Disappointment Surges on Streaming Amid Return Rumors
+
+Movies, Transformers: The Last Knight, MGM+
+
+Fri, 05 Jun 2026 20:00:14 GMT
+
+https://www.cbr.com/michael-bay-transformers-the-last-knight-mgm-plus-success-june-2026/
+
+Amid rumors of Michael Bay's return to the Transformers franchise, the director's worst-performing entry surges in popularity on streaming.
+---------
+
+# DC Is Giving Away a Free Supergirl Comic for a Limited Time Only
+
+Comics, Supergirl
+
+Fri, 05 Jun 2026 20:00:14 GMT
+
+https://www.cbr.com/free-supergirl-comic-amc-imax/
+
+Supergirl's adventures do not have to end at the big screen.
+---------
+
+# Sydney Sweeney Is Officially Rebooting Sleepy Hollow
+
+Movies, Horror
+
+Fri, 05 Jun 2026 20:00:14 GMT
+
+https://www.cbr.com/sydney-sweeney-sleepy-hollow-horror-reboot/
+
+After reviving the erotic thriller with The Housemaid, Sydney Sweeney is looking to bring back one of the greatest horror franchises.
+---------
+
+# 7 Forgotten Comedy Movies That Have Aged Like Fine Wine
+
+Movie, Comedy, Accepted, John Tucker Must Die, D.E.B.S.
+
+Fri, 05 Jun 2026 21:05:17 GMT
+
+https://collider.com/forgotten-comedy-movies-aged-like-fine-wine/
+
+Time has been kind to forgotten comedies like Accepted, The Decoy Bride, D.E.B.S., and John Tucker Must Die, with their reputation improving with age.
+---------
+
+# Win Tickets to Our Early 'Toy Story 5' IMAX Screening With Q&A
+
+Exclusives, Screening, Toy Story 5, Toy Story, Pixar
+
+Fri, 05 Jun 2026 20:46:13 GMT
+
+https://collider.com/toy-story-5-imax-screening-matt-aspbury-q-and-a/
+
+Details on how you can enter for your chance to win free tickets to our early IMAX screening of Toy Story 5 and Q&amp;A.
+---------
+
+# Netflix’s Near-Perfect 3-Part Sci-Fi Thriller Is So Good, It’s Saving an Entire Genre
+
+TV Features, Netflix, Sci-Fi, The Rain, Thriller
+
+Fri, 05 Jun 2026 20:34:15 GMT
+
+https://collider.com/netflix-near-perfect-sci-fi-thriller-the-rain/
+
+In 2018, Netflix released the original sci-fi thriller The Rain, and it’s still one of the best post-apocalyptic shows to date.
+---------
+
+# The ‘Masters of the Universe’ Post-Credits Scene Was Predictable, and It Still Hit Hard
+
+Movie Features, Masters of the Universe, Travis Knight, Nicholas Galitzine
+
+Fri, 05 Jun 2026 20:30:14 GMT
+
+https://collider.com/masters-of-the-universe-she-ra-post-credits-scene/
+
+Masters of the Universe teases She-Ra, but the movie’s greatest strength is refusing to rush one of the franchise’s most important characters.
+---------
+
+# Netflix’s Newest 5-Part Sports Series Is the Perfect Pre-World Cup Binge
+
+TV Features, Brazil '70: The Third Star, Netflix, Sports, Rodrigo Santoro
+
+Fri, 05 Jun 2026 20:21:13 GMT
+
+https://collider.com/netflix-sports-series-brazil-70-the-third-star-world-cup-binge/
+
+With less than a week until the 2026 World Cup, Netflix’s new sports series Brazil ’70: The Third Cup is the perfect warm-up.
+---------
+
+# ‘Dexter: Resurrection’ Showrunner Clyde Phillips Reveals the Vision Behind Season 2
+
+Interviews, Dexter: Resurrection, Clyde Phillips, Michael C. Hall, Jack Alcott
+
+Fri, 05 Jun 2026 20:00:14 GMT
+
+https://collider.com/dexter-resurrection-fyc-interview-showrunner-clyde-phillips-season-2/
+
+Dexter: Resurrection showrunner Clyde Phillips explains how Dexter and Harrison's Season 1 journey sets things up for further exploration in Season 2.
+---------
+
+# 'The Pitt' Star Confirms Season 3 Exit Was Not Her Decision
+
+TV News, The Pitt, Noah Wyle, HBO Max, HBO
+
+Fri, 05 Jun 2026 19:40:14 GMT
+
+https://collider.com/the-pitt-season-3-supriya-ganesh-dr-mohan-exit-explained-noah-wyle/
+
+The Pitt star Supriya Ganesh has officially broken her silence on her departure from The Pitt, revealing it was not her decision to leave.
+---------
+
+# 9 Greatest Books of the Last 25 Years
+
+Movie, Books, Atonement, The Book Thief, Pachinko
+
+Fri, 05 Jun 2026 19:29:14 GMT
+
+https://collider.com/best-books-last-25-years-ranked/
+
+The last 25 years of literature have given us several bona fide masterpieces, from bleak dystopias like The Road to tragic romances like Atonement.
+---------
+
+# Harlan Coben's Explosive New Crime Miniseries Hits Netflix in 2 Weeks
+
+TV News, I Will Find You, Netflix, Thriller, Harlan Coben
+
+Fri, 05 Jun 2026 19:20:14 GMT
+
+https://collider.com/harlan-coben-new-crime-miniseries-i-will-find-you-release-date-netflix-june-18-2026/
+
+I Will Find You, the new binge-worthy miniseries from Harlan Coben, officially hits Netflix in two weeks.
+---------
+
+# After Just 1 Day, Apple's New 10-Part Crime Thriller Is a Smash Hit On Streaming
+
+TV News, Cape Fear, Hot on Streaming, Crime, Thriller, Apple TV
+
+Fri, 05 Jun 2026 21:00:19 GMT
+
+https://movieweb.com/cape-fear-apple-tv-crime-thriller-streaming-hit-june-2026/
+
+Apple TV's updated version of 'Cape Fear' has wasted no time making its presence known on streaming.
+---------
+
+# 9 Great Martial Arts Movies With 10/10 Action That Are Free To Stream
+
+Movie Lists, Martial Arts, Action, Streaming, Tubi
+
+Fri, 05 Jun 2026 21:00:19 GMT
+
+https://movieweb.com/great-martial-arts-action-movies-free-stream/
+
+From modern hits with Tony Jaa to classics with Jackie Chan, these action-packed martial arts movies shouldn't be missed on free streaming.
+---------
+
+# Hulu Sets New Comedy Based on Cult Classic '90s Jim Carrey Flop
+
+TV News, Jim Carrey, The Cable Guy, Jake Johnson, Damon Wayans Jr.
+
+Fri, 05 Jun 2026 20:45:40 GMT
+
+https://movieweb.com/hulu-cable-guy-jake-johnson-damon-wayans/
+
+'New Girl' stars Jake Johnson and Damon Wayans Jr. are reuniting for a new series inspired by the cult classic Jim Carrey comedy 'The Cable Guy.'
+---------
+
+# Seth Rogen Rebooting Beloved '80s Family Adventure Series
+
+TV News, The Littlest Hobo, Seth Rogen
+
+Fri, 05 Jun 2026 20:19:41 GMT
+
+https://movieweb.com/littlest-hobo-reboot-seth-rogen/
+
+The filmmaker is putting his own spin on the Canadian classic 'The Littlest Hobo.'
+---------
+
+# Netflix Finds New #1 Hit With 98% Rated Family-Friendly Biblical Smash
+
+Movie News, David, Hot on Streaming, Animation, Netflix
+
+Fri, 05 Jun 2026 20:01:20 GMT
+
+https://movieweb.com/david-animated-biblical-musical-streaming-hit-netflix-june-2026/
+
+Netflix has found its newest #1 hit with a family-friendly favorite released by Angel Studios.
+---------
+
+# 10 Movies That Almost Had Much Better Endings
+
+Movie Lists, Horror, Action, Superhero, Drama, Thriller
+
+Fri, 05 Jun 2026 20:01:20 GMT
+
+https://movieweb.com/movies-almost-had-much-better-endings/
+
+While a lot of movie finales aren't as initially planned, many agree that these titles would've been better if they'd stuck to their original endings.
+---------
+
+# It's Officially the End of an Era for Taylor Sheridan
+
+Features, Taylor Sheridan, Paramount Plus, HBO Max
+
+Fri, 05 Jun 2026 19:37:14 GMT
+
+https://movieweb.com/taylor-sheridan-paramount-plus-hbo-max-merger/
+
+Taylor Sheridan has been responsible for some of the best dramas of the last decade, but a major media merger will kick off a new era for his content.
+---------
+
+# George Lucas Resolved a Massive Prequel Misconception About Anakin's Fall to the Dark Side
+
+Features, Star Wars, George Lucas
+
+Fri, 05 Jun 2026 19:30:20 GMT
+
+https://movieweb.com/george-lucas-prequel-jedi-celibacy/
+
+Jedi might’ve had more freedom than you thought when it comes to more intimate matters. The real issue was never about love — it was about attachment.
+---------
+
 # Matt Reeves' Batman Officially Returns In 2 Months
 
 Streaming TV, Masked Recs
