@@ -1,3 +1,432 @@
+# Apple TV’s New 10-Part Psychological Thriller Recreates Robert De Niro’s Most Iconic Opening Sequence
+
+Streaming TV, Masked Recs
+
+Fri, 05 Jun 2026 17:01:22 GMT
+
+https://screenrant.com/cape-fear-apple-tv-recreates-robert-de-niro-best-movie-opening/
+
+With its new 10-episode miniseries, Apple TV has taken an innovative approach to recreating one of the most iconic openings in cinema history.
+---------
+
+# Pokémon: Recharged Yellow Is The Perfect 30th Anniversary Adventure
+
+Gaming, Pokemon
+
+Fri, 05 Jun 2026 17:01:22 GMT
+
+https://screenrant.com/pokemon-recharged-yellow-30th-anniversary-rom-hack/
+
+If you're feeling nostalgic for Kanto, then Pokémon: Recharged Yellow is the ideal way to celebrate the 30th anniversary this year, and it's out now.
+---------
+
+# Sailor Moon Meets Evangelion In The 1990s Anime So Good, It's The Decade's Best-Aged Series
+
+Anime, Masked Recs
+
+Fri, 05 Jun 2026 17:01:22 GMT
+
+https://screenrant.com/revolutionary-girl-utena-evangelion-meets-sailor-moon-aged-perfectly/
+
+The best 90s anime you should have been watching.
+---------
+
+# Peter Dinklage Reveals His 8-Year-Old Son's Reaction To Game Of Thrones
+
+TV, Game Of Thrones, Game of Thrones, Peter Dinklage
+
+Fri, 05 Jun 2026 16:56:51 GMT
+
+https://screenrant.com/game-of-thrones-peter-dinklage-son-reaction/
+
+Peter Dinklage’s two children recently watched Game of Thrones, with the actor revealing what his son really thinks of the fantasy series.
+---------
+
+# Masters Of The Universe 2 Isn't Confirmed Yet But Here's Everything We Know
+
+Movies, Masters of the Universe
+
+Fri, 05 Jun 2026 16:35:21 GMT
+
+https://screenrant.com/masters-of-the-universe-2-movie-updates-details/
+
+Masters of the Universe opens the door to more adventures in Eternia in the future, but is a sequel likely, and what would it be about?
+---------
+
+# The MCU's Silver Surfer Is Officially Returning In Breathtaking New Series (Exclusive)
+
+Comics, The Fantastic Four: First Steps, Silver Surfer, Marvel
+
+Fri, 05 Jun 2026 16:30:34 GMT
+
+https://screenrant.com/shala-bal-silver-surfer-new-series-mcu/
+
+She's back!
+---------
+
+# 5 Star Trek Connections In Masters Of The Universe Live-Action Movies
+
+TV, Masters of the Universe, Star Trek
+
+Fri, 05 Jun 2026 16:30:34 GMT
+
+https://screenrant.com/star-trek-masters-of-the-universe-connection/
+
+He-Man returns in a new summer blockbuster, and both live-action Masters of the Universe movies have surprisingly deep ties to Star Trek.
+---------
+
+# Dutton Ranch's New Cowboy Has Fully Chosen A Side After Rip's Devastating Decision
+
+TV, Dutton Ranch, Dutton Ranch - Season 1, Yellowstone, Paramount Plus, Marc Menchaca
+
+Fri, 05 Jun 2026 16:26:49 GMT
+
+https://screenrant.com/yellowstone-dutton-ranch-zachariah-side-choice-rip-cattle-decision-mancheca/
+
+Exclusive: One of Dutton Ranch's new cowboys is firmly establishing their loyalties after Rip's devastating decision, as the show's star explains.
+---------
+
+# Married At First Sight Season 18: Which Couples Are Still Together?
+
+Reality TV, Married At First Sight
+
+Fri, 05 Jun 2026 16:25:24 GMT
+
+https://screenrant.com/married-at-first-sight-season-18-which-couples-still-together/
+
+Discover the outcomes of Married At First Sight season 18 couples, including who stayed together & who divorced, as revealed in the reunion & after.
+---------
+
+# Scary Movie's 11 Best Horror Parodies (And What They're Mocking), Explained
+
+Lists, Scary Movie
+
+Fri, 05 Jun 2026 16:20:22 GMT
+
+https://screenrant.com/scary-movies-2026-best-horror-parodies/
+
+Scary Movie pokes fun at many of the best modern horror movies, with the broad strokes approach allowing it to reference multiple films at once.
+---------
+
+# Steam Officially Drops 4 Free Games This June You Can Keep Forever
+
+Games, Steam
+
+Fri, 05 Jun 2026 16:39:54 GMT
+
+https://www.cbr.com/steam-4-free-games-june-2026/
+
+More free games that players can keep forever are now available to claim on Steam.
+---------
+
+# Nintendo Switch 2's Star Fox Preview
+
+Games, Star Fox
+
+Fri, 05 Jun 2026 16:35:14 GMT
+
+https://www.cbr.com/star-fox-preview-nintendo/
+
+After coming out of the Star Fox preview, I find myself impressed by the incredible visual improvements, co-op mode and battle mode.
+---------
+
+# Hulu Orders New Thriller Based on 2022 Novel From WandaVision Director
+
+TV, Hulu
+
+Fri, 05 Jun 2026 16:31:25 GMT
+
+https://www.cbr.com/suspect-hulu-thriller-wandavision-director-matt-shakman/
+
+Some major creatives in the television space are coming together for a new thriller series at Hulu.
+---------
+
+# Adventure Time Head to the Movies, and We Have the Exclusive Preview
+
+Comics, Adventure Time
+
+Fri, 05 Jun 2026 16:21:57 GMT
+
+https://www.cbr.com/adventure-time-movies-exclusive-preview/
+
+In a CBR exclusive preview, see the Adventure Time head to the movies in a series of movie-themed stories in an upcoming special
+---------
+
+# Taylor Sheridan's Brutal Spy Series Pushes Zoe Saldaña’s Joe Into 'Demanding' Uncharted Territory
+
+TV, Lioness
+
+Fri, 05 Jun 2026 16:21:55 GMT
+
+https://www.cbr.com/taylor-sheridan-lioness-zoe-saldana-season-3-mission/
+
+The hit spy series returns this summer to Paramount+.
+---------
+
+# The Legend of Vox Machina Season 4 Nearly Didn’t Happen, Critical Role Cast Reveals
+
+CBR Exclusives, The Legend of Vox Machina, Critical Role, The Mighty Nein
+
+Fri, 05 Jun 2026 16:17:42 GMT
+
+https://www.cbr.com/vox-machina-season-4-almost-didnt-happen/
+
+For the cast of Critical Role, The Legend of Vox Machina turned their hobby into a full-time job that was never actually supposed to exist.
+---------
+
+# 5 Summer 2026 Anime That Could Easily Become the Year's Biggest Hits
+
+Anime, Saga of Tanya the Evil, Bleach: Thousand Year Blood War, Sekiro: No Defeat
+
+Fri, 05 Jun 2026 16:15:14 GMT
+
+https://www.cbr.com/summer-2026-anime-biggest-hit-potential/
+
+With the weather warming up and flowers blooming, these five anime series are destined to be  the biggest hits of the Summer 2026 line-up.
+---------
+
+# Nick Antosca Breaks Down Cape Fear's Creepiest Creative Choices
+
+TV, Cape Fear
+
+Fri, 05 Jun 2026 16:15:14 GMT
+
+https://www.cbr.com/video/nick-antosca-breaks-down-cape-fear-s-creepiest-creative-choices/
+
+Cape Fear creator Nick Antosca explains how the Apple TV+ series transforms the classic thriller into a psychological nightmare for a new generation.
+---------
+
+# Jujutsu Kaisen, Attack on Titan and Chainsaw Man Officially Set for New Reveals on June 19
+
+Anime, Chainsaw Man, Jujutsu Kaisen, Attack on Titan
+
+Fri, 05 Jun 2026 16:00:15 GMT
+
+https://www.cbr.com/jujutsu-kaisen-attack-on-titan-chainsaw-man-mappa-event/
+
+Chainsaw Man Season 2 will receive an official new first look this June, alongside Jujutsu Kaisen Season 4, Attack on Titan and more.
+---------
+
+# Star Trek Resurrected Captain Sisko's Greatest Deep Space Nine Quote for the 21st Century
+
+TV, Star Trek: Starfleet Academy, Star Trek, Star Trek: Deep Space Nine
+
+Fri, 05 Jun 2026 16:00:15 GMT
+
+https://www.cbr.com/star-trek-starfleet-academy-sisko-deep-space-nine-quote/
+
+Starfleet Academy and its characters perfectly embody one of Captain Sisko's greatest quotes from Star Trek: Deep Space Nine.
+---------
+
+# Sleeping Dogs: Forget 'Memento,' Russell Crowe's Forgotten Detective Thriller Is the Perfect Free Late-Night Watch
+
+Movie Features, Russell Crowe, Psychological Thriller, Noir, Sleeping Dogs
+
+Fri, 05 Jun 2026 17:04:15 GMT
+
+https://collider.com/sleeping-dogs-russell-crowe-thriller-adam-cooper/
+
+Adam Cooper's directorial debut captures Russel Crowe as a dementia-stricken detective, forced to reinvestigate a cold case in Sleeping Dogs.
+---------
+
+# ‘NCIS: Origins’ Worst Episode Proves It Will Never Match the Original
+
+TV Features, NCIS, NCIS: Origins, Mark Harmon, CBS
+
+Fri, 05 Jun 2026 17:02:14 GMT
+
+https://collider.com/ncis-origins-worst-season-1-episode-12-richard-kowalski-storyline/
+
+NCIS: Origins was right to focus on Gibbs, and its shortened 10-episode Season 3 makes that lesson more important than ever.
+---------
+
+# The Most Ridiculous Time-Travel Sci-Fi Thriller Is the Sleeper Hit of the Year
+
+Movie Features, Mike & Nick & Nick & Alice, Vince Vaughn, James Marsden, Eiza Gonzalez
+
+Fri, 05 Jun 2026 16:06:26 GMT
+
+https://collider.com/mike-and-nick-and-nick-and-alice-most-ridiculous-time-travel-thriller/
+
+Mike & Nick & Nick & Alice is a surprisingly hilarious time travel movie about a gangster who uses a time machine to right past wrongs.
+---------
+
+# 22 Years Later, Denzel Washington's Paranoid Conspiracy Thriller Is Still One of the Best Ever Made
+
+Movie Features, The Manchurian Candidate, Denzel Washington, Jonathan Demme, Thriller
+
+Fri, 05 Jun 2026 16:06:15 GMT
+
+https://collider.com/the-manchurian-candidate-2004-remake-denzel-washington-conspiracy-thriller-pluto-tv/
+
+Jonathan Demme's overlooked thriller The Manchurian Candidate, starring Denzel Washington, Meryl Streep, and Liev Schrieber, is a 10/10 remake.
+---------
+
+# 'Star City's Biggest Irina Twist Completely Changes 'For All Mankind's Most Divisive Character
+
+Interviews, Star City, Anna Maxwell Martin, Apple TV, For All Mankind
+
+Fri, 05 Jun 2026 16:00:16 GMT
+
+https://collider.com/star-city-apple-tv-episode-3-irina-daughter-agnes-ocasey-anna-maxwell-martin-interview/
+
+Star City's Agnes O'Casey and Anna Maxwell Martin discuss that major Irina twist, Irina and Lyudmilla's "toxic dynamic," and more.
+---------
+
+# New Moana Release Sets the Stage for Disney's Next Big Live-Action Remake [Exclusive]
+
+Movie News, Moana, Disney, Dwayne Johnson
+
+Fri, 05 Jun 2026 16:00:16 GMT
+
+https://collider.com/moana-loungefly-mini-backpack-wallet-first-look-images/
+
+Loungefly has prepared a new backpack and wallet inspired by Disney's Moana just in time for the live-action remake to arrive in theaters.
+---------
+
+# Every Duran Duran Studio Album Released in the 80s, Ranked
+
+Music Features, Duran Duran: Sing Blue Silver, Pop, Music, Classic Albums: Duran Duran - Rio
+
+Fri, 05 Jun 2026 16:00:16 GMT
+
+https://collider.com/every-duran-duran-80s-album-ranked/
+
+From Rio to Seven and the Ragged Tiger to Notorious, every Duran Duran album released in the 80s, ranked.
+---------
+
+# Samara Weaving Reveals She and Kyle Gallner Want to Star in a 'Princess Bride'-Style Fantasy
+
+Exclusives, Carolina Caroline, Samara Weaving, Kyle Gallner, Dinner in America
+
+Fri, 05 Jun 2026 16:00:16 GMT
+
+https://collider.com/samara-weaving-carolina-caroline-kyle-gallner-princess-bride-fantasy-movie/
+
+Samara Weaving and Kyle Gallner discuss their on-screen chemistry in Adam Rehmeier's new movie, and the surprising genre they want to tackle together.
+---------
+
+# ‘Buffy the Vampire Slayer’ and ‘Ted Lasso’ Star Anthony Head Dead at 72
+
+TV News, Buffy The Vampire Slayer, Sarah Michelle Gellar, Horror, Ted Lasso
+
+Fri, 05 Jun 2026 15:49:35 GMT
+
+https://collider.com/anthony-head-dead-at-72-buffy-the-vampire-slayer-ted-lasso/
+
+Anthony Head, who starred in Buffy the Vampire Slayer, Merlin, Little Britain, and Ted Lasso, has died at 72.
+---------
+
+# It’s Officially the End of an Era for Paramount+
+
+TV News, Paramount Plus, HBO Max, Warner Bros., Paramount
+
+Fri, 05 Jun 2026 15:06:37 GMT
+
+https://collider.com/hbo-max-paramount-plus-merger-streaming-platform/
+
+HBO Max and Paramount+ are officially set to merge into one streaming service after Paramount completes its Warner Bros. Discovery acquisition.
+---------
+
+# Best War Movies of 2025 You Missed Out On
+
+Movie Lists, War
+
+Fri, 05 Jun 2026 17:00:22 GMT
+
+https://movieweb.com/best-new-war-movies-you-havent-seen/
+
+Wondering where the war movies are in 2025? There are plenty you might have missed.
+---------
+
+# Amazon Hit With Defamation Lawsuit Over 'Hollywood Hustler: Glitz, Glam, Scam' Documentary
+
+TV News, Amazon, Prime Video
+
+Fri, 05 Jun 2026 16:42:44 GMT
+
+https://movieweb.com/amazon-prime-video-hollywood-hustler-lawsuit/
+
+They lived their lives like 'Wolf of Wall Street.'
+---------
+
+# 'Buffy' and 'Ted Lasso' Star Anthony Head Dies Aged 72
+
+TV News, Anthony Head, Buffy The Vampire Slayer, Ted Lasso
+
+Fri, 05 Jun 2026 16:14:27 GMT
+
+https://movieweb.com/anthony-head-dead-aged-72/
+
+Anthony Head, best known for his work in 'Buffy the Vampire Slayer' and 'Ted Lasso,' passed away at the age of 72.
+---------
+
+# 35 Years Later, 130-Minute Cyberpunk Action Epic Masterpiece Is Streaming Free
+
+Movie News, Terminator 2: Judgment Day, Coming/Leaving Streaming
+
+Fri, 05 Jun 2026 16:01:20 GMT
+
+https://movieweb.com/terminator-2-streaming-free-pluto-june-2026/
+
+When it comes to time travel action films, it doesn't get any better than this.
+---------
+
+# 10 Great Jason Statham Action Movies That Still Deserve a Sequel
+
+Movie Lists, Jason Statham, Action
+
+Fri, 05 Jun 2026 16:01:20 GMT
+
+https://movieweb.com/great-jason-statham-action-movies-deserve-sequels/
+
+Some of Jason Statham's best action movies are still desperately in need of sequels, with one even promised 22 years ago.
+---------
+
+# Taylor Sheridan's Action Thriller 'Lioness' Finally Gets Official 2026 Release Date
+
+TV News, Lioness
+
+Fri, 05 Jun 2026 15:17:45 GMT
+
+https://movieweb.com/lioness-season-3-release-date/
+
+'Lioness' Season 3, starring Zoe Saldaña and Nicole Kidman, is officially set to debut this August on Paramount+.
+---------
+
+# 'Masters of the Universe': When the Sword and Sorcery Movie Releases on Streaming
+
+Features, Masters of the Universe
+
+Fri, 05 Jun 2026 15:00:21 GMT
+
+https://movieweb.com/masters-of-the-universe-streaming-release-date/
+
+'Masters of the Universe' is a highly anticipated sword and sorcery movie starring Camila Mendes and Nicholas Galitzine.
+---------
+
+# 'Toy Story 5' Finally Reveals Jessie's Original Owner in Flashback Clip
+
+Movie News, Toy Story 5, Toy Story, Pixar
+
+Fri, 05 Jun 2026 14:46:33 GMT
+
+https://movieweb.com/toy-story-5-clip-jessies-owner-emily/
+
+Disney has released a new clip from 'Toy Story 5' confirming that Emily, Jessie's original owner, will make an appearance in the Pixar sequel.
+---------
+
+# 'Spider-Man: Brand New Day' Runtime Potentially Revealed
+
+Movie News, Spider-Man: Brand New Day
+
+Fri, 05 Jun 2026 14:44:28 GMT
+
+https://movieweb.com/spider-man-brand-new-day-runtime/
+
+A pair of sources may have revealed the length of the runtime for Marvel Studios and Sony Pictures' 'Spider-Man: Brand New Day.'
+---------
+
 # Netflix's 2-Part 'True Detective Meets Se7en' Series Is One Of Its Best Crime Shows
 
 Streaming TV, Masked Recs
