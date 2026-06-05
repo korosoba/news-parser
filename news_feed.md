@@ -1,3 +1,399 @@
+# Matt Reeves' Batman Officially Returns In 2 Months
+
+Streaming TV, Masked Recs
+
+Fri, 05 Jun 2026 19:08:14 GMT
+
+https://screenrant.com/matt-reeves-batman-caped-crusader-season-2-july-2026/
+
+Matt Reeves' Batman is coming back in just two months while The Batman: Part II is in production, but there's a twist in this exciting return.
+---------
+
+# Netflix's New 3-Part Michael Jackson Series Fuels Rotten Tomatoes Review Bomb After $855M Movie
+
+TV, Michael Jackson: The Verdict
+
+Fri, 05 Jun 2026 19:01:37 GMT
+
+https://screenrant.com/michael-jackson-the-verdict-netflix-rotten-tomatoes-score/
+
+Michael Jackson continues to make headlines as a new 3-part series on Netflix has fueled major review bombs on Rotten Tomatoes after biopic's release.
+---------
+
+# Steam Officially Drops New Fantasy RPG That's Completely Free To Play
+
+Gaming, RPG, Steam, PC, Indie, Recommendation
+
+Fri, 05 Jun 2026 19:01:22 GMT
+
+https://screenrant.com/steam-free-fantasy-rpg-june-2026-eterspire/
+
+A brand-new RPG has just been released on Steam, and it’s entirely free-to-play; developers promise free updates every two weeks, so check it out.
+---------
+
+# James Bond May Have Already Found Daniel Craig’s Replacement
+
+Movies, Originals
+
+Fri, 05 Jun 2026 19:01:22 GMT
+
+https://screenrant.com/video/james-bond-may-have-already-found-daniel-craig-s-replacement/
+
+James Bond may have already found Daniel Craig’s replacement, as the franchise’s latest casting rumors point to a potential new 007 who could shape the future of the iconic spy series under Amazon MGM Studios.
+---------
+
+# Paramount's 5-Part Sci-Fi Series With Near-Perfect RT Score Proves The Value Of Episodic Television
+
+Streaming TV, Masked Recs
+
+Fri, 05 Jun 2026 19:01:22 GMT
+
+https://screenrant.com/paramount-star-trek-strange-new-worlds-episodic-value/
+
+One of Paramount's most successful science fiction shows is also one of the few streaming-era series bold enough to utilize an episodic format.
+---------
+
+# 3 Best Netflix Shows To Watch This Weekend (June 5–7)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Fri, 05 Jun 2026 18:49:21 GMT
+
+https://screenrant.com/best-netflix-shows-to-watch-weekend-june-5/
+
+The three best shows to watch this weekend on Netflix include a Taylor Sheridan Western, a groundbreaking docuseries, and a new 3-part crime drama.
+---------
+
+# Tom Holland's Spider-Man Is Officially Switching Genres In Brand New Day
+
+Movies, Spider-Man: Brand New Day
+
+Fri, 05 Jun 2026 18:45:20 GMT
+
+https://screenrant.com/spider-man-mcu-tom-holland-brand-new-day-genre-change/
+
+Spider-Man: Brand New Day is setting up a much more grounded, street-level story than Tom Holland's previous Spidey movies have explored.
+---------
+
+# Key Taylor Sheridan Collaborator Lands First New Project After Yellowstone Universe Exit
+
+TV, Yellowstone
+
+Fri, 05 Jun 2026 18:32:26 GMT
+
+https://screenrant.com/kelsey-asbille-the-kellys-yellowstone-exit-casting/
+
+A star of the smash hit Taylor Sheridan series Yellowstone sets their first new acting role, landing a major movie after the end of the series.
+---------
+
+# It's The End Of An Era For The Legend Of Vox Machina
+
+Streaming TV, The Legend of Vox Machina
+
+Fri, 05 Jun 2026 18:30:22 GMT
+
+https://screenrant.com/the-legend-of-vox-machina-end-of-era-scanlan/
+
+The Legend of Vox Machina has released four seasons in as many years, but Prime Video's latest run marks the end of an era for the Critical Role show.
+---------
+
+# Silent Hill: Townfall - Release Date, Trailer, Gameplay, & Story Details
+
+Gaming, Silent Hill: Townfall, Silent Hill, Triple-A Games, PC
+
+Fri, 05 Jun 2026 18:30:22 GMT
+
+https://screenrant.com/silent-hill-townfall-release-date-trailer-gameplay-story/
+
+Silent Hill: Townfall has finally revealed its key details, including the long-awaited release date to venture forth into the fog once more.
+---------
+
+# Gambit Takes on a Major Daredevil Villain Before X-Men '97 Season 2
+
+Comics, X-Men
+
+Fri, 05 Jun 2026 19:12:47 GMT
+
+https://www.cbr.com/gambit-major-daredevil-villain-xmen-97-exclusive-preview/
+
+In an exclusive first look at Gambit's new miniseries, see the hero join the X-Men for the first time, and face off against a major Daredevil villain
+---------
+
+# Netflix's New 115-Minute Jennifer Lopez Movie Doesn't Impress the Critics on Rotten Tomatoes
+
+Movies, Office Romance, Rotten Tomatoes
+
+Fri, 05 Jun 2026 19:12:41 GMT
+
+https://www.cbr.com/netflix-office-romance-rotten-tomatoes-score/
+
+Netflix's new original movie starring Jennifer Lopez is now available, and it features mixed reviews.
+---------
+
+# 5 Forgotten Golden Age Westerns That Are Still Masterpieces Today
+
+Movies, Western, 3 Godfathers, The Gunfighter
+
+Fri, 05 Jun 2026 19:00:14 GMT
+
+https://www.cbr.com/best-golden-age-westerns-no-one-remembers-list/
+
+The golden age of cinema produced some of the greatest timeless classics ever made, and the Western genre is no exception, including forgotten gems.
+---------
+
+# Among Us TV Series Quietly Debuts on a Major Streaming Service
+
+TV, Among Us, Paramount Plus, Animation
+
+Fri, 05 Jun 2026 18:35:19 GMT
+
+https://www.cbr.com/among-us-animated-series-paramount-plus/
+
+Surprise! The Among Us animated series is here!
+---------
+
+# Lily Collias & Joe Anders Break Down Cape Fear’s Most Unsettling Moments
+
+TV, Cape Fear
+
+Fri, 05 Jun 2026 18:15:14 GMT
+
+https://www.cbr.com/video/lily-collias-joe-anders-break-down-cape-fear-s-most-unsettling-moments/
+
+Cape Fear stars Lily Collias and Joe Anders reveal what it was really like working opposite Javier Bardem as Max Cady in Apple TV+’s chilling new adaptation.
+---------
+
+# 10 Near-Perfect Isekai Anime No One Ever Talks About
+
+Anime, Isekai, Grimgar of Fantasy and Ash
+
+Fri, 05 Jun 2026 18:15:14 GMT
+
+https://www.cbr.com/near-perfect-forgotten-isekai-anime/
+
+Despite phenomenal worldbuilding, great characters and powerful storytelling, some powerful isekai titles never get the recognition they deserve.
+---------
+
+# Chris Pine's 3-Year-Old Box Office Flop Is Officially No. 1 on Free Streaming
+
+Movies, Dungeons & Dragons: Honor Among Thieves, Fantasy, Dungeons and Dragons
+
+Fri, 05 Jun 2026 18:07:33 GMT
+
+https://www.cbr.com/dungeons-and-dragon-honor-among-thieves-success-pluto-june-2026/
+
+Chris Pine's fan-favorite box office disappointment is a hit on free streaming.
+---------
+
+# One Piece Reveals Stunning First Look at Roronoa Zoro’s Official New Design
+
+Anime, One Piece
+
+Fri, 05 Jun 2026 18:00:14 GMT
+
+https://www.cbr.com/one-piece-roronoa-zoro-scale-figure-release/
+
+The Straw Hat Pirates' very own Roronoa Zoro is getting a stunning new look courtesy of one of the best figure lines in the industry.
+---------
+
+# Marvel Should Take More Risks With New Heroes After The Ultimates
+
+Comics, Marvel
+
+Fri, 05 Jun 2026 18:00:14 GMT
+
+https://www.cbr.com/marvel-needs-more-risks-new-heroes-after-ultimates/
+
+The Ultimates represented a major risk for Marvel Comics and it paid off. It's time to go down that same path and explore other opportunities.
+---------
+
+# 10 Clues That Spoiled Lost's Series Finale Twist
+
+TV, Lost, ABC, Fantasy
+
+Fri, 05 Jun 2026 18:00:14 GMT
+
+https://www.cbr.com/clues-spoiled-lost-series-finale-twist/
+
+Throughout all six seasons of Lost, there are subtle and overt clues that effectively spoiled the twists and surprises in the series finale.
+---------
+
+# 10 Great Crime Shows You'll Wish You Watched Sooner
+
+TV, Crime, Banshee, Mr Inbetween, Quarry
+
+Fri, 05 Jun 2026 19:08:14 GMT
+
+https://collider.com/best-crime-shows-wish-you-watched-sooner/
+
+Explore exceptional crime shows that deserve your attention, featuring acclaimed hits like Mindhunter and hidden gems like Quarry.
+---------
+
+# 'Buffy the Vampire Slayer' Cast Pays Tribute to Anthony Stewart Head
+
+TV News, Buffy The Vampire Slayer, Ted Lasso, David Boreanaz, James Marsters
+
+Fri, 05 Jun 2026 19:05:01 GMT
+
+https://collider.com/anthony-stewart-head-tributes-buffy-the-vampire-slayer-ted-lasso-david-boreanaz-james-marsters/
+
+David Boreanaz, James Marsters, and more have paid their respects to the late Buffy and Ted Lasso star, Anthony Stewart Head.
+---------
+
+# Pixar Legend’s Long-Delayed Sci-Fi Detective Movie Finally Revealed in First Look
+
+Movie News, Ray Gunn, Brad Bird, Netflix, Scarlett Johansson
+
+Fri, 05 Jun 2026 19:00:14 GMT
+
+https://collider.com/brad-bird-sci-fi-movie-ray-gunn-netflix-first-look-image-sam-rockwell/
+
+Ray Gunn, the sci-fi detective film from Brad Bird that's been in development for 30 years, finally gets a first-look ahead of its Netflix debut.
+---------
+
+# Get Tickets for Collider Ladies Night Live With Critical Role Stars
+
+Exclusives, Ladies Night, Critical Role, The Legend of Vox Machina, The Mighty Nein
+
+Fri, 05 Jun 2026 19:00:14 GMT
+
+https://collider.com/critical-role-collider-ladies-night-live-tickets-ashley-johnson-laura-bailey-marisha-ray/
+
+Details on how to get tickets to Collider Ladies Night Live with Critical Role and Vox Machina's Ashley Johnson, Laura Bailey, and Marisha Ray!
+---------
+
+# ‘Avatar: The Last Airbender’ Season 2 Is Officially Continuing the Series’ Worst Trend
+
+TV News, Avatar: The Last Airbender, Netflix, The Legend of Aang: The Last Airbender
+
+Fri, 05 Jun 2026 18:40:15 GMT
+
+https://collider.com/netflix-live-action-avatar-the-last-airbender-season-2-skipping-animated-storylines/
+
+Avatar: The Last Airbender Season 2 continues the live-action show's worst trend: skipping key moments from the animated series.
+---------
+
+# Stargate Fans Flock to the Cult Classic Sci-Fi Series Following Prime Video Reboot Series Cancellation
+
+TV News, Stargate, Stargate SG-1, Sci-Fi, Prime Video
+
+Fri, 05 Jun 2026 18:20:14 GMT
+
+https://collider.com/sci-fi-series-stargate-sg-1-cancelled-prime-video-reboot-streaming-success-june-2026/
+
+Despite the cancellation of Prime Video's planned Stargate reboot, the iconic SG-1 series experiences a streaming resurgence.
+---------
+
+# Obsession: The Emergency Plan Hidden in 2 Ikea Bags | Collider BTS
+
+Movie, Obsession
+
+Fri, 05 Jun 2026 18:12:27 GMT
+
+https://collider.com/video/obsession-the-emergency-plan-hidden-in-2-ikea-bags-collider-bts/
+
+Discover how Obsession stars and crew prepared for on-set emergencies with a surprisingly simple two-Ikea-bag backup plan, revealing the behind-the-scenes logistics, safety strategies, and production secrets that kept filming on track.
+---------
+
+# Henry Cavill Officially Joins Netflix's Newest Spy Thriller
+
+Movie News, Henry Cavill, Netflix, Kevin Hart, Action
+
+Fri, 05 Jun 2026 18:00:38 GMT
+
+https://collider.com/henry-cavill-netflix-spy-thriller-kevin-hart-mcg-directing/
+
+Henry Cavill has officially found his next spy thriller as fans continue to campaign for him to play the next James Bond.
+---------
+
+# ‘Hacks’ Meets ‘The Office’ in Explosive First Trailer for 'It's Getting Late with Owen Reed' [Exclusive]
+
+TV News, Talk Show, Comedy, America's Got Talent, Indie
+
+Fri, 05 Jun 2026 17:50:44 GMT
+
+https://collider.com/its-getting-late-with-owen-reed-trailer-series-premiere-tlc-chinese-theater/
+
+A late night talk show goes awry in the first trailer for the new series, It's Getting Late with Owen Reed. Watch the trailer now.
+---------
+
+# Netflix Officially Confirms New Episodes of Stranger Things Coming This Fall
+
+TV News, Stranger Things: Tales from '85, Stranger Things, Netflix, Duffer Brothers
+
+Fri, 05 Jun 2026 17:48:05 GMT
+
+https://collider.com/stranger-things-tales-from-85-season-2-netflix-new-episodes-fall-2026/
+
+Netflix officially confirms new episodes of Stranger Things will arrive on the streamer later this year. Here’s what you need to know.
+---------
+
+# 'Toy Story 5's Major Franchise-First Confirms the Story is Getting Darker After 30 Years
+
+Features, Toy Story 5, Toy Story
+
+Fri, 05 Jun 2026 19:00:20 GMT
+
+https://movieweb.com/toy-story-5-darker-story/
+
+'Toy Story' movies have always been G-rated, but 'Toy Story 5 'is bucking that trend. Read on for more.
+---------
+
+# Cillian Murphy Runs for His Life in First 'A Quiet Place Part III' Images
+
+Movie News, A Quiet Place, A Quiet Place Part III
+
+Fri, 05 Jun 2026 18:46:38 GMT
+
+https://movieweb.com/a-quiet-place-part-iii-images-cillian-murphy/
+
+Set photos tease an intense action sequence in the long-awaited third entry of John Krasinski's horror franchise.
+---------
+
+# David Corenswet's Superman Meets Milly Alcock's Supergirl in New Clip
+
+Movie News, Supergirl, Milly Alcock, David Corenswet
+
+Fri, 05 Jun 2026 18:15:39 GMT
+
+https://movieweb.com/supergirl-clip-david-corenswet-superman/
+
+A new 'Supergirl' clip highlighted the first meeting between David Corenswet's Kal-El and Milly Alcock's Kara Zor-El.
+---------
+
+# 'Scary Movie' Soars as Thursday Box Office Takes Stab at Slasher Favorite
+
+Movie News, Scary Movie, Box Office Milestones, Scream 7
+
+Fri, 05 Jun 2026 18:00:19 GMT
+
+https://movieweb.com/scary-movie-6-thursday-box-office-previews-scream-7-levels/
+
+The return of the 'Scary Movie' franchise has been a huge hit so far, as 'Scary Movie 6' has nearly reached the heights of another horror favorite.
+---------
+
+# 'Masters of the Universe's 3 Post-Credit Scenes, Explained
+
+Features, Masters of the Universe
+
+Fri, 05 Jun 2026 18:00:19 GMT
+
+https://movieweb.com/masters-of-the-universe-post-credit-scenes-explained/
+
+From returning villains to the live-action debuts of two iconic characters, 'Masters of the Universe' sets up plenty of storylines for future films.
+---------
+
+# Henry Cavill Finally Gets James Bond Moment as He Leads New Netflix Action Spy Movie
+
+Movie News, Henry Cavill, Netflix, Action
+
+Fri, 05 Jun 2026 17:47:26 GMT
+
+https://movieweb.com/henry-cavill-spy-thriller-netflix-kevin-hart/
+
+The action star has joined the new movie from director McG that will also star Kevin Hart.
+---------
+
 # Apple TV’s New 10-Part Psychological Thriller Recreates Robert De Niro’s Most Iconic Opening Sequence
 
 Streaming TV, Masked Recs
