@@ -1,3 +1,267 @@
+# It's Officially The Start Of An Era For Apple TV's 10/10 Dystopian Sci-Fi Series
+
+TV, Masked Recs
+
+Thu, 04 Jun 2026 23:40:10 GMT
+
+https://screenrant.com/silo-sci-fi-series-apple-tv-streaming-charts-rise-june-2026/
+
+Apple TV's masterpiece dystopian sci-fi series marks the start of a new era with streaming dominance ahead of its game-changing 2026 return.
+---------
+
+# It's Official, House Of The Dragon Season 3 Will Be Nothing Like Season 2
+
+Streaming TV, House of the Dragon, Game of Thrones
+
+Thu, 04 Jun 2026 23:30:21 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-different-from-season-2/
+
+House of the Dragon season 3 will be a turning point for the Game of Thrones spinoff TV series, and the franchise's future depends on it.
+---------
+
+# Aegon Targaryen's 5-Season Story Arc In A Knight Of The Seven Kingdoms Outlined By Creator
+
+TV, A Knight Of The Seven Kingdoms, Game of Thrones
+
+Thu, 04 Jun 2026 23:04:51 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-aegen-egg-targaryen-five-season-arc-ira-parker/
+
+Showrunner Ira Parker provides a broad outline for what he'd like to do with one of the main characters of A Knight of the Seven Kingdoms.
+---------
+
+# DC Officially Confirms New 12-Part Batman & Robin Series, With Catwoman as the Main Villain
+
+DC Comics, Batman, Robin
+
+Thu, 04 Jun 2026 23:01:21 GMT
+
+https://screenrant.com/batman-and-robin-year-one-dynamic-duos-new-series-details/
+
+DC is taking Batman fans back to where it all began with the announcement of a new 12-part Batman and Robin series starring the original Dynamic Duo.
+---------
+
+# Lex Luthor’s Official Man of Tomorrow Design Contains A Subtle Easter Egg That Could Change James Gunn's DCU Forever
+
+DC Comics, Superman, Man of Tomorrow, DC Universe, DC, Lex Luthor
+
+Thu, 04 Jun 2026 23:01:21 GMT
+
+https://screenrant.com/lex-luthor-man-tomorrow-design-argus-change-james-gunn-dcu/
+
+Man of Tomorrow being in production has blessed fans with fresh character and story details, particularly concerning a new Lex Luthor upgrade.
+---------
+
+# 10 Coolest D&D Adventures In Ravenloft: The Horrors Within
+
+Tabletop, Dungeons and Dragons, Dungeons & Dragons, tabletop games
+
+Thu, 04 Jun 2026 23:01:21 GMT
+
+https://screenrant.com/dungeons-dragons-ravenloft-best-adventures-dnd/
+
+The new Ravenloft: The Horrors Within sourcebook introduced tons of new and exciting adventures for Dungeons & Dragons; here are the best ones.
+---------
+
+# Masters Of The Universe Spoiler Guide: Biggest Deaths, Surprise Characters & Reveals
+
+Movies, Masters of the Universe
+
+Thu, 04 Jun 2026 23:01:21 GMT
+
+https://screenrant.com/masters-of-the-universe-movie-spoilers-deaths-surprises-reveals/
+
+Masters of the Universe tells a straightforward story, but also includes several shocking deaths and character reveals nobody saw coming.
+---------
+
+# 10 Greatest Anime Series Worth Watching Over and Over Again
+
+Anime, shonen anime, Shojo, seinen, Gintama, Ouran High School Host Club
+
+Thu, 04 Jun 2026 23:15:12 GMT
+
+https://www.cbr.com/anime-series-worth-repeat-watch/
+
+There aren't many anime fans can watch repeatedly, but series like Gintama and Ouran High School Host Club make it easy to watch again and again.
+---------
+
+# Rebecca Ferguson’s Hit 3-Part Sci-Fi Returns to Streaming Charts After New Trailer Drop
+
+TV, Silo, Sci-Fi, Apple TV
+
+Thu, 04 Jun 2026 23:01:14 GMT
+
+https://www.cbr.com/rebecca-ferguson-silo-dystopian-sci-fi-apple-tv-success-june-2026/
+
+Rebecca Ferguson's critically acclaimed sci-fi series, Silo, is a global hit on Apple TV ahead of Season 3 debut.
+---------
+
+# 5 Forgotten DC Animated Movies That Are Perfect From Start To Finish
+
+Movies, DCU, Green Lantern, Justice League
+
+Thu, 04 Jun 2026 23:01:14 GMT
+
+https://www.cbr.com/perfect-dc-animated-movies-no-one-remembers-list/
+
+DC has long beaten Marvel in animation, amassing a library of stories so strong even some of its best have been forgotten to time.
+---------
+
+# 3 Years Before 'The Hateful Eight,' Walton Goggins Stole Scenes in a Modern Western Masterpiece
+
+Movie Features, Django Unchained, Walton Goggins, Quentin Tarantino, The Hateful Eight
+
+Thu, 04 Jun 2026 23:48:14 GMT
+
+https://collider.com/walton-goggins-quentin-tarantino-roles-django-unchained/
+
+Between Justified and Quentin Tarantino movies, Walton Goggins has been a face of the Western genre for years.
+---------
+
+# Brendan Fraser's Sleeper Hit Buries One of the Greatest WWII Movies Ever at the Box Office
+
+Movie News, Pressure, Brendan Fraser, Downfall, World War II
+
+Thu, 04 Jun 2026 23:45:14 GMT
+
+https://collider.com/brendan-fraser-ww2-movie-pressure-box-office-overtakes-downfall-greatest-world-war-2-movies/
+
+Downfall, one of the greatest WW2 movies ever made, has been overtaken at the domestic box office by Pressure. Find out more.
+---------
+
+# 7 Fantasy TV Shows Based on Books That Are True Masterpieces
+
+TV, Fantasy, Game Of Thrones, House of the Dragon, Percy Jackson & the Olympians
+
+Thu, 04 Jun 2026 23:40:12 GMT
+
+https://collider.com/fantasy-shows-based-on-books-true-masterpieces/
+
+Percy Jackson and the Olympians, His Dark Materials, Shadow and Bone, and Game of Thrones are among the best fantasy shows that are based on books.
+---------
+
+# New Retro Horror Movie Turns a 1980s Beach Trip Into a Bloody Nightmare in First Look [Exclusive]
+
+Movie News, Horror, Slasher, Movie Poster, Fantasia Fest
+
+Thu, 04 Jun 2026 23:30:14 GMT
+
+https://collider.com/penny-lane-is-dead-poster/
+
+Get an exclusive first look at the poster for horror film Penny Lane Is Dead, set to premiere at Fantasia Fest and starring Bailey Spalding.
+---------
+
+# 10 Albums That Prove 1967 Was the Best Year for Music
+
+Music Features, The Beatles, The Velvet Underground, Pink Floyd, Music
+
+Thu, 04 Jun 2026 23:21:14 GMT
+
+https://collider.com/1967-best-year-music-albums-prove-it/
+
+1967 was a phenomenal year for music, as classic albums like The Velvet Underground & Nico and Sgt. Pepper's Lonely Hearts Club Band show.
+---------
+
+# 1 Year Later, Netflix's Record-Breaking Fantasy Masterpiece Is Still Making Streaming History
+
+Movie News, KPop Demon Hunters, Sony Animation, Netflix, Fantasy
+
+Thu, 04 Jun 2026 23:15:12 GMT
+
+https://collider.com/kpop-demon-hunters-fantasy-movie-streaming-success-netflix-june-2026/
+
+KPop Demon Hunters is still passing streaming milestones almost a year after becoming Netflix's most-watched movie ever.
+---------
+
+# 15 Coolest Movie Fantasy Worlds Everyone Wants to Visit
+
+Movie, Fantasy, The Lord of the Rings, Star Wars, The Chronicles of Narnia
+
+Thu, 04 Jun 2026 23:12:14 GMT
+
+https://collider.com/coolest-movie-fantasy-worlds-everyone-wants-to-visit/
+
+The Star Wars galaxy, Narnia, Middle-Earth, the lost city of Atlantis, these are just a few places that movies take us that we'd love to visit IRL.
+---------
+
+# Apple TV's Stellar 5-Part Sci-Fi Series Is Already Considered a Modern Classic
+
+TV Features, For All Mankind, Apple TV, Star City, Battlestar Galactica
+
+Thu, 04 Jun 2026 23:04:14 GMT
+
+https://collider.com/apple-tv-for-all-mankind-5-part-sci-fi-modern-classic/
+
+Of all Apple TV's science fiction series, For All Mankind remains the crown jewel thanks to its mix of alternate history & incredible cast.
+---------
+
+# Alan Ritchson's Sci-Fi Thriller Is Now One of Netflix's Most-Watched Movies of All Time
+
+Movie News, War Machine, Alan Ritchson, Sci-Fi, Netflix
+
+Thu, 04 Jun 2026 23:00:13 GMT
+
+https://collider.com/war-machine-alan-ritchson-sci-fi-thriller-enters-netflix-all-time-top-10-most-watched-movies-list/
+
+Alan Ritchson's War Machine has become one of Netflix's 10 most-watched original movies of all time. Find out more about the elite list.
+---------
+
+# Netflix’s Near-Perfect 2-Part Sci-Fi Series Is So Good, It Saved Video Game TV Adaptations
+
+TV Features, Arcane, Netflix, Ella Purnell, Hailee Steinfeld
+
+Thu, 04 Jun 2026 22:58:13 GMT
+
+https://collider.com/netflix-arcane-near-perfect-saved-video-game-adaptations/
+
+Netflix's Arcane transformed video game adaptations, setting a new standard for storytelling and immersion.
+---------
+
+# 'Masters of the Universe' Does Not Have the Power After Bombing at Box Office
+
+Movie News, Masters of the Universe
+
+Thu, 04 Jun 2026 23:14:56 GMT
+
+https://movieweb.com/masters-of-the-universe-box-office-bomb-he-man/
+
+The movie from 'Bumblebee' Director Travis Knight is in for a rough weekend at the box office.
+---------
+
+# Netflix Suddenly Halts Work on Denzel Washington’s New Historical Epic Weeks Into Pre-Production
+
+Movie News, Denzel Washington, Antoine Fuqua
+
+Thu, 04 Jun 2026 23:04:53 GMT
+
+https://movieweb.com/netflix-denzel-washington-historical-epic-paused/
+
+Denzel Washington's new Hannibal Barca historical biopic is facing some setbacks, as Netflix halted production before filming started.
+---------
+
+# Prime Video's 2-Part Sci-Fi Action Epic Hits Major Streaming Milestone
+
+TV News, Fallout, Prime Video, Hot on Streaming, Sci-Fi
+
+Thu, 04 Jun 2026 23:00:19 GMT
+
+https://movieweb.com/fallout-season-2-scifi-streaming-success-prime-june-2026/
+
+Prime Video's best sci-fi action series 'Fallout' is a major streaming success, beating 'Reacher.'
+---------
+
+# How Every Star Trek TV Show Made Its Main Starship Unique
+
+TV Lists, Star Trek
+
+Thu, 04 Jun 2026 23:00:19 GMT
+
+https://movieweb.com/star-trek-shows-unique-ships/
+
+The Star Trek franchise is filled with starships, but only the central vessels are established as special. Read on for more.
+---------
+
 # Marvel Officially Reveals Wolverine's Costume For His Next Appearance After Deadpool & Wolverine
 
 Streaming TV, Masked Recs
