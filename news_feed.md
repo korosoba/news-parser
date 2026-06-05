@@ -1,3 +1,366 @@
+# Netflix's 2-Part 'True Detective Meets Se7en' Series Is One Of Its Best Crime Shows
+
+Streaming TV, Masked Recs
+
+Fri, 05 Jun 2026 14:30:22 GMT
+
+https://screenrant.com/mindhunter-netflix-true-detective-meets-se7en-crime-show/
+
+Netflix has a two-season crime show that is a little bit True Detective and a little bit Seven, and it's a shame it never got to finish.
+---------
+
+# 5 Greatest Soccer Movies To Watch Before The World Cup
+
+Movies, Sports Movies
+
+Fri, 05 Jun 2026 14:30:22 GMT
+
+https://screenrant.com/best-soccer-movies-watch-world-cup/
+
+The World Cup is fast approaching, so now is a great time to revisit some of the very best movies with stories centered on the sport of soccer.
+---------
+
+# Taylor Sheridan's 3-Part Spy Action Series Gets Official 2026 Release Date
+
+TV, Lioness, Taylor Sheridan
+
+Fri, 05 Jun 2026 14:19:54 GMT
+
+https://screenrant.com/lioness-season-3-release-date-2026-confirmed-taylor-sheridan/
+
+Taylor Sheridan's 3-part spy action series gets an official 2026 release date as more information about the upcoming season gets revealed.
+---------
+
+# Dragon Ball Z Officially Returns With A Brand-New Adventure
+
+Gaming, Dragon Ball Z
+
+Fri, 05 Jun 2026 14:10:05 GMT
+
+https://screenrant.com/dragon-ball-z-board-game-2026-kickstarter/
+
+Dragon Ball Z: The Board Game Saga is launching soon on Kickstarter, allowing fans to play through the epic anime in an entirely new way.
+---------
+
+# Xbox Makes 11 Games Completely Free To Grab Until June 7
+
+Gaming, Xbox Series X/S
+
+Fri, 05 Jun 2026 14:09:43 GMT
+
+https://screenrant.com/xbox-11-free-games-june-2026-limited-time/
+
+Xbox Free Play Days brings 11 free games and exciting discounts, with publishers No More Robots and Bungie leading the lineup this weekend.
+---------
+
+# Critical Role Imagine Supremely Silly The Legend Of Vox Machina Scenarios In 1st Ever WWXD Episode
+
+Interviews, Critical Role, The Legend of Vox Machina, The Mighty Nein
+
+Fri, 05 Jun 2026 14:00:21 GMT
+
+https://screenrant.com/critical-role-legend-of-vox-machina-mighty-nein-wwxd-episode-1/
+
+ScreenRant launches a new series, WWXD. In episode 1, Critical Role places Vox Machina & Mighty Nein characters in not-so-appropriate scenarios.
+---------
+
+# 3 Best Movies To Watch On Hulu This Weekend (June 6-7)
+
+Movies, Hulu, Recommendation
+
+Fri, 05 Jun 2026 14:00:21 GMT
+
+https://screenrant.com/best-hulu-movies-watch-weekend-june-6/
+
+It's the first weekend in June, so that means there are a ton of great new movies available to stream right now on Hulu.
+---------
+
+# It's Time To Admit That Gojo Hasn't Been Jujutsu Kaisen's Strongest Hero For 5 Years
+
+Anime, Jujutsu Kaisen
+
+Fri, 05 Jun 2026 14:00:21 GMT
+
+https://screenrant.com/jujutsu-kaisen-gojo-not-strongest-character-takaba-yuji-yuta-sukuna/
+
+Satoru Gojo has been rightfully known as the strongest Sorcerer of the modern era, but as of 5 years ago, that might not be true anymore.
+---------
+
+# Reacher's 13 Best Supporting Characters, Ranked
+
+Streaming TV, Reacher
+
+Fri, 05 Jun 2026 14:00:21 GMT
+
+https://screenrant.com/reacher-best-supporting-characters/
+
+Reacher is an action thriller icon, but there are many fan favorite supporting characters who deserve just as much attention, from villain to friend.
+---------
+
+# DC Supergirl Movie's Reported Budget Officially Makes Beating Superman Easier
+
+Superheroes, Supergirl, Superman, DC Universe
+
+Fri, 05 Jun 2026 13:55:52 GMT
+
+https://screenrant.com/dc-supergirl-movie-budget-box-office-superman-defeat-projection/
+
+The Supergirl movie's budget has reportedly been revealed, and it makes the new DC film's chances of beating James Gunn's Superman better.
+---------
+
+# The 5 Greatest Star Wars Lightsaber Duels, Ranked
+
+TV, Star Wars, Sci-Fi, Disney+
+
+Fri, 05 Jun 2026 14:31:15 GMT
+
+https://www.cbr.com/star-wars-best-lightsaber-duels-ranked-list/
+
+Discover the most impressive Star Wars lightsaber battles, ranked by choreography, emotional weight, and staying power, from Ahsoka vs. Maul to Vader vs. Obi-Wan.
+---------
+
+# Javier Bardem, Amy Adams & Patrick Wilson Break Down Cape Fear's Biggest Twist
+
+TV, Cape Fear
+
+Fri, 05 Jun 2026 14:15:14 GMT
+
+https://www.cbr.com/video/javier-bardem-amy-adams-patrick-wilson-break-down-cape-fear-s-biggest-twist/
+
+Cape Fear stars Javier Bardem, Amy Adams, and Patrick Wilson reveal the real villain at the center of Apple TV+'s new adaptation.
+---------
+
+# 10 Shojo Characters Who Had the Best Glow-Ups
+
+Anime, Shojo, Ouran High School Host Club
+
+Fri, 05 Jun 2026 14:15:14 GMT
+
+https://www.cbr.com/shojo-characters-with-best-glow-ups/
+
+Shojo characters often don't start out looking amazing, leading some to undergo incredible glow-ups.
+---------
+
+# Harry Potter Gets Major Season 2 Casting Announcement for Key Role
+
+TV, Harry Potter
+
+Fri, 05 Jun 2026 14:05:23 GMT
+
+https://www.cbr.com/harry-potter-season-2-casting-colin-creevey/
+
+The series has yet to premiere Season 1, but the casting for Season 2 has started.
+---------
+
+# Power Rangers Finally Reveals Tommy Oliver's Fate — And It's Worse Than Fans Expected
+
+Comics, Mighty Morphin Power Rangers, Power Rangers
+
+Fri, 05 Jun 2026 14:01:15 GMT
+
+https://www.cbr.com/boom-mighty-morphin-power-rangers-1-tommy-oliver-reveal/
+
+The original Mighty Morphin team is officially back in action, and the sting of the Green Ranger's absence hurts more than any new monster.
+---------
+
+# Hololive’s Usada Pekora Just Got Canned After 7 Years – And That’s a Good Thing
+
+Anime, YouTube
+
+Fri, 05 Jun 2026 14:01:15 GMT
+
+https://www.cbr.com/hololive-usada-pekora-can-design-release/
+
+Hololive's Usada Pekora, the world's most popular VTuber, launches a new can collaboration of plum wine with Japanese brewery, Meiri Shurui.
+---------
+
+# The Legend of Zelda Officially Returns This Year With Stunning 40th Anniversary Release
+
+Games, The Legend of Zelda
+
+Fri, 05 Jun 2026 13:36:13 GMT
+
+https://www.cbr.com/legend-of-zelda-returns-2026-new-release/
+
+The Legend of Zelda franchise is celebrating its amazing soundtrack with an incredible new release.
+---------
+
+# Matt Reeves’ Batman TV Series Officially Reveals Its Joker
+
+TV, Batman: Caped Crusader, Batman
+
+Fri, 05 Jun 2026 13:24:11 GMT
+
+https://www.cbr.com/matt-reeves-batman-tv-series-joker-reveal/
+
+Matt Reeves' other most hotly-anticipated Batman title has finally revealed its Joker, as well as several other key villains set to make their debuts.
+---------
+
+# 7 2010s Anime That Are 10/10, No Notes
+
+Anime, Mob Psycho 100, Devilman Crybaby, Attack on Titan, My Hero Academia, Puella Magi Madoka Magica, Steins;Gate, Yuri on Ice
+
+Fri, 05 Jun 2026 13:15:13 GMT
+
+https://www.cbr.com/perfect-2010s-anime-1010-no-notes/
+
+The 2010s were a golden age for anime, and these seven series represent the decade at its absolute best.
+---------
+
+# In Shadow Lord Prequel, Maul Manipulates a Classic Star Wars Podrace
+
+Comics, Star Wars, Star Wars: Maul - Shadow Lord
+
+Fri, 05 Jun 2026 13:00:13 GMT
+
+https://www.cbr.com/star-wars-maul-shadow-lord-podrace-exclusive-preview/
+
+In a CBR exclusive preview of next week's Shadow of Maul #4, see how the disgraced Sith Lord manipulates a classic Star Wars podrace
+---------
+
+# 3 Binge-Worthy Netflix Series to Watch This Weekend (June 5-7)
+
+TV, Netflix, Lawmen: Bass Reeves, The Queen's Gambit, The Witness
+
+Fri, 05 Jun 2026 12:41:14 GMT
+
+https://collider.com/netflix-shows-binge-weekend-june-5/
+
+The Witness, Lawmen: Bass Reeves, and The Queen's Gambit make up our list of the best Netflix shows to binge the weekend of June 5, 2026.
+---------
+
+# 10 Unhappiest Movie Endings
+
+Movie, The Mist, Se7en, Requiem for a Dream, Grave of the Fireflies
+
+Fri, 05 Jun 2026 12:23:13 GMT
+
+https://collider.com/unhappiest-movie-endings-ranked/
+
+From American History X to Requiem for a Dream, these movies offer nothing but despair, pain, and misery when they reach their inevitable conclusions.
+---------
+
+# 'Your Friends & Neighbors' Insane Twist for James Marsden Sets Up Explosive Season 3 Plans
+
+Interviews, Apple TV, Your Friends and Neighbors, Jonathan Tropper, Crime
+
+Fri, 05 Jun 2026 12:02:14 GMT
+
+https://collider.com/your-friends-and-neighbors-season-2-finale-jonathan-tropper-interview/
+
+Your Friends & Neighbors creator Jonathan Tropper reveals how Coop and Elena's partnership has changed and why Ashe would only last one season.
+---------
+
+# 8 Years Later, Josh Brolin’s $100M Sci-Fi Epic Is Reborn as Late-Night Fan-Favorite
+
+Movie News, Deadpool 2, Josh Brolin, Ryan Reynolds, David Leitch
+
+Fri, 05 Jun 2026 12:00:14 GMT
+
+https://collider.com/josh-brolin-sci-fi-action-movie-deadpool-2-streaming-success-apple-tv-june-2026/
+
+Eight years after a successful theatrical run, Josh Brolin's $100 million sci-fi epic has been reborn as a fan-favorite on streaming.
+---------
+
+# 10 Greatest Movies Made by Directors Under 25 Years Old
+
+Movie, Backrooms, Clerks, The Evil Dead, Boyz n the Hood
+
+Fri, 05 Jun 2026 11:57:13 GMT
+
+https://collider.com/best-movies-by-directors-under-25-ranked/
+
+Sometimes, great movies are made before their directors were even 25 years old, as seen with the likes of Backrooms, Clerks, and Boyz n the Hood.
+---------
+
+# Prime Video’s 100% RT Fantasy Epic Returns With Flawless New Season
+
+TV News, The Legend of Vox Machina, Prime Video, Hot on Streaming, The Lord of the Rings: The Rings of Power, Fantasy
+
+Fri, 05 Jun 2026 14:00:19 GMT
+
+https://movieweb.com/legend-of-vox-machina-fantasy-streaming-success-prime-june-2026/
+
+Prime Video's 100% Rotten Tomatoes rated fantasy series, 'The Legend of Vox Machina' Season 4, puts 'The Rings of Power' to shame.
+---------
+
+# 26 Years Later, the Greatest Comedy Duo of All Time Returns
+
+Features, Scary Movie
+
+Fri, 05 Jun 2026 14:00:19 GMT
+
+https://movieweb.com/scary-movie-6-wayans-brothers-return/
+
+26 years after the release of the first entry in a popular franchise, a new movie is out in theaters that is highly anticipated.
+---------
+
+# Netflix Gives 'John Wick' a Unique Twist in New Action Thriller Series
+
+TV News, Netflix, Teach You A Lesson, Action
+
+Fri, 05 Jun 2026 13:25:59 GMT
+
+https://movieweb.com/netflix-teach-you-a-lesson-stream-action/
+
+The new limited series is based on a banned comic.
+---------
+
+# 'Tracker' Officially Loses Most-Watched TV Show to Taylor Sheridan Spin-off
+
+TV News, Tracker, Marshals, Taylor Sheridan, Action
+
+Fri, 05 Jun 2026 13:10:45 GMT
+
+https://movieweb.com/tracker-lose-most-watched-tv-show-marshals/
+
+The 'Reacher'-esque series has now been beaten in the ratings.
+---------
+
+# Tom Hardy Can Finally Resurrect His Thriller Series 'Taboo' After 9 Years
+
+Features, Tom Hardy, Thriller, Taboo, MobLand, Ridley Scott, Drama
+
+Fri, 05 Jun 2026 13:01:18 GMT
+
+https://movieweb.com/tom-hardy-taboo-season-2-resurrect-after-mobland/
+
+Now that Tom Hardy is no longer involved with 'MobLand,' he can finally give audiences 'Taboo' Season 2, almost a decade after it was promised.
+---------
+
+# Alan Ritchson's Perfect 'Reacher' Season 4 Tie-in Just Keeps Getting Better
+
+Features, Alan Ritchson, War Machine, Reacher
+
+Fri, 05 Jun 2026 13:01:18 GMT
+
+https://movieweb.com/war-machine-2-reacher-tie-in/
+
+'War Machine 2' has been confirmed, giving Alan Ritchson fans more chances to see the actor portray a Reacher-like character.
+---------
+
+# 'Masters of the Universe' Box Office Projections, Explained
+
+Features, Masters of the Universe
+
+Fri, 05 Jun 2026 12:00:18 GMT
+
+https://movieweb.com/masters-of-the-universe-box-office-explained/
+
+'Masters of the Universe' has a reported $200 million budget, and Amazon MGM Studios are betting big on the He-Man reboot.
+---------
+
+# James Handy Dead: 'Top Gun: Maverick' Actor Fatally Stabbed
+
+Movie News, Top Gun: Maverick
+
+Fri, 05 Jun 2026 11:58:47 GMT
+
+https://movieweb.com/james-handy-dead-top-gun-maverick/
+
+'Top Gun: Maverick' actor James Handy has died aged 81 after a fatal stabbing at his home, with a suspect now arrested on suspicion of murder.
+---------
+
 # Zelda: Ocarina Of Time Remake Set To Be Unplayable For Millions
 
 Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
