@@ -1,3 +1,322 @@
+# The Amazing Digital Circus Movie Confirms A Major Theory About One Of Its Biggest Characters
+
+Movies, The Amazing Digital Circus
+
+Fri, 05 Jun 2026 22:30:20 GMT
+
+https://screenrant.com/amazing-digital-circus-last-act-jax-character-theory/
+
+The Amazing Digital Circus has finally come to an end with its movie release, and its Last Act features a major character theory confirmation.
+---------
+
+# Shameless Cast: Where Are They Now?
+
+Classic TV, Shameless
+
+Fri, 05 Jun 2026 22:30:20 GMT
+
+https://screenrant.com/shameless-cast-where-are-they-now/
+
+For 10 years, we watched the actors in Shameless grow right before our eyes and go on to venture into different, successful film and TV projects.
+---------
+
+# Boy Meets World Stars Address The Biggest Behind-The-Scenes Questions Ahead Of New Documentary
+
+Movies, Boy Meets World, Tribeca Film Festival
+
+Fri, 05 Jun 2026 22:28:48 GMT
+
+https://screenrant.com/boy-meets-world-documentary-will-friedle-rider-strong-danielle-fishel-interview/
+
+Will Friedle, Rider Strong, and Danielle Fishel share unique, behind-the-scenes insights ahead of their brand-new documentary, Doc Meets World.
+---------
+
+# 007 First Light's First DLC Announced
+
+Gaming, Summer Game Fest, 007 First Light
+
+Fri, 05 Jun 2026 22:22:34 GMT
+
+https://screenrant.com/007-first-light-dlc-announced/
+
+IO Interactive reveals that James Bond will return in a brand-new story mission for 007: First Light.
+---------
+
+# Carolina Caroline Ending Explained: What Happens To Caroline & Oliver (And What That Final Con Means)
+
+Movies, Carolina Caroline
+
+Fri, 05 Jun 2026 22:21:21 GMT
+
+https://screenrant.com/carolina-caroline-ending-explained/
+
+Carolina Caroline is a tragic love story that leans heavily into the Bonnie and Clyde archetypes before ending on an understated and somber moment.
+---------
+
+# Jennifer Lopez's New R-Rated Netflix Movie Office Romance Debuts To Underwhelming Rotten Tomatoes Score
+
+Movies, Masked Recs, Netflix
+
+Fri, 05 Jun 2026 22:18:52 GMT
+
+https://screenrant.com/jennifer-lopez-office-romance-netflix-movie-rotten-tomatoes-score/
+
+Jennifer Lopez's new R-rated Netflix movie debuts to an underwhelming Rotten Tomatoes score, which also continues an unfortunate streak.
+---------
+
+# New SAW: Genesis Trailer Explores Jigsaw's Origins
+
+Gaming, PC, Summer Game Fest, Saw
+
+Fri, 05 Jun 2026 22:14:13 GMT
+
+https://screenrant.com/saw-genesis-trailer-alpha-test/
+
+SAW: Genesis just got an official announcement in an epic new trailer that explores Jigsaw's background and origin story.
+---------
+
+# Star Wars Officially Returning To The Prequel Era For Brand-New Adventure
+
+Gaming, Star Wars Zero Company, Star Wars, Triple-A Games, PC, Summer Game Fest
+
+Fri, 05 Jun 2026 22:07:36 GMT
+
+https://screenrant.com/star-wars-zero-company-gameplay-trailer/
+
+Star Wars Zero Company reemerged at Summer Game Fest, revealing a release date and giving us a closer look at its Clone Wars-era turn-based combat.
+---------
+
+# Guild Wars 3 Officially Announced With Upcoming Beta
+
+Gaming, Guild Wars 2, Live Service Games, Summer Game Fest
+
+Fri, 05 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/guild-wars-3-officially-announced-beta/
+
+Shortly after rumors began mounting, Guild Wars 3 was officially announced at Summer Game Fest 2026, marking the iconic MMO's next chapter.
+---------
+
+# In 2 Weeks, Toy Story Officially Brings Back A Missing Character After 27 Years
+
+New Movies, Toy Story 5, Toy Story
+
+Fri, 05 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/toy-story-5-jessie-owner-missing-return/
+
+Toy Story 5 includes a lot of familiar characters from previous movies, but one is officially coming back after being away for 27 years.
+---------
+
+# TMNT: The Last Ronin Game Officially Revealed
+
+Games, Teenage Mutant Ninja Turtles
+
+Fri, 05 Jun 2026 22:35:13 GMT
+
+https://www.cbr.com/tmnt-the-last-ronin-game-officially-revealed/
+
+The biggest and darkest TMNT story of all time is now being brought to life by Platinum Games.
+---------
+
+# Magic: The Gathering's New Wolverine Card Is Practically Indestructible
+
+Games, Wolverine, Magic The Gathering, Marvel, Tabletop, TCG
+
+Fri, 05 Jun 2026 22:15:14 GMT
+
+https://www.cbr.com/wolverine-mtg-marvel-super-heroes/
+
+Wolverine is receiving a new card in Magic: The Gathering's Marvel Super Heroes set, and like his comic counterpart, he's really hard to kill.
+---------
+
+# Avatar: The Last Airbender Hacker Officially Identified as Seven Havens Becomes Next Target
+
+Anime, Avatar: The Last Airbender, Avatar: Seven Havens, Paramount Plus
+
+Fri, 05 Jun 2026 22:10:49 GMT
+
+https://www.cbr.com/avatar-last-airbender-movie-hack-seven-havens-leak/
+
+Avatar: Seven Havens is now the latest target of the same hackers who leaked Avatar Aang: The Last Airbender months before its Paramount+ premiere.
+---------
+
+# 12 Years Later, Alien Isolation 2 is Officially Revealed
+
+Games, Alien, alien isolation
+
+Fri, 05 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/alien-isolation-2-officially-revealed/
+
+Twelve years after the first game's release, a new Alien Isolation title is finally coming out, much to the joy of survival-horror and sci-fi fans.
+---------
+
+# Apple TV’s New Remake of Martin Scorsese's 35-Year-Old Crime Thriller Becomes an Instant Streaming Hit
+
+TV, Cape Fear
+
+Fri, 05 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/cape-fear-psychological-apple-tv-success-may-2026/
+
+The limited series matched Martin Scorsese's psychological thriller's score.
+---------
+
+# Review: Mighty Morphin Power Rangers Gets Its Most Unique Reimagining Yet
+
+Comics, Mighty Morphin Power Rangers, Power Rangers
+
+Fri, 05 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/boom-studios-new-mighty-morphin-power-rangers-review/
+
+The latest Mighty Morphin Power Rangers series from BOOM! Studios is far from the Morphinomenal reunion fans were hoping to see.
+---------
+
+# Disclosure Day is Steven Spielberg's Big Return to Sci-Fi
+
+Movies, Disclosure Day, steven spielberg
+
+Fri, 05 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/steven-spielberg-sci-fi-movie-return-disclosure-day/
+
+In just one week, one of the greatest filmmakers of our time will be returning to sci-fi after eight years away from the genre he's best known for.
+---------
+
+# Tim Burton's Mars Attacks! Is Finally Being Recognized as a Cult Classic
+
+Movies, Mars Attacks!
+
+Fri, 05 Jun 2026 21:30:13 GMT
+
+https://www.cbr.com/tim-burton-mars-attacks-perfect-sci-fi-cult-classic/
+
+Sci-fi is a genre filled with hidden gems, but a Tim Burton classic that failed upon release is finally getting the attention it deserves.
+---------
+
+# 10 Best TV Shows to Watch if You Like FROM
+
+TV, From, Dark, Russian Doll
+
+Fri, 05 Jun 2026 21:30:13 GMT
+
+https://www.cbr.com/best-tv-shows-if-you-like-from/
+
+Fans who miss From's jaw-dropping twists and turns will definitely love to tune into these similar sci-fi supernatural thrillers.
+---------
+
+# 7 Forgotten 90s Anime Villains Who Were Genuinely Terrifying
+
+Anime, Cowboy Bebop, Perfect Blue, Ghost in the Shell
+
+Fri, 05 Jun 2026 21:15:14 GMT
+
+https://www.cbr.com/most-terrifying-90s-anime-villains-fans-forgot/
+
+Antagonists of the 1990s reflected broader anxieties, from mistrust of rapidly advancing technology to unease about celebrity culture.
+---------
+
+# The Next 'John Wick' Sequel Just Scored Its Biggest Update Yet
+
+Movie News, Bill Nighy, John Wick, Caine John Wick Spinoff, Donnie Yen
+
+Fri, 05 Jun 2026 22:27:13 GMT
+
+https://collider.com/new-john-wick-sequel-caine-cast-pirates-of-the-caribbean-star-bill-nighy/
+
+The next movie in the John Wick universe, Caine, has officially added the best villain from the Pirates of the Caribbean franchise.
+---------
+
+# How a '90s Marvel Action Hit Became the First MCU Movie Without Anyone Noticing
+
+Movie Features, Wesley Snipes, Marvel, Deadpool & Wolverine, Blade
+
+Fri, 05 Jun 2026 21:59:13 GMT
+
+https://collider.com/blade-movies-wesley-snipes-deadpool-wolverine-cameo/
+
+Wesley Snipes' 1998 action movie Blade kicked off the MCU before Iron Man. Hear us out.
+---------
+
+# 30 Years Later, This Sci-Fi Disaster Series Is Aging Like Fine Wine
+
+TV Features, SeaQuest DSV, Roy Scheider, William Shatner, NBC
+
+Fri, 05 Jun 2026 21:55:15 GMT
+
+https://collider.com/seaquest-dsv-sci-fi-disaster-series-aging-like-fine-wine/
+
+The silly seaQuest DSV surprisingly predicted modern fears about environmental damage, resource battles, and human behavior.
+---------
+
+# The Definitive Ranking of Every “Weird Al” Yankovic Polka
+
+Music Features, Music, Weird Al Yankovic, Lists, Comedy
+
+Fri, 05 Jun 2026 21:53:15 GMT
+
+https://collider.com/weird-al-yankovic-polkas-ranked/
+
+From “Polkas on 45," to "Bohemian Polka," to "Polkaface," this is the ultimate ranking of every "Weird Al" Yankovic polka medley ever recorded.
+---------
+
+# Before 'Masters of the Universe,' Stream This '80s Fantasy Film On Prime Video
+
+Movie, Prime Video, The Notebook, Masters of the Universe, Cyrano
+
+Fri, 05 Jun 2026 21:48:14 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-june-5/
+
+Masters of the Universe, The Notebook, and Cyrano make up our list of the best Prime Video movies to watch the weekend of June 5th, 2026.
+---------
+
+# 12 Years Later, the Best Alien Video Game Ever Made Officially Returns in First Trailer
+
+Gaming News, Alien: Isolation, Ridley Scott, alien, Aliens
+
+Fri, 05 Jun 2026 21:36:24 GMT
+
+https://collider.com/sci-fi-horror-video-game-alien-isolation-2-trailer/
+
+After 12 years of waiting, Alien: Isolation 2 is finally a reality in the first trailer for the sci-fi horror sequel.
+---------
+
+# 60 Years Later, the Western Genre's Greatest Trilogy Is Officially Free
+
+Movie Features, Clint Eastwood, The Good, the Bad and the Ugly, For a Few Dollars More, Western
+
+Fri, 05 Jun 2026 21:35:14 GMT
+
+https://collider.com/clint-eastwood-dollars-trilogy-western-streaming-free-tubi/
+
+Clint Eastwood's Dollars Trilogy is the greatest Western trilogy ever made, and it's finally free to stream on Tubi.
+---------
+
+# Resident Evil Fan-Favorite Officially Returns in the Horror Franchise's Next Remake
+
+Video Games, Resident Evil
+
+Fri, 05 Jun 2026 21:29:43 GMT
+
+https://collider.com/new-resident-evil-horror-video-game-veronica-remake-2027-release-window-claire-redfield-return/
+
+Claire Redfield officially returns in a remake of Resident Evil: Veronica, releasing in 2027. Read on for more!
+---------
+
+# Scarlett Johansson Debuts in First-Look Photos of Mike Flanagan's '70s Reboot
+
+Movie News, The Exorcist, Scarlett Johansson
+
+Fri, 05 Jun 2026 21:49:01 GMT
+
+https://movieweb.com/scarlett-johansson-the-exorcist-set-photos/
+
+The new images offer only a glimpse of what we'll get in the new 'The Exorcist.'
+---------
+
 # Paramount and Warner Bros. Deal Blocked By Lawsuit
 
 TV, Paramount, Warner Bros.
