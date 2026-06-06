@@ -1,3 +1,355 @@
+# 16 Years Later, James Gunn's Super Is Aging Like Fine Wine
+
+Comics, James Gunn, Super
+
+Sat, 06 Jun 2026 21:30:21 GMT
+
+https://screenrant.com/16-years-later-james-gunns-forgotten-superhero-deconstruction-is-aging-like-fine-wine/
+
+James Gunn had to beat people with a wrench before he could show us that kindness is the real punk rock
+---------
+
+# Netflix's ‘Scream Meets Stranger Things' Horror Franchise Doesn't Have A Single Bad Movie
+
+Movies, Masked Recs
+
+Sat, 06 Jun 2026 21:28:21 GMT
+
+https://screenrant.com/fear-street-trilogy-netflix-best-horror-franchise/
+
+One Netflix horror movie franchise managed to avoid inconsistency, releasing four movies that shared superb scares and a compelling, cohesive story.
+---------
+
+# Criminal Minds Season 19's Callback To The CBS Original Is A Reminder Of Why It Still Works
+
+Network TV, Criminal Minds
+
+Sat, 06 Jun 2026 21:15:21 GMT
+
+https://screenrant.com/criminal-minds-season-19-callback-works-reason/
+
+Criminal Minds: Evolution pays homage to the CBS original's strength in developing found family dynamics, balancing cases with personal connections.
+---------
+
+# 10 Episodes Of Star Trek: Deep Space Nine Everyone Should Watch
+
+TV, Star Trek: Deep Space Nine
+
+Sat, 06 Jun 2026 21:15:21 GMT
+
+https://screenrant.com/star-trek-ds9-episodes-everyone-should-watch/
+
+Star Trek: Deep Space Nine transformed the franchise in the 1990s, and these 10 episodes are the bare essentials that everyone should see.
+---------
+
+# The Big Bang Theory Officially Begins A New Era Next Month
+
+Streaming TV, Masked Recs
+
+Sat, 06 Jun 2026 21:00:21 GMT
+
+https://screenrant.com/the-big-bang-theory-spinoff-stuart-fails-save-universe-new-era/
+
+The next spinoff marks a significant departure for The Big Bang Theory franchise, venturing into sci-fi action while maintaining its comedic roots.
+---------
+
+# 10 Greatest Movies Based On 80s Kids Franchises
+
+Movies, Masters of the Universe, Scooby-Doo, Scooby-Doo 2: Monsters Unleashed, Transformers, Transformers: Dark of the Moon, Bumblebee, Teenage Mutant Ninja Turtles, Teenage Mutant Ninja Turtles II: The Secret of the Ooze, Dungeons & Dragons: Honor Among Thieves
+
+Sat, 06 Jun 2026 21:00:21 GMT
+
+https://screenrant.com/best-movies-based-on-80s-kid-franchises/
+
+Masters of the Universe revived the beloved 80s kids franchise, but it’s not the first (or the very greatest) live-action movie to do so.
+---------
+
+# Cyberpunk 2077: Missing Persons Adds Nearly 200 New Quests
+
+Gaming, Cyberpunk 2077, RPG, PC
+
+Sat, 06 Jun 2026 21:00:21 GMT
+
+https://screenrant.com/cyberpunk-2077-missing-persons-mod-new-quests/
+
+Cyberpunk 2077: Missing Persons adds a plethora of quests that open up Night City and greatly reward the player.
+---------
+
+# FF7 Revelation "Won't Reduce" FF7 Rebirth's Most Controversial Element
+
+Gaming, Final Fantasy 7 Remake, Triple-A Games, PC
+
+Sat, 06 Jun 2026 20:52:38 GMT
+
+https://screenrant.com/final-fantasy-7-revelation-minigames-rebirth/
+
+The final chapter of the FF7 remake project won't back down on one divisive element, but director Naoki Hamaguchi isn't just ignoring complaints.
+---------
+
+# Final Fantasy 7 Revelation - Release Window, Platforms, Playable Characters, & Story Details
+
+Gaming, Final Fantasy 7 Rebirth, PC, Triple-A Games
+
+Sat, 06 Jun 2026 20:51:35 GMT
+
+https://screenrant.com/final-fantasy-7-revelation-release-window-platforms-characters-story/
+
+Everything you need to know about the thrilling conclusion to the Remake trilogy, Final Fantasy 7 Revelation: from release window to platforms.
+---------
+
+# Netflix’s Trending Taylor Sheridan Western Proves How The Show Can Return From The Dead
+
+Streaming TV, Masked Recs
+
+Sat, 06 Jun 2026 20:45:20 GMT
+
+https://screenrant.com/lawmen-bass-reeves-netflix-taylor-sheridan-western-anthology/
+
+Taylor Sheridan's TV shows dominate the Western genre, but while Yellowstone tends to get the most acclaim, another series deserves to return.
+---------
+
+# Disney's Toy Story 5 Rating Officially Breaks 31-Year Franchise Streak
+
+Movies, Toy Story 5, Toy Story
+
+Sat, 06 Jun 2026 21:30:14 GMT
+
+https://www.cbr.com/toy-story-5-mpa-pg-rating-breaks-franchise-streak/
+
+Children have always had a friend in the Toy Story series. But for Toy Story 5, parental guidance is suggested.
+---------
+
+# 8 Best R-Rated TV Shows of All Time, Ranked
+
+TV, The Sopranos, The Wire, Game Of Thrones
+
+Sat, 06 Jun 2026 21:30:14 GMT
+
+https://www.cbr.com/best-r-rated-tv-shows-all-time-ranked/
+
+From Game of Thrones to Breaking Bad to The Sopranos, some of the best TV shows to date are those with mature audiences in mind.
+---------
+
+# Stranger Things Officially Returns With Controversial New Release This Summer
+
+Games, Stranger Things, Netflix
+
+Sat, 06 Jun 2026 21:15:13 GMT
+
+https://www.cbr.com/stranger-things-officially-returns-controversial-new-release-summer-2026/
+
+Stranger Things has become increasingly controversial since its finale, and this Summer may contain the Netflix series' most divisive release yet.
+---------
+
+# 7 Forgotten 2000s Anime That Somehow Got Better With Age
+
+Anime, Kaiba, Dennou Coil
+
+Sat, 06 Jun 2026 21:15:13 GMT
+
+https://www.cbr.com/forgotten-2000s-anime-aged-like-fine-wine/
+
+These hidden gems prove that some anime only reveal their true value years after release.
+---------
+
+# Free Open-World Pokémon Replacement Officially Arrives 2026
+
+Games, Pokemon, Video Games
+
+Sat, 06 Jun 2026 21:00:14 GMT
+
+https://www.cbr.com/free-open-world-pokemon-replacement-official-q3-2026/
+
+One of the most hotly-anticipated creature-catcher RPGs of the year finally announces its official release window alongside a stunning new trailer.
+---------
+
+# AMC's Hit Fantasy Series Based on Bestselling Book Series Returns to the Charts 1 Day Before Return
+
+TV, Interview with the Vampire, Fantasy, AMC
+
+Sat, 06 Jun 2026 21:00:14 GMT
+
+https://www.cbr.com/interview-with-the-vampire-amc-fantasy-gothic-horror-success-june-2026/
+
+AMC's critically acclaimed fantasy and gothic horror series, Interview with the Vampire, is one of the most-watched shows on PVOD ahead of Season 3.
+---------
+
+# 5 Most Perfect UFO Movies Of All Time, Ranked
+
+Movies, Nope, Arrival, Close Encounters of The Third Kind
+
+Sat, 06 Jun 2026 21:00:14 GMT
+
+https://www.cbr.com/perfect-ufo-movies-list/
+
+UFOs have captured the collective imagination for years, and there are some must-see movies that are absolutely perfect.
+---------
+
+# Trump's White House Officially Reveals New Naruto Uzumaki Redesign
+
+Anime, Naruto, Naruto: Shippuden, Boruto: Naruto Next Generations
+
+Sat, 06 Jun 2026 20:52:12 GMT
+
+https://www.cbr.com/naruto-trump-government-new-design/
+
+The U.S. government under Donald Trump just gave Naruto Uzumaki a surprise redesign, whether Naruto fans like it or not.
+---------
+
+# Bruce Campbell Gives Disappointing Evil Dead Return Update
+
+Movies, Evil Dead
+
+Sat, 06 Jun 2026 20:30:59 GMT
+
+https://www.cbr.com/bruce-campbell-evil-dead-return-update/
+
+Ahead of this summer's debut of Evil Dead Burn, Bruce Campbell addresses the future of Ash in the franchise.
+---------
+
+# Peacock's New Jason Show Is Ready to Fix Friday the 13th's Biggest 21st-Century Mistake
+
+TV, Crystal Lake, Friday The 13th, Peacock
+
+Sat, 06 Jun 2026 20:30:13 GMT
+
+https://www.cbr.com/peacock-jason-voorhees-crystal-lake-friday-the-13th-campy-roots/
+
+With A24's Crystal Lake show releasing this October, the film company needs to follow a few guidelines when it comes to the Friday the 13th franchise.
+---------
+
+# Taylor Sheridan’s 4-Part Crime Series Is the Perfect Weekend Binge for ‘MobLand’ Fans
+
+TV News, Tulsa King, Sylvester Stallone, Taylor Sheridan, Paramount Plus
+
+Sat, 06 Jun 2026 21:30:13 GMT
+
+https://collider.com/taylor-sheridan-mobland-replacement-crime-series-tulsa-king-streaming-success-paramount-plus-june-2026/
+
+MobLand fans are flocking to Taylor Sheridan's four-part crime saga on Paramount Plus before the arrival of its new season. Read on for more.
+---------
+
+# Predator Director's 10/10 Sci-Fi Thriller Is Now a Must-Watch on Free Streaming
+
+Movie News, 10 Cloverfield Lane, The Cloverfield Paradox, Cloverfield, Mary Elizabeth Winstead
+
+Sat, 06 Jun 2026 21:15:14 GMT
+
+https://collider.com/mary-elizabeth-winstead-sci-fi-thriller-10-cloverfield-lane-free-streaming-pluto-june-2026/
+
+Starring John Goodman and Mary Elizabeth Winstead, 10 Cloverfield Lane, one of the best secret sequels ever, is streaming for free this month.
+---------
+
+# The Greatest Action Series of All Time Is the Perfect Weekend Binge 40 Years Later
+
+TV Features, MacGyver, Richard Dean Anderson, ABC, Action
+
+Sat, 06 Jun 2026 21:10:14 GMT
+
+https://collider.com/greatest-action-series-of-all-time-macgyver-weekend-binge/
+
+MacGyver's unique approach to problem-solving and action sequences remains ahead of its time, even decades later.
+---------
+
+# Marvel’s Biggest Project of 2026 Officially Launches in Less Than 2 Months
+
+Movie News, Spider-Man: Brand New Day, Tom Holland, Marvel Studios, Spider-Man
+
+Sat, 06 Jun 2026 21:00:14 GMT
+
+https://collider.com/biggest-marvel-project-spider-man-brand-new-day-release-date-july-31-2026/
+
+The only Marvel project of 2026 that may be more important than Avengers: Doomsday officially launches around the world in less than two months.
+---------
+
+# Green Day's Blacklisted Hit Was Banned From Radio – and It Wasn't Due to Profanity
+
+Music Features, Green Day, Billie Joe Armstrong, Punk, Rock
+
+Sat, 06 Jun 2026 20:35:54 GMT
+
+https://collider.com/green-day-brain-stew-radio-ban-9/11/
+
+Green Day – an outspoken punk-rock band featuring Billie Joe Armstrong, Tre Cool, and Mike Dirnt – fell victim to post-9/11 hysteria.
+---------
+
+# Tom Cruise and Steven Spielberg’s Near-Perfect Sci-Fi Masterpiece Is Free To Stream This Month
+
+Movie News, Minority Report, Steven Spielberg, Tom Cruise, Sci-Fi
+
+Sat, 06 Jun 2026 20:30:14 GMT
+
+https://collider.com/steven-spielberg-tom-cruise-sci-fi-masterpiece-minority-report-free-streaming-pluto-june-2026/
+
+Minority Report, Steven Spielberg’s sci-fi thriller starring Tom Cruise and Colin Farrell, is streaming free on Pluto. Find out more here.
+---------
+
+# One of James Gandolfini's Final Performances Proves He Was So Much More Than Tony Soprano
+
+Movie Features, James Gandolfini, The Sopranos, Julia Louis-Dreyfus, Enough Said
+
+Sat, 06 Jun 2026 20:30:14 GMT
+
+https://collider.com/james-gandolfini-enough-said-greatest-performance/
+
+James Gandolfini's character in Enough Said is nothing like Tony Soprano, enabling him to show his range in a heartfelt dramedy.
+---------
+
+# Apple TV’s 3-Part Sci-Fi Masterpiece Is Doing What Star Wars Still Can’t
+
+TV Features, Foundation, The Mandalorian and Grogu, Star Wars, Apple TV
+
+Sat, 06 Jun 2026 20:13:14 GMT
+
+https://collider.com/apple-tv-foundation-sci-fi-masterpiece-doing-what-star-wars-cant/
+
+Star Wars made science fiction mainstream by borrowing from Isaac Asimov's Foundation. Now Apple TV's Foundation is ironically outpacing Star Wars.
+---------
+
+# 'Lord of the Rings': Peter Jackson's Biggest Villain Change Haunts Franchise
+
+Features, The Lord of the Rings, Peter Jackson
+
+Sat, 06 Jun 2026 21:30:19 GMT
+
+https://movieweb.com/lord-of-the-rings-movies-orcs-peter-jackson/
+
+This change certainly set a precedent.
+---------
+
+# A24's Biggest Action Blockbuster Toppled by Low-Budget Horror Sensation
+
+Movie News, Backrooms, Everything Everywhere All at Once, Box Office Milestones, A24
+
+Sat, 06 Jun 2026 21:00:20 GMT
+
+https://movieweb.com/the-backrooms-box-office-success-beats-everything-everywhere-all-at-once-a24/
+
+A24's martial arts sci-fi action movie 'EEAAO' has been toppled at the box office by the low-budget horror movie 'Backrooms.'
+---------
+
+# 10 'Harry Potter' Facts Everyone Always Gets Wrong
+
+Movie Lists, Harry Potter
+
+Sat, 06 Jun 2026 21:00:20 GMT
+
+https://movieweb.com/harry-potter-wrong-facts/
+
+The 'Harry Potter' universe is huge, so fans understandably make mistakes when interpreting the canon. Read on for more.
+---------
+
+# 38 Years Ago, a 'Far Side' Strip Almost Got Gary Larson in Legal Trouble
+
+Features, The Far Side
+
+Sat, 06 Jun 2026 20:45:19 GMT
+
+https://movieweb.com/far-side-legal-trouble/
+
+Larson was no stranger to letters complaining about his work, but one public figure seemed to dislike his poking fun at her.
+---------
+
 # Why Justin Chambers' Alex Karev Left Grey's Anatomy In Season 16
 
 Network TV, Grey's Anatomy
