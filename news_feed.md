@@ -1,3 +1,223 @@
+# The Elder Scrolls 6 Can Wait, Skyrim Just Got A Huge New Expansion
+
+Gaming, The Elder Scrolls V: Skyrim
+
+Sat, 06 Jun 2026 11:00:39 GMT
+
+https://screenrant.com/skyrim-2026-dlc-creation-club-expansion/
+
+Discover the mysteries of the Void in the massive Heart of the Mountain mod for Skyrim, featuring 70 new quests, 40 dungeons, and more.
+---------
+
+# All 18 Evil Mark Graysons In Invincible Season 3 & What Happens To Them
+
+Streaming TV, Invincible
+
+Sat, 06 Jun 2026 10:56:00 GMT
+
+https://screenrant.com/invincible-all-evil-mark-grayson-variants/
+
+The Invincible War highlighted in Invincible season 3, episode 7 was fought between variants of Mark Grayson, with each meeting a dark fate.
+---------
+
+# Pokémon Black & White 3 Hailed As "Amazing" By Gamers
+
+Gaming, Pokemon
+
+Sat, 06 Jun 2026 10:30:30 GMT
+
+https://screenrant.com/pokemon-black-and-white-3-unova-return-gamers-react/
+
+Pokémon Black & White 3: Genesis, a popular ROM hack, is being hailed as 'amazing' by gamers.
+---------
+
+# Hogwarts Legacy Just Got The Perfect Summer DLC, Thanks To Fans
+
+Gaming, Hogwarts Legacy
+
+Sat, 06 Jun 2026 10:00:20 GMT
+
+https://screenrant.com/hogwarts-legacy-summer-2026-dlc-fan-made/
+
+Fans have created a new mod for Hogwarts Legacy, introducing poolside loungewear cosmetics for a fun summer twist in the popular RPG.
+---------
+
+# Michael Thrills With New Major Box Office Record Ahead of Digital Debut
+
+Movies, Michael
+
+Sat, 06 Jun 2026 11:00:39 GMT
+
+https://www.cbr.com/michael-jackson-biopic-box-office-record-before-digital-debut/
+
+The new Michael Jackson biopic heads to digital soon, but it's picked up one final box-office victory to end its run.
+---------
+
+# Escape From New York Is Getting Rebooted 45 Years Later
+
+Movies, Escape From New York, John Carpenter, Sci-Fi
+
+Sat, 06 Jun 2026 11:00:39 GMT
+
+https://www.cbr.com/john-carpenter-escape-from-new-york-reboot/
+
+A beloved John Carpenter cult classic is officially getting rebooted.
+---------
+
+# 10 Forgotten Retro Comics Perfect for TV and Movie Adaptations After Spider-Noir
+
+Comics, Spider-Noir, Batman, Marvel
+
+Sat, 06 Jun 2026 11:00:39 GMT
+
+https://www.cbr.com/retro-comics-that-need-an-adaptation-after-spider-noir/
+
+The success of Nicolas Cage’s Spider-Noir proves that there’s enough demand to bring these retro-style comic book stories to life.
+---------
+
+# 15 Most Unique Spider-Man Villains, Ranked
+
+Comics, Spider-Man, marvel villains, Venom, Doctor Octopus, Spider-Man: The Clone Saga, Mysterio, Spider-Verse
+
+Sat, 06 Jun 2026 10:55:26 GMT
+
+https://www.cbr.com/spiderman-unique-villains/
+
+Marvel villains like Mr. Negative and Swarm stood out in Spider-Man's rogues' gallery, while Mysterio and Spot proved there was no one else like them.
+---------
+
+# Harrison Ford’s Best 1923 Scene Still Defines Yellowstone’s Entire Dutton Legacy
+
+TV, 1923, Yellowstone, Paramount Plus
+
+Sat, 06 Jun 2026 10:30:26 GMT
+
+https://www.cbr.com/1923-conversation-explains-yellowstone-conflict/
+
+John Dutton wasn't just fighting for control of his land, he was continuing the family motto that Jacob Dutton set in stone in 1923.
+---------
+
+# Prime Video's New 8-Part Crime Saga Is Everything Detective Shows Should Be
+
+TV, Spider-Noir, Prime Video, Crime
+
+Sat, 06 Jun 2026 10:00:12 GMT
+
+https://www.cbr.com/prime-video-spider-noir-great-detective-show/
+
+Embracing film noir to the fullest degree, Prime Video's new Marvel show Spider-Noir shows modern detective series how it's done.
+---------
+
+# 10 Greatest MCU Superhero Costumes, Ranked by Comic Accuracy
+
+Movies, Marvel Cinematic Universe
+
+Sat, 06 Jun 2026 10:00:12 GMT
+
+https://www.cbr.com/best-comic-accurate-mcu-superhero-costumes-list/
+
+The MCU has a slew of great costumes, but some of the best are also incredibly comic-accurate.
+---------
+
+# Loving Apple’s 'Star City'? Spider-Man Icon’s Tense Cold War Thriller Is Streaming for Free
+
+Movie News, Pawn Sacrifice, Tobey Maguire, Star City, Tubi
+
+Sat, 06 Jun 2026 11:00:35 GMT
+
+https://collider.com/tobey-maguire-star-city-replacement-cold-war-thriller-pawn-sacrifice-free-streaming-tubi-june-2026/
+
+Fans of Apple TV's Cold War thriller Star City can check out Pawn Sacrifice, the tense drama that's streaming for free this month. Find out more here.
+---------
+
+# 10 Perfect Netflix Miniseries With 6 Episodes or Less
+
+TV, Netflix, Adolescence, His & Hers, The Perfect Couple
+
+Sat, 06 Jun 2026 10:52:37 GMT
+
+https://collider.com/netflix-perfect-miniseries-6-episodes-or-less-ranked/
+
+His & Hers, Adolescence, and Sirens are some of the Netflix miniseries that prove you don't need more than six episodes to tell a compelling story.
+---------
+
+# Jason Statham's Forgotten 95-Minute Action Gem Is Officially Taking Over Free Streaming
+
+Movie News, Safe, Jason Statham, Pluto TV, Action
+
+Sat, 06 Jun 2026 10:30:26 GMT
+
+https://collider.com/jason-statham-forgotten-action-gem-safe-free-streaming-pluto-june-2026/
+
+Safe, Jason Statham’s underrated crime thriller, is streaming for free this month. Here's everything you should know.
+---------
+
+# 8 Fantasy Movie Masterpieces So Perfect That They Became the Blueprint
+
+Movie, Fantasy, Spirited Away, The Wizard of Oz, Star Wars: Episode IV - A New Hope
+
+Sat, 06 Jun 2026 10:05:13 GMT
+
+https://collider.com/fantasy-movie-masterpieces-blueprint/
+
+The Wizard of Oz, Spirited Away, The Dark Crystal, and more make up our list of fantasy movie masterpieces so perfect that they became the blueprint.
+---------
+
+# 10 Near-Perfect K-Dramas Nobody Remembers
+
+TV, South Korea, Come and Hug Me, Save Me, The Light In Your Eyes
+
+Sat, 06 Jun 2026 10:03:13 GMT
+
+https://collider.com/forgotten-k-drama-shows-near-perfect/
+
+Discover near-perfect K-dramas that often go overlooked despite tight writing and unforgettable performances, from Misty to Children of Nobody.
+---------
+
+# Hollywood's Greatest Epic Has Surprising Roots in the Wild West
+
+Movie Features, Ben-Hur, Western, Charlton Heston, Adventure
+
+Sat, 06 Jun 2026 10:03:13 GMT
+
+https://collider.com/ben-hur-author-lew-wallace-american-west/
+
+Charlton Heston's brilliant movie Ben-Hur is based on a book which was written in the Old West by Lew Wallace.
+---------
+
+# Mark Wahlberg’s Most Heartwarming Movie Is Quietly Winning Over Streaming Audiences
+
+Movie News, Arthur the King, Mark Wahlberg, Simu Liu, Peacock
+
+Sat, 06 Jun 2026 10:00:13 GMT
+
+https://collider.com/mark-wahlberg-heartwarming-movie-arthur-the-king-streaming-success-peacock-june-2026/
+
+An epic, heartwarming Mark Wahlberg movie, Arthur the King, has become a sleeper hit on streaming. Find out more here.
+---------
+
+# Before 'Squid Game,' Netflix's 2-Part Crime Thriller Quietly Became a Worldwide Phenomenon
+
+TV Features, Money Heist, Netflix, Squid Game, Series
+
+Sat, 06 Jun 2026 09:57:13 GMT
+
+https://collider.com/money-heist-netflix-global-sensation-international-show/
+
+Before Squid Game, Money Heist became Netflix’s first truly global non-English phenomenon and changed streaming forever.
+---------
+
+# 'Lord of the Rings' Star Confirms New Movie Solves a Major Issue With 'The Hobbit'
+
+Movie News
+
+Sat, 06 Jun 2026 11:00:40 GMT
+
+https://movieweb.com/lord-of-the-rings-gollum-hobbit-difference-elijah-wood/
+
+Elijah Wood reveals a key difference that makes 'The Hunt for Gollum' so exciting.
+---------
+
 # New Elden Ring Game Officially Arrives This Month, Mark Your Calendars
 
 Gaming, Elden Ring
