@@ -1,3 +1,267 @@
+# 29 Years Later, This Dystopian Sci-Fi That Failed At The Box Office Has Only Become More Relevant
+
+Movies, Masked Recs
+
+Sat, 06 Jun 2026 22:35:20 GMT
+
+https://screenrant.com/gattaca-sci-fi-dystopian-movie-more-relevant-today/
+
+A 1997 dystopian sci-fi movie that initially underperformed has become increasingly relevant with its themes of genetic engineering and identity.
+---------
+
+# A Big One Piece Myth Proves One Way Completely Misunderstand Oda
+
+Anime, One Piece
+
+Sat, 06 Jun 2026 22:31:21 GMT
+
+https://screenrant.com/one-piece-crocodile-myth-fans-misunderstand-oda/
+
+One Piece has a ton of "facts" surrounding it that have never been confirmed by the creator, Eiichiro Oda, and this one might be the biggest.
+---------
+
+# 8 Stephen King Books That Still Deserve A Movie Or TV Adaptation
+
+Books, Stephen King
+
+Sat, 06 Jun 2026 22:31:21 GMT
+
+https://screenrant.com/stephen-king-books-still-deserve-movie-tv-adaptations/
+
+There's no shortage of movies and TV shows based on Stephen King's works, but there's a handful of stories that have yet to join them.
+---------
+
+# 10 Most Important Sci-Fi Movies Ever Made
+
+Movies, Sci-Fi
+
+Sat, 06 Jun 2026 22:25:21 GMT
+
+https://screenrant.com/most-important-scifi-movies-ever-made/
+
+The history of science fiction cinema is dotted with a few important classics that helped shape the genre's future forever.
+---------
+
+# Prime Video's 6-Season Space Opera Will Go Down As The Best Book Adaptation In TV History
+
+Classic TV, Masked Recs
+
+Sat, 06 Jun 2026 22:25:21 GMT
+
+https://screenrant.com/the-expanse-prime-video-best-book-adaptation-tv/
+
+This six-season Prime Video space opera adapted from a popular book series by James S.A Corey is the best page-to-screen television show in history.
+---------
+
+# Netflix's 4-Part Mystery Thriller Was So Good, It Lasted 3 Seasons Longer Than Intended
+
+Streaming TV, Masked Recs
+
+Sat, 06 Jun 2026 22:15:21 GMT
+
+https://screenrant.com/13-reasons-why-netflix-last-longer-than-intended/
+
+Netflix's hit series 13 Reasons Why, based on a New York Times bestseller, exceeded its intended run, lasting 3 seasons longer than initially planned.
+---------
+
+# Sherlock Meets Doctor Who In Netflix’s 8-Part Murder Mystery Thriller
+
+Streaming TV, Masked Recs
+
+Sat, 06 Jun 2026 22:06:20 GMT
+
+https://screenrant.com/bodies-netflix-like-sherlock-doctor-who/
+
+One of Netflix's most ambitious murder mystery thrillers is a limited series perfect for fans of British crime dramas, Sherlock, and Doctor Who.
+---------
+
+# Celebrate Pride With Impressive New Collection Of LGBTQ+ Comics
+
+Comics
+
+Sat, 06 Jun 2026 22:00:22 GMT
+
+https://screenrant.com/pride-month-globalcomix-comic-list-2026/
+
+This Pride Month, GlobalComix is spotlighting a diverse range of LGBTQ+ creators and titles, and here are five that you absolutely need to check out.
+---------
+
+# Animal Crossing Freebies Officially Available To Claim Through June 2026
+
+Gaming, Animal Crossing
+
+Sat, 06 Jun 2026 22:00:22 GMT
+
+https://screenrant.com/animal-crossing-nso-icons-free-june-2026/
+
+Show off your love for Animal Crossing with new Switch icons, frames, and backgrounds available for free in June 2026.
+---------
+
+# 12 Best Seeds For Caves In Minecraft
+
+Gaming, Minecraft, PC
+
+Sat, 06 Jun 2026 21:50:21 GMT
+
+https://screenrant.com/minecraft-best-cave-seeds/
+
+Some of the best Minecraft seeds create larger cave biomes in your world, creating a wealth of resources, structures, and landscapes worth exploring.
+---------
+
+# Melissa Barrera Wanted Scary Movie 6 Role, Marlon Wayans Explains Why It Didn't Happen
+
+Movies, Scary Movie
+
+Sat, 06 Jun 2026 22:36:57 GMT
+
+https://www.cbr.com/scary-movie-6-melissa-barrera-cameo/
+
+Fired Scream franchise star Melissa Barrera was publicly advocating for a role in Scary Movie 6, but that didn't end up happening.
+---------
+
+# 5 Biggest Marvel Villains Still Missing From the MCU, Ranked
+
+Movies, Marvel Cinematic Universe
+
+Sat, 06 Jun 2026 22:30:14 GMT
+
+https://www.cbr.com/marvel-comics-villains-missing-from-mcu-list/
+
+For all the films and shows that the MCU has made, there are still some major villains from Marvel Comics that have yet to make it to the screen.
+---------
+
+# 10 RPGs That Are 10/10, No Notes
+
+Games, Video Games, RPG, Baldur's Gate 3, Pokemon, Final Fantasy, JRPG, Persona 5 Royal
+
+Sat, 06 Jun 2026 22:15:14 GMT
+
+https://www.cbr.com/perfect-rpgs-no-notes/
+
+Some of gaming's most unforgettable RPGs go above and beyond expectations in ways that draw players in so deep, they never want the game to end.
+---------
+
+# In Just 1 Day, J.Lo's R-Rated New Comedy Is the No. 1 Film on Netflix Despite Mixed Reviews
+
+Movies, Office Romance
+
+Sat, 06 Jun 2026 22:00:15 GMT
+
+https://www.cbr.com/jennifer-lopez-office-romance-comedy-netflix-success-june-2026/
+
+The steamy new film has quickly turned into a major hit.
+---------
+
+# Marvel Reveals New Midnight Sons Team: Full Roster and Story Details
+
+Comics, The Midnight Sons
+
+Sat, 06 Jun 2026 22:00:15 GMT
+
+https://www.cbr.com/marvel-new-midnight-sons-team-marcus-spector-moon-knight-5/
+
+The Midnight Sons are returning in Marvel Comics.
+---------
+
+# Golden Frieza Officially Returns With a New Dragon Ball Super Design
+
+Anime, Dragon Ball, Dragon Ball Super, Shonen Jump
+
+Sat, 06 Jun 2026 22:00:15 GMT
+
+https://www.cbr.com/dragon-ball-golden-frieza-figure-release/
+
+Golden Frieza will make an appearance in the upcoming Dragon Ball Super: Beerus anime.
+---------
+
+# Gerard Butler's Forgotten War Thriller Is Officially Rewriting History on Hulu
+
+Movie News, Kandahar, Gerard Butler, Hulu, War
+
+Sat, 06 Jun 2026 22:45:13 GMT
+
+https://collider.com/gerard-butler-war-thriller-kandahar-streaming-success-hulu-june-2026/
+
+Kandahar, Gerard Butler's action thriller with shades of Sicario and Black Hawk Down, has become a criminally underrated sleeper hit on streaming.
+---------
+
+# Before ‘Reacher,’ Tom Cruise Starred in This Hard-Hitting Action Franchise-Starter
+
+Movie News, Jack Reacher, Tom Cruise, Reacher, Alan Ritchson
+
+Sat, 06 Jun 2026 22:30:15 GMT
+
+https://collider.com/tom-cruise-action-thriller-jack-reacher-free-streaming-pluto-june-2026/
+
+Before Alan Ritchson took over the role, Tom Cruise’s underrated action thriller Jack Reacher is streaming for free on Pluto this month.
+---------
+
+# Alan Ritchson’s Action-Packed Sci-Fi Hit Gets a Second Chance on Streaming 12 Years Later
+
+Movie News, Teenage Mutant Ninja Turtles, Megan Fox, Alan Ritchson, Paramount Plus
+
+Sat, 06 Jun 2026 22:15:14 GMT
+
+https://collider.com/alan-ritchson-teenage-mutant-ninja-turtles-streaming-success-apple-tv-june-2026/
+
+12 years after it first hit theaters, Reacher fans are finally discovering Alan Ritchson's $485 million sci-fi fantasy epic on streaming. Cowabunga!
+---------
+
+# Every Major Change ‘Spider-Noir’ Makes From Marvel Comics
+
+TV, Spider-Noir, Spider-Man, Prime Video, Superhero
+
+Sat, 06 Jun 2026 22:08:15 GMT
+
+https://collider.com/spider-noir-changes-from-comics-prime-video/
+
+Prime Video's Spider-Man: Into the Spider-Verse neo-noir spin-off series, Spider-Noir, makes some massive changes from the Marvel comic it's based on.
+---------
+
+# A ‘Mayor of Kingstown’ Star’s Near-Perfect Sci-Fi Masterpiece Is Free To Stream This Month
+
+Movie News, Arrival, Amy Adams, Jeremy Renner, Denis Villeneuve
+
+Sat, 06 Jun 2026 22:00:15 GMT
+
+https://collider.com/jeremy-renner-sci-fi-masterpiece-arrival-free-streaming-pluto-june-2026/
+
+Arrival, Denis Villeneuve’s modern sci-fi masterpiece starring Amy Adams and Jeremy Renner, is streaming free this month. Find out more here.
+---------
+
+# Netflix's 100% RT Video Game Anime Is Officially a Sci-Fi Masterpiece
+
+TV Features, Cyberpunk 2077, CD Projekt Red, Cyberpunk: Edgerunners, Netflix
+
+Sat, 06 Jun 2026 21:47:14 GMT
+
+https://collider.com/netflix-cyberpunk-edgerunners-video-game-anime-sci-fi-masterpiece/
+
+Cyberpunk: Edgerunners beautifully expands on the world of the video game through incredible animation and poignant storytelling.
+---------
+
+# Netflix's Greatest Sci-Fi Franchise of All Time Could Still Run Forever
+
+Features, Stranger Things, Netflix
+
+Sat, 06 Jun 2026 22:30:19 GMT
+
+https://movieweb.com/stranger-things-netflix-franchise-continues/
+
+Netflix has one memorable and popular sci-fi TV franchise that could continue for a long time and have several spin-offs.
+---------
+
+# The Most Perfect R-Rated Action Comedy of All Time Gets Is Better Today
+
+Features, White Chicks, Holds Up
+
+Sat, 06 Jun 2026 22:00:20 GMT
+
+https://movieweb.com/white-chicks-comedy-holds-up/
+
+While polarizing at the time, this 2000s comedy movie is so popular that it might get a sequel.
+---------
+
 # 16 Years Later, James Gunn's Super Is Aging Like Fine Wine
 
 Comics, James Gunn, Super
