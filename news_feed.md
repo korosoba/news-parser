@@ -1,3 +1,355 @@
+# Prime Video's Near-Perfect Fantasy Series Makes Game Of Thrones' Red Wedding Look Small (Again)
+
+TV, Masked Recs
+
+Sat, 06 Jun 2026 18:35:21 GMT
+
+https://screenrant.com/the-legend-of-vox-machina-coronation-red-wedding-look-small/
+
+It's hard for any fantasy show to outdo the infamous Red Wedding from Game of Thrones, but Prime Video's hit series may have just managed this feat.
+---------
+
+# The Mandalorian And Grogu Kicked Out Of Box Office Top 5 In Quickest Star Wars Plummet Ever
+
+Movies, Star Wars, The Mandalorian and Grogu, Box Office
+
+Sat, 06 Jun 2026 18:30:51 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-box-office-week-3-domestic-chart-result/
+
+The Mandalorian and Grogu loses its position in the domestic Top 5 in its third weekend, becoming the quickest Star Wars movie to fall off the chart.
+---------
+
+# Netflix's New 3-Part Crime Series Is Officially A Streaming Hit After Just Two Days
+
+TV, Masked Recs
+
+Sat, 06 Jun 2026 18:30:29 GMT
+
+https://screenrant.com/netflix-the-witness-streaming-hit-june-2026/
+
+After landing on the platform only two days ago, Netflix’s intense new three-part crime show has ascended to become a major streaming success.
+---------
+
+# Avatar: The Last Airbender Season 2 Preview Reveals A Major Character
+
+TV, Avatar: The Last Airbender
+
+Sat, 06 Jun 2026 18:30:22 GMT
+
+https://screenrant.com/netflix-avatar-the-last-airbender-season-2-toph-preview/
+
+Netflix's new preview for Avatar: The Last Airbender season 2 gives fans a behind-the-scenes look at a major character from the animated series.
+---------
+
+# 10 Coolest New D&D Monsters In Ravenloft: The Horrors Within
+
+Gaming, Dungeons and Dragons, Dungeons & Dragons, tabletop games
+
+Sat, 06 Jun 2026 18:30:22 GMT
+
+https://screenrant.com/dnd-best-new-monsters-ravenloft-horrors-within/
+
+Ravenloft: The Horrors Within introduces some terrifying foes, and no D&amp;D horror campaign would be complete without some of the best options.
+---------
+
+# 10 Anime That Prove Every Isekai Hater Wrong
+
+Anime, Isekai
+
+Sat, 06 Jun 2026 18:30:22 GMT
+
+https://screenrant.com/isekai-anime-prove-critics-wrong/
+
+Anime fans have always been divided on isekai, but a handful of selections prove the genre's depth and value.
+---------
+
+# 10 Greatest Marlon Wayans Movies, Ranked
+
+Movies, Marlon Wayans, Naked, Don't Be a Menace to South Central While Drinking Your Juice in the Hood, Scary Movie, Scary Movie 2, The Heat, Respect, Requiem for a Dream, White Chicks, Ladykillers, On the Rocks
+
+Sat, 06 Jun 2026 18:30:22 GMT
+
+https://screenrant.com/best-marlon-wayans-movies-ranked/
+
+Marlon Wayans is best known for comedy, but his filmography is far more diverse. These movies showcase the very best of his talent and range.
+---------
+
+# Steam Drops Dozens Of Free Downloads For Summer Game Fest
+
+Gaming, Summer Game Fest, Steam, Indie Games
+
+Sat, 06 Jun 2026 18:07:36 GMT
+
+https://screenrant.com/steam-free-demos-summer-game-fest-wholesome-direct/
+
+As Summer Game Fest continues to run through this weekend, dozens of new downloads have just appeared on Steam for fans of cozy and wholesome titles.
+---------
+
+# Xbox Project Helix Price Leak Has Gamers Ready To Start Saving
+
+Gaming, Xbox, Triple-A Games
+
+Sat, 06 Jun 2026 18:00:22 GMT
+
+https://screenrant.com/xbox-project-helix-price-leaks-gamers-react/
+
+Microsoft has yet to unveil any official details about Project Helix, its next big hardware release, but leaks aren't kind price-wise.
+---------
+
+# Every Plot Twist In The Night Agent Season 3, Ranked
+
+Streaming TV, The Night Agent
+
+Sat, 06 Jun 2026 18:00:22 GMT
+
+https://screenrant.com/the-night-agent-season-3-plot-twists-ranked/
+
+Netflix’s The Night Agent is a show that is known for its plot twists, with season 3 being no different. Here are the best in the season ranked.
+---------
+
+# Prime Video's Superhero Sleeper Hit Is the Perfect Batman: The Animated Series Replacement
+
+TV, Batman: The Animated Series, Batman: Caped Crusader, Batman
+
+Sat, 06 Jun 2026 18:30:14 GMT
+
+https://www.cbr.com/batman-caped-crusader-batman-the-animated-series-comparison/
+
+Batman: The Animated Series may be the height of Batman content, but don't let this opportunity grapple past you.
+---------
+
+# Naruto Uzumaki's Single Greatest Line Hits Harder Than Any Shonen Anime
+
+Anime, Naruto, Shonen, shonen anime
+
+Sat, 06 Jun 2026 18:15:14 GMT
+
+https://www.cbr.com/naruto-uzumaki-greatest-line-in-shonen-anime/
+
+Delivered during the Chunin Exam arc, Naruto's greatest line tells fans everything they need to know about him and how he'll overcome every obstacle.
+---------
+
+# Netflix Brings Back KPop Demon Hunters Ahead of Its Sequel
+
+Comics, comics, KPop Demon Hunters, Netflix
+
+Sat, 06 Jun 2026 18:00:14 GMT
+
+https://www.cbr.com/kpop-demon-hunters-the-official-screen-comic-boxed-set/
+
+Fans can savor every frame and relive favorite lines from the script and songs in this new graphic novel boxset.
+---------
+
+# 33 Years Later, Street Fighter Officially Revives Cammy’s Classic Design in New First Look
+
+Anime, Street Fighter, capcom
+
+Sat, 06 Jun 2026 18:00:14 GMT
+
+https://www.cbr.com/street-fighter-cammy-classic-new-first-look/
+
+Cammy is back in her classic look with a brand new limited-edition Street Fighter release that may be a must-have for collectors.
+---------
+
+# Steven Spielberg Declares This New Horror a Must-Watch After Grossing Over 200x Its Budget
+
+Movies, Obsession, steven spielberg
+
+Sat, 06 Jun 2026 17:48:55 GMT
+
+https://www.cbr.com/steven-spielberg-obsession-review/
+
+The film is a resounding box office hit.
+---------
+
+# Every Baroque Works Member In One Piece, Ranked By Bounty
+
+Anime, One Piece, shonen anime, Shonen
+
+Sat, 06 Jun 2026 17:30:15 GMT
+
+https://www.cbr.com/one-piece-baroque-works-members-ranked-bounty/
+
+Run by Crocodile, Baroque Works ran rampant throughout Alabasta in One Piece. How do the members rank in terms of bounties?
+---------
+
+# 6 Smartest Star Trek Episodes
+
+TV, Star Trek, Sci-Fi
+
+Sat, 06 Jun 2026 17:30:14 GMT
+
+https://www.cbr.com/smartest-star-trek-episodes-list/
+
+The Star Trek franchise is known for thought-provoking science fiction, and these episodes remain some of the smartest stories throughout its history.
+---------
+
+# It's Officially a New Era for The Witcher Franchise
+
+Games, The Witcher 3: Wild Hunt, The Witcher, The Witcher IV, Video Games, RPG
+
+Sat, 06 Jun 2026 17:15:16 GMT
+
+https://www.cbr.com/witcher-franchise-new-era-ciri/
+
+One game fans have eagerly been waiting for is CD Projekt RED's The Witcher IV, a direct sequel to one of the greatest action role-playing games.
+---------
+
+# Nicolas Cage's 8-Part Crime Show Hailed 'Pure Pulp Perfection' by Stephen King
+
+TV, Stephen King, Spider-Noir
+
+Sat, 06 Jun 2026 17:10:52 GMT
+
+https://www.cbr.com/stephen-king-spider-noir-review/
+
+The detective series already boasts a fantastic score from critics.
+---------
+
+# It's About Time That NBC Brings Back This 'SNL' Spinoff That Airs Once Every 9 Years
+
+TV Features, Saturday Night Live, Saturday Night Live: Weekend Update Summer Edition, Weekend Update, NBC
+
+Sat, 06 Jun 2026 18:38:14 GMT
+
+https://collider.com/snl-spinoff-weekend-update-thursday-standalone-show/
+
+First premiering in fall 2008 and later retooled for summer 2017, the timing feels right to bring back Saturday Night Live Weekend Update Thursday.
+---------
+
+# Netflix's 'Avatar: The Last Airbender' Season 2 Introduces a Legendary Fan Favorite
+
+TV News, Avatar: The Last Airbender, Netflix, Fantasy
+
+Sat, 06 Jun 2026 18:30:14 GMT
+
+https://collider.com/netflix-live-action-avatar-the-last-airbender-season-2-toph-introduction-featurette/
+
+Toph makes her live-action debut in a stunning new look at Netflix's Avatar: The Last Airbender Season 2. See it here!
+---------
+
+# FX’s Near-Perfect 3-Part Superhero Series Is So Good, It Saved an Entire Genre
+
+TV Features, Legion, Noah Hawley, Dan Stevens, Aubrey Plaza
+
+Sat, 06 Jun 2026 18:27:15 GMT
+
+https://collider.com/fx-superhero-series-legion-saved-genre/
+
+FX's Legion redefines the superhero origin story in the Marvel universe, offering a fresh take on mutant powers and mental health issues.
+---------
+
+# Your Friends & Neighbors S2 Ran Out of Gas Filming Its Viral Scene | Set Stories
+
+TV, Your Friends and Neighbors
+
+Sat, 06 Jun 2026 18:15:14 GMT
+
+https://collider.com/video/your-friends-neighbors-s2-ran-out-of-gas-filming-its-viral-scene-set-stories/
+
+Your Friends & Neighbors Season 2 reveals the chaotic behind-the-scenes story of filming its viral scene in this exclusive Set Stories feature.
+---------
+
+# 17 Years Later, Brad Pitt’s Wild WWII Masterpiece Is Still the Ultimate Late-Night Watch
+
+Movie News, Inglourious Basterds, Brad Pitt, Quentin Tarantino, Peacock
+
+Sat, 06 Jun 2026 18:00:15 GMT
+
+https://collider.com/brad-pitt-ww2-action-masterpiece-inglourious-basterds-streaming-success-peacock-june-2026/
+
+Brad Pitt's intense WW2 action film Inglourious Basterds, directed by Quentin Tarantino, is experiencing a streaming revival. Here's all to know.
+---------
+
+# 10 Most Perfectly Directed Thrillers of the 21st Century, Ranked
+
+Movie, Parasite, Zodiac, No Country for Old Men, Thriller
+
+Sat, 06 Jun 2026 17:57:15 GMT
+
+https://collider.com/most-perfectly-directed-thriller-movies-21st-century-ranked/
+
+Parasite, Mulholland Drive, No Country for Old Men, and more make up our list of the most perfectly directed thriller movies of the 21st century.
+---------
+
+# Netflix Officially Confirms the Ghostbusters Will Return in 2027
+
+TV News, Ghostbusters, Animation, Netflix, The Real Ghostbusters
+
+Sat, 06 Jun 2026 17:48:19 GMT
+
+https://collider.com/netflix-ghostbusters-night-shift-spin-off-release-window-2027/
+
+Netflix has officially revealed Ghostbusters: Night Shift, the new sci-fi spin-off series debuting in 2027.
+---------
+
+# Only 5 Harry Potter Characters Are More Powerful Than Lord Voldemort
+
+Movie, Harry Potter, Fantastic Beasts, Wizarding World, Fantasy
+
+Sat, 06 Jun 2026 17:28:15 GMT
+
+https://collider.com/harry-potter-characters-stronger-than-voldemort/
+
+Lord Voldemort is the main villain of the Harry Potter saga, but characters like Dumbledore have proven themselves more powerful than the Dark Lord.
+---------
+
+# 6 Burning Questions I Have While I Wait for 'Rivals' Season 2 Part 2
+
+TV, Rivals, Hulu, Disney+, Drama
+
+Sat, 06 Jun 2026 17:19:15 GMT
+
+https://collider.com/rivals-season-2-part-2-questions/
+
+The addictive Disney+ series Rivals delivers a shocking midseason finale. While we wait for the rest of Season 2, these are my biggest questions.
+---------
+
+# Aerosmith's 10 Best Songs of All Time
+
+Top 10, Aerosmith, Steven Tyler: Out on a Limb, Rock, Music
+
+Sat, 06 Jun 2026 17:17:15 GMT
+
+https://collider.com/aerosmith-songs-best-ranked/
+
+Aerosmith is one of America's greatest bands, and all-time great rock songs like "Dream On," "Walk This Way," and "Sweet Emotion" prove it.
+---------
+
+# Taylor Sheridan's Thriller Series 'Lioness' is 2026's Most-Anticipated TV Return
+
+Features, Lioness, Taylor Sheridan
+
+Sat, 06 Jun 2026 18:30:20 GMT
+
+https://movieweb.com/taylor-sheridan-action-thriller-lioness-2026-return/
+
+Taylor Sheridan's 'Yellowstone' spinoff show was a hit for Paramount+, but a completely unrelated Sheridan show is much more highly anticipated.
+---------
+
+# 11 Biggest Classic Star Trek Character Promotions in the Modern Era
+
+TV Lists, Star Trek
+
+Sat, 06 Jun 2026 18:00:20 GMT
+
+https://movieweb.com/star-trek-modern-era-promotions/
+
+The Star Trek franchise hasn't shied away from bringing back Starfleet icons, and most have even been promoted. Read on for more.
+---------
+
+# ‘Dutton Ranch’ Officially Proves It’s ‘Yellowstone’ Season 6
+
+Features, Dutton Ranch, Yellowstone
+
+Sat, 06 Jun 2026 17:30:19 GMT
+
+https://movieweb.com/dutton-ranch-officially-yellowstone-season-6/
+
+'Dutton Ranch' acts as a direct sequel to Taylor Sheridan's original hit neo-Western, and the latest episode picks up several key threads.
+---------
+
 # Netflix's Best Anime Movie Of 2026 Is A Must-Watch For Pride Month
 
 Anime, Masked Recs, Netflix
