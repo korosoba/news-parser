@@ -1,3 +1,366 @@
+# If You Love Clint Eastwood's Spaghetti Westerns, Watch The 1954 Movie That Made Them Possible
+
+Movies, Masked Recs, Western
+
+Sat, 06 Jun 2026 00:00:21 GMT
+
+https://screenrant.com/vera-cruz-movie-streaming-influence-spaghetti-westerns/
+
+A 1954 Hollywood film, currently streaming on Prime Video, served as a major influence on Clint Eastwood's three Spaghetti Westerns.
+---------
+
+# 10 Near-Perfect Retro Anime That Deserve To Be Classics
+
+Anime
+
+Sat, 06 Jun 2026 00:00:21 GMT
+
+https://screenrant.com/near-perfect-retro-anime-classics/
+
+Many standout retro anime failed to reach the heights of the classics, but a select few remain deserving of the title regardless.
+---------
+
+# The Star Wars Prequels Are Officially Back
+
+Movies, Masked Recs
+
+Sat, 06 Jun 2026 00:00:21 GMT
+
+https://screenrant.com/star-wars-prequels-novelizations-new-editions-june-2026/
+
+Disney has re-released the novelizations of the Star Wars prequel movies with new cover art, which shows how much the trilogy has been rehabilitated.
+---------
+
+# Indie Horror Movies Like Backrooms Are Taking Over Hollywood, And It’s Getting Impossible To Ignore
+
+Movies, Backrooms, Horror, Obsession, The Amazing Digital Circus
+
+Sat, 06 Jun 2026 00:00:21 GMT
+
+https://screenrant.com/indie-horror-movies-success-box-office-industry-impact/
+
+Indie horror films like Backrooms are steamrolling the box office right now, and even the mainstream media can't ignore how impactful they are.
+---------
+
+# Masters Of The Universe: Over 75 Easter Eggs, References & Major Cameos Explained
+
+Movies, Masters of the Universe
+
+Fri, 05 Jun 2026 23:58:45 GMT
+
+https://screenrant.com/masters-of-the-universe-easter-eggs-references-cameos-explained/
+
+Masters of the Universe in here, featuring a wide collection of epic Easter eggs, fun references to the original animated series, and great cameos.
+---------
+
+# Prime Video's Spider-Noir Replacement Officially Releases In 2 Months
+
+Streaming TV, Masked Recs
+
+Fri, 05 Jun 2026 23:43:01 GMT
+
+https://screenrant.com/batman-caped-crusader-season-2-spider-noir-prime-video-series-replacement/
+
+Prime Video's Spider-Man series, Spider-Noir, has already been released, but its superhero replacement will arrive before long, starring a major hero.
+---------
+
+# HBO’s 14-Part Thriller Show Is So Good, It Got 2 Bonus Seasons
+
+Streaming TV, Masked Recs
+
+Fri, 05 Jun 2026 23:35:21 GMT
+
+https://screenrant.com/big-little-lies-multiple-seasons-inspired-copycats/
+
+When a miniseries hits just right, it often becomes a full-fledged, multi-season show, and that's exactly what happened with this HBO thriller series.
+---------
+
+# HBO's Most Popular Show Of The Year Doesn't Air On HBO
+
+Streaming TV, Masked Recs
+
+Fri, 05 Jun 2026 23:30:21 GMT
+
+https://screenrant.com/hbo-most-popular-show-the-pitt-streaming-only/
+
+HBO has several titles on the list of most-watched shows for the 2025-26 season, but the biggest series isn't available on HBO's cable channel.
+---------
+
+# Hitman's Latest Elusive Target Wiz Khalifa Has The Perfect Defence Against Agent 47 (Exclusive)
+
+Exclusive, Hitman, Hitman 2, Hitman 3, Summer Game Fest
+
+Fri, 05 Jun 2026 23:23:11 GMT
+
+https://screenrant.com/hitmans-latest-elusive-target-wiz-khalifa-exclusive-interview/
+
+We spoke to Wiz Khalifa about life in the firing line as the rapper takes on Agent 47 in Hitman's latest elusive target update.
+---------
+
+# Netflix's 8-Part Cat-And-Mouse Crime Drama Is The Perfect Weekend Binge
+
+Streaming TV, Masked Recs
+
+Fri, 05 Jun 2026 23:15:20 GMT
+
+https://screenrant.com/netflix-crime-drama-nemesis-perfect-weekend-binge/
+
+Netflix is home to some great crime dramas, but one with stereotype shattering characters and plot twists has now been trending for three weeks.
+---------
+
+# Viola Davis' $76M Star-Studded Heist Film Is Dominating Streaming 8 Years Later
+
+Movies, Widows, Thriller, STARZ
+
+Sat, 06 Jun 2026 00:00:14 GMT
+
+https://www.cbr.com/viola-davis-widows-heist-thriller-success-starz-june-2026/
+
+Viola Davis' critically acclaimed heist thriller, Widows, is a streaming hit in the United States.
+---------
+
+# Marvel Studios Quietly Confirms Its Biggest Spider-Man Movie Yet
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 06 Jun 2026 00:00:14 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-runtime-marvel-record/
+
+Spider-Man: Brand New Day is a highly anticipated sequel that is already breaking records before its release.
+---------
+
+# Marvel Officially Reveals Doctor Doom's Avengers Team Before Avengers: Doomsday
+
+Comics, Marvel, Marvel Comics, Avengers
+
+Sat, 06 Jun 2026 00:00:14 GMT
+
+https://www.cbr.com/doctor-doom-avengers-of-doom-infinity-roar-reveal/
+
+Doctor Doom assembles an unlikely team of heroes and villains to face off against an epic threat.
+---------
+
+# 5 Classic Games Nobody Wants to See a Remake Of
+
+Games, Video Games, Red Dead Redemption, Batman, Star Wars
+
+Fri, 05 Jun 2026 23:45:13 GMT
+
+https://www.cbr.com/classic-games-nobody-wants-remakes-of/
+
+Game remakes have become commonplace in 2026, but there are some gems that are too classic to ever properly be remade.
+---------
+
+# Attack On Titan Officially Returns With Next Scouting Report July 1
+
+Anime, Attack on Titan, Attack on Titan: The Final Chapters (2023), Attack on Titan: The Last Attack
+
+Fri, 05 Jun 2026 23:36:19 GMT
+
+https://www.cbr.com/attack-on-titan-3-summer-game-fest-2026/
+
+Attack on Titan is finally back, and fans don't have to wait long for its official return.
+---------
+
+# New Free Game From Assassin's Creed Creator Officially Available Now
+
+Games, Assassin's Creed
+
+Fri, 05 Jun 2026 23:30:13 GMT
+
+https://www.cbr.com/new-free-game-assassins-creator-officially-available-now/
+
+A brand-new game from the creator of Assassin's Creed was just announced, and there's a free download for it available today.
+---------
+
+# Classic '80s Anime That Have Aged Like Fine Wine
+
+Anime, Akira, Dragon Ball
+
+Fri, 05 Jun 2026 23:16:12 GMT
+
+https://www.cbr.com/classic-80s-anime-better-with-age-list/
+
+These anime from the 1980s are arguably even more impressive today than they were decades ago.
+---------
+
+# Hulu's New 9-Part Comedy Series Shoots to No. 1 on Streaming in Just 2 Days
+
+TV, Not Suitable for Work, Comedy, Hulu
+
+Fri, 05 Jun 2026 23:00:12 GMT
+
+https://www.cbr.com/not-suitable-for-work-comedy-hulu-success-june-2026/
+
+Hulu's latest comedy, Not Suitable for Work, labeled the "Gen Z Friends," is the No. 1 most-watched show in the United States.
+---------
+
+# Matthew McConaughey & Gerard Butler's Dragon Movie Is a Streaming Sensation 24 Years After Flopping in Theaters
+
+Movies, Reign of Fire, matthew mcconaughey, MGM+
+
+Fri, 05 Jun 2026 23:00:12 GMT
+
+https://www.cbr.com/matthew-mcconaughey-gerard-butler-reign-of-fire-success-mgm-plus-june-2026/
+
+After flopping in theaters in 2002, Matthew McConaughey and Gerard Butler's sci-fi film has found new life on streaming.
+---------
+
+# 5 Most-Anticipated Upcoming Fantasy Movies, Ranked by Excitement Level
+
+Movies, Fantasy, Narnia: The Magician's Nephew, The Lord of the Rings: The Hunt for Gollum
+
+Fri, 05 Jun 2026 23:00:12 GMT
+
+https://www.cbr.com/most-anticipated-fantasy-movies-list/
+
+Fantasy seems to be hitting a new golden age on TV and in film, with there being countless highly anticipated fantasy movies set for release.
+---------
+
+# ‘Doctor Who’ Finally Reunites 2 Fan-Favorite Characters After 14 Years
+
+TV News, Doctor Who, Sci-Fi, Arthur Darvill, Alex Kingston
+
+Sat, 06 Jun 2026 00:00:14 GMT
+
+https://collider.com/doctor-who-river-song-rory-williams-return-big-finish-audio-book-alex-kingston-arthur-darvill/
+
+Doctor Who is officially reuniting River Song and Rory Williams for a new adventure, with Alex Kingston and Arthur Darvill returning.
+---------
+
+# 2026’s Best Horror Sleeper Hit Becomes a Must-Watch on Streaming
+
+Movie News, Adam Scott, Horror, Hokum, Apple TV
+
+Sat, 06 Jun 2026 00:00:14 GMT
+
+https://collider.com/adam-scott-r-rated-horror-hit-hokum-streaming-success-apple-tv-june-2026/
+
+Adam Scott’s acclaimed new horror movie is climbing digital charts fast, proving the indie horror boom is nowhere near slowing down.
+---------
+
+# 10 Years Later, Netflix’s 4-Part Dystopian Thriller Is Still One of Its Best Sci-Fi Shows
+
+TV Features, 3 Percent, Netflix, Sci-Fi, Squid Game
+
+Fri, 05 Jun 2026 23:53:14 GMT
+
+https://collider.com/netflix-best-sci-fi-show-3-percent-series/
+
+3% is a Brazilian Netflix dystopian thriller series that makes the perfect next binge for fans waiting after Squid Game.
+---------
+
+# 3 Binge-Worthy Series to Watch on Prime Video This Weekend (June 5-7)
+
+TV, The Legend of Vox Machina, Swarm, Prime Video, We Were Liars
+
+Fri, 05 Jun 2026 23:43:14 GMT
+
+https://collider.com/best-prime-video-shows-watch-weekend-june-5-7/
+
+The Legend of Vox Machina, We Were Liars, and Swarm make up our list of the best binge-worthy series to watch on Prime Video the weekend of June 5th.
+---------
+
+# ‘Backrooms’ Officially Pumps the Brakes on Sequel Talk After Historic A24 Debut
+
+Movie News, Backrooms, Kane Parsons, Chiwetel Ejiofor, A24
+
+Fri, 05 Jun 2026 23:30:13 GMT
+
+https://collider.com/backrooms-sequel-director-kane-parsons-denies-reports-a24/
+
+Backrooms director Kane Parsons denies recent reports of seeking a screenwriting collaborator for a sequel, suggesting a follow-up may not be planned.
+---------
+
+# Netflix Releases Gerard Butler and Martin Scorsese’s New Epic Mob Drama This Month
+
+Movie News, Netflix, Martin Scorsese, Gerard Butler, Oscar Isaac
+
+Fri, 05 Jun 2026 23:30:13 GMT
+
+https://collider.com/netflix-gerard-butler-oscar-isaac-crime-thriller-in-the-hand-of-dante-release-date-june-24-2026/
+
+Netflix's star-studded new crime thriller, In the Hand of Dante, officially premieres later this month on the streamer.
+---------
+
+# Paramount+ Officially Confirms Sylvester Stallone Crime Thriller Remake Series
+
+TV News, Cop Land, James Mangold, Paramount Plus, Robert Levine
+
+Fri, 05 Jun 2026 23:24:34 GMT
+
+https://collider.com/paramount-plus-sylvester-stallone-crime-thriller-remake-series-cop-land/
+
+James Mangold's reimagining of Sylvester Stallone's Cop Land has officially been picked up by Paramount+.
+---------
+
+# 10 Heaviest World War II Movies
+
+Movie, Come And See, The Human Condition I: No Greater Love, Grave of the Fireflies, Das Boot
+
+Fri, 05 Jun 2026 23:05:13 GMT
+
+https://collider.com/heaviest-world-war-ii-movies-ranked/
+
+World War II movies like Come and See, Grave of the Fireflies, and The Human Condition can all count themselves among the heaviest ever made.
+---------
+
+# Paramount+ Officially Releases All 8 Episodes of Bonkers New Sci-Fi Video Game Series
+
+TV News, Among Us, Paramount Plus, Dan Stevens, Elijah Wood
+
+Fri, 05 Jun 2026 23:00:12 GMT
+
+https://collider.com/paramount-among-us-show-release-date-june-5-paramount-plus-how-to-watch/
+
+During Summer Game Fest, Paramount announced all episodes of its Among Us series are now streaming on Paramount+.
+---------
+
+# 'Saw' Prequel Set in WWI Officially Revealed in Gritty First Trailer
+
+Video Games, Saw, Horror, Video Game, Saw X
+
+Fri, 05 Jun 2026 22:54:16 GMT
+
+https://collider.com/saw-prequel-genesis-ww1-setting-trailer-horror-video-game/
+
+Saw: Genesis is a new chapter in the Saw universe taking place 100 years before Jigsaw's reign of terror. See the new trailer here!
+---------
+
+# 'Among Us' Video Game Adaptation Drops Surprise Premiere on Paramount+
+
+TV News, Among Us, Paramount Plus, video games
+
+Fri, 05 Jun 2026 23:00:18 GMT
+
+https://movieweb.com/among-us-streaming-release-paramount-plus/
+
+Paramount+ announced the surprise streaming premiere of its animated video game adaptation 'Among Us' at Summer Game Fest 2026.
+---------
+
+# 'Michael' Topples Christopher Nolan's Iconic Action Thriller With Major Milestone
+
+Movie News, Michael, Inception, Box Office Milestones
+
+Fri, 05 Jun 2026 23:00:18 GMT
+
+https://movieweb.com/michael-beats-inception-scifi-action-box-office/
+
+'Michael' is a major box office success, beating Christopher Nolan's James Bond-esque sci-fi action thriller 'Inception.'
+---------
+
+# Sylvester Stallone's Crime Thriller Remake Finds Perfect Streaming Home
+
+TV News, Cop Land, Sylvester Stallone, Thriller
+
+Fri, 05 Jun 2026 22:57:53 GMT
+
+https://movieweb.com/sylvester-stallone-cop-land-remake-paramount-plus/
+
+The new project will join a number of other exciting thrillers on Paramount+.
+---------
+
 # The Amazing Digital Circus Movie Confirms A Major Theory About One Of Its Biggest Characters
 
 Movies, The Amazing Digital Circus
