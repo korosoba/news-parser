@@ -1,3 +1,289 @@
+# New 10/10 Steam RPG Is Officially Free To Try Right Now
+
+Gaming, Steam, PC
+
+Sat, 06 Jun 2026 12:30:21 GMT
+
+https://screenrant.com/steam-10-10-free-rpg-indie-2026-release/
+
+This quirky new indie role-playing game has a rare 100% user score and is officially free to try out right now on Steam.
+---------
+
+# Dutton Ranch Resurrected The Worst Version Of Rip From Yellowstone
+
+TV, Yellowstone, Dutton Ranch
+
+Sat, 06 Jun 2026 12:30:21 GMT
+
+https://screenrant.com/dutton-ranch-rip-foreman-worst-version-yellowstone/
+
+Rip returns to his familiar role in Dutton Ranch, which made him the most fearsome cowboy in Yellowstone. But Rip and Beth have a plan.
+---------
+
+# Supergirl’s New Villain Power Upgrade Already Changes Its Ending
+
+Movies, Supergirl, DC Universe
+
+Sat, 06 Jun 2026 12:30:21 GMT
+
+https://screenrant.com/supergirl-krem-villain-power-upgrade-ending-change/
+
+Supergirl's trailer reveals a new power upgrade for a DCU villain that requires the movie to revamp a specific part of its source material's ending.
+---------
+
+# After 38 Years, Marvel Finally Perfects Wolverine's Forgotten Costume
+
+Marvel Comics, Wolverine
+
+Sat, 06 Jun 2026 12:30:21 GMT
+
+https://screenrant.com/wolverine-patch-costume-laura-kinney/
+
+Marvel unveils the definitive version of Wolverine's most underrated look as a different hero swaps Logan's usual costume for their own redesign.
+---------
+
+# "If Tyrion Was So Smart..."Peter Dinklage Reveals His Biggest Game Of Thrones Filming Issue
+
+TV, Game Of Thrones, Game of Thrones
+
+Sat, 06 Jun 2026 12:25:56 GMT
+
+https://screenrant.com/game-of-thrones-filming-conditions-tyrion-costume-peter-dinklage/
+
+Game of Thrones was hardly an easy TV show to film, but Golden Globe-winning star Peter Dinklage elaborates on one irksome part of his role.
+---------
+
+# Bob Verne: The Very Personal Story Behind The Grey's Anatomy Episode Dedication
+
+Network TV, Grey's Anatomy
+
+Sat, 06 Jun 2026 12:00:23 GMT
+
+https://screenrant.com/bob-verne-greys-anatomy-episode-dedication-explained/
+
+Bob Verne is responsible for a classic Grey's Anatomy episode thanks to his very personal connection to an executive producer of the medical drama.
+---------
+
+# Disney Is Finally Admitting The Incredibles Are a Fantastic Four Rip-Off
+
+Comics, The Incredibles, Disney
+
+Sat, 06 Jun 2026 12:00:21 GMT
+
+https://screenrant.com/disney-incredibles-fantastic-four-next-appearance/
+
+Disney and Marvel's latest collaboration places The Incredibles squarely in the world of the Fantastic Four, showing how the franchises are similar.
+---------
+
+# 2016’s Near-Perfect Horror Hidden Gem Series Is A Must-Watch For Backrooms Fans
+
+TV, Backrooms, Channel Zero
+
+Sat, 06 Jun 2026 12:00:21 GMT
+
+https://screenrant.com/backrooms-movie-channel-zero-show-horror-internet-story-adapt/
+
+Backrooms shares a lot of its biggest strengths with one prior horror hidden gem, making it all the more worth watching for fans of the new film.
+---------
+
+# Zelda: Ocarina Of Time Remake Gameplay Hailed As "Art" By Gamers
+
+Gaming, The Legend of Zelda: Ocarina of Time
+
+Sat, 06 Jun 2026 12:00:21 GMT
+
+https://screenrant.com/legend-of-zelda-ocarina-fan-remake-reactions/
+
+Discover the stunning fan-made remake of The Legend of Zelda: Ocarina of Time, showcasing the Lord Jabu-Jabu boss fight in 4K.
+---------
+
+# GTA 6 Map Compared To Red Dead Redemption 2 Leaves Gamers Stunned
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto
+
+Sat, 06 Jun 2026 11:30:21 GMT
+
+https://screenrant.com/gta-6-map-comparison-red-dead-redemption-2/
+
+Grand Theft Auto VI is coming along very soon indeed, and we're going to have more world to explore than any other Rockstar release.
+---------
+
+# 8 Smartest Scooby-Doo Villains
+
+TV, Scooby-Doo, Animation, Scooby Doo! Mystery Incorporated
+
+Sat, 06 Jun 2026 12:30:14 GMT
+
+https://www.cbr.com/smartest-scooby-doo-villains-list/
+
+With Mystery Inc solving cases since 1969, the gang have gone up against a variety of intelligent foes who gave them a run for their money.
+---------
+
+# DC Just Brought Back Brendan Fraser's Canceled Batgirl Movie In a Unique Way
+
+Movies, Batgirl, Batman, DCU
+
+Sat, 06 Jun 2026 12:00:13 GMT
+
+https://www.cbr.com/dc-lego-batman-revived-brenden-fraser-canceled-batgirl-movie/
+
+The DC Universe is full of surprises, and now a recent Batman outing has given fans a fun reminder of the Batgirl film that never was.
+---------
+
+# Disney Confirms Pixar and Marvel Crossover for Major Anniversary Celebration
+
+Comics, Marvel, Pixar
+
+Sat, 06 Jun 2026 12:00:13 GMT
+
+https://www.cbr.com/disney-pixar-40th-anniversary-marvel-comics-variant-covers/
+
+Marvel Comics collaborates with Pixar in honor of the animation studio's big anniversary.
+---------
+
+# Hulu Officially Unveils Sequel to 6-Part Crime Saga With 92% RT
+
+TV, Snowfall
+
+Sat, 06 Jun 2026 11:31:13 GMT
+
+https://www.cbr.com/hulu-snowfall-spinoff-the-drop-sequel-details-confirmed/
+
+FX is giving one of its greatest crime dramas a sequel, and the new details look amazing.
+---------
+
+# Hugh Laurie's HBO Sleeper Avenue 5 Is TV's Most Perfect Sci-Fi Comedy
+
+TV, Avenue 5, Sci-Fi, HBO Max
+
+Sat, 06 Jun 2026 11:31:13 GMT
+
+https://www.cbr.com/hugh-laurie-hbo-avenue-5-best-sci-fi-comedy/
+
+Hugh Laurie's underrated HBO series Avenue 5 still holds up as one of the best and funniest sci-fi comedies.
+---------
+
+# 10 Nearly Perfect Film Noir Movies
+
+Movie, In A Lonely Place, Strangers on a Train, Scarlet Street, Notorious
+
+Sat, 06 Jun 2026 12:46:14 GMT
+
+https://collider.com/nearly-perfect-film-noir-movies-ranked/
+
+Classic film noir movies like Strangers on a Train, In a Lonely Place, and Scarlet Street are all close to perfect, and hold up well to this day.
+---------
+
+# The Most Terrifying Crime Thriller Ever Made Hits Free Streaming This Month
+
+Movie News, No Country for Old Men, The Coen Brothers, Javier Bardem, Josh Brolin
+
+Sat, 06 Jun 2026 12:45:14 GMT
+
+https://collider.com/coen-brothers-crime-thriller-no-country-for-old-men-free-streaming-pluto-june-2026/
+
+No Country for Old Men, the Coen Brothers’ terrifying Oscar-winning crime thriller, is streaming free on Pluto. Find out more here.
+---------
+
+# The Word "Masterpiece" Is Overused, but These 10 Miniseries Actually Are
+
+TV, TV Miniseries, Band of Brothers, Mare of Easttown, The Curse
+
+Sat, 06 Jun 2026 12:41:13 GMT
+
+https://collider.com/best-miniseries-masterpieces/
+
+Explore the best of prestige television with these great miniseries that have been hailed as true masterpieces, from Band of Brothers to Watchmen.
+---------
+
+# Chris Pratt's Sci-Fi War Epic Gets a Second Chance on Free Streaming
+
+Movie News, The Tomorrow War, Chris Pratt, Sci-Fi, Tubi
+
+Sat, 06 Jun 2026 12:30:14 GMT
+
+https://collider.com/chris-pratt-sci-fi-war-epic-tomorrow-war-free-streaming-tubi-june-2026/
+
+Chris Pratt's $200 million sci-fi spectacle, The Tomorrow War, was sold to Amazon and denied a theatrical release. It's now streaming for free.
+---------
+
+# 10 Sci-Fi Movies That Are Perfect From the First Scene to the Last
+
+Movie, Science Fiction, Galaxy Quest, RoboCop, Back to the Future
+
+Sat, 06 Jun 2026 12:29:14 GMT
+
+https://collider.com/sci-fi-movies-perfect-first-scene-to-last/
+
+From cerebral game-changers like 2001: A Space Odyssey to brilliant satires like Galaxy Quest, these sci-fi movies are absolutely perfect throughout.
+---------
+
+# The Greatest Action Movie of Each of the Last 6 Years
+
+Movie, Action, Masters of the Universe, Spider-Man: Across the Spider-Verse, Everything Everywhere All at Once
+
+Sat, 06 Jun 2026 12:21:14 GMT
+
+https://collider.com/best-action-movie-every-year-2021-2026/
+
+From Dune: Part Two, to Sinners, to Masters of the Universe, we've singled out the very best action movie from each of the last 6 years.
+---------
+
+# Netflix’s Brutal 5-Part Horror Anthology Series Is a Nasty Treat for Slasher Fans
+
+TV Features, Slasher, Netflix, Horror, Katie McGrath
+
+Sat, 06 Jun 2026 12:17:14 GMT
+
+https://collider.com/slasher-netflix-brutal-horror-anthology-series-worth-watching/
+
+Slasher is the perfect series for anyone looking for a horror anthology packed with masked killers, shocking twists, and gruesome kills.
+---------
+
+# CBS' Forgotten 6-Episode Sitcom Is Climbing Up Streaming Charts 9 Years Later
+
+TV Features, 2 Broke Girls, Comedy, Kat Dennings, Jennifer Coolidge
+
+Sat, 06 Jun 2026 12:03:14 GMT
+
+https://collider.com/cbs-sitcom-2-broke-girls-streaming-charts/
+
+2 Broke Girls is a groundbreaking sitcom about friendship and their financial struggle, and it's finally getting the attention it deserves.
+---------
+
+# Now That 'Yellowstone' Is Over, Taylor Sheridan Needs To Return to Horror
+
+Movie Features, Taylor Sheridan, Horror, Vile, Western
+
+Sat, 06 Jun 2026 12:02:15 GMT
+
+https://collider.com/taylor-sheridan-vile-horror-movie-needs-to-return-after-yellowstone/
+
+Taylor Sheridan's first directing credit is for the horror movie Vile, and now's the time for the Yellowstone creator to return to the genre.
+---------
+
+# Quentin Tarantino’s Century-Defining Masterpiece Is Free To Stream Right Now
+
+Movie News, Quentin Tarantino, The Adventures of Cliff Booth, Pulp Fiction, Pluto TV
+
+Sat, 06 Jun 2026 12:00:13 GMT
+
+https://collider.com/quentin-tarantino-crime-masterpiece-pulp-fiction-free-streaming-pluto-june-2026/
+
+Before Quentin Tarantino’s 2026 comeback, Pulp Fiction is streaming for free this month. Here's where you can watch the indie masterpiece.
+---------
+
+# Jason Statham's $310 Million Action Franchise Reboot Storms Onto Streaming
+
+Movie News, Jason Statham, The Transporter 4, Coming/Leaving Streaming, Transporter, Action
+
+Sat, 06 Jun 2026 12:00:19 GMT
+
+https://movieweb.com/jason-statham-transporter-refueled-action-streaming-hbo-max-june-2026/
+
+'The Transporter Refueled' should have been the start of a new trilogy, but instead it ended up being a disastrous ending to the franchise.
+---------
+
 # The Elder Scrolls 6 Can Wait, Skyrim Just Got A Huge New Expansion
 
 Gaming, The Elder Scrolls V: Skyrim
