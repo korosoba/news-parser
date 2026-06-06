@@ -1,3 +1,333 @@
+# Cyberpunk 2077 Official New DLC Unveiled
+
+Gaming, Cyberpunk 2077, PC
+
+Sat, 06 Jun 2026 14:18:19 GMT
+
+https://screenrant.com/cyberpunk-2077-wuthering-waves-june-dlc-trailer/
+
+Cyberpunk 2077 fans are officially getting a completely unexpected new DLC, unveiled out of the blue at Summer Game Fest yesterday.
+---------
+
+# 87 Years Later, Marvel's First Superhero Remains The Company's Best Hero Not Created By Stan Lee
+
+Comics, Marvel, Stan Lee
+
+Sat, 06 Jun 2026 14:11:55 GMT
+
+https://screenrant.com/marvel-first-superhero-not-created-stan-lee-best/
+
+This OG Marvel hero is still one of the best.
+---------
+
+# Pluribus Season 2 Writing Hits Major "Breaking" Point In New Update
+
+TV, Pluribus, Pluribus - Season 2
+
+Sat, 06 Jun 2026 14:06:26 GMT
+
+https://screenrant.com/apple-tv-pluribus-season-2-writing-update-gordon-smith/
+
+After season 1's atomic bomb cliffhanger, Pluribus executive producer Gordon Smith provides a significant update about season 2's progress.
+---------
+
+# Netflix's New 3-Part Crime Series Debuts To Rare Rotten Tomatoes Score
+
+TV, Netflix
+
+Sat, 06 Jun 2026 14:04:55 GMT
+
+https://screenrant.com/netflix-the-witness-rotten-tomatoes-score/
+
+Netflix just dropped a new crime series, with critics sharing their thoughts on the latest streaming original to be based on a true story.
+---------
+
+# Pokémon Crystal Inheritance Takes Players Back To Ancient Johto
+
+Gaming, Pokemon
+
+Sat, 06 Jun 2026 14:00:22 GMT
+
+https://screenrant.com/pokemon-crystal-inheritance-rom-hack-ancient-johto/
+
+Explore a time-traveling adventure through historic Johto in Pokémon: Crystal Inheritance, a fully complete ROM hack.
+---------
+
+# Cape Fear Creator Explains The Show's Biggest Departure From The Original Story
+
+TV, Cape Fear, Apple TV
+
+Sat, 06 Jun 2026 13:59:01 GMT
+
+https://screenrant.com/cape-fear-show-change-anna-lawyer-max-cady-trial-explained/
+
+Exclusive: Cape Fear creator Nick Antosca opened up about why the Apple TV miniseries made a big change with one of its main characters.
+---------
+
+# Ted Lasso Star’s New R-Rated Movie Debuts With Disappointing Rotten Tomatoes Audience Score Ahead Of Season 4
+
+Movies, Masked Recs
+
+Sat, 06 Jun 2026 13:47:43 GMT
+
+https://screenrant.com/office-romance-movie-rotten-tomatoes-audience-score/
+
+Before Ted Lasso season 4, one of the stars has a new R-rated film on Netflix, and it has debuted with a disappointing Rotten Tomatoes audience score.
+---------
+
+# Netflix's 3-Part Michael Jackson Series Is Officially No. 1 On Streaming Despite Review Bomb
+
+TV, Masked Recs
+
+Sat, 06 Jun 2026 13:46:39 GMT
+
+https://screenrant.com/netflix-michael-jackson-the-verdict-streaming-hit-june-2026-review-bomb/
+
+Netflix's review-bombed Michael Jackson series becomes a major streaming hit at the same time that the Michael biopic rocks theaters worldwide.
+---------
+
+# HBO Max's Sci-Fi Series With Brendan Fraser & Near-Perfect Rotten Tomatoes Score Is One Of Its Best
+
+TV, Masked Recs
+
+Sat, 06 Jun 2026 13:45:20 GMT
+
+https://screenrant.com/hbo-max-doom-patrol-sci-fi-series-best/
+
+Brendan Fraser stars in one of HBO Max's best sci-fi series, with the actor playing a hilarious and complex character in a mind-bending show.
+---------
+
+# 35 Best Movies About Cheating & Infidelity
+
+Movies, Romance
+
+Sat, 06 Jun 2026 13:33:21 GMT
+
+https://screenrant.com/best-movies-about-cheating-adultery/
+
+Movies about affairs and cheating can be scary thrillers or cautionary tales and aren't always just about physical attraction. Here are the best.
+---------
+
+# 10 Best Anime That Need a TCG Like One Piece
+
+Anime, One Piece, Jujutsu Kaisen, Demon Slayer: Kimetsu no Yaiba, My Hero Academia
+
+Sat, 06 Jun 2026 14:15:14 GMT
+
+https://www.cbr.com/best-anime-that-need-tcg-like-one-piece/
+
+One Piece has one of the biggest new TCGs in years, and it raises the question of which other anime could incredible card games based on them.
+---------
+
+# Transformers Officially Rules the Roads With New Wreck & Rule Release
+
+Anime, Transformers, merchandise
+
+Sat, 06 Jun 2026 14:00:14 GMT
+
+https://www.cbr.com/blokees-wheels-transformers-wreck-rule-release/
+
+The newest wave of of Blokees Wheels Transformers kits features Autobots and Decepticons from the original 1984 movie and various comic books.
+---------
+
+# Marvel Gave Wolverine’s Forgotten Power Upgrade to Another Controversial Mutant First
+
+Comics, Wolverine, X-Men: Evolution, Marvel
+
+Sat, 06 Jun 2026 14:00:14 GMT
+
+https://www.cbr.com/xmen-evolution-wolverine-hot-claws-failed-spyke-first/
+
+Wolverine's abandoned power upgrade wasn't all that original, and the animated mutant who got it first failed to impress fans.
+---------
+
+# Lord of the Flies Creator Justifies a Major Change the Netflix Adaptation Makes From the Novel
+
+CBR Exclusives, Lord of the Flies, Netflix
+
+Sat, 06 Jun 2026 13:52:32 GMT
+
+https://www.cbr.com/lord-of-the-flies-jack-thorne-piggy-nicky-change-explained/
+
+Writer Jack Thorne explains why Lord of the Flies begins with Nicky/Piggy and how the TV adaptation changes the novel.
+---------
+
+# In Less Than 1 Minute, Reacher Set a New Gold Standard for TV Fight Scenes
+
+TV, Reacher, Prime Video, Action
+
+Sat, 06 Jun 2026 13:30:13 GMT
+
+https://www.cbr.com/reacher-tv-fight-scene-gold-standard/
+
+Reacher has quickly become a beloved action series for Prime Video, and the series nearly instantly set a new standard for how to do fights on TV.
+---------
+
+# He-Man Star Reveals His Biggest Fear About Taking the Role: 'It Wasn't An Easy Ask'
+
+CBR Exclusives, Masters of the Universe
+
+Sat, 06 Jun 2026 13:30:11 GMT
+
+https://www.cbr.com/he-man-nicholas-galitzine-biggest-fear-role/
+
+Masters of the Universe star Nicholas Galitzine reveals why taking on He-Man came with “obvious trepidation.”
+---------
+
+# Multiple Transformers Fan-Favorites Get Official New Releases for 40th Anniversary
+
+Movies, Transformers, The Transformers: The Movie
+
+Sat, 06 Jun 2026 13:22:28 GMT
+
+https://www.cbr.com/the-transformers-the-movie-new-toys-anniversary/
+
+Hasbro is giving fans a whole new way to celebrate the 40th anniversary of one of the most iconic and heartbreaking animated films of all time.
+---------
+
+# 5 Forgotten Anime From 2005 That Were Ahead of Their Time
+
+Anime, Paradise Kiss, Shuffle!
+
+Sat, 06 Jun 2026 13:15:12 GMT
+
+https://www.cbr.com/forgotten-2005-anime-ahead-of-their-time/
+
+Out of all revolutionary anime classics released in 2005, these forgotten shows deserve modern fans' attention the most.
+---------
+
+# How Knight of the Seven Kingdoms Changed Westeros Forever
+
+TV, A Knight Of The Seven Kingdoms, Heroes Journey Podcast, Originals
+
+Sat, 06 Jun 2026 13:15:12 GMT
+
+https://www.cbr.com/video/how-knight-of-the-seven-kingdoms-changed-westeros-forever/
+
+Why did Baelor die, what did viewers miss in the Trial of Seven, and how does Dunk’s perspective change the fight? A Knight of the Seven Kingdoms Director Owen Harris reveals the key moments that make this Game of Thrones prequel stand apart.Sierra Nutkevitch talks with Owen Harris about setting the tone for A Knight of the Seven Kingdoms, why the series leans into honesty, intimacy, and “small folk” perspective, and how the camera stays locked to Dunk during the fight so viewers feel every impact. Harris also explains why Episode 5, “In the Name of the Mother,” avoids turning the Trial of Seven into glossy spectacle and instead makes it feel muddy, claustrophobic, painful, and personal.The conversation also digs into Baelor’s shocking death, the deliberate misdirection around his injury, and why humor matters in a story where one clumsy, human moment can change the future of Westeros. Harris teases the evolving dynamic between Dunk and Egg, including how Egg’s Targaryen identity c
+---------
+
+# 5 Masterpiece Movie Trilogies That Nobody Remembers Today
+
+Movies
+
+Sat, 06 Jun 2026 13:00:14 GMT
+
+https://www.cbr.com/best-movie-trilogies-nobody-remembers-list/
+
+Trilogies are a given in the movie industry, and there are three that are iconic and yet so few people remember them.
+---------
+
+# All 8 Star Wars Cameos in 'The Mandalorian and Grogu'
+
+Movie, The Mandalorian and Grogu, The Mandalorian, Star Wars, Disney
+
+Sat, 06 Jun 2026 14:04:14 GMT
+
+https://collider.com/the-mandalorian-and-grogu-star-wars-cameos/
+
+The Mandalorian and Grogu, starring Pedro Pascal, features many surprising cameos from different corners of the beloved Star Wars universe.
+---------
+
+# Fleetwood Mac's Most Devastating Breakup Song Is Also Their Greatest
+
+Music Features, Fleetwood Mac, Stevie Nicks, Rock, Music
+
+Sat, 06 Jun 2026 14:00:14 GMT
+
+https://collider.com/fleetwood-mac-greatest-breakup-song-the-chain-1977/
+
+Fleetwood Mac's iconic breakup song from Rumours was created through collaboration despite personal turmoil, with Stevie Nicks saving the track with her powerful chorus.
+---------
+
+# Steven Spielberg and Tom Hanks' Stellar Thriller Is Quietly One of the Best in the Genre
+
+Movie Features, Steven Spielberg, Tom Hanks, Meryl Streep, The Post
+
+Sat, 06 Jun 2026 13:41:13 GMT
+
+https://collider.com/steven-spielberg-tom-hanks-thriller-the-post-pentagon-papers/
+
+Steven Spielberg’s The Post stars Tom Hanks and Meryl Streep in a Pentagon Papers drama about the Washington Post and truth in journalism.
+---------
+
+# Idris Elba's Most-Hated Stephen King Sci-Fi Movie Is Finally Worthy of a Sequel
+
+Movie News, Idris Elba, Matthew McConaughey, The Dark Tower, Stephen King
+
+Sat, 06 Jun 2026 13:30:14 GMT
+
+https://collider.com/stephen-king-failed-sci-fi-movie-the-dark-tower-streaming-charts-9-years-later/
+
+The Dark Tower, the infamous Stephen King adaptation, is finding new life on streaming nine years after its box office disappointment.
+---------
+
+# James Bond Has Already Cast the Perfect 007
+
+Video Games, 007 First Light, James Bond, Patrick Gibson, Denis Villeneuve
+
+Sat, 06 Jun 2026 13:23:14 GMT
+
+https://collider.com/james-bond-perfect-casting-patrick-gibson-007-first-light/
+
+Patrick Gibson’s performance in 007 First Light proves he has everything needed to become the next James Bond on the big screen.
+---------
+
+# Apple TV's Remake of Robert De Niro's Classic 35-Year-Old Crime Thriller Becomes an Instant Hit Over Sci-Fi Favorite
+
+TV News, Apple TV, Cape Fear, Amy Adams, Robert De Niro
+
+Sat, 06 Jun 2026 13:00:14 GMT
+
+https://collider.com/cape-fear-overtakes-star-city-apple-tv-streaming-charts-june-2026/
+
+Cape Fear has toppled Star City on Apple TV’s streaming charts, giving the horror thriller a major platform win.
+---------
+
+# Iconic '80s Action Thriller Trilogy Lands on Streaming Ahead of New Prequel
+
+Movie News, First Blood, Coming/Leaving Streaming, Rambo, Action
+
+Sat, 06 Jun 2026 14:00:21 GMT
+
+https://movieweb.com/rambo-first-blood-action-trilogy-streaming-peacock-june-2026/
+
+Ahead of the anticipated prequel, you can now stream Sylvester Stallone's iconic '80s action trilogy all in one place.
+---------
+
+# The 6 Best Sci-Fi Movies of 2026 So Far
+
+Movies, Sci-Fi
+
+Sat, 06 Jun 2026 14:00:21 GMT
+
+https://movieweb.com/best-sci-fi-movies-2026-so-far/
+
+While we're only halfway through the year, 2026 has already seen some incredible science fiction movies, but which are the best?
+---------
+
+# Netflix "Just Won't Work With" Directors Who Demand Theatrical Releases
+
+Movie News, Netflix
+
+Sat, 06 Jun 2026 13:58:36 GMT
+
+https://movieweb.com/netflix-new-rule-upcoming-movies/
+
+The chairman of the streamer's film division has announced a new direction for future projects.
+---------
+
+# 'Dutton Ranch' Episode 5 Kills Off Character in Tragic Twist
+
+TV News, Dutton Ranch, Cole Hauser, Kelly Reilly, Taylor Sheridan
+
+Sat, 06 Jun 2026 13:38:31 GMT
+
+https://movieweb.com/dutton-ranch-kills-character-tragic-twist/
+
+A likable character's unexpected fate keeps the audience guessing.
+---------
+
 # New 10/10 Steam RPG Is Officially Free To Try Right Now
 
 Gaming, Steam, PC
