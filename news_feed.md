@@ -1,3 +1,311 @@
+# Netflix's Best Anime Movie Of 2026 Is A Must-Watch For Pride Month
+
+Anime, Masked Recs, Netflix
+
+Sat, 06 Jun 2026 17:00:21 GMT
+
+https://screenrant.com/cosmic-princess-kaguya-netflix-must-watch-pride-month/
+
+The best anime movie on Netflix, by far.
+---------
+
+# TOEM 2 Preview: More Of Everything That Was Already Great
+
+Gaming, Indie
+
+Sat, 06 Jun 2026 17:00:21 GMT
+
+https://screenrant.com/toem-2-preview/
+
+ScreenRant was able to preview the gameplay of TOEM 2 early. Discover how it builds upon the beloved photography puzzle gameplay of its predecessor.
+---------
+
+# The Final Fantasy 7 Game Nobody Remembers Deserves Another Chance
+
+Gaming
+
+Sat, 06 Jun 2026 17:00:21 GMT
+
+https://screenrant.com/final-fantasy-7-forgotten-spinoff-dirge-of-cerberus/
+
+Final Fantasy 7 spawned a lot of spinoff media thanks to its popularity, and one of these forgotten properties deserves a second chance.
+---------
+
+# Fallout 5 Release Window Is A “Hard Pill To Swallow,” Gamers Agree
+
+Gaming, Fallout 5, Triple-A Games
+
+Sat, 06 Jun 2026 16:56:53 GMT
+
+https://screenrant.com/fallout-5-release-window-speculation-reaction-long-wait/
+
+Speculation on the Fallout 5 release window has left fans disappointed at how long it will likely take Bethesda to release the long-awaited title.
+---------
+
+# Netflix's Ghostbusters Show Gets Official Title, Release Window, & Logo
+
+TV, Ghostbusters
+
+Sat, 06 Jun 2026 16:56:26 GMT
+
+https://screenrant.com/netflix-ghostbusters-night-shift-title-2027-release-window-new-logo/
+
+Netflix's upcoming Ghostbusters show has now unveiled its title, release window, and logo, and gives an idea of where the franchise is headed next.
+---------
+
+# 10 Episodes That Made Classic TV Shows Truly Great
+
+Classic TV
+
+Sat, 06 Jun 2026 16:45:21 GMT
+
+https://screenrant.com/tv-episodes-make-classic-shows-great/
+
+Very few TV shows achieve greatness in their first episode. It usually takes a few episodes for a series to find its groove and become truly great.
+---------
+
+# The John Wick Franchise Changed Forever 1 Year Ago
+
+Classic Movies, From the World of John Wick: Ballerina, John Wick
+
+Sat, 06 Jun 2026 16:40:21 GMT
+
+https://screenrant.com/john-wick-movies-ballerina-changed-forever-one-year-ago/
+
+Keanu Reeves has been part of an excellent R-rated action movie franchise this century, and it changed forever one year ago with a major release.
+---------
+
+# Sylvester Stallone Regrets Not Fighting To Keep Rambo 4 Deleted Scene
+
+Movies, Rambo
+
+Sat, 06 Jun 2026 16:32:28 GMT
+
+https://screenrant.com/rambo-4-sylvester-stallone-deleted-scene-regret/
+
+Rambo 4 writer-director-star Sylvester Stallone reveals the powerful deleted scene that he says should have never been removed from the movie.
+---------
+
+# Jennifer Lopez's New R-Rated Netflix Movie Officially Becomes No. 1 On Streaming
+
+TV, Masked Recs
+
+Sat, 06 Jun 2026 16:31:37 GMT
+
+https://screenrant.com/office-romance-netflix-streaming-success-june-2026/
+
+Jennifer Lopez has a new movie dominating Netflix again, as her latest R-rated feature is number one on the streamer's worldwide and U.S. charts.
+---------
+
+# Disney's 8-Part Action Series Is So Great, It Has United A Split Fandom
+
+Streaming TV, Masked Recs
+
+Sat, 06 Jun 2026 16:31:22 GMT
+
+https://screenrant.com/wonder-man-disney-mcu-fans-agree-great/
+
+It's extremely difficult to unite deeply divided fandoms of major franchises, but one Disney action series has done just that.
+---------
+
+# Classic 3-Season Masters of the Universe Show Returns as a PVOD Series Amid Reboot Release
+
+TV, He-Man and the Masters of the Universe, Masters of the Universe
+
+Sat, 06 Jun 2026 17:00:14 GMT
+
+https://www.cbr.com/he-man-and-the-masters-of-the-universe-pvod-success-june-2026/
+
+One of the most criminally underrated He-Man series is making its way up the PVOD charts as Masters of the Universe takes over the box office.
+---------
+
+# The Street Fighter Movie Officially Confirms It's Reviving a 30-Year-Old Rivalry (With a Twist)
+
+Movies, Street Fighter
+
+Sat, 06 Jun 2026 17:00:14 GMT
+
+https://www.cbr.com/street-fighter-movie-dan-hibiki-art-of-fighting-rivalry/
+
+Marketing for the Street Fighter film included a deviation from the video games that continues a long-running joke among the fanbase.
+---------
+
+# 8 Harry Potter Scenes Nobody Wants in HBO's Reboot
+
+TV, Harry Potter, hbo, Fantasy
+
+Sat, 06 Jun 2026 16:30:15 GMT
+
+https://www.cbr.com/harry-potter-scenes-nobody-wants-hbo-reboot-list/
+
+The Harry Potter franchise has many amazing scenes, and with a reboot coming, some don't need to make a comeback.
+---------
+
+# 5 Strongest Swords in The Lord of the Rings, Ranked
+
+Movies, The Lord of the Rings
+
+Sat, 06 Jun 2026 16:30:15 GMT
+
+https://www.cbr.com/the-lord-of-the-rings-strongest-swords-list/
+
+The Lord of the Rings is filled with rich lore, and this includes the impressive weapons that make the battles so epic.
+---------
+
+# 5 Forgotten '90s Anime Better Than Half the Seasonal Lineup Right Now
+
+Anime, Ghost Sweeper Mikami, Master Keaton, Studio Ghibli
+
+Sat, 06 Jun 2026 16:15:14 GMT
+
+https://www.cbr.com/forgotten-90s-anime-spring-2026-seasonal-lineup/
+
+Anime's Spring 2026 season has been full of exciting and eclectic titles, but some hidden gems from the '90s reach even greater heights.
+---------
+
+# Jennifer Lawrence’s $303M Divisive Sci-Fi That Deserved Better Is a Streaming Sensation 10 Years Later
+
+Movies, Passengers
+
+Sat, 06 Jun 2026 16:00:14 GMT
+
+https://www.cbr.com/jennifer-lawrence-passengers-sci-fi-netflix-success-june-2026/
+
+One of the most divisive films of Jennifer Lawrence's entire career is officially lighting up the streaming charts a decade after its release.
+---------
+
+# Avatar Legends: The Fighting Game Delayed to July 23 in New Official Update
+
+Anime, Avatar: The Last Airbender
+
+Sat, 06 Jun 2026 16:00:14 GMT
+
+https://www.cbr.com/avatar-legends-fighting-game-delay/
+
+Avatar: The Last Airbender's upcoming fighting game gets hit with a 3-week delay in a new official update.
+---------
+
+# Ones & Zeroes Review: A Valiant-Style Comic for the Anti-AI Generation
+
+Comics, comics
+
+Sat, 06 Jun 2026 16:00:14 GMT
+
+https://www.cbr.com/review-ones-zeroes-valiant-style-story-anti-ai/
+
+A new indie comic is taking artificial intelligence to task with a genre-bending science-fiction experience that is instantly unforgettable.
+---------
+
+# Apple TV's Record-Breaking Sci-Fi Show Gets Season 2 Filming Window
+
+TV, Pluribus
+
+Sat, 06 Jun 2026 15:50:11 GMT
+
+https://www.cbr.com/apple-tv-pluribus-season-2-filming-window-update/
+
+The show was a hit but it will take a while before it returns.
+---------
+
+# Forget ‘Star Trek,’ This Sci-Fi Masterpiece Is Free To Stream This Month
+
+Movie News, Galaxy Quest, Star Trek, Tim Allen, Sci-Fi
+
+Sat, 06 Jun 2026 17:00:14 GMT
+
+https://collider.com/star-trek-parody-sci-fi-masterpiece-galaxy-quest-free-streaming-pluto-june-2026/
+
+Galaxy Quest, the best Star Trek movie that isn’t Star Trek, is streaming for free on Pluto this month. Find out more here.
+---------
+
+# Only 3 Movies Are Better-Written Than 'The Godfather'
+
+Movie, The Godfather, All About Eve, Chinatown, Classics
+
+Sat, 06 Jun 2026 16:37:16 GMT
+
+https://collider.com/movies-better-written-than-the-godfather/
+
+The Godfather is rightfully considered to be perfectly written, but classic movies like All About Eve and Chinatown have even better screenplays.
+---------
+
+# 'The Celebrity Traitors' UK Season 2 Is Officially Coming Sooner Than Expected
+
+Exclusives, Richard E. Grant, Claire Foy, Savage House, Danny Boyle
+
+Sat, 06 Jun 2026 16:32:28 GMT
+
+https://collider.com/celebrity-traitors-uk-season-2-richard-e-grant-savage-house-clair-foy-interview/
+
+Claire Foy and Richard E. Grant discuss their new period satire, Danny Boyle's biopic Ink, and Grant's upcoming run on Celebrity Traitors UK.
+---------
+
+# 5 Most Perfect Blockbuster Thriller Movies
+
+Movie, Thriller, Jaws, The Dark Knight, Die Hard
+
+Sat, 06 Jun 2026 16:18:15 GMT
+
+https://collider.com/most-perfect-blockbuster-thriller-movies-ranked/
+
+Why Die Hard and The Dark Knight rank among cinema's greatest thrill rides, plus the blockbuster classics that perfected suspense.
+---------
+
+# Apple TV’s New Horror Series Officially Reaches Its Biggest Streaming Milestone Yet
+
+TV News, Widow's Bay, Apple TV, Matthew Rhys, Katie Dippold
+
+Sat, 06 Jun 2026 16:00:14 GMT
+
+https://collider.com/apple-tv-horror-series-widows-bay-number-one-streaming-june-2026/
+
+Widow’s Bay has taken the No. 1 spot on streaming ahead of its finale, cementing the Apple TV series as a major 2026 hit.
+---------
+
+# The ‘Vox Machina’ Cast Just Dropped a Huge Update on the Status of the Fifth and Final Season
+
+Exclusives, Screening, The Legend of Vox Machina, Prime Video, Critical Role
+
+Sat, 06 Jun 2026 15:58:27 GMT
+
+https://collider.com/legend-of-vox-machina-season-5-update-critical-role-q-and-a-interview/
+
+The Critical Role cast shares insights on The Legend of Vox Machina Season 4, character growth, Easter eggs, and teases the status of Season 5.
+---------
+
+# Every 'Scary Movie', Ranked (Including 'Scary Movie 6')
+
+Movie Lists, Scary Movie, Scary Movie 2, Scary Movie 3, Scary Movie 4, Scary Movie 5
+
+Sat, 06 Jun 2026 17:00:19 GMT
+
+https://movieweb.com/every-scary-movie-ranked/
+
+After 26 years and six movies, how does the new 'Scary Movie' compare with past entries in the long-running spoof comedy franchise?
+---------
+
+# 'Buffy the Vampire Slayer' Stars Share Grief After Anthony Head's Death
+
+TV News, Anthony Head, Buffy The Vampire Slayer, Sarah Jessica Parker, James Marsters, Charisma Carpenter, Emma Caulfield
+
+Sat, 06 Jun 2026 16:39:36 GMT
+
+https://movieweb.com/anthony-head-death-buffy-costars/
+
+Following Anthony Head's death, his co-stars from 'Buffy the Vampire Slayer' honored his memory on social media
+---------
+
+# Jared Leto Delivers His Best Performance in 9 Years in $200M Space Opera
+
+Features, Jared Leto, Masters of the Universe
+
+Sat, 06 Jun 2026 16:01:18 GMT
+
+https://movieweb.com/jared-leto-masters-of-the-universe-best-performance/
+
+After disappointing performances in 'Suicide Squad' and 'Morbius', a new space opera movie might feature Jared Leto's best performance to date.
+---------
+
 # Star Wars Legend Anakin Skywalker Officially Returns For New Prequel
 
 Gaming, Star Wars Zero Company, Star Wars, Triple-A Games, PC
