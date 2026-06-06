@@ -1,3 +1,223 @@
+# Star Wars Legend Anakin Skywalker Officially Returns For New Prequel
+
+Gaming, Star Wars Zero Company, Star Wars, Triple-A Games, PC
+
+Sat, 06 Jun 2026 15:42:56 GMT
+
+https://screenrant.com/star-wars-anakin-skywalker-returns-new-prequel/
+
+The Chosen One is back, with a new Star Wars release revealing the return of General Skywalker in his iconic garb from Revenge of the Sith.
+---------
+
+# Apple TV’s 10-Part Crime Series Based On Robert De Niro Classic Is An Instant Streaming Smash
+
+TV, Masked Recs, Apple TV, Robert De Niro
+
+Sat, 06 Jun 2026 15:30:22 GMT
+
+https://screenrant.com/cape-fear-apple-tv-streaming-success-june-2026/
+
+Apple TV has landed another success as its 10-part crime drama, based on a massive Robert De Niro movie, is already a major streaming success.
+---------
+
+# Paramount+ Threatens To Rewrite Criminal Minds' 21-Year History With A Groundbreaking Revelation
+
+Network TV, Criminal Minds
+
+Sat, 06 Jun 2026 15:30:22 GMT
+
+https://screenrant.com/criminal-minds-season-19-rewrite-history/
+
+Criminal Minds is one of the most iconic crime procedurals of all time, but the new era ushered in by Paramount+ may undermine its entire legacy.
+---------
+
+# We Just Accidentally Got Our Best Look At What Nicholas Hoult’s Batman Would Have Looked Like
+
+Movies, Batman, DC Universe, How to Rob a Bank
+
+Sat, 06 Jun 2026 15:30:22 GMT
+
+https://screenrant.com/nicholas-hoult-batman-how-to-rob-a-bank-movie-trailer-look/
+
+2026's new movie trailer just provided a surprising spot of insight into what Nicholas Hoult's Batman could have looked like had it become reality.
+---------
+
+# Subnautica Meets Silent Hill In Disturbing New Underwater Horror
+
+Gaming, Subnautica 2, Indie Games, PC, Steam
+
+Sat, 06 Jun 2026 15:30:12 GMT
+
+https://screenrant.com/subnatica-meets-silent-hill-new-underwater-horror/
+
+A solo-dev indie game has stepped in to offer a creepy underwater exploration experience that's "rivaling Subnautica," according to fans.
+---------
+
+# James Gunn Reveals First Look At Superman's Return In Official Man Of Tomorrow Photo
+
+Movies, Man of Tomorrow
+
+Sat, 06 Jun 2026 15:29:16 GMT
+
+https://screenrant.com/man-of-tomorrow-james-gunn-superman-first-look/
+
+Superman is making his comeback in Man of Tomorrow, as James Gunn reveals a first-look image of David Corenswet's return on set as the Man of Steel.
+---------
+
+# Marvel Officially Reveals New Iron Man Armor for Avengers' New Appearance
+
+Comics, Iron Man
+
+Sat, 06 Jun 2026 15:25:41 GMT
+
+https://screenrant.com/iron-man-new-armor-hulkbuster-redesign-tony-stark/
+
+A new Hulkbuster is coming.
+---------
+
+# Scary Movie Rotten Tomatoes Score Harshly Divides Critics & Audiences After 13-Year Return
+
+Movies, Scary Movie
+
+Sat, 06 Jun 2026 15:14:40 GMT
+
+https://screenrant.com/scary-movie-2026-rotten-tomatoes-audience-score/
+
+Scary Movie's 13-year return could prove to be a scary disappointment, as the Rotten Tomatoes score greatly divides audiences and critics.
+---------
+
+# Scary Movie Box Office Debut Trounces Masters Of The Universe With All-Time Franchise Record
+
+Movies, Box Office, Scary Movie, Masters of the Universe
+
+Sat, 06 Jun 2026 15:03:52 GMT
+
+https://screenrant.com/scary-movie-6-masters-of-the-universe-box-office-opening-weekend-domestic-chart-report/
+
+During their mutual debut weekend, Scary Movie pulls considerably ahead of Masters of the Universe by hitting an all-time franchise box office high.
+---------
+
+# Inside Modern Warfare 4's DMZ: How Infinity Ward Rebuilt Call of Duty's Extraction Shooter
+
+Exclusive, Call of Duty, Call of Duty: Modern Warfare 4
+
+Sat, 06 Jun 2026 15:00:23 GMT
+
+https://screenrant.com/modern-warfare-4-dmz-preview/
+
+Modern Warfare 4's DMZ features dynamic missions, operator traits, bounty hunting, crafting, and a massive new map.
+---------
+
+# One Piece's 6 Void Century Gods, Ranked By Strength
+
+Anime, One Piece
+
+Sat, 06 Jun 2026 15:15:13 GMT
+
+https://www.cbr.com/one-piece-void-century-gods-ranked-list/
+
+These legendary figures connected to the Void Century rank among the most powerful beings in One Piece history.
+---------
+
+# From Is Finally on the Verge of Its Biggest Breakthrough in New Clip Ahead of New Episode
+
+TV, From
+
+Sat, 06 Jun 2026 15:00:14 GMT
+
+https://www.cbr.com/from-clip-season-4-episode-7-best-laid-plans-boyd-sophia/
+
+Exclusive: Halfway through Season 4, From is finally close to a major breakthrough.
+---------
+
+# 10 Nintendo GameCube Games That Aged Like Fine Wine
+
+Games, Nintendo, Video Games, The Legend of Zelda
+
+Sat, 06 Jun 2026 15:00:14 GMT
+
+https://www.cbr.com/best-gamecube-games-aged-like-fine-wine/
+
+GameCube games like Super Smash Bros. Melee and Resident Evil 4 are still as fun to play today as they were decades ago.
+---------
+
+# Dragon Ball Z Officially Reveals New Co-Op Game Coming Soon
+
+Anime, Dragon Ball, Dragon Ball Z
+
+Sat, 06 Jun 2026 14:46:12 GMT
+
+https://www.cbr.com/dragon-ball-z-official-return-board-game-saga/
+
+Dragon Ball Z fans will soon be able to dive into the world of their favorite franchise thanks to a brand-new co-op gaming experience.
+---------
+
+# Netflix's New 96-Minute True Crime Thriller Officially Becomes a Must-Watch for 'Mindhunter' Fans
+
+Movie News, Netflix, True Crime, The Murder of Rachel Nickell, Mindhunter
+
+Sat, 06 Jun 2026 15:30:13 GMT
+
+https://collider.com/murder-of-rachel-nickell-netflix-true-crime-streaming-success-june-2026/
+
+The Murder of Rachel Nickell is becoming Netflix’s latest true-crime hit, offering a chilling new watch for fans of Mindhunter.
+---------
+
+# In 5 Minutes, Netflix’s 2-Part Comedy Finally Does Justice to Its Most Tragic Character
+
+TV Features, The Four Seasons, Netflix, Kerri Kenney, Tina Fey
+
+Sat, 06 Jun 2026 15:23:13 GMT
+
+https://collider.com/the-four-seasons-season-2-finale-anne-ending-meaning/
+
+Netflix's The Four Seasons finally delivers a satisfying twist for its most tragic character in the Season 2 finale.
+---------
+
+# New He-Man Reboot Officially Arrives with Explosive Box Office Debut
+
+Movie News, Masters of the Universe, Nicholas Galitzine, Camila Mendes, Box Office
+
+Sat, 06 Jun 2026 14:58:25 GMT
+
+https://collider.com/new-he-man-movie-reboot-masters-of-the-universe-box-office-budget-opening-weekend/
+
+New He-Man reboot, Masters of the Universe, officially brings ‘80s nostalgia to the big screen with solid box office debut.
+---------
+
+# The True Story Behind ‘Rogue Agent,’ Explained
+
+Features, Rogue Agent, Gemma Arterton
+
+Sat, 06 Jun 2026 15:00:20 GMT
+
+https://movieweb.com/rogue-agent-true-story-explained/
+
+Gemma Arterton and James Norton's twisty thriller is streaming on Netflix, and viewers are obsessed.
+---------
+
+# 14 Years Later, Liam Neeson's $302M Blockbuster Action Epic Hits Free Streaming
+
+Movie News, Liam Neeson, Wrath of the Titans
+
+Sat, 06 Jun 2026 15:00:19 GMT
+
+https://movieweb.com/wrath-of-the-titans-streaming-june-2026/
+
+The blockbuster fantasy sequel to 'Clash of the Titans' is destined to become a streaming sensation.
+---------
+
+# Taylor Sheridan's 3-Part Crime Epic Is 'Yellowstone' Meets 'The Sopranos'
+
+Features, Tulsa King, Taylor Sheridan, Yellowstone, Comparison Recommendation
+
+Sat, 06 Jun 2026 15:00:19 GMT
+
+https://movieweb.com/taylor-sheridan-tulsa-king-yellowstone-sopranos/
+
+Fans of 'Yellowstone' and 'The Sopranos' have the perfect blend of gritty action and dark humor on Paramount+.
+---------
+
 # Cyberpunk 2077 Official New DLC Unveiled
 
 Gaming, Cyberpunk 2077, PC
