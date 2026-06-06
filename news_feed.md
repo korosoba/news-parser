@@ -1,3 +1,355 @@
+# Why Justin Chambers' Alex Karev Left Grey's Anatomy In Season 16
+
+Network TV, Grey's Anatomy
+
+Sat, 06 Jun 2026 20:00:23 GMT
+
+https://screenrant.com/greys-anatomy-justin-chambers-alex-karev-exit-reason/
+
+Justin Chambers' Grey's Anatomy exit prompted an unexpected departure for Alex Karev, whose exit storyline continues to be incredibly controversial.
+---------
+
+# DC Officially Releases The Most Hardcore Batman Art Of All Time
+
+DC Comics, Batman
+
+Sat, 06 Jun 2026 20:00:21 GMT
+
+https://screenrant.com/batman-new-costume-best-redesign-gargoyle-gotham/
+
+DC's new rugged, battle-worn Batman showcases his new look and attitude in one of the most striking, hardcore artworks in Dark Knight history.
+---------
+
+# 10 Ways Final Fantasy 7 Remake Part 3 Could Top The Others
+
+Gaming, Final Fantasy 7 Remake, Final Fantasy, Square Enix, PC
+
+Sat, 06 Jun 2026 20:00:21 GMT
+
+https://screenrant.com/final-fantasy-7-remake-part-3-improvements/
+
+Final Fantasy 7 Remake Part 3 has the perfect opportunity to improve upon its predecessors, especially if it implements these obvious solutions.
+---------
+
+# Stranger Than Heaven - Release Date, Editions, Story, & Cast Details
+
+Gaming, Yakuza, Triple-A Games, PC
+
+Sat, 06 Jun 2026 19:59:23 GMT
+
+https://screenrant.com/stranger-than-heaven-release-date-editions-story-cast/
+
+Stranger Than Heaven is the next big game from Yakuza developer RGG Studio, and with pre-orders open, it's shaping up to be quite the production.
+---------
+
+# One Piece Chapter #1185 Release Date & Time
+
+Anime, One Piece
+
+Sat, 06 Jun 2026 19:31:40 GMT
+
+https://screenrant.com/one-piece-chapter-1185-release-date-time/
+
+The Elbaph arc takes a short break this week before jumping straight back in to uncover the mysterious past of Brook.
+---------
+
+# 10 Best Short Open-World Games You Can Beat Quickly
+
+Gaming, open world, Marvel's Spider-Man: Miles Morales, Far Cry
+
+Sat, 06 Jun 2026 19:30:21 GMT
+
+https://screenrant.com/best-short-open-world-games-rpgs/
+
+From RPGs to first-person shooters, these open-world games won't take you a lifetime to beat, but still offer huge spaces to explore.
+---------
+
+# 9 Changes Apple TV’s Cape Fear Makes To The Robert De Niro Movie
+
+TV, Cape Fear
+
+Sat, 06 Jun 2026 19:30:21 GMT
+
+https://screenrant.com/cape-fear-apple-tv-changes-robert-de-nero-version/
+
+Apple TV has released a new TV adaptation of Cape Fear, with some significant changes to the 1991 movie version starring Robert De Niro.
+---------
+
+# 10 Most Underrated Sitcoms Of The 2020s So Far
+
+Streaming TV, Sitcoms
+
+Sat, 06 Jun 2026 19:00:22 GMT
+
+https://screenrant.com/most-underrated-2020s-sitcoms-so-far/
+
+From Resident Alien to Reservation Dogs to Awkwafina is Nora from Queens, these are easily the most underrated sitcoms of the 2020s so far.
+---------
+
+# The Mummy: Where's The Original Cast Now & Who's Back for Mummy 4?
+
+Movies, Originals
+
+Sat, 06 Jun 2026 19:00:22 GMT
+
+https://screenrant.com/video/the-mummy-where-s-the-original-cast-now-who-s-back-for-mummy-4/
+
+Explore where Brendan Fraser, Rachel Weisz, John Hannah, Arnold Vosloo, and the rest of The Mummy cast are now, which original stars could return, and the latest updates on a potential Mummy 4 revival.
+---------
+
+# Call Of Duty: Modern Warfare 4 Promises “No SpongeBob,” But Fans Have Heard It Before
+
+Gaming, Call of Duty, Call of Duty: Modern Warfare 4, Triple-A Games
+
+Sat, 06 Jun 2026 19:00:22 GMT
+
+https://screenrant.com/call-of-duty-modern-warfare-4-silly-skins-reaction/
+
+Call of Duty: Modern Warfare 4 is making promises that the franchise will hopefully be able to keep this time around, lest it suffer fans' fury.
+---------
+
+# Martin Scorsese & Steven Spielberg's Terrifying Thriller Returns as a PVOD Hit Amid New Apple TV Remake
+
+Movies, Cape Fear, Thriller
+
+Sat, 06 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/martin-scorsese-steven-spielberg-cape-fear-thriller-success-june-2026/
+
+Martin Scorsese & Steven Spielberg's acclaimed psychological thriller, Cape Fear, is dominating the charts after Apple TV's latest remake.
+---------
+
+# Sega Reveals Official First Look at New Sonic x Evangelion Crossover for 35th Anniversary
+
+Anime, Sonic the Hedgehog, Neon Genesis Evangelion, Godzilla
+
+Sat, 06 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/sonic-racing-crossworlds-evangelion-crossover/
+
+Sonic Racing: CrossWorlds is about to collide with some of the biggest characters in anime history, including the most iconic EVA of all time.
+---------
+
+# 5 Best Heist Movies of the 21st Century, Ranked
+
+Movies, Inception, Fast Five
+
+Sat, 06 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/best-heist-movies-of-the-21st-century-list/
+
+Heist movies gained a strong resurgence in the 21st-century with many movies that continue to surprise fans years later.
+---------
+
+# After 4-Year Wait, Netflix's New Ghostbusters Series Officially Confirms Title & First Look
+
+TV, Ghostbusters
+
+Sat, 06 Jun 2026 19:56:58 GMT
+
+https://www.cbr.com/netflix-ghostsbusters-night-shift-title-reveal-logo/
+
+The new confirmation came to celebrate Ghostbusters Day.
+---------
+
+# Paramount+ Officially Lands Reboot of Sylvester Stallone's Cult Classic Crime Drama
+
+TV, Paramount+ with Showtime, Cop Land
+
+Sat, 06 Jun 2026 19:52:14 GMT
+
+https://www.cbr.com/paramount-plus-cop-land-reboot/
+
+Sylvester Stallone's forgotten crime drama is being reimagined at Paramount+.
+---------
+
+# 20 Best Peanuts Quotes, Ranked
+
+Comics, Peanuts, Charlie Brown, snoopy
+
+Sat, 06 Jun 2026 19:45:13 GMT
+
+https://www.cbr.com/peanuts-best-quotes/
+
+Charles M. Schulz's Peanuts features so many quote-worthy moments, that perfectly demonstrate why the comic strip has stood the test of time.
+---------
+
+# 10 Frankenstein-Inspired Movies Better Than HBO Max's The Bride
+
+Movies, The Bride!
+
+Sat, 06 Jun 2026 19:31:14 GMT
+
+https://www.cbr.com/frankenstein-movies-better-than-hbo-maxs-the-bride-list/
+
+For anyone who found themselves underwhelmed by Maggie Gyllenhaal's The Bride! on HBO Max, here are some rejuvenating alternatives.
+---------
+
+# 10 Hottest Shojo Anime Crushes That Defined the 2000s
+
+Anime, Shojo, Vampire Knight, Ouran High School Host Club, Skip Beat!
+
+Sat, 06 Jun 2026 19:15:13 GMT
+
+https://www.cbr.com/greatest-shojo-anime-crushes-2000s/
+
+Series like Fruits Basket, Ouran High School Host Club, and Kimi Ni Todoke shaped how a generation understood romantic archetypes and vulnerability.
+---------
+
+# HBO's 10/10 Masterpiece Drama Returns to the Top of the Charts on PVOD 3 Years After Final Episode
+
+TV, Succession, HBO Max, Drama
+
+Sat, 06 Jun 2026 19:00:14 GMT
+
+https://www.cbr.com/succession-drama-dark-comedy-hbo-success-pvod-june-2026/
+
+HBO's most critically acclaimed drama series, Succession, remains a hit on streaming and PVOD 3 years after finale.
+---------
+
+# Jordan Peele's Nope is the Best Sci-Fi Movie of the Decade
+
+Movies, Nope
+
+Sat, 06 Jun 2026 19:00:14 GMT
+
+https://www.cbr.com/jordan-peele-nope-best-sci-fi-movie-last-10-years/
+
+Jordan Peele has already established himself as one of modern cinema's most influential filmmakers. And Nope is not only his latest, but his best.
+---------
+
+# Ridley Scott’s 8-Part Sci-Fi Sleeper Hit Is Your Next Streaming Obsession
+
+TV News, Alien: Earth, Ridley Scott, Alien, Hulu
+
+Sat, 06 Jun 2026 20:00:14 GMT
+
+https://collider.com/ridley-scott-sci-fi-sleeper-hit-alien-earth-streaming-success-hulu-june-2026/
+
+Alien: Earth, the binge-worthy sci-fi series produced by Ridley Scott, has become a must-watch sleeper hit before the Season 2 premiere.
+---------
+
+# Forget James Bond, Tubi's Slick '90s Heist Thriller Is the Perfect Replacement
+
+Movie Features, The Thomas Crown Affair, Pierce Brosnan, Thriller, James Bond
+
+Sat, 06 Jun 2026 19:49:14 GMT
+
+https://collider.com/james-bond-replacement-thomas-crown-affair-pierce-brosnan-free-streaming-tubi/
+
+The 1999 remake of The Thomas Crown Affair, starring Pierce Brosnan and Rene Russo, is sure to satisfy James Bond fans.
+---------
+
+# 10 Greatest Enemies-to-Lovers Shows
+
+TV, Bridgerton, Brooklyn Nine-Nine, Romance, Good Girls
+
+Sat, 06 Jun 2026 19:45:14 GMT
+
+https://collider.com/best-enemies-to-lovers-tv-shows-ranked/
+
+The enemies-to-lovers trope is a magnetic pull for these shows' viewers, which makes the chemistry between these couples feel intense and inevitable.
+---------
+
+# 10 Best Crime Movies With the Most Compelling Mysteries
+
+Movie, Crime, Chinatown, Mystery
+
+Sat, 06 Jun 2026 19:37:15 GMT
+
+https://collider.com/best-crime-movies-most-compelling-mysteries/
+
+From foundational classics like M to more modern efforts like Memento, these stellar crime movies feature the most compelling mysteries at their core.
+---------
+
+# Christopher Nolan Abandoned This 10/10 Mystery Thriller for Batman
+
+Movie Features, Christopher Nolan, Batman Begins, Thriller, Mystery
+
+Sat, 06 Jun 2026 19:17:15 GMT
+
+https://collider.com/christopher-nolan-the-keys-to-the-street-adaptation-mystery-thriller-noir/
+
+Christopher Nolan was set to bring this sharp noir thriller to life, but decided to pivot to Batman Begins instead.
+---------
+
+# Netflix's 4-Part Detective Thriller Gives 'True Detective' Fans Everything They Want
+
+TV Features, The Sinner, Netflix, Jessica Biel, Bill Pullman
+
+Sat, 06 Jun 2026 19:01:15 GMT
+
+https://collider.com/netflix-detective-thriller-true-detective-fans-the-sinner/
+
+The Sinner is a USA Network anthology series featuring compelling mysteries and complex characters across four seasons.
+---------
+
+# Before Pierce Brosnan’s Reboot, Revisit Sylvester Stallone’s Action Classic for Free
+
+Music News, Cliffhanger, Sylvester Stallone, Pierce Brosnan
+
+Sat, 06 Jun 2026 19:00:15 GMT
+
+https://collider.com/sylvester-stallone-action-classic-cliffhanger-free-streaming-pluto-june-2026-pierce-brosnan-remake/
+
+Cliffhanger, Sylvester Stallone’s iconic action thriller, is streaming for free on Pluto before Pierce Brosnan’s reboot.
+---------
+
+# 10 Greatest Novels of the 1990s
+
+Movie, Game Of Thrones, His Dark Materials, The Green Mile, Trainspotting
+
+Sat, 06 Jun 2026 18:54:14 GMT
+
+https://collider.com/best-novels-1990s-ranked/
+
+The greatest novels from the 1990s include fantasy books like The Subtle Knife and A Game of Thrones, alongside postmodernist works like Underworld.
+---------
+
+# The Dystopian Show That Beat Marvel on Streaming Is a Perfect Weekend Binge
+
+Features, The Testaments
+
+Sat, 06 Jun 2026 20:00:20 GMT
+
+https://movieweb.com/the-testaments-perfect-binge/
+
+A popular dystopian TV drama is the perfect weekend binge-watch now that the entire first season is out, and it's already renewed for a second.
+---------
+
+# The 15 Best Football Documentaries of All Time
+
+Movie Lists, Sports, Documentary
+
+Sat, 06 Jun 2026 20:00:20 GMT
+
+https://movieweb.com/best-football-documentaries-of-all-time/
+
+From celebrating the sport to examining its more difficult moments, these are the best football documentaries.
+---------
+
+# Ridley Scott & Matt Damon's Historical Action Epic Blasts Onto Streaming
+
+Movie News, The Last Duel, Paramount Plus, Coming/Leaving Streaming, Ridley Scott, Action
+
+Sat, 06 Jun 2026 19:00:20 GMT
+
+https://movieweb.com/the-last-duel-ridley-scott-action-streaming-paramount-june-2026/
+
+Ridley Scott and Matt Damon's historical action epic 'The Last Duel' is now streaming on Paramount+ in June 2026.
+---------
+
+# The TV Thriller Stephen King Said Was “Great From the First Scene”
+
+Features, Stephen King, Breaking Bad, Quote
+
+Sat, 06 Jun 2026 19:00:20 GMT
+
+https://movieweb.com/breaking-bad-stephen-king-praise/
+
+Stephen King often shares his love of TV shows on his social media accounts, including one thriller from several decades ago.
+---------
+
 # Prime Video's Near-Perfect Fantasy Series Makes Game Of Thrones' Red Wedding Look Small (Again)
 
 TV, Masked Recs
