@@ -1,3 +1,377 @@
+# Red Dead Redemption 2 Freebie Officially Yours Until June 8
+
+Gaming, Red Dead Redemption 2, Red Dead Online, Red Dead Redemption
+
+Sat, 06 Jun 2026 04:30:20 GMT
+
+https://screenrant.com/red-dead-redemption-2-online-free-48-hours-june-2026/
+
+Red Dead Redemption 2 is still just as much fun to play in 2026 as it has ever been, and Rockstar has been diligent about keeping new content coming.
+---------
+
+# Steam Drops Critically Acclaimed Free Game With Overwhelmingly Positive Reviews
+
+Gaming, Steam, Indie, PC, Recommendation
+
+Sat, 06 Jun 2026 04:00:29 GMT
+
+https://screenrant.com/steam-free-game-overwhelmingly-positive-june-2026/
+
+A critically acclaimed title with Overwhelmingly Positive reviews has just been released for free on Steam, and this may be your next big game.
+---------
+
+# Masters Of The Universe Rotten Tomatoes Score Sets An All-Time Audience Record After 41 Years
+
+Movies, Masters of the Universe
+
+Sat, 06 Jun 2026 03:59:35 GMT
+
+https://screenrant.com/masters-of-the-universe-2026-movie-rotten-tomatoes-audience-score-record/
+
+Masters of the Universe is now out in theaters, and it's Rotten Tomatoes audience score officially sets a record for the franchise after 41 years.
+---------
+
+# The Boys: The 8 Tallest (& 7 Shortest) Actors In The Cast
+
+Streaming TV, The Boys
+
+Sat, 06 Jun 2026 03:15:56 GMT
+
+https://screenrant.com/the-boys-tallest-shortest-actors/
+
+The Boys is all about a world where superheroes walk among us and are terrible people. How tall are the main characters standing in the show?
+---------
+
+# Obsession Quietly Repeats 1 Of Stephen King’s Greatest Horror Stories
+
+Movies, Obsession, Stephen King
+
+Sat, 06 Jun 2026 03:00:21 GMT
+
+https://screenrant.com/obsession-stephen-king-pet-sematary-similarities/
+
+As original as Curry Barker’s Obsession may seem, its overarching narrative and themes have traces of one of Stephen King’s best horror stories ever.
+---------
+
+# Steam Free 2024 Hit Is The Perfect Game To Celebrate Pride Month
+
+Gaming, Steam, PC
+
+Sat, 06 Jun 2026 03:00:21 GMT
+
+https://screenrant.com/steam-2024-hit-free-game-pride-month-celebration/
+
+This free Steam game from 2024 has 96% positive user reviews and features an LGBTQ+ protagonist, making it a perfect game to celebrate Pride Month.
+---------
+
+# Spider-Noir Draws Major Reaction From Stephen King
+
+TV, Spider-Noir
+
+Sat, 06 Jun 2026 02:42:53 GMT
+
+https://screenrant.com/stephen-king-spider-noir-praise-nicolas-cage/
+
+Author Stephen King is among the many who've seen the Nicolas Cage-led Spider-Noir, and he shared his thoughts about the show on social media.
+---------
+
+# Star Wars’ New Rogue One Prequel Reveals A Brand-New Jyn Erso Story
+
+Star Wars, Jyn Erso, Rogue One: A Star Wars Story
+
+Sat, 06 Jun 2026 02:30:21 GMT
+
+https://screenrant.com/star-wars-new-rogue-one-prequel-jyn-erso-story/
+
+In celebration of Rogue One's 10th anniversary, Star Wars has released a new prequel for Jyn Erso, before she was one of the Rebellion's first heroes.
+---------
+
+# Returning Netflix Action Franchise Officially Beats Transformers & GI Joe At Their Own Game
+
+Movies, Masked Recs
+
+Sat, 06 Jun 2026 02:15:22 GMT
+
+https://screenrant.com/transformers-gi-joe-war-machine-netflix-sequel/
+
+A Netflix action franchise is all set to return with more instalments soon, proving that it has beaten Transformers & G.I. Joe at their own game.
+---------
+
+# Zelda: Link To The Past Gets "Breathtaking" Remaster
+
+Gaming, The Legend of Zelda
+
+Sat, 06 Jun 2026 02:00:33 GMT
+
+https://screenrant.com/zelda-link-to-the-past-2026-fan-remaster/
+
+Experience the classic 1991 SNES game The Legend of Zelda: A Link to the Past like never before.
+---------
+
+# 10 Greatest Horror Anime of All Time, Ranked
+
+Anime, Shiki, Berserk, Horror
+
+Sat, 06 Jun 2026 03:45:13 GMT
+
+https://www.cbr.com/best-horror-anime-ever-ranked-list/
+
+Anime and horror have a rich relationship that's led to some unforgettable titles, like Shiki and Perfect Blue, that have lasted the test of time.
+---------
+
+# 5 Forgotten Post-Apocalyptic Movies That Are Perfect From Start to Finish
+
+Movies, Sci-Fi, It Comes at Night, Snowpiercer
+
+Sat, 06 Jun 2026 03:45:13 GMT
+
+https://www.cbr.com/forgotten-post-apocalyptic-movies-perfect-list/
+
+The post-apocalyptic genre is ever-growing, but these films have been here the whole time.
+---------
+
+# Disney's Most Underrated Movie Is Getting an Official Sequel
+
+Movies, Atlantis: The Lost Empire, Sci-Fi, Disney
+
+Sat, 06 Jun 2026 03:16:15 GMT
+
+https://www.cbr.com/atlantis-the-lost-empire-sequel-underrated-sci-fi-classic/
+
+Twenty-five years later, Disney's most underrated animated movie is finally getting a sequel.
+---------
+
+# 5 Forgotten PS3 Games That Are Officially 10/10, No Notes
+
+Games, Valkyria Chronicles, Resonance Of Fate, Eternal Sonata, PlayStation (Original)
+
+Sat, 06 Jun 2026 03:16:15 GMT
+
+https://www.cbr.com/perfect-forgotten-ps3-games-list/
+
+The PlayStation 3 had an expansive roster of high-quality games, and these forgotten masterpieces deserved more of the spotlight than they got.
+---------
+
+# Absolute Green Arrow Brings Long-Awaited Comic Book Changes to the DC Universe
+
+Comics, Green Arrow, DC Comics, Absolute Universe
+
+Sat, 06 Jun 2026 03:00:12 GMT
+
+https://www.cbr.com/absolute-green-arrow-necessary-comic-book-changes/
+
+The identity of Absolute Green Arrow remains a mystery, leaving fans to speculate: who is the Absolute Universe's Green Arrow?
+---------
+
+# Masters of the Universe Just Teased the Most Powerful He-Man Character Ever
+
+Movies, Masters of the Universe, She-Ra: Princess of Power
+
+Sat, 06 Jun 2026 02:45:15 GMT
+
+https://www.cbr.com/masters-of-the-universe-post-credits-she-ra/
+
+At the end of 2026's Masters of the Universe, the film teased the appearance of a character even more powerful than He-Man himself.
+---------
+
+# 5 Anime Heroes Who Could Beat Edward Elric
+
+Anime, Fullmetal Alchemist
+
+Sat, 06 Jun 2026 02:45:15 GMT
+
+https://www.cbr.com/anime-heroes-vs-edward-elric-list/
+
+5 Anime heroes who can easily defeat Fullmetal Alchemist's Edward Elric.
+---------
+
+# You Can Stream Netflix's Best Easy-to-Binge Thriller Miniseries in Under 4 Hours
+
+TV, The Monster of Florence, Netflix, Thriller
+
+Sat, 06 Jun 2026 02:30:13 GMT
+
+https://www.cbr.com/netflix-the-monster-of-florence-thriller-miniseries-binge/
+
+Netflix's hit true crime thriller gives something fans haven't seen in a long time and makes it a chilling but perfect binge watch.
+---------
+
+# World's Largest Manga Magazine Officially Shuts Down
+
+Anime, Manga
+
+Sat, 06 Jun 2026 02:30:13 GMT
+
+https://www.cbr.com/dokodemo-young-champion-manga-magazine-shuts-down/
+
+The largest manga magazine in the history of the industry has officially closed its doors after growing quite literally too large for distribution.
+---------
+
+# 10 Smartest Video Game Villains Ever, Ranked By Intelligence
+
+Games
+
+Sat, 06 Jun 2026 02:15:14 GMT
+
+https://www.cbr.com/smartest-video-game-villains-ever-ranked-list/
+
+From G-Man to GLaDOS to SHODAN, these video game villains are more than just brawn - they're intellectual powerhouses.
+---------
+
+# 10 Greatest High Fantasy Movies of the 21st Century
+
+Movie, Fantasy, Stardust, Pan's Labyrinth, The Lord of the Rings
+
+Sat, 06 Jun 2026 04:09:23 GMT
+
+https://collider.com/best-high-fantasy-movies-21st-century-ranked/
+
+From the masterful Lord of the Rings trilogy to Miyazaki's magnum opus, Spirited Away, the 21st century has given us an array of high fantasy greats.
+---------
+
+# Netflix's Fastest-Growing Subscription Option Isn't What You'd Expect
+
+TV Features, Netflix, Streaming, Streaming Service, Netflix Original Series
+
+Sat, 06 Jun 2026 04:02:15 GMT
+
+https://collider.com/netflix-most-popular-subscription-ad-supported-tier/
+
+Netflix’s ad-supported tier is becoming the clearest sign that streaming is turning back into TV, with most new subscribers choosing the plan.
+---------
+
+# Hulu's 4-Part Fantasy Series Is Still the Greatest Binge on the Platform 10 Years Later
+
+TV Features, The Good Place, Hulu, NBC, Kristen Bell
+
+Sat, 06 Jun 2026 03:41:13 GMT
+
+https://collider.com/hulu-the-good-place-fantasy-series-binge/
+
+The Good Place is an addictive and thought-provoking series that explores morality and philosophy through the lens of a fantasy sitcom.
+---------
+
+# 10 Greatest Fast-Paced Classic Movies
+
+Movie, North By Northwest, 12 Angry Men, The Good, the Bad and the Ugly, Bringing Up Baby
+
+Sat, 06 Jun 2026 03:20:14 GMT
+
+https://collider.com/fast-paced-classic-movies-ranked/
+
+Classic movies aren't always slow or old-fashioned, as fast-paced ones like North by Northwest, Bringing Up Baby, and Some Like It Hot go to show.
+---------
+
+# Only 3 Animated Movies Are Sadder Than 'Grave of the Fireflies'
+
+Movie, Grave of the Fireflies, Mary and Max, The Plague Dogs, When the Wind Blows
+
+Sat, 06 Jun 2026 03:10:13 GMT
+
+https://collider.com/animated-movies-sadder-than-grave-of-the-fireflies/
+
+Grave of the Fireflies is considered the most brutal and distressing animated masterpiece, but movies like When the Wind Blows might be even sadder.
+---------
+
+# ‘Saturday Night Live’s Worst Season Ever Accidentally Saved the Entire Show
+
+TV Features, Saturday Night Live, SNL, Lorne Michaels, NBC
+
+Sat, 06 Jun 2026 02:59:14 GMT
+
+https://collider.com/saturday-night-live-worst-season-ever-saved-nbc-snl-series/
+
+Saturday Night Live's infamous Season 11 nearly sank the show, but its failures helped shape the franchise's future success.
+---------
+
+# ‘Gremlins’ Will Never Get a Reboot
+
+Movie News, Gremlins, Steven Spielberg, Chris Columbus, Amblin Entertainment
+
+Sat, 06 Jun 2026 02:30:13 GMT
+
+https://collider.com/gremlins-reboot-never-going-to-happen-zach-galligan-chris-columbus/
+
+Gremlins will never be rebooted, and original star Zach Galligan just revealed why. Read on for more.
+---------
+
+# ‘Masters of the Universe’ Director Just Set Up the Perfect Sequel [Exclusive]
+
+Exclusives, Masters of the Universe, Travis Knight, Nicholas Galitzine, She-Ra
+
+Sat, 06 Jun 2026 02:00:24 GMT
+
+https://collider.com/masters-of-the-universe-post-credits-scene-she-ra-actress-future-travis-knight-nicholas-galitizine/
+
+Travis Knight's Masters of the Universe reboot features a surprise post-credits scene hinting at a key character's sequel potential.
+---------
+
+# Forget 'Black Mirror' — This ’90s Sci-Fi VR Shock Is a Full-Blown Masterpiece
+
+Movie Features, Black Mirror, Jude Law, Science Fiction, eXistenZ
+
+Sat, 06 Jun 2026 01:42:14 GMT
+
+https://collider.com/existenz-cronenberg-virtual-reality-body-horror/
+
+David Cronenberg’s eXistenZ follows game designer Allegra Geller on the run as she enters a bioport VR game where reality blurs in body horror chaos.
+---------
+
+# 'Obsession' Pulls Off Box Office Feat Not Seen Since Steven Spielberg's '80s Sci-Fi Favorite
+
+Movie News, Obsession, Horror, E.T. the Extra-Terrestrial, Box Office
+
+Sat, 06 Jun 2026 01:30:13 GMT
+
+https://collider.com/obsession-box-office-166-million-week-over-week-increase-record-first-time-since-et-1982/
+
+Obsession, directed by Curry Barker, has achieved a box office feat not seen since Steven Spielberg's E.T. in 1982, continuing its incredible success.
+---------
+
+# 'Michael' Hits Record-Breaking Box Office Milestone
+
+Movie News, Michael, box office
+
+Sat, 06 Jun 2026 02:46:47 GMT
+
+https://movieweb.com/michael-lionsgate-box-office-record/
+
+Lionsgate's 'Michael' movie reached an impressive box office milestone over a month into its run in theaters.
+---------
+
+# 3 Binge-Worthy Netflix Shows You Won’t Want To Miss This Weekend
+
+TV Lists, Netflix
+
+Sat, 06 Jun 2026 02:00:31 GMT
+
+https://movieweb.com/netflix-tv-binge-weekend/
+
+Whether you want for a sci-fi mystery, a gripping historical drama, or a heartwarming comedic look at the world, these series are great to binge
+---------
+
+# 'John Wick' Spin-Off 'Caine' Officially Adds 'Harry Potter' Veteran
+
+Movie News, Caine John Wick Spinoff, Bill Nighy, Action
+
+Sat, 06 Jun 2026 01:09:37 GMT
+
+https://movieweb.com/john-wick-caine-spin-off-bill-nighy/
+
+Star of 'Love Actually' and 'Shaun of the Dead' Bill Nighy joins Donnie Yen in the spin-off.
+---------
+
+# The Best Sci-Fi Director Comes Back to the Big Screen This Summer
+
+Features, Ridley Scott, Steven Spielberg, The Dog Stars
+
+Sat, 06 Jun 2026 01:00:10 GMT
+
+https://movieweb.com/steven-spielberg-ridley-scott-scifi-director-the-dog-stars/
+
+Steven Spielberg's 'Disclosure Day' will hit theaters this week, but the true pre-eminent authority on sci-fi returns to the big screen in August.
+---------
+
 # If You Love Clint Eastwood's Spaghetti Westerns, Watch The 1954 Movie That Made Them Possible
 
 Movies, Masked Recs, Western
