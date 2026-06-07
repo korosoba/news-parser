@@ -1,3 +1,333 @@
+# 10 One Piece Characters That Were Perfectly Cast For Netflix's Live-Action
+
+Streaming TV, One Piece
+
+Sun, 07 Jun 2026 19:00:04 GMT
+
+https://screenrant.com/one-piece-characters-live-action-netflix-perfect-casting/
+
+Netflix's One Piece excels with its casting, and these 10 actors are especially exceptional portraying Eiichiro Oda's characters in live action.
+---------
+
+# Halo Fans Losing It Over Official Lore Changes And Major Reveals In New Release
+
+Gaming, Halo, Triple-A Games
+
+Sun, 07 Jun 2026 19:00:04 GMT
+
+https://screenrant.com/halo-waypoint-chronicles-lore-changes-unsolved-mysteries/
+
+The web of lore for the Halo series is constantly weaving, but recent revelations have caused long term Halo fans to lose it.
+---------
+
+# 2026's Most Anticipated Webtoon Announces Major New Release, And It's Glorious
+
+Anime, Webtoon, Eleceed (2019), Eleceed
+
+Sun, 07 Jun 2026 19:00:04 GMT
+
+https://screenrant.com/eleceed-webtoon-return-print/
+
+After nearly eight years, Eleceed is eyeing a long overdue release, and just in time for its upcoming anime adaptation.
+---------
+
+# Masters Of The Universe Interviews with Nicholas Galitzine, Camila Mendes & Travis Knight
+
+Movies, Masters of the Universe
+
+Sun, 07 Jun 2026 18:49:22 GMT
+
+https://screenrant.com/video/masters-of-the-universe-nicholas-galitzine-camila-mendes-travis-knight-interview/
+
+Director Travis Knight and stars Nicholas Galitzine and Camila Mendes talk the Masters of the Universe reboot and recreating an iconic meme.
+---------
+
+# Fable - Release Window, Story, Character Customization, & Gameplay Details
+
+Gaming, Fable, PC, Triple-A Games
+
+Sun, 07 Jun 2026 18:41:37 GMT
+
+https://screenrant.com/fable-release-window-character-customization-story-gameplay/
+
+Several new details about the upcoming Fable have been revealed, including when it arrives, how its gameplay will work, and a lot more.
+---------
+
+# Sweet Magnolias Season 5: Release Date, Story & What To Expect
+
+TV, Sweet Magnolias, Upcoming Releases
+
+Sun, 07 Jun 2026 18:30:23 GMT
+
+https://screenrant.com/sweet-magnolias-season-5-explained/
+
+Netflix's charming romance series Sweet Magnolias has quietly become one of the streamer's biggest hits, and now it's been renewed for season 5.
+---------
+
+# Samara Weaving & Kyle Gallner’s Carolina Caroline Relationship Is As Romantic As It Is Dangerous
+
+Interviews, Carolina Caroline, Kyle Gallner, Samara Weaving, Kyra Sedgwick
+
+Sun, 07 Jun 2026 18:30:20 GMT
+
+https://screenrant.com/video/carolina-caroline-samara-weaving-kyle-gallner-kyra-sedgwick-interview/
+
+Samara Weaving and Kyle Gallner break down their toxic yet loving relationship in Carolina Caroline, while Kyra Sedgwick and director Adam Carter Rehmeier break down the former's big scene.
+---------
+
+# God Of War Laufey’s Combat Is Reviving A 26-Year-Old Franchise Staple
+
+Gaming, God of War, God of War Laufey, Triple-A Games
+
+Sun, 07 Jun 2026 18:30:20 GMT
+
+https://screenrant.com/god-of-war-laufey-combat-air-juggle/
+
+God of War Laufey is exploring a neat storytelling approach with a new protagonist whose combat is infused with nostalgic gameplay.
+---------
+
+# Oliver Stone’s Underrated ‘80s Thriller Has Aged Like Fine Wine
+
+Movies, Oliver Stone
+
+Sun, 07 Jun 2026 18:30:20 GMT
+
+https://screenrant.com/talk-radio-thriller-oliver-stone-aged-well/
+
+Though Oliver Stone's underrated '80s thriller appears to be dated, it has actually aged much better than most films from the decade.
+---------
+
+# Game Of Thrones Franchise's Return With New Episodes Is Officially The Start Of An Era
+
+Streaming TV, Game of Thrones
+
+Sun, 07 Jun 2026 18:29:53 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-new-era-game-of-thrones-franchise/
+
+There are big things brewing in Westeros, and the return of a hit GoT series has significance for much more than its own story when it's back.
+---------
+
+# Canon Events: Stephanie Brown's Death as Spoiler Set Up Her Underrated Batgirl Era
+
+Comics, Canon Events, Batman, Batgirl
+
+Sun, 07 Jun 2026 19:01:12 GMT
+
+https://www.cbr.com/canon-events-stephanie-brown-spoiler-death-underrated-batgirl-era/
+
+Stephanie Brown's journey from Spoiler to Robin to Batgirl is filled with dark twists that set the stage for her tragic end and eventual redemption.
+---------
+
+# 5 Flawless Time-Loop Movies Better Than Groundhog Day
+
+Movies, Groundhog Day
+
+Sun, 07 Jun 2026 19:01:12 GMT
+
+https://www.cbr.com/time-loop-movies-better-than-groundhog-day-list/
+
+Groundhog Day is one of the greatest Time-Loop films of all time, yet there are a select few that surpass even it.
+---------
+
+# The Boys Creator Pushes Back on Series Finale Criticism: The Story I Wanted to Tell'
+
+TV, The Boys
+
+Sun, 07 Jun 2026 18:40:23 GMT
+
+https://www.cbr.com/the-boys-creator-series-finale-pushback/
+
+The Boys series creator Eric Kripke speaks out about the series finale criticism.
+---------
+
+# It's Officially the End of an Era for the Ice Age Movies
+
+Movies, Ice Age: Boiling Point, Ice Age, 20th century fox
+
+Sun, 07 Jun 2026 18:30:12 GMT
+
+https://www.cbr.com/ice-age-movies-end-of-an-era-disney-fox-merger/
+
+The sixth Ice Age film will mark a major moment for the long-running animated franchise.
+---------
+
+# Greatest Studio Ghibli Movies of All Time, Ranked
+
+Anime, Studio Ghibli, Spirited Away
+
+Sun, 07 Jun 2026 18:15:14 GMT
+
+https://www.cbr.com/best-studio-ghibli-movies-all-time-ranked-list/
+
+From  Howl's Moving Castle to Princess Mononoke, not many animation studios have produced as many iconic films as Studio Ghibli.
+---------
+
+# One Piece Officially Unveils Brook's New Soul King Transformation
+
+Anime, One Piece
+
+Sun, 07 Jun 2026 18:00:13 GMT
+
+https://www.cbr.com/one-piece-brook-new-soul-king-transformation/
+
+The most rocking member of the Straw Hat Pirates is getting a brand new sculpt that showcases his epic and terrifying Soul King transformation.
+---------
+
+# Quentin Tarantino Said the 'Best Directed Film of All Time' Is This 60-Year-Old Western
+
+Movies, The Good, the Bad and the Ugly, Western, Quentin Tarantino
+
+Sun, 07 Jun 2026 18:00:13 GMT
+
+https://www.cbr.com/quentin-tarantino-the-good-the-bad-the-ugly-masterpiece-western/
+
+The flawless Western that was given high praise by Quentin Tarantino
+---------
+
+# The 10 Best Dark Horse Comics Every Fan Should Read
+
+Comics, Dark Horse Comics, Hellboy, Star Wars
+
+Sun, 07 Jun 2026 18:00:13 GMT
+
+https://www.cbr.com/greatest-dark-horse-comics-must-read/
+
+Defining indie comics since the 1980s, Dark Horse has endured as one of the greatest publishers in the industry, and these essential stories prove it.
+---------
+
+# Persona 6 Officially Revealed
+
+Games, Persona, JRPG
+
+Sun, 07 Jun 2026 17:57:14 GMT
+
+https://www.cbr.com/persona-6-official-reveal-2026/
+
+After years of waiting, Persona 6 was officially revealed to gamers for the first time.
+---------
+
+# ‘Saving Private Ryan’ Meets ‘Dawn of the Dead’ in This WWII Horror Gem
+
+Movie News, Overlord, J.J. Abrams, World War II, Zombie
+
+Sun, 07 Jun 2026 19:01:12 GMT
+
+https://collider.com/saving-private-ryan-dawn-of-the-dead-ww2-cult-classic-overlord-free-streaming-tubi-june-2026/
+
+Fans of WW2 action movies and zombie thrillers must check out Overlord, which is streaming for free this month. Find out where.
+---------
+
+# 7 Binge-Worthy Miniseries That No One Remembers Today
+
+TV, TV Miniseries, Landscapers, The Lost Room, The Shadow Line
+
+Sun, 07 Jun 2026 18:49:13 GMT
+
+https://collider.com/binge-worthy-miniseries-no-one-remembers/
+
+Landscapers, The Fear, Empire Falls, and more make up our list of binge-worthy miniseries that no one remembers today.
+---------
+
+# 10 Greatest Western Endings of All Time
+
+Movie, The Good, the Bad and the Ugly, The Searchers, Once Upon a Time in the West, The Great Silence
+
+Sun, 07 Jun 2026 18:42:14 GMT
+
+https://collider.com/best-western-endings-all-time-ranked/
+
+Classic Western movies like The Good, the Bad and the Ugly, Once Upon a Time in the West, and Unforgiven have some of the best endings of all time.
+---------
+
+# Office Romance: Brett Goldstein Got Roasted Into a Lifelong Complex | Collider BTS
+
+Movie, Office Romance
+
+Sun, 07 Jun 2026 18:15:15 GMT
+
+https://collider.com/video/office-romance-brett-goldstein-got-roasted-into-a-lifelong-complex-collider-bts/
+
+Discover how Office Romance star Brett Goldstein reveals the hilarious roast that sparked a lifelong insecurity, sharing behind-the-scenes stories, cast chemistry, and unexpected personal confessions in this Collider BTS interview.
+---------
+
+# 8 Movies Ruined by a Disappointing Climax
+
+Movie, Man of Steel, Glass, The Golden Compass, Joker: Folie a Deux
+
+Sun, 07 Jun 2026 18:11:14 GMT
+
+https://collider.com/movies-ruined-by-disappointing-climax/
+
+Some movies stumbled over the finish line with disappointing climaxes, including those found in the likes of I Am Legend and The Golden Compass.
+---------
+
+# 1 Year Later, Leonardo DiCaprio’s Modern Masterpiece Is Surging on Streaming
+
+Movie News, One Battle After Another, Leonardo DiCaprio, Prime Video, Paul Thomas Anderson
+
+Sun, 07 Jun 2026 18:00:13 GMT
+
+https://collider.com/leonardo-dicaprio-modern-masterpiece-one-battle-after-another-streaming-success-prime-video-june-2026/
+
+A modern political masterpiece starring Leonardo DiCaprio is a quiet streaming hit. Here's everything you need to know about the Oscar-winner.
+---------
+
+# 'Off Campus' Major Shake-up With Dean and Allie in Season 2 Makes Perfect Sense
+
+TV Features, Off Campus, Prime Video, Mika Abdalla, Stephen Kalyn
+
+Sun, 07 Jun 2026 17:58:15 GMT
+
+https://collider.com/off-campus-season-2-dean-allie-romance/
+
+Off Campus Season 1 cleverly sets up Dean and Allie's romance, allowing them to take over in Season 2 despite changing the book order.
+---------
+
+# The Far Side: 10 Funniest Comics Set in the Old West
+
+Movie Lists, The Far Side
+
+Sun, 07 Jun 2026 18:30:18 GMT
+
+https://movieweb.com/far-side-funniest-old-west/
+
+Saddle up with Gary Larson's 10 funniest Western 'Far Side' strips, from gallows humor to absurd scenarios only he could create.
+---------
+
+# Kevin Smith 'Masters of the Universe' Reboot Is a Must-Watch Fantasy Series
+
+Features, Masters of the Universe: Revelation, Masters of the Universe: Revolution
+
+Sun, 07 Jun 2026 18:00:18 GMT
+
+https://movieweb.com/netflix-action-fantasy-series-must-watch-masters-of-the-universe-revelation/
+
+'Masters of the Universe: Revelation' and 'Revolution' successfully reintroduced He-Man to a new generation.
+---------
+
+# 10 Best Completed Anime Series on Crunchyroll To Watch All the Way Through
+
+TV Lists, Anime, Crunchyroll
+
+Sun, 07 Jun 2026 18:00:18 GMT
+
+https://movieweb.com/best-completed-anime-series-on-crunchyroll/
+
+Crunchyroll’s catalog is vast, but what makes it utterly special is the range of completed series.
+---------
+
+# Kevin Smith's Best Movie Makes 2026 Return to Streaming
+
+Movie News, Clerks, HBO Max, Coming/Leaving Streaming, Kevin Smith
+
+Sun, 07 Jun 2026 18:00:09 GMT
+
+https://movieweb.com/clerks-kevin-smith-streaming-june-2026/
+
+Kevin Smith's iconic '90s hit is back on streaming in 2026.
+---------
+
 # 10 Fantasy Movies To Watch If You Love Masters Of The Universe
 
 Movies, Thor: Ragnarok, Masters of the Universe, Dungeons & Dragons: Honor Among Thieves, Highlander, Hercules, Kull The Conqueror, Mortal Kombat II, The Scorpion King, Krull
