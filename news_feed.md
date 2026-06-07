@@ -1,3 +1,278 @@
+# Backrooms Is Officially A24's Highest-Grossing Movie Ever
+
+Movies, Backrooms, Box Office
+
+Sun, 07 Jun 2026 16:03:15 GMT
+
+https://screenrant.com/backrooms-highest-grossing-a24-movie-box-office/
+
+Despite a steep decline in its second weekend, Backrooms has now grossed a stunning worldwide total, becoming A24’s highest-grossing movie ever.
+---------
+
+# Coffee Chats Episode 12 with Lamorne Morris
+
+Videos, Lamorne Morris
+
+Sun, 07 Jun 2026 16:00:21 GMT
+
+https://screenrant.com/video/coffee-chats-episode-12-lamorne-morris-spider-noir/
+
+In the latest Coffee Chats episode, ScreenRant sits down with Lamorne Morris to chat about Spider-Noir's genre homages and New Girl casting stories.
+---------
+
+# Even Gundam's Creator Admits That BL Saved The Mecha Genre
+
+Anime, Gundam
+
+Sun, 07 Jun 2026 16:00:21 GMT
+
+https://screenrant.com/gundam-saved-cancellation-bl-saved-mecha-genre/
+
+The surprising reason for Gundam's success.
+---------
+
+# SGF Interview: How The Elder Scrolls Is Looking Beyond The Elder Scrolls 6
+
+Gaming, The Elder Scrolls, Triple-A Games, Summer Game Fest
+
+Sun, 07 Jun 2026 16:00:21 GMT
+
+https://screenrant.com/sgf-interview-elder-scrolls-6-eso/
+
+The Elder Scrolls is a massive franchise that's lasted decades, and it's not going anywhere anytime soon, especially before TES 6 hits.
+---------
+
+# DCU’s Bane & Deathstroke Movie Could Be Genius Or A Disaster
+
+Movies, Originals
+
+Sun, 07 Jun 2026 16:00:21 GMT
+
+https://screenrant.com/video/dcu-s-bane-deathstroke-movie-could-be-genius-or-a-disaster/
+
+Explore why the DCU’s rumored Bane and Deathstroke movie could become a game-changing hit or a major misfire, and what it means for James Gunn’s expanding DC Universe.
+---------
+
+# Marvel’s Wolverine Should Have Borrowed An Underrated Bloodborne Feature
+
+Gaming, Marvel's Wolverine, Bloodborne, Triple-A Games
+
+Sun, 07 Jun 2026 16:00:21 GMT
+
+https://screenrant.com/marvels-wolverine-blood-violence-bloodborne/
+
+Marvel's Wolverine is exceptionally bloody, as it should be, but doesn't commit to its violence as well as Bloodborne did over a decade ago.
+---------
+
+# Star Trek: Strange New Worlds Is Guaranteed To Avoid Discovery's Ending Problem
+
+Streaming TV, Star Trek: Strange New Worlds
+
+Sun, 07 Jun 2026 16:00:21 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-avoid-discovery-ending-problem/
+
+Star Trek: Strange New World will end with season 5, but the show's already guaranteed to avoid the ending problem that affected Discovery.
+---------
+
+# The Best Western From Each Year Of The 1950s
+
+Movies, Western
+
+Sun, 07 Jun 2026 15:55:21 GMT
+
+https://screenrant.com/best-western-every-year-1950s/
+
+The 1950s was the golden age for westerns, and every year of the decade produced at least one classic film that is still beloved today.
+---------
+
+# The Super Mario Galaxy Movie Is Officially 2026's First Billion-Dollar Hit
+
+Movies, The Super Mario Galaxy Movie, Super Mario, Box Office Milestone
+
+Sun, 07 Jun 2026 15:53:07 GMT
+
+https://screenrant.com/the-super-mario-galaxy-movie-box-office-1-billion-global-milestone/
+
+The Super Mario Galaxy Movie jumps past the $1 billion milestone at the worldwide box office, becoming the first movie of 2026 to do so.
+---------
+
+# Dakota Fanning’s Record-Breaking Peacock Series Sets Official Follow-Up Based On Mystery Novel
+
+TV, All Her Fault
+
+Sun, 07 Jun 2026 15:52:39 GMT
+
+https://screenrant.com/the-break-in-all-her-fault-follow-up-peacock/
+
+After All Her Fault starring Dakota Fanning became a big streaming hit, Peacock has now ordered a follow-up show based on a major bestseller.
+---------
+
+# Hello Kitty Officially Returns to the Racetrack with Honda This July
+
+Anime, Hello Kitty
+
+Sun, 07 Jun 2026 16:00:13 GMT
+
+https://www.cbr.com/hello-kitty-honda-smile-rider-project/
+
+Honda is teaming up with Hello Kitty and friends for a brand-new initiative that fans of high-gear sports will absolutely adore.
+---------
+
+# The 5 Best Fantasy Movies of the Last 10 Years, Ranked
+
+Movies, Fantasy, Puss in Boots: The Last Wish, The Shape of Water
+
+Sun, 07 Jun 2026 16:00:13 GMT
+
+https://www.cbr.com/best-fantasy-movies-last-10-years-list/
+
+These recent fantasy movies prove that the genre is only getting better as time goes on.
+---------
+
+# Backroom Box Office Officially Dethrones 9x Oscar-Nominated Drama as A24's Highest-Grossing Movie
+
+Movies, Backrooms, Marty Supreme, A24
+
+Sun, 07 Jun 2026 15:48:07 GMT
+
+https://www.cbr.com/backrooms-marty-supreme-a24-highest-grossing-movie/
+
+Director Kane Parsons' Backrooms officially broke yet another record.
+---------
+
+# Harry Potter's Daniel Radcliffe Officially Meets His Third Albus Dumbledore
+
+Movies, Harry Potter
+
+Sun, 07 Jun 2026 15:29:34 GMT
+
+https://www.cbr.com/harry-potter-daniel-radcliffe-albus-dumbledore-john-lithgow/
+
+The Harry Potter worlds are colliding.
+---------
+
+# 5 Masterpiece Action Anime Better Than Solo Leveling
+
+Anime, Solo Leveling, Jujutsu Kaisen
+
+Sun, 07 Jun 2026 15:15:12 GMT
+
+https://www.cbr.com/masterpiece-action-anime-better-than-solo-leveling-list/
+
+Fans of Solo Leveling will find even stronger action experiences in these standout anime.
+---------
+
+# 2027 Is A New Era For Final Fantasy 7
+
+Games, Final Fantasy, Final Fantasy 7 Remake, Street Fighter 6
+
+Sun, 07 Jun 2026 15:01:12 GMT
+
+https://www.cbr.com/final-fantasy-7-official-new-era-2027/
+
+2027 marks a huge year for Final Fantasy 7, as the remake trilogy is coming to a close, and one of its most beloved characters is joining a crossover.
+---------
+
+# 8 Forgotten Netflix Action Movies That Are Perfect From Start to Finish
+
+Movie, Netflix, Action, The Old Guard, The Harder They Fall
+
+Sun, 07 Jun 2026 16:06:13 GMT
+
+https://collider.com/forgotten-netflix-action-movies-perfect-start-to-finish/
+
+From the Western film The Harder They Fall to Charlize Theron's The Old Guard, these forgotten Netflix action movies are practically flawless.
+---------
+
+# Sigourney Weaver's New Sci-Fi Saga Officially Overtakes Charlize Theron's Post-Apocalyptic Reboot at the Box Office
+
+Movie News, The Mandalorian and Grogu, Mad Max: Fury Road, Box Office, Star Wars
+
+Sun, 07 Jun 2026 16:00:14 GMT
+
+https://collider.com/the-mandalorian-and-grogu-overtakes-mad-max-fury-road-box-office-155-million/
+
+The Mandalorian and Grogu has officially overtaken one of the greatest sci-fi adventures ever made at the box office.
+---------
+
+# 2026's First True Summer Blockbuster Fantasy Dominates the Box Office
+
+Movie News, Masters of the Universe, Nicholas Galitzine, Jared Leto, Box Office
+
+Sun, 07 Jun 2026 15:24:28 GMT
+
+https://collider.com/he-man-movie-masters-of-the-universe-box-office-positive-reviews/
+
+He-Man’s ambitious fantasy reboot is officially turning positive reviews into box office glory in impressive debut.
+---------
+
+# 6 Most Universally Beloved K-Dramas of All Time, Ranked
+
+TV, South Korea, Reply 1988, Boys Over Flowers, Crash Landing On You
+
+Sun, 07 Jun 2026 14:57:14 GMT
+
+https://collider.com/k-dramas-universally-beloved-all-time-ranked/
+
+Discover the most universally beloved Korean dramas of all time, including must-watch shows like Reply 1988, Crash Landing on You, and Goblin.
+---------
+
+# ‘Yellowstone’ Is Finally Changing Stories After 8 Years (& It’s Brilliant)
+
+Features, Dutton Ranch, Yellowstone
+
+Sun, 07 Jun 2026 16:00:19 GMT
+
+https://movieweb.com/dutton-ranch-yellowstone-story-change-ranch-warfare/
+
+'Yellowstone' saw the Duttons fight off every challenger to preserve their ranch, but 'Dutton Ranch' just changed the game with a brilliant pivot.
+---------
+
+# 'Saw' Spin-Off Gets First Trailer as Brand-New Historical Setting Confirmed
+
+Movie Trailers, Saw, Horror, video games
+
+Sun, 07 Jun 2026 15:56:14 GMT
+
+https://movieweb.com/saw-genesis-spinoff-trailer-historical-setting/
+
+'Saw: Genesis' is an asymmetrical horror game set in the aftermath of World War I.
+---------
+
+# Why 'Interview With the Vampire' Season 3 Is Called 'The Vampire Lestat'
+
+Features, The Vampire Lestat
+
+Sun, 07 Jun 2026 15:00:19 GMT
+
+https://movieweb.com/interview-with-the-vampire-season-3-title-vampire-lestat/
+
+'Interview With the Vampire,' Season 3 of the AMC series based on the Anne Rice novels, is called 'The Vampire Lestat.'
+---------
+
+# Where Are Homicide: New York's Daphne Abdela and Christopher Vasquez Now?
+
+Features, Netflix, True Crime
+
+Sun, 07 Jun 2026 15:00:19 GMT
+
+https://movieweb.com/where-are-homicide-new-yorks-daphne-abdela-and-christopher-vasquez-now/
+
+Discover where Daphne Abdela and Christopher Vasquez are now years after the murder seen in 'Homicide: New York.'
+---------
+
+# 'Alien: Isolation 2' Trailer Released, New Setting Confirmed
+
+Movie News, Alien, video games, Horror, Sci-Fi
+
+Sun, 07 Jun 2026 14:56:46 GMT
+
+https://movieweb.com/alien-isolation-2-trailer-setting-confirmed/
+
+A sequel to one of the best horror games of the 2010s is finally happening.
+---------
+
 # Halo: Campaign Evolved Free Download Officially Available For 72 Hours
 
 Gaming, Halo: Campaign Evolved, Halo
