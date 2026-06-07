@@ -1,3 +1,311 @@
+# The Office Star’s New Sitcom Dominates Disney+ Despite Disappointing Rotten Tomatoes Score
+
+TV, Masked Recs
+
+Sun, 07 Jun 2026 20:41:52 GMT
+
+https://screenrant.com/not-suitable-for-work-disney-streaming-success-june-2026/
+
+The Office cast has been up to some exciting projects since the show wrapped in 2013, and now one of the stars' work is succeeding on streaming.
+---------
+
+# Jared Leto Laughed More As His Newest Franchise Villain Than The Joker
+
+Movies, Masters of the Universe, Jared Leto, Joker
+
+Sun, 07 Jun 2026 20:30:21 GMT
+
+https://screenrant.com/jared-leto-skeletor-laughed-more-than-the-joker-masters-of-the-universe/
+
+Although he played The Joker ten years ago in Zack Snyder's DCEU, Jared Leto's newest major franchise villain laughs far more (and longer).
+---------
+
+# Bloodborne Reborne Surprise Trailer Has Gamers Losing Their Minds
+
+Gaming, Bloodborne, FromSoftware
+
+Sun, 07 Jun 2026 20:30:21 GMT
+
+https://screenrant.com/bloodborne-reborne-fan-remaster-trailer-gamers-react/
+
+Bloodborne still hasn't returned in any official way, and dedicated fans have had to take matters into their own hands.
+---------
+
+# The X-Files Meets 24 In The Forgotten Sci-Fi Series That Needed A Second Season
+
+Classic TV, Masked Recs
+
+Sun, 07 Jun 2026 20:30:21 GMT
+
+https://screenrant.com/the-event-needed-second-season-sci-fi-series/
+
+The X-Files and 24 are two of the biggest shows in television history, but a series combining elements of both sadly failed to land a second season.
+---------
+
+# Netflix’s 8-Part Stranger Things Replacement Kicks Off A Summer Sci-Fi Trend
+
+Streaming TV, Masked Recs
+
+Sun, 07 Jun 2026 20:15:22 GMT
+
+https://screenrant.com/netflix-the-boroughs-sci-fi-steven-spielberg-alien-movie/
+
+Netflix's latest sci-fi series The Boroughs is setting the stage for an exciting summer of genre entertainment, paving the way for a new sci-fi wave.
+---------
+
+# Ghosts’ Potential Crossover With Companion Series Eternally Yours Addressed By Creator
+
+TV, Ghosts, Eternally Yours
+
+Sun, 07 Jun 2026 20:04:36 GMT
+
+https://screenrant.com/ghosts-eternally-yours-crossover-joe-port-response/
+
+With the Ghosts companion series Eternally Yours coming to CBS this fall, co-creator Joe Port  addresses whether the two shows will have a crossover.
+---------
+
+# Jensen Ackles' 13-Part Supernatural Replacement Deserved At Least One More Season
+
+Network TV, Supernatural, The Winchesters
+
+Sun, 07 Jun 2026 20:00:22 GMT
+
+https://screenrant.com/jensen-ackles-supernatural-replacement-winchesters-deserve-more-seasons/
+
+Jensen Ackles returned to the world of Supernatural by producing The Winchesters, and The CW show deserved to last longer than one season.
+---------
+
+# 007 First Light's Villain Finally Fixes One Tired Trope
+
+Gaming, 007 First Light, James Bond, Triple-A Games, PC
+
+Sun, 07 Jun 2026 20:00:22 GMT
+
+https://screenrant.com/007-first-light-villain-webb-ai-james-bond/
+
+007 First Light moves the James Bond franchise forward, and one update provides a true modern-day villain in a uniquely refreshing way.
+---------
+
+# 3 Horror Films That Made Over $100 Million Worldwide With Less Than $1 Million Budget (Including Obsession)
+
+Movies, Obsession, Horror
+
+Sun, 07 Jun 2026 19:55:22 GMT
+
+https://screenrant.com/horror-movies-box-office-100-million-low-budget/
+
+Obsession recently reached $100 million at the worldwide box office and is now the third horror film made for less than $1 million to achieve this.
+---------
+
+# Spider-Man: Brand New Day's Second Trailer Is Officially The Start Of An Era For The MCU
+
+Movies, Spider-Man: Brand New Day
+
+Sun, 07 Jun 2026 19:49:39 GMT
+
+https://screenrant.com/spider-man-brand-new-day-second-trailer-jean-grey-speculation/
+
+The first Spider-Man: Brand New Day trailer left fans with more questions than answers, but the second may reveal the movie to be pivotal for the MCU.
+---------
+
+# Every One Piece Supernova, Ranked (By Strength)
+
+Anime, One Piece
+
+Sun, 07 Jun 2026 20:15:14 GMT
+
+https://www.cbr.com/one-piece-supernovas-ranked-by-strength/
+
+The Supernovas are the greatest pirates of the current One Piece generation, with some being far stronger than others.
+---------
+
+# 32 Years Later, Dragon Ball Officially Reveals Rare Super Saiyan Gohan Design
+
+Anime, Dragon Ball, Dragon Ball Z, Shonen Jump
+
+Sun, 07 Jun 2026 20:00:15 GMT
+
+https://www.cbr.com/dragon-ball-rare-super-saiyan-gohan-design/
+
+Gohan’s coolest DBZ outfit got a special piece of art in 1994 from Toriyama that no fan of the series will has ever seen released in this way before.
+---------
+
+# 10 Greatest Opening Movie Lines of the Last 50 Years
+
+Movies, Star Wars: Episode IV - A New Hope, The Lord of the Rings: The Fellowship of the Ring, The Godfather
+
+Sun, 07 Jun 2026 20:00:15 GMT
+
+https://www.cbr.com/perfect-opening-movie-line-last-50-years-list/
+
+Sometimes a movie can tell its audience just what they're in for in the very first words of dialogue, with these as cinema's most memorable open lines
+---------
+
+# Halo: Campaign Evolved Free Download Officially Available Until July 30
+
+Games, Halo
+
+Sun, 07 Jun 2026 19:45:13 GMT
+
+https://www.cbr.com/halo-campaign-evolved-free-download-officially-available-july-2026/
+
+One of the best Halo games of all time is giving players free content for a limited time only.
+---------
+
+# Star Trek Officially Returns With New Ro Laren Story in 2027
+
+Games, Star Trek
+
+Sun, 07 Jun 2026 19:40:12 GMT
+
+https://www.cbr.com/star-trek-shadow-frontier-ro-laren-official-reveal-2027/
+
+The next Star Trek game is unlike anything fans have been expecting, and the wait for Shadow Frontier will be shorter than expected.
+---------
+
+# The 5 Best Star Wars Battles of All Time, Ranked
+
+Movies, Star Wars, Sci-Fi, Disney+
+
+Sun, 07 Jun 2026 19:30:13 GMT
+
+https://www.cbr.com/best-star-wars-battles-ever-ranked-list/
+
+The Star Wars universe seems to contain a never-ending amount of battles, but these five are the most exciting and important to watch.
+---------
+
+# HBO Abruptly Halts The Last of Us Season 3 Filming
+
+TV, The Last of Us
+
+Sun, 07 Jun 2026 19:26:13 GMT
+
+https://www.cbr.com/hbo-the-last-of-us-season-3-filming-hiatus/
+
+Production on Season 3 started in early March.
+---------
+
+# 10 Greatest Manga Worth Reading Over and Over Again, Ranked
+
+Anime, Manga, Golden Kamuy, Monthly Girls' Nozaki-kun, Slam Dunk
+
+Sun, 07 Jun 2026 19:15:12 GMT
+
+https://www.cbr.com/manga-worth-reading-repeatedly/
+
+Manga like Slam Dunk, Monthly Girls' Nozaki-kun and more stand out because of how they satisfy readers in new ways with every re-read.
+---------
+
+# 28 Years Later, Elijah Wood’s Sci-Fi Blockbuster Is Rewriting History on Streaming
+
+Movie News, Elijah Wood, Deep Impact, Morgan Freeman, Tubi
+
+Sun, 07 Jun 2026 20:30:14 GMT
+
+https://collider.com/elijah-wood-sci-fi-blockbuster-deep-impact-free-streaming-tubi-june-2026/
+
+The apocalyptic sci-fi epic Deep Impact, which was released in the same year as Armageddon, is streaming for free this month. Find out more.
+---------
+
+# Elijah Woods' Twisted Hitchcockian Thriller Is So Good, You'll Wish You Saw It Sooner
+
+Movie Features, Grand Piano, Elijah Wood, John Cusack, Damien Chazelle
+
+Sun, 07 Jun 2026 20:04:15 GMT
+
+https://collider.com/elijah-woods-hitchcockian-thriller-grand-piano/
+
+2013's thriller Grand Piano, starring Elijah Wood and written by Damien Chazelle, needs to be rediscovered.
+---------
+
+# Star Wars Fans Send Pedro Pascal's A24 Hit Up Global Streaming Charts
+
+Movie News, Materialists, Pedro Pascal, Chris Evans, Dakota Johnson
+
+Sun, 07 Jun 2026 20:00:15 GMT
+
+https://collider.com/pedro-pascal-romance-materialists-streaming-success-hbo-max-june-2026/
+
+The Mandalorian and Grogu fans can't stop watching Pedro Pascal's underrated 2025 romance with Dakota Johnson and Chris Evans. Find out more here.
+---------
+
+# 16 Years Later, Netflix's Biggest Fantasy Reboot Is Making One Big Mistake
+
+TV Features, Narnia: The Magician's Nephew, The Chronicles of Narnia, Netflix, Greta Gerwig
+
+Sun, 07 Jun 2026 19:55:14 GMT
+
+https://collider.com/netflix-biggest-fantasy-reboot-chronicles-of-narnia-mistake/
+
+Netflix and Greta Gerwig are adapting The Chronicles of Narnia into movies, when they'd be better suited to TV. Other fantasy adaptations prove this.
+---------
+
+# 10 Most Surreal Horror Movies
+
+Movie, Horror, The Holy Mountain, Eraserhead, Antichrist
+
+Sun, 07 Jun 2026 19:39:12 GMT
+
+https://collider.com/most-surreal-horror-movies-ranked/
+
+From the industrial wasteland of Eraserhead to the Jungian symbolism of The Holy Mountain, these are cinema's most surreal and nightmarish horrors.
+---------
+
+# If You Love Superhero Stories, This 3-Part DC Series Was Made Just for You
+
+TV Features, Stargirl, The CW, Brec Bassinger, HBO Max
+
+Sun, 07 Jun 2026 19:14:14 GMT
+
+https://collider.com/superhero-series-stargirl-dc-tv-show/
+
+Stargirl stands out from other superhero series with its unique characters, engaging storylines, and fresh take on the DC universe.
+---------
+
+# The Coen Brothers Crime Thrillers, Ranked
+
+Movie Lists, Crime
+
+Sun, 07 Jun 2026 20:30:19 GMT
+
+https://movieweb.com/coen-brothers-crime-thriller-ranked/
+
+From period gangster dramas to neo-noir classics, Joel and Ethan Coen have been at the forefront of thrilling crime cinema since 1984
+---------
+
+# The "Best Miniseries of All-Time" is a Star-Studded Western With a 98% Rotten Tomatoes Score
+
+Features, Lonesome Dove, Western
+
+Sun, 07 Jun 2026 20:30:19 GMT
+
+https://movieweb.com/lonesome-dove-best-western-miniseries/
+
+With towering performances by Robert Duvall and Tommy Lee Jones, Lonesome Dove remains the highest standard possible for a miniseries
+---------
+
+# 'The Pitt' Star Confirms Real Reason Behind Season 3 Exit
+
+TV News, The Pitt, HBO Max, Drama
+
+Sun, 07 Jun 2026 20:23:24 GMT
+
+https://movieweb.com/the-pitt-supriya-ganesh-season-3-exit/
+
+Supriya Ganesh (Dr. Samira Mohan) was written off 'The Pitt' in the Season 2 finale as part of a "creative decision."
+---------
+
+# 'Scary Movie 6' Has Franchise Best Opening, 'Masters of the Universe' Proves Weak
+
+Movie News, Scary Movie, Masters of the Universe, Obsession, Michael, The Super Mario Galaxy Movie, box office
+
+Sun, 07 Jun 2026 19:14:36 GMT
+
+https://movieweb.com/scary-movie-6-masters-of-the-universe-box-office/
+
+At least one major new movie looks like it may flop, but others make up for it.
+---------
+
 # 10 One Piece Characters That Were Perfectly Cast For Netflix's Live-Action
 
 Streaming TV, One Piece
