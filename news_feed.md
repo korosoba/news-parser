@@ -1,3 +1,278 @@
+# 10 Fantasy Movies To Watch If You Love Masters Of The Universe
+
+Movies, Thor: Ragnarok, Masters of the Universe, Dungeons & Dragons: Honor Among Thieves, Highlander, Hercules, Kull The Conqueror, Mortal Kombat II, The Scorpion King, Krull
+
+Sun, 07 Jun 2026 17:45:19 GMT
+
+https://screenrant.com/10-fantasy-movies-to-watch-if-you-love-masters-of-the-universe/
+
+It can be hard to find movies similar to Masters of the Universe, but there are several modern films and even 80s classics worth your time.
+---------
+
+# The Legend Of Vox Machina Season 4 Interviews with Critical Role & Wayne Brady
+
+TV, The Legend of Vox Machina, The Legend of Vox Machina - Season 4
+
+Sun, 07 Jun 2026 17:43:59 GMT
+
+https://screenrant.com/video/the-legend-of-vox-machina-season-4-critical-role-wayne-brady-interview/
+
+Critical Role and Wayne Brady discuss The Legend of Vox Machina season 4, Taryon Darrington's introduction and how the time jump impacts the team.
+---------
+
+# Fable Officially Confirms New Release Date And MCU Legend As Its Villain
+
+Gaming, Fable, Summer Game Fest
+
+Sun, 07 Jun 2026 17:35:23 GMT
+
+https://screenrant.com/fable-officially-confirms-new-release-date-and-a-list-actor-as-its-villain/
+
+Fable has a new 2027 release date, and it's already star-studded cast just confirmed an MCU icon as its villain.
+---------
+
+# 007 First Light May Decide James Bond Franchise’s Future
+
+Gaming, 007 First Light, James Bond, Triple-A Games, PC
+
+Sun, 07 Jun 2026 17:30:21 GMT
+
+https://screenrant.com/007-first-light-amazon-publishing-james-bond/
+
+As the franchise rights owner, Amazon MGM Studios will step in for future James Bond video games, and it could show how new 007 films are handled too.
+---------
+
+# Disney's 2-Part Queer Comedy With 97% On Rotten Tomatoes Is The Perfect Weekend Binge
+
+Streaming TV, Masked Recs
+
+Sun, 07 Jun 2026 17:30:21 GMT
+
+https://screenrant.com/everythings-gonna-be-okay-weekend-watch-stream/
+
+Discover the sweet, poignant, and witty comedy on Disney+ with a 97% RT rating. A perfect weekend binge for those who love unique, quirky shows.
+---------
+
+# Halo: Campaign Evolved Release Date And Prequel Missions Officially Confirmed
+
+Gaming, Halo, Halo: Campaign Evolved, Summer Game Fest
+
+Sun, 07 Jun 2026 17:27:36 GMT
+
+https://screenrant.com/new-halo-campaign-evolved-release-date-prequel-missions/
+
+Halo: Campaign Evolved finally has a release date alongside a handful of new prequel missions.
+---------
+
+# The Last Of Us Season 3 Filming Reportedly Cancelled
+
+TV, The Last of Us
+
+Sun, 07 Jun 2026 17:26:20 GMT
+
+https://screenrant.com/the-last-of-us-season-3-filming-unexpected-hiatus/
+
+The Last of Us has faced a major setback, as season 3 of the video game adaptation could be taking a lot longer than fans are hoping for with hiatus.
+---------
+
+# Major PlayStation 5 2026 Game Officially Cancelled
+
+Gaming, PlayStation 5
+
+Sun, 07 Jun 2026 17:15:58 GMT
+
+https://screenrant.com/gear-war-e-day-ps5-cancelled-xbox-exclusive/
+
+There are a number of games still releasing on PlayStation 5 this year, but one of them was just officially cancelled during the Xbox Game Showcase.
+---------
+
+# Heidi Gardner's 7 Best Movie & TV Show Roles That Aren't SNL
+
+Movies, Scary Movie, Saturday Night Live
+
+Sun, 07 Jun 2026 17:15:21 GMT
+
+https://screenrant.com/best-heidi-gardner-movies-tv-shows-not-snl/
+
+Heidi Gardner may be best known for her work on Saturday Night Live, but the Scary Movie actor has featured in several other great movies and shows.
+---------
+
+# Xbox Games Showcase June 2026: Every Game & Announcement
+
+Gaming, Summer Game Fest, Xbox, Triple-A Games, PC
+
+Sun, 07 Jun 2026 17:08:24 GMT
+
+https://screenrant.com/xbox-june-2026-showcase-biggest-reveals-trailers-announcements/
+
+Xbox Games Showcase is here as part of the Summer Game Fest 2026 event, with updates on major upcoming games like Gears of War: E-Day and more.
+---------
+
+# Iconic 5-Season X-Men Series Takes Over Streaming Ahead of Reboot Return
+
+TV, Marvel Comics, Marvel, MCU, X-Men, X-Men '97, X-Men (1992)
+
+Sun, 07 Jun 2026 17:43:36 GMT
+
+https://www.cbr.com/x-men-original-series-streaming-success/
+
+The X-Men series that started it all is suddenly conquering streaming 30 years later.
+---------
+
+# Persona 4 Revival Release Date Officially Revealed
+
+Games, Persona 4 Golden, Persona, atlus, JRPG
+
+Sun, 07 Jun 2026 17:19:14 GMT
+
+https://www.cbr.com/persona-4-revival-release-date-officially-revealed/
+
+Persona 4 Revival finally gets a release date at this year's Summer Game Fest.
+---------
+
+# Netflix Finally Releases Season 4 of George R.R. Martin's Underrated Western
+
+TV, Dark Winds, Netflix
+
+Sun, 07 Jun 2026 17:15:39 GMT
+
+https://www.cbr.com/netflix-dark-winds-season-4-release-date-july-2026/
+
+The series boasts a perfect score.
+---------
+
+# 10 Hardest SNES RPGs of All Time
+
+Games, Nintendo, Video Games, Role Playing Game, Final Fantasy
+
+Sun, 07 Jun 2026 17:15:13 GMT
+
+https://www.cbr.com/official-hardest-snes-rpgs-of-all-time/
+
+The SNES is known for having many of the greatest RPGs of all time, but its library is also home to some of the hardest.
+---------
+
+# The Strangers: Chapter 3 Find Redemption on Streaming
+
+Movies, The Strangers - Chapter 3, Horror
+
+Sun, 07 Jun 2026 17:01:13 GMT
+
+https://www.cbr.com/the-strangers-chapter-3-streaming-success-starz-horror-june-2026/
+
+2026 has been a great year for horror movies, and even one of the genre's worst new additions has finally found its audience.
+---------
+
+# The Star Trek Episode With 'the Best Ending Ever Filmed' According to Michael Dorn (He's Right)
+
+TV, Star Trek, Star Trek: The Next Generation, Sci-Fi
+
+Sun, 07 Jun 2026 16:30:13 GMT
+
+https://www.cbr.com/star-trek-tng-michael-dorn-the-drumhead-best-ending/
+
+This iconic Star Trek episode stands as a testament to the show's ability to create meaningful, cerebral science fiction with longevity.
+---------
+
+# The First $1 Billion Movie of 2026 Is Officially Here
+
+Movies, The Super Mario Galaxy Movie, box office
+
+Sun, 07 Jun 2026 16:19:39 GMT
+
+https://www.cbr.com/the-super-mario-galaxy-movie-billon-dollar-milestone-box-office/
+
+Just halfway through 2026, the new year already has its first blockbuster.
+---------
+
+# Greatest Sci-Fi Anime of the 2000s, Ranked
+
+Anime, Code Geass: Lelouch of the Rebellion, Gurren Lagann
+
+Sun, 07 Jun 2026 16:15:12 GMT
+
+https://www.cbr.com/best-sci-fi-anime-2000s-ranked-list/
+
+From Code Geass to Gurren Lagann, these 2000s anime helped redefine what sci-fi anime could achieve.
+---------
+
+# 6 Lingering Questions I Still Have After the 'Euphoria' Series Finale
+
+TV, Euphoria, Zendaya, HBO, Drama
+
+Sun, 07 Jun 2026 17:33:14 GMT
+
+https://collider.com/euphoria-series-finale-lingering-questions/
+
+As the dust settles on the popular HBO show starring Zendaya, these are the lingering questions we're left with after Euphoria's series finale.
+---------
+
+# 7 Years Later, Chris Hemsworth’s Divisive Sci-Fi Blockbuster Is Getting a Second Chance
+
+Movie News, Men In Black: International, Chris Hemsworth, Tessa Thompson, Tubi
+
+Sun, 07 Jun 2026 17:00:13 GMT
+
+https://collider.com/chris-hemsworth-sci-fi-action-sequel-men-in-black-international-free-streaming-tubi-june-2026/
+
+Chris Hemsworth's critically panned sci-fi franchise-killer, Men in Black: International, is streaming for free this month. Find out more.
+---------
+
+# 10 Greatest Giles Episodes of 'Buffy the Vampire Slayer'
+
+TV, Buffy The Vampire Slayer, Buffy, The WB, Buffy the Vampire Slayer
+
+Sun, 07 Jun 2026 16:45:14 GMT
+
+https://collider.com/best-giles-anthony-head-episodes-buffy-the-vampire-slayer-ranked/
+
+Giles, played by the late Anthony Head, was one of Buffy the Vampire Slayer's best characters, as episodes like "Band Candy" and "Passion" show.
+---------
+
+# Emma Stone's 9-Part Psychological Thriller Is So Good, You'll Wish You Found It Sooner
+
+TV Features, The Curse, Nathan Fielder, Benny Safdie, Emma Stone
+
+Sun, 07 Jun 2026 16:41:14 GMT
+
+https://collider.com/the-curse-psychological-thriller-showtime-emma-stone-nathan-fielder/
+
+Showtime's The Curse, starring Nathan Fielder and Emma Stone, embraces both dark comedy and psychological thriller with its surreal satirical premise.
+---------
+
+# 10 Wild Star Wars Fan Theories Audiences Had When The Original Trilogy Came Out
+
+Movie Lists, Star Wars
+
+Sun, 07 Jun 2026 17:30:19 GMT
+
+https://movieweb.com/star-wars-fan-theories-original-trilogy/
+
+Audiences speculated endlessly during the Original Trilogy, leading to these 10 wild Star Wars fan theories.
+---------
+
+# The 10 Best Steven Spielberg TV Series, Ranked
+
+Movie Lists, Steven Spielberg
+
+Sun, 07 Jun 2026 17:00:19 GMT
+
+https://movieweb.com/steven-spielberg-best-tv-series/
+
+Steven Spielberg has directed some of the most beloved movies, from 'E.T.' to 'The Fabelmans,' but he has made some great TV shows, too.
+---------
+
+# 'Law & Order' Star Tony Goldwyn Opens Up About Replacing Sam Waterston
+
+TV News, Sam Waterston, Law & Order, Tony Goldwyn
+
+Sun, 07 Jun 2026 16:49:52 GMT
+
+https://movieweb.com/law-order-tony-goldwyn-sam-waterston/
+
+How do you replace a 'Law & Order' legend? "I can’t fill Sam’s shoes; that’s impossible. But the character I play is a totally different guy."
+---------
+
 # Backrooms Is Officially A24's Highest-Grossing Movie Ever
 
 Movies, Backrooms, Box Office
