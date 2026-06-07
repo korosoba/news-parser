@@ -1,3 +1,267 @@
+# 10 Greatest Regina Hall Movies, Ranked
+
+Movies, Regina Hall, Ranking
+
+Sun, 07 Jun 2026 12:55:20 GMT
+
+https://screenrant.com/best-regina-hall-movies-ranked/
+
+Regina Hall is one of the most talented, funny, and versatile actors around, which is evident by her best film roles, from Scary Movie to Girls Trip.
+---------
+
+# Darth Maul's Secret Spock Connection Settles The Star Trek Vs. Star Wars Rivalry
+
+Streaming TV, Star Wars, Star Trek, Star Wars: Maul - Shadow Lord, Darth Maul, Spock, Fan Expo
+
+Sun, 07 Jun 2026 12:30:20 GMT
+
+https://screenrant.com/samwitwer-star-wars-darth-maul-shadow-emotional-star-trek-rivalry/
+
+At Denver Fan Expo 2026, actor Sam Witwer revealed a secret connection between Maul and Spock that settles the Star Trek vs. Star Wars rivalry.
+---------
+
+# Avengers: Doomsday’s “Phase Zero” Promise Officially Confirms The Moment We’ve Been Waiting 7 Years For
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Sun, 07 Jun 2026 12:30:20 GMT
+
+https://screenrant.com/avengers-doomsday-phase-zero-endgame-mcu-movie-moment/
+
+The recent comments from the Russo brothers about Avengers: Doomsday being thought of as a "phase zero" movie is promising on more than one level.
+---------
+
+# Marvel Debuts Thor-Tier Hero's New Codename
+
+Marvel Comics, Man-Thing, Marvel
+
+Sun, 07 Jun 2026 12:30:20 GMT
+
+https://screenrant.com/marvel-rename-hero-man-thing/
+
+One of Marvel's most important characters for the multiverse is recruited by Doctor Doom and given a brand-new nickname that suits their origins.
+---------
+
+# Hogwarts Legacy Move Over, There's A Harry Potter RPG Nobody Remembers
+
+Gaming, Hogwarts Legacy, Harry Potter, RPG
+
+Sun, 07 Jun 2026 12:30:20 GMT
+
+https://screenrant.com/harry-potter-rpg-nobody-remembers-chamber-of-secrets/
+
+As great an RPG as Hogwarts Legacy is, this underrated, forgotten Harry Potter RPG may just be one of the best in the entire series.
+---------
+
+# Dutton Ranch Officially Proves Killing Off John Dutton Was The Best Thing For Kevin Costner’s Yellowstone Character
+
+TV, Yellowstone, Dutton Ranch
+
+Sun, 07 Jun 2026 12:00:21 GMT
+
+https://screenrant.com/dutton-ranch-redeem-john-dutton-good/
+
+Dutton Ranch episode 5 evokes John Dutton in a way that smooths over his faults and rehabilitates the former Montana Governor's spotty reputation.
+---------
+
+# 10 Best Indie Games Of 2026 (So Far)
+
+Gaming, Indie Games, PC, Steam, Indie
+
+Sun, 07 Jun 2026 12:00:21 GMT
+
+https://screenrant.com/best-indie-games-june-2026/
+
+Despite the year only being halfway through, 2026 has seen several top-tier indie releases, including a potential GOTY winner.
+---------
+
+# It's Officially Time To Watch The Scariest Found Footage Horror Series You've Never Seen
+
+TV, Horror
+
+Sun, 07 Jun 2026 12:00:21 GMT
+
+https://screenrant.com/scariest-found-footage-horror-series-the-glendale-archives/
+
+One of the most interesting found footage horror series releasing right now has hit the perfect point in its story for new viewers to tune in.
+---------
+
+# 10 Amazing BL Stories For Every Anime Fan
+
+Anime, Banana Fish, Given, Yuri on Ice, Sasaki and Miyano, The Founder of Diabolism, The Stranger by the Shore, Cherry Magic! Thirty Years of Virginity Can Make You a Wizard?!
+
+Sun, 07 Jun 2026 12:00:21 GMT
+
+https://screenrant.com/best-bl-anime-perfect-pride/
+
+Pride Month has finally arrived, and so here are 10 amazing BL stories that every anime fan needs to watch at least once in their life.
+---------
+
+# Xbox Game Pass Stealth Drops Free Game That's Become Breakout Hit
+
+Gaming, Xbox Game Pass
+
+Sun, 07 Jun 2026 11:30:20 GMT
+
+https://screenrant.com/xbox-game-pass-june-2026-stealth-drop-breakout-hit/
+
+Xbox Game Pass has stealth dropped a a free game that's unexpectedly become a viral hit, and if you're a member, you can check it out now.
+---------
+
+# The 6-Part HBO Space Opera That Beats Star Wars at Its Own Game
+
+TV, Star Wars, Dune: Prophecy, Sci-Fi
+
+Sun, 07 Jun 2026 12:30:12 GMT
+
+https://www.cbr.com/dune-prophecy-vs-star-wars-politics/
+
+Star Wars has some of the most iconic sci-fi visuals but still can't measure up to the original space opera.
+---------
+
+# Absolute Green Arrow Hits the Mark With a Bold Mystery Where the Mystery Is Besides the Point
+
+Comics, Green Arrow
+
+Sun, 07 Jun 2026 12:22:52 GMT
+
+https://www.cbr.com/absolute-green-arrow-1-review-mystery-besides-point/
+
+In a CBR review of Absolute Green Arrow #1, learn how the new take on the archer hero centers on a mystery that isn't actually the key to the story
+---------
+
+# 8 '70s Sci-Fi Shows That Deserve to Be Called Masterpieces
+
+TV, Sci-Fi
+
+Sun, 07 Jun 2026 11:30:12 GMT
+
+https://www.cbr.com/70s-sci-fi-tv-masterpieces-list/
+
+Sci-fi television changed a lot during the 1970s, and these specific shows managed to deliver some surprisingly creative and unique stories.
+---------
+
+# Modern Horror Movies Officially Have a Secret Weapon, and It’s Hidden in Plain Sight
+
+Horror, Obsession, Smile, The Evil Dead
+
+Sun, 07 Jun 2026 12:56:13 GMT
+
+https://collider.com/horror-genre-movies-secret-weapon-creepy-smiles/
+
+A smiling face has become one of the most effective tools in horror, with movies like Smile, Obsession, Evil Dead Rise, and more weaponizing them.
+---------
+
+# Prime Video’s Scrapped Stargate Show Reveals a Bigger Problem Facing Sci-Fi TV
+
+TV Features, Stargate SG-1, Stargate, Prime Video, Stargate: Atlantis
+
+Sun, 07 Jun 2026 12:56:13 GMT
+
+https://collider.com/prime-video-stargate-scrapped-reboot-sci-fi-continuity-meaning/
+
+Prime Video recently revealed that it was pumping the breaks on a Stargate revival, yet its reason makes sense.
+---------
+
+# Forget ‘Off Campus,’ the Steamiest Movie of the Decade Is Streaming for Free
+
+Movie News, Challengers, Zendaya, Tubi, Off Campus
+
+Sun, 07 Jun 2026 12:45:14 GMT
+
+https://collider.com/off-campus-replacement-zendaya-steamiest-movie-of-the-decade-challengers-free-streaming-tubi-june-2026/
+
+Fans of Off Campus can check out Zendaya's Challengers, the steamiest movie of the decade, for free this month. Find out more here.
+---------
+
+# The 7 Most Terrifying Horror Movies of the Last 5 Years
+
+Movie, Horror, The Sadness, When Evil Lurks, Longlegs
+
+Sun, 07 Jun 2026 12:35:13 GMT
+
+https://collider.com/scariest-movies-last-5-years-ranked/
+
+From Longlegs, to The Black Phone, to Talk to Me, these modern horror nightmares prove the last five years delivered fear at its most disturbing.
+---------
+
+# 10 Greatest Family Sci-Fi Movies of the Last 50 Years
+
+Movie, Science Fiction, Family, E.T. the Extra-Terrestrial, Frankenweenie
+
+Sun, 07 Jun 2026 12:35:13 GMT
+
+https://collider.com/best-sci-fi-family-movies-last-50-years-ranked/
+
+Megamind and E.T. the Extra-Terrestrial are among the best movies that perfectly balance the wonder of sci-fi and the whimsy of family entertainment.
+---------
+
+# Henry Cavill’s Gritty Crime Thriller Is Officially Surging on Streaming 8 Years Later
+
+Movie News, Night Hunter, Henry Cavill, Paramount Plus, Ben Kingsley
+
+Sun, 07 Jun 2026 12:30:13 GMT
+
+https://collider.com/henry-cavill-gritty-crime-thriller-night-hunter-streaming-success-paramount-plus-june-2026/
+
+Henry Cavill's True Detective replacement is a streaming hit on Paramount+. Here's everything you should know about the thriller.
+---------
+
+# 10 Great Fantasy Shows You'll Wish You Watched Sooner
+
+TV, Fantasy, Game Of Thrones, Arcane, Avatar: The Last Airbender
+
+Sun, 07 Jun 2026 12:21:14 GMT
+
+https://collider.com/best-fantasy-shows-wish-you-watched-sooner/
+
+Explore great fantasy TV shows that deserve your attention because of their captivating stories and immersive worlds, from Game of Thrones to Arcane.
+---------
+
+# Ethan Hawke's Forgotten Sci-Fi Thriller Is So Good, You'll Wish You Found It Sooner
+
+Movie Features, Gattaca, Ethan Hawke, Uma Thurman, Sci-Fi
+
+Sun, 07 Jun 2026 12:19:14 GMT
+
+https://collider.com/ethan-hawke-gattaca-sci-fi-thriller-masterpiece/
+
+The 1997 dystopian sci-fi Gattaca, starring Ethan Hawke, Uma Thurman, and Jude Law, has aged like fine wine nearly 30 years later.
+---------
+
+# 10 Years Later, Gerard Butler’s Fantasy Flop Is Still One of Streaming's Biggest Guilty Pleasures
+
+Movie News, Gods of Egypt, Gerard Butler, Chadwick Boseman, Tubi
+
+Sun, 07 Jun 2026 12:00:13 GMT
+
+https://collider.com/gerard-butler-fantasy-flop-gods-of-egypt-director-feuded-with-critics-free-streaming-tubi-june-2026/
+
+The fantasy flop Gods of Egypt, starring Gerard Butler and Chadwick Boseman, is streaming for free this month. Find out where.
+---------
+
+# Paramount+'s Thrilling 4-Part Fantasy Series Is So Good, You Can Rewatch It Multiple Times
+
+TV Features, The Legend of Korra, Nickelodeon, Paramount Plus, Avatar: The Last Airbender
+
+Sun, 07 Jun 2026 11:57:14 GMT
+
+https://collider.com/legend-of-korra-avatar-the-last-airbender-fantasy-series/
+
+The Legend of Korra, a sequel to Avatar: The Last Airbender, deserves more recognition for its mature themes, complex storylines, and emotional depth.
+---------
+
+# Ridley Scott's 144-Minute Masterpiece War Epic Arrives on Streaming
+
+Movie News, Ridley Scott, Black Hawk Down, Coming/Leaving Streaming, War
+
+Sun, 07 Jun 2026 12:00:19 GMT
+
+https://movieweb.com/ridley-scott-black-hawk-down-war-epic-streaming-peacock-june-2026/
+
+Often cited as one of the most realistic depictions of modern combat ever put on screen, Ridley Scott's 'Black Hawk Down' is truly a masterpiece.
+---------
+
 # Fallout 4 Looks Like Fallout 5 In Unreal Graphics Upgrade
 
 Gaming, Fallout, Fallout 4
