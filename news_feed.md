@@ -1,3 +1,300 @@
+# After Dutton Ranch, Taylor Sheridan's 3-Part Action Thriller Is Officially Returning In 2026
+
+Streaming TV, Masked Recs
+
+Sun, 07 Jun 2026 23:00:22 GMT
+
+https://screenrant.com/lioness-return-season-3-2026-taylor-sheridan-show/
+
+Taylor Sheridan may be on a historic run of new TV Westerns, but his most exciting release of 2026 is a returning action series with an all-star cast.
+---------
+
+# Cyberpunk 2077 Gets Stunning New Official Release We Need Now
+
+Gaming, Cyberpunk 2077
+
+Sun, 07 Jun 2026 23:00:22 GMT
+
+https://screenrant.com/cyberpunk-2077-rog-xbox-ally-rare/
+
+ASUS collaborates with AK Mod and CD Projekt RED to create a stunning, one-of-a-kind ROG Xbox Ally X.
+---------
+
+# Marvel Unleashes Strongest Version of Spider-Man's Sinister Six Ever, Bar None
+
+Comics, Spider-Man
+
+Sun, 07 Jun 2026 23:00:22 GMT
+
+https://screenrant.com/godzilla-infinity-roar-sinister-six/
+
+Marvel and Toho's Godzilla Conquers the Multiverse comic series pits Spider-Man against a powerful new Sinister Six, featuring iconic villains.
+---------
+
+# "Soulless Bastards": Avatar: The Last Airbender Star Calls Out Paramount's Leadership
+
+TV, Avatar: The Last Airbender
+
+Sun, 07 Jun 2026 22:50:40 GMT
+
+https://screenrant.com/avatar-the-last-airbender-paramount-leadership-criticism-greg-baldwin/
+
+Avatar: The Last Airbender actor goes scorched earth on Paramount over the studio's subpar mismanagement of the iconic fantasy action series.
+---------
+
+# Reacher Meets Terminator In Alan Ritchson's New Action Franchise
+
+Movies, Masked Recs
+
+Sun, 07 Jun 2026 22:36:21 GMT
+
+https://screenrant.com/alan-ritchson-new-franchise-war-machine-reacher-meets-terminator/
+
+Alan Ritchson has a new action film on Netflix, and with news of a sequel, the Reacher star is officially an action movie franchise star.
+---------
+
+# What Happened To Rene And Casey Nezhoda After Storage Wars Season 16?
+
+Reality TV, Storage Wars
+
+Sun, 07 Jun 2026 22:30:23 GMT
+
+https://screenrant.com/what-happened-rene-casey-nezhoda-after-storage-wars-season-16-updates/
+
+Rene and Casey Nezhoda are one of reality TV's most famous faces thanks to their Storage Wars appearances. Where are they now after season 16?
+---------
+
+# How Magic: The Gathering Distilled Marvel's Avengers To A Single Set - "It's 60 Years Of Storytelling"
+
+Gaming, Magic: The Gathering, Triple-A Games, Marvel, Summer Game Fest
+
+Sun, 07 Jun 2026 22:30:22 GMT
+
+https://screenrant.com/magic-the-gathering-mark-rosewater-marvel-interview/
+
+The team at Magic: The Gathering had their hands full with the Marvel Super Heroes set, which collects decades of storylines and characters.
+---------
+
+# There'll Never Be a Better Time to Read This Iconic Fantasy Book. Here's Why
+
+Books, Discworld
+
+Sun, 07 Jun 2026 22:30:22 GMT
+
+https://screenrant.com/discworld-novel-reread-charity-terry-pratchett-unseen-academicals/
+
+10k copies given away to support child literacy.
+---------
+
+# 10 Underrated 80s Action Movies Nobody Talks About Today
+
+Movies, The Hidden, The Golden Child, Extreme Prejudice, Code Of Silence, Black Rain, Runaway Train, Blue Thunder, Remo Williams: The Adventure Begins, To Live and Die in L.A.
+
+Sun, 07 Jun 2026 22:25:21 GMT
+
+https://screenrant.com/underrated-80s-action-movies-nobody-remembers/
+
+Many moviegoers know the iconic 80s action blockbusters, but many that have fallen out of conversation today are still worth watching.
+---------
+
+# Apple TV’s 10-Part Crime Thriller With One Of Its Best Casts Is Already A Masterpiece
+
+Streaming TV, Masked Recs
+
+Sun, 07 Jun 2026 22:18:22 GMT
+
+https://screenrant.com/apple-tv-cape-fear-cast-must-watch-series/
+
+Apple TV's 10-part crime thriller series with one of the best casts on the streaming platform can already be considered a modern masterpiece.
+---------
+
+# Dune Director's Underseen Abduction Thriller Turns Into HBO Max Hit 12 Years Later
+
+Movies, Enemy
+
+Sun, 07 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/denis-villeneuve-jake-gyllenhaal-enemy-thriller-hbo-max-success-june-2026/
+
+Denis Villeneuve's psychological thriller has become a surprise hit on HBO Max, 12 years after its release.
+---------
+
+# Crystal Lake Must Finally Answer Friday the 13th’s Biggest Unsolved Mystery
+
+TV, Friday The 13th, Crystal Lake, Peacock
+
+Sun, 07 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/crystal-lake-friday-the-13th-jason-drowning-mystery/
+
+A Peacock prequel series, Crystal Lake, will delve into Pamela Voorhees' early years, potentially clarifying Jason's fate and offering new context to the franchise.
+---------
+
+# 10 Best Movies Based on Video Games of the Last 25 Years, Ranked
+
+Movies, Sonic the Hedgehog 3, The Super Mario Bros. Movie, Mortal Kombat II
+
+Sun, 07 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/best-video-games-movies-last-25-years-list/
+
+Video game movies have come a long way throughout the years, and there are some video game movies that are spectacular.
+---------
+
+# Fox's 3-Season Reboot of Hit Danny Glover Action Franchise Returns as a PVOD Hit 7 Years Later
+
+TV, Lethal Weapon, Action
+
+Sun, 07 Jun 2026 22:30:13 GMT
+
+https://www.cbr.com/lethal-weapon-action-comedy-pvod-success-june-2026/
+
+The underrated reboot of the hit action thriller Lethal Weapon franchise is one of the most-watched shows on PVOD 7 years after finale.
+---------
+
+# 10 Hardest Action RPGs of All Time, Ranked
+
+Games, Role Playing Game, Video Games, Elden Ring, Bloodborne
+
+Sun, 07 Jun 2026 22:15:13 GMT
+
+https://www.cbr.com/hardest-action-rpgs-of-all-time/
+
+The harder an action RPG, the more determined players are to see it straight through to the very end.
+---------
+
+# Ridley Scott's New 6-Episode Horror Series Is Officially Dominating Streaming
+
+TV, The Terror
+
+Sun, 07 Jun 2026 22:00:15 GMT
+
+https://www.cbr.com/ridley-scott-the-terror-devil-in-silver-horror-amc-plus-shudder-success-june-2026/
+
+After receiving near-perfect scores, the show is dominating streaming.
+---------
+
+# The 6 Most Powerful Female Characters In The Lord of the Rings, Ranked
+
+Movies, The Lord of the Rings, Fantasy, The Lord of the Rings: The Rings of Power
+
+Sun, 07 Jun 2026 22:00:15 GMT
+
+https://www.cbr.com/lord-of-the-rings-most-powerful-female-characters-list/
+
+Including maiar, elves, primordial beings, and humans, these women are the most powerful in all of Middle-earth.
+---------
+
+# Bleach Officially Loses Its Throne as Japan Crowns Its Top Anime Series of Summer 2026
+
+Anime, Bleach, Ghost in the Shell, Mushoku Tensei: Jobless Reincarnation
+
+Sun, 07 Jun 2026 22:00:15 GMT
+
+https://www.cbr.com/ghost-in-the-shell-beats-bleach-summer-anime-2026/
+
+As Bleach's Ichigo prepares for his final battles, Japanese viewers get hyped for another iconic anime series set to return in Summer 2026.
+---------
+
+# HBO Max’s Dark 6-Part British Thriller Is Turning Into a Worldwide Phenomenon
+
+TV News, Half Man, Euphoria, HBO Max, Baby Reindeer
+
+Sun, 07 Jun 2026 23:00:15 GMT
+
+https://collider.com/richard-gadd-half-man-streaming-success-hbo-max-june-2026/
+
+Richard Gadd's follow-up to Baby Reindeer is doing battle with Sydney Sweeney's Euphoria on HBO Max. Here's everything you should know.
+---------
+
+# The Best Movie in Star Trek History Has a Secret TV Origin You Never Knew About
+
+TV Features, Star Trek, Star Trek: The Motion Picture, Genesis II, Gene Roddenberry
+
+Sun, 07 Jun 2026 22:46:14 GMT
+
+https://collider.com/star-trek-movie-1979-lost-episode-in-thy-image/
+
+This unseen Star Trek episode served as the foundation for the 1979 film, and it evolved from a one-page concept into a full feature.
+---------
+
+# 'Yellowstone's History-Making Spin-Off Takes Over Streaming
+
+TV News, Dutton Ranch, Yellowstone, Taylor Sheridan, Paramount Plus
+
+Sun, 07 Jun 2026 22:45:14 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-spin-off-western-dutton-ranch-streaming-success-paramount-plus-june-2026/
+
+With a massive record-breaking premiere, Yellowstone's latest spin-off is officially a streaming hit. Get all the details here.
+---------
+
+# 16 Years Later, the MCU's First Sequel Makes a Shock Streaming Comeback on Disney+
+
+Movie News, Iron Man 2, Robert Downey Jr, Scarlett Johansson, Disney+
+
+Sun, 07 Jun 2026 22:30:14 GMT
+
+https://collider.com/robert-downey-jr-first-mcu-sequel-iron-man-2-streaming-success-disney-plus-june-2026/
+
+The most underrated movie in the MCU, starring Scarlett Johansson and Robert Downey Jr., is a streaming hit on Disney+. Read on for more.
+---------
+
+# Netflix’s New R-Rated Hit Is the Perfect Weekend Binge This Month
+
+Movie News, Ladies First, Rosamund Pike, Netflix, Comedy
+
+Sun, 07 Jun 2026 22:15:14 GMT
+
+https://collider.com/rosamund-pike-ladies-first-streaming-success-netflix-june-2026/
+
+The newest R-rated comedy on Netflix, Ladies First starring Rosamund Pike, is officially taking over the world. Here's everything you should know.
+---------
+
+# 19 Years Later, a Matrix Star's Crime Thriller Still Holds Up
+
+Movie News, Disturbia, Shia LaBeouf, Rear Window, Tubi
+
+Sun, 07 Jun 2026 22:00:15 GMT
+
+https://collider.com/matrix-star-carrie-ann-moss-shia-labeouf-rear-window-remake-disturbia-free-streaming-tubi-june-2026/
+
+One of Shia LaBeouf's earliest blockbusters, Disturbia, is streaming for free this month. Find out more about the modernized riff on Rear Window.
+---------
+
+# Rebecca Ferguson's 2-Part Sci-Fi Thriller Masterpiece Rises on Streaming Again
+
+TV News, Silo, Apple TV, Hot on Streaming, Sci-Fi
+
+Sun, 07 Jun 2026 23:00:19 GMT
+
+https://movieweb.com/silo-scifi-streaming-success-apple-june-2026/
+
+Before its final seasons, Apple TV's post-apocalyptic sci-fi thriller 'Silo' is a global streaming success in 2026.
+---------
+
+# The 10 Funniest Movies of the Last 10 Years
+
+Movie Lists, Comedy
+
+Sun, 07 Jun 2026 23:00:19 GMT
+
+https://movieweb.com/funniest-movies-last-10-years/
+
+From box office bombs that became cult hits to a recent Oscar winner, these are the funniest movies of the past decade.
+---------
+
+# 'Masters of the Universe's 7 Biggest Changes to the Lore
+
+Features, Masters of the Universe
+
+Sun, 07 Jun 2026 22:00:21 GMT
+
+https://movieweb.com/masters-of-the-universes-biggest-changes-to-the-lore/
+
+'Masters of the Universe' tries to merge various elements of the franchise mythology together, but also makes some necessary changes.
+---------
+
 # 8 TV Shows That Rewrote The Rules Of Science Fiction
 
 Classic TV
