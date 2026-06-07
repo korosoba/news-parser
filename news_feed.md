@@ -1,3 +1,289 @@
+# Halo: Campaign Evolved Free Download Officially Available For 72 Hours
+
+Gaming, Halo: Campaign Evolved, Halo
+
+Sun, 07 Jun 2026 14:30:20 GMT
+
+https://screenrant.com/halo-campaign-evolved-free-download-june-2026-72-hours/
+
+Halo: Campaign Evolved is set to release later this year, and you can pick up cosmetics for it ahead of time.
+---------
+
+# Don't Expect Reacher Season 4 To Reveal Roscoe's Successor
+
+Streaming TV, Reacher
+
+Sun, 07 Jun 2026 14:30:20 GMT
+
+https://screenrant.com/reacher-season-4-no-roscoe-successor/
+
+While Roscoe was a significant love interest for Reacher, season 4 of the hit action thriller does not feature his next major romance storyline.
+---------
+
+# Disney+'s $1 Billion Smash Hit Sci-Fi Movie Has One Of Its Best Casts
+
+Movies, Masked Recs
+
+Sun, 07 Jun 2026 14:16:21 GMT
+
+https://screenrant.com/rogue-one-disney-plus-star-wars-best-cast/
+
+One of Disney's most successful sci-fi movies also features one of the studio's best casts. The actors elevated the story to a whole new level.
+---------
+
+# 10 Underrated 90s Sci-Fi Movies Nobody Talks About Today
+
+Movies, Timecop, Split Second, Small Soldiers, Screamers, Johnny Mnemonic, Cube, Soldier, Hardware, The Thirteenth Floor, Virtuosity
+
+Sun, 07 Jun 2026 14:15:21 GMT
+
+https://screenrant.com/underrated-90s-scifi-movies-nobody-remembers/
+
+The 90s were an incredible time for the sci-fi genre, but many movies have faded into obscurity that are still worth watching today.
+---------
+
+# My Hero Academia Meets Detective Conan In Shonen Jump's Biggest Sleeper Hit Of 2026
+
+Anime, Masked Recs, Shonen Jump
+
+Sun, 07 Jun 2026 14:01:21 GMT
+
+https://screenrant.com/kill-blue-my-hero-academia-meets-detective-conan-2026/
+
+Shonen Jump's biggest sleeper hit series of 2026 is the perfect anime for fans of My Hero Academia and Detective Conan, and it is airing right now.
+---------
+
+# Apple TV’s New 10-Part Martin Scorsese & Steven Spielberg Remake Has The Perfect Villain
+
+Streaming TV, Masked Recs
+
+Sun, 07 Jun 2026 14:01:21 GMT
+
+https://screenrant.com/cape-fear-apple-tv-remake-perfect-villain-javier-bardem-max-cady/
+
+Martin Scorsese and Steven Spielberg have teamed up to produce the TV remake of a classic movie, with the perfect actor to play its central villain.
+---------
+
+# Legend Of Zelda: Wind Waker Open-World Sequel Is Everything We've Ever Wanted
+
+Gaming, The Legend of Zelda
+
+Sun, 07 Jun 2026 14:01:21 GMT
+
+https://screenrant.com/zelda-wind-waker-sequel-open-world-trailer-concept-reaction/
+
+Discover how a fan-created concept trailer imagines The Legend of Zelda: Wind Waker transformed into an open-world adventure.
+---------
+
+# Stephen King Sci-Fi Movie Surges On Streaming Ahead Of Mike Flanagan’s New Prime Video Adaptation
+
+Movies, Masked Recs
+
+Sun, 07 Jun 2026 13:53:48 GMT
+
+https://screenrant.com/the-dark-tower-movie-hbo-max-streaming-success-june-2026/
+
+Before Mike Flanagan adapts the story as a Prime Video series, this Stephen King science-fiction movie is becoming a global streaming hit.
+---------
+
+# All 6 Scary Movie Films, Ranked
+
+Movies, Scary Movie, Ranking
+
+Sun, 07 Jun 2026 13:45:21 GMT
+
+https://screenrant.com/scary-movie-film-franchise-ranked/
+
+The Scary Movie franchise has returned with its first installment in 13 years, and where does the latest horror spoof fit into the series ranking?
+---------
+
+# Paramount May Sell Nickelodeon And Cartoon Network As WBD Merger Becomes Unstable
+
+TV, Paramount Pictures
+
+Sun, 07 Jun 2026 13:41:55 GMT
+
+https://screenrant.com/paramount-nickelodeon-cartoon-network-sale-warner-bros-merger/
+
+Paramount may have to sell major kids' TV networks, including Nickelodeon and Cartoon Network, to save the WBD merger from EU ruling.
+---------
+
+# Returning Lord of the Rings Star Gives Disappointing Update About The Hunt for Gollum Role
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, The Hobbit
+
+Sun, 07 Jun 2026 14:42:31 GMT
+
+https://www.cbr.com/lord-of-the-rings-disappointing-update-gollum/
+
+This isn't what Lord of the Rings fans wanted to hear about the iconic character portrayed by Elijah Wood.
+---------
+
+# 6 Times Witch Hat Atelier Felt More Like a Studio Ghibli Film Than a Manga
+
+Anime, Witch Hat Atelier, Studio Ghibli, Manga
+
+Sun, 07 Jun 2026 14:15:13 GMT
+
+https://www.cbr.com/witch-hat-atelier-feels-like-studio-ghibli/
+
+Witch Hat Atelier has burst onto the scene with beautiful art and thoughtful themes, which might remind readers fondly of Studio Ghibli.
+---------
+
+# Transformers Gives Abominus an Adorable Makeover in New First Look
+
+Anime, Transformers, merchandise
+
+Sun, 07 Jun 2026 14:00:14 GMT
+
+https://www.cbr.com/transformers-terrorcon-combiner-new-first-look/
+
+The classic Transformers Generation 1 Terrorcons are receiving a super-deformed set of modern toys, giving Abominus his cutest action figure yet.
+---------
+
+# Dungeons & Dragons Confirms the Return of a Long-Forgotten Villain
+
+Comics, Dungeons and Dragons
+
+Sun, 07 Jun 2026 14:00:14 GMT
+
+https://www.cbr.com/dungeons-dragons-total-party-killers-2-release-date-confirmed/
+
+Dungeons& Dragons fans just learned which long-lost villain is about to take center stage in one of the most terrifying adventures of the year.
+---------
+
+# House of the Dragon Boss Details Why HBO Delayed the Dance of the Dragons’ Biggest Battle
+
+TV, House of the Dragon, Game Of Thrones
+
+Sun, 07 Jun 2026 13:43:16 GMT
+
+https://www.cbr.com/house-of-the-dragon-hbo-delayed-biggest-battle/
+
+Co-creator and showrunner Ryan Condal promises House of the Dragon fans a season premiere "unlike anything that’s ever been done" after a major delay
+---------
+
+# George Clooney Said 'Every Episode Was Like The Godfather' While Hailing This 89% RT Netflix Crime Show
+
+TV, Narcos, Netflix, george clooney
+
+Sun, 07 Jun 2026 13:30:13 GMT
+
+https://www.cbr.com/george-clooney-narcos-the-godfather-comparison/
+
+George Clooney compared this hard-hitting Netflix show to a classic film epic, and for good reason.
+---------
+
+# Every Akatsuki Member In Naruto, Ranked by Style
+
+Anime, Naruto, Naruto: Shippuden
+
+Sun, 07 Jun 2026 13:15:12 GMT
+
+https://www.cbr.com/naruto-akatsuki-ranked-by-style/
+
+The Akatsuki in Naruto is filled with some of the most visually memorable characters in the story.
+---------
+
+# Mads Mikkelsen's Oscar-Winning Drama Is Officially Streaming on Netflix
+
+Movies, Another Round
+
+Sun, 07 Jun 2026 13:00:15 GMT
+
+https://www.cbr.com/mads-mikkelsen-another-round-now-streaming-netflix/
+
+Mikkelsen's hit dark comedy-drama arrives on Netflix six years after its theatrical debut just as news of a remake drops.
+---------
+
+# 5 MCU Weapons More Powerful Than the Infinity Gauntlet, Ranked
+
+Movies, Marvel Cinematic Universe
+
+Sun, 07 Jun 2026 13:00:15 GMT
+
+https://www.cbr.com/mcu-weapons-more-powerful-than-infinity-gauntlet-list/
+
+While the Infinity Gauntlet may be the most memorable weapon in the MCU, there are others that are far more powerful.
+---------
+
+# New WWII Sleeper Hit Sinks the Greatest Submarine Movie Ever Made at the Box Office
+
+Movie News, Pressure, Das Boot, Box Office, Brendan Fraser
+
+Sun, 07 Jun 2026 14:15:14 GMT
+
+https://collider.com/new-ww2-movie-pressure-overtakes-das-boot-box-office-11-million/
+
+Pressure has overtaken the classic World War 2 submarine movie Das Boot at the domestic box office.
+---------
+
+# Steven Spielberg's New Sci-Fi Blockbuster Officially Arrives in 5 Days
+
+Movie News, Steven Spielberg, Disclosure Day, Emily Blunt, Sci-Fi
+
+Sun, 07 Jun 2026 13:45:14 GMT
+
+https://collider.com/steven-spielberg-disclosure-day-sci-fi-blockbuster-release-date/
+
+The most anticipated sci-fi blockbuster of the year officially releases this week after months of hype.
+---------
+
+# Tommy Lee Jones Sued Paramount Into Oblivion After 'No Country for Old Men'
+
+Movie Features, No Country for Old Men, Tommy Lee Jones, Paramount, Western
+
+Sun, 07 Jun 2026 13:31:12 GMT
+
+https://collider.com/no-country-for-old-men-lawsuit-tommy-lee-jones-sues-paramount/
+
+After the huge success of No Country for Old Men, Tommy Lee Jones sued Paramount Pictures for millions of dollars. Here's why.
+---------
+
+# 10 Shows That Are Better Binge Watches Than 'Breaking Bad'
+
+TV, Breaking Bad, The Wire, Better Call Saul, Succession
+
+Sun, 07 Jun 2026 13:18:13 GMT
+
+https://collider.com/tv-shows-better-binge-watches-than-breaking-bad/
+
+Dark, Narcos, and Succession are even harder to stop watching than Breaking Bad, alongside TV’s most addictive binge-worthy shows.
+---------
+
+# Jessica Chastain's 98-Minute Thriller Is Finally Finding Its Audience on Streaming
+
+Movie News, Jessica Chastain, Dreams, Thriller, Rupert Friend
+
+Sun, 07 Jun 2026 13:00:15 GMT
+
+https://collider.com/dreams-jessica-chastain-thriller-streaming-success-june-2026/
+
+Jessica Chastain’s thriller Dreams is finding its audience on streaming, giving the 98-minute film new momentum.
+---------
+
+# 'The Leader' Review: The Disturbing Story of the Heaven's Gate Cult
+
+4 star movies, Drama, Film Festival Reviews, Thriller, Tim Blake Nelson, Vera Farmiga
+
+Sun, 07 Jun 2026 14:46:35 GMT
+
+https://movieweb.com/the-leader-review/
+
+Tim Blake Nelson and Vera Farmiga brilliantly portray the twisted relationship of the Heaven's Gate cult founders.
+---------
+
+# Star Trek's Multiverse Episodes Still Haven't Topped This 32-Year-Old Classic
+
+Features, Star Trek: The Next Generation, Star Trek
+
+Sun, 07 Jun 2026 14:00:20 GMT
+
+https://movieweb.com/star-trek-best-multiverse-episode/
+
+There are several great Star Trek multiverse episodes, but "Parallels" dared to be different in a way that's never been repeated.
+---------
+
 # 10 Greatest Regina Hall Movies, Ranked
 
 Movies, Regina Hall, Ranking
