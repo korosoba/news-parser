@@ -1,3 +1,311 @@
+# Steam's New 96% Positive Indie Game Is Officially Free To Play Now
+
+Gaming, Steam, PC
+
+Sun, 07 Jun 2026 05:00:20 GMT
+
+https://screenrant.com/steam-new-95-positive-2026-indie-hit-free-demo/
+
+This new indie game on Steam has 96% positive user ratings and is officially free to try out, with hundreds of glowing reviews.
+---------
+
+# Diablo 4 Free Download Officially Yours To Claim For Next 72 Hours
+
+Gaming, Diablo, Diablo 4
+
+Sun, 07 Jun 2026 04:30:20 GMT
+
+https://screenrant.com/diablo-4-free-download-june-2026-72-hours/
+
+Diablo IV is in a great spot right now, and if you're planning on playing, you can grab yourself a worthwhile download.
+---------
+
+# Pokémon Alolan Seaglass Is Taking Players Back To The Sun & Moon Era
+
+Gaming, Pokemon, Triple-A Games
+
+Sun, 07 Jun 2026 04:02:21 GMT
+
+https://screenrant.com/pokemon-alolan-seaglass-rom-hack-2026-sun-moon/
+
+The Pokémon series isn't showing any signs of fatigue, and players are extremely happy to return to the beloved Alola region.
+---------
+
+# Steven Spielberg Reveals His Official Verdict On New Horror Movie Obsession
+
+Movies
+
+Sun, 07 Jun 2026 03:58:55 GMT
+
+https://screenrant.com/obsession-movie-review-steven-spielberg/
+
+Steven Spielberg shares his review of Obsession.
+---------
+
+# Christopher Nolan's The Odyssey Sets Ticket Sale Record In 4 Years
+
+Movies, The Odyssey, Christopher Nolan
+
+Sun, 07 Jun 2026 03:51:52 GMT
+
+https://screenrant.com/christopher-nolan-the-odyssey-amc-highest-premium-large-format-ticket-sale-record/
+
+Ahead of its July release, Christopher Nolan's The Odyssey is already breaking a record after a recent ticket drop caused AMC buyers to wait hours.
+---------
+
+# 5 Reasons Avengers: Doomsday’s “Phase Zero” Plan Is A Great Idea (& 5 Reasons It Makes No Sense)
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe, Russo Bros
+
+Sun, 07 Jun 2026 03:47:24 GMT
+
+https://screenrant.com/avengers-doomsday-phase-zero-russo-brothers-makes-no-sense/
+
+On the one hand, the Russo Brothers' "Phase Zero" comments make sense after the struggles of the Multiverse Saga, but it's not a perfect concept.
+---------
+
+# God of War Laufey Redeems One Of The Worst Features From Ragnarok
+
+Gaming, God of War Laufey, God of War, PlayStation 5
+
+Sun, 07 Jun 2026 03:30:21 GMT
+
+https://screenrant.com/god-of-war-laufey-banter-feature-reaction/
+
+A major issue in God of War Ragnarok is actually being redeemed in the upcoming spin-off God of War Laufey, although some fans may not be happy.
+---------
+
+# Henry Cavill's 5 Spy Roles, Ranked Worst To Best
+
+Movies, Henry Cavill
+
+Sun, 07 Jun 2026 03:16:52 GMT
+
+https://screenrant.com/henry-cavill-spy-roles-ranked/
+
+While Henry Cavill is best known for his fantasy/superhero roles like the Witcher and Superman, he has also  portrayed quite a few spy characters.
+---------
+
+# Why Thomas Gibson Was Fired From Criminal Minds & What He's Doing Now
+
+Network TV, Criminal Minds
+
+Sun, 07 Jun 2026 03:01:22 GMT
+
+https://screenrant.com/criminal-minds-thomas-gibson-fired-hotch-exit/
+
+FBI Agent Aaron Hotchner actor Thomas Gibson was abruptly fired from Criminal Minds after 12 seasons in the show's main cast - here's why.
+---------
+
+# 10 Worst Anime Adaptations Of Great Manga
+
+Anime
+
+Sun, 07 Jun 2026 03:01:20 GMT
+
+https://screenrant.com/worst-anime-adaptations-great-manga/
+
+10 anime that failed to capture the essence of their manga counterparts, resulting in subpar experiences that don't do the original stories justice.
+---------
+
+# In Just 1 Day, Paramount+'s Surprise Video Game Adaptation Turns Into an Instant Streaming Hit
+
+TV, Among Us, Paramount+ with Showtime
+
+Sun, 07 Jun 2026 03:55:28 GMT
+
+https://www.cbr.com/paramount-plus-among-us-streaming-success/
+
+The newest video game adaptation is blowing up on the streaming charts after its quiet release on Paramount+.
+---------
+
+# 5 Anime Characters Stronger Than Luffy
+
+Anime, One Piece, Dragon Ball, Bleach
+
+Sun, 07 Jun 2026 03:45:13 GMT
+
+https://www.cbr.com/anime-characters-stronger-than-luffy-list/
+
+Luffy is the strongest of the Straw Hat Pirates in One Piece, but he'd be in big trouble if his ship ever sailed the seas of these iconic characters.
+---------
+
+# Disney's 'Breathtaking' Sci-Fi Series Beats Star Wars at Its Own Game
+
+Movies, Planet of the Apes, Star Wars
+
+Sun, 07 Jun 2026 03:40:13 GMT
+
+https://www.cbr.com/disney-planet-of-the-apes-sci-fi-series-better-prequel-than-star-wars/
+
+Star Wars is an iconic sci-fi franchise that deserves the praise it gets, but the Planet of the Apes trilogy did things it never could.
+---------
+
+# “Don’t Be Ashamed of the Thing You’re Writing” - M.A.S.K. Creators on Bringing Their Comic to the G.I.Joe/Transformers Universe
+
+Comics, MASK
+
+Sun, 07 Jun 2026 03:39:49 GMT
+
+https://www.cbr.com/mask-creators-dan-watters-pye-parr-interview-transformers-gi-joe/
+
+In a CBR exclusive interview with the writer and artist of the upcoming Energon Universe M.A.S.K. comic, learn the creative philosophy behind the book
+---------
+
+# Marlon Wayans Reveals White Chicks 2 Concept After Scary Movie Success
+
+Movies, White Chicks
+
+Sun, 07 Jun 2026 03:30:16 GMT
+
+https://www.cbr.com/white-chicks-2-story-idea-marlon-wayans/
+
+Marlon Wayans reveals the idea he has in mind for a White Chicks sequel, which might finally happen after Scary Movie's box office success.
+---------
+
+# Zenless Zone Zero Officially Hits Steam June 17 With Its Strongest New Update Yet
+
+Anime, Genshin Impact, Steam, JRPG
+
+Sun, 07 Jun 2026 03:30:13 GMT
+
+https://www.cbr.com/zenless-zone-zero-season-3-steam-release/
+
+The urban fantasy action JRPG Zenless Zone Zero is finally making its official Steam debut this June in time for its major Season 3 update.
+---------
+
+# 6 Sci-Fi Shows Better Than Stargate SG-1
+
+TV, Sci-Fi, Stargate SG-1
+
+Sun, 07 Jun 2026 03:30:13 GMT
+
+https://www.cbr.com/sci-fi-shows-better-stargate-sg1-list/
+
+Stargate SG-1 may be one of the greatest sci-fi television series of all time, but these shows surpass it in quality and impact.
+---------
+
+# 10 Near-Perfect 2000s Games Nobody Remembers
+
+Games, Video Games, Nintendo, PlayStation 2
+
+Sun, 07 Jun 2026 03:15:13 GMT
+
+https://www.cbr.com/near-perfect-forgotten-2000s-games-list/
+
+These cult classic games from the 2000s have been lost to time, but their unique stories and innovative gameplay deserve another look.
+---------
+
+# 5 Flawless Mystery Movies Better Than Knives Out
+
+Movies, Knives Out, Mystery, Zodiac
+
+Sun, 07 Jun 2026 03:10:14 GMT
+
+https://www.cbr.com/best-mystery-movies-better-than-knives-out-list/
+
+Knives Out is an excellent mystery movie, but these five mystery masterpieces are even better.
+---------
+
+# 10 Best Manga You Can Officially Read for Free On the VIZ App
+
+Anime, Inuyasha, Frieren: Beyond Journey's End, Zom 100: Bucket List of the Dead, Manga
+
+Sun, 07 Jun 2026 02:45:13 GMT
+
+https://www.cbr.com/best-free-manga-viz-app-list/
+
+The VIZ App is one of many mobile apps that make manga easier to access, and these ten blockbuster titles are the best manga series you can find.
+---------
+
+# 10 Actors Who Appeared in Both Harry Potter and Star Wars
+
+Movie, Star Wars, Harry Potter and the Sorcerer's Stone, Warwick Davis, David Tennant
+
+Sun, 07 Jun 2026 03:39:14 GMT
+
+https://collider.com/harry-potter-actors-in-star-wars/
+
+From David Tennant to Warwick Davis, these 10 actors have graced the screen in both Harry Potter and Star Wars.
+---------
+
+# The Anime Everyone Called Overrated Just Made Crunchyroll History
+
+TV Features, Solo Leveling, Crunchyroll, Demon Slayer, Jujutsu Kaisen
+
+Sun, 07 Jun 2026 03:07:15 GMT
+
+https://collider.com/crunchyroll-solo-leveling-anime-history-one-million-ratings/
+
+Solo Leveling just hit a major milestone, as it's become the first anime in Crunchyroll's library to hit one million views.
+---------
+
+# 6 Near-Perfect Hard Sci-Fi Shows on Apple TV, Ranked
+
+TV, Apple TV, Sci-Fi, Silo, Dark Matter
+
+Sun, 07 Jun 2026 02:33:14 GMT
+
+https://collider.com/near-perfect-hard-sci-fi-shows-apple-tv/
+
+From Silo to For All Mankind, Dark Matter to Foundation, Apple TV has hard sci-fi shows on lock.
+---------
+
+# One of the Biggest ’80s Horror Hits Was Almost Dead Before It Ever Hit Theaters
+
+Exclusives, Gremlins, Warner Bros., Horror, Gremlins 2: The New Batch
+
+Sun, 07 Jun 2026 02:00:26 GMT
+
+https://collider.com/gremlins-zach-galligan-dead-on-arrival-warner-bros-unexpected-success/
+
+Original Gremlins star Zach Galligan revealed that Warner Bros. had no belief in the beloved horror-comedy classic at first glance.
+---------
+
+# 8 Near-Perfect Western Shows That No One Remembers Today
+
+TV, Western, Joe Pickett, The Son, Billy the Kid
+
+Sun, 07 Jun 2026 01:04:13 GMT
+
+https://collider.com/near-perfect-western-shows-no-one-remembers/
+
+From the modern crime drama Joe Pickett to Pierce Brosnan's AMC series The Son, these Western shows have been largely forgotten by audiences.
+---------
+
+# Jason Statham's Answer to 'John Wick' Makes a Shock Streaming Comeback
+
+Movie News, Jason Statham, A Working Man, HBO Max, John Wick
+
+Sun, 07 Jun 2026 00:15:13 GMT
+
+https://collider.com/jason-statham-john-wick-replacement-a-working-man-streaming-success-hbo-max-june-2026/
+
+A Working Man, Jason Statham's John Wick-esque action thriller, has become a #1 late-night favorite on HBO Max.
+---------
+
+# 5 Darkest Superhero Shows Perfect for Fans of 'The Boys'
+
+TV, The Boys, Peacemaker, Invincible, Gen V
+
+Sun, 07 Jun 2026 00:09:14 GMT
+
+https://collider.com/dark-superhero-shows-perfect-for-fans-of-the-boys/
+
+Now that The Boys has ended, fans of the dark and edgy superhero show will likely enjoy shows like Gen V, Invincible, and Peacemaker.
+---------
+
+# 10 Biggest Unanswered Questions from Kane Parsons’ ‘Backrooms’
+
+Features, Backrooms, Horror, Kane Parsons
+
+Sun, 07 Jun 2026 02:00:12 GMT
+
+https://movieweb.com/backrooms-10-biggest-unanswered-questions/
+
+Kane Parsons' hit horror movie 'Backrooms' acts as a companion piece to his popular web series, but it only adds to the Backrooms' pile of mysteries.
+---------
+
 # GTA 6 Fans Aren’t Scared Of This Major AAA Game Releasing At The Same Time
 
 Gaming, Grand Theft Auto 6, Call of Duty: Modern Warfare 4, Triple-A Games
