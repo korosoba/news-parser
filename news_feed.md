@@ -1,3 +1,278 @@
+# GTA 6 Fans Aren’t Scared Of This Major AAA Game Releasing At The Same Time
+
+Gaming, Grand Theft Auto 6, Call of Duty: Modern Warfare 4, Triple-A Games
+
+Sun, 07 Jun 2026 00:00:22 GMT
+
+https://screenrant.com/gta-6-call-of-duty-release-date-close/
+
+Grand Theft Auto 6 is scaring away any game that would be its competition this holiday season, with one big game standing up against it.
+---------
+
+# ABC’s Live-Action Star Wars Show Would Have Had A Big Advantage Over The Mandalorian
+
+Network TV, Star Wars
+
+Sun, 07 Jun 2026 00:00:22 GMT
+
+https://screenrant.com/star-wars-abc-live-action-show-advantage-network-tv/
+
+The Mandalorian was the gateway to a long list of live-action Star Wars TV shows on Disney+, but ABC once had one in the works that had an advantage.
+---------
+
+# 8 Daniel Day Lewis Performances That Are Considered Masterpieces
+
+Movies, Daniel Day-Lewis
+
+Sun, 07 Jun 2026 00:00:22 GMT
+
+https://screenrant.com/best-daniel-day-lewis-performances-movies/
+
+Daniel Day-Lewis' legendary dramatic prowess and method acting are patent through eight of his most celebrated performances, from 1989 to 2017.
+---------
+
+# Baldur's Gate 3: Cosmic Vessel Expansion Gets Massive Update With Official New Trailer
+
+Gaming, Baldur's Gate 3, PC
+
+Sat, 06 Jun 2026 23:58:56 GMT
+
+https://screenrant.com/baldurs-gate-3-cosmic-vessel-mod-june-2026-update/
+
+Baldur's Gate 3: Cosmic Vessel just got an exciting and massive new update with an official showcase trailer from developers you can check out now.
+---------
+
+# Guillermo del Toro’s Review For New Apple TV Horror Proves Its 1 Of The Greatest This Century
+
+Streaming TV, Masked Recs
+
+Sat, 06 Jun 2026 23:45:20 GMT
+
+https://screenrant.com/guillermo-del-toro-widows-bay-masterpiece/
+
+Guillermo del Toro just dropped a rave review for Apple TV’s Widow’s Bay, which proves that the TV series is one of the greatest from this century.
+---------
+
+# Star Wars Introduces A New Bounty Hunter That Makes Boba Fett Look Weak
+
+Streaming TV, Star Wars, Masked Recs
+
+Sat, 06 Jun 2026 23:30:21 GMT
+
+https://screenrant.com/star-wars-visions-sevn-bounty-hunter-stronger-than-fett/
+
+Boba Fett may be Star Wars' most iconic bounty hunter, but he's no longer the franchise's most fearsome bounty hunter. Others have surpassed him.
+---------
+
+# 19 Years Later, Stan Lee’s Best Marvel Movie Cameo Hits So Much Harder
+
+Comics, Stan Lee, Marvel
+
+Sat, 06 Jun 2026 23:30:21 GMT
+
+https://screenrant.com/stan-lee-best-marvel-movie-cameo-explained/
+
+Stan Lee made himself a lasting part of Marvel's cinematic history through dozens of cameos across the franchise's films. Here's his best one.
+---------
+
+# Cyberpunk 2077 Sequel Graphics Teased In New Showcase
+
+Gaming, Cyberpunk 2077
+
+Sat, 06 Jun 2026 23:30:21 GMT
+
+https://screenrant.com/cyberpunk-2077-graphics-update-sequel-showcase/
+
+Digital Dreams YouTube page reveals stunning 8K graphics using RTX 5090 and 9800X3D in a Cyberpunk 2077 showcase.
+---------
+
+# Casting Naruto's Five Kage In Live-Action: 5 Actors Who'd Be Perfect
+
+Movies, Naruto
+
+Sat, 06 Jun 2026 23:18:21 GMT
+
+https://screenrant.com/naruto-casting-five-kage-live-action/
+
+When the live-action Naruto film franchise eventually kicks off, the legendary Five Kage of Shippuden will need to be cast - so who should they be?
+---------
+
+# The Walking Dead: Dead City Season 3 Teases Negan Alliance
+
+TV, The Walking Dead: Dead City
+
+Sat, 06 Jun 2026 23:06:18 GMT
+
+https://screenrant.com/the-walking-dead-dead-city-season-3-preview-negan-dillard-alliance/
+
+A preview for The Walking Dead: Dead City season 3 hints at a dark alliance between the franchise's most dangerous character and a newcomer.
+---------
+
+# Demon Slayer: Infinity Castle Suffers Major Streaming Blow in Latest Update
+
+Anime, Demon Slayer: Kimetsu no Yaiba Infinity Castle
+
+Sun, 07 Jun 2026 00:00:14 GMT
+
+https://www.cbr.com/demon-slayer-infinity-castle-streaming-delayed/
+
+Fans worldwide will now have to wait much longer to watch Infinity Castle on streaming platforms.
+---------
+
+# All 8 Movies From Disney's Bronze Age, Ranked
+
+Movies, Disney, Disney+, Fantasy
+
+Sun, 07 Jun 2026 00:00:14 GMT
+
+https://www.cbr.com/every-disney-bronze-age-movie-ranked/
+
+From 1970 to 1988, Disney's animation studio went through the Bronze Age, producing underrated classics and admittedly a few misses.
+---------
+
+# Strongest Anime Characters Sung Jinwoo Can Beat in a Fight
+
+Anime, Solo Leveling, Dragon Ball, Jujutsu Kaisen
+
+Sat, 06 Jun 2026 23:45:13 GMT
+
+https://www.cbr.com/strongest-characters-solo-leveling-sung-jinwoo-defeat-list/
+
+Saitama and Goku are known for being the most overpowered anime heroes, but they actually wouldn't stand a chance against Solo Leveling’s Sung Jinwoo.
+---------
+
+# Star Trek's Most Rewatchable Episode Is Still Trek's Greatest Kirk Story
+
+TV, Star Trek, Star Trek: The Original Series, Sci-Fi
+
+Sat, 06 Jun 2026 23:31:14 GMT
+
+https://www.cbr.com/star-trek-city-on-the-edge-of-forever-greatest-captain-kirk-story/
+
+One of the most iconic and rewatchable episodes of Star Trek: The Original Series is also one of the greatest stories about Captain James T. Kirk.
+---------
+
+# MAPPA’s Best Anime Released in 2026
+
+Anime, mappa, Chainsaw Man - The Movie: Reze Arc, Hell's Paradise: Jigokuraku, Jujutsu Kaisen, Dorohedoro
+
+Sat, 06 Jun 2026 23:15:14 GMT
+
+https://www.cbr.com/mappa-best-anime-2026-jjk-chainsaw-man-dorohedoro/
+
+MAPPA's 2026 anime releases deliver an incredible lineup of cinema-quality animated content.
+---------
+
+# In Just 1 Day, Netflix's New 3-Part Crime Series With 100% RT Is Officially 1 of the Most-Watched Shows in the World
+
+TV, The Witness, Netflix
+
+Sat, 06 Jun 2026 23:00:15 GMT
+
+https://www.cbr.com/the-witness-true-crime-netflix-success-june-2026/
+
+The true crime series convinced critics and turned into an instant streaming hit.
+---------
+
+# 5 Perfect '80s Western TV Shows
+
+TV, Western, Best of the West, Lonesome Dove
+
+Sat, 06 Jun 2026 23:00:15 GMT
+
+https://www.cbr.com/best-1980s-western-tv-shows-list/
+
+Discover the best '80s Western TV shows that kept the genre alive, including The Yellow Rose and Lonesome Dove.
+---------
+
+# Forget ‘Top Gun: Maverick,’ Tom Cruise’s Most Insane Action Sequel Is Streaming for Free This Month
+
+Movie News, Mission: Impossible - Ghost Protocol, Mission: Impossible, Tom Cruise, Jeremy Renner
+
+Sun, 07 Jun 2026 00:00:14 GMT
+
+https://collider.com/tom-cruise-insane-action-sequel-mission-impossible-ghost-protocol-free-streaming-pluto-june-2026/
+
+Mission: Impossible — Ghost Protocol is streaming for free this month; it features Tom Cruise’s wild Burj Khalifa stunt. Find out more here.
+---------
+
+# The Best Mystery Series of All Time Is Surging on Streaming 30 Years After It Ended
+
+TV Features, Murder, She Wrote, Angela Lansbury, CBS, Mystery
+
+Sat, 06 Jun 2026 23:52:14 GMT
+
+https://collider.com/murder-she-wrote-streaming-apple-tv-store/
+
+Angela Lansbury's Jessica Fletcher rewrote TV detective tropes in Murder, She Wrote, an iconic cozy mystery series that endures 30 years later.
+---------
+
+# Bosch’s Titus Welliver Officially Returns to Amazon This Year for New Crime Thriller
+
+TV News, The Westies, Titus Welliver, J.K. Simmons, Bosch
+
+Sat, 06 Jun 2026 23:45:13 GMT
+
+https://collider.com/bosch-star-titus-welliver-new-crime-thriller-the-westies-release-date-july-12-2026-amazon-mgm/
+
+Bosch star Titus Welliver will return to Amazon later this year for a new crime thriller show with J.K. Simmons, The Westies. Read on for details.
+---------
+
+# 'Twin Peaks' Meets Stephen King in This Forgotten Supernatural 3-Part Miniseries
+
+TV Features, Storm of the Century, Stephen King, Colm Feore, Twin Peaks
+
+Sat, 06 Jun 2026 23:36:14 GMT
+
+https://collider.com/twin-peaks-stephen-king-storm-of-the-century-miniseries/
+
+Stephen King's Storm of the Century miniseries delves into the psychological horror of a small Maine town under the influence of an enigmatic visitor.
+---------
+
+# 4 Years Later, Glen Powell’s Iconic Action Sequel Still Holds Up
+
+Movie News, Top Gun: Maverick, Tom Cruise, Glen Powell, Top Gun
+
+Sat, 06 Jun 2026 23:30:14 GMT
+
+https://collider.com/glen-powell-iconic-action-sequel-top-gun-maverick-free-streaming-pluto-june-2026/
+
+Top Gun: Maverick, the billion-dollar Oscar-winning sequel starring Tom Cruise and Glen Powell, is streaming for free on Pluto. Find out more here.
+---------
+
+# HBO’s 3-Part Crime Thriller Is the Perfect Weekend Binge for Batman Fans
+
+TV News, Pennyworth, HBO Max, The Penguin, The Batman
+
+Sat, 06 Jun 2026 23:15:14 GMT
+
+https://collider.com/hbo-max-crime-thriller-pennyworth-streaming-success-june-2026-batman/
+
+Pennyworth, the Batman spin-off focused on the famous Wayne family butler, has become the perfect weekend binge for Dark Knight fans.
+---------
+
+# 28 Years Later, Steven Spielberg’s Near-Perfect WWII Masterpiece Is Free To Stream
+
+Movie News, Saving Private Ryan, World War II, Steven Spielberg, Tom Hanks
+
+Sat, 06 Jun 2026 23:00:16 GMT
+
+https://collider.com/steven-spielberg-near-perfect-ww2-masterpiece-saving-private-ryan-free-streaming-pluto-june-2026/
+
+The best WW2 epic ever made, Tom Hanks and Steven Spielberg's Saving Private Ryan, makes its way to free streaming this month.
+---------
+
+# 'The Odyssey': All 6 Viewing Formats Compared (IMAX, 35mm, Dolby & More)
+
+Features, The Odyssey, Christopher Nolan, IMAX
+
+Sun, 07 Jun 2026 00:00:20 GMT
+
+https://movieweb.com/the-odyssey-viewing-formats-compared/
+
+From director Christopher Nolan's favorite to the most readily available, this is your visual guide to 'The Odyssey's formats.
+---------
+
 # 29 Years Later, This Dystopian Sci-Fi That Failed At The Box Office Has Only Become More Relevant
 
 Movies, Masked Recs
