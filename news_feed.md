@@ -1,3 +1,278 @@
+# 8 TV Shows That Rewrote The Rules Of Science Fiction
+
+Classic TV
+
+Sun, 07 Jun 2026 21:45:22 GMT
+
+https://screenrant.com/tv-shows-that-rewrote-the-rules-of-science-fiction/
+
+Sci-fi themes have become a television staple, but these series have managed to keep the genre feeling fresh, original, and unexpected.
+---------
+
+# Paramount's New 10-Part Series Among Us To Stellar Rotten Tomatoes Audience Score
+
+TV, Masked Recs
+
+Sun, 07 Jun 2026 21:34:48 GMT
+
+https://screenrant.com/paramount-among-us-show-rotten-tomatoes-audience-score/
+
+Paramount's new series has arrived and conquered initial critiques as the 10-part addition has delivered an impressive Rotten Tomatoes rating.
+---------
+
+# Why Claudia Was Recast For Interview With The Vampire Season 2
+
+Streaming TV, Interview with the Vampire
+
+Sun, 07 Jun 2026 21:31:23 GMT
+
+https://screenrant.com/why-claudia-recast-interview-with-the-vampire-season-2/
+
+Bailey Bass originally played Claudia in Interview with the Vampire on AMC, but the character was recast for the horror show's second season.
+---------
+
+# Transformers G1 Is Back In A Big Way With A New Official Game Release
+
+Gaming, Transformers, Triple-A Games, Summer Game Fest
+
+Sun, 07 Jun 2026 21:31:22 GMT
+
+https://screenrant.com/transformers-g1-stern-pinball-table-impressions/
+
+We got a chance to try out a new G1-based Transformers game, and it manages to capture the essence of the original cartoon in spades.
+---------
+
+# If You Love Backrooms, Watch This Underrated Thriller That Inspired Kane Parsons
+
+Movies, Backrooms
+
+Sun, 07 Jun 2026 21:31:22 GMT
+
+https://screenrant.com/backrooms-one-hour-photo-thriller-inspiration/
+
+Backrooms is one of the most original takes on the horror genre in a long time, but this underrated thriller inspired Kane Parsons.
+---------
+
+# It's Official, Stranger Things Is Not Over Yet
+
+Streaming TV, Stranger Things, Masked Recs
+
+Sun, 07 Jun 2026 21:26:00 GMT
+
+https://screenrant.com/stranger-things-netflix-franchise-will-never-end/
+
+Stranger Things remains one of Netflix's most popular shows of all time. What's stopping the series from continuing for the next 10 years, or more?
+---------
+
+# It's Officially The End Of An Era For HBO
+
+Streaming TV, HBO, HBO Max
+
+Sun, 07 Jun 2026 21:00:21 GMT
+
+https://screenrant.com/harry-potter-season-1-hbo-end-of-an-era-streaming/
+
+HBO and HBO Max's upcoming flagship fantasy release will change the network forever. Appointment television is now officially a relic of the past.
+---------
+
+# 10 Classic Movies With The Most Ripoffs
+
+Movies
+
+Sun, 07 Jun 2026 21:00:21 GMT
+
+https://screenrant.com/classic-movies-with-many-ripoffs/
+
+They say that imitation is the sincerest form of flattery, and these classic movies have been imitated more than any others.
+---------
+
+# The Smartest Gaming PC Upgrades In 2026
+
+Gaming, PC
+
+Sun, 07 Jun 2026 21:00:21 GMT
+
+https://screenrant.com/smartest-gaming-pc-upgrades-2026/
+
+Looking to upgrade your gaming rig? Here's exactly what you should focus on to maximize performance and improve your experience!
+---------
+
+# Antony Starr's 4-Season Action Show Gets Revival Update After The Boys Ends
+
+TV, Banshee
+
+Sun, 07 Jun 2026 21:40:27 GMT
+
+https://www.cbr.com/banshee-showrunner-talks-revival/
+
+With Antony Starr's run as Homelander over, the showrunner of the actor's last major TV show addresses a series revival.
+---------
+
+# Masters of the Universe Officially Brings Back One Classic He-Man Actor
+
+Movies, Masters of the Universe, Fantasy
+
+Sun, 07 Jun 2026 21:30:14 GMT
+
+https://www.cbr.com/masters-of-the-universe-dolph-lundgren-cameo-he-man/
+
+There's a major cameo in the new Masters of the Universe movie that fans of the 1987 film will absolutely love.
+---------
+
+# Pixar's $3B Franchise Returns to Disney+ Charts 7 Years Later Ahead of New Entry
+
+Movies, Toy Story, Toy Story 4, Pixar
+
+Sun, 07 Jun 2026 21:30:14 GMT
+
+https://www.cbr.com/pixar-toy-story-success-disney-plus-june-2026/
+
+A hit franchise has made a resurgence on Disney+ charts ahead of a new anticipated release.
+---------
+
+# 16 Years Later, Sam Winchester's Greatest Supernatural Quote Remains 100% Undisputed
+
+TV, Supernatural, Jared Padalecki, Jensen Ackles
+
+Sun, 07 Jun 2026 21:30:14 GMT
+
+https://www.cbr.com/sam-winchester-greatest-supernatural-quote/
+
+The emotional weight of Supernatural has always lain on the shoulders of the youngest Winchester brother.
+---------
+
+# Scary Movie Star Reveals Her Cut Joke From the 'Most Offensive' Film
+
+Movies, Scary Movie
+
+Sun, 07 Jun 2026 21:15:35 GMT
+
+https://www.cbr.com/scary-movie-6-cut-joke-melania-trump/
+
+Anna Faris shares the vision she had for Cindy along with one joke that didn't make the final cut for the "most offensive movie ever made."
+---------
+
+# 10 Modern Shonen Anime That Are Better Than DBZ
+
+Anime, Dragon Ball Z, shonen anime, Shonen, Frieren: Beyond Journey's End, Jujutsu Kaisen, Chainsaw Man
+
+Sun, 07 Jun 2026 21:15:14 GMT
+
+https://www.cbr.com/modern-shonen-anime-better-than-dbz/
+
+Dragon Ball Z's days are bygone, as some of the best modern shonen anime reach for the mantle to take over.
+---------
+
+# Interview With the Vampire Is a Surprise Streaming Hit 32 Years Later
+
+Movies, Interview with the Vampire, Horror, Brad Pitt
+
+Sun, 07 Jun 2026 21:00:14 GMT
+
+https://www.cbr.com/interview-with-the-vampire-brad-pitt-horror-streaming-success-june-2026/
+
+A cult classic horror movie that Brad Pitt infamously hated making is resurging on streaming more than thirty years later--and there's a good reason.
+---------
+
+# 15 Years Later, Steven Soderbergh’s 106-Minute Medical Thriller Is the No. 1 Film on HBO Max
+
+Movies, Contagion, HBO Max
+
+Sun, 07 Jun 2026 21:00:14 GMT
+
+https://www.cbr.com/steven-soderbergh-contagion-medical-thriller-hbo-max-success-june-2026/
+
+After it had a surge in popularity during the pandemic, the medical thriller returned to the top of the charts.
+---------
+
+# DC Comics’ Black Flash Returns in a Jaw-Dropping New Collector’s Item
+
+Comics, DC Comics, Flash
+
+Sun, 07 Jun 2026 21:00:14 GMT
+
+https://www.cbr.com/dc-comics-black-flash-amazing-yamaguchi-pre-order/
+
+The deadliest Flash in the history of the DC Universe is about to be unleashed as the next must-have Amazing Yamaguchi figure for collectors
+---------
+
+# David Tennant’s 2-Part Historical Series Is Officially Taking Over the World
+
+TV News, Rivals, David Tennant, Disney+, Hulu
+
+Sun, 07 Jun 2026 21:30:14 GMT
+
+https://collider.com/david-tennant-historical-series-rivals-streaming-success-disney-plus-worldwide-june-2026/
+
+The return of David Tennant's steamy historical series, Rivals, is a global streaming hit. Here's everything you should know.
+---------
+
+# 10 Most Perfect Romance Shows of the Last 10 Years
+
+TV, Romance, Bridgerton, Off Campus, Heated Rivalry
+
+Sun, 07 Jun 2026 21:21:16 GMT
+
+https://collider.com/most-perfect-romance-shows-last-10-years-ranked/
+
+Heated Rivalry, Off Campus, and The Summer I Turned Pretty are among the best romance shows of the last decade, but which series is the greatest?
+---------
+
+# 18 Years Later, This Modern Western Gem Is Finally Getting the Love It Deserves
+
+Movie News, Appaloosa, Ed Harris, Viggo Mortensen, Western
+
+Sun, 07 Jun 2026 21:15:14 GMT
+
+https://collider.com/taylor-sheridan-1883-replacement-ed-harris-modern-western-appaloosa-free-streaming-tubi-june-2026/
+
+Ed Harris, Viggo Mortensen, and Renée Zellweger star in Appaloosa, an underrated Western streaming for free this month. Find out more.
+---------
+
+# A Star Wars Favorite's Answer to John Wick Is Quietly Taking Over the World
+
+Movie News, Cleaner, Daisy Ridley, Clive Owen, Star Wars
+
+Sun, 07 Jun 2026 21:00:14 GMT
+
+https://collider.com/star-wars-daisy-ridley-john-wick-replacement-cleaner-streaming-success-prime-video-june-2026/
+
+Star Wars alum Daisy Ridley's 2025 action thriller with Clive Owen, Cleaner, is a sleeper streaming favorite. Here's everything you should know.
+---------
+
+# Peacock’s 3-Part Sci-Fi Rewrites an Alien Invasion Masterpiece With a Genius Twist
+
+TV Features, Rafe Spall, Eleanor Tomlinson, War of the Worlds (2020), Sci-Fi
+
+Sun, 07 Jun 2026 20:54:14 GMT
+
+https://collider.com/war-of-the-worlds-2019-miniseries-amy-twist-meaning/
+
+BBC’s 2019 The War of the Worlds stars Eleanor Tomlinson as Amy, whose perspective gives H.G. Wells’ alien invasion story a bold new twist.
+---------
+
+# 10 Greatest Video Games of 2007
+
+Video Games, Halo, Portal, Call of Duty, Mass Effect
+
+Sun, 07 Jun 2026 20:47:15 GMT
+
+https://collider.com/best-video-games-2007-ranked/
+
+2007 was an incredible year for gaming, with the best releases including classics like Halo 3, Super Mario Galaxy, and the original Mass Effect.
+---------
+
+# Guy Ritchie's Crime Thriller Is So Good, It's Already Confirmed for 2 More Seasons
+
+Features, Guy Ritchie, MobLand, Taylor Sheridan
+
+Sun, 07 Jun 2026 21:30:19 GMT
+
+https://movieweb.com/mobland-guy-ritchie-thriller-renewal/
+
+Guy Richie's TV crime thriller has an all-star cast, a great premise, and two more seasons on the way.
+---------
+
 # The Office Star’s New Sitcom Dominates Disney+ Despite Disappointing Rotten Tomatoes Score
 
 TV, Masked Recs
