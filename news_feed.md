@@ -1,3 +1,278 @@
+# Prime Video's The Boys Meets Watchmen Series' First Look Could Not Be Better
+
+TV, Masked Recs
+
+Mon, 08 Jun 2026 23:36:41 GMT
+
+https://screenrant.com/vought-rising-the-boys-meets-watchmen-prime-video-series/
+
+The Boys might have ended, but this Prime Video replacement series mixes it with DC's Watchmen, and the new show's first look is perfect.
+---------
+
+# Bosch’s New Prequel Series Dramatizes One Of Modern America’s Most Important Events
+
+TV, Bosch, Bosch: Start of Watch
+
+Mon, 08 Jun 2026 23:30:21 GMT
+
+https://screenrant.com/bosch-start-of-watch-1992-los-angeles-riots-history/
+
+Harry Bosch is back for a new show in the franchise, where he's directly involved in one of modern American history's most significant moments.
+---------
+
+# Taylor Sheridan Video Games Are "Priorities" For Paramount
+
+Gaming, Taylor Sheridan, Yellowstone
+
+Mon, 08 Jun 2026 23:30:12 GMT
+
+https://screenrant.com/taylor-sheridan-yellowstone-video-games-paramount-priority/
+
+Taylor Sheridan may be one of the biggest names in television right now, but it looks like his work is about to extend into the world of video games.
+---------
+
+# Stan Lee’s Most Underrated Quote Is 9 Words of Timeless Wisdom
+
+Comics, Stan Lee
+
+Mon, 08 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/best-stan-lee-quote-marvel/
+
+One of Stan Lee's most underrated quotes may also be among his best, offering a simple but powerful lesson that resonates with fans and non-fans alike
+---------
+
+# Cyberpunk 2077 Free Download Officially Available To Snag Right Now
+
+Gaming, Cyberpunk 2077, PC
+
+Mon, 08 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/cyberpunk-2077-edgerunners-free-download-june-2026/
+
+Cyberpunk 2077 fans will not want to miss out on this official new download, available to claim now entirely for free.
+---------
+
+# The Best Found Footage Horror Movie You've Never Seen Turned 15 This Year
+
+Movies, Grave Encounters, Horror
+
+Mon, 08 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/grave-encounters-movie-15-year-anniversary/
+
+Found footage horror movies were a major draw for audiences during the early 2010s, but the best of the bunch just turned 15 earlier this year.
+---------
+
+# It's Officially The End Of An Era For John Krasinski's Jack Ryan
+
+TV, Masked Recs
+
+Mon, 08 Jun 2026 22:56:22 GMT
+
+https://screenrant.com/john-krasinski-jack-ryan-end-of-an-era-show-movies/
+
+The fate of one of Prime Video's biggest and oldest action thriller franchises is now unclear thanks to the reception of John Krasinski's spinoff.
+---------
+
+# Rick and Morty Season 9 Sets A New All-Time Low
+
+Streaming TV, Rick and Morty
+
+Mon, 08 Jun 2026 22:45:22 GMT
+
+https://screenrant.com/rick-and-morty-season-9-sets-a-new-all-time-low/
+
+Rick and Morty season 9 continues the show's reputation for pushing the envelope, but the latest episode has just hit a new low for the Smith family.
+---------
+
+# 8 Years Later, Star Wars Rebels Season 5 Is Finally Happening
+
+Streaming TV, Masked Recs
+
+Mon, 08 Jun 2026 22:36:20 GMT
+
+https://screenrant.com/ahsoka-season-2-star-wars-rebels-season-5-ezra-story/
+
+Ahsoka season 2 has a chance to become "Star Wars Rebels season 5" by reuniting the Ghost crew and pitting them against Grand Admiral Thrawn.
+---------
+
+# HBO's 3-Part Thriller With One Of Its Best Casts Is Already Aging Like Fine Wine
+
+Streaming TV, Masked Recs
+
+Mon, 08 Jun 2026 22:30:22 GMT
+
+https://screenrant.com/euphoria-hbo-thriller-will-age-like-fine-wine/
+
+One of HBO's buzziest shows recently aired its series finale, and despite the thriller series's controversy, it's destined to have an enduring legacy.
+---------
+
+# It's Officially a New Era for Yellowstone and Paramount
+
+Games, Yellowstone
+
+Mon, 08 Jun 2026 23:33:03 GMT
+
+https://www.cbr.com/yellowstone-taylor-sheridan-video-games-paramount/
+
+Paramount confirms the start of a new era for Yellowstone and other Taylor Sheridan shows.
+---------
+
+# Taylor Sheridan's New Yellowstone Spin-Off Loses No. 1 to Paramount+'s Most Controversial Show on TV
+
+TV, Dutton Ranch, South Park, Yellowstone
+
+Mon, 08 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/taylor-sheridan-dutton-ranch-loses-no-1-paramount-plus-june-2026/
+
+The latest hit Yellowstone spinoff series just got knocked from the top of the streaming charts by the most controversial show on Paramount+.
+---------
+
+# One Piece and FIFA World Cup Officially Unite as Luffy Joins Japan’s Samurai Blue
+
+Anime, One Piece, Shonen Jump, Crunchyroll
+
+Mon, 08 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/one-piece-fifa-world-cup-luffy-samurai-blue/
+
+One Piece just unveiled its official promotional video on behalf of Samurai Blue, and fans of both couldn't be happier with how it turned out.
+---------
+
+# 10 Gritty Gangster Movies Darker Than The Godfather
+
+Movies, The Godfather
+
+Mon, 08 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/gangster-movies-darker-than-the-godfather-list/
+
+The Godfather may be the ultimate example in the genre, but there are darker gangster movies that will leave you with an even heavier sense of dread.
+---------
+
+# ‘The Walking Dead’ Officially Returns With New ‘Dead City’ Season 3 Teaser
+
+TV News, The Walking Dead: Dead City, The Walking Dead, AMC, Lauren Cohan
+
+Mon, 08 Jun 2026 23:30:14 GMT
+
+https://collider.com/the-walking-dead-dead-city-season-3-teaser-trailer/
+
+The Walking Dead: Dead City teases what's ahead in Season 3 with an all-new teaser featuring Maggie and Negan. Find out more here.
+---------
+
+# 7 Perfect Drama Shows That Get Better With Every Rewatch
+
+TV, Drama, Interview with the Vampire, Succession, Hannibal
+
+Mon, 08 Jun 2026 23:14:14 GMT
+
+https://collider.com/perfect-drama-shows-better-with-rewatch/
+
+Hannibal, Daisy Jones & The Six, and Succession, were already beloved in their initial run, and these drama shows are even better upon rewatch.
+---------
+
+# It's Time to Say Goodbye to Jason Statham's Greatest Action Franchise on Netflix
+
+Movie Features, Jason Statham, The Expendables, Netflix, Sylvester Stallone
+
+Mon, 08 Jun 2026 23:08:14 GMT
+
+https://collider.com/netflix-jason-statham-the-expendables-greatest-action-franchise-leaving-june-20/
+
+The Expendables films depart Netflix this month, meaning action fans have little time to see Jason Statham's breakout role.
+---------
+
+# The Scariest Sci-Fi Franchise Officially Returns With a Bone-Chilling Sequel
+
+Video Games, Alien: Isolation, Alien, Sega, James Cameron
+
+Mon, 08 Jun 2026 23:00:15 GMT
+
+https://collider.com/scariest-sci-fi-franchise-alien-isolation-sequel-trailer/
+
+Last week, Alien: Isolation 2 was officially revealed at Summer Game Fest with a trailer and new chilling details. Here's what we know.
+---------
+
+# The Biggest Mystery in 'Rivals' Season 2 Has Been Hiding in Plain Sight
+
+TV Features, Rivals, Disney+, Alex Hassell, David Tennant
+
+Mon, 08 Jun 2026 22:52:15 GMT
+
+https://collider.com/rivals-season-2-perdita-twist-rupert-daughter/
+
+Disney+'s Rivals is setting up Perdita very differently from Jilly Cooper's original story, and it's not going to end well for Rupert Campbell-Black.
+---------
+
+# 10 Disturbing Movie Masterpieces That Used Graphic Content To Make a Point
+
+Movie, Martyrs, The Hills Have Eyes, Hostel, Threads
+
+Mon, 08 Jun 2026 22:42:15 GMT
+
+https://collider.com/disturbing-movie-masterpieces-graphic-content/
+
+From Threads, to Martyrs, to Apocalypse Now, these movies used their gore and disturbing content to prove a point and send an important message.
+---------
+
+# ‘From’ Just Took a Page Straight From ‘Lost’ With Its Latest Sci-Fi Twist
+
+TV Features, From, Lost, Harold Perrineau, MGM
+
+Mon, 08 Jun 2026 22:41:16 GMT
+
+https://collider.com/from-season-4-episode-7-henry-victor-twist-sci-fi-lost/
+
+From's latest episode introduces a chilling alternate reality twist reminiscent of Lost, but has the potential to execute it better.
+---------
+
+# 3 Near-Perfect Movies to Watch on Prime Video This Week (June 8-12)
+
+Movie, Prime Video, Bill & Ted's Excellent Adventure, Beetlejuice Beetlejuice, Wimbledon
+
+Mon, 08 Jun 2026 22:34:14 GMT
+
+https://collider.com/best-movies-prime-video-june-8/
+
+Bill & Ted’s Excellent Adventure, Wimbledon, and Beetlejuice Beetlejuice make up our list of the best Prime Video movies to watch the week of June 8.
+---------
+
+# Netflix's 8-Part Taylor Sheridan Western Series Is Officially a Global Hit
+
+TV News, Lawmen: Bass Reeves, Taylor Sheridan, Western, Netflix
+
+Mon, 08 Jun 2026 22:30:15 GMT
+
+https://collider.com/lawmen-bass-reeves-netflix-top-10-taylor-sheridan-western/
+
+Taylor Sheridan’s eight-part Western epic Lawmen: Bass Reeves has entered Netflix’s worldwide TV Top 10.
+---------
+
+# One of the "Greatest Movies Ever Made" Returns to Streaming
+
+Movie News, 12 Angry Men, Prime Video, Coming/Leaving Streaming
+
+Mon, 08 Jun 2026 23:00:19 GMT
+
+https://movieweb.com/12-angry-men-best-movie-streaming-prime-june-2026/
+
+One of the greatest movies of all time, Sidney Lumet's crime thriller '12 Angry Men' is now streaming on Prime Video.
+---------
+
+# Taylor Sheridan's Hit 'Yellowstone' Spinoff Officially Returns in New Look
+
+TV News, Marshals, Yellowstone, Taylor Sheridan
+
+Mon, 08 Jun 2026 22:19:57 GMT
+
+https://movieweb.com/marshals-season-2-first-look/
+
+The hit spin-off wasted no time entering production after its Season 1 finale aired.
+---------
+
 # Netflix’s 3-Part British Crime Drama Based On A True Story Is The Perfect One-Night Binge
 
 Streaming TV, Masked Recs
