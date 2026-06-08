@@ -1,3 +1,410 @@
+# Netflix’s 3-Part British Crime Drama Based On A True Story Is The Perfect One-Night Binge
+
+Streaming TV, Masked Recs
+
+Mon, 08 Jun 2026 22:15:23 GMT
+
+https://screenrant.com/netflix-crime-drama-the-witness-3-episodes-binge-watch/
+
+There is a 3-part British crime drama on Netflix that is based on a tragic true story, and with only three episodes, you can hear it all in one night.
+---------
+
+# House Of The Dragon Season 3 Premiere's Massive Runtime Revealed
+
+TV, House of the Dragon, House of the Dragon - Season 3, Game of Thrones
+
+Mon, 08 Jun 2026 22:10:26 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-premiere-runtime/
+
+The runtime for House of the Dragon's season 3 premiere episode, which will feature the long-awaited Battle of the Gullet, has been revealed.
+---------
+
+# Chainsaw Man Creator's First Big Live-Action Adaptation, Look Back, Drops First Preview
+
+Anime, Look Back
+
+Mon, 08 Jun 2026 22:05:21 GMT
+
+https://screenrant.com/look-back-live-action-chainsaw-man-tastuki-fujimoto/
+
+The live-action treatment for Tatsuki Fujimoto's most personal manga release just dropped some exciting new glimpses of its gorgeous movie.
+---------
+
+# It's Official, Nothing Can Kill Doctor Who
+
+TV, Doctor Who
+
+Mon, 08 Jun 2026 22:03:20 GMT
+
+https://screenrant.com/doctor-who-franchise-return-16th-doctor-show-future/
+
+The history of Doctor Who is filled with bizarre twists and unexpected storylines, but this latest development may be the most shocking yet.
+---------
+
+# Marvel Studios' X-Men Are Officially Returning In 3 Weeks
+
+Superheroes, Masked Recs
+
+Mon, 08 Jun 2026 22:02:36 GMT
+
+https://screenrant.com/x-men-97-season-2-july-2026-marvel-return/
+
+Marvel Studios' new X-Men release is coming soon, bringing back Wolverine, Deadpool, and other beloved mutants to battle a huge villain.
+---------
+
+# Halo Officially Reveals Controversial Master Chief Redesign
+
+Gaming, Halo
+
+Mon, 08 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/halo-master-chief-redesign-combat-evolved-new-suits/
+
+Halo has officially shown off new designs for Master Chief through its social media accounts, and fans aren't exactly thrilled by the new look.
+---------
+
+# It's Officially The End Of An Era For Marvel
+
+Comics, Ultimate Marvel
+
+Mon, 08 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/marvel-end-era-ultimate-universe-ending/
+
+The future looks surprisingly bright.
+---------
+
+# Before Widow's Bay, Matthew Rhys Starred In This Underrated 2-Part Crime Drama That's Still Worth Watching
+
+Streaming TV, Masked Recs
+
+Mon, 08 Jun 2026 21:45:22 GMT
+
+https://screenrant.com/widows-bay-matthew-rhys-perry-mason-hbo-crime-drama-recommendation/
+
+Matthew Rhys' standout performance in HBO's Perry Mason, a critically acclaimed crime drama, deserves a second look even if the series was cut short.
+---------
+
+# Jennifer Lopez & Brett Goldstein's R-Rated Netflix Rom-Com Office Romance Was Subtly Impacted By 2025's Biggest Meme
+
+Movies, Office Romance, Jennifer Lopez, Brett Goldstein, Netflix
+
+Mon, 08 Jun 2026 21:30:21 GMT
+
+https://screenrant.com/office-romance-movie-coldplay-meme-impact-jennifer-lopez-brett-goldstein-parker-hale-gilpin/
+
+Jennifer Lopez, Brett Goldstein and their Office Romance director and co-stars talk the Netflix rom-com and being impacted by 2025's biggest meme.
+---------
+
+# The Boys Post-Finale Theory Reveals Another Character Will Revive Soldier Boy
+
+Streaming TV, The Boys
+
+Mon, 08 Jun 2026 21:30:21 GMT
+
+https://screenrant.com/the-boys-stormfront-revive-soldier-boy-theory/
+
+Soldier Boy had one of the most unsatisfying endings in The Boys season 5, but one interesting theory hints at his return via a key character.
+---------
+
+# 10 Near-Perfect Manga With 100 Chapters or Less
+
+Anime, Manga, Parasyte: The Maxim, K-On!, Deadman Wonderland, Uzumaki, Goodbye, Eri, Solanin, Paradise Kiss
+
+Mon, 08 Jun 2026 22:15:14 GMT
+
+https://www.cbr.com/best-manga-100-chapters-or-less/
+
+From emotional masterpieces like Goodbye, Eri to classics like Parasyte and Solanin, but these top-tier manga have 100 chapters or less.
+---------
+
+# Ana de Armas' Forgotten Crime Thriller Resurfaces on Streaming After Flopping in Theaters
+
+Movies, The Informer
+
+Mon, 08 Jun 2026 22:00:14 GMT
+
+https://www.cbr.com/the-informer-ana-de-armas-streaming-june-2026/
+
+The forgotten thriller starring Ana de Armas is back in action with newfound streaming success.
+---------
+
+# Before X-Men '97 Season 2, Magneto's Most Dangerous Team Is Revealed
+
+Comics, X-Men '97, X-Men
+
+Mon, 08 Jun 2026 22:00:14 GMT
+
+https://www.cbr.com/x-men-97-season-two-magneto-team-revealed/
+
+Marvel Comics just introduced one of the deadliest teams of villains to the world of X-Men '97  ahead of the release of Season 2
+---------
+
+# Star Wars' Greatest Quote is in The Last Jedi
+
+Movies, Star Wars: The Last Jedi
+
+Mon, 08 Jun 2026 21:30:14 GMT
+
+https://www.cbr.com/the-last-jedi-best-quote-star-wars-franchise/
+
+Star Wars: The Last Jedi might be controversial among fans, but the film contains the single best quote in the franchise's entire history.
+---------
+
+# 2026 Is Officially a New Era For Elden Ring
+
+Games, Elden Ring
+
+Mon, 08 Jun 2026 21:16:14 GMT
+
+https://www.cbr.com/2026-officially-new-era-for-elden-ring/
+
+2026 marks a new era for Elden Ring, as the final iteration of the video game is on the way, paving a path for the upcoming movie adaptation.
+---------
+
+# Ridley Scott’s Sci-Fi Return Officially Releases Trailer 2 Months Before Debut
+
+Movies, The Dog Stars, Sci-Fi
+
+Mon, 08 Jun 2026 21:08:23 GMT
+
+https://www.cbr.com/the-dog-stars-trailer/
+
+Ridley's Scott's return to science fiction gets a new trailer.
+---------
+
+# NBC's 11-Season Hit Show With 95% RT Is Blowing Up on Paramount+ 22 Years Later
+
+TV, Frasier
+
+Mon, 08 Jun 2026 21:00:14 GMT
+
+https://www.cbr.com/nbc-frasier-comedy-paramount-plus-success-june-2026/
+
+One of the most beloved and critically acclaimed sitcoms of a generation is taking over the streaming charts decades after the first time it ended.
+---------
+
+# Paramount Officially Shuts Down New Avatar: The Last Airbender RPG After 2 Years
+
+Anime, Avatar: The Last Airbender, Paramount
+
+Mon, 08 Jun 2026 21:00:14 GMT
+
+https://www.cbr.com/paramount-avatar-the-last-airbender-rpg-shutdown/
+
+Avatar: The Last Airbender fans get more bad news upon confirmation that Paramount Skydance is shutting down the highly anticipated RPG release.
+---------
+
+# 5 Best Sapphic Novels Still Waiting For a Book-to-Movie Adaptation
+
+Movies, Romance
+
+Mon, 08 Jun 2026 21:00:14 GMT
+
+https://www.cbr.com/best-sapphic-books-that-need-movie-adaptation/
+
+The Seven Husbands of Evelyn Hugo finally has a director, but these other five LGBTQ+ books deserve a look from Hollywood.
+---------
+
+# Justin Hartley Jumps From CBS to ABC for New Tracker Replacement Show
+
+TV, Tracker
+
+Mon, 08 Jun 2026 20:47:43 GMT
+
+https://www.cbr.com/justin-hartley-abc-a-forgotten-kill/
+
+Tracker star Justin Hartley's next big TV project has been revealed.
+---------
+
+# The Dog Behind ‘Wishbone’ Didn’t Just Audition — He Stole the Whole Show [Exclusive]
+
+Movie News, Wishbone, PBS, Documentary, George W. Bush
+
+Mon, 08 Jun 2026 22:00:14 GMT
+
+https://collider.com/whats-the-story-wishbone-doumentary-sneak-peek-soccer-dog-audition/
+
+Find out how the producers of Wishbone found their dog star in a new clip from What's the Story, Wishbone?
+---------
+
+# 10 Movie Trilogies Worth Watching Over and Over
+
+Movie, Back to the Future, The Lord of the Rings, Before Sunrise, Rise of the Planet of the Apes
+
+Mon, 08 Jun 2026 21:55:15 GMT
+
+https://collider.com/movie-trilogies-worth-watching-over-and-over/
+
+Trilogies such as The Dark Knight, Star Wars, and Back to the Future prove rewatching completely rewires story perception.
+---------
+
+# 10 Worst Movie Remakes With Terrible Writing
+
+Movie, Black Christmas, Remake, The Wicker Man, Psycho
+
+Mon, 08 Jun 2026 21:53:16 GMT
+
+https://collider.com/worst-movie-remakes-terrible-writing-ranked/
+
+Critically derided flop remakes of Psycho, Black Christmas, and Point Break were terrible across the board, but the scripts were particularly bad.
+---------
+
+# The Not Suitable For Work Cast Plays an HR Approved Game of Make Me Laugh
+
+TV, Not Suitable for Work
+
+Mon, 08 Jun 2026 21:47:35 GMT
+
+https://collider.com/video/the-not-suitable-for-work-cast-plays-an-hr-approved-game-of-make-me-laugh/
+
+The cast of Mindy Kaling's new workplace comedy Not Suitable For Work, KNOWS how to make each other laugh.Ella Hunt (Dickinson) had to do a Boston accent. Avantika (Mean Girls) is chief creative director of memes. Will Angus (Artificial) and Nicholas Duvernay (The White Lotus) beef it. Everybody dressed up as Squidward, And Jack Martin (Pizza Movie, Tiktok) was obviously Squilliam Fancyson. What's not to love?
+---------
+
+# 10 Must-Watch Shows After You Finish Prime Video’s 'Spider-Noir'
+
+TV, Spider-Noir, Jessica Jones, The Penguin, Perry Mason
+
+Mon, 08 Jun 2026 21:36:15 GMT
+
+https://collider.com/tv-shows-like-spider-noir-prime-video/
+
+Perry Mason, Jessica Jones, The Penguin, and Batman: Caped Crusader are perfect to watch after you finish watching the Marvel series Spider-Noir.
+---------
+
+# Only 3 War Movies Are Heavier Than 'Saving Private Ryan'
+
+Movie, Saving Private Ryan, War, The Deer Hunter, Come And See
+
+Mon, 08 Jun 2026 21:31:15 GMT
+
+https://collider.com/war-movies-heavier-than-saving-private-ryan/
+
+From Come and See to Grave of the Fireflies, these heartbreaking and intense war movies are even heavier than Saving Private Ryan.
+---------
+
+# Hulu Officially Announces the Perfect 'The Lincoln Lawyer' Replacement
+
+TV News, Matt Shakman, Bruce Miller, Hulu, The Lincoln Lawyer
+
+Mon, 08 Jun 2026 21:30:14 GMT
+
+https://collider.com/suspect-matt-shakman-bruce-miller-the-lincoln-lawyer-replacement-legal-thriller-hulu/
+
+MCU director Matt Shakman has set his next project in the legal thriller Suspect, alongside The Handmaid's Tale creator Bruce Miller.
+---------
+
+# Aesha Scott on Below Deck: Med Season 11, Controlling the Chaos, and Crazy Themes
+
+Interviews, Below Deck, Bravo
+
+Mon, 08 Jun 2026 21:23:24 GMT
+
+https://collider.com/below-deck-mediterranean-aesha-scott-interview/
+
+Below Deck: Mediterranean is back for Season 11 and this time it’s in Croatia! The Bravo franchise returns with the familiar faces of Captain Sandy, chief stew Aesha Scott, bosun Nathan Gallagher and deckhand Joe Bradley. This is Sandy’s tenth season as captain of Med, and Aesha’s seventh season across all Below Deck series.In this interview with Collider, Aesha Scott talks about reuniting with Captain Sandy, what to expect from Season 11, controlling the chaos and the best part about filming in Croatia. Aesha also talks about the craziest themes and dinner services she’s ever had to do, and what she’s learned about yachting through her career.
+---------
+
+# 10 Best Songs of the 1990s
+
+Music Features, Nirvana, Björk, 1990s, Music
+
+Mon, 08 Jun 2026 21:08:14 GMT
+
+https://collider.com/best-1990s-songs-ranked/
+
+The best songs released in the 1990s include classics like "Smells Like Teen Spirit," "Bitter Sweet Symphony," and "Enjoy the Silence."
+---------
+
+# ‘Game of Thrones’ Star Confirms Outrage Over Finale Script
+
+TV News, Game Of Thrones, Emilia Clarke, House of the Dragon, A Knight Of The Seven Kingdoms
+
+Mon, 08 Jun 2026 21:00:15 GMT
+
+https://collider.com/game-of-thrones-emilia-clarke-livid-daenerys-fate-series-finale/
+
+Emilia Clarke has opened up about why she was furious over Daenerys Targaryen’s fate in the Game of Thrones series finale.
+---------
+
+# Netflix Announces Return Date for 'Lupin' Season 4
+
+TV News, Lupin, Netflix
+
+Mon, 08 Jun 2026 22:00:37 GMT
+
+https://movieweb.com/netflix-lupin-part-4-release-date/
+
+Netflix confirmed when "Lupin,' one of the streamer's best-reviewed mystery thriller shows, will return for Season 4.
+---------
+
+# Every 'Masters of the Universe' Movie & TV Show, Ranked
+
+TV Lists, Masters of the Universe, She-Ra and the Princesses of Power
+
+Mon, 08 Jun 2026 22:00:20 GMT
+
+https://movieweb.com/masters-of-the-universe-every-movie-tv-show-ranked/
+
+From the original 'He-Man and the Masters of the Universe' to 'She-Ra: Princess of Power,' what is the best entry in MOTU's history?
+---------
+
+# 'House of the Dragon' Season 3 Premiere Officially Gets Epic Runtime
+
+TV News, House of the Dragon
+
+Mon, 08 Jun 2026 21:43:49 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-premiere-runtime/
+
+The new season will kick things off with one of the bloodiest battles in 'Game of Thrones' history.
+---------
+
+# A24's Near-Perfect Supernatural Thriller Masterpiece 'Hereditary' Finally Has a Prequel Script
+
+Movie News, Ari Aster, Hereditary, Horror, Thriller
+
+Mon, 08 Jun 2026 21:23:29 GMT
+
+https://movieweb.com/prequel-a24-thriller-hereditary-written/
+
+The writer and director of one of the best horror features of the last 25 years has finished the screenplay for the prequel.
+---------
+
+# Netflix’s New Sci-Fi Thriller Is So Promising, 2 More Seasons Are Planned
+
+Features, The Boroughs, Netflix
+
+Mon, 08 Jun 2026 21:00:20 GMT
+
+https://movieweb.com/the-boroughs-netflix-three-season-plan/
+
+Netflix has many sci-fi thrillers, including 'Stranger Things,' and a new series that was released in May 2026 is particularly exciting.
+---------
+
+# Netflix Adds Near-Perfect 4-Part Sci-Fi Series Following Shocking Cancellation
+
+TV News, Resident Alien, Coming/Leaving Streaming, Sci-Fi, Netflix
+
+Mon, 08 Jun 2026 21:00:20 GMT
+
+https://movieweb.com/resident-alien-sci-fi-streaming-netflix-june-2026/
+
+All four seasons of Alan Tudyk's sci-fi favorite, 'Resident Alien,' are now available to stream in one place outside of Peacock.
+---------
+
+# 'Yellowjackets' Final Season Filming Update Revealed by Sophie Thatcher
+
+TV News, Yellowjackets, Sophie Thatcher
+
+Mon, 08 Jun 2026 20:40:30 GMT
+
+https://movieweb.com/yellowjackets-final-season-filming-update-sophie-thatcher/
+
+Star of the thriller series confirms filming hasn't yet been completed on the final season.
+---------
+
 # Major 2026 Star Trek Release Gets Harsh Response From Original Series Cast Member
 
 Gaming, Star Trek
