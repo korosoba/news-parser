@@ -1,3 +1,355 @@
+# Every Upcoming Marvel Game Currently In Development (2026)
+
+Gaming, Marvel, PC, Triple-A Games
+
+Mon, 08 Jun 2026 01:30:22 GMT
+
+https://screenrant.com/all-marvel-games-in-development/
+
+Including the imminent arrival of Marvel's Wolverine, Marvel gaming fans can look forward to multiple titles hitting shelves in the coming years.
+---------
+
+# Steam's New Free 10/10 Game Hailed As "Absolutely Beautiful" By Gamers
+
+Gaming, Steam, Valve
+
+Mon, 08 Jun 2026 01:00:21 GMT
+
+https://screenrant.com/steam-free-game-control-not-coming-back/
+
+Steam has become a great place to go for free games, and one in particular is drawing a ton of praise from players right now.
+---------
+
+# After 86 Years, DC Officially Kills Off Batman's First Recurring Villain
+
+Comics, Batman
+
+Mon, 08 Jun 2026 01:00:21 GMT
+
+https://screenrant.com/batman-huge-strange-dead-killed-off/
+
+After 86 years, DC Comics is finally saying goodbye to an iconic villain, stripping Batman of one of his oldest and most classic adversaries.
+---------
+
+# 13 Years Later, Naruto Still Has The Best Villain In Shonen History, And It's Not Close
+
+Anime, Naruto, Naruto: Shippuden
+
+Mon, 08 Jun 2026 01:00:21 GMT
+
+https://screenrant.com/naruto-madara-best-villain-shonen-history/
+
+Naruto is one of the best shōnen series of all time because of its amazing villains, and out of them all, this ferocious fighter is number one.
+---------
+
+# Crunchyroll's Cutest Romance Of 2026 Is So Great, It's Already Returning For Season 2 This Summer
+
+Anime, Crunchyroll, Masked Recs
+
+Mon, 08 Jun 2026 00:30:22 GMT
+
+https://screenrant.com/you-and-i-polar-opposites-returning-summer/
+
+One of Crunchyroll's most recent hidden gems just wrapped up its first season in March, but it's so good that season two will drop right away.
+---------
+
+# Hulu's Returning 16-Part 'Breaking Bad Meets Weeds' Series Still Has A Perfect Record
+
+Streaming TV, Masked Recs
+
+Mon, 08 Jun 2026 00:30:22 GMT
+
+https://screenrant.com/deli-boys-hulu-perfect-record-crime-series/
+
+Like Breaking Bad and Weeds, Hulu's returning show mixes a central crime storyline with a family drama, while including plenty of dark comedy
+---------
+
+# Upcoming YA Sci-Fi Adaptation Will Make Hunger Games Feel Small
+
+Streaming TV, Masked Recs
+
+Mon, 08 Jun 2026 00:15:21 GMT
+
+https://screenrant.com/skyward-brandon-sanderson-adaptation-hunger-games-small/
+
+An upcoming YA sci-fi TV show, based on a bestselling book series, can be so big in scale that it could  seemingly make even Hunger Games feel small.
+---------
+
+# Star Wars Is Finally Settling Han Solo vs. Boba Fett in Showdown Fans Have Demanded
+
+Comics, Star Wars, Boba Fett, Han Solo
+
+Mon, 08 Jun 2026 00:01:21 GMT
+
+https://screenrant.com/new-star-wars-release-smugglers-and-scoundrels-race-for-jabbas-bounty-details/
+
+Star Wars is set to get a new release this fall, and this upcoming space adventure will once again put Han Solo and Boba Fett on a collision course.
+---------
+
+# Every Season Of Paramount's 6-Part Legal Drama Is Perfect From Start To Finish
+
+Classic TV, Masked Recs
+
+Mon, 08 Jun 2026 00:01:21 GMT
+
+https://screenrant.com/the-good-fight-paramount-legal-drama-perfect-start-finish/
+
+While some television shows decline in quality over time, Paramount’s six-season legal drama remained consistently good from beginning to end.
+---------
+
+# The Last Of Us Part 3 Story Has Gamers Torn Over Ellie's Role
+
+Gaming, The Last of Us
+
+Mon, 08 Jun 2026 00:01:21 GMT
+
+https://screenrant.com/the-last-of-us-part-3-story-has-gamers-torn-over-ellies-role/
+
+As rumors swirl about The Last of Us Part 3, fans are divided over Ellie's potential return and the direction of the beloved gaming series.
+---------
+
+# In Just 1 Day, Alexander Skarsgård's 99% RT Drama Turns Into an Instant HBO Max Hit
+
+Movies, Pillion
+
+Mon, 08 Jun 2026 01:30:15 GMT
+
+https://www.cbr.com/pillion-hbo-max-streaming-june-2026/
+
+The acclaimed drama is blowing up upon arrival on HBO Max after earning universal praise from critics.
+---------
+
+# Game of Thrones' Peter Dinklage Recalls the Worst Part of Filming the Hit HBO Show
+
+TV, Game Of Thrones
+
+Mon, 08 Jun 2026 01:27:54 GMT
+
+https://www.cbr.com/peter-dinklage-game-of-thrones-filming-issue/
+
+There's one thing about Tyrion Lannister that his actor Peter Dinklage really didn't understand.
+---------
+
+# Toyotarou Gives the Dragon Ball Manga a Perfect Ending With DBAF
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Mon, 08 Jun 2026 01:25:13 GMT
+
+https://www.cbr.com/dragon-ball-super-perfect-manga-ending-toyotarou-dbaf/
+
+Toyotarou already gave the Dragon Ball manga a perfect ending long before he started writing Dragon Ball Super, but most fans completely missed it.
+---------
+
+# Guy Ritchie's $13M Action Flop Loses No. 1 on PVOD In Just 2 Days
+
+Movies, guy ritchie, In the Grey
+
+Mon, 08 Jun 2026 01:00:14 GMT
+
+https://www.cbr.com/guy-ritchie-in-the-grey-pvod-drop-june-2026/
+
+The new action film surprised dropped on digital platforms after less than a month since its premiere.
+---------
+
+# 5 Fantasy Worlds Better Than Harry Potter
+
+Movies, Harry Potter, The Lord of the Rings, The Chronicles of Narnia
+
+Mon, 08 Jun 2026 01:00:14 GMT
+
+https://www.cbr.com/fantasy-worlds-better-than-harry-potter-list/
+
+Even the magical wonder of the Wizarding World pales before these fantasy universes
+---------
+
+# 10 Shonen Anime That Will Keep You Hooked From Start to Finish
+
+Anime, Fullmetal Alchemist: Brotherhood, Attack on Titan, Hunter X Hunter
+
+Mon, 08 Jun 2026 00:45:13 GMT
+
+https://www.cbr.com/best-shonen-anime-flawless-start-to-finish/
+
+Shonen anime can often get repetitive overtime, but these masterpiece series always keep things fresh, and keep viewers engaged from start to finish.
+---------
+
+# Only 5 RPGs Are Better Than The Witcher 3
+
+Games, The Witcher 3: Wild Hunt, Cyberpunk 2077, Elden Ring, RPG
+
+Mon, 08 Jun 2026 00:30:14 GMT
+
+https://www.cbr.com/rpgs-better-than-witcher-3/
+
+Few RPGs come close to matching The Witcher 3: Wild Hunt, but a select few have what it takes to outmatch one of the most perfect RPGs of all time.
+---------
+
+# 10 Naruto Characters, Ranked By Personality
+
+Anime, Naruto, Naruto: Shippuden, Boruto: Naruto Next Generations
+
+Mon, 08 Jun 2026 00:15:13 GMT
+
+https://www.cbr.com/best-naruto-characters-ranked-by-personality/
+
+Naruto has a variety of characters with unique personalities from Naruto Uzumaki's resilience to Rock Lee's unwavering determination.
+---------
+
+# Showtime's 8-Season Underrated Drama Keeps Climbing the Charts on Paramount+
+
+TV, The Chi
+
+Mon, 08 Jun 2026 00:00:14 GMT
+
+https://www.cbr.com/the-chi-drama-paramount-plus-success-june-2026/
+
+One of the best television dramas of the past decade keeps climbing the streaming charts as it approaches its upcoming finale.
+---------
+
+# Uniqlo Launches 100th Anniversary With 6 New Official Designs for Black Clover, Spy x Family and More
+
+Anime, Yu-Gi-Oh!, Bleach, Spy X Family
+
+Mon, 08 Jun 2026 00:00:14 GMT
+
+https://www.cbr.com/uniqlo-black-clover-spy-x-family-anniversary-release/
+
+Uniqlo is teaming up with Bleach, Spy x Family, Yu-Gi-Oh!, and some of the other biggest names in anime for Shuiesha's 100th anniversary celebration.
+---------
+
+# 10 Greatest Thriller Shows of the Last 10 Years, Ranked
+
+TV, Thriller, Mindhunter, Dark, Severance
+
+Mon, 08 Jun 2026 01:22:15 GMT
+
+https://collider.com/best-thriller-shows-last-10-years-ranked/
+
+Dive into the most gripping and influential thriller TV shows of the past decade, featuring acclaimed series like Mindhunter, Dark, and Severance.
+---------
+
+# Hulu’s Funniest 2-Part Crime Series Is Officially Taking Over the Streaming Charts
+
+TV News, Deli Boys, Hulu, Comedy, Streaming
+
+Mon, 08 Jun 2026 01:00:14 GMT
+
+https://collider.com/hulu-crime-series-deli-boys-streaming-success-june-2026/
+
+Hulu's critically acclaimed comedy returns for a second season with a perfect 100% rating on Rotten Tomatoes. Get all the details here.
+---------
+
+# Apple TV’s First Sci-Fi Universe Is Officially Taking Over Streaming
+
+TV News, For All Mankind, Star City, Apple TV, Sci-Fi
+
+Mon, 08 Jun 2026 00:45:13 GMT
+
+https://collider.com/apple-tv-sci-fi-universe-for-all-mankind-star-city-streaming-success-june-2026/
+
+Apple TV has officially launched its first sci-fi franchise, and it's already ranking high on streaming charts. Get all the details here.
+---------
+
+# 10 Greatest Sci-Fi Villains of All Time, Ranked
+
+Movie, Sci-Fi, Star Wars, Alien, MCU
+
+Mon, 08 Jun 2026 00:41:14 GMT
+
+https://collider.com/best-sci-fi-villains-all-time-ranked/
+
+From Darth Vader to Agent Smith, Thanos to the Xenomorph, these sci-fi villains are why we love the bad guys. Here are the best sci-fi villains ever.
+---------
+
+# Prime Video's Divisive Sci-Fi Finale Is Still a Streaming Hit Despite Fan Backlash
+
+TV News, The Boys, Karl Urban, Prime Video, Vought Rising
+
+Mon, 08 Jun 2026 00:30:14 GMT
+
+https://collider.com/the-boys-prime-video-streaming-success-june-2026-vought-rising-release-window-2027/
+
+More than two weeks removed from the Season 5 finale, The Boys fans are still watching the superhero series before the premiere of Vought Rising.
+---------
+
+# Netflix's Thrilling 6-Part Superhero Series Is the Perfect Weekend Binge for 'Supergirl' Fans
+
+TV Features, Supergirl, The CW, Netflix, Melissa Benoist
+
+Mon, 08 Jun 2026 00:20:15 GMT
+
+https://collider.com/supergirl-thrilling-superhero-series-dctv-arrowverse/
+
+Before the Supergirl movie comes out at the end of the month, there's time to binge the original Arrowverse version of the superhero on Netflix.
+---------
+
+# 14 Years Later, Colin Farrell’s Divisive Sci-Fi Remake Is Finally Getting a Second Chance
+
+Movie News, Total Recall, Sugar, Colin Farrell, Sci-Fi
+
+Mon, 08 Jun 2026 00:15:13 GMT
+
+https://collider.com/colin-farrell-total-recall-remake-streaming-free-tubi-ahead-of-sci-fi-return-sugar/
+
+Ahead of Colin Farrell's return in Sugar, watch his 2012 Total Recall remake for free this month. Find out more.
+---------
+
+# 10 Near-Perfect Apple TV Shows That Are Worth Your Time
+
+TV, Apple TV, Pluribus, Ted Lasso, Slow Horses
+
+Mon, 08 Jun 2026 00:02:15 GMT
+
+https://collider.com/near-perfect-apple-tv-shows-worth-your-time/
+
+Dive into great Apple TV shows with near-perfect ratings and high-quality entertainment, including Ted Lasso, Pachinko, and Slow Horses.
+---------
+
+# Apple TV’s New 8-Part Sci-Fi Thriller Is Officially Taking Over the World
+
+TV News, Star City, For All Mankind, Sci-Fi, Apple TV
+
+Mon, 08 Jun 2026 00:01:15 GMT
+
+https://collider.com/apple-tv-for-all-mankind-spin-off-sci-fi-thriller-series-star-city-streaming-success-june-2026/
+
+A new sci-fi thriller from Apple TV is taking the streaming world by storm, outperforming expectations and dominating global charts.
+---------
+
+# Loved ‘Obsession’? Chris Pratt’s Controversial Sci-Fi Movie Is a Free Streaming Companion Piece
+
+Movie News, Passengers, Chris Pratt, Jennifer Lawrence, Tubi
+
+Sun, 07 Jun 2026 23:46:14 GMT
+
+https://collider.com/chris-pratt-controversial-sci-fi-movie-passengers-free-streaming-tubi-june-2026-obsession-replacement/
+
+Chris Pratt's controversial sci-fi hit with Jennifer Lawrence, Passengers, is streaming for free this month. Find out where you can watch it.
+---------
+
+# Clint Eastwood's Underrated Western 'Pale Rider' Is Secretly a Supernatural Ghost Story
+
+Features, Clint Eastwood, Western
+
+Sun, 07 Jun 2026 23:30:20 GMT
+
+https://movieweb.com/clint-eastwood-supernatural-western-pale-rider/
+
+This often-overlooked Clint Eastwood western is not only a masterpiece but also a story with a supernatural twist.
+---------
+
+# 'Masters of the Universe 2': Confirmation, Cast, Plot, & Everything We Know
+
+Features, Masters of the Universe
+
+Sun, 07 Jun 2026 23:15:18 GMT
+
+https://movieweb.com/masters-of-the-universe-2-details/
+
+'Masters of the Universe' has won over the fans. Will a sequel be coming any time soon?
+---------
+
 # After Dutton Ranch, Taylor Sheridan's 3-Part Action Thriller Is Officially Returning In 2026
 
 Streaming TV, Masked Recs
