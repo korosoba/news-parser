@@ -1,3 +1,443 @@
+# Chris Pratt's Cancelled 4-Part Series Becomes Global Netflix Streaming Smash Hit
+
+TV, Masked Recs
+
+Mon, 08 Jun 2026 18:07:58 GMT
+
+https://screenrant.com/chris-pratt-everwood-netflix-streaming-success-june-2026/
+
+Years after it aired its final episode, one of Chris Pratt's earliest roles is getting a second look and taking Netflix by storm internationally.
+---------
+
+# Spider-Man Breaks Daredevil Out Of Prison In New MCU Art Ahead Of Spider-Man: Brand New Day Trailer
+
+Superheroes, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Mon, 08 Jun 2026 18:07:26 GMT
+
+https://screenrant.com/spider-man-brand-new-day-daredevil-prison-hand-mcu-art/
+
+Spider-Man: Brand New Day art shows Spider-Man freeing Daredevil from prison to fight the Hand before the awaited new Spider-Man movie trailer.
+---------
+
+# In 7 Weeks, Sony Will Officially Release The Missing Spider-Man Movie
+
+Movies, Masked Recs
+
+Mon, 08 Jun 2026 18:00:21 GMT
+
+https://screenrant.com/spider-man-brand-new-day-missing-movie-fans-were-waiting/
+
+Spider-Man has a rich history in the world of cinema, but Sony's upcoming release looks set to be the film we've been waiting decades for.
+---------
+
+# Kevin Costner’s Hit $84M Fantasy Adaptation On Netflix Gets Disappointing New Update
+
+Movies, Masked Recs
+
+Mon, 08 Jun 2026 17:54:59 GMT
+
+https://screenrant.com/kevin-costner-field-of-dreams-leaving-netflix-june-2026/
+
+Kevin Costner has starred in several iconic movies. Netflix is now revealing the fate of one of those films on the popular streaming service.
+---------
+
+# Scary Movie 6's Post-Credits Target 2 Of The Year's Biggest Horror Hits
+
+Movies, Scary Movie
+
+Mon, 08 Jun 2026 17:45:21 GMT
+
+https://screenrant.com/scary-movie-6-credits-scenes/
+
+Despite mixed reviews, Scary Movie 6 has made waves in its opening weekend, and the new film has two surprising post credits scenes.
+---------
+
+# HBO Max’s New 12-Part Fantasy Military Series Is Officially A Global Streaming Hit
+
+TV, Masked Recs, HBO Max
+
+Mon, 08 Jun 2026 17:32:21 GMT
+
+https://screenrant.com/hbo-max-legend-of-kitchen-soldier-streaming-success-june-2026/
+
+HBO Max is seeing major success for their new 12-part fantasy military TV show, as the latest 2026 project becomes a worldwide streaming hit.
+---------
+
+# Prime Video’s 94% RT Megahit Could Become Sci-Fi’s Game Of Thrones
+
+Streaming TV, Masked Recs
+
+Mon, 08 Jun 2026 17:30:21 GMT
+
+https://screenrant.com/fallout-prime-video-sci-fi-version-game-of-thrones/
+
+The small screen is crying out for another decade-long global phenomenon like Game of Thrones, but Prime Video might already be providing it.
+---------
+
+# Daemons of the Shadow Realm Is Officially Coming To Netflix
+
+Anime, Daemons of the Shadow Realm, Netflix
+
+Mon, 08 Jun 2026 17:16:01 GMT
+
+https://screenrant.com/daemons-shadow-realm-coming-netflix-fullmetal-alchemist-successor/
+
+Netflix has officially snagged one of 2026's top anime, and it is the perfect successor to the greatest anime series of all time for fans.
+---------
+
+# It's The End Of An Era For The Bear As Hulu As Officially Reveals Carmy's Chaotic Final Service In Season 5 Trailer
+
+TV, The Bear
+
+Mon, 08 Jun 2026 17:13:43 GMT
+
+https://screenrant.com/the-bear-season-5-trailer/
+
+The first trailer for the fifth and final season of The Bear has been released, revealing the first look at Carmy and Syd's final service.
+---------
+
+# 10 Steve Buscemi Performances That Are Rightly Considered Masterpieces
+
+Movies, Steve Buscemi
+
+Mon, 08 Jun 2026 17:12:46 GMT
+
+https://screenrant.com/best-steve-buscemi-performances-all-time/
+
+Living legend' Steve Buscemi's greatest roles.
+---------
+
+# 10 Most Complex Anime Magic Systems That Actually Make Sense
+
+Anime, shonen anime, Hunter x Hunter, Jujutsu Kaisen, Naruto
+
+Mon, 08 Jun 2026 18:15:16 GMT
+
+https://www.cbr.com/complex-anime-magic-systems-that-make-sense/
+
+A complex magic system in anime doesn't always make sense, but series like Hunter x Hunter and Jujutsu Kaisen go above and beyond to drive it home.
+---------
+
+# Hulu Officially Seals The Bear's Future
+
+TV, The Bear
+
+Mon, 08 Jun 2026 18:03:35 GMT
+
+https://www.cbr.com/hulu-the-bear-season-5-trailer/
+
+It's officially the end of an era for one of the best shows.
+---------
+
+# Javier Bardem Reveals the Actual Villain of Cape Fear
+
+TV, Cape Fear
+
+Mon, 08 Jun 2026 17:55:57 GMT
+
+https://www.cbr.com/javier-bardem-cape-fear-real-villain-explained/
+
+Javier Bardem explains the true villain of Apple TV's Cape Fear and why the series' horror goes beyond Max Cady.
+---------
+
+# CBS’ Yellowstone Replacement Gets Massive Season 2 Update Just 2 Weeks After Finale
+
+TV, Yellowstone, Marshals
+
+Mon, 08 Jun 2026 17:53:17 GMT
+
+https://www.cbr.com/cbs-marshals-season-2-filming/
+
+The series was extremely divisive but audiences turned up every week.
+---------
+
+# 36 Years Later, Picard’s Greatest Star Trek Line Is Still the Scariest Quote in Sci-Fi History
+
+TV, Star Trek, Star Trek: The Next Generation, Sci-Fi
+
+Mon, 08 Jun 2026 17:31:13 GMT
+
+https://www.cbr.com/star-trek-tng-picard-scariest-star-trek-line/
+
+After a shaky start, Star Trek: The Next Generation's Season 3's "Yesterday's Enterprise," saved the series with an equally dark and hopeful episode.
+---------
+
+# Jem and the Holograms Gets Live-Action Reboot at Major Streamer
+
+TV, Jem and the Holograms
+
+Mon, 08 Jun 2026 17:10:11 GMT
+
+https://www.cbr.com/jem-and-the-holograms-reboot-prime-video/
+
+Jem and the Holograms are officially set to return with a live-action reboot courtesy of one of the biggest streaming platforms in the industry.
+---------
+
+# Death Stranding Movie Director Reveals Where It Fits in the Games' Canon
+
+Movies, Death Stranding
+
+Mon, 08 Jun 2026 17:06:23 GMT
+
+https://www.cbr.com/death-stranding-movie-director-reveals-canon-timeline/
+
+A couple of major updates were just revealed for the Death Stranding adaptation.
+---------
+
+# 8 New Official Pokémon Redesigns Revealed for 30th Anniversary
+
+Anime, Pokemon, Pokémon, Nintendo
+
+Mon, 08 Jun 2026 17:00:13 GMT
+
+https://www.cbr.com/pokemon-shower-splash-redesigns-30th-anniversary/
+
+A celebrated Japanese toy brand unleashes a wave of refreshing new designs for iconic Pokémon such as Charizard, Squirtle, Milotic and more.
+---------
+
+# Karl Urban's Dark Fantasy Sequel Is Finally Heading to Digital After Flopping in Theaters
+
+Movies, Mortal Kombat II
+
+Mon, 08 Jun 2026 16:52:59 GMT
+
+https://www.cbr.com/mortal-kombat-ii-dark-fantasy-digital-release-date/
+
+The first 10 minutes of the dark fantasy sequel have also been released online.
+---------
+
+# Ridley Scott Is Officially Launching His Own Pirates of the Caribbean Replacement With Hugh Jackman
+
+Movies, Pirates of the Caribbean, ridley scott, hugh jackman
+
+Mon, 08 Jun 2026 16:48:54 GMT
+
+https://www.cbr.com/ridley-scott-hugh-jackman-treasure-island/
+
+The new adventure film is based on a classic novel that has been adapted several times, both on the big and small screen.
+---------
+
+# Pokémon Is Officially Coming to Disney+
+
+TV News, Disney+, Pokémon, Pokémon Heroes, Pokémon Horizons
+
+Mon, 08 Jun 2026 18:05:13 GMT
+
+https://collider.com/pokemon-disney-plus-streaming-release-window-2026/
+
+Pokémon is reportedly heading to Disney+ in 2026, marking a major streaming shift for the long-running anime franchise.
+---------
+
+# X-Men ’97’ Is Officially Fixing the Original Show’s Biggest Plot Hole 33 Years Later
+
+TV Features, X-Men '97, X-Men, Disney+, Marvel
+
+Mon, 08 Jun 2026 17:47:14 GMT
+
+https://collider.com/x-men-97-season-2-fixing-archangel-apocalypse-story/
+
+X-Men '97 is addressing a continuity error in Season 2, as Archangel's time as an original member of the X-Men is officially confirmed.
+---------
+
+# Its Officially the End of an Era for 'The Bear'
+
+TV News, The Bear, Jeremy Allen White, Ayo Edebiri, Hulu
+
+Mon, 08 Jun 2026 17:30:30 GMT
+
+https://collider.com/the-bear-season-5-trailer-final-season-fx/
+
+Watch the new trailer for The Bear Season 5 before the series returns for the final time later this month on FX.
+---------
+
+# 5 Franchises Where Every Movie Is a Masterpiece
+
+Movie, Harold and Kumar Go to White Castle, The Good, the Bad and the Ugly, Before Sunset, The Trip
+
+Mon, 08 Jun 2026 17:14:15 GMT
+
+https://collider.com/franchises-every-movie-masterpiece/
+
+Very few movie franchises have produced a masterpiece with every entry, but some like the Dollars Trilogy and The Trip series succeed on every level.
+---------
+
+# 'Jem and the Holograms' Live-Action Series Officially Confirmed at Amazon
+
+TV News, Hasbro, Jonathan Nolan, Lisa Joy, Jem
+
+Mon, 08 Jun 2026 17:12:38 GMT
+
+https://collider.com/jem-and-the-holograms-series-live-action-confirmed-amazon-studios/
+
+After Barbie and Masters of the Universe, another iconic toy line is set to come alive as Jem and the Holograms gets Amazon series.
+---------
+
+# 15 Best LGBTQ+ Animated Movies, Ranked
+
+Movie, Animation
+
+Mon, 08 Jun 2026 17:12:15 GMT
+
+https://collider.com/best-lgbtq-animated-movies-ranked/
+
+From Strange World to Nimona to Flee, these are the best animated LGBTQ+ movies of all time.
+---------
+
+# Anya Taylor-Joy's Sci-Fi Epic Is Officially the First $1 Billion Dollar Movie of 2026
+
+Movie News, Anya Taylor-Joy, The Super Mario Galaxy Movie, Chris Pratt, Box Office
+
+Mon, 08 Jun 2026 16:50:14 GMT
+
+https://collider.com/the-super-mario-galaxy-movie-1-billion-worldwide-box-office/
+
+The Super Mario Galaxy Movie has become the first blockbuster to pass the coveted $1 billion mark at the worldwide box office this year.
+---------
+
+# Bill Nye's New Dinosaur Movie Arrives in 2 Months
+
+Movie News, Bill Nye, PAW Patrol, Mckenna Grace, Snoop Dogg
+
+Mon, 08 Jun 2026 16:42:19 GMT
+
+https://collider.com/bill-nye-dinosaur-movie-paw-patrol-the-dino-movie-release-date-august-14-2026/
+
+Bill Nye is set to appear in an upcoming dinosaur movie that's due to arrive in theaters on August 14. A new trailer will release this week.
+---------
+
+# 'The Mandalorian and Grogu' Officially Overtakes Ridley Scott's Sci-Fi Film at the Box Office
+
+Movie News, Ridley Scott, Prometheus, The Mandalorian and Grogu, Box Office
+
+Mon, 08 Jun 2026 16:40:14 GMT
+
+https://collider.com/the-mandalorian-and-grogu-box-office-overtakes-prometheus-ridley-scott-most-divisive-sci-fi-hit/
+
+The Mandalorian and Grogu has overtaken Ridley Scott's most divisive sci-fi movie, Prometheus, at the domestic box office. Find out more.
+---------
+
+# 'Pressure' Overtakes Spike Lee's Forgotten $45M WWII Epic at the Box Office
+
+Movie News, Pressure, World War II, Box Office, Spike Lee
+
+Mon, 08 Jun 2026 16:30:13 GMT
+
+https://collider.com/pressure-box-office-overtakes-spike-lee-forgotten-world-war-2-epic-miracle-at-st-anna/
+
+The acclaimed new movie Pressure has overtaken the lifetime domestic haul of Spike Lee's forgotten World War II epic, Miracle at St. Anna.
+---------
+
+# Marlon Wayans Reveals Which Massive 90s Icon Almost Led the 'Scary Movie' Franchise
+
+Movie News, Marlon Wayans, Scary Movie, Melissa Joan Hart
+
+Mon, 08 Jun 2026 18:01:30 GMT
+
+https://movieweb.com/marlon-wayans-reveals-90s-icon-scary-movie-franchise/
+
+Their casting would have entirely changed the 'Scary Movie' franchise if it hadn't been for one person's suggestion.
+---------
+
+# How '3 Body Problem' Redeems the 'Game of Thrones' Creators
+
+Features, 3 Body Problem, Game Of Thrones
+
+Mon, 08 Jun 2026 18:00:19 GMT
+
+https://movieweb.com/3-body-problem-game-of-thrones-creators-redemption/
+
+'Game of Thrones' drew a lot of criticism for its later seasons, but the showrunners are making sure that doesn't happen again. Read on for more.
+---------
+
+# Ridley Scott's Post-Apocalyptic Action Thriller Starring Jacob Elordi Gets New Trailer
+
+Movie News, The Dog Stars, Ridley Scott
+
+Mon, 08 Jun 2026 17:58:38 GMT
+
+https://movieweb.com/ridley-scott-the-dog-stars-official-trailer/
+
+Ridley Scott returns to sci-fi in the new trailer for his upcoming post-apocalyptic action thriller.
+---------
+
+# Brad Pitt Fights for Survival in First Look at New Action Thriller From 'Beekeeper's David Ayer
+
+Movie News, David Ayer, Brad Pitt
+
+Mon, 08 Jun 2026 17:21:35 GMT
+
+https://movieweb.com/brad-pitt-heart-of-the-beast-first-look/
+
+Brad Pitt shows us an entirely new side in the first look at survival thriller 'Heart of the Beast.'
+---------
+
+# Ridley Scott Casts Hugh Jackman as Iconic Pirate in Adaptation of 143-Year-Old Classic
+
+Movie News, Hugh Jackman, Ridley Scott, Treasure Island
+
+Mon, 08 Jun 2026 17:10:11 GMT
+
+https://movieweb.com/hugh-jackman-ridley-scott-treasure-island/
+
+Hugh Jackman is set to star as Long John Silver in an adaptation of 'Treasure Island.'
+---------
+
+# Emma Stone's 142-Minute R-Rated Sci-Fi Reimagining Finally Arrives on Netflix
+
+Movie News, Emma Stone, Poor Things, Coming/Leaving Streaming, Sci-Fi, Netflix
+
+Mon, 08 Jun 2026 17:00:20 GMT
+
+https://movieweb.com/emma-stone-poor-things-sci-fi-streaming-netflix-june-2026/
+
+Three years after hitting theaters, Emma Stone's reimagining of a 200-year-old sci-fi classic has finally made its way onto Netflix.
+---------
+
+# The 10 Greatest Opening Lines in Movie History, Ranked
+
+Movie Lists, Goodfellas
+
+Mon, 08 Jun 2026 17:00:20 GMT
+
+https://movieweb.com/best-opening-lines-movies-ranked/
+
+The best opening lines from popular movies are memorable, even decades after they were released.
+---------
+
+# The Origin of 'Always Sunny's Pepe Silvia Meme, Explained
+
+Features, It's Always Sunny in Philadelphia, Charlie Day
+
+Mon, 08 Jun 2026 17:00:20 GMT
+
+https://movieweb.com/its-always-sunny-in-philadelphia-pepe-silvia-meme-explained/
+
+The Pepe Sylvia conspiracy in 'It's Always Sunny in Philadelphia' is one of the show's most iconic scenes. Here's how it evolved into a famous meme.
+---------
+
+# Wonder Woman Prequel 'Paradise Lost' Reportedly Finds Its Creative Team
+
+TV News, Paradise Lost, DCU, Wonder Woman
+
+Mon, 08 Jun 2026 16:24:41 GMT
+
+https://movieweb.com/paradise-lost-writers-dcu/
+
+Kira Snyder and Janet Lin have been listed as writers on the upcoming DCU series that was rumored to be canceled.
+---------
+
+# 'Dexter: Resurrection' Season 2 Cast & Character Guide
+
+Features, Dexter: Resurrection
+
+Mon, 08 Jun 2026 16:00:20 GMT
+
+https://movieweb.com/dexter-resurrection-season-2-cast-character-guide/
+
+'Dexter: Resurrection' will be back this year for Season 2, and based on the incredible cast announcements, it's going to be a great season.
+---------
+
 # Adventure Time Reveals Finn & Jake’s Origin Story And Recast Main Character In Side Quests Trailer
 
 TV, Adventure Time: Side Quests
