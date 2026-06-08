@@ -1,3 +1,388 @@
+# Major 2026 Star Trek Release Gets Harsh Response From Original Series Cast Member
+
+Gaming, Star Trek
+
+Mon, 08 Jun 2026 20:35:17 GMT
+
+https://screenrant.com/star-trek-magic-the-gathering-william-shatner-art-response/
+
+An original Star Trek actor just shared some harsh criticism for the franchise's biggest 2026 release, and it has the fandom divided.
+---------
+
+# The Mandalorian & Grogu's Disney+ Release Is A First For Streaming
+
+Streaming TV, The Mandalorian and Grogu, The Mandalorian, Star Wars, Disney+
+
+Mon, 08 Jun 2026 20:30:21 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-disney-plus-streaming-full-circle/
+
+The Mandalorian and Grogu is the first movie sequel to a streaming show to get a theatrical release, which is a major step for streaming services.
+---------
+
+# 5 Greatest David Corenswet Superman Scenes, Ranked
+
+Movies, Superman
+
+Mon, 08 Jun 2026 20:30:21 GMT
+
+https://screenrant.com/5-greatest-david-corenswet-superman-scenes-ranked/
+
+David Corenswet has become a fan favorite in the year since his debut as Superman, and these scenes show exactly why he's so beloved.
+---------
+
+# Prime Video’s 3-Part Fantasy Epic Shows The Witcher Season 5 How It’s Done
+
+TV, Masked Recs
+
+Mon, 08 Jun 2026 20:15:22 GMT
+
+https://screenrant.com/prime-videos-3-part-fantasy-epic-shows-the-witcher-season-5-how-its-done/
+
+The Witcher's final season is coming to Netflix later this year, but it should follow the example of a Prime Video fantasy show's impressive ending.
+---------
+
+# Hereditary Prequel Officially Confirmed By Ari Aster (But There’s A Catch)
+
+Horror, Hereditary
+
+Mon, 08 Jun 2026 20:04:29 GMT
+
+https://screenrant.com/hereditary-prequel-ari-aster-confirmation/
+
+Hereditary could be returning as Ari Aster confirms that a prequel movie has been written, however a major road block could be halting the project.
+---------
+
+# It's Officially The End Of An Era For House Of The Dragon
+
+TV, House of the Dragon, Game of Thrones
+
+Mon, 08 Jun 2026 20:02:21 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-end-of-an-era-war-begins/
+
+As House of the Dragon season 3 prepares for the biggest and bloodiest battle in TV history, the Game of Thrones spinoff fundamentally shifts genres.
+---------
+
+# Boston Blue Season 1's Cliffhanger Ending & Lena's Near-Death Explained By Sonequa Martin-Green
+
+TV, Boston Blue, Boston Blue - Season 1, Blue Bloods, Sonequa Martin-Green
+
+Mon, 08 Jun 2026 20:00:22 GMT
+
+https://screenrant.com/boston-blue-season-1-ending-cliffhanger-lena-near-death-sonequa-martin-green/
+
+Sonequa Martin-Green breaks down Boston Blue season 1's ending, how it's big cliffhanger will impact her character, and Lena's near-death experience.
+---------
+
+# Dexter: Resurrection Season 3's Story Plans Get Exciting New Tease From Showrunner
+
+TV, Dexter: Resurrection, Dexter
+
+Mon, 08 Jun 2026 19:56:39 GMT
+
+https://screenrant.com/dexter-resurrection-season-3-plan-clyde-phillips-tease/
+
+Showrunner Clyde Phillips has addressed early plans for Dexter: Resurrection season 3's direction as the series prepares for season 2's release.
+---------
+
+# Masters Of The Universe's Poor Box Office Is Part Of A Larger Problem
+
+New Movies, Masters of the Universe, Box Office
+
+Mon, 08 Jun 2026 19:55:21 GMT
+
+https://screenrant.com/masters-of-the-universe-box-office-nostalgia-problem/
+
+Masters of the Universe is back with a new movie, but its rough box office opening is part of a growing problem for Hollywood that needs to be fixed.
+---------
+
+# It's Officially The End Of An Era For KPop Demon Hunters
+
+Movies, KPop Demon Hunters
+
+Mon, 08 Jun 2026 19:30:20 GMT
+
+https://screenrant.com/kpop-demon-hunters-era-over-after-twice-tour/
+
+Netflix's KPop Demon Hunters was a massive hit with critics and general audiences, but it has now reached the end of an era thanks to Twice.
+---------
+
+# Apple TV’s New 10/10 Cyberpunk Hit Is the Perfect Altered Carbon Replacement
+
+TV, Neuromancer, Apple TV, Sci-Fi
+
+Mon, 08 Jun 2026 20:30:14 GMT
+
+https://www.cbr.com/apple-tv-neuromancer-altered-carbon-show-replacement/
+
+This upcoming sci-fi series, based on a book by cyberpunk pioneer William Gibson, should fill the void left by Netflix's unjustly canceled cult hit.
+---------
+
+# 5 MCU Magic Users Stronger Than Scarlet Witch, Ranked
+
+Movies, Marvel Cinematic Universe
+
+Mon, 08 Jun 2026 20:30:14 GMT
+
+https://www.cbr.com/mcu-magic-characters-stronger-than-scarlet-witch-list/
+
+Scarlet Witch has long been considered the biggest magical threat in the MCU, but there are some characters who are even stronger than she is.
+---------
+
+# Spider-Man Merges His Past With His Future While Struggling With His Present
+
+Comics, Spider-Man
+
+Mon, 08 Jun 2026 20:20:59 GMT
+
+https://www.cbr.com/amazing-spider-man-28-review-past-merged-future/
+
+In a CBR review of Amazing Spider-Man #28, see Spider-Man struggle with his present as he merges his past with his future
+---------
+
+# 10 Jujutsu Kaisen Scenes That Showed the True Cost of Being a Sorcerer
+
+Anime, Jujutsu Kaisen
+
+Mon, 08 Jun 2026 20:15:14 GMT
+
+https://www.cbr.com/jujutsu-kaisen-true-cost-of-being-sorcerer/
+
+Jujutsu Kaisen's gloomiest scenes are a perfect examination of what it means to to be a jujutsu sorcerer.
+---------
+
+# Pierce Brosnan's Underseen Revenge Action Movie Finally Gets Recognition on Netflix 3 Years Later
+
+Movies, Fast Charlie
+
+Mon, 08 Jun 2026 20:00:15 GMT
+
+https://www.cbr.com/pierce-brosnan-fast-charlie-netflix-june-2026/
+
+Morena Baccarin also stars in the underseen action movie that's now blowing up on Netflix.
+---------
+
+# After 86 Years, DC Comics Finally Kills Off Batman’s First Recurring Villain
+
+Comics, Batman
+
+Mon, 08 Jun 2026 20:00:15 GMT
+
+https://www.cbr.com/batman-10-hugo-strange-dead-confirmed/
+
+It's strange to see this Batman villain go.
+---------
+
+# The Legend of Zelda Movie Will be Nintendo's First Live-Action Movie
+
+Movies, The Legend of Zelda
+
+Mon, 08 Jun 2026 20:00:15 GMT
+
+https://www.cbr.com/legend-of-zelda-first-live-action-nintendo-movie/
+
+The Legend of Zelda is a highly anticipated Nintendo movie, and it will end a cinematic trend and be a huge first for Nintendo adaptations.
+---------
+
+# Merlin Star Shares Emotional Tribute to Late Co-Star Anthony Stewart Head: 'Hope the Message Finds Him'
+
+TV, Merlin
+
+Mon, 08 Jun 2026 19:46:58 GMT
+
+https://www.cbr.com/merlin-bradley-james-anthony-stewart-head-tribute/
+
+The late actor was a staple for Merlin, Ted Lasso, and Buffy the Vampire.
+---------
+
+# 20 Years Later, Romy and Michele’s High School Reunion Is Officially Getting a Sequel
+
+Movies, Romy and Michele's High School Reunion, Comedy, Hulu
+
+Mon, 08 Jun 2026 19:19:46 GMT
+
+https://www.cbr.com/romy-and-micheles-high-school-reunion-sequel/
+
+One of the most beloved comedies of an entire generation is finally getting the sequel that fans have been asking to see for decades.
+---------
+
+# It’s Official, Netflix’s Best Mystery Show Returns in Just 4 Months
+
+TV, Lupin, Crime, Netflix
+
+Mon, 08 Jun 2026 19:05:57 GMT
+
+https://www.cbr.com/lupin-part-4-release-date-netflix/
+
+Netflix's hit mystery series is back.
+---------
+
+# Legend of Zelda Gets Official New Project Before Live-Action Remake Release
+
+Movie News, The Legend of Zelda, Nintendo, Sony, Wes Ball
+
+Mon, 08 Jun 2026 20:30:14 GMT
+
+https://collider.com/new-legend-of-zelda-project-artbook-secrets-of-the-zonai-confirmed-october-20-2026-release-date/
+
+Nintendo has announced a new Legend of Zelda project set to be released before Sony's live-action feature film.
+---------
+
+# 10 Forgotten Anime Shows That Are Perfect From Start to Finish
+
+Movie, Anime, xxxHolic, Animation, Sket Dance
+
+Mon, 08 Jun 2026 20:05:14 GMT
+
+https://collider.com/forgotten-anime-shows-perfect-start-to-finish/
+
+Anime gems like Darker Than Black, Sherlock Hound, and Haibane Renmei are genuinely perfect but have sadly been forgotten by mainstream audiences.
+---------
+
+# Jason Bourne Meets ‘Memento’ in Netflix’s New Instant-Hit Thriller
+
+Movie News, Netflix, The Marked Woman, Jason Bourne, Memento
+
+Mon, 08 Jun 2026 20:00:15 GMT
+
+https://collider.com/the-marked-woman-jason-bourne-meets-memento-in-new-netflix-streaming-hit/
+
+Netflix's newest international hit is a Jason Bourne-meets-Memento-style thriller titled The Marked Woman. Find out more.
+---------
+
+# 'Blade Runner' Meets 'Hunger Games' in HBO Max's Hit Sci-Fi Trilogy Finale
+
+Movie Features, The Maze Runner, The Maze Runner: The Death Cure, Dylan O'Brien, Sci-Fi
+
+Mon, 08 Jun 2026 19:41:14 GMT
+
+https://collider.com/maze-runner-death-cure-hbo-max-streaming/
+
+The Death Cure, the final installment in The Maze Runner franchise, brings Dylan O'Brien's epic sci-fi trilogy to a big conclusion.
+---------
+
+# John Travolta’s New Apple TV Movie Instantly Tanks on Streaming
+
+Movie News, John Travolta, F1, Apple TV, Propeller One-Way Night Coach
+
+Mon, 08 Jun 2026 19:30:13 GMT
+
+https://collider.com/john-travolta-propeller-one-way-night-coach-overtaken-by-f1-apple-streaming-rankings/
+
+John Travolta's Propeller One-Way Nightcoach has lost its streaming crown on Apple TV to Brad Pitt's F1 after less than a week. Find out more.
+---------
+
+# 3 Best Movies to Watch on Netflix This Week (June 8-12)
+
+Movie, Netflix, Poor Things, Little Miss Sunshine, Passengers
+
+Mon, 08 Jun 2026 19:19:13 GMT
+
+https://collider.com/best-netflix-movies-watch-week-june-8/
+
+Poor Things, Little Miss Sunshine, and Passengers make up our list of the best Netflix movies to watch the week of June 8th, 2026.
+---------
+
+# First All-Black Everest Team Races Against Time in New Documentary [Exclusive]
+
+Movie News, Everest, Documentary, Tribeca Film Festival, Adventure
+
+Mon, 08 Jun 2026 19:00:13 GMT
+
+https://collider.com/full-circle-the-first-all-black-everest-ascent-sneak-peek-documentary/
+
+Witness the perilous ascent of an all-Black climbing team in a sneak peek from the new documentary Full Circle: The First All-Black Everest Ascent.
+---------
+
+# Prime Video's $300 Million James Bond Replacement Hits Rock Bottom in Streaming Debut
+
+TV News, Citadel, Prime Video, James Bond, Priyanka Chopra Jonas
+
+Mon, 08 Jun 2026 19:00:13 GMT
+
+https://collider.com/citadel-season-2-nielsen-charts-ratings-prime-video-james-bond-replacement-viewership/
+
+Prime Video's mega-budget espionage action series, Citadel, hasn't had the most ideal of returns according to the latest Nielsen ratings.
+---------
+
+# Peacock’s Wildly Original 8-Part Sci-Fi Is One of Streaming’s Greatest Original Series
+
+TV Features, Mrs. Davis, Betty Gilpin, Peacock, Sci-Fi
+
+Mon, 08 Jun 2026 18:57:13 GMT
+
+https://collider.com/best-sci-fi-on-steaming-peacock-mrs-davis-series/
+
+Mrs. Davis stars Betty Gilpin as a nun battling a powerful AI in Damon Lindelof's wildly original, 92%-rated 8-episode sci-fi series.
+---------
+
+# Disney+’s New Reboot of This 81-Year-Old Series Could Give the Streamer What Marvel and Star Wars Can’t
+
+TV Features, Casper, Disney+, Marvel, Star Wars
+
+Mon, 08 Jun 2026 18:56:13 GMT
+
+https://collider.com/disney-plus-casper-reboot-series-success/
+
+81 years after its debut, Casper the Friendly Ghost will be returning to screens in an upcoming Disney+ reboot.
+---------
+
+# Forget 'Reacher': Amazon's 100% RT Series is the Best Action Thriller on TV
+
+Features, Reacher, Prime Video, SAS: Rogue Heroes, Comparison Recommendation
+
+Mon, 08 Jun 2026 20:00:20 GMT
+
+https://movieweb.com/sas-rogue-heroes-reacher-comparison/
+
+While Amazon Prime Video's hit action thriller series 'Reacher' is a big hit starring Alan Ritchson, another action show will appeal to viewers.
+---------
+
+# Taylor Sheridan’s 5-Part Western Sensation Returns to Streaming
+
+TV News, Yellowstone, Paramount Plus, Hot on Streaming, Taylor Sheridan
+
+Mon, 08 Jun 2026 19:00:19 GMT
+
+https://movieweb.com/yellowstone-taylor-sheridan-streaming-success-paramount-june-2026/
+
+Taylor Sheridan's global streaming hit, 'Yellowstone,' makes an unexpected 2026 comeback, following 'Marshals' and 'Dutton Ranch.'
+---------
+
+# Hulu Releases First Trailer for Season 5 of 'The Bear'
+
+TV News, The Bear, Hulu
+
+Mon, 08 Jun 2026 18:32:41 GMT
+
+https://movieweb.com/the-bear-season-5-first-trailer/
+
+Hulu's 'The Bear,' one of the streamer's best shows in history, had a first trailer released for its fifth and final season.
+---------
+
+# Idris Elba Reveals if Decades-Long James Bond Rumors Were “Legit”
+
+Movie News, Idris Elba, James Bond
+
+Mon, 08 Jun 2026 18:26:47 GMT
+
+https://movieweb.com/idris-elba-james-bond-rumors-reaction/
+
+The actor confirms that rumors were never anything more than rumors.
+---------
+
+# Prime Video Officially Sets Live-Action Version of Iconic '80s Animated Series From 'Fallout' Team
+
+TV News, Jem and the Holograms, Prime Video
+
+Mon, 08 Jun 2026 18:24:29 GMT
+
+https://movieweb.com/jem-and-the-holograms-prime-video/
+
+Jonathan Nolan and Lisa Joy have signed on to develop an "elevated live-action take" on 'Jem and the Holograms.'
+---------
+
 # Chris Pratt's Cancelled 4-Part Series Becomes Global Netflix Streaming Smash Hit
 
 TV, Masked Recs
