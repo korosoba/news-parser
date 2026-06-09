@@ -1,3 +1,432 @@
+# 20 Years Ago, Warner Bros. Recast Alan Ritchson With Justin Hartley For An Action Series
+
+TV, Masked Recs
+
+Tue, 09 Jun 2026 20:13:45 GMT
+
+https://screenrant.com/alan-ritchson-aquaman-recast-justin-hartley-cw-pilot/
+
+In a surprising twist of fate, Alan Ritchson and Justin Hartley first crossed paths in a DC TV show, setting the stage for a decades-long "rivalry."
+---------
+
+# Emma Stone’s R-Rated Sci-Fi Fantasy Movie Hits Netflix
+
+Movies, Masked Recs, Emma Stone, Netflix
+
+Tue, 09 Jun 2026 20:11:59 GMT
+
+https://screenrant.com/poor-things-emma-stone-netflix-release/
+
+Netflix has become a new streaming home for Emma Stone's major R-rated sci-fi fantasy movie, as the platform officially adds the Oscar-nominated film.
+---------
+
+# Steam's New Free 9/10 RPG Is Perfect For Stardew Valley Fans
+
+Gaming, Steam, PC, Stardew Valley
+
+Tue, 09 Jun 2026 20:01:20 GMT
+
+https://screenrant.com/steam-free-9-10-rpg-stardew-valley-vibes/
+
+If you're a Stardew Valley enthusiast looking for a top-tier RPG that scratches the farming sim itch, this 9/10 Steam game is completely free.
+---------
+
+# Karate Kid's Best Sequel Officially Made Daniel LaRusso The Villain
+
+TV, Masked Recs
+
+Tue, 09 Jun 2026 20:01:20 GMT
+
+https://screenrant.com/karate-kid-sequel-cobra-kai-made-daniel-larusso-villain/
+
+One bold move turned The Karate Kid's hero into its main villain, setting the stage for a complex exploration of good and evil in Netflix's sequel.
+---------
+
+# Diego Luna's New R-Rated Netflix Movie Is Officially A Streaming Hit At The Perfect Time
+
+Movies, Masked Recs, Diego Luna
+
+Tue, 09 Jun 2026 19:56:34 GMT
+
+https://screenrant.com/diego-luna-mexico-86-netflix-streaming-hit-fifa-world-cup-timing/
+
+A new R-rated movie starring Andor's Diego Luna becomes a major streaming hit on Netflix thanks to it being released at the perfect time.
+---------
+
+# Every Mortal Kombat Movie, Ranked By Box Office
+
+Movies, Mortal Kombat, Mortal Kombat: Annihilation, Mortal Kombat II
+
+Tue, 09 Jun 2026 19:55:20 GMT
+
+https://screenrant.com/every-mortal-kombat-movie-ranked-box-office/
+
+The Mortal Kombat movies have had a wild ride at the box office over the years, so here's how they rank from lowest to highest takings.
+---------
+
+# The Magnificent Seven Remake Officially Casts Paramour For Chris Pratt & Steven McQueen's Replacement
+
+TV, The Magnificent Seven
+
+Tue, 09 Jun 2026 19:49:48 GMT
+
+https://screenrant.com/the-magnificent-seven-remake-joanne-froggatt-amy-forsyth-casting-details/
+
+MGM+’s upcoming remake of The Magnificent Seven has added two more actors to the cast, including one who will play Vin Tanner’s paramour.
+---------
+
+# Lies Of P New Game Officially Announced With Exclusive Content
+
+Gaming, Lies of P, PC
+
+Tue, 09 Jun 2026 19:42:46 GMT
+
+https://screenrant.com/lies-of-p-complete-edition-switch-2-physical-release-exclusive/
+
+Lies of P fans are getting a brand-new release with a ton of exclusive content, available for pre-order now and launching later this year.
+---------
+
+# Sophie Turner's New Prime Video Series Tomb Raider Gets Exciting Future Beyond Season 1
+
+TV, Tomb Raider, Sophie Turner
+
+Tue, 09 Jun 2026 19:39:59 GMT
+
+https://screenrant.com/prime-video-tomb-raider-future-plans-sophie-turner/
+
+Sophie Turner is playing Lara Croft in Prime Video's Tomb Raider TV series, and the actress' latest comments bode well for the show's future.
+---------
+
+# Remembering Anthony Head: His 10 Most Overlooked TV Roles
+
+TV, Anthony Head
+
+Tue, 09 Jun 2026 19:30:21 GMT
+
+https://screenrant.com/anthony-head-most-overlooked-tv-roles/
+
+The late Anthony Head had an outstanding TV career spanning more than four decades and a huge range of genre. Here are his most overlooked roles.
+---------
+
+# 10 Best Shonen Anime Like Fullmetal Alchemist: Brotherhood
+
+Anime, Fullmetal Alchemist: Brotherhood
+
+Tue, 09 Jun 2026 20:15:14 GMT
+
+https://www.cbr.com/best-shonen-anime-like-fma-brotherhood/
+
+Consequences as sacred in FMA Brotherhood. Anime that operate at that same level of integrity are rarer than they should be, but they do exist.
+---------
+
+# Steven Spielberg Clarifies the Link Between Disclosure Day & His 49-Year-Old Masterpiece
+
+Movies, Disclosure Day, Close Encounters of The Third Kind
+
+Tue, 09 Jun 2026 20:11:11 GMT
+
+https://www.cbr.com/steven-spielberg-disclosure-day-close-encounters-connection/
+
+Steven Spielberg sets the record straight on the connection between his classic sci-fi hit and his newest movie, Disclosure Day.
+---------
+
+# Absolute Catwoman Spinoff Confirmed by DC Ahead of Major Debut
+
+Comics, Absolute Universe
+
+Tue, 09 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/absolute-cassandra-cain-the-shadows-hand-release-date-confirmed/
+
+The Absolute Universe's most anticipated spinoff already has its own upcoming spinoff.
+---------
+
+# Alicia Vikander's $275M Video Game Reboot Is Making a Splash on HBO Max Ahead of New Series
+
+Movies, Tomb Raider, HBO Max
+
+Tue, 09 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/tomb-raider-action-adventure-hbo-max-success-june-2026/
+
+Alicia Vikander's action adventure film based on a popular video game series is becoming quite popular after arriving on HBO Max last month.
+---------
+
+# Avengers: Doomsday Toy Hints at the Source of Doctor Doom's Power
+
+Movies, MCU, Avengers: Doomsday, Avengers
+
+Tue, 09 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/doctor-doom-dormammu-magic-connection-avengers-doomsday/
+
+A piece of Avengers: Doomsday merchandise showcased a surprising aspect of Doctor Doom's abilities in the Marvel Cinematic Universe.
+---------
+
+# The Biggest Question House of the Dragon Season 3 Will Answer
+
+CBR Exclusives, House of the Dragon, HBO Max, Game Of Thrones
+
+Tue, 09 Jun 2026 19:46:01 GMT
+
+https://www.cbr.com/house-of-the-dragon-season-3-gayle-rankin-ewan-mitchell-alys-aemond-interview/
+
+House of the Dragon stars tease Season 3’s war questions and Alys and Aemond’s mysterious Harrenhal dynamic.
+---------
+
+# It's Officially the End of an Era for Stranger Things
+
+TV, Stranger Things, Netflix, Sci-Fi
+
+Tue, 09 Jun 2026 19:13:17 GMT
+
+https://www.cbr.com/stranger-things-the-first-shadow-closing/
+
+After 3 years, a Stranger Things era is about to end.
+---------
+
+# Absolute Catwoman Just Got a Huge Boost From DC Comics
+
+Comics, Catwoman, Batman, DC Comics, Absolute Universe
+
+Tue, 09 Jun 2026 19:00:13 GMT
+
+https://www.cbr.com/absolute-catwoman-reprinting-release-date-confirmed/
+
+DC Comics is about to give Absolute Catwoman's solo series debut the extra help it needs to continue finding its way into the hands of fans everywhere
+---------
+
+# 5 Greatest R-Rated Detective Thrillers, Ranked
+
+Movies, Thriller, Se7en, Chinatown
+
+Tue, 09 Jun 2026 19:00:13 GMT
+
+https://www.cbr.com/best-r-rated-detective-thrillers-list/
+
+Detectives form the heart of the mystery thriller genre, and these films prove its at its best when it embraces the darker side of R-rated crime.
+---------
+
+# Apple TV's Steamy New 93% RT Series Outshines Most Modern Erotic Thrillers
+
+TV, Maximum Pleasure Guaranteed, Apple TV, Thriller
+
+Tue, 09 Jun 2026 19:00:13 GMT
+
+https://www.cbr.com/apple-tv-maximum-pleasure-guaranteed-near-perfect-erotic-thriller/
+
+Apple TV's new erotic thriller series tackles topics in a way no other modern-day series has yet.
+---------
+
+# Cyberpunk Is Officially Getting a New 2026 Release
+
+Gaming News, Cyberpunk 2077, Cyberpunk: Edgerunners, Cyberpunk: Edgerunners 2, Sci-Fi
+
+Tue, 09 Jun 2026 20:24:44 GMT
+
+https://collider.com/cyberpunk-edgerunners-wuthering-waves-free-dlc-download-now/
+
+The Wuthering Waves x Cyberpunk: Edgerunners DLC is now live, adding Lucy, Rebecca, Night City content, and a free 5-star character.
+---------
+
+# Anne Hathaway's 'The Princess Diaries 3' Just Got One Step Closer to a Potential Release
+
+Movie News, Anne Hathaway, The Princess Diaries, The Princess Diaries 2: Royal Engagement, The Princess Diaries 3
+
+Tue, 09 Jun 2026 20:15:15 GMT
+
+https://collider.com/anne-hathaway-the-princess-diaries-3-update-potential-release-filming-europe/
+
+Anne Hathaway's The Princess Diaries 3 just got one step closer to a potential release, as the Devil Wears Prada 2 slows down in theaters this month.
+---------
+
+# HBO Officially Confirms a Super-Sized Premiere for Its Biggest Fantasy Series of 2026
+
+TV News, House of the Dragon, HBO Max, Game Of Thrones, Matt Smith
+
+Tue, 09 Jun 2026 19:59:39 GMT
+
+https://collider.com/hbo-game-of-thrones-spin-off-fantasy-series-house-of-the-dragon-season-3-premiere-runtime-confirmed-72-minutes/
+
+The runtime of the premiere episode of House of the Dragon Season 3 has been revealed, which sets the stage for the epic Battle of Gullet.
+---------
+
+# 'The Lord of the Rings' Star Reveals Unfortunate 'The Hunt for Gollum' Update
+
+Movie News, The Lord of the Rings, Elijah Wood, The Lord of the Rings: The Hunt for Gollum, Viggo Mortensen
+
+Tue, 09 Jun 2026 19:54:04 GMT
+
+https://collider.com/the-lord-of-the-rings-the-hunt-for-gollum-elijah-wood-small-frodo-role-explained/
+
+Elijah Wood will return as Frodo Baggins in The Hunt for Gollum, but will have reduced screentime compared to Peter Jackson's original trilogy.
+---------
+
+# Only 6 Crime Movies Are More Iconic Than 'The Godfather'
+
+Movie, Crime, The Godfather Part II, Once Upon a Time in America, The Silence of the Lambs
+
+Tue, 09 Jun 2026 19:44:15 GMT
+
+https://collider.com/crime-movies-more-iconic-than-the-godfather/
+
+Pulp Fiction and The Silence of the Lambs rank among the only crime classics bold enough to challenge a cinematic giant like The Godfather.
+---------
+
+# James Bond Officially Returns Later This Year for Brand-New Mission
+
+Gaming News, 007 First Light, James Bond, Patrick Gibson, IO Interactive
+
+Tue, 09 Jun 2026 19:43:01 GMT
+
+https://collider.com/james-bond-return-007-first-light-new-bawma-story-mission-aleph/
+
+James Bond will return later this year for a new mission, after IO Interactive has confirmed that more story content is coming to 007 First Light.
+---------
+
+# Kurt Russell Officially Sets First-Ever Fan Convention Appearance After 60-Year Career
+
+Movie News, Kurt Russell, Fan Expo, Escape From New York, Tombstone
+
+Tue, 09 Jun 2026 19:41:13 GMT
+
+https://collider.com/kurt-russell-first-convention-appearance-fan-expo-chicago-2026/
+
+Kurt Russell is officially making his first-ever fan convention appearance, with autographs, photo ops, and a live stage panel. Get the details.
+---------
+
+# Taylor Sheridan’s ‘Yellowstone’ Expansion Officially Sets the Stage for 2026 Return
+
+TV News, Marshals, Luke Grimes, Taylor Sheridan, Yellowstone
+
+Tue, 09 Jun 2026 19:31:12 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-spin-off-marshals-season-2-filming-start-june-2026/
+
+Taylor Sheridan's latest Yellowstone spin-off is already setting the stage for a 2026 return as production has officially resumed.
+---------
+
+# 10 Fantasy Movies Without a Single Flaw
+
+Movie, Fantasy, The Wizard of Oz, The Lord of the Rings: The Fellowship of the Ring, Kubo and the Two Strings
+
+Tue, 09 Jun 2026 19:23:13 GMT
+
+https://collider.com/fantasy-movies-without-flaws/
+
+From The Wizard of Oz to Who Framed Roger Rabbit, these brilliant fantasy movies have virtually no flaws, representing the absolute peak of the genre.
+---------
+
+# ‘Rivals’ Just Broke an Unwritten TV Rule That Changes Everything
+
+TV Features, Rivals, Claire Rushbrook, David Tennant, Hulu
+
+Tue, 09 Jun 2026 19:21:15 GMT
+
+https://collider.com/rivals-season-2-midseason-finale-monica-baddingham-death-explained/
+
+Rivals' midseason finale just killed off Monica, a brutal move that brings back the problematic theme of fridging for the Hulu series.
+---------
+
+# It's Officially the End of an Era for 'Stranger Things'
+
+TV News, Stranger Things, Horror, Netflix
+
+Tue, 09 Jun 2026 20:07:26 GMT
+
+https://movieweb.com/stranger-things-the-first-shadow-broadway/
+
+'Stranger Things: The First Shadow' will end its run on Broadway and the West End in 2027.
+---------
+
+# Guy Ritchie and Henry Cavill's Action Thriller Flop Explodes on Streaming
+
+Movie News, In the Grey, Hot on Streaming, Guy Ritchie, Henry Cavill, Action
+
+Tue, 09 Jun 2026 20:00:18 GMT
+
+https://movieweb.com/in-the-grey-trending-on-the-apple-and-amazon-stores/
+
+After flopping in theaters, Henry Cavill and Guy RItchie's box office flop action thriller 'In the Grey' is a major success on digital streaming.
+---------
+
+# 10 Near-Perfect Spy Movies That No One Remembers Today
+
+Movie Lists, The Conversation
+
+Tue, 09 Jun 2026 20:00:18 GMT
+
+https://movieweb.com/almost-perfect-spy-movies-forgotten/
+
+From visceral, low-budget indies to sweeping, cinematic epics, here are 10 underrated spy movies that are close to being perfect.
+---------
+
+# Jason Statham's Most Chaotic Action Franchise Finally Gets an Update 17 Years Later
+
+Movie News, Crank, Crank: High Voltage, Jason Statham, Amy Smart
+
+Tue, 09 Jun 2026 19:58:13 GMT
+
+https://movieweb.com/jason-statham-crank-trilogy-update/
+
+It sounds as though we might never end up getting a 'Crank 3.'
+---------
+
+# 'Game of Thrones' Will Officially Break Franchise History After 15 Years
+
+Features, Game of Thrones, House of the Dragon
+
+Tue, 09 Jun 2026 19:36:51 GMT
+
+https://movieweb.com/house-of-the-dragon-premiere-longest-franchise-history/
+
+It's good to shake things up a bit every once in a while.
+---------
+
+# One of the Greatest Detectives Officially Recast for New Reboot
+
+TV News, Mystery, Agatha Christie
+
+Tue, 09 Jun 2026 19:02:25 GMT
+
+https://movieweb.com/hercule-poirot-edward-bluemel-bbc-britbox/
+
+Edward Bluemel ('A Discovery of Witches,' 'Killing Eve') will play a young Hercule Poirot in a new six-part series.
+---------
+
+# It's Officially the End of an Era for Star Trek
+
+Features, Star Trek
+
+Tue, 09 Jun 2026 19:00:20 GMT
+
+https://movieweb.com/star-trek-end-of-an-era/
+
+The Star Trek franchise has been comfortably at home on Paramount+ for almost half a decade. That could all be about to change. Read on for more.
+---------
+
+# Forget Taylor Sheridan, the Best Western Crime Thriller Shoots Onto Free Streaming
+
+Movie News, No Country for Old Men, Coming/Leaving Streaming, Western, Thriller
+
+Tue, 09 Jun 2026 19:00:20 GMT
+
+https://movieweb.com/no-country-for-old-men-free-streaming-pluto-june-2026/
+
+The Best Picture winner also features one of the best villains in the history of cinema.
+---------
+
+# 'Disclosure Day' Rotten Tomatoes Score Officially Revealed
+
+Movie News, Disclosure Day, Steven Spielberg
+
+Tue, 09 Jun 2026 18:50:58 GMT
+
+https://movieweb.com/disclosure-day-rotten-tomatoes-score/
+
+Steven Spielberg has made a triumphant return with 'Disclosure Day,' starring Josh O'Connor, Emily Blunt, Colin Firth, Eve Hewson, and Colman Domingo.
+---------
+
 # 10 Years Later, Chainsaw Man's Studio Teases Anime Adaptation Of Shonen Jump's Most Controversial Manga
 
 Anime, Chainsaw Man
