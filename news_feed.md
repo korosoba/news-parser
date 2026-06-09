@@ -1,3 +1,443 @@
+# House Of The Dragon Returns As HBO Max Global Hit & The Game Of Thrones Franchise Can Only Get Better
+
+TV, House of the Dragon, Game of Thrones
+
+Tue, 09 Jun 2026 16:15:21 GMT
+
+https://screenrant.com/house-of-the-dragon-hbo-max-streaming-success-june-2026-return/
+
+House of the Dragon is back as an HBO Max global hit, climbing streaming charts, and the Game of Thrones franchise will only get better in 2026.
+---------
+
+# Whalefall Director On Deadly Stunts, Practical Sets & Real Emotion In First Trailer For Austin Abrams Survival Thriller
+
+Movies, Whalefall
+
+Tue, 09 Jun 2026 16:01:54 GMT
+
+https://screenrant.com/whalefall-movie-trailer-brian-duffield-interview-vfx-story-details/
+
+Whalefall stars Austin Abrams as Jay, who must escape the bowels of a whale after being swallowed whole while diving for his father's remains.
+---------
+
+# Every Year After Review: A Charming Supporting Cast Heats Up Prime Video’s Lukewarm Summer Romance
+
+Streaming TV, Every Year After
+
+Tue, 09 Jun 2026 16:01:20 GMT
+
+https://screenrant.com/every-year-after-season-1-review/
+
+Every Year After boasts summer vibes and a charming supporting cast, even if friends-to-lovers Percy and Sam are the Carley Fortune show's weak link.
+---------
+
+# $441M Sci-Fi Action Blockbuster Will Be Free To Stream Next Month Just 3 Years After Debut
+
+Movies, Masked Recs, Travis Knight
+
+Tue, 09 Jun 2026 16:00:26 GMT
+
+https://screenrant.com/transformers-rise-of-the-beasts-movie-streaming-free-july-2026/
+
+Exactly three years after being released in theaters, a major sci-fi action installment is set to get a new streaming home next month for free.
+---------
+
+# Maria Bakalova's Dead Dad Is Calling In O Horizon Clip
+
+Exclusive, O Horizon, Maria Bakalova
+
+Tue, 09 Jun 2026 16:00:21 GMT
+
+https://screenrant.com/video/o-horizon-maria-bakalova-dead-dad-clip/
+
+Exclusive: ScreenRant presents a clip from O Horizon, in which Maria Bakalova's communication with her deceased father affects her relationship.
+---------
+
+# Disclosure Day Review: Nobody Does This Better Than Steven Spielberg
+
+New Movies, Disclosure Day, Sci-Fi
+
+Tue, 09 Jun 2026 16:00:21 GMT
+
+https://screenrant.com/disclosure-day-movie-review/
+
+With blockbuster sci-fi as his canvas once again, Spielberg takes on the division of today’s world and treats it with an old-fashioned thriller.
+---------
+
+# Elijah Wood Pitches TV Reboot Of Lucasfilm’s Underrated 33-Year-Old Adventure Franchise
+
+TV, The Adventures of Sam & Max: Freelance Police, Elijah Wood, Lucasfilm
+
+Tue, 09 Jun 2026 15:56:29 GMT
+
+https://screenrant.com/lucasfilm-sam-and-max-tv-reboot-pitch-elijah-wood/
+
+Exclusive: Elijah Wood is sharing his hopes for a TV reboot of an underrated Lucasfilm adventure franchise after his work in the Among Us show.
+---------
+
+# New Batman Comic Is Close to Becoming the Best-Selling of All Time
+
+Comics, Batman
+
+Tue, 09 Jun 2026 15:54:25 GMT
+
+https://screenrant.com/absolute-batman-sales-record-highest-selling/
+
+Since 2025, Batman has enjoyed a historic run of success, repeatedly setting new records, and now he's nearing his biggest milestone yet.
+---------
+
+# Solo Leveling Season 3 Gets Official Release Window
+
+Anime, Solo Leveling
+
+Tue, 09 Jun 2026 15:52:34 GMT
+
+https://screenrant.com/solo-leveling-season-3-release-window/
+
+Solo Leveling Season 3 finally confirms a release window following a major production update by one of the anime's main shareholders.
+---------
+
+# In 4 Months, David Fincher's Masterpiece Officially Changes Forever After 16 Years
+
+New Movies, The Social Network, The Social Reckoning
+
+Tue, 09 Jun 2026 15:50:23 GMT
+
+https://screenrant.com/the-social-network-change-forever-social-reckoning/
+
+It's been 16 years since a David Fincher masterpiece came out, and in just a few months, the movie will change forever in a major way.
+---------
+
+# 10 Shonen Manga That Will Keep You Hooked From Start to Finish
+
+Anime, Manga, Jujutsu Kaisen, Chainsaw Man
+
+Tue, 09 Jun 2026 16:15:13 GMT
+
+https://www.cbr.com/perfect-shonen-manga-hooked-from-start-to-finish/
+
+No matter long a shonen manga may be, the sheer quality some of them possess is enough to keep readers hooked from beginning to end.
+---------
+
+# Netflix Seals the Fate of Its Hit Mystery Thriller Series Based on Bestselling Novel
+
+TV, A Good Girl's Guide to Murder, Netflix
+
+Tue, 09 Jun 2026 16:03:17 GMT
+
+https://www.cbr.com/netflix-a-good-girls-guide-to-murder-final-season-renewal/
+
+Fresh off a Top 10 debut, Netflix reveals the fate of the beloved mystery thriller series based on the bestselling novels by Holly Jackson.
+---------
+
+# Zelda: Ocarina of Time Switch 2 Remake Announced With New Trailer
+
+Games, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Tue, 09 Jun 2026 16:03:13 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-switch-2-remake-announcement-trailer/
+
+It's really happening: the long-rumored Ocarina of Time remake for Switch 2 has finally been announced by Nintendo with a first-look at Young Link.
+---------
+
+# Disclosure Day Review: Spielberg's Thrilling Sci-Fi Adventure Movie Is Pure Cinema
+
+Movies, Disclosure Day
+
+Tue, 09 Jun 2026 16:00:26 GMT
+
+https://www.cbr.com/disclosure-day-review/
+
+Steven Spielberg's UFO flick is an imperfect but propulsive watch, best seen on the big screen.
+---------
+
+# 10 Best The Far Side Comics About Fear, Ranked
+
+Comics, The Far Side
+
+Tue, 09 Jun 2026 16:00:14 GMT
+
+https://www.cbr.com/best-far-side-comics-about-fear/
+
+The Far Side used fear as the main emotion in almost every panel of these iconic comic strips, with terrifying scenes creating iconic comedy moments.
+---------
+
+# Transformers Movie With 91% RT Audience Is Officially Heading to Free Streaming for the First Time
+
+Movies, Transformers, Transformers: Rise of the Beasts
+
+Tue, 09 Jun 2026 16:00:14 GMT
+
+https://www.cbr.com/transformers-rise-of-the-beast-pluto-tv-release-july-2026/
+
+The highest audience-rated Transformers film of all time is officially making its way to one of the best free streaming platforms online.
+---------
+
+# Paramount’s New Star Trek Strategy Will Go Down as 1 of Sci-Fi's Most Historic Fumbles
+
+TV, Star Trek, Sci-Fi, Paramount Plus
+
+Tue, 09 Jun 2026 16:00:14 GMT
+
+https://www.cbr.com/paramount-star-trek-strategy-historic-sci-fi-fumble/
+
+Paramount seems to be moving forward with Star Trek feature films, but what does that mean for the television side?
+---------
+
+# Walton Goggins’ Tomb Raider Is Officially Getting a Reboot
+
+Movies, Tomb Raider
+
+Tue, 09 Jun 2026 16:00:14 GMT
+
+https://www.cbr.com/tomb-raider-2018-forgotten-adventure-cult-classic-reboot-confirmed/
+
+Sure, a reboot is on the way, but this eight-year-old movie adaptation of an iconic video game story should be considered a cult classic.
+---------
+
+# Pokémon Officially Makes Pikachu's Plush Taller Than the Original Character in 30th Anniversary Collection
+
+Anime, Pokémon, Pokemon, Nintendo
+
+Tue, 09 Jun 2026 16:00:14 GMT
+
+https://www.cbr.com/pokemon-30th-anniversary-ichiban-kuji-pikachu-plush/
+
+Pikachu officially sizes up in new Pokémon 30th anniversary release.
+---------
+
+# Comic Characters Experience Backrooms-Style Horror
+
+Comics, Backrooms, CSBG, The Line It Is Drawn
+
+Tue, 09 Jun 2026 15:35:34 GMT
+
+https://www.cbr.com/comic-characters-experience-backrooms-style-horror/
+
+In a brand-new Line it is Drawn, our artists drew your suggestions for comic characters getting caught up in creepypasta ideas like Backrooms
+---------
+
+# It's Officially The End of an Era for ‘Bleach’
+
+TV News, Bleach, Bleach: Thousand Year Blood War, Anime, Ghost in the Shell
+
+Tue, 09 Jun 2026 16:15:14 GMT
+
+https://collider.com/bleach-thousand-year-blood-war-part-four-the-calamity-end-of-an-era-summer-release/
+
+As Bleach prepares fans for its epic finale, another upcoming anime takes the top spot in Japan's most anticipated anime of Summer 2026.
+---------
+
+# Apple TV’s Secret Sci-Fi Masterpiece Officially Returns in Less Than 100 Days
+
+TV News, Dark Matter, Apple TV, Joel Edgerton, Jennifer Connelly
+
+Tue, 09 Jun 2026 16:05:13 GMT
+
+https://collider.com/apple-tv-sci-fi-thriller-dark-matter-season-2-release-date-august-28-how-to-watch/
+
+Apple TV's mind-bending sci-fi series you may have forgotten about officially returns in less than 100 days with a new season.
+---------
+
+# Steven Spielberg’s Sci-Fi Return ‘Disclosure Day’ Isn’t the Alien Movie You Expect | Review
+
+Movie Reviews, Disclosure Day, Steven Spielberg, Sci-Fi, Emily Blunt
+
+Tue, 09 Jun 2026 16:00:14 GMT
+
+https://collider.com/disclosure-day-steven-spielberg-review/
+
+Steven Spielberg returns to sci-fi with Disclosure Day, a thrilling sci-fi alien conspiracy movie closer to Minority Report than E.T.
+---------
+
+# Disney+ Is Ready to Make Summer a Little Spookier With Its New Animated Series [Exclusive]
+
+TV News, The Doomies, Disney+, Animation
+
+Tue, 09 Jun 2026 16:00:14 GMT
+
+https://collider.com/disney-plus-the-doomies-trailer-release-date/
+
+Summerween season is officially underway.
+---------
+
+# Prime Video's 'Every Year After' Is a Predictable but Compelling Summer Escape | Review
+
+TV Reviews, Every Year After, Prime Video, Romance, Drama
+
+Tue, 09 Jun 2026 16:00:14 GMT
+
+https://collider.com/every-year-after-prime-video-review/
+
+Despite its predictability, Prime Video's Every Year After captivates with strong performances and a compelling, picturesque setting.
+---------
+
+# Leonardo DiCaprio, Ryan Gosling, Jack Black, Matt Damon & More Reveal Fav Steven Spielberg Movie
+
+Movie, Steven Spielberg
+
+Tue, 09 Jun 2026 15:55:25 GMT
+
+https://collider.com/video/leonardo-dicaprio-ryan-gosling-jack-black-matt-damon-more-reveal-fav-steven-spielberg-movie/
+
+When you think of directors, you likely think of Steven Spielberg as one of the most influential in Hollywood. In addition to receiving 24 Academy Award nominations, taking home three, the filmmaker achieved EGOT status, and is the highest-grossing director of all time. Now, in honor of Spielberg's Disclosure Day arriving in theaters this week, we asked some of your favorite stars a very important question: What's your favorite Steven Spielberg movie?From Jack Black and Paul Rudd to Matt Damon, Ben Affleck and some of the cast of Stranger Things, the answers range from all-time classics to a few surprising deep cuts. Leonardo DiCaprio, Benicio del Toro, Allison Janney, Hugh Jackman, Rian Johnson, Charli XCX and more all weigh in, from Jaws to Hook, and how they inspired them.What's YOUR favorite Spielberg film?
+---------
+
+# Netflix’s Bonkers Survival Thriller With Over 105M Views Is Finally Slowing Down
+
+Movie News, Apex, Netflix, Charlize Theron, Taron Egerton
+
+Tue, 09 Jun 2026 15:55:17 GMT
+
+https://collider.com/netflix-survival-thriller-apex-105-million-views-streaming-disappointment-june-2026/
+
+Netflix's bonkers survival thriller starring Charlize Theron and Taron Egerton is finally slowing down after earning 105 million views.
+---------
+
+# George R.R. Martin’s Perfect Western Crime Series Sets Netflix Release for Season 4
+
+TV News, Dark Winds, George R.R. Martin, Netflix, Breaking Bad
+
+Tue, 09 Jun 2026 15:45:13 GMT
+
+https://collider.com/dark-winds-george-r-r-martin-perfect-western-crime-series-season-4-netflix-release/
+
+Months after airing on AMC, Dark Winds Season 4 sets Netflix release date in the US. Here's all to know.
+---------
+
+# Say Goodbye to Jason Momoa's 'Helldivers' Adaptation
+
+Movie News, Supergirl, Jason Momoa, Justin Lin, Sci-Fi
+
+Tue, 09 Jun 2026 15:37:35 GMT
+
+https://collider.com/jason-momoa-exits-helldivers-sci-fi-movie-sony-justin-lin/
+
+Jason Momoa has exited Sony’s new Helldivers movie, though the sci-fi video game adaptation is still moving forward. Get the details!
+---------
+
+# ‘Kingdom Hearts 4’ Officially Confirms New Release After Years of Silence
+
+Video Games, Video Game, Nintendo, Nintendo Direct, PlayStation 5
+
+Tue, 09 Jun 2026 15:33:18 GMT
+
+https://collider.com/kingdom-hearts-4-trailer-release-update-square-enix/
+
+Kingdom Hearts 4 drops first official trailer after years of silence and it looks incredible. Watch it here.
+---------
+
+# ‘Disclosure Day’ Review: Steven Spielberg Latest Is Close Encounter of the Generic Kind
+
+Movie Reviews, Disclosure Day, Steven Spielberg, Sci-Fi
+
+Tue, 09 Jun 2026 16:00:20 GMT
+
+https://movieweb.com/disclosure-day-review/
+
+Emily Blunt and Josh O'Connor excel in this drama about humanity's place in the universe that buries its heavier ideas under well-orchestrated thrills
+---------
+
+# Sylvester Stallone '90s Action Thriller Classic Streaming Free Ahead of Reboot
+
+Movie News, Cliffhanger, Coming/Leaving Streaming, Sylvester Stallone, Action, Thriller
+
+Tue, 09 Jun 2026 16:00:20 GMT
+
+https://movieweb.com/cliffhanger-streaming-free-pluto-june-2026/
+
+The action movie 'Cliffhanger' revived Stallone's career following several major duds.
+---------
+
+# These 8 Movies Have the Bleakest Endings Ever Filmed
+
+Movie Lists, The Mist
+
+Tue, 09 Jun 2026 16:00:20 GMT
+
+https://movieweb.com/movies-bleak-endings/
+
+From classic movies to a horror adaptation of a beloved novel, these movies have sad endings that audiences still remember.
+---------
+
+# 'Legally Blonde' Returns in New Trailer for Prime Video Series
+
+TV News, Elle, Legally Blonde, Comedy
+
+Tue, 09 Jun 2026 15:57:18 GMT
+
+https://movieweb.com/legally-blonde-elle-trailer-prime-video/
+
+'Elle' is a new prequel series that explores what Elle Woods was up to in high school.
+---------
+
+# DC Studios Releases New 'Supergirl' Clip Featuring Jason Momoa's Lobo
+
+Movie News, Supergirl, Jason Momoa
+
+Tue, 09 Jun 2026 15:17:43 GMT
+
+https://movieweb.com/supergirl-clip-jason-momoa-lobo-immortal/
+
+Jason Momoa makes his grand return to the DCU as Lobo in a new clip released from DC Studios' 'Supergirl.'
+---------
+
+# 'Backrooms' Overtakes Timothée Chalamet Thriller in New Record-Breaking Milestone
+
+Movie News, Backrooms, Marty Supreme, Horror
+
+Tue, 09 Jun 2026 15:03:12 GMT
+
+https://movieweb.com/backrooms-timothe-chalamet-marty-supreme-a24/
+
+'Backrooms' has become A24's highest-grossing movie ever, overtaking 'Marty Supreme.'
+---------
+
+# 'Mothers’ Instinct' Ending, Explained: Did You Notice This Creepy Detail?
+
+Features, Mothers' Instinct, Thriller
+
+Tue, 09 Jun 2026 15:00:20 GMT
+
+https://movieweb.com/mothers-instinct-ending-explained/
+
+'Mothers' Instinct hides a key detail that ties everything together.
+---------
+
+# Jason Momoa Exits Highly Anticipated Blockbuster Video Game Adaptation
+
+Movie News, Jason Momoa
+
+Tue, 09 Jun 2026 14:57:26 GMT
+
+https://movieweb.com/jason-momoa-exits-helldivers/
+
+Jason Momoa is no longer set to star in the live-action movie adaptation of 'Helldivers,' which now finds itself scrambling to find a new lead.
+---------
+
+# Apple TV's New Cold War Series Is Secretly One of 2026's Best Sci-Fi Shows
+
+Features, Star City, Apple TV, For All Mankind
+
+Tue, 09 Jun 2026 14:00:20 GMT
+
+https://movieweb.com/star-city-apple-secret-sci-fi/
+
+Sci-fi shows are usually incredibly overt in displaying their genre label, but Apple TV's new Cold War drama hides it off-screen.
+---------
+
+# HBO Max Confirms Streaming Release Action Thriller 'They Will Kill You'
+
+Movie News, They Will Kill You, Action, Thriller, Horror, HBO Max
+
+Tue, 09 Jun 2026 13:41:57 GMT
+
+https://movieweb.com/they-will-kill-you-hbo-max-stream-release-date/
+
+The box office flop 'They Will Kill You' has now officially been given a streaming release date.
+---------
+
 # First Image of Captain America's Armored Redesign for the Avengers' Next Appearance
 
 Comics, Captain America, The Avengers
