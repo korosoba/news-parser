@@ -1,3 +1,410 @@
+# The Legend Of Zelda's Official Switch 2 Debut Finally Gives Us A Darker Art Style
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Triple-A Games
+
+Tue, 09 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-switch-2-official-art-style/
+
+The Legend of Zelda has numerous art styles throughout its long run, and the first game to come to Switch 2 makes another visual overhaul.
+---------
+
+# Tim Burton’s Sleepy Hollow Returns With a New Prequel Series, and Fans Are Loving It
+
+Comics, Sleepy Hollow
+
+Tue, 09 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/new-tim-burton-sleepy-hollow-prequel-series-witches-of-the-western-wood/
+
+Tim Burton's Sleepy Hollow has officially returned with a brand-new dark fantasy sequel series, and fans are already loving it.
+---------
+
+# Henry’s From Season 4 Visions “Already Changed His Brain”, Reveals Star
+
+TV, From, FROM - Season 4
+
+Tue, 09 Jun 2026 21:50:19 GMT
+
+https://screenrant.com/from-season-4-episode-7-henry-visions-robert-joy-explained/
+
+EXCLUSIVE: With Henry now experiencing visions of himself in a hospital in From season 4, actor Robert Joy clarifies what is happening.
+---------
+
+# Matt Reeves' Batman Show Is Officially Rewriting Batman's Rogues Gallery
+
+Streaming TV, Masked Recs
+
+Tue, 09 Jun 2026 21:46:04 GMT
+
+https://screenrant.com/batman-caped-crusader-season-2-rewriting-rogues-gallery/
+
+Matt Reeves' animated Batman show is coming back with a second season that will continue rewriting Batman's rogue gallery with exciting changes.
+---------
+
+# Project Hail Mary Quietly Lands Official Streaming Release Date For This Month
+
+Movies, Project Hail Mary, Amazon
+
+Tue, 09 Jun 2026 21:38:42 GMT
+
+https://screenrant.com/project-hail-mary-movie-mgm-plus-streaming-release-date-confirmed/
+
+After an incredible theatrical run, Ryan Gosling's sci-fi hit Project Hail Mary quietly lands its official streaming release this month.
+---------
+
+# Avengers Star Gets Candid About The 7-Year Doomsday Build-Up: "Just Go Have Fun”
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe, Wyatt Russell
+
+Tue, 09 Jun 2026 21:37:14 GMT
+
+https://screenrant.com/avengers-doomsday-phases-buildup-wait-hype-wyatt-russell-response/
+
+Exclusive: U.S. Agent actor Wyatt Russell shared how he hopes fans go into Avengers: Doomsday following the 7-year build-up to its release.
+---------
+
+# Paramount+’s Among Us Adaptation Has One Of The Best Casts On TV
+
+TV, Among Us, Paramount Plus
+
+Tue, 09 Jun 2026 21:30:03 GMT
+
+https://screenrant.com/paramount-plus-among-us-adaptation-voice-cast-impressive/
+
+Among Us' star-studded voice cast includes Elijah Wood, Ashley Johnson, and Randall Park, among a slew of other stars in the sci-fi comedy mystery.
+---------
+
+# Hulu Unveils The Perfect Mare Of Easttown Replacement With Release Date & First Look Revealed
+
+TV, Mare of Easttown
+
+Tue, 09 Jun 2026 21:23:26 GMT
+
+https://screenrant.com/furious-release-date-first-look-images-hulu/
+
+Hulu is about to debut a brand-new crime drama that caters to Mare of Easttown fans and just revealed the release date and several first look images.
+---------
+
+# 10 Greatest Neo-Noir TV Shows From The Past Decade
+
+Streaming TV
+
+Tue, 09 Jun 2026 21:16:21 GMT
+
+https://screenrant.com/best-neo-noir-detective-shows-past-decade/
+
+The best neo-noir TV shows from the past decade, featuring gritty stories & dark cinematography that pay homage to the classic noir genre with flair.
+---------
+
+# Disclosure Day Proves Spielberg Still Owns Alien Sci-Fi | REVIEW
+
+Movies, Disclosure Day
+
+Tue, 09 Jun 2026 21:03:09 GMT
+
+https://screenrant.com/video/disclosure-day-proves-spielberg-still-owns-alien-sci-fi-review/
+
+This Disclosure Day review explores how Steven Spielberg’s influence continues to define alien sci-fi, delivering suspense, wonder, and blockbuster storytelling that proves the legendary filmmaker’s vision still shapes the genre.
+---------
+
+# Tom Cruise's Minority Report Is Waiting To Be Rediscovered on Free Streaming
+
+Movies, Minority Report, tom cruise, steven spielberg
+
+Tue, 09 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/minority-report-tom-cruise-greatest-sci-fi-action-movie-pluto-tv/
+
+In the past two decades, sci-fi has rarely achieved the heights that this emotional race against time did.
+---------
+
+# DC Just Revealed Batman’s Most Metal Redesign So Far
+
+Comics, Batman
+
+Tue, 09 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/batman-gargoyle-of-gotham-4-batman-costume-redesign/
+
+Is this truly the most intimidating that Batman has ever looked?
+---------
+
+# Hereditary Director Confirms He Wrote a Prequel & Reveals What's Holding It Back
+
+Movies, Hereditary, Horror
+
+Tue, 09 Jun 2026 21:48:18 GMT
+
+https://www.cbr.com/hereditary-director-confirms-he-wrote-a-prequel-reveals-whats-holding-it-back/
+
+Acclaimed filmmaker Ari Aster reveals that he has a Hereditary prequel just waiting to be made, assuming he decides to go forward with it.
+---------
+
+# Josh Brolin vs. a Whale in Trailer for Survival Thriller Whalefall
+
+Movies, Whalefall
+
+Tue, 09 Jun 2026 21:39:51 GMT
+
+https://www.cbr.com/whalefall-trailer/
+
+Whalefall starring Josh Brolin and Austin Abrams unleashes a terrifying new teaser trailer to give fans a glimpse at what being eaten alive looks like
+---------
+
+# Star Trek’s 94% RT 3-Season Series Is a PVOD Hit Ahead of Return
+
+TV, Star Trek: Strange New Worlds, Star Trek, Sci-Fi
+
+Tue, 09 Jun 2026 21:30:22 GMT
+
+https://www.cbr.com/star-trek-strange-new-worlds-sci-fi-success-pvod-apple-tv-june-2026/
+
+Catch up with the voyages of Star Trek's best streaming show ahead of its return.
+---------
+
+# Obsession Star's Reported Salary Goes Viral as the Horror Eyes 400x Its Budget at the Box Office
+
+Movies, Obsession
+
+Tue, 09 Jun 2026 21:28:43 GMT
+
+https://www.cbr.com/obsession-salary-viral-box-office/
+
+The film is looking to become one of the biggest box office multipliers of all time.
+---------
+
+# Henry Cavill's Wolverine Officially Returns This Fall
+
+Movies, Deadpool & Wolverine, Henry Cavill
+
+Tue, 09 Jun 2026 21:19:40 GMT
+
+https://www.cbr.com/henry-cavills-wolverine-officially-returns-this-fall/
+
+One of the most unexpected and beloved characters to ever grace a Marvel film is officially heading for the comeback fans didn't know they needed.
+---------
+
+# 5 Greatest Lord of the Rings Games, Ranked
+
+Games, The Lord of the Rings, Video Games
+
+Tue, 09 Jun 2026 21:16:13 GMT
+
+https://www.cbr.com/best-lord-of-the-rings-games-ranked/
+
+The Two Towers and The Battle for Middle-earth are precious Lord of the Rings video games.
+---------
+
+# Vin Diesel Hypes Up Mattel's Reaction to His New Game Adaptation: 'Went Personal on This One'
+
+Movies, vin diesel
+
+Tue, 09 Jun 2026 21:13:19 GMT
+
+https://www.cbr.com/vin-diesel-rock-em-sock-em-robots-update/
+
+Vin Diesel teases his long-gestating feature film adaptation of an iconic game.
+---------
+
+# The 7-Season Crime Series With a Secret MobLand Connection Is the No. 1 Show on Streaming
+
+TV, Ray Donovan
+
+Tue, 09 Jun 2026 21:01:14 GMT
+
+https://www.cbr.com/ray-donovan-crime-pvod-success-june-2026/
+
+One of the best crime dramas of the last decade is lighting up the streaming charts nearly a decade after it came to a close.
+---------
+
+# The "Chronically Online" Are Having Their Moment Thanks to 'Backrooms'
+
+Movie Features, Backrooms, Obsession, Chiwetel Ejiofor, Renate Reinsve
+
+Tue, 09 Jun 2026 21:55:13 GMT
+
+https://collider.com/backrooms-fandom-chronically-online-youtube-creators-hollywood/
+
+YouTube creators like Kane Parsons and Curry Baker are paving the way for a completely new wave of storytelling in Hollywood.
+---------
+
+# 'Rivals' Showrunner Reveals Which Moment Made Jilly Cooper Say, "That's My Rupert and My Taggie"
+
+TV, Rivals, Dominic Treadwell-Collins, Hulu, Disney+
+
+Tue, 09 Jun 2026 21:50:14 GMT
+
+https://collider.com/rivals-season-2-midseason-finale-dominic-treadwell-collins-interview/
+
+Showrunner Dominic Treadwell-Collins reflects on working with Jilly Cooper and teases what to expect from Rivals Season 2 when the series returns.
+---------
+
+# 10 Best '90s Cartoons That Are Worth Revisiting
+
+TV, 1990s, Cartoons, Animation, Captain Planet and the Planeteers
+
+Tue, 09 Jun 2026 21:44:16 GMT
+
+https://collider.com/best-90s-cartoons-worth-revisiting/
+
+Captain Planet and the Planeteers, Gargoyles, The Tick, and Tiny Toon Adventures are among the best 1990s cartoons that are worth revisiting.
+---------
+
+# Forget 'The Last of Us,' HBO's Near-Perfect Pandemic Thriller Is Still the Best of Its Kind
+
+Movie Features, Contagion, HBO Max, Steven Soderbergh, The Last of Us
+
+Tue, 09 Jun 2026 21:42:13 GMT
+
+https://collider.com/contagion-best-the-last-of-us-replacement-pandemic-thriller/
+
+Contagion is a hyper-realistic film that follows the real responses and losses that come with handling a global pandemic.
+---------
+
+# Apple TV’s Best Detective Thriller Goes Full ‘Mindhunter’ in Final Season 2 Sneak Peek [Exclusive]
+
+TV News, Criminal Record, Peter Capaldi, Cush Jumbo, Apple TV
+
+Tue, 09 Jun 2026 21:30:22 GMT
+
+https://collider.com/apple-tv-criminal-record-season-2-finale-sneak-peek-interrogation-scene/
+
+Apple TV has released a new sneak peek for the final episode of Criminal Record Season 2 before it begins streaming tomorrow.
+---------
+
+# Prime Video’s Forgotten ’90s Gangster Thriller Deserves To Be As Big as Goodfellas
+
+Movie Features, King of New York, Prime Video, Goodfellas, 1990s
+
+Tue, 09 Jun 2026 21:23:14 GMT
+
+https://collider.com/king-of-new-york-90s-gangster-thriller-goodfellas-prime-video/
+
+Released the same year as Goodfellas, King of New York is an underrated gangster thriller that's currently available to stream on Prime Video.
+---------
+
+# 'The Last Starfighter's Official Sequel Arrives Next Month After 40+ Year Wait
+
+Movie News, The Last Starfighter, Sci-Fi, Comics, Crossing the Frontier: Making The Last Starfighter
+
+Tue, 09 Jun 2026 21:15:13 GMT
+
+https://collider.com/the-last-starfighter-sequel-comic-release-date-july-2026-preview/
+
+The sci-fi cult classic was directed by Michael Myers icon Nick Castle.
+---------
+
+# It's Official, 'Batman: The Animated Series' Is Returning This Year
+
+TV News, Batman: The Animated Series, Board Game, DC Comics, Games
+
+Tue, 09 Jun 2026 21:05:08 GMT
+
+https://collider.com/batman-the-animated-series-enemies-of-gotham-city-board-game-2026/
+
+Batman: The Animated Series gets a new 2026 release, Enemies of Gotham City, where players control Gotham villains like The Joker and Poison Ivy.
+---------
+
+# It's Officially the End of an Era for 'Tracker' With This Season 4 Reveal
+
+TV Features, Tracker, CBS, Series, Jensen Ackles
+
+Tue, 09 Jun 2026 20:36:12 GMT
+
+https://collider.com/tracker-season-4-randy-series-regular-fixes-story-problem/
+
+Chris Lee’s promotion to series regular could fix one of Tracker’s biggest storytelling problems in Season 4.
+---------
+
+# Pink Floyd Changed Forever After a Random Encounter With This Former Member
+
+Music Features, Pink Floyd, Rock, Music, The Pink Floyd and Syd Barrett Story, Pink Floyd: The Story of Wish You Were Here
+
+Tue, 09 Jun 2026 20:34:14 GMT
+
+https://collider.com/syd-barrett-pink-floyd-inspired-wish-you-were-here/
+
+When Syd Barrett dropped by during the recording of Wish You Were Here, it shook Pink Floyd to the core.
+---------
+
+# Amazon's Steamy 'The Summer I Turned Pretty' Replacement Drops This Week
+
+Features, Every Year After, Comparison Recommendation, The Summer I Turned Pretty
+
+Tue, 09 Jun 2026 22:00:20 GMT
+
+https://movieweb.com/every-year-after-summer-turned-pretty-replacement/
+
+'The Summer I Turned Pretty' is a popular Amazon Prime Video series starring Lola Tung, and Prime has a new series based on another beloved book.
+---------
+
+# 'Michael Jackson: The Verdict' Tops Netflix Charts After Streaming Debut
+
+TV News, Michael Jackson: The Verdict, Netflix
+
+Tue, 09 Jun 2026 21:30:40 GMT
+
+https://movieweb.com/michael-jackson-the-verdict-netflix-streaming-numbers/
+
+'Michael Jackson: The Verdict' becomes Netflix's most-watched project of the week in its first few days streaming.
+---------
+
+# 40 Years Later, Forgotten Hannibal Lecter Thriller Returns With All-New Version
+
+Movie News, Manhunter, Brian Cox, Thriller
+
+Tue, 09 Jun 2026 21:23:28 GMT
+
+https://movieweb.com/manhunter-hannibal-lecter-final-cut-theaters/
+
+'Manhunter: The Final Cut' is coming to theaters on July 24.
+---------
+
+# Apple TV's Very R-Rated Hit Isn't Slowing Down on Streaming
+
+TV News, Margo's Got Money Troubles, Apple TV, Hot on Streaming
+
+Tue, 09 Jun 2026 21:00:19 GMT
+
+https://movieweb.com/margos-got-money-troubles-still-trending-on-apple-tv/
+
+Apple TV's hit R-rated drama 'Margo's Got Money Troubles' is a major success on the streaming charts. Season 2 has been confirmed.
+---------
+
+# A24's Adaptation of a Sci-Fi Action Masterpiece Closes in on Major Milestone
+
+Movie News, Death Stranding, A24
+
+Tue, 09 Jun 2026 20:43:46 GMT
+
+https://movieweb.com/death-stranding-a24-script-update/
+
+'The Death of Robin Hood' director Michael Sarnoski has provided a big update on the highly anticipated video game adaptation 'Death Stranding.'
+---------
+
+# Olivia Wilde Dominates in First Trailer for New R-Rated Erotic Thriller
+
+Movie News, Olivia Wilde, I Want Your Sex
+
+Tue, 09 Jun 2026 20:29:11 GMT
+
+https://movieweb.com/olivia-wilde-i-want-your-sex-teaser-trailer/
+
+Olivia Wilde and Cooper Hoffman star in the teaser trailer for Gregg Araki's 'I Want Your Sex.'
+---------
+
+# Guy Ritchie and Henry Cavill's Action Thriller Flop Explodes on Streaming
+
+Movie News, In the Grey, Hot on Streaming, Guy Ritchie, Henry Cavill, Action
+
+Tue, 09 Jun 2026 20:00:18 GMT
+
+https://movieweb.com/in-the-grey-digital-streaming-success-june-2026-action/
+
+After flopping in theaters, Henry Cavill and Guy RItchie's box office flop action thriller 'In the Grey' is a major success on digital streaming.
+---------
+
 # 20 Years Ago, Warner Bros. Recast Alan Ritchson With Justin Hartley For An Action Series
 
 TV, Masked Recs
