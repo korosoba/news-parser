@@ -1,3 +1,234 @@
+# Guild Wars 3 Convinced Me With Just Two Words
+
+Gaming, Guild Wars 3, Live Service Games, PC
+
+Tue, 09 Jun 2026 06:00:20 GMT
+
+https://screenrant.com/guild-wars-3-skill-collection-gameplay/
+
+I wasn't expecting Guild Wars 3 to be announced, but ArenaNet knows the magic words to get me on board immediately, no more questions asked.
+---------
+
+# Steam Drops 4 New Free Games For June 2026, Yours To Keep Forever
+
+Gaming, Steam
+
+Tue, 09 Jun 2026 04:30:19 GMT
+
+https://screenrant.com/steam-drops-4-new-free-games-for-june-2026-yours-to-keep-forever/
+
+There are too many new games coming out, so allow me to confuse things by offering you another four free games via Steam.
+---------
+
+# Diablo 4 Free Download Up For Grabs For 24 Hours
+
+Gaming, Diablo 4
+
+Tue, 09 Jun 2026 04:00:31 GMT
+
+https://screenrant.com/diablo-4-free-download-24-hours-june-2026/
+
+Gamers have 24 hours to nab a special free download for Diablo 4, so be sure to claim it while you still can.
+---------
+
+# 10 Best Harley & Ivy Episodes Of HBO’s Harley Quinn
+
+Streaming TV, Harley Quinn, DC, Poison Ivy
+
+Tue, 09 Jun 2026 03:42:45 GMT
+
+https://screenrant.com/best-harley-quinn-poison-ivy-romance-episodes-hbo/
+
+HBO's Harley Quinn explores the relationship between Harley Quinn and Poison Ivy, and these are the ten best episodes to rewatch if you love them.
+---------
+
+# Netflix Total Viewership Record Officially Smashed By Surprise Streaming Platform
+
+TV, Netflix, YouTube
+
+Tue, 09 Jun 2026 02:38:17 GMT
+
+https://screenrant.com/netflix-total-viewership-record-youtube-surpass/
+
+Netflix remains one of the most dominant streaming services, but a surprise platform has now surpassed it when it comes to viewership in 2025.
+---------
+
+# After 38 Years, Dragon Ball's Next Anime Will Finally Return Yamcha To His Badass Roots
+
+Anime, Dragon Ball Super: The Galactic Patrol, Dragon Ball
+
+Tue, 09 Jun 2026 02:30:22 GMT
+
+https://screenrant.com/dragon-ball-super-next-anime-yamcha-redemption-galactic-patrol/
+
+One of the longest-running jokes in the Dragon Ball fandom can finally be put to rest as its next anime adapts an arc redeeming a classic hero.
+---------
+
+# 10 PS5 Games That Will Keep You Hooked From Start to Finish
+
+Games, Video Games, PlayStation 5
+
+Tue, 09 Jun 2026 03:45:14 GMT
+
+https://www.cbr.com/best-ps5-games-instantly-hooked-list/
+
+From epic adventures to mind-blowing graphics, titles like Returnal and Stellar Blade prove the PS5 is the best gaming generation yet.
+---------
+
+# 5 Single-Season Fantasy TV Masterpieces
+
+TV, Fantasy, WandaVision, Lockwood & Co.
+
+Tue, 09 Jun 2026 03:30:13 GMT
+
+https://www.cbr.com/best-single-season-fantasy-tv-shows-list/
+
+While some fantasy epics go on for far too long, shows like My Lady Jane and WandaVision perfect their story in a single season.
+---------
+
+# Avatar: The Last Airbender’s Heaviest Episodes, Ranked
+
+Anime, Avatar: The Last Airbender
+
+Tue, 09 Jun 2026 03:20:36 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-darkest-episodes/
+
+Avatar: The Last Airbender's heaviest episodes still weigh on fans' hearts 20 years later.
+---------
+
+# Amazon Is Officially Rebooting One Of The Highlander Franchise
+
+Movies, Highlander, Fantasy
+
+Tue, 09 Jun 2026 03:15:13 GMT
+
+https://www.cbr.com/amazon-rebooting-highlander-fantasy-franchise/
+
+Amazon's Highlander reboot is taking a fantasy series that deserves more love to finally reach the greatness it deserves, thanks to one good reason.
+---------
+
+# Marvel Super Heroes Magic: The Gathering Preview
+
+Games, Magic: The Gathering, Marvel Comics, The Avengers
+
+Tue, 09 Jun 2026 03:15:13 GMT
+
+https://www.cbr.com/marvel-super-heroes-magic-the-gathering-preview/
+
+CBR had a chance to preview Magic: The Gathering's Marvel Super Heroes set, which is focused on The Avengers, their allies, and their enemies.
+---------
+
+# Pokémon Scalpers Officially Get Bad News From Target
+
+Games, Pokemon
+
+Tue, 09 Jun 2026 02:51:35 GMT
+
+https://www.cbr.com/pokemon-scalpers-bad-news-target/
+
+The scalpers won't be happy with the changes happening at Target stores.
+---------
+
+# 10 Greatest Forgotten Movies of the 2010s, Ranked
+
+Movies, Thriller, Western, Hostiles
+
+Tue, 09 Jun 2026 02:45:13 GMT
+
+https://www.cbr.com/best-2010s-movies-no-one-remembers-list/
+
+The 2010s saw a major shift in Hollywood through the growth of major blockbusters, leaving some of its best films to be forgotten to time.
+---------
+
+# 5 James Bond Games Not Based On Movies or Books
+
+Games, Video Games, James Bond, james bond 007
+
+Tue, 09 Jun 2026 02:30:14 GMT
+
+https://www.cbr.com/best-original-james-bond-games-list/
+
+From platformers to racers, these standalone adventures showcase James Bond's limitless potential beyond the big screen.
+---------
+
+# 9 Detective Shows That Will Keep You Hooked From Start to Finish
+
+TV, Mystery, Mindhunter, Bosch, Young Sherlock
+
+Tue, 09 Jun 2026 04:18:13 GMT
+
+https://collider.com/detective-shows-hooked-start-to-finish/
+
+From the Netflix thriller Mindhunter to the Guy Ritchie mystery series Young Sherlock, these detective TV shows will keep you hooked to your screen.
+---------
+
+# 10 Forgotten '80s Movies That Have Aged Like Fine Wine
+
+Movie, Bird, Code Of Silence, Sea of Love, 1984
+
+Tue, 09 Jun 2026 04:06:13 GMT
+
+https://collider.com/forgotten-80s-movies-aged-like-fine-wine/
+
+Bird, Code of Silence, and 1984 are terrific, sadly forgotten movies from the 1980s decade that have only gotten better over time.
+---------
+
+# 7 Forgotten Fantasy Shows That Are Perfect From Start to Finish
+
+TV, Fantasy, The Magicians, The 10th Kingdom, Pushing Daisies
+
+Tue, 09 Jun 2026 03:55:14 GMT
+
+https://collider.com/forgotten-fantasy-shows-perfect-start-to-finish/
+
+From the adventure miniseries The 10th Kingdom to Syfy's underrated gem The Magicians, these forgotten fantasy series are practically flawless.
+---------
+
+# One of the Greatest Western Remakes of All Time Is Finally Streaming Again, and It's Free
+
+Movie Features, 3:10 to Yuma, Russell Crowe, Christian Bale, James Mangold
+
+Tue, 09 Jun 2026 03:41:13 GMT
+
+https://collider.com/310-to-yuma-remake-streaming-plex/
+
+James Mangold's Western remake 3:10 to Yuma, starring Christian Bale, Ben Foster, and Russell Crowe, is the filmmaker at the top of his game.
+---------
+
+# Forget 'Mindhunter,' HBO's 10-Part Stephen King Miniseries Is the Perfect Weekend Binge
+
+TV Features, The Outsider, HBO, Ben Mendelsohn, Stephen King
+
+Tue, 09 Jun 2026 03:16:15 GMT
+
+https://collider.com/the-outsider-stephen-king-hbo-miniseries-weekend-binge/
+
+HBO's The Outsider takes one of Stephen King's chilling horror novels and leaves you wanting more.
+---------
+
+# 10 Heaviest Crime Movies of All Time
+
+Movie, The Godfather Part II, The Irishman, Once Upon a Time in America, Killers of the Flower Moon
+
+Tue, 09 Jun 2026 03:11:15 GMT
+
+https://collider.com/heaviest-crime-movies-all-time-ranked/
+
+Crime movies like The Godfather Part II, Once Upon a Time in America, and No Country for Old Men all rank among the heaviest ever made.
+---------
+
+# 'Project Hail Mary' Directors Lord & Miller Set to Produce Universal's 'I Promise We're Cool'
+
+Movie News, Phil Lord, Chris Miller, Project Hail Mary
+
+Tue, 09 Jun 2026 03:42:28 GMT
+
+https://movieweb.com/phil-lord-christopher-miller-i-promise-were-cool/
+
+Phil Lord and Christopher Miller, known for their work on 'Project Hail Mary,' are now attached to produce Universal Studios' 'I Promise We're Cool.'
+---------
+
 # Marvel's "Throne Of All" Is Officially The New Infinity Gauntlet
 
 Marvel Comics, Marvel
