@@ -1,3 +1,278 @@
+# 11-Year-Old Horror Movie Finally Gets Major Sequel Casting & Timeline Update
+
+Movies, They Follow, It Follows
+
+Tue, 09 Jun 2026 23:42:57 GMT
+
+https://screenrant.com/they-follow-sequel-naomi-ackie-cast-10-year-time-jump/
+
+After 11 years, It Follows finally gets a major sequel update with new casting details and a production timeline for the horror follow-up.
+---------
+
+# Batman's Daughter Gets Her Own Solo Series, With Dark Redesign Inspired by Joker
+
+Comics, Batman, Joker, The Joker
+
+Tue, 09 Jun 2026 23:39:03 GMT
+
+https://screenrant.com/absolute-cassandra-cain-series-batgirl-joker/
+
+Absolute Cassandra Cain is finally here.
+---------
+
+# In 2 Weeks, James Gunn's DCU Will Officially Release The Missing Superman Crossover
+
+Movies, Masked Recs
+
+Tue, 09 Jun 2026 23:30:22 GMT
+
+https://screenrant.com/supergirl-superman-cameo-james-gunn-dcu-missing-crossover/
+
+Supergirl will mark the first proper team-up of Supergirl and Superman in a theatrical movie, excluding the controversial cameos in The Flash.
+---------
+
+# Netflix Loses Zom 100 In Major Win For Crunchyroll's Anime Streaming Dominance
+
+Anime, Zom 100: Bucket List of the Dead, Netflix, Crunchyroll
+
+Tue, 09 Jun 2026 23:02:05 GMT
+
+https://screenrant.com/netflix-loses-zom-100-crunchyroll-win/
+
+Zom 100 just got harder to watch.
+---------
+
+# It’s Officially The End Of An Era For Final Fantasy
+
+Gaming
+
+Tue, 09 Jun 2026 23:00:28 GMT
+
+https://screenrant.com/final-fantasy-end-of-an-era-revelations-release/
+
+A major chapter for the Final Fantasy series, which started back in 2020, will soon be coming to a close next year.
+---------
+
+# I Figured Out Why Jared Leto’s Skeletor Role Seems So Familiar
+
+Movies, Masters of the Universe
+
+Tue, 09 Jun 2026 23:00:28 GMT
+
+https://screenrant.com/jared-leto-skeltor-role-haunted-mansion-movie/
+
+Jared Leto plays Skeletor in the new Masters of the Universe film, and played a very similar character in another movie in 2023.
+---------
+
+# It’s Officially The Start Of A New Era For Sports TV
+
+Streaming TV, Sports
+
+Tue, 09 Jun 2026 22:30:22 GMT
+
+https://screenrant.com/world-cup-streaming-youtube-tiktok-sports-tv-new-era/
+
+This week will usher in a new dawn for live sport on the small screen, perhaps creating watching habits that continue for a generation.
+---------
+
+# Next Tomb Raider Release After Catalyst Announced, And It Already Looks Essential
+
+Comics, Tomb Raider
+
+Tue, 09 Jun 2026 22:30:22 GMT
+
+https://screenrant.com/new-tomb-raider-release-lara-croft-chronicles/
+
+Tomb Raider gets an official lore bible.
+---------
+
+# 4 Years Ago, Disney Made The Avengers Movie The MCU Missed Before Doomsday
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
+
+Tue, 09 Jun 2026 22:30:22 GMT
+
+https://screenrant.com/avengers-movie-quantum-encounter-missing/
+
+Back in 2022, Disney made the Avengers movie that the MCU missed out on after Endgame, even though it would have helped set up Doomsday.
+---------
+
+# Michael Hits Major Box Office Milestone Despite Digital Release
+
+Movies, Michael, Box Office, Box Office Milestone
+
+Tue, 09 Jun 2026 22:16:37 GMT
+
+https://screenrant.com/michael-900-million-global-box-office-milestone/
+
+On the same day that Michael became available to watch at home, the biopic has achieved another major milestone at the global box office.
+---------
+
+# Taylor Sheridan's 8-Part Western Series Based on a True Story Debuts to 3.3M Views on Netflix
+
+TV, Lawmen: Bass Reeves, Netflix
+
+Tue, 09 Jun 2026 23:31:14 GMT
+
+https://www.cbr.com/netflix-lawmen-bass-reeves-streaming-june-2026/
+
+Taylor Sheridan's only TV series based on a true story is now a streaming hit on Netflix.
+---------
+
+# Lucy Lawless' Flawless 6-Season Heroic Fantasy Returns as a Digital Hit 25 Years Later
+
+TV, Xena: Warrior Princess, Fantasy
+
+Tue, 09 Jun 2026 23:00:25 GMT
+
+https://www.cbr.com/lucy-lawless-xena-warrior-princess-action-fantasy-success-june-2026/
+
+One of the most influential and beloved fantasy shows, Xena: Warrior Princess, is a hit on PVOD 25 years after finale.
+---------
+
+# 10 Strongest He-Man Characters In Masters of the Universe, Ranked By Power
+
+Movies, Masters of the Universe, Sci-Fi, Fantasy
+
+Tue, 09 Jun 2026 23:00:25 GMT
+
+https://www.cbr.com/strongest-he-man-characters-masters-of-the-universe-ranked-list/
+
+Masters of the Universe unleashes the strongest heroes of Eternia. They have the Power!
+---------
+
+# Demon Slayer Launches New Infinity Castle Watch Collection With 3 Exclusive Designs
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Demon Slayer: Kimetsu no Yaiba Infinity Castle, Crunchyroll
+
+Tue, 09 Jun 2026 23:00:25 GMT
+
+https://www.cbr.com/demon-slayer-infinity-castle-limited-edition-watch-collection/
+
+Demon Slayer: Kimetsu no Yaiba fans just got a whole trio of new limited-edition watches inspired by their favorite characters.
+---------
+
+# Jon Bernthal’s 2-Season Crime Series Surges on Streaming After Disney+ Revival
+
+TV, The Punisher, Disney+
+
+Tue, 09 Jun 2026 22:44:18 GMT
+
+https://www.cbr.com/the-punisher-crime-success-disney-plus-june-2026/
+
+Jon Bernthal stars in a gritty, action-packed crime show.
+---------
+
+# 10 Forgotten Action Anime Better Than Most Blockbusters
+
+Anime
+
+Tue, 09 Jun 2026 22:15:12 GMT
+
+https://www.cbr.com/forgotten-action-anime-better-than-hollywood-blockbusters/
+
+Beyond the mainstream hits, there are obscure, forgotten anime with better action than nearly all Hollywood blockbuster films.
+---------
+
+# 'The Pitt's ER Is Officially Losing Another Major Cast Member
+
+TV News, The Pitt
+
+Tue, 09 Jun 2026 23:30:52 GMT
+
+https://collider.com/hbo-max-the-pitt-season-3-dr-javadi-role-change-leaving-er-shabana-azeez/
+
+Following Dr. Mohan's exit, The Pitt star Shabana Azeez has surprising and potentially disappointing news for fans of Dr. Javadi.
+---------
+
+# Stephen King’s Newest Netflix Sci-Fi Pick Officially Hits a Colossal 15M Viewership Record
+
+TV Features, The Boroughs, Netflix, Stephen King, Duffer Brothers
+
+Tue, 09 Jun 2026 23:24:13 GMT
+
+https://collider.com/netflix-stephen-king-the-boroughs-15-million-viewership-record/
+
+The Boroughs is proving to be Netflix’s latest hit, thanks to a smart premise & positive word of mouth.
+---------
+
+# 'The Sandlot' Is Officially Getting a Reunion Series
+
+TV News, The Sandlot, Sports, Comedy
+
+Tue, 09 Jun 2026 23:23:11 GMT
+
+https://collider.com/the-sandlot-cast-reunion-series-dugout-dads-patrick-renna-kyle-howard/
+
+Patrick Renna, Kyle Howard, and several other cast members from 1993's The Sandlot are officially reuniting for a new baseball series.
+---------
+
+# 15 Years Later, ‘Fullmetal Alchemist’ Fans Finally Have a Worthy New Dark Fantasy Anime
+
+TV Features, Daemons of the Shadow Realm, Fullmetal Alchemist, Fullmetal Alchemist: Brotherhood, Crunchyroll
+
+Tue, 09 Jun 2026 23:22:13 GMT
+
+https://collider.com/fullmetal-alchemist-replacement-anime-series-daemons-of-the-shadow-realm/
+
+Daemons of the Shadow Realm fills the same genre niche as Fullmetal Alchemist, and deals with similar themes. It also indicates how far anime fandom i
+---------
+
+# 10 Greatest Movies That Perfectly Represent American Cinema
+
+Movie, Dazed and Confused, The Godfather, The Searchers, Gone with the Wind
+
+Tue, 09 Jun 2026 23:15:14 GMT
+
+https://collider.com/best-movies-perfectly-represent-american-cinema/
+
+From timeless crime gems like The Godfather to classic coming-of-age stories like Stand by Me, these great movies perfectly represent American cinema.
+---------
+
+# 10 'Invincible' Episodes That Are Considered Masterpieces, Ranked
+
+TV, Invincible, Superhero, Prime Video, J.K. Simmons
+
+Tue, 09 Jun 2026 22:48:14 GMT
+
+https://collider.com/best-invincible-episodes-ranked/
+
+Invincible episodes like "Where I Really Come From," "I Thought You'd Never Shut Up," and "It's Been a While" are so good they're called masterpieces.
+---------
+
+# Stephen King’s Favorite 5-Part Horror Series Is Still One of Streaming’s Best Summer Binges
+
+TV Features, Teacup, Horror, Peacock, Stephen King
+
+Tue, 09 Jun 2026 22:46:13 GMT
+
+https://collider.com/stephen-king-favorite-horror-series-peacock-teacup/
+
+Teacup is Peacock's terrifying one-season horror thriller, blending body horror, paranoia, and mystery into a binge-worthy nightmare.
+---------
+
+# Long-Awaited Supernatural Thriller Sequel Officially Moves Forward With DCU Star
+
+Movie News, They Follow, It Follows, Naomi Ackie
+
+Tue, 09 Jun 2026 23:45:28 GMT
+
+https://movieweb.com/it-follows-sequel-naomi-ackie-casting/
+
+'Clayface' star Naomi Ackie has reportedly joined 'They Follow.'
+---------
+
+# Kevin Costner's 181-Minute Western Flop Is Making a Comeback on Streaming
+
+Movie News, Horizon, Prime Video, Hot on Streaming, Western, Kevin Costner
+
+Tue, 09 Jun 2026 23:00:27 GMT
+
+https://movieweb.com/horizon-an-american-saga-western-streaming-success-prime-june-2026/
+
+Despite 'Chapter 2' being cancelled, Kevin Costner's western 'Horizon: An American Saga - Chapter 1' is a streaming success on Prime Video.
+---------
+
 # The Legend Of Zelda's Official Switch 2 Debut Finally Gives Us A Darker Art Style
 
 Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Triple-A Games
