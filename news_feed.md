@@ -1,3 +1,377 @@
+# 10 Years Later, Chainsaw Man's Studio Teases Anime Adaptation Of Shonen Jump's Most Controversial Manga
+
+Anime, Chainsaw Man
+
+Tue, 09 Jun 2026 18:26:34 GMT
+
+https://screenrant.com/chainsaw-man-fire-punch-studio-mappa-new-anime/
+
+As MAPPA prepares to celebrate its 15th anniversary, fans speculate that the Chainsaw Man studio may finally adapt Tatsuki Fujimoto's Fire Punch.
+---------
+
+# Major Stranger Things Era Officially Comes To An End After 3 Years
+
+TV, Stranger Things
+
+Tue, 09 Jun 2026 18:07:50 GMT
+
+https://screenrant.com/stranger-things-the-first-shadow-broadway-show-ending/
+
+Stranger Things is officially closing another chapter after three years, following the divisive conclusion of the hit Netflix series.
+---------
+
+# All Deadliest Catch Captains & Crew Members Who Have Died
+
+Reality TV, Deadliest Catch
+
+Tue, 09 Jun 2026 18:00:22 GMT
+
+https://screenrant.com/deadliest-catch-captains-crew-members-died/
+
+There have been several Deadliest Catch captains and crew members who have died, and here is what you need to know.
+---------
+
+# Disney+'s 2-Part Sci-Fi Show Is Quietly Becoming Its Best Series
+
+Streaming TV, Masked Recs
+
+Tue, 09 Jun 2026 18:00:21 GMT
+
+https://screenrant.com/x-men-97-season-2-disney-plus-best-sci-fi-series/
+
+X-Men '97 doesn't get much attention as an animated superhero show, but the upcoming second season could cement it as a modern masterpiece.
+---------
+
+# Ballard Season 2’s Release Month Reportedly Revealed In Major New Update
+
+TV, Ballard, Bosch
+
+Tue, 09 Jun 2026 17:47:53 GMT
+
+https://screenrant.com/ballard-season-2-release-update-bosch-universe/
+
+Ballard season 2's release month has reportedly been revealed in a major new update for the Bosch spinoff, as the procedural's universe expands.
+---------
+
+# It's Officially The Start Of An Era For Paramount+
+
+Streaming TV, Masked Recs
+
+Tue, 09 Jun 2026 17:30:20 GMT
+
+https://screenrant.com/paramount-plus-network-shows-streaming-success-era/
+
+Netflix, Prime Video, and Disney+ may be dominating streaming discussions online, but figures show that Paramount+ may be their true competitor.
+---------
+
+# How Among Us Season 1 Honored The Game's Most Iconic Element
+
+TV, Among Us, Paramount Plus
+
+Tue, 09 Jun 2026 17:30:20 GMT
+
+https://screenrant.com/among-us-tv-season-1-game-element-impostor-investigation-cast-creator/
+
+Creator owen Dennis and the star-studded cast of Among Us discuss Paramount+'s video game adaptation and honoring the game's most iconic element.
+---------
+
+# Rick and Morty Season 9 Officially Drops The Show’s Most Outdated Storyline
+
+TV, Rick and Morty
+
+Tue, 09 Jun 2026 17:30:20 GMT
+
+https://screenrant.com/rick-and-morty-season-9-episode-3-drops-rick-conflict-story/
+
+In a surprising twist, Rick and Morty season 9, episode 3's best line highlights how the show's evolving narrative allows for lighter episodes.
+---------
+
+# Kurt Russell to Make First Ever Convention Appearance at FAN EXPO Chicago 2026
+
+Movies, Fan Expo
+
+Tue, 09 Jun 2026 17:07:32 GMT
+
+https://screenrant.com/fan-expo-chicago-2026-kurt-russell-first-appearance/
+
+FAN EXPO Chicago announces that legendary actor Kurt Russell will make his first-ever appearance at the convention this summer, along with many more.
+---------
+
+# Michael Keaton's $462M Classic Adventure Hit Is Officially Returning To Theaters After 20 Years
+
+Movies, Masked Recs
+
+Tue, 09 Jun 2026 17:05:50 GMT
+
+https://screenrant.com/cars-disney-pixar-theatrical-rerelease-michael-keaton/
+
+Michael Keaton's classic adventure hit is officially returning to theaters two decades after grossing $462 million at the box office in 2006.
+---------
+
+# Steven Spielberg’s New Sci-Fi Movie’s Fantastic Rotten Tomatoes Score Isn’t Even in His Top 10
+
+Movies, Disclosure Day, Sci-Fi
+
+Tue, 09 Jun 2026 18:26:18 GMT
+
+https://www.cbr.com/disclosure-day-rotten-tomatoes-score/
+
+Steven Spielberg might be good at movies.
+---------
+
+# Vin Diesel Teases His Marvel Spinoff Is Still Happening: 'Disney’s Most Valuable Asset'
+
+Movies, Disney, Marvel, Groot
+
+Tue, 09 Jun 2026 18:19:26 GMT
+
+https://www.cbr.com/vin-diesel-groot-marvel-movie-still-happening/
+
+The Fast & Furious star still has to return to the high-octane franchise, but has multiple projects in the works.
+---------
+
+# 10 Masterpiece Anime That Will Keep You Hooked From Start to Finish
+
+Anime, Attack on Titan, The Apothecary Diaries
+
+Tue, 09 Jun 2026 18:15:13 GMT
+
+https://www.cbr.com/masterpiece-anime-hooked-from-start-to-finish/
+
+Regardless of genre, some anime are incredible enough to force viewers to watch episode after episode through sheer engagement.
+---------
+
+# New Final Fantasy Game Officially Revealed, Coming October 2026
+
+Games, Final Fantasy
+
+Tue, 09 Jun 2026 18:05:12 GMT
+
+https://www.cbr.com/final-fantasy-new-official-october-2026-resonance/
+
+Square Enix announced Final Fantasy Resonance during the June 2026 Nintendo Direct, which is the first 2D-HD entry in the franchise's history.
+---------
+
+# Dark Souls Meets Battle Angel Alita in Ambitious New PS5 Sequel
+
+Anime, Dark Souls, Battle Angel, PlayStation 5
+
+Tue, 09 Jun 2026 18:01:14 GMT
+
+https://www.cbr.com/stellar-blade-blood-rain-dark-soul-battle-angel-alita-inspiration/
+
+Despite the immense controversy around its new heroine, Stellar Blade Blood Rain looks like one of the most exciting upcoming releases for the PS5.
+---------
+
+# 10 Classic Spider-Man Comics That Haven’t Aged Well
+
+Comics, Spider-Man
+
+Tue, 09 Jun 2026 18:01:14 GMT
+
+https://www.cbr.com/classic-spider-man-comics-unreadable-today/
+
+Spider-Man is one of the most beloved characters in comics history, but not all stories are created equally.
+---------
+
+# The Legend of Vox Machina Is Quietly Rewriting a Major Critical Role Story
+
+TV, Critical Role, The Legend of Vox Machina, Prime Video
+
+Tue, 09 Jun 2026 17:30:12 GMT
+
+https://www.cbr.com/the-legend-of-vox-machina-rewriting-critical-role-pike-story/
+
+An original Critical Role cast member gets a second chance to tell their character's story the right way because of The Legend of Vox Machina.
+---------
+
+# It's Official, Apple TV's New Magic Series Is Already the Fantasy Movie Event of the Decade
+
+Movies, Mistborn, Brandon Sanderson, Apple TV
+
+Tue, 09 Jun 2026 17:30:12 GMT
+
+https://www.cbr.com/mistborn-apple-tv-brandon-sanderson-fantasy-magic-series/
+
+Apple TV is primed to not just be the go-to platform for sci-fi, but the new home for one of the best fantasy worlds in a long time.
+---------
+
+# Paramount Accuses Netflix of 'Scorched-Earth Campaign' in Feud Over $110B Warner Bros. Merger
+
+TV, Paramount, Netflix
+
+Tue, 09 Jun 2026 17:00:48 GMT
+
+https://www.cbr.com/paramount-netflix-feud-warner-bros-merger/
+
+Meanwhile, Netflix is just chilling.
+---------
+
+# Pokémon Pokopia Officially Reveals Free DLC Coming August 2026
+
+Games, Pokemon
+
+Tue, 09 Jun 2026 16:32:14 GMT
+
+https://www.cbr.com/pokemon-pokopia-official-free-dlc-august-2026/
+
+Pokémon Pokopia is receiving its first DLC in August 2026, with players able to explore beneath the waves of the Kanto region using the Dive power.
+---------
+
+# Jason Statham’s ‘Crank 3’ Gets Disappointing Update From Original Star [Exclusive]
+
+Movie News, Jason Statham, Crank, Amy Smart, FanX
+
+Tue, 09 Jun 2026 18:21:41 GMT
+
+https://collider.com/jason-statham-forgotten-action-series-crank-3-update-amy-smart/
+
+Amy Smart, co-star of Jason Statham's action cult classic Crank, expresses doubt about a third movie, despite fan demand.
+---------
+
+# ‘Ted Lasso’ Favorite's Netflix Rom-Com Hits No. 1 in the World in Record Time
+
+Movie News, Ted Lasso, Netflix, Office Romance, Brett Goldstein
+
+Tue, 09 Jun 2026 18:20:40 GMT
+
+https://collider.com/ted-lasso-star-brett-goldstein-jennifer-lopez-office-romance-streaming-success-netflix-june-2026/
+
+Brett Goldstein and Jennifer Lopez's new Netflix romance is officially taking over the world. Read on for more details.
+---------
+
+# Euphoria Season 3: The Overdose Scene That Hit Too Close | Collider BTS
+
+TV, Euphoria
+
+Tue, 09 Jun 2026 18:15:13 GMT
+
+https://collider.com/video/euphoria-season-3-the-overdose-scene-that-hit-too-close-collider-bts/
+
+Discover how Euphoria Season 3 filmed its most emotionally devastating overdose scene, with cast and crew revealing the real-life inspirations, intense production challenges, and why the moment hit far closer to home than anyone expected.
+---------
+
+# It's Official, We're Finally Getting a New Version of X-Men's Cyclops
+
+Gaming News, X-Men '97, James Marsden, Avengers: Doomsday, X-Men
+
+Tue, 09 Jun 2026 17:05:55 GMT
+
+https://collider.com/new-x-men-cyclops-return-marvel-rivals-gameplay-trailer/
+
+Ahead of X-Men '97 Season 2, Cyclops is officially returning, joining the roster of the hugely popular Marvel Rivals. See the new trailer here.
+---------
+
+# 10 Greatest Indie Video Games of All Time
+
+Video Games, Video Game, Fantasy, Indie, Hades
+
+Tue, 09 Jun 2026 16:45:14 GMT
+
+https://collider.com/best-indie-video-games-all-time-ranked/
+
+Beloved video games like Hades and Outer Wilds prove that indie games can have just as much acclaim and impact as other studio-backed efforts.
+---------
+
+# A24’s Sci-Fi Video Game Adaptation Officially Has Hideo Kojima’s Seal of Approval
+
+Movie News, Death Stranding, A24, Hideo Kojima
+
+Tue, 09 Jun 2026 16:30:14 GMT
+
+https://collider.com/a24-death-stranding-video-game-movie-adaptation-script-update-michael-sarnoski/
+
+Death Stranding live-action adaptation director Michael Sarnoski shares updates on script progress and Hideo Kojima's approval. Here's all to know.
+---------
+
+# Steven Spielberg's First Sci-Fi Movie in 8 Years Is a Near-Perfect Masterpiece on Rotten Tomatoes
+
+Movie News, Disclosure Day, Steven Spielberg, Emily Blunt, Sci-Fi
+
+Tue, 09 Jun 2026 16:28:00 GMT
+
+https://collider.com/new-steven-spielberg-sci-fi-movie-disclosure-day-rotten-tomatoes-score-is-it-good/
+
+Critics are over the moon for Steven Spielberg's ambitious new sci-fi movie Disclosure Day according to Rotten Tomatoes.
+---------
+
+# Christopher Nolan's 'The Odyssey' Gets the Perfect Popcorn Bucket
+
+Movie News, The Odyssey
+
+Tue, 09 Jun 2026 18:19:08 GMT
+
+https://movieweb.com/the-odyssey-popcorn-bucket-trojan-horse/
+
+The bucket pays respects to both the movie and the myths that inspired it.
+---------
+
+# 'A Good Girl's Guide to Murder' Confirmed for Season 3 on Netflix
+
+TV News, A Good Girl's Guide to Murder, Netflix
+
+Tue, 09 Jun 2026 18:03:49 GMT
+
+https://movieweb.com/a-good-girls-guide-to-murder-season-3-netflix/
+
+Netflix confirmed that 'A Good Girl's Guide to Murder' will return for its third and final season sometime in 2027.
+---------
+
+# When Will 'Obsession' Release On Streaming?
+
+Features, Obsession
+
+Tue, 09 Jun 2026 18:00:19 GMT
+
+https://movieweb.com/obsession-streaming-release-date/
+
+'Obsession' is one of the biggest and most popular horror movies of 2026 and is written and directed by Curry Barker.
+---------
+
+# 'Weapons' Star Is Swallowed by Whale in Trailer for New Survival Thriller 'Whalefall'
+
+Movie Trailers, Whalefall, Josh Brolin, Thriller
+
+Tue, 09 Jun 2026 17:43:39 GMT
+
+https://movieweb.com/whalefall-official-teaser-trailer/
+
+Austin Abrams is swallowed by a whale in a new claustrophobic thriller.
+---------
+
+# 10 Strongest Characters in 'Solo Leveling'
+
+TV Lists, Solo Leveling
+
+Tue, 09 Jun 2026 17:00:21 GMT
+
+https://movieweb.com/strongest-characters-in-solo-leveling/
+
+'Solo Leveling' is overflowing with a diverse cast of fellow Hunters, each possessing their own unique talents and powers.
+---------
+
+# The "Bloodiest and Horniest" Series Gets Even Better 15 Years Later
+
+Features, Spartacus
+
+Tue, 09 Jun 2026 17:00:20 GMT
+
+https://movieweb.com/spartacus-series-holds-up/
+
+15 years after its premiere in 2010, a popular TV series keeps improving.
+---------
+
+# Paramount Shutting Down Popular Streaming Platform Thanks to Major New Deal
+
+TV News, Netflix, Paramount Plus
+
+Tue, 09 Jun 2026 16:49:39 GMT
+
+https://movieweb.com/paramount-plus-hbo-max-warner-bros-deal-netflix/
+
+Netflix is waging a scorched earth campaign against the Paramount-Warner Bros. deal.
+---------
+
 # House Of The Dragon Returns As HBO Max Global Hit & The Game Of Thrones Franchise Can Only Get Better
 
 TV, House of the Dragon, Game of Thrones
