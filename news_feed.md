@@ -1,3 +1,366 @@
+# Marvel's "Throne Of All" Is Officially The New Infinity Gauntlet
+
+Marvel Comics, Marvel
+
+Tue, 09 Jun 2026 02:00:33 GMT
+
+https://screenrant.com/knull-infinity-gauntlet-throne-all-venom-lore/
+
+Marvel's new cosmic weapon may surpass the Infinity Gauntlet's capabilities, considering how two Avengers-level villains are fighting over it.
+---------
+
+# GTA 6 Online Gameplay Leaves Fans Torn, And We See Why
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, Triple-A Games
+
+Tue, 09 Jun 2026 02:00:33 GMT
+
+https://screenrant.com/gta-6-online-gameplay-reactions/
+
+Fans have eagerly been expecting any clues behind GTA 6's gameplay, but speculative fears may prevent the hype from growing any higher for now.
+---------
+
+# Steam Machine Price Leak Horrifies Gamers, And We Can See Why
+
+Gaming, Steam
+
+Tue, 09 Jun 2026 02:00:33 GMT
+
+https://screenrant.com/steam-machine-price-leak-june-2026-gamers-react/
+
+Steam Machine price leaks suggest a $1,300–$1,500 cost, leaving fans questioning its value and appeal.
+---------
+
+# Strange New Worlds Season 4 Has More “Classic” Star Trek Episodes, Fewer “Big Swings,” Says Co-EP
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Tue, 09 Jun 2026 01:13:39 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4p-classic-episodes-big-swings/
+
+Star Trek: Strange New Worlds co-executive producer Bill Wolkoff delves into season 4's episodes and what lessons were learned from season 3.
+---------
+
+# Why Pixar’s Cars Is Still So Popular 20 Years Later
+
+Movies, Cars, Pixar
+
+Tue, 09 Jun 2026 01:00:21 GMT
+
+https://screenrant.com/why-cars-is-still-so-popular-20th-anniversary-pixar/
+
+It's hard to believe that Pixar's Cars was released on this day 20 years ago, especially considering how popular the franchise still is today.
+---------
+
+# Prime Video's 8-Part Action Show Is So Good, It's Already Renewed For Season 2 And Has A Spinoff
+
+Streaming TV, Masked Recs
+
+Tue, 09 Jun 2026 01:00:21 GMT
+
+https://screenrant.com/the-terminal-list-amazon-prime-renewed-season-2-spinoff/
+
+Chris Pratt's The Terminal List is one of the best action thrillers on Prime Video, and it could easily become a major genre franchise in the future.
+---------
+
+# Studio Ghibli Meets Stardew Valley In Beautiful New Game We Need Now
+
+Gaming, Stardew Valley, Studio Ghibli
+
+Tue, 09 Jun 2026 01:00:21 GMT
+
+https://screenrant.com/vivarium-studio-ghibli-stardew-valley-vibes/
+
+One of the coolest upcoming games from Summer Game Fest is a cross between a Studio Ghibli movie and Stardew Valley, and it looks amazing.
+---------
+
+# It's Official, Scooby-Doo Is Entering A New Era Next Year On Netflix
+
+Streaming TV, Scooby-Doo
+
+Tue, 09 Jun 2026 00:30:21 GMT
+
+https://screenrant.com/scooby-doo-netflix-show-new-era-live-action-dog/
+
+A new Scooby-Doo show is coming to Netflix in 2027, and the live-action series is already set to make franchise history with the Scooby-Doo character.
+---------
+
+# Jason Momoa Exits Sci-Fi Video Game Movie
+
+Movies, Jason Momoa
+
+Tue, 09 Jun 2026 00:06:34 GMT
+
+https://screenrant.com/helldivers-movie-jason-momoa-exit/
+
+After his casting was announced in February, Jason Momoa is now exiting the upcoming movie adaptation of the science-fiction video game Helldivers.
+---------
+
+# Netflix Officially Sets New Crime Thriller Series With Squid Game & Marvel Stars
+
+TV
+
+Tue, 09 Jun 2026 00:01:16 GMT
+
+https://screenrant.com/paper-man-netflix-crime-series-park-hae-soo-claudia-kim-cast/
+
+Netflix has announced their new crime thriller show Paper Man, which will be led by notable stars from the Squid Game and Marvel worlds.
+---------
+
+# HBO's 12-Episode Steampunk Show Is a Stealth Masterpiece for Sci-Fi Fans
+
+TV, The Nevers, Sci-Fi, HBO Max
+
+Tue, 09 Jun 2026 02:00:24 GMT
+
+https://www.cbr.com/hbo-the-nevers-steampunk-sci-fi-masterpiece/
+
+One forgotten HBO steampunk sci-fi show didn't get the conclusion it deserved, but it's a stellar piece full of life.
+---------
+
+# Marvel Confirms a New Avengers Era With Major Team Lineup Changes
+
+Comics, Avengers, Marvel
+
+Tue, 09 Jun 2026 02:00:24 GMT
+
+https://www.cbr.com/marvel-avengers-1-release-date-confirmed/
+
+Marvel Comics has just unveiled the next roster of Earth's Mightiest Heroes who will continue on in the wake of their impending Armageddon.
+---------
+
+# 10 Shonen Anime Characters Too Arrogant to Win Battles
+
+Anime, Shonen
+
+Tue, 09 Jun 2026 02:00:24 GMT
+
+https://www.cbr.com/arrogant-shonen-anime-characters-easily-defeated-list/
+
+When raw power met overconfidence, arrogant shonen villains like Frieza and Overhaul found out the hard way that arrogance would be their undoing.
+---------
+
+# 18 Years Later, Studio Ghibli’s Ponyo Officially Returns to Theaters June 13
+
+Anime, Ponyo, Studio Ghibli
+
+Tue, 09 Jun 2026 02:00:24 GMT
+
+https://www.cbr.com/studio-ghibli-ponyo-returns-to-theaters-june-2026/
+
+One of the most critically acclaimed Studio Ghibli films of the past two decades is officially heading back to theaters for a limited time this Summer
+---------
+
+# Brutal Horror Film That Barely Avoided NC-17 Rating Streaming Free in June
+
+Movies, Infinity Pool
+
+Tue, 09 Jun 2026 01:50:30 GMT
+
+https://www.cbr.com/infinity-pool-streaming-tubi-june-2026/
+
+The brutal and bloody horror movie that pushes its R-rating to its limit has gotten a free streaming home.
+---------
+
+# Geralt of Rivia's Single Greatest Line In the Witcher 3 Hits Harder Than Any RPG Dialogue Since
+
+Games, The Witcher 3: Wild Hunt, Role Playing Game, Video Games
+
+Tue, 09 Jun 2026 01:45:14 GMT
+
+https://www.cbr.com/witcher-3-geralt-of-rivia-best-line-rpg/
+
+Geralt of Rivia's complex morality is laid bare in a single game-changing quote from The Witcher 3 that reexplores his anti-hero status.
+---------
+
+# 5 Anime From 2015 That Are Already Classics
+
+Anime, Overlord, Mobile Suit Gundam: Iron-Blooded Orphans
+
+Tue, 09 Jun 2026 01:25:13 GMT
+
+https://www.cbr.com/anime-from-2015-already-classics-list/
+
+2015 was a surprisingly formative year for anime that featured some breakout classics that still hit hard over a decade later!
+---------
+
+# Pokémon and LEGO Officially Return to Hoenn With New Rayquaza LEGO Set
+
+Games, Pokemon, LEGO
+
+Tue, 09 Jun 2026 01:06:14 GMT
+
+https://www.cbr.com/pokemon-lego-set-rayquaza-official-june-2026/
+
+A new Pokémon LEGO set featuring Rayquaza has finally been revealed.
+---------
+
+# Canceled Sci-Fi Finds Netflix Redemption 1 Day After Final Season Debut
+
+TV, Resident Alien, Netflix, Sci-Fi
+
+Tue, 09 Jun 2026 01:00:14 GMT
+
+https://www.cbr.com/resident-alien-sci-fi-success-netflix-june2026/
+
+A beloved sci-fi series finally gets its due.
+---------
+
+# 5 Forgotten PS2 Games That Are Perfect From Start to Finish
+
+Games, Video Games, PlayStation 2
+
+Tue, 09 Jun 2026 00:45:14 GMT
+
+https://www.cbr.com/perfect-forgotten-ps2-games-list/
+
+From Spider-Man 2 to Katamari Damacy, these forgotten PS2 classics are absolute perfection from start to finish and worth revisiting.
+---------
+
+# ‘NCIS’ Officially Sets Up Its Biggest Team Shakeup in Years
+
+TV Features, NCIS, Wilmer Valderrama, CBS, Series
+
+Tue, 09 Jun 2026 01:47:14 GMT
+
+https://collider.com/ncis-season-24-biggest-team-shakeup-in-years/
+
+Season 24 could bring the biggest changes to MCRT in years after Vance’s death and Wilmer Valderrama’s tease of major additions.
+---------
+
+# 3 Prime Video Shows Worth Binge-Watching This Week (June 8-12)
+
+TV, Prime Video, Clarkson's Farm, The Bondsman, The House of the Spirits
+
+Tue, 09 Jun 2026 01:11:13 GMT
+
+https://collider.com/best-shows-binge-prime-video-june-8-2026/
+
+The House of the Spirits, The Bondsman, and Clarkson's Farm make up our list of the best Prime Video shows to watch the week of June 8, 2026.
+---------
+
+# Jim Carrey’s 30-Year-Old Cult Classic Is Becoming a Hulu Series for the Era It Predicted
+
+TV Features, Jim Carrey, Matthew Broderick, The Cable Guy, Hulu
+
+Tue, 09 Jun 2026 00:52:14 GMT
+
+https://collider.com/jim-carrey-the-cable-guy-hulu-reimagining-streaming-era-update/
+
+The classic Jim Carrey comedy The Cable Guy is getting an update from Hulu, but there's an element that could actually make it work.
+---------
+
+# 10 Greatest High Fantasy Video Games of All Time
+
+Video Games, Video Game, Baldur's Gate 3, Fantasy
+
+Tue, 09 Jun 2026 00:41:15 GMT
+
+https://collider.com/best-high-fantasy-video-games-all-time-ranked/
+
+Many stellar video games have produced compelling and immersive high fantasy worlds, including award-winning gems like Elden Ring and Baldur's Gate 3.
+---------
+
+# Robert Downey Jr.’s Doctor Doom Suit Has Finally Been Revealed
+
+Movie News, Avengers: Doomsday, Robert Downey Jr, Russo Brothers, MCU
+
+Tue, 09 Jun 2026 00:31:14 GMT
+
+https://collider.com/avengers-doomsday-robert-downey-jr-victor-von-doom-first-look-toy-leak/
+
+After months of anticipation, the first look at Robert Downey Jr's Victor Von Doom in Avengers: Doomsday has finally come from a new toy leak.
+---------
+
+# 'NCIS' Officially Confirms a New Cast Direction for the First Time in 4 Years
+
+TV Features, NCIS, CBS, Wilmer Valderrama, Gary Cole
+
+Tue, 09 Jun 2026 00:24:14 GMT
+
+https://collider.com/ncis-wilmer-valderrama-comments-new-team-shakeup/
+
+Wilmer Valderrama's latest comments about the team shakeup for NCIS hint at a major change for the team in Season 24.
+---------
+
+# 10 Scariest Stephen King Short Stories
+
+Movie, Stephen King, Children of the Corn, The Mangler, Books
+
+Tue, 09 Jun 2026 00:09:14 GMT
+
+https://collider.com/scariest-stephen-king-short-stories-ranked/
+
+Stephen King short stories like "Survivor Type," "The Man in the Black Suit," and "Children of the Corn" all rank among the author's scariest.
+---------
+
+# 25 Best Medical K-Dramas, Ranked
+
+TV, Drama, Good Doctor, Kill Me, Heal Me, Doctor Stranger
+
+Tue, 09 Jun 2026 00:04:15 GMT
+
+https://collider.com/medical-k-dramas-ranked/
+
+Discover the best medical Korean dramas based on plot, character development, and overall entertainment value, from Dr. Romantic to Good Doctor.
+---------
+
+# ‘Spider-Man: Brand New Day’ Is Officially the Longest Spider-Man Movie in History
+
+Movie News, Spider-Man: Brand New Day, Tom Holland, Mark Ruffalo, Jon Bernthal
+
+Tue, 09 Jun 2026 00:00:15 GMT
+
+https://collider.com/spider-man-brand-new-day-runtime-two-hours-30-minutes-longest-spider-man-movie-ever/
+
+The runtime for Spider-Man: Brand New Day has finally been revealed, and it's officially the longest Spider-Man movie in the web-slinger's history.
+---------
+
+# 8 Divisive TV Finales I Wish I Could Delete From My Memory
+
+TV Lists, The Blacklist, Dexter
+
+Tue, 09 Jun 2026 02:00:31 GMT
+
+https://movieweb.com/divisive-tv-finales-forgettable/
+
+These popular and memorable sitcoms, dramas, thrillers, and fantasy shows are fantastic, but these TV finales are disappointing.
+---------
+
+# 24 Years Later, Tom Cruise's Sci-Fi Action Thriller With an 89% RT Score Remains Essential Viewing
+
+Features, Minority Report, Steven Spielberg, Tom Cruise
+
+Tue, 09 Jun 2026 01:00:20 GMT
+
+https://movieweb.com/minority-report-essential-viewing-tom-cruise-sci-fi/
+
+Spielberg's highly-rated if not underappreciated cyberpunk thriller rings with themes that are as relevant in 2026 as they ever have been.
+---------
+
+# 'Tracker' Star Jumping to Rival Network for New Action Thriller Replacement
+
+TV News, Tracker
+
+Tue, 09 Jun 2026 00:06:55 GMT
+
+https://movieweb.com/tracker-justin-hartley-new-series/
+
+Justin Hartley, best known for starring in 'This Is Us,' is currently developing a new thriller for ABC.
+---------
+
+# Paramount Confirms Plans to Expand Taylor Sheridan's Biggest Franchises
+
+TV News, Yellowstone, Taylor Sheridan, Lioness
+
+Mon, 08 Jun 2026 23:50:11 GMT
+
+https://movieweb.com/taylor-sheridan-video-games-yellowstone-lioness/
+
+Franchises like 'Yellowstone,' 'Tulsa King,' and 'Landman' could make the jump to video games.
+---------
+
 # Prime Video's The Boys Meets Watchmen Series' First Look Could Not Be Better
 
 TV, Masked Recs
