@@ -1,3 +1,333 @@
+# 24 Jump Street In Development With Channing Tatum, Jonah Hill & Ice Cube
+
+Movies, 24 jump street
+
+Wed, 10 Jun 2026 22:15:49 GMT
+
+https://screenrant.com/24-jump-street-movie-development-channing-tatum-jonah-hill-returns/
+
+Jonah Hill, Channing Tatum and Ice Cube are all in talks to star in 24 Jump Street, the latest installment of the hit comedy franchise.
+---------
+
+# Criminal Minds Season 19 Unveils Connor Storrie's New Alpha Villain In Major 4-Part BAU Case
+
+TV, Criminal Minds, Criminal Minds - Season 19
+
+Wed, 10 Jun 2026 22:02:25 GMT
+
+https://screenrant.com/criminal-minds-evolution-season-19-connor-storrie-villain-images/
+
+Heated Rivalry breakout star Connor Storrie plays a manipulative villain in a major 4-episode arc on season 19 of Criminal Minds: Evolution.
+---------
+
+# Haikyu!!’s 2027 Return Is Official & Its First Look Is Here
+
+Anime, Haikyuu!!, Haikyu!!
+
+Wed, 10 Jun 2026 22:01:22 GMT
+
+https://screenrant.com/haikyu-anime-movies-new-trailer-2027-release-update/
+
+It's been nearly six years since Haikyu!!, one of the greatest sports anime series ever, has released a season, but a new one isn't far away.
+---------
+
+# Colin Farrell Confirms How Many Batman 2 Scenes Penguin Is In, Teases “Terrifying” Sequel Script
+
+Exclusive, The Batman Part II, Batman, DC
+
+Wed, 10 Jun 2026 22:01:21 GMT
+
+https://screenrant.com/batman-part-2-colin-farrell-penguin-how-many-scenes-terrifying/
+
+EXCLUSIVE: As filming continues on The Batman: Part 2, Colin Farrell confirms how many scenes he has and teases a "terrifying" story.
+---------
+
+# Steam’s Latest Free Game Lands To 100 Percent Positive Reviews
+
+Gaming, Steam, Indie Games
+
+Wed, 10 Jun 2026 22:01:21 GMT
+
+https://screenrant.com/steam-free-game-june-2026-100-percent-reviews/
+
+A new game is available now on Steam for free with no strings attached, and the reviews are extremely positive so far from fans.
+---------
+
+# Justin Hartley's New Tracker Rival Officially Gives ABC Its Own Reacher
+
+TV, Masked Recs
+
+Wed, 10 Jun 2026 22:01:21 GMT
+
+https://screenrant.com/justin-hartley-new-show-tracker-rival-abc-reacher/
+
+Tracker star Justin Hartley's upcoming ABC series could be the network's answer to both Prime Video's thriller Reacher and Hartley's own hit series.
+---------
+
+# 10 Changes We'd Love To See In The Ocarina Of Time Remake
+
+Gaming
+
+Wed, 10 Jun 2026 21:42:12 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-changes-wishlist/
+
+The Legend of Zelda: Ocarina of Time is nearly 30 years old, so the upcoming remake should make some meaningful changes to the original.
+---------
+
+# James Cameron's Avatar 4 Officially Starts A Whole New Era For The Franchise
+
+Movies, Avatar 4, Avatar
+
+Wed, 10 Jun 2026 21:30:22 GMT
+
+https://screenrant.com/avatar-4-james-cameron-new-era-future-movies/
+
+Avatar 4 is poised to change the franchise's story and approach to epic filmmaking, according to some of James Cameron's comments and teases.
+---------
+
+# Zelda: Every Version Of Ocarina Of Time, Ranked Worst To Best
+
+Game Features, The Legend of Zelda
+
+Wed, 10 Jun 2026 21:30:22 GMT
+
+https://screenrant.com/zelda-ocarina-time-every-version-ranked-worst-best/
+
+The Legend of Zelda's beloved classic has a few different rereleases, but each version of Ocarina of Time has its merits and drawbacks.
+---------
+
+# House Of The Dragon Season 3 Finally Ending S2’s Biggest Daemon Targaryen Complaint Addressed By Matt Smith
+
+TV, House of the Dragon, Game of Thrones
+
+Wed, 10 Jun 2026 21:27:46 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-daemon-isolation-change-matt-smith/
+
+EXCLUSIVE: House of the Dragon star Matt Smith addresses Daemon Targaryen's return to form in season 3 following his divisive season 2 story.
+---------
+
+# Star Wars: Ashes of Empire Officially Arrives This July
+
+Games, Star Wars
+
+Wed, 10 Jun 2026 22:15:12 GMT
+
+https://www.cbr.com/star-wars-ashes-of-empire-official-release-july-2026/
+
+The next Star Wars: Unlimited set is barely a month away, and Ashes of the Empire looks like exactly what fans have been in need of from the start.
+---------
+
+# 7 Near-Perfect Shonen Anime Way Better Than One Piece
+
+Anime, One Piece, Yu Yu Hakusho, Demon Slayer: Kimetsu no Yaiba, JoJo's Bizarre Adventure
+
+Wed, 10 Jun 2026 22:15:12 GMT
+
+https://www.cbr.com/shonen-anime-better-than-one-piece/
+
+One Piece excels at long-form worldbuilding, but other shonen series prove a shorter and more focused approach creates an even stronger narrative.
+---------
+
+# Apple TV's Highest-Grossing Original Movie Returns to Dominate the Charts Ahead of New Sequel
+
+Movies, F1
+
+Wed, 10 Jun 2026 22:09:36 GMT
+
+https://www.cbr.com/f1-movie-action-success-apple-tv-june-2026/
+
+The highest-grossing (and highest-octane) Apple TV original is overtaking the streaming competition ahead of the hotly-anticipated sequel.
+---------
+
+# 20 Years Later, Pixar's $461M Franchise-Starting Hit Returns to Theaters
+
+Movies, Cars, Pixar
+
+Wed, 10 Jun 2026 22:03:41 GMT
+
+https://www.cbr.com/cars-movie-in-theaters-20th-anniversary-release-date/
+
+One of Pixar's best-loved movies is returning to theaters.
+---------
+
+# Netflix Officially Says Goodbye to Its Old Anime Strategy in 2026
+
+Anime, Netflix
+
+Wed, 10 Jun 2026 22:02:13 GMT
+
+https://www.cbr.com/netflix-official-new-anime-strategy-2026/
+
+Netflix is doubling down on anime in 2026, with more new anime coming to the streaming service.
+---------
+
+# In Just 1 Day, 2026's Record-Breaking Biopic Is Officially the No. 1 Film in the U.S.
+
+Movies, Michael, Drama
+
+Wed, 10 Jun 2026 22:00:16 GMT
+
+https://www.cbr.com/michael-musical-biopic-success-pvod-june-2026/
+
+The most anticipated biopic, Michael, is a worldwide hit on PVOD and holds the No. 1 spot in the United States.
+---------
+
+# Obi-Wan Kenobi's Single Greatest Star Wars Line Hits Harder Than Any Sci-Fi Quote Since
+
+Movies, Star Wars, Return of the Jedi
+
+Wed, 10 Jun 2026 22:00:16 GMT
+
+https://www.cbr.com/obi-wan-kenobi-return-of-the-jedi-greatest-star-wars-quote/
+
+Obi-Wan Kenobi is one of Star Wars' most important characters, and his best quote in Return of the Jedi is still impactful today.
+---------
+
+# No Crunchyroll Required: Fullmetal Alchemist's Successor Is Officially Launching on Netflix
+
+Anime, Daemons of the Shadow Realm, Fullmetal Alchemist, Netflix
+
+Wed, 10 Jun 2026 22:00:16 GMT
+
+https://www.cbr.com/netflix-daemons-of-the-shadow-realm-july-2026/
+
+Hiromu Arakawa's new supernatural fantasy series reveals its Netflix release date, giving subscribers a major reason to tune in next month.
+---------
+
+# Final Fantasy Meets Ghost of Tsushima in New RPG You Can Play for Free Now
+
+Games, Steam, Role Playing Game
+
+Wed, 10 Jun 2026 21:40:14 GMT
+
+https://www.cbr.com/best-games-like-ghost-of-tsushima-final-fantasy-free-rpg/
+
+This upcoming RPG is perfect for Ghost of Tsushima fans, and it's available to play for free right now.
+---------
+
+# It's Officially Time to Resurrect Taron Egerton's Kingsman Franchise
+
+Movies, Kingsman: The Golden Circle, Kingsman: The Secret Service
+
+Wed, 10 Jun 2026 21:30:14 GMT
+
+https://www.cbr.com/taron-egerton-kingsman-3-return/
+
+The Kingsman franchise quickly died after only a handful of films, but it deserves a chance to win fans back.
+---------
+
+# All 7 The Legend of Zelda 3D Games
+
+Video Games, The Legend of Zelda, Video Game, Legend of Zelda: Breath of the Wild, The Legend of Zelda: Skyward Sword
+
+Wed, 10 Jun 2026 22:22:13 GMT
+
+https://collider.com/legend-of-zelda-games-3d-ranked/
+
+The Legend of Zelda franchise has truly thrived in the 3D era, but is Ocarina of Time better than Breath of the Wild? We declare the ultimate winner.
+---------
+
+# 10 Greatest Anthony Head TV Roles
+
+TV, Buffy The Vampire Slayer, Merlin, Ted Lasso, The Stranger
+
+Wed, 10 Jun 2026 22:03:13 GMT
+
+https://collider.com/best-anthony-head-tv-roles-ranked/
+
+From a beloved mentor in Buffy the Vampire Slayer to an antagonistic ex-husband in Ted Lasso, we highlight and rank Anthony Head's greatest TV roles.
+---------
+
+# One of A24's Best Movies Is Leaving Netflix in Just 8 Days
+
+Movie Features, The Iron Claw, Zac Efron, A24, Netflix
+
+Wed, 10 Jun 2026 21:52:13 GMT
+
+https://collider.com/iron-claw-leaving-netflix-june-18-2026/
+
+Sean Durkin's heart wrenching wrestling drama The Iron Claw, starring Zac Efron and Jeremy Allen White, is a must-watch before it leaves Netflix.
+---------
+
+# The Greatest Thriller Movie of Each of the Last 6 Years
+
+Movie, Thriller, The Batman, Boiling Point, The Seed of the Sacred Fig
+
+Wed, 10 Jun 2026 21:29:13 GMT
+
+https://collider.com/best-thriller-movies-2021-2026/
+
+Suspenseful modern classics like The Batman, Anatomy of a Fall, and Boiling Point have helped define thriller filmmaking over the last 6 years.
+---------
+
+# 10 Heaviest 'The Sopranos' Episodes
+
+TV, The Sopranos, Wise Guy: David Chase and the Sopranos, HBO, Television
+
+Wed, 10 Jun 2026 20:54:14 GMT
+
+https://collider.com/heaviest-the-sopranos-episodes-ranked/
+
+Episodes from The Sopranos like "The Blue Comet," "University," and "The Second Coming" are among the heaviest in the show's six-season-long run.
+---------
+
+# 6 Most Perfect Hard Sci-Fi Movies of the Past 10 Years, Ranked
+
+Movie, Sci-Fi, Project Hail Mary, High Life, Arrival
+
+Wed, 10 Jun 2026 20:24:12 GMT
+
+https://collider.com/perfect-hard-sci-fi-movies-past-10-years-ranked/
+
+Ad Astra, Project Hail Mary, Arrival, High Life, and more make up our list of perfect hard sci-fi movies of the past 10 years.
+---------
+
+# Paramount Pictures Releases New Trailer for 'PAW Patrol: The Dino Movie'
+
+Movie News, PAW Patrol: The Dino Movie
+
+Wed, 10 Jun 2026 22:02:53 GMT
+
+https://movieweb.com/paw-patrol-the-dino-movie-trailer/
+
+Paramount Pictures released the second official trailer for one of its biggest animated movies of the year, 'PAW Patrol: The Dino Movie.'
+---------
+
+# Remake of Classic Revenge Thriller Blasts Onto Free Streaming
+
+Movie News, Oldboy, Tubi, Coming/Leaving Streaming, Action
+
+Wed, 10 Jun 2026 22:01:20 GMT
+
+https://movieweb.com/oldboy-remake-action-streaming-free-tubi-june-2026/
+
+The American remake of the South Korean revenge action thriller 'Oldboy' is now streaming for free on Tubi.
+---------
+
+# Steven Spielberg's New Sci-Fi Thriller Set to Shatter 'Jurassic Park' Record
+
+Movie News, Disclosure Day, Steven Spielberg, Jurassic Park
+
+Wed, 10 Jun 2026 21:50:47 GMT
+
+https://movieweb.com/disclosure-day-opening-weekend-box-office-jurassic-park-record/
+
+'Disclosure Day' could set a personal record for the acclaimed filmmaker.
+---------
+
+# One of the Best Scenes in Sci-Fi Movie History Comes From an '80s Remake
+
+Features, The Thing
+
+Wed, 10 Jun 2026 21:00:18 GMT
+
+https://movieweb.com/the-thing-best-sci-fi-movie-scene/
+
+One science fiction movie from the 1980s is not only a memorable remake, but there is one perfect and incredible scene.
+---------
+
 # Star Wars Meets Back To The Future In Netflix's 100-Minute Sci-Fi Movie With An A-List Cast
 
 Movies, Masked Recs
