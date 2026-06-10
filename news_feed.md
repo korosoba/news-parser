@@ -1,3 +1,377 @@
+# 10 Parallels Between Masters of the Universe & The MCU’s Thor Franchise
+
+Superheroes, Masters of the Universe, Thor, Marvel Cinematic Universe
+
+Wed, 10 Jun 2026 02:41:51 GMT
+
+https://screenrant.com/masters-of-the-universe-mcu-thor-biggest-parallels-similarities/
+
+As an epic space/fantasy adventure, Amazon's new Masters of the Universe movie features a handful of fun parallels to Marvel's Thor franchise.
+---------
+
+# Apple TV Must Revive Its Canceled 2-Part Fantasy Series After New Awards Success
+
+Classic TV, Masked Recs
+
+Wed, 10 Jun 2026 02:16:21 GMT
+
+https://screenrant.com/schmigadoon-apple-tv-revive-musical-success/
+
+Apple TV canceled this fantasy show after two seasons, but following new awards success, the streaming services need to revive the series.
+---------
+
+# Shonen Jump's Newest Series Is My Hero Academia Meets Beastars With An Addictive Mystery Hook
+
+Anime, Shonen Jump
+
+Wed, 10 Jun 2026 02:00:32 GMT
+
+https://screenrant.com/shonen-jump-animal-signal-my-hero-academia-meets-beastars/
+
+Animal powers and a fun mystery make this Shonen Jump series debut an exciting one to follow, provided it can dodge the axe.
+---------
+
+# Studio Ghibli Meets Death Stranding In Gorgeous New Game
+
+Gaming, Steam, PC, Death Stranding
+
+Wed, 10 Jun 2026 02:00:32 GMT
+
+https://screenrant.com/studio-ghibli-into-the-wind-new-game/
+
+One stunning upcoming Steam game combines the setting and style of a Studio Ghibli movie with the delivery mechanics of Death Stranding.
+---------
+
+# Mike Flanagan & Scarlett Johansson's Horror Reboot Officially Wraps Filming
+
+Movies, The Exorcist
+
+Wed, 10 Jun 2026 01:57:39 GMT
+
+https://screenrant.com/mike-flanagan-exorcist-movie-filming-wrap-update/
+
+The Scarlett Johansson-led Exorcist reboot directed by Mike Flanagan has officially wrapped filming as confirmed by the acclaimed filmmaker.
+---------
+
+# The Twilight Zone’s New Reboot Is Doing the Impossible: Living Up to the Original
+
+Comics, The Twilight Zone
+
+Wed, 10 Jun 2026 01:30:21 GMT
+
+https://screenrant.com/the-twilight-zone-reboot-new-series-explained/
+
+The Twilight Zone's latest reboot stands out from previous revivals by attempting to do what once seemed impossible: live up to the original.
+---------
+
+# Netflix’s Global Smash Hit Zombie Thriller Has Officially Made K-Drama History
+
+Streaming TV, Masked Recs
+
+Wed, 10 Jun 2026 01:30:21 GMT
+
+https://screenrant.com/all-of-us-are-dead-season-2-netflix-hiatus-k-drama-history/
+
+Netflix's best horror K-drama helped revive the zombie horror genre, and the acclaimed thriller's sophomore season is already breaking records.
+---------
+
+# Star Wars: Knights Of The Old Republic Remake Official Reveal Slammed By Gamers
+
+Gaming, Star Wars: Knights of the Old Republic, Star Wars, PC
+
+Wed, 10 Jun 2026 01:00:21 GMT
+
+https://screenrant.com/star-wars-kotor-ps5-remake-reveal-gamers-react/
+
+Fans have been waiting an eternity for news on the Star Wars: Knights of the Old Republic remake and are starting to grow beyond frustrated.
+---------
+
+# Marvel's Manga Imprint Officially Returns with Major Hero Redesign
+
+Marvel Comics, Marvel
+
+Wed, 10 Jun 2026 00:46:40 GMT
+
+https://screenrant.com/marvel-mangaverse-returns-new-series/
+
+The Marvel Mangaverse is back.
+---------
+
+# Jason Statham's 20-Year-Old Franchise Seemingly "Dead" With Unfortunate Sequel Update
+
+Movies, Crank, Jason Statham
+
+Wed, 10 Jun 2026 00:03:34 GMT
+
+https://screenrant.com/jason-statham-crank-3-development-update-amy-smart/
+
+Amy Smart, who starred opposite Jason Statham in the Crank movies, has shared a disappointing update bout the long-rumored third movie.
+---------
+
+# Witch Hat Atelier Episode 11: Richeh's Dark Past Ruins Her Future
+
+Anime, Witch Hat Atelier
+
+Wed, 10 Jun 2026 02:35:14 GMT
+
+https://www.cbr.com/witch-hat-atelier-episode-11-review/
+
+Every Witch Hat Atelier fan has been curious about Richeh, and Episode 11 has finally begun to explore her heartbreaking past.
+---------
+
+# 10 Greatest Fantasy Anime Masterpieces of All Time, Ranked
+
+Anime, One Piece, Fullmetal Alchemist: Brotherhood, Frieren: Beyond Journey's End
+
+Wed, 10 Jun 2026 02:30:14 GMT
+
+https://www.cbr.com/greatest-fantasy-anime-masterpieces-of-all-time/
+
+Fantasy is an incredibly diverse and prolific genre, and these anime series stand out as its best exemplars.
+---------
+
+# Bloodborne Officially Returns June 2026 With 10th Anniversary Release
+
+Games, Bloodborne
+
+Wed, 10 Jun 2026 02:20:13 GMT
+
+https://www.cbr.com/bloodborne-official-10th-anniversary-release-june-2026/
+
+Bloodborne fans are getting a stunning new 10th anniversary release this June.
+---------
+
+# 'Not My Scooby': Netflix Sparks Backlash With Scooby-Doo Reboot Puppy
+
+TV, Scooby-Doo: Origins, Scooby-Doo
+
+Wed, 10 Jun 2026 02:07:33 GMT
+
+https://www.cbr.com/netflix-scooby-doo-unveil-backlash/
+
+The unveiling of the new Scooby-Doo on Netflix is dividing the internet.
+---------
+
+# CBS's Underrated 8-Season Sitcom Is Still a Streaming Hit 1 Month After Last Episode
+
+TV, The Neighborhood, Sitcoms, Paramount Plus
+
+Wed, 10 Jun 2026 02:00:24 GMT
+
+https://www.cbr.com/the-neighborhood-sitcom-streaming-success-paramount-june-2026/
+
+A beloved sitcom that just concluded a stellar eight-season run is soaring up the streaming charts.
+---------
+
+# 7 Forgotten JRPGs That Are Perfect From Start to Finish
+
+Games, Role Playing Game, Video Games
+
+Wed, 10 Jun 2026 02:00:24 GMT
+
+https://www.cbr.com/best-forgotten-jrpg-skies-of-arcadia-digital-devil-saga/
+
+You may not have heard of JRPGs like Skies of Arcadia or Digital Devil Saga, but they are satisfying to play from start to finish.
+---------
+
+# If You Have Netflix, the Slasher Novel Stephen King Called 'Old-School Horror' Was Made Just for You
+
+TV, Stephen King, Horror, The Boroughs
+
+Wed, 10 Jun 2026 02:00:24 GMT
+
+https://www.cbr.com/philip-fracassi-boys-in-the-valley-book-perfect-for-the-boroughs-fans/
+
+Netflix's The Boroughs has been one of the best new shows of 2026, and this Stephen King-praised 2025 horror novel is the perfect counterpart.
+---------
+
+# 10 Best Sci-Fi Movies With the Deepest Lore, Ranked
+
+Movies, Sci-Fi
+
+Wed, 10 Jun 2026 02:00:24 GMT
+
+https://www.cbr.com/best-sci-fi-movies-with-deep-lore-list/
+
+Sci-fi movies often build on great ideas to deliver fun lore, and some lore is even more engaging than others.
+---------
+
+# The Apothecary Diaries Reveals First Look at Maomao’s Official New Design
+
+Anime, The Apothecary Diaries, Crunchyroll
+
+Wed, 10 Jun 2026 02:00:24 GMT
+
+https://www.cbr.com/the-apothecary-diaries-new-maomao-design/
+
+The Apothecary Diaries' upcoming game has surpassed 200,000 pre-registrations, unlocking rewards and revealing a new Maomao visual
+---------
+
+# Every Time Kiryu's Past Destroys His Found Family In the Yakuza Series
+
+Games, Yakuza, Like a Dragon Gaiden: The Man Who Erased His Name, Yakuza: Like a Dragon, RPG
+
+Wed, 10 Jun 2026 01:45:13 GMT
+
+https://www.cbr.com/kazuma-kiryu-yakuza-found-family/
+
+Kazuma Kiryu is one of gaming's most caring protagonists, but his past haunts everything he holds dear, no matter how he tries to distance himself.
+---------
+
+# ‘Starship Troopers’ Star Has One Rule for Returning to the Sci-Fi Cult Classic [Exclusive]
+
+Movie News, Starship Troopers, Amy Smart, Sci-Fi, Paul Verhoeven
+
+Wed, 10 Jun 2026 02:00:24 GMT
+
+https://collider.com/starship-troopers-tv-reboot-amy-smart-approval-one-condition/
+
+Amy Smart, who portrayed a pilot cadet in the 1997 film Starship Troopers, expresses her approval for a potential TV reboot, with one condition.
+---------
+
+# Robert Downey Jr.'s Elite Action Thriller Deserves a Sequel 15 Years After Its Release
+
+Movie Features, Sherlock Holmes, Robert Downey Jr, Action, Thriller
+
+Wed, 10 Jun 2026 01:43:13 GMT
+
+https://collider.com/robert-downey-jr-sherlock-holmes-movies-game-of-shadows-sequel/
+
+We're excited to see Robert Downey Jr. return to the MCU, but it's about time he solves another mesmerizing mystery.
+---------
+
+# John Wick Has Officially Met His Match in This 100% Rated Action Thriller Out This Week
+
+Movie News, Mortal Kombat, John Wick, Action
+
+Wed, 10 Jun 2026 01:15:31 GMT
+
+https://collider.com/john-wick-replacement-action-thriller-the-furious-release-date-june-12-2026/
+
+The Furious, the new action movie starring a Mortal Kombat favorite, is coming for John Wick's territory when it releases this week.
+---------
+
+# 10 Perfect Movies That Take Place in Real Time
+
+Movie, Before Sunset, 12 Angry Men, High Noon, Rope
+
+Wed, 10 Jun 2026 01:12:14 GMT
+
+https://collider.com/perfect-movies-that-take-place-in-real-time/
+
+There are some masterpieces that take place in real time, including classic movies like 12 Angry Men, Before Sunset, and Cléo from 5 to 7.
+---------
+
+# Star Wars Officially Returns This September With New George Lucas Project
+
+Movie News, George Lucas, Star Wars, Lucasfilm, Dave Filoni
+
+Wed, 10 Jun 2026 01:00:13 GMT
+
+https://collider.com/george-lucas-new-project-star-wars-in-motion-lucasfilm-museum-release-date-september-22/
+
+Star Wars in Motion, the historic new exhibit coming soon to the Lucasfilm Museum of Narrative Arts, has been confirmed for release in 3 months.
+---------
+
+# 8 Greatest Sci-Fi Books of the Last 10 Years, Ranked
+
+Movie, Sci-Fi, Project Hail Mary, Dark Matter, The Electric State
+
+Wed, 10 Jun 2026 00:55:13 GMT
+
+https://collider.com/best-sci-fi-books-last-10-years-ranked/
+
+Project Hail Mary, The Electric State, This Is How You Lose the Time War, and more make up our list of the best sci-fi books of the last 10 years.
+---------
+
+# 5 Action Movie Masterpieces Better Than 'Die Hard'
+
+Movie, Die Hard, Speed, The Fugitive, The Dark Knight, Aliens, Terminator 2: Judgment Day
+
+Wed, 10 Jun 2026 00:51:14 GMT
+
+https://collider.com/action-movie-masterpieces-better-than-die-hard/
+
+Die Hard is often called the finest action film ever made, but genre bangers like Aliens, The Dark Knight, and Speed are arguably even better.
+---------
+
+# 6 Classic Movie Screenwriters Who Became Iconic Directors
+
+Movie, John Huston, Billy Wilder, Classics, Directors
+
+Wed, 10 Jun 2026 00:32:14 GMT
+
+https://collider.com/classic-movie-writer-directors/
+
+Hollywood legends like Billy Wilder, Preston Sturges, and John Huston are immortalized as great screenwriters who became iconic directors.
+---------
+
+# 'Backrooms' Director Kane Parsons Refuses to Make Hollywood's Biggest Career Mistake
+
+Horror, Backrooms, Kane Parsons, Star Wars
+
+Wed, 10 Jun 2026 00:31:14 GMT
+
+https://collider.com/backrooms-director-kane-parsons-original-content-no-big-intellectual-property/
+
+Backrooms director Kane Parsons is turning down major franchises to focus on original stories instead.
+---------
+
+# Ana de Armas’ Forgotten Crime Thriller Finds New Life on Streaming After Hitting Rock Bottom in Theaters
+
+Movie News, Ana De Armas, Joel Kinnaman, The Informer, Rosamund Pike
+
+Wed, 10 Jun 2026 00:02:24 GMT
+
+https://collider.com/the-informer-ana-de-armas-streaming-june-2026/
+
+Ana de Armas’ forgotten crime thriller, starring Joel Kinnaman, Rosamund Pike, Clive Owen and Common, finds new life on streaming after flopping.
+---------
+
+# 8 Most Perfect TV Shows of the 2000s I Still Think About
+
+TV Lists
+
+Wed, 10 Jun 2026 02:00:30 GMT
+
+https://movieweb.com/perfect-2000s-tv-shows/
+
+From sitcoms to dramas and one memorable sci-fi series, these 2000s TV shows are perfect and still great to rewatch today.
+---------
+
+# 'The Pitt' Confirms Another Major Exit From the ER in Season 3
+
+TV News, The Pitt
+
+Wed, 10 Jun 2026 00:54:21 GMT
+
+https://movieweb.com/the-pitt-season-3-javadi-leaves-er/
+
+Shabana Azeez's Victoria Javadi will be working in a different part of the hospital in Season 3.
+---------
+
+# 'The Boys' Creator Eric Kripke Shares Apology for Series Finale Following Fan Complaints
+
+TV News, The Boys, Eric Kripke
+
+Wed, 10 Jun 2026 00:01:01 GMT
+
+https://movieweb.com/the-boys-finale-eric-kripke-apology/
+
+Eric Kripke, the creator of 'The Boys,' told fans that he was sorry if the story he developed was a disappointment.
+---------
+
+# 10 Movies With A Budget Under $1 Million That Are Better Than 'Obsession'
+
+Movie Lists, Obsession, Halloween, Horror, Mad Max
+
+Wed, 10 Jun 2026 00:00:20 GMT
+
+https://movieweb.com/movies-budget-under-1-million-better-than-obsession/
+
+From other notable horror entries to sci-fi thrills, there's a variety of low-budget movies that rival 'Obsession' in quality.
+---------
+
 # 11-Year-Old Horror Movie Finally Gets Major Sequel Casting & Timeline Update
 
 Movies, They Follow, It Follows
