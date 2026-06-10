@@ -1,3 +1,432 @@
+# Star Wars Meets Back To The Future In Netflix's 100-Minute Sci-Fi Movie With An A-List Cast
+
+Movies, Masked Recs
+
+Wed, 10 Jun 2026 20:12:20 GMT
+
+https://screenrant.com/the-adam-project-netflix-star-wars-meets-back-to-the-future/
+
+A unique blend of Star Wars and Back to the Future, Netflix's underrated dystopian movie from 2022 is a sci-fi original that defies expectations.
+---------
+
+# After Decades of Speculation, DC Confirms This Hero Can Crush Superman in Seconds
+
+DC Comics, Superman
+
+Wed, 10 Jun 2026 20:04:19 GMT
+
+https://screenrant.com/firestorm-beat-superman-supergirl-easily-kryptonite/
+
+It’s time Superman fans admit the Man of Steel isn’t the strongest hero on Earth, after a DC Universe twist shows one hero can beat him in seconds.
+---------
+
+# Hulu Unveils Huge Anime Expo Plans, And They Look Epic
+
+Anime, Hulu, Anime Expo
+
+Wed, 10 Jun 2026 20:00:21 GMT
+
+https://screenrant.com/hulu-anime-expo-plans-2026/
+
+From interactive games to exclusive souvenirs, Hulu's Anime Expo 2026 plans promise to deliver a fully themed attraction fans don't want to miss.
+---------
+
+# HBO Max's Trending Thriller Is Viggo Mortensen's Best Non-LOTR Role
+
+Movies, Masked Recs
+
+Wed, 10 Jun 2026 20:00:21 GMT
+
+https://screenrant.com/history-of-violence-best-viggo-mortensen-role-not-aragorn/
+
+There's a trending thriller on HBO Max that stars Viggo Mortensen in his best role that's not in The Lord of the Rings, and you need to watch it.
+---------
+
+# Scary Movie 6's Box Office Sets Up A 2027 Comedy For Success
+
+Movies, Scary Movie
+
+Wed, 10 Jun 2026 19:55:21 GMT
+
+https://screenrant.com/scary-movie-6-box-office-success-spaceballs-2/
+
+Scary Movie was the No. 1 film at the box office in its opening weekend, and its success indicates that a 2027 spoof comedy could also be a hit.
+---------
+
+# 2026 Officially Marks The Start Of An Era For Spider-Man Villains
+
+Streaming TV, Spider-Man, Marvel Cinematic Universe
+
+Wed, 10 Jun 2026 19:34:13 GMT
+
+https://screenrant.com/spider-noir-spiderman-villains-happy-ending-marvel-change/
+
+Many Spider-Man villains have appeared in live-action over the years, but 2026 officially marks a turning point for Peter Parker's foes.
+---------
+
+# The Legend Of Vox Machina Finally Introduces One Of D&D's Most Powerful Items
+
+Streaming TV, The Legend of Vox Machina
+
+Wed, 10 Jun 2026 19:31:20 GMT
+
+https://screenrant.com/the-legend-of-vox-machina-deck-of-infinite-possibilities/
+
+Although many powerful magical items already exist in The Legend of Vox Machina, one of the strongest from Dungeons & Dragons has finally appeared.
+---------
+
+# House Of The Dragon Season 3 Will Bring Back Best Game Of Thrones Character Trend
+
+TV, House of the Dragon, House of the Dragon - Season 3, Game of Thrones
+
+Wed, 10 Jun 2026 19:21:17 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-rhaenyra-targaryen-jaime-lannister-arc-comparison/
+
+House of the Dragon is coming back for its third season this month, and the showrunner reveals one Game of Thrones element that’s making a return.
+---------
+
+# In One Month, Disney Pushes The Boundaries Of A $12 Billion Idea
+
+New Movies, Moana
+
+Wed, 10 Jun 2026 19:20:19 GMT
+
+https://screenrant.com/disney-live-action-remakes-moana-release-gap/
+
+Disney has found a ton of success for nearly 20 years by making a specific type of movie, and next month, they'll really test demand for them.
+---------
+
+# Netflix's Hit 7-Season Series The Circle Is Officially Getting A New Version At Hulu
+
+TV, The Circle
+
+Wed, 10 Jun 2026 19:16:38 GMT
+
+https://screenrant.com/the-circle-series-netflix-new-version-hulu/
+
+Netflix's hit series that ran for seven seasons, The Circle, is officially returning on Hulu as the streamer orders a new version of the show.
+---------
+
+# 10 Darkest Bungou Stray Dogs Storylines, Ranked
+
+Anime, Bungou Stray Dogs
+
+Wed, 10 Jun 2026 20:15:13 GMT
+
+https://www.cbr.com/darkest-bungou-stray-dogs-storylines/
+
+Bungou Stray Dogs' darkest arcs show how violence, abuse and moral ambiguity reshape lives long after any single battle ends.
+---------
+
+# Failed Twilight Replacement With 7% RT Score Gets Redemption on Netflix 10 Years Later
+
+Movies, Netflix
+
+Wed, 10 Jun 2026 20:14:39 GMT
+
+https://www.cbr.com/fallen-netflix-streaming-redemption-june-2026/
+
+The planned Twilight rival that crashed and burned upon arrival 10 years ago is finally finding some redemption.
+---------
+
+# The Rock's Maui Sings and Dances in Disney's Final Live-Action Moana Trailer
+
+Movies, Moana, Disney, Adventure
+
+Wed, 10 Jun 2026 20:07:06 GMT
+
+https://www.cbr.com/moana-live-action-trailer/
+
+Maui is singing and dancing in live action in the new Moana trailer.
+---------
+
+# Naruto Gives Sakura Haruno an Official Summer Makeover in New First Look
+
+Anime, Naruto, Naruto: Shippuden, Boruto: Two Blue Vortex
+
+Wed, 10 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/naruto-mobile-sakura-haruno-summer-makeover/
+
+Naruto's Sakura Uchiha is shining as bright as the sun in this stunning summer redesign.
+---------
+
+# Toy Story 3 Is Still Pixar's Greatest Sequel of All Time
+
+Movies, Toy Story 3, Toy Story 5, Pixar
+
+Wed, 10 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/toy-story-3-best-pixar-sequel-disney/
+
+Toy Story 5 reunites the world with Woody, Buzz Lightyear, and the gang, but this 16-year-old film is still Pixar's best sequel.
+---------
+
+# Marvel Reveals Shocking New Canon About X-Men's Rogue That Changes Her Forever
+
+Comics, Uncanny X-Men (2024), Rogue
+
+Wed, 10 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/uncanny-x-men-rogue-monet-sisters-revealed/
+
+Marvel's new Uncanny X-Men series just dropped a major update that gives Rogue a shocking connection to another mutant superhero.
+---------
+
+# Toy Story 5 First Reactions Call It a “Return to Form” for Pixar
+
+Movies, Toy Story 5, Toy Story, Animation
+
+Wed, 10 Jun 2026 19:25:21 GMT
+
+https://www.cbr.com/toy-story-5-reactions/
+
+The first reactions to Toy Story 5 are encouraging news for Pixar fans.
+---------
+
+# Karl Urban's Dark Fantasy Sequel Becomes an Instant Digital Hit After Flopping in Theaters
+
+Movies, Mortal Kombat II
+
+Wed, 10 Jun 2026 19:21:26 GMT
+
+https://www.cbr.com/mortal-kombat-2-digital-streaming-success/
+
+The sequel is becoming a hit with viewers at home after falling short of box office expectations.
+---------
+
+# Scott Bakula's Best Enterprise Episode Is Still Star Trek's Most Flawless 2-Parter
+
+TV, Star Trek, Star Trek: The Original Series, Star Trek: Enterprise
+
+Wed, 10 Jun 2026 19:00:12 GMT
+
+https://www.cbr.com/star-trek-enterprise-best-episode-in-a-mirror-darkly/
+
+The two-part Mirror Universe episode of Star Trek: Enterprise is a flawless celebration of The Original Series with an evil twist.
+---------
+
+# The 10 Greatest Fantasy Books of All Time, Ranked
+
+Movies, Fantasy, books, The Lord of the Rings
+
+Wed, 10 Jun 2026 19:00:12 GMT
+
+https://www.cbr.com/best-fantasy-books-ever-list/
+
+Capturing readers' hearts and imaginations across the world for years, there are some truly brilliant fantasy books that are indesputable classics.
+---------
+
+# Taylor Sheridan’s ‘Yellowstone’ Expands Yet Again With New Entry
+
+TV News, Yellowstone, Paramount, Lioness, Taylor Sheridan
+
+Wed, 10 Jun 2026 20:11:27 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-video-game-adaptation-paramount-games-studios/
+
+Taylor Sheridan's Yellowstone is getting a video game, courtesy of Paramount Games Studios, as are several of his other series. Here's all to know.
+---------
+
+# Tom Hanks’ Beloved WWII Series Officially Returns on June 15
+
+TV News, Tom Hanks, World War II, History Channel, Documentary
+
+Wed, 10 Jun 2026 20:07:41 GMT
+
+https://collider.com/world-war-2-with-tom-hanks-new-episodes-premiere-date-june-15-2026/
+
+The next two episodes of World War 2 with Tom Hanks are around the corner. Here's when they'll be available to watch.
+---------
+
+# Sydney Sweeney Is Ready for an R-Rated 'Euphoria' Spin-Off
+
+TV News, Sydney Sweeney, Euphoria, Zendaya, HBO
+
+Wed, 10 Jun 2026 20:05:34 GMT
+
+https://collider.com/hbo-euphoria-season-3-ending-cassie-spin-off-explained-sydney-sweeney/
+
+Sydney Sweeney isn't ready to say goodbye to HBO's Euphoria, strongly hinting that there is "more to tell" of her character's story.
+---------
+
+# HBO Max’s ‘The Pitt’ Passes Its Biggest Milestone Yet Ahead of Season 3
+
+TV News, The Pitt, HBO Max, Noah Wyle, John Wells
+
+Wed, 10 Jun 2026 19:40:52 GMT
+
+https://collider.com/the-pitt-season-2-hbo-max-masterpiece-milestone-150-days-streaming-success-june-2026/
+
+HBO Max's breakout hit medical thriller, The Pitt, has passed a major streaming milestone weeks after the Season 2 finale. Find out more.
+---------
+
+# Harry Potter Icon's Gritty Action Thriller Officially Sets HBO Max Debut Date
+
+Movie News, They Will Kill You, Tom Felton, HBO Max, Action
+
+Wed, 10 Jun 2026 19:22:30 GMT
+
+https://collider.com/harry-potter-star-tom-felton-action-thriller-they-will-kill-you-streaming-release-date-hbo-max-june-12-2026/
+
+One of 2026’s most talked-about horror thrillers is arriving on HBO Max, ready to test the nerves of streaming audiences.
+---------
+
+# 10 Action-Packed Thrillers That Only Get Better With Every Rewatch
+
+Movie, Thriller, Die Hard, Action
+
+Wed, 10 Jun 2026 19:19:13 GMT
+
+https://collider.com/action-packed-thriller-movies-better-every-rewatch/
+
+From 1980s gems like Die Hard to Oscar-winning hits like Mad Max: Fury Road, these action thriller masterpieces only get better as the years fly by.
+---------
+
+# Alice & Steve: When an Age-Gap Romance Got Too Real | Set Stories
+
+TV, Alice and Steve
+
+Wed, 10 Jun 2026 19:01:51 GMT
+
+https://collider.com/video/alice-steve-when-an-age-gap-romance-got-too-real-set-stories/
+
+Alice & Steve’s age-gap romance gets uncomfortably real in this Set Stories breakdown of chemistry, awkward tension, and behind-the-scenes drama.
+---------
+
+# Prime Video's New 'Reacher' Replacement Confirms Major Expansion Plans
+
+TV News, Scarpetta, Nicole Kidman, Reacher, Prime Video
+
+Wed, 10 Jun 2026 18:30:21 GMT
+
+https://collider.com/prime-video-reacher-replacement-scarpetta-season-2-cast-david-arquette-kim-dickens/
+
+Prime Video's best and newest Reacher competitor has expanded its cast for Season 2, including a horror icon.
+---------
+
+# 10 'Attack on Titan' Episodes That Are Considered Masterpieces, Ranked
+
+TV, Attack On Titan, Anime, Fantasy, Animation
+
+Wed, 10 Jun 2026 18:27:15 GMT
+
+https://collider.com/best-attack-on-titan-episodes-masterpieces-ranked/
+
+Attack on Titan episodes like "Midnight Sun," "Hero," and "Perfect Game" are so great they can be called genuine masterpieces.
+---------
+
+# Gaming's Greatest Fantasy Franchise Officially Returns Next Month
+
+Video Games, Final Fantasy, Fantasy, Nintendo Switch, Nintendo
+
+Wed, 10 Jun 2026 18:25:24 GMT
+
+https://collider.com/final-fantasy-x-2-new-content-remaster-nintendo-switch-2-july-2026/
+
+The Final Fantasy X/X-2 HD Remaster is finally getting an upgrade for a new platform next month. Here's what we know.
+---------
+
+# 9 Masterpiece Movies You Won't Believe Got a Rotten Rating on Rotten Tomatoes
+
+Movie Lists, Rotten Tomatoes
+
+Wed, 10 Jun 2026 20:00:19 GMT
+
+https://movieweb.com/best-movies-low-rotten-tomatoes-ratings/
+
+These beloved classic movies deserve far more love than their poor Rotten Tomatoes scores suggest.
+---------
+
+# Ryan Murphy's Bloody New Serial Killer Thriller Officially Sets Release Date
+
+TV News, Ryan Murphy, The Shards
+
+Wed, 10 Jun 2026 19:56:55 GMT
+
+https://movieweb.com/ryan-murphy-the-shards-release-date/
+
+Murphy's upcoming 'The Shards' is an adaptation of the book of the same name from 'American Psycho' author Bret Easton Ellis.
+---------
+
+# 'House of the Dragon' Star Joins George R.R Martin's Criticisms of Creative Decisions Ahead of Season 3
+
+TV News, House of the Dragon, HBO Max
+
+Wed, 10 Jun 2026 19:06:06 GMT
+
+https://movieweb.com/house-of-the-dragon-fabien-frankel-criston-season-3/
+
+'House of the Dragon' star Fabien Frankel explains why fans can expect darker turns for Ser Criston's arc in Season 3.
+---------
+
+# One of the Best Sci-Fi Thrillers Ever Made Lands on New Free Streaming Home
+
+Movie News, Arrival, Coming/Leaving Streaming
+
+Wed, 10 Jun 2026 19:00:18 GMT
+
+https://movieweb.com/arrival-free-streaming-pluto-june-2026/
+
+Though Steven Spielberg is arguably the master of alien movies, this one is a true modern sci-fi masterpiece.
+---------
+
+# Ridley Scott to Receive His First Academy Award at 2026 Governors Awards
+
+Movie News, Ridley Scott
+
+Wed, 10 Jun 2026 18:59:04 GMT
+
+https://movieweb.com/ridley-scott-academy-award-governors-awards/
+
+The Academy will honor accomplished director Ridley Scott with a prestigious award at the 2026 Governors Ball.
+---------
+
+# Scarlett Johansson's Reboot of '70s Masterpiece Officially Crosses Major Milestone
+
+Movie News, The Exorcist, Scarlett Johansson
+
+Wed, 10 Jun 2026 18:25:14 GMT
+
+https://movieweb.com/scarlett-johansson-the-exorcist-photo-wrap/
+
+Mike Flanagan confirmed that his 'The Exorcist' has wrapped filming.
+---------
+
+# Ryan Gosling's Best Romantic Movies, Ranked
+
+Movie Lists, Ryan Gosling
+
+Wed, 10 Jun 2026 18:00:20 GMT
+
+https://movieweb.com/ryan-gosling-movies-romance/
+
+Ryan Gosling is a man of many talents and excels in any genre. These are his best romance movies.
+---------
+
+# 'Doctor Who' Being Canceled Proves My Worst Fear About the Future of Franchises
+
+Features, Doctor Who
+
+Wed, 10 Jun 2026 18:00:19 GMT
+
+https://movieweb.com/doctor-who-fandoms-over/
+
+Franchises used to be beloved and talked about with reverence. Now, it's far more common to hear them constantly criticized. Read on for more.
+---------
+
+# Scarlett Johansson Action Reboot Officially Overtaken by Ryan Gosling Sci-Fi Epic
+
+Movie News, Project Hail Mary, Jurassic World Rebirth, Scarlett Johansson, Ryan Gosling, Box Office Milestones
+
+Wed, 10 Jun 2026 18:00:19 GMT
+
+https://movieweb.com/project-hail-mary-beats-jurassic-world-rebirth-box-office/
+
+Even after its digital premiere, the 2026 sci-fi adaptation continues to sweep the box office.
+---------
+
 # Amazon's 4-Show Detective Franchise Is Bigger Than Ever
 
 TV, Masked Recs
