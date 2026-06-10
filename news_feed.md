@@ -1,3 +1,421 @@
+# Amazon's 4-Show Detective Franchise Is Bigger Than Ever
+
+TV, Masked Recs
+
+Wed, 10 Jun 2026 17:52:20 GMT
+
+https://screenrant.com/amazon-bosch-franchise-bigger-than-ever/
+
+Amazon's iconic detective show will soon have both a spinoff and a prequel airing simultaneously, a rare achievement even for popular cop shows.
+---------
+
+# Titus Welliver Officially Starring In New Crime Series Adaptation Of Hit 14-Year-Old DC Comic
+
+TV
+
+Wed, 10 Jun 2026 17:38:16 GMT
+
+https://screenrant.com/titus-welliver-get-jiro-adult-swim-adaptation-casting/
+
+Bosch and Deadwood star Titus Welliver continues his run with DC adaptations, joining an upcoming crime series that will premiere later this year.
+---------
+
+# New R-Rated Movie Stop! That! Train! Debuts To Stellar Rotten Tomatoes Score
+
+TV, Masked Recs
+
+Wed, 10 Jun 2026 17:33:23 GMT
+
+https://screenrant.com/sarah-michelle-gellar-stop-that-train-rotten-tomatoes-score/
+
+Sarah Michelle Gellar's new R-rated movie, Stop! That! Train!, debuts to a stellar Rotten Tomatoes score ahead of its release on June 12.
+---------
+
+# David Harbour Clarifies Relationship With Millie Bobby Brown After Stranger Things Allegations
+
+TV, Stranger Things
+
+Wed, 10 Jun 2026 17:26:45 GMT
+
+https://screenrant.com/stranger-things-millie-bobby-brown-allegations-david-harbour-reflection/
+
+Following allegations that emerged before the release of Stranger Things season 5, David Harbour now clarifies his dynamic with Millie Bobby Brown.
+---------
+
+# Willem Dafoe & Michael Douglas Reuniting 33 Years Later For New Oliver Stone Movie
+
+Movies, Willem Dafoe, Michael Douglas
+
+Wed, 10 Jun 2026 17:24:13 GMT
+
+https://screenrant.com/white-lies-movie-willem-dafoe-michael-douglas-reunion-oliver-stone/
+
+Willem Dafoe and Michael Douglas are set to reunite 33 years later for a new Oliver Stone movie, with new details about the movie revealed.
+---------
+
+# Stranger Things Is Officially Switching Casts For Netflix Return
+
+Streaming TV, Stranger Things, Stranger Things: Tales from '85
+
+Wed, 10 Jun 2026 17:22:21 GMT
+
+https://screenrant.com/stranger-things-new-cast-animated-upcoming-spinoffs/
+
+Stranger Things may be expanding into a franchise, but those who hope for the OG cast to return are setting themselves up for disappointment.
+---------
+
+# Why Jesse Eisenberg Isn't Playing Mark Zuckerberg In The Social Reckoning
+
+Movies, The Social Reckoning, The Social Network
+
+Wed, 10 Jun 2026 17:21:36 GMT
+
+https://screenrant.com/the-social-reckoning-jesse-eisenberg-recast-explained/
+
+A Succession star is replacing Jesse Eisenberg as Mark Zuckerberg in The Social Reckoning, and Eisenberg has explained why he stepped away.
+---------
+
+# House Of The Dragon Season 3 Is Switching Genres & That Changes The Game For The Fantasy Series
+
+Streaming TV, House of the Dragon - Season 3, Game of Thrones, House of the Dragon
+
+Wed, 10 Jun 2026 17:10:40 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-changes-more-action-war/
+
+House of the Dragon is all set up to lean fully into the genre it always should have been, and this is exactly what the Game of Thrones spinoff needs.
+---------
+
+# PlayStation Plus Extra & Premium Games For June 2026 Include Two Massive RPGs
+
+Gaming, PlayStation Plus, RPG, Triple-A Games
+
+Wed, 10 Jun 2026 17:06:25 GMT
+
+https://screenrant.com/playstation-plus-june-2026-extra-premium-rpg/
+
+The June 2026 additions to the PlayStation Plus Game Catalog have been announced, and two of them are sure to take up a lot of your time.
+---------
+
+# 30 Years Ago, Star Trek’s Coolest Uniforms Brought The Franchise Together
+
+TV, Star Trek
+
+Wed, 10 Jun 2026 17:00:22 GMT
+
+https://screenrant.com/star-trek-first-contact-best-starfleet-uniform/
+
+Star Trek: First Contact introduced one of the best Starfleet uniforms ever, and for a brief time, all of 24th century Starfleet shared the same look.
+---------
+
+# Steam Officially Says Goodbye to Gift Cards in 2026
+
+Games, Steam
+
+Wed, 10 Jun 2026 17:45:14 GMT
+
+https://www.cbr.com/steam-officially-confirms-ending-gift-cards-2026/
+
+Steam is changing forever in 2026, entering a new era as it removes gift cards from shelves.
+---------
+
+# David Harbour Finally Breaks Silence on Millie Bobby Brown Rift
+
+TV, Stranger Things, One Last Adventure: The Making of Stranger Things 5, Netflix, Horror
+
+Wed, 10 Jun 2026 17:38:25 GMT
+
+https://www.cbr.com/david-harbour-stranger-things-breaks-silence-millie-bobby-brown/
+
+The Stranger Things star finally broke his silence about the Milly Bobby Brown situation.
+---------
+
+# Apple TV's 97% RT Stephen King Copycat Is the Best New Show of 2026, & It's Not Even Close
+
+TV, Widow's Bay, Apple TV, Horror
+
+Wed, 10 Jun 2026 17:31:13 GMT
+
+https://www.cbr.com/apple-tv-widows-bay-best-new-horror-show/
+
+Apple TV's new hit has quickly become one of the greatest horror comedies of all time, and its Stephen King influence is obvious.
+---------
+
+# 5 Best Easter Eggs and Cameos In Masters of the Universe
+
+Movies, Masters of the Universe
+
+Wed, 10 Jun 2026 17:31:13 GMT
+
+https://www.cbr.com/masters-of-the-universe-easter-eggs-cameos-list/
+
+Masters of the Universe is getting a lot of love from audiences, and there are countless fun Easter Eggs for long-time fans.
+---------
+
+# Project Hail Mary Is Officially Heading to Streaming
+
+Movies, Project Hail Mary
+
+Wed, 10 Jun 2026 17:04:23 GMT
+
+https://www.cbr.com/project-hail-mary-mgm-plus-streaming-release-date-june-2026/
+
+After becoming one of the highest-grossing films of 2026, the sci-fi is finally heading to streaming.
+---------
+
+# Scarlett Johansson's $661M Franchise Reboot From Horror Mastermind Wraps Production 10 Months Ahead of Release
+
+Movies, The Exorcist, Horror
+
+Wed, 10 Jun 2026 17:04:20 GMT
+
+https://www.cbr.com/scarlett-johansson-the-exorcist-reboot-wraps-production/
+
+With The Batman Part II set to begin filming soon, the director of Scarlett Johansson's current movie project announces the end of production.
+---------
+
+# Supernatural Confirms Major Sam, Dean, and Castiel Reunion for New Series
+
+Comics, Supernatural
+
+Wed, 10 Jun 2026 17:00:14 GMT
+
+https://www.cbr.com/supernatural-castiel-1-cas-sam-dean-reunion/
+
+One of the most beloved Supernatural characters of all time is about to reunite with Sam and Dean Winchester in a brand-new special
+---------
+
+# Jason Momoa Returns to His Big Passion in New Episode of Hit HBO Series 1 Week Ahead of Finale
+
+TV, On the Roam, Jason Momoa
+
+Wed, 10 Jun 2026 17:00:14 GMT
+
+https://www.cbr.com/jason-momoa-passion-on-the-roam-season-2-clip/
+
+Exclusive: With multiple projects in the works, viewers get a glimpse of Momoa's well-documented passion.
+---------
+
+# Halo Boss Claims Adapting Video Games Is 'Time a Billion' Harder Than Books: 'Fans Will Hate Everything'
+
+TV, Halo, Halo Legends, Sonic the Hedgehog, Super Mario Bros.: The Movie, The Legend of Zelda, Streets of Rage
+
+Wed, 10 Jun 2026 16:43:24 GMT
+
+https://www.cbr.com/halo-boss-opinion-film-tv-adaptations/
+
+The mind behind the Halo series didn't bite his tongue about adapting video games.
+---------
+
+# Hugh Laurie Officially Finds His The Night Manager Replacement
+
+TV, bbc, MGM+
+
+Wed, 10 Jun 2026 16:17:48 GMT
+
+https://www.cbr.com/hugh-laurie-joins-legacy-of-spies/
+
+Hugh Laurie is staying in the world of John le Carré following his The Night Manager return with a new MGM+ series.
+---------
+
+# Not Even ‘Avengers: Endgame’ Beat ‘Obsession’s Latest Box Office Milestone
+
+Movie News, Obsession, Avengers: Endgame, Box Office, Horror
+
+Wed, 10 Jun 2026 17:48:34 GMT
+
+https://collider.com/2026-horror-hit-obsession-box-25-day-domestic-box-office-overtakes-avengers-endgame-156-million/
+
+In a remarkable display of box-office resilience, Obsession is now trending above Avengers: Endgame as it completes one month of release.
+---------
+
+# GTA 6's Official Price Has Fans Angry
+
+Gaming News, Grand Theft Auto 5, Rockstar Games, GTA 5, Grand Theft Auto
+
+Wed, 10 Jun 2026 17:25:45 GMT
+
+https://collider.com/gta-6-crime-thriller-price-update-take-two-price-increase/
+
+The wait for GTA 6 has been long, and fans are fed up with Take Two's avoidance of the upcoming game's price. Read on for more.
+---------
+
+# HBO Officially Confirms Perfect ‘Bosch’ Replacement Cast
+
+TV News, Task, Bosch, HBO Max, Edgar Ramirez
+
+Wed, 10 Jun 2026 16:32:32 GMT
+
+https://collider.com/hbo-bosch-replacement-crime-thriller-task-season-2-cast-edgar-ramirez/
+
+HBO's best Bosch rival, has officially expanded its cast for Season 2. Find out who the latest member of the hit new series is here.
+---------
+
+# 'LEGO Batman' pays loving tribute to the franchise’s best musical moment
+
+Video Games, Batman Forever, Music, Lego Batman, Joel Schumacher
+
+Wed, 10 Jun 2026 16:32:14 GMT
+
+https://collider.com/lego-batman-tribute-batman-forever-best-musical-moment/
+
+The hit game pulls a Batman classic, 'Kiss from a Rose' by Seal, for the final credits.
+---------
+
+# ‘Solo Leveling’ Officially Gets Season 3 Release Window After Year-Long Silence
+
+TV News, Solo Leveling, Anime, Crunchyroll, Fantasy
+
+Wed, 10 Jun 2026 16:30:14 GMT
+
+https://collider.com/solo-leveling-season-3-release-window-confirmed-2027/
+
+Solo Leveling, the popular South Korean webtoon-turned-anime, has officially confirmed a release window for Season 3 between 2027 and 2028.
+---------
+
+# Colin Farrell Officially Confirms Penguin's Return in 'The Batman Part II,' But There's a Catch [Exclusive]
+
+Exclusives, The Batman, The Batman Part II, Colin Farrell, Sugar
+
+Wed, 10 Jun 2026 16:25:03 GMT
+
+https://collider.com/the-batman-2-colin-farrell-penguin-return-filming-update/
+
+Colin Farrell reveals when he'll return as the Penguin in The Batman Part 2, hinting at a brief stint in London for his role in Matt Reeves' sequel.
+---------
+
+# Xbox Officially Releases Free Rewards for ‘Halo,’ ‘Diablo IV’ and ‘Call of Duty’
+
+Gaming News, Halo, Halo 2, Halo 4, Xbox Series X/S
+
+Wed, 10 Jun 2026 16:10:14 GMT
+
+https://collider.com/halo-campaign-evolved-fanta-xbox-free-master-chief-armor/
+
+The Fanta x Xbox rewards event ends soon, giving fans 24 hours to unlock free Halo: Campaign Evolved Master Chief armor and more.
+---------
+
+# LEGO Reveals New Pokémon Set After $650 Blunder
+
+Gaming News, Pokémon, Pokemon GO, Pokemon Shield, Pokémon Horizons
+
+Wed, 10 Jun 2026 16:00:13 GMT
+
+https://collider.com/pokemon-lego-rayquaza-hoenn-set-release-date-august-2026/
+
+LEGO is set to launch a new Rayquaza set in August 2026. The release follows previous Pokémon LEGO sets that carried a hefty price tag.
+---------
+
+# Jean-Claude Van Damme's 'Sudden Death' 4K Release Is Officially on Sale
+
+Movie News, Jean Claude Van Damme, Sudden Death, Welcome to Sudden Death, Action
+
+Wed, 10 Jun 2026 16:00:13 GMT
+
+https://collider.com/jean-claude-van-damme-sudden-death-4k-blu-ray-release-discount-on-sale/
+
+The 30+ year old film remains a steadfast favorite with sports fans.
+---------
+
+# Prime Video’s Near-Perfect 2-Part Sci-Fi Is the Weekend Binge That Deserves Way More Love
+
+TV Features, Sci-Fi, Bob Odenkirk, Undone, Prime Video
+
+Wed, 10 Jun 2026 15:52:15 GMT
+
+https://collider.com/prime-video-series-undone-bob-odenkirk/
+
+Undone remains one of Prime Video's best sci-fi series, earning 97% on Rotten Tomatoes with its mind-bending time travel story.
+---------
+
+# The 15 Greatest Actors of the 2020s (So Far)
+
+Movie Lists, Zendaya Coleman, Florence Pugh, Andrew Garfield
+
+Wed, 10 Jun 2026 17:00:20 GMT
+
+https://movieweb.com/best-actors-2020s/
+
+The 2020s has seen some incredible talent, and these actors have starred in impressive and memorable TV shows and movies from all genres.
+---------
+
+# Disney's Live-Action 'Moana' Remake Just Dropped Its Best Trailer Yet
+
+Movie News, Moana, Disney
+
+Wed, 10 Jun 2026 16:41:06 GMT
+
+https://movieweb.com/moana-final-trailer-disney/
+
+A month ahead of its release, Disney released its best trailer yet for the live-action 'Moana' remake.
+---------
+
+# Steven Spielberg Reveals What Made Him Walk Away From Original 'Harry Potter' Movie
+
+Movie News, Harry Potter, Steven Spielberg, A.I. Artificial Intelligence
+
+Wed, 10 Jun 2026 16:13:36 GMT
+
+https://movieweb.com/steven-spielberg-harry-potter-ai-kubrick/
+
+Steven Spielberg has revealed he left 'Harry Potter' to direct 'A.I.' after Stanley Kubrick's death, abandoning a franchise he had begun casting.
+---------
+
+# How the One Wish Willow Works: 'Obsession' Lore Explained
+
+Features, Obsession, Horror
+
+Wed, 10 Jun 2026 16:00:18 GMT
+
+https://movieweb.com/one-wish-willow-lore-explained-obsession/
+
+The chaotic, bloody events of Curry Barker's breakout horror movie 'Obsession' are triggered by what appears to be a harmless novelty toy.
+---------
+
+# 'My Adventures With Superman' Returns With Perfect Reviews for Season 3
+
+TV News, My Adventures With Superman
+
+Wed, 10 Jun 2026 15:51:44 GMT
+
+https://movieweb.com/my-adventures-with-superman-season-3-rotten-tomatoes/
+
+The popular anime-inspired DC series is once again getting positive reviews before its June 13 premiere date.
+---------
+
+# Taylor Sheridan's New Action Thriller Officially Dethrones 'Yellowstone'
+
+TV News, Taylor Sheridan, Dutton Ranch, Marshals, Yellowstone, Action, Thriller
+
+Wed, 10 Jun 2026 15:30:20 GMT
+
+https://movieweb.com/taylor-sheridan-marshals-most-watched-dutton-ranch-record/
+
+Taylor Sheridan rules the small screen with one series topping network TV while another dominates streaming.
+---------
+
+# 'Doctor Who's Russell T Davies Announcement Finally Confirms the Show's Biggest Mistake of the 21st Century
+
+Features
+
+Wed, 10 Jun 2026 15:30:20 GMT
+
+https://movieweb.com/doctor-who-rtd-exit-confirmed/
+
+Russell T Davies has confirmed he's stepping down as showrunner. Maybe he should never have returned. Read on for more.
+---------
+
+# The Best BL K-Dramas You Need to Watch Next
+
+TV Lists, K-Drama, LGBTQ+
+
+Wed, 10 Jun 2026 15:00:21 GMT
+
+https://movieweb.com/best-bl-k-dramas/
+
+Here are the best Korean dramas about Boys’ Love you can stream in the US.
+---------
+
 # Steam Officially Confirms The End Of An Era After 14 Years
 
 Gaming, Steam, PC
