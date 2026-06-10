@@ -1,3 +1,179 @@
+# Tim Allen Officially Confirms Reboot Issues For Home Improvement
+
+TV, Home Improvement, Tim Allen
+
+Wed, 10 Jun 2026 23:16:33 GMT
+
+https://screenrant.com/home-improvement-reboot-development-problems-tim-allen/
+
+Tim Allen has said that he was open to making a Home Improvement reboot in the past, unfortunately there have been a few obstacles in his way.
+---------
+
+# 20 Best Comedy Movies Of All Time, Ranked
+
+Movies, Comedy
+
+Wed, 10 Jun 2026 23:00:20 GMT
+
+https://screenrant.com/best-comedy-movies/
+
+Humor is subjective but, from Airplane! to Monty Python and the Holy Grail, there are some comedy movies that everyone agrees are hilarious.
+---------
+
+# It’s Officially The End Of An Era For The Pitt
+
+TV, The Pitt
+
+Wed, 10 Jun 2026 22:30:22 GMT
+
+https://screenrant.com/the-pitt-season-3-new-era/
+
+The Pitt is starting a new phase of its development, with significant changes to its main cast, characterizations, and setting coming in season 3.
+---------
+
+# In 6 Months, Marvel Studios Will Officially Release The Missing Fox X-Men Movie
+
+Movies, Masked Recs
+
+Wed, 10 Jun 2026 22:29:33 GMT
+
+https://screenrant.com/avengers-doomsday-fox-characters-missing-x-men-movie/
+
+The missing Fox X-Men movie will finally be released in six months after fans have waited more than two decades to see it come to light.
+---------
+
+# 5 Scariest Shows of 2026 (So Far)
+
+TV, The Vampire Lestat, Something Very Bad Is Going to Happen, Horror
+
+Wed, 10 Jun 2026 23:00:13 GMT
+
+https://www.cbr.com/scariest-shows-2026-list/
+
+Series like From and The Beauty feature unsettling atmospheres, psychological dread and body horror, making them 2026's most terrifying horror shows.
+---------
+
+# Pokémon Officially Reveals New 30th Anniversary Charizard Design
+
+Games, Pokemon
+
+Wed, 10 Jun 2026 22:45:13 GMT
+
+https://www.cbr.com/pokemon-officially-reveals-new-charizard-design-30th-anniversary/
+
+Charizard, one of the most popular Pokémon of all time, has been given a fresh new design, just in time for the franchise's 30th anniversary.
+---------
+
+# Arnold Schwarzenegger Is Officially Ready for His Fantasy Franchise Return
+
+Movie News, Arnold Schwarzenegger, Conan the Barbarian, Christopher McQuarrie, 20th Century Studios
+
+Wed, 10 Jun 2026 23:30:20 GMT
+
+https://collider.com/arnold-schwarzenegger-fantasy-reboot-conan-the-barbarian-return/
+
+Over 40 years later, Arnold Schwarzenegger is returning as the legendary Barbarian in King Conan. Read on for more.
+---------
+
+# Netflix Officially Found Its Next ‘Stranger Things’ Problem
+
+TV Features, Stranger Things, Stranger Things: Tales from '85, Stranger Things: The First Shadow, Netflix
+
+Wed, 10 Jun 2026 23:29:15 GMT
+
+https://collider.com/netflix-stranger-things-franchise-problem-meaning/
+
+Stranger Things has ended, which means that Netflix needs to find new avenues to continue its breakneck success.
+---------
+
+# Prime Video's 6-Part Thriller Series Is the Perfect Weekend Binge for Guy Ritchie Fans
+
+TV Features, Steal, Sophie Turner, Guy Ritchie, Prime Video
+
+Wed, 10 Jun 2026 23:24:13 GMT
+
+https://collider.com/prime-video-steal-thriller-guy-ritchie-fans-perfect-weekend-binge/
+
+Prime Video's Steal follows a £4 billion London heist, with the show offering twists, turns, and a fast-paced mystery that keeps audiences engaged.
+---------
+
+# 10 Greatest Superhero Video Games of All Time
+
+Movie, Video Game, Marvel's Guardians of the Galaxy, Batman: Arkham City, Marvel's Spider-Man
+
+Wed, 10 Jun 2026 23:21:14 GMT
+
+https://collider.com/best-superhero-video-games-all-time-ranked/
+
+Marvel's Spider-Man 2, Batman: Arkham City, and inFAMOUS Second Son are all among the very best superhero video games ever made.
+---------
+
+# The Best Fantasy Franchise-Starter of the 2000s Is an American Favorite
+
+Movie News, Fantasy, Pirates of the Caribbean: The Curse of the Black Pearl, Disney+, Pirates of the Caribbean
+
+Wed, 10 Jun 2026 23:00:13 GMT
+
+https://collider.com/pirates-of-the-caribbean-the-curse-of-the-black-pearl-fantasy-franchise-streaming-success-disney-plus-june-2026/
+
+23 years later, the original Pirates of the Caribbean movie is still finding an audience on Disney+.
+---------
+
+# 'The Vampire Lestat's Opening Scene Is Officially Setting Up Season 4 [Exclusive]
+
+TV News, The Vampire Lestat, Interview with the Vampire, Rolin Jones, AMC
+
+Wed, 10 Jun 2026 23:00:13 GMT
+
+https://collider.com/the-vampire-lestat-premiere-opening-scene-season-4-setup-rolin-jones/
+
+The Vampire Lestat's Rolin Jones discusses the thought process behind the premiere's auction scene, including hints about Season 4.
+---------
+
+# '21 Jump Street' Sequel Confirmed After 14 Years
+
+Movie News, 21 Jump Street, Channing Tatum, Jonah Hill, Ice Cube
+
+Wed, 10 Jun 2026 22:29:55 GMT
+
+https://collider.com/21-jump-street-sequel-confirmed-phil-lord-chris-miller-returning/
+
+24 Jump Street, a third installment in Phil Lord and Chris Miller's cult classic action franchise, is happening. And yes, you read that title right.
+---------
+
+# Tom Hardy's Action Masterpiece Loses Box Office Crown to 2026's Sleeper Hit
+
+Movie News, Mad Max: Fury Road, The Mandalorian and Grogu, Box Office Milestones, Action, Tom Hardy
+
+Wed, 10 Jun 2026 23:30:22 GMT
+
+https://movieweb.com/mad-max-fury-road-beaten-box-office-star-wars-mandalorian-and-grogu/
+
+Tom Hardy's action masterpiece 'Mad Max: Fury Road' has been beaten at the box office by 'Star Wars: The Mandalorian & Grogu.'
+---------
+
+# Betty Gilpin's 10-Part R-Rated Hit Is a Certified Late-Night Streaming Sensation
+
+TV News, Three Women, STARZ, Hot on Streaming
+
+Wed, 10 Jun 2026 23:00:19 GMT
+
+https://movieweb.com/three-women-rrated-streaming-success-starz-2026/
+
+Betty Gilpin's late-night R-rated drama, 'Three Women,' is a major streaming hit on Starz.
+---------
+
+# '24 Jump Street' Finally Gets Major Update After 12 Years
+
+Movie News, 21 Jump Street, Channing Tatum, Jonah Hill
+
+Wed, 10 Jun 2026 22:39:42 GMT
+
+https://movieweb.com/jump-street-sequel-channing-tatum-jonah-hill/
+
+An all-new sequel to the reboot series is officially in the works.
+---------
+
 # 24 Jump Street In Development With Channing Tatum, Jonah Hill & Ice Cube
 
 Movies, 24 jump street
