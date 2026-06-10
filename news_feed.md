@@ -1,3 +1,223 @@
+# Toy Story 5 First Reactions Are In
+
+Movies, Toy Story 5, Toy Story
+
+Wed, 10 Jun 2026 04:08:11 GMT
+
+https://screenrant.com/toy-story-5-first-reactions/
+
+First reactions to Pixar's Toy Story 5 have been shared and tease what to expect from the franchise's latest installment featuring Woody and Buzz.
+---------
+
+# Red Dead Redemption Meets Mad Max In New Game You Can Play Free Now
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2, Rockstar Games, Mad Max
+
+Wed, 10 Jun 2026 04:00:30 GMT
+
+https://screenrant.com/sand-red-dead-redemption-vibes-free-steam-playtest/
+
+Experience a unique blend of Red Dead Online's gunplay and Mad Max's vehicle crafting in SAND: Raiders of Sophie's free playtest this June.
+---------
+
+# Project Hail Mary Box Office Passes One Final Global Milestone As 3-Month Theatrical Run Nears End
+
+Movies, Project Hail Mary, Amazon, Box Office Milestone
+
+Wed, 10 Jun 2026 03:57:47 GMT
+
+https://screenrant.com/project-hail-mary-box-office-680-million-global-milestone/
+
+Project Hail Mary's incredible theatrical run is reaching its end, but not without passing one final global milestone after three months.
+---------
+
+# Steven Spielberg's Disclosure Day Should Borrow From This Episode Of The X-Files
+
+Movies, Disclosure Day
+
+Wed, 10 Jun 2026 03:55:49 GMT
+
+https://screenrant.com/disclosure-day-movie-xfiles-episode-nisei/
+
+Steven Spielberg's new film appears to have many similarities to The X-Files, and the director would be wise to look at one episode in particular.
+---------
+
+# Robert Pattinson's 5 Upcoming Movies, Ranked By Hype
+
+New Movies, Robert Pattinson, Primetime, The Odyssey, The Batman Part II, Dune: Part Three
+
+Wed, 10 Jun 2026 03:53:58 GMT
+
+https://screenrant.com/robert-pattinson-movies-upcoming-ranked-hype/
+
+Robert Pattinson has multiple films set for 2026-2027, so here are all 5 of his upcoming movies, ranked by how hyped we are for their release.
+---------
+
+# 9 Best TV Shows & Movies To Watch On AMC+ If You're New To The Streamer
+
+Streaming TV, AMC
+
+Wed, 10 Jun 2026 03:50:10 GMT
+
+https://screenrant.com/amc-plus-tv-movie-recommendations-new-viewers/
+
+From historical horrors to campy vampire flicks, AMC+ has plenty of original shows and movies to choose, and these are the best ones to start with.
+---------
+
+# 22 Years Later, Boruto's Strongest Uchiha Is Inspiring The Sasuke Retrieval Arc's Epic Sequel
+
+Anime, Naruto, Boruto: Two Blue Vortex
+
+Wed, 10 Jun 2026 03:34:13 GMT
+
+https://screenrant.com/naruto-boruto-strongest-uchiha-sasuke-retrieval-sequel/
+
+Boruto: Two Blue Vortex is making a clever inversion on an iconic Naruto arc, and the results could be one of its most thrilling stories yet.
+---------
+
+# Fans Don't Like It, But Naruto's Next Anime Won't Abandon Its Controversial Storyline
+
+Streaming TV, Naruto, Boruto: Naruto Next Generations
+
+Wed, 10 Jun 2026 03:15:21 GMT
+
+https://screenrant.com/boruto-two-blue-vortex-otsusuki-naruto-controversial-storyline/
+
+Even though many fans still do not like one of Naruto’s most controversial storylines, it looks like the anime is not abandoning it anytime soon.
+---------
+
+# Shared Universe Competing With Marvel and DC Launches a Sci-Fi Alien Hero
+
+Comics, indie comics
+
+Wed, 10 Jun 2026 03:58:00 GMT
+
+https://www.cbr.com/shared-universe-competing-with-marvel-and-dc-trench-sci-fi-alien-hero/
+
+In a CBR exclusive interview, see how Summit Comics is launching a new sci-fi alien hero book that is a mixture between Hellboy and Martian Manhunter
+---------
+
+# 5 Masterpiece Anime That Only Exist Because of Cowboy Bebop
+
+Anime, Cowboy Bebop, Samurai Champloo
+
+Wed, 10 Jun 2026 03:45:14 GMT
+
+https://www.cbr.com/best-cowboy-bebop-inspired-sci-fi-anime/
+
+A few anime masterpieces owe part of their creative DNA to the trail blazed by the iconic classic that is Cowboy Bebop.
+---------
+
+# The 8 Scariest Pixar Movie Scenes, Ranked
+
+Movies, Pixar, Toy Story, Disney+
+
+Wed, 10 Jun 2026 03:45:14 GMT
+
+https://www.cbr.com/scariest-pixar-movie-scenes-list/
+
+Pixar might be known for heartwarming or emotional moments, but these scenes were downright terrifying!
+---------
+
+# 6 Near-Perfect Hard Fantasy Shows Nobody Remembers
+
+TV, Fantasy, Warrior Nun, Merlin
+
+Wed, 10 Jun 2026 03:30:13 GMT
+
+https://www.cbr.com/near-perfect-forgotten-hard-fantasy-series-list/
+
+These hard fantasy shows might be near-perfect for fans, but they fell through the cracks somehow, as nobody else remembers them.
+---------
+
+# 10 Perfect Sega Genesis Games Nobody Remembers
+
+Games, Sega Genesis
+
+Wed, 10 Jun 2026 03:15:13 GMT
+
+https://www.cbr.com/perfect-sega-genesis-games-nobody-remembers-list/
+
+Some of the greatest Sega Genesis games, like Warsong, weren't appreciated in their time.
+---------
+
+# Frodo's Hunt for Gollum Role Will Be Accurate to Tolkien's LOTR Novel
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings: The Fellowship of the Ring
+
+Wed, 10 Jun 2026 03:15:13 GMT
+
+https://www.cbr.com/hunt-for-gollum-frodo-reduced-role-book-accurate/
+
+Frodo actor Elijah Wood revealed one key way in which The Lord of the Rings: The Hunt for Gollum will remain true to J. R. R. Tolkien's lore.
+---------
+
+# 10 Must-Read Comic Book Prequels to Famous Movie Masterpieces
+
+Comics, Star Wars, Event Horizon, John Wick, Movies
+
+Wed, 10 Jun 2026 03:00:14 GMT
+
+https://www.cbr.com/essential-comic-book-prequels-iconic-movie-masterpieces/
+
+Some of the greatest films of all time have secret prequel stories told by publishers like Dark Horse, crafting the perfect tie-ins for iconic movies.
+---------
+
+# 10 Greatest Pokémon Mobile Games, Ranked
+
+Games, Pokemon, Pokemon GO, Pokemon Trading Card Game Pocket
+
+Wed, 10 Jun 2026 02:45:12 GMT
+
+https://www.cbr.com/best-pokemon-mobile-games-ranked/
+
+From Magikarp Jump to Pokémon Go, the monster-collecting franchise has explored a variety of directions on smartphones.
+---------
+
+# 'Maximum Pleasure Guaranteed's Murray Bartlett Says Episode 5's Wild Kill Brought Dennis "Glee"
+
+TV, Maximum Pleasure Guaranteed, Apple TV, Murray Bartlett, Thriller
+
+Wed, 10 Jun 2026 07:00:14 GMT
+
+https://collider.com/maximum-pleasure-guaranteed-episode-5-murray-bartlett-brandon-flynn-interview/
+
+Murray Bartlett and Brandon Flynn of Apple TV's twisty thriller Maximum Pleasure Guaranteed reflect on how they prepared for their complex roles.
+---------
+
+# Netflix’s Intense Sci-Fi Trilogy Is the Perfect Binge for Sci-Fi Fans
+
+Movie Features, Riddick, Pitch Black, The Chronicles of Riddick, Vin Diesel
+
+Wed, 10 Jun 2026 04:14:12 GMT
+
+https://collider.com/chronicles-of-riddick-intense-sci-fi-trilogy-netflix-perfect-binge/
+
+The movies in Vin Diesel's Chronicles of Riddick trilogy are all worth watching if you're a sci-fi fan, and they're currently available on Netflix.
+---------
+
+# Every Steven Spielberg Movie of the 2020s, Ranked
+
+Movie, Steven Spielberg, Disclosure Day, West Side Story, The Fabelmans
+
+Wed, 10 Jun 2026 04:14:12 GMT
+
+https://collider.com/steven-spielberg-movies-2020s-ranked/
+
+From The Fabelmans, to West Side Story, to Disclosure Day, this is the definitive ranking of every movie Steven Spielberg has directed in the 2020s.
+---------
+
+# Only 5 MCU Heroes Are Smarter Than Tony Stark
+
+Movie, MCU, Robert Downey Jr, Superhero, Marvel
+
+Wed, 10 Jun 2026 03:26:14 GMT
+
+https://collider.com/mcu-heroes-smarter-than-tony-stark/
+
+Tony Stark is widely known as the MCU's resident genius, but other characters, including Mister Fantastic and Shuri, arguably surpass his intellect.
+---------
+
 # 10 Parallels Between Masters of the Universe & The MCU’s Thor Franchise
 
 Superheroes, Masters of the Universe, Thor, Marvel Cinematic Universe
