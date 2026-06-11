@@ -1,3 +1,245 @@
+# PlayStation Plus Makes Highly-Rated Final Fantasy Game Free For Millions
+
+Gaming, PlayStation Plus, Final Fantasy 16, Final Fantasy, Triple-A Games
+
+Thu, 11 Jun 2026 05:00:20 GMT
+
+https://screenrant.com/playstation-plus-final-fantasy-16-free/
+
+Square Enix is on a stellar run with Final Fantasy in recent years, and one of its standout newer releases is going to be free with PlayStation Plus.
+---------
+
+# Disney's Moana Live-Action Remake Runtime Sets An All-Time Franchise Record
+
+Movies, Moana, Disney
+
+Thu, 11 Jun 2026 03:57:58 GMT
+
+https://screenrant.com/moana-live-action-movie-runtime-disney-franchise-record/
+
+With just a month to go, the upcoming live-action Moana remake now has an official runtime, setting a record for the Disney franchise.
+---------
+
+# The 5 Best Blockbuster Soundtracks Of 2026 So Far (And 5 More On The Way)
+
+Movies, Masters of the Universe, Project Hail Mary, The Super Mario Galaxy Movie, The Mandalorian and Grogu, GOAT
+
+Thu, 11 Jun 2026 03:42:17 GMT
+
+https://screenrant.com/best-blockbuster-soundtracks-of-2026-so-far-and-on-the-way/
+
+We're nearly halfway through 2026,  so let's look at the 5 best blockbuster movie scores released so far, and 5 more that are no doubt on the way.
+---------
+
+# 10 Greatest Time Travel Shows Of The 21st Century (So Far)
+
+Streaming TV, Dark, Russian Doll, Steins;Gate, The Melancholy Of Haruhi Suzumiya, 12 Monkeys, Undone, The Lazarus Project, 11.22.63, Future Man
+
+Thu, 11 Jun 2026 03:41:58 GMT
+
+https://screenrant.com/best-time-travel-tv-shows-21st-century/
+
+Quite a few time travel shows have come out in the 21st century, but only a few of them have been compelling enough to leave a mark among viewers.
+---------
+
+# Naruto's Next Anime Will Officially Crown Sakura As Team 7's Strongest Ninja, And It's Not Close
+
+Anime, Naruto, Boruto: Two Blue Vortex
+
+Thu, 11 Jun 2026 03:30:20 GMT
+
+https://screenrant.com/naruto-next-anime-boruto-two-blue-vortex-sakura-strongest-team-7/
+
+The Naruto franchise has hardly made it easy for Sakura to keep up with the rest of Team 7, but the latest anime is set to level the playing field.
+---------
+
+# Steam Makes 8 New Games Completely Free Forever, No Strings Attached
+
+Gaming, Steam, Indie, PC, Recommendation
+
+Thu, 11 Jun 2026 03:00:21 GMT
+
+https://screenrant.com/steam-8-free-games-june-2026-no-subscriptions/
+
+Steam just made eight new games entirely free to claim and keep forever, no strings attached, and it’s recommended that you add them to your library.
+---------
+
+# House of the Dragon Stars Pitch a ‘Villain-of-the-Week’ Dragonseed Spinoff
+
+CBR Exclusives, House of the Dragon, HBO Max, Game Of Thrones
+
+Thu, 11 Jun 2026 05:39:43 GMT
+
+https://www.cbr.com/house-of-the-dragon-season-3-dragonseed-spinoff-tom-bennett-clinton-liberty-kieran-bew/
+
+House of the Dragon stars pitch a dragonseed sitcom and tease Ulf, Hugh and Addam’s uneasy Season 3 alliance.
+---------
+
+# Street Fighter Video Game Fans Get an Exciting Update on the Upcoming Movie
+
+Movies, Street Fighter
+
+Thu, 11 Jun 2026 03:57:24 GMT
+
+https://www.cbr.com/street-fighter-movie-rewrites/
+
+Fans of the original video games will appreciate what it's in store from the new Street Fighter movie.
+---------
+
+# 5 JRPGs That Are Objectively Better Than Final Fantasy 7
+
+Games, Final Fantasy 7 Remake, Final Fantasy, JRPG, Pokemon
+
+Thu, 11 Jun 2026 03:45:13 GMT
+
+https://www.cbr.com/jrpgs-objectively-better-than-final-fantasy-7/
+
+Final Fantasy 7 might be the most important JRPG ever made, but that doesn't make it the best, as several titles have superior gameplay and stories.
+---------
+
+# It's Officially the End of an Era for Disney+
+
+Movies, The Mandalorian and Grogu, Disney+, Sci-Fi
+
+Thu, 11 Jun 2026 03:45:13 GMT
+
+https://www.cbr.com/mandalorian-and-grogu-disney-plus-streaming-debut/
+
+A new blockbuster movie represents the end of a long-running era for Disney+.
+---------
+
+# 7 Sopranos Actors Who Also Appear in The Godfather Trilogy
+
+TV, The Sopranos, The Godfather, Crime
+
+Thu, 11 Jun 2026 03:30:12 GMT
+
+https://www.cbr.com/sopranos-actors-also-appear-in-godfather/
+
+The Sopranos references The Godfather trilogy throughout the show, making it fitting that several actors have appeared in both.
+---------
+
+# 10 Greatest Video Game Masterpieces of the Last 5 Years
+
+Games, Video Games, The Legend of Zelda, Resident Evil, Elden Ring
+
+Thu, 11 Jun 2026 03:16:13 GMT
+
+https://www.cbr.com/greatest-video-game-masterpieces-2020s/
+
+With Clair Obscur: Expedition 33 and Elden Ring, the 2020s have already produced some of the greatest games of all time.
+---------
+
+# Tom Holland Confirmed His Commitment to Spider-Man in the MCU
+
+Movies, MCU, Spider-Man, Spider-Man: Brand New Day
+
+Thu, 11 Jun 2026 03:16:13 GMT
+
+https://www.cbr.com/tom-holland-spider-man-future-mcu-confirmed/
+
+Tom Holland recently commented on his future as Spider-Man in the Marvel Cinematic Universe, and it parallels the character's comic book history.
+---------
+
+# Jason Momoa's Lobo Explained: What to Know Before Supergirl
+
+Comics, Lobo, DCU, DC Comics
+
+Thu, 11 Jun 2026 03:00:12 GMT
+
+https://www.cbr.com/lobo-comics-history-explained-before-supergirl/
+
+Known from one cosmos to the next, Lobo has been making tracks and dealing punches along his rise up in comics, now he's coming to the big screen.
+---------
+
+# 8 Universally Beloved Movies Nobody Wants to See a Remake Of
+
+Movie, Back to the Future, Jaws, Forrest Gump, The Godfather
+
+Thu, 11 Jun 2026 04:07:12 GMT
+
+https://collider.com/universally-beloved-movies-no-remakes/
+
+Universally beloved classic movies like Forrest Gump, The Princess Bride, and Back to the Future need to be left alone. No one wants a remake of them.
+---------
+
+# HBO's 6-Part Fantasy Series Is So Good, It United a Split Fandom
+
+TV Features, A Knight Of The Seven Kingdoms, George R.R. Martin, House of the Dragon, Game Of Thrones
+
+Thu, 11 Jun 2026 04:06:12 GMT
+
+https://collider.com/knight-of-the-seven-kingdoms-hbo-fantasy-series-united-a-split-fandom/
+
+A Knight of the Seven Kingdoms offered jaded Game of Thrones fans a fresh take on the world of Westeros with a charming and simple story.
+---------
+
+# 'Tombstone' Changed Doc Holliday’s Actual Quote and Made Val Kilmer’s Scene Even Better
+
+Movie Features, Tombstone, Val Kilmer, Western, Kurt Russell
+
+Thu, 11 Jun 2026 03:41:14 GMT
+
+https://collider.com/tombstone-real-life-doc-holliday-quote-val-kilmer/
+
+The iconic 1993 Western movie Tombstone starring Kurt Russell and Val Kilmer altered history for the better.
+---------
+
+# This Overlooked Sci-Fi Masterpiece Got Cancelled, but Netflix Is Giving It a Second Life
+
+TV Features, Resident Alien, Netflix, SyFy, Streaming
+
+Thu, 11 Jun 2026 03:18:14 GMT
+
+https://collider.com/resident-alien-netflix-second-life-cancelled-sci-fi-masterpiece/
+
+Cancelled after four seasons, Resident Alien is finding new fans on Netflix and proving why it’s one of sci-fi’s hidden gems.
+---------
+
+# This 10-Part Psychological Thriller Miniseries Looks Unlike Anything Else on Apple TV
+
+TV Features, Cape Fear, Apple TV, Amy Adams, Javier Bardem
+
+Thu, 11 Jun 2026 03:15:13 GMT
+
+https://collider.com/cape-fear-apple-tv-psychological-thriller-miniseries-different-look/
+
+Apple TV's new miniseries Cape Fear features a fresh aesthetic and intense storytelling that sets it apart from other thrillers.
+---------
+
+# 2026's Greatest Video Game Is Officially One of the Best in Its Franchise
+
+Video Games, Video Game, Resident Evil Requiem, Resident Evil
+
+Thu, 11 Jun 2026 03:03:13 GMT
+
+https://collider.com/resident-evil-requiem-best-video-game-2026-franchise/
+
+Resident Evil Requiem has broken records and received critical acclaim, officially cementing itself among the all-time best entries in the franchise.
+---------
+
+# 10 Underrated Sci-Fi Shows Worth Watching Over and Over
+
+TV, Sci-Fi, Science Fiction, Resident Alien, Fringe
+
+Thu, 11 Jun 2026 03:01:13 GMT
+
+https://collider.com/underrated-sci-fi-shows-worth-watching-over-and-over-ranked/
+
+Resident Alien, Fringe, 3rd Rock from the Sun, and Warehouse 13 are all among the great yet underrated sci-fi TV shows you can watch over and over.
+---------
+
+# Director Matt Shakman Joins A24's 'Discretion' With Nicole Kidman & Elle Fanning
+
+TV News, A24, Matt Shakman, Nicole Kidman, Elle Fanning
+
+Thu, 11 Jun 2026 03:05:50 GMT
+
+https://movieweb.com/discretion-director-nicole-kidman-elle-fanning/
+
+A24 signed MCU director Matt Shakman to work on the new series, 'Discretion,' led by Nicole Kidman and Elle Fanning.
+---------
+
 # Reacher’s New Spinoff Officially Switches Genres For The Prime Video Franchise
 
 Streaming TV, Reacher, Neagley
