@@ -1,3 +1,366 @@
+# We're Officially 6 Months Away From A $2.8 Billion Sci-Fi Movie Franchise's Return
+
+Movies, Masked Recs
+
+Thu, 11 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/avengers-doomsday-mcu-franchise-return-sixth-months/
+
+Avengers: Doomsday is bringing the MCU's most profitable franchise back in just six months, but it faces some unique new challenges from Endgame.
+---------
+
+# Sci-Fi’s Greatest Quote of All-Time Feels Even More Terrifying Today
+
+Books, Sci-Fi, Masked Recs
+
+Thu, 11 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/sci-fi-greatest-quote-dune/
+
+Dune is one of the greatest sci-fi series of all time, and its legacy across both page and screen includes some of the genre’s most profound quotes.
+---------
+
+# Final Fantasy 7: Hollow Officially Released Ahead Of Revelation
+
+Gaming, Final Fantasy 7 Remake, Final Fantasy 7 Rebirth, Final Fantasy 7, PC, Square Enix, Final Fantasy VII Revelation, Final Fantasy VII Rebirth
+
+Thu, 11 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/final-fantasy-7-hollow-music-video-release/
+
+After the official reveal of Final Fantasy 7: Revelation at Summer Game Fest, fans are getting another new release with FF7: Hollow, available now.
+---------
+
+# MCU's Spider-Man Origin Story Movie Is Officially A Hit On Disney+
+
+Movies, Masked Recs
+
+Thu, 11 Jun 2026 22:53:10 GMT
+
+https://screenrant.com/spider-man-no-way-home-mcu-origin-story-movie-disney-plus-june-2026/
+
+Spider-Man: No Way Home, the true origin story of the MCU's Spidey, has been trending on Disney+ all week — and it's getting paid off this summer.
+---------
+
+# It's Officially The End Of An Era For Robert Downey Jr.'s Sherlock Holmes
+
+Streaming TV, Masked Recs
+
+Thu, 11 Jun 2026 22:30:21 GMT
+
+https://screenrant.com/robert-downey-jr-sherlock-holmes-movies-new-era-guy-ritchie/
+
+It is very likely the end of an era for Sherlock Holmes, as the Guy Ritchie-directed, Robert Downey Jr.-starring movie series is probably over.
+---------
+
+# Disclosure Day Ending Explained: Why Margaret Is Crucial To Exposing The World's Greatest Secret
+
+Movies, Disclosure Day
+
+Thu, 11 Jun 2026 22:20:23 GMT
+
+https://screenrant.com/disclosure-day-ending-explained/
+
+Disclosure Day's emotionally resonant and slightly ambiguous ending underscores the thematic weight that the Steven Spielberg movie is exploring.
+---------
+
+# Marvel Officially Unveils Armored Loki Design Ahead of Next Appearance
+
+Comics, Loki, Thor
+
+Thu, 11 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/marvel-officially-unveils-armored-loki-design-for-thors-next-appearance/
+
+Loki's been cribbing from Iron Man's armor.
+---------
+
+# Netflix Is Officially Remaking Its Own Dark Thriller Movie Into A New Series
+
+TV, Hit Man, Netflix
+
+Thu, 11 Jun 2026 21:48:53 GMT
+
+https://screenrant.com/hit-man-remake-netflix-tv-series/
+
+Netflix is reportedly adapting its hit 2024 film, Hit Man, into a TV series, and the star of the original movie will serve as an executive producer.
+---------
+
+# John Wick Director's New Dystopian Crime Thriller Officially Releases Next Year
+
+Movies, John Wick
+
+Thu, 11 Jun 2026 21:40:53 GMT
+
+https://screenrant.com/karoshi-crime-thriller-movie-2027-release-date-lionsgate/
+
+John Wick director Chad Stahelski's new dystopian crime thriller with a star-studded cast officially releases in theaters early next year.
+---------
+
+# Apple TV Officially Confirms Fate Of Hit 10-Part Horror Series Ahead Of Finale
+
+TV, Widow's Bay
+
+Thu, 11 Jun 2026 21:39:57 GMT
+
+https://screenrant.com/widows-bay-season-2-renewal-confirmed-apple-tv/
+
+Apple TV has officially confirmed whether or not their popular new ten-part horror-comedy streaming series will be returning for season 2.
+---------
+
+# William Shatner's Favorite Star Trek Episode Deserves to Be Called a Sci-Fi Masterpiece
+
+TV, Star Trek, Star Trek: The Original Series
+
+Thu, 11 Jun 2026 23:01:14 GMT
+
+https://www.cbr.com/william-shatner-favorite-star-trek-episode-the-devil-in-the-dark/
+
+A Season 1 TOS episode is, among other Star Trek luminaries, one of William Shatner's favorites and a sci-fi masterpiece.
+---------
+
+# 5 Forgotten 80s Action Movies That Have Aged Like Fine Wine
+
+Movies, To Live and Die in L.A.
+
+Thu, 11 Jun 2026 23:01:14 GMT
+
+https://www.cbr.com/80s-action-movies-no-one-remembers-list/
+
+There's something special about these '80s action movies that have only gotten better with age. You just need to remember to watch them.
+---------
+
+# 10 Black Clover Characters Who Were Stronger Than Fans Realized
+
+Anime, Black Clover
+
+Thu, 11 Jun 2026 22:16:13 GMT
+
+https://www.cbr.com/powerful-black-clover-characters-fans-overlook/
+
+Some of the most competent Black Clover characters were initially dismissed by fans
+---------
+
+# Frieren, My Hero Academia and Jujutsu Kaisen Officially Set for New Reveals This July
+
+Anime, My Hero Academia, Frieren: Beyond Journey's End, Jujutsu Kaisen
+
+Thu, 11 Jun 2026 22:01:13 GMT
+
+https://www.cbr.com/frieren-my-hero-academia-jujutsu-kaisen-anime-expo/
+
+Frieren Season 3 will receive an official new first look this July, alongside Jujutsu Kaisen Season 4, My Hero Academia, and so much more.
+---------
+
+# James Bond Just Introduced The Perfect Modern 007 Villain Ahead of Reboot
+
+Movies, James Bond
+
+Thu, 11 Jun 2026 22:01:13 GMT
+
+https://www.cbr.com/james-bond-first-light-ai-perfect-reboot-movie-villain/
+
+James Bond is about to get a major reboot, and 007: First Light is already setting up an amazing villain.
+---------
+
+# Netflix's Reboot of NBC's Iconic 52-Year-Old Drama Finally Unveils First Trailer
+
+TV, Little House on the Prairie
+
+Thu, 11 Jun 2026 21:48:41 GMT
+
+https://www.cbr.com/netflix-little-house-on-the-prairie-reboot-trailer/
+
+Netflix officially reimagines the iconic TV series after five decades.
+---------
+
+# Apple TV Officially Renews the Greatest Horror Show of the 21st Century for Another Season
+
+TV, Widow's Bay
+
+Thu, 11 Jun 2026 21:30:13 GMT
+
+https://www.cbr.com/apple-tv-widows-bay-season-2-fate/
+
+The show is perfect for Stephen King and From fans.
+---------
+
+# The Best Western Crime Thriller of the 21st Century Is Streaming Free
+
+Movies, No Country for Old Men, Western, Thriller
+
+Thu, 11 Jun 2026 21:30:13 GMT
+
+https://www.cbr.com/no-country-for-old-men-western-thriller-streaming-free-pluto-tv-june-2026/
+
+One of the greatest crime thrillers of all time, No Country for Old Men, is now available to stream for free in the United States.
+---------
+
+# Doctor Who Fan Art Use Sparks Backlash Ahead of Upcoming Series Release
+
+Comics, Doctor Who
+
+Thu, 11 Jun 2026 21:30:13 GMT
+
+https://www.cbr.com/doctor-who-circuit-breaker-fan-art-covers-backlash/
+
+Doctor Who's newest event is already under fire for swiping fan art and using it without the artist's permission.
+---------
+
+# Taylor Sheridan’s 8-Part Western Just Made the Case for Season 2 by Quietly Climbing Another Streamer’s Top 10
+
+TV Features, Lawmen: Bass Reeves, Taylor Sheridan, Western, David Oyelowo
+
+Thu, 11 Jun 2026 22:58:14 GMT
+
+https://collider.com/lawmen-bass-reeves-taylor-sheridan-western-netflix-top-10/
+
+Paramount's Lawmen: Bass Reeves makes the best case for a potential Season 2 by climbing Netflix's Top 10 after debuting on the streamer.
+---------
+
+# 10 Best Story-Driven Video Games of All Time, Ranked
+
+Movie, Video Game, Mass Effect, Red Dead Redemption 2, The Witcher 3: Wild Hunt
+
+Thu, 11 Jun 2026 22:54:13 GMT
+
+https://collider.com/best-story-driven-video-games-all-time-ranked/
+
+Red Dead Redemption 2, Alan Wake 2, and The Mass Effect Trilogy are all among the absolute best story-driven video games of all time.
+---------
+
+# Steven Spielberg's Near-Perfect Sci-Fi Is Built on Decades of Real UFO History
+
+Exclusives, Disclosure Day, Steven Spielberg, David Koepp, Westworld
+
+Thu, 11 Jun 2026 22:47:42 GMT
+
+https://collider.com/disclosure-day-ufo-aliens-steven-spielberg-david-koepp/
+
+David Koepp discusses Steven Spielberg's Disclosure Day, reacts to fans dissecting his Jurassic World Rebirth script, and shares a Westworld update.
+---------
+
+# HBO's 'The Last of Us' Season 3 Has Officially Been Delayed
+
+TV News, The Last of Us, The Last Of Us Part II Remastered, HBO Max
+
+Thu, 11 Jun 2026 22:47:15 GMT
+
+https://collider.com/hbo-the-last-of-us-season-3-filming-delay-cast-peter-sarsgaard/
+
+The third and reportedly final season of The Last of Us Season 3 has been hit with a brief delay as Peter Sarsgaard joins the cast.
+---------
+
+# Win Free Tickets to Our Early 'Citizen Vigilante' Screening and Q&A With Armie Hammer
+
+Exclusives, Screening, Citizen Vigilante, Armie Hammer, Uwe Boll
+
+Thu, 11 Jun 2026 22:38:11 GMT
+
+https://collider.com/citizen-vigilante-screening-armie-hammer-q-and-a/
+
+Details on how to enter for your chance to win free tickets to our early screening of Citizen Vigilante and Q&amp;A with Armie Hammer.
+---------
+
+# Hugh Jackman's R-Rated Fantasy Remake Is Dividing Critics
+
+Movie News, The Death of Robin Hood, Hugh Jackman, Jodie Comer, Fantasy
+
+Thu, 11 Jun 2026 22:26:25 GMT
+
+https://collider.com/hugh-jackman-the-death-of-robin-hood-rotten-tomatoes-score-is-it-good/
+
+A24 and Hugh Jackman’s take on the legendary outlaw Robin Hood has debuted on Rotten Tomatoes. Here’s what critics are saying.
+---------
+
+# ‘Star Trek: Strange New Worlds’ Star Addresses Possible Kirk and Spock Spin-Off [Exclusive]
+
+TV News, Paul Wesley, Star Trek: Strange New Worlds, Star Trek, Paramount Plus
+
+Thu, 11 Jun 2026 22:15:13 GMT
+
+https://collider.com/star-trek-strange-new-worlds-spin-off-update-paul-wesley/
+
+Star Trek: Strange New Worlds actor Paul Wesley shares his thoughts on a potential spin-off, expressing interest in a new series with his co-stars.
+---------
+
+# Noah Centineo Compares First-Time Director Gabriel Basso to Denis Villeneuve for New Thriller 'Iconoclast'
+
+Movie, Gabriel Basso, Noah Centineo
+
+Thu, 11 Jun 2026 22:14:54 GMT
+
+https://collider.com/gabriel-basso-iconoclast-noah-centineo-rain-spencer/
+
+The Night Agent icon Gabriel Basso breaks down his directorial debut along with Noah Centineo and Rain Spencer at the Tribeca Film Festival.
+---------
+
+# Glen Powell's 'Hit Man' Is Officially Getting a Netflix Sequel
+
+TV News, Hit Man, Glen Powell, Netflix, Richard Linklater
+
+Thu, 11 Jun 2026 22:13:43 GMT
+
+https://collider.com/netflix-hit-man-series-glen-powell-producing/
+
+Glen Powell's hit Netflix crime movie Hit Man is getting the TV treatment at the streaming giant. Read on for more details.
+---------
+
+# 10 Thrillers Without a Single Flaw
+
+Movie, Thriller, No Country for Old Men, Chinatown, Memento
+
+Thu, 11 Jun 2026 22:08:14 GMT
+
+https://collider.com/thriller-movies-without-flaws/
+
+From Chinatown to Mulholland Drive, these masterful movies have virtually no flaws and have come to embody everything that a great thriller should be.
+---------
+
+# Alan Ritchson's Action Epic Breaks Netflix Streaming Record
+
+Movie News, War Machine, Netflix, Hot on Streaming, Action, Sci-Fi
+
+Thu, 11 Jun 2026 23:00:19 GMT
+
+https://movieweb.com/war-machine-alan-ritchson-action-streaming-netflix-all-time-most-watched/
+
+Netflix and Alan Ritchson's sci-fi action blockbuster 'War Machine' is an all-time streaming success, beating The Russo Brothers.
+---------
+
+# Netflix's New Taylor Sheridan Western Hit Breaks Major Streaming Milestone
+
+TV News, Lawmen: Bass Reeves, Netflix, Hot on Streaming, Taylor Sheridan
+
+Thu, 11 Jun 2026 22:00:18 GMT
+
+https://movieweb.com/taylor-sheridan-lawman-bass-reeves-streaming-netflix-viewership-milestone/
+
+Taylor Sheridan's action western 'Lawman: Bass Reeves' is a major streaming success on Netflix.
+---------
+
+# 'Supergirl' Writer Confirms Status of DCU's 'Wonder Woman' Reboot
+
+Movie News, Wonder Woman (DCU), Wonder Woman, DCU
+
+Thu, 11 Jun 2026 21:42:07 GMT
+
+https://movieweb.com/wonder-woman-dcu-reboot-script-status/
+
+'Supergirl' writer Ana Nogueira has confirmed the status of the DCU's 'Wonder Woman' movie, teasing a unique approach to the iconic superhero.
+---------
+
+# Fate of 'Widow's Bay' Officially Confirmed by Apple TV
+
+TV News, Widow's Bay, Apple TV
+
+Thu, 11 Jun 2026 21:35:23 GMT
+
+https://movieweb.com/widows-bay-season-2-confirmed-apple-tv/
+
+The streamer confirmed that another season of the mystery series was in the works.
+---------
+
 # DC's Next Shared Universe Is Closer Than Ever Ahead Of Superman's 2026 Return
 
 Streaming TV, Masked Recs
