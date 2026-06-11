@@ -1,3 +1,443 @@
+# It’s Official, Harry Potter Season 1 Will Break A Huge Franchise Record
+
+TV, Harry Potter
+
+Thu, 11 Jun 2026 18:30:20 GMT
+
+https://screenrant.com/harry-potter-hbo-season-1-longest-book-adaptation/
+
+Harry Potter is coming to HBO in December 2026, when it will break a longstanding franchise record almost immediately with its first season.
+---------
+
+# DC Officially Confirms Aquaman's Design For Batman's New Appearance
+
+Superheroes, Masked Recs
+
+Thu, 11 Jun 2026 18:29:12 GMT
+
+https://screenrant.com/batwheels-hbo-max-batman-dc-aquaman-reveal/
+
+Aquaman officially appears in Batman's new release, and the DC hero does so with an exciting design that looks different from Jason Momoa's.
+---------
+
+# Marvel Unveils Miles Morales’ Greatest Redesign Of All Time, Bar None
+
+Marvel Comics, Miles Morales
+
+Thu, 11 Jun 2026 18:17:31 GMT
+
+https://screenrant.com/marvel-mangaverse-miles-morales-spider-man-laura-kinney/
+
+Marvel is giving Miles Morales' Spider-Man two new costumes for his next big appearance, solidifying his importance in this special anniversary event.
+---------
+
+# Hugh Jackman's New R-Rated Robin Hood Movie Gets First Reactions
+
+Movies, The Death of Robin Hood
+
+Thu, 11 Jun 2026 18:08:55 GMT
+
+https://screenrant.com/hugh-jackman-the-death-of-robin-hood-first-reactions/
+
+Hugh Jackman's new R-rated Death of Robin Hood movie from A24 receives its first reactions ahead of its theatrical release date on June 19.
+---------
+
+# Steam Officially Makes 2 Games Free To Keep Forever Until June 15
+
+Gaming, Steam, Triple-A Games
+
+Thu, 11 Jun 2026 18:01:15 GMT
+
+https://screenrant.com/steam-2-free-games-june-2026-limited-time/
+
+If you act fast, you can pick up two free games on Steam, but you'll need to redeem them before June 15, or you'll miss out on the deal.
+---------
+
+# Sydney Sweeney's Housemaid's Secret Cast Confirms New Husband Character & Another Returning Star
+
+Movies, The Housemaid's Secret
+
+Thu, 11 Jun 2026 18:00:36 GMT
+
+https://screenrant.com/the-housemaids-secret-cast-paul-anthony-kelly-michele-morrone/
+
+After the success of The Housemaid, Sydney Sweeney is returning for the sequel, with Lionsgate announcing new cast members, including a familiar face.
+---------
+
+# One Of The Biggest Sci-Fi Franchises In History Is Officially Starting A New Chapter Next Year
+
+Streaming TV, Masked Recs
+
+Thu, 11 Jun 2026 18:00:21 GMT
+
+https://screenrant.com/ghostbusters-franchise-night-shift-netflix-show-new-era/
+
+This iconic 1980s sci-fi franchise is recognizable even to people who have not seen the movies, and the upcoming show is set to attract new viewers.
+---------
+
+# Disclosure Day Could Extend One Of Hollywood's Most Impressive Records
+
+Movies, Disclosure Day
+
+Thu, 11 Jun 2026 17:45:21 GMT
+
+https://screenrant.com/disclosure-day-john-williams-oscar-nominations-record/
+
+Steven Spielberg's Disclosure Day could earn some Academy Award nominations, including one that would extend an impressive Oscars record.
+---------
+
+# Alan Ritchson’s Canceled 3-Part Series Quietly Returns As Streaming Success Ahead Of Revival
+
+TV, Masked Recs, Alan Ritchson
+
+Thu, 11 Jun 2026 17:42:26 GMT
+
+https://screenrant.com/alan-ritchson-blue-mountain-state-pvod-streaming-success-june-2026/
+
+Alan Ritchson's underrated three-season series is getting a boost at just the right time, highlighting a different side of the Reacher star.
+---------
+
+# Black Clover Season 2 Confirms Release Window With Major Update
+
+Anime, Black Clover
+
+Thu, 11 Jun 2026 17:37:26 GMT
+
+https://screenrant.com/black-clover-season-2-release-window/
+
+Black Clover fans have a new date to mark on their calendars, as the anime's second season just got a release window and main staff announcement.
+---------
+
+# Anna Nogueira Reveals What Didn't Make It Into Supergirl
+
+Movies, Supergirl
+
+Thu, 11 Jun 2026 18:30:13 GMT
+
+https://www.cbr.com/video/anna-nogueira-reveals-what-didn-t-make-it-into-supergirl/
+
+Anna Nogueira discusses deleted Supergirl material, Krypto's surprising emotional role, and the challenge of adapting one of DC's most beloved heroes.
+---------
+
+# Only 5 Westerns Are Better Than The Good, The Bad, and The Ugly
+
+Movies, Western
+
+Thu, 11 Jun 2026 18:30:13 GMT
+
+https://www.cbr.com/westerns-better-than-the-good-the-bad-and-the-ugly-list/
+
+Sergio Leone’s The Good, the Bad and the Ugly perfected the gunslinger Western in 1966, and only a handful of movies of the genre are better.
+---------
+
+# 6 Anime Villains Who Were Actually Right the Whole Time
+
+Anime, Fullmetal Alchemist Brotherhood, One Piece, My Hero Academia
+
+Thu, 11 Jun 2026 18:15:15 GMT
+
+https://www.cbr.com/anime-villains-who-were-always-right/
+
+Some of the most infamous villains in anime history were actually right in all of their beliefs.
+---------
+
+# Doctor Who Showrunner Quietly Confirms Sad Truth About the New Doctor
+
+TV, Doctor Who
+
+Thu, 11 Jun 2026 18:06:14 GMT
+
+https://www.cbr.com/doctor-who-russell-t-davies-billie-piper-not-hired-new-doctor/
+
+In the midst of Doctor Who's (hopefully temporary) cancellation, one major revelation has been made that slipped by almost everyone.
+---------
+
+# It's Official, There's a New Harry Potter RPG
+
+Games, Harry Potter
+
+Thu, 11 Jun 2026 18:04:30 GMT
+
+https://www.cbr.com/harry-potter-defenders-of-hogwarts-rpg/
+
+Amid the wait for Hogwarts Legacy 2, a new Harry Potter RPG has been announced.
+---------
+
+# My Hero Academia Officially Gives Bakugo an Explosive New Design
+
+Anime, My Hero Academia, Crunchyroll
+
+Thu, 11 Jun 2026 18:00:15 GMT
+
+https://www.cbr.com/my-hero-academia-bakugo-kotobukiya-figure/
+
+My Hero Academia fans just got a glimpse at the next explosive Bakugo design, and it will absolutely be a must-have for collectors.
+---------
+
+# 44 Years Ago, DC's Superman Crossed Over With He-Man and the Masters of the Universe
+
+Comics, Superman, Masters of the Universe, DC Comics
+
+Thu, 11 Jun 2026 18:00:15 GMT
+
+https://www.cbr.com/superman-masters-of-the-universe-crossover-remembered/
+
+Superman has decades of crossovers behind him, but few were as entertaining as his encounter with He-Man and the Masters of the Universe.
+---------
+
+# 7-Season Netflix Series Makes Historic Move to Hulu for New Seasons
+
+TV, Hulu, Netflix, The Circle
+
+Thu, 11 Jun 2026 17:57:53 GMT
+
+https://www.cbr.com/netflix-the-circle-hulu-move-season-8/
+
+Hulu just scooped up a long-running Netflix series.
+---------
+
+# Final Fantasy 7 Remake Trilogy Ending Officially Teased (Exclusive)
+
+Games, Final Fantasy VII
+
+Thu, 11 Jun 2026 17:38:13 GMT
+
+https://www.cbr.com/ff7-revelation-ending-official-teaser-exclusive/
+
+The director of Final Fantasy VII Revelation exclusively told CBR his intention for the ending of the third game.
+---------
+
+# Jack Kirby Fan Shares How the Marvel Creator Changed New York History and Inspired His Dream Project
+
+CBR Exclusives, Marvel
+
+Thu, 11 Jun 2026 17:30:12 GMT
+
+https://www.cbr.com/roy-schwartz-jack-kirby-way-explained/
+
+One comic book fan's insatiable desire to recognize Jack Kirby's impact on pop culture changed New York City history forever.
+---------
+
+# Prime Video's Rom-Com Version of the Star Wars Sequel Trilogy Releases This Fall
+
+Movie News, The Love Hypothesis, Prime Video, Daisy Ridley, Adam Driver
+
+Thu, 11 Jun 2026 18:30:38 GMT
+
+https://collider.com/prime-video-the-love-hypothesis-streaming-release-date-september-23-2026/
+
+The Love Hypothesis, Prime Video's upcoming rom-com adaptation starring Lili Reinhart and Tom Bateman, finally has a release date.
+---------
+
+# A Knight of the Seven Kingdoms Faced a Brutal Game of Thrones Problem | Collider BTS
+
+TV, A Knight Of The Seven Kingdoms
+
+Thu, 11 Jun 2026 18:15:15 GMT
+
+https://collider.com/video/a-knight-of-the-seven-kingdoms-faced-a-brutal-game-of-thrones-problem-collider-bts/
+
+A Knight of the Seven Kingdoms tackled a brutal Game of Thrones production challenge, revealing behind-the-scenes Collider BTS secrets from HBO’s next Westeros prequel.
+---------
+
+# 9 Years Later, Netflix’s Grittiest Crime Series Is a Massive Hit on Disney+
+
+TV News, The Punisher, Jon Bernthal, The Punisher: One Last Kill, Netflix
+
+Thu, 11 Jun 2026 18:00:15 GMT
+
+https://collider.com/jon-bernthal-the-punisher-netflix-series-streaming-success-disney-plus-june-2026/
+
+Jon Bernthal's original Punisher show, which first aired on Netflix, has stormed onto Disney+ streaming charts following One Last Kill.
+---------
+
+# 'Shrinking' Time Jump Officially Confirmed Ahead of Season 4 [Exclusive]
+
+TV News, Shrinking, Apple TV, Michael Urie, Lukita Maxwell
+
+Thu, 11 Jun 2026 18:00:15 GMT
+
+https://collider.com/shrinking-season-4-time-jump-confirmed-apple-tv/
+
+As Season 4 kicks off production, the cast of Apple TV's Shrinking has confirmed a major time jump for the upcoming chapter.
+---------
+
+# The Beatles' 1965 Hit Song Was John Lennon's Most Dangerous and Vulnerable Confession
+
+Music Features, The Beatles, John Lennon, Rock, Music
+
+Thu, 11 Jun 2026 17:54:53 GMT
+
+https://collider.com/the-beatles-1965-hit-song-help-john-lennon/
+
+Dive into the emotional depths of John Lennon's song, a vulnerable confession of his struggles with fame and depression, despite its upbeat melody.
+---------
+
+# ‘Michael’ Moonwalks One Step Closer to the $1 Billion Milestone at the Box Office
+
+Movie News, Michael, Box Office, Biopic, Musical
+
+Thu, 11 Jun 2026 17:50:13 GMT
+
+https://collider.com/michael-jackson-biopic-global-box-office-milestone-900-million/
+
+After becoming the highest-grossing music biopic ever, Michael just cleared another colossal streaming milestone.
+---------
+
+# It’s Star Wars vs. Star Trek in the Box Office’s Latest Sci-Fi Battle
+
+Movie News, The Mandalorian and Grogu, Star Trek Beyond, Box Office, Sci-Fi
+
+Thu, 11 Jun 2026 17:40:13 GMT
+
+https://collider.com/new-star-wars-movie-the-mandalorian-and-grogu-overtakes-star-trek-beyond-domestic-box-office-158-million/
+
+The Mandalorian and Grogu has overtaken the lifetime domestic box office haul of Star Trek Beyond. Find out more here.
+---------
+
+# ‘The Terror: Devil in Silver’ Showrunners Address Pepper’s Fate After That Shocking Final Scene
+
+Interviews, The Terror, Dan Stevens, Karyn Kusama, Horror
+
+Thu, 11 Jun 2026 17:37:41 GMT
+
+https://collider.com/the-terror-devil-in-silver-finale-pepper-fate-showrunners-chris-cantwell-victor-lavalle/
+
+Co-Showrunners Chris Cantwell and Victor LaValle discuss The Terror: Devil in Silver, the meaning behind that shocking final scene, and Pepper's fate.
+---------
+
+# Sydney Sweeney's R-Rated Thriller Officially Casts Paul Anthony Kelly
+
+Movie News, The Housemaid's Secret, Sydney Sweeney, Kirsten Dunst, Paul Feig
+
+Thu, 11 Jun 2026 17:21:55 GMT
+
+https://collider.com/sydney-sweeney-the-housemaid-2-sequel-cast-paul-anthony-kelly/
+
+Sydney Sweeney's The Housemaid sequel has officially added a major star in the breakout star of Ryan Murphy's Love Story.
+---------
+
+# 8 Greatest Psychological Thrillers of the Last 10 Years, Ranked
+
+Movie, Psychological Thriller, Get Out, Split, Nocturnal Animals
+
+Thu, 11 Jun 2026 17:18:14 GMT
+
+https://collider.com/best-psychological-thrillers-last-10-years-ranked/
+
+Nocturnal Animals, Get Out, Burning, Hush, and more make up our list of the best psychological thrillers of the last 10 years.
+---------
+
+# One of 2026's Biggest Movies Dominates Streaming After $890M Box Office Success
+
+Movie News, Michael, Hot on Streaming
+
+Thu, 11 Jun 2026 18:30:19 GMT
+
+https://movieweb.com/michael-streaming-hit-june-2026/
+
+In just three days, the controversial drama has conquered streaming and is now #1 on major platforms.
+---------
+
+# Forget James Bond, 'Slow Horses' Returns To Apple TV in 3 Months
+
+TV News, Slow Horses, Apple TV, Gary Oldman
+
+Thu, 11 Jun 2026 18:19:26 GMT
+
+https://movieweb.com/slow-horses-season-6-apple-tv-release-date/
+
+Apple TV+ drops first-look photos of 'Slow Horses' band of MI5 rejects ahead of the show's September premiere for Season 6.
+---------
+
+# 'Obsession's Inspiration Reveals Unspoken Rules About the One Wish Willow
+
+Features, Obsession, The Simpsons, Horror, Comedy, Curry Barker
+
+Thu, 11 Jun 2026 18:00:19 GMT
+
+https://movieweb.com/obsession-the-simpsons-wish-inspiration/
+
+At only 20 years old, Curry Barker has changed horror movies forever with 'Obsession,' and one key detail is weirdly inspired by 'The Simpsons'.
+---------
+
+# Best Robert De Niro Gangster Movies, Ranked
+
+Movie Lists, Robert De Niro
+
+Thu, 11 Jun 2026 18:00:19 GMT
+
+https://movieweb.com/robert-de-niro-gangster-movies/
+
+The gangster genre thrives on tension, code, paranoia, and betrayal, and Robert De Niro brings it all to the table.
+---------
+
+# The Biggest Superhero Movie of All Time Loses Box Office Crown to 2026's $750K Breakout
+
+Movie News, Avengers: Endgame, Obsession, Box Office Milestones
+
+Thu, 11 Jun 2026 17:00:19 GMT
+
+https://movieweb.com/avengers-endgame-obsession-box-office/
+
+The latest in the box office wars is as bizarre as it is impressive.
+---------
+
+# A24's Upcoming Video Game Adaptation Will Make 'Fallout' Feel Small
+
+Features, Death Stranding, A24, Fallout
+
+Thu, 11 Jun 2026 17:00:19 GMT
+
+https://movieweb.com/death-stranding-a24-movie/
+
+A24 is making an ambitious 'Death Stranding' movie, which will follow the 'Fallout' approach of being canon to the games. Read on for more.
+---------
+
+# Disney's First Trailer for 'Gatto' Changes Pixar Forever
+
+Movie News, Gatto, Disney, Pixar
+
+Thu, 11 Jun 2026 16:46:31 GMT
+
+https://movieweb.com/gatto-first-trailer-disney-pixar/
+
+Disney and Pixar released the first trailer for 'Gatto,' changing the game forever for the studios' partnership.
+---------
+
+# Original 'Peaky Blinders' Actors Officially Set to Return for Netflix Sequel
+
+TV News, Peaky Blinders, Peaky Blinders: The Immortal Man, Netflix, Crime
+
+Thu, 11 Jun 2026 16:34:45 GMT
+
+https://movieweb.com/netflix-peaky-blinders-original-cast-return/
+
+It has been confirmed that original 'Peaky Blinders' actors Ned Dennehy and Packy Lee will return to play Charlie Strong and Johnny Dogs, respectively
+---------
+
+# Taylor Sheridan's Hit Action Thriller 'Lioness' Returns in First Season 3 Trailer
+
+TV News, Lioness, Taylor Sheridan
+
+Thu, 11 Jun 2026 16:26:44 GMT
+
+https://movieweb.com/lioness-season-3-teaser-trailer/
+
+Taylor Sheridan's star-studded streaming series featuring Zoe Saldaña and Nicole Kidman returns to Paramount+ this August.
+---------
+
+# Taylor Sheridan Meets Supernatural Thriller in Netflix’s New 100% Rated Western
+
+TV News, Dark Winds, Netflix, Western, Thriller
+
+Thu, 11 Jun 2026 16:00:19 GMT
+
+https://movieweb.com/netflix-dark-winds-season-4-stream-release/
+
+The fourth season of 'Dark Winds' is now all set to land on the streamer next month.
+---------
+
 # Only Murders In The Building Season 6 Officially Casts Major Sherlock Alum For London Murder Mystery
 
 TV, Only Murders in the Building
