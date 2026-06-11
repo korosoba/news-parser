@@ -1,3 +1,410 @@
+# Only Murders In The Building Season 6 Officially Casts Major Sherlock Alum For London Murder Mystery
+
+TV, Only Murders in the Building
+
+Thu, 11 Jun 2026 15:32:14 GMT
+
+https://screenrant.com/only-murders-in-the-building-season-6-martin-freeman-casting/
+
+Sherlock alum joins the star-studded cast of Only Murders in the Building Season 6, set in London, alongside Geri Halliwell-Horner and more.
+---------
+
+# Fallout: New Vegas Remastered Accidentally Confirmed Early
+
+Gaming, Fallout: New Vegas, Triple-A Games
+
+Thu, 11 Jun 2026 15:30:41 GMT
+
+https://screenrant.com/fallout-new-vegas-remaster-toy-leaks/
+
+In the most unlikely of places, we now have further confirmation that Fallout: New Vegas is on the way from Bethesda in the future.
+---------
+
+# The Lincoln Lawyer & Bosch's Crossover Fate Is Officially What Fans Were Expecting All Along
+
+Streaming TV, Masked Recs
+
+Thu, 11 Jun 2026 15:30:21 GMT
+
+https://screenrant.com/the-lincoln-lawyer-bosch-crossover-chances-fans-expectations/
+
+The Lincoln Lawyer and Bosch may share a literary universe, but a crossover between the Netflix and Prime Video shows remains far out of reach.
+---------
+
+# 10 Netflix Movies You Didn't Realize Were Huge Hits
+
+Movies, Netflix, Explainer
+
+Thu, 11 Jun 2026 15:30:21 GMT
+
+https://screenrant.com/netflix-movies-bigger-hits-more-viewers-than-realized/
+
+Netflix's most-watched movies ever include the likes of KPop Demon Hunters and Bird Box, yet these films scored more viewers than you realized.
+---------
+
+# Netflix Officially Revives Beloved 9-Season Western Series With New Trailer For Little House On The Prairie
+
+TV, Little House on the Prairie
+
+Thu, 11 Jun 2026 15:26:18 GMT
+
+https://screenrant.com/netflix-little-house-on-the-prairie-trailer/
+
+Over 40 years has passed since Little House on the Prairie ended its nine-season run, and now Netflix is teasing its reboot with a brand-new trailer.
+---------
+
+# Xbox Game Pass Is Officially Changing Again
+
+Gaming, Xbox Game Pass
+
+Thu, 11 Jun 2026 15:21:26 GMT
+
+https://screenrant.com/xbox-game-pass-new-options-confirmed/
+
+Xbox will soon expand Game Pass with new tiers, bundled perks, and more flexible subscription options.
+---------
+
+# Prime Video's The Girlfriend Is Officially Getting A Sequel Series
+
+TV, The Girlfriend
+
+Thu, 11 Jun 2026 15:20:51 GMT
+
+https://screenrant.com/the-girlfriend-sequel-the-boyfriend-prime-video-development/
+
+Prime Video's buzzy and tawdry thriller, which made waves in late 2025, will be getting a sequel that takes the story in a different direction.
+---------
+
+# 13 Best Robot Characters In TV History
+
+Classic TV
+
+Thu, 11 Jun 2026 15:15:21 GMT
+
+https://screenrant.com/best-robot-characters-in-tv/
+
+Some of the most iconic characters on TV have been robots, ranging from the benign and friendly to terrifying villains, with some falling in between.
+---------
+
+# Forget Nurse Chapel & Uhura, Star Trek Revealed Spock's True Love 58 Years Ago
+
+Classic TV, Star Trek: The Original Series
+
+Thu, 11 Jun 2026 15:11:21 GMT
+
+https://screenrant.com/star-trek-spock-love-interest-romulan-commander-not-uhura-chapel/
+
+Despite his cold and logical exterior, Spock has had a few love interests throughout Star Trek history. One character from 58 years ago stands out.
+---------
+
+# Steven Spielberg's Replacement For A Movie 15 Years In The Making Is The Perfect Choice
+
+Movies, Masked Recs
+
+Thu, 11 Jun 2026 15:01:21 GMT
+
+https://screenrant.com/adventures-of-tintin-steven-spielberg-replacement-peter-jackson/
+
+One long-forgotten Steven Spielberg blockbuster is officially getting a sequel, but it will be directed by the Lord of the Rings' Peter Jackson.
+---------
+
+# 10 Near-Perfect Minato Moments That Made Fans Wish for a Naruto Prequel
+
+Anime, Naruto, Naruto: Shippuden
+
+Thu, 11 Jun 2026 15:15:14 GMT
+
+https://www.cbr.com/minato-made-fans-want-naruto-prequel/
+
+Every rescue, duel and wartime decision quietly builds a coherent portrait of Minato—a leader who balances overwhelming power with emotional clarity.
+---------
+
+# Taylor Sheridan's Hit Spy Series Finally Returns With First Teaser Ahead of Season 3 Debut
+
+TV, Lioness
+
+Thu, 11 Jun 2026 15:00:15 GMT
+
+https://www.cbr.com/taylor-sheridan-lioness-season-3-teaser/
+
+After a two-year wait, the show is more intense than ever.
+---------
+
+# 8 Times Buggy Failed Upward Perfectly in One Piece
+
+Anime, One Piece, Shonen, shonen anime
+
+Thu, 11 Jun 2026 15:00:15 GMT
+
+https://www.cbr.com/every-time-buggy-failed-upward-one-piece/
+
+Buggy the Clown has "accomplished" as much as Luffy -- without any of the actual feats
+---------
+
+# Only 3 Superhero Trilogies Are Better Than Sam Raimi's Spider-Man
+
+Movies, Spider-Man
+
+Thu, 11 Jun 2026 14:30:14 GMT
+
+https://www.cbr.com/superhero-trilogy-better-than-sam-raimi-spider-man-list/
+
+Sam Raimi's Spider-Man trilogy is iconic, but there are other trilogies that can be considered even better.
+---------
+
+# 5 Agatha Christie Books That Are Better Than The ABC Murders, Ranked
+
+TV, The ABC Murders, Mystery, And Then There Were None
+
+Thu, 11 Jun 2026 14:30:14 GMT
+
+https://www.cbr.com/agatha-christie-books-better-than-the-abc-murders-list/
+
+Agatha Christie has written many outstanding novels, including The ABC Murders, but some do mysteries even better.
+---------
+
+# Doctor Who Gets More Bad News After Special Cancellation & Major Creative Shakeup
+
+TV, Doctor Who
+
+Thu, 11 Jun 2026 14:23:26 GMT
+
+https://www.cbr.com/doctor-who-delayed-2028-canceled-christmas-special/
+
+Doctor Who fans just got exactly the news they were worried about, and and it could mean losing their favorite series for years to come.
+---------
+
+# 5 Anime Heroes Strong Enough to Stop Sung Jinwoo
+
+Anime, Solo Leveling, Dragon Ball
+
+Thu, 11 Jun 2026 14:15:14 GMT
+
+https://www.cbr.com/anime-heroes-stronger-than-sung-jinwoo-solo-leveling/
+
+Protagonists like Saitama and Sailor Moon possess the power and abilities needed to stand against one of anime’s most dominant leads.
+---------
+
+# Slow Horses Officially Returns With New Episodes in 3 Months
+
+TV, Slow Horses
+
+Thu, 11 Jun 2026 14:13:29 GMT
+
+https://www.cbr.com/slow-horses-season-6-release-date-apple-tv/
+
+The best spy show on TV is almost back.
+---------
+
+# Avengers: Armageddon Begins a Dark End to a Major Marvel Era
+
+Comics, Avengers
+
+Thu, 11 Jun 2026 14:02:46 GMT
+
+https://www.cbr.com/avengers-armageddon-1-review-dark-end-major-marvel-era/
+
+In a CBR review of Avengers: Armageddon #1, see how the Marvel Universe is inching towards a particularly dangerous end of an era
+---------
+
+# Star Trek's Red Shirts Return in Haunting New Series Reveal
+
+Comics, Star Trek
+
+Thu, 11 Jun 2026 14:00:15 GMT
+
+https://www.cbr.com/star-trek-red-shirts-ghost-of-the-21st-century-1-art/
+
+A horror comic like no one has seen before continues with Star Trek: Red Shirts - Ghost of the 21st Century.
+---------
+
+# 10 Largest Dragons in the Game of Thrones Franchise
+
+TV, Game Of Thrones, House of the Dragon, George R.R. Martin, Fantasy
+
+Thu, 11 Jun 2026 15:36:14 GMT
+
+https://collider.com/game-of-thrones-largest-dragons/
+
+House Targaryen and their dominance is defined by dragons, and we highlight the largest of these creatures across the Game of Thrones franchise.
+---------
+
+# One of 2026’s Highest-Rated Crime Thrillers Gets an Official New Release [Exclusive]
+
+Movie News, Tuner, Leo Woodall, Dustin Hoffman, Score
+
+Thu, 11 Jun 2026 15:30:15 GMT
+
+https://collider.com/highest-rated-crime-thriller-tuner-score-preview-will-bates/
+
+Enjoy a preview of the Tuner soundtrack, featuring the track Breaking Codes from composer Will Bates, ahead of its June 12 release by Decca Records.
+---------
+
+# A Legendary Dark Fantasy Manga Officially Returns Tomorrow
+
+TV News, Berserk, Manga, Anime, Fantasy
+
+Thu, 11 Jun 2026 15:15:14 GMT
+
+https://collider.com/legendary-dark-fantasy-manga-berserk-new-chapter-release-date-june-12-2026/
+
+After a nine-month hiatus, the long-running dark fantasy manga Berserk is set to return with Chapter 384 on June 12, 2026.
+---------
+
+# Taylor Sheridan’s Best Action Series Returns With an Explosive New Season Teaser
+
+TV News, Lioness, Taylor Sheridan, Zoe Saldana, Nicole Kidman
+
+Thu, 11 Jun 2026 15:00:15 GMT
+
+https://collider.com/lioness-season-3-teaser-release-date-paramount-plus/
+
+Paramount+ has released the first teaser for Taylor Sheridan's most action-packed series. Watch the trailer for Lioness Season 3 here!
+---------
+
+# George R.R. Martin's 'Game of Thrones' Returns Next Month With Stunning New Release [Exclusive]
+
+Exclusives, George R.R. Martin, Game Of Thrones, House of the Dragon, A Song of Ice and Fire
+
+Thu, 11 Jun 2026 15:00:15 GMT
+
+https://collider.com/game-of-thrones-30th-anniversary-limited-edition-folio-society/
+
+The Folio Society is releasing a signed 30th-anniversary edition of A Game of Thrones, with only 1,000 copies available. See it here first.
+---------
+
+# Netflix’s ‘Peaky Blinders’ Reboot Officially Expands With a ‘Game of Thrones’ Legend
+
+TV News, Peaky Blinders, Netflix, Game Of Thrones, Steven Knight
+
+Thu, 11 Jun 2026 14:40:27 GMT
+
+https://collider.com/netflix-peaky-blinders-sequel-series-cast-conleth-hill/
+
+The Peaky Blinders sequel series is officially expanding on Netflix as the Jamie Bell and Charlie Heaton-led series adds a Game of Thrones star.
+---------
+
+# 'Adventure Time' Gets Spooky in First Look at the Beloved Cartoon's First-Ever Halloween Special [Exclusive]
+
+TV News, Adventure Time
+
+Thu, 11 Jun 2026 14:00:16 GMT
+
+https://collider.com/adventure-time-those-who-fight-monsters-comic-preview-first-look-images/
+
+The official covers for the first-ever Adventure Time: Halloween special tease a spooky new story filled with danger for Finn and Jake.
+---------
+
+# 'Criminal Minds: Evolution's New Villain Is a Major Game-Changer | Review
+
+TV Reviews, Criminal Minds, CBS, Zach Gilford, Paget Brewster
+
+Thu, 11 Jun 2026 13:00:15 GMT
+
+https://collider.com/criminal-minds-evolution-season-4-episode-4-recap-review/
+
+The BAU is hot on the tails of a new antagonist this season in this gripping episode of Criminal Minds: Evolution Season 4.
+---------
+
+# Rebecca Hall’s ‘The Listeners’ Is a Quietly Unsettling Thriller That Gets Under Your Skin | Review
+
+TV Reviews, The Listeners, Toronto International Film Festival, Rebecca Hall, STARZ
+
+Thu, 11 Jun 2026 13:00:15 GMT
+
+https://collider.com/the-listeners-starz-tv-show-review/
+
+With Janicza Bravo's nuanced direction and Rebecca Hall’s standout performance, The Listeners is a compelling and haunting watch. Read our review.
+---------
+
+# ‘Landman’ Stars Officially Shut Down Taylor Sheridan Crossover Rumors [Exclusive]
+
+TV News, Yellowstone, Landman, Dutton Ranch, Taylor Sheridan
+
+Thu, 11 Jun 2026 13:00:15 GMT
+
+https://collider.com/landman-yellowstone-crossover-not-happening/
+
+Billy Bob Thornton and Ali Larter addressed whether Landman could ever cross over with Yellowstone, and fans may not love the answer.
+---------
+
+# Tim Allen Explains Why 'Home Improvement' Reboot Is Currently "Stuck"
+
+TV News, Home Improvement, Tim Allen
+
+Thu, 11 Jun 2026 15:03:05 GMT
+
+https://movieweb.com/home-improvement-reboot-tim-allen-cast-controversy/
+
+Tim Allen has confirmed that plans for a 'Home Improvement' reboot are "stuck" due to "personality problems" with the actors who played his sons.
+---------
+
+# Netflix Lands New Streaming Hit in 90-Minute "MobLand Meets James Bond" Action Thriller
+
+Movie News, Fast Charlie, Pierce Brosnan, Action, Thriller, Netflix
+
+Thu, 11 Jun 2026 14:30:19 GMT
+
+https://movieweb.com/netflix-fast-charlie-stream-june-2026/
+
+Keep your friends close and your enemies dead.
+---------
+
+# Netflix Unleashes First Look at New "Bourne Meets Rocky" Action Thriller Series
+
+TV News, Netflix, Action, Thriller, Martial Arts
+
+Thu, 11 Jun 2026 13:15:10 GMT
+
+https://movieweb.com/netflix-wrath-action-thriller-first-look/
+
+The MMA action thriller series 'Wrath' is due to hit streaming next month.
+---------
+
+# Brad Pitt Fights Back in First Trailer for 'Beekeeper' Director's New Action Thriller 'Heart of the Beast'
+
+Movie News, Brad Pitt, David Ayer
+
+Thu, 11 Jun 2026 13:09:47 GMT
+
+https://movieweb.com/brad-pitt-heart-of-the-beast-official-trailer/
+
+Brad Pitt gets into the heart of the beast in the first trailer for David Ayer's new survival action thriller.
+---------
+
+# 'Neuromancer' Can Easily Avoid What Killed 'Altered Carbon'
+
+Features, Neuromancer, Altered Carbon
+
+Thu, 11 Jun 2026 13:00:21 GMT
+
+https://movieweb.com/neuromancer-avoid-altered-carbon-mistake/
+
+'Altered Carbon' deserved so much more than two seasons. Hopefully, 'Neuromancer' can last much longer.
+---------
+
+# 'Doctor Who' May Not Return Until 2028, Cancellation Update Reveals
+
+TV News, Doctor Who
+
+Thu, 11 Jun 2026 12:12:16 GMT
+
+https://movieweb.com/doctor-who-return-update-insiders/
+
+A 'Doctor Who' cancellation update points to a 2028 return at the earliest, as ex-showrunner Steven Moffat sends fans a hopeful message.
+---------
+
+# All 11 Times Real Nikki Appears In 'Obsession'
+
+Features, Obsession, Horror
+
+Thu, 11 Jun 2026 12:00:20 GMT
+
+https://movieweb.com/every-time-real-nikki-appears-obsession-2026/
+
+The real Nikki Freeman was replaced by something else when a wish is made in 'Obsession', but that doesn't stop her from trying to break through.
+---------
+
 # The Elder Scrolls 6 Official Gameplay Tease Has Gamers Losing Their Minds
 
 Gaming, The Elder Scrolls 6, The Elder Scrolls
