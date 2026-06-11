@@ -1,3 +1,366 @@
+# DC's Next Shared Universe Is Closer Than Ever Ahead Of Superman's 2026 Return
+
+Streaming TV, Masked Recs
+
+Thu, 11 Jun 2026 21:12:51 GMT
+
+https://screenrant.com/my-adventures-with-superman-season-3-dc-shared-universe-chances/
+
+Superman will return soon in 2026, and ahead of the Man of Steel's new appearance, DC's next shared universe is already closer than ever.
+---------
+
+# Prime Video's New Movie Based On Star Wars' Rey & Kylo Ren Fan-Fiction Lands Official Release Date & New Images Revealed
+
+Movies, The Love Hypothesis, Star Wars
+
+Thu, 11 Jun 2026 21:00:44 GMT
+
+https://screenrant.com/the-love-hypothesis-release-date-prime-video-confirmed/
+
+The film adaptation of a Star Wars fan-fiction about Rey and Kylo Ren will be released later this year, and two new images have just been revealed.
+---------
+
+# Pokémon's Official Pikachu Redesign Is A Glorious Love-Letter To The Past
+
+Gaming, Pokemon, Nintendo, Nintendo Switch
+
+Thu, 11 Jun 2026 21:00:21 GMT
+
+https://screenrant.com/pokemon-pikachu-redesign-30th-anniversary-chonkachu/
+
+Pikachu's latest design really does honor the adorable Pokémon's legendary and iconic past with a fun touch that fans are sure to enjoy.
+---------
+
+# Why There's No Rivals This Week (June 12) & When New Episodes Release On Disney+
+
+Streaming TV, Rivals
+
+Thu, 11 Jun 2026 21:00:21 GMT
+
+https://screenrant.com/rivals-no-new-episode-june-11-2026-season-2-part-2-release-date/
+
+Rutshire has been hit with a massive tragedy with an unexpected death, but fans will have a long way to go before finding out what's next in Rivals.
+---------
+
+# Forget GTA 6, GTA 5 Is Now Free For Millions
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto 5, Triple-A Games
+
+Thu, 11 Jun 2026 20:47:48 GMT
+
+https://screenrant.com/gta-6-free-on-gta-plus-subscription/
+
+Grand Theft Auto 6 may be the GTA title on everyone's minds, and for good reason, but there's never been a better time to revisit Grand Theft Auto 5.
+---------
+
+# 10 Best Free Xbox Games You Don’t Need Game Pass For
+
+Gaming, Xbox Game Pass
+
+Thu, 11 Jun 2026 20:30:25 GMT
+
+https://screenrant.com/xbox-10-free-games-no-game-pass/
+
+Xbox is a wellspring of terrific games, and some of its best free titles do not require that players be subscribed to any tier of Game Pass.
+---------
+
+# Prime Video's The Boys Franchise Is Officially Switching Casts For 2027 Return With New Episodes
+
+Streaming TV, Masked Recs
+
+Thu, 11 Jun 2026 20:30:24 GMT
+
+https://screenrant.com/the-boys-vought-rising-new-cast-prime-video-2027-return/
+
+The Boys season 5 marked the ending of one era of the franchise, but new episodes in 2027 will bring it back with an entirely new cast of characters.
+---------
+
+# 5 Reasons Why Ferris Bueller's Day Off Is John Hughes' Best Film
+
+Movies, Ferris Bueller's Day Off
+
+Thu, 11 Jun 2026 20:30:24 GMT
+
+https://screenrant.com/ferris-buellers-day-off-john-hughes-best-movie/
+
+Ferris Bueller's Day Off is officially turning 40-years-old this year, and there are so many reasons why it's John Hughes' greatest masterpiece.
+---------
+
+# Dark Winds Season 5 Is Officially Bringing Back Important Character After 4 Years
+
+Triple-A, Dark Winds
+
+Thu, 11 Jun 2026 20:24:49 GMT
+
+https://screenrant.com/dark-winds-season-5-geraldine-keams-return/
+
+The fifth season of George R.R. Martin's Dark Winds will see the return of an important character four years after her last appearance.
+---------
+
+# The MCU's Best TV Show Officially Debuted 5 Years Ago
+
+Streaming TV, Loki, Marvel Cinematic Universe
+
+Thu, 11 Jun 2026 20:12:20 GMT
+
+https://screenrant.com/marvel-cinematic-universe-best-show-loki-5-years-later/
+
+Five years ago, one of the Marvel Cinematic Universe's first shows on Disney+ premiered, and it still remains the superhero franchise's best.
+---------
+
+# Stephen King's New Movie Based on 11-Year-Old Story Gets New Update
+
+Movies, Stephen King
+
+Thu, 11 Jun 2026 21:07:20 GMT
+
+https://www.cbr.com/stephen-king-mister-yummy-finds-director/
+
+More Stephen King adaptations are coming.
+---------
+
+# Fan-Favorite Game of Thrones Star Joins Peaky Blinders Universe
+
+TV, Game Of Thrones, Peaky Blinders, Peaky Blinders: The Immortal Man
+
+Thu, 11 Jun 2026 21:03:31 GMT
+
+https://www.cbr.com/top-game-of-thrones-star-joins-peaky-blinders-universe/
+
+A Game of Thrones legend is officially headed to Peaky Blinders.
+---------
+
+# 7 Years Later, Avengers: Endgame Loses Major Box Office Milestone to New Movie With $750k Budget
+
+Movies, Avengers: Endgame
+
+Thu, 11 Jun 2026 21:01:09 GMT
+
+https://www.cbr.com/avengers-endgame-loses-box-office-milestone-obsession/
+
+The MCU's most-revered film gets a major box office milestone defeated by an unexpected contender.
+---------
+
+# The Best Book-To-Movie Adaptations from Every Year of the 1970s
+
+Movies, Jaws, The Godfather
+
+Thu, 11 Jun 2026 21:00:13 GMT
+
+https://www.cbr.com/best-book-to-movie-adaptations-1970s-list/
+
+The New Hollywood Era brought forth a new generation of filmmakers who produced some of the most celebrated book adaptations in cinematic history
+---------
+
+# Prime Video’s 4-Season Fantasy With 100% RT Is Officially a Sleeper Streaming Hit
+
+TV, The Legend of Vox Machina, Fantasy, Prime Video
+
+Thu, 11 Jun 2026 20:57:34 GMT
+
+https://www.cbr.com/legend-of-vox-machina-fantasy-success-prime-video-june-2026/
+
+Fantasy fans should sleep on this hit Prime Video series.
+---------
+
+# 10 Highest-Grossing A24 Movies Ever
+
+Movies, A24, Moonlight, Lady Bird, Hereditary, Talk to Me, Materialists, Civil War, The Drama, Everything Everywhere All at Once, Marty Supreme, Backrooms
+
+Thu, 11 Jun 2026 20:31:48 GMT
+
+https://www.cbr.com/highest-grossing-a24-movies-list/
+
+A24 has quickly become one of the most celebrated and unique film production studios around, having delivered many acclaimed and high-grossing hits.
+---------
+
+# 6 Near-Perfect Hard Sci-Fi Shows Nobody Remembers
+
+TV, Sci-Fi, Odyssey 5, Space: 1999
+
+Thu, 11 Jun 2026 20:31:48 GMT
+
+https://www.cbr.com/best-forgotten-hard-sci-fi-shows-list/
+
+Some of the best hard sci-fi TV shows ever made slipped through the cracks, such as Odyssey 5 and Space: Above and Beyond.
+---------
+
+# 5 Must-Watch Shonen Anime Better Than Demon Slayer
+
+Anime, Demon Slayer: Kimetsu no Yaiba, shonen anime
+
+Thu, 11 Jun 2026 20:15:14 GMT
+
+https://www.cbr.com/must-watch-shonen-anime-better-than-demon-slayer/
+
+Demon Slayer may be popular, but there are other must-watch Shonen anime better than it in every way.
+---------
+
+# Timeless 6-Season Cartoon Network Classic Is the No. 1 Show in the U.S.
+
+TV, The Flintstones, Animation
+
+Thu, 11 Jun 2026 20:01:14 GMT
+
+https://www.cbr.com/timeless-6-season-cartoon-network-classic-is-the-no-1-show-in-the-us/
+
+One of the most beloved and influential cartoons of all time, The Flintstones, is a hit on PVOD more than 60 years later.
+---------
+
+# Vegito Officially Returns in New Dragon Ball Super Series
+
+Anime, Dragon Ball, Dragon Ball Super, Dragon Ball Z
+
+Thu, 11 Jun 2026 20:01:14 GMT
+
+https://www.cbr.com/dragon-ball-vegito-fusion-world-cross-force/
+
+Goku and Vegeta's ultimate fusion finally returns in a brand-new Dragon Ball series.
+---------
+
+# Star Wars' Biggest Sequel Ever Finally Moves Forward With Perfect Update
+
+Movie News, Star Wars, Star Wars: Knights of the Old Republic, Video Game, Lucasfilm
+
+Thu, 11 Jun 2026 21:13:48 GMT
+
+https://collider.com/star-wars-fate-of-the-old-republic-sci-fi-writer-js-dewes/
+
+Star Wars: Fate of the Old Republic has found the perfect sci-fi writer to bring the fan-favorite saga back to life.
+---------
+
+# What the Spider-Man Comics Could Tell Us About 'Brand New Day’s Biggest Twist
+
+Movie Features, Spider-Man: Brand New Day, Spider-Man, Tom Holland, MCU
+
+Thu, 11 Jun 2026 21:09:21 GMT
+
+https://collider.com/spider-man-brand-new-day-mutation-meaning-comics/
+
+Explaining Spider-Man's mutation in Spider-Man: Brand New Day and the comic book storylines that inspired the new movie.
+---------
+
+# 19 Years Later, the Coen Brothers’ Western Masterpiece Remains a Genre Best
+
+Movie Features, No Country for Old Men, The Coen Brothers, Tommy Lee Jones, Josh Brolin
+
+Thu, 11 Jun 2026 20:57:13 GMT
+
+https://collider.com/no-country-for-old-men-coen-brothers-best-western/
+
+The Coen Brothers masterfully adapted No Country for Old Men, Cormac McCarthy's neo-Western, about the indiscriminate cruelty of the modern world.
+---------
+
+# Official 'Baldur's Gate 2' Remake Reportedly Happening
+
+Video Games, Baldur's Gate, Baldur's Gate 3, Video Game
+
+Thu, 11 Jun 2026 20:09:29 GMT
+
+https://collider.com/baldurs-gate-2-remake-wizards-of-the-coast/
+
+Baldur's Gate 2, one of the greatest fantasy sequels of all time, is reportedly getting a remake ahead of a planned fourth chapter.
+---------
+
+# 10 Greatest Action Movie Villains of All Time, Ranked
+
+Movie, Die Hard, Skyfall, The Matrix, Action
+
+Thu, 11 Jun 2026 19:52:14 GMT
+
+https://collider.com/best-action-movie-villains-all-time-ranked/
+
+From The Joker to Hans Gruber, Tony Montana to the T-1000, these iconic villains made action flicks what they are.
+---------
+
+# 10 Greatest Adventure Book Masterpieces of All Time
+
+Movie, Adventure, Treasure Island, Books
+
+Thu, 11 Jun 2026 19:33:14 GMT
+
+https://collider.com/best-adventure-book-masterpieces-all-time-ranked/
+
+From Robinson Crusoe to Fantasy Island, these are the best books that perfectly capture the sense of scale and thrill inherent to the adventure genre.
+---------
+
+# 'The Death of Robin Hood' Review: Hugh Jackman Excels in A24's Action Thriller Reboot
+
+Movie Reviews, The Death of Robin Hood, Hugh Jackman
+
+Thu, 11 Jun 2026 21:00:21 GMT
+
+https://movieweb.com/the-death-of-robin-hood-review/
+
+The new take on the classic story offers some fresh perspectives, but it slows in the second half.
+---------
+
+# 5 Harsh Star Wars Lessons Disney Must Learn From 'The Mandalorian & Grogu'
+
+Movie Lists, The Mandalorian and Grogu, Star Wars
+
+Thu, 11 Jun 2026 21:00:21 GMT
+
+https://movieweb.com/mandalorian-grogu-star-wars-harsh-lessons/
+
+After 'The Mandalorian and Grogu's disappointing box office performance, these are some lessons that could regain audience interest in the franchise.
+---------
+
+# 'The Furious' Review: Brutal Martial Arts Thriller Is Pure Action Gold
+
+Movie Reviews, The Furious
+
+Thu, 11 Jun 2026 20:24:36 GMT
+
+https://movieweb.com/the-furious-review/
+
+'The Furious' features jaw-dropping fight scenes and incredible choreography by director Kenji Tanigaki. A must-see for action fans.
+---------
+
+# New 'Transformers' Movie Announced as Franchise Future Becomes Clearer
+
+Movie News, Transformers, Transformers: Rise of the Beasts
+
+Thu, 11 Jun 2026 19:50:54 GMT
+
+https://movieweb.com/new-transformers-movie-announced-from-paramount-hasbro/
+
+The popular IP from Hasbro and Paramount may still have a future in theaters.
+---------
+
+# Netflix's Long-Awaited 'Little House on the Prairie' Reboot Gets New Trailer
+
+TV News, Little House on the Prairie, Netflix
+
+Thu, 11 Jun 2026 19:35:27 GMT
+
+https://movieweb.com/netflix-little-house-on-the-prairie-official-trailer/
+
+The upcoming Netflix series is set to adapt the timeless novels written by Laura Ingalls Wilder.
+---------
+
+# Sydney Sweeney’s R-Rated Erotic Thriller Sequel Officially Recruits Breakout TV Star
+
+Movie News, The Housemaid's Secret, Sydney Sweeney
+
+Thu, 11 Jun 2026 19:06:14 GMT
+
+https://movieweb.com/sydney-sweeney-housemaid-2-casting-paul-anthony-kelly/
+
+Paul Anthony Kelly from FX's 'Love Story' is the latest to join the sequel.
+---------
+
+# Why a $30M Comedy Destroyed a $200M Blockbuster at the Box Office
+
+Features, Masters of the Universe, Scary Movie
+
+Thu, 11 Jun 2026 19:00:20 GMT
+
+https://movieweb.com/scary-movie-6-vs-masters-universe-box-office/
+
+A mid-budget comedy managed to outgross a big-budget action blockbuster by over $20 million in their opening weekends.
+---------
+
 # It’s Official, Harry Potter Season 1 Will Break A Huge Franchise Record
 
 TV, Harry Potter
