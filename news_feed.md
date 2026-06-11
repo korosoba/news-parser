@@ -1,3 +1,366 @@
+# Reacher’s New Spinoff Officially Switches Genres For The Prime Video Franchise
+
+Streaming TV, Reacher, Neagley
+
+Thu, 11 Jun 2026 02:00:31 GMT
+
+https://screenrant.com/reacher-neagley-spinoff-genre-shift/
+
+Reacher’s upcoming spinoff is incredibly exciting because it will seemingly make a major genre shift for the Prime Video crime thriller franchise.
+---------
+
+# New NCIS Series Officially Moves Forward With Timely Promo After Divisive Announcement
+
+Network TV, NCIS
+
+Thu, 11 Jun 2026 01:45:57 GMT
+
+https://screenrant.com/ncis-new-york-knicks-promo-cbs/
+
+The NCIS franchise is officially expanding, with its upcoming new series rolls out a brilliant marketing scheme after initial lukewarm reception.
+---------
+
+# Prime Video’s 2-Part Crime Thriller Based On Bestselling Books Gets Exciting Filming Update
+
+TV, Scarpetta
+
+Thu, 11 Jun 2026 01:45:15 GMT
+
+https://screenrant.com/scarpetta-season-2-filming-update-jamie-lee-curtis-wrapped/
+
+This Prime Video crime thriller based on bestselling novels debuted in March, and there is already an exciting filming update for season 2.
+---------
+
+# Who Alex Gazarian Is In The Lincoln Lawyer & How He Connects To The Lisa Trammel Case
+
+TV, The Lincoln Lawyer
+
+Thu, 11 Jun 2026 01:15:22 GMT
+
+https://screenrant.com/the-lincoln-lawyer-season-4-alex-gazarian-lisa-trammell-connection-explained/
+
+The Lincoln Lawyer has many people weaving in and out of the plot across four seasons, and one season 4 character has ties back to a past case.
+---------
+
+# Marvel Officially Confirms Punisher’s Unbelievable Target For New Appearance
+
+Marvel Comics, The Punisher
+
+Thu, 11 Jun 2026 01:00:21 GMT
+
+https://screenrant.com/punisher-vs-black-cat/
+
+Marvel's Punisher has his sights set on an unconventional target, but the circumstances are certainly appropriate for Punisher to be upset about.
+---------
+
+# Why I’m Confident James Gunn’s Superman And The New He-Man Would Be Best Buds
+
+Movies, Masters of the Universe, Superman, DC Universe
+
+Thu, 11 Jun 2026 01:00:21 GMT
+
+https://screenrant.com/james-gunn-superman-masters-of-the-universe-parallels-friends/
+
+After watching 2026's new Masters of the Universe movie, I do not doubt that the new He-Man and the DCU's new Superman would be great friends.
+---------
+
+# Game Of Thrones Meets The Muppets In Netflix's Overlooked 10-Part Fantasy Series
+
+Classic TV, Masked Recs
+
+Thu, 11 Jun 2026 01:00:21 GMT
+
+https://screenrant.com/dark-crystal-age-of-resistance-netflix-game-of-thrones-muppets/
+
+Two of television's all-time biggest influences, Game of Thrones and The Muppets, meet in Netflix's overlooked fantasy series with 10 episodes.
+---------
+
+# Pokémon Winds & Waves Perfect Starter Evolutions Praised By Gamers
+
+Gaming, Pokemon Winds and Waves, Triple-A Games
+
+Thu, 11 Jun 2026 01:00:21 GMT
+
+https://screenrant.com/pokemon-winds-waves-starter-evolutions-gamer-hopes/
+
+We're possibly a year away from Pokémon Winds & Waves arriving, but that hasn't stopped fans from commenting on the starter Pokémon.
+---------
+
+# Widow’s Bay Episode 9’s Ending Theory Reveals “The Haunt” Is Far From Over
+
+Streaming TV, Widow's Bay
+
+Thu, 11 Jun 2026 00:45:22 GMT
+
+https://screenrant.com/widows-bay-episode-9-ruth-theory/
+
+Widow’s Bay’s episode 9 already ends on a bleak note, but an intriguing theory surrounding its twist potentially makes the upcoming finale even darker
+---------
+
+# New Street Fighter Movie Received Rewrite After Major Issues
+
+Movies, Street Fighter
+
+Thu, 11 Jun 2026 00:39:59 GMT
+
+https://screenrant.com/street-fighter-movie-rewrite-game-director/
+
+The upcoming Street Fighter film's original script had to be scrapped due to several issues that were addressed by the video game's director.
+---------
+
+# 5 Jedi Stronger Than Yoda, Ranked
+
+Movies, Star Wars
+
+Thu, 11 Jun 2026 02:45:13 GMT
+
+https://www.cbr.com/star-wars-jedi-stronger-than-yoda-list/
+
+Yoda is a powerful Jedi Master, but nothing compared to a few Jedi with their own immense strength.
+---------
+
+# Ocarina of Time on Switch 2 Changes the N64 Game's Storyline
+
+Games, The Legend of Zelda: Ocarina of Time, The Legend of Zelda, Nintendo
+
+Thu, 11 Jun 2026 02:30:13 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-teaser-trailer-story-changes/
+
+The new teaser trailer for Zelda: Ocarina of Time already reveals a major storyline change that could indicate even bigger changes in the final game.
+---------
+
+# 7 2000s Shonen Anime That Are 10/10, No Notes
+
+Anime, Naruto, Fullmetal Alchemist: Brotherhood
+
+Thu, 11 Jun 2026 02:15:13 GMT
+
+https://www.cbr.com/perfect-2000s-shonen-anime/
+
+Not every beloved shonen anime withstands scrutiny, but these shows are near-perfect.
+---------
+
+# 1 Year Later, KPop Demon Hunters Is Officially the Greatest American Anime Ever
+
+Anime, KPop Demon Hunters
+
+Thu, 11 Jun 2026 02:00:23 GMT
+
+https://www.cbr.com/kpop-demon-hunters-official-greatest-american-anime-of-all-time/
+
+One year ago, KPop Demon Hunters hit Netflix and took the world by storm.
+---------
+
+# 5 Forgotten Historical Epics That Are Perfect From Start to Finish
+
+Movies, History, Drama
+
+Thu, 11 Jun 2026 02:00:23 GMT
+
+https://www.cbr.com/best-historical-epics-no-one-remembers-list/
+
+Historical epics are often known for being a bit long and slow, but these underrated movies are actually entertaining from start to finish.
+---------
+
+# David Tennant's MCU Return Just Became Even More Possible 11 Years After Jessica Jones
+
+TV, Daredevil: Born Again, Jessica Jones, Marvel Cinematic Universe
+
+Thu, 11 Jun 2026 02:00:23 GMT
+
+https://www.cbr.com/daredevil-born-again-david-tennant-kilgrave-possible-mcu-return/
+
+Charlie Cox wants this iconic Defenders Saga villain to come back to the MCU and suggests the perfect way for this to happen.
+---------
+
+# Fairy Tail Officially Launches 20th Anniversary With New Designs for Natsu, Lucy and More
+
+Anime, Fairy Tail, bandai
+
+Thu, 11 Jun 2026 02:00:23 GMT
+
+https://www.cbr.com/fairy-tail-20th-anniversary-bandai-ichiban-kuji-reveal/
+
+Two decades after the iconic manga's debut, Fairy Tail celebrates its 20th anniversary with a stunning new collectible release.
+---------
+
+# It's Officially a New Era for the Saw Franchise
+
+Games, Saw, Video Games, Horror
+
+Thu, 11 Jun 2026 01:46:15 GMT
+
+https://www.cbr.com/saw-franchise-new-era/
+
+One of the biggest horror franchises of all time is about to have its entire history rewritten, and the next entry will change everything.
+---------
+
+# Channing Tatum Finally Returning to Jump Street, but 1 Big Question Remains
+
+Movies, 21 Jump Street
+
+Thu, 11 Jun 2026 01:42:53 GMT
+
+https://www.cbr.com/sony-pictures-24-jump-street/
+
+Channing Tatum is revisiting his $533M action comedy franchise more than a decade later, but with an interesting catch.
+---------
+
+# 7 Underrated Shonen Manga Overshadowed by Jujutsu Kaisen
+
+Anime, Hell's Paradise: Jigokuraku, Tokyo Ghoul, Sakamoto Days, Jujutsu Kaisen
+
+Thu, 11 Jun 2026 01:25:12 GMT
+
+https://www.cbr.com/underrated-shonen-manga-overshadowed-by-jujutsu-kaisen/
+
+Jujutsu Kaisen dominated the modern action shonen space, eclipsing these seven underrated titles that deserved so much more attention.
+---------
+
+# Now That It’s Returning for Season 2, HBO Max’s Best Hard Sci-Fi Show Is a Must-Watch
+
+TV Features, Dune: Prophecy, HBO Max, Dune, Sci-Fi
+
+Thu, 11 Jun 2026 02:53:13 GMT
+
+https://collider.com/dune-prophecy-season-2-hbo-max-hard-sci-fi-streaming/
+
+Dune: Prophecy explores the origins of the Bene Gesserit and why it's the perfect series to watch before Season 2 arrives.
+---------
+
+# 'The Acolyte's Manny Jacinto Officially Breaks Silence on The Stranger's Return Under Dave Filoni
+
+TV News, The Acolyte, Manny Jacinto, Dave Filoni, FanX
+
+Thu, 11 Jun 2026 02:00:24 GMT
+
+https://collider.com/the-acolyte-manny-jacinto-qimir-return-explained-under-dave-filoni/
+
+The Acolyte star Manny Jacinto reveals whether he would return as Qimir under the new Lucasfilm president, Dave Filoni.
+---------
+
+# HBO Max’s 12-Part Fantasy Series Is Surging Ahead of the Finale
+
+TV Features, HBO Max, The Legend of Kitchen Soldier, Fantasy, Drama
+
+Thu, 11 Jun 2026 01:47:14 GMT
+
+https://collider.com/hbo-max-fantasy-series-the-legend-of-kitchen-soldier/
+
+The CJ ENM and HBO Max K-drama The Legend Of Kitchen Soldier is rising the streaming ranks all over the world.
+---------
+
+# 10 Greatest Movie Masterpieces That Are Better Than the Book
+
+Movie, Brokeback Mountain, Mean Girls, The Devil Wears Prada, Jaws
+
+Thu, 11 Jun 2026 01:03:13 GMT
+
+https://collider.com/best-movie-masterpieces-better-than-book/
+
+From Mean Girls to Jaws, these movies are far superior to the books they are based on, proving that sometimes, the screen is far better than the page.
+---------
+
+# ‘The Vampire Diaries’ Star Reveals the Best Way To Bring Back Damon and Stefan [Exclusive]
+
+TV News, The Vampire Diaries, Ian Somerhalder, Paul Wesley, FanX
+
+Thu, 11 Jun 2026 01:00:14 GMT
+
+https://collider.com/paul-wesley-vampire-diaries-animated-revival/
+
+Paul Wesley has the perfect idea for how to continue The Vampire Diaries, offering a fresh take on the beloved supernatural fantasy series.
+---------
+
+# 8 Netflix Thriller Shows That Are 10/10 But No One Remembers
+
+TV, Thriller, Netflix, The OA, Bodies
+
+Thu, 11 Jun 2026 00:55:19 GMT
+
+https://collider.com/perfect-netflix-thriller-shows-nobody-remembers/
+
+The Midnight Club, Bodies, Absentia, The OA, and more make up our list of perfect Netflix thriller shows that nobody remembers.
+---------
+
+# Star Wars' Explosive Heist Thriller Is So Good, You Can Rewatch It Multiple Times
+
+Movie Features, Solo: A Star Wars Story, Alden Ehrenreich, Star Wars, Sci-Fi
+
+Thu, 11 Jun 2026 00:17:13 GMT
+
+https://collider.com/star-wars-solo-movie-prequel-alden-ehrenreich-thriller-rewatch/
+
+The Han Solo prequel Solo: A Star Wars Story, starring Alden Ehrenreich, is an underappreciated, thrilling entry in the sci-fi franchise.
+---------
+
+# David Boreanaz Returns to TV in 6 Months in NBC's Reboot of a 52-Year-Old Detective Series
+
+TV News, David Boreanaz, The Rockford Files, NBC, Bones
+
+Thu, 11 Jun 2026 00:00:14 GMT
+
+https://collider.com/david-boreanaz-nbc-detective-reboot-the-rockford-files-2026-confirmed/
+
+David Boreanaz's reboot of The Rockford Files is officially going ahead at NBC. Read on for more details.
+---------
+
+# ‘X-Men ’97’ Star Reveals She Almost Missed Her Marvel Comeback [Exclusive]
+
+TV News, X-Men '97, X-Men: The Animated Series, Marvel Studios, FanX
+
+Thu, 11 Jun 2026 00:00:14 GMT
+
+https://collider.com/x-men-97-storm-actor-alison-sealy-smith-almost-passed-on-show-explained/
+
+X-Men '97 star Alison Sealy-Smith, who plays Storm in the show, explains how she almost missed out on Marvel's highest-rated series.
+---------
+
+# 8 Hard Sci-Fi Series That Will Keep You Hooked From Start To Finish
+
+TV Lists, Sci-Fi
+
+Thu, 11 Jun 2026 02:00:29 GMT
+
+https://movieweb.com/hard-sci-fi-series-hooked-start-finish/
+
+These hard sci-fi TV shows are so perfect and memorable that viewers will want to binge-watch them quickly.
+---------
+
+# 5 Theories For What Took Over Nikki in 'Obsession'
+
+Features, Obsession, Horror
+
+Thu, 11 Jun 2026 01:00:20 GMT
+
+https://movieweb.com/obsession-theories-what-is-freaky-nikki/
+
+The wish at the center of Curry Barker's supernatural horror movie 'Obsession' replaces the seemingly normal Nikki Freeman with something sinister.
+---------
+
+# HBO's 'Task' Adds 'Zero Dark Thirty' Star to Second Season of the Crime Thriller
+
+TV News, Edgar Ramirez, Task
+
+Thu, 11 Jun 2026 00:42:24 GMT
+
+https://movieweb.com/task-season-2-edgar-ramirez/
+
+Edgar Ramirez is the latest star to join the sophomore season of the show.
+---------
+
+# Every Movie Parodied in 'Scary Movie 6'
+
+Movie Lists, Scary Movie, Horror, Comedy
+
+Thu, 11 Jun 2026 00:00:20 GMT
+
+https://movieweb.com/every-movie-parodied-scary-movie-6/
+
+Did you catch every movie and TV show the latest 'Scary Movie' parodies? From 'Sinners' to 'KPop Demon Hunters', nothing is off limits.
+---------
+
 # Tim Allen Officially Confirms Reboot Issues For Home Improvement
 
 TV, Home Improvement, Tim Allen
