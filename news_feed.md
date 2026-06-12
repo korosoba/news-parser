@@ -1,3 +1,410 @@
+# New FromSoftware Game Officially Confirmed
+
+Gaming, FromSoftware, PC, Elden Ring, Dark Souls, Bloodborne, Sekiro: Shadows Die Twice, Demon's Souls
+
+Fri, 12 Jun 2026 16:39:59 GMT
+
+https://screenrant.com/new-fromsoft-project-confirmed-miyazaki-june-2026/
+
+In a completely unexpected announcement from FromSoftware's Hidetaka Miyazaki, a brand-new game has officially been confirmed.
+---------
+
+# 8 Years Ago, The MCU's Boldest Choice Led To Their Best Movie
+
+Movies, Marvel Cinematic Universe, Avengers: Infinity War, Op-Ed
+
+Fri, 12 Jun 2026 16:35:21 GMT
+
+https://screenrant.com/mcu-bold-choice-thanos-protagonist-avengers-infinity-war-best-movie/
+
+Avengers: Infinity War is the peak of the MCU and a major reason why it worked so well was the decision to make Thanos into the protagonist.
+---------
+
+# Prime Video's Legally Blonde Prequel Is Officially Retelling The 2001 Movie's Plot
+
+Streaming TV, Elle, Legally Blonde
+
+Fri, 12 Jun 2026 16:30:21 GMT
+
+https://screenrant.com/elle-tv-show-retelling-legally-blonde-plot/
+
+Years before Harvard, Elle Woods first had to conquer high school in Seattle in 1995 in Elle. But is the prequel series just retelling Legally Blonde?
+---------
+
+# BBC's Hit Detective Series With Near-Perfect Rotten Tomatoes Score Is Officially Returning This Summer
+
+TV, Ludwig
+
+Fri, 12 Jun 2026 16:29:36 GMT
+
+https://screenrant.com/bbc-ludwig-season-2-trailer-release-window/
+
+David Mitchell is back as John Taylor for the second season of the British crime series Ludwig, which now has a release window and teaser trailer.
+---------
+
+# 10 Sci-Fi Movies About First Contact to Watch Before Disclosure Day
+
+Movies, Disclosure Day
+
+Fri, 12 Jun 2026 16:15:21 GMT
+
+https://screenrant.com/sci-fi-movies-first-contact-disclosure-day/
+
+Steven Spielberg's Disclosure Day brings the director back to his sci-fi alien-based movies and here are more first contact movies for film fans.
+---------
+
+# Control Resonant Star & Creative Director Tease The Massive Scope Of The Long-Awaited Sequel
+
+Gaming, Control Resonant, Triple-A Games
+
+Fri, 12 Jun 2026 16:11:52 GMT
+
+https://screenrant.com/control-resonant-interview/
+
+Control Resonant is an action-packed and trippy sequel to 2019's Control, evolving beyond that game in some unexpected (and stunning) ways.
+---------
+
+# It's Officially The End Of An Era For Zack Snyder's DCEU After Restore The Snyderverse Campaign
+
+Movies, Masked Recs
+
+Fri, 12 Jun 2026 16:11:22 GMT
+
+https://screenrant.com/zack-snyder-dceu-end-of-an-era-james-gunn-dc-movies/
+
+The passion of Snyderverse supporters has never been in doubt, but passion alone hasn’t been enough, and the DCU's future proves it.
+---------
+
+# 3 Best Shows To Watch On Netflix This Weekend (June 12-14)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Fri, 12 Jun 2026 16:07:22 GMT
+
+https://screenrant.com/best-netflix-shows-watch-weekend-june-12/
+
+The top 3 shows to watch on Netflix this weekend, June 12–14, 2026, include two of the most popular series on the platform and an upcoming viral hit.
+---------
+
+# Batman: Arkham Knight Officially Returns In 2027
+
+Gaming, Batman: Arkham Knight, LEGO, Batman, Triple-A Games
+
+Fri, 12 Jun 2026 16:00:46 GMT
+
+https://screenrant.com/batman-arkham-knight-lego-set-2027/
+
+It's been over a decade since Batman: Arkham Knight released, but we'll apparently be seeing its iconic Batmobile again in the near future.
+---------
+
+# The Elder Scrolls 6 Official Reveal Has Fans Slamming “Dated” Graphics
+
+Gaming, The Elder Scrolls 6, The Elder Scrolls
+
+Fri, 12 Jun 2026 16:00:21 GMT
+
+https://screenrant.com/elder-scrolls-6-dated-graphics-complaints/
+
+Fans are growing impatient and concerned about the graphics of The Elder Scrolls VI, as the game's first trailer was released eight years ago.
+---------
+
+# The Batman 2 Rumor Reveals Sebastian Stan's Villain and the Real Two-Face Actor
+
+Movies, The Batman – Part II, Batman, superheroes
+
+Fri, 12 Jun 2026 16:37:27 GMT
+
+https://www.cbr.com/the-batman-2-cast-sebastian-stan-victor-zsasz-bryan-tyree-henry-two-face/
+
+Sebastian Stan may not be playing the Batman villain that fans expected.
+---------
+
+# Netflix Officially Renews New Peaky Blinders Replacement Series for Season 2
+
+TV, House of Guinness, Peaky Blinders
+
+Fri, 12 Jun 2026 16:37:11 GMT
+
+https://www.cbr.com/netflix-house-of-guinness-season-2-renewal/
+
+Creator Steven Knight's Peaky Blinders replacement has officially cemented a second season at Netflix, and that may not be the end of it.
+---------
+
+# The Lord of the Rings: Every Character Other Than Frodo Who Resisted the One Ring
+
+Movies, The Lord of the Rings
+
+Fri, 12 Jun 2026 16:30:12 GMT
+
+https://www.cbr.com/lord-of-the-rings-characters-who-resisted-one-ring-list/
+
+The One Ring was among the most powerful objects in Middle-earth, but a few The Lord of the Rings characters were able to resist its temptation.
+---------
+
+# Netflix Is Officially Remaking Its 2-Year-Old Crime Hit Into a TV Show
+
+TV, Hit Man, Netflix
+
+Fri, 12 Jun 2026 16:26:31 GMT
+
+https://www.cbr.com/netflix-hit-man-tv-show/
+
+Another popular Netflix movie is getting a television offshoot.
+---------
+
+# Titus Welliver Officially Joins 'Unfilmable' DC Crime Series
+
+TV, DC Comics, Bosch
+
+Fri, 12 Jun 2026 16:24:46 GMT
+
+https://www.cbr.com/titus-welliver-dc-crime-series-get-jiro-animated/
+
+Bosch star Titus Welliver has officially signed on for an adaptation of one of DC Comics' most "unfilmable" titles of all time.
+---------
+
+# 4 Post-Apocalyptic Anime Better Than Attack on Titan
+
+Anime, Attack On Titan, Heavenly Delusion
+
+Fri, 12 Jun 2026 16:15:14 GMT
+
+https://www.cbr.com/post-apocalyptic-anime-better-than-attack-on-titan/
+
+Attack on Titan is one of the best anime of its generation, but there are other accomplished titles that push post-apocalyptic stories even further!
+---------
+
+# Paramount's Near-Perfect Crime Series Defeats 2 Taylor Sheridan Shows to No. 1
+
+TV, Criminal Minds, Paramount Plus, Crime
+
+Fri, 12 Jun 2026 16:00:14 GMT
+
+https://www.cbr.com/criminal-minds-procedural-crime-drama-success-paramount-june-2026/
+
+Taylor Sheridan's shows have been dominating the streaming charts, but Criminal Minds is now the No. 1 most-watched show in the United States.
+---------
+
+# Pokémon's Original Starters Officially Return With New 30th Anniversary Designs
+
+Anime, Pokemon
+
+Fri, 12 Jun 2026 16:00:14 GMT
+
+https://www.cbr.com/pokemon-original-starters-new-anniversary-designs/
+
+The original starter Pokémon (and some of their earliest successors) are getting a set of stunning redesigns to celebrate their 30th anniversary.
+---------
+
+# 6 Greatest Shows of the 1960s
+
+TV, The Twilight Zone, I Dream of Jeanie, Star trek
+
+Fri, 12 Jun 2026 16:00:14 GMT
+
+https://www.cbr.com/best-tv-shows-1960s-list/
+
+From the hilarious sitcom I Dream of Jeannie to the groundbreaking sci-fi series The Twilight Zone, these 1960s shows remain timeless classics.
+---------
+
+# The End of Oak Street Officially Has Better Dinosaurs Than Jurassic Park
+
+Movies, The End of Oak Street, Jurassic Park, J.J. Abrams
+
+Fri, 12 Jun 2026 16:00:14 GMT
+
+https://www.cbr.com/jj-abrams-end-of-oak-street-more-realistic-dinosaurs-than-jurassic-park/
+
+The Jurassic Park franchise has made one major mistake, but this isn't a mistake J.J. Abrams' much-anticipated upcoming dinosaur flick will make.
+---------
+
+# 2026’s Most Unexpected TV Breakout Is Now Dominating the TCA Nominations
+
+TV Features, TCA, Widow's Bay, Heated Rivalry, Industry
+
+Fri, 12 Jun 2026 16:31:37 GMT
+
+https://collider.com/2026-tca-awards-nominations-widows-bay-heated-rivalry-industry-full-list-nominees/
+
+Widow’s Bay tied for the most nominations at the 2026 TCA Awards, cementing Apple TV+‘s horror comedy as one of the year’s biggest breakouts.
+---------
+
+# New Hulu Series Officially Remakes a 30-Year-Old Ben Stiller Classic
+
+TV News, The Cable Guy, Jake Johnson, Damon Wayans Jr., Hulu
+
+Fri, 12 Jun 2026 16:30:33 GMT
+
+https://collider.com/jake-johnson-damon-wayans-jr-new-girl-reunion-the-cable-guy-remake-series-hulu/
+
+Two stars from the beloved sitcom New Girl will star in a new series remake of the Jim Carrey classic The Cable Guy. Read on for more.
+---------
+
+# ‘The Boys’ Officially Brings Starlight and Homelander Back for New Chapter
+
+Gaming News, The Boys, Call of Duty, Prime Video, Antony Starr
+
+Fri, 12 Jun 2026 16:30:13 GMT
+
+https://collider.com/the-boys-call-of-duty-mobile-expansion-out-now/
+
+Mere weeks after the series finale, The Boys is officially back with a new release that dropped back at the end of May.
+---------
+
+# It's Officially the End of an Era for One of Steam's Most Popular Products
+
+Gaming News, Gaming, Steam, Half-Life
+
+Fri, 12 Jun 2026 16:20:14 GMT
+
+https://collider.com/steam-physical-gift-cards-discontinued-retail-stores/
+
+Steam is discontinuing physical gift cards at retail stores, though digital gift cards will remain available.
+---------
+
+# 5 Years Later, Netflix Officially Orders Adults-Only 'Superstore's Replacement
+
+TV News, Superstore, Comedy, Netflix
+
+Fri, 12 Jun 2026 16:10:15 GMT
+
+https://collider.com/netflix-dealies-adult-animation-superstore-replacement/
+
+Netflix has officially ordered a perfect Superstore replacement in a new adult animated comedy set inside a big-box store. Learn more about Dealies.
+---------
+
+# All 5 Movies in This Giant Action Series Are So Good, They United a Split Fandom
+
+Movie Features, Godzilla, King Kong, MonsterVerse, Sci-Fi
+
+Fri, 12 Jun 2026 16:06:14 GMT
+
+https://collider.com/monsterverse-movies-godzilla-king-kong-franchise/
+
+Godzilla and King Kong's epic adventures in the MonsterVerse have an installment for every type of fan.
+---------
+
+# 'Supergirl's Jason Momoa Officially Reveals Who Would Win in a Fight Between Lobo and Aquaman
+
+Exclusives, Supergirl, Jason Momoa, Dune: Part Three, A Minecraft Movie 2
+
+Fri, 12 Jun 2026 16:04:40 GMT
+
+https://collider.com/supergirl-lobo-jason-momoa-dune-3-minecraft-2/
+
+Jason Momoa discusses joining Supergirl, his one rule for a solo Lobo movie, as well as talks about the Minecraft Movie sequel and Dune 3.
+---------
+
+# 'Dutton Ranch' Confirms Which New Character Kevin Costner's John Dutton Would Like the Most
+
+Exclusives, Dutton Ranch, Paramount Plus, Western, Drama
+
+Fri, 12 Jun 2026 16:00:15 GMT
+
+https://collider.com/dutton-ranch-episode-6-marc-menchaca-zachariah-interview/
+
+Dutton Ranch's Marc Menchaca discusses Zachariah's heavy past, his first scene with Kelly Reilly's Beth, and practicing for that roping competition.
+---------
+
+# It’s Officially the End of an Era for Prime Video’s Best Superhero Show [Exclusive]
+
+TV News, The Boys, Prime Video, Karl Urban, Antony Starr
+
+Fri, 12 Jun 2026 16:00:15 GMT
+
+https://collider.com/the-boys-season-5-sneak-peek-composers-matt-bowen-christopher-lennertz/
+
+Prime Video has released a new behind-the-scenes sneak peek from The Boys Season 5 featuring composers Matt Bowen and Christopher Lennertz.
+---------
+
+# Dune Prequel Officially Confirmed Before 'Part 3' Hits Theaters
+
+Movie News, Dune: Part Three, Dune: Prophecy, Dune: Part Two, Dune
+
+Fri, 12 Jun 2026 15:46:41 GMT
+
+https://collider.com/new-dune-project-house-of-corrino-volume-1-release-date/
+
+A new Dune project is officially confirmed to release this September, just three months before the worldwide premiere of Dune: Part Three.
+---------
+
+# How 'Mandalorian & Grogu' Secretly Sets Up the Sequel Trilogy
+
+Features, The Mandalorian and Grogu, Star Wars
+
+Fri, 12 Jun 2026 16:00:19 GMT
+
+https://movieweb.com/mandalorian-grogu-sets-up-sequel-trilogy/
+
+Despite being a standalone movie in the beloved Star Wars franchise, 'The Mandalorian and Grogu' teased the sequel trilogy.
+---------
+
+# The True Story Behind Netflix's 'The Empress', Explained
+
+Features, Netflix
+
+Fri, 12 Jun 2026 16:00:19 GMT
+
+https://movieweb.com/netflix-the-empress-true-story-explained/
+
+Knowing the true story behind Sisi adds a lot of depth to the Netflix Original historical drama.
+---------
+
+# 'Seinfeld' Reunion Officially Confirmed in New HBO Series Trailer for
+
+TV News, Seinfeld, Larry David, Jerry Seinfeld, Curb Your Enthusiasm
+
+Fri, 12 Jun 2026 15:56:25 GMT
+
+https://movieweb.com/life-larry-and-pursuit-of-unhappiness-hbo-max-trailer/
+
+HBO's new sketch comedy series  'Life, Larry and the Pursuit of Unhappiness: An Almost History of America ' is a "declaration of common sense."
+---------
+
+# 20 Years Before the Apple TV Sci-Fi Series, ABC Delivered an 'Invasion' of Its Own
+
+Features, Invasion, Apple TV
+
+Fri, 12 Jun 2026 15:00:20 GMT
+
+https://movieweb.com/invasion-abc-before-apple-tv/
+
+20 years before the Apple TV sci-fi series, ABC debuted an 'Invasion' series of its own starring Evan Peters and Tyler Labine.
+---------
+
+# Jason Statham Goes Full 'Rambo' in Action Thriller Now Conquering Streaming
+
+Movie News, Jason Statham, Homefront, Hot on Streaming, Action, Thriller
+
+Fri, 12 Jun 2026 15:00:19 GMT
+
+https://movieweb.com/homefront-streaming-hit-paramount-plus-june2026/
+
+The 2013 film starring an unbeatable Jason Statham is also available on free streaming.
+---------
+
+# Fate of Netflix's 90% Historical Epic 'House of Guinness' Officially Confirmed After 1 Season
+
+TV News, House of Guinness, Netflix
+
+Fri, 12 Jun 2026 14:48:20 GMT
+
+https://movieweb.com/netflix-house-of-guinness-season-2-renewal/
+
+The fate of the critically acclaimed Netflix series has officially been revealed.
+---------
+
+# 'Disclosure Day's Box Office Projections, Explained
+
+Features, Disclosure Day, Steven Spielberg
+
+Fri, 12 Jun 2026 14:00:18 GMT
+
+https://movieweb.com/disclosure-day-box-office-explained/
+
+'Disclosure Day,' the sci-fi thriller directed by Steven Spielberg, carries a $115 million budget and faces stiff competition at the box office.
+---------
+
 # Fox's Best Medicine Season 2 Confirms Major Cast Changes
 
 TV, Best Medicine, Fox
