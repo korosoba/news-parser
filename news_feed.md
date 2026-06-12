@@ -1,3 +1,289 @@
+# It’s Time For Xbox Game Pass To Die
+
+Gaming, Xbox Game Pass, Xbox, Live Service Games
+
+Fri, 12 Jun 2026 06:00:20 GMT
+
+https://screenrant.com/xbox-game-pass-exclusives-value/
+
+Xbox is in the midst of rehabilitating its brand and kickstarting a new wave of console exclusives, but refuses to address the real issue: Game Pass.
+---------
+
+# It's Official, Dark Souls Is Not Done Yet
+
+Gaming, Dark Souls, Dark Souls 3, PC, FromSoftware
+
+Fri, 12 Jun 2026 04:00:30 GMT
+
+https://screenrant.com/dark-souls-redemption-return-september-2026/
+
+Dark Souls gamers have long debated the franchise's reboot after the epic trilogy ended in 2016, but fans should mark their calendars for September.
+---------
+
+# The Successor To Bruce Willis' Red Is Already Here And It's 2026's Wildest Action Comedy Yet
+
+TV, Fifties Professionals
+
+Fri, 12 Jun 2026 03:58:49 GMT
+
+https://screenrant.com/red-bruce-willis-action-comedy-successor-fifties-professionals/
+
+One of the most fun new limited series to hit streaming just dropped weeks ago, and it's perfect for action-comedy fans seeking a solid cast.
+---------
+
+# Hugh Jackman's New R-Rated Robin Hood Movie Officially Debuts To Solid Rotten Tomatoes Score
+
+Movies, Masked Recs, Hugh Jackman
+
+Fri, 12 Jun 2026 03:44:57 GMT
+
+https://screenrant.com/hugh-jackman-the-death-of-robin-hood-rotten-tomatoes-score/
+
+Hugh Jackman is set to portray the iconic outlaw in a new R-rated Robin Hood thriller, which officially debuts with a solid Rotten Tomatoes score.
+---------
+
+# Apple TV’s 8-Part Genre-Bending Crime Thriller Is 1 Of Weirdest Shows Of The Century
+
+Streaming TV, Masked Recs
+
+Fri, 12 Jun 2026 03:24:23 GMT
+
+https://screenrant.com/apple-tv-sugar-weird-thriller/
+
+Apple TV is the streaming home of a returning 8-part genre-bending crime thriller that is easily one of the weirdest TV shows of the 21st century.
+---------
+
+# Dark Souls Fans Can Play A New Dark Fantasy RPG Free Right Now
+
+Gaming, Steam, Triple-A Games
+
+Fri, 12 Jun 2026 03:00:21 GMT
+
+https://screenrant.com/mortal-shell-2-open-beta-free-dark-souls-vibes/
+
+If you're a Dark Souls fan, you might want to jump on this opportunity to play a free dark fantasy RPG that ticks a lot of the same boxes.
+---------
+
+# Reacher Meets Cobra Kai In Netflix’s #1 Trending 10-Part Action Series
+
+Streaming TV, Masked Recs
+
+Fri, 12 Jun 2026 03:00:21 GMT
+
+https://screenrant.com/reacher-cobra-kai-teach-you-lesson-netflix-trending/
+
+One of the top trending shows on Netflix right now seems to combine some of the best narrative and thematic elements from both Reacher and Cobra Kai.
+---------
+
+# Disclosure Day's Emily Blunt Reveals The 1 Thing Steven Spielberg, Christopher Nolan & Denis Villeneuve Have In Common
+
+Movies, Emily Blunt, Steven Spielberg, Christopher Nolan, Denis Villeneuve
+
+Fri, 12 Jun 2026 02:31:15 GMT
+
+https://screenrant.com/steven-spielberg-denis-villeneuve-christopher-nolan-similarity-emily-blunt/
+
+Exclusive: Emily Blunt shared the common trait Steven Spielberg, Christopher Nolan, and Denis Villenueve share when it comes to filmmaking.
+---------
+
+# Obsession & Weapons Exist In The Same Universe: Horror Theory Explained
+
+Movies, Obsession, Weapons, Horror
+
+Fri, 12 Jun 2026 02:15:21 GMT
+
+https://screenrant.com/obsession-weapons-same-universe-theory/
+
+An intriguing horror theory suggests that Obsession and Weapons unfold in the same universe, and it is hard not to see how it is quite plausible.
+---------
+
+# Criminal Minds’ True Crime Inspiration Gives Away Voit’s Ending
+
+Network TV, Criminal Minds
+
+Fri, 12 Jun 2026 02:00:32 GMT
+
+https://screenrant.com/criminal-minds-season-19-mark-david-chapman-voit-fate/
+
+Criminal Minds has always been rooted in true-crime stories, but its latest reference may have spoiled the end of Elias Voit in season 19.
+---------
+
+# Kagurabachi Officially Reveals Dark Shonen's Greatest Swordsman With New First Look
+
+Anime, Kagurabachi, Shonen Jump
+
+Fri, 12 Jun 2026 06:09:33 GMT
+
+https://www.cbr.com/kagurabachi-dark-shonen-chihiro-reveal/
+
+Kagurabachi just dropped a stunning new design for the greatest Dark Shonen swordsman ahead of its official anime 2027 premiere.
+---------
+
+# How Old Is Peter Parker In Each Spider-Man Movie?
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Fri, 12 Jun 2026 03:45:14 GMT
+
+https://www.cbr.com/peter-parker-age-every-spider-man-movie-list/
+
+Spider-Man: Brand New Day finally sees an adult Peter in Tom Holland, and it makes fans wonder how old Spidey was in all his films.
+---------
+
+# 5 Anime Battles That No Other Series Will Ever Top
+
+Anime, Jujutsu Kaisen, Hunter x Hunter
+
+Fri, 12 Jun 2026 03:45:14 GMT
+
+https://www.cbr.com/unbeatable-anime-battles-list/
+
+Dragon Ball Z, Jujutsu Kaisen and Hunter x Hunter feature exaggerated anime sequences that represent the medium's best battles!
+---------
+
+# Every Episode of Star Trek: The Original Series That Was Banned in the UK (& Why)
+
+TV, Star Trek, Sci-Fi, Star Trek: The Original Series
+
+Fri, 12 Jun 2026 03:30:13 GMT
+
+https://www.cbr.com/star-trek-tos-banned-uk-episodes-list/
+
+For 30 years, four episodes of Star Trek: The Original Series were banned by the BBC and not broadcast in the United Kingdom. Here's why it happened.
+---------
+
+# DC Abruptly Pulls Supergirl Movie Merch Featuring a Star Wars Character
+
+Movies, Supergirl, Star Wars
+
+Fri, 12 Jun 2026 03:24:31 GMT
+
+https://www.cbr.com/supergirl-merch-pulled-star-wars/
+
+An unfortunate blunder had fans believing a Star Wars character was going to appear in the DCU's Supergirl movie.
+---------
+
+# Ocarina of Time Remake Sets The Legend of Zelda Movie Up For Success
+
+Movies, The Legend of Zelda, Nintendo
+
+Fri, 12 Jun 2026 03:15:15 GMT
+
+https://www.cbr.com/ocarina-of-time-remake-zelda-movie-story-tease/
+
+Nintendo's recently-announced The Legend of Zelda: Ocarina of Time remake has paved the way for Wes Ball's live-action film adaptation.
+---------
+
+# 5 Masterpiece SNES Games Better Than Super Mario World
+
+Games, Super Mario World, Nintendo, Donkey Kong Country
+
+Fri, 12 Jun 2026 03:15:15 GMT
+
+https://www.cbr.com/snes-masterpieces-better-super-mario-world-list/
+
+From Yoshi's Island to Donkey Kong Country, these titles surpassed Super Mario World in ways that pushed all the series in new directions.
+---------
+
+# 5 Prime Video Anime With No Bad Seasons
+
+Anime, Prime Video
+
+Fri, 12 Jun 2026 03:00:13 GMT
+
+https://www.cbr.com/prime-video-best-anime-no-bad-seasons-list/
+
+The best anime on Prime Video are perfect from beginning to end.
+---------
+
+# 10 Times That Prove Iron Man Is Replaceable
+
+Comics, Iron Man
+
+Fri, 12 Jun 2026 03:00:13 GMT
+
+https://www.cbr.com/iron-man-is-replaceable-proof-listed/
+
+Tony Stark is such a vital character and yet he has been replaced so many times that fans are uncertain of his permanence.
+---------
+
+# It's Officially the End of an Era for Assassin's Creed
+
+Games, Assassin's Creed, Assassin's Creed Shadows
+
+Fri, 12 Jun 2026 02:48:35 GMT
+
+https://www.cbr.com/assassins-creed-shadows-end-era/
+
+Assassin's Creed fans get some surprising news.
+---------
+
+# 7 Mystery Shows That Are Amazing From Start to Finish
+
+TV, Mystery, Only Murders in the Building, Severance, Midnight Mass
+
+Fri, 12 Jun 2026 04:07:14 GMT
+
+https://collider.com/mystery-shows-amazing-start-to-finish/
+
+Hulu's Only Murders in the Building, Apple TV's Severance, and HBO's The Leftovers are among mystery shows that are amazing from start to finish.
+---------
+
+# The Worst Movie of Each of the Last 6 Years
+
+Movie
+
+Fri, 12 Jun 2026 04:05:13 GMT
+
+https://collider.com/worst-movies-every-year-2021-2026/
+
+When discussing the worst movie of each of the last 6 years, dumpster fires like Morbius, War of the Worlds, and Mercy will enter the conversation.
+---------
+
+# 'Criminal Minds: Evolution' Shows a Side to Connor Storrie You've Never Seen Before
+
+TV Features, Criminal Minds, Heated Rivalry, Connor Storrie, CBS
+
+Fri, 12 Jun 2026 03:04:14 GMT
+
+https://collider.com/criminal-minds-evolution-season-4-connor-storrie-guest-star/
+
+Connor Storrie showcases his range beyond Heated Rivalry in Criminal Minds: Evolution Season 4 playing a stalker ex-boyfriend with a dark edge.
+---------
+
+# 20 Years Later, Nintendo's Best-Selling Juggernaut Is Still One of the Greatest Video Games of All Time
+
+Video Games, Nintendo, Video Game, Features, Sports
+
+Fri, 12 Jun 2026 03:03:13 GMT
+
+https://collider.com/wii-sports-best-nintendo-game-all-time/
+
+Wii Sports is the best-selling Nintendo game of all time and remains one of the medium's greatest achievements, twenty years after its initial launch.
+---------
+
+# 'The Pitt's Fan-Favorite Doctor Confirms Noah Wyle Gave His Blessing to Return [Exclusive]
+
+Exclusives, The Pitt, Luke Tennie, HBO Max, Shrinking
+
+Fri, 12 Jun 2026 02:00:25 GMT
+
+https://collider.com/the-pitt-season-3-dr-cyrus-henderson-luke-tennie-return-noah-wyle-blessing/
+
+The Pitt Season 2's newest star explains his character's unique approach to medicine and all but assures we'll see his character again.
+---------
+
+# 10 Greatest Quotes from TV Finales That Still Live Rent Free in Our Heads
+
+TV Lists, Friends, Mr. Robot
+
+Fri, 12 Jun 2026 02:00:31 GMT
+
+https://movieweb.com/tv-finale-best-quotes/
+
+The best TV shows stay with you longer after they're over, and some had profound or especially meaningful quotes in their finales.
+---------
+
 # Bosch Meets Lovecraftian Horror In 1 Of The Greatest Crime Thrillers Of The Century
 
 Streaming TV, Masked Recs
