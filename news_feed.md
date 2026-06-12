@@ -1,3 +1,344 @@
+# 3 Best Movies To Watch On Prime Video This Weekend (June 13-14)
+
+Movies, Prime Video, Recommendation
+
+Fri, 12 Jun 2026 22:50:57 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-june-13/
+
+The best movies on Prime Video this weekend include two fantasy entries, one from a franchise that is now in theaters, and an action thriller.
+---------
+
+# Does Disclosure Day Connect To Steven Spielberg's Other Sci-Fi Movies?
+
+Movies, Disclosure Day, Steven Spielberg, E.T. the Extra-Terrestrial, Close Encounters of The Third Kind
+
+Fri, 12 Jun 2026 22:30:21 GMT
+
+https://screenrant.com/does-disclosure-day-connect-to-steven-spielbergs-other-sci-fi-movies/
+
+Disclosure Day is the latest sci-fi movie from Steven Spielberg, with many speculating whether it shares any direct connections to his past films.
+---------
+
+# DC's Most Important Flash Story Of The Last 27 Years Is The One Fans Will Never Read
+
+Comics, The Flash, Wally West, Mark Waid
+
+Fri, 12 Jun 2026 22:30:21 GMT
+
+https://screenrant.com/most-important-flash-story-explained/
+
+A story that would have changed Flash's future is forever lost to the past.
+---------
+
+# Widow's Bay Theory Reveals There's Another Secret Warren (& I Know Who It Is)
+
+Streaming TV, Widow's Bay, Widow's Bay - Season 1
+
+Fri, 12 Jun 2026 22:16:22 GMT
+
+https://screenrant.com/widows-bay-secret-warren-theory-evan/
+
+Whatever Tom decides to do about Ruth, it won’t matter if there’s another secret Warren; the bloodline & curse will continue in Widow’s Bay season 2.
+---------
+
+# GTA 6 Step Aside, Max Payne Just Officially Returned
+
+Gaming, Grand Theft Auto 6, Triple-A Games, PC
+
+Fri, 12 Jun 2026 22:00:22 GMT
+
+https://screenrant.com/max-payne-mobile-update-june-2026/
+
+While GTA 6 is still the most anticipated game of all time, the ever-iconic Max Payne series just got an exciting new update for action fans to enjoy.
+---------
+
+# Marvel Officially Debuts Winter Soldier's Radical Redesign for the Avengers' New Appearance
+
+Comics, The Avengers, Bucky Barnes
+
+Fri, 12 Jun 2026 22:00:22 GMT
+
+https://screenrant.com/marvel-manga-winter-soldier-redesign-arcane-avengers/
+
+Is that... a magic arm?
+---------
+
+# The Furious Interview with Joe Taslim
+
+Movies, The Furious, Joe Taslim
+
+Fri, 12 Jun 2026 21:45:22 GMT
+
+https://screenrant.com/video/the-furious-movie-joe-taslim-stunts-interview/
+
+The Furious star Joe Taslim talks his acclaimed new action movie, avoiding stunt doubles for its fights and how it replaces an all-time genre classic.
+---------
+
+# The 25 Best Episodes Of Friends Ever
+
+TV, Friends
+
+Fri, 12 Jun 2026 21:45:22 GMT
+
+https://screenrant.com/friends-best-episodes-ever-ranked/
+
+The show spoils for choice, but from "The One Where Everybody Finds Out" to "The Last One: Part Two," these Friends episodes are the best of all time.
+---------
+
+# Lilo & Stitch 2 Lands Original Co-Creator As Director In New Update
+
+Movies, Lilo & Stitch 2
+
+Fri, 12 Jun 2026 21:37:16 GMT
+
+https://screenrant.com/lilo-stitch-2-chris-sanders-director-original-co-creator/
+
+Disney's highly anticipated live-action sequel, Lilo & Stitch 2, finally finds its director, the co-creator of the original animated film.
+---------
+
+# How House Of The Dragon Season 3 Unveils Totally New Versions Of Houses Targaryen, Velaryon & Hightower Detailed By Cast
+
+TV, House of the Dragon, House of the Dragon - Season 3, Game of Thrones, HBO
+
+Fri, 12 Jun 2026 21:30:23 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-new-house-targaryen-velaryon-hightower-explained/
+
+House of the Dragon season 3's cast detail the new versions of Houses Targaryen, Velaryon and Hightower in the Game of Thrones prequel's return.
+---------
+
+# Marvel Confirms Major Change to Venom and Eddie Brock in New Series
+
+Comics
+
+Fri, 12 Jun 2026 22:27:20 GMT
+
+https://www.cbr.com/marvel-confirms-major-change-venom-eddie-brock-first-look/
+
+In a CBR exclusive first look at Queen in Black: Venom Unchained #1, see how Eddie Brock adjusts to a new era post-Venom AND post-Carnage!
+---------
+
+# The 20 Healthiest BL Anime on Crunchyroll
+
+Anime, Boys' Love, yaoi, Crunchyroll
+
+Fri, 12 Jun 2026 22:00:15 GMT
+
+https://www.cbr.com/bl-anime-crunchyroll/
+
+Boys' Love is known for being a problematic genre, but there are plenty of portrayals of healthy relationships in Crunchyroll's anime selection.
+---------
+
+# Ben 10 Comic Nearly Sells Out, Reprint Confirmed After Strong Demand
+
+Comics, Ben 10
+
+Fri, 12 Jun 2026 22:00:14 GMT
+
+https://www.cbr.com/ben-10-1-reprinting-confirmed/
+
+Ben 10's comic book comeback just keeps getting bigger.
+---------
+
+# Dragon Ball Unveils 4 New Official Designs for the Strongest Saiyans in the Galaxy
+
+Anime, Dragon Ball
+
+Fri, 12 Jun 2026 22:00:14 GMT
+
+https://www.cbr.com/dragon-ball-saiyan-spaceship-pod-pouch/
+
+Dragon Ball fans can now bring home four of the most powerful Saiyans of all time and take them wherever it is they need to go.
+---------
+
+# Your Friends & Neighbors Stars Rave About the ‘Deep Bench of Incredible Actors’ Beefing Up the Show
+
+TV, Your Friends and Neighbors
+
+Fri, 12 Jun 2026 21:55:20 GMT
+
+https://www.cbr.com/your-friends-and-neighbors-cast-ensemble-jon-hamm-interview/
+
+Your Friends & Neighbors stars discuss the show’s ensemble cast, New York energy, and surprising character dynamics.
+---------
+
+# Netflix's The Night Agent Confirms Rose's Status for Final Season
+
+TV, The Night Agent
+
+Fri, 12 Jun 2026 21:43:36 GMT
+
+https://www.cbr.com/the-night-agent-season-4-luciane-buchanan/
+
+Luciane Buchanan's status for the fourth and final season of The Night Agent has been revealed.
+---------
+
+# Only 5 Heist Movies Are Better Than Ocean's Eleven
+
+Movies, Ocean's Eleven
+
+Fri, 12 Jun 2026 21:31:15 GMT
+
+https://www.cbr.com/heist-movie-better-than-oceans-eleven-list/
+
+Ocean's Eleven is a modern heist classic, but it is far from the best of the genre, and other movies have even topped it.
+---------
+
+# 10 Greatest Anime Series Worth Binge-Watching in 2026
+
+Anime, Solo Leveling, Jujutsu Kaisen, Frieren: Beyond Journey's End
+
+Fri, 12 Jun 2026 21:15:14 GMT
+
+https://www.cbr.com/greatest-anime-series-to-binge-2026/
+
+Binge-watching is one of the most fun ways to experience anime, and 10/10 series like Frieren and Solo Leveling can easily be viewed over a weekend.
+---------
+
+# Say Goodbye to Harry Potter & Star Trek as We Know It Thanks to New Paramount Update
+
+TV, Paramount, Harry Potter
+
+Fri, 12 Jun 2026 21:10:35 GMT
+
+https://www.cbr.com/paramount-warner-bros-merger-approved-doj-franchise-changes/
+
+The move everyone feared coming has just crossed its highest bridge yet.
+---------
+
+# Only 6 DC Heroes Are More Powerful Than Superman
+
+Movie, Superman, DC Comics, Comics, Superhero
+
+Fri, 12 Jun 2026 22:49:14 GMT
+
+https://collider.com/dc-heroes-more-powerful-than-superman/
+
+Superman is among the most powerful beings in the DC canon, but at least six heroes, like The Spectre, Orion, and Doctor Manhattan, far surpass him.
+---------
+
+# 8 New Sci-Fi Shows That Are Perfect From Start to Finish
+
+TV, Sci-Fi, Andor, Severance, Arcane
+
+Fri, 12 Jun 2026 22:44:15 GMT
+
+https://collider.com/new-sci-fi-shows-perfect-start-to-finish/
+
+Discover the best new sci-fi shows featuring perfect storytelling, visuals, and character development, from Andor to Severance.
+---------
+
+# Forget ‘Doctor Who,’ This Near-Perfect 2-Part British Sci-Fi Comedy Almost Got a U.S. Remake
+
+TV Features, BBC, Series, Science Fiction, Streaming
+
+Fri, 12 Jun 2026 22:34:17 GMT
+
+https://collider.com/timewasters-british-sci-fi-comedy-us-remake/
+
+A forgotten British sci-fi comedy nearly got an American remake, but the original remains one of the genre’s funniest hidden gems.
+---------
+
+# Sam Raimi's Flawless 6-Part Fantasy Masterpiece Scores Big on Streaming 25 Years Later
+
+TV News, Xena: Warrior Princess, Lucy Lawless, Sam Raimi, Bruce Campbell
+
+Fri, 12 Jun 2026 22:30:14 GMT
+
+https://collider.com/sam-raimi-fantasy-series-xena-warrior-princess-streaming-success-apple-tv-june-2026/
+
+A beloved fantasy icon is crushing Apple TV's streaming charts 25 years later, proving nostalgia can still outperform modern epics.
+---------
+
+# 8 Most Universally Acclaimed Horror Movies of All Time
+
+Movie, Horror, The Silence of the Lambs, Psycho, The Exorcist
+
+Fri, 12 Jun 2026 22:19:15 GMT
+
+https://collider.com/most-universally-acclaimed-horror-movies-all-time-ranked/
+
+From The Silence of the Lambs, to Halloween,  to Alien, these horror landmarks didn’t just scare audiences, they redefined cinema itself.
+---------
+
+# Live-Action 'Lilo & Stitch' Sequel Taps a Disney Legend To Direct
+
+Movie News, Lilo & Stitch, Chris Sanders, Disney+
+
+Fri, 12 Jun 2026 22:13:02 GMT
+
+https://collider.com/lilo-and-stitch-live-action-sequel-chris-sanders-directing/
+
+Legendary animation filmmaker Chris Sanders will officially direct, write, and star in Disney's live-action Lilo & Stitch sequel.
+---------
+
+# Amazon’s 2-Part Spy Thriller Is a Must-Watch for ‘The Night Agent’ Fans
+
+TV News, Condor, MGM, Thriller, Drama
+
+Fri, 12 Jun 2026 22:00:15 GMT
+
+https://collider.com/condor-spy-thriller-streaming-success-mgm-plus-june-2026/
+
+A forgotten espionage thriller is seeing renewed popularity amid the success of The Night Agent and The Recruit. Get all the details here.
+---------
+
+# Netflix Abandons Ambitious Fantasy Franchise Plan
+
+Movie News, Redwall, Netflix, Fantasy, Over the Garden Wall
+
+Fri, 12 Jun 2026 22:00:15 GMT
+
+https://collider.com/netflix-redwall-tv-series-movie-adaptation-cancelled/
+
+Netflix is no longer moving forward with its planned adaptations of the Redfall books after five years of development. Here's what we know.
+---------
+
+# 58 Years Ago, Clint Eastwood Starred in One of the Most Wild WWII Movies of All Time
+
+Movie Features, Where Eagles Dare, Clint Eastwood, Richard Burton, War
+
+Fri, 12 Jun 2026 21:59:14 GMT
+
+https://collider.com/clint-eastwood-where-eagles-dare-wwii-war-movie/
+
+Where Eagles Dare, which stars Clint Eastwood and Richard Burton, is a fun, adventurous war movie from 1969.
+---------
+
+# 10 'The Avengers: Earth's Mightiest Heroes' Episodes That Are Considered Masterpieces
+
+TV, Marvel, Superhero, The Avengers: Earth's Mightiest Heroes, Disney XD
+
+Fri, 12 Jun 2026 21:51:14 GMT
+
+https://collider.com/best-the-avengers-earths-mightiest-heroes-episodes-masterpieces/
+
+Animated series The Avengers: Earth's Mightiest Heroes is a fondly remembered superhero show, with "Ultron-5" and "Avengers Assemble" among its best.
+---------
+
+# Steven Spielberg's 'Disclosure Day' Sci-Fi Quote Hits Harder Than the Best of All-Time
+
+Features, Steven Spielberg, Disclosure Day, Close Encounters of The Third Kind, Sci-Fi, Quote
+
+Fri, 12 Jun 2026 22:00:19 GMT
+
+https://movieweb.com/steven-spielberg-disclosure-day-sci-fi-quote/
+
+Steven Spielberg just delivered one of the greatest sci-fi quotes in cinema history, thanks to the deep concepts explored in 'Disclosure Day'.
+---------
+
+# Chris Sanders Confirmed to Direct Disney's Live-Action 'Lilo & Stitch 2'
+
+Movie News, Lilo & Stitch 2, Chris Sanders, Disney
+
+Fri, 12 Jun 2026 21:53:15 GMT
+
+https://movieweb.com/lilo-and-stitch-2-disney-director/
+
+Disney confirmed development for the live-action 'Lilo & Stitch 2,' which will bring original co-director Chris Sanders back for the same role.
+---------
+
 # HBO's Upcoming Fantasy Series Will Officially Change Streaming Forever
 
 Streaming TV, Masked Recs
