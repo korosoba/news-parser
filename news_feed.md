@@ -1,3 +1,388 @@
+# HBO's Upcoming Fantasy Series Will Officially Change Streaming Forever
+
+Streaming TV, Masked Recs
+
+Fri, 12 Jun 2026 21:01:21 GMT
+
+https://screenrant.com/harry-potter-hbo-tv-series-change-streaming/
+
+HBO's massive upcoming fantasy reboot is set to redefine the rules of streaming, building on the network's long history of risky earlier projects.
+---------
+
+# Cyberpunk 2077 Officially Returns July 2026 With Razor-Sharp New Release
+
+Gaming, Cyberpunk 2077, PC
+
+Fri, 12 Jun 2026 21:00:22 GMT
+
+https://screenrant.com/cyberpunk-2077-thermal-katana-july-2026/
+
+After a lot of waiting, Cyberpunk 2077 is finally returning in July 2026 with a brand-new release that is absolutely perfect for long-time fans.
+---------
+
+# Every Steven Spielberg Alien Movie, Ranked From Worst To Best
+
+Movies, Steven Spielberg, Ranking
+
+Fri, 12 Jun 2026 20:45:22 GMT
+
+https://screenrant.com/steven-spielberg-alien-movies-ranked/
+
+Steven Spielberg's Disclosure Day has finally arrived, giving us another great alien movie from the legendary director. Where does it rank, though?
+---------
+
+# Nathan Fillion's New 8-Part Superhero Series Is HBO's Answer To Spider-Noir
+
+TV, Masked Recs
+
+Fri, 12 Jun 2026 20:45:22 GMT
+
+https://screenrant.com/lanterns-nathan-fillion-hbo-answer-to-spider-noir/
+
+Following hot on the heels of Spider-Noir's success on Prime Video, HBO is releasing its own dark and gritty superhero TV series this summer.
+---------
+
+# Marvel Studios Confirms Major Change To Wolverine Ahead Of His 2026 Return
+
+Streaming TV, Masked Recs
+
+Fri, 12 Jun 2026 20:37:22 GMT
+
+https://screenrant.com/x-men-97-season-2-wolverine-adamantium-skeleton-back/
+
+Marvel Studios has confirmed that Wolverine will get his adamantium skeleton back in X-Men '97 season 2 — and we might have Apocalypse to thank.
+---------
+
+# The Mandalorian and Grogu Pitch Meeting
+
+Movies, The Mandalorian and Grogu, Star Wars, The Mandalorian, Screen Rant Pitch Meetings
+
+Fri, 12 Jun 2026 20:31:21 GMT
+
+https://screenrant.com/video/the-mandalorian-grogu-pitch-meeting/
+
+ScreenRant's Pitch Meeting series goes the way of The Mandalorian & Grogu and how it offers little evolution to the hit Star Wars series.
+---------
+
+# Finally, Paramount+’s Criminal Minds Does One Thing Better Than CBS’s Iconic Run
+
+Network TV, Criminal Minds
+
+Fri, 12 Jun 2026 20:31:21 GMT
+
+https://screenrant.com/criminal-minds-paramount-plus-darker-than-cbs-run/
+
+Criminal Minds: Evolution delves deeper into the minds of criminals and their crimes, allowing the series to explore darker themes and grittier cases.
+---------
+
+# Alan Ritchson's Sci-Fi Action Movie Is So Good, A Sequel Is Already Confirmed
+
+Movies, Masked Recs
+
+Fri, 12 Jun 2026 20:13:21 GMT
+
+https://screenrant.com/war-machine-alan-ritchson-sequel-confirmed-franchise-netflix-future/
+
+Alan Ritchson's Netflix sci-fi movie sequel proves the Reacher star's leading man appeal extends beyond Prime Video's hit action thriller series.
+---------
+
+# The Batman 2’s First Shot Revealed By Matt Reeves As Filming Begins
+
+Movies, The Batman Part II, DC Universe, Batman
+
+Fri, 12 Jun 2026 20:12:13 GMT
+
+https://screenrant.com/the-batman-part-2-first-look-image-filming/
+
+Matt Reeves announces that The Batman - Part II has officially started filming, as the director reveals a brand new look at the upcoming DC sequel.
+---------
+
+# 3 Best Movies To Watch On Netflix This Weekend (June 13-14)
+
+Movies, Netflix, Recommendation
+
+Fri, 12 Jun 2026 20:00:22 GMT
+
+https://screenrant.com/best-netflix-movies-watch-weekend-june-13/
+
+The best movies to watch on Netflix this weekend are a gritty new crime thriller, an original romance, and Hugh Jackman's biggest crowdpleaser.
+---------
+
+# 10 Famous Actors You Completely Forgot Appeared in Godzilla Movies
+
+Movies, Godzilla
+
+Fri, 12 Jun 2026 21:00:14 GMT
+
+https://www.cbr.com/famous-actors-in-godzilla-movies-that-no-one-remembers-list/
+
+Godzilla has worked with some famous co-stars in the past, including a few notable names that some people might have forgotten.
+---------
+
+# Say Goodbye to a Major Streaming Service as Disney Quietly Announces Phaseout
+
+TV, Hulu, Disney+
+
+Fri, 12 Jun 2026 20:47:35 GMT
+
+https://www.cbr.com/disney-plus-hulu-profile-linking-phaseout/
+
+Although Disney paused the plans for a complete takeover, the most recent move teases that the phaseout plans are still happening.
+---------
+
+# Supergirl Star Milly Alcock Reveals the Scene That Felt Most Vulnerable
+
+Movies, Supergirl
+
+Fri, 12 Jun 2026 20:33:18 GMT
+
+https://www.cbr.com/video/supergirl-star-milly-alcock-reveals-the-scene-that-felt-most-vulnerable/
+
+Supergirl star Milly Alcock reveals the emotional challenge behind Kara Zor-El’s silent scream, while director Craig Gillespie discusses the Star Wars influences that shaped the film.
+---------
+
+# Hulu's 3-Season Comedy Turns Into Netflix Hit 5 Years Later
+
+TV, Shrill
+
+Fri, 12 Jun 2026 20:31:00 GMT
+
+https://www.cbr.com/shrill-netflix-streaming-hit-june-2026/
+
+A Hulu hit finds new streaming success after moving to Netflix five years after its final episode.
+---------
+
+# Apple TV's Easy-to-Binge Masterpiece Is the Smartest Sci-Fi Show Since Black Mirror
+
+TV, Severance, Apple TV, Sci-Fi
+
+Fri, 12 Jun 2026 20:30:13 GMT
+
+https://www.cbr.com/apple-tv-severance-smart-as-black-mirror/
+
+Apple TV's brilliant sci-fi show uses its strange and inventive premise to reflect on real-world themes, including corporate greed.
+---------
+
+# 10 Saddest Deaths in the Star Wars Movies, Ranked
+
+Movies, Star Wars
+
+Fri, 12 Jun 2026 20:30:13 GMT
+
+https://www.cbr.com/star-wars-movies-saddest-deaths-list/
+
+Star Wars features some truly tragic losses but fans are still finding it hard to get over these deaths.
+---------
+
+# Matt Reeves Reveals First Official Look at The Batman 2
+
+Movies, The Batman Part II, Batman, superheroes
+
+Fri, 12 Jun 2026 20:27:28 GMT
+
+https://www.cbr.com/the-batman-2-first-look-filming/
+
+The Batman Part II is officially underway.
+---------
+
+# 4 Years Later, Cyberpunk: Edgerunners Officially Gets a New Ending
+
+Anime, Cyberpunk: Edgerunners, Cyberpunk 2077
+
+Fri, 12 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/wuthering-heights-cyberpunk-edgerunners-new-ending/
+
+Cyberpunk: Edgerunners finally gives Lucy and David the reunion of fans' dreams in a new collaboration with Wuthering Heights.
+---------
+
+# Marvel Reveals Black Cat's Daring New Retro-Inspired Redesign
+
+Comics, Marvel, comic books, black cat, Marvel Comics
+
+Fri, 12 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/black-cat-14-release-date-confirmed-new-costume/
+
+Black Cat gets an old school sci-fi redesign.
+---------
+
+# Jujubee and Ginger Minj Are the Comedic Duo You Didn't Know You Needed | Stop! That! Train!
+
+Movies, Stop! That! Train!, RuPaul's Drag Race, Originals
+
+Fri, 12 Jun 2026 19:59:10 GMT
+
+https://www.cbr.com/video/jujubee-and-ginger-minj-are-the-comedic-duo-you-didn-t-know-you-needed-stop-that-train/
+
+Drag Race Superstars Ginger Minj and Jujubee have now competed in the ultimate acting maxi challenge: Stop! That Train! Together they sit down with CBR's Grae Drake to get drop dead gorgeous and DRAW.What's it like to get a bunch of Queens together on set? When WON'T Jujubee read a girl? How haunted WAS Ginger Minj's childhood home? They're just a couple of beautiful clowns and they're here to make you laugh!
+---------
+
+# Jake Johnson's Return to TV in New 'Brooklyn Nine-Nine' Dupe Arrives in 7 Months
+
+TV News, Jake Johnson, Brooklyn Nine-Nine, Keith David, NBC
+
+Fri, 12 Jun 2026 20:57:13 GMT
+
+https://collider.com/sunset-pi-jake-johnson-brooklyn-nine-nine-dupe-return-tv-nbc-february-2027/
+
+Jake Johnson's new workplace sitcom, Sunset P.I., from the creators of Brooklyn Nine-Nine, will bring him back to network television in seven months.
+---------
+
+# This All-Star 3-Part Action Series Is One of Christopher Nolan’s Greatest Adaptations
+
+Movie Features, Christopher Nolan, Batman Begins, The Dark Knight, The Dark Knight Rises
+
+Fri, 12 Jun 2026 20:50:14 GMT
+
+https://collider.com/greatest-batman-adaptations-christopher-nolan-dark-knight-trilogy/
+
+Christopher Nolan rose to Hollywood greatness with the Dark Knight trilogy, which remains one of the best silver screen adaptations of Batman.
+---------
+
+# 8 TV Sitcom Endings That Are Genuine Masterpieces
+
+TV, Sitcom, Parks and Recreation, Schitt's Creek, New Girl
+
+Fri, 12 Jun 2026 20:02:15 GMT
+
+https://collider.com/tv-sitcom-endings-masterpieces/
+
+It's an achievement to end a series well, but TV sitcoms like Schitt's Creek and Parks and Recreation have endings that are genuine masterpieces.
+---------
+
+# Tom Hardy's 'MobLand' Season 3 Return Gets Official Support From Co-Star
+
+TV News, Helen Mirren, Tom Hardy, MobLand, Guy Ritchie
+
+Fri, 12 Jun 2026 20:00:14 GMT
+
+https://collider.com/mobland-season-3-tom-hardy-return-helen-mirren-comments/
+
+Helen Mirren has offered a hopeful update on Tom Hardy’s potential MobLand return, encouraging support for his Season 3 comeback.
+---------
+
+# A24's Viral Horror Hit Climbs to All-Time Box Office Heights
+
+Movie News, Backrooms, A24, Horror, Box Office
+
+Fri, 12 Jun 2026 19:40:14 GMT
+
+https://collider.com/backrooms-a24-horror-movie-top-50-box-office-220-million/
+
+A24's viral horror hit, Backrooms, has officially become one of the highest-grossing horror movies of all time at the box office.
+---------
+
+# New Transformers Movie Officially Confirmed
+
+Movie News, Transformers, Paramount, Michael Bay, Transformers: Rise of the Beasts
+
+Fri, 12 Jun 2026 19:39:07 GMT
+
+https://collider.com/new-transformers-movie-announced-paramount-jason-fuchs-writing/
+
+A new Transformers movie is officially in development at Paramount, with IT: Welcome to Derry’s Jason Fuchs writing the script.
+---------
+
+# Netflix’s New #1 Hit Scores 1 Billion Minutes Viewed in a Single Week
+
+Movie News, GOAT, Caleb McLaughlin, Netflix, Stephen Curry
+
+Fri, 12 Jun 2026 19:29:24 GMT
+
+https://collider.com/goat-movie-streaming-success-netflix-1-billion-views-one-week/
+
+One week after its debut on Netflix, Sony’s new movie GOAT has scored over 1 billion minutes viewed. Read on for more details.
+---------
+
+# 10 Greatest Neo-Noir Mystery Movies of All Time
+
+Movie, Film Noir, Batman: Mask of the Phantasm, Mystery, Chinatown
+
+Fri, 12 Jun 2026 19:29:14 GMT
+
+https://collider.com/best-neo-noir-mystery-movies-all-time-ranked/
+
+Oscar-winning gems like L.A. Confidential and modern masterpieces like Decision to Leave are among the greatest neo-noir mystery movies ever made.
+---------
+
+# Netflix’s Spielbergian Sci-Fi Stunner Peaks at 117M Total Views
+
+TV News, The Boroughs, Netflix, Duffer Brothers, Alfred Molina
+
+Fri, 12 Jun 2026 19:20:14 GMT
+
+https://collider.com/netflix-sci-fi-series-the-boroughs-117-million-views-june-2026/
+
+The Duffer brothers' new sci-fi show on Netflix has peaked with around 117 million total views, but it has yet to be renewed for Season 2.
+---------
+
+# 10 Near-Perfect Thriller Shows Nobody Remembers
+
+TV, Thriller, State of Play, Counterpart, Utopia
+
+Fri, 12 Jun 2026 19:08:14 GMT
+
+https://collider.com/forgotten-thriller-shows-near-perfect/
+
+Explore underrated thriller TV shows that have been overlooked by audiences, including hidden gems like State of Play, Counterpart, and Utopia.
+---------
+
+# The 10 Best MMA Movies of All Time, Ranked
+
+Movie Lists, Martial Arts, Action
+
+Fri, 12 Jun 2026 21:00:19 GMT
+
+https://movieweb.com/best-mma-movies-of-all-time-ranked/
+
+From 'Warrior' to the 'Undisputed' franchise, how do the best MMA movies of all time stack up?
+---------
+
+# Sonic' Star Ben Schwartz Cast in Sam Mendes' 'Beatles' Biopic
+
+Movie News, The Beatles - Four Films, Ben Schwartz
+
+Fri, 12 Jun 2026 20:51:35 GMT
+
+https://movieweb.com/beatles-biopic-cast-ben-schwartz/
+
+Ben Schwartz, known for his leading role in 'Sonic the Hedgehog,' will now pay a role in Sam Mendes' new Beatles biopic.
+---------
+
+# Matt Reeves Shares New Look at 'The Batman 2' as Sequel Begins Production
+
+Movie News, The Batman Part II, The Batman, Matt Reeves
+
+Fri, 12 Jun 2026 20:27:16 GMT
+
+https://movieweb.com/the-batman-2-begins-filming-new-image/
+
+It's been a long four years, but the highly anticipated sequel has now begun filming.
+---------
+
+# Tom Cruise Reunites With Steven Spielberg Co-Stars for New Sci-Fi Thriller Debut
+
+Movie News, Tom Cruise, Steven Spielberg, Colin Farrell, Dakota Fanning
+
+Fri, 12 Jun 2026 20:25:50 GMT
+
+https://movieweb.com/tom-cruise-steven-spielberg-minority-report-reunion/
+
+The actor shared a picture of himself with 'Minority Report' co-star Colin Farrell and 'War of the Worlds' co-star Dakota Fanning.
+---------
+
+# Henry Cavill's 90-Minute Action Thriller Flop Finds Redemption to Become Streaming Smash Hit
+
+Movie News, Henry Cavill, Night Hunter, Action, Crime, Thriller
+
+Fri, 12 Jun 2026 19:00:19 GMT
+
+https://movieweb.com/henry-cavill-night-hunter-stream-june-2026/
+
+The action thriller, which only made $1 million at the box office, returns to the charts.
+---------
+
 # After 8 Years, The Greatest Modern Manga Creator Is Finally Returning With A New Series
 
 Anime
