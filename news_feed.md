@@ -1,3 +1,355 @@
+# Bosch Meets Lovecraftian Horror In 1 Of The Greatest Crime Thrillers Of The Century
+
+Streaming TV, Masked Recs
+
+Fri, 12 Jun 2026 01:30:21 GMT
+
+https://screenrant.com/true-detective-season-1-lovecraftian-bosch/
+
+One of the greatest crime thrillers of the century delivers a perfect blend of Bosch’s procedural drama with hints Lovecraftian horror storytelling.
+---------
+
+# Star Wars Gets New Open-World RPG You Can Play Free Now
+
+Gaming, Star Wars, Fortnite, PC, RPG
+
+Fri, 12 Jun 2026 01:00:22 GMT
+
+https://screenrant.com/star-wars-open-world-rp-fortnite-map/
+
+Star Wars fans are in for a treat with a brand-new open-world RPG they can play entirely for free right now, no strings attached.
+---------
+
+# Upcoming Space Opera Adaptation Is The Expanse Without Hard Sci-Fi
+
+Streaming TV, Masked Recs
+
+Fri, 12 Jun 2026 00:45:21 GMT
+
+https://screenrant.com/expanse-skyward-brandon-sanderson-space-opera/
+
+An upcoming space opera, which is based on a bestselling YA sci-fi book series, seems like the perfect Expanse replacement without the hard sci-fi.
+---------
+
+# How Old All 5 Shelby Siblings Are In Every Season Of Peaky Blinders
+
+Streaming TV, Peaky Blinders, Peaky Blinders: The Immortal Man
+
+Fri, 12 Jun 2026 00:30:22 GMT
+
+https://screenrant.com/how-old-shelby-siblings-are-peaky-blinders/
+
+Peaky Blinders jumps through several decades of the 20th century, and the five main Shelby siblings age quite a bit over its six seasons and a movie.
+---------
+
+# 9 Years Later, Crunchyroll's Solo Leveling Meets Death Note Anime Is Going Off The Rails In The Best Way
+
+Anime, Masked Recs, Crunchyroll
+
+Fri, 12 Jun 2026 00:30:21 GMT
+
+https://screenrant.com/classroom-elite-solo-leveling-meets-death-note-off-rails/
+
+After nearly a decade, Crunchyroll's perfect blend of Solo Leveling and Death Note is ending one of its seasons with everything fans have waited for.
+---------
+
+# Masters Of The Universe's Ending May Have Just Revealed How He-Man Meets A Major Missing Hero
+
+Movies, Masters of the Universe
+
+Fri, 12 Jun 2026 00:00:21 GMT
+
+https://screenrant.com/masters-of-the-universe-avion-village-stratos-setup/
+
+The ending of Masters of the Universe may provide a hint as to how one of the biggest missing heroes finally meets He-Man.
+---------
+
+# 10 Greatest Star Trek Actors of All Time
+
+Star Trek
+
+Fri, 12 Jun 2026 00:00:21 GMT
+
+https://screenrant.com/star-trek-best-actors/
+
+It's impossible to imagine Star Trek without these amazing actors.
+---------
+
+# 6 Characters Missing From Masters Of The Universe We Need To See In The Sequel
+
+Movies, Masters of the Universe
+
+Fri, 12 Jun 2026 00:00:21 GMT
+
+https://screenrant.com/6-characters-missing-from-masters-of-the-universe-we-need-to-see-in-the-sequel/
+
+Masters of the Universe had a great cast of characters, but there were some notable omissions that a possible sequel should make up for.
+---------
+
+# Before John Carpenter's The Thing, There Was Another Classic Sci-Fi Movie That Adapted The Same Story
+
+Movies, The Thing, The Thing from Another World
+
+Fri, 12 Jun 2026 00:00:21 GMT
+
+https://screenrant.com/the-thing-from-another-world-movie-adaptation/
+
+John Carpenter's The Thing is a sci-fi horror classic, but decades before his vision haunted the big screen, there was another adaptation.
+---------
+
+# The Last Of Us Season 3 Casts Peter Sarsgaard  For Original Character
+
+TV, The Last of Us
+
+Thu, 11 Jun 2026 23:51:13 GMT
+
+https://screenrant.com/the-last-of-us-season-3-peter-sarsgaard-cast/
+
+The Last of Us season 3 just cast an Emmy-nominated actor in a role that was created solely for the hit HBO video game adaptation.
+---------
+
+# 10 Greatest SNES Masterpieces of All Time
+
+Games, Nintendo, Video Games, Super Mario Kart, Super Mario World 2: Yoshi's Island (dupe), Mortal Kombat II
+
+Fri, 12 Jun 2026 01:31:14 GMT
+
+https://www.cbr.com/greatest-snes-masterpieces-of-all-time/
+
+The SNES is one of Nintendo's most prominent consoles and continues to thrill audiences all these years later.
+---------
+
+# 7 Strongest Dragon Ball Villains Who Rival Beerus, Ranked
+
+Anime, Dragon Ball, Akira Toriyama
+
+Fri, 12 Jun 2026 01:00:14 GMT
+
+https://www.cbr.com/dragon-ball-villains-stronger-than-beerus/
+
+Dragon Ball's Beerus is one of the franchise's most powerful players, yet there are some strong villains who could potentially give him pause.
+---------
+
+# 25 Games 2000s Kids Will Be Nostalgic For
+
+Games, retro games, Video Games, Pokemon
+
+Fri, 12 Jun 2026 01:00:14 GMT
+
+https://www.cbr.com/nostalgic-2000s-video-games/
+
+Video games like the Sims and Star Wars: Battlefront (2004) are particularly nostalgic for gamers who grew up in the 2000s.
+---------
+
+# Every Persona Game, Ranked
+
+Games, Persona 5, Atlus (1), Video Games
+
+Fri, 12 Jun 2026 00:45:13 GMT
+
+https://www.cbr.com/best-persona-games-ever-ranked/
+
+Persona 2: Eternal Punishment and Persona 5 are among the best installments in Atlus's cherished RPG franchise.
+---------
+
+# It’s Officially the End of an Era for Doctor Who
+
+TV, Doctor Who
+
+Fri, 12 Jun 2026 00:30:13 GMT
+
+https://www.cbr.com/doctor-who-cancled-christmas-episode/
+
+The recently cancelled special paves the way for an exciting new era of Doctor Who.
+---------
+
+# John Wick 4’s 'Dragon’s Breath' Scene Is Still Peak Action
+
+Movies, John Wick 4
+
+Fri, 12 Jun 2026 00:30:13 GMT
+
+https://www.cbr.com/john-wick-4-dragons-breath-fight-best-action-scene/
+
+John Wick is one of the greatest action franchises ever, but John Wick 4 has one scene that is the best of them all.
+---------
+
+# HBO Is Still Missing Game of Thrones' Strongest Targaryen Warrior
+
+TV, Game Of Thrones, House of the Dragon, hbo
+
+Fri, 12 Jun 2026 00:30:13 GMT
+
+https://www.cbr.com/game-of-thrones-visenya-targaryen-explained/
+
+House Targaryen often celebrates its male heroes, from Aegon the Conqueror to Jaehaerys I. One other influential Targaryen is also its most forgotten.
+---------
+
+# 10 Anime That Became Cult Classics
+
+Anime
+
+Fri, 12 Jun 2026 00:15:12 GMT
+
+https://www.cbr.com/greatest-anime-cult-classics/
+
+Series like Monster and Revolutionary Girl Utena have proven that even if an amazing anime doesn't go mainstream, it can still be a cult classic.
+---------
+
+# The Strongest Transformers in the Franchise, Ranked
+
+Anime, Transformers
+
+Fri, 12 Jun 2026 00:01:15 GMT
+
+https://www.cbr.com/transformers-strongest-ranked/
+
+The strongest Transformers scale above the most popular Autobots and Decepticons into godlike territory, where only giant Titans reign supreme.
+---------
+
+# Marvel Officially Stripped Wolverine of His Healing Factor
+
+Comics, Wolverine, comics, Marvel Comics, X-Men
+
+Fri, 12 Jun 2026 00:01:14 GMT
+
+https://www.cbr.com/wolverine-21-healing-factor-lost-confirmed/
+
+In a shocking turn of events, Wolverine's most prized asset has been taken away, leaving him vulnerable and fighting for survival.
+---------
+
+# Stephen King’s 10/10 Netflix Horror Pick Is a Gothic Masterpiece From Start to Finish
+
+TV Features, The Fall of the House of Usher, Mike Flanagan, Bruce Greenwood, Netflix
+
+Fri, 12 Jun 2026 01:36:13 GMT
+
+https://collider.com/netflix-gothic-horror-fall-of-the-house-of-usher-stephen-king-pick-masterpiece/
+
+Stephen King has praised Mike Flanagan's adaptation of Edgar Allan Poe's classic tale as a modern horror masterpiece on Netflix.
+---------
+
+# Wonder Woman Prequel Series Officially Moves Forward With New Writers
+
+TV News, DCU, Paradise Lost, James Gunn, Wonder Woman (DCU)
+
+Fri, 12 Jun 2026 01:00:14 GMT
+
+https://collider.com/dcu-paradise-lost-wonder-woman-prequel-writers-kira-snyder-janet-lin/
+
+Paradise Lost, the DCU's Wonder Woman prequel series, appears to have found its head writers in Kira Snyder and Janet Lin. Here's what we know.
+---------
+
+# 10 Greatest Sci-Fi Opening Shots of All Time
+
+Movie, Star Wars: Episode IV - A New Hope, A Clockwork Orange, Blade Runner, 2001: A Space Odyssey
+
+Fri, 12 Jun 2026 00:45:13 GMT
+
+https://collider.com/best-opening-shots-from-sci-fi-movies-ranked/
+
+Some of the best opening shots from the sci-fi genre can be found in classic movies like A Clockwork Orange, Blade Runner, and Star Wars.
+---------
+
+# This Shocking 4-Part Sitcom Has Aged So Poorly It Deserves To Be Called Out
+
+TV Features, My Boys, Jordana Spiro, Jim Gaffigan, Reid Scott
+
+Fri, 12 Jun 2026 00:13:13 GMT
+
+https://collider.com/my-boys-sitcom-tbs-aged-poorly/
+
+My Boys was a problematic TBS sitcom that followed a female protagonist struggling to find love due to her "masculine" interests.
+---------
+
+# 10 Greatest Final Movie Lines of All Time
+
+Movie, Casablanca, Chinatown, Eternal Sunshine of the Spotless Mind, Some Like It Hot
+
+Fri, 12 Jun 2026 00:11:14 GMT
+
+https://collider.com/best-movie-final-lines-all-time-ranked/
+
+Movies like The Silence of the Lambs and Some Like It Hot feature the all-time best final lines in cinematic history, which stay with you for good.
+---------
+
+# 10 Best Blockbuster Western Movies
+
+Movie, Dances With Wolves, The Good, the Bad and the Ugly, Butch Cassidy and the Sundance Kid, Django Unchained
+
+Thu, 11 Jun 2026 23:48:15 GMT
+
+https://collider.com/best-blockbuster-western-movies-ranked/
+
+Huge and successful blockbuster Westerns include classics like Dances with Wolves and Unforgiven alongside newer movies like The Revenant.
+---------
+
+# 'Backrooms' Quietly Hides an Easter Egg for Kane Parsons' Latest YouTube Liminal Thriller Series
+
+Movie Features, Backrooms, Kane Parsons, Horror, The Oldest View
+
+Thu, 11 Jun 2026 23:21:14 GMT
+
+https://collider.com/backrooms-kane-parsons-youtube-series-the-oldest-view-reverchon-ventures/
+
+Kane Parsons' A24 film Backrooms has been a massive hit for the horror genre, and secretly ties to his YouTube series The Oldest View.
+---------
+
+# 15 Longest-Running Animated Shows, Ranked
+
+TV, Animation, South Park, The Simpsons, Futurama
+
+Thu, 11 Jun 2026 23:12:13 GMT
+
+https://collider.com/animated-shows-longest-running-ranked/
+
+From South Park to The Simpsons, the longest-running animated shows of all time are massively popular and crucial parts of TV history.
+---------
+
+# 10 'The Batman' Episodes That Are Considered Masterpieces
+
+TV, The Batman, Cartoon Network, The WB, Superhero
+
+Thu, 11 Jun 2026 23:10:13 GMT
+
+https://collider.com/best-the-batman-episodes-masterpieces/
+
+The 2000s animated series The Batman is an underrated superhero saga, and episodes like "Artifacts" and "A Matter of Family" are masterpieces.
+---------
+
+# Stephen King's Supernatural Thriller 'Smile' Replacement Story Getting an Adaptation
+
+Movie News, Stephen King, Horror
+
+Fri, 12 Jun 2026 00:52:09 GMT
+
+https://movieweb.com/stephen-king-mister-yummy-movie/
+
+The author's story 'Mister Yummy' has a lot in common with the Parker Finn movie series.
+---------
+
+# Glen Powell's 95% RT-Rated Thriller Officially Getting a Netflix Spin-Off
+
+TV News, Hit Man, Glen Powell, Netflix
+
+Fri, 12 Jun 2026 00:03:11 GMT
+
+https://movieweb.com/glen-powell-hit-man-spin-off-show-netflix/
+
+His 2024 'Hit Man' is set to be revived in a new format.
+---------
+
+# HBO’s Political Thriller Masterpiece No One Remembers Gets Better Every Day
+
+Features, The Newsroom
+
+Fri, 12 Jun 2026 00:00:19 GMT
+
+https://movieweb.com/the-newsroom-hbo-thriller-holds-up/
+
+HBO is known for some of the most memorable TV series of all time, including 'The Sopranos' and 'The Wire,' and one political thriller is underrated.
+---------
+
 # We're Officially 6 Months Away From A $2.8 Billion Sci-Fi Movie Franchise's Return
 
 Movies, Masked Recs
