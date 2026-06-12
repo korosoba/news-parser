@@ -1,3 +1,410 @@
+# After 8 Years, The Greatest Modern Manga Creator Is Finally Returning With A New Series
+
+Anime
+
+Fri, 12 Jun 2026 18:42:07 GMT
+
+https://screenrant.com/naoki-urasawa-new-series-final-manga-classroom/
+
+The creator of Monster and Pluto is back.
+---------
+
+# Marvel's Iron Man Series Officially Returns On Disney+ With New Episodes
+
+Superheroes, Masked Recs
+
+Fri, 12 Jun 2026 18:34:01 GMT
+
+https://screenrant.com/iron-man-disney-plus-marvel-series-june-2026/
+
+Iron Man has officially returned in 2026 with a new batch of episodes on Disney+, and the Marvel series also features other major heroes and villains.
+---------
+
+# The Super Mario Galaxy Movie Pitch Meeting
+
+Movies, The Super Mario Galaxy Movie, Super Mario, Screen Rant Pitch Meetings
+
+Fri, 12 Jun 2026 18:30:20 GMT
+
+https://screenrant.com/video/the-super-mario-galaxy-movie-pitch-meeting/
+
+ScreenRant's Pitch Meeting series returns to the Mushroom Kingdom for The Super Mario Galaxy Movie and its razor-thin plot and reference focus.
+---------
+
+# Star Trek’s Most Dangerous Decade Wasn’t The One Fans Think
+
+TV, Star Trek
+
+Fri, 12 Jun 2026 18:30:20 GMT
+
+https://screenrant.com/star-trek-most-dangerous-decade-after-tng/
+
+The Borg and the Dominion War threatened the Federation in the 2370s, but an even more dangerous decade for Star Trek's galaxy immediately followed.
+---------
+
+# 10 Greatest Steven Spielberg Movies Of All Time
+
+Movies, Steven Spielberg, Jaws, Raiders of the Lost Ark, Indiana Jones and the Last Crusade, Catch Me If You Can, Saving Private Ryan, E.T. the Extra-Terrestrial, Jurassic Park, Close Encounters of The Third Kind, Schindler's List, The Adventures of Tintin
+
+Fri, 12 Jun 2026 18:30:20 GMT
+
+https://screenrant.com/10-greatest-steven-spielberg-movies-of-all-time/
+
+Steven Spielberg is one of the greatest and most influential directors to come out of Hollywood, and these are the ten best movies he's ever made.
+---------
+
+# Jinsei Is Heartbreaking, Hilarious, Horrifying, And Harrowing
+
+Movies, Jinsei
+
+Fri, 12 Jun 2026 18:20:20 GMT
+
+https://screenrant.com/jinsei-movie-rec/
+
+Jinsei's mix of raw emotion, unexpected turns, and ambitious storytelling makes for an unforgettable experience that anime fans need to see.
+---------
+
+# Tom Cruise Praises Steven Spielberg’s “Superb” New Sci-Fi Thriller 21 Years After Last Collaboration
+
+Movies, Disclosure Day
+
+Fri, 12 Jun 2026 18:13:33 GMT
+
+https://screenrant.com/tom-cruise-steven-spielberg-disclosure-day-praise/
+
+War of the Worlds star Tom Cruise heaps praise on Steven Spielberg and the crew of artists who helped him create his “superb” new science fiction hit.
+---------
+
+# Michael Officially Smashes 8-Year-Old Record To Become #1 Music Biopic Of All Time
+
+Movies, Box Office, Michael
+
+Fri, 12 Jun 2026 18:10:33 GMT
+
+https://screenrant.com/michael-movie-box-office-bohemian-rhapsody-comparison-music-biopic-record/
+
+The 2026 Michael Jackson biopic kicks off its eighth weekend in theaters by smashing a long-held record to become the highest-grossing music biopic.
+---------
+
+# How Far In The Future The Boys Series Finale's Time Jump Is Addressed By Erin Moriarty
+
+TV, The Boys
+
+Fri, 12 Jun 2026 18:09:36 GMT
+
+https://screenrant.com/the-boys-series-ending-time-jump-how-far-erin-moriarty/
+
+Exclusive: The Boys star Erin Moriarty reveals how far into the future the series finale's time jump is, and the significance to her character.
+---------
+
+# The Big Bang Theory Is Officially Changing Format
+
+Streaming TV, Masked Recs
+
+Fri, 12 Jun 2026 18:06:22 GMT
+
+https://screenrant.com/the-big-bang-theory-changing-format-hbo-max-spinoff/
+
+The Big Bang Theory franchise is getting a fourth show in the series, though this one is changing the format of the sitcom in more ways than one.
+---------
+
+# Hugh Jackman's Gritty Action Movie Based on Iconic Outlaw Debuts to Strong Rotten Tomatoes Score
+
+Movies, The Death of Robin Hood, Rotten Tomatoes
+
+Fri, 12 Jun 2026 18:56:38 GMT
+
+https://www.cbr.com/hugh-jackman-the-death-of-robin-hood-rotten-tomatoes-score/
+
+The gritty movie has yet to hit theaters but critics have reacted positively.
+---------
+
+# Netflix Is Finally Expanding Stranger Things Season 5 Next Month After Controversial Finale
+
+TV, Stranger Things
+
+Fri, 12 Jun 2026 18:32:26 GMT
+
+https://www.cbr.com/stranger-things-the-complete-scripts-season-5/
+
+Fans can dive deeper into the fifth and final season of Stranger Things next month.
+---------
+
+# Colin Farrell Confirms The Penguin's Role In The Batman Part II
+
+Movies, The Batman, The Batman Part II, The Penguin, DC Comics, DCU, Clayface
+
+Fri, 12 Jun 2026 18:18:46 GMT
+
+https://www.cbr.com/colin-farrell-confirms-the-penguins-role-in-the-batman-part-ii/
+
+The Penguin's role in The Batman Part II is officially confirmed, and it's unexpected.
+---------
+
+# 5 Superhero Anime That Rival Western Comics
+
+Anime, My Hero Academia, One-Punch Man, superheroes
+
+Fri, 12 Jun 2026 18:15:14 GMT
+
+https://www.cbr.com/greatest-superhero-anime-rival-western-comics/
+
+These outstanding superhero anime stand shoulder to shoulder with the best stories from Western comics.
+---------
+
+# Paramount's 5-Season Western Masterpiece Is the No. 1 Show on Digital in the U.S.
+
+TV, Yellowstone, Western, Paramount
+
+Fri, 12 Jun 2026 18:00:14 GMT
+
+https://www.cbr.com/yellowstone-neo-western-masterpiece-pvod-success-june-2026/
+
+The neo-Western drama Yellowstone is dominating the PVOD charts 2 years after the show's finale.
+---------
+
+# 2 New Berserk Chapters Get Official Release Dates
+
+Anime, Berserk, Dark Horse Comics
+
+Fri, 12 Jun 2026 18:00:14 GMT
+
+https://www.cbr.com/berserk-manga-new-release-dates/
+
+Dark Horse has officially announced the release date for the next two chapters of Berserk, with the story inching ever closer to its conclusion.
+---------
+
+# Marvel's First Superhero: Why Stan Lee's Greatest Hero Was One He Never Created
+
+Comics, Marvel
+
+Fri, 12 Jun 2026 18:00:14 GMT
+
+https://www.cbr.com/the-human-torch-greatest-hero-not-stan-lee-creation/
+
+Stan Lee has such an undeniable influence on the current state of Marvel, but one iconic character does not owe their success to the creator.
+---------
+
+# Matt Damon's $1.6B James Bond Replacement Gets Encouraging Update 1 Year After Creative Shakeup
+
+Movies, Jason Bourne, matt damon
+
+Fri, 12 Jun 2026 17:43:31 GMT
+
+https://www.cbr.com/matt-damon-jason-bourne-6-update/
+
+The last film in the franchise premiered 10 years ago, but the series still has a glimmer of hope.
+---------
+
+# The Penguin's Fate at HBO Revealed After 2 Years
+
+TV, The Penguin, hbo
+
+Fri, 12 Jun 2026 17:40:51 GMT
+
+https://www.cbr.com/the-penguin-season-2-fate-hbo/
+
+With production about to begin on The Batman Part II, the fate of the acclaimed HBO series The Penguin has been revealed.
+---------
+
+# Hasbro's New 10/10 Fantasy Hit Is the Perfect Lord of the Rings Replacement
+
+Movies, The Lord of the Rings, Magic: The Gathering, Fantasy
+
+Fri, 12 Jun 2026 17:30:13 GMT
+
+https://www.cbr.com/magic-the-gathering-movie-perfect-lord-of-the-rings-replacement/
+
+The Lord of hte Rings is the perfect fantasy foundation for the modern age but Magic: The Gathering's upcoming film coudl shake all that up.
+---------
+
+# 'Stranger Things' Gets Official New Release Next Month
+
+TV News, Stranger Things, Stranger Things: Tales from '85, Netflix, Duffer Brothers
+
+Fri, 12 Jun 2026 18:37:14 GMT
+
+https://collider.com/netflix-stranger-things-season-5-complete-scripts-july-2026/
+
+After Season 5 seemingly brought the story of Hawkins to a close, Stranger Things is getting a brand new release starting next month.
+---------
+
+# Vox Machina Season 4 Made the Cast Cry in the Booth | Set Stories
+
+TV, The Legend of Vox Machina
+
+Fri, 12 Jun 2026 18:15:15 GMT
+
+https://collider.com/video/vox-machina-season-4-made-the-cast-cry-in-the-booth-set-stories/
+
+Discover why The Legend of Vox Machina Season 4 left cast members emotional in the recording booth, as the hit Critical Role adaptation delivers powerful character moments, shocking twists, and its most heartfelt season yet.
+---------
+
+# Graham Norton Solved a Talk Show Problem American TV Still Can’t Fix
+
+TV Features, Graham Norton, The Graham Norton Show, BBC, Jimmy Fallon
+
+Fri, 12 Jun 2026 18:03:14 GMT
+
+https://collider.com/graham-norton-show-comparison-american-talk-shows/
+
+The Graham Norton Show succeeds by letting guests lead the conversation, creating spontaneous moments American talk shows rarely match.
+---------
+
+# Louis Finally Steals the Spotlight in New ‘The Vampire Lestat’ Sneak Peek [Exclusive]
+
+TV News, Interview with the Vampire, Sam Reid, AMC, AMC+
+
+Fri, 12 Jun 2026 18:00:14 GMT
+
+https://collider.com/interview-with-the-vampire-season-3-episode-2-sneak-peek/
+
+Daniel Molloy appears more interested in the people around Lestat, particularly Louis, in a new sneak peek from The Vampire Lestat Episode 2.
+---------
+
+# 'NCIS: Tony & Ziva' Stars Set First Major Appearance After Shock Cancellation
+
+TV News, NCIS: Tony & Ziva, Michael Weatherly, Cote de Pablo, Paramount Plus
+
+Fri, 12 Jun 2026 17:28:59 GMT
+
+https://collider.com/ncis-tony-and-ziva-michael-weatherly-cote-de-pablo-reunion-brussels-expo/
+
+After the cancellation of NCIS: Tony & Ziva, Michael Weatherly and Cote de Pablo have set their first major convention appearance in Brussels.
+---------
+
+# 'The Simpsons' Is Officially Making Its Biggest TV Change Yet
+
+TV Features, The Simpsons, Disney+, Hulu, Fox
+
+Fri, 12 Jun 2026 17:28:13 GMT
+
+https://collider.com/the-simpsons-disney-plus-episodes-airing-off-season-fox/
+
+The Simpsons is now airing a few episodes per season exclusively on Disney+ in an effort to draw more streaming subscribers and retain them.
+---------
+
+# 'The Night Agent' Is Officially Fixing One of Its Biggest Mistakes
+
+TV News, The Night Agent, Netflix, Gabriel Basso, Shawn Ryan
+
+Fri, 12 Jun 2026 17:24:16 GMT
+
+https://collider.com/netflix-the-night-agent-final-season-4-cast-luciane-buchanan-rose-return/
+
+After sitting out Season 3, a fan-favorite star of The Night Agent will return to the Netflix series for the fourth and final season.
+---------
+
+# 3 Stephen King Story Collections As Good as His Best Novels
+
+Movie, Stephen King, The Shawshank Redemption, Apt Pupil, Stand by Me
+
+Fri, 12 Jun 2026 17:04:14 GMT
+
+https://collider.com/stephen-king-story-collections-good-as-novels/
+
+Some of Stephen King's short story and novella collections, like Skeleton Crew and Night Shift, rival the quality of his very best novels.
+---------
+
+# 'The Pitt's Best Doctor Is Officially Headed Back to Set for Season 3
+
+TV News, The Pitt, Noah Wyle, HBO Max, Shawn Hatosy
+
+Fri, 12 Jun 2026 16:55:55 GMT
+
+https://collider.com/the-pitt-season-3-filming-start-june-2026-shawn-hatosy/
+
+The Pitt fan-favorite Shawn Hatosy has officially confirmed when Season 3 of the hit HBO Max series will start filming.
+---------
+
+# Major 'The Pitt' Star Officially Confirms Changed Season 3 Involvement
+
+TV News, The Pitt
+
+Fri, 12 Jun 2026 18:58:46 GMT
+
+https://movieweb.com/the-pitt-season-3-sepideh-moafi-involvement-change/
+
+Sepideh Moafi confirmed Dr. Baran Al-Hashimi won't be seen in at least the first episode.
+---------
+
+# 'Ferris Bueller's Day Off' Stars Matthew Broderick & Alan Ruck Reunite for New Comedy Movie
+
+Movie News, Ferris Bueller's Day Off, Alan Ruck, Matthew Broderick
+
+Fri, 12 Jun 2026 18:22:25 GMT
+
+https://movieweb.com/the-best-is-yet-to-come-matthew-broderick-alan-ruck/
+
+Matthew Broderick and Alan Ruck, known for their work on 'Ferris Bueller's Day Off,' will once again work together on a new comedy movie.
+---------
+
+# Zach Braff 'Scrubs' Revival Season 2 Tease Proves He Knows What the Fans Want [Exclusive]
+
+Features, Scrubs
+
+Fri, 12 Jun 2026 18:01:19 GMT
+
+https://movieweb.com/scrubs-revival-season-2-zach-braff-tease/
+
+'Scrubs' has always been filled with awesome characters who make an impact with limited screen time. Long may it continue. Read on for more.
+---------
+
+# Every Steven Spielberg Alien Movie, Ranked
+
+Movie Lists, Steven Spielberg, Sci-Fi
+
+Fri, 12 Jun 2026 17:15:19 GMT
+
+https://movieweb.com/steven-spielberg-alien-movies/
+
+Sci-fi is something of a specialty for Spielberg, especially when there are aliens involved. Read on for more.
+---------
+
+# Why Jesse Eisenberg Did Not Return as Mark Zuckerberg for 'Social Reckoning'
+
+Movie Lists, The Social Reckoning, The Social Network, Jesse Eisenberg
+
+Fri, 12 Jun 2026 17:05:34 GMT
+
+https://movieweb.com/social-reckoning-why-jesse-eisenberg-did-not-return/
+
+'The Social Reckoning' director Aaron Sorkin has confirmed why Jesse Eisenberg did not want to return as Mark Zuckerberg after 'The Social Network.'
+---------
+
+# Netflix Lands New Streaming Hit With Unknown "Bourne Meets Taken" Thriller
+
+Movie News, Netflix, The Marked Woman, Crime, Thriller, Mystery
+
+Fri, 12 Jun 2026 17:00:19 GMT
+
+https://movieweb.com/netflix-marked-woman-stream-chart-june-2026/
+
+Mystery thriller 'The Marked Woman' has already reached almost seven million views in just one week.
+---------
+
+# A24's Epic Fantasy Movie Will Beat 'The Lord of the Rings' at Its Own Game
+
+Features, The Lord of the Rings, Elden Ring, Fantasy, Upcoming Tease
+
+Fri, 12 Jun 2026 17:00:19 GMT
+
+https://movieweb.com/elden-ring-better-than-lord-of-the-rings/
+
+'The Lord of the Rings' may be a beloved fantasy franchise, but there is an upcoming movie from A24 that could be even more incredible.
+---------
+
+# ‘The Batman - Part 2’ Star Sebastian Stan Reportedly Playing Different DC Villain as Real Two-Face Actor Revealed
+
+Movie News, The Batman Part II, Sebastian Stan, Brian Tyree Henry
+
+Fri, 12 Jun 2026 16:51:26 GMT
+
+https://movieweb.com/the-batman-2-sebastian-stan-harvey-dent/
+
+A new rumor teases that Sebastian Stan will play Victor Zsasz in 'The Batman - Part II, with Brian Tyree Henry seemingly playing Harvey Dent.
+---------
+
 # New FromSoftware Game Officially Confirmed
 
 Gaming, FromSoftware, PC, Elden Ring, Dark Souls, Bloodborne, Sekiro: Shadows Die Twice, Demon's Souls
