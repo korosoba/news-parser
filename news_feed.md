@@ -1,3 +1,355 @@
+# My Hero Academia's Creator Officially Recommends Shonen Jump's Brand-New Mega Hit
+
+Anime, My Hero Academia, Shonen Jump
+
+Sat, 13 Jun 2026 14:31:22 GMT
+
+https://screenrant.com/my-hero-academia-creator-under-doctor-shonen-jump-hit/
+
+Shonen Jump has a new hit on its hands.
+---------
+
+# Disney's 2-Season Sci-Fi Thriller Endorsed By George R.R. Martin Is One Of Its Best Shows
+
+Streaming TV, Masked Recs
+
+Sat, 13 Jun 2026 14:31:22 GMT
+
+https://screenrant.com/andor-disney-best-show-george-rr-martin-endorsement/
+
+Disney+'s two-season sci-fi thriller is one of the best shows the streamer has ever produced, and fantasy titan George R.R. Martin agrees.
+---------
+
+# Scarlett Johansson’s Overlooked $1M Movie Officially Becomes Global Streaming Smash Hit
+
+Movies, Masked Recs
+
+Sat, 13 Jun 2026 14:25:39 GMT
+
+https://screenrant.com/my-mothers-wedding-hbo-max-scarlett-johansson-streaming-success-june-2026/
+
+An overlooked movie starring Scarlett Johansson and a Slow Horses actor has officially become a major global streaming smash hit on HBO Max.
+---------
+
+# Superman Officially Returns Today In DC's New Release
+
+Streaming TV, Masked Recs
+
+Sat, 13 Jun 2026 14:25:30 GMT
+
+https://screenrant.com/my-adventures-with-superman-season-3-dc-series-june-2026/
+
+After a long wait, Superman is finally back in DC Studios' new release that airs today, and the Man of Steel does so with other heroes.
+---------
+
+# Paramount+ Repurposes A 15-Year Criminal Minds Story That Was Cut Short
+
+Network TV, Criminal Minds
+
+Sat, 13 Jun 2026 14:15:22 GMT
+
+https://screenrant.com/criminal-minds-evolution-rossi-mentorship-continue-tyler/
+
+Criminal Minds: Evolution brings back a 15-year-old mentorship storyline between David Rossi and Agent Seaver, which was abruptly cut short early on.
+---------
+
+# Disclosure Day Doesn't Have A Streaming Release Yet, But Here's Our Best Estimation
+
+New Movies, Disclosure Day
+
+Sat, 13 Jun 2026 14:15:22 GMT
+
+https://screenrant.com/disclosure-day-movie-streaming-release-prediction/
+
+Disclosure Day is now out in theaters worldwide, and even though its streaming release dates aren't confirmed, we can accurately predict them.
+---------
+
+# Netflix Just Retconned Scooby-Doo’s Origin Story For New Show
+
+TV, Scooby-Doo: Origins, Scooby-Doo
+
+Sat, 13 Jun 2026 14:00:22 GMT
+
+https://screenrant.com/netflix-just-retconned-scooby-doos-origin-story-for-new-show/
+
+Netflix's new live-action Scooby-Doo series is making waves, and not just because it stars a real pup. The show is also revamping Scooby's backstory.
+---------
+
+# Lucy Schulman Review: Ellie Sachs Delivers A Funny & Relatable Coming-Of-Age Story [Tribeca]
+
+New Movies, Lucy Schulman, Tribeca Film Festival
+
+Sat, 13 Jun 2026 14:00:22 GMT
+
+https://screenrant.com/lucy-schulman-movie-review-tribeca-2026/
+
+Ellie Sachs shines in her feature debut, a funny and heartfelt comedy that captures the uncertainty of adulthood with honesty and charm.
+---------
+
+# Hello Kitty Unveils The Adorably Unofficial Mario Party Successor Fans Need
+
+Anime, Hello Kitty, Hello Kitty Party Land
+
+Sat, 13 Jun 2026 14:00:22 GMT
+
+https://screenrant.com/hello-kitty-party-land-mario-party-successor/
+
+Nintendo fans have a new party game to look forward to, with Hello Kitty's unofficial Mario Party successor that is coming out this Fall.
+---------
+
+# Dark Souls Meets Elder Scrolls In Stunning New Fantasy RPG
+
+Gaming
+
+Sat, 13 Jun 2026 14:00:22 GMT
+
+https://screenrant.com/dark-souls-elder-scrolls-alkahest-trailer/
+
+An upcoming action RPG blends elements from the Elder Scrolls and Dark Souls series, with its own unique twist.
+---------
+
+# The Office's Saddest Death Happened Off-Screen & Went Completely Unnoticed
+
+TV, The Office, NBC, Sitcoms
+
+Sat, 13 Jun 2026 14:31:15 GMT
+
+https://www.cbr.com/the-office-saddest-unnoticed-death-bandit/
+
+Most fans of The Office missed the heartbreaking off-screen death that ended a long-running gag that had grown in the background of the show.
+---------
+
+# 9 Bungou Stray Dogs Deaths That Changed Everything
+
+Anime, Bungou Stray Dogs
+
+Sat, 13 Jun 2026 14:15:14 GMT
+
+https://www.cbr.com/bungou-stray-dogs-deaths-that-changed-everything/
+
+Bungou Stray Dogs has some of the most shocking and impactful deaths in all of anime.
+---------
+
+# The 15 Creepiest The Far Side Comic Strips
+
+Comics, The Far Side
+
+Sat, 13 Jun 2026 14:00:15 GMT
+
+https://www.cbr.com/creepiest-far-side-comic-strips/
+
+Gary Larson outdid himself with these Far Side strips. I just don't ever need to see them again!
+---------
+
+# Transformers Officially Revives a Forgotten Decepticon in New First Look
+
+Anime, Transformers, merchandise
+
+Sat, 13 Jun 2026 14:00:15 GMT
+
+https://www.cbr.com/transformers-menasor-vs-sideburn-2-pack/
+
+The newest Yolopark Transformers kits are convention-exclusive figures based on an obscure anime Autobot and a completely unreleased Decepticon.
+---------
+
+# 6 Sci-Fi Shows Better Than Firefly
+
+TV, Firefly, Sci-Fi, The Expanse, Fringe
+
+Sat, 13 Jun 2026 13:30:14 GMT
+
+https://www.cbr.com/sci-fi-shows-better-than-firefly-list/
+
+Sci-fi shows like The Expanse and Fringe surpass Firefly in worldbuilding, complex character arcs, and compelling storylines.
+---------
+
+# 7 Times Naruto's Rock Lee Shocked Anime Fans
+
+Anime, Naruto
+
+Sat, 13 Jun 2026 13:15:14 GMT
+
+https://www.cbr.com/naruto-best-rock-lee-moments-shocked-fans/
+
+All throughout Naruto, Rock Lee worked to become a fan-favorite by shocking viewers with his awesome Taijutsu.
+---------
+
+# 5 Times Anakin Skywalker Proved He Was the Chosen One in Star Wars
+
+Movies, Star Wars
+
+Sat, 13 Jun 2026 13:00:14 GMT
+
+https://www.cbr.com/star-wars-anakin-skywalker-chosen-one-moments-list/
+
+Anakin Skywalker is integral to the Star Wars storyline, and while it's easy to say he's the Chosen One, the franchise has proven this many times.
+---------
+
+# Tom Cruise Shares Honest Review on Steven Spielberg's Disclosure Day 21 Years After Their $603M Sci-Fi Movie
+
+Movies, Disclosure Day
+
+Sat, 13 Jun 2026 12:30:14 GMT
+
+https://www.cbr.com/tom-cruise-reviews-steven-spielberg-disclosure-day-alien-movie/
+
+The Mission: Impossible star had high praise for Spielberg's new alien movie.
+---------
+
+# 10 Best Postmodern Books of All Time
+
+Movie, Books, Slaughterhouse-Five, The Unbearable Lightness of Being, Catch-22
+
+Sat, 13 Jun 2026 14:28:16 GMT
+
+https://collider.com/best-postmodern-books-all-time-ranked/
+
+Postmodern books are challenging, boundary-pushing, and sometimes very compelling, as classics like Gravity's Rainbow and Slaughterhouse-Five show.
+---------
+
+# This Is the Best Horror Movie Where Not a Single Character Dies
+
+Movie Features, Poltergeist, Tobe Hooper, Horror, Steven Spielberg
+
+Sat, 13 Jun 2026 14:04:16 GMT
+
+https://collider.com/poltergeist-best-horror-movie-where-no-one-dies/
+
+No lead or supporting characters die in Tobe Hooper's Poltergeist, but that doesn't mean it's not scary as hell.
+---------
+
+# Apple TV's Most-Talked-About Series Becomes Streaming King Before Season Finale
+
+TV News, Widow's Bay, Apple TV, Matthew Rhys, Katie Dippold
+
+Sat, 13 Jun 2026 14:00:15 GMT
+
+https://collider.com/widows-bay-apple-tv-streaming-win-before-season-finale/
+
+Apple TV’s Widow’s Bay tops the streaming chart ahead of its Season 1 finale, cementing its status as a word-of-mouth hit.
+---------
+
+# 10 Perfect Vampire Movies That Are Pure Cinema
+
+Movie, Vampire, Nosferatu, Nosferatu The Vampyre, Shadow of the Vampire
+
+Sat, 13 Jun 2026 13:41:14 GMT
+
+https://collider.com/perfect-vampire-movies-pure-cinema/
+
+From Only Lovers Left Alive, to Nosferatu, to Let the Right One In, these vampire films prove horror can be hauntingly beautiful cinema.
+---------
+
+# The Most Controversial Scene in Robert De Niro's 95% RT Netflix Mob Epic Works, Actually
+
+Movie Features, Al Pacino, The Irishman, Robert De Niro, Martin Scorsese
+
+Sat, 13 Jun 2026 13:23:14 GMT
+
+https://collider.com/the-irishman-netflix-de-aging-controversy-robert-de-niro-grocery-store-scene/
+
+Robert De Niro's grocery store scene in The Irishman has been mocked, but here's why Martin Scorsese actually got it right.
+---------
+
+# ‘Mortal Kombat II’ Gets One More Fight After Box Office Knockout
+
+Movie News, Mortal Kombat II, Mortal Kombat, Karl Urban, Action
+
+Sat, 13 Jun 2026 13:15:14 GMT
+
+https://collider.com/mortal-kombat-2-digital-release-box-office-failure/
+
+Mortal Kombat 2 heads to digital after a disappointing box office run, giving the video game sequel a chance at redemption at home.
+---------
+
+# Only 8 Animated Action Shows Are Better Than 'Invincible'
+
+TV, Invincible, Animation, The Mighty Nein, Avatar: The Last Airbender
+
+Sat, 13 Jun 2026 13:05:14 GMT
+
+https://collider.com/animated-action-series-better-than-invincible/
+
+The Mighty Nein, My Hero Academia, Avatar: The Last Airbender, and more make our list of animated action shows that are even better than Invincible.
+---------
+
+# 8 Best Sci-Fi Movies That Made $1 Billion, Ranked
+
+Movie, Rogue One: A Star Wars Story, Sci-Fi, Box Office, Jurassic Park
+
+Sat, 13 Jun 2026 12:46:16 GMT
+
+https://collider.com/best-sci-fi-movies-1-billion-dollars/
+
+Among the sci-fi blockbusters that achieved $1 billion at the box-office, the very best include the likes of Jurassic Park, Rogue One, and Avatar.
+---------
+
+# The Thriller That Delivered Adam Sandler’s Greatest Performance Is Streaming for Free
+
+Movie News, Uncut Gems, Adam Sandler, Benny Safdie, Josh Safdie
+
+Sat, 13 Jun 2026 12:45:15 GMT
+
+https://collider.com/adam-sandler-uncut-gems-free-streaming-fawesome-june-2026/
+
+Adam Sandler’s best performance in Uncut Gems is coming to free streaming. Here's everything you should know.
+---------
+
+# After 6 Months, Rebecca Ferguson’s Polarizing Sci-Fi Bomb Is Still a Prime Video Fan-Favorite
+
+Movie News, Rebecca Ferguson, Chris Pratt, Mercy, Prime Video
+
+Sat, 13 Jun 2026 12:30:15 GMT
+
+https://collider.com/rebecca-ferguson-chris-pratt-mercy-streaming-success-prime-video-june-2026/
+
+Rebecca Ferguson's polarizing sci-fi movie that flopped at the box office is still winning new fans on Prime Video months later. Read on for more.
+---------
+
+# Marvel Star Discusses Possibility of MCU 'Midnight Sons' Movie
+
+Movie News, MCU, Marvel's Werewolf By Night
+
+Sat, 13 Jun 2026 14:13:34 GMT
+
+https://movieweb.com/werewolf-by-night-laura-donnelly-mcu-midnight-sons-movie/
+
+'Werewolf by Night' star Laura Donnelly shares her thoughts on reprising her character in a Midnight Sons movie.
+---------
+
+# There Are Only 3 Movie Stars Greater Than Tom Cruise
+
+Movie Lists, Tom Cruise
+
+Sat, 13 Jun 2026 14:00:20 GMT
+
+https://movieweb.com/tom-cruise-better-actors/
+
+Tom Cruise is one of the biggest names Hollywood has ever produced, but there are actors who do it better than him.
+---------
+
+# Raymond Lee Wants 'Quantum Leap' Revival After Season 2 Cliffhanger
+
+TV News, Quantum Leap, Raymond Lee
+
+Sat, 13 Jun 2026 13:43:11 GMT
+
+https://movieweb.com/raymond-lee-quantum-leap-season-3/
+
+'Quantum Leap' star Raymond Lee shares his hopes for a renewal after Season 2, which left Ben Song's journey hanging in the finale.
+---------
+
+# The MCU Might Be Hiding a Secret Mutant in One of Its Hit Disney+ Shows: "Is He a Low-Level Mutant?"
+
+Exclusives, Daredevil: Born Again, Vincent D'Onofrio
+
+Sat, 13 Jun 2026 13:00:20 GMT
+
+https://movieweb.com/daredevil-born-again-kingpin-mutant-super-soldier-serum/
+
+Phillip Silvera, second unit director on 'Daredevil: Born Again,' addressed where Vincent D'Onofrio's Kingpin gets his strength.
+---------
+
 # 12 Greatest TV Sports Dramas, Ranked
 
 Classic TV
