@@ -1,3 +1,300 @@
+# X-Men's New Villain Officially Combines 2 Iconic Characters
+
+Marvel Comics, X-Men
+
+Sat, 13 Jun 2026 00:01:22 GMT
+
+https://screenrant.com/x-men-new-villain-flamequake/
+
+The X-Men's new main hero faces off against a brand-new mutant villain who combines the powers and costumes of two famous Marvel antagonists.
+---------
+
+# Doctor Who's New Update Makes The Billie Piper Twist Much Worse
+
+Streaming TV, Doctor Who
+
+Fri, 12 Jun 2026 23:45:23 GMT
+
+https://screenrant.com/doctor-who-future-update-billie-piper-twist-worse/
+
+Doctor Who's Billie Piper twist in the season 15 finale earned polarizing reception, and the new update about the show further taints it.
+---------
+
+# Prime Video's 100% RT Fantasy Series Already Had One Of Its Best Casts, But It's Still Getting Better
+
+Streaming TV, Masked Recs
+
+Fri, 12 Jun 2026 23:35:24 GMT
+
+https://screenrant.com/the-legend-of-vox-machina-cast-season-4-even-better/
+
+A fantasy series with 100% on Rotten Tomatoes already boasted one of the best casts on Prime Video, but said cast is still getting better.
+---------
+
+# Every Isekai Anime Coming To Streaming in June and July 2026 (And Where to Watch Them)
+
+Anime, Isekai
+
+Fri, 12 Jun 2026 23:30:38 GMT
+
+https://screenrant.com/every-isekai-anime-streaming-june-july-2026-where-watch/
+
+With Summer 2026 fast approaching, anime fans already have plenty of new and returning isekai series to look forward to in the coming months.
+---------
+
+# Marvel Rivals: Season 8.5 Buffs & Nerfs Explained
+
+Gaming, Marvel Rivals, Live Service Games, PC
+
+Fri, 12 Jun 2026 23:30:22 GMT
+
+https://screenrant.com/marvel-rivals-season-8-5-all-buffs-nerfs-characters/
+
+The halfway point for Marvel Rivals Season 8 sees a number of strong characters nerfed, as well as some weaker heroes receive game-changing buffs.
+---------
+
+# It's Official: Pop Culture Already Has Its New Homelander
+
+Comics, Homelander, Marvel
+
+Fri, 12 Jun 2026 23:30:22 GMT
+
+https://screenrant.com/new-homelander-replacement-marvel-david-colton-avengers/
+
+As The Boys officially kills off Antony Starr's Homelander, pop culture already has its new evil Superman, courtesy of Marvel.
+---------
+
+# Another Jack Black Franchise Is Trending As The Super Mario Galaxy Movie Passes Box Office Milestone
+
+Movies, Jack Black
+
+Fri, 12 Jun 2026 23:30:22 GMT
+
+https://screenrant.com/jack-black-franchise-trending-jumanji/
+
+Another of Jack Black's biggest franchises is trending on streaming, just as The Super Mario Galaxy Movie earns a major box office achievement.
+---------
+
+# Marvel Is Officially Introducing A New Avengers Team To Fight Robert Downey Jr.'s Doctor Doom
+
+Movies, Avengers: Doomsday
+
+Fri, 12 Jun 2026 23:06:21 GMT
+
+https://screenrant.com/avengers-doomsday-new-team-members-fight-doctor-doom/
+
+The MCU is preparing for a massive crossover event in Avengers: Doomsday, and it will officially introduce a new team to fight Doctor Doom.
+---------
+
+# The Night Agent Officially Fixes Rose Larkin After Accidentally Ruining Her Character
+
+Streaming TV, The Night Agent
+
+Fri, 12 Jun 2026 23:01:23 GMT
+
+https://screenrant.com/the-night-agent-season-3-fix-rose-larkin/
+
+The Night Agent season 2 didn't do Rose Larkin any favors, but the Netflix action thriller found a unique way to set things right in season 3.
+---------
+
+# Resident Evil 0 Remake Tease Proves Capcom Learned An Important Lesson
+
+Gaming, Resident Evil, Triple-A Games, PC
+
+Fri, 12 Jun 2026 23:01:21 GMT
+
+https://screenrant.com/resident-evil-0-remake-leak-resi-3-mistakes/
+
+Having set a new standard when it comes to fantastic remakes, the Resident Evil series has come a long way since its greatest disappointment.
+---------
+
+# GTA 6 vs. Legend of Zelda Is Officially 2026's Barbenheimer
+
+Games, Grand Theft Auto, The Legend of Zelda, Nintendo
+
+Sat, 13 Jun 2026 00:00:16 GMT
+
+https://www.cbr.com/gta-6-zelda-oot-remake-2026-barbenheimer-official/
+
+Every release in the 2026 calendar is avoiding Grand Theft Auto 6, but The Legend of Zelda: Ocarina of Time remake might lead to a new Barbenheimer.
+---------
+
+# Zac Cregger's Resident Evil Confirms He is the King of Horror
+
+Movies, Resident Evil
+
+Sat, 13 Jun 2026 00:00:16 GMT
+
+https://www.cbr.com/zac-cregger-king-of-horror-resident-evil-return/
+
+One of horror's newest filmmakers is quickly becoming a master of the genre, and it won't be long until audiences are graced with his next project.
+---------
+
+# 2 New One Piece Designs Officially Revealed in New First Look
+
+Anime, One Piece
+
+Sat, 13 Jun 2026 00:00:16 GMT
+
+https://www.cbr.com/one-piece-luffy-nami-new-designs/
+
+One Piece officially reveals two new redesigns as the series continues its adventures on Elbaph Island.
+---------
+
+# 5 Anime You Didn't Know Were Shojo
+
+Anime, Manga, Cowboy Bebop, Code Geass: Lelouch of the Rebellion, Tomie, Banana Fish, Hell Girl, Shojo
+
+Fri, 12 Jun 2026 23:45:15 GMT
+
+https://www.cbr.com/anime-no-one-knows-are-shojo/
+
+These anime might be action or sci-fi, but they actually originated from the shojo genre geared towards women.
+---------
+
+# 10 Anime Heroes Who Suffered More Than Yuji Itadori
+
+Anime, Jujutsu Kaisen, Chainsaw Man
+
+Fri, 12 Jun 2026 23:15:15 GMT
+
+https://www.cbr.com/anime-heroes-suffered-more-yuji-jujutsu-kaisen/
+
+Jujutsu Kaisen's Yuji has a tragic life, yet these anime heroes went through even more suffering and torment.
+---------
+
+# 5 MCU Characters More Dangerous Than The Punisher, Ranked
+
+Movies, Marvel Cinematic Universe
+
+Fri, 12 Jun 2026 23:00:15 GMT
+
+https://www.cbr.com/mcu-characters-more-dangerous-than-the-punisher-list/
+
+Frank Castle's Punisher is one of the most deadly "heroes" in the MCU, but there are some characters who are even more dangerous.
+---------
+
+# Chris Pratt Has a Forgotten 2000s Drama With 3 Rare 100% Rotten Tomatoes Seasons
+
+TV, Everwood, Chris Pratt, Drama
+
+Fri, 12 Jun 2026 23:00:15 GMT
+
+https://www.cbr.com/chris-pratt-2000s-drama-everwood-netflix-hit/
+
+Chris Pratt's underrated show, with three highly rated seasons that still resonate today, is finally getting the recognition it deserves on Netflix.
+---------
+
+# 'Obsession' Has a Blink-and-You'll-Miss-It Scene That's More Unsettling Than Those Brutal Kills
+
+Movie Features, Obsession, Curry Barker, Horror, Inde Navarrette
+
+Sat, 13 Jun 2026 00:11:15 GMT
+
+https://collider.com/obsession-movie-nikki-bear-bedroom-scene/
+
+Curry Barker's horror movie Obsession has many frightening moments, with the most chilling being between Nikki and Bear in the bedroom.
+---------
+
+# The Lord of the Rings’ Divisive Franchise Return Is a Sudden Streaming Hit
+
+Movie News, The Hobbit: An Unexpected Journey, The Hobbit trilogy, Peter Jackson, Netflix
+
+Sat, 13 Jun 2026 00:00:16 GMT
+
+https://collider.com/netflix-fantasy-epic-the-hobbit-an-unexpected-journey-streaming-success-june-2026/
+
+The Hobbit: An Unexpected Journey, the first installment of Peter Jackson's less celebrated Middle-earth trilogy, has become a hit on Netflix.
+---------
+
+# Steven Spielberg’s $600 Million Sci-Fi Hit Is Taking Over HBO Max
+
+Movie News, Steven Spielberg, Disclosure Day, Ready Player One, Sci-Fi
+
+Sat, 13 Jun 2026 00:00:16 GMT
+
+https://collider.com/ready-player-one-streaming-success-hbo-max-june-2026/
+
+Disclosure Day's success boosts interest in Steven Spielberg's last sci-fi effort on streaming charts. Get the details here.
+---------
+
+# 3 Best Shows To Watch on Prime Video This Weekend (June 12-14)
+
+TV, The Man in the High Castle, Secret Level, Deadloch, Prime Video
+
+Fri, 12 Jun 2026 23:43:15 GMT
+
+https://collider.com/best-prime-video-shows-watch-weekend-june-12-14/
+
+The Man in the High Castle, Deadloch, and Secret Level make up our list of the best Prime Video shows to binge-watch the weekend of June 13, 2026.
+---------
+
+# Alan Ritchson’s Sci-Fi Thriller Officially Breaks Into an Elite Netflix Streaming List
+
+Movie News, War Machine, Damsel, Netflix, Sci-Fi
+
+Fri, 12 Jun 2026 23:30:16 GMT
+
+https://collider.com/netflix-alan-ritchson-sci-fi-hit-war-machine-overtakes-damsel-top-ten-all-time-chart-june-2026/
+
+Netflix's sci-fi action film surpasses Millie Bobby Brown's Damsel after accumulating 252 million watch hours. Get all the details here.
+---------
+
+# All 5 Steven Spielberg Movies With Aliens, Ranked
+
+Movie, Disclosure Day, Steven Spielberg, E.T. the Extra-Terrestrial, Close Encounters of The Third Kind
+
+Fri, 12 Jun 2026 23:05:15 GMT
+
+https://collider.com/steven-spielberg-movies-with-aliens-ranked/
+
+Five Steven Spielberg movies have been about aliens, including Close Encounters of the Third Kind and Disclosure Day, but which of them is the best?
+---------
+
+# Forget ‘Project Hail Mary,’ Ryan Gosling’s 10/10 Sci-Fi Sequel Is Surging on Streaming
+
+Movie News, Blade Runner 2049, Blade Runner, Ryan Gosling, Harrison Ford
+
+Fri, 12 Jun 2026 23:00:15 GMT
+
+https://collider.com/blade-runner-2049-sci-fi-sequel-streaming-success-apple-tv-june-2026/
+
+Nine years after it first hit theaters, one of the best sci-fi sequels ever made is smashing streaming charts around the world.
+---------
+
+# Tom Cruise’s Next ‘Top Gun’ Movie Is Finally Taking Flight
+
+Movie News, Tom Cruise, Top Gun 3, Paramount, Jerry Bruckheimer
+
+Fri, 12 Jun 2026 23:00:15 GMT
+
+https://collider.com/top-gun-3-tom-cruise-update/
+
+Tom Cruise is set to star in Top Gun 3, the highly anticipated sequel to the 1986 classic and 2022's box office hit Top Gun: Maverick.
+---------
+
+# 5 Theories That Change How You View 'Obsession'
+
+Movie Lists, Obsession, Curry Barker, Horror
+
+Sat, 13 Jun 2026 00:00:20 GMT
+
+https://movieweb.com/obsession-theories-change-view/
+
+You'll never look at Curry Barker's horror movie 'Obsession' the same way again after checking out these complex and unsettling theories.
+---------
+
+# Netflix's 'The Night Agent' Officially Sets Return of Original Star for Season 4
+
+TV News, The Night Agent
+
+Fri, 12 Jun 2026 23:36:17 GMT
+
+https://movieweb.com/night-agent-season-4-luciane-buchanan-return/
+
+Luciane Buchanan will return as Rose after being absent from Season 3.
+---------
+
 # 3 Best Movies To Watch On Prime Video This Weekend (June 13-14)
 
 Movies, Prime Video, Recommendation
