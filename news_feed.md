@@ -1,3 +1,311 @@
+# 10 Most Creative Powers In Anime History
+
+Anime
+
+Sat, 13 Jun 2026 17:48:50 GMT
+
+https://screenrant.com/most-creative-powers-anime-history/
+
+Superpowers and abilities are more or less the norm in the current anime landscape, but these abilities are the medium's creative representatives.
+---------
+
+# Original Blair Witch Project Star Reveals Why They're Not In The Reboot
+
+Movies, The Blair Witch Project, The Blair Witch Project 4
+
+Sat, 13 Jun 2026 17:34:43 GMT
+
+https://screenrant.com/blair-witch-project-reboot-no-return-heather-donahue-response/
+
+A star of the original horror classic Blair Witch Project reveals why they are not involved in the upcoming reboot movie from Blumhouse and James Wan.
+---------
+
+# Hugh Jackman's R-Rated Action Thriller Is Officially His 'New Logan'
+
+Movies, Masked Recs
+
+Sat, 13 Jun 2026 17:30:23 GMT
+
+https://screenrant.com/hugh-jackman-death-of-robin-hood-new-logan/
+
+The reviews for The Death of Robin Hood seem to prove what we all suspected: Hugh Jackman's new movie is a stealth remake of Logan.
+---------
+
+# Pokémon HeartGold & SoulSilver Switch 2 Release Unites Gamers
+
+Gaming
+
+Sat, 13 Jun 2026 17:30:23 GMT
+
+https://screenrant.com/pokemon-heart-gold-soul-silver-switch-2-dreams/
+
+Fans clamor for a potential release of Pokémon HeartGold & SoulSilver on the Nintendo Switch 2.
+---------
+
+# Disney’s Toy Story 5 Release Was Nearly Cancelled Over Overseas Disagreement
+
+Movies, Toy Story 5
+
+Sat, 13 Jun 2026 17:27:27 GMT
+
+https://screenrant.com/toy-story-5-release-china-disagreement/
+
+Toy Story 5 almost got the (cowboy) boot, as a meeting between Pixar's Chief Creative Officer and a spiritual leader could've cancelled the release.
+---------
+
+# 10 Most Powerful Weapons In Fantasy Movies
+
+Movies, Fantasy, Harry Potter, The Lord of the Rings, Thor, Marvel Cinematic Universe
+
+Sat, 13 Jun 2026 17:24:22 GMT
+
+https://screenrant.com/fantasy-movies-most-powerful-weapons/
+
+From ancient blades to cosmic relics, discover the most unstoppable, world-altering weapons to ever grace the fantasy screen.
+---------
+
+# 10 Greatest Sci-Fi Thriller Movies, Ranked
+
+Movies, Sci-Fi, Brazil, Interstellar, Children of Men, The Prestige, District 9, Ex Machina, Aliens, Moon, The Thing, Donnie Darko
+
+Sat, 13 Jun 2026 17:15:21 GMT
+
+https://screenrant.com/best-scifi-thriller-movies-ranked/
+
+From AI nightmares to alien invasions and dystopian futures, these sci-fi thrillers deliver suspense, big ideas, and unforgettable twists.
+---------
+
+# House Of The Dragon's OG Aemond Targaryen Is Officially Returning In Season 3
+
+TV, House of the Dragon, House of the Dragon - Season 3, Game of Thrones
+
+Sat, 13 Jun 2026 17:00:22 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-aemond-desperate-tease-ewan-mitchell/
+
+EXCLUSIVE: House of the Dragon star Ewan Mitchell teases some major changes for Aemond Targaryen in season 3, which will take him to dark new places.
+---------
+
+# Hollow Knight RPG Is A Thing Of Absolute Beauty
+
+Gaming, Hollow Knight
+
+Sat, 13 Jun 2026 17:00:22 GMT
+
+https://screenrant.com/hollow-knight-rpg-unofficial-fan-game/
+
+Experience the world of Hollow Knight like never before with this fan-made, free-to-download tabletop RPG.
+---------
+
+# The Spiritual Successor To James Gunn's Superman Is Here And You're Missing It
+
+Movies, Masked Recs
+
+Sat, 13 Jun 2026 16:55:23 GMT
+
+https://screenrant.com/masters-of-the-universe-movie-superman-recommendation/
+
+One 2026 summer movie is the spiritual successor to James Gunn's Superman, with a similar message of hope, but it's struggling at the box office.
+---------
+
+# Russell Crowe Doubles Down on Ridley Scott's Failed Gladiator Sequel
+
+Movies, Gladiator, Gladiator II
+
+Sat, 13 Jun 2026 17:39:20 GMT
+
+https://www.cbr.com/russell-crowe-doubles-down-on-ridley-scotts-failed-gladiator-sequel/
+
+The first entry was an Oscar-winning movie, but the sequel failed to entertain.
+---------
+
+# 10 Best Racing Games of All Time, Ranked
+
+Games, Forza, Mario Kart, Need for Speed
+
+Sat, 13 Jun 2026 17:15:14 GMT
+
+https://www.cbr.com/official-best-racing-games-of-all-time-ranked/
+
+Racing games only continue to get better, with the greatest entries in the genre of all time being available on PC, Xbox, Switch, and PS5.
+---------
+
+# DC Studios' Superman Series Officially Continues Rare Rotten Tomatoes Trend
+
+TV, My Adventures With Superman, Rotten Tomatoes
+
+Sat, 13 Jun 2026 16:58:49 GMT
+
+https://www.cbr.com/my-adventures-with-superman-season-3-rotten-tomatoes-score/
+
+The latest entry in DC Studios' hit Superman series has just helped it go three-for-three in terms of its overwhelming critical response.
+---------
+
+# 5 Forgotten HBO Shows With Zero Weak Seasons
+
+TV, HBO Max, Boardwalk Empire, The Leftovers, Eastbound and Down
+
+Sat, 13 Jun 2026 16:30:13 GMT
+
+https://www.cbr.com/forgotten-hbo-shows-no-weak-seasons-list/
+
+HBO is most well-known for shows like The Sopranos and Game of Thrones, but there are many forgotten gems that are just as good or better.
+---------
+
+# The 10 Best Fantasy Movie Opening Shots Ever, Ranked
+
+Movies, Fantasy
+
+Sat, 13 Jun 2026 16:30:13 GMT
+
+https://www.cbr.com/best-fantasy-movie-opening-scenes-list/
+
+The opening shot is the first impression viewers get of a movie, and these ten fantasy movies absolutely nail it.
+---------
+
+# 10 Most Iconic Last Stands in Anime History
+
+Anime, One Piece, Naruto, Dragon Ball
+
+Sat, 13 Jun 2026 16:15:14 GMT
+
+https://www.cbr.com/most-iconic-last-stands-all-of-anime/
+
+Few anime moments are more iconic than when a desperate hero or villain makes their grand, final stand.
+---------
+
+# Steven Spielberg Confirms He Cast the Most Beloved Harry Potter Actors
+
+Movies, Harry Potter, Harry Potter and the Sorcerer's Stone, steven spielberg
+
+Sat, 13 Jun 2026 16:14:11 GMT
+
+https://www.cbr.com/steven-spielberg-cast-harry-potter-actors/
+
+The critically acclaimed filmmaker was supposed to direct Harry Potter, but the deal didn't happen.
+---------
+
+# Only 5 Jedi Are More Powerful Than Luke Skywalker
+
+Movie, Star Wars, Mark Hamill, Star Wars: Episode IV - A New Hope, Star Wars: Episode VIII - The Last Jedi
+
+Sat, 13 Jun 2026 17:28:16 GMT
+
+https://collider.com/star-wars-jedi-more-powerful-than-luke-skywalker/
+
+Luke Skywalker is the most famous Jedi in the Star Wars universe, but others, like Ahsoka Tano and Rey, arguably surpass him in terms of sheer power.
+---------
+
+# 15 Years Later, Black Mirror’s Best Sci-Fi Quote Is Still Its Most Relevant Line
+
+TV Features, Black Mirror, Netflix, Charlie Brooker, Kelly Macdonald
+
+Sat, 13 Jun 2026 17:26:50 GMT
+
+https://collider.com/black-mirror-best-sci-fi-quote-relevant-meaning/
+
+Black Mirror is full of iconic lines, yet there's one that stands out due to how relevant it's become.
+---------
+
+# 6 Steven Spielberg Movies That Are 10/10
+
+Movie, E.T. the Extra-Terrestrial, Jaws, Schindler's List, Jurassic Park
+
+Sat, 13 Jun 2026 17:09:31 GMT
+
+https://collider.com/steven-spielberg-movies-perfect/
+
+Steven Spielberg has made quite a few 10/10 movies throughout his decades-long filmmaking career, including masterpieces like Jaws and Jurassic Park.
+---------
+
+# The Word "Perfect" Is Overused, but These 10 HBO Shows Actually Are
+
+TV, HBO, The Sopranos, Succession, The Wire
+
+Sat, 13 Jun 2026 17:04:15 GMT
+
+https://collider.com/perfect-hbo-shows/
+
+Explore HBO's perfect TV series that left a mark with their storytelling and character development, from The Sopranos to Succession.
+---------
+
+# 26 Years Later, Christopher Nolan’s Mind-Bending Thriller Still Holds Up
+
+Movie News, Memento, Christopher Nolan, Carrie Ann Moss, Guy Pearce
+
+Sat, 13 Jun 2026 17:00:15 GMT
+
+https://collider.com/christopher-nolan-memento-free-streaming-fawesome-june-2026/
+
+Christopher Nolan’s revenge thriller starring Guy Pearce, Memento, is streaming for free this month. Here's everything you should know.
+---------
+
+# 10 Greatest Heist Movies of the Last 10 Years
+
+Movie, Crime, Baby Driver, Hell or High Water, Logan Lucky
+
+Sat, 13 Jun 2026 16:36:14 GMT
+
+https://collider.com/best-heist-movies-last-10-years-ranked/
+
+Baby Driver, Hell or High Water, Logan Lucky, and Ocean's 8 are among the best heist movies of the last decade, but which one is the greatest?
+---------
+
+# ‘Saturday Night Live UK’ Could Win Over America With One Game-Changing Shakeup
+
+TV Features, Saturday Night Live, Saturday Night Live UK, SNL, Lorne Michaels
+
+Sat, 13 Jun 2026 16:22:16 GMT
+
+https://collider.com/saturday-night-live-uk-air-before-snl-america-nbc/
+
+When SNL and Saturday Night Live UK return this fall, NBCUniversal should air them back-to-back to grow the franchise, U.S. viewership, and Peacock.
+---------
+
+# 6 Worst '90s Action Movies That Are Truly 0/10
+
+Movie, The Postman, Lost in Space, Batman & Robin, Street Fighter
+
+Sat, 13 Jun 2026 16:18:15 GMT
+
+https://collider.com/worst-90s-action-movies/
+
+Disastrous '90s flops like Batman & Robin, Cutthroat Island, and Lost in Space are truly terrible action movies with little to no redeeming qualities.
+---------
+
+# Spielberg's 'Close Encounters' Streaming Just in Time for 'Disclosure Day'
+
+Movie News, Close Encounters of The Third Kind, Coming/Leaving Streaming
+
+Sat, 13 Jun 2026 17:18:54 GMT
+
+https://movieweb.com/close-encounters-third-kind-streaming-criterion-channel-june-2026/
+
+Almost 50 years later, one of the best sci-fi movies ever made finally lands on streaming.
+---------
+
+# The 10 Most Powerful Wizards in 'Harry Potter,' Ranked
+
+Movie Lists, Harry Potter
+
+Sat, 13 Jun 2026 17:00:20 GMT
+
+https://movieweb.com/harry-potter-powerful-wizards/
+
+'Harry Potter' has some incredible wizards across the film franchise, which stars Daniel Radcliffe, Emma Watson, and Rupert Grint.
+---------
+
+# 'Michael' Highest-Grossing Music Biopic of All Time at Global Box Office
+
+Movie News, Michael, Box Office Milestones
+
+Sat, 13 Jun 2026 16:21:30 GMT
+
+https://movieweb.com/michael-highest-grossing-music-biopic/
+
+It's official: Michael Jackson has now claimed the title previously held by Freddie Mercury.
+---------
+
 # Masters Of The Universe Box Office Collapses In Week 2 After Disappointing Debut
 
 Movies, Box Office, Masters of the Universe
