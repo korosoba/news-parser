@@ -1,3 +1,355 @@
+# It Follows 2’s Only Confirmed Story Detail Already Reveals The Scariest Part Of The Movie
+
+Movies, It Follows
+
+Sat, 13 Jun 2026 20:45:20 GMT
+
+https://screenrant.com/it-follows-2-story-timeskip-movie/
+
+It Follows' sequel has unveiled one key detail about its story that already cements what one of the most harrowing parts of the movie will be.
+---------
+
+# Peacock's 9-Part Thriller Is Officially Must-Watch, Despite Mixed RT Score
+
+Streaming TV, Masked Recs
+
+Sat, 13 Jun 2026 20:30:21 GMT
+
+https://screenrant.com/mia-peacock-thriller-must-watch/
+
+It may not be a critical darling, but this Peacock show understands exactly what its audience wants and delivers it with confidence and style.
+---------
+
+# 10 Zelda: Ocarina Of Time Bosses That Are Essential To The Remake
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Triple-A Games
+
+Sat, 13 Jun 2026 20:30:21 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-bosses-we-need-to-see/
+
+We don't really know how much Nintendo is going to change in the Ocarina of Time remake, but these 10 bosses absolutely need to make a comeback.
+---------
+
+# Toby Fox Returns With New Release You Can Play Free Now
+
+Gaming, Undertale, Indie Games, PC
+
+Sat, 13 Jun 2026 20:19:09 GMT
+
+https://screenrant.com/toby-fox-hiveswap-free-demo-deltarune/
+
+Right off the heels of Deltarune's surprise Chapter 5 reveal, Toby Fox has another game on the way that you can get your hands on far sooner.
+---------
+
+# Netflix's Upcoming 8-Part Sci-Fi Series Is Officially Making History
+
+Streaming TV, Masked Recs
+
+Sat, 13 Jun 2026 20:15:21 GMT
+
+https://screenrant.com/netflix-sci-fi-human-vapor-show-toho-streaming-history/
+
+Netflix has always been a trailblazing streaming service, but one of its most exciting upcoming releases will mark a new era for the platform.
+---------
+
+# Bridgerton: Is Daphne & Simon's Story Really Over?
+
+Streaming TV, Bridgerton
+
+Sat, 13 Jun 2026 20:05:22 GMT
+
+https://screenrant.com/bridgerton-daphne-simon-story-over-good-reason/
+
+Bridgerton season 1 focuses on Daphne and Simon's romance, but concluding their relationship was a good thing, and allows for a shift in focus.
+---------
+
+# 14 Saddest One Piece Moments That Prove Why It's Considered The Greatest Anime Ever
+
+Anime, One Piece
+
+Sat, 13 Jun 2026 20:00:20 GMT
+
+https://screenrant.com/saddest-one-piece-moments-greatest-anime/
+
+The way that author Eiichiro Oda balances One Piece's most heartbreaking moments with it's comedy and action easily make it one of the greatest anime.
+---------
+
+# Pokémon Eternal X & Wilting Y Give Kalos The Respect It Deserves
+
+Gaming, Pokemon
+
+Sat, 13 Jun 2026 20:00:20 GMT
+
+https://screenrant.com/pokemon-eternal-x-wilting-y-rom-hacks/
+
+Pokémon Eternal X & Wilting Y dials up the difficulty of the classic titles and expands the Pokédex to create an entirely new experience.
+---------
+
+# Disney's $3.3 Billion Franchise With Upcoming Sequel Dominates Disney+ Streaming Chart
+
+Movies, Masked Recs, Disney+
+
+Sat, 13 Jun 2026 19:53:41 GMT
+
+https://screenrant.com/disney-toy-story-franchise-streaming-success-june-2026/
+
+One of Disney's billion-dollar franchises is coming back this year, and the timing couldn't be better, as its installments are surging on Disney+.
+---------
+
+# Star Wars' 2026 Return With New Episodes Returns To What Disney Does Best
+
+Streaming TV, Masked Recs, Star Wars
+
+Sat, 13 Jun 2026 19:45:21 GMT
+
+https://screenrant.com/star-wars-visions-ninth-jedi-disney-does-best/
+
+Star Wars' most surprising upcoming TV series, set to premiere later this year, will once again showcase what Disney's Star Wars does best.
+---------
+
+# Steam Officially Makes 9/10 Strategy Game 100% Free Until June 15
+
+Games
+
+Sat, 13 Jun 2026 20:43:24 GMT
+
+https://www.cbr.com/steam-hearts-of-iron-4-free-june-2026/
+
+Gamers can check out the acclaimed strategy game at no cost for a limited time.
+---------
+
+# 5 Strongest Women in House of the Dragon
+
+TV, House of the Dragon, Fantasy, HBO Max
+
+Sat, 13 Jun 2026 20:30:13 GMT
+
+https://www.cbr.com/strongest-women-house-of-the-dragon/
+
+From strong dragonriders to harsh rulers, these women in HBO's House of the Dragon adaptation showcase unparalleled power and resilience.
+---------
+
+# 33 Years Later, Bruce Willis' Forgotten Die Hard Clone Is Getting A Second Chance On Netflix
+
+Movies, Striking Distance, bruce willis, Netflix
+
+Sat, 13 Jun 2026 20:30:13 GMT
+
+https://www.cbr.com/bruce-willis-striking-distance-die-hard-copycat-netflix/
+
+This underwhelming Bruce Willis '90s action vehicle has become an unlikely Netflix hit throughout April.
+---------
+
+# 10 Strongest Black Clover Characters at the End of the Manga
+
+Anime, Black Clover, Shonen, Manga
+
+Sat, 13 Jun 2026 20:15:14 GMT
+
+https://www.cbr.com/strongest-black-clover-characters-end-of-manga/
+
+Now that Black Clover's manga is officially over, who are the last characters left standing.
+---------
+
+# Henry Cavill's Reboot of 40-Year-Old Fantasy Adventure Hit Gets Filming Update From Russell Crowe
+
+Movies, Highlander
+
+Sat, 13 Jun 2026 20:02:25 GMT
+
+https://www.cbr.com/highlander-reboot-filming-wrap-russell-crowe/
+
+Co-star Russell Crowe shares the latest update on the major fantasy reboot starring Henry Cavill.
+---------
+
+# 39 Years Later, 1 of the '90s Greatest Sitcoms Is a Streaming Success in the U.S
+
+TV, Married... With Children, Sitcoms
+
+Sat, 13 Jun 2026 20:01:13 GMT
+
+https://www.cbr.com/married-with-children-sitcom-success-pvod-june-2026/
+
+One of the best and longest-running American sitcoms, Married... with Children, is a hit on PVOD 39 years later.
+---------
+
+# Netflix’s Solo Leveling Remake Finally Gets New Update After 1 Year
+
+Anime, Solo Leveling, Netflix
+
+Sat, 13 Jun 2026 20:01:13 GMT
+
+https://www.cbr.com/netflix-solo-leveling-remake-new-update/
+
+The hotly-anticipated live-action Solo Leveling adaptation from Netflix just got a massive update after leaving fans waiting for nearly a year.
+---------
+
+# Marvel Officially Confirms the Return of Mangaverse More Than 20 Years Later
+
+Comics, Marvel
+
+Sat, 13 Jun 2026 20:01:13 GMT
+
+https://www.cbr.com/marvel-mangaverse-return-date-officially-confirmed/
+
+One of the most divisive versions of the Marvel Universe is officially returning after two decades with some truly incredible looking comics.
+---------
+
+# The 10 Greatest Neo-Noirs of the 21st Century, Ranked
+
+Movies, Memento, Zodiac, Crime
+
+Sat, 13 Jun 2026 20:01:13 GMT
+
+https://www.cbr.com/greatest-neo-noirs-of-21st-century-list/
+
+Crime can be a catch-all term, but these neo-Noirs are the best films that define an entire genre.
+---------
+
+# X-Men '97 Season 2 Review: Marvel's Best Animated Series Comes Back Even Stronger
+
+TV, X-Men '97
+
+Sat, 13 Jun 2026 20:00:46 GMT
+
+https://www.cbr.com/x-men-97-season-2-review/
+
+X-Men '97 Season 2 raises the stakes with Apocalypse, stronger action, and deeper character arcs across Marvel’s mutant timeline.
+---------
+
+# Paramount’s Most Underrated Crime Fantasy Is Climbing Another Streamer’s Charts 3 Years Later
+
+Movie Features, Dungeons & Dragons: Honor Among Thieves, Chris Pine, Hugh Grant, Michelle Rodriguez
+
+Sat, 13 Jun 2026 20:38:14 GMT
+
+https://collider.com/dungeons-and-dragons-honor-among-thieves-underrated-crime-fantasy/
+
+Dungeons & Dragons: Honor Among Thieves combines all the humor and excitement of the RPG in one of the best fantasy films of the decade.
+---------
+
+# 15 Years Later, Tom Hardy’s Devastating Masterpiece Still Holds Up
+
+Movie News, Warrior, Tom Hardy, Joel Edgerton, Sports
+
+Sat, 13 Jun 2026 20:30:13 GMT
+
+https://collider.com/tom-hardy-warrior-free-streaming-fawesome-june-2026/
+
+Tom Hardy goes head-to-head with Joel Edgerton in Warrior, which is now streaming for free. Find out more here.
+---------
+
+# 15 Years Later, HBO’s Fantasy Franchise Is Still the Perfect Replacement for Harry Potter
+
+Movie Features, Harry Potter and the Sorcerer's Stone, The Lord of the Rings: The Fellowship of the Ring, HBO Max, Harry Potter
+
+Sat, 13 Jun 2026 20:29:14 GMT
+
+https://collider.com/lord-of-the-rings-trilogy-fantasy-films-better-than-harry-potter/
+
+Though Harry Potter might be a pop culture juggernaut, the Lord of the Rings trilogy still remains the fantasy franchise to beat.
+---------
+
+# Arnold Schwarzenegger's Crucial Decision Made 'Predator' a Sci-Fi Horror Classic
+
+Movie Features, Arnold Schwarzenegger, Predator, John McTiernan, Sci-Fi
+
+Sat, 13 Jun 2026 20:12:14 GMT
+
+https://collider.com/arnold-schwarzenegger-rejected-predator-love-interest/
+
+Arnold Schwarzenegger rejected a 20th Century Fox demand to add a love interest to Predator, a decision that helped preserve the sci-fi classic.
+---------
+
+# Prime Video’s Latest Upgrade Comes With One Major Catch
+
+TV Features, Prime Video, Amazon, Disney+, Netflix
+
+Sat, 13 Jun 2026 20:06:14 GMT
+
+https://collider.com/prime-video-ultra-upgrade-ad-free-luxury-standard/
+
+Prime Video Ultra repackages features that used to come standard from the streamer, and subscribers aren't happy. It's an industry-wide issue of broke
+---------
+
+# Guy Ritchie's Crime Blockbuster Surges on Netflix After Grossing 5x Its Budget
+
+Movie News, The Gentlemen, Guy Ritchie, Matthew McConaughey, Netflix
+
+Sat, 13 Jun 2026 20:00:14 GMT
+
+https://collider.com/guy-ritchie-the-gentlemen-movie-streaming-success-netflix-june-2026/
+
+Guy Ritchie's suave crime movie that earned more than five times its budget at the box office is taking over streaming charts.
+---------
+
+# 'X-Men '97' Is Still One of the Best Series Marvel Has Ever Made | Review
+
+TV Reviews, X-Men '97, Disney+, Marvel, Marvel Studios
+
+Sat, 13 Jun 2026 20:00:14 GMT
+
+https://collider.com/x-men-97-season-2-review-marvel-disney-plus/
+
+X-Men '97 Season 2 continues the series' streak of visually stunning and dark Marvel storytelling, with a riveting exploration of Apocalypse.
+---------
+
+# 8 Greatest Sci-Fi Shows Even Diehards Haven't Seen
+
+TV, Sci-Fi, Science Fiction, Sense8, Almost Human
+
+Sat, 13 Jun 2026 19:52:13 GMT
+
+https://collider.com/best-sci-fi-shows-diehards-missed/
+
+Even if you consider yourself a diehard sci-fi fan, you probably missed series like Sense8, Almost Human, Astra Lost in Space, and FlashForward.
+---------
+
+# 'Backrooms 2': Everything We Know So Far
+
+Features, Backrooms, Horror
+
+Sat, 13 Jun 2026 20:30:19 GMT
+
+https://movieweb.com/backrooms-2-everything-we-know/
+
+Kane Parsons' horror hit 'Backrooms' is basically begging for a sequel, if not an entire movie franchise. Here's everything we know so far.
+---------
+
+# I Watched Each Movie Roger Ebert Gave 0 Stars: These 6 Are Worth Watching
+
+Movie Lists, Roger Ebert
+
+Sat, 13 Jun 2026 20:00:19 GMT
+
+https://movieweb.com/roger-ebert-zero-star-movies/
+
+Roger Ebert gave 76 movies a zero-star rating, but some of them have aged well over time and are still worth watching.
+---------
+
+# All 13 Chuck Norris Movies From the ‘80s, Ranked
+
+Movie Lists, Chuck Norris, 1980s
+
+Sat, 13 Jun 2026 20:00:19 GMT
+
+https://movieweb.com/all-80s-chuck-norris-movies-ranked/
+
+The legend Chuck Norris saw some of his greatest films released in the 80s; here they are, ranked.
+---------
+
+# AMC's 3-Part Action Fantasy Series is a Perfect Weekend Binge
+
+Features, Into the Badlands
+
+Sat, 13 Jun 2026 19:30:19 GMT
+
+https://movieweb.com/into-the-badlands-fantasy-perfect-binge/
+
+'Game of Thrones' fans will enjoy a three-part fantasy action TV series on AMC that has just as much action and charater development.
+---------
+
 # A Regular Of Taylor Sheridan’s Westerns Has Officially Been Promoted To The Main Cast Of His Next Series
 
 TV, Masked Recs
