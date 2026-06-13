@@ -1,3 +1,399 @@
+# Xbox Officially Makes Iconic Open World Game 100% Free For 24 Hours
+
+Gaming, Xbox, Xbox Series X/S, Xbox Game Pass, PC, State of Decay 2, Triple-A Games
+
+Sat, 13 Jun 2026 04:45:21 GMT
+
+https://screenrant.com/xbox-free-game-state-of-decay-2-limited-time/
+
+An iconic and rather huge open-world game has gone completely free to play on all Xbox consoles, no Game Pass required, for the next 24 hours.
+---------
+
+# Fallout: New Vegas Officially Returns With Impressive New Release
+
+Gaming, Fallout, Fallout: New Vegas
+
+Sat, 13 Jun 2026 04:30:21 GMT
+
+https://screenrant.com/fallout-new-vegas-official-new-figures/
+
+We might not be getting a new arrival in the main Fallout series for some time to come yet, but there's still releases abound if you're on the lookout
+---------
+
+# Steam Critically Acclaimed Game 100 Percent Free To Keep Forever For 24 More Hours
+
+Gaming, Steam
+
+Sat, 13 Jun 2026 04:00:31 GMT
+
+https://screenrant.com/steam-june-2026-free-game-gravity-circuit-24-hours/
+
+Grab Gravity Circuit, the critically acclaimed 'Overwhelmingly Positive' rated 2D platformer, completely free to download and keep.
+---------
+
+# Dragon Ball's Goku Is One Of Anime's Strongest Heroes, But How Strong Is He? Explained
+
+Anime, Dragon Ball
+
+Sat, 13 Jun 2026 03:55:27 GMT
+
+https://screenrant.com/dragon-ball-how-strong-goku-is-theory/
+
+Goku is among anime's most powerful heroes, but how strong is he truly? The answer is beyond impressive.
+---------
+
+# Who Is The Mastermind In Cross: The Book Character Explained
+
+TV, Cross
+
+Sat, 13 Jun 2026 03:32:22 GMT
+
+https://screenrant.com/cross-tv-show-mastermind-book-identity-explained/
+
+Cross introduces the iconic book character The Mastermind, but the second season might not have a straightforward answer about their identity.
+---------
+
+# Netflix's New #1 Show Is the 10-Part Gritty Series That Makes John Wick Look Tame
+
+TV, Netflix, Masked Recs
+
+Sat, 13 Jun 2026 03:00:23 GMT
+
+https://screenrant.com/teach-you-a-lesson-netflix-john-wick-tame/
+
+Netflix just quietly released a gritty new action thriller that gives off John Wick in a high school hallway, making it an unapologetic binge.
+---------
+
+# Apple TV's New Cyberpunk Show Will Be The Lord Of The Rings Of Sci-Fi
+
+Streaming TV, Masked Recs
+
+Sat, 13 Jun 2026 02:30:23 GMT
+
+https://screenrant.com/neuromancer-lord-of-the-rings-sci-fi-apple-tv/
+
+Apple TV’s upcoming cyberpunk TV adaptation has the potential to be so ambitious in scale that it can become The Lord of the Rings of science fiction.
+---------
+
+# Netflix's Hit Mystery Based On Bestselling Books Will Return Sooner Than Expected (With A Twist)
+
+Streaming TV, Masked Recs
+
+Sat, 13 Jun 2026 02:00:33 GMT
+
+https://screenrant.com/a-good-girls-guide-to-murder-renewed-season-3-shorter/
+
+One of Netflix's best mystery TV shows, based on a bestselling book trilogy, will return for a final season, but the renewal comes with a twist.
+---------
+
+# Stephen King’s 52-Year-Old Book Is So Good, It Turned Into 4 Movies & A TV Show
+
+Streaming TV, Stephen King
+
+Sat, 13 Jun 2026 01:23:22 GMT
+
+https://screenrant.com/stephen-king-carrie-movies-upcoming-show-adaptations/
+
+Stephen King has proven to be a prolific writer of stories perfectly suited to the screen, but one novel has been adapted more than any other.
+---------
+
+# Rewatching From Season 1, I'm Amazed How Many Parallels There Are To Lost
+
+Streaming TV, From, Lost
+
+Sat, 13 Jun 2026 01:15:23 GMT
+
+https://screenrant.com/from-season-1-lost-parallels/
+
+After rewatching the first season of From, I find it fascinating how many narrative and thematic parallels it shares with Lost in its opening arcs.
+---------
+
+# 5 Near-Perfect Romance Anime That Stuck the Landing
+
+Anime, Yuri!!! On Ice: The Complete Series, My Love Story!!
+
+Sat, 13 Jun 2026 03:45:17 GMT
+
+https://www.cbr.com/near-perfect-romance-anime-great-endings-list/
+
+Romance anime like Weathering with You and Wotakoi delivered on the emotional journey with satisfying endings that left fans happy and fulfilled.
+---------
+
+# 7 Sci-Fi Movies as Good as Jurassic Park
+
+Movies, Jurassic Park, Sci-Fi
+
+Sat, 13 Jun 2026 03:45:17 GMT
+
+https://www.cbr.com/sci-fi-movies-as-good-as-jurassic-park-list/
+
+Sci-fi movies rarely reach the heights of Jurassic Park, but there are some that can hold a candle to the movie.
+---------
+
+# 10 Harsh Realities of Rewatching X-Files 33 Years Later
+
+TV, The X-Files, Sci-Fi, fox
+
+Sat, 13 Jun 2026 03:30:14 GMT
+
+https://www.cbr.com/the-xfiles-harsh-realities-list/
+
+The X-Files has many elements that still hold up, while others have since become harsh realities of how things have changed.
+---------
+
+# 25 Years Ago, the Xbox Changed Gaming Forever
+
+Games, Xbox (Original), Microsoft, Video Games
+
+Sat, 13 Jun 2026 03:15:14 GMT
+
+https://www.cbr.com/original-microsoft-xbox-retrospective-halo-forza/
+
+The original Xbox was released 25 years ago. Since then, gaming has never been the same.
+---------
+
+# The Poe Murders Blends Edgar Allan Poe's Most Terrifying Stories Into One Chilling Comic
+
+Comics, edgar allan poe
+
+Sat, 13 Jun 2026 03:00:14 GMT
+
+https://www.cbr.com/the-poe-murders-preview/
+
+This new graphic novel delivers a twisted twist on the works of Edgar Allan Poe.
+---------
+
+# 10 Anime Power-Ups That Came with Terrifying Consequences
+
+Anime, Attack on Titan, Hunter X Hunter
+
+Sat, 13 Jun 2026 02:46:14 GMT
+
+https://www.cbr.com/anime-power-ups-terrifying-consequences-list/
+
+From Hunter x Hunter to One Piece, these anime characters push their abilities to the limit and achieve transformations that come with a steep price.
+---------
+
+# 5 Near-Perfect Retro Games You Should Play in 2026
+
+Games, Video Games, Kid Icarus, crash bandicoot
+
+Sat, 13 Jun 2026 02:15:15 GMT
+
+https://www.cbr.com/near-perfect-retro-games-must-play-2026-list/
+
+From classic platformers to innovative adventures, these hidden gems of near-perfect retro gaming are worth revisiting in 2026.
+---------
+
+# 7 Near-Perfect 2020s Movies No One Talks About
+
+Movies, Drama, Furiosa: A Mad Max Saga, Nicolas Cage
+
+Sat, 13 Jun 2026 02:00:25 GMT
+
+https://www.cbr.com/best-2020s-movies-no-one-talks-about-ranked/
+
+The 2020s have had some absolute masterpieces release, so far, but these 7 near-perfect movies have been unfortunately ignored by audiences.
+---------
+
+# 4 Anime Villains More Terrifying Than Muzan Kibutsuji
+
+Anime, Jujutsu Kaisen, Dragon Ball, Jojo's Bizarre Adventure, Demon Slayer
+
+Sat, 13 Jun 2026 02:00:25 GMT
+
+https://www.cbr.com/anime-villains-more-terrifying-demon-slayer-muzan-kibutsuji-list/
+
+Muzan Kibutsuji is the terrifying final boss of Demon Slayer, but these four anime villains are more terrifying than any human-devouring demon.
+---------
+
+# 19 Years Later, NCIS' Darkest Ziva Episode Hits 5x as Hard
+
+TV, NCIS, Crime
+
+Sat, 13 Jun 2026 02:00:25 GMT
+
+https://www.cbr.com/ncis-darkest-ziva-episode-still-hits-hard/
+
+NCIS delivered some heavy episodes over the years, but Ziva David’s saddest Season 4 storyline hits so much harder after watching her story unfold.
+---------
+
+# 10 Greatest Dark Fantasy Books of All Time
+
+Movie, Books, Fantasy, The Witcher, The Dark Tower
+
+Sat, 13 Jun 2026 04:09:14 GMT
+
+https://collider.com/best-dark-fantasy-books-all-time-ranked/
+
+From Prince of Thorns to Katabasis, these are the best books that capture the haunting, often horrific, and always engaging nature of dark fantasy.
+---------
+
+# 25 Years Later, HBO's 5-Part Psychological Drama Is Still One of TV's All-Time Greats
+
+TV Features, Six Feet Under, Michael C. Hall, Peter Krause, Lauren Ambrose
+
+Sat, 13 Jun 2026 04:02:16 GMT
+
+https://collider.com/six-feet-under-hbo-25th-anniversary/
+
+HBO's critically acclaimed series Six Feet Under offered poignant insights into life, death, and relationships that remain relevant 25 years later.
+---------
+
+# 44 Years Later, This Is the Greatest Star Trek Quote in Sci-Fi History
+
+TV Features, Star Trek II: The Wrath of Khan, Star Trek: The Original Series, Star Trek, Leonard Nimoy
+
+Sat, 13 Jun 2026 03:41:15 GMT
+
+https://collider.com/star-trek-spock-best-quote-wrath-of-khan/
+
+Spock's most famous line from Star Trek II: The Wrath of Khan has a deeper meaning beyond the popular misconception of the quote.
+---------
+
+# 10 Fantasy Movie Heroes More Likable Than Harry Potter
+
+Movie, Harry Potter, The Lord of the Rings, Fantasy, The Princess Bride
+
+Sat, 13 Jun 2026 03:09:14 GMT
+
+https://collider.com/fantasy-movie-heroes-more-likable-than-harry-potter/
+
+Harry Potter is a fine fantasy protagonist, but other heroes like The Princess Bride's Westley and The Lord of the Rings' Frodo are far more likable.
+---------
+
+# Nearly 60 Years Later, ‘Star Trek’s Most Chilling Death Still Defines Sci-Fi Horror
+
+TV Features, Star Trek, Sci-Fi, William Shatner, Leonard Nimoy
+
+Sat, 13 Jun 2026 02:52:15 GMT
+
+https://collider.com/star-trek-the-original-series-devastating-death-pilot-episode/
+
+Star Trek's first aired episode, "The Man Trap," introduced Nancy Crater's tragic fate and shaped the franchise's horror legacy.
+---------
+
+# One of the Funniest 5-Minute Scenes on TV This Year Completely Proved Fans Wrong
+
+TV Features, Widow's Bay, Apple TV, Dale Dickey, Matthew Rhys
+
+Sat, 13 Jun 2026 02:01:15 GMT
+
+https://collider.com/widows-bay-episode-9-richard-warren-descendant-reveal-fan-theory/
+
+One of Widow's Bay's funniest scenes reveals that Richard Warren's only living descendant is the last character fans expected.
+---------
+
+# ‘Obsession’ Fans Need To Watch This Underrated ‘Supernatural’ Episode on Prime Video
+
+TV Features, Supernatural, Jared Padalecki, Jensen Ackles, Obsession
+
+Sat, 13 Jun 2026 01:55:15 GMT
+
+https://collider.com/supernatural-prime-video-obsession-wishful-thinking/
+
+This disturbing Supernatural episode blends horror and humor as it takes the Winchesters to a cursed town where wishes have gone horribly wrong.
+---------
+
+# Say Goodbye to the Most Overlooked WWII Movie of the  of the 2010s on Netflix
+
+Movie Features, Unbroken, Netflix, Angelina Jolie, Jack O'Connell
+
+Sat, 13 Jun 2026 01:41:16 GMT
+
+https://collider.com/the-most-overlooked-wwii-movie-leaving-netflix/
+
+Angelina Jolie's incredible WWII film 'Unbroken', starring Jack O'Connell, is about to leave Netflix forever.
+---------
+
+# Ridley Scott's Brutal 144-Minute War Masterpiece Officially Arrives on Streaming
+
+Movie News, Ridley Scott, Black Hawk Down, War, Josh Hartnett
+
+Sat, 13 Jun 2026 01:30:16 GMT
+
+https://collider.com/ridley-scott-war-epic-black-hawk-down-streaming-peacock-june-2026/
+
+Ridley Scott’s 144-minute war epic arrives on streaming, reminding audiences of his most immersive battlefield filmmaking outside his mythic classics.
+---------
+
+# 8 Sci-Fi Movies With the Most Interesting Visions of the Future
+
+Movie, Sci-Fi, Blade Runner, 2001: A Space Odyssey, Metropolis
+
+Sat, 13 Jun 2026 01:14:15 GMT
+
+https://collider.com/sci-fi-movies-most-interesting-visions-of-the-future-ranked/
+
+From Blade Runner, to Her, to Gattaca, these visionary sci-fi masterpieces predicted humanity’s fears, ambitions, and possible futures.
+---------
+
+# Lionsgate Puts Two Competing 'Monopoly' Films Into Development
+
+Movie News, A Minecraft Movie, Monopoly
+
+Sat, 13 Jun 2026 03:21:13 GMT
+
+https://movieweb.com/lionsgate-developing-two-monopoly-films/
+
+'A Minecraft Movie's Neil Widener and Gavin James and 'Dumb Money's Rebecca Angelo and Lauren Schuker Blum are developing separate pitches.
+---------
+
+# 3 Binge-Worthy Netflix Miniseries You Won’t Want to Miss This Weekend
+
+TV Lists, Netflix
+
+Sat, 13 Jun 2026 02:00:32 GMT
+
+https://movieweb.com/netflix-miniseries-binge-weekend/
+
+If you are looking for the perfect weekend binge, Netflix has some of the best miniseries you can stream.
+---------
+
+# Gene Shalit, Seminal 'Today Show' Movie Critic, Dies at 100
+
+Movie News, Silence of the Lambs, X-Men
+
+Sat, 13 Jun 2026 01:35:11 GMT
+
+https://movieweb.com/gene-shalit-movie-critic-dies-100/
+
+Gene Shalit, a longtime movie critic on NBC's 'Today Show, passed away at the age of 100.
+---------
+
+# 'Backrooms' Uncanny Still-Life Monsters Explained
+
+Features, Backrooms, Horror
+
+Sat, 13 Jun 2026 01:15:18 GMT
+
+https://movieweb.com/backrooms-still-lifes-monsters-explained/
+
+The entities haunting the Complex in Kane Parsons' runaway hit horror movie 'Backrooms' are poor copies of real human beings.
+---------
+
+# 'Blair Witch' Star Who Abandoned Hollywood Breaks Silence on New Remake
+
+Movie News, Blair Witch Project, The Blair Witch Project 4
+
+Sat, 13 Jun 2026 00:54:41 GMT
+
+https://movieweb.com/blair-witch-project-reboot-heather-donahue-reaction/
+
+Heather Donahue confirms she's not involved in the upcoming movie in any capacity.
+---------
+
+# Netflix's 'Reacher' Meets 'Battle Royale' Action Thriller Is a Global Streaming Hit
+
+TV News, Teach You A Lesson, Netflix, Hot on Streaming, Action
+
+Sat, 13 Jun 2026 00:15:21 GMT
+
+https://movieweb.com/teach-you-a-lesson-reacher-streaming-success-netflix-june-2026-action/
+
+Netflix's new action-packed K-drama, 'Teach You a Lesson,' is one of the biggest shows on streaming.
+---------
+
 # X-Men's New Villain Officially Combines 2 Iconic Characters
 
 Marvel Comics, X-Men
