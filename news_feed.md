@@ -1,3 +1,355 @@
+# A Regular Of Taylor Sheridan’s Westerns Has Officially Been Promoted To The Main Cast Of His Next Series
+
+TV, Masked Recs
+
+Sat, 13 Jun 2026 19:00:21 GMT
+
+https://screenrant.com/kai-caster-main-cast-frisco-king-taylor-sheridan/
+
+Taylor Sheridan has given an unsung TV Western actor the first main part of their budding TV career, in his upcoming crime spinoff series.
+---------
+
+# Cape Fear TV Reboot Just Exposed Hollywood’s Adult Thriller Mistake
+
+Movies, Originals
+
+Sat, 13 Jun 2026 19:00:21 GMT
+
+https://screenrant.com/video/cape-fear-lets-spielberg-and-scorsese-save-the-adult-thriller-genre/
+
+Cape Fear reunites Steven Spielberg and Martin Scorsese for a gripping psychological thriller that could revive the adult thriller genre with prestige filmmaking, suspense, and star-powered storytelling.
+---------
+
+# Elden Ring Meets Valheim In New RPG You Can Play Free Now
+
+Gaming
+
+Sat, 13 Jun 2026 19:00:21 GMT
+
+https://screenrant.com/elden-ring-nested-lands-free-steam-demo/
+
+If you enjoy the crafting and survival in Valheim, but wish it had the difficulty and bleak atmosphere of Elden Ring, you're in luck.
+---------
+
+# Grow A Garden 2: All Active Codes (June 2026)
+
+Gaming, Roblox, Live Service Games, PC
+
+Sat, 13 Jun 2026 18:30:52 GMT
+
+https://screenrant.com/grow-a-garden-2-all-active-codes/
+
+Grow a Garden 2 is here, and the sequel to the massive Roblox gardening hit includes an easy way to start off with a few helpful freebies.
+---------
+
+# Marvel Rivals: How To Play Cyclops (Abilities, Ultimate, Tips & Tricks)
+
+Gaming, Marvel Rivals, PC, Live Service Games
+
+Sat, 13 Jun 2026 18:30:21 GMT
+
+https://screenrant.com/marvel-rivals-cyclops-build-best-abilities-ultimate-team-comps/
+
+Cyclops is the latest Duelist to be added to Marvel Rivals, using pinpoint accurate Optic Blasts to eliminate enemies no matter where they appear.
+---------
+
+# The Walking Dead's 2026 Return With New Episodes Officially Ends An Era
+
+Streaming TV, Masked Recs, The Walking Dead
+
+Sat, 13 Jun 2026 18:30:21 GMT
+
+https://screenrant.com/the-walking-dead-city-season-3-maggie-negan-end-era/
+
+The trailer for The Walking Dead: Dead City season 3 confirms that Maggie and Negan are finally done feuding, which will pull the show out of a rut.
+---------
+
+# Hellboy Reboot Problems Pushed Marvel Star To Seek Help To Save $55M Flop
+
+Movies, Hellboy, David Harbour
+
+Sat, 13 Jun 2026 18:08:41 GMT
+
+https://screenrant.com/hellboy-2019-movie-david-harbour-saving-scripts-attempts/
+
+Not only was 2019's Hellboy not received well, it also had a trouble production, which prompted David Harbour to seek outside help during filming.
+---------
+
+# It's Officially The Start Of An Era For Sydney Sweeney
+
+Streaming TV, Masked Recs
+
+Sat, 13 Jun 2026 18:07:21 GMT
+
+https://screenrant.com/sydney-sweeney-career-new-era-euphoria-graduated/
+
+Sydney Sweeney has a chance to redefine her image, and it's coming at a time when the actress has more options in front of her than ever before.
+---------
+
+# 10 MCU Villains Who Were Wasted (And Deserve A Comeback After Avengers: Secret Wars)
+
+Classic Movies, Marvel Cinematic Universe
+
+Sat, 13 Jun 2026 18:05:21 GMT
+
+https://screenrant.com/mcu-villains-wasted-deserve-comeback/
+
+The MCU has had some incredible villains, but there have also been several that the movies wasted and who deserve a comeback in the next phase.
+---------
+
+# Guy Ritchie Meets Deadpool In Eric Kripke’s Original The Boys Pitch
+
+TV, The Boys
+
+Sat, 13 Jun 2026 18:01:43 GMT
+
+https://screenrant.com/the-boys-original-pitch-eric-kripke-guy-ritchie-deadpool/
+
+Before The Boys became a massive hit for Prime Video, Eric Kripke reveals his original pitch, which compared it to Deadpool and Guy Ritchie movies.
+---------
+
+# Fallout: New Vegas Officially Returns With Stunning New Release Coming Soon
+
+Games, Fallout, Fallout New Vegas
+
+Sat, 13 Jun 2026 19:10:13 GMT
+
+https://www.cbr.com/fallout-new-vegas-official-new-release-2026/
+
+More Fallout: New Vegas content is on the way, giving fans hope that the long-rumored remake or remaster is finally coming to modern platforms.
+---------
+
+# The Walking Dead: Dead City Stars Hype Up Season 3 as 'Best Season by Far'
+
+TV, The Walking Dead: Dead City
+
+Sat, 13 Jun 2026 19:09:20 GMT
+
+https://www.cbr.com/the-walking-dead-dead-city-season-3-best-season/
+
+Walking Dead fans won't want to miss the third season of Dead City.
+---------
+
+# Disney's $2.3B Adventure Franchise Is Officially Streaming for Free
+
+Movies, Indiana Jones
+
+Sat, 13 Jun 2026 19:00:13 GMT
+
+https://www.cbr.com/disney-indiana-jones-adventure-streaming-for-free-pluto-tv-june-2026/
+
+One of the most beloved adventure franchises of all time is celebrating a massive milestone on a fan-favorite streaming platform, and it's free.
+---------
+
+# What Organic Webs Mean For Spider-Man in Brand New Day
+
+Movies, Spider-Man: Brand New Day, MCU, Spider-Man
+
+Sat, 13 Jun 2026 19:00:13 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-power-upgrade-confirmed/
+
+Tom Holland confirmed that Spider-Man: Brand New Day will give Peter Parker an ability fans have anticipated since the first trailer.
+---------
+
+# AMC's Best Fantasy Show Is Officially Growing With More Spinoffs
+
+TV, Interview with the Vampire, The Vampire Lestat, Anne Rice
+
+Sat, 13 Jun 2026 18:52:26 GMT
+
+https://www.cbr.com/amc-immortal-universe-more-spinoffs/
+
+The near-perfect fantasy series based on a bestselling classic series has near-perfect reviews.
+---------
+
+# Amazon's 4-Season Dieselpunk Show Based on a Philip K. Dick Book Is Dystopian Sci-Fi Perfection
+
+TV, Prime Video, The Man in the High Castle
+
+Sat, 13 Jun 2026 18:30:13 GMT
+
+https://www.cbr.com/amazon-the-man-in-the-high-castle-perfect-dieselpunk-dystopian-sci-fi/
+
+Amazon Prime's Philip K. Dick TV adaptation is perfect dieselpunk for the 21st century.
+---------
+
+# 10 Greatest Anime Masterpieces of the 21st Century
+
+Anime, Assassination Classroom, Attack on Titan, Naruto, Hunter X Hunter
+
+Sat, 13 Jun 2026 18:15:14 GMT
+
+https://www.cbr.com/official-greatest-anime-masterpieces-21st-century/
+
+Since the beginning of the millennium, anime has taken a major step forward in global popularity, and these ten masterpieces are a big reason why.
+---------
+
+# 1 of the Best Shows of 2026 Is Killing It on PVOD as Fans Await Season 2
+
+TV, Heated Rivalry
+
+Sat, 13 Jun 2026 18:01:13 GMT
+
+https://www.cbr.com/heated-rivalry-sports-romance-pvod-success-june-2026/
+
+The series changed modern television.
+---------
+
+# Marvel Officially Confirms All-New X-Men Team for a Bold New Era
+
+Comics, X-Men
+
+Sat, 13 Jun 2026 18:01:13 GMT
+
+https://www.cbr.com/x-men-31-beast-x-men-science-team-revealed/
+
+The Marvel Universe finally has exact the new team of X-Men it needs, and every single member is a pitch-perfect choice for the roster.
+---------
+
+# Avatar: The Last Airbender Officially Revives Azula vs Katara in New Rematch Reveal
+
+Anime, Avatar: The Last Airbender, Paramount, Nickelodeon
+
+Sat, 13 Jun 2026 18:01:13 GMT
+
+https://www.cbr.com/avatar-last-airbender-fighting-game-azula-vs-katara-reveal/
+
+Avatar: The Last Airbender fans just got their first glimpse at the franchise's hotly-anticipated first fighting game with an Azula vs Katara rematch
+---------
+
+# 21 Years Later, Nicolas Cage’s Darkest Crime Thriller Is Streaming for Free
+
+Movie News, Lord of War, Nicolas Cage, Jared Leto, Ethan Hawke
+
+Sat, 13 Jun 2026 19:00:14 GMT
+
+https://collider.com/nicolas-cage-lord-of-war-free-streaming-fawesome-june-2026/
+
+Nicolas Cage’s dark crime thriller Lord of War, also starring Jared Leto, is streaming for free. Here's where to watch it.
+---------
+
+# 10 Greatest Disaster Movie Climaxes
+
+Movie, Twister, Titanic, Pompeii, The Towering Inferno
+
+Sat, 13 Jun 2026 18:53:13 GMT
+
+https://collider.com/best-disaster-movie-climaxes-ranked/
+
+Disaster movie classics like Twister, The Towering Inferno, and Titanic have unforgettable and heart-pounding climaxes.
+---------
+
+# CBS's Classic 2-Part Sitcom Is Officially Climbing Another Streamer's Charts
+
+TV Features, Georgie & Mandy's First Marriage, CBS, Sitcom, Young Sheldon
+
+Sat, 13 Jun 2026 18:38:13 GMT
+
+https://collider.com/cbs-sitcom-georgie-and-mandys-first-marriage-climbing-amazon-charts/
+
+Georgie & Mandy's First Marriage is finding success on multiple streaming platforms, blending humor and depth for a relatable and engaging series.
+---------
+
+# Even the Disaster Movie King Couldn't Make This Star-Studded 2022 Sci-Fi a Box Office Hit
+
+Movie Features, Roland Emmerich, Moonfall, Independence Day, Patrick Wilson
+
+Sat, 13 Jun 2026 18:28:14 GMT
+
+https://collider.com/moonfall-2022-roland-emmerich-disaster-movie-box-office-bomb-why-it-failed/
+
+Roland Emmerich's Moonfall became a box office bomb despite its massive disaster movie spectacle, ambitious sci-fi premise, and star cast.
+---------
+
+# The Boroughs Taught Its Monster “Geriatric Parkour” | Collider BTS
+
+TV, The Boroughs
+
+Sat, 13 Jun 2026 18:15:15 GMT
+
+https://collider.com/video/the-boroughs-taught-its-monster-geriatric-parkour-collider-bts/
+
+Discover how The Boroughs turned its elderly creature into an unlikely action star with “geriatric parkour,” as the cast and creators reveal the hilarious behind-the-scenes challenges of bringing the monster to life.
+---------
+
+# Netflix’s 2-Part Sci-Fi Fantasy Saga Is Officially Taking Over the World
+
+Movie News, Rebel Moon – Part One: A Child of Fire, Rebel Moon - Part Two: The Scargiver, Zack Snyder, Netflix
+
+Sat, 13 Jun 2026 18:00:14 GMT
+
+https://collider.com/zack-snyder-rebel-moon-streaming-success-netflix-june-2026/
+
+Zack Snyder's two-part sci-fi fantasy saga with shades of Dune and Lord of the Rings is staging a worldwide takeover. Read on for more details.
+---------
+
+# The Greatest Scene in Every Pierce Brosnan James Bond Movie
+
+Movie, James Bond, Pierce Brosnan, GoldenEye, The World is Not Enough
+
+Sat, 13 Jun 2026 17:52:42 GMT
+
+https://collider.com/pierce-brosnan-james-bond-movies-best-scenes/
+
+The tank chase in GoldenEye and the sword fight in Die Another Day are among the best scenes from Pierce Brosnan's excellent tenure as James Bond.
+---------
+
+# After a 2 Year Wait, the X-Men Are Officially Back in Gorgeous New Trailer
+
+TV News, X-Men '97, Marvel, Disney+, MCU
+
+Sat, 13 Jun 2026 17:49:28 GMT
+
+https://collider.com/new-x-men-97-season-2-trailer-marvel-disney-plus/
+
+A new trailer for X-Men '97 reveals some new fan-favorites joining the fight against Apocalypse, including Havoc, Polaris, and more.
+---------
+
+# 24 Years Ago, the James Bond Franchise Missed a Game-Changing Opportunity
+
+Features, James Bond
+
+Sat, 13 Jun 2026 19:00:18 GMT
+
+https://movieweb.com/james-bond-die-another-day-sean-connery-pierce-brosnan/
+
+Pierce Brosnan's James Bond in Die Another Day almost met an iconic Bond actor from the past, a move that could have changed the franchise forever.
+---------
+
+# Every Steven Spielberg Sci-Fi Movie, Ranked By Rotten Tomatoes Score
+
+Movie Lists, Steven Spielberg
+
+Sat, 13 Jun 2026 18:30:19 GMT
+
+https://movieweb.com/steven-spielberg-sci-fi-movies-rotten-tomatoes/
+
+Steven Spielberg has made many sci-fi movies, from 'Disclosure Day' to 'Close Encounters of the Third Kind' to 'E.T.'
+---------
+
+# 'Breaking Bad's Perfect Replacement Only Took 2 Years To Arrive
+
+Features, Breaking Bad, Narcos
+
+Sat, 13 Jun 2026 18:00:19 GMT
+
+https://movieweb.com/narcos-breaking-bad-replacement/
+
+'Breaking Bad,' the crime thriller starring Bryan Cranston and Aaron Paul as Walter White and Jesse Pinkman, can be compared to another great series.
+---------
+
+# Before 'NCIS,' Gary Cole Starred in This Underrated Supernatural Series
+
+Features, Gary Cole
+
+Sat, 13 Jun 2026 18:00:19 GMT
+
+https://movieweb.com/gary-cole-ncis-first-role-american-gothic/
+
+Gary Cole's underrated supernatural series before NCIS deserves to be watched.
+---------
+
 # 10 Most Creative Powers In Anime History
 
 Anime
