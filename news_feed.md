@@ -1,3 +1,267 @@
+# Masters Of The Universe Box Office Collapses In Week 2 After Disappointing Debut
+
+Movies, Box Office, Masters of the Universe
+
+Sat, 13 Jun 2026 16:07:42 GMT
+
+https://screenrant.com/masters-of-the-universe-2026-box-office-week-2-domestic-drop/
+
+The new He-Man movie Masters of the Universe follows its disappointing domestic box office debut with a staggering drop in its its sophomore weekend.
+---------
+
+# The Last Of Us Is Officially Bringing Back A Villain Twist For Season 3
+
+Streaming TV, The Last of Us
+
+Sat, 13 Jun 2026 16:07:21 GMT
+
+https://screenrant.com/the-last-of-us-season-3-peter-sarsgaard-original-character-villain/
+
+The Last of Us season 3 has cast Peter Sarsgaard as a Seraphite leader who wasn't in the game, and it's not the TV show's first original villain.
+---------
+
+# 8 Near-Perfect TV Crime Thrillers No One Remembers
+
+Classic TV
+
+Sat, 13 Jun 2026 16:00:21 GMT
+
+https://screenrant.com/tv-crime-thrillers-perfect-forgotten/
+
+The genre of crime thrillers is a popular one, and while it has some of the best TV shows of all time, many other great ones have become forgotten.
+---------
+
+# Jujutsu Kaisen Season 4 Is Going To Finally Reveal Sukuna's Strongest Form Ever
+
+Anime, Jujutsu Kaisen
+
+Sat, 13 Jun 2026 16:00:21 GMT
+
+https://screenrant.com/jujutsu-kaisen-season-4-sukuna-strongest-form-ever/
+
+Sukuna's strongest form is almost here.
+---------
+
+# New Game Of Thrones 2026 Release Officially Rewrites Show's Ending
+
+Gaming, Game Of Thrones, Game of Thrones
+
+Sat, 13 Jun 2026 16:00:21 GMT
+
+https://screenrant.com/game-of-thrones-war-for-westeros-lore-changes/
+
+Embark on a strategic battle to conquer Westeros in the upcoming Game of Thrones: War for Westeros.
+---------
+
+# Backrooms’ New Behind-The-Scenes Reveal Means We Need A Sequel Now More Than Ever
+
+Movies, Backrooms
+
+Sat, 13 Jun 2026 15:55:22 GMT
+
+https://screenrant.com/backrooms-behind-the-scenes-ending-sequel-movie-need/
+
+The Backrooms director's latest comments about the series and its ending point makes a movie sequel even more perfect for the franchise.
+---------
+
+# Scary Movie 6 Plummets With One Of History’s Worst Box Office Drops
+
+Movies, Scary Movie, Box Office
+
+Sat, 13 Jun 2026 15:51:28 GMT
+
+https://screenrant.com/scary-movie-6-box-office-week-2-domestic-drop/
+
+2026's Scary Movie, which is the sixth installment in the horror parody franchise, suffers from a record-breaking box office drop in week 2.
+---------
+
+# It's Official, Apple TV’s Hit Elle Fanning TV Show Will Be Even Better In 2
+
+Streaming TV, Masked Recs
+
+Sat, 13 Jun 2026 15:45:21 GMT
+
+https://screenrant.com/margos-got-money-troubles-jb-character-omission-fixed/
+
+Season 2 of the hit show was already off to a great start with an unexpected renewal, but one new confirmation will make it even better than season 1.
+---------
+
+# Russell Crowe Fought Against 1 Gladiator Moment That Nearly Destroyed Maximus' Revenge Quest In Ridley Scott Epic
+
+Movies, Gladiator, Gladiator II
+
+Sat, 13 Jun 2026 15:38:23 GMT
+
+https://screenrant.com/gladiator-movie-sex-scene-pushback-maximus-revenge-russell-crowe/
+
+Russell Crowe details how he had to fight against a moment that would have destroyed Maximus' journey in the original Gladiator movie.
+---------
+
+# X-Men's Cyclops Redesign Officially Revealed Ahead of All-New Team Debut
+
+Comics, comic books, X-Men, X-Force, Marvel Comics
+
+Sat, 13 Jun 2026 16:01:14 GMT
+
+https://www.cbr.com/uncanny-x-men-cyclops-redesign-x-force/
+
+In a shocking twist, Cyclops makes a bold move, leaving the X-Men behind and joining another team.
+---------
+
+# Hatsune Miku & Cinnamoroll Officially Reunite This June in New First Look
+
+Anime, sanrio, Hatsune Miku
+
+Sat, 13 Jun 2026 16:01:14 GMT
+
+https://www.cbr.com/hatsune-miku-cinnamoroll-collectible-figure/
+
+This adorable duo is back with another official Hatsune Miku x Cinnamoroll Collab release scheduled for the end of this month.
+---------
+
+# Jeffrey Dean Morgan Confirms Leaving Ridley Scott's Hit CBS Legal Drama for The Walking Dead
+
+TV, The Good Wife, The Walking Dead, jeffrey dean morgan, The Walking Dead: Dead City
+
+Sat, 13 Jun 2026 15:30:18 GMT
+
+https://www.cbr.com/jeffrey-dean-morgan-leaving-the-good-wife-the-walking-dead/
+
+The actor was a main cast member in the seventh and final season.
+---------
+
+# 36 Years Later, Star Trek's Hardest Picard Line Still Makes Kirk Look Tame
+
+TV, Star Trek, Star Trek: The Next Generation, Star Trek: The Original Series
+
+Sat, 13 Jun 2026 15:30:15 GMT
+
+https://www.cbr.com/star-trek-the-next-generation-hardest-picard-line/
+
+Star Trek fans often debate whether Captain Kirk or Captain Picard is tougher, but one line all but settles that debate for good.
+---------
+
+# Chainsaw Man Tops Japan’s Billboard Charts With Final Manga Volume
+
+Anime, Chainsaw Man
+
+Sat, 13 Jun 2026 15:26:15 GMT
+
+https://www.cbr.com/chainsaw-man-manga-volume-24-billboard-book-charts-japan/
+
+Chainsaw Man Volume 24 has beaten series like Dandadan and Boruto to top Japan’s sales charts, sending the manga off with a bang after 8 years.
+---------
+
+# 10 Most Unfair Dragon Ball Tournament Matchups
+
+Anime, Dragon Ball, Akira Toriyama
+
+Sat, 13 Jun 2026 15:16:15 GMT
+
+https://www.cbr.com/dragon-ball-most-unfair-tournament-fights/
+
+Dragon Ball is rich in tense tournament battles, but there are also particular matches that are poorly balanced and hardly fair.
+---------
+
+# Anya Taylor-Joy’s Sci-Fi Horror Gem Climbs the Charts on Apple TV Ahead of New Limited Series
+
+Movies, The Gorge, Apple TV, Sci-Fi
+
+Sat, 13 Jun 2026 15:00:15 GMT
+
+https://www.cbr.com/anya-taylor-joy-the-gorge-sci-fi-horror-apple-tv-success-june-2026/
+
+Anya Taylor-Joy's underrated sci-fi horror, The Gorge, is rising on streaming a month before her anticipated return to television.
+---------
+
+# 10 Anime Protagonists Who Were the Real Villain All Along
+
+Anime, Attack on Titan, Code Geass: Lelouch of the Rebellion, Bleach
+
+Sat, 13 Jun 2026 15:00:15 GMT
+
+https://www.cbr.com/anime-protagonists-who-were-the-real-villain/
+
+Protagonists in anime are meant to lead the charge and save the day, but these ten characters blurred the narrative and ended up becoming villains.
+---------
+
+# Guy Ritchie's 2-Part Crime Epic Finally Returns to Netflix This Year
+
+TV News, Guy Ritchie, The Gentlemen, Netflix
+
+Sat, 13 Jun 2026 16:00:14 GMT
+
+https://collider.com/netflix-the-gentlemen-season-2-release-date-2026/
+
+Guy Ritchie's binge-worthy Netflix show is set to become your next streaming obsession before it returns for Season 2. Read on for more details.
+---------
+
+# Apple TV's Best Sci-Fi Secret Officially Returns This Week
+
+TV News, Apple TV, Colin Farrell, Sugar, Sci-Fi
+
+Sat, 13 Jun 2026 15:30:15 GMT
+
+https://collider.com/sugar-season-2-apple-tv-sci-fi-release-date-june-19/
+
+Apple TV’s Sugar returns for Season 2 this week, reviving one of the streamer’s best-kept sci-fi secrets.
+---------
+
+# BritBox's 6-Part Crime Drama Is One of Its Best Book Adaptations
+
+TV Features, Grace, Britbox, Crime, Drama
+
+Sat, 13 Jun 2026 15:23:15 GMT
+
+https://collider.com/britbox-crime-drama-grace-book-adaptation/
+
+BritBox's Grace is a must-watch for crime fans, both a good old-fashioned caper and a meticulous adaptation of Peter James' novels.
+---------
+
+# Steven Spielberg’s Sci-Fi Comeback Takes Aim at a J.J. Abrams Classic in Box Office Debut
+
+Movie News, Steven Spielberg, Disclosure Day, Sci-Fi, Box Office
+
+Sat, 13 Jun 2026 14:45:14 GMT
+
+https://collider.com/disclosure-day-overtakes-super-8-box-office-steven-spielberg-jj-abrams/
+
+Steven Spielberg’s Disclosure Day is aiming to beat the box office debut of J.J. Abrams’ Super 8 as the sci-fi spectacle opens in theaters.
+---------
+
+# 'The Witcher' Meets 'John Wick' Fantasy Reboot Can Fix Henry Cavill's Franchise Streak
+
+Features, Henry Cavill, Highlander, Fantasy
+
+Sat, 13 Jun 2026 16:00:19 GMT
+
+https://movieweb.com/highlander-reboot-redeem-henry-cavill-franchise-streak/
+
+Henry Cavill's eclectic franchise history may finally be due for a hit after misteps with the DCEU and 'The Witcher'.
+---------
+
+# When 'Disclosure Day' Releases on Streaming
+
+Features, Disclosure Day
+
+Sat, 13 Jun 2026 15:00:21 GMT
+
+https://movieweb.com/disclosure-day-streaming-release-date/
+
+StevenSpielberg's 'Disclosure Day' is a sci-fi movie starring Emily Blunt and Josh O'Connor and releases in theaters on June 12, 2026.
+---------
+
+# 'The Mandalorian' Star Pushes Back on Toxic Star Wars Fandom: "It's Ours"
+
+TV News, Star Wars, The Mandalorian
+
+Sat, 13 Jun 2026 14:44:43 GMT
+
+https://movieweb.com/mandalorian-brandon-wayne-toxic-star-wars-fandom/
+
+'The Mandalorian' star Brendan Wayne airs his thoughts on 'The Acolyte' Season 2, Jedi Master Kelleran Beq, and disgruntled fans.
+---------
+
 # My Hero Academia's Creator Officially Recommends Shonen Jump's Brand-New Mega Hit
 
 Anime, My Hero Academia, Shonen Jump
