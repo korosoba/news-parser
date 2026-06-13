@@ -1,3 +1,300 @@
+# 12 Greatest TV Sports Dramas, Ranked
+
+Classic TV
+
+Sat, 13 Jun 2026 12:16:20 GMT
+
+https://screenrant.com/best-tv-sports-drama-series/
+
+12 TV sports dramas that masterfully blend intense sports action with compelling character-driven stories, creating unforgettable viewing experiences.
+---------
+
+# 42 Years Later, Venom Gets The God-Tier Upgrade That Makes Him Stronger Than Hulk
+
+Marvel Comics, Venom, Marvel
+
+Sat, 13 Jun 2026 12:00:22 GMT
+
+https://screenrant.com/venom-thor-god-tier-upgrade-stronger-hulk/
+
+Spider-Man is no longer Venom's first host, as a much more powerful hero becomes the first Marvel character to bond with the black symbiote.
+---------
+
+# Supergirl’s New DCU Suit Reveal Changes How You See Superman’s Ending
+
+Movies, Supergirl, DC Universe, Superman
+
+Sat, 13 Jun 2026 12:00:22 GMT
+
+https://screenrant.com/supergirl-new-dc-universe-suit-reveal-superman-ending/
+
+The newest reveal we've gotten about Supergirl's suit in the DC Universe makes the finale of 2025's Superman movie already have some different layers.
+---------
+
+# Dutton Ranch Officially Makes Yellowstone Small
+
+Streaming TV, Dutton Ranch, Yellowstone
+
+Sat, 13 Jun 2026 12:00:22 GMT
+
+https://screenrant.com/dutton-ranch-makes-yellowstone-small/
+
+As this new era of Yellowstone continues, Taylor Sheridan's new series that's breaking ground officially makes the Duttons' Montana legacy small.
+---------
+
+# Batman: Gotham City Chronicles RPG Officially Announced
+
+Gaming
+
+Sat, 13 Jun 2026 12:00:22 GMT
+
+https://screenrant.com/batman-gotham-city-chronicles-rpg-season-3-kickstarter/
+
+Monolith Board Games have converted their Batman: Gotham City Chronicles board game into a TTRPG taking place in the world of DC's most popular hero.
+---------
+
+# Boston Blue Star Presses For Tom Selleck Cameo In Blue Bloods Spinoff
+
+Network TV, Blue Bloods, Boston Blue
+
+Sat, 13 Jun 2026 11:30:20 GMT
+
+https://screenrant.com/boston-blue-tom-selleck-cameo-hopes-sonequa-martin-green/
+
+Over a year since Blue Bloods ended, Boston Blue is still waiting for Tom Selleck's return as Frank Reagan in the new CBS spinoff sequel.
+---------
+
+# Red Dead Redemption 2 Free June Download Available For 48 Hours
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2
+
+Sat, 13 Jun 2026 11:30:20 GMT
+
+https://screenrant.com/red-dead-redemption-2-june-2026-free-online-download-48-hours/
+
+Red Dead Redemption 2 continues to receive new content from Rockstar, and the latest event includes some free items to download for your character.
+---------
+
+# It’s Official: Spider-Man’s Role In Civil War Will Never Be The Same
+
+Marvel Comics, Spider-Man
+
+Sat, 13 Jun 2026 11:00:37 GMT
+
+https://screenrant.com/spider-man-civil-war-origin-change/
+
+New lore has been exhumed from a nostalgic miniseries that aims to add clarification to the first Civil War event and Spider-Man's role in it.
+---------
+
+# Elder Scrolls 6 Set To Be Unplayable For Millions Of Gamers Following Official Update
+
+Gaming, The Elder Scrolls
+
+Sat, 13 Jun 2026 11:00:37 GMT
+
+https://screenrant.com/elder-scrolls-6-xbox-exclusive-update-june-2026/
+
+Speculation mounts that The Elder Scrolls VI could be an Xbox exclusive, potentially making it unplayable for millions of gamers.
+---------
+
+# Taken Returns as a Streaming Hit After Launching an Action Franchise
+
+Movies, Taken, liam neeson, Paramount Plus
+
+Sat, 13 Jun 2026 12:01:14 GMT
+
+https://www.cbr.com/liam-neeson-taken-streaming-success-paramount-june-2026/
+
+Eighteen years after launching a massive action franchise, Liam Neeson's hit movie returns to the streaming charts.
+---------
+
+# Marvel Zombies Officially Confirmed To Return Before Disney+ Animated Series Comeback
+
+Comics, Marvel Zombies
+
+Sat, 13 Jun 2026 12:01:14 GMT
+
+https://www.cbr.com/marvel-zombies-war-zone-release-date-confirmed/
+
+The Marvel Zombies are back, and new project details reveal that it'll be The Punisher who whips them into shape.
+---------
+
+# Tombstone's Johnny Ringo has the Greatest Quote in Western History
+
+Movies, Western, Tombstone
+
+Sat, 13 Jun 2026 12:01:14 GMT
+
+https://www.cbr.com/tombstone-johnny-ringo-best-quote-western-movie-history/
+
+Tombstone secured its place in cinematic history thanks to its memorable script, but one line from an iconic villain elevated it to perfection.
+---------
+
+# Lilo & Stitch 2 Finds Director With Deep Franchise Ties
+
+Movies, Lilo & Stitch
+
+Sat, 13 Jun 2026 11:31:13 GMT
+
+https://www.cbr.com/lilo-stitch-2-director-co-creator-chris-sanders/
+
+Stitch is coming back for another live action adventure, and this time he's stepping into the director's chair.
+---------
+
+# Star Wars: Starfighter Officially Confirms Its Keeping a 49-Year-Old Tradition Alive
+
+Movies, Star Wars: Starfighter, Shawn Levy, tom cruise
+
+Sat, 13 Jun 2026 11:15:14 GMT
+
+https://www.cbr.com/star-wars-starfighter-lightsaber-tradition-shawn-levy/
+
+Director Shawn Levy confirmed Star Wars: Starfighter will include some lightsaber combat.
+---------
+
+# Paramount-Warner Bros. Merger Clears Major Legal Hurdle
+
+Movies, Paramount, warner bros
+
+Sat, 13 Jun 2026 11:00:33 GMT
+
+https://www.cbr.com/paramount-warner-bros-merger-clears-major-legal-hurdle/
+
+Paramount's $110 billion purchase of Warner Bros. gets a promising update.
+---------
+
+# Top 10 X-Men Teams Ranked Across Every Era
+
+Comics, X-Men, Marvel, Wolverine
+
+Sat, 13 Jun 2026 11:00:33 GMT
+
+https://www.cbr.com/best-x-men-teams-ranked-across-every-era/
+
+The X-Men have had some incredible team rosters over the years, but these 10 stand out as the very best of the bunch.
+---------
+
+# 10 Greatest Video Game Villains of All Time
+
+Movie, Video Game, Final Fantasy, Portal, The Legend of Zelda
+
+Sat, 13 Jun 2026 12:20:14 GMT
+
+https://collider.com/best-video-game-villains-all-time-ranked/
+
+Ganondorf from The Legend of Zelda, Handsome Jack from BioShock, and Bowser from Super Mario Bros. are all among the best video game villains ever.
+---------
+
+# Prime Video’s Near-Perfect 2-Part Historical Drama Is So Good, It’s Unlike Anything in the Genre
+
+TV Features, House of David, Prime Video, Streaming
+
+Sat, 13 Jun 2026 12:17:14 GMT
+
+https://collider.com/prime-video-house-of-david-review-historical-drama-worth-watching/
+
+House of David turns one of history’s oldest stories into a sweeping Prime Video epic unlike any other historical drama.
+---------
+
+# 10 Perfect Action Movies That Are About 90 Minutes Long
+
+Movie, Mad Max 2: The Road Warrior, The Warriors, Police Story 3: Super Cop, Action
+
+Sat, 13 Jun 2026 12:14:14 GMT
+
+https://collider.com/perfect-action-movies-90-minutes-long/
+
+Action movies like Commando, Assault on Precinct 13, and Mad Max 2 pack boundless excitement into just about 90 breathless minutes.
+---------
+
+# 'CSI' Meets 'Justified' in This Forgotten Western Drama No One Remembers Today
+
+TV Features, Peacemakers, csi, Justified, USA Network
+
+Sat, 13 Jun 2026 12:03:14 GMT
+
+https://collider.com/csi-justified-western-drama-peacemakers-tv-show/
+
+Wild West justice meets cold hard forensic science in USA Network's short-lived 2003 series Peacemakers.
+---------
+
+# Christopher Nolan and Matt Reeves Have Nothing on This 10/10 Batman Movie Masterpiece
+
+Movie Features, Batman: Mask of the Phantasm, Kevin Conroy, DC Comics, Action
+
+Sat, 13 Jun 2026 12:03:14 GMT
+
+https://collider.com/batman-mask-of-the-phantasm-movie-masterpiece/
+
+Batman: Mask of the Phantasm is the most interesting depiction of Batman yet and needs to get the respect it deserves.
+---------
+
+# 23 Years Later, This Iconic Thriller Still Hits Like a Punch to the Gut
+
+Movie News, Oldboy, Park Chan-wook, Thriller
+
+Sat, 13 Jun 2026 12:00:14 GMT
+
+https://collider.com/revenge-thriller-oldboy-free-streaming-fawesome-june-2026/
+
+Park Chan-wook’s dark revenge thriller Oldboy is streaming for free soon. Here's everything you should know.
+---------
+
+# Steven Spielberg and Emily Blunt Break Down ‘Disclosure Day's Stunning 4-Minute Oner
+
+Exclusives, Disclosure Day, Steven Spielberg, Emily Blunt, Christopher Nolan
+
+Sat, 13 Jun 2026 12:00:14 GMT
+
+https://collider.com/disclosure-day-4-minute-oner-steven-spielberg-emily-blunt/
+
+Steven Spielberg and Emily Blunt break down the director's longest-ever oner, Spielberg's favorite movies from iconic directors, and UFO insights.
+---------
+
+# 8 Greatest Sci-Fi Movies That Aren't Dark and Depressing, Ranked
+
+Movie, Sci-Fi, Close Encounters of The Third Kind, E.T. the Extra-Terrestrial, Back to the Future
+
+Sat, 13 Jun 2026 11:53:15 GMT
+
+https://collider.com/best-sci-fi-movies-not-dark-and-depressing-ranked/
+
+From Back to the Future to Arrival, these sci-fi masterpieces prove the future can inspire awe, hope, adventure, and wonder.
+---------
+
+# Jack Ryan Meets Jason Bourne in 144-Minute Action Thriller Now Streaming Free
+
+Movie Features, 13 Hours, John Krasinski, Michael Bay, James Badge Dale
+
+Sat, 13 Jun 2026 11:47:15 GMT
+
+https://collider.com/13-hours-jack-ryan-jason-bourne-replacement-streaming-pluto/
+
+13 Hours is a gripping and emotional story that explores the real Benghazi operatives who heroically sprang into action when the government wouldn't.
+---------
+
+# Netflix’s 6-Part Forgotten Sci-Fi Drama Is the Perfect Weekend Binge
+
+TV Features, Omniscient, Netflix, Sci-Fi, Thriller
+
+Sat, 13 Jun 2026 11:47:15 GMT
+
+https://collider.com/omniscient-netflix-sci-fi-drama-perfect-binge/
+
+Netflix's Omniscient is a forgotten sci-fi series about a dystopian reality of constant surveillance with a side of chilling murder mystery.
+---------
+
+# Jason Statham's 87% Rated Action Thriller Explodes on Streaming
+
+Movie News, A Working Man, HBO Max, Hot on Streaming, Jason Statham, Action
+
+Sat, 13 Jun 2026 12:01:19 GMT
+
+https://movieweb.com/jason-statham-working-man-streaming-success-hbo-june-2026-action/
+
+Jason Statham's violent action thriller 'A Working Man' is a global streaming success on HBO Max.
+---------
+
 # Steven Spielberg Was Crushed That Harrison Ford Rejected Major Jurassic Park Role
 
 Movies, Jurassic Park, Steven Spielberg, Harrison Ford
