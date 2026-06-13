@@ -1,3 +1,311 @@
+# How Much Of Disclosure Day Is Based On Real Life?
+
+New Movies, Steven Spielberg, Disclosure Day
+
+Sat, 13 Jun 2026 21:55:22 GMT
+
+https://screenrant.com/disclosure-day-real-life-comparisons-explained/
+
+Steven Spielberg's Disclosure Day features ties to real-life accounts, widely-held beliefs, and known conspiracies regarding extraterrestrials.
+---------
+
+# Prime Video's 94% RT 'Scrubs Meets Rick & Morty' Series Is A Real Hidden Gem
+
+Streaming TV, Masked Recs
+
+Sat, 13 Jun 2026 21:45:21 GMT
+
+https://screenrant.com/the-second-best-hospital-in-the-galaxy-prime-video-underrated/
+
+Prime Video has delivered one of the best new medical dramas in recent years, with an incredible approach that incorporates sci-fi elements.
+---------
+
+# Umamusume: Pretty Derby Just Got A Brand New Competitor We Never Saw Coming
+
+Gaming, Umamusume: Pretty Derby - Beginning of a New Era, Triple-A Games, PC
+
+Sat, 13 Jun 2026 21:37:19 GMT
+
+https://screenrant.com/umamusume-rival-project-gt-anime-racing-game/
+
+After taking the world by storm in 2025, it was only a matter of time before a new competitor joined the market, which already looks fantastic.
+---------
+
+# Apple TV Is Officially Giving Harrison Ford's Series A Fresh Start
+
+Streaming TV, Masked Recs
+
+Sat, 13 Jun 2026 21:30:07 GMT
+
+https://screenrant.com/shrinking-season-4-time-jump-apple-tv-show-new-era/
+
+Shrinking is confirmed to have a two-year time jump in season 4, and it'll be the start of a completely new story for these characters.
+---------
+
+# 10 Amazing Practical Effects In Movies That You Mistook For CGI
+
+Movies, Inception, Star Wars: Episode VII - The Force Awakens, The Dark Knight Rises, Spider-Man, Batman Returns, The Cabin in the Woods, Charlie and the Chocolate Factory, Mission: Impossible 2, Skyfall
+
+Sat, 13 Jun 2026 21:30:07 GMT
+
+https://screenrant.com/great-movie-practical-effects-not-cgi/
+
+Think it’s CGI? Think again. These iconic movie moments were brought to life with practical effects, props, puppets, and real-world movie magic.
+---------
+
+# Cape Fear’s Success Means This Scrapped Christian Bale Project Needs To Be Revived ASAP
+
+Movies, Cape Fear
+
+Sat, 13 Jun 2026 21:15:21 GMT
+
+https://screenrant.com/cape-fear-christian-bale-john-d-macdonald-adaptation/
+
+With the new Cape Fear TV series a hit on Apple TV, it's time for this scrapped Christian Bale movie project to get revived.
+---------
+
+# What Happens After Disclosure Day's Ending Explained By Writer David Koepp
+
+Exclusive, Disclosure Day
+
+Sat, 13 Jun 2026 21:13:34 GMT
+
+https://screenrant.com/disclosure-day-ending-whats-next-explained-david-koepp/
+
+EXCLUSIVE: Disclosure Day's ending left everyone on edge, as writer David Koepp shared what he thinks happened after the credits rolled in the movie.
+---------
+
+# It Took Marvel 60 Years To Turn This Beloved Hero Into Spider-Man
+
+Marvel Comics, Spider-Man
+
+Sat, 13 Jun 2026 21:00:22 GMT
+
+https://screenrant.com/mary-jane-becomes-spider-man-marvel/
+
+Many characters have taken the Spider-Man mantle for themselves in the last several decades, and one hero's turn with it was terribly short-lived.
+---------
+
+# 8 Superhero Movies That Definitely Aren't For Kids
+
+Movies, Superhero, Recommendation
+
+Sat, 13 Jun 2026 21:00:22 GMT
+
+https://screenrant.com/superhero-movies-not-for-kids/
+
+Superhero films tend to be aimed at the whole family, yet a few are certainly not for children to watch due to violence, mature themes, and more.
+---------
+
+# Fallout Meets The Division In New Survival Game You Can Try Free Now
+
+Gaming, Fallout, Steam, PC, Indie Games
+
+Sat, 13 Jun 2026 21:00:22 GMT
+
+https://screenrant.com/fallout-meets-division-steam-free-demo/
+
+Fallout and The Division collide into a creepy post-apocalyptic upcoming game, and its frequently updated demo is available to play right now.
+---------
+
+# One of the Best Open World Games Ever Is Finally Getting a Successor in 2027
+
+Games, Video Games
+
+Sat, 13 Jun 2026 21:40:13 GMT
+
+https://www.cbr.com/stranger-than-heaven-sgf-2026-preview/
+
+We played a preview of Stranger Than Heaven that solely focused on the combat that's gritty and involves timing your attacks correctly.
+---------
+
+# AMC Makes Anne Rice History With a Long-Overdue Lestat Upgrade
+
+TV, The Vampire Lestat, Interview with the Vampire, Anne Rice
+
+Sat, 13 Jun 2026 21:31:14 GMT
+
+https://www.cbr.com/amc-the-vampire-lestat-book-accurate-anne-rice-change/
+
+Anne Rice made gothic history with The Vampire Lestat, and now fans are finally getting the depiction they deserve.
+---------
+
+# 11 Years Later, The Boys Creator Unveils Guy Ritchie Meets Deadpool Original Pitch
+
+TV, The Boys
+
+Sat, 13 Jun 2026 21:27:11 GMT
+
+https://www.cbr.com/the-boys-original-pitch-eric-kripke/
+
+The Boys has just reached its explosive finale, and more details on the original pitch have come out.
+---------
+
+# After 2-Year Wait, Hit Superhero Series Returns With Perfect Rotten Tomatoes Score
+
+TV, X-Men '97
+
+Sat, 13 Jun 2026 21:23:53 GMT
+
+https://www.cbr.com/x-men-97-season-2-rotten-tomatoes-score/
+
+The new season of the "best Marvel series" is even more acclaimed than the first.
+---------
+
+# 10 Anime Series That Are a Masterclass in Slow-Burn Storytelling
+
+Anime, Steins;Gate, Monster
+
+Sat, 13 Jun 2026 21:16:44 GMT
+
+https://www.cbr.com/anime-masterclass-slow-burn-storytelling/
+
+Slow-burn anime storytelling shows how patient pacing can transform simple plots into rich explorations of character and theme.
+---------
+
+# 10 Hard Sci-Fi Movies That Are As Good As Project Hail Mary
+
+Movies, Project Hail Mary, Science Fiction
+
+Sat, 13 Jun 2026 21:00:13 GMT
+
+https://www.cbr.com/hard-sci-fi-movies-good-as-project-hail-mary-list/
+
+Lauded for technical accuracy, plausible technology, and minimal scientific liberties, these hard sci-fi films are perfect for Project Hail Mary fans.
+---------
+
+# HBO Max's 7-Part Sci-Fi Series Is the Perfect Weekend Binge for Superhero Fans
+
+TV Features, Creature Commandos, DCU, HBO Max, James Gunn
+
+Sat, 13 Jun 2026 21:48:13 GMT
+
+https://collider.com/creature-commandos-hbo-max-sci-fi-perfect-binge-superhero-fans/
+
+With unique characters and an emotional storyline, HBO Max's Creature Commandos is perfect for superhero fans looking for a new weekend binge.
+---------
+
+# 3 Batman Video Games With Really Stupid Endings
+
+Movie, Batman: Arkham Origins, Suicide Squad Kill The Justice League, Gotham Knights, Video Game
+
+Sat, 13 Jun 2026 21:30:15 GMT
+
+https://collider.com/batman-video-games-stupid-endings/
+
+Some Batman video games, like Gotham Knights and Suicide Squad: Kill the Justice League, suffer from shockingly stupid endings.
+---------
+
+# 11 Years Later, Taylor Sheridan’s Brutal Crime Thriller Is Officially Taking Over the World
+
+Movie News, Sicario, Taylor Sheridan, Denis Villeneuve, Hulu
+
+Sat, 13 Jun 2026 21:30:15 GMT
+
+https://collider.com/taylor-sheridan-sicario-streaming-success-hulu-june-2026/
+
+Taylor Sheridan's best neo-Western that he wrote years before Yellowstone is taking over the world again as a bona fide streaming hit.
+---------
+
+# Anya Taylor-Joy's Sci-Fi Sequel Just Became 2026's First Billion-Dollar Movie
+
+Movie News, The Super Mario Galaxy Movie, Anya Taylor-Joy, Chris Pratt, The Super Mario Bros. Movie
+
+Sat, 13 Jun 2026 21:15:14 GMT
+
+https://collider.com/anya-taylor-joy-super-mario-bros-galaxy-first-billion-dollar-movie-2026/
+
+Anya Taylor-Joy's sci-fi sequel with Chris Pratt just became the year's first billion-dollar movie. Here's everything you should know.
+---------
+
+# 23 Years Later, Disney's First-Ever PG-13 Movie Is Still a Fantasy Masterpiece
+
+Movie Features, Pirates of the Caribbean: The Curse of the Black Pearl, Johnny Depp, Disney, Fantasy
+
+Sat, 13 Jun 2026 21:14:13 GMT
+
+https://collider.com/pirates-of-the-caribbean-disney-movie-pg-13-fantasy-masterpiece/
+
+Disney's first-ever PG-13 movie, Pirates of the Caribbean, successfully paved the way for more adult Disney adventures.
+---------
+
+# Marvel Just Opened the Door for a Much Bigger Deadpool Future
+
+TV Features, X-Men '97, Deadpool, X-Men: The Animated Series, Marvel Animation
+
+Sat, 13 Jun 2026 21:10:16 GMT
+
+https://collider.com/x-men-97-season-2-trailer-deadpool-marvel-future/
+
+Deadpool's visual cameo in X-Men '97 Season 2 could signal a shift in Marvel's stance on using the popular character in future shows and films.
+---------
+
+# All 6 Steven Spielberg Sci-Fi Movies of the 21st Century
+
+Movie, Steven Spielberg, Science Fiction, Disclosure Day, A.I. Artificial Intelligence
+
+Sat, 13 Jun 2026 21:01:13 GMT
+
+https://collider.com/steven-spielberg-sci-fi-movies-21st-century-ranked/
+
+Steven Spielberg has helmed 6 sci-fi movies in the 21st century, from 2001's A.I. Artificial Intelligence to 2026's Disclosure Day; which is the best?
+---------
+
+# If You Love 'Bosch,' Netflix's 5-Part Crime Thriller Is Your Next Obsession
+
+TV News, The Lincoln Lawyer, Titus Welliver, Netflix
+
+Sat, 13 Jun 2026 21:00:13 GMT
+
+https://collider.com/netflix-the-lincoln-lawyer-streaming-success-june-2026/
+
+Bosch fans are flocking to Netflix's five-part replacement, which is inspired by the writings of the same author, Michael Connelly.
+---------
+
+# 8 Bleakest Sci-Fi Movies of All Time
+
+Movie, Sci-Fi, Children of Men, Blade Runner 2049, Stalker
+
+Sat, 13 Jun 2026 20:53:13 GMT
+
+https://collider.com/best-sci-fi-movies-dark-depressing-ranked/
+
+From Children of Men to Blade Runner 2049, these devastating sci-fi masterpieces prove the future can be humanity's darkest nightmare.
+---------
+
+# John Wayne Passed on the Beloved Cult Classic Western He Thought Was "Too Dirty"
+
+Features, John Wayne, Blazing Saddles, Mel Brooks
+
+Sat, 13 Jun 2026 21:45:20 GMT
+
+https://movieweb.com/john-wayne-mel-brooks-blazing-saddles-western/
+
+John Wayne passed on Mel Brookes' 'Blazing Saddles,' but his definition of what crossed the line was certainly... interesting.
+---------
+
+# 10 Funniest TV Shows of the Last 10 Years
+
+TV Lists, Derry Girls
+
+Sat, 13 Jun 2026 21:15:20 GMT
+
+https://movieweb.com/funniest-tv-shows-last-10-years/
+
+These TV comedies released between 2016 and 2026 are some of the most hilarious and memorable shows that you won't want to miss out on.
+---------
+
+# Tom Cruise’s Unforgettable 27-Year-Old Erotic Thriller That Took 400 Days to Film Still Holds Up
+
+Features, Tom Cruise
+
+Sat, 13 Jun 2026 21:00:19 GMT
+
+https://movieweb.com/tom-cruise-eyes-wide-shut-shooting-days/
+
+Stanley Kubrick's erotic thriller, Eyes Wide Shut, starring Tom Cruise and Nicole Kidman, hasn't aged like milk.
+---------
+
 # It Follows 2’s Only Confirmed Story Detail Already Reveals The Scariest Part Of The Movie
 
 Movies, It Follows
