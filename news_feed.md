@@ -1,3 +1,311 @@
+# Demon Slayer: Infinity Castle Part 2's Release Date May Get First Update This Summer
+
+Anime, Demon Slayer, Demon Slayer: Kimetsu no Yaiba Infinity Castle
+
+Sat, 13 Jun 2026 23:00:23 GMT
+
+https://screenrant.com/demon-slayer-infinity-castle-part-2-release-date-not-2026/
+
+Demon Slayer: Kimetsu no Yaiba – Infinity Castle Part 2 might be getting its next big release date update this summer at Anime Expo 2026.
+---------
+
+# Netflix's Drama Series Returning For Season 2 Is 'Peaky Blinders Meets Succession'
+
+Streaming TV, Masked Recs
+
+Sat, 13 Jun 2026 23:00:22 GMT
+
+https://screenrant.com/house-of-guinness-netflix-renewed-peaky-blinders-succession/
+
+Netflix has done an incredible job with building out this stunning new series that combines the best parts of shows like Peaky Blinders and Succession
+---------
+
+# Persona 4 Revival’s New Mechanics Prove Why A Remake Is Necessary
+
+Gaming
+
+Sat, 13 Jun 2026 23:00:22 GMT
+
+https://screenrant.com/persona-4-revival-new-mechanics-remake-good/
+
+The latest trailer for Persona 4 Revival shows off a series of gameplay mechanics that prove a remake of the game will be a big improvement.
+---------
+
+# The Umbrella Academy Officially Returns In Less Than 3 Months
+
+Streaming TV, The Umbrella Academy
+
+Sat, 13 Jun 2026 22:45:21 GMT
+
+https://screenrant.com/the-umbrella-academy-plan-b-comic-return/
+
+The Umbrella Academy is set to come back in just a few months, and there is every possibility that this can finally overwrite the dreadful ending.
+---------
+
+# Fans Don't Like It, But Doctor Who Can't Afford To Ignore Its Most Controversial Retcon
+
+Streaming TV, Doctor Who
+
+Sat, 13 Jun 2026 22:30:21 GMT
+
+https://screenrant.com/doctor-who-not-ignore-timeless-child-retcon/
+
+Doctor Who's future is more uncertain than ever, but despite a massive shake-up in how things operate behind the scenes, the show needs to fix things.
+---------
+
+# 10 Greatest DC Comics That Aren't About Superheroes
+
+Comics, DC Comics
+
+Sat, 13 Jun 2026 22:30:21 GMT
+
+https://screenrant.com/best-dc-comics-all-time-not-superheroes/
+
+Move over Batman, these DC books are the heroes we need when we don't want stories about superpowers.
+---------
+
+# 10 Most Universally Beloved Horror Movies Of All Time
+
+Movies, Horror
+
+Sat, 13 Jun 2026 22:25:25 GMT
+
+https://screenrant.com/most-beloved-horror-movies-ever-made/
+
+Horror has always been a divisive and controversial genre, but these 10 horror films are universally beloved by all everyone that sees them.
+---------
+
+# The Bourne Franchise Gets Update From Matt Damon
+
+Movies, The Bourne Identity
+
+Sat, 13 Jun 2026 22:21:40 GMT
+
+https://screenrant.com/matt-damon-bourne-franchise-return-update/
+
+Matt Damon reveals more information regarding the Bourne film franchise and finally addresses the longstanding rumors about the potential sequel.
+---------
+
+# Stranger Things' Netflix Future Is Officially The Start Of An Era
+
+Streaming TV, Masked Recs
+
+Sat, 13 Jun 2026 22:15:21 GMT
+
+https://screenrant.com/stranger-things-live-action-spinoff-new-characters-setting/
+
+With Stranger Things having concluded at the end of 2025, Netflix is finally preparing to bring a new story to life to fill the void it left behind.
+---------
+
+# Harry Potter Star's New R-Rated Horror Is Officially HBO Max's #1 Movie On Streaming
+
+Movies, Masked Recs, HBO Max
+
+Sat, 13 Jun 2026 22:05:03 GMT
+
+https://screenrant.com/they-will-kill-you-movie-hbo-max-june-2026-streaming-charts/
+
+After just landing on HBO Max, a new R-rated horror movie starring a Harry Potter icon is officially the streamer's No. 1 film in the U.S. charts.
+---------
+
+# Clint Eastwood's Divisive War Movie Hailed as 'Imperialist Propaganda' Is a PVOD Hit 40 Years Later
+
+Movies, Heartbreak Ridge, Clint Eastwood
+
+Sat, 13 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/heartbreak-ridge-streaming-pvod-june-2026/
+
+Clint Eastwood's 40-year-old war film is getting some renewed attention.
+---------
+
+# Pokémon Scarlet & Violet Officially Drops Free Download Until June 19
+
+Games, Pokemon
+
+Sat, 13 Jun 2026 22:58:14 GMT
+
+https://www.cbr.com/pokemon-scarlet-violet-free-download-official-june-19/
+
+Pokémon Scarlet & Violet players have less than a week left to get in on the latest free event and claim some incredible additions to their collection
+---------
+
+# Stephen King's Darkest TV Adaptation Is 1 Most Fans Have Forgotten
+
+TV, Mr. Mercedes, Stephen King, Peacock
+
+Sat, 13 Jun 2026 22:30:13 GMT
+
+https://www.cbr.com/stephen-king-mr-mercedes-darkest-tv-show/
+
+Stephen King has had some truly terrifying TV adaptations over the years, but this three-season crime thriller is definitely his darkest.
+---------
+
+# The 10 Greatest R-Rated Thrillers Of the Last 25 Years, Ranked
+
+Movies, Thriller, Mystic River, Road to Perdition
+
+Sat, 13 Jun 2026 22:30:13 GMT
+
+https://www.cbr.com/best-r-rated-thrillers-last-25-years-list/
+
+The thriller genre has been producing masterpieces since the golden age of film noir, but these 21st century r-rated classics are even better.
+---------
+
+# 10 Near-Perfect JRPGs No One Remembers Today
+
+Games, Role Playing Game, Video Games, JRPG
+
+Sat, 13 Jun 2026 22:15:13 GMT
+
+https://www.cbr.com/forgotten-jrpg-gems-skies-of-arcadia-vagrant-story/
+
+Good luck finding someone who remembers stellar JRPGs like Skies of Arcadia and Vagrant Story.
+---------
+
+# Attack on Titan Officially Reveals Eren’s Biggest Transformation in 17 Years
+
+Anime, Attack on Titan
+
+Sat, 13 Jun 2026 22:01:16 GMT
+
+https://www.cbr.com/attack-on-titan-eren-yeager-attack-titan-figure/
+
+Eren Yeager’s iconic transformation from the final season of the anime gets immortalized in the new release.
+---------
+
+# The Poe Murders May Leave Edgar Allan Poe Fans Weak and Weary
+
+Comics, edgar allan poe
+
+Sat, 13 Jun 2026 22:01:16 GMT
+
+https://www.cbr.com/the-poe-murders-review/
+
+The graphic novel is less a tribute and more a rip off of Edgar Allan Poe's best work.
+---------
+
+# Forget ‘Pressure,’ This Oscar-Winning WWII Thriller Is a Must-Watch Before It Leaves Streaming
+
+Movie News, Darkest Hour, Gary Oldman, Peacock, World War II
+
+Sat, 13 Jun 2026 23:00:14 GMT
+
+https://collider.com/darkest-hour-gary-oldman-ww2-movie-leaving-peacock-july-2026/
+
+Gary Oldman won his first Oscar for Darkest Hour, the WW2 drama that's poised to leave Peacock soon. Find out when.
+---------
+
+# 10 Greatest Video Games of 2008
+
+Video Games, Video Game, Metal Gear Solid 4: Guns of the Patriots, Call of Duty, Gears of War
+
+Sat, 13 Jun 2026 22:51:13 GMT
+
+https://collider.com/best-video-games-2008-ranked/
+
+16 years ago, some of the best video games of all time were released, including classics like Grand Theft Auto IV, Fallout 3, and LittleBigPlanet.
+---------
+
+# ‘MobLand’ Meets ‘The Sopranos’ in the Brutal Crime Thriller Dominating Streaming
+
+TV News, Ray Donovan, Ray Donovan: The Movie, Liev Schreiber, MobLand
+
+Sat, 13 Jun 2026 22:45:13 GMT
+
+https://collider.com/ray-donovan-streaming-success-apple-tv-june-2026/
+
+Before MobLand, this hit crime drama ran for seven seasons and inspired the British crime thriller. Get the details about its resurgence here.
+---------
+
+# Forget ‘Peaky Blinders,’ Tom Hardy’s 10/10 Crime Epic Is Your Next Streaming Obsession
+
+TV News, Taboo, Tom Hardy, Steven Knight, Ridley Scott
+
+Sat, 13 Jun 2026 22:30:13 GMT
+
+https://collider.com/tom-hardy-taboo-streaming-success-june-2026-how-to-watch/
+
+Tom Hardy and Ridley Scott's period drama with shades of Peaky Blinders is being binged by TV fans around the world. Here's what you should know.
+---------
+
+# ‘Fallout’ Meets ‘Snowpiercer’ in Apple TV’s Addictive Sci-Fi Sensation
+
+TV News, Silo, Rebecca Ferguson, Apple TV, Sci-Fi
+
+Sat, 13 Jun 2026 22:15:13 GMT
+
+https://collider.com/apple-tv-silo-streaming-success-june-2026/
+
+Apple TV's popular sci-fi series is back on streaming charts as fans prepare for a new season this summer. Get all the details.
+---------
+
+# All 6 Ships in 'Interview with the Vampire,' Ranked
+
+TV, Interview with the Vampire, The Vampire Lestat, Vampire, Romance
+
+Sat, 13 Jun 2026 22:08:13 GMT
+
+https://collider.com/interview-with-the-vampire-couples-amc-ranked/
+
+From Claudia and Madeleine to Louis and Lestat, which couple is the greatest in AMC's TV adaptation of Anne Rice's Interview with the Vampire?
+---------
+
+# Netflix’s Latest Hit Action Thriller Didn’t Deserve to Be a Box Office Bomb
+
+Movie Features, Caught Stealing, Austin Butler, Zoë Kravitz, Netflix
+
+Sat, 13 Jun 2026 22:05:14 GMT
+
+https://collider.com/caught-stealing-austin-butler-thriller-netflix-movie/
+
+Austin Butler and Zoe Kravitz star in Darren Aronofsky's Caught Stealing, a '90s set thriller that already feels like a cult classic.
+---------
+
+# Forget ‘Reacher,’ This Hit Spy Thriller Is the Perfect Weekend Binge Before Season 2
+
+TV News, The Day of the Jackal, Peacock, Eddie Redmayne, The Day of the Jackal (2024)
+
+Sat, 13 Jun 2026 22:01:07 GMT
+
+https://collider.com/day-of-the-jackal-streaming-success-peacock-june-2026/
+
+The spy thriller that inspired Lee Child to write the Reacher novels is taking over streaming charts before it returns for Season 2. Read on for more.
+---------
+
+# Steven Spielberg's 'Close Encounters' & 'Disclosure Day' Aren't the Same Genre
+
+Features, Disclosure Day, Steven Spielberg, Close Encounters of The Third Kind, Sci-Fi
+
+Sat, 13 Jun 2026 23:00:20 GMT
+
+https://movieweb.com/steven-spielberg-close-encounters-disclosure-day-genre/
+
+There's a distinct difference that changes everything in Spielberg's approach to 'Close Encounters of the Third Kind' and 'Disclosure Day'.
+---------
+
+# Christian Bale's Forgotten $89 Million Epic Fantasy Flop Finds Vengeance on Streaming
+
+Movie News, Reign of Fire, Hot on Streaming, Fantasy
+
+Sat, 13 Jun 2026 22:01:13 GMT
+
+https://movieweb.com/reign-of-fire-fantasy-streaming-success-mgm-june-2026/
+
+Christian Bale's cult classic action fantasy flop 'Reign of Fire' is a US streaming success on MGM+.
+---------
+
+# Netflix’s Smash Hit 6-Part Thriller Is So Unpredictable, You’ll Rewatch It
+
+Features, His & Hers, Netflix
+
+Sat, 13 Jun 2026 22:01:13 GMT
+
+https://movieweb.com/his-and-hers-netflix-unpredictable-thriller/
+
+Netflix has plenty of great thriller TV series, but one is so wild and unpredictable that it works well for a rewatch.
+---------
+
 # How Much Of Disclosure Day Is Based On Real Life?
 
 New Movies, Steven Spielberg, Disclosure Day
