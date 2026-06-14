@@ -1,3 +1,377 @@
+# Netflix's New Action Thriller Webtoon Adaptation, Viral Hit, Is the Perfect Weekend Binge
+
+Anime, Viral Hit, Netflix
+
+Sun, 14 Jun 2026 01:32:25 GMT
+
+https://screenrant.com/viral-hit-netflix-new-action-thriller/
+
+Netflix's new live-action adaptation is a gritty series, following an underdog story full of action that will hook viewers from beginning to end.
+---------
+
+# 12 Years Later, Sherlock's Moriarty Replacement Has Aged Like Milk
+
+Classic TV, Sherlock
+
+Sun, 14 Jun 2026 01:00:22 GMT
+
+https://screenrant.com/sherlock-moriarty-replacement-magnussen-aged-badly/
+
+Following Jim Moriarty’s departure from Sherlock, the series tried to replace the character with someone as magnetic as he was. Sadly, it didn’t work
+---------
+
+# Dungeons & Dragons Meets KPop Demon Hunters In New RPG
+
+Tabletop, Dungeons and Dragons, Dungeons & Dragons, tabletop games, KPop Demon Hunters
+
+Sun, 14 Jun 2026 01:00:22 GMT
+
+https://screenrant.com/dungeons-dragons-kpop-demon-hunters-new-game/
+
+A new RPG that mixes Dungeons and Dragons with KPop Demon Hunters is in the works, and you'll soon be able to embody a warrior Idol like Rumi.
+---------
+
+# 10 Greatest Star Trek Quotes Of All Time
+
+Star Trek
+
+Sun, 14 Jun 2026 01:00:22 GMT
+
+https://screenrant.com/star-trek-best-quotes-movies-tv/
+
+The Star Trek franchise constantly reflects on the human condition with a variety of thought-provoking quotes from several iconic characters.
+---------
+
+# Marvel Studios Officially Addresses Deadpool's Upcoming 2026 Return
+
+TV, X-Men '97, Deadpool, X-Men, Marvel Cinematic Universe
+
+Sun, 14 Jun 2026 00:55:08 GMT
+
+https://screenrant.com/xmen-97-season-2-deadpool-marvel-appearance-brad-winderbaum-response/
+
+EXCLUSIVE: As Marvel Studios is bringing back Deadpool in one of its major 2026 projects, an executive finally sheds more light on Wade's future.
+---------
+
+# The Sims 4: The 12 Weirdest Mods That Change How You Play
+
+Gaming, The Sims, PC
+
+Sun, 14 Jun 2026 00:30:23 GMT
+
+https://screenrant.com/sims-4-best-weird-mods-change-gameplay/
+
+These are the 10 weirdest mods for the Sims 4 that change a player’s game to create wacky and shocking gameplay scenarios and make players laugh.
+---------
+
+# Paramount+’s 19-Part Crime Masterpiece Will Make Your Skin Crawl
+
+Network TV, Masked Recs
+
+Sun, 14 Jun 2026 00:30:22 GMT
+
+https://screenrant.com/paramount-plus-criminal-minds-evolution-distrubing-crime-drama/
+
+In an age where crime dramas are a dime a dozen, it takes guts to stand out from the ever-growing crowd— which Paramount+'s best series has in spades.
+---------
+
+# Marvel Studios Executive Officially Addresses X-Men '97 Season 5 & The MCU's X-Men Reboot Timeline
+
+TV, X-Men '97, Marvel's X-Men, X-Men, Marvel Cinematic Universe
+
+Sun, 14 Jun 2026 00:14:32 GMT
+
+https://screenrant.com/xmen-97-season-5-update-mcu-movie-reboot-brad-winderbaum-response/
+
+EXCLUSIVE: As the MCU's movie reboot for the mutants is coming up, Marvel Studios addresses whether this will affect a potential X-Men '97 season 5.
+---------
+
+# Solo Leveling's Biggest Anime Rival, Tomb Raider King, Just Dropped A New Trailer
+
+Anime, Tomb Raider King
+
+Sun, 14 Jun 2026 00:10:27 GMT
+
+https://screenrant.com/tomb-raider-king-trailer-solo-leveling-anime-rival/
+
+Solo Leveling set the bar for action anime, but the newest trailer for its biggest rival proves it is officially coming for the crown next month.
+---------
+
+# 10 Greatest War Movies of the Last 25 Years, Ranked
+
+Classic Movies, War
+
+Sun, 14 Jun 2026 00:10:22 GMT
+
+https://screenrant.com/greatest-war-movies-last-25-years/
+
+The 21st century has had some incredible war movies released, from Oscar winners to critically acclaimed darlings, and these are the best.
+---------
+
+# Jason Statham's $34M Action Sequel Is the No. 1 Movie in the World on Starz 17 Years Later
+
+Movies, Crank: High Voltage
+
+Sun, 14 Jun 2026 01:35:43 GMT
+
+https://www.cbr.com/crank-high-voltage-starz-streaming-june-2026/
+
+A forgotten Jason Statham-led action sequel enjoys a global resurgence nearly two decades later.
+---------
+
+# 8 Of The Most Nostalgic Movies About Childhood Ever, Ranked
+
+Movies, The Goonies, Matilda, The Sandlot
+
+Sun, 14 Jun 2026 01:30:16 GMT
+
+https://www.cbr.com/best-nostalgic-movies-about-childhood-ranked/
+
+These movies dominated our childhood and feel innately nostalgic during every watch.
+---------
+
+# 10 Pokémon TCG Cards That Are Worth More Than People Think
+
+Games, Pokemon, Pokemon TCG, Pokemon Trading Card Game
+
+Sun, 14 Jun 2026 01:25:15 GMT
+
+https://www.cbr.com/unexpected-expensive-pokemon-tcg-cards/
+
+Pokémon cards vary in price, with some of the most unexpected cards reaching heights that'll more than put a dent in fans' wallets.
+---------
+
+# ABC's 2-Season Spy Show Is the Tightest Superhero TV Binge Ever Made
+
+TV, Agent Carter, MCU, Thriller
+
+Sun, 14 Jun 2026 01:00:14 GMT
+
+https://www.cbr.com/agent-carter-underrated-spy-superhero-series-marvel/
+
+The Marvel Cinematic Universe is known for big, bold projects, but it also created an underrated spy series in ABC's Agent Carter.
+---------
+
+# One Piece Characters Who Could Carry Their Own Anime
+
+Anime, One Piece
+
+Sun, 14 Jun 2026 00:45:14 GMT
+
+https://www.cbr.com/one-piece-characters-deserve-own-anime/
+
+One Piece tells the story of the Straw Hat Pirates, but there are so many amazing characters in its world that many could front their own anime.
+---------
+
+# 10 Open-World Games With Surprisingly Perfect Worldbuilding
+
+Games, Video Games, RPG, Middle-earth: Shadow of Mordor, JRPG
+
+Sun, 14 Jun 2026 00:31:15 GMT
+
+https://www.cbr.com/open-world-games-perfect-worldbuilding/
+
+An open-world game with powerful worldbuilding is enough to make a video game absolutely unforgettable.
+---------
+
+# 10 Strongest Pokémon Trainers in the Anime
+
+Anime, Pokemon, Pokémon, Pokémon Horizons
+
+Sun, 14 Jun 2026 00:15:13 GMT
+
+https://www.cbr.com/strongest-pokemon-anime-trainers/
+
+Pokemon trainers around the world aim to be the very best like no one ever was, but these ten tacticians stand as the undisputed greatest of all time.
+---------
+
+# The Bloodiest & Steamiest TV Show Ever Made Is No Longer the No. 1 Show in the U.S.
+
+TV, Outlander
+
+Sun, 14 Jun 2026 00:00:14 GMT
+
+https://www.cbr.com/outlander-historical-drama-starz-drop-june-2025/
+
+The series officially wrapped a month ago after ten seasons.
+---------
+
+# Top 10 Batman Villains Who Deserve Their Own Solo Comic Book Series
+
+Comics, Batman, DC Comics, Joker
+
+Sun, 14 Jun 2026 00:00:14 GMT
+
+https://www.cbr.com/batman-villains-who-deserve-their-own-comic-series/
+
+Batman boasts one of the greatest rogues galleries in comics, and some of his best adversaries deserve their own solo stories.
+---------
+
+# Dragon Ball Officially Gives Earth’s Greatest Hero His Due in New First Look
+
+Anime, Dragon Ball, Dragon Ball Z, Dragon Ball Super
+
+Sun, 14 Jun 2026 00:00:14 GMT
+
+https://www.cbr.com/dragon-ball-mr-satan-figure-release/
+
+The new release is scheduled to hit international markets sometime in July this year.
+---------
+
+# 25 Years Later, Here Are the Best Thriller Movies of 2001
+
+Movie, Thriller, Ocean's Eleven, Donnie Darko, Mulholland Drive
+
+Sun, 14 Jun 2026 01:33:14 GMT
+
+https://collider.com/best-thriller-movies-2001/
+
+In the Bedroom, Gosford Park, The Others, Mulholland Drive, Donnie Darko, and more make up our list of the best thriller movies of 2001.
+---------
+
+# 7 Near-Perfect Action Shows That No One Remembers Today
+
+TV, Action, Arrow, Banshee, Spartacus
+
+Sun, 14 Jun 2026 01:03:13 GMT
+
+https://collider.com/near-perfect-action-shows-no-one-remembers/
+
+From The CW's superhero series Arrow to the Antony Starr crime drama Banshee, these action TV shows have been largely forgotten by audiences.
+---------
+
+# Apple TV's 2-Part Psychological Thriller Will Keep You on the Edge of Your Seat
+
+TV Features, Surface, Gugu Mbatha-Raw, Oliver Jackson-Cohen, Apple TV
+
+Sun, 14 Jun 2026 01:02:15 GMT
+
+https://collider.com/apple-tv-psychological-thriller-surface/
+
+Gugu Mbatha-Raw stars in Apple TV's Surface as an amnesiac navigating a world of secrets and deception in San Francisco high society.
+---------
+
+# Every 2026 Netflix Show, Ranked Worst to Best
+
+TV, Netflix, The Boroughs, How to Get to Heaven from Belfast, Finding Her Edge
+
+Sun, 14 Jun 2026 00:53:15 GMT
+
+https://collider.com/netflix-shows-2026-ranked/
+
+Find out where His & Hers, The Boroughs, Something Very Bad Is Going to Happen, and more fall in our ranking of 2026 Netflix shows.
+---------
+
+# Channing Tatum's 2025 True Crime Movie Is a Sleeper Paramount+ Hit
+
+Movie News, Roofman, Channing Tatum, Kirsten Dunst, Paramount Plus
+
+Sun, 14 Jun 2026 00:45:13 GMT
+
+https://collider.com/roofman-streaming-success-paramount-plus-june-2026/
+
+Channing Tatum's underrated true crime movie alongside Kirsten Dunst and a Game of Thrones icon is a sleeper hit on Paramount+. Find out more here.
+---------
+
+# Kevin Costner’s Secret Crime Western Masterpiece Has 1 Last Chance to Prove Critics Wrong
+
+Movie News, The Untouchables, Kevin Costner, Brian De Palma, Robert De Niro
+
+Sun, 14 Jun 2026 00:30:14 GMT
+
+https://collider.com/kevin-costner-the-untouchables-leaving-peacock-july-2026/
+
+Kevin Costner and Robert De Niro's epic crime-Western movie, The Untouchables, is leaving Peacock soon. Find out when.
+---------
+
+# The Worst Horror Movie of 2026 Finds Success on Streaming
+
+Movie News, The Strangers - Chapter 3, STARZ, Horror, Gabriel Basso
+
+Sun, 14 Jun 2026 00:15:13 GMT
+
+https://collider.com/the-strangers-chapter-3-streaming-success-starz-june-2026/
+
+A movie considered the worst horror project of the year, The Strangers: Chapter 3, is an unlikely streaming hit. Read on for more details.
+---------
+
+# Matt Damon’s 95% RT Western Masterpiece Is Leaving Streaming This Month
+
+Movie News, True Grit, Peacock, Western
+
+Sun, 14 Jun 2026 00:00:14 GMT
+
+https://collider.com/true-grit-leaving-peacock-july-2026/
+
+The Coen Brothers' stone-cold Western masterpiece, True Grit, starring Jeff Bridges and Matt Damon, is leaving Peacock soon. Find out when.
+---------
+
+# Taylor Sheridan’s Funniest Series Is Officially Taking Over the World Again
+
+TV News, Taylor Sheridan, Tulsa King, Sylvester Stallone, Paramount Plus
+
+Sat, 13 Jun 2026 23:45:13 GMT
+
+https://collider.com/tulsa-king-streaming-success-paramount-plus-june-2026/
+
+Taylor Sheridan's funniest series, starring Sylvester Stallone, has fought tough competition to return to the streaming charts. Read on for details.
+---------
+
+# Paramount's 9-Part Sci-Fi Series Was So Good It Earned 4 Extra Seasons
+
+TV Features, Rick and Morty, Adult Swim, Justin Roiland, Dan Harmon
+
+Sat, 13 Jun 2026 23:36:14 GMT
+
+https://collider.com/rick-and-morty-paramount-sci-fi-series-extra-seasons/
+
+Rick and Morty's renewal through Season 12 allows the adult animated series to continue its exploration of creative extremism.
+---------
+
+# 10 Funniest The Far Side Comics That Will Never Get Old
+
+Movie Lists, The Far Side
+
+Sun, 14 Jun 2026 00:45:19 GMT
+
+https://movieweb.com/funniest-far-side-comics-that-never-get-old/
+
+'The Far Side' comic strips sometimes date themselves, but these will remain hilarious for decades to come.
+---------
+
+# Russell Crowe Calls 'Gladiator II' a "Failure"
+
+Movie News, Gladiator II, Gladiator, Russell Crowe
+
+Sun, 14 Jun 2026 00:18:32 GMT
+
+https://movieweb.com/russell-crowe-gladiator-2-mistakes/
+
+The former 'Gladiator' star says the sequel went back on the first film's moral code.
+---------
+
+# 10 Best Superhero Costumes in Movies and TV Shows (Ranked)
+
+Movie Lists, MCU, DCU, Hellboy, Spider-Man, Superman, Arrowverse, Captain America, The Batman, Aquaman, Spider-Man Into the Spider-Verse
+
+Sat, 13 Jun 2026 23:45:18 GMT
+
+https://movieweb.com/best-superhero-costumes-movies-shows/
+
+There's never been a better time for the superhero genre, and these costumes are the best adaptations of comic book designs in movies and TV.
+---------
+
+# 'X-Men '97' Trailer Season 2 Puts the Spotlight on 25 Mutant Characters
+
+TV News, X-Men '97
+
+Sat, 13 Jun 2026 23:16:14 GMT
+
+https://movieweb.com/x-men-97-season-2-roll-call-trailer/
+
+The latest teaser for 'X-Men '97' Season 2 showcases the X-Men, X-Force, and X-Factor teams.
+---------
+
 # Demon Slayer: Infinity Castle Part 2's Release Date May Get First Update This Summer
 
 Anime, Demon Slayer, Demon Slayer: Kimetsu no Yaiba Infinity Castle
