@@ -1,3 +1,377 @@
+# The Boys Official Return Leaves Fans All Saying The Same Thing
+
+Gaming, The Boys, Triple-A Games
+
+Sun, 14 Jun 2026 14:30:21 GMT
+
+https://screenrant.com/the-boys-official-return-nobody-noticed/
+
+Although the core TV series of The Boys just ended, there's more on the way, as well as a return that no one saw coming...literally.
+---------
+
+# Stranger Things Officially Begins A New Era, Story Is Just Beginning
+
+Gaming, Stranger Things
+
+Sun, 14 Jun 2026 14:30:21 GMT
+
+https://screenrant.com/stranger-things-new-era-games-series-return/
+
+Discover how Stranger Things continues to captivate fans beyond the main series with animated spin-offs, arcade games, and more.
+---------
+
+# 10 Of The Most Iconic TV Show Dogs Of All Time
+
+Classic TV
+
+Sun, 14 Jun 2026 14:30:21 GMT
+
+https://screenrant.com/most-iconic-tv-show-dogs-of-all-time/
+
+Man's best friend has given TV some iconic characters, in live-action TV series as well as animated, often defining the best moments in their shows.
+---------
+
+# Hogwarts Legacy: Wizard Academy Is An Entirely New Experience
+
+Gaming, Hogwarts Legacy
+
+Sun, 14 Jun 2026 14:00:21 GMT
+
+https://screenrant.com/hogwarts-legacy-wizard-academy-free-download-fan-made/
+
+Wizard Academy is a very ambitious Hogwarts Legacy mod that really allows you to live as if it were a living, breathing school.
+---------
+
+# Jack Quaid's The Boys Replacement Is Out & It's The Perfect Superhero Series
+
+Streaming TV, The Boys
+
+Sun, 14 Jun 2026 14:00:21 GMT
+
+https://screenrant.com/the-boys-replacement-jack-quaid-superman-series-hbo-max/
+
+The Boys' replacement is out now, with Hughie Campbell actor Jack Quaid playing one of the biggest superheroes ever, and it is perfect.
+---------
+
+# 8 Years Later, That Time I Got Reincarnated as a Slime's Rimuru Is Meeting His Match
+
+Anime, That Time I Got Reincarnated as a Slime
+
+Sun, 14 Jun 2026 14:00:21 GMT
+
+https://screenrant.com/that-time-reincarnated-slime-strongest-isekai-hero-match/
+
+That Time I Got Reincarnated as a Slime's Rimuru, one of the strongest characters in isekai, is finally meeting his match in season four's finale.
+---------
+
+# 10 Hard Sci-Fi Books Better Than The Expanse
+
+Books
+
+Sun, 14 Jun 2026 14:00:21 GMT
+
+https://screenrant.com/hard-sci-fi-books-better-than-the-expanse/
+
+Many view The Expanse as one of the best hard sci-fi novel series, but there are other literary works better than James S.A. Corey’s iconic books.
+---------
+
+# New R-Rated True Crime Film Is Officially Netflix's #1 Movie On Streaming
+
+Movies, Masked Recs, Streaming Charts, Netflix
+
+Sun, 14 Jun 2026 13:46:27 GMT
+
+https://screenrant.com/maternal-instinct-movie-netflix-june-streaming-hit/
+
+Netflix's new R-rated true crime movie quickly rises to become the streaming service's No. 1 movie in the United States and many other territories.
+---------
+
+# 10 Best Robin Hood Movies, Ranked
+
+Movies
+
+Sun, 14 Jun 2026 13:45:21 GMT
+
+https://screenrant.com/best-robin-hood-movies-ranked/
+
+Robin Hood has seen many iterations over the course of cinema. Some films are faithful adaptations, while others don't capture the spirit of Robin.
+---------
+
+# Ocarina Of Time Remake Officially Reverses One Zelda Lore Change
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda, Triple-A Games
+
+Sun, 14 Jun 2026 13:45:20 GMT
+
+https://screenrant.com/zelda-ocarina-time-remake-link-left-handed/
+
+The Ocarina Of Time Switch 2 remake hasn't revealed much yet, but one detail confirms that it's ignoring a major modern Zelda development.
+---------
+
+# Agatha Christie’s Unfilmable Detective Masterpiece Still Has the Best Twist in Crime History
+
+TV, Poirot, Mystery
+
+Sun, 14 Jun 2026 14:31:13 GMT
+
+https://www.cbr.com/agatha-christie-the-murder-of-roger-ackroyd-mystery-best-mystery-twist/
+
+Agatha Christie's most critically acclaimed murder mystery, The Murder of Roger Ackroyd, still has the best twist in crime fiction 100 years later.
+---------
+
+# 5 Best Sci-Fi Anime Ever Made
+
+Anime, Mobile Suit Gundam, Neon Genesis Evangelion
+
+Sun, 14 Jun 2026 14:16:13 GMT
+
+https://www.cbr.com/official-best-sci-fi-anime-ever/
+
+Science fiction is one of anime's most popular and prolific genres, and these perfect series are its best exemplars.
+---------
+
+# Transformers Officially Reveals 2 New Monster Jam Designs in New First Look
+
+Anime, Transformers, merchandise
+
+Sun, 14 Jun 2026 14:00:13 GMT
+
+https://www.cbr.com/transformers-monster-jam-collab-new-first-look/
+
+The newest collaboration with Transformers unites the robots in disguise with the trucks of Monster Jam for two toys perfect for younger fans.
+---------
+
+# DC Officially Confirms Weird Al Crossover With Batman and Superman
+
+Comics, Batman, Superman
+
+Sun, 14 Jun 2026 14:00:13 GMT
+
+https://www.cbr.com/batman-superman-weird-al-worlds-weirdest-release-date-confirmed/
+
+The Dark Knight and the Man Steel are about to get weirder than ever.
+---------
+
+# 5 Action TV Heroes Stronger Than Reacher
+
+TV, Reacher, Action, The Witcher, Daredevil
+
+Sun, 14 Jun 2026 13:31:16 GMT
+
+https://www.cbr.com/action-tv-heroes-stronger-than-jack-reacher-list/
+
+Alan Ritchson's Jack Reacher may be one of the strongest TV heroes of all time, but even he couldn't beat these icons of action.
+---------
+
+# Escape Room Is the Perfect Backrooms Replacement
+
+Movies, Escape Room, Backrooms, deborah ann woll
+
+Sun, 14 Jun 2026 13:31:16 GMT
+
+https://www.cbr.com/deborah-ann-woll-escape-room-perfect-backrooms-replacement/
+
+If you're looking to quench your liminal space thirst after Backrooms, look no further than this 2019 movie featuring an iconic Daredevil star.
+---------
+
+# 10 Best Sports Anime That Aren't Haikyu!!
+
+Anime, Haikyu!!, Slam Dunk
+
+Sun, 14 Jun 2026 13:15:39 GMT
+
+https://www.cbr.com/best-sports-anime-not-haikyu/
+
+Fans of sports anime looking beyond Haikyu!! will find no shortage of incredible series to explore.
+---------
+
+# 5 Forgotten Sci-Fi Horror Movies That Are Perfect From Start to Finish
+
+Movies, Sci-Fi, Horror
+
+Sun, 14 Jun 2026 13:00:12 GMT
+
+https://www.cbr.com/forgotten-sci-fi-horror-movies-perfect-from-start-to-finish-list/
+
+Sci-fi horror movies can either be cinematic masterpieces or totally forgotten, but some great films fall into the latter category.
+---------
+
+# 10 The Far Side Comics That'll Keep You Laughing Long After You Read Them
+
+Comics, The Far Side
+
+Sun, 14 Jun 2026 13:00:12 GMT
+
+https://www.cbr.com/10-far-side-comics-that-will-keep-you-laughing/
+
+Gary Larson's The Far Side is almost always funny, but there are some strips that earn laughter long after the reader finishes with them.
+---------
+
+# Ridley Scott's The Terror: Devil in Silver With 95% RT Is the Scariest Slow Burn in Years
+
+TV, ridley scott, Horror, The Terror
+
+Sun, 14 Jun 2026 12:30:13 GMT
+
+https://www.cbr.com/ridley-scott-the-terror-devil-in-silver-best-slow-burn-horror/
+
+The highly anticipated third season of the AMC anthology series is a mandator watch for anyone who prefers lasting psychological dread over lazy gore.
+---------
+
+# 8 Must-Watch Forgotten Romantic Movies, Ranked
+
+Movie, Romance, Drama, The Cranes are Flying, A Brighter Summer Day
+
+Sun, 14 Jun 2026 14:33:15 GMT
+
+https://collider.com/must-watch-forgotten-romantic-movies-ranked/
+
+Fans of great romantic movies should rediscover forgotten dramas like A Special Day, The Cranes Are Flying, and The Lovers on the Bridge.
+---------
+
+# Low-Budget Horror Hit Beats Star Wars at the Box Office in Stunning Upset
+
+Movie News, The Mandalorian and Grogu, Star Wars, Obsession, Box Office
+
+Sun, 14 Jun 2026 14:00:13 GMT
+
+https://collider.com/obsession-overtakes-star-wars-the-mandalorian-and-grogu-box-office/
+
+Obsession has overtaken The Mandalorian and Grogu at the box office despite costing a fraction of the new Star Wars movie.
+---------
+
+# 10 Greatest Disney Animated Villains, Ranked by Charm
+
+Movie, Disney, Zootopia, The Lion King, Animation
+
+Sun, 14 Jun 2026 13:55:15 GMT
+
+https://collider.com/best-disney-animated-villains-charm-ranked/
+
+Some of the greatest Disney animated villains, The Lion King's Scar and Zootopia's Dawn Bellwether, are as evil as they are extremely charming.
+---------
+
+# Tom Hanks’ Most Dependable Dad Movie Is Back in the Spotlight
+
+Movie News, Sully, Clint Eastwood, Tom Hanks, Aaron Eckhart
+
+Sun, 14 Jun 2026 13:15:40 GMT
+
+https://collider.com/sully-clint-eastwood-tom-hanks-streaming-success-june-2026/
+
+Clint Eastwood’s Sully, starring Tom Hanks, is finding new life with audiences at home nearly 10 years after its theatrical release.
+---------
+
+# Cillian Murphy's Underrated WWII Action Drama Is a Masterclass in Tension
+
+Movie Features, Cillian Murphy, Jamie Dornan, World War II, Action
+
+Sun, 14 Jun 2026 12:56:14 GMT
+
+https://collider.com/anthropoid-movie-ww2-drama-cillian-murphy/
+
+The WWII movie genre is packed with classic films, but Cillian Murphy's underrated 2016 film Anthropoid is a can't-miss action thriller.
+---------
+
+# 3 Years Later, Apple TV’s Most Panned Action Romance Is Officially Taking Over the World
+
+Movie News, Ghosted, Chris Evans, Apple TV, Ana De Armas
+
+Sun, 14 Jun 2026 12:46:14 GMT
+
+https://collider.com/ghosted-streaming-success-apple-tv-june-2026/
+
+A critically panned Ana de Armas and Chris Evans movie is a global hit on Apple TV. Read on for more details.
+---------
+
+# 10 Perfect Horror Movies That Are Pure Cinema
+
+Movie, Horror, The Night of the Hunter, Possession, The Silence of the Lambs
+
+Sun, 14 Jun 2026 12:35:13 GMT
+
+https://collider.com/perfect-horror-movies-pure-cinema/
+
+Terrifying masterpieces like The Shining, Halloween, and The Silence of the Lambs remain cinematic gold standards, horror films built to endure.
+---------
+
+# Lee Child's Least-Favorite Reacher Adaptation Is Leaving Streaming
+
+Movie News, Jack Reacher, Tom Cruise, Reacher
+
+Sun, 14 Jun 2026 12:31:14 GMT
+
+https://collider.com/tom-cruise-jack-reacher-movie-leaving-peacock-july-2026/
+
+Tom Cruise and Christopher McQuarrie's Jack Reacher movie, which Lee Child retrospectively rejected, is leaving Peacock soon. Find out when here.
+---------
+
+# 10 Perfect Fantasy Movies That Are Pure Cinema
+
+Movie, Fantasy, The Lord of the Rings: The Return of the King, The Lord of the Rings: The Fellowship of the Ring, The Seventh Seal
+
+Sun, 14 Jun 2026 12:28:13 GMT
+
+https://collider.com/best-fantasy-movies-pure-cinema/
+
+From Spirited Away, to The Seventh Seal, to Pan’s Labyrinth, these fantasy masterpieces build worlds so rich they make reality feel smaller.
+---------
+
+# 10 Perfect Netflix Miniseries With 10 Episodes or Less
+
+TV, Netflix, Godless, The Haunting of Hill House, When They See Us
+
+Sun, 14 Jun 2026 12:21:14 GMT
+
+https://collider.com/perfect-netflix-miniseries-shorter-than-10-episodes/
+
+Discover the best short Netflix miniseries that deliver satisfying storylines and binge-worthy entertainment, from Adolescence to Inventing Anna.
+---------
+
+# 'Tracker' Season 2, Episode 16 Has a Weirdly Abrupt Ending
+
+Features, Tracker
+
+Sun, 14 Jun 2026 14:00:19 GMT
+
+https://movieweb.com/tracker-season-2-episode-16-the-mercy-seat-ending/
+
+'Tracker' Season 2, Episode 16, "The Mercy Seat," ended so abruptly that fans wondered if they missed something.
+---------
+
+# Why Did Robin Weigert Leave ‘Tracker’?
+
+Features, Tracker
+
+Sun, 14 Jun 2026 14:00:19 GMT
+
+https://movieweb.com/tracker-teddi-robin-weigert-left-explained/
+
+Robin Weigert had a minor but pivotal role in 'Tracker,' and the actor left without a trace, no explanation given.
+---------
+
+# The Stephen King Thriller He Called "Terrific" Deserved a Better RT Score
+
+Features, Cujo, Stephen King
+
+Sun, 14 Jun 2026 14:00:18 GMT
+
+https://movieweb.com/cujo-stephen-king-rotten-tomatoes-score/
+
+Stephen King's movie adaptations range from beloved classic films such as 'Misery' and 'The Shining,' but some have low Rotten Tomatoes scores.
+---------
+
+# Disney+ Action Series Unleashes Unstoppable Villain With "Full Metal Rage" In Must-See Fight Scene
+
+TV News, Daredevil: Born Again, Daredevil, Action, Disney+
+
+Sun, 14 Jun 2026 13:00:19 GMT
+
+https://movieweb.com/daredevil-born-again-kingpin-hallway-fight/
+
+'Daredevil: Born Again' action director Philip J Silvera breaks down Kingpin's "full metal rage" in the Season 2 finale.
+---------
+
 # From Finally Explores Its Most Heartbreaking Storyline
 
 Streaming TV, From
