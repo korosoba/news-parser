@@ -1,3 +1,355 @@
+# DC Officially Introduces Its Most Advanced Robot Hero Of All Time
+
+DC Comics
+
+Sun, 14 Jun 2026 23:30:21 GMT
+
+https://screenrant.com/titans-eva-dc-best-robot-hero/
+
+The most advanced robot in the DC Universe reveals what makes them so different from famous synthetic heroes and villains like Cyborg or Brainiac.
+---------
+
+# HBO's Hit Crime Spinoff Is So Good, It Beats The 85% RT Movie It's Based On
+
+Streaming TV, Masked Recs
+
+Sun, 14 Jun 2026 23:30:21 GMT
+
+https://screenrant.com/the-penguin-hbo-tv-show-beat-the-batman-movie/
+
+It's rare that a TV spinoff is better than the movie it's based on, especially when the movie is already great, but HBO managed it in 2024.
+---------
+
+# Ubisoft Fans Are Extremely Worried About Complications With Two Major Franchises
+
+Gaming, Ubisoft, Ghost Recon, Far Cry, Triple-A Games
+
+Sun, 14 Jun 2026 23:30:21 GMT
+
+https://screenrant.com/ubisoft-far-cry-ghost-recon-development-reaction/
+
+Ubisoft has numerous big-name franchises, but two are reportedly struggling a great deal, and fans of the shooters are now growing concerned.
+---------
+
+# Spider-Man: Brand New Day Official Synopsis Finally Reveals Villain Details
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Sun, 14 Jun 2026 23:07:49 GMT
+
+https://screenrant.com/spiderman-brand-new-day-official-marvel-synopsis-villain-update/
+
+Sony Pictures and Marvel Studios debut a new official Spider-Man: Brand New Day movie synopsis, which finally shares more details on the villain.
+---------
+
+# 10 Anime That Are Actually Better Than Their Manga
+
+Anime, Op-Ed
+
+Sun, 14 Jun 2026 23:01:20 GMT
+
+https://screenrant.com/anime-better-than-manga-source/
+
+The rare cases where the anime beats the manga.
+---------
+
+# Netflix's 8-Part 'Ghost In The Shell Meets Terminator' Series Is One Of Its Best Sci-Fi Shows
+
+Streaming TV, Masked Recs
+
+Sun, 14 Jun 2026 23:01:20 GMT
+
+https://screenrant.com/terminator-zero-netflix-best-sci-fi-shows/
+
+Netflix has plenty of great sci-fi, but nothing feels quite like this unique series that completely reinvented an iconic cinematic franchise.
+---------
+
+# Ghost In The Shell Officially Returns In 2026 With A Brand-New RPG
+
+Gaming, Ghost in the Shell
+
+Sun, 14 Jun 2026 23:01:20 GMT
+
+https://screenrant.com/ghost-in-the-shell-new-rpg-2026/
+
+The Ghost in the Shell franchise is making a comeback in 2026 with a brand-new anime series and an official tabletop role-playing game.
+---------
+
+# Masters Of The Universe Director Confirms Iconic Location In Post-Credits Scene
+
+Movies, Masters of the Universe
+
+Sun, 14 Jun 2026 22:36:55 GMT
+
+https://screenrant.com/masters-of-the-universe-fright-zone-post-credits-scene-travis-knight-confirm/
+
+Masters of the Universe's post-credits scene teased one of the He-Man universe's most iconic characters and their home beyond Eternia for a sequel.
+---------
+
+# 12 Great RPGs You Can Beat In 10 Hours Or Less
+
+Gaming, RPG, PC, Triple-A Games
+
+Sun, 14 Jun 2026 22:30:22 GMT
+
+https://screenrant.com/best-rpgs-10-hours-or-less/
+
+Some of the best roleplaying games are punishingly long, so if you're looking for a more manageable time commitment, these alternatives are perfect.
+---------
+
+# Iconic DC Team Reveal Official Name of Their Permanent New Base
+
+Comics, Teen Titans
+
+Sun, 14 Jun 2026 22:30:20 GMT
+
+https://screenrant.com/new-titans-base-mountain/
+
+A true Titan.
+---------
+
+# Paramount+ Is Dismantling Star Trek After a Historic 9-Year Streaming Run
+
+TV, Star Trek, Sci-Fi
+
+Sun, 14 Jun 2026 23:30:13 GMT
+
+https://www.cbr.com/paramount-dismantling-star-trek-historic-streaming-run/
+
+It's the end of an era for TV's greatest sci-fi series.
+---------
+
+# 7 Near-Perfect '90s Anime Series No One Talks About
+
+Anime, Flame Of Recca, Slayers, Outlaw Star
+
+Sun, 14 Jun 2026 23:15:13 GMT
+
+https://www.cbr.com/near-perfect-90s-anime-series-no-one-talks-about/
+
+As the anime landscape expands in the 2020s, these masterpiece series from the 1990s shouldn't be forgotten.
+---------
+
+# Apple TV's 10-Part Sci-Fi Series Is the Genre's Biggest Hidden Gem
+
+TV, Murderbot, Apple TV, Sci-Fi
+
+Sun, 14 Jun 2026 23:00:13 GMT
+
+https://www.cbr.com/apple-tv-murderbot-sci-fi-biggest-hidden-gem/
+
+Apple TV has some solid shows, especially in the sci-fi genre. But there's one hidden gem you probably missed, and should catch up on before Season 2.
+---------
+
+# Batman’s Most Underrated Comic Series Just Ended, and Fans Barely Noticed
+
+Comics, Batman
+
+Sun, 14 Jun 2026 23:00:13 GMT
+
+https://www.cbr.com/batman-gargoyle-of-gotham-underrated-officially-ended/
+
+This brutal Batman comic deserved more attention during its unexpectedly long run.
+---------
+
+# 5 Greatest Star Wars Space Battles Ever, Ranked
+
+Movies, Star Wars
+
+Sun, 14 Jun 2026 23:00:13 GMT
+
+https://www.cbr.com/greatest-star-wars-space-battles-list/
+
+Star Wars' greatest space battles define the series, but those battles are far fewer than fans would expect.
+---------
+
+# Zelda Officially Returns With New 40th Anniversary Release October 2026
+
+Games, The Legend of Zelda, Nintendo
+
+Sun, 14 Jun 2026 22:38:12 GMT
+
+https://www.cbr.com/zelda-officially-returns-new-anniversary-release-october-2026/
+
+Zelda is officially expanding on an era with a brand-new 40th anniversary release coming this October.
+---------
+
+# Channing Tatum's $205M Action Thriller Is a Streaming Hit on Hulu 13 Years After Flopping in Theaters
+
+Movies, White House Down, Thriller, Hulu
+
+Sun, 14 Jun 2026 22:30:13 GMT
+
+https://www.cbr.com/channing-tatum-white-house-down-action-thriller-hulu-success-june-2026/
+
+One of Channing Tatum's most underrated action thrillers, White House Down, finds redemption on streaming 13 years later.
+---------
+
+# It's the End of an Era for George Miller's Mad Max Movies
+
+Movies, Mad Max, Action, Mad Max: The Wasteland
+
+Sun, 14 Jun 2026 22:30:13 GMT
+
+https://www.cbr.com/end-of-george-miller-mad-max-era/
+
+After enduring as the gold-standard in apocalyptic action for 47 years, George Miller’s Mad Max saga is coming to the end of an epic run.
+---------
+
+# Milly Alcock's Supergirl Has a Hidden Connection to Christopher Reeve's Superman
+
+Movies, Supergirl, christopher reeve
+
+Sun, 14 Jun 2026 22:29:56 GMT
+
+https://www.cbr.com/milly-alcock-supergirl-connection-christopher-reeve/
+
+Milly Alcock reveals the surprising connection between her Supergirl and Christopher Reeve's Man of Steel.
+---------
+
+# 5 Masterpiece Nintendo Games Better Than Zelda
+
+Games, Nintendo, The Legend of Zelda, Pokemon
+
+Sun, 14 Jun 2026 22:16:12 GMT
+
+https://www.cbr.com/nintendo-games-better-than-zelda/
+
+Some Nintendo games that are just as good or better than The Legend of Zelda.
+---------
+
+# Adult Swim’s Divisive Sci-Fi Anime Spin-Off Makes a Streaming Comeback
+
+TV News, Rick and Morty: The Anime, Rick and Morty, Sci-Fi, Adult Swim
+
+Sun, 14 Jun 2026 23:30:13 GMT
+
+https://collider.com/rick-and-morty-the-anime-adult-swim-streaming-success-june-2026/
+
+Rick and Morty: The Anime, a controversial spin-off of the popular Adult Swim series, has made a surprising return to the streaming charts.
+---------
+
+# 'Daredevil: Born Again' Offers the Perfect Blueprint To Revive Another Iconic Marvel Hero
+
+TV Features, Daredevil: Born Again, Moon Knight, Marvel Television, MCU
+
+Sun, 14 Jun 2026 23:27:13 GMT
+
+https://collider.com/daredevil-born-again-blueprint-moon-knight-marvel-revival/
+
+Daredevil: Born Again serves as the perfect blueprint for Marvel to bring back another iconic hero who deserves his own street-level show.
+---------
+
+# HBO Max Officially Turns A24's Meta Thriller Into an All-Time Cult Classic
+
+Movie News, HBO Max, A24, Charli XCX, The Moment
+
+Sun, 14 Jun 2026 23:15:14 GMT
+
+https://collider.com/charli-xcx-the-moment-streaming-success-hbo-max-june-2026/
+
+Charli XCX's A24 movie featuring Alexander Skarsgård is having a moment as a streaming hit in America. Here's what you should know.
+---------
+
+# 10 Great HBO Shows Overshadowed by 'The Sopranos'
+
+TV, HBO, The Sopranos, The Wire, Succession
+
+Sun, 14 Jun 2026 23:02:13 GMT
+
+https://collider.com/hbo-shows-overshadowed-by-the-sopranos/
+
+Explore HBO shows that deliver unique storytelling and complex characters, each offering a compelling alternative to the iconic The Sopranos.
+---------
+
+# Pixar's Sci-Fi Sleeper Hit It Taking Over Disney+ Ahead of 'Toy Story 5' Premiere
+
+Movie News, Hoppers, Sci-Fi, Pixar, Disney+
+
+Sun, 14 Jun 2026 23:00:13 GMT
+
+https://collider.com/pixar-hoppers-streaming-success-disney-plus-june-2026/
+
+A 2026 hit for Pixar has become an instant success on streaming. Here's everything you should know about Hoppers.
+---------
+
+# Prime Video's 6-Part Space Epic Is the Spiritual 'For All Mankind' Sequel Fans Need To Watch
+
+TV Features, The Expanse, For All Mankind, Prime Video, Apple TV
+
+Sun, 14 Jun 2026 22:46:14 GMT
+
+https://collider.com/the-expanse-space-epic-for-all-mankind-spiritual-sequel/
+
+The Expanse takes For All Mankind's space colonization and socioeconomic themes to a darker, more unequal future.
+---------
+
+# 10 Years Later, 'Dune' Writer's Divisive Sci-Fi Movie Is a Shock Netflix Hit
+
+Movie News, Chris Pratt, Jennifer Lawrence, Sci-Fi, Passengers
+
+Sun, 14 Jun 2026 22:45:13 GMT
+
+https://collider.com/chris-pratt-passengers-streaming-success-netflix-june-2026/
+
+A Dune co-writer's 2016 sci-fi movie starring Chris Pratt and Jennifer Lawrence is a hit on Netflix. Here's everything you should know.
+---------
+
+# ‘Michael’ Debuts on Streaming Before Hitting the $1 Billion Mark at the Box Office
+
+Movie News, Michael, Antoine Fuqua, Miles Teller, Biopic
+
+Sun, 14 Jun 2026 22:30:13 GMT
+
+https://collider.com/michael-jackson-biopic-digital-debut-short-of-1-billion-worldwide-box-office/
+
+The Michael Jackson biopic has made a stellar debut on digital despite not having hit the $1 billion milestone at the worldwide box office yet.
+---------
+
+# 6 Must-Read Stephen King Books If You Love 'Stranger Things'
+
+TV, Stephen King, Stranger Things, It: Welcome to Derry
+
+Sun, 14 Jun 2026 22:21:13 GMT
+
+https://collider.com/stephen-king-books-like-stranger-things-netflix/
+
+Fans of the Netflix sci-fi horror series Stranger Things will also enjoy Stephen King books like It, Firestarter, Carrie, and The Institute.
+---------
+
+# Netflix’s New 8-Part Sci-Fi Hit Is Officially Taking Over the World
+
+TV News, The Boroughs, Duffer Brothers, Netflix, Sci-Fi
+
+Sun, 14 Jun 2026 22:15:14 GMT
+
+https://collider.com/duffer-brothers-netflix-the-boroughs-viewership-115-million-hours-viewed/
+
+Netflix's sci-fi sensation from the Duffer Brothers, The Boroughs, has passed a major viewership milestone after three weeks of release.
+---------
+
+# The Most Underrated TV Thriller Ever Made is 8 Episodes of Masterpiece Writing You Can Watch in One Sitting
+
+Features, True Detective, Thriller
+
+Sun, 14 Jun 2026 23:00:19 GMT
+
+https://movieweb.com/true-detective-season-3-underrated-thriller/
+
+This TV thriller anthology has four seasons under its belt, and while two others get the most attention, it's third is a quiet masterpiece.
+---------
+
+# Sydney Sweeney's R-Rated Hit is a Late-Night Streaming Sensation
+
+Movie News, The Housemaid, Prime Video, Hot on Streaming, Sydney Sweeney
+
+Sun, 14 Jun 2026 22:07:28 GMT
+
+https://movieweb.com/the-housemaid-sydney-sweeney-rrated-streaming-success-prime-june-2026/
+
+Sydney Sweeney's R-rated erotic thriller 'The Housemaid' is a global streaming success on Prime Video.
+---------
+
 # Netflix's Upcoming Sci-Fi Reboot Is Almost The Perfect Stranger Things Replacement
 
 TV, Masked Recs
