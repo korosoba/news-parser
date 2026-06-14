@@ -1,3 +1,234 @@
+# From Finally Explores Its Most Heartbreaking Storyline
+
+Streaming TV, From
+
+Sun, 14 Jun 2026 12:15:19 GMT
+
+https://screenrant.com/from-season-4-victor-survival-fate-heartbreaking/
+
+The Township has put all of its characters through tragedy, but the show finally acknowledged that one character has had the hardest time of all.
+---------
+
+# Superman Officially Debuts New Suit & It's Perfect
+
+Streaming TV, Masked Recs
+
+Sun, 14 Jun 2026 12:00:20 GMT
+
+https://screenrant.com/my-adventures-with-superman-season-3-new-suit-dc-perfect/
+
+Superman is back and wearing one of his best new suits in this exciting 2026 DC Studios release that will see him fight powerful characters.
+---------
+
+# Avatar Officially Returns To The Roku Era In Voyage Of The Unity This October
+
+Gaming, Avatar: The Last Airbender, PC, The Legend of Korra
+
+Sun, 14 Jun 2026 12:00:20 GMT
+
+https://screenrant.com/avatar-voyage-of-the-unity-october-release/
+
+Voyage of the Unity is an official new Avatar: The Last Airbender release taking us back to the Roku Era, set to arrive this October.
+---------
+
+# Dutton Ranch Threatens To Blow The Lid Off Of Beth & Rip's Biggest Secret
+
+TV, Yellowstone, Dutton Ranch
+
+Sun, 14 Jun 2026 12:00:20 GMT
+
+https://screenrant.com/dutton-ranch-jaime-secret-beulah-beth-rip/
+
+Beth and Rip came to Texas hoping for a clean slate, but their sins followed them in Dutton Ranch. How much does Beulah Jackson know?
+---------
+
+# It’s Your Last Chance To Watch The Madagascar Trilogy On Netflix
+
+Movies, Netflix, Madagascar
+
+Sun, 14 Jun 2026 12:00:20 GMT
+
+https://screenrant.com/netflix-madagascar-trilogy-leaving-soon/
+
+One of the biggest and most well-known animated movie trilogies to appear on Netflix is set to leave the platform in a matter of just a few weeks.
+---------
+
+# 8 Innocent-Looking Anime That Are Way Darker Than They Should Be
+
+Anime
+
+Sun, 14 Jun 2026 12:00:20 GMT
+
+https://screenrant.com/innocent-anime-actually-dark/
+
+Discover 8 deceptive anime series, where trauma, violence, and psychological horror lurk beneath colorful visuals and lighthearted premises.
+---------
+
+# Zelda Ocarina Of Time Remake Gameplay Splits Fans
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Sun, 14 Jun 2026 11:30:20 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-gameplay-hopes/
+
+The Ocarina of Time remake has finally been confirmed as a real thing, but fans haven't seen enough to be convinced.
+---------
+
+# PlayStation Plus New Day-One Free Game Looks Like A GOTY Contender
+
+Gaming, PlayStation Plus
+
+Sun, 14 Jun 2026 11:15:20 GMT
+
+https://screenrant.com/playstation-plus-august-2026-free-game-lineup-confirmed/
+
+There's a new coming arriving on PlayStation Plus as a day-one release, and it already looks like it could be a serious GOTY contender for 2026.
+---------
+
+# James Bond Sequel Officially Gets Title and Release Date Ahead of Reboot
+
+Movies, James Bond
+
+Sun, 14 Jun 2026 12:00:13 GMT
+
+https://www.cbr.com/james-bond-sequel-king-zero-title-release/
+
+The next chapter of James Bond's story has been revealed.
+---------
+
+# The MCU Is Officially Rebooting the X-Men Franchise
+
+Movies, X-Men, Marvel Cinematic Universe, X-Men (Film), X-Men (2000)
+
+Sun, 14 Jun 2026 11:30:13 GMT
+
+https://www.cbr.com/mcu-officially-rebooting-x-men-franchise/
+
+The X-Men are returning to the big screen once the MCU has a reset, and it's a chance to catch lightning in a bottle once again with the mutants.
+---------
+
+# The 10 Best Daredevil Costumes Ever, Ranked
+
+Comics, Daredevil
+
+Sun, 14 Jun 2026 11:00:15 GMT
+
+https://www.cbr.com/top-daredevil-costumes-ranked/
+
+Daredevil has sported many looks over the years, but 10 stand out among the rest of them.
+---------
+
+# Your Favorite Character in 'Pluribus' Is Actually the Ultimate Villain
+
+Exclusives, Pluribus, Karolina Wydra, Ladies Night, Apple TV
+
+Sun, 14 Jun 2026 12:00:14 GMT
+
+https://collider.com/pluribus-the-joined-zosia-villain-karolina-wydra/
+
+Pluribus star Karolina Wydra joins Perri Nemiroff for a Collider Ladies Night interview to discuss her experience playing Zosia and The Joined.
+---------
+
+# Hulu's Hottest New Series Is Quietly Taking Over Streaming Across America
+
+TV News, Not Suitable for Work, Mindy Kaling, Hulu, Ella Hunt
+
+Sun, 14 Jun 2026 12:00:14 GMT
+
+https://collider.com/not-suitable-for-work-streaming-success-hulu-june-2026/
+
+The newest must-watch series on Hulu has just topped the streaming charts. Read on for more details.
+---------
+
+# Netflix's New 3-Part True Crime Series Is Your Next Streaming Obsession
+
+TV Features, The Witness, True Crime, Netflix
+
+Sun, 14 Jun 2026 11:57:14 GMT
+
+https://collider.com/the-witness-netflix-true-crime-series-perfect-weekend-binge/
+
+Netflix's latest true crime series, The Witness, which focuses on the loved ones left behind after a tragic murder, offers a unique perspective.
+---------
+
+# 8 '90s Family Movies That Are Perfect From Start to Finish
+
+Movie, Family, 90s movies, Matilda, The Lion King
+
+Sun, 14 Jun 2026 11:57:14 GMT
+
+https://collider.com/best-90s-family-movies-perfect/
+
+Kid-friendly classics like The Lion King, Matilda, and The Parent Trap are all some of the best family movies of the 1990s.
+---------
+
+# Before It Leaves Paramount+, Revisit Ridley Scott’s Acclaimed Box Office Misfire
+
+Movie News, The Last Duel, Ridley Scott, Matt Damon, Paramount Plus
+
+Sun, 14 Jun 2026 11:45:29 GMT
+
+https://collider.com/matt-damon-last-duel-leaving-paramount-july-2026/
+
+Ridley Scott united Matt Damon and Ben Affleck in The Last Duel, a Rashomon-inspired historical drama that's leaving Paramount+ soon.
+---------
+
+# Paramount’s 9-Part Western Drama Is So Good, It United a Split Fandom
+
+TV Features, Yellowstone, Dutton Ranch, Kelly Reilly, Cole Hauser
+
+Sun, 14 Jun 2026 11:44:15 GMT
+
+https://collider.com/paramount-western-drama-dutton-ranch-united-yellowstone-fandom/
+
+Yellowstone's latest spin-off Dutton Ranch has surprised fans with a strong cast, a fresh setting, and a renewed focus on beloved characters.
+---------
+
+# All 3 BioShock Games, Ranked
+
+Movie, bioshock, Bioshock Infinite, BioShock, Horror
+
+Sun, 14 Jun 2026 11:44:15 GMT
+
+https://collider.com/bioshock-games-ranked/
+
+The BioShock saga has produced three masterful games, each unique and thrilling, but which is the best? While we wait for BioShock 4, let's rank them.
+---------
+
+# 3 Years Later, HBO's 10/10 Masterpiece Becomes a Surprise Streaming Hit
+
+TV News, Succession, Brian Cox, HBO, Apple
+
+Sun, 14 Jun 2026 11:30:13 GMT
+
+https://collider.com/hbo-succession-itunes-streaming-success-june-2026/
+
+HBO's critically acclaimed drama series is experiencing a resurgence in popularity 3 years after its finale. Get all the details here.
+---------
+
+# Steven Spielberg's 5-Part Apple TV Sci-Fi Series Makes a Surprise Comeback
+
+TV News, Steven Spielberg, Amazing Stories (1985), Sci-Fi, Apple TV
+
+Sun, 14 Jun 2026 11:00:15 GMT
+
+https://collider.com/steven-spielberg-amazing-stories-apple-tv-streaming-success-june-2026/
+
+Steven Spielberg's forgotten Apple TV sci-fi series makes a surprise comeback on streaming after six years. Get all the details here.
+---------
+
+# 6 New Fantasy Shows That Are Perfect From Start to Finish
+
+TV, Fantasy, Star Wars: Maul - Shadow Lord, A Knight Of The Seven Kingdoms, Widow's Bay
+
+Sun, 14 Jun 2026 11:00:15 GMT
+
+https://collider.com/new-fantasy-shows-perfect-start-to-finish/
+
+Explore the top fantasy shows from recent years that offer captivating worlds and storylines, from A Knight of the Seven Kingdoms to The Mighty Nein.
+---------
+
 # Red Dead Redemption 3's Prequel Setting Has The Perfect Story Set Up
 
 Gaming, Red Dead Redemption, Red Dead Redemption 2, Rockstar Games
