@@ -1,3 +1,289 @@
+# Marvel Unveils Manga-Inspired Redesign For Moon Knight's New Appearance
+
+Marvel Comics, Moon Knight
+
+Sun, 14 Jun 2026 19:07:09 GMT
+
+https://screenrant.com/moon-knight-manga-verse-marvel-comics/
+
+A famous Marvel title returns with a new version of Moon Knight, who debuts a brand-new costume featuring an eccentric all-white suit and a turban.
+---------
+
+# Netflix's Smash Hit Period Drama Is So Good, It Survived Recasting The Main Character Twice
+
+Streaming TV, Masked Recs
+
+Sun, 14 Jun 2026 19:00:22 GMT
+
+https://screenrant.com/the-crown-netflix-queen-recast-survive/
+
+Netflix's epic, decades-spanning period drama was so well produced and written that it survived recasting its main character not once, but twice.
+---------
+
+# Resident Evil Unannounced Remakes Leak Following Veronica Reveal
+
+Gaming, Resident Evil, Nintendo Switch 2
+
+Sun, 14 Jun 2026 19:00:22 GMT
+
+https://screenrant.com/resident-evil-remakes-switch-2-ports-2026/
+
+While Resident Evil fans have no shortage of games to look forward to, the series is getting even more content than we could have hoped for.
+---------
+
+# "James Gunn, Please!": House Of The Dragon Star Wants To Play Batman Character In New DCU Era
+
+Movies, The Brave and the Bold, Batman, DC Universe
+
+Sun, 14 Jun 2026 18:52:04 GMT
+
+https://screenrant.com/batman-the-brave-and-the-bold-movie-nightwing-dcu-casting-comments-harry-collett/
+
+One of the main House of the Dragon stars officially wants to join James Gunn's upcoming Batman movie reboot in the ongoing DC Universe franchise.
+---------
+
+# Disney's Alien Prequel Is So Good, It's Already Renewed For Season 2 Despite Breaking Canon
+
+Triple-A, Masked Recs
+
+Sun, 14 Jun 2026 18:34:20 GMT
+
+https://screenrant.com/alien-earth-renewed-season-2-despite-breaking-canon/
+
+One truly unexpected choice in Disney's highly hyped Alien reboot proved once and for all that the franchise's canon was never all that important.
+---------
+
+# Prime Video's New Best-Selling Book Adaptation Overtakes The Boys In Streaming Battle
+
+TV, Masked Recs
+
+Sun, 14 Jun 2026 18:33:13 GMT
+
+https://screenrant.com/every-year-after-prime-video-streaming-success-june-2026/
+
+Prime Video's new best-selling book adaptation series is dominating the streaming charts, and has now dethroned The Boys after its final season.
+---------
+
+# Netflix Has Officially Found Its New Favourite Genre
+
+TV, Masked Recs
+
+Sun, 14 Jun 2026 18:31:21 GMT
+
+https://screenrant.com/netflix-scooby-doo-reboot-murder-mystery-teen-show-genre-trend/
+
+Netflix's latest obsession: From Stranger Things to Scooby-Doo, the streaming service is betting big on live-action teen dramas with mystery elements.
+---------
+
+# How The Shadow Of The Colossus Director Is Approaching His Next Game: "There's Always Something More"
+
+Gaming, Epic Games, Triple-A Games
+
+Sun, 14 Jun 2026 18:30:20 GMT
+
+https://screenrant.com/fumito-ueda-sgf-interview-gen-atlas/
+
+We caught up with Fumito Ueda, legendary director of games like Ico and Shadow of the Colossus, to talk all things Gen Atlas.
+---------
+
+# 10 Most-Anticipated PlayStation 5 Games Of 2026 And Beyond
+
+Gaming, PlayStation 5, Triple-A Games
+
+Sun, 14 Jun 2026 18:30:20 GMT
+
+https://screenrant.com/playstation-5-2026-and-beyond-biggest-games/
+
+Brace yourselves: the PlayStation 5 has some incredible games coming in 2026 and 2027, from classic remakes to exciting new entries in iconic series.
+---------
+
+# 10 Praiseworthy Comedies No One Ever Talks About
+
+Movies, Comedy
+
+Sun, 14 Jun 2026 18:30:20 GMT
+
+https://screenrant.com/praiseworthy-comedies-nobody-talks-about/
+
+These hilarious and praiseworthy comedies don't get the love that they deserve, and this list is chock-full of underrated laughs.
+---------
+
+# HBO's 2-Season Controversial Fantasy Series Is Flying to No. 1 Just 2 Weeks Ahead of Return
+
+TV, House of the Dragon
+
+Sun, 14 Jun 2026 19:01:15 GMT
+
+https://www.cbr.com/house-of-the-dragon-fantasy-hbo-success-ahead-season-3-june-2026/
+
+The fantasy show climbs the charts on HBO Max just weeks before the highly anticipated Season 3 premiere.
+---------
+
+# 10 Best James Bond Movies, Ranked
+
+Movies, James Bond, Casino Royale, GoldenEye
+
+Sun, 14 Jun 2026 19:01:15 GMT
+
+https://www.cbr.com/james-bond-movies-ranked-list/
+
+James Bond has been entertaining the world since his 1953 creation, and these movies are his absolute best on-screen adventures.
+---------
+
+# Prime Video's Reacher Replacement Confirms What to Expect From Season 3 & Possible Future
+
+TV, Cross
+
+Sun, 14 Jun 2026 18:42:48 GMT
+
+https://www.cbr.com/cross-season-3-future-plans-amazon-prime-video/
+
+The hit Amazon show's future gets a promising update.
+---------
+
+# 5 Most Powerful Hand-to-Hand Combat Users in Shonen Anime, Ranked
+
+Anime, Bleach, Dragon Ball, One-Punch Man, shonen anime, Shonen
+
+Sun, 14 Jun 2026 18:15:13 GMT
+
+https://www.cbr.com/strongest-hand-to-hand-combat-shonen-anime/
+
+Hand-to-hand combat is relatively rare in shonen anime, but the strongest unarmed fighters are legendary
+---------
+
+# Return to Silent Hill Is Dominating the Streaming Charts
+
+Movies, Return to Silent Hill, Horror, Hulu
+
+Sun, 14 Jun 2026 18:00:14 GMT
+
+https://www.cbr.com/return-to-silent-hill-horror-adaptation-streaming-success-hulu-june-2026/
+
+An abysmal video game adaptation that bombed at the box office is a sudden streaming sensation.
+---------
+
+# Spider-Man's "Peter Parker No More" Is a Comic Saga You Should Be Reading
+
+Comics, Comics You Should Be Reading, Spider-Man, Marvel
+
+Sun, 14 Jun 2026 18:00:14 GMT
+
+https://www.cbr.com/spiderman-peter-parker-no-more-comic-you-should-be-reading/
+
+Betrayal and loss pushed a hero to the brink in the "Peter Parker No More" saga, shattering Spider-Man's whole world while inspiring his latest movie.
+---------
+
+# Pokémon Officially Launching New U.S. Accessories for Your ‘Playful Partners'
+
+Anime, Pokemon, Nintendo, Nintendo Switch
+
+Sun, 14 Jun 2026 18:00:14 GMT
+
+https://www.cbr.com/pokemon-playful-partners-pet-accessories/
+
+The Pokémon franchise honors our precious four-legged companions with it's brand new "Playful Partners" pet accessory collection.
+---------
+
+# Matt Damon's Viral Sci-Fi Thriller Has Taken Over HBO Max
+
+Movie News, Contagion, Matt Damon, HBO Max, Steven Soderbergh
+
+Sun, 14 Jun 2026 19:01:15 GMT
+
+https://collider.com/contagion-streaming-success-hbo-max-june-2026/
+
+Ahead of The Odyssey, a viral Matt Damon thriller is taking over HBO Max. Here's everything you should know.
+---------
+
+# 8 Shows To Watch if You Love ‘Dutton Ranch’
+
+TV, Dutton Ranch, Yellowstone, Ransom Canyon, Deadwood
+
+Sun, 14 Jun 2026 18:49:13 GMT
+
+https://collider.com/shows-like-dutton-ranch/
+
+Ransom Canyon, Deadwood, Longmire, The Son, and more make up our list of shows to watch if you love Dutton Ranch.
+---------
+
+# The Worst Movie Quotes of All Time
+
+Movie, The Room, Star Wars: Episode IX - The Rise of Skywalker, The Happening, Batman & Robin
+
+Sun, 14 Jun 2026 18:40:14 GMT
+
+https://collider.com/worst-movie-quotes-all-time/
+
+Movies like The Room, Star Wars: The Rise of Skywalker, and The Happening are all infamous for containing some of the worst quotes in cinema history.
+---------
+
+# Bridgerton Season 4 Hid George’s Crown Inside Charlotte’s Hair | Collider BTS
+
+TV, Bridgerton
+
+Sun, 14 Jun 2026 18:15:13 GMT
+
+https://collider.com/video/bridgerton-season-4-hid-george-s-crown-inside-charlotte-s-hair-collider-bts/
+
+Discover the surprising Bridgerton Season 4 behind-the-scenes detail that hid King George’s crown inside Queen Charlotte’s elaborate hairstyle, revealing a clever production Easter egg and the creative secrets behind Netflix’s hit Regency romance.
+---------
+
+# Revisit Keanu Reeves’ 119-Minute Fantasy Cult Favorite Before It Leaves Streaming
+
+Movie News, 47 Ronin, Keanu Reeves, Peacock, Fantasy
+
+Sun, 14 Jun 2026 18:00:14 GMT
+
+https://collider.com/keanu-reeves-47-ronin-leaving-peacock-july-2026/
+
+Keanu Reeves' ill-fated fantasy epic 47 Ronin, which also featured Shōgun duo Tadanobu Asano and Hiroyuki Sanada, is leaving Peacock soon.
+---------
+
+# Stephen King’s 8-Episode Sleeper Hit Is TV’s Next Big Horror Series Before Season 2
+
+TV Features, The Institute, Ben Barnes, Mary-Louise Parker, MGM
+
+Sun, 14 Jun 2026 17:58:14 GMT
+
+https://collider.com/stephen-king-the-institute-horror-sleeper-hit-before-season-2/
+
+The Institute is a Stephen King horror hit that'll keep you on the edge of your seat, and Season 2 promises to take the nightmare to a new level.
+---------
+
+# Forget 'Severance,' the Perfect Sci-Fi Mystery Series Aired 18 Years Ago
+
+Features, Severance, Fringe, Comparison Recommendation
+
+Sun, 14 Jun 2026 19:00:20 GMT
+
+https://movieweb.com/severance-fringe-sci-fi-better/
+
+'Severance,' the Apple TV sci-fi series starring Adam Scott, is a popular and unforgettable show, but there is an even better one.
+---------
+
+# Stephen King Called This 21st-Century Sci-Fi Masterpiece "Terrifying”
+
+Features, Black Mirror, Netflix
+
+Sun, 14 Jun 2026 18:30:19 GMT
+
+https://movieweb.com/netflix-black-mirror-stephen-king-essential/
+
+Stephen King often recommends TV shows, and he posted on social media about a sci-fi TV series that he considers "terrifying."
+---------
+
+# George R.R. Martin Loves Netflix’s Action Epic For Its “Battles and Betrayals”
+
+Features, George R.R. Martin, The Last Kingdom
+
+Sun, 14 Jun 2026 18:00:19 GMT
+
+https://movieweb.com/george-rr-martin-netflix-the-last-kingdom/
+
+George R.R. Martin, the author behind the 'Game of Thrones' book series that the HBO franchise is based on, praised a Netflix action series.
+---------
+
 # 10 Harsh Realities Of Jim Carrey's The Cable Guy That Are Hard To Ignore 30 Years Later
 
 Movies, Jim Carrey, The Cable Guy
