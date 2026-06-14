@@ -1,3 +1,278 @@
+# Fallout 3 Unreal Engine 5 Remake Footage Appears Online
+
+Gaming, Fallout
+
+Sun, 14 Jun 2026 04:30:21 GMT
+
+https://screenrant.com/fallout-3-unreal-engine-5-remaster-unofficial-gameplay/
+
+Fallout 3 may well be getting an official remake at some point, but in the meantime, fans have taken matters into their own hands.
+---------
+
+# Steam Drops 6 Great Free Games You Have 24 Hours To Grab
+
+Gaming, Steam, PC
+
+Sun, 14 Jun 2026 04:15:20 GMT
+
+https://screenrant.com/steam-6-free-games-24-hours/
+
+Six Steam games are free to play this weekend, which means you have just 24 hours left to check them out. Here’s everything you can try free.
+---------
+
+# Fallout Free Download Officially Yours To Grab For 24 Hours
+
+Gaming, Fallout, Fallout 76, Live Service Games, PC
+
+Sun, 14 Jun 2026 04:02:22 GMT
+
+https://screenrant.com/fallout-free-download-officially-yours-to-grab-for-24-hours/
+
+While we're still waiting for a new entry in the franchise, Bethesda has one surprise freebie for fans that you'll have to act fast to experience.
+---------
+
+# A Knight Of The Seven Kingdoms' Future Plans Options Time Jump To Resolve 1 Major Question
+
+TV, Game of Thrones, A Knight Of The Seven Kingdoms
+
+Sun, 14 Jun 2026 03:58:56 GMT
+
+https://screenrant.com/knight-of-the-seven-kingdoms-season-3-future-time-jump-options-ira-parker/
+
+A Knight of the Seven Kingdoms ambitiously hopes for 10 seasons, and showrunner Ira Parker discusses how it would affect its youngest character.
+---------
+
+# New Berserk Chapter Breaks A 4 Year Tradition, And It's The Start Of A New Era
+
+Anime, Berserk
+
+Sun, 14 Jun 2026 03:55:55 GMT
+
+https://screenrant.com/berserk-chapter-385-tradition-broken-new-era/
+
+The greatest manga of all time is on a hot streak with the first major batch release since 2022.
+---------
+
+# 10 Major Multiverse Saga Cliffhangers The MCU Still Needs To Address
+
+Superheroes
+
+Sun, 14 Jun 2026 03:42:11 GMT
+
+https://screenrant.com/10-multiverse-saga-cliffhangers-the-mcu-needs-to-address/
+
+Although Doomsday & Secret Wars are set to end the MCU's Multiverse Saga, there are still quite a few cliffhangers and unsolved narrative threads.
+---------
+
+# Manga's Greatest Sci-Fi Creator Just Changed Genres And Nobody Is Talking About It Enough
+
+Anime, Knights of Sidonia
+
+Sun, 14 Jun 2026 03:30:22 GMT
+
+https://screenrant.com/best-sci-fi-anime-manga-blame-tsutomu-nihei-change-genre/
+
+Tsutomu Nihei is a crucial creator in the sci-fi manga landscape, but his latest genre change may produce his greatest hit since BLAME!
+---------
+
+# Alien: Earth's Most Graphic Scene Was Cut After Going Too Far
+
+TV, Alien: Earth
+
+Sun, 14 Jun 2026 03:14:48 GMT
+
+https://screenrant.com/alien-earth-graphic-scene-cut-going-too-far/
+
+Alien: Earth's most gruesome scene had to be cut from the show after series creator, Noah Hawley, said the sequence was too graphic for FX.
+---------
+
+# Captain Kirk Spinoff Will Happen If Star Trek Actors “Get The Phone Call”
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Sun, 14 Jun 2026 03:12:57 GMT
+
+https://screenrant.com/star-trek-captain-kirk-spinoff-paul-wesley-call/
+
+Hopes remain for a Captain Kirk spinoff of Star Trek: Strange New Worlds, and Paul Wesley gives an update about where Star Trek: Year One stands.
+---------
+
+# New Xbox Game Pass Lineup Has Fans Seriously Hyped
+
+Gaming, Xbox Game Pass, Xbox, Live Service Games, PC
+
+Sun, 14 Jun 2026 03:00:22 GMT
+
+https://screenrant.com/xbox-game-pass-upcoming-2026-reactions/
+
+Xbox Game Pass has offered a clearer look at the lineup of games to come, and some subscribers are having trouble believing their luck.
+---------
+
+# Steven Spielberg Officially Names All-Time Favorite Christopher Nolan Movie
+
+Movies, Memento, steven spielberg
+
+Sun, 14 Jun 2026 03:56:27 GMT
+
+https://www.cbr.com/steven-spielberg-favorite-christopher-nolan-movie/
+
+Steven Spielberg declared the best feature film by the Oscar-winning Christopher Nolan, and it's probably not what most fans would expect.
+---------
+
+# 7 Anime Series That Are a Masterclass in Power Scaling
+
+Anime, Hunter X Hunter, Jujutsu Kaisen
+
+Sun, 14 Jun 2026 03:45:15 GMT
+
+https://www.cbr.com/anime-best-power-scaling-system/
+
+Power scaling plays a huge role in making a battle anime series entertaining, and these titles feature the best, most multifaceted power systems.
+---------
+
+# 10 Greatest Sci-Fi Anime of the Last 25 Years, Ranked
+
+Anime, Planetes, Steins;Gate, Sci-Fi
+
+Sun, 14 Jun 2026 03:30:15 GMT
+
+https://www.cbr.com/greatest-sci-fi-anime-last-25-years/
+
+Anime has released some standout sci-fi modern classics in the past 25 years, including Steins;Gate, Planetes, and Psycho-Pass.
+---------
+
+# The 15 Best Psychological Thriller TV Shows, Ranked
+
+TV, Thriller, Black Mirror, Twin Peaks, Dark
+
+Sun, 14 Jun 2026 03:30:15 GMT
+
+https://www.cbr.com/best-psychological-thriller-tv-shows-ranked-list/
+
+Psychological thriller TV shows like Sharp Objects, True Detective and Luther hook audiences with their gripping mysteries and mind games.
+---------
+
+# 10 Biggest Hopes For Pokémon Winds and Waves
+
+Games, Pokemon, Nintendo, Pokemon Scarlet and Violet
+
+Sun, 14 Jun 2026 03:15:15 GMT
+
+https://www.cbr.com/pokemon-winds-and-waves-features-hopes/
+
+Pokémon Winds & Waves are coming in 2027, and fans are hoping for more, given Game Freak's less-than-stellar record with Pokémon Scarlet & Violet.
+---------
+
+# 10 Greatest Martial Arts Movies of the Last 30 Years, Ranked
+
+Movies, IP Man, John Wick
+
+Sun, 14 Jun 2026 03:10:14 GMT
+
+https://www.cbr.com/greatest-martial-arts-movies-last-30-years-list/
+
+The last 30 years have delivered some amazing martial arts films, like Ip Man or John Wick, and they deserve to never be forgotten.
+---------
+
+# The Guardians of the Galaxy Comics Take Bigger Risks Than the Movies
+
+Comics, Guardians of the Galaxy
+
+Sun, 14 Jun 2026 03:01:16 GMT
+
+https://www.cbr.com/the-guardians-of-the-galaxy-comics-stronger-than-movies/
+
+The comics push things farther than what the movies could ever do.
+---------
+
+# Gundam Seed’s Astray Red Frame Officially Returns in New First Look
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam SEED, merchandise
+
+Sun, 14 Jun 2026 03:01:16 GMT
+
+https://www.cbr.com/gundam-seed-astray-red-frame-new-first-look/
+
+One of the most iconic Cosmic Era mobile suits is receiving a a new model kit, with this being the pinnacle of Master Grade Gundam engineering.
+---------
+
+# 10 Masterpiece Fantasy Games Nobody Remembers
+
+Games, Video Games, Role Playing Game, Fantasy
+
+Sun, 14 Jun 2026 02:46:15 GMT
+
+https://www.cbr.com/forgotten-masterpiece-fantasy-games/
+
+Vagrant Story and Shadow Tower Abyss place a great emphasis on fantasy, which is a fact that has gone underappreciated.
+---------
+
+# Sydney Sweeney's R-Rated Thriller That Made 11x Its Budget Is Officially Dominating Streaming
+
+Movies, The Housemaid, Thriller
+
+Sun, 14 Jun 2026 02:31:14 GMT
+
+https://www.cbr.com/sydney-sweeney-thriller-the-housemaid-starz-success-june-2026/
+
+After becoming Sweeney's highest-grossing movie ever, the R-rated psychological thriller continues its success on streaming.
+---------
+
+# 34 Actors Who Have Appeared in Both Star Wars and the MCU
+
+Movie, Star Wars, MCU, Samuel L. Jackson, Paul Bettany
+
+Sun, 14 Jun 2026 03:39:15 GMT
+
+https://collider.com/actors-in-both-star-wars-and-mcu/
+
+With a giant line-up of films and series, the crossover of actors in both Star Wars and the MCU is as epic as The Avengers.
+---------
+
+# Agatha Christie Fans Need To Watch This 2016 Mystery Thriller That's Impossible To Solve
+
+Movie Features, The Invisible Guest, Thriller, Mystery, Drama
+
+Sun, 14 Jun 2026 03:00:15 GMT
+
+https://collider.com/invisible-guest-mystery-thriller-movie-streaming/
+
+Oriol Paulo's thriller, The Invisible Guest, offers a compelling puzzle of lies that will leave viewers guessing until the very end.
+---------
+
+# Only 10 Sci-Fi Shows From the 2000s Can Be Considered True Masterpieces
+
+TV, Sci-Fi, 2000s, Lost, Battlestar Galactica
+
+Sun, 14 Jun 2026 02:41:14 GMT
+
+https://collider.com/2000s-sci-fi-shows-true-masterpieces/
+
+Discover the exceptional sci-fi TV shows from the 2000s that truly stand out as masterpieces, including Battlestar Galactica, Lost, and Firefly.
+---------
+
+# After 8 Years, 'Yellowstone's Sequel Series Finally Gives Rip a Worthy Enemy
+
+Features, Dutton Ranch, Yellowstone
+
+Sun, 14 Jun 2026 02:30:33 GMT
+
+https://movieweb.com/yellowstone-sequel-series-dutton-ranch-rip-enemy-rob-will/
+
+Throughout the run of 'Yellowstone', Rip Wheeler fought the high-powered enemies of John Dutton, but now he may have a nemesis on his level to fight.
+---------
+
+# 8 Key Details From Kane Parsons' Web Series Missing From A24's 'Backrooms'
+
+Features, Backrooms, Kane Parsons, A24
+
+Sun, 14 Jun 2026 02:00:33 GMT
+
+https://movieweb.com/8-things-backrooms-a24-movie-missing-web-series/
+
+Kane Parsons 'Backrooms' acts almost as a companion piece to his ultra-popular web series on the same subject, but with key pieces of lore omitted.
+---------
+
 # Netflix's New Action Thriller Webtoon Adaptation, Viral Hit, Is the Perfect Weekend Binge
 
 Anime, Viral Hit, Netflix
