@@ -1,3 +1,300 @@
+# 10 Harsh Realities Of Jim Carrey's The Cable Guy That Are Hard To Ignore 30 Years Later
+
+Movies, Jim Carrey, The Cable Guy
+
+Sun, 14 Jun 2026 17:45:20 GMT
+
+https://screenrant.com/harsh-realities-the-cable-guy/
+
+Jim Carrey was influential in comedy films during the 90s, but movies like The Cable Guy had darker undertones that are significant during a rewatch.
+---------
+
+# Rey, Finn, & Poe Return To Star Wars In Heir To The First Order Art
+
+Movies, Star Wars
+
+Sun, 14 Jun 2026 17:32:24 GMT
+
+https://screenrant.com/star-wars-rey-finn-poe-return-art/
+
+Seven years after The Rise of Skywalker, Rey, Finn, and Poe are back in Star Wars fan art for a hypothetical story titled Heir to the First Order.
+---------
+
+# Godzilla Meets Classic Romance In Gloriously Weird New Anime Kaiju Girl Carmelise
+
+Anime, Kaiju Girl Caramelise
+
+Sun, 14 Jun 2026 17:30:20 GMT
+
+https://screenrant.com/kaiju-girl-carmelise-godzilla-kaiju-romance/
+
+Anime proves the potential of the Kaiju genre with a new series that combines the epic fury of Godzilla with the sweetness of a high school romance.
+---------
+
+# 8 Workplace Sitcoms That Make The Office Look Small
+
+Streaming TV, The Office
+
+Sun, 14 Jun 2026 17:30:20 GMT
+
+https://screenrant.com/best-workplace-sitcoms-make-office-look-small/
+
+From the globetrotting spy missions of Archer to the big-box dystopia of Superstore, these workplace sitcoms make The Office look small.
+---------
+
+# GTA 6 Fans Stunned At Gap Between Trailer 2 And Trailer 3
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, Triple-A Games, PC
+
+Sun, 14 Jun 2026 17:30:20 GMT
+
+https://screenrant.com/gta-6-trailer-2-to-trailer-3-wait-reaction/
+
+Grand Theft Auto 6's marketing cycle has come with its fair share of confusion, and a big milestone is making players reflect on the situation.
+---------
+
+# Hulu’s 98% RT Crime Series Is So Good, It Already Has Season 3 In The Pipeline
+
+TV, Masked Recs
+
+Sun, 14 Jun 2026 17:21:20 GMT
+
+https://screenrant.com/deli-boys-season-3-in-development/
+
+Hulu has scored a major hit with this acclaimed two-season crime series, which looks set to continue with a third season already in development.
+---------
+
+# 35 New Details I Learned From The Mandalorian And Grogu Director’s Commentary
+
+Movies, The Mandalorian and Grogu
+
+Sun, 14 Jun 2026 17:15:21 GMT
+
+https://screenrant.com/star-wars-mandalorian-grogu-directors-commentary-details/
+
+The Mandalorian and Grogu is in theaters, and fans can now listen to an insightful director commentary from Jon Favreau as well.
+---------
+
+# Netflix Officially Confirms KPop Demon Hunters' Next Major Release, And It's A Big Misstep
+
+Movies, KPop Demon Hunters
+
+Sun, 14 Jun 2026 17:00:20 GMT
+
+https://screenrant.com/kpop-demon-hunters-screen-comic-dissapointment/
+
+KPop Demon Hunters' new installment provides a new way to experience the movie, but its format misses the chance to add more to Netflix's success.
+---------
+
+# The Elder Scrolls: Heroes Of Tamriel Officially Arrives This Winter
+
+Gaming, The Elder Scrolls 6, The Elder Scrolls V: Skyrim, The Elder Scrolls, PC
+
+Sun, 14 Jun 2026 17:00:20 GMT
+
+https://screenrant.com/elder-scrolls-botse-heroes-of-tamriel-winter-2026/
+
+If you're over waiting for The Elder Scrolls 6, Heroes of Tamriel is a huge new adventure on the way in December 2026 that will fill the void.
+---------
+
+# Netflix's 10/10 Action Series Is One Of The Greatest Revenge Stories Ever Told
+
+Streaming TV, Masked Recs
+
+Sun, 14 Jun 2026 17:00:20 GMT
+
+https://screenrant.com/blue-eye-samurai-netflix-best-revenge-stories/
+
+Blue Eye Samurai doesn't do anything we haven't seen in dozens of other revenge stories, but it is one of the absolute best versions of that formula.
+---------
+
+# Jack O'Connell's 2-Part War Drama With 100% RT Is TV's Last Great WW2 Masterpiece
+
+TV, SAS: Rogue Heroes, Drama, War
+
+Sun, 14 Jun 2026 17:30:13 GMT
+
+https://www.cbr.com/sas-rogue-heroes-jack-oconell-greatest-ww2-drama-series/
+
+Based on a true story, SAS: Rogue Heroes is an entertaining and thought-provoking historical drama exploring the darker and more immoral side of war.
+---------
+
+# Steven Spielberg Officially Kicks Off 2026 Summer Blockbuster Season
+
+Movies, Disclosure Day, steven spielberg, box office
+
+Sun, 14 Jun 2026 17:29:28 GMT
+
+https://www.cbr.com/steven-spielberg-disclosure-day-box-office-opening/
+
+The sci-fi movie has already surpassed its projections.
+---------
+
+# Classic Zelda Is Back Thanks to Ocarina of Time
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Sun, 14 Jun 2026 17:15:14 GMT
+
+https://www.cbr.com/classic-zelda-comeback-ocarina-of-time-switch-2/
+
+While BOTW and TOTK moved Zelda into the open world domain, the new Ocarina of Time remake at least confirms that Nintendo hasn't forgotten its roots.
+---------
+
+# Taylor Sheridan's Hit Neo-Western Series Returns as a Paramount+ Hit as Fans Await More Episodes
+
+TV, Landman
+
+Sun, 14 Jun 2026 17:00:13 GMT
+
+https://www.cbr.com/taylor-sheridan-landman-neo-western-paramount-success-june-2026/
+
+One of the most divisive Taylor Sheridan Neo-Westerns is making a run for the top of the streaming charts ahead of its hotly-anticipated third season.
+---------
+
+# 10 Anime Transformations That Look Cool But Make No Narrative Sense
+
+Anime
+
+Sun, 14 Jun 2026 16:31:14 GMT
+
+https://www.cbr.com/cool-anime-transformations-make-no-narrative-sense-list/
+
+Some of the coolest anime transformations ever actually make zero sense.
+---------
+
+# Rob Liefeld Calls Out Marvel for Missing Creator Credits
+
+Comics, Deadpool, rob liefeld, comics, comic books, Marvel
+
+Sun, 14 Jun 2026 16:31:14 GMT
+
+https://www.cbr.com/ob-liefeld-slams-marvel-new-mutants-credits/
+
+Deadpool co-creator Rob Liefeld lashes out at Marvel over missing writing credits.
+---------
+
+# 7 Years Later, House of the Dragon Is Officially the Anti-Game of Thrones
+
+TV, Game Of Thrones, House of the Dragon, HBO Max
+
+Sun, 14 Jun 2026 16:31:14 GMT
+
+https://www.cbr.com/house-of-the-dragon-game-of-thrones-differences/
+
+House of the Dragon trades all of the political maneuvering of Game of Thrones for something far more personal.
+---------
+
+# Apple TV's New Stephen King-esque Horror Series Reveals Unexpected Parks & Recreation Inspiration
+
+TV, Widow's Bay, Parks and Recreation
+
+Sun, 14 Jun 2026 16:18:31 GMT
+
+https://www.cbr.com/apple-tv-widows-bay-parks-recreation-inspiration/
+
+The series turned into an instant hit on Apple TV, boasting near-perfect scores.
+---------
+
+# HBO Max’s 6-Part Absurdist Comedy Was Just Called the Year’s Funniest Show, but There’s One Problem
+
+TV Features, HBO Max, Comedy, Tim Robinson, The Chair Company
+
+Sun, 14 Jun 2026 17:32:13 GMT
+
+https://collider.com/hbo-max-series-make-that-movie-american-viewers-problem/
+
+HBO Max’s new comedy series Make That Movie is a comedy hit, but it’s sadly only available to stream in Australia.
+---------
+
+# Marvel Officially Sets New Rotten Tomatoes Record With 'X-Men '97' Season 2
+
+TV News, X-Men '97, Rotten Tomatoes, Marvel Animation, Disney Plus
+
+Sun, 14 Jun 2026 17:05:11 GMT
+
+https://collider.com/x-men-97-season-2-rotten-tomatoes-score-is-it-good-disney-plus/
+
+Marvel's highest-rated Disney+ series is officially back, somehow earning an even higher rating for Season 2 on Rotten Tomatoes.
+---------
+
+# 'Backrooms' Meets 'Dungeon Crawler Carl' In This 3-Part Sci-Fi Series Everyone Will Soon Be Talking About
+
+Movie Features, Backrooms, Dungeon Crawler Carl, Books, The Backrooms
+
+Sun, 14 Jun 2026 17:03:15 GMT
+
+https://collider.com/discount-dan-series-backrooms-dungeon-crawler-carl-litrpg/
+
+Discount Dan's Backroom Bargains could be the next big sci-fi book series, following in the footsteps of fellow LitRPG Dungeon Crawler Carl.
+---------
+
+# Brad Pitt's Oscar-Winning Action Film Is Quietly Stealing the Spotlight on Apple TV
+
+Movie News, F1, Brad Pitt, Apple TV, Damson Idris
+
+Sun, 14 Jun 2026 17:00:13 GMT
+
+https://collider.com/brad-pitt-f1-movie-streaming-success-apple-tv-june-2026/
+
+Brad Pitt's most recent Oscar-winning film, F1: The Movie, is a global streaming hit. Here's everything you should know.
+---------
+
+# This Netflix War Thriller Is One of the Greatest Sci-Fi Book Adaptations
+
+Movie Features, Starship Troopers, Sci-Fi, Movie, Paul Verhoeven
+
+Sun, 14 Jun 2026 16:41:15 GMT
+
+https://collider.com/netflix-war-thriller-starship-troopers-great-sci-fi-book-adaptation/
+
+Starship Troopers is a war movie, an action/thriller film, and a work of science fiction all at once, and is one of the best adaptations on Netflix.
+---------
+
+# Only 4 James Bond Video Games Can Be Called True Masterpieces
+
+Movie, 007 First Light, James Bond, Video Game, 007
+
+Sun, 14 Jun 2026 16:23:14 GMT
+
+https://collider.com/best-james-bond-video-games-masterpieces/
+
+007 First Light, GoldenEye 007, and James Bond 007: Nightfire are among the absolute elite James Bond video games that are considered masterpieces.
+---------
+
+# The Best Action Comedies Netflix Currently Has to Offer
+
+Movie Lists, Netflix, Action, Comedy
+
+Sun, 14 Jun 2026 17:00:19 GMT
+
+https://movieweb.com/netflix-best-action-comedy-movies/
+
+These are the best action comedy movies you will find streaming on Netflix.
+---------
+
+# Taylor Sheridan’s "American Frontier" Is the Best Movie Trilogy of the Past Decade
+
+Features, Taylor Sheridan
+
+Sun, 14 Jun 2026 16:30:19 GMT
+
+https://movieweb.com/taylor-sheridan-american-frontier-best-movie-trilogy-of-decade/
+
+Not only have these films been celebrated by audiences and critics alike, but they also make up the best trilogy of the past 15 years.
+---------
+
+# Seth Rogen Has "No Plans" to Reunite With Famous Creative Partner
+
+Movie News, Seth Rogen, James Franco, Pineapple Express
+
+Sun, 14 Jun 2026 16:23:31 GMT
+
+https://movieweb.com/seth-rogen-no-plans-james-franco/
+
+James Franco is rebuilding his Hollywood career, but it doesn't sound like he and Seth Rogen will ever work together again.
+---------
+
 # The Walking Dead Is Officially Changing Maggie After 10 Years
 
 TV, The Walking Dead: Dead City, The Walking Dead: Dead City - Season 3, The Walking Dead
