@@ -1,3 +1,344 @@
+# Cyberpunk 2077 Officially Returns For One Last Adventure This July
+
+Gaming, Cyberpunk 2077, PC
+
+Sun, 14 Jun 2026 20:31:21 GMT
+
+https://screenrant.com/cyberpunk-2077-chrome-4-july-2026/
+
+Cyberpunk 2077 is making an official return with a brand-new adventure in July 2026, and fans are marking their calendars now.
+---------
+
+# 10 New-Gen Mangaka Fit To Be The Next Akira Toriyama
+
+Anime
+
+Sun, 14 Jun 2026 20:31:21 GMT
+
+https://screenrant.com/new-gen-mangaka-next-akira-toriyama/
+
+While Toriyama’s colossal success may never be replicated, these modern mangaka boast elite talents that could see them reach similar heights.
+---------
+
+# It's Officially The End Of An Era For The MCU's Avengers
+
+Streaming TV, Marvel Cinematic Universe
+
+Sun, 14 Jun 2026 20:15:20 GMT
+
+https://screenrant.com/avengers-mcu-franchise-replaced-with-x-men-era/
+
+Avengers: Doomsday and Avengers: Secret Wars will usher in a new era, not just for the MCU's overall story but also for the franchise's leading team.
+---------
+
+# Vince Gilligan Praises 44-Year-Old Sci-Fi Horror Classic As “Rare Movie Where The Remake Is Better Than The Original”
+
+Movies, Masked Recs
+
+Sun, 14 Jun 2026 20:09:29 GMT
+
+https://screenrant.com/the-thing-movie-review-vince-gilligan/
+
+Breaking Bad and Pluribus creator Vince Gilligan hails the "rare" science-fiction horror movie that is "better than the original" film.
+---------
+
+# 10 Most Famous Movie Quotes Almost Nobody Gets Right
+
+Movies, Star Wars, Disney, Jaws, Forrest Gump, The Silence of the Lambs, Apollo 13
+
+Sun, 14 Jun 2026 20:04:20 GMT
+
+https://screenrant.com/famous-movie-quotes-misquoted-wrong/
+
+From Darth Vader to Hannibal Lecter, popular culture has rewritten cinema history. Discover the real lines behind 10 of the most famous misquoted movi
+---------
+
+# What Happened To William "Willie" Edwards After Swamp People Season 16
+
+Reality TV, Swamp People
+
+Sun, 14 Jun 2026 20:00:23 GMT
+
+https://screenrant.com/what-happened-william-willie-edwards-after-swamp-people-season-16-update/
+
+William "Willie" Edwards' passion for hunting big alligators still burns bright. Viewers might see him make a comeback to Swamp People once more.
+---------
+
+# Jujutsu Kaisen Season 4 Is Going To Introduce Sukuna's God-Tier Opposite
+
+Anime, Jujutsu Kaisen
+
+Sun, 14 Jun 2026 20:00:21 GMT
+
+https://screenrant.com/jujutsu-kaisen-season-4-sukuna-opposite-angel-hana/
+
+Sukuna's rival is almost here.
+---------
+
+# Baldur’s Gate 3 Fans, Mark Your Calendars For August 11
+
+Gaming, Baldur's Gate 3, PC, Dungeons & Dragons
+
+Sun, 14 Jun 2026 20:00:21 GMT
+
+https://screenrant.com/baldurs-gate-3-adult-book-august-2026/
+
+Baldur's Gate 3's most iconic characters officially return on August 11 in a brand-new release that hardcore fans won't want to skip.
+---------
+
+# Netflix’s 5-Part Murder Mystery Makes The White Lotus Look Tame
+
+TV, Masked Recs
+
+Sun, 14 Jun 2026 19:59:22 GMT
+
+https://screenrant.com/slasher-netflix-makes-the-white-lotus-look-tame/
+
+One Netflix series shares the premise of HBO's darkly funny murder mystery The White Lotus, but offers a far darker spin on the same basic setup.
+---------
+
+# 15 Years Ago, Adam Sandler’s Movie Career Hit Rock Bottom
+
+Movies, Adam Sandler
+
+Sun, 14 Jun 2026 19:56:19 GMT
+
+https://screenrant.com/adam-sandler-jack-and-jill-worst-movie/
+
+Adam Sandler might be one of the most beloved comic actors of all time, but this 15-year-old movie is the worst of his entire career.
+---------
+
+# Apple TV's Overlooked 8-Episode Thriller Is Still a Stealth Masterpiece 4 Years Later
+
+TV, Suspicion, Apple TV, Thriller
+
+Sun, 14 Jun 2026 20:30:15 GMT
+
+https://www.cbr.com/apple-tv-suspicion-overlooked-thriller-masterpiece/
+
+Four years after it originally aired on Apple TV, this crime thriller series is still one of the streaming platform's best and most underrated shows.
+---------
+
+# 5 Times Solo Leveling Was Better Than Dragon Ball
+
+Anime, Solo Leveling, Dragon Ball
+
+Sun, 14 Jun 2026 20:15:13 GMT
+
+https://www.cbr.com/solo-leveling-outshines-dragon-ball/
+
+Dragon Ball is an iconic anime, but Solo Leveling has its own superior moments that raise it higher than the original battle shonen.
+---------
+
+# PlayStation Officially Has 4 New Free Downloads Available Now
+
+Games, PlayStation 5
+
+Sun, 14 Jun 2026 20:09:16 GMT
+
+https://www.cbr.com/playstation-free-new-downloads-june-2026/
+
+Gamers don't even need a PS Plus subscription to check out four new games at no cost.
+---------
+
+# In Just 1 Day, Tom Felton's 'Kill Bill Meets the Occult' Horror Slashes Its Way to No. 1 on HBO Max
+
+Movies, They Will Kill You
+
+Sun, 14 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/tom-felton-they-will-kill-you-horror-hbo-max-success-june-2026/
+
+The movie didn't have a great theatrical run, but it's getting its revenge on streaming platforms.
+---------
+
+# One Piece Officially Gives Jewelry Bonney a New Gear 5 Transformation
+
+Anime, One Piece, Crunchyroll
+
+Sun, 14 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/one-piece-bonney-gear-5-banpresto-figure/
+
+A new One Piece release has accurately captured Bonney’s temporary Gear 5 form from the Egghead Island arc.
+---------
+
+# The 5 Strongest Female Disney Characters, Ranked By Power
+
+Movies, Disney, Disney+, Fantasy
+
+Sun, 14 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/strongest-female-disney-characters-list/
+
+These powerful women are some of the strongest characters in all of Disney's animated movies.
+---------
+
+# Seth MacFarlane Blasts Family Guy's Emmy Nomination Over The Simpsons
+
+TV, Family Guy, The Simpsons
+
+Sun, 14 Jun 2026 19:25:37 GMT
+
+https://www.cbr.com/seth-macfarlane-the-simpsons-family-guy-emmy-nomination/
+
+Seth MacFarlane opens up on what's wrong with the Emmys, despite Family Guy being nominated.
+---------
+
+# 10 Shonen Manga With the Most Loyal Fanbases
+
+Anime, Manga, One Piece, Hunter X Hunter
+
+Sun, 14 Jun 2026 19:16:14 GMT
+
+https://www.cbr.com/shonen-manga-most-loyal-fans/
+
+Popularity comes and goes, but the fanbases behind these shonen manga have remained remarkably steadfast.
+---------
+
+# This 6-Part ‘Succession’ Meets ‘Knives Out’ Crime Series Is a Stellar Murder Mystery
+
+TV Features, Britbox, Succession, Mystery, I, Jack Wright
+
+Sun, 14 Jun 2026 20:43:14 GMT
+
+https://collider.com/best-britbox-murder-mystery-series-i-jack-wright/
+
+I, Jack Wright is a 6-part British crime series that blends Succession-style family chaos with Knives Out mystery.
+---------
+
+# 3 Years Later, Pierce Brosnan’s Crime Thriller Is Finally Getting the Love It Deserves on Streaming
+
+Movie News, Fast Charlie, Pierce Brosnan, Morena Baccarin, Netflix
+
+Sun, 14 Jun 2026 20:30:15 GMT
+
+https://collider.com/pierce-brosnan-fast-charlie-streaming-success-netflix-june-2026/
+
+James Bond icon Pierce Brosnan's underrated crime thriller is a hit on Netflix. Here's everything you should know.
+---------
+
+# Guy Ritchie’s 2-Part Crime Thriller Is the Perfect One-Night Binge
+
+Movie Features, Sherlock Holmes: A Game of Shadows, Sherlock Holmes, Guy Ritchie, Robert Downey Jr
+
+Sun, 14 Jun 2026 20:27:14 GMT
+
+https://collider.com/guy-ritchie-sherlock-holmes-movies-perfect-crime-thriller/
+
+Guy Ritchie redefined Sherlock Holmes in the fast-paced crime thriller series full of action and humor that flies by.
+---------
+
+# Steven Spielberg Helped Rescue a Star Wars Prequel From Disaster
+
+Movie Features, Steven Spielberg, Star Wars: Episode III - Revenge of the Sith, Star Wars, George Lucas
+
+Sun, 14 Jun 2026 20:11:13 GMT
+
+https://collider.com/steven-spielberg-star-wars-revenge-of-the-sith-prequel-suggestions/
+
+Steven Spielberg's long been tied to the sci-fi genre, working with George Lucas many times, like making suggestions for the Star Wars prequels.
+---------
+
+# 25 Years Later, This Forgotten Time-Travel Cult Classic Changed the Sci-Fi Genre
+
+Movie Features, Donnie Darko, Jake Gyllenhaal, Sci-Fi, Drew Barrymore
+
+Sun, 14 Jun 2026 20:03:14 GMT
+
+https://collider.com/donnie-darko-jake-gyllenhaal-science-fiction-game-changer/
+
+Donnie Darko remains one of the most influential sci-fi films of its generation.
+---------
+
+# 49 Years Later, Steven Spielberg’s UFO Classic Is Losing Its Streaming Home
+
+Movie News, Close Encounters of The Third Kind, Steven Spielberg, Richard Dreyfuss, Peacock
+
+Sun, 14 Jun 2026 20:00:14 GMT
+
+https://collider.com/steven-spielberg-close-encounters-of-the-third-kind-leaving-peacock-july-2026/
+
+Steven Spielberg's iconic sci-fi film Close Encounters of the Third Kind is leaving Peacock shortly after the release of Disclosure Day.
+---------
+
+# Disney+'s 6-Part Sci-Fi Miniseries Is So Good, It Got 2 Extra Seasons
+
+TV Features, Star Wars: Tales of the Jedi, Star Wars: Tales of the Empire, Star Wars: Tales of the Underworld, Disney+
+
+Sun, 14 Jun 2026 19:42:14 GMT
+
+https://collider.com/star-wars-tales-disney-sci-fi-anthology-good/
+
+Star Wars Tales' anthology format allows for diverse storytelling, delving into different characters and time periods across its three installments.
+---------
+
+# 10 Perfect Sci-Fi Movies That Are Pure Cinema
+
+Movie, Sci-Fi, Solaris, 2001: A Space Odyssey, Metropolis
+
+Sun, 14 Jun 2026 19:38:14 GMT
+
+https://collider.com/perfect-sci-fi-movies-pure-cinema/
+
+Sci-fi masterpieces like The Matrix, Alien, and Blade Runner 2049 still mesmerize and prove genre cinema can dream bigger.
+---------
+
+# 'Every Year After' Creatives Reveal the Direction of the Show for Season 2 and Beyond
+
+Exclusives, Every Year After, Prime Video, Romance, Drama
+
+Sun, 14 Jun 2026 19:14:14 GMT
+
+https://collider.com/every-year-after-carley-fortune-showrunner-amy-b-harris-interview/
+
+Amy B. Harris and Carley Fortune discuss the direction of the Every Year After adaptation, ensemble, and Charlie's cliffhanger.
+---------
+
+# 'Black Sails' Is the Perfect 'Game of Thrones' Replacement Series No One Remembers
+
+Features, Game of Thrones
+
+Sun, 14 Jun 2026 20:30:20 GMT
+
+https://movieweb.com/game-of-thrones-underrated-replacement-black-sails/
+
+Starz series, Black Sails, remains underrated, yet its arguably as good as Game of Thrones
+---------
+
+# 18 Years Later, Christopher Nolan's Secret Fourth Batman Movie Is Still Criminally Underrated
+
+Features, Batman: Gotham Knight, The Dark Knight, Christopher Nolan, Batman
+
+Sun, 14 Jun 2026 20:00:20 GMT
+
+https://movieweb.com/christopher-nolan-batman-movie-underrated/
+
+Batman: Gotham Knight remains an underrated entry to the Nolanverse, and its ambitious premise puts it on the same level as The Dark Knight.
+---------
+
+# New Sci-Fi Blockbuster Beats Expectations, Audiences Still Obsessed With 'Obsession'
+
+Movie News, Disclosure Day, Obsession, Scary Movie, box office
+
+Sun, 14 Jun 2026 19:47:48 GMT
+
+https://movieweb.com/disclosure-day-obsession-box-office/
+
+Meanwhile, 'Masters of the Universe' secures its place as one of the biggest bombs of 2026.
+---------
+
+# Steven Spielberg's 10 Most Exciting Action Thriller Set Pieces, Ranked
+
+Movie Lists, Steven Spielberg, Action, Thriller, Indiana Jones, Jurassic Park
+
+Sun, 14 Jun 2026 19:30:21 GMT
+
+https://movieweb.com/steven-spielbergs-most-exciting-action-set-pieces-ranked/
+
+From 'Jaws' to 'Jurassic Park', what are Steven Spielberg's top action set pieces? Did your favorite scene make the list?
+---------
+
 # Marvel Unveils Manga-Inspired Redesign For Moon Knight's New Appearance
 
 Marvel Comics, Moon Knight
