@@ -1,3 +1,322 @@
+# Netflix's Upcoming Sci-Fi Reboot Is Almost The Perfect Stranger Things Replacement
+
+TV, Masked Recs
+
+Sun, 14 Jun 2026 22:02:20 GMT
+
+https://screenrant.com/ghostbusters-night-watch-almost-netflix-stranger-things-replacement/
+
+Netflix seemed to have perfect Stranger Things replacement lined up with one '80s franchise reboot, but the show's format shift changes things.
+---------
+
+# 10 Greatest Spider-Man Movie Fights Of All Time
+
+Movies, Spider-Man, Marvel Cinematic Universe
+
+Sun, 14 Jun 2026 21:55:20 GMT
+
+https://screenrant.com/best-spider-man-movie-fights-all-time/
+
+From subway brawls to multiverse chaos, these Spider-Man fights deliver web-slinging action, emotion, and some of the best superhero showdowns ever.
+---------
+
+# HBO's 6-Season Masterpiece Rewrote The Rules Of Crime Dramas
+
+Streaming TV, Masked Recs
+
+Sun, 14 Jun 2026 21:30:21 GMT
+
+https://screenrant.com/the-sopranos-hbo-crime-drama-rewrite-rules-genre/
+
+HBO's flagship mafia crime drama is one of the best of its kind, and will likely influence other prestige crime drama TV series for years to come.
+---------
+
+# The DCU's New R-Rated Movie Setup Proves Just How Far DC Has Come
+
+Movies, DC Universe
+
+Sun, 14 Jun 2026 21:30:21 GMT
+
+https://screenrant.com/dc-universe-r-rated-lobo-movie-setup/
+
+The latest comments about another potential R-rated DC Universe movie following on from the likes of Clayface show DC's recent movie progression.
+---------
+
+# 7 Pokémon Winds & Waves 10 Leaks We Hope Are True
+
+Gaming, Pokemon Winds and Waves, Triple-A Games
+
+Sun, 14 Jun 2026 21:30:21 GMT
+
+https://screenrant.com/pokemon-winds-waves-leaks-most-accurate-real/
+
+Pokémon Winds & Waves has been officially revealed, but there's still a lot we don't know, and we're hoping that these rumors and leaks are true.
+---------
+
+# Tommy Shelby's 8 Love Interests In Peaky Blinders Explained
+
+Streaming TV, Peaky Blinders
+
+Sun, 14 Jun 2026 21:16:04 GMT
+
+https://screenrant.com/peaky-blinders-tommy-shelby-love-interests-romance-explained/
+
+Tommy Shelby romanced eight different women over the course of Peaky Blinders, and all eight of them highlighted key parts of his character.
+---------
+
+# Everything We Know About Christopher Nolan's The Odyssey
+
+Movies, The Odyssey, Christopher Nolan
+
+Sun, 14 Jun 2026 21:16:02 GMT
+
+https://screenrant.com/the-odyssey-movie-cast-release-date-tickets-details/
+
+Christopher Nolan's The Odyssey is set to be released in theaters imminently, so here's everything we know about the upcoming cinematic epic.
+---------
+
+# It's Official, Mike Flanagan’s Upcoming Stephen King Series Brings Back His Best Netflix Trend
+
+TV, Masked Recs
+
+Sun, 14 Jun 2026 21:16:02 GMT
+
+https://screenrant.com/mike-flanagan-carrie-show-halloween-release-trend/
+
+Mike Flanagan's first Prime Video show, a Stephen King adaptation, brings back the writer-director's best recurring horror tradition after years.
+---------
+
+# Michael C. Hall Seemingly Confirms The Return Of OG Character In Dexter: Resurrection Season 2 (With A Twist)
+
+TV, Dexter: Resurrection
+
+Sun, 14 Jun 2026 21:01:59 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-michael-c-hall-david-zayas-return/
+
+Dexter: Resurrection could be resurrecting more OG characters as Michael C. Hall addresses a potential return in season 2, but with a twist.
+---------
+
+# Scrubs' Zach Braff Teases Even More Fan Favorites in Season 2
+
+TV, Scrubs
+
+Sun, 14 Jun 2026 22:02:14 GMT
+
+https://www.cbr.com/scrubs-zach-braff-season-2-fan-favorites-guest-stars/
+
+Almost two decades later, the Scrubs revival felt like it never left.
+---------
+
+# Jupiter Ascending Returns to the Streaming Charts 11 Years Later
+
+Movies, Jupiter Ascending, Matrix, HBO Max
+
+Sun, 14 Jun 2026 22:01:17 GMT
+
+https://www.cbr.com/jupiter-ascending-matrix-replacement-streaming-success-hbo-max-june-2026/
+
+One of the worst Matrix clones to come out of the 2010s is inexplicably rising on the streaming charts.
+---------
+
+# Dragon Ball Finally Gives Goku the Upgrade Fans Waited 37 Years For
+
+Anime, Dragon Ball Z, Dragon Ball
+
+Sun, 14 Jun 2026 22:01:17 GMT
+
+https://www.cbr.com/dragon-ball-goku-acrylic-logo-display-ex/
+
+Dragon Ball Z fans and collectors finally have the much-needed upgrade they have been asking to see for years, and it is perfect.
+---------
+
+# The Death of Robin Hood Review: Hugh Jackman's Darkest Hero Since Logan
+
+Movies, hugh jackman, A24, The Death of Robin Hood
+
+Sun, 14 Jun 2026 21:29:57 GMT
+
+https://www.cbr.com/the-death-of-robin-hood-review/
+
+The Death of Robin Hood stars Hugh Jackman in a grim, emotional take on the legendary outlaw’s final fight for redemption.
+---------
+
+# 10 Intense Thriller Movies That Are Perfect From Start To Finish
+
+Movies, Thriller, Frantic, Prisoners
+
+Sun, 14 Jun 2026 21:15:42 GMT
+
+https://www.cbr.com/intense-thriller-movies-perfect-from-start-to-finish-list/
+
+Thrillers rarely leave viewers disappointed, and some are masterclasses in tense and suspenseful storytelling that viewers never forget.
+---------
+
+# 5 Anime Villains Stronger Than Gojo
+
+Anime, Jujutsu Kaisen, Bleach, Fairy Tail, Hunter x Hunter
+
+Sun, 14 Jun 2026 21:15:42 GMT
+
+https://www.cbr.com/anime-villains-stronger-than-gojo/
+
+Satoru Gojo is an unstoppable force in Jujutsu Kaisen, but these anime villains can defeat the Strongest Sorcerer in the World.
+---------
+
+# Saving Private Ryan is the Greatest WWII Movie Ever & It's Free To Watch
+
+Movies, Saving Private Ryan, War, steven spielberg
+
+Sun, 14 Jun 2026 21:00:14 GMT
+
+https://www.cbr.com/best-wwii-movie-saving-private-ryan-pluto-tv-june-2026/
+
+The Second World War has inspired some of the most ambitious films in Hollywood history, but Steven Spielberg’s 1998 epic is second to none.
+---------
+
+# 10 Shows From the 2020s That Have Already Changed TV Forever
+
+TV, TV Series, The White Lotus, Severance, The Bear
+
+Sun, 14 Jun 2026 22:03:14 GMT
+
+https://collider.com/2020s-tv-shows-changed-television-forever/
+
+Severance, The Bear, The White Lotus, Euphoria, and more make our list of shows from the 2020s that have already changed television forever.
+---------
+
+# Netflix's Most Successful Movie of All Time Celebrates a Year on Top 10 Charts
+
+Movie News, KPop Demon Hunters, Netflix, Sony Pictures Animation, Fantasy
+
+Sun, 14 Jun 2026 22:01:17 GMT
+
+https://collider.com/netflix-kpop-demon-hunters-year-long-streaming-success-milestone/
+
+KPop Demon Hunters, Netflix's most-streamed movie with over 541 million viewing hours, is at risk of missing a historic milestone. Read on for more.
+---------
+
+# 8 Worst Superhero Movies That Are Truly 0/10
+
+Movie, Superhero, Batman & Robin, Elektra, Madame Web
+
+Sun, 14 Jun 2026 21:56:13 GMT
+
+https://collider.com/worst-superhero-movies-ever/
+
+From Madame Web to Steel, these superhero movies are so bad...that's it. They're terrible.
+---------
+
+# 10 Greatest Neo-Noirs of the 1980s
+
+Movie, Blade Runner, Thief, Blue Velvet, Body Heat
+
+Sun, 14 Jun 2026 21:42:14 GMT
+
+https://collider.com/best-neo-noir-movies-1980s-ranked/
+
+Iconic crime thrillers like Body Heat, Blood Simple, and Manhunter are all among the very best neo-noir movies of the 1980s decade.
+---------
+
+# 7 Greatest American Crime Shows of All Time
+
+TV, Crime, The Sopranos, Breaking Bad, The Wire
+
+Sun, 14 Jun 2026 21:33:14 GMT
+
+https://collider.com/best-american-crime-shows-all-time-ranked/
+
+From the HBO masterpiece The Sopranos to the neo-noir hit Better Call Saul, these American crime TV series are among the greatest ever made.
+---------
+
+# 2 Years Later, Anya Taylor-Joy’s Sci-Fi Hit Is Still Dominating Apple TV Charts
+
+Movie News, The Gorge, Anya Taylor-Joy, Apple TV, Propeller One-Way Night Coach
+
+Sun, 14 Jun 2026 21:30:13 GMT
+
+https://collider.com/apple-tv-anya-taylor-joy-the-gorge-overtakes-propeller-one-way-night-coach-june-2026/
+
+Anya Taylor Joy's The Gorge has overtaken John Travolta's Propeller One-Way Night Coach on the Apple TV viewership charts. Find out more.
+---------
+
+# 10 Forgotten 2010s Thrillers That Have Aged Like Fine Wine
+
+Movie, Thriller, Searching, The Invitation, Killer Joe
+
+Sun, 14 Jun 2026 21:23:13 GMT
+
+https://collider.com/forgotten-thriller-movies-2010s-aged-like-fine-wine/
+
+From psychological horror film The Invitation to the mystery Searching, these thrillers from the 2010s are largely forgotten but have aged well.
+---------
+
+# Apple TV’s 8-Part Answer to ‘Adolescence’ Is Quietly Becoming a Streaming Obsession
+
+TV News, Defending Jacob, Chris Evans, Apple TV, Michelle Dockery
+
+Sun, 14 Jun 2026 21:15:43 GMT
+
+https://collider.com/apple-tv-defending-jacob-streaming-success-june-2026/
+
+Defending Jacob, starring Chris Evans and Michelle Dockery, is Apple TV’s second fastest-growing series and perfect for Adolescence fans.
+---------
+
+# 51 Years Later, Steven Spielberg’s Summer Masterpiece Is Still a Streaming Favorite
+
+Movie News, Jaws, Steven Spielberg, Richard Dreyfuss, STARZ
+
+Sun, 14 Jun 2026 21:00:15 GMT
+
+https://collider.com/jaws-streaming-success-starz-june-2026/
+
+Steven Spielberg's best summer blockbuster is taking a bite out of the streaming charts before Disclosure Day lands in theaters. Read on for details.
+---------
+
+# This Near-Perfect Sci-Fi Fantasy Movie Is the Perfect Weekend Watch Before It Leaves Netflix
+
+Movie Features, Hellboy, Netflix, Guillermo del Toro, Ron Perlman
+
+Sun, 14 Jun 2026 20:56:13 GMT
+
+https://collider.com/netflix-hellboy-sci-fi-fantasy-weekend-watch-leaving-june-30/
+
+Comic book fans have until the end of the month to check out Hellboy, which remains a near-perfect adaptation of Mike Mignola's demonic hero.
+---------
+
+# HBO's Binge-Worthy 6-Part Thriller Is Officially 2026's Most Mind-Bending Thriller Series
+
+Features, Half Man, Jamie Bell, Richard Gadd, HBO Max
+
+Sun, 14 Jun 2026 22:01:11 GMT
+
+https://movieweb.com/half-man-hbo-series-mind-bending/
+
+A show that asks where identity ends and psychopathy begins.
+---------
+
+# John Wayne Couldn't Bear to Work with Western Star Clint Eastwood Due to One Major Issue
+
+Features, John Wayne, Clint Eastwood
+
+Sun, 14 Jun 2026 21:30:19 GMT
+
+https://movieweb.com/john-wayne-refused-to-work-with-clint-eastwood-over-a-creative-dispute/
+
+Set to co-star together in the 1970s, John Wayne refused to work with Clint Eastwood due to one major problem.
+---------
+
+# Harry Potter Movie Theory Reveals Who's Playing Voldemort in the HBO Series
+
+Features, Harry Potter
+
+Sun, 14 Jun 2026 21:01:19 GMT
+
+https://movieweb.com/harry-potter-hbo-voldemort-casting-theory/
+
+It hasn't been confirmed yet who'll be replacing Ralph Fiennes as Voldemort, but the movies might hold the answer. Read on for more.
+---------
+
 # Cyberpunk 2077 Officially Returns For One Last Adventure This July
 
 Gaming, Cyberpunk 2077, PC
