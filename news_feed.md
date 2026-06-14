@@ -1,3 +1,300 @@
+# The Walking Dead Is Officially Changing Maggie After 10 Years
+
+TV, The Walking Dead: Dead City, The Walking Dead: Dead City - Season 3, The Walking Dead
+
+Sun, 14 Jun 2026 16:14:20 GMT
+
+https://screenrant.com/the-walking-dead-dead-city-lauren-cohan-maggie-changes/
+
+10 years after one of The Walking Dead's most game-changing episodes, AMC's post-apocalyptic franchise is changing Maggie in a significant way.
+---------
+
+# House Of The Dragon Season 3’s Red Wedding Moment Is Coming
+
+TV, Originals
+
+Sun, 14 Jun 2026 16:00:23 GMT
+
+https://screenrant.com/video/house-of-the-dragon-season-3-s-red-wedding-moment-is-coming/
+
+House of the Dragon Season 3 is set to deliver its own Red Wedding-level tragedy as the brutal Dance of the Dragons escalates, bringing shocking deaths, betrayals, and one of George R.R. Martin’s most devastating events to HBO’s Game of Thrones prequel.
+---------
+
+# Helaena's "Wooden Throne" Prophecy & Meaning For Aegon In House Of The Dragon Addressed By Tom Glynn-Carney
+
+TV, House of the Dragon, Game of Thrones
+
+Sun, 14 Jun 2026 16:00:23 GMT
+
+https://screenrant.com/house-of-the-dragon-helaena-aegon-wooden-throne-prophecy-tom-glynn-carney/
+
+EXCLUSIVE: King Aegon II Targaryen actor Tom Glynn-Carney addresses Helaena's "wooden throne" prophecy for his character as season 3 finally arrives.
+---------
+
+# Zelda Meets Stardew Valley In New Farming Sim You Can Play Free Now
+
+Gaming, Steam, PC, The Legend of Zelda, Stardew Valley
+
+Sun, 14 Jun 2026 16:00:23 GMT
+
+https://screenrant.com/steam-free-demo-zelda-meets-stardew-valley/
+
+An upcoming cozy game on Steam looks like a delightful cross between Stardew Valley and Zelda, but with the addition of mischievous dragons.
+---------
+
+# 10 Mutants That Need To Be In The MCU's Initial X-Men Lineup
+
+Movies, X-Men
+
+Sun, 14 Jun 2026 16:00:23 GMT
+
+https://screenrant.com/x-men-mcu-mutants-need-to-be-initial-lineup/
+
+The MCU will be debuting their X-Men team before we know it, and there are certain iconic mutants that need to be in the initial lineup.
+---------
+
+# 10 Great Underrated Sci-Fi Movies On Netflix
+
+Movies, Netflix, Sci-Fi, Recommendation
+
+Sun, 14 Jun 2026 15:55:21 GMT
+
+https://screenrant.com/netflix-most-underrated-sci-fi-movies/
+
+Netflix is a great place to find fantastic sci-fi films and while the iconic ones are there, these hidden gems are also worth checking out.
+---------
+
+# 10 Pixar Movie Moments That Made Audiences Cry
+
+Classic Movies, Pixar, Ranking
+
+Sun, 14 Jun 2026 15:55:21 GMT
+
+https://screenrant.com/pixar-movies-made-audiences-cry/
+
+Pixar has become a master at pulling the heart strings of viewers, and here are 10 Pixar movie moments that made the audience cry during the movies.
+---------
+
+# One Of The Architects Of Star Wars Galaxies And UO Is Creating Something Even More Ambitious Than No Man's Sky
+
+Gaming, Summer Game Fest, Indie Games
+
+Sun, 14 Jun 2026 15:45:21 GMT
+
+https://screenrant.com/raph-koster-sgf-stars-reach-sw-galaxies-uo-interview/
+
+We interviewed Raph Koster, the legendary developer who worked on Ultima Online and Star Wars Galaxies, about their new ambitious RPG.
+---------
+
+# James Gunn Hails New R-Rated Action Movie As “One Of The Best”
+
+Movies, Masked Recs
+
+Sun, 14 Jun 2026 15:42:16 GMT
+
+https://screenrant.com/the-furious-movie-james-gunn-review/
+
+A new R-rated action movie has just landed in theaters, and DC Studios boss James Gunn has taken to social media to share some high praise.
+---------
+
+# Steven Spielberg Was Totally Against Indiana Jones 4's Controversial Sci-Fi Plot
+
+Movies, Indiana Jones and the Kingdom of the Crystal Skull
+
+Sun, 14 Jun 2026 15:41:11 GMT
+
+https://screenrant.com/indiana-jones-kingdom-of-the-crystal-skull-alien-plot-steven-spielberg-disapproval-george-lucas/
+
+Despite directing Indiana Jones and the Kingdom of the Crystal Skull, Steven Spielberg was not on board with its big science fiction twist.
+---------
+
+# 5 Masterpiece Fantasy Anime Better Than Witch Hat Atelier
+
+Anime, Witch Hat Atelier, Frieren: Beyond Journey's End
+
+Sun, 14 Jun 2026 16:15:14 GMT
+
+https://www.cbr.com/masterpiece-fantasy-anime-better-witch-hat-atelier/
+
+Fans enchanted by Witch Hat Atelier are likely to discover an even richer fantasy experience in these acclaimed anime series.
+---------
+
+# Sylvester Stallone's Action Movie That Kicked Off an $819M Franchise Returns as a PVOD Hit Ahead of Prequel
+
+Movies, Rambo: First Blood, Rambo
+
+Sun, 14 Jun 2026 16:01:14 GMT
+
+https://www.cbr.com/sylvester-stallone-first-blood-action-pvod-success-june-2026/
+
+One of the most iconic action films of an entire generation is taking over the PVOD charts while fans eagerly await the upcoming prequel.
+---------
+
+# My Neighbor Totoro Officially Returns With 6 New Exclusive Designs
+
+Anime, My Neighbor Totoro, Studio Ghibli, GKIDS
+
+Sun, 14 Jun 2026 16:01:14 GMT
+
+https://www.cbr.com/my-neighbor-totoro-pose-collection-totoro-set/
+
+Studio Ghibli revives an iconic figure collection which showcases the many delightful faces of its one-of-a-kind mascot.
+---------
+
+# The 10 Greatest Cult Classic Movies of the Last 25 Years, Ranked
+
+Movies, Bone Tomahawk, Western, Nicolas Cage
+
+Sun, 14 Jun 2026 16:01:14 GMT
+
+https://www.cbr.com/best-cult-classic-movies-last-25-years-ranked-list/
+
+The 21st century has no shortage of cult classics that deserved better from audiences, from gritty Westerns to underrated comedy gems.
+---------
+
+# 34 Years Later, Star Trek's Best Guinan Episode Hits Harder Than Any Trek Time Travel Story Since
+
+TV, Star Trek, Star Trek: The Next Generation, Sci-Fi
+
+Sun, 14 Jun 2026 15:30:12 GMT
+
+https://www.cbr.com/star-trek-tng-times-arrow-best-guinan-episode/
+
+Guinan was a mysterious character in Star Trek: The Next Generation, but one time travel episode revealed a new side to the character.
+---------
+
+# 10 Smartest Shonen Anime Villains, Ranked by Intelligence
+
+Anime, shonen anime, My Hero Academia, Death Note
+
+Sun, 14 Jun 2026 15:16:14 GMT
+
+https://www.cbr.com/smartest-shonen-anime-villains-ranked-by-intelligence/
+
+Masterminds within shonen anime weaponize strategic foresight and psychological manipulation rather than relying solely on destructive physical power.
+---------
+
+# Brook Proves Backstories Are the Heart of One Piece in Chapter 1185
+
+Anime, One Piece, Shonen
+
+Sun, 14 Jun 2026 15:10:14 GMT
+
+https://www.cbr.com/one-piece-chapter-1185-review-brook-backstory/
+
+One Piece Chapter 1185 showcases yet another tragic Straw hat backstory, but this one has more feels than ever.
+---------
+
+# After 1 Month, Prime Video's Third-Best Release Loses No. 1 to Another Bestseller Adaptation
+
+TV, Off Campus, Every Year After
+
+Sun, 14 Jun 2026 15:01:15 GMT
+
+https://www.cbr.com/off-campus-sports-drama-prime-video-drop-every-year-after-june-2026/
+
+After scoring Prime Video's third-best release of all time, the show dominated the charts for almost a month.
+---------
+
+# 10 Best Demon Slayer Fights, Officially Ranked
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Demon Slayer: Mugen Train, Demon Slayer: Kimetsu no Yaiba Infinity Castle, shonen anime
+
+Sun, 14 Jun 2026 15:01:15 GMT
+
+https://www.cbr.com/best-demon-slayer-battles-ranked/
+
+Demon Slayer is known for its intense drama and action sequences, but the beautifully choreographed fight scenes keep fans coming back for more.
+---------
+
+# 10 Greatest Climaxes in Family Movies
+
+Movie, Family, Puss in Boots: The Last Wish, Harry Potter and the Prisoner of Azkaban, Ratatouille
+
+Sun, 14 Jun 2026 16:06:14 GMT
+
+https://collider.com/best-family-movie-climaxes-ranked/
+
+From Toy Story 3 to Ratatouille, these family movie finales hit harder than expected, redefining emotional blockbuster climaxes beautifully.
+---------
+
+# 13 Years Later, Michael Bay's Divisive Crime Movie Is Officially Leaving Streaming
+
+Movie News, Michael Bay, Pain & Gain, Mark Wahlberg, Dwayne Johnson
+
+Sun, 14 Jun 2026 16:00:14 GMT
+
+https://collider.com/michael-bay-pain-and-gain-leaving-peacock-july-2026/
+
+Michael Bay's underperforming true crime detour during his Transformers streak, Pain & Gain, is leaving Peacock soon. Find out when.
+---------
+
+# 'Every Year After' Stars Break Down That Cliffhanger Ending in Prime Video's Newest Series
+
+Interviews, Every Year After, Prime Video, Romance, Drama
+
+Sun, 14 Jun 2026 15:54:14 GMT
+
+https://collider.com/every-year-after-sadie-soverall-matt-cornett-percy-sam-interview/
+
+Every Year After stars Matt Cornett and Sadie Soverall on that finale cliffhanger and their future hopes for Sam and Percy.
+---------
+
+# Brendan Fraser's Underdog Hit Climbs Past Clint Eastwood's WWII Classic at the Box Office
+
+Movie News, Letters from Iwo Jima, Clint Eastwood, Pressure, Brendan Fraser
+
+Sun, 14 Jun 2026 15:30:13 GMT
+
+https://collider.com/ww2-box-office-pressure-overtakes-letters-from-iwo-jima/
+
+Brendan Fraser’s Pressure has overtaken Clint Eastwood’s Letters From Iwo Jima at the box office, giving the WWII sleeper hit a new milestone.
+---------
+
+# ‘Disclosure Day’ Sends Netflix's Beloved Sci-Fi Series Soaring Up Streaming Charts
+
+TV News, Disclosure Day, The Boroughs, Netflix, Steven Spielberg
+
+Sun, 14 Jun 2026 14:45:13 GMT
+
+https://collider.com/the-boroughs-netflix-disclosure-day-streaming-bump/
+
+Netflix’s The Boroughs is rising on streaming as Steven Spielberg’s ‘Disclosure Day’ renews interest in sci-fi stories.
+---------
+
+# 'The Mandalorian' Season 4 Original Plans Revealed By Stars [Exclusive]
+
+TV News, The Mandalorian, The Mandalorian and Grogu, Star Wars
+
+Sun, 14 Jun 2026 16:00:26 GMT
+
+https://movieweb.com/the-mandalorian-season-4-original-plans/
+
+Was 'The Mandalorian and Grogu' a repurposed version of 'The Mandalorian' Season 4, or is that something the cast and crew could still go back to?
+---------
+
+# James Gunn’s DCU Plan Was Proven by a Superhero Series No One Remembers
+
+Features, Swamp Thing
+
+Sun, 14 Jun 2026 16:00:20 GMT
+
+https://movieweb.com/swamp-thing-dc-universe-series/
+
+James Gunn fans will want to watch this 10-part superhero TV series that premiered in 2019.
+---------
+
+# 6 Great John Wayne Westerns No One Ever Talks About
+
+Movie Lists, John Wayne, Western
+
+Sun, 14 Jun 2026 15:00:22 GMT
+
+https://movieweb.com/john-wayne-westerns-no-one-talks-about/
+
+John Wayne's filmography are full of classic movies. These are some of his best, long-forgotten movies.
+---------
+
 # The Boys Official Return Leaves Fans All Saying The Same Thing
 
 Gaming, The Boys, Triple-A Games
