@@ -1,3 +1,322 @@
+# Suicide Squad Actor Reveals "Rough Improv" With Jared Leto's Joker
+
+Movies, Suicide Squad, Ike Barinholtz, Jared Leto
+
+Mon, 15 Jun 2026 23:36:23 GMT
+
+https://screenrant.com/suicide-squad-jared-leto-joker-improv-ike-barinholtz-explained/
+
+Suicide Squad actor Ike Barinholtz recalled how Jared Leto improvised an awkward moment while he was filming a scene as The Joker for the DC movie.
+---------
+
+# 20 Years Later, Marvel Just Made Spider-Man’s Most Infamous Story Even Worse
+
+Comics, Spider-Man
+
+Mon, 15 Jun 2026 23:30:21 GMT
+
+https://screenrant.com/marvel-makes-spiderman-one-more-day-even-worse-civil-war-unmasked/
+
+Thanks to a brand-new series, Marvel has found a way to make one of Spider-Man's most controversial storylines even more heartbreaking.
+---------
+
+# Netflix's Controversial 5-Part Thriller Is So Good, It Demands A Second Watch
+
+Classic TV, Masked Recs
+
+Mon, 15 Jun 2026 23:30:21 GMT
+
+https://screenrant.com/you-netflix-thriller-needs-second-watch/
+
+Netflix's hit five-season thriller may have its share of detractors, but with its twist, turns, and spectacular ending, the show rewards rewatching.
+---------
+
+# James Gunn's Superman Is So Good, It Already Has 3 Confirmed Sequels
+
+Movies, Superman, Supergirl
+
+Mon, 15 Jun 2026 23:15:21 GMT
+
+https://screenrant.com/james-gunn-superman-so-good-3-sequels-confirmed/
+
+James Gunn's DC Universe had a successful beginning on the big screen with Superman, and it was so good that it now has three confirmed sequels.
+---------
+
+# Mark Hamill Officially Joins Peacock's 3-Part Post-Apocalyptic Series
+
+TV, Twisted Metal, Mark Hamill
+
+Mon, 15 Jun 2026 23:11:30 GMT
+
+https://screenrant.com/twisted-metal-season-3-mark-hamill-cast/
+
+After playing Luke Skywalker and the Joker, Mark Hamill is now taking on another major role as the father of a key character in Twisted Metal.
+---------
+
+# Netflix's Global Smash Hit High School Show Makes Euphoria Look Small
+
+TV, Masked Recs
+
+Mon, 15 Jun 2026 23:03:20 GMT
+
+https://screenrant.com/teach-you-a-lesson-netflix-high-school-show-makes-euphoria-small/
+
+One unexpected choice in Netflix's new global smash hit teen drama show makes Euphoria's depiction of high school life seem tame in comparison.
+---------
+
+# Pokémon Recharged Emerald Is A Fitting Return To Hoenn
+
+Gaming, Pokemon
+
+Mon, 15 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/pokemon-recharged-emerald-update-june-2026/
+
+Pokémon Recharged Emerald is a spectacular ROM hack that is continuing to receive support from a very dedicated developer.
+---------
+
+# Near-Perfect 5-Part Horror Movie Series Is Finally Streaming All In One Place
+
+Movies, Masked Recs
+
+Mon, 15 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/in-search-of-darkness-movie-series-shudder-streaming/
+
+Fans of 80s and 90s horror can now stream one of the greatest horror movie series ever with this five-part franchise now available in one place.
+---------
+
+# Superman & Supergirl Unite In DC's New Release Before The DCU's Supergirl Movie
+
+Streaming TV, Masked Recs
+
+Mon, 15 Jun 2026 22:48:56 GMT
+
+https://screenrant.com/my-adventures-with-superman-season-3-supergirl-dc-universe/
+
+Milly Alcock's Supergirl flies into theaters soon, but those who want to see Supergirl and Superman reunite can do so now in DC's new release.
+---------
+
+# Prime Video's Upcoming Action Series Must Overcome Netflix's Hit Adaptation Of The Same Video Game
+
+Streaming TV, Masked Recs
+
+Mon, 15 Jun 2026 22:30:22 GMT
+
+https://screenrant.com/tomb-raider-prime-video-overcome-netflix/
+
+Prime Video is set to adapt one of the biggest video game franchises around, but it must compete with a recent Netflix project based on the same IP.
+---------
+
+# No Time to Die Broke the Franchise with James Bond's Death
+
+Movies, No Time to Die
+
+Mon, 15 Jun 2026 23:30:13 GMT
+
+https://www.cbr.com/no-time-to-die-james-bond-death-ruined-franchise/
+
+Daniel Craig's final outing as James Bond diverted from series tradition in a major way, and it spells trouble for the development of the next film.
+---------
+
+# 26 Anime With Great Trans Representation
+
+Anime, lgbt, LGBTQ, Black Butler, Zombie Land Saga, Komi Can't Communicate, My Hero Academia, Satoshi Kon, One Piece, Kohei Horikoshi, Hunter X Hunter
+
+Mon, 15 Jun 2026 23:30:13 GMT
+
+https://www.cbr.com/best-anime-with-accurate-trans-representation/
+
+Trans representation is important in all media, and anime like Hunter x Hunter and Marriagetoxin get it right.
+---------
+
+# The Batman: Part II Unveils New Logo As Filming Continues
+
+Movies, The Batman Part II
+
+Mon, 15 Jun 2026 23:18:57 GMT
+
+https://www.cbr.com/the-batman-part-2-official-logo/
+
+The official logo for The Batman: Part II has been unveiled with production finally underway.
+---------
+
+# Paramount+'s 2-Season Action Sleeper Is Still the Best Military Sci-Fi Show on Streaming
+
+TV, Halo, Paramount Plus, Sci-Fi
+
+Mon, 15 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/paramount-halo-best-military-sci-fi-streaming-show/
+
+This controversial sci-fi adaptation is quietly becoming a hit on Paramount+, defying low audience scores and proving its worth in the streaming wars.
+---------
+
+# 5 Best Directors Top Gun 3 Could Replace Maverick's Joseph Kosinski With
+
+Movies, Top Gun: Maverick
+
+Mon, 15 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/best-directors-replace-joseph-kosinski-top-gun-3/
+
+With Top Gun 3 in the works, Joseph Kosinski will not be returning, but there are some other great directors who could be perfect.
+---------
+
+# Dragon Ball Super Officially Confirms Major Manga Reveal Coming June 19
+
+Anime, Dragon Ball Super, Dragon Ball
+
+Mon, 15 Jun 2026 22:52:13 GMT
+
+https://www.cbr.com/dragon-ball-super-toyotarou-manga-reveal-june-19/
+
+Dragon Ball Super just confirmed that Toyotarou's 100th special artwork drops on the manga's anniversary amid rumors of a Chapter 105 announcement.
+---------
+
+# 10 Greatest Dragon Ball Duos, Ranked
+
+Anime, Dragon Ball, Akira Toriyama, Goku, Shonen, shonen anime
+
+Mon, 15 Jun 2026 22:15:12 GMT
+
+https://www.cbr.com/greatest-dragon-ball-duos-ranked/
+
+Dragon Ball is rich in extremely strong individuals, but it's also an anime that values the impact of teamwork and features some very powerful pairs.
+---------
+
+# Toy Story 5 Reveals Why Jessie Takes Center Stage
+
+Movies, Toy Story 5
+
+Mon, 15 Jun 2026 22:01:14 GMT
+
+https://www.cbr.com/video/toy-story-5-reveals-why-jessie-takes-center-stage/
+
+Toy Story 5 reveals why Jessie becomes the emotional heart of the story, according to producer Lindsey Collins and writer/co-director McKenna Harris.
+---------
+
+# Batman vs. Robin Unveils the Most Brutal Batman Image of All Time
+
+Comics, Absolute Batman
+
+Mon, 15 Jun 2026 22:01:14 GMT
+
+https://www.cbr.com/absolute-batman-21-preview-batman-vs-robin-brutal-image/
+
+Has Absolute Batman ever looked more intimidating?
+---------
+
+# Star Trek: Generations Confirms Kirk is Better Than Picard
+
+Movies, Star Trek, Star Trek: Generations
+
+Mon, 15 Jun 2026 22:01:14 GMT
+
+https://www.cbr.com/star-trek-generations-confirms-kirk-better-than-picard/
+
+The ongoing debate among Star Trek fans about whether Kirk or Picard is the better captain could be settled by the movie that put them together.
+---------
+
+# 25 Years Later, These Are the 10 Best Movies of 2001
+
+Movie, Mulholland Drive, A.I. Artificial Intelligence, The Lord of the Rings: The Fellowship of the Ring, The Royal Tenenbaums
+
+Mon, 15 Jun 2026 23:08:13 GMT
+
+https://collider.com/best-movies-2001/
+
+2001 was an all-timer year for movies, giving us classics like Mulholland Drive, Ghost World, and The Lord of the Rings: The Fellowship of the Ring.
+---------
+
+# Netflix's Secret Western Masterpiece Officially Returns in 2 Months
+
+TV News, Ransom Canyon, Netflix, Josh Duhamel, Minka Kelly
+
+Mon, 15 Jun 2026 23:00:14 GMT
+
+https://collider.com/ransom-canyon-neo-western-season-2-release-date-netflix-july-2026/
+
+Netflix's fan-favorite neo-western Ransom Canyon finally returns for its second season next month. Here's what we know.
+---------
+
+# 10 Greatest Spy Movie Climaxes of All Time
+
+Movie, Thriller, Action, North By Northwest, James Bond
+
+Mon, 15 Jun 2026 22:42:14 GMT
+
+https://collider.com/best-spy-movie-climaxes-ranked/
+
+Heart-pounding spy thrillers like Skyfall, North by Northwest, and Mission Impossible: Dead Reckoning feature truly unforgettable climaxes.
+---------
+
+# 3 Near-Perfect Movies To Watch on Prime Video This Week (June 15-19)
+
+Movie, Prime Video, The Apartment, Bring It On, The Pout-Pout Fish
+
+Mon, 15 Jun 2026 22:34:13 GMT
+
+https://collider.com/best-movies-prime-video-june-15/
+
+The Pout-Pout Fish, Bring It On, and The Apartment make up our list of the best movies to watch on Prime Video the week of June 15th, 2026.
+---------
+
+# 10 Most Perfect Opening Shots of the 21st Century
+
+Movie, Blade Runner 2049, Mad Max: Fury Road, Parasite, The Substance
+
+Mon, 15 Jun 2026 22:15:13 GMT
+
+https://collider.com/most-perfect-opening-shots-21st-century-ranked/
+
+Modern classic movies like The Substance, Parasite, and Gone Girl feature some of the best, most perfect opening shots of the 21st century so far.
+---------
+
+# HBO's 2-Part Epic Fantasy Series Isn't Slowing Down on Streaming
+
+TV News, House of the Dragon, HBO Max, Hot on Streaming, Fantasy, Game of Thrones
+
+Mon, 15 Jun 2026 23:00:19 GMT
+
+https://movieweb.com/house-of-the-dragon-streaming-success-hbo-june-2026-fantasy/
+
+Before Season 3, HBO's 'Game of Thrones' spin-off, 'House of the Dragon,' is a major streaming success on HBO Max.
+---------
+
+# 'Twisted Metal' Season 3 Adds 'Star Wars' Icon to Action-Packed Adaptation
+
+TV News, Twisted Metal, Mark Hamill
+
+Mon, 15 Jun 2026 22:56:45 GMT
+
+https://movieweb.com/twisted-metal-season-3-mark-hamill/
+
+Season 3 of the Peacock series will reportedly add Mark Hamill to the mix.
+---------
+
+# 10 Years Later, What Went Wrong on X-Men's $543M Blunder Finally Revealed
+
+Movie News, X-Men Apocalypse
+
+Mon, 15 Jun 2026 22:19:43 GMT
+
+https://movieweb.com/x-men-apocalypse-editor-what-went-wrong/
+
+John Ottman details the troubled production of the 2016 film, including that they filmed without a completed script.
+---------
+
+# Taylor Sheridan Leaves Paramount in 2028: What That Means For ‘Yellowstone’
+
+Features, Taylor Sheridan
+
+Mon, 15 Jun 2026 22:00:19 GMT
+
+https://movieweb.com/taylor-sheridan-paramount-exit-yellowstone/
+
+Taylor Sheridan will leave Paramount for NBCUniversal after 2028, but what happens to the 'Yellowstone' franchise?
+---------
+
 # Disney+'s 4-Part Family Franchise Has Taken Over The World At The Perfect Time
 
 New Movies, Masked Recs
