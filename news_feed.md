@@ -1,3 +1,443 @@
+# Timothy Olyphant's New R-Rated Thriller Becomes Global Prime Video Streaming Sensation
+
+Movies, Masked Recs
+
+Mon, 15 Jun 2026 19:08:57 GMT
+
+https://screenrant.com/timothy-olyphant-over-your-dead-body-prime-video-streaming-success-june-2026/
+
+Timothy Olyphant has a new R-rated thriller out now on Prime Video, and it has quickly become a global streaming hit with plenty of blood and action.
+---------
+
+# Anya Taylor-Joy Joins New Lord Of The Rings Movie As New Middle-earth Character
+
+Movies, The Lord of the Rings: The Hunt for Gollum
+
+Mon, 15 Jun 2026 19:08:13 GMT
+
+https://screenrant.com/the-lord-of-the-rings-the-hunt-for-gollum-anya-taylor-joy-seren/
+
+Warner Bros. has announced Anya Taylor-Joy has joined The Lord of the Rings prequel as Seren.
+---------
+
+# The Lord Of The Rings' 2027 Return Is Officially The Start Of An Era
+
+Movies, The Lord of the Rings
+
+Mon, 15 Jun 2026 19:01:29 GMT
+
+https://screenrant.com/lord-of-the-rings-2027-start-era/
+
+The Lord of the Rings franchise is set to return in 2027 with a new era, but without Peter Jackson at the helm, will these live-action movies succeed?
+---------
+
+# Resident Evil Fans Should Mark Their Calendars For August 26
+
+Featured, Resident Evil, Triple-A Games, PC
+
+Mon, 15 Jun 2026 19:01:29 GMT
+
+https://screenrant.com/resident-evil-gamescom-august-2026/
+
+Just when we thought we'd seen everything Capcom has to offer, we're only a couple of months away from an even more exciting Resident Evil update.
+---------
+
+# Absolute Batgirl Design Reveals The Hero’s Hardcore New Costume
+
+DC Comics, Batgirl
+
+Mon, 15 Jun 2026 19:00:27 GMT
+
+https://screenrant.com/absolute-batgirl-costume-design/
+
+Absolute Batman is finally debuting its first iteration of Barbara Gordon's Batgirl, and her design is a stunning combination of her inspirations.
+---------
+
+# Disney’s Moana Live-Action Remake Confirms 1 Major Change From $687M Hit
+
+Movies, Moana
+
+Mon, 15 Jun 2026 18:59:04 GMT
+
+https://screenrant.com/moana-movie-live-action-new-song-video/
+
+A decade after first debuting in theaters, Moana is back with a live-action remake that adapts the 2016 animated film with one major update.
+---------
+
+# Spider-Man: Brand New Day May Kill Peter Parker To Save Spider-Man
+
+Movies, Spider-Man: Brand New Day, Originals
+
+Mon, 15 Jun 2026 18:34:15 GMT
+
+https://screenrant.com/video/spider-man-brand-new-day-may-kill-peter-parker-to-save-spider-man/
+
+Spider-Man: Brand New Day could deliver the franchise’s boldest twist yet by killing Peter Parker, reshaping Spider-Man’s future, and redefining the MCU’s most iconic hero.
+---------
+
+# Netflix's 5 Must-Watch Shows This Week (June 15–19)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Mon, 15 Jun 2026 18:13:21 GMT
+
+https://screenrant.com/best-netflix-shows-watch-week-june-15/
+
+There are only five truly must-watch shows to stream on Netflix this week, June 15–19, 2026, and they are all trending worldwide right now.
+---------
+
+# It's Official, Buffy The Vampire Slayer Is Coming Back
+
+Classic TV, Masked Recs
+
+Mon, 15 Jun 2026 18:06:21 GMT
+
+https://screenrant.com/buffy-the-vampire-slayer-franchise-return-new-comic-book/
+
+After years of anticipation and false starts, Buffy the Vampire Slayer is finally set to make a comeback, but not in the way fans were hoping for.
+---------
+
+# Black Clover Just Shadow Dropped Its Next Major Release, And It's Essential Viewing
+
+Anime, Black Clover - Season 1, Black Clover
+
+Mon, 15 Jun 2026 18:00:20 GMT
+
+https://screenrant.com/black-clover-recap-essential-season-2-october/
+
+Studio Pierrot's big return of a modern shonen great is being promoted with a major, 10-minute video released on its social media accounts.
+---------
+
+# 5 Action Thrillers Better Than John Wick
+
+Movies, John Wick
+
+Mon, 15 Jun 2026 19:01:25 GMT
+
+https://www.cbr.com/action-thrillers-better-john-wick-list/
+
+John Wick reinvented the action genre for a new era, but there are still some action thrillers that are even better.
+---------
+
+# Netflix's Upcoming Sci-Fi Horror Traps a Family Inside a Home With No Way Out in Official Trailer
+
+Movies, Disclosure Day, The Last House, Horror
+
+Mon, 15 Jun 2026 18:52:58 GMT
+
+https://www.cbr.com/netflix-terrifying-sci-fi-horror-the-last-house-trailer/
+
+This looks absolutely bone-chilling, Netflix.
+---------
+
+# Tim Allen & Tom Hanks Reveal Woody’s New Look in Toy Story 5
+
+Movies, Toy Story 5
+
+Mon, 15 Jun 2026 18:46:27 GMT
+
+https://www.cbr.com/video/tim-allen-tom-hanks-reveal-woody-s-new-look-in-toy-story-5/
+
+Tim Allen & Tom Hanks reveal new Toy Story 5 details, including Woody’s surprising new look and the lessons they've learned from Buzz and Woody.
+---------
+
+# Netflix's Hit Remake of 45-Year-Old Classic Gets Renewed for Season 3
+
+TV, The Four Seasons
+
+Mon, 15 Jun 2026 18:30:55 GMT
+
+https://www.cbr.com/netflix-the-four-seasons-renewed-for-season-3/
+
+The show featured an even stronger score in Season 2.
+---------
+
+# 6 Times Fullmetal Alchemist's Successor Proves Its Not Your Typical Shonen Anime
+
+Anime, Daemons of the Shadow Realm, shonen anime, Fullmetal Alchemist
+
+Mon, 15 Jun 2026 18:15:12 GMT
+
+https://www.cbr.com/daemons-of-the-shadow-realm-not-typical-shonen-anime/
+
+Daemons of the Shadow Realm has brought a thrilling new story to Shonen Anime that's full of surprises.
+---------
+
+# Star Trek's Newest Captain Meets Their Number One in Starfleet Academy Deleted Scene
+
+TV, Star Trek: Starfleet Academy, Star Trek, Sci-Fi
+
+Mon, 15 Jun 2026 18:12:03 GMT
+
+https://www.cbr.com/star-trek-starfleet-academy-season-1-deleted-scene/
+
+Watch an exclusive deleted scene from Star Trek: Starfleet Academy Season 1.
+---------
+
+# Black Clover Season 2 Officially Reveals New Release Window
+
+Anime, Black Clover, Shonen Jump, Crunchyroll
+
+Mon, 15 Jun 2026 18:00:14 GMT
+
+https://www.cbr.com/black-clover-season-2-october-2026/
+
+Black Clover is officially coming back with a brand-new anime, and fans don't have to wait long to see it.
+---------
+
+# Spider-Man’s Most Forgotten Villains Confirmed for Major Movie Event
+
+Comics, Spider-Man: Brand New Day, Daredevil, The Punisher
+
+Mon, 15 Jun 2026 18:00:14 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-the-hand-confirmed/
+
+Some of Marvel's most underrated villains are a major part of Spider-Man: Brand New Day, and it confirms at least part of a major fan theory.
+---------
+
+# Apple TV's Best Sci-Fi Show Finally Returns Next Month as the Perfect Severance Replacement
+
+TV, Silo, Severance, Apple TV
+
+Mon, 15 Jun 2026 17:30:13 GMT
+
+https://www.cbr.com/apple-tv-silo-return-perfect-sci-fi-severance-replacement/
+
+If you're looking for a show to quench your thirst while we wait for Severance Season 3, look no further than this upcoming Apple TV series.
+---------
+
+# Harry Potter Finally Casts the Character Everyone Was Waiting for
+
+TV, Harry Potter
+
+Mon, 15 Jun 2026 17:07:56 GMT
+
+https://www.cbr.com/harry-potter-casts-peter-serafinowicz-peeves-poltergeist/
+
+After months of speculation, the Harry Potter series officially confirmed a long-lost character.
+---------
+
+# Marvel's New Spider-Man TV Series Sets Official Release Window
+
+TV News, Your Friendly Neighborhood Spider-Man, Brad Winderbaum, Marvel Animation, Disney Plus
+
+Mon, 15 Jun 2026 19:00:14 GMT
+
+https://collider.com/your-friendly-neighborhood-spider-man-season-2-release-update-brad-winderbaum/
+
+Marvel Studios TV boss Brad Winderbaum provides an update on Your Friendly Neighborhood Spider-Man Season 2.
+---------
+
+# Hulu's 'The White Lotus' Replacement 'The Season' Only Offers Glimpses of a Better Thriller | Review
+
+TV Reviews, Hulu, The Season, Jessie Mei Li, Drama
+
+Mon, 15 Jun 2026 19:00:14 GMT
+
+https://collider.com/the-season-hulu-review/
+
+Hulu's The Season follows an outsider's infiltration into Hong Kong's elite, but the writing fails to match its stunning visuals and premise.
+---------
+
+# Disney+'s New 11-Part Fantasy Series Officially Hits No. 1 Across the Globe
+
+TV News, Dragon Striker, Disney+, Fantasy
+
+Mon, 15 Jun 2026 18:40:50 GMT
+
+https://collider.com/dragon-striker-disney-plus-streaming-hit-june-2026/
+
+Disney's new animated series Dragon Striker, following underdog students in a magical soccer game, has quickly climbed to No. 1 on the Disney+ charts.
+---------
+
+# 10 Forgotten HBO Shows That Are Perfect From Start to Finish
+
+TV, HBO, The Leftovers, Generation Kill, We Own This City
+
+Mon, 15 Jun 2026 18:22:14 GMT
+
+https://collider.com/forgotten-hbo-shows-perfect-start-to-finish/
+
+From the war miniseries Generation Kill to the underrated true crime comedy Landscapers, these forgotten HBO shows are practically flawless.
+---------
+
+# James Bond Officially Returns With New Sequel Release Date
+
+Movie News, No Time to Die, James Bond, Daniel Craig, 007 First Light
+
+Mon, 15 Jun 2026 18:20:15 GMT
+
+https://collider.com/james-bond-king-zero-novel-charlie-higson-release-date/
+
+James Bond’s next adventure has officially been announced, with a sequel officially set for release in just 3 months.
+---------
+
+# Forget J.K. Rowling, Steven Spielberg Created Your Favorite Harry Potter Characters
+
+Movie News, Steven Spielberg, Harry Potter and the Sorcerer's Stone, Harry Potter, Warner Bros.
+
+Mon, 15 Jun 2026 18:00:14 GMT
+
+https://collider.com/harry-potter-steven-spielberg-dumbledore-hagrid-mcgonagall-casting/
+
+Steven Spielberg says he helped cast three iconic Harry Potter roles before leaving Sorcerer’s Stone.
+---------
+
+# House of the Dragon’s Biggest Change Yet Marks the End of an Era
+
+TV Features, House of the Dragon, Game Of Thrones, George R.R. Martin, HBO Max
+
+Mon, 15 Jun 2026 17:47:15 GMT
+
+https://collider.com/house-of-the-dragon-beginning-targaryen-civil-war-dance-of-dragons/
+
+After two seasons, House of the Dragon is finally ending the slow-burn storytelling and heading into the Targaryen civil war in earnest.
+---------
+
+# Netflix's 'White Lotus' Replacement Is Officially Getting 8 New Episodes
+
+TV News, The White Lotus, Netflix, Tina Fey, The Four Seasons
+
+Mon, 15 Jun 2026 17:40:33 GMT
+
+https://collider.com/netflix-the-four-seasons-renewed-season-3/
+
+Netflix has renewed its Tina Fey-led White Lotus replacement for Season 3 with 8 new episodes officially in the works.
+---------
+
+# Netflix Officially Announces the Perfect 'Off Campus' and 'Heated Rivalry' Replacement Series
+
+TV News, Netflix, Romance, Heated Rivalry, Off Campus
+
+Mon, 15 Jun 2026 17:37:41 GMT
+
+https://collider.com/icebreaker-netflix-series-hannah-grace-hockey-romance/
+
+Netflix is adapting Hannah Grace’s best-selling hockey romance novel Icebreaker into a new series from Amanda Lasher, Jade Bartlett and Unwell Product
+---------
+
+# Gabriel Basso and Rain Spencer on Making Their Indie Thriller Iconoclast
+
+Exclusives, Iconoclast
+
+Mon, 15 Jun 2026 17:29:58 GMT
+
+https://collider.com/video/gabriel-basso-and-rain-spencer-on-making-their-indie-thriller-iconoclast/
+
+Gabriel Basso (The Night Agent) made his directorial debut at the Tribeca Film Festival on June 9th, at the premiere of Iconoclast. The film was written by Basso, and he stars alongside Rain Spencer (The Summer I Turned Pretty), Courtney Eaton (Yellowjackets) and Noah Centineo (To All the Boys I’ve Loved Before). It centers around a loner’s obsession with a live-streamer that shapes his entire personality, actions and psychology. This thriller follows the choices made and repercussions of a one-sided online relationship.In exclusive interviews with Collider, Basso and Spencer talk about the origin of the script, finding characters, and the themes of the story. Spencer also explains how Basso runs a set, the reciprocal respect he has with the crew, and the collaboration process with the first-time director.
+---------
+
+# Amazon Unveils 2 Perfect James Bond Origin Story Twists for the New Movies
+
+Features, James Bond, James Bond 26
+
+Mon, 15 Jun 2026 19:00:19 GMT
+
+https://movieweb.com/007-first-light-movie-origin-story/
+
+'007: First Light' exists in its own timeline, but that doesn't mean the movies can't take inspiration from it. Read on for more.
+---------
+
+# Duffer Brothers' New Event Film After 'Stranger Things' Officially Sets Release Date
+
+Movie News, Stranger Things, Ross Duffer, Matt Duffer
+
+Mon, 15 Jun 2026 18:27:44 GMT
+
+https://movieweb.com/duffer-brothers-event-film-november-2028/
+
+The Duffer Brothers' first project following 'Stranger Things' has landed a coveted fall release date.
+---------
+
+# Russell Crowe Teases "Fantastic" Role in 'Highlander' Reboot
+
+Movie News, Highlander, Russell Crowe
+
+Mon, 15 Jun 2026 18:10:41 GMT
+
+https://movieweb.com/russell-crowe-fantastic-highlander-reboot/
+
+Russell Crowe shared an exciting update on the 'Highlander' reboot and his character in the film.
+---------
+
+# Steven Spielberg Sci-Fi Return Reaches Unprecedented Heights at the Box Office
+
+Movie News, Steven Spielberg, Disclosure Day, Box Office Milestones
+
+Mon, 15 Jun 2026 18:00:19 GMT
+
+https://movieweb.com/steven-spielberg-disclosure-day-sci-fi-box-office-record/
+
+After just three days, the director's return to the genre has already become one of his most successful movies.
+---------
+
+# 6 Sci-Fi Book Series That Are Better Than 'Dune'
+
+Movie Lists, Dune
+
+Mon, 15 Jun 2026 18:00:19 GMT
+
+https://movieweb.com/sci-fi-book-series-better-than-dune/
+
+'Dune' is a fantastic science-fiction novel by Frank Herbert published in 1965 that led to a beloved franchise, but these book series are even better.
+---------
+
+# 'House of the Dragon' Season 3 Finally Delivers on Its Promise on Rotten Tomatoes
+
+TV News, House of the Dragon
+
+Mon, 15 Jun 2026 17:46:38 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-rotten-tomatoes/
+
+The first reviews for the new season of the 'Game of Thrones' prequel are overwhelmingly positive.
+---------
+
+# Supernatural Thriller Teaser Reveals 95% RT Movie That Could Be the Next 'Obsession'
+
+Movie News, Leviticus, Obsession
+
+Mon, 15 Jun 2026 17:36:13 GMT
+
+https://movieweb.com/leviticus-rotten-tomatoes-score-tease-next-obsession/
+
+The horror film 'Leviticus' debuted at the Sundance Film Festival and opens in theaters on June 19, 2026.
+---------
+
+# Prime Video's New 8-Part R-Rated Series Topples Two Smash Hit Favorites
+
+TV News, Every Year After, Hot on Streaming, Prime Video
+
+Mon, 15 Jun 2026 17:31:19 GMT
+
+https://movieweb.com/every-year-after-prime-video-beats-off-campus-spider-noir-june-2026/
+
+After just 5 days, 'Every Year After' has skyrocketed past 'Off Campus' and 'Spider-Noir' to take the top spot on Prime Video.
+---------
+
+# HBO's 'Harry Potter' Officially Casts Beloved Character Cut From Original Movies
+
+TV News, Harry Potter
+
+Mon, 15 Jun 2026 17:12:47 GMT
+
+https://movieweb.com/hbo-harry-potter-peter-serafinowicz-peeves-cast/
+
+Warner Bros. cast Peter Serafinowicz in the role of Peeves the Poltergeist in HBO Max's new 'Harry Potter' series.
+---------
+
+# Christopher Nolan's Biggest Movie in 14 Years Rewrites the Rules of Cinema
+
+Features, Christopher Nolan, The Odyssey, The Dark Knight
+
+Mon, 15 Jun 2026 17:00:22 GMT
+
+https://movieweb.com/the-odyssey-christopher-nolan-game-changing/
+
+Christopher Nolan's 'The Dark Knight' trilogy is still beloved and important, and his upcoming movie is exciting for several reasons.
+---------
+
 # Martin Scorsese’s Cape Fear Actor’s Return In Apple TV Remake Explained By Showrunner
 
 TV, Cape Fear, Juliette Lewis
