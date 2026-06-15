@@ -1,3 +1,377 @@
+# The Legend Of Vox Machina Season 4, Episode 4's Mighty Nein Easter Egg Explained
+
+Streaming TV, The Legend of Vox Machina, The Mighty Nein
+
+Mon, 15 Jun 2026 02:30:22 GMT
+
+https://screenrant.com/the-legend-of-vox-machina-season-4-wildmother-mighty-nein-easter-egg/
+
+The Legend of Vox Machina season 4 features a lot of Easter eggs ot the wider franchise, including a big one to its sister show, The Mighty Nein.
+---------
+
+# Demon Slayer Infinity Castle Part 2 Is Finally Going To Give Fans The One Villain Death They've Waited 4 Years For
+
+Anime, Demon Slayer, Demon Slayer: Kimetsu no Yaiba Infinity Castle
+
+Mon, 15 Jun 2026 02:30:22 GMT
+
+https://screenrant.com/demon-slayer-infinity-castle-part-2-doma-death/
+
+Demon Slayer has been drip-feeding reasons to hate one demon for years, and Infinity Castle Part 2 will finally bring the emotional payoff.
+---------
+
+# Netflix’s 3-Part Post Apocalyptic Masterpiece Brilliantly Switches Its Comic’s Genre
+
+Classic TV, Masked Recs
+
+Mon, 15 Jun 2026 02:15:21 GMT
+
+https://screenrant.com/sweet-tooth-comic-genre-change-netflix/
+
+Netflix is the streaming home a compelling post-apocalyptic series that works brilliantly despite completely shifting its source material’s genre.
+---------
+
+# 10 MCU Skins We Still Want To See In Marvel Rivals
+
+Superheroes, Marvel Rivals, Marvel Cinematic Universe
+
+Mon, 15 Jun 2026 02:04:02 GMT
+
+https://screenrant.com/10-mcu-skins-we-still-want-to-see-in-marvel-rivals/
+
+Marvel Rivals is full of awesome skins inspired by the MCU, but there are so many great costumes we'd love to see in the 6v6 hero shooter.
+---------
+
+# Forget FF7 Revelation, Final Fantasy Resonance Is The Perfect RPG For Longtime Fans
+
+Gaming, Final Fantasy Resonance, Triple-A Games
+
+Mon, 15 Jun 2026 02:00:33 GMT
+
+https://screenrant.com/final-fantasy-resonance-perfect/
+
+The upcoming Final Fantasy 7 Revelation is exciting, but Final Fantasy Resonance is an even more exciting upcoming game FF fans won't want to miss.
+---------
+
+# Dead By Daylight Adaptation Gets Major Update From Blumhouse
+
+Movies, Dead by Daylight
+
+Mon, 15 Jun 2026 01:50:28 GMT
+
+https://screenrant.com/dead-by-daylight-blumhouse-adaptation-update-director-thordur-alsson/
+
+Blumhouse and Atomic Monster's upcoming Dead by Daylight film adaptation has officially landed a new director in an exciting update.
+---------
+
+# Tom Hardy’s 8-Part Historical Thriller Is Far Better Than His Recent Movies
+
+Classic TV, Masked Recs
+
+Mon, 15 Jun 2026 01:46:21 GMT
+
+https://screenrant.com/tom-hardy-taboo-better-recent-movies/
+
+Tom Hardy’s 8-part historical thriller, which premiered close to nine years ago, still seems far better than most of his movies from recent years.
+---------
+
+# 17 D&D Character Ideas That Are Less Cliché Than Your Last One
+
+Gaming, Dungeons and Dragons
+
+Mon, 15 Jun 2026 01:30:26 GMT
+
+https://screenrant.com/dnd-character-ideas-not-cliche-unique-interesting-one-shot/
+
+Making unique characters for D&amp;D can be a challenge since it's easy to fall back on clichés. Some creative thinking can help break the mold.
+---------
+
+# Widow's Bay Is The From Replacement Every Apple TV User Needs To Watch
+
+TV, Widow's Bay, Apple TV
+
+Mon, 15 Jun 2026 01:30:23 GMT
+
+https://screenrant.com/widows-bay-from-replacement-apple-tv/
+
+Apple TV+ has released a supernatural thriller that captures the haunting isolation of MGM's 'From' while offering a much faster pace.
+---------
+
+# Ridley Scott's New 6-Part Horror Series Is The Shining Meets One Flew Over The Cuckoo's Nest
+
+Streaming TV, Masked Recs
+
+Mon, 15 Jun 2026 01:30:23 GMT
+
+https://screenrant.com/ridley-scott-terror-devil-in-silver-shining-one-flew-over-the-cuckoos-nest/
+
+Ridley Scott has a new horror TV show that is the perfect blend of themes from the iconic movies, The Shining and One Flew Over the Cuckoo's Nest.
+---------
+
+# Beavis and Butt-Head Creator's Forgotten Cartoon Show Is Streaming for Free
+
+TV, The Goode Family
+
+Mon, 15 Jun 2026 02:45:26 GMT
+
+https://www.cbr.com/the-goode-family-streaming-free-june-2026/
+
+Mike Judge's ABC series didn't reach the same levels of success as Beavis and Butt-Head and King of the Hill.
+---------
+
+# Game Boy Advance Games That Aged Well
+
+Games, Pokemon, Mario, The Legend of Zelda
+
+Mon, 15 Jun 2026 02:45:13 GMT
+
+https://www.cbr.com/game-boy-advance-games-aged-well/
+
+The GBA turns 25 years old this year, and some of its games are as fun now as they were when they came out.
+---------
+
+# It's Official, Taylor Sheridan's New Action Thriller Is Already the War Movie Event of the Decade
+
+Movies, Call of Duty, War
+
+Mon, 15 Jun 2026 02:31:14 GMT
+
+https://www.cbr.com/taylor-sheridan-call-of-duty-war-movie-of-the-decade/
+
+Taylor Sheridan is adapting a Call of Duty film and is already gearing up to be the 2020s biggest war movie.
+---------
+
+# 5 Anime Villains Stronger Than Goku
+
+Anime, Jujutsu Kaisen, Death Note, Goku
+
+Mon, 15 Jun 2026 02:31:14 GMT
+
+https://www.cbr.com/anime-villains-more-powerful-goku-list/
+
+Son Goku may be the poster child for absolute strength in the Dragon Ball universe, but these five anime villains would make his life a nightmare.
+---------
+
+# 10 Best Survival Games of All Time
+
+Games, Valheim, Minecraft., survival
+
+Mon, 15 Jun 2026 02:31:14 GMT
+
+https://www.cbr.com/best-survival-games-ever-list/
+
+The best survival games of all time, including Subnautica, Valheim, Rust, and more.The ones worth every minute of suffering.
+---------
+
+# New Game of Thrones Release Renews Winds of Winter Update Rumors
+
+TV, Game Of Thrones
+
+Mon, 15 Jun 2026 02:17:50 GMT
+
+https://www.cbr.com/game-of-thrones-winds-of-winter-update-30th-anniversary/
+
+A mysterious tease has fans hopeful that a major update on George R.R. Martin's Winds of Winter will finally be announced next month.
+---------
+
+# Guy Ritchie's Indiana Jones Meets National Treasure Adventure Keeps Climbing the Charts 1 Year Later
+
+Movies, guy ritchie, In the Grey, Fountain of Youth
+
+Mon, 15 Jun 2026 02:00:25 GMT
+
+https://www.cbr.com/guy-ritchie-fountain-of-youth-adventure-apple-tv-success-june-2026/
+
+The adventure film boasts mixed reviews, but it's a true streaming sensation.
+---------
+
+# The Apothecary Diaries Officially Returns Today With Exclusive Maomao Reveal
+
+Anime, The Apothecary Diaries, Crunchyroll
+
+Mon, 15 Jun 2026 02:00:25 GMT
+
+https://www.cbr.com/maomao-the-apothecary-diaries-palace-chronicles-launch-trailer/
+
+Apothecary Diaries fans can now solve their own mysteries in the rear palace with today's launch of The Apothecary Diaries: Palace Chronicles game.
+---------
+
+# The 10 Greatest Movie Stunts of the Last 20 Years, Ranked
+
+Movies, Mad Max: Fury Road, John Wick: Chapter 4, Mission: Impossible
+
+Mon, 15 Jun 2026 02:00:25 GMT
+
+https://www.cbr.com/greatest-movie-stunts-last-20-years-ranked/
+
+Whether it's jumping a bike of a cliff or throwing cars out a plane, the art of a good stunt remains one of Hollywood's biggest draws.
+---------
+
+# Dexter: Resurrection Star All But Confirms Killed-Off Character's Season 2 Return
+
+TV, Dexter: Resurrection
+
+Mon, 15 Jun 2026 01:51:11 GMT
+
+https://www.cbr.com/dexter-resurrection-season-2-angel-batista-return-chances/
+
+Of course, it's not uncommon for deceased characters to reappear in the Dexter universe.
+---------
+
+# ‘The Vampire Lestat’ Drops a Terrifying Bombshell After a Twisted Trip Into the Past | Review
+
+TV Reviews, Interview with the Vampire, The Vampire Lestat, Sam Reid, AMC+
+
+Mon, 15 Jun 2026 02:05:14 GMT
+
+https://collider.com/the-vampire-lestat-episode-2-recap/
+
+The Vampire Lestat Episode 2 exposes Lestat's childhood, shedding light on his past and his complex relationship with his mother, Gabriella.
+---------
+
+# 10 Perfect K-Dramas You Should Watch in 2026
+
+TV, South Korea, Bloodhounds, The WONDERfools, The Legend of Kitchen Soldier
+
+Mon, 15 Jun 2026 01:22:15 GMT
+
+https://collider.com/perfect-k-drama-shows-to-watch-2026/
+
+Discover the top K-dramas to watch in 2026, featuring new shows that will keep you hooked, from The Scarecrow to We Are All Trying Here.
+---------
+
+# 8 Upcoming Drama Shows, Ranked by Anticipation
+
+TV, Drama, Best TV Shows, House of the Dragon, The Bear
+
+Mon, 15 Jun 2026 01:11:16 GMT
+
+https://collider.com/upcoming-drama-shows-ranked-anticipation/
+
+A Netflix adaptation of East of Eden, as well as new seasons of The Bear and The Gilded Age are among the most anticipated upcoming drama TV shows.
+---------
+
+# Disney’s New Fantasy Hit Faces Major Roadblock After Successful Release
+
+TV News, Dragon Striker, Disney, Animation, Fantasy
+
+Mon, 15 Jun 2026 00:45:13 GMT
+
+https://collider.com/disney-dragon-striker-major-roadblock-after-successful-release/
+
+Disney’s new fantasy sports animation scored a strong launch, but an unexpected regional setback is testing its worldwide ambitions.
+---------
+
+# Every Game of Thrones Show Coming to HBO Max in June 2026
+
+TV, Game Of Thrones, House of the Dragon, HBO Max, A Knight Of The Seven Kingdoms
+
+Mon, 15 Jun 2026 00:42:46 GMT
+
+https://collider.com/game-of-thrones-universe-releases-hbo-max-june-2026/
+
+From House of the Dragon to Season 3 to an ASL version of Season 2, discover every Game of Thrones show coming to HBO Max this month.
+---------
+
+# Your Favorite British Detective Series Is Bringing in Fresh Blood for Its Final Chapter
+
+TV News, Grantchester, British TV, All Creatures Great And Small, PBS
+
+Mon, 15 Jun 2026 00:30:42 GMT
+
+https://collider.com/grantchester-season-11-all-creatures-great-and-small-nicholas-ralph-casting/
+
+British detective series Grantchester returns for its 11th and final season, featuring an All Creatures Great and Small favorite. Here's all to know.
+---------
+
+# 'Outer Banks' JJ Replacement Is the Smartest Move for Season 5
+
+TV Features, Outer Banks, Rudy Pankow, Drew Starkey, Netflix
+
+Mon, 15 Jun 2026 00:20:13 GMT
+
+https://collider.com/outer-banks-jj-replacement-rafe-season-5/
+
+Before Outer Banks' final season, Rafe's potential redemption offers a fresh perspective, bridging the gap between the Pogues and Kooks.
+---------
+
+# The Greatest Adventure Movie of the ‘80s Is Officially Taking Over the World
+
+Movie News, The Goonies, Steven Spielberg, Josh Brolin, Adventure
+
+Mon, 15 Jun 2026 00:15:15 GMT
+
+https://collider.com/steven-spielberg-adventure-movie-the-goonies-free-streaming-success-pluto-tv-june-2026/
+
+Steven Spielberg's beloved 1985 adventure movie, The Goonies, has gained a new audience on a free streaming platform. Read on for more details.
+---------
+
+# Ryan Murphy’s Most Anticipated New Thriller Finally Has a Premiere Date
+
+TV News, Ryan Murphy, Thriller, FX, Hulu
+
+Mon, 15 Jun 2026 00:00:13 GMT
+
+https://collider.com/ryan-murphy-horror-series-the-shards-release-date-hulu-fx-august-5-2026/
+
+A blood-soaked new thriller blends elite privilege, obsession, and serial-killer terror, creating serious modern psychological-horror vibes.
+---------
+
+# Ahead of ‘Supergirl’, Jason Momoa’s Franchise-Ending Fantasy Movie Surges on Prime Video
+
+Movie News, Jason Momoa, Supergirl, Aquaman and the Lost Kingdom, Prime Video
+
+Sun, 14 Jun 2026 23:45:14 GMT
+
+https://collider.com/jason-momoa-aquaman-lost-kingdom-streaming-success-prime-video-june-2026/
+
+The final installment of the DC Extended Universe, Jason Momoa's Aquaman and the Lost Kingdom, is having a streaming resurgence. Find out more.
+---------
+
+# 10 Best Toho Godzilla Movies, Ranked
+
+Features
+
+Mon, 15 Jun 2026 02:05:30 GMT
+
+https://movieweb.com/10-best-toho-godzilla-movies-ranked/
+
+The production company that created Godzilla evolved him into a globally-recognized pop culture juggernaut via these high-quality monster adventures.
+---------
+
+# The 10 Best Action Fantasy Series on Netflix, Ranked
+
+TV Lists
+
+Mon, 15 Jun 2026 01:08:25 GMT
+
+https://movieweb.com/best-netflix-action-fantasy-series/
+
+For when you need to escape the real world.
+---------
+
+# 8 MCU Characters More Powerful Than Thor, Ranked
+
+Movie Lists, MCU, Thor
+
+Mon, 15 Jun 2026 01:00:21 GMT
+
+https://movieweb.com/mcu-characters-more-powerful-than-thor/
+
+Some of them wield magic. Some can bend reality itself. And some of them are so strong, they've even destroyed Thor's signature weapon.
+---------
+
+# Jason Statham's Remake of a Crime Thriller Classic Shoots to New Heights on Streaming
+
+Movie News, The Italian Job, Netflix, Hot on Streaming, Jason Statham, Action
+
+Mon, 15 Jun 2026 00:00:19 GMT
+
+https://movieweb.com/the-italian-job-jason-statham-streaming-success-netflix-june-2026-action/
+
+Jason Statham's action crime thriller 'The Italian Job' remake is one of the most popular movies streaming on Netflix right now.
+---------
+
 # DC Officially Introduces Its Most Advanced Robot Hero Of All Time
 
 DC Comics
