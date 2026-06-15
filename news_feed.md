@@ -1,3 +1,410 @@
+# Disney+'s 4-Part Family Franchise Has Taken Over The World At The Perfect Time
+
+New Movies, Masked Recs
+
+Mon, 15 Jun 2026 21:50:21 GMT
+
+https://screenrant.com/toy-story-disney-plus-success-good-for-toy-story-5/
+
+A family-friendly movie franchise has taken over Disney+, and the timing of its dominance points to a new release being the biggest yet.
+---------
+
+# Amazon’s Post-Apocalyptic Series Adaptation Of Novel That Inspired Stephen King’s Sci-Fi Masterpiece Is Now A Streaming Hit
+
+TV, Masked Recs
+
+Mon, 15 Jun 2026 21:47:23 GMT
+
+https://screenrant.com/earth-abides-mgm-plus-streaming-success-june-2026/
+
+After a quiet release two years ago, a six-episode drama series that inspired Stephen King classic has reemerged as a streaming success.
+---------
+
+# The Legend Of Vox Machina Makes One Actor's Role In Another Show Official Canon
+
+Streaming TV, The Legend of Vox Machina
+
+Mon, 15 Jun 2026 21:30:21 GMT
+
+https://screenrant.com/the-legend-of-vox-machina-wayne-brady-improv/
+
+The Legend of Vox Machina season 4 has not lost any of its meta spirit, with one voice actor’s most famous role being canon to show’s world.
+---------
+
+# Marvel Confirms Deadpool And Punisher Crossover
+
+Marvel Comics, Deadpool, The Punisher, punisher, Marvel
+
+Mon, 15 Jun 2026 21:23:54 GMT
+
+https://screenrant.com/deadpool-punisher-crossover-this-wont-end-well/
+
+Marvel's newest crossover collaboration is going to involve Deadpool and Punisher in some capacity, and it'll likely be a violent bloodbath.
+---------
+
+# 10 Best Post-Avengers: Endgame MCU Movies & TV Shows
+
+Movies, Marvel Cinematic Universe, Ranking
+
+Mon, 15 Jun 2026 21:20:21 GMT
+
+https://screenrant.com/mcu-best-movies-shows-after-avengers-endgame/
+
+The MCU is said to be inconsistent since Avengers: Endgame, yet these movies and television shows prove that it can still deliver greatness.
+---------
+
+# It's Officially The End Of An Era For Gilmore Girls (But There's A Catch)
+
+TV, Gilmore Girls
+
+Mon, 15 Jun 2026 21:17:46 GMT
+
+https://screenrant.com/gilmore-girls-leaving-netflix-june-2026/
+
+An end of a key Gilmore Girls era is upon fans as Netflix announces the beloved series is leaving the platform in just a few short weeks.
+---------
+
+# It's Officially The End Of An Era For Netflix's Stranger Things
+
+Streaming TV, Stranger Things
+
+Mon, 15 Jun 2026 21:15:21 GMT
+
+https://screenrant.com/stranger-things-duffer-brothers-end-of-an-era-netflix-paramount/
+
+Matt and Ross Duffer, the creators of Stranger Things, are creating a new movie for Paramount, which may signal they're taking a step back.
+---------
+
+# HBO Max’s Trending 10-Part Regency Romance Is Officially The Anti-Bridgerton
+
+Streaming TV, Masked Recs
+
+Mon, 15 Jun 2026 21:00:21 GMT
+
+https://screenrant.com/the-other-bennet-sister-hbo-max-trending-anti-bridgerton/
+
+Regency romance is a hit in the streaming era, but this trending Jane Austen show on HBO Max is the exact opposite of Netflix's spicy Bridgerton.
+---------
+
+# 10 Animated Movies That Tackled Tech Anxiety Before Toy Story 5
+
+Classic Movies, Toy Story 5
+
+Mon, 15 Jun 2026 21:00:21 GMT
+
+https://screenrant.com/animated-movies-tech-anxiety-toy-story-5/
+
+Toy Story 5 is bringing a new villain to the story by leaning into the dangers of tech anxiety, but it isn't the first animated movie to tackle this.
+---------
+
+# Webtoon's Weirdest Isekai Is Only 40 Chapters, and It Needs An Anime ASAP
+
+Anime, Webtoon
+
+Mon, 15 Jun 2026 20:48:51 GMT
+
+https://screenrant.com/mr-delivery-knight-webtoon-isekai-weird/
+
+Tired of reading the same old isekai manhwa full of the same tired tropes? Well, Webtoon might have just the unconventional refresher you need.
+---------
+
+# 5 Masterpiece PS2 Games Better Than Grand Theft Auto
+
+Games, Video Games, Grand Theft Auto, PlayStation 2
+
+Mon, 15 Jun 2026 21:15:13 GMT
+
+https://www.cbr.com/masterpiece-ps2-games-better-than-gta/
+
+Rockstar may have carved an impressive path in the gaming world with GTA, but they'll never top these unforgettable PS2 games.
+---------
+
+# 3 Superhero Trilogies Better Than Christopher Nolan's Batman
+
+Movies, The Dark Knight, Marvel Cinematic Universe, Blade
+
+Mon, 15 Jun 2026 21:01:13 GMT
+
+https://www.cbr.com/superhero-trilogies-better-than-christopher-nolan-batman/
+
+Christopher Nolan's Dark Knight Trilogy is the gold standard for many people, but there are a few trilogies that are better than even Nolan's work.
+---------
+
+# House of the Dragon Season 3 RT Score Teases Game of Thrones Spinoff's Best Season Yet
+
+TV, House of the Dragon, Fantasy
+
+Mon, 15 Jun 2026 20:58:49 GMT
+
+https://www.cbr.com/house-of-the-dragon-season-3-rotten-tomatoes-score/
+
+House of the Dragon Season 3 earns the Game of Thrones prequel its best RT score.
+---------
+
+# 10 Best The Far Side Comics Featuring Skeletons
+
+Comics, The Far Side
+
+Mon, 15 Jun 2026 20:37:55 GMT
+
+https://www.cbr.com/best-far-side-comics-about-skeletons/
+
+While each installment in The Far Side stands on its own, Gary Larson also amusing revisits previously employed themes and devices, such as skeletons.
+---------
+
+# 10 Most Universally Beloved Sci-Fi Movies of the Last 30 Years, Ranked
+
+Movies, Science Fiction
+
+Mon, 15 Jun 2026 20:31:14 GMT
+
+https://www.cbr.com/beloved-sci-fi-movies-last-30-years-list/
+
+Balancing ambitious concepts with compelling, emotional storytelling, these modern sci-fi classics are universally beloved by critics & audiences.
+---------
+
+# 10 Best One Piece Arcs of All Time, Ranked
+
+Anime, One Piece, shonen anime, Shonen
+
+Mon, 15 Jun 2026 20:15:14 GMT
+
+https://www.cbr.com/one-piece-best-arcs-all-time/
+
+One Piece is one of the greatest success stories in anime history, and these ten arcs contributed to the series' growing fanbase over the years.
+---------
+
+# Disney's New Live-Action Remake Confirms Original Song 1 Month Ahead of Release
+
+Movies, Moana
+
+Mon, 15 Jun 2026 20:13:24 GMT
+
+https://www.cbr.com/disney-moana-original-song/
+
+Disney is embarking on a new live-action journey for a recent fan-favorite.
+---------
+
+# Joan Cusack and Greta Lee on Toy Story 5's Emotional Surprise
+
+Movies, Toy Story 5
+
+Mon, 15 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/video/joan-cusack-and-greta-lee-on-toy-story-5-s-emotional-surprise/
+
+Toy Story 5 stars Joan Cusack and Greta Lee discuss the emotional heart of Pixar's latest adventure, from Jessie's enduring optimism to the powerful relationship between Jessie and Jessica.
+---------
+
+# The New Street Fighter Movie Finally Gets Ryu Right
+
+Movies, Street Fighter
+
+Mon, 15 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/street-fighter-movie-andrew-koji-ryu-best-character/
+
+The director of the Street Fighter video game series shared his thoughts on the protagonist's treatment in the upcoming live-action adaptation.
+---------
+
+# One Piece and NBA Officially Unite as Luffy Joins the New York Knicks
+
+Anime, One Piece, Shonen Jump, Crunchyroll
+
+Mon, 15 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/one-piece-nba-luffy-new-york-knicks/
+
+The fan-favorite collaboration between One Piece and the NBA are sending Monkey D. Luffy to the New York Kicks following the team's historic win.
+---------
+
+# Xbox Finally Confirms 'Fallout 5' Release Update
+
+Gaming News, Fallout, Xbox Series X/S, Fallout 76, Gaming
+
+Mon, 15 Jun 2026 21:53:30 GMT
+
+https://collider.com/fallout-5-release-date-update-xbox-plans/
+
+Xbox officially sets faster release plan for major gaming franchises including Fallout, Halo, and Elder Scrolls.
+---------
+
+# Forget ‘Dune Part 2,’ Anya Taylor Joy’s Overlooked Sci-Fi Movie Is the Perfect Rewatch Every Single Time
+
+Movie Features, Anya Taylor-Joy, Dune: Part Two, The Gorge, Miles Teller
+
+Mon, 15 Jun 2026 21:53:15 GMT
+
+https://collider.com/anya-taylor-joy-the-gorge-dune-part-two-replacement/
+
+As opposed to her minimal screentime in Dune: Part Two, Anya Taylor-Joy gets the star treatment in the sci-fi adventure, The Gorge.
+---------
+
+# 10 Must-Watch Shows After You Finish Prime Video's 'Every Year After'
+
+TV, Every Year After, Prime Video, Off Campus, Sweet Magnolias
+
+Mon, 15 Jun 2026 21:36:15 GMT
+
+https://collider.com/tv-shows-like-every-year-after-prime-video/
+
+Off Campus, Sweet Magnolias, One Day, and The Summer I Turned Pretty are perfect to watch after you finish watching Prime Video's Every Year After.
+---------
+
+# 10 Most Intense Fantasy Movies Ever Made
+
+Movie, The Crow, Fantasy, Pan's Labyrinth, The Green Knight
+
+Mon, 15 Jun 2026 21:31:14 GMT
+
+https://collider.com/most-intense-fantasy-movies-ranked/
+
+From silent classics like Faust to animated chillers like Coraline, these fantasy movies are the most intense the genre has ever seen.
+---------
+
+# 8 Most Addictive Procedural Shows of the 2010s
+
+TV, Mindhunter, Hawaii Five-0, Procedural, Blindspot
+
+Mon, 15 Jun 2026 21:11:14 GMT
+
+https://collider.com/most-addictive-tv-procedurals-2010s-ranked/
+
+Blindspot, Suits, and Mindhunter are all among the best and most purely addictive TV procedurals from the 2010s.
+---------
+
+# 10 Underrated Period Movies That Can Be Called Masterpieces
+
+Movie, Barry Lyndon, The Earrings of Madame de…, The Emigrants, The Heiress
+
+Mon, 15 Jun 2026 21:08:14 GMT
+
+https://collider.com/underrated-period-movies-masterpieces/
+
+From A Royal Affair to The Leopard, these overlooked period masterpieces prove history can be more gripping than fiction.
+---------
+
+# Disney Officially Renames Its TV Empire
+
+TV News, Disney, Disney+, Disney Channel, Marvel
+
+Mon, 15 Jun 2026 21:02:24 GMT
+
+https://collider.com/disney-branded-television-name-change-kids-and-family-rebrand/
+
+Say goodbye to Disney Branded Television as Disney rebrands the division behind its kids and family programming.
+---------
+
+# 2026's Next $1 Billion Movie Makes a Triumphant Digital Debut
+
+Movie News, Michael, Drama, Music, Biopic
+
+Mon, 15 Jun 2026 21:00:13 GMT
+
+https://collider.com/michael-one-billion-digital-success-pvod-june-2026/
+
+The next billion-dollar movie of 2026 is finally available on PVOD services, and it is already a hit. Get all the details here.
+---------
+
+# Paramount+’s Cancelled-Too-Soon ’NCIS’ Spin-Off Officially Sets New Release
+
+TV News, NCIS: Tony & Ziva, Michael Weatherly, Cote de Pablo, Paramount Plus
+
+Mon, 15 Jun 2026 20:49:21 GMT
+
+https://collider.com/ncis-tony-and-ziva-season-1-dvd-release-date/
+
+NCIS: Tony & Ziva Season 1 arrives on DVD next month, starring Michael Weatherly and Cote de Pablo as Tony and Ziva reunite in Europe.
+---------
+
+# 5 Praiseworthy Fantasy Movies of the 2020s No One Talks About
+
+Movie, Fantasy, All of Us Strangers, Wolfwalkers, The Life of Chuck
+
+Mon, 15 Jun 2026 20:48:14 GMT
+
+https://collider.com/praiseworthy-fantasy-movies-2020s-no-one-talks-about/
+
+The fantasy genre has thrived throughout the 2020s, but not nearly enough people talk about brilliant movies like All of Us Strangers and Wolfwalkers.
+---------
+
+# The Real Person In The Mandalorian Suit Reveals Behind-the-Scenes Secrets
+
+Interviews, The Mandalorian and Grogu, The Mandalorian, Star Wars
+
+Mon, 15 Jun 2026 21:14:46 GMT
+
+https://movieweb.com/the-mandalorian-and-grogu-behind-the-scenes/
+
+The Mandalorian star reveals he created a 370-page “Mando Bible.”
+---------
+
+# Brendan Fraser's New World War II Epic Sets Digital Streaming Date
+
+Movie News, Pressure, Brendan Fraser
+
+Mon, 15 Jun 2026 21:10:41 GMT
+
+https://movieweb.com/brendan-fraser-pressure-digital-streaming-date/
+
+A story about one of World War II's unsung heroes, Brendan Fraser's thriller 'Pressure' recounts how a crucial decision determined history.
+---------
+
+# Star Wars Timeline Officially Moving Past 'The Rise of Skywalker'
+
+Features, Star Wars, Star Wars: Episode IX - The Rise of Skywalker
+
+Mon, 15 Jun 2026 21:00:19 GMT
+
+https://movieweb.com/star-wars-timeline-rise-of-skywalker/
+
+The Star Wars franchise might be moving past 'The Rise of Skywalker,' the 2019 movie directed by J.J. Abrams and starring Daisy Ridley.
+---------
+
+# Netflix Lands Perfect 'Off Campus' Replacement in New Series Adaptation
+
+TV News, Off Campus, Heated Rivalry, Netflix
+
+Mon, 15 Jun 2026 20:57:24 GMT
+
+https://movieweb.com/netflix-icebreaker-series-greenlit/
+
+Netflix may have found its answer to 'Heated Rivalry' and 'Off Campus' with an adaptation of Hannah Grace's 2022 hockey romance.
+---------
+
+# Jason Statham's New 100-Minute Action Thriller Is Global Streaming Smash Hit
+
+Movie News, Jason Statham, Action, Thriller, Shelter, Prime Video
+
+Mon, 15 Jun 2026 20:01:20 GMT
+
+https://movieweb.com/jason-statham-shelter-stream-prime-june-2026/
+
+The 2026 action thriller has defied box office failure to find success on streaming.
+---------
+
+# Best New Movies to Watch on Streaming Right Now
+
+Movie Lists, Streaming
+
+Mon, 15 Jun 2026 20:01:20 GMT
+
+https://movieweb.com/best-new-movies-watch-streaming-now/
+
+From Netflix to HBO Max, here are 50 unique and new movies to watch on streaming right now on every major platform.
+---------
+
+# 'The Lord of the Rings: The Hunt for Gollum' Officially Casts 'Mad Max' Star in Original Role
+
+Movie News, The Lord of the Rings: The Hunt for Gollum, Anya Taylor-Joy
+
+Mon, 15 Jun 2026 19:32:26 GMT
+
+https://movieweb.com/lord-of-the-rings-hunt-for-gollum-anya-taylor-joy/
+
+A 'Mad Max' star will now take on an original character for 2027's 'The Lord of the Rings: The Hunt for Gollum.'
+---------
+
 # Timothy Olyphant's New R-Rated Thriller Becomes Global Prime Video Streaming Sensation
 
 Movies, Masked Recs
