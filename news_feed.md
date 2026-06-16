@@ -1,3 +1,344 @@
+# Diablo Meets Kingdom Come In New Game You Can Try Free Now
+
+Gaming, RPG, Steam, PC, Indie
+
+Tue, 16 Jun 2026 02:01:13 GMT
+
+https://screenrant.com/wardens-of-avalan-steam-free-demo-diablo-inspired/
+
+A new RPG that mixes elements from Diablo and Kingdom Come is in the works, and if you’re interested in action RPGs, you may already test it for free.
+---------
+
+# X-Men 2 Was "Saved" By A 10-Year Old, Reveals Editor
+
+Movies, X2: X-Men United, Marvel, X-Men
+
+Tue, 16 Jun 2026 01:38:39 GMT
+
+https://screenrant.com/x-men-2-saved-by-10-year-old-john-ottman-explained/
+
+X-Men 2 editor John Ottman shared how a 10-year-old girl "saved" the 2003 Marvel movie by ensuring it didn't go through some specific edits.
+---------
+
+# Crunchyroll's Berserk Heir Is Back, And It's A Dark Fantasy Masterpiece
+
+Anime, Clevatess
+
+Tue, 16 Jun 2026 01:00:23 GMT
+
+https://screenrant.com/crunchyroll-berserk-successor-clevatess-season-2-episode-1-review/
+
+Clevatess is coming back to Crunchyroll for season 2 as a Summer 2026 headliner, setting up a brutal new arc ahead.
+---------
+
+# Marvel’s New Wolverine Story Has Great MCU Potential For The X-Men
+
+Superheroes, Wolverine, Marvel's Wolverine, Marvel Cinematic Universe, X-Men
+
+Tue, 16 Jun 2026 01:00:23 GMT
+
+https://screenrant.com/marvels-new-wolverine-story-has-great-mcu-potential-for-the-x-men/
+
+Some new story details for Marvel's Wolverine may have the right idea when it comes to the X-Men in the MCU following Avengers: Secret Wars.
+---------
+
+# The Elder Scrolls 6 Fans Have Officially Lost Their Poor Minds
+
+Gaming, The Elder Scrolls, The Elder Scrolls 6, PC
+
+Tue, 16 Jun 2026 01:00:23 GMT
+
+https://screenrant.com/elder-scrolls-6-release-gamers-losing-their-minds/
+
+After waiting for over eight years for The Elder Scrolls 6 to be released, fans have finally lost their minds and have begun acting strangely online.
+---------
+
+# Prime Video's 6-Season Sci-Fi Show Is So Good, It Resurrected A Dying Genre
+
+Streaming TV, Masked Recs
+
+Tue, 16 Jun 2026 00:30:21 GMT
+
+https://screenrant.com/the-expanse-prime-video-resurrected-space-opera-genre/
+
+A staple of sci-fi TV in the 1990s and 2000s felt old fashioned by the time the 2010s arrived, but a single series on Prime modernized it overnight.
+---------
+
+# Disclosure Day's Train Scene Is One Of The Best Stunts Spielberg Has Made In Years
+
+New Movies, Disclosure Day
+
+Tue, 16 Jun 2026 00:00:22 GMT
+
+https://screenrant.com/disclosure-day-train-scene-steve-spielberg-best-stunt/
+
+Director Steven Spielberg has been behind some of the best stunts cinema has ever seen, and Disclosure Day features his greatest in a long time
+---------
+
+# 10 Overlooked Sci-Fi Shows From The '90s You Didn't Know Were Great
+
+Classic TV
+
+Tue, 16 Jun 2026 00:00:22 GMT
+
+https://screenrant.com/sci-fi-tv-shows-1990s-overlooked-great/
+
+The 1990s had some truly great science fiction television shows that inspired modern series, but they have unfortunately faded into obscurity.
+---------
+
+# Clair Obscur Officially Returns November 2026
+
+Gaming, Clair Obscur: Expedition 33, RPG, PC
+
+Tue, 16 Jun 2026 00:00:22 GMT
+
+https://screenrant.com/clair-obscur-november-2026-new-release-confirmed/
+
+Fans of Clair Obscur: Expedition 33 can rejoice, as it is finally making a return in November 2026 with a brand-new and exciting piece of content.
+---------
+
+# 5 Strongest Weapons in the Masters of the Universe Franchise, Ranked
+
+Movies, Masters of the Universe
+
+Tue, 16 Jun 2026 02:45:14 GMT
+
+https://www.cbr.com/masters-of-the-universe-strongest-weapons-list/
+
+The Masters of the Universe franchise is no stranger to powerful artifacts and weapons, but some are nearly unstoppable powerhouses.
+---------
+
+# 10 Best Anime to Watch If You Loved Frieren
+
+Anime, Frieren: Beyond Journey's End, Violet Evergarden
+
+Tue, 16 Jun 2026 02:45:14 GMT
+
+https://www.cbr.com/best-anime-for-frieren-fans-list/
+
+Explore the emotional depths of these hit anime series that share Frieren's quiet strength and introspective themes.
+---------
+
+# Hugh Jackman Confirms Casting as Iconic Character in Ridley Scott Reboot
+
+Movies, Treasure Island
+
+Tue, 16 Jun 2026 02:43:59 GMT
+
+https://www.cbr.com/hugh-jackman-confirms-treasure-island-role/
+
+Hugh Jackman takes on a legendary character role in a new reboot from Ridley Scott.
+---------
+
+# 5 Forgotten Open-World Games That Are Masterpieces From Start to Finish
+
+Games, PlayStation 5, Xbox One, Steam, open world
+
+Tue, 16 Jun 2026 02:31:14 GMT
+
+https://www.cbr.com/forgotten-open-world-game-masterpieces-list/
+
+The land of open-world video games is heavily dominated by a select few titles, leaving these masterpieces to get lost in the shuffle.
+---------
+
+# Steam Officially Launching New Dark Shonen JRPG Hell's Paradise This July
+
+Anime, Hell's Paradise: Jigokuraku, Hell's Paradise, Shonen Jump
+
+Tue, 16 Jun 2026 02:01:01 GMT
+
+https://www.cbr.com/hells-paradise-jrpg-steam-july-2026-release/
+
+The dark shonen masterpiece Hell’s Paradise gets its first official JRPG, and it's coming soon to Steam.
+---------
+
+# Marvel Reveals Moon Knight’s Stunning Manga-Inspired Redesign
+
+Comics, Moon Knight
+
+Tue, 16 Jun 2026 02:01:01 GMT
+
+https://www.cbr.com/marvel-mangaverse-iron-knight-release-date-confirmed/
+
+Moon Knight's new look brings a bit of shonen magic to Marc Spector.
+---------
+
+# 10 Overlooked 2010s Movies That Are Already Cult Classics
+
+Movies, Drama, Action, Scott Pilgrim vs. the World
+
+Tue, 16 Jun 2026 02:01:01 GMT
+
+https://www.cbr.com/best-overlooked-2010s-cult-classic-movies-list/
+
+These secret 2010s movie masterpieces have already cemented themselves as modern cult classics.
+---------
+
+# 5 Masterpiece Anime Better Than Avatar: The Last Airbender
+
+Anime, Fullmetal Alchemist Brotherhood, Neon Genesis Evangelion, Avatar: The Last Airbender
+
+Tue, 16 Jun 2026 02:01:01 GMT
+
+https://www.cbr.com/5-masterpiece-anime-better-than-avatar-the-last-airbender/
+
+Avatar: The Last Airbender does a phenomenal job of driving home an emotional story, but these five masterpieces are better and more enjoyable.
+---------
+
+# Dexter: Resurrection Season 2 Quietly Confirms Its New Rita Replacement
+
+TV, Dexter: Resurrection, Crime, Paramount Plus
+
+Tue, 16 Jun 2026 02:01:01 GMT
+
+https://www.cbr.com/dexter-resurrection-s2-confirms-charley-new-rita-replacement/
+
+This character's unexpected return to Dexter: Resurrection and her surprising reunion with Dexter raise questions about their evolving relationship.
+---------
+
+# EA's In-Game Ads Are Officially the Beginning of the End for Gaming
+
+Games, EA, Gaming, Video Games
+
+Tue, 16 Jun 2026 01:45:13 GMT
+
+https://www.cbr.com/ea-in-game-ads-officially-beginning-of-end-for-gaming/
+
+It seems that change is in store for EA fans, but will the continued push to monetize destroy or save the gaming industry.
+---------
+
+# Netflix’s Controversial 10-Part Miniseries Hits a Viewership Nerve After 68.7M Hours
+
+TV Features, Teach You A Lesson, Netflix, Drama, Streaming
+
+Tue, 16 Jun 2026 01:47:14 GMT
+
+https://collider.com/netflix-teach-you-a-lesson-68-7-million-hours-viewed/
+
+Teach You a Lesson became a Netflix hit with 68.7 million hours viewed. Here’s why the controversial K-drama has struck a nerve.
+---------
+
+# 10 Must-Watch Surrealist Horror Movies Better Than ‘Backrooms’
+
+Movie, Backrooms, Horror, The Devils, Eraserhead
+
+Tue, 16 Jun 2026 01:38:13 GMT
+
+https://collider.com/surrealist-horror-movies-better-than-backrooms/
+
+Kane Parsons' surrealist horror Backrooms deserves its box-office success, but movies like Eraserhead, The Devils, and Jacob's Ladder are even better.
+---------
+
+# 3 Binge-Worthy Prime Video Series To Watch This Week (June 15-19)
+
+TV, Prime Video, The Peripheral, The Better Sister, Every Year After
+
+Tue, 16 Jun 2026 01:11:13 GMT
+
+https://collider.com/prime-video-shows-binge-week-june-15/
+
+What It Feels Like For a Girl, The Better Sister, and The Peripheral make our list of the best Prime Video series to watch the week of June 15, 2026.
+---------
+
+# Doctor Who Fans Have Less to Worry About After Russell T. Davies’ Exit
+
+TV Features, Doctor Who, BBC, Russell T. Davies
+
+Tue, 16 Jun 2026 00:52:14 GMT
+
+https://collider.com/doctor-who-cancellation-russell-t-davies-new-comments-details/
+
+Though Russell T. Davies is leaving Doctor Who, he's hinted that the series will return in some form.
+---------
+
+# The ‘Obsession’ Universe Could Be Horror’s Answer to the Greatest Anthology Series Ever Made
+
+TV Features, Obsession, Curry Barker, Horror
+
+Tue, 16 Jun 2026 00:52:14 GMT
+
+https://collider.com/obsession-curry-barker-anthology-television-series-wish/
+
+Curry Barker has an idea for an anthology tv series in the Obsession universe, and it would be perfect.
+---------
+
+# 10 Video Games That Will Keep You Hooked From Start to Finish
+
+Video Games, Video Game, Resident Evil 4, Batman: Arkham Asylum (dupe), God of War
+
+Tue, 16 Jun 2026 00:41:15 GMT
+
+https://collider.com/video-games-keep-you-hooked-start-to-finish/
+
+From Resident Evil 4 to Luigi's Mansion 3, these incredible video games successfully keep players entertained throughout their exciting narratives.
+---------
+
+# 10 Heaviest Psychological Thrillers
+
+Movie, Black Swan, Lake Mungo, Vertigo, Obsession
+
+Tue, 16 Jun 2026 00:09:14 GMT
+
+https://collider.com/heaviest-psychological-thriller-movies-ranked/
+
+The heaviest psychological thriller movies ever made include dark masterpieces like Vertigo, Black Swan, and The Killing of a Sacred Deer.
+---------
+
+# Peter Krause Officially Returns to TV 1 Year After ‘9-1-1’ Killed Bobby Nash
+
+TV News, 9-1-1, Peter Krause, Procedural, Drama
+
+Tue, 16 Jun 2026 00:00:14 GMT
+
+https://collider.com/peter-krause-post-911-new-series-line-of-duty-nbc/
+
+Over a year since Peter Krause left 9-1-1, he is set to return to television this fall with a new series. Get all the details here.
+---------
+
+# 8 TV Series Revivals That Were Actually Better Than the Original
+
+TV Lists, Twin Peaks
+
+Tue, 16 Jun 2026 02:01:13 GMT
+
+https://movieweb.com/tv-revivals-better-than-originals/
+
+From sitcoms to science fiction and drama, these TV revivals are even more memorable than their original shows.
+---------
+
+# Kathleen Kennedy Reveals Why Harrison Ford Made Final 'Indiana Jones'
+
+Movie News, Indiana Jones and the Dial of Destiny, Indiana Jones and the Kingdom of the Crystal Skull, Harrison Ford
+
+Tue, 16 Jun 2026 01:38:08 GMT
+
+https://movieweb.com/harrison-ford-final-indiana-jones-reveal/
+
+Harrison Ford returned for 'The Dial of Destiny' because he did not want 'Kingdom of the Crystal Skull' to be the final Indiana Jones film.
+---------
+
+# Netflix Confirms Fate of Star-Studded 90% RT-Rated Remake After Two Seasons
+
+TV News, The Four Seasons, Netflix
+
+Tue, 16 Jun 2026 01:08:10 GMT
+
+https://movieweb.com/netflix-the-four-seasons-renewed-season-3/
+
+The streamer seems confident in continuing 'The Four Seasons' and its critical acclaim.
+---------
+
+# Ranking Every Zack Snyder Franchise
+
+Movie Lists, Zack Snyder
+
+Tue, 16 Jun 2026 00:00:19 GMT
+
+https://movieweb.com/zack-snyder-franchises-ranked/
+
+Zack Snyder has been a part of four Hollywood franchises, including 'Justice League,' but which one is the best?
+---------
+
 # Suicide Squad Actor Reveals "Rough Improv" With Jared Leto's Joker
 
 Movies, Suicide Squad, Ike Barinholtz, Jared Leto
