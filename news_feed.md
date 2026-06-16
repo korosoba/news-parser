@@ -1,3 +1,443 @@
+# Warner Bros. Confirms New Film Adaptation Of Best-Selling Dystopian Thriller Book Series
+
+Movies, Warner Bros.
+
+Tue, 16 Jun 2026 18:08:23 GMT
+
+https://screenrant.com/shatter-me-tahereh-mafi-warner-bros-movie-adaptation/
+
+Warner Bros. is back with another book adaptation, and this time it is a movie based on the best-selling dystopian thriller novel series.
+---------
+
+# Genshin Impact's Worst Element Is Getting Nerfed Again
+
+Gaming, Genshin Impact, PC, Live Service Games
+
+Tue, 16 Jun 2026 18:04:20 GMT
+
+https://screenrant.com/genshin-impact-67-leaks-cryo-nerfed-stellar/
+
+One of the worst-treated elements in Genshin Impact may be getting a minor nerf in Version 6.7, according to brand-new leaks about the patch.
+---------
+
+# The Justice League Are Finally Set To Get The Game They Deserve
+
+Gaming, Justice League, LEGO Batman: Legacy of the Dark Knight, PC
+
+Tue, 16 Jun 2026 18:00:21 GMT
+
+https://screenrant.com/batman-legacy-dark-knight-justice-league-sequel-hopes/
+
+After an excruciatingly long wait, fans can finally rejoice, as it seems like the Justice League may finally be getting their own game.
+---------
+
+# Bosch's Biggest Book Change Is The Reason Prime Video's Detective Series Spawned 3 Spinoffs
+
+TV, Bosch
+
+Tue, 16 Jun 2026 18:00:21 GMT
+
+https://screenrant.com/bosch-book-change-prime-video-series-spinoffs/
+
+A shocking change: Amazon's iconic detective show Bosch altered a major part of Titus Welliver's character, and this change saved the entire series.
+---------
+
+# Shrek 5 Trailer Gets Official Audience Verdict After Design Backlash Pushed Movie's Release
+
+Movies, Shrek 5, Shrek
+
+Tue, 16 Jun 2026 17:59:39 GMT
+
+https://screenrant.com/shrek-5-trailer-reactions/
+
+Shrek 5 won’t be released in theaters until 2027, but fans already have strong reactions after seeing the teaser trailer from DreamWorks.
+---------
+
+# Gore Verbinski's New R-Rated Sci-Fi Movie Is Officially Releasing On Hulu This Week
+
+Movies, Good Luck, Have Fun, Don't Die
+
+Tue, 16 Jun 2026 17:58:15 GMT
+
+https://screenrant.com/gore-verbinski-good-luck-have-fun-dont-die-movie-hulu-streaming-release/
+
+Pirates of the Caribbean director Gore Verbinski's new R-rated sci-fi movie is officially releasing on Hulu and Disney+ later this week.
+---------
+
+# The Roku We Knew Is Officially Gone
+
+Streaming TV, Roku
+
+Tue, 16 Jun 2026 17:51:22 GMT
+
+https://screenrant.com/fox-acquisition-changes-roku-forever/
+
+Roku's traditional position as a neutral platform could change under thanks to new ownership, and it could seriously shake up the streaming industry.
+---------
+
+# You Can Watch Marvel's Best TV Show For Free On YouTube
+
+Streaming TV, Masked Recs
+
+Tue, 16 Jun 2026 17:50:19 GMT
+
+https://screenrant.com/watch-x-men-97-season-1-free-youtube-before-season-2/
+
+Marvel released the first two episodes of X-Men '97 season 1 for free on YouTube, presumably as a marketing strategy ahead of season 2's premiere.
+---------
+
+# 2 Years Later, Smile Confirms Genre Change For Next Big Release
+
+Comics, Smile
+
+Tue, 16 Jun 2026 17:41:36 GMT
+
+https://screenrant.com/smile-return-genre-change-any-given/
+
+The Entity takes on professional football.
+---------
+
+# Prime Video's New 8-Part Series Based On A Book Dethrones Its Biggest Competition For #1
+
+TV, Masked Recs
+
+Tue, 16 Jun 2026 17:39:58 GMT
+
+https://screenrant.com/every-year-after-prime-video-streaming-success-number-one-off-campus/
+
+Prime Video's new eight-part series based on a bestselling book officially dethrones its biggest competition to become the No. 1 show in the world.
+---------
+
+# Bob Odenkirk Officially Returns as Saul Goodman 4 Years After Better Call Saul
+
+TV, Better Call Saul
+
+Tue, 16 Jun 2026 18:10:40 GMT
+
+https://www.cbr.com/better-call-saul-bob-odenkirk-return-america-250/
+
+Bob Odenkirk's Saul Goodman makes an unexpected comeback joined by another Breaking Bad fan favorite.
+---------
+
+# Miraculous Officially Reveals 6 Unexpected Collabs for Ladybug & Cat Noir Fans
+
+Anime, Miraculous: Tales of Ladybug & Cat Noir
+
+Tue, 16 Jun 2026 18:03:48 GMT
+
+https://www.cbr.com/miraculous-ladybug-cat-noir-new-collabs-2026/
+
+Miraculous Corp. is teaming up with nearly a dozen beloved brands this year to bring Ladybug & Cat Noir to a wider range of audiences than ever before
+---------
+
+# DC Just Replaced the Joker as Batman’s Most Terrifying Villain
+
+Comics, Catwoman, Batman
+
+Tue, 16 Jun 2026 18:00:14 GMT
+
+https://www.cbr.com/the-joker-replaced-black-mask-batmans-darkest-villain/
+
+The Joker's antics look tame in comparison to the unthinkable horrors Batman's latest villain just unleashed.
+---------
+
+# The Vampire Chronicles Reading Order: Where to Start With Anne Rice's Vampire Saga
+
+TV, Interview with the Vampire, Fantasy, Horror
+
+Tue, 16 Jun 2026 17:30:34 GMT
+
+https://www.cbr.com/anne-rice-the-vampire-chronicles-reading-order-list/
+
+The Vampire Chronicles spans more than 4 decades and includes over 10 novels, some of which are crossovers with another Anne Rice series.
+---------
+
+# 10 Best Games for Couples, Ranked
+
+Games, Multiplayer Games, It Takes Two, Minecraft.
+
+Tue, 16 Jun 2026 17:16:14 GMT
+
+https://www.cbr.com/official-best-video-games-for-couples/
+
+Games like It Takes Two and Stardew Valley are absolutely perfect for couples of all skill levels.
+---------
+
+# 25 Strongest MTG Commander Decks, Ranked
+
+Games, Magic The Gathering, TCG
+
+Tue, 16 Jun 2026 17:16:14 GMT
+
+https://www.cbr.com/mtg-strongest-commander-format-decks/
+
+A handful of powerful MTG decks have risen to the top as the Commander format's very best, and those looking to dominate the table should take heed.
+---------
+
+# David Tennant's Hulu Sleeper Hit Scores Season 3 Renewal Ahead of Season 2 Finale
+
+TV, Rivals
+
+Tue, 16 Jun 2026 16:59:24 GMT
+
+https://www.cbr.com/hulu-renews-david-tennant-rivals-season-3/
+
+David Tennant is everywhere, but he'll also return in his underseen Hulu show.
+---------
+
+# Only 3 Movies Have More Epic Battles Than The Lord of The Rings
+
+Movies, The Lord of the Rings
+
+Tue, 16 Jun 2026 16:30:14 GMT
+
+https://www.cbr.com/movies-with-better-battles-than-the-lord-of-the-rings-list/
+
+The Lord of the Rings Trilogy has some of the greatest battles ever put to screen. Only these films deliver even better battle sequences.
+---------
+
+# Shrek 5 Unveils New Trailer 1 Year Ahead of Release
+
+Movies, Shrek 5, Shrek
+
+Tue, 16 Jun 2026 16:26:49 GMT
+
+https://www.cbr.com/shrek-5-new-trailer/
+
+More than a year after the first Shrek 5 teaser stirred up controversy, DreamWorks releases a new trailer for the animated sequel.
+---------
+
+# 10 Times Zoro Was Scarier Than One Piece's Villains
+
+Anime, One Piece
+
+Tue, 16 Jun 2026 16:15:13 GMT
+
+https://www.cbr.com/one-piece-zoro-scarier-than-villains/
+
+Roronoa Zoro has often been far more terrifying than most villains in One Piece
+---------
+
+# Quentin Tarantino's First Movie in 7 Years Officially Hits Theaters Thanks to Netflix
+
+Movie News, Once Upon a Time in Hollywood, Quentin Tarantino, The Adventures of Cliff Booth, Brad Pitt
+
+Tue, 16 Jun 2026 18:00:14 GMT
+
+https://collider.com/cliff-booth-movie-release-date-theaters-quentin-tarantino/
+
+Brad Pitt’s The Adventures of Cliff Booth sets IMAX and Netflix release dates, with David Fincher directing Quentin Tarantino’s script.
+---------
+
+# 6 Movie Directors Who Went From Comedy to Horror
+
+Movie, Jordan Peele, Zach Cregger, Curry Barker, Danny Philippou
+
+Tue, 16 Jun 2026 17:52:14 GMT
+
+https://collider.com/movie-directors-comedy-to-horror/
+
+Directors like Jordan Peele, Zach Cregger, and Curry Barker all established themselves in comedy, but went on to find success as horror filmmakers.
+---------
+
+# One of Metal’s Biggest Bands Covered Fleetwood Mac, and No One Noticed
+
+Music Features, Fleetwood Mac, Rock, Metal, Mick Fleetwood and Friends: Celebrate the Music of Peter Green and the Early Years of Fleetwood Mac
+
+Tue, 16 Jun 2026 17:50:15 GMT
+
+https://collider.com/judas-priest-covered-fleetwood-mac-cover-peter-green-green-manalishi/
+
+When Judas Priest pulled up a Fleetwood Mac deep cut, they remade it into a metal classic.
+---------
+
+# Sherlock Holmes Returns to TV With New Adults-Only Series
+
+TV News, Sherlock Holmes, Young Sherlock, Prime Video, Animation
+
+Tue, 16 Jun 2026 17:40:23 GMT
+
+https://collider.com/sherlock-holmes-returns-to-television-with-brand-new-series/
+
+A new mature Sherlock Holmes series is in development from Harry King Television and Shrek producer David Lipman.
+---------
+
+# 'The Boys' Co-Creator Officially Returns With a New Sci-Fi Superhero Series
+
+TV News, The Boys, Comic Book, Darick Robertson, Superhero
+
+Tue, 16 Jun 2026 17:30:44 GMT
+
+https://collider.com/prime-video-the-boys-replacement-co-creator-darick-robertson-sci-fi-superhero/
+
+Following the series finale of the Prime Video series, The Boys co-creator Darick Robertson is returning to the sci-fi superhero genre.
+---------
+
+# Prime Video’s Navy SEAL Action Thriller Returns in Less Than 6 Months
+
+TV News, The Terminal List, Chris Pratt, Prime Video, The Terminal List: Dark Wolf
+
+Tue, 16 Jun 2026 17:24:34 GMT
+
+https://collider.com/prime-video-chris-pratt-the-terminal-list-season-2-release-date-october-21-2026/
+
+Prime Video's hardcore action thriller led by Chris Pratt officially returns to streaming in less than six months.
+---------
+
+# Netflix's New 'Reacher' Replacement Is the Most Brutal Series on TV
+
+TV News, Netflix, Teach You A Lesson, Reacher, Streaming
+
+Tue, 16 Jun 2026 17:19:52 GMT
+
+https://collider.com/teach-you-a-lesson-global-streaming-hit-june-2026/
+
+Discover the most-watched series on Netflix, Teach You a Lesson, a brutal new must-watch Reacher replacement taking over the world.
+---------
+
+# Apple TV's New 'Slow Horses' Replacement Is a Gritty Spy Thriller From 'Homeland's Creator
+
+TV News, Slow Horses, Homeland, Thriller, Apple TV
+
+Tue, 16 Jun 2026 17:17:37 GMT
+
+https://collider.com/new-apple-tv-spy-thriller-homeland-creator-gideon-raff-safe-houses/
+
+Homeland creator Gideon Raff is teaming with Apple TV for a brand-new spy thriller that's a must-watch for Slow Horses fans.
+---------
+
+# DCU Star’s New Body-Hacking Sci-Fi Thriller Officially Sets Digital Release Date With First Trailer [Exclusive]
+
+Movie News, Frank Grillo, Harvey Keitel, Tyrese Gibson, Science Fiction
+
+Tue, 16 Jun 2026 17:00:14 GMT
+
+https://collider.com/kill-code-trailer-frank-grillo-action-movie/
+
+Frank Grillo, Tyrese Gibson, and Harvey Keitel star in the sci-fi cyberpunk thriller Kill Code. Watch the trailer now.
+---------
+
+# Harlan Coben's New Netflix Thriller Officially Arrives in Less Than 48 Hours
+
+TV News, I Will Find You, Harlan Coben, Netflix, Mystery
+
+Tue, 16 Jun 2026 16:56:54 GMT
+
+https://collider.com/netflix-harlan-coben-mystery-series-i-will-find-you-premiere-date-june-18-2026/
+
+Netflix will release its next mystery thriller from the legendary Harlan Coben on June 18. Get all the details here.
+---------
+
+# New 'X-Men' Reboot Is Officially Breaking MCU Rules With a "Big Swing"
+
+Movie News, MCU, X-Men
+
+Tue, 16 Jun 2026 18:04:20 GMT
+
+https://movieweb.com/x-men-reboot-mcu-big-swing/
+
+The new 'X-Men' film is not playing it safe in the MCU according to writer Lee Sung Jin, the creator behind Netflix's 'Beef.'
+---------
+
+# Hulu’s Masterpiece Thriller Has a Great Cast That’s About to Get Even Better
+
+Features, Only Murders in the Building
+
+Tue, 16 Jun 2026 18:00:19 GMT
+
+https://movieweb.com/only-murders-building-season-6-best-cast/
+
+Hulu's popular series, which has five seasons so far, has an incredible cast, and several new actors have been added for the upcoming season.
+---------
+
+# HBO Max's New #1 Action Thriller Is "Closest We’ll Ever Get to Kill Bill 3"
+
+Movie News, They Will Kill You, HBO Max, Action, Thriller, Horror
+
+Tue, 16 Jun 2026 18:00:19 GMT
+
+https://movieweb.com/hbo-max-they-will-kill-you-stream-june-2026/
+
+The action genre mash-up has also been summed up as "John Wick by way of Looney Tunes."
+---------
+
+# Tom Holland Picks Major Netflix Star as New Peter Parker Spider-Man
+
+Movie News, Spider-Man, Tom Holland, Netflix
+
+Tue, 16 Jun 2026 17:56:26 GMT
+
+https://movieweb.com/spider-man-tom-holland-owen-cooper-netflix/
+
+Tom Holland already has somebody in mind to take over the role of Peter Parker/Spider-Man from him in the MCU.
+---------
+
+# 'Jurassic Park' Meets 'Tombstone' In New Sci-Fi Western Where Cowboys Ride Dinosaurs
+
+Movie News, Primitive War, Action
+
+Tue, 16 Jun 2026 17:46:44 GMT
+
+https://movieweb.com/primitive-war-dinosaurs-wild-west-teaser/
+
+The team behind 'Primitive War' is back with a wild follow-up project that puts dinosaurs in a bold new setting.
+---------
+
+# 'Project Hail Mary' Meets 'Arrival' Sci-Fi Space Thriller Sets U.S. Release
+
+Movie News, Sci-Fi, Orion, Project Hail Mary, Arrival
+
+Tue, 16 Jun 2026 17:45:18 GMT
+
+https://movieweb.com/orion-us-theatrical-release/
+
+'Orion' could be exactly the kind of original, independent sci-fi story audiences are looking for.
+---------
+
+# Bradley Cooper To Lead New Cop Thriller Set During January 6 From Director Sean Penn
+
+Movie News, Bradley Cooper, Sean Penn
+
+Tue, 16 Jun 2026 17:09:35 GMT
+
+https://movieweb.com/bradley-cooper-sean-penn-january-6-cop-thriller/
+
+Sean Penn has written and is set to direct a biographical drama about the Jan. 6 Capitol riots, with Bradley Cooper in talks to lead.
+---------
+
+# Another Cult Classic Sci-Fi Icon Meets Unfortunate Star Wars Fate
+
+Features, Ahsoka, Star Wars, Farscape
+
+Tue, 16 Jun 2026 17:00:20 GMT
+
+https://movieweb.com/star-wars-ahsoka-claudia-black-exit/
+
+Two members of the 'Farscape' cast have now had brief forays into the Star Wars universe. Read on for more.
+---------
+
+# Mike Myers Officially Returns as Iconic 'Austin Powers' Character in New Video
+
+Movie News, Austin Powers, Mike Myers
+
+Tue, 16 Jun 2026 16:55:05 GMT
+
+https://movieweb.com/mike-myers-austin-powers-return-verizon-ad/
+
+Mike Myers has officially returned as his iconic character Dr. Evil in a new Verizon commercial, reuniting him with his 'Austin Powers' co-stars.
+---------
+
+# Disney Finally Unleashes Stunning First Trailer for Magical Fantasy Epic
+
+Movie News, Hexed, Disney
+
+Tue, 16 Jun 2026 16:27:33 GMT
+
+https://movieweb.com/hexed-disney-first-trailer/
+
+Disney officially released the first full trailer for one of its final movies of the year, 'Hexed,' unveiling a new magical world.
+---------
+
 # Steam Machine Price And Pre-Orders Narrowed Down, Mark Your Calendars
 
 Gaming, Steam, Triple-A Games
