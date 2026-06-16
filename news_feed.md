@@ -1,3 +1,421 @@
+# Star Wars Changes Ahsoka Tano's Role In The Galaxy
+
+Streaming TV, Masked Recs
+
+Tue, 16 Jun 2026 21:15:22 GMT
+
+https://screenrant.com/star-wars-ahsoka-tano-more-important-than-ever/
+
+Ahsoka Tano has become the single most important character for the future of live-action Star Wars shows as the franchise pivots to theatrical movies.
+---------
+
+# The Boys' OG Creator Officially Joins New Superhero TV Adaptation Based On Action Comic Series
+
+TV
+
+Tue, 16 Jun 2026 21:12:24 GMT
+
+https://screenrant.com/crestar-knight-stallion-tv-series-darick-robertson-writing-update/
+
+Following the series finale of The Boys, the co-creator of the comics has joined a new superhero universe based on an existing comics series.
+---------
+
+# The Walking Dead Director Officially Adapting New Horror Adaptation Based On Comic Series
+
+TV
+
+Tue, 16 Jun 2026 21:09:33 GMT
+
+https://screenrant.com/black-diamond-movie-adaptation-development-ernest-dickerson/
+
+Veteran horror director Ernest Dickerson, known for his work on The Walking Dead, is set to direct the feature film adaptation of Black Diamond.
+---------
+
+# 10 Highest Rated Anime On Crunchyroll (#1 Beats One Piece)
+
+Anime, Crunchyroll
+
+Tue, 16 Jun 2026 21:05:54 GMT
+
+https://screenrant.com/highest-rated-anime-crunchyroll/
+
+While classics like One Piece remain incredibly popular, a recent fantasy hit has officially claimed the title of Crunchyroll's highest-rated anime.
+---------
+
+# Every Actor In The Glee Cast Who Passed Away
+
+Classic TV, Glee
+
+Tue, 16 Jun 2026 21:00:24 GMT
+
+https://screenrant.com/glee-cast-who-passed-away-actors/
+
+There have been many members of the Glee cast who have passed away, and several for tragic reasons, but they actors have all left impressive legacies.
+---------
+
+# Sword Art Online Officially Returns July 2026 With An All-New Adventure
+
+Gaming, Sword Art Online, PC
+
+Tue, 16 Jun 2026 21:00:22 GMT
+
+https://screenrant.com/sword-art-online-echoes-of-aincrad-release-date/
+
+The legendary anime Sword Art Online is making a return in July 2026 with a brand-new experience that is sure to delight fans and newcomers alike.
+---------
+
+# Prime Video's Best Action Thriller Is So Good, It Has 4 Seasons And A Movie
+
+Streaming TV, Masked Recs
+
+Tue, 16 Jun 2026 21:00:22 GMT
+
+https://screenrant.com/prime-video-best-action-thriller-jack-ryan-4-seasons-movie/
+
+There's no shortage of great action-heavy TV shows on Prime Video, but one thriller made the leap to feature-length releases for an epic finale.
+---------
+
+# DC’s Hit 3-Part Superman Series Returns With New Episodes As Global HBO Max Streaming Sensation
+
+TV, Masked Recs, HBO Max
+
+Tue, 16 Jun 2026 20:58:04 GMT
+
+https://screenrant.com/my-adventures-with-superman-season-3-hbo-max-streaming-success-june-2026/
+
+DC Studios' official Superman TV show has finally returned from its long hiatus and is now already a worldwide streaming success on HBO Max.
+---------
+
+# HBO’s 6-Part True-Crime Adaptation With Perfect RT Score Is Basically A Prequel To The Wire
+
+Streaming TV, Masked Recs
+
+Tue, 16 Jun 2026 20:30:23 GMT
+
+https://screenrant.com/the-corner-hbo-the-wire-prequel-david-simon/
+
+HBO's lesser-known series, The Corner, paved the way for The Wire's groundbreaking exploration of urban issues, sharing cast members & a raw approach.
+---------
+
+# 18 Years Later, DC's The Dark Knight Has Found Its Match
+
+Movies, Masked Recs
+
+Tue, 16 Jun 2026 20:16:13 GMT
+
+https://screenrant.com/the-batman-part-2-dark-knight-match/
+
+The Dark Knight has been the absolute peak for DC's cinematic ventures for nearly two decades, but things are about to change in a big way.
+---------
+
+# 5 Forgotten PS1 RPGs That Are Officially 10/10, No Notes
+
+Games, Suikoden I&II HD Remaster Gate Rune and Dunan Unification Wars, Star Ocean: The Second Story, PlayStation (Original)
+
+Tue, 16 Jun 2026 21:16:15 GMT
+
+https://www.cbr.com/forgotten-ps1-rpgs-officially-flawless-start-to-finish/
+
+The Playstation era was a success for the RPG genre, but with a vast library and exceptional masterpieces, these five titles slipped under the radar.
+---------
+
+# New 113-Minute Martial Arts Masterpiece Has Critics & Audiences in Agreement on Rotten Tomatoes
+
+Movies, The Furious, Action
+
+Tue, 16 Jun 2026 21:13:35 GMT
+
+https://www.cbr.com/the-furious-rotten-tomatoes-score-audience/
+
+Critics and fans are united in their praise of the new martial arts epic.
+---------
+
+# The 5 Most Underrated Disney Villain Songs Ever, Ranked
+
+Movies, Disney, Disney+, Fantasy
+
+Tue, 16 Jun 2026 21:00:14 GMT
+
+https://www.cbr.com/disney-villain-songs-no-one-remembers-list/
+
+These songs sung by villains are some of the most underrated options in all of Disney's animated movies.
+---------
+
+# The Death of Robin Hood: Bill Skarsgård Explains That Hugh Jackman Moment
+
+Movies, The Death of Robin Hood
+
+Tue, 16 Jun 2026 20:30:16 GMT
+
+https://www.cbr.com/video/the-death-of-robin-hood-bill-skarsgrd-explains-that-hugh-jackman-moment/
+
+The Death of Robin Hood cast reveals the surprising behind-the-scenes stories fans won’t expect. Jodie Comer, Bill Skarsgård, and Murray Bartlett discuss their characters, unforgettable transformations, and the now-infamous scene where Bill Skarsgård and Hugh Jackman cover themselves in dirt to hide their scent.
+---------
+
+# 5 Once-Great Cartoons That Lasted Way Too Long (& Went Downhill)
+
+TV, cartoons, Family Guy, Adventure Time, animated
+
+Tue, 16 Jun 2026 20:30:16 GMT
+
+https://www.cbr.com/great-tv-cartoon-shows-went-downhill-list/
+
+From Adventure Time to Family Guy, many cartoon series were once so great but have now lost what once made them special.
+---------
+
+# 10 Found Footage Movies Better Than Backrooms
+
+Movies, Backrooms, Paranormal, The Deep House, The Visit, Creep, Chronicle, [REC], Spree, Cloverfield, Skinamarink, The Blair Witch Project
+
+Tue, 16 Jun 2026 20:30:16 GMT
+
+https://www.cbr.com/found-footage-movies-better-than-backrooms-list/
+
+Backrooms has become A24's highest-grossing movie, and its found footage elements are brilliant, reminding us of some amazing found footage films.
+---------
+
+# Death Stranding Movie Director Reveals First Details About Film's Story
+
+Movies, Death Stranding, Sci-Fi
+
+Tue, 16 Jun 2026 20:24:53 GMT
+
+https://www.cbr.com/death-stranding-movie-story-details/
+
+Director Michael Sarnoski has teased his brand-new take on the acclaimed game in a new interview.
+---------
+
+# 10 '90s Anime That Predicted Modern Society
+
+Anime, Cowboy Bebop, Neon Genesis Evangelion, Sailor Moon, Dragon Ball Z
+
+Tue, 16 Jun 2026 20:15:42 GMT
+
+https://www.cbr.com/90s-anime-officially-predicted-modern-society/
+
+Several of the best sci-fi anime from the '90s made accurate predictions about technology and society today.
+---------
+
+# Netflix Officially Announces the End of an Era for Gilmore Girls
+
+TV, Gilmore Girls
+
+Tue, 16 Jun 2026 20:12:42 GMT
+
+https://www.cbr.com/gilmore-girls-leaving-netflix-june-2026/
+
+It's not fall yet, but a Gilmore Girls rewatch is now a must.
+---------
+
+# Disney Announces New Home Alone Special but There's a Catch
+
+TV, Home Alone, Mickey Mouse, Disney
+
+Tue, 16 Jun 2026 20:07:53 GMT
+
+https://www.cbr.com/disney-mickey-home-alone-christmas-special/
+
+Disney revisits Home Alone with an all-new special with a twist.
+---------
+
+# Netflix’s Overlooked 2-Part Sci-Fi Series Is the Perfect Weekend Binge
+
+Movie Features, Rebel Moon – Part One: A Child of Fire, Rebel Moon, Zack Snyder, Netflix
+
+Tue, 16 Jun 2026 21:23:14 GMT
+
+https://collider.com/netflixs-overlooked-2-part-sci-fi-series-is-the-perfect-weekend-binge/
+
+Zack Snyder put his own spin on the space opera with the Rebel Moon films, which make for a solid weekend watch.
+---------
+
+# 12 Best TV Shows Ending in 2026
+
+TV, TV Series, The Boys
+
+Tue, 16 Jun 2026 19:44:14 GMT
+
+https://collider.com/best-tv-shows-ending-2026/
+
+Hacks, Emily in Paris, The Boys, Outlander, and more make up our list of the best TV shows ending in 2026.
+---------
+
+# ‘The Pitt’ Star Teases a “Twin-Flame” Dynamic Coming in Season 3 [Exclusive]
+
+TV News, The Pitt, HBO Max, Noah Wyle, Patrick Ball
+
+Tue, 16 Jun 2026 19:31:29 GMT
+
+https://collider.com/the-pitt-season-3-patrick-ball-dr-parker-ellis-series-regular-promotion/
+
+The Pitt star Patrick Ball speaks out on Ayesha Harris being promoted to a series regular as Dr. Parker Ellis in The Pitt Season 3.
+---------
+
+# 10 Sci-Fi Movies Without a Single Flaw
+
+Movie, Science Fiction, Project Hail Mary, 2001: A Space Odyssey, Blade Runner
+
+Tue, 16 Jun 2026 19:23:15 GMT
+
+https://collider.com/best-sci-fi-movies-no-flaws/
+
+From blockbuster smash hits like Star Wars to international gems like Stalker, these sci-fi movie sensations represent the genre at its most flawless.
+---------
+
+# Jack Reacher Creator Exits Series
+
+TV News, Reacher, Jack Reacher, Lee Child, Alan Ritchson
+
+Tue, 16 Jun 2026 19:17:20 GMT
+
+https://collider.com/reacher-creator-lee-child-exits-book-series/
+
+Ahead of Season 4 of the Prime Video series, Reacher creator Lee Child is saying goodbye to Alan Ritchson's hit franchise.
+---------
+
+# ‘Shang-Chi 2’ Is Still Happening After 5 Years of Silence
+
+Movie News, Shang-Chi and the Legend of the Ten Rings, Destin Daniel Cretton, MCU, Marvel Studios
+
+Tue, 16 Jun 2026 19:07:20 GMT
+
+https://collider.com/shang-chi-2-sequel-update-director-destin-daniel-cretton/
+
+MCU filmmaker Destin Daniel Cretton reveals that Shang-Chi 2 is still in development, five years after the sequel was officially announced.
+---------
+
+# ‘The Wheel of Time’ Is Officially Returning After Shock Prime Video Series Cancellation
+
+TV News, The Wheel of Time, Robert Jordan, Game Of Thrones, Brandon Sanderson
+
+Tue, 16 Jun 2026 18:57:36 GMT
+
+https://collider.com/the-wheel-of-time-producers-fantasy-franchise-reboot-animated-series-movies-video-games/
+
+The Wheel of Time franchise is officially returning with new animated series, feature films, and a video game after the Prime Video show ended.
+---------
+
+# 'Spider-Man: Brand New Day' Could Be the End of an Era for Tom Holland
+
+Movie News, Spider-Man: Brand New Day, Destin Daniel Cretton, Marvel, Tom Holland
+
+Tue, 16 Jun 2026 18:38:44 GMT
+
+https://collider.com/spider-man-brand-new-day-final-movie-tease-director-destin-daniel-cretton/
+
+Spider-Man: Brand New Day director Destin Daniel Cretton teases the upcoming movie could be Tom Holland's last solo film in the MCU.
+---------
+
+# Anne Hathaway Is Officially the Star of a $1B Franchise
+
+Movie News, Anne Hathaway, The Devil Wears Prada 2, Box Office, The Devil Wears Prada
+
+Tue, 16 Jun 2026 18:20:14 GMT
+
+https://collider.com/anne-hathaway-the-devil-wears-prada-franchise-1-billion-dollars/
+
+Anne Hathaway and Meryl Streep's star power propels The Devil Wears Prada franchise into the billion-dollar club, joining elite box office ranks.
+---------
+
+# IT: Welcome to Derry: The Secret Behind Pennywise’s Yellow Eyes | Collider BTS
+
+TV, It: Welcome to Derry
+
+Tue, 16 Jun 2026 18:15:13 GMT
+
+https://collider.com/video/it-welcome-to-derry-the-secret-behind-pennywise-s-yellow-eyes-collider-bts/
+
+Discover how IT: Welcome to Derry created Pennywise’s terrifying yellow eyes, with behind-the-scenes insights into the makeup, visual effects, and horror design choices that bring Stephen King’s iconic monster back to life.
+---------
+
+# Bob Odenkirk Returns as Saul Goodman To Celebrate America in New Video
+
+TV News, Bob Odenkirk, Better Call Saul, Breaking Bad
+
+Tue, 16 Jun 2026 20:58:29 GMT
+
+https://movieweb.com/bob-odenkirk-returns-saul-goodman/
+
+Before America turns 250, Saul Goodman wants you to know your rights.
+---------
+
+# Amazon Lands New Jason Momoa 'Taken' Meets 'True Lies' Action Film
+
+Movie News, Jason Momoa
+
+Tue, 16 Jun 2026 20:15:57 GMT
+
+https://movieweb.com/amazon-mgm-jason-momoa-action-shot-shot-shot/
+
+Amazon has officially landed a new action adventure film starring Jason Momoa titled 'Shot! Shot! Shot!.'
+---------
+
+# Louis C.K.'s New Netflix Project Officially Sets Streaming Release Date
+
+TV News, Louis C.K., Comedy, Netflix
+
+Tue, 16 Jun 2026 20:04:05 GMT
+
+https://movieweb.com/louis-ck-netflix-ridiculous-release-date/
+
+'Ridiculous' will land on Netflix very soon.
+---------
+
+# Netflix's 109-Minute Original Action Thriller Is Officially One of the Biggest Streaming Hits Ever
+
+Movie News, Exterritorial, Action, Thriller, Netflix
+
+Tue, 16 Jun 2026 20:00:20 GMT
+
+https://movieweb.com/netflix-exterritorial-most-watched-ever-stream-action/
+
+It's easily summed up as a twisty-turny 'Taken' meets 'The Raid' and has now cemented itself as one of Netflix's biggest hits of all time.
+---------
+
+# Every Clone Wars Character Who Appears in 'The Mandalorian & Grogu'
+
+Movie Lists, The Mandalorian and Grogu, Star Wars: The Clone Wars, Star Wars
+
+Tue, 16 Jun 2026 20:00:20 GMT
+
+https://movieweb.com/clone-wars-characters-mandalorian-grogu/
+
+'The Mandalorian & Grogu,' the latest Star Wars movie that stars Jeremy Allen White and Pedro Pascal, also has some Clone Wars characters.
+---------
+
+# Daniel Craig's 'Narnia' Reboot Rewriting Netflix Rules With New Release Update
+
+Movie News, Narnia: The Magician's Nephew, The Chronicles of Narnia
+
+Tue, 16 Jun 2026 19:47:24 GMT
+
+https://movieweb.com/daniel-craig-greta-gerwig-narnia-sony-netflix-release-deal/
+
+Netflix announced that Sony will handle the international theatrical distribution for Greta Gerwig and Daniel Craig's 'Narnia' reboot.
+---------
+
+# The Hugh Jackman Action Thriller Everyone Waited For Gets Released This Week
+
+Features, The Death of Robin Hood, Hugh Jackman, Upcoming Tease
+
+Tue, 16 Jun 2026 19:00:22 GMT
+
+https://movieweb.com/death-of-robin-hood-hugh-jackman-release/
+
+Hugh Jackman's upcoming historical action thriller movie is finally being released this week after much anticipation.
+---------
+
+# 'Toy Story 5' RT Score Officially Makes It the Highest Rated Franchise of All Time
+
+Movie News, Toy Story 5, Toy Story, Pixar
+
+Tue, 16 Jun 2026 18:39:46 GMT
+
+https://movieweb.com/toy-story-5-rotten-tomatoes-score/
+
+The latest Pixar sequel continues its impressive legacy, despite the slight downgrade from previous installments.
+---------
+
 # Warner Bros. Confirms New Film Adaptation Of Best-Selling Dystopian Thriller Book Series
 
 Movies, Warner Bros.
