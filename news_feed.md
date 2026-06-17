@@ -1,3 +1,443 @@
+# Game Of Thrones Has Officially Changed Format For 2026 Return
+
+Streaming TV, Masked Recs
+
+Wed, 17 Jun 2026 19:30:22 GMT
+
+https://screenrant.com/game-of-thrones-franchise-new-format-spinoffs-episode-count/
+
+The latest entry in the Game of Thrones universe comes out this summer, and it's enshrining a change that has happened to the series over the years.
+---------
+
+# House Of The Dragon Season 3 Officially Changes Game Of Thrones' Most Iconic Series Tradition With Dark Return
+
+TV, House of the Dragon, Game of Thrones
+
+Wed, 17 Jun 2026 19:23:58 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-theme-song-change-game-of-thrones-hbo/
+
+House of the Dragon season 3 will officially change Game of Thrones' most iconic series tradition with a dark return as the first episode looms.
+---------
+
+# Woody's Original Absence From Toy Story 5 & Decision Reversal Explained By Pixar And Tom Hanks
+
+Movies, Toy Story 5, Toy Story, Pixar, Tom Hanks
+
+Wed, 17 Jun 2026 19:22:39 GMT
+
+https://screenrant.com/toy-story-5-no-woody-script-plan-reversed-harris-collins-hanks/
+
+Exclusive: Tom Hanks, Kenna Harris and Lindsey Collins explain Woody's original absence from Toy Story 5 and why they reversed that plan.
+---------
+
+# The Death Of Robin Hood Review: Hugh Jackman's Folklore Deconstruction Is Haunting And Heartbreaking
+
+Movies, The Death of Robin Hood
+
+Wed, 17 Jun 2026 19:20:34 GMT
+
+https://screenrant.com/the-death-of-robin-hood-review/
+
+Hugh Jackman is perfectly downbeat in this dour reimagining of the Robin Hood lore that is gorgeously rendered and emotionally rich.
+---------
+
+# Star Wars' Next Movie After The Mandalorian & Grogu Didn't Make George Lucas Happy
+
+Movies, Masked Recs, Star Wars
+
+Wed, 17 Jun 2026 19:08:16 GMT
+
+https://screenrant.com/star-wars-original-movie-rerelease-george-lucas-unhappy/
+
+After George Lucas changed cinematic history decades ago, Star Wars' next theatrical release will be a special moment for the galaxy's biggest fans.
+---------
+
+# Star Trek Officially Changes Genre For Its Return to Deep Space Nine
+
+Comics, Star Trek
+
+Wed, 17 Jun 2026 19:00:12 GMT
+
+https://screenrant.com/star-trek-deep-space-nine-return-horror/
+
+The horror!
+---------
+
+# Pokémon Winds & Waves Newest Monster Design Leaves Gamers Split
+
+Gaming, Pokemon Winds and Waves, Triple-A Games
+
+Wed, 17 Jun 2026 19:00:12 GMT
+
+https://screenrant.com/pokemon-winds-waves-new-rotom-scooter-design-leak/
+
+Although the information from Pokémon Winds & Waves is scarce so far, fans are split on a new monster design, especially given recent games.
+---------
+
+# Tom Hardy Already Has A MobLand Replacement In Upcoming Mahershala Ali Thriller
+
+TV, Masked Recs
+
+Wed, 17 Jun 2026 19:00:12 GMT
+
+https://screenrant.com/tom-hardy-77-blackout-mobland-replacement/
+
+Tom Hardy's future in the Guy Ritchie gangster drama MobLand may be uncertain, but he already has another major crime thriller lined up.
+---------
+
+# Hannibal Lecter Officially Returns Next Month
+
+Movies, Masked Recs
+
+Wed, 17 Jun 2026 19:00:12 GMT
+
+https://screenrant.com/manhunter-hannibal-movie-coming-back-theaters-july-24/
+
+Hannibal Lecter is one of the most iconic villains of all time, but while his forgotten first movie gets less attention, it is returning to theaters.
+---------
+
+# Spider-Man: Brand New Trailer Reveals Peter Parker's Battle With Hulk & Mystery MCU Villain
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man
+
+Wed, 17 Jun 2026 18:58:21 GMT
+
+https://screenrant.com/spiderman-brand-new-day-trailer-2-official/
+
+The second trailer for Tom Holland's Spider-Man: Brand New Day has officially been released by Sony Pictures and Marvel Studios for his MCU return.
+---------
+
+# New Spider-Man: Brand New Day Trailer Unveils First Look at Hulk
+
+Movies, Spider-Man: Brand New Day
+
+Wed, 17 Jun 2026 19:21:32 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-second-trailer-hulk-first-look/
+
+The cast previously teased there might be a new version of the Hulk in the film.
+---------
+
+# 35 Strongest Bleach Characters At The End Of The Series
+
+Anime, Bleach
+
+Wed, 17 Jun 2026 19:00:18 GMT
+
+https://www.cbr.com/strongest-bleach-character/
+
+With Bleach's return after a painfully long hiatus, fans are reflecting on the anime's strongest characters.
+---------
+
+# Ridley Scott's Underrated 3-Part Horror Show Delivered 1 of TV's Most Brutal Episodes Ever
+
+TV, The Terror, ridley scott, Horror
+
+Wed, 17 Jun 2026 19:00:17 GMT
+
+https://www.cbr.com/ridley-scott-the-terror-terror-camp-clear-most-brutal-episode/
+
+Ridley Scott's underrated horror series has one of TV's most brutal episodes, and it deserves more praise.
+---------
+
+# 12 Actors You Completely Forgot Were In Star Wars Movies
+
+Movies, Star Wars
+
+Wed, 17 Jun 2026 19:00:17 GMT
+
+https://www.cbr.com/actors-no-one-remembers-were-in-star-wars-list/
+
+Whether it's a pre-fame part, a forgotten supporting turn, or a voice-only role, these actors aren't readily associated with a galaxy far, far away.
+---------
+
+# House of the Dragon’s Olivia Cooke Explains Alicent’s Status With Rhaenyra Targaryen
+
+CBR Exclusives, House of the Dragon, Game Of Thrones, HBO Max
+
+Wed, 17 Jun 2026 18:35:41 GMT
+
+https://www.cbr.com/house-of-the-dragon-alicent-rhaenyra-relationship-season-3-olivia-cooke-interview/
+
+Olivia Cooke reveals where Alicent stands with Rhaenyra in House of the Dragon Season 3 after her shocking offer.
+---------
+
+# 5 Best Action Anime Ever Made
+
+Anime, Vinland Saga, Kingdom, shonen anime
+
+Wed, 17 Jun 2026 18:16:17 GMT
+
+https://www.cbr.com/best-action-anime-ever-made/
+
+There are endless anime always fighting for the audience's attention, but titles like Attack on Titan and Vinland Saga represent the genre's best!
+---------
+
+# CBS Responds to New Lawsuit Over Matlock's Hostile Work Environment
+
+TV, Matlock
+
+Wed, 17 Jun 2026 18:16:01 GMT
+
+https://www.cbr.com/matlock-writer-lawsuit-hostile-work-environment-cbs-response/
+
+One of Matlock's writers sued CBS, with the network responding that a "thorough investigation was completed."
+---------
+
+# Batman’s Greatest Ally Returns in New Look at Robert Pattinson’s Sequel
+
+Movies, The Batman Part II
+
+Wed, 17 Jun 2026 18:11:27 GMT
+
+https://www.cbr.com/the-batman-part-ii-first-look-jim-gordon/
+
+An interesting sneak peek has been revealed for The Batman Part II as filming continues.
+---------
+
+# Godzilla and The Wizard of Oz Officially Unite in Bizarre New Crossover
+
+Comics, wizard of oz, Godzilla
+
+Wed, 17 Jun 2026 18:00:05 GMT
+
+https://www.cbr.com/godzilla-monsterpiece-theatre-presents-the-kaiju-of-oz-release-date-confirmed/
+
+Godzilla's next Monsterpiece Theatre is sending the classic kaiju all the way to the wonderful world of Oz, and he may not leave any of it standing.
+---------
+
+# Crunchyroll Reveals Full Summer 2026 Anime Streaming List & Release Dates
+
+Anime, Crunchyroll, Black Torch, Mushoku Tensei: Jobless Reincarnation
+
+Wed, 17 Jun 2026 17:58:05 GMT
+
+https://www.cbr.com/crunchyroll-summer-2026-anime-streaming-release-dates/
+
+Crunchyroll officially revealed its summer 2026 anime lineup, featuring highly anticipated hits such as Black Torch, Mushoku Tensei Season 3 and more.
+---------
+
+# Only 10 Movies From the '80s Are Truly Perfect From Start to Finish
+
+Movie, Amadeus, Aliens, Blade Runner, Stand by Me
+
+Wed, 17 Jun 2026 19:19:14 GMT
+
+https://collider.com/movies-80s-perfect-start-to-finish/
+
+The '80s were a notoriously uneven decade for cinema, but a few movies, like Die Hard and Amadeus, are still the cinematic equivalent of perfection.
+---------
+
+# Alan Ritchson’s ‘Reacher’ Officially Sets New Release Ahead of Season 4
+
+TV News, Reacher, Alan Ritchson, Prime Video, Blu-ray
+
+Wed, 17 Jun 2026 19:13:43 GMT
+
+https://collider.com/alan-ritchson-reacher-season-3-blu-ray-release-date-august-25-2026/
+
+With Season 4 set to debut this year, Alan Ritchson's Reacher is getting a new Blu-ray release ahead of the Prime Video series' return.
+---------
+
+# Tom Holland's Spider-Man Is "Out of Control" in New 'Brand New Day' Trailer
+
+Movie News, Spider-Man: Brand New Day, Tom Holland, Mark Ruffalo
+
+Wed, 17 Jun 2026 19:13:28 GMT
+
+https://collider.com/spider-man-brand-new-day-trailer-tom-holland-hulk-battle/
+
+A brand-new trailer for Spider-Man: Brand New Day has Tom Holland's Peter Parker battling the Hulk. See it here!
+---------
+
+# Margot Robbie's 'Ocean's' Prequel Officially Taps a 'Narcos' Icon for Villain Role
+
+Movie News, Ocean's Eleven, Wagner Moura, Margot Robbie, Bradley Cooper
+
+Wed, 17 Jun 2026 19:00:55 GMT
+
+https://collider.com/margot-robbie-oceans-11-prequel-cast-wagner-moura-villain-role/
+
+Wagner Moura, best known for his work in Narcos, The Secret Agent, has been tapped to play the villain in Margot Robbie's Ocean's prequel.
+---------
+
+# Wednesday’s Clock Tower Set Wouldn’t Stop Flooding | Collider BTS
+
+TV, Wednesday
+
+Wed, 17 Jun 2026 18:15:14 GMT
+
+https://collider.com/video/wednesday-s-clock-tower-set-wouldn-t-stop-flooding-collider-bts/
+
+Discover how Netflix’s Wednesday battled constant flooding on its iconic Clock Tower set, as the cast and crew reveal the behind-the-scenes production challenges that turned a gothic centerpiece into a waterlogged nightmare.
+---------
+
+# 'The Night Agent' Is Ending the Right Way by Bringing Back Its Best Character
+
+TV Features, The Night Agent, Netflix, Gabriel Basso, Thriller
+
+Wed, 17 Jun 2026 18:11:16 GMT
+
+https://collider.com/the-night-agent-season-4-series-finale-rose-return/
+
+The Night Agent's Season 4 announcement of Rose's return is crucial for the show's satisfying conclusion.
+---------
+
+# Mike Myers Hints at a 4th 'Austin Powers' Movie
+
+Movie News, Austin Powers 4, Austin Powers in Goldmember, Austin Powers: International Man of Mystery, Mike Myers
+
+Wed, 17 Jun 2026 18:03:17 GMT
+
+https://collider.com/austin-powers-4-sequel-confirmed-mike-myers/
+
+Mike Myers officially confirms a fourth Austin Powers movie will happen, reigniting hopes for a return of the beloved spy comedy.
+---------
+
+# You Have 2 Weeks To Catch Up on the Greatest Sci-Fi Series Ever Before Season 3 Drops
+
+TV Features, Silo, Apple TV, Rebecca Ferguson, Graham Yost
+
+Wed, 17 Jun 2026 17:55:18 GMT
+
+https://collider.com/silo-greatest-sci-fi-series-season-3-apple-tv-july-premiere/
+
+There's time to binge-watch Silo before Season 3 premieres, and it's a great time for new or lapsed fans to get onboard before the story heats up.
+---------
+
+# X-Men Reboot Writer Teases a Huge Roster for the Upcoming MCU Movie
+
+Movie News, X-Men, Hugh Jackman, Jake Schreier, Marvel Studios
+
+Wed, 17 Jun 2026 17:52:51 GMT
+
+https://collider.com/mcu-x-men-reboot-team-roster-update-beef-writer/
+
+The writer behind the MCU's X-Men reboot teases a huge roster and fresh take on the franchise, promising an exciting new approach.
+---------
+
+# Disney Officially Revives the '90s' Most Beloved Sci-Fi Franchise
+
+TV News, Animorphs, Ryan Coogler, Disney+
+
+Wed, 17 Jun 2026 17:52:38 GMT
+
+https://collider.com/disney-best-sci-fi-franchise-reboot-animprphs-ryan-coogler/
+
+Disney+ is rebooting Animorphs as a new series, with Ryan Coogler attached to executive produce the beloved 1990s sci-fi franchise.
+---------
+
+# New 'Stranger Things' Experience Officially Confirmed in Time for Halloween
+
+TV News, Stranger Things, Halloween Horror Nights
+
+Wed, 17 Jun 2026 19:13:56 GMT
+
+https://movieweb.com/stranger-things-final-season-halloween-horror-nights/
+
+The sci-fi series is headed to Halloween Horror Nights at Universal Studios.
+---------
+
+# 'Spider-Man: Brand New Day' Trailer Officially Reveals Savage Hulk, Scorpion & More
+
+Movie News, Spider-Man: Brand New Day, MCU
+
+Wed, 17 Jun 2026 19:08:06 GMT
+
+https://movieweb.com/spider-man-brand-new-day-second-trailer-released/
+
+Six weeks before 'Spider-Man: Brand New Day' swings into theaters, Sony Pictures released the movie's second official trailer.
+---------
+
+# Universal Releases New Footage From 'The Odyssey' in BTS Featurette
+
+Movie News, The Odyssey, Christopher Nolan
+
+Wed, 17 Jun 2026 19:07:44 GMT
+
+https://movieweb.com/the-odyssey-new-footage-christopher-nolan/
+
+Universal shared an exciting new behind-the-scenes look at 'The Odyssey,' which included new footage from Christopher Nolan's movie.
+---------
+
+# Forget ‘Reacher,’ Prime’s #1 in the World Series Continues the Year’s Best TV Trend
+
+Features, Every Year After
+
+Wed, 17 Jun 2026 19:00:11 GMT
+
+https://movieweb.com/every-year-after-prime-book-adaptation-trend/
+
+Amazon Prime Video has had several hit TV shows released in 2026 that all have one thing in common and continue an exciting trend.
+---------
+
+# One of Netflix's Most Popular Franchises Comes Ends in First Sequel Trailer
+
+TV News, Heartstopper, Netflix
+
+Wed, 17 Jun 2026 18:15:10 GMT
+
+https://movieweb.com/netflix-heartstopper-forever-trailer-kit-connor-joe-locke/
+
+Netflix releases the official trailer for 'Heartstopper Forever,' 'Heartstopper's feature-length series finale.
+---------
+
+# Peter Capaldi Calls Out Huge 'Doctor Who' Canon Change
+
+TV News, Doctor Who
+
+Wed, 17 Jun 2026 18:07:55 GMT
+
+https://movieweb.com/doctor-who-peter-capaldi-regeneration-issues/
+
+In a recent interview, 'Doctor Who' star Peter Capaldi has explained one of his biggest problems with the show's modern era. Read on for more.
+---------
+
+# Jason Statham's Forgotten 112-Minute Crime Thriller Hits New Streaming Home
+
+Movie News, Jason Statham, The Bank Job, Coming/Leaving Streaming, Action
+
+Wed, 17 Jun 2026 18:00:04 GMT
+
+https://movieweb.com/the-bank-job-jason-statham-stream-plex-june-2026/
+
+Fans got to see a different side of Statham in Roger Donaldson's brilliant 2008 action thriller that's now free to stream for the month of June.
+---------
+
+# 'Avatar: The Last Airbender' Season 2 Schedule: What Time It Premieres on Netflix
+
+Features, Avatar: The Last Airbender
+
+Wed, 17 Jun 2026 18:00:04 GMT
+
+https://movieweb.com/avatar-the-last-airbender-season-2-premiere-netflix/
+
+'Avatar: The Last Airbender' Season 2, Netflix's live-action reboot, is finally returning soon.
+---------
+
+# Hulu's Reboot of One of the Best Crime Thriller Shows Ever Gets "Dark & Gritty" Update
+
+TV News, Lukas Gage, Prison Break
+
+Wed, 17 Jun 2026 17:57:43 GMT
+
+https://movieweb.com/prison-break-reboot-dark/
+
+Lukas Gage says Hulu's 'Prison Break' reboot is "dark," "gritty," and "scary," going further than Fox could with the original crime thriller.
+---------
+
+# 'Spider-Man: Brand New Day' Officially Ditches IMAX for ScreenX in New Teaser
+
+Movie News, Spider-Man: Brand New Day, Spider-Man, MCU, IMAX
+
+Wed, 17 Jun 2026 17:48:47 GMT
+
+https://movieweb.com/spider-man-brand-new-day-screenx-teaser/
+
+It's a 'Brand New Day' as ScreenX pulls off a unique first for 'Spider-Man', with the MCU embracing the bold premium format.
+---------
+
 # After 89 Years, DC Officially Has A Franchise First On The Way
 
 TV, DC Universe
