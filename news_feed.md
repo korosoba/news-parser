@@ -1,3 +1,333 @@
+# Netflix's New Scandalous 8-Part Series Based On Bestselling Novel Quickly Picks Up Steam In Elite Charts
+
+TV, Masked Recs
+
+Wed, 17 Jun 2026 23:09:26 GMT
+
+https://screenrant.com/the-polygamist-season-1-netflix-june-2026-streaming-hit/
+
+Netflix's scandalous new eight-part series based on a bestselling novel is quickly picking up steam in elite worldwide streaming charts.
+---------
+
+# Netflix's 2-Part Fantasy Series Officially Beats Stranger Things At Its Own Game
+
+TV, Masked Recs
+
+Wed, 17 Jun 2026 23:02:22 GMT
+
+https://screenrant.com/one-piece-live-action-cast-beats-netflix-stranger-things/
+
+One Netflix fantasy series outdoes Stranger Things in a pivotal way, thanks to its blend of perfectly cast characters and a sprawling source material.
+---------
+
+# Xbox Makes Gigantic Open-World Game Free For A Very Limited Time
+
+Gaming, Xbox
+
+Wed, 17 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/xbox-once-human-free-open-beta-dates/
+
+Xbox is finally getting a smash hit open world game, and the best part is you'll be able to play completely free.
+---------
+
+# Cody Rhodes' Defense Of Luke Skywalker In Star Wars: The Last Jedi Is Totally Right
+
+Movies, Star Wars
+
+Wed, 17 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/star-wars-last-jedi-luke-skywalker-cody-rhodes/
+
+The wrestler recently opened up about his thoughts on the portrayal of Luke in the sequel trilogy, and his observations are spot on.
+---------
+
+# 10 Greatest Movies To Watch If You Love Brendan Fraser's The Mummy Movies
+
+Movies, The Mummy, The Mummy Returns, Brendan Fraser, Pirates of the Caribbean: The Curse of the Black Pearl, Tremors, Big Trouble in Little China, Journey to the Center of the Earth, Romancing the Stone, Indiana Jones and the Last Crusade, Dungeons & Dragons: Honor Among Thieves, Jumanji: Welcome to the Jungle, Jungle Cruise, Van Helsing
+
+Wed, 17 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/movies-like-brendan-fraser-the-mummy/
+
+Brendan Fraser's The Mummy offers a near-perfect blend of genres. It's a tough combination to beat, but there are still similar movies worth watching.
+---------
+
+# Netflix's Disturbing Mystery Thriller Based On 8-Part Book Series Is An Instant Streaming Hit
+
+Movies, Masked Recs
+
+Wed, 17 Jun 2026 22:47:33 GMT
+
+https://screenrant.com/flowers-in-the-attic-movie-netflix-streaming-success-june-2026/
+
+More than a decade after its original release, a mystery thriller based on a popular 8-part book series is performing exceptionally on Netflix.
+---------
+
+# Stephen King Gives Obsession A Strong Review
+
+Movies, Obsession
+
+Wed, 17 Jun 2026 22:31:43 GMT
+
+https://screenrant.com/obsession-stephen-king-strong-review/
+
+Horror writer Stephen King gives Focus Features and Blumhouse's new hit horror film a strong review and the lasting effect that it had on him.
+---------
+
+# Alien Announces X-Men Crossover For Next Major Release
+
+Marvel Comics, Alien, X-Men
+
+Wed, 17 Jun 2026 22:30:21 GMT
+
+https://screenrant.com/alien-x-men-crossover-next-major-release/
+
+A new Alien crossover event has been announced, with the Xenomorphs officially confirmed to fight some of their fiercest opponents to date.
+---------
+
+# HBO's Green Lantern Series Confirms An Unofficial Truth About James Gunn's DCU
+
+Streaming TV, Lanterns, DC Universe, DC
+
+Wed, 17 Jun 2026 22:30:21 GMT
+
+https://screenrant.com/lanterns-confirms-unofficial-truth-about-james-gunns-dcu/
+
+The upcoming HBO Max series Lanterns has already confirmed that James Gunn's DCU predates Superman by several decades, which introduces some problems.
+---------
+
+# Prime Video's New Viking Series Looks So Good, It's Renewed For Season 2 Already
+
+Streaming TV, Masked Recs
+
+Wed, 17 Jun 2026 22:15:21 GMT
+
+https://screenrant.com/bloodaxe-renewed-season-2-prime-video-viking-show-good/
+
+Prime Video is preparing a new Viking TV show that looks so good already that Amazon renewed it for season 2 way before its premiere.
+---------
+
+# NBC's 4-Season Masterpiece With 97% RT Becomes a PVOD Sensation 6 Years After Finale
+
+TV, The Good Place, Comedy, NBC
+
+Wed, 17 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/the-good-place-fantasy-comedy-drama-nbc-pvod-success-june-2026/
+
+NBC's critically acclaimed series, The Good Place, known as one of the best shows of the 2010s, is a hit on PVOD.
+---------
+
+# The 8-Episode Prime Video Crime Drama Stephen King Called 'Bone-Shaking'
+
+TV, ZeroZeroZero, Prime Video, Crime
+
+Wed, 17 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/prime-video-zerozerozero-stephen-king-recommended-crime-drama/
+
+Stephen King endorsed one of Prime Video's most shocking and thrilling crime drama series back in 2020, and it deserves a far larger audience.
+---------
+
+# 7 Masterpiece Disney Movies Better Than Moana
+
+Movies, Disney, Moana
+
+Wed, 17 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/disney-movies-better-than-moana-list/
+
+Moana is one of the most popular Disney movies in recent years, but these seven Disney animated films are even better.
+---------
+
+# Onimusha: Way of the Sword Is Officially Perfect for Soulslike Fans and Haters
+
+Games, Video Games
+
+Wed, 17 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/onimusha-way-of-the-sword-sgf-2026-preview/
+
+CBR previewed Onimusha: Way of the Sword at Summer Game Fest, and it looks like Capcom's 2026 hot streak will continue all year.
+---------
+
+# In Just 1 Week, Taylor Sheridan Returns With a Brand-New Project
+
+TV, books
+
+Wed, 17 Jun 2026 22:20:34 GMT
+
+https://www.cbr.com/taylor-sheridan-how-to-not-die-in-prison-survival-guide/
+
+The next Taylor Sheridan project debuts in just one week.
+---------
+
+# Stranger Things Season 5 Is Officially Returning After All (But There's a Catch)
+
+TV, Stranger Things, Universal Theme Parks, universal studios
+
+Wed, 17 Jun 2026 22:16:25 GMT
+
+https://www.cbr.com/stranger-things-season-5-halloween-horror-nights-return/
+
+Stranger Things Season 5 returns this fall in all-new Halloween Horror Nights haunted houses at Universal Orlando and Hollywood.
+---------
+
+# 10 Best Official Maomao Designs in The Apothecary Diaries
+
+Anime, The Apothecary Diaries
+
+Wed, 17 Jun 2026 22:15:14 GMT
+
+https://www.cbr.com/apothecary-diaries-official-best-maomao-designs/
+
+Maomao is one of the greatest and smartest anime heroes ever, and the star of The Apothecary Diaries also has some near-perfect official designs.
+---------
+
+# Disclosure Day Just Debuted the Most Emotional Movie Moment of the Year
+
+Movies, Disclosure Day
+
+Wed, 17 Jun 2026 22:00:15 GMT
+
+https://www.cbr.com/disclosure-day-ending-most-emotional-movie-moment-2026/
+
+While audiences might be divided, Disclosure Day's ending is stirring up surprisingly strong emotions in some viewers.
+---------
+
+# Jujutsu Kaisen Officially Reveals Its Successor to the Culling Games
+
+Anime, Jujutsu Kaisen, Video Games, Shonen Jump
+
+Wed, 17 Jun 2026 22:00:15 GMT
+
+https://www.cbr.com/jujutsu-kaisen-rumble-survivation-culling-games/
+
+Jujutsu Kaisen officially brings back the Culling Games in a new release fans weren't expecting.
+---------
+
+# 10 Most-Watched Netflix Movies in 2026, Ranked
+
+Movie, Netflix, Apex, War Machine, Remarkably Bright Creatures
+
+Wed, 17 Jun 2026 23:11:14 GMT
+
+https://collider.com/netflix-movies-most-watched-2026/
+
+Find out how popular movies like People We Meet on Vacation, War Machine, The Rip, Trash, and more have proven to be on Netflix.
+---------
+
+# Timothy Olyphant’s $2 Million Action Thriller Finally Gets Its Due on Prime Video
+
+Movie News, Over Your Dead Body, Timothy Olyphant, Prime Video, Samara Weaving
+
+Wed, 17 Jun 2026 23:00:14 GMT
+
+https://collider.com/timothy-olyphant-over-your-dead-body-streaming-success-prime-video-june-2026/
+
+Over Your Dead Body, the $2 million action thriller starring Timothy Olyphant, is finally getting the attention it deserves on Prime Video.
+---------
+
+# The Best Thing About ‘Supernatural’ Only Lasted One Season
+
+TV Features, Supernatural, Jensen Ackles, Jared Padalecki, The CW
+
+Wed, 17 Jun 2026 22:58:16 GMT
+
+https://collider.com/supernatural-season-1-best-horror-mystery-series/
+
+Season 1 of Supernatural succeeded because Sam and Dean didn’t have all the answers, creating an atmosphere the series never fully recaptured.
+---------
+
+# Kurt Russell’s Hit Sci-Fi Franchise Is Finally Getting an Official Sequel 30 Years Later
+
+Movie News, Escape From New York, Kurt Russell, John Carpenter, Escape From L.A.
+
+Wed, 17 Jun 2026 22:54:39 GMT
+
+https://collider.com/kurt-russell-escape-from-new-york-sequel-comic/
+
+Snake is back!
+---------
+
+# Warner Bros. Officially Adapting 15-Part Sci-Fi Thriller Series Into a New Franchise
+
+Movie News, Maze Runner: The Death Cure, The Hunger Games, Sci-Fi, The Divergent Series
+
+Wed, 17 Jun 2026 22:42:33 GMT
+
+https://collider.com/warner-bros-shatter-me-movie-adaptation/
+
+Warner Bros. is officially adapting the Shatter Me novels into a feature film, functioning as a competitor to the likes of the Hunger Games saga.
+---------
+
+# Taylor Sheridan's Newest ‘Yellowstone’ Spin-Off Explodes on Paramount+
+
+TV News, Yellowstone, Dutton Ranch, Paramount, Taylor Sheridan
+
+Wed, 17 Jun 2026 22:34:49 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-spin-off-dutton-ranch-streaming-milestone-june-2026/
+
+Dutton Ranch has passed a major milestone on streaming, not long after becoming the highest-rated Yellowstone spin-off. Here's all to know.
+---------
+
+# All 8 Star Wars Characters Played by Jon Favreau & Dave Filoni
+
+Movie, Star Wars, Jon Favreau, Dave Filoni, The Mandalorian and Grogu
+
+Wed, 17 Jun 2026 22:22:15 GMT
+
+https://collider.com/star-wars-characters-jon-favreau-dave-filoni/
+
+Jon Favreau and Dave Filoni are key creative players in modern Star Wars, but they have played some memorable characters too, from Embo to Rio Durant.
+---------
+
+# Netflix Officially Cancels Its Newest ‘Stranger Things’ Replacement After One Season
+
+TV News, The Boroughs
+
+Wed, 17 Jun 2026 22:01:39 GMT
+
+https://collider.com/the-boroughs-cancelled-netflix-duffer-brothers-season-2/
+
+Netflix has canceled The Boroughs, the Duffer Brothers-produced sci-fi series, after one season despite reported Season 2 development plans.
+---------
+
+# Netflix Officially Confirms Fate of Duffer Brothers' 'Stranger Things' Replacement
+
+TV News, The Boroughs, Netflix
+
+Wed, 17 Jun 2026 23:01:05 GMT
+
+https://movieweb.com/the-boroughs-canceled-netflix/
+
+The streamer has canceled the sci-fi series after only a single season.
+---------
+
+# Action Thriller Hailed "Best of the Year" Takes No Prisoners at the Box Office
+
+Movie News, The Furious, Box Office Milestones, Action
+
+Wed, 17 Jun 2026 23:00:20 GMT
+
+https://movieweb.com/the-furious-action-box-office-success/
+
+The best action movie of 2026, the Hong Kong martial arts thriller 'The Furious', is a major box office success.
+---------
+
+# Detective Gets Hacked in Surreal First Trailer for New Cyberpunk Sci-Fi Thriller
+
+Movie News, Hot Spot, Sci-Fi, Thriller
+
+Wed, 17 Jun 2026 22:37:59 GMT
+
+https://movieweb.com/hot-spot-movie-trailer-cyberpunk/
+
+The trailer for 'Hot Spot' alone feels wilder than almost anything else released this year.
+---------
+
 # In Just 2 Days, New Horror Movie With A Near-Perfect Rotten Tomatoes Score Finally Releases
 
 Movies, Masked Recs
