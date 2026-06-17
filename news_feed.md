@@ -1,3 +1,421 @@
+# 5 Best Fight Scenes From The Furious, Ranked
+
+Movies, The Furious
+
+Wed, 17 Jun 2026 00:01:21 GMT
+
+https://screenrant.com/the-furious-movie-best-fight-scenes-ranked/
+
+Kenji Tanigaki's action movie, The Furious, is one of the best modern martial arts films in years, and these great fight scenes can't be missed.
+---------
+
+# John Cena's 2-Part Sci-Fi Thriller Is Far Better Than His Recent Movies
+
+TV, Masked Recs
+
+Tue, 16 Jun 2026 23:31:12 GMT
+
+https://screenrant.com/john-cena-peacemaker-better-than-recent-movies/
+
+John Cena's dramatic range shines in his HBOMax sci-fi thriller, but can he bring this same blend of comedy and drama to his struggling movie career?
+---------
+
+# Prime Video's New High Fantasy Dragon Series Faces A Major Challenge
+
+TV, Masked Recs
+
+Tue, 16 Jun 2026 23:21:30 GMT
+
+https://screenrant.com/prime-video-fourth-wing-dragon-series-books-match/
+
+Prime Video's new high fantasy series is one of the biggest live-action dragon adventures, but it faces a major challenge that also gives it strength.
+---------
+
+# Sony's Spider-Man Reboot Officially Kicks Off This Week
+
+Movies, Masked Recs
+
+Tue, 16 Jun 2026 23:08:37 GMT
+
+https://screenrant.com/sony-spider-man-brand-new-day-marketing-begins-this-week/
+
+Spider-Man: Brand New Day is essentially a reboot for Tom Holland's Peter Parker, and the movie's marketing campaign is beginning this week.
+---------
+
+# Resident Evil As We Knew It Is Officially Over
+
+Gaming, Resident Evil, Triple-A Games
+
+Tue, 16 Jun 2026 23:00:50 GMT
+
+https://screenrant.com/resident-evil-end-of-era-story-reboot/
+
+The Resident Evil universe has already undergone a few shifts, but this time, Capcom is making things very clear where they stand.
+---------
+
+# Squid Game Meets The World Cup In Netflix's 2-Part Thriller Series
+
+Streaming TV, Masked Recs
+
+Tue, 16 Jun 2026 23:00:50 GMT
+
+https://screenrant.com/blue-lock-squid-game-meets-soccer-netflix-anime/
+
+The high-stakes eliminations of Squid Game are thrust into the world of aspiring soccer superstars in this bombastic Netflix sports thriller.
+---------
+
+# Project Hail Mary's Path To Streaming Explained, And What It Means For Masters Of The Universe
+
+Movies, Project Hail Mary, Masters of the Universe
+
+Tue, 16 Jun 2026 23:00:50 GMT
+
+https://screenrant.com/project-hail-mary-streaming-release-explained-masters-universe/
+
+Project Hail Mary's circuitous path to streaming provides insight into MGM’s potential streaming release model for Masters Of The Universe.
+---------
+
+# Disney's Predator Movie Is So Good, We Forgive It For Not Being A Predator Movie
+
+Movies, Masked Recs
+
+Tue, 16 Jun 2026 22:32:22 GMT
+
+https://screenrant.com/disney-predator-badlands-not-a-traditional-predator-movie/
+
+A genuinely fresh and original take on the iconic sci-fi franchise, Disney's Predator reboot redefined what viewers expect from Predator movies.
+---------
+
+# A Major Xbox Exclusive Theory Has Just Been Debunked
+
+Gaming, Xbox, Triple-A Games
+
+Tue, 16 Jun 2026 22:25:56 GMT
+
+https://screenrant.com/xbox-exclusives-rumor-debunked-reaction/
+
+Xbox is making a big bet with the return of console exclusives later this year and next, and some theories of disbelief have now been debunked.
+---------
+
+# Sarah Michelle Gellar Officially Returning To The Supernatural Genre After Buffy The Vampire Slayer Reboot Cancellation
+
+Movies, Sarah Michelle Gellar
+
+Tue, 16 Jun 2026 22:19:50 GMT
+
+https://screenrant.com/sarah-michelle-gellar-thud-movie-supernatural-genre-return/
+
+Sarah Michelle Gellar is officially returning to the supernatural genre following the cancellation of the Buffy the Vampire Slayer reboot.
+---------
+
+# 7 Legendary Pokémon Stronger Than MewTwo
+
+Anime, Pokemon
+
+Wed, 17 Jun 2026 00:15:14 GMT
+
+https://www.cbr.com/legendary-pokemon-stronger-than-mewtwo/
+
+Mewtwo maybe the most famous Legendary Pokémon, but the likes of Arceus and Giratina are far more powerful.
+---------
+
+# Marvel Officially Reveals Miles Morales’ Spider-Man Redesign in New First Look
+
+Anime, miles morales: spider-man, Marvel
+
+Wed, 17 Jun 2026 00:00:14 GMT
+
+https://www.cbr.com/miles-morales-spider-man-redesign-marvel-mangaverse/
+
+Spider-Man's Miles Morales officially unveils a Marvelous redesign in a new 25th-anniversary first look.
+---------
+
+# 60 Years Ago, DC Debuted a Batman Villain Fans Still Ignore
+
+Comics, Batman, DC Comics
+
+Wed, 17 Jun 2026 00:00:14 GMT
+
+https://www.cbr.com/batman-most-underrated-villain-lord-death/
+
+Batman has long been surrounded by a fantastic roster of villains, and his most underrated foe quietly turned 60 this year.
+---------
+
+# In Just 2 Weeks, Marvel's 99% RT Disney+ Series Finally Returns After 2-Year Hiatus
+
+TV, X-Men, X-Men '97, Marvel, Marvel Comics, MCU
+
+Tue, 16 Jun 2026 23:55:31 GMT
+
+https://www.cbr.com/marvel-x-men-97-near-perfect-rotten-tomatoes-disney-plus/
+
+The wait for one of the best Marvel series in history, X-Men '97, is almost over.
+---------
+
+# 5 Harry Potter Characters More Powerful Than Severus Snape, Ranked
+
+Movies, Harry Potter
+
+Tue, 16 Jun 2026 23:00:40 GMT
+
+https://www.cbr.com/harry-potter-characters-more-powerful-severus-snape-list/
+
+Severus Snape is one of the most interesting and powerful wizards in Harry Potter, but there are many magic users who outrank even him.
+---------
+
+# Netflix's New Stranger Things Show Faces a Problem the Original Series Never Had
+
+TV, Stranger Things, Stranger Things: Tales from '85, Netflix
+
+Tue, 16 Jun 2026 23:00:40 GMT
+
+https://www.cbr.com/netflix-stranger-things-tales-from-85-1980s-fatigue-problem/
+
+The latest addition to the Stranger Things universe has an uphill battle to win over fans because of one growing complaint with similar shows.
+---------
+
+# Control Resonant Is Officially the Best Game I Played At SGF
+
+Games, Video Games
+
+Tue, 16 Jun 2026 23:00:40 GMT
+
+https://www.cbr.com/control-resonant-official-hands-on-preview/
+
+Control Resonant brilliantly brings what gamers loved about Control and expands that out to a sublime version of Manhattan.
+---------
+
+# 5 Masterpiece Shonen Anime Better Than Demon Slayer
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Death Note, Jujutsu Kaisen
+
+Tue, 16 Jun 2026 22:15:16 GMT
+
+https://www.cbr.com/masterpiece-shonen-anime-better-than-demon-slayer/
+
+Demon Slayer is one of the biggest shonen anime of the past decade, but totemic titles like Jujutsu Kaisen and Yu Yu Hakusho are even better.
+---------
+
+# It's Official, In 6 Months Marvel Studios' Avengers Franchise Returns to the Big Screen
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Tue, 16 Jun 2026 22:01:15 GMT
+
+https://www.cbr.com/avengers-doomsday-king-of-superhero-movies-mcu-return/
+
+There are many great superhero movies coming in 2026, and that includes a new addition to a franchise hailed as the king of the genre.
+---------
+
+# ‘It’s Not a Happy Ending’: Only 4 People Know How Berserk Officially Ends
+
+Anime, Berserk, Dark Horse Comics
+
+Tue, 16 Jun 2026 22:01:15 GMT
+
+https://www.cbr.com/berserk-official-manga-ending-confirmed/
+
+Former Berserk Editor Akira Shimada confirms that Gut's journey is fated to end as distressingly as it began.
+---------
+
+# 8 Underrated Western Shows Worth Watching Over and Over, Ranked
+
+TV, Western, Dark Winds, Outer Range, Have Gun - Will Travel
+
+Wed, 17 Jun 2026 00:11:15 GMT
+
+https://collider.com/western-shows-underrated-worth-watching-ranked/
+
+Dark Winds, Outer Range, Have Gun – Will Travel, and Billy the Kid are all among the great yet underrated Western shows you can watch over and over.
+---------
+
+# The Most Intense Action Thriller at the Box Office Is a Perfect 'John Wick' Replacement
+
+Movie News, The Furious, John Wick, Action, Joe Taslim
+
+Wed, 17 Jun 2026 00:00:14 GMT
+
+https://collider.com/the-furious-action-movie-box-office-debut-15-million/
+
+The critically acclaimed martial arts action film The Furious debuted in several territories worldwide this past weekend. Here's how it fared.
+---------
+
+# Paramount’s Most Controversial Show Officially Ends Taylor Sheridan’s ‘Yellowstone’ Reign
+
+TV Features, South Park, Paramount Plus, Taylor Sheridan, Yellowstone
+
+Tue, 16 Jun 2026 23:42:26 GMT
+
+https://collider.com/south-park-paramount-most-controversial-show-yellowstone/
+
+South Park's latest seasons surge to the top of Paramount+ rankings, ending Taylor Sheridan's reign on the streamer.
+---------
+
+# Marvel’s Messiest X-Men Movie Was a "Total Nightmare" Behind the Scenes
+
+Movie News, X-Men: Apocalypse, X-Men, Bryan Singer, Superhero
+
+Tue, 16 Jun 2026 23:31:17 GMT
+
+https://collider.com/x-men-apocalypse-editor-john-ottman-comments-disastrous-production/
+
+John Ottman, the Oscar-winning editor of X-Men: Apocalypse, opened up about the film's disastrous production. Find out what he said here.
+---------
+
+# HBO’s 8-Part Crime Masterpiece Is Still One of the Streamer’s Greatest Shows of the 21st Century
+
+TV Features, The Night Of, Television, HBO, Crime
+
+Tue, 16 Jun 2026 23:29:19 GMT
+
+https://collider.com/hbo-greatest-show-21st-century-masterpiece-the-night-of-series/
+
+One of the best shows on HBO is the miniseries The Night Of, which remains a compelling and thought-provoking crime drama across its eight episodes.
+---------
+
+# Apple TV's 'Cape Fear' Remake Just Revealed Its Most Jaw-Dropping Surprise Yet
+
+TV Features, Cape Fear, Apple TV, Juliette Lewis, Javier Bardem
+
+Tue, 16 Jun 2026 23:18:18 GMT
+
+https://collider.com/cape-fear-2026-apple-tv-juliette-lewis-cast-surprise/
+
+Apple TV's Cape Fear drops an eerie twist in the form of a surprise casting that doubles as a thrilling connection to Martin Scorsese's 1991 film.
+---------
+
+# Netflix Is Officially Dropping ‘Gilmore Girls’ After 12 Years
+
+TV News, Gilmore Girls, Gilmore Girls: A Year in the Life, Netflix, Lauren Graham
+
+Tue, 16 Jun 2026 23:00:40 GMT
+
+https://collider.com/gilmore-girls-leaving-netflix-june-30-2026/
+
+After 12 years on Netflix, the beloved dramedy Gilmore Girls will officially leave the streaming platform in the US this summer. Find out more here.
+---------
+
+# Apple TV’s Most-Watched Sci-Fi Series Ever Proves Its Divisive Pace Is the Whole Point
+
+TV Features, Pluribus, Rhea Seehorn, Apple TV, Vince Gilligan
+
+Tue, 16 Jun 2026 22:47:17 GMT
+
+https://collider.com/apple-tv-most-watched-sci-fi-pluribus-slow-burn-meaning-opinion/
+
+Apple TV's Pluribus proves Vince Gilligan's slow-burn storytelling remains his greatest strength, rewarding patience over answers.
+---------
+
+# 'Scary Movie' Costume Designer Reveals How Ghostface Was Reimagined for 2026 [Exclusive]
+
+Movie News, Scary Movie, Anna Faris
+
+Tue, 16 Jun 2026 22:00:14 GMT
+
+https://collider.com/scary-movie-6-costume-designs-cindy-brenda-ghostface/
+
+Scary Movie (2026) costume designer Ariyela Wald-Cohain reveals the inspirations behind Cindy, Brenda, Shorty, Ray, and the movie's new Ghostface.
+---------
+
+# 10 Greatest 'Game of Thrones' Monologues of All Time
+
+TV, Game Of Thrones, HBO, George R.R. Martin, Fantasy
+
+Tue, 16 Jun 2026 21:47:50 GMT
+
+https://collider.com/game-of-thrones-best-monologues-all-time-ranked/
+
+Game of Thrones set itself apart because of its writing, and the monologues found in the HBO fantasy series are some of the best of television.
+---------
+
+# M. Night Shyamalan's Comic Book Classic 'Unbreakable' Overtaken by Supernatural Thriller Hit at Global Box Office
+
+Movie News, Unbreakable, Backrooms, Box Office Milestones
+
+Wed, 17 Jun 2026 00:00:20 GMT
+
+https://movieweb.com/m-night-shyamalan-unbreakable-backrooms-global-box-office/
+
+The 2026 horror thriller everyone's talking about continues to clean up at the box office, and M. Night Shyamalan has become its latest victim.
+---------
+
+# Disney Officially Confirms New 'Home Alone' for Streaming Release This Christmas
+
+TV News, Home Alone, Disney+
+
+Tue, 16 Jun 2026 23:55:46 GMT
+
+https://movieweb.com/mickeys-home-alone-disney-plus-christmas/
+
+Mickey Mouse will be starring in an animated reimagining of the beloved holiday movie.
+---------
+
+# Netflix’s New Bingeworthy Harlan Coben Thriller Arrives This Week
+
+Features, I Will Find You, Netflix
+
+Tue, 16 Jun 2026 23:00:48 GMT
+
+https://movieweb.com/i-will-find-you-netflix-harlan-coben-thriller/
+
+Harlan Coben's books have been adapted into several popular Netflix thriller series, and a new one premieres soon.
+---------
+
+# One of the Most Brutal War Movies Ever Made Finally Returns To Streaming
+
+Movie News, Full Metal Jacket, Coming/Leaving Streaming, War, Tubi
+
+Tue, 16 Jun 2026 23:00:48 GMT
+
+https://movieweb.com/full-metal-jacket-streaming-free-tubi-july-2026/
+
+Directed by Stanley Kubrick, this Certified Fresh masterpiece has one of the best first acts in movie history.
+---------
+
+# Netflix's R-Rated Smash Hit Rom-Com Dethroned by New True Crime Film on Streaming
+
+Movie News, Netflix, Office Romance, Hot on Streaming, True Crime
+
+Tue, 16 Jun 2026 22:01:21 GMT
+
+https://movieweb.com/netflix-maternal-instinct-streaming-june-2026/
+
+The latest in true crime to come from everyone's favorite streamer will blow your mind. Seriously.
+---------
+
+# 5 Things Marvel Has Officially Confirmed About the MCU X-Men Movie
+
+Movie Lists, X-Men, MCU
+
+Tue, 16 Jun 2026 22:01:21 GMT
+
+https://movieweb.com/marvel-x-men-movie-details-confirmed/
+
+Marvel Studios has teased some interesting developments for the MCU's X-Men, and fans will want to find out more.
+---------
+
+# 'The Mummy' Star Breaks Silence on Official Return for Brendan Fraser Sequel
+
+Movie News, The Mummy 4, The Mummy, John Hannah
+
+Tue, 16 Jun 2026 21:53:38 GMT
+
+https://movieweb.com/the-mummy-4-john-hannah-return-confirmed/
+
+Actor John Hannah opened up about the return to the franchise.
+---------
+
+# Long-Awaited Return of MCU Hero Still Happening Despite 5-Year Wait
+
+Movie News, Shang-Chi 2, Shang-Chi and the Legend of the Ten Rings
+
+Tue, 16 Jun 2026 21:38:24 GMT
+
+https://movieweb.com/shang-chi-2-update-destin-daniel-cretton/
+
+One of the MCU's most popular heroes is still set to get a solo sequel, even with five years having passed since their original film was released.
+---------
+
 # Star Wars Changes Ahsoka Tano's Role In The Galaxy
 
 Streaming TV, Masked Recs
