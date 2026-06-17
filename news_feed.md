@@ -1,3 +1,388 @@
+# In Just 2 Days, New Horror Movie With A Near-Perfect Rotten Tomatoes Score Finally Releases
+
+Movies, Masked Recs
+
+Wed, 17 Jun 2026 21:42:43 GMT
+
+https://screenrant.com/leviticus-movie-rotten-tomatoes-score-release-date-theaters/
+
+After its stunning festival premiere, this new release that stands to be one of the best horror movies of 2026 will finally hit theaters.
+---------
+
+# Apple TV’s Hit Sci-Fi Detective Series Changing Genres In Season 2 Addressed By Sugar Star & Showrunner
+
+TV, Sugar, Colin Farrell
+
+Wed, 17 Jun 2026 21:40:24 GMT
+
+https://screenrant.com/sugar-season-2-sci-fi-comedy-genre-shift-colin-farrell/
+
+EXCLUSIVE: Colin Farrell is back on the small screen as private detective John Sugar, and he’s explaining the tone shift in Sugar season 2.
+---------
+
+# Spider-Man: Brand New Day Trailer #2 Breakdown: 10 Biggest Moments & Reveals
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Wed, 17 Jun 2026 21:39:32 GMT
+
+https://screenrant.com/spider-man-brand-new-day-movie-trailer-reveals/
+
+The newest trailer for Spider-Man: Brand New Day has been released, featuring some exciting new moments and reveals for Tom Holland's next MCU movie.
+---------
+
+# Spider-Man: Brand New Day Reveals The Truth About Sadie Sink's Character
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Wed, 17 Jun 2026 21:37:37 GMT
+
+https://screenrant.com/spider-man-brand-new-day-trailer-reveals-sadie-sink-true-role/
+
+After a long wait, Spider-Man: Brand New Day's second trailer finally gives us a clear idea of Sadie Sink's role in the upcoming MCU movie.
+---------
+
+# Netflix Officially Cancels Its Best Stranger Things Replacement After 1 Season
+
+TV, The Boroughs, The Boroughs - Season 1
+
+Wed, 17 Jun 2026 21:31:46 GMT
+
+https://screenrant.com/the-boroughs-netflix-season-2-canceled/
+
+Less than a month after debuting on Netflix, the streamer has decided the fate of the Duffer Brothers-produced sci-fi series The Boroughs.
+---------
+
+# 10 Epic Fantasy Books Better Than The Chronicles Of Narnia
+
+Books, The Chronicles of Narnia
+
+Wed, 17 Jun 2026 21:30:13 GMT
+
+https://screenrant.com/epic-fantasy-books-better-than-chronicles-of-narnia/
+
+The Chronicles of Narnia is one of the best fantasy books out there, but there are entries in the genre that surpass it in scope and worldbuilding.
+---------
+
+# The Pitt Season 3's Major Cast Member Change Is Great News
+
+TV, The Pitt
+
+Wed, 17 Jun 2026 21:15:21 GMT
+
+https://screenrant.com/the-pitt-season-3-ellis-main-cast-good/
+
+The Pitt's unexpected choice to change a major cast member is a bold move that could shake up the show's dynamics and make HBO's drama even better.
+---------
+
+# The Big Bang Theory’s New HBO Sequel Proves Sheldon Right
+
+Streaming TV, Masked Recs
+
+Wed, 17 Jun 2026 21:02:11 GMT
+
+https://screenrant.com/stuart-fails-to-save-the-universe-apocalypse-sheldon-right/
+
+HBO's The Big Bang Theory sequel assembles a cast of supporting characters for a new spinoff that proves Sheldon's wildest theory was right all along.
+---------
+
+# Marvel Officially Reveals Unique Powers Of Its New Sorcerer Supreme
+
+Marvel Comics, Marvel
+
+Wed, 17 Jun 2026 21:00:01 GMT
+
+https://screenrant.com/new-sorcerer-supreme-powers-turin/
+
+Marvel's new Sorcerer Supreme possesses superpowers that combine two different kinds of characters, far surpassing Scarlet Witch's knowledge.
+---------
+
+# Before The Bear's Final Season, Jeremy Allen White's Underrated Romance Is Trending On Netflix
+
+Movies, After Everything, Jeremy Allen White, Recommendation
+
+Wed, 17 Jun 2026 21:00:01 GMT
+
+https://screenrant.com/after-everything-jeremy-allen-white-underrated-trending-netflix/
+
+The Bear season 5 is on the horizon, so it's a great time to watch Jeremy Allen White's hidden gem from 2018, which is now in Netflix's top 10.
+---------
+
+# 19 Assassin's Creed Games Are Officially Free Until June 23
+
+Games, Assassin's Creed
+
+Wed, 17 Jun 2026 21:45:16 GMT
+
+https://www.cbr.com/assassins-creed-games-free-official-june-23/
+
+Ubisoft is giving gamers the chance to play 19 different Assassin's Creed titles completely for free, even if it's only for a limited time.
+---------
+
+# Netflix Confirms Fate of Stranger Things Creators’ New 8-Part Sci-Fi Just 1 Month After Debut
+
+TV, The Boroughs, Netflix, Sci-Fi
+
+Wed, 17 Jun 2026 21:42:25 GMT
+
+https://www.cbr.com/the-boroughs-netflix-canceled/
+
+Netflix didn't take long to decide the fate of the new sci-fi series.
+---------
+
+# GTA 5 Officially Dropping Major July Update Before GTA 6
+
+Games, Grand Theft Auto, Grand Theft Auto V
+
+Wed, 17 Jun 2026 21:30:18 GMT
+
+https://www.cbr.com/grand-theft-auto-5-official-new-update-before-gta-6-july-2026/
+
+Grand Theft Auto 6 is about to release, but Rockstar has just surprised everyone with new GTA 5 DLC first.
+---------
+
+# NBC's Endlessly Quotable 8-Season Comedy Is Officially Back on the Streaming Charts
+
+TV, Brooklyn Nine-Nine
+
+Wed, 17 Jun 2026 21:00:20 GMT
+
+https://www.cbr.com/nbc-brooklyn-nine-nine-pvod-success-june-2026/
+
+The series features a near-perfect score across all eight seasons.
+---------
+
+# The Game Master's Deck of Fantastic Familiars & Animal Companions Review
+
+Games, Tabletop, Dungeons and Dragons
+
+Wed, 17 Jun 2026 21:00:20 GMT
+
+https://www.cbr.com/game-masters-deck-of-fantastic-familiars-anima-companions-review/
+
+For busy GMs, having a tool like Media Lab's The Game Master's Deck of Fantastic Familiars & Anime Companions makes prep even easier.
+---------
+
+# The 10 Greatest R-Rated Thrillers Of the Last 50 Years, Ranked
+
+Movies, Thriller, Assault on Precinct 13, Blue Velvet, Oldboy, The Talented Mr. Ripley, Parasite, No Country for Old Men, The Silence of the Lambs, Gone Girl, Mulholland Drive, Se7en
+
+Wed, 17 Jun 2026 21:00:20 GMT
+
+https://www.cbr.com/best-r-rated-thrillers-last-50-years-list/
+
+Being R-rated has allowed these thrillers to explore dark and mature themes with real stakes and consequences, becoming some of the genre's best.
+---------
+
+# X-Men Finally Cross Over With Alien in Marvel's Biggest Sci-Fi Event Yet
+
+Comics, X-Men, Alien
+
+Wed, 17 Jun 2026 20:50:59 GMT
+
+https://www.cbr.com/marvel-comics-alien-vs-x-men-confirmed/
+
+In space, even the X-Men can't hear you scream.
+---------
+
+# Disney+ Officially Seals the Fate of 25-Year-Old Animated Classic Reboot After 4 Seasons
+
+TV, The Proud Family: Louder and Prouder, Disney+, Animation
+
+Wed, 17 Jun 2026 20:47:48 GMT
+
+https://www.cbr.com/the-proud-family-louder-and-prouder-season-4-disney-plus/
+
+It's time to say goodbye to this animated favorite again.
+---------
+
+# Pokémon Pokopia Quietly Reveals New Pokémon Customization Features
+
+Games, Pokemon, Nintendo, Nintendo Switch
+
+Wed, 17 Jun 2026 20:31:43 GMT
+
+https://www.cbr.com/pokemon-pokopia-new-pokemon-customization-features/
+
+An official piece of Pokémon Pokopia artwork for its DLC may have confirmed a major new feature debuting in its second major expansion.
+---------
+
+# 5 Great Fantasy TV Shows That Flew Under the Radar
+
+TV, Fantasy
+
+Wed, 17 Jun 2026 20:30:14 GMT
+
+https://www.cbr.com/best-underrated-fantasy-tv-series-list/
+
+From Harry Potter-inspired shows to dystopian horrors, these are the most underrated fantasy TV shows that fans must binge.
+---------
+
+# 'Spider-Man: Brand New Day' Trailer Officially Confirms Major Change to the Hulk
+
+Movie Features, Spider-Man: Brand New Day, Hulk, MCU, Spider-Man
+
+Wed, 17 Jun 2026 21:51:15 GMT
+
+https://collider.com/spider-man-brand-new-day-trailer-hulk-mcu-change-savage-hulk/
+
+The new Spider-Man: Brand New Day trailer teases a big change for Mark Ruffalo's Hulk in the MCU.
+---------
+
+# 5 Years Later, Jason Statham's Explosive Thriller Is Ready for a Sequel
+
+Movie Features, Jason Statham, Wrath of Man, Guy Ritchie, Thriller
+
+Wed, 17 Jun 2026 21:29:47 GMT
+
+https://collider.com/jason-statham-wrath-of-man-explosive-thriller-ready-for-sequel/
+
+Jason Statham teamed up with Guy Ritchie to make Wrath of Man, which was released five years ago now, and could benefit from getting a sequel.
+---------
+
+# Apple TV’s Best Spy Thriller Receives High Praise From MI5 Director General
+
+TV News, Slow Horses, James Bond, Apple TV, Gary Oldman
+
+Wed, 17 Jun 2026 21:17:59 GMT
+
+https://collider.com/apple-tv-slow-horses-mi5-director-praise/
+
+Before it returns for its sixth season, Apple TV’s Slow Horses has received a glowing endorsement from real life MI5 director general, Ken McCallum.
+---------
+
+# New Marvel Crossover Pits the X-Men Against the Deadliest Sci-Fi Creature Ever
+
+TV News, X-Men '97, alien, Ridley Scott, X-Men
+
+Wed, 17 Jun 2026 21:12:55 GMT
+
+https://collider.com/x-men-vs-alien-crossover-comic-images/
+
+The X-Men will face their greatest extra-terrestrial threat this September in a new crossover comic with Ridley Scott’s legendary Alien franchise.
+---------
+
+# 10 Forgotten Thrillers That Can Be Called Masterpieces
+
+Movie, Thriller, The Friends of Eddie Coyle, The Taking of Pelham One Two Three, Sorcerer
+
+Wed, 17 Jun 2026 20:54:15 GMT
+
+https://collider.com/forgotten-thrillers-masterpieces/
+
+These forgotten thrillers unfold through lean suspense, dirty crime, and quiet menace, from Breakdown to The Silent Partner.
+---------
+
+# 10 Greatest Racing Video Games of All Time
+
+Video Games, Video Game, Rocket League, Mario Kart, Need For Speed
+
+Wed, 17 Jun 2026 20:38:14 GMT
+
+https://collider.com/best-racing-video-games-all-time-ranked/
+
+From Mario Kart 8 to Gran Turismo 4, these are the best and most exhilarating racing games that truly capture the thrill of being behind the wheel.
+---------
+
+# 7 Must-Watch Movies Leaving Prime Video in June 2026
+
+Movie, Prime Video, Sinners, A Minecraft Movie, Last Breath
+
+Wed, 17 Jun 2026 20:28:14 GMT
+
+https://collider.com/best-movies-leaving-prime-video-june-2026/
+
+A Minecraft Movie, Last Breath, Sinners, and more make up our list of must-watch movies leaving Prime Video in June 2026.
+---------
+
+# 'Yellowstone' Officially Proves It Never Needed Kevin Costner To Survive
+
+TV Features, Yellowstone, Kevin Costner, Dutton Ranch, Marshals
+
+Wed, 17 Jun 2026 20:24:14 GMT
+
+https://collider.com/yellowstone-thriving-without-kevin-coster-dutton-ranch-marshals/
+
+After Kevin Costner left Yellowstone in Season 5, many doubted how the series would continue. Now, it’s thriving more than ever.
+---------
+
+# Matlock’ Writer Sues CBS Over Alleged Racist and Sexual Comments
+
+TV News, Kathy Bates, Matlock, CBS, Crime
+
+Wed, 17 Jun 2026 20:12:13 GMT
+
+https://collider.com/matlock-lawsuit-cbs-writer-racist-harassment-comments/
+
+A former Matlock writer has filed a lawsuit against CBS over alleged racist and sexual comments connected to the Kathy Bates-led series.
+---------
+
+# This ’90s Sci-Fi Series Is a Masterclass in Space Warfare That Even Star Wars Can’t Match
+
+TV Features, Star Wars, Space: Above and Beyond, FOX TV, Sci-Fi
+
+Wed, 17 Jun 2026 20:02:16 GMT
+
+https://collider.com/sci-fi-series-better-than-star-wars-space-above-and-beyond/
+
+Space: Above and Beyond proved sci-fi TV could rival Star Wars with realistic space warfare, ambitious storytelling, and bold ideas.
+---------
+
+# Netflix’s #1 Action Fantasy Hit Is Officially the Biggest Movie Ever on Streaming
+
+Movie News, KPop Demon Hunters, Netflix, Hot on Streaming, Action
+
+Wed, 17 Jun 2026 21:30:11 GMT
+
+https://movieweb.com/kpop-demon-hunters-action-most-watched-movie-netflix-history/
+
+Netflix's fantasy action movie 'KPop Demon Hunters' is officially the biggest movie in the history of streaming.
+---------
+
+# 'Ocean's Eleven' Prequel Recruits Recent Oscar Nominee as New Villain
+
+Movie News, Ocean's Eleven, Wagner Moura
+
+Wed, 17 Jun 2026 21:00:48 GMT
+
+https://movieweb.com/wagner-moura-oceans-eleven-prequel/
+
+Following an Academy Award nomination for 'The Secret Agent', Wagner Moura joins Margot Robbie and Bradley Cooper in 'Oceans.'
+---------
+
+# 'Evil Dead Wrath' Plot Details Officially Reveal Surprise Place in Franchise Timeline
+
+Movie News, Evil Dead, Evil Dead Wrath
+
+Wed, 17 Jun 2026 20:36:55 GMT
+
+https://movieweb.com/evil-dead-wrath-update-timeline-confirmed/
+
+The upcomign spin-off will mark the first prequel in the franchise.
+---------
+
+# Disney's Biggest Ever Sequel Loses Box Office Crown to 2026's First $1B Movie
+
+Movie News, Disney, The Lion King, The Super Mario Galaxy Movie, box office
+
+Wed, 17 Jun 2026 20:00:19 GMT
+
+https://movieweb.com/disney-zootopia-2-beaten-box-office-super-mario-galaxy/
+
+The year's biggest movie has now knocked Disney down a peg.
+---------
+
+# The 8 Greatest Russell Crowe Action Movies,, Ranked
+
+Movie Lists, Russell Crowe
+
+Wed, 17 Jun 2026 20:00:19 GMT
+
+https://movieweb.com/russell-crowe-best-action-movies-ranked/
+
+From sword and sandal epic movies to buddy cop films and more, discover Russell Crowe's most unforgettable action movies.
+---------
+
 # Game Of Thrones Has Officially Changed Format For 2026 Return
 
 Streaming TV, Masked Recs
