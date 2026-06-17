@@ -1,3 +1,432 @@
+# After 89 Years, DC Officially Has A Franchise First On The Way
+
+TV, DC Universe
+
+Wed, 17 Jun 2026 17:20:21 GMT
+
+https://screenrant.com/dc-universe-booster-gold-show-franchise-first/
+
+DC has a confirmed franchise first on the way despite being almost a hundred years into its overall run, thanks to the DC Universe and its releases.
+---------
+
+# Justin Hartley's New Tracker Replacement Repeats The CBS Series' Winning Formula
+
+TV, Masked Recs
+
+Wed, 17 Jun 2026 17:11:38 GMT
+
+https://screenrant.com/justin-hartley-new-show-repeats-tracker-winning-formula/
+
+Tracker star Justin Hartley's upcoming ABC show promises to replicate the CBS action thriller's entire appeal, but with one pivotal difference.
+---------
+
+# Official Final Fantasy 7 Tifa Redesign Is Utterly Stunning
+
+Gaming, Final Fantasy 7, Triple-A Games
+
+Wed, 17 Jun 2026 17:00:21 GMT
+
+https://screenrant.com/final-fantasy-7-tifa-design-magic-gathering-artwork/
+
+Tifa is one of the most iconic characters from the Final Fantasy franchise, and she's coming back in a big way across multiple projects.
+---------
+
+# New Guardians Of The Galaxy Roster Officially Revealed By Marvel
+
+Marvel Comics, Guardians of the Galaxy, Marvel
+
+Wed, 17 Jun 2026 17:00:21 GMT
+
+https://screenrant.com/imperial-new-guardians-galaxy-deaths-head/
+
+Marvel reveals a new glimpse at the new Guardians of the Galaxy, who seem to be villains willing to replace the original cosmic heroes.
+---------
+
+# One Of The Biggest Anime Series Ever Made Officially Begins Its Final Season Next Month
+
+Streaming TV, Masked Recs
+
+Wed, 17 Jun 2026 17:00:21 GMT
+
+https://screenrant.com/bleach-thousand-year-blood-war-final-season-return/
+
+Over two decades after its first episode aired, one of the all-time biggest anime series is finally ending, and its conclusion is just a month away.
+---------
+
+# Chainsaw Man's Live-Action Adaptation Is Officially Coming To America This Summer
+
+Anime, Chainsaw Man
+
+Wed, 17 Jun 2026 16:48:38 GMT
+
+https://screenrant.com/chainsaw-man-live-action-america-release/
+
+Chainsaw Man's official live-action adaptation from Japan is coming to the U.S. this summer for Anime Expo, and here is everything you need to know.
+---------
+
+# Christopher Nolan Officially Changes Genres In 1 Month
+
+New Movies, Christopher Nolan, The Odyssey
+
+Wed, 17 Jun 2026 16:46:22 GMT
+
+https://screenrant.com/christopher-nolan-change-genre-the-odyssey/
+
+Christopher Nolan has mastered many movie genres over his career, but in one month, he's changing his approach to tackle a major new one.
+---------
+
+# The Big Bang Theory: Leonard & Penny's Relationship Timeline, Season By Season
+
+Network TV, The Big Bang Theory
+
+Wed, 17 Jun 2026 16:30:22 GMT
+
+https://screenrant.com/the-big-bang-theory-leonard-penny-relationship-timeline-season/
+
+From the pilot, The Big Bang Theory has been all about Leonard and Penny, but how did their relationship evolve?
+---------
+
+# Star Trek's 10 Greatest Plot Twists of All Time
+
+TV, Star Trek
+
+Wed, 17 Jun 2026 16:23:14 GMT
+
+https://screenrant.com/star-trek-best-twists/
+
+Trek's biggest twists, ranked.
+---------
+
+# 9 Best Horror Movie Duologies Ever
+
+Movies, Horror, Ranking
+
+Wed, 17 Jun 2026 16:16:21 GMT
+
+https://screenrant.com/best-horror-movie-duologies/
+
+Some horror films within their respective franchises work incredibly well as duologies, making for a perfect spooky double feature on any night.
+---------
+
+# J.K. Simmons' New MobLand Replacement Unveils First Trailer
+
+TV, MGM+, The Westies
+
+Wed, 17 Jun 2026 17:24:09 GMT
+
+https://www.cbr.com/jk-simmons-the-westies-trailer/
+
+The upcoming crime series is perfect for MobLand fans.
+---------
+
+# Daveigh Chase, The Ring and Lilo & Stitch Star, Dead at 35
+
+Movies, The Ring, Lilo & Stitch, Donnie Darko
+
+Wed, 17 Jun 2026 17:10:48 GMT
+
+https://www.cbr.com/daveigh-chase-dead-35-the-ring-lilo-and-stitch/
+
+Daveigh Chase, who had an iconic horror role in The Ring, has died.
+---------
+
+# Anya Taylor-Joy Reacts to Lord of the Rings: The Hunt for Gollum Casting: 'Dream Come True'
+
+Movies, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings, Fantasy
+
+Wed, 17 Jun 2026 17:01:13 GMT
+
+https://www.cbr.com/the-lord-of-the-rings-hunt-for-gollum-cast-anya-taylor-joy-reaction/
+
+Anya Taylor-Joy opens up about entering Middle-earth.
+---------
+
+# Dark Horse Confirms Conclusion of Blood-Soaked Viking Saga
+
+Comics, Dark Horse Comics
+
+Wed, 17 Jun 2026 17:00:14 GMT
+
+https://www.cbr.com/dark-horse-confirms-kill-all-immortals-conclusion/
+
+In a CBR exclusive announcement, Dark Horse is announcing the third and finale volume of its hit series, Kill All Immortals
+---------
+
+# Escape From New York Sequel Announced: What Fans Need to Know
+
+Comics, Escape From New York
+
+Wed, 17 Jun 2026 17:00:14 GMT
+
+https://www.cbr.com/escape-from-new-york-escape-from-chicago-sequel-comic-confirmed/
+
+Snake Plissken's next great escape is right around the corner.
+---------
+
+# Bob Odenkirk's Nobody Has a Better Fight Scene Than John Wick
+
+Movies, Nobody
+
+Wed, 17 Jun 2026 16:30:15 GMT
+
+https://www.cbr.com/nobody-movie-better-fight-scene-than-john-wick/
+
+John Wick is famous for its fight scenes, but a similar action film delivered one that still defines the 2020s.
+---------
+
+# 24 Years Later, Mike Myers Officially Confirms Austin Powers 4
+
+Movies, Austin Powers
+
+Wed, 17 Jun 2026 16:21:17 GMT
+
+https://www.cbr.com/austin-powers-4-mike-myers-confirmed/
+
+Hollywood icon and Austin Power star Mike Myers confirms a fourth film is officially on its way, albeit without offering any specific details.
+---------
+
+# 10 Unforgettable Anime Fandom Trends Born in the 2010s
+
+Anime, Naruto, Jojo's Bizarre Adventure, Attack on Titan, Steins;Gate, My Hero Academia, Demon Slayer: Kimetsu no Yaiba
+
+Wed, 17 Jun 2026 16:15:15 GMT
+
+https://www.cbr.com/anime-fandom-trends-born-in-the-2010s/
+
+Anime fandom has changed drastically over the years, but there are some trends from the 2010s fans still do now.
+---------
+
+# Tom Holland Gives Honest Review of Spider-Man: Brand New Day
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Wed, 17 Jun 2026 16:03:03 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-honest-review-tom-holland/
+
+At least according to Tom Holland, Spider-Man: Brand New Day will be worth the five-year wait.
+---------
+
+# 15 Most Powerful Yu-Gi-Oh Cards
+
+Games, Yu-Gi-Oh!
+
+Wed, 17 Jun 2026 16:00:18 GMT
+
+https://www.cbr.com/yu-gi-oh-strongest-cards-ranked/
+
+There are thousands of different Yu-Gi-Oh! cards out there, but those who want to win need to narrow down the best and strongest to build their deck.
+---------
+
+# Prime Video's New 'Wheel of Time Replacement' Series Officially Earns the Author's Seal of Approval
+
+TV News, Fourth Wing, Michael B. Jordan, The Wheel of Time, Prime Video
+
+Wed, 17 Jun 2026 17:24:29 GMT
+
+https://collider.com/fourth-wing-prime-video-series-author-rebecca-yarros-approval/
+
+Prime Video’s Fourth Wing series officially has author Rebecca Yarros’ seal of approval as the fantasy adaptation moves forward.
+---------
+
+# After Leaving 'Doctor Who,' Russell T. Davies' Next Project Is Officially Coming to America
+
+TV News, Russell T. Davies, Doctor Who, STARZ, Starz
+
+Wed, 17 Jun 2026 17:00:15 GMT
+
+https://collider.com/russell-t-davies-tip-toe-starz-release-details/
+
+British creator Russell T. Davies' tense drama Tip Toe, starring Alan Cumming and David Morrissey, is set to premiere on STARZ in the US.
+---------
+
+# Disney Officially Confirms New 'Home Alone' Release This Christmas
+
+Movie News, Home Alone, Home Sweet Home Alone, Disney, Christmas
+
+Wed, 17 Jun 2026 16:52:32 GMT
+
+https://collider.com/disney-new-home-alone-special-christmas-streaming-release/
+
+Disney confirms a new Home Alone-inspired animated special set to premiere on Disney+ during the 2026 holiday season.
+---------
+
+# In Just 5 Days, Steven Spielberg’s New Sci-Fi Masterpiece Just Scored a Major Box Office Win
+
+Movie News, Disclosure Day, Steven Spielberg, Sci-Fi, Box Office
+
+Wed, 17 Jun 2026 16:46:41 GMT
+
+https://collider.com/disclosure-day-steven-spielberg-sci-fi-global-box-office-milestone-100-million/
+
+Steven Spielberg's Disclosure Day has surpassed its first major worldwide box-office milestone in less than a week since its release. Find out more.
+---------
+
+# Wanda and Vision's Marvel Trilogy Officially Ends This October
+
+TV News, Vision Quest, Paul Bettany, Disney+, Avengers: Doomsday
+
+Wed, 17 Jun 2026 16:38:29 GMT
+
+https://collider.com/marvel-disney-plus-series-vision-quest-release-date-october-14-2026/
+
+VisionQuest, the Marvel Disney+ show you may have completely forgotten about, is officially coming in 2026 before Avengers: Doomsday.
+---------
+
+# 10 Must-Watch ‘90s Cult Classic Movies
+
+Movie, 90s movies, Clerks, Fight Club, Man Bites Dog
+
+Wed, 17 Jun 2026 16:34:15 GMT
+
+https://collider.com/must-watch-90s-cult-classic-movies-ranked/
+
+Fight Club, Man Bites Dog, and The Big Lebowski are all among the most essential '90s cult classic movies pretty much everyone should watch.
+---------
+
+# Apple TV's Best Psychological Thriller Takes a Dark Turn in New Episode [Exclusive]
+
+TV News, Cape Fear, Amy Adams, Patrick Wilson, Jamie Hector
+
+Wed, 17 Jun 2026 16:30:15 GMT
+
+https://collider.com/cape-fear-episode-4-pierced-sneak-peek/
+
+Patrick Wilson and Amy Adams are holding their family together in a sneak peek of this week's Cape Fear. Watch it now.
+---------
+
+# Taylor Sheridan’s Next Big Project Officially Debuts in 1 Week
+
+TV News, Taylor Sheridan, Yellowstone, Mayor of Kingstown, Paramount Plus
+
+Wed, 17 Jun 2026 16:27:53 GMT
+
+https://collider.com/taylor-sheridan-how-to-not-die-in-prison-book-release-date-june-23-2026/
+
+Taylor Sheridan’s next big project, How to Not Die in Prison, arrives in one week. Read on for more details on the Yellowstone creator's new story.
+---------
+
+# Netflix’s 106-Minute Original Sci-Fi Thriller Is Officially One of the Top 10 Biggest Streaming Hits Ever
+
+Movie News, War Machine, Alan Ritchson, Netflix, Sci-Fi
+
+Wed, 17 Jun 2026 16:24:56 GMT
+
+https://collider.com/netflix-war-machine-most-watched-ever-streaming-sci-fi-thriller/
+
+Netflix’s 106-minute original sci-fi thriller starring Alan Ritchson is officially one of the biggest streaming hits ever.
+---------
+
+# Apple TV’s ‘Dune’ Meets ‘Lord of the Rings’ Fantasy Movie Is Facing a Surprising Challenge
+
+Movie News, Mistborn, Apple TV, Brandon Sanderson, Fantasy
+
+Wed, 17 Jun 2026 16:12:55 GMT
+
+https://collider.com/mistborn-movie-apple-tv-brandon-sanderson-fantasy-update/
+
+Apple TV’s Mistborn fantasy movie faces a surprising development challenge as Brandon Sanderson shares a new update.
+---------
+
+# 'Bosch' Star Leads American 'Peaky Blinders' in First Trailer for New Crime Thriller
+
+TV News, The Westies, Titus Welliver, J.K. Simmons
+
+Wed, 17 Jun 2026 17:04:18 GMT
+
+https://movieweb.com/the-westies-trailer-titus-welliver/
+
+'The Westies' has dropped its first trailer, with 'Bosch' star Titus Welliver joining Oscar winner J.K. Simmons in MGM+'s 1980s Irish mob drama.
+---------
+
+# DreamWorks Officially Makes History With Its Live-Action Reboot Sequel
+
+Features, How To Train Your Dragon 2, How to Train Your Dragon
+
+Wed, 17 Jun 2026 17:00:20 GMT
+
+https://movieweb.com/how-to-train-your-dragon-2-remake-record/
+
+Live-action remakes of animated classics always follow one of two trajectories. 'How to Train Your Dragon 2' bucks that trend. Read on for more.
+---------
+
+# Harry Potter Houses: What Makes Each Hogwarts House Distinct and Who's in Them
+
+Features, Harry Potter
+
+Wed, 17 Jun 2026 17:00:20 GMT
+
+https://movieweb.com/harry-potter-hogwarts-houses/
+
+The four houses of Hogwarts contain the great characters in the wizarding world of Harry Potter, and here's how they're each unique.
+---------
+
+# 'Spider-Man: Brand New Day' Popcorn Bucket Breaks Trend With Spectacular Design
+
+Movie News, Spider-Man: Brand New Day, Spider-Man
+
+Wed, 17 Jun 2026 16:45:53 GMT
+
+https://movieweb.com/spider-man-brand-new-day-popcorn-bucket/
+
+Regal Cinemas has unveiled its exclusive popcorn bucket for 'Spider-Man: Brand New Day' alongside other collectibles linked to the MCU tentpole.
+---------
+
+# Netflix Finds New Global Smash with "Totally Unpredictable" Crime Thriller
+
+TV News, Netflix, Hot on Streaming, Crime, Thriller
+
+Wed, 17 Jun 2026 16:00:21 GMT
+
+https://movieweb.com/the-evil-lawyer-netflix-streaming-hit-june-2026/
+
+Netflix's newest streaming sensation is a 100%-rated 8-part crime thriller out of Thailand that has everyone talking.
+---------
+
+# Titus Welliver’s Crime Thriller Is the Only True 'Bosch' and 'Reacher' Replacement
+
+Features, Reacher, Bosch, The Westies, Titus Welliver
+
+Wed, 17 Jun 2026 16:00:21 GMT
+
+https://movieweb.com/westies-titus-welliver-bosch-reacher-thriller/
+
+Titus Welliver starred as Harry Bosch in the Amazon Prime Video action series 'Bosch,' and his new show is perfect for fans of that show.
+---------
+
+# Prime Video Renews New Viking Epic Series for Season 2 Ahead of Series Premiere
+
+TV News, Bloodaxe, Prime Video
+
+Wed, 17 Jun 2026 15:15:56 GMT
+
+https://movieweb.com/bloodaxe-renewed-season-2-prime-video/
+
+Prime Video has renewed the Viking epic series 'Bloodaxe' for Season 2, well ahead of Season 1's 2027 release.
+---------
+
+# Archer: Every Season, Ranked
+
+TV Lists, Archer
+
+Wed, 17 Jun 2026 15:00:22 GMT
+
+https://movieweb.com/archer-every-season-ranked/
+
+A cocky spy, great satire, and flawless comedy - Archer has it all. Here is all the show's seasons, ranked.
+---------
+
+# 'Toy Story 5' Already Eyeing Record-Breaking Box Office
+
+Movie News, Toy Story 5, box office
+
+Wed, 17 Jun 2026 14:32:50 GMT
+
+https://movieweb.com/toy-story-5-box-office-record-prediction/
+
+Insiders are predicting a massive opening weekend at the box office for Pixar's new 2026 sequel, 'Toy Story 5.'
+---------
+
 # Netflix Is Rewriting An American Western Classic Next Month
 
 Streaming TV, Masked Recs
