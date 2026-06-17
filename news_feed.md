@@ -1,3 +1,366 @@
+# Lord Of The Rings: Hands Of The White Wizard Is A Brand-New Saruman Story
+
+Gaming, The Lord of the Rings, tabletop games
+
+Wed, 17 Jun 2026 05:00:20 GMT
+
+https://screenrant.com/lord-rings-hands-white-wizard-one-ring-rpg/
+
+The Lord of the Rings is bringing back Saruman the White, and the legendary wizard might not have to fall to the dark side's temptation this time.
+---------
+
+# Doug Jones Explains Why Hellboy 3 With Ron Perlman Won't Happen
+
+Movies, Hellboy
+
+Wed, 17 Jun 2026 04:06:24 GMT
+
+https://screenrant.com/hellboy-3-doug-jones-ron-perlman-no-sequel/
+
+Doug Jones, who played Abe Sapien in Guillermo Del Toro's Hellboy movies, talks about why a third film starring Ron Perlman isn't in the cards.
+---------
+
+# Steam Officially Makes Hit Story-Driven Game Completely Free For 24 Hours
+
+Gaming, Steam, Triple-A Games
+
+Wed, 17 Jun 2026 04:01:24 GMT
+
+https://screenrant.com/steam-free-story-game-24-hours-june-2026/
+
+It's a great time to log into Steam, as the Steam Next Fest is currently underway, as well as a ton of deals and freebies, including this hit game.
+---------
+
+# Shonen Jump Has Officially Found Their Haikyuu!! Replacement
+
+Anime, Masked Recs, Haikyuu!!
+
+Wed, 17 Jun 2026 03:59:21 GMT
+
+https://screenrant.com/shonen-jump-haikyuu-replacement-hal-formula/
+
+An astonishing sports manga from a veteran Shonen Jump talent channels heartwarming vibes and danger in the high-octane world of competitive racing.
+---------
+
+# 10 Star Wars Projects I’m Most Excited For After The Mandalorian & Grogu
+
+Star Wars, The Mandalorian and Grogu, Ahsoka, Star Wars: Starfighter
+
+Wed, 17 Jun 2026 03:54:43 GMT
+
+https://screenrant.com/10-star-wars-projects-after-the-mandalorian-grogu/
+
+Following the release of The Mandalorian & Grogu, here are 10 more upcoming Star Wars projects I'm super excited to see in 2026 and beyond.
+---------
+
+# 10 Years Later, A Dragon Ball Icon's Brutal Berserk Critique Is Aging Like Milk
+
+Anime, Berserk
+
+Wed, 17 Jun 2026 02:32:06 GMT
+
+https://screenrant.com/dragon-ball-kazuhiro-torishima-berserk-critique/
+
+Explore the interview between Dragon Ball editor Kazuhiko Torishima and Berserk's Kentaro Miura, where Torishima shared harsh criticism of Berserk.
+---------
+
+# Crunchyroll's Rising of the Shield Hero Replacement Isekai Isn't For Everyone (And That's Okay)
+
+Anime, Crunchyroll, Masked Recs
+
+Wed, 17 Jun 2026 02:31:58 GMT
+
+https://screenrant.com/crunchyroll-shield-hero-isekai-replacement-exiled-heavy-knight-episode-1-review/
+
+GoHands is at it again with an isekai that's truly visually striking, although often to a fault.
+---------
+
+# Widow's Bay Finale's Major Twist & What It Means For Season 2 Explained By Director
+
+TV, Widow's Bay, Widow's Bay - Season 1
+
+Wed, 17 Jun 2026 02:12:55 GMT
+
+https://screenrant.com/widows-bay-finale-ruth-evan-plot-twist-season-2-hiro-murai-explained/
+
+Widow's Bay received an early season 2 renewal, but the new season is headed in a different direction after the season 1 finale's major plot twist.
+---------
+
+# Sword Art Online Meets Mushoku Tensei In 2026's Best Isekai That No One Talks About
+
+Anime, Isekai, Masked Recs
+
+Wed, 17 Jun 2026 02:06:39 GMT
+
+https://screenrant.com/hell-mode-sword-art-online-meets-mushoku-tensei/
+
+The most underrated isekai anime of 2026 is the perfect blend of Mushoku Tensei and Sword Art Online that went unnoticed during its release.
+---------
+
+# Xbox Drops Free RPG You Can Grab Until June 22, No Game Pass Needed
+
+Gaming, Xbox Game Pass
+
+Wed, 17 Jun 2026 02:00:33 GMT
+
+https://screenrant.com/xbox-free-rpg-mistfall-open-june-22/
+
+For a limited time, Xbox owners can grab a free RPG to play in June, and it's available even if you don't have a Game Pass subscription.
+---------
+
+# Pixar Producer Explains Why A Toy Story TV Show Never Happened
+
+Movies, Toy Story, Toy Story 2, Toy Story 3, Toy Story 4, Toy Story 5, Pixar
+
+Wed, 17 Jun 2026 04:46:43 GMT
+
+https://www.cbr.com/pixar-producer-explains-toy-story-tv-show-decision/
+
+This is an unexpected answer to a glaring Toy Story question.
+---------
+
+# 5 Anime Series With 50+ Episodes You Should Actually Watch Before 2027
+
+Anime, Hunter x Hunter, Gintama
+
+Wed, 17 Jun 2026 03:45:14 GMT
+
+https://www.cbr.com/must-watch-long-running-anime-series-list/
+
+Committing to a lengthy anime isn't always easy, but titles like JoJo's Bizarre Adventure and Hunter x Hunter are worth the time investment.
+---------
+
+# All 6 Earthrealm Warriors In Mortal Kombat 2, Ranked by Power
+
+Movies, Mortal Kombat II, Mortal Kombat, Sci-Fi
+
+Wed, 17 Jun 2026 03:45:14 GMT
+
+https://www.cbr.com/mortal-kombat-2-earthrealm-strongest-fighters-list-ranked/
+
+Mortal Kombat II features six powerful Earthrealm warriors. Which of them is the strongest of the team?
+---------
+
+# Every Great House Destroyed in Game of Thrones
+
+TV, Game Of Thrones, Fantasy, hbo
+
+Wed, 17 Jun 2026 03:30:15 GMT
+
+https://www.cbr.com/houses-destroyed-in-game-of-thrones-list/
+
+The Great Houses of Westeros are a staple of Game of Thrones and House of the Dragon, but some houses came to an abrupt and tragic end.
+---------
+
+# 10 PS5 Games That Are 10/10, No Notes
+
+Games, Marvel's Spider-Man 2, Elden Ring, Baldur's Gate 3, ps5
+
+Wed, 17 Jun 2026 03:16:14 GMT
+
+https://www.cbr.com/flawless-ps5-games-list/
+
+The era of the PlayStation 5 has delivered some of the most breathtaking titles in gaming history, but these iconic games stand out above the rest.
+---------
+
+# Kylo Ren's Best Last Jedi Line Hits Harder Than Any Sci-Fi Quote Since
+
+Movies, Star Wars, Star Wars: The Last Jedi, Fantasy
+
+Wed, 17 Jun 2026 03:16:14 GMT
+
+https://www.cbr.com/kylo-ren-the-last-jedi-greatest-star-wars-quote/
+
+Back in 2017, Rian Johnson changed Star Wars history when he gave Kylo Ren the defining quote of the Star Wars sequel trilogy under Disney.
+---------
+
+# The Lord of the Rings: The Hunt for Gollum Is Replacing Tauriel
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, The Hobbit
+
+Wed, 17 Jun 2026 02:45:17 GMT
+
+https://www.cbr.com/hunt-for-gollum-seren-replaces-hobbit-tauriel/
+
+Anya Taylor-Joy's recently announced role in The Lord of the Rings: The Hunt for Gollum takes the place of a divisive figure from The Hobbit trilogy.
+---------
+
+# 10 Greatest Fantasy Anime Worth Watching Again and Again
+
+Anime, Frieren: Beyond Journey's End, Delicious in Dungeon, Fantasy
+
+Wed, 17 Jun 2026 02:31:07 GMT
+
+https://www.cbr.com/most-rewatchable-fantasy-anime-list/
+
+From political intrigue to character growth and unexpected twists, fantasy anime series like Mushishi and Frieren reward multiple viewings.
+---------
+
+# Disney's Newly Announced Hexed Film Is Witch Hat Atelier's Perfect Fall Replacement
+
+Anime, Witch Hat Atelier, Disney, Hexed
+
+Wed, 17 Jun 2026 02:10:09 GMT
+
+https://www.cbr.com/disney-hexed-teaser-trailer-witch-hat-atelier-next-watch/
+
+Walt Disney Animation Studios has officially revealed the perfect Fall replacement for Witch Hat Atelier.
+---------
+
+# Steam Officially Makes 9/10 Survival Horror Game Free Until June 22
+
+Games, Dead by Daylight, Steam
+
+Wed, 17 Jun 2026 02:06:05 GMT
+
+https://www.cbr.com/dead-by-daylight-free-june-2026/
+
+The popular horror game is free to play in honor of its major milestone anniversary.
+---------
+
+# One of the Greatest Comedy Series of All Time Is Waiting To Be Rediscovered on Netflix
+
+TV Features, Shrill, Aidy Bryant, John Cameron Mitchell, Hulu
+
+Wed, 17 Jun 2026 04:45:56 GMT
+
+https://collider.com/shrill-hulu-comedy-netflix-streaming/
+
+Aidy Bryant's brutally honest, wryly funny Hulu comedy series Shrill is Netflix's newest hidden gem.
+---------
+
+# 11 Perfect Fantasy TV Shows We Can't Live Without, Ranked
+
+TV, Avatar: The Last Airbender, Arcane, The Good Place, Fantasy
+
+Wed, 17 Jun 2026 04:27:14 GMT
+
+https://collider.com/perfect-fantasy-tv-shows-cant-live-without/
+
+Pushing Daisies, Outlander, The Good Place, Arcane, and more make up our list of perfect fantasy shows we can't live without.
+---------
+
+# 10 Best Stephen King Coming-of-Age Books
+
+Movie, Carrie, Stand by Me, Stephen King, It
+
+Wed, 17 Jun 2026 04:15:19 GMT
+
+https://collider.com/best-stephen-king-books-coming-of-age-ranked/
+
+There are plenty of great Stephen King books that tell compelling coming-of-age stories, including IT, The Eyes of the Dragon, and The Talisman.
+---------
+
+# 10 Greatest Movie Masterpieces of the Last 60 Years
+
+Movie, The Godfather, Pulp Fiction, 2001: A Space Odyssey, The Graduate
+
+Wed, 17 Jun 2026 03:26:15 GMT
+
+https://collider.com/best-movie-masterpieces-last-60-years-ranked/
+
+The best movies of the last 60 years are revolutionary and legendary, with titles like Bonnie and Clyde and Alien representing cinema at its best.
+---------
+
+# The 'Wheel of Time' Reboot Could Fix the Franchise's Biggest Problem
+
+TV Features, The Wheel of Time, Prime Video, Arcane
+
+Wed, 17 Jun 2026 03:11:16 GMT
+
+https://collider.com/wheel-of-time-reboot-fixing-biggest-problem-opinion/
+
+After a sudden cancellation after Season 3, The Wheel of Time is receiving a major reboot that could reinvent the whole book series.
+---------
+
+# Prime Video's Newest Book Adaptation Is the Perfect Watch for 'Summer I Turned Pretty' Fans
+
+TV Features, Every Year After, Prime Video, Romance, Drama
+
+Wed, 17 Jun 2026 02:00:26 GMT
+
+https://collider.com/every-summer-after-prime-video-romance-summer-i-turned-pretty/
+
+Prime Video's latest romance book adaptation, Every Year After, is perfect for fans waiting for the Summer I Turned Pretty movie.
+---------
+
+# Henry Cavill’s 3-Part Detective Saga Officially Returns to Netflix in 2 Weeks
+
+Movie News, Enola Holmes, Enola Holmes 3, Millie Bobby Brown, Henry Cavill
+
+Wed, 17 Jun 2026 01:30:20 GMT
+
+https://collider.com/enola-holmes-3-henry-cavill-netflix-release-date-july-1-2026/
+
+Enola Holmes 3, the detective sequel starring Millie Bobby Brown and Henry Cavill, is set to arrive on Netflix in two weeks.
+---------
+
+# 10 Forgotten Family Movies That Can Be Called Masterpieces
+
+Movie, Family, Millions, The Straight Story, whale rider
+
+Wed, 17 Jun 2026 01:12:16 GMT
+
+https://collider.com/forgotten-family-movies-masterpieces/
+
+From Holes to The Secret Garden, these overlooked family films blend heart, grief, wonder, and storytelling at its finest.
+---------
+
+# Netflix’s 'Solo Leveling' Remake Finally Gets a Major Update After Year-Long Silence
+
+TV News, Netflix, Solo Leveling, Anime, Crunchyroll
+
+Wed, 17 Jun 2026 01:00:21 GMT
+
+https://collider.com/netflix-solo-leveling-remake-live-action-update/
+
+After a year of near silence, Netflix’s highly anticipated sci-fi fantasy remake lands a casting update.
+---------
+
+# 6 Best Romance Books of the Last 10 Years, Ranked
+
+Movie, Books, Romance, Heated Rivalry, Red, White & Royal Blue
+
+Wed, 17 Jun 2026 00:56:17 GMT
+
+https://collider.com/best-romance-books-last-10-years-ranked/
+
+Red, White, & Royal Blue, Beach Read, Heated Rivalry, and more make up our list of the best romance books of the last 10 years.
+---------
+
+# Hugh Jackman Officially Confirms Casting in Ridley Scott's Historical Epic Remake
+
+Movie News, Hugh Jackman, Ridley Scott, The Death of Robin Hood
+
+Wed, 17 Jun 2026 04:16:36 GMT
+
+https://movieweb.com/hugh-jackman-treasure-island-ridley-scott/
+
+Hugh Jackman will step into the shoe of iconic pirate Long John Silver in Ridley Scott's adaptation of 'Treasure Island.'
+---------
+
+# 13 Best Easter Eggs From the 'Star Wars' Prequels
+
+Movie Lists, Star Wars, Star Wars: Episode I - The Phantom Menace, Star Wars: Episode II - Attack of the Clones, Star Wars: Episode III - Revenge of the Sith
+
+Wed, 17 Jun 2026 02:00:32 GMT
+
+https://movieweb.com/star-wars-prequel-trilogy-easter-eggs/
+
+The prequels included references to 'E.T.: The Extra-Terrestrial' and a controversial executive order in American history.
+---------
+
+# 'Ratatouille 2' Fate Officially Confirmed by Star of Pixar Movie
+
+Movie News, Ratatouille, Patton Oswalt, Pixar
+
+Wed, 17 Jun 2026 00:59:48 GMT
+
+https://movieweb.com/ratatouille-2-patton-oswalt-reaction/
+
+Patton Oswalt wants to reprise the role of Remy the rat, but only if filmmaker Brad Bird finds the right idea.
+---------
+
 # 5 Best Fight Scenes From The Furious, Ranked
 
 Movies, The Furious
