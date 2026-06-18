@@ -1,3 +1,300 @@
+# Evil Dead Wrath Producer Confirms Upcoming Movie's Place In Franchise Timeline
+
+Movies, Evil Dead Wrath
+
+Thu, 18 Jun 2026 01:32:40 GMT
+
+https://screenrant.com/evil-dead-wrath-prequel-producer/
+
+Evil Dead Wrath producer, Robert Tapert, revealed the upcoming movie's connection to the rest of the films in the long-running franchise.
+---------
+
+# 13 Years Later, Netflix Is Officially Proving Percy Jackson’s Critics Wrong
+
+Movies, Percy Jackson & The Olympians: The Lightning Thief, Percy Jackson & The Olympians, Percy Jackson: Sea of Monsters
+
+Thu, 18 Jun 2026 01:18:26 GMT
+
+https://screenrant.com/netflix-percy-jackson-movies-netflix-entertaining-change/
+
+The Percy Jackson movies were once reviled, but 13 years after the release of Sea of Monsters, Netflix proves that the tides have massively turned.
+---------
+
+# One Piece's Elbaph Warning Mystery Explained: Who Is Louis Arnot?
+
+Anime, One Piece
+
+Thu, 18 Jun 2026 01:15:21 GMT
+
+https://screenrant.com/one-piece-louis-arnot-explainer/
+
+One Piece Chapter #1132 mentions a forgotten name. Here is everything about the explorer Louis Arnot.
+---------
+
+# Fantasy's Greatest Dragon Makes Every Dragon In Game Of Thrones Look Tiny
+
+Streaming TV, Masked Recs
+
+Thu, 18 Jun 2026 01:15:20 GMT
+
+https://screenrant.com/fantasy-game-of-thrones-look-small-dragon-ball-super-shenron/
+
+Game of Thrones achieved success for delivering a high fantasy story that included majestic creatures like dragons, though they are relatively small.
+---------
+
+# Bloodborne Meets Stardew Valley In Horror Farming Sim You Can Play Free Now
+
+Gaming, Steam, Triple-A Games
+
+Thu, 18 Jun 2026 01:00:21 GMT
+
+https://screenrant.com/welcome-to-elderfield-steam-free-demo-bloodborne-vibes/
+
+If you're looking for a mashup that dreams are made of, you can play one for free now that manages to combine two beloved franchises.
+---------
+
+# If You Love Giant Monsters, Watch This 2-Part Kaiju Slugfest On HBO Max
+
+Movies, Godzilla
+
+Thu, 18 Jun 2026 01:00:21 GMT
+
+https://screenrant.com/godzilla-vs-mechagodzilla-movies-streaming-on-hbo-max/
+
+A great Godzilla movie and its direct sequel feature some great kaiju action, and fortunately, they're both streaming on HBO Max.
+---------
+
+# The Adventures of Elliot Starter Tips: 5 Things To Do First
+
+Gaming
+
+Thu, 18 Jun 2026 01:00:21 GMT
+
+https://screenrant.com/the-adventures-of-elliot-starter-tips/
+
+Here are five things you'll want to do first during the opening hours of The Adventures of Elliot.
+---------
+
+# 25 Funniest K-Dramas On Netflix
+
+Streaming TV, K-Drama, What to Watch on Netflix
+
+Thu, 18 Jun 2026 00:45:21 GMT
+
+https://screenrant.com/funniest-netflix-k-drama/
+
+From romantic comedies to sitcoms and everything in between, these Netflix k-dramas are the absolute funniest Korean series on the platform.
+---------
+
+# Doctor Who's Peter Capaldi Explains Why The Show's Regenerations Have "Diminished"
+
+TV, Doctor Who
+
+Thu, 18 Jun 2026 00:39:47 GMT
+
+https://screenrant.com/doctor-who-regenerations-diminished-peter-capaldi-explained/
+
+Peter Capaldi played the Twelfth Doctor on Doctor Who for nearly half a decade, and he's now shared the issue he has with regenerations.
+---------
+
+# Gilmore Girls Fans Will Have A Sad Surprise In November
+
+Classic TV, Gilmore Girls, Gilmore Girls: A Year in the Life
+
+Thu, 18 Jun 2026 00:34:28 GMT
+
+https://screenrant.com/gilmore-girls-a-year-in-the-life-leaving-netflix-november-2026/
+
+With Gilmore Girls leaving Netflix on June 30, fans are about to get an even ruder awakening with what will happen to the show in November.
+---------
+
+# The Walking Dead Star Norman Reedus Officially Says Goodbye to Daryl Dixon
+
+TV, The Walking Dead: Daryl Dixon, The Walking Dead
+
+Thu, 18 Jun 2026 01:53:26 GMT
+
+https://www.cbr.com/the-walking-dead-norman-reedus-goodbye-daryl-dixon/
+
+It's officially the end of an era for The Walking Dead after 16 years.
+---------
+
+# 10 Sega Dreamcast Games That Aged Like Fine Wine
+
+Games, Sonic the Hedgehog, Resident Evil, Dead or Alive, sega, dreamcast
+
+Thu, 18 Jun 2026 01:46:17 GMT
+
+https://www.cbr.com/sega-dreamcast-games-aged-like-fine-wine/
+
+The Sega Dreamcast had some memorable hits and unforgivable misses, but these ten titles aged so well, they're still enjoyable to this day.
+---------
+
+# 5 Anime Endings That Are Genuine Masterpieces
+
+Anime, Death Note, Code Geass: Lelouch of the Rebellion, Neon Genesis Evangelion
+
+Thu, 18 Jun 2026 01:25:14 GMT
+
+https://www.cbr.com/anime-endings-that-are-genuine-masterpieces/
+
+It's hard to write an anime ending that pleases every fan, but the finales of series like Code Geass and Mob Pyscho 100 were near-perfect.
+---------
+
+# Stephen King Raves Over New Apple Series: 'It's Like Hitchcock Came Back'
+
+TV, Maximum Pleasure Guaranteed
+
+Thu, 18 Jun 2026 01:12:28 GMT
+
+https://www.cbr.com/stephen-king-approves-maximum-pleasure-guaranteed/
+
+Along with holding a near-perfect Rotten Tomatoes score, the Apple TV series has just gotten a glowing endorsement from Stephen King.
+---------
+
+# Greatest RPG Masterpieces of the Last 10 Years, Ranked
+
+Games, RPG, JRPG, Steam
+
+Thu, 18 Jun 2026 00:46:14 GMT
+
+https://www.cbr.com/greatest-rpg-masterpieces-of-the-last-10-years-ranked/
+
+The past decade has seen some of the best RPGs of all time, winning over fans worldwide who love character depth combined with excellent gameplay.
+---------
+
+# Xbox Game Pass Officially Loses 8 Great Games This Month
+
+Games, Xbox Series X (1)
+
+Thu, 18 Jun 2026 00:36:51 GMT
+
+https://www.cbr.com/xbox-game-pass-leaving-june-2026/
+
+Time is quickly running out to play eight quality games on Xbox Game Pass.
+---------
+
+# 27 Years Later, James Gandolfini’s Greatest Sopranos Line Is Still the Most Powerful Quote in TV History
+
+TV, The Sopranos, Crime, hbo
+
+Thu, 18 Jun 2026 00:30:07 GMT
+
+https://www.cbr.com/sopranos-most-powerful-quote-tv-history/
+
+One of Tony Soprano's many confessions to Dr. Melfi still cuts deeper than most TV dialogue ever has, providing haunting insight into what made him.
+---------
+
+# Matt Damon Reveals Christopher Nolan's Extreme Filming Strategy for The Odyssey
+
+Movies, The Odyssey, Christopher Nolan
+
+Thu, 18 Jun 2026 00:23:45 GMT
+
+https://www.cbr.com/matt-damon-christopher-nolan-extreme-filming-strategy-the-odyssey/
+
+Matt Damon has literally never seen anything like this in his life.
+---------
+
+# 10 Anime Every '90s Kid Watched After School
+
+Anime, Sailor Moon, Dragon Ball Z, Pokemon
+
+Thu, 18 Jun 2026 00:15:14 GMT
+
+https://www.cbr.com/best-anime-every-90s-kid-watched-after-school/
+
+The 90s were an exciting decade for anime fans, especially kids who finished school and looked forward to watching shows like DBZ and Sailor Moon.
+---------
+
+# The Batman: Part II Officially Teases The Court of Owls' Live-Action Movie Debut
+
+Movies, The Batman Part II, Batman, The Batman
+
+Thu, 18 Jun 2026 00:00:18 GMT
+
+https://www.cbr.com/the-batman-part-2-court-of-owls-live-action-debut/
+
+Matt Reeves' latest behind-the-scenes post teases the arrival of Batman's most terrifying villains in live-action.
+---------
+
+# If Patricia From ‘Widow’s Bay’ Officially Won You Over, You Need Her 2-Part Comedy Series
+
+TV Features, Widow's Bay, Everyone Else Burns, Kate O'Flynn, Apple TV
+
+Thu, 18 Jun 2026 00:21:44 GMT
+
+https://collider.com/everyone-else-burns-widows-bay-replacement-kate-oflynn/
+
+Kate O'Flynn is the scene stealer in Widow's Bay, and fans can see even more of her comedic skills in the sitcom, Everyone Else Burns.
+---------
+
+# 10 Forgotten Musical Movies That Deserve To Be Called Masterpieces
+
+Movie, Musical, The Young Girls of Rochefort, Hedwig and the Angry Inch, Once
+
+Thu, 18 Jun 2026 00:17:14 GMT
+
+https://collider.com/forgotten-musical-movies-masterpieces/
+
+Movies like Sing Street and Once belong among cinema’s greatest musical achievements, and alongside other overlooked masterpieces worth rediscovering.
+---------
+
+# 'The Mask' Director Says He “Bet the Farm” on Jim Carrey Becoming a Movie Star [Exclusive]
+
+Exclusives, The Mask, Cameron Diaz, Jim Carrey, Chuck Russell
+
+Thu, 18 Jun 2026 00:01:14 GMT
+
+https://collider.com/the-mask-jim-carrey-chuck-russell-movie-star-power/
+
+The Mask director Chuck Russell says he “bet the farm” on Jim Carrey becoming a movie star before the 1994 comedy became a massive hit.
+---------
+
+# Harry Potter’s Scariest Villains Get a Bold New Look Ahead of HBO Reboot
+
+Movie News, Harry Potter, Funko Pop, John Lithgow, HBO Max
+
+Wed, 17 Jun 2026 23:30:13 GMT
+
+https://collider.com/harry-potter-death-eater-funko-pop-images/
+
+Funko is launching a new Harry Potter collection featuring the Dark Lord Voldemort's most faithful servants. See them here!
+---------
+
+# 'Doctor Who' Is Reinventing Itself in Ways Fans Haven't Seen in 20 Years
+
+TV Features, Doctor Who, Russell T. Davies, BBC, Sci-Fi
+
+Wed, 17 Jun 2026 23:24:40 GMT
+
+https://collider.com/doctor-who-cancels-christmas-special-competitive-tender/
+
+The BBC has cancelled Doctor Who's Christmas special, raising questions about the show's future as it seeks new creative partners.
+---------
+
+# 7 Marvel Weapons Stronger Than Thanos' Infinity Gauntlet
+
+Movie, Marvel, MCU, Thanos, Superhero
+
+Wed, 17 Jun 2026 23:22:12 GMT
+
+https://collider.com/marvel-weapons-stronger-than-infinity-gauntlet-ranked/
+
+The power of Thanos' Infinity Gauntlet is undeniable, but other Marvel weapons, like Thor's Stormbreaker and the Darkhold, are arguably stronger.
+---------
+
+# 8 Classic WWII Movies No One Talks About Anymore
+
+Features, War
+
+Thu, 18 Jun 2026 00:00:13 GMT
+
+https://movieweb.com/classic-world-war-two-movies-forgotten/
+
+Saving Private Ryan' and 'The Bridge on the River Kwa' are classic World War II movies, but there are many great underrated films, too.
+---------
+
 # Netflix's New Scandalous 8-Part Series Based On Bestselling Novel Quickly Picks Up Steam In Elite Charts
 
 TV, Masked Recs
