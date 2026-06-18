@@ -1,3 +1,443 @@
+# After 4 Years, Prime Video's 10/10 Fantasy Series Has Its Best Episode Yet
+
+Streaming TV, Masked Recs
+
+Thu, 18 Jun 2026 17:30:21 GMT
+
+https://screenrant.com/the-legend-of-vox-machina-best-episode-yet-season-4-prime-video/
+
+Prime Video's best fantasy series has been on a stellar run for the better part of three years, but has only now dropped its strongest episode yet.
+---------
+
+# Abbott Elementary’s Ending Plans May Have Just Been Revealed In New Report
+
+TV, Abbott Elementary
+
+Thu, 18 Jun 2026 17:22:47 GMT
+
+https://screenrant.com/abbott-elementary-season-8-ending-plan-quinta-brunson-report/
+
+Ahead of the show's much-awaited sitcom, a new report on star and creator Quinta Brunson hints at when Abbott Elementary might come to an end.
+---------
+
+# DreamWorks Makes History With 2027's How To Train Your Dragon 2
+
+Movies, How To Train Your Dragon 2
+
+Thu, 18 Jun 2026 17:20:21 GMT
+
+https://screenrant.com/dreamworks-how-to-train-your-dragon-2-history/
+
+The live-action How to Train Your Dragon 2 isn't just gearing up to be another DreamWorks blockbuster, but it will also make history for the studio.
+---------
+
+# One Of Star Trek's Most Offensive Episodes Is Hard To Watch Today
+
+Classic TV
+
+Thu, 18 Jun 2026 17:03:49 GMT
+
+https://screenrant.com/star-trek-the-paradise-syndrome-hard-to-watch/
+
+The original Star Trek is generally thought of as a TV series ahead of its time, but this retrogade season 3 episode suggests otherwise.
+---------
+
+# Why NCIS’s Bullpen Walls Are Orange Finally Revealed After 23 Years
+
+Network TV, NCIS
+
+Thu, 18 Jun 2026 17:02:18 GMT
+
+https://screenrant.com/ncis-walls-orange-reason-mark-horowitz/
+
+After more than two decades, the msytery about why MCRT's bullpen walls are painted orange in NCIS has been finally explained by an original producer.
+---------
+
+# Harlan Coben's I Will Find You Ending Explained: What Happened To Matthew Burroughs?
+
+Streaming TV, I Will Find You
+
+Thu, 18 Jun 2026 17:00:23 GMT
+
+https://screenrant.com/i-will-find-you-harlan-coben-netflix-ending-explained/
+
+The thrilling conclusion of Netflix's mystery series I Will Find You sees the mystery of Matthew Burroughs' disappearance is unraveled entirely.
+---------
+
+# Spider-Man: Brand New Day Makes Tom Holland's Alternate Civil War Suit Canon
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Thu, 18 Jun 2026 16:56:53 GMT
+
+https://screenrant.com/spider-man-brand-new-day-civil-war-alternate-suit-canon/
+
+Spider-Man: Brand New Day is now confirmed to bring back the Marvel hero's Captain America: Civil War suit that fans did not see onscreen.
+---------
+
+# After 25 Years, The Legally Blonde Prequel Is Almost Here
+
+Streaming TV, Legally Blonde
+
+Thu, 18 Jun 2026 16:45:23 GMT
+
+https://screenrant.com/legally-blonde-prequel-elle-prime-video-series-july/
+
+Legally Blonde was a defining movie for the early 2000s, and the franchise's positive message is still going strong as Elle Woods is set to return.
+---------
+
+# Why Toy Story 5's Rotten Tomatoes Score Is The Worst Of The Main Pixar Series
+
+Movies, Toy Story 5, Toy Story, Pixar
+
+Thu, 18 Jun 2026 16:45:23 GMT
+
+https://screenrant.com/toy-story-5-rotten-tomatoes-score-reviews-explained/
+
+Despite receiving an impressive Rotten Tomatoes score, Toy Story 5 is officially the lowest rated film of the franchise. Here's three reasons why.
+---------
+
+# The Gilded Age Season 4 Release Window Revealed By HBO Max As Preview Reveals Returning Cast
+
+TV, The Gilded Age
+
+Thu, 18 Jun 2026 16:43:20 GMT
+
+https://screenrant.com/the-gilded-age-season-4-release-window-trailer-cast/
+
+HBO reveals when fans can expect the Julian Fellowes-created historical drama The Gilded Age will return and which cast members are returning.
+---------
+
+# Every Mike Flanagan Netflix Horror Show, Ranked
+
+TV, Mike Flanagan, Netflix, Horror, The Haunting of Hill House
+
+Thu, 18 Jun 2026 17:30:13 GMT
+
+https://www.cbr.com/mike-flanagan-netflix-horror-shows-ranked-list/
+
+Mike Flanagan may be moving to Prime Video, but his Netflix projects are among the best that prestigious horror TV has to offer.
+---------
+
+# Marvel Confirms X-Men '97's Fate After MCU Movie Reboot
+
+TV, X-Men '97
+
+Thu, 18 Jun 2026 17:24:48 GMT
+
+https://www.cbr.com/marvel-x-men-97-fate-brad-winderbaum/
+
+Marvel reveals whether the upcoming X-Men film reboot will cause X-Men '97 to prematurely end its run on Disney+.
+---------
+
+# Warrior Cats TV Series Officially in the Works at Major Streamer
+
+TV, Disney+, Fantasy
+
+Thu, 18 Jun 2026 17:15:29 GMT
+
+https://www.cbr.com/warrior-cats-tv-series-disney-plus/
+
+The beloved, long-running fantasy series is finally getting the TV treatment.
+---------
+
+# Nintendo DS Games That Are 10/10, No Notes
+
+Games, Nintendo, Mario, Pokemon
+
+Thu, 18 Jun 2026 17:15:13 GMT
+
+https://www.cbr.com/nintendo-ds-games-perfect-10s-list/
+
+The Nintendo DS is one of the greatest systems of all time, thanks to an incredible roster of 10/10 games that still delight fans today.
+---------
+
+# Titan’s Worst Man Review: A Standout LGBTQIA+ Graphic Novel You Shouldn’t Miss
+
+Comics, LGBTQ, titan books, gay comics
+
+Thu, 18 Jun 2026 17:08:39 GMT
+
+https://www.cbr.com/titan-books-worst-man-release-date-confirmed/
+
+Titan Books celebrates PRIDE with Worst Man, a graphic novel by the Eisner and GLAAD-nominated team of Brandt&amp;Stein, perfectly scandalous and fun.
+---------
+
+# 7 Near-Perfect 2000s Manga No One Talks About
+
+Anime, Shonen, Manga, Holyland
+
+Thu, 18 Jun 2026 16:15:13 GMT
+
+https://www.cbr.com/near-perfect-2000s-manga-no-one-talks-about/
+
+The 2000s offered a vast library of exceptional manga stories, and these seven near-perfect titles deserved far more recognition.
+---------
+
+# 1 Year Later, LEGO Finally Reveals First-Ever KPop Demon Hunters Set
+
+Anime, KPop Demon Hunters, Netflix, LEGO
+
+Thu, 18 Jun 2026 16:01:14 GMT
+
+https://www.cbr.com/lego-kpop-demon-hunters-derpy-tiger-sussie-bird/
+
+LEGO unveils its first-ever KPop Demon Hunters-inspired set, which pays tribute to an adorably derpy feline and his "eyeconic" avian sidekick.
+---------
+
+# Overhated & Underrated: Jumper is The 2000s Biggest Failed Franchise
+
+Movies, Overhated & Underrated, Jumper
+
+Thu, 18 Jun 2026 16:01:14 GMT
+
+https://www.cbr.com/overhated-underrated-jumper/
+
+The 2000s are full of failed franchises and movies that didn't find their audiences, but this underrated sci-fi adventure deserved better.
+---------
+
+# 10 Best Rogue Costumes, Ranked
+
+Comics, X-Men, Marvel
+
+Thu, 18 Jun 2026 16:01:14 GMT
+
+https://www.cbr.com/xmen-best-rogue-costumes-ranked-list/
+
+Rogue has worn many iconic X-Men costumes over the years, from her villainous debut and the Age of Apocalypse variant to her still-iconic '90s suit.
+---------
+
+# 7 Controversial Star Trek: TNG Episodes That Wouldn't Fly Today
+
+TV, Star Trek, Star Trek: The Next Generation
+
+Thu, 18 Jun 2026 16:01:14 GMT
+
+https://www.cbr.com/most-controversial-star-trek-tng-episodes-list/
+
+While Star Trek: The Next Generation upheld the values of the original series, some TNG episodes would be rejected by modern audiences.
+---------
+
+# 23-Year-Old Bestselling Fantasy Series Is Officially Coming to Disney+
+
+TV News, Warrior Cats, Disney+, Disney, Disney Plus
+
+Thu, 18 Jun 2026 17:36:28 GMT
+
+https://collider.com/warrior-cats-animated-series-disney-plus-release-window-2028/
+
+2 weeks after being revealed, Disney has officially picked up the upcoming animated adaptation of a legendary 104-part fantasy series.
+---------
+
+# Paul McCartney at 84 Proves He's Still One of Music's Greatest Living Legends
+
+Music Features, Paul McCartney, The Beatles, Music, Rock
+
+Thu, 18 Jun 2026 17:32:34 GMT
+
+https://collider.com/paul-mccartney-84-birthday-today/
+
+At 84, Paul McCartney remains one of the greatest living music legends, continually creating chart-topping albums and live performances.
+---------
+
+# 8 Best ‘The Pitt’ Replacements To Stream
+
+TV, The Pitt, ER, The Bear, Southland
+
+Thu, 18 Jun 2026 17:18:14 GMT
+
+https://collider.com/best-the-pitt-replacements-streaming/
+
+ER, The Bear, 24, Five Days at Memorial, Southland, and more make up our list of the best The Pitt replacements to stream.
+---------
+
+# 6 Worst R-Rated Movies of the '90s That Are Truly 0/10
+
+Movie, Striptease, Color of Night, Body of Evidence, Jade
+
+Thu, 18 Jun 2026 17:08:14 GMT
+
+https://collider.com/worst-90s-r-rated-movies/
+
+From Striptease to Body of Evidence, to Jade, these disastrous ’90s R-rated movies turn scandal, sex, and suspense into unintentional comedy.
+---------
+
+# ‘Jessica Jones’ Star Teases “Lots of Story To Tell” Following MCU Return in ‘Daredevil: Born Again’ [Exclusive]
+
+TV Features, Jessica Jones, Daredevil: Born Again, Krysten Ritter, Dexter: Resurrection
+
+Thu, 18 Jun 2026 17:03:15 GMT
+
+https://collider.com/daredevil-born-again-season-3-update-jessica-jones-return-krysten-ritter-comments/
+
+Krysten Ritter tells Collider exclusively that Jessica Jones has “lots of story to tell” after Daredevil: Born Again Season 2 set up her future.
+---------
+
+# Queen's Most Iconic Concert Was Packed With Rock Legends Most Have Forgotten
+
+Music Features, Queen, Bohemian Rhapsody, Bohemian Rhapsody: Recreating Live Aid, Rock
+
+Thu, 18 Jun 2026 16:34:16 GMT
+
+https://collider.com/queens-iconic-concert-live-aid-bowie-rolling-stones-led-zeppelin/
+
+Queen was just one of dozens of legends, such as Led Zeppelin, Black Sabbath, and David Bowie, who performed at Live Aid.
+---------
+
+# 6 Forgotten Movie Trilogies That Are Amazing From Start to Finish
+
+Movie, Unbreakable, Pather Panchali, Oldboy, Ocean's Eleven
+
+Thu, 18 Jun 2026 16:21:15 GMT
+
+https://collider.com/forgotten-movie-trilogies-amazing/
+
+Forgotten and overlooked movie trilogies like Bill & Ted, Unbreakable, and Ocean's Eleven are genuinely great and entertaining all the way through.
+---------
+
+# Noah Wyle’s Forgotten Fantasy Spin-Off Returns in 2 Months
+
+TV News, The Librarians: The Next Chapter, Noah Wyle, The Librarians, TNT
+
+Thu, 18 Jun 2026 16:15:14 GMT
+
+https://collider.com/noah-wyle-fantasy-spin-off-the-librarians-the-next-chapter-season-2-release-date/
+
+The Librarians: The Next Chapter, the forgotten fantasy spin-off produced by Noah Wyle, returns in just two months.
+---------
+
+# Taylor Sheridan's Best 'Yellowstone' Sequel Teases Shifting Loyalties in New 'Dutton Ranch' Sneak Peek [Exclusive]
+
+Exclusives, Dutton Ranch, Ed Harris, Yellowstone, Taylor Sheridan
+
+Thu, 18 Jun 2026 16:00:15 GMT
+
+https://collider.com/dutton-ranch-episode-7-preview-sneak-peek-carter-everett/
+
+Watch a new sneak peek from Dutton Ranch Episode 7, Den of Sin, showcasing Beth and Rip's shifting loyalties and Carter's breaking point.
+---------
+
+# Jodie Comer Is Hollywood’s Ultimate Wild Card
+
+Exclusives, Jodie Comer, The Death of Robin Hood, A24, Killing Eve, profile
+
+Thu, 18 Jun 2026 16:00:15 GMT
+
+https://collider.com/jodie-comer-the-death-of-robin-hood-killing-eve-backlash-interview/
+
+Jodie Comer discusses The Death of Robin Hood, Killing Eve's finale backlash, Prima Facie, Stephen Graham, and returning to TV in The Chain.
+---------
+
+# Why the 'Stranger Things' Creators’ Follow-Up Show Was Canceled By Netflix
+
+Features, The Boroughs, Netflix
+
+Thu, 18 Jun 2026 17:00:21 GMT
+
+https://movieweb.com/the-boroughs-canceled-netflix-explained/
+
+The Duffer Brothers' latest Netflix sci-fi thriller series, which they executive-produced, was just cancelled by Netflix.
+---------
+
+# Matthew McConaughey & Woody Are Brothers in First Look at New Apple TV Series
+
+TV News, Woody Harrelson, Matthew McConaughey, Apple TV, Comedy
+
+Thu, 18 Jun 2026 16:11:53 GMT
+
+https://movieweb.com/matthew-mcconaughey-woody-harrelson-brothers-apple/
+
+Matthew McConaughey and Woody Harrelson take on the roles they were born to play: themselves.
+---------
+
+# Harlan Coben Scores Another Rotten Tomatoes Hit With New Netflix Thriller
+
+TV News, I Will Find You, Netflix, Thriller, Harlan Coben
+
+Thu, 18 Jun 2026 16:10:46 GMT
+
+https://movieweb.com/i-will-find-you-rotten-tomatoes-score/
+
+Harlan Coben's latest Netflix adaptation, the mystery thriller 'I Will Find You,' has earned generally positive reviews in its Rotten Tomatoes debut.
+---------
+
+# 4 Clues From Sadie Sink's 'Spider-Man: Brand New Day' Character Reveal
+
+TV Lists, Spider-Man: Brand New Day, Sadie Sink, MCU
+
+Thu, 18 Jun 2026 16:05:20 GMT
+
+https://movieweb.com/sadie-sink-spider-man-brand-new-day-character/
+
+Sadie Sink has long been rumored to be the MCU's new Jean Grey. The new 'Spider-Man' trailer doesn't exactly disprove that. Read on for more.
+---------
+
+# Guy Ritchie's "Indiana Jones Wannabe" Action Adventure Is One of the Biggest Hits in Streaming History
+
+Movie News, Guy Ritchie, Fountain of Youth, Action, Adventure, Apple TV
+
+Thu, 18 Jun 2026 16:01:19 GMT
+
+https://movieweb.com/guy-ritchie-fountain-youth-apple-biggest-streaming-hit/
+
+Audiences cannot get enough of Guy Ritchie's throwback adventure. Even if critics hated it.
+---------
+
+# Jenna Ortega Leads First Look at Taika Waititi's New Dystopian Sci-Fi Adaptation
+
+Movie News, Klara and the Sun, Jenna Ortega, Taika Waititi
+
+Thu, 18 Jun 2026 15:42:56 GMT
+
+https://movieweb.com/jenna-ortega-klara-and-the-sun-first-look-images/
+
+Jenna Ortega and Amy Adams star in the first look at Taika Waititi's 'Klara and the Sun.'
+---------
+
+# Robert Downey Jr. Reveals His Odd Approach to Playing Doctor Doom
+
+Movie News, Avengers: Doomsday, Robert Downey Jr., Joe Russo
+
+Thu, 18 Jun 2026 15:21:16 GMT
+
+https://movieweb.com/robert-downey-jr-odd-doctor-doom-doomsday/
+
+'Avengers: Doomsday' star Robert Downey Jr. reveals the 'odd' approach he's taking to Doctor Doom, as Joe Russo calls it Marvel's most mature film.
+---------
+
+# Christopher Nolan's 'Inception' Apparently Wasn't Inspired by This Anime
+
+Features, Inception, Christopher Nolan, Paprika
+
+Thu, 18 Jun 2026 15:00:20 GMT
+
+https://movieweb.com/was-christopher-nolan-inception-inspired-by-paprika/
+
+More than a few similarities exist between Christopher Nolan's 'Inception' and an anime legend's swan song. How similar are they really?
+---------
+
+# 'Toy Story 5' Director Justifies Making a Fifth Movie After 31 Years
+
+Movie News, Toy Story 5, Toy Story, Pixar
+
+Thu, 18 Jun 2026 15:00:04 GMT
+
+https://movieweb.com/toy-story-5-director-kenna-harris-justifies-sequel/
+
+'Toy Story 5' director Kenna Harris explains why the franchise needs another sequel, 16 years after the trilogy wrapped up.
+---------
+
+# Prime Video's Near-Perfect R-Rated Smash Refuses To Back Down on Streaming
+
+TV News, Off Campus, Hot on Streaming, Prime Video, Romance
+
+Thu, 18 Jun 2026 14:33:20 GMT
+
+https://movieweb.com/off-campus-prime-video-streaming-hit-june-2026/
+
+Prime Video's spicy eight-episode smash continues to be a big hit for Amazon one month later, despite some tough competition.
+---------
+
 # Gerard Butler’s $74M Action Hit Is Quietly Climbing US Streaming Charts After Disappointing Sequel Cancellation
 
 Movies, Masked Recs
