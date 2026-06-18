@@ -1,3 +1,432 @@
+# Jordan Peele's Remake Of R-Rated Police Comedy Reportedly Cancelled After 12 Years In Development
+
+Movies, Police Academy
+
+Thu, 18 Jun 2026 20:07:00 GMT
+
+https://screenrant.com/jordan-peele-police-academy-reboot-cancelled-explained/
+
+The Police Academy franchise has been around since 1984, but Jordan Peele and Keegan-Michael Key’s reboot is reportedly no longer being made.
+---------
+
+# How To Watch Power & All Power Book Spinoffs In Order
+
+Streaming TV, Power
+
+Thu, 18 Jun 2026 20:00:22 GMT
+
+https://screenrant.com/how-to-watch-power-shows-in-order-release-chronological/
+
+The 2014 Starz crime drama television series Power generated three spinoffs – read on for all the different ways to watch the shows in order.
+---------
+
+# After 24 Years, Firefly Is Officially Back With First Look At New Series
+
+Comics, Firefly
+
+Thu, 18 Jun 2026 20:00:21 GMT
+
+https://screenrant.com/firefly-returns-dynamite-entertainment-new-series/
+
+Back to the 'Verse
+---------
+
+# Prime Video's 91% Sci-Fi Thriller Is The New Altered Carbon
+
+Streaming TV, Masked Recs
+
+Thu, 18 Jun 2026 20:00:21 GMT
+
+https://screenrant.com/spider-noir-prime-video-new-altered-carbon/
+
+Altered Carbon was a cyberpunk masterpiece with a dark tone and aesthetic, making Prime Video's new TV show the perfect replacement TV show.
+---------
+
+# Why Timothy Olyphant's New R-Rated Thriller Is #1 On Prime Video Worldwide
+
+Movies, Masked Recs
+
+Thu, 18 Jun 2026 19:57:41 GMT
+
+https://screenrant.com/over-your-dead-body-thriller-movie-prime-video-charts-rise/
+
+Timothy Olyphant's new R-rated thriller has become one of the most-watched movies in the world, and its Prime Video dominance makes a lot of sense.
+---------
+
+# Toy Story 5 Interviews with Tom Hanks, Tim Allen, Kenna Harris & Lindsey Collins
+
+Movies, Toy Story 5, Toy Story
+
+Thu, 18 Jun 2026 19:44:22 GMT
+
+https://screenrant.com/video/toy-story-5-tom-hanks-tim-allen-kenna-harris-lindsey-collins-interview/
+
+Tom Hanks, Tim Allen, Kenna Harris & Lindsey Collins talk Toy Story 5, how Woody and Buzz have changed in recent years, and the movie's big secret.
+---------
+
+# Supergirl First Reactions Are Officially In For James Gunn's Next DC Movie
+
+Movies, Supergirl, DC Universe
+
+Thu, 18 Jun 2026 19:38:20 GMT
+
+https://screenrant.com/supergirl-movie-reactions/
+
+The next installment in James Gunn's DCU franchise is the Supergirl movie, and the first batch of official reactions has emerged about the film.
+---------
+
+# Yellowstone's New Series Proves We've Been Misunderstanding Beth Dutton
+
+Streaming TV, Yellowstone, Dutton Ranch, Dutton Ranch - Season 1, Taylor Sheridan
+
+Thu, 18 Jun 2026 19:33:41 GMT
+
+https://screenrant.com/dutton-ranch-beth-dutton-misunderstood/
+
+Dutton Ranch reveals a side of Beth Dutton many Yellowstone fans overlook, showing she's more than her famous one-liners.
+---------
+
+# Colleen Hoover’s Hit New Adaptation Officially Releases On Streaming Next Month
+
+Movies, Masked Recs
+
+Thu, 18 Jun 2026 19:31:40 GMT
+
+https://screenrant.com/reminders-of-him-peacock-streaming-release-date/
+
+After hitting theaters earlier this year, the new Colleen Hoover adaptation has now set a streaming release date, and there isn’t long to wait.
+---------
+
+# Toy Story 5's Biggest Secret Was "So Much Pressure" For The Pixar Team
+
+Movies, Toy Story 5, Toy Story, Pixar, Taylor Swift
+
+Thu, 18 Jun 2026 19:31:22 GMT
+
+https://screenrant.com/toy-story-5-biggest-secret-taylor-swift-song-pressure-pixar-director-producer/
+
+Tom Hanks, Tim Allen, director Kenna Harris and the rest of the Toy Story 5 team talk the new Pixar sequel and keeping its biggest secret.
+---------
+
+# Star Wars: Starfighter Stuntman Reportedly Loses Thumb in On-Set Accident
+
+Movies, Star Wars, Star Wars: Starfighter, Sci-Fi
+
+Thu, 18 Jun 2026 20:06:13 GMT
+
+https://www.cbr.com/star-wars-starfighter-stuntman-injured-lost-thumb/
+
+An anonymous source leaked the allegations, saying production resumed to meet the strict filming deadline.
+---------
+
+# Star Trek Sequel Confirmed: Picard Fan-Favorite Returns as the Main Character
+
+Comics, Star Trek
+
+Thu, 18 Jun 2026 20:00:14 GMT
+
+https://www.cbr.com/star-trek-sequel-comic-release-date-confirmed/
+
+The mainline Star Trek series is making a comeback, and a fan-favorite character from Picard will be the new captain.
+---------
+
+# Beach Read is 2027's Biggest Book-to-Movie Adaptation
+
+Movies, Beach Read
+
+Thu, 18 Jun 2026 20:00:14 GMT
+
+https://www.cbr.com/beach-read-romantic-comedy-event-2027/
+
+This Emily Henry adaptation has begun filming and could become the next big rom-com hit, despite casting controversy.
+---------
+
+# Paramount Officially Announces Survivor Movie With an Unexpected Twist
+
+Movies, Survivor
+
+Thu, 18 Jun 2026 19:59:22 GMT
+
+https://www.cbr.com/paramount-survivor-movie-animal-kingdom/
+
+Survivor is making the transition to the big screen, but with a major change.
+---------
+
+# Robert Downey Jr. Called Avengers: Infinity War the MCU’s ‘Most Important’ Movie for One Key Reason
+
+Comics, Avengers: Infinity War, Marvel Cinematic Universe
+
+Thu, 18 Jun 2026 19:55:52 GMT
+
+https://www.cbr.com/robert-downey-jr-avengers-infinity-war-most-important-mcu-movie/
+
+Returning MCU star Robert Downey Jr. explains exactly why Avengers: Infinity War is the "most important" film in the franchise "so far."
+---------
+
+# 1 Month Before Release, Spider-Man: Brand New Day Breaks 5-Year Box Office Record
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Thu, 18 Jun 2026 19:52:28 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-pre-sales-record/
+
+Only a superhero like Spider-Man could begin breaking box office records before his new movie is even in theaters.
+---------
+
+# After 26 Years, Jim Carrey Returns for Sequel to His $351M Holiday Classic
+
+Movies, How The Grinch Stole Christmas
+
+Thu, 18 Jun 2026 19:01:01 GMT
+
+https://www.cbr.com/how-the-grinch-stole-christmas-sequel-jim-carrey/
+
+Semi-retired Hollywood icon Jim Carrey will revisit one of his most beloved movies in an official sequel.
+---------
+
+# Solo Leveling Officially Reveals Major July Event Amid Season 3 Delay
+
+Anime, Solo Leveling, Crunchyroll
+
+Thu, 18 Jun 2026 19:00:13 GMT
+
+https://www.cbr.com/solo-leveling-interactive-exhibition-shibuya/
+
+Amid ongoing Season 3 delays, Solo Leveling gets an interactive exhibition highlighting Jinwoo's journey.
+---------
+
+# Prime Video Already Has a Perfect God of War Replacement That Beats Netflix at Its Own Game
+
+TV, God of War, The Witcher 3: Wild Hunt
+
+Thu, 18 Jun 2026 19:00:13 GMT
+
+https://www.cbr.com/prime-video-witcher-3-the-wild-hunt-god-of-war-replacement/
+
+Hopes are high for the new God of War series, but there is one video game that is begging for its own adaptation.
+---------
+
+# 5 Darkest Supernatural Western Masterpiece Movies
+
+Movies, Western, High Plains Drifter, Horror
+
+Thu, 18 Jun 2026 19:00:13 GMT
+
+https://www.cbr.com/perfect-dark-supernatural-western-movies-list/
+
+The supernatural Western represents some of the darkest stories ever told on film, and these masterpieces prove it.
+---------
+
+# In Just 1 Month, Netflix's New Crime Thriller Hit 1.31B Minutes Watched
+
+TV News, Nemesis, Netflix, Thriller, Crime
+
+Thu, 18 Jun 2026 20:07:59 GMT
+
+https://collider.com/netflix-nemesis-streaming-success-june-2026/
+
+Netflix's new crime thriller is one of the streamer's biggest sleeper hits with over 1 billion views in just 1 month.
+---------
+
+# Netflix’s 744M-Hours-Viewed Comfort Drama Is Officially One of Its Biggest Streaming Hits
+
+TV Features, Sweet Magnolias, Netflix, Series, Drama
+
+Thu, 18 Jun 2026 20:07:16 GMT
+
+https://collider.com/netflix-sweet-magnolias-744-million-hours-viewed-biggest-streaming-hit/
+
+One of Netflix’s biggest comfort hits, Sweet Magnolias has amassed 744 million hours viewed across five seasons.
+---------
+
+# Every Studio Album Released by The Police, Ranked
+
+Music News, The Police: Around The World, The Police: Synchronicity Concert, The Police - Every Breath You Take, Sting, Music, Rock
+
+Thu, 18 Jun 2026 20:00:14 GMT
+
+https://collider.com/every-album-the-police-released-ranked/
+
+From Outlandos d'Amour to Reggatta de Blanc to Ghost in the Machine to Synchronicity, every studio album released by The Police, ranked.
+---------
+
+# Taylor Sheridan's 'Yellowstone' Spin-Off Confirms Divisive New Rip Replacement
+
+TV News, Yellowstone, Cole Hauser, Dutton Ranch
+
+Thu, 18 Jun 2026 19:54:28 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-spin-off-dutton-ranch-rip-replacement/
+
+Sheridan's hit franchise has debuted not one, but two spin-offs this year
+---------
+
+# 6 Best Superhero Cartoons Ever Made, Ranked
+
+TV, Superhero, Cartoons, Green Lantern: The Animated Series, The Avengers: Earth's Mightiest Heroes
+
+Thu, 18 Jun 2026 19:54:15 GMT
+
+https://collider.com/best-superhero-cartoons-ever-made/
+
+From Batman: The Animated Series to The Spectacular Spider-Man to Teen Titans, these superhero cartoons remain unmatched storytelling triumphs.
+---------
+
+# Prime Video's Divisive 'Reacher' Replacement Movie Officially Hit 809M Minutes Watched
+
+Movie News, Tom Clancy's Jack Ryan: Ghost War, Tom Clancy's Jack Ryan, Reacher, Prime Video
+
+Thu, 18 Jun 2026 19:44:17 GMT
+
+https://collider.com/tom-clancy-jack-ryan-ghost-war-streaming-success-prime-video-june-2026/
+
+Despite divisive reviews, Prime Video’s new Tom Clancy adaptation is a massive hit on the streaming platform. Read on for all the details.
+---------
+
+# 10 Greatest Psychological Thriller Books of All Time
+
+Movie, Misery, And Then There Were None, The Trial, Gone Girl
+
+Thu, 18 Jun 2026 19:33:15 GMT
+
+https://collider.com/best-psychological-thriller-books-all-time-ranked/
+
+Some of the best psychological thriller books ever written include literary classics like The Trial alongside newer works like House of Leaves.
+---------
+
+# Netflix’s New ‘Mare of Easttown’ Replacement Gets Major Expansion
+
+TV News, Tracy Letts, John Gallagher Jr, Lola Kirke, Netflix
+
+Thu, 18 Jun 2026 19:24:35 GMT
+
+https://collider.com/the-god-of-the-woods-netflix-cast-tracy-letts-john-gallagher-jr/
+
+Netflix’s The God of the Woods has rounded out its cast with Tracy Letts, John Gallagher Jr., Lola Kirke, Colton Ryan, and more.
+---------
+
+# How To Watch the Next USA Match at the 2026 World Cup
+
+TV, Sports, Soccer
+
+Thu, 18 Jun 2026 19:03:14 GMT
+
+https://collider.com/fifa-world-cup-2026-next-usa-match-june-19-how-to-watch/
+
+The USA will play its second match at the 2026 World Cup against Australia this Friday, June 19. We'll tell you the time, place, and where to watch.
+---------
+
+# Netflix Quietly Rolls Out Major Changes for Subscribers
+
+Movie News, Netflix, Adolescence, Squid Game
+
+Thu, 18 Jun 2026 18:48:25 GMT
+
+https://collider.com/netflix-accessibility-search-by-language-update/
+
+Netflix has rolled out new accessibility tools, including Search by Language, as millions of subscribers use subtitles, dubbing and audio descriptions
+---------
+
+# The Most Expensive Movie Ever Made Dethroned by $1B Sci-Fi Action Sequel
+
+Movie News, Jurassic World Dominion, Star Wars: Episode VII - The Force Awakens, Box Office Milestones, Sci-Fi
+
+Thu, 18 Jun 2026 20:00:19 GMT
+
+https://movieweb.com/jurassic-world-dominion-most-expensive-movie-star-wars-the-force-awakens/
+
+It took 11 years, but 'Star Wars: The Force Awakens' has finally been dethroned as the most expensive movie ever made.
+---------
+
+# 'Fallout' Season 3 Adds a Fan-Favorite 'Star Wars' Actor in Major Update
+
+TV News, Fallout, Prime Video, Star Wars, The Acolyte
+
+Thu, 18 Jun 2026 19:57:48 GMT
+
+https://movieweb.com/fallout-season-3-star-wars-actor/
+
+Prime Video's 'Fallout' just got an explosive update with three new stars joining the video game adaptation for Season 3.
+---------
+
+# Taylor Sheridan's Long-Awaited 'Yellowstone' Prequel Finally Gets Positive Update
+
+TV News, Yellowstone, Taylor Sheridan, 1923
+
+Thu, 18 Jun 2026 19:52:33 GMT
+
+https://movieweb.com/taylor-sheridan-yellowstone-1944-prequel-update/
+
+The Dutton saga plans to fill its midcentury gap according to a new report detailing the current status of '1944.'
+---------
+
+# 15 Years Ago, a Decade-Long Superhero Era Came to an End
+
+Features, Green Lantern
+
+Thu, 18 Jun 2026 19:00:18 GMT
+
+https://movieweb.com/green-lantern-ryan-reynolds-era-over/
+
+For the 15-year anniversary of Ryan Reynolds 'Green Lantern, look back on how it ended a specific era of the superhero genre.
+---------
+
+# Alan Ritchson's 'Reacher' Officially Announces New Release Before Season 4
+
+TV News, Reacher
+
+Thu, 18 Jun 2026 18:35:20 GMT
+
+https://movieweb.com/reacher-season-3-dvd-home-release/
+
+'Reacher' Season 3 will soon be available via home release before Season 4 eventually begins streaming on Amazon Prime Video.
+---------
+
+# 100% RT-Rated Thriller That's a Perfect 'Backrooms' Follow-Up Confirms Release Date
+
+Movie News, It Ends
+
+Thu, 18 Jun 2026 18:31:32 GMT
+
+https://movieweb.com/it-ends-movie-release-date/
+
+Neon will release 'It Ends' in theaters on August 21.
+---------
+
+# Jim Carrey Returning for 'Grinch 2' in First Official Update in 26 Years
+
+Movie News, How The Grinch Stole Christmas, Jim Carrey
+
+Thu, 18 Jun 2026 18:20:43 GMT
+
+https://movieweb.com/jim-carrey-how-the-grinch-stole-christmas-sequel-ron-howard/
+
+A long-awaited sequel to the cult classic Jim Carrey holiday film 'How the Grinch Stole Christmas' is in the works from director Ron Howard.
+---------
+
+# Forget 'Yellowstone,' Taylor Sheridan's Greatest Western Thriller Shoots to Streaming Success
+
+Movie News, Hell or High Water, Taylor Sheridan, Western, Thriller
+
+Thu, 18 Jun 2026 18:00:18 GMT
+
+https://movieweb.com/taylor-sheridan-greatest-hell-high-water-stream-june-2026/
+
+Forget 'Marshals,' Taylor Sheridan hit all the right action Western notes with this one.
+---------
+
+# Only One Person Can Watch Willem Dafoe's New Movie at a Time
+
+Features, Willem Dafoe
+
+Thu, 18 Jun 2026 18:00:18 GMT
+
+https://movieweb.com/sculpt-eye-of-the-duck-willem-dafoe-movie-explained/
+
+Willem Dafoe has a new movie that is a very different moviegoing experience than usual
+---------
+
 # After 4 Years, Prime Video's 10/10 Fantasy Series Has Its Best Episode Yet
 
 Streaming TV, Masked Recs
