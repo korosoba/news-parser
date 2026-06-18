@@ -1,3 +1,278 @@
+# One Of Xbox's Best RPGs Is Getting A Sequel - But With A Twist
+
+Gaming, Avowed, Xbox, Triple-A Games, PC
+
+Thu, 18 Jun 2026 06:00:20 GMT
+
+https://screenrant.com/avowed-2-development-obsidian-new-director/
+
+Xbox will apparently be revisiting one of its most interesting RPGs, but the creative vision might be a bit different this time around.
+---------
+
+# Highly-Anticipated July 2026 RPG Is Free To Play On Switch 2 Right Now
+
+Gaming, Nintendo Switch 2, RPG, Digimon
+
+Thu, 18 Jun 2026 05:01:20 GMT
+
+https://screenrant.com/switch-2-rpg-digimon-story-time-stranger-free-demo/
+
+An upcoming and highly-anticipated RPG is completely free-to-play right now on the Nintendo Switch 2, with no strings attached.
+---------
+
+# Avatar: Frontiers Of Pandora Free Download Officially Yours Until June 23
+
+Gaming, Avatar: Frontiers Of Pandora, Avatar, Ubisoft, PC
+
+Thu, 18 Jun 2026 04:00:32 GMT
+
+https://screenrant.com/avatar-frontiers-of-pandora-free-download-june-2026/
+
+The massive open-world Ubisoft title Avatar: Frontiers of Pandora is completely free to download and play, but only for a very limited time.
+---------
+
+# After 4 Years, Reacher Will Soon Switch Main Characters
+
+Streaming TV, Reacher
+
+Thu, 18 Jun 2026 03:05:32 GMT
+
+https://screenrant.com/neagley-spin-off-reacher-main-character-replacement/
+
+Alan Ritchson has led Reacher’s cast as the titular lead for almost four years, but he will soon be switching places with another primary character.
+---------
+
+# Far Cry 6 Free Download Officially Available Until June 23
+
+Gaming, Far Cry, Far Cry 6, Ubisoft, PC
+
+Thu, 18 Jun 2026 03:00:26 GMT
+
+https://screenrant.com/far-cry-6-free-download-june-2026-limited-time/
+
+Far Cry 6 is officially free to download and play in its entirety, but only for a very limited time, meaning fans and newcomers will need to act fast.
+---------
+
+# Stephen King Praises Apple TV’s Hit New Horror Series That’s Already Renewed For Season 2
+
+TV, Masked Recs
+
+Thu, 18 Jun 2026 02:21:30 GMT
+
+https://screenrant.com/stephen-king-widows-bay-maximum-pleasure-guaranteed-review/
+
+Stephen King follows in the footsteps of Guillermo del Toro and Hideo Kojima by praising Apple TV's hit new horror series renewed for season 2.
+---------
+
+# Steam Officially Drops Free Download For 2026 GOTY Contender
+
+Gaming, Steam
+
+Thu, 18 Jun 2026 02:00:32 GMT
+
+https://screenrant.com/steam-free-download-2026-goty-contender/
+
+One of 2026’s early Game of the Year favorites is free to try on Steam right now, featuring over 100 mind-bending puzzles.
+---------
+
+# Hunter x Hunter Officially Returns After 2 Years With a New Release Date
+
+Anime, Hunter X Hunter, Shonen Jump, Crunchyroll
+
+Thu, 18 Jun 2026 04:33:12 GMT
+
+https://www.cbr.com/hunter-x-hunter-officially-returns-new-release-date/
+
+Hunter x Hunter fans finally got the good news they've been waiting two years for.
+---------
+
+# Spider-Man: Brand New Day Will Retcon She-Hulk: Attorney at Law
+
+Movies, MCU, Spider-Man: Brand New Day, She-Hulk: Attorney at Law
+
+Thu, 18 Jun 2026 03:46:59 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-retcons-she-hulk-series/
+
+The latest trailer for Spider-Man: Brand New Day contradicted the lore of the Marvel Cinematic Universe's most divisive streaming series.
+---------
+
+# 10 Free Steam Games That Are 10/10, No Notes
+
+Games, Video Games, Steam, Marvel Rivals
+
+Thu, 18 Jun 2026 03:46:59 GMT
+
+https://www.cbr.com/free-steam-games-flawless-no-notes/
+
+Incredible games like Marvel Rivals and Star Wars: The Old Republic are completely free to play on Steam.
+---------
+
+# Star Trek's Smartest TNG Episode Is the Best Time-Travel Story in Sci-Fi TV History
+
+TV, Star Trek: The Next Generation, Sci-Fi, Paramount
+
+Thu, 18 Jun 2026 03:30:14 GMT
+
+https://www.cbr.com/star-trek-tng-cause-and-effect-greatest-time-travel-episode-ever/
+
+One Star Trek: TNG episode proved how clever time travel can be by building suspense and presenting a puzzle that sci-fi fans still talk about today.
+---------
+
+# The Surprising Origin of the Spider-Verse
+
+Comics, Spider-Man, CSBG, When We First Met
+
+Thu, 18 Jun 2026 03:28:13 GMT
+
+https://www.cbr.com/spider-man-surprising-origin-spider-verse/
+
+The term "Spider-verse" has become such an iconic part of popular culture, but what was the surprising place the term was first used?
+---------
+
+# House of the Dragon’s Fabien Frankel Wants To Explore This Lost Time Period In The Show’s History: ‘A Bunch of Stuff Happened’
+
+CBR Exclusives, House of the Dragon, Game Of Thrones, HBO Max
+
+Thu, 18 Jun 2026 03:21:52 GMT
+
+https://www.cbr.com/house-of-the-dragon-fabien-frankel-criston-cole-time-jump-history/
+
+House of the Dragon star Fabien Frankel discusses Criston Cole’s Season 1 time jump and the character’s unseen villain origin.
+---------
+
+# It's Official, The Wheel of Time Is Not Over Yet
+
+Games, The Wheel of Time
+
+Thu, 18 Jun 2026 03:15:16 GMT
+
+https://www.cbr.com/wheel-of-time-officially-returning/
+
+The Wheel of Time is returning in the most shocking and unexpected of ways, much to the joy of fantasy fans everywhere.
+---------
+
+# A24 Is Officially Working on a Texas Chainsaw Massacre Reboot
+
+Movies, The Texas Chainsaw Massacre, A24, Horror
+
+Thu, 18 Jun 2026 03:15:16 GMT
+
+https://www.cbr.com/a24-texas-chainsaw-massacre-franchise-horror-reboot/
+
+52 years and eight sequels later, The Texas Chainsaw Massacre is set to return with Obsession's Curry Barker helming the project.
+---------
+
+# The Agency Season 2 Review: Michael Fassbender’s Spy Thriller Becomes Even More Addictive
+
+TV, The Agency, Paramount Plus
+
+Thu, 18 Jun 2026 03:10:48 GMT
+
+https://www.cbr.com/the-agency-season-2-review/
+
+The Agency Season 2 brings Michael Fassbender back for a darker, tenser chapter of Paramount+’s acclaimed espionage thriller.
+---------
+
+# 10 Greatest Dark Fantasy Manga of All Time
+
+Anime, Berserk, Chainsaw Man, Manga
+
+Thu, 18 Jun 2026 02:46:15 GMT
+
+https://www.cbr.com/best-dark-fantasy-manga-of-all-time/
+
+From Berserk to Chainsaw Man, these near-perfect dark fantasy manga define the genre.
+---------
+
+# Bowen Yang’s ‘SNL’ Exit Says Everything About Why the Show Keeps Surviving
+
+TV Features, Bowen Yang, Saturday Night Live, Series, NBC
+
+Thu, 18 Jun 2026 04:23:12 GMT
+
+https://collider.com/bowen-yang-snl-exit-lorne-michaels-show-survival/
+
+Bowen Yang’s delayed SNL exit reveals how the comedy institution survives cast turnover through mentorship and constant reinvention.
+---------
+
+# 10 Greatest American Sci-Fi Movies of All Time
+
+Movie, Sci-Fi, Back to the Future, The Empire Strikes Back, 2001: A Space Odyssey
+
+Thu, 18 Jun 2026 04:07:19 GMT
+
+https://collider.com/best-american-sci-fi-movies-all-time-ranked/
+
+Timeless masterpieces like 2001: A Space Odyssey, The Empire Strikes Back, and Back to the Future define American science fiction cinema.
+---------
+
+# Star Wars' Most Overlooked Story Makes a Surprise Move Up the Streaming Charts
+
+TV Features, Star Wars: Maul - Shadow Lord, Star Wars, Disney+, Sam Witwer
+
+Thu, 18 Jun 2026 04:06:34 GMT
+
+https://collider.com/star-wars-maul-shadow-lord-disney-streaming-hit/
+
+Darth Maul takes center stage in the newest Star Wars series, exploring his crime syndicate and revenge quest during the Empire's reign.
+---------
+
+# Prime Video’s 6-Part Spy Thriller Is Still One of the Genre’s Best Shows of the Last 10 Years
+
+TV Features, Mr. & Mrs. Smith, Prime Video, Donald Glover, Wagner Moura
+
+Thu, 18 Jun 2026 03:58:15 GMT
+
+https://collider.com/best-prime-video-spy-thriller-last-10-years-mr-and-mrs-smith/
+
+Prime Video's Mr. & Mrs. Smith turns a spy thriller into a sharp character drama, powered by Donald Glover and Maya Erskine.
+---------
+
+# 'Widow's Bay Just Answered the Island's Greatest Mystery With a Major Twist
+
+TV Features, Widow's Bay, Apple TV, Matthew Rhys, Horror
+
+Thu, 18 Jun 2026 03:15:15 GMT
+
+https://collider.com/widows-bay-season-1-finale-tom-son-evan-warren-descendant-reveal/
+
+In the Season 1 finale of Apple TV's Widow's Bay, a major twist reveals Richard Warren's true descendant, impacting the future of the cursed island.
+---------
+
+# 10 Forgotten Fantasy Books That Are Perfect From Start to Finish
+
+Movie, Books, Fantasy, The Chronicles of Narnia, The Black Cauldron
+
+Thu, 18 Jun 2026 03:03:13 GMT
+
+https://collider.com/forgotten-fantasy-books-perfect-start-to-finish/
+
+Gems like The Book of Three and The Black Company are among the fantasy books that have been forgotten by readers despite their overall perfection.
+---------
+
+# 10 Must-Watch Shows To Enjoy While You Wait for 'Widows Bay' Season 2
+
+TV, Widow's Bay, Apple TV, Twin Peaks, From
+
+Thu, 18 Jun 2026 03:01:41 GMT
+
+https://collider.com/shows-like-widows-bay-apple-tv/
+
+Twin Peaks, From, Gravity Falls, and What We Do in the Shadows are perfect to watch while you wait for Season 2 of the Apple TV show Widow's Bay.
+---------
+
+# 10 YouTubers Who Became Movie Directors
+
+Movie Lists, Obsession
+
+Thu, 18 Jun 2026 02:00:31 GMT
+
+https://movieweb.com/youtubers-movies-directors/
+
+These filmmakers were YouTubers first, and then went on to direct some of the most memorable and successful movies in recent years.
+---------
+
 # Evil Dead Wrath Producer Confirms Upcoming Movie's Place In Franchise Timeline
 
 Movies, Evil Dead Wrath
