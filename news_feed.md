@@ -1,3 +1,421 @@
+# For The First Time In 29 Years, One Piece Fans Are Losing Faith In Oda: Here's How He Can Fix It
+
+Anime, One Piece
+
+Thu, 18 Jun 2026 22:21:33 GMT
+
+https://screenrant.com/one-piece-fans-losing-faith-oda-how-fix/
+
+After nearly three decades of weekly serialization, the recent schedule of One Piece has made fans lose faith in Oda.
+---------
+
+# Paramount+ Is Failing Criminal Minds' Most Important Character
+
+Network TV, Criminal Minds
+
+Thu, 18 Jun 2026 22:15:09 GMT
+
+https://screenrant.com/paramount-failing-criminal-minds-penelope-garcia/
+
+Criminal Minds: Evolution fails to capitalize on Penelope Garcia's crucial role, sidelining the beloved character in favor of emotional support.
+---------
+
+# Michael Fassbender’s Hit Spy Thriller Is Officially Moving Streaming Homes In Just 2 Weeks
+
+Movies, Masked Recs, Michael Fassbender
+
+Thu, 18 Jun 2026 22:04:26 GMT
+
+https://screenrant.com/michael-fassbender-black-bag-spy-thriller-peacock-streaming-july-2026/
+
+Michael Fassbender's latest spy thriller movie, which earned critical acclaim, will move to another streaming service at the beginning of July.
+---------
+
+# Netflix’s Stranger Things Return Brings Back What Made The Show Great
+
+TV, Masked Recs
+
+Thu, 18 Jun 2026 22:01:20 GMT
+
+https://screenrant.com/stranger-things-next-spinoff-live-action-not-animated/
+
+One of Netflix's most popular franchises, Stranger Things, will return with a new live-action spinoff, and this is just the series change needs.
+---------
+
+# Silent Hill’s Best New Adaptation Beats Zach Cregger’s Resident Evil To The Punch
+
+Gaming, Resident Evil, Silent Hill, Triple-A Games
+
+Thu, 18 Jun 2026 22:00:22 GMT
+
+https://screenrant.com/silent-hill-resident-evil-games-movie-adaptation/
+
+Zach Cregger's Resident Evil movie doesn't much too big of an uphill battle following one psychological horror movie that lays the brickwork for it.
+---------
+
+# After 50 Years, Two of Marvel's Most Iconic Villains Meet for the First Time
+
+Comics, Thanos
+
+Thu, 18 Jun 2026 22:00:22 GMT
+
+https://screenrant.com/thanos-meet-bullseye-first-time/
+
+How have they never met before?!
+---------
+
+# Hawkeye Officially Removed From The Original Avengers' 2027 Return
+
+Superheroes, Masked Recs
+
+Thu, 18 Jun 2026 21:52:25 GMT
+
+https://screenrant.com/hawkeye-marvel-avengers-tv-show-disney-plus-cast-2027/
+
+The original Avengers will appear in a 2027 Marvel Studios release, but the new arrival changes the superhero team by removing Hawkeye.
+---------
+
+# 1 Week Before Supergirl, DC Debuts A Dark New Version of Krypto
+
+Superheroes, Supergirl, My Adventures With Superman, Krypto, DC Universe
+
+Thu, 18 Jun 2026 21:51:20 GMT
+
+https://screenrant.com/dc-new-version-of-krypto-my-adventures-with-superman/
+
+With only a week to go before the release of the new Supergirl movie, DC has just debuted a darker new version of Krypto the Super Dog.
+---------
+
+# In Just 2 Weeks, Marvel Will Revisit One Of The X-Men's Most Devastating Deaths
+
+Streaming TV, Masked Recs
+
+Thu, 18 Jun 2026 21:45:01 GMT
+
+https://screenrant.com/x-men-97-season-2-revisit-gambit-death/
+
+X-Men '97 returns for its second season on July 1, and it will have to deal with the fallout of Gambit's death during the destruction of Genosha.
+---------
+
+# Netflix’s New 8-Part Crime Thriller Is A Must-Watch This Week
+
+Streaming TV, Masked Recs
+
+Thu, 18 Jun 2026 21:38:20 GMT
+
+https://screenrant.com/netflix-i-will-find-you-series-must-watch/
+
+Netflix just dropped a brand new 8-part crime thriller series featuring some of the biggest names in Hollywood, making it a must-watch show this week.
+---------
+
+# Dragon Ball Xenoverse 3's Jane 1000 Is Even Stronger Than Goku
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Thu, 18 Jun 2026 22:16:40 GMT
+
+https://www.cbr.com/dragon-ball-xenoverse-3-ssj-jane-1000-stronger-than-goku/
+
+Dragon Ball Xenoverse 3 has just confirmed that its new Super Saiyan heroine has abilities that put her in a whole new weight class above even Goku.
+---------
+
+# Chris Evans Confirmed Captain America is in Avengers: Secret Wars
+
+Movies, MCU, Avengers: Doomsday
+
+Thu, 18 Jun 2026 22:00:16 GMT
+
+https://www.cbr.com/chris-evans-confirmed-captain-america-secret-wars/
+
+Chris Evans is returning to the MCU and taking up the shield for Avengers: Doomsday, but  Evans may have confirmed this won't be his last appearance.
+---------
+
+# Dragon Ball Reignites Goku vs Vegeta Rivalry With Surprise New Release
+
+Anime, Dragon Ball
+
+Thu, 18 Jun 2026 22:00:16 GMT
+
+https://www.cbr.com/dragon-ball-goku-vegeta-match-makers-release/
+
+The new release recreates the very fight between the two characters from Dragon Ball Z.
+---------
+
+# Ryan Coogler Gets Major Netflix Deal After Leaving Disney Behind
+
+TV, Netflix
+
+Thu, 18 Jun 2026 21:57:22 GMT
+
+https://www.cbr.com/netflix-ryan-coogler-proximity-media-tv-deal/
+
+Ryan Coogler's TV projects have a new home.
+---------
+
+# 1 of the Most-Watched Films on Netflix in the U.S. Is This Adaptation of Hit '70s Gothic Bestselling Novel
+
+Movies, Flowers in the Attic, Netflix, Thriller
+
+Thu, 18 Jun 2026 21:36:47 GMT
+
+https://www.cbr.com/flowers-in-the-attic-success-netflix-june-2026/
+
+This adaptation of a scandalous, nearly 50-year-old YA novel has new life thanks to the streaming platform.
+---------
+
+# The Real Reason Key & Peele's Police Academy Reboot Was Canceled Has Been Revealed
+
+Movies, Police Academy
+
+Thu, 18 Jun 2026 21:18:51 GMT
+
+https://www.cbr.com/police-academy-reboot-canceled-reason/
+
+It's been officially confirmed why Keegan-Michael Key and Jordan Peele's planned reboot of Police Academy was squashed.
+---------
+
+# 10 Hardest NES Games, Officially Ranked
+
+Games, Nintendo, Video Games
+
+Thu, 18 Jun 2026 21:15:26 GMT
+
+https://www.cbr.com/official-hardest-nes-games-of-all-time/
+
+The NES is infamous for its library of hard games, with titles like Battletoads and Silver Surfer being particularly notorious.
+---------
+
+# 5 Forgotten Spy Movies That Are Perfect From Start to Finish
+
+Movies, Thriller, Drama, Action
+
+Thu, 18 Jun 2026 21:00:16 GMT
+
+https://www.cbr.com/best-spy-movies-no-one-remembers-list/
+
+These five overlooked espionage movies might have missed the mainstream spotlight, but their consistency makes them incredibly rewarding to watch.
+---------
+
+# Supergirl First Reactions Compare "Highly Enjoyable" DC Movie to Mad Max in Space
+
+Movies, Supergirl, DCU
+
+Thu, 18 Jun 2026 20:49:19 GMT
+
+https://www.cbr.com/supergirl-movie-first-reactions/
+
+The first reviews of the Supergirl movie praise a good, but maybe not great, new DC adventure.
+---------
+
+# Fallout Season 3 Gets Major Production Update as Star Wars Actor Joins Cast
+
+TV, Fallout
+
+Thu, 18 Jun 2026 20:39:28 GMT
+
+https://www.cbr.com/fallout-season-3-production-start-new-cast-members/
+
+Prime Video's Fallout series gets a major update as fans await Season 3.
+---------
+
+# Apple TV’s Most Beloved Sci-Fi Mystery Is Stuck in Limbo
+
+TV News, Severance, Apple TV, Pluribus, For All Mankind
+
+Thu, 18 Jun 2026 22:20:17 GMT
+
+https://collider.com/apple-tv-sci-fi-severance-season-3-release-date-2027/
+
+Severance, the crown jewel of Apple TV sci-fi programming, will not return to streaming until at least 2027.
+---------
+
+# 10 Perfect Movies That Are Only About 80 Minutes Long
+
+Movie, This is Spinal Tap, Before Sunset, Beavis and Butt-Head Do America, The General
+
+Thu, 18 Jun 2026 22:08:16 GMT
+
+https://collider.com/perfect-movies-80-minutes-long/
+
+Before Sunset, This Is Spinal Tap, and Invasion of the Body Snatchers are genuinely perfect movie masterpieces that only run about 80 minutes long.
+---------
+
+# 'Toy Story 5's Director and Writer Confirm There Was "Never an End in Sight" for the Franchise
+
+Exclusives, Toy Story 5, Andrew Stanton, Pixar, Disney
+
+Thu, 18 Jun 2026 22:00:16 GMT
+
+https://collider.com/toy-story-5-andrew-stanton-kenna-harris-lindsey-collins-interview/
+
+Toy Story 5 director Andrew Stanton, co-writer Kenna Harris, and producer Lindsey Collins on the franchise's legacy and potential for future movies.
+---------
+
+# Call of Duty’s Best Games Are Coming to PS5 Ahead of New Taylor Sheridan Movie
+
+Gaming News, Call of Duty: Black Ops, Call of Duty, PlayStation 5, Treyarch
+
+Thu, 18 Jun 2026 22:00:16 GMT
+
+https://collider.com/call-of-duty-black-ops-2-playstation-5-release-july-2026/
+
+Treyarch has officially announced that both Black Ops and Black Ops 2 will be ported to PlayStation 5 ahead of Taylor Sheridan's movie adaptation.
+---------
+
+# All 9 Black Sabbath Albums With Ozzy Osbourne, Ranked
+
+Music Features, Black Sabbath: The End of The End, Ozzy Osbourne: Live & Loud, Music, Rock
+
+Thu, 18 Jun 2026 21:45:13 GMT
+
+https://collider.com/black-sabbath-ozzy-osbourne-albums-ranked/
+
+Ozzy Osbourne was the lead singer on nine Black Sabbath albums, including absolute classics like Paranoid, Master of Reality, and Sabotage.
+---------
+
+# 3 Decades Later, John Carpenter's Masterclass Thriller Still Hits Like a Punch to the Gut
+
+Movie Features, They Live, John Carpenter, Sci-Fi, Keith David
+
+Thu, 18 Jun 2026 21:19:25 GMT
+
+https://collider.com/john-carpenter-they-live-cult-classic-predicted-todays-world/
+
+John Carpenter's They Live wasn't just a sci-fi satire—it may have predicted AI-driven algorithms, media manipulation, and widening inequality.
+---------
+
+# 10 Greatest Final Shots of the 21st Century
+
+Movie, Memories of Murder, Aftersun, The Irishman, Call Me by Your Name
+
+Thu, 18 Jun 2026 21:12:20 GMT
+
+https://collider.com/best-final-movie-shots-21st-century-ranked/
+
+21st century movie masterpieces like Memories of Murder, Oldboy, and There Will Be Blood have some of the best final shots in cinematic history.
+---------
+
+# ‘Supergirl’ First Reactions Confirm DC Is About to Release Its Wildest Movie Yet
+
+Movie News, Supergirl, Milly Alcock, Jason Momoa, Craig Gillespie
+
+Thu, 18 Jun 2026 21:01:19 GMT
+
+https://collider.com/supergirl-first-reactions-milly-alcock-james-gunn-dcu/
+
+Supergirl first reactions praise Milly Alcock’s DCU debut, with early viewers comparing the James Gunn universe movie to Mad Max.
+---------
+
+# The Most Criminally Underrated Sci-Fi Series on TV Officially Returns for Next Month
+
+TV News, The Ark, SyFy, Sci-Fi, Peacock
+
+Thu, 18 Jun 2026 20:59:52 GMT
+
+https://collider.com/the-ark-season-3-release-date-july-29-2026-peacock/
+
+Syfy and Peacock’s hit science fiction masterpiece, The Ark, officially returns soon for Season 3. Find out how soon here.
+---------
+
+# 10 Best Animated Movie Musicals of All Time
+
+Movie, KPop Demon Hunters, The Lion King, South Park: Bigger, Longer & Uncut, Beauty and the Beast
+
+Thu, 18 Jun 2026 20:57:16 GMT
+
+https://collider.com/best-animated-movie-musicals-all-time-ranked/
+
+The best animated musicals of all time include classics like The Lion King and Aladdin alongside newer movies like Moana and KPop Demon Hunters.
+---------
+
+# Netflix's Action Adventure Series Returns for One Last Ride in Season 5 Trailer
+
+TV News, Outer Banks, Netflix
+
+Thu, 18 Jun 2026 22:15:20 GMT
+
+https://movieweb.com/outer-banks-season-5-trailer-netflix/
+
+The first trailer brings an air of finality to the hit streaming show.
+---------
+
+# Sydney Sweeney's R-Rated Steamy Thriller Conquers Streaming 1 Year After Debut
+
+Movie News, Sydney Sweeney, Echo Valley, Hot on Streaming
+
+Thu, 18 Jun 2026 22:00:20 GMT
+
+https://movieweb.com/sydney-sweeney-echo-valley-streaming-hit-june-2026/
+
+While not exactly a major critical hit, this one features what could be Sweeney's actual best performance so far.
+---------
+
+# Disney+ Lands New TV Adaptation of Beloved Fantasy Franchise
+
+TV News, Warrior Cats, Disney+, Fantasy
+
+Thu, 18 Jun 2026 21:30:47 GMT
+
+https://movieweb.com/warrior-cats-tv-series-disney/
+
+An animated series adaptation of the beloved children's fantasy book series 'Warrior Cats' is being developed for Disney+ and Disney Channel.
+---------
+
+# 'Spider-Man: Brand New Day' Smashing Records Ahead of Next Month's Release
+
+Movie News, Spider-Man: Brand New Day
+
+Thu, 18 Jun 2026 21:20:49 GMT
+
+https://movieweb.com/spider-man-brand-new-day-pre-sale-record/
+
+'Spider-Man: Brand New Day' had the advance ticket sales for any movie in the last five years.
+---------
+
+# Forget Reacher, Prime Video’s Hit Action Thriller Returns Very Soon
+
+TV News, The Terminal List: Dark Wolf
+
+Thu, 18 Jun 2026 21:00:23 GMT
+
+https://movieweb.com/terminal-list-dark-wolf-season-2-streaming-prime-video-action/
+
+Prime Video's dark action thriller has been described as a gritty and brutal successor to Alan Ritchson's 'Reacher.'
+---------
+
+# 10 Funniest Far Side Comics About Food
+
+Movie Lists, The Far Side
+
+Thu, 18 Jun 2026 21:00:23 GMT
+
+https://movieweb.com/far-side-best-food-comics/
+
+Gary Larson loved food, as do we all. These strips from throughout his career took a hilarious glance at a crucial part of everyone's life.
+---------
+
+# First 'Supergirl' Reactions Reveal if the DCU Will Soar After 'Superman'
+
+Movie News, Supergirl
+
+Thu, 18 Jun 2026 20:59:20 GMT
+
+https://movieweb.com/supergirl-first-reactions-revealed/
+
+The first reactions to 'Supergirl' reveal how it stacks up to 'Superman' and the 'Woman of Tomorrow' comic it is based on.
+---------
+
+# Ana de Armas Officially Confirms Her Next Erotic Thriller Opposite Kate Hudson
+
+Movie News, Ana De Armas, Kate Hudson
+
+Thu, 18 Jun 2026 20:14:54 GMT
+
+https://movieweb.com/ana-de-armas-thriller-palm-grove-kate-hudson/
+
+The new movie 'Palm Grove' is an entirely original story set in Miami.
+---------
+
 # Jordan Peele's Remake Of R-Rated Police Comedy Reportedly Cancelled After 12 Years In Development
 
 Movies, Police Academy
