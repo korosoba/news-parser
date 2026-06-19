@@ -1,3 +1,410 @@
+# Marvel’s New Horror Era Officially Begins In October 2026
+
+Marvel Comics, Marvel
+
+Fri, 19 Jun 2026 16:15:24 GMT
+
+https://screenrant.com/marvel-midnight-horror-era-october-2026/
+
+Marvel is preparing for a major overhaul this year, and part of that appears to be a drastic turn to horror that will now commence this fall.
+---------
+
+# Doctor Who Officially Returns Next Week
+
+Streaming TV, Masked Recs
+
+Fri, 19 Jun 2026 16:15:21 GMT
+
+https://screenrant.com/doctor-who-circuit-breaker-start-one-week/
+
+Doctor Who launches its most ambitious project ever created next week, with a multi-platform event in the Whoniverse, helmed by a new Time Lord.
+---------
+
+# Disclosure Day's Box Office Is A Promising Sign For Steven Spielberg's Next Movie
+
+Movies, Disclosure Day
+
+Fri, 19 Jun 2026 16:15:21 GMT
+
+https://screenrant.com/disclosure-day-box-office-steven-spielberg-next-movie/
+
+Steven Spielberg's latest film, Disclosure Day, had a strong opening weekend at the box office, and it's a great sign for the director's next film.
+---------
+
+# DC Announces Mature-Rated Superman Series, Confirming Return of His Classic Costume
+
+DC Comics, Superman
+
+Fri, 19 Jun 2026 16:04:28 GMT
+
+https://screenrant.com/superman-the-stranger-mature-series-announcement-details/
+
+Superman’s iconic Golden Age costume is returning as part of DC’s announcement that the Man of Steel will star in a brand-new adults-only series.
+---------
+
+# Hulu's Best Action Drama No One Talks About Is So Good It's Already Confirmed For Season 2
+
+Anime, Hulu, Masked Recs
+
+Fri, 19 Jun 2026 16:01:21 GMT
+
+https://screenrant.com/hulu-best-action-k-drama-shop-for-killers-season-2/
+
+One of the best underrated shows of 2024 returns to Hulu and Disney+ this July.
+---------
+
+# The Agency Season 2 Clip Finds Michael Fassbender's Agent Martian In Control
+
+Exclusive, The Agency, The Agency - Season 2
+
+Fri, 19 Jun 2026 16:01:21 GMT
+
+https://screenrant.com/video/the-agency-season-2-michael-fassbender-agent-martian-clip/
+
+Exclusive: ScreenRant presents a clip from The Agency season 2, in which Michael Fassbender is back as Agent Martian and more formidable than ever.
+---------
+
+# Star Wars Must Make A Big Grogu Change To Save The Mandalorian
+
+Streaming TV, Star Wars, The Mandalorian, The Mandalorian and Grogu
+
+Fri, 19 Jun 2026 16:01:21 GMT
+
+https://screenrant.com/star-wars-the-mandalorian-need-grogu-time-jump/
+
+The Mandalorian movie proved there's no story left to tell with Grogu as a baby, so Star Wars needs a time jump to the next stage of his life.
+---------
+
+# It's Official, Spencer Dutton's Yellowstone Return Is A Matter Of Time
+
+TV, Yellowstone, 1923
+
+Fri, 19 Jun 2026 15:58:47 GMT
+
+https://screenrant.com/taylor-sheridan-1944-yellowstone-series-brandon-sklenar-spencer-dutton-return/
+
+Brandon Sklenar's Spencer Dutton is one of the best Yellowstone characters, and the new update on his return is perfect for Taylor Sheridan fans.
+---------
+
+# James Bond Fans In Love With “Perfect” New 007
+
+Gaming, 007 First Light, James Bond, Triple-A Games, PC
+
+Fri, 19 Jun 2026 15:54:44 GMT
+
+https://screenrant.com/james-bond-first-light-patrick-gibson-praise/
+
+The first actor to step into Bond's shoes after Daniel Craig has already won fans over, and his fresh take could be just what the franchise needs.
+---------
+
+# Apple TV's Genre-Bending Sci-Fi Thriller Returns With Rare Rotten Tomatoes Score For Season 2
+
+TV, Masked Recs, Apple TV
+
+Fri, 19 Jun 2026 15:51:27 GMT
+
+https://screenrant.com/apple-tv-sugar-season-2-rotten-tomatoes-score/
+
+A returning Apple TV sci-fi thriller series with genre-bending tendencies receives a very rare Rotten Tomatoes critics' score for season 2.
+---------
+
+# 10 Times Sailor Moon Was Surprisingly Dark for a Kids' Anime
+
+Anime, Sailor Moon
+
+Fri, 19 Jun 2026 16:15:13 GMT
+
+https://www.cbr.com/sailor-moon-darkest-moments-kids-anime/
+
+Sailor Moon may have been targeted towards kids, but it was far darker and more mature than the shows it was airing alongside in the 1990s.
+---------
+
+# Paramount’s Purchase of Warner Bros. Reportedly Threatens 8,500 Jobs
+
+Movies, paramount pictures
+
+Fri, 19 Jun 2026 16:02:50 GMT
+
+https://www.cbr.com/paramount-warner-bros-merger-layoff-job-loss/
+
+A new report lays out to stunning number of jobs threatened by Paramount's acquisition of Warner Bros.
+---------
+
+# It's Official, In 3 Weeks The Greatest Horror Franchise Of All Time Returns to Theaters
+
+Movies, Evil Dead, Evil Dead Burn
+
+Fri, 19 Jun 2026 16:00:14 GMT
+
+https://www.cbr.com/evil-dead-burn-greatest-horror-franchise-return/
+
+With the upcoming Evil Dead Burn offering a new standalone story, Evil Dead has earned its title as one of the greatest long-running horror franchises
+---------
+
+# Marvel Confirms New Avengers Lineup Ahead of Avengers: Doomsday
+
+Comics, Avengers
+
+Fri, 19 Jun 2026 16:00:14 GMT
+
+https://www.cbr.com/marvel-mangaverse-arcane-adventures-release-date-confirmed/
+
+Marvel's new Avengers lineup includes some new and familiar faces - and fans of WandaVision and Agatha All Along will likely be pleased.
+---------
+
+# Stephen King's 8-Part Fantasy Series Shows Game of Thrones & Fallout How It's Done
+
+TV, Stephen King, The Dark Tower, Fantasy
+
+Fri, 19 Jun 2026 16:00:14 GMT
+
+https://www.cbr.com/stephen-king-the-dark-tower-tv-series-rival-game-of-thrones/
+
+Mike Flanagan is adapting Stephen King's most immersive universe, and it could be streaming's next big fantasy hit.
+---------
+
+# Marvel September 2026 Solicitations
+
+Comics, Marvel Comics, solicitations
+
+Fri, 19 Jun 2026 15:50:08 GMT
+
+https://www.cbr.com/marvel-september-2026-solicitations-new-avengers-series/
+
+Amazing Spider-Man Hits #1000 and the Midnight Universe Debuts in Marvel's Official August 2026 Solicitations
+---------
+
+# Marvel Officially Confirms Launch Date For Its Brand New Horror Universe
+
+Comics, Marvel Comics
+
+Fri, 19 Jun 2026 15:30:14 GMT
+
+https://www.cbr.com/marvel-midnight-horror-comic-universe-launch-confirmed/
+
+Marvel's Midnight line is looking to spook readers at the perfect time of year.
+---------
+
+# Peacock's Dungeon Crawler Carl Series Gets Major Update From Original Creator
+
+TV, Dungeon Crawler Carl
+
+Fri, 19 Jun 2026 15:17:48 GMT
+
+https://www.cbr.com/peacock-dungeon-crawler-carl-series-update/
+
+The hotly-anticipated streaming adaptation of Dungeon Crawler Carl just got the biggest update fans could ask for from the original creator.
+---------
+
+# 10 Forgotten Cartoon Network Anime That Are Perfect From Start to Finish
+
+Anime, Bobobo-bo Bo-bobo, toonami, Mobile Suit Gundam
+
+Fri, 19 Jun 2026 15:15:14 GMT
+
+https://www.cbr.com/forgotten-cartoon-network-anime-perfect-start-to-finish/
+
+Cartoon Network's Toonami block was the home of some groundbreaking anime, including some totemic titles that have slipped through the cracks.
+---------
+
+# DC Universe's New Film About Iconic Batman Villain Casts Breaking Bad Star
+
+Movies, Clayface, DCU, Aaron Paul
+
+Fri, 19 Jun 2026 15:07:50 GMT
+
+https://www.cbr.com/dcu-clayface-movie-casts-aaron-paul/
+
+Has the DCU's Batman been found?
+---------
+
+# Prime Video’s Longest-Running Series After ‘Bosch’ Officially Hit 50B Minutes Watched
+
+TV News, The Boys, Prime Video, Bosch, Karl Urban
+
+Fri, 19 Jun 2026 16:15:14 GMT
+
+https://collider.com/prime-video-the-boys-50-billion-minutes-watched-june-2026/
+
+The Boys, Prime Video's longest-running show since Bosch, has officially hit over 50 billion minutes watched since 2020.
+---------
+
+# HBO Finds Perfect ‘The Last of Us’ Replacement in Ambitious New Fantasy Series
+
+TV News, The Last of Us, Craig Mazin, Baldur's Gate, HBO Max
+
+Fri, 19 Jun 2026 16:09:09 GMT
+
+https://collider.com/the-last-of-us-creator-craig-mazin-baldurs-gate-3-series-production-timeline/
+
+The Last of Us creator Craig Mazin is jumping ship on the sci-fi show for a new HBO fantasy series officially in the works.
+---------
+
+# 10 Best Books of the 1960s
+
+Movie, Dune, To Kill A Mockingbird, In Cold Blood, The Outsiders
+
+Fri, 19 Jun 2026 16:06:15 GMT
+
+https://collider.com/best-1960s-books-ranked/
+
+The best books of the 1960s include masterpieces like To Kill a Mockingbird, The Crying of Lot 49, In Cold Blood, and the original Dune.
+---------
+
+# Netflix’s Dad TV Era Is Officially Taking Over Streaming [Exclusive]
+
+TV News, Netflix, Nemesis, The Lincoln Lawyer, Man on Fire
+
+Fri, 19 Jun 2026 16:00:29 GMT
+
+https://collider.com/netflix-dad-tv-streaming-guide-nemesis-lincoln-lawyer/
+
+Discover Netflix's best dad-friendly TV shows and movies for Father's Day, including hits like Man on Fire, Nemesis, and The Lincoln Lawyer.
+---------
+
+# The Newest James Bond Has Officially Been Confirmed
+
+Movie News, James Bond, No Time to Die, Spectre, Skyfall
+
+Fri, 19 Jun 2026 16:00:14 GMT
+
+https://collider.com/young-james-bond-cast-silverfin-isaac-rouse-charlotte-mcburney-audio-drama/
+
+Big Finish Productions has announced Isaac Rouse as the new James Bond in the Young Bond: SilverFin audio drama.
+---------
+
+# John Woo's Perfect Crime Thriller Is Finally Coming to 4K for the First Time [Exclusive]
+
+Movie News, Once A Thief, Chow Yun-Fat, John Woo, 4K Blu-ray
+
+Fri, 19 Jun 2026 16:00:14 GMT
+
+https://collider.com/once-a-thief-4k-trailer-release-date-john-woo/
+
+Arrow Video brings John Woo's Hong Kong classic Once a Thief to 4K Blu-ray with restored visuals, exclusive interviews, and a new trailer.
+---------
+
+# In Just 5 Minutes, 'Star City's KGB Mole Reveal Becomes Even More Devastating
+
+Exclusives, Star City, Apple TV, Sci-Fi, Thriller
+
+Fri, 19 Jun 2026 16:00:14 GMT
+
+https://collider.com/star-city-episode-5-valya-tanya-mole-reveal-adam-nagaitis-ruby-ashbourne-serkis-interview/
+
+Star City's Adam Nagaitis and Ruby Ashbourne Serkis discuss Episode 5's most emotional confrontation and how it impacts Valya and Tanya's marriage.
+---------
+
+# ‘House of the Dragon’ Season 3 Officially Breaks a ‘Game of Thrones’ Tradition
+
+TV News, House of the Dragon, Game Of Thrones, HBO Max, Fantasy
+
+Fri, 19 Jun 2026 15:45:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-game-of-thrones-theme-change/
+
+House of the Dragon Season 3 is changing its iconic Game of Thrones theme song with a darker update ahead of the Battle of the Gullet.
+---------
+
+# 'Yellowstone' Fans Watched Over 1 Billion Minutes of Taylor Sheridan’s Best Spin-Offs Last Month
+
+TV News, Yellowstone, Dutton Ranch, Taylor Sheridan, Marshals
+
+Fri, 19 Jun 2026 15:28:33 GMT
+
+https://collider.com/yellowstone-dutton-ranch-marshals-streaming-minutes-nielsen-may-2026/
+
+Paramount's Yellowstone franchise hits a new milestone as spin-offs Dutton Ranch and Marshals simultaneously chart in the Top 10. See the numbers.
+---------
+
+# ‘Star Trek’s Most Hated Episode Is Still the Sci-Fi Show’s Biggest Mistake
+
+TV Features, Star Trek, Star Trek: The Next Generation, Patrick Stewart, Sci-Fi
+
+Fri, 19 Jun 2026 15:07:14 GMT
+
+https://collider.com/worst-star-trek-episode-ever-code-of-honor-cast-reaction/
+
+Star Trek: The Next Generation’s “Code of Honor” remains one of the franchise’s most criticized episodes, even among its cast.
+---------
+
+# 'The Outsider' Ending, Explained: Who Is the Real Killer?
+
+Features, The Outsider, Ben Mendelsohn, Cynthia Erivo
+
+Fri, 19 Jun 2026 16:00:21 GMT
+
+https://movieweb.com/the-outsider-ending-explained/
+
+The 2020 show The Outsider presents a supposedly straightforward story about a child's murder that gets more complicated as it goes along.
+---------
+
+# The Highest Rated Action Movie of 2025 Returns With First Trailer for Follow-Up
+
+TV News, Chainsaw Man, Chainsaw Man - The Movie: Reze Arc
+
+Fri, 19 Jun 2026 15:14:34 GMT
+
+https://movieweb.com/chainsaw-man-assassins-arc-trailer/
+
+The official trailer for 'Chainsaw Man – Assassins Arc' has been revealed.
+---------
+
+# How to Watch Every John Grisham Movie in Order
+
+Features, John Grisham
+
+Fri, 19 Jun 2026 15:00:20 GMT
+
+https://movieweb.com/john-grisham-movies-in-order/
+
+John Grisham's (primarily) legal thrillers were a huge hit in the 1990s. Here's how and where to watch them all.
+---------
+
+# Taylor Sheridan's Biggest 'Yellowstone' Spin-Off Passes Major Streaming Milestone
+
+TV News, Dutton Ranch, Paramount Plus, Hot on Streaming, Taylor Sheridan, Yellowstone
+
+Fri, 19 Jun 2026 15:00:19 GMT
+
+https://movieweb.com/taylor-sheridan-dutton-ranch-streaming-milestone-paramount/
+
+Taylor Sheridan's new 'Yellowstone' crime thriller action series 'Dutton Ranch' is a major streaming success on Paramount+.
+---------
+
+# HBO Slashes Subscription Costs For New & Existing Users
+
+TV News, HBO Max
+
+Fri, 19 Jun 2026 14:42:42 GMT
+
+https://movieweb.com/hbo-cuts-subscription-prices/
+
+HBO Max announced a major cut in costs for new and existing users in a recent update.
+---------
+
+# When Will 'Toy Story 5' Release on Streaming?
+
+Features, Toy Story 5, Disney+, Pixar
+
+Fri, 19 Jun 2026 14:17:23 GMT
+
+https://movieweb.com/toy-story-5-release-streaming/
+
+If you're skipping Toy Story 5 in theaters and waiting for it to hit Disney+, you’re probably wondering how soon you can watch it from home.
+---------
+
+# Colin Farrell Reveals John Sugar's Top Farrell Film Ahead of 'Sugar' Season 2
+
+TV News, Sugar, Colin Farrell, Apple TV
+
+Fri, 19 Jun 2026 14:00:19 GMT
+
+https://movieweb.com/colin-farrell-john-sugar-favorite-movie/
+
+Colin Farrell has revealed which of his movies would resonate the most with John Sugar, as his character prepares to return in 'Sugar' Season 2.
+---------
+
 # God Of War Is Officially Switching Formats Soon
 
 Streaming TV, Masked Recs
