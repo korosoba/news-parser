@@ -1,3 +1,421 @@
+# Netflix's Newest Mystery Series Marks The End Of An Era For Milo Ventimiglia
+
+Streaming TV, Masked Recs
+
+Fri, 19 Jun 2026 20:00:22 GMT
+
+https://screenrant.com/netflix-mystery-i-will-find-you-milo-ventimiglia-end-era/
+
+In Netflix's adaptation of I Will Find You, Milo Ventimiglia takes on a dark, unexpected role, marking the end of an era for the actor.
+---------
+
+# Welcome To Plathville: The Plath Family Tree Explained
+
+Reality TV, Welcome To Plathville
+
+Fri, 19 Jun 2026 20:00:22 GMT
+
+https://screenrant.com/welcome-plathville-plath-family-tree-age-birthday-list/
+
+Welcome To Plathville features the large Plath family, including parents Kim and Barry and their nine children. Check out the full Plath family tree.
+---------
+
+# Popular 81-Year-Old Children's Book Series Is Officially Adapting Into A TV Series
+
+TV, Pippi Longstocking
+
+Fri, 19 Jun 2026 19:57:15 GMT
+
+https://screenrant.com/pippi-longstocking-tv-show-adaptation-development-report/
+
+After adapting Paddington for the big screen, StudioCanal has set its sights on a beloved children’s franchise, this time as a TV show.
+---------
+
+# 3 Best Movies To Watch On Netflix This Weekend (June 20-21)
+
+Movies, Netflix, Recommendation
+
+Fri, 19 Jun 2026 19:52:25 GMT
+
+https://screenrant.com/best-netflix-movies-watch-weekend-june-20/
+
+The best movies to watch on Netflix this weekend are a new Original rom-com, an animated entry from a franchise, and Alexandra Daddario's fantasy hit.
+---------
+
+# House of the Dragon Season 3 Interviews with Matt Smith, Olivia Cooke & More Cast
+
+TV, House of the Dragon, House of the Dragon - Season 3
+
+Fri, 19 Jun 2026 19:45:22 GMT
+
+https://screenrant.com/video/house-of-the-dragon-season-3-matt-smith-olivia-cooke-cast-interview/
+
+House of the Dragon stars Matt Smith, Olivia Cooke, Fabien Frankel, and more tease their arcs in season 3 of the popular Game of Thrones prequel.
+---------
+
+# Disney's Major Hexed Movie Change Signals A Huge Shift For The Studio
+
+Movies, Hexed
+
+Fri, 19 Jun 2026 19:30:23 GMT
+
+https://screenrant.com/disney-hexed-movie-character-change-studio-shift/
+
+Disney’s Hexed looks to tell a compelling story, but the film looks strikingly different from the movie that was announced last year at D23.
+---------
+
+# It Took Game Of Thrones Just 9 Episodes To Break The Rules Of Storytelling
+
+TV, Game Of Thrones
+
+Fri, 19 Jun 2026 19:28:22 GMT
+
+https://screenrant.com/game-of-thrones-ned-stark-death-breaks-storytelling-rules/
+
+This unexpected choice in Game of Thrones episode 9 shattered fantasy genre tropes and TV conventions, setting the stage for a groundbreaking series.
+---------
+
+# Netflix's New Movie With Jurassic World Star Debuts To Stellar Rotten Tomatoes Score
+
+Movies, Masked Recs
+
+Fri, 19 Jun 2026 19:20:52 GMT
+
+https://screenrant.com/netflix-voicemails-for-isabelle-rotten-tomatoes-score/
+
+Netflix's new movie featuring a Jurassic World star debuts to a stellar Rotten Tomatoes score on the day of its streaming release, June 19.
+---------
+
+# Toy Story 5 Ending Explained: How The Pixar Sequel Sets Up The Future Of The Franchise
+
+Movies, Toy Story 5, Toy Story
+
+Fri, 19 Jun 2026 19:20:23 GMT
+
+https://screenrant.com/toy-story-5-ending-explained/
+
+The sweet ending of Toy Story 5 is open-ended enough to set up sequels, even as it resolves some of the lingering plot threads of the franchise.
+---------
+
+# Sugar Season 2 Interviews with Colin Farrell, Laura Donnelly, Sam Catlin & Audrey Chon
+
+TV, Sugar, Colin Farrell
+
+Fri, 19 Jun 2026 19:15:22 GMT
+
+https://screenrant.com/video/sugar-season-2-colin-farrell-laura-donnelly-sam-catlin-audrey-chon-interview/
+
+Colin Farrell, Laura Donnelly, Sam Catlin and Audrey Chon talk Sugar season 2 and the big twist to come from the Apple TV sci-fi crime series.
+---------
+
+# James Burrows, Cheers Co-Creator and Will & Grace Director, Dies at 85
+
+TV, Cheers, obituary
+
+Fri, 19 Jun 2026 20:09:43 GMT
+
+https://www.cbr.com/james-burrows-dead/
+
+Burrows was quintessential to all the fan-favorite cult classic shows.
+---------
+
+# Supernatural Sequel: Sam and Dean Winchester Return Officially Confirmed
+
+Comics, Supernatural
+
+Fri, 19 Jun 2026 20:00:15 GMT
+
+https://www.cbr.com/dynamite-entertainment-supernatural-wayward/
+
+The next Supernatural special is sending Sam and Dean on a harrowing new adventure that they might never be able to properly recover from.
+---------
+
+# The Bourne Movies Are the Smartest Action Movie Franchise
+
+Movies, Bourne, The Bourne Identity, The Bourne Supremacy, The Bourne Ultimatum, The Bourne Legacy, Jason Bourne
+
+Fri, 19 Jun 2026 20:00:15 GMT
+
+https://www.cbr.com/jason-bourne-movies-smartest-action-franchise/
+
+It's no wonder this grounded and gritty film series has become one of Hollywood's most successful action movie franchises over the last 24 years.
+---------
+
+# Apple TV's New Cyberpunk Show That Was Called 'Unfilmable' Is the Sci-Fi Event of the Decade
+
+TV, Neuromancer, Apple TV, Sci-Fi
+
+Fri, 19 Jun 2026 20:00:15 GMT
+
+https://www.cbr.com/apple-tv-neuromancer-cyberpunk-sci-fi-event-of-decade/
+
+One book-to-screen adaptation once thought impossible is finally coming to Apple TV next year, and fans couldn't be more excited.
+---------
+
+# Jordan Peele's First Film in 4 Years Finally Gets Major Update
+
+Movies, Jordan Peele, Horror
+
+Fri, 19 Jun 2026 19:56:19 GMT
+
+https://www.cbr.com/jordan-peele-new-untitled-film-update/
+
+The Get Out director may finally return to the big screen, but there's a catch.
+---------
+
+# Stephen King Hypes Up It: Welcome to Derry Ahead of Long-Awaited Season 2
+
+TV, It: Welcome to Derry, Stephen King
+
+Fri, 19 Jun 2026 19:47:37 GMT
+
+https://www.cbr.com/stephen-king-praises-it-welcome-to-derry-emmy-consideration/
+
+The series was among several adaptations in 2025.
+---------
+
+# Amazon Backs Out of Andrew Garfield's Nearly-Finished OpenAI Movie From Challengers Director
+
+Movies
+
+Fri, 19 Jun 2026 19:47:30 GMT
+
+https://www.cbr.com/amazon-backs-out-artificial-openai-movie-andrew-garfield-luca-guadagnino/
+
+Amazon has pulled out of the movie Artificial, and the timing is interesting.
+---------
+
+# Darth Vader Tears Apart Galaxy's Edge in Exclusive Star Wars Preview
+
+Comics, Star Wars
+
+Fri, 19 Jun 2026 19:36:49 GMT
+
+https://www.cbr.com/darth-vader-tears-apart-galaxys-edge-exclusive-star-wars-preview/
+
+In a CBR exclusive preview of next week's Star Wars: Galaxy's Edge - Echoes of the Empire #3, see Darth Vader tear apart the planet of Batuu
+---------
+
+# Chainsaw Man Assassins Arc Trailer Teases the Darkness Devil
+
+Anime, Chainsaw Man
+
+Fri, 19 Jun 2026 19:15:15 GMT
+
+https://www.cbr.com/chainsaw-man-season-2-trailer-darkness-devil-tease/
+
+Chainsaw Man just dropped a new trailer for the upcoming Assassins Arc anime that contains multiple hints at the highly anticipated Darkness Devil.
+---------
+
+# Liam Neeson Thriller That Made Him an Action Icon in Just 90 Minutes Is a Paramount+ Hit in America
+
+Movies, Taken
+
+Fri, 19 Jun 2026 19:00:16 GMT
+
+https://www.cbr.com/liam-neeson-taken-action-thriller-paramount-success-june-2026/
+
+The action thriller that redefined Liam Neeson's career, Taken, is a streaming hit in the United States.
+---------
+
+# 2 Years Later, 'Tracker’s Biggest Series Mystery Still Hits Like a Punch to the Gut
+
+TV Features, Tracker, Justin Hartley, Jensen Ackles, CBS
+
+Fri, 19 Jun 2026 20:08:18 GMT
+
+https://collider.com/tracker-colter-shaw-father-mystery-season-3-resolution/
+
+Two years later, Tracker’s Shaw family mystery still packs an emotional punch as Colter finally learns the truth about his father.
+---------
+
+# 'House of the Dragon’s Episode 2 Officially Gives Battle of the Bastards a Run for Its Money
+
+TV News, House of the Dragon, HBO Max, Ryan Condal, George R.R. Martin
+
+Fri, 19 Jun 2026 19:53:24 GMT
+
+https://collider.com/house-of-the-dragon-season-3-episode-2-runtime-68-minutes/
+
+Following a super-sized premiere, the runtime of House of the Dragon Season 3's sophomore episode has been officially revealed.
+---------
+
+# Cyberpunk Officially Returns With New Sci-Fi Detective Spin-Off
+
+Gaming News, Cyberpunk 2077, Cyberpunk: Edgerunners, CD Projekt Red, Video Game
+
+Fri, 19 Jun 2026 19:47:54 GMT
+
+https://collider.com/cyberpunk-2077-sci-fi-detective-spin-off-comic-jayks-case/
+
+Ahead of Edgerunner Season 2, the Cyberpunk 2077 franchise is returning in a major way with a new sci-fi detective spin-off.
+---------
+
+# 'Cheers' Co-Creator James Burrows Dead at 85
+
+TV News, Friends, Cheers, James Burrows, Comedy
+
+Fri, 19 Jun 2026 19:39:27 GMT
+
+https://collider.com/cheers-creator-james-burrow-dead-at-85/
+
+James Burrows, the co-creator of Cheers and the director of Friends, Frasier, Will & Grace, and more, has died at age 85.
+---------
+
+# 10 Greatest Thriller Video Games of All Time
+
+Video Games, Video Game, Thriller, BioShock, Alan Wake
+
+Fri, 19 Jun 2026 19:29:16 GMT
+
+https://collider.com/best-thriller-video-games-all-time-ranked/
+
+Many masterful video games have tapped into the electrifying strengths of the thriller genre, including Until Dawn, Bioshock, and Silent Hill 2.
+---------
+
+# 10 Perfect HBO Miniseries With 10 Episodes or Less
+
+TV, HBO, Chernobyl, The Night Of, Sharp Objects
+
+Fri, 19 Jun 2026 19:08:15 GMT
+
+https://collider.com/perfect-hbo-miniseries-shorter-than-10-episodes/
+
+Discover HBO's greatest miniseries that tell complete, emotionally satisfying stories in fewer than 10 episodes, from Band of Brothers to Chernobyl.
+---------
+
+# Naruto Officially Returns With First New Appearance in Over 3 Years
+
+TV News, Naruto, Naruto: Shippuden, Anime, Crunchyroll
+
+Fri, 19 Jun 2026 19:06:47 GMT
+
+https://collider.com/naruto-return-spin-off-card-game-trailer/
+
+A Naruto-themed trading card game is set to release next year, based on the popular manga and anime. Read on for more details.
+---------
+
+# George Lucas' New Movie Role Reveals a Secret Passion [Exclusive]
+
+Movie News, Minions & Monsters, George Lucas, Minions, Illumination
+
+Fri, 19 Jun 2026 19:03:26 GMT
+
+https://collider.com/george-lucas-minions-and-monsters-cameo/
+
+George Lucas makes a surprise voice acting appearance in Minions & Monsters, and Illumination CEO Chris Meledandri reveals how the cameo happened.
+---------
+
+# Taylor Sheridan's Long-Awaited 'Yellowstone' Prequel Finally Gets an Update
+
+TV News, Yellowstone, Taylor Sheridan, 1923, Dutton Ranch
+
+Fri, 19 Jun 2026 18:55:10 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-prequel-1944-development-update/
+
+Yellowstone's long-delayed prequel series, 1944, has received a positive update amid Dutton Ranch's successful run. Here's all to know.
+---------
+
+# Sam Raimi's New WW2 Thriller Is Officially Coming to Netflix
+
+Movie News, Sam Raimi, World War II, Netflix, Noah Jupe
+
+Fri, 19 Jun 2026 18:33:21 GMT
+
+https://collider.com/sam-raimi-ww2-thriller-play-dead-netflix-release/
+
+Netflix has picked up the rights to Sam Raimi's WW2 thriller Play Dead, directed by Jaume Collet-Serra and starring Noah Jupe.
+---------
+
+# George Lucas' Scrapped 'Star Wars' Prequel Series About Palpatine Finally Revealed
+
+TV News, Star Wars
+
+Fri, 19 Jun 2026 20:08:43 GMT
+
+https://movieweb.com/star-wars-scrapped-palpatine-series/
+
+Actor Ian McDirmid detailed discussions he had with George Lucas about a Palpatine prequel series.
+---------
+
+# Guy Ritchie Lands New Streaming Hit With 97%-RT Jake Gyllenhaal Action War Movie
+
+Movie News, Guy Ritchie's The Covenant, Hot on Streaming
+
+Fri, 19 Jun 2026 20:00:26 GMT
+
+https://movieweb.com/guy-ritchie-the-covenant-streaming-hit-june-2026/
+
+It is also one of the best war movies made in the last 20 years.
+---------
+
+# 2 Years Ago, Apple TV Canonized an Unmade Star Trek Series
+
+Features, Star Trek, For All Mankind, Apple TV
+
+Fri, 19 Jun 2026 20:00:26 GMT
+
+https://movieweb.com/for-all-mankind-star-trek-phase-ii/
+
+The Star Trek franchise has countless TV shows, but the saga is arguably one short. Read on for more.
+---------
+
+# Netflix's Streaming Giant Action Thriller Continues To Get More Popular
+
+Features, Netflix, Thriller, Action
+
+Fri, 19 Jun 2026 20:00:26 GMT
+
+https://movieweb.com/netflix-exterritorial-streaming-hit/
+
+With a universal conflict and relatable lead, Netflix's action thriller has garnered over 90 million views, and it's not slowing down.
+---------
+
+# George Lucas Cameo in Upcoming $2 Billion Franchise Sequel Officially Revealed
+
+Movie News, George Lucas, Minions & Monsters
+
+Fri, 19 Jun 2026 19:50:37 GMT
+
+https://movieweb.com/george-lucas-cameo-minions-and-monsters/
+
+George Lucas is set to make an appearance in one of the biggest movie franchises at the moment.
+---------
+
+# 2026 Supernatural Thriller Hit Makes 400X Its Budget With Record-Breaking Box Office
+
+Movie News, Obsession, Box Office Milestones
+
+Fri, 19 Jun 2026 19:00:20 GMT
+
+https://movieweb.com/obsession-300-million-budget-record-box-office/
+
+The indie horror thriller phenomenon has audiences truly obsessed.
+---------
+
+# How Conan O'Brien Built a New Pixar Icon in 'Toy Story 5'
+
+Movie News, Toy Story 5, Toy Story, Conan O'Brien
+
+Fri, 19 Jun 2026 18:57:25 GMT
+
+https://movieweb.com/conan-obrien-creating-smarty-pants-toy-story-5/
+
+'Toy Story 5' director Kenna Harris recalled how they collaborated with Conan O'Brien to bring Smarty Pants to life.
+---------
+
+# Jordan Peele's Next Movie Gets Positive Update After Release Date Delay
+
+Movie News, Jordan Peele
+
+Fri, 19 Jun 2026 18:51:13 GMT
+
+https://movieweb.com/jordan-peele-new-movie-update/
+
+After two delays and multiple release dates, Jordan Peele's next film is finally making progress at Universal Pictures.
+---------
+
 # DC Officially Reveals Supergirl’s New Legacy-Changing Nightwing Costume
 
 Comics, Supergirl
