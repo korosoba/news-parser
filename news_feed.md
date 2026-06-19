@@ -1,3 +1,245 @@
+# 15 Years Ago, Netflix's 7-Part Series Rewrote The Rules Of Sci-Fi Storytelling
+
+Streaming TV, Masked Recs
+
+Fri, 19 Jun 2026 22:45:22 GMT
+
+https://screenrant.com/netflix-black-mirror-anthology-sci-fi-rewrote-storytelling/
+
+Sci-fi is one of the most challenging genres to get right, but one stunning series changed the game and has been influencing TV and film ever since.
+---------
+
+# Fans Didn't Like It, But Star Wars' Lightsaber Retcon Was One Of The Disney Era's Best Moments
+
+Star Wars
+
+Fri, 19 Jun 2026 22:31:20 GMT
+
+https://screenrant.com/star-wars-the-acolyte-lightsaber-bleeding-kyber-crystal-best-moment/
+
+A recent Star Wars retcon concerning lightsabers was one of the coolest moments in the Disney-led era, but it caused significant controversy.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (June 20-21)
+
+Movies, Prime Video, Recommendation
+
+Fri, 19 Jun 2026 22:20:12 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-june-20/
+
+The best movies on Prime Video this weekend include a new romance, a star-studded espionage film, and Jake Gyllenhaal's action thriller.
+---------
+
+# Syfy's 5-Part Fantasy Series With 91% RT Score Shows Harry Potter How It's Done
+
+Streaming TV, Masked Recs
+
+Fri, 19 Jun 2026 22:15:21 GMT
+
+https://screenrant.com/syfy-the-magicians-better-than-harry-potter/
+
+Syfy's fantasy series shares a setting and a plot with the Harry Potter books and movies, but it excels in several areas that let Harry Potter down.
+---------
+
+# Egg’s AKOTSK Season 1 Story’s Comparison To Major House Of The Dragon Character Addressed By Star
+
+TV, House of the Dragon, A Knight Of The Seven Kingdoms, Game of Thrones, Abubakar Salim
+
+Fri, 19 Jun 2026 22:15:11 GMT
+
+https://screenrant.com/house-dragon-knight-seven-kingdoms-egg-alyn-silver-hair-shave-comparison/
+
+EXCLUSIVE: Two characters from A Knight of the Seven Kingdoms and House of the Dragon share a major similarity, according to one of the stars.
+---------
+
+# 10 Best Marvel Magic: The Gathering Prerelease Cards
+
+Gaming
+
+Fri, 19 Jun 2026 22:00:22 GMT
+
+https://screenrant.com/mtg-marvel-super-heroes-prerelease-guide/
+
+Anyone who is participating in a Magic: The Gathering Marvel Super Heroes prerelease event this weekend should be on the lookout for these cards.
+---------
+
+# New Sherlock Holmes Show Is The Perfect Blueprint For Season 2 Of Guy Ritchie's Hit Detective Drama
+
+Streaming TV, Young Sherlock, Sherlock Holmes
+
+Fri, 19 Jun 2026 22:00:22 GMT
+
+https://screenrant.com/young-sherlock-season-2-moriarty-focus/
+
+A new Sherlock Holmes adaptation is the perfect blueprint for the second season of Guy Ritchie and Co.'s hit Prime Video series, Young Sherlock.
+---------
+
+# GTA 6 Preorder Price Has Gamers Freaking Out
+
+Gaming, Grand Theft Auto 6
+
+Fri, 19 Jun 2026 21:57:30 GMT
+
+https://screenrant.com/gta-6-preorders-price-speculation-reaction/
+
+Grand Theft Auto 6's preorder price could land anywhere on the spectrum of fans' expectations, and it won't be long until we know what it is for sure.
+---------
+
+# 10 Steam Games That Are 10/10, No Notes
+
+Games, Baldur's Gate 3, Elden Ring, Hades, Steam
+
+Fri, 19 Jun 2026 22:15:15 GMT
+
+https://www.cbr.com/steam-games-flawless-start-to-finish/
+
+Steam has a vast library of games available to play, and these titles represent the platform's absolute strongest experiences.
+---------
+
+# Robert Downey Jr. Says Chris Pratt Made Him ‘Mad’ While Filming Avengers: Infinity War
+
+CBR Exclusives, Marvel, MCU, Marvel Comics, Avengers, Avengers: Doomsday, Avengers: Doomsday (2026), Guardians of the Galaxy, Guardians of the Galaxy Vol. 2, Guardians of the Galaxy Vol. 3
+
+Fri, 19 Jun 2026 22:14:00 GMT
+
+https://www.cbr.com/robert-downey-jr-chris-pratt-anger-filming-avengers-infinity-war/
+
+This had to be tough for Robert Downey Jr. to confess to MCU fans.
+---------
+
+# Jennifer Garner's Apple TV+ Thriller Based on a No. 1 Bestseller Surges on Streaming
+
+TV, The Last Thing He Told Me, Apple TV, Thriller
+
+Fri, 19 Jun 2026 22:00:15 GMT
+
+https://www.cbr.com/the-last-thing-he-told-me-apple-tv-thriller-success-june-2026/
+
+Jennifer Garner's mystery thriller, The Last Thing He Told Me, rises on streaming two months after the Season 2 finale.
+---------
+
+# Attack on Titan Fans Get First Look at Mikasa’s New 15th Anniversary Design
+
+Anime, Attack on Titan, mappa
+
+Fri, 19 Jun 2026 22:00:15 GMT
+
+https://www.cbr.com/attack-on-titan-mikasa-new-design-15th-anniversary/
+
+The next entry in studio MAPPA's 15th anniversary celebration offers Attack on Titan fans a glimpse at Mikasa in an unforgettably heartwarming moment.
+---------
+
+# Jurassic Park is the Perfect Double Feature with Spielberg's Disclosure Day
+
+Movies, Jurassic Park, steven spielberg, Sci-Fi
+
+Fri, 19 Jun 2026 22:00:15 GMT
+
+https://www.cbr.com/disclosure-day-steven-spielberg-jurassic-park-rewatch/
+
+As Disclosure Day sets a record, Jurassic Park's anniversary is the perfect reminder of why Steven Spielberg's blockbuster still holds up today.
+---------
+
+# 10 Netflix Shows With Perfect Endings, Ranked
+
+TV, Netflix, Adolescence, The Haunting of Hill House, Arcane
+
+Fri, 19 Jun 2026 22:44:14 GMT
+
+https://collider.com/netflix-shows-perfect-endings-ranked/
+
+Explore Netflix shows that concluded on a perfect note, with well-executed finales seen in series like BoJack Horseman, Dark, and Adolescence.
+---------
+
+# How the Hell Did These 10 Movies Win Best Picture?
+
+Movie, CODA, Crash, Shakespeare in Love, Driving Miss Daisy
+
+Fri, 19 Jun 2026 22:19:15 GMT
+
+https://collider.com/how-the-hell-did-these-movies-win-best-picture-oscar/
+
+The Oscar for Best Picture often goes to the wrong film, as proven with movies like Driving Miss Daisy, CODA, and Everything Everywhere All at Once.
+---------
+
+# Arnold Schwarzenegger’s Most Ridiculous Action Weapon Wasn’t Just Science Fiction [Exclusive]
+
+Exclusives, Eraser, Arnold Schwarzenegger, Chuck Russell, Action
+
+Fri, 19 Jun 2026 22:00:15 GMT
+
+https://collider.com/eraser-arnold-schwarzenegger-railgun-real-technology-chuck-russell/
+
+Chuck Russell explains how Arnold Schwarzenegger’s Eraser used real railgun technology to ground its over-the-top ’90s action spectacle.
+---------
+
+# 20 Best Video Game Characters of All Time
+
+Movie, Video Game, Lara Croft, Pac-Man, Mario
+
+Fri, 19 Jun 2026 21:59:14 GMT
+
+https://collider.com/best-video-game-characters-all-time-ranked/
+
+Lara Croft, Leon S. Kennedy, and Mario are all among the greatest and most iconic video game characters of all time.
+---------
+
+# Guy Ritchie's Fan Favorite Henry Cavill Spy Thriller Had Cancelled Sequel [Exclusive]
+
+Exclusives, The Man From U.N.C.L.E., Armie Hammer, Guy Ritchie, Henry Cavill
+
+Fri, 19 Jun 2026 21:49:34 GMT
+
+https://collider.com/henry-cavill-guy-ritchie-man-from-uncle-2-sequel-armie-hammer/
+
+Guy Ritchie’s The Man From U.N.C.L.E. movie starring Henry Cavill almost had multiple sequels, but they never happened.
+---------
+
+# Armie Hammer on His Acting Return in 'Citizen Vigilante' and 'Call Me by Your Name' Memories
+
+Exclusives, Screening, Citizen Vigilante, Armie Hammer, The Social Network
+
+Fri, 19 Jun 2026 21:48:49 GMT
+
+https://collider.com/armie-hammer-call-me-by-your-name-citizen-vigilante/
+
+Armie Hammer speaks to Collider about his acting return in Citizen Vigilante and talks Call Me by Your Name, The Social Reckoning, and more.
+---------
+
+# 3 Must-Watch Prime Video Movies To Stream This Weekend (June 19-21)
+
+Movie, Platoon, Race, The SpongeBob Movie: Search for Squarepants, Prime Video
+
+Fri, 19 Jun 2026 21:48:15 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-june-19/
+
+The SpongeBob Movie: Search for SquarePants, Race, and Platoon make up our list of the best Prime Video movies to watch the weekend of June 19, 2026.
+---------
+
+# 12 Great Video Games That Deserve the 'Arcane' Treatment
+
+TV Lists, Arcane
+
+Fri, 19 Jun 2026 22:00:20 GMT
+
+https://movieweb.com/video-games-deserve-arcane-treatment/
+
+The opportunity to adapt these games into animated shows and sahre these stories with the world is there for the taking.
+---------
+
+# Former 'X-Men' Icon Says Marvel Made a "Mistake" in 'Avengers: Doomsday'
+
+Movie News, Avengers: Doomsday, X-Men, Famke Janssen
+
+Fri, 19 Jun 2026 21:48:12 GMT
+
+https://movieweb.com/avengers-doomsday-former-marvel-star/
+
+Jean Grey actress Famke Janssen still says she is not reprising her role in 'Avengers: Doomsday.'
+---------
+
 # Spider-Man: Brand New Day Subtly Reveals How MJ & Ned Will Remember Peter
 
 Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
