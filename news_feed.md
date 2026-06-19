@@ -1,3 +1,278 @@
+# Spider-Man: Brand New Day Subtly Reveals How MJ & Ned Will Remember Peter
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Fri, 19 Jun 2026 21:30:22 GMT
+
+https://screenrant.com/spider-man-brand-new-day-telepath-theory-mj-ned-remember-peter/
+
+A combination of subtle teases for Spider-Man: Brand New Day has hinted at how MJ and Ned will eventually remember Peter Parker in the MCU.
+---------
+
+# Prime Video's 94% RT Sci-Fi Series Already Had A Perfect Cast, But It's Still Getting Better
+
+Streaming TV, Masked Recs
+
+Fri, 19 Jun 2026 21:15:23 GMT
+
+https://screenrant.com/fallout-prime-video-perfect-cast-getting-better/
+
+Fallout already had one of the best casts on TV, and it'll only get even better with the newcomers who are joining the ensemble in season 3.
+---------
+
+# Star Wars Official Luke Skywalker Recast Is Proof Recasting Can Work
+
+Gaming, Star Wars, Star Wars Battlefront 2 (2017), Triple-A Games, PC
+
+Fri, 19 Jun 2026 21:00:21 GMT
+
+https://screenrant.com/star-wars-luke-skywalker-recast-opinion/
+
+Star Wars has largely been resistant to recasts in recent years, but it's a better solution than everything else the franchise has tried.
+---------
+
+# Criminal Minds Teases An Original CBS Character Death In Season 19
+
+Network TV, Criminal Minds
+
+Fri, 19 Jun 2026 21:00:21 GMT
+
+https://screenrant.com/criminal-minds-season-19-teases-cbs-character-death/
+
+As the BAU team faces new challenges in Criminal Minds: Evolution, an original CBS character, Brian Garrity, could be in grave danger moving ahead.
+---------
+
+# George Lucas Sets First Acting Role In 19 Years With New Movie In $5.4B Franchise
+
+Movies, George Lucas, Minions & Monsters
+
+Fri, 19 Jun 2026 20:57:30 GMT
+
+https://screenrant.com/minions-and-monsters-george-lucas-cast-update/
+
+George Lucas has also acted several times over his filmmaking career, and now it's been revealed he has a role in a major movie arriving soon.
+---------
+
+# Marvel’s Wolverine Sequel Already Confirmed
+
+Gaming, Marvel's Wolverine
+
+Fri, 19 Jun 2026 20:55:34 GMT
+
+https://screenrant.com/marvels-wolverine-playstation-sequel-leaks-opinion/
+
+Marvel's Wolverine may not be out yet for a few months, but it is plain to see how it might be laying brickwork for a sequel or successor to follow.
+---------
+
+# Chris Evans' Comments On Post-MCU Struggles Prove His Avengers: Doomsday Return Was Inevitable
+
+Movies, Avengers: Doomsday, Chris Evans
+
+Fri, 19 Jun 2026 20:45:25 GMT
+
+https://screenrant.com/chris-evans-avengers-doomsday-return-inevitable-struggles/
+
+Chris Evans is coming back as Steve Rogers in Avengers: Doomsday, but this isn't surprising when looking back at his comments on his post-MCU career.
+---------
+
+# Invincible Season 5 Will Do Something We Haven't Seen Since Episode 1
+
+Streaming TV, Invincible
+
+Fri, 19 Jun 2026 20:30:23 GMT
+
+https://screenrant.com/invincible-season-5-debbie-omni-man-relationship-return/
+
+Invincible has covered a lot of ground during its four seasons on Prime Video, but the upcoming season 5 will do something not seen since episode 1.
+---------
+
+# Cheers Creator James Burrows Dies At 85
+
+TV, James Burrows, Cheers
+
+Fri, 19 Jun 2026 20:25:43 GMT
+
+https://screenrant.com/james-burrows-death-obituary/
+
+James Burrow, the creator of one of the most iconic sitcoms of all time, Cheers, and the director of Will & Grace, has sadly passed away at 85.
+---------
+
+# Austin Powers 4 Marks The Start Of A New Era For Comedy Movies
+
+Movies, Austin Powers 4
+
+Fri, 19 Jun 2026 20:20:23 GMT
+
+https://screenrant.com/austin-powers-4-spoof-comedy-movies-new-era/
+
+A few members of the cast of Austin Powers returned in a new commercial, and it's a sign that a subgenre of comedy movies is starting a new era.
+---------
+
+# X-Men Star Doubles Down on Absence in Avengers: Doomsday: 'They Made a Mistake'
+
+Movies, Avengers: Doomsday, X-Men
+
+Fri, 19 Jun 2026 21:38:25 GMT
+
+https://www.cbr.com/avengers-doomsday-famke-janssen-jean-grey-absence/
+
+One original X-Men star is bummed over being left out of the major reunion in Avengers: Doomsday.
+---------
+
+# Pokémon Storm Emeralda Officially Arrives July 31
+
+Games, Pokemon
+
+Fri, 19 Jun 2026 21:32:15 GMT
+
+https://www.cbr.com/pokemon-storm-emeralda-official-new-release-tcg-pocket-july-31/
+
+The next addition to one of the biggest (and most controversial) titles has officially been revealed, and Storm Emeralda looks perfect.
+---------
+
+# Aliens Has the Greatest Quote in Action Movie History
+
+Movies, Aliens
+
+Fri, 19 Jun 2026 21:30:14 GMT
+
+https://www.cbr.com/aliens-greatest-quote-action-movie-history/
+
+The Alien movies are some of the best in action and sci-fi history, but only one entry has a quote that fans still talk about.
+---------
+
+# 5 Masterpiece Isekai Anime Better Than Sword Art Online
+
+Anime, Isekai, Sword Art Online, KonoSuba: God's Blessing on This Wonderful World!
+
+Fri, 19 Jun 2026 21:15:15 GMT
+
+https://www.cbr.com/masterpiece-isekai-anime-better-than-sword-art-online/
+
+Sword Art Online is regard as a top-tier isekai fantasy anime, but there are other totemic titles that beat it at its own game!
+---------
+
+# Colin Farrell's True Detective Replacement Returns With Improved Rotten Tomatoes Score
+
+TV, Sugar, Rotten Tomatoes
+
+Fri, 19 Jun 2026 21:09:37 GMT
+
+https://www.cbr.com/colin-farrell-sugar-season-2-rotten-tomatoes-score/
+
+The show had a fantastic Season 1 reception, but the new entry is even better rated.
+---------
+
+# Spider-Man: Brand New Day Confirms Its Biggest Villains
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Fri, 19 Jun 2026 21:00:14 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-confirmed-villains-list/
+
+Spider-Man: Brand New Day has a new trailer and poster, with both giving a closer look at who Spidey will be fighting against in his fourth MCU movie.
+---------
+
+# 11 Years Later, Star Wars: The Force Awakens Is Replaced As Most Expensive Movie of All Time
+
+Movies, Jurassic World Dominion, Star Wars: The Force Awakens, Sci-Fi
+
+Fri, 19 Jun 2026 20:47:53 GMT
+
+https://www.cbr.com/most-expensive-movie-jurassic-world-dominion-star-wars-the-force-awakens/
+
+Star Wars: The Force Awakens is no longer the most expensive movie of all time.
+---------
+
+# 5 Sci-Fi Movies Better Than Back to the Future
+
+Movies, Sci-Fi, Back to the Future, Blade Runner
+
+Fri, 19 Jun 2026 20:30:16 GMT
+
+https://www.cbr.com/sci-fi-movies-better-than-back-to-the-future-list/
+
+Back to the Future introduced the world to the time-travel hijinks of Doc Brown and Marty McFly, but a handful of sci-fi movies are even better.
+---------
+
+# Iconic 81-Year-Old Character Is Getting a Modern Reboot From Paddington Creators
+
+TV, Pippi Longstocking
+
+Fri, 19 Jun 2026 20:24:32 GMT
+
+https://www.cbr.com/pippi-longstocking-reboot-animated-series-new-movie/
+
+One of the most iconic literary characters of all time is being reimagined once again, this time for a "modern reboot."
+---------
+
+# 10 Greatest Animated Movie Villains Not From Disney
+
+Movie, Animation, Shrek 2, Kung Fu Panda 2, The Prince of Egypt
+
+Fri, 19 Jun 2026 21:35:15 GMT
+
+https://collider.com/best-animated-movie-villains-not-disney-ranked/
+
+Lord Shen from Kung Fu Panda 2 and The Beldam from Coraline are great and compelling villains that are just as good as any of Disney's best baddies.
+---------
+
+# Netflix’s Upcoming Sci-Fi Reboot Shouldn’t Ignore the Classic Show’s Secret Weapon
+
+TV Features, Netflix, Land of the Lost, Sci-Fi
+
+Fri, 19 Jun 2026 21:24:15 GMT
+
+https://collider.com/netflix-upcoming-sci-fi-reboot-land-of-the-lost-stop-motion/
+
+Netflix's Land of the Lost reboot should embrace the original series' stop-motion charm and avoid repeating the 2009 movie's mistakes.
+---------
+
+# 10 Most Rewatchable Epic Movies of All Time
+
+Movie, The Lord of the Rings: The Return of the King, Kill Bill: The Whole Bloody Affair, The Good, the Bad and the Ugly, Titanic
+
+Fri, 19 Jun 2026 21:05:15 GMT
+
+https://collider.com/most-rewatchable-epic-movies-all-time-ranked/
+
+Classic movies like Seven Samurai, Lawrence of Arabia, and Once Upon a Time in America all rank among the most rewatchable epics ever made.
+---------
+
+# Ahead of 'Reacher' Season 4, Disney+’s Brutal 2-Part Series Is the Perfect Replacement
+
+TV Features, Reacher, The Punisher, Marvel, Jon Bernthal
+
+Fri, 19 Jun 2026 20:55:15 GMT
+
+https://collider.com/reacher-replacement-marvel-series-the-punisher/
+
+Fans of Reacher should check out Marvel’s must-watch action series The Punisher, starring Jon Bernthal.
+---------
+
+# All 16 Spider-Man Villains, Ranked by Intelligence
+
+Movie, Spider-Man, Spider-Man: Far from Home
+
+Fri, 19 Jun 2026 20:50:15 GMT
+
+https://collider.com/spider-man-movie-villains-intelligence-ranked/
+
+Spider-Man has a stellar collection of enemies, including the likes of Doc Ock, Green Goblin, and Mysterio, but which villain is the smartest?
+---------
+
+# The 10 Most Violent Martial Arts Movies of All Time, Ranked
+
+Movie Lists, Martial Arts, Action
+
+Fri, 19 Jun 2026 21:00:19 GMT
+
+https://movieweb.com/violent-martial-arts-movies-ranked/
+
+From dismemberment to fountains of blood, how do the most violent martial arts films of all time stack up?
+---------
+
 # Netflix's Newest Mystery Series Marks The End Of An Era For Milo Ventimiglia
 
 Streaming TV, Masked Recs
