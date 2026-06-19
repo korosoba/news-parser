@@ -1,3 +1,322 @@
+# Steam Officially Drops Huge Free Game To Rave Reviews
+
+Gaming, Steam
+
+Fri, 19 Jun 2026 05:25:56 GMT
+
+https://screenrant.com/steam-zenless-zone-zero-free-to-play-download/
+
+A huge new game arrives on Steam with cross-save support, Steam Wallet purchases, playtime tracking, and Steam Deck support. And it's free!
+---------
+
+# Pokémon Black & White Fans, Mark Your Calendars For January 2027
+
+Gaming, Pokemon Black and White, Triple-A Games
+
+Fri, 19 Jun 2026 05:00:21 GMT
+
+https://screenrant.com/pokemon-black-white-hilda-tepig-january-2027/
+
+While Pokémon Black & White was contentious at the time of its release, it's since become one of the most beloved entries in the franchise.
+---------
+
+# GTA 6 Official Gameplay Footage Shows Off Enormous Map
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, Triple-A Games, PC
+
+Fri, 19 Jun 2026 04:30:21 GMT
+
+https://screenrant.com/gta-6-gameplay-footage-open-world-map/
+
+Grand Theft Auto 6 has finally resumed its marketing cycle, and the newest footage offers the best look yet at just how big Vice City will be.
+---------
+
+# Fallout Meets Stalker In This Free Steam RPG
+
+Gaming, Steam, Indie Games
+
+Fri, 19 Jun 2026 04:01:25 GMT
+
+https://screenrant.com/fallout-meets-stalker-free-steam-rpg-stalzone/
+
+Although Stalker 2: Heart of Chornobyl is due out later this year, you can play a free RPG now that's reminiscent of the classic series.
+---------
+
+# Demon Slayer Infinity Castle's Streaming Delay Is Breaking Another Anime Record
+
+Anime, Demon Slayer, Demon Slayer: Kimetsu no Yaiba Infinity Castle
+
+Fri, 19 Jun 2026 03:31:25 GMT
+
+https://screenrant.com/demon-slayer-delay-streaming-break-anime-record/
+
+Infinity Castle breaks records with its extended theatrical run and delayed streaming release, potentially setting a new precedent for anime films.
+---------
+
+# Prime Video’s New Game Adaptation Has So Much Potential, It’s Already Renewed For Season 2
+
+Streaming TV, Masked Recs
+
+Fri, 19 Jun 2026 03:17:39 GMT
+
+https://screenrant.com/god-of-war-prime-video-potential-two-seasons/
+
+Prime Video’s upcoming adaptation of a widely popular fantasy video game series has so much potential that it has already been renewed for two seasons
+---------
+
+# Mike Flanagan’s New Lovecraftian Remake Will Make Up For 1 Of The Worst Stephen King Shows
+
+Movies, Masked Recs
+
+Fri, 19 Jun 2026 03:00:24 GMT
+
+https://screenrant.com/mike-flanagan-the-mist-stephen-king-show/
+
+Mike Flanagan upcoming Lovecraftian television adaptation has the potential to make up for one of the worst small-screen takes on Stephen King’s books
+---------
+
+# Apple TV’s 2-Part Crime Thriller Returning For Season 3 Deserves To Be As Big As Ozark
+
+Streaming TV, Masked Recs
+
+Fri, 19 Jun 2026 02:30:06 GMT
+
+https://screenrant.com/apple-tv-your-friends-neighbors-ozark-success/
+
+Apple TV’s two-season crime thriller, which will return soon for another season, seems to have the potential to be as massive as Netflix’s Ozark.
+---------
+
+# One Piece Filler Guide: A List Of Every Episode You Can Skip
+
+TV, One Piece
+
+Fri, 19 Jun 2026 02:32:28 GMT
+
+https://screenrant.com/one-piece-filler-list-every-episode-skip/
+
+As with any anime series, One Piece comes with a selection of filler episodes. Which adventures aren't canon, and which One Piece arcs can you skip?
+---------
+
+# Resident Evil 4 Remake Returns With Awesome Co-Op Mode
+
+Gaming, Resident Evil 4
+
+Fri, 19 Jun 2026 02:00:33 GMT
+
+https://screenrant.com/resident-evil-4-remake-co-op-mod/
+
+The remake of Resident Evil 4 now has co-op gameplay, thanks to the tireless efforts of modders who created a robust online multiplayer mode.
+---------
+
+# Prime Video Is Officially Rebooting Voltron For a New Generation
+
+Movies, Voltron, Prime Video
+
+Fri, 19 Jun 2026 03:45:18 GMT
+
+https://www.cbr.com/prime-video-voltron-reboot-greatest-sci-fi-franchise/
+
+Amazon MGM Studios is finally giving Voltron the attention it deserves and giving it a long-overdue big-screen treatment.
+---------
+
+# 5 Forgotten 2000s Anime Series That Are Masterpieces From Start to Finish
+
+Anime, Hikaru no Go, Ergo Proxy
+
+Fri, 19 Jun 2026 03:45:18 GMT
+
+https://www.cbr.com/forgotten-2000s-anime-series-that-are-masterpieces/
+
+The 2000s are an underrated decade for anime that marked the debut of some groundbreaking titles that don't always get their due.
+---------
+
+# Robert Patrick Joins Fan Campaign to Save Amazon's Canceled Stargate Reboot
+
+TV, Stargate
+
+Fri, 19 Jun 2026 03:43:55 GMT
+
+https://www.cbr.com/amazon-stargate-campaign-robert-patrick/
+
+Stargate: Atlantis actor Robert Patrick is endorsing the fan campaign to rescue Amazon's canceled reboot.
+---------
+
+# Supernatural's Spinoff Confirmed the Universe's Greatest Hero by Paying Off a 13-Year-Old Tease (& It's Not Sam or Dean Winchester)
+
+TV, Supernatural, The Winchesters, Horror
+
+Fri, 19 Jun 2026 03:30:13 GMT
+
+https://www.cbr.com/supernatural-winchester-spinoff-impala-greatest-hero/
+
+The Winchesters spinoff series confirms the greatest hero in the Supernatural universe in its series finale.
+---------
+
+# Invincible Officially Drops New Tabletop Role-Playing Game in Stores July 30
+
+Comics, Invincible, Tabletop
+
+Fri, 19 Jun 2026 03:27:40 GMT
+
+https://www.cbr.com/new-invincible-superhero-ttrpg-release-july-30/
+
+Prime Video's smash superhero series Invincible finally returns this summer with an all-new release fans can officially enjoy from home next month.
+---------
+
+# Near-Perfect '90s RPGs That No One Remembers
+
+Games, RPG, JRPG, Video Games
+
+Fri, 19 Jun 2026 03:15:15 GMT
+
+https://www.cbr.com/near-perfect-90s-rpgs-no-one-remembers/
+
+The '90s were the era when RPGs hit the mainstream, but many amazing titles slipped through the cracks and wouldn't be appreciated until much later.
+---------
+
+# Ocarina of Time's Cut Content Makes the Switch 2 Remake a Perfect Game
+
+Games, The Legend of Zelda
+
+Fri, 19 Jun 2026 02:53:14 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-n64-removed-content-remake-switch-2/
+
+Ocarina of Time on N64 had a lot of cut content that can be added to the upcoming Switch 2 remake to make it the game Zelda's devs always envisioned.
+---------
+
+# Syfy's 'Guilty Pleasure' Sci-Fi Series Officially Returns Next Month
+
+TV, The Ark
+
+Fri, 19 Jun 2026 02:50:31 GMT
+
+https://www.cbr.com/syfy-the-ark-season-3-premiere-date-official-trailer/
+
+After a two-year wait, the new season of the Syfy series is set to debut in July.
+---------
+
+# House of the Dragon Star Warns That Targaryen Madness ‘Is Waking Up In Someone’ For Season 3
+
+CBR Exclusives, House of the Dragon, HBO Max, Game Of Thrones
+
+Fri, 19 Jun 2026 02:49:34 GMT
+
+https://www.cbr.com/house-of-the-dragon-season-3-interview-hugh-hammer-targaryen-madness/
+
+House of the Dragon star Kieran Bew teases Hugh Hammer’s Targaryen madness and the dragonseeds’ rise in Season 3.
+---------
+
+# 5 Anime Villains Stronger Than Gear 5 Luffy
+
+Anime, One Piece, Dragon Ball Z
+
+Fri, 19 Jun 2026 02:45:14 GMT
+
+https://www.cbr.com/anime-villains-stronger-gear-5-luffy-one-piece/
+
+Gear 5 transformed Luffy into one of anime's strongest heroes, but a handful of villains still stand above him.
+---------
+
+# 7 Detective Shows That Are 10/10, No Notes
+
+TV, Mystery, High Potential, Veronica Mars, Rizzoli & Isles
+
+Fri, 19 Jun 2026 04:07:13 GMT
+
+https://collider.com/detective-shows-perfect-no-notes/
+
+From the severely underrated Rizzoli & Isles to the recent hit ABC series High Potential, these detective shows are some of the best of the genre.
+---------
+
+# Ridley Scott’s Greatest Crime Epic Is Still His Most Overlooked Thriller Masterpiece
+
+Movie Features, Ridley Scott, Leonardo DiCaprio, Body of Lies, Russell Crowe
+
+Fri, 19 Jun 2026 04:06:14 GMT
+
+https://collider.com/ridley-scotts-body-of-lies-overlooked-thriller/
+
+'Body of Lies' directed by Ridley Scott, and starring Leonardo DiCaprio and Russel Crowe is criminally underrated.
+---------
+
+# Netflix’s 8-Part Twisted Thriller Is a True Story in the Darkest Ways Imaginable
+
+TV Features, Wayward, Netflix, Toni Collette, Thriller
+
+Fri, 19 Jun 2026 03:27:35 GMT
+
+https://collider.com/netflix-wayward-thriller-series-based-true-events/
+
+Netflix's Wayward draws from real troubled teen programs, using true stories and cult-like abuse to make its thriller even scarier.
+---------
+
+# Only 10 Movies from the '90s Are Truly Perfect From Start to Finish
+
+Movie, The Shawshank Redemption, Pulp Fiction, Goodfellas, Before Sunrise
+
+Fri, 19 Jun 2026 03:05:09 GMT
+
+https://collider.com/90s-movies-perfect-start-to-finish/
+
+From Heat to The Shawshank Redemption, these are the precious few movie masterpieces from the 1990s that are genuinely flawless all the way through.
+---------
+
+# ‘Severance’s Britt Lower Says Her ‘I Will Find You’ Character Differs From Helly in One Major Way
+
+TV, I Will Find You, Britt Lower, Sam Worthington, Harlan Coben
+
+Fri, 19 Jun 2026 02:00:26 GMT
+
+https://collider.com/harlan-coben-i-will-find-you-netflix-sam-worthington-britt-lower/
+
+Sam Worthington and Severance's Britt Lower discuss their I Will Find You characters and the biggest moments of Harlan Coben’s Netflix thriller show.
+---------
+
+# ‘For All Mankind’ Meets ‘The Americans’ in Apple TV’s 8-Part Thriller Series
+
+TV Features, Star City, For All Mankind, Apple TV, Thriller
+
+Fri, 19 Jun 2026 01:36:16 GMT
+
+https://collider.com/star-city-apple-tv-thriller-for-all-mankind-meets-the-americans/
+
+For All Mankind's Soviet-focused spin-off Star City blends sci-fi, political thriller, and espionage elements reminiscent of The Americans.
+---------
+
+# 'A Quiet Place's New Sequel Is Officially Moving the Saga to a New Location
+
+Movie News, A Quiet Place, IDW, John Krasinski, Paramount
+
+Fri, 19 Jun 2026 01:08:34 GMT
+
+https://collider.com/a-quiet-place-sequel-comic-image/
+
+John Krasinski’s A Quiet Place is expanding with a new sequel, transporting the hit horror saga to a more tropical location.
+---------
+
+# Every Tom Clancy Movie, Ranked
+
+Movie Lists, Tom Clancy
+
+Fri, 19 Jun 2026 02:00:32 GMT
+
+https://movieweb.com/tom-clancy-movies-ranked/
+
+Tom Clancy's popular novels have been adapted into several movies, and these are the
+---------
+
+# 'The Martian' Star Officially Joins Brendan Fraser's New Sci-Fi Thriller
+
+Movie News, Jeff Daniels, Brendan Fraser, Sci-Fi
+
+Fri, 19 Jun 2026 00:51:28 GMT
+
+https://movieweb.com/starman-movie-jeff-daniels-brendan-fraser/
+
+Jeff Daniels joins the movie 'Starman,' an adventure that sounds reminiscent of Ridley Scott's sci-fi outing.
+---------
+
 # DC Confirms Batman’s One True Heir Isn’t Robin, It’s This Classic Villain
 
 DC Comics, Batman
