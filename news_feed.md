@@ -1,3 +1,289 @@
+# DC Confirms Batman’s One True Heir Isn’t Robin, It’s This Classic Villain
+
+DC Comics, Batman
+
+Fri, 19 Jun 2026 00:05:01 GMT
+
+https://screenrant.com/batman-true-heir-catwoman-not-robin/
+
+The Absolute DC universe has fun playing with the concept of Bruce Wayne/Batman, as well as the characters who parallel his iconography.
+---------
+
+# Mortal Kombat II's Breakout Star Lands Netflix's New Remake Of 22-Year-Old Classic
+
+Movies, 13 Going on 30
+
+Fri, 19 Jun 2026 00:04:54 GMT
+
+https://screenrant.com/netflix-13-going-on-30-remake-adeline-rudolph-casting-details/
+
+Adeline Rudolph, who debuted as Kitana in Mortal Kombat II, has been cast in Netflix's remake of one of the most popular 2000s romantic comedies.
+---------
+
+# Final Fantasy 10 Officially Returns In Surprise New Release
+
+Gaming, Final Fantasy X, Final Fantasy, Triple-A Games
+
+Fri, 19 Jun 2026 00:00:21 GMT
+
+https://screenrant.com/final-fantasy-10-octopath-traveler-dlc/
+
+Final Fantasy 10 is celebrating its 25th anniversary with the return of Tidus, Yuna, and Auron in a new campaign experience from Square Enix.
+---------
+
+# The Lord Of The Rings Switching Casts Proves Peter Jackson's Franchise Isn't Done
+
+Movies, Masked Recs
+
+Fri, 19 Jun 2026 00:00:21 GMT
+
+https://screenrant.com/lord-of-the-rings-switching-casts-peter-jackson-movies-not-done/
+
+The Lord of the Rings is heading toward a changing of the guard in terms of casting, which only goes to show how Peter Jackson's movies aren't over.
+---------
+
+# Why Masters Of The Universe Flopped At The Box office But Could Still Get A Sequel
+
+Movies, Masters of the Universe
+
+Fri, 19 Jun 2026 00:00:21 GMT
+
+https://screenrant.com/masters-of-the-universe-box-office-flop-sequel/
+
+Exploring reasons why Masters of the Universe may have underperformed at the box office and why they don't necessarily doom a sequel.
+---------
+
+# 6 Post-Apocalyptic Shows Better Than The Walking Dead
+
+Streaming TV, The Walking Dead
+
+Thu, 18 Jun 2026 23:45:21 GMT
+
+https://screenrant.com/post-apocalyptic-shows-better-than-the-walking-dead/
+
+Although The Walking Dead is one of the most popular post-apocalyptic shows, other series beat it out with better entertainment and writing.
+---------
+
+# Daniel Craig's Best James Bond Replacement Returns This Week
+
+TV, Masked Recs
+
+Thu, 18 Jun 2026 23:32:10 GMT
+
+https://screenrant.com/michael-fassbender-the-agency-martian-james-bond-replacement/
+
+Former Bond frontrunner Michael Fassbender returns to his own unique take to the spy genre this month and proves the 007 franchise is missing out.
+---------
+
+# Star Wars Is Officially Switching Casts For 2027 Return
+
+Movies, Star Wars: Starfighter, Star Wars, Rogue One: A Star Wars Story
+
+Thu, 18 Jun 2026 23:31:53 GMT
+
+https://screenrant.com/star-wars-starfighter-switching-casts-2027-return/
+
+Star Wars is about to get an all-new cast of completely new characters for the first time in over a decade thanks to Star Wars: Starfighter.
+---------
+
+# Leviticus Review: Desire Becomes The Demon In Disturbing Horror Debut
+
+New Movies, Leviticus
+
+Thu, 18 Jun 2026 23:29:52 GMT
+
+https://screenrant.com/leviticus-movie-2026-review/
+
+Adrian Chiarella's directorial debut is an unsettling and unflinching parable about demons and desire that is effective as it is heartwrenching.
+---------
+
+# James Bond Officially Starts A New Era On Netflix
+
+Movies, James Bond
+
+Thu, 18 Jun 2026 23:09:54 GMT
+
+https://screenrant.com/james-bond-movies-netflix-streaming-success-june-2026/
+
+James Bond has officially started a new era on Netflix, and it could be what boosts the next chapter of the most iconic spy franchise of all time.
+---------
+
+# It's Official, in 1 Year the Spider-Verse Franchise Returns to Theaters
+
+Movies, Spider-Verse, Spider-Man Into the Spider-Verse, Spider-Man: Across the Spider-Verse, Spider-Man: Beyond the Spider-Verse
+
+Fri, 19 Jun 2026 00:00:14 GMT
+
+https://www.cbr.com/spider-man-beyond-the-spider-verse-returns-to-theaters/
+
+With Spider-Man: Beyond the Spider-Verse releasing next year, the greatest superhero franchise continues to thrill and impress
+---------
+
+# 10 Anime Characters Who Turned Weakness Into Strength
+
+Anime, Naruto, Black Clover, My Hero Academia
+
+Thu, 18 Jun 2026 23:16:47 GMT
+
+https://www.cbr.com/anime-characters-turned-weakness-into-strength/
+
+One of the most satisfying things in any anime is when a character weaponizes their weakness to become extraordinarily powerful.
+---------
+
+# Marvel’s Next Hulk War Has Been Officially Confirmed
+
+Comics, incredible hulk
+
+Thu, 18 Jun 2026 23:00:21 GMT
+
+https://www.cbr.com/infernal-hulk-vs-wolverine-release-date-confirmed/
+
+Marvel has never seen a Hulk so hellish.
+---------
+
+# The 10 Greatest Psychological Thrillers Of the Last 25 Years, Ranked
+
+Movies, Thriller
+
+Thu, 18 Jun 2026 23:00:21 GMT
+
+https://www.cbr.com/best-psychological-thriller-movies-ranked-list/
+
+These ten thriller films represent the best of the last 25 years, moving beyond simple plot twists to explore the dark reality of the human condition.
+---------
+
+# Black Panther and Namor Team Up To Take Down A Terrifying Demonic Force In New Series
+
+Comics, Marvel, Marvel Comics, MCU, Black Panther, Namor the Sub-Mariner, Black Panther: Wakanda Forever, Avengers: Doomsday, Avengers: Doomsday (2026), Avengers
+
+Thu, 18 Jun 2026 22:38:43 GMT
+
+https://www.cbr.com/black-panther-namor-team-up-marvel-series-avengers-doomsday/
+
+Marvel fans won't believe what evil brought Black Panther and Namor together.
+---------
+
+# 'Smile' Is Officially Getting a Horrifying New Sequel After 2-Year Delay
+
+Movie News, Smile, Parker Finn, IDW, Paramount
+
+Thu, 18 Jun 2026 23:22:23 GMT
+
+https://collider.com/smile-2-sequel-comic-images/
+
+2 years after the critically acclaimed Smile 2, the horror franchise is officially expanding with a surprising new sequel. Read on for more details.
+---------
+
+# 8 Best Movie Sequels That Made $1 Billion
+
+Movie, Avengers: Infinity War, sequels, Skyfall, Toy Story 3
+
+Thu, 18 Jun 2026 23:21:15 GMT
+
+https://collider.com/best-movie-sequels-1-billion-box-office-ranked/
+
+There have been many massively successful movie sequels that have grossed over $1 billion, with some of the best including Skyfall and Toy Story 3.
+---------
+
+# 10 Greatest Crime-Drama Shows of All Time, Ranked
+
+TV, Crime, Drama, The Sopranos, Breaking Bad
+
+Thu, 18 Jun 2026 23:12:39 GMT
+
+https://collider.com/best-crime-drama-shows-all-time-ranked/
+
+The greatest crime drama TV shows of all time are genre-defining masterpieces that influenced modern television, from Breaking Bad to The Sopranos.
+---------
+
+# ‘The Boroughs’ Star’s Biggest Western Flop Gets a Second Chance on Paramount+
+
+Movie News, The Boroughs, Texas Rangers, Western, paramount plus
+
+Thu, 18 Jun 2026 23:00:02 GMT
+
+https://collider.com/texas-rangers-streaming-hit-paramount-plus-june-2026/
+
+Netflix's cancellation of The Boroughs after just one season has left fans searching for alternatives, leading them to Alfred Molina's 2001 Western.
+---------
+
+# 'Bosch's Titus Welliver Returns to TV in the Perfect Series for 'Peaky Blinders' Fans
+
+TV Features, The Westies, Titus Welliver, J.K. Simmons, MGM
+
+Thu, 18 Jun 2026 22:58:14 GMT
+
+https://collider.com/titus-welliver-new-series-westies-mgm-plus/
+
+Bosch star Titus Welliver is returning to television next month in a slick, new crime drama sure to excite fans of Peaky Blinders and Narcos.
+---------
+
+# Netflix Officially Confirms the Fate of Greta Gerwig's Narnia Reboot
+
+Movie News, Greta Gerwig, Narnia: The Magician's Nephew, Netflix, IMAX
+
+Thu, 18 Jun 2026 22:57:44 GMT
+
+https://collider.com/netflix-narnia-reboot-imax-release-greta-gerwig/
+
+The fate of Greta Gerwig's upcoming Narnia reboot, The Magician's Nephew, has been officially decided by Netflix.
+---------
+
+# 3 Years Later, the BBC's Perfect ‘Broadchurch’ Replacement Is Finally Back
+
+TV News, The Night Manager, BBC, Vigil, Thriller
+
+Thu, 18 Jun 2026 22:40:15 GMT
+
+https://collider.com/vigil-season-3-trailer-bbc/
+
+Suranne Jones and Rose Leslie's gripping police procedural returns for its third season, with a new trailer for Vigil Season 3.
+---------
+
+# David Fincher's Underrated Thriller With a Killer Twist Lands New Streaming Home
+
+Movie News, The Game, Coming/Leaving Streaming
+
+Fri, 19 Jun 2026 00:00:19 GMT
+
+https://movieweb.com/the-game-streaming-criterion-channel-june-2026/
+
+Are you ready to witness the most insane gift anyone has ever received for their birthday?
+---------
+
+# Joan Cusack on Jessie Leading the Charge in 'Toy Story 5'
+
+Movie News, Toy Story 5, Toy Story, Joan Cusack
+
+Thu, 18 Jun 2026 23:39:09 GMT
+
+https://movieweb.com/toy-story-5-joan-cusack-jessie-interview/
+
+The voice actor speaks about how the new perspective in the upcoming Pixar movie allows for more nuance in the story.
+---------
+
+# Steven Spielberg Finds Next Sci-Fi Movie After $100M Hit 'Disclosure Day'
+
+Movie News, Steven Spielberg, Scott Beck, Bryan Woods, Sci-Fi
+
+Thu, 18 Jun 2026 23:18:19 GMT
+
+https://movieweb.com/steven-spielberg-new-sci-fi-movie/
+
+The filmmaker is set to produce the latest from the 'A Quiet Place' creators Scott Beck and Bryan Woods.
+---------
+
+# Jason Statham's Underrated Action Thriller Is Being Cut From Streaming
+
+Movie News, Safe, Pluto TV, Coming/Leaving Streaming, Jason Statham, Action
+
+Thu, 18 Jun 2026 23:00:02 GMT
+
+https://movieweb.com/safe-jason-statham-action-leaving-free-streaming-pluto-july-2026/
+
+Jason Statham's forgotten dark action thriller 'Safe' is being removed from free streaming on Pluto TV.
+---------
+
 # For The First Time In 29 Years, One Piece Fans Are Losing Faith In Oda: Here's How He Can Fix It
 
 Anime, One Piece
