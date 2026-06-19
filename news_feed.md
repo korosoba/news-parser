@@ -1,3 +1,333 @@
+# DC Officially Reveals Supergirl’s New Legacy-Changing Nightwing Costume
+
+Comics, Supergirl
+
+Fri, 19 Jun 2026 18:04:17 GMT
+
+https://screenrant.com/supergirl-survive-first-look-nightwing-costume/
+
+DC Comics has officially revealed the first look at Supergirl’s new Nightwing costume, marking one of the biggest legacy shifts in the hero's history.
+---------
+
+# Ridley Scott's The Martian Star Cast Opposite Brendan Fraser In New Sci-Fi Thriller
+
+Movies, Jeff Daniels, The Martian, Brendan Fraser
+
+Fri, 19 Jun 2026 18:03:19 GMT
+
+https://screenrant.com/brendan-fraser-starman-jeff-daniels-casting-report/
+
+The Martian was released over a decade ago, and now one of the stars of the film has joined the cast of another sci-fi project with Brendan Fraser.
+---------
+
+# New Halo Trilogy Release Officially Opens Pre-Orders
+
+Gaming, Halo, Triple-A Games
+
+Fri, 19 Jun 2026 18:00:21 GMT
+
+https://screenrant.com/halo-trilogy-soundtrack-collection-pre-orders/
+
+A new Halo Trilogy collection could be the perfect treat for fans of the franchise, and it's a lot more faithful than Campaign Evolved.
+---------
+
+# Netflix's New 8-Part Series Just Turned Stranger Things Upside Down
+
+Streaming TV, Masked Recs
+
+Fri, 19 Jun 2026 18:00:21 GMT
+
+https://screenrant.com/the-boroughs-netflix-turn-stranger-things-upside-down/
+
+The Duffer Brothers new show has turned Stranger Things upside down with its plot and lead characters acting as a mirror to the groundbreaking series.
+---------
+
+# Sugar Season 3 & Beyond Will Have "A Lot More" Alien Lore Than Season 2, Says EP
+
+TV, Sugar, Colin Farrell
+
+Fri, 19 Jun 2026 17:51:36 GMT
+
+https://screenrant.com/sugar-season-3-future-alien-lore-tease-executive-producer/
+
+EXCLUSIVE: As Sugar season 2 premieres on Apple TV, the executive producer of the series teases when fans can expect the alien lore to expand.
+---------
+
+# 3 Best Shows To Watch On Netflix This Weekend (June 19–21)
+
+Streaming TV, What to Watch on Netflix, Netflix
+
+Fri, 19 Jun 2026 17:49:22 GMT
+
+https://screenrant.com/best-netflix-shows-watch-weekend-june-19/
+
+The three best shows to watch on Netflix this weekend, June 19–21, 2026, are all brand new releases that viewers around the world are diving into now.
+---------
+
+# We're Officially 6 Weeks Away From Tom Holland's Spider-Man Making History
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Fri, 19 Jun 2026 17:46:21 GMT
+
+https://screenrant.com/spider-man-brand-new-day-tom-holland-history/
+
+Tom Holland's Spider-Man returns in six weeks with Spider-Man: Brand New Day, and when he does, he'll make history for Marvel's iconic hero.
+---------
+
+# Christian Bale's $371M Post-Apocalyptic Sci-Fi That Broke A Massive Franchise Tradition Is Now A Global HBO Max Streaming Sensation
+
+Movies, Masked Recs
+
+Fri, 19 Jun 2026 17:42:46 GMT
+
+https://screenrant.com/christian-bale-terminator-salvation-hbo-max-streaming-success-june-2026/
+
+Christian Bale's post-apocalyptic sci-fi is a hit, as HBO Max's global streaming charts are dominated by the movie as it finally proves its mettle.
+---------
+
+# Liam Neeson's Infamous $220M Sci-Fi Flop Continues US Streaming Chart Climb After 1 Full Month
+
+Movies, Masked Recs
+
+Fri, 19 Jun 2026 17:42:31 GMT
+
+https://screenrant.com/liam-neeson-battleship-movie-prime-video-streaming-success-june-2026/
+
+Liam Neeson's infamous $220 million sci-fi flop continues climbing the streaming charts in the United States following one full month.
+---------
+
+# Apple TV’s Hit Alien Sci-Fi Crime Series Is Officially Returning With Another “Seismic” Twist In Sugar Season 2
+
+TV, Sugar, Colin Farrell, Apple TV
+
+Fri, 19 Jun 2026 17:30:22 GMT
+
+https://screenrant.com/sugar-season-2-apple-tv-seismic-twist-tease-cast-showrunner/
+
+Colin Farrell, Laura Donnelly, Sam Catlin and Audrey Chon talk Sugar season 2 and the big twist to come from the Apple TV sci-fi crime series.
+---------
+
+# ABC Confirms New Tracker Replacement Show Based on Bestselling Book Series
+
+TV, Tracker
+
+Fri, 19 Jun 2026 17:50:43 GMT
+
+https://www.cbr.com/abc-the-naturalist-tv-adaptation/
+
+Tracker is still one of the most-watched cable shows and ABC is trying to replicate its success.
+---------
+
+# The MCU is Officially the End of the Fox X-Men Era
+
+Movies, X-Men, Marvel Cinematic Universe, Disney
+
+Fri, 19 Jun 2026 17:30:14 GMT
+
+https://www.cbr.com/mcu-confirmed-end-of-fox-x-men-era/
+
+With Marvel Studios' X-Men reboot in development, we can expect some massive changes to the X-Men we know and love in the coming months.
+---------
+
+# 5 Masterpiece Fantasy Anime That Beat Game of Thrones At Its Own Game
+
+Anime, Game Of Thrones, Fantasy
+
+Fri, 19 Jun 2026 17:15:15 GMT
+
+https://www.cbr.com/masterpiece-fantasy-anime-bettter-than-game-of-thrones-list/
+
+These anime masterpieces use mystery, war, and shifting loyalties to build massive stories, outdoing Game of Thrones in intrigue and betrayal.
+---------
+
+# In Just 1 Day, The Sci-Fi Movie Event of the Year Sets Streaming Dominations
+
+Movies, Project Hail Mary
+
+Fri, 19 Jun 2026 17:00:15 GMT
+
+https://www.cbr.com/project-hail-mary-sci-fi-mgm-plus-success-june-2026/
+
+The movie was a huge critical and commercial success, and it's now continuing the same trend on streaming.
+---------
+
+# Dragon Ball Unveils First Look at a New Super Saiyan God Transformation
+
+Anime, Dragon Ball
+
+Fri, 19 Jun 2026 17:00:15 GMT
+
+https://www.cbr.com/dragon-ball-legends-super-saiyan-god-shallet-reveal/
+
+Dragon Ball Legends has officially introduced Super Saiyan God Shallet as a summonable character in latest release.
+---------
+
+# Elden Ring: Raya Lucaria Officially Arrives July 2026
+
+Games, Elden Ring
+
+Fri, 19 Jun 2026 16:36:17 GMT
+
+https://www.cbr.com/elden-ring-raya-lucaria-official-release-july-2026/
+
+The next awe-striking Elden Ring collectible is barely one month away from making its way into the hands of fans, and they won't want to miss out.
+---------
+
+# The Taylor Swift Song 'Voicemails for Isabelle' Fought For | Collider BTS
+
+Movie, Voicemails for Isabelle
+
+Fri, 19 Jun 2026 18:16:15 GMT
+
+https://collider.com/video/the-taylor-swift-song-voicemails-for-isabelle-fought-for-collider-bts/
+
+Discover the surprising behind-the-scenes story of how Taylor Swift’s song “Voicemails for Isabelle” survived creative challenges, fought for its place in the project, and became one of the most meaningful tracks featured in Collider BTS coverage.
+---------
+
+# George Lucas’ Canceled Star Wars Show Would’ve Changed How We See This Villain
+
+TV Features, Star Wars: Episode I - The Phantom Menace, George Lucas, Ian McDiarmid, Star Wars
+
+Fri, 19 Jun 2026 18:11:15 GMT
+
+https://collider.com/star-wars-george-lucas-canceled-palpatine-spinoff-ian-mcdiarmid-comments/
+
+Ian McDiarmid recently revealed that George Lucas had plans to create a Star Wars TV show focusing on Emperor Palpatine's rise to power.
+---------
+
+# 28 Years Later, ‘Dr. Quinn, Medicine Woman’ Stars Jane Seymour & Joe Lando Reunite [Exclusive]
+
+TV News, Harry Wild, Dr. Quinn, Medicine Woman, Acorn TV, Drama
+
+Fri, 19 Jun 2026 18:00:13 GMT
+
+https://collider.com/harry-wild-season-5-sneak-peek-dr-quinn-medicine-woman-reunion/
+
+Jane Seymour and Joe Lando reunite for an exclusive sneak peek of Harry Wild Season 5, as their characters' chemistry ignites once more.
+---------
+
+# Norman Reedus Says Goodbye to 'The Walking Dead' After 16 Years as Daryl Dixon
+
+TV News, The Walking Dead: Daryl Dixon, Norman Reedus, AMC, Melissa McBride
+
+Fri, 19 Jun 2026 17:49:54 GMT
+
+https://collider.com/the-walking-dead-norman-reedus-goodbye-daryl-dixon/
+
+After playing Daryl Dixon for over a decade, Norman Reedus has officially said goodbye to the world of The Walking Dead.
+---------
+
+# Forget 'The Boroughs', Netflix's Better Sci-Fi Mystery Series Is the Perfect Replacement Ahead of Season 2
+
+TV News, Netflix, The Boroughs, The Eternaut, Sci-Fi
+
+Fri, 19 Jun 2026 17:45:35 GMT
+
+https://collider.com/netflix-sci-fi-series-the-eternaut-streaming-success-june-2026/
+
+The Eternaut, Netflix's perfect sci-fi mystery replacement for its cancelled series, The Boroughs, is a must-watch hit ahead of its second season.
+---------
+
+# Make Me Laugh, with the Cast of House of the Dragon
+
+HBO Max, House of the Dragon, Originals
+
+Fri, 19 Jun 2026 17:37:51 GMT
+
+https://collider.com/video/make-me-laugh-with-the-cast-of-house-of-the-dragon/
+
+It's inside jokes,  behind the scenes stories and memes on the Collider set as the young stars of House of the Dragon go head to head in a battle as epic as the Dance of the Dragons.Phoebe Campbell (Lady Rhaena) and Harry Collett (Jace Targaryen) vs. Gayle Rankin (Alys Rivers) and Bethany Antonia (Lady Baela). Who will win?
+---------
+
+# The 2000s’ Most Divisive Fantasy Adaptation Gets a Second Chance on Netflix
+
+Movie News, Netflix, Percy Jackson & The Olympians: The Lightning Thief, Percy Jackson & the Olympians, Fantasy
+
+Fri, 19 Jun 2026 17:34:01 GMT
+
+https://collider.com/percy-jackson-movie-franchise-streaming-success-netflix-june-2026/
+
+The divisive Percy Jackson movies have taken over the Netflix charts within days of their arrival on the platform. Read on for more.
+---------
+
+# ’The Big Bang Theory’s New Sci-Fi Spin-Off Arrives in 1 Month
+
+TV News, Stuart Fails to Save the Universe, The Big Bang Theory, HBO Max, Sci-Fi
+
+Fri, 19 Jun 2026 17:29:21 GMT
+
+https://collider.com/big-bang-theory-sequel-hbo-max-stuart-fails-to-save-the-universe-release-date-july-23-2026/
+
+The Big Bang Theory's new sci-fi spin-off, Stuart Fails to Save the Universe, premieres on HBO Max in just one month.
+---------
+
+# This 5-Part Series’ Best 2 Minutes Are a Masterclass in Absolute Chaos
+
+TV Features, The Bear, Hulu, Jon Bernthal, Jeremy Allen White
+
+Fri, 19 Jun 2026 17:28:15 GMT
+
+https://collider.com/the-bear-fishes-episode-2-minutes-deeper-meaning-opinion/
+
+Since its very first episode, The Bear has left fans stressed out and on edge, but no episode was as powerful as Season 2’s Fishes.
+---------
+
+# HBO Officially Brings Back Its Most Divisive Fantasy Series This Week
+
+TV News, House of the Dragon, HBO, George R.R. Martin, Game Of Thrones
+
+Fri, 19 Jun 2026 17:15:15 GMT
+
+https://collider.com/hbo-fantasy-house-of-the-dragon-season-3-new-episodes/
+
+House of the Dragon, the Game of Thrones spin-off around House Targaryen, returns to streaming with Season 3 this weekend.
+---------
+
+# Jason Statham's 100-Minute Action Thriller Is Leaving Free Streaming Soon
+
+Movie News, Jason Statham, Action, Thriller, Redemption
+
+Fri, 19 Jun 2026 18:00:19 GMT
+
+https://movieweb.com/jason-statham-redemption-leaving-free-streaming-pluto-july-2026/
+
+When it comes to Statham's wide array of action movies, this critical flop stands out as one well worth checking out. Quickly.
+---------
+
+# Marvel’s Forgotten Action Hero Campaigns for Comeback in MCU X-Men Reboot
+
+Movie News, Agents of S.H.I.E.L.D., X-Men, Adrianne Palicki
+
+Fri, 19 Jun 2026 17:07:27 GMT
+
+https://movieweb.com/agents-of-shield-adrienne-palicki-x-men-role/
+
+''Agents of SHIELD' star Adrianne Palicki threw her name into the ring for a major role in the MCU's upcoming X-Men reboot.
+---------
+
+# 'Toy Story' Launches Into a Brave New Era
+
+Features, Toy Story 5
+
+Fri, 19 Jun 2026 17:00:20 GMT
+
+https://movieweb.com/toy-story-woody-buzz-era-over/
+
+There's so much more to offer than just nostalgia. This deep dive includes exclusive quotes from Tom Hanks, Tim Allen, and more.
+---------
+
+# Amazon Suddenly Drops Andrew Garfield's New Movie
+
+Movie News, Artificial, Luca Guadagnino, Andrew Garfield
+
+Fri, 19 Jun 2026 16:30:26 GMT
+
+https://movieweb.com/luca-guadagnino-andrew-garfield-artificial-dropped-amazon/
+
+Amazon MGM Studios has officially dropped Andrew Garfield's new movie, Luca Guadagnino's 'Artificial,' about OpenAI and its founder Sam Altman.
+---------
+
 # Marvel’s New Horror Era Officially Begins In October 2026
 
 Marvel Comics, Marvel
