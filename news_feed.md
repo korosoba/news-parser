@@ -1,3 +1,355 @@
+# Lost’s Hurley & Sawyer Reunite On A Plane 16 Years After The Series Finale
+
+TV, Lost
+
+Sat, 20 Jun 2026 17:48:29 GMT
+
+https://screenrant.com/lost-hurley-sawyer-jorge-garcia-josh-holloway-reunion/
+
+After surviving the Oceanic Flight 815 crash and the island, Lost's Hurley and Sawyer reunite on a plane in an unexpected and humorous way.
+---------
+
+# New Evil Dead Movie Nearly Set A Franchise Rating Record Before Cutting Brutal Scene
+
+Movies, Evil Dead Burn, Evil Dead, Horror
+
+Sat, 20 Jun 2026 17:47:51 GMT
+
+https://screenrant.com/evil-dead-burn-nc-17-rating-mpa-issue/
+
+Director Sébastien Vaniček reveals that he had to cut down a particularly brutal scene in Evil Dead Burn to avoid setting a franchise rating record.
+---------
+
+# Why Millie Bobby Brown's Eleven Was Recast For Netflix's New Stranger Things Show
+
+Streaming TV, Masked Recs
+
+Sat, 20 Jun 2026 17:39:38 GMT
+
+https://screenrant.com/millie-bobby-brown-eleven-recast-stranger-things-new-show/
+
+The decision to recast Eleven in the new spinoff has raised eyebrows, but there's a solid and understandable explanation why a fresh actor was needed.
+---------
+
+# Blue Lock Season 3 Is Going To Introduce The One Anime Character Who Can Dethrone Gojo
+
+Anime, Blue Lock
+
+Sat, 20 Jun 2026 17:30:22 GMT
+
+https://screenrant.com/blue-lock-season-3-kaiser-popular-character/
+
+The era of Gojo is almost over.
+---------
+
+# John Wick Meets Terminator In A24's Upcoming Action Sci-Fi Thriller
+
+Movies, Masked Recs
+
+Sat, 20 Jun 2026 17:15:21 GMT
+
+https://screenrant.com/onslaught-a24-movie-terminator-john-wick/
+
+A24's new action thriller Onslaught combines the brutal, nail-biting spectacle of John Wick with the sci-fi carnage of the Terminator franchise.
+---------
+
+# After 7 Years, X-Men Finally Brings Back One Of Its Coolest Villains
+
+Marvel Comics, X-Force, X-Men
+
+Sat, 20 Jun 2026 17:01:22 GMT
+
+https://screenrant.com/x-force-zero-return-x-men-cable/
+
+A powerful X-Men villain returns from the dead, using his unique abilities to offer a team of mutant heroes the chance to avoid a dark future.
+---------
+
+# It's Official: Final Fantasy 9 Is Back In A Big Way
+
+Gaming, Final Fantasy 9, Final Fantasy, RPG, PC
+
+Sat, 20 Jun 2026 17:01:22 GMT
+
+https://screenrant.com/final-fantasy-9-25th-anniversary-return-going-strong/
+
+Final Fantasy 9 is making a huge and official comeback pretty soon, and fans of the classic JRPG may want to start saving money for what’s arriving.
+---------
+
+# 10 Brilliant Manhwa Under 100 Chapters Readers Can Binge In One Night
+
+Anime
+
+Sat, 20 Jun 2026 17:01:22 GMT
+
+https://screenrant.com/manhwa-under-100-chapters-bingeable-one-weekend/
+
+These manhwa are just long enough to keep you wanting more, yet sufficient enough for that one-time binge.
+---------
+
+# PlayStation Plus Rolls Out Major Change, And Gamers Aren’t Happy
+
+Gaming, PlayStation Plus, PlayStation, Live Service Games
+
+Sat, 20 Jun 2026 16:57:38 GMT
+
+https://screenrant.com/playstation-plus-major-schedule-change-gamers-react/
+
+PlayStation Plus is shaking up its approach to delivering free games each month, and the new system seems a lot more frustrating for subscribers.
+---------
+
+# The 8 Most Promising Summer 2026 Movies Nobody Is Talking About
+
+Movies
+
+Sat, 20 Jun 2026 16:56:14 GMT
+
+https://screenrant.com/summer-2026-movies-nobody-is-talking-about/
+
+Summer 2026 is full of all kinds of fantastic blockbusters, but there are also a number of great movies that are flying under the radar.
+---------
+
+# 10 Best TV Shows Recommended by Stephen King
+
+TV, Stephen King, Silo, From
+
+Sat, 20 Jun 2026 17:30:14 GMT
+
+https://www.cbr.com/best-tv-shows-recommended-by-stephen-king-list/
+
+Legendary horror author Stephen King often recommends some of his favorite TV shows on X, and if anyone's recommendations can be trusted, it's his.
+---------
+
+# 10 Best Comic Book Games of All Time
+
+Games, Batman: Arkham Knight, Marvel, superheroes, Marvel's Wolverine
+
+Sat, 20 Jun 2026 17:15:14 GMT
+
+https://www.cbr.com/official-best-comic-book-games-of-all-time/
+
+The best superhero video games of all time naturally star comic book and film icons like Batman, Wolverine, and Spider-Man.
+---------
+
+# 8 Reasons It's Tough to Watch Tombstone Today
+
+Movies, Tombstone, Western, kurt russell
+
+Sat, 20 Jun 2026 17:01:14 GMT
+
+https://www.cbr.com/reasons-tough-to-watch-tombstone-today-list/
+
+Tombstone has endured as a Western masterpiece for an impressive 33 years, but fresh eyes in 2026 can tarnish the viewing experience.
+---------
+
+# Bryan Cranston's Canceled Breaking Bad Replacement Is Leaving Netflix in 3 Weeks
+
+TV
+
+Sat, 20 Jun 2026 16:30:52 GMT
+
+https://www.cbr.com/sneaky-pete-leaves-netflix-july-2026/
+
+The crime drama series canceled too soon is preparing to say goodbye to Netflix.
+---------
+
+# Seven of Nine's Greatest Star Trek: Voyager Line Hits 10x Harder 28 Years Later
+
+TV, Star Trek, Star Trek: Voyager
+
+Sat, 20 Jun 2026 16:30:14 GMT
+
+https://www.cbr.com/star-trek-voyager-seven-of-nine-most-important-quote/
+
+Seven of Nine's iconic line exposes the complex struggle between personal freedom and societal expectations, resonating stronger than ever.
+---------
+
+# 5 Essential R-Rated 80s Thrillers That Are Still Perfect Today
+
+Movies, Thriller, Harrison Ford, Witness
+
+Sat, 20 Jun 2026 16:30:14 GMT
+
+https://www.cbr.com/must-watch-r-rated-80s-thrillers-list/
+
+The 80s is a decade that never gets enough credit for its thriller output, but these perfect r-rated classics prove it's among the genre's best eras.
+---------
+
+# 10 Greatest Anime To Watch with Your Parents
+
+Anime, Spy X Family, Frieren: Beyond Journey's End, Dragon Ball
+
+Sat, 20 Jun 2026 16:15:13 GMT
+
+https://www.cbr.com/greatest-anime-to-watch-with-parents-this-weekend/
+
+Not every anime is suitable to be watched with the whole family, but series like Spy X Family and Frieren absolutely are.
+---------
+
+# House of the Dragon’s Tom Glynn-Carney Addresses Aegon’s Potential To Be A Good King
+
+CBR Exclusives, House of the Dragon, Game Of Thrones, HBO Max
+
+Sat, 20 Jun 2026 16:13:29 GMT
+
+https://www.cbr.com/house-of-the-dragons-tom-glynn-carney-aegon-good-king/
+
+House of the Dragon star Tom Glynn-Carney discusses Aegon II's ability to rule, his Season 3 recovery and his bond with Larys Strong.
+---------
+
+# 6 Greatest Forgotten '70s Cult Classic Movies
+
+Movie, I Wanna Hold Your Hand, The Driver, Bring Me the Head of Alfredo Garcia, Brewster McCloud
+
+Sat, 20 Jun 2026 17:29:15 GMT
+
+https://collider.com/best-forgotten-70s-cult-classic-movies-ranked/
+
+1970s cult classics like I Wanna Hold Your Hand and Bring Me the Head of Alfredo García have niche fandoms but have been largely forgotten otherwise.
+---------
+
+# 'Widow's Bay' Just Set Up 9 Unexpected Season 2 Mysteries
+
+TV, Widow's Bay, Apple TV, Horror, Mystery
+
+Sat, 20 Jun 2026 17:19:14 GMT
+
+https://collider.com/widows-bay-season-2-mysteries/
+
+Widow's Bay has ended its first season, and while much has been revealed about the cursed town, there are still mysteries left to solve in Season 2.
+---------
+
+# 8 Great Horror Books Not Written by Stephen King
+
+Movie, Stephen King, Books, World War Z, Frankenstein
+
+Sat, 20 Jun 2026 17:09:15 GMT
+
+https://collider.com/great-horror-books-not-stephen-king/
+
+While Stephen King is amazing at writing scary stories, there are plenty of great horror books by other authors, like Swan Song and House of Leaves.
+---------
+
+# 8 Greatest Sitcoms of the Last 5 Years, Ranked
+
+TV, Running Point, Abbott Elementary, St. Denis Medical, Sitcom
+
+Sat, 20 Jun 2026 17:04:17 GMT
+
+https://collider.com/best-sitcoms-last-5-years-ranked/
+
+Find out which acclaimed sitcoms have made the biggest impact in the last five years, from Abbott Elementary to St. Denis Medical.
+---------
+
+# Ridley Scott’s 148-Minute Historical Epic Gets a Second Chance 2 Years Later
+
+Movie News, Gladiator II, Ridley Scott, Paramount Plus, Gladiator
+
+Sat, 20 Jun 2026 17:00:13 GMT
+
+https://collider.com/gladiator-2-streaming-success-paramount-plus-june-2026/
+
+After Russell Crowe's latest volley of insults, Gladiator II saw a viewership spike on streaming. Here's everything you should know.
+---------
+
+# 10 Best Space Opera Movies Released Since the Original 'Star Wars'
+
+Movie, Sci-Fi, Star Wars: Episode IV - A New Hope, Dune: Part Two, Interstellar
+
+Sat, 20 Jun 2026 16:52:46 GMT
+
+https://collider.com/best-space-opera-movies-since-star-wars/
+
+George Lucas' original 1977 Star Wars is surely the definitive space opera movie, but films like Dune: Part Two and Project Hail Mary are great too.
+---------
+
+# ‘Saturday Night Live UK’s Biggest Season 1 Surprise Isn’t the Show Itself
+
+TV Features, Saturday Night Live, Saturday Night Live UK, Lorne Michaels, Peacock
+
+Sat, 20 Jun 2026 16:44:14 GMT
+
+https://collider.com/saturday-night-live-uk-jack-shep-breakout-star-screen-time-tiktok-comedy-opinion/
+
+SNL UK's Jack Shep led Season 1 in screen time, proving TV should take TikTok-born comedy talent seriously for its shows.
+---------
+
+# 20 Years Later, This Batman Movie’s Real Villain Still Feels Terrifyingly Familiar
+
+Movie Features, The Dark Knight, Batman Begins, Christian Bale, Christopher Nolan
+
+Sat, 20 Jun 2026 16:36:14 GMT
+
+https://collider.com/batman-begins-20-years-later-gotham-real-villain/
+
+Batman Begins still stands out 20 years later for one reason: it makes Gotham's fear, corruption, and decay more compelling than Batman himself.
+---------
+
+# 10 Greatest '80s Movie Soundtracks of All Time
+
+Movie, 80s, Top Gun, Back to the Future, Footloose
+
+Sat, 20 Jun 2026 16:18:14 GMT
+
+https://collider.com/best-80s-movie-soundtracks-ranked/
+
+Top Gun, Back to the Future, Dirty Dancing, and The Breakfast Club feature exceptional soundtracks, but which '80s movie is considered the greatest?
+---------
+
+# Apple TV’s Criminally Underrated Sci-Fi Series Quietly Returns to Streaming Charts
+
+TV News, Colin Farrell, Sugar, Apple TV, Sci-Fi
+
+Sat, 20 Jun 2026 16:15:14 GMT
+
+https://collider.com/sugar-apple-tv-sci-fi-streaming-charts-colin-farrell/
+
+Sugar, Apple’s Colin Farrell-led sci-fi mystery series, has returned to the streaming charts with impressive new momentum.
+---------
+
+# This HBO Dystopian Sci-Fi Miniseries Is the Perfect Weekend Binge-Watch
+
+Features, Years and Years, HBO Max, Russell T. Davies, Sci-Fi
+
+Sat, 20 Jun 2026 17:30:20 GMT
+
+https://movieweb.com/years-and-years-hbo-sci-fi-miniseries/
+
+HBO and the BBC's sci-fi miniseries 'Years and Years', written by Russell T Davies, is a gripping dystopian watch and weirdly predicts the future.
+---------
+
+# These Bollywood Movies Are Now Classics
+
+Movie Lists, International
+
+Sat, 20 Jun 2026 17:00:20 GMT
+
+https://movieweb.com/bollywood-movies-now-classic/
+
+These Bollywood films have become timeless classics, bringing drama, song, romance, and thrills.
+---------
+
+# 'The Beekeeper' Director's WWII Action Hit Is Being Discharged From Streaming
+
+Movie News, Fury, Pluto TV, Coming/Leaving Streaming, Action
+
+Sat, 20 Jun 2026 17:00:19 GMT
+
+https://movieweb.com/fury-action-war-leaving-free-streaming-pluto-july-2026/
+
+Before 'The Heart of the Beast,' Brad Pitt and David Ayer's Second World War action movie 'Fury' is being removed from free streaming on Pluto TV.
+---------
+
+# George Lucas's Cult Classic Movie Mixes 'Star Wars' With Dark Fantasy
+
+Features, Willow, George Lucas, Star Wars, Fantasy
+
+Sat, 20 Jun 2026 17:00:19 GMT
+
+https://movieweb.com/george-lucas-willow-cult-classic-star-wars/
+
+This George Lucas project feels like if 'Star Wars' was rewritten with a new cast of characters in the fantasy genre.
+---------
+
 # The Boys Returns For One Last Laugh In A Surprise Release
 
 TV, The Boys
