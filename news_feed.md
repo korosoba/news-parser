@@ -1,3 +1,300 @@
+# Tom Holland's Spider-Man: Brand New Day Comments Make All Our Wildest Crossover Theories More Likely
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 20 Jun 2026 20:45:21 GMT
+
+https://screenrant.com/tom-holland-spider-man-brand-new-day-comment-crossover-theories/
+
+The odds of Spider-Man: Brand New Day's various crossover theories coming true just got far more likely thanks to one interesting story reveal.
+---------
+
+# Marvel Officially Unveils Knights Of Doom Ahead Of Avengers: Doomsday
+
+Gaming, Marvel Tokon: Fighting Souls, Marvel, Avengers: Doomsday, Triple-A Games, PC
+
+Sat, 20 Jun 2026 20:41:10 GMT
+
+https://screenrant.com/marvel-tokon-knights-of-doom-avengers-doomsday-synergy/
+
+Doctor Doom won't be hitting the silver screen until this December, but Marvel has other plans in store for the villain before Avengers: Doomsday.
+---------
+
+# Cyberpunk 2077: What "Choom" Means & Where It Comes From
+
+Game Features, Cyberpunk 2077, PC
+
+Sat, 20 Jun 2026 20:30:22 GMT
+
+https://screenrant.com/cyberpunk-2077-choom-definition-slang-friend-buddy-pal/
+
+Choom is a slang term in Cyberpunk 2077 which can be difficult to precisely translate without an exploration of creator Mike Pondsmith’s lore.
+---------
+
+# Kagurabachi Is Shonen Jump's Naruto Replacement, And Its Anime Is Going To Be Huge
+
+Anime, Kagurabachi, Naruto
+
+Sat, 20 Jun 2026 20:30:21 GMT
+
+https://screenrant.com/kagurabachi-naruto-replacement-shonen-jump/
+
+The next Naruto is here; believe it.
+---------
+
+# Apple TV’s Most Disturbing Comedy Is Only Going To Get Better
+
+Streaming TV, Widow's Bay
+
+Sat, 20 Jun 2026 20:30:21 GMT
+
+https://screenrant.com/apple-tv-widows-bay-comedy-returning-better/
+
+Apple TV's horror-comedy series did a great job in its first season, but it's all set up to turn up the volume in every subsequent installment.
+---------
+
+# Avengers: Doomsday Has Lots Of Surprises - But The Russos Shouldn't Rely On Them
+
+Movies, Avengers: Doomsday
+
+Sat, 20 Jun 2026 20:30:21 GMT
+
+https://screenrant.com/avengers-doomsday-surprises-russo-brothers-op-ed/
+
+The upcoming film from Marvel Studios will have many surprises according to the directors, but the film should avoid becoming overly reliant on them.
+---------
+
+# After 43 Years, Jason Todd Finally Joins The Teen Titans, But It's A Big Mistake
+
+DC Comics, Jason Todd, Red Hood, Teen Titans
+
+Sat, 20 Jun 2026 20:00:20 GMT
+
+https://screenrant.com/jason-todd-joins-teen-titans-mistake/
+
+Red Hood has been relegated to babysitter status in the new Teen Titans. Will his fans go along with it?
+---------
+
+# Netflix's 3-Part Coming-Of-Age Series Returns With A Movie In Just 1 Month
+
+Streaming TV, Masked Recs
+
+Sat, 20 Jun 2026 20:00:20 GMT
+
+https://screenrant.com/heartstopper-movie-return-netflix-one-month/
+
+Netflix's hit young adult romance show based on a graphic novel series is about to conclude with a movie, making now the perfect time to catch up.
+---------
+
+# GTA 6 Trailer 3 Has Fans All Saying The Same Thing
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, Triple-A Games
+
+Sat, 20 Jun 2026 20:00:20 GMT
+
+https://screenrant.com/gta-6-trailer-3-date-fan-reaction-june-marketing/
+
+Grand Theft Auto 6 Trailer 3 has the potential to be right around the corner, literally, depending on when pre-release marketing truly begins.
+---------
+
+# 3 Disney Movies/Shows That Could Reveal Trailers at D23 This Summer
+
+Movies, D23
+
+Sat, 20 Jun 2026 20:00:20 GMT
+
+https://screenrant.com/disney-movies-shows-could-get-trailers-d23-2026/
+
+D23 returns to Anaheim this August — here are three projects we're hoping get featured.
+---------
+
+# HBO’s 3-Season Downton Abbey Replacement Is Officially Returning in 2026
+
+TV, The Gilded Age
+
+Sat, 20 Jun 2026 20:39:25 GMT
+
+https://www.cbr.com/hbo-the-gilded-age-season-4-release-window/
+
+HBO's hit period drama is officially returning with new episodes this Fall, and fans just got a sneak-peek at the making of Season 4.
+---------
+
+# Jujutsu Kaisen vs Hunter x Hunter: Which Power System Is More Creative?
+
+Anime, Jujutsu Kaisen, Hunter x Hunter
+
+Sat, 20 Jun 2026 20:15:14 GMT
+
+https://www.cbr.com/jujutsu-kaisen-hunter-x-hunter-best-anime-power-systems/
+
+Jujutsu Kaisen has one of the most creative power systems ever, but some still argue that Hunter X Hunter's Nen will never be surpassed.
+---------
+
+# Hacks Star Teases HBO Series Spinoff: “I’d Literally Show Up Anytime”
+
+TV, Hacks
+
+Sat, 20 Jun 2026 20:14:22 GMT
+
+https://www.cbr.com/hacks-megan-stalter-teases-hbo-series-spinoff/
+
+Hacks star says she would "literally show up anytime" for a spinoff series, and fans "need to be more aggressive" in petitioning for it.
+---------
+
+# What's Coming to Hulu in July 2026? Everything Arriving Next Month
+
+Movies, Hulu
+
+Sat, 20 Jun 2026 20:01:15 GMT
+
+https://www.cbr.com/what-coming-hulu-in-july-2026-full-list/
+
+Even though it's not fall yet, Hulu decided July is Twilight time.
+---------
+
+# After 31 Years, Dragon Ball Reveals Alternative Ending to Gohan vs Super Buu
+
+Anime, Dragon Ball, Dragon Ball Z, Shonen Jump
+
+Sat, 20 Jun 2026 20:01:15 GMT
+
+https://www.cbr.com/dragon-ball-gohan-vs-super-buu-new-ending/
+
+Dragon Ball fans just got a look back at one of the most unexpected pieces of official art that the franchise has ever produced.
+---------
+
+# DC’s Elseworlds Is Becoming the Blueprint for Modern Superhero Stories
+
+Comics, DC Comics, Absolute Batman, DC Elseworlds
+
+Sat, 20 Jun 2026 20:01:15 GMT
+
+https://www.cbr.com/absolute-universe-dc-elseworlds-future-of-superhero-storytelling/
+
+While DC has achieved blockbuster success with the Absolute universe, its 37-year-old Elseworlds imprint has much better potential for its future.
+---------
+
+# House of the Dragon Stars Jokingly Call Kit Harington ‘Weak’ for This One Battle Scene Request
+
+CBR Exclusives, House of the Dragon, Game Of Thrones, HBO Max
+
+Sat, 20 Jun 2026 19:31:56 GMT
+
+https://www.cbr.com/house-of-the-dragon-kit-harington-safe-word-battle-of-gullet/
+
+House of the Dragon stars Steve Toussaint and Abubakar Salim discuss the Battle of the Gullet and Kit Harington's safe word.
+---------
+
+# 5 Pirate Movies Better Than Pirates of the Caribbean
+
+Movies, Pirates of the Caribbean
+
+Sat, 20 Jun 2026 19:31:15 GMT
+
+https://www.cbr.com/pirate-movies-better-than-pirates-of-the-caribbean-list/
+
+Captain Jack Sparrow will always be a pop culture icon, but these five pirate movies prove the high seas are filled with plenty of other stories.
+---------
+
+# 10 Isekai Anime Without a Single Flaw
+
+Anime, Isekai
+
+Sat, 20 Jun 2026 19:15:14 GMT
+
+https://www.cbr.com/isekai-anime-flawless-start-to-finish/
+
+Anime's isekai genre is heavily controversial, and often criticized, but there are some series that manage to be flawless from start to finish.
+---------
+
+# Prime Video’s 8-Part Detective Masterpiece Quietly Becomes a Global Hit
+
+TV News, Prime Video, True Crime, Ali Fazal, Mystery
+
+Sat, 20 Jun 2026 20:30:14 GMT
+
+https://collider.com/raakh-prime-video-streaming-success-june-2026/
+
+Prime Video's new detective thriller series Raakh, starring a Fast & Furious franchise alum, is taking the streaming world by storm. Find out more.
+---------
+
+# 10 Most Thrilling Movies of All Time
+
+Movie, Jaws, North By Northwest, The Dark Knight, The Raid: Redemption
+
+Sat, 20 Jun 2026 20:11:15 GMT
+
+https://collider.com/most-thrilling-movies-all-time-ranked/
+
+The most thrilling movies of all time include classics like Jaws and North by Northwest, alongside lesser-known films like The Man Who Stole the Sun.
+---------
+
+# 'Bosch's Titus Welliver Officially Returns to Crime Thrillers on July 12
+
+TV News, The Westies, J.K. Simmons, Titus Welliver, Bosch
+
+Sat, 20 Jun 2026 20:00:14 GMT
+
+https://collider.com/titus-welliver-amazon-mgm-plus-the-westies-streaming-release-date-july-12-2026/
+
+Titus Welliver has been tapped to star in a brand-new Amazon crime thriller with J.K. Simmons which is officially coming soon. Read on for details.
+---------
+
+# This 2023 Fantasy Video Game Was the First Masterpiece To Win All 5 Major Game of the Year Awards
+
+Video Games, Baldur's Gate 3, Video Game, Larian Studios, Fantasy
+
+Sat, 20 Jun 2026 19:36:15 GMT
+
+https://collider.com/baldurs-gate-3-fantasy-video-game-masterpiece-game-of-the-year/
+
+Already a classic in the making, Baldur's Gate 3 was the first game ever to win all five Game of the Year awards, which only speaks to its quality.
+---------
+
+# Forget 'Widow's Bay,' This Criminally Overlooked Horror Series Is the Perfect Weekend Binge
+
+Movie Features, Widow's Bay, Wishmaster, Prime Video, Apple TV
+
+Sat, 20 Jun 2026 19:17:14 GMT
+
+https://collider.com/wishmaster-series-guilty-pleasure-horror-franchise/
+
+Widow's Bay might be more highly rated, but the delightfully campy and increasingly goofy Wishmaster series should be your binge-watch of choice.
+---------
+
+# The "Greatest Western Ever Made" Is Being Cut From Streaming
+
+Movie News, The Good, the Bad and the Ugly, Pluto TV, Coming/Leaving Streaming, A Fistful of Dollars, Western
+
+Sat, 20 Jun 2026 20:00:19 GMT
+
+https://movieweb.com/the-good-the-bad-and-the-ugly-best-western-leaving-free-streaming-pluto-july-2026/
+
+The best western of all time, Clint Eastwood's 'The Good, the Bad, and the Ugly,' is leaving free streaming on Pluto TV in July 2026.
+---------
+
+# George R.R. Martin Hits a Regrettable 'Game of Thrones' Milestone Tomorrow
+
+Features, Game Of Thrones, George R.R. Martin
+
+Sat, 20 Jun 2026 19:45:19 GMT
+
+https://movieweb.com/george-r-r-martin-15-years-winds-of-winter-milestone/
+
+'The Winds of Winter' is notoriously late, but tomorrow marks a specific milestone that will make fans groan.
+---------
+
+# Forget James Bond, This Iconic British Spy Is Making His Comeback First
+
+Features, James Bond, James Bond 26, Austin Powers, Austin Powers 4, Thriller, Comedy
+
+Sat, 20 Jun 2026 19:30:20 GMT
+
+https://movieweb.com/james-bond-austin-powers-casting-nightmare-comeback/
+
+Amazingly, 'Austin Powers 4' has been announced before the next James Bond actor, further highlighting the spy thriller franchise's casting struggles.
+---------
+
 # Crunchyroll Just Shadowdropped Two Of 2025's Best Anime Movies
 
 Anime, Crunchyroll, Masked Recs
