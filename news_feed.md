@@ -1,3 +1,289 @@
+# Crunchyroll Just Shadowdropped Two Of 2025's Best Anime Movies
+
+Anime, Crunchyroll, Masked Recs
+
+Sat, 20 Jun 2026 19:00:22 GMT
+
+https://screenrant.com/crunchyroll-zombie-land-dragon-maid-movies-streaming/
+
+Crunchyroll just got better for anime.
+---------
+
+# 8 Gritty Westerns Better Than Justified
+
+Streaming TV, Western, Justified
+
+Sat, 20 Jun 2026 19:00:22 GMT
+
+https://screenrant.com/western-shows-better-than-justified/
+
+Justified is a perfectly cast neo-Western with some major twists, but it is not the only fantastic gritty Western TV series, and some are even better.
+---------
+
+# MCU Phase Zero Explained: What The Russos Are Really Setting Up
+
+Movies, Originals
+
+Sat, 20 Jun 2026 19:00:22 GMT
+
+https://screenrant.com/video/mcu-phase-zero-explained-what-the-russos-are-really-setting-up/
+
+Explore how the Russo Brothers’ mysterious MCU Phase Zero concept could reshape the Multiverse Saga, set up Avengers: Doomsday and Secret Wars, and reveal Marvel’s long-term future after Phase 6.
+---------
+
+# Ocarina Of Time Remake Might Have The Most Disgusting Zelda Dungeon Ever
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda, Triple-A Games
+
+Sat, 20 Jun 2026 19:00:22 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-disgusting-dungeon/
+
+Ocarina of Time is getting a new, more detailed coat of paint with its upcoming remake, and I just know a Nintendo artist has been doing nasty work.
+---------
+
+# Apple TV's Emmy-Nominated Sci-Fi Return Skyrockets To Top 3 Streaming Charts In Just 1 Day
+
+TV, Masked Recs, Apple TV
+
+Sat, 20 Jun 2026 18:41:37 GMT
+
+https://screenrant.com/apple-tv-sugar-season-2-june-streaming-charts-return-success/
+
+Riding a wave of momentum and a reliably great leading performance, Apple TV's returning sci-fi drama series is already a Top 10 hit in the U.S.
+---------
+
+# Every Game Of Thrones Character That Was Recast (& Why)
+
+Classic TV, Game Of Thrones
+
+Sat, 20 Jun 2026 18:30:22 GMT
+
+https://screenrant.com/game-thrones-characters-recast-new-actors-every-why/
+
+Many Game of Thrones characters were recast across its 8 seasons, including Daario Naharis and The Mountain for various reasons.
+---------
+
+# It's Official, Star Wars Will Launch A Brand-New Era In 2027
+
+Movies, Star Wars
+
+Sat, 20 Jun 2026 18:30:21 GMT
+
+https://screenrant.com/star-wars-starfighter-launch-new-era-after-rise-of-skywalker/
+
+To celebrate the franchise's incredible 50th anniversary, Star Wars and Lucasfilm will launch an entirely new era of the galaxy's timeline in 2027.
+---------
+
+# House Of The Dragon's Missing Velaryon Book Character's Future Appearance Potential Addressed By Star
+
+Exclusive, House of the Dragon
+
+Sat, 20 Jun 2026 18:26:30 GMT
+
+https://screenrant.com/house-of-the-dragon-mailda-of-hull-future-response-abubakar-salim/
+
+EXCLUSIVE: House of the Dragon is missing one key person: a Velaryon character from the novel, and their potential appearance is addressed by a star.
+---------
+
+# Hugh Jackman's New R-Rated Thriller Earns His Lowest Box Office Debut In 5 Years
+
+Movies, The Death of Robin Hood, Box Office
+
+Sat, 20 Jun 2026 18:18:49 GMT
+
+https://screenrant.com/the-death-of-robin-hood-domestic-box-office-debut-hugh-jackman-comparison/
+
+Hugh Jackman's new R-rated thriller is projected to earn the lowest debut of any of his wide release movies since a major 2021 box office bomb.
+---------
+
+# Cyclops Assembles the X-Men in Marvel Studios' Long-Awaited Mutant Comeback
+
+Streaming TV, Masked Recs
+
+Sat, 20 Jun 2026 18:15:21 GMT
+
+https://screenrant.com/x-men-97-season-2-cyclops-assembles-team-fight-apocalypse/
+
+For the first time since they arrived on screens, Marvel is finally showcasing why Cyclops is the leader the X-Men need when Xavier isn't around.
+---------
+
+# Multiple Hit DC Movies Return Ahead of Supergirl's Box Office Run
+
+Movies, Supergirl, Superman, DCU, DC Comics
+
+Sat, 20 Jun 2026 19:00:14 GMT
+
+https://www.cbr.com/dc-comics-movies-plex-release-ahead-of-supergirl/
+
+Plex is giving DC fans more than 40 different DC titles at a steep discount ahead of the release of Supergirl starring Milly Alcock.
+---------
+
+# Joe Russo Reveals Why Pitching Civil War To Robert Downey Jr. Made Him Nervous
+
+CBR Exclusives, Marvel, Marvel Comics, MCU, Avengers, Avengers: Doomsday, Avengers: Doomsday (2026), Avengers: Endgame, Avengers: Infinity War, Captain America: Civil War
+
+Sat, 20 Jun 2026 18:30:14 GMT
+
+https://www.cbr.com/joe-russo-has-confession-about-civil-war-pitch-to-robert-downey-jr/
+
+Captain America: Civil War almost didn't happen, and now we know why.
+---------
+
+# 5 Anime Heroes Strong Enough to Stop Sukuna
+
+Anime, Jujutsu Kaisen, One-Punch Man
+
+Sat, 20 Jun 2026 18:15:14 GMT
+
+https://www.cbr.com/anime-heroes-stronger-than-sukuna/
+
+The strongest heroes in anime history would effortlessly defeat JJK's Sukuna.
+---------
+
+# Netflix's 8-Part The Blacklist Replacement Shoots to No. 1 With 1.3 Billion Minutes Viewed in 1 Week
+
+TV, Nemesis
+
+Sat, 20 Jun 2026 18:01:16 GMT
+
+https://www.cbr.com/netflix-nemesis-crime-nielsen-charts-may-2026/
+
+The show was an instant success, and the new viewership numbers prove that.
+---------
+
+# Persona Officially Reveals Major New Fall Release for 30th Anniversary
+
+Anime, Persona, Shin Megami Tensei, Atlus (1)
+
+Sat, 20 Jun 2026 18:01:16 GMT
+
+https://www.cbr.com/persona-30th-anniversary-cardfight-vanguard-reveal/
+
+As part of the video game franchise's 30th anniversary, Atlus' Persona series will soon receive its own Cardfight!! Vanguard deck later this year.
+---------
+
+# DC Comics' Absolute Victor Zsasz Confirmed
+
+Comics, Absolute Batman, Batman
+
+Sat, 20 Jun 2026 18:01:16 GMT
+
+https://www.cbr.com/absolute-batman-21-confirms-absolute-victor-zsasz/
+
+The Absolute Universe's take on this Batman villain is certainly unexpected.
+---------
+
+# Hugh Jackman’s Criminally Underrated Music Biopic Is a Netflix Hit
+
+Movie News, Song Sung Blue, Hugh Jackman, Kate Hudson, Netflix
+
+Sat, 20 Jun 2026 19:00:14 GMT
+
+https://collider.com/hugh-jackman-song-sung-blue-streaming-success-netflix-june-2026/
+
+Song Sung Blue, Hugh Jackman's post-Wolverine Oscar-nominated movie with Kate Hudson, is a hit on streaming. Find out more here.
+---------
+
+# Prime Video's Forgotten 12-Episode Superhero Sitcom Is the Perfect Weekend Binge
+
+TV Features, Powerless, Sitcom, Vanessa Hudgens, Alan Tudyk
+
+Sat, 20 Jun 2026 18:38:14 GMT
+
+https://collider.com/powerless-prime-video-superhero-sitcom/
+
+NBC's overlooked DC sitcom, Powerless, follows the misadventures of a team creating gadgets for everyday heroes.
+---------
+
+# Netflix’s 3-Part Superhero Series Was So Good, It United a Divided Fandom
+
+TV Features, Daredevil, Charlie Cox, Vincent D'Onofrio, Netflix
+
+Sat, 20 Jun 2026 18:27:16 GMT
+
+https://collider.com/daredevil-netflix-good-united-fandom/
+
+Netflix's Daredevil revolutionized the Marvel superhero genre with its gritty storytelling, complex characters, and thematic depth.
+---------
+
+# Stranger Things Made “Purple Rain” Hurt Even More | Collider BTS
+
+TV, Stranger Things
+
+Sat, 20 Jun 2026 18:15:14 GMT
+
+https://collider.com/video/stranger-things-made-purple-rain-hurt-even-more-collider-bts/
+
+Discover how Stranger Things transformed Prince’s iconic “Purple Rain” into an even more emotional moment, as the cast and creators reveal the behind-the-scenes choices that made the song’s impact unforgettable in the hit Netflix series.
+---------
+
+# Apple TV’s 2-Part Sci-Fi Masterpiece Officially Returns Sooner Than You Think
+
+TV News, Dark Matter, Joel Edgerton, Jennifer Connelly, Apple TV
+
+Sat, 20 Jun 2026 18:00:15 GMT
+
+https://collider.com/apple-tv-dark-matter-season-2-release-date-august-28-2026/
+
+Dark Matter, Apple TV's multiversal sci-fi masterpiece, returns to streaming soon. Find out everything you should know.
+---------
+
+# Every 2026 Miniseries, Ranked
+
+TV, TV Miniseries, Spider-Noir, Half Man, Malcolm in the Middle: Life's Still Unfair
+
+Sat, 20 Jun 2026 17:58:15 GMT
+
+https://collider.com/miniseries-2026-ranked/
+
+Find out where His & Hers, Spider-Noir, Malcolm in the Middle: Life's Still Unfair, Half Man, and more fall in our ranking of every 2026 miniseries.
+---------
+
+# Apple TV's Harrison Ford Thriller Remake No One Told You About
+
+Features, The Mosquito Coast, Harrison Ford, Apple TV, Thriller
+
+Sat, 20 Jun 2026 19:00:19 GMT
+
+https://movieweb.com/apple-tv-harrison-ford-the-mosquito-coast-remake/
+
+Apple TV's remake of Harrison Ford's '80s thriller movie of the same name is a near-perfect 17-episode show you'll love binge-watching.
+---------
+
+# 'Toy Story 5' 10 Biggest Easter Eggs & References
+
+Movie Lists, Toy Story 5
+
+Sat, 20 Jun 2026 18:45:19 GMT
+
+https://movieweb.com/toy-story-5-biggest-easter-eggs-references/
+
+After 31 years, there is plenty of material from past 'Toy Story' films to reference, and the movie squeezes some pop culture nods in, too.
+---------
+
+# Forget 'Marshals,’ This "Taylor Sheridan-Esque" Series Is the Perfect Replacement
+
+Features, Taylor Sheridan, Strike Back, Marshals, Comparison Recommendation
+
+Sat, 20 Jun 2026 18:30:20 GMT
+
+https://movieweb.com/strike-back-marshals-taylor-sheridan-replacement/
+
+'Marshals' may be a beloved Taylor Sheridan action thriller TV series, but another show will appeal to fans.
+---------
+
+# Steven Spielberg's Most Personal Movie Is Still His Most Underrated
+
+Features, The Fabelmans, Steven Spielberg
+
+Sat, 20 Jun 2026 18:00:20 GMT
+
+https://movieweb.com/the-fabelmans-steven-spielberg-personal-underrated/
+
+Steven Spielberg has directed some of the most famous movies ever, from 'E.T.' to 'Saving Private Ryan,' but his most personal film is the best.s
+---------
+
 # Lost’s Hurley & Sawyer Reunite On A Plane 16 Years After The Series Finale
 
 TV, Lost
