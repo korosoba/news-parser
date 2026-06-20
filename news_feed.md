@@ -1,3 +1,344 @@
+# Bloodborne Officially Returns This Month With Anniversary Release
+
+Gaming, Bloodborne
+
+Sat, 20 Jun 2026 04:45:19 GMT
+
+https://screenrant.com/bloodborne-10th-anniversary-official-return-june-2026/
+
+Laced Records' Bloodborne 10th Anniversary Vol. I & II Exclusive Edition X3LP pays tribute to the iconic game's soundtrack.
+---------
+
+# Steam Drops "Beautiful" New Free Game With 100% Positive Reviews
+
+Gaming, Steam
+
+Sat, 20 Jun 2026 04:30:20 GMT
+
+https://screenrant.com/steam-free-game-robot-hospice/
+
+This free Steam game turns saying goodbye into a moving, cozy experience you'll remember.
+---------
+
+# Hunter x Hunter's Latest Release Proves 2026 Is The Year Of Its Comeback
+
+Anime, Hunter x Hunter, Hunter X Hunter
+
+Sat, 20 Jun 2026 04:00:34 GMT
+
+https://screenrant.com/hunter-x-hunter-new-anime-nen-survivor-special-2026/
+
+Hunter x Hunter's newly-revealed anime footage for 2026 marked the series' return after a 12-year hiatus since the last episode aired in 2014.
+---------
+
+# Star Wars Outlaws Yours To Download Free For A Limited Time
+
+Gaming, Star Wars Outlaws
+
+Sat, 20 Jun 2026 04:00:33 GMT
+
+https://screenrant.com/star-wars-outlaws-free-download-limited-time-ps-plus-psa/
+
+Experience the first open-world Star Wars game for free with a limited-time offer on PlayStation Plus.
+---------
+
+# Disclosure Day Is The Alien Sci-Fi Story Zack Snyder Tried To Tell 13 Years Ago
+
+Music, Disclosure Day, Man of Steel, Steven Spielberg, Zack Snyder
+
+Sat, 20 Jun 2026 03:57:50 GMT
+
+https://screenrant.com/spielberg-disclosure-day-comparison-to-zack-snyder-man-of-steel/
+
+Spielberg's Disclosure Day is all about exploring the ramifications of extraterrestrial life on Earth, something Zack Snyder tried to do 13 years ago.
+---------
+
+# All Villains In Vox Machina's "Unalive Five" And Their Powers Explained
+
+Streaming TV, The Legend of Vox Machina
+
+Sat, 20 Jun 2026 03:35:21 GMT
+
+https://screenrant.com/the-legend-of-vox-machina-unalive-five-members-powers/
+
+The Legend of Vox Machina heroes are facing the "Unalive Five," a group of villains serving the Whispered One and who just won't stay dead.
+---------
+
+# 2026’s Best Detective Thriller So Far Is The Closest Bosch Replacement In Years
+
+Streaming TV, Masked Recs
+
+Sat, 20 Jun 2026 03:12:39 GMT
+
+https://screenrant.com/detective-hole-bosch-replacement-netflix/
+
+The best detective crime thriller of 2026 seems to be the closest we have gotten to getting a near-perfect Bosch replacement in the last few years.
+---------
+
+# 15 Best Seeds For Base Building In Minecraft 1.21
+
+Gaming, Minecraft, PC, Triple-A Games
+
+Sat, 20 Jun 2026 03:00:24 GMT
+
+https://screenrant.com/minecraft-best-seeds-base-building/
+
+Building a cool base in Minecraft is made much better with a great world seed, which can provide amazing landscapes for you to make your home.
+---------
+
+# Netflix's Stranger Things Replacement Is A 10/10 Horror Masterpiece Begging For A Weekend Binge
+
+Anime, Netflix, Masked Recs
+
+Sat, 20 Jun 2026 03:00:22 GMT
+
+https://screenrant.com/sweet-home-netflix-stranger-things-replacement-masterpiece/
+
+One of the finest Netflix-original horror dramas is easily one of its most bingeworthy hits nearly six years after its debut.
+---------
+
+# Netflix’s 96% RT Dystopian Thriller Already Beat Silo & Fallout At Their Own Game
+
+Streaming TV, Masked Recs
+
+Sat, 20 Jun 2026 03:00:22 GMT
+
+https://screenrant.com/netflix-eternaut-silo-fallout-beats-dystopian-game/
+
+Netflix’s is the streaming home of an epic dystopian thriller that not only boasts a 96% RT score but also beats Silo & Fallout at their own game.
+---------
+
+# Sports Anime That Perfected the Underdog Formula
+
+Anime, Haikyu!!, Slam Dunk
+
+Sat, 20 Jun 2026 03:46:14 GMT
+
+https://www.cbr.com/sports-anime-perfected-underdog-formula/
+
+Few storytelling formulas are as satisfying as an underdog's rise, and these anime execute it flawlessly.
+---------
+
+# 10 War Movies Without a Single Flaw
+
+Movies, War
+
+Sat, 20 Jun 2026 03:46:14 GMT
+
+https://www.cbr.com/best-war-movie-without-any-flaws-list/
+
+These films are considered the pinnacle of the war genre because they completely reject the standard good-versus-evil formula.
+---------
+
+# Every TV Show Where Jensen Ackles Plays a Villain
+
+TV, Jensen Ackles, The Boys, Smallville
+
+Sat, 20 Jun 2026 03:30:09 GMT
+
+https://www.cbr.com/jensen-ackles-villain-tv-roles-list/
+
+Jensen Ackles is best known for playing demon hunter Dean Winchester on Supernatural, but the actor also has a track record playing villainous roles.
+---------
+
+# A24's Death Stranding is the Adventure Movie of the Decade
+
+Movies, Death Stranding
+
+Sat, 20 Jun 2026 03:15:13 GMT
+
+https://www.cbr.com/a24-death-stranding-adventure-movie-of-the-decade/
+
+A24 has quickly become a premier studio in Hollywood, and its upcoming adventure film can be the movie of the decade.
+---------
+
+# 25 Years Ago, This Original Xbox Title Changed Gaming Forever
+
+Games, Xbox (Original), Halo: Combat Evolved, Halo
+
+Sat, 20 Jun 2026 03:15:13 GMT
+
+https://www.cbr.com/halo-retrospective-changed-gaming-forever-original-xbox/
+
+No other original Xbox title came to define the console, and redefine gaming, like this 2001 FPS title.
+---------
+
+# Magical Girl Anime That Owe Everything to Sailor Moon
+
+Anime, Sailor Moon, Pretty Cure
+
+Sat, 20 Jun 2026 02:45:16 GMT
+
+https://www.cbr.com/magical-girl-anime-indebted-to-sailor-moon/
+
+The success of Sailor Moon helped establish many of the conventions that magical girl anime still use today.
+---------
+
+# It's Official, Warner Bros.' Shatter Me Adaptation Is Already The YA Movie Event of the Decade
+
+Movies, Sci-Fi
+
+Sat, 20 Jun 2026 02:40:14 GMT
+
+https://www.cbr.com/warner-bros-shatter-me-ya-sci-fi-movie-adaptation/
+
+One of the biggest young adult sci-fi book series is coming to the big screen for the very first time.
+---------
+
+# 10 Best Pokémon Games for Adults, Ranked
+
+Games, Pokemon, Nintendo, Nintendo Switch
+
+Sat, 20 Jun 2026 02:16:16 GMT
+
+https://www.cbr.com/best-pokemon-games-for-adults-list/
+
+From Emerald's brutal Battle Frontier to Platinum's competitive legacy, these are the Pokémon games adult fans need to play.
+---------
+
+# 10 Perfect '90s Anime Most Modern Fans Have Never Seen
+
+Anime, Martian Successor Nadesico, Now and Then, Here and There
+
+Sat, 20 Jun 2026 02:00:26 GMT
+
+https://www.cbr.com/perfect-90s-anime-forgotten-hidden-gems-list/
+
+The 1990s have produced numerous timeless anime classics, yet many modern fans have never even heard of these forgotten masterpieces.
+---------
+
+# 10 Best Martian Manhunter Comics to Read After Absolute Martian Manhunter
+
+Comics, DC Comics, Martian Manhunter
+
+Sat, 20 Jun 2026 02:00:26 GMT
+
+https://www.cbr.com/best-martian-manhunter-comics-to-read-after-absolute-martian-manhunter/
+
+DC's second most popular alien superhero has plenty of great comics outside the Absolute Universe.
+---------
+
+# 10 Fantasy Books That Will Keep You Hooked From Start to Finish
+
+Movie, Books, Fantasy, George R.R. Martin, A Knight Of The Seven Kingdoms
+
+Sat, 20 Jun 2026 04:08:13 GMT
+
+https://collider.com/fantasy-books-hooked-start-to-finish/
+
+From Empire of the Vampire to King of Sorrows, these brilliant fantasy books are so fascinating that they'll keep you hooked from beginning to end.
+---------
+
+# Netflix’s 7-Part Action-Packed Thriller Is the Perfect Weekend Binge for ‘Jack Ryan’ Fans
+
+TV Features, Man on Fire, Tom Clancy's Jack Ryan, Netflix, Yahya Abdul-Mateen II
+
+Sat, 20 Jun 2026 03:58:14 GMT
+
+https://collider.com/man-on-fire-netflix-action-thriller-perfect-binge-jack-ryan-fans/
+
+Netflix's Man on Fire is a wild ride through the dark depths of vengeance, starring Yahya Abdul-Mateen II as the unrelenting John Creasy.
+---------
+
+# ‘Every Year After’s Finale Twist Just Set Up the Best Romance for Season 2
+
+TV Features, Every Year After, Prime Video, Carley Fortune, Romance
+
+Sat, 20 Jun 2026 03:43:18 GMT
+
+https://collider.com/every-year-after-finale-season-2-charlie-heart-attack-one-golden-summer/
+
+Every Year After may have fooled non-book readers with a potential fatality, but book readers know what comes next for Charlie.
+---------
+
+# 10 Greatest Noir Thrillers of the Last 80 Years
+
+Movie, Film Noir, The Third Man, Thriller, Nightcrawler
+
+Sat, 20 Jun 2026 03:09:17 GMT
+
+https://collider.com/best-noir-thrillers-last-80-years-ranked/
+
+From The Long Goodbye to The Third Man, these are the best movies that combine the oppressive bleakness of film noir and the anxiety of the thriller.
+---------
+
+# 'Toy Story 5' Filmmakers Explain Taylor Swift's Role in the Pixar Sequel
+
+Interviews, Toy Story 5, Toy Story, Pixar, Taylor Swift
+
+Sat, 20 Jun 2026 02:46:13 GMT
+
+https://collider.com/toy-story-5-taylor-swift-song-i-knew-it-i-knew-you-jessie/
+
+The creatives behind Toy Story 5 break down story decisions involving Jessie, as well as how their collaboration with Taylor Swift came to be.
+---------
+
+# Before Taylor Sheridan’s ‘1923,’ Netflix’s 7-Part Miniseries Officially Changed the Western Genre
+
+TV Features, Netflix, Godless, Taylor Sheridan, Western
+
+Sat, 20 Jun 2026 02:44:44 GMT
+
+https://collider.com/taylor-sheridan-1923-replacement-series-godless-netflix/
+
+Godless helped redefine TV westerns years before 1923, blending brutal realism, powerful women, and an Emmy-winning cast.
+---------
+
+# Prime Video's 10-Part Detective Thriller Is So Good, Another Season Is Already on the Way
+
+TV Features, Ballard, Bosch, Maggie Q, Titus Welliver
+
+Sat, 20 Jun 2026 01:55:16 GMT
+
+https://collider.com/ballard-prime-video-detective-thriller-bosch-maggie-q/
+
+Bosch's spin-off, Ballard, is a standalone detective thriller that addresses toxic masculinity in police work on Prime Video.
+---------
+
+# 10 Movies From the Last 7 Years That Are Perfect From Start to Finish
+
+Movie, The Fabelmans, The Green Knight, Oppenheimer, Killers of the Flower Moon
+
+Sat, 20 Jun 2026 01:41:15 GMT
+
+https://collider.com/perfect-movies-last-7-years/
+
+Modern masterpieces like Killers of the Flower Moon, Oppenheimer, and The Father are all among the best, most perfect movies of the last 7 years.
+---------
+
+# 'House of the Dragon' Season 2 Recap: Everything To Remember Before HBO's Epic Fantasy Returns
+
+TV Features, House of the Dragon, HBO, HBO Max, Fantasy
+
+Sat, 20 Jun 2026 01:14:15 GMT
+
+https://collider.com/house-of-the-dragon-season-2-recap-hbo/
+
+We recap intense political and dragon-fueled battles of House of the Dragon Season 2, setting the stage for the epic fantasy series' return.
+---------
+
+# ‘The Lincoln Lawyer’ Creator Finally Breaks Silence on Ending the Series [Exclusive]
+
+TV News, The Lincoln Lawyer, Netflix, Michael Connelly, Bosch
+
+Sat, 20 Jun 2026 01:00:15 GMT
+
+https://collider.com/the-lincoln-lawyer-season-5-ending-netflix-ted-humphrey/
+
+The Lincoln Lawyer creator Ted Humphrey speaks about the hit Netflix series ending after its fifth season and the future of the franchise.
+---------
+
+# 9 Great Miniseries With 4 Episodes or Less You Can Binge in One Night
+
+TV Lists
+
+Sat, 20 Jun 2026 02:00:32 GMT
+
+https://movieweb.com/miniseries-4-episodes-or-less-binge/
+
+Short on time? These TV shows are too, but that doesn't detract from their compelling stories that will keep you hooked from start to finish.
+---------
+
 # Dragon Striker Is Disney's Avatar Replacement, And It's 11 Episodes Of Pure Perfection
 
 TV, Dragon Striker, Disney
