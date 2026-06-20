@@ -1,3 +1,300 @@
+# The Boys Returns For One Last Laugh In A Surprise Release
+
+TV, The Boys
+
+Sat, 20 Jun 2026 16:11:26 GMT
+
+https://screenrant.com/the-boys-blooper-reel-surprise-release/
+
+The Boys are back again, and everyone has returned for one last laugh in a surprising and unexpected release from Prime Video following the finale.
+---------
+
+# Game Of Thrones' Mad King Prequel Will Show Robert Baratheon In His Prime
+
+Streaming TV, Game of Thrones, Game Of Thrones
+
+Sat, 20 Jun 2026 16:05:44 GMT
+
+https://screenrant.com/game-of-thrones-mad-king-prequel-robert-baratheon-prime/
+
+Game of Thrones' upcoming prequel, The Mad King, will depict the Usurper, Robert Baratheon, in his prime as he takes on the Targaryen dynasty.
+---------
+
+# Netflix's New Romance Overshadows A-List Movie With Near-Perfect Audience Rotten Tomatoes Score
+
+Movies, Masked Recs, Streaming Charts, Netflix
+
+Sat, 20 Jun 2026 16:01:50 GMT
+
+https://screenrant.com/voicemails-for-isabelle-audience-rotten-tomatoes-score/
+
+Netflix's new romance movie earns a near perfect Rotten Tomatoes audience score that trounces the score of their recent A-list rom-com hit.
+---------
+
+# New Chainsaw Man Trailer Leaves Fans With One Big Question For The Series' Future
+
+Anime, Chainsaw Man
+
+Sat, 20 Jun 2026 16:00:21 GMT
+
+https://screenrant.com/chainsaw-man-next-arc-anime-movie-question/
+
+Chainsaw Man has some explaining to do.
+---------
+
+# I Hope Kirk On Strange New Worlds Isn't Infected With Star Trek Movies’ Lazy Worf Syndrome
+
+TV, Star Trek, Star Trek: Strange New Worlds, Op-Ed
+
+Sat, 20 Jun 2026 16:00:21 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-kirk-worf-movies-lazy/
+
+James T. Kirk will appear in Star Trek: Strange New Worlds season 4, but there had better be a good reason he keeps coming aboard the USS Enterprise.
+---------
+
+# Stranger Things: The Vanishing Takes Us Back To The Upside Down
+
+Gaming, Stranger Things, Far Cry, PC
+
+Sat, 20 Jun 2026 16:00:21 GMT
+
+https://screenrant.com/stranger-things-the-vanishing-far-cry-crossover/
+
+Stranger Things: The Vanishing is a unique adventure that most fans probably don't remember, taking us back to the Upside Down for an original story.
+---------
+
+# Yellowstone Meets Bosch In Timothy Olyphant's Near-Perfect 6-Part Thriller
+
+TV, Masked Recs
+
+Sat, 20 Jun 2026 15:56:21 GMT
+
+https://screenrant.com/justified-series-bosch-meets-yellowstone-timothy-olyphant-thriller/
+
+Fans of both Yellowstone and Bosch would love this classic Timothy Olyphant series, which came to an end after six seasons back in 2015.
+---------
+
+# HBO's 8-Part Superhero Series Is A Better Marvel & DC Parody Than The Boys
+
+Classic TV, Masked Recs
+
+Sat, 20 Jun 2026 15:45:22 GMT
+
+https://screenrant.com/the-franchise-hbo-better-superhero-parody-the-boys/
+
+Discover HBO's underappreciated gem, a biting satire that expertly pokes fun at the corporate machinery behind modern superhero franchise filmmaking.
+---------
+
+# Netflix’s New 8-Part Crime Thriller Series Is An Instant #1 Streaming Sensation
+
+TV, Masked Recs
+
+Sat, 20 Jun 2026 15:39:40 GMT
+
+https://screenrant.com/i-will-find-you-netflix-streaming-success-june-2026/
+
+Netflix's new 8-part crime thriller series has been released, and it is instantly dominating the streaming service's charts worldwide — a must-watch.
+---------
+
+# Toy Story 5’s Original “Nostalgia-Filled” Ending Revealed By Director
+
+Movies, Toy Story 5, Toy Story
+
+Sat, 20 Jun 2026 15:33:50 GMT
+
+https://screenrant.com/toy-story-5-original-ending-emily-jessie-reunion-kenna-harris-explained/
+
+Toy Story 5 already has plenty of emotion and nostalgia, but the original ending leaned into these elements even harder with a game-changing reunion.
+---------
+
+# What’s Coming to Disney+ In July 2026? Everything Coming Next Month
+
+TV, Disney+
+
+Sat, 20 Jun 2026 16:00:13 GMT
+
+https://www.cbr.com/what-coming-disney-july-2026-full-list/
+
+The House of Mouse is finally releasing X-Men '97 Season 2, among new additions.
+---------
+
+# DC Comics Reveals Superboy's New Armored Costume Redesign
+
+Comics, Action Comics, Superman, Superboy
+
+Sat, 20 Jun 2026 16:00:13 GMT
+
+https://www.cbr.com/superboy-redesign-action-comics-1099-revealed/
+
+DC Comics' original Superboy just got a whole new look, though there is no telling if it will be enough to save the entire Justice League.
+---------
+
+# Evangelion x Godzilla Unveils First Look at Exclusive Crossover Collectible
+
+Anime, Neon Genesis Evangelion, Godzilla, mecha
+
+Sat, 20 Jun 2026 16:00:13 GMT
+
+https://www.cbr.com/evangelion-godzilla-exclusive-crossover-collectible/
+
+A new version of an Evangelion x Godzilla crossover item is releasing later this year, honoring the movie that cemented the two brand's "connection."
+---------
+
+# The Most Perfect 23 Minutes in X-Men TV History Haven't Been Topped in 17 Years
+
+TV, Wolverine and the X-Men, X-Men, Animation
+
+Sat, 20 Jun 2026 15:30:13 GMT
+
+https://www.cbr.com/wolverine-and-the-xmen-breakdown-episode-best-original-team-adaptation/
+
+The only adaptation that ever accurately portrayed the X-Men's origin appeared in the forgotten and underrated Wolverine and the X-Men animated series
+---------
+
+# 10 Perfect One Piece Shanks Reveals That Broke the Internet
+
+Anime, One Piece
+
+Sat, 20 Jun 2026 15:15:43 GMT
+
+https://www.cbr.com/one-piece-perfect-shanks-reveals-broke-the-internet/
+
+Shanks is one of the most mysterious One Piece characters, making any revelation about him a viral event.
+---------
+
+# It's Official: The Dragon Ball Super Manga Is Not Over Yet
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Sat, 20 Jun 2026 15:01:13 GMT
+
+https://www.cbr.com/dragon-ball-super-manga-not-over-yet/
+
+V-Jump and Toyotarou just confirmed that the Dragon Ball Super manga is still “ongoing,” and that there’s no end to the story anywhere in sight.
+---------
+
+# Christopher Nolan's $109M Sci-Fi Thriller Masterpiece Finds a New Streaming Home Soon
+
+Movies, The Prestige
+
+Sat, 20 Jun 2026 15:01:13 GMT
+
+https://www.cbr.com/christopher-nolan-the-prestige-sci-fi-thriller-peacock-july-2026/
+
+One of the most critically-acclaimed Christopher Nolan films of all time is about to make a sudden appearance courtesy of a brand-new streaming home.
+---------
+
+# Robert Downey Jr. Officially Confirms Two Cameos That Were Cut From Avengers: Infinity War
+
+CBR Exclusives, avengers infinty war, robert downey jr
+
+Sat, 20 Jun 2026 15:01:13 GMT
+
+https://www.cbr.com/robert-downey-jr-confirms-avengers-infinity-war-cameos-cut/
+
+A deleted Avengers: Infinity War scene features two MCU heavies.
+---------
+
+# The 10 Best Far Side Comics Featuring God
+
+Comics, The Far Side
+
+Sat, 20 Jun 2026 15:01:13 GMT
+
+https://www.cbr.com/best-far-side-comics-featuring-god/
+
+God made sporadic appearances in The Far Side, but when he appeared it was iconic enough to help mark the comic strip as one of the best.
+---------
+
+# The Real Reason for Netflix's The Boroughs Cancellation After 1.2 Billion Minutes Viewed
+
+TV, Netflix, The Boroughs, Stranger Things
+
+Sat, 20 Jun 2026 14:53:27 GMT
+
+https://www.cbr.com/the-real-reason-for-netflixs-the-boroughs-cancellation/
+
+The real reason Netflix canceled The Boroughs will really upset fans.
+---------
+
+# 'Star City's Most Unexpected Relationship Just Took a Completely Surprising Turn
+
+Interviews, Star City, Alice Englert, For All Mankind, Apple TV
+
+Sat, 20 Jun 2026 16:00:13 GMT
+
+https://collider.com/star-city-episode-5-anastasia-sasha-romance-alice-englert-solly-mcleod-interview/
+
+Star City's Alice Englert and Solly McLeod discuss Anastasia and Sasha's surprising relationship and the emotional depth behind their unexpected bond.
+---------
+
+# Tom Hanks’ WWII Epic Returns With a Tense New Dictator Showdown
+
+TV News, Tom Hanks, History Channel, Documentary, World War II
+
+Sat, 20 Jun 2026 15:30:13 GMT
+
+https://collider.com/tom-hanks-ww2-series-duel-of-the-dictators-new-episode/
+
+Tom Hanks’ WWII series returns with a new episode exploring one of the war’s most dangerous dictator rivalries.
+---------
+
+# Netflix’s Near-Perfect Comedy Still Needs To Fix This Major Problem Before Season 3
+
+TV Features, The Four Seasons, Netflix, Tina Fey, Comedy
+
+Sat, 20 Jun 2026 15:23:14 GMT
+
+https://collider.com/four-seasons-netflix-pacing-problem-before-season-3/
+
+The Four Seasons' renewal for Season 3 offers a chance to correct Season 2's pacing problems, ensuring a more enjoyable series for fans.
+---------
+
+# 'Stranger Things' Creators' Netflix Sci-Fi Series Cancelled Despite 1.2 Billion Minutes Watched
+
+TV News, The Boroughs, Sci-Fi, Duffer Brothers, Netflix
+
+Sat, 20 Jun 2026 14:45:14 GMT
+
+https://collider.com/the-boroughs-cancelled-netflix-duffer-brothers-1-billion-minutes/
+
+The Boroughs was cancelled at Netflix after one season despite a massive 1.2 billion-minute opening week for the Duffer Brothers’ sci-fi series.
+---------
+
+# Ridley Scott’s 3-Part Thriller Masterpiece Is a Perfect Weekend Binge Watch
+
+Features, The Terror, Ridley Scott, Thriller
+
+Sat, 20 Jun 2026 16:00:18 GMT
+
+https://movieweb.com/ridley-scott-the-terror-binge-watch/
+
+Following a seven-year absence, Ridley Scott's underrated anthology has finally returned for season 3.
+---------
+
+# The 8 Best Movie and TV Adaptations of 'Treasure Island'
+
+Movie Lists, Treasure Island
+
+Sat, 20 Jun 2026 15:00:21 GMT
+
+https://movieweb.com/best-treasure-island-adaptations/
+
+'Treasure Island' has become a cherished story on both the page and the screen; here are the best movie and TV adaptations.
+---------
+
+# Paramount's Spy Thriller That's '24' Meets 'The X-Files' Is One of the Best
+
+Features, Homeland, Paramount Plus, Thriller, 24, The X-Files
+
+Sat, 20 Jun 2026 15:00:20 GMT
+
+https://movieweb.com/homeland-24-meets-x-files-recommendation/
+
+Conspiracy and counterterrorism have never been so entertaining as in a show that still holds up as one of the most binge-worthy of the century.
+---------
+
 # Nintendo Just Fixed The Switch's Biggest Flaw After Nearly A Decade
 
 Gaming, Nintendo Switch, Nintendo
