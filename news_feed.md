@@ -1,3 +1,311 @@
+# Komi Can't Communicate's Sequel Isn't Happening, But The Creator Didn't Leave Fans Empty-Handed
+
+Anime, Komi Can't Communicate
+
+Sat, 20 Jun 2026 22:00:22 GMT
+
+https://screenrant.com/komi-cant-communicate-sequel-not-happening-factoid/
+
+Komi Can't Communicate may not ever be getting an official sequel, but that does not mean that things are over for the beloved romantic comedy.
+---------
+
+# 5 Years After WandaVision, Marvel Officially Introduces Scarlet Witch's Replacement
+
+Streaming TV, Masked Recs
+
+Sat, 20 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/spider-man-brand-new-day-telepath-scarlet-witch-replacement/
+
+The MCU's most dangerous individual since Scarlet Witch is due to make her debut, and it will have huge implications for the future of the franchise.
+---------
+
+# The Elder Scrolls 6 Title Leaves Gamers Torn
+
+Gaming, The Elder Scrolls 6
+
+Sat, 20 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/elder-scrolls-6-title-speculation/
+
+Fans discuss potential titles for The Elder Scrolls VI, including 'Iliac' and 'Sentinel,' as they eagerly await news on the highly anticipated game.
+---------
+
+# Tomb Raider Is Officially Switching Formats Soon
+
+Streaming TV, Masked Recs
+
+Sat, 20 Jun 2026 21:45:22 GMT
+
+https://screenrant.com/tomb-raider-amazon-live-action-show-new-format/
+
+Twenty years after the first Tomb Raider game was released, Lara Croft's next big adventure will take place in a format new to the franchise.
+---------
+
+# Original Lilo & Stitch Directors Pay Tribute To Lilo Star Daveigh Chase With Heartbreaking Art
+
+Movies, Daveigh Chase, Lilo & Stitch
+
+Sat, 20 Jun 2026 21:40:59 GMT
+
+https://screenrant.com/lilo-and-stitch-daveigh-chase-art-tribute-chris-sanders-dean-deblois/
+
+Original Lilo & Stitch directors, Chris Sanders and Dean Devoid, pay tribute to Daveigh Chase, the star behind the voice of Lilo in the 2002 film.
+---------
+
+# Zelda, Studio Ghibli Collide In Beautiful New RPG You Can Play Free Now
+
+Gaming, The Legend of Zelda, Studio Ghibli
+
+Sat, 20 Jun 2026 21:30:20 GMT
+
+https://screenrant.com/steam-free-demo-zelda-meets-ghibli-rpg/
+
+Discover the world of Kloa - Child of the Forest, a stunning action-adventure game that blends the puzzles of Zelda with the art style of Ghibli.
+---------
+
+# Timothy Olyphant's Sci-Fi Hulu Return Is Going To Get "Weird" In New Story Update
+
+TV, Alien: Earth
+
+Sat, 20 Jun 2026 21:20:55 GMT
+
+https://screenrant.com/alien-earth-season-2-story-tease-timothy-olyphant/
+
+Timothy Olyphant revealed more details regarding the highly anticipated second season of Noah Hawley's hit FX prequel show, Alien: Earth.
+---------
+
+# 6 Most Disappointing Movies In The MCU
+
+Movies, Marvel Cinematic Universe, Ranking
+
+Sat, 20 Jun 2026 21:15:22 GMT
+
+https://screenrant.com/most-disappointing-mcu-movies/
+
+Though the Marvel Cinematic Universe has its ups and downs, these movies turned out to be the most disappointing installments in the franchise.
+---------
+
+# Marvel's First Animated Series Turns 60 This Year
+
+TV, Marvel Cinematic Universe, The Marvel Super Heroes
+
+Sat, 20 Jun 2026 21:01:21 GMT
+
+https://screenrant.com/marvel-first-animated-series-super-heroes-60-years/
+
+Marvel's very first animated series debuted 60 years ago, introducing iconic heroes to TV and helping launch the superhero cartoon boom.
+---------
+
+# Disney’s New 10-Part Fantasy Series Is Charmed Meets The Vampire Diaries
+
+Streaming TV, Masked Recs
+
+Sat, 20 Jun 2026 21:01:21 GMT
+
+https://screenrant.com/coven-academy-disney-plus-like-charmed-vampire-diaries/
+
+Disney has an entirely original fantasy series coming out in the summer of 2026, with major similarities to both Charmed and The Vampire Diaries.
+---------
+
+# This Cult Classic Superhero Roger Ebert Deemed 'A Perfect Vehicle' for Jim Carrey Sets Peacock Release Date
+
+Movies, The Mask, Jim Carrey
+
+Sat, 20 Jun 2026 21:30:13 GMT
+
+https://www.cbr.com/jim-carrey-the-mask-superhero-peacock-july-2026/
+
+One of the biggest breakout box office hits of an entire generation is heading to a new streaming home before its star returns to another iconic role.
+---------
+
+# Qui-Gon Jinn's Single Greatest Star Wars Line Hits Harder Than Any Sci-Fi Quote Since
+
+Movies, Star Wars, Star Wars: Episode I - The Phantom Menace
+
+Sat, 20 Jun 2026 21:30:13 GMT
+
+https://www.cbr.com/star-wars-phantom-menace-qui-gon-anakin-reality-best-quote/
+
+Qui-Gon Jinn didn't have a lot of time in Star Wars, and yet he delivered the series most important line.
+---------
+
+# George Lucas Makes Acting Return 19 Years Later in Hit $5.4B Franchise
+
+Movies, george lucas, Minions & Monsters, Despicable Me
+
+Sat, 20 Jun 2026 21:23:14 GMT
+
+https://www.cbr.com/george-lucas-makes-acting-return-minions-monsters/
+
+The Star Wars filmmaker has flirted with acting several times, and his new role has been unveiled.
+---------
+
+# 10 Powerful Life Lessons Avatar Fans Still Carry Today
+
+Anime, Avatar: The Last Airbender
+
+Sat, 20 Jun 2026 21:15:14 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-most-powerful-life-lessons/
+
+Avatar: The Last Airbender taught its viewers to accept differences, chose their own path and more.
+---------
+
+# Guillermo del Toro's Hit Comic Book Movie and Its Sequel Are Getting a New Streaming Home
+
+Movies, Hellboy, Hellboy II: The Golden Army
+
+Sat, 20 Jun 2026 21:00:14 GMT
+
+https://www.cbr.com/hellboy-comic-moving-to-peacock-july-2026/
+
+One of the best comic book movies of all time and its hit sequel are both heading to a brand-new streaming home in less than two weeks.
+---------
+
+# 5 Forgotten Action Thrillers That Are Perfect From Start to Finish
+
+Movies, Action, Thriller, Clint Eastwood
+
+Sat, 20 Jun 2026 21:00:14 GMT
+
+https://www.cbr.com/perfect-action-thrillers-no-one-remembers-list/
+
+The mash-up of action and thriller has given audiences some of the most gripping movie experiences ever made, but some of the best are forgotten.
+---------
+
+# Frances McDormand's Best Movie Since 'Fargo' Quietly Debuts on Netflix This July
+
+Movie News, Nomadland, Frances McDormand, Netflix, Fargo
+
+Sat, 20 Jun 2026 22:00:15 GMT
+
+https://collider.com/nomadland-streaming-netflix-july-1-2026/
+
+The Oscar-winning film that Jennifer Lopez recently shaded, Frances McDormand's Nomadland, is coming to Netflix soon. Find out when.
+---------
+
+# Prime Video’s New 8-Part Detective Series Is So Good, It Demands To Be Watched Twice
+
+TV Features, Spider-Noir, Prime Video, Nicolas Cage, Spider-Man, Marvel
+
+Sat, 20 Jun 2026 21:47:15 GMT
+
+https://collider.com/spider-noir-detective-series-good-two-versions-watch-twice/
+
+Nicolas Cage's Spider-Noir can be watched in both vibrant color and classic black-and-white, showcasing the series' visual strengths in each format.
+---------
+
+# 10 Sci-Fi Shows With Mind-Blowing Plot Twists, Ranked
+
+TV, Sci-Fi, Dark, Black Mirror, Severance
+
+Sat, 20 Jun 2026 21:41:14 GMT
+
+https://collider.com/sci-fi-shows-with-plot-twists-mind-bending-ranked/
+
+Explore the top sci-fi TV shows renowned for their jaw-dropping, game-changing plot twists, seen in series like Dark, Lost, and Severance.
+---------
+
+# Disney’s 3-Part Sci-Fi Franchise Quietly Becomes Essential Viewing
+
+Movie News, Guardians of the Galaxy, James Gunn, Disney, MCU
+
+Sat, 20 Jun 2026 21:30:14 GMT
+
+https://collider.com/disney-guardians-of-the-galaxy-streaming-success-june-2026/
+
+The Guardians of the Galaxy movies, which are regarded as Disney's best sci-fi space operas, have become essential viewing on streaming.
+---------
+
+# 10 Forgotten Psychological Thrillers That Are 10/10, No Notes
+
+Movie, Thriller, Seconds, Cure, Perfect Blue
+
+Sat, 20 Jun 2026 21:30:14 GMT
+
+https://collider.com/forgotten-psychological-thrillers/
+
+From Perfect Blue to The Vanishing, these overlooked psychological thrillers prove some masterpieces never got the attention they deserved.
+---------
+
+# Gerard Butler's 'Has Fallen' Has a Serious Streaming Rival, and Channing Tatum Deserves the Credit
+
+Movie News, White House Down, Channing Tatum, Jamie Foxx, Gerard Butler
+
+Sat, 20 Jun 2026 21:16:14 GMT
+
+https://collider.com/channing-tatum-white-house-down-streaming-success-hulu-june-2026/
+
+Ahead of Avengers: Doomsday, Channing Tatum's politically-charged thriller with Jamie Foxx, White House Down, is back in the streaming charts.
+---------
+
+# 10 Coolest James Bond Gadgets of All Time
+
+Movie, James Bond, Thunderball, GoldenEye, Goldfinger
+
+Sat, 20 Jun 2026 21:14:14 GMT
+
+https://collider.com/james-bond-movie-gadgets-ranked/
+
+James Bond is known for his gadgets from Q Branch, the coolest of which include an explosive pen, a jetpack, and the tricked-out Aston Martin DB5.
+---------
+
+# 'The Office's Best One-Liner Still Has the Greatest Payoff in Sitcom History
+
+TV Features, The Office, Steve Carell, Sitcom, NBC
+
+Sat, 20 Jun 2026 21:10:17 GMT
+
+https://collider.com/the-office-funniest-one-liner-thats-what-she-said-payoff/
+
+Michael Scott's most iconic catchphrase from The Office had its best delivery in one of the best episodes in the series.
+---------
+
+# Taylor Sheridan’s 5-Part Western Masterpiece Is Quietly Taking Over Streaming Again
+
+TV News, Taylor Sheridan, Yellowstone, Western, Kevin Costner
+
+Sat, 20 Jun 2026 21:00:15 GMT
+
+https://collider.com/taylor-sheridan-western-yellowstone-streaming-success-apple-tv-store-june-2026/
+
+Taylor Sheridan’s most-loved Western of all time is making a comeback on streaming charts years after airing its series finale. Here's all to know.
+---------
+
+# The Greatest Netflix Original Thriller Beats 'Mindhunter' At Its Own Game
+
+Features, Dark, Mindhunter, Netflix, Thriller
+
+Sat, 20 Jun 2026 22:00:19 GMT
+
+https://movieweb.com/dark-vs-mindhunter-netflix-thriller/
+
+'Mindhunter,' the Netflix thriller series starring Jonathan Groff and Anna Torv, is excellent, but another original show is better.
+---------
+
+# 8 TV Masterpieces That Perfected Their Genres
+
+TV Lists, The Pitt
+
+Sat, 20 Jun 2026 21:30:19 GMT
+
+https://movieweb.com/tv-masterpieces-perfected-genres/
+
+These TV series are the best examples of sitcoms, legal dramas, thrillers, and sci-fi series, and they each offer a unique and memorable element.
+---------
+
+# 'Spider-Man: Brand New Day' Teases End of 62-Year-Old Marvel Trend
+
+Features, Spider-Man: Brand New Day, Sadie Sink, MCU
+
+Sat, 20 Jun 2026 21:00:20 GMT
+
+https://movieweb.com/spider-man-brand-new-day-jean-grey-villain/
+
+Sadie Sink, if she is playing Jean Grey in 'Brand New Day,' will be bringing to life a unique version of the character. Read on for more.
+---------
+
 # Tom Holland's Spider-Man: Brand New Day Comments Make All Our Wildest Crossover Theories More Likely
 
 Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
