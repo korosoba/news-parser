@@ -1,3 +1,289 @@
+# Dragon Striker Is Disney's Avatar Replacement, And It's 11 Episodes Of Pure Perfection
+
+TV, Dragon Striker, Disney
+
+Sat, 20 Jun 2026 00:00:22 GMT
+
+https://screenrant.com/dragon-striker-is-disneys-avatar-replacement-and-its-11-episodes-of-pure-perfection/
+
+Disney has finally made and released the perfect replacement series for fans of Avatar: The Last Airbender who are wanting more to watch.
+---------
+
+# Stargate Campaign To Save Cancelled Reboot Endorsed By Franchise Alum
+
+TV, Stargate: Atlantis
+
+Fri, 19 Jun 2026 23:49:31 GMT
+
+https://screenrant.com/stargate-cancelled-reboot-save-campaign-robert-patrick/
+
+Stargate: Atlantis actor voiced his support for the campaign to save a reboot series that was unfortunately cancelled by Amazon MGM Studios.
+---------
+
+# Michael Fassbender's Spy Thriller Series Is So Good, It Could Continue For 3 More Seasons
+
+Streaming TV, Masked Recs
+
+Fri, 19 Jun 2026 23:41:21 GMT
+
+https://screenrant.com/paramount-plus-the-agency-renewed-more-seasons-possible/
+
+Michael Fassbender's spy thriller series will return soon with season 2, and it's so good that the Paramount+ show should continue for 3 more seasons.
+---------
+
+# The Biggest Debate About Backrooms Perfectly Explains Its Box Office Success
+
+Movies, Backrooms
+
+Fri, 19 Jun 2026 23:30:22 GMT
+
+https://screenrant.com/backrooms-box-office-success-scary-debate/
+
+There's no doubt that Backrooms has succeeded at the box office; however, there is one major debate about the movie that remains heated.
+---------
+
+# Avengers: Doomsday Made A Mistake Not Bringing Back Key X-Men, Says Former Marvel Star
+
+Movies, Avengers: Doomsday, Famke Janssen, Marvel Cinematic Universe
+
+Fri, 19 Jun 2026 23:25:31 GMT
+
+https://screenrant.com/avengers-doomsday-no-jean-grey-xmen-return-mistake-famke-janssen/
+
+One actor from the X-Men franchise expressed their disappointment that they weren't brought back for Avengers: Doomsday, the next MCU movie.
+---------
+
+# Slow Horses Season 6’s Mysterious New Character Gets Exciting Tease From Star
+
+TV, Slow Horses, Slow Horses - Season 6
+
+Fri, 19 Jun 2026 23:17:35 GMT
+
+https://screenrant.com/slow-horses-season-6-lenny-rush-introduction-tease-christopher-chung/
+
+Christopher Chung teases the arrival of a mysterious new character in Slow Horses season 6, set to premiere in September this year.
+---------
+
+# Squid Game Meets The Hunger Games In Netflix's 8-Part Dark Thriller That's Underrated
+
+Streaming TV, Masked Recs
+
+Fri, 19 Jun 2026 23:15:22 GMT
+
+https://screenrant.com/the-8-show-squid-game-netflix-hunger-games-underrated/
+
+Squid Game brought a level of magic to Netflix that the platform has been struggling to rekindle ever since the series ended, but one show stands out.
+---------
+
+# All Fans Of Bruce Lee's Enter The Dragon Must Watch HBO's 3-Season Martial Arts Masterpiece
+
+Classic TV, Masked Recs
+
+Fri, 19 Jun 2026 23:00:23 GMT
+
+https://screenrant.com/bruce-lee-warrior-tv-show-fans-watch/
+
+Bruce Lee is known for starring in martial arts movies, but he also inspired the greatest martial arts show ever made: Warrior on HBO Max.
+---------
+
+# Steam Drops Brand-New Free-To-Play MMORPG You Can Download Now
+
+Gaming, Steam, RPG, Live Service Games, PC
+
+Fri, 19 Jun 2026 23:00:23 GMT
+
+https://screenrant.com/steam-new-free-mmorpg-june-2026/
+
+A brand-new MMORPG that’s entirely free-to-play can now be downloaded on Steam, and as a former player, I highly recommend checking it out.
+---------
+
+# Stormlight Archive Is The Wheel of Time & Game of Thrones Fusion Fans Have Begged For
+
+TV, The Stormlight Archive
+
+Fri, 19 Jun 2026 23:00:23 GMT
+
+https://screenrant.com/apple-tv-stormlight-archive-game-of-thrones-wheel-of-time-replacement/
+
+Apple TV is about to adapt one of the greatest fantasy epics ever written, and it will be perfect for fans of Game of Thrones and Wheel of Time.
+---------
+
+# In Just 1 Day, Netflix's New 8-Part Harlan Coben Series Is 1 of the Most-Watched Shows in the World
+
+TV, I Will Find You
+
+Sat, 20 Jun 2026 00:00:15 GMT
+
+https://www.cbr.com/harlan-coben-i-will-find-you-netflix-success-june-2026/
+
+The show received solid reviews and it's an instant hit.
+---------
+
+# 10 SNES Games Without a Single Flaw
+
+Games, Nintendo, Video Games
+
+Sat, 20 Jun 2026 00:00:15 GMT
+
+https://www.cbr.com/greatest-snes-games-of-all-time-flawless-start-to-finish/
+
+The SNES is home to many of the most perfect video games ever made, including Super Mario World and Final Fantasy VI.
+---------
+
+# 10 Strongest Anime Weapons, Ranked By How Powerful They Are
+
+Anime, Death Note, Berserk
+
+Fri, 19 Jun 2026 23:45:14 GMT
+
+https://www.cbr.com/strongest-anime-weapons-ranked-list/
+
+Anime weapons like Dragon Slayer and the Death Note carry hidden histories and abilities that reshape entire worlds, but which is the most powerful?
+---------
+
+# GTA 6 Official Cover Art 'Error' Goes Viral
+
+Games, Grand Theft Auto, gta
+
+Fri, 19 Jun 2026 23:30:17 GMT
+
+https://www.cbr.com/grand-theft-auto-6-cover-art-gator-teeth/
+
+An alleged "mistake" on the official cover art for GTA 6 is getting a lot of attention online.
+---------
+
+# 10 Best Anime For Couples to Binge This Weekend
+
+Anime, My Love Story!!, Haikyu!!
+
+Fri, 19 Jun 2026 23:15:14 GMT
+
+https://www.cbr.com/best-bingeworthy-anime-for-couples-list/
+
+From heartwarming romances to adventurous journeys, anime like My Love Story and Yuru Camp are a perfect choice for couples to bond over this weekend.
+---------
+
+# Overwatch Artist’s New Anime Series Locks in Major July Debut
+
+Anime, Overwatch
+
+Fri, 19 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/overwatch-artist-new-anime-series-july-2026/
+
+Former Overwatch character art director Arnold Tsang officially unveils his new manga franchise, and Azuki already looks absolutely incredible.
+---------
+
+# New Smile and A Quiet Place Sequels Confirmed as Franchises Prepare for Comebacks
+
+Comics, Smile, A Quiet Place, idw publishing
+
+Fri, 19 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/smile-a-quiet-place-sequels-release-dates-confirmed/
+
+Two of the biggest horror hits of the past decade are both getting sequels from one of the most beloved indie publishers of all time.
+---------
+
+# 5 Masterpiece DreamWorks Movies Better Than Shrek
+
+Movies, dreamworks, Shrek, Fantasy
+
+Fri, 19 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/dreamworks-movies-better-than-shrek-list/
+
+Shrek might be one of the most famous animated movie franchises of all time, but these five other DreamWorks Animation movies are even better.
+---------
+
+# Peacemaker's DCU Future Gets Cautious Update From John Cena
+
+TV, Peacemaker, DCU
+
+Fri, 19 Jun 2026 22:50:28 GMT
+
+https://www.cbr.com/peacemaker-dcu-future-update-john-cena/
+
+John Cena comments on the future of Peacemaker in the DCU after James Gunn confirmed there are no plans for a third season of the TV series.
+---------
+
+# 3 Binge-Worthy Prime Video Series to Watch This Weekend (June 19-21)
+
+TV, Teen Titans, Every Year After, The Night Manager, Prime Video
+
+Fri, 19 Jun 2026 23:43:14 GMT
+
+https://collider.com/prime-video-shows-binge-weekend-june-19/
+
+Every Year After, Teen Titans, and The Night Manager make up our list of the best Prime Video shows to binge the weekend of June 19th, 2026.
+---------
+
+# 10 Heaviest Adventure Movies of All Time
+
+Movie, The Road, Deliverance, The Descent, Aguirre, the Wrath of God
+
+Fri, 19 Jun 2026 23:05:15 GMT
+
+https://collider.com/heaviest-adventure-movies-all-time-ranked/
+
+Not all adventure movies are fun and inspiring, as heavy and despairing ones like Sorcerer, The Road, and Aguirre, the Wrath of God all show.
+---------
+
+# Prime Video’s Growth Shows Why Amazon May Be TV’s Real Endgame
+
+TV Features, Prime Video, Invincible, Reacher, Fallout
+
+Fri, 19 Jun 2026 23:04:15 GMT
+
+https://collider.com/prime-video-streaming-growth-amazon-hub-meaning/
+
+Prime Video remains one of the largest growing streaming services, and part of that is its larger connection to Amazon Prime.
+---------
+
+# 20 Greatest TV Episodes of All Time
+
+TV, Television, Game Of Thrones, The Simpsons, Breaking Bad
+
+Fri, 19 Jun 2026 23:02:15 GMT
+
+https://collider.com/best-tv-episodes-all-time-ranked/
+
+We definitively rank the greatest TV episodes of all time, including The Simpsons' "Marge vs. the Monorail" and The Sopranos' "Pine Barrens."
+---------
+
+# Russell Crowe’s WW2 Hit Loses Box-Office Rank to Brendan Fraser’s Sleeper Hit
+
+Movie News, Russell Crowe, Nuremberg, Brendan Fraser, Pressure
+
+Fri, 19 Jun 2026 22:54:54 GMT
+
+https://collider.com/brendan-fraser-ww2-hit-pressure-overtakes-russell-crowe-nuremberg-box-office-14-million/
+
+Russell Crowe's hit WW2 movie, Nuremberg, has been overtaken at the domestic box office by Pressure, starring Brendan Fraser. Find out more.
+---------
+
+# 8 Best Superhero Movies That Made $1 Billion
+
+Movie, Superhero, Incredibles 2, The Dark Knight, Black Panther
+
+Fri, 19 Jun 2026 22:48:14 GMT
+
+https://collider.com/best-superhero-movies-1-billion-dollars-box-office/
+
+There have been many well-made superhero movies that have crossed the $1 billion barrier, including Incredibles 2, Black Panther, and The Avengers.
+---------
+
+# Every John Carpenter Action Movie, Ranked
+
+Movie Lists, John Carpenter, Action
+
+Sat, 20 Jun 2026 00:00:21 GMT
+
+https://movieweb.com/john-carpenter-action-ranked/
+
+John Carpenter, while known for his horror movies, also made some of the greatest action movies ever made.
+---------
+
 # 15 Years Ago, Netflix's 7-Part Series Rewrote The Rules Of Sci-Fi Storytelling
 
 Streaming TV, Masked Recs
