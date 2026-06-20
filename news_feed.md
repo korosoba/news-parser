@@ -1,3 +1,355 @@
+# Demon Slayer Infinity Castle's Replacement Is One Of Hulu's Best Kept Secret
+
+Anime, Hulu, Masked Recs
+
+Sat, 20 Jun 2026 23:30:11 GMT
+
+https://screenrant.com/sword-demon-hunter-demon-slayer-replacement-hulu/
+
+Demon Slayer: Infinity Castle has revolutionized anime in the West; while we wait on the next film, there's a Hulu anime that's a perfect replacement.
+---------
+
+# The Walking Dead Gives Its Biggest Clue Yet That Glenn Is Coming Back To TV
+
+Streaming TV, Masked Recs
+
+Sat, 20 Jun 2026 23:30:11 GMT
+
+https://screenrant.com/the-walking-dead-glenn-return-dead-city-hint/
+
+The Walking Dead has dropped its first hints that it might bring back Glenn for an alt-reality episode where the outbreak never happened.
+---------
+
+# Disney's Toy Story 5 Rotten Tomatoes Score Officially Sets All-Time Franchise Audience Record After 7 Years
+
+Movies, Toy Story 5, Toy Story, Pixar
+
+Sat, 20 Jun 2026 23:23:26 GMT
+
+https://screenrant.com/toy-story-5-rotten-tomatoes-audience-score-pixar-franchise-record/
+
+With Toy Story 5 now in theaters, audiences are sharing their thoughts, and it's enough to set a huge Rotten Tomatoes record for the Pixar franchise.
+---------
+
+# Paramount+'s Criminal Minds Format Change Finally Backfires
+
+Network TV, Criminal Minds
+
+Sat, 20 Jun 2026 23:15:21 GMT
+
+https://screenrant.com/criminal-minds-paramount-plus-seasons-too-short-backfires/
+
+Paramount+ has made plenty of major changes to Criminal Minds in the past few years, but one format update risks ruining season 19's best story.
+---------
+
+# 10 Greatest Antonio Banderas Movies, Ranked
+
+Movies, Spy Kids, The Skin I Live In, The Mask of Zorro, Pain and Glory, The 13th Warrior, Desperado, Assassins, Once Upon a Time in Mexico, Tie Me Up! Tie Me Down!, Puss in Boots: The Last Wish, Antonio Banderas
+
+Sat, 20 Jun 2026 23:15:21 GMT
+
+https://screenrant.com/best-antonio-banderas-movies-ranked/
+
+Antonio Banderas has an exceptionally diverse filmography, including 90s action classics and voice acting roles you won't want to miss.
+---------
+
+# Masashi Kishimoto's Naruto Follow-Up Lasted Just 10 Months
+
+Classic TV, Masked Recs
+
+Sat, 20 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/samurai-8-masashi-kishimoto-naruto-successor-cancel/
+
+There's no doubt that Masashi Kishimoto created gold with Naruto. Unfortunately, his first follow-up didn't get that same kind of love.
+---------
+
+# 10 Greatest Star Trek Guest Stars Of All Time
+
+TV, Star Trek
+
+Sat, 20 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/greatest-star-trek-guest-actors-ever/
+
+These guest actors stole the show whenever they appeared in Star Trek
+---------
+
+# Every Super Mario Bros. Movie And TV Show, Ranked
+
+Movies, The Super Mario Galaxy Movie, Super Mario Bros.
+
+Sat, 20 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/super-mario-bros-movies-tv-shows-ranked/
+
+Illumination has hit a great stride with The Super Mario Galaxy Movie, but it’s worth looking into how it stacks up against Mario’s cinematic legacy.
+---------
+
+# Fallout 4 Gets New DLC Dedicated To Game’s Best Character
+
+Gaming, Fallout, Fallout 4
+
+Sat, 20 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/fallout-4-nick-valentine-fan-expansion/
+
+Fallout 4 has a lot of memorable characters, but there are some that deserve to be the center of their own little story in the Commonwealth.
+---------
+
+# 10 Toy Story Characters Missing Or Sidelined From Toy Story 5
+
+Movies, Toy Story, Toy Story 5, Pixar
+
+Sat, 20 Jun 2026 22:51:11 GMT
+
+https://screenrant.com/toy-story-characters-missing-from-toy-story-5/
+
+Toy Story 5 is very focused on a select few and/or newer characters, meaning some notable faces from the franchise were sidelined or missing entirely.
+---------
+
+# Star Trek Generations Gives Picard His Single Greatest Star Trek Quote
+
+Movies, Star Trek: Generations
+
+Sat, 20 Jun 2026 23:30:18 GMT
+
+https://www.cbr.com/star-trek-generations-best-picard-quote/
+
+Captain Picard has no shortage of memorable scenes and quotes, but his greatest comes from one of the most iconic Star Trek films.
+---------
+
+# Netflix Confirms It's Erasing Avatar: The Last Airbender's Best Season 2 Storyline
+
+TV, Avatar: The Last Airbender, Netflix
+
+Sat, 20 Jun 2026 23:30:18 GMT
+
+https://www.cbr.com/netflix-avatar-the-last-airbender-erasing-appa-s2-storyline/
+
+A detail from the Avatar: The Last Airbender trailer revealed that a major story arc will be missing from the live-action series' second season.
+---------
+
+# 5 Masterpiece Anime Movies Better Than Your Name
+
+Anime, Your Name, Spirited Away
+
+Sat, 20 Jun 2026 23:15:13 GMT
+
+https://www.cbr.com/masterpiece-anime-movies-better-than-your-name/
+
+These films combine breathtaking artistry with storytelling that leaves an even deeper impression than Your Name.
+---------
+
+# Netflix Is Officially Removing Its Divisive 2-Season Sci-Fi Drama
+
+TV, Between
+
+Sat, 20 Jun 2026 23:11:50 GMT
+
+https://www.cbr.com/netflix-removing-between-streaming/
+
+A Netflix Original is soon being removed from the streaming platform altogether.
+---------
+
+# Colin Farrell's Hit Neo-Noir Apple TV Series Has a Hidden Better Call Saul Connection
+
+TV, Sugar
+
+Sat, 20 Jun 2026 22:32:29 GMT
+
+https://www.cbr.com/colin-farrell-sugar-better-call-saul-connection/
+
+Better Call Saul fans will appreciate the interesting connection to the Breaking Bad universe.
+---------
+
+# The CW's 6-Season Hit Superhero Series Returns as a PVOD Sensation Ahead of Supergirl Movie
+
+TV, Supergirl, superheroes
+
+Sat, 20 Jun 2026 22:30:15 GMT
+
+https://www.cbr.com/supergirl-the-cw-superhero-success-pvod-june-2026/
+
+The CW's superhero series Supergirl is a hit on PVOD 11 years after its debut, ahead of the highly anticipated DCU film.
+---------
+
+# 5 Strongest Martial Arts Heroes In Action Movie History, Ranked
+
+Movies, The Raid: Redemption, Enter the Dragon, Drunken Master II
+
+Sat, 20 Jun 2026 22:30:15 GMT
+
+https://www.cbr.com/strongest-action-movie-martial-arts-heroes-ranked/
+
+The greatest martial artists have changed cinema on a fundamental level
+---------
+
+# Pokémon Winds & Waves
+
+Games, Pokemon
+
+Sat, 20 Jun 2026 22:18:15 GMT
+
+https://www.cbr.com/pokemon-winds-waves-reveal-new-pokemon-design-rotom/
+
+Gamers may have just gotten their first look at a brand-new design for one of the most iconic Pokémon of an entire generation, and reviews are mixed.
+---------
+
+# 10 Strongest Final Fantasy Heroes, Ranked
+
+Games, Final Fantasy, Final Fantasy 7 Remake, Final Fantasy X|X-2 HD Remaster
+
+Sat, 20 Jun 2026 22:15:18 GMT
+
+https://www.cbr.com/official-strongest-final-fantasy-heroes-ranked/
+
+Spanning multiple decades, the Final Fantasy franchise has delivered many exceptional characters, and these ten are the strongest of them all.
+---------
+
+# In Just 1 Day, Apple TV's Hit Neo-Noir Crime Becomes an Instant Streaming Hit After 100% RT
+
+TV, Sugar, Apple TV, Crime
+
+Sat, 20 Jun 2026 22:01:15 GMT
+
+https://www.cbr.com/sugar-apple-tv-neo-noir-mystery-crime-success-june-2026/
+
+Apple TV's neo-noir mystery and crime series, Sugar, rises on streaming after Season 2 debuts with a perfect Rotten Tomatoes score.
+---------
+
+# Before Netflix's 'Little House,' This Overlooked Western Miniseries Deserves Your Attention
+
+TV Features, Little House on the Prairie, Disney+
+
+Sat, 20 Jun 2026 23:36:15 GMT
+
+https://collider.com/little-house-on-the-prairie-miniseries-disney-netflix-adaptation/
+
+Disney's Little House on the Prairie miniseries is a faithful adaptation of Laura Ingalls Wilder's books, making it a perfect weekend binge.
+---------
+
+# Jason Statham’s Hit Action Thriller Quietly Soars After Making More Than 2x Its Budget
+
+Movie News, Jason Statham, A Working Man, David Ayer, HBO Max
+
+Sat, 20 Jun 2026 23:30:11 GMT
+
+https://collider.com/jason-statham-a-working-man-all-time-streaming-success-hbo-max-june-2026/
+
+Jason Statham's hit action movie A Working Man is proving to be an all-time sensation across multiple streaming platforms. Find out more.
+---------
+
+# Disney’s $7 Billion Sci-Fi Fantasy Franchise Is Taking Over the World Again
+
+Movie News, Avatar, James Cameron, Avatar: The Way of Water, Avatar: Fire and Ash
+
+Sat, 20 Jun 2026 23:15:14 GMT
+
+https://collider.com/disney-sci-fi-fantasy-saga-james-cameron-avatar-movies-streaming-succes-june-2026/
+
+Disney's epic three-part sci-fi fantasy saga is taking over the world on streaming before the premiere of its latest installment. Read on for more.
+---------
+
+# HBO’s Divisive 6-Part Miniseries Quietly Takes Over Streaming
+
+TV News, Half Man, HBO Max, Jamie Bell, TV Miniseries
+
+Sat, 20 Jun 2026 23:00:14 GMT
+
+https://collider.com/half-man-hbo-max-streaming-success-june-2026/
+
+HBO's controversial 6-part miniseries is dominating streaming charts and generating buzz, potentially securing Emmy nominations. Get all the details.
+---------
+
+# 10 War Movies That Roger Ebert Considered Perfect
+
+Movie, Come And See, Apocalypse Now, Roger Ebert, War
+
+Sat, 20 Jun 2026 22:52:13 GMT
+
+https://collider.com/best-war-movies-roger-ebert/
+
+War movie masterpieces like Come and See, Apocalypse Now, and The Battle of Algiers received glowing praise from film critic Roger Ebert.
+---------
+
+# Rebecca Ferguson’s 3-Part Sci-Fi Masterpiece Is the Perfect Weekend Binge
+
+Movie News, Dune, Dune: Part Two, Dune: Part Three, Rebecca Ferguson
+
+Sat, 20 Jun 2026 22:46:22 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-fantasy-saga-dune-movies-streaming-success-hbo-max-june-2026/
+
+Rebecca Ferguson's two-part sci-fi fantasy saga is a total streaming obsession before its final chapter arrives later this year. Read on for more.
+---------
+
+# ‘Fallout’ Meets 'Mad Max' in MCU Star's Criminally Underrated Sci-Fi Thriller
+
+Movie News, Afterburn, Dave Bautista, Samuel L. Jackson, MGM
+
+Sat, 20 Jun 2026 22:30:15 GMT
+
+https://collider.com/dave-bautista-samuel-l-jackson-afterburn-streaming-success-mgm-plus-june-2026/
+
+MCU favorite Dave Bautista's failed Mad Max replacement with Samuel L. Jackson finds surprise streaming success. Read on for more about Afterburn.
+---------
+
+# Steven Spielberg Perfectly Blended Sci-Fi and Fantasy in This Criminally Underrated $600 Million Hit
+
+Movie News, Ready Player One, Steven Spielberg, HBO Max, Sci-Fi
+
+Sat, 20 Jun 2026 22:15:17 GMT
+
+https://collider.com/steven-spielberg-sci-fi-fantasy-ready-player-one-streaming-success-hbo-max-june-2026/
+
+Steven Spielberg's massive sci-fi fantasy blockbuster, Ready Player One, is blowing up on streaming following Disclosure Day's premiere.
+---------
+
+# HBO’s 4-Part Sci-Fi Near-Perfect Masterpiece Had One Genre Problem It Could Never Fix
+
+TV Features, Westworld, Jonathan Nolan, Lisa Joy, HBO Max
+
+Sat, 20 Jun 2026 22:09:15 GMT
+
+https://collider.com/hbo-westworld-sci-fi-genre-problem-opinion/
+
+Westworld might have premiered to critical acclaim, but its later seasons took a shift it never recovered from.
+---------
+
+# 7 Most Perfect Thriller Shows of the Last 5 Years
+
+TV, Thriller, Severance, Squid Game, Ballard
+
+Sat, 20 Jun 2026 22:08:14 GMT
+
+https://collider.com/most-perfect-thriller-shows-last-5-years-ranked/
+
+Severance, Yellowjackets, Dark Matter, and Squid Game are among the best thriller shows of the last 5 years, but which series is the greatest?
+---------
+
+# 8 Must-See Netflix Action Thriller Movies To Watch This Weekend
+
+Movie Lists, Netflix, Action, Thriller
+
+Sat, 20 Jun 2026 23:00:19 GMT
+
+https://movieweb.com/masterpiece-netflix-action-thriller-movies/
+
+If you're looking for fantastic action thrillers on Netflix this weekend, we've got you covered, whether you need tension or intensity.
+---------
+
+# 6 Reasons Why a Hard Reboot of 'Star Wars' Might Be Disney's Best Option for the 2030s
+
+Movie Lists, Star Wars, Star Wars The Clone Wars, The Mandalorian and Grogu, Disney
+
+Sat, 20 Jun 2026 22:30:21 GMT
+
+https://movieweb.com/reboot-star-wars-disney-2030s/
+
+Star Wars is in the worst place it has ever been. Here are six reasons why a Star Wars reboot could actually be the best strategy for the franchise.
+---------
+
 # Komi Can't Communicate's Sequel Isn't Happening, But The Creator Didn't Leave Fans Empty-Handed
 
 Anime, Komi Can't Communicate
