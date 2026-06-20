@@ -1,3 +1,333 @@
+# Nintendo Just Fixed The Switch's Biggest Flaw After Nearly A Decade
+
+Gaming, Nintendo Switch, Nintendo
+
+Sat, 20 Jun 2026 14:33:32 GMT
+
+https://screenrant.com/nintendo-switch-eshop-fix-june-2026/
+
+Nintendo has no shortage of new incentives to buy a Switch 2, but this latest update makes the original console experience feel drastically better.
+---------
+
+# After 3 Years, MAPPA Returns To Attack On Titan One Last Time
+
+Anime, Attack on Titan, Attack On Titan
+
+Sat, 20 Jun 2026 14:30:21 GMT
+
+https://screenrant.com/mappa-attack-on-titan-3-trailer/
+
+Attack on Titan is coming back.
+---------
+
+# TV's 10 Most Successful Gangster Characters
+
+Classic TV
+
+Sat, 20 Jun 2026 14:30:21 GMT
+
+https://screenrant.com/most-successful-gangster-characters-tv/
+
+TV has seen a variety of gangsters, some a lot more powerful, prominent, and even scarier than others, making history for how successful they were.
+---------
+
+# Jordan Peele’s Mysterious Next Movie Gets Promising Update After Being Delayed
+
+Movies, Jordan Peele
+
+Sat, 20 Jun 2026 14:19:24 GMT
+
+https://screenrant.com/jordan-peele-next-movie-script-complete/
+
+After being pulled from Universal's release calendar, the first movie Jordan Peele has directed since Nope receives as promising update.
+---------
+
+# Netflix's Cancellation Of Duffer Bros.'s New Sci-Fi Series Stuns Star: "I Don't Know What Happened"
+
+TV, The Boroughs
+
+Sat, 20 Jun 2026 14:17:42 GMT
+
+https://screenrant.com/netflix-the-boroughs-season-2-cancellation-geena-davis-reaction/
+
+Netflix's decision to cancel the Duffer Brothers' new sci-fi series is a major shock, as this star reacts to the stunning cancellation decision.
+---------
+
+# Crunchyroll Confirms Witch Hat Atelier Has Officially Dethroned Spy x Family In One Way
+
+Anime, Witch Hat Atelier, Crunchyroll
+
+Sat, 20 Jun 2026 14:00:21 GMT
+
+https://screenrant.com/witch-hat-atelier-dethrones-spy-x-family-crunchyroll/
+
+Crunchyroll has confirmed that Witch Hat Atelier has anime's two most "protect at all costs" characters, in this exclusive Screen Rant interview.
+---------
+
+# HBO's 6-Part 100% RT Crime Series Is The Wire's Spiritual Predecessor
+
+Classic TV, Masked Recs
+
+Sat, 20 Jun 2026 14:00:21 GMT
+
+https://screenrant.com/the-corner-hbo-wire-spiritual-predecessor/
+
+There is a six-season crime drama on HBO with a 100% on Rotten Tomatoes that is the spiritual predecessor to The Wire in more ways than one.
+---------
+
+# Dragon Ball Officially Confirms The End Of An Era
+
+Gaming, Dragon Ball, Triple-A Games
+
+Sat, 20 Jun 2026 14:00:21 GMT
+
+https://screenrant.com/dragon-ball-xenoverse-2-end-of-era-official/
+
+Although Dragon Ball is moving into a new era post Akira Toriyama, one has just ended after a lengthy run, much to the chagrin of fans.
+---------
+
+# Every Toy Story Movie Ranked from Worst to Best, Including Toy Story 5
+
+Movies, Toy Story
+
+Sat, 20 Jun 2026 14:00:21 GMT
+
+https://screenrant.com/every-toy-story-movie-ranked-from-worst-to-best-including-toy-story-5/
+
+How does Toy Story 5 compare to all of the other Toy Story movies? Here's all of them ranked from worst to best.
+---------
+
+# Brand New Day Confirms Spider-Man Power We've Never Seen On-Screen Before
+
+Comics, Spider-Man: Brand New Day
+
+Sat, 20 Jun 2026 13:49:49 GMT
+
+https://screenrant.com/spider-man-brand-new-day-power-spider-sense/
+
+A power from the comics is coming to the movies.
+---------
+
+# Netflix’s Post-Stranger Things Problem Is Bigger Than Replacing a Hit Show
+
+TV, Netflix, Stranger Things
+
+Sat, 20 Jun 2026 14:30:14 GMT
+
+https://www.cbr.com/netflix-stranger-things-replacement-problem/
+
+Netflix has a much bigger challenge ahead of it than replacing Stranger Things--can the streaming giant really recover?
+---------
+
+# 10 Greatest Romantic Thriller Anime
+
+Anime, Beastars, Steins;Gate
+
+Sat, 20 Jun 2026 14:15:14 GMT
+
+https://www.cbr.com/official-best-romantic-thriller-anime/
+
+Romance and thriller might seem like incompatible genres, yet these anime series excel at blending suspense and love.
+---------
+
+# What's Coming to Peacock in July 2026? Everything Arriving Next Month
+
+Movies, Peacock
+
+Sat, 20 Jun 2026 14:00:14 GMT
+
+https://www.cbr.com/what-coming-peacock-july-2026-full-list/
+
+The streamer will have a series of combined licensed and new titles, including the perfect The White Lotus replacement.
+---------
+
+# Transformers: Age of the Primes Finally Brings Back the Series' Most Forgotten Characters
+
+Anime, Transformers, merchandise
+
+Sat, 20 Jun 2026 14:00:14 GMT
+
+https://www.cbr.com/transformers-age-of-the-primes-forgotten-characters/
+
+Transformers: Age of the Primes adds several new characters to its next wave, with these including an anime-based Prime and a soldier of Unicron.
+---------
+
+# 7 Best Saturday Morning Cartoons Since Looney Tunes
+
+TV, cartoons, The Flintstones, Looney Tunes, X-Men: The Animated Series
+
+Sat, 20 Jun 2026 13:30:12 GMT
+
+https://www.cbr.com/best-saturday-morning-cartoons-since-looney-tunes-list/
+
+Looney Tunes may be the most iconic Saturday morning cartoon, but shows like Transformers and X-Men: The Animated Series are equally great.
+---------
+
+# 3 Shonen Anime Better Than the Dragon Ball Franchise
+
+Anime, Dragon Ball, One Piece
+
+Sat, 20 Jun 2026 13:15:13 GMT
+
+https://www.cbr.com/shonen-anime-better-than-dragon-ball-franchise/
+
+These series took the formula popularized by Dragon Ball and refined it into something greater.
+---------
+
+# Netflix's New 118-Minute Zoey Deutch Movie Debuts With Near-Perfect Rotten Tomatoes Audience Score
+
+Movies, Rotten Tomatoes, Voicemails for Isabelle
+
+Sat, 20 Jun 2026 13:01:34 GMT
+
+https://www.cbr.com/netflix-voicemails-for-isabelle-rotten-tomatoes-audience-score/
+
+Critics also gave the new movie a fantastic reception.
+---------
+
+# After 1 Month, John Krasinski's Reacher Replacement Loses No. 1 to 122-Minute Drama Sequel
+
+Movies, Tom Clancy's Jack Ryan: Ghost War, Your Fault: London
+
+Sat, 20 Jun 2026 13:00:13 GMT
+
+https://www.cbr.com/jack-ryan-ghost-movie-action-prime-video-drop-your-fault-london-june-2026/
+
+Jack Ryan: Ghost War spent a month on top of Amazon Prime charts and lost to an unlikely, steamy replacement.
+---------
+
+# 5 Dark Fantasy Movies Better Than Pan's Labyrinth
+
+Movies, Fantasy, Pan's Labyrinth
+
+Sat, 20 Jun 2026 13:00:13 GMT
+
+https://www.cbr.com/dark-fantasy-movies-better-than-pans-labyrinth-list/
+
+Pan's Labyrinth is one of the best dark fantasy films ever made, but there are others that stand out even more.
+---------
+
+# The Book Every 'Backrooms' Fan Needs to Read ASAP
+
+Movie, Backrooms, Books, Horror, Kane Parsons
+
+Sat, 20 Jun 2026 14:29:14 GMT
+
+https://collider.com/house-of-leaves-book-backrooms-fans-should-read/
+
+Mark Z. Danielewski's House of Leaves feels like a precursor to Backrooms, with both works of horror proving scary in surprisingly similar ways.
+---------
+
+# Prime Video’s Steamy ‘Heated Rivalry’ Replacement Soars With Huge Week 2 Viewership Jump
+
+TV News, Off Campus, Prime Video, Ella Bright, Belmont Cameli
+
+Sat, 20 Jun 2026 14:01:14 GMT
+
+https://collider.com/off-campus-prime-video-viewership-increase-week-2/
+
+Off Campus delivered a 34% viewership increase in its second week on Prime Video, giving the streamer another growing romance hit.
+---------
+
+# 10 Most Universally Beloved Video Games of All Time
+
+Movie, Video Game, Stardew Valley, Resident Evil 4, Elden Ring
+
+Sat, 20 Jun 2026 13:23:14 GMT
+
+https://collider.com/most-universally-beloved-video-games-all-time-ranked/
+
+Portal 2, Wii Sports, and Minecraft are all among the most universally beloved video games ever made.
+---------
+
+# Taylor Sheridan’s Divisive ‘Yellowstone’ Spin-Off Soars After Its Season 1 Finale
+
+TV News, Taylor Sheridan, Luke Grimes, Marshals, Paramount Plus
+
+Sat, 20 Jun 2026 13:15:13 GMT
+
+https://collider.com/marshals-taylor-sheridan-yellowstone-spinoff-streaming-hit-june-2026/
+
+Marshals, Taylor Sheridan’s Kayce Dutton-led Yellowstone spin-off, is still climbing on streaming weeks after its Season 1 finale.
+---------
+
+# ‘The Bear’ Star’s Devastating Masterpiece Gets a Second Chance on Streaming
+
+Movie News, Jeremy Allen White, Maika Monroe, Netflix, After Everything
+
+Sat, 20 Jun 2026 12:45:13 GMT
+
+https://collider.com/after-everything-streaming-success-netflix-june-2026/
+
+Jeremy Allen White's devastating movie with Maika Monroe, After Everything, is a hit ahead of The Bear's final season. Find out more here.
+---------
+
+# The Biggest Movie Event of the Decade Arrives in Less Than 200 Days
+
+Movie News, Avengers: Doomsday, Robert Downey Jr, Marvel, MCU
+
+Sat, 20 Jun 2026 12:31:13 GMT
+
+https://collider.com/avengers-doomsday-biggest-movie-of-2026-less-than-200-days/
+
+The biggest movie of 2026, Avengers: Doomsday, is officially less than 200 days away from release around the world. Here's everything you should know.
+---------
+
+# 10 Greatest Animated Sci-Fi Movies of the Last 50 Years
+
+Movie, Science Fiction, Animation, WALL-E, Nausicaä of the Valley of the Wind
+
+Sat, 20 Jun 2026 12:29:14 GMT
+
+https://collider.com/best-animated-sci-fi-movies-last-50-years-ranked/
+
+From WALL-E to Akira, these great movies perfectly use the animated medium's endless possibilities to explore deep, thought-provoking sci-fi concepts.
+---------
+
+# Prime Video's 'Robocop' Reboot Finally Lands Major Update
+
+TV News, Robocop
+
+Sat, 20 Jun 2026 14:31:01 GMT
+
+https://movieweb.com/prime-videos-new-80s-action-thriller-reboot-finally-lands-major-update/
+
+The upcoming series has attached some impressive talent behind the camera.
+---------
+
+# The Definitive 'X-Files' Viewing Order – Your Guide To Essential Mythology Episodes
+
+TV Lists, The X-Files, The X-Files: I Want to Believe
+
+Sat, 20 Jun 2026 14:00:19 GMT
+
+https://movieweb.com/definitive-x-files-viewing-order/
+
+Are you looking for just 'The X-Files' mythology episodes to skip the filler? This guide has you covered, along with the best episodes of each season.
+---------
+
+# The Next James Bond Has Been Cast for Origin Adaptation Ahead of 007 Reboot
+
+Movies, James Bond, james bond
+
+Sat, 20 Jun 2026 13:46:15 GMT
+
+https://movieweb.com/young-bond-audio-drama-isaac-rouse-007/
+
+Actor Isaac Rouse has been cast to play 007 in the audio adaptation of 'Young Bond: SilverFin,' based on Charlie Higson's novel.
+---------
+
+# Amazon's "Statham Meets Bourne" Action Thriller Officially One of the Most-Watched Streaming Hits
+
+Movie News, Bourne, Jason Statham, Action, Thriller, Agent Zeta, Prime Video
+
+Sat, 20 Jun 2026 13:00:19 GMT
+
+https://movieweb.com/prime-agent-zeta-most-watched-action-stream-june-2026/
+
+It delivers action, secrets, and twists you won't see coming.
+---------
+
 # 8 Years Later, Dutton Ranch Made Yellowstone Flashback History In An Unexpected Way
 
 Streaming TV, Yellowstone, Dutton Ranch
