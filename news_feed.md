@@ -1,3 +1,355 @@
+# 10 Near-Perfect 2000s Teen Movies No One Talks About Anymore
+
+Classic Movies, Comedy
+
+Sun, 21 Jun 2026 02:30:21 GMT
+
+https://screenrant.com/2000s-great-teen-movies-no-one-talks-about/
+
+The 2000s had some great teen movies, and there are several great ones from the decade that no one talks about anymore but deserve more love.
+---------
+
+# Forget Fallout & The Last Of Us, Netflix's Upcoming Video Games TV Series Can Beat Both
+
+Streaming TV, Masked Recs
+
+Sun, 21 Jun 2026 02:15:20 GMT
+
+https://screenrant.com/netflix-assassins-creed-beat-fallout-last-of-us/
+
+Fallout and The Last of Us have proven to be incredible video game adaptations, but Netflix’s upcoming series can be even better than both of them.
+---------
+
+# Avengers: Endgame Will Finally End Avatar's Box Office Reign This September
+
+Movies, Avatar, Avengers: Endgame
+
+Sun, 21 Jun 2026 02:00:34 GMT
+
+https://screenrant.com/avatar-box-office-reign-over-avengers-endgame/
+
+Marvel is bringing its biggest blockbuster back to theaters this September, featuring new footage that could close a $124 million box office gap.
+---------
+
+# Prime Video's 5-Part Fantasy Epic Is Guaranteed To End Properly
+
+Streaming TV, Masked Recs
+
+Sun, 21 Jun 2026 02:00:34 GMT
+
+https://screenrant.com/the-legend-of-vox-machina-guaranteed-proper-ending/
+
+A five-season epic, high fantasy show on Prime Video is set to end soon, and audiences won’t have to worry about an underwhelming conclusion.
+---------
+
+# 10 Anime Movies Perfect For Your Next Date Night
+
+Anime
+
+Sun, 21 Jun 2026 02:00:34 GMT
+
+https://screenrant.com/perfect-date-night-anime-movies/
+
+Whether you’re looking to have a good time with a longtime partner or plan a memorable first date, these ten anime movies are perfect for just that
+---------
+
+# Pokémon Grand Colosseum Is The Remaster We Always Wanted
+
+Gaming, Pokemon, Nintendo
+
+Sun, 21 Jun 2026 02:00:34 GMT
+
+https://screenrant.com/pokemon-grand-colosseum-unofficial-remaster/
+
+Pokémon Colosseum is finally getting the remaster it truly deserves, and it is the perfect release for dedicated fans of the legendary game.
+---------
+
+# 10 Horror Movies That Defined The Slasher Genre's Golden Age
+
+Classic Movies, Horror
+
+Sun, 21 Jun 2026 01:45:21 GMT
+
+https://screenrant.com/horror-movies-defined-slasher-genre-golden-age/
+
+The slasher genre was the most popular in the 1980s horror movie scene, and here are the movies that defined that entire Golden Age of films.
+---------
+
+# 10 Best Anime of Spring 2026, Ranked
+
+Anime
+
+Sun, 21 Jun 2026 01:35:40 GMT
+
+https://screenrant.com/best-anime-spring-2026/
+
+These anime from Spring 2026 deserve a place among the best series of the year and are true gems that viewers won't regret giving a chance to.
+---------
+
+# Despite Controversy, Netflix’s New 10-Part Action Hit Has Over 21 Million Views
+
+Streaming TV, Masked Recs
+
+Sun, 21 Jun 2026 01:15:21 GMT
+
+https://screenrant.com/netflix-teach-you-a-lesson-hit-controversy/
+
+A new 10-part limited series on Netflix has proved to be quite controversial, yet, it has managed to garner over 21 million views since its release.
+---------
+
+# Boruto Hints At Romance For Major Series Villain, And It Changes Naruto Lore Forever
+
+Anime, Naruto, Boruto: Two Blue Vortex
+
+Sun, 21 Jun 2026 01:00:23 GMT
+
+https://screenrant.com/boruto-two-blue-vortex-jura-hidari-naruto-lore/
+
+One key bond in the Naruto franchise may shape devastating future events.
+---------
+
+# 10 Open-World Games That Are a 10/10 From Start to Finish
+
+Games, The Legend of Zelda, Grand Theft Auto V, open world
+
+Sun, 21 Jun 2026 02:45:14 GMT
+
+https://www.cbr.com/flawless-open-world-games-list/
+
+The hidden secrets and shocking twists of these open-world games push boundaries and redefine expectations, keeping players hooked from the start.
+---------
+
+# 10 Most Controversial Anime That Are Actually Misunderstood
+
+Anime, Sword Art Online, Attack On Titan
+
+Sun, 21 Jun 2026 02:30:14 GMT
+
+https://www.cbr.com/most-controversial-misunderstood-anime-list/
+
+Anime like Goblin Slayer and Mushoku Tensei are known to spark outrage and debate, but a closer look reveals deeper themes and emotional truths.
+---------
+
+# All 11 Movies From Disney's Experimental Era, Ranked
+
+Movies, Disney, Disney+, Fantasy
+
+Sun, 21 Jun 2026 02:21:14 GMT
+
+https://www.cbr.com/every-disney-experimental-era-movie-ranked/
+
+From 1999 to 2008, Disney's animation studio went through the Experimental Era, producing cult classics as well as a few questionable films.
+---------
+
+# 5 Best Cyberpunk Games Ever Made
+
+Games, Cyberpunk 2077, RPG, PlayStation 5, Cyberpunk
+
+Sun, 21 Jun 2026 02:00:26 GMT
+
+https://www.cbr.com/best-cyberpunk-games-ever-made-list/
+
+The cyberpunk theme in the gaming industry has produced some of the biggest titles, and these incredible games rank among the very top of that list.
+---------
+
+# Komi Can’t Communicate Officially Returns 1 Year Later With a Shocking New Design
+
+Anime, Komi Can't Communicate
+
+Sun, 21 Jun 2026 02:00:26 GMT
+
+https://www.cbr.com/komi-cant-communicate-returns-new-komi-design/
+
+The hit slice-of-life manga series, Komi Can't Communicate makes a surprise return to show fans what ultimately becomes of the series' lead couple.
+---------
+
+# Underrated Fantasy Hit Gets Exciting Return Update
+
+Comics, comics, Dungeons and Dragons, Dungeons & Dragons
+
+Sun, 21 Jun 2026 02:00:26 GMT
+
+https://www.cbr.com/dungeons-dimwits-vol-1-first-fails-release-date-confirmed/
+
+One of the most underrated indie fantasy series of the decade is about to return with the collected edition fans have been missing out on.
+---------
+
+# 10 Darkest Sailor Moon Villains, Ranked
+
+Anime, Sailor Moon
+
+Sun, 21 Jun 2026 01:45:14 GMT
+
+https://www.cbr.com/darkest-sailor-moon-villains-ranked-list/
+
+Sailor Moon villains like Kunzite and Beryl took evil to new depths, from psychological torture and sadistic cruelty to cosmic annihilation.
+---------
+
+# 3 Movie Trilogies Better Than Star Wars
+
+Movies, Star Wars, The Dark Knight, Avatar, The Lord of the Rings
+
+Sun, 21 Jun 2026 01:30:14 GMT
+
+https://www.cbr.com/movie-trilogies-better-than-star-wars-list/
+
+The original Star Wars trilogy remains a beloved part of pop culture, but there are still some other movie trilogies that are even better.
+---------
+
+# 10 Hardest '80s Games, Officially Ranked
+
+Games, Video Games, Nintendo
+
+Sun, 21 Jun 2026 01:25:14 GMT
+
+https://www.cbr.com/hardest-80s-games-ever-super-mario-bros-the-lost-levels/
+
+Good luck trying to beat punishing '80s video games like Super Mario Bros.: The Lost Levels and Dr. Jekyll and Mr. Hyde.
+---------
+
+# All 5 Hunger Games Movies Get New Streaming Home Ahead of New Prequel
+
+Movies, The Hunger Games: The Ballad of Songbirds and Snakes
+
+Sun, 21 Jun 2026 01:10:57 GMT
+
+https://www.cbr.com/the-hunger-games-all-5-movies-netflix-july-2026/
+
+Ahead of this year's new Hunger Games movie, the first five films jump to a new streaming home.
+---------
+
+# 8 Near-Perfect Book-To-TV Adaptations Nobody Remembers
+
+TV, War & Peace, The Little Drummer Girl, Little Fires Everywhere, Alias Grace
+
+Sun, 21 Jun 2026 01:33:14 GMT
+
+https://collider.com/near-perfect-book-tv-show-adaptations-nobody-remembers/
+
+Station Eleven, Alias Grace, The Little Drummer Girl, and more make up our list of near-perfect book-to-TV adaptations nobody remembers.
+---------
+
+# 10 Obscure Animated Shows That Became Cult Classics
+
+TV, Animation, Invader Zim, The Marvelous Misadventures Of Flapjack, The Tick
+
+Sun, 21 Jun 2026 01:03:14 GMT
+
+https://collider.com/obscure-animated-tv-shows-became-cult-classics/
+
+Although animated shows like Invader Zim and The Marvelous Misadventures of Flapjack weren't as popular, they eventually evolved into cult classics.
+---------
+
+# Jason Momoa's Forgotten 3-Part Apple TV Sci-Fi Series Is Still Worth a Weekend Binge
+
+TV Features, See, Apple TV, Jason Momoa, Dave Bautista
+
+Sun, 21 Jun 2026 01:01:15 GMT
+
+https://collider.com/see-jason-momoa-apple-tv-sci-fi-series-weekend-binge/
+
+Apple TV's See stars Jason Momoa in a blind post-apocalyptic world where children are born with the surprising ability to see again.
+---------
+
+# 23 Years Later, Jason Statham’s Crime Masterpiece Is Quietly Soaring on Netflix
+
+Movie News, The Italian Job, Jason Statham, Mark Wahlberg, Charlize Theron
+
+Sun, 21 Jun 2026 01:00:14 GMT
+
+https://collider.com/jason-statham-the-italian-job-netflix-streaming-success-june-2026/
+
+Jason Statham and Charlize Theron starred in the hit heist movie The Italian Job, which is racing to success on the Netflix streaming charts.
+---------
+
+# Gerard Butler's 98-Minute Sci-Fi Flop Officially Gets a Second Chance on HBO Max
+
+Movie News, Greenland, Greenland 2: Migration, Gerard Butler, HBO Max
+
+Sun, 21 Jun 2026 00:45:14 GMT
+
+https://collider.com/gerard-butler-greenland-2-migration-streaming-success-hbo-max-nielsen-ratings/
+
+Gerard Butler's biggest box-office underperformer in years, Greenland 2: Migration, is staging a comeback on HBO Max, according to Nielsen.
+---------
+
+# 10 Greatest Superhero Shows Even Diehards Haven’t Seen
+
+TV, Superhero, Automan, mutant x, Flash Gordon, My Secret Identity
+
+Sun, 21 Jun 2026 00:34:14 GMT
+
+https://collider.com/best-superhero-shows-diehards-missed/
+
+Even if you consider yourself a diehard superhero fan, you probably missed series like Automan, Mutant X, Flash Gordon, and My Secret Identity.
+---------
+
+# Netflix’s Crime Thriller Masterpiece Draws 832 Million Minutes Watched in Just 1 Week
+
+TV News, Nemesis, Netflix, Crime, Thriller
+
+Sun, 21 Jun 2026 00:31:13 GMT
+
+https://collider.com/netflix-crime-series-nemesis-nieslen-ratings-june-2026/
+
+Netflix's cops-and-robbers thriller series Nemesis has emerged as a massive hit for the streamer, according to the latest Nielsen report.
+---------
+
+# Taylor Sheridan’s ‘Yellowstone’ Spin-Off Lassos 725 Million Minutes Viewed With Only 2 Episodes
+
+TV News, Dutton Ranch, Taylor Sheridan, Yellowstone, Paramount Plus
+
+Sun, 21 Jun 2026 00:15:15 GMT
+
+https://collider.com/dutton-ranch-taylor-sheridan-yellowstone-spin-off-nielsen-ratings-viewership-june-2026/
+
+The latest installment of the Yellowstone franchise, Dutton Ranch, delivered tremendous ratings according to the latest Nielsen report. Find out more.
+---------
+
+# Apple TV's All-Time Greatest Spy Thriller Is Officially Changing Its Format
+
+TV Features, Slow Horses, Apple TV, Gary Oldman, Kristin Scott Thomas
+
+Sat, 20 Jun 2026 23:52:16 GMT
+
+https://collider.com/apple-tv-best-spy-thriller-slow-horses-format-change-season-6/
+
+Apple TV's Slow Horses is confirmed to return for Season 6 with a unique format that adapts two of Mick Herron's acclaimed spy novels.
+---------
+
+# Netflix’s Highly Anticipated Sci-Fi Blockbuster Officially Sets Premiere Date
+
+Movie News, The Last House, Greta Lee, Wagner Moura, Netflix
+
+Sat, 20 Jun 2026 23:45:17 GMT
+
+https://collider.com/the-last-house-netflix-premeire-date-august-7-2026/
+
+Netflix's next sci-fi thriller, The Last House, which follows a family trapped in their house, has a premiere date. Get all the details here.
+---------
+
+# 10 Sci-Fi TV Series Reboots That Actually Worked
+
+TV Lists, Sci-Fi
+
+Sun, 21 Jun 2026 02:00:32 GMT
+
+https://movieweb.com/great-sci-fi-tv-reboots/
+
+Turns out, some stories are worth telling twice. We may groan at the announcement of a new reboot, but these ten proved they can actually work.
+---------
+
+# 'Toy Story 6': Confirmation, Cast, Plot, & Everything We Know
+
+Features, Toy Story 5, Toy Story, Everything We Know
+
+Sun, 21 Jun 2026 01:45:19 GMT
+
+https://movieweb.com/toy-story-6-everything-we-know/
+
+If they've done five, why not do five more? Here's what the creative team has said about making another 'Toy Story'.
+---------
+
 # Demon Slayer Infinity Castle's Replacement Is One Of Hulu's Best Kept Secret
 
 Anime, Hulu, Masked Recs
