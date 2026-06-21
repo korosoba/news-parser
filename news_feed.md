@@ -1,3 +1,355 @@
+# Toy Story 5 Shatters Box Office Debut Record For The Franchise (Domestic Top 5)
+
+Movies, Toy Story, Toy Story 5, Pixar, Box Office
+
+Sun, 21 Jun 2026 15:19:40 GMT
+
+https://screenrant.com/toy-story-5-box-office-opening-weekend-domestic-chart-report/
+
+Toy Story 5 smashes an all-time box office record for the franchise with its domestic debut, which includes beating out two billion-dollar hits.
+---------
+
+# Bestselling Fantasy Franchise Dominates Netflix 13 Years After Last Movie Adaptation
+
+Movies, Masked Recs
+
+Sun, 21 Jun 2026 15:19:12 GMT
+
+https://screenrant.com/percy-jackson-movies-netflix-streaming-success-june-2026/
+
+Even though this fantasy franchise based on bestselling novels has not released a new movie in 13 years, it is now dominating Netflix.
+---------
+
+# The Last Of Us Star Reportedly Joins Dexter: Resurrection Season 2 Amid Hiatus
+
+TV, Dexter: Resurrection
+
+Sun, 21 Jun 2026 15:16:14 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-gabriel-luna-set-video-cast/
+
+Dexter: Resurrection and The Last of Us are colliding, as a star has been spotted filming season 2 amid a filming hiatus.
+---------
+
+# PlayStation Plus' 11 Biggest Open-World Games You Can Play Right Now
+
+Gaming, PlayStation Plus, Triple-A Games
+
+Sun, 21 Jun 2026 15:15:21 GMT
+
+https://screenrant.com/playstation-plus-biggest-open-world-games/
+
+There's no shortage of games to play if you have access to the PlayStation Plus Game Catalog, but certain open-world classics shouldn't be missed.
+---------
+
+# 7 Sports Romance TV Shows & Movies On The Way (#1 Is Heated Rivalry Meets Ted Lasso)
+
+Streaming TV, Romance
+
+Sun, 21 Jun 2026 15:15:20 GMT
+
+https://screenrant.com/sports-romance-adaptations-in-development-exciting/
+
+After the success of Heated Rivalry and Off Campus, many sports romances are on the horizon, and these 7 TV shows and movie are especially promising.
+---------
+
+# HBO's Game Of Thrones Franchise Officially Returns With One Of Its Best Rotten Tomatoes Scores Yet
+
+Streaming TV, Game of Thrones, Masked Recs
+
+Sun, 21 Jun 2026 15:00:21 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-premiere-one-best-rotten-tomatoes-scores/
+
+The world of Game of Thrones returns in rip-roaring fashion, as the franchise's latest season earns a stellar debut Rotten Tomatoes score.
+---------
+
+# Pokémon Pokopia Fans Hyped For Upcoming Major Feature
+
+Gaming, Pokemon Pokopia, Triple-A Games, Nintendo Switch 2
+
+Sun, 21 Jun 2026 15:00:21 GMT
+
+https://screenrant.com/pokemon-pokopia-dress-up-outfits-dlc-reaction/
+
+Pokémon Pokopia is getting some major updates with its new DLC, but fans seem far more interested in this long-awaited leaked feature instead.
+---------
+
+# The Boys Officially Returning With New Series Means Starlight's Story Isn't Over
+
+Streaming TV, The Boys
+
+Sun, 21 Jun 2026 14:46:22 GMT
+
+https://screenrant.com/the-boys-vought-rising-starlight-story-not-over/
+
+The Boys is coming back with a brand-new series, and it's looking increasingly likely that Erin Moriarty's Starlight story isn't over yet.
+---------
+
+# Jurassic World Star's New Movie Officially Topples Netflix's #1 True Crime On Streaming Charts
+
+Movies, Masked Recs, Netflix
+
+Sun, 21 Jun 2026 14:44:20 GMT
+
+https://screenrant.com/netflix-voicemails-for-isabelle-movie-june-2026-streaming-charts/
+
+Netflix's new movie with a Jurassic World star officially overtakes the #1 spot from a true crime on the streaming charts in just a few days.
+---------
+
+# Steam Drops Viral 10/10 Hit, And It's Practically Free
+
+Gaming, Steam, PC
+
+Sun, 21 Jun 2026 14:30:20 GMT
+
+https://screenrant.com/meccha-chameleon-steam-viral-game-free/
+
+A brand-new game has just hit Steam, and it's already gone viral. The best part is that it's basically free and the perfect game to play with friends.
+---------
+
+# 10 Strongest Transformers, Ranked By Physical Power
+
+Anime, Transformers, mecha
+
+Sun, 21 Jun 2026 15:15:12 GMT
+
+https://www.cbr.com/strongest-transformers-ranked-physical-power/
+
+Not many Autobots and Decepticons can hold up to some of the mightiest Transformers of them all.
+---------
+
+# Every S-Rank Hunter In Solo Leveling, Ranked by Story Impact
+
+Anime, Solo Leveling
+
+Sun, 21 Jun 2026 15:00:13 GMT
+
+https://www.cbr.com/solo-leveling-s-rank-hunters-ranked-story-impact/
+
+Some S-Rank hunters dominate battlefields yet leave little impact on the overall narrative, while others reshape Sung Jin-Woo's journey
+---------
+
+# AMC's Flashy 3-Part Sci-Fi Show Is an 'Irresistible' Robot Thriller
+
+TV, Humans, Sci-Fi
+
+Sun, 21 Jun 2026 14:30:12 GMT
+
+https://www.cbr.com/amc-humans-irresistible-sci-fi-robot-thriller-series/
+
+Humans is a relevant and thought-provoking sci-fi thriller that subverts the typical tropes of the AI subgenre.
+---------
+
+# 10 Times Levi Ackerman Carried Attack On Titan
+
+Anime, Attack on Titan, Attack On Titan, shonen anime
+
+Sun, 21 Jun 2026 14:15:13 GMT
+
+https://www.cbr.com/levi-ackerman-carried-attack-on-titan/
+
+Levi Ackerman is one of modern anime's most beloved characters, and he stands firmly at the center of Attack On Titan through every dark moment.
+---------
+
+# New Gundam Release Brings Back an Iconic Grunt Mecha and a Tragic Heroine
+
+Anime, Mobile Suit Gundam, merchandise, Gundam
+
+Sun, 21 Jun 2026 14:00:49 GMT
+
+https://www.cbr.com/gundam-lalah-sune-zaku-new-release/
+
+A new Mobile Suit Gundam lottery prize series returns to the Universal Century with collectibles for various Zeon mecha and even Lalah Sune.
+---------
+
+# Nearly 50 Years Later, The Original Spawn Is Confirmed For A Comeback
+
+Comics, Spawn
+
+Sun, 21 Jun 2026 14:00:13 GMT
+
+https://www.cbr.com/spawn-77-todd-mcfarlane-comic-confirmed/
+
+Witness Spawn like he's never been seen before.
+---------
+
+# Netflix Is Officially Adam Sandler's Grown Ups Franchise
+
+Movies, Grown Ups, Grown Ups 2, Netflix
+
+Sun, 21 Jun 2026 13:30:13 GMT
+
+https://www.cbr.com/netflix-grown-ups-3-masterpiece-comedy-franchise-return/
+
+One of the best comedy movies ever is coming back in a big way on Netflix.
+---------
+
+# Winds of Winter Release Date: Why Fans Have Been Waiting 16 Years for the Next Game of Thrones Book
+
+TV, Game Of Thrones, Fantasy
+
+Sun, 21 Jun 2026 13:30:13 GMT
+
+https://www.cbr.com/game-of-thrones-winds-of-winter-release-delay-explained/
+
+Game of Thrones fans have been waiting years for the release date of the upcoming A Song of Ice and Fire novel, The Winds of Winter. But why?
+---------
+
+# 'Toy Story 5' Soars Past Pixar's Biggest Flop in Record-Breaking Box Office Debut
+
+Movie News, Toy Story 5, Pixar, Box Office, Lightyear
+
+Sun, 21 Jun 2026 15:20:39 GMT
+
+https://collider.com/toy-story-5-box-office-overtakes-pixar-biggest-flop-elio/
+
+Toy Story 5 has already overtaken Pixar’s biggest box office flop with record breaking opening weekend in theaters.
+---------
+
+# 'House of the Dragon' Season 3 Hinges on One Major Change From the Books
+
+TV Features, George R.R. Martin, HBO, Game Of Thrones, House of the Dragon
+
+Sun, 21 Jun 2026 15:14:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-hinges-change-from-book-rhaena-nettles/
+
+House of the Dragon may change the story of Rhaena (Phoebe Campbell) from the book Fire & Blood, which would have ripple effects on the franchise.
+---------
+
+# The Best WWII Sleeper Hit of 2026 Destroys the Competition With Digital Blitz
+
+Movie News, Pressure, Brendan Fraser, Andrew Scott, World War II
+
+Sun, 21 Jun 2026 14:45:14 GMT
+
+https://collider.com/pressure-ww2-digital-debut-success-june-2026/
+
+Pressure is gaining momentum after its digital debut, with the WWII thriller emerging as one of 2026’s surprise sleeper hits.
+---------
+
+# 10 Forgotten Animated Movies That Are Almost Perfect
+
+Movie, Animation, Song of the Sea, Mary and Max, Ernest & Célestine
+
+Sun, 21 Jun 2026 14:09:14 GMT
+
+https://collider.com/forgotten-animated-movies-almost-perfect/
+
+From Song of the Sea to Mary and Max, these overlooked animated masterpieces deserve far more praise than they receive today.
+---------
+
+# 10 Near-Perfect HBO Shows That Are Worth Your Time
+
+TV, HBO, Game Of Thrones, Deadwood, Westworld
+
+Sun, 21 Jun 2026 14:05:14 GMT
+
+https://collider.com/near-perfect-hbo-shows-worth-your-time/
+
+Explore HBO series that may not be flawless but are packed with captivating drama and top-notch production values, from Game of Thrones to Deadwood.
+---------
+
+# Apple TV’s 10/10 New Mystery Series Keeps Climbing After Its Finale
+
+TV News, Widow's Bay, Apple TV, Matthew Rhys, Katie Dippold
+
+Sun, 21 Jun 2026 14:00:14 GMT
+
+https://collider.com/widows-bay-apple-streaming-milestone-finale-50-days/
+
+Widow’s Bay has reached a major Apple streaming milestone 50 days after its finale, continuing the 10/10 show’s strong run.
+---------
+
+# After Hundreds of Millions of Subscribers, Netflix’s Next TV Challenge Isn’t Growth
+
+TV Features, Netflix, Streaming, YouTube, Television
+
+Sun, 21 Jun 2026 13:44:14 GMT
+
+https://collider.com/netflix-next-tv-challenge-attention-not-subscriber-growth-opinion/
+
+Netflix has won the subscriber race, but keeping viewers’ attention may be its toughest challenge yet.
+---------
+
+# 'House of the Dragon' Season 3 Schedule: What Time It Premieres on HBO
+
+Features, House of the Dragon
+
+Sun, 21 Jun 2026 15:15:15 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-schedule/
+
+Following a two-year wait, the popular 'Game of Thrones' spin-off series returns for Season 3 this summer.
+---------
+
+# Apple TV's Underrated Sci-Fi Multiverse Saga Is Gearing up for an Exciting Comeback
+
+Features, Dark Matter, Apple TV
+
+Sun, 21 Jun 2026 15:00:19 GMT
+
+https://movieweb.com/dark-matter-season-2-comeback/
+
+'Dark Matter' is such a great show that it surpasses the source material. I've never experienced that before. Read on for more.
+---------
+
+# Netflix's 'Dept. Q' Season 2: Release Date, Plot, & Cast
+
+Features, Dept. Q, Netflix
+
+Sun, 21 Jun 2026 15:00:19 GMT
+
+https://movieweb.com/netflix-dept-q-season-2-release-date-plot-cast/
+
+The second season of 'Dept Q' is set to film soon. Here is everything that you need to know.
+---------
+
+# Best Esports Chinese Dramas to Watch Next
+
+TV Lists, International
+
+Sun, 21 Jun 2026 15:00:19 GMT
+
+https://movieweb.com/esports-chinese-dramas/
+
+Support for professional esports in China increased the production of esports-related dramas that have drawn in millions of viewers. Here's the best.
+---------
+
+# Liam Neeson $226M 90-Minute Action Thriller Becomes Streaming Hit
+
+Movie News, Liam Neeson, Taken, Hot on Streaming
+
+Sun, 21 Jun 2026 14:06:07 GMT
+
+https://movieweb.com/taken-streaming-success-june-2026/
+
+Is there anything quite as satisfying as Neeson saying he'll find some people and kill them?
+---------
+
+# 10 Best Far Side Comics About Dinosaurs
+
+Movie Lists, The Far Side
+
+Sun, 21 Jun 2026 14:00:18 GMT
+
+https://movieweb.com/far-side-best-dinosaurs/
+
+Among Larson's many favorite subjects, dinosaurs became a fan favorite thanks to these hilarious strips.
+---------
+
+# Mark Wahlberg's 82% Rated Real-Life Disaster Movie Is Leaving Netflix
+
+Movie News, Deepwater Horizon, Coming/Leaving Streaming
+
+Sun, 21 Jun 2026 13:56:36 GMT
+
+https://movieweb.com/mark-wahlbergs-deepwater-horizon-leaving-netflix-july/
+
+While not 100% accurate according to some, this dramatization is as realistic and gripping as it gets.
+---------
+
 # All 10 Pixar Movies From The 2020s (Including Toy Story 5), Ranked From Worst To Best
 
 Movies, Pixar, Ranking
