@@ -1,3 +1,322 @@
+# Anya Taylor-Joy Begged To Join $1.1B Sci-Fi Franchise After Scheduling Conflicts Nearly Lost Her Major Role
+
+Movies, Furiosa: A Mad Max Saga, Dune
+
+Sun, 21 Jun 2026 21:49:11 GMT
+
+https://screenrant.com/dune-franchise-alia-anya-taylor-joy-begged-furiosa-conflicts/
+
+Anya Taylor-Joy nearly missed a major role, as scheduling conflicts forced her to beg to join a $1.1 billion franchise before the series concluded.
+---------
+
+# Blade Runner Meets Ghost In The Shell In Netflix's 2-Part Cyberpunk Series
+
+Classic TV, Masked Recs
+
+Sun, 21 Jun 2026 21:30:20 GMT
+
+https://screenrant.com/blade-runner-ghost-in-the-shell-netflix-altered-carbon/
+
+Two of cyberpunk's most iconic franchises are legendary because of their philosophical depth, and this Netflix series picks up where they left off.
+---------
+
+# Hayden Christensen's Anakin Skywalker Returns In New Star Wars Clone Wars-Era Reveal
+
+Streaming TV, Star Wars, Masked Recs
+
+Sun, 21 Jun 2026 21:28:50 GMT
+
+https://screenrant.com/hayden-christensen-anakin-star-wars-clone-wars-armor-reveal/
+
+Hayden Christensen's Star Wars renaissance continues as the franchise slowly gears up for the character's return in Ahsoka's second season.
+---------
+
+# Masters Of The Universe Box Office Hits Major Milestone That’s Still A Fraction Of Its Huge Budget
+
+Movies, Masters of the Universe
+
+Sun, 21 Jun 2026 21:11:18 GMT
+
+https://screenrant.com/masters-of-the-universe-100-million-global-box-office-milestone/
+
+Amazon MGM's Masters of the Universe has finally passed a key box office milestone, despite underperforming in its third weekend of release.
+---------
+
+# Justified Meets Deadwood In AMC’s Underrated 5-Part American Western
+
+Streaming TV, Masked Recs
+
+Sun, 21 Jun 2026 21:00:20 GMT
+
+https://screenrant.com/hell-on-wheels-western-series-like-justified-deadwood/
+
+One Western from the 2010s has become an underappreciated gem in the 2020s despite being one of the most unique shows the genre has to offer.
+---------
+
+# Fable 2 Just Got A Beautiful Remaster You Can Download Now
+
+Gaming, Fable, Fable II
+
+Sun, 21 Jun 2026 21:00:20 GMT
+
+https://screenrant.com/fable-2-2026-remaster-unofficial/
+
+Fable 2 is arguably the best example of the fairytale genre ever produced, and a fan remaster has seemingly given it a whole new lease on life.
+---------
+
+# 10 Near-Perfect Psychological Westerns You Should Watch
+
+Movies, Western
+
+Sun, 21 Jun 2026 21:00:20 GMT
+
+https://screenrant.com/psychological-westerns-near-perfect-to-watch/
+
+The psychological western twists the popular genre with dark storylines and complex characters, and these 10 near-perfect movies are must-sees.
+---------
+
+# It's Officially The End Of An Era For George R.R. Martin's A Song Of Ice And Fire
+
+TV, Game of Thrones
+
+Sun, 21 Jun 2026 20:45:20 GMT
+
+https://screenrant.com/george-rr-martin-winds-of-winter-wait-longer-than-five-asoiaf-books/
+
+The Winds of Winter has still not been published yet, and the Game of Thrones franchise is moving on without it, in several directions at once.
+---------
+
+# All 10 Pixar Movie Sequels Ranked By How They Compare To The Original
+
+Classic Movies, Animation
+
+Sun, 21 Jun 2026 20:45:20 GMT
+
+https://screenrant.com/ranking-pixar-sequels-compared-to-original-movie/
+
+Pixar has had 10 sequels, and not all of them matched up to the movies that came before. Here is a look at all the sequels compared to the originals.
+---------
+
+# 13 Best Items To Sell For Making Money In Zelda: Tears of the Kingdom
+
+Gaming, PC, The Legend of Zelda: Tears of the Kingdom, The Legend of Zelda
+
+Sun, 21 Jun 2026 20:30:21 GMT
+
+https://screenrant.com/zelda-tears-kingdom-best-items-sell-money/
+
+There are a lot of items in Tears of the Kingdom that players may be better off selling than keeping around, like gems, toenails, and weak elixirs.
+---------
+
+# 10 Black Clover Moments That Proved Asta Was Always Wizard King Material
+
+Anime, Black Clover, shonen anime, Shonen
+
+Sun, 21 Jun 2026 21:15:12 GMT
+
+https://www.cbr.com/black-clover-moments-prove-asta-wizard-king-material/
+
+Some of Asta's bravest and most inspiring moments in Black Clover prove he was always suited to be the Wizard King.
+---------
+
+# Alan Ritchson's War Machine is the Perfect Reacher Replacement
+
+Movies, Reacher, War Machine
+
+Sun, 21 Jun 2026 21:00:13 GMT
+
+https://www.cbr.com/alan-ritchson-war-machine-perfect-reacher-replacement/
+
+One of Netflix's most-watched movies ever is getting a sequel, and that's good news for this Reacher star.
+---------
+
+# Anne Hathaway's 10/10 Sci-Fi Masterpiece Is Heading to a New Streaming Home Ahead of The Odyssey
+
+Movies, The Odyssey, Interstellar, anne hathaway
+
+Sun, 21 Jun 2026 20:30:12 GMT
+
+https://www.cbr.com/anne-hathaway-interstellar-sci-fi-hulu-july-2026/
+
+2026 is Anne Hathaway's year, and that also applies to streaming.
+---------
+
+# HBO's 5-Season Crime Masterpiece Should Be Revived as a Movie, According to Main Star
+
+TV, Boardwalk Empire
+
+Sun, 21 Jun 2026 20:19:58 GMT
+
+https://www.cbr.com/boardwalk-empire-movie-shea-whigham/
+
+It may be time for the hit TV show to make a comeback as a feature film.
+---------
+
+# 7 Greatest Horror Anime to Stream on Netflix Right Now
+
+Anime, Netflix, The Summer Hikaru Died, Dorohedoro, Devilman Crybaby
+
+Sun, 21 Jun 2026 20:15:12 GMT
+
+https://www.cbr.com/best-horror-anime-streaming-netflix-now/
+
+Netflix has become one of the best destinations to stream anime, and its library of horror hits is unparalleled!
+---------
+
+# 10 Greatest Opening Shots of the 21st Century
+
+Movie, The Dark Knight, Gravity, Roma, Melancholia
+
+Sun, 21 Jun 2026 21:42:14 GMT
+
+https://collider.com/best-opening-movie-shots-21st-century-ranked/
+
+Modern masterpieces like Gravity, Mad Max: Fury Road, and Gone Girl have some of the absolute greatest opening shots in cinema history.
+---------
+
+# 'Daredevil' Icon's 116-Minute War Masterpiece Is Perfect From Start to Finish
+
+Movie News, Full Metal Jacket, Stanley Kubrick, War, Tubi
+
+Sun, 21 Jun 2026 21:30:12 GMT
+
+https://collider.com/full-metal-jacket-vietnam-war-movie-free-streaming-tubi-july-2026/
+
+One of cinema’s most harrowing war epics is finally returning to streaming, giving a new audience a chance to revisit a classic.
+---------
+
+# 10 Most Underrated Japanese Movies of All Time
+
+Movie, Japan, Outlaw: Gangster VIP, Action, Sci-Fi
+
+Sun, 21 Jun 2026 21:23:14 GMT
+
+https://collider.com/most-underrated-japanese-movies-all-time-ranked/
+
+Some of the most obscure and underrated Japanese movies of all time include Rex: A Dinosaur's Story, G.I. Samurai, and The Beast Shall Die.
+---------
+
+# This $7 Billion Action Franchise Is Quietly Taking Over Streaming Again
+
+Movie News, Fast and Furious, Fast & Furious, Vin Diesel, Peacock
+
+Sun, 21 Jun 2026 21:16:14 GMT
+
+https://collider.com/fast-and-furious-franchise-streaming-success-peacock-june-2026/
+
+Vin Diesel's Fast and Furious franchise is reigning over streaming charts ahead of the final film in the franchise. Read on for more details.
+---------
+
+# Hulu's 9-Part Comedy Series Is the Perfect Weekend Binge for New Girl Fans
+
+TV Features, Not Suitable for Work, New Girl, Hulu, Mindy Kaling
+
+Sun, 21 Jun 2026 21:14:14 GMT
+
+https://collider.com/not-safe-for-work-hulu-comedy-series-new-girl-fans/
+
+Hulu's Not Suitable for Work follows a group of neighbors navigating love and careers, and it's perfect for fans of sitcoms like New Girl.
+---------
+
+# Titus Welliver's Bosch Officially Returns to Prime Video Next Month
+
+TV News, Ballard, Titus Welliver, Bosch, Prime Video
+
+Sun, 21 Jun 2026 21:00:13 GMT
+
+https://collider.com/titus-welliver-bosch-ballard-season-2-prime-video-release-window-july-2026/
+
+Titus Welliver's Bosch officially returns sooner than expected for a brand-new release coming to Prime Video this summer. Here's everything to know.
+---------
+
+# DC Officially Gender-Swaps Another Major Batman Villain in Its 2-Part Series
+
+TV Features, Batman: Caped Crusader, Prime Video, Hamish Linklater, DC
+
+Sun, 21 Jun 2026 20:55:14 GMT
+
+https://collider.com/batman-caped-crusader-gender-swaps-the-mad-hatter-after-penguin/
+
+After changing The Penguin into Oswalda Cobblepot, Batman: Caped Crusader is gender-swapping Rogues Gallery member, The Mad Hatter.
+---------
+
+# 10 Movies To Watch if You Love 'Obsession'
+
+Movie, Obsession, Keeper, Get Out, Companion
+
+Sun, 21 Jun 2026 20:47:13 GMT
+
+https://collider.com/movies-like-obsession/
+
+From Keeper to Possession' these are movies you need to see if you're a fan of Curry Barker's breakout horror smash hit Obsession.
+---------
+
+# Before ‘Blade Runner 2099,’ This 22-Episode Sci-Fi Noir Series Nailed Cyberpunk TV
+
+TV Features, Blade Runner, Total Recall, Total Recall 2070, Sci-Fi
+
+Sun, 21 Jun 2026 20:44:14 GMT
+
+https://collider.com/before-blade-runner-2099-sci-fi-series-watch-total-recall-2070/
+
+Total Recall 2070 blends Blade Runner-style noir and cyberpunk into a forgotten sci-fi series that deserves a fresh look today.
+---------
+
+# Paramount+'s Surprise Sci-Fi Adaptation Is an Impressive Streaming Hit
+
+TV News, Among Us, Video Game, Paramount Plus
+
+Sun, 21 Jun 2026 20:30:13 GMT
+
+https://collider.com/among-us-video-game-series-paramount-plus-streaming-success-june-2026/
+
+The Among Us TV series, based on the viral gaming phenomenon, quickly climbed the streaming charts, ranking among popular shows worldwide.
+---------
+
+# 'Toy Story' Finally Fixes a Plot Hole That's Annoyed Fans For 31 Years
+
+Features, Toy Story 5, Toy Story
+
+Sun, 21 Jun 2026 21:30:18 GMT
+
+https://movieweb.com/toy-story-buzz-freezing-plot-hole-fixed/
+
+'Toy Story 5' offers a tongue-in-cheek acknowledgment of a question audiences have had since the first 'Toy Story' about Buzz Lightyear.
+---------
+
+# The Greatest Western Movie From Every Decade of the Last 100 Years
+
+Features, Western
+
+Sun, 21 Jun 2026 21:00:19 GMT
+
+https://movieweb.com/greatest-western-every-decade/
+
+Neo-Westerns are popular today, but they're just the latest evolution of a genre that has been evolving for as long as motion pictures have existed.
+---------
+
+# Audrey Hepburn's Hitchcockian Thriller Gets Even Better After 63 Years
+
+Features, Audrey Hepburn, Cary Grant, Alfred Hitchcock
+
+Sun, 21 Jun 2026 20:30:19 GMT
+
+https://movieweb.com/audrey-hepburn-charade-4k-release/
+
+Audrey Hepburn. Cary Grant. Star power doesn't get much better, and the classic movie has aged incredibly well.
+---------
+
+# 'Avatar' Star Says Fourth Movie Will Change Everything About the Franchise
+
+Movie News, Avatar 4, Avatar, Sci-Fi
+
+Sun, 21 Jun 2026 20:25:33 GMT
+
+https://movieweb.com/avatar-4-sam-worthington-movie-change/
+
+The upcoming fourth 'Avatar' movie is star Sam Worthington's favorite. Hopefully we get to see it.
+---------
+
 # 15 Years Later, Skyrim Gets The Ending It Deserves
 
 Gaming, The Elder Scrolls, The Elder Scrolls V: Skyrim
