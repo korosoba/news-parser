@@ -1,3 +1,377 @@
+# 15 Years Later, Skyrim Gets The Ending It Deserves
+
+Gaming, The Elder Scrolls, The Elder Scrolls V: Skyrim
+
+Sun, 21 Jun 2026 20:00:20 GMT
+
+https://screenrant.com/skyrim-civil-war-epilogue-quest-new-ending/
+
+Skyrim has all sorts of endings to all sorts of storylines, but one in particular needed a little more at the end to make the journey worthwhile.
+---------
+
+# Hulk's New Era Begins With The Most Brutal Fight In Marvel History, Bar None
+
+Marvel Comics, Hulk
+
+Sun, 21 Jun 2026 20:00:20 GMT
+
+https://screenrant.com/infernal-hulk-vs-wolverine-fantastic-four-avengers/
+
+This year, Hulk takes on each of Marvel's greatest heroes in a series of epic one-versus-one battles leading to his most brutal war in decades.
+---------
+
+# The Best Sex And The City Successor Isn't And Just Like That…
+
+Streaming TV, Masked Recs
+
+Sun, 21 Jun 2026 20:00:20 GMT
+
+https://screenrant.com/sex-and-the-city-sequel-series-bold-type/
+
+Discover how the best modern successor to Sex and the City, capturing friendship, romance, and NYC energy, isn’t part of the franchise at all.
+---------
+
+# Toy Story 5 Easter Egg Paid Homage To Disney's 84-Year-Old Classic
+
+Movies, Toy Story
+
+Sun, 21 Jun 2026 19:37:32 GMT
+
+https://screenrant.com/toy-story-5-easter-egg-bambi-homage-disney-mckenna-harris-explained/
+
+This scene in the newest Pixar movie is a heartwarming nod to a Disney classic.
+---------
+
+# The Return Of An Iconic Horror Franchise Is Officially Less Than 4 Months Away
+
+Streaming TV, Masked Recs
+
+Sun, 21 Jun 2026 19:30:21 GMT
+
+https://screenrant.com/friday-the-13th-franchise-return-crystal-lake-series-october/
+
+The Friday the 13th TV show, Crystal Lake, will bring iconic slasher Jason Voorhees to the small screen when it premieres on October 15.
+---------
+
+# Pokémon Fans Can Finally Explore 8 Regions In One Huge Game
+
+Gaming, Pokemon
+
+Sun, 21 Jun 2026 19:30:21 GMT
+
+https://screenrant.com/pokemon-8-regions-1-game-fire-ash-rom-hack/
+
+Pokémon fan games really have become a genre all of their own, and one release in particular is worth some of your time.
+---------
+
+# TMNT's Horror Era Officially Begins With First Look at Raphael's Darkest Design Yet
+
+Comics, Teenage Mutant Ninja Turtles
+
+Sun, 21 Jun 2026 19:00:21 GMT
+
+https://screenrant.com/teenage-mutant-ninja-turtles-raphael-idw-dark-cover-series/
+
+The TMNT are preparing to try their hand at horror as the franchise releases a brand-new official image of Raphael going full zombie mode.
+---------
+
+# After The Pitt’s Controversial Exits, 6 More Characters Who Deserve Bigger Stories In Season 3
+
+Streaming TV, The Pitt
+
+Sun, 21 Jun 2026 19:00:21 GMT
+
+https://screenrant.com/the-pitt-season-3-characters-deserve-bigger-stories/
+
+After The Pitt cut Supriya Ganesh and other cast members from the ED, there are more characters who deserve to get bigger stories in Season 3.
+---------
+
+# 10 JRPGs Every Final Fantasy Fan Has To Try At Least Once
+
+Gaming, JRPG, Final Fantasy, Triple-A Games, PC
+
+Sun, 21 Jun 2026 19:00:21 GMT
+
+https://screenrant.com/best-jrpgs-like-final-fantasy-games/
+
+Final Fantasy might be the biggest name in JRPGs, but it's not the only franchise that even casual fans of the genre need to check out.
+---------
+
+# Halo 2: Project Cartographer Is The Perfect 25th Anniversary Celebration
+
+Gaming, Halo 2, Halo
+
+Sun, 21 Jun 2026 18:30:20 GMT
+
+https://screenrant.com/halo-2-project-cartogropher-25th-anniversary/
+
+Halo 2: Project Cartographer is a hugely impressive fan project that has just been revitalized for 2026.
+---------
+
+# Marvel Officially Reveals Spider-Man Villain's Redesign Before The Hero's Next MCU Appearance
+
+Comics, Spider-Man, The Vulture
+
+Sun, 21 Jun 2026 20:09:13 GMT
+
+https://www.cbr.com/the-amazing-spider-man-31-vulture-redesign-reveal/
+
+The webslinger's winged foe has never looked so metal.
+---------
+
+# Marvel Reveals WandaVision Spiritual Sequel Before Avengers: Doomsday
+
+Comics, Marvel, Marvel Comics, MCU, WandaVision, Avengers, Vision Quest, Agatha All Along
+
+Sun, 21 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/marvel-wandavision-spiritual-sequel-before-avengers-doomsday/
+
+The Scarlet Witch is returning for Marvel fans ahead of Avengers: Doomsday.
+---------
+
+# This Forgotten 92% RT Gangster Movie Masterpiece Deserves a Rewatch (& It's Leaving Netflix Soon)
+
+Movies, American Hustle
+
+Sun, 21 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/american-hustle-gangster-leaving-netflix-june-2026/
+
+Rewatch this Academy-nominated, character-driven gem before it's gone.
+---------
+
+# After 40 Years, Dragon Ball Revives Goku’s War With the Red Ribbon Army
+
+Anime, Dragon Ball, Shonen Jump
+
+Sun, 21 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/dragon-ball-goku-red-ribbon-army-reveal/
+
+Dragon Ball fans just got a look back at a classic piece of art from earliest days of the entire franchise, and it is gorgeous.
+---------
+
+# 10 Harry Potter Characters Who Outgrew Their Storyline
+
+Movies, Harry Potter
+
+Sun, 21 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/harry-potter-best-and-worst-character-arcs-list/
+
+Harry Potter continues to grow as a franchise, but there are some characters, for better or worse, outgrew their own stories.
+---------
+
+# Final Fantasy 9 Officially Drops New 25th Anniversary Release
+
+Games, Final Fantasy, Square Enix, toys
+
+Sun, 21 Jun 2026 19:40:13 GMT
+
+https://www.cbr.com/final-fantasy-9-official-25th-anniversary-release-september-2026/
+
+Square Enix has announced another Final Fantasy 9 anniversary release, one that will have to tide fans over until a remake is revealed.
+---------
+
+# Euphoria Creator Defends Controversial Season 3 Storyline: 'We Caught a Lot of Criticism'
+
+TV, Euphoria
+
+Sun, 21 Jun 2026 19:27:40 GMT
+
+https://www.cbr.com/euphoria-creator-defends-season-3-storyline/
+
+Euphoria creator Sam Levinson offers a staunch defense of one of the most controversial storylines from the series' third and final season.
+---------
+
+# 10 Anime Characters Who Were Better As Villains
+
+Anime, shonen anime, Naruto, Bleach
+
+Sun, 21 Jun 2026 19:15:12 GMT
+
+https://www.cbr.com/anime-characters-better-as-villains/
+
+Not every villain needs to be saved, and sometimes trying to redeem them actually weakens the anime.
+---------
+
+# USA's 8-Season Crime Show Masterpiece With 89% on RT Just Blew Up on PVOD 12 Years Later
+
+TV, Psych, Comedy, Mystery
+
+Sun, 21 Jun 2026 19:00:14 GMT
+
+https://www.cbr.com/psych-usa-network-crime-comedy-procedural-pvod-success-june-2026/
+
+USA Network's crime series with a loyal cult following, Psych, is rising on PVOD 12 years after finale.
+---------
+
+# Canon Events: A Dark Night Changed Everything for Bruce Banner Before The Hulk
+
+Comics, Hulk, Canon Events, Marvel
+
+Sun, 21 Jun 2026 19:00:14 GMT
+
+https://www.cbr.com/canon-events-bruce-banner-father-murder-created-hulks/
+
+A tragic past is revealed in one of Marvel's darkest moments after years of shocking childhood abuse that shaped Bruce Banner and unleashed the Hulk.
+---------
+
+# Anya Taylor-Joy's Highly Anticipated Crime Thriller Officially Premieres Next Month
+
+TV News, Lucky, Anya Taylor-Joy, Timothy Olyphant, Apple TV
+
+Sun, 21 Jun 2026 20:00:14 GMT
+
+https://collider.com/apple-tv-anya-taylor-joy-crime-thriller-lucky-release-date-july-15-2026/
+
+Anya Taylor-Joy officially returns to Apple TV next month for a new crime thriller with Timothy Olyphant. Find out what we know here.
+---------
+
+# Steven Spielberg Was Denied the Opportunity to Direct an Iconic Spy Franchise
+
+Movie Features, James Bond, 007, Disclosure Day, Cubby Broccoli: The Man Behind Bond, Steven Spielberg
+
+Sun, 21 Jun 2026 20:00:14 GMT
+
+https://collider.com/steven-spielberg-denied-opportunity-to-direct-james-bond-film/
+
+Steven Spielberg wanted to direct a James Bond film and was denied by Albert Cubby Broccoli.
+---------
+
+# If You Like 'The West Wing,' Netflix's 3-Part Political Thriller Series Is Your Next Obsession
+
+TV Features, The Diplomat, Netflix, Thriller, Keri Russell
+
+Sun, 21 Jun 2026 19:41:13 GMT
+
+https://collider.com/the-diplomat-netflix-political-thriller-series-streaming/
+
+Netflix's The Diplomat is a must-watch political thriller that will immerse you in the world of high-stakes politics.
+---------
+
+# All 3 Creature from the Black Lagoon Movies, Ranked
+
+Movie, Creature from the Black Lagoon, The Creature Walks Among Us, Revenge of the Creature, Horror
+
+Sun, 21 Jun 2026 19:38:14 GMT
+
+https://collider.com/creature-from-the-black-lagoon-movies-ranked/
+
+There are three official Creature from the Black Lagoon movies, all made in the 1950s, but which of them stands as the best one overall?
+---------
+
+# 8 Forgotten Time Travel Movies That Are Perfect From Start to Finish
+
+Movie, Sci-Fi, The Butterfly Effect, Source Code, The Time Machine
+
+Sun, 21 Jun 2026 19:20:14 GMT
+
+https://collider.com/forgotten-time-travel-movies-perfect-start-to-finish/
+
+From the underrated Jake Gyllenhaal thriller Source Code to The Butterfly Effect, these forgotten time travel movies are practically flawless.
+---------
+
+# A 'Backrooms' Star's 118-Minute Flop Comes to Streaming 19 Years Later
+
+Movie News, Talk to Me, Chiwetel Ejiofor, Don Cheadle, Netflix
+
+Sun, 21 Jun 2026 19:00:14 GMT
+
+https://collider.com/chiwetel-ejiofor-talk-to-me-streaming-netflix-july-2026/
+
+Backrooms star Chiwetel Ejiofor's forgotten flop, Talk to Me, is coming to Netflix. Here's everything you should know.
+---------
+
+# 6 Classic Sci-Fi Movies Nobody Wants To See a Remake Of
+
+Movie, Sci-Fi, They Live, Akira, Metropolis
+
+Sun, 21 Jun 2026 18:49:14 GMT
+
+https://collider.com/classic-sci-fi-movies-no-remakes/
+
+Here's why classics like Blade Runner and Alien remain untouchable sci-fi masterpieces that absolutely don't need modern remakes.
+---------
+
+# 9 Jilly Cooper Book Characters We Need To See in 'Rivals' Season 3
+
+TV, Rivals, Disney+, Hulu, Drama
+
+Sun, 21 Jun 2026 18:33:13 GMT
+
+https://collider.com/rivals-season-3-jilly-cooper-book-characters/
+
+With the hit series Rivals renewed for Season 3, now is the perfect time to incorporate other book characters from Jilly Cooper's Rutshire Chronicles.
+---------
+
+# Tom Hardy's Hidden Gem Thriller Miniseries Is a Perfect One-Night Binge
+
+Features, Tom Hardy, Thriller
+
+Sun, 21 Jun 2026 20:00:19 GMT
+
+https://movieweb.com/tom-hardy-crime-thriller-miniseries-the-take/
+
+One of Tom Hardy's earliest projects is a short and sweet miniseries. It also has a strong cast that includes Tom Hardy's wife, Charlotte Riley.
+---------
+
+# Prime Video's 6-Part Hard Sci-Fi Masterpiece Makes 2026 Streaming Comeback
+
+TV News, The Expanse, Hot on Streaming, Prime Video, Sci-Fi
+
+Sun, 21 Jun 2026 19:36:36 GMT
+
+https://movieweb.com/the-expanse-scifi-streaming-success-amazon-june-2026/
+
+Prime Video's hard sci-fi epic, 'The Expanse,' is a US digital streaming success in 2026 on the Amazon Store.
+---------
+
+# The Most Important Person Behind 'Taxi Driver' Is Completely Forgotten
+
+Features, Taxi Driver, Robert De Niro, Martin Scorsese
+
+Sun, 21 Jun 2026 19:30:19 GMT
+
+https://movieweb.com/taxi-driver-garth-avery-true-story/
+
+One of the legendary movie's greatest influences was almost lost to history. Get to know one of the hidden figures behind a classic.
+---------
+
+# Every 'Toy Story' Movie Ranked, Including 'Toy Story 5'
+
+Movie Lists, Toy Story, Pixar, Toy Story 5
+
+Sun, 21 Jun 2026 19:00:19 GMT
+
+https://movieweb.com/toy-story-movies-ranked/
+
+Now that 'Toy Story 5' is finally here, it’s the perfect time to revisit the series and rank every installment.
+---------
+
+# 'Toy Story 5' Breaks 2026 Box Office Record With Franchise Best Performance
+
+Movie News, Toy Story 5, Toy Story, Pixar
+
+Sun, 21 Jun 2026 18:34:25 GMT
+
+https://movieweb.com/toy-story-5-box-office-2026/
+
+'Toy Story 5' could well become the biggest movie of 2026.
+---------
+
+# The Video Game Movie Daniel Craig Admitted He Only Took For the "Money!"
+
+Features, Daniel Craig, Lara Croft: Tomb Raider
+
+Sun, 21 Jun 2026 18:30:18 GMT
+
+https://movieweb.com/daniel-craig-tomb-raider-paycheck/
+
+Hollywood actors tend to swear by their projects, but in a moment of candidness, Daniel Craig admitted to a blockbuster he only starred in for money.
+---------
+
 # Netflix's I Will Find You Ending Twist & Villain Change Explained By Harlan Coben And Series Creator
 
 TV, I Will Find You
