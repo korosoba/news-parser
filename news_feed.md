@@ -1,3 +1,267 @@
+# All 10 Pixar Movies From The 2020s (Including Toy Story 5), Ranked From Worst To Best
+
+Movies, Pixar, Ranking
+
+Sun, 21 Jun 2026 13:15:20 GMT
+
+https://screenrant.com/every-pixar-movie-2020s-ranked/
+
+Toy Story 5 has officially arrived, meaning it's a great time to rank every feature film released by Pixar since the turn of the decade.
+---------
+
+# It’s Officially The End Of An Era For The Simpsons
+
+TV, The Simpsons
+
+Sun, 21 Jun 2026 13:01:19 GMT
+
+https://screenrant.com/the-simpsons-format-shift-fewer-episodes-broadcast-season/
+
+The Simpsons has changed the show's release schedule with significantly shorter seasons in recent years, but what does this mean for its future?
+---------
+
+# 20 Years Later, Superman Is Finally Giving Fans The Rematch They've Waited For
+
+Comics, Superman
+
+Sun, 21 Jun 2026 13:00:20 GMT
+
+https://screenrant.com/superman-issue-39-golden-age-superman-return/
+
+The biggest battle in Superman history is coming.
+---------
+
+# 15 Years Later, Smallville Is Back Again At DC
+
+Streaming TV, Masked Recs
+
+Sun, 21 Jun 2026 13:00:20 GMT
+
+https://screenrant.com/smallville-dc-return-my-adventures-with-superman-season-3-kryptonite/
+
+Tom Welling's Smallville sees a core aspect return in DC's latest 2026 release, and it is simply perfect for this beloved version of Superman.
+---------
+
+# Dungeons & Dragons Officially Returns To Its Best Setting On August 4
+
+Gaming, Dungeons and Dragons
+
+Sun, 21 Jun 2026 13:00:20 GMT
+
+https://screenrant.com/dungeons-dragons-dragonlance-book-war-wizard/
+
+As tabletop D&amp;D returns to Eberron, Ravenloft, and Greyhawk, it looks like Dungeons & Dragons is also returning to its best setting this August.
+---------
+
+# 7 Years After The Rise Of Skywalker, Star Wars Is Still Trying To Fix The Sequel Trilogy
+
+Movies, Star Wars, Star Wars: Episode IX - The Rise of Skywalker
+
+Sun, 21 Jun 2026 13:00:20 GMT
+
+https://screenrant.com/star-wars-new-movies-fixing-sequel-trilogy/
+
+The majority of upcoming Star Wars movies and shows are all aimed at fixing the sequel trilogy, and they may succeed in giving them a renaissance.
+---------
+
+# Criminal Minds Officially Replaces Its Undisputed Best Character After 21 Years
+
+Streaming TV, Criminal Minds
+
+Sun, 21 Jun 2026 13:00:20 GMT
+
+https://screenrant.com/criminal-minds-season-19-jj-tyler-replacement/
+
+After more than two decades, Paramount+ has officially found the perfect replacement for Criminal Minds' undisputed best character in season 19.
+---------
+
+# Bee Movie Just Hit A Major Netflix Record 19 Years Later
+
+Movies, Bee Movie, Netflix
+
+Sun, 21 Jun 2026 12:55:20 GMT
+
+https://screenrant.com/bee-movie-netflix-weekly-chart-record/
+
+June 2026 has seen a film in DreamWorks' movie roster best known for the memes around it hit Netflix's charts in an impressive fashion.
+---------
+
+# 6 Best Spy Thriller Series Released In 2026 (So Far)
+
+Streaming TV, Masked Recs
+
+Sun, 21 Jun 2026 12:30:19 GMT
+
+https://screenrant.com/best-spy-thriller-series-2026/
+
+Several espionage shows have been released this year, and these are the best spy thriller series of 2026 so far, with many huge stars, ranked.
+---------
+
+# Jujutsu Kaisen's Yuji Is Actually Stronger Than Gojo, And It's Not Close
+
+Anime, Jujutsu Kaisen
+
+Sun, 21 Jun 2026 12:30:19 GMT
+
+https://screenrant.com/yuji-itadori-stronger-satoru-gojo-jujutsu-kaisen-modulo/
+
+Jujutsu Kaisen's Satoru Gojo has always been billed as one of the strongest characters in anime, but Yuji proves that isn't as true as it once was.
+---------
+
+# 5 Best Anime Series From the 2000s
+
+Anime, Fullmetal Alchemist: Brotherhood, Monster
+
+Sun, 21 Jun 2026 13:15:13 GMT
+
+https://www.cbr.com/best-anime-series-2000s-list/
+
+From groundbreaking storytelling to unforgettable characters, these incredible 2000s anime left a lasting mark on the medium.
+---------
+
+# 10 Most Universally Beloved Action Movies of the Last 30 Years, Ranked
+
+Movies, Action
+
+Sun, 21 Jun 2026 13:00:12 GMT
+
+https://www.cbr.com/beloved-action-movies-last-30-years-list/
+
+Action movies are a staple of cinema, but the last 30 years of movies have delivered something special for the genre.
+---------
+
+# Joe Russo Shares the Advice He Gave Josh Brolin That Unlocked His Thanos Performance
+
+Movies, Marvel Cinematic Universe
+
+Sun, 21 Jun 2026 12:37:13 GMT
+
+https://www.cbr.com/joe-russo-josh-brolin-thanos-avengers-infinity-war-advice/
+
+Joe Russo explains how Josh Brolin shaped Thanos in Avengers: Infinity War after one key note about the MCU villain.
+---------
+
+# Elvira Reveals the Untold Chapters of Her Life in a Unique Memoir Retelling
+
+Comics, Elvira
+
+Sun, 21 Jun 2026 12:00:12 GMT
+
+https://www.cbr.com/yours-cruelly-becoming-elvira-grahic-novel-memoir/
+
+The Mistress of the Dark brings personal details to light in a new comic.
+---------
+
+# 10 The Far Side Comics That Haunted Fans
+
+Comics, The Far Side
+
+Sun, 21 Jun 2026 12:00:12 GMT
+
+https://www.cbr.com/far-side-comics-that-haunted-fans/
+
+Gary Larson's The Far Side turned unsettling moments into darkly funny masterpieces, blending sharp humor with hauntingly unique scenarios.
+---------
+
+# Stephen King’s Favorite Apple TV Show Quietly Becomes a Streaming Hit
+
+TV News, Tatiana Maslany, Maximum Pleasure Guaranteed, Apple TV, Stephen King
+
+Sun, 21 Jun 2026 13:15:14 GMT
+
+https://collider.com/maximum-pleasure-guaranteed-stephen-king-apple-streaming-charts/
+
+Maximum Pleasure Guaranteed, Stephen King’s favorite Apple TV series, is continuing to gain momentum on the streaming charts.
+---------
+
+# The Vampire Thriller Everyone Is Talking About Quietly Soars on Streaming
+
+TV News, The Vampire Lestat, Interview with the Vampire, AMC+, Vampire
+
+Sun, 21 Jun 2026 12:45:13 GMT
+
+https://collider.com/the-vampire-lestat-amc-plus-streaming-success-june-2026/
+
+Discover the hit vampire series that's taking streaming platforms by storm, blending elements of The Vampire Diaries and True Blood.
+---------
+
+# 10 Best Bounty Hunters in Star Wars
+
+Movie, Star Wars, The Book of Boba Fett, The Mandalorian, The Mandalorian and Grogu
+
+Sun, 21 Jun 2026 12:34:14 GMT
+
+https://collider.com/best-star-wars-bounty-hunters-ranked/
+
+From Temuera Morrison's Boba Fett to Pedro Pascal's Din Djarin, the bounty hunters of the larger Star Wars universe are iconic and worthy of praise.
+---------
+
+# Netflix's Remake of a Beloved Western Saga Officially Premieres Next Month
+
+TV News, Little House on the Prairie, Netflix, Luke Bracey
+
+Sun, 21 Jun 2026 12:30:13 GMT
+
+https://collider.com/netflix-little-house-on-the-prairie-streaming-july-2026/
+
+Netflix's reboot of the classic frontier series, Little House on the Prairie, arrives on the streamer this July. Here's everything to know.
+---------
+
+# 10 Sitcoms With Perfect Endings, Ranked
+
+TV, Sitcom, Newhart, Friends, M*A*S*H
+
+Sun, 21 Jun 2026 12:21:13 GMT
+
+https://collider.com/sitcoms-perfect-endings-ranked/
+
+Dive into the top sitcom finales that left fans satisfied and clapping, including endings from Friends, M*A*S*H, and The Good Place.
+---------
+
+# HBO’s 3-Part Fantasy Masterpiece Is the Perfect Weekend Binge
+
+TV News, His Dark Materials, HBO, BBC, Fantasy
+
+Sun, 21 Jun 2026 12:00:12 GMT
+
+https://collider.com/hbo-his-dark-materials-streaming-success-itunes-june-2026/
+
+HBO's adaptation of Philip Pullman's popular fantasy novels is seeing renewed interest on streaming platforms. Get all the details here.
+---------
+
+# HBO's Hit Sports Drama Is Climbing Another Streamer's Charts 29 Weeks Later
+
+TV Features, Heated Rivalry, Romance, LGBTQ, Connor Storrie
+
+Sun, 21 Jun 2026 11:57:13 GMT
+
+https://collider.com/heated-rivalry-sports-drama-hbo-apple-tv-charts/
+
+Heated Rivalry is proving its rewatchability as it climbs the charts on Apple TV six months after its premiere on HBO.
+---------
+
+# Stephen King’s Cancelled Horror Masterpiece Gets a Second Chance on Streaming
+
+TV News, Chapelwaite, Stephen King, Adrien Brody, Horror
+
+Sun, 21 Jun 2026 11:45:13 GMT
+
+https://collider.com/stephen-king-chapelwaite-streaming-success-mgm-plus-june-2026/
+
+Stephen King's short-lived horror series starring Adrien Brody surprises viewers as it trends on MGM+ after cancellation. Here's all to know.
+---------
+
+# Sydney Sweeney’s Criminally Underrated Thriller Is Quietly Soaring on Apple TV
+
+Movie News, Echo Valley, Sydney Sweeney, Julianne Moore, Apple TV
+
+Sun, 21 Jun 2026 11:30:13 GMT
+
+https://collider.com/sydney-sweeney-echo-valley-streaming-success-apple-tv-june-2026/
+
+Sydney Sweeney's neo-noir thriller, Echo Valley, has become a surprise hit on Apple TV, climbing to the top of charts worldwide. Here's all to know.
+---------
+
 # The 20 Best Toy Story Characters, Ranked
 
 Lists, Toy Story
