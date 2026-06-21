@@ -1,3 +1,278 @@
+# 2026 Is Changing One Of Avengers: Endgame's Biggest Storylines
+
+Movies, Avengers: Endgame, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sun, 21 Jun 2026 16:56:20 GMT
+
+https://screenrant.com/avengers-endgame-smart-hulk-story-spider-man-brand-new-day-change/
+
+2026 is set to change one Avengers: Endgame storyline 7 years after the film's debut by retroactively altering how one part of its plot appears.
+---------
+
+# The Greatest Horror Movie Franchise Ever Is Evil Dead & It's Not Close
+
+Movies, Evil Dead, Op-Ed
+
+Sun, 21 Jun 2026 16:40:21 GMT
+
+https://screenrant.com/evil-dead-best-horror-movie-franchise/
+
+Evil Dead is a series with nothing but great films, firmly putting it right at the top when it comes to the best franchise in the genre.
+---------
+
+# Netflix & A24 Pass On Amazon's Dropped Andrew Garfield Movie
+
+Movies, Artificial
+
+Sun, 21 Jun 2026 16:36:47 GMT
+
+https://screenrant.com/artificial-movie-prime-video-drop-netflix-a24-pass/
+
+Amazon isn't the only studio passing on the Andrew Garfield-led movie Artificial, with Netflix and A24 choosing not to acquire the biopic.
+---------
+
+# In One Year, Shonen Jump's Most Underrated Series Is Finally Getting An Anime
+
+Anime, Shonen Jump
+
+Sun, 21 Jun 2026 16:31:20 GMT
+
+https://screenrant.com/beat-motion-shonen-jump-most-underrated-manga/
+
+A new hit anime is coming to Netflix.
+---------
+
+# Apple's 2-Season Godzilla Series With Kurt Russell Perfected A TV Trope
+
+TV, Masked Recs
+
+Sun, 21 Jun 2026 16:31:20 GMT
+
+https://screenrant.com/monarch-godzilla-show-perfect-dual-timeline-actor-trope/
+
+An ingenious meta spin on a familiar casting trope allowed AppleTV's Godzilla series to elevate Kurt Russell's central performance to true greatness.
+---------
+
+# Supergirl’s Nod To The Original Movie Superman Is Exactly What The DCU Needs
+
+Movies, DC Universe, Supergirl
+
+Sun, 21 Jun 2026 16:21:19 GMT
+
+https://screenrant.com/supergirl-cape-christopher-reeve-superman-dc-universe/
+
+2026's Supergirl movie features one major nod to Christopher Reeve's Superman that makes the film and the DCU's future look all the better.
+---------
+
+# The Batman 2’s Villain Rumors Just Got Much More Terrifying
+
+Movies, Originals
+
+Sun, 21 Jun 2026 16:00:21 GMT
+
+https://screenrant.com/video/the-batman-2-s-villain-rumors-just-got-much-more-terrifying/
+
+New rumors about The Batman 2’s villain suggest Matt Reeves could introduce the franchise’s darkest and most terrifying threat yet, reshaping Robert Pattinson’s Gotham in shocking ways.
+---------
+
+# M. Night Shyamalan’s 11-Year-Old Thriller Series Had A Near-Perfect First Season
+
+Classic TV, Masked Recs, M. Night Shyamalan
+
+Sun, 21 Jun 2026 16:00:21 GMT
+
+https://screenrant.com/wayward-pines-near-perfect-first-season-m-night-shyamalan/
+
+Discover M. Night Shyamalan's 2015 sci-fi mystery thriller series with a near-perfect first season, based on a trilogy of novels by Blake Couch.
+---------
+
+# 29 Years Later, DC's Weirdest Superman Movie Has Aged Like Milk
+
+Comics, Steel
+
+Sun, 21 Jun 2026 16:00:21 GMT
+
+https://screenrant.com/steel-dc-most-disrespectful-superman-movie/
+
+When DC Comics made the shocking decision to kill Superman, four characters stepped up to fill the void, but only one would get his own solo movie.
+---------
+
+# Avatar 4 “Completely Changes” The Franchise, Reveals Sam Worthington
+
+Movies, Avatar, Avatar 4
+
+Sun, 21 Jun 2026 15:58:25 GMT
+
+https://screenrant.com/avatar-4-completely-change-franchise-sam-worthington-response/
+
+Sam Worthington shares a new tease about James Cameron’s Avatar 4, revealing that certain elements of the story are game-changers for the franchise.
+---------
+
+# 10 Details in Friends That Don't Make Sense
+
+TV, Friends, NBC, Sitcoms
+
+Sun, 21 Jun 2026 16:30:13 GMT
+
+https://www.cbr.com/friends-things-dont-make-sense-list/
+
+Friends is one of the most beloved sitcoms ever created, but even this amazing show has some weird details that fans find pretty absurd.
+---------
+
+# 10 Most Powerful Ace Scenes One Piece Fans Will Never Forget
+
+Anime, One Piece, shonen anime, Shonen
+
+Sun, 21 Jun 2026 16:15:13 GMT
+
+https://www.cbr.com/one-piece-most-powerful-ace-scenes/
+
+Despite how quickly Portgas D. Ace moved through Eiichiro Oda's series, Luffy's big brother left a lasting impression on One Piece fans.
+---------
+
+# Time Is Running Out to Binge the Perfect Michael Replacement on Netflix
+
+Movies, Michael, Bohemian Rhapsody
+
+Sun, 21 Jun 2026 16:00:13 GMT
+
+https://www.cbr.com/bohemian-rhapsody-biopic-leaving-netflix-june-2026/
+
+Before Michael broke records, another biopic completely took over the world.
+---------
+
+# DC’s New Gothic Series to Spotlight Raven, Zatanna, and More Supernatural Heroes
+
+Comics, DC Comics
+
+Sun, 21 Jun 2026 16:00:13 GMT
+
+https://www.cbr.com/dc-quoth-the-raven-whatever-release-date-confirmed/
+
+DC Comics' next horror fueled anthology is putting Raven, Zatanna, John Constantine, and DC's other darkest heroes in the spookiest spotlight of all.
+---------
+
+# Hatsune Miku Brings a Classic Album Cover to Life in Official Tribute
+
+Anime, Hatsune Miku, merchandise, COLORFUL STAGE! The Movie: A Miku Who Can't Sing
+
+Sun, 21 Jun 2026 16:00:13 GMT
+
+https://www.cbr.com/hatsune-miku-new-nendoroid-album-cover-tribute/
+
+Hatsune Miku is pressing the rewind button with an upcoming new figure that celebrates the cover for a 2009 cover album by the Vocaloid singer.
+---------
+
+# Netflix Killing Its 8-Part Sci-Fi Event With 97% RT Changes the Rules of Streaming TV
+
+TV, The Boroughs, Netflix, Sci-Fi
+
+Sun, 21 Jun 2026 15:30:13 GMT
+
+https://www.cbr.com/netflix-the-boroughs-cancelation-changes-streaming/
+
+Netflix killing a show that brought in high viewer numbers and an almost perfect Rotten Tomatoes score suggests the landscape could be changing.
+---------
+
+# Harry Potter's New Hagrid Confirms Robbie Coltrane & Stephen King Inspiration: 'Some People Won't Like It'
+
+TV, Harry Potter
+
+Sun, 21 Jun 2026 15:24:45 GMT
+
+https://www.cbr.com/harry-potter-nick-frost-hagrid-robbie-coltrane-stephen-king-inspiration/
+
+The actor's inspiration teases he might actually do Hagrid justice.
+---------
+
+# This Godzilla Movie Solved a Giant Monster Problem That Hollywood Still Can't Figure Out
+
+Movie Features, Shin Godzilla, Godzilla, MonsterVerse, Godzilla Minus One
+
+Sun, 21 Jun 2026 16:41:15 GMT
+
+https://collider.com/shin-godzilla-most-unique-kaiju-movie-explained/
+
+Shin Godzilla ditches traditional human drama in favor of government bureaucracy, creating one of the most suspenseful kaiju films ever made.
+---------
+
+# Steven Spielberg's Sci-Fi Return Recoups Reported Budget in Just 8 Days
+
+Movie News, Disclosure Day, Steven Spielberg, Box Office, Emily Blunt
+
+Sun, 21 Jun 2026 16:15:13 GMT
+
+https://collider.com/disclosure-day-box-office-budget-recouped/
+
+Disclosure Day has recouped its reported budget at the box office, marking a major milestone for the film’s theatrical run.
+---------
+
+# 8 War Movies From the '90s That Are Perfect From Start to Finish
+
+Movie, War, The Thin Red Line, Schindler's List, Best Movies Of The 1990s
+
+Sun, 21 Jun 2026 16:06:14 GMT
+
+https://collider.com/90s-war-movies-perfect-from-start-to-finish/
+
+War movie masterpieces like Schindler's List, The Thin Red Line, and Saving Private Ryan represent of the best of the genre in the 1990s.
+---------
+
+# 'Star City' Just Foreshadowed 'For All Mankind's Most Brutal Character Fate
+
+Exclusives, Star City, Apple TV, Sci-Fi, Priya Kansara
+
+Sun, 21 Jun 2026 16:00:14 GMT
+
+https://collider.com/star-city-episode-5-sergei-kgb-arrest-josef-davies-priya-kansara-interview/
+
+Star City's Josef Davies and Priya Kansara discuss Sergei and Lakshmi's roles in the secret Venus mission and Episode 5's pivotal turning point.
+---------
+
+# One of the MCU's Best Kept Secrets Is a 3-Part Hulu Series X-Men Fans Will Love
+
+TV Features, Runaways, MCU, Marvel, Hulu
+
+Sun, 21 Jun 2026 15:54:14 GMT
+
+https://collider.com/runaways-hulu-mcu-superhero-series-x-men/
+
+Hulu's Runaways brings a teen super team together for brilliant storytelling through three excellent seasons.
+---------
+
+# 'Star Wars' Icon Ian McDiarmid Says George Lucas Knew Fans Would Reject the Prequels
+
+Movie News, Star Wars, Ian McDiarmid, George Lucas
+
+Sun, 21 Jun 2026 16:21:23 GMT
+
+https://movieweb.com/star-wars-prequels-george-lucas-ian-mcdiarmid/
+
+As one of only a few actors to appear in all three 'Star Wars' movie trilogies, Ian McDiarmid has lots of behind-the-scenes knowledge to share.
+---------
+
+# Gerard Butler's 'Attila' is the Best 'Spartacus' Follow-up
+
+Features, Gerard Butler
+
+Sun, 21 Jun 2026 16:00:19 GMT
+
+https://movieweb.com/spartacus-replacement-gerard-butler-attila/
+
+Early in his career, Gerard Butler starred in Attila, a two-part miniseries that has much in common with Spartacus.
+---------
+
+# Prime Video Cancels Star-Studded, R-Rated Sitcom 'Kevin' After One Season
+
+TV News, Kevin, Aubrey Plaza, Prime Video
+
+Sun, 21 Jun 2026 15:37:13 GMT
+
+https://movieweb.com/prime-video-cancels-kevin-aubrey-plaza/
+
+Creator Aubrey Plaza hopes that her show 'Kevin' can "find a new owner someday."
+---------
+
 # Toy Story 5 Shatters Box Office Debut Record For The Franchise (Domestic Top 5)
 
 Movies, Toy Story, Toy Story 5, Pixar, Box Office
