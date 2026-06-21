@@ -1,3 +1,311 @@
+# Frieren Is Destined To Become The Next Hunter x Hunter, And That's Not A Good Thing
+
+Anime, Frieren: Beyond Journey's End
+
+Sun, 21 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/frieren-next-hunter-x-hunter-doomed-manga-hiatus/
+
+Frieren: Beyond Journey's End has quickly become one of the most captivating and exciting anime series around, but it's future isn't looking bright.
+---------
+
+# 10 RPGs Releasing In 2027 You Don't Want To Miss
+
+Gaming, RPG, PC
+
+Sun, 21 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/upcoming-rpgs-2027-release/
+
+There are plenty of remarkable RPGs set to be released in the future, like The Witcher 4, but 2027 is already packed with confirmed games.
+---------
+
+# The Elder Scrolls 6 Official Reveal Leaves Gamers Seriously Frustrated
+
+Gaming, The Elder Scrolls, The Elder Scrolls 6
+
+Sun, 21 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/elder-scrolls-6-announced-eight-years-ago-gamers-react/
+
+The Elder Scrolls VI's announcement is now notorious for how much it jumped the gun, and gamers aren't happy after passing a major anniversary.
+---------
+
+# Sadie Sink Gets Comic-Accurate Jean Grey Costume In New Spider-Man 4 Art Following Massive MCU X-Men Rumors
+
+Movies, Spider-Man: Brand New Day, Marvel's X-Men, Marvel Cinematic Universe, X-Men, Spider-Man, Sadie Sink
+
+Sun, 21 Jun 2026 22:51:29 GMT
+
+https://screenrant.com/spiderman-brand-new-day-sadie-sink-xmen-jean-grey-comic-costume-art/
+
+Sadie Sink's heavily rumored Jean Grey in Spider-Man: Brand New Day gets a comic-accurate suit following new big rumors about the X-Men movie reboot.
+---------
+
+# KPop Demon Hunters Rumi Family Fan Theory Addressed By Netflix Exec
+
+Movies, KPop Demon Hunters
+
+Sun, 21 Jun 2026 22:43:08 GMT
+
+https://screenrant.com/kpop-demon-hunters-rumi-twin-fan-theory-netflix-exec-response/
+
+KPop Demon Hunters' Chief Marketing Officer, Marian Lee, reveals whether a major fan theory about the film's protagonist Rumi's family is true.
+---------
+
+# Netflix's Latest Sci-Fi Cancellation Repeats A 6-Year-Old Mistake
+
+Classic TV, Masked Recs
+
+Sun, 21 Jun 2026 22:30:19 GMT
+
+https://screenrant.com/the-boroughs-netflix-sci-fi-canceled-repeat-mistake-dark-crystal/
+
+By canceling this science-fiction series, Netflix has just repeated a six-year-old mistake that was made with an entirely different show.
+---------
+
+# Zelda: Tears Of The Kingdom Finally Getting DLC For Zelda’s 40th Anniversar
+
+Gaming, The Legend of Zelda: Tears of the Kingdom, The Legend of Zelda
+
+Sun, 21 Jun 2026 22:30:19 GMT
+
+https://screenrant.com/zelda-tears-of-the-kingdom-2026-dlc-confirmed/
+
+Fans of The Legend of Zelda: Tears of the Kingdom are in for a treat as Nintendo releases a new collectible amiibo.
+---------
+
+# New Naruto Trailer Finally Lets Hinata Be The True Badass She's Always Been
+
+Anime, Naruto
+
+Sun, 21 Jun 2026 22:30:19 GMT
+
+https://screenrant.com/naruto-trailer-hinata-badass/
+
+Many beloved Naruto characters are getting the spotlight they deserve in new short films, with Hinata being the latest to prove her potential.
+---------
+
+# Sony Just Made Spider-Man’s Marvel Rivals Ultimate Move MCU Canon
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe, Marvel Rivals
+
+Sun, 21 Jun 2026 22:25:20 GMT
+
+https://screenrant.com/sony-spiderman-marvel-rivals-ultimate-move-mcu-brand-new-day/
+
+For those who play Marvel Rivals, one moment from Spider-Man: Brand New Days' latest trailer in particular should have looked awfully familiar.
+---------
+
+# Exclusive: James Bond's Spiritual Successor Is Finally Back, and It's Already Peak Spy Action
+
+Comics, Masked Recs
+
+Sun, 21 Jun 2026 22:23:37 GMT
+
+https://screenrant.com/gun-honey-doubles-down-series-return-exclusive/
+
+James Bond's spiritual successor returns with an explosive new mission, stunning artwork, and a debut issue that delivers peak spy-action thrills.
+---------
+
+# The CW's Canceled Brooklyn Nine-Nine Replacement Is Leaving Netflix Soon
+
+TV, Good Cop/Bad Cop, Comedy, Crime
+
+Sun, 21 Jun 2026 23:00:13 GMT
+
+https://www.cbr.com/the-cw-good-cop-bad-cop-crime-comedy-leaving-netflix-july-2026/
+
+The CW's crime comedy series that was unfairly canceled after 1 season, Good Cop/Bad Cop, is leaving Netflix soon.
+---------
+
+# David Corenswet's $618M Blockbuster That Kicked Off a Franchise Is a Prime Video Sensation Ahead of Follow-Up
+
+Movies, DCU, DC Comics, Superman, Supergirl, Superman: Man of Tomorrow
+
+Sun, 21 Jun 2026 22:30:13 GMT
+
+https://www.cbr.com/david-corenswet-superman-prime-video-sensation-ahead-of-supergirl/
+
+Don't let social media fool you — the world can't get enough of Superman on streaming.
+---------
+
+# Sony Is Officially Rebooting Resident Evil
+
+Movies, Resident Evil
+
+Sun, 21 Jun 2026 22:30:13 GMT
+
+https://www.cbr.com/sony-rebooting-resident-evil/
+
+Sony has its hands on the Resident Evil movie, and Zach Cregger looks to be delivering one of the best outings the franchise has ever had.
+---------
+
+# 5 Greatest PS1 Games Ever Made
+
+Games, Final Fantasy VII, Tekken, Metal Gear Solid, PlayStation (Original)
+
+Sun, 21 Jun 2026 22:15:12 GMT
+
+https://www.cbr.com/greatest-ps1-games-ever-made/
+
+The PlayStation era contained a massive library of memorable titles, but there are a few standout games considered the console's best.
+---------
+
+# Sam Rockwell's $9M Anti-AI Satire Is Dominating Hulu Charts After Flopping in Theaters
+
+Movies, Good Luck, Have Fun, Don't Die
+
+Sun, 21 Jun 2026 22:00:12 GMT
+
+https://www.cbr.com/sam-rockwell-good-luck-have-fun-dont-die-sci-fi-hulu-success-june-2026/
+
+One of the most surprising box office flops of the year is lighting up the streaming charts just months after leaving theaters.
+---------
+
+# Witch Watch Fans Get First Look at Limited-Edition Nico Gaming PC
+
+Anime, WITCH WATCH, Witch Watch, Netflix
+
+Sun, 21 Jun 2026 22:00:12 GMT
+
+https://www.cbr.com/nico-witch-watch-starforge-systems-pc-release/
+
+Nico shines as bright as the sun in this new Witch Watch limited edition gaming PC by Starforge Systems.
+---------
+
+# Universal Monsters' $35M Creature Feature Finds a Second Life on Streaming After Bombing in Theaters
+
+Movies, Universal Monsters, Wolf Man
+
+Sun, 21 Jun 2026 22:00:12 GMT
+
+https://www.cbr.com/universal-monsters-wolf-man-peacock-streaming-success-june-2026/
+
+After a horrifying box office run, Universal Monster's latest offering is finding is coming back to life on streaming.
+---------
+
+# Dexter: Resurrection Season 2 Quietly Casts The Last of Us Star
+
+TV, Dexter: Resurrection
+
+Sun, 21 Jun 2026 21:55:32 GMT
+
+https://www.cbr.com/dexter-resurrection-season-2-gabriel-luna-set-video/
+
+One of the stars of The Last of Us was spotted filming a scene on the set of Dexter: Resurrection Season 2.
+---------
+
+# Hulu’s Highly Anticipated Anime Return Is Officially Less Than 1 Month Away
+
+TV News, Jujutsu Kaisen, Crunchyroll, Hulu, Anime
+
+Sun, 21 Jun 2026 23:00:14 GMT
+
+https://collider.com/jujutsu-kaisen-season-3-hulu-release-date-july-10-2026/
+
+Jujutsu Kaisen Season 3 is set for an exciting Hulu release in 3 weeks, continuing the story of the Culling Game and the battle against Kenjaku.
+---------
+
+# 'Breaking Bad's Best Quote Is Still One of TV's Greatest Lines 13 Years Later
+
+TV Features, Breaking Bad, Vince Gilligan, Bryan Cranston, Anna Gunn
+
+Sun, 21 Jun 2026 22:46:13 GMT
+
+https://collider.com/breaking-bad-best-tv-quote-walter-white-i-am-the-one-who-knocks/
+
+One of Walter White's powerful monologues in Breaking Bad's Season 4 contains the greatest TV quote of all time.
+---------
+
+# Say Hello to Michael Fassbender’s 96% RT Spy Thriller on Its New Streaming Home
+
+Movie News, Black Bag, Michael Fassbender, Cate Blanchett, Peacock
+
+Sun, 21 Jun 2026 22:45:13 GMT
+
+https://collider.com/michael-fassbender-black-bag-streaming-peacock-july-2026/
+
+After finding success on Prime Video, Michael Fassbender's psychological spy thriller is set to premiere on Peacock. Read on for more.
+---------
+
+# Jason Statham's 130-Minute Spy Thriller Quietly Soars on HBO Max
+
+Movie News, Spy, Jason Statham, Melissa McCarthy, HBO Max
+
+Sun, 21 Jun 2026 22:30:13 GMT
+
+https://collider.com/jason-statham-spy-comedy-streaming-success-hbo-max-june-2026/
+
+Paul Fiege's action film starring Melissa McCarthy and a hilarious Jason Statham, is a streaming success as fans eagerly await The Beekeeper 2.
+---------
+
+# The 10 Book Masterpieces That Will Never Work as Movies
+
+Movie, Books, Western, Fantasy, Science Fiction
+
+Sun, 21 Jun 2026 22:22:14 GMT
+
+https://collider.com/best-books-will-never-work-as-movies/
+
+Movies like Timequake and The Catcher in the Rye are notorious for their challenging content, earning a reputation for being apparently unfilmable.
+---------
+
+# 'Bosch' Meets 'The Office' in NBC's 8-Part Crime Series Surging on Streaming
+
+TV News, Brooklyn Nine-Nine, Andy Samberg, NBC, Peacock
+
+Sun, 21 Jun 2026 22:15:13 GMT
+
+https://collider.com/nbc-sitcom-brooklyn-nine-nine-streaming-success-peacock-june-2026/
+
+A beloved 95% RT sitcom is climbing streaming charts again, proving great workplace comedy never really leaves the precinct.
+---------
+
+# 2014's Forgotten Gothic Thriller Gets a Second Chance on Streaming
+
+Movie News, Flowers in the Attic, Kiernan Shipka, Deborah Chow, Netflix
+
+Sun, 21 Jun 2026 22:00:13 GMT
+
+https://collider.com/flowers-in-the-attic-netflix-streaming-success-june-2026/
+
+A controversial adaptation of a bestselling gothic novel is climbing Netflix’s charts, introducing a new audience to its dark tale.
+---------
+
+# 10 Heaviest Neo-Noir Movies of All Time
+
+Movie, Taxi Driver, Chinatown, Affliction, A History of Violence
+
+Sun, 21 Jun 2026 21:55:14 GMT
+
+https://collider.com/heaviest-neo-noir-movies-ranked/
+
+Dark dramatic thrillers like The Place Beyond the Pines, Chinatown, and Blue Ruin are all among the heaviest neo-noir movies ever made.
+---------
+
+# The 10 Greatest Godzilla Monster Action Scenes of All Time
+
+Features, Godzilla
+
+Sun, 21 Jun 2026 22:30:19 GMT
+
+https://movieweb.com/10-greatest-godzilla-monster-action-scenes-list/
+
+Godzilla has battled his way through dozens of enemies across his 70-year history, but some fights and action scenes stand out from the others.
+---------
+
+# John Wick Icon's 97-Minute Survival Thriller Is Resurrected on Free Streaming
+
+Movie News, The Driver, Tubi, Coming/Leaving Streaming, Action, John Wick
+
+Sun, 21 Jun 2026 22:00:18 GMT
+
+https://movieweb.com/the-driver-action-streaming-free-tubi-july-2026/
+
+John Wick and action star Mark Dacascos' zombie survival thriller 'The Driver' streams for free on Tubi in July 2026.
+---------
+
 # Anya Taylor-Joy Begged To Join $1.1B Sci-Fi Franchise After Scheduling Conflicts Nearly Lost Her Major Role
 
 Movies, Furiosa: A Mad Max Saga, Dune
