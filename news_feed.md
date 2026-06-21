@@ -1,3 +1,278 @@
+# The 20 Best Toy Story Characters, Ranked
+
+Lists, Toy Story
+
+Sun, 21 Jun 2026 11:09:20 GMT
+
+https://screenrant.com/best-pixar-toy-story-characters/
+
+Pixar's Toy Story franchise has spanned axross three decades and in that remarkable run, it has introduced some iconic characters. These are the best.
+---------
+
+# Stan Lee Wanted To Renamed "Comics"; Here's What It Says About His Success
+
+Comics, Stan Lee, Marvel
+
+Sun, 21 Jun 2026 11:00:19 GMT
+
+https://screenrant.com/stan-lee-marvel-comics-underground-comix/
+
+Stan Lee once tried to rename "comics" completely.
+---------
+
+# The Walking Dead Fans Praise "Long Overdue" Official Return
+
+Gaming, The Walking Dead, Triple-A Games, PC
+
+Sun, 21 Jun 2026 11:00:19 GMT
+
+https://screenrant.com/walking-dead-official-return-fan-reactions/
+
+While The Walking Dead might have moved past this era years ago, fans have been praising the series' official return in this exciting new release.
+---------
+
+# Xbox Game Pass Is Losing One Of Its Best Games On June 30
+
+Gaming, Xbox Game Pass, PC, Indie
+
+Sun, 21 Jun 2026 11:00:19 GMT
+
+https://screenrant.com/xbox-game-pass-losing-best-game-june-30/
+
+One of the best games on the Xbox Game Pass catalog is leaving the service on June 30, but you still have time to beat it before it’s removed.
+---------
+
+# 30 Years Later: Why 'Lone Star' Still Outshines Modern Prestige TV
+
+Movies, Western, Lone Star, Thriller
+
+Sun, 21 Jun 2026 10:57:20 GMT
+
+https://screenrant.com/30-years-later-lone-star-prestige-tv/
+
+Long before prestige TV, Lone Star told a smarter mystery. Discover why this 1996 neo-Western remains a gold standard for character-driven drama.
+---------
+
+# Bloodborne: Ring Of Madman’s Knowledge Officially Arrives This Summer
+
+Gaming, Bloodborne
+
+Sun, 21 Jun 2026 10:30:20 GMT
+
+https://screenrant.com/bloodborne-ring-of-madmans-knowledge-2026-release-date/
+
+Torch Torch, a Japanese jewelry company, has unveiled a new ring collection inspired by the popular video game Bloodborne.
+---------
+
+# One Piece Live-Action Meets Its Biggest Challenge In Season 3
+
+Streaming TV, One Piece
+
+Sun, 21 Jun 2026 10:00:26 GMT
+
+https://screenrant.com/one-piece-season-3-netflix-showrunner-change-challenge/
+
+The One Piece live-action adaptation has been shattering expectations with its first two seasons, but things are changing ahead of season 3.
+---------
+
+# The Boys Official Return Met With Franchise-Low Review Scores
+
+Gaming, The Boys
+
+Sun, 21 Jun 2026 09:30:21 GMT
+
+https://screenrant.com/the-boys-trigger-warning-review-scores-low/
+
+The Boys are officially back in a whole new medium, but it really hasn't gone down well on arrival with fans and critics alike.
+---------
+
+# Back To The Future's Long-Awaited Official Return Has Fans Hyped
+
+Gaming, Back to the Future
+
+Sun, 21 Jun 2026 09:00:21 GMT
+
+https://screenrant.com/back-to-the-future-return-stuntman-reactions/
+
+Back to the Future is easily one of the most recognizable film franchises in history, and it's back in a very different medium.
+---------
+
+# Spider-Man and The Hand: Marvel’s Darkest Connection Explained
+
+Comics, Spider-Man
+
+Sun, 21 Jun 2026 11:00:13 GMT
+
+https://www.cbr.com/spider-man-and-the-hand-comics-history-explained/
+
+With some fans questioning The Hand's role in Spider-Man: Brand New Day, it may be best to look to the comics for answers.
+---------
+
+# Daniel Craig's Narnia Movie Is Officially the End of An Era For Netflix
+
+Movies, Narnia: The Magician's Nephew, Netflix
+
+Sun, 21 Jun 2026 10:31:12 GMT
+
+https://www.cbr.com/netflix-narnia-movie-reboot-end-of-streaming-era/
+
+Netflix will be making some huge changes with the release of Greta Gerwig's Narnia reboot, starting with The Magician's Nephew in 2027.
+---------
+
+# Apple TV's New 97% RT Sci-Fi Show Is Becoming 1 of TV's Rare Perfect Spinoffs
+
+TV, Star City, For All Mankind, Apple TV, Sci-Fi
+
+Sun, 21 Jun 2026 10:31:12 GMT
+
+https://www.cbr.com/apple-tv-star-city-perfect-for-all-mankind-spinoff/
+
+Not every TV spinoff is as successful as its predecessor, but Apple TV's newest sci-fi series is quickly becoming one of the service's best shows.
+---------
+
+# The Only Horror TV Finale of the 21st Century That Still Holds Up
+
+TV, The Walking Dead, AMC, Horror
+
+Sun, 21 Jun 2026 10:00:20 GMT
+
+https://www.cbr.com/the-walking-dead-best-horror-tv-series-finale/
+
+In recent years, we've seen some great TV shows end with disappointing finales, but there's one that stands the test of time, even four years on.
+---------
+
+# Marvel Is Abandoning Tom Holland's Spider-Man Formula in Brand New Day
+
+Movies, Spider-Man: Brand New Day, MCU, superheroes
+
+Sun, 21 Jun 2026 10:00:20 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-ends-high-school-era/
+
+Spider-Man: Brand New Day takes a big step in a new direction for Tom Holland's fan-favorite superhero.
+---------
+
+# Bleach Officially Sets Release Date for Its Final Anime Season
+
+Anime, Bleach, Bleach: Thousand Year Blood War, Shonen Jump
+
+Sun, 21 Jun 2026 08:48:44 GMT
+
+https://www.cbr.com/bleach-final-anime-season-release-date/
+
+Bleach: Thousand-Year Blood War finally comes to an end with its Season 4 release date officially locked in.
+---------
+
+# 7 Underrated Fantasy Shows Worth Watching Over and Over
+
+TV, Fantasy, The Good Place, What We Do in the Shadows, School Spirits
+
+Sun, 21 Jun 2026 11:09:13 GMT
+
+https://collider.com/underrated-fantasy-shows-worth-watching-over-and-over-ranked/
+
+The Good Place, What We Do in the Shadows, and School Spirits are all among the great yet underrated fantasy TV shows you can watch over and over.
+---------
+
+# Joan Cusack Spills the Truth About 'Toy Story 5's Most Shocking Moment
+
+Interviews, Toy Story 5, Joan Cusack, Greta Lee, Pixar
+
+Sun, 21 Jun 2026 11:01:13 GMT
+
+https://collider.com/toy-story-5-jessie-buzz-marriage-joan-cusack/
+
+Joan Cusack and Greta Lee react to a pivotal 'Toy Story 5' scene, and Cusack exclusively reveals whether Jessie and Buzz live happily ever after.
+---------
+
+# Rosamund Pike’s Near-Perfect Thriller Masterpiece Is a Must-Watch 12 Years Later
+
+Movie News, Gone Girl, Netflix, Rosamund Pike, Ben Affleck
+
+Sun, 21 Jun 2026 11:00:13 GMT
+
+https://collider.com/gone-girl-streaming-netflix-july-2026/
+
+Rosamund Pike's Academy Award-nominated thriller, Gone Girl, also starring Ben Affleck, is coming to Netflix. Here's everything you should know.
+---------
+
+# ‘I Will Find You’ Stars Reveal the Scene They Shot Two Dramatically Different Versions Of
+
+Exclusives, I Will Find You, Harlan Coben, Chi McBride, Logan Browning
+
+Sun, 21 Jun 2026 11:00:13 GMT
+
+https://collider.com/i-will-find-you-harlan-coben-netflix-chi-mcbride-logan-browning/
+
+I Will Find You stars Chi McBride and Logan Browning reveal how they built their father-daughter bond and the scene they shot two versions of.
+---------
+
+# Apple TV Is Sleeping on This Award-Winning Post-Apocalyptic Sci-Fi Adaptation
+
+TV Features, Books, Apple TV, Sci-Fi
+
+Sun, 21 Jun 2026 10:44:13 GMT
+
+https://collider.com/this-is-how-you-lose-the-time-war-sci-fi-deserves-adaptation-apple-tv/
+
+This Is How You Lose the Time War deserves an Apple TV adaptation with its blend of sci-fi and romance in a post-apocalyptic war.
+---------
+
+# Netflix’s Highly Anticipated Sci-Fi Thriller Is Officially Less Than 2 Weeks Away
+
+TV News, Human Vapor, Netflix, Sci-Fi, Crime
+
+Sun, 21 Jun 2026 10:30:13 GMT
+
+https://collider.com/netflix-sci-fi-human-vapor-july-2-2026-premeire-date-plot-details/
+
+Netflix is releasing a television remake of a 66-year-old sci-fi story this July. Get all the details here.
+---------
+
+# 6 Brilliant War Movies No One Remembers Today
+
+Movie, Master and Commander: The Far Side of the World, War, Tigerland, A Bridge Too Far
+
+Sun, 21 Jun 2026 10:01:20 GMT
+
+https://collider.com/perfect-forgotten-war-movies/
+
+From Master and Commander to Tigerland, these near-perfect war movies delivered brilliance, yet never got the recognition they deserved.
+---------
+
+# Gerard Butler’s 107-Minute Action Thriller Is Quietly Taking Over Prime Video
+
+Movie News, Plane, Gerard Butler, Mike Colter, Prime Video
+
+Sun, 21 Jun 2026 10:00:21 GMT
+
+https://collider.com/gerard-butler-plane-streaming-success-prime-video-june-2026/
+
+Gerard Butler's $25 million action thriller has become a sleeper hit on Prime Video, ranking among the top 10 movies in the U.S. Find out more here.
+---------
+
+# This ‘Simpsons’ Episode Is a Masterclass That Officially Gets Better With Every Rewatch
+
+TV Features, The Simpsons, Fox, Hulu, Disney+
+
+Sun, 21 Jun 2026 09:58:19 GMT
+
+https://collider.com/best-simpsons-episode-ever-and-maggie-makes-three-opinion/
+
+The Simpsons' “And Maggie Makes Three” remains a masterclass in storytelling, and its emotional ending only gets better with every rewatch.
+---------
+
+# 2025's Divisive Fantasy Sequel Is Finally Getting a Second Chance on Netflix
+
+Movie News, Wicked, Wicked: For Good, Netflix, Musical
+
+Sun, 21 Jun 2026 09:40:15 GMT
+
+https://collider.com/wicked-for-good-streaming-netflix-july-2026/
+
+The most disappointing sequel of 2025 is joining Netflix this summer. Here's everything you should know about Wicked: For Good.
+---------
+
 # Steam Makes 4 Hit Games Completely Free For 24 Hours
 
 Gaming, Steam, PC
