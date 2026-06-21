@@ -1,3 +1,311 @@
+# Netflix's I Will Find You Ending Twist & Villain Change Explained By Harlan Coben And Series Creator
+
+TV, I Will Find You
+
+Sun, 21 Jun 2026 18:14:32 GMT
+
+https://screenrant.com/harlan-coben-i-will-find-you-netflix-ending-explained-robby-hull/
+
+Exclusive: Book author Harlan Coben and show creator Robby Hull explain the big villain change and major twist at the end of I Will Find You.
+---------
+
+# Disclosure Day Box Office Earns More Than Both Of Steven Spielberg’s Last 2 Movies Put Together
+
+Movies, Disclosure Day, Steven Spielberg, Box Office, Box Office Milestone
+
+Sun, 21 Jun 2026 18:04:32 GMT
+
+https://screenrant.com/disclosure-day-160-million-global-box-office-steven-spielberg-milestone/
+
+Only two weekends after being in theaters, Steven Spielberg's Disclosure Day has already grossed more money than his last two movies put together.
+---------
+
+# Star Wars Outlaws Free Download Officially Yours To Grab For 48 Hours
+
+Gaming, Star Wars, Star Wars Outlaws, Ubisoft
+
+Sun, 21 Jun 2026 18:00:21 GMT
+
+https://screenrant.com/star-wars-outlaws-free-download-48-hours/
+
+Experience the enhanced Star Wars Outlaws with improved gameplay, AI, and more during this exclusive 48-hour free trial on Ubisoft+ before it ends.
+---------
+
+# Hulk Smashes Spider-Man’s Head In Brand New Day Art
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Sun, 21 Jun 2026 17:38:57 GMT
+
+https://screenrant.com/spider-man-brand-new-day-hulk-smash-art/
+
+The fight between the Hulk and Spider-Man gets ugly in Brand New Day art released after the Marvel Cinematic Universe movie's latest trailer.
+---------
+
+# Zelda: Twilight Princess Returns With Heaps Of New Content
+
+Gaming, The Legend of Zelda: Twilight Princess, The Legend of Zelda
+
+Sun, 21 Jun 2026 17:30:20 GMT
+
+https://screenrant.com/zelda-twilight-princess-decomp-update-june-2026/
+
+Zelda: Twilight Princess remains one of the most popular games in the series, so new content is always going to be a good thing.
+---------
+
+# HBO’s 3-Part Western Masterpiece Has One Of Its Best Casts
+
+TV, Masked Recs
+
+Sun, 21 Jun 2026 17:30:20 GMT
+
+https://screenrant.com/deadwood-hbo-best-cast/
+
+HBO has a track record of bringing together some extraordinary ensemble casts, and this three-season Western show has one of its very best.
+---------
+
+# Illumination Boss Reveals Plans For New Movie For $1.3 Billion Franchise
+
+Movies, Illumination
+
+Sun, 21 Jun 2026 17:24:10 GMT
+
+https://screenrant.com/the-secret-life-of-pets-3-sing-3-illumination-ceo-chris-meledandri/
+
+Illumination is bringing more magic to cinemas, as the CEO and founder reveal plans to revive two major franchises and a new original movie.
+---------
+
+# The Original Found Footage Horror Film Was So Controversial The Director Almost Went To Jail
+
+Movies, Cannibal Holocaust
+
+Sun, 21 Jun 2026 17:15:20 GMT
+
+https://screenrant.com/cannibal-holocaust-original-found-footage-horror-movie/
+
+The original found footage horror movie wasn't just scary, it was so controversial that it almost landed its director in jail on murder charges.
+---------
+
+# Shonen Jump's Last New Summer Series Is Demon Slayer Meets Attack on Titan
+
+Anime, Shonen Jump
+
+Sun, 21 Jun 2026 17:01:20 GMT
+
+https://screenrant.com/shonen-jump-demon-slayer-meets-attack-on-titan-cannon-master/
+
+The last of Shonen Jump's three-series wave just unleashed a sprawling world for its readers to enjoy in Cannon Master.
+---------
+
+# 8 Near-Perfect Horror Comedy Shows Everyone Forgets About
+
+Classic TV, Horror
+
+Sun, 21 Jun 2026 17:01:20 GMT
+
+https://screenrant.com/great-horror-comedy-shows-everyone-forgot/
+
+The horror comedy genre is experiencing a resurgence in popularity, and now is the perfect time to revisit these eight forgotten, near-perfect shows.
+---------
+
+# 10 Anime Series That Feel Like a Weekend Vacation
+
+Anime, Isekai, Shojo, Campfire Cooking in Another World With My Absurd Skill
+
+Sun, 21 Jun 2026 18:15:12 GMT
+
+https://www.cbr.com/anime-series-like-weekend-vacation/
+
+Viewers draining their energy during a long work week gravitate toward more mellow anime series, so they can kick back and relax.
+---------
+
+# New Open-World Game Is Pokémon Meets Harry Potter, & It Has Co-Op
+
+Games, Pokemon, Harry Potter
+
+Sun, 21 Jun 2026 18:05:12 GMT
+
+https://www.cbr.com/witchspire-pokemon-harry-potter-open-world-game/
+
+Pokémon and Harry Potter are two of the most beloved media franchises ever, and now they're coming together in a brand-new open world adventure.
+---------
+
+# Bob Odenkirk No-Budget Reimagining of Tommy Wiseau's Cult Classic Unveils Official Trailer
+
+Movies, The Room
+
+Sun, 21 Jun 2026 18:03:23 GMT
+
+https://www.cbr.com/bob-odenkirk-the-room-returns-official-trailer/
+
+One of the worst films of all time is getting an all-star remake, and it's all in the name of some truly phenomenal charities.
+---------
+
+# James Cameron's $90M Perfect Sci-Fi Movie Sets Hulu Release Date 37 Years After Flopping in theaters
+
+Movies, The Abyss
+
+Sun, 21 Jun 2026 18:00:13 GMT
+
+https://www.cbr.com/james-cameron-the-abyss-sci-fi-peacock-july-2026/
+
+One of the greatest James Cameron films of all time is about to have a new streaming home, and fans won't want to miss it when it arrives.
+---------
+
+# Fullmetal Alchemist Officially Launching New Limited Edition Seiko Watch
+
+Anime, Fullmetal Alchemist, Fullmetal Alchemist Brotherhood
+
+Sun, 21 Jun 2026 18:00:13 GMT
+
+https://www.cbr.com/fullmetal-alchemist-edward-elric-seiko-watch-release/
+
+Fans can now order their Edward Elric inspired watch, complete with a transmutation circle, following the latest collaboration.
+---------
+
+# Absolute Batman's Scott Snyder Shows Early Interest In Marvel's Midnight Universe
+
+Comics, Marvel, Absolute Batman, scott snyder
+
+Sun, 21 Jun 2026 18:00:13 GMT
+
+https://www.cbr.com/absolute-batmans-scott-snyder-confirms-marvels-midnight-excitement/
+
+Marvel's Midnight Universe receives early approval from the best person possible.
+---------
+
+# Colin Farrell Confirms His 1 Condition for More Seasons of The Penguin
+
+TV, The Penguin
+
+Sun, 21 Jun 2026 17:43:28 GMT
+
+https://www.cbr.com/the-penguin-season-2-condition-colin-farrell/
+
+Colin Farrell speaks about making more seasons of The Penguin on HBO.
+---------
+
+# 5 Greatest Sega Genesis Games Ever Made
+
+Games, Sonic the Hedgehog, Streets of Rage, Sega Genesis
+
+Sun, 21 Jun 2026 17:15:14 GMT
+
+https://www.cbr.com/greatest-sega-genesis-games-ever-made/
+
+The Sega Genesis broke down barriers for what cartridge gaming could achieve, and these 5 titles catapaulted the console to the top of the industry.
+---------
+
+# Netflix's Superhero Show Officially Sets Hulu Release Date (But There's a Twist)
+
+TV, Marvel, Marvel Comics, MCU, Jessica Jones, Daredevil: Born Again
+
+Sun, 21 Jun 2026 17:06:22 GMT
+
+https://www.cbr.com/netflix-marvel-jessica-jones-officially-sets-hulu-release-date/
+
+The show that helped launch a superhero franchise is finally heading to Hulu.
+---------
+
+# 10 Powerful Supergirl Comic Villains the DCU Needs to Introduce
+
+Comics, DCU, DC Comics
+
+Sun, 21 Jun 2026 17:00:14 GMT
+
+https://www.cbr.com/supergirl-comic-villains-the-dcu-cant-ignore/
+
+The DCU needs to see Supergirl face off against these fearsome foes.
+---------
+
+# The Boroughs Threw a Real Car Off a Cliff | Collider BTS
+
+TV, The Boroughs
+
+Sun, 21 Jun 2026 18:15:13 GMT
+
+https://collider.com/video/the-boroughs-threw-a-real-car-off-a-cliff-collider-bts/
+
+A shocking behind-the-scenes story from The Boroughs reveals how the production pulled off one of its wildest practical stunts by sending a real car over a cliff, showcasing the show's commitment to authentic action, practical effects, and high-stakes filmmaking.
+---------
+
+# Ralph Fiennes’ Criminally Underrated WWI Gem Is Finally Coming to Netflix
+
+Movie News, The Choral, Ralph Fiennes, Netflix, War
+
+Sun, 21 Jun 2026 18:00:14 GMT
+
+https://collider.com/ralph-fiennes-the-choral-netflix-streaming-july-2026/
+
+Harry Potter icon Ralph Fiennes' 2025 war gem is coming to Netflix next month. Here's everything you should know about The Choral.
+---------
+
+# Netflix’s Addictive 6-Part Crime Thriller Is Perfect for ‘Slow Horses’ Fans
+
+TV Features, Netflix, Legends, Steve Coogan, Crime
+
+Sun, 21 Jun 2026 17:58:14 GMT
+
+https://collider.com/legends-netflix-crime-thriller-perfect-slow-horses-fans/
+
+Netflix's Legends is a gripping espionage thriller about the real-life undercover program in '90s Britain that is perfect for Slow Horses fans.
+---------
+
+# 10 Movies That Would Make Great Video Games
+
+Movie, Mad Max: Fury Road, The Raid: Redemption, Battle Royale, Tenet
+
+Sun, 21 Jun 2026 17:31:14 GMT
+
+https://collider.com/movies-that-would-make-great-video-games/
+
+Some action-packed and exciting movies could make for surprisingly great video games, including classics like Kill Bill and Castle in the Sky.
+---------
+
+# Dune Franchise Star's 2025 Masterpiece Will Soon Stream From Start to Finish on Netflix
+
+Movie News, Hamnet, Jessie Buckley, Paul Mescal, Netflix
+
+Sun, 21 Jun 2026 17:00:14 GMT
+
+https://collider.com/hamnet-streaming-netflix-july-2026/
+
+The most emotionally devastating movie of 2026, starring Paul Mescal and Oscar winner Jessie Buckley, is about to arrive on Netflix.
+---------
+
+# 'Dutton Ranch' Confirms a Harsh Reality of Taylor Sheridan's 'Yellowstone' Franchise
+
+Features, Dutton Ranch, Yellowstone
+
+Sun, 21 Jun 2026 18:00:20 GMT
+
+https://movieweb.com/yellowstone-season-6-dutton-ranch-repetitive/
+
+Paramount's newest streaming juggernaut 'Dutton Ranch' is excellent, but it demonstrates an unfortunate reality about the 'Yellowstone' franchise.
+---------
+
+# 'The Witcher's Substitute Series Must Make Up for Henry Cavill's Unsatisfying Geralt Role
+
+Features, Henry Cavill, Warhammer 40k
+
+Sun, 21 Jun 2026 17:30:19 GMT
+
+https://movieweb.com/henry-cavill-witcher-replacement-series-redeem-disappointing-geralt-run/
+
+After botching Henry Cavill's role as Geralt in 'The Witcher,' 'Warhammer 40K' must give the Superman actor the commanding role he deserves
+---------
+
+# The DCU's 6th Project Will Rewrite the Rules of Superhero Media
+
+Features, Superman, DCU, Man of Tomorrow, HBO Max
+
+Sun, 21 Jun 2026 17:00:20 GMT
+
+https://movieweb.com/hbo-superman-spin-off-american-villain-rewrite-superhero-media/
+
+'American Villain' will homage the Silver Age, uniting Gorilla Grodd and Jimmy Olsen- and it could become DC’s next breakout hit.
+---------
+
 # 2026 Is Changing One Of Avengers: Endgame's Biggest Storylines
 
 Movies, Avengers: Endgame, Spider-Man: Brand New Day, Marvel Cinematic Universe
