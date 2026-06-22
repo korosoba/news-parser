@@ -1,3 +1,344 @@
+# Disney's Revival Of Iconic '90s Superhero Series Is Coming To Reclaim Its Crown
+
+Streaming TV, Masked Recs
+
+Mon, 22 Jun 2026 01:45:20 GMT
+
+https://screenrant.com/x-men-97-season-2-disney-return-superhero-crown/
+
+X-Men '97 season 2 continues to impress critics with its early reviews, maintaining the high quality and excitement established in its first season.
+---------
+
+# 10 Low-Budget Movies That Became Huge Box Office Successes
+
+Movies
+
+Mon, 22 Jun 2026 01:45:20 GMT
+
+https://screenrant.com/low-budget-movies-box-office-hits/
+
+The legacy and earnings of these masterful films far surpass their slight budgets, making them among the most successful and profitable movies ever.
+---------
+
+# 5 Best (And 5 Worst) X-Men Romances Happening Right Now
+
+Comics, X-Men
+
+Mon, 22 Jun 2026 01:30:20 GMT
+
+https://screenrant.com/x-men-best-worst-romances-couples-now/
+
+Romance has always been a strong foundation for the X-Men universe, and that fact has survived through every era the franchise has evolved through.
+---------
+
+# How Pixar Has Been Building To Toy Story 5 Since 1995
+
+Movies, Toy Story, Toy Story 5, Pixar
+
+Mon, 22 Jun 2026 01:25:21 GMT
+
+https://screenrant.com/how-pixar-has-been-building-to-toy-story-5-since-1995/
+
+Certain elements featured in Toy Story 5 have been present since the very beginning, with the plot now bringing those themes to the forefront.
+---------
+
+# Obsession Officially Holds A Major 2026 Box Office Record
+
+Movies, Obsession
+
+Mon, 22 Jun 2026 01:15:20 GMT
+
+https://screenrant.com/obsession-movie-highest-grossing-horror-2026-record/
+
+Obsession, starring Inde Navarrette and Michael Johnston, has been a huge horror hit, and it currently holds a record at the 2026 box office.
+---------
+
+# Netflix’s Assassin’s Creed Live-Action Reboot Needs 1 Thing To Succeed, Says OG Star
+
+TV, Assassin's Creed
+
+Mon, 22 Jun 2026 01:12:09 GMT
+
+https://screenrant.com/assassins-creed-netflix-adaptation-success-abubakar-salim/
+
+Exclusive: One of Assassin’s Creed's original stars reveals what Netflix needs to do to create a successful TV adaptation of the franchise.
+---------
+
+# Avengers: Infinity War's Thanos Is The Blueprint For Doctor Doom In Doomsday
+
+Movies, Avengers: Doomsday
+
+Mon, 22 Jun 2026 01:10:22 GMT
+
+https://screenrant.com/avengers-infinity-war-thanos-doctor-doom-doomsday/
+
+Thanos was the centerpiece of the story of Infinity War, and Avengers: Doomsday would benefit from positioning Doctor Doom in a similar role.
+---------
+
+# After 16 Years, Naruto's Next Anime Is Making A Classic Filler Episode Official Canon
+
+Anime, Naruto, Boruto: Two Blue Vortex
+
+Mon, 22 Jun 2026 01:02:37 GMT
+
+https://screenrant.com/naruto-makes-sasuke-filler-episode-canon-cats/
+
+Boruto's manga has subtly confirmed as canon a classic Naruto filler episode with one of Sasuke's most endearing personality traits.
+---------
+
+# A Quiet Place's Next Entry Is Officially Using Silence in a Brand New Way
+
+Comics, A Quiet Place
+
+Mon, 22 Jun 2026 01:00:22 GMT
+
+https://screenrant.com/quiet-place-rising-tide-silence/
+
+The A Quiet Place franchise expands with a new comic series, A Quiet Place: Rising Tides, where silence becomes a hurdle for estranged characters.
+---------
+
+# 10 Greatest Non-Disney Movies To Watch If You Love Toy Story
+
+Movies, Toy Story, Small Soldiers, Child's Play, The Lego Movie, Ted, Welcome to Marwen, Night at the Museum, The Brave Little Toaster, The Indian in the Cupboard
+
+Mon, 22 Jun 2026 01:00:22 GMT
+
+https://screenrant.com/best-non-disney-movies-like-toy-story/
+
+Toy Story is a Disney-Pixar classic, but it's not the only movie where toys come to life, and some studios offer remarkable takes on the idea.
+---------
+
+# Spider-Man: Brand New Day LEGO Sets Officially Revealed for Summer 2026 Release
+
+Movies, Spider-Man: Brand New Day, LEGO
+
+Mon, 22 Jun 2026 01:45:13 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-lego-sets-release/
+
+The LEGO sets inspired by Spider-Man: Brand New Day have officially been unveiled.
+---------
+
+# 5 Forgotten Mecha Anime That Are Perfect From Start to Finish
+
+Anime, mecha, RahXephon, The King of Braves GaoGaiGar
+
+Mon, 22 Jun 2026 01:45:13 GMT
+
+https://www.cbr.com/forgotten-mecha-anime-perfect-from-start-to-finish-list/
+
+Anime's mecha genre is full of unforgettable classics, but groundbreaking titles like RahXephon and GoaGaiGar deserve more love!
+---------
+
+# 10 Heaviest Anime Moments of All Time
+
+Anime, Attack on Titan, Hunter X Hunter
+
+Mon, 22 Jun 2026 01:25:13 GMT
+
+https://www.cbr.com/heaviest-anime-moments-of-all-time-list/
+
+Explore the most impactful anime moments that leave lasting emotional scars, examining the themes of betrayal, sacrifice, and the moral cost.
+---------
+
+# Netflix's 8-Part The White Lotus Replacement Becomes an Instant Global Streaming Hit
+
+TV, The White Lotus
+
+Mon, 22 Jun 2026 01:00:14 GMT
+
+https://www.cbr.com/netflix-oasis-thriller-global-streaming-hit-june-2026/
+
+While filming for The White Lotus Season 4 is underway, Netflix just released the best replacement.
+---------
+
+# The 5 Strongest Mortal Kombat Movie Weapons, Ranked
+
+Movies, Mortal Kombat, Mortal Kombat II
+
+Mon, 22 Jun 2026 01:00:14 GMT
+
+https://www.cbr.com/strongest-mortal-kombat-movie-weapons-list/
+
+The fighters in the 2021 Mortal Kombat film and Mortal Kombat II wielded some mighty weapons, but which were the most powerful?
+---------
+
+# 10 Fantasy Anime Without a Single Flaw
+
+Anime, Fantasy, Fullmetal Alchemist: Brotherhood, Frieren: Beyond Journey's End
+
+Mon, 22 Jun 2026 00:45:13 GMT
+
+https://www.cbr.com/flawless-fantasy-anime-list/
+
+Unforgettable anime like Fullmetal Alchemist: Brotherhood and Made in Abyss masterfully balance pacing, character development, and thematic weight.
+---------
+
+# Alex Garland's Divisive Folk Horror Returns as a Streaming Hit 4 Years Later
+
+Movies, Men
+
+Mon, 22 Jun 2026 00:30:13 GMT
+
+https://www.cbr.com/alex-garland-men-folk-horror-hbo-max-success-june-2026/
+
+One of Alex Garland's most divisive horror films is lighting up the streaming charts on a major platform after a meager box office run.
+---------
+
+# 10 Strongest Video Game Weapons of All Time, Ranked
+
+Games, Video Games, Mario Kart, The Legend of Zelda
+
+Mon, 22 Jun 2026 00:30:13 GMT
+
+https://www.cbr.com/strongest-video-game-weapons-ever-ranked-list/
+
+From the Blue Shell in Mario Kart to the Ultima Weapon in Final Fantasy VII, these powerful video game weapons repeatedly proved their strength.
+---------
+
+# 10 Greatest Rivalries in Sports Anime History
+
+Anime, Slam Dunk, Haikyu!!
+
+Mon, 22 Jun 2026 00:15:13 GMT
+
+https://www.cbr.com/best-sports-anime-rivalries-ever-list/
+
+From Slam Dunk to Captain Tsubasa, these rivalries pushed characters to confront their true selves and redefine what it means to compete.
+---------
+
+# Tim Burton's $362M Sci-Fi Remake With 42% RT Is Heading to Hulu
+
+Movies, tim burton, Planet of the Apes
+
+Mon, 22 Jun 2026 00:01:13 GMT
+
+https://www.cbr.com/tim-burton-sci-fi-planet-of-the-apes-hulu-streaming-july-2026/
+
+Burton's surprising sci-fi blockbuster heads to a new streaming home just in time for summer.
+---------
+
+# 10 New Animated Shows That Are Perfect From Start to Finish
+
+TV, Animation, Arcane, Invincible, Star Wars: Maul - Shadow Lord
+
+Mon, 22 Jun 2026 01:22:14 GMT
+
+https://collider.com/new-animated-shows-perfect-start-to-finish/
+
+Discover the most perfect animated series from the last five years, showcasing the limitless potential of animation, from Arcane to Invincible.
+---------
+
+# ‘Halo’ Officially Returns Next Month With a Highly Anticipated New Release
+
+Video Games, Halo, Microsoft, Xbox One, Sci-Fi
+
+Mon, 22 Jun 2026 01:00:15 GMT
+
+https://collider.com/halo-campaign-evolved-release-xbox-ps5-pc-july-2026/
+
+Halo: Campaign Evolved is bringing the original epic sci-fi FPS that started it all back to life on modern consoles next month. Here's what we know.
+---------
+
+# George Clooney Channels Ted Lasso in This Criminally Underrated Sports Gem
+
+Movie News, Leatherheads, George Clooney, John Krasinski, Netflix
+
+Mon, 22 Jun 2026 00:45:13 GMT
+
+https://collider.com/george-clooney-leatherheads-streaming-netflix-july-2026/
+
+George Clooney's 2008 sports comedy with John Krasinski is coming to Netflix. Here's everything you should know.
+---------
+
+# Netflix Celebrates 'Brand New Day' by Bringing Spider-Man to Streaming
+
+Movie News, Spider-Man: Brand New Day, Spider-Man: Homecoming, Netflix, Tom Holland
+
+Mon, 22 Jun 2026 00:30:13 GMT
+
+https://collider.com/tom-holland-spider-man-homecoming-streaming-netflix-july-2026/
+
+Ahead of Spider-Man: Brand New Day, Netflix has acquired another hit Tom Holland Spidey movie. Read on for more details.
+---------
+
+# One of HBO's Most Thrilling Drama Series of All Time Deserves More Award Recognition
+
+TV Features, Industry, HBO, Drama, Kit Harington
+
+Mon, 22 Jun 2026 00:20:13 GMT
+
+https://collider.com/industry-hbo-best-drama-award-emmys-nomination-snub/
+
+HBO's Industry has repeatedly been shut out from Emmy nominations, but this overlooked gem deserves more recognition.
+---------
+
+# Paramount+'s Most Chilling Crime Thriller Has Stolen Taylor Sheridan's Streaming Crown
+
+TV News, Criminal Minds, Paramount Plus, Taylor Sheridan, Dutton Ranch
+
+Mon, 22 Jun 2026 00:15:13 GMT
+
+https://collider.com/paramount-plus-criminal-minds-taylor-sheridan-streaming-success-june-2026/
+
+In the midst of Season 19, Criminal Minds: Evolution has once again overtaken Taylor Sheridan for the Paramount+ streaming crown. Read on for more.
+---------
+
+# 10 Twisty Thriller Shows You Should Watch in 2026
+
+TV, Thriller, The Americans, Sharp Objects, The Leftovers
+
+Mon, 22 Jun 2026 00:02:14 GMT
+
+https://collider.com/twisty-thriller-shows-to-watch-2026/
+
+Discover the best thriller shows with plot twists to watch this year, including acclaimed series like Severance, Mr. Robot, and Yellowjackets.
+---------
+
+# Apple TV’s New Psychological Thriller Quietly Soars to #1 Worldwide
+
+TV News, Cape Fear, Apple TV, Javier Bardem, Amy Adams
+
+Mon, 22 Jun 2026 00:00:14 GMT
+
+https://collider.com/apple-tv-cape-fear-streaming-success-june-2026/
+
+Apple TV's psychological thriller starring Javier Bardem and Amy Adams, has surged to the #1 spot globally. Read on for more.
+---------
+
+# Netflix Says Goodbye to the Most Divisive Oscar-Winner of All Time
+
+Movie News, Bohemian Rhapsody, Netflix, Rami Malek, Music
+
+Sun, 21 Jun 2026 23:46:13 GMT
+
+https://collider.com/netflix-restricting-access-bohemian-rhapsody-june-2026/
+
+One of the most divisive Oscar-winning blockbusters of the last decade is leaving Netflix, making it harder to revisit. Read on for details.
+---------
+
+# 'The Batman' Stars Reunite in the Political Thriller Taking Over Streaming
+
+Movie News, The Wizard of the Kremlin, Jude Law, Paul Dano, Jeffrey Wright
+
+Sun, 21 Jun 2026 23:31:13 GMT
+
+https://collider.com/jude-law-vladimir-putin-movie-wizard-of-the-kremlin-digital-vod-success-june-2026/
+
+Olivier Assayas' The Wizard of the Kremlin, starring Jude Law as Vladimir Putin, has been discovered by audiences on the PVOD market. Find out more.
+---------
+
+# 8 Near-Perfect Stephen King Movies Nobody Remembers
+
+Movie Lists, Stephen King, Horror, Thriller
+
+Mon, 22 Jun 2026 00:30:19 GMT
+
+https://movieweb.com/stephen-king-movies-nobody-remembers/
+
+With so many Stephen King movies, from originals to adaptations, a few gems were bound to slip through the cracks.
+---------
+
 # Frieren Is Destined To Become The Next Hunter x Hunter, And That's Not A Good Thing
 
 Anime, Frieren: Beyond Journey's End
