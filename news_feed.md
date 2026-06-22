@@ -1,3 +1,377 @@
+# A $6 Billion Sci-Fi Franchise Returns To Disney+ In Just 1 Week
+
+Streaming TV, Masked Recs
+
+Mon, 22 Jun 2026 22:30:20 GMT
+
+https://screenrant.com/x-men-97-marvel-franchise-returns-disney-plus-july-2026/
+
+X-Men '97 season 2 is set to bring the X-Men franchise back on July 1, and it's just the first part of Marvel's plans for the mutant superheroes.
+---------
+
+# Batman's New Costume Is a Gift to DC Cosplayers
+
+DC Comics, Batman
+
+Mon, 22 Jun 2026 22:30:20 GMT
+
+https://screenrant.com/batman-new-costume-perfect-cosplay-inspiration/
+
+Batman’s new costume inspires cosplayers to recreate it. While his classic suit remains iconic, this latest look is pure cosplay gold.
+---------
+
+# Netflix's 8-Year Mystery Thriller Franchise Is So Good, It Already Has 13 Shows
+
+TV, Masked Recs
+
+Mon, 22 Jun 2026 22:01:21 GMT
+
+https://screenrant.com/harlan-coben-netflix-mystery-thriller-franchise-multiple-shows/
+
+Discover the secret 13-show psychological thriller franchise on Netflix that's been quietly captivating audiences for years, up to I Will Find You.
+---------
+
+# Dragon Ball Fans Finally Getting The Release They've Waited Years For
+
+Gaming, Dragon Ball, LEGO, Anime
+
+Mon, 22 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/dragon-ball-lego-leaks-fan-hopes/
+
+The Dragon Ball franchise has been a beloved part of many childhoods for decades, but an upcoming release is something nearly every fan will enjoy.
+---------
+
+# Marvel Announces It's Rebuilding Avengers Franchise Around 6 Key Heroes
+
+Comics, The Avengers
+
+Mon, 22 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/avengers-franchise-reboot-new-team-spider-man/
+
+Spider-Man, Captain Marvel and more...
+---------
+
+# Avatar: The Last Airbender Season 2's Show-Changing Time Jump Confirmed By Netflix Star
+
+TV, Avatar: The Last Airbender, Gordon Cormier, Avatar: The Last Airbender - Season 2
+
+Mon, 22 Jun 2026 21:59:23 GMT
+
+https://screenrant.com/avatar-the-last-airbender-netflix-season-2-time-jump-changes-confirmed/
+
+EXCLUSIVE: When Avatar: The Last Airbender returns on June 25, there will be a time jump for a very unavoidable reason, according to the cast.
+---------
+
+# The Teen Titans Surprisingly Appear In DC Studios' New 2026 Release
+
+Streaming TV, Masked Recs
+
+Mon, 22 Jun 2026 21:56:55 GMT
+
+https://screenrant.com/dc-teen-titans-superman-series-hbo-max-cameo/
+
+DC Studios' new release features the beloved Teen Titans, but there is a twist, and it serves as a fine addition before their upcoming DCU movie.
+---------
+
+# Spider-Man: Brand New Day Star Has Fans Convinced The Symbiote Suit Is Coming Next Month
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Mon, 22 Jun 2026 21:50:22 GMT
+
+https://screenrant.com/spider-man-brand-new-day-symbiote-suit-zendaya-teases/
+
+The global press tour for Spider-Man: Brand New Day has ignited theories about Tom Holland's Peter Parker getting the symbiote suit in the movie.
+---------
+
+# Steam Machine's Originally Planned Price Was Way More Affordable
+
+Gaming, Steam, Gaming Hardware, PC
+
+Mon, 22 Jun 2026 21:50:00 GMT
+
+https://screenrant.com/steam-machine-original-price-lower/
+
+Valve's Steam Machine is one of the most high-profile victims of the component shortage, going from reasonably priced to overly expensive.
+---------
+
+# Netflix Just Added One Of TV’s Most Underrated 5-Season Action Thrillers
+
+Streaming TV, Masked Recs
+
+Mon, 22 Jun 2026 21:42:20 GMT
+
+https://screenrant.com/netflix-recently-added-the-last-ship-thriller-series-watch/
+
+Netflix just added one of the most underrated yet addictive action thriller series in modern TV history, with all five seasons ready to binge tonight.
+---------
+
+# Evil Dead's Underappreciated TV Series Streaming for Free Ahead of New Film
+
+TV, Ash vs Evil Dead
+
+Mon, 22 Jun 2026 22:50:23 GMT
+
+https://www.cbr.com/ash-vs-evil-dead-free-streaming-pluto-tv-june-2026/
+
+All three seasons of the Evil Dead TV series are streaming for free ahead of the franchise's new movie hitting theaters.
+---------
+
+# Witch Hat Atelier Episode 13, Season 1 Finale Review: The FMA Successor
+
+Anime, Witch Hat Atelier, Fullmetal Alchemist
+
+Mon, 22 Jun 2026 22:35:13 GMT
+
+https://www.cbr.com/witch-hat-atelier-episode-13-season-1-finale-review/
+
+Witch Hat Atelier concludes its first season with horrors straight out of the most praised anime classic of all time.
+---------
+
+# 7 Mythical Pokémon Stronger Than Mew
+
+Anime, Pokemon, Pokémon, Pokémon Heroes
+
+Mon, 22 Jun 2026 22:15:13 GMT
+
+https://www.cbr.com/mythical-pokmon-stronger-than-mew/
+
+Mew represents the Pokémon universe as the ultimate mythical entity in the universe, but these seven mythical Pokémon are objectively stronger.
+---------
+
+# MGM+'s Underrated Sci-Fi Horror Returns as a Streaming Sensation Ahead of Season 2
+
+TV, The Institute
+
+Mon, 22 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/the-institute-sci-fi-horror-mgm-plus-success-june-2026/
+
+The show's streaming spike bodes well for its imminent return.
+---------
+
+# Ghost in the Shell Remake Makes a Bold Statement at Annecy 2026: ‘Zero AI Was Used’
+
+Anime, Ghost in the Shell, The Ghost in the Shell, Prime Video
+
+Mon, 22 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/ghost-in-the-shell-remake-zero-ai-use/
+
+In an age where AI has infiltrated the anime industry, Science Saru's new Ghost in the Shell affirms its exclusive usage of traditional animation.
+---------
+
+# We're Officially 6 Months Away From 2026's Biggest Movie Event, Dunesday
+
+Movies, Dune, Avengers: Doomsday
+
+Mon, 22 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/dunesday-biggest-movie-event-of-the-year/
+
+Once upon a time, Barbie and Oppenheimer set the cinematic world ablaze. In 2026, a very familiar event could take place.
+---------
+
+# 10 Best Pokémon to Take on Emerald’s Elite Four, Ranked
+
+Games, Pokemon, Nintendo
+
+Mon, 22 Jun 2026 21:45:12 GMT
+
+https://www.cbr.com/best-pokemon-beat-emerald-elite-four/
+
+Pokémon Emerald offers plenty of creatures to take on the Elite Four, from the Water-Type starter Swampert to the pseudo-Legendary Salamence.
+---------
+
+# House of the Dragon Star Confirms Characters’ Fate: “I Don’t Think There’s Any Coming Back”
+
+TV, House of the Dragon, HBO Max, Fantasy
+
+Mon, 22 Jun 2026 21:38:54 GMT
+
+https://www.cbr.com/house-of-the-dragon-season-3-episode-1-jace-death/
+
+The House of the Dragon star confirms the fate of their character after the Season 3 premiere.
+---------
+
+# A24 Lands $75M Google Investment Through New AI Deal
+
+Movies, A24, Artificial Intelligence
+
+Mon, 22 Jun 2026 21:37:13 GMT
+
+https://www.cbr.com/a24-google-investment-ai-deal/
+
+The investment in toolmaking comes after anti-AI sentiments and controversies surrounding the independent film giant.
+---------
+
+# It's Officially the End of an Era for Steam
+
+Games, Steam
+
+Mon, 22 Jun 2026 21:35:13 GMT
+
+https://www.cbr.com/steam-machine-prices-end-of-era/
+
+The Steam Machine's $1,000+ price tag officially signals the end of an era.
+---------
+
+# The Villain in Every Avengers Movie, Ranked
+
+Movie, The Avengers, Avengers: Age of Ultron, Avengers: Infinity War, Avengers: Endgame
+
+Mon, 22 Jun 2026 22:42:12 GMT
+
+https://collider.com/avengers-movies-villains-ranked/
+
+All four Avengers movies have compelling villains going against Earth's Mightiest Heroes, but who among Loki, Ultron, and Thanos is the absolute best?
+---------
+
+# Netflix's Forgotten 3-Part Steampunk Fantasy Series Is One of Its Best Hidden Gems
+
+TV Features, A Series of Unfortunate Events, Neil Patrick Harris, Lemony Snicket, Netflix
+
+Mon, 22 Jun 2026 22:41:14 GMT
+
+https://collider.com/a-series-of-unfortunate-events-netflix-steampunk-fantasy/
+
+Netflix's three-season adaptation of Lemony Snicket's A Series of Unfortunate Events is one of the streamer's best hidden gems.
+---------
+
+# 3 Perfect Prime Video Movies You Need To Stream Before the End of June
+
+Movie, Prime Video, A Cinderella Story, Milk, Bloodsport
+
+Mon, 22 Jun 2026 22:34:13 GMT
+
+https://collider.com/best-movies-prime-video-june-2026/
+
+A Cinderella Story, Bloodsport, and Milk make up our list of the best Prime Video movies to stream before the end of June 2026.
+---------
+
+# Dean Norris Returns to the World of 'Breaking Bad' Next Year
+
+TV News, Breaking Bad, Dean Norris, Vince Gilligan
+
+Mon, 22 Jun 2026 22:30:13 GMT
+
+https://collider.com/breaking-bad-oral-history-book-dean-norris/
+
+Dean Norris is penning an oral history of Breaking Bad, and it'll be here sooner than you think. Read on for more.
+---------
+
+# 10 Greatest Fantasy Movie Climaxes of All Time
+
+Movie, The Lord of the Rings: The Two Towers, Pan's Labyrinth, Pirates of the Caribbean: The Curse of the Black Pearl, Wicked
+
+Mon, 22 Jun 2026 22:15:13 GMT
+
+https://collider.com/best-fantasy-movie-climaxes-ranked/
+
+The best climaxes in the history of the fantasy genre can be found in classics like The Lord of the Rings: The Two Towers and Jason and the Argonauts.
+---------
+
+# ‘House of the Dragon’ Officially Expands With New ‘Game of Thrones’ Release
+
+TV News, House of the Dragon, Game Of Thrones, HBO, A Knight Of The Seven Kingdoms
+
+Mon, 22 Jun 2026 22:00:13 GMT
+
+https://collider.com/game-of-thrones-dragonfire-house-of-the-dragon-mobile-game/
+
+Game of Thrones: Dragonfire is a new mobile strategy game inspired by House of the Dragon, letting fans command dragons and build their own legacy.
+---------
+
+# The Next Reacher Story Will Officially Arrive in October
+
+TV News, Reacher, Jack Reacher, Alan Ritchson, Lee Child
+
+Mon, 22 Jun 2026 21:45:13 GMT
+
+https://collider.com/new-reacher-book-release-date-october-2026/
+
+Discover the next thrilling adventure of Jack Reacher in Chain Reaction, the 31st novel by Lee Child and Andrew Child, set to release this year.
+---------
+
+# 10 Most Perfect Miniseries of the Last 20 Years
+
+TV, TV Miniseries, Chernobyl, The Penguin, Over the Garden Wall
+
+Mon, 22 Jun 2026 21:36:13 GMT
+
+https://collider.com/most-perfect-miniseries-last-20-years-ranked/
+
+HBO's The Penguin, Cartoon Network's Over the Garden Wall, and Netflix's When They See Us are among the best miniseries of the last 20 years.
+---------
+
+# Netflix Just Made a Power Move That Will Change Streaming Forever
+
+TV News, Hot Ones, Sean Evans, Netflix, Home Run Derby
+
+Mon, 22 Jun 2026 21:35:25 GMT
+
+https://collider.com/netflix-hot-ones-extra-heat-release-july-13/
+
+Hot Ones: Extra Heat sets Netflix release date, bringing Sean Evans’ spicy interview format to major Netflix events.
+---------
+
+# The Best Action Movie of 2025 Has Officially Taken Over Prime Video
+
+Movie Features, Superman, Prime Video, James Gunn, David Corenswet
+
+Mon, 22 Jun 2026 21:31:14 GMT
+
+https://collider.com/prime-video-superman-james-gunn-dc-studios-top-10/
+
+Ahead of Supergirl's premiere, Superman is soaring to the top of Prime Video's streaming charts.
+---------
+
+# 'Predator' Director Tackling Another Legendary Mythical Monster
+
+Movie News, Dan Trachtenberg
+
+Mon, 22 Jun 2026 22:22:39 GMT
+
+https://movieweb.com/predator-director-freddy-the-13th/
+
+The '10 Cloverfield Lane' filmmaker is switching across mediums to tell an unexpected horror story.
+---------
+
+# Stephen King's Divisive '90s Thriller Seeks Redemption on Free Streaming
+
+Movie News, Apt Pupil, Coming/Leaving Streaming, Stephen King
+
+Mon, 22 Jun 2026 22:00:19 GMT
+
+https://movieweb.com/stephen-king-apt-pupil-free-streaming-tubi-july-2026/
+
+When it comes to controversial Stephen King projects, this one is the most problematic.
+---------
+
+# A Sci-Fi Thriller Nobody Remembers Makes ‘The X-Files' Feel Small
+
+Features, The X-Files, Falling Skies, Comparison Recommendation
+
+Mon, 22 Jun 2026 22:00:19 GMT
+
+https://movieweb.com/the-x-files-falling-skies-comparison/
+
+'The X-Files' is a popular sci-fi series starring Gillian Anderson and David Duchovny, but there is another great show that fans should watch.
+---------
+
+# Nicolas Cage Answers the Call of Duty in Trailer for New Video Game Expansion
+
+Movie News, Nicolas Cage
+
+Mon, 22 Jun 2026 21:29:04 GMT
+
+https://movieweb.com/nicolas-cage-call-of-duty-black-ops-7-trailer/
+
+The latest trailer for Activision's 'Call of Duty: Black Ops 7' features a hard-hitting Nicolas Cage as a playable character.
+---------
+
 # Sherlock's Best Character Is Returning In A Surprising New Spinoff
 
 Streaming TV, Masked Recs
