@@ -1,3 +1,311 @@
+# Spider-Man: Brand New Day’s Confirmed X-Men Villain Is The Start Of A New Era For The MCU
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe, X-Men
+
+Mon, 22 Jun 2026 03:53:54 GMT
+
+https://screenrant.com/spider-man-brand-new-day-x-men-villain-new-mcu-era/
+
+The reveal of a new X-Men villain in Spider-Man: Brand New Day may very well be the start of a new era for the MCU that goes well beyond Secret Wars.
+---------
+
+# Spider-Man: Brand New Day Trick Overcame 1 R-Rated Issue
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Mon, 22 Jun 2026 03:51:54 GMT
+
+https://screenrant.com/spider-man-brand-new-day-websling-trick-punisher-language-censored/
+
+Spider-Man's powers can do more than defeat villains; they can also help the MCU avoid an R-rating, according to Tom Holland.
+---------
+
+# Anya Taylor-Joy Fought To Change The Ending To Her $174M Sci-Fi Action Prequel: “It Was Hard Won”
+
+Movies, Anya Taylor-Joy, Furiosa: A Mad Max Saga
+
+Mon, 22 Jun 2026 03:49:49 GMT
+
+https://screenrant.com/furiosa-ending-change-anya-taylor-joy-fight/
+
+Anya Taylor-Joy opened up about how much she argued with Furiosa: A Mad Max Saga director George Miller to change the prequel's ending.
+---------
+
+# 35 Years Ago, Dragon Ball Changed Anime Forever With One Moment The Series Never Topped
+
+Anime, Dragon Ball, Dragon Ball Z
+
+Mon, 22 Jun 2026 03:33:33 GMT
+
+https://screenrant.com/dragon-ball-changed-anime-forever-super-saiyan/
+
+Dragon Ball's iconic first Super Saiyan transformation by Goku 35 years ago set the stage for the franchise's lasting impact on anime and manga.
+---------
+
+# 27 Years Later, Batman: The Animated Series' 10/10 Replacement Is Still This Cartoon Network Series No One Talks About
+
+Anime, Cartoon Network, Masked Recs
+
+Mon, 22 Jun 2026 03:30:23 GMT
+
+https://screenrant.com/batman-animated-series-replacement-the-big-o/
+
+This fascinating and cerebral mystery packaged with similarly Dark Deco noir elements to the 1990s classic should be on every Batman fan's radar.
+---------
+
+# 5 Lord Of The Rings Characters Even Sauron Feared
+
+Movies, The Lord of the Rings
+
+Mon, 22 Jun 2026 03:30:23 GMT
+
+https://screenrant.com/lord-of-the-rings-characters-sauron-feared/
+
+Sauron posed a devastating threat to Middle-earth in The Lord of the Rings, but there were some characters that he feared could ruin everything.
+---------
+
+# Netflix's 10/10 Vampire Series With High RT Score Was Designed To Be Binged
+
+Classic TV, Masked Recs
+
+Mon, 22 Jun 2026 03:15:24 GMT
+
+https://screenrant.com/midnight-mass-netflix-made-for-single-watch/
+
+Netflix is the streaming home of an acclaimed vampire show that only lasts for seven episodes and has seemingly been designed to be binged in one go.
+---------
+
+# The Yellowstone Franchise's 15 Saddest Deaths
+
+Streaming TV, Yellowstone, 1883, 1923
+
+Mon, 22 Jun 2026 03:00:23 GMT
+
+https://screenrant.com/yellowstone-franchise-saddest-deaths-ranked-list/
+
+The Yellowstone franchise comprises sad deaths that orbit its central Dutton family, emboldening Taylor Sheridan's neo-Western drama with tragedy.
+---------
+
+# Chainsaw Man's New Trailer Teases The Series' Most Nightmarish Devil Of All Time
+
+Anime, Chainsaw Man
+
+Mon, 22 Jun 2026 03:00:21 GMT
+
+https://screenrant.com/chainsaw-man-assassins-arc-teases-darkness-devil/
+
+MAPPA's latest trailer for Chainsaw Man's Assassins Arc teases the arrival of the series' most terrifying devil yet, the Darkness Devil.
+---------
+
+# Apple TV’s 9-Part Sci-Fi Show Is So Good, It’s Returning Despite Finishing Its Book’s Story
+
+Streaming TV, Masked Recs
+
+Mon, 22 Jun 2026 03:00:21 GMT
+
+https://screenrant.com/dark-matter-apple-tv-book-finish-return/
+
+Apple TV’s 9-part sci-fi show has already exhausted its source material, but it is so incredible that it is returning for another season in 2026.
+---------
+
+# 5 Anime Movies That Are Genuine Masterpieces
+
+Anime, Your Name, Spirited Away
+
+Mon, 22 Jun 2026 03:45:14 GMT
+
+https://www.cbr.com/anime-movies-genuine-masterpieces-list/
+
+Between Tokyo Godfathers, Spirited Away, and Your Name, there are some truly standout anime movies that have earned the title of all-time classics!
+---------
+
+# Fox Buying Roku Is the End of an Era for Free Streaming
+
+Movies, Tubi, Tubi TV, fox, Roku
+
+Mon, 22 Jun 2026 03:40:14 GMT
+
+https://www.cbr.com/roku-fox-sale-end-of-free-streaming-era/
+
+Tubi TV and the Roku Channel were once streaming rivals, but they're now being brought under the same banner in a buyout sure to have consequences.
+---------
+
+# 15 Superman Powers Clark Never Used in Smallville
+
+TV, Smallville, The CW, Superman
+
+Mon, 22 Jun 2026 03:30:13 GMT
+
+https://www.cbr.com/superman-powers-clark-didnt-use-in-smallville-list/
+
+Many of Superman's original abilities had been phased out by the time Smallville aired in 2001, while others were restricted.
+---------
+
+# Best Final Fantasy Boss Fights, Officially Ranked
+
+Games, Final Fantasy, Video Games, RPG
+
+Mon, 22 Jun 2026 03:16:16 GMT
+
+https://www.cbr.com/best-final-fantasy-boss-fights-ranked-kist/
+
+The Final Fantasy franchise has no shortage of amazing boss fights in each game, but ten of them stand out as the greatest of all time.
+---------
+
+# All 13 G-Rated Pixar Movies, Ranked
+
+Movies, Pixar, Toy Story, WALL-E
+
+Mon, 22 Jun 2026 03:00:14 GMT
+
+https://www.cbr.com/every-g-rated-pixar-movie-ranked/
+
+Some of the best movies that Pixar ever produced, including the original Toy Story trilogy, WALL-E, and Ratatouille, are accessible to all audiences.
+---------
+
+# 10 Nintendo Switch RPGs That Are 10/10, No Notes
+
+Games, Nintendo Switch, Dragon Quest XI S, Xenoblade Chronicles 3
+
+Mon, 22 Jun 2026 02:45:13 GMT
+
+https://www.cbr.com/flawless-nintendo-switch-rpgs-list/
+
+Nintendo Switch RPGs like Dragon Quest XI and Shin Megami Tensei V are so good, they might just redefine the genre.
+---------
+
+# Obi-Wan Foreshadowed His Own Death in Attack of the Clones
+
+Movies, Star Wars, Star Wars: Episode II - Attack of the Clones, Sci-Fi
+
+Mon, 22 Jun 2026 02:31:13 GMT
+
+https://www.cbr.com/star-wars-obi-wan-attack-of-the-clones-greatest-sci-fi-line/
+
+A single sentence spoken by Ewan McGregor's version of Obi-Wan Kenobi in the Star Wars prequels subtly highlighted the tragedy of the Skywalker Saga.
+---------
+
+# 7 Forgotten 2000s Manga Series That Have Aged Like Fine Wine
+
+Anime, Manga
+
+Mon, 22 Jun 2026 02:31:13 GMT
+
+https://www.cbr.com/forgotten-2000s-manga-series-aged-well-list/
+
+Manga series like Aria and Bokurano explored themes like grief, class, mortality, and the cost of power, and have only gotten better over the years.
+---------
+
+# How House of the Dragon Changes the Battle of the Gullet From the Book
+
+TV, House of the Dragon, HBO Max, Game Of Thrones
+
+Mon, 22 Jun 2026 02:31:13 GMT
+
+https://www.cbr.com/house-of-the-dragon-changes-battle-of-the-gullet-from-fire-and-blood/
+
+House of the Dragon's biggest battle yet makes a few key changes from Fire & Blood, further setting the show apart from the source material.
+---------
+
+# Stargate Fan Petition to Rescue Amazon's Canceled Reboot Nears 100K Signatures
+
+TV, Stargate
+
+Mon, 22 Jun 2026 02:00:25 GMT
+
+https://www.cbr.com/stargate-amazon-reboot-petition-100k-signatures/
+
+Stargate fans are not happy about Prime Video pulling the plug on the anticipated reboot series.
+---------
+
+# Before ‘Yellowstone’, Taylor Sheridan’s Breakout Role Was In This 4-Part Neo-Noir
+
+TV Features, Veronica Mars, Taylor Sheridan, Yellowstone, Kristen Bell
+
+Mon, 22 Jun 2026 03:44:15 GMT
+
+https://collider.com/before-yellowstone-taylor-sheridan-veronica-mars-guest-spot/
+
+Taylor Sheridan might be known for launching a fleet of successful TV shows with 'Yellowstone', but he owes his success to 'Veronica Mars'.
+---------
+
+# Two of Lestat's Biggest Ghosts "Haunt the Narrative" in 'The Vampire Lestat' Episode 3
+
+Exclusives, The Vampire Lestat, AMC, Interview with the Vampire, Drama
+
+Mon, 22 Jun 2026 02:20:13 GMT
+
+https://collider.com/the-vampire-lestat-episode-3-magnus-nicky-damien-atkins-joseph-potter-interview/
+
+The Vampire Lestat's Damien Atkins and Joseph Potter discuss Lestat's relationships with Magnus and Nicki and how their characters haunt the series.
+---------
+
+# 'The Vampire Lestat's Brutal Interview Is the Season's Best Episode Yet | Review
+
+TV Reviews, Interview with the Vampire, The Vampire Lestat, Sam Reid, AMC+
+
+Mon, 22 Jun 2026 02:15:13 GMT
+
+https://collider.com/the-vampire-lestat-episode-3-review/
+
+In The Vampire Lestat Episode 3, Lestat's interview delves deep into his past trauma, revealing painful memories and unhealed wounds.
+---------
+
+# 'House of the Dragon's Cast Unpacks Filming Westeros' Deadliest Sea Battle
+
+Exclusives, House of the Dragon, HBO, Steve Toussaint, Abubakar Salim
+
+Mon, 22 Jun 2026 02:05:13 GMT
+
+https://collider.com/house-of-the-dragon-season-3-cast-interview-battle-of-the-gullet/
+
+House of the Dragon's cast breaks down the highly anticipated Battle of the Gullet and its most devastating losses in the Season 3 premiere.
+---------
+
+# HBO's 'House of the Dragon' Begins Its Penultimate Act With an Explosive Season 3 Premiere | Review
+
+TV Reviews, House of the Dragon, HBO Max, Game Of Thrones, Fantasy
+
+Mon, 22 Jun 2026 02:00:26 GMT
+
+https://collider.com/house-of-the-dragon-season-3-premiere-review/
+
+Dragon battles and shocking betrayals ignite the war for the Iron Throne in House of the Dragon's explosive Season 3 premiere.
+---------
+
+# 'House of the Dragon' Season 3 Makes Change That'll Have Major Repercussions
+
+Features, House of the Dragon
+
+Mon, 22 Jun 2026 02:16:21 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-gullet-book-changes/
+
+This deviation from the book will change everything about a certain plot point.
+---------
+
+# Aemond's Creepy Kiss Scene in 'House of the Dragon' Season 3, Explained
+
+Features, House of the Dragon
+
+Mon, 22 Jun 2026 02:05:19 GMT
+
+https://movieweb.com/aemond-alicent-kiss-scene-house-of-the-dragon/
+
+'House of the Dragon' Season 3 has introduced one of the show's most shocking moments so far in its premiere, and it's worth breaking down.
+---------
+
+# 'House of the Dragon' S3E1 Recap & Review: Action Fantasy Epic Starts Strong
+
+TV Reviews, House of the Dragon
+
+Mon, 22 Jun 2026 02:00:31 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-episode-1-recap-review/
+
+The Season 3 premiere of 'House of the Dragon' barrels forward with a bold sprint, laying the groundwork for the war to come.
+---------
+
 # Disney's Revival Of Iconic '90s Superhero Series Is Coming To Reclaim Its Crown
 
 Streaming TV, Masked Recs
