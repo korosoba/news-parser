@@ -1,3 +1,443 @@
+# Sherlock's Best Character Is Returning In A Surprising New Spinoff
+
+Streaming TV, Masked Recs
+
+Mon, 22 Jun 2026 21:16:20 GMT
+
+https://screenrant.com/moriarty-rising-sherlock-holmes-origin-story-series/
+
+Sherlock's best character is officially returning in their own show, but there are a couple of twists in this interesting yet surprising project.
+---------
+
+# Princess Leia’s Star Wars Return Revealed In New Prequel
+
+Movies, Star Wars, Leia Organa
+
+Mon, 22 Jun 2026 21:15:50 GMT
+
+https://screenrant.com/princess-leia-return-star-wars-edge-of-the-abyss-excerpt/
+
+Princess Leia's return to Star Wars is revealed in a prequel featuring Bail Organa, Mon Mothma, Saw Gerrera, Luthen Rael, and Kleya Marki.
+---------
+
+# Michael Fassbender’s Hit New 10-Part Spy Thriller Season Debuts To Rare Rotten Tomatoes Score
+
+TV, Masked Recs, Michael Fassbender, Paramount Plus
+
+Mon, 22 Jun 2026 21:03:33 GMT
+
+https://screenrant.com/the-agency-season-2-rotten-tomatoes-score-debut/
+
+Michael Fassbender's spy thriller is finally returning this week on Paramount+, and the show has already landed its official Rotten Tomatoes score.
+---------
+
+# DC Officially Explains the Rules for Flash's New Superpower
+
+DC Comics, The Flash
+
+Mon, 22 Jun 2026 21:01:21 GMT
+
+https://screenrant.com/flash-new-powers-rules-precognition/
+
+Mister Terrific is here to help us all understand Flash's new abilities.
+---------
+
+# Netflix’s 8-Part Sci-fi Show Is So Good, It Just Broke Netflix’s Season Renewal Record
+
+TV, Masked Recs
+
+Mon, 22 Jun 2026 21:01:21 GMT
+
+https://screenrant.com/black-mirror-season-8-renewal-breaks-netflix-record/
+
+One Netflix sci-fi series broke records with its season 8 renewal recently, but it's no surprise since the acclaimed hit show could go on forever.
+---------
+
+# 2026's Weirdest Action Movie Is Also One Of The Year's Best Films
+
+Movies, Good Luck, Have Fun, Don't Die, Recommendation
+
+Mon, 22 Jun 2026 21:01:21 GMT
+
+https://screenrant.com/good-luck-have-fun-dont-die-weird-great-movie/
+
+Good Luck, Have Fun, Don't Die is one of the strangest movies you'll ever see, yet it also stands as one of the best films released in 2026.
+---------
+
+# Chrono Trigger Remake Officially Unites Gamers Everywhere
+
+Gaming, Chrono Trigger
+
+Mon, 22 Jun 2026 21:01:21 GMT
+
+https://screenrant.com/chrono-trigger-remake-hopes-fan-poll/
+
+Remakes are everywhere these days, but gamers have had their say on the biggest one of all: Chrono Trigger.
+---------
+
+# DC Unveils New Green Lantern, And Their Identity Is Unbelievable
+
+DC Comics, Green Lantern
+
+Mon, 22 Jun 2026 21:01:21 GMT
+
+https://screenrant.com/wonder-woman-new-green-lantern-matriarch/
+
+DC reveals how its new supervillain has acquired an iconic hero's signature weapon to cement themselves as a brand-new, evil Green Lantern.
+---------
+
+# Hoppers 2 Gets Sequel Series & 'Pixar Meets Fast & Furious' Story Pitches From Star
+
+Movies, Hoppers, Pixar
+
+Mon, 22 Jun 2026 20:52:20 GMT
+
+https://screenrant.com/hoppers-2-sequel-ideas-response-cast-team/
+
+EXCLUSIVE: After the success of the animated Pixar film Hoppers, one of its stars reveals what the plot of a potential sequel should be.
+---------
+
+# Disney's Star Wars Officially Calls Out The Prequels' Power Scaling
+
+Streaming TV, Masked Recs
+
+Mon, 22 Jun 2026 20:45:21 GMT
+
+https://screenrant.com/maul-shadow-lord-darth-vader-fight-power-scaling/
+
+Disney has officially changed the way George Lucas envisioned the Star Wars prequel trilogy's Jedi and Sith power scaling through Maul - Shadow Lord.
+---------
+
+# 3 Open-World Games Even Better Than Elden Ring
+
+Games, Video Games, Elden Ring
+
+Mon, 22 Jun 2026 21:16:13 GMT
+
+https://www.cbr.com/open-world-games-that-beat-elden-ring/
+
+Elden Ring is the best open-world game of this generation, but these three games from the past are even better.
+---------
+
+# Marvel Confirms Classic X-Men Story Reboot And We Have The First Look
+
+Comics, X-Men
+
+Mon, 22 Jun 2026 21:02:26 GMT
+
+https://www.cbr.com/marvel-xmen-elsewhen-john-byrne-first-look/
+
+In a collaboration with Abrams Books, Marvel is releasing X-Men: Elsewhen, an alternate reality series by writer/artist John Byrne
+---------
+
+# All 4 Magic Users In Mortal Kombat 2, Ranked by Power
+
+Movies, Mortal Kombat, Mortal Kombat II, Fantasy
+
+Mon, 22 Jun 2026 21:00:15 GMT
+
+https://www.cbr.com/mortal-kombat-2-every-magic-user-ranked-list/
+
+Mortal Kombat 2 features several powerful magic wielders, but who is the strongest of them all?
+---------
+
+# 10 Weirdest Anime Titles, Ranked
+
+Anime, I Want To Eat Your Pancreas, Rascal Does Not Dream of Bunny Girl Senpai, Reborn as a Vending Machine, I Now Wander the Dungeon
+
+Mon, 22 Jun 2026 20:45:13 GMT
+
+https://www.cbr.com/weirdest-anime-titles-ranked/
+
+Some anime series go too far in their efforts to make their titles stand out, crossing the line from unique to outlandish and straight-up bizarre.
+---------
+
+# A Minecraft Movie 2 Teases Kirsten Dunst’s “Great Part” As Alex in “More Ambitious” Sequel
+
+Movies, A Minecraft Movie, A Minecraft Movie 2
+
+Mon, 22 Jun 2026 20:37:37 GMT
+
+https://www.cbr.com/a-minecraft-movie-2-kirsten-dunst-alex-ambitious-sequel/
+
+The Warner Bros. and Legendary surprise hit is currently in production for the sequel.
+---------
+
+# Fallout Season 3 Confirms Fan-Favorite Character's Return With Major Update
+
+TV, Fallout
+
+Mon, 22 Jun 2026 20:30:17 GMT
+
+https://www.cbr.com/fallout-season-3-mr-handy-return/
+
+Fallout Season 3 gets a major update from Bethesda along with the confirmation of a fan favorite's return.
+---------
+
+# The Lord of the Rings' Most Mysterious Characters, Ranked
+
+Movies, The Lord of the Rings, Fantasy
+
+Mon, 22 Jun 2026 20:30:15 GMT
+
+https://www.cbr.com/lord-of-the-rings-most-mysterious-characters-list/
+
+Despite the extent of J. R. R. Tolkien's worldbuilding, a few characters from The Lord of the Rings remain complete enigmas.
+---------
+
+# DC Studios’ Dynamic Duo Batman Movie Reveals First Story Details & Which Robins Will Appear
+
+Movies, Dynamic Duo, Batman, Animation
+
+Mon, 22 Jun 2026 20:26:55 GMT
+
+https://www.cbr.com/batman-movie-dynamic-duo-robins-dick-grayson-jason-todd/
+
+New details have emerged about DC Studios' Dynamic Duo.
+---------
+
+# 10 Times Solo Leveling Officially Broke Its Own Rules
+
+Anime, Solo Leveling
+
+Mon, 22 Jun 2026 20:15:14 GMT
+
+https://www.cbr.com/solo-leveling-breaks-its-own-rules/
+
+Solo Leveling builds a strict E-through-S rank chart, then spends its entire runtime watching Sung Jinwoo demolish that logic piece-by-piece.
+---------
+
+# Priyanka Chopra’s $300M Prime Video Spy Series Keeps Climbing the Charts Amid Uncertain Future
+
+TV, Citadel, Action, Prime Video
+
+Mon, 22 Jun 2026 20:01:15 GMT
+
+https://www.cbr.com/priyanka-chopra-citadel-prime-video-spy-action-thriller-success-june-2026/
+
+Prime Video's spy action thriller starring Priyanka Chopra, Citadel, is rising on streaming more than a month after Season 2's release.
+---------
+
+# George R. R. Martin's 'The Winds of Winter' Officially Hits Huge Milestone
+
+TV News, The Winds of Winter, George R.R. Martin, Game Of Thrones, House of the Dragon
+
+Mon, 22 Jun 2026 21:16:13 GMT
+
+https://collider.com/the-winds-of-winter-george-r-r-martin-milestone-15-years/
+
+George R.R. Martin's The Winds of Winter surpasses the gap between A Game of Thrones and A Dance with Dragons release dates, leaving fans waiting.
+---------
+
+# 5 Forgotten R-Rated Westerns That Are Perfect From Start to Finish
+
+Movie, Western, The Assassination of Jesse James by the Coward Robert Ford, The Proposition, Slow West
+
+Mon, 22 Jun 2026 21:08:14 GMT
+
+https://collider.com/forgotten-r-rated-western-movies-perfect/
+
+From The Proposition to Ride with the Devil, these forgotten R-rated Westerns prove the genre still hides masterpieces.
+---------
+
+# Taylor Sheridan’s Latest ‘Yellowstone’ Spin-Off Just Revealed Its Real Power Player
+
+TV News, Dutton Ranch, Yellowstone, Taylor Sheridan, Paramount Plus
+
+Mon, 22 Jun 2026 21:00:15 GMT
+
+https://collider.com/dutton-ranch-episode-7-beulah-jackson-mariano-reyes-villain-reveal/
+
+Discover the shocking truth behind Beulah Jackson's past in Dutton Ranch, Episode 7, exploring her dark secret and its impact on the series.
+---------
+
+# 'House of the Dragon' Proves in One Episode That HBO Made a Major Mistake With Season 2
+
+TV Features, House of the Dragon, HBO Max, HBO, Fantasy
+
+Mon, 22 Jun 2026 20:51:45 GMT
+
+https://collider.com/house-of-the-dragon-season-3-premiere-finale-mistake/
+
+HBO made an error by shortening House of the Dragon Season 2, as the epic battle and deaths would have been the perfect finale.
+---------
+
+# 3 Netflix Shows You Need To Binge Before the End of June
+
+TV, The Last Ship, Beef, Run Away, Netflix
+
+Mon, 22 Jun 2026 20:47:41 GMT
+
+https://collider.com/netflix-shows-binge-june-2026/
+
+The Last Ship, Beef, and Run Away make up our list of the best Netflix shows to binge-watch before the end of June 2026.
+---------
+
+# 'Ahsoka' Season 2 Confirms Major OG Character Return
+
+TV News, Ahsoka, Hayden Christensen, Rosario Dawson, Star Wars
+
+Mon, 22 Jun 2026 20:45:13 GMT
+
+https://collider.com/ahsoka-season-2-first-look-image-hayden-christensen-anakin-skywalker/
+
+The first look at Ahsoka Season 2 shows Hayden Christensen returning to his signature role as Anakin Skywalker.
+---------
+
+# Prime Video Officially Cancels Popular Adult Animated Series
+
+TV News, Prime Video, Kevin, Animation, Aubrey Plaza
+
+Mon, 22 Jun 2026 20:27:47 GMT
+
+https://collider.com/prime-video-adult-series-kevin-cancelled-one-season/
+
+Prime Video axes a raunchy adults-only series just two months after launch, reviving debate over how streamers judge new shows.
+---------
+
+# 8 Years Later, Mike Flanagan's Scariest TV Episode Deserves To Be Called a Horror Masterpiece
+
+TV Features, The Haunting of Hill House, Mike Flanagan, Horror, Netflix
+
+Mon, 22 Jun 2026 20:24:14 GMT
+
+https://collider.com/haunting-of-hill-house-mike-flanagan-scariest-moment-bent-neck-lady/
+
+The chilling Bent-Neck Lady episode of The Haunting of Hill House is a horror masterpiece that deserves more recognition.
+---------
+
+# Every Targaryen Death in 'House of the Dragon,' Ranked
+
+TV, House of the Dragon, Game Of Thrones, A Song of Ice and Fire, George R.R. Martin
+
+Mon, 22 Jun 2026 20:05:15 GMT
+
+https://collider.com/house-of-the-dragon-targaryen-deaths-ranked/
+
+House of the Dragon centers on a bloody civil war that left many dead, including multiple Targaryens, but which death has been the most impactful?
+---------
+
+# First-Ever ‘Rick and Morty’ Movie Takes Inspiration From a Spielbergian Classic [Exclusive]
+
+Movie News, Rick and Morty, Dan Harmon, Science Fiction, Indiana Jones
+
+Mon, 22 Jun 2026 19:59:12 GMT
+
+https://collider.com/rick-and-morty-movie-inspiration-indiana-jones/
+
+What's inspiring Dan Harmon as he works to bring Rick and Morty to the big screen? The answer may surprise you.
+---------
+
+# Action Thriller Hailed as "Best of the Year" Gets Streaming Release Date
+
+Movie News, The Furious
+
+Mon, 22 Jun 2026 20:31:47 GMT
+
+https://movieweb.com/the-furious-streaming-digital-release-date/
+
+'The Furious' is set to land on Digital platforms on Jul. 16.
+---------
+
+# 'John Wick' Director's Sci-Fi Action Movie for Netflix Releases First Plot Details
+
+Movie News, Gears of War, John Wick, Netflix
+
+Mon, 22 Jun 2026 20:12:51 GMT
+
+https://movieweb.com/gears-of-war-film-update/
+
+The upcoming 'Gears of War' film will be an original story and serve as an origin for Delta Squad.
+---------
+
+# Brad Pitt's Biggest Action Movie of All Time Gets Major Sequel Update
+
+Movie News, Brad Pitt, F1, Action
+
+Mon, 22 Jun 2026 20:09:33 GMT
+
+https://movieweb.com/brad-pitt-f1-sequel-update-bruckheimer/
+
+The producers and actors all sound like they're excited to make a sequel to 'F1.' But when will this car actually get on the track?
+---------
+
+# Matt Damon's Forgotten Sci-Fi Flop Makes a Comeback on Streaming
+
+Movie News, Downsizing, Hot on Streaming, Sci-Fi, Matt Damon
+
+Mon, 22 Jun 2026 20:00:18 GMT
+
+https://movieweb.com/downsizing-matt-damon-scifi-streaming-success-mgm-june-2026/
+
+After Ridley Scott's 'The Martian,' Matt Damon starred in the panned sci-fi flop 'Downsizing,' which is now a streaming success on MGM+.
+---------
+
+# 'House of the Dragon' Season 3's Game-Changing Death Was 5 Years in the Making
+
+TV News, House of the Dragon, HBO Max, Fantasy
+
+Mon, 22 Jun 2026 19:12:53 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-death/
+
+This 'House of the Dragon' star reveals the hardest thing about filming their death scene.
+---------
+
+# 'House of the Dragon' Secretly Revealed a New Targaryen We've Waited 4 Years For
+
+Features, House of the Dragon, Game of Thrones
+
+Mon, 22 Jun 2026 19:01:21 GMT
+
+https://movieweb.com/house-of-the-dragon-new-targaryen/
+
+The Targayren family is usually paraded around for all to see, but not this time. Read on for more.
+---------
+
+# Tom Holland Teases the 1 Person Who Still Knows Peter Parker is Spider-Man in the MCU
+
+Movie News, Spider-Man: Brand New Day, Tom Holland
+
+Mon, 22 Jun 2026 18:59:11 GMT
+
+https://movieweb.com/peter-parker-spider-man-one-person-knows-identity/
+
+According to Tom Holland, one character in the MCU may still know that Peter Parker is Spider-Man after 'Spider-Man: No Way Home.'
+---------
+
+# Jenna Ortega Leads First Trailer for Taika Waititi's New Sci-Fi Adaptation
+
+Movie News, Klara and the Sun, Jenna Ortega
+
+Mon, 22 Jun 2026 18:44:50 GMT
+
+https://movieweb.com/klara-and-the-sun-trailer-jenna-ortega-taika-waititi/
+
+Director Taika Waititi's 'Klara and the Sun' drops its first official trailer featuring Jenna Ortega as the titular companion android.
+---------
+
+# Ice Cube Returning for Long-Awaited Family Adventure Sequel 20 Years in the Making
+
+Movie News, Are We There Yet?, Ice Cube, Nia Long
+
+Mon, 22 Jun 2026 18:27:43 GMT
+
+https://movieweb.com/ice-cube-are-they-gone-yet/
+
+Ice Cube and Nia Long will return for 'Are They Gone Yet?' the sequel to 'Are We There Yet?' and 'Are We Done Yet?'
+---------
+
+# New 'Pirates of the Caribbean' Alternative Confirmed From 'Spider-Man' Director
+
+Movie News, video games, Adventure, Shang-Chi and the Legend of the Ten Rings
+
+Mon, 22 Jun 2026 18:21:19 GMT
+
+https://movieweb.com/sea-of-theives-destin-daniel-cretton/
+
+'Sea of Thieves' is just one of several adaptations based on Xbox games in development.
+---------
+
 # HBO's Hit 3-Part Fantasy Series Is #1 In The World After Just 1 Day
 
 TV, Masked Recs, HBO, HBO Max
