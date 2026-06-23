@@ -1,3 +1,333 @@
+# Petition To Block EA Acquisition Exceeds 70,000 Signatures
+
+Gaming, EA, Triple-A Games
+
+Tue, 23 Jun 2026 22:41:27 GMT
+
+https://screenrant.com/electronic-arts-acquisition-petition-block-ea/
+
+Saudi Arabia's Public Investment Fund is in the midst of acquiring Electronic Arts, but the buyout is proving to be incredibly unpopular.
+---------
+
+# Absolute Batman’s First Joker Showdown Features An Iconic Heath Ledger Homage
+
+Comics, Batman, Joker, The Dark Knight, DC Comics
+
+Tue, 23 Jun 2026 22:31:21 GMT
+
+https://screenrant.com/absolute-batman-joker-first-showdown-heath-ledger-homage-dark-knight/
+
+Absolute Batman and Joker have finally met, and I can't get over how perfectly their first encounter mirrors Christopher Nolan's The Dark Knight.
+---------
+
+# 5 Masterpiece Action Anime Better Than Demon Slayer
+
+Anime
+
+Tue, 23 Jun 2026 22:31:21 GMT
+
+https://screenrant.com/action-anime-better-demon-slayer/
+
+Demon Slayer has earned its title as one of the most exciting shonen anime of all time, but there are a handful of series that are undeniably better.
+---------
+
+# An $11 Billion Sci-Fi Franchise Is Returning to Theaters in Just 5 Weeks
+
+Movies, Masked Recs
+
+Tue, 23 Jun 2026 22:31:21 GMT
+
+https://screenrant.com/spider-man-franchise-returns-to-theaters-july-2026/
+
+One of the most commercially successful sci-fi franchises of all time returns to theaters in just five weeks, looking to add to its $11 billion haul.
+---------
+
+# Slow Horses' New Replacement Spy Thriller Series Is One Of The Genre's Best
+
+Streaming TV, Masked Recs
+
+Tue, 23 Jun 2026 22:28:44 GMT
+
+https://screenrant.com/paramount-plus-the-agency-spy-thriller-series-slow-horses-replacement/
+
+Slow Horses' new replacement spy thriller series is out now, and fans of the Apple TV espionage show need to check out this genre masterpiece.
+---------
+
+# NBC Quietly Canceled Its Best New Comedy After Burying It On Friday Nights
+
+Network TV, Masked Recs
+
+Tue, 23 Jun 2026 22:15:21 GMT
+
+https://screenrant.com/stumble-nbc-friday-night-slot-failure-canceled/
+
+Friday night is commonly known as the death slot for network TV shows, and NBC killed its best new sitcom by airing it at such an unappealing time.
+---------
+
+# A Knight Of The Seven Kingdoms Season 2’s New Genre Shift Teased By Returning Director
+
+TV, A Knight Of The Seven Kingdoms, Game of Thrones
+
+Tue, 23 Jun 2026 22:09:30 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-season-2-road-movie-tease-director/
+
+When A Knight of the Seven Kingdoms returns for season 2 in 2027, fans should expect a shift in genre and tone, according to one of the directors.
+---------
+
+# A Solo Leveling Prequel Is Officially Coming This Year
+
+Gaming, Solo Leveling, PC, Triple-A Games
+
+Tue, 23 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/solo-leveling-prequel-officially-confirmed/
+
+A prequel to Solo Leveling has been officially revealed, and it’s arriving later this year, allowing fans to see more of Sung Jinwoo and his powers.
+---------
+
+# One Piece's Anime Fans Aren't Ready For The Biggest Lore Dump Of All Time
+
+Anime, One Piece
+
+Tue, 23 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/one-piece-harley-mural-anime-reveal/
+
+One Piece's upcoming anime episode is set to drop one of the series biggest lore bombs in decades and fans aren't prepared.
+---------
+
+# Debunking AI Interview with the Avatar: The Last Airbender Season 2 Cast
+
+TV, Avatar: The Last Airbender, Debunking AI
+
+Tue, 23 Jun 2026 21:55:02 GMT
+
+https://screenrant.com/video/avatar-the-last-airbender-season-2-cast-debunking-ai/
+
+Avatar: The Last Airbender season 2 stars discuss their martial arts training, stunts, and which bending powers they want in today's Debunking AI.
+---------
+
+# DC Studios’ Superman Series Becomes a Streaming Hit on HBO Max After New 100% RT Season
+
+TV, My Adventures With Superman, Superman, HBO Max
+
+Tue, 23 Jun 2026 22:30:17 GMT
+
+https://www.cbr.com/my-adventures-with-superman-animation-success-hbo-max-june-2026/
+
+Superman has finally returned to the streaming charts.
+---------
+
+# Leaked Hello Kitty Movie Concept Art Reveals First Look at the Long-Awaited 2028 Film
+
+Anime, Hello Kitty, warner bros animation, sanrio
+
+Tue, 23 Jun 2026 22:19:27 GMT
+
+https://www.cbr.com/hello-kitty-2028-movie-concept-art-leaks/
+
+Concept art for the first-ever Hello Kitty Movie is leaking online, giving fans a first look at the upcoming film two years ahead of release.
+---------
+
+# Tom Holland Confirms New Detail About Spider-Man: Brand New Day's Supervillain
+
+Movies, MCU, Marvel, Marvel Comics, Spider-Man, Spider-Man: Brand New Day, tom holland
+
+Tue, 23 Jun 2026 22:17:52 GMT
+
+https://www.cbr.com/tom-holland-confirms-new-detail-about-spider-man-brand-new-days-supervillain/
+
+This could change everything for Spider-Man: Brand New Day ... and Avengers, too.
+---------
+
+# 5 Masterpiece Anime That Should Be At The Top of Everyone's Favorites List
+
+Anime, Fullmetal Alchemist
+
+Tue, 23 Jun 2026 22:15:14 GMT
+
+https://www.cbr.com/masterpiece-anime-should-be-everyones-favorites/
+
+Anime like Yuri!!! on Ice and Daemons of the Shadow Realm deserve to be on the watchlists of every anime fan.
+---------
+
+# 10 Weak Anime Villains Who Could Solo the Demon Slayer Verse
+
+Anime, Demon Slayer
+
+Tue, 23 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/weakest-anime-villains-vs-strongest-demon-slayer-characters/
+
+Even the strongest Demon Slayer characters could be defeated by some of the weakest anime villains.
+---------
+
+# HBO's 6-Part Space Opera Prequel Series Is a Streaming Hit Ahead of Season 2
+
+TV, Dune: Prophecy
+
+Tue, 23 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/dune-prophecy-hbo-max-streaming-hit-june-2026/
+
+The sci-fi series gets a streaming surge on HBO Max as fans continue their wait for Season 2.
+---------
+
+# Ultimate Endgame: Marvel Confirms Which Characters Survive
+
+Comics, comic books, Marvel Comics, marvel heroes
+
+Tue, 23 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/marvel-ultimate-endgame-survivors-revealed/
+
+The Ultimate Universe bids farewell in Ultimate Universe: Finale #1, featuring a star-studded lineup of writers and artists. But will this be the end,
+---------
+
+# In Two Years, The Incredibles Are Returning to Theaters
+
+Movies, The Incredibles
+
+Tue, 23 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/best-superhero-franchise-the-incredibles-3-return-confirmed/
+
+In a time before the MCU ruled the box office, another super-powered family took over the world, and they are coming back in 2 years.
+---------
+
+# Toy Story 5 Writer Mourns Cutting Real-Life Toy From the Sequel
+
+Movies, Toy Story 5
+
+Tue, 23 Jun 2026 21:59:42 GMT
+
+https://www.cbr.com/toy-story-5-cut-character-revealed/
+
+The real-life toy would have fit perfectly into Toy Story 5's story about modern technology threatening traditional toys.
+---------
+
+# 10 Hardest Open-World Games of All Time
+
+Games, open world
+
+Tue, 23 Jun 2026 21:16:15 GMT
+
+https://www.cbr.com/hardest-open-world-games-all-time-list/
+
+Open-world games like Cyberpunk 2077 and Horizon Zero Dawn will push players to their limits.
+---------
+
+# Cartoon Network’s Best Sci-Fi Franchise Is Returning Following Failed Live-Action Reboot
+
+Movie News, The Powerpuff Girls, Warner Bros., Cartoon Network
+
+Tue, 23 Jun 2026 22:30:51 GMT
+
+https://collider.com/cartoon-network-powerpuff-girls-reboot-movie/
+
+Warner Bros. has announced a new Powerpuff Girls movie is officially in the works, with plans in place to bring back the legendary superhero trio.
+---------
+
+# Nicolas Cage Officially Joins Call of Duty Ahead of Taylor Sheridan’s New Movie
+
+Video Games, Nicolas Cage, Call of Duty, Action, Taylor Sheridan
+
+Tue, 23 Jun 2026 22:15:37 GMT
+
+https://collider.com/nicolas-cage-call-of-duty-black-ops-7-trailer/
+
+Nicolas Cage is set to appear in Call of Duty: Black Ops 7 and Warzone, offering players the chance to play as the iconic actor.
+---------
+
+# Ridley Scott's 'Alien: Earth' Is Officially Distancing Itself From Its Winning Formula
+
+TV News, Ridley Scott, Alien, Alien: Earth, Noah Hawley
+
+Tue, 23 Jun 2026 22:03:36 GMT
+
+https://collider.com/ridley-scott-alien-earth-season-2-update-timothy-olyphant/
+
+Alien: Earth star, Timothy Olyphant, reveals that Season 2 will take the story for the prequel series' next chapter in a very different direction.
+---------
+
+# 5 Terrifying ‘Ocarina of Time’ Enemies That Will Be Even Scarier in the Remake
+
+Video Games, The Legend of Zelda, Nintendo, Nintendo 64, Video Game
+
+Tue, 23 Jun 2026 21:55:15 GMT
+
+https://collider.com/legend-of-zelda-ocarina-of-time-scariest-enemies-remake/
+
+These are the five scariest enemies in The Legend of Zelda: Ocarina of Time that could be even more terrifying in a remake.
+---------
+
+# 10 Most Perfect Fantasy Shows of the Last 30 Years
+
+TV, Fantasy, Game Of Thrones, One Piece, Avatar: The Last Airbender
+
+Tue, 23 Jun 2026 21:44:16 GMT
+
+https://collider.com/most-perfect-fantasy-shows-last-30-years-ranked/
+
+HBO's Game of Thrones, Nickelodeon's Avatar: The Last Airbender, and Netflix's Arcane are among the best fantasy shows of the last 30 years.
+---------
+
+# 10 Horror Movies That Are Perfect From the First Scene to the Last
+
+Movie, Horror, The Exorcist, The Thing, Halloween
+
+Tue, 23 Jun 2026 21:42:14 GMT
+
+https://collider.com/horror-movies-perfect-first-scene-to-last/
+
+From The Thing, to The Descent, to Hereditary, these masterful horror movies showcase every fear the genre has perfected over decades.
+---------
+
+# The Greatest Book Adaptation No One Is Talking About Is Now on Streaming
+
+TV Features, The Count of Monte Cristo, Sam Claflin, Jeremy Irons
+
+Tue, 23 Jun 2026 21:42:14 GMT
+
+https://collider.com/count-of-monte-cristo-adaptation-sam-claflin-apple-tv-store/
+
+The Count of Monte Cristo's 2024 adaptation starring Sam Claflin is the perfect series for lovers of Alexandre Dumas' classic novel.
+---------
+
+# 'Godzilla's New Action Sci-Fi Spin-Off Takes Major Step Forward
+
+TV News, Godzilla, Monarch: Legacy of Monsters, Monsterverse
+
+Tue, 23 Jun 2026 22:19:47 GMT
+
+https://movieweb.com/godzilla-monarch-legacy-monsters-spin-off/
+
+Millie Brady and Pilou Asbaek have joined the cast of the 'Monarch: Legacy of the Monsters' spin-off series, with J.D. Dillard directing the pilot.
+---------
+
+# 10 Lesser-Known Facts That Will Change How You Watch Tim Burton's 'Batman'
+
+Movie Lists, Batman
+
+Tue, 23 Jun 2026 22:00:19 GMT
+
+https://movieweb.com/tim-burton-batman-lesser-known-details/
+
+'Batman' directed by Tim Burton was released in theaters in 1989, and there is more to discover about the landmark DC movie.
+---------
+
+# 2026's First $1 Billion Movie Beats the Best Superhero Sequel of All Time at the Box Office
+
+Movie News, The Super Mario Galaxy Movie, The Dark Knight, Box Office Milestones
+
+Tue, 23 Jun 2026 22:00:19 GMT
+
+https://movieweb.com/super-mario-galaxy-beats-dark-knight-box-office-2026/
+
+Not even this comic book icon can defeat the might of this year's box office behemoth.
+---------
+
 # All 8 Upcoming Warner Bros. Animated Movies Explained (Including Hello Kitty & DC's Dynamic Duo)
 
 Movies, Warner Bros.
