@@ -1,3 +1,432 @@
+# “Capcom Has No F**king Idea” What To Do With Resident Evil 5 & 6 Remakes, Says Insider
+
+Gaming, Resident Evil, Resident Evil 5, Resident Evil 6, Triple-A Games, PC
+
+Tue, 23 Jun 2026 19:19:50 GMT
+
+https://screenrant.com/resident-evil-5-6-remake-plans-capcom/
+
+Capcom has seen tremendous success remaking a few mainline Resident Evil games, but the next expected two aren't yet in the developer's plans.
+---------
+
+# Netflix’s New 8-Part Crime Thriller Becomes Biggest Series Debut This Year
+
+TV, I Will Find You, Netflix
+
+Tue, 23 Jun 2026 19:09:12 GMT
+
+https://screenrant.com/netflix-i-will-find-you-biggest-2026-series-debut/
+
+Netflix's latest eight-part crime thriller series is already a massive hit for the studio as it becomes their biggest series debut of 2026.
+---------
+
+# Tom Cruise's Replacement In A Few Good Men Revival Officially Revealed
+
+Movies, A Few Good Men
+
+Tue, 23 Jun 2026 19:03:50 GMT
+
+https://screenrant.com/a-few-good-men-revival-tom-blyth-daniel-kaffee-casting/
+
+An upcoming revival of Aaron Sorkin’s drama A Few Good Men casts the role of Daniel Kaffee, the hotshot lawyer played on the big screen by Tom Cruise.
+---------
+
+# Genshin Impact 7.0 Leak Reveals Upsetting Stellar Limitation
+
+Gaming, Genshin Impact, PC, Live Service Games
+
+Tue, 23 Jun 2026 19:00:22 GMT
+
+https://screenrant.com/genshin-impact-70-leaks-stellar-reactions-variants/
+
+A new Genshin Impact 7.0 leak regarding the Stellar reactions has been shared, and it’s upsetting news for those anticipating more from the mechanic.
+---------
+
+# Netflix's New Fantasy Movie Broke All-Time Viewership Record In A Single Week
+
+Movies, Netflix, Swapped
+
+Tue, 23 Jun 2026 18:49:01 GMT
+
+https://screenrant.com/fantasy-movie-netflix-swapped-record-audience/
+
+Netflix's new animated fantasy adventure film, Swapped, was a major hit with audiences, crushing an all-time record for weekly viewership.
+---------
+
+# Debunking AI: ATLA's Dallas Liu Is His Own Stunt Double
+
+TV, Debunking AI, Avatar: The Last Airbender
+
+Tue, 23 Jun 2026 18:47:22 GMT
+
+https://screenrant.com/video/debunking-ai-avatar-the-last-airbender-season-2-cast-interview/
+
+Avatar: The Last Airbender season 2 stars reveal how much of their own stunts they tackle and which bending powers they want in today's Debunking AI.
+---------
+
+# DC's R-Rated Batman Movie Trilogy's First Official Trailer Confirms Cast, Designs & Villains
+
+Movies, Batman, DC Universe
+
+Tue, 23 Jun 2026 18:32:40 GMT
+
+https://screenrant.com/batman-knightfall-movie-part-1-trailer/
+
+The first official trailer for DC Studios' upcoming R-rated Batman movie trilogy has been released, showing one of the Dark Knight's most iconic arcs.
+---------
+
+# Ahead Of Supergirl's Release, DC's New Superman Project Is Dominating HBO Max
+
+Streaming TV, Masked Recs
+
+Tue, 23 Jun 2026 18:32:17 GMT
+
+https://screenrant.com/dc-superman-project-hbo-max-success-ahead-of-supergirl/
+
+My Adventures with Superman season 3 is one of HBO Max's top 10 most popular shows, which may be a great sign for the upcoming Supergirl movie.
+---------
+
+# Quentin Tarantino Is 6 Months Away From A 30-Year First
+
+Movies, Masked Recs
+
+Tue, 23 Jun 2026 18:30:22 GMT
+
+https://screenrant.com/quentin-tarantino-cliff-booth-sequel-30-year-first/
+
+Quentin Tarantino's upcoming movie will end his seven-year hiatus, but more importantly, it will also be a career-first for the filmmaker in 30 years.
+---------
+
+# Elder Scrolls 6 Official Update Is Music To Our Ears
+
+Gaming, The Elder Scrolls 6, The Elder Scrolls, Triple-A Games, PC
+
+Tue, 23 Jun 2026 18:29:28 GMT
+
+https://screenrant.com/elder-scrolls-update-june-2026-todd-howard/
+
+The Elder Scrolls 6 has mostly been proceeding quietly, but Todd Howard just offered a development update that fans will be happy to hear.
+---------
+
+# Cyberpunk 2077 Officially Returns With a New Story October 2026
+
+Games, Cyberpunk, Cyberpunk 2077
+
+Tue, 23 Jun 2026 19:10:15 GMT
+
+https://www.cbr.com/cyberpunk-2077-officially-returns-new-story-october-2026/
+
+Cyberpunk 2077 finally returns with an official new story this October.
+---------
+
+# The Greatest Spider-Man & Hulk Team-Ups Ever in Marvel Comics, Ranked
+
+Comics, Marvel Cinematic Universe, Spider-Man, Marvel
+
+Tue, 23 Jun 2026 19:00:14 GMT
+
+https://www.cbr.com/best-spider-man-hulk-team-ups-in-marvel-comics-ranked/
+
+While battling villains and saving cities, Spider-Man and Hulk have had their fair share of epic team-ups in Marvel Comics
+---------
+
+# House of the Dragon Season 3 Confirms HBO Has Abandoned Its Game of Thrones Formula
+
+TV, House of the Dragon, Game Of Thrones, HBO Max
+
+Tue, 23 Jun 2026 19:00:14 GMT
+
+https://www.cbr.com/house-of-the-dragon-game-of-thrones-character-differences/
+
+House of the Dragon fans are debating whether the series is missing the intimate conversations that made Game of Thrones legendary.
+---------
+
+# 10 Times The Shrek Franchise Parodied Classic Disney Movies
+
+Movies, Shrek
+
+Tue, 23 Jun 2026 19:00:14 GMT
+
+https://www.cbr.com/best-disney-parodies-in-shrek-franchise-list/
+
+DreamWorks never shied away from the competition and used the Shrek series to poke fun at Disney's legacy.
+---------
+
+# DC Studios Reveals First Trailer for R-Rated Batman: Knightfall Movie
+
+Movies, Batman, Animation, superheroes
+
+Tue, 23 Jun 2026 18:50:01 GMT
+
+https://www.cbr.com/batman-knightfall-movie-trailer/
+
+DC Studios has unveiled the first trailer for its R-rated Batman epic.
+---------
+
+# 6 Dark Fantasy Movies Nobody Remembers
+
+Movies, Fantasy
+
+Tue, 23 Jun 2026 18:30:15 GMT
+
+https://www.cbr.com/dark-fantasy-movies-no-one-remembers-list/
+
+Dark fantasy has given audiences some of the most surreal cinematic experiences ever made, but some have fallen firmly into obscurity.
+---------
+
+# 15 Best Scarlet & Violet Tera Raid Pokemon
+
+Games, Pokemon, Pokemon Scarlet and Violet
+
+Tue, 23 Jun 2026 18:30:15 GMT
+
+https://www.cbr.com/best-scarlet-violet-pokemon-tera-raid-battles/
+
+In Pokémon Scarlet & Violet, Tera Raids have a spice of variety, and certain Pokémon stand out above others for what they bring to the table.
+---------
+
+# Key Big Bang Theory Characters Officially Return in New Spinoff Coming This Summer
+
+TV, Stuart Fails to Save the Universe
+
+Tue, 23 Jun 2026 18:22:19 GMT
+
+https://www.cbr.com/stuart-fails-to-save-the-universe-official-trailer/
+
+The Big Bang Theory universe expands with an apocalyptic sci-fi show.
+---------
+
+# Nintendo Officially Announces Another Price Increase
+
+Games, Nintendo, Nintendo Switch, Video Games
+
+Tue, 23 Jun 2026 18:15:13 GMT
+
+https://www.cbr.com/nintendo-officially-announces-new-price-increase/
+
+Nintendo has announced another price increase for the Switch line of systems, one that currently affects only one region but could expand soon.
+---------
+
+# Jujutsu Kaisen's 7 Strongest Special Grade Curses, Ranked
+
+Anime, Jujutsu Kaisen, shonen anime, Shonen
+
+Tue, 23 Jun 2026 18:15:13 GMT
+
+https://www.cbr.com/strongest-special-grade-curses-jjk-ranked/
+
+The most powerful Special Grade Curses in JJK make for devastating opponents, even for highly experienced sorcerers.
+---------
+
+# Taylor Sheridan’s Biggest TV Series of 2026 Returns This Summer
+
+TV News, Marshals, Yellowstone, Taylor Sheridan, Western
+
+Tue, 23 Jun 2026 19:10:50 GMT
+
+https://collider.com/marshals-taylor-sheridan-yellowstone-spin-off-blu-ray-release-date-august-25-2026/
+
+Taylor Sheridan's smash-hit Yellowstone spin-off, Marshals, is officially returning this summer with a surprise new release. Read on for more.
+---------
+
+# Emilia Clarke's Hit Spy Series Cancelled After 1 Season
+
+TV News, Ponies, Peacock, Emilia Clarke, Susanna Fogel
+
+Tue, 23 Jun 2026 18:53:47 GMT
+
+https://collider.com/emilia-clarke-ponies-season-2-cancelled/
+
+Emilia Clarke and Haley Lu Richardson's hit spy series, Ponies, has officially been cancelled after a single season.
+---------
+
+# ‘My Adventures With Superman’ Season 4 Finally Addressed 1 Week Before New Episodes [Exclusive]
+
+TV News, My Adventures With Superman, Adult Swim, HBO Max, James Gunn
+
+Tue, 23 Jun 2026 18:44:50 GMT
+
+https://collider.com/my-adventures-with-superman-season-4-update-dc/
+
+Cartoon Network President Michael Ouweleen addresses the future of My Adventures with Superman beyond Season 3, which comes out this Sunday.
+---------
+
+# Josh Gates Explores a Groundbreaking WWII Discovery in a Historic 'Expedition Unknown' Season 17 Premiere [Exclusive]
+
+TV News, Josh Gates, Expedition Unknown, Discovery Channel
+
+Tue, 23 Jun 2026 18:29:49 GMT
+
+https://collider.com/expedition-unknown-season-17-premiere-review-josh-gates-ww2-discovery/
+
+The Season 17 premiere of Expedition Unknown will see Josh Gates delving into the process behind the historic discovery of a lost WWII Hellship.
+---------
+
+# Expedition Unknown’s Siberia Shoot Destroyed Drones in Seconds | Set Stories
+
+TV, Expedition Unknown
+
+Tue, 23 Jun 2026 18:15:14 GMT
+
+https://collider.com/video/expedition-unknown-s-siberia-shoot-destroyed-drones-in-seconds-set-stories/
+
+Josh Gates reveals how filming Expedition Unknown in the harsh Siberian wilderness led to drones being destroyed within seconds, showcasing the extreme conditions behind one of the series’ most challenging adventures.
+---------
+
+# Martin Scorsese’s ‘The Wolf of Wall Street’ Gets a 3-Part True-Crime Follow-Up [Exclusive]
+
+TV News, Paramount Plus, The Wolf of Wall Street, True Crime, Documentary
+
+Tue, 23 Jun 2026 18:00:17 GMT
+
+https://collider.com/the-real-wolf-of-wall-street-trailer-documentary-paramount-plus/
+
+Jordan Belfort's secrets are exposed in the new Collider-exclusive trailer for the true-crime docuseries The Real Wolf of Wall Street. Watch it now.
+---------
+
+# 6 Greatest Movie Trilogies That Aren't Action Films
+
+Movie, Before Sunrise, Three Colors: Blue, The Godfather, Before Midnight
+
+Tue, 23 Jun 2026 17:52:16 GMT
+
+https://collider.com/best-movie-trilogies-not-action/
+
+Discover powerful non-action trilogies where life unfolds across three chapters, including The Human Condition Trilogy and The Apu Trilogy.
+---------
+
+# The Walking Dead Franchise Officially Returns to Netflix Next Month
+
+TV News, The Walking Dead: Daryl Dixon, Netflix, Drama, Norman Reedus
+
+Tue, 23 Jun 2026 17:42:28 GMT
+
+https://collider.com/the-walking-dead-daryl-dixon-season-3-release-date-netflix-july-19-2026/
+
+Netflix adds the next chapter of a beloved zombie saga as a fan-favorite survivor’s journey races toward its final season.
+---------
+
+# Brendan Fraser's WWII Masterpiece Quietly Debuts as a Colossal Streaming Hit
+
+Movie News, Pressure, Brendan Fraser, Andrew Scott, World War II
+
+Tue, 23 Jun 2026 17:35:51 GMT
+
+https://collider.com/brendan-fraser-ww2-epic-pressure-streaming-success-vod-june-2026/
+
+Brendan Fraser's 2026 WW2 epic is officially taking over the world following its box office run. Read on for all the details.
+---------
+
+# The Best Sci-Fi Fantasy Series of the '90s Is Coming to the Big Screen for the Very First Time
+
+Movie News, Elizabeth Banks, The Magic School Bus, Legendary Pictures, Rob Letterman
+
+Tue, 23 Jun 2026 17:23:43 GMT
+
+https://collider.com/magic-school-bus-movie-reboot-elizabeth-banks-cast-ms-frizzle/
+
+The Magic School Bus is back, with a Spider-Man franchise star set to play Ms. Frizzle in a live-action movie reboot.
+---------
+
+# Amid Season 3 Shocking Debut, 'House of the Dragon' Conquers Streaming
+
+TV News, House of the Dragon, Hot on Streaming
+
+Tue, 23 Jun 2026 19:01:20 GMT
+
+https://movieweb.com/season-3-house-of-the-dragon-streaming-hit-june-2026/
+
+The HBO giant is going full "Dracarys" on the rest of the streaming offer.
+---------
+
+# Elizabeth Banks Officially Rebooting Beloved '80s Family Adventure Franchise
+
+Movie News, Elizabeth Banks, Rob Letterman
+
+Tue, 23 Jun 2026 18:45:58 GMT
+
+https://movieweb.com/magic-school-bus-elizabeth-banks-live-action/
+
+A live-action adaptation of a hit animated series from the 1980s is in development, with Elizabeth Banks set to play the leading role.
+---------
+
+# Cult Classic '90s Thriller Reboot Confirms Official 2027 Release Date
+
+Movie News, The Blair Witch Project
+
+Tue, 23 Jun 2026 18:44:18 GMT
+
+https://movieweb.com/new-blair-witch-project-movie-2027-release-date/
+
+A new 'The Blair Witch Project' film is set to release next year, directed by yet another viral horror short YouTuber.
+---------
+
+# Michael Caine AI Clone Headlines New Adaptation of 'The Odyssey'
+
+Movie News, Michael Caine, The Odyssey, Christopher Nolan
+
+Tue, 23 Jun 2026 18:37:28 GMT
+
+https://movieweb.com/michael-caine-ai-adaptation-the-odyssey/
+
+A new adaptation of 'The Odyssey' is looking to capitalize on Christopher Nolan's summer blockbuster with AI.
+---------
+
+# Harlan Coben’s New Number 1 Netflix Thriller Makes ‘Reacher’ Feel Small
+
+Features, I Will Find You, Reacher, Netflix
+
+Tue, 23 Jun 2026 18:00:21 GMT
+
+https://movieweb.com/i-will-find-you-reacher-comparison/
+
+Harlan Coben's books have been adapted into several Netflix thriller series, and there is one that can be compared to Prime Video's 'Reacher.'
+---------
+
+# Guy Ritchie & Jason Statham's Best Action Thriller Is Leaving Free Streaming
+
+Movie News, Wrath of Man, Guy Ritchie, Jason Statham, Coming/Leaving Streaming, Action, Thriller
+
+Tue, 23 Jun 2026 18:00:21 GMT
+
+https://movieweb.com/wrath-of-man-leaving-free-streaming-july-2026/
+
+After 16 years of being apart, two action icons reunited in 2021, and delivered a solid thriller that's about to leave free streaming.
+---------
+
+# 'The Drama' Finally Lands Official Streaming Release Date
+
+Movie News, The Drama, Zendaya Coleman, Robert Pattinson
+
+Tue, 23 Jun 2026 17:30:39 GMT
+
+https://movieweb.com/the-drama-streaming-release-date-hbo/
+
+The controversial film from the director of 'Dream Scenario' will soon be available to watch at home.
+---------
+
+# Kevin Bacon Returns to Amazon With Demon-Fighting Thriller From 'Mortal Kombat' Writer
+
+Movie News, Kevin Bacon, Horror, Jeremy Slater
+
+Tue, 23 Jun 2026 17:24:17 GMT
+
+https://movieweb.com/summoner-kevin-bacon-horror-movie/
+
+Kevin Bacon is set to star in 'Summoner,' an Amazon MGM horror thriller from 'Mortal Kombat' writer Jeremy Slater.
+---------
+
+# 'Stuart Fails to Save the Universe' Trailer Unleashes Multiversal Action Adventure Spin-Off
+
+TV News, Stuart Fails to Save the Universe
+
+Tue, 23 Jun 2026 17:17:21 GMT
+
+https://movieweb.com/stuart-fails-to-saves-the-universe-hbo-max-official-trailer/
+
+HBO Max released an exciting new trailer for the upcoming 'Big Bang Theory' spin-off, 'Stuart Fails to Save the Universe.'
+---------
+
 # Cyberpunk 2077 Officially Replacing V For Sequel, Leaving Fans Split
 
 Gaming, Cyberpunk 2077
