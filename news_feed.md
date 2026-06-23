@@ -1,3 +1,443 @@
+# Cyberpunk 2077 Officially Replacing V For Sequel, Leaving Fans Split
+
+Gaming, Cyberpunk 2077
+
+Tue, 23 Jun 2026 17:00:23 GMT
+
+https://screenrant.com/cyberpunk-2077-sequel-v-replacement-gamers-react/
+
+Cyberpunk 2077 has officially concluded the protagonist V's story, but not all fans are that excited about Cyberpunk 2's new main character.
+---------
+
+# NBC’s Biggest Summer Show Has Never Received The Recognition It Deserves
+
+Network TV, Masked Recs
+
+Tue, 23 Jun 2026 17:00:23 GMT
+
+https://screenrant.com/nbc-americas-got-talent-summer-show-no-emmy/
+
+America's Got Talent has been nominated for many Emmys, but the show has never won a single Emmy over its 21 much-hyped seasons on NBC so far.
+---------
+
+# Dragon Ball Officially Returns In 2027 With Its Wildest Saga Yet
+
+Gaming, Dragon Ball, Dragon Ball Xenoverse 3, Triple-A Games, PC
+
+Tue, 23 Jun 2026 16:59:27 GMT
+
+https://screenrant.com/dragon-ball-xenoverse-3-story-trailer/
+
+A new, major Dragon Ball story is set to release next year, and the wild new saga is quite literally taking us into the franchise's future.
+---------
+
+# Rick And Morty Season 9 Confirms An Uncomfortable Truth
+
+Streaming TV, Rick and Morty
+
+Tue, 23 Jun 2026 16:46:23 GMT
+
+https://screenrant.com/rick-and-morty-season-9-uncomfortable-truth-smith-family-values/
+
+Rick and Morty's "Jer Bud" just confirmed one of the most unsettling truths about the entire Smith family, and it's all Rick Sanchez's fault.
+---------
+
+# The Wait Is Over, Hello Kitty's New Series Is Here (Exclusive)
+
+Comics, Hello Kitty
+
+Tue, 23 Jun 2026 16:45:27 GMT
+
+https://screenrant.com/hello-kitty-new-series-first-trailer/
+
+Fans no longer have to wait, because Hello Kitty's new series is finally here with this adorable Screen Rant exclusive first trailer reveal.
+---------
+
+# The Big Bang Theory Spinoff Goes Full Action & Sci-Fi In First Trailer For Stuart Fails To Save The Universe
+
+TV, Stuart Fails to Save the Universe
+
+Tue, 23 Jun 2026 16:40:58 GMT
+
+https://screenrant.com/stuart-fails-to-save-the-universe-trailer-hbo-max/
+
+The Big Bang Theory is changing genres, as HBO Max reveals the first trailer for the sitcom franchise's first streaming exclusive series.
+---------
+
+# Jeff Bridges’ Hit Sci-Fi That Launched A $32 Billion Mega-Franchise Releases On Hulu Next Week
+
+Movies, Masked Recs
+
+Tue, 23 Jun 2026 16:40:28 GMT
+
+https://screenrant.com/iron-man-hulu-streaming-release-july-2026/
+
+A sci-fi action movie starring Jeff Bridges that helped to launch a franchise that has grossed $32 billion and counting is coming to Hulu.
+---------
+
+# Batman's New R-Rated Movie Is So Ambitious, 3 Sequels Were Already Greenlit
+
+Movies, Masked Recs
+
+Tue, 23 Jun 2026 16:33:21 GMT
+
+https://screenrant.com/batman-knightfall-dc-animation-four-movies-confirmed/
+
+Batman's new R-rated movie will be released soon, and the upcoming DC film is so ambitious that three more are already confirmed to be on the way.
+---------
+
+# We’re Officially 1 Month Away From Star Trek’s 94% RT Series Return
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Tue, 23 Jun 2026 16:30:22 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-1-month/
+
+Star Trek: Strange New Worlds season 4 arrives in July. The USS Enterprise's 10-episode mission: to excite fans and save Star Trek's 60th anniversary.
+---------
+
+# Steam Machine FAQ: Release Date, Price, Specs, & More
+
+Gaming, Steam, Triple-A Games, PC
+
+Tue, 23 Jun 2026 16:30:22 GMT
+
+https://screenrant.com/steam-machine-faq-cost-specs-release/
+
+The Steam Machine brings Valve back into the home console hardware market, and the full technical spec sheet has already been laid out.
+---------
+
+# Netflix’s Biggest Adventure TV Event of 2026 Begins in 2 Months
+
+TV, Outer Banks, Netflix
+
+Tue, 23 Jun 2026 17:08:20 GMT
+
+https://www.cbr.com/netflix-outer-banks-season-5-adventure-tv-event/
+
+Picking up from the Season 4 finale, Outber Banks' fifth and final season is set to follow the Pogues at their absolute breaking point.
+---------
+
+# Netflix Officially Sets Shadow and Bone Replacement Series With Hit Bestselling Fantasy Novel
+
+TV, Netflix
+
+Tue, 23 Jun 2026 16:58:54 GMT
+
+https://www.cbr.com/netflix-the-everlasting-tv-adaptation/
+
+Netflix is not joking when it comes to book adaptations.
+---------
+
+# HBO's Gripping 5-Part Drama With 95% RT Just Became Mandatory Viewing 7 Years Later
+
+TV, Chernobyl, Silo, HBO Max, Apple TV
+
+Tue, 23 Jun 2026 16:46:16 GMT
+
+https://www.cbr.com/hbo-chernobyl-mandatory-viewing-apple-tv-silo/
+
+HBO is known for producing some of the most compelling dramas on TV, but one is a perfect companion piece to one of Apple TV's best sci-fi shows.
+---------
+
+# The Best Amazon Prime Day Gaming Deals 2026
+
+Games, Video Games, amazon
+
+Tue, 23 Jun 2026 16:35:14 GMT
+
+https://www.cbr.com/best-amazon-prime-day-gaming-deals-2026/
+
+Amazon has amazing gaming deals for Prime Day, with discounts on Elden Ring, Clair Obscur, and more.
+---------
+
+# 25 Greatest Manhwa for Fans of Romance
+
+Anime, manhwa
+
+Tue, 23 Jun 2026 16:30:15 GMT
+
+https://www.cbr.com/best-romance-manhwa-recs/
+
+From childhood best friends to sweethearts and everything in between, manhwa offers some of the most romantic stories online.
+---------
+
+# Hazbin Hotel Creator Reveals New Warner Bros. Movie Musical
+
+Movies, warner bros animation, Hazbin Hotel
+
+Tue, 23 Jun 2026 16:20:53 GMT
+
+https://www.cbr.com/prehistoria-warner-bros-movie-musical-vivienne-medrano/
+
+At Annecy Animation Festival, Hazbin Hotel creator Vivienne "VivziePop" Medrano reveals her first animated film with Warner Bros. Pictures.
+---------
+
+# 5 Masterpiece Romance Anime Better Than Your Lie in April
+
+Anime, Your Lie in April, Fruits Basket
+
+Tue, 23 Jun 2026 16:15:14 GMT
+
+https://www.cbr.com/romance-anime-better-than-your-lie-in-april/
+
+Few romance anime are as celebrated as Your Lie in April, but these series all tell stronger stories.
+---------
+
+# Lionsgate Confirms The Blair Witch Project's Return in 2027
+
+Movies, The Blair Witch Project 4
+
+Tue, 23 Jun 2026 16:14:42 GMT
+
+https://www.cbr.com/lionsgate-blair-witch-project-release-date/
+
+The found footage subgenre is alive and haunting.
+---------
+
+# It's Official, DC Studios' Batman: Knightfall Movie Trilogy Starts This Year
+
+Movies, Batman, DCU, DC Comics
+
+Tue, 23 Jun 2026 16:00:13 GMT
+
+https://www.cbr.com/dc-studios-2026-batman-knightfall-trilogy/
+
+One of the Dark Knight's greatest comic stories is being adapted into a brand-new DC Studios Batman trilogy.
+---------
+
+# Star Trek Horror Spin-Off Confirmed as Franchise Expands Into New Genre
+
+Comics, Star Trek
+
+Tue, 23 Jun 2026 16:00:13 GMT
+
+https://www.cbr.com/star-trek-zero-point-horror-series-confirmed/
+
+Star Trek's next spinoff series is getting the IDW Dark treatment along with a handful of other fan-favorite titles, and genre fans will love it.
+---------
+
+# Disney’s $1 Billion Sci-Fi Sequel Finally Arrives on Streaming This Week
+
+Movie News, Avatar: Fire and Ash, Disney+, James Cameron, Sam Worthington
+
+Tue, 23 Jun 2026 16:54:17 GMT
+
+https://collider.com/avatar-fire-and-ash-streaming-release-date-disney-plus-june-24-2026/
+
+Avatar: Fire and Ash, the $1.4 billion sci-fi sequel directed by James Cameron, arrives on Disney Plus this week. Find out how to watch here.
+---------
+
+# 'Scary Movie' Just Broke a 25-Year Franchise Tradition
+
+Movie News, Scary Movie, Horror, Box Office
+
+Tue, 23 Jun 2026 16:49:40 GMT
+
+https://collider.com/scary-movie-franchise-record-box-office-200-million/
+
+The biggest horror reboot of 2026 just scared up its biggest box office haul since the original movie. Read on for all the details.
+---------
+
+# 8 Saddest Stephen King Movies
+
+Movie, The Shawshank Redemption, The Green Mile, Stand by Me, The Mist
+
+Tue, 23 Jun 2026 16:45:16 GMT
+
+https://collider.com/saddest-stephen-king-movies-ranked/
+
+There are almost as many sad Stephen King movies as scary ones, as the likes of The Green Mile, The Shawshank Redemption, and The Life of Chuck show.
+---------
+
+# Tom Cruise's First Original Thriller in 9 Years Gets Bonkers First Footage
+
+Movie News, Digger, Alejandro G. Inarritu, Tom Cruise, Thriller
+
+Tue, 23 Jun 2026 16:01:49 GMT
+
+https://collider.com/digger-movie-first-look-tom-cruise-retrospective-video/
+
+Tom Cruise’s new movie Digger reveals its first footage in a retrospective celebrating the actor’s 40-year career.
+---------
+
+# 'Andor' Is Finally Getting the Follow-Up It Deserves With New Release [Exclusive]
+
+TV News, Andor, Star Wars, Rogue One: A Star Wars Story
+
+Tue, 23 Jun 2026 16:00:13 GMT
+
+https://collider.com/the-art-of-star-wars-andor-complete-series-book-sneak-peek/
+
+The Art of Star Wars: Andor (The Complete Series) explores all 24 episodes of the acclaimed Disney+ series ahead of its June release.
+---------
+
+# Prime Video’s ‘Reacher’ Replacement Officially Returns With Major Season 3 Update
+
+TV News, Cross, Prime Video, Aldis Hodge, Ron Perlman
+
+Tue, 23 Jun 2026 16:00:13 GMT
+
+https://collider.com/prime-video-crime-thriller-cross-season-3-cast-ron-perlman/
+
+Cross, the Prime Video series perfect for Reacher fans, is building out its Season 3 ensemble with Hellboy veteran Ron Perlman.
+---------
+
+# ‘The Big Bang Theory’ Officially Returns With New Sci-Fi Spin-Off After 7 Years
+
+TV News, Stuart Fails to Save the Universe, The Big Bang Theory, HBO Max, Kevin Sussman
+
+Tue, 23 Jun 2026 16:00:13 GMT
+
+https://collider.com/the-big-bang-theory-sci-fi-spin-off-stuart-fails-to-save-the-universe-first-trailer-release-date-july-23/
+
+HBO Max has released the official trailer for Stuart Fails to Save the Universe, The Big Bang Theory sci-fi spin-off starring Kevin Sussman.
+---------
+
+# 'Adventure Time’ Officially Returns With New Finn and Jake Spin-Off After 5 Years  [Exclusive]
+
+Exclusives, Adventure Time: Side Quests, Hulu, Adventure Time, Disney+
+
+Tue, 23 Jun 2026 16:00:13 GMT
+
+https://collider.com/adventure-time-side-quests-sneak-peek-finn-jake-hulu-disney/
+
+A new sneak peek at Adventure Time: Side Quests reunites Jake and Finn for some chaotic fun with a crossbow. Watch it here!
+---------
+
+# Netflix's New 'One Piece' Anime Remake Is Officially Better Than the Original
+
+TV News, One Piece, Netflix, Anime, Annecy
+
+Tue, 23 Jun 2026 15:30:13 GMT
+
+https://collider.com/the-one-piece-image-luffy-netflix-anime-remake/
+
+A new image from Netflix's The One Piece anime remake shows an excited Luffy setting sail in the East Blue. Check it out here!
+---------
+
+# Netflix's 10/10 'Arcane' Replacement Series Officially Returns After 3-Year Delay
+
+TV News, Blue Eye Samurai, Netflix, Annecy, Maya Erskine
+
+Tue, 23 Jun 2026 15:30:13 GMT
+
+https://collider.com/blue-eye-samurai-season-2-image-netflix-action-epic-maya-erskine/
+
+A new look at Season 2 of Blue Eye Samurai teases a vengeful return for Netflix's bloody adult animated series.
+---------
+
+# 'Fast Forever' Is Returning to the Franchise's Roots in a Surprising Way
+
+Features, Fast Forever
+
+Tue, 23 Jun 2026 17:00:22 GMT
+
+https://movieweb.com/fast-x-part-2-release-date-plot-cast/
+
+After almost 25 years of providing entertainment for audiences, the 'Fast & Furious' franchise will say goodbye to fans with 'Fast Forever'
+---------
+
+# 2026's 'Yellowstone' Spin-offs Confirm the End of an Era For Taylor Sheridan
+
+Features, Yellowstone, Taylor Sheridan
+
+Tue, 23 Jun 2026 17:00:21 GMT
+
+https://movieweb.com/yellowstone-marshals-dutton-ranch-changes/
+
+'Yellowstone' has several spin-off series that have aired in 2026, and they signal something significant about the Taylor Sheridan franchise.
+---------
+
+# An Underrated Martial Arts Action Cult Classic Is Getting a Spin-Off
+
+Movie News, Shaolin Soccer
+
+Tue, 23 Jun 2026 16:54:38 GMT
+
+https://movieweb.com/stephen-chow-shaolin-soccer-spin-off-theatrical-release/
+
+'Kung Fu Hustle' director Stephen Chow's 'Kung Fu Soccer,' a spin-off of 2001's 'Shaolin Soccer,' is expected to hit theaters later this year.
+---------
+
+# Tom Cruise Is Unrecognizable in New Trailer for Upcoming Epic 'Digger'
+
+Movie News, Digger
+
+Tue, 23 Jun 2026 16:50:55 GMT
+
+https://movieweb.com/tom-cruise-digger-retrospective-trailer/
+
+Tom Cruise transforms himself into the most powerful man in the world in the new trailer for 'Digger.'
+---------
+
+# Every Dragon & Dragonrider Still Alive In House of the Dragon Season 3
+
+TV Lists, House of the Dragon, HBO Max, Fantasy
+
+Tue, 23 Jun 2026 16:00:19 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-every-dragon-dragonrider-alive/
+
+'House of the Dragon' Season 3 is now airing on HBO on Sunday evenings, and there are many memorable dragons and dragonriders.
+---------
+
+# Why 'Terrifier 2's Bedroom Scene Is So Controversial
+
+Features, Terrifier 2, Horror
+
+Tue, 23 Jun 2026 16:00:19 GMT
+
+https://movieweb.com/terrifier-2-controversial-bedroom-scene-explained/
+
+Terrifier 2 features a horrifying scene that leaves an everlasting impression on the audience. But why exactly is it controversial?
+---------
+
+# 'The Devil Wears Prada 2' Streaming Release Date Officially Confirmed
+
+Movie News, The Devil Wears Prada 2, Disney+, Hulu
+
+Tue, 23 Jun 2026 15:34:53 GMT
+
+https://movieweb.com/the-devil-wears-prada-2-disney-plus-hulu-streaming-date/
+
+Disney and 20th Century's 'The Devil Wears Prada 2' has officially set a date to begin streaming on Disney+ and Hulu.
+---------
+
+# Tom Cruise's 145-Minute Masterpiece War Epic Finally Returns To Streaming
+
+Movie News, Tom Cruise, Born on the Fourth of July, Coming/Leaving Streaming, War
+
+Tue, 23 Jun 2026 15:30:18 GMT
+
+https://movieweb.com/tom-cruise-born-on-the-fourth-of-july-streaming-peacock-july-2026/
+
+Cruise gave the performance of a lifetime in Oliver Stone's 1989 epic Vietnam War movie based on a true story.
+---------
+
+# John Wayne's 15 Best War Movies, Ranked
+
+Movie Lists, John Wayne, War
+
+Tue, 23 Jun 2026 15:01:19 GMT
+
+https://movieweb.com/john-wayne-war-movies/
+
+While John Wayne may be best known for his Western movies, the patriotic actor also starred in many war films, and these are the best.
+---------
+
+# "Tombstone Meets House of the Dragon" in New Sci-Fi Western Cinematic Universe
+
+Exclusives, Primitive War, Western, Sci-Fi
+
+Tue, 23 Jun 2026 15:01:18 GMT
+
+https://movieweb.com/primitive-war-dinosaurs-wild-west-cinematic-universe/
+
+'Primitive War' director Luke Sparke offers insight into a new cinematic universe featuring cowboys and dinosaurs.
+---------
+
 # Why Mark's Best Friend, William, Was Recast For Invincible Season 4
 
 Streaming TV, Invincible
