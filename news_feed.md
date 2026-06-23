@@ -1,3 +1,344 @@
+# Steam Drops 4 Free Games You Can Download Now, No Strings Attached
+
+Gaming, Steam, PC, Indie
+
+Tue, 23 Jun 2026 03:00:21 GMT
+
+https://screenrant.com/steam-4-free-games-june-2026-no-subscriptions/
+
+Four new games have been added to Steam for you to claim, download, and keep forever, no strings attached, so I’d recommend moving fast.
+---------
+
+# 5 Anime Just As Visually Stunning As Witch Hat Atelier
+
+Anime, Witch Hat Atelier
+
+Tue, 23 Jun 2026 03:00:21 GMT
+
+https://screenrant.com/best-looking-anime-watch-after-witch-hat-atelier/
+
+With the first season of Witch Hat Atelier officially wrapped, these visually stunning anime offer a similar magical touch to fill the Monday void.
+---------
+
+# New Tom & Jerry Movie’s “Rom-Com In The Style Of La La Land” Plot Revealed By Writer
+
+Movies, Tom and Jerry
+
+Tue, 23 Jun 2026 02:30:59 GMT
+
+https://screenrant.com/tom-and-jerry-movie-rom-com-story-details-will-mccormack-explained/
+
+A new Tom and Jerry movie is on the way, and it is taking a different approach, with one of the writers calling it a rom-com akin to La La Land.
+---------
+
+# Every Buzz Lightyear Version In Toy Story Movies & TV, Ranked
+
+Movies, Toy Story 5, Toy Story, Pixar
+
+Tue, 23 Jun 2026 02:03:53 GMT
+
+https://screenrant.com/every-buzz-lightyear-version-in-toy-story-movies-tv-ranked/
+
+There's been quite a few different variants of Buzz Lightyear since 1995 across movies and TV, so here are our favorites ranked from worst to best.
+---------
+
+# Netflix's New #1 Medical Drama Is So Good, Fans Are Already Demanding A Third Season
+
+Anime, Netflix, Masked Recs
+
+Tue, 23 Jun 2026 02:00:33 GMT
+
+https://screenrant.com/netflix-best-medical-k-drama-trauma-code-heroes-on-call-season-3/
+
+A streaming hit from early 2025 has the potential to be an ongoing medical drama with recent speculation on its renewal.
+---------
+
+# Spider-Man: Brand New Day Officially Introduces Another X-Men Character Amid Jean Grey Theories
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel, Marvel Cinematic Universe
+
+Tue, 23 Jun 2026 01:46:38 GMT
+
+https://screenrant.com/spider-man-brand-new-day-officially-introduces-another-x-men-character-amid-jean-grey-theories/
+
+Spider-Man: Brand New Day's Jean Grey theories continue to get stronger as the movie officially introduces another obscure X-Men character.
+---------
+
+# 5 Action Anime Heroes Stronger Than Sung Jinwoo
+
+Anime
+
+Tue, 23 Jun 2026 01:30:20 GMT
+
+https://screenrant.com/anime-heroes-stronger-jinwoo/
+
+Sung Jinwoo has quickly established himself as one of the strongest characters in anime, but there are still a handful of people even he can't defeat.
+---------
+
+# Marvel Announces New Captain America Powers, Ahead Of MCU Return
+
+Marvel Comics, Captain America
+
+Tue, 23 Jun 2026 01:00:21 GMT
+
+https://screenrant.com/captain-america-new-power-soul-doctor-doom/
+
+Steve Rogers gains access to a whole new realm thanks to none other than Doctor Doom, who reveals his shocking connection to Captain America.
+---------
+
+# The Walking Dead's 3 Biggest Characters Officially Reunite For First Time In 12 Years
+
+Gaming, The Walking Dead, PC, Indie
+
+Tue, 23 Jun 2026 01:00:21 GMT
+
+https://screenrant.com/walking-dead-reunion-new-game-rick-daryl-michonne/
+
+Three of the biggest characters from The Walking Dead are making an official comeback in a reunion, 12 years after their last efforts together.
+---------
+
+# Disney Officially Makes History With Its Live-Action Lilo & Stitch Sequel
+
+Movies, Lilo & Stitch, Disney, Lilo & Stitch 2
+
+Tue, 23 Jun 2026 03:45:13 GMT
+
+https://www.cbr.com/lilo-and-stitch-live-action-remake-sequel-record/
+
+Disney's sequel to this $1 billion live-action remake is officially taking a step in the right direction.
+---------
+
+# 10 Hardest '90s Games, Officially Ranked
+
+Games, Video Games, sega, Gaming
+
+Tue, 23 Jun 2026 03:45:13 GMT
+
+https://www.cbr.com/hardest-1990s-games-super-man-the-lion-king-contra/
+
+The Lion King and Myst are just two of the most punishing '90s video games.
+---------
+
+# The Vampire Lestat Star Teases Long-Awaited Love Story For Show's Narrator
+
+CBR Exclusives, The Vampire Lestat
+
+Tue, 23 Jun 2026 03:43:23 GMT
+
+https://www.cbr.com/the-vampire-lestat-nicky-love-story-joseph-potter-interview/
+
+The Vampire Lestat star Joseph Potter discusses Nicky, Lestat’s human love story, and Sam Reid’s softer side in Episode 3.
+---------
+
+# Captain Janeway's Single Greatest Star Trek Line Hits Harder Than Any Sci-Fi Quote Since
+
+TV, Star Trek, Star Trek: Voyager, Sci-Fi
+
+Tue, 23 Jun 2026 03:30:15 GMT
+
+https://www.cbr.com/captain-janeway-greatest-star-trek-line-sci-fi-quote/
+
+In Voyager’s Season 4 finale, Captain Janeway’s blunt truth to Seven of Nine captures the burden of command and why isolation defines her leadership.
+---------
+
+# It's Official, Fans Can Play as Nicolas Cage in Call of Duty
+
+Games, Call of Duty, Nicolas Cage
+
+Tue, 23 Jun 2026 03:25:33 GMT
+
+https://www.cbr.com/nicolas-cage-call-of-duty-black-ops-7/
+
+Nicolas Cage officially enters the world of Call of Duty.
+---------
+
+# The Lord of the Rings Just Crushed a Popular Entwife Theory
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings: The Two Towers
+
+Tue, 23 Jun 2026 03:15:16 GMT
+
+https://www.cbr.com/lord-of-the-rings-tolkien-letter-disproves-entwife-theory/
+
+A newly revealed letter from J. R. R. Tolkien disproved the leading theory about one of The Lord of the Rings' biggest mysteries.
+---------
+
+# Greatest Nintendo GameCube Games Ever Made
+
+Games, Nintendo, Super Smash Bros, Mario Kart
+
+Tue, 23 Jun 2026 03:15:16 GMT
+
+https://www.cbr.com/greatest-nintendo-gamecube-games-ever-made/
+
+The GameCube is one of Nintendo's most underrated systems, with an incredible lineup of first-party exclusive titles that still hold up today.
+---------
+
+# 5 Darkest Anime Ever Made
+
+Anime, Berserk, Devilman Crybaby, Studio Ghibli
+
+Tue, 23 Jun 2026 02:45:15 GMT
+
+https://www.cbr.com/darkest-anime-ever-made/
+
+Anime is capable of telling incredibly dark stories, and these series push that potential to its limits.
+---------
+
+# 5 Netflix Action Movies Better Than Extraction
+
+Movies, Extraction
+
+Tue, 23 Jun 2026 02:45:15 GMT
+
+https://www.cbr.com/netflix-action-movies-better-than-extraction-list/
+
+Extraction may be a bigger action franchise for Netflix, but some films are still better than the Hemsworth-led John Wick clone.
+---------
+
+# 10 Best Games Like Marvel's Wolverine to Play Before Launch
+
+Games, Marvel, action rpg, God of War, Wolverine
+
+Tue, 23 Jun 2026 02:30:13 GMT
+
+https://www.cbr.com/best-games-to-play-before-marvel-wolverine/
+
+From God of War to Ghostrunner 2, these games will sharpen players’ claws before Marvel's Wolverine launches on September 15.
+---------
+
+# 7 Most Universally Beloved Anime of All Time, Ranked
+
+TV, Anime, Fullmetal Alchemist, Haikyu!!, Gurren Lagann
+
+Tue, 23 Jun 2026 04:18:12 GMT
+
+https://collider.com/anime-series-universally-beloved-all-time-ranked/
+
+From the steampunk adventure Fullmetal Alchemist: Brotherhood to the action-comedy Mob Psycho 100, which anime series the most universally beloved?
+---------
+
+# 6 Worst Kids' Movies of the '80s
+
+Movie, Mac and Me, Howard the Duck, The Garbage Pail Kids Movie, Cry Wilderness
+
+Tue, 23 Jun 2026 04:05:13 GMT
+
+https://collider.com/worst-kids-movies-80s-ranked/
+
+Mac and Me, Howard the Duck, and The Garbage Pail Kids Movie are all among the absolute bottom-of-the-barrel worst kids and family movies of the '80s.
+---------
+
+# 7 Thriller Shows That Will Keep You Hooked From Start to Finish
+
+TV, Thriller, The Boroughs, Severance, His & Hers
+
+Tue, 23 Jun 2026 03:55:14 GMT
+
+https://collider.com/thriller-shows-hooked-start-to-finish/
+
+From Apple TV's dystopian series Severance to Netflix's The Boroughs, these thriller shows will keep you hooked to your screen from start to finish.
+---------
+
+# HBO Max's Explosive 4-Part Action Series Is a Perfect Weekend Binge
+
+Movie Features, Batman, Batman Returns, Batman Forever, Batman and Robin
+
+Tue, 23 Jun 2026 03:30:16 GMT
+
+https://collider.com/batman-tim-burton-action-series-weekend-binge/
+
+Tim Burton began the first big-budget Hollywood telling of Batman that was pure 90s camp.
+---------
+
+# 'Reacher' Fans Need To Check Out David Boreanaz's 7-Part Action Thriller
+
+TV Features, David Boreanaz, Reacher, SEAL Team, Paramount Plus
+
+Tue, 23 Jun 2026 03:19:13 GMT
+
+https://collider.com/reacher-david-boreanaz-seal-team-7-part-action-thriller-paramount-plus/
+
+While David Boreanaz might be best known for Angel and Bones, his most dynamic role was in Paramount+'s SEAL Team.
+---------
+
+# ‘X-Files’ Introduced One of TV’s Most Iconic Sci-Fi Monsters 33 Years Ago
+
+TV Features, The X-Files, David Duchovny, Gillian Anderson, Fox
+
+Tue, 23 Jun 2026 03:17:13 GMT
+
+https://collider.com/x-files-squeeze-horror-iconic-sci-fi-monster/
+
+X-Files' famous episode "Squeeze" introduced one of TV's most iconic sci-fi monsters, Eugene Tooms, and revolutionized network TV.
+---------
+
+# 8 Forgotten Thrillers Better Than Most Blockbusters You've Already Seen
+
+Movie, Thriller, Wait Until Dark, The Book of Eli
+
+Tue, 23 Jun 2026 03:11:14 GMT
+
+https://collider.com/forgotten-thriller-movies-better-than-most-blockbusters/
+
+From overlooked blockbusters like Edge of Tomorrow to dismissed classics like Wait Until Dark, these thriller films are forgotten treats of cinema.
+---------
+
+# 3 Prime Video Series You Need To Binge Before the End of June
+
+TV, Prime Video, Primeval, Rules of Engagement, Small Axe
+
+Tue, 23 Jun 2026 01:11:14 GMT
+
+https://collider.com/prime-video-shows-binge-june-2026/
+
+Rules of Engagement, Primeval, and Small Axe make up our list of the best Prime Video series to binge in June 2026.
+---------
+
+# Sam Rockwell’s Sci-Fi Flop Gets a Second Chance as Hulu’s No. 1 Movie
+
+Movie News, Good Luck, Have Fun, Don't Die, Gore Verbinski, Sam Rockwell, Sci-Fi
+
+Tue, 23 Jun 2026 01:00:13 GMT
+
+https://collider.com/good-luck-have-fun-dont-die-gore-verbinski-sci-fi-gem-streaming-success-hulu-june-2026/
+
+Gore Verbinski's first new movie in a decade, the sci-fi gem Good Luck, Have Fun, Don't Die, has emerged as a streaming sensation on Hulu.
+---------
+
+# Forget 'Heat,' This Forgotten Crime Thriller Pulls Off an Even More Ambitious Genre Trick
+
+Movie Features, Dead Presidents, Albert Hughes, Crime, War
+
+Tue, 23 Jun 2026 00:41:13 GMT
+
+https://collider.com/dead-presidents-underrated-heist-war-movie/
+
+Dead Presidents blends crime, war, and social commentary into a gripping '90s classic that deserves recognition as one of cinema's greatest films.
+---------
+
+# 8 Great TV Shows With 10+ Seasons (& All of Them Are Good)
+
+TV Lists, ER
+
+Tue, 23 Jun 2026 02:00:32 GMT
+
+https://movieweb.com/perfect-tv-shows-more-than-10-seasons/
+
+These TV series, from sitcoms to dramas to animated series, have more than 10 seasons, and every season is impressive.
+---------
+
+# 'Harry Potter' Reboot Star Confirms One Major Change to Beloved Character
+
+TV News, Harry Potter, Nick Frost
+
+Tue, 23 Jun 2026 00:47:12 GMT
+
+https://movieweb.com/harry-potter-reboot-hagrid-violent-nick-frost/
+
+Nick Frost explained how his take on Hagrid was inspired by a "violent" Stephen King character.
+---------
+
 # Genshin Impact Players Notice Funniest Nerf The RPG Has Ever Had
 
 Gaming, Genshin Impact, PC, Live Service Games
