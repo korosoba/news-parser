@@ -1,3 +1,366 @@
+# All 8 Upcoming Warner Bros. Animated Movies Explained (Including Hello Kitty & DC's Dynamic Duo)
+
+Movies, Warner Bros.
+
+Tue, 23 Jun 2026 21:10:23 GMT
+
+https://screenrant.com/upcoming-warner-bros-animated-movies/
+
+Warner Bros. has revealed its animation slate for the next few years, including some surprising original projects and some shocking adaptations.
+---------
+
+# Netflix's 7-Year-Old Fantasy Series Had A Near-Perfect Debut Season
+
+TV, Masked Recs
+
+Tue, 23 Jun 2026 21:03:35 GMT
+
+https://screenrant.com/the-umbrella-academy-near-perfect-debut-season/
+
+A dysfunctional family of mismatched superhero siblings reunite to prevent the end of the world in this bizarre and underrated Netflix series.
+---------
+
+# James Gunn's Superman Is #1 On Prime, Which Is Perfect Ahead Of Supergirl
+
+Movies, Superman, Prime Video, Streaming Charts
+
+Tue, 23 Jun 2026 21:00:21 GMT
+
+https://screenrant.com/james-gunn-superman-prime-video-trending-watch-before-supergirl/
+
+Superman has vaulted up to the top of Amazon Prime Video's streaming charts, which is just in time for the arrival of Supergirl in theaters.
+---------
+
+# Super Smash Bros Returns With Wildest Roster We've Ever Seen
+
+Gaming, Super Smash Bros., Nintendo, Nintendo Switch 2
+
+Tue, 23 Jun 2026 21:00:21 GMT
+
+https://screenrant.com/super-smash-bros-remix-roster/
+
+Super Smash Bros. is making a comeback, only this time its packed roster is full of some truly wild characters no one would ever expect.
+---------
+
+# Why Hulu Hasn’t Officially Ordered Ryan Coogler’s New X-Files Reboot To Series Addressed By Star
+
+TV, The X-Files
+
+Tue, 23 Jun 2026 20:55:21 GMT
+
+https://screenrant.com/ryan-coogler-x-files-reboot-hulu-pilot-not-series-order-himesh-patel/
+
+Ryan Coogler recently began filming The X-Files reboot pilot, but one of the stars is now revealing why Hulu hasn’t greenlit a full season.
+---------
+
+# Former Batman Actor Officially Confirmed To Return As Bruce Wayne In New DC Movie
+
+Movies, Masked Recs
+
+Tue, 23 Jun 2026 20:52:43 GMT
+
+https://screenrant.com/batman-knightfall-movie-trilogy-dc-anson-mount-casting/
+
+DC's former Batman actor is finally getting a new chance as Bruce Wayne, as the superhero star returns in an exciting new Dark Knight film.
+---------
+
+# Live-Action Legend Of Korra Remake Chances Addressed By Netflix's ATLA Star
+
+TV, Avatar: The Last Airbender, The Legend of Korra, Netflix
+
+Tue, 23 Jun 2026 20:46:19 GMT
+
+https://screenrant.com/atla-legend-of-korra-live-action-remake-netflix-gordon-cormier/
+
+Exclusive: Gordon Cormier addresses the chances of a live-action Legend of Korra remake after Netflix's Avatar: The Last Airbender comes to a close.
+---------
+
+# 8 Great Scenes From Not-So-Great TV Shows
+
+Classic TV
+
+Tue, 23 Jun 2026 20:46:21 GMT
+
+https://screenrant.com/great-scenes-from-average-bad-tv-shows/
+
+Not every TV show can achieve greatness, but the ones that fall short can sometimes deliver one truly great scene to make the series worthwhile.
+---------
+
+# Azrael Officially Makes His DC Movie Debut In New Batman Trilogy
+
+Movies, Masked Recs
+
+Tue, 23 Jun 2026 20:45:26 GMT
+
+https://screenrant.com/azrael-dc-batman-knightfall-movie-debut/
+
+Azrael is finally making his film debut in the new Batman movie trilogy from the DC Universe's Elseworlds, making the project even more exciting.
+---------
+
+# Supergirl's Jason Momoa Confirms Aquaman Audition: 'Let's Do This'
+
+CBR Exclusives, Supergirl, Jason Momoa, Lobo, Aquaman
+
+Tue, 23 Jun 2026 21:02:02 GMT
+
+https://www.cbr.com/supergirls-lobo-jason-momoa-confirms-aquaman-audition/
+
+This Supergirl actor had a different character in mind for their first DC role.
+---------
+
+# 5 Movies With Better Fight Scenes Than John Wick
+
+Movies, Action, John Wick, The Matrix
+
+Tue, 23 Jun 2026 21:00:14 GMT
+
+https://www.cbr.com/movies-better-fight-scenes-than-john-wick-list/
+
+In 2014, John Wick salvaged a dying action genre with its expert fight scenes, but some movies outshine Keanu Reeves’ assassin.
+---------
+
+# After 2 Months, James Gunn's Superman Sequel Gets Major Production Update
+
+Movies
+
+Tue, 23 Jun 2026 20:41:42 GMT
+
+https://www.cbr.com/james-gunn-dcu-superman-sequel-gets-major-production-update/
+
+James Gunn and Superman are both moving at super speed based on this DCU update.
+---------
+
+# 10 Greatest Steven Spielberg Movies Inspired By Real Events
+
+Movies, steven spielberg, The Fabelmans, Empire of the Sun, Bridge of Spies, Munich, Catch Me If You Can, The Post, Schindler's List, The Terminal, Saving Private Ryan, Lincoln
+
+Tue, 23 Jun 2026 20:30:14 GMT
+
+https://www.cbr.com/best-steven-spielberg-movies-based-on-true-stories/
+
+Many of Steven Spielberg's greatest movies were inspired by real events, making them more poignant, emotional, and dramatic.
+---------
+
+# Netflix's New 8-Part Harlan Coben Show Scores Biggest Series Debut of 2026
+
+TV, Netflix, I Will Find You
+
+Tue, 23 Jun 2026 20:17:27 GMT
+
+https://www.cbr.com/netflix-i-will-find-you-biggest-series-debut-2026/
+
+Harlan Coben and Netflix always know how to deliver a hit.
+---------
+
+# Witch Hat Atelier Season 2 is Coming, but the Release Date is Far
+
+Anime, Witch Hat Atelier
+
+Tue, 23 Jun 2026 20:15:14 GMT
+
+https://www.cbr.com/witch-hat-atelier-season-2-reported-in-production/
+
+Witch Hat Atelier has just aired its season finale, Episode 13, and fans are already begging for a Season 2.
+---------
+
+# Yu-Gi-Oh! Fans Get First Look at New Collectible Card Designs
+
+Anime, Yu-Gi-Oh!, Shonen Jump, konami
+
+Tue, 23 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/yu-gi-oh-art-expansion-new-card-designs/
+
+The latest line of Yu-Gi-Oh! gear is perfect for fans, and it might just be the best way they have to celebrated its 30th anniversary in style.
+---------
+
+# The Fantastic Four Horror Makeover Revealed in First Look
+
+Comics, Marvel
+
+Tue, 23 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/midnight-fantastic-four-first-look/
+
+The upcoming Midnight line brings horror to Marvel's first family.
+---------
+
+# The Legend of Zelda Will Be the Fantasy Event of the Decade
+
+Movies, The Legend of Zelda, Fantasy, Nintendo
+
+Tue, 23 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/the-legend-of-zelda-movie-video-game-adaptation-fantasy-event/
+
+This upcoming Nintendo video game adaptation will revolutionize the fantasy genre.
+---------
+
+# James Gunn's DC Universe Gets Reassuring Update Amid Paramount-Warner Bros. Merger
+
+Movies, DC Comics, DCU, James Gunn, Superman, Superman: Man of Tomorrow, Supergirl, Lanterns, Clayface, My Adventures With Superman, Creature Commandos
+
+Tue, 23 Jun 2026 19:59:42 GMT
+
+https://www.cbr.com/james-gunn-dcu-reassuring-update-amid-paramount-warner-bros-merger/
+
+Hate it or love it, but James Gunn got a massive update from Paramount about the DCU.
+---------
+
+# Black Sabbath's Greatest Protest Songs Reveal Metal's Political Roots
+
+Music Features, Black Sabbath: The End of The End, Metal, Rock, Music
+
+Tue, 23 Jun 2026 20:50:16 GMT
+
+https://collider.com/black-sabbath-greatest-protest-songs-war-pigs-ozzy-osbourne/
+
+Ozzy Osbourne and Black Sabbath tackled anti-war and class divide on classics like War Pigs
+---------
+
+# ‘What We Do in the Shadows’ Sequel Is Officially Moving Forward [Exclusive]
+
+Movie News, What We Do in the Shadows, Taika Waititi, Jemaine Clement
+
+Tue, 23 Jun 2026 20:31:06 GMT
+
+https://collider.com/what-we-do-in-the-shadows-2-sequel-werewolves-jemaine-clement/
+
+Is We're Wolves, the long-awaited sequel to What We Do in the Shadows, finally in the works? Here's what Jemaine Clement had to say.
+---------
+
+# 41-Year-Old Fantasy Classic Officially Gets New Reboot Movie
+
+Movie News, Thundercats, Warner Bros., HBO Max, ThunderCats
+
+Tue, 23 Jun 2026 20:22:47 GMT
+
+https://collider.com/thundercats-movie-warner-bros-update/
+
+Warner Bros.’ long-awaited ThunderCats movie has received a promising update as fans continue waiting for the classic franchise’s big-screen return.
+---------
+
+# New Batman Movie Officially Confirms Bane as Main Villain in Epic Trailer
+
+Movie News, DC Comics, Animation, Anson Mount, Michael Mando
+
+Tue, 23 Jun 2026 20:06:38 GMT
+
+https://collider.com/batman-knightfall-part-1-trailer/
+
+Batman officially returns to the world of movies in a stunning new trailer, reintroducing audiences to the fearsome Bane.
+---------
+
+# Taylor Sheridan's Newest Crime Thriller Officially Releases Today
+
+TV News, Mayor of Kingstown, Taylor Sheridan, Yellowstone, Landman
+
+Tue, 23 Jun 2026 19:46:11 GMT
+
+https://collider.com/taylor-sheridan-crime-thriller-how-to-not-die-in-prison-release-date/
+
+Taylor Sheridan is officially back with a brand new crime thriller, and it is an absolute must for Mayor of Kingstown and Tulsa King fans.
+---------
+
+# 10 ‘Breaking Bad’ Characters More Powerful Than Walter White, Ranked
+
+TV, Breaking Bad, Bryan Cranston, Better Call Saul, El Camino: A Breaking Bad Movie
+
+Tue, 23 Jun 2026 19:44:14 GMT
+
+https://collider.com/breaking-bad-characters-more-powerful-than-walter-white-ranked/
+
+Elliott and Gretchen, Jane Margolis, Skyler White, and more make up our list of Breaking Bad characters who are more powerful than Walter White.
+---------
+
+# 10 Thrillers That Are Perfect From the First Scene to Last
+
+Movie, Thriller, High And Low, Whiplash
+
+Tue, 23 Jun 2026 19:23:16 GMT
+
+https://collider.com/thriller-movies-perfect-first-scene-to-last/
+
+Many exceptional thriller movies hook audiences and keep them engaged from beginning to end, including masterpieces like Prisoners, Jaws, and Oldboy.
+---------
+
+# The 9-Part Thriller Considered One of the Most Binge-Worthy Series Ever
+
+Features, Suits
+
+Tue, 23 Jun 2026 21:00:19 GMT
+
+https://movieweb.com/suits-15th-anniversary-binge-worthy/
+
+This thriller TV series has nine seasons and is a perfect and memorable binge-watch.
+---------
+
+# One of Prime Video's Best Action Thrillers Adds 'Hellboy' Icon for New Season
+
+TV News, Cross, Ron Perlman
+
+Tue, 23 Jun 2026 20:20:20 GMT
+
+https://movieweb.com/prime-video-cross-season-3-ron-perlman-cast/
+
+The upcoming third season of 'Cross' promises a change of pace with this new key character played by Ron Perlman.
+---------
+
+# Next Batman Movie Officially Revealed in First Trailer for 2026 Release
+
+Movie News, Batman
+
+Tue, 23 Jun 2026 20:14:27 GMT
+
+https://movieweb.com/batman-knightfall-trilogy-first-trailer/
+
+Warner Bros. revealed the first official trailer for its next Batman movie, which will debut later this year.
+---------
+
+# Prime Video Finds New #1 Smash With James Gunn's Epic 129-Minute Blockbuster
+
+Movie News, Superman, James Gunn, Hot on Streaming
+
+Tue, 23 Jun 2026 20:00:19 GMT
+
+https://movieweb.com/superman-james-gunn-streaming-hit-prime-video-june-2026/
+
+Ahead of the release of 'Supergirl' this weekend, James Gunn's epic 2025 blockbuster is soaring to new heights on streaming.
+---------
+
+# Apple TV's Sci-Fi Hit Shifts Away From Its Winning Formula After 3 Seasons
+
+Features, Foundation
+
+Tue, 23 Jun 2026 20:00:19 GMT
+
+https://movieweb.com/foundation-season-4-returning-clones/
+
+Apple TV has been known for taking risks with sci-fi, and a change in one of its biggest shows will improve it even further. Read on for more.
+---------
+
+# Glen Powell Officially Confirmed for New Erotic Sci-Fi Thriller From DC Director
+
+Movie News, Glen Powell, Supergirl, Craig Gillespie
+
+Tue, 23 Jun 2026 20:00:16 GMT
+
+https://movieweb.com/glen-powell-sci-fi-thriller/
+
+'Supergirl' director Craig Gillespie is in talks to direct 'Homewreckers' for Legendary Pictures.
+---------
+
+# Peacock Officially Confirms Fate of Acclaimed 94% Rated Spy Thriller Series
+
+TV News, Ponies, Peacock, Emilia Clarke, Haley Lu Richardson
+
+Tue, 23 Jun 2026 19:22:47 GMT
+
+https://movieweb.com/ponies-show-canceled-peacock-emilia-clarke/
+
+The streamer has pulled the plug on Emilia Clarke's 'Ponies' after a single season.
+---------
+
 # “Capcom Has No F**king Idea” What To Do With Resident Evil 5 & 6 Remakes, Says Insider
 
 Gaming, Resident Evil, Resident Evil 5, Resident Evil 6, Triple-A Games, PC
