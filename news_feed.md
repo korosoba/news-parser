@@ -1,3 +1,212 @@
+# It’s Officially The End Of An Era For Zelda Following Unexpected Cancellation
+
+Gaming, The Legend of Zelda, Nintendo, Nintendo Switch 2
+
+Tue, 23 Jun 2026 23:32:28 GMT
+
+https://screenrant.com/zelda-cancelled-ocarina-fan-remake/
+
+It unfortunately appears as if a recent The Legend of Zelda cancellation has completely ended an era, disappointing fans everywhere.
+---------
+
+# Yellowstone Quietly Starts A New Era In 2026
+
+TV, Yellowstone, Taylor Sheridan, Marshals, Dutton Ranch
+
+Tue, 23 Jun 2026 23:32:22 GMT
+
+https://screenrant.com/yellowstone-starts-new-era-2026-kayce-dutton-ranch/
+
+While Yellowstone ended in 2024, its spinoff Marshals just proved that, between it and Dutton Ranch, the franchise has started a whole new era.
+---------
+
+# First Movie Adaptation Of Polarizing 107-Year-Old Novel Debuts To Stellar Rotten Tomatoes Score
+
+Movies, Masked Recs
+
+Tue, 23 Jun 2026 23:21:14 GMT
+
+https://screenrant.com/virginia-woolfs-night-and-day-rotten-tomatoes-score/
+
+The first movie adaptation of a polarizing 107-year-old novel debuts to a stellar Rotten Tomatoes score following its release on June 19.
+---------
+
+# Jenna Ortega's New Character Is A Perfect Flip Of Her Wednesday Role
+
+Movies, Masked Recs
+
+Tue, 23 Jun 2026 23:15:20 GMT
+
+https://screenrant.com/jenna-ortega-klara-and-the-sun-wednesday-role-flip/
+
+Jenna Ortega is most famous for playing the macabre, deadpan Wednesday Addams, which is what makes her polar opposite new role so exciting.
+---------
+
+# The Matrix Meets Westworld In Amazon's 10-Part Cyberpunk Thriller Series
+
+Classic TV, Masked Recs
+
+Tue, 23 Jun 2026 23:05:20 GMT
+
+https://screenrant.com/the-peripheral-matrix-meets-westworld-cyberpunk-show/
+
+Prime Video's superb cyberpunk series was a unique blend of The Matrix and Westworld, but sadly, its swift cancellation left fans wanting more.
+---------
+
+# Pokémon Meets Minecraft In Gorgeous New Retro-Inspired RPG
+
+Gaming, Pokemon, Minecraft, Nintendo, PC
+
+Tue, 23 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/pokemon-meets-valheim-moncraft/
+
+For fans of the legendary Pokémon and Minecraft games, this brand-new, stunning retro-inspired RPG may just be the perfect title to play.
+---------
+
+# Kevin Costner's Yellowstone Replacement Is Even Better Than John Dutton
+
+TV, Dutton Ranch, Yellowstone
+
+Tue, 23 Jun 2026 23:38:18 GMT
+
+https://www.cbr.com/yellowstone-dutton-ranch-episode-7-beulah-jackson-replace-john/
+
+Taylor Sheridan's neo-Western powerhouse franchise has officially replaced Kevin Costner's leading John Dutton character on Paramount+'s Dutton Ranch.
+---------
+
+# 5 Anime Characters Objectively Stronger Than Gojo
+
+Anime, Jujutsu Kaisen
+
+Tue, 23 Jun 2026 23:15:13 GMT
+
+https://www.cbr.com/anime-heroes-stronger-than-gojo-list/
+
+Satoru Gojo from Jujutsu Kaisen is undeniably powerful, but some anime characters objectively have him beat.
+---------
+
+# Ryan Coogler's X-Files Reboot Star Shares Concerning Update on Hulu Reboot
+
+TV, The X-Files
+
+Tue, 23 Jun 2026 23:14:17 GMT
+
+https://www.cbr.com/x-files-reboot-hulu-series-order-delay-explained/
+
+One of the stars of Ryan Coogler's new take on The X-Files shares the latest update on the project.
+---------
+
+# 5 Forgotten Tech Thrillers That Are Perfect From Start to Finish
+
+Movies, Thriller, Sci-Fi
+
+Tue, 23 Jun 2026 23:01:14 GMT
+
+https://www.cbr.com/perfect-tech-thrillers-no-one-remembers-list/
+
+These underappreciated, technology-driven thrillers will bring out your inner Hacker Man.
+---------
+
+# The Best Apple TV Series Ever Made Officially Returns This August
+
+TV News, Ted Lasso, Apple TV, Jason Sudeikis, Streaming
+
+Tue, 23 Jun 2026 23:30:15 GMT
+
+https://collider.com/ted-lasso-season-4-streaming-release-date-apple-tv-august-5-2026/
+
+Apple TV's most beloved series, Ted Lasso, officially returns this summer for the long-awaited Season 4.
+---------
+
+# ‘Bosch’ Is Officially Saying Goodbye to Titus Welliver
+
+TV Features, Bosch, Bosch: Legacy, Ballard, MGM
+
+Tue, 23 Jun 2026 23:29:14 GMT
+
+https://collider.com/bosch-start-of-watch-titus-welliver-exit-franchise-future/
+
+Titus Welliver’s exit makes Bosch: Start of Watch the franchise’s biggest gamble as Cameron Monaghan takes over Harry Bosch.
+---------
+
+# HBO's Hit Crime Drama Is Officially Changing Its Formula in Season 2
+
+TV Features, Task, HBO, Mark Ruffalo, Brad Ingelsby
+
+Tue, 23 Jun 2026 23:18:16 GMT
+
+https://collider.com/task-hbo-season-2-crime-drama-formula-change-directors/
+
+Task, HBO's hit crime drama, is switching up its formula for Season 2 with an all-female directing team.
+---------
+
+# Xbox’s 'Pirates of the Caribbean' Replacement Is Officially Getting a Movie
+
+Movie News, Microsoft Xbox, A Minecraft Movie, The Super Mario Bros. Movie, Video Game
+
+Tue, 23 Jun 2026 23:15:14 GMT
+
+https://collider.com/xbox-sea-of-thieves-movie-destin-daniel-cretton-producing/
+
+In an ambitious new initiative to adapt Xbox games for the big screen, the video game giant's fantasy hit is coming to life.
+---------
+
+# 10 Best Books of the 2000s
+
+Movie, The Dark Tower, The Road, Stephen King, Game Of Thrones
+
+Tue, 23 Jun 2026 23:15:14 GMT
+
+https://collider.com/best-2000s-books-ranked/
+
+There were some amazing books published in the 2000s, including classics like Mistborn: The Final Empire, House of Leaves, and The Dark Tower VII.
+---------
+
+# ‘A Minecraft Movie’ Sequel Director Officially Confirms First Plot Details
+
+Movie News, A Minecraft Movie 2, A Minecraft Movie, Video Game, Fantasy
+
+Tue, 23 Jun 2026 23:00:15 GMT
+
+https://collider.com/a-minecraft-movie-sequel-plot-details-director-jard-hess/
+
+A Minecraft Movie Squared will take Steve and Alex on an epic mission to explore unique locations, and the sequel promises to be more ambitious.
+---------
+
+# After Tom Hardy’s ‘MobLand’ Exit, Paramount+’s 8-Part Crime Series Deserves a Second Chance
+
+TV Features, MobLand, Paramount Plus, Tom Hardy, Sexy Beast
+
+Tue, 23 Jun 2026 22:46:14 GMT
+
+https://collider.com/mobland-tom-hardy-series-replacement-sexy-beast-paramount-plus/
+
+With Tom Hardy reportedly out of MobLand beyond Season 2, Paramount+’s Sexy Beast is a British crime series worth revisiting.
+---------
+
+# Ben Stiller Teams Up With 'New Girl' Star in Trailer for Apple TV Release
+
+Movie News, Ben Stiller, Jake Johnson, Apple TV
+
+Tue, 23 Jun 2026 23:30:34 GMT
+
+https://movieweb.com/the-dink-movie-trailer-ben-stiller-jake-johnson/
+
+Stiller stars alongside Jake Johnson in Apple TV's new comedy 'The Dink.'
+---------
+
+# 'John Wick' Icon's 102-Minute Action Thriller Is Being Cut From Streaming
+
+Movie News, One More Shot, Pluto TV, Coming/Leaving Streaming, Action, John Wick
+
+Tue, 23 Jun 2026 23:01:19 GMT
+
+https://movieweb.com/one-more-shot-leaving-free-streaming-pluto-july-2026-action/
+
+John Wick and martial arts star Scott Adkins' one-take action thriller 'One More Shot' is being removed from free streaming on Pluto TV.
+---------
+
 # Petition To Block EA Acquisition Exceeds 70,000 Signatures
 
 Gaming, EA, Triple-A Games
