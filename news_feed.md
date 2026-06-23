@@ -1,3 +1,399 @@
+# Why Mark's Best Friend, William, Was Recast For Invincible Season 4
+
+Streaming TV, Invincible
+
+Tue, 23 Jun 2026 14:30:21 GMT
+
+https://screenrant.com/invincible-season-4-william-recast-andrew-rannells-explained/
+
+Invincible season 4 was fantastic on many levels, but fans couldn’t help but notice that William, Mark’s best friend, seemed different.
+---------
+
+# New Harry Potter Star Says "Some People Won't Like" Fan-Favorite Character In HBO Series
+
+TV, Harry Potter
+
+Tue, 23 Jun 2026 14:22:20 GMT
+
+https://screenrant.com/harry-potter-series-hagrid-nick-frost-character/
+
+HBO is changing Harry Potter as everyone knows it, as this star reveals how "some people won't like" their take on a fan-favorite character.
+---------
+
+# Super Mario 64 Remake For 30th Anniversary Has Gamers Drooling
+
+Gaming, Super Mario 64, Super Mario
+
+Tue, 23 Jun 2026 14:17:01 GMT
+
+https://screenrant.com/super-mario-64-remake-30th-anniversary-wishes/
+
+Players are fantasizing about what Nintendo has planned for the 30th anniversary of Super Mario 64 later this year — but are they dreaming too big?
+---------
+
+# Robert Pattinson’s Controversial New Psychological Drama Officially Releases On HBO Max Next Month After Milestone Box Office Run
+
+Movies, The Drama
+
+Tue, 23 Jun 2026 14:16:45 GMT
+
+https://screenrant.com/robert-pattinson-zendaya-the-drama-hbo-max-streaming-date-july-2026/
+
+Robert Pattinson's controversial psychological drama movie confirms an HBO Max streaming release date after its successful box office run.
+---------
+
+# Arc Raiders Just Added A Guaranteed Way To Get A Venator Blueprint
+
+Gaming, ARC Raiders
+
+Tue, 23 Jun 2026 14:08:14 GMT
+
+https://screenrant.com/arc-raiders-just-added-a-new-way-to-get-a-guaranteed-venator-blueprint/
+
+Ermal has a lot of options for trade this week, but the Venator blueprint is certainly the most enticing.
+---------
+
+# The Devil Wears Prada 2 Streaming Release Date Officially Confirmed After Massive Box Office Success
+
+Movies, The Devil Wears Prada 2
+
+Tue, 23 Jun 2026 14:07:40 GMT
+
+https://screenrant.com/the-devil-wears-prada-2-streaming-release-date/
+
+The Devil Wears Prada 2 is coming home, as Disney+ has confirmed the official release date for its debut on the streaming service.
+---------
+
+# The Best Action Thriller Of The Year Gets Streaming Release Date
+
+Movies, Masked Recs
+
+Tue, 23 Jun 2026 14:02:47 GMT
+
+https://screenrant.com/the-furious-movie-streaming-release-date/
+
+The best action thriller movie of 2026 so far will finally start streaming soon, as a new report reveals when it will be available at home.
+---------
+
+# HBO's 10-Hour War Drama Is Easy To Binge, But Hard To Watch
+
+TV, Masked Recs
+
+Tue, 23 Jun 2026 14:01:21 GMT
+
+https://screenrant.com/the-pacific-hbo-series-hard-to-watch/
+
+Diving headfirst into the brutal realities of war, HBO's underrated war show is a 10-hour drama that outdid Band of Brothers with its harsh realism.
+---------
+
+# If You Love Quentin Tarantino Movies, There's Another Name You Need to Know
+
+Movies, Quentin Tarantino
+
+Tue, 23 Jun 2026 14:01:21 GMT
+
+https://screenrant.com/if-you-love-quentin-tarantino-movies-theres-another-name-you-need-to-know/
+
+There's another Hollywood icon QT fans have to thank.
+---------
+
+# Tim Burton’s $101 Million Sci-Fi Mars Attacks! Officially Sets Major New Release This August
+
+Movies, Mars Attacks!, Tim Burton
+
+Tue, 23 Jun 2026 14:01:21 GMT
+
+https://screenrant.com/tim-burton-mars-attacks-4k-uhd-bluray-digital-release-date-clip/
+
+EXCLUSIVE: ScreenRant presents a BTS clip of Tim Burton's style & CGI approach to Mars Attacks!, which is now setting a new release this summer.
+---------
+
+# Michael B. Jordan Can Finally Beat Steve McQueen's The Thomas Crown Affair
+
+Movies, The Thomas Crown Affair
+
+Tue, 23 Jun 2026 14:30:13 GMT
+
+https://www.cbr.com/michael-b-jordan-thomas-crown-affair-better-than-steve-mcqueen/
+
+Michael B. Jordan is directing and starring in a completely overhauled 2027 iteration of the classic heist romance.
+---------
+
+# 5 Anime Anti-Heroes Stronger Than Vegeta
+
+Anime, Death Note, Code Geass: Lelouch of the Rebellion, Attack on Titan, Dragon Ball
+
+Tue, 23 Jun 2026 14:16:13 GMT
+
+https://www.cbr.com/anime-anti-heroes-stronger-than-vegeta/
+
+Vegeta from DBZ is anime's most iconic anti-hero, but these five characters are objectively stronger than the Saiyan prince.
+---------
+
+# 30 Years Later, Beast Wars Reunites Megatron and Blackarachnia in New Transformers Release
+
+Anime, Transformers, Beast Wars: Transformers, merchandise
+
+Tue, 23 Jun 2026 14:01:13 GMT
+
+https://www.cbr.com/beast-wars-megatron-blackarachnia-new-transformers-release/
+
+Megatron and Blackarachnia join Yolopark's lineup of Beast Wars: Transformers model kits, 30 years after the radically different series debuted.
+---------
+
+# Fallout Officially Reveals New Release Coming This September
+
+Games, Fallout, Fallout 4, Fallout New Vegas
+
+Tue, 23 Jun 2026 13:58:15 GMT
+
+https://www.cbr.com/fallout-official-power-armor-new-release-september-2026/
+
+Fallout fans can buy an iconic part of the franchise in September, thanks to an officially licensed release that replicates a suit of power armor.
+---------
+
+# Grey's Anatomy Fan Favorite Lands First TV Role Since Exit in Hulu Legal Drama
+
+TV, Grey's Anatomy, Hulu, Conviction
+
+Tue, 23 Jun 2026 13:36:01 GMT
+
+https://www.cbr.com/greys-anatomy-kevin-mckidd-hulu-conviction/
+
+Grey's Anatomy favorite Kevin McKidd, known as Dr. Owen Hunt, is the latest star to join Conviction, Hulu's legal drama starring Elisabeth Moss.
+---------
+
+# Only 3 Shonen Anime Are Actually Better Than One Piece
+
+Anime, One Piece, Fullmetal Alchemist: Brotherhood
+
+Tue, 23 Jun 2026 13:16:13 GMT
+
+https://www.cbr.com/best-shonen-anime-better-than-one-piece/
+
+One Piece is a near-perfect masterpiece with a massive fan following, and just a handful of series can claim to surpass it.
+---------
+
+# Matt Damon's $55M 'Misunderstood Masterpiece' Sci-Fi Comedy Returns as a Streaming Hit After Bombing in Theaters
+
+Movies, matt damon, Downsizing
+
+Tue, 23 Jun 2026 13:00:14 GMT
+
+https://www.cbr.com/matt-damon-sci-fi-comedy-downsizing-streaming-success-june-2026/
+
+Damon's unforgettable performance wasn't enough to save this film from being a box office bomb, but it's finally earning redemption on streaming.
+---------
+
+# Marvel Officially Reveals New Guardians of the Galaxy Team
+
+Comics, Guardians of the Galaxy
+
+Tue, 23 Jun 2026 13:00:14 GMT
+
+https://www.cbr.com/marvel-imperial-guardians-4-reveals-new-guardians-of-the-galaxy/
+
+A new generation of the Guardians of the Galaxy is born.
+---------
+
+# 5 Biggest Fox X-Men Missing From Avengers: Doomsday
+
+Movies, X-Men, Marvel Cinematic Universe
+
+Tue, 23 Jun 2026 13:00:14 GMT
+
+https://www.cbr.com/fox-x-men-missing-from-avengers-doomsday-list/
+
+Fox's X-Men are making one last return in the upcoming Avengers movies, but there are some key characters still missing from the roster.
+---------
+
+# Titan’s Worst Man Trailer Has Arrived, and It Redefines Queer Comics
+
+Comics, LGBTQ, titan books, gay comics
+
+Tue, 23 Jun 2026 13:00:14 GMT
+
+https://www.cbr.com/titans-worst-man-trailer-reveal-is-here/
+
+The trailer for Titan Comics' LGBTQ+ romcom Worst Man is now available and perfectly captures the madcap misadventures of its titular hero.
+---------
+
+# Jake Johnson Gets a Prescription for Pickleball in First Trailer for New Apple TV Sports Comedy
+
+Movie News, Jake Johnson, Mary Steenburgen, Apple TV, Comedy
+
+Tue, 23 Jun 2026 13:01:38 GMT
+
+https://collider.com/the-dink-trailer-jake-johnson-apple-tv-sports-comedy/
+
+The official trailer for Apple TV's new sports comedy The Dink gives Jake Johnson a prescription for pickleball and a shot at redemption.
+---------
+
+# Julianne Moore Is Obsessed With Community Theater in First Trailer for Jesse Eisenberg's New Comedy
+
+Movie News, Jesse Eisenberg, A24, Julianne Moore, Paul Giamatti
+
+Tue, 23 Jun 2026 13:01:21 GMT
+
+https://collider.com/the-debut-trailer-julianne-moore-paul-giamatti/
+
+A new trailer for The Debut sees Julianne Moore fall down the rabbit hole of community theater with Paul Giamatti as her director.
+---------
+
+# 10 Replacement Rock Band Singers Fans Never Truly Accepted
+
+Music Features, Motley Crue, Van Halen, Rock, Music
+
+Tue, 23 Jun 2026 13:00:14 GMT
+
+https://collider.com/replacement-rock-band-singers-fans-never-accepted/
+
+From Van Halen to Judas Priest, these 10 replacement rock singers sparked backlash from fans and critics after major band lineup changes.
+---------
+
+# Netflix and Hulu Are Officially Free For Some Subscribers
+
+TV News, Netflix, Hulu, Streaming, War Machine
+
+Tue, 23 Jun 2026 12:36:25 GMT
+
+https://collider.com/netflix-hulu-free-subscriptions-tmobile/
+
+Netflix and Hulu are officially free for new customers at T-Mobile.
+---------
+
+# 'Every Year After’s Biggest Deviation From the Books Has Nothing To Do With Sam or Percy
+
+TV Features, Every Year After, Romance, Prime Video, Carley Fortune
+
+Tue, 23 Jun 2026 12:36:14 GMT
+
+https://collider.com/every-year-after-delilah-jordie-chantal-love-triangle-book-change/
+
+Every Year After may have focused on Sam and Percy's romance, but it's their friends who have a more complicated romance blossoming.
+---------
+
+# 10 Best Songs of the 1980s
+
+Music Features, David Bowie, Talking Heads, Michael Jackson's Thriller, 1980s
+
+Tue, 23 Jun 2026 12:27:14 GMT
+
+https://collider.com/best-1980s-songs-ranked/
+
+The best songs from the 1980s include massive power ballads like "Total Eclipse of the Heart" and alternative staples like "Love Will Tear Us Apart."
+---------
+
+# 15 Most Romantic K-Dramas With a Happy Ending, Ranked
+
+TV, South Korea, Drama, Hometown Cha-Cha-Cha, Mad For Each Other
+
+Tue, 23 Jun 2026 12:14:15 GMT
+
+https://collider.com/k-dramas-romantic-happy-ending/
+
+We search for the best romantic K-Dramas with a happy ending, from Touch Your Heart to Because This is My First Life.
+---------
+
+# 8 Greatest Fantasy Books of the Last 100 Years, Ranked
+
+Movie, Fantasy, Game Of Thrones, The Lord of the Rings, Wizarding World of Harry Potter
+
+Tue, 23 Jun 2026 11:52:13 GMT
+
+https://collider.com/best-fantasy-books-last-100-years-ranked/
+
+A Game of Thrones, The Lord of the Rings: The Fellowship of the Ring, and more make up our list of the best fantasy books of the last 100 years.
+---------
+
+# Netflix's 100% Rated Sci-Fi Action Series Returns in First Look at Season 2
+
+TV News, Cyberpunk: Edgerunners
+
+Tue, 23 Jun 2026 14:28:51 GMT
+
+https://movieweb.com/netflix-cyberpunk-edgerunners-season-2-first-look/
+
+'Cyberpunk: Edgerunners' is officially getting a second season, and Netflix has unveiled a new look at the highly anticipated return.
+---------
+
+# Netflix Confirms Latest Streaming Spin-off of Smash Hit YouTube Series
+
+TV News, Netflix, Hot Ones, YouTube
+
+Tue, 23 Jun 2026 14:18:23 GMT
+
+https://movieweb.com/hot-ones-youtube-spinoff-netflix/
+
+Netflix has confirmed 'Hot Ones: Extra Heat,' spin-off of Sean Evans' smash hit YouTube series that plays host to high-profile celebrity guests.
+---------
+
+# Russell Crowe Is a Beast as New MMA Action Movie Fights Its Way to Streaming Success
+
+Movie News, Russell Crowe, Beast, Action, Martial Arts
+
+Tue, 23 Jun 2026 14:00:20 GMT
+
+https://movieweb.com/russell-crowe-beast-action-stream-june-2026/
+
+The action outing has been hailed as "Rocky meets MMA."
+---------
+
+# 3 Perfect Harlan Coben Netflix Thrillers To Watch After 'I Will Find You'
+
+TV Lists, Netflix, Harlan Coben, I Will Find You
+
+Tue, 23 Jun 2026 14:00:20 GMT
+
+https://movieweb.com/harlan-coben-netflix-thrillers-watch/
+
+'I Will Find You' is the latest Harlan Coben Netflix thriller starring Sam Worthington and Britt Lower, and these other series are perfect, too.
+---------
+
+# This 4-Season Cult Sci-Fi Show Made 'Guardians of the Galaxy' 15 Years Before the James Gunn Movies
+
+Features, Farscape, James Gunn, Guardians of the Galaxy
+
+Tue, 23 Jun 2026 13:00:19 GMT
+
+https://movieweb.com/farscape-guardians-of-the-galaxy-comparison/
+
+'Farscape' has several parallels with James Gunn's 'Guardians of the Galaxy' movies. Read on for more.
+---------
+
+# Long-Awaited Adaptation of Sci-Fi Action Classic Hailed as "Old-School War Movie"
+
+Movie News, Rogue Trooper, Duncan Jones, Action, Sci-Fi
+
+Tue, 23 Jun 2026 12:23:30 GMT
+
+https://movieweb.com/rogue-trooper-reviews-action-sci-fi/
+
+'Warcraft' and 'Moon' director Duncan Jones' 'Rogue Trooper' has been met with high praise and James Cameron comparisons in first reviews.
+---------
+
+# 'Star Trek: Strange New Worlds' Can Finally Redeem the 'Enterprise' Finale
+
+Features, Star Trek: Strange New Worlds, Star Trek: Enterprise, Star Trek
+
+Tue, 23 Jun 2026 12:00:19 GMT
+
+https://movieweb.com/star-trek-enterprise-finale-redemption/
+
+'Enterprise' ended in 2005 with an episode that's still controversial. 'Strange New Worlds' risks the same thing happening again. Read on for more.
+---------
+
+# Jason Statham Turns the Tide in Intense New Look at Upcoming Action Thriller
+
+Movie News, Jason Statham, Mutiny, Action, Thriller
+
+Tue, 23 Jun 2026 11:56:56 GMT
+
+https://movieweb.com/jason-statham-mutiny-poster-teaser/
+
+Jason Statham returns to do what he does best in a new look at the August action thriller, 'Mutiny.'
+---------
+
 # PlayStation Gamers Call For PS6 Delay Following Official Price Reveal
 
 Gaming, PlayStation, PlayStation 6
