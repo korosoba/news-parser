@@ -1,3 +1,256 @@
+# Genshin Impact Players Notice Funniest Nerf The RPG Has Ever Had
+
+Gaming, Genshin Impact, PC, Live Service Games
+
+Tue, 23 Jun 2026 00:00:21 GMT
+
+https://screenrant.com/genshin-impact-new-pulcinella-design-snezhnaya-player-reaction/
+
+Genshin Impact has essentially confirmed a new nerf to one of the upcoming characters in the RPG, which served as a humorous topic for fans.
+---------
+
+# Star Wars Should Revive George Lucas’ Palpatine Prequel Series
+
+Movies, Star Wars
+
+Tue, 23 Jun 2026 00:00:21 GMT
+
+https://screenrant.com/star-wars-george-lucas-palpatine-prequel-series-revive/
+
+Actor Ian McDiarmid recently revealed that George Lucas was working on a Palpatine prequel series before he sold the franchise.
+---------
+
+# Supergirl's New Superhero Name Revealed & It Continues A James Gunn Trend
+
+Streaming TV, Masked Recs
+
+Mon, 22 Jun 2026 23:44:34 GMT
+
+https://screenrant.com/supergirl-power-woman-my-adventures-with-superman-season-3/
+
+Supergirl suggests an exciting new superhero name for herself in DC Studios' new release, and Kara Zor-El's 2026 return continues a James Gunn trend.
+---------
+
+# Kelly Reilly’s Oscar-Nominated Airplane Drama Is Getting The Perfect Streaming Home Soon
+
+Movies, Masked Recs
+
+Mon, 22 Jun 2026 23:10:35 GMT
+
+https://screenrant.com/kelly-reilly-flight-movie-paramount-plus-streaming-release-july-2026/
+
+Before joining the Yellowstone universe, Kelly Reilly starred in an Oscar-nominated movie that's being added to a fitting streaming service soon.
+---------
+
+# Dennis Quaid's 2-Part Adventure Franchise Is Coming To Netflix In 2 Weeks
+
+Movies, Masked Recs
+
+Mon, 22 Jun 2026 23:06:35 GMT
+
+https://screenrant.com/dennis-quaid-a-dogs-purpose-journey-franchise-netflix-streaming-release-july-2026/
+
+Dennis Quaid's two-part adventure franchise based on bestselling books is coming to Netflix in two weeks and will be available to stream worldwide.
+---------
+
+# Widow’s Bay Creator Debunks Major Fan Theory After Season 1 Finale
+
+TV, Widow's Bay, Widow's Bay - Season 1
+
+Mon, 22 Jun 2026 23:06:16 GMT
+
+https://screenrant.com/widows-bay-time-theory-katie-dippold-debunk/
+
+Heading into season 2 of Apple TV's Widow's Bay, creator and showrunner Katie Dippold debunks a prominent fan theory about the island.
+---------
+
+# Steam's New Free RPG Is A 9/10 You Shouldn't Miss
+
+Gaming, Steam, Triple-A Games
+
+Mon, 22 Jun 2026 23:00:20 GMT
+
+https://screenrant.com/steam-new-free-rpg-9-10-moon-river/
+
+Although there are a lot of RPGs to sift through, especially on Steam, there's one getting rave reviews out now, and it's completely free.
+---------
+
+# Netflix's Stranger Things Return Quietly Reveals The Truth About Eleven's Future
+
+Streaming TV, Masked Recs
+
+Mon, 22 Jun 2026 23:00:20 GMT
+
+https://screenrant.com/netflix-stranger-things-spinoffs-reveal-truth-about-eleven/
+
+The biggest question left after Stranger Things is what actually happened to Eleven, and many hope an upcoming spinoff could provide answers.
+---------
+
+# After 34 Years, Harley Quinn Debuts Her Most Hardcore Look With Armored Redesign
+
+DC Comics, Harley Quinn
+
+Mon, 22 Jun 2026 23:00:20 GMT
+
+https://screenrant.com/harley-quinn-new-armored-costume/
+
+Harley Quinn has one of the most inventive and varied costume histories in the DC Universe. Now, her latest look is easily her most hardcore yet.
+---------
+
+# No Way Home Is Still The Best Spider-Man Movie Ever Made
+
+Movies, Spider-Man: No Way Home
+
+Mon, 22 Jun 2026 23:00:20 GMT
+
+https://screenrant.com/spider-man-no-way-home-best-spider-man-movie/
+
+No Way Home remains a crowning achievement not just for the Marvel Cinematic Universe, but for the character of Spider-Man as well.
+---------
+
+# Timothy Zahn’s Thrawn Sequel Gets Official Release Date for 2026
+
+Comics, Star Wars, Manga, star wars: thrawn
+
+Tue, 23 Jun 2026 00:01:13 GMT
+
+https://www.cbr.com/star-wars-thrawn-manga-release-date-confirmed/
+
+The best-selling novel that redefined the Star Wars villain is being adapted into manga, and fans will get the first book in the series this fall.
+---------
+
+# 1 Year After the Movie, Chainsaw Man Officially Brings Denji and Reze Back Together
+
+Anime, Chainsaw Man, Chainsaw Man - The Movie: Reze Arc
+
+Tue, 23 Jun 2026 00:01:13 GMT
+
+https://www.cbr.com/chainsaw-man-denji-reze-arc-new-merch-release/
+
+Reze and Denji are back in the spotlight with a brand new Chainsaw Man merch release giving the iconic anime movie couple one final epic send-off.
+---------
+
+# War Machine 2 Is Officially the End of an Era for Netflix
+
+Movies, War Machine, Netflix, Extraction
+
+Tue, 23 Jun 2026 00:01:13 GMT
+
+https://www.cbr.com/alan-ritchson-war-machine-2-end-netflix-era-extraction/
+
+Alan Ritchson's Netflix original action movie officially ushers in a brand-new era for the streaming platform that could threaten another franchise.
+---------
+
+# Michael Fassbender's James Bond Replacement Is 1 of the Most Popular TV Shows in the World
+
+TV, The Agency, Thriller
+
+Mon, 22 Jun 2026 23:01:14 GMT
+
+https://www.cbr.com/michael-fassbender-the-agency-spy-thriller-paramount-success-june-2026/
+
+Michael Fassbender's spy thriller, The Agency, is taking over the world, becoming one of the most-watched shows on Paramount+.
+---------
+
+# 34 Years Later, Scotty's Best Star Trek Episode Remains Trek's Greatest Hard Sci-Fi Story
+
+TV, Star Trek, Star Trek: The Next Generation, Star Trek: The Original Series
+
+Mon, 22 Jun 2026 23:01:14 GMT
+
+https://www.cbr.com/star-trek-tng-relics-scotty-hard-sci-fi-episode/
+
+James Doohan's Scotty is a cultural icon from Star Trek: The Original Series, but his best story isn't in that show or any of his seven films.
+---------
+
+# 3 Most Unfilmable Fantasy Book Series That Will Never Become Movies
+
+Movies, Fantasy, books
+
+Mon, 22 Jun 2026 23:01:14 GMT
+
+https://www.cbr.com/most-unfilmable-fantasy-books-list/
+
+Some of the most imaginative films have been adaptations of beloved fantasy books but there are also other novels that can never be made into movies.
+---------
+
+# Paramount+’s Gripping Spy Thriller Is So Good, It Shot Straight to #1
+
+TV News, The Agency, Michael Fassbender, Mindhunter, Paramount
+
+Tue, 23 Jun 2026 00:00:14 GMT
+
+https://collider.com/paramount-spy-thriller-the-agency-season-2-streaming-success-june-2026/
+
+Paramount's Mindhunter-style spy thriller officially reaches #1 on watchlists after all episodes of Season 2 were dropped as a binge.
+---------
+
+# The Action Masterpiece That Inspired Taylor Sheridan's Best Movie Is Leaving Streaming
+
+Movie News, Taylor Sheridan, Heat, Plex, Action
+
+Mon, 22 Jun 2026 23:30:13 GMT
+
+https://collider.com/heat-leaving-streaming-plex-july-2026/
+
+Discover how Taylor Sheridan's work, including Yellowstone, has been inspired by the classic crime thriller Heat, which is set to leave streaming.
+---------
+
+# 8 Western Shows With Better Action Than Most Movies
+
+TV, Western, 1883, Justified, Hell on Wheels
+
+Mon, 22 Jun 2026 23:14:14 GMT
+
+https://collider.com/western-shows-better-action-than-most-movies/
+
+From the Yellowstone prequel 1883 to the Timothy Olyphant crime series Justified, the action found in these Western shows rival most movies.
+---------
+
+# Netflix's Near-Perfect Sci-Fi Masterpiece Dealt Huge Blow Ahead of Season 2
+
+TV News, 3 Body Problem, Sci-Fi, Netflix, Game Of Thrones
+
+Mon, 22 Jun 2026 23:00:14 GMT
+
+https://collider.com/3-body-problem-season-2-episode-count-netflix/
+
+3 Body Problem Season 2 will reportedly have a shorter episode count as Netflix prepares to finish the ambitious sci-fi series with Seasons 2 and 3.
+---------
+
+# 'Reacher' Has a James Bond Problem That Season 4 Can Finally Fix in 2026
+
+Features, Reacher
+
+Tue, 23 Jun 2026 00:00:20 GMT
+
+https://movieweb.com/reacher-james-bond-romance-problem/
+
+'Reacher,' the Amazon Prime Video series starring Alan Ritchson as Jack Reacher, has a problem similiar to the James Bond franchise.
+---------
+
+# Amazon's 'Backrooms' Replacement Based on Viral Reddit Story Finds Its Star
+
+Movie News, Prime Video, Lily James, Horror
+
+Mon, 22 Jun 2026 23:15:38 GMT
+
+https://movieweb.com/amazon-reddit-adaptation-seasons-lily-james/
+
+The studio is adapting a disturbing story from Reddit for a movie starring Lily James.
+---------
+
+# 9 Biggest Questions After 'House of the Dragon's Season 3 Premiere
+
+TV Lists, House of the Dragon
+
+Mon, 22 Jun 2026 23:00:18 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-premiere-big-questions/
+
+'House of the Dragon' came back with a bang last night, and there's a lot of material to break down.
+---------
+
 # A $6 Billion Sci-Fi Franchise Returns To Disney+ In Just 1 Week
 
 Streaming TV, Masked Recs
