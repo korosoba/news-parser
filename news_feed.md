@@ -1,3 +1,443 @@
+# The Elder Scrolls 6 First Official Teaser In Years Leaves Gamers Optimistic
+
+Gaming, The Elder Scrolls 6
+
+Wed, 24 Jun 2026 17:21:35 GMT
+
+https://screenrant.com/elder-scrolls-6-official-update-june-2026/
+
+The Elder Scrolls 6's hype has dwindled with so little news after such a long period, but fans recently received new cause for celebration.
+---------
+
+# 8 Great Rom-Coms Starring The Voicemails For Isabelle Cast
+
+Movies, Voicemails for Isabelle, Recommendation
+
+Wed, 24 Jun 2026 17:21:20 GMT
+
+https://screenrant.com/best-romantic-comedy-movies-voicemails-for-isabelle-cast/
+
+Voicemails for Isabelle is currently the #1 movie on Netflix and the charming cast is a big reason why, so you can find them in these other rom-coms.
+---------
+
+# Classroom of the Elite, Crunchyroll's Ultimate Guilty Pleasure Anime, Is Returning For Season 5
+
+Anime, Classroom of the Elite
+
+Wed, 24 Jun 2026 17:10:10 GMT
+
+https://screenrant.com/classroom-of-the-elite-season-5-confirmed/
+
+Classroom of the Elite, the thought-provoking and entertaining guilty pleasure anime series, is set to return for a fifth season on Crunchyroll.
+---------
+
+# Al Pacino’s New Netflix Crime Adaptation Releases To Disappointing Rotten Tomatoes Score
+
+Movies, In the Hand of Dante
+
+Wed, 24 Jun 2026 17:03:57 GMT
+
+https://screenrant.com/in-the-hand-of-dante-netflix-rotten-tomatoes-score/
+
+Al Pacino's new Netflix crime adaptation releases to a disappointing Rotten Tomatoes score as the film arrives on the streaming platform.
+---------
+
+# Hoppers Interviews with Hoppers Bobby Moynihan, Piper Curda, Director & Producer
+
+Videos, Hoppers
+
+Wed, 24 Jun 2026 17:00:56 GMT
+
+https://screenrant.com/video/hoppers-bobby-moynihan-piper-curda-daniel-chong-nicole-paradis-interview/
+
+Bobby Moynihan, Piper Curda, Daniel Chong, and Nicole Grindle discuss the best Pixar (and We Bare Bears!) Easter eggs found in Hoppers.
+---------
+
+# Marvel Officially Reveals Thor's New Costume Ahead Of Next Appearance
+
+Marvel Comics, Captain America
+
+Wed, 24 Jun 2026 17:00:21 GMT
+
+https://screenrant.com/thor-ultimate-celestial-armor-mjolnir-update/
+
+Thor debuts a new design and and an alliance with some of Marvel's most powerful characters, teasing his next arc in the Marvel multiverse.
+---------
+
+# Stone & Cass Return To Fight One Of The Most Dangerous Enemies Yet In The Librarians: The Next Chapter Season 2 Trailer [EXCLUSIVE]
+
+TV, The Librarians: The Next Chapter, The Librarians: The Next Chapter - Season 2, The Librarian, TNT
+
+Wed, 24 Jun 2026 17:00:21 GMT
+
+https://screenrant.com/the-librarians-the-next-chapter-season-2-trailer-stone-cass-return-merlin-villain/
+
+ScreenRant is proud to exclusively debut the new trailer for The Librarians: The Next Chapter season 2 showing more of Stone and Cass' return.
+---------
+
+# Jeri Ryan Should Have Been Leading Star Trek’s Future These Past 3 Years
+
+TV, Star Trek, Star Trek: Picard
+
+Wed, 24 Jun 2026 17:00:21 GMT
+
+https://screenrant.com/star-trek-legacy-jeri-ryan-lead-future/
+
+Star Trek is no stranger to the multiverse, and in another timeline, Star Trek: Legacy happened with Jeri Ryan as the lead. But not in this reality.
+---------
+
+# DC Reveals Superman’s Most Extreme Redesign Yet, With New Weapons
+
+DC Comics
+
+Wed, 24 Jun 2026 16:50:04 GMT
+
+https://screenrant.com/absolute-superman-new-costume-weapons/
+
+DC Comics has officially unveiled the Man of Steel's most extreme redesign yet, which also sees Superman wielding two god-killer weapons.
+---------
+
+# 1 Month After The Boys' Ending, Jack Quaid Has Already Found A Replacement
+
+TV, Invincible
+
+Wed, 24 Jun 2026 16:45:20 GMT
+
+https://screenrant.com/the-boys-jack-quaid-replacement-series-invincible/
+
+The Boys has only been over for one month, but Jack Quaid has already found a replacement for Prime Video's superhero show with another hit.
+---------
+
+# Netflix's Teen Drama Based on Popular Bestselling Book Officially Returns With New Episodes in August
+
+TV, My Life with the Walter Boys
+
+Wed, 24 Jun 2026 17:08:26 GMT
+
+https://www.cbr.com/netflix-my-life-with-the-walter-boys-season-3-release-date/
+
+The perfect replacement for The Summer I Turned Pretty officially returns.
+---------
+
+# The Boys Fan-Favorite Joins Hit Prime Video Superhero Series 1 Month After Series Finale
+
+TV, Invincible, Invincible (TV Show), Invincible Presents: Atom Eve, The Boys, Prime Video
+
+Wed, 24 Jun 2026 17:02:18 GMT
+
+https://www.cbr.com/jack-quaid-cast-prime-video-invincible/
+
+The most popular star from The Boys, Jack Quaid, just joined another Prime Video megahit: Invincible.
+---------
+
+# DC Comics Officially Adds Jason Todd to the Teen Titans
+
+Comics, Teen Titans, Red Hood, DC Comics
+
+Wed, 24 Jun 2026 17:00:14 GMT
+
+https://www.cbr.com/jason-todd-teen-titans-next-level-confirmed/
+
+With a dark edge, the Red Hood forges the next generation of DC's Teen Titans into the family it needs to be to solve a mystery in the new title.
+---------
+
+# Supergirl Debuts With Surprising Rotten Tomatoes Score
+
+Movies, Supergirl, DCU
+
+Wed, 24 Jun 2026 16:43:15 GMT
+
+https://www.cbr.com/supergirl-rotten-tomatoes-score/
+
+The critics are weighing in on DC Studios' Supergirl movie.
+---------
+
+# Prime Video's 2-Part Jack Ryan Replacement Show Adds Ron Perlman
+
+TV, Cross
+
+Wed, 24 Jun 2026 16:16:37 GMT
+
+https://www.cbr.com/prime-video-cross-season-3-ron-perlman/
+
+Ron Perlman heads to the small screen to star in the next season of Prime Video's hit Jack Ryan replacement show.
+---------
+
+# 10 Anime Heroes Who Suffered More Than Guts
+
+Anime, Berserk, Puella Magi Madoka Magica
+
+Wed, 24 Jun 2026 16:15:13 GMT
+
+https://www.cbr.com/anime-heroes-suffered-more-than-guts/
+
+Guts from Berserk is one of the most tragic characters in all of fiction, but there are still other anime characters who have suffered more.
+---------
+
+# Prime Video Officially Confirms Invincible's Fate 2 Months After Season 4 Wrap
+
+TV, Invincible, Invincible (TV Show), Invincible Presents: Atom Eve, Prime Video
+
+Wed, 24 Jun 2026 16:04:53 GMT
+
+https://www.cbr.com/prime-video-invincible-season-6-fate/
+
+Prime Video dropped a bombshell update on Robert Kirkman's Invincible series.
+---------
+
+# Dragon Ball Gives Goku a New Super Saiyan Warrior Look for 10th Anniversary
+
+Anime, Dragon Ball, Dragon Ball Z, Dragon Ball Super
+
+Wed, 24 Jun 2026 16:00:13 GMT
+
+https://www.cbr.com/dragon-ball-new-super-saiyan-goku-design-10th-anniversary/
+
+To commemorate Dragon Ball's latest anniversary celebration, Goku has officially been given a new Super Saiyan design.
+---------
+
+# Spider-Man: 10 Best Redesigns That Completely Changed His Vibe
+
+Comics, Spider-Man, Marvel, superheroes
+
+Wed, 24 Jun 2026 16:00:13 GMT
+
+https://www.cbr.com/spiderman-best-vibe-changing-redesigns-list/
+
+From the harsh symbiote to futuristic flexisuits, Spider-Man has had quite a few costume changes that completely transformed his vibe over the years.
+---------
+
+# Supergirl Review: Milly Alcock Gives James Gunn’s New DCU the Messy Hero It Needed
+
+Movies, Supergirl, DCU, James Gunn
+
+Wed, 24 Jun 2026 16:00:13 GMT
+
+https://www.cbr.com/supergirl-review/
+
+Supergirl's world is darker and rougher than the farmlands and cityscapes that her optimist cousin calls home.
+---------
+
+# Critical Role’s Next Prime Video Show Is Leaving Fantasy Behind
+
+TV News, Critical Role, The Legend of Vox Machina, Prime Video, Sci-Fi
+
+Wed, 24 Jun 2026 17:20:18 GMT
+
+https://collider.com/critical-role-prime-video-sci-fi-projects-sam-riegel/
+
+Critical Role's Sam Riegel teases new projects in development with Prime Video, including sci-fi stories unrelated to Dungeons & Dragons.
+---------
+
+# 'Game of Thrones' Star's Fantasy Sequel Officially Gets Epic New Trailer
+
+Movie News, Practical Magic 2, Maisie Williams, Sandra Bullock, Nicole Kidman
+
+Wed, 24 Jun 2026 17:15:36 GMT
+
+https://collider.com/fantasy-sequel-practical-magic-2-trailer/
+
+The best fantasy cult classic of the 90s is back with a stunning new trailer for Practical Magic 2. See it here!
+---------
+
+# Prime Video’s Biggest Fantasy Series Officially Returns in 5 Months
+
+TV News, The Lord of the Rings: The Rings of Power, Prime Video, Fourth Wing, Fantasy
+
+Wed, 24 Jun 2026 17:15:14 GMT
+
+https://collider.com/prime-video-fantasy-series-the-lord-of-the-rings-the-rings-of-power-season-3-release-date/
+
+Prime Video's most expensive series, The Lord of the Rings: The Rings of Power, returns for Season 3 in five months. Find out more here.
+---------
+
+# Outrageous 'GTA 6' Price Increase Officially Confirmed
+
+Gaming News, Grand Theft Auto, Gaming, Rockstar Games, PlayStation 5
+
+Wed, 24 Jun 2026 17:04:57 GMT
+
+https://collider.com/grand-theft-auto-6-price-increase-confirmed-80-dollars/
+
+The most anticipated game of 2026, Grand Theft Auto 6, has sparked outrage for its now-official price increase.
+---------
+
+# 44 Years Later, This Forgotten Fantasy Classic Is Officially Getting the TV Adaptation It Deserves
+
+TV Features, Fantasy, BBC, Fleabag, The Reluctant Vampire
+
+Wed, 24 Jun 2026 17:04:16 GMT
+
+https://collider.com/fantasy-classic-novel-the-reluctant-vampire-tv-series/
+
+The BBC’s upcoming comedy series The Reluctant Vampire is based on legendary comedian Eric Morecambe’s classic novels.
+---------
+
+# Netflix Officially Sets Origin Movie for 20-Year-Old Sci-Fi Game Franchise
+
+Movie News, Gears of War, Netflix, Xbox 360, David Leitch
+
+Wed, 24 Jun 2026 17:00:14 GMT
+
+https://collider.com/netflix-gears-of-war-movie-adaptation-plot-details-revealed/
+
+Netflix's Gears of War movie adaptation has unveiled what the film will focus on, while Matt Booty has also teased what’s to come.
+---------
+
+# Rebecca Ferguson’s Apple TV Sci-Fi Series Quietly Soars Before Season 3
+
+TV News, Silo, Apple TV, Rebecca Ferguson, Sci-Fi
+
+Wed, 24 Jun 2026 16:45:13 GMT
+
+https://collider.com/apple-tv-rebecca-ferguson-sci-fi-series-silo-streaming-success-june-2026/
+
+Silo, Apple TV's sci-fi secret weapon starring Rebecca Ferguson, has surged back into the streaming top 10 before Season 3.
+---------
+
+# 10 Must-Watch Horror Cult Classics, Ranked
+
+Movie, Suspiria, Horror, The Rocky Horror Picture Show, Ichi the Killer
+
+Wed, 24 Jun 2026 16:34:14 GMT
+
+https://collider.com/horror-cult-classic-movies-must-watch-ranked/
+
+Ichi the Killer, Suspiria, and Plan 9 from Outer Space are enduring cult classic movies of the horror genre that everyone should watch at least once.
+---------
+
+# 'Supergirl's RT Score Is Officially Over 30% Lower Than the DCU's 'Superman'
+
+Movie News, Supergirl, Milly Alcock, Superman
+
+Wed, 24 Jun 2026 16:30:13 GMT
+
+https://collider.com/dc-supergirl-rotten-tomatoes-score-is-it-good/
+
+DC's sci-fi epic Supergirl has debuted on Rotten Tomatoes, and critics are heavily divided on the ambitious Superman spin-off.
+---------
+
+# Steven Spielberg's Cancelled 2-Part Sci-Fi Series Is Not Dead Yet
+
+TV News, Halo, Steven Spielberg, Paramount Plus, Pablo Schreiber
+
+Wed, 24 Jun 2026 16:30:13 GMT
+
+https://collider.com/steven-spielberg-cancelled-sci-fi-halo-paramount-plus-update/
+
+Halo, the two-season cancelled sci-fi series produced by Steven Spielberg, gets its first hopeful update in years.
+---------
+
+# 'Supergirl' Rotten Tomatoes Score Revealed
+
+Movie News, Supergirl
+
+Wed, 24 Jun 2026 17:25:41 GMT
+
+https://movieweb.com/supergirl-rotten-tomatoes-score-revealed/
+
+The new live-action entry in the DCU has earned an interesting reaction from critics.
+---------
+
+# New Netflix Harlan Coben Thriller Dominates Streaming Charts With 24M Debut
+
+TV News, I Will Find You, Sam Worthington
+
+Wed, 24 Jun 2026 17:07:14 GMT
+
+https://movieweb.com/i-will-find-you-netflix-streaming-charts-24m-debut/
+
+Netflix continues an impressive year of engaging thrillers.
+---------
+
+# Why Did Mary and Sheila Leave Ghosts?
+
+Features, Ghosts, Comedy
+
+Wed, 24 Jun 2026 17:00:20 GMT
+
+https://movieweb.com/mary-sheila-left-ghosts-explained/
+
+Discover why the beloved characters Mary (Katy Wix) and Flower (Sheila Carrasco) left the popular sitcom Ghosts.
+---------
+
+# James Bond Reboot Moving Into Next Stage of Casting the New 007
+
+Movie News, James Bond, James Bond 26
+
+Wed, 24 Jun 2026 16:56:33 GMT
+
+https://movieweb.com/james-bond-007-reboot-casting-next-stage/
+
+Amazon MGM Studios is reportedly moving into a new stage for casting for the next actor to play James Bond/007.
+---------
+
+# MovieWeb's Fan Expo Anaheim 2026 Panels
+
+Features
+
+Wed, 24 Jun 2026 16:51:12 GMT
+
+https://movieweb.com/moviewebs-fan-expo-anaheim-2026-panels/
+
+Let's take a look at which panels MovieWeb's own Joe Deckelmeier will be moderating this weekend at Fan Expo Anaheim.
+---------
+
+# Your New Favorite Action Hero Is Dominating Streaming With 89-Minute "John Wick Meets Rambo" Thriller
+
+Movie News, Sisu: Road to Revenge, Action, Thriller, War
+
+Wed, 24 Jun 2026 16:30:18 GMT
+
+https://movieweb.com/sisu-road-revenge-stream-june-2026/
+
+He's putting the pedal to the metal in a race for vengeance.
+---------
+
+# 'Obsession' Digital Streaming Date Officially Confirmed
+
+Movie News, Obsession
+
+Wed, 24 Jun 2026 16:29:44 GMT
+
+https://movieweb.com/obsession-streaming-date-confirmed/
+
+'Obsession' has landed a streaming release date, 46 days after its theatrical release.
+---------
+
+# Milly Alcock Shines as Supergirl in a Dark DCU Adventure
+
+3 star movies, Supergirl
+
+Wed, 24 Jun 2026 16:01:18 GMT
+
+https://movieweb.com/supergirl-review/
+
+Australian actress Milly Alcock delivers a standout performance as Supergirl in an action-packed, emotionally charged adaptation.
+---------
+
+# 'House of the Dragon' Season 3's Massive Continuity Error, Explained
+
+Features, House of the Dragon, Game Of Thrones, HBO Max
+
+Wed, 24 Jun 2026 16:01:18 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-continuity-error-explained/
+
+'House of the Dragon' Season 3 is now airing on Sunday nights on HBO, and there is a big continuity error that has a logical explanation.
+---------
+
+# 'Hidden' (2015) Ending, Explained
+
+Features, Hidden, Ross Duffer, Matt Duffer, Thriller
+
+Wed, 24 Jun 2026 16:01:18 GMT
+
+https://movieweb.com/hidden-2015-ending-explained/
+
+The Duffer Brothers' 2015 feature 'Hidden' is a must-watch; once you've seen it, this explainer will clarify the muddy details.
+---------
+
 # Naruto Officially Returns With A Brand-New Era In 2027
 
 Gaming, Naruto, Anime
