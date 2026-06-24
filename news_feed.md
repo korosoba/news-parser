@@ -1,3 +1,322 @@
+# Pokémon Winds & Waves Starter Ponbon's Final Evolution Unites Gamers
+
+Gaming, Pokemon Winds and Waves
+
+Wed, 24 Jun 2026 21:00:21 GMT
+
+https://screenrant.com/pokemon-winds-waves-ponbon-final-evolution-concept/
+
+With Pokémon Winds & Waves on the horizon, gamers are keen to see a final form starter evolution that delivers.
+---------
+
+# Yellowstone’s Most Promising Future Is Now Finally Official
+
+TV, Yellowstone, Dutton Ranch
+
+Wed, 24 Jun 2026 20:59:21 GMT
+
+https://screenrant.com/yellowstone-dutton-ranch-show-future-unclear/
+
+Two years after Yellowstone's series finale, the future of Taylor Sheridan's most famous franchise is finally official thanks to Dutton Ranch.
+---------
+
+# Taylor Frankie Paul’s Infamous Bachelorette Season Cancellation Reportedly Reversed With Release Window
+
+TV, The Bachelorette, The Bachelor
+
+Wed, 24 Jun 2026 20:48:53 GMT
+
+https://screenrant.com/bachelorette-season-22-taylor-frankie-paul-release-window/
+
+After a scandal involving Taylor Frankie Paul and season 2 infamously being canceled, The Bachelorette season 2 now gets a reported release window.
+---------
+
+# Michael Fassbender's James Bond Meets Jason Bourne Thriller Is A Global Streaming Hit Worth Binging
+
+Streaming TV, Masked Recs
+
+Wed, 24 Jun 2026 20:46:41 GMT
+
+https://screenrant.com/michael-fassbender-the-agency-streaming-hit-worth-binging/
+
+Michael Fassbender's spy thriller series is James Bond meets Jason Bourne, and this incredible genre mix has made it a global hit and a must-binge.
+---------
+
+# Apple TV's Pluribus Replacement Officially Returns & It's Already A Global Streaming Hit
+
+Streaming TV, Masked Recs
+
+Wed, 24 Jun 2026 20:46:20 GMT
+
+https://screenrant.com/sugar-season-2-apple-tv-pluribus-replacement-success-june-2026/
+
+While we wait for Pluribus season 2, there is another sci-fi show on Apple TV that is currently airing a new season, and it's a streaming hit.
+---------
+
+# NBC Officially Confirms Release Dates For Law & Order & One Chicago Franchise Series Returns This Fall
+
+TV, Law & Order, Law & Order: Special Victims Unit, Law and Order, Chicago Med, Chicago Fire, Chicago P.D., One Chicago
+
+Wed, 24 Jun 2026 20:36:13 GMT
+
+https://screenrant.com/nbc-law-and-order-svu-one-chicago-fall-2026-release-dates/
+
+Brand-new seasons of the Law & Order and One Chicago franchises will begin this fall on NBC, which just announced upcoming premiere dates.
+---------
+
+# Every Upcoming Avatar: The Last Airbender Movie & TV Show
+
+Streaming TV, Avatar: The Last Airbender, The Legend of Korra
+
+Wed, 24 Jun 2026 20:30:22 GMT
+
+https://screenrant.com/upcoming-avatar-last-airbender-movies-shows/
+
+Despite ending 15 years ago, Avatar: The Last Airbender has spawned a whole franchise of spinoffs and sequel series. Here's what's next for the saga.
+---------
+
+# FX's Hit 6-Season Crime Series Snowfall Is Officially Returning With New Spinoff This September
+
+TV, Snowfall
+
+Wed, 24 Jun 2026 20:22:00 GMT
+
+https://screenrant.com/fx-snowfall-spinoff-series-the-drop-release-date/
+
+FX's hit crime thriller Snowfall is getting a spinoff series this September, the upcoming show will reveal a whole new side of the franchise.
+---------
+
+# Can Netflix's Animation Movie Slate For 2026 Top KPop Demon Hunters?
+
+Movies
+
+Wed, 24 Jun 2026 20:20:21 GMT
+
+https://screenrant.com/netflix-animation-movies-2026-slate/
+
+Netflix Animation's stellar success in 2025 means expectations are high for this year's slate of films — good thing the films look pretty great.
+---------
+
+# 10 Best Prime Video Series Of 2026 (So Far)
+
+Streaming TV
+
+Wed, 24 Jun 2026 20:15:20 GMT
+
+https://screenrant.com/10-best-prime-video-series-of-2026-so-far/
+
+A list of the best Prime Video original series in 2026, featuring a mix of genres &amp;high-quality content that sets the platform apart from competiton.
+---------
+
+# Absolute Batman #15 Returns For Third Printing
+
+Comics, Absolute Batman
+
+Wed, 24 Jun 2026 21:00:13 GMT
+
+https://www.cbr.com/absolute-batman-15-joker-origin-third-reprinting/
+
+One of Absolute Batman's greatest hits comes back to comic book stores once again.
+---------
+
+# 10 Masterpiece Movies Steven Spielberg Almost Directed
+
+Movies, steven spielberg
+
+Wed, 24 Jun 2026 21:00:13 GMT
+
+https://www.cbr.com/movies-steven-spielberg-almost-directed-list/
+
+Steven Spielberg has directed some of the most acclaimed movies of all time over the last seven decades, but he almost took on many more iconic films.
+---------
+
+# Netflix's Anti-Cinderella Movie Confirms 2026 Release Date
+
+Movies, Steps, Cinderella, Netflix
+
+Wed, 24 Jun 2026 20:58:29 GMT
+
+https://www.cbr.com/netflix-steps-2026-release-date/
+
+It's time to prepare for a different ball.
+---------
+
+# It's Officially the End of an Era for Disney After 39 Years
+
+Movies, Disney
+
+Wed, 24 Jun 2026 20:45:13 GMT
+
+https://www.cbr.com/disney-end-of-era-layoff-home-entertainment-division/
+
+It's the end of an era at the House of Mouse.
+---------
+
+# 5 Masterpiece Sports Movies Better Than Rocky
+
+Movies, Rocky
+
+Wed, 24 Jun 2026 20:30:14 GMT
+
+https://www.cbr.com/sports-movies-better-than-rocky-list/
+
+Stallone's Rocky has been the gold standard in sports films for a long time, but there are some movies that audiences love more.
+---------
+
+# Sebastian Stan's Palme d'Or-Winning Drama With 90% RT Is Officially Heading to Theaters
+
+Movies, sebastian stan, Fjord
+
+Wed, 24 Jun 2026 20:24:07 GMT
+
+https://www.cbr.com/sebastian-stans-fjord-neon-theatrical-release-date/
+
+The actor continues his streak of impressive roles post-Marvel with this Neon release.
+---------
+
+# 5 Masterpiece Mecha Anime Better Than Code Geass
+
+Anime, Neon Genesis Evangelion, The Vision of Escaflowne, Gurren Lagann, Code Geass: Lelouch of the Rebellion
+
+Wed, 24 Jun 2026 20:15:13 GMT
+
+https://www.cbr.com/masterpiece-mecha-anime-better-than-code-geass/
+
+Code Geass made a massive imprint on the mecha anime genre, but these five classic titles tell objectively better and more engaging stories.
+---------
+
+# Marvel Officially Gives Avengers: Endgame a New Title Ahead of Re-Release
+
+Movies, Avengers: Endgame, Marvel Cinematic Universe, superheroes
+
+Wed, 24 Jun 2026 20:11:31 GMT
+
+https://www.cbr.com/avengers-endgame-encore-marvel-infinty-vision-re-release/
+
+Avengers: Endgame returns in Infinity Vision, with a new name.
+---------
+
+# Dutton Ranch's Season 2 Renewal Is Replacing Kevin Costner Faster Than Anyone Expected
+
+TV, Dutton Ranch, Yellowstone
+
+Wed, 24 Jun 2026 20:00:44 GMT
+
+https://www.cbr.com/yellowstone-replaced-kevin-costner-dutton-ranch/
+
+The Yellowstone franchise is moving on from Kevin Costner's iconic John Dutton much quicker than expected.
+---------
+
+# Disney+'s 10/10 Fantasy Masterpiece Is Taking Over Streaming as Fans Await New Episodes
+
+TV, Percy Jackson & The Olympians, Percy Jackson & the Olympians, Fantasy
+
+Wed, 24 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/percy-jackson-and-the-olympians-disney-fantasy-success-june-2026/
+
+Disney's acclaimed fantasy series, Percy Jackson and the Olympians, is rising on streaming ahead of highly anticipated return.
+---------
+
+# ‘GTA 6’ Didn’t Kill Physical Games, the Industry Did That Years Ago
+
+Video Games, Rockstar Games, PlayStation 5, Xbox Series X/S, Video Game
+
+Wed, 24 Jun 2026 20:54:13 GMT
+
+https://collider.com/grand-theft-auto-6-physical-games-industry-killed-physical-media/
+
+GTA 6 has become the latest target in the debate over physical media, but the gaming industry has been moving away from true ownership for years.
+---------
+
+# Brandon Sanderson Meets ‘Attack on Titan’ in a Brutal New Fantasy Release
+
+Uncategorized, Attack On Titan, Jujutsu Kaisen, Demon Slayer, Brandon Sanderson
+
+Wed, 24 Jun 2026 20:53:48 GMT
+
+https://collider.com/new-fantasy-release-wretched-divine-inspired-brandon-sanderson-attack-on-titan/
+
+New fantasy release coming in September is giving Brandon Sanderson meets Attack on Titan in a brutally epic tale.
+---------
+
+# The 9 Greatest Thriller Shows With 8 Episodes or Less
+
+TV, Thriller, The Beast in Me, Mare of Easttown, Unbelievable
+
+Wed, 24 Jun 2026 20:28:14 GMT
+
+https://collider.com/best-thriller-shows-8-episodes-or-less/
+
+From Bodies to Unbelievable, Mare of Easttown to The Beast in Me, these thrillers are easy to binge at eight episodes or less.
+---------
+
+# OG Baldur’s Gate Game Gets First Major Update in 14 Years
+
+Video Games, Baldur's Gate, Baldur's Gate 3, Video Game, Steam
+
+Wed, 24 Jun 2026 19:35:50 GMT
+
+https://collider.com/baldurs-gate-enhanced-edition-2-7-patch-update/
+
+Beamdog has released a major 2.7 patch for classic Baldur's Gate games, adding Apple Silicon support and improved cloud saves.
+---------
+
+# NBC's 'Law & Order' Universe Officially Sets 2026 Return
+
+TV News, Law & Order, NBC, Law & Order: Special Victims Unit, Mariska Hargitay
+
+Wed, 24 Jun 2026 19:26:06 GMT
+
+https://collider.com/law-and-order-svu-release-date-october-8-2026/
+
+Following the cancellation of Organized Crime, Law & Order and SVU are officially returning with a Fall 2026 return date.
+---------
+
+# 5 Dark Fantasy Movies That Are Perfect From the First Scene to the Last
+
+Movie, Fantasy, The Secret of NIMH, The Green Knight, Pan's Labyrinth
+
+Wed, 24 Jun 2026 19:19:13 GMT
+
+https://collider.com/dark-fantasy-movies-perfect-first-scene-to-last/
+
+Pan's Labyrinth, Ugetsu, and Coraline are among the few and precious dark fantasy movies that can proudly claim to be utterly flawless throughout.
+---------
+
+# One Chicago Officially Sets Fall 2026 Release Date on NBC
+
+TV News, One Chicago, Chicago Med, Chicago Fire, Chicago P.D.
+
+Wed, 24 Jun 2026 19:13:35 GMT
+
+https://collider.com/chicago-fire-pd-med-release-date-october-7-2026/
+
+NBC's One Chicago universe is back, with Fire, P.D., and Med officially set to return this October. Read on for more.
+---------
+
+# Sebastian Stan's Award-Winning 90% Rated Legal Thriller Officially Sets Release Date
+
+Movie News, Fjord, Sebastian Stan, Renate Reinsve
+
+Wed, 24 Jun 2026 20:05:34 GMT
+
+https://movieweb.com/sebastian-stan-fjord-release-date/
+
+The Palme d'Or-winning drama 'Fjord' starring Sebastian Stan and Renate Reinsve gets an award-friendly October release date.
+---------
+
+# Sydney Sweeney's 131-Minute R-Rated Thriller Closes in on Streaming Milestone
+
+Movie News, Sydney Sweeney, The Housemaid, Hot on Streaming, Thriller
+
+Wed, 24 Jun 2026 20:00:18 GMT
+
+https://movieweb.com/sydney-sweeney-the-housemaid-streaming-hit-starz-100-days-june-2026/
+
+Sydney Sweeney's latest erotic thriller refuses to back down on streaming as it closes in on an impressive milestone.
+---------
+
 # House Of the Dragon's Night King Easter Egg Could Solve 8-Year-Old GOT Mystery
 
 Streaming TV, House of the Dragon, House of the Dragon - Season 3, Game of Thrones
