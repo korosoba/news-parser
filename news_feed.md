@@ -1,3 +1,355 @@
+# Hogwarts Legacy Meets Valheim In Massive New Open-World Survival RPG
+
+Gaming, Hogwarts Legacy, Valheim, PC, RPG
+
+Wed, 24 Jun 2026 02:00:33 GMT
+
+https://screenrant.com/hogwarts-legacy-meets-valheim-witchspire/
+
+Fans of Hogwarts Legacy and the legendarily good Valheim absolutely need to check out this brand-new magical open-world survival RPG.
+---------
+
+# Sorry George R.R. Martin, House Of The Dragon's Canon Changes Are Paying Off
+
+Streaming TV, House of the Dragon, Game of Thrones, House of the Dragon - Season 3
+
+Wed, 24 Jun 2026 02:00:33 GMT
+
+https://screenrant.com/house-of-the-dragon-book-changes-canon-grrm-payoff/
+
+We couldn't have seen it coming, but House of the Dragon season 3's premiere actually benefited greatly from the show's past canon changes.
+---------
+
+# Adventure Time Lore Episode Guide: Which Episodes You Can Skip
+
+Streaming TV, Adventure Time
+
+Wed, 24 Jun 2026 01:30:23 GMT
+
+https://screenrant.com/adventure-time-lore-episode-guide-what-to-skip/
+
+The fantasy series Adventure Time contains a whopping 283 episodes, but not all of them connect to the show's rich lore. Here's what to know.
+---------
+
+# Toy Story 5 Fixes A Plot Hole That's Annoyed Us For 31 Years
+
+Movies, Toy Story 5
+
+Wed, 24 Jun 2026 01:30:22 GMT
+
+https://screenrant.com/toy-story-5-franchise-plot-hole-fix/
+
+In the opening sequence of Toy Story 5, Pixar finally addresses a Buzz Lightyear plot hole that has been nagging at audiences for over three decades.
+---------
+
+# Every House Of The Dragon Character Who Survives The Dance Of The Dragons
+
+Streaming TV, House of the Dragon
+
+Wed, 24 Jun 2026 01:00:24 GMT
+
+https://screenrant.com/house-of-the-dragon-dance-of-the-dragons-characters-survive/
+
+The Dance of the Dragons is one of the most devastating wars in Westeros' history, but some of the main characters survive the conflict.
+---------
+
+# After 1 Year Of Searching, Netflix Has Found Their Answer To The Pitt With New Medical Drama
+
+TV, Netflix, Masked Recs
+
+Wed, 24 Jun 2026 01:00:22 GMT
+
+https://screenrant.com/netflix-medical-drama-first-doctor-answer-the-pitt/
+
+This exciting new medical drama with a talented initial cast lineup shows promise as Netflix's newest series enters production.
+---------
+
+# Elden Ring: Raging Wolf Officially Arrives Winter 2026
+
+Gaming, Elden Ring
+
+Wed, 24 Jun 2026 01:00:22 GMT
+
+https://screenrant.com/elden-ring-raging-wolf-winter-2026/
+
+Show off your love for Elden Ring's Raging Wolf with this upcoming launch later this year.
+---------
+
+# Elden Ring’s First Official DLC Since Shadow Of The Erdtree Splits Gamers
+
+Gaming, Elden Ring, Triple-A Games, PC
+
+Wed, 24 Jun 2026 01:00:22 GMT
+
+https://screenrant.com/elden-ring-tarnished-edition-dlc-reactions/
+
+Elden Ring's first official DLC in years is finally on the horizon, but not everyone is on board with what FromSoftware has to offer.
+---------
+
+# Mike Flanagan's Horror Streaming Return Is Just 4 Months Away
+
+Streaming TV, Masked Recs
+
+Wed, 24 Jun 2026 00:45:21 GMT
+
+https://screenrant.com/mike-flanagan-horror-streaming-return-carrie-prime-video-october/
+
+Mike Flanagan is finally returning to streaming with a horror TV show in just four months, making late 2026 a great time for horror fans.
+---------
+
+# Guy Ritchie’s 10-Part Crime Drama With Tom Hardy Has An Even Better Cast For Season 2
+
+TV, Masked Recs
+
+Wed, 24 Jun 2026 00:30:22 GMT
+
+https://screenrant.com/mobland-season-2-cast-even-better/
+
+Returning later in 2026, Ritchie's wildly popular gangster drama will feature many familiar faces, but a couple of new ones alongside them.
+---------
+
+# 10 Life Lessons Naruto Fans Still Carry Today
+
+Anime, Naruto
+
+Wed, 24 Jun 2026 02:30:13 GMT
+
+https://www.cbr.com/naruto-life-lessons-fans-carry-today/
+
+Naruto is one of the most influential anime of the 2000s, and it imparted many powerful lessons that fans still remember today.
+---------
+
+# Beth & Rip Officially Make Yellowstone History in Dutton Ranch Episode 7
+
+TV, Yellowstone, Dutton Ranch
+
+Wed, 24 Jun 2026 02:00:24 GMT
+
+https://www.cbr.com/dutton-ranch-episode-7-beth-rip-make-history-10-petal/
+
+The outstanding power couple from Taylor Sheridan's flagship neo-Western Yellowstone series makes history in their Dutton Ranch spinoff on Paramount+.
+---------
+
+# HBO’s 6-Part Fantasy Spinoff With 94% RT Returns as a Streaming Hit As Fans Await New Episodes
+
+TV, A Knight Of The Seven Kingdoms, Fantasy, HBO Max
+
+Wed, 24 Jun 2026 02:00:24 GMT
+
+https://www.cbr.com/a-knight-of-the-seven-kingdoms-success-fantasy-hbo-max-june-2026/
+
+HBO's hit fantasy spinoff is back on the streaming charts.
+---------
+
+# Kamen Rider Fans Get First Look at New 55th Anniversary Collector’s Watch
+
+Anime, Kamen Rider, merchandise, superheroes
+
+Wed, 24 Jun 2026 02:00:24 GMT
+
+https://www.cbr.com/kamen-rider-55th-anniversary-collectors-watch/
+
+Kamen Rider fans are about to get a sleek new way to celebrate their favorite tokusatsu series' 55th anniversary, assuming they act fast enough.
+---------
+
+# 10 Free Steam Games That Are Actually Masterpieces
+
+Games, Path of Exile, Warframe, Team Fortress 2, Steam
+
+Wed, 24 Jun 2026 02:00:24 GMT
+
+https://www.cbr.com/best-free-steam-games-actual-masterpieces/
+
+The Steam library is home to thousands of AAA and indie-developed projects, and these ten games are the greatest free additions available.
+---------
+
+# 5 Most Emotional Sci-Fi Movies Of All Time
+
+Movies, Science Fiction
+
+Wed, 24 Jun 2026 02:00:24 GMT
+
+https://www.cbr.com/most-emotional-sci-fi-movies-list/
+
+Explore how these 5 sci-fi movies delve into deep emotional themes and reflect real-life issues, making them unforgettable viewing experiences.
+---------
+
+# The Golden Girls Reimagining Eyed by Mindy Kaling: 'I Want to Do My Version'
+
+TV, The Golden Girls
+
+Wed, 24 Jun 2026 01:46:14 GMT
+
+https://www.cbr.com/mindy-kaling-eyes-golden-girls-reboot/
+
+After taking a stab at Scooby-Doo with Velma, Mindy Kaling reveals that reimagining The Golden Girls is on her wish list.
+---------
+
+# Zelda Might Be Replacing Link With Ganon Next Year
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Wed, 24 Jun 2026 01:45:14 GMT
+
+https://www.cbr.com/zelda-replacing-link-2027-ganondorf/
+
+Leaks for the next mainline 2D Zelda game coming out in 2027 have suggested Ganondorf will be the star instead of Link, and that’s actually good news.
+---------
+
+# 10 Times Avatar's Azula Was More Tragic Than Terrifying
+
+Anime, Avatar: The Last Airbender, Nickelodeon
+
+Wed, 24 Jun 2026 01:26:14 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-most-tragic-azula-moments/
+
+Azula is a terrifying villain, but also a deeply tragic character with incredible depth in Avatar: The Last Airbender.
+---------
+
+# Steam Officially Drops New $1,000 Game You Can Beat in 10 Minutes
+
+Games, Steam
+
+Wed, 24 Jun 2026 01:06:15 GMT
+
+https://www.cbr.com/steam-new-game-1000-dollars-10-minutes-official/
+
+Steam's new game, Congratulations On Your Purchase, tests how much gamers are willing to pay.
+---------
+
+# 11 Years Later, This Iconic Dark Fantasy Still Hits Like a Punch to the Gut
+
+TV Features, The Magicians, SyFy, Jason Ralph, Stella Maeve
+
+Wed, 24 Jun 2026 01:42:14 GMT
+
+https://collider.com/the-magicians-iconic-dark-fantasy/
+
+SyFy's dark fantasy, The Magicians, envisions a dark academic world where children's books like The Chronicles of Narnia are real and horrifying.
+---------
+
+# Apple TV's Hit Sci-Fi Crime Series Just Broke a Major Streaming Trend
+
+TV News, Apple TV, Sci-Fi, Sugar, Rotten Tomatoes
+
+Wed, 24 Jun 2026 01:30:15 GMT
+
+https://collider.com/apple-tv-sci-fi-crime-series-sugar-season-2-rotten-tomatoes-score-is-it-good/
+
+Season 2 of Apple TV's sleeper hit sci-fi detective series has debuted on Rotten Tomatoes to a surprising score.
+---------
+
+# 10 Greatest Romance Books of the 20th Century
+
+Movie, Books, Romance, Rebecca, Gone with the Wind
+
+Wed, 24 Jun 2026 01:12:14 GMT
+
+https://collider.com/best-romance-books-20th-century-ranked/
+
+Romantic novels like Rebecca, The English Patient, and Gone With the Wind are all among the greatest literary love stories of the 20th century.
+---------
+
+# Netflix’s 5-Part Sci-Fi Masterpiece Is Officially Taking Over the World 8 Years Later
+
+TV News, The Last Ship, Netflix, The Last of Us, Greyhound
+
+Wed, 24 Jun 2026 01:00:15 GMT
+
+https://collider.com/netflix-sci-fi-series-the-last-ship-streaming-success-june-2026/
+
+The Last Ship, the dystopian sci-fi series with shades of The Last of Us and Greyhound, has officially arrived on Netflix.
+---------
+
+# 8 Classic Thriller Movies Nobody Wants To See a Remake Of
+
+Movie, Thriller, Psycho, Fight Club, The Silence of the Lambs
+
+Wed, 24 Jun 2026 00:55:14 GMT
+
+https://collider.com/classic-thriller-movies-no-remakes/
+
+Psycho, Vertigo, Die Hard, Pulp Fiction, Fight Club, and more make up our list of classic thriller movies nobody wants to see remade.
+---------
+
+# 10 Greatest Forgotten '80s Cult Classic Movies
+
+Movie, Dragonslayer, Brazil, They Live, Heavy Metal
+
+Wed, 24 Jun 2026 00:32:14 GMT
+
+https://collider.com/best-forgotten-80s-cult-classic-movies-ranked/
+
+From dark horrors like Inferno to action sci-fi gems like They Live, these '80s cult gems are still brilliant today, even if they have been forgotten.
+---------
+
+# In Just 5 Days, 2026’s Sci-Fi Masterpiece Is Already a #1 Streaming Hit
+
+Movie News, Project Hail Mary, Ryan Gosling, MGM, Prime Video
+
+Wed, 24 Jun 2026 00:30:15 GMT
+
+https://collider.com/project-hail-mary-streaming-success-mgm-plus-june-2026/
+
+Project Hail Mary, the biggest sci-fi movie of the year so far, has smashed to the #1 spot on streaming worldwide shortly after its debut.
+---------
+
+# HBO’s 10/10 Sci-Fi Prequel Surges of Streaming Ahead on Dune’s Final Chapter
+
+TV News, Dune: Part Three, HBO Max, Sci-Fi, Dune: Prophecy
+
+Wed, 24 Jun 2026 00:00:14 GMT
+
+https://collider.com/dune-prophecy-streaming-success-hbo-max-june-2026/
+
+With Dune: Part 3 on the horizon, HBO's hit sci-fi prequel is making a streaming comeback ahead of Season 2.
+---------
+
+# 10 Sci-Fi Movies That Are About as Close to Perfect as It Gets
+
+Movie Lists, Science Fiction
+
+Wed, 24 Jun 2026 02:00:31 GMT
+
+https://movieweb.com/perfect-sci-fi-movies/
+
+These science-fiction movies are memorable, flawless, and some of the best that the genre has to offer.
+---------
+
+# Tom Cruise's 3 Greatest Performances Prove His Wild New Movie Will Be a Masterpiece
+
+Features, Digger, Tom Cruise
+
+Wed, 24 Jun 2026 01:32:23 GMT
+
+https://movieweb.com/tom-cruise-best-performances-digger/
+
+When looking at the actor's sprawling body of work, it's easy to see why his upcoming "comedy of catastrophic proportions" will work.
+---------
+
+# Taylor Sheridan Releases Perfect 'Mayor of Kingstown' Crime Thriller Replacement
+
+TV News, Mayor of Kingstown, Taylor Sheridan
+
+Wed, 24 Jun 2026 00:48:46 GMT
+
+https://movieweb.com/taylor-sheridan-book-prison-mayor-of-kingstown/
+
+Sheridan's new book 'How Not to Die in Prison' explores the inner workings of the prison-industrial complex in a way similar to 'Mayor of Kingstown.'
+---------
+
+# Netflix Lands New Streaming Hit With Disney Star’s Twisted Action Thriller
+
+Movie News, 5lbs of Pressure, Netflix, Hot on Streaming, Action
+
+Wed, 24 Jun 2026 00:00:20 GMT
+
+https://movieweb.com/5lbs-of-pressure-streaming-success-netflix-june-2026-action/
+
+Luke Evans' forgotten action crime thriller '5lbs of Pressure' is a cult US streaming success on Netflix, after flopping on Prime Video.
+---------
+
 # It’s Officially The End Of An Era For Zelda Following Unexpected Cancellation
 
 Gaming, The Legend of Zelda, Nintendo, Nintendo Switch 2
