@@ -1,3 +1,399 @@
+# Naruto Officially Returns With A Brand-New Era In 2027
+
+Gaming, Naruto, Anime
+
+Wed, 24 Jun 2026 15:23:38 GMT
+
+https://screenrant.com/naruto-2027-official-return-tgc/
+
+Naruto is officially coming back in 2027 with a whole new experience for fans and newcomers alike to get completely immersed in.
+---------
+
+# President Curtis Doesn’t Need Rick & Morty To Save The World In R-Rated Spinoff Trailer & Premiere Date
+
+TV, President Curtis, President Curtis - Season 1, Rick and Morty
+
+Wed, 24 Jun 2026 15:12:26 GMT
+
+https://screenrant.com/president-curtis-rick-and-morty-spinoff-trailer-premiere-date/
+
+Adult Swim officially unveils the President Curtis trailer and premiere date, showing Keith David's character in action in the Rick and Morty spinoff.
+---------
+
+# 10 Highest-Grossing Movies Of 2026 (So Far)
+
+New Movies, Box Office
+
+Wed, 24 Jun 2026 15:12:13 GMT
+
+https://screenrant.com/highest-grossing-movies-2026-box-office/
+
+The 2026 box office has seen several huge global hits already. These are the 10 highest-grossing movies worldwide that found success in theaters.
+---------
+
+# Taylor Sheridan’s Dutton Ranch Season 2 Fate Officially Decided By Paramount+
+
+TV, Dutton Ranch, Dutton Ranch - Season 1, Yellowstone
+
+Wed, 24 Jun 2026 15:00:20 GMT
+
+https://screenrant.com/dutton-ranch-season-2-paramount-plus-renewed/
+
+Paramount+ has revealed whether Taylor Sheridan's Yellowstone sequel and spinoff series Dutton Ranch is coming back for a second season.
+---------
+
+# Amazon Prime Day Slashes Nintendo Switch 2 Price Ahead Of Ocarina Of Time Remake
+
+Gaming, Nintendo Switch 2, Amazon, Nintendo
+
+Wed, 24 Jun 2026 14:55:09 GMT
+
+https://screenrant.com/nintendo-switch-2-price-drop-amazon-prime-day/
+
+Amazon Prime Day deals have seen the Nintendo Switch 2 price slashed, making now the best time to pick one up before Ocarina of Time launches.
+---------
+
+# Netflix's One-Man Action Thriller Is Officially One Of Its Most Popular Movies Of All Time
+
+Movies, Masked Recs, Netflix
+
+Wed, 24 Jun 2026 14:51:34 GMT
+
+https://screenrant.com/netflix-ad-vitam-most-popular-action-movie-all-time-list/
+
+One of Netflix's one-man action thriller has quietly climbed the streamer's charts to become one of its most popular movies of all time.
+---------
+
+# DC Officially Confirms Man-Bat's Design For Matt Reeves' Batman Return
+
+Streaming TV, Masked Recs
+
+Wed, 24 Jun 2026 14:48:49 GMT
+
+https://screenrant.com/batman-caped-crusader-season-2-man-bat-confirmed/
+
+The Batman director Matt Reeves is debuting Man-Bat in his next DC release, and the Dark Knight's villain comes with a surprising design.
+---------
+
+# Marvel Announces New Doctor Doom Powers, Ahead Of MCU Return
+
+Comics, Doctor Doom
+
+Wed, 24 Jun 2026 14:32:56 GMT
+
+https://screenrant.com/doctor-doom-new-powers-ultimate-universe/
+
+He has all the Fantastic Four's powers.
+---------
+
+# PlayStation Officially Unveils Stunning New Hardware Coming Soon
+
+Gaming, PlayStation 5, PlayStation
+
+Wed, 24 Jun 2026 14:23:32 GMT
+
+https://screenrant.com/playstation-new-hardware-dualsense-august-2026/
+
+PlayStation has just revealed a new-yet-familiar piece of hardware that you may not be able to get your hands on when it’s released this summer.
+---------
+
+# GTA 6 Online Launch Officially Delayed Following Official Announcement
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Wed, 24 Jun 2026 14:21:13 GMT
+
+https://screenrant.com/gta-6-online-release-date-delays/
+
+Rockstar has made an official announcement about Grand Theft Auto 6, and in doing so, it basically confirmed that GTA 6 Online is getting delayed.
+---------
+
+# 5 Best Dark Fantasy Anime to Watch After Berserk
+
+Anime, Berserk, Attack On Titan, shonen anime, Shonen
+
+Wed, 24 Jun 2026 15:15:20 GMT
+
+https://www.cbr.com/best-dark-fantasy-anime-watch-after-berserk/
+
+Fans looking for their next dark fantasy obsession after Berserk should start with these standout anime series.
+---------
+
+# Paramount+ Seals the Fate of Yellowstone Spinoff Just 1 Week Ahead of Season Finale
+
+TV, Dutton Ranch
+
+Wed, 24 Jun 2026 15:12:25 GMT
+
+https://www.cbr.com/paramount-dutton-ranch-fate-revealed/
+
+Paramount+ has just decided the fate of yet another Yellowstone spinoff.
+---------
+
+# Scarlett Johansson's Netflix Movie Officially Competing With Avengers: Doomsday & Dune: Part Three
+
+Movies, Netflix, Ray Gunn, scarlett johansson
+
+Wed, 24 Jun 2026 15:07:15 GMT
+
+https://www.cbr.com/scarlett-johansson-ray-gunn-netflix-release-date/
+
+The animated detective noir has officially set a release date.
+---------
+
+# Adventure Time: Side Quests Review: Finn & Jake’s Return to Ooo Is Pure Animated Joy
+
+TV, Adventure Time: Side Quests
+
+Wed, 24 Jun 2026 15:00:18 GMT
+
+https://www.cbr.com/adventure-time-side-quests-review/
+
+Adventure Time is back with Adventure Time: Side Quests, a new prequel series that is perfect for all fans of the beloved franchise.
+---------
+
+# The Hobbit Explained Gimli’s Most Controversial LOTR Line
+
+Movies, The Hobbit, The Lord of the Rings
+
+Wed, 24 Jun 2026 15:00:13 GMT
+
+https://www.cbr.com/lord-of-the-rings-the-two-towers-gimli-controversial-helms-deep-quote/
+
+Peter Jackson's The Hobbit: The Battle of the Five Armies added another layer to one of Gimli's complaints in The Lord of the Rings: The Two Towers.
+---------
+
+# 40 Years Later, Transformers Reimagines Ultra Magnus With a Dark New Look
+
+Anime, Transformers, merchandise, mecha
+
+Wed, 24 Jun 2026 15:00:13 GMT
+
+https://www.cbr.com/transformers-shattered-glass-ultra-magnus-release/
+
+Decades after his debut, Ultra Magnus is embracing his darkest incarnation side in a recent convention-exclusive Transformers action figure.
+---------
+
+# 5 Best Hard Sci-Fi Anime Ever Made
+
+Anime, Sci-Fi, Patlabor: The TV Series, Dr. Stone
+
+Wed, 24 Jun 2026 15:00:13 GMT
+
+https://www.cbr.com/best-hard-sci-fi-anime-ever-made/
+
+Science fiction doesn't need lasers or aliens to be interesting, and anime is the perfect medium to explore some of sci-fi's most ambitious concepts.
+---------
+
+# John Cena Reveals Which A-Listers Believed in His Acting Career From the Start
+
+Movies, Little Brother
+
+Wed, 24 Jun 2026 14:43:50 GMT
+
+https://www.cbr.com/john-cena-shouts-out-a-list-comedians-career-support/
+
+Hollywood fan favorite and Little Brother star John Cena names the A-listers who gave him a chance and paved the way for his acting career.
+---------
+
+# 7 Best Miniseries of the Last 5 Years
+
+TV, Baby Reindeer, Something Very Bad Is Going to Happen, TV Miniseries
+
+Wed, 24 Jun 2026 14:30:14 GMT
+
+https://www.cbr.com/best-miniseries-past-5-years-list/
+
+From unexpected twists to powerful performances, miniseries like His & Hers and Dopesick are even more appealing in light of recent cancellations.
+---------
+
+# 10 Cowboy Bebop Plot Points That Make No Sense
+
+Anime, Cowboy Bebop, toonami, Cartoon Network
+
+Wed, 24 Jun 2026 14:15:12 GMT
+
+https://www.cbr.com/cowboy-bebop-plot-points-make-no-sense/
+
+Cowboy Bebop may be one of the greatest anime of all-time, but it has more than its share of plot points that make no sense.
+---------
+
+# Forget ‘Doctor Who,’ Another British Classic Is Officially Taking Over Christmas
+
+TV News, Britbox, Pride & Prejudice, The Other Bennet Sister, Streaming
+
+Wed, 24 Jun 2026 15:00:13 GMT
+
+https://collider.com/the-other-bennet-sister-christmas-special-confirmed-britbox/
+
+BritBox's critically acclaimed adaptation of The Other Bennet Sister, based on Janice Hadlow's novel, is set to return for a 3-part Christmas special.
+---------
+
+# Taylor Sheridan’s Best ‘Yellowstone’ Spin-Off Officially Renewed After Record-Breaking Premiere
+
+TV News, Dutton Ranch, Yellowstone, Taylor Sheridan, Paramount
+
+Wed, 24 Jun 2026 15:00:13 GMT
+
+https://collider.com/dutton-ranch-season-2-renewed-paramount-plus/
+
+Paramount has decided the ultimate fate of Taylor Sheridan's Yellowstone sequel, Dutton Ranch, ahead of its finale on July 3.
+---------
+
+# Arnold Schwarzenegger’s 40+ Year Old Fantasy Franchise Is Officially Getting a Reboot Series
+
+TV News, Genndy Tartakovsky, Conan the Barbarian, Animation, Prime Video
+
+Wed, 24 Jun 2026 14:22:38 GMT
+
+https://collider.com/conan-the-barbarian-tv-series-genndy-tartakovsky/
+
+Arnold Schwarzenegger’s iconic fantasy franchise is officially getting a reboot series from the legendary Genndy Tartakovsky.
+---------
+
+# Netflix's 'One Piece' Series Sets Release Date for New Remake
+
+TV News, One Piece, Netflix, Anime, Annecy
+
+Wed, 24 Jun 2026 13:02:58 GMT
+
+https://collider.com/the-one-piece-teaser-netflix-anime-remake/
+
+A new teaser for Netflix's The One Piece anime remake gives the best look yet at the new adaptation of Luffy's adventures in the East Blue.
+---------
+
+# Netflix’s Sci-Fi Detective Thriller 30 Years in the Making Officially Sets 2026 Release Date
+
+Movie News, Ray Gunn, Netflix, Brad Bird, Scarlett Johansson
+
+Wed, 24 Jun 2026 13:00:14 GMT
+
+https://collider.com/netflix-brad-bird-movie-ray-gunn-release-date-new-images/
+
+Ray Gunn, the animated sci-fi detective thriller from director Brad Bird, has officially set a release day on one of the busiest days of the year.
+---------
+
+# ‘Ghostbusters’ Officially Returns With New Netflix Series
+
+TV News, Ghostbusters, Ghostbusters 2, Netflix, Animation
+
+Wed, 24 Jun 2026 13:00:14 GMT
+
+https://collider.com/ghostbusters-netflix-series-night-shift-first-images-logline/
+
+We have a first look at Netflix's new animated series, Ghostbusters: Night Shift. Read on for more.
+---------
+
+# Netflix Confirms Upcoming 'Ghostbusters' Series Is a Prequel With New Image
+
+TV News
+
+Wed, 24 Jun 2026 15:22:31 GMT
+
+https://movieweb.com/netflix-ghostbusters-night-shift-first-look/
+
+Netflix unveiled a first look image and concept art for 'Ghostbusters: Night Shift' at Annecy Film Festival, confirming that the series is a prequel.
+---------
+
+# Netflix Reveals New Look at Scarlett Johansson Throwback Sci-Fi Action Film
+
+Movie News, Ray Gunn, Scarlett Johansson, Brad Bird
+
+Wed, 24 Jun 2026 15:20:08 GMT
+
+https://movieweb.com/netflix-ray-gunn-images-scarlett-johansson/
+
+Netflix has confirmed a December 18 release date for Brad Bird's 'Ray Gunn,' the sci-fi noir with Scarlett Johansson and Sam Rockwell.
+---------
+
+# The Fate of Taylor Sheridan 'Yellowstone' Sequel 'Dutton Ranch' Confirmed
+
+TV News, Dutton Ranch, Yellowstone
+
+Wed, 24 Jun 2026 15:15:21 GMT
+
+https://movieweb.com/paramount-plus-dutton-ranch-renewed-season-2/
+
+The fate of Taylor Sheridan's latest 'Yellowstone' series has been confirmed.
+---------
+
+# 'The Boys' Star Joins Amazon's Best Superhero Action Series
+
+TV News, The Boys, Invincible, Jack Quaid, Prime Video
+
+Wed, 24 Jun 2026 15:08:07 GMT
+
+https://movieweb.com/the-boys-invincible-jack-quaid/
+
+Plus, 'Invincible' has been renewed for Season 6, before Season 5 has even aired!
+---------
+
+# Joe Manganiello’s "Most Difficult" Next Survival Project Is Beyond What You’d Expect
+
+Movie News, Joe Manganiello
+
+Wed, 24 Jun 2026 15:04:42 GMT
+
+https://movieweb.com/joe-manganiello-recalls-autoimmune-disease-bloodlines-memoir/
+
+Joe Manganiello has taken on a lot of challenging roles, but that's nothing compared to the most difficult passion project he kept private.
+---------
+
+# Last Year, Reacher Had a Crossover With One of the Best Shows of All Time
+
+Features, Reacher, The Simpsons, Alan Ritchson, Action, Comedy
+
+Wed, 24 Jun 2026 15:00:18 GMT
+
+https://movieweb.com/the-simpsons-jack-reacher-crossover/
+
+'The Simpsons' has had loads of amazing TV show crossovers over the last few decades, but did you spot this 'Reacher' parody from just last year?
+---------
+
+# Christian Bale Batman Movies in Order
+
+Movie Lists, The Dark Knight, Christian Bale
+
+Wed, 24 Jun 2026 15:00:18 GMT
+
+https://movieweb.com/christian-bale-batman-movies-in-order/
+
+Here is how to watch the Christian Bale Batman movies in order chronologically and by release date.
+---------
+
+# One of the Best Batman Shows Ever Officially Returns in Season 2 Trailer
+
+TV News, Batman: Caped Crusader, Prime Video
+
+Wed, 24 Jun 2026 14:20:50 GMT
+
+https://movieweb.com/batman-caped-crusader-season-2-first-trailer/
+
+A new trailer for one of the best Batman projects in recent memory was just released, teasing new stories for the Caped Crusader.
+---------
+
+# Prime Video Officially Rebooting Arnold Schwarzenegger's '80s Action Classic
+
+TV News, Conan the Barbarian
+
+Wed, 24 Jun 2026 14:02:11 GMT
+
+https://movieweb.com/prime-video-conan-the-barbarian-genndy-tartakovsky/
+
+Prime Video is moving forward with a new version of Arnold Schwarzenegger's classic action film 'Conan the Barbarian.'
+---------
+
+# Jason Statham's Highest-Rated Movie Ever Trends Worldwide on Streaming
+
+Movie News, Jason Statham, Spy, Hot on Streaming, Action
+
+Wed, 24 Jun 2026 14:00:20 GMT
+
+https://movieweb.com/jason-statham-spy-streaming-hit-hbo-max-june-2026/
+
+Statham plays against type in director Paul Feig's 2015 action comedy, which is definitely worth a watch ahead of 'Mutiny' this year.
+---------
+
 # Hogwarts Legacy: The Goblet Is A Massive New Experience Ahead Of The Sequel
 
 Gaming, Hogwarts Legacy
