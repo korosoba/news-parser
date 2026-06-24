@@ -1,3 +1,245 @@
+# Your New Pokémon Replacement Is Free On July 9
+
+Gaming, Pokemon, PC, Nintendo, Nintendo Switch 2
+
+Wed, 24 Jun 2026 06:00:19 GMT
+
+https://screenrant.com/honkai-nexus-anima-pokemon-replacement-closed-beta/
+
+For those looking for something to finally replace Pokémon in their lives, this brand-new, completely free replacement may be the perfect choice.
+---------
+
+# Nintendo Officially Drops New N64 Freebies, Yours To Claim Now
+
+Gaming, Nintendo, Triple-A Games
+
+Wed, 24 Jun 2026 05:00:20 GMT
+
+https://screenrant.com/nintendo-n64-freebies-music-june-2025/
+
+Even if you're not a fan of the Nintendo 64, this set of freebies is worth checking out, especially on the eve of the relaunch of Star Fox.
+---------
+
+# Steam Drops New Open-World Game That's Completely Free To Download
+
+Gaming, Steam, PC, Indie
+
+Wed, 24 Jun 2026 04:00:30 GMT
+
+https://screenrant.com/steam-free-open-world-rpg-july-2026/
+
+A brand-new open-world game has just been added to Steam for free, and you can download and keep this game right now, no strings attached.
+---------
+
+# Spider-Man: Long Way Home Is The Perfect Story Before The MCU’s Brand New Day
+
+Comics, Spider-Man, Spider-Man: Brand New Day, The Punisher, Hulk, Marvel Cinematic Universe
+
+Wed, 24 Jun 2026 03:58:46 GMT
+
+https://screenrant.com/spider-man-long-way-home-perfect-story-before-mcu-brand-new-day/
+
+Marvel has released an incredibly fun story ahead of Spider-Man: Brand New Day, featuring all three major MCU heroes in the upcoming movie.
+---------
+
+# Dragon Ball's Next Anime Is Giving Goku A God-Tier New Form Straight Out Of Naruto
+
+Anime, Dragon Ball Super, Dragon Ball Super: The Galactic Patrol, Naruto
+
+Wed, 24 Jun 2026 03:30:20 GMT
+
+https://screenrant.com/dragon-ball-super-galactic-patrol-ultra-instinct-naruto-susanoo/
+
+An upcoming Dragon Ball Super moment is about to rival one of the Naruto franchise's most iconic techniques in a massive way.
+---------
+
+# 7 Things About Harry Potter Book 1 Everyone Forgets
+
+Movies, Harry Potter, Harry Potter and the Sorcerer's Stone
+
+Wed, 24 Jun 2026 03:16:22 GMT
+
+https://screenrant.com/harry-potter-book-1-forgotten-details-philosophers-stone/
+
+After all these decades, it is hard not to forget how Harry Potter and the Philosopher’s Stone included several details that many have now forgotten.
+---------
+
+# After Earning $4 Billion Worldwide, A Sci-Fi-Fantasy Franchise Returns In 3 Days
+
+Movies, Masked Recs
+
+Wed, 24 Jun 2026 02:42:22 GMT
+
+https://screenrant.com/supergirl-superman-franchise-returns-june-2026/
+
+This sci-fi fantasy franchise is no stranger to success. Now, it's up to this upcoming installment to keep the ball rolling and continue the legacy.
+---------
+
+# Vegeta's Single Greatest DBZ Line Hits Harder Than Any Anime Quote Since
+
+Anime, Dragon Ball Z, Dragon Ball
+
+Wed, 24 Jun 2026 03:55:15 GMT
+
+https://www.cbr.com/vegeta-greatest-dbz-line-best-anime-quote/
+
+Vegeta delivered the greatest speech in anime history on Namek, and no DBZ quotes have ever managed to surpass it.
+---------
+
+# 10 Anime Arcs Where the Villain Wins
+
+Anime, Neon Genesis Evangelion, Berserk, Jujutsu Kaisen
+
+Wed, 24 Jun 2026 03:45:14 GMT
+
+https://www.cbr.com/anime-arcs-where-the-villain-wins/
+
+Not all anime series have a perfect happy ending, and these ten anime arcs show exactly what a villain winning can look like.
+---------
+
+# 5 Masterpiece Sci-Fi Sequels Better Than Dune: Part Two
+
+Movies, Sci-Fi, Dune: Part Two
+
+Wed, 24 Jun 2026 03:45:14 GMT
+
+https://www.cbr.com/masterpiece-sci-fi-sequels-better-than-dune-part-two-list/
+
+Dune: Part Two is an amazing sci-fi sequel, but there are others that easily surpass it.
+---------
+
+# Netflix’s 6-Part Thriller Based on a Book Is Jon Bernthal's Best Performance of the Decade
+
+TV, His & Hers, Netflix, Crime, jon bernthal
+
+Wed, 24 Jun 2026 03:31:14 GMT
+
+https://www.cbr.com/netflix-his-and-hers-jon-bernthal-best-performance/
+
+Jon Bernthal is a talented and prolific actor, and his performance in this hit Netflix crime thriller is easily one of his best.
+---------
+
+# New Game of Thrones Game Officially Expands House of the Dragon
+
+Games, House of the Dragon, Game Of Thrones
+
+Wed, 24 Jun 2026 03:20:37 GMT
+
+https://www.cbr.com/games-of-thrones-dragonfire-game-house-of-the-dragon/
+
+Along with watching the new season on HBO, fans can dive deeper into the world of House of the Dragon in the official game.
+---------
+
+# 5 Masterpiece Sci-Fi Games Better Than Cyberpunk 2077
+
+Games, Video Games, cyberpunk 2077
+
+Wed, 24 Jun 2026 03:15:14 GMT
+
+https://www.cbr.com/masterpiece-sci-fi-games-better-than-cyberpunk-2077/
+
+Once players try out Half-Life 2 or Dead Space 2, there's little point in going back to Cyberpunk 2077.
+---------
+
+# Spider-Man: Brand New Day's Red Ninja Villains Explained
+
+Movies, Spider-Man: Brand New Day, superheroes, MCU
+
+Wed, 24 Jun 2026 03:15:14 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-the-hand-villains-explained/
+
+The first trailers for Spider-Man: Brand New Day feature mysterious red ninjas who may connect to a major hidden crossover in the film.
+---------
+
+# 29 Years Later, Cid's Best FF7 Line Is the Greatest Quote in Video Game History
+
+Games, Final Fantasy VII, Final Fantasy
+
+Wed, 24 Jun 2026 03:05:13 GMT
+
+https://www.cbr.com/final-fantasy-7-best-cid-highwind-quote/
+
+The best Final Fantasy 7 quote shows exactly why Cid Highwind is such an iconic character.
+---------
+
+# Obsession and Backrooms Officially Mark The End of an Era for Horror Movies
+
+Movies, Horror, Backrooms, Obsession
+
+Wed, 24 Jun 2026 02:45:14 GMT
+
+https://www.cbr.com/obsession-backrooms-movies-end-of-horror-era/
+
+This year marked a major change for the horror genre that fans know and love, and that's a good thing.
+---------
+
+# This Actress Quietly Delivered 'The Pitt's Most Award-Worthy Performance in Season 2
+
+TV Features, The Pitt, HBO Max, Noah Wyle, Fiona Dourif
+
+Wed, 24 Jun 2026 04:45:12 GMT
+
+https://collider.com/the-pitt-season-2-brittany-allen-roxie-most-award-winning-performance/
+
+Brittany Allen delivers a powerful performance as Roxie Hamler in The Pitt Season 2 and deserves Emmy recognition for her standout role.
+---------
+
+# 5 Years Later, These Are the 10 Best Movies of 2021
+
+Movie, Mass, Dune, The Worst Person in the World, West Side Story
+
+Wed, 24 Jun 2026 04:14:14 GMT
+
+https://collider.com/best-movies-2021/
+
+Looking back on it 5 years later, films like The Green Knight, Titane, and Licorice Pizza stand out as the very best that 2021 had to offer.
+---------
+
+# HBO’s Forgotten 5-Part Mystery Series Is a Grim, Gripping Watch for Crime Drama Fans
+
+TV Features, Five Days, HBO Max, Hugh Bonneville, David Oyelowo
+
+Wed, 24 Jun 2026 03:37:22 GMT
+
+https://collider.com/five-days-hbo-forgotten-crime-drama-series/
+
+Five Days is a powerhouse of English talent in a mystery series about the disappearance of a mother and her two children.
+---------
+
+# 10 Best Depictions of Childhood in Movies
+
+Movie, The 400 Blows, Cinema Paradiso, Stand by Me, Fanny and Alexander
+
+Wed, 24 Jun 2026 03:26:49 GMT
+
+https://collider.com/best-depictions-childhood-movies/
+
+From American classics like E.T. the Extra-Terrestrial to international masterworks like The 400 Blows, these great movies portray childhood the best.
+---------
+
+# All 14 'Off Campus' Characters, Ranked
+
+TV, Off Campus, Prime Video, Romance, Ella Bright
+
+Wed, 24 Jun 2026 03:18:14 GMT
+
+https://collider.com/best-off-campus-characters-ranked/
+
+Find out where John Logan, Dean Di Laurentis, Hannah Wells, Garrett Graham, Allie Hayes, and more fall in our ranking of best Off Campus characters.
+---------
+
+# ‘House of the Dragon’s Premiere Proves the Sea Snake Show Should Never Have Been Cancelled
+
+TV Features, House of the Dragon, Game Of Thrones, HBO Max, Fantasy
+
+Wed, 24 Jun 2026 03:06:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-premiere-sea-snake-cancelled-show/
+
+House of the Dragon's thrilling Season 3 premiere showcases Corlys' skills as a sailor, proving that a Sea Snake series had plenty of potential.
+---------
+
 # Hogwarts Legacy Meets Valheim In Massive New Open-World Survival RPG
 
 Gaming, Hogwarts Legacy, Valheim, PC, RPG
