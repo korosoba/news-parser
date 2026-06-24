@@ -1,3 +1,311 @@
+# The 10 Most Painful Jackass Stunts
+
+Movies, Jackass
+
+Wed, 24 Jun 2026 22:30:20 GMT
+
+https://screenrant.com/most-painful-jackass-stunts/
+
+Johnny Knoxville and the gang prove that if you're gonna be dumb, you gotta be tough
+---------
+
+# Fallout Season 3 Is Officially Changing Genre
+
+TV, Fallout
+
+Wed, 24 Jun 2026 22:15:20 GMT
+
+https://screenrant.com/fallout-season-3-prime-video-changing-genre-western/
+
+Prime Video's record-breaking sci-fi series Fallout is about to switch things up in a major way, crossing into a different genre for its third season.
+---------
+
+# Matt Reeves' Batman Series That's Already Renewed For Season 2 Brings Back The Batman's Villain Trend
+
+Streaming TV, Masked Recs
+
+Wed, 24 Jun 2026 22:02:40 GMT
+
+https://screenrant.com/batman-caped-crusader-season-2-prime-video-dc-villain-trend/
+
+Matt Reeves' The Batman succeeded with a DC villain trend, and the director's Batman series that is renewed for season 2 will now repeat it.
+---------
+
+# Should You Kill Gortash Or Orin First In Baldur’s Gate 3 Act 3?
+
+Gaming, Baldur's Gate 3, Baldur's Gate, PC
+
+Wed, 24 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/baldurs-gate-3-kill-gortash-orin-first-bg3/
+
+The third act of Baldur’s Gate 3 presents two major villains the party needs to deal with, but it can be difficult to know which lead to chase first.
+---------
+
+# The Big Bang Theory Sequel's Character Return Has A Major Leonard Connection
+
+TV, The Big Bang Theory, Stuart Fails to Save the Universe
+
+Wed, 24 Jun 2026 21:58:21 GMT
+
+https://screenrant.com/stuart-fails-to-save-the-universe-sheldon-return-how/
+
+The latest trailer for The Big Bang Theory's HBOMax sequel hints at a comeback for its most beloved character, but is it a risk for the spinoff?
+---------
+
+# Disney Officially Confirms A 3-Part X-Men Comeback Ahead Of Avengers: Doomsday
+
+Streaming TV, Masked Recs
+
+Wed, 24 Jun 2026 21:45:20 GMT
+
+https://screenrant.com/x-men-97-season-2-disney-plus-three-part-premiere-july-2026/
+
+While Disney continues to prepare for the release of Avengers: Doomsday, it has now confirmed the return of the X-Men in a three-part release.
+---------
+
+# 10 Sci-Fi Books With Flawless Worldbuilding
+
+Books
+
+Wed, 24 Jun 2026 21:30:21 GMT
+
+https://screenrant.com/sci-fi-books-flawless-worldbuilding/
+
+From galaxy-spanning empires in Foundation to the deserts of Dune, these science fiction novels have some of the most flawless worldbuilding.
+---------
+
+# 14 Years Later, DC Is Remaking Christopher Nolan's The Dark Knight Rises
+
+Movies, Masked Recs
+
+Wed, 24 Jun 2026 21:15:21 GMT
+
+https://screenrant.com/batman-knightfall-adaptation-remaking-the-dark-knight-rises/
+
+The newest Batman movie, releasing this year, is a remake of Christopher Nolan's The Dark Knight Rises, but with an exciting and promising twist.
+---------
+
+# Paramount’s 99-Minute Superhero Reboot With a 95% RT Is Officially a Free Streaming Hit
+
+Movies, Teenage Mutant Ninja Turtles: Mutant Mayhem, superheroes, Teenage Mutant Ninja Turtles
+
+Wed, 24 Jun 2026 22:35:23 GMT
+
+https://www.cbr.com/tmnt-mutant-mayhem-superhero-success-pluto-tv-june-2026/
+
+Parmaount's hit supehero reboot is now streaming free and well worth it.
+---------
+
+# 10 Unanswered Questions Fans Still Debate About Attack on Titan
+
+Anime, Attack On Titan, shonen anime, Shonen
+
+Wed, 24 Jun 2026 22:15:13 GMT
+
+https://www.cbr.com/attack-on-titan-unanswered-questions-fans-debate/
+
+Attack on Titan's mysterious history and controversial ending left more questions than answers, and fans are still debating them to this day.
+---------
+
+# It's Official: Sakamoto Days Isn't Going Anywhere as Netflix Reveals Season 2
+
+Anime, Sakamoto Days, Netflix
+
+Wed, 24 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/netflix-sakamoto-days-season-2-official-trailer/
+
+Amidst rumors that the Sakamoto Days manga is on its way out, Netflix finally unveils new scenes from Season 2 of the hit anime adaptation.
+---------
+
+# Netflix Is Officially Rebooting Mobile Suit Gundam
+
+Movies, Mobile Suit Gundam, Netflix, mecha
+
+Wed, 24 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/netflix-mobile-suit-gundam-reboot-confirmed/
+
+Gundam is the next anime to get the live-action Netflix remake treatment, which makes sense given its pedigree as the greatest mecha franchise.
+---------
+
+# Marvel Confirms Loki Can Lift Thor's Hammer — But Only Under One Condition
+
+Comics, What If...?, Thor, Venom
+
+Wed, 24 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/what-if-thor-1-loki-can-lift-thors-hammer-confirmed/
+
+Marvel just confirmed what it takes for Loki to be worthy to wield all the power of the Mighty Thor, and it adds a whole new layer to his character.
+---------
+
+# Rick and Morty's X-Files-Like Spinoff Officially Sets Premiere Date
+
+TV, Rick and Morty, President Curtis
+
+Wed, 24 Jun 2026 21:59:39 GMT
+
+https://www.cbr.com/rick-and-morty-president-curtis-release-date-trailer/
+
+The Rick and Morty spinoff finally sets an official premiere date.
+---------
+
+# 5 Grittiest R-Rated Movies of All Time, Ranked
+
+Movies, Thriller
+
+Wed, 24 Jun 2026 21:30:13 GMT
+
+https://www.cbr.com/grittiest-r-rated-movies-list/
+
+Hollywood has made a point of making some of its best films gritty experiences, delving into dark and lurid subject matter to keep audiences hooked.
+---------
+
+# 5 Masterpiece 2020s Games That Everyone Already Forgot About
+
+Games, Video Games, Marvel's Guardians of the Galaxy
+
+Wed, 24 Jun 2026 21:15:13 GMT
+
+https://www.cbr.com/masterpiece-forgotten-2020s-games/
+
+The 2020s are only a little over half-way over, but masterpiece games from the decade are already being forgotten.
+---------
+
+# 4 Years Later, Liam Neeson's 108-Minute Spy Movie Surges on Streaming
+
+Movie, Liam Neeson, Mark Williams, Blacklight, Prime Video
+
+Wed, 24 Jun 2026 22:21:13 GMT
+
+https://collider.com/blacklight-liam-neeson-spy-thriller-streaming/
+
+Critics hated Mark Williams' 'Blacklight' starring Liam Neeson, but now it's dominating Netflix, Prime Video, and Tubi.
+---------
+
+# 8 Forgotten Romance Shows That Are Perfect From Start to Finish
+
+TV, Romance, Normal People, His Dark Materials, A Discovery of Witches
+
+Wed, 24 Jun 2026 22:03:15 GMT
+
+https://collider.com/forgotten-romance-shows-perfect-start-to-finish/
+
+From the romantic miniseries Normal People to the underrated fantasy A Discovery of Witches, these forgotten romance shows are practically flawless.
+---------
+
+# Pierce Brosnan's Forgotten 119-Minute Fantasy Movie Finds New Life on Streaming
+
+Movie Features, Percy Jackson & The Olympians: The Lightning Thief, Logan Lerman, Alexandra Daddario, Pierce Brosnan
+
+Wed, 24 Jun 2026 21:51:13 GMT
+
+https://collider.com/percy-jackson-and-the-olympians-lightning-thief-netflix/
+
+Percy Jackson & the Olympians: The Lightning Thief is a time capsule of the 2010s and is making waves again on streaming.
+---------
+
+# ‘Heated Rivalry’ Officially Returns With New Ilya and Shane Release
+
+TV News, Heated Rivalry, Romance, Funko Pop, HBO
+
+Wed, 24 Jun 2026 21:39:19 GMT
+
+https://collider.com/heated-rivalry-funko-pop-ilya-shane-pre-order/
+
+Funko’s first Heated Rivalry Pop! figures are available for pre-order now, featuring Ilya Rozanov, Shane Hollander, and a special 2-pack.
+---------
+
+# 6 Worst Family Movies of the 2000s That Are Truly 0/10
+
+Movie, Superbabies: Baby Geniuses 2, The Cat in the Hat, The Master of Disguise, Son of the Mask
+
+Wed, 24 Jun 2026 21:29:14 GMT
+
+https://collider.com/worst-family-movies-2000s/
+
+The Cat in the Hat, The Master of Disguise, and Son of the Mask are all among the absolute worst family and kids movies of the 2000s decade.
+---------
+
+# NBC's Underrated 'True Blood' Replacement Deserves a Revival
+
+TV Features, True Blood, NBC, Prime Video, Midnight, Texas
+
+Wed, 24 Jun 2026 21:24:14 GMT
+
+https://collider.com/nbc-midnight-texas-true-blood-replacement/
+
+NBC's Midnight, Texas, a supernatural drama based on Charlaine Harris' books, deserves a second chance despite mixed reviews and early cancellation.
+---------
+
+# ‘Secret Level’ Officially Returns With Bigger Games on Prime Video
+
+Exclusives, Secret Level, Prime Video, Dave Wilson, Tim Miller
+
+Wed, 24 Jun 2026 21:16:09 GMT
+
+https://collider.com/secret-level-season-2-update-bigger-video-games-director-dave-wilson/
+
+Dave Wilson teased that Prime Video's Secret Level will be tackling even bigger games when Season 2 of the animated anthology returns.
+---------
+
+# 10 Greatest '90s One-Hit Wonders
+
+Music Features, Pop, Rock, Music, 1990s
+
+Wed, 24 Jun 2026 21:10:15 GMT
+
+https://collider.com/best-one-hit-wonders-90s/
+
+From "Baby Got Back" by Sir Mix-a-Lot to "Ice Ice Baby" by Vanilla Ice, the '90s were peak one-hit wonder territory.
+---------
+
+# Taika Waititi's Supernatural Werewolf Sequel Officially Moving Forward After 11 Years
+
+Movie News, What We Do in the Shadows, Taika Waititi, Jemaine Clement
+
+Wed, 24 Jun 2026 22:05:11 GMT
+
+https://movieweb.com/what-we-do-in-the-shadows-sequel-confirmed-taika-waititi/
+
+The 'What We Do in the Shadows' sequel 'We're Wolves' is finally becoming a reality.
+---------
+
+# Netflix Finds New Cyberpunk Action Hit with 'Star Wars' Director's 2023 Flop
+
+Movie News, The Creator, Netflix, Hot on Streaming, Sci-Fi, Action
+
+Wed, 24 Jun 2026 21:30:20 GMT
+
+https://movieweb.com/the-creator-scifi-streaming-success-netflix-june-2026/
+
+'Rogue One: A Star Wars Story's sci-fi cyberpunk action flop 'The Creator' is a global streaming success on Netflix.
+---------
+
+# Marvel Studios Renames 'Avengers: Endgame' Ahead of Re-Release
+
+Movie News, Avengers: Endgame
+
+Wed, 24 Jun 2026 21:09:33 GMT
+
+https://movieweb.com/avengers-endgame-rerelease-title-details/
+
+Marvel Studios will re-release 'Avengers: Endgame' with an exciting new title when it comes back to theaters later this year.
+---------
+
+# Forget 'Marshals': Taylor Sheridan's Best Action Western Confirms It Will Run for Years
+
+Features, Dutton Ranch, Comparison Recommendation, Taylor Sheridan, Marshals
+
+Wed, 24 Jun 2026 21:08:40 GMT
+
+https://movieweb.com/taylor-sheridan-dutton-ranch-run-for-years/
+
+'Marshals' may be popular, but Taylor Sheridan has another popular action Western series that is even more promising.
+---------
+
 # Pokémon Winds & Waves Starter Ponbon's Final Evolution Unites Gamers
 
 Gaming, Pokemon Winds and Waves
