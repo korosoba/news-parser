@@ -1,3 +1,388 @@
+# House Of the Dragon's Night King Easter Egg Could Solve 8-Year-Old GOT Mystery
+
+Streaming TV, House of the Dragon, House of the Dragon - Season 3, Game of Thrones
+
+Wed, 24 Jun 2026 19:01:20 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-green-men-addam-hull-mystery/
+
+House of the Dragon just gave us a peek at a niche Fire & Blood detail, suggesting that the answers to an almost decade-long mystery are on the way.
+---------
+
+# 007 First Light Free Download Officially Announced, But You Need To Be Fast
+
+Gaming, 007 First Light, James Bond
+
+Wed, 24 Jun 2026 19:01:20 GMT
+
+https://screenrant.com/007-first-light-free-download-twitch-drop-june-2026/
+
+There's no time to die if you want to get your hands on this free download for 007 First Light.
+---------
+
+# Shrek 5’s Visual Backlash Exposes A Bigger Franchise Problem
+
+Movies, Originals
+
+Wed, 24 Jun 2026 19:01:20 GMT
+
+https://screenrant.com/video/shrek-5-s-visual-backlash-exposes-a-bigger-franchise-problem/
+
+Shrek 5’s controversial visual redesign has sparked fan backlash, revealing deeper concerns about franchise fatigue, animation style changes, nostalgia, and the future of DreamWorks’ beloved Shrek series.
+---------
+
+# Supernatural's Return Is Officially Late
+
+Classic TV, Supernatural
+
+Wed, 24 Jun 2026 18:30:20 GMT
+
+https://screenrant.com/supernatural-return-late-delay-jared-padalecki/
+
+The potential Supernatural return is highly anticipated, but in order to do a rebooted show justice, the original cast must reprise their roles.
+---------
+
+# The Wait Is Over, Mega Man's Next Major Release Launches This September
+
+Comics, Mega Man
+
+Wed, 24 Jun 2026 18:09:32 GMT
+
+https://screenrant.com/mega-man-gear-masters-release-date/
+
+The dark days are over for Mega Man as a new comic series is launching this September, and it could be big!
+---------
+
+# Superman: The Animated Series Returns With Its First New Release in 26 Years
+
+DC Comics, Superman
+
+Wed, 24 Jun 2026 18:07:09 GMT
+
+https://screenrant.com/superman-the-animated-series-return/
+
+After 26 years, Superman: The Animated Series has returned in an unexpected way. This time, however, it's a new Superman stepping into the spotlight.
+---------
+
+# HBO's $34 Billion Franchise Show Is Only 6 Months Away
+
+TV, Masked Recs
+
+Wed, 24 Jun 2026 18:00:20 GMT
+
+https://screenrant.com/harry-potter-franchise-first-tv-show-6-months-away/
+
+In only six months, HBO's entire identity as a brand will be altered by the return of one of the fantasy genre's most famous and lucrative franchises.
+---------
+
+# Canceled Live-Action Bat-Family Series Images Show The DCU's Best Batman Future
+
+TV, Masked Recs
+
+Wed, 24 Jun 2026 17:57:29 GMT
+
+https://screenrant.com/wayne-family-adventures-batman-tv-show-images-dc-universe/
+
+Ahead of James Gunn's Batman casting, images from the cancelled live-action Bat-Family series have been released, and they show the DCU's best future.
+---------
+
+# NBC's Iconic Canceled 4-Part Sci-Fi Series Officially Releases On Netflix Next Week
+
+TV, Masked Recs
+
+Wed, 24 Jun 2026 17:55:35 GMT
+
+https://screenrant.com/heroes-tv-series-netflix-streaming-release-date/
+
+An iconic sci-fi show is coming to Netflix in just a week, allowing subscribers to revisit a broadcast breakout that captivated audiences.
+---------
+
+# Toy Story 5 Officially Hits Major Box Office Milestone & Shatters New Record After Just 5 Days
+
+Movies, Toy Story 5, Toy Story
+
+Wed, 24 Jun 2026 17:53:26 GMT
+
+https://screenrant.com/toy-story-5-domestic-box-office-200-million-2026-record/
+
+Despite being around for more than three decades, the Toy Story franchise is still breaking records at the box office, which Toy Story 5 just did.
+---------
+
+# Forget The Boroughs, Netflix Is Officially No Longer the King of Cancellations
+
+TV, Netflix, The Boroughs, Streaming
+
+Wed, 24 Jun 2026 19:00:13 GMT
+
+https://www.cbr.com/netflix-cancellation-reality-the-boroughs/
+
+The Boroughs' cancellation reignited fan frustration, but the data suggests Netflix actually isn't the problem.
+---------
+
+# 5 Forgotten Guy Ritchie Action Movies That Are Perfect From Start to Finish
+
+Movies, Action
+
+Wed, 24 Jun 2026 19:00:13 GMT
+
+https://www.cbr.com/guy-ritchie-action-movies-no-one-remembers-list/
+
+Lock, Stock and Two Smoking Barrels and Snatch are amazing films, but these neglected Guy Ritchie action movies are just as exceptional.
+---------
+
+# Netflix's The Big Bang Theory Replacement Show Finally Sets Season 2 Release Date
+
+TV, Leanne
+
+Wed, 24 Jun 2026 18:40:46 GMT
+
+https://www.cbr.com/leanne-morgan-comedy-netflix-season-2-release-date/
+
+Chuck Lorre's hit Netflix comedy finally sets a return date.
+---------
+
+# Say Goodbye to Netflix & Hulu Prices as Major Streamers Become Free (With a Catch)
+
+TV, Netflix, Hulu
+
+Wed, 24 Jun 2026 18:33:57 GMT
+
+https://www.cbr.com/netflix-hulu-free-t-mobile-plans/
+
+Netflix keeps raising prices, but there might be a new workaround.
+---------
+
+# 25 Best Yandere Characters In Anime, Ranked
+
+Anime
+
+Wed, 24 Jun 2026 18:30:13 GMT
+
+https://www.cbr.com/best-anime-yandere-characters/
+
+Yanderes won't be much fun to date in real life. In anime, however, they become some of the most beloved fan-favorite characters.
+---------
+
+# Only 1 Shonen Anime Is Actually Better Than JJK
+
+Anime, Jujutsu Kaisen, Noragami, shonen anime, Shonen
+
+Wed, 24 Jun 2026 18:15:12 GMT
+
+https://www.cbr.com/shonen-anime-norigami-better-than-jjk/
+
+Jujutsu Kaisen, the popular dark fantasy shonen anime, might have to accept defeat in front of a decade-old anime.
+---------
+
+# Solo Leveling Is Officially Returning With a New Series in 2026
+
+Anime, Solo Leveling, Solo Leveling:ARISE
+
+Wed, 24 Jun 2026 18:00:13 GMT
+
+https://www.cbr.com/solo-leveling-karma-manhwa-chapter-release/
+
+Solo Leveling just dropped a new manhwa chapter for a sequel series seperate from Ragnarok to hold fans over until Season 3 of the anime in 2028.
+---------
+
+# 10 Best Daredevil Comics That Perfected Marvel's Man Without Fear
+
+Comics, Daredevil
+
+Wed, 24 Jun 2026 18:00:13 GMT
+
+https://www.cbr.com/top-daredevil-comics-that-perfected-the-character/
+
+Daredevil is such an iconic character in Marvel history and these comics helped to shape his portrayal.
+---------
+
+# 5 Greatest PS3 Games Ever Made
+
+Games, The Last of Us, Dark Souls, Batman
+
+Wed, 24 Jun 2026 17:30:14 GMT
+
+https://www.cbr.com/official-greatest-ps3-games-ever-made/
+
+The PS3 got off to a rough start in the 2000s, but it eventually became a worthy successor to the PlayStation 2, with a number of near-perfect games.
+---------
+
+# 5 Reasons Tombstone Is Still the Best Western of the Last 50 Years
+
+Movies, Western, Tombstone, kurt russell
+
+Wed, 24 Jun 2026 17:30:14 GMT
+
+https://www.cbr.com/tombstone-best-western-movie-last-50-years-list/
+
+In 1993, Kurt Russell and Val Kilmer gave audiences the greatest Western of the last 50 years, and it hasn’t been topped since for these key reasons.
+---------
+
+# ‘Final Fantasy 7’ Remake Officially Confirms Major Spin-Off Crossover
+
+Gaming News, Final Fantasy, Final Fantasy VII Remake, Final Fantasy VII: Advent Children, Video Game
+
+Wed, 24 Jun 2026 18:58:12 GMT
+
+https://collider.com/final-fantasy-7-remake-revelation-spin-off-characters/
+
+New Final Fantasy 7 remake Revelation will include characters from spin-offs such as Advent Children, Dirge of Cerberus, and Crisis Core.
+---------
+
+# Original 'Prison Break' Stars Officially Confirmed for Return in Hulu's Reboot
+
+TV News, Hulu, Robert Knepper, Prison Break, Wentworth Miller
+
+Wed, 24 Jun 2026 18:58:11 GMT
+
+https://collider.com/hulu-prison-break-reboot-returning-characters-lukas-gage/
+
+Hulu's Prison Break reboot aims to recapture the magic of Season 1 with a darker, grittier tone, new characters, and room for fan favorite returns.
+---------
+
+# New ‘God of War’ Release Is Set To Change the Norse Saga Forever
+
+Gaming News, God of War, Deborah Ann Woll, Video Game
+
+Wed, 24 Jun 2026 18:47:08 GMT
+
+https://collider.com/god-of-war-laufey-update-deborah-ann-woll/
+
+Deborah Ann Woll reveals God of War: Laufey has been in development for nearly 10 years and offers a perfect update on the story.
+---------
+
+# New 'Rick and Morty' Spin-Off Goes Full Sci-Fi in Impressive Trailer
+
+TV News, Rick and Morty, President Curtis, Sci-Fi, Keith David
+
+Wed, 24 Jun 2026 18:35:49 GMT
+
+https://collider.com/rick-and-morty-spin-off-president-curtis-trailer/
+
+As the Rick and Morty movie moves forward, the franchise's new sci-fi spin-off just got an impressive new trailer!
+---------
+
+# After Cancelling 'Stargate', Prime Video Moves On With Major '80s Sci-Fi Reboot
+
+TV News, Stargate, Prime Video, Robocop, Stargate SG-1
+
+Wed, 24 Jun 2026 18:00:20 GMT
+
+https://collider.com/prime-video-robocop-reboot-series-plot-details/
+
+The first plot details and filming date for Prime Video's RoboCop reboot have reportedly surfaced online. Read on for more.
+---------
+
+# ‘Daredevil: Born Again’ Season 3 Officially Reveals the Return of Matt's Best Girlfriend
+
+TV News, Daredevil: Born Again, Elodie Yung, Charlie Cox, Daredevil
+
+Wed, 24 Jun 2026 17:45:13 GMT
+
+https://collider.com/daredevil-born-again-season-3-set-images-confirm-elektra-elodie-yung/
+
+New set images of Daredevil: Born Again Season 3 have surfaced online, confirming the return of yet another beloved Netflix star.
+---------
+
+# 10 Best Drama Movies Based on Books
+
+Movie, Atonement, Drama, The Shawshank Redemption, Books
+
+Wed, 24 Jun 2026 17:41:14 GMT
+
+https://collider.com/best-drama-movies-based-on-books-ranked/
+
+The Shawshank Redemption, Atonement, and To Kill a Mockingbird are all among the very best drama movies based on books.
+---------
+
+# Bosch Officially Returns With New Thriller This Fall
+
+TV News, Bosch, Bosch: Legacy, Titus Welliver
+
+Wed, 24 Jun 2026 17:30:14 GMT
+
+https://collider.com/harry-bosch-the-hollow-michael-connelly-book-release-date/
+
+Titus Welliver has been sharing the news of the upcoming Harry Bosch thriller, due to release in October.
+---------
+
+# 'Daredevil: Born Again' Season 3 Images Confirm Return of Dead Netflix Character
+
+TV News, Daredevil: Born Again, Elodie Yung
+
+Wed, 24 Jun 2026 19:02:55 GMT
+
+https://movieweb.com/daredevil-born-again-season-3-elodie-yung-elektra-return/
+
+New images from the set of 'Daredevil: Born Again' Season 3 confirmed a comeback for a famously dead character from Netflix's Defenders Saga.
+---------
+
+# Jason Bourne Heading For Major Recast With One Of The Biggest Stars Under 30
+
+Movie News, Bourne, Matt Damon, Zendaya Coleman
+
+Wed, 24 Jun 2026 18:20:22 GMT
+
+https://movieweb.com/matt-damons-jason-bourne-may-be-recast/
+
+Universal may be taking a bold and exciting new direction in the action franchise.
+---------
+
+# 5 Years Later, Sci-Fi Epic Masterpiece Officially 2026’s Most Popular Release
+
+Movie News, Project Hail Mary
+
+Wed, 24 Jun 2026 18:17:17 GMT
+
+https://movieweb.com/andy-weir-project-hail-mary-most-read-novel-2026/
+
+This modern sci-fi epic is this 2026's most-read novel, thanks to one of this year's box office sleeper hits.
+---------
+
+# 3 Superhero Trilogies That Are Better Than Christopher Nolan's 'Batman'
+
+Movie Lists, The Dark Knight, Christopher Nolan, Spider-Man, Guardians of the Galaxy
+
+Wed, 24 Jun 2026 18:00:19 GMT
+
+https://movieweb.com/superhero-trilogies-better-than-dark-knight/
+
+Christopher Nolan's 'The Dark Knight' trilogy is incredible, but these superhero trilogies are impressive, too.
+---------
+
+# Gerard Butler's 98-Minute Sci-Fi Action Thriller Is a Streaming Smash Hit
+
+Movie News, Gerard Butler, Greenland 2: Migration, Action, Sci-Fi, Prime Video
+
+Wed, 24 Jun 2026 18:00:19 GMT
+
+https://movieweb.com/gerard-butler-greenland-2-stream-prime-video-june-2026/
+
+The 2026 film flopped at the box office, but it's finding second life with howe viewers.
+---------
+
+# 'Rick and Morty's 'President Curtis' Spin-Off Confirms Release Date With New Trailer
+
+TV News
+
+Wed, 24 Jun 2026 17:57:48 GMT
+
+https://movieweb.com/president-curtis-release-date-trailer/
+
+The release date for the new 'Rick and Morty' spin-off series is just around the corner, with the new trailer giving the best look yet.
+---------
+
+# Nicole Kidman Returns in New Trailer for Magical Fantasy Sequel 30 Years in the Making
+
+Movie News, Practical Magic 2, Nicole Kidman, Sandra Bullock
+
+Wed, 24 Jun 2026 17:38:14 GMT
+
+https://movieweb.com/practical-magic-2-trailer-nicole-kidman-sandra-bullock/
+
+Kidman reunites with Sandra Bullock for the highly anticipated 'Practical Magic 2.'
+---------
+
 # The Elder Scrolls 6 First Official Teaser In Years Leaves Gamers Optimistic
 
 Gaming, The Elder Scrolls 6
