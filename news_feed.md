@@ -1,3 +1,377 @@
+# DC Officially Reveals Hal Jordan Is Dead In New Shared Universe Ahead Of HBO's Lanterns
+
+Streaming TV, Masked Recs
+
+Thu, 25 Jun 2026 18:29:13 GMT
+
+https://screenrant.com/dc-green-lantern-hal-jordan-death-confirmed-before-hbo-lanterns-series/
+
+HBO's Lanterns will debut Kyle Chandler's Hal Jordan, but before it arrives, DC has officially revealed that the hero is dead in a shared universe.
+---------
+
+# Donkey’s Shrek Spinoff Release Date & Timeline Placement Officially Revealed
+
+Movies, Donkey, Shrek
+
+Thu, 25 Jun 2026 18:13:22 GMT
+
+https://screenrant.com/donkey-shrek-spinoff-movie-release-date-timeline-details/
+
+Universal and DreamWorks' Donkey-focused spinoff of the Shrek franchise officially sets a release date and reveals its timeline placement.
+---------
+
+# Jackass: Best & Last Review - A Sweet, Slight Farewell For Cinema's Most Prolific Pranksters
+
+New Movies, Jackass: Best and Last, Jackass
+
+Thu, 25 Jun 2026 18:04:44 GMT
+
+https://screenrant.com/jackass-best-and-last-movie-2026-review/
+
+While more emotional exploration could have elevated this nostalgic compilation, some classic bits and new gags give the Jackass crew a good sendoff.
+---------
+
+# Paramount+ Betrays Its Original Criminal Minds Promise After 4 Years
+
+Network TV, Criminal Minds
+
+Thu, 25 Jun 2026 18:01:19 GMT
+
+https://screenrant.com/paramount-betrays-original-criminal-minds-evotution-promise-after-4-years/
+
+After 4 seasons, Criminal Minds: Evolution struggles to balance its original format with serialized storytelling, leaving fans disappointed overall.
+---------
+
+# Avatar: The Last Airbender's Metalbending Reveal Is So Much Bigger Than You Think
+
+Streaming TV, Avatar: The Last Airbender
+
+Thu, 25 Jun 2026 18:01:19 GMT
+
+https://screenrant.com/avatar-the-last-airbender-season-2-toph-live-action-metalbending-powers/
+
+Netflix's Avatar: The Last Airbender introduces Toph's metalbending, and it could have a major impact on the franchise's live-action future.
+---------
+
+# Expert Reveals Surprising Connection Between Game of Thrones' Arya Stark & The Lord of the Rings' Éowyn Most Fans Never Noticed
+
+Streaming TV, Game Of Thrones, The Lord of the Rings, Game of Thrones
+
+Thu, 25 Jun 2026 18:01:19 GMT
+
+https://screenrant.com/game-of-thrones-arya-stark-lord-of-the-rings-eowyn-connection-explained-expert-take/
+
+Exclusive: Game of Thrones expert reveals some of the surprising comparisons between Arya Stark of Game of Thrones and Éowyn of The Lord of the Rings.
+---------
+
+# The Expert Take on the Medieval Rules of House of the Dragon
+
+TV, House of the Dragon, Game of Thrones, A Knight Of The Seven Kingdoms, Originals
+
+Thu, 25 Jun 2026 17:57:47 GMT
+
+https://screenrant.com/video/the-expert-take-on-the-medieval-rules-of-house-of-the-dragon/
+
+What Game of Thrones Gets Right About Medieval History: Oxford University medieval studies expert Carolyne Larrington explores the real-world ideas behind Westeros' most unforgettable moments.From the Red Wedding's violation of sacred guest rights to the political importance of bloodlines in House of the Dragon, Professor Larrington reveals how medieval beliefs helped shape George R.R. Martin's world. She also examines Arya Stark's victory over the Night King and the historical origins of trial by combat seen in A Knight of the Seven Kingdoms.If you've ever wondered about the medieval history behind Game of Thrones, House of the Dragon dragon riders, or the meaning of Westerosi succession, this breakdown delivers fresh insight.
+---------
+
+# Hulu’s Gritty New 8-Part Serial Killer Thriller Revealed In Furious Trailer & Premiere Date
+
+TV, Furious, Emmy Rossum
+
+Thu, 25 Jun 2026 17:55:24 GMT
+
+https://screenrant.com/furious-hulu-series-trailer-premiere-date-emmy-rossum/
+
+This summer, Hulu will debut a gritty new serial killer thriller starring Emmy Rossum, and the official trailer has just been released.
+---------
+
+# The Rookie: John Nolan's Love Interests Ranked
+
+Network TV, The Rookie
+
+Thu, 25 Jun 2026 17:45:02 GMT
+
+https://screenrant.com/rookie-john-nolan-romantic-relationships-ranked/
+
+John Nolan has had several romances over the course of The Rookie, with some being much more beloved than others. How do they all stack up?
+---------
+
+# NCIS Season 23 Officially Ended an Era 20 Years After Ziva's Debut
+
+TV, NCIS
+
+Thu, 25 Jun 2026 18:20:14 GMT
+
+https://www.cbr.com/ncis-season-23-premiere-comeback/
+
+NCIS ended an era 20 years after Ziva David's memorable debut and ushered in a new one with Alden Parker's story in Season 23.
+---------
+
+# Gerard Butler’s “Unpredictable” Thriller Based on 24-Year-Old Book Is Streaming Now on Netflix
+
+Movies, In the Hand of Dante
+
+Thu, 25 Jun 2026 18:18:45 GMT
+
+https://www.cbr.com/in-the-hand-of-dante-streaming-netflix/
+
+The star-studded film also features names like Oscar Isaac, Gal Gadot, Jason Momoa, and Al Pacino.
+---------
+
+# Avatar Season 2: Behind Netflix's Biggest Changes
+
+TV, Avatar: The Last Airbender
+
+Thu, 25 Jun 2026 18:16:15 GMT
+
+https://www.cbr.com/video/avatar-season-2-behind-netflix-s-biggest-changes/
+
+Avatar: The Last Airbender Season 2 executive producers Jabbar Raisani and Christine Boylan explain why the Netflix live-action series continues to resonate with audiences today.
+---------
+
+# 10 Strongest Mecha in Anime, Ranked
+
+Anime, mecha, Neon Genesis Evangelion, Mobile Suit Gundam
+
+Thu, 25 Jun 2026 18:16:15 GMT
+
+https://www.cbr.com/official-strongest-mecha-in-anime-ranked/
+
+The most powerful mecha in anime history, coming from anime like Gundam and Gurren Lagann, are strong enough to face any overpowered shonen hero.
+---------
+
+# Netflix Avatar: The Last Airbender Stars Discuss the Purpose of the Live-Action Adaptation
+
+CBR Exclusives, Avatar: The Last Airbender
+
+Thu, 25 Jun 2026 18:04:22 GMT
+
+https://www.cbr.com/netflix-avatar-cast-live-action-remake-goal-explained/
+
+In an exclusive interview, the cast of Netflix's Avatar: The Last Airbender delves into the show's core messages.
+---------
+
+# Interview With the Vampire's 6-Part Canceled Spinoff Keeps Climbing the AMC+ Charts 7 Months Later
+
+TV, Talamasca: The Secret Order
+
+Thu, 25 Jun 2026 18:00:13 GMT
+
+https://www.cbr.com/talamasca-the-secret-order-streaming-june-2026/
+
+The canceled spinoff series is still finding new audiences after being shelved by AMC.
+---------
+
+# Marvel Confirms Captain America's New Powers Before MCU Comeback
+
+Comics, Marvel, Marvel Comics, MCU, Captain America, Captain America: The First Avenger, Avengers: Doomsday, Avengers: Doomsday (2026), Avengers: Secret Wars
+
+Thu, 25 Jun 2026 18:00:13 GMT
+
+https://www.cbr.com/marvel-confirms-captain-america-new-powers-before-mcu-return/
+
+There's no way Marvel would ever give Captain America this kind of power, right?
+---------
+
+# One Piece Drops from #1 as Jujutsu Kaisen Tops Latest U.S. Sales Rankings
+
+Anime, One Piece, Jujutsu Kaisen, Shonen Jump
+
+Thu, 25 Jun 2026 18:00:13 GMT
+
+https://www.cbr.com/jujutsu-kaisen-one-piece-nyt-bestseller-rankings/
+
+Jujutsu Kaisen secured multiple spots in the latest manga sales rankings while One Piece missed out completely.
+---------
+
+# The Office Spinoff Officially Returns With New Episodes This September
+
+TV, The Paper, The Office
+
+Thu, 25 Jun 2026 17:52:18 GMT
+
+https://www.cbr.com/the-paper-season-2-release-date-peacock/
+
+The Office spinoff's new season finally sets a streaming premiere date on Peacock.
+---------
+
+# Samara Weaving's $42M Sequel Officially Sets Disney+ and Hulu Streaming Release Date
+
+Movies, Ready or Not 2: Here I Come, Hulu
+
+Thu, 25 Jun 2026 17:49:40 GMT
+
+https://www.cbr.com/ready-or-not-2-hulu-streaming-release-date/
+
+The long-awaited horror sequel is finally heading to streaming.
+---------
+
+# ‘Ghosts’ Officially Makes a Major Change for Season 6
+
+TV News, Ghosts, CBS, Sitcom, Ben Feldman
+
+Thu, 25 Jun 2026 18:28:13 GMT
+
+https://collider.com/ghosts-season-6-kyle-ben-feldman-series-regular/
+
+Ghosts Season 6 has promoted Ben Feldman to series regular, with the Superstore star returning as Kyle on the hit CBS sitcom.
+---------
+
+# The Shrek Universe Officially Expands With Its Most-Requested Spin-Off
+
+Movie News, Shrek 5, Eddie Murphy, DreamWorks, Fantasy
+
+Thu, 25 Jun 2026 18:24:39 GMT
+
+https://collider.com/shrek-donkey-spin-off-eddie-murphy-returning-release-date-june-30-2028/
+
+At long last, Eddie Murphy's long-requested Donkey spin-off is finally happening, even as Shrek 5 sparks fan backlash.
+---------
+
+# Taylor Sheridan’s Paramount+ Crime Thriller Gets Major Season 5 Update
+
+TV News, Mayor of Kingstown, Taylor Sheridan, Jeremy Renner, Paramount Plus
+
+Thu, 25 Jun 2026 18:20:14 GMT
+
+https://collider.com/taylor-sheridan-mayor-of-kingstown-season-5-update-jeremy-renner/
+
+Jeremy Renner provides a massive update on the fifth and final season of Taylor Sheridan's crime series, Mayor of Kingstown.
+---------
+
+# Avatar Season 2: The Trick Behind Azula’s Kyoshi Disguise | Set Stories
+
+TV, Avatar: The Last Airbender
+
+Thu, 25 Jun 2026 18:15:32 GMT
+
+https://collider.com/video/avatar-season-2-the-trick-behind-azula-s-kyoshi-disguise-set-stories/
+
+Elizabeth Yu takes Collider behind the scenes of Netflix's Avatar: The Last Airbender Season 2, revealing how she built Azula into one of the series' most layered characters.
+---------
+
+# ‘Avengers: Endgame’ Returns to Theaters in 3 Months With Unseen Footage
+
+Movie News, Avengers: Endgame, Avengers: Doomsday, Disney, MCU
+
+Thu, 25 Jun 2026 18:00:13 GMT
+
+https://collider.com/avengers-endgame-theatrical-rerelease-september-2026-avengers-doomsday/
+
+Avengers: Endgame returns soon to theaters with exclusive treats ahead of the highly anticipated release of Avengers: Doomsday this December.
+---------
+
+# ‘The Office’ Universe Expands Again on Peacock This September
+
+TV News, The Paper, The Office, Peacock, Domhnall Gleeson
+
+Thu, 25 Jun 2026 17:58:24 GMT
+
+https://collider.com/the-office-spin-off-the-paper-season-2-release-date-first-look-peacock/
+
+The Paper Season 2 sets release date on Peacock, with first-look images teasing the return of Greg Daniels and Michael Koman’s The Office spin-off.
+---------
+
+# DC Is Officially Taking Over TV in a Way Marvel Never Has
+
+TV News, DC Comics, Animation, Batman: Caped Crusader, My Adventures With Superman
+
+Thu, 25 Jun 2026 17:46:43 GMT
+
+https://collider.com/dc-superhero-tv-shows-10-animated-series/
+
+DC is setting up a superhero TV future that no other major comic book franchise is matching right now.
+---------
+
+# It's Taken Less Than a Week for 'Toy Story 5' to Hit This Box Office Milestone
+
+Movie News, Toy Story 5, Animation, Toy Story, Box Office
+
+Thu, 25 Jun 2026 17:40:49 GMT
+
+https://collider.com/toy-story-5-domestic-box-office-milestone-200-million/
+
+In just 1 week, Toy Story 5 has already passed another domestic box office milestone. Find out all the details here.
+---------
+
+# Netflix Officially Confirms Its Global Crime Hit Is Back in Production
+
+TV News, Dept. Q, Matthew Goode, Crime, Netflix
+
+Thu, 25 Jun 2026 17:40:20 GMT
+
+https://collider.com/dept-q-season-2-filming-production-update/
+
+Netflix announces Season 2 of the popular crime drama Dept. Q is now in production, with the cast returning to solve a new case in Scottish society.
+---------
+
+# PlayStation Plus Officially Drops Free 80-Hour Fantasy RPG at the Perfect Time
+
+Gaming News, PlayStation 5, PlayStation Plus, PlayStation Network, Gaming
+
+Thu, 25 Jun 2026 17:31:32 GMT
+
+https://collider.com/playstation-plus-fantasy-rpg-kingdom-come-deliverance-free-to-play/
+
+The best fantasy RPG of the decade is now available through PlayStation Plus, giving subscribers a huge open-world to dive into.
+---------
+
+# 10 Years Later, the 'Harry Potter' Franchise Finds New Home
+
+Movie News, Harry Potter, Fantastic Beasts and Where to Find Them
+
+Thu, 25 Jun 2026 18:21:07 GMT
+
+https://movieweb.com/harry-potter-franchise-new-home/
+
+Paramount has landed exclusive linear rights to the 'Harry Potter' and 'Fantastic Beasts' films, with marathons starting July 3.
+---------
+
+# Prime Video's Raunchy 8-Episode Smash Hit Continues To Impress on Streaming
+
+TV News, Off Campus, Hot on Streaming, Prime Video, Romance
+
+Thu, 25 Jun 2026 18:01:18 GMT
+
+https://movieweb.com/prime-video-off-campus-streaming-success-june-2026/
+
+Prime Video's newest hit series is officially one of the biggest shows ever on the Amazon-owned streaming platform.
+---------
+
+# 10 Funniest Far Side Comics That Reference Iconic Movies
+
+Movie Lists, The Far Side
+
+Thu, 25 Jun 2026 18:01:18 GMT
+
+https://movieweb.com/far-side-best-movie-references/
+
+Gary Larson created some of the funniest strips poking fun at famous movies; these are the best.
+---------
+
+# 'Reacher's Alan Ritchson Is Back in Action in New 'Motor City' Trailer
+
+Movie News, Alan Ritchson, Reacher, Motor City
+
+Thu, 25 Jun 2026 16:44:31 GMT
+
+https://movieweb.com/motor-city-alan-ritchson-trailer/
+
+Alan Ritchson, best known for his work on Prime Video's 'Reacher,' is back on the big screen in a new trailer for 'Motor City.'
+---------
+
+# 'Sense and Sensibility' Trailer Reveals Remake of the Iconic Masterpiece
+
+Movie News, Sense and Sensibility
+
+Thu, 25 Jun 2026 16:35:53 GMT
+
+https://movieweb.com/sense-and-sensibility-trailer/
+
+Daisy Edgar-Jones and Esmé Creed-Miles star in this new adaptation of Jane Austen's debut novel.
+---------
+
 # 8 Superhero Movie Sequels That Are Totally Different From The Original
 
 Movies, Superhero, Explainer
