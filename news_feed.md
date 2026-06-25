@@ -1,3 +1,289 @@
+# Netflix's 10/10 Action Series Gets 1/10 For Realism
+
+Streaming TV, Masked Recs
+
+Thu, 25 Jun 2026 23:30:20 GMT
+
+https://screenrant.com/the-night-agent-prime-video-action-series-unrealistic/
+
+Many of Netflix's best thrillers and dramas are applauded for their realism, but one of its most popular doesn't care for keeping things grounded.
+---------
+
+# X-Men '97 Season 3 Receives Exciting Release Update From Producer
+
+TV, X-Men '97, X-Men, Marvel Cinematic Universe
+
+Thu, 25 Jun 2026 23:05:58 GMT
+
+https://screenrant.com/xmen-97-season-3-release-marvel-studios-update/
+
+As season 2 is getting ready to premiere this summer on Disney+, Marvel Studios shares an exciting release date update for X-Men '97 season 3.
+---------
+
+# My Hero Academia: 30 Most Powerful Quirks
+
+TV, My Hero Academia
+
+Thu, 25 Jun 2026 23:00:23 GMT
+
+https://screenrant.com/my-hero-academia-powerful-quirks-ranked/
+
+From the ability to freeze enemies in place to the ability to steal quirks from others, here are some of the most powerful My Hero Academia quirks.
+---------
+
+# Star Wars' New Cast Officially Ends An Era Ahead Of The Franchise's 2027 Return
+
+Movies, Star Wars: Starfighter, Star Wars
+
+Thu, 25 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/star-wars-starfighter-ryan-gosling-end-of-an-era-franchise/
+
+Star Wars' next film, Starfighter, has a new cast of actors and characters that are going to end a franchise trend half a century after it began.
+---------
+
+# Red Dead Redemption 2 Next-Gen Upgrade Release Date Splits Gamers
+
+Gaming, Red Dead Redemption 2, Rockstar Games, PC
+
+Thu, 25 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/red-dead-redemption-2-next-gen-update-release-date-hopes/
+
+Fans are divided on the release date for Red Dead Redemption 2's next-gen update after new information has come to light, implying it may be far away.
+---------
+
+# Little Brother Review: John Cena & Eric André’s Netflix Comedy Overstays Its Welcome
+
+New Movies, Little Brother
+
+Thu, 25 Jun 2026 23:00:21 GMT
+
+https://screenrant.com/little-brother-movie-2026-review/
+
+Though it starts with a lot of comedic potential, the laughs peter out as Little Brother gets stuck in a narrative holding pattern.
+---------
+
+# Scott Eastwood's New World War II Thriller Lucky Strike Debuts To Disappointing Rotten Tomatoes Score
+
+Movies, Masked Recs
+
+Thu, 25 Jun 2026 22:41:09 GMT
+
+https://screenrant.com/scott-eastwood-lucky-strike-rotten-tomatoes-score-debut/
+
+Scott Eastwood's new World War II thriller, Lucky Strike, debuts to a disappointing Rotten Tomatoes score ahead of its release on June 26.
+---------
+
+# Netflix Confirms Next One Piece Spinoff Is Coming In 2 Weeks
+
+Anime, One Piece
+
+Thu, 25 Jun 2026 22:31:20 GMT
+
+https://screenrant.com/netflix-one-piece-heroines-streaming-release-date/
+
+With just over a week until its premiere in Japan, One Piece's new spin-off has finally landed a worldwide streaming home.
+---------
+
+# 25 Years Later, Buffy The Vampire Slayer's Worst Villain Has Aged Like Milk
+
+Classic TV, Buffy The Vampire Slayer
+
+Thu, 25 Jun 2026 22:31:20 GMT
+
+https://screenrant.com/buffy-the-vampire-slayer-worst-villain-aged-like-milk/
+
+Buffy's roster of villains and monsters are a foundation of the show's legacy, but one season 6 antagonist would be better off forgotten.
+---------
+
+# 8 Reasons Why The Supergirl Movie Reviews Are So Negative
+
+Movies, Supergirl, DC Universe
+
+Thu, 25 Jun 2026 22:19:46 GMT
+
+https://screenrant.com/supergirl-movie-2026-reviews-negative-explained/
+
+DC's new Supergirl movie sees Milly Alcock try her best, but there are many reasons why its reviews have earned it a negative Rotten Tomatoes score.
+---------
+
+# Most Ambitious Masterpiece Anime, Ranked
+
+Anime, Attack On Titan, Neon Genesis Evangelion, Serial Experiments Lain
+
+Thu, 25 Jun 2026 23:15:12 GMT
+
+https://www.cbr.com/ambitious-masterpiece-anime-ranked/
+
+These masterpieces aimed higher than their contemporaries and succeeded in spectacular fashion.
+---------
+
+# 5 Essential R-Rated 90s Thrillers That Are Still Perfect Today
+
+Movies, Thriller, Basic Instinct, Cape Fear, Misery, Se7en, The Silence of the Lambs
+
+Thu, 25 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/must-watch-r-rated-90s-thrillers-list/
+
+Some of the 1990s' most notable and memorable thrillers used their mature R-ratings to its fullest potential, and they're perfect because of it.
+---------
+
+# 10 DC Elseworlds Stories Fans Still Can't Stop Debating
+
+Comics, DC Comics, DC Elseworlds, Batman
+
+Thu, 25 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/elseworlds-stories-dc-fans-still-argue-about/
+
+DC has a rich history of telling some of its best stories outside of continuity, but some have left fans locked in debate even today.
+---------
+
+# Mega Man Sequel Confirmed With An All-New Story
+
+Comics, Mega Man, Mega Man 2, Mega Man 8
+
+Thu, 25 Jun 2026 22:53:47 GMT
+
+https://www.cbr.com/mega-man-sequel-all-new-story-confirmed/
+
+The Blue Bomber is back ... finally ... and with a never-before-seen story.
+---------
+
+# The Queen's Gambit Creator's Netflix Show Finally Gets Massive Season 2 Update
+
+TV, Dept. Q, Netflix, Thriller
+
+Thu, 25 Jun 2026 22:39:30 GMT
+
+https://www.cbr.com/dept-q-season-2-cast/
+
+Netflix has revealed the new cast of Season 2.
+---------
+
+# Wesley Snipes’ Forgotten 2007 Action Thriller Officially Gets a Second Chance on Netflix
+
+Movie News, The Contractor, Wesley Snipes, Netflix, Lena Headey
+
+Thu, 25 Jun 2026 23:23:57 GMT
+
+https://collider.com/wesley-snipes-action-movie-the-contractor-streaming-success-netflix-june-2026/
+
+19 years later, Wesley Snipes' forgotten action movie is finally getting a second chance on Netflix. Read on for more.
+---------
+
+# This 2000s Zombie Masterpiece Gets More Heartbreaking With Age
+
+Horror, Shaun of the Dead, Edgar Wright, Nick Frost, Simon Pegg
+
+Thu, 25 Jun 2026 23:21:15 GMT
+
+https://collider.com/shaun-of-the-dead-edgar-wright-zombie-comedy-masterpiece/
+
+Shaun of the Dead remains a zombie comedy masterpiece because Edgar Wright hid a heartbreaking story about adulthood, friendship, and growing up.
+---------
+
+# Taylor Sheridan’s 'Landman' Finally Wins Its First Major Award Ahead of Season 3
+
+TV News, Taylor Sheridan, Landman, Yellowstone, Dutton Ranch
+
+Thu, 25 Jun 2026 23:11:51 GMT
+
+https://collider.com/taylor-sheridan-landman-season-2-acm-film-award/
+
+Taylor Sheridan's Landman, starring Billy Bob Thornton, secures its first major award ahead of the release of Season 3.
+---------
+
+# Peacock's Hidden Gem 8-Part Spy Thriller Still Deserves a Second Chance
+
+TV Features, Ponies, Emilia Clarke, Peacock, Thriller
+
+Thu, 25 Jun 2026 22:59:12 GMT
+
+https://collider.com/ponies-peacock-spy-thriller-hidden-gem-cancellation/
+
+Peacock's overlooked spy thriller Ponies deserves a second chance after its abrupt cancellation.
+---------
+
+# 10 Nearly Perfect Family Movies, Ranked
+
+Movie, Family, Ron's Gone Wrong, Migration, Over the Moon
+
+Thu, 25 Jun 2026 22:54:13 GMT
+
+https://collider.com/nearly-perfect-family-movies-ranked/
+
+Great family movies like The Wild Robot, The Great Mouse Detective, and Ron's Gone Wrong came came close to achieving true perfection.
+---------
+
+# Netflix Crime Thriller Series ‘Dept Q.’ Reveals Season 2 Plot & First Look
+
+TV News, Dept. Q, Netflix, Matthew Goode
+
+Thu, 25 Jun 2026 23:24:41 GMT
+
+https://movieweb.com/netflix-dept-q-season-2-first-look-plot/
+
+As filming begins for Season 2 of the Netflix police procedural mystery series 'Dept Q.,' here is the latest casting information and plot details
+---------
+
+# Jason Statham's 'John Wick Meets Taken' Action Thriller Is One of the Biggest Movies on Streaming
+
+Movie News, A Working Man, Prime Video, Hot on Streaming, Jason Statham, Action
+
+Thu, 25 Jun 2026 23:00:19 GMT
+
+https://movieweb.com/jason-statham-working-man-streaming-success-amazon-june-2026-action/
+
+Jason Statham's hit action thriller 'A Working Man'
+---------
+
+# 'The Bear's Berzatto Family Tree, Explained  — How Everyone Is Related To Carmy
+
+TV Lists, The Bear
+
+Thu, 25 Jun 2026 23:00:19 GMT
+
+https://movieweb.com/the-bear-family-tree/
+
+The Berzatto family tree is not as complicated as you think, but it gets tricky when you factor in friends who are like family.
+---------
+
+# Review | Thanks to Eric André, John Cena's Latest Netflix Movie Is Watchable
+
+3 star movies, Little Brother, John Cena, Eric Andre
+
+Thu, 25 Jun 2026 23:00:19 GMT
+
+https://movieweb.com/little-brother-review/
+
+The premise might not be original, but André's hilarious talents elevate 'Little Brother.'
+---------
+
+# Disney Rebooting Family Fantasy Adventure Movie With Emma Roberts 20 Years Later
+
+TV News, Aquamarine, Emma Roberts
+
+Thu, 25 Jun 2026 22:49:49 GMT
+
+https://movieweb.com/emma-roberts-aquamarine-disney-pilot/
+
+Disney+ has ordered a pilot for a series based on the cult-favorite, 'Aquamarine.'
+---------
+
+# 'Jackass' Rotten Tomatoes Score Proves the Franchise Saved the Best for Last
+
+Movie News, Jackass: Best and Last, Johnny Knoxville, Jackass
+
+Thu, 25 Jun 2026 22:40:38 GMT
+
+https://movieweb.com/jackass-best-last-rotten-tomatoes-score-record/
+
+The Johnny Knoxville-led series has the highest Rotten Tomatoes score of the whole franchise.
+---------
+
 # Prime Video's 40-Episode Sci-Fi Adaptation Was So Good, It Went Past The Book Story
 
 TV, Masked Recs
