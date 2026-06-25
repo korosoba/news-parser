@@ -1,3 +1,278 @@
+# What Happened To The Outlast Winners After Season 1
+
+Reality TV, Outlast
+
+Thu, 25 Jun 2026 00:00:27 GMT
+
+https://screenrant.com/what-happened-the-outlast-winners-season-1/
+
+With Outlast being praised by viewers, it isn't hard to wonder what happened to Team Charlie after winning the one-million-dollar grand prize.
+---------
+
+# Retailers Are Refusing To Stock GTA 6, And I Can't Blame Them
+
+Gaming, Grand Theft Auto 6, Triple-A Games, PC
+
+Thu, 25 Jun 2026 00:00:24 GMT
+
+https://screenrant.com/gta-6-retail-stock-physical-code/
+
+Rockstar's pre-order announcement for Grand Theft Auto 6 has gone completely sideways, with boycotts popping up left and right over the news.
+---------
+
+# Conan The Barbarian Is Officially Switching Formats For New Prime Video Series
+
+Streaming TV, Conan the Barbarian
+
+Thu, 25 Jun 2026 00:00:24 GMT
+
+https://screenrant.com/conan-the-barbarian-switching-formats-animated-series/
+
+Conan the Barbarian might be best-known as a live-action production, but the iconic character took animated form in one of the best 1990s TV shows.
+---------
+
+# 5 Near-Perfect 90s Anime That No One Remembers Today
+
+Anime
+
+Thu, 25 Jun 2026 00:00:24 GMT
+
+https://screenrant.com/perfect-90s-anime-no-one-remembers/
+
+Explore 5 lesser-known 90s anime that offer compelling stories and unforgettable experiences, often overshadowed by more popular series.
+---------
+
+# 2 DC Movies On Prime Video Are The Perfect One-Night Binge Before Supergirl
+
+Movies, Masked Recs
+
+Thu, 25 Jun 2026 00:00:24 GMT
+
+https://screenrant.com/prime-video-superman-aquaman-lost-kingdom-supergirl-watch/
+
+Supergirl is the next installment in the DCU, and Prime Video has two DC movies that are perfect viewing ahead of the new film's release.
+---------
+
+# 10 Hidden Gem Movies From Masterful Directors
+
+Movies
+
+Thu, 25 Jun 2026 00:00:24 GMT
+
+https://screenrant.com/hidden-gem-movies-masterful-directors/
+
+While not their most popular projects, these obscure films from renowned directors are masterpieces in their own right and deserve recognition.
+---------
+
+# Prime Video Brings Back Iconic Cyberpunk Franchise For New Series Premiering In July
+
+Streaming TV, Masked Recs
+
+Wed, 24 Jun 2026 23:30:20 GMT
+
+https://screenrant.com/the-ghost-in-the-shell-amazon-series-cyberpunk-manga/
+
+Cyberpunk is having a moment with several new prestige shows arriving, but one Prime Video series is ensuring the genre's past isn't being forgotten.
+---------
+
+# Disney Attempted To Buy $7.9B Action Franchise Before Amazon
+
+Movies, Disney
+
+Wed, 24 Jun 2026 23:01:39 GMT
+
+https://screenrant.com/disney-james-bond-buy-attempt-bob-iger-explained/
+
+After acquiring Pixar, Disney set their sights on Marvel, Star Wars, and a beloved action franchise worth $7.9 billion, now owned by Amazon.
+---------
+
+# 3 Years After Honor Among Thieves, Dungeons & Dragons Is Officially Coming Back With 2 Shows
+
+TV, Masked Recs
+
+Wed, 24 Jun 2026 23:00:20 GMT
+
+https://screenrant.com/dungeons-and-dragons-upcoming-live-action-shows/
+
+The upcoming HBO adaptation of Baldur's Gate 3 and Netflix's The Forgotten Realms promise to bring the iconic fantasy franchise to life on screen.
+---------
+
+# 37 Years After Its Debut, Dragon Ball Z Officially Begins A New Chapter
+
+Gaming, Dragon Ball Xenoverse 3, Dragon Ball, Triple-A Games, PC
+
+Wed, 24 Jun 2026 23:00:20 GMT
+
+https://screenrant.com/dragon-ball-xenoverse-3-story-details-characters/
+
+Dragon Ball is stepping into a new age, and a fresh trailer offers a look at new and returning characters as the franchise embraces the future.
+---------
+
+# Obi-Wan Kenobi's Most Heartbreaking Star Wars Line Hits Harder Than Any Sci-Fi Quote Since
+
+Movies, Star Wars: Episode III - Revenge of the Sith, Star Wars
+
+Thu, 25 Jun 2026 00:00:14 GMT
+
+https://www.cbr.com/star-wars-revenge-of-the-sith-heartbreaking-obi-wan-kenobi-quote/
+
+Over the course of Star Wars live-action movies, shows, and animation, Obi-Wan remains an intergalactic treasure.
+---------
+
+# 10 DC Heroes Who Need a Major Breakout After DC's Absolute Universe
+
+Comics, DC Comics, Absolute Batman
+
+Thu, 25 Jun 2026 00:00:14 GMT
+
+https://www.cbr.com/after-absolute-universe-dc-heroes-need-popularity/
+
+The success of the Absolute Universe has given DC Comics the perfect opportunity to give its lesser-known heroes a major breakout.
+---------
+
+# James Bond Reboot Casting Update Revealed as Search for Next 007 Continues
+
+Movies, James Bond
+
+Wed, 24 Jun 2026 23:10:31 GMT
+
+https://www.cbr.com/james-bond-reboot-casting-update-auditions/
+
+The latest casting update for Bond 26 has just been revealed.
+---------
+
+# 5 Most Anticipated Book-to-Movie Adaptations Still Coming in 2026
+
+Movies, Dune: Part Three, The Odyssey, books
+
+Wed, 24 Jun 2026 23:01:12 GMT
+
+https://www.cbr.com/most-anticipated-book-movie-adaptations-2026-list/
+
+From The Odyssey to Dune: Part Three, book lovers still have plenty of movie adaptations to look forward to in 2026.
+---------
+
+# James Bond Is Back on Netflix With 3.1 Million Views in 1 Week
+
+Movie News, Daniel Craig, James Bond, No Time to Die, Netflix
+
+Thu, 25 Jun 2026 00:00:15 GMT
+
+https://collider.com/james-bond-no-time-to-die-streaming-success-netflix-june-2026/
+
+Daniel Craig's final film as James Bond, No Time to Die, made a splashy debut on Netflix recently. Find out more.
+---------
+
+# Harlan Coben’s New 8-Part Netflix Thriller Is an Instant Streaming Sensation
+
+TV News, I Will Find You, Sam Worthington, Harlan Coben, Netflix
+
+Wed, 24 Jun 2026 23:30:13 GMT
+
+https://collider.com/netflix-harlan-coben-i-will-find-you-streaming-success-june-2026/
+
+Netflix's newest Harlan Coben thriller, I Will Find You, has established itself as a major hit for the streamer. Find out more.
+---------
+
+# 10 Classic Horror Movies You Should Watch on VHS in 2026
+
+Movie, Horror, Halloween, Jaws, The Exorcist
+
+Wed, 24 Jun 2026 23:21:13 GMT
+
+https://collider.com/classic-horror-movies-you-should-watch-on-vhs-2026/
+
+From Frankenstein, to A Nightmare on Elm Street, to Halloween, these classic horror movies are best experienced and rediscovered on VHS tape.
+---------
+
+# 10 Forgotten Martial Arts Movies That Are Perfect From Start to Finish
+
+Movie, Martial Arts, Action, Black Dynamite, Wheels on Meals
+
+Wed, 24 Jun 2026 23:11:14 GMT
+
+https://collider.com/forgotten-martial-arts-movies-perfect-start-to-finish/
+
+Blood and Bone, Fist of Legend, Equilibrium, The Night Comes For Us, and more make up our list of forgotten martial arts movies that are perfect.
+---------
+
+# 2026’s Biggest Free Game Event Arrives in 3 Days
+
+Gaming News, Gaming, Fantasy, Avatar: The Last Airbender, Brandon Sanderson
+
+Wed, 24 Jun 2026 23:05:44 GMT
+
+https://collider.com/free-rpg-day-2026-tabletop-game-giveaways/
+
+Free RPG Day gives tabletop fans a chance to pick up free RPG adventures, quickstarts, and other game materials at participating stores.
+---------
+
+# Netflix’s New 94-Minute True Crime Thriller Is Perfect From Start to Finish
+
+Movie News, Netflix, True Crime, Documentary, Crime
+
+Wed, 24 Jun 2026 23:00:13 GMT
+
+https://collider.com/netflix-true-crime-series-maternal-instinct-streaming-success-june-2026/
+
+Netflix's latest true-crime movie, Maternal Instinct, is emerging as a major hit for the streamer by establishing itself at the number one spot.
+---------
+
+# Netflix’s Newest Spin-Off Series Proves One Streamer Has Become TV’s Biggest Threat
+
+TV Features, Hot Ones, Netflix, Series, YouTube
+
+Wed, 24 Jun 2026 22:57:13 GMT
+
+https://collider.com/netflix-hot-ones-extra-heat-youtube-biggest-threat-tv/
+
+Netflix’s Hot Ones spin-off shows why YouTube has become Hollywood’s blueprint for interviews and audience engagement.
+---------
+
+# The Greatest Cyberpunk Series Ever Made Still Holds up After 11 Years
+
+Features, mr robot, Thriller, Sci-Fi, Holds Up
+
+Thu, 25 Jun 2026 00:00:23 GMT
+
+https://movieweb.com/mr-robot-best-cyberpunk-series-holds-up/
+
+After 11 years, the lauded cyberpunk series and its grandiose themese feel more relevant than ever amid current world news.
+---------
+
+# Apple's Best Detective Thriller Finally Returns With Near-Perfect RT Score
+
+TV News, Sugar, Apple TV, Colin Farrell
+
+Wed, 24 Jun 2026 23:59:46 GMT
+
+https://movieweb.com/sugar-season-2-rotten-tomatoes-score/
+
+Season 2 of Colin Farrell's 'Sugar' is securing impressive reactions on Rotten Tomatoes.
+---------
+
+# 30-Year-Old Action Franchise Loses Box Office Crown to 2026's Biggest Hit
+
+Movie News, The Super Mario Galaxy Movie, Jurassic World Dominion, Box Office Milestones
+
+Wed, 24 Jun 2026 23:00:18 GMT
+
+https://movieweb.com/super-mario-galaxy-movies-box-office-jurassic-world-diminion-beaten/
+
+2026's first $1 billion movie 'The Super Mario Galaxy Movie' overtakes 'Jurassic World: Dominion' at the box office.
+---------
+
+# 'House of the Dragon': 10 Biggest Book Differences, Ranked by Story Impact
+
+TV Lists, House of the Dragon
+
+Wed, 24 Jun 2026 23:00:18 GMT
+
+https://movieweb.com/house-of-the-dragon-biggest-book-differences/
+
+As with most adaptations, there are some changes on the page versus the screen.
+---------
+
 # The 10 Most Painful Jackass Stunts
 
 Movies, Jackass
