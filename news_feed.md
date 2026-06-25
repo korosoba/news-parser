@@ -1,3 +1,388 @@
+# The Rings Of Power Is Switching Main Characters In Season 3
+
+Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Rings of Power - Season 3, The Lord of the Rings
+
+Thu, 25 Jun 2026 13:30:21 GMT
+
+https://screenrant.com/the-rings-of-power-season-3-change-main-character/
+
+Rings of Power continues to follow an ensemble cast, but with the War of the Elves and Sauron, one particular character will stand front and center.
+---------
+
+# Marvel Officially Unveils Our New Black Widow, But Fans Are Split
+
+Gaming, Marvel, Marvel Rivals
+
+Thu, 25 Jun 2026 13:30:21 GMT
+
+https://screenrant.com/black-widow-marvel-rivals-new-summer-skin/
+
+Marvel Rivals' summer update introduces a controversial new Black Widow skin, sparking debate among fans.
+---------
+
+# The Best Thriller Movie Each Year Of The 2000s
+
+Movies, Thriller, Ranking
+
+Thu, 25 Jun 2026 13:30:21 GMT
+
+https://screenrant.com/best-thriller-movies-each-year-2000s/
+
+Each year of the 2000s played host to some fantastic thrillers, from Best Picture winners to international classics to films by legendary directors.
+---------
+
+# How Old Aang, Katara & Sokka Are In Avatar: The Last Airbender (Including The Netflix Show)
+
+Streaming TV, Avatar: The Last Airbender
+
+Thu, 25 Jun 2026 13:27:41 GMT
+
+https://screenrant.com/avatar-last-airbender-aang-katara-sokka-ages-how-old/
+
+Throughout Avatar: The Last Airbender, Aang, Katara, and Sokka are still quite young when they end the Hundred Year War. Here's how old they are.
+---------
+
+# 215 Years Later, An Iconic Story Gets A New Big Screen Adaptation In Sense & Sensibility Trailer
+
+Movies, Sense and Sensibility
+
+Thu, 25 Jun 2026 13:05:24 GMT
+
+https://screenrant.com/sense-and-sensibility-2026-trailer/
+
+Jane Austen's 215-year-old classic novel Sense and Sensibility gets a brand-new interpretation in the 2026 film adaptation's first trailer.
+---------
+
+# Pokémon Winds & Waves Ghost-Type Eevee Unites Gamers
+
+Gaming, Pokemon, Pokemon Winds and Waves
+
+Thu, 25 Jun 2026 13:05:24 GMT
+
+https://screenrant.com/pokemon-winds-waves-ghost-eevee-concept/
+
+Pokémon Winds & Waves is on the way next year, and a ghost-type Eevee is uniting gamers the world over.
+---------
+
+# Aaron Taylor-Johnson Is On The Hunt In Gritty First Look At New Horror Movie Werwulf
+
+Movies, Werwulf
+
+Thu, 25 Jun 2026 13:03:43 GMT
+
+https://screenrant.com/werewulf-movie-aaron-taylor-johnson-robert-eggers/
+
+Aaron Taylor-Johnson is on the hunt in this gritty first look at his new horror movie, Werwulf, directed by Robert Eggers.
+---------
+
+# The Wait Is Over, Avatar: The Last Airbender Returns With New Episodes
+
+Streaming TV, Avatar: The Last Airbender
+
+Thu, 25 Jun 2026 13:00:23 GMT
+
+https://screenrant.com/avatar-the-last-airbender-season-2-netflix-new-episodes/
+
+After a long wait, Aang's journey continues with a fresh batch of 7 new episodes that adapt one of the most beloved stretches of the original anime.
+---------
+
+# Venom's Son Reveals Powerful New Design and Codename
+
+Comics, Venom
+
+Thu, 25 Jun 2026 13:00:23 GMT
+
+https://screenrant.com/venom-son-new-toxin-dylan-brock/
+
+Eddie Brock's son just bonded with a new symbiote.
+---------
+
+# The Most Underrated Spider-Man Movie Came Out 7 Years Ago & Deserves More Love
+
+Movies, Spider-Man: Far from Home, Op-Ed
+
+Thu, 25 Jun 2026 13:00:23 GMT
+
+https://screenrant.com/spider-man-far-from-home-most-underrated-movie/
+
+Spider-Man: Far From Home is often viewed as the weakest Tom Holland Spider-Man movie, yet it's actually an underrated film with great elements.
+---------
+
+# 5 Masterpiece Seinen Anime Better Than One Punch Man
+
+Anime, One-Punch Man, Delicious in Dungeon
+
+Thu, 25 Jun 2026 13:15:13 GMT
+
+https://www.cbr.com/masterpiece-seinen-anime-better-than-one-punch-man/
+
+One-Punch Man might’ve lost many fans with its Season 3 downgrade, but these seinen masterpieces will never disappoint viewers.
+---------
+
+# Lord of the Rings: Crown of Gondor Officially Announced for 2026
+
+Games, The Lord of the Rings
+
+Thu, 25 Jun 2026 13:10:14 GMT
+
+https://www.cbr.com/lotr-crown-of-gondor-replica-official-release-june-2026/
+
+The Lord of the Rings fans can officially own their own version of the Crown of Gondor.
+---------
+
+# The Ocean's Eleven Prequel Finally is Coming to Theaters
+
+Movies, Ocean's Eleven, Ocean's Twelve, Ocean's Thirteen, ocean's 8
+
+Thu, 25 Jun 2026 13:00:14 GMT
+
+https://www.cbr.com/oceans-eleven-prequel-movie-perfect-action-thriller/
+
+We don't have to wait much longer for one of the best action thriller movie franchises to return with a story that could revitalize the series.
+---------
+
+# Syfy's 97% RT Show Resident Alien Is TV's Smartest Sci-Fi Comedy Ever
+
+TV, Resident Alien, Sci-Fi, Comedy
+
+Thu, 25 Jun 2026 13:00:14 GMT
+
+https://www.cbr.com/syfy-resident-alien-smartest-tv-sci-fi-comedy/
+
+The sci-fi comedy drama Resident Alien flew under the radar throughout its run, but it remains one of the best shows of the 2020s.
+---------
+
+# 10 Far Side Comics That Will Make Your Dad Laugh
+
+Comics, The Far Side
+
+Thu, 25 Jun 2026 13:00:14 GMT
+
+https://www.cbr.com/far-side-comics-that-make-dad-laugh/
+
+Gary Larson's The Far Side has a reputation for sharing some dad jokes, but some of these strips really are meant to make dads everywhere laugh.
+---------
+
+# DC Officially Announces New Batman Anime Series Starring the Joker
+
+Anime, Batman, DC Comics, Joker
+
+Thu, 25 Jun 2026 12:57:30 GMT
+
+https://www.cbr.com/dc-new-batman-anime-joker-laugh-riot/
+
+A new Batman anime series starring the Clown Prince of Crime is officially in the works.
+---------
+
+# DC Officially Confirms Absolute Batman Series Development And Much More
+
+TV, Absolute Batman
+
+Thu, 25 Jun 2026 12:20:13 GMT
+
+https://www.cbr.com/dc-confirms-absolute-batman-joker-laugh-riot-krypto-tv-series/
+
+Absolute Batman is coming to your TV screen.
+---------
+
+# Absolute Batman Honors Heath Ledger's Joker Through Fated Face-off
+
+Comics, Absolute Batman, The Dark Knight, heath ledger, Joker
+
+Thu, 25 Jun 2026 12:00:14 GMT
+
+https://www.cbr.com/absolute-batman-21-heath-ledger-joker-tribute/
+
+Absolute Batman hid a clever The Dark Knight reference in plain sight.
+---------
+
+# Hulu's Record-Breaking Animated Revival Unveils First Trailer Ahead of Return Next Month
+
+TV, King of the Hill
+
+Thu, 25 Jun 2026 11:30:14 GMT
+
+https://www.cbr.com/hulu-king-of-the-hill-season-15-trailer-release-date-confirmed/
+
+One of the greatest animated comedy series of all time is returning next month, and the new trailer promises plenty of laughs.
+---------
+
+# 6 Months After Stranger Things, 2026's Best New Show Is Replacing Netflix's Horror Obsession
+
+TV, Stranger Things, Widow's Bay, Sci-Fi, Apple TV
+
+Thu, 25 Jun 2026 11:30:14 GMT
+
+https://www.cbr.com/apple-tv-widows-bay-stranger-things-replacement/
+
+Stranger Things is hard to replace, but Apple TV's new horror comedy show might do just that.
+---------
+
+# ’Avatar: The Last Airbender’s Greatest Addition of All Time Didn’t Arrive Until This Season
+
+TV Features, Avatar: The Last Airbender, Nickelodeon, Series, Fantasy
+
+Thu, 25 Jun 2026 12:39:14 GMT
+
+https://collider.com/avatar-the-last-airbender-toph-beifong-best-character-season-2-opinion/
+
+Why Toph Beifong’s arrival in Season 2 made Avatar: The Last Airbender one of the greatest animated series ever.
+---------
+
+# Jane Austen's First Novel Leaps Off the Page in Romantic First 'Sense & Sensibility' Trailer
+
+Movie News, Daisy Edgar-Jones, Jane Austen, Esme Creed-Miles, Sense and Sensibility
+
+Thu, 25 Jun 2026 12:33:23 GMT
+
+https://collider.com/sense-and-sensibility-trailer-daisy-edgar-jones-esme-creed-miles/
+
+The first trailer for the new Sense and Sensibility film brings Jane Austen's romantic novel to life with Daisy Edgar-Jones and Esmé Creed-Miles.
+---------
+
+# 15 Best Anime Series for People Who Don't Like Anime
+
+TV, Anime, Psycho-Pass, Cowboy Bebop, Frieren: Beyond Journey's End
+
+Thu, 25 Jun 2026 12:32:14 GMT
+
+https://collider.com/best-anime-series-people-dont-like-anime/
+
+From Cowboy Bebop to Demon Slayer, these anime series are ideal for all those who might not enjoy the genre at first glance.
+---------
+
+# The Biggest Batman Comic of the Century Is Officially Coming to TV
+
+TV News, Animation, DC Comics, Warner Bros., Warner Bros. Animation
+
+Thu, 25 Jun 2026 12:20:13 GMT
+
+https://collider.com/absolute-batman-animated-series/
+
+Absolute Batman, the blockbuster alternate universe take on Batman, is coming to animation. read on for more.
+---------
+
+# Batman's Greatest Villain Officially Lands His Own Anime Series
+
+TV News, DC, Warner Bros. Animation, Anime, Joker
+
+Thu, 25 Jun 2026 12:20:13 GMT
+
+https://collider.com/batman-joker-laugh-riot-anime-series/
+
+DC Studios and Warner Bros. Animation have unveiled Joker: Laugh Riot, a new anime following the Clown Prince of Crime after Batman's death.
+---------
+
+# All 4 Dragon Age Games, Ranked
+
+Video Games, Video Game, Fantasy, Dragon Age, Dragon Age: The Veilguard
+
+Thu, 25 Jun 2026 12:17:15 GMT
+
+https://collider.com/dragon-age-games-ranked/
+
+The Dragon Age franchise is one of the most important and celebrated in fantasy gaming, but which of the four games released thus far is the greatest?
+---------
+
+# Prime Video Officially Debuts 2026's Best Detective Movie on Streaming
+
+Movie News, The Sheep Detectives, Hugh Jackman, Prime Video, Craig Mazin
+
+Thu, 25 Jun 2026 12:00:14 GMT
+
+https://collider.com/hugh-jackman-the-sheep-detectives-streaming-release-date-prime-video-june-2026/
+
+Amazon's critically acclaimed detective movie has officially debuted on Prime Video. Read on for more details.
+---------
+
+# HBO’s Most Impressive ‘Game of Thrones’ Show Just Overcame Its Biggest Obstacle
+
+TV Features, A Knight Of The Seven Kingdoms, HBO, Game Of Thrones, HBO Max
+
+Thu, 25 Jun 2026 11:46:14 GMT
+
+https://collider.com/game-of-thrones-spinoff-knight-of-the-seven-kingdoms-production-delay-meaning/
+
+By ditching the massive action and scale of Game of Thrones, A Knight of the Seven Kingdoms took a big risk and created something great.
+---------
+
+# 10 Sci-Fi Books That Are Perfectly Written
+
+Movie, Books, Dune, Science Fiction
+
+Thu, 25 Jun 2026 11:43:14 GMT
+
+https://collider.com/sci-fi-books-perfectly-written/
+
+From modern triumphs like Project Hail Mary to foundational classics like I, Robot, these sci-fi book masterpieces are flawlessly written throughout.
+---------
+
+# Forget "Hey Jude," This Near-Perfect Beatles Song Proved John Lennon Was at His Best as a Songwriter
+
+Music Features, The Beatles, John Lennon, Paul McCartney, Music, Rock
+
+Thu, 25 Jun 2026 11:30:14 GMT
+
+https://collider.com/the-beatles-near-perfect-song-strawberry-fields-forever-1967/
+
+This Beatles classic showed John Lennon at his most vulnerable, and innovative, proving why he remains one of rock’s greatest songwriters.
+---------
+
+# Confirmed 'Daredevil: Born Again' Character Comeback Creates Season 3 Uncertainty
+
+Features, Daredevil: Born Again, Daredevil, MCU
+
+Thu, 25 Jun 2026 13:00:21 GMT
+
+https://movieweb.com/daredevil-born-again-elektra-iron-fist/
+
+Elektra is coming back for 'Daredevil: Born Again' Season 3, but her presence could derail what was once a clear path forward. Read on for more.
+---------
+
+# 'Jackass: Best and Last' Review | A Hilarious, Cringe-Worthy Finale
+
+3 star movies, Jackass: Best and Last
+
+Thu, 25 Jun 2026 13:00:21 GMT
+
+https://movieweb.com/jackass-best-and-last-review/
+
+Fans won't be disappointed by this scatological laugh riot.
+---------
+
+# Netflix Unleashes Trailer for Action Fantasy That Will Rival 'The Witcher'
+
+TV News, The East Palace, Action, Fantasy, Netflix
+
+Thu, 25 Jun 2026 12:31:56 GMT
+
+https://movieweb.com/netflix-east-palace-trailer-action-fantasy/
+
+'The East Palace,' due to make its streaming debut, is already better than 'The Witcher' thanks to the inclusion of a ghost-killing sword.
+---------
+
+# Amy Adams Saved Stabbing Victim Using Tips She Learned From Canceled Series
+
+TV News, Amy Adams, Dr. Vegas
+
+Thu, 25 Jun 2026 12:05:14 GMT
+
+https://movieweb.com/amy-adams-saved-stabbing-victim-canceled-dr-vegas/
+
+Amy Adams recalled an incident in which she saved a stabbing victim's life using tips she learned from the canceled CBS medical drama 'Dr. Vegas.'
+---------
+
+# When Will 'Supergirl' Release on HBO Max?
+
+Features, Supergirl, DCU, Milly Alcock
+
+Thu, 25 Jun 2026 12:00:20 GMT
+
+https://movieweb.com/supergirl-streaming-release-date/
+
+'Supergirl' stars Milly Alcock and Jason Momoa and will be released in theaters on June 26, 2026.
+---------
+
 # Elden Ring: The Convergence Update Released, Is Packed With New Content
 
 Gaming, Elden Ring
