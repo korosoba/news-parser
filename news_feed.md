@@ -1,3 +1,443 @@
+# 8 Superhero Movie Sequels That Are Totally Different From The Original
+
+Movies, Superhero, Explainer
+
+Thu, 25 Jun 2026 16:15:21 GMT
+
+https://screenrant.com/superhero-movie-sequels-different-from-originals/
+
+Some superhero film sequels feature a complete shift in tone, leaning into comedy, horror, and even musicals, with the results being a mixed bag.
+---------
+
+# CBS’s Baffling Cancellation Failed To End Titus Welliver’s Bosch Era
+
+Network TV, Bosch, The Equalizer
+
+Thu, 25 Jun 2026 16:15:21 GMT
+
+https://screenrant.com/the-equalizer-spinoff-titus-welliver-bosch-era-end-fail/
+
+One project that CBS pulled the plug on before it could even truly start derailed Titus Welliver's attempt to grow out of his time in Bosch.
+---------
+
+# Demon Slayer Officially Returns October 2026 With Surprise Release
+
+Gaming, Demon Slayer, Triple-A Games
+
+Thu, 25 Jun 2026 16:10:55 GMT
+
+https://screenrant.com/demon-slayer-october-2026-nintendo-switch-2/
+
+Demon Slayer hosted the first part of the concluding film trilogy last year, and the end of the series isn't quite here yet, with a surprise release
+---------
+
+# Ghosts Season 6 Makes First Major Change To Main Cast
+
+TV
+
+Thu, 25 Jun 2026 16:10:40 GMT
+
+https://screenrant.com/ghosts-season-6-cast-ben-feldman-series-regular/
+
+Even though Ghosts season 6 won't return until next year, the long-running CBS sitcom is making a big change to its main cast for the first time.
+---------
+
+# Hugh Jackman's New Thriller With Near-Perfect RT Score Is Now Prime Video's #2 Global Movie After Just 1 Day
+
+Movies, Masked Recs
+
+Thu, 25 Jun 2026 16:07:35 GMT
+
+https://screenrant.com/hugh-jackman-the-sheep-detectives-streaming-success-june-2026/
+
+After just one day on streaming, a new critically acclaimed mystery movie starring Hugh Jackman has become the second-biggest film on Prime Video.
+---------
+
+# June 29 Is A Huge Day For Cyberpunk 2077 Fans
+
+Gaming, Cyberpunk 2077, Cyberpunk, Triple-A Games, PC
+
+Thu, 25 Jun 2026 16:04:25 GMT
+
+https://screenrant.com/cyberpunk-2077-edgerunners-first-look-gamers-react/
+
+Cyberpunk 2077's legacy isn't slowing down, and the most exciting project in the near future is getting a first look in just a few days.
+---------
+
+# All 3 Marvel And DC Movies & TV Shows Releasing On HBO Max In July 2026
+
+Movies, HBO Max, Marvel Cinematic Universe, DC Universe
+
+Thu, 25 Jun 2026 16:01:53 GMT
+
+https://screenrant.com/marvel-dc-movies-shows-release-hbo-max-july-2026/
+
+Both Marvel and DC movies and TV shows will be released on HBO Max in July 2026, with new Batman adventures and R-rated superhero action.
+---------
+
+# Celebrate 20 Years Of Pan's Labyrinth With New Poster From Artist James Jean
+
+Exclusive, Pan's Labyrinth, Guillermo del Toro
+
+Thu, 25 Jun 2026 16:01:22 GMT
+
+https://screenrant.com/pans-labyrinth-20th-anniversary-poster-james-jean/
+
+Exclusive: ScreenRant presents a poster for Guillermo del Toro's dark fantasy film, Pan's Labyrinth, returning to theaters for its 20th anniversary.
+---------
+
+# Inside Avatar: The Last Airbender Season 2’s Character Evolution & Bringing Big Animated Moments To Live-Action
+
+Streaming TV, Avatar: The Last Airbender, Avatar: The Last Airbender - Season 2, Cover Story
+
+Thu, 25 Jun 2026 16:01:22 GMT
+
+https://screenrant.com/avatar-the-last-airbender-season-2-interview-cover-story/
+
+In our exclusive cover story, Avatar: The Last Airbender's cast and crew dive into recreating animated aspects and the Gaang's new season 2 dynamic.
+---------
+
+# Inside Set Sail: Netflix Production Reveals How One Piece Beat The Live-Action Adaptation Curse
+
+TV, One Piece, Netflix
+
+Thu, 25 Jun 2026 15:33:22 GMT
+
+https://screenrant.com/viz-set-sail-book-behind-the-scenes-of-netflix-live-action-one-piece-adaptation/
+
+The biggest streaming service in the world faced an enormous undertaking with One Piece's live-action adaptation, but it's truly beaten the odds.
+---------
+
+# Avatar: The Last Airbender Cast Break Down Season 2
+
+TV, Avatar: The Last Airbender
+
+Thu, 25 Jun 2026 16:15:14 GMT
+
+https://www.cbr.com/video/avatar-the-last-airbender-cast-break-down-season-2/
+
+Avatar: The Last Airbender Season 2 stars Gordon Cormier, Kiawentiio, Ian Ousley, and Miyako discuss the timeless themes driving Netflix's live-action adaptation.
+---------
+
+# 5 Best High Fantasy Anime Ever Made
+
+Anime, Fantasy, KonoSuba: God's Blessing on This Wonderful World!, Record Of Lodoss War
+
+Thu, 25 Jun 2026 16:15:14 GMT
+
+https://www.cbr.com/greatest-high-fantasy-anime-all-time/
+
+While there are plenty of high fantasy anime series, the best feature not just great world building, but memorable heroes and villains alike.
+---------
+
+# Marvel’s Wolverine Game Gets Official Art Book, First Look Revealed
+
+Comics, Wolverine
+
+Thu, 25 Jun 2026 16:01:19 GMT
+
+https://www.cbr.com/marvel-wolverine-game-gets-official-art-book-first-look/
+
+In a CBR exclusive announcement, Dark Horse Books, Marvel Games, and Insomniac Games reveal Marvel’s Wolverine: The Art of the Game
+---------
+
+# Hello Kitty Meets Maomao in 6 Adorable New Sanrio Designs for The Apothecary Diaries
+
+Anime, The Apothecary Diaries, Hello Kitty, sanrio
+
+Thu, 25 Jun 2026 16:01:14 GMT
+
+https://www.cbr.com/hello-kitty-maomao-the-apothecary-diaries-new-designs/
+
+An new collaboration brings Sanrio's army of adorable mascots together with Maomao and several other characters from The Apothecary Diaries anime.
+---------
+
+# Black Panther 3 Is the Perfect Place for the X-Men's Storm to Debut
+
+Movies, Black Panther, Black Panther: Wakanda Forever, Marvel Cinematic Universe, X-Men
+
+Thu, 25 Jun 2026 16:01:14 GMT
+
+https://www.cbr.com/black-panther-3-x-men-storm-debut/
+
+Marvel's next movie is rumored to be including an iconic X-Men hero, which sets up even more upcoming projects to bring mutants fully into the MCU.
+---------
+
+# Paramount+ Officially Confirms New Yellowstone Release at the Perfect Time
+
+TV, Yellowstone, Paramount+ with Showtime
+
+Thu, 25 Jun 2026 16:00:57 GMT
+
+https://www.cbr.com/yellowstone-paramount-plus-america-the-beautiful-collection/
+
+Paramount+ celebrates America with Yellowstone.
+---------
+
+# Paramount Officially Lands 11-Movie Harry Potter Rights Deal
+
+Movies, Harry Potter, Fantasy, Fantastic Beasts and Where to Find Them
+
+Thu, 25 Jun 2026 15:20:23 GMT
+
+https://www.cbr.com/harry-potter-paramount-tv-deal/
+
+Harry Potter is heading to Paramount Networks.
+---------
+
+# 10 Times Kid Goku Was More Interesting Than Adult Goku
+
+Anime, Dragon Ball, Goku, shonen anime, Shonen
+
+Thu, 25 Jun 2026 15:15:14 GMT
+
+https://www.cbr.com/kid-goku-better-than-adult-goku-dragon-ball/
+
+Goku's life is full of incredible adventures in Dragon Ball, but there's a case to be made that his triumphs as a kid surpass his adult exploits.
+---------
+
+# Supergirl Original Score Available on Exclusive Collector’s Vinyl
+
+Comics, Supergirl
+
+Thu, 25 Jun 2026 15:00:13 GMT
+
+https://www.cbr.com/mutant-supergirl-score-vinyl-pre-order-information/
+
+Fans can enjoy the Supergirl score at home, thanks to one unique collectible item.
+---------
+
+# 5 Forgotten '90s Anime Series That Are Masterpieces From Start to Finish
+
+Anime, mecha, Isekai
+
+Thu, 25 Jun 2026 15:00:13 GMT
+
+https://www.cbr.com/forgotten-90s-anime-series-masterpieces-start-to-finish/
+
+These overlooked '90s anime series never became household names, but their brilliant stories make them true masterpieces.
+---------
+
+# Fantasy’s Biggest Franchises Are Getting Huge Prime Week Releases
+
+Uncategorized, The Lord of the Rings, Game Of Thrones, The Chronicles of Narnia, Dune
+
+Thu, 25 Jun 2026 16:10:31 GMT
+
+https://collider.com/amazon-prime-week-cheap-book-box-bundle-deals-fantasy-franchises-lord-of-the-rings-game-of-thrones/
+
+Amazon has announced massive deals for fantasy book box sets for franchises such as The Lord of the Rings and Game of Thrones.
+---------
+
+# 10 Best Characters in 'Dutton Ranch'
+
+TV, Dutton Ranch, Yellowstone, Taylor Sheridan, Western
+
+Thu, 25 Jun 2026 15:36:14 GMT
+
+https://collider.com/dutton-ranch-best-characters-ranked/
+
+The Yellowstone spin-off Dutton Ranch thrives thanks to established characters, like Cole Hauser's Rip, and new faces, like Annette Bening's Beulah.
+---------
+
+# ‘Avatar: The Last Airbender’ Officially Sets Up Zuko’s Biggest Season 3 Battle [Exclusive]
+
+TV News, Avatar: The Last Airbender, Netflix, Dallas Liu
+
+Thu, 25 Jun 2026 15:34:56 GMT
+
+https://collider.com/avatar-the-last-airbender-season-3-agni-kai-duel-zuko-azula-dallas-liu/
+
+Avatar: The Last Airbender star Dallas Liu teases that Season 3 will deliver an unbelievably special final duel between Zuko and Azula.
+---------
+
+# Forget ‘Reacher,’ Alan Ritchson’s New Revenge Thriller Trailer Reveals the Most Violent Spectacle of 2026
+
+Movie News, Alan Ritchson, Reacher, Motor City, John Wick
+
+Thu, 25 Jun 2026 15:02:09 GMT
+
+https://collider.com/alan-ritchson-motor-city-trailer-revenge-thriller/
+
+Alan Ritchson stars in the action-packed revenge thriller Motor City, set to release in July. Watch the intense trailer featuring the Reacher star!
+---------
+
+# Oscar Wilde’s Gothic Fantasy Masterpiece Gets a Darkly Gorgeous Reimagining [Exclusive]
+
+Exclusives, Dorian Gray, The Picture of Dorian Gray, Oscar Wilde, Graphic Novel
+
+Thu, 25 Jun 2026 15:00:14 GMT
+
+https://collider.com/portrait-of-dorian-gray-graphic-novel-sneak-peek/
+
+See an exclusive preview of Enrique Corominas’ The Portrait of Dorian Gray graphic novel, a haunting new adaptation of Oscar Wilde’s gothic classic.
+---------
+
+# Netflix's Upcoming Sci-Fi Detective Movie From Brad Bird Took 30 Years to Make [Exclusive]
+
+Exclusives, Ray Gunn, Brad Bird, Netflix, Ratatouille
+
+Thu, 25 Jun 2026 15:00:14 GMT
+
+https://collider.com/netflix-ray-gunn-brad-bird-sci-fi-noir-movie/
+
+Brad Bird talks to Collider about the 30-year journey to get Ray Gunn made and shares his thoughts on sequels to his Pixar hits.
+---------
+
+# Pixar Legend Confirms ‘Ratatouille 2’ Isn’t Happening, but There’s a Catch [Exclusive]
+
+Movie News, Ratatouille, Brad Bird, Pixar, The Incredibles
+
+Thu, 25 Jun 2026 15:00:14 GMT
+
+https://collider.com/ratatouille-2-sequel-not-happening-pixar-brad-bird/
+
+Brad Bird poured cold water on the chances of Ratatouille 2 ever happening, even though Pixar has been lightly asking about it.
+---------
+
+# Harry Potter Officially Gets New Home in Surprise Move
+
+Movie News, Harry Potter, Harry Potter and the Sorcerer's Stone, Paramount
+
+Thu, 25 Jun 2026 14:00:14 GMT
+
+https://collider.com/harry-potter-movies-new-home-how-to-watch-paramount-network-mtv-nick/
+
+Harry Potter and Fantastic Beasts are moving to Paramount Networks in a new exclusive U.S. linear licensing deal.
+---------
+
+# Kate McKinnon Gets Very Bad News From Megan Mullally in Hilarious New Fantasy Series [Exclusive]
+
+Exclusives, Kate McKinnon, Megan Mullally, Podcasts, Audible
+
+Thu, 25 Jun 2026 14:00:14 GMT
+
+https://collider.com/kate-mckinnon-megan-mullally-fantasy-series-heads-will-roll-heir-apparent-preview/
+
+Collider has an exclusive sneak peek of the second season of the fantasy comedy podcast Heads Will Roll. Listen to it now.
+---------
+
+# The 10 Greatest Live Albums Released in the 80s, Ranked
+
+Music News, Bruce Springsteen, Music, Rock, Bono, Iron Maiden: Live After Death, Talking Heads, Lists
+
+Thu, 25 Jun 2026 14:00:14 GMT
+
+https://collider.com/greatest-80s-live-albums-ranked/
+
+Bruce Springsteen, Pink Floyd, U2, Talking Heads, Eric Clapton and more released brilliant live albums in the 80s.
+---------
+
+# Michael Fassbender's Action Thriller Series That’s "Most-Streamed in History" Beats Taylor Sheridan
+
+TV News, Michael Fassbender, The Agency, Action, Thriller, Paramount Plus
+
+Thu, 25 Jun 2026 16:00:19 GMT
+
+https://movieweb.com/the-agency-fassbender-action-stream-june-2026/
+
+The show's return has quickly shot up the streaming charts.
+---------
+
+# The 10 Best Hard Sci-Fi Books of the 21st Century, Ranked
+
+TV Lists, Project Hail Mary, Sci-Fi, The Expanse
+
+Thu, 25 Jun 2026 16:00:19 GMT
+
+https://movieweb.com/best-hard-sci-fi-books-21st-century/
+
+There are many hard sci-fi books to choose from, and these are the most impressive ones that have been released in the 21st century.
+---------
+
+# Saddest Movies on Disney+ to Watch Right Now
+
+Movie Lists, Disney+
+
+Thu, 25 Jun 2026 16:00:19 GMT
+
+https://movieweb.com/saddest-movies-disney-plus-watch-right-now/
+
+These are some of the saddest movies on Disney+ you can watch right now, from classic Disney films to modern tearjerkers.
+---------
+
+# Original 'The Office' Return Confirmed With Original Cast
+
+TV News, The Office (U.K.), Martin Freeman
+
+Thu, 25 Jun 2026 15:52:23 GMT
+
+https://movieweb.com/the-office-uk-25th-anniversary-freeman-crook/
+
+Martin Freeman and Mackenzie Crook reunite for 'Remember... The Office,' a BBC Two special marking 25 years of the comedy.
+---------
+
+# The Joker Goes Full John Wick in New Standalone Spin-off From DC Studios
+
+TV News, Joker, Batman, Superhero
+
+Thu, 25 Jun 2026 15:50:05 GMT
+
+https://movieweb.com/joker-laugh-riot-batman-dc-studios/
+
+The Joker is the good guy, kind of, in a new animated series from DC Studios.
+---------
+
+# The Best Batman Story in Years Is Getting a TV Adaptation
+
+TV News, Batman
+
+Thu, 25 Jun 2026 15:41:59 GMT
+
+https://movieweb.com/absolute-batman-animated-series-announced/
+
+Warner Bros. Animation and DC Studios will adapt Scott Snyder and Nick Dragotta's Absolute Batman into an animated series.
+---------
+
+# Russell Crowe & Ethan Hawke Survival Thriller 'The Weight' Gets First Trailer
+
+Movie News, The Weight, Russell Crowe, Ethan Hawke
+
+Thu, 25 Jun 2026 15:38:24 GMT
+
+https://movieweb.com/the-weight-trailer/
+
+Vertical has released the first trailer for 'The Weight,' the critically acclaimed survival thriller starring Russell Crowe and Ethan Hawke.
+---------
+
+# Will Ferrell Is Back as a Washed-Up Golf Pro in Trailer for Netflix Comedy 'The Hawk'
+
+TV News, Netflix, Will Ferrell, The Hawk
+
+Thu, 25 Jun 2026 15:28:51 GMT
+
+https://movieweb.com/will-ferrell-the-hawk-trailer-netflix/
+
+'Happy Gilmore' has a rival with 'The Hawk'
+---------
+
+# 'Superman's Best Character Is Getting His Own Spin-off Series
+
+TV News, Superman, HBO Max
+
+Thu, 25 Jun 2026 15:15:41 GMT
+
+https://movieweb.com/superman-krypto-animated-spin-off-series/
+
+Warner Bros. Animation and DC Studios confirmed a new spin-off series coming for a fan-favorite 'Superman' character.
+---------
+
+# Markiplier's The Edge of Sleep Ending, Explained
+
+Features, Prime Video, Mystery, Thriller
+
+Thu, 25 Jun 2026 15:00:20 GMT
+
+https://movieweb.com/markiplier-the-edge-of-sleep-ending-explained/
+
+Markiplier's mystery series is a blend of horror-story styles that leaves audiences with more questions than answers.
+---------
+
 # The Rings Of Power Is Switching Main Characters In Season 3
 
 Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Rings of Power - Season 3, The Lord of the Rings
