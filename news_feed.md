@@ -1,3 +1,377 @@
+# GTA 6 Players Can Officially Grab A Ton Of Bonus Free Games
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, Rockstar Games, PC
+
+Thu, 25 Jun 2026 04:30:20 GMT
+
+https://screenrant.com/gta-6-pre-order-bonus-free-games-gta-plus/
+
+Grand Theft Auto 6 players can get their hands on a number of completely free bonus games so long as they follow the correct steps.
+---------
+
+# Steam Makes Critically Acclaimed 2020 Game Completely Free Until July 1
+
+Gaming, Steam, Tell Me Why, PC
+
+Thu, 25 Jun 2026 04:00:30 GMT
+
+https://screenrant.com/steam-free-game-july-2026-tell-me-why/
+
+Steam users can download a critically acclaimed game from 2020 for free with no strings attached, but they'll have to be quick about it.
+---------
+
+# Dragon Ball's Next Anime Will Unlock The Ultimate Reverse Spirit Bomb
+
+Anime, Dragon Ball Super: The Galactic Patrol, Dragon Ball
+
+Thu, 25 Jun 2026 03:45:21 GMT
+
+https://screenrant.com/dragon-ball-super-next-anime-reverse-spirit-bomb-fission-vegeta/
+
+The exciting return of Dragon Ball Super also brings along exciting new techniques, featuring one spectacular twist on the Spirit Bomb.
+---------
+
+# It's Official, One Piece Is Now Less Than 1 Year Away From Its Absolute Peak
+
+Anime, One Piece
+
+Thu, 25 Jun 2026 03:30:21 GMT
+
+https://screenrant.com/netflix-one-piece-remake-february-peak/
+
+Discover how the highly anticipated One Piece remake, produced by Wit Studio, promises to revolutionize the franchise
+---------
+
+# Apple TV’s 8-Part True Detective Replacement Is Switching Its Cast In Season 2
+
+Streaming TV, Masked Recs
+
+Thu, 25 Jun 2026 03:15:24 GMT
+
+https://screenrant.com/presumed-innocent-apple-tv-cast-switch-season-2/
+
+Apple TV is the streaming home of a potential True Detective replacement series, which is surprisingly switching its entire cast in its new season.
+---------
+
+# Steam’s New Hit Free Download Scores “Overwhelmingly Positive” 98 Percent Reviews
+
+Gaming, Steam, PC
+
+Thu, 25 Jun 2026 03:00:21 GMT
+
+https://screenrant.com/steam-free-download-overwhelmingly-positive/
+
+A new free Steam demo is gaining popularity, garnering thousands of positive reviews even though it hasn't even been released in full yet.
+---------
+
+# Netflix’s Philip K. Dick Adaptation Is Its Most Ambitious Sci-Fi Show Of The Decade
+
+Streaming TV, Masked Recs
+
+Thu, 25 Jun 2026 02:45:20 GMT
+
+https://screenrant.com/netflix-philip-k-dick-future-is-ours-ambitious/
+
+Netflix’s upcoming adaptation of an obscure Philip K. Dick story comes off as one of the most ambitious science fiction TV shows of the past decade.
+---------
+
+# Superman Just Set A New Standard For His Maximum Strength
+
+DC Comics, Superman
+
+Thu, 25 Jun 2026 02:30:20 GMT
+
+https://screenrant.com/superman-how-strong-throw-moon/
+
+Superman's unique body and his exposure to Earth's solar radiation give him unmatched strength, but he defies physics to pull off an impressive feat.
+---------
+
+# DC Officially Debuts Its Newest Version Of Superman
+
+Superheroes, My Adventures With Superman, DC Universe
+
+Thu, 25 Jun 2026 02:30:20 GMT
+
+https://screenrant.com/dc-debuts-cyborg-superman-my-adventures-with-superman/
+
+A brand-new version of Superman has just debuted to rival Clark Kent, thanks to DC's ongoing HBO Max series starring the Man of Steel.
+---------
+
+# 10 Best Movies About Racing That Are Perfect For Motorsport Fans
+
+Movies, F1, Rush, Ford v Ferrari, Senna, Talladega Nights: The Ballad of Ricky Bobby, Days of Thunder, Le Mans, Need For Speed, Cars, The Fast and the Furious
+
+Thu, 25 Jun 2026 02:00:33 GMT
+
+https://screenrant.com/racing-best-movies-for-fans/
+
+Formula 1 and motorsports can make great film subjects, and these movies capture the magic of real racing for veterans and newcomers alike.
+---------
+
+# 1 Year Later, Demon Slayer: Infinity Castle Finally Confirms Its Streaming Release Date
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Demon Slayer: Kimetsu no Yaiba Infinity Castle, Crunchyroll
+
+Thu, 25 Jun 2026 04:01:18 GMT
+
+https://www.cbr.com/demon-slayer-infinity-castle-crunchyroll-streaming-release-date/
+
+Demon Slayer: Infinity Castle will soon be available to stream on Crunchyroll nearly one year after its theatrical release worldwide.
+---------
+
+# 10 Masterpiece '80s Games That Aged Badly
+
+Games, retro games
+
+Thu, 25 Jun 2026 03:45:13 GMT
+
+https://www.cbr.com/masterpiece-80s-games-aged-badly-list/
+
+'80s games like The Legend of Zelda and Metroid might be classics, but that doesn't mean they've aged well.
+---------
+
+# Avatar's Deleted Opening Is the Perfect Blueprint for Avatar 4
+
+Movies, Avatar, Avatar: Fire and Ash, Sci-Fi
+
+Thu, 25 Jun 2026 03:45:13 GMT
+
+https://www.cbr.com/james-cameron-avatar-deleted-earth-opening-scene-sequel-tease/
+
+A scrapped scene from James Cameron's 2009 sci-fi epic should serve as the basis for the upcoming fourth and fifth installments of Avatar.
+---------
+
+# 10 Classic PS2 Games That Are Unplayable Today
+
+Games, PlayStation 2
+
+Thu, 25 Jun 2026 03:15:13 GMT
+
+https://www.cbr.com/classic-ps2-games-aged-the-worst-list/
+
+PS2 games like Star Wars Battlefront and GTA III have aged like milk.
+---------
+
+# 10 Modern Anime So Good, You'll Realize Solo Leveling Is Overrated
+
+Anime, Solo Leveling
+
+Thu, 25 Jun 2026 03:01:13 GMT
+
+https://www.cbr.com/best-modern-anime-better-than-solo-leveling-list/
+
+The best modern anime series, like Chainsaw Man and Jujutsu Kaisen, put Solo Leveling to shame.
+---------
+
+# Adidas and Brawl Stars Officially Team Up for World Cup Season
+
+Games, Clash of Clans
+
+Thu, 25 Jun 2026 02:59:15 GMT
+
+https://www.cbr.com/brawl-stars-x-adidas-2026-starr-cup/
+
+Brawl Stars and Adidas are teaming up to bring soccer fans all the merch and gaming content they didn't know they needed for World Cup season.
+---------
+
+# Prime Video's Secret Level Finally Gets an Exciting Season 2 Update
+
+TV, Secret Level
+
+Thu, 25 Jun 2026 02:57:40 GMT
+
+https://www.cbr.com/secret-level-season-2-update-prime-video/
+
+The latest update on the anticipated second season of Prime Video's Secret Level has been revealed.
+---------
+
+# 4 Must-Watch Psychological Thrillers With the Greatest Endings, Ranked
+
+Movies, Shutter Island, Memento, Se7en
+
+Thu, 25 Jun 2026 02:46:13 GMT
+
+https://www.cbr.com/must-watch-psychological-thrillers-greatest-endings-ranked/
+
+It may seem that every ending has been done, but when these films first premiered, no one could see the twist coming.
+---------
+
+# 10 Heartbreaking Nami Scenes That Made One Piece Fans Cry
+
+Anime, One Piece
+
+Thu, 25 Jun 2026 02:46:13 GMT
+
+https://www.cbr.com/one-piece-most-heartbreaking-nami-scenes/
+
+Nami has been at the heart of many of the saddest moments in all of One Piece.
+---------
+
+# 10 Flawless Isekai Anime Series That Are Perfect From Start to Finish
+
+Anime, Isekai
+
+Thu, 25 Jun 2026 02:41:12 GMT
+
+https://www.cbr.com/perfect-isekai-anime-series-no-bad-episodes-list/
+
+Must-watch isekai anime like That Time I Got Reincarnated As a Slime come close to perfection.
+---------
+
+# 10 Worst Video Games of All Time
+
+Movie, Video Game, The Lord of the Rings: Gollum, Nintendo, Gaming
+
+Thu, 25 Jun 2026 04:07:13 GMT
+
+https://collider.com/worst-video-games-all-time-ranked/
+
+While there are countless exceptionally terrible video games out there, games like Superman 64, Shaq Fu, and Bubsy 3D stand out as the absolute worst.
+---------
+
+# Taylor Sheridan's Neo-Western Masterpiece Is the Streaming Hit Nobody Talks About
+
+TV Features, Taylor Sheridan, The Madison, Western, Paramount Plus
+
+Thu, 25 Jun 2026 04:06:12 GMT
+
+https://collider.com/the-madison-taylor-sheridan-neo-western-masterpiece-streaming/
+
+Taylor Sheridan's neo-Western drama The Madison is about a poignant family story that breaks genre tropes and streaming records.
+---------
+
+# Prime Video’s New Sci-Fi Epic Could Finally Give ‘Battlestar Galactica’ a Worthy Successor
+
+TV Features, Battlestar Galactica, James SA Corey, The Expanse, Prime Video
+
+Thu, 25 Jun 2026 03:55:13 GMT
+
+https://collider.com/battlestar-galactica-replacement-sci-fi-series-prime-video-captives-war/
+
+Prime Video's The Captive's War could be the next Battlestar Galactica. The creative team has fans' trust, and the alien contact premise is overdue.
+---------
+
+# ‘The Bear’ Season 4 Recap: Everything To Remember Before the Final Season Premieres
+
+TV Features, The Bear, Jeremy Allen White, Ayo Edebiri, Ebon Moss-Bachrach
+
+Thu, 25 Jun 2026 03:16:13 GMT
+
+https://collider.com/the-bear-season-4-recap-fx/
+
+Revisit the intense drama and culinary challenges of The Bear Season 4 before the FX show returns with its fifth and final installment.
+---------
+
+# 25 Years After ‘Band of Brothers,’ This 2-Part WWII Series Is Officially Crushing Streaming
+
+TV Features, SAS: Rogue Heroes, War, Prime Video, Band of Brothers
+
+Thu, 25 Jun 2026 03:06:14 GMT
+
+https://collider.com/band-of-brothers-series-replacement-sas-rogue-heroes-2-seasons/
+
+Rogue Heroes, the 2-season WWII series created by Steven Knight, is crushing streaming and is the perfect follow-up for Band of Brothers fans.
+---------
+
+# 8 Hard Sci-Fi Movies That Are Perfect From the First Scene to the Last
+
+Movie, Science Fiction, 2001: A Space Odyssey, Primer, Contact
+
+Thu, 25 Jun 2026 03:03:14 GMT
+
+https://collider.com/hard-sci-fi-movies-perfect-first-scene-to-last/
+
+Hard sci-fi movies like 2001: A Space Odyssey, Gattaca, and Primer are incredible feats of filmmaking that remain compelling and flawless throughout.
+---------
+
+# 15 Most Underrated 'House of the Dragon' Characters
+
+TV, House of the Dragon, Game Of Thrones, HBO, Fantasy
+
+Thu, 25 Jun 2026 03:01:14 GMT
+
+https://collider.com/house-of-the-dragon-underrated-characters-ranked/
+
+From Helaena Targaryen to Jacaerys Velaryon, we entered the lair to rank the most underrated characters in the hit HBO series House of the Dragon.
+---------
+
+# The Next Batman Movie Will Finally Adapt The Dark Knight's Greatest Storyline
+
+Movie Features, Batman: Knightfall Part 1: Knightfall, Anson Mount, Michael Mando, Warner Bros. Animation
+
+Thu, 25 Jun 2026 01:00:15 GMT
+
+https://collider.com/batman-knightfall-animated-adaptation-dc-comics-greatest-storyline/
+
+DC is making a return to animated movies with Batman: Knightfall, which is considered one of the Caped Crusader's best storylines.
+---------
+
+# Next Week’s New Fantasy Release Is Perfect for ‘Pluribus’ Fans
+
+Uncategorized, Pluribus, Fantasy, Rhea Seehorn, Adventure
+
+Thu, 25 Jun 2026 00:56:28 GMT
+
+https://collider.com/fantasy-book-release-pasha-the-storm-linda-h-codega-june-30/
+
+Linda H. Codega’s new fantasy novel Pasha the Storm arrives June 30, bringing pirate magic, ghosts, gods, and a necromantic navy to the high seas.
+---------
+
+# 8 Fast-Paced Netflix Thrillers Like 'I Will Find You' You Can Binge in an Evening
+
+TV Lists, I Will Find You
+
+Thu, 25 Jun 2026 02:00:30 GMT
+
+https://movieweb.com/netflix-thrillers-like-i-will-find-you/
+
+'I Will Find You' is the latest Harlan Coben Netflix thriller adaptation, but there are other series on the streaming service that fans will enjoy.
+---------
+
+# 6 Harry Potter Characters Cut From the Movies That Can Appear in the Show
+
+TV Lists, Harry Potter
+
+Thu, 25 Jun 2026 02:00:30 GMT
+
+https://movieweb.com/harry-potter-hbo-cut-book-characters/
+
+The Harry Potter movies had to drop several characters for pacing reasons. HBO can debut them. Read on for more.
+---------
+
+# 'Stranger Things' Millie Bobby Brown Finally Confirms She Knows Eleven's Fate
+
+TV News, Stranger Things, Millie Bobby Brown
+
+Thu, 25 Jun 2026 01:38:26 GMT
+
+https://movieweb.com/millie-bobby-brown-eleven-ending-reaction/
+
+Millie Bobby Brown publicly addressed how she feels about Eleven's undisclosed fate after the end of 'Stranger Things.'
+---------
+
+# Ridley Scott's 8-Part Masterpiece Rebooted an All-Time Great Sci-Fi Franchise
+
+Features, Alien: Earth, Alien, Ridley Scott
+
+Thu, 25 Jun 2026 01:00:20 GMT
+
+https://movieweb.com/ridley-scott-sci-fi-alien-earth-reboot/
+
+Hailed as one of the best TV shows of 2025, an engrossing series from executive producer Ridley Scott reinvigorated one of sci-fi's best franchises.
+---------
+
+# $505 Million Video Game Movie Franchise Returns After 7 Years in First Look at Sequel
+
+Movie News, The Angry Birds Movie 3
+
+Thu, 25 Jun 2026 00:24:10 GMT
+
+https://movieweb.com/angry-birds-3-first-look/
+
+One of the most popular video game movie franchises of the last decade is on its way back to the big screen with its first official images.
+---------
+
 # What Happened To The Outlast Winners After Season 1
 
 Reality TV, Outlast
