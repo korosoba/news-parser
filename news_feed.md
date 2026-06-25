@@ -1,3 +1,377 @@
+# Prime Video's 40-Episode Sci-Fi Adaptation Was So Good, It Went Past The Book Story
+
+TV, Masked Recs
+
+Thu, 25 Jun 2026 22:08:20 GMT
+
+https://screenrant.com/man-in-the-high-castle-tv-show-past-book-story/
+
+One Prime Video sci-fi series was so successful that the show's adaptation of an iconic cyberpunk author's book went way past its source material.
+---------
+
+# House Of The Dragon Season 3's Viewership Drop After Divisive Premiere Revealed
+
+TV, House of the Dragon
+
+Thu, 25 Jun 2026 22:05:53 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-viewership-premiere/
+
+House Of The Dragon season 3 is off to a rough start as its viewership numbers drop in comparison to the debut of its second season.
+---------
+
+# 5 Years Later, Ghostbusters' Timeline Becomes Even More Confusing
+
+TV, Ghostbusters
+
+Thu, 25 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/ghostbusters-night-shift-confusing-timeline/
+
+The Ghostbusters franchise timeline becomes even more convoluted with the announcement of Netflix's new upcoming spinoff series, Night Shift.
+---------
+
+# Red Dead Redemption Free Download Officially Confirmed
+
+Gaming, Grand Theft Auto 6, Red Dead Redemption, Rockstar Games, Red Dead Redemption 2
+
+Thu, 25 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/red-dead-redemption-free-download-gta-6-pre-order-bonus/
+
+Pre-order Grand Theft Auto VI and get a free month of GTA+, plus access to a library of classic games including Red Dead Redemption, GTA V, and more.
+---------
+
+# 8 Characters Even the Joker Fears, According to Official DC Lore
+
+Comics, Joker
+
+Thu, 25 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/batman-characters-joker-fears-dc-punisher/
+
+Wait, Joker fears the Flash?
+---------
+
+# Netflix's Resurrected 3-Season Sitcom With Near-Perfect Rotten Tomatoes Score Is One Of Its Best Comedies
+
+Streaming TV, Masked Recs
+
+Thu, 25 Jun 2026 21:30:22 GMT
+
+https://screenrant.com/girls5eva-netflix-best-comedies/
+
+One of the best sitcoms on Netflix is a show the streaming giant saved from cancellation, and it's produced by the one and only Tina Fey.
+---------
+
+# Everything GTA 6 Locks Behind Its Ultimate Edition
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, Triple-A Games, PC
+
+Thu, 25 Jun 2026 21:29:36 GMT
+
+https://screenrant.com/gta-6-ultimate-edition-bonuses/
+
+Grand Theft Auto 6 is saving quite a bit of content for its $100 Ultimate Edition, ranging from silly cosmetics to shops and gameplay missions.
+---------
+
+# Supergirl: Every Major Spoiler, Death & DC Universe Reveal
+
+Movies, Supergirl, DC Universe
+
+Thu, 25 Jun 2026 21:25:20 GMT
+
+https://screenrant.com/supergirl-movie-spoilers-deaths-reveals-dc-universe/
+
+Breaking down every major spoiler, character death, and DC Universe reveal from Supergirl, including the biggest moments fans need to know.
+---------
+
+# Avatar: The Last Airbender Season 2's Missing Aang & Katara Story Addressed By Netflix Star
+
+TV, Avatar: The Last Airbender, Avatar: The Last Airbender - Season 2, Netflix
+
+Thu, 25 Jun 2026 21:22:26 GMT
+
+https://screenrant.com/avatar-the-last-airbender-season-2-missing-aang-katara-story-cave-cormier/
+
+Exclusive: Gordon Cormier weighs in on Netflix's Avatar: The Last Airbender season 2 leaving out a beloved Aang and Katara story and why it works.
+---------
+
+# We're Officially 6 Months Away From Jumanji's Return
+
+New Movies, Masked Recs
+
+Thu, 25 Jun 2026 21:20:20 GMT
+
+https://screenrant.com/jumanji-movie-franchise-return-release-six-months/
+
+One of Hollywood's greatest modern adventure movie franchises is officially just six months away from returning, hoping to build on its success.
+---------
+
+# It's Officially a New Era for Netflix Anime
+
+Anime, One Piece, Netflix, Blue Eye Samurai
+
+Thu, 25 Jun 2026 22:15:13 GMT
+
+https://www.cbr.com/new-era-for-netflix-anime/
+
+With the latest announcement of new series arriving on its streaming platform, Netflix is establishing a new era for its anime catalog.
+---------
+
+# Spider-Man Artist John Romita Jr. Breaks Silence on Anniversary Cover Controversy
+
+Comics, Marvel, Spider-Man
+
+Thu, 25 Jun 2026 22:13:49 GMT
+
+https://www.cbr.com/spider-man-artist-john-romita-jr-cover-controversy-addressed/
+
+Spider-Man fans, you don't have to worry anymore.
+---------
+
+# "Jaw-Droppingly Violent" Alan Ritchson Revenge Thriller Gets New Trailer 1 Month Before Release
+
+Movies, Motor City, Thriller
+
+Thu, 25 Jun 2026 22:01:42 GMT
+
+https://www.cbr.com/motor-city-trailer-alan-ritchson/
+
+Alan Ritchson is out for revenge in Motor City.
+---------
+
+# Marvel Confirms Ultimate Universe Will Return Despite Previous Finale Announcement
+
+Comics, Marvel Comics
+
+Thu, 25 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/marvel-ultimate-universe-finale-returning-cinfirmed/
+
+Marvel teased fans that its new Ultimate Universe finale would be the last, but a new reveal hints that won't be the case.
+---------
+
+# Tom Holland Confirmed a Massive Hulk Moment in Spider-Man: Brand New Day
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Hulk
+
+Thu, 25 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-hulk-remembers-peter-parker/
+
+The king of spoilers returns as Tom Holland reveals a major comic book moment that Spider-Man: Brand New Day will adapt.
+---------
+
+# 36 Years Later, Dragon Ball Reveals a Rarely Seen Moment Between Goku and Gohan
+
+Anime, Dragon Ball, Dragon Ball Z, Shonen Jump
+
+Thu, 25 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/dragon-ball-rare-goku-gohan-moment/
+
+This rarely seen moment between Goku and Gohan comes from Akira Toriyama, the late creator of Dragon Ball Z.
+---------
+
+# Emma Roberts Officially Returning for Disney+ Reboot of Her 20-Year-Old Fantasy Cult Classic
+
+TV, Aquamarine, Disney+
+
+Thu, 25 Jun 2026 21:42:55 GMT
+
+https://www.cbr.com/aquamarine-reboot-pilot-emma-roberts-disney/
+
+Emma Roberts is revisiting her 20-year-old role for a reboot series on Disney+.
+---------
+
+# 5 Greatest Sega Dreamcast Games Ever Made
+
+Games, dreamcast, Video Games, Sonic the Hedgehog
+
+Thu, 25 Jun 2026 21:15:14 GMT
+
+https://www.cbr.com/official-greatest-sega-dreamcast-games-ever-made/
+
+Sega's final video game console, the Dreamcast, continues to house some of the greatest games of all time.
+---------
+
+# 10 Years Later, The Vampire Diaries Stars Reunite for Hulu Thriller Based on Beloved Book
+
+TV, Hulu, The Vampire Diaries
+
+Thu, 25 Jun 2026 21:01:31 GMT
+
+https://www.cbr.com/paul-wesley-nina-dobrev-you-deserve-to-know-hulu/
+
+Former Vampire Diaries co-stars Paul Wesley and Nina Dobrev are reuniting for an all-new TV series on Hulu.
+---------
+
+# 10 Greatest Action Movie Set Pieces of the Last 10 Years, Ranked
+
+Movies, Action
+
+Thu, 25 Jun 2026 21:00:13 GMT
+
+https://www.cbr.com/best-action-movie-scenes-the-last-10-years-list/
+
+Discover the top 10 most unforgettable action movie set pieces from the last decade, ranked by their spectacle, choreography, and impact on the genre.
+---------
+
+# 10 Animated Movies That Are Better Than 'Spider-Man: Into the Spider-Verse'
+
+Movie, Spider-Man: Into The Spider-Verse, Animation, The Incredibles, Spirited Away
+
+Thu, 25 Jun 2026 22:08:13 GMT
+
+https://collider.com/animated-movies-better-than-spider-man-into-the-spider-verse/
+
+For as exceptional as Spider-Man: Into the Spider-Verse is, animated movies like Spirited Away and How to Train Your Dragon are arguably better.
+---------
+
+# ‘Dutton Ranch’ Star’s New Horror Movie Reveals Twisty First Trailer [Exclusive]
+
+Movie News, Horror, Grace Van Dien, Anthony Michael Hall, Kenan Thompson
+
+Thu, 25 Jun 2026 22:00:14 GMT
+
+https://collider.com/halloween-store-trailer-natalie-alyn-lind-simon-rex/
+
+Watch the trailer for Halloween Store, a horror comedy starring Natalie Alyn Lind and Simon Rex that turns seasonal retail into a slasher nightmare.
+---------
+
+# 10 Heaviest TV Episodes of the Last 20 Years
+
+TV, Television, The Bear, Euphoria, The Pitt
+
+Thu, 25 Jun 2026 21:52:14 GMT
+
+https://collider.com/heaviest-tv-episodes-last-20-years-ranked/
+
+Euphoria, The Bear, The Pitt, and Dexter have hit audiences with brutal moments over the last 20 years, but which TV episode is the heaviest?
+---------
+
+# Now That 'The Furious' is Out, It's Time More People Watch This Indonesian Action Classic
+
+Movie Features, The Raid: Redemption, The Furious, Joe Taslim, Gareth Evans
+
+Thu, 25 Jun 2026 21:45:12 GMT
+
+https://collider.com/the-raid-redemption-indonesian-action-classic/
+
+The Furious isn't the only action film with Yayan Ruhian and Joe Taslim that genre fans should check out. They also both star in The Raid.
+---------
+
+# Yellowstone’ Season 5 Is Officially Available to Watch for Free
+
+TV News, Yellowstone, Taylor Sheridan, Pluto TV, Kevin Costner
+
+Thu, 25 Jun 2026 21:43:20 GMT
+
+https://collider.com/yellowstone-season-5-free-streaming-pluto-tv-taylor-sheridan/
+
+Season 5 of Taylor Sheridan’s empire-building Western hit Yellowstone will be available to watch free for the first time next month.
+---------
+
+# The Best Rock Album of Every Year of the 1990s
+
+Music Features, Nirvana, Radiohead, Rock, Music
+
+Thu, 25 Jun 2026 21:27:13 GMT
+
+https://collider.com/best-rock-albums-1990s-every-year/
+
+When discussing the best rock albums from every year of the 1990s, bangers like Californication, Nevermind, and OK Computer certainly make the cut.
+---------
+
+# HBO's Fantasy Epic Is One of the Few Shows That's Perfect From Start to Finish
+
+TV Features, His Dark Materials, Dafne Keen, James McAvoy, HBO Max
+
+Thu, 25 Jun 2026 21:27:13 GMT
+
+https://collider.com/his-dark-materials-hbo-fantasy-epic-perfect/
+
+HBO's fantasy epic, His Dark Materials, follows a formidable heroine in a world filled with religious themes and complex magical concepts.
+---------
+
+# 'Supergirl's Ending Changes Everything for the DCU's Future
+
+Movie Features, Supergirl, DCU, Superman
+
+Thu, 25 Jun 2026 21:20:13 GMT
+
+https://collider.com/supergirl-ending-explained-krypto-post-credits-scene-krem-death/
+
+Supergirl ending explained: Does Krypto die, what happens to Krem, and is there a post-credits scene? Here's how Kara's journey ends.
+---------
+
+# 'The Vampire Diaries' Reunion Officially Set at Hulu
+
+TV News, Paul Wesley, Nina Dobrev, The Vampire Diaries, Hulu
+
+Thu, 25 Jun 2026 21:19:15 GMT
+
+https://collider.com/vampire-diaries-reunion-nina-dobrev-paul-wesley-cast-you-deserve-to-know-hulu/
+
+The Vampire Diaries stars Nina Dobrev and Paul Wesley will officially reunite in Hulu's new murder mystery series.
+---------
+
+# 10 Books That Might Be the Great American Novel
+
+Movie, The Great Gatsby, To Kill A Mockingbird, Lolita, The Last of the Mohicans
+
+Thu, 25 Jun 2026 21:09:13 GMT
+
+https://collider.com/great-american-novel-contenders/
+
+Just what is the "Great American Novel" may never be agreed upon, but classics like The Great Gatsby and The Last of the Mohicans are contenders.
+---------
+
+# $8 Billion Action Franchise Sequel Loses Box Office Crown to One of 2026's Biggest Movies
+
+Movie News, Toy Story 5, James Bond
+
+Thu, 25 Jun 2026 22:00:19 GMT
+
+https://movieweb.com/toy-story-5-beats-james-bond-spectre-box-office/
+
+One of 2026's smash hits has surpassed this major action sequel's total domestic gross in just one week.
+---------
+
+# Scarlett Johansson's New Crime Thriller Hailed as "American Classic" Sets Release Date
+
+Movie News, Paper Tiger, Scarlett Johansson, Adam Driver
+
+Thu, 25 Jun 2026 21:27:35 GMT
+
+https://movieweb.com/scarlett-johansson-paper-tiger-release-date-thriller/
+
+The upcoming Neon movie has already received a lot of buzz.
+---------
+
+# Timothy Olyphant's HBO Thriller Miniseries You Can Binge in One Night
+
+Features, Timothy Olyphant
+
+Thu, 25 Jun 2026 21:00:19 GMT
+
+https://movieweb.com/timothy-olyphant-hbo-full-circle-binge/
+
+Timothy Olyphant has starred in many popular movies and TV series, and this binge-worthy HBO thriller miniseries is one of his best.
+---------
+
+# 'Ratatouille 2' Fate Finally Confirmed by Disney Director
+
+Movie News, Ratatouille, Brad Bird, Pixar
+
+Thu, 25 Jun 2026 20:58:52 GMT
+
+https://movieweb.com/ratatouille-2-director-reaction-sequel-pixar/
+
+Brad Bird admits he's not interested in returning to deliver a sequel.
+---------
+
 # The Boys Officially Announced Its Starlight Replacement
 
 Streaming TV, The Boys
