@@ -1,3 +1,421 @@
+# The Boys Officially Announced Its Starlight Replacement
+
+Streaming TV, The Boys
+
+Thu, 25 Jun 2026 20:31:23 GMT
+
+https://screenrant.com/the-boys-confirm-starlight-replacement-marie/
+
+After Starlight's happy ending in The Boys season 5, she's unlikely to return in the franchise, but thankfully, her replacement is already confirmed.
+---------
+
+# 10 Horror Movies You Must Watch Before Evil Dead Burn
+
+Movies, Evil Dead, Evil Dead Burn, Evil Dead Rise, Evil Dead II, The Cabin in the Woods, Ready or Not, The Descent, Cabin Fever, Terrifier 2, Hereditary, Drag Me to Hell, The Exorcist
+
+Thu, 25 Jun 2026 20:31:23 GMT
+
+https://screenrant.com/horror-movies-to-watch-before-evil-dead-burn/
+
+Horror fans worldwide adore the old and new Evil Dead movies. Here is a selection you may enjoy if you can't wait for the release of Evil Dead Burn.
+---------
+
+# 19 Years Later, The Sopranos Officially Returns With Major New Release This December
+
+TV, The Sopranos
+
+Thu, 25 Jun 2026 20:29:30 GMT
+
+https://screenrant.com/the-sopranos-4k-remaster-dvd-box-set-release-december-2026/
+
+19 years after The Sopranos aired its series finale, it is making a return to screens with a new release from Warner Bros. Discovery.
+---------
+
+# 30 Years Later, Friends' Most Important Episode Is Still Surprisingly Controversial
+
+Classic Movies, Friends
+
+Thu, 25 Jun 2026 20:15:21 GMT
+
+https://screenrant.com/friends-the-one-with-the-prom-video-controversial-30-years-later/
+
+Friends has many iconic episodes that were key to the characters' stories, among them one that, 30 years after it aired, is quite controversial.
+---------
+
+# The Snyderverse Is Officially Dead As Darkseid Enters James Gunn's DCU
+
+Streaming TV, DC Universe
+
+Thu, 25 Jun 2026 19:49:38 GMT
+
+https://screenrant.com/mister-miracle-darkseid-james-gunn-dcu-ends-snyderverse/
+
+Darkseid has officially been confirmed to join James Gunn's DC Universe in one of their most anticipated titles, making a Snyderverse return unlikely.
+---------
+
+# Hulu’s New Action Video Game Adaptation Casts Stephen King Alum In Major Role
+
+TV, Far Cry, Lizzy Caplan
+
+Thu, 25 Jun 2026 19:44:23 GMT
+
+https://screenrant.com/far-cry-show-fx-hulu-cast-lizzy-caplan/
+
+Hulu is developing a TV adaptation of a popular video game, and the series just announced a new cast member who comes from the world of Stephen King.
+---------
+
+# Dutton Ranch’s Future Is Uncertain After Paramount+’s Season 2 Decision
+
+Network TV, Dutton Ranch, Yellowstone
+
+Thu, 25 Jun 2026 19:31:21 GMT
+
+https://screenrant.com/dutton-ranch-season-2-uncertain-chad-feedhan-exit/
+
+Paramount+ has officially sealed the fate of Dutton Ranch season 2, but its future remains uncertain regarding the specific details about the show.
+---------
+
+# Avatar: The Last Airbender Season 2 Rotten Tomatoes Score Debuts With Franchise Record After 18 Years
+
+TV, Avatar: The Last Airbender, Avatar: The Last Airbender - Season 2
+
+Thu, 25 Jun 2026 19:28:56 GMT
+
+https://screenrant.com/avatar-the-last-airbender-season-2-netflix-rotten-tomatoes-score-debut/
+
+Netflix's live-action Avatar: The Last Airbender season 2 Rotten Tomatoes score debuts with a franchise record after 18 years, dating back to 2008.
+---------
+
+# Avatar: The Last Airbender Season 2 Review: Netflix Finally Gets It Right
+
+TV, Avatar: The Last Airbender
+
+Thu, 25 Jun 2026 19:28:01 GMT
+
+https://screenrant.com/video/avatar-season-2-review-netflix-finally-gets-it-right/
+
+Avatar Season 2 Review: Netflix Finally Gets It Right. After a divisive first season, Netflix's Avatar: The Last Airbender returns with stronger storytelling, richer world-building, and some of the franchise's best live-action performances.
+---------
+
+# Emma Roberts’ Fantasy Cult Classic Getting TV Sequel Series 20 Years Later
+
+TV, Aquamarine, Emma Roberts, Disney+
+
+Thu, 25 Jun 2026 19:25:27 GMT
+
+https://screenrant.com/emma-roberts-aquamarine-tv-sequel-development-disney-plus/
+
+Emma Roberts is officially returning for a TV sequel to her fantasy cult classic movie that's currently in development for Disney+ and Disney Channel.
+---------
+
+# 5 Forgotten Fantasy Action Movies That Are Perfect From Start to Finish
+
+Movies, Fantasy
+
+Thu, 25 Jun 2026 20:31:16 GMT
+
+https://www.cbr.com/fantasy-action-movies-no-one-remembers-list/
+
+The fantasy genre is always remembered for movies like Lord of the Rings, but there are some perfect fantasy action films fans forgot.
+---------
+
+# Spider-Man Legend Reveals Alternate Version Of Iconic Kraven The Hunter Story
+
+CBR Exclusives, Spider-Man, kraven the hunter
+
+Thu, 25 Jun 2026 20:18:06 GMT
+
+https://www.cbr.com/spider-man-interview-jm-dematteis-kraven-the-hunter-what-if/
+
+J.M. DeMatteis speaks to CBR about his What If...? take on Kraven's Last Hunt!
+---------
+
+# 5 Forgotten 2010s Anime Series That Are Masterpieces From Start to Finish
+
+Anime, Cross Game, Kids on the Slope
+
+Thu, 25 Jun 2026 20:15:13 GMT
+
+https://www.cbr.com/forgotten-2010s-anime-series-masterpieces-start-to-finish/
+
+The 2010s were an important decade for anime that don't always get their due, despite marking the debut of forgotten gems like Kids on the Slope.
+---------
+
+# Say Goodbye to The Big Bang Theory as HBO Pulls the Plug on a Sitcom Era
+
+TV, Stuart Fails to Save the Universe, HBO Max, Sitcoms, The Big Bang Theory
+
+Thu, 25 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/hbo-stuart-fails-to-save-the-universe-ends-big-bang-theory-sitcom-era/
+
+HBO's new spin-off officially leaves behind traditional sitcoms like The Big Bang Theory and Young Sheldon.
+---------
+
+# Marvel's Ultimate Universe: Finale #1 Introduces All-New X-Men Team Ahead of MCU Return
+
+Comics, X-Men
+
+Thu, 25 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/marvel-ultimate-universe-finale-1-secret-society-x-men/
+
+A new dawn for the X-Men emerges.
+---------
+
+# Lionsgate Is Officially Rebooting 27-Year-Old Horror Classic With New Movie
+
+Movies, Horror, The Blair Witch Project
+
+Thu, 25 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/lionsgate-blair-witch-project-franchise-horror-reboot/
+
+Slated for a September 2027 release, Lionsgate is officially rebooting The Blair Witch Project for a new generation of horror fans.
+---------
+
+# DC’s New Green Lantern Channels Sailor Moon’s 90s Magical Girl Style
+
+Anime, My Adventures With Superman, Sailor Moon, Green Lantern
+
+Thu, 25 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/sailor-moon-my-adventures-with-green-lantern/
+
+DC Comics fans now have their first look at My Adventures with Green Lantern, and Jessica Cruz's anime makeover turns her into a DC's Sailor Moon.
+---------
+
+# 10 Top Spider-Man Comics of the 2000s
+
+Comics, Spider-Man
+
+Thu, 25 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/best-spider-man-comics-of-the-2000s/
+
+The 2000s was an era of reinvention for Spider-Man, and 10 stories in particular helped him remain one of the most popular comic characters going.
+---------
+
+# Brendan Fraser's Raunchy New Tubi Show Drops Adults-Only First Look
+
+TV, Breaking Bear, Breaking Bad
+
+Thu, 25 Jun 2026 19:46:13 GMT
+
+https://www.cbr.com/breaking-bear-tubi-streaming-premiere-date-official-trailer/
+
+Brendan Fraser and Sarah Michelle Gellar lead the cast of the chaotic new series that spoofs Breaking Bad.
+---------
+
+# Jackass: Best and Last Debuts With Record RT Score
+
+Movies, Jackass: Best and Last, Rotten Tomatoes
+
+Thu, 25 Jun 2026 19:13:09 GMT
+
+https://www.cbr.com/jackass-best-and-last-rotten-tomatoes-score/
+
+The fifth and apparently final Jackass movie sets a Rotten Tomatoes record.
+---------
+
+# Netflix Quietly Built a 13-Part Thriller Franchise That Continues to Crush Streaming
+
+TV Features, Netflix, Harlan Coben, I Will Find You, Run Away
+
+Thu, 25 Jun 2026 20:07:15 GMT
+
+https://collider.com/netflix-harlan-coben-thriller-franchise-streaming-success/
+
+Since 2018, Netflix has been quietly building Harlan Coben’s expansive thriller franchise, and it just got a new addition.
+---------
+
+# Steven Spielberg’s New Sci-Fi Thriller Officially Passes 2008 Alien Invasion Remake
+
+Movie News, Keanu Reeves, The Day the Earth Stood Still, Steven Spielberg, Disclosure Day
+
+Thu, 25 Jun 2026 20:00:13 GMT
+
+https://collider.com/disclosure-day-steven-spielberg-sci-fi-movie-box-office-overtakes-keanu-reeves-day-the-earth-stood-still/
+
+Steven Spielberg's Disclosure Day has overtaken The Day the Earth Stood Still, starring Keanu Reeves, at the domestic box office. Find out more.
+---------
+
+# 5 Clint Eastwood Western Movies That Are Still 10/10 Masterpieces
+
+Movie, Clint Eastwood, Western, Unforgiven, Sergio Leone
+
+Thu, 25 Jun 2026 19:53:13 GMT
+
+https://collider.com/clint-eastwood-western-movie-masterpieces/
+
+A Fistful of Dollars, The Good, the Bad, and the Ugly, Unforgiven, and more make up our list of Clint Eastwood Western movies that are masterpieces.
+---------
+
+# ‘Far Cry’ Just Took a Huge Step Toward Becoming TV’s Wildest Game Adaptation
+
+TV News, Lizzy Caplan, Noah Hawley, Rob Mac, FX
+
+Thu, 25 Jun 2026 19:34:12 GMT
+
+https://collider.com/far-cry-fx-series-lizzy-caplan-cast/
+
+Lizzy Caplan has joined FX’s Far Cry, the Noah Hawley and Rob Mac anthology series based on Ubisoft’s video game franchise.
+---------
+
+# 10 Animated Movies That Are Perfect From the First Scene to the Last
+
+Movie, Animation, Toy Story, Spirited Away
+
+Thu, 25 Jun 2026 19:33:25 GMT
+
+https://collider.com/animated-movies-perfect-first-scene-to-last/
+
+From Disney classics like The Lion King to Studio Ghibli sensations like Spirited Away, these animated masterpieces are perfect from beginning to end.
+---------
+
+# ‘Reacher’ Replacement Action Thriller Outruns Bad Reviews on Prime Video
+
+Movie News, Prime Video, Tom Clancy's Jack Ryan: Ghost War, Jack Ryan, John Krasinski
+
+Thu, 25 Jun 2026 19:30:14 GMT
+
+https://collider.com/jack-ryan-ghost-war-prime-video-streaming-milestone-30-days/
+
+Prime Video's new action movie, Jack Ryan: Ghost War, has passed a major streaming milestone while fans wait for Reacher to return. Find out more.
+---------
+
+# 20 Years Later, 'Aquamarine' Is Officially Back
+
+TV News, Aquamarine, Emma Roberts, Disney+
+
+Thu, 25 Jun 2026 19:28:31 GMT
+
+https://collider.com/disney-plus-aquamarine-reboot-series-emma-roberts-returning/
+
+Aquamarine is officially back, with Disney+ rebooting the fantasy movie as a series with Emma Roberts returning.
+---------
+
+# Disney’s First Massive Fantasy Movie of 2026 Arrives in 2 Weeks
+
+Movie News, Moana, Moana 2, Dwayne Johnson
+
+Thu, 25 Jun 2026 19:00:14 GMT
+
+https://collider.com/2026-biggest-fantasy-movie-moana-dwayne-johnson-release-date-july-10-disney/
+
+Moana, which is a heavy contender for the most successful fantasy movie of 2026, arrives in theaters around the world in just two weeks.
+---------
+
+# Apple TV’s Forgotten 6-Part Gothic Romance Is One of the Most Impressive Shows of the Decade
+
+TV Features, The Essex Serpent, Claire Danes, Tom Hiddleston, Apple TV
+
+Thu, 25 Jun 2026 18:58:15 GMT
+
+https://collider.com/apple-tv-forgotten-best-romance-miniseries-essex-serpent/
+
+The Essex Serpent is a 6-part Apple TV Gothic romance led by Claire Danes and Tom Hiddleston, and it deserves far more attention.
+---------
+
+# AMC’s 4-Part Crime Thriller Masterpiece Is Officially Becoming Even Easier to Stream
+
+TV Features, Dark Winds, Zahn McClarnon, Netflix, AMC
+
+Thu, 25 Jun 2026 18:30:13 GMT
+
+https://collider.com/dark-winds-season-4-amc-crime-thriller-netflix-streaming-july-2026/
+
+Season 4 of AMC's critically acclaimed neo-Western crime thriller Dark Winds is officially heading to Netflix next month.
+---------
+
+# New Samurai Epic Hailed as Instant Crime Thriller Classic Gets "Stunning" First Trailer
+
+Movie News, The Samurai and the Prisoner
+
+Thu, 25 Jun 2026 20:22:50 GMT
+
+https://movieweb.com/samurai-and-the-prisoner-official-trailer/
+
+The upcoming samurai epic from director Kiyoshi Kurosawa has been described as "Shōgun meets Agatha Christie."
+---------
+
+# Liam Neeson Action Thriller That Roger Ebert Loved Is Leaving Free Streaming
+
+Movie News, The Grey, Liam Neeson, Coming/Leaving Streaming, Action, Thriller
+
+Thu, 25 Jun 2026 20:00:19 GMT
+
+https://movieweb.com/liam-neeson-the-grey-free-streaming-july-2026/
+
+Live or die on this day.
+---------
+
+# HBO Max's 100% Rated Sci-Fi Thriller Returns in First Look at Season 2
+
+TV News, Common Side Effects, HBO Max
+
+Thu, 25 Jun 2026 19:47:45 GMT
+
+https://movieweb.com/hbo-max-adult-swim-common-side-effects-first-look-season-2/
+
+Teased in first-look Season 2 photos, this HBO Max sci-fi thriller shows what happens when a shady corporation accidentally creates a cure-all drug.
+---------
+
+# Hulu's Best Show Officially Returns With Perfect Rotten Tomatoes Score
+
+TV News, Hulu, The Bear, Rotten Tomatoes
+
+Thu, 25 Jun 2026 19:25:23 GMT
+
+https://movieweb.com/the-bear-hulu-rotten-tomatoes-score/
+
+One of the best shows in Hulu history is back, and it comes with a perfect rating on Rotten Tomatoes for its new season.
+---------
+
+# 47 Years Later, Cult-Classic Supernatural Series Returning in All-New Format
+
+TV News, Phantasm
+
+Thu, 25 Jun 2026 19:21:54 GMT
+
+https://movieweb.com/phantasm-franchise-tv-show-reboot/
+
+The 'Phantasm' series is reportedly being revived as a TV series.
+---------
+
+# 'Shrek' Origin Spin-Off Officially Confirms Release Date
+
+Movie News, Shrek, Donkey
+
+Thu, 25 Jun 2026 19:15:55 GMT
+
+https://movieweb.com/shrek-spin-off-donkey-release-date/
+
+Eddie Murphy's "Donkey' film lands a June 2028 release date ahead of the Fourth of July weekend.
+---------
+
+# Taylor Sheridan's Hit Action Thriller Officially Sets New Summer Release
+
+TV News, Marshals, Taylor Sheridan, Yellowstone
+
+Thu, 25 Jun 2026 18:50:51 GMT
+
+https://movieweb.com/taylor-sheridan-marshals-season-1-blu-ray-release/
+
+The hit neo-western has already earned a second season renewal.
+---------
+
+# 'The Office' Spin-Off Officially Sets Return Date in First Teaser
+
+TV News, The Paper
+
+Thu, 25 Jun 2026 18:34:54 GMT
+
+https://movieweb.com/the-paper-season-2-release-date/
+
+'The Paper' Season 2 returns to Peacock on September 9, 2026.
+---------
+
 # DC Officially Reveals Hal Jordan Is Dead In New Shared Universe Ahead Of HBO's Lanterns
 
 Streaming TV, Masked Recs
