@@ -1,3 +1,245 @@
+# Lord Of The Rings Officially Returns August 2026 With Fan Favorite Characters
+
+Gaming, The Lord of the Rings, Magic: The Gathering
+
+Fri, 26 Jun 2026 05:01:19 GMT
+
+https://screenrant.com/lord-of-the-rings-hobbit-universes-beyond/
+
+The Lord of the Rings is finally back in 2026 with a brand-new project, and it is bringing with it a host of fan-favorite characters.
+---------
+
+# The Wheel Of Time's Official 2027 Return Leaves Fans With Concerns
+
+Gaming, The Wheel of Time, Triple-A Games
+
+Fri, 26 Jun 2026 04:30:21 GMT
+
+https://screenrant.com/wheel-of-time-2027-return-fans-react/
+
+The Wheel of Time is set to come back in a big way in 2027, but the latest return of the series is having fans ponder its future.
+---------
+
+# Pokémon's Long-Awaited Return To Hoenn Is What We've Longed For
+
+Gaming, Pokemon
+
+Fri, 26 Jun 2026 04:02:22 GMT
+
+https://screenrant.com/pokemon-hoenn-return-lego-rayquaza-gamers-react/
+
+Pokémon's Hoenn region from Ruby and Sapphire is beloved, and it's great to see fans of the Gen 3 games getting a nice return to Hoenn thanks to LEGO.
+---------
+
+# Doctor Who Showrunner Reveals River Song & Twelfth Doctor Original Ending
+
+TV, Doctor Who
+
+Fri, 26 Jun 2026 03:30:58 GMT
+
+https://screenrant.com/doctor-who-river-song-twelfth-doctor-original-end/
+
+Former showrunner Steven Moffat discussed a Doctor Who scene that would have ended the Twelfth Doctor and River Song's story in a different way.
+---------
+
+# Apple TV’s Hit Detective Show Has Surprisingly Levelled Up Despite A Risky Genre Shift
+
+Streaming TV, Masked Recs
+
+Fri, 26 Jun 2026 03:00:20 GMT
+
+https://screenrant.com/apple-tv-sugar-genre-shift-season-2-level-up/
+
+Apple TV’s highly-acclaimed detective show radically shifted genres in season 1, but it has still managed to significantly level up in its new season.
+---------
+
+# Final Fantasy 15 Official Return Splits Gamers
+
+Gaming, Final Fantasy XV, Final Fantasy, Nintendo Switch 2
+
+Fri, 26 Jun 2026 03:00:20 GMT
+
+https://screenrant.com/final-fantasy-15-official-return-teased-switch-2/
+
+Final Fantasy 15 may be making an official return to modern consoles, but gamers are split on whether or not it even deserves a second chance.
+---------
+
+# Prime Video’s Reacher Quietly Gets Better After Switching Main Characters
+
+Streaming TV, Reacher, Neagley
+
+Fri, 26 Jun 2026 03:00:12 GMT
+
+https://screenrant.com/reacher-neagley-main-character-switch-improves-franchise/
+
+Prime Video’s Reacher franchise is finally switching main characters in an upcoming series, and it is hard not to see how this makes it even better.
+---------
+
+# Bleach's Final Season Is Here After 22 Years, And Its First 3 Episodes Are All 10/10s
+
+Anime, Bleach, Bleach: Thousand Year Blood War
+
+Fri, 26 Jun 2026 02:56:16 GMT
+
+https://screenrant.com/bleach-final-season-preview-review/
+
+Bleach is back and better than ever.
+---------
+
+# Every Major Stage of Sung Jinwoo's Evolution in Solo Leveling, Ranked
+
+Anime, Solo Leveling
+
+Fri, 26 Jun 2026 03:45:13 GMT
+
+https://www.cbr.com/solo-leveling-sung-jinwoo-designs-evolution-stages-list/
+
+Sung Jinwoo undergoes several stages of growth throughout the main Solo Leveling storyline, and his Jeju Island version is actually the worst of them.
+---------
+
+# Memento Is Still Steven Spielberg's All-Time Favorite Christopher Nolan Movie
+
+Movies, Memento, steven spielberg, Christopher Nolan
+
+Fri, 26 Jun 2026 03:45:13 GMT
+
+https://www.cbr.com/steven-spielberg-all-time-favorite-christopher-nolan-movie-memento/
+
+One early Christopher Nolan movie remains Steven Spielberg's all-time favorite, and this inventive thriller is not easy to forget.
+---------
+
+# Ocarina of Time Switch 2 Remake Reveals First Look at One of Zelda's Best Dungeons
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Fri, 26 Jun 2026 03:15:13 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-switch-2-remake-teaser-trailer-forest-temple-theory/
+
+Zelda: Ocarina of Time’s teaser actually showed off more about the Switch 2 remake than fans thought, especially in that mysterious wall tapestry.
+---------
+
+# Shrek 5 Officially Revives the Greatest Fantasy Franchise of All Time
+
+Movies, Shrek 5, Shrek, Fantasy
+
+Fri, 26 Jun 2026 03:15:13 GMT
+
+https://www.cbr.com/shrek-5-revives-greatest-fantasy-franchise-ever/
+
+A highly anticipated 2027 movie officially revives one of the biggest fantasy franchises in Hollywood history.
+---------
+
+# 5 Greatest Dark Shonen Anime Ever Made
+
+Anime, Attack On Titan, Death Note, Shonen, shonen anime
+
+Fri, 26 Jun 2026 02:45:12 GMT
+
+https://www.cbr.com/greatest-dark-shonen-anime-ever/
+
+Fans might associate shonen anime with upbeat and optimistic stories, yet these shonen titles best demonstrate the demographic's dark side.
+---------
+
+# 5 Greatest Movies Based on The Odyssey
+
+Movies, The Odyssey
+
+Fri, 26 Jun 2026 02:45:12 GMT
+
+https://www.cbr.com/greatest-movies-based-on-the-odyssey-list/
+
+Many filmmakers have reimagined Homer's Odyssey, and these five films show that the best adaptations are the ones that take the biggest risks.
+---------
+
+# 8 Perfect Thriller Movies That Nobody Remembers Today
+
+Movie, Thriller, Martha Marcy May Marlene, The Game, Michael Clayton
+
+Fri, 26 Jun 2026 04:51:14 GMT
+
+https://collider.com/perfect-thrillers-nobody-remembers/
+
+The Game, Michael Clayton, Martha Marcy May Marlene, Triangle, and more make up our list of perfect thriller movies that nobody remembers today.
+---------
+
+# 8 Perfect HBO Miniseries With 6 Episodes or Less
+
+TV, TV Miniseries, Chernobyl, We Own This City, Olive Kitteridge
+
+Fri, 26 Jun 2026 04:07:12 GMT
+
+https://collider.com/hbo-perfect-miniseries-6-episodes-or-less-ranked/
+
+Chernobyl and I Know This Much Is True are some of the HBO miniseries that prove you don't need more than six episodes to tell a compelling story.
+---------
+
+# 10 Heaviest Drama Movies of All Time
+
+Movie, Requiem for a Dream, Harakiri, Mysterious Skin, Sátántangó
+
+Fri, 26 Jun 2026 04:05:13 GMT
+
+https://collider.com/heaviest-drama-movies-all-time-ranked/
+
+The heaviest drama movies of all time include downbeat classics like Scenes from a Marriage, The Seventh Continent, and Requiem for a Dream.
+---------
+
+# The 10 Greatest Crime Movies Based on Books, Ranked
+
+Movie, Crime, The Irishman, The Godfather, No Country for Old Men
+
+Fri, 26 Jun 2026 03:12:15 GMT
+
+https://collider.com/best-crime-movies-based-on-best-ranked/
+
+Many of the greatest crime movies of all time find their origins being adapted from books, such as The Godfather, L.A. Confidential, and Jackie Brown.
+---------
+
+# One of the Greatest Sci-Fi Space Epic TV Shows Is Hiding on Paramount+
+
+TV Features, Battlestar Galactica, Katee Sackhoff, Edward James Olmos, Mary McDonnell
+
+Fri, 26 Jun 2026 03:04:15 GMT
+
+https://collider.com/battlestar-galactica-greatest-sci-fi-space-epic-paramount-plus/
+
+Battlestar Galactica remains a timeless sci-fi classic, exploring complex themes of war, politics, and humanity's struggle for survival in the face of extinction.
+---------
+
+# 10 Unexpected Movies That Are Just As Good as the All-Time Great Masterpieces
+
+Movie, Jeanne Dielman, 23, quai du Commerce, 1080 Bruxelles, The Lord of the Rings: The Two Towers, Star Wars: Episode V - The Empire Strikes Back, Pan's Labyrinth
+
+Fri, 26 Jun 2026 03:03:14 GMT
+
+https://collider.com/unexpected-movies-as-good-as-masterpieces/
+
+Although they hardly ever come up when discussing cinema's best achievements, movies like Andrei Rublev and Pan's Labyrinth are worthy of the title.
+---------
+
+# 'The Bear' Season 5 Ending, Explained
+
+Features, The Bear
+
+Fri, 26 Jun 2026 03:15:04 GMT
+
+https://movieweb.com/the-bear-season-5-ending-explained/
+
+'The Bear' stars Jeremy Allen White, Ayo Edebiri, and Ebon Moss-Bachrach, and Season 5, which is the final season, is now streaming on Hulu/Disney+.
+---------
+
+# 'House of the Dragon' Already Suffering Setback From Season 2 After One Episode
+
+TV News, House of the Dragon, HBO Max
+
+Fri, 26 Jun 2026 03:03:22 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-episode-1-setback/
+
+After one episode of 'House of the Dragon' Season 3, the hit 'Game of Thrones' spin-off is already experiencing some issues.
+---------
+
 # The Bear's Final Season Just Revisited A Season 1 Classic
 
 Streaming TV, The Bear
