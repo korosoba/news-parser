@@ -1,3 +1,289 @@
+# Netflix's Avatar: The Last Airbender Season 2 RT Audience Score Debuts To Negative Record
+
+TV, Avatar: The Last Airbender
+
+Fri, 26 Jun 2026 23:46:10 GMT
+
+https://screenrant.com/netflix-avatar-the-last-airbender-season-2-rotten-tomatoes-audience-score-debut/
+
+Netflix's Avatar: The Last Airbender season 2 has been released, but the new arrival has broken a massive negative record for the fantasy franchise.
+---------
+
+# 10 Scariest TV Episodes Ever Made
+
+Classic TV, Horror
+
+Fri, 26 Jun 2026 23:30:22 GMT
+
+https://screenrant.com/scariest-tv-episodes-of-all-time/
+
+From Buffy's silent episode to Black Mirror's robo-dog episode to The Twilight Zone's doll episode, these are the scariest TV episodes of all time.
+---------
+
+# DC Officially Updates Batman: The Animated Series' Opening Credits For 2026
+
+Streaming TV, Batman: The Animated Series, Batman: Caped Crusader, Batman
+
+Fri, 26 Jun 2026 23:15:20 GMT
+
+https://screenrant.com/batman-the-animated-series-opening-titles-remake-caped-crusader/
+
+Batman: The Animated Series' opening credits are getting an update thanks to its spiritual successor, Prime Video's Batman: Caped Crusader.
+---------
+
+# Steam New 10/10 Freebie Hailed As “Best Game Ever” You Can Beat In One Sitting
+
+Gaming, Steam, PC
+
+Fri, 26 Jun 2026 23:02:09 GMT
+
+https://screenrant.com/steam-10-out-of-10-free-game-june-2026/
+
+This new Steam game that has proven to be a smash hit with fans is not only being heralded as one of the best games ever, but it's also super short.
+---------
+
+# Apple TV's 3-Part Star Wars Replacement Is So Good, It's Already Renewed For Season 4
+
+Streaming TV, Masked Recs
+
+Fri, 26 Jun 2026 23:02:09 GMT
+
+https://screenrant.com/foundation-star-wars-replacement-apple-tv-four-seasons/
+
+Modern Star Wars projects haven't always hit the mark, but an AppleTV+ sci-fi manages to capture the magic the galaxy far, far away is missing.
+---------
+
+# Supergirl's Next DC Universe Appearance Is Already Confirmed (It’s Not Supergirl 2)
+
+Movies, Supergirl, DC Universe
+
+Fri, 26 Jun 2026 22:42:26 GMT
+
+https://screenrant.com/supergirl-next-appearance-dc-universe-supergirl-2/
+
+The Supergirl movie is now in theaters, and the next DC Universe appearance from Milly Alcock's Kara has already been revealed, and it is coming soon.
+---------
+
+# Christopher Nolan's The Odyssey Box Office Opening Projections Revealed
+
+Movies, The Odyssey
+
+Fri, 26 Jun 2026 23:46:48 GMT
+
+https://www.cbr.com/the-odyssey-tracking-numbers-opening/
+
+The opening projections for The Odyssey have been revealed less than a month ahead of its debut.
+---------
+
+# Uncle Iroh's Most Powerful Avatar Line Is More Meaningful Than Ever
+
+Anime, Avatar: The Last Airbender, uncle iroh
+
+Fri, 26 Jun 2026 23:45:14 GMT
+
+https://www.cbr.com/uncle-iroh-most-powerful-avatar-line-still-meaningful/
+
+Uncle Iroh's greatest quote from Avatar: The Last Airbender remains etched in the memories of fans to this day.
+---------
+
+# One Piece Launches New Elbaf Series Line With July Bandai Release
+
+Anime, One Piece, merchandise
+
+Fri, 26 Jun 2026 23:30:14 GMT
+
+https://www.cbr.com/one-piece-elbaf-arc-giant-bash-vol-1/
+
+One Piece fans are about to get the chance to pick up some of the hottest figures and collectibles of 2026.
+---------
+
+# PlayStation Plus Free Games for July and August Get Official Update
+
+Games, PlayStation 5
+
+Fri, 26 Jun 2026 23:26:24 GMT
+
+https://www.cbr.com/playstation-plus-free-games-july-august-2026/
+
+An update is revealed for the free games for PS Plus subscribers for the next two months.
+---------
+
+# 5 Masterpiece Anime for Adults Better Than Monster
+
+Anime, Monster, Neon Genesis Evangelion, Mushi-Shi
+
+Fri, 26 Jun 2026 23:15:14 GMT
+
+https://www.cbr.com/masterpiece-anime-better-than-monster/
+
+Naoki Urasawa's Monster is a renowned psychological thriller, but there are other strong anime that are even more likely to resonate with adults!
+---------
+
+# Invader Zim's Return Is Finally Confirmed, But There's a Catch
+
+Comics, Invader Zim
+
+Fri, 26 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/invader-zim-boom-studios-comics-confirmed/
+
+The twisted alien from planet Irk is back, and he's ready to go on hilarious new adventures in the coming months.
+---------
+
+# 5 Darkest Neo-Noir Thrillers Of the Last 50 Years
+
+Movies, Thriller, Se7en, L.A. Confidential
+
+Fri, 26 Jun 2026 23:00:14 GMT
+
+https://www.cbr.com/darkest-neo-noir-thrillers-list/
+
+Since Hollywood’s golden age, film noir has served as the heart of the thriller genre, serving up many of the darkest movies of the last 50 years.
+---------
+
+# It's Official, ABC Is Finally Replacing CSI
+
+TV, CSI, CSI: NY, CSI: Miami, CSI: Cyber, CSI: Vegas, The Naturalist, ABC, CBS
+
+Fri, 26 Jun 2026 22:52:23 GMT
+
+https://www.cbr.com/abc-the-naturalist-new-series-replace-csi/
+
+A new show from ABC is likely to embody qualities of CBS's iconic CSI franchise, with a fresh procedural series in development for the rival network.
+---------
+
+# Paramount’s 99-Minute Superhero Reboot With 95% RT Is Officially a Free Streaming Hit
+
+Movie News, Paramount, Teenage Mutant Ninja Turtles: Mutant Mayhem, Superhero, Action
+
+Fri, 26 Jun 2026 23:45:15 GMT
+
+https://collider.com/teenage-mutant-ninja-turtles-mutant-mayhem-free-streaming-success-pluto-tv-june-2026/
+
+A visually stunning superhero reboot is making waves on free streaming, with an even bigger franchise future already mapped out.
+---------
+
+# 3 Binge-Worthy Prime Video Series To Watch This Weekend (June 27-28)
+
+TV, See You at Work Tomorrow!, Hotel Costiera, Undone, Prime Video
+
+Fri, 26 Jun 2026 23:43:14 GMT
+
+https://collider.com/prime-video-shows-binge-weekend-june-27/
+
+Hotel Costiera, Undone, and See You at Work Tomorrow! make up our list of the best Prime Video series to binge the weekend of June 27th, 2026.
+---------
+
+# Stephen King’s $110M Sci-Fi Experiment Is Officially One of the Biggest Streaming Hits of 2026
+
+Movie News, The Running Man, Stephen King, Glen Powell, Paramount Plus
+
+Fri, 26 Jun 2026 23:30:15 GMT
+
+https://collider.com/stephen-king-sci-fi-movie-the-running-man-paramount-plus-streaming-success-june-2026/
+
+Stephen King's $100 million sci-fi experiment is quietly becoming one of the biggest streaming success stories of the year.
+---------
+
+# Taylor Sheridan’s 6-Part Western Masterpiece Is Taking Over a New Frontier
+
+TV News, The Madison, Taylor Sheridan, Paramount Plus, Kurt Russell
+
+Fri, 26 Jun 2026 23:15:14 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-replacement-the-madison-streaming-success-itunes-june-2026/
+
+Taylor Sheridan's The Madison is surging on streaming charts weeks after concluding its debut season. Find out more here.
+---------
+
+# This Lovecraftian Horror Movie Ending Still Haunts Everyone Who Sees It
+
+Movie Features, Backrooms, The Borderlands, Horror, Found Footage
+
+Fri, 26 Jun 2026 23:05:14 GMT
+
+https://collider.com/the-borderlands-2013-horror-movie-ending-explained/
+
+The Borderlands horror movie ending explained: this terrifying 2013 found footage film delivers one of the most disturbing finales in horror history.
+---------
+
+# The Most Ambitious Fantasy Movie of 2026 Comes to Life in New Jaw-Dropping Look
+
+Movie News, Wildwood, LAIKA Animation, Peyton Elizabeth Lee, Jacob Tremblay
+
+Fri, 26 Jun 2026 23:00:33 GMT
+
+https://collider.com/wildwood-laika-behind-the-scenes-video/
+
+Watch a new Wildwood featurette showing how LAIKA created the film’s fantasy adventure ahead of its October 23 theatrical release.
+---------
+
+# Brad Pitt's 116-Minute Sci-Fi Thriller Quietly Hits a Major Milestone Before New Sequel
+
+Movie News, Brad Pitt, World War Z, Paramount Plus, Zombie
+
+Fri, 26 Jun 2026 23:00:14 GMT
+
+https://collider.com/world-war-z-paramount-plus-streaming-milestone-170-days/
+
+Brad Pitt’s World War Z has crossed a major Paramount+ streaming milestone following news of a sequel in development.
+---------
+
+# Nintendo Is Sitting on the Next Big Sci-Fi Franchise After ‘Galaxy’
+
+Movie Features, Star Fox, Nintendo, The Super Mario Galaxy Movie, Glen Powell
+
+Fri, 26 Jun 2026 22:48:13 GMT
+
+https://collider.com/nintendo-next-big-franchise-after-galaxy-star-fox-science-fiction/
+
+The Super Mario Galaxy Movie and Nintendo’s acclaimed new Star Fox game prove the franchise deserves a bigger future.
+---------
+
+# Disney’s 10/10 Fantasy Saga Is Taking Over the World Ahead of New Episodes
+
+TV News, Percy Jackson & the Olympians, Percy Jackson & The Olympians, Disney+, Fantasy
+
+Fri, 26 Jun 2026 22:45:13 GMT
+
+https://collider.com/percy-jackson-and-the-olympians-streaming-success-disney-plus-june-2026/
+
+Disney's hit fantasy answer to Harry Potter is taking over the world once again ahead of its expected 2026 return.
+---------
+
+# 19 Years Later, HBO's Best Series of All Time Getting a Surprise New Release
+
+TV News, The Sopranos, Wise Guy: David Chase and the Sopranos, James Gandolfini, David Chase
+
+Fri, 26 Jun 2026 23:19:50 GMT
+
+https://movieweb.com/the-sopranos-4k-blu-ray-complete-collection-release/
+
+'The Sopranos' is officially getting a 4K UltraHD release of the entire series.
+---------
+
+# DC's R-Rated Batman Movie Trilogy Can Finally Fix Christopher Nolan's Series
+
+Features, Batman: Knightfall Part 1: Knightfall, Batman, Christopher Nolan, The Dark Knight
+
+Fri, 26 Jun 2026 23:00:20 GMT
+
+https://movieweb.com/dc-batman-knightfall-trilogy-dark-knight/
+
+The R-rated Batman trilogy releasing this year could right the wrongs of 'The Dark Knight Rises' and finally give us a comic book-accurate Bane.
+---------
+
+# Taylor Sheridan Defeated on Streaming by Nic Cage's New Action Series
+
+TV News, Dutton Ranch, Spider-Noir
+
+Fri, 26 Jun 2026 22:59:13 GMT
+
+https://movieweb.com/taylor-sheridan-dutton-ranch-streaming-defeated-spider-noir/
+
+'Dutton Ranch' proved to be no match for 'Spider-Noir' in ratings, though the competition isn't over just yet.
+---------
+
 # Spider-Man: Brand New Day’s Latest Trailer Reactions Split Marvel Fans
 
 Movies, Spider-Man: Brand New Day
