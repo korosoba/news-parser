@@ -1,3 +1,289 @@
+# The Bear's Final Season Just Revisited A Season 1 Classic
+
+Streaming TV, The Bear
+
+Fri, 26 Jun 2026 02:30:20 GMT
+
+https://screenrant.com/the-bear-season-5-references-season-1-review-episode/
+
+The Bear takes a leaf out of the first season's biggest success as it prepares to wrap up and say goodbye to an incredible cast of characters.
+---------
+
+# Transformers' Best Future Is Officially Still Happening, Despite Franchise Confusion
+
+Movies, Transformers
+
+Fri, 26 Jun 2026 02:15:21 GMT
+
+https://screenrant.com/transformers-8-happening-best-future/
+
+While there is still a lot of franchise confusion surrounding what happens next for Transformers, it seems like its best future is still in the cards.
+---------
+
+# 5 Marvel Weapons Stronger Than Mjolnir
+
+Marvel Comics, Thor, Marvel
+
+Fri, 26 Jun 2026 02:07:05 GMT
+
+https://screenrant.com/marvel-weapons-stronger-mjolnir-thor/
+
+Some of Marvel's most powerful and destructive items are actually melee weapons that Thor has often crossed paths with, overshadowing Mjolnir.
+---------
+
+# 10 Coolest Zelda Villains Across The History Of The Franchise, Ranked
+
+Gaming, The Legend of Zelda
+
+Fri, 26 Jun 2026 02:00:33 GMT
+
+https://screenrant.com/zelda-coolest-villains-ranked/
+
+There's more to The Legend of Zelda's villain roster than just Ganondorf. Here are the 10 coolest antagonists in the series, including Zant and Vaati.
+---------
+
+# The Bear Season 5 Officially Addresses The Show's Cameo Problem
+
+Streaming TV, The Bear
+
+Fri, 26 Jun 2026 02:00:32 GMT
+
+https://screenrant.com/the-bear-season-5-solves-cameo-problem/
+
+The Bear is a spectacular series, but there is one major issue with how it has used cameos in the past, but season 5 finally fixed it for good.
+---------
+
+# Red Dead Redemption Meets Jurassic Park In New Game You Can Try Free Now
+
+Gaming, Jurassic Park, Red Dead Redemption, PC
+
+Fri, 26 Jun 2026 01:00:21 GMT
+
+https://screenrant.com/red-dead-redemption-meets-jurassic-park-lost-ages/
+
+This brand-new game that blends Red Dead Redemption and the legendary Jurassic Park offers a unique dinosaur experience that can be tried for free.
+---------
+
+# X-Men '97 Gives A Mutant From One Of Marvel's Most Acclaimed Comic Stories Their Screen Debut
+
+Streaming TV, X-Men '97
+
+Fri, 26 Jun 2026 00:30:20 GMT
+
+https://screenrant.com/x-men-97-season-2-mutant-maggie-cameo/
+
+X-Men '97 season 2 will include the first onscreen appearance of a mutant from one of Marvel Comics' most popular stories in the last few decades.
+---------
+
+# 7 Years Ago, Attack on Titan Broke Shonen Anime's One Sacred Rule And Changed The Genre Forever
+
+Anime, Attack on Titan, Attack On Titan
+
+Fri, 26 Jun 2026 00:00:21 GMT
+
+https://screenrant.com/attack-on-titan-broke-shonen-one-rule-eren-villain/
+
+Attack on Titan shattered expectations in 2018 with one scene that changed the shonen genre forever, and here is how it has affected everything.
+---------
+
+# The Lord Of The Rings Meets The Witcher In Prime Video's 3-Part High Fantasy Series
+
+Streaming TV, Masked Recs
+
+Fri, 26 Jun 2026 00:00:21 GMT
+
+https://screenrant.com/the-wheel-of-time-amazon-witcher-meets-lord-of-the-rings/
+
+High fantasy needs more than a high budget for a great TV adaptation, and one recent TV series on Prime Video discovered this, but there is hope.
+---------
+
+# Two Mind-Bending RPGs Just Got Huge Switch 2 Upgrades
+
+Gaming, Nintendo Switch 2, Citizen Sleeper, Indie Games
+
+Fri, 26 Jun 2026 00:00:21 GMT
+
+https://screenrant.com/switch-2-new-rps-citizen-sleeper-upgrade/
+
+Nintendo's newest console continues to receive upgraded versions of previously released games, and now two sci-fi RPGs look better than ever.
+---------
+
+# 10 Classic '90s Games That Are Unplayable Today
+
+Games, retro games
+
+Fri, 26 Jun 2026 02:30:12 GMT
+
+https://www.cbr.com/classic-90s-games-aged-the-worst/
+
+Games like Final Fantasy 6 are some of the best titles of the '90s, but that doesn't mean they're fun to play today.
+---------
+
+# 5 Greatest N64 Games Ever Made
+
+Games, GoldenEye 007, The Legend of Zelda, Nintendo
+
+Fri, 26 Jun 2026 02:16:13 GMT
+
+https://www.cbr.com/official-greatest-n64-games-ever-made/
+
+The N64 hit homes in 1996, and these five classic games are why Nintendo fans are still playing it in 2026.
+---------
+
+# Clash of Clans is Giving Football Fans the Crossover They Didn't Know They Needed
+
+Games, Clash of Clans
+
+Fri, 26 Jun 2026 02:10:13 GMT
+
+https://www.cbr.com/clash-of-clans-football-crossover/
+
+Clash of Clans is teaming up with some of the greatest footballers of all time to introduce a brand-new part of the game that fans already love.
+---------
+
+# Dutton Ranch Officially Abandons the Most Problematic Taylor Sheridan Trend (& It's About Time)
+
+TV, Yellowstone, Dutton Ranch
+
+Fri, 26 Jun 2026 02:00:25 GMT
+
+https://www.cbr.com/yellowstone-dutton-ranch-beulah-jackson-sexual-assault/
+
+Taylor Sheridan's latest Yellowstone spinoff finally reverses one of the television creator's most controversial trends in Dutton Ranch Episode 7.
+---------
+
+# 5 Masterpiece Martial Arts Movies Better Than Kill Bill
+
+Movies, Kill Bill, Action
+
+Fri, 26 Jun 2026 02:00:25 GMT
+
+https://www.cbr.com/perfect-martial-arts-movies-better-than-kill-bill-list/
+
+Fans of Tarantino's Kill Bill know how great it is, but these martial arts masterpieces prove the genre has even more incredible films to offer.
+---------
+
+# Starz Officially Finds Its Outlander Replacement Just 1 Month After the Finale
+
+TV, STARZ
+
+Fri, 26 Jun 2026 01:56:41 GMT
+
+https://www.cbr.com/starz-orders-the-wolf-king/
+
+Starz has a replacement series for Outlander fans following the hit show's recent series finale.
+---------
+
+# It's Official, One Piece Is Over As We Know It
+
+Anime, One Piece, The One Piece, Netflix
+
+Fri, 26 Jun 2026 01:46:13 GMT
+
+https://www.cbr.com/one-piece-over-as-fans-know-it-netflix-wit-studios/
+
+One Piece has existed for decades, but Netflix's reimagining of the iconic shonen giant will welcome in new fans and change the way viewers see it.
+---------
+
+# 10 Greatest Dark Fantasy Games of All Time
+
+Games, Dark Souls, The Legend of Zelda, The Witcher
+
+Fri, 26 Jun 2026 01:30:13 GMT
+
+https://www.cbr.com/official-greatest-dark-fantasy-games-of-all-time/
+
+Dark fantasy is an immensely popular genre across all media, and video games like Dark Souls and Expedition 33 have made the most of it.
+---------
+
+# Christopher Nolan's The Odyssey Skips Screenings for Social Media Influencers
+
+Movies, The Odyssey
+
+Fri, 26 Jun 2026 01:28:31 GMT
+
+https://www.cbr.com/the-odyssey-skips-social-media-influencer-screenings/
+
+Christopher Nolan's The Odyssey takes an unusual turn with its release strategy.
+---------
+
+# Absolute Catwoman Is Changing The Absolute Universe Forever
+
+Comics, DC Comics, Absolute Batman, Batman
+
+Fri, 26 Jun 2026 01:00:14 GMT
+
+https://www.cbr.com/absolute-catwoman-changing-the-absolute-universe-forever/
+
+This brand-new Absolute Batman spin-off is introducing major changes for the fan-favorite alternate DC Universe.
+---------
+
+# 'Sugar's Laura Donnelly Breaks Her Silence on a 'Werewolf by Night' Sequel
+
+Exclusives, Sugar, Laura Donnelly, Werewolf by Night, Apple TV
+
+Fri, 26 Jun 2026 02:35:14 GMT
+
+https://collider.com/sugar-season-2-laura-donnelly-apple-tv/
+
+Sugar Season 2's Laura Donnelly talks to Collider about working with Colin Farrell, her upcoming Kennedy biopic series, and Werewolf by Night 2.
+---------
+
+# 10 Best '90s Sci-Fi Shows, Ranked
+
+TV, Sci-Fi, 1990s, The X-Files, Futurama
+
+Fri, 26 Jun 2026 02:30:13 GMT
+
+https://collider.com/best-90s-sci-fi-shows-ranked/
+
+The '90s were a pivotal decade for sci-fi TV shows, featuring iconic series like The X-Files and Futurama.
+---------
+
+# FX’s 5-Part Thriller Hit Is a Certified Late-Night Streaming Sensation
+
+TV Features, Damages, FX, Glenn Close, Rose Byrne
+
+Fri, 26 Jun 2026 01:36:14 GMT
+
+https://collider.com/damages-fx-thriller-apple-tv-store-streaming/
+
+FX's Damages, starring Glenn Close and Rose Byrne, revolutionized the legal thriller and set the stage for the golden age of prestige TV.
+---------
+
+# Stephen King and George R.R. Martin's Darkest Stories Were Adapted in This Perfect Sci-Fi Revival
+
+TV Features, The Outer Limits, Sci-Fi, George R.R. Martin, Stephen King
+
+Fri, 26 Jun 2026 00:13:13 GMT
+
+https://collider.com/outer-limits-stephen-king-george-rr-martin-darkest-stories/
+
+George R.R. Martin and Stephen King found their perfect sci-fi home for their dark stories in the 1995 revival of The Outer Limits.
+---------
+
+# 'Supergirl' Divides DCU Fans Over Head-Scratching Final Battle Choice
+
+Movie News, Supergirl
+
+Fri, 26 Jun 2026 01:21:37 GMT
+
+https://movieweb.com/supergirl-final-music-battle-fan-backlash/
+
+DC fans shared conflicting reactions to a major decision made for the final battle scene in DC Studios' 'Supergirl.'
+---------
+
+# Banned 2026 Revenge Thriller Already Streaming Free for Limited Time
+
+Movie News, Citizen Vigilante, Armie Hammer, Uwe Boll
+
+Fri, 26 Jun 2026 00:19:43 GMT
+
+https://movieweb.com/citizen-vigilante-armie-hammer-streaming-free/
+
+'Citizen Vigilante' director Uwe Boll posted the entire Armie Hammer movie to social media himself.
+---------
+
 # Netflix's 10/10 Action Series Gets 1/10 For Realism
 
 Streaming TV, Masked Recs
