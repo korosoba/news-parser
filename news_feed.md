@@ -1,3 +1,399 @@
+# Silent Hill f Free Download Officially Available Now
+
+Gaming, Silent Hill f, Triple-A Games
+
+Fri, 26 Jun 2026 15:08:21 GMT
+
+https://screenrant.com/silent-hill-f-free-dlc-june-2026/
+
+Even if you're done with Silent Hill f at this point, it's worth logging back in and grabbing a free download, with no strings attached.
+---------
+
+# After 32 Years, Toei Animation Is Finally Fixing Akira Toriyama's Biggest Dragon Ball Mistake
+
+Anime, Dragon Ball Super: The Galactic Patrol, Dragon Ball
+
+Fri, 26 Jun 2026 15:00:21 GMT
+
+https://screenrant.com/dragon-ball-super-galactic-patrol-z-fighters-mistake/
+
+The Dragon Ball franchise has plenty going for itself as proven by its legion of adoring fans, but its anime return will fix one glaring issue soon.
+---------
+
+# Eric Dane's Action-Packed 5-Part Series Now On Netflix Is The Perfect Summer Binge
+
+Streaming TV, Masked Recs
+
+Fri, 26 Jun 2026 15:00:21 GMT
+
+https://screenrant.com/the-last-ship-on-netflix-perfect-summer-tv-series-watch/
+
+Eric Dane starred in The Last Ship, a five-part series that showcased the late actor as more than just a Grey's Anatomy heartthrob in primetime.
+---------
+
+# Marvel's Best Running Joke Just Got Even Better
+
+Comics, Marvel
+
+Fri, 26 Jun 2026 14:56:23 GMT
+
+https://screenrant.com/marvel-best-running-joke-facade-spider-man-fantastic-four/
+
+Marvel commits to the bit.
+---------
+
+# Avatar: The Last Airbender Season 2’s Timeline Officially Explains A Major Aang Change
+
+Streaming TV, Avatar: The Last Airbender
+
+Fri, 26 Jun 2026 14:45:21 GMT
+
+https://screenrant.com/avatar-the-last-airbender-season-2-timeline-aang-age-change/
+
+Netflix's adaptation of Avatar: The Last Airbender includes a major jump between seasons 1 and 2, but it was needed to fix this version's timeline.
+---------
+
+# 30 Years Ago, The X-Files Released Its Most Disturbing Episode
+
+Classic TV, The X-Files
+
+Fri, 26 Jun 2026 14:30:21 GMT
+
+https://screenrant.com/the-x-files-most-disturbing-episode-home-still-holds-up/
+
+The monster-of-the-week sci-fi show was known for delivering chilling episodes week after week, but this season 4 episode remains its most unsettling.
+---------
+
+# July 3 Will Be A Great Day For JoJo's Bizarre Adventure: Steel Ball Run Fans
+
+Anime, Jojo's Bizarre Adventure, JoJo's Bizarre Adventure
+
+Fri, 26 Jun 2026 14:27:57 GMT
+
+https://screenrant.com/jojos-bizarre-adventure-steel-ball-run-july-3-big-day/
+
+More Steel Ball Run news is coming soon.
+---------
+
+# Warner Bros. Officially Rebooting 60-Year-Old Classic Gothic Horror Series With Over 1000 Episodes
+
+TV, Dark Shadows, Horror, Warner Bros.
+
+Fri, 26 Jun 2026 14:24:24 GMT
+
+https://screenrant.com/warner-bros-dark-shadows-reboot-animated-series-details/
+
+Warner Bros. is officially developing a new reboot of a classic gothic horror series with over 1000 episodes 60 years after the show first launched.
+---------
+
+# LEGO's Latest Gaming Collab Is One We Never Saw Coming
+
+Gaming, LEGO, Kingdom Come: Deliverance
+
+Fri, 26 Jun 2026 14:22:15 GMT
+
+https://screenrant.com/lego-kingdom-come-deliverance-official-release/
+
+In the past few years, LEGO has partnered with all sorts of video games, producing some of its most unique sets, but this next collab is unexpected.
+---------
+
+# Pokémon Officially Returns To Kanto October 2026 For Series' 30th Anniversary
+
+Gaming, Pokemon, Triple-A Games
+
+Fri, 26 Jun 2026 14:14:42 GMT
+
+https://screenrant.com/pokemon-adventures-red-blue-30th-anniversary-kanto/
+
+Kanto is a great place to return to, and everyone, including The Pokémon Company, knows that it's still one of the most popular regions to date.
+---------
+
+# Say Goodbye to The Mandalorian and Grogu as Next Star Wars Movie Debuts First Footage
+
+Movies, Star Wars: Starfighter, Star Wars, Sci-Fi
+
+Fri, 26 Jun 2026 15:06:26 GMT
+
+https://www.cbr.com/star-wars-starfighter-cineeurope-footage/
+
+Star Wars is moving on into a new era.
+---------
+
+# Lilo & Stitch Returns With a New Story This November Ahead of Sequel
+
+Movies, Lilo & Stitch, Lilo & Stitch 2
+
+Fri, 26 Jun 2026 15:01:14 GMT
+
+https://www.cbr.com/lilo-stitch-short-film-lilo-scratch/
+
+Disney+ also just surprised fans with a new release for a special occasion.
+---------
+
+# 7 Great Action Anime That Aren't Shonen, Ranked
+
+Anime, Code Geass: Lelouch of the Rebellion, Gurren Lagann, Sailor Moon
+
+Fri, 26 Jun 2026 15:00:14 GMT
+
+https://www.cbr.com/official-best-action-anime-arent-shonen/
+
+These amazing action anime prove that shonen isn't the only genre with fluid fight choreography and high-octane battle sequences.
+---------
+
+# Elle Cast: Why Young Elle Woods Matters Today
+
+TV, Elle
+
+Fri, 26 Jun 2026 14:56:41 GMT
+
+https://www.cbr.com/video/elle-cast-why-young-elle-woods-matters-today/
+
+Elle stars June Diane Raphael and Tom Everett Scott discuss Prime Video's Elle, including whether the iconic Bend and Snap will appear and why a teenage Elle Woods is exactly the role model audiences need today.
+---------
+
+# Marvel Makes Viral Announcement About X-Men '97 Just Ahead of Season 2 Debut
+
+TV, Marvel, Marvel Comics, MCU, X-Men, X-Men '97
+
+Fri, 26 Jun 2026 14:51:11 GMT
+
+https://www.cbr.com/marvel-x-men-97-season-3-release-window/
+
+Marvel just went viral with a massive update about X-Men '97.
+---------
+
+# Sanrio Gives Hello Kitty, Kuromi & More 5 New Macaron Designs
+
+Anime, sanrio, Hello Kitty, merchandise
+
+Fri, 26 Jun 2026 14:45:34 GMT
+
+https://www.cbr.com/sanrio-hello-kitty-macaron-design-release/
+
+Sanrio comes out with a freshly-baked line of dessert-inspired merch to sweeten the life of every Hello Kitty fan.
+---------
+
+# 25 Years Ago, Grant Morrison Changed the X-Men Forever
+
+Comics, X-Men, CSBG, look back
+
+Fri, 26 Jun 2026 14:31:29 GMT
+
+https://www.cbr.com/x-men-grant-morrison-frank-quitely-25th-anniversary/
+
+A look back to 2001, when Grant Morrison and Frank Quitely changed the X-Men forever
+---------
+
+# 3 American Hard Sci-Fi Shows That Can Be Called Untouchable
+
+TV, Counterpart, Sci-Fi, For All Mankind, The Expanse
+
+Fri, 26 Jun 2026 14:30:12 GMT
+
+https://www.cbr.com/untouchable-american-hard-sci-fi-shows-list/
+
+From showing us the future to taking us to alternative universes, these American hard sci-fi shows are top examples in the genre.
+---------
+
+# Reasons Gon Freecss Should Return in Hunter X Hunter
+
+Anime, Hunter X Hunter, Hunter x Hunter
+
+Fri, 26 Jun 2026 14:15:13 GMT
+
+https://www.cbr.com/hunter-x-hunter-reasons-gon-freecss-should-return/
+
+Having lost his Nen, Gon Freecss is no longer the protagonist of Hunter X Hunter, but he needs to return and become the face of the franchise again.
+---------
+
+# Warner Bros. Officially Rebooting '60s Gothic Cult TV Show With New Animated Series
+
+TV, Dark Shadows
+
+Fri, 26 Jun 2026 14:01:19 GMT
+
+https://www.cbr.com/warner-bros-rebooting-dark-shadows-tv-show/
+
+The show was previously adapted into several feature films.
+---------
+
+# ‘Tulsa King’ and ‘Mayor of Kingstown’ Crossover Officially Teased by Taylor Sheridan Star
+
+TV News, Tulsa King, Frank Grillo, Mayor of Kingstown, Taylor Sheridan
+
+Fri, 26 Jun 2026 15:08:11 GMT
+
+https://collider.com/tulsa-king-mayor-of-kingstown-crossover-taylor-sheridan-frank-grillo/
+
+Tulsa King star Frank Grillo is teasing the ultimate Taylor Sheridan crossover for another series returning soon for its final season.
+---------
+
+# Prime Video’s New 'Bosch' Replacement Scores Almost 1 Billion Minutes Watched in 1 Week
+
+TV News, Spider-Noir, Nicolas Cage, Prime Video, Spider-Man: Brand New Day
+
+Fri, 26 Jun 2026 15:01:25 GMT
+
+https://collider.com/prime-video-spider-noir-streaming-success-851-minutes-watched-first-week/
+
+Ahead of Spider-Man: Brand New Day, superhero fans tuned in to Prime Video's Spider-Noir series in large numbers, according to the Nielsen report.
+---------
+
+# ‘Hannibal’ Officially Returns to Netflix in 4 Weeks
+
+TV News, Hannibal, Netflix, NBC, Bryan Fuller
+
+Fri, 26 Jun 2026 14:56:23 GMT
+
+https://collider.com/hannibal-streaming-release-date-netflix-july-27-2026/
+
+All three seasons of the critically acclaimed Hannibal series, starring Mads Mikkelsen and Hugh Dancy, will be available on Netflix this summer.
+---------
+
+# Taylor Sheridan’s Biggest ‘Yellowstone’ Spin-Off of 2026 Gets Official New Release in August
+
+Movie News, Marshals, Taylor Sheridan, CBS, Paramount Plus
+
+Fri, 26 Jun 2026 14:50:27 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-spin-off-marshals-season-1-blu-ray-release-date-august-25-2026/
+
+CBS has officially announced a new release coming this August for Taylor Sheridan's most-watched Yellowstone spin-off of 2026.
+---------
+
+# 'Scavengers Reign' Artist Returns With a Breathtaking New Sci-Fi Graphic Novel Sneak Peek [Exclusive]
+
+Exclusives, Scavengers Reign, Graphic Novel, Sci-Fi, Drama
+
+Fri, 26 Jun 2026 14:00:14 GMT
+
+https://collider.com/scavengers-reign-artist-graphic-novel-peaceful-remission-sneak-peek-images/
+
+An extended preview of Jonathan Djob Nkondo's new sci-fi graphic novel Peaceful Remission shows off the Scavengers Reign artist's breathtaking style.
+---------
+
+# 'The Bear's Final Season Earns Its Michelin Stars as a Masterpiece | Review
+
+TV Reviews, The Bear, Hulu, FX, Jeremy Allen White
+
+Fri, 26 Jun 2026 13:15:13 GMT
+
+https://collider.com/the-bear-season-5-review/
+
+The Bear's fifth and final season proves the series' strength lies in its cast and focus on the kitchen's chaotic heart.
+---------
+
+# Mahershala Ali's Genre-Bending Reunion With His Former 'Blade' Director Gets Thrilling First Trailer
+
+Movie News, Mahershala Ali, Action, Giancarlo Esposito, John Cho
+
+Fri, 26 Jun 2026 13:05:26 GMT
+
+https://collider.com/your-mother-trailer-mahershala-ali-blade-director-thriller/
+
+The first trailer for the action thriller Your Mother Your Mother Your Mother sees the walls close in on Mahershala Ali and his family.
+---------
+
+# 'Dutton Ranch's Mysterious Phone Call Just Set Up a Game-Changing Season 1 Finale
+
+Exclusives, Dutton Ranch, Paramount Plus, Western, Drama
+
+Fri, 26 Jun 2026 13:00:13 GMT
+
+https://collider.com/dutton-ranch-episode-8-joaquin-phone-call-juan-pablo-raba-interview/
+
+Dutton Ranch's Juan Pablo Raba discusses Joaquin's mysterious phone call in Episode 8 and how it sets up a game-changing Season 1 finale.
+---------
+
+# Win Tickets to Our Early 'Star City' Season Finale Screening and Q&A With Creators and Alice Englert
+
+Exclusives, Screening, Star City, For All Mankind, Apple TV
+
+Fri, 26 Jun 2026 12:55:59 GMT
+
+https://collider.com/star-city-season-1-finale-screening-alice-englert-ben-nedivi-matt-wolpert-q-and-a/
+
+Details on how to enter for your chance to win free tickets to our early Star City Season 1 finale screening and Q&amp;A with Ben Nedivi and Matt Wolpert.
+---------
+
+# 3 Binge-Worthy Netflix Series To Watch This Weekend (June 27-28)
+
+TV, Killing Eve, Avatar: The Last Airbender, Sirens, Netflix
+
+Fri, 26 Jun 2026 12:41:14 GMT
+
+https://collider.com/netflix-shows-binge-weekend-june-27/
+
+Avatar: The Last Airbender, Killing Eve, and Sirens make up our list of the best Netflix series to binge the weekend of July 27th, 2026.
+---------
+
+# Is Gojo Really Dead in 'JuJutsu Kaisen'?
+
+Features, Anime, Action, Jujutsu Kaisen
+
+Fri, 26 Jun 2026 15:00:19 GMT
+
+https://movieweb.com/jujutsu-kaisen-gojo-dead-explained/
+
+The death of Gojo in the 'Jujutsu Kaisen' manga has been a topic of discussion for some time. How accurate is it really?
+---------
+
+# Mahershala Ali Goes Full Blade in First Trailer for Bloody New Action Thriller
+
+Movie News, Mahershala Ali
+
+Fri, 26 Jun 2026 14:39:50 GMT
+
+https://movieweb.com/mahershala-ali-your-mother-your-mother-your-mother-trailer/
+
+Mahershala Ali is a hitman on a journey to protect his family in the action-packed trailer for Amazon's new thriller.
+---------
+
+# New James Bond Favorite Confirms Casting Status for Amazon Reboot
+
+Movie News, James Bond, James Bond 26, james bond, Louis Partridge
+
+Fri, 26 Jun 2026 14:00:28 GMT
+
+https://movieweb.com/james-bond-louis-partridge-casting-status/
+
+New James Bond favorite Louis Partridge has addressed the 007 speculation around him, confirming the current casting status for the Amazon reboot.
+---------
+
+# Mark Wahlberg's 124-Minute Action Thriller Shoots to Success on Streaming
+
+Movie News, Mark Wahlberg, Shooter, Hot on Streaming, Action
+
+Fri, 26 Jun 2026 14:00:19 GMT
+
+https://movieweb.com/mark-wahlberg-shooter-streaming-hit-paramout-plus-june-2026/
+
+Nearly two decades after its release, Wahlberg's revenge-fueled action thriller directed by Antoine Fuqua is a hit on streaming.
+---------
+
+# It’s Officially the End of an Era for Hulu
+
+Features, The Bear, Hulu
+
+Fri, 26 Jun 2026 14:00:19 GMT
+
+https://movieweb.com/the-bear-season-5-ending-hulu/
+
+Hulu is one of the most popular streaming services that has released some memorable TV shows, from dramas to sitcoms to thrillers.
+---------
+
+# Starz Finds Its 'Outlander' Replacement Series in New Fantasy Adaptation
+
+TV News, STARZ, Outlander
+
+Fri, 26 Jun 2026 13:29:16 GMT
+
+https://movieweb.com/starz-wolf-king-romantasy-tanya-saracho/
+
+'Vida' creator Tanya Saracho is reteaming with Starz to adapt Lauren Palphreyman's bestselling 'The Wolf King' romantasy trilogy.
+---------
+
 # Hogwarts Legacy 2 Official Setting Shown Off In Epic Trailer
 
 Gaming, Hogwarts Legacy, Harry Potter
