@@ -1,3 +1,377 @@
+# Hulu's 5-Part Series With Near-Perfect RT Score Repulses Expert For 1 Mistake
+
+TV, Masked Recs
+
+Fri, 26 Jun 2026 17:11:25 GMT
+
+https://screenrant.com/the-bear-pastry-cooking-accuracy-camari-mick-expert-reaction/
+
+A Michelin-starred pastry chef criticizes a popular Hulu show over its handling of frosting, and she evaluates the show's overall accuracy.
+---------
+
+# Mark Wahlberg's Shockingly Underrated Action War Movie Hits New Streaming Home Soon
+
+Movies, Masked Recs
+
+Fri, 26 Jun 2026 17:08:05 GMT
+
+https://screenrant.com/mark-wahlberg-lone-survivor-movie-streaming-release-date-peacock/
+
+A gritty war movie starring Mark Wahlberg is set to move to a new streaming home as it remains an underrated pick for the actor and the genre.
+---------
+
+# Stardew Valley "Sequel" Gets Official Release Window Update
+
+Gaming, Stardew Valley, Triple-A Games
+
+Fri, 26 Jun 2026 17:05:25 GMT
+
+https://screenrant.com/stardew-valley-haunted-chocolatier-release-window/
+
+As Eric "ConcernedApe" Barone toils away at the follow-up to Stardew Valley, we just got a massive update that clues us in on the release window.
+---------
+
+# Pokémon Officially Drops New Look At Latest Winds & Waves Monsters
+
+Gaming, Pokemon Winds and Waves, Pokemon, Nintendo, Nintendo Switch 2
+
+Fri, 26 Jun 2026 17:00:21 GMT
+
+https://screenrant.com/pokemon-winds-waves-new-look-starter-monsters/
+
+In anticipation of the Gen 10 Pokémon games, we have finally gotten a new look at some of the upcoming Pokémon Winds and Waves 'mons.
+---------
+
+# Blade Runner Gets The Anime Treatment In A 13-Episode Series That's Perfect To Binge
+
+Streaming TV, Masked Recs
+
+Fri, 26 Jun 2026 17:00:21 GMT
+
+https://screenrant.com/blade-runner-black-lotus-anime-bingeable/
+
+The Blade Runner franchise has dabbled in many formats, and it got the anime treatment in a 13-episode completely bingeable TV show.
+---------
+
+# Cartoon Network's Hit Avatar: The Last Airbender Replacement Series Officially Returns With New Episodes Next Month
+
+TV, Iyanu, Avatar: The Last Airbender
+
+Fri, 26 Jun 2026 16:57:50 GMT
+
+https://screenrant.com/iyanu-the-war-of-two-princes-july-2026-hbo-max-release-date/
+
+Cartoon Network's hit replacement for Avatar: The Last Airbender officially returns with new episodes next month, promising plenty of action.
+---------
+
+# Criminal Minds: Evolution Won't Stop Repeating Its Most Frustrating Pattern
+
+Network TV, Criminal Minds
+
+Fri, 26 Jun 2026 16:46:21 GMT
+
+https://screenrant.com/criminal-minds-evolution-wont-stop-repeating-its-most-frustrating-pattern/
+
+In Criminal Minds: Evolution, the BAU's reliance on tying every case to Elias Voit feels frustrating and undermines the freshness of the weekly cases.
+---------
+
+# Steam Summer Sale: 10 Best Games To Buy This Year
+
+Gaming, Steam, Triple-A Games, PC
+
+Fri, 26 Jun 2026 16:42:43 GMT
+
+https://screenrant.com/steam-summer-sale-best-deals-games-2026/
+
+Steam's annual summer extravaganza is back, and the best discounts of the sale are certainly worth a look (and most likely a purchase).
+---------
+
+# Millie Bobby Brown & David Harbour Officially Starring In New Spy Thriller Netflix Series
+
+TV, Stranger Things, Millie Bobby Brown, David Harbour
+
+Fri, 26 Jun 2026 16:37:57 GMT
+
+https://screenrant.com/david-harbour-millie-bobby-brown-netflix-spy-series-reunion-details/
+
+Millie Bobby Brown and David Harbour are joining forces after the high-profile ending of Stranger Things to unfurl a twisty, classified mystery.
+---------
+
+# You're Running Out Of Time To Watch Guy Ritchie's The Beekeeper Meets Heat Action Thriller
+
+Movies, Masked Recs
+
+Fri, 26 Jun 2026 16:35:21 GMT
+
+https://screenrant.com/wrath-man-beekeeper-meets-heat-guy-ritchie-tubi/
+
+You can watch this bloody Guy Ritchie action thriller - which has shades of Heat and The Beekeeper - for free right now, but time is running out.
+---------
+
+# Elle Cast on Walkmans, Tater Tots & the '90s
+
+TV, Elle
+
+Fri, 26 Jun 2026 17:00:13 GMT
+
+https://www.cbr.com/video/elle-cast-on-walkmans-tater-tots-the-90s/
+
+Elle stars Jacob Moskovitz and Zac Looker dive into the funniest behind-the-scenes moments from Prime Video's new prequel series, including their favorite pieces of '90s nostalgia.
+---------
+
+# Evangelion Launches 3 New Limited-Edition Mecha Watches for International Release
+
+Anime, Neon Genesis Evangelion, merchandise
+
+Fri, 26 Jun 2026 17:00:13 GMT
+
+https://www.cbr.com/evangelion-mecha-watch-garrack-international-release/
+
+A new collaborative trio of Neon Genesis Evangelion branded watches combine the Mecha from the anime with traditional Japanese artisanal beauty.
+---------
+
+# After Stranger Things Rift, Millie Bobby Brown & David Harbour Reunite In Netflix Spy Thriller
+
+TV, Stranger Things
+
+Fri, 26 Jun 2026 16:49:19 GMT
+
+https://www.cbr.com/millie-bobby-brown-david-harbour-netflix-spy-thriller-show/
+
+Rumors of a rift came out just before Stranger Things Season 5, but the two co-stars are working together again.
+---------
+
+# House of the Dragon Season 3 Debuts to Whopping 21M Viewers (But There's a Catch)
+
+TV, House of the Dragon, Game Of Thrones, A Knight Of The Seven Kingdoms, HBO Max
+
+Fri, 26 Jun 2026 16:35:36 GMT
+
+https://www.cbr.com/house-of-the-dragon-season-3-debuts-to-whopping-numbers-but-there-is-a-catch/
+
+There's a catch to the unreal numbers pulled in by House of the Dragon's return to HBO Max.
+---------
+
+# After 2-Year Wait, Animation Legend Genndy Tartakovsky's 'High-Octane Animated Action' Show Is Finally Greenlit
+
+TV, Adult Swim, Animation, Action
+
+Fri, 26 Jun 2026 16:21:44 GMT
+
+https://www.cbr.com/genndy-tartakovsky-heist-brothers-safari-adult-swim/
+
+The creator of Dexter's Laboratory, Samurai Jack, Primal, and Star Wars: Clone Wars returns to Adult Swim.
+---------
+
+# Forgotten Puritan Hero Officially Confirmed To Return and We Have an Exclusive Preview
+
+Comics, solomon kane
+
+Fri, 26 Jun 2026 16:18:46 GMT
+
+https://www.cbr.com/solomon-kane-lion-errant-puritan-exclusive-preview/
+
+In a CBR exclusive preview of Solomon Kane: The Lion Errant #1, see the iconic Robert E. Howard character on an adventure in India
+---------
+
+# 10 Hard Fantasy Movies to Watch Before Apple's Cosmere Universe
+
+Movies, Apple TV
+
+Fri, 26 Jun 2026 16:15:13 GMT
+
+https://www.cbr.com/perfect-hard-fantasy-movies-for-apple-cosmere-universe/
+
+Hard fantasy is making a comeback with an adaptation of Cosmere. These quality films are sure to set the tone for what's to come.
+---------
+
+# 10 Greatest Dark Fantasy Anime of the Last 10 Years
+
+Anime, Chainsaw Man, Hell's Paradise: Jigokuraku (2023)
+
+Fri, 26 Jun 2026 16:15:13 GMT
+
+https://www.cbr.com/greatest-dark-fantasy-anime-last-10-years/
+
+Dark fantasy anime like Chainsaw Man and Dororo prove that the genre is stronger than ever.
+---------
+
+# CBS Officially Gives Tracker a Long-Overdue Upgrade
+
+TV, Tracker
+
+Fri, 26 Jun 2026 16:00:13 GMT
+
+https://www.cbr.com/cbs-officially-gives-tracker-a-long-overdue-upgrade/
+
+CBS ushered in a massive upgrade to Colter Shaw's team in Tracker Season 3, revamping Justin Hartley's series in a single episode.
+---------
+
+# Doctor Who Return Reveals First Look at the New Doctor
+
+Comics, comic books, titan, Doctor Who / Whoniverse
+
+Fri, 26 Jun 2026 16:00:13 GMT
+
+https://www.cbr.com/doctor-whos-return-gets-a-first-look-at-new-doctor/
+
+This new multimedia events showcases the Doctors first battle with the Daleks.
+---------
+
+# ‘Supergirl’ Reveals the DCU’s Biggest Post-‘Superman’ Problem
+
+Movie Features, Supergirl, DCU, James Gunn
+
+Fri, 26 Jun 2026 17:04:15 GMT
+
+https://collider.com/supergirl-superman-dc-universe-problem-james-gunn/
+
+Supergirl reveals a growing problem for James Gunn’s DC Universe. Here’s why the franchise’s biggest challenge isn’t just one underwhelming movie.
+---------
+
+# Cancelled Sci-Fi Reboot Gets Massive Boost as Fans Campaign to Save 'Stargate'
+
+TV News, Stargate, Stargate SG-1, Science Fiction, Prime Video
+
+Fri, 26 Jun 2026 16:55:14 GMT
+
+https://collider.com/save-stargate-fan-campaign-times-square-billboards-amazon-mgm/
+
+Stargate fans bring #SaveStargate campaign to Times Square with billboards and a rally urging Amazon MGM Studios to revive the canceled series.
+---------
+
+# 'Stranger Things' Cast Officially Returns for New Netflix Spy Thriller
+
+TV News, Stranger Things, Millie Bobby Brown, David Harbour, Netflix
+
+Fri, 26 Jun 2026 16:48:34 GMT
+
+https://collider.com/stranger-things-reunion-millie-bobby-brown-david-harbour-netflix-spy-thriller/
+
+Millie Bobby Brown and David Harbour are set for a Stranger Things reunion with a new Netflix spy thriller being produced by A24.
+---------
+
+# Netflix Brings One of the Greatest Sci-Fi Franchises Ever Back to Life
+
+Movie News, Gundam, Sydney Sweeney, Netflix, Sci-Fi
+
+Fri, 26 Jun 2026 16:45:56 GMT
+
+https://collider.com/netflix-live-action-gundam-movie-sydney-sweeney-noah-centineo/
+
+Netflix’s live-action Gundam movie begins production, starring Sydney Sweeney & Noah Centineo in the sci-fi adaptation from Legendary & Bandai Namco.
+---------
+
+# 'Interview with the Vampire' Meets James Bond in the Fantasy Spy Thriller Taking Over Streaming
+
+TV News, AMC+, Thriller, Talamasca: The Secret Order, Anne Rice
+
+Fri, 26 Jun 2026 16:30:21 GMT
+
+https://collider.com/fantasy-spin-off-talamasca-the-secret-order-streaming-success-amc-plus-june-2026/
+
+Buried by cancellation, this supernatural spy thriller is staging an unexpected streaming comeback as curious viewers rediscover it.
+---------
+
+# ‘The Sopranos’ Officially Returns With Massive New Release
+
+TV News, The Sopranos, The Many Saints of Newark, James Gandolfini, HBO
+
+Fri, 26 Jun 2026 16:26:11 GMT
+
+https://collider.com/the-sopranos-complete-series-4k-ultra-hd-box-set-release-date/
+
+Experience the iconic crime series The Sopranos like never before with the new 4K  release, with all 86 episodes, behind-the-scenes content & more!
+---------
+
+# 6 Best Horror Books Without Movie or TV Adaptations
+
+Books and Comics, Horror, Books, Movie, Television
+
+Fri, 26 Jun 2026 16:06:14 GMT
+
+https://collider.com/best-horror-books-without-movie-or-tv-adaptations/
+
+There are a few classic horror books that haven't yet been adapted to film or television, including The Wolf's Hour, Revival, and House of Leaves.
+---------
+
+# Disney Officially Unveils New Pirates of the Caribbean Release
+
+Movie News, Pirates of the Caribbean, Pirates of the Caribbean 5, Pirates of the Caribbean: The Curse of the Black Pearl, Johnny Depp
+
+Fri, 26 Jun 2026 15:41:35 GMT
+
+https://collider.com/pirates-of-the-caribbean-disneyland-reopening-new-animatronic-upgrade/
+
+Disney officially re-opens Pirates of the Caribbean at Disneyland with a magical new upgrade.
+---------
+
+# The Novel Behind 2026’s Best Sci-Fi Masterpiece Is Taking Over the World 5 Years Later
+
+Books and Comics News, Project Hail Mary, Ryan Gosling, Andy Weir, Sci-Fi
+
+Fri, 26 Jun 2026 15:34:10 GMT
+
+https://collider.com/project-hail-mary-novel-andy-weir-biggest-sci-fi-novel-2026/
+
+The Project Hail Mary novel written by Andy Weir is officially the most-read novel of 2026, according to Goodreads.
+---------
+
+# Why ‘The Bear’ Cut Its Most Divisive Character For 7 Episodes of Season 5
+
+Features, The Bear
+
+Fri, 26 Jun 2026 17:01:18 GMT
+
+https://movieweb.com/the-bear-season-5-claire-absent/
+
+'The Bear' Season 5's eight episodes are now streaming on Hulu/Disney+ and airing weekly on FX.
+---------
+
+# Jonathan Majors Teams With 'Daily Wire' in First Trailer for 'Red Dawn'-Esque Action Thriller
+
+Movie News, Jonathan Majors
+
+Fri, 26 Jun 2026 16:58:47 GMT
+
+https://movieweb.com/jonathan-majors-the-daily-wire-run-hide-fight-infidels-trailer/
+
+Jonathan Majors stars as a Delta Force veteran in 'The Daily Wire's' 'Red Dawn' inspired action thriller.
+---------
+
+# Netflix Sci-Fi Series Dominates Streaming Charts Despite Sudden Cancellation
+
+TV News, The Boroughs, Netflix, Sci-Fi
+
+Fri, 26 Jun 2026 16:20:08 GMT
+
+https://movieweb.com/netflix-the-boroughs-topped-streaming-charts/
+
+Netflix's canceled show 'The Boroughs' claimed the No. 1 spot on the Nielsen U.S. streaming charts after viewership soared for the axed sci-fi series.
+---------
+
+# Henry Cavill's Unpredictable Action Thriller Is Officially a Global Smash
+
+Movie News, Henry Cavill, Night Hunter, Hot on Streaming, Action
+
+Fri, 26 Jun 2026 16:00:19 GMT
+
+https://movieweb.com/henry-cavill-night-hunter-global-streaming-hit-paramount-plus-june-2026/
+
+Eight years after its release, Cavill's box office flop that was panned by critics has become one of the biggest hits on streaming.
+---------
+
+# The Greatest Western Series of All Time Officially Returns to TV in 2 Weeks
+
+Features, Little House on the Prairie, Netflix, Western
+
+Fri, 26 Jun 2026 16:00:19 GMT
+
+https://movieweb.com/little-house-on-the-prairie-netflix-upcoming/
+
+One of the most popular Western TV series premiered several decades ago, and now a new version is arriving on streaming in two weeks.
+---------
+
 # Silent Hill f Free Download Officially Available Now
 
 Gaming, Silent Hill f, Triple-A Games
