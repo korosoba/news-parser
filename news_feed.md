@@ -1,3 +1,355 @@
+# Spider-Man: Brand New Day’s Latest Trailer Reactions Split Marvel Fans
+
+Movies, Spider-Man: Brand New Day
+
+Fri, 26 Jun 2026 22:30:53 GMT
+
+https://screenrant.com/spider-man-brand-new-day-trailer-marvel-comics-fans-split/
+
+Spider-Man Brand New Day's trailer has divided one of the MCU's largest target demographics, many of whom disagree with one major creative decision.
+---------
+
+# Supergirl Soundtrack Guide: Every Song & When They Play
+
+Superheroes, DC Universe, Supergirl
+
+Fri, 26 Jun 2026 22:30:22 GMT
+
+https://screenrant.com/supergirl-movie-soundtrack-song-guide/
+
+The Supergirl soundtrack is absolutely jam-packed with thrilling songs, reflecting the character’s brash attitude and iconic status throughout.
+---------
+
+# 5 Action Anime Better Than Solo Leveling
+
+Anime
+
+Fri, 26 Jun 2026 22:30:22 GMT
+
+https://screenrant.com/action-anime-better-than-solo-leveling/
+
+There's no denying Solo Leveling's status as one of the best action anime of the modern day, but even the hit series isn't better than these anime.
+---------
+
+# Prime Video's 10/10 Superhero Series Is Renewed For 2 More Seasons, But Still Deserves 2 More
+
+TV, Masked Recs
+
+Fri, 26 Jun 2026 22:30:22 GMT
+
+https://screenrant.com/invincible-renewed-seasons-5-6-prime-video-deserves-more/
+
+Prime Video's perfect superhero TV series is so good, the platform has already renewed it for two more action-packed seasons, but it needs more.
+---------
+
+# I Know Connor Storrie's True Role In Criminal Minds Season 19 (It Isn't What You Think)
+
+Network TV, Criminal Minds
+
+Fri, 26 Jun 2026 22:15:20 GMT
+
+https://screenrant.com/criminal-minds-connor-storrie-lance-kingston-true-role-theory/
+
+Connor Storrie has been a scene-stealer in Criminal Minds season 19, but his character's true potential will be revealed in his epic final appearance.
+---------
+
+# Zelda: Ocarina Of Time Remake’s Tapestry Shows Off A Weird New Hyrule Map
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda, Triple-A Games
+
+Fri, 26 Jun 2026 22:00:22 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-hyrule-map-teaser/
+
+I've spent a long time staring at the tapestry in the Ocarina of Time remake trailer, and I think it can tell us a bit about the reimagined classic.
+---------
+
+# Disney+ Is Now 2 Years Away From An Adaptation Of The 2000s' Best Banned Book Series
+
+Anime, Disney, Warrior Cats
+
+Fri, 26 Jun 2026 22:00:22 GMT
+
+https://screenrant.com/warrior-cats-disney-best-banned-book-series/
+
+Disney+ is now officially two years away from releasing the adaptation of the 2000's greaest banned book series that has over one hundred books in it.
+---------
+
+# Pike's Real Identity In The Legend Of Vox Machina Confirms A Years-Old Theory
+
+Streaming TV, The Legend of Vox Machina
+
+Fri, 26 Jun 2026 22:00:22 GMT
+
+https://screenrant.com/the-legend-of-vox-machina-pike-divine-blood-explained/
+
+The final episodes of The Legend of Vox Machina season 4 revealed Pike has divine blood, with confirms a long-standing theory about the character
+---------
+
+# 3 Best Shows To Watch On Netflix This Weekend (June 26–28)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Fri, 26 Jun 2026 21:52:23 GMT
+
+https://screenrant.com/best-netflix-shows-watch-weekend-june-26/
+
+Netflix just added 3 new shows that are built to binge this weekend, June 26–28, 2026, including action thrillers and a family-friendly docuseries.
+---------
+
+# Sekiro: No Defeat Is Berserk Meets Naruto, And It Looks Gorgeous In New Trailer
+
+Anime, Sekiro: No Defeat, Sekiro: Shadows Die Twice
+
+Fri, 26 Jun 2026 21:30:21 GMT
+
+https://screenrant.com/sekiro-no-defeat-anime-trailer-gorgeous/
+
+The upcoming anime adaptation of a beloved series is looking to include its trademarked action beautifully, but the newest trailer hints at more.
+---------
+
+# 5 Heaviest Video Games of All Time List
+
+Games, Video Games, Red Dead Redemption 2, The Last of Us
+
+Fri, 26 Jun 2026 22:15:14 GMT
+
+https://www.cbr.com/heaviest-video-games-all-time/
+
+These 5 video games will not only leave you in your feels, but will stick long after the credits roll.
+---------
+
+# We're Officially 9 Months Away From Godzilla x Kong: Supernova's Release
+
+Movies, Godzilla, King Kong, Godzilla x Kong: Supernova
+
+Fri, 26 Jun 2026 22:00:15 GMT
+
+https://www.cbr.com/godzilla-x-kong-supernova-monsterverse-return-2027/
+
+Two of the biggest marquee idols in the world return to the largest screens in the world in a matter of a few months.
+---------
+
+# Miles Morales Could Be the MCU's Next Biggest Star Thanks to One Simple Factor
+
+Comics, Spider-Man
+
+Fri, 26 Jun 2026 22:00:15 GMT
+
+https://www.cbr.com/miles-morales-ytasha-l-womack-interview/
+
+CBR was able to ask Ytasha L. Womack how she feels Miles Morales would fit into the broader MCU.
+---------
+
+# Horror's All-Time Scariest Movie Returns to Theaters Ahead of Reboot
+
+Movies, Texas Chain Saw Massacre
+
+Fri, 26 Jun 2026 21:56:48 GMT
+
+https://www.cbr.com/texas-chainsaw-massacre-return-theaters-august-2026/
+
+The horrifying horror flick dubbed by many as the scariest movie of all time is officially returning to the big screen.
+---------
+
+# PlayStation Deletes 500+ Purchased Movies In Sweeping Content Purge
+
+Movies, playstation network
+
+Fri, 26 Jun 2026 21:54:35 GMT
+
+https://www.cbr.com/playstation-deletes-purchased-movies-studio-canal/
+
+Affected movies include popular sci-fi classics like Terminator 2 and Total Recall.
+---------
+
+# 25 Best Female Characters in One Piece, Ranked
+
+Anime, Manga, One Piece
+
+Fri, 26 Jun 2026 21:45:14 GMT
+
+https://www.cbr.com/one-piece-best-female-characters/
+
+Nami, Nico Robin, and Boa Hancock are only three fantastic female characters that fans can enjoy in One Piece.
+---------
+
+# Only 3 Star Trek Movies Are Better Than the TV Show
+
+Movies, Star Trek
+
+Fri, 26 Jun 2026 21:30:14 GMT
+
+https://www.cbr.com/star-trek-movies-better-than-tv-show-list/
+
+Star Trek became a sprawling film franchise thanks to its brilliant, powerful TV shows, but only three of the 14 movies told bigger, better stories.
+---------
+
+# 10 Legendary Akatsuki Battles Naruto Fans Still Talk About Today
+
+Anime, Naruto, Naruto: Shippuden, Shonen, shonen anime
+
+Fri, 26 Jun 2026 21:15:13 GMT
+
+https://www.cbr.com/naruto-most-legendary-akatsuki-battles/
+
+The Akatsuki dominated Naruto Shippuden for hundreds of episodes, leading to some of the most talked about battles in shonen anime.
+---------
+
+# Paramount Celebrates America With 250 Free Streaming Movies
+
+Movies, Paramount
+
+Fri, 26 Jun 2026 21:07:59 GMT
+
+https://www.cbr.com/pluto-tv-americana-2026-movies-free-streaming/
+
+Pluto TV is celebrating America's birthday with lots of free streaming movies.
+---------
+
+# ‘House of the Dragon’ Just Took Us Somewhere ‘Game of Thrones’ Refused To
+
+TV Features, House of the Dragon, Game Of Thrones, A Song of Ice and Fire, George R.R. Martin
+
+Fri, 26 Jun 2026 22:34:14 GMT
+
+https://collider.com/house-of-the-dragon-green-men-isle-of-faces-game-of-thrones-meaning/
+
+House of the Dragon is setting up the Green Men, who were absent from Game of Thrones. The prequel may be retconning lore elements of the main series.
+---------
+
+# Taylor Sheridan’s Latest ‘Yellowstone’ Spin-Off Is Keeping Paramount+ Afloat
+
+TV News, Dutton Ranch, Taylor Sheridan, Yellowstone, Paramount Plus
+
+Fri, 26 Jun 2026 22:30:14 GMT
+
+https://collider.com/dutton-ranch-taylor-sheridan-yellowstone-spin-off-nielsen-report-success/
+
+The latest installment of Taylor Sheridan's Yellowstone saga, Dutton Ranch, was the sole Paramount+ title on the Nielsen chart this week.
+---------
+
+# 7 Movie Masterpieces That Saved Dying Genres
+
+Movie, Taken, Dances With Wolves, Bonnie and Clyde, Moulin Rouge!
+
+Fri, 26 Jun 2026 22:19:14 GMT
+
+https://collider.com/perfect-movies-saved-dying-genres/
+
+Landmark movies like Dances With Wolves, Bonnie and Clyde, and The Lord of the Rings: The Fellowship of the Ring revitalized dying genres.
+---------
+
+# Netflix’s Most Bonkers Crime Series Officially Sets 2027 Return
+
+TV News, Sakamoto Days, Netflix, Action, Anime
+
+Fri, 26 Jun 2026 22:15:14 GMT
+
+https://collider.com/sakamoto-days-season-2-release-window-netflix-january-2027/
+
+Netflix's action-packed anime series Sakamoto Days is set to return in 2027 for Season 2, following its massive debut and high fan ratings.
+---------
+
+# HBO’s Biggest Fantasy Gamble Just Took a Surprising Viewership Hit
+
+TV News, House of the Dragon, HBO, Game Of Thrones, George R.R. Martin
+
+Fri, 26 Jun 2026 22:00:15 GMT
+
+https://collider.com/house-of-the-dragon-season-3-premiere-viewership-21-million-views-first-3-days/
+
+House of the Dragon earns over 21 million views in its first three days on streaming, but this is still less than Season 1.
+---------
+
+# 25 Best Japanese Movies of All Time
+
+Movie, Spirited Away, Seven Samurai, Godzilla, Grave of the Fireflies
+
+Fri, 26 Jun 2026 21:59:15 GMT
+
+https://collider.com/best-japanese-movies-all-time-ranked/
+
+There are so many classic Japanese movies, with some of the best of all time being Seven Samurai, Spirited Away, and the original Godzilla.
+---------
+
+# PlayStation Removes Access to 500+ Movies Users Already Purchased
+
+Gaming News, PlayStation 5, Sony, Terminator 2: Judgment Day, PlayStation Plus
+
+Fri, 26 Jun 2026 21:57:36 GMT
+
+https://collider.com/playstation-removes-purchased-movies-studiocanal-licensing/
+
+PlayStation is removing more than 500 purchased StudioCanal movies from users’ libraries, including titles like Terminator 2, Rambo and Hot Fuzz.
+---------
+
+# The Twisted Childhood Universe Unleashes Sinister New Sneak Peek [Exclusive]
+
+Exclusives, Pinocchio: Unstrung, Richard Brake, Robert Englund, Horror
+
+Fri, 26 Jun 2026 21:48:45 GMT
+
+https://collider.com/pinocchio-unstrung-sneak-peek-richard-brake-geppetto/
+
+A new sneak peek at Pinocchio Unstrung sees Richard Brake introducing the unsettling results of his research into the human soul.
+---------
+
+# 3 Must-Watch Prime Video Movies To Stream This Weekend (June 27-28)
+
+Movie, Invasion of the Body Snatchers, Priscilla, Stargate, Prime Video
+
+Fri, 26 Jun 2026 21:48:15 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-june-27/
+
+Priscilla, Stargate, and Invasion of the Body Snatchers make up our list of the best Prime Video movies to stream the weekend of June 27th, 2026.
+---------
+
+# This Classic Must-Read Sci-Fi Book Could Be Apple TV’s ‘Dune’ Replacement
+
+TV Features, Apple TV, Sci-Fi, Dune, Fantasy
+
+Fri, 26 Jun 2026 21:44:14 GMT
+
+https://collider.com/apple-tv-sci-fi-adaptation-hyperion-book-series-dan-simmons/
+
+Hyperion remains one of sci-fi’s most ambitious novels, and Apple’s genre success proves TV may be ready for a story like it.
+---------
+
+# HBO Max's Hard Sci-Fi Epic Is One of the Biggest Shows in the World
+
+TV News, Dune: Prophecy, HBO Max, Hot on Streaming, Sci-Fi, Dune
+
+Fri, 26 Jun 2026 22:00:20 GMT
+
+https://movieweb.com/dune-prophecy-streaming-success-hbo-june-2026-scifi/
+
+HBO Max's sci-fi series 'Dune: Prophecy' is a global streaming success on HBO Max before 'Dune: Part Three.'
+---------
+
+# Netflix’s New Smash Hit Thriller is So Good, They're Planning 13 Shows Just Like It
+
+Features, I Will Find You, Netflix, Harlan Coben
+
+Fri, 26 Jun 2026 22:00:20 GMT
+
+https://movieweb.com/i-will-find-you-netflix-harlan-coben-thrillers/
+
+Netflix has released several memorable thriller TV series in 2026, and the latest one is particularly popular.
+---------
+
+# Supergirl' Rotten Tomatoes Score Officially Divides Audiences & Critics
+
+Movie News, Supergirl
+
+Fri, 26 Jun 2026 21:03:27 GMT
+
+https://movieweb.com/supergirl-audience-score-rotten-tomatoes/
+
+'Supergirl' audience score on Rotten Tomatoes is nearly 20 percent higher than the critics' rating.
+---------
+
 # Arnold Schwarzenegger's Iconic Fantasy Franchise Is Officially Back
 
 Movies, Masked Recs
