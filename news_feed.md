@@ -1,3 +1,377 @@
+# Arnold Schwarzenegger's Iconic Fantasy Franchise Is Officially Back
+
+Movies, Masked Recs
+
+Fri, 26 Jun 2026 21:01:21 GMT
+
+https://screenrant.com/conan-the-barbarian-series-franchise-return-arnold-schwarzenegger/
+
+The long-awaited return of Arnold Schwarzenegger's fantasy franchise just got even better with the announcement of a Prime Video spinoff series.
+---------
+
+# Avatar: The Last Airbender Season 2’s New Painted Lady Story Changes Teased By Katara Actor
+
+TV, Avatar: The Last Airbender, Avatar: The Last Airbender - Season 2, Kiawentiio
+
+Fri, 26 Jun 2026 21:01:15 GMT
+
+https://screenrant.com/avatar-the-last-airbender-season-2-painted-lady-katara-tease-kiawentiio/
+
+EXCLUSIVE: Avatar: The Last Airbender season 2 introduces the Painted Lady, which plays out differently on Netflix than in the animated series.
+---------
+
+# I Took My Young Daughter To Supergirl And I Regret It
+
+Movies, Supergirl
+
+Fri, 26 Jun 2026 21:00:22 GMT
+
+https://screenrant.com/supergirl-preteen-teen-girls-representation/
+
+Young girls absolutely deserve positive representation with women superheroes, but some subject matter in Supergirl undermines that positivity.
+---------
+
+# New Octopath Traveler RPG Officially Confirmed For October 2026
+
+Tabletop, Octopath Traveler, tabletop games, RPG, octopath traveler
+
+Fri, 26 Jun 2026 21:00:22 GMT
+
+https://screenrant.com/octopath-traveler-new-rpg-october-2026/
+
+The Octopath Traveler franchise is growing with the release of a new and official RPG set to be released in October this year, so don’t miss it.
+---------
+
+# Space Jam Officially Returns Next Week With Major New Release
+
+Movies, Space Jam
+
+Fri, 26 Jun 2026 20:59:52 GMT
+
+https://screenrant.com/space-jam-30th-anniversary-upper-deck-bubba-wallace-collectibles/
+
+Space Jam officially returns to the spotlight in an exciting new way to celebrate the iconic film's thirtieth anniversary next week.
+---------
+
+# Every Upcoming DC Movie In 2026 And Beyond
+
+Movies, DC Universe
+
+Fri, 26 Jun 2026 20:45:20 GMT
+
+https://screenrant.com/dc-upcoming-movies-list-release-dates/
+
+Here's every new DC movie confirmed as in development by WB for 2026 and onwards, including release dates and where they belong in the franchise.
+---------
+
+# Taylor Sheridan's Hit 14-Part Western Thriller Season Officially Sets New Free Streaming Release Next Week
+
+TV, Masked Recs
+
+Fri, 26 Jun 2026 20:32:34 GMT
+
+https://screenrant.com/yellowstone-season-5-pluto-tv-streaming-release-date/
+
+A full season of Taylor Sheridan's hit 14-part Western thriller has officially been set for a new free streaming release late next week.
+---------
+
+# Netflix's Best Fantasy Series Is Supernatural Turned Up To 11
+
+Streaming TV, Masked Recs
+
+Fri, 26 Jun 2026 20:30:21 GMT
+
+https://screenrant.com/devil-may-cry-netflix-supernatural-comparison/
+
+If you're looking for a series that combines the concepts and themes of Supernatural with over-the-top intensity, Netflix has you covered.
+---------
+
+# 7 Years Later, Toy Story 5 Fixes The Last Movie's Biggest Buzz Lightyear Problem
+
+Movies, Toy Story 5, Toy Story, Toy Story 4
+
+Fri, 26 Jun 2026 20:20:23 GMT
+
+https://screenrant.com/toy-story-5-buzz-lightyear-problem-fix/
+
+Toy Story 5 has become a global success, and the best thing about it is that it fixes Buzz Lightyear's biggest problem from the last movie.
+---------
+
+# What's Going On With The Legend Of Vox Machina Season 5?
+
+Streaming TV, The Legend of Vox Machina
+
+Fri, 26 Jun 2026 20:15:20 GMT
+
+https://screenrant.com/the-legend-of-vox-machina-season-5-status-updates-release/
+
+The Legend of Vox Machina season 4 just aired its final three episodes, and fans are already speculating about when the next installment will debut.
+---------
+
+# Elle Stars Share Their Legally Blonde Favorites
+
+TV, Elle
+
+Fri, 26 Jun 2026 21:00:15 GMT
+
+https://www.cbr.com/video/elle-stars-share-their-legally-blonde-favorites/
+
+Elle cast members Lexi Minetree, Chandler Kinney, and Gabrielle Policano reveal their favorite Legally Blonde callbacks, from the iconic Bend and Snap to the unforgettable '90s props that brought the series to life.
+---------
+
+# 10 Greatest Sci-Fi Books of All Time, Ranked
+
+Movies, Science Fiction
+
+Fri, 26 Jun 2026 21:00:15 GMT
+
+https://www.cbr.com/greatest-sci-fi-books-of-all-time-ranked-list/
+
+Universally defined by their cultural impact and literary imagination, these science fiction books are must-read classics that pioneered the genre.
+---------
+
+# Yellowstone Officially Lands Historic New Streaming Home for the First Time Ever
+
+TV
+
+Fri, 26 Jun 2026 20:33:11 GMT
+
+https://www.cbr.com/yellowstone-season-5-streaming-free-pluto-tv/
+
+Yellowstone finds a new home.
+---------
+
+# Dragon Ball Officially Brings Back Master Roshi's Most Expensive Mistake
+
+Anime, Dragon Ball, merchandise
+
+Fri, 26 Jun 2026 20:30:13 GMT
+
+https://www.cbr.com/dragon-ball-delicious-saikan-product-line/
+
+Dragon Ball has brought Goku's legendary 470,000-zeni feast to life in its latest collectible line.
+---------
+
+# The 5 Most Powerful Gods in The Lord of the Rings, Ranked
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Rings of Power
+
+Fri, 26 Jun 2026 20:30:13 GMT
+
+https://www.cbr.com/lord-of-the-rings-most-powerful-gods-list/
+
+There are many strong and capable characters in Tolkien's Middle-earth, but these Gods are the most powerful of them all.
+---------
+
+# Masterpiece Metroidvanias Better Than Hollow Knight
+
+Games, Hollow Knight: Voidheart Edition, metroidvania, Video Games
+
+Fri, 26 Jun 2026 20:15:13 GMT
+
+https://www.cbr.com/masterpiece-metroidvanias-better-than-hollow-knight/
+
+Hollow Knight and Silksong are incredible titles, but there are some Metroidvanias that are superior to them in terms of gameplay and visual design.
+---------
+
+# Prime Video's Hit No. 1 Series Based on Bestselling Novel Gets Exciting Season 2 Update
+
+TV, Prime Video, Every Year After, Off Campus
+
+Fri, 26 Jun 2026 20:12:28 GMT
+
+https://www.cbr.com/prime-video-every-year-after-season-2-update/
+
+Prime Video is excelling at successful book adaptations.
+---------
+
+# 1 of the Best Procedurals of All Time Celebrates Major Streaming Milestone as It Officially Tops the Charts
+
+TV, Criminal Minds, Paramount Plus, Crime
+
+Fri, 26 Jun 2026 20:10:36 GMT
+
+https://www.cbr.com/criminal-minds-crime-streaming-success-paramount-plus-june-2026/
+
+The can't-miss procedural celebrates a major milestone on top of the charts.
+---------
+
+# Marvel's Ultimate Universe Finale Confirms New Venom As Spider-Man's Daughter
+
+Comics, Venom, Spider-Man
+
+Fri, 26 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/marvel-ultimate-universe-finale-1-confirms-may-parker-venom/
+
+The new Venom is Spider-Man's worst nightmare.
+---------
+
+# The Lunar Chronicles Will Be the Fantasy Event of the Decade
+
+Movies, Fantasy, warner bros, Cinderella
+
+Fri, 26 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/the-lunar-chronicles-cinder-major-fantasy-event/
+
+Warner Bros. is officially developing an adaptation of a hit fantasy series that has the makings of a cultural phenomenon.
+---------
+
+# 'Spider-Man's Brand New Villain Could Be the MCU's Biggest Yet
+
+Movie Features, Spider-Man: Brand New Day, Spider-Man, Tom Holland, MCU
+
+Fri, 26 Jun 2026 20:50:15 GMT
+
+https://collider.com/spider-man-brand-new-day-villains-secret-sadie-sink-jean-grey/
+
+The main villain of Spider-Man: Brand New Day is the MCU's biggest secret.
+---------
+
+# Netflix’s Near-Perfect 2-Part Medical Drama Climbing Charts Is More Explosive Than ‘The Pitt’
+
+TV Features, The Trauma Code: Heroes on Call, The Pitt, Netflix, Series
+
+Fri, 26 Jun 2026 20:08:14 GMT
+
+https://collider.com/the-pitt-best-replacement-series-netflix-trauma-code-heroes-on-call/
+
+Netflix’s The Trauma Code proves medical dramas thrive beyond The Pitt, embracing explosive action without sacrificing heart.
+---------
+
+# Only 3 Manga Are Better Than 'One Piece'
+
+TV, Manga, One Piece, Berserk, Jojo's Bizarre Adventure
+
+Fri, 26 Jun 2026 20:05:12 GMT
+
+https://collider.com/manga-better-than-one-piece/
+
+One Piece is widely recognized as the all-time best manga, but other shounen and seinen masterpieces like Berserk and Vagabond are arguably better.
+---------
+
+# This 3-Game Fantasy Epic Needs To Be Netflix’s Next Big Adaptation
+
+TV Features, The Witcher, Fantasy, Luke Hemsworth, Dragon Age
+
+Fri, 26 Jun 2026 19:47:15 GMT
+
+https://collider.com/netflix-next-fantasy-show-adaptation-video-game-dragon-age/
+
+Netflix’s The Witcher still struggles to make its politics feel urgent, but Dragon Age proves fantasy worldbuilding can be complex and emotional.
+---------
+
+# The Most Anticipated Sci-Fi Adaptation of the Decade Already Has the Perfect Dream Cast
+
+TV News, Dungeon Crawler Carl, Seth MacFarlane, Peacock, Jack Quaid
+
+Fri, 26 Jun 2026 19:46:26 GMT
+
+https://collider.com/dungeon-crawler-carl-series-fan-cast-sci-fi-adaptation/
+
+Fans are already dream-casting the live-action Dungeon Crawler Carl series, one of the most anticipated sci-fi adaptations in development.
+---------
+
+# 10 Lingering Questions I Still Have After 'The Bear' Series Finale
+
+TV, The Bear, Jeremy Allen White, FX, Hulu
+
+Fri, 26 Jun 2026 19:46:08 GMT
+
+https://collider.com/the-bear-series-finale-lingering-questions/
+
+As the dust settles on the popular Hulu show, starring Ayo Edebiri, these are the lingering questions we're left with after The Bear's series finale.
+---------
+
+# 10 Best Movies of 2026 So Far
+
+Movie, Project Hail Mary, Obsession, The Furious, Backrooms
+
+Fri, 26 Jun 2026 19:29:14 GMT
+
+https://collider.com/best-movies-2026-so-far-ranked/
+
+Project Hail Mary, Obsession, and 28 Years Later: The Bone Temple are all among the best movies released in the first half of 2026.
+---------
+
+# Jackie Chan's 10 Best Fight Scenes, Ranked
+
+Movie Lists, Jackie Chan, Martial Arts, Action
+
+Fri, 26 Jun 2026 21:00:20 GMT
+
+https://movieweb.com/jackie-chan-best-fights-ranked/
+
+From early hits like 'Drunken Master' to underrated gems like 'Thunderbolt', how do Jackie Chan's best fight scenes stack up?
+---------
+
+# Cult-Classic Supernatural Franchise Reboot Officially Announced 60 Years Later
+
+TV News, Dark Shadows
+
+Fri, 26 Jun 2026 20:37:57 GMT
+
+https://movieweb.com/dark-shadows-reboot-animated/
+
+'Dark Shadows' is set to be revived as an animated series.
+---------
+
+# 10 Classic Western Movies No One Talks About Anymore
+
+Movie Lists, Western
+
+Fri, 26 Jun 2026 20:30:18 GMT
+
+https://movieweb.com/classic-western-movies-no-one-talks-about/
+
+So you've seen 'Unforgiven,' 'The Good, The Bad and the Ugly,' and many of the all-time greats, but the Western genre has so much beneath the surface.
+---------
+
+# 'Spider-Man: Brand New Day' Breaks Another All-Time Record Ahead of July Release
+
+Movie News, Spider-Man: Brand New Day
+
+Fri, 26 Jun 2026 20:12:45 GMT
+
+https://movieweb.com/spider-man-brand-new-day-record/
+
+'Spider-Man: Brand New Day' now holds the record for the first and second most viewed trailers.
+---------
+
+# Christopher Nolan's 'The Odyssey' Making Major Change to Its Release
+
+Movie News, Christopher Nolan, The Odyssey
+
+Fri, 26 Jun 2026 20:09:26 GMT
+
+https://movieweb.com/christopher-nolan-the-odyssey-influencer-canceled/
+
+Universal is showing a lot of confidence in 'The Odyssey.'
+---------
+
+# 8 Classic Sci-Fi Movies No One Talks About Anymore
+
+Movie Lists, Sci-Fi
+
+Fri, 26 Jun 2026 20:00:20 GMT
+
+https://movieweb.com/sci-fi-classics-no-one-talks-about/
+
+Like falling into a wormhole, not all classics are made to be remembered. These films deserve to be discussed more.
+---------
+
+# Jason Statham Meets 'Reacher' in #1 Action Thriller Streaming Smash Hit
+
+Movie News, Homefront, Jason Statham, Hot on Streaming
+
+Fri, 26 Jun 2026 19:30:19 GMT
+
+https://movieweb.com/homefront-streaming-hit-homefront-june-2026/
+
+Do you think Alan Reacher is cool? Wait till you meet Phil Broker.
+---------
+
 # HBO's Upcoming Fantasy Show Will Be The Anti Game Of Thrones
 
 Streaming TV, Masked Recs
