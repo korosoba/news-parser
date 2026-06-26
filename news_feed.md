@@ -1,3 +1,344 @@
+# HBO's Upcoming Fantasy Show Will Be The Anti Game Of Thrones
+
+Streaming TV, Masked Recs
+
+Fri, 26 Jun 2026 19:02:20 GMT
+
+https://screenrant.com/harry-potter-hbo-fantasy-show-anti-game-of-thrones/
+
+HBO's fantasy show is a remake of a controversial fantasy franchise with an expansive world and a definitive ending, unlike Game of Thrones.
+---------
+
+# Ocean’s Eleven Is Building Two Franchises At Once
+
+Movies, Originals
+
+Fri, 26 Jun 2026 19:00:21 GMT
+
+https://screenrant.com/video/ocean-s-eleven-is-building-two-franchises-at-once/
+
+Ocean's 14 Has One Huge Challenge. After years of silence, the Ocean's franchise is suddenly making headlines again. A star-studded prequel is in development, Ocean's 14 appears to be gaining momentum, and Warner Bros. looks ready to turn one of its most reliable franchises into something much bigger.
+---------
+
+# In 1 Month, The Walking Dead Is Back To Reclaim Its Zombie Crown
+
+Streaming TV, Masked Recs
+
+Fri, 26 Jun 2026 19:00:21 GMT
+
+https://screenrant.com/the-walking-dead-city-season-3-reclaim-zombie-crown/
+
+The Walking Dead's next instalment is set to remind viewers why the show was initially so great, using one of the most unlikely partnerships.
+---------
+
+# Tomb Raider Officially Bringing Back Classic Lara Croft October 2026
+
+Gaming, Tomb Raider, Triple-A Games
+
+Fri, 26 Jun 2026 18:47:27 GMT
+
+https://screenrant.com/tomb-raider-classic-lara-croft-motorbike/
+
+Tomb Raider is going to be debuting multiple versions of Lara Croft, including Legacy of Atlantis and the live-action show, but classic Lara is back.
+---------
+
+# 3 Best Movies To Watch On Disney+ This Weekend (June 27-28)
+
+Movies, Disney+, Recommendation
+
+Fri, 26 Jun 2026 18:42:26 GMT
+
+https://screenrant.com/best-disney-plus-movies-watch-weekend-june-27/
+
+The best movies to watch on Disney+ in the final weekend of June include a major animated franchise, a Marvel juggernaut, and a beloved space opera.
+---------
+
+# July 1 Will Be An Amazing Day For Sam Raimi's Evil Dead Fans
+
+Movies, Evil Dead, The Evil Dead, Evil Dead II, Army of Darkness
+
+Fri, 26 Jun 2026 18:37:30 GMT
+
+https://screenrant.com/evil-dead-original-trilogy-hbo-max-streaming-july-2026/
+
+The Evil Dead franchise has been around for over 40 years, beginning with Sam Raimi’s trilogy. Now an exciting development has just been announced.
+---------
+
+# What Happened To Suki In Netflix's Avatar: The Last Airbender Season 2?
+
+Streaming TV, Avatar: The Last Airbender
+
+Fri, 26 Jun 2026 18:30:20 GMT
+
+https://screenrant.com/avatar-the-last-airbender-season-2-what-happened-to-suki/
+
+Suki is an important character in the world of Avatar: The Last Airbender, but Netflix’s second season mysteriously sidelines her midway through.
+---------
+
+# Why Cheese From The Bear Season 5 Looks So Familiar
+
+Streaming TV, The Bear
+
+Fri, 26 Jun 2026 18:26:22 GMT
+
+https://screenrant.com/the-bear-season-5-cheese-actress-elsie-fisher/
+
+The Bear season 5 didn't introduce many new characters, but Cheese plays an important role and is portrayed by an actor you've likely seen before.
+---------
+
+# The Get Out Review: Not The Movie Everyone Thought They Were Making
+
+New Movies, The Get Out
+
+Fri, 26 Jun 2026 18:17:58 GMT
+
+https://screenrant.com/the-get-out-movie-2026-review/
+
+There’s plenty to like in Russell Crowe’s lead performance, but his new comedic crime thriller just doesn’t hit the tone it’s aiming for.
+---------
+
+# Barack Obama's New 7-Part HBO Max Series Debuts To Promising Rotten Tomatoes Score
+
+TV, Masked Recs
+
+Fri, 26 Jun 2026 18:02:21 GMT
+
+https://screenrant.com/life-larry-the-pursuit-of-unhappiness-rotten-tomatoes-score-debut/
+
+Barack Obama's new seven-part HBO Max series debuts to a promising Rotten Tomatoes score on the day of its highly anticipated premiere.
+---------
+
+# Just 2 Months After Release, Divisive $90 Million Horror Reimagining Sets HBO Max Release Date
+
+Movies, Lee Cronin's The Mummy, Horror, HBO Max
+
+Fri, 26 Jun 2026 19:11:58 GMT
+
+https://www.cbr.com/lee-cronins-the-mummy-hbo-max-release-date/
+
+HBO Max will soon host the most divisive horror movie of the year.
+---------
+
+# HBO Max's 10-Part Psychedelic Thriller With 100% RT Confirms Season 2 Return
+
+TV, Common Side Effects
+
+Fri, 26 Jun 2026 19:08:25 GMT
+
+https://www.cbr.com/common-side-effects-season-2-hbo-max/
+
+The acclaimed mind-bending series finally gets an update on Season 2.
+---------
+
+# Doctor Doom's New Mask Officially Revealed Before Avengers: Doomsday
+
+Comics, Marvel, Marvel Comics, MCU, Avengers: Doomsday, Avengers: Doomsday (2026), Avengers
+
+Fri, 26 Jun 2026 19:00:13 GMT
+
+https://www.cbr.com/doctor-doom-new-mask-officially-revealed-before-avengers-doomsday/
+
+Would Victor Von Doom approve of this new mask from Marvel?
+---------
+
+# Elle Creators Reveal the Secret to Elle Woods' Charm
+
+TV, Elle
+
+Fri, 26 Jun 2026 19:00:13 GMT
+
+https://www.cbr.com/video/elle-creators-reveal-the-secret-to-elle-woods-charm/
+
+Elle creators Lauren Neudstadter, Laura Kittrell, and Caroline Dries explain why Elle Woods remains one of pop culture's most inspiring characters in Amazon Prime Video's Elle.
+---------
+
+# Set Sail: The Art and Making of One Piece Book Review
+
+Anime, One Piece, Netflix
+
+Fri, 26 Jun 2026 19:00:13 GMT
+
+https://www.cbr.com/set-sail-netflix-one-piece-book-review-viz-media/
+
+Experience how the hit Netflix show was made in Viz Media's newest release, Set Sail: The Art and Making of One Piece companion book.
+---------
+
+# The 10/10 Star Trek Masterpiece That Remains the Best Crossover Episode in Sci-Fi History
+
+TV, Star Trek: Strange New Worlds, Star Trek Lower Decks, Sci-Fi
+
+Fri, 26 Jun 2026 19:00:13 GMT
+
+https://www.cbr.com/star-trek-strange-new-worlds-lower-decks-best-sci-fi-crossover-episode-ever/
+
+While Star Trek's classic episodes remain fan favorites, a modern series crossover is not just the best in the franchise but perhaps the best ever.
+---------
+
+# All 11 Steven Spielberg Sci-Fi Movies, Ranked
+
+Movies, steven spielberg
+
+Fri, 26 Jun 2026 19:00:13 GMT
+
+https://www.cbr.com/steven-spielberg-sci-fi-movies-ranked-list/
+
+Spielberg has become one of the founding fathers of modern sci-fi and this array of classics prove it.
+---------
+
+# No Netflix Required: 8 Pokémon Movies and TV Series Are Now Free to Stream
+
+Anime, Pokemon, Pokémon, Pokémon the Movie 2000, Tubi
+
+Fri, 26 Jun 2026 18:31:13 GMT
+
+https://www.cbr.com/pokemon-tubi-free-streaming-july-2026/
+
+Anyone who loves the classic era of the Pokémon anime with Ash Ketchum and Pikachu will soon be able to watch a selection of films and shows for free.
+---------
+
+# After Just 6 Months, Disney Becomes First Studio to Reach the $3 Billion Box Office Milestone
+
+Movies, Disney
+
+Fri, 26 Jun 2026 18:26:21 GMT
+
+https://www.cbr.com/disney-first-studio-3-billion-box-office-milestone/
+
+Six months into 2026, Disney is at the top of the box office leaderboard.
+---------
+
+# 5 Anime Heroes Objectively Stronger Than Gojo Satoru
+
+Anime, Jujutsu Kaisen, Dragon Ball, Sailor Moon
+
+Fri, 26 Jun 2026 18:15:12 GMT
+
+https://www.cbr.com/anime-heroes-objectively-stronger-than-gojo-jjk/
+
+JJK's Gojo Satoru can outmaneuver, outclass and outwit most anime heroes, but a select few can demolish the World's Strongest Sorcerer.
+---------
+
+# 10 Anime Shows Without a Single Flaw
+
+TV, Anime, Showa Genroku Rakugo Shinju, Cowboy Bebop, Mob Psycho 100
+
+Fri, 26 Jun 2026 19:05:17 GMT
+
+https://collider.com/anime-shows-without-flaws/
+
+From Cowboy Bebop to Fullmetal Alchemist: Brotherhood, these are the precious few anime shows that we can confidently say have absolutely no flaws.
+---------
+
+# 10 Great Three-Season TV Shows Without a Single Flaw
+
+TV, Twin Peaks, The Leftovers, Daredevil, Legion
+
+Fri, 26 Jun 2026 18:44:14 GMT
+
+https://collider.com/best-three-season-shows-without-a-single-flaw/
+
+Dive into the best shows with three seasons that are perfect from start to finish, including The Leftovers, Legion, and Hannibal.
+---------
+
+# Supergirl’s Krypto Began as a Real Rescue Dog Problem | Collider BTS
+
+Movie, Supergirl
+
+Fri, 26 Jun 2026 18:15:13 GMT
+
+https://collider.com/video/supergirl-s-krypto-began-as-a-real-rescue-dog-problem-collider-bts/
+
+Jennifer Holland reveals the surprising true story behind Krypto in Supergirl, explaining how her rescue dog Ozu inspired James Gunn's lovable but chaotic Super-Dog and why that emotional connection became such an important part of Krypto's character.
+---------
+
+# After 2-Year Delay, 'Primal' Creator's Adults-Only Crime Series Is Finally Happening
+
+TV News, Primal, Adult Swim, Genndy Tartakovsky, Action
+
+Fri, 26 Jun 2026 17:36:41 GMT
+
+https://collider.com/primal-creator-genndy-tartakovsky-new-crime-series-heist-brothers/
+
+Genndy Tartakovsky, the legendary creator of Primal and Samurai Jack, is teaming with Adult Swim for a new crime series.
+---------
+
+# This 5-Part Near-Perfect Western Epic Makes 'Yellowstone' Look Small
+
+TV Features, Yellowstone, AMC, Hell on Wheels
+
+Fri, 26 Jun 2026 17:28:14 GMT
+
+https://collider.com/yellowstone-replacement-series-hell-on-wheels-western-epic/
+
+From 2011 to 2016, AMC aired the near-perfect Western series Hell on Wheels, a must-watch for Yellowstone fans wanting something ever grander.
+---------
+
+# 'Lee Cronin's The Mummy' Streaming Release Date Officially Confirmed
+
+Movie News
+
+Fri, 26 Jun 2026 19:01:27 GMT
+
+https://movieweb.com/lee-cronins-the-mummy-streaming-release-date/
+
+The reimagining of 'The Mummy' will debut on HBO Max on July 3, 2026.
+---------
+
+# 'Supergirl' Ending & Why Kara Makes That Fatal Decision, Explained
+
+Features, Supergirl, DCU
+
+Fri, 26 Jun 2026 19:00:19 GMT
+
+https://movieweb.com/supergirl-ending-explained/
+
+The DCU's latest chapter hasn't landed for everyone, but there's still some worthwhile story to unpack that connects to the comics.
+---------
+
+# Every Cylon in 'Battlestar Galactica,' Explained
+
+Features, Battlestar Galactica
+
+Fri, 26 Jun 2026 18:00:20 GMT
+
+https://movieweb.com/every-cylon-in-battlestar-galactica-explained/
+
+Learn who every Cylon is and their model functions for the fan-favorite sci-fi series Battlestar Galactica.
+---------
+
+# 'Finding Nemo' Franchise Officially Returns With New Theatrical Release
+
+Movie News, Finding Nemo
+
+Fri, 26 Jun 2026 17:57:05 GMT
+
+https://movieweb.com/finding-nemo-loving-dory-short-film/
+
+Ellen DeGeneres will reprise her role in the short film 'Loving Dory.'
+---------
+
+# Supergirl' Box Office Falls Short of Super as Disney Dominates Weekend
+
+Movie News, Supergirl, Toy Story 5
+
+Fri, 26 Jun 2026 17:34:44 GMT
+
+https://movieweb.com/supergirl-box-office-opening-toy-story-5/
+
+Disney enjoyed another great weekend at the box office while DC Studios' 'Supergirl' did not match that success.
+---------
+
+# Beloved 'Stranger Things' Duo Officially Reuniting for New Netflix Spy Thriller Series
+
+TV News, Millie Bobby Brown, David Harbour, Netflix
+
+Fri, 26 Jun 2026 17:25:45 GMT
+
+https://movieweb.com/millie-bobby-brown-david-harbour-netflix-spy-series/
+
+The new series comes from 'Adolescence' creator Jack Thorne.
+---------
+
 # Hulu's 5-Part Series With Near-Perfect RT Score Repulses Expert For 1 Mistake
 
 TV, Masked Recs
