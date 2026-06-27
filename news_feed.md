@@ -1,3 +1,311 @@
+# Dutton Ranch Star Reacts To Season 2 Renewal & Shares Hopes For The Future
+
+Exclusive, Dutton Ranch
+
+Sat, 27 Jun 2026 12:40:59 GMT
+
+https://screenrant.com/dutton-ranch-season-2-renewal-sterlin-english-reaction/
+
+EXCLUSIVE: Dutton Ranch's second season will certainly include more drama, as this star reveals his thoughts on season 2 and his hopes for the future.
+---------
+
+# The Next Era Of Apothecary Diaries Is Here, And Every Fan Needs To Check It Out ASAP (Exclusive)
+
+Anime, The Apothecary Diaries
+
+Sat, 27 Jun 2026 12:30:20 GMT
+
+https://screenrant.com/apothecary-diaries-palace-chronicles-next-era/
+
+The official next era of The Apothecary Diaries is here and available now, and it is something that every fan of the franchise needs to check out.
+---------
+
+# Dutton Ranch Episode 8’s Ending Just Declared War
+
+TV, Yellowstone, Dutton Ranch
+
+Sat, 27 Jun 2026 12:30:20 GMT
+
+https://screenrant.com/dutton-ranch-ending-joaquin-call-war-meaning/
+
+Dutton Ranch episode 8's ending sets up brother against brother for the 10-Petals Ranch, with Beth and Rip caught in the middle of a war.
+---------
+
+# 8 Most Important Episodes Of X-Men: The Animated Series To Watch Before X-Men '97 Season 2
+
+TV, X-Men, Marvel Cinematic Universe, X-Men: The Animated Series, X-Men '97
+
+Sat, 27 Jun 2026 12:30:20 GMT
+
+https://screenrant.com/xmen-animated-series-most-important-episodes-xmen-97/
+
+As X-Men '97 returns for season 2, these essential episodes of X-Men: The Animated Series provide crucial context for its biggest stories.
+---------
+
+# Pokémon Nova Is A Brand-New Open-World Adventure
+
+Gaming, Pokemon
+
+Sat, 27 Jun 2026 12:30:20 GMT
+
+https://screenrant.com/pokemon-nova-open-world-game/
+
+Discover a vast open-world filled with secrets and puzzles in Pokémon Nova, a free-to-play fan game inspired by Pokémon Ultra Sun and Ultra Moon.
+---------
+
+# Crunchyroll's New Big Isekai Is Bringing Back The Sword Art Online Glory Days (Exclusive)
+
+Anime, Crunchyroll, Isekai, Masked Recs, The Exiled Heavy Knight Knows How to Game the System
+
+Sat, 27 Jun 2026 12:00:21 GMT
+
+https://screenrant.com/crunchyroll-isekai-exiled-heavy-knight-sword-art-online/
+
+The next big isekai hit on Crunchyroll is officially bringing the genre back to the Sword Art Online glory days, and here is how it is doing that.
+---------
+
+# The Batman Reveals The Sequel’s Villain Via The Hero’s One Mistake According To DC Movie Theory
+
+Movies, The Batman, The Batman Part II, DC Universe
+
+Sat, 27 Jun 2026 12:00:21 GMT
+
+https://screenrant.com/the-batman-2-imposter-villain-movie-theory/
+
+The Batman 2 has already teed up a huge challenge for its hero to overcome thanks to his oversight in the first movie according to one movie theory.
+---------
+
+# Star Wars: Return Of The Jedi Officially Getting New Sequel
+
+Gaming, Star Wars, Star Wars: Episode VI - Return of the Jedi
+
+Sat, 27 Jun 2026 12:00:21 GMT
+
+https://screenrant.com/star-wars-return-of-the-jedi-galactic-racer-sequel/
+
+Return Of The Jedi is one of the best films in the Star Wars franchise, and a direct sequel can only be an exciting thing for fans.
+---------
+
+# 10 Best New Movies Coming To Hulu In July 2026
+
+Movies, Hulu, What to Watch on Hulu, Marvel, Sci-Fi
+
+Sat, 27 Jun 2026 11:42:21 GMT
+
+https://screenrant.com/hulu-best-new-movies-july-2026/
+
+Beat the heat with our guide to the 10 best new movies hitting Hulu in July 2026. From sci-fi epics to classic romance, here is what is worth your tim
+---------
+
+# Shonen Jump Has Found Its Next Dragon Ball, Cannon Master
+
+Anime, Shonen Jump
+
+Sat, 27 Jun 2026 11:30:21 GMT
+
+https://screenrant.com/cannon-master-dragon-ball-replacement-shonen-jump/
+
+Cannon Master's debut engages with its world-building, action, and characters, leaving fans hopeful for a series that may rival Dragon Ball.
+---------
+
+# Superman's Radical Redesign Introduces Powerful New Weapons for the Last Son of Krypton
+
+Comics, absolute superman, Superman
+
+Sat, 27 Jun 2026 12:30:12 GMT
+
+https://www.cbr.com/absolute-superman-new-costume-hawkman-steel-weapons/
+
+Superman is more powerful than ever with a radical new costume and two planet-destroying weapons in his arsenal. But will he actually use them?
+---------
+
+# 6 TV Episodes That Defined the '90s
+
+TV, The Sopranos, Star Trek: The Next Generation, ER
+
+Sat, 27 Jun 2026 12:30:12 GMT
+
+https://www.cbr.com/best-90s-tv-episodes-defined-era-list/
+
+These six masterpiece TV episodes were the most era-defining releases of the 1990s.
+---------
+
+# 10 Classic '80s Comics That Are Unreadable Today
+
+Comics, comic books
+
+Sat, 27 Jun 2026 12:00:12 GMT
+
+https://www.cbr.com/classic-80s-comics-unreadable-today/
+
+Not every title from this revolutionary period for comics has stood the test of time.
+---------
+
+# DC Just Confirmed Red Hood As Batman's Next Big-Screen Villain
+
+Movies, Batman, Dynamic Duo, DCU
+
+Sat, 27 Jun 2026 12:00:12 GMT
+
+https://www.cbr.com/dc-studios-red-hood-dynamic-duo-batman-villain/
+
+This iconic Batman villain will finally make their big-screen debut in the upcoming Dynamic Duo movie.
+---------
+
+# The 10 Greatest Fantasy Books of the Last 10 Years, Ranked
+
+Movies, Fantasy
+
+Sat, 27 Jun 2026 11:30:12 GMT
+
+https://www.cbr.com/best-fantasy-books-last-10-years-list/
+
+These books are must-read masterpieces of the popular genre. Despite only being recently published, they are already modern fantasy classics.
+---------
+
+# Paul Dano's 100% RT Sci-Fi Hit Is the Only Animated Cyberpunk Show That Can Be Called Perfect
+
+TV, Pantheon
+
+Sat, 27 Jun 2026 11:30:12 GMT
+
+https://www.cbr.com/paul-dano-pantheon-only-perfect-animated-cyberpunk-series/
+
+The cyberpunk genre still hasn't hit its height yet, but this animated show is a truly well-rounded portrayal of the narrative style.
+---------
+
+# Forget 'The Ten Commandments,' This Forgotten Biblical Trilogy Deserves Another Look
+
+Movie Features, Cecil B. DeMille, The Sign of the Cross, The Ten Commandments, The King of Kings
+
+Sat, 27 Jun 2026 12:46:13 GMT
+
+https://collider.com/cecil-b-demille-sign-of-the-cross-forgotten-biblical-epic-trilogy/
+
+Before The Ten Commandments, Cecil B. DeMille created a forgotten biblical epic trilogy ending with The Sign of the Cross.
+---------
+
+# It’s the End of an Era for One of the Best Neo-Noir Movies of the Decade
+
+Movie News, Under the Silver Lake, Andrew Garfield, Netflix, David Robert Mitchell
+
+Sat, 27 Jun 2026 12:45:13 GMT
+
+https://collider.com/andrew-garfield-neo-noir-under-the-silver-lake-leaving-netflix-july-2026/
+
+Andrew Garfield's neo-noir gem Under the Silver Lake is being removed from Netflix. Find out how long you have to watch the underappreciated epic.
+---------
+
+# Prime Video’s 3-Part Sci-Fi Western Is Quietly Taking Over the World
+
+TV News, Fallout, Prime Video, Western, Sci-Fi
+
+Sat, 27 Jun 2026 12:30:13 GMT
+
+https://collider.com/prime-video-sci-fi-western-fallout-streaming-success-june-2026/
+
+Fallout, Prime Video's binge-worthy sci-fi Western with over 100 million views, is officially one of the biggest streaming hits of all time.
+---------
+
+# 10 Worst '90s Movies That Are All Truly 0/10
+
+Movie, Mad Dog Time, Batman & Robin, Baby Geniuses, Theodore Rex
+
+Sat, 27 Jun 2026 12:29:13 GMT
+
+https://collider.com/worst-1990s-movies/
+
+From Batman & Robin to Bio-Dome, these disastrous ’90s movies prove even a great decade for film produced some true disasters.
+---------
+
+# 10 Crime Movies That Are Perfect From the First Scene to the Last
+
+Movie, Crime, The Godfather Part II, Chinatown, City of God
+
+Sat, 27 Jun 2026 12:20:14 GMT
+
+https://collider.com/crime-movies-perfect-first-scene-to-last/
+
+Crime movies like The Godfather Part II, Double Indemnity and Goodfellas are the absolute peak of the genre, remaining pretty much perfect throughout.
+---------
+
+# This 3-Part Thriller Is Officially One of the Greatest Horror Series Ever Made
+
+TV Features, Hannibal, Bryan Fuller, Mads Mikkelsen, Hugh Dancy
+
+Sat, 27 Jun 2026 12:03:13 GMT
+
+https://collider.com/hannibal-tv-show-thriller-masterpiece-greatest-horror-series-ever-made/
+
+Hannibal creates its own mythology in this gripping prequel to Red Dragon, featuring Mads Mikkelsen's captivating portrayal of the iconic character.
+---------
+
+# Ridley Scott’s 10/10 Sci-Fi Masterpiece Is the Perfect Weekend Binge Before Season 2
+
+TV News, Alien: Earth, Ridley Scott, Hulu, Alien
+
+Sat, 27 Jun 2026 12:00:13 GMT
+
+https://collider.com/ridley-scott-sci-fi-alien-earth-streaming-success-hulu-season-2-release-window-2027/
+
+Now is the perfect time to binge Ridley Scott's 10/10 sci-fi masterpiece, Alien: Earth, before it returns for Season 2 sometime next year.
+---------
+
+# 10 Greatest Mystery Movies Worth Watching Over and Over
+
+Movie, Mystery, Mystic River, Vertigo, Rear Window
+
+Sat, 27 Jun 2026 11:53:13 GMT
+
+https://collider.com/best-mystery-movies-rewatch-ranked/
+
+From Gone Girl to Zodiac, these mystery masterpieces reward repeat viewings with hidden clues, sharper twists, and new revelations.
+---------
+
+# 35 Years Later, Star Wars’ First Sequel Trilogy Is Still Worth Reading
+
+Books and Comics, Star Wars, Star Wars: Episode VII - The Force Awakens, Ahsoka, Star Wars Rebels
+
+Sat, 27 Jun 2026 11:47:15 GMT
+
+https://collider.com/star-wars-thrawn-trilogy-novels-35-years-later-still-worth-reading/
+
+35 years ago, Star Wars fans recieved what many consider to be one of the franchise's best stories with Timothy Zahn's Thrawn novels.
+---------
+
+# Taylor Sheridan’s 2-Part Spy Thriller Is the Perfect Weekend Binge Before Season 3 Officially Returns
+
+TV Features, Lioness, Taylor Sheridan, Zoe Saldana, Laysla De Oliveira
+
+Sat, 27 Jun 2026 11:47:15 GMT
+
+https://collider.com/lioness-taylor-sheridan-spy-thriller-perfect-binge-before-season-3/
+
+Zoe Saldaña, Nicole Kidman, and Laysla De Oliveira lead Lioness, a gripping spy thriller from Taylor Sheridan that's worth binging before Season 3.
+---------
+
+# In 1 Month, 'Stranger Things' Officially Breaks Netflix Rules Following Divisive Finale
+
+TV News, Stranger Things, Netflix
+
+Sat, 27 Jun 2026 12:00:19 GMT
+
+https://movieweb.com/stranger-things-blu-ray-release/
+
+Netflix has broken its longstanding rule against physical media by partnering with Arrow Video to release 'Stranger Things' on Blu-ray and 4K UHD.
+---------
+
+# Matt Damon's $286 Million Sci-Fi Action Thriller Seeks Redemption on Streaming
+
+Movie News, Matt Damon, Elysium, Coming/Leaving Streaming, Action, Sci-Fi
+
+Sat, 27 Jun 2026 12:00:19 GMT
+
+https://movieweb.com/matt-damon-elysium-sci-fi-streaming-tubi-july-2026/
+
+Matt Damon shines in what some called a disappointing follow-up to director Neill Blomkamp's breakout smash, 'District 9.'
+---------
+
 # Red Dead Redemption 2 Official Next-Gen Update Has Gamers Asking For One Fix
 
 Gaming, Red Dead Redemption 2
