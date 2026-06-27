@@ -1,3 +1,355 @@
+# Forget Carmy, The Bear Season 5 Confirms The Real MVP Of The Show
+
+Streaming TV, The Bear
+
+Sat, 27 Jun 2026 21:30:20 GMT
+
+https://screenrant.com/the-bear-season-5-richie-mvp-character/
+
+The restaurant has finally come close to being a well-oiled machine, but one character in particular truly elevates the experience for the guests.
+---------
+
+# 8 Great Dysfunctional Relationship Movies To Watch If You Loved The Invite
+
+Classic Movies, The Invite
+
+Sat, 27 Jun 2026 21:30:20 GMT
+
+https://screenrant.com/great-dysfunctional-relationship-movies-like-the-invite/
+
+The Invite tapped into the complexities and awkwardness of modern romances and brings to mind plenty of great movies from times gone by
+---------
+
+# 10 Anime Originals So Good They Got Manga Adaptations Straight After
+
+Anime
+
+Sat, 27 Jun 2026 21:30:20 GMT
+
+https://screenrant.com/anime-originals-got-manga-adaptations-after/
+
+Anime are most commonly adapted from manga, but these original series were so good that their respective adaptations came after.
+---------
+
+# 10 Best New Movies Coming To HBO Max In July 2026
+
+Movies, HBO Max
+
+Sat, 27 Jun 2026 21:15:21 GMT
+
+https://screenrant.com/hbo-max-best-new-movies-july-2026/
+
+From landmark horror classics to major recent releases, HBO Max's July 2026 lineup for movies offers something for every type of streamer.
+---------
+
+# One Piece Officially Returns To Netflix In 3 Months
+
+Streaming TV, Masked Recs
+
+Sat, 27 Jun 2026 21:15:21 GMT
+
+https://screenrant.com/one-piece-lego-spinoff-netflix-return/
+
+Netflix helped to launch One Piece into the mainstream with a stunning live-action adaptation, and now they are about to do something completely new.
+---------
+
+# 8 Anime That Set Standards the Industry Still Can’t Match
+
+Anime
+
+Sat, 27 Jun 2026 21:12:01 GMT
+
+https://screenrant.com/anime-industry-standards-cant-match/
+
+Anime has seen some of the most remarkable works of animation ever created; some works, however, exist beyond the industry's bounds.
+---------
+
+# The Hunger Games Is Officially Switching Main Characters In 2026
+
+New Movies, The Hunger Games, The Hunger Games: Sunrise on the Reaping
+
+Sat, 27 Jun 2026 21:00:20 GMT
+
+https://screenrant.com/hunger-games-switching-main-characters-haymitch/
+
+The Hunger Games franchise has left Katniss Everdeen behind, with the series officially switching its main character, again, later this year.
+---------
+
+# Fallout: Nuka Girl Officially Drops Next Month, Mark Your Calendars
+
+Gaming, Fallout
+
+Sat, 27 Jun 2026 21:00:20 GMT
+
+https://screenrant.com/fallout-nuka-girl-statue-july-2026-launch-psa/
+
+Fallout: Nuka Girl is an already iconic release that's officially returning this Summer, though be prepared to spend some money to get it.
+---------
+
+# Disney+ Brings The Perfect Avengers: Doomsday Watch On July 1
+
+Streaming TV, Masked Recs
+
+Sat, 27 Jun 2026 20:45:20 GMT
+
+https://screenrant.com/x-men-97-season-2-perfect-watch-before-avengers-doomsday/
+
+Avengers: Doomsday is a huge tentpole spectacle that could bring Marvel Studios back from the sidelines, but fans need something to watch sooner.
+---------
+
+# After A 34 Year Wait, One Batman Hero Is Appearing In 2 Movies In 2 Years
+
+Movies, Batman, Batman: Knightfall Part 1: Knightfall, Aztec Batman: Clash of Empires
+
+Sat, 27 Jun 2026 20:45:20 GMT
+
+https://screenrant.com/batman-movie-azrael-clash-of-empires-knightfall-part-1/
+
+One underutilized DC hero is having their fate changed, thanks to a 2025 Batman movie role and a 2026 film with them being on the near horizon.
+---------
+
+# Warner Bros. Is Officially Rebooting Tom & Jerry
+
+Movies, Tom and Jerry
+
+Sat, 27 Jun 2026 21:30:13 GMT
+
+https://www.cbr.com/warner-bros-tom-and-jerry-reboot-confirmed/
+
+Fans were excited to see that one of Warner Bros. most iconic animated duos is making a grand return.
+---------
+
+# 7 Near-Perfect '90s Anime Movies No One Remembers
+
+Anime, The Dog of Flanders, Satoshi Kon
+
+Sat, 27 Jun 2026 21:15:13 GMT
+
+https://www.cbr.com/near-perfect-90s-anime-movies-forgotten/
+
+The 1990s were a groundbreaking decade for anime feature films, including some remarkable cult classics that deserve more love and attention!
+---------
+
+# Leonardo DiCaprio & Martin Scorsese's $214M Epic Drama Is Heading to Free Streaming
+
+Movies, The Aviator, Leonardo DiCaprio, Martin Scorsese
+
+Sat, 27 Jun 2026 21:01:13 GMT
+
+https://www.cbr.com/leonardo-dicaprio-the-aviator-drama-pluto-tv-free-streaming-july-2026/
+
+Leonardo DiCaprio and Martin Scorsese's The Aviator is a must-watch more than 20 years later, now that it will be streaming for free.
+---------
+
+# 7 Reasons Critics Are Wrong About Supergirl
+
+Movies, Supergirl, DCU, superheroes
+
+Sat, 27 Jun 2026 21:01:13 GMT
+
+https://www.cbr.com/reasons-dcu-supergirl-reviews-are-wrong-list/
+
+Critics aren't too fond of the DCU's new Supergirl movie. Unfortunately for them, they're wrong again.
+---------
+
+# From's Man in Yellow's Revelation in Season 4 Explained by Creator
+
+TV, From
+
+Sat, 27 Jun 2026 20:30:13 GMT
+
+https://www.cbr.com/from-season-4-sophia-man-in-yellow-explained/
+
+The big revelation about the Man in Yellow in From Season 4 gets broken down by the show's creator.
+---------
+
+# Apple TV's Lean 10-Episode Action Thriller Is TV's Last Great Black Ops Show
+
+TV, Echo 3, Action, Apple TV
+
+Sat, 27 Jun 2026 20:30:13 GMT
+
+https://www.cbr.com/apple-tv-echo-3-best-tv-black-ops-show/
+
+Realistic black ops dramas are rare on TV, but this 10-episode military thriller delivers exactly what genre fans are looking for.
+---------
+
+# Supergirl Star Helen Slater Supports Milly Alcock at DCU Film Screening
+
+Movies, Supergirl
+
+Sat, 27 Jun 2026 20:19:44 GMT
+
+https://www.cbr.com/helen-slater-supports-supergirl-milly-alcock/
+
+Helen Slater attends the new Supergirl movie 42 years after her own feature film first hit theaters.
+---------
+
+# 1 Year Later, The Greatest KPop Demon Hunters Quote Still Hits Hard
+
+Anime, KPop Demon Hunters
+
+Sat, 27 Jun 2026 20:15:13 GMT
+
+https://www.cbr.com/k-pop-demon-hunters-greatest-quote-rumi/
+
+One quote from KPop Demon Hunters' most broken character still resonates with fans over a year after the golden hit's release.
+---------
+
+# Only 3 Werewolf Movies Are Truly Great
+
+Movie, An American Werewolf In London, The Howling, Ginger Snaps, Horror
+
+Sat, 27 Jun 2026 21:30:13 GMT
+
+https://collider.com/werewolf-movies-that-are-truly-great/
+
+There aren't many great werewolf movies, but there are thankfully a few, including two from 1981: The Howling and An American Werewolf in London.
+---------
+
+# Alan Ritchson’s $700M Action Epic Quietly Takes Over Streaming Ahead of Sequel
+
+Movie News, Fast X, Alan Ritchson, Peacock, Fast & Furious
+
+Sat, 27 Jun 2026 21:30:13 GMT
+
+https://collider.com/alan-ritchson-fast-x-streaming-success-peacock-june-2026/
+
+Alan Ritchson's $700 million action blockbuster is a streaming superhit before its final movie in the franchise arrives in 2028.
+---------
+
+# 10 Movies That Were Praised for Being Historically Accurate
+
+Movie, Saving Private Ryan, Master and Commander: The Far Side of the World, 12 Years a Slave, All the President's Men
+
+Sat, 27 Jun 2026 21:15:13 GMT
+
+https://collider.com/historically-accurate-movies/
+
+Historical drama movies like Master and Commander: The Far Side of the World, Lincoln, and Downfall have been praised for their accuracy.
+---------
+
+# Jake Gyllenhaal's Intense Neo-Noir Masterpiece Is Free To Watch in 4 Days
+
+Movie News, Nightcrawler, Jake Gyllenhaal, Riz Ahmed, Renee Russo
+
+Sat, 27 Jun 2026 21:15:13 GMT
+
+https://collider.com/jake-gyllenhaal-nightcrawler-streaming-plex-july-2026/
+
+Nightcrawler, Jake Gyllenhaal's intense neo-noir masterpiece co-starring Riz Ahmed, will soon be available to stream for free.
+---------
+
+# This Overlooked 8-Part Crime Procedural Is Everything One Chicago Fans Have Been Missing
+
+TV Features, FBI, One Chicago, Missy Peregrym, Zeeko Zaki
+
+Sat, 27 Jun 2026 21:10:13 GMT
+
+https://collider.com/fbi-police-procedural-one-chicago-replacement/
+
+FBI, the underappreciated police procedural from Dick Wolf, offers everything One Chicago fans crave, with high-stakes action and a tight-knit team.
+---------
+
+# Tom Hanks' WWII Epic Quietly Soars to Become One of the Biggest Hits of All Time
+
+Movie News, Greyhound, Tom Hanks, World War II, Apple TV
+
+Sat, 27 Jun 2026 21:00:13 GMT
+
+https://collider.com/tom-hanks-ww2-movie-greyhound-apple-tv-streaming-success-june-2026/
+
+Greyhound, the WW2 masterpiece starring Tom Hanks and Stephen Graham, is quietly becoming one of Apple TV's biggest streaming hits ever.
+---------
+
+# Stephen King's Favorite 10-Part Apple TV Thriller Is the Best Series No One Is Talking About
+
+TV Features, Maximum Pleasure Guaranteed, Apple TV, Tatiana Maslany, Thriller
+
+Sat, 27 Jun 2026 20:47:13 GMT
+
+https://collider.com/maximum-pleasure-guaranteed-stephen-king-favorite-apple-tv-thriller/
+
+Horror master Stephen King has praised Apple TV's Maximum Pleasure Guaranteed for its standout performances and shocking twists.
+---------
+
+# The Beatles 1969 Song Paul McCartney Loved That Every Other Beatle Hated
+
+Music Features, The Beatles, Paul McCartney, John Lennon, Rock, Music
+
+Sat, 27 Jun 2026 20:43:12 GMT
+
+https://collider.com/the-beatles-paul-mccartney-loved-maxwells-silver-hammer-1969/
+
+The Beatles in 1969, focusing on the dramatic recording process of Paul McCartney's track Maxwell's Silver Hammer, which all his bandmates hated.
+---------
+
+# All 4 Movies to Ever Top the Sight & Sound Greatest Films of All Time List
+
+Movie, Vertigo, Citizen Kane, Bicycle Thieves, Jeanne Dielman, 23, quai du Commerce, 1080 Bruxelles
+
+Sat, 27 Jun 2026 20:38:13 GMT
+
+https://collider.com/sight-sound-list-greatest-films-all-time-movies-ranked/
+
+Only four masterpieces have ever topped the Sight & Sound list of Greatest Films of All Time, but which one is best? Is it Vertigo or Bicycle Thieves?
+---------
+
+# Prime Video's Rom-Com Take on Star Wars Drops Dazzling First Trailer
+
+Movie News, Tom Bateman, Lili Reinhart, The Love Hypothesis, Star Wars
+
+Sat, 27 Jun 2026 20:30:13 GMT
+
+https://collider.com/prime-video-the-love-hypothesis-trailer/
+
+Prime Video has released the first teaser for the Star Wars-inspired The Love Hypothesis, starring Lili Reinhart and Tom Bateman.
+---------
+
+# The 15 Greatest 'Doctor Who' Episodes of All Time, Ranked
+
+TV Lists, Doctor Who, Matt Smith, David Tennant
+
+Sat, 27 Jun 2026 21:30:18 GMT
+
+https://movieweb.com/greatest-doctor-who-episodes/
+
+As Doctor Who's future remains uncertain, there's never been a better time to look back at the show's high points. These are the 15 greatest episodes.
+---------
+
+# Netflix's Streaming Giant Action Thriller Gets Even More Popular After 1 Year
+
+Features, Netflix, Ad Vitam, Thriller
+
+Sat, 27 Jun 2026 21:15:19 GMT
+
+https://movieweb.com/ad-vitam-netflix-streaming-hit/
+
+Released in 2025, an underrated action thriller that divided critics and audiences has shot to the top of Netflix's chart. Is it any good?
+---------
+
+# All 5 Seasons of 'The Bear,' Ranked
+
+TV Lists, The Bear
+
+Sat, 27 Jun 2026 21:00:19 GMT
+
+https://movieweb.com/every-the-bear-season-ranked/
+
+'The Bear' Season 5 is now streaming on Hulu/Disney+, and the series stars Jeremy Allen White, Ayo Edebiri, and Ebon Moss-Bachrach.
+---------
+
+# 5 Prime Video Thriller Series You Won't Want To Miss This Weekend
+
+TV Lists, Prime Video, The Night Manager, Cross, The Terminal List, Thriller
+
+Sat, 27 Jun 2026 20:30:19 GMT
+
+https://movieweb.com/prime-video-thrillers-weekend-binge/
+
+Need a break from sitcom reruns and run-of-the-mill procedurals? These thrillers on Amazon Prime bring quality and entertainment.
+---------
+
 # Netflix's 3-Part Detective Series Has Such A Good Cast, It'll Never Be Topped
 
 Movies, Masked Recs
