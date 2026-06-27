@@ -1,3 +1,201 @@
+# Red Dead Redemption 2 Official Next-Gen Update Has Gamers Asking For One Fix
+
+Gaming, Red Dead Redemption 2
+
+Sat, 27 Jun 2026 11:00:35 GMT
+
+https://screenrant.com/red-dead-redemption-2-ps5-upgrade-hopes/
+
+Fans are eagerly anticipating a next-gen remaster of Red Dead Redemption 2, and are calling for improved graphics and character models.
+---------
+
+# Doctor Who Officially Starts A New Era With The Perfect New Doctor
+
+Gaming, Doctor Who
+
+Sat, 27 Jun 2026 10:30:20 GMT
+
+https://screenrant.com/doctor-who-circuit-breaker-games-jo-martin-doctor/
+
+Doctor Who is back, and it's about time. The hit sci-fi show is beginning a new era with the perfect face in the lead role.
+---------
+
+# The Bear Confirms A Major Format Change For Season 5
+
+Streaming TV, The Bear
+
+Sat, 27 Jun 2026 10:30:21 GMT
+
+https://screenrant.com/the-bear-season-5-format-change/
+
+The Bear season 5 has massively shaken up the format for the show in the eleventh hour, resulting in some meaningful changes ahead of the finale.
+---------
+
+# God Of War's Thor Officially Returns January 2027
+
+Gaming, God of War
+
+Sat, 27 Jun 2026 10:30:21 GMT
+
+https://screenrant.com/god-of-war-thor-january-2027-statue-release-date/
+
+Pre-order the highly detailed 1:3 scale Thor statue from God of War: Ragnarök, featuring the iconic Norse god.
+---------
+
+# DC Unveils Twisted Redesign For An Iconic Hero
+
+DC Comics, DC
+
+Sat, 27 Jun 2026 10:00:19 GMT
+
+https://screenrant.com/absolute-superman-raven-justice-league/
+
+DC has become incredibly comfortable with redesigning iconic characters, and this one hero's reimagining has been quite mysterious thus far.
+---------
+
+# The Mandalorian Meets Shadow Of The Colossus In Disney+'s 100-Minute High Sci-Fi Movie
+
+Movies, Masked Recs
+
+Sat, 27 Jun 2026 10:00:19 GMT
+
+https://screenrant.com/predator-badlands-the-mandalorian-meets-shadow-of-the-colossus/
+
+One of gaming's most iconic pairs inspired one of the best sci-fi odd couples since Din Djarin and Grogu, and in doing so beat them at their own game.
+---------
+
+# PlayStation Officially Drops 2 Huge Free RPGs, No PS Plus Required
+
+Gaming, PlayStation, PlayStation 5, PlayStation Plus, RPG
+
+Sat, 27 Jun 2026 10:00:19 GMT
+
+https://screenrant.com/playstation-2-free-rpgs-no-playstation-plus/
+
+PlayStation users can play two huge free RPGs for no extra cost and don't even need to have a PlayStation Plus subscription to access them.
+---------
+
+# Fallout: Maximus Officially Announced, Arrives 2027
+
+Gaming, Fallout
+
+Sat, 27 Jun 2026 09:30:21 GMT
+
+https://screenrant.com/fallout-maximus-officially-announced-arrives-2027/
+
+Maximus is undoubtedly one of the most likable characters in the new Fallout series, and he's going to be immortalised in physical form.
+---------
+
+# Universal's $530M Hit Video Game Adaptation Officially Continues With New Sequel
+
+Movies, Five Nights at Freddy's
+
+Sat, 27 Jun 2026 11:00:35 GMT
+
+https://www.cbr.com/universal-five-nights-at-freddys-3-gary-dauberman-screenwriter/
+
+Critics have hated this video game franchise - but fans show continue to love them. Now a third installment is officially on the way.
+---------
+
+# Agatha Christie’s Unfilmable Detective Masterpiece Is the Perfect Poirot Follow-Up
+
+TV, Miss Marple, Poirot, Mystery
+
+Sat, 27 Jun 2026 10:30:15 GMT
+
+https://www.cbr.com/agatha-christie-miss-marple-hercule-poirot-follow-up/
+
+The Hercule Poirot prequel series might be one of the most anticipated shows, but Christie's Miss Marple also deserves a new mystery series.
+---------
+
+# Stephen King's 25-Year-Old Masterpiece Is the Perfect Binge After Widow's Bay
+
+TV, Widow's Bay, Stephen King, Storm of the Century, Horror
+
+Sat, 27 Jun 2026 10:00:12 GMT
+
+https://www.cbr.com/stephen-king-storm-of-the-century-binge-after-widows-bay/
+
+Widow's Bay creator Katie Dippold hasn't been shy about her influence from Stephen King's work, and his 1999 miniseries may be the most influential.
+---------
+
+# 10 Disney Movies I Knew Would Be Masterpieces Within The First 10 Minutes
+
+Movies, Disney, Atlantis: The Lost Empire, Up
+
+Sat, 27 Jun 2026 10:00:12 GMT
+
+https://www.cbr.com/disney-movies-masterpieces-first-10-minutes-list/
+
+Many Disney animated movies can be called masterpieces, but a few proved it within the first 10 minutes.
+---------
+
+# Walton Goggins’ No-Holds-Barred Western Classic Is Reborn as Streaming Superhit
+
+Movie News, Django Unchained, Walton Goggins, Jamie Foxx, Quentin Tarantino
+
+Sat, 27 Jun 2026 11:00:33 GMT
+
+https://collider.com/walton-goggins-western-django-unchained-streaming-success-paramount-plus-starz-june-2026/
+
+Django Unchained, the classic Western thriller starring Walton Goggins, has been reborn as a streaming superhit 14 years later.
+---------
+
+# Say Goodbye to Kevin Costner's Pre-'Yellowstone' Western With a 'Dutton Ranch' Star
+
+Movie News, Open Range, Kevin Costner, Western, Peacock
+
+Sat, 27 Jun 2026 10:30:15 GMT
+
+https://collider.com/kevin-costner-open-range-leaving-peacock-july-2026/
+
+Before Yellowstone, Kevin Costner directed and starred in one of the best Westerns of the 2000s, Open Range. The movie is set to leave Peacock.
+---------
+
+# 10 Intense Thriller Movies That Are Perfect From Start To Finish
+
+Movie, Parasite, Inglourious Basterds, The Menu, Thriller
+
+Sat, 27 Jun 2026 10:06:13 GMT
+
+https://collider.com/intense-thriller-movies-perfect-start-to-finish/
+
+One Battle After Another, Parasite, The Handmaiden, The Menu, and more make up our list of intense thrillers that are perfect from start to finish.
+---------
+
+# The 10 Best 'House of the Dragon' Episodes (So Far), Ranked
+
+TV, House of the Dragon, Fantasy, HBO, George R.R. Martin
+
+Sat, 27 Jun 2026 10:02:14 GMT
+
+https://collider.com/best-house-of-the-dragon-episodes-ranked/
+
+Discover the best episodes of House of the Dragon, ranked based on character development, plot twists, and epic battles.
+---------
+
+# It’s the End of an Era for Netflix’s ‘Bosch’ Replacement as Final Chapter Nears
+
+TV News, The Lincoln Lawyer, Bosch, Netflix
+
+Sat, 27 Jun 2026 10:00:13 GMT
+
+https://collider.com/netflix-bosch-replacement-the-lincoln-lawyer-season-5-release-date-2027/
+
+Netflix's answer to Bosch is setting the stage to air its final season next year, as cameras are officially rolling on The Lincoln Lawyer Season 5.
+---------
+
+# Before ‘The Odyssey,’ Christopher Nolan’s Near-Perfect Sci-Fi Epic Is Returning to Hulu
+
+Music News, Christopher Nolan, Interstellar, Hulu, Matthew McConaughey
+
+Sat, 27 Jun 2026 09:40:13 GMT
+
+https://collider.com/christopher-nolan-interstellar-streaming-hulu-july-1-2026/
+
+Ahead of his new movie, The Odyssey, Christopher Nolan's sci-fi classic, Interstellar, is coming to Hulu. Find out when you can watch the epic film.
+---------
+
 # The Witcher 3: Wild Hunt As We Know It Is Officially Over
 
 Gaming, The Witcher, The Witcher 3: Wild Hunt
