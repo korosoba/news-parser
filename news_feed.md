@@ -1,3 +1,322 @@
+# DC Just Changed Batman Forever With One Simple Announcement
+
+DC Comics, Batman
+
+Sat, 27 Jun 2026 17:00:20 GMT
+
+https://screenrant.com/dc-change-batman-absolute/
+
+Batman was already insurmountable in terms of how much hype the character generates, but one announcement proves his success still has no ceiling.
+---------
+
+# Toph’s New Avatar: The Last Airbender Live-Action Star Addresses Future Return Potential After Netflix Series’ Finale
+
+TV, Avatar: The Last Airbender, Netflix
+
+Sat, 27 Jun 2026 17:00:20 GMT
+
+https://screenrant.com/avatar-the-last-airbender-netflix-toph-future-season-3-ending-miyako/
+
+Exclusive: Miyako addresses the chances of returning as Toph in live-action after Netflix's Avatar: The Last Airbender series ends with season 3.
+---------
+
+# The White Lotus Meets Black Mirror In Paramount+'s 93% RT Thriller Series
+
+Classic TV, Masked Recs
+
+Sat, 27 Jun 2026 17:00:20 GMT
+
+https://screenrant.com/the-curse-show-paramount-plus-white-lotus-meets-black-mirror/
+
+Those who love the cringiness of both The White Lotus and Black Mirror absolutely must watch this Paramount+ thriller series starring Emma Stone.
+---------
+
+# June 30 Is Officially A Sad Day For Xbox Game Pass
+
+Gaming, Xbox Game Pass
+
+Sat, 27 Jun 2026 17:00:20 GMT
+
+https://screenrant.com/xbox-game-pass-june-30-8-games-confirmed-leaving/
+
+Xbox Game Pass has gotten off to a great summer so far, but June 30 is going to be a sad day for subscribers, since a lot of games are leaving.
+---------
+
+# Toy Story 5 Proves It's Time To Move On From Woody & Buzz
+
+Movies, Toy Story 5, Op-Ed
+
+Sat, 27 Jun 2026 16:55:22 GMT
+
+https://screenrant.com/toy-story-5-proves-woody-buzz-lightyear-not-needed-anymore/
+
+Toy Story 5 has arrived and it makes Jessie into the protagonist, marking a change that shows us that we no longer need Woody and Buzz anymore.
+---------
+
+# DCU's Supergirl Writer Reveals Original Plans For Sasha Calle's Scrapped DCEU Spinoff Movie
+
+Superheroes, Supergirl, DC Universe, The Flash
+
+Sat, 27 Jun 2026 16:45:34 GMT
+
+https://screenrant.com/supergirl-2026-ana-nogueira-sasha-calle-scrapped-dceu-movie/
+
+Before Milly Alcock was cast as Supergirl, Sasha Calle was supposed to reprise her role from The Flash, says writer Ana Nogueira.
+---------
+
+# 6 Major DC Characters In Supergirl, Ranked By Power Level
+
+Movies, Supergirl, DC Universe
+
+Sat, 27 Jun 2026 16:45:21 GMT
+
+https://screenrant.com/supergirl-movie-dc-characters-ranked-power-level/
+
+Supergirl features quite a few powerful DC heroes and villains from the comics, but some of them rank higher than the rest in this DCU release.
+---------
+
+# Quentin Tarantino's 2026 Movie Is A Risk He Doesn't Need To Take
+
+Movies, Masked Recs
+
+Sat, 27 Jun 2026 16:45:21 GMT
+
+https://screenrant.com/quentin-tarantino-adventures-of-cliff-booth-risky-sequel/
+
+Quentin Tarantino takes a creative risk with his upcoming 2026 film, The Adventures Of Cliff Booth, a sequel to Once Upon A Time In Hollywood.
+---------
+
+# 10 Best New Movies Coming To Netflix In July 2026
+
+Movies, Netflix
+
+Sat, 27 Jun 2026 16:40:23 GMT
+
+https://screenrant.com/netflix-best-new-movies-july-2026/
+
+As June gives way to July, a slew of new movies are coming to Netflix. These 10 selections are the best of Netflix's new arrivals for July 2026.
+---------
+
+# The Next Era Of Daredevil Officially Begins This September
+
+Marvel Comics, Daredevil
+
+Sat, 27 Jun 2026 16:30:20 GMT
+
+https://screenrant.com/daredevil-next-era-begins-september-2026/
+
+Before Season 3 of his hit MCU show, Daredevil is enjoying a massive heyday in Marvel Comics as he becomes part of an epic new team.
+---------
+
+# Tom Cruise's $1.8B Action Franchise Is Heading to Free Streaming at the Right Time
+
+Movies, Top Gun, Top Gun: Maverick
+
+Sat, 27 Jun 2026 17:00:13 GMT
+
+https://www.cbr.com/tom-cruise-top-gun-movies-paramount-free-streaming-july-2026/
+
+Two of Tom Cruise's best films of all time are heading to free streaming just in time for the Fourth of July.
+---------
+
+# DC Reveals Batman’s Future Power Level Is Even Greater Than Superman’s
+
+Comics, Batman, DC Comics, comics
+
+Sat, 27 Jun 2026 17:00:13 GMT
+
+https://www.cbr.com/dc-reveals-batman-future-power-level/
+
+The Dark Knight, Batman has had to take measures to meet the moment and introduces some new technology that will make him a formidable adversary.
+---------
+
+# From Creator Teases 'Endgame' Season 5 Series Finale
+
+TV, From
+
+Sat, 27 Jun 2026 16:39:37 GMT
+
+https://www.cbr.com/from-endgame-season-5-series-finale/
+
+The series has been raising more questions than answers, but it just got a fantastic Season 5 tease.
+---------
+
+# 3 Most Unfilmable Sci-Fi Book Series That Will Never Become Movies
+
+Movies, Sci-Fi
+
+Sat, 27 Jun 2026 16:30:13 GMT
+
+https://www.cbr.com/unfilmable-sci-fi-books-never-have-movie-adaptation-list/
+
+These sci-fi book series push storytelling so far beyond traditional formats that even modern adaptations would struggle to bring them to life.
+---------
+
+# Sugar Season 2: Laura Donnelly on Playing Charlotte
+
+TV, Sugar
+
+Sat, 27 Jun 2026 16:15:13 GMT
+
+https://www.cbr.com/video/sugar-season-2-laura-donnelly-on-playing-charlotte/
+
+Sugar Season 2 introduces Laura Donnelly's mysterious Charlotte, but don't expect her to get caught up in the show's biggest sci-fi twists. Donnelly explains why she approached the role as a classic film noir character, even as the Apple TV+ series embraces its alien mythology.
+---------
+
+# 5 Anime Characters Smarter Than Light Yagami
+
+Anime, Death Note, Naruto
+
+Sat, 27 Jun 2026 16:15:13 GMT
+
+https://www.cbr.com/anime-characters-smarter-light-yagami/
+
+Outsmarting Light Yagami is no easy feat, but these anime characters have the intelligence to make it possible.
+---------
+
+# What's Coming to Netflix in July 2026? Everything Arriving This Month
+
+TV, Netflix
+
+Sat, 27 Jun 2026 16:01:02 GMT
+
+https://www.cbr.com/what-coming-netflix-july-2026-full-list/
+
+Summer is in full swing, and Netflix isn't joking around, as it's bringing back shows like Heroes and Hannibal.
+---------
+
+# James Gunn Doubled Down on Supergirl’s Controversial Movie Ending
+
+CBR Exclusives, Supergirl
+
+Sat, 27 Jun 2026 16:01:02 GMT
+
+https://www.cbr.com/james-gunn-doubled-down-on-supergirl-controversial-movie-ending/
+
+The ending of Supergirl is different from the comic book, and Craig Gillespie tells CBR that he had James Gunn's support from Day One.
+---------
+
+# 12 Years Later, No Game No Life Finally Returns With Shiro’s First Official Redesign
+
+Anime, No Game No Life, No Game, No Life, merchandise, No Game No Life: Zero
+
+Sat, 27 Jun 2026 16:01:02 GMT
+
+https://www.cbr.com/no-game-no-life-shiro-official-redesign/
+
+Now that the light novel series is back, fans of No Game, No Life can also look forward to a dark yet colorful figure of Shiro by Good Smile Company.
+---------
+
+# 8 Years Ago, Dwayne "The Rock" Johnson's Forgotten Video Game Adaptation Hid a Bigger Story
+
+Movie Features, Rampage, Dwayne Johnson, Brad Peyton, video game movies
+
+Sat, 27 Jun 2026 16:52:15 GMT
+
+https://collider.com/rampage-dwayne-johnson-video-game-movie-career-turning-point/
+
+Rampage turned a simple arcade game into a Dwayne Johnson blockbuster, but the hit video game adaptation hinted at troubling career trends.
+---------
+
+# 7 Must-Watch Movies Leaving Netflix in July
+
+Movie, Netflix, Just Go With It, Saw, Bohemian Rhapsody
+
+Sat, 27 Jun 2026 16:19:14 GMT
+
+https://collider.com/movies-leaving-netflix-july-2026/
+
+Say goodbye to Adam Sandler comedies like Just Go with It and modern horror favorites like Saw, as these movies are set to leave Netflix in July.
+---------
+
+# Peacock’s Biggest Problem Is Why This 94%-Rated Spy Thriller Just Got Cancelled After 1 Season
+
+TV Features, Ponies, Emilia Clarke, Peacock, Thriller
+
+Sat, 27 Jun 2026 16:16:13 GMT
+
+https://collider.com/ponies-cancelled-peacock-spy-thriller-problem/
+
+Peacock did the critically acclaimed series, Ponies, a disservice by not betting on the female-driven spy thriller.
+---------
+
+# Move Over ‘Obsession,’ 2026 Has Another Horror Sensation on Its Hands
+
+Movie News, Leviticus, Horror, Box Office, Obsession
+
+Sat, 27 Jun 2026 16:15:13 GMT
+
+https://collider.com/leviticus-box-office-milestone-horror-movie/
+
+Leviticus, a 92% Rotten Tomatoes horror sensation, has passed its first box office milestone amid a huge year for the genre.
+---------
+
+# ‘Supergirl’ Can’t Match the Momentum of James Gunn’s ‘Superman’
+
+Movie News, Supergirl, Superman, James Gunn, Box Office
+
+Sat, 27 Jun 2026 16:13:47 GMT
+
+https://collider.com/supergirl-box-office-debut-james-gunn-dcu/
+
+Supergirl has stumbled in its box office debut, earning only a fraction of James Gunn’s Superman opening.
+---------
+
+# Taylor Sheridan's Crime Thriller Is Officially One of the Biggest Shows on Streaming
+
+TV News, Tulsa King, Paramount Plus, Hot on Streaming, Taylor Sheridan
+
+Sat, 27 Jun 2026 17:00:19 GMT
+
+https://movieweb.com/taylor-sheridan-tulsa-king-streaming-success-july-2026/
+
+Taylor Sheridan's hit crime thriller with Sylvester Stallone is a global streaming success on Paramount+ before Season 4 of 'Tulsa King.'
+---------
+
+# 'John Wick' Meets 'Reacher' in Alan Ritchson's Upcoming Action Thriller
+
+Features, Motor City, Alan Ritchson
+
+Sat, 27 Jun 2026 17:00:19 GMT
+
+https://movieweb.com/alan-ritchson-motor-city-john-wick-reacher/
+
+Alan Ritchson's latest violent action spectacle has a very specific trait that echoes one of the most notable traits of the 'John Wick' franchise.
+---------
+
+# Brendan Fraser's 'Breaking Bad' Replacement Series Releases Official Trailer
+
+TV News, Breaking Bear, Brendan Fraser
+
+Sat, 27 Jun 2026 16:46:24 GMT
+
+https://movieweb.com/brendan-fraser-sarah-michelle-gellar-breaking-bear-trailer/
+
+Brendan Fraser spoofs Yogi Bear in this 'Breaking Bad' and 'The Sopranos' parody about forest animals rising against oil and logging companies.
+---------
+
+# Jean-Claude Van Damme's '80s Classic 'Bloodsport' Leaving Free Streaming
+
+Movie News, Jean-Claude Van Damme, Bloodsport, Coming/Leaving Streaming
+
+Sat, 27 Jun 2026 16:33:50 GMT
+
+https://movieweb.com/bloodsport-leaving-free-streaming-tubi-july-2026/
+
+Time to catch one of the martial arts icon's absolute best before it becomes more expensive to watch.
+---------
+
+# 8 Visually Stunning Animated TV Shows Everyone Should Try Once
+
+TV Lists, Animation
+
+Sat, 27 Jun 2026 16:01:20 GMT
+
+https://movieweb.com/animated-shows-visually-stunning/
+
+Animation is not just for kids, and I'm sick of hearing that. There are a whole bunch of animated shows that are worth your time. Read on for more.
+---------
+
 # Criminal Minds Abandons Evolution's Saving Grace Trend For No Apparent Reason
 
 Network TV, Criminal Minds
