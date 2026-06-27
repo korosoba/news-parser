@@ -1,3 +1,289 @@
+# 19 Best Weapons In The Demon's Souls Remake
+
+Gaming, Demon's Souls
+
+Sat, 27 Jun 2026 22:30:22 GMT
+
+https://screenrant.com/best-weapons-video-game-demons-souls-remake/
+
+FromSoftware’s Souls games raised the bar for weapon mechanics in video games, and these are the best weapons in the Demon's Souls remake.
+---------
+
+# One Piece Is Officially Changing Genres for Its Final Saga
+
+Anime, One Piece
+
+Sat, 27 Jun 2026 22:30:21 GMT
+
+https://screenrant.com/one-piece-changing-genre-last-arc/
+
+As the Final Saga unfolds, One Piece seems to be completely changing genres, but it's argubaly been a long time coming.
+---------
+
+# The Wheel Of Time Meets Lord Of The Rings In Netflix's 4-Part High Fantasy Series
+
+Streaming TV, Masked Recs
+
+Sat, 27 Jun 2026 22:30:21 GMT
+
+https://screenrant.com/the-witcher-blood-origin-netflix-wheel-of-time-meets-lotr/
+
+Many swords and sorcery shows require a lot of investment before the action kicks off, but this Netflix gem keeps things short and sweet.
+---------
+
+# 10 Horror Movies That Got Sequels Over A Decade Later (& Were Actually Worth The Wait)
+
+Classic Movies, Horror
+
+Sat, 27 Jun 2026 22:25:21 GMT
+
+https://screenrant.com/horror-movie-sequels-decades-later-worth-wait/
+
+In a world where horror movies are almost always followed by the start of a franchise, a few great horror movies waited over a decade to get a sequel.
+---------
+
+# Netflix Quietly Ended One Of Hollywood's Biggest Sci-Fi Franchises On Streaming
+
+Streaming TV, Masked Recs
+
+Sat, 27 Jun 2026 22:15:20 GMT
+
+https://screenrant.com/terminator-zero-show-quietly-canceled-by-netflix/
+
+Once again, Netflix has cut short an incredible TV show, but this time it has a major ripple effect on one of the best sci-fi franchises.
+---------
+
+# Prime Video's Maxton Hall Season 3 Finally Gets Official Release Window
+
+TV, Maxton Hall: The World Between Us
+
+Sat, 27 Jun 2026 22:09:25 GMT
+
+https://screenrant.com/maxton-hall-the-world-between-us-season-3-prime-video-release-window/
+
+Maxton Hall: The World Between Us season 3's official release window has finally been confirmed during a panel at Prime Video's Obsessed Fest 2026.
+---------
+
+# The 65-Year-Old Spy Character Who Makes James Bond Look Like An Amateur
+
+TV, Masked Recs
+
+Sat, 27 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/george-smiley-james-bond-look-amateur/
+
+James Bond might be the most famous spy of all time, but he might not be the most competent, with a different spy character claiming that title.
+---------
+
+# Marvel Just Officially Debuted Its Answer To Boba Fett
+
+Marvel Comics, Boba Fett
+
+Sat, 27 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/marvel-mephisto-demon-assassin-frenzah/
+
+Marvel takes a page from Star Wars' iconic Boba Fett and introduces a menacing bounty hunter with a resemblance to the beloved Mandalorian.
+---------
+
+# Zelda Fans Heartbroken Over Cancelled Game
+
+Gaming, The Legend of Zelda
+
+Sat, 27 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/zelda-cancelled-game-fans-react/
+
+Nintendo's surprise announcement of an official The Legend of Zelda: Ocarina of Time remake for the Switch 2 has led to the cancellation of another.
+---------
+
+# Pokémon Fans Are Freaking Out Over New Trademark
+
+Gaming, Pokemon
+
+Sat, 27 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/pokemon-spot-trademark-filing-fan-reaction/
+
+Pokémon fans have spotted a trademark suggesting an upcoming release, and no one has any idea what it could be — but that hasn’t stopped speculation.
+---------
+
+# Bill Skarsgård's Forgotten Netflix Horror Show With 38% RT Returns as a PVOD Hit 13 Years Later
+
+TV, Hemlock Grove, Horror, Netflix
+
+Sat, 27 Jun 2026 22:30:14 GMT
+
+https://www.cbr.com/bill-skarsgard-netflix-hemlock-grove-horror-pvod-success-june-2026/
+
+Bill Skarsgård has been influencing the horror genre long before starring in Stephen King's It, and Hemlock Grove is now a hit on PVOD.
+---------
+
+# House of the Dragon Finally Beats Game of Thrones With a Historic Franchise First
+
+TV, House of the Dragon, Game Of Thrones, HBO Max
+
+Sat, 27 Jun 2026 22:30:14 GMT
+
+https://www.cbr.com/house-of-the-dragon-beats-game-of-thrones-vermax-death/
+
+House of the Dragon will always compete with its predecessor, but the spin-off has finally beaten Game of Thrones at something.
+---------
+
+# 10 Thrillers I Knew Would Be Masterpieces Within The First 10 Minutes
+
+Movies, Thriller, No Country for Old Men, Quentin Tarantino
+
+Sat, 27 Jun 2026 22:30:14 GMT
+
+https://www.cbr.com/instant-thriller-masterpieces-list/
+
+The thriller genre has used crime and mystery to deliver some of Hollywood’s greatest masterpieces, and some are perfect from the beginning.
+---------
+
+# 5 Forgotten PS4 Games That Are Perfect From Start to Finish
+
+Games, PlayStation 4, Video Games, Alien: Isolation, Assassin's Creed Syndicate
+
+Sat, 27 Jun 2026 22:15:13 GMT
+
+https://www.cbr.com/perfect-but-forgotten-ps4-games/
+
+The PlayStation 4 was a high-point in Sony's history, producing high-quality games fans still talk about today, but not all great games get remembered
+---------
+
+# What's Coming to Tubi in July 2026? Everything Arriving for Free Next Month
+
+TV, Tubi
+
+Sat, 27 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/tubi-july-2026-streaming-additions/
+
+Tubi's complete list of new TV shows and movies coming to the free streaming platform in July has been revealed.
+---------
+
+# One Piece Finally Gives Nami What Fans Have Waited Almost 30 Years For
+
+Anime, One Piece, Shonen Jump
+
+Sat, 27 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/one-piece-heroines-official-trailer-july-2026/
+
+One Piece fans finally get a first look and release date for Nami’s long-awaited spotlight in the new One Piece: Heroines anime special.
+---------
+
+# The Joker Is Officially Getting His Very Own Manga
+
+Comics, Joker
+
+Sat, 27 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/joker-manga-machi-bura-joker/
+
+The Clown Prince of Crime gets a new change of scenery.
+---------
+
+# Top 10 Alternate Timeline DC Heroes Who Deserve to Join the Main DC Universe
+
+Comics, DC Comics, Justice League, Superman
+
+Sat, 27 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/alternate-timeline-dc-heroes-who-deserve-main-continuity-status/
+
+Some of DC Comics' coolest heroes have been locked away in alternate timelines.
+---------
+
+# 8 Best Post-Apocalyptic Books of All Time
+
+Books and Comics, Akira, The Stand, The Road, World War Z
+
+Sat, 27 Jun 2026 22:51:13 GMT
+
+https://collider.com/best-post-apocalyptic-books-all-time-ranked/
+
+Classic books like The Stand, I Am Legend, and Lucifer's Hammer are all up there among the very best works of post-apocalyptic fiction ever written.
+---------
+
+# Jon Bernthal's Prime Video Action Hit Is the Perfect Weekend Binge for ‘Reacher’ Fans
+
+Movie News, Jon Bernthal, The Accountant, The Accountant 2, Prime Video
+
+Sat, 27 Jun 2026 22:45:13 GMT
+
+https://collider.com/jon-bernthal-the-accountant-streaming-success-prime-video-june-2026/
+
+Jon Bernthal's two-part action series has quietly become a massive success on Prime Video, earning the love of Reacher fans everywhere.
+---------
+
+# 10 Classic '90s Shows You Should Watch in 2026
+
+TV, 1990s, Everybody Loves Raymond, Twin Peaks, The X-Files
+
+Sat, 27 Jun 2026 22:41:14 GMT
+
+https://collider.com/classic-90s-shows-to-watch-2026/
+
+Transport yourself back to the '90s with these timeless TV shows, all worth watching again in 2026, including Twin Peaks, ER, and The X-Files.
+---------
+
+# 10 Years Later, Pirates of the Caribbean Star's 10/10 Masterpiece Is Streaming for Free
+
+Movie News, Moonlight, Mahershala Ali, A24, Streaming
+
+Sat, 27 Jun 2026 22:30:14 GMT
+
+https://collider.com/mahershala-ali-moonlight-streaming-plex-july-2026/
+
+Moonlight, One of the best Oscar-winners of this century, is about to become free to stream. Find out more about the Mahershala Ali-led gem.
+---------
+
+# Forget ‘Reacher,’ This 10-Part Spy Thriller Is Your Next Streaming Obsession
+
+TV News, The Day of the Jackal, Eddie Redmayne, Peacock, Reacher
+
+Sat, 27 Jun 2026 22:15:13 GMT
+
+https://collider.com/day-of-the-jackal-reacher-inspiration-streaming-success-peacock-june-2026/
+
+The spy thriller that inspired Alan Ritchson's Reacher is a global streaming success before its Season 2 premiere in 2027. Read on for more.
+---------
+
+# Keanu Reeves’ Classic Shakespeare Romance Is Finally Free To Watch
+
+Movie News, Much Ado About Nothing, Keanu Reeves, Kenneth Branagh, Shakespeare
+
+Sat, 27 Jun 2026 22:00:14 GMT
+
+https://collider.com/keanu-reeves-shakespeare-much-ado-about-nothing-streaming-plex-july-2026/
+
+Kenneth Branagh's Much Ado About Nothing features Keanu Reeves taking on Shakespeare, and it is coming to free streaming next month.
+---------
+
+# Tom Hardy's Remake of One of the Greatest Stories Ever Told Is a Hidden Gem
+
+Features, Tom Hardy, Cultural Reassessment
+
+Sat, 27 Jun 2026 22:30:19 GMT
+
+https://movieweb.com/tom-hardy-oliver-twist-remake/
+
+The BBC's classic remake starring Tom Hardy is one of the best adaptations of a beloved and timeless novel.
+---------
+
+# Prime Video's "Guy Ritchie-Esque" Thriller Series Is a Perfect Binge-Watch
+
+Features, The Outlaws, Guy Ritchie, Thriller, Prime Video
+
+Sat, 27 Jun 2026 22:00:19 GMT
+
+https://movieweb.com/amazon-prime-the-outlaws-guy-ritchie-esque/
+
+It features the same kind of escalating criminal chaos, eccentric characters, and shocking twists and turns as a Guy Ritchie flick.
+---------
+
 # Forget Carmy, The Bear Season 5 Confirms The Real MVP Of The Show
 
 Streaming TV, The Bear
