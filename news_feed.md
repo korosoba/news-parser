@@ -1,3 +1,91 @@
+# The Witcher 3: Wild Hunt As We Know It Is Officially Over
+
+Gaming, The Witcher, The Witcher 3: Wild Hunt
+
+Sat, 27 Jun 2026 09:00:20 GMT
+
+https://screenrant.com/witcher-3-wild-hunt-end-of-an-era/
+
+The Witcher 3 is about to get new content more than a decade since its release, but that's not all that's changing.
+---------
+
+# Xbox Game Pass Members Only Have 24 Hours Left To Play 3 Free Games
+
+Gaming, Xbox Game Pass, Triple-A Games, PC
+
+Sat, 27 Jun 2026 07:00:20 GMT
+
+https://screenrant.com/xbox-game-pass-free-play-days-june-25-2026/
+
+The latest Xbox Game Pass promotion is ending soon, but there's still enough time to have some fun with free hits before they depart the service.
+---------
+
+# Jason Statham and Guy Ritchie's Criminally Underrated Spy Thriller Is Perfect From Start to Finish
+
+Movie News, Operation Fortune: Ruse de Guerre, Jason Statham, Guy Ritchie, Prime Video
+
+Sat, 27 Jun 2026 09:20:14 GMT
+
+https://collider.com/jason-statham-operation-fortune-ruse-de-guerre-streaming-success-prime-video-june-2026/
+
+Jason Statham and Guy Ritchie's $50 million spy sensation with shades of James Bond and The Italian Job is a global streaming hit.
+---------
+
+# 10 Greatest Crime Shows of the Last 10 Years, Ranked
+
+TV, Crime, Mindhunter, Better Call Saul, Dexter: Resurrection
+
+Sat, 27 Jun 2026 09:18:15 GMT
+
+https://collider.com/best-crime-shows-last-10-years-ranked/
+
+Explore the best crime shows of the past decade that offer gripping storylines and exceptional performances, from Better Call Saul to Mindhunter.
+---------
+
+# Paramount+ Says Goodbye to Steven Spielberg’s Forgotten Detective Movie
+
+Movie News, Young Sherlock Holmes, Steven Spielberg, Paramount Plus, Barry Levinson
+
+Sat, 27 Jun 2026 09:00:13 GMT
+
+https://collider.com/steven-spielberg-produced-young-sherlock-holmes-leaving-paramount-plus-july-2026/
+
+The Steven Spielberg-produced Young Sherlock Holmes movie is leaving Paramount+ soon. Here's everything you should know.
+---------
+
+# Jason Statham’s Most Expensive Flop Is Quietly Taking Over Streaming Again
+
+Movie News, Expend4bles, Jason Statham, Prime Video, Sylvester Stallone
+
+Sat, 27 Jun 2026 08:40:12 GMT
+
+https://collider.com/jason-statham-the-expendables-4-streaming-success-prime-video-june-2026/
+
+The biggest box office bomb of Jason Statham's career is staging a global comeback following surprise sequel news earlier this year.
+---------
+
+# Say Goodbye to Russell Crowe’s 93% RT Military Masterpiece on Netflix
+
+Movie News, Land of Bad, Russell Crowe, Liam Hemsworth, Netflix
+
+Sat, 27 Jun 2026 08:20:13 GMT
+
+https://collider.com/russell-crowe-land-of-bad-leaving-netflix-july-2026/
+
+Russell Crowe's military thriller with Liam Hemsworth, Land of Bad, is leaving Netflix soon. Find out everything you should know below.
+---------
+
+# Netflix's Cancelled 2-Part Crime Series Is Getting a Second Chance
+
+TV News, Mindhunter, David Fincher, Netflix, The Boroughs
+
+Sat, 27 Jun 2026 08:00:12 GMT
+
+https://collider.com/netflix-mindhunter-streaming-success-june-2026/
+
+Forget The Boroughs, Netflix's crime masterpiece that was dropped after only two seasons is still the platform's harshest cancellation.
+---------
+
 # Pirates Of The Caribbean Is Back Thanks To This Upcoming Spiritual Successor
 
 Gaming, Pirates of the Caribbean, Sea of Thieves, Live Service Games, PC
