@@ -1,3 +1,322 @@
+# Netflix's 3-Part Detective Series Has Such A Good Cast, It'll Never Be Topped
+
+Movies, Masked Recs
+
+Sat, 27 Jun 2026 20:01:20 GMT
+
+https://screenrant.com/knives-out-netflix-cast-never-beat/
+
+Netflix's major detective franchise features an incredible array of talented actors, with each performer bringing something memorable to the story.
+---------
+
+# Resident Evil Fans United In Celebrating Latest Multi-Entry Leak
+
+Gaming, Resident Evil, Triple-A Games, PC
+
+Sat, 27 Jun 2026 20:00:21 GMT
+
+https://screenrant.com/resident-evil-veronica-link-games-leak-reaction/
+
+If this latest leak is true, the Resident Evil series could be permanently changing the story of the iconic survival horror series moving forward.
+---------
+
+# Jackass 6 & Future Spinoff Potential Clarified By Johnny Knoxville & Cast
+
+Exclusive, Jackass: Best and Last
+
+Sat, 27 Jun 2026 19:58:34 GMT
+
+https://screenrant.com/jackass-6-spinoff-potential-after-best-and-last-johnny-knoxville-cast/
+
+EXCLUSIVE: Jackass: Best and Last may not be the official farewell, as the stars of the comedy franchise reveal a surprising spinoff idea.
+---------
+
+# GTA 6 Online Release Date Splits Gamers
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, Triple-A Games, PC
+
+Sat, 27 Jun 2026 19:54:15 GMT
+
+https://screenrant.com/gta-6-online-release-date-gamers-speculation/
+
+Grand Theft Auto 6's Online mode isn't synchronizing with the single-player launch date, and the question of when it will actually come is complex.
+---------
+
+# 10 Most Important Characters In Marvel's New Avengers: Doomsday Trailer
+
+Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Sat, 27 Jun 2026 19:45:27 GMT
+
+https://screenrant.com/marvel-avengers-doomsday-trailer-most-important-characters/
+
+Marvel's latest Avengers: Doomsday trailer features several heroes and villains, and some of them emerge as the footage's most important characters.
+---------
+
+# HBO's 10-Year-Old Sci-Fi Series Had A Near-Perfect First Season
+
+TV, Masked Recs
+
+Sat, 27 Jun 2026 19:45:20 GMT
+
+https://screenrant.com/westworld-hbo-near-perfect-first-season/
+
+Very few sci-fi series manage to hit the ground running, but this decade-old masterpiece got virtually everything spot on right from the get-go.
+---------
+
+# I Tried Supergirl’s Alien Slug Popcorn, Here’s How It Really Tastes
+
+Superheroes, Supergirl, DC Universe
+
+Sat, 27 Jun 2026 19:33:25 GMT
+
+https://screenrant.com/supergirl-2026-set-visit-alien-slug-popcorn-taste/
+
+One of Supergirl's zaniest gags was real. Find out what the alien slug popcorn really tasted like and how the slug's visual effects were created.
+---------
+
+# 12 MCU Easter Eggs You Probably Never Noticed
+
+Movies, Marvel Cinematic Universe, Marvel
+
+Sat, 27 Jun 2026 19:30:20 GMT
+
+https://screenrant.com/mcu-easter-eggs-deep-cut-never-notice/
+
+With over sixty different movies and TV shows under its belt, the MCU is packed with clear Easter eggs, but you probably missed these twelve.
+---------
+
+# Marvel Officially Recasts Green Goblin, And Spider-Man Fans Are Thrilled
+
+Gaming, Marvel, Spider-Man
+
+Sat, 27 Jun 2026 19:30:20 GMT
+
+https://screenrant.com/marvel-tokon-fighting-souls-green-goblin-casting/
+
+Marvel's upcoming fighting game, Marvel Tokon: Fighting Souls, features a new rendition of the Green Goblin.
+---------
+
+# Supergirl Director Reportedly Circling Sci-Fi Thriller Starring Glen Powell
+
+Movies, Glen Powell, Craig Gillespie
+
+Sat, 27 Jun 2026 19:16:28 GMT
+
+https://screenrant.com/homewreckers-glen-powell-movie-craig-gillespie-direct-in-talks/
+
+Craig Gillespie is reportedly in negotiations to helm the science-fiction thriller Homewreckers starring Glen Powell for Legendary Pictures.
+---------
+
+# NBC's 4-Season Superhero Series Officially Returns to Netflix for the First Time in a Decade
+
+TV, NBC, Peacock, Netflix, Heroes
+
+Sat, 27 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/nbc-superhero-series-heroes-officially-returns-to-netflix/
+
+Finally, the classic NBC superhero series has found its way back to Netflix.
+---------
+
+# Wait... Did Ben 10 Just Reference Absolute Batman?
+
+Comics, Absolute Batman, Ben 10
+
+Sat, 27 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/ben-10-absolute-batman-reference/
+
+The new mega-popular Ben 10 comic pays homage to Absolute Batman
+---------
+
+# 10 Marvel Heroes Marvel Studios Is Ignoring in the MCU
+
+Comics, Marvel Cinematic Universe, Marvel
+
+Sat, 27 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/top-marvel-heroes-mcu-is-ignoring/
+
+Will these forgotten heroes ever make their MCU return?
+---------
+
+# Dandadan Officially Gives Jiji a New Evil Eye Transformation
+
+Anime, Dandadan, merchandise
+
+Sat, 27 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/dandadan-jiji-evil-eye-banpresto-release/
+
+Dandadan fans just got a glimpse at Jiji's next Evil Eye look, and it is just as spine-chilling as it is a dynamic action piece.
+---------
+
+# 5 Greatest Robin Hood Movies, Ranked
+
+Movies, Robin Hood: Men in Tights
+
+Sat, 27 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/best-robin-hood-movies-list/
+
+Explore the top 5 Robin Hood movies, ranked from classic to modern adaptations, showcasing the enduring appeal of the legendary outlaw.
+---------
+
+# Grand Theft Auto VI Buyers Hoping for a Physical Disc Version Get Bad News
+
+Games, Grand Theft Auto
+
+Sat, 27 Jun 2026 19:38:37 GMT
+
+https://www.cbr.com/grand-theft-auto-6-no-physical-disc-copies/
+
+Following the game's digital-only controversy, a new report sets the record straight on the rumors of GTA 6 getting physical disc versions.
+---------
+
+# Netflix's 4-Part Easy-to-Binge Thriller Miniseries Officially Renewed for Season 2
+
+TV, The Monster of Florence
+
+Sat, 27 Jun 2026 19:30:44 GMT
+
+https://www.cbr.com/netflix-the-monster-of-florence-renewed-for-season-2/
+
+The series was based on a true story, and it's now continuing.
+---------
+
+# Netflix Is Quietly Breaking Avatar Rules With a Controversial Last Airbender Change
+
+TV, Avatar: The Last Airbender, Netflix
+
+Sat, 27 Jun 2026 19:30:13 GMT
+
+https://www.cbr.com/netflix-avatar-last-airbender-katara-zuko-romance/
+
+The second season of the live-action Avatar: The Last Airbender remake set up a divisive change to the dynamic between two major characters.
+---------
+
+# Only 10 Movies From the 2000s Are Truly Perfect From Start to Finish
+
+Movies, The Lord of the Rings, James Bond, Action
+
+Sat, 27 Jun 2026 19:30:13 GMT
+
+https://www.cbr.com/greatest-2000s-movies-prefect-from-start-to-finish-list/
+
+The 2000s remains the strongest decade of the 21st century so far in how many masterpieces it produced, and these flawless films prove it.
+---------
+
+# Forgotten '90s Anime That Deserve a Modern Remake
+
+Anime, Flame Of Recca, Shadow Skill
+
+Sat, 27 Jun 2026 19:15:12 GMT
+
+https://www.cbr.com/forgotten-90s-anime-need-remake/
+
+These overlooked anime from the 1990s have more than enough potential to thrive with a modern revival.
+---------
+
+# Guy Ritchie’s 10-Part Crime Masterpiece Is Still a Streaming Success Despite the Fan Backlash
+
+TV News, MobLand, Tom Hardy, Guy Ritchie, Paramount Plus
+
+Sat, 27 Jun 2026 20:00:13 GMT
+
+https://collider.com/tom-hardy-mobland-streaming-success-paramount-plus-june-2026/
+
+Despite the recent controversy surrounding Tom Hardy, fans can't get enough of MobLand, his hit crime thriller directed by Guy Ritchie.
+---------
+
+# This 8-Part Detective Procedural on Netflix Gets Better With Every Rewatch
+
+TV Features, Brooklyn Nine-Nine, Andy Samberg, Andre Braugher, netfix
+
+Sat, 27 Jun 2026 19:38:14 GMT
+
+https://collider.com/brooklyn-nine-nine-detective-procedural-netflix-rewatch/
+
+Brooklyn Nine-Nine is streaming in its entirety on Netflix. Here's why this hilarious workplace sitcom should be your next binge obsession.
+---------
+
+# Only 5 Thrillers From the 2010s Can Be Considered True Masterpieces
+
+Movie, Thriller, Prisoners, Uncut Gems, Gone Girl
+
+Sat, 27 Jun 2026 19:36:13 GMT
+
+https://collider.com/thriller-movies-2010s-true-masterpieces/
+
+The 2010s were an incredible time for the thriller genre, but only a few movies can be considered masterpieces, including Gone Girl and Prisoners.
+---------
+
+# 10 Greatest Brendan Fraser Movies
+
+Movie, Brendan Fraser, The Mummy, The Whale, Pressure
+
+Sat, 27 Jun 2026 19:17:14 GMT
+
+https://collider.com/best-brendan-fraser-movies-ranked/
+
+From the adventure gem The Mummy to the psychological melodrama The Whale, we highlight and determine the best of Brendan Fraser's filmography.
+---------
+
+# One of the Best Sci-Fi Franchise-Starters Ever Made Rises on Hulu
+
+Movie News, Rise of the Planet of the Apes, Andy Serkis, Hulu, Sci-Fi
+
+Sat, 27 Jun 2026 19:00:13 GMT
+
+https://collider.com/andy-serkis-rise-of-the-planet-of-the-apes-streaming-hulu-july-2026/
+
+One of the most successful sci-fi franchise starters of the last two decades, Rise of the Planet of the Apes, is coming to Hulu. Find out when.
+---------
+
+# John Wick Legend's 89-Minute Action Thriller Officially Coming to Free Streaming
+
+Movie News, Avengement, Tubi, Coming/Leaving Streaming, John Wick, Action
+
+Sat, 27 Jun 2026 20:00:18 GMT
+
+https://movieweb.com/avengement-john-wick-action-streaming-free-tubi-july-2026/
+
+John Wick star Scott Adkins' underrated action thriller 'Avengement' will stream for free on Tubi in July 2026.
+---------
+
+# The 10 Greatest Final Lines in Fantasy Movie History, Ranked
+
+Movie Lists, Fantasy
+
+Sat, 27 Jun 2026 20:00:18 GMT
+
+https://movieweb.com/greatest-final-lines-fantasy-movie-ranked/
+
+From 'Harry Potter' to 'The Wizard of Oz', how do the greatest fantasy movie ending lines of all time stack up?
+---------
+
+# 6 Masterpiece Fantasy TV Shows You Can Stream for Free
+
+TV Lists, Fantasy, Outlander, Interview with the Vampire
+
+Sat, 27 Jun 2026 19:30:19 GMT
+
+https://movieweb.com/masterpiece-fantasy-tv-shows-you-can-stream-for-free/
+
+Fantasy fans, you don’t need another subscription!
+---------
+
+# Arnold Schwarzenegger's Most Underrated '90s Action Flick Gets Even Better After 30 Years
+
+Features, Eraser, Arnold Schwarzenegger, James Caan
+
+Sat, 27 Jun 2026 19:00:19 GMT
+
+https://movieweb.com/eraser-arnold-schwarzenegger-30-years/
+
+A seriously underrated movie that deserves a second life.
+---------
+
 # Game Of Thrones Is Officially Recasting Its Most Iconic Characters In 2026
 
 Streaming TV, Game Of Thrones, Game of Thrones
