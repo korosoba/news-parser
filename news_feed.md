@@ -1,3 +1,300 @@
+# The Undisputed Best Season Of Superhero TV Ever Made Hits Netflix On July 1
+
+Classic TV, Masked Recs
+
+Sat, 27 Jun 2026 14:18:20 GMT
+
+https://screenrant.com/heroes-season-1-best-superhero-tv-netflix/
+
+Get ready for a trip down memory lane as the iconic Heroes season 1, hailed as the best superhero TV season ever, makes its debut on Netflix July 1.
+---------
+
+# 10 Sci-Fi Movies Shot With Almost No CGI
+
+Classic Movies, Sci-Fi
+
+Sat, 27 Jun 2026 14:15:21 GMT
+
+https://screenrant.com/sci-fi-movies-made-with-almost-no-cgi/
+
+There has been a lot of CGI thrown into sci-fi movies over the years, but these 10 sci-fi movies delivered perfect stories with practical effects.
+---------
+
+# After 26 Years, This Star Wars Masterpiece Is Aging Better Than The Prequels
+
+Anime, Star Wars
+
+Sat, 27 Jun 2026 14:00:21 GMT
+
+https://screenrant.com/star-wars-forgotten-manga-aged-perfectly/
+
+The best Star Wars media you've never heard of.
+---------
+
+# The Boys Officially Recast Butcher For New Release
+
+Gaming, The Boys
+
+Sat, 27 Jun 2026 14:00:21 GMT
+
+https://screenrant.com/the-boys-trigger-warning-butcher-recast-opinions/
+
+The Boys: Trigger Warning, a stealth-action VR game set in the popular Prime Video show's universe, is facing criticism from fans.
+---------
+
+# New Sofia Coppola Movie Officially Releases On HBO Max Next Month
+
+Movies, Marc by Sofia, Sofia Coppola
+
+Sat, 27 Jun 2026 13:58:13 GMT
+
+https://screenrant.com/marc-by-sofia-hbo-max-streaming-release-july-2026/
+
+Sofia Coppola's quietly released movie from 2025 is now hitting streaming as fans wonder what the Oscar-winning filmmaker's next project will be.
+---------
+
+# Forget Sense & Sensibility, This Year's Best Jane Austen Adaptation Is A Record-Breaking 10-Part Streaming Hit
+
+Streaming TV, Masked Recs
+
+Sat, 27 Jun 2026 13:45:21 GMT
+
+https://screenrant.com/the-other-bennet-sister-best-jane-austen-adaptation-2026/
+
+Anyone looking forward to this year's high-profile Jane Austen adaptations needs to check out this record-breaking new streaming series first.
+---------
+
+# Seth Rogen's Surprise Cameo in Supergirl Explained
+
+Movies, Supergirl, DC Universe
+
+Sat, 27 Jun 2026 13:45:21 GMT
+
+https://screenrant.com/supergirl-movie-seth-rogen-cameo/
+
+Seth Rogen has an unexpected role in the new DCU movie Supergirl, lending his comedic chops to one of the film's funniest side characters.
+---------
+
+# The Modern Heir To Hello Kitty's Throne Is Here
+
+Anime
+
+Sat, 27 Jun 2026 13:30:20 GMT
+
+https://screenrant.com/miniso-yoyo-hello-kitty-heir/
+
+Sanrio's Hello Kitty may be the best known mascot of all time, but this new IP from Miniso is about to steal the show and it is absolutely adorable.
+---------
+
+# Tom Hanks' 34-Year-Old Classic Set During WW2 Is Officially Releasing On Netflix
+
+Movies, Masked Recs
+
+Sat, 27 Jun 2026 13:25:59 GMT
+
+https://screenrant.com/tom-hanks-movie-a-league-of-their-own-netflix-streaming-release-date/
+
+One of Tom Hanks' most beloved movies from the 1990s, which is set during World War II, will become available to stream on Netflix in July.
+---------
+
+# Netflix's 5-Part Horror Franchise Still Has A 100% Record
+
+Classic TV, Masked Recs
+
+Sat, 27 Jun 2026 13:15:19 GMT
+
+https://screenrant.com/netflix-mike-flanagan-horror-tv-shows-perfect-record/
+
+Among Netflix's extensive horror catalog is a five-part TV franchise that is a rarity for how successful and consistently good it was.
+---------
+
+# Sugar: Colin Farrell on Blending Noir & Sci-Fi
+
+TV, Sugar
+
+Sat, 27 Jun 2026 14:15:14 GMT
+
+https://www.cbr.com/video/sugar-colin-farrell-on-blending-noir-sci-fi/
+
+Sugar Season 2 star Colin Farrell breaks down how he found John Sugar's signature noir voiceover and why the detective remains so different from classic hardboiled heroes. Farrell also explains how Apple TV+'s Sugar seamlessly blends neo-noir and science fiction without losing its identity.
+---------
+
+# Only 10 '90s Anime Are Perfect From Start to Finish
+
+Anime, Cowboy Bebop, Yu Yu Hakusho
+
+Sat, 27 Jun 2026 14:15:14 GMT
+
+https://www.cbr.com/90s-anime-perfect-start-to-finish/
+
+Many great anime emerged during the 1990s, but only a handful truly excelled from start to finish.
+---------
+
+# DC's Absolute Universe Creator Scott Snyder Denounces 'Dark' and 'Edgy' Claims
+
+Comics, Absolute Universe
+
+Sat, 27 Jun 2026 14:00:13 GMT
+
+https://www.cbr.com/absolute-universe-scott-snyder-denounces-dark-edgy-claims/
+
+Scott Snyder wants to set the record straight about the Absolute Universe.
+---------
+
+# Pokémon Officially Reveals First Look at Limited-Edition 30th Anniversary Collector's Watch
+
+Anime, Pokemon, merchandise
+
+Sat, 27 Jun 2026 14:00:13 GMT
+
+https://www.cbr.com/pokemon-anniversary-casio-watch-first-look/
+
+Casio and The Pokémon Company are teaming up for a 30th anniversary Pokémon collaboration, giving Gen 1 fans a chance to rep their favorite games.
+---------
+
+# In 7 Months, Disney Will Finally Release The Original Version of Star Wars In Theaters
+
+Movies, Star Wars, Disney, Star Wars: Episode IV - A New Hope
+
+Sat, 27 Jun 2026 14:00:13 GMT
+
+https://www.cbr.com/disney-star-wars-anniversary-original-cut-2027-release/
+
+February will finally see the release of the Star Wars film that fans have been begging Disney for.
+---------
+
+# 10 Anime Characters Inspired by Spike Spiegel
+
+Anime, Cowboy Bebop, Samurai Champloo
+
+Sat, 27 Jun 2026 13:15:12 GMT
+
+https://www.cbr.com/anime-characters-inspired-by-spike-spiegel-cowboy-bebop/
+
+These characters clearly carry traces of the attitude, style, and charisma that make Cowboy Bebop's Spike Spiegel such an icon.
+---------
+
+# Supergirl 2026 Ending Discussion (Spoilers!)
+
+TV, Supergirl, DCU
+
+Sat, 27 Jun 2026 13:01:12 GMT
+
+https://www.cbr.com/video/supergirl-2026-ending-discussion-spoilers/
+
+This discussion with Milly Alcock (Kara/Supergirl) and Craig Gillespie (Director) contains spoilers for the controversial ending of Supergirl!
+---------
+
+# 5 Masterpiece Action Western Movies Better Than Tombstone
+
+Movies, Tombstone, Western, Action
+
+Sat, 27 Jun 2026 13:00:13 GMT
+
+https://www.cbr.com/action-western-movies-better-than-tombstone-list/
+
+Tombstone is an absolute classic of action Western filmmaking, but these 5 masterpieces are even better.
+---------
+
+# Forgotten $405M Cyberpunk Sci-Fi That Still Needs a Sequel Is Heading to a New Streaming Home in 4 Days
+
+Anime, Alita: Battle Angel, Battle Angel Alita, Battle Angel
+
+Sat, 27 Jun 2026 13:00:13 GMT
+
+https://www.cbr.com/alita-battle-angel-cyberpunk-peacock-release-date-july-2026/
+
+One of the most underrated Robert Rodriguez films of the past decade is officially making its way to a brand-new streaming home in just a few days.
+---------
+
+# 10 Comedy Cult Classics You Need to Watch Before You Die
+
+Movie, Pink Flamingos, The Rocky Horror Picture Show, The Big Lebowski, Monty Python and the Holy Grail
+
+Sat, 27 Jun 2026 14:04:15 GMT
+
+https://collider.com/comedy-cult-classic-movies-must-watch-ranked/
+
+The Rocky Horror Picture Show, The Big Lebowski, and Pink Flamingos are essential cult classic comedy movies pretty much everyone should watch.
+---------
+
+# Harlan Coben’s Latest Mystery Is a Late-Night Netflix Super-Hit
+
+TV News, Harlan Coben, I Will Find You, Sam Worthington, Britt Lower
+
+Sat, 27 Jun 2026 14:00:13 GMT
+
+https://collider.com/i-will-find-you-harlan-coben-netflix-streaming-hit/
+
+Harlan Coben’s I Will Find You is becoming a late-night Netflix streaming hit, continuing the author’s strong run on the platform.
+---------
+
+# HBO’s Fantasy Juggernaut Is Already Under Attack on Rotten Tomatoes
+
+TV News, House of the Dragon, HBO, Game Of Thrones, Fantasy
+
+Sat, 27 Jun 2026 13:15:12 GMT
+
+https://collider.com/house-of-the-dragon-season-3-rotten-tomatoes-review-bomb/
+
+House of the Dragon Season 3 is already facing Rotten Tomatoes review-bombing, even as HBO’s Game of Thrones universe continues expanding.
+---------
+
+# 8 Underrated Action Shows Worth Watching Over and Over
+
+TV, Action, Banshee, Alice in Borderland, Black Sails
+
+Sat, 27 Jun 2026 12:53:14 GMT
+
+https://collider.com/underrated-action-shows-worth-watching-over-and-over-ranked/
+
+Banshee, Alice in Borderland, Into the Badlands, and Black Sails are all among the great yet underrated action TV shows you can watch over and over.
+---------
+
+# Picard's Best Star Trek Line Has Only Become More Profound After 35 Years
+
+Features, Star Trek: The Next Generation, Star Trek
+
+Sat, 27 Jun 2026 14:00:18 GMT
+
+https://movieweb.com/star-trek-picard-drumhead-quote/
+
+Captain Picard has too many great Star Trek quotes to count, but one stands out above the rest. Read on for more.
+---------
+
+# Johnny Depp's Chilling Gothic Horror Hit Officially Makes Its Way Onto Streaming
+
+Movie News, Johnny Depp, Sleepy Hollow, Coming/Leaving Streaming, Horror
+
+Sat, 27 Jun 2026 14:00:18 GMT
+
+https://movieweb.com/johnny-depp-sleepy-hollow-streaming-paramount-plus-july-2026/
+
+One of Johnny Depp's best movies is coming back to streaming ahead of his collaboration with director Ti West later this year.
+---------
+
+# Stephen King's Masterpiece 'Carrie' Is Leaving Free Streaming
+
+Movie News, Stephen King, Carrie, Coming/Leaving Streaming
+
+Sat, 27 Jun 2026 13:18:44 GMT
+
+https://movieweb.com/carrie-leaving-free-streaming-pluto-july-2026/
+
+Do you like revenge films? This is one of the all-time classics.
+---------
+
+# Star of Apple TV's Hit Sci-Fi Series Confirms Big Season 2 Setback
+
+TV News, Pluribus, Rhea Seehorn
+
+Sat, 27 Jun 2026 13:06:35 GMT
+
+https://movieweb.com/apple-tv-pluribus-season-2-setback/
+
+Its return may not happen as quickly as fans hoped.
+---------
+
 # Dutton Ranch Star Reacts To Season 2 Renewal & Shares Hopes For The Future
 
 Exclusive, Dutton Ranch
