@@ -1,3 +1,355 @@
+# Game Of Thrones Is Officially Recasting Its Most Iconic Characters In 2026
+
+Streaming TV, Game Of Thrones, Game of Thrones
+
+Sat, 27 Jun 2026 18:30:20 GMT
+
+https://screenrant.com/game-of-thrones-mad-king-play-recast-iconic-characters/
+
+This year, 15 years since Game of Thrones first premiered on HBO, some of the show's most iconic characters are being recast for a new spinoff.
+---------
+
+# The Most Popular Rumored James Bond Casting Is All Wrong
+
+Movies, James Bond, Bond 26
+
+Sat, 27 Jun 2026 18:30:20 GMT
+
+https://screenrant.com/james-bond-casting-rumor-callum-turner-wrong/
+
+Casting for Bond 26 is underway, but one of the most commonly rumored names to take on the iconic 007 role is at odds with other known details.
+---------
+
+# Chrono Trigger Meets Final Fantasy In New JRPG You Can Play Free Now
+
+Gaming, Final Fantasy, Chrono Trigger, JRPG, PC
+
+Sat, 27 Jun 2026 18:30:20 GMT
+
+https://screenrant.com/steam-free-demo-chrono-trigger-style-jrpg/
+
+This epic new JRPG is a perfect mix of Chrono Trigger and Final Fantasy, and the best part is that it is playable right now and completely free.
+---------
+
+# Dutton Ranch Season 1 Finale Teased By Star: "I Don't Think People Are Ready"
+
+TV, Dutton Ranch
+
+Sat, 27 Jun 2026 18:30:14 GMT
+
+https://screenrant.com/dutton-ranch-season-1-finale-sterlin-english-tease/
+
+EXCLUSIVE: Dutton Ranch's first season is heading for a dramatic conclusion, as this star teases what fans can expect as secrets are revealed.
+---------
+
+# The DC Universe Timeline Explained: From Metahumans Arriving On Earth To Supergirl
+
+Movies, DC Universe
+
+Sat, 27 Jun 2026 18:05:20 GMT
+
+https://screenrant.com/dc-universe-movie-timeline-events-in-order/
+
+James Gunn is only two movies into his DC Universe, but a lot has happened in the timeline of the new take on the franchise thus far.
+---------
+
+# Aaron Pierre’s 10-Part Prime Video Series With 95% RT Score Is The Perfect Binge Ahead Of Lanterns
+
+TV, Masked Recs
+
+Sat, 27 Jun 2026 18:04:20 GMT
+
+https://screenrant.com/the-underground-railroad-aaron-pierre-perfect-binge/
+
+Before HBO's dark DC detective drama Lanterns stars Aaron Pierre as its antihero, viewers should check out his unmissable Prime Video show.
+---------
+
+# An Adaptation Of This 34-Year-Old Cyberpunk Book Would Be As Good As Blade Runner & The Matrix
+
+Movies, Masked Recs
+
+Sat, 27 Jun 2026 18:03:19 GMT
+
+https://screenrant.com/snow-crash-live-action-adaptation-blade-runner-matrix-good-as-cyberpunk/
+
+One classic groundbreaking cyberpunk novel remains unadapted despite its potential to be as much of a classic as Blade Runner or The Matrix.
+---------
+
+# Newly Revealed Marvel’s Wolverine Gameplay Feature Splits Fans
+
+Gaming, Marvel's Wolverine
+
+Sat, 27 Jun 2026 18:00:20 GMT
+
+https://screenrant.com/marvels-wolverine-censorship-feature-gamer-reaction/
+
+Marvel's Wolverine is as gory as many fans hoped it would be, but there's a whole other side of the game that players can enjoy without it.
+---------
+
+# Ted Lasso: Every Real Life Footballer The Characters Are Based On
+
+Streaming TV, Ted Lasso
+
+Sat, 27 Jun 2026 17:30:31 GMT
+
+https://screenrant.com/ted-lasso-characters-real-footballers-soccer-players-inspiration/
+
+Apple TV+'s award-winning Ted Lasso draws inspiration from the real world. Here's every real-life footballer the AFC Richmond players are based on.
+---------
+
+# GTA 6 Ban Will Officially Make Game Unplayable For Millions
+
+Gaming, Grand Theft Auto 6
+
+Sat, 27 Jun 2026 17:30:30 GMT
+
+https://screenrant.com/gta-6-ban-russia-unplayable-launch/
+
+Grand Theft Auto VI faces potential ban in Russia due to concerns over immoral content.
+---------
+
+# What's Coming to Paramount+ in July 2026? Everything Arriving for Free Next Month
+
+TV, Paramount Plus
+
+Sat, 27 Jun 2026 18:30:13 GMT
+
+https://www.cbr.com/what-coming-paramount-july-2026-full-list/
+
+Paramount+ is turning up the heat in July 2026 with a series of fan-favorites, including Star Trek: Strange New Worlds.
+---------
+
+# Olympics' Amber Glenn Cosplays Qifrey From Crunchyroll's Witch Hat Atelier
+
+Anime, Witch Hat Atelier, Crunchyroll
+
+Sat, 27 Jun 2026 18:30:13 GMT
+
+https://www.cbr.com/olympics-amber-glenn-cosplays-qifrey-witch-hat-atelier/
+
+Witch Hat Atelier has even pulled gold medalist Amber Glenn into the fandom, as she cosplays Qifrey and dedicates an elegant performace to the anime.
+---------
+
+# This From Theory Claims Boyd's Real Fate Is Darker Than Fans Realize
+
+TV, From, Horror
+
+Sat, 27 Jun 2026 18:30:13 GMT
+
+https://www.cbr.com/from-season-4-boyd-darkest-theory/
+
+Boyd's constant survival has been the ultimate question for fans, and now a theory suggests that his role in the town is much darker.
+---------
+
+# Sugar Season 2: Jin Ha & Raymond Lee on Brotherhood
+
+TV, Sugar
+
+Sat, 27 Jun 2026 18:15:12 GMT
+
+https://www.cbr.com/video/sugar-season-2-jin-ha-raymond-lee-on-brotherhood/
+
+Sugar Season 2 stars Jin Ha and Raymond Lee discuss building the emotional bond between Danny and Ji, even though the brothers rarely share scenes together. The actors also explain what it's like joining a world where viewers already know aliens are hiding in plain sight while their characters remain completely unaware.
+---------
+
+# 5 Naruto Battles That Paved the Way for Future Villains
+
+Anime, Naruto, Naruto: Shippuden, shonen anime, Shonen
+
+Sat, 27 Jun 2026 18:15:12 GMT
+
+https://www.cbr.com/naruto-battles-pave-the-way-for-villains/
+
+What separates Naruto from most other shonen anime is how carefully its conflicts function as cause and effect.
+---------
+
+# In Just 1 Day, Hulu's Near-Perfect 5-Season Drama Returns as a Global Streaming Hit After Fantastic RT Score
+
+TV, The Bear
+
+Sat, 27 Jun 2026 18:00:12 GMT
+
+https://www.cbr.com/the-bear-drama-season-5-hulu-success-june-2026/
+
+The hit drama teases a return to form in its final season.
+---------
+
+# Why One X-Men Comic Was Almost Renamed Over Its Misleading Title
+
+Comics, X-Men '97, Marvel Comics, X-Men
+
+Sat, 27 Jun 2026 18:00:12 GMT
+
+https://www.cbr.com/x-men-97-season-2-comic-misleading-title/
+
+With the world believing the X-Men were lost at the end of Season One, Marvel Comics prequel book X-Men '97 Season 2 thought about changing its title.
+---------
+
+# It’s Official: Chainsaw Man’s Story Isn’t Over as Season 2 Finally Drops
+
+Anime, Chainsaw Man, Shonen Jump
+
+Sat, 27 Jun 2026 18:00:12 GMT
+
+https://www.cbr.com/chainsaw-man-mobile-game-worldwide-release-confirm/
+
+Chainsaw Man's manga may be finished, but Denji's story may continue indefinitely with the release of the new Chainsaw Man mobile game.
+---------
+
+# 4 Best American Steampunk Shows
+
+TV, The Wild Wild West, The Adventures of Brisco County, Jr., steampunk
+
+Sat, 27 Jun 2026 17:30:24 GMT
+
+https://www.cbr.com/best-american-steampunk-shows/
+
+Exposed clockwork, copper fittings, and those signature goggles can be found in these unrivaled American steampunk television shows.
+---------
+
+# 10 Hardest 2010s Games, Officially Ranked
+
+Games, Hollow Knight (Dupe), Dark Souls III, cuphead, Gaming, Video Games, Sekiro: Shadows Die Twice
+
+Sat, 27 Jun 2026 17:15:14 GMT
+
+https://www.cbr.com/hardest-video-games-2010s/
+
+The 2010s took a major leap in video game design and difficulty, and these ten titles rank among the hardest games available from the decade.
+---------
+
+# Prime Video’s Criminally Underrated 10-Part Superhero Noir Is a Must-Watch Before Season 2
+
+TV Features, Batman: Caped Crusader, Bruce Timm, Hamish Linklater, Christina Ricci
+
+Sat, 27 Jun 2026 18:27:14 GMT
+
+https://collider.com/batman-caped-crusader-prime-video-watch-before-season-2/
+
+Prime Video's Batman: Caped Crusader reimagines the Dark Knight's origins in a noir series set in Gotham City's turbulent past.
+---------
+
+# Stop! That! Train!: RuPaul Slapped Brooke Lynn Hytes on Her Last Day | Collider BTS
+
+Movie, Stop! That! Train!
+
+Sat, 27 Jun 2026 18:15:13 GMT
+
+https://collider.com/video/stop-that-train-rupaul-slapped-brooke-lynn-hytes-on-her-last-day-collider-bts/
+
+Brooke Lynn Hytes takes Collider behind the scenes of Stop! That! Train! to discuss landing her villainous role, working with RuPaul, Nicole Richie, Lisa Rinna, and the film's all-star cast, plus why she believes celebrating queer joy on screen is more important than ever.
+---------
+
+# 7 Years Later, Quentin Tarantino’s Near-Perfect Masterpiece Is Still Untouchable
+
+Movie News, Once Upon a Time in Hollywood, Quentin Tarantino, Brad Pitt, Hulu
+
+Sat, 27 Jun 2026 18:00:13 GMT
+
+https://collider.com/quentin-tarantino-once-upon-a-time-in-hollywood-streaming-success-hulu-june-2026/
+
+Fans are revisiting Quentin Tarantino's magnum opus following the news that his first movie in seven years is finally coming to theaters.
+---------
+
+# 8 Classic Movies We Need a Remake Of
+
+Movie, Classics, Remake, Dial M for Murder, The Wizard of Oz
+
+Sat, 27 Jun 2026 17:57:14 GMT
+
+https://collider.com/classic-movies-need-remake/
+
+The Wizard of Oz, Clue, 12 Angry Men, A Clockwork Orange, and more are all classic films that could benefit from a remake if done right.
+---------
+
+# Steven Spielberg Quietly Turned an Accidental On-Set Moment Into a Classic Horror Scene
+
+Movie Features, Jaws, Steven Spielberg, Roy Scheider, Richard Dreyfuss
+
+Sat, 27 Jun 2026 17:52:14 GMT
+
+https://collider.com/jaws-unscripted-brody-son-scene-steven-spielberg/
+
+A young actor's habit inspired one of the most touching scenes in Jaws, and Steven Spielberg knew immediately it belonged in the film.
+---------
+
+# 8 Best Movie Trilogies With Great Acting
+
+Movie, The Godfather, Before Sunrise, Three Colors: Red, The Human Condition III: A Soldier’s Prayer
+
+Sat, 27 Jun 2026 17:28:07 GMT
+
+https://collider.com/best-movie-trilogies-great-acting-ranked/
+
+From The Before Trilogy, to The Dark Knight, to The Lord of the Rings, these iconic trilogies feature performances that only deepen with time.
+---------
+
+# 9 Romance Books That Would Make Perfect TV Shows
+
+TV, Books, Romance, Off Campus, Television
+
+Sat, 27 Jun 2026 17:19:15 GMT
+
+https://collider.com/romance-books-perfect-for-tv/
+
+With the success of adaptations like Off Campus and Heated Rivalry, now is the time for romance books like The Song of Achilles to become TV shows.
+---------
+
+# 8 New K-Drama Shows That Are Perfect From Start to Finish
+
+TV, South Korea, When Life Gives You Tangerines, The Judge from Hell, Moving
+
+Sat, 27 Jun 2026 17:05:14 GMT
+
+https://collider.com/new-k-drama-shows-perfect-start-to-finish/
+
+Discover the greatest K-dramas from the past few years, including new fan-favorites like When Life Gives You Tangerines, Moving, and Queen of Tears.
+---------
+
+# 2025’s Sci-Fi Cult Classic Gets a Second Chance on Hulu
+
+Movie News, Redux Redux, Sci-Fi, Hulu, Streaming
+
+Sat, 27 Jun 2026 17:01:46 GMT
+
+https://collider.com/hulu-sci-fi-cult-classic-redux-redux-streaming-july-10-2026/
+
+The critically acclaimed dimension-hopping sci-fi gem Redux Redux is coming to Hulu. Find out when to watch it here.
+---------
+
+# Christopher Nolan Loved This Sci-Fi Classic So Much, He Tried Rebooting It
+
+Features, Christopher Nolan, The Prisoner (1967)
+
+Sat, 27 Jun 2026 18:30:18 GMT
+
+https://movieweb.com/christopher-nolan-the-prisoner-reboot/
+
+In 2009 and 2024, Christopher Nolan attempted to remake the acclaimed British sci-fi series 'The Prisoner' as a feature film.
+---------
+
+# Dark Universe: All the Canceled Films Planned
+
+Movie Lists, Dark Universe
+
+Sat, 27 Jun 2026 18:00:18 GMT
+
+https://movieweb.com/dark-universe-all-the-canceled-movies-monsters/
+
+It was just not meant to be after The Mummy bombed in theaters, but there were a lot of movies that never got a chance.
+---------
+
+# Forget 'Spartacus': This Roman Empire Miniseries Is the Perfect Follow-up
+
+Features, Spartacus, Comparison Recommendation
+
+Sat, 27 Jun 2026 17:30:35 GMT
+
+https://movieweb.com/julius-caesar-perfect-spartacus-replacement/
+
+Missing the glorious feeling of sitting down and binge-watching 'Spartacus'? There aren't many shows to fill that void, but this one is perfect.
+---------
+
 # DC Just Changed Batman Forever With One Simple Announcement
 
 DC Comics, Batman
