@@ -1,3 +1,377 @@
+# Reacher Meets Jason Bourne & Batman In Upcoming Adaptation Of Bestselling Spy Thriller
+
+Streaming TV, Masked Recs
+
+Sat, 27 Jun 2026 03:15:10 GMT
+
+https://screenrant.com/reacher-bourne-batman-orphan-x-adaptation/
+
+An upcoming spy thriller based on a series of bestselling books will seemingly combine some of the best aspects of Reacher, Jason Bourne, and Batman.
+---------
+
+# If You Think The Expanse Ended With Season 6, You Missed An Exciting Sequel
+
+Streaming TV, The Expanse
+
+Sat, 27 Jun 2026 03:00:23 GMT
+
+https://screenrant.com/the-expanse-season-6-sequel-dragons-tooth/
+
+Most viewers might assume that The Expanse series ended its run with the show’s season 6, but it actually got a lesser known sequel that many missed.
+---------
+
+# GTA 6 Map Size Officially Confirmed
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, PC, Rockstar Games
+
+Sat, 27 Jun 2026 03:00:23 GMT
+
+https://screenrant.com/gta-6-map-size-leak-amazon-listing/
+
+Grand Theft Auto 6's map size has been officially confirmed, and it may be significantly bigger than any of us were actually expecting.
+---------
+
+# Star Of Netflix's Biggest Spring Action Thriller Confirms New Action Drama Just 1 Month Away
+
+TV, Bloodhounds
+
+Sat, 27 Jun 2026 02:30:21 GMT
+
+https://screenrant.com/bloodhounds-lee-sang-yi-action-drama/
+
+Lee Sang-yi returns for yet another role in a manhwa adaptation this summer in A Bona Fide Killer.
+---------
+
+# Jenna Ortega's Upcoming Sci-Fi Adaptation Is Blade Runner Meets WALL-E
+
+Movies, Masked Recs
+
+Sat, 27 Jun 2026 02:30:21 GMT
+
+https://screenrant.com/klara-and-the-sun-jenna-ortega-blade-runner-wall-e/
+
+Jenna Ortega upcoming science fiction movie seems to combines some of the best narrative ingredients from iconic flicks like Blade Runner and Wall-E.
+---------
+
+# Jason Momoa's Lobo Backstory & Powers Explained
+
+Superheroes, Lobo, Supergirl, DC Universe
+
+Sat, 27 Jun 2026 02:27:21 GMT
+
+https://screenrant.com/jason-momoa-lobo-backstory-powers-explained-supergirl/
+
+After years of playing Aquaman, Jason Momoa debuts as Lobo in the new Supergirl movie. Here's everything you need to known about "The Main Man".
+---------
+
+# Wonder Woman Officially Has The Strongest Villain Since Darkseid
+
+DC Comics, Wonder Woman
+
+Sat, 27 Jun 2026 02:00:34 GMT
+
+https://screenrant.com/wonder-woman-matriarch-power-level/
+
+Wonder Woman's new nemesis is an incredibly powerful supervillain who just accomplished a feat few Darkseid-level antagonists have attained.
+---------
+
+# Kingdom Come: Deliverance Officially Returns September 2026
+
+Gaming, Kingdom Come: Deliverance, Kingdom Come: Deliverance II, RPG, PC
+
+Sat, 27 Jun 2026 02:00:34 GMT
+
+https://screenrant.com/kingdom-come-deliverance-september-2026-return/
+
+The legendarily good open-world RPG, Kingdom Come: Deliverance, is officially returning this September in a move that's sure to please fans.
+---------
+
+# Returning Stephen King Show Is So Ambitious, It Has Already Rewritten 1 Iconic Villain
+
+Streaming TV, Masked Recs
+
+Sat, 27 Jun 2026 01:45:11 GMT
+
+https://screenrant.com/pennywise-it-welcome-to-derry-ambitious-villain-retcon/
+
+One horror show based on Stephen King’s books is so incredibly ambitious that it has already rewritten one his most iconic and scariest villains.
+---------
+
+# Supergirl's Dark Ending & Biggest Comic Changes Explained
+
+Movies, Supergirl
+
+Sat, 27 Jun 2026 01:02:33 GMT
+
+https://screenrant.com/supergirl-dark-ending-comic-changes-explained/
+
+Supergirl's screenwriter, Ana Nogueira, explained why she deviated from the source material and changed the fates of several characters.
+---------
+
+# 25 Years Ago, This Rockstar Game Changed Gaming Forever
+
+Games, rockstar games, Grand Theft Auto, Video Games
+
+Sat, 27 Jun 2026 03:15:13 GMT
+
+https://www.cbr.com/grand-theft-auto-gta-3-rockstar-games-changed-gaming-forever/
+
+In 2001, Rockstar Games released a title that came to define gaming in the new millennium.
+---------
+
+# Sailor Moon Gets 5 Limited Edition Blu-ray Sets in New Crunchyroll Release
+
+Anime, Sailor Moon, merchandise
+
+Sat, 27 Jun 2026 03:00:15 GMT
+
+https://www.cbr.com/sailor-moon-crunchyroll-blu-ray-release-dates-uk/
+
+Sailor Moon fans just got confirmation of what might be the best Crunchyroll home media release of the year, and it's now just weeks away.
+---------
+
+# 8 Reasons It's Hard to Watch Berserk Today
+
+Anime, Berserk
+
+Sat, 27 Jun 2026 02:45:13 GMT
+
+https://www.cbr.com/berserk-reasons-its-hard-to-watch-today/
+
+Berserk is often hailed as one of the greatest anime of the 1990s, but the dark fantasy series is extremely difficult to watch today.
+---------
+
+# 7 Years Ago, A 10/10 Masterpiece Was Quietly Released On the Nintendo Switch
+
+Games, Nintendo Switch, Nintendo
+
+Sat, 27 Jun 2026 02:31:14 GMT
+
+https://www.cbr.com/nintendo-switch-masterpiece-quietly-released-yoshi-crafted-world-perfect-10/
+
+Yoshi's Crafted World is one of the best games on the Nintendo Switch, but it's never gotten the attention it deserves.
+---------
+
+# Beloved 47-Year-Old Horror Movie Franchise Sets First TV Series Adaptation
+
+TV, Phantasm
+
+Sat, 27 Jun 2026 02:28:23 GMT
+
+https://www.cbr.com/phantasm-tv-series-adaptation/
+
+After several feature films, the iconic horror movie franchise will be heading to the small screen for the first time.
+---------
+
+# 6 Years Later, Kevin Costner's Saddest John Dutton Line Hits 5x Harder
+
+TV, Yellowstone, kevin costner
+
+Sat, 27 Jun 2026 02:15:23 GMT
+
+https://www.cbr.com/yellowstone-season-1-kevin-costner-john-dutton-death-quote/
+
+Kevin Costner's death as John Dutton in Yellowstone Season 5 makes a forgotten quote from the neo-Western's first season hit so much harder.
+---------
+
+# 10 Near-Perfect Anime That Defined the Streaming Generation
+
+Anime, Demon Slayer: Kimetsu no Yaiba, My Hero Academia
+
+Sat, 27 Jun 2026 02:01:14 GMT
+
+https://www.cbr.com/near-perfect-anime-define-streaming-generation/
+
+As streaming services became widespread, incredible anime like Demon Slayer turned the niche medium into a mainstream sensation.
+---------
+
+# 5 Greatest Movie Trilogies of the Last 30 Years, Ranked
+
+Movies, Spider-Man, Fantasy, The Lord of the Rings
+
+Sat, 27 Jun 2026 02:01:14 GMT
+
+https://www.cbr.com/greatest-movie-trilogies-last-30-years-list/
+
+The last 30 years has ushered in an era of cinema defined by sprawling franchises, allowing for some of the best trilogies of all time to be made.
+---------
+
+# All 3 Seasons of NBC's Canceled Beloved Horror Series Set Netflix Return
+
+TV, Hannibal
+
+Sat, 27 Jun 2026 01:56:58 GMT
+
+https://www.cbr.com/hannibal-netflix-streaming-return-july-2026/
+
+Fans still haven't given up hope for the acclaimed series finally getting a fourth season.
+---------
+
+# 10 Hardest Anime to Watch
+
+Anime, Grave of the Fireflies, Perfect Blue, Monster
+
+Sat, 27 Jun 2026 01:45:13 GMT
+
+https://www.cbr.com/hardest-anime-to-watch/
+
+Hard to watch anime sometimes disturb viewers with gore, while other titles get under the skin using grief, humiliation or a slow erosion of hope.
+---------
+
+# 7 Greatest Book Trilogies of the 21st Century
+
+Movie, Books, Wolf Hall, The Hunger Games, 3 Body Problem
+
+Sat, 27 Jun 2026 03:09:14 GMT
+
+https://collider.com/best-book-trilogies-21st-century-ranked/
+
+From YA classics like the Hunger Games series to period pieces like the Wolf Hall trilogy, these are the greatest book trilogies of the 21st century.
+---------
+
+# HBO’s Forgotten 10-Part Sci-Fi Masterpiece Deserves Another Look After ‘The Last of Us’
+
+TV Features, HBO, Station Eleven, The Last of Us, Sci-Fi
+
+Sat, 27 Jun 2026 02:44:13 GMT
+
+https://collider.com/the-last-of-us-replacement-hbo-miniseries-station-eleven-masterpiece/
+
+Station Eleven is HBO’s forgotten 10-episode sci-fi masterpiece, making it the perfect post-apocalyptic series to watch after The Last of Us.
+---------
+
+# ’The Big Bang Theory’s Sci-Fi Spin-Off Has an Impressive Edge Over Every Show Before It
+
+TV Features, The Big Bang Theory, Stuart Fails to Save the Universe, Young Sheldon, HBO Max
+
+Sat, 27 Jun 2026 02:39:14 GMT
+
+https://collider.com/the-big-bang-theory-stuart-saves-the-universe-sci-fi-genre-advantage/
+
+While The Big Bang Theory has seen its fair share of spinoffs, Stuart Saves The Universe is about to take the franchise in a truly new direction.
+---------
+
+# 'Daredevil: Born Again' Has the Chance To Redeem Elektra Where the Netflix Series Failed
+
+TV Features, Daredevil: Born Again, Carrie-Anne Moss, Elodie Yung, Disney+
+
+Sat, 27 Jun 2026 01:55:14 GMT
+
+https://collider.com/daredevil-born-again-season-3-elektra-return-character-change/
+
+Daredevil: Born Again Season 3 has the potential to redefine Elektra's character, granting her more agency and exploring her duality.
+---------
+
+# 6 Worst '90s Thriller Movies That Are Better Left Forgotten
+
+Movie, Thriller, Color of Night, Jade, Diabolique
+
+Sat, 27 Jun 2026 01:41:15 GMT
+
+https://collider.com/worst-90s-thriller-movies/
+
+From The Juror, to Jade, to Color of Night, these failed ’90s thrillers waste suffer from clunky scripts, dumb twists, and indifferent performances.
+---------
+
+# 10 Best R-Rated Horror Movie Franchises
+
+Movie, Horror, Alien, A Nightmare on Elm Street, Hellraiser
+
+Sat, 27 Jun 2026 01:14:14 GMT
+
+https://collider.com/best-r-rated-horror-movie-franchises-ranked/
+
+From the cosmic terror of Alien to the everyday dread of Final Destination, these R-rated horror franchises redefined fear.
+---------
+
+# 8 Most Universally Beloved Netflix Shows of All Time, Ranked
+
+TV, Netflix, Heartstopper, The Crown, BoJack Horseman
+
+Sat, 27 Jun 2026 01:08:14 GMT
+
+https://collider.com/netflix-shows-universally-beloved-all-time-ranked/
+
+Discover the most universally beloved Netflix shows of all time, from animated hits like BoJack Horseman to feel-good series like Heartstopper.
+---------
+
+# Netflix’s Abruptly Cancelled Sci-Fi Masterpiece Hits 3 Billion Minutes Watched in 2 Weeks
+
+TV News, Netflix, The Boroughs, Duffer Brothers, Sci-Fi
+
+Sat, 27 Jun 2026 01:00:16 GMT
+
+https://collider.com/the-boroughs-netflix-cancelled-sci-fi-nielsen-charts-viewership-success/
+
+Netflix's abruptly cancelled sci-fi series, The Boroughs, saw a massive viewership spike in its second week, according to the Nielsen report.
+---------
+
+# The Best Superhero Fantasy Movie of the 2000s Hits Free Streaming in 5 Days
+
+Movie News, Hellboy, Guillermo del Toro, Tubi, Fantasy
+
+Sat, 27 Jun 2026 00:45:14 GMT
+
+https://collider.com/guillermo-del-toro-hellboy-free-streaming-tubi-july-1-2026/
+
+Guillermo del Toro's visually stunning Hellboy movie, featuring iconic performances and deep themes, is coming to free streaming next month.
+---------
+
+# Marvel’s Best Post-'Endgame' Movie Hid Its Greatest Weapon in Plain Sight
+
+Movie Features, Shang-Chi and the Legend of the Ten Rings, Simu Liu, Destin Daniel Cretton, Tony Leung
+
+Sat, 27 Jun 2026 00:45:14 GMT
+
+https://collider.com/shang-chi-secret-weapon-tony-leung-best-post-endgame-marvel-movie/
+
+Shang-Chi’s Tony Leung-powered villain helped make Marvel’s post-Endgame era standout, blending martial arts, emotion, and unforgettable MCU drama.
+---------
+
+# New Jonah Hill Movie Reportedly "Unreleasable" After Warner Bros. Scraps Debut
+
+Movie News, Jonah Hill
+
+Sat, 27 Jun 2026 02:18:19 GMT
+
+https://movieweb.com/jonah-hill-cut-off-movie-delayed-indefinitely/
+
+Jonah Hill's next movie was deemed "unreleasable" as Warner Bros. took it off the release schedule, leaving its status in limbo.
+---------
+
+# 3 Binge-Worthy Smash Hit TV Series To Watch This Weekend
+
+TV Lists, Widow's Bay, I Will Find You, Every Year After
+
+Sat, 27 Jun 2026 02:00:33 GMT
+
+https://movieweb.com/popular-tv-shows-binge-watch-weekend/
+
+These recent streaming releases are currently trending, and they will appeal to a wide audience and make for a perfect weekend binge-watch.
+---------
+
+# $537M Supernatural Franchise Adaptation Sequel Crosses a Major Milestone
+
+Movie News
+
+Sat, 27 Jun 2026 00:48:59 GMT
+
+https://movieweb.com/five-nights-at-freddys-3-writer-gary-dauberman/
+
+'Five Nights at Freddy's 3' has secured Gary Dauberman, writer of the 'Annabelle' and 'IT' films.
+---------
+
+# Tom Hardy Debuts Surprise Release While Waiting for His 'MobLand' Fate
+
+Movie News, Tom Hardy, MobLand
+
+Sat, 27 Jun 2026 00:00:22 GMT
+
+https://movieweb.com/tom-hardy-rap-single-mobland/
+
+'Mobland' star Tom Hardy shared a shocking new release as the wait continues to find out what will happen with his 'Mobland' role.
+---------
+
 # Netflix's Avatar: The Last Airbender Season 2 RT Audience Score Debuts To Negative Record
 
 TV, Avatar: The Last Airbender
