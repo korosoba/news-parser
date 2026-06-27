@@ -1,3 +1,245 @@
+# Criminal Minds Abandons Evolution's Saving Grace Trend For No Apparent Reason
+
+Network TV, Criminal Minds
+
+Sat, 27 Jun 2026 15:45:06 GMT
+
+https://screenrant.com/criminal-minds-season-19-abandons-luke-alvez-main-character-trend/
+
+Criminal Minds: Evolution is incredibly divisive for original series fans, but season 19 forgets one of the most widely beloved trends of the new era.
+---------
+
+# Toy Story 5 Hits Box Office Milestone In Week 2 That Most Previous Installments Never Even Reached
+
+Movies, Toy Story, Box Office Milestone, Toy Story 5
+
+Sat, 27 Jun 2026 15:39:50 GMT
+
+https://screenrant.com/toy-story-5-box-office-300-million-domestic-milestone/
+
+Toy Story 5 hits a huge box office milestone faster than any other installment in the Pixar franchise, most of which never even got there.
+---------
+
+# Supergirl Box Office Debut Pulls In Less Than A Third Of 2025 Superman's Opening Weekend
+
+Movies, Supergirl, Box Office, DC Universe
+
+Sat, 27 Jun 2026 15:38:06 GMT
+
+https://screenrant.com/supergirl-2026-box-office-opening-weekend-domestic-chart-report/
+
+Supergirl, which is the second theatrical installment in the newly rebranded DC Universe, debuts with a fraction of its predecessor, 2025's Superman.
+---------
+
+# Every James Gunn Superhero Movie & TV Show, Ranked
+
+Movies, James Gunn, Ranking
+
+Sat, 27 Jun 2026 15:30:21 GMT
+
+https://screenrant.com/every-james-gunn-superhero-movie-tv-show-ranked/
+
+James Gunn is running DC's movies and TV shows these days, which makes sense given that he's put out some fantastic superhero projects to date.
+---------
+
+# Pokémon Winds & Waves Has The Perfect New Eeveelution Ready To Go
+
+Gaming, Pokemon Winds and Waves
+
+Sat, 27 Jun 2026 15:30:21 GMT
+
+https://screenrant.com/pokemon-winds-waves-dragon-eevee/
+
+Fans have created concept art for a potential dragon-type Eeveelution that could be featured in the upcoming Pokémon Winds and Waves.
+---------
+
+# Final Fantasy Unveils Major Tidus Redesign For 2026 Game
+
+Gaming, Final Fantasy, Live Service Games, PC
+
+Sat, 27 Jun 2026 15:21:06 GMT
+
+https://screenrant.com/final-fantasy-tidus-new-costume-dissidia-duellum-ff10/
+
+Final Fantasy 10's Tidus is back, and he's ditching the asymmetrical shorts for a new, modern fit to accompany his journey into a new world.
+---------
+
+# Pokémon TCG Reveals Surprise New Release For August 2026
+
+Gaming, Pokemon Trading Card Game, tabletop games
+
+Sat, 27 Jun 2026 15:15:21 GMT
+
+https://screenrant.com/pokemon-tcg-ascended-heroes-tins-august-2026/
+
+The Pokémon TCG has been having an incredible year alongside the 30th anniversary, and there's way more on the way, including an August release.
+---------
+
+# The Bear Season 5 Rotten Tomatoes Audience Score Officially Marks A Return To Form
+
+TV, The Bear
+
+Sat, 27 Jun 2026 15:03:14 GMT
+
+https://screenrant.com/the-bear-season-5-rotten-tomatoes-audience-score-debut/
+
+The Bear season 5 is officially a return to form for the popular series as its Rotten Tomatoes audience score marks the end of a dark era.
+---------
+
+# Netflix’s Avatar: The Last Airbender Showrunners Have Season 4 “In Their Back Pocket"
+
+TV, Avatar: The Last Airbender, Netflix
+
+Sat, 27 Jun 2026 15:00:21 GMT
+
+https://screenrant.com/netflix-avatar-the-last-airbender-season-4-plans-showrunners/
+
+Exclusive: Christine Boylan and Jabbar Raisani tease having Avatar: The Last Airbender season 4 ideas in mind for Netflix's live-action series.
+---------
+
+# All 16 Star Wars Original Trilogy Characters Who Have Since Been Recast In Live-Action
+
+Movies, Star Wars
+
+Sat, 27 Jun 2026 15:00:21 GMT
+
+https://screenrant.com/star-wars-original-trilogy-characters-recast-live-action/
+
+In the nearly 50 years since the Star Wars franchise, 16 notable characters from the Original Trilogy have been recast in live-action projects.
+---------
+
+# Masters of the Universe OG Star Reacts to Reboots Underwhelming Box Office Run
+
+Movies, Masters of the Universe
+
+Sat, 27 Jun 2026 15:16:29 GMT
+
+https://www.cbr.com/masters-of-the-universe-dolph-lundgren-reacts-underwhelming-box-office-reboot/
+
+The original He-Man just broke his silence about Masters of the Universe failing.
+---------
+
+# 10 Avatar Characters Fans Understand Better as Adults
+
+Anime, Avatar: The Last Airbender
+
+Sat, 27 Jun 2026 15:15:13 GMT
+
+https://www.cbr.com/avatar-last-airbender-characters-fans-understand-better-2026/
+
+The Avatar franchise has one of the most beloved casts of characters in any anime, and it's easier for fans to appreciate them as adults.
+---------
+
+# Rogue and Gambit Get Steamiest Story Yet, Just In Time For Valentine's Day
+
+Comics, Marvel, Marvel Comics, MCU, X-Men, X-Men '97
+
+Sat, 27 Jun 2026 15:00:13 GMT
+
+https://www.cbr.com/rogue-gambit-steamiest-marvel-story-yet-valentines-day/
+
+Valentine's Day 2027 just got hotter, and more dangerous, than the X-Men could've imagined.
+---------
+
+# Anya Taylor-Joy's Hit Horror Movie With 91% RT Score Streams Free in July
+
+Movies, The Witch
+
+Sat, 27 Jun 2026 15:00:13 GMT
+
+https://www.cbr.com/the-witch-streaming-tubi-july-2026/
+
+Robert Eggers' acclaimed horror movie that turned Anya Taylor-Joy into a star gets a free streaming home.
+---------
+
+# 5 Best Cyberpunk Anime Ever Made
+
+Anime, Cyberpunk: Edgerunners, Bubblegum Crisis
+
+Sat, 27 Jun 2026 15:00:13 GMT
+
+https://www.cbr.com/official-best-cyberpunk-anime-ever-made/
+
+Anime has endless love for cyberpunk storytelling, but some series absolutely clear the rest an reflect the genre's greatest accomplishments.
+---------
+
+# Star Trek Officially Fixed a 53-Year-Old Captain Pike Continuity Problem
+
+TV, Star Trek, Star Trek: Strange New Worlds, Star Trek: Discovery
+
+Sat, 27 Jun 2026 14:30:13 GMT
+
+https://www.cbr.com/star-trek-fixed-captain-pike-continuity-problem/
+
+Christopher Pike is one of Star Trek's oldest characters, and a perceived "continuity problem" is actually a character arc played out over 60 years.
+---------
+
+# Paramount+’s Masterpiece Thriller Is Officially Moving Away From Its Winning Formula for Season 2
+
+TV Features, The Agency, Michael Fassbender, Paramount Plus, Jeffrey Wright
+
+Sat, 27 Jun 2026 15:28:13 GMT
+
+https://collider.com/paramount-plus-the-agency-michael-fassbender-thriller-masterpiece-season-2-revamp/
+
+The Agency has seen an uptick in reviews during its sophmore season, thanks to one major shift.
+---------
+
+# 16 Years Later, 'Mad Men's Best Quote Completely Defines the Series
+
+TV Features, Mad Men, Jon Hamm, Elisabeth Moss, AMC
+
+Sat, 27 Jun 2026 15:23:14 GMT
+
+https://collider.com/mad-men-best-quote-season-4-episode-7-the-suitcase/
+
+Mad Men's most iconic quote highlights Don Draper's transactional approach to human relations and the show's critique of the American Dream.
+---------
+
+# Netflix’s Big-Budget Fantasy Gamble Pays Off With Massive Debut
+
+TV News, Avatar: The Last Airbender, Netflix, Fantasy
+
+Sat, 27 Jun 2026 14:45:13 GMT
+
+https://collider.com/netflixs-big-budget-fantasy-gamble-pays-off-with-massive-debut/
+
+Netflix’s big-budget fantasy series Avatar: The Last Airbender defied mixed reviews with a major streaming debut for Season 2.
+---------
+
+# Hit Will Ferrell Comedies Get Long-Awaited Sequel Updates From Adam McKay
+
+Movie News, Step Brothers, Talladega Nights: The Ballad of Ricky Bobby, Will Ferrell
+
+Sat, 27 Jun 2026 15:09:24 GMT
+
+https://movieweb.com/will-ferrell-comedies-sequel-updates/
+
+Adam McKay shares new updates on potential sequels to two of Will Ferrell’s most beloved comedies, including how close one follow-up came to happening
+---------
+
+# 'Supergirl's 6 Biggest Differences to the 'Woman of Tomorrow' Comic
+
+Movie Lists, Supergirl, DCU
+
+Sat, 27 Jun 2026 15:00:19 GMT
+
+https://movieweb.com/supergirl-woman-of-tomorrow-movie-comics-differences/
+
+Did you spot all the major changes 'Supergirl' made to the comic book source material?
+---------
+
+# 'Fallen' (2016) Ending, Explained: Who Does Luce End Up With?
+
+Features, Fallen, Romance
+
+Sat, 27 Jun 2026 15:00:19 GMT
+
+https://movieweb.com/fallen-2016-ending-explained/
+
+The worst (or greatest, if you ask us) YA romance adaptation has its fans, even though the ending is abrupt; here is what was supposed to happen.
+---------
+
 # The Undisputed Best Season Of Superhero TV Ever Made Hits Netflix On July 1
 
 Classic TV, Masked Recs
