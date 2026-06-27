@@ -1,3 +1,223 @@
+# Spider-Man: Brand New Day Just Revealed Never Before Seen Scorpion Scene The Trailers Omitted
+
+Movies, Spider-Man: Brand New Day
+
+Sat, 27 Jun 2026 23:55:59 GMT
+
+https://screenrant.com/spider-man-brand-new-day-scorpion-scene-trailers-omitted/
+
+Sony just unveiled new behind-the-scenes footage of Peter Parker fighting Scorpion in Spider-Man: Brand New Day that was omitted from the trailers.
+---------
+
+# Japan Just Made A Massive Investment In Anime, Here's Why That's A Big Mistake
+
+Anime
+
+Sat, 27 Jun 2026 23:48:40 GMT
+
+https://screenrant.com/japan-anime-investment-problem-ai/
+
+Japan's investment in anime's overseas expansion includes urging companies to use generative AI, raising concerns about the technology implementation.
+---------
+
+# 48 Years Later, Star Wars Delivered Its Greatest Line Ever
+
+Streaming TV, Masked Recs, Star Wars
+
+Sat, 27 Jun 2026 23:30:21 GMT
+
+https://screenrant.com/star-wars-greatest-quote-mon-mothma-andor/
+
+Star Wars has many iconic lines, but it took almost half a century to come up with its most profound quote with Mon Mothma's monologue in Andor.
+---------
+
+# 10 Failed Shows That Are Ready For A Reboot
+
+TV, My So-Called Life, Alien Nation
+
+Sat, 27 Jun 2026 23:30:21 GMT
+
+https://screenrant.com/failed-tv-shows-need-reboot/
+
+The world may finally be ready for these TV shows that failed in the past
+---------
+
+# 10 Most Exciting Video Game Movies Currently In Production
+
+Gaming, Elden Ring, Triple-A Games, PC
+
+Sat, 27 Jun 2026 23:30:21 GMT
+
+https://screenrant.com/upcoming-video-game-movies-most-exciting/
+
+Having broken out of the video game movie curse, there's been an explosion of exciting new projects for video game fans to look forward to.
+---------
+
+# Hulu's Emmy-Winning Series Officially Ends With Streaming Hit After 5-Season Run
+
+TV, Masked Recs, Hulu, Disney+
+
+Sat, 27 Jun 2026 23:19:11 GMT
+
+https://screenrant.com/the-bear-season-5-hulu-streaming-success-june-2026/
+
+After a tremendous 5-season run, a massive Emmy-winning television series finishes its journey by becoming a streaming success after only one day.
+---------
+
+# After 14 Years, Avatar: The Last Airbender's OTHER Sequel Makes Korra Look Like A Joke
+
+Comics, Avatar: The Last Airbender
+
+Sat, 27 Jun 2026 23:00:20 GMT
+
+https://screenrant.com/avatar-last-airbender-the-promise-better-than-korra/
+
+14 years after its release, Avatar: The Last Airbender's alternate sequel is still so much better than The Legend of Korra for these reasons.
+---------
+
+# All 5 Upcoming Dungeons & Dragons TV Shows
+
+Streaming TV, Dungeons & Dragons, The Legend of Vox Machina, The Mighty Nein, Baldur's Gate, Dimension 20
+
+Sat, 27 Jun 2026 23:00:20 GMT
+
+https://screenrant.com/upcoming-dungeons-and-dragons-tv-shows/
+
+There are five shows based on (or featuring) Dungeons & Dragons on the way in the coming years, and many of them are all but guaranteed to be hits.
+---------
+
+# Stardew Valley Officially Returns With New Prequel
+
+Gaming, Stardew Valley
+
+Sat, 27 Jun 2026 23:00:20 GMT
+
+https://screenrant.com/stardew-valley-new-prequel-confirmed/
+
+Discover the secrets of Pelican Town before the farmer's arrival in Stardew Valley: Before the Farmer.
+---------
+
+# 10 Dragon Ball Characters Who Never Reached Their Potential
+
+Anime, Dragon Ball, Akira Toriyama, Shonen, shonen anime
+
+Sat, 27 Jun 2026 23:45:13 GMT
+
+https://www.cbr.com/dragon-ball-characters-never-reach-their-potential/
+
+Dragon Ball has a robust cast of powerful players, but there are also many impressive individuals who have yet to reach their full potential.
+---------
+
+# Steven Spielberg's Cult Sci-Fi Classic Is the Best Star Trek Copycat of the '90s
+
+TV, steven spielberg, Sci-Fi, Earth 2
+
+Sat, 27 Jun 2026 23:30:13 GMT
+
+https://www.cbr.com/steven-spielberg-earth-2-best-90s-star-trek-copycat/
+
+During Star Trek's golden age, Steven Spielberg's competing sci-fi TV series, which explored uncharted thematic territory, was canceled too soon.
+---------
+
+# 5 Forgotten 2020s Anime Series That Are Masterpieces From Start to Finish
+
+Anime
+
+Sat, 27 Jun 2026 23:15:13 GMT
+
+https://www.cbr.com/forgotten-2020s-anime-series-masterpieces-start-to-finish/
+
+5 Best anime from the 2020s that are highly underrated and forgotten, despite being flawless from start to end.
+---------
+
+# Taylor Sheridan's Call of Duty Officially Sets Release Date
+
+Movies, Call of Duty
+
+Sat, 27 Jun 2026 23:15:13 GMT
+
+https://www.cbr.com/taylor-sheridan-call-of-duty-movie-release-date/
+
+The highly anticipated adaptation is heading to theaters... not very soon.
+---------
+
+# Netflix Confirms Avatar: The Last Airbender's Darkest Katara Storyline 1 Season Early
+
+TV, Avatar: The Last Airbender, Netflix
+
+Sat, 27 Jun 2026 23:00:13 GMT
+
+https://www.cbr.com/netflix-last-airbender-foreshadow-katara-bloodbending/
+
+The second season of Avatar: The Last Airbender's live-action remake foreshadowed the most disturbing part of Katara's journey.
+---------
+
+# ‘Daredevil: Born Again’ Could Be Quietly Setting Up the MCU Spin-Off Fans Need Now
+
+TV Features, Daredevil: Born Again, Iron Fist, Luke Cage, MCU
+
+Sat, 27 Jun 2026 23:52:14 GMT
+
+https://collider.com/daredevil-born-again-season-3-danny-rand-iron-fist-heroes-for-hire-spinoff/
+
+The return of another Marvel Netflix hero in Daredevil: Born Again Season 3 should pave the way for a Heroes for Hire spin-off.
+---------
+
+# It’s the End of an Era for Gerard Butler’s 111-Minute Action Flop on Paramount+
+
+Movie News, The Bounty Hunter, Gerard Butler, Jennifer Aniston, Paramount Plus
+
+Sat, 27 Jun 2026 23:45:13 GMT
+
+https://collider.com/gerard-butler-jennifer-aniston-the-bounty-hunter-leaving-paramount-plus-july-2026/
+
+Gerard Butler and Jennifer Aniston's critically panned action-comedy, The Bounty Hunter, is leaving Paramount+ soon. Find out when.
+---------
+
+# 'The Simpsons' Quietly Made a Change 17 Years Ago That Fixed the Whole Show
+
+TV Features, The Simpsons, Fox, Matt Groening, Disney+
+
+Sat, 27 Jun 2026 23:37:13 GMT
+
+https://collider.com/the-simpsons-opening-sequence-billboard-gag/
+
+In 2009, The Simpsons made a change to its opening sequence that helped make the show more rewatchable than ever before.
+---------
+
+# James Bond Meets ‘Reacher’ in Netflix’s Easy-To-Binge Spy Thriller Returning for Season 2
+
+TV News, Black Doves, Keira Knightley, Netflix, Ben Whishaw
+
+Sat, 27 Jun 2026 23:30:13 GMT
+
+https://collider.com/keira-knightley-black-doves-season-2-netflix-release-window-2027/
+
+Netflix's hit spy thriller with shades of James Bond and Reacher is being binged around the world before it returns for Season 2.
+---------
+
+# Say Goodbye to the Greatest Detective Movie of All Time Before It Leaves Paramount+
+
+Movie News, Chinatown, Jack Nicholson, Paramount Plus, Faye Dunaway
+
+Sat, 27 Jun 2026 23:15:13 GMT
+
+https://collider.com/jack-nicholson-chinatown-leaving-paramount-plus-july-2026/
+
+The greatest neo-noir film of all time, Chinatown, is leaving its streaming home soon. Find out how long you have left to watch it.
+---------
+
+# 19 Years Later, Ryan Gosling’s Criminally Underrated Performance Is Finally Getting the Love It Deserves
+
+Movie News, Ryan Gosling, Lars and the Real Girl, Emily Mortimer, Streaming
+
+Sat, 27 Jun 2026 23:00:13 GMT
+
+https://collider.com/ryan-gosling-lars-and-the-real-girl-free-streaming-plex-july-2026/
+
+Lars and the Real Girl, featuring Ryan Gosling's best performance, is about to be available to stream for free. Here's everything you should know.
+---------
+
 # 19 Best Weapons In The Demon's Souls Remake
 
 Gaming, Demon's Souls
