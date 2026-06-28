@@ -1,3 +1,355 @@
+# 007 First Light Free Download Officially Yours To Grab For 48 Hours
+
+Gaming, 007 First Light
+
+Sun, 28 Jun 2026 04:00:32 GMT
+
+https://screenrant.com/007-first-light-free-download-48-hours/
+
+Get your hands on the exclusive Spotlight Phone Gadget skin for 007: First Light, available for free during this limited time offer.
+---------
+
+# 15 Best Apocalypse Manhwa To Read After Solo Leveling
+
+Anime, Solo Leveling
+
+Sun, 28 Jun 2026 03:55:22 GMT
+
+https://screenrant.com/best-manhwa-like-solo-leveling-apocalyptic/
+
+Readers trying to fill the void left by Solo Leveling will find the following manhwa teeming with monsters, powers, and the fall of civilization.
+---------
+
+# One Piece's Anime Was Doomed From The First Episode, But 27 Years Later, The Remake Is Fixing It
+
+Anime, One Piece, The One Piece
+
+Sun, 28 Jun 2026 03:50:11 GMT
+
+https://screenrant.com/one-piece-remake-fixing-anime-first-episode-problem/
+
+After the 1999 anime drastically altered the beginning, the upcoming Netflix remake will finally give the faithful adaptation the manga deserves.
+---------
+
+# Every Sun Color In The DC Universe Explained
+
+Superheroes, Supergirl, DC Universe
+
+Sun, 28 Jun 2026 03:36:59 GMT
+
+https://screenrant.com/every-sun-color-dc-universe-explained/
+
+The DCU's new Supergirl movie features multiple different sun colors. Here's our breakdown for each color and how they affect Kryptonians.
+---------
+
+# 10 Greatest Action Movie One-Liners of All Time
+
+Classic Movies, Action
+
+Sun, 28 Jun 2026 03:30:22 GMT
+
+https://screenrant.com/best-action-movie-one-liners-ranked/
+
+The action movie genre lives and dies by its lead characters, and the best of the best have delivered one-liners that have stood the test of time.
+---------
+
+# 10 Greatest TV Shows About Pirates (#1 Will Never Be Beaten)
+
+Classic TV
+
+Sun, 28 Jun 2026 03:28:24 GMT
+
+https://screenrant.com/10-greatest-tv-shows-about-pirates-1-will-never-be-beaten/
+
+Dive into the world of pirates with these ten thrilling TV shows that capture the essence of adventure, rebellion, and moral ambiguity.
+---------
+
+# Avatar: The Last Airbender Season 2's Controversial Cliffhanger Explained
+
+TV, Avatar: The Last Airbender
+
+Sun, 28 Jun 2026 03:24:55 GMT
+
+https://screenrant.com/avatar-the-last-airbender-season-2-controversial-cliffhanger-addressed/
+
+Avatar: The Last Airbender showrunners, Christine Boylan and Jabbar Raisani, explain season 2's shocking finale and upsetting cliffhanger.
+---------
+
+# Jonathan Nolan’s 5-Part Cyberpunk Shifted Its Identity Before Becoming A Sci-Fi Masterpiece
+
+Streaming TV, Masked Recs
+
+Sun, 28 Jun 2026 03:24:32 GMT
+
+https://screenrant.com/person-of-interest-cyberpunk-sci-fi-identity-shift/
+
+Before it went on to become a hard-hitting sci-fi masterpiece, Jonathan Nolan’s 5-part cyberpunk show experienced a significant shift in its identity.
+---------
+
+# Apple TV’s ‘Lincoln Lawyer Meets Gone Girl’ Is A Hit Legal Thriller With Unmatched Potential
+
+Streaming TV, Masked Recs
+
+Sun, 28 Jun 2026 03:00:22 GMT
+
+https://screenrant.com/presumed-innocent-season-2-high-potential/
+
+Apple TV’s catalog includes one compelling crime thriller that seems to combine some of the best story elements from The Lincoln Lawyer and Gone Girl.
+---------
+
+# Criminal Minds Resurrects A Controversial Plot That Should Have Never Happened In The First Place
+
+Network TV, Criminal Minds
+
+Sun, 28 Jun 2026 03:00:22 GMT
+
+https://screenrant.com/criminal-minds-season-19-garcia-saves-voit-callback-bad/
+
+The biggest cliffhanger of Criminal Minds season 19 actually calls back to one of the most divisive subplots of the Paramount+ continuation thus far.
+---------
+
+# 10 Times Hunter x Hunter Challenged Everything Gon Believed
+
+Anime, Hunter X Hunter
+
+Sun, 28 Jun 2026 03:45:15 GMT
+
+https://www.cbr.com/hunter-x-hunter-most-impactful-gon-moment/
+
+Gon is the complex and controversial protagonist of Hunter X Hunter, and the narrative has very frequently challenged his worldview.
+---------
+
+# Sanrio Reveals Final 2026 Character Ranking Results as Hello Kitty Loses Out for 7th Year
+
+Anime, sanrio, Hello Kitty
+
+Sun, 28 Jun 2026 03:37:31 GMT
+
+https://www.cbr.com/sanrio-character-ranking-results-final-2026/
+
+The official results of Sanrio's 2026 character ranking have been revealed, with Hello Kitty, Cinnamoroll, Kuromi and more all vying for the crown.
+---------
+
+# 5 Greatest Survival Horror Games Ever Made
+
+Games, Silent Hill 2, Resident Evil 4, Video Games, The Last of Us
+
+Sun, 28 Jun 2026 03:15:15 GMT
+
+https://www.cbr.com/official-best-survival-horror-games/
+
+Survival horror is a genre that needs more respect, with franchises like Resident Evil and Silent Hill being home to some of the best games ever.
+---------
+
+# 5 Forgotten Agatha Christie Movies That Are Perfect From Start to Finish
+
+Movies, Mystery, Death On The Nile, Murder on the Orient Express
+
+Sun, 28 Jun 2026 03:10:14 GMT
+
+https://www.cbr.com/forgotten-agatha-christie-murder-mystery-movies-list/
+
+There are many Agatha Christie mystery adaptations, but some of the best have since been forgotten.
+---------
+
+# 5 Masterpiece Turn-Based RPGs Better Than Clair Obscur
+
+Games, Yakuza, Final Fantasy VII, Video Games, Nintendo
+
+Sun, 28 Jun 2026 02:45:14 GMT
+
+https://www.cbr.com/masterpiece-turn-based-rpgs-better-than-clair-obscur/
+
+Clair Obscur: Expedition 33 is an amazing title, but it's not quite the peak of the turn-based RPG genre.
+---------
+
+# The Hobbit Movies Invented One of Gandalf's Greatest Quotes
+
+Movies, The Lord of the Rings, The Hobbit, The Hobbit: An Unexpected Journey
+
+Sun, 28 Jun 2026 02:40:14 GMT
+
+https://www.cbr.com/hobbit-unexpected-journey-best-gandalf-line/
+
+A single piece of dialogue from The Hobbit: An Unexpected Journey remains one of Gandalf's best quotes in The Lord of the Rings franchise.
+---------
+
+# 10 Classic Anime Series That Are Unwatchable Today
+
+Anime
+
+Sun, 28 Jun 2026 02:30:14 GMT
+
+https://www.cbr.com/throwback-anime-aged-badly/
+
+Anime like Dragon Ball Z and Yu-Gi-Oh! are classics, but that doesn't mean they've aged well.
+---------
+
+# Only 3 Shonen Anime Are Objectively Better Than JJK
+
+Anime, Fullmetal Alchemist: Brotherhood, Yu Yu Hakusho, One Piece, Jujutsu Kaisen
+
+Sun, 28 Jun 2026 02:30:14 GMT
+
+https://www.cbr.com/shonen-anime-objectively-better-than-jjk/
+
+Jujutsu Kaisen has ushered in a new age of shonen anime, with only three series from the genre being objectively better.
+---------
+
+# All 5 Seasons of Iconic 90s Sci-Fi Series Are Streaming for Free in July
+
+TV, Sliders
+
+Sun, 28 Jun 2026 02:00:25 GMT
+
+https://www.cbr.com/sliders-streaming-free-tubi-2026/
+
+The 31-year-old sci-fi fantasy series about parallel dimensions makes a return with all five seasons landing on a free streaming home.
+---------
+
+# 10 Perfect RPGs That Are 50 Hours or More
+
+Games, Video Games, Elden Ring, The Witcher 3: Wild Hunt
+
+Sun, 28 Jun 2026 02:00:25 GMT
+
+https://www.cbr.com/perfect-rpgs-50-hours-or-longer/
+
+From Elden Ring to Xenoblade Chronicles, there are a surprising number of RPGs that offer over 50 hours of content.
+---------
+
+# Before Netflix’s Anticipated Spin-Off, You Need To Watch This Stellar 3-Part Series
+
+TV Features, Netflix, Heartstopper, Heartstopper Forever, Kit Connor
+
+Sun, 28 Jun 2026 03:44:15 GMT
+
+https://collider.com/netflix-coming-of-age-series-heartstopper-spin-off-film/
+
+After three wholesome seasons of Heartstopper, Netflix’s coming-of-age series is coming to an end with a spin-off movie.
+---------
+
+# ‘Star Trek’ Has Nothing on This Sci-Fi Series That Quietly Built a Massive TV Universe
+
+TV Features, Stargate, Star Wars, Star Trek, Sci-Fi
+
+Sun, 28 Jun 2026 02:49:15 GMT
+
+https://collider.com/star-trek-best-replacement-series-stargate-sg-1-franchise-history/
+
+Stargate SG-1 transformed a hit sci-fi movie into a sprawling franchise, spawning spin-offs, movies, and one of TV's richest universes.
+---------
+
+# 9 Greatest Sci-Fi Shows With 8 Episodes or Less
+
+TV, Sci-Fi, Devs, Tales from the Loop, The Peripheral
+
+Sun, 28 Jun 2026 01:33:15 GMT
+
+https://collider.com/best-sci-fi-shows-8-episodes-or-less/
+
+Devs, Bodies, Tales from the Loop, Constellation, The Peripheral, and more make up our list of great sci-fi shows with eight episodes or fewer.
+---------
+
+# ‘Mindhunter’ Is Officially Cancelled, So Stop Asking David Fincher About It
+
+TV Features, Mindhunter, Jonathan Groff, Holt McCallany, Anna Torv
+
+Sun, 28 Jun 2026 01:01:15 GMT
+
+https://collider.com/mindhunter-netflix-cancelled-david-fincher-comments/
+
+Despite fan demand for a third season, Mindhunter came to an end after just two seasons and it will never come back.
+---------
+
+# Before 'Dune: Part Three', Robert Pattinson's Best Fantasy Sequel Is Leaving HBO Max
+
+Movie News, The Twilight Saga: Eclipse (2010), The Twilight Saga, Robert Pattinson, HBO Max
+
+Sun, 28 Jun 2026 00:46:13 GMT
+
+https://collider.com/robert-pattinson-twilight-saga-eclipse-leaving-hbo-max-july-2026/
+
+The best installment of the Twilight franchise, The Twilight Saga: Eclipse, is leaving HBO Max soon. Find out when.
+---------
+
+# 7 Low Fantasy TV Shows With Great Magic Systems
+
+TV, Fantasy, Merlin, A Discovery of Witches, American Gods
+
+Sun, 28 Jun 2026 00:34:14 GMT
+
+https://collider.com/low-fantasy-tv-shows-great-magic-systems/
+
+Merlin, A Discovery of Witches, Carnivàle, and American Gods are all examples of elite low fantasy shows that feature excellent magic systems.
+---------
+
+# 24 Years Later, Bruce Willis’ Criminally Underrated WWII Masterpiece Is Streaming for Free
+
+Movie News, Hart's War, Bruce Willis, Colin Farrell, World War II
+
+Sun, 28 Jun 2026 00:30:13 GMT
+
+https://collider.com/bruce-willis-ww2-movie-harts-war-streaming-plex-july-2026/
+
+Bruce Willis' underrated WW2 thriller is about to be available to stream for free. Here's everything you should know.
+---------
+
+# Say Goodbye to One of the Greatest Sci-Fi Masterpieces Ever Made on HBO Max
+
+Movie News, Everything Everywhere All at Once, Michelle Yeoh, HBO Max, Sci-Fi
+
+Sun, 28 Jun 2026 00:15:13 GMT
+
+https://collider.com/everything-everywhere-all-at-once-multiverse-movie-leaving-hbo-max-july-2026/
+
+The greatest multiverse movie ever made, the Oscar-winning Everything Everywhere All at Once, is leaving HBO Max soon. Find out when.
+---------
+
+# 12 Years Later, This Sci-Fi Masterpiece Is Finally Available to Everyone
+
+Movie News, Ex Machina, Domhnall Gleeson, Alicia Vikander, Oscar Isaac
+
+Sun, 28 Jun 2026 00:00:13 GMT
+
+https://collider.com/ex-machina-free-streaming-plex-july-2026/
+
+One of the best sci-fi movies of the 21st century, Ex Machina, is about to become available for free. Read on for all the details.
+---------
+
+# Netflix's 7 Biggest ‘Avatar: The Last Airbender’ Season 2 Changes
+
+Features, Avatar: The Last Airbender
+
+Sun, 28 Jun 2026 02:01:21 GMT
+
+https://movieweb.com/netflix-avatar-season-2-changes/
+
+In expediting the major events of the Earth Kingdom-based Book 2 of 'Avatar: The Last Airbender', the Netflix show makes some major modifications.
+---------
+
+# 'The Bear' Finally Has the Perfect Replacement For Its Greatest Episode
+
+Features, The Bear
+
+Sun, 28 Jun 2026 00:30:19 GMT
+
+https://movieweb.com/the-bear-forks-replacement-episode/
+
+'The Bear' has ended, and while one notable episode has often been considered the show's best, the final season has dethroned it.
+---------
+
+# 10 High-Stakes Thriller Movies That Will Keep You Hooked From Start To Finish
+
+Movie Lists, Thriller
+
+Sun, 28 Jun 2026 00:00:19 GMT
+
+https://movieweb.com/thriller-movies-keep-you-hooked/
+
+From high-stake heists to psychological horror, these movies are bound to grip you from the opening moments and have you hooked until the end credits.
+---------
+
 # Spider-Man: Brand New Day Just Revealed Never Before Seen Scorpion Scene The Trailers Omitted
 
 Movies, Spider-Man: Brand New Day
