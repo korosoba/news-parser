@@ -1,3 +1,344 @@
+# 22 Years Later, Lost's Best Line Is Still The Greatest Quote In Sci-Fi History
+
+Classic TV, Lost
+
+Sun, 28 Jun 2026 21:30:20 GMT
+
+https://screenrant.com/lost-jack-greatest-quote-sci-fi-history/
+
+The greatest line of dialogue in Lost cuts to a universal truth in an efficiency that few, if any, other quotes from sci-fi shows manage.
+---------
+
+# The Road To GTA 6's Release Has Officially Begun
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, PC
+
+Sun, 28 Jun 2026 21:30:20 GMT
+
+https://screenrant.com/gta-6-lead-up-november-release-locked-in/
+
+It is clear that we're now in the final stretch before Grand Theft Auto 6's release, and it really feels like nothing can slow it down.
+---------
+
+# Spider-Man’s Brand New Day Suit Is His Best Live-Action Costume Ever, And That’s A Big ProblemSpider-Man’s Brand New Day Suit Is His Best Live-Action Costume Ever, And That’s A Big Problem
+
+Movies, Spider-Man: Brand New Day, Spider-Man
+
+Sun, 28 Jun 2026 21:26:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-suit-mcu-problem-too-accurate/
+
+Brand New Day presents Peter Parker with the best live-action Spider-Man costume ever, arguably, and it hopefully won't be shelved any time soon.
+---------
+
+# New Final Fantasy 15 Remake From Square Enix Comes With Silver Lining
+
+Gaming, Final Fantasy, Final Fantasy 15, Triple-A Games
+
+Sun, 28 Jun 2026 21:15:20 GMT
+
+https://screenrant.com/final-fantasy-15-remake-better-story-improvements/
+
+Square Enix has voiced an interest in potentially remaking or porting Final Fantasy 15, and fans are thrilled about the idea.
+---------
+
+# 9 Greatest Heatwave Horror Moves Ever Made
+
+Movies, The Ruins, Horror, The Sand, Wolf Creek, The Texas Chainsaw Massacre, The Hills Have Eyes, 247 Degrees Fahrenheit, Revenge, Send Help, Wake in Fright
+
+Sun, 28 Jun 2026 21:15:20 GMT
+
+https://screenrant.com/best-heatwave-horror-movies/
+
+With the summer sun setting in, here are some unbearably stifling heatwave horror movies to give you chills despite the rising temperatures.
+---------
+
+# All PS5 Games That Work Cross-Platform On Steam & PC
+
+Gaming, PlayStation 5, Steam, PC, Gaming Hardware
+
+Sun, 28 Jun 2026 21:05:11 GMT
+
+https://screenrant.com/ps5-games-cross-platform-steam-pc/
+
+There are plenty of games that have crossplay between the PS5 and Steam, although activating the feature can require a brief set-up process.
+---------
+
+# 8 Biggest Reminders Of Him Changes From Colleen Hoover's Book
+
+Classic Movies, Reminders of Him
+
+Sun, 28 Jun 2026 21:00:20 GMT
+
+https://screenrant.com/reminders-of-him-movie-book-changes-explained/
+
+Even though Colleen Hoover co-wrote the Reminders of Him screenplay, there were some major changes as this romance made the jump from page to screen
+---------
+
+# Marvel Officially Reveals Skaar Design For Hulk's New Appearance
+
+Marvel Comics, Hulk
+
+Sun, 28 Jun 2026 21:00:20 GMT
+
+https://screenrant.com/hulk-skaar-design-costume-hammer/
+
+Skaar, Hulk's most prominent child, returns with an updated appearance and a potentially essential role in his father's current storyline.
+---------
+
+# D&D's Best Homebrew Rule Will Upgrade Your Characters Forever
+
+Tabletop, Dungeons and Dragons, Dungeons & Dragons, tabletop games
+
+Sun, 28 Jun 2026 21:00:20 GMT
+
+https://screenrant.com/dungeons-dragons-best-character-creation-knife-theory-dnd/
+
+A nine-year-old homebrew rule for Dungeons and Dragons is going to bring a serious upgrade to your character creation process in campaigns.
+---------
+
+# Robert De Niro’s Two 2026 Movies Couldn’t Be More Different
+
+Movies, Robert De Niro
+
+Sun, 28 Jun 2026 20:45:21 GMT
+
+https://screenrant.com/robert-de-niro-two-2026-movies-the-whisper-man-focker-in-law/
+
+Robert De Niro's two 2026 movies are drastically different movies in their tones, characters, and stories - making the year all the more interesting.
+---------
+
+# Time Is Running Out to Watch Kyle Chandler's Divisive Mystery Drama With Only 12% RT on Netflix
+
+Movies, The Vanishing of Sidney Hall
+
+Sun, 28 Jun 2026 21:31:14 GMT
+
+https://www.cbr.com/kyle-chandler-the-vanishing-of-sidney-hall-leaving-netflix-july-2026/
+
+The movie was panned by critics but audiences enjoyed it.
+---------
+
+# Clint Eastwood's Essential 8-Part Western Is Still 100% Untouchable 67 Years Later
+
+TV, Western, Rawhide
+
+Sun, 28 Jun 2026 21:31:14 GMT
+
+https://www.cbr.com/clint-eastwood-rawhide-untouchable-western-series/
+
+CBS's Rawhide is a unique, must-watch classic Western series responsible for launching Clint Eastwood's decade-spanning career.
+---------
+
+# 10 Dragon Ball Storylines Fans Rarely Talk About Anymore
+
+Anime, Dragon Ball, Akira Toriyama, Shonen, shonen anime
+
+Sun, 28 Jun 2026 21:15:13 GMT
+
+https://www.cbr.com/dragon-ball-storylines-fans-forgot/
+
+Dragon Ball has decades of suspenseful storytelling to pull from, but certain plot points, despite their impact, have fallen into obscurity!
+---------
+
+# Neve Campbell's $67M R-Rated Erotic Thriller Is Leaving Netflix Soon
+
+Movies, Wild Things
+
+Sun, 28 Jun 2026 21:01:13 GMT
+
+https://www.cbr.com/neve-campbell-wild-things-thriller-leaving-netflix-july-2026/
+
+The film was a box office hit and it became a cult classic.
+---------
+
+# Supergirl's Reviews Are Bad News for the DCU Wonder Woman Movie
+
+Movies, DCU, Supergirl, Wonder Woman
+
+Sun, 28 Jun 2026 21:01:13 GMT
+
+https://www.cbr.com/supergirl-bad-reviews-dcu-wonder-woman-movie-connection/
+
+Supergirl isn't a hit with critics, which could inadvertently doom another upcoming DCU movie.
+---------
+
+# Netflix's Wednesday Season 3 Halts Filming After 'Really Nasty' On-Set Injury
+
+TV, Wednesday
+
+Sun, 28 Jun 2026 20:45:54 GMT
+
+https://www.cbr.com/wednesday-season-3-eva-green-injury/
+
+The third season of Netflix's Wednesday had to put a pause on production due to the incident.
+---------
+
+# Marvel's New X-Men Series Officially Changes Magneto's Lore Forever
+
+Comics, X-Men
+
+Sun, 28 Jun 2026 20:37:13 GMT
+
+https://www.cbr.com/x-men-dnx-magneto-genetic-prophet/
+
+Marvel fans are only months away from one of the biggest shakeups in the history of mutantkind, and on X-Men icon is becoming their "genetic prophet"
+---------
+
+# Apple TV's 10-Part Horror Show With 97% RT Is Returning as the Darkest TV Event of the 2020s
+
+TV, Widow's Bay, Apple TV
+
+Sun, 28 Jun 2026 20:30:13 GMT
+
+https://www.cbr.com/apple-tv-widows-bay-season-2-even-darker/
+
+The best new horror series on Apple TV has been renewed for a second season, which promises to be even darker and more shocking than the first.
+---------
+
+# 15 Best Fighters In Record Of Ragnarok, Ranked
+
+Anime, Manga, Record of Ragnarok
+
+Sun, 28 Jun 2026 20:30:13 GMT
+
+https://www.cbr.com/best-strongest-record-of-ragnarok-fighters-ranked/
+
+Every competitor in Record of Ragnarok is powerful, but some are stronger than others, such as Lu Bu and Buddha.
+---------
+
+# 10 Times Satoru Gojo's Strength Was His Biggest Weakness
+
+Anime, Jujutsu Kaisen, Shonen, shonen anime
+
+Sun, 28 Jun 2026 20:15:13 GMT
+
+https://www.cbr.com/jjk-gojo-strength-was-his-biggest-weakness/
+
+Satoru Gojo may be the strongest sorcerer of his era, but that immeasurable strength led to an arrogance that blinded him from his own weaknesses.
+---------
+
+# Tom Cruise’s 2-Part Action Franchise Is Finally Streaming Completely Free
+
+Movie News, Top Gun: Maverick, Top Gun, Tom Cruise, Streaming
+
+Sun, 28 Jun 2026 21:30:13 GMT
+
+https://collider.com/tom-cruise-top-gun-maverick-free-streaming-pluto-tv-july-2026/
+
+Tom Cruise's classic Top Gun and the cinema-saving Top Gun: Maverick are available to stream on a new platform next month.
+---------
+
+# 10 Scariest Mystery Movies of All Time
+
+Movie, Mystery, Se7en, Zodiac, Twin Peaks: Fire Walk With Me
+
+Sun, 28 Jun 2026 21:23:14 GMT
+
+https://collider.com/scariest-mystery-movies-ranked/
+
+From The Others, to The Vanishing, to Zodiac, these terrifying mystery movies transform clues, obsessions, and hidden truths into pure dread.
+---------
+
+# Clint Eastwood’s Near-Perfect Western Masterpiece Hits Free Streaming in 3 Days
+
+Movie News, A Fistful of Dollars, Clint Eastwood, Western, Sergio Leone
+
+Sun, 28 Jun 2026 21:15:13 GMT
+
+https://collider.com/clint-eastwood-western-a-fistful-of-dollars-free-streaming-pluto-tv-july-2026/
+
+A Fistful of Dollars, the infamous and influential Western remake starring Clint Eastwood, will stream for free this July. Here's how to watch it.
+---------
+
+# 36 Years Ago, ‘Star Trek’ Broke Television With Its Biggest, Most Brutal Cliffhanger
+
+TV Features, Star Trek, Star Trek: The Next Generation, Patrick Stewart, Sci-Fi
+
+Sun, 28 Jun 2026 21:03:14 GMT
+
+https://collider.com/star-trek-the-next-generation-best-of-both-worlds-episode/
+
+Star Trek: The Next Generation's "The Best of Both Worlds" helped redefine television with a cliffhanger that changed serialized storytelling.
+---------
+
+# John Carpenter Officially Reveals Release Date for Next Big Project Ahead of Horror Return
+
+Books and Comics News, John Carpenter, Horror, Comic Book, Music
+
+Sun, 28 Jun 2026 21:00:13 GMT
+
+https://collider.com/john-carpenter-the-ferryman-june-30-cathedral/
+
+John Carpenter will release "The Ferryman" on June 30, offering another preview of his multimedia horror project Cathedral ahead of its August debut.
+---------
+
+# Steven Spielberg Walked Away From Harry Potter To Make an Underrated Masterpiece
+
+Movie Features, Steven Spielberg, Stanley Kubrick, Harry Potter, Harry Potter and the Sorcerer's Stone, A.I. Artificial Intelligence
+
+Sun, 28 Jun 2026 20:56:15 GMT
+
+https://collider.com/steven-spielberg-harry-potter-ai-artificial-intelligence-kubrick/
+
+Steven Spielberg nearly directed Harry Potter but left Hogwarts behind to finish Stanley Kubrick’s dream project, A.I. Artificial Intelligence.
+---------
+
+# Say Hello to Cinema’s Greatest Sci-Fi Horror Remake
+
+Movie News, Invasion of the Body Snatchers, Sci-Fi, Jeff Goldblum, Donald Sutherland
+
+Sun, 28 Jun 2026 20:30:13 GMT
+
+https://collider.com/jeff-goldblum-invasion-of-the-body-snatchers-free-streaming-plex-july-2026/
+
+A cult-classic sci-fi horror film starring Donald Sutherland and Jeff Goldblum is getting even easier to watch. Find out more here.
+---------
+
+# 10 Masterpiece Sci-Fi TV Shows That Are Perfect From Start To Finish
+
+Features, Sci-Fi
+
+Sun, 28 Jun 2026 21:30:18 GMT
+
+https://movieweb.com/masterpiece-sci-fi-shows-perfect/
+
+From epic space operas to gritty dystopian thrillers, these are all 10/10 masterpieces that will have you hooked from the opening scene.
+---------
+
+# 6 Roman Historical Epic TV Shows That Are Better Than 'Spartacus'
+
+TV Lists, Spartacus
+
+Sun, 28 Jun 2026 21:00:19 GMT
+
+https://movieweb.com/roman-epic-tv-shows-better-spartacus/
+
+'Spartacus' is great, but these Roman historical epic TV shows have a little more substance to heighten their epic drama.
+---------
+
+# George R.R. Martin's Dark 4-Part Thriller Makes Streaming Comeback
+
+TV News, Dark Winds, Hot on Streaming, AMC+, George R.R. Martin
+
+Sun, 28 Jun 2026 21:00:19 GMT
+
+https://movieweb.com/dark-winds-george-rr-martin-streaming-success-amc-june-2026/
+
+George R.R. Martin's dark western thriller with a 100% Rotten Tomatoes score, 'Dark Winds,' is a streaming success on AMC+.
+---------
+
+# Prime Video's Only Perfect Thriller Can Be Binge-Watched in a Day
+
+Features, Prime Video, The Night Manager, Thriller
+
+Sun, 28 Jun 2026 20:30:18 GMT
+
+https://movieweb.com/prime-video-night-manager-binge-worthy/
+
+One of TV's best-kept secrets is a thriller with a stacked roster of superstar actors, which finally returned this year after a long delay.
+---------
+
 # Superman's New Enemy Is The Gender-Flipped Version Of A Popular X-Men Villain
 
 Streaming TV, Masked Recs
