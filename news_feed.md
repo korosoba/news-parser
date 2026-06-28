@@ -1,3 +1,322 @@
+# It’s Not Season 6, But Netflix Will Redeem Some Of Stranger Things’ Divisive Ending
+
+Streaming TV, Masked Recs
+
+Sun, 28 Jun 2026 17:00:20 GMT
+
+https://screenrant.com/stranger-things-millie-bobby-brown-david-harbour-netflix-reunion/
+
+Their characters were denied a satisfying ending to Stranger Things 5, but their actors are about to reunite on a cathartic new project.
+---------
+
+# Marvel’s Blade Fans United Following New Game Update
+
+Gaming, Marvel's Blade, Triple-A Games
+
+Sun, 28 Jun 2026 17:00:20 GMT
+
+https://screenrant.com/arkane-blade-game-not-canceled-update/
+
+Marvel's Blade hasn't been heard of in an official capacity for quite some time, but one new update has fans both excited and wary lately.
+---------
+
+# The Terminal List Meets The Punisher In Netflix's Very Bingeable Action Remake
+
+TV, Masked Recs
+
+Sun, 28 Jun 2026 16:55:21 GMT
+
+https://screenrant.com/man-fire-netflix-punisher-meets-terminal-list/
+
+Netflix's fiery new 7-part action thriller, which has major shades of The Terminal List and The Punisher, is an intensely bingeable show.
+---------
+
+# Prime Video's Hit 8-Part Series Based On A Book Renewed For Season 2 With New Source Material
+
+TV, Every Year After
+
+Sun, 28 Jun 2026 16:53:56 GMT
+
+https://screenrant.com/every-year-after-season-2-renewal-announcement/
+
+Prime Video's latest YA adaptation is coming back for more, as the popular series will be coming back for a second season with new source material.
+---------
+
+# Recasting This Actor Officially Saved The Jack Reacher Franchise
+
+TV, Jack Reacher, Reacher
+
+Sun, 28 Jun 2026 16:40:21 GMT
+
+https://screenrant.com/reacher-alan-ritchson-recasting-tom-cruise-movies/
+
+The Jack Reacher franchise looked DOA way back in 2016, but a key recasting transformed it into one of the biggest series in the world.
+---------
+
+# From Season 4 Finally Confirms Whose Side The Boy In White Is On
+
+Streaming TV, From
+
+Sun, 28 Jun 2026 16:30:19 GMT
+
+https://screenrant.com/from-season-4-boy-in-white-side-explained/
+
+The Boy in White has long been one of the Township's most mysterious forces, but From season 4 finally clarified where his loyalties lie.
+---------
+
+# Fallout 5 Official Teaser Leaves Gamers Torn
+
+Gaming, Fallout, Fallout 5
+
+Sun, 28 Jun 2026 16:30:19 GMT
+
+https://screenrant.com/fallout-5-official-teaser-gamers-react/
+
+Fallout 5 may be a long way away, but we might already know the direction the developer is planning to take the next entry in.
+---------
+
+# Kpop Demon Hunters’ New Successor Goat Just Kicked Off Its Own Netflix Record
+
+Movies, KPop Demon Hunters, GOAT, Netflix
+
+Sun, 28 Jun 2026 16:20:19 GMT
+
+https://screenrant.com/kpop-demon-hunters-goat-netflix-weekly-record/
+
+One animated movie that follows in KPop Demon Hunters' footsteps in many regards is now in the middle of amassing a healthy Netflix streaming record.
+---------
+
+# Criminal Minds Season 19's Story Weakness Explains Why It Must Run Longer
+
+Network TV, Criminal Minds
+
+Sun, 28 Jun 2026 16:15:21 GMT
+
+https://screenrant.com/criminal-minds-season-19-story-weakness-run-longer/
+
+Criminal Minds: Evolution, the streaming sequel to the network series, faces challenges with its ambitious storytelling packed into a limited season.
+---------
+
+# CBS's Sherlock Holmes Show Quietly Ruined The One Thing That Made It Stand Out
+
+TV, Masked Recs
+
+Sun, 28 Jun 2026 16:12:21 GMT
+
+https://screenrant.com/cbs-watson-sherlock-holmes-storyline-mistake/
+
+CBS’s show had the most original hook of any Sherlock Holmes adaptation, then ruined it in season 2 by bringing a character back from the dead.
+---------
+
+# Channing Tatum's Criminally Underrated $48M Psychological Thriller Finds a New Streaming Home 2 Years Later
+
+Movies, Blink Twice, channing tatum
+
+Sun, 28 Jun 2026 17:01:13 GMT
+
+https://www.cbr.com/channing-tatum-blink-twice-psychological-thriller-peacock-july-2026/
+
+One of the hottest psychological thrillers of the decade is heading to a new streaming home ahead of its star's upcoming MCU debut.
+---------
+
+# Luffy Brings Foreshadowing to an Epic End in One Piece 1186
+
+Anime, One Piece, Manga, Eiichiro Oda
+
+Sun, 28 Jun 2026 16:19:34 GMT
+
+https://www.cbr.com/one-piece-manga-chapter-1186-one-more-time-review/
+
+Brook's miserable backstory takes on a positive outlook as Luffy finally enters the battlefield.
+---------
+
+# Prime Video's Steamy 2-Season Series Based on Bestselling Novel Officially Confirms Season 3 Return Window
+
+TV, Maxton Hall: The World Between Us
+
+Sun, 28 Jun 2026 16:17:24 GMT
+
+https://www.cbr.com/prime-video-maxton-hall-the-world-between-us-season-3-return-window/
+
+The new installment will also mark the series finale.
+---------
+
+# 10 Best Sports Anime for People Who Don't Watch Sports
+
+Anime, Ping Pong The Animation, Sk8 the Infinity
+
+Sun, 28 Jun 2026 16:15:13 GMT
+
+https://www.cbr.com/best-anime-for-people-who-dont-watch-sports/
+
+Sports anime aren't for everyone, but subversive hits like Sk8 the Infinity and Ping Pong the Animation are unique enough to draw in sports skeptics.
+---------
+
+# Final Fantasy's Tidus Gets New Official Redesign June 30
+
+Games, Final Fantasy, Final Fantasy X|X-2 HD Remaster, Mobile
+
+Sun, 28 Jun 2026 16:10:12 GMT
+
+https://www.cbr.com/final-fantasy-tidus-official-redesign-new-game-june-30/
+
+Tidus from Final Fantasy 10 has officially received a new design in 2026, one that finally ditches the ridiculous outfit that he wore in Spira.
+---------
+
+# CBS’ Yellowstone Replacement Gets Fantastic Streaming News Despite Negative Reception
+
+TV, Marshals, Yellowstone
+
+Sun, 28 Jun 2026 16:00:13 GMT
+
+https://www.cbr.com/cbs-marshals-streaming-success-june-2026/
+
+The neo-Western series continued the long-running Yellowstone franchise.
+---------
+
+# 10 Masterpieces That Changed DC Comics Forever
+
+Comics, DC Comics, DCU, Batman
+
+Sun, 28 Jun 2026 16:00:13 GMT
+
+https://www.cbr.com/masterpieces-that-changed-dc-comics-forever-list/
+
+These legendary DC Comics masterpieces changed the iconic publisher forever.
+---------
+
+# Wonder Woman Revealed To Be DC's New Green Lantern
+
+Comics, DC Comics, DCU, Wonder Woman, Wonder Woman 1984, Wonder Woman (DCU), Green Lantern, Green Lantern Corps, Lanterns
+
+Sun, 28 Jun 2026 16:00:13 GMT
+
+https://www.cbr.com/dc-reveals-wonder-woman-revealed-as-new-green-lantern/
+
+You won't believe how Wonder Woman got her hands on a Green Lantern ring.
+---------
+
+# Pokémon Officially Unveils New Red and Lillie Designs for 7th Anniversary
+
+Anime, Pokemon, Nintendo, Nintendo Switch
+
+Sun, 28 Jun 2026 16:00:13 GMT
+
+https://www.cbr.com/pokmon-red-lillie-new-designs-7th-anniversary/
+
+Pokémon Masters EX is celebrating its 7th Anniversary in style, with three new collectible figurines featuring Lillie and Red.
+---------
+
+# 5 Forgotten Corporate Thrillers That Are Perfect From Start to Finish
+
+Movies, Thriller
+
+Sun, 28 Jun 2026 16:00:13 GMT
+
+https://www.cbr.com/corporate-thrillers-no-one-remembers-list/
+
+The corporate thriller is a unique subgenre, but one that has produced more than a few masterpieces for audiences.
+---------
+
+# 20 Years Later, Jason Statham’s Explosive Action Masterpiece Is Back on Streaming
+
+Movie News, Crank, Jason Statham, Crank: High Voltage, Amy Smart
+
+Sun, 28 Jun 2026 17:00:13 GMT
+
+https://collider.com/jason-statham-crank-free-streaming-plex-july-2026/
+
+Jason Statham's wildest action film, Crank, is punching its way onto a new streamer. Here's everything you should know.
+---------
+
+# Netflix's Exciting Techno-Thriller Is the Smartest Sci-Fi Series Since HBO's ‘Westworld’
+
+TV Features, Biohackers, Netflix, Westworld, Sci-Fi
+
+Sun, 28 Jun 2026 16:57:13 GMT
+
+https://collider.com/biohackers-netflix-techno-thriller-sci-fi-streaming/
+
+Netflix's Biohackers delves into the world of bodyhacking, following a college student's quest for justice and the shocking secrets she uncovers.
+---------
+
+# 10 Greatest Blumhouse Horror Movies of All Time
+
+Movie, Horror, Blumhouse, Obsession, Get Out
+
+Sun, 28 Jun 2026 16:41:14 GMT
+
+https://collider.com/best-blumhouse-horror-movies-all-time-ranked/
+
+Obsession, Get Out, Paranormal Activity, and Happy Death Day are among the best Blumhouse horror movies ever made, but which film is the greatest?
+---------
+
+# ‘Disclosure Day’ Overtakes Tom Cruise’s Visually Stunning Sci-Fi Spectacle at the Box Office
+
+Movie News, Disclosure Day, Steven Spielberg, Tom Cruise, Oblivion
+
+Sun, 28 Jun 2026 16:15:14 GMT
+
+https://collider.com/disclosure-day-box-office-overtakes-oblivion-tom-cruise/
+
+Disclosure Day has overtaken Tom Cruise’s Oblivion at the box office, giving Steven Spielberg’s sci-fi movie another milestone.
+---------
+
+# Forget ‘Sherlock Holmes,’ Guy Ritchie’s Action Crime Epic Is the Perfect Late Night Watch
+
+Movie Features, The Gentlemen, Charlie Hunnam, Guy Ritchie, Matthew McConaughey
+
+Sun, 28 Jun 2026 16:06:14 GMT
+
+https://collider.com/guy-ritchie-the-gentlemen-perfect-late-night-watch/
+
+The Gentlemen is Guy Ritchie’s funniest, sharpest, and most endlessly rewatchable crime movie, making it the perfect late-night watch.
+---------
+
+# NBC Cancelled This Expensive Crime Series 23 Years Ago, but It's Found New Life on Streaming
+
+TV Features, Las Vegas, NBC, Apple TV, Josh Duhamel
+
+Sun, 28 Jun 2026 15:54:13 GMT
+
+https://collider.com/las-vegas-nbc-series-apple-store-streaming-charts/
+
+One of NBC's most expensive shows, a forgotten dramedy called Las Vegas, is finding a new life in the Apple Store.
+---------
+
+# Most Underrated Hard Sci-Fi Series of the Decade Returns to Streaming
+
+TV News, Snowpiercer, Hulu, Coming/Leaving Streaming, Sci-Fi
+
+Sun, 28 Jun 2026 17:00:18 GMT
+
+https://movieweb.com/snowpiercer-scifi-streaming-hulu-july-2026/
+
+The TV remake of 'Snowpiercer' will stream on Hulu in July 2026.
+---------
+
+# Colin Farrell's Apple TV Show Is a Secret Sci-Fi Thriller You Should Binge
+
+Features, Apple TV, Sugar, Colin Farrell
+
+Sun, 28 Jun 2026 17:00:18 GMT
+
+https://movieweb.com/colin-farrell-sugar-secret-sci-fi-thriller/
+
+This one sneaks up on you.
+---------
+
+# 12 Star Trek Episode Pairings Perfect for a Double Feature
+
+TV Lists, Star Trek
+
+Sun, 28 Jun 2026 16:00:17 GMT
+
+https://movieweb.com/star-trek-episode-pairings/
+
+There are many Star Trek episodes that go very well together, despite belonging in different shows. Read on for more.
+---------
+
 # Michael Jackson Biopic Trounces Oppenheimer As Highest-Grossing Biopic In History
 
 Movies, Michael, Box Office
