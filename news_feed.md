@@ -1,3 +1,355 @@
+# Superman's New Enemy Is The Gender-Flipped Version Of A Popular X-Men Villain
+
+Streaming TV, Masked Recs
+
+Sun, 28 Jun 2026 20:02:21 GMT
+
+https://screenrant.com/my-adventures-with-superman-whip-dc-marvel-omega-red/
+
+A new villain has been introduced to Superman's rogues gallery, and they bear a lot of resemblance to one of the X-Men's most popular antagonists.
+---------
+
+# James Spader's 10-Year Crime Thriller Franchise Couldn't Survive Without Him
+
+TV, Masked Recs
+
+Sun, 28 Jun 2026 20:01:20 GMT
+
+https://screenrant.com/the-blacklist-not-survive-without-james-spader/
+
+James Spader's smash hit crime thriller lasted 218 episodes, but its failed spinoff proved that the star was a crucial part of the show's success.
+---------
+
+# HBO Has Found The Perfect Replacement For Titus Welliver’s Harry Bosch
+
+Streaming TV, Masked Recs
+
+Sun, 28 Jun 2026 20:00:20 GMT
+
+https://screenrant.com/welcome-to-catalina-hbo-stilwell-harry-bosch-replacement/
+
+Bosch made his franchise one of the most successful streaming crime shows, but HBO has now found its own TV detective to take Harry's crown.
+---------
+
+# Final Fantasy 9: A Place To Call Home Officially Announced
+
+Gaming, Final Fantasy, Final Fantasy 9
+
+Sun, 28 Jun 2026 20:00:20 GMT
+
+https://screenrant.com/final-fantasy-9-music-box/
+
+Final Fantasy IX is still one of the most beloved games in the series, and a new release marks that status beautifully.
+---------
+
+# 10 Biggest Mysteries Answered In From Season 4
+
+Streaming TV, From, FROM - Season 4
+
+Sun, 28 Jun 2026 19:45:21 GMT
+
+https://screenrant.com/from-season-4-biggest-mysteries-solved/
+
+From's penultimate season answers 10 major mysteries, including why the residents were brought to the Town and the meaning of Jade's visions.
+---------
+
+# Netflix's 3-Part Fantasy Detective Series Was So Good, It Got 3 Extra Seasons After Ending
+
+Streaming TV, Masked Recs
+
+Sun, 28 Jun 2026 19:30:21 GMT
+
+https://screenrant.com/lucifer-netflix-extra-seasons-after-being-canceled/
+
+After a massive global fan campaign to save the show, Netflix revitalized one of the most compelling supernatural detective shows of all time.
+---------
+
+# GTA 6 Fans Debate “Best On PlayStation” Campaign After New Showing
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Sun, 28 Jun 2026 19:30:21 GMT
+
+https://screenrant.com/gta-6-best-on-playstation-fan-reaction/
+
+Grand Theft Auto 6 will not launch on PC, but the debate between whether fans should play it on PS5 or Xbox Series X/S may already be settled.
+---------
+
+# Every Movie Based On Jane Austen's Sense And Sensibility, Ranked
+
+Movies, Sense and Sensibility
+
+Sun, 28 Jun 2026 19:25:21 GMT
+
+https://screenrant.com/jane-austen-sense-and-sensibility-movie-adaptations-ranked/
+
+A new version of Sense and Sensibility starring Daisy Edgar-Jones is on the way, making now the perfect time to review past films based on the novel.
+---------
+
+# Tom Holland Gives Promising Miles Morales MCU Update
+
+Movies, Spider-Man
+
+Sun, 28 Jun 2026 19:03:57 GMT
+
+https://screenrant.com/spider-man-miles-morales-tom-holland-update/
+
+Tom Holland gives a surprising update about Miles Morales' future in the MCU as fans await to see what's next for the iconic Spider-Man.
+---------
+
+# 7 Years After The Rise Of Skywalker, Disney Has Quietly Killed Star Wars' New Era
+
+Streaming TV, Star Wars
+
+Sun, 28 Jun 2026 19:00:20 GMT
+
+https://screenrant.com/star-wars-acolyte-disney-cancellation-hurts-high-republic/
+
+While Star Wars relaunches its theatrical slate, one of the franchise's most exciting new eras is unlikely to get the attention it deserves.
+---------
+
+# One Piece Officially Reunites With the NBA as Sanji Joins the Indiana Pacers
+
+Anime, One Piece, Crunchyroll, Shonen Jump
+
+Sun, 28 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/sanji-one-piece-nba-indiana-pacers-figure/
+
+One Piece and the NBA team up again, this time for a new figure of Sanji sporting an official Indiana Pacers jersey.
+---------
+
+# 5 Fantasy Books Every Lord of the Rings Fan Should Read At Least Once
+
+Movies, The Lord of the Rings
+
+Sun, 28 Jun 2026 20:00:13 GMT
+
+https://www.cbr.com/fantasy-books-perfect-for-lord-of-the-rings-fans-list/
+
+While The Lord of the Rings is the fantasy series that everyone knows, many other excellent books are must-reads for fans of LOTR.
+---------
+
+# From's Title Officially Explained by Creators Ahead of Season 4 Finale
+
+TV, From
+
+Sun, 28 Jun 2026 19:30:26 GMT
+
+https://www.cbr.com/from-title-explained-by-creators/
+
+From has finally aired its Season 4 finale, but there are more questions left to answer.
+---------
+
+# Will Smith's $353M Action-Packed Sci-Fi Hit Is Heading to New Streaming Home
+
+Movies, I, Robot
+
+Sun, 28 Jun 2026 19:30:13 GMT
+
+https://www.cbr.com/will-smith-i-robot-sci-fi-peacock-release-july-2026/
+
+One of the most divisive sci-fi thrillers of Will Smith's entire career is heading for a new streaming home ahead of his return to the silver screen.
+---------
+
+# 5 Forgotten Book-to-Movie Adaptations That Are Perfect From Start to Finish
+
+Movies, Stardust
+
+Sun, 28 Jun 2026 19:30:13 GMT
+
+https://www.cbr.com/best-book-to-movie-adaptations-no-one-remembers-list/
+
+Not every movie is Lord of the Rings and there are plenty of forgotten book-to-movie adaptations that deserve to be seen.
+---------
+
+# 10 Naruto Characters Fans Judge Too Harshly
+
+Anime, Naruto, Naruto: Shippuden, Shonen, shonen anime
+
+Sun, 28 Jun 2026 19:15:13 GMT
+
+https://www.cbr.com/naruto-characters-fans-judge-harshly/
+
+Naruto rewards close attention, and the characters who suffer most from snap judgments are often the ones doing the story's heavy lifting.
+---------
+
+# Matt Damon's $1.12B Heist Trilogy Finds New Streaming Home Ahead of New Sequel
+
+Movies, Ocean's Eleven, Ocean's Twelve, Ocean's Thirteen
+
+Sun, 28 Jun 2026 19:00:12 GMT
+
+https://www.cbr.com/matt-damon-oceans-eleven-heist-peacock-release-july-2026/
+
+What might be the best heist trilogy of all time is officially heading to a new streaming home ahead of the next hotly-anticipated franchise entries.
+---------
+
+# Disney's Live-Action Remake of $592M Animated Hit Officially Kicks Off Production
+
+Movies, Tangled
+
+Sun, 28 Jun 2026 18:42:56 GMT
+
+https://www.cbr.com/disney-tangled-live-action-production-start/
+
+While Disney will debut the live-action remake of Moana, it has another one in the works.
+---------
+
+# The Pirate Genre's Best Action Hero Since Jack Sparrow Officially Returns in 2 Weeks
+
+Gaming News, Ubisoft, Assassin's Creed IV: Black Flag, Assassin's Creed, Pirates of the Caribbean
+
+Sun, 28 Jun 2026 20:00:14 GMT
+
+https://collider.com/assassins-creed-black-flag-resynced-release-date-july-9/
+
+The biggest pirate project of the year, Assassin's Creed Black Flag Resynced, is officially coming to consoles on July 9. Here's everything to know.
+---------
+
+# Netflix’s Newest Book Adaptation Could Officially Resurrect the Fantasy Genre on Streaming
+
+TV Features, Fantasy, Netflix, Books, Romance
+
+Sun, 28 Jun 2026 19:42:13 GMT
+
+https://collider.com/the-everlasting-netflix-adaptation-fantasy-genre-resurrection/
+
+Netflix's new adaptation of Alix E. Harrow's novel The Everlasting could potentially revive the fantasy genre on streaming.
+---------
+
+# Martin Scorsese's Terrifying 128-Minute Horror Remake Earns Its Place Alongside the Original
+
+Movie Features, Martin Scorsese, Robert De Niro, Nick Nolte, Cape Fear
+
+Sun, 28 Jun 2026 19:38:14 GMT
+
+https://collider.com/martin-scorsese-cape-fear-remake-justifies-existence/
+
+Martin Scorsese's Cape Fear remake still outshines the original, thanks to Robert De Niro's chilling performance.
+---------
+
+# Apple TV’s 3-Part Crime Drama With a Stacked Cast Deserves a Second Chance
+
+TV Features, Truth Be Told, Series, Apple TV, Crime
+
+Sun, 28 Jun 2026 19:23:15 GMT
+
+https://collider.com/apple-tv-truth-be-told-deserves-second-chance/
+
+Truth Be Told deserves another look thanks to Octavia Spencer, a stellar cast, and an ambitious take on the true crime genre.
+---------
+
+# This 4-Part Hidden Gem Crime Drama Is the Perfect Sherlock Holmes Replacement
+
+TV Features, Vienna Blood, PBS, BBC, Sherlock
+
+Sun, 28 Jun 2026 19:14:14 GMT
+
+https://collider.com/vienna-blood-crime-drama-sherlock-holmes-replacement/
+
+The amazing period crime drama, Vienna Blood, is a highly underrated series, and it's the perfect watch for Sherlock Holmes fans.
+---------
+
+# Taylor Sheridan’s 6-Part Western Masterpiece Is Paramount+'s Next Streaming Obsession
+
+TV News, The Madison, Michelle Pfeiffer, Taylor Sheridan, Paramount Plus
+
+Sun, 28 Jun 2026 19:00:13 GMT
+
+https://collider.com/taylor-sheridan-the-madison-all-time-streaming-success-paramount-plus-june-2026/
+
+The Madison, the Yellowstone-style series written by Taylor Sheridan, is becoming one of Paramount's biggest streaming hits of all time.
+---------
+
+# 8 Best Hard Sci-Fi Movies of the 2020s, Ranked
+
+Movie, Sci-Fi, Project Hail Mary, The Creator, Dune
+
+Sun, 28 Jun 2026 18:49:13 GMT
+
+https://collider.com/best-hard-sci-fi-movies-2020s-ranked/
+
+Crimes of the Future, Dune, Project Hail Mary, The Beast, and more make up our list of the best hard sci-fi movies of the 2020s.
+---------
+
+# 10 Binge-Worthy Psychological TV Thrillers To If You Loved 'The Girlfriend'
+
+TV Lists, Thriller, The Girlfriend
+
+Sun, 28 Jun 2026 20:00:19 GMT
+
+https://movieweb.com/binge-worthy-psychological-tv-thrillers-to-watch-after-the-girlfriend/
+
+'The Girlfriend' became a hit on Prime Video, but these are 10 great shows that capture the same seductive, thrilling energy.
+---------
+
+# The 10 Greatest 'X-Files' Monster-of-the-Week Episodes, Ranked
+
+TV Lists, The X-Files
+
+Sun, 28 Jun 2026 20:00:18 GMT
+
+https://movieweb.com/x-files-best-monster-of-the-week-episodes/
+
+Out of 218 episodes, 142 are considered monster-of-the-week stories. These are the 10 best.
+---------
+
+# 'Supergirl' Fails to Top the Box Office in Opening Weekend
+
+Movie News, Supergirl, Toy Story 5, DCU, box office
+
+Sun, 28 Jun 2026 19:50:37 GMT
+
+https://movieweb.com/supergirl-fails-box-office-toy-story-5/
+
+If you needed more proof that the superhero movie boom of the 2010s is over, here it is.
+---------
+
+# 10 Funniest Far Side Comics That Only Use 2 Words
+
+Movie Lists, The Far Side
+
+Sun, 28 Jun 2026 19:30:19 GMT
+
+https://movieweb.com/far-side-best-two-words/
+
+Gary Larson could make two simple words deliver some of The Far Side's best humor; these ten are the best.
+---------
+
+# 'Spider-Man: Brand New Day': First Look at Marvin Jones III as Tombstone
+
+Movie News, Spider-Man: Brand New Day
+
+Sun, 28 Jun 2026 19:23:07 GMT
+
+https://movieweb.com/spider-man-brand-new-day-tombstone/
+
+Marvin Jones III appears as Tombstone in new Spider-Man: Brand New Day pop-up material.
+---------
+
+# Star Trek Already Disproved Huge 'Strange New Worlds' Theory 4 Years Ago
+
+Features, Star Trek: Strange New Worlds, Star Trek, Star Trek: The Original Series
+
+Sun, 28 Jun 2026 19:00:18 GMT
+
+https://movieweb.com/strange-new-worlds-refit-theory-debunked/
+
+Many Star Trek fans can't handle that the Enterprise looks different in 'Strange New Worlds,' and have ignored the debunking of a major theory.
+---------
+
+# Christopher Nolan Reveals The 2 Movies He Watched Before 'The Odyssey'
+
+Movie News, The Odyssey, Christopher Nolan, Andrei Rublev, Ran
+
+Sun, 28 Jun 2026 18:42:09 GMT
+
+https://movieweb.com/the-odyssey-chistopher-nolan-andrei-rublev-ran/
+
+A pair of classic movies became the biggest inspirations for Christopher Nolan in his work on 'The Odyssey.'
+---------
+
 # 10 Greatest Sci-Fi Shows Made Before 2000
 
 Classic TV, Sci-Fi
