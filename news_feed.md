@@ -1,3 +1,289 @@
+# Elden Ring: All Flame Pillar Locations In Nokron (Regal Ancestor Spirit)
+
+Gaming, Elden Ring, PC
+
+Sun, 28 Jun 2026 22:30:23 GMT
+
+https://screenrant.com/elden-ring-flame-pillar-locations-nokron/
+
+To fight with the Regal Ancestor Spirit in Elden Ring, Tarnished must light all six flame pillars within Nokron's Ancestral Woods to summon the boss.
+---------
+
+# From's Victor & Henry Actors Pitch A Perfect Ending To Season 5
+
+TV, From, FROM - Season 4
+
+Sun, 28 Jun 2026 22:30:21 GMT
+
+https://screenrant.com/from-season-5-perfect-ending-robert-joy-scott-mccord-response/
+
+EXCLUSIVE: Ahead of From's fifth and final season, stars Robert Joy and Scott McCord pitch what they believe would be a perfect ending to the series.
+---------
+
+# Prime Video's The Rings Of Power Quietly Gets Better After Switching Directions
+
+Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Sun, 28 Jun 2026 22:30:21 GMT
+
+https://screenrant.com/the-rings-of-power-season-2-got-better-less-exposition/
+
+Rings of Power has shifted itself away from some of its biggest problems, but the question is whether Prime Video can keep this up for season 3.
+---------
+
+# Crunchyroll’s Ultimate Power Fantasy Is Returning, And It Could Ruin The Series
+
+Anime
+
+Sun, 28 Jun 2026 22:30:21 GMT
+
+https://screenrant.com/classroom-of-the-elite-crunchyroll-season-5-ruin-series/
+
+With a fifth season for Classroom of the Elite, Ayanokoji's overwhelming superiority threatens to put the story at risk.
+---------
+
+# Taylor Sheridan’s 11-Year-Old Crime Masterpiece Foreshadowed His TV Empire
+
+Movies, Masked Recs
+
+Sun, 28 Jun 2026 22:15:20 GMT
+
+https://screenrant.com/sicario-predicted-taylor-sheridan-tv-empire/
+
+Taylor Sheridan may be best-known for his neo-Western drama Yellowstone, but it was actually a 2015 movie that catalyzed the growth of his TV empire.
+---------
+
+# Keira Knightley's 6-Episode Spy Thriller On Netflix Is Better Than Her Recent Movies
+
+Streaming TV, Masked Recs
+
+Sun, 28 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/keira-knightley-netflix-black-doves-series-better-movies/
+
+In 2024, Keira Knightley took on one of her most exciting roles in this 6-episode Netflix spy thriller that is better than her recent film projects.
+---------
+
+# Pokémon Hyper Emerald Combines 2 Regions In 1 Massive Game
+
+Gaming, Pokemon
+
+Sun, 28 Jun 2026 22:00:21 GMT
+
+https://screenrant.com/pokemon-hyper-emerald-sinnoh-hoenn-combined/
+
+Explore the enhanced Pokémon Hyper Emerald ROM hack featuring updated content from Generation 8, including new moves, abilities, and more.
+---------
+
+# 20 Years Later, Superman Returns Is the DCU Reboot's Most Important Cautionary Tale
+
+Classic Movies, Superman Returns
+
+Sun, 28 Jun 2026 21:55:21 GMT
+
+https://screenrant.com/superman-returns-20-year-anniversary-cautionary-tale/
+
+James Gunn's DCU is off to a solid start, but he should always look out for stumbles, and Superman Returns shows the one way a franchise can fall.
+---------
+
+# The Odyssey's Christopher Nolan Reveals Hollywood's Biggest Mistake
+
+Movies, Christopher Nolan, The Odyssey
+
+Sun, 28 Jun 2026 21:42:30 GMT
+
+https://screenrant.com/the-odyssey-christopher-nolan-reveals-hollywood-mistake/
+
+The Odyssey director, Christopher Nolan, explained the biggest mistake that the entertainment industry is making when it comes to movies.
+---------
+
+# Hulu's Female Serial Killer Series Based on 39-Year-Old Thriller Debuts in Just 1 Month
+
+TV, Furious
+
+Sun, 28 Jun 2026 22:51:27 GMT
+
+https://www.cbr.com/furious-debuts-hulu-streaming-july-2026/
+
+The hunt for a female serial killer is on in Emmy Rossum's riveting new series coming to Hulu.
+---------
+
+# DC Studios Co-CEO Reacts to Supergirl Underperforming at Box Office
+
+Movies, DCU, Supergirl
+
+Sun, 28 Jun 2026 22:24:33 GMT
+
+https://www.cbr.com/supergirl-underperforms-peter-safran-reaction/
+
+Supergirl executive producer Peter Safran comments on the movie's box office performance.
+---------
+
+# 5 Strongest Characters in Video Game History, Ranked
+
+Games, Video Games, God of War, Shin Megami Tensei III: Nocturne, Kirby
+
+Sun, 28 Jun 2026 22:15:13 GMT
+
+https://www.cbr.com/strongest-characters-video-game-history-ranked/
+
+Gaming's strongest characters are god-tier level heroes and villains capable of destroying anything that dares stand in their path.
+---------
+
+# Jason Statham's Secret Rambo Sequel Is a Streaming Sensation
+
+Movies, Homefront, Rambo, Paramount Plus
+
+Sun, 28 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/homefront-jason-statham-rambo-streaming-success-june-2026/
+
+Jason Statham's underrated action-thriller with a secret Rambo connection is a surprise streaming success thirteen years later.
+---------
+
+# Fox Kids' R.L. Stine 4-Season Anthology Series Sets Paramount+ Release Date
+
+TV, Goosebumps
+
+Sun, 28 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/goosebumps-streaming-paramount-plus-july-2026/
+
+90s kids will appreciate what's coming to Paramount+ next month.
+---------
+
+# 34 Years Later, Dragon Ball Finally Brings Back Super Saiyan Gohan vs. Cell
+
+Anime, Dragon Ball, Dragon Ball Z, Shonen Jump
+
+Sun, 28 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/dragon-ball-super-saiyan-gohan-vs-cell-reveal/
+
+Dragon Ball fans just got a blast from the past in the form of a classic title page from one of the most important issues of Weekly Shōnen Jump.
+---------
+
+# The 10 Steamiest Romantic Thriller Movies Ever, Ranked
+
+Movies, Thriller, Basic Instinct, Eyes Wide Shut
+
+Sun, 28 Jun 2026 22:00:13 GMT
+
+https://www.cbr.com/steamiest-romantic-thriller-movies-ever-list/
+
+Turn on the heat with these 10 thrilling and suspenseful romances.
+---------
+
+# George R.R. Martin Admits the Game of Thrones Shows Fixed These Problems From His Books
+
+TV Features, George R.R. Martin, Game Of Thrones, House of the Dragon, A Song of Ice and Fire
+
+Sun, 28 Jun 2026 22:46:14 GMT
+
+https://collider.com/george-rr-martin-game-of-thrones-house-of-the-dragon-show-book/
+
+Though George R.R. Martin has mixed feelings about Game of Thrones and House of the Dragon, he can admit three characters have been improved on.
+---------
+
+# Jason Statham's Action Team-Up With a 'Tulsa King' Star Explodes Onto Free Streaming
+
+Movie News, The Expendables, The Expendables 2, Jason Statham
+
+Sun, 28 Jun 2026 22:45:13 GMT
+
+https://collider.com/the-expendables-movies-free-streaming-pluto-tv-americana-2026/
+
+All four Expendables movies are streaming free on Pluto TV this summer as part of the platform’s Americana 2026 collection.
+---------
+
+# New Sherlock Holmes Project Takes Major Step Forward
+
+Books and Comics, Sherlock Holmes, Sherlock Holmes: A Game of Shadows, Audible, Dominic Monaghan
+
+Sun, 28 Jun 2026 22:30:14 GMT
+
+https://collider.com/moriarty-the-great-chaos-audible-final-chapter-sherlock-holmes/
+
+The newest Sherlock Holmes project has just concluded, following an outstanding run. Here's everything you should know.
+---------
+
+# 'The Godfather' Is Free To Stream Ahead of 2027 Sequel
+
+Movie News, The Godfather, The Godfather Part II, The Godfather Part III
+
+Sun, 28 Jun 2026 22:15:13 GMT
+
+https://collider.com/the-godfather-free-streaming-pluto-tv-connie-sequel-book/
+
+The Godfather and The Godfather Part II are streaming free on Pluto TV ahead of Connie, a new authorized Corleone novel.
+---------
+
+# 8 Miniseries Masterpieces Worth Watching Again and Again, Ranked
+
+TV, TV Miniseries, Spider-Noir, Chernobyl, The Queen's Gambit
+
+Sun, 28 Jun 2026 22:03:14 GMT
+
+https://collider.com/best-miniseries-worth-rewatching-ranked/
+
+Tales from the Loop, The Queen's Gambit, Spider-Noir, Dracula, and more make up our list of miniseries worth watching again and again.
+---------
+
+# 'GTA 6' Controversy Explodes Just 5 Months Before Release
+
+Gaming News, Grand Theft Auto, Gaming, GTA V, Grand Theft Auto V
+
+Sun, 28 Jun 2026 22:00:14 GMT
+
+https://collider.com/gta-6-outrage-fans-social-media/
+
+Fans have taken to social media to express their outrage at GTA 6 pricing. Here's everything you should know.
+---------
+
+# The Best Action Scene From All 8 'Game of Thrones' Seasons
+
+TV, Game Of Thrones, HBO, Action, Fantasy
+
+Sun, 28 Jun 2026 21:55:14 GMT
+
+https://collider.com/best-game-of-thrones-action-scenes/
+
+There were some amazing action scenes throughout Game of Thrones, including massive battles seen in episodes like "Blackwater" and "Hardhome."
+---------
+
+# ‘Avatar: The Last Airbender's Most Intense Episode Is Still Its Most Devastating 25 Minutes
+
+TV Features, Avatar: The Last Airbender, Series, Nickelodeon, Animation
+
+Sun, 28 Jun 2026 21:44:13 GMT
+
+https://collider.com/avatar-the-last-airbender-appas-lost-days-saddest-tv-episode/
+
+Why “Appa’s Lost Days” remains one of television’s saddest episodes and the emotional heart of Avatar: The Last Airbender.
+---------
+
+# 10 Best Horror Movies of the Last 20 Years You've Never Heard Of
+
+Movie, The Dark and the Wicked, You Are Not My Mother, Dolly, Starry Eyes
+
+Sun, 28 Jun 2026 21:42:13 GMT
+
+https://collider.com/best-horror-movies-last-20-years-youve-never-heard-of/
+
+The Dark and the Wicked, Starry Eyes, and Stop Motion are among the best, scariest horror films from the last 20 years you've never even heard of.
+---------
+
+# DC's 'Game of Thrones'-Esque Sci-Fi Epic is the Perfect Supergirl Prequel
+
+Features, Krypton, Supergirl, Sci-Fi
+
+Sun, 28 Jun 2026 22:00:20 GMT
+
+https://movieweb.com/krypton-supergirl-lore-prequel/
+
+Years before James Gunn delved into DC's cosmic history, another series crafted the perfect sci-fi political thriller to explore the Superman lore.
+---------
+
 # 22 Years Later, Lost's Best Line Is Still The Greatest Quote In Sci-Fi History
 
 Classic TV, Lost
