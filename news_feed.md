@@ -1,3 +1,245 @@
+# Michael Jackson Biopic Trounces Oppenheimer As Highest-Grossing Biopic In History
+
+Movies, Michael, Box Office
+
+Sun, 28 Jun 2026 15:38:48 GMT
+
+https://screenrant.com/michael-2026-box-office-record-highest-grossing-biopic-worldwide/
+
+2026's Michael outgrosses Christopher Nolan's Oppenheimer worldwide, becoming the highest-grossing biopic of all time at the global box office.
+---------
+
+# Syfy's 1990s Space Opera Is A Cult Classic, And It Deserves A Modern Remake
+
+Classic TV, Masked Recs
+
+Sun, 28 Jun 2026 15:32:20 GMT
+
+https://screenrant.com/lexx-sci-fi-series-cult-classic-needs-remake/
+
+There is a science fiction opera series from the 1990s that premiered in the US on Syfy, and it's become a cult classic, ripe for a modern remake.
+---------
+
+# Dutton Ranch’s "Crooked" 10-Petals Crimes Explained
+
+TV, Yellowstone, Dutton Ranch
+
+Sun, 28 Jun 2026 15:30:21 GMT
+
+https://screenrant.com/dutton-ranch-10-petals-crimes-explained/
+
+Teased throughout Dutton Ranch season 1, Beth and Rip learned the extent of how crooked the Jackson family and the 10-Petals Ranch really are.
+---------
+
+# We’re Only 3 Weeks Away From The 5th Descendants Movie's Debut
+
+Movies, Descendants, Disney
+
+Sun, 28 Jun 2026 15:30:21 GMT
+
+https://screenrant.com/disney-fifth-fantasy-movie-descendants-wicked-wonderland/
+
+One Disney fantasy movie series is set to get its fifth movie in just a few weeks, expanding the eleven-year-old franchise and its story even further.
+---------
+
+# Pokemon Heart & Soul Hailed As One Of The Best Remakes In Years
+
+Gaming, Pokemon, HeartGold SoulSilver
+
+Sun, 28 Jun 2026 15:30:21 GMT
+
+https://screenrant.com/pokemon-heart-soul-johto-remake-gamers-react/
+
+There are a lot of fan games out there for every taste, but Pokémon Heart & Soul may be the very best of the bunch.
+---------
+
+# A Twisted New Horror Movie That Flew Under The Radar Is Now Dominating Streaming
+
+Movies, Shudder, Forbidden Fruits
+
+Sun, 28 Jun 2026 15:21:25 GMT
+
+https://screenrant.com/forbidden-fruits-shudder-streaming-success-june-2026/
+
+Shudder's under-the-radar horror-comedy with a 75% fresh rating on Rotten Tomatoes is dominating streaming just a couple of days after its debut.
+---------
+
+# Universal’s $301M Movie Hit With Lawsuit Three Years After Theatrical Release
+
+Movies, Migration
+
+Sun, 28 Jun 2026 15:11:24 GMT
+
+https://screenrant.com/migration-universal-illumination-mike-white-copyright-lawsuit/
+
+Three years after it hit theaters and grossed an impressive $301 million worldwide, an animated movie from Universal has now been hit with a lawsuit.
+---------
+
+# Rian Johnson's 2-Season Murder Mystery Series Reinvented A Tired Genre
+
+Classic TV, Masked Recs
+
+Sun, 28 Jun 2026 15:03:20 GMT
+
+https://screenrant.com/poker-face-rian-johnson-refresh-murder-mystery-genre/
+
+This underrated murder mystery series from the Knives Out creator found a way to refresh the cozy genre with one simple twist on the formula.
+---------
+
+# Why Jonah Hill’s "Unreleasable" Movie Lost Its Release Date Revealed In New Report
+
+Movies, Jonah Hill
+
+Sun, 28 Jun 2026 15:02:40 GMT
+
+https://screenrant.com/cut-off-jonah-hill-movie-release-date-report/
+
+Jonah Hill's latest movie has been cut off after a report claiming the comedy was "unreleasable," as further reports tell a different tale.
+---------
+
+# Berserk Just Lost Its Throne As The Best Fantasy Anime To Witch Hat Atelier
+
+Anime, Witch Hat Atelier, Op-Ed
+
+Sun, 28 Jun 2026 15:00:19 GMT
+
+https://screenrant.com/witch-hat-atelier-new-best-fantasy-anime-not-berserk/
+
+The one anime better than Berserk.
+---------
+
+# Prime Video's 8-Episode Drama Show Based on a Bestselling Novel Officially Renewed for Season 2
+
+TV, Every Year After
+
+Sun, 28 Jun 2026 15:28:24 GMT
+
+https://www.cbr.com/prime-video-every-year-after-renewed-for-season-2/
+
+The news comes after the show was a tremendous streaming hit.
+---------
+
+# 10 Times Zoro Proved He Would Follow Luffy Until the End
+
+Anime, One Piece
+
+Sun, 28 Jun 2026 15:15:13 GMT
+
+https://www.cbr.com/one-piece-zoro-loyal-to-luffy-moments/
+
+Zoro was Luffy's first crewmate in One Piece, and he's loyally stood by his captain through more than anyone else.
+---------
+
+# In Just 1 Day, John Cena's 102-Minute Netflix Comedy Is 1 of the Most Streamed Films in the World
+
+Movies, Little Brother, Comedy, Netflix
+
+Sun, 28 Jun 2026 15:00:13 GMT
+
+https://www.cbr.com/john-cena-little-brother-netflix-comedy-success-june-2026/
+
+John Cena's latest comedy, Little Brother, is a worldwide hit and the No. 1 most-watched movie in the United States.
+---------
+
+# 5 Masterpiece Cyberpunk Anime Better Than Ghost in the Shell
+
+Anime, Ghost in the Shell, Cyberpunk: Edgerunners, Serial Experiments Lain
+
+Sun, 28 Jun 2026 15:00:13 GMT
+
+https://www.cbr.com/cyberpunk-anime-better-than-ghost-in-the-shell/
+
+Ghost in the Shell was revolutionary when it launched back in 1995, but the last 31 years have seen plenty of cyberpunk anime that tops it.
+---------
+
+# Prime Video's Adaptation of Star Wars-Inspired Fan-Fiction Novel Goes Viral After First Teaser
+
+Movies, Star Wars, The Love Hypothesis
+
+Sun, 28 Jun 2026 14:54:50 GMT
+
+https://www.cbr.com/prime-video-the-love-hypothesis-teaser/
+
+The film is based on a bestselling novel that initially started as Star Wars fan fiction.
+---------
+
+# Seth Rogen Compares Sylvester Stallone's Career to Arnold Schwarzenegger: 'Predator Is Better'
+
+Movies, Seth Rogen, sylvester stallone, Arnold Schwarzenegger
+
+Sun, 28 Jun 2026 14:49:27 GMT
+
+https://www.cbr.com/seth-rogen-sylvester-stallone-arnold-schwarzenegger-comments/
+
+Rogen recently dismissed Sylvester Stallone's filmography, saying Arnold Schwarzenegger's Predator tops it all.
+---------
+
+# Jon Hamm’s 2-Part Crime Drama Created TV’s Most Sympathetic Antihero Since Ozark
+
+TV, Your Friends and Neighbors, Apple TV, Crime
+
+Sun, 28 Jun 2026 14:30:13 GMT
+
+https://www.cbr.com/apple-tv-your-friends-and-neighbors-jon-hamm-coop-antihero/
+
+Andrew "Coop" Cooper in Your Friends & Neighbors is one of the most sympathetic antiheroes on television since Ozark's Marty Byrde.
+---------
+
+# DC's ‘Supergirl’ Opens Far Behind ‘Superman's Massive Debut Numbers
+
+Movie News, Supergirl, Superman, James Gunn, Box Office
+
+Sun, 28 Jun 2026 15:28:17 GMT
+
+https://collider.com/supergirl-box-office-debut-superman-comparison-dcu/
+
+Supergirl opened far below James Gunn’s Superman, earning only a third of its box office debut in a disappointing DCU start.
+---------
+
+# 6 Worst '80s Horror Movies You've Never Even Heard Of
+
+Movie, Horror, Hobgoblins, Things, Zombie Nightmare
+
+Sun, 28 Jun 2026 15:04:13 GMT
+
+https://collider.com/worst-80s-horror-movies-youve-never-heard-of/
+
+Monster Dog, Hobgoblins, and Zombie Nightmare are among the worst '80s horror movies you haven't even heard of.
+---------
+
+# The Last Jackass Movie Opens With a Painful Box Office Fall
+
+Movie News, Jackass: Best and Last, Johnny Knoxville, Box Office, Jackass
+
+Sun, 28 Jun 2026 14:45:14 GMT
+
+https://collider.com/jackass-5-box-office-debut-final-movie/
+
+Jackass 5 tripped at the box office in its debut, marking a disappointing start for the final movie in the franchise.
+---------
+
+# 10 Korean Shows Like Alchemy of Souls to Watch Next
+
+TV Lists, Alchemy of Souls, K-Drama
+
+Sun, 28 Jun 2026 15:00:19 GMT
+
+https://movieweb.com/korean-shows-like-alchemy-of-souls/
+
+Did you enjoy Alchemy of Souls and are looking for Korean shows with the same spirit? Here’s a list for you.
+---------
+
+# 18 Years Later, This Fantasy Cult Classic Is Perfect From Start to Finish
+
+Features, Merlin, Fantasy, Anthony Head
+
+Sun, 28 Jun 2026 15:00:18 GMT
+
+https://movieweb.com/merlin-perfect-fantasy-cult-classic/
+
+While there are plenty of amazing fantasy TV shows, the BBC's 'Merlin' is like no other title in the genre, and it deserves its cult classic status.
+---------
+
 # Ahsoka Season 2 Is Taking So Long I Forgot About This Genius Theory
 
 Movies, Ahsoka
