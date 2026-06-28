@@ -1,3 +1,377 @@
+# Ahsoka Season 2 Is Taking So Long I Forgot About This Genius Theory
+
+Movies, Ahsoka
+
+Sun, 28 Jun 2026 14:15:20 GMT
+
+https://screenrant.com/star-wars-ahsoka-season-2-ezra-bridger-theory/
+
+Ahsoka season 2 has long been in the works, but with the new episodes delayed, this brilliant Star Wars theory has faded to the background.
+---------
+
+# House Of The Dragon Season 3 Giving Missing Book Character’s Storyline To Rhaena Clarified By Showrunner
+
+TV, House of the Dragon, Game of Thrones
+
+Sun, 28 Jun 2026 14:02:50 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-nettles-rhaena-changes-ryan-condal-explained/
+
+HOTD's showrunner reveals his reasons for a long theorized change made to the source material, merging a fan-favorite character with Rhaena Targaryen.
+---------
+
+# Netflix Has Finally Found Its New-Gen Sailor Moon, And It's Already Gorgeous
+
+Anime, Masked Recs, Netflix
+
+Sun, 28 Jun 2026 14:00:18 GMT
+
+https://screenrant.com/netflix-new-gen-sailor-moon-ribbon-hero/
+
+The long-awaited revival of a groundbreaking shojo franchise could be Netflix's ticket to a new generation of magical-girl fans who loved Sailor Moon.
+---------
+
+# What From Season 4 Finale’s Big Henry & Victor Betrayal Means For Season 5
+
+TV, From, FROM - Season 4
+
+Sun, 28 Jun 2026 14:00:18 GMT
+
+https://screenrant.com/from-season-4-finale-victor-henry-betrayal-mccord-joy-response/
+
+EXCLUSIVE: After a devastating betrayal involving Victor and Henry Kavanaugh, the actors address what it means for From's fifth and final season.
+---------
+
+# 10 Great TV Shows That Never Underestimate Your Intelligence
+
+Classic TV
+
+Sun, 28 Jun 2026 14:00:18 GMT
+
+https://screenrant.com/tv-shows-great-audiences-intelligent/
+
+If you're eager for a TV show that will respect you as a viewer, these ten great series across many genres will never underestimate your intelligence.
+---------
+
+# Marvel's Wolverine Co-Op Missions Already Has Fans Pumped
+
+Gaming, Marvel's Wolverine, Triple-A Games
+
+Sun, 28 Jun 2026 14:00:18 GMT
+
+https://screenrant.com/marvels-wolverine-jean-grey-sabretooth-missions-reactions/
+
+The wait for Marvel's Wolverine is nearly over, but some confirmed upcoming gameplay features are making the wait even harder to bear.
+---------
+
+# The James Bond Meets Willy Wonka Movie That Became A Cult Hit Just Turned 25
+
+Movies, Spy Kids
+
+Sun, 28 Jun 2026 13:45:21 GMT
+
+https://screenrant.com/spy-kids-25th-anniversary/
+
+This 2001 movie hasn't gotten nearly enough love, especially considering that its milestone anniversary came and went without much attention.
+---------
+
+# John Cena’s New R-Rated Netflix Movie Officially Becomes No.1 On Streaming
+
+Movies, John Cena, Masked Recs
+
+Sun, 28 Jun 2026 13:43:10 GMT
+
+https://screenrant.com/little-brother-john-cena-movie-netflix-streaming-success-june-2026/
+
+Netflix's new R-rated movie starring The Suicide Squad and Peacemaker's John Cena instantly rises to No. 1 on the streaming service's chart.
+---------
+
+# After 34 Years, Batman: The Animated Series' Reign As The Dark Knight's Best Adaptation Is Over
+
+DC Comics, Batman: The Animated Series, Batman
+
+Sun, 28 Jun 2026 13:30:20 GMT
+
+https://screenrant.com/absolute-batman-adaptation-batman-animated-series/
+
+After 34 Years, Batman: The Animated Series' Reign As The Dark Knight's Best Adaptation Is Over
+---------
+
+# After 15 Years, HBO's Harry Potter Will Finally Fix A Major Weasley Mistake
+
+Streaming TV, Harry Potter
+
+Sun, 28 Jun 2026 13:30:20 GMT
+
+https://screenrant.com/harry-potter-hbo-show-charlie-weasley-cut-movie-redeem/
+
+HBO's Harry Potter TV adaptation is fixing many of the movies' mistakes over a decade later, including a major Weasley family injustice.
+---------
+
+# 5 Masterpiece Mecha Anime Better Than Mobile Suit Gundam
+
+Anime, Mobile Suit Gundam, Neon Genesis Evangelion, mecha
+
+Sun, 28 Jun 2026 14:16:14 GMT
+
+https://www.cbr.com/mecha-anime-better-than-mobile-suit-gundam/
+
+As influential as Mobile Suit Gundam is, these mecha anime have reached even greater creative heights.
+---------
+
+# Spider-Man's Anime Reimaging Features Mary Jane As An Isekai Hero
+
+Comics, Mary Jane Watson, Spider-Man
+
+Sun, 28 Jun 2026 14:00:12 GMT
+
+https://www.cbr.com/spider-man-mary-jane-face-it-tiger-1-anime-variant-cover-isekai-hero/
+
+Check out Spider-Man's true love, Mary Jane, as you have never seen her before.
+---------
+
+# After 7 Years, One of Hatsune Miku’s Rarest Collectibles Finally Returns
+
+Anime, Hatsune Miku, merchandise, COLORFUL STAGE! The Movie: A Miku Who Can't Sing
+
+Sun, 28 Jun 2026 14:00:12 GMT
+
+https://www.cbr.com/hatsune-miku-bishoujo-remix-rare-collectible-finally-returns/
+
+One of the most stylish Hatsune Miku figures is about to come back on the market, with this pending release being nearly seven years after its debut.
+---------
+
+# Netflix's Live-Action Series of Hit Animated Fantasy Gets Major Season 3 Update 2 Days After Return
+
+TV, Avatar: The Last Airbender
+
+Sun, 28 Jun 2026 13:40:23 GMT
+
+https://www.cbr.com/netflix-avatar-the-last-airbender-season-3-wrap/
+
+One of Netflix's most acclaimed live-action anime adaptations just got a major Season 3 update just days after the debut of Season 2 on the platform.
+---------
+
+# Star Trek III: The Search for Spock Gave Kirk His Best Line
+
+Movies, Star Trek, Star Trek III: The Search for Spock, william shatner
+
+Sun, 28 Jun 2026 13:30:12 GMT
+
+https://www.cbr.com/star-trek-iii-the-search-for-spock-captain-kirk-best-quote/
+
+While "the needs of the many outweigh the needs of the few" is a beloved Star Trek quote,  Kirk turned it around to make it an even more powerful line
+---------
+
+# 10 Forgotten Shonen Anime That Are Perfect From Start to Finish
+
+Anime, Kenichi: The Mightiest Disciple, Those Who Hunt Elves, shonen anime, Shonen
+
+Sun, 28 Jun 2026 13:15:12 GMT
+
+https://www.cbr.com/perfect-forgotten-shonen-anime/
+
+Some of the best shonen anime titles out there, unfortunately, get only a fraction of the recognition they deserve.
+---------
+
+# Sam Raimi to Direct Remake of 48-Year-Old Horror Cult Classic
+
+Movies, sam raimi, Magic
+
+Sun, 28 Jun 2026 12:30:13 GMT
+
+https://www.cbr.com/sam-raimi-directing-magic-remake-movie/
+
+Sam Raimi teams back up with Send Help's writers to reimagine a cult classic horror movie.
+---------
+
+# The '80s Science-Fantasy Franchise That Transformers Left Behind
+
+TV, Masters of the Universe, He-Man and the Masters of the Universe, Fantasy
+
+Sun, 28 Jun 2026 12:30:13 GMT
+
+https://www.cbr.com/masters-of-the-universe-tv-comeback/
+
+He-Man's latest movie isn't empowering the box office, and it speaks to how the brand hasn't seen nearly as much success since its 1980s origins.
+---------
+
+# Rebecca Ferguson’s Sci-Fi Masterpiece Officially Returns this Week
+
+TV News, Silo, Apple TV, Rebecca Ferguson, Sci-Fi
+
+Sun, 28 Jun 2026 14:00:12 GMT
+
+https://collider.com/rebecca-ferguson-silo-season-3-release-date-apple-tv-best-sci-fi/
+
+Silo officially returns to Apple TV this week, bringing Rebecca Ferguson’s sci-fi series back for its highly anticipated new season.
+---------
+
+# James Bond Meets John Wick in Netflix’s 90-Minute Thriller Now Streaming
+
+Movie Features, Fast Charlie, Netflix, Pierce Brosnan, Morena Baccarin
+
+Sun, 28 Jun 2026 13:55:13 GMT
+
+https://collider.com/netflix-fast-charlie-james-bond-john-wick-90-minute-action-thriller/
+
+Though he's hung up James Bond's tuxedo, Pierce Brosnan brings plenty of charm and danger to Netflix's newest action thriller Fast Charlie.
+---------
+
+# 45 Years Later, This Is Still the Greatest Adventure Movie of All Time
+
+Movie, Raiders of the Lost Ark, Harrison Ford, Indiana Jones, Steven Spielberg
+
+Sun, 28 Jun 2026 13:31:13 GMT
+
+https://collider.com/raiders-of-the-lost-ark-best-adventure-movie-ever/
+
+Steven Spielberg's Raiders of the Lost Ark remains the best adventure film ever made thanks to great characters, set pieces and perfect direction.
+---------
+
+# Taylor Sheridan’s Worst-Rated Series Is Still Winning With Viewers
+
+Movie News, Marshals, Yellowstone, Taylor Sheridan, CBS
+
+Sun, 28 Jun 2026 13:16:12 GMT
+
+https://collider.com/marshals-taylor-sheridan-paramount-plus-viewership-june-2026/
+
+Taylor Sheridan’s poorly reviewed Marshals continues to defy critics with sustained viewership success on Paramount+.
+---------
+
+# 10 Greatest K-Dramas of the Last 10 Years, Ranked
+
+TV, South Korea, My Mister, Squid Game, Queen Of Tears
+
+Sun, 28 Jun 2026 13:00:13 GMT
+
+https://collider.com/best-k-dramas-last-10-years-ranked/
+
+Explore the best Korean dramas from the past 10 years, featuring critically acclaimed shows like Squid Game, Kingdom, and Queen of Tears.
+---------
+
+# 8 Years Later, Mel Gibson’s 159-Minute Crime Epic Is Finally Getting the Love It Deserves
+
+Movie News, Dragged Across Concrete, Mel Gibson, Vince Vaughn, Streaming
+
+Sun, 28 Jun 2026 12:45:13 GMT
+
+https://collider.com/mel-gibson-dragged-across-concrete-free-streaming-plex-july-2026/
+
+Mel Gibson's most underrated performance, in the Vince Vaughn-led Dragged Across Concrete, is about to stream for free. Read on for more.
+---------
+
+# 17 Years Later, Liam Neeson’s Forgotten Thriller Gets a Second Chance on Free Streaming
+
+Movie News, Liam Neeson, After.Life, Christina Ricci, Streaming
+
+Sun, 28 Jun 2026 12:31:14 GMT
+
+https://collider.com/liam-neeson-after-life-free-streaming-plex-july-2026/
+
+Liam Neeson's replacement for The Sixth Sense, After Life, also starring Christina Ricci, is streaming for free next month.
+---------
+
+# 6 Greatest Dean Martin and Jerry Lewis Movies
+
+Movie, Jerry Lewis, Comedy, Turner Classic Movies, Classics
+
+Sun, 28 Jun 2026 12:27:14 GMT
+
+https://collider.com/best-dean-martin-jerry-lewis-movies-ranked/
+
+Living It Up, The Stooge, and The Caddy are all among the very best classic comedy movies starring Dean Martin and Jerry Lewis.
+---------
+
+# 10 Perfect Miniseries You Should Watch in 2026
+
+TV, TV Miniseries, Spider-Noir, Band of Brothers, A Knight Of The Seven Kingdoms
+
+Sun, 28 Jun 2026 12:21:13 GMT
+
+https://collider.com/perfect-miniseries-to-watch-2026/
+
+Discover the best miniseries to watch in 2026, from new hits like Spider-Noir to must-see classics like Band of Brothers.
+---------
+
+# Jason Statham's 'The Mechanic' Remake Is Leaving Free Streaming
+
+Movie News, Jason Statham, The Mechanic, Coming/Leaving Streaming
+
+Sun, 28 Jun 2026 14:15:13 GMT
+
+https://movieweb.com/jason-statham-mechanic-leaving-free-streaming-pluto-tv-july-2026/
+
+This one was so violent that even its TV ad was banned.
+---------
+
+# Hugh Jackman's 'Sheep Detectives' Makes a Huge Splash on Prime Video
+
+Movie News, The Sheep Detectives, Hugh Jackman
+
+Sun, 28 Jun 2026 14:02:00 GMT
+
+https://movieweb.com/hugh-jackman-sheep-detectives-streaming-record/
+
+The cozy mystery has quickly become a global streaming standout.
+---------
+
+# Ridley Scott's 144-Minute Masterpiece War Epic Is Being Cut From Streaming
+
+Movie News, Ridley Scott, Black Hawk Down, Coming/Leaving Streaming, War
+
+Sun, 28 Jun 2026 14:00:17 GMT
+
+https://movieweb.com/ridley-scott-black-hawk-down-leaving-streaming-peacock-july-2026/
+
+Cited by military veterans as one of the most realistic depictions of modern combat, Ridley Scott's 'Black Hawk Down' is truly a masterpiece.
+---------
+
+# Michael Fassbender's 2-Part Series is the Best Action Thriller on Paramount+
+
+Features, The Agency, Marshals, Taylor Sheridan, Michael Fassbender
+
+Sun, 28 Jun 2026 14:00:17 GMT
+
+https://movieweb.com/michael-fassbender-the-agency-beats-marshals/
+
+'Marshals' and other Taylor Sheridan TV shows might be popular, but Michael Fassbender stars in an action series that is even better.
+---------
+
+# Netflix’s Long-Delayed Rom-Com Is One of the World’s Biggest Streaming Hits
+
+Movie News, Voicemails for Isabelle
+
+Sun, 28 Jun 2026 13:52:39 GMT
+
+https://movieweb.com/netflix-voicemails-for-isabelle-worldwide-hit/
+
+A romantic comedy that spent years in development has suddenly become one of the streamer's biggest movies worldwide.
+---------
+
+# Coen Brothers Classic 'No Country for Old Men' Is Leaving Free Streaming
+
+Movie News, No Country for Old Men, Coming/Leaving Streaming
+
+Sun, 28 Jun 2026 13:41:23 GMT
+
+https://movieweb.com/no-country-for-old-men-leaving-free-streaming-pluto-july-2026/
+
+Now's the perfect time to revisit this award-winning classic.
+---------
+
+# Uwe Boll Announces 'Citizen Vigilante 2' Is Coming in 2027
+
+Movie News, Citizen Vigilante, Armie Hammer
+
+Sun, 28 Jun 2026 13:30:35 GMT
+
+https://movieweb.com/citizen-vigilante-2-2027-release-date/
+
+Uwe Boll has teased Citizen Vigilante 2 after the Armie Hammer-led action thriller drew debate over its vigilante premise.
+---------
+
 # 10 Best New Movies Coming To Peacock In July 2026
 
 Movies, Peacock, What to Watch on Peacock, Sci-Fi, Action, Thriller
