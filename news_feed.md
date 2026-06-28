@@ -1,3 +1,344 @@
+# 10 Greatest Sci-Fi Shows Made Before 2000
+
+Classic TV, Sci-Fi
+
+Sun, 28 Jun 2026 18:30:19 GMT
+
+https://screenrant.com/best-sci-fi-tv-shows-before-2000/
+
+Classic sci-fi laid the foundation for all the fantastic shows releasing nowadays, and these ten sci-fi shows made before 2000 are the best.
+---------
+
+# Zelda: Wind Waker HD Switch 2 Port Officially Teased
+
+Gaming, The Legend of Zelda, The Legend of Zelda: The Wind Waker
+
+Sun, 28 Jun 2026 18:30:19 GMT
+
+https://screenrant.com/zelda-wind-waker-hd-switch-2-port-teased/
+
+The Wind Waker has quietly become one of the most popular Zelda games of all time, and a Switch 2 port feels long overdue at this point.
+---------
+
+# Every Live-Action Version Of Supergirl, Ranked
+
+Movies, Supergirl, DC Universe, DC
+
+Sun, 28 Jun 2026 18:30:19 GMT
+
+https://screenrant.com/live-action-supergirl-versions-movie-tv-shows-ranked/
+
+From Helen Slater to Milly Alcock, Supergirl has been one of the best part of DC’s on screen storytelling in both television and movies.
+---------
+
+# 10 Best Movies To Watch If You Love Event Horizon
+
+Movies, Event Horizon, Pandorum, 1408, Ghost Ship, Annihilation, Sunshine, Europa Report, Infini, Hellraiser, Sphere, The Cloverfield Paradox
+
+Sun, 28 Jun 2026 18:05:21 GMT
+
+https://screenrant.com/movies-like-event-horizon/
+
+Event Horizon is a beloved 90s sci-fi horror classic. Many fans would argue it's one-of-a-kind, but there are alternatives if you know where to look.
+---------
+
+# Why A 5-Part Post-Apocalyptic Drama From 12 Years Ago Is Dominating Netflix
+
+Streaming TV, Masked Recs
+
+Sun, 28 Jun 2026 18:00:20 GMT
+
+https://screenrant.com/netflix-the-last-ship-post-apocalyptic-drama-trending/
+
+The post-apocalyptic genre is going from strength to strength, with most platforms featuring at least one post-apocalyptic show, including Netflix.
+---------
+
+# Xbox Game Pass Members In Awe Of "Damn Good" Free Game
+
+Gaming, Xbox Game Pass, Xbox, Xbox Series X/S
+
+Sun, 28 Jun 2026 18:00:20 GMT
+
+https://screenrant.com/xbox-game-pass-free-game-ryse-legendary-edition/
+
+This free game on Xbox Game Pass has truly astounded members, so much so that they can't stop recommending it to absolutely everyone else.
+---------
+
+# 21 Years Later, Sin City Is Still The Most Faithful Comic Movie Ever
+
+Movies, Sin City
+
+Sun, 28 Jun 2026 18:00:20 GMT
+
+https://screenrant.com/sin-city-most-faithful-comic-movie-not-marvel-dc/
+
+Three years before the MCU revolutionized blockbusters, Sin City proved that staying true to its source material would make it stand out
+---------
+
+# $1.35 Billion Fantasy Franchise Returns As Global Streaming Hit 20 Years Later
+
+Movies, Masked Recs
+
+Sun, 28 Jun 2026 17:48:43 GMT
+
+https://screenrant.com/night-at-the-museum-netflix-streaming-success-june-2026/
+
+20 years after its release, a fantasy film that launched a $1.5 billion franchise has returned to dominate on Netflix’s top 10 streaming charts.
+---------
+
+# 10 Most Underrated Anime Of Spring 2026, Ranked
+
+Anime, Ranker
+
+Sun, 28 Jun 2026 17:30:20 GMT
+
+https://screenrant.com/spring-2026-most-underrated-anime/
+
+The best new anime no one watched.
+---------
+
+# HBO's 16-Year-Old Gangster Series Deserves To Be As Big As The Sopranos
+
+Classic TV, Masked Recs
+
+Sun, 28 Jun 2026 17:30:20 GMT
+
+https://screenrant.com/boardwalk-empire-deserves-sopranos-fame/
+
+The Sopranos was a crime masterpiece that changed the way we watch TV, raising the bar for drama. However, it is not the only perfect crime drama.
+---------
+
+# Taylor Sheridan’s New 6-Part Western Series Is a PVOD Hit as Fans Await New Episodes
+
+TV, The Madison
+
+Sun, 28 Jun 2026 18:30:12 GMT
+
+https://www.cbr.com/taylor-sheridan-the-madison-pvod-success-june-2026/
+
+Sheridan's latest neo-Western with Michelle Pfeiffer and Kurt Russell finds new success on PVOD after news it's coming back for two more seasons.
+---------
+
+# Paramount Is Officially Reviving One of the Best Zombie Movies Of All Time
+
+Movies, World War Z, Horror, paramount pictures
+
+Sun, 28 Jun 2026 18:30:12 GMT
+
+https://www.cbr.com/paramount-world-war-z-sequel-best-zombie-movie/
+
+Paramount has confirmed that a new World War Z movie is officially in development, nearly a decade after the canceled David Fincher sequel.
+---------
+
+# The 2-Season Game of Thrones Clone That Beats George RR Martin at Fantasy
+
+TV, The Shannara Chronicles, Game Of Thrones, Fantasy
+
+Sun, 28 Jun 2026 18:30:12 GMT
+
+https://www.cbr.com/the-shannara-chronicles-better-fantasy-than-game-of-thrones/
+
+This underrated post-apocalyptic fantasy series offers a female-centered story and compelling world-building that surpasses HBO's Game of Thrones.
+---------
+
+# 5 Anime Heroes Stronger Than Gon Freecss
+
+Anime, Hunter x Hunter, Dragon Ball, shonen anime, Shonen
+
+Sun, 28 Jun 2026 18:15:12 GMT
+
+https://www.cbr.com/anime-heroes-stronger-than-gon-hunter-x-hunter/
+
+As talented as Gon is, these anime heroes have reached heights that few characters could ever hope to match.
+---------
+
+# Game of Thrones' Controversial Spinoff Receives Great Streaming News
+
+TV, House of the Dragon
+
+Sun, 28 Jun 2026 18:00:13 GMT
+
+https://www.cbr.com/game-of-thrones-controversial-spinoff-receives-great-streaming-news/
+
+The series' streaming domination comes shortly after its highly-anticipated return.
+---------
+
+# Naruto Officially Returns This October With Another Ninja Turtles Crossover
+
+Anime, Naruto, Teenage Mutant Ninja Turtles
+
+Sun, 28 Jun 2026 18:00:13 GMT
+
+https://www.cbr.com/naruto-ninja-turtles-crossover-manga-october-2026/
+
+The Teenage Mutant Ninja Turtles and Naruto crossover is officially coming back with the collected edition fans didn't know they were missing out on.
+---------
+
+# Marvel's Official Isekai Series Transports Fan-Favorite Characters To Fantasy Worlds
+
+Comics, Marvel Comics
+
+Sun, 28 Jun 2026 18:00:13 GMT
+
+https://www.cbr.com/marvels-comics-isekai-variant-cover-series/
+
+Marvel is giving some of their most iconic characters an otherworldly look.
+---------
+
+# 10 Best Far Side Comics Featuring Vultures
+
+Comics, The Far Side
+
+Sun, 28 Jun 2026 17:41:10 GMT
+
+https://www.cbr.com/10-best-far-side-comics-featuring-vultures/
+
+Vultures were a prominent and hilarious addition to The Far Side that only helped the comic strip further demonstrate its versatility with humor.
+---------
+
+# Rob Lowe Confirms Sequel to 41-Year-Old Cult Classic Brat Pack Movie
+
+Movies
+
+Sun, 28 Jun 2026 17:40:26 GMT
+
+https://www.cbr.com/rob-lowe-confirms-st-elmos-fire-2/
+
+The Brat Pack will be reuniting for a sequel to a beloved 80s movie after four decades.
+---------
+
+# 59 Years Later, Star Trek's Best War Episode Remains Peak Sci-Fi Thanks to a Single Kirk Line
+
+TV, Star Trek, Sci-Fi, Paramount
+
+Sun, 28 Jun 2026 17:31:13 GMT
+
+https://www.cbr.com/star-trek-best-war-episode-single-kirk-speech-peak-sci-fi/
+
+In Star Trek: The Original Series Captain Kirk is known for his rousing speeches, and his most powerful is an almost threatening anti-war declaration.
+---------
+
+# 5 Greatest TV Endings of the Last 10 Years
+
+TV, Television, Succession, The Good Place, Fleabag
+
+Sun, 28 Jun 2026 18:33:13 GMT
+
+https://collider.com/best-tv-endings-last-10-years-ranked/
+
+From the HBO miniseries Chernobyl to the fantasy sitcom The Good Place, these TV series from the last decade finish their stories on the perfect note.
+---------
+
+# Your Friends & Neighbors S2: The Real $10M Closet | Collider BTS
+
+TV, Your Friends and Neighbors
+
+Sun, 28 Jun 2026 18:15:13 GMT
+
+https://collider.com/video/your-friends-neighbors-s2-the-real-10m-closet-collider-bts/
+
+Your Friends & Neighbors Season 2 may be filled with luxury homes, exotic yachts, rare cars, and priceless collectibles, but bringing that world to life required an incredible amount of behind-the-scenes planning.
+---------
+
+# Before Netflix's 'Monster,' Jeremy Renner Officially Made the Better Dahmer Movie
+
+Movie Features, Dahmer, Jeremy Renner, Dahmer - Monster: The Jeffrey Dahmer Story, True Crime
+
+Sun, 28 Jun 2026 18:12:13 GMT
+
+https://collider.com/jeremy-renner-dahmer-better-than-netflix-jeffrey-dahmer-story/
+
+Long before Netflix's Monster: The Jeffrey Dahmer Story, Jeremy Renner's Dahmer delivered a chilling, victim-focused take on the serial killer.
+---------
+
+# Lord of the Rings Icon's Criminally Underrated Horror Movie Is Taking Over Free Streaming
+
+Movie News, Elijah Wood, Cooties, Zombie, Rainn Wilson
+
+Sun, 28 Jun 2026 18:00:13 GMT
+
+https://collider.com/elijah-wood-cooties-free-streaming-plex-july-2026/
+
+Lord of the Rings icon Elijah Wood's zombie movie, Cooties, is coming to free streaming. Read on for more details.
+---------
+
+# This Epic 2-Part Fantasy Series Is One of Netflix’s All-Time Greatest Adaptations
+
+TV Features, One Piece, Netflix, Fantasy, Adventure
+
+Sun, 28 Jun 2026 17:58:13 GMT
+
+https://collider.com/one-piece-netflix-greatest-fantasy-anime-adaptation/
+
+Netflix's One Piece condenses the epic anime into a digestible format for both fans and newcomers, maintaining the essence of the original series.
+---------
+
+# 7 Heaviest Martial Arts Movies of All Time
+
+Movie, Fist of Fury, The Night Comes For Us, The Sword of Doom, Harakiri
+
+Sun, 28 Jun 2026 17:04:13 GMT
+
+https://collider.com/heaviest-martial-arts-movies-all-time-ranked/
+
+Some of the heaviest and most downbeat martial arts movies ever include the likes of The Sword of Doom, Fist of Fury, and The Night Comes for Us.
+---------
+
+# Tom Holland's Pick to Play the Next Spider-Man Would Do It "In 10 Years Time"
+
+Movie News, Tom Holland, Spider-Man, Spider-Man: Brand New Day
+
+Sun, 28 Jun 2026 18:32:52 GMT
+
+https://movieweb.com/tom-holland-owen-cooper-spider-man/
+
+'Adolescence' star Owen Cooper would love to play the next Spider-Man...in a while.
+---------
+
+# 10 Great Fantasy Books That Deserve the 'Game of Thrones' Treatment
+
+TV Lists, Game Of Thrones, Fantasy
+
+Sun, 28 Jun 2026 18:30:18 GMT
+
+https://movieweb.com/fantasy-books-next-game-of-thrones/
+
+The fantasy genre has no shortage of incredible stories.
+---------
+
+# Disney's Family Adventure Saga That's Trending on Streaming Keeps Getting Better
+
+Features, Toy Story, Disney, Pixar, Toy Story 5
+
+Sun, 28 Jun 2026 18:00:18 GMT
+
+https://movieweb.com/disney-toy-story-saga-trending/
+
+Is this a perfect franchise? Disney has plenty of bangers, but this is the rare movie series with no bad entries, and it keeps getting better.
+---------
+
+# 11 'Lord of the Rings' Characters That Are More Powerful Than Gandalf
+
+Features, The Lord of the Rings
+
+Sun, 28 Jun 2026 17:30:18 GMT
+
+https://movieweb.com/lord-of-the-rings-gandalf-more-powerful/
+
+As one of the Maiar, Gandalf is one of the most powerful characters in J.R.R. Tolkien's Middle-earth, but there are some who simply outmatch him.
+---------
+
+# First Look Behind the Scenes of Disney's Live-Action 'Tangled' Movie
+
+Movie News, Tangled, Fantasy, Disney
+
+Sun, 28 Jun 2026 17:27:23 GMT
+
+https://movieweb.com/first-look-disney-live-action-tangled/
+
+Get a look at the real-life version of Rapunzel's tower, and see lead actress Teagan Croft in a very significant haircut.
+---------
+
 # It’s Not Season 6, But Netflix Will Redeem Some Of Stranger Things’ Divisive Ending
 
 Streaming TV, Masked Recs
