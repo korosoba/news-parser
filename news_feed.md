@@ -1,3 +1,212 @@
+# 10 Best New Movies Coming To Peacock In July 2026
+
+Movies, Peacock, What to Watch on Peacock, Sci-Fi, Action, Thriller
+
+Sun, 28 Jun 2026 12:12:19 GMT
+
+https://screenrant.com/peacock-best-new-movies-july-2026/
+
+Peacock's July 2026 library is here. From the exclusive debut of Reminders of Him to modern classics, we've broken down what’s actually worth watching
+---------
+
+# From Season 4 Ending Explained: What Happened To Fatima?
+
+Streaming TV, From
+
+Sun, 28 Jun 2026 12:00:20 GMT
+
+https://screenrant.com/from-season-4-ending-explained/
+
+From's season 4 finale was one of the show's most action-packed episodes yet. Some things will never be the same as the show moves into season 5.
+---------
+
+# DC Has Officially Confirmed One Major Green Lantern Change Is A Franchise Reality
+
+TV, DC Universe, Green Lantern
+
+Sun, 28 Jun 2026 12:00:20 GMT
+
+https://screenrant.com/dc-green-lantern-shows-era-confirm/
+
+DC's most recent movie stories and the franchise's upcoming releases confirm a new era for a big hero group is now a reality going forward.
+---------
+
+# PlayStation Plus Members Thrilled By 13 Free Open-World Games
+
+Gaming, PlayStation, PlayStation Plus, PlayStation 5, RPG
+
+Sun, 28 Jun 2026 12:00:20 GMT
+
+https://screenrant.com/playstation-plus-13-open-world-games-reaction/
+
+PlayStation Plus subscribers have shared their elation at 13 completely free open-world games being made available on the service.
+---------
+
+# Pokémon Scarlet & Violet Free Download Officially Yours Until July 3
+
+Gaming, Pokemon Scarlet and Violet
+
+Sun, 28 Jun 2026 11:30:19 GMT
+
+https://screenrant.com/pokemon-scarlet-violet-free-download-july-2026-tera-raid/
+
+Join the final 7-Star Tera Raid in Pokémon Scarlet & Violet on June 25, the last chance to obtain Hisuian starters and exclusive rewards.
+---------
+
+# The Supergirl Open-World RPG Of Your Dreams Is Officially Here
+
+Gaming, Supergirl, Fortnite, PC, RPG
+
+Sun, 28 Jun 2026 11:00:20 GMT
+
+https://screenrant.com/supergirl-fortnite-skins-new-update/
+
+Fans of Supergirl who have always dreamed of a true open-world RPG can finally rest easy, as a brand-new game is here to fulfil your wishes.
+---------
+
+# Avatar: The Last Airbender Fans Have To Accept Netflix's Live-Action Has 1 Big Advantage
+
+Streaming TV, Avatar: The Last Airbender
+
+Sun, 28 Jun 2026 11:00:20 GMT
+
+https://screenrant.com/avatar-the-last-airbender-season-jet-character-advantage-animated-series/
+
+Netflix's Avatar: The Last Airbender is often viewed as worse than the animated series, but one big change that drastically improved this character.
+---------
+
+# 8 Trippy Slow-Burn Shows for The White Lotus Fans
+
+TV, The White Lotus, HBO Max, Netflix, Mystery
+
+Sun, 28 Jun 2026 11:30:13 GMT
+
+https://www.cbr.com/mystery-shows-like-white-lotus-list/
+
+Love The White Lotus? These 8 addictive, slow-burn TV shows deliver the same mix of luxury, mystery, and biting satire.
+---------
+
+# Spider-Man: Brand New Day Sets Up Peter Parker's Worst Superpower
+
+Movies, Spider-Man: Brand New Day, MCU, superheroes
+
+Sun, 28 Jun 2026 11:30:13 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-peter-parker-new-powers-mcu/
+
+Spider-Man: Brand New Day may be borrowing from a controversial comics storyline to introduce Peter Parker's weirdest ability.
+---------
+
+# Top 10 Marvel Characters That Deserve Solo Video Games
+
+Comics, Marvel
+
+Sun, 28 Jun 2026 11:00:12 GMT
+
+https://www.cbr.com/top-marvel-heroes-who-deserve-video-games/
+
+These characters are yet to receive a solo game but would thrive if given a proper opportunity.
+---------
+
+# Bruce Willis Reunites With a 'Landman' Icon in the Forgotten Rom-Com Hitting Free Streaming
+
+Movie News, Bruce Willis, Cate Blanchett, Billy Bob Thornton, Bandits
+
+Sun, 28 Jun 2026 12:00:13 GMT
+
+https://collider.com/bruce-willis-bandits-free-streaming-plex-july-2026/
+
+Bruce Willis' rom-com heist with a Landman star is soon coming to free streaming. Here's everything you should know about Bandits.
+---------
+
+# 5 Classic American War Movies That Have Aged Like Milk
+
+Movie, War, The Green Berets, Battle of the Bulge, The Birth of a Nation
+
+Sun, 28 Jun 2026 11:44:14 GMT
+
+https://collider.com/classic-american-war-movies-aged-like-milk/
+
+From the curiously named Battle of the Bulge to the overall reprehensible Birth of a Nation, these once-classic war movies have aged quite terribly.
+---------
+
+# Apple TV’s 10-Part Scorsese and Spielberg Thriller Is Summer’s Most Jaw-Dropping Streaming Hit
+
+TV Features, Cape Fear, Amy Adams, Patrick Wilson, Javier Bardem
+
+Sun, 28 Jun 2026 11:43:15 GMT
+
+https://collider.com/cape-fear-scorsese-spielberg-thriller-summer-streaming-hit/
+
+Apple TV has rebooted Martin Scorsese's cult classic, Cape Fear, as a series that is even more jaw-dropping than the original.
+---------
+
+# 10 Greatest Neo-Noir TV Shows of All Time
+
+TV, Film Noir, Twin Peaks, True Detective, Better Call Saul
+
+Sun, 28 Jun 2026 11:09:14 GMT
+
+https://collider.com/best-neo-noir-shows-all-time-ranked/
+
+Showtime's Dexter, HBO's True Detective, and ABC's Twin Peaks are among the best neo-noir shows of all time, but which series is the greatest?
+---------
+
+# Timothée Chalamet’s Near-Perfect A24 Masterpiece Hits Free Streaming Next Month
+
+Movie News, Saoirse Ronan, Lady Bird, Timothée Chalamet, Streaming
+
+Sun, 28 Jun 2026 11:00:13 GMT
+
+https://collider.com/timothee-chalamet-lady-bird-free-streaming-plex-july-2026/
+
+Timothée Chalamet's most underrated performance is about to be available to stream for free. Here's everything you should know.
+---------
+
+# Fan Favourite Sci-Fi Story Is Officially Getting The Adaptation It Deserves
+
+Exclusives, Rogue Trooper, Duncan Jones, Jemaine Clement, Sean Bean
+
+Sun, 28 Jun 2026 11:00:13 GMT
+
+https://collider.com/rogue-trooper-movie-2000ad-comic-duncan-jones/
+
+Duncan Jones talks to Collider about his highly anticipated sci-fi movie and how WWII movies and Edgar Wright's The Running Man inspired it.
+---------
+
+# Disney+’s 8-Part Sci-Fi Adventure Series Is So Good, It United a Divided Fanbase
+
+TV Features, Star Wars: Skeleton Crew, Star Wars, Jude Law, Jon Watts
+
+Sun, 28 Jun 2026 10:45:14 GMT
+
+https://collider.com/star-wars-skeleton-crew-disney-plus-sci-fi-adventure-united-fans/
+
+Star Wars: Skeleton Crew is a relatable and empowering adventure in the galaxy far, far away that won over even the most skeptical fans.
+---------
+
+# In 1 Month, Guy Ritchie and Henry Cavill's R-Rated Action Thriller Officially Sets New Blu-ray Release
+
+Movie News, In the Grey, Guy Ritchie, Henry Cavill, Action
+
+Sun, 28 Jun 2026 12:00:18 GMT
+
+https://movieweb.com/guy-ritchie-henry-cavill-in-the-grey-blu-ray-release/
+
+Guy Ritchie and Henry Cavill's R-rated action thriller 'In the Grey' is heading to Blu-ray in July via Black Bear and Universal Pictures.
+---------
+
+# Steven Spielberg's $260 Million Sci-Fi Thriller Ready for a Comeback on Streaming
+
+Movie News, Steven Spielberg, Super 8, Coming/Leaving Streaming, Sci-Fi
+
+Sun, 28 Jun 2026 12:00:18 GMT
+
+https://movieweb.com/steven-spielberg-super-8-streaming-parmount-plus-july-2026/
+
+Before 'Disclosure Day,' Steven Spielberg helped bring to life one of the most nostalgic sci-fi thrillers you'll ever see.
+---------
+
 # Marvel's Spider-Man 2 Free Download Officially Available Ahead Of Brand-New Day
 
 Gaming, Spider-Man, Spider-Man: Brand New Day, Marvel's Spider-Man 2
