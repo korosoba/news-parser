@@ -1,3 +1,322 @@
+# Batman Officially Names the Justice League's Strongest Villain of the 2020s
+
+Comics, Justice League, Batman
+
+Mon, 29 Jun 2026 00:00:20 GMT
+
+https://screenrant.com/batman-justice-league-strongest-villain-brainiac-queen/
+
+All hail the Queen
+---------
+
+# 11 Original Avatar: The Last Airbender Episodes The Netflix Show Skips In Season 2
+
+Streaming TV, Avatar: The Last Airbender
+
+Mon, 29 Jun 2026 00:00:20 GMT
+
+https://screenrant.com/avatar-the-last-airbender-season-2-original-show-skipped-episodes/
+
+Netflix’s Avatar: The Last Airbender season 2, with only seven installments, had to leave out over half of the original show’s animated episodes.
+---------
+
+# GTA 6 Fans Torn Over Physical Edition Uncertainty
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, PC
+
+Mon, 29 Jun 2026 00:00:20 GMT
+
+https://screenrant.com/gta-6-physical-edition-december-rumor-reaction/
+
+As expected, Grand Theft Auto 6 fans have a lot to say about its current physical edition debacle, with many left torn over the situation.
+---------
+
+# Lord Of The Rings: Return Of The King Remastered Is A 00's Gamer's Dream
+
+Gaming, The Lord of the Rings: The Two Towers, The Lord of the Rings, The Lord of the Rings: The Return of the King
+
+Mon, 29 Jun 2026 00:00:20 GMT
+
+https://screenrant.com/lord-of-the-rings-return-of-the-king-ps2-fan-remaster/
+
+There's no doubt that The Lord of the Rings movie tie-in games were a fantastic set of releases, but they never looked this good.
+---------
+
+# Hugh Jackman Addresses Potential Return To $300M Cult Fantasy Horror Role After 22 Years
+
+Movies, Van Helsing, Hugh Jackman
+
+Sun, 28 Jun 2026 23:46:14 GMT
+
+https://screenrant.com/hugh-jackman-van-helsing-return-potential-response/
+
+Hugh Jackman reveals whether he would consider reprising his role in his 2004 cult classic horror film over two decades after its release.
+---------
+
+# Who The Matron Of Ravens Really Is In The Legend Of Vox Machina
+
+Streaming TV, The Legend of Vox Machina
+
+Sun, 28 Jun 2026 23:30:19 GMT
+
+https://screenrant.com/legend-of-vox-machina-matron-of-ravens-identity-explained/
+
+The Matron of Ravens is a mysterious god in the world of The Legend of Vox Machina, which may have provided some hints about her identity.
+---------
+
+# Star Trek: The Next Generation Wasn't Just 1987's Best Sci-Fi Series, It Changed TV
+
+TV, Star Trek, Star Trek: The Next Generation
+
+Sun, 28 Jun 2026 23:30:19 GMT
+
+https://screenrant.com/star-trek-next-generation-1987-best-science-fiction/
+
+Great characters and great writing took sci-fi TV to new heights
+---------
+
+# 10 Sci-Fi Movies With The Most Mind-Bending Endings, Ranked
+
+Classic Movies, Sci-Fi
+
+Sun, 28 Jun 2026 23:05:35 GMT
+
+https://screenrant.com/sci-fi-movies-mind-bending-endings/
+
+Sci-fi movies are known for their big ideas and complicated themes, but there are many movies that people struggle to understand by the end.
+---------
+
+# 8 Years Later, Netflix's 3-Part Sci-Fi Cult Classic Is Still Perfect From Start To Finish
+
+Classic TV, Masked Recs
+
+Sun, 28 Jun 2026 23:00:19 GMT
+
+https://screenrant.com/travelers-cult-classic-sci-fi-show/
+
+There are many great sci-fi shows on Netflix, and one of the few flawless ones has patiently been waiting to be discovered since it ended in 2018.
+---------
+
+# 20 Years Ago, The Century's Best Science Fiction Adaptation Released, And Nothing Has Topped It
+
+Movies
+
+Sun, 28 Jun 2026 23:00:19 GMT
+
+https://screenrant.com/scanner-darkly-best-science-fiction-adaptation-21st-century/
+
+The best
+---------
+
+# In Just 1 Day, HBO's New 7-Part Comedy Becomes an Instant Streaming Hit in the U.S.
+
+TV, Life, Larry and the Pursuit of Unhappiness
+
+Mon, 29 Jun 2026 00:00:13 GMT
+
+https://www.cbr.com/life-larry-and-the-pursuit-of-unhappiness-comedy-hbo-max-us-success-june-2026/
+
+The new limited series was met with mixed reviews.
+---------
+
+# PUMA Gives Lycoris Recoil’s Chisato and Takina Their Own Limited-Edition Sneakers
+
+Anime, Lycoris Recoil, toonami, merchandise
+
+Mon, 29 Jun 2026 00:00:13 GMT
+
+https://www.cbr.com/puma-lycoris-recoil-chisato-takina-limited-edition-sneakers/
+
+Puma launches a new sneaker collaboration celebrating Lycors Recoil heroines Chisato Nishikigi and Takina Inoue set for Summer release.
+---------
+
+# 2010s Anime Series That Are 10/10, No Notes
+
+Anime, Hunter x Hunter, Mob Psycho 100
+
+Sun, 28 Jun 2026 23:45:13 GMT
+
+https://www.cbr.com/2010s-anime-series-perfect-no-notes/
+
+Not every popular show lives up to its reputation, but these anime earned every bit of their praise.
+---------
+
+# Say Goodbye to HBO as the King of Fantasy as Netflix's Next Hit Shows Game of Thrones How It's Done
+
+TV, Fantasy, Magic: The Gathering, Netflix
+
+Sun, 28 Jun 2026 23:30:12 GMT
+
+https://www.cbr.com/netflix-magic-the-gathering-hbo-game-of-thrones-rival/
+
+HBO's Game of Thrones has been TV's premier fantasy show, but an upcoming Netflix series will challenge that status.
+---------
+
+# 5 Best Dark Fantasy Anime Ever Made
+
+Anime
+
+Sun, 28 Jun 2026 23:15:13 GMT
+
+https://www.cbr.com/best-dark-fantasy-anime-ever-made/
+
+Made in Abyss, Doroheoro and others sit at the top of the dark fantasy anime genre.
+---------
+
+# James McAvoy's $77M Horror Remake Returns as a Paramount+ Hit 2 Years Later
+
+Movies, Speak No Evil
+
+Sun, 28 Jun 2026 23:00:12 GMT
+
+https://www.cbr.com/james-mcavoy-speak-no-evil-horror-remake-paramount-plus-success-june-2026/
+
+James McAvoy's horror remake is making a comeback on streaming platforms two years after its theatrical release.
+---------
+
+# 10 Greatest Dystopian Books of All Time, Ranked
+
+Movies, Science Fiction, books
+
+Sun, 28 Jun 2026 23:00:12 GMT
+
+https://www.cbr.com/greatest-dystopian-books-list/
+
+Easily one of the most beloved sub-genres of sci-fi and speculative fiction, some of the best dystopian books are chilling allegories of modern life.
+---------
+
+# 10 Sci-Fi Shows That Are Even Better the Second Time Around
+
+TV, Sci-Fi, Dark, 12 Monkeys, Travelers
+
+Mon, 29 Jun 2026 00:02:14 GMT
+
+https://collider.com/best-sci-fi-shows-to-rewatch/
+
+Dive into great sci-fi shows that are even more rewarding and enjoyable on a second watch, including series like Dark, 12 Monkeys, and Travelers.
+---------
+
+# Channing Tatum’s New True Crime Thriller Is Officially the No. 1 Movie on Streaming
+
+Movie News, Channing Tatum, Roofman, Paramount Plus, Kirsten Dunst
+
+Mon, 29 Jun 2026 00:01:13 GMT
+
+https://collider.com/channing-tatum-roofman-streaming-success-paramount-plus-june-2026/
+
+Discover how Channing Tatum's performance in Roofman, alongside Kirsten Dunst and Peter Dinklage, has propelled the film to streaming success.
+---------
+
+# Hugh Jackman's New Detective Movie Is an Instant Streaming Hit
+
+Movie News, The Sheep Detectives, Hugh Jackman, Prime Video, Craig Mazin
+
+Sun, 28 Jun 2026 23:45:13 GMT
+
+https://collider.com/hugh-jackman-the-sheep-detectives-streaming-success-prime-video-june-2026/
+
+Hugh Jackman stars in the heartwarming and critically acclaimed movie The Sheep Detectives, which has become an instant streaming hit on Prime Video.
+---------
+
+# ‘Law and Order’s Christopher Meloni Is Ready To Return as TV’s Best Detective [Exclusive]
+
+TV News, Law & Order: Organized Crime, Christopher Meloni, Harley Quinn, The Batman
+
+Sun, 28 Jun 2026 23:30:13 GMT
+
+https://collider.com/law-and-order-christopher-meloni-batman-live-action-return-commissioner-gordon/
+
+Christopher Meloni plays coy about another return as Elliot Stabler in Law & Order: SVU, but is game to play another famous detective again.
+---------
+
+# Ridley Scott’s 8-Part Apple TV Crime Drama Is a Perfect Weekend Binge-Watch
+
+TV Features, Ridley Scott, Dope Thief, Brian Tyree Henry, Wagner Moura
+
+Sun, 28 Jun 2026 23:27:14 GMT
+
+https://collider.com/dope-thief-apple-tv-crime-drama-ridley-scott-perfect-binge/
+
+Apple TV's Dope Thief is a gripping crime drama miniseries that explores themes of family, betrayal, and justice.
+---------
+
+# Disney’s $592 Million Fantasy Reboot Gets Major Creative Update
+
+Movie News, Tangled, Disney, Milo Manheim
+
+Sun, 28 Jun 2026 23:23:25 GMT
+
+https://collider.com/disney-tangled-live-action-remake-changes-hairstyle/
+
+Teagan Croft, the star of Disney's newest live-action remake, Tangled, debuts an unexpected new haircut, shocking fans of the classic animated film.
+---------
+
+# Denzel Washington’s 3-Part Action Masterpiece Officially Finds a New Streaming Home
+
+Movie News, The Equalizer, The Equalizer 2, The Equalizer 3, Denzel Washington
+
+Sun, 28 Jun 2026 23:20:23 GMT
+
+https://collider.com/denzel-washington-the-equalizer-trilogy-streaming-hbo-max-july-2026/
+
+With two more sequels on the horizon, Denzel Washington's Equalizer trilogy, directed by Antoine Fuqua, is coming to a new streaming home.
+---------
+
+# 74 Years Later, One of the Most Influential Westerns Ever Made Is Streaming Free
+
+Movie News, High Noon, Pluto TV, Gary Cooper, Western
+
+Sun, 28 Jun 2026 23:15:13 GMT
+
+https://collider.com/high-noon-genre-western-streaming-free-pluto-tv-july-2026/
+
+The genre-defining Western High Noon will soon be available to stream for free on a new platform. Here's where to watch it.
+---------
+
+# The Western Hailed as America's Greatest Political Movie Hits Free Streaming This Week
+
+Movie News, The Man Who Shot Liberty Valance, James Stewart, John Wayne, John Ford
+
+Sun, 28 Jun 2026 23:10:12 GMT
+
+https://collider.com/the-man-who-shot-liberty-valace-western-streaming-pluto-tv-july-2026/
+
+The landmark Western film The Man Who Shot Liberty Valance is coming to Pluto TV this July. Here's everything you should know.
+---------
+
+# Tom Cruise Takes on Prime Video's Best Action Series in a Must-Watch Free Streamer
+
+Movie News, Jack Reacher, Reacher, Tom Cruise
+
+Sun, 28 Jun 2026 23:00:13 GMT
+
+https://collider.com/tom-cruise-jack-reacher-free-streaming-pluto-tv-july-2026/
+
+Before Alan Ritchson returns in Season 4 of Prime Video's hit series, Tom Cruise's Jack Reacher is coming to free streaming next month.
+---------
+
+# The Best WWII Epic You Haven't Seen Is a 145 Minute Masterpiece
+
+Features, War, Black Book
+
+Sun, 28 Jun 2026 23:30:18 GMT
+
+https://movieweb.com/black-book-epic-war-masterpiece/
+
+This underrated war movie, led by 'Game of Thrones' stars Carice van Houten and Michiel Huisman, is one of the most moving WWII movies.
+---------
+
+# The Best 'John Wick' Replacement of the Decade Is a Masterpiece Action Thriller
+
+Features, Nobody, John Wick, Action, Thriller
+
+Sun, 28 Jun 2026 23:00:18 GMT
+
+https://movieweb.com/nobody-best-john-wick-replacement/
+
+From 'John Wick' creator Derek Kolstad, this 2-part action saga is the only action alternative that really works.
+---------
+
 # Elden Ring: All Flame Pillar Locations In Nokron (Regal Ancestor Spirit)
 
 Gaming, Elden Ring, PC
