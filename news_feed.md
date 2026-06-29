@@ -1,3 +1,377 @@
+# House Of The Dragon Season 3 Quietly Gets Better Once It Remembers Its Main Characters
+
+TV, House of the Dragon
+
+Mon, 29 Jun 2026 22:31:20 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-better-rhaenyra-aegon-main-characters/
+
+As Rhaenyra and Aegon take center stage in House of the Dragon season 3, episode 2, is it any surprise that it's the show's best outing in years?
+---------
+
+# 15 Years Ago, Ryan Gosling Truly Broke Out With Three Great Movies
+
+Movies, Ryan Gosling, Explainer
+
+Mon, 29 Jun 2026 22:30:21 GMT
+
+https://screenrant.com/ryan-gosling-2011-three-great-movies-breakout/
+
+Ryan Gosling is one of the top actors in Hollywood and it was in the year 2011 that he showed his versatility in three different yet great films.
+---------
+
+# Tyler Perry's New Psychological Thriller Instantly Becomes #1 Streaming Sensation
+
+Movies, Masked Recs
+
+Mon, 29 Jun 2026 22:01:22 GMT
+
+https://screenrant.com/tyler-perry-strung-movie-streaming-success-peacock-june-2026/
+
+Tyler Perry helped produce a new psychological thriller movie that's become an impressive streaming success just days after its release.
+---------
+
+# Denis Villeneuve’s Likely James Bond Choice Is Quietly Fronting Apple TV’s Biggest New Sci-Fi Series
+
+TV, Masked Recs
+
+Mon, 29 Jun 2026 22:01:22 GMT
+
+https://screenrant.com/callum-turner-apple-tv-neuromancer-before-james-bond/
+
+Apple TV are behind the biggest new sci-fi release of the coming 12 months, whose lead actor is also the current favorite to take over as 007.
+---------
+
+# One Piece Unveils A New Power System, And It's Straight Out Of Naruto
+
+Anime, One Piece
+
+Mon, 29 Jun 2026 22:01:22 GMT
+
+https://screenrant.com/one-piece-new-power-system-stronger-haki-naruto/
+
+With distinctive eyes like Gunko's popping up in the Final Saga, it's possible that ocular powers are gradually making their way into One Piece.
+---------
+
+# Supergirl’s Final Needle Drop Is Getting Bashed, But There’s 1 Way It Works
+
+Movies, Supergirl
+
+Mon, 29 Jun 2026 21:50:23 GMT
+
+https://screenrant.com/supergirl-the-middle-needle-drop-ruthye-pov/
+
+One scene from Supergirl is being heavily criticized online, but some fans have pointed out something about it that makes it (at least a bit) better.
+---------
+
+# Netflix Officially Developing TV Adaptation Of 30-Year-Old Supernatural Video Game Franchise
+
+TV, Persona, Netflix
+
+Mon, 29 Jun 2026 21:42:33 GMT
+
+https://screenrant.com/persona-tv-adaptation-development-netflix-details/
+
+Netflix sets its sights on a classic supernatural video game franchise as they've entered development on a live-action TV adaptation of it.
+---------
+
+# 3-Part Masterpiece Dystopian Sci-Fi Series With Near-Perfect Rotten Tomatoes Score Arrives On Apple TV This Week
+
+Streaming TV, Masked Recs
+
+Mon, 29 Jun 2026 21:40:56 GMT
+
+https://screenrant.com/silo-season-3-apple-tv-release-june-2026/
+
+One of Apple TV's best Sci-Fi shows is officially coming back this week, and the dystopian series' new season is must-watch TV due to major changes.
+---------
+
+# From Rewrites The Town’s Rules For Season 5
+
+Streaming TV, From, FROM - Season 4
+
+Mon, 29 Jun 2026 21:30:21 GMT
+
+https://screenrant.com/from-season-4-rewrite-town-rules/
+
+The rules of From's mysterious Township have been completely rewritten heading into the fifth and final season of MGM+s hit horror series.
+---------
+
+# Season 2 Of Netflix's Near-Perfect John Wick Replacement Is Only 7 Months Away
+
+Anime, Netflix, John Wick
+
+Mon, 29 Jun 2026 21:30:21 GMT
+
+https://screenrant.com/sakamoto-days-season-2-trailer-2027-premiere/
+
+The John Wick of anime is almost back.
+---------
+
+# In Just 3 Days, The Perfect Blair Witch Project Replacement Officially Tops the Charts on HBO Max
+
+Movies, undertone, HBO Max, Horror
+
+Mon, 29 Jun 2026 22:18:47 GMT
+
+https://www.cbr.com/understone-horror-success-hbo-max-june-2026/
+
+A24 takes on audiovisual horror in this critically acclaimed film.
+---------
+
+# 10 Hardest Anime Arcs to Watch
+
+Anime, Jujutsu Kaisen, Hunter x Hunter, A Certain Scientific Railgun, Berserk
+
+Mon, 29 Jun 2026 22:15:14 GMT
+
+https://www.cbr.com/hardest-anime-arcs-to-watch/
+
+Many of the hardest anime arcs to watch demand that viewers pay attention, even though all they want to do is look away.
+---------
+
+# Elle Star Confirms That Legally Blonde’s Most Famous Reference Is Cut From Season 1
+
+TV, Elle, Legally Blonde
+
+Mon, 29 Jun 2026 22:14:50 GMT
+
+https://www.cbr.com/elle-season-1-cut-legally-blonde-bend-and-snap-confirmed/
+
+Legally Blonde prequel series Elle leaves out an iconic detail.
+---------
+
+# Milly Alcock's Supergirl Salary Revealed Amid Box Office Disappointment
+
+Movies, Supergirl
+
+Mon, 29 Jun 2026 22:07:16 GMT
+
+https://www.cbr.com/supergirl-milly-alcock-salary-revealed/
+
+Supergirl lead star Milly Alcock's salary for the box office bomb has been revealed.
+---------
+
+# 10 Biggest Changes the Supergirl Movie Made From DC Comics
+
+Comics, Supergirl, supergirl: woman of tomorrow
+
+Mon, 29 Jun 2026 22:00:14 GMT
+
+https://www.cbr.com/things-the-supergirl-movie-changed-from-the-comics/
+
+The Supergirl movie adaptation takes several liberties with the source material, some of which enhance the story while others leave fans divided.
+---------
+
+# Paramount's Star Trek Reboot Is the Sci-Fi Event of the Decade
+
+Movies, Star Trek, paramount pictures, warner bros
+
+Mon, 29 Jun 2026 22:00:14 GMT
+
+https://www.cbr.com/paramount-star-trek-movie-reboot-biggest-sci-fi-event/
+
+As Paramount attempts to bring Star Trek back to the screen, a new, fresh film could reinvigorate the space opera and be a sci-fi event to remember.
+---------
+
+# Final Fantasy 9 Officially Drops New Release Available to Preorder Now
+
+Games, Final Fantasy
+
+Mon, 29 Jun 2026 21:50:15 GMT
+
+https://www.cbr.com/final-fantasy-9-officially-reveals-new-26th-anniversary-release-available-now/
+
+As fans continue to wait for news of the Final Fantasy IX remake, the legendary PS1 game is being celebrated in a different way.
+---------
+
+# Persona Live-Action Series Officially in the Works at Major Streamer
+
+TV, Persona, Netflix
+
+Mon, 29 Jun 2026 21:40:55 GMT
+
+https://www.cbr.com/persona-netflix-series/
+
+The hit Persona video game series is getting the live-action treatment.
+---------
+
+# All Pokémon Games on Nintendo Switch & Switch 2
+
+Games, Pokemon, Video Games, Nintendo Switch
+
+Mon, 29 Jun 2026 21:30:15 GMT
+
+https://www.cbr.com/pokemon-nintendo-switch-games-ranked/
+
+From Pokémon Café Mix to New Pokémon Snap, here's how critics rank the Nintendo Switch's Pokémon games.
+---------
+
+# Tom Hanks' Greyhound is Better Than Saving Private Ryan
+
+Movies, Greyhound
+
+Mon, 29 Jun 2026 21:30:14 GMT
+
+https://www.cbr.com/tom-hanks-war-movie-greyhound-better-than-saving-private-ryan/
+
+Tom Hanks' war filmography is mostly known because of Saving Private Ryan, but one other film that Hanks did rivals it.
+---------
+
+# 3 Movies You Need To Stream on Prime Video This July
+
+Movie, Prime Video, The Beekeeper, Hoosiers, The Map That Leads to You
+
+Mon, 29 Jun 2026 22:34:14 GMT
+
+https://collider.com/best-movies-prime-video-july-2026/
+
+Hoosiers, The Map That Leads to You, and The Beekeeper make up our list of the best Prime Video movies to stream this July.
+---------
+
+# 'Indiana Jones' Meets 'National Treasure' in the Apple TV Adventure Movie Dominating Streaming
+
+Movie News, Guy Ritchie, Fountain of Youth, John Krasinski, Natalie Portman
+
+Mon, 29 Jun 2026 22:00:15 GMT
+
+https://collider.com/fountain-of-youth-guy-ritchie-action-adventure-streaming-success-apple-tv/
+
+Guy Ritchie's Fountain of Youth passed a massive streaming milestone recently, despite poor reviews. Find out more.
+---------
+
+# ‘God of War’ Is Bringing Thor Back With a New 2027 Release
+
+Video Games, God of War, PlayStation (Original)
+
+Mon, 29 Jun 2026 21:58:24 GMT
+
+https://collider.com/god-of-war-thor-release-january-2027/
+
+God of War has officially revealed a new Thor release for January 2027, putting the Norse god back in the spotlight for franchise fans.
+---------
+
+# 'House of the Dragon’s Greatest Season 3 Quote Proves It’s the Anti-‘Game of Thrones’ Show
+
+TV Features, House of the Dragon, Game Of Thrones, Steve Toussaint, George R.R. Martin
+
+Mon, 29 Jun 2026 21:41:15 GMT
+
+https://collider.com/house-of-the-dragon-season-3-anti-game-of-thrones-corlys-velaryon/
+
+House of the Dragon Season 3 differentiates itself from House of the Dragon by telling a resonant anti-war tale via the Battle of the Gullet.
+---------
+
+# Keanu Reeves' John Wick Clone Is Suddenly Big Deal on Netflix
+
+Movie News, Keanu Reeves, John Wick, siberia, Netflix
+
+Mon, 29 Jun 2026 21:40:17 GMT
+
+https://collider.com/siberia-keanu-reeves-john-wick-clone-netflix-streaming-success/
+
+Four years after John Wick, Keanu Reeves starred in a very similar movie that's now surging on Netflix. Find out more.
+---------
+
+# 7 Must-Watch Shows Coming to Netflix in July
+
+TV, Netflix, Little House on the Prairie, The Hawk, Quarterback
+
+Mon, 29 Jun 2026 21:36:15 GMT
+
+https://collider.com/tv-shows-netflix-july-2026/
+
+From the new adaptation of Little House on the Prairie to Will Ferrell's sports comedy The Hawk, these are the best shows coming to Netflix this July.
+---------
+
+# 5 Fantasy Movies That Prove 'The Lord of the Rings' Isn't the Best of Its Genre
+
+Movie, Fantasy, The Lord of the Rings, Beauty and the Beast, The Wizard of Oz
+
+Mon, 29 Jun 2026 21:31:15 GMT
+
+https://collider.com/better-fantasy-movies-than-the-lord-of-the-rings/
+
+From tales as old as time and trips over the rainbow, these movies are better masterpieces than 'The Lord of the Rings.'
+---------
+
+# Netflix Just Turned a Cancelled Sci-Fi Series Into a Streaming Hit
+
+TV News, The Last Ship, Eric Dane, Netflix, Sci-Fi
+
+Mon, 29 Jun 2026 21:20:15 GMT
+
+https://collider.com/netflix-the-last-ship-eric-dane-streaming-success-june-2026/
+
+The Last Ship, which was recently added to Netflix in its entirety, is quietly becoming one of the biggest streaming sensations of 2026.
+---------
+
+# George R.R. Martin's 100% Rated Dark Thriller Takes a Stand on Streaming
+
+TV News, Dark Winds, House of the Dragon, George R.R. Martin, Game Of Thrones
+
+Mon, 29 Jun 2026 21:15:34 GMT
+
+https://collider.com/dark-winds-amc-plus-streaming-top-10-george-rr-martin/
+
+Dark Winds, the 100% Rotten Tomatoes AMC thriller executive produced by George R.R. Martin, remains in AMC+’s Top 10 after Season 4.
+---------
+
+# 10 Best Epic Movies of the 1990s
+
+Movie, Titanic, Magnolia, The Thin Red Line, Heat
+
+Mon, 29 Jun 2026 21:08:14 GMT
+
+https://collider.com/best-epic-movies-1990s-ranked/
+
+The best epic movies of the 1990s include disaster flicks like Titanic, dramas like Magnolia, and large-scale war films like The Thin Red Line.
+---------
+
+# Netflix's Perfect Sci-Fi Action Adaptation Finally Returns With Stunning Trailer
+
+TV News, Cyberpunk: Edgerunners 2, Netflix
+
+Mon, 29 Jun 2026 22:32:32 GMT
+
+https://movieweb.com/cyberpunk-edgerunners-2-teaser-netflix/
+
+The first trailer for 'Cyberpunk: Edgerunners 2' introduces a new crew in Night City.
+---------
+
+# Scarlett Johansson Reboot of '70s Masterpiece Finally Reveals New Title
+
+Movie News, The Exorcist, Scarlett Johansson, Mike Flanagan
+
+Mon, 29 Jun 2026 22:07:52 GMT
+
+https://movieweb.com/the-exorcist-reboot-title-scarlett-johansson/
+
+The upcoming 'The Exorcist' will seemingly be titled 'The Exorcist: Martyrs.'
+---------
+
+# Netflix Lands New Global Hit With 126-Minute Non-Stop Action Thriller Remake
+
+Movie News, The Killer, Hot on Streaming, Action, John Woo
+
+Mon, 29 Jun 2026 22:00:21 GMT
+
+https://movieweb.com/the-killer-john-woo-netflix-global-streaming-hit-june-2026/
+
+Legendary director John Woo got to remake one of his own action thrillers in 2024, and now it's a global smash on Netflix.
+---------
+
+# 10 Biggest Questions After 'House of the Dragon' Season 3, Episode 2
+
+TV Lists, House of the Dragon
+
+Mon, 29 Jun 2026 22:00:21 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-episode-2-big-questions/
+
+All of your 'House of the Dragon' 3x02 questions in one place with zero book spoilers!
+---------
+
 # KPop Demon Hunters Is Coming Back Soon With New Release
 
 Movies, KPop Demon Hunters
