@@ -1,3 +1,443 @@
+# All 5 Marvel Movies & TV Shows Releasing On Disney+ And Hulu In July 2026
+
+Movies, Marvel Cinematic Universe, Disney+, Hulu
+
+Mon, 29 Jun 2026 17:20:22 GMT
+
+https://screenrant.com/marvel-movies-shows-release-disney-plus-july-2026/
+
+A mix of new Marvel movies and TV shows, with a few old classics, is coming to Disney+ and Hulu in July 2027, featuring Spider-Man and more heroes.
+---------
+
+# Jackass: Best And Last Red Carpet Interviews with Cast & Director
+
+Movies, Jackass, Jackass: Best and Last
+
+Mon, 29 Jun 2026 17:13:25 GMT
+
+https://screenrant.com/video/jackass-best-and-last-red-carpet-johnny-knoxville-ehren-mcgehey-cast/
+
+Jackass: Best and Last may not be the official farewell, as the stars of the comedy franchise reveal a surprising spinoff idea. Johnny Knoxville, Steve-O, Dave England, "Danger" Ehren McGehey, Preston Lacy, Jason "Wee Man" Acuna, Zach "Zackass" Holmes, director Jeff Tremaine, and Bam's parents April and Phil Margera give their takes on the red carpet.
+---------
+
+# Harry Potter’s Origin Story Is Getting An Upgrade
+
+TV
+
+Mon, 29 Jun 2026 17:01:20 GMT
+
+https://screenrant.com/harry-potter-hbo-godrics-hollow-location-upgrade/
+
+HBO's new Harry Potter TV series is expanding on a crucial moment in its title character's origin story, via a major change from the movies.
+---------
+
+# Wistoria, Crunchyroll's Black Clover & Tower of God Fusion, Is Returning For Season 3
+
+Anime, Wistoria: Wand and Sword, Crunchyroll
+
+Mon, 29 Jun 2026 16:59:26 GMT
+
+https://screenrant.com/wistoria-wand-sword-season-3-black-clover-tower-god-fusion-crunchyroll/
+
+The perfect next-watch for fans of Black Clover and Tower of God is on Crunchyroll, and it is offically getting a Season 3 that will be amazing.
+---------
+
+# 5 Breaking Bad Episodes That Are Absolute Masterpieces
+
+Classic TV, Breaking Bad
+
+Mon, 29 Jun 2026 16:45:21 GMT
+
+https://screenrant.com/breaking-bad-episodes-masterpiece/
+
+Every single episode of Breaking Bad was great, but some of them — from "4 Days Out" to "Ozymandias" — stand out as unimpeachable masterpieces.
+---------
+
+# It's Officially The Start Of An Era For Disney's $6.7 Billion Space Opera Franchise
+
+Movies, Masked Recs
+
+Mon, 29 Jun 2026 16:45:21 GMT
+
+https://screenrant.com/avatar-movie-franchise-fire-and-ash-disney-plus-streaming-sequel-boost/
+
+Disney+'s global hit space opera franchise that is a box office phenomenon is officially starting a new era that could lead to the perfect future.
+---------
+
+# Dexter: Resurrection Season 2 Officially Confirms The Return Of Previously Dead Character
+
+TV, Dexter: Resurrection
+
+Mon, 29 Jun 2026 16:39:55 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-krysten-ritter-cast/
+
+Dexter: Resurrection keeps resurrecting characters, as a previously dead character will somehow return for season 2 of the crime series.
+---------
+
+# Prime Video Reveals Bloody New Horror Thriller The Devil's Mouth
+
+Movies, Prime Video
+
+Mon, 29 Jun 2026 16:34:24 GMT
+
+https://screenrant.com/the-devils-mouth-movie-prime-video-trailer-release-date/
+
+Prime Video reveals a bloody new horror thriller, The Devil's Mouth, following five friends on a guided swim through a remote cave system.
+---------
+
+# THAT Villain Twist In Tyler Perry's New R-Rated Blumhouse Thriller Explained By Strung Stars
+
+Interviews, Strung, Lynn Whitfield, Chloe Bailey, Coco Jones
+
+Mon, 29 Jun 2026 16:32:28 GMT
+
+https://screenrant.com/strung-movie-villain-twist-chloe-bailey-lynn-whitfield-coco-jones-interview/
+
+Strung stars Lynn Whitfield and Coco Jones explain why they find the Blumhouse thriller's villain twist such a perfect complement to the story.
+---------
+
+# Doctor Who's Major Update On Future Seasons Is Dividing Fans
+
+Streaming TV, Doctor Who
+
+Mon, 29 Jun 2026 16:31:20 GMT
+
+https://screenrant.com/doctor-who-future-update-dividing-fans/
+
+As the franchise faces uncertainty, the future of Doctor Who hangs in the balance, leaving fans to wonder what lies ahead for the beloved series.
+---------
+
+# Dexter: Resurrection Confirms Shocking Season 2 Return
+
+TV, Dexter: Resurrection
+
+Mon, 29 Jun 2026 17:25:27 GMT
+
+https://www.cbr.com/dexter-resurrection-krysten-ritter-season-2-return/
+
+Someone from Dexter's recent past is returning for the second season of Resurrection.
+---------
+
+# 10 Pokémon TCG Cards That Aren't Valuable Anymore
+
+Games, Pokemon, Pokemon TCG, trading cards, Tabletop
+
+Mon, 29 Jun 2026 17:15:13 GMT
+
+https://www.cbr.com/pokemon-tcg-cards-no-longer-valuable/
+
+Trading cards are volatile, rising and plummeting without a moment's notice in an ever-changing market.
+---------
+
+# The Angry Birds Movie 3   Official Trailer (2026 Movie)
+
+Movies, The Angry Birds Movie 3
+
+Mon, 29 Jun 2026 17:02:35 GMT
+
+https://www.cbr.com/video/the-angry-birds-movie-3-trailer/
+
+Paramount Pictures unveiled The Angry Birds Movie 3 trailer
+---------
+
+# Popular Video Game Franchise Officially Returns With New Sequel After $505M Box Office Run
+
+Movies, The Angry Birds Movie 3, Angry Birds
+
+Mon, 29 Jun 2026 17:01:30 GMT
+
+https://www.cbr.com/angry-birds-movie-3-trailer/
+
+A popular video game film franchise is returning to the big screen after seven years.
+---------
+
+# Tom Cruise's Best Performance Is in This 34-Year-Old Legal Drama Streaming for Free Today
+
+Movies, A Few Good Men, Drama, Paramount
+
+Mon, 29 Jun 2026 17:00:15 GMT
+
+https://www.cbr.com/tom-cruise-a-few-good-men-legal-drama-streaming-free-pluto-tv-june-29/
+
+Tom Cruise is a known action hero, but one of his best performances was in A Few Good Men, which is now streaming for free in the United States.
+---------
+
+# 10 Marvel Heroes That Deserve Their Own Horror Stories
+
+Comics, Marvel Comics, Horror, comic books
+
+Mon, 29 Jun 2026 17:00:15 GMT
+
+https://www.cbr.com/top-marvel-heroes-who-would-shine-in-horror-projects/
+
+These Marvel Characters would fit perfectly into the horror genre.
+---------
+
+# Little House Cast Learned Real Prairie Skills
+
+TV, Little House on the Prairie
+
+Mon, 29 Jun 2026 16:30:14 GMT
+
+https://www.cbr.com/video/little-house-cast-learned-real-prairie-skills/
+
+Little House on the Prairie stars Luke Bracey, Crosby Fitzgerald, Skywalker Hughes, and Alice Halsey share the surprising real-life skills they picked up while bringing the Ingalls family to life for Netflix.
+---------
+
+# NCIS: Origins Officially Canceled Gibbs and Lala's Romantic Storyline
+
+TV, NCIS, NCIS: Origins
+
+Mon, 29 Jun 2026 16:20:14 GMT
+
+https://www.cbr.com/ncis-origins-season-2-romance-gibbs-lala-canceled/
+
+NCIS: Origins canceled a highly anticipated Leroy Jethro Gibbs story due to lore that already exists about Mark Harmon's legendary character.
+---------
+
+# 10 Underrated Naruto Battles Fans Rarely Talk About
+
+Anime, Naruto, shonen anime, Shonen, Naruto: Shippuden
+
+Mon, 29 Jun 2026 16:15:13 GMT
+
+https://www.cbr.com/underrated-naruto-battles-fans-forgot/
+
+Many of the best battles in the Naruto franchise have been pushed aside to make way for those with higher stakes.
+---------
+
+# After 4 Years, Cyberpunk: Edgerunners 2 Finally Reveals Its First Trailer
+
+Anime, Cyberpunk 2077, Cyberpunk: Edgerunners, Cyberpunk: Edgerunners 2, Netflix
+
+Mon, 29 Jun 2026 16:14:37 GMT
+
+https://www.cbr.com/cyberpunk-edgerunners-2-first-trailer-netflix-2026/
+
+The long-awaited anime sequel to Studio Trigger's Cyberpunk: Edgerunners is finally here, dropping this fall on Netflix.
+---------
+
+# HBO Max Is Adding the Perfect Double Feature for Jason Statham Fans
+
+Movie News, The Meg, The Meg 2, Sci-Fi, Jason Statham
+
+Mon, 29 Jun 2026 17:20:14 GMT
+
+https://collider.com/the-meg-2-the-trench-streaming-hbo-max-july-2026/
+
+Jason Statham’s The Meg and Meg 2: The Trench are swimming onto HBO Max this July after earning $927 million worldwide.
+---------
+
+# 10 Most Iconic Video Game Characters of All Time
+
+Movie, Video Game, Nintendo, Gaming, Pokémon
+
+Mon, 29 Jun 2026 17:14:14 GMT
+
+https://collider.com/iconic-video-game-characters-ranked/
+
+While there are many massively popular characters originated from video games, characters like Sonic, Pac-Man, and Mario are in a league of their own.
+---------
+
+# ‘Survivor’ Officially Returns With New Release After 50 Seasons
+
+Books and Comics News, Survivor, Books, Jeff Probst, Reality
+
+Mon, 29 Jun 2026 17:12:41 GMT
+
+https://collider.com/survivor-official-companion-book-50-seasons-jeff-probst/
+
+Survivor is getting an official 50-season companion book from Random House Worlds, featuring behind-the-scenes stories and a foreword by Jeff Probst.
+---------
+
+# 20 Best Fight Scenes in Spider-Man Movies, Ranked
+
+Movie, Spider-Man, Spider-Man: Into The Spider-Verse, Spider-Man: No Way Home
+
+Mon, 29 Jun 2026 17:12:14 GMT
+
+https://collider.com/spider-man-movies-best-fight-scenes-ranked/
+
+From his fight against Electro to his first encounter with the Green Goblin, these are the best fight scenes across the many Spider-Man movies.
+---------
+
+# ‘Back to the Future’ Is Officially Getting a New Release in 2026
+
+Movie News, Back to the Future, Bob Gale, Michael J. Fox
+
+Mon, 29 Jun 2026 16:33:08 GMT
+
+https://collider.com/back-to-the-future-complete-screenplay-book-bob-gale/
+
+Back to the Future: The Complete Screenplay is getting a new release from Insight Editions, including Bob Gale annotations and collector’s editions.
+---------
+
+# Rebecca Ferguson's Apple TV Sci-Fi Series Is Officially a Certified Masterpiece
+
+TV News, Apple TV, Sci-Fi, Silo, Rotten Tomatoes
+
+Mon, 29 Jun 2026 16:18:21 GMT
+
+https://collider.com/silo-season-3-rotten-tomatoes-score-apple-tv/
+
+Rebecca Ferguson-led sci-fi series Silo earns perfect Rotten Tomatoes score for Season 3 ahead of Apple TV return.
+---------
+
+# 10 Sci-Fi Movies With the Best Special Effects
+
+Movie, Avatar: The Way of Water, The Empire Strikes Back, 2001: A Space Odyssey, Jurassic Park
+
+Mon, 29 Jun 2026 16:11:14 GMT
+
+https://collider.com/sci-fi-movies-best-special-effects-ranked/
+
+Sci-fi movies with particularly amazing special effects include classics like The Empire Strikes Back, Blade Runner, and Terminator 2: Judgment Day.
+---------
+
+# Spider-Man, Wiccan and Ghost Rider Unite in Exciting New Marvel Release [Exclusive]
+
+Exclusives, Marvel Comics, Marvel, Comics, Spider-Man
+
+Mon, 29 Jun 2026 16:01:15 GMT
+
+https://collider.com/topps-marvel-comics-cards-2026-storylines-exclusive/
+
+Discover the exclusive card reveal from Topps' 2026 Chrome Marvel Comics set, celebrating the biggest character debuts, storylines, and milestones.
+---------
+
+# 'House of the Dragon's Team Green Reacts to Episode 2's Shocking Execution: "It's a Big Slap in the Face" [Exclusive]
+
+Exclusives, House of the Dragon, Olivia Cooke, HBO, Fantasy
+
+Mon, 29 Jun 2026 15:45:13 GMT
+
+https://collider.com/house-of-the-dragon-season-3-episode-2-otto-death-reaction-olivia-cooke-comments/
+
+House of the Dragon's cast discusses Episode 2's shocking execution and how the Greens will respond in the future.
+---------
+
+# After 4 Years, ‘Cyberpunk’ Officially Returns This Summer With Mind-Blowing New Release
+
+TV News, Cyberpunk: Edgerunners, Cyberpunk: Edgerunners 2, Netflix, Cyberpunk 2077
+
+Mon, 29 Jun 2026 15:43:22 GMT
+
+https://collider.com/netflix-cyberpunk-edgerunners-season-2-official-trailer-release-date/
+
+Netflix has unleashed the electric first trailer for Cyberpunk: Edgerunners Season 2, which will begin streaming this summer.
+---------
+
+# Jesse Eisenberg Finally Confirms Why He Did Not Return for 'Social Reckoning'
+
+Movie News, The Social Reckoning
+
+Mon, 29 Jun 2026 17:23:59 GMT
+
+https://movieweb.com/jesse-eisenberg-explains-why-he-rejected-the-social-reckoning/
+
+Jesse Eisenberg finally revealed the real reason he declined to reprise Mark Zuckerberg in 'The Social Reckoning.'
+---------
+
+# Popular $505M Video Game Movie Franchise Makes Comeback in First Trailer
+
+Movie News, The Angry Birds Movie 3
+
+Mon, 29 Jun 2026 16:43:38 GMT
+
+https://movieweb.com/angry-birds-movie-3-trailer/
+
+It's been seven years since this video game adaptation has graced the big screen.
+---------
+
+# 'X-Men '97' Season 2 Release Schedule: What Time It Releases on Disney+
+
+Features, X-Men '97, X-Men
+
+Mon, 29 Jun 2026 16:40:12 GMT
+
+https://movieweb.com/x-men-97-season-2-release-schedule/
+
+Disney+'s 'X-Men '97' is almost back, and the release schedule is satisfyingly consistent. Read on for more.
+---------
+
+# 10 Best Modern Sitcoms Like 'Malcolm in the Middle'
+
+TV Lists, Malcolm in the Middle
+
+Mon, 29 Jun 2026 16:00:23 GMT
+
+https://movieweb.com/best-sitcoms-like-malcolm-in-the-middle/
+
+Even with a reboot, there is still a big void left for shows like 'Malcolm in the Middle.' These ten shows help scratch that itch.
+---------
+
+# Netflix Finds New Global Smash with 'Taken' Meets 'John Wick' Action Thriller
+
+TV News, Agent Kim Reactivated, Hot on Streaming, Action, Netflix
+
+Mon, 29 Jun 2026 16:00:22 GMT
+
+https://movieweb.com/agent-kim-reactivated-netflix-streaming-hit-june-2026/
+
+Netflix's 'Agent Kim Reactivated' proves once and for all that you shouldn't mess with a father who loves his daughter.
+---------
+
+# The 10 Most Perfect TV Shows Released Since 2010, Ranked
+
+TV Lists, Succession, Breaking Bad, The Crown
+
+Mon, 29 Jun 2026 16:00:22 GMT
+
+https://movieweb.com/most-perfect-tv-shows-since-2010/
+
+These TV shows, from sitcoms to dramas to thrillers, are some of the most impressive series to be released in the past decade.
+---------
+
+# Join Us for an Exclusive Screening of 'Moana' in SCREENX
+
+Features, Moana, Disney, Dwayne Johnson
+
+Mon, 29 Jun 2026 16:00:22 GMT
+
+https://movieweb.com/moana-screening-free-tickets-screenx/
+
+MovieWeb is excited to offer readers the opportunity to see the upcoming live-action 'Moana' in SCREENX before everyone else.
+---------
+
+# 'Silo' Season 3 Review: A Heavy Lean Into Sci-fi-Sets up a Potentially Epic Final Season
+
+TV Reviews, Silo
+
+Mon, 29 Jun 2026 15:55:58 GMT
+
+https://movieweb.com/silo-season-3-review/
+
+'Silo' shifts more into sci-fi territory for its third season, setting up backstory context for the final season to come.
+---------
+
+# 'Die Hard' Director Reveals "Biggest Action Scene You’ve Ever Seen" in New Thriller
+
+Movie News, Samuel L. Jackson, Joel Kinnaman
+
+Mon, 29 Jun 2026 15:51:56 GMT
+
+https://movieweb.com/renny-harlin-the-beast-biggest-action-scene/
+
+The filmmaker says his upcoming thriller will feature what he calls the “biggest action scene you’ve ever seen.”
+---------
+
+# DCU Future Confirmed Following 'Supergirl's Box Office Struggle
+
+Movie News, Supergirl, Peter Safran
+
+Mon, 29 Jun 2026 15:33:11 GMT
+
+https://movieweb.com/supergirl-dcu-future-confirmed-box-office/
+
+DC Studios co-CEO Peter Safran confirmed how he and DC Studios plan to push forward with the DCU following 'Supergirl''s box office struggles.
+---------
+
 # HBO Officially Puts A New Spin On Game Of Thrones' Ending
 
 Streaming TV, House of the Dragon, House of the Dragon - Season 3, Game of Thrones
