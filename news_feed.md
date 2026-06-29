@@ -1,3 +1,399 @@
+# Is Superman Required Viewing Before Supergirl?
+
+Movies, Supergirl
+
+Mon, 29 Jun 2026 19:21:20 GMT
+
+https://screenrant.com/watch-superman-movie-before-supergirl/
+
+Superman sets the stage for Supergirl, but the new DC adventure offers a fresh story that newcomers can enjoy without prior knowledge.
+---------
+
+# House of the Dragon Season 3, Episode 2 Interviews with Emma D'Arcy, Olivia Cooke & Cast
+
+TV, House of the Dragon
+
+Mon, 29 Jun 2026 19:11:53 GMT
+
+https://screenrant.com/video/house-of-the-dragon-season-3-episode-2-emma-darcy-olivia-cooke-interview/
+
+Emma D'Arcy, Olivia Cooke, Fabien Frankel, Harry Collett, Bethany Antonia, Ewan Mitchell, and Gayle Rankin discuss the events of season 3, episodes 1 and 2, and what they mean for the future of the show.
+---------
+
+# Before The Boys, Prime Video Made A Superhero Series That's Finally Coming To Netflix
+
+Streaming TV, Masked Recs
+
+Mon, 29 Jun 2026 19:00:20 GMT
+
+https://screenrant.com/the-tick-amazon-prime-video-show-joining-netflix-july-2026/
+
+Prime Video mastered superhero satire years before The Boys, and the hilarious 2 seasons of proof are finally arriving on Netflix in July.
+---------
+
+# Demon Slayer Officially Begins A New Era October 2026
+
+Gaming, Demon Slayer, Triple-A Games
+
+Mon, 29 Jun 2026 19:00:20 GMT
+
+https://screenrant.com/demon-slayer-infinity-castle-character-pass-october-2026/
+
+Demon Slayer is still a pretty hot commodity with the first part of the film trilogy breaking records, but a new era begins soon.
+---------
+
+# 10 Best Jackass Bits That Aren't In The New Movie
+
+Movies, Jackass: Best and Last, Jackass
+
+Mon, 29 Jun 2026 19:00:20 GMT
+
+https://screenrant.com/jackass-best-and-last-funniest-stunts-not-in-movie/
+
+Jackass: Best and Last is basically a glorified greatest-hits montage of the franchise's best bits, but there wasn't enough room for all of them.
+---------
+
+# A $5.6 Billion Non-Disney Animated Movie Franchise Returns This Week
+
+New Movies, Masked Recs
+
+Mon, 29 Jun 2026 18:32:37 GMT
+
+https://screenrant.com/minions-monsters-release-theaters-how-to-watch/
+
+Hollywood is bringing back one of its biggest non-Disney animated movie franchises this week, as a $5.6 billion series returns with its seventh film.
+---------
+
+# After 58 Years, The Greatest Horror Actor's Best Film Is Still This Underrated Classic With 89% On Rotten Tomatoes
+
+Movies, Masked Recs
+
+Mon, 29 Jun 2026 18:30:20 GMT
+
+https://screenrant.com/targets-boris-karloff-best-movie-greatest-horror-acctor/
+
+His best.
+---------
+
+# Say Goodbye To Arcane As Netflix's Next Fantasy Hit Shows League Of Legends How It's Done
+
+TV, Masked Recs
+
+Mon, 29 Jun 2026 18:29:21 GMT
+
+https://screenrant.com/magic-the-gathering-show-netflix-arcane-replacement/
+
+While Netflix's League of Legends show Arcane might be an iconic fantasy game adaptation, one upcoming series has a chance to outdo this classic.
+---------
+
+# Nintendo Officially Announces Another Switch 2 Price Increase
+
+Gaming, Nintendo Switch 2, Nintendo, Gaming Hardware
+
+Mon, 29 Jun 2026 18:27:51 GMT
+
+https://screenrant.com/nintendo-switch-2-price-increase-south-korea/
+
+Nintendo has announced yet another Switch 2 price increase amid the ongoing component crisis, which is proving to leave no one unaffected.
+---------
+
+# Digger Is Tom Cruise’s Wildest Role Since Tropic Thunder
+
+Movies, Digger
+
+Mon, 29 Jun 2026 18:10:24 GMT
+
+https://screenrant.com/video/digger-is-tom-cruise-s-wildest-role-since-tropic-thunder/
+
+Digger Is Tom Cruise's Boldest Career Move Yet. After decades of redefining blockbuster action through the Mission: Impossible films, Tom Cruise is taking a very different kind of leap with Digger.
+---------
+
+# Illumination & The White Lotus Creator Hit With Theft Lawsuit for $300M Animated Movie 3 Years After Release
+
+Movies, Migration, Illumination Entertainment
+
+Mon, 29 Jun 2026 19:18:27 GMT
+
+https://www.cbr.com/illumination-mike-white-migration-lawsuit/
+
+Just ahead of a new Minions movie, Illumination was hit with a copyright infringement lawsuit.
+---------
+
+# 13 Years Later, Pedro Pascal’s Lost Fantasy Western Is Finally the Perfect Yellowstone Replacement
+
+TV, the sixth gun, Western
+
+Mon, 29 Jun 2026 19:01:13 GMT
+
+https://www.cbr.com/pedro-pascal-the-sixth-gun-lost-fantasy-western/
+
+Back in 2013, Pedro Pascal starred in a failed adaptation of an acclaimed comic series that would work far better in today's television landscape.
+---------
+
+# 10 Greatest Dark Fantasy Movies Of the Last 40 Years, Ranked
+
+Movies, Fantasy, Pan's Labyrinth, Nosferatu
+
+Mon, 29 Jun 2026 19:01:13 GMT
+
+https://www.cbr.com/best-dark-fantasy-movies-last-40-years-ranked-list/
+
+Fantasy doesn't need elves or dragons to be great, sometimes it just needs the darkest of human desires.
+---------
+
+# Taylor Sheridan Slams Marvel & Studio Execs for Breaking Storytelling Rules: 'You Know Nothing'
+
+TV, Paramount, Marvel Cinematic Universe, Yellowstone
+
+Mon, 29 Jun 2026 18:33:18 GMT
+
+https://www.cbr.com/taylor-sheridan-slams-marvel-studio-execs-storytelling-rules/
+
+The TV mogul admitted he is not looking to win Emmys and that he has "rage-baited" critics.
+---------
+
+# Lilo & Stitch Star Daveigh Chase's Cause of Death Revealed
+
+Movies, The Ring, Lilo & Stitch, Lilo & Stitch: The Series
+
+Mon, 29 Jun 2026 18:25:07 GMT
+
+https://www.cbr.com/daveigh-chase-cause-of-death/
+
+Daveigh Chase died at age 35.
+---------
+
+# 10 Times Cowboy Bebop Left Anime Fans To Fill In The Blanks
+
+Anime, Cowboy Bebop
+
+Mon, 29 Jun 2026 18:15:14 GMT
+
+https://www.cbr.com/cowboy-bebop-moments-left-to-interpretation/
+
+Cowboy Bebop remains one of anime's most ambiguous series, leaving many unanswered questions fans still debate to this day.
+---------
+
+# Star Trek's Single-Greatest Season of TV Beats the Trek Movies at Their Own Game
+
+TV, Star Trek, Star Trek: The Next Generation, Star Trek: Picard
+
+Mon, 29 Jun 2026 17:30:14 GMT
+
+https://www.cbr.com/star-trek-picard-season-3-star-trek-movies-comparison/
+
+One of the most beloved seasons of Star Trek encompassed all the themes and elements that made The Original Series movies sci-fi classics.
+---------
+
+# 3 Movies You Need To Stream on Netflix This July
+
+Movie, To Die For, Wind River, Home, Netflix
+
+Mon, 29 Jun 2026 19:19:14 GMT
+
+https://collider.com/best-netflix-movies-watch-july-2026/
+
+Wind River, Home, and To Die For make up our list of the best Netflix movies to stream in July 2026.
+---------
+
+# Pokémon Officially Gives Galar Its Long-Awaited Moment in the Spotlight
+
+TV Features, Pokémon, Aardman Animations, Animation, Pokemon Sword
+
+Mon, 29 Jun 2026 18:56:14 GMT
+
+https://collider.com/pokemon-galar-stop-motion-series-spotlight-deserved/
+
+Pokémon’s new stop-motion series is returning to Galar, giving the Sword and Shield region the attention it has deserved for years.
+---------
+
+# Netflix Lands Global Smash With New 118-Minute Rom-Com
+
+Movie News, Voicemails for Isabelle, Netflix, Zoey Deutch, Nick Robinson
+
+Mon, 29 Jun 2026 18:54:27 GMT
+
+https://collider.com/voicemails-for-isabelle-netflix-worldwide-streaming-hit/
+
+Voicemails for Isabelle, starring Zoey Deutch and Nick Robinson, is becoming a global Netflix hit thanks to its emotional rom-com story.
+---------
+
+# Henry Cavill's New R-Rated Action Thriller Officially Sets Release Date in 1 Month
+
+Movie News, In the Grey, Guy Ritchie, Henry Cavill, Jake Gyllenhaal
+
+Mon, 29 Jun 2026 18:50:44 GMT
+
+https://collider.com/in-the-grey-blu-ray-release-henry-cavill-guy-ritchie/
+
+Guy Ritchie’s In the Grey, starring Henry Cavill, Jake Gyllenhaal and Eiza González, is getting a Blu-ray release after its failed theatrical run.
+---------
+
+# Apple TV’s New Navy SEAL Movie Sets 10/10 Release Date
+
+Movie News, Chris Pratt, Linda Cardellini, Apple TV, The Terminal List
+
+Mon, 29 Jun 2026 18:20:16 GMT
+
+https://collider.com/apple-tv-military-movie-way-of-the-warrior-kid-release-date/
+
+Chris Pratt's next military movie, in which he plays a Navy SEAL, is officially coming to streaming this November.
+---------
+
+# House of the Dragon S3 Used 70 Stuntmen in One Fight | Set Stories
+
+TV, House of the Dragon
+
+Mon, 29 Jun 2026 18:15:14 GMT
+
+https://collider.com/video/house-of-the-dragon-s3-used-70-stuntmen-in-one-fight-set-stories/
+
+House of the Dragon: Alyn's Epic Sea Battle takes Abubakar Salim behind the scenes of Season 3's massive naval action, revealing how the production created some of the show's biggest practical sequences.
+---------
+
+# The Best Multiverse Sci-Fi Saga Ever Made Is Finally Streaming for Free Soon
+
+TV News, Sliders, Fox, Quantum Leap, Tubi
+
+Mon, 29 Jun 2026 18:00:15 GMT
+
+https://collider.com/best-multiverse-sci-fi-saga-ever-made-sliders-free-streaming-tubi-july-2026/
+
+Sliders, the classic multiverse sci-fi series that was cancelled after five seasons in 2000, is finally coming to Tubi for free streaming.
+---------
+
+# 24 Years Later, This Iconic HBO Series Is Still the Greatest Summer Rewatch
+
+TV Features, The Wire, HBO, HBO Max, David Simon
+
+Mon, 29 Jun 2026 17:47:14 GMT
+
+https://collider.com/hbo-best-summer-rewatch-series-the-wire/
+
+David Simon's HBO crime series The Wire is the perfect summer season binge.
+---------
+
+# YouTube Just Made It Even Easier to Watch Your Favorite Shows
+
+TV News, Peacock, YouTube, NBCUniversal
+
+Mon, 29 Jun 2026 17:46:30 GMT
+
+https://collider.com/peacock-youtube-primetime-channels-streaming-expansion/
+
+Peacock is joining YouTube Primetime Channels, expanding NBCUniversal’s streaming reach and giving viewers another way to subscribe through YouTube.
+---------
+
+# ‘Sinners’ Officially Concedes #1 Box Office Record to 2026’s New Horror Darling
+
+Movie News, Obsession, Sinners, Box Office, Curry Barker
+
+Mon, 29 Jun 2026 17:40:13 GMT
+
+https://collider.com/obsession-highest-grossing-original-film-2020s-global-box-office-370-million/
+
+After only one year, Sinners has given up its most impressive box office record to the horror darling of 2026, Obsession.
+---------
+
+# 'S.W.A.T.' Officially Sets Return With New Release Date
+
+TV News, S.W.A.T. Exiles, S.W.A.T.
+
+Mon, 29 Jun 2026 19:00:43 GMT
+
+https://movieweb.com/swat-exiles-starz-release-date-confirmed/
+
+'S.W.A.T.' fans will soon see Hondo return with a new team of rookie recruits, now that the spin-off 'Exiles' release date has been confirmed.
+---------
+
+# 10 Worst Needle Drops of All Time
+
+Movie Lists, Music, Supergirl
+
+Mon, 29 Jun 2026 19:00:19 GMT
+
+https://movieweb.com/worst-needle-drops-all-time/
+
+Needle drops? More like record scratches. These songs are completely wrong for the scenes they were meant to elevate.
+---------
+
+# 'Dexter' Sequel Series Officially Resurrecting Fan-Favorite for Season 2
+
+TV News, Dexter: Resurrection, Krysten Ritter
+
+Mon, 29 Jun 2026 18:43:36 GMT
+
+https://movieweb.com/dexter-resurrection-season-2-krysten-ritter-return/
+
+'Dexter: Resurrection' will bring back a major guest star from Season 1, but their role in Season 2 is still being kept under wraps.
+---------
+
+# One of 2026's Biggest Thrillers Is Getting Extended Re-Release Next Month
+
+Movie News, Backrooms
+
+Mon, 29 Jun 2026 18:29:51 GMT
+
+https://movieweb.com/a24-backrooms-extended-re-release/
+
+A24's big summer horror hit is returning to theaters with some new surprises.
+---------
+
+# 'House of the Dragon' Season 3, Episode 2's 3 Major Deaths vs. the Book
+
+TV Lists, House of the Dragon
+
+Mon, 29 Jun 2026 18:23:37 GMT
+
+https://movieweb.com/house-of-the-dragon-episode-2-deaths-book-differences/
+
+Did the show honor the source material?
+---------
+
+# Apple TV's Best Sci-Fi Series Lands Perfect Rotten Tomatoes Return
+
+TV News, Silo, Apple TV
+
+Mon, 29 Jun 2026 18:13:57 GMT
+
+https://movieweb.com/silo-season-3-reviews-rotten-tomatoes/
+
+Season 3 of 'Silo' is off to a promising start with a 100% rating on the aggregator site.
+---------
+
+# 'Wednesday' Season 3 Filming Reportedly Paused After "Nasty" Cast Member Injury
+
+TV News, Wednesday, Netflix, Eva Green
+
+Mon, 29 Jun 2026 18:08:47 GMT
+
+https://movieweb.com/wednesday-season-3-filming-paused-eva-green-injury/
+
+Filming on Netflix's 'Wednesday' Season 3 was reportedly paused after Eva Green sustained a "nasty" leg injury on set, prompting a hospital visit.
+---------
+
+# Netflix's Addictive New Harlan Coben Crime Thriller Is Dominating Streaming
+
+TV News, I Will Find You, Netflix, Hot on Streaming, Harlan Coben, Crime, Thriller
+
+Mon, 29 Jun 2026 18:00:20 GMT
+
+https://movieweb.com/netflix-i-will-find-you-stream-charts-june-2026/
+
+Starring 'Avatar's Sam Worthington, Netflix's latest thriller series proves to be even more "binge-worthy" than most.
+---------
+
+# The 10 Best New High Fantasy Book Series of the Last 10 Years
+
+TV Lists, Fantasy
+
+Mon, 29 Jun 2026 18:00:20 GMT
+
+https://movieweb.com/best-new-high-fantasy-books-last-decade/
+
+Fantasy fans will want to read these incredible high fantasy books from the past decade if they haven't already.
+---------
+
 # All 5 Marvel Movies & TV Shows Releasing On Disney+ And Hulu In July 2026
 
 Movies, Marvel Cinematic Universe, Disney+, Hulu
