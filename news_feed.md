@@ -1,3 +1,278 @@
+# Bestselling Romantasy Series Is The Vampire ACOTAR You Never Knew You Needed
+
+Books, Romantasy, A Court of Thorns and Roses (2015)
+
+Mon, 29 Jun 2026 23:38:36 GMT
+
+https://screenrant.com/the-crowns-of-nyaxia-vampire-acotar-recommendation/
+
+If you're craving more romantasy, one bestselling BookTok series with six novels is the vampire ACOTAR that will satiate your appetite.
+---------
+
+# James Gunn's DCU Officially Replaces The Suicide Squad
+
+Movies, DC Universe
+
+Mon, 29 Jun 2026 23:37:21 GMT
+
+https://screenrant.com/bane-and-deathstroke-james-gunn-dcu-suicide-squad-replacement/
+
+2021's The Suicide Squad made villain-focused superhero movies work, and the rebooted DCU finally looks like it has its own equivalent.
+---------
+
+# Supergirl’s Major Kryptonite Twist Deserved So Much More
+
+Superheroes
+
+Mon, 29 Jun 2026 23:30:21 GMT
+
+https://screenrant.com/supergirl-kryptonite-twist-deserved-more-dcu-barenton/
+
+The new Supergirl movie adapts several moments from the Woman of Tomorrow comic quite well, though one scene should have been much bigger.
+---------
+
+# House Of The Dragon Confirms The Harsh Truth About The Dance Of The Dragons In 1 Line
+
+Streaming TV, House of the Dragon, House of the Dragon - Season 3, Game of Thrones
+
+Mon, 29 Jun 2026 23:30:21 GMT
+
+https://screenrant.com/house-of-the-dragon-baela-line-dance-of-the-dragons-truth/
+
+House of the Dragon season 3 has been full of victories for Rhaenyra Targaryen and her black faction, but is there really any such thing in war?
+---------
+
+# 5 Marvel Weapons Stronger Than The Infinity Stones
+
+Comics, Marvel
+
+Mon, 29 Jun 2026 23:30:21 GMT
+
+https://screenrant.com/marvel-weapons-stronger-infinity-stones/
+
+Marvel's Infinity Stones, by design, contain the powers of a universe. However, the Marvel multiverse holds more than items of unimaginable power.
+---------
+
+# DC Officially Reveals Black Canary's Design For Superman's New Appearance
+
+Streaming TV, Masked Recs
+
+Mon, 29 Jun 2026 23:17:38 GMT
+
+https://screenrant.com/my-adventures-with-superman-hbo-max-dc-black-canary-reveal/
+
+Black Canary shockingly shows up in Superman's new DC appearance, and the beloved hero sports a fitting design that should make fans happy.
+---------
+
+# 5 Best Shows You Can Watch For Free This Week (June 29-July 5)
+
+Streaming TV
+
+Mon, 29 Jun 2026 23:15:21 GMT
+
+https://screenrant.com/tv-shows-watch-free-week-of-june-29/
+
+Even though many major streaming services are raising their prices, you can watch these iconic TV shows at no cost thanks to these free platforms.
+---------
+
+# When Everyone Watches Anime, What Happens to Anime?
+
+Anime, Netflix
+
+Mon, 29 Jun 2026 23:05:18 GMT
+
+https://screenrant.com/its-official-netflix-declares-2026-the-start-new-anime-era/
+
+Anime has become a globally accessible medium, unlike its niche past. But what does that imply for the future of the medium?
+---------
+
+# Hulu's 66-Episode Dystopian Series Is So Good, It Goes Way Beyond The Book It's Based On
+
+TV, Masked Recs
+
+Mon, 29 Jun 2026 23:02:23 GMT
+
+https://screenrant.com/the-handmaids-tale-hulu-goes-beyond-book/
+
+Hulu's most iconic dystopian series was so such a huge hit that the sci-fi show ended up lasting five seasons after adapting the book it was based on.
+---------
+
+# How From Season 4 Finale Death Kicks Off Fatima's "Villain Origin Story" Explained By Star
+
+TV, From, FROM - Season 4
+
+Mon, 29 Jun 2026 23:00:26 GMT
+
+https://screenrant.com/from-season-4-fatima-villain-origin-story-pegah-ghafoori-explained/
+
+EXCLUSIVE: From's Fatima star, Pegah Ghafoori, breaks down how the game-changing season 4 finale serves as a "villain origin story" for her character.
+---------
+
+# John Cena Shows Off Surprising New Look in Viral Photo
+
+TV, John Cena
+
+Mon, 29 Jun 2026 23:29:16 GMT
+
+https://www.cbr.com/john-cena-bald-new-photo/
+
+An image of John Cena is going viral after the former WWE champion revealed his new look.
+---------
+
+# Dragon Ball's U.S. Censorship Forced Every Single Book to Be Destroyed, Sales Director Reveals
+
+Anime, Dragon Ball, censorship, toys r us
+
+Mon, 29 Jun 2026 23:00:15 GMT
+
+https://www.cbr.com/dragon-ball-america-censorship-toys-r-us/
+
+The Dragon Ball censorship stemmed from the complaint of just one parent after checking out the series in Toys R Us.
+---------
+
+# Star Trek Officially Revived Its Best Villains After a 24-Year Wait
+
+TV, Star Trek, Star Trek: Deep Space Nine, Star Trek: Picard
+
+Mon, 29 Jun 2026 23:00:15 GMT
+
+https://www.cbr.com/star-trek-picard-season-3-vadic-retrurn/
+
+More than two decades after the end of Deep Space Nine, Star Trek: Picard resurrected the greatest villains from that series with a new origin.
+---------
+
+# 6 Darkest Comic Book Movie Masterpieces
+
+Movies, Thriller, The Batman, Action
+
+Mon, 29 Jun 2026 23:00:15 GMT
+
+https://www.cbr.com/perfect-dark-comic-book-movies-list/
+
+Comic books have inspired some of the greatest movie adaptations of all time, leaving audiences with a small selection of masterpieces.
+---------
+
+# A24's Critically Underrated 104-Minute Horror Gets Revenge on Streaming After $2.2M Run
+
+Movies, Opus
+
+Mon, 29 Jun 2026 22:54:27 GMT
+
+https://www.cbr.com/opus-a24-streaming-success/
+
+The underseen horror earns redemption on streaming after bombing at the box office.
+---------
+
+# 'The Love Hypothesis' Officially Gets Sequel as Amazon Goes All In on Ali Hazelwood
+
+Movie News, The Love Hypothesis, Prime Video, Romance, Colleen Hoover
+
+Mon, 29 Jun 2026 23:15:26 GMT
+
+https://collider.com/love-theoretically-movie-amazon-mgm-ali-hazelwood-colleen-hoover/
+
+Ali Hazelwood’s Love, Theoretically is getting a movie adaptation at Amazon MGM Studios, with Colleen Hoover producing and Sofia Alvarez directing.
+---------
+
+# 10 Biggest Changes Between 'Avatar: The Last Airbender' Season 2 and the Animated Show
+
+TV, Avatar: The Last Airbender, Netflix, Fantasy
+
+Mon, 29 Jun 2026 23:14:14 GMT
+
+https://collider.com/avatar-the-last-airbender-netflix-season-2-changes-ranked/
+
+Netflix's live-action adaptation of Avatar: The Last Airbender features several major changes compared to the beloved Nickelodeon animated series.
+---------
+
+# 10 Best Books of the 1950s
+
+Books and Comics, The Lord of the Rings, Lolita, The Talented Mr. Ripley, The Haunting of Hill House
+
+Mon, 29 Jun 2026 23:08:14 GMT
+
+https://collider.com/best-1950s-books-ranked/
+
+The 1950s saw the publication of some amazing books, with The Lord of the Rings, Fahrenheit 451, and The Talented Mr. Ripley being among the best.
+---------
+
+# Christopher Nolan Hit With Devastating Box Office Blow Before 'The Odyssey'
+
+Movie News, Michael, Oppenheimer, Box Office, Biopic
+
+Mon, 29 Jun 2026 23:00:16 GMT
+
+https://collider.com/michael-jackson-biopic-overtakes-oppenheimer-highest-grossing-biopic-in-box-office-history/
+
+Christopher Nolan's Oppenheimer has been overtaken as the highest-grossing biopic in box office history by Michael. Find out more.
+---------
+
+# 10 Worst Movies That Tried To Be 'E.T. the Extra-Terrestrial'
+
+Movie, Nukie, E.T. the Extra-Terrestrial, Steven Spielberg, Sci-Fi
+
+Mon, 29 Jun 2026 22:53:14 GMT
+
+https://collider.com/worst-movies-tried-to-be-et-the-extra-terrestrial/
+
+E.T. the Extra-Terrestrial was a global phenomenon that spawned many knockoffs, with films like Purple People Eater, Badi, and Nukie being the worst.
+---------
+
+# One of Gaming’s Greatest RPG Franchises Officially Gets Netflix Live-Action Series
+
+TV News, Persona, Netflix, Shawn Levy, 21 Laps Entertainment
+
+Mon, 29 Jun 2026 22:42:29 GMT
+
+https://collider.com/persona-live-action-netflix-series-shawn-levy/
+
+Netflix is developing a live-action Persona TV series, with Christopher Monfette attached to write and showrun and Shawn Levy’s 21 Laps producing.
+---------
+
+# AMC's 3-Part Vampire Thriller Just Brought Back a Fan-Favorite Nobody Saw Coming
+
+TV Features, Interview with the Vampire, The Vampire Lestat, Delainey Hayles, AMC+
+
+Mon, 29 Jun 2026 22:41:13 GMT
+
+https://collider.com/the-vampire-lestat-episode-4-delainey-hayles-return-claudia-regina/
+
+The Vampire Lestat brings back a fan-favorite face in one of the show's most unexpected deviations from the source material.
+---------
+
+# New Look at 'Resident Evil' Promises a Non-Stop Thrill Ride
+
+Movie News, Resident Evil, Zach Cregger
+
+Mon, 29 Jun 2026 23:17:46 GMT
+
+https://movieweb.com/resident-evil-reboot-new-look/
+
+The upcoming horror film from the director of 'Weapons' is filled with both scares and action.
+---------
+
+# Russell Crowe's 95%-RT "Disturbing" War Thriller Becomes Streaming Hit
+
+Movie News, Nuremberg, Hot on Streaming
+
+Mon, 29 Jun 2026 23:00:26 GMT
+
+https://movieweb.com/nuremberg-prime-video-streaming-success-june-2026/
+
+It is certainly one of the best recent war movies based on true events, though not everyone agreed.
+---------
+
+# James Bond Veteran Rules Out Longtime Favorites as Reboot Auditions Begin
+
+Movie News, James Bond, James Bond 26
+
+Mon, 29 Jun 2026 22:39:37 GMT
+
+https://movieweb.com/james-bond-casting-director-rules-out-favorites/
+
+Three major contenders for James Bond were officially ruled out by a franchise veteran ahead of the next round of auditions.
+---------
+
 # House Of The Dragon Season 3 Quietly Gets Better Once It Remembers Its Main Characters
 
 TV, House of the Dragon
