@@ -1,3 +1,388 @@
+# KPop Demon Hunters Is Coming Back Soon With New Release
+
+Movies, KPop Demon Hunters
+
+Mon, 29 Jun 2026 21:01:22 GMT
+
+https://screenrant.com/kpop-demon-hunters-comic-bonus-content-november-2026/
+
+Fans of the record-breaking Netflix movie KPop Demon Hunters are in for a treat as the franchise makes a surprise return, but the news isn't all good.
+---------
+
+# Naruto’s Long-Awaited Official Return Has Fans Losing Their Minds
+
+Gaming, Naruto
+
+Mon, 29 Jun 2026 21:00:22 GMT
+
+https://screenrant.com/naruto-official-2026-return-card-game-reactions/
+
+With Naruto finally returning in a big way very soon, fans are absolutely losing their minds, with many excited to see it come back.
+---------
+
+# 5 Adventure Movie Trilogies Better Than Indiana Jones
+
+Movies, Indiana Jones
+
+Mon, 29 Jun 2026 21:00:22 GMT
+
+https://screenrant.com/adventure-movie-trilogies-better-than-indiana-jones/
+
+Five adventure trilogies surpassed the iconic original Indiana Jones with greater consistency, deeper stories, and even bigger cultural impact.
+---------
+
+# Warner Bros. Officially Casts The Next Batman
+
+Movies, Masked Recs
+
+Mon, 29 Jun 2026 20:45:22 GMT
+
+https://screenrant.com/dc-next-batman-actor-anson-mount-knightall-movie/
+
+Warner Bros. has officially cast its new Batman for one of its most exciting upcoming projects, which is on the path to being a huge success.
+---------
+
+# Netflix's Avatar: The Last Airbender Finally Answers The Original Show's Biggest Bending Plot Hole
+
+Streaming TV, Avatar: The Last Airbender
+
+Mon, 29 Jun 2026 20:31:22 GMT
+
+https://screenrant.com/avatar-the-last-airbender-season-2-aang-heal-waterbending-original-show/
+
+Netflix’s Avatar: The Last Airbender makes many changes to the original show, with one answering a bending plot hole fans have long wondered about.
+---------
+
+# Tom Cruise's Underrated War Movie Overshadowed By Top Gun Hits Netflix In Just A Few Days
+
+Movies, Masked Recs
+
+Mon, 29 Jun 2026 20:24:30 GMT
+
+https://screenrant.com/tom-cruise-born-on-the-fourth-july-netflix-release-date-july-2026/
+
+Tom Cruise's powerful war movie, which earned him his first Academy Award nomination, is coming to Netflix's catalog in just a few days.
+---------
+
+# Sinners' Huge Box Office Record Beaten By A Horror Movie That Cost Less Than 1% Of Its Budget
+
+Movies, Horror, Box Office, Obsession
+
+Mon, 29 Jun 2026 20:16:21 GMT
+
+https://screenrant.com/obsession-2026-box-office-highest-grossing-live-action-original-movie-sinners-comparison/
+
+Ryan Coogler's Oscar-winning Sinners set a major box office record that has now officially been broken by the new low-budget horror movie.
+---------
+
+# 7 Ways Tombstone Has Aged Well 33 Years Later
+
+Movies, Tombstone
+
+Mon, 29 Jun 2026 20:16:21 GMT
+
+https://screenrant.com/tombstone-movie-ways-aged-well/
+
+It's been more than three decades since Tombstone hit theaters, and unlike many other beloved westerns, this modern classic still holds up today.
+---------
+
+# Daveigh Chase’s Cause Of Death Revealed After Lilo & Stich Star’s Death At Age 35
+
+Movies, Lilo & Stitch, Daveigh Chase
+
+Mon, 29 Jun 2026 20:11:23 GMT
+
+https://screenrant.com/daveigh-chase-cause-of-death-aids/
+
+Daveigh Chase, best known for voicing Lilo in the original animated Lilo & Stitch Disney movie released in 2022, has had her cause of death revealed.
+---------
+
+# Fallout Free Download Available For Less Than 24 Hours
+
+Gaming, Fallout, Triple-A Games
+
+Mon, 29 Jun 2026 20:07:33 GMT
+
+https://screenrant.com/fallout-76-chefs-kiss-emote-leaving-june-30/
+
+Although Fallout is still enjoying a resplendent era thanks to a long-running legacy and the new TV show, there's a free download to grab.
+---------
+
+# 6 Ways Mortal Kombat III Needs To Improve Upon the Second Film
+
+Movies, Mortal Kombat, Mortal Kombat II
+
+Mon, 29 Jun 2026 21:00:14 GMT
+
+https://www.cbr.com/how-mortal-kombat-iii-improves-on-sequel-list/
+
+Mortal Kombat II, much like the video game of the same name, towered over the first, but a third movie can make it perfect.
+---------
+
+# Cartoon Network's Highly Anticipated Reboot Debuts to Perfect Rotten Tomatoes Score
+
+TV, Adventure Time, Adventure Time: Side Quests
+
+Mon, 29 Jun 2026 20:46:42 GMT
+
+https://www.cbr.com/cartoon-network-adventure-time-side-quests-rotten-tomatoes-score/
+
+The franchise is currently thriving, with the soft reboot and another spinoff in the works.
+---------
+
+# 5 Masterpiece Animated Movies Better Than How to Train Your Dragon
+
+Movies, How to Train Your Dragon
+
+Mon, 29 Jun 2026 20:30:14 GMT
+
+https://www.cbr.com/animated-movies-better-than-how-to-train-your-dragon-list/
+
+It's hard to beat the first time Hiccup rode Toothless in How to Train Your Dragon, but these animated movies are even more breathtaking.
+---------
+
+# CBS Hit Drama Fire Country Casts Its First Series Regular Addition Ever in Season 5
+
+TV, Fire Country
+
+Mon, 29 Jun 2026 20:28:25 GMT
+
+https://www.cbr.com/cbs-fire-country-casts-olivia-thirlby-season-5-series-regular/
+
+CBS' Fire Country just picked up its first new series regular for its hotly-anticipated fifth season, and fans will love the addition.
+---------
+
+# 5 Classic '90s Anime That Feel Surprisingly Relevant Now
+
+Anime, Serial Experiments Lain, Cowboy Bebop, Ghost in the Shell
+
+Mon, 29 Jun 2026 20:15:15 GMT
+
+https://www.cbr.com/classic-90s-anime-relevant-now/
+
+Some of the most iconic 90s anime are even more relevant today than they were in their prime.
+---------
+
+# It’s Official: Star Trek’s Canceled 94% RT Series Returns With New Episodes in Just 1 Month
+
+TV, Star Trek: Strange New Worlds, Star Trek, Paramount Plus
+
+Mon, 29 Jun 2026 20:11:16 GMT
+
+https://www.cbr.com/star-trek-strange-new-worlds-season-4-release-date-july-2026/
+
+Star Trek's canceled, critically acclaimed series finally returns next month.
+---------
+
+# Marvel Just Revived the Ultimate Universe in Its Most Shocking Twist Yet
+
+Comics, What If...?, Marvel Comics
+
+Mon, 29 Jun 2026 20:00:15 GMT
+
+https://www.cbr.com/marvel-ultimate-universe-what-if-secret-wars-preview/
+
+After its so-called 'finale', Marvel is already bringing back the Ultimate Universe, but its future still doesn't look too bright.
+---------
+
+# Harimanga, Manhwaclan and Kunmanga Shut Down as Major Manga Sites Go Dark
+
+Anime, piracy, Manga, webtoons, digital piracy
+
+Mon, 29 Jun 2026 20:00:15 GMT
+
+https://www.cbr.com/harimanga-manhwaclan-kunmanga-shut-down/
+
+Manga fans now have three fewer go-to websites for reading as they are shut down for good.
+---------
+
+# Tobey Maguire's Spider-Man Still Has the Best Superhero Quote
+
+Movies, Spider-Man
+
+Mon, 29 Jun 2026 20:00:15 GMT
+
+https://www.cbr.com/tobey-maguire-spider-man-best-superhero-quote/
+
+Over 20 years later, this Spider-Man quote still utterly defines the iconic character on the big screen.
+---------
+
+# Prime Video's Legally Blonde Prequel Fails to Impress Critics on Rotten Tomatoes
+
+TV, Elle, Legally Blonde
+
+Mon, 29 Jun 2026 19:59:42 GMT
+
+https://www.cbr.com/prime-video-elle-rotten-tomatoes-score/
+
+As it turns out, it was hard.
+---------
+
+# ‘Backrooms’ Officially Returns to Theaters With 15 Minutes of New Footage
+
+Movie News, Backrooms, Kane Parsons, Horror, A24
+
+Mon, 29 Jun 2026 21:00:14 GMT
+
+https://collider.com/backrooms-re-release-everything-must-go-edition-rerelease-new-footage-15-minutes/
+
+A24 has announced a new theatrical re-release of Backrooms featuring 15 minutes of exclusive post-credit footage from director Kane Parsons.
+---------
+
+# 10 Greatest Video Games That Are Better the Second Time Around
+
+Video Games, Video Game, Final Fantasy, Cyberpunk 2077, Star Wars: Knights of the Old Republic
+
+Mon, 29 Jun 2026 20:48:16 GMT
+
+https://collider.com/best-video-games-better-the-second-time/
+
+From Elden Ring to The Stanley Parable, these are the best video games that improve when played a second time, recontextualizing the whole experience.
+---------
+
+# 3 Shows You Need To Binge on Netflix This July
+
+TV, The Amazing Digital Circus, Sullivan's Crossing, Money Heist, Netflix
+
+Mon, 29 Jun 2026 20:47:16 GMT
+
+https://collider.com/netflix-shows-binge-july-2026/
+
+Sullivan's Crossing, Money Heist, and The Amazing Digital Circus make up our list of shows you need to binge on Netflix this July.
+---------
+
+# DC Defends ‘Supergirl’ After $38M Box Office Stumble
+
+Movie News, Supergirl, Milly Alcock, James Gunn
+
+Mon, 29 Jun 2026 20:45:32 GMT
+
+https://collider.com/supergirl-box-office-debut-peter-safran-dc-defense/
+
+DC Studios defends Supergirl after the movie’s disappointing box office debut raised new questions about James Gunn’s DCU.
+---------
+
+# ‘The Bear’ Season 5 Is Officially Just a Flash in the Pan on Streaming
+
+TV News, The Bear, Not Suitable for Work, Disney+, Hulu
+
+Mon, 29 Jun 2026 20:40:15 GMT
+
+https://collider.com/the-bear-not-suitable-for-work-disney-plus-streaming-success-june-2026/
+
+The Bear's fifth and final season premieres, competing for the top spot with Mindy Kaling's hit workplace sitcom, which recently aired its finale.
+---------
+
+# ‘Supergirl’ Officially Opens Behind Matt Smith's Infamous Marvel Box Office Disaster
+
+Movie News, Supergirl, Morbius, DC, Marvel
+
+Mon, 29 Jun 2026 20:20:15 GMT
+
+https://collider.com/supergirl-box-office-debut-behind-morbius-james-gunn-dcu/
+
+James Gunn's Supergirl opened to mixed reviews and a weak box office, with its domestic debut trailing even Morbius.
+---------
+
+# ‘X-Men ’97’ Is Officially Doing Something No Other Marvel Series Has
+
+TV News, X-Men '97, Marvel Animation, MCU, Disney Plus
+
+Mon, 29 Jun 2026 19:49:26 GMT
+
+https://collider.com/x-men-97-daves-hot-chicken-marvel-collectible-meal/
+
+Dave’s Hot Chicken and Marvel Animation are launching a limited-time X-Men ’97 meal with blind-bag Wolverine, Cyclops, Storm & Jean Grey collectibles.
+---------
+
+# Rob Lowe Officially Confirms Brat Pack Sequel After 40 Years
+
+Movie News, St. Elmo's Fire, Rob Lowe, Demi Moore, Emilio Estevez
+
+Mon, 29 Jun 2026 19:46:59 GMT
+
+https://collider.com/st-elmos-fire-2-rob-lowe-brat-pack-sequel-update/
+
+Rob Lowe has shared a promising update on St. Elmo’s Fire 2, revealing that the long-awaited sequel script is still being developed.
+---------
+
+# 8 Dark Fantasy Books That Are Perfectly Written
+
+Movie, Books, Fantasy, The Last Unicorn, George R.R. Martin
+
+Mon, 29 Jun 2026 19:41:16 GMT
+
+https://collider.com/dark-fantasy-books-perfectly-written/
+
+A Storm of Swords,  The Last Unicorn, and The Blade Itself are all among the very best dark fantasy books that are perfectly written.
+---------
+
+# Underrated 'Scrubs' Scene Foreshadowed Zach Braff's Cameo in Another 2000s Sitcom
+
+Features, Scrubs, Arrested Development, Zach Braff
+
+Mon, 29 Jun 2026 21:00:20 GMT
+
+https://movieweb.com/scrubs-shower-shorts-arrested-development-cameo/
+
+Zach Braff has had several guest appearances in other TV shows, but one of them comes with a few hidden layers. Read on for more.
+---------
+
+# Prime Video's 'The Devil's Mouth' Trailer
+
+Movie News, Prime Video, Thriller
+
+Mon, 29 Jun 2026 20:57:48 GMT
+
+https://movieweb.com/the-devils-mouth-trailer/
+
+Kathryn Newton and Lana Condor star in the first trailer for Prime Video's intense new shark survival thriller 'The Devil's Mouth'.
+---------
+
+# 'Backrooms' Digital Streaming Date Officially Confirmed
+
+Movie News, Backrooms, A24
+
+Mon, 29 Jun 2026 20:20:32 GMT
+
+https://movieweb.com/backrooms-streaming-date-confirmed/
+
+The A24 horror movie is set to hit PVOD on Jul. 7.
+---------
+
+# 'Forgetting Sarah Marshall' Finally Gets a Positive Sequel Update From Jason Segel
+
+Movie News, Forgetting Sarah Marshall, Jason Segel, Comedy
+
+Mon, 29 Jun 2026 20:10:35 GMT
+
+https://movieweb.com/forgetting-sarah-marshall-sequel-update-jason-segal/
+
+The long-awaited comedy sequel is finally gaining momentum, with an exciting update from writer and star Jason Segel.
+---------
+
+# 'From' Creators Officially Confirm Truth Behind Shocking Season 4 Finale
+
+TV News, From, Horror, Drama
+
+Mon, 29 Jun 2026 20:04:15 GMT
+
+https://movieweb.com/from-season-4-finale-2-part-story/
+
+There's only one season of 'From' left, and it was designed to be part of a bigger whole.
+---------
+
+# 11 Years Later, Steven Spielberg Conquers His Own Spy Thriller Masterpiece at the Global Box Office
+
+Movie News, Disclosure Day, Bridge of Spies, Steven Spielberg
+
+Mon, 29 Jun 2026 20:00:22 GMT
+
+https://movieweb.com/disclosure-day-beats-bridge-spies-box-office-june-2026/
+
+Two of Steven Spielberg’s most acclaimed films prove his ability to defy worldwide box-office expectations.
+---------
+
 # Is Superman Required Viewing Before Supergirl?
 
 Movies, Supergirl
