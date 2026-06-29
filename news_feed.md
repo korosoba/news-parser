@@ -1,3 +1,333 @@
+# Supergirl Repeats The Worst Trend In Female-Led Superhero Movies
+
+Superheroes, Supergirl, DC Universe
+
+Mon, 29 Jun 2026 04:55:48 GMT
+
+https://screenrant.com/supergirl-2026-female-superhero-trauma-trend/
+
+While Supergirl brings a complex lead to screen in Milly Alcock's Kara Zor-El, it suffers from the same pitfalls as prior female-led superhero films.
+---------
+
+# Did DC Just Reference Nicolas Cage’s Superman (Again)?
+
+Superheroes, Supergirl, DC Universe, Nicolas Cage
+
+Mon, 29 Jun 2026 03:58:49 GMT
+
+https://screenrant.com/nicolas-cage-superman-reference-in-supergirl/
+
+One scene in the DCU's new Supergirl movie may very well be a reference to Nicolas Cage's Superman Lives (3 years after the last controversial homage)
+---------
+
+# 10 Live-Action '90s Family Movies That Still Hold Up Today
+
+Classic Movies, Ranking
+
+Mon, 29 Jun 2026 03:46:26 GMT
+
+https://screenrant.com/best-live-action-90s-family-movies/
+
+The 1990s had some great family friendly movies that still hold up well today, and these movies are still perfect for parents and kids to watch.
+---------
+
+# Keanu Reeves' Adaptation Of Philip K. Dick Sci-Fi Novel Is Better Than His Matrix Sequels
+
+Classic Movies, Masked Recs
+
+Mon, 29 Jun 2026 03:35:24 GMT
+
+https://screenrant.com/a-scanner-darkly-philip-k-dick-keanu-reeves-better-matrix-sequels/
+
+As incredible as The Matrix movies might still seem, Keanu Reeves’ underrated Philip K. Dick sci-fi adaptation is arguably far better than all of them
+---------
+
+# Steam Officially Drops 8 Free Games You Can Keep Forever, No Catch
+
+Gaming, Steam
+
+Mon, 29 Jun 2026 03:30:20 GMT
+
+https://screenrant.com/steam-8-free-games-june-2026-no-subscription/
+
+Steam has become a great place to go for free games, and this weekend has proven to be no exception on that front.
+---------
+
+# Jujutsu Kaisen Season 4 Is Going To Take One Of The Series' Best Fights From Good To God-Tier
+
+Anime, Jujutsu Kaisen
+
+Mon, 29 Jun 2026 03:30:20 GMT
+
+https://screenrant.com/jujutsu-kaisen-season-4-choso-yuki-kenjaku-fight-god-tier/
+
+Jujutsu Kaisen's third season set up for an emotional battle against Kenjaku, and season 4's new trailer shows why the payoff will be incredible.
+---------
+
+# All 5 Seasons Of The Bear, Ranked
+
+Streaming TV, The Bear
+
+Mon, 29 Jun 2026 03:20:40 GMT
+
+https://screenrant.com/the-bear-seasons-ranked/
+
+FX has cranked out five excellent seasons with The Bear, but they aren't all created equal. When it comes to pacing and development, some fall short.
+---------
+
+# China's Answer To Solo Leveling, Lord of Mysteries, Has Finally Returned To Crunchyroll
+
+Anime, Lord of Mysteries, Crunchyroll
+
+Mon, 29 Jun 2026 03:18:55 GMT
+
+https://screenrant.com/lord-mysteries-return-china-answer-solo-leveling/
+
+This acclaimed Chinese donghua, currently on track to become an IP as big as Solo Leveling, has just returned to Crunchyroll a year after its debut.
+---------
+
+# Every My Hero Academia Movie In Order (And Where To Watch Them)
+
+Anime, My Hero Academia
+
+Mon, 29 Jun 2026 03:15:21 GMT
+
+https://screenrant.com/every-my-hero-academia-movie-in-order-best-way-watch/
+
+My Hero Academia is a wildly popular anime and manga series with several movies. Here's how best to watch the series' anime films online.
+---------
+
+# Mike Flanagan’s Upcoming Stephen King Show Has Found Its Perfect Horror Rival In 2026
+
+Streaming TV, Masked Recs
+
+Mon, 29 Jun 2026 03:15:20 GMT
+
+https://screenrant.com/mike-flanagan-stephen-king-carrie-widows-bay-rival/
+
+Mike Flanagan’s latest Stephen King TV adaptation is yet to release, but it looks like it has already found its perfect horror competitor in 2026.
+---------
+
+# The Vampire Lestat Star Reveals How the Show Honors Anne Rice's Vision
+
+CBR Exclusives, The Vampire Lestat
+
+Mon, 29 Jun 2026 04:09:38 GMT
+
+https://www.cbr.com/the-vampire-lestat-assad-zaman-armand-anne-rice-interview/
+
+The Vampire Lestat star Assad Zaman discusses Armand, Lestat’s POV and AMC’s Anne Rice adaptation.
+---------
+
+# 5 Anime Psychics Stronger Than Mob
+
+Anime, Mob Psycho 100, Akira, One Punch
+
+Mon, 29 Jun 2026 03:46:13 GMT
+
+https://www.cbr.com/anime-psychics-stronger-than-mob-psycho-100/
+
+Not every psychic in anime can compete with Mob, but the likes of Haruhi Suzumiya and Tatsumaki absolutely can.
+---------
+
+# 17 Years Later, McCoy's Darkest Star Trek Line Hits Harder Than Any Sci-Fi Quote Since
+
+Movies, Star Trek, karl urban
+
+Mon, 29 Jun 2026 03:41:12 GMT
+
+https://www.cbr.com/star-trek-2009-reboot-best-mccoy-quote/
+
+Star Trek is full of words of wisdom, but Dr. Leonard McCoy has said it best.
+---------
+
+# 4 Anime Heroes More Powerful Than Goku
+
+Anime, Dragon Ball
+
+Mon, 29 Jun 2026 03:35:12 GMT
+
+https://www.cbr.com/anime-heroes-more-powerful-than-goku-list/
+
+Dragon Ball's Goku is one of the strongest anime characters ever, but a few heroes have what it takes to beat him.
+---------
+
+# Netflix’s 8-Part Philip K. Dick Adaptation Will Show Silo & Fallout How Dystopian Drama Is Done
+
+TV, Netflix, Sci-Fi
+
+Mon, 29 Jun 2026 03:30:13 GMT
+
+https://www.cbr.com/netflix-philip-k-dick-the-future-is-ours-versus-silo-fallout/
+
+This adaptation of one of Dick's early novels has the potential to eclipse the fascinating futures created in Apple TV and Prime Video's hit shows.
+---------
+
+# Picard's Single Greatest Star Trek Line Hits Harder Than Any Sci-Fi Quote Since
+
+TV, Star Trek: The Next Generation, Star Trek, Sci-Fi
+
+Mon, 29 Jun 2026 03:30:13 GMT
+
+https://www.cbr.com/picard-best-star-trek-line-peak-performance-episode/
+
+Picard's heartfelt speech to Data in the TNG episode "Peak Performance" is a powerful lesson on resilience and perseverance in the face of failure.
+---------
+
+# 5 Best Video Games From the 2000s
+
+Games, Video Games, Grand Theft Auto, Mario
+
+Mon, 29 Jun 2026 03:16:14 GMT
+
+https://www.cbr.com/official-best-video-games-2000s/
+
+Among the best video games from the 2000s were all-time greats like Grand Theft Auto: San Andreas and Super Mario Galaxy.
+---------
+
+# Code Geass Finally Brings Back a Rare Lelouch Collectible After 20 Years
+
+Anime, Code Geass: Lelouch of the Rebellion, merchandise, Code Geass: Rozé of the Recapture
+
+Mon, 29 Jun 2026 03:00:12 GMT
+
+https://www.cbr.com/code-geass-rare-lelouch-collectible-re-release/
+
+Decades after the original anime debuted, a fan-favorite figurine for series protagonist Lelouch is being released again for Code Geass fans.
+---------
+
+# 5 Essential R-Rated 80s Westerns That Are Still Perfect Today
+
+Movies, Western
+
+Mon, 29 Jun 2026 03:00:12 GMT
+
+https://www.cbr.com/greatest-timeless-r-rated-1980s-western-movies-list/
+
+The 1980s gave western fans some seriously gritty classics, and the following films still deliver on their R-rating decades after their release.
+---------
+
+# 3 Open-World Games That Can Be Called Untouchable
+
+Games, Video Games, Far Cry, The Elder Scrolls V: Skyrim, Batman: Arkham City
+
+Mon, 29 Jun 2026 02:45:13 GMT
+
+https://www.cbr.com/untouchable-open-world-games/
+
+For an open-world game to become untouchable, it needs a formula no other game will ever be able to replicate.
+---------
+
+# All 8 Episodes of 'The Bear' Season 5, Ranked
+
+TV, The Bear, Jeremy Allen White, Hulu, FX
+
+Mon, 29 Jun 2026 03:22:13 GMT
+
+https://collider.com/the-bear-season-5-episodes-ranked/
+
+The Bear Season 5 marks the end of an era for the popular series, starring Jeremy Allen White, so we rank every episode of the final season.
+---------
+
+# 'House of the Dragon' Season 3's Most Surprising Meeting Sets Up a New Dark Romance
+
+Exclusives, House of the Dragon, Ewan Mitchell, HBO, Fantasy
+
+Mon, 29 Jun 2026 02:30:13 GMT
+
+https://collider.com/house-of-the-dragon-season-3-episode-2-aemond-alys-scene-ewan-mitchell-gayle-rankin-interview/
+
+House of the Dragon stars Ewan Mitchell and Gayle Rankin discuss why Aemond and Alys's Episode 2 encounter sets the stage for a dark, complex romance.
+---------
+
+# 'House of the Dragon's Emma D'Arcy and Matt Smith Break Down Season 3's Brutal Iron Throne Cliffhanger
+
+Exclusives, House of the Dragon, Emma D'Arcy, Matt Smith, HBO
+
+Mon, 29 Jun 2026 02:10:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-episode-2-cliffhanger-emma-darcy-matt-smith-interview/
+
+House of the Dragon stars Emma D'Arcy and Matt Smith break down Episode 2's shocking Iron Throne cliffhanger.
+---------
+
+# 'House of the Dragon' Season 3 Delivers More Than One Devastating Blow in Episode 2 | Review
+
+TV Reviews, House of the Dragon, Game Of Thrones, Emma D'Arcy, HBO Max
+
+Mon, 29 Jun 2026 02:00:24 GMT
+
+https://collider.com/house-of-the-dragon-season-3-episode-2-review/
+
+Emma D'Arcy all but assures an Emmy nomination for their immaculate performance in House of the Dragon Season 3's second episode.
+---------
+
+# ‘KPop Demon Hunters’ Is Returning in a Brand-New Way
+
+Movie News, KPop Demon Hunters, Netflix, Fantasy, Sony Pictures Animation
+
+Mon, 29 Jun 2026 01:00:13 GMT
+
+https://collider.com/kpop-demon-hunters-comic-bonus-content-release-date-november-3-2026/
+
+Netflix's hit KPop Demon Hunters returns with a 704-page comic set featuring the film, soundtrack lyrics, exclusive merch, and more.
+---------
+
+# One of the Greatest Westerns of the 21st Century Will Finally Be Free To Watch This Week
+
+Movie News, True Grit, Coen Brothers, Jeff Bridges, Matt Damon
+
+Mon, 29 Jun 2026 00:46:14 GMT
+
+https://collider.com/jeff-bridges-matt-damon-true-grit-streaming-pluto-tv-july-2026/
+
+The modern Western masterpiece True Grit, directed by the Coen Brothers, is coming to free streaming this July. Find out more.
+---------
+
+# The Wait Is Almost Over for Disney’s Biggest Summer Blockbuster
+
+Movie News, Moana, Disney, Dwayne Johnson
+
+Mon, 29 Jun 2026 00:31:13 GMT
+
+https://collider.com/moana-live-action-remake-release-date-july-10-2026/
+
+Disney's biggest bet this summer, the live-action Moana remake, is officially around the corner. Find out when you can watch it.
+---------
+
+# Matthew Perry Once Rescued 'Friends' From a Mistake Fans Never Saw Coming
+
+TV Features, Friends, HBO Max, NBC, Matthew Perry
+
+Mon, 29 Jun 2026 00:20:14 GMT
+
+https://collider.com/friends-matthew-perry-stopping-chandler-cheating-storyline/
+
+Before Friends could give Chandler and Monica the Ross and Rachel treatment, Matthew Perry swooped in and saved the relationship.
+---------
+
+# Henry Cavill’s Highly Anticipated British Mystery Returns This Week
+
+Movie News, Enola Holmes, Enola Holmes 3, Henry Cavill, Millie Bobby Brown
+
+Mon, 29 Jun 2026 00:15:14 GMT
+
+https://collider.com/henry-cavill-enola-holmes-3-netflix-release-date-july-1-2026/
+
+Henry Cavill will return as Sherlock Holmes in this week's Enola Holmes 3, starring Millie Bobby Brown. Here's everything you should know.
+---------
+
+# 'House of the Dragon' S3E2 Review: Alicent Suffers the Setback of Poor Writing
+
+TV Reviews, House of the Dragon
+
+Mon, 29 Jun 2026 02:00:31 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-episode-2-review-recap/
+
+'House of the Dragon's second episode of the season keeps its foot on the gas as Rhaenyra makes a monumental choice.
+---------
+
 # Batman Officially Names the Justice League's Strongest Villain of the 2020s
 
 Comics, Justice League, Batman
