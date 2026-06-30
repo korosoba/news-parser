@@ -1,3 +1,399 @@
+# Xbox Reportedly Canceling A Nearly Complete Game
+
+Gaming, Xbox, State of Decay 3, Triple-A Games, PC
+
+Tue, 30 Jun 2026 19:05:08 GMT
+
+https://screenrant.com/xbox-state-decay-3-cancelation-undead-labs-closure/
+
+Oncoming layoffs at Xbox are reportedly going to be devastating, and the brand is also apparently willing to throw whole projects in the trash.
+---------
+
+# Guy Ritchie's Sherlock Holmes Has Been Overtaken After 14 Years
+
+Movies, Masked Recs
+
+Tue, 30 Jun 2026 19:00:21 GMT
+
+https://screenrant.com/guy-ritchies-sherlock-holmes-has-been-overtaken-after-14-years/
+
+Almost a decade and a half since we last saw Robert Downey Jr. playing Sherlock Holmes, he's been overtaken by another detective from the same family.
+---------
+
+# Zelda: Wind Waker Unflooded Finally Lets Us Fully Explore Beneath The Waves
+
+Gaming, The Legend of Zelda: The Wind Waker
+
+Tue, 30 Jun 2026 19:00:21 GMT
+
+https://screenrant.com/zelda-wind-waker-unflooded-fan-project/
+
+Discover the underwater secrets of Hyrule in this fan-made mod for The Legend of Zelda: Wind Waker, which removes water to reveal hidden cities.
+---------
+
+# Marvel's Blade Might Officially Be Canceled, & I Can't Believe What We're Losing
+
+Gaming, Marvel's Blade, Triple-A Games, PC
+
+Tue, 30 Jun 2026 18:52:23 GMT
+
+https://screenrant.com/marvels-blade-canceled-xbox-arkane-studios/
+
+We may have to say goodbye to Marvel's Blade next week, and the loss of the project would only be a small part of the overall casualty.
+---------
+
+# Silo Season 3 Interviews with Graham Yost, Rebecca Ferguson, Common & More
+
+TV, Silo, Silo - Season 3, Rebecca Ferguson
+
+Tue, 30 Jun 2026 18:50:18 GMT
+
+https://screenrant.com/video/silo-season-3-graham-yost-rebecca-ferguson-common-cast-interview/
+
+Silo showrunner Graham Yost and stars Rebecca Ferguson, Common, Alexandria Riley, Jessica Henwick & Ashley Zukerman dive into what's in store for season 3.
+---------
+
+# Scarlett Johansson’s Sci-Fi Adaptation Box Office Flop Sets New Free Streaming Release This Week
+
+Movies, Under the Skin, Scarlett Johansson
+
+Tue, 30 Jun 2026 18:49:55 GMT
+
+https://screenrant.com/scarlett-johansson-under-the-skin-pluto-tv-release-july-2026/
+
+Scarlett Johansson has starred in several sci-fi films, including Jurassic World Rebirth, but her 2013 flop is about to join a free streaming service.
+---------
+
+# Amazon's Cancelled $40 Million Movie Finds New Home After Studio Dropped Finished Film
+
+Movies, Artificial
+
+Tue, 30 Jun 2026 18:46:58 GMT
+
+https://screenrant.com/artificial-movie-amazon-cancelled-neon-buy/
+
+After Amazon dropped its own $40 million movie earlier this month, the controversial film has now secured a new distributor in surprising deal.
+---------
+
+# Reacher Season 4: Release Date, Neagley Spinoff Details & Everything We Know
+
+Streaming TV, Reacher, Neagley
+
+Tue, 30 Jun 2026 18:41:20 GMT
+
+https://screenrant.com/reacher-season-4-release-neagley-spinoff-explained/
+
+The Reacher world is getting even bigger soon with the upcoming fourth season, plus new details about Maria Sten's big Neagley spinoff.
+---------
+
+# Cartoon Network’s Hit 10-Part Fantasy Series’ New Revival Debuts To Rare Rotten Tomatoes Score
+
+TV, Adventure Time: Side Quests - Season 1
+
+Tue, 30 Jun 2026 18:33:44 GMT
+
+https://screenrant.com/adventure-time-side-quests-rotten-tomatoes-score/
+
+The new Adventure Time spinoff, Side Quests, has made a strong debut with a perfect critics' score on Rotten Tomatoes.
+---------
+
+# From's Man in Yellow Gets Major Update After Season 4 Finale From Showrunner
+
+TV, From
+
+Tue, 30 Jun 2026 19:10:44 GMT
+
+https://www.cbr.com/from-season-5-endgame-answer-questions-man-in-white-update/
+
+The creators previously teased the "endgame" finale ahead of the Season 4 finale.
+---------
+
+# House of the Dragon Season 3 Officially Abandons the Game of Thrones Playbook
+
+TV, House of the Dragon, Game Of Thrones, HBO Max
+
+Tue, 30 Jun 2026 19:00:13 GMT
+
+https://www.cbr.com/house-dragon-season-3-targaryen-war/
+
+House of the Dragon has finally stepped out of Game of Thrones' shadow as it officially abandons the slow-burning political intrigue.
+---------
+
+# The Villain in Every John Wick Movie, Ranked
+
+Movies, John Wick
+
+Tue, 30 Jun 2026 19:00:13 GMT
+
+https://www.cbr.com/every-john-wick-villain-ranked-list/
+
+The John Wick franchise has utilized plenty of villains, but these are the best of them.
+---------
+
+# High School of the Dead Finally Returns After 15 Years—and Its New Release Is Taking Over the U.S.
+
+Anime, High School of the Dead, Hulu
+
+Tue, 30 Jun 2026 18:33:48 GMT
+
+https://www.cbr.com/high-school-of-the-dead-taking-over-us/
+
+High School of the Dead finally returns with a brand-new release after 15 years, and it's dominating the U.S.
+---------
+
+# Samwise's Best Lord of the Rings Quote Wasn't Written By JRR Tolkien
+
+Movies, The Lord of the Rings
+
+Tue, 30 Jun 2026 18:30:13 GMT
+
+https://www.cbr.com/lord-of-the-rings-sam-gamgee-best-quote-not-written-by-tolkien/
+
+One of Samwise Gamgee's most memorable The Lord of the Rings quotes was invented for Peter Jackson's film trilogy.
+---------
+
+# 10 Anime Arcs Where the Villain Loses Everything
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Naruto: Shippuden, Fullmetal Alchemist Brotherhood
+
+Tue, 30 Jun 2026 18:16:14 GMT
+
+https://www.cbr.com/anime-arcs-villain-loses-everything/
+
+These anime arcs show antagonists paying the ultimate price for their evil actions, losing everything they worked to achieve.
+---------
+
+# Netflix Officially Confirms the Future of Its Hit Blacklist Replacement
+
+TV, Nemesis
+
+Tue, 30 Jun 2026 18:02:56 GMT
+
+https://www.cbr.com/netflix-renews-nemesis-season-2/
+
+The future of Netflix's newest crime drama series has officially been determined.
+---------
+
+# 8 Supergirl: Woman of Tomorrow Moments the Supergirl Movie Got Exactly Right
+
+Comics, Supergirl, supergirl: woman of tomorrow
+
+Tue, 30 Jun 2026 18:00:14 GMT
+
+https://www.cbr.com/supergirl-woman-of-tomorrow-moments-supergirl-movie-perfected/
+
+Despite some controversy, Supergirl was able to bring most highlights of Supergirl: Woman of Tomorrow to life.
+---------
+
+# What's Coming to Pluto TV in July 2026? Everything Arriving for Free
+
+TV, Paramount
+
+Tue, 30 Jun 2026 17:47:44 GMT
+
+https://www.cbr.com/what-coming-pluto-tv-july-2026-full-list/
+
+Aside from its 250-movie list carefully curated for the Fourth of July, Pluto TV confirmed even more free titles.
+---------
+
+# Zelda: Ocarina of Time Remake's Preorder Price Is Very Concerning
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Tue, 30 Jun 2026 17:36:13 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-switch-2-playasia-preorder-price/
+
+The Legend of Zelda Ocarina of Time for Switch 2 has been listed for preorder by Playasia for $60, raising serious questions about the remake's scope.
+---------
+
+# Netflix’s Biggest Fantasy Series Ever Faces Shock Season 3 Setback
+
+TV News, Netflix, Wednesday, Eva Green, Jenna Ortega
+
+Tue, 30 Jun 2026 19:00:14 GMT
+
+https://collider.com/wednesday-season-3-filming-halted-eva-green-injury-netflix/
+
+Wednesday Season 3 has reportedly faced a production setback after Eva Green suffered an on-set injury while filming the Netflix hit in Dublin.
+---------
+
+# Prime Video's 'Invincible' Is Returning Much Sooner Than Expected
+
+Gaming News, Invincible, Prime Video, Steven Yeun, J.K. Simmons
+
+Tue, 30 Jun 2026 18:59:26 GMT
+
+https://collider.com/new-invincible-project-tabletop-roleplaying-game-release-date-july-30-2026/
+
+A new Invincible roleplaying project is launching at the end of July, and it's perfect for fans waiting for Season 5 of the Prime Video series.
+---------
+
+# Tom Hardy Officially Returning for 'MobLand' Season 3
+
+TV News, MobLand, Tom Hardy, Pierce Brosnan, Helen Mirren
+
+Tue, 30 Jun 2026 18:48:24 GMT
+
+https://collider.com/mobland-season-3-tom-hardy-return-confirmed/
+
+After weeks of controversy, Tom Hardy will officially return for MobLand should the crime series get renewed for Season 3.
+---------
+
+# 'Outlander' Is Officially Being Replaced by a Steamy New Fantasy
+
+TV News, Outlander, Outlander: Blood of My Blood, Fantasy, STARZ
+
+Tue, 30 Jun 2026 18:45:47 GMT
+
+https://collider.com/outlander-replacement-the-wolf-king-fantasy-series/
+
+Starz is developing The Wolf King, a new romantasy drama based on Lauren Palphreyman’s bestselling fantasy trilogy.
+---------
+
+# NCIS Officially Brings Back the Franchise's Best Character This Fall
+
+TV News, NCIS, Mark Harmon, NCIS: Origins, CBS
+
+Tue, 30 Jun 2026 18:28:19 GMT
+
+https://collider.com/ncis-origins-season-3-mark-harmon-leroy-gibbs-return/
+
+Mark Harmon will officially reprise his role as Leroy Gibbs in the new season of NCIS: Origins, and not just as a voice-over role.
+---------
+
+# ‘Young Sheldon’ Officially Returns This October
+
+TV News, Young Sheldon, The Big Bang Theory, Stuart Fails to Save the Universe, Sci-Fi
+
+Tue, 30 Jun 2026 18:26:37 GMT
+
+https://collider.com/young-sheldon-behind-the-scenes-book-release-date/
+
+Young Sheldon sets a new release for October, featuring cast interviews, major revelations, and stories from the hit CBS comedy.
+---------
+
+# Even James Bond Couldn't Save This Game Studio From Layoffs
+
+Gaming News, 007 First Light, James Bond, IO Interactive, Video Game
+
+Tue, 30 Jun 2026 18:26:26 GMT
+
+https://collider.com/james-bond-007-first-light-developer-ioi-interactive-layoffs/
+
+The developer behind the hit James Bond game, 007: First Light, has been hit with a major round of unprecedented layoffs.
+---------
+
+# Marvel's New Blade Project Faces Cancellation
+
+Gaming News, Blade, Mahershala Ali, Wesley Snipes, Marvel
+
+Tue, 30 Jun 2026 18:18:38 GMT
+
+https://collider.com/marvel-blade-video-game-cancellation-rumors/
+
+Another reboot of Marvel's Blade is facing cancellation, along with the potential shut down of an award-winning studio.
+---------
+
+# 10 Best Jackie Chan Martial Arts Movies
+
+Movie, Police Story 2, Police Story, Jackie Chan, Drunken Master II
+
+Tue, 30 Jun 2026 17:52:13 GMT
+
+https://collider.com/best-jackie-chan-martial-arts-movies-ranked/
+
+Jackie Chan has starred in many classic martial arts movies, including Drunken Master II, Operation Condor, and the original Police Story.
+---------
+
+# New ‘Bosch’ Season Officially Hits Huge Milestone
+
+TV News, Bosch, Bosch: Legacy, Bosch: Start of Watch
+
+Tue, 30 Jun 2026 17:27:48 GMT
+
+https://collider.com/bosch-prequel-start-of-watch-season-1-filming-wrap-mgm-plus/
+
+The newest season of Bosch, which will stream on MGM+, has just hit a huge milestone. Read on for all the details.
+---------
+
+# 10 Biggest Superhero Box Office Disappointments
+
+Movie Lists, Superhero, box office
+
+Tue, 30 Jun 2026 19:06:20 GMT
+
+https://movieweb.com/biggest-superhero-box-office-flops/
+
+Despite superhero films being among the most commercially successful genres of the last twenty years, there have been notable disappointments.
+---------
+
+# Tom Hardy's 'MobLand' Fate Officially Revealed for Season 3
+
+TV News, MobLand, Tom Hardy
+
+Tue, 30 Jun 2026 19:03:30 GMT
+
+https://movieweb.com/mobland-tom-hardy-season-3-return/
+
+Tom Hardy's future on 'MobLand' Season 3 is now set in stone after reports centered on some controversial drama behind the scenes.
+---------
+
+# Taylor Sheridan's Hit 'Yellowstone' Spin-Off Officially Moves Forward After Creative Shakeup
+
+TV News, Dutton Ranch, Yellowstone, Taylor Sheridan
+
+Tue, 30 Jun 2026 18:46:32 GMT
+
+https://movieweb.com/taylor-sheridan-yellowstone-spinoff-dutton-ranch-new-showrunner/
+
+The hit series has found a new creative voice to guide the project.
+---------
+
+# Cult-Classic Supernatural Reboot Getting a New Release Next Month
+
+Movie News, Dark Shadows, Johnny Depp
+
+Tue, 30 Jun 2026 18:34:50 GMT
+
+https://movieweb.com/dark-shadows-reboot-johnny-depp-steelbook-blu-ray/
+
+Tim Burton's 'Dark Shadows' is getting a 4K upgrade with an all-new SteelBook release.
+---------
+
+# Netflix Recreates Gene Wilder Using AI in First Trailer for New ‘Willy Wonka’ Series
+
+TV Trailers, Willy Wonka and the Chocolate Factory, Netflix, Gene Wilder
+
+Tue, 30 Jun 2026 18:11:19 GMT
+
+https://movieweb.com/gene-wilder-ai-netflix-willy-wonka-golden-ticket-trailer/
+
+Gene Wilder's estate has given the show its blessing.
+---------
+
+# HBO Max's Samurai Action Series Is One of the Biggest Shows on Streaming
+
+TV News, Song of the Samurai, HBO Max, Hot on Streaming, Action
+
+Tue, 30 Jun 2026 18:01:18 GMT
+
+https://movieweb.com/song-of-the-samurai-action-streaming-success-hbo-june-2026/
+
+HBO Max's action-packed 'Shogun' replacement, 'Song of the Samurai,' is a global streaming success.
+---------
+
+# 'Alien 3's First Director Reveals Plans for a Very Different Sci-Fi Sequel
+
+Movie News, Alien, Alien 3
+
+Tue, 30 Jun 2026 17:25:32 GMT
+
+https://movieweb.com/alien-3-renny-harlin-original-plans/
+
+The third entry in the horror sci-fi franchise almost went in a completely different direction.
+---------
+
 # 2017 Was The Greatest Year Ever For Superhero Movies
 
 Movies, Superhero, Op-Ed
