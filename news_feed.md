@@ -1,3 +1,377 @@
+# Steam's New 9/10 Free Game Is Getting Rave Reviews
+
+Gaming, Steam, PC
+
+Tue, 30 Jun 2026 21:00:05 GMT
+
+https://screenrant.com/steam-free-game-july-2026-dragon-kisser/
+
+This brand-new Steam game is absolutely beloved by fans and critics alike, and the best part is that it is completely free to play.
+---------
+
+# 10 Movie Trilogies Ruined By One Installment
+
+Movies, Op-Ed
+
+Tue, 30 Jun 2026 21:00:05 GMT
+
+https://screenrant.com/movie-trilogies-ruined-one-bad-installment/
+
+So many film trilogies were close to being fantastic, only for one entry to disappoint fans and critics and hold it back from true greatness.
+---------
+
+# 10 Years Ago, The Flash Quietly Killed The Arrowverse
+
+Classic TV, Masked Recs
+
+Tue, 30 Jun 2026 21:00:05 GMT
+
+https://screenrant.com/the-flash-season-3-flashpoint-killed-arrowverse/
+
+When The Flash attempted to adapt one of DC's most celebrated and impactful comic book arcs it set a disappointing precedent for the Arrowverse.
+---------
+
+# DC Studios' New Wonder Woman Villain Debut Shows How Diana Prince Needs A Movie
+
+Streaming TV, Masked Recs
+
+Tue, 30 Jun 2026 20:57:02 GMT
+
+https://screenrant.com/wonder-woman-new-dc-movie-giganta-debut-connection/
+
+DC Studios' new 2026 release has just debuted a new Wonder Woman villain, and it just makes it clear that a Diana Prince movie is in order.
+---------
+
+# In 6 Months, HBO Will Rewrite A $7Bn Fantasy Franchise
+
+Streaming TV, Harry Potter
+
+Tue, 30 Jun 2026 20:45:04 GMT
+
+https://screenrant.com/harry-potter-hbo-rewrite-movies-story-franchise/
+
+HBO is just six months away from writing over one of the biggest fantasy franchises of all time. Though it's not all bad, it may be tough to accept.
+---------
+
+# It's Official, Star Trek's Biggest Relaunch In 4 Years Is Only 3 Months Away
+
+Comics, Star Trek
+
+Tue, 30 Jun 2026 20:30:19 GMT
+
+https://screenrant.com/star-trek-2026-relaunch-months-away/
+
+It's huge!
+---------
+
+# 10 Most Watched Movies On Netflix In June 2026
+
+New Movies, Netflix
+
+Tue, 30 Jun 2026 20:30:19 GMT
+
+https://screenrant.com/10-most-watched-movies-on-netflix-in-june-2026/
+
+Netflix subscribers couldn't stop watching these 10 movies in June, turning them into the most-watched films around the world on the streamer.
+---------
+
+# Breaking Bad Has An Unnoticed Moment Of Genius That Led To One Of The Best TV Scenes Ever
+
+Classic TV, Breaking Bad
+
+Tue, 30 Jun 2026 20:30:19 GMT
+
+https://screenrant.com/breaking-bad-walt-one-who-knocks-shirt-detail/
+
+Breaking Bad is full of tiny moments that say a lot, and some of these scenes attract more attention than others, with some still being overlooked.
+---------
+
+# 10 Greatest Kurt Russell Movies, Ranked
+
+Movies, Kurt Russell, Tombstone, The Hateful Eight, Overboard, Breakdown, Stargate, Backdraft, The Thing, Big Trouble in Little China, Miracle, Escape From New York
+
+Tue, 30 Jun 2026 20:30:19 GMT
+
+https://screenrant.com/best-kurt-russell-movies-ranked/
+
+Kurt Russell has played dozens of beloved characters in his movies, from Jack Burton to Wyatt Earp, and here's a selection of his finest films.
+---------
+
+# Tom Selleck’s Hit CBS Franchise Gets Major New Return Update
+
+TV, Boston Blue
+
+Tue, 30 Jun 2026 20:24:06 GMT
+
+https://screenrant.com/boston-blue-season-2-production-start-confirmation/
+
+Tom Selleck's hit Blue Bloods spinoff show Boston Blue has received an exciting season 2 update from Gloria Reuben, via her social media account.
+---------
+
+# July 1 Will Be a Great Day for Stargate Fans
+
+Movies, Stargate, Sci-Fi
+
+Tue, 30 Jun 2026 21:09:12 GMT
+
+https://www.cbr.com/stargate-streaming-free-pluto-tv-july-2026/
+
+Finally, something for Stargate fans to celebrate.
+---------
+
+# For All Mankind Hits Top 10 On Streaming After Spinoff Star City Debut
+
+TV, For All Mankind, Star City, Apple TV
+
+Tue, 30 Jun 2026 21:00:01 GMT
+
+https://www.cbr.com/for-all-mankind-sci-fi-apple-tv-success-june-2026/
+
+For All Mankind sees a big streaming boost after wrapping its fifth season, as the spinoff Star City continues its first season.
+---------
+
+# New Blade Runner Series Returns to Tokyo
+
+Comics, Blade Runner
+
+Tue, 30 Jun 2026 21:00:01 GMT
+
+https://www.cbr.com/blade-runner-tokyo-nexus-to-win-or-to-lose-release-date-confirmed/
+
+Blade Runner: Tokyo Nexus ventures into uncharted territory, blending the iconic sci-fi universe with Japanese mythology and action-packed duels.
+---------
+
+# The 10 Greatest Movies of 2026 (So Far)
+
+Movies, Sci-Fi, Horror
+
+Tue, 30 Jun 2026 21:00:01 GMT
+
+https://www.cbr.com/best-movies-2026-ranked-list/
+
+Halfway through 2026, there have already been some amazing movies, including some from up-and-coming new directors.
+---------
+
+# Netflix Officially Debuts Immersive New Experience for Horror Fans
+
+TV, Netflix, Horror
+
+Tue, 30 Jun 2026 20:54:25 GMT
+
+https://www.cbr.com/netflix-unhinged-immersive-horror-experience/
+
+The immersive horror experience featuring Zoe Kravitz and Sadie Sink is now available on Netflix.
+---------
+
+# Disclosure Day: Spielberg Returns to the Throne
+
+Movies, Disclosure Day, Originals
+
+Tue, 30 Jun 2026 20:31:19 GMT
+
+https://www.cbr.com/video/disclosure-day-spielberg-returns-to-the-throne/
+
+There’s a reason Disclosure Day feels bigger than a normal sci-fi release. Steven Spielberg is back in summer blockbuster mode, and that alone makes this one worth talking about.
+---------
+
+# 10 Commonly Banned Books You Have To Read At Least Once
+
+Movies, The Hunger Games
+
+Tue, 30 Jun 2026 20:30:15 GMT
+
+https://www.cbr.com/banned-books-everyone-needs-to-read-list/
+
+Often removed from schools & public libraries, these books challenge social norms and have become some of the most essential, thought-provoking reads.
+---------
+
+# 35 Most Powerful Marvel Villains And Their Greatest Weaknesses
+
+Comics, marvel villains, Marvel Comics, Galactus, Thanos, Doctor Doom
+
+Tue, 30 Jun 2026 20:30:15 GMT
+
+https://www.cbr.com/strongest-marvel-comics-villains-weaknesses/
+
+Marvel Comics is the home for many of fiction's strongest villains. However, even baddies like Galactus and Kang have their soft underbellies.
+---------
+
+# Transformers Brings Back Starscream's Most Heroic Design in New Prototype Reveal
+
+Anime, Transformers, merchandise, toys, action figures
+
+Tue, 30 Jun 2026 20:20:12 GMT
+
+https://www.cbr.com/transformers-shattered-glass-starscream-dr-wu-color-prototype/
+
+The newest Starscream action figure from Dr. Wu revisits the world of Transformers: Shattered Glass, albeit in a much smaller form than usual.
+---------
+
+# 10 Best Character Arcs in Shonen Manga History
+
+Anime, My Hero Academia, Hunter x Hunter, Fullmetal Alchemist: Brotherhood
+
+Tue, 30 Jun 2026 20:15:13 GMT
+
+https://www.cbr.com/best-character-arcs-shonen-manga-history/
+
+Shonen stories like Black Clover and Jujutsu Kaisen have produced some of the greatest character arcs in modern fiction.
+---------
+
+# Harry Potter and Indiana Jones Villain Michael Byrne Dead at 82
+
+Movie News, Indiana Jones and the Last Crusade, Braveheart, Harry Potter and the Deathly Hallows - Part 1, Obituary
+
+Tue, 30 Jun 2026 19:45:26 GMT
+
+https://collider.com/harry-potter-star-michael-byrne-dead-at-82/
+
+Michael Byrne, star of Harry Potter, Indiana Jones, and Braveheart, has died at the age of 82. Read on for more details.
+---------
+
+# 6 '80s Sci-Fi Movies With Better Special Effects Than Most Modern Films
+
+Movie, Sci-Fi, The Last Starfighter, Tron, The Terminator
+
+Tue, 30 Jun 2026 19:44:14 GMT
+
+https://collider.com/1980s-sci-fi-movies-best-special-effects/
+
+From The Thing to Blade Runner, Aliens to Tron, these ’80s sci-fi classics prove practical effects can still outshine modern CGI.
+---------
+
+# Taylor Sheridan Officially Reveals the Non-Negotiable Rules Behind His Paramount TV Empire
+
+TV News, Taylor Sheridan, Yellowstone, Paramount Plus, Landman
+
+Tue, 30 Jun 2026 19:41:16 GMT
+
+https://collider.com/taylor-sheridan-reveals-non-negotiable-conditions-paramount/
+
+Taylor Sheridan revealed the non-negotiable conditions he laid before Paramount before their legendary success streak over the last decade.
+---------
+
+# The Next Batman Has Been Officially Confirmed
+
+Movie News, Batman: Knightfall Part 1: Knightfall, The Batman, Anson Mount, Michael Mando
+
+Tue, 30 Jun 2026 19:24:45 GMT
+
+https://collider.com/new-batman-actor-anson-mount-batman-knightfall/
+
+Following speculation over Tom Brittney, the new Batman has finally been confirmed — but with a twist. Read on for more.
+---------
+
+# 10 Fantasy Video Games Better Than Most Movie Blockbusters You've Seen
+
+Video Games, Video Game, Fantasy, Hogwarts Legacy, The Lord of the Rings
+
+Tue, 30 Jun 2026 19:23:15 GMT
+
+https://collider.com/fantasy-video-games-better-than-movie-blockbusters/
+
+Whether it's God of War or Skyrim, the scale and story of these fantasy video games are much better than most big-budget blockbuster movies out there.
+---------
+
+# 'The Magicians' Best Line Still Hits Like a Punch to the Gut 6 Years Later
+
+TV Features, The Magicians, SyFy, Prime Video, Fantasy
+
+Tue, 30 Jun 2026 19:21:14 GMT
+
+https://collider.com/the-magicians-magic-comes-from-pain-quote-meaning/
+
+This single quote from The Magicians defines the show's unique blend of dark fantasy magic, complex characters, and emotional depth.
+---------
+
+# Paramount+’s Spy Thriller Smash Hit Continues To Impress on Streaming
+
+TV News, The Agency, Paramount+ with Showtime, Thriller, Drama
+
+Tue, 30 Jun 2026 19:20:13 GMT
+
+https://collider.com/the-agency-paramount-plus-thriller-streaming-success-june-2026/
+
+Paramount+'s hit thriller has made a massive comeback, with critics and fans praising its storytelling and standout performances. Get all the details.
+---------
+
+# A Sci-Fi Comedy Cult Classic Perfectly Predicted Donald Trump's Presidency
+
+Features, Idiocracy, Sci-Fi
+
+Tue, 30 Jun 2026 21:00:16 GMT
+
+https://movieweb.com/idiocracy-cult-classic-predicted-donald-trump/
+
+A science-fiction comedy cult classic movie predicted Donald Trump's presidency when it was released in
+---------
+
+# 'NCIS' Icon Officially Returning To Franchise in Major Role for New Season
+
+TV News, NCIS, Drama, CBS All Access
+
+Tue, 30 Jun 2026 20:31:00 GMT
+
+https://movieweb.com/ncis-origins-mark-harmon-season-3/
+
+Mark Harmon will return as Leroy Jethro Gibbs in every episode of 'NCIS' Season 24.
+---------
+
+# Netflix's Streaming Sensation Thriller Is a Perfect One-Night Binge
+
+Features, Netflix
+
+Tue, 30 Jun 2026 20:00:19 GMT
+
+https://movieweb.com/oasis-netflix-perfect-binge/
+
+Netflix has released many popular TV thrillers in 2026, and a recent one is high on the streaming charts.
+---------
+
+# New 89-Minute Vigilante Action Thriller Defies Critics to Become Streaming Hit
+
+Movie News, Citizen Vigilante, Hot on Streaming, Action, Uwe Boll, Armie Hammer
+
+Tue, 30 Jun 2026 20:00:19 GMT
+
+https://movieweb.com/citizen-vigilante-streaming-hit-apple-tv-prime-video-june-2026/
+
+Uwe Boll's 'Citizen Vigilante' has already dethroned 'Project Hail Mary' on digital streaming, proving that it's a force to reckoned with.
+---------
+
+# 'From' Season 4 Alternate Reality Storyline May Explain One of the Show's Oldest Mysteries
+
+TV News, From
+
+Tue, 30 Jun 2026 19:55:03 GMT
+
+https://movieweb.com/from-season-4-alternate-reality-boyd-abby-lost-flashback/
+
+'From's creator and showrunners tease how Season 4's penultimate episode explains Abby Stevens' mental breakdown in Season 1.
+---------
+
+# Andrew Garfield's 'Artificial' Sets Release After Being Dropped by Amazon
+
+Movie News, Artificial
+
+Tue, 30 Jun 2026 19:28:10 GMT
+
+https://movieweb.com/andrew-garfield-artifical-release-date/
+
+Neon acquired the biopic about OpenAI founder Sam Altman after Amazon MGM Studios dropped the film.
+---------
+
+# 'The Pitt' Season 3 Officially Confirms New Cast
+
+TV News, The Pitt, HBO Max, Drama
+
+Tue, 30 Jun 2026 19:16:58 GMT
+
+https://movieweb.com/the-pitt-season-3-officially-confirms-new-cast/
+
+Meet the new crop of patients and ER staffers in the upcoming third season of 'The Pitt.'
+---------
+
 # Xbox Reportedly Canceling A Nearly Complete Game
 
 Gaming, Xbox, State of Decay 3, Triple-A Games, PC
