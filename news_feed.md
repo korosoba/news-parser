@@ -1,3 +1,245 @@
+# It’s Official, Invincible Returns One Month Today
+
+Gaming, Invincible
+
+Tue, 30 Jun 2026 10:06:51 GMT
+
+https://screenrant.com/its-official-invincible-returns-one-month-today/
+
+Invincible has been one of the real success stories of the last few years, and it's about to return in a whole new format.
+---------
+
+# Elden Ring 2 Officially Has Gamers Seriously Worried
+
+Gaming, Elden Ring
+
+Tue, 30 Jun 2026 10:04:33 GMT
+
+https://screenrant.com/elden-ring-2-gamers-worried/
+
+FromSoftware's parent company Kadokawa faces pressure from Oasis Management to capitalize on Elden Ring's success.
+---------
+
+# 1 House Of The Dragon Character Can End The Targaryen War By Doing Nothing (But They Won’t)
+
+Streaming TV, House of the Dragon, Op-Ed
+
+Tue, 30 Jun 2026 10:00:20 GMT
+
+https://screenrant.com/house-of-the-dragon-alys-rivers-save-aemond-targaryen-end-war/
+
+An unexpected moment in House of the Dragon season 3, episode 2 could end the Targaryens' war, and all this character has to do is nothing.
+---------
+
+# KPop Demon Hunters: Battle For The Spotlight Officially Releases October 2026
+
+Gaming, KPop Demon Hunters
+
+Tue, 30 Jun 2026 09:42:16 GMT
+
+https://screenrant.com/kpop-demon-hunters-battle-for-spotlight-october-2026/
+
+Get ready for epic battles inspired by the hit Netflix movie KPop Demon Hunters.
+---------
+
+# Zelda: Twilight Princess Switch 2 Remaster Teaser Splits Gamers
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Twilight Princess
+
+Tue, 30 Jun 2026 09:24:54 GMT
+
+https://screenrant.com/zelda-twilight-princess-switch-2-teaser-gamers-react/
+
+Twilight Princess is just as beloved by Zelda fans as the day it released, but a Switch 2 remaster has opinions split.
+---------
+
+# Hogwarts Legacy: Chamber Of Secrets Lets You Explore Beneath The Castle
+
+Gaming, Hogwarts Legacy
+
+Tue, 30 Jun 2026 09:20:56 GMT
+
+https://screenrant.com/hogwarts-legacy-chamber-of-secrets-mod/
+
+Discover the secrets beneath Hogwarts with the Chamber of Secrets mod for Hogwarts Legacy, adding a dark, story-driven dungeon for players to explore.
+---------
+
+# Steam’s Biggest Hit In June Was Made By Just 2 People In Only 2 Months
+
+Gaming, Steam, Indie Games, PC
+
+Tue, 30 Jun 2026 09:00:20 GMT
+
+https://screenrant.com/meccha-chameleon-steam-top-seller/
+
+In a time when major game releases are sometimes in development for a decade, June's top new seller on Steam is a miracle of modern game development.
+---------
+
+# Star Wars Writer Confirms The 'Biggest Challenge' In Writing New Mandalorian And Grogu Stories
+
+Comics, The Mandalorian and Grogu
+
+Tue, 30 Jun 2026 10:10:21 GMT
+
+https://www.cbr.com/mandalorian-grogu-delilah-dawson-interview/
+
+In a CBR exclusive interview with the writer of the new Mandalorian and Grogu comic book one-shot, learn what the biggest challenge is with this story
+---------
+
+# Disney's Avatar Franchise is the Sci-Fi Event of the Decade
+
+Movies, Avatar, Avatar: The Way of Water, Avatar: Fire and Ash, Disney
+
+Tue, 30 Jun 2026 10:00:12 GMT
+
+https://www.cbr.com/disney-avatar-perfect-sci-fi-franchise/
+
+Many remarkable sci-fi movies have released over the last few years, but there's one from Disney that is truly out of this world.
+---------
+
+# Titus Welliver's Gritty New Gangster Series Is Here to Show Bosch How Crime TV Is Done
+
+TV, Bosch, Crime, The Westies
+
+Tue, 30 Jun 2026 09:57:40 GMT
+
+https://www.cbr.com/titus-welliver-the-westies-outrivals-bosch/
+
+Based on a true story, MGM+’s upcoming crime drama, The Westies, promises a worthy rival to the gritty realism of Titus Welliver’s Bosch.
+---------
+
+# Peter and Mary Jane Finally Have a Heart to Heart As She Embraces Being Venom
+
+Comics, Venom
+
+Tue, 30 Jun 2026 09:25:24 GMT
+
+https://www.cbr.com/venom-258-review-peter-mary-jane-heart-to-heart/
+
+In a CBR review of Venom #258, see how Peter Parker and Mary Jane Watson finally have a heart to heart about their various recent problems
+---------
+
+# 10 Best '90s Crime TV Shows, Ranked
+
+TV, Crime, 1990s, Law & Order, The X-Files
+
+Tue, 30 Jun 2026 10:27:30 GMT
+
+https://collider.com/best-90s-crime-shows-ranked/
+
+The best crime shows of the 1990s include a nice mix of long-running fan favorites and lesser-known hits, from Law & Order to Diagnosis: Murder.
+---------
+
+# 10 Greatest Video Game Prequels of All Time
+
+Video Games, Video Game, Pokemon Legends   Arceus, Red Dead Redemption 2, Batman: Arkham Origins
+
+Tue, 30 Jun 2026 10:23:24 GMT
+
+https://collider.com/best-video-game-prequels-all-time-ranked/
+
+The best prequel games, like Pokémon Legends: Arceus and Red Dead Redemption 2, expand upon the original's world while offering original adventures.
+---------
+
+# 'X-Men '97' Recap: What To Remember Before Season 2 Premieres
+
+TV Features, X-Men '97, X-Men, MCU, Disney+
+
+Tue, 30 Jun 2026 10:08:18 GMT
+
+https://collider.com/x-men-97-recap-before-season-2/
+
+We recap the key events from X-Men '97 Season 1 before the series' return on Disney+ this week.
+---------
+
+# 10 Best Horror Comedies of the Last 20 Years You've Never Heard Of
+
+Movie, Teeth, Satanic Panic, Scare Me, Harpoon
+
+Tue, 30 Jun 2026 10:06:16 GMT
+
+https://collider.com/best-horror-comedy-movies-last-20-years-youve-never-heard-of/
+
+Scare Me, Satanic Panic, and Excision are all among the very best horror comedies of the last 20 years you probably haven't even heard of.
+---------
+
+# Netflix Has Finally Found Its Perfect 'Lincoln Lawyer' Replacement at Last
+
+TV News, The Lincoln Lawyer, Netflix, Al Pacino
+
+Tue, 30 Jun 2026 10:00:13 GMT
+
+https://collider.com/and-justice-for-all-netflix-remake-lincoln-lawyer-replacement/
+
+Netflix is developing a new And Justice for All series, with The Lincoln Lawyer producer Ross Fineman attached to the Al Pacino remake.
+---------
+
+# 4 Most Convoluted Movie Trilogies of All Time
+
+Movie, Star Wars, Star Wars: Episode IX - The Rise of Skywalker, Fantastic Beasts, The Matrix
+
+Tue, 30 Jun 2026 09:42:14 GMT
+
+https://collider.com/most-convoluted-movie-trilogies-ranked/
+
+From The Matrix to tangled wizard wars, these trilogies buried great ideas under lore, retcons, and endless explanations.
+---------
+
+# Say Goodbye to Russell Crowe’s $150 Million Adventure Epic That Inspired 'Greyhound'
+
+Movie News, Master and Commander: The Far Side of the World, Russell Crowe, Peacock, Greyhound
+
+Tue, 30 Jun 2026 09:40:13 GMT
+
+https://collider.com/russell-crowe-master-and-commander-far-side-of-the-world-leaving-peacock-july-2026/
+
+Russell Crow's post-Gladiator epic, Master and Commander: The Far Side of the World, is leaving Peacock soon. Find out when.
+---------
+
+# Patrick Swayze’s 108-Minute Action Thriller Is Officially One of Streaming’s Biggest Hits
+
+Movie News, Next of Kin, Patrick Swayze, Liam Neeson, Dirty Dancing
+
+Tue, 30 Jun 2026 09:30:12 GMT
+
+https://collider.com/next-of-kin-patrick-swayze-action-thriller-streaming-success-pluto-tv-june-2026/
+
+Despite mixed reviews, the '80s revenge drama Next of Kin, starring Patrick Swayze and Liam Neeson, is surging on free streaming in the U.S.
+---------
+
+# HBO's Outrageous New Historical Series Is an Instant Classic in the U.S.
+
+TV News, HBO, Larry David, Life, Larry and the Pursuit of Unhappiness, Comedy
+
+Tue, 30 Jun 2026 09:00:13 GMT
+
+https://collider.com/life-larry-and-the-pursuit-of-unhappiness-hbo-max-streaming-charts/
+
+HBO’s new historical series is already dominating streaming charts worldwide, but critics and audiences seem far less convinced.
+---------
+
+# 20 Best 'Avatar: The Last Airbender' Episodes, Ranked According to IMDb
+
+TV, Avatar: The Last Airbender, Animation, Nickelodeon, Fantasy
+
+Tue, 30 Jun 2026 08:58:14 GMT
+
+https://collider.com/best-avatar-the-last-airbender-episodes-ranked-imdb/
+
+From The Tales of Ba Sing Se to Sozin's Comet, Part 4 Avatar Aang, these are the best Avatar The Last Airbender, according to IMDb.
+---------
+
+# NBC 2026 Fall Schedule Confirms New Action Thriller Alongside Returning Favorites
+
+TV News, The Rockford Files, David Boreanaz
+
+Tue, 30 Jun 2026 10:23:11 GMT
+
+https://movieweb.com/nbc-fall-2026-schedule-rockford-files-reboot/
+
+NBC has locked in its fall 2026 schedule and David Boreanaz's 'The Rockford Files' reboot, with the '70s detective revival set for early 2027.
+---------
+
 # 29 Years Later, Revolutionary Girl Utena Finally Gets The Respect It Always Deserved (Exclusive)
 
 Anime, Revolutionary Girl Utena
