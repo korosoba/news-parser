@@ -1,3 +1,355 @@
+# 10 Best Weapons In Red Dead Redemption 1 (& Where To Find Them)
+
+Gaming, Red Dead Redemption, PC
+
+Tue, 30 Jun 2026 02:47:21 GMT
+
+https://screenrant.com/red-dead-redemption-best-weapons-locations/
+
+With the PC version of the original Red Dead Redemption on the way, here are the 10 best weapons to have in your arsenal.
+---------
+
+# How Many Kids Rhaenyra Has In HOTD, Who The Father Is, & What Happens To Them
+
+Streaming TV, House of the Dragon
+
+Tue, 30 Jun 2026 02:30:21 GMT
+
+https://screenrant.com/house-dragon-rhaenyra-targaryen-children-explained-fate/
+
+Rhaenyra Targaryen’s children, no matter who their father was, play important roles in House of the Dragon, both during the civil war and after.
+---------
+
+# Marvel Officially Shares First Image Of Its Next Civil War
+
+Marvel Comics, Ultimate Marvel
+
+Tue, 30 Jun 2026 02:04:19 GMT
+
+https://screenrant.com/ultimate-universe-civil-war-iron-man-luke-cage/
+
+Marvel subtly teases a new Civil War, with tensions between technological and human approaches to heroism that might sound a bit familiar.
+---------
+
+# PS6 Price Leak Has Fans Heated, & We Can See Why
+
+Gaming, PlayStation 6
+
+Tue, 30 Jun 2026 02:00:33 GMT
+
+https://screenrant.com/ps6-price-leak-june-2026-reaction/
+
+The eye-watering predicted price of the upcoming PlayStation 6 has fans worrying about the future of the gaming industry and tech in general.
+---------
+
+# 9 Questions From’s Final Season Needs To Answer
+
+Streaming TV, From, FROM - Season 4
+
+Tue, 30 Jun 2026 02:00:33 GMT
+
+https://screenrant.com/from-season-5-questions-need-answers/
+
+In the fifth and final season of MGM+'s From, the horror series has nine major questions that it needs to answer, including some lingering mysteries.
+---------
+
+# Every Star Wars Reference In The Toy Story Franchise (Including Toy Story 5)
+
+Movies, Toy Story, Toy Story 5, Star Wars
+
+Tue, 30 Jun 2026 01:31:21 GMT
+
+https://screenrant.com/every-star-wars-reference-toy-story-franchise-buzz-lightyear/
+
+The Toy Story franchise features an impressive collection of Star Wars Easter eggs and references, including in the brand-new Toy Story 5.
+---------
+
+# 5 Psychological Thriller Anime Better Than Death Note
+
+Anime
+
+Tue, 30 Jun 2026 01:31:21 GMT
+
+https://screenrant.com/psychological-thriller-anime-better-death-note/
+
+There's no denying Death Note's status as one of the most thrilling psychological anime ever, but there are 5 series even better than the classic hit.
+---------
+
+# Netflix Quietly Canceled A 10/10 Fantasy Franchise After 48 Episodes
+
+Streaming TV
+
+Tue, 30 Jun 2026 01:31:21 GMT
+
+https://screenrant.com/castlevania-animated-franchise-quietly-canceled-netflix/
+
+One of Netflix's best fantasy franchises had so much potential, but the streaming platform has become reluctant to keep the ball rolling.
+---------
+
+# Guy Ritchie's New R-Rated Action Movie Officially Sets New Release In 1 Month
+
+Movies, In the Grey, Guy Ritchie
+
+Tue, 30 Jun 2026 01:25:57 GMT
+
+https://screenrant.com/in-the-grey-movie-blu-ray-release-guy-ritchie/
+
+In the Grey, Guy  Ritchie's latest R-rated action thriller movie, has a new release lined up for July following its theatrical arrival in May.
+---------
+
+# Alan Ritchson Joins DC Star In New 'Reacher Meets John Wick' Action Movie
+
+Movies, Masked Recs
+
+Tue, 30 Jun 2026 01:00:21 GMT
+
+https://screenrant.com/motor-city-alan-ritchson-reacher-meets-john-wick/
+
+Alan Ritchson leans into his Reacher roots in a new action movie that features a DC star along with other juggernauts of the genre.
+---------
+
+# 10 Most Common Fan Misconceptions About Satoru Gojo
+
+Anime, Jujutsu Kaisen
+
+Tue, 30 Jun 2026 02:46:14 GMT
+
+https://www.cbr.com/satoru-gojo-fan-misconceptions-jjk/
+
+Fanon often gets confused with canon, especially when it comes to popular anime characters like Jujutsu Kaisen's Satoru Gojo.
+---------
+
+# 5 Found Footage Movies Better Than The Blair Witch Project
+
+Movies, The Blair Witch Project
+
+Tue, 30 Jun 2026 02:46:14 GMT
+
+https://www.cbr.com/found-footage-movies-better-than-blair-witch-project-list/
+
+The Blair Witch Project created the found footage subgenre, but some films have taken it even further and created true masterpieces.
+---------
+
+# Legend of Zelda: Quartet of Time Officially Coming This Year
+
+Games, The Legend of Zelda
+
+Tue, 30 Jun 2026 02:42:13 GMT
+
+https://www.cbr.com/legend-of-zelda-quartet-of-time-official-40th-anniversary-release/
+
+Nintendo is finally releasing the long-awaited Ocarina of Time remake, but there are even more new releases on the way for Zelda's 40th anniversary.
+---------
+
+# 10 Free Steam RPGs That Are Actually Masterpieces
+
+Games, Warframe, Path of Exile, Dota 2, Steam
+
+Tue, 30 Jun 2026 02:30:13 GMT
+
+https://www.cbr.com/free-steam-rpg-masterpieces/
+
+Steam's library is home to countless masterpiece role-playing games, with some of the best being absolutely free to play.
+---------
+
+# 32 Years Later, SNES Fans Are Still Sleeping On 1 of the Best Games of the '90s
+
+Games, Nintendo
+
+Tue, 30 Jun 2026 02:15:14 GMT
+
+https://www.cbr.com/greatest-90s-snes-game-all-time-the-lost-vikings/
+
+There's no shortage of classic '90s games, but one underrated SNES title is one of the greatest games ever made.
+---------
+
+# 57 Years Later, Spock’s Best Star Trek Line Is Still the Greatest Quote in Sci-Fi History
+
+TV, Star Trek, Star Trek: The Original Series, Sci-Fi
+
+Tue, 30 Jun 2026 02:00:25 GMT
+
+https://www.cbr.com/star-trek-spock-all-our-yesterdays-quote/
+
+Spock’s heartfelt line in Star Trek's “All Our Yesterdays" perfectly summarizes the importance of his friendship with Kirk and McCoy.
+---------
+
+# 10 Anime Arcs Where the Villain Should Have Won
+
+Anime, shonen anime, Shonen, My Hero Academia, Naruto: Shippuden, One-Punch Man
+
+Tue, 30 Jun 2026 02:00:25 GMT
+
+https://www.cbr.com/anime-arcs-villain-should-have-won/
+
+Anime villains often lose because the story needs the heroes to win, but there are plenty of cases where the villain had every right to win.
+---------
+
+# Disney and LEGO's Bionicle Franchise Beats Transformers
+
+Movies, Transformers, Lego Bionicle: The Journey to One
+
+Tue, 30 Jun 2026 02:00:25 GMT
+
+https://www.cbr.com/lego-bionicle-better-than-transformers/
+
+The Transformers: The Movie is turning 40 years old, but in 2003, an animated film based on the toy that saved Lego told the same story even better.
+---------
+
+# 8 RPGs Where Every Build Feels Like A New Game
+
+Games, Video Games, Elden Ring, Diablo, RPG
+
+Tue, 30 Jun 2026 01:46:15 GMT
+
+https://www.cbr.com/rpgs-that-get-better-with-new-character-builds/
+
+The true merits of an incredible RPG come when a new character build makes the game feel brand new.
+---------
+
+# Taylor Sheridan Confirms Rage-Baiting Landman Critics: 'I Want to Piss You Off'
+
+TV, Landman
+
+Tue, 30 Jun 2026 01:45:55 GMT
+
+https://www.cbr.com/taylor-sheridan-rage-bait-landman-storylines/
+
+Taylor Sheridan shares the Landman storylines he crafted to intentionally rage-bait the show's critics.
+---------
+
+# ‘Supergirl’ Falls Short of Marvel and DC’s Biggest Box Office Bombs
+
+Movie News, Supergirl, Milly Alcock, Box Office, The Marvels
+
+Tue, 30 Jun 2026 02:00:25 GMT
+
+https://collider.com/supergirl-box-office-debut-lower-than-the-marvels-mcu-biggest-flop/
+
+Supergirl had a lower box-office debut than that of The Marvels, the biggest bomb of the Marvel CInematic Universe. Find out more.
+---------
+
+# 'The Big Bang Theory's New Sci-Fi Spin-Off Hints at a Major Sheldon and Leonard Problem
+
+TV Features, Stuart Fails to Save the Universe, The Big Bang Theory, HBO Max, Series
+
+Tue, 30 Jun 2026 01:47:15 GMT
+
+https://collider.com/the-big-bang-theory-stuart-fails-to-save-the-universe-sheldon-leonard-problem/
+
+Stuart Fails to Save the Universe proves one thing: The Big Bang Theory franchise still can’t escape Sheldon and Leonard.
+---------
+
+# All 9 Live-Action Batman Actors, Ranked
+
+Movie, Batman, The Batman, The Dark Knight, Superhero
+
+Tue, 30 Jun 2026 01:38:14 GMT
+
+https://collider.com/batman-actors-live-action-ranked/
+
+From Michael Keaton, to Christian Bale, to Robert Pattinson, we've ranked every live-action Batman actor from worst to best.
+---------
+
+# 3 Series You Need To Binge on Prime Video This July
+
+TV, Prime Video, The Girlfriend, Psych, Harlan Coben's Shelter
+
+Tue, 30 Jun 2026 01:11:14 GMT
+
+https://collider.com/prime-video-shows-binge-july-2026/
+
+Harlan Coben’s Shelter, Psych, and The Girlfriend make up our list of the best Prime Video shows to binge in July 2026.
+---------
+
+# 10 Best '90s Video Games Worth Playing Over and Over
+
+Movie, Video Game, Gaming, The Legend of Zelda, 1990s
+
+Tue, 30 Jun 2026 01:11:14 GMT
+
+https://collider.com/best-90s-video-games-worth-playing-over-and-over/
+
+There are many great games from the 90s that continue to be fun no matter how many times they've been experienced. Such as Super Metroid and Tekken 3.
+---------
+
+# Disney’s $1 Billion Sci-Fi Sequel Isn't Backing Down on Streaming
+
+Movie News, Disney, James Cameron, Avatar: Fire and Ash, Avatar: The Way of Water
+
+Tue, 30 Jun 2026 01:00:14 GMT
+
+https://collider.com/disneys-1-billion-sci-fi-sequel-is-officially-taking-over-the-world/
+
+James Cameron's Avatar: Fire and Ash, the latest sci-fi blockbuster from the Titanic director, has taken over the global streaming charts on Disney+.
+---------
+
+# Hulu’s 13-Part Agatha Christie Show Is One of the Greatest Detective Series Ever
+
+TV Features, Hulu, Poirot, Agatha Christie, Mystery
+
+Tue, 30 Jun 2026 00:52:15 GMT
+
+https://collider.com/hulu-agatha-christie-piorot-greatest-detective-series/
+
+Starting in 1989, Agatha Christie’s Piorot adapted the iconic character to small screen, making it one of the best detective series of all-time.
+---------
+
+# Tom Cruise's Twisty WWII Thriller Is More Authentic Than Fans Realize
+
+Movie Features, valkyrie, Terence Stamp, Tom Cruise, Bill Nighy
+
+Tue, 30 Jun 2026 00:41:14 GMT
+
+https://collider.com/terence-stamp-valkyrie-war-memories-tom-cruise-hitler/
+
+Terence Stamp brought WWII memories to Valkyrie, revealing the hidden connection behind Tom Cruise's Hitler assassination thriller.
+---------
+
+# 'The Bear's Strongest Ship Outshines Everything Else, but the Show Refuses To Go There
+
+TV Features, The Bear, Ayo Edebiri, Jeremy Allen White, FX
+
+Tue, 30 Jun 2026 00:40:14 GMT
+
+https://collider.com/the-bear-season-5-carmy-syd-best-romantic-ship/
+
+Despite not explicitly becoming romantic, Carmy and Sydney's deep connection and chemistry make them the standout ship in The Bear.
+---------
+
+# 'House of the Dragon's Nettles Replacement Spells Major Trouble for the Character
+
+TV Features, House of the Dragon, HBO Max, HBO, George R.R. Martin
+
+Tue, 30 Jun 2026 00:13:58 GMT
+
+https://collider.com/house-of-the-dragon-season-3-nettles-replacement-rhaena-trouble/
+
+After claiming Sheepstealer, Rhaena replaces Nettles in House of the Dragon, setting up a dangerous path for her in Season 3 after Jace's death.
+---------
+
+# 8 Greatest Sci-Fi TV Shows With Even Better World-Building Than Their Books
+
+TV Lists, Foundation, Sci-Fi, Dune: Prophecy, The Expanse
+
+Tue, 30 Jun 2026 02:00:31 GMT
+
+https://movieweb.com/sci-fi-shows-better-world-building-books/
+
+While there are some impressive sci-fi books with incredible world-building, these TV shows do an even better job.
+---------
+
+# Aaron Taylor-Johnson's Long-Awaited Erotic Series Adds 'Tomb Raider' Star
+
+TV News, Alicia Vikander, Netflix, Aaron Taylor-Johnson
+
+Tue, 30 Jun 2026 00:56:06 GMT
+
+https://movieweb.com/enigma-variations-alicia-vikander-netflix/
+
+Alicia Vikander has joined the adaptation of the 'Call Me by Your Name' author's 'Enigma Variations.'
+---------
+
 # Bestselling Romantasy Series Is The Vampire ACOTAR You Never Knew You Needed
 
 Books, Romantasy, A Court of Thorns and Roses (2015)
