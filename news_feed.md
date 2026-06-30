@@ -1,3 +1,344 @@
+# What From Season 4's Ending Scene Means For Season 5 Explained By Creators
+
+TV, From, FROM - Season 4
+
+Tue, 30 Jun 2026 12:20:20 GMT
+
+https://screenrant.com/from-season-4-boy-in-white-man-in-yellow-final-scene-pinkner-griffin-explained/
+
+EXCLUSIVE: With only one season left, From's Jeff Pinkner and John Griffin address what the season 4 finale's last scene means for the endgame.
+---------
+
+# Taylor Sheridan Star's Underrated Western Adaptation Finds Streaming Redemption 18 Years Later
+
+Movies, Masked Recs
+
+Tue, 30 Jun 2026 12:17:55 GMT
+
+https://screenrant.com/ed-harris-appaloosa-western-movie-hbo-max-streaming-success-june-2026/
+
+Ed Harris' acclaimed 2008 Western 'Appaloosa' enjoys a new lease of life on streaming 18 years after its release, climbing the charts on HBO Max.
+---------
+
+# Crunchyroll's Most Popular and Controversial Isekai Returns In 1 Week
+
+Anime, Crunchyroll, Isekai, Masked Recs
+
+Tue, 30 Jun 2026 12:00:22 GMT
+
+https://screenrant.com/mushoku-tensei-return-crunchyroll-most-popular-isekai/
+
+Mushoku Tensei, one of anime's most popular and controversial titles, returns for its third season with a special double-episode premiere July 4th.
+---------
+
+# We're Officially 1 Year Away From Shrek 5's Release Date
+
+New Movies, Shrek 5
+
+Tue, 30 Jun 2026 12:00:22 GMT
+
+https://screenrant.com/shrek-5-release-date-one-year/
+
+A highly anticipated fantasy movie has hit a huge milestone, with a major sequel officially releasing in one year from today after years away.
+---------
+
+# New Honkai: Star Rail Collab Puts Fan-Favorite Character At The Forefront
+
+Gaming, Honkai: Star Rail, PC, Live Service Games
+
+Tue, 30 Jun 2026 12:00:22 GMT
+
+https://screenrant.com/honkai-star-rail-collab-ugreen-merch/
+
+In addition to the crossover with Fate/Stay Night, Honkai: Star Rail is initiating another collab centered around a fan-favorite character.
+---------
+
+# Christopher Meloni Has Disappointing Update About Stabler’s Clamored Law & Order: SVU Return
+
+Network TV, Law & Order: Special Victims Unit
+
+Tue, 30 Jun 2026 11:47:57 GMT
+
+https://screenrant.com/law-and-order-svu-christopher-meloni-return-update/
+
+After Law & Order: Organized Crime was cancelled,  Christopher Meloni shares new update about Elliot Stabler's SVU return, but it isn't all good.
+---------
+
+# Red Dead Redemption 2 Map Expansion Makes World Feel More Alive Than Ever
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2
+
+Tue, 30 Jun 2026 11:38:32 GMT
+
+https://screenrant.com/red-dead-redemption-2-random-encounters-mod/
+
+Red Dead Redemption 2's map is already one of the best of all time, but there's always room for some improvement if you know where to look.
+---------
+
+# Teenage Mutant Ninja Turtles Is Officially Changing Format
+
+Movies, Teenage Mutant Ninja Turtles
+
+Tue, 30 Jun 2026 11:30:19 GMT
+
+https://screenrant.com/teenage-mutant-ninja-turtles-movie-2028-live-action-cgi-hybrid/
+
+Four decades on from its very first screen release, the Teenage Mutant Ninja Turtles franchise is about to change to a radical new format.
+---------
+
+# Assassin's Creed World War 2 "Perfect" Gameplay Blows Fans Away
+
+Gaming, Assassin's Creed
+
+Tue, 30 Jun 2026 11:11:55 GMT
+
+https://screenrant.com/assassins-creed-world-war-2-perfect-gameplay/
+
+Assassin's Creed has been to all sorts of time periods over the years, but WW2 really did come out of left field for many.
+---------
+
+# Prime Video's Best Fantasy Series Just Outdid House Of The Dragon
+
+Streaming TV, Masked Recs
+
+Tue, 30 Jun 2026 11:00:20 GMT
+
+https://screenrant.com/the-legend-of-vox-machina-more-epic-house-dragon/
+
+House of the Dragon season 3 may have opened with a massive bang, but one of Prime Video’s best fantasy shows provides epic competition.
+---------
+
+# Taylor Sheridan's New Yellowstone Spinoff Is a PVOD Hit Ahead of Finale
+
+TV, Yellowstone, Dutton Ranch, Western
+
+Tue, 30 Jun 2026 12:00:13 GMT
+
+https://www.cbr.com/yellowstone-dutton-ranch-western-streaming-success-june-2026/
+
+The latest addition to Taylor Sheridan's Yellowstone universe is a massive streaming hit ahead of its biggest episode yet.
+---------
+
+# DC's Most Powerful Hero Is About to Die — And There's No Chance of Revival
+
+Comics, jsa, DC Comics
+
+Tue, 30 Jun 2026 12:00:13 GMT
+
+https://www.cbr.com/dc-spectre-death-confirmed-jsa-21-preview/
+
+DC is planning to permanently kill one of its most powerful heroes - promising their death will "save the universe" in the process.
+---------
+
+# In Just 1 Month, Guy Ritchie's $13M Action Thriller Gets New Release After Bombing in Theaters
+
+Movies, In the Grey
+
+Tue, 30 Jun 2026 11:30:12 GMT
+
+https://www.cbr.com/guy-ritchie-in-the-grey-blu-ray-release-july-2026/
+
+Despite starring Henry Cavill and Jake Gyllenhaal, Guy Ritchie's latest action thriller flopped in theaters. A new release could turn things around...
+---------
+
+# DC's New Batman Show Is Making a Historic Rule Change for Superhero TV
+
+TV, Batman, Absolute Batman, DCU
+
+Tue, 30 Jun 2026 11:30:12 GMT
+
+https://www.cbr.com/dc-absolute-batman-historic-rule-change-superhero-tv/
+
+Absolute Batman is becoming an animated series, with this development cycle mirroring and perhaps replicating the success of anime and manga.
+---------
+
+# Netflix's 3-Season Instant Sci-Fi Classic Is as Close to Perfect as Remakes Get
+
+TV, Lost In Space, Netflix, Sci-Fi
+
+Tue, 30 Jun 2026 11:02:10 GMT
+
+https://www.cbr.com/netflix-lost-in-space-perfect-sci-fi-classic-remake/
+
+This 21st-century sci-fi remake of the 1960s classic Lost in Space from Netflix deserved all the praise it received during its run, and after.
+---------
+
+# Olivia Wilde Recalls How Walton Goggins Saved Her Life on Set of Jon Favreau's Space Western
+
+Movies, Cowboys & Aliens
+
+Tue, 30 Jun 2026 11:00:13 GMT
+
+https://www.cbr.com/olivia-wilde-says-walton-goggins-saved-her-life-cowboys-and-aliens/
+
+Olivia Wilde shares the near-death experience she had while filming on horseback, and how Walton Goggins ended up saving her life.
+---------
+
+# 10 Best Avengers Comics of All Time
+
+Comics, Marvel
+
+Tue, 30 Jun 2026 11:00:13 GMT
+
+https://www.cbr.com/best-avengers-comics-ever-published/
+
+The Avengers are the most legendary team in comics history, and these stories helped establish get them there.
+---------
+
+# It's Official, Netflix's 96% RT Dystopian Thriller Is the Sci-Fi TV Event of the Decade
+
+TV, The Eternaut, Netflix, Sci-Fi
+
+Tue, 30 Jun 2026 10:41:29 GMT
+
+https://www.cbr.com/netflix-the-eternaut-sci-fi-thriller-tv-event/
+
+Netflix's The Eternaut is a dominant force in modern sci-fi television, making it a must-watch for fans of the genre.
+---------
+
+# Jason Statham's Impressive Fantasy Revenge Flick is the Perfect Weekend Watch
+
+Movie Features, Jason Statham, Fantasy, Uwe Boll, In the Name of the King: A Dungeon Siege Tale
+
+Tue, 30 Jun 2026 12:27:13 GMT
+
+https://collider.com/jason-stathams-fantasy-revenge-flick-in-the-name-of-the-king/
+
+Uwe Boll's 'In The Name of the King' stars Jason Statham as a once humble farmer seeking revenge.
+---------
+
+# The 40 Best Movie Franchises to Binge-Watch, Ranked
+
+Movie, Indiana Jones, The Lord of the Rings, Star Wars, Top 10
+
+Tue, 30 Jun 2026 12:14:13 GMT
+
+https://collider.com/best-movie-franchises-to-binge/
+
+Our list of the best movie series to binge includes the film series with the most good-to-great movies, like Harry Potter, LotR, and Star Wars.
+---------
+
+# DC Studios Isn’t Panicking After ‘Supergirl’s Weak Box Office Debut
+
+Movie News, Supergirl, DC Universe, Peter Safran, James Gunn
+
+Tue, 30 Jun 2026 12:00:14 GMT
+
+https://collider.com/supergirl-box-office-failure-peter-safran-response-dc-studios/
+
+DC Studios co-CEO Peter Safran has commented on the box-office debut of Supergirl and indicated the larger plan continues unchanged.
+---------
+
+# 6 Thriller Movies That Are a Masterclass in Suspense
+
+Movie, Thriller, Taken, Jaws, Cure
+
+Tue, 30 Jun 2026 11:52:13 GMT
+
+https://collider.com/thriller-movies-masterclass-suspense/
+
+From Zodiac to Prisoners, these six thrillers turn tension, dread, and uncertainty into a masterclass in suspense.
+---------
+
+# 10 Sci-Fi Movie Endings That Are Genuine Masterpieces
+
+Movie, Arrival, 2001: A Space Odyssey, Eternal Sunshine of the Spotless Mind, Science Fiction
+
+Tue, 30 Jun 2026 11:31:13 GMT
+
+https://collider.com/sci-fi-movie-endings-masterpieces/
+
+Movies like Arrival and Eternal Sunshine of the Spotless Mind feature the best and most powerful endings in the history of the science fiction genre.
+---------
+
+# The Rolling Stones' Most Forgotten 1973 Song Is Actually Their Greatest
+
+Music Features, The Rolling Stones, Mick Jagger, Rock, Music
+
+Tue, 30 Jun 2026 11:30:13 GMT
+
+https://collider.com/the-rolling-stones-greatest-song-winter-1973/
+
+The Rolling Stones' 1973 song from Goats Head Soup showcases the band's emotional songwriting and remains one of their most overlooked gems.
+---------
+
+# Hulu's New Serial Killer Thriller Officially Sets Release Date
+
+TV News, You, Furious, Hulu, Thriller
+
+Tue, 30 Jun 2026 11:30:13 GMT
+
+https://collider.com/furious-hulu-you-replacement-emmy-rossum-serial-killer-thriller/
+
+Hulu’s upcoming thriller aims to fill the void left by a major Netflix hit, with a female killer at the center of the chaos.
+---------
+
+# 'Daredevil: Born Again's New Suit Officially Reveals a Major MCU Redesign
+
+TV Features, Daredevil: Born Again, Charlie Cox, Elodie Yung, Disney+
+
+Tue, 30 Jun 2026 11:18:13 GMT
+
+https://collider.com/daredevil-born-again-season-3-new-suit-comic-book-history/
+
+Not only will Daredevil: Born Again Season 3 see Matt Murdock donning a new suit, but it's one with plenty of comics history.
+---------
+
+# 10 Video Games From the 2000s That Are Now Considered Classics
+
+Video Games, The Legend of Zelda, Resident Evil 4, BioShock, Mass Effect
+
+Tue, 30 Jun 2026 11:04:13 GMT
+
+https://collider.com/2000s-video-games-classics/
+
+Resident Evil 4, Portal, and Shadow of the Colossus are among the best 2000s video games that are now considered classics.
+---------
+
+# Harlan Coben’s New Netflix Hit Is No. 1, but Fans Aren’t Happy
+
+TV News, I Will Find You, Netflix, Harlan Coben, Thriller
+
+Tue, 30 Jun 2026 11:00:13 GMT
+
+https://collider.com/i-will-find-you-netflix-new-harlan-coben-series-fan-reactions-backlash/
+
+Netflix's new hit Harlan Coben mystery series, I Will Find You, is receiving backlash from the fans.
+---------
+
+# Ridley Scott Teases His Long-Awaited Return to Sci-Fi Action in 2 Months
+
+Movie News, Ridley Scott, Action, Sci-Fi, The Dog Stars
+
+Tue, 30 Jun 2026 12:22:34 GMT
+
+https://movieweb.com/ridley-scott-dog-stars-action-sci-fi-different/
+
+The 'Alien' and 'Blade Runner' director reveals how his upcoming post-apocalyptic film 'The Dog Stars' will differ from what's come before.
+---------
+
+# Netflix's 119-Minute Action Thriller Is Officially One of the Most-Watched Streaming Hits Ever Made
+
+Movie News, Netflix, Carry-On, Action, Thriller
+
+Tue, 30 Jun 2026 11:30:18 GMT
+
+https://movieweb.com/netflix-carry-on-most-watched-ever-stream-action/
+
+The 'Die Hard'-esque action movie has cemented itself as one of Netflix's biggest hits of all time.
+---------
+
+# 'Lilo & Stitch' Star Daveigh Chase Cause of Death Revealed
+
+Movie News, Daveigh Chase, Lilo & Stitch
+
+Tue, 30 Jun 2026 11:25:13 GMT
+
+https://movieweb.com/daveigh-chase-cause-of-death/
+
+A cause of death has been revealed for 35-year-old former child star Daveigh Chase, known for her roles in 'Lilo & Stitch' and 'The Ring.'
+---------
+
 # It’s Official, Invincible Returns One Month Today
 
 Gaming, Invincible
