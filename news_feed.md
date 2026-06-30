@@ -1,3 +1,443 @@
+# Universal Officially Reveals Timothée Chalamet’s New Alien Sci-Fi Movie In Not Alone Trailer
+
+Movies, Not Alone
+
+Tue, 30 Jun 2026 15:07:47 GMT
+
+https://screenrant.com/not-alone-trailer-timothee-chalamet/
+
+Illumination is reaching for the stars with its new animated movie featuring an all-star cast, including Timothée Chalamet in Not Alone's new trailer.
+---------
+
+# New Stephen King-Approved Horror Movie Becomes Instant U.S. Streaming Hit After Making 42X Its Budget At The Box Office
+
+Movies, Masked Recs, Horror, Stephen King
+
+Tue, 30 Jun 2026 15:00:22 GMT
+
+https://screenrant.com/undertone-movie-hbo-max-streaming-success-june-2026/
+
+A new horror movie that got a seal of approval from genre icon Stephen King is already a streaming hit in the U.S. after its box office success.
+---------
+
+# The X-Files Meets Hannibal In Fox's Forgotten 3-Part Crime Drama
+
+Classic TV, Masked Recs
+
+Tue, 30 Jun 2026 15:00:22 GMT
+
+https://screenrant.com/fox-crime-drama-millennium-the-x-files-hannibal/
+
+While The X-Files and Hannibal stand the test of time as horror/crime dramas, Fox's Millennium from decades ago deserves to be remembered as well.
+---------
+
+# Andy Serkis' New Epic War Movie Debuts To Strong Rotten Tomatoes Score
+
+Movies, Masked Recs
+
+Tue, 30 Jun 2026 15:00:16 GMT
+
+https://screenrant.com/young-washington-rotten-tomatoes-score-debut/
+
+Andy Serkis stars in a gritty new war movie, and a positive Rotten Tomatoes score has now taken shape for the epic historical adventure.
+---------
+
+# PlayStation 6 Official Price Update Confirmed By Sony
+
+Gaming, PlayStation 6, PlayStation, Triple-A Games
+
+Tue, 30 Jun 2026 14:53:40 GMT
+
+https://screenrant.com/playstation-6-official-price-update/
+
+A concerning report last week suggested the possibility of a very high price for the PS6, and Sony has now officially addressed the topic.
+---------
+
+# Xbox Reportedly Planning "Largest Single Layoff Event In Gaming History"
+
+Gaming, Xbox
+
+Tue, 30 Jun 2026 14:50:56 GMT
+
+https://screenrant.com/xbox-largest-single-layoff-event-gaming/
+
+Microsoft's reported Xbox layoffs could become gaming's biggest ever, with studio closures and thousands at risk.
+---------
+
+# Super Mario Galaxy Movie Sets Official Streaming Release Date
+
+Movies, The Super Mario Galaxy Movie
+
+Tue, 30 Jun 2026 14:47:39 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-peacock-streaming-release-date/
+
+The Super Mario Galaxy Movie is soaring on Peacock, as the streaming giant officially reveals the streaming release date for the animated sequel.
+---------
+
+# Ted Lasso Season 4 Could Not Have Picked A Better Debut
+
+Movies, Ted Lasso
+
+Tue, 30 Jun 2026 14:45:20 GMT
+
+https://screenrant.com/ted-lasso-season-4-world-cup-perfect-debut/
+
+Ted Lasso season 4's release date is just around the corner, and it's clear, based on its timing, that this debut was perfectly planned.
+---------
+
+# Sean Bean’s Hit 4-Part Dystopian Thriller Series Officially Releases On Hulu Next Month
+
+TV, Masked Recs, Hulu
+
+Tue, 30 Jun 2026 14:45:06 GMT
+
+https://screenrant.com/snowpiercer-series-hulu-streaming-release-date/
+
+Hulu's lineup is set to add a hit 4-season dystopian thriller series starring the master of the on-screen death, Game of Thrones' Sean Bean.
+---------
+
+# New Arc Raiders Update Includes A Fresh Way To Get A Snap Hook Blueprint
+
+Gaming, ARC Raiders
+
+Tue, 30 Jun 2026 14:41:37 GMT
+
+https://screenrant.com/new-arc-raiders-update-includes-a-fresh-way-to-get-a-snap-hook-blueprint/
+
+If you have the Queen Reactors and Matriarch Reactors Ermal is looking for, you can trade them for a Snap Hook blueprint.
+---------
+
+# Anya Taylor Joy's $1B Sequel Finally Sets Streaming Release Date After Grossing 9x Its Budget
+
+Movies, The Super Mario Galaxy Movie
+
+Tue, 30 Jun 2026 15:00:39 GMT
+
+https://www.cbr.com/anya-taylor-joy-the-super-mario-galaxy-movie-peacock-release-date-july-2026/
+
+Despite negative reviews, the sequel went on to exceed expectations.
+---------
+
+# 10 Early Dragon Ball Moments That Shaped the Entire Franchise
+
+Anime, Dragon Ball, Akira Toriyama
+
+Tue, 30 Jun 2026 15:00:14 GMT
+
+https://www.cbr.com/dragon-ball-early-moments-shaped-the-franchise/
+
+Dragon Ball is full of unforgettable moments, and there are some formative sequences early on that helped build the anime's brand and personality.
+---------
+
+# The Must-Watch Sci-Fi Movies From Every Year of The 2000s
+
+Movies, Sci-Fi
+
+Tue, 30 Jun 2026 14:46:13 GMT
+
+https://www.cbr.com/best-sci-fi-movies-every-year-2000s-list/
+
+The 2000s were an incredible era for the sci-fi genre, and these ten masterpieces are the best sci-fi movies from every year of the decade.
+---------
+
+# 47 Ronin Director Convicted for Scamming Netflix for $11 Million
+
+Movies, 47 Ronin, Netflix
+
+Tue, 30 Jun 2026 14:31:58 GMT
+
+https://www.cbr.com/47-ronin-director-carl-rinsch-sentenced/
+
+Keanu Reeves asked for leniency in the case, but the filmmaker still got prison time.
+---------
+
+# 5 Fantasy Books for George RR Martin Fans That Aren't Game of Thrones
+
+TV, Fantasy, Game Of Thrones, George R.R. Martin
+
+Tue, 30 Jun 2026 14:30:13 GMT
+
+https://www.cbr.com/fantasy-books-that-are-not-game-of-thrones/
+
+For readers who love Game of Thrones and are waiting on George R.R. Martin's The Winds of Winter, these epic high fantasy books will keep you going.
+---------
+
+# 9 Greatest One Piece Battles That Turned The Tide Forever
+
+Anime, One Piece
+
+Tue, 30 Jun 2026 14:15:13 GMT
+
+https://www.cbr.com/greatest-one-piece-battles-turned-the-tide-forever/
+
+One Piece isn't the shonen with the best fights overall, but that doesn't mean its strongest efforts haven't reshaped the entire genre.
+---------
+
+# Netflix's Reboot of Beloved 39-Year-Old Sitcom Finally Confirms Release Date
+
+TV, a different world, Netflix, Sitcoms
+
+Tue, 30 Jun 2026 14:04:57 GMT
+
+https://www.cbr.com/netflix-a-different-world-reboot-release-date-trailer/
+
+A blast from the past officially returns on Netflix after four decades with several returning stars, as A Different World gets a new series.
+---------
+
+# Archie Reboot Creative Team Reveals Why Archie Is Still Popular Today
+
+Comics, Archie Comics
+
+Tue, 30 Jun 2026 14:00:13 GMT
+
+https://www.cbr.com/archie-reboot-creative-team-interview/
+
+In a CBR exclusive interview with the creative team of Oni Press' Archie reboot, learn about the writers of the books and see the new Archie designs
+---------
+
+# DC's Absolute Universe Confirms First Major Crossover In Climactic Comic Finale
+
+Comics, Absolute Universe, Martian Manhunter, Wonder Woman
+
+Tue, 30 Jun 2026 14:00:13 GMT
+
+https://www.cbr.com/dcs-absolute-martian-manhunter-12-crossover-confirmed/
+
+DC's Absolute Universe to overlap in one series' upcoming finale.
+---------
+
+# 10 Hilarious Far Side Comics About Stressful Parenting
+
+Comics, The Far Side
+
+Tue, 30 Jun 2026 14:00:13 GMT
+
+https://www.cbr.com/hilarious-far-side-comics-about-parenting/
+
+From oblivious dads to panicked moms, no parent is safe from Gary Larson’s iconic absurdity.
+---------
+
+# How DreamWorks Snuck a ‘Predator’ Cameo Into Their Next Animated Movie [Exclusive]
+
+Exclusives, Forgotten Island, DreamWorks Animation, Jenny Slate, Dave Franco
+
+Tue, 30 Jun 2026 15:04:07 GMT
+
+https://collider.com/forgotten-island-arnold-schwarzenegger-predator-cameo-details/
+
+The directors of DreamWorks' Forgotten Island talk the movie's surprising influences, the terrifying new villain, and that shock Predator cameo.
+---------
+
+# Netflix’s New No. 1 Crime Thriller Is So Good, Season 2 Is Already Happening
+
+TV News, Nemesis, Netflix, Power, Crime
+
+Tue, 30 Jun 2026 15:00:14 GMT
+
+https://collider.com/nemesis-season-2-renewed-netflix-crime-thriller/
+
+Netflix's crime thriller Nemesis from Power creator Courtney A. Kemp has just been renewed for Season 2 after a strong debut on the platform.
+---------
+
+# ‘Doctor Who’ Officially Returns to SDCC With New Titan Collection [Exclusive]
+
+Exclusives, San Diego Comic-Con, Star Wars, Doctor Who, Aliens
+
+Tue, 30 Jun 2026 15:00:14 GMT
+
+https://collider.com/titan-comics-sdcc-2026-exclusives-star-wars-aliens-doctor-who/
+
+Titan Comics is bringing more than 35 exclusives to San Diego Comic-Con 2026, including Star Wars, Dogma, Doctor Who, and Aliens collectibles.
+---------
+
+# Forget ‘Bosch,’ Prime Video Has Officially Set a Release Date for the ‘Reacher’ Spin-Off
+
+TV News, Neagley, Reacher, Maria Sten, Alan Ritchson
+
+Tue, 30 Jun 2026 14:41:24 GMT
+
+https://collider.com/reacher-spin-off-neagley-release-date-prime-video-september-2026/
+
+Prime Video has officially set a release date for Neagley, the upcoming spin-off from Alan Ritchson’s beloved action series Reacher.
+---------
+
+# ‘Reacher’ Season 4 Officially Returns in Just 6 Weeks
+
+TV News, Reacher
+
+Tue, 30 Jun 2026 14:41:24 GMT
+
+https://collider.com/reacher-season-4-release-date-prime-video-august-2026/
+
+Prime Video has finally set a release date for Reacher Season 4. Here’s when the Alan Ritchson-led series returns.
+---------
+
+# 'From' Season 4 Ends With Shocking Deaths That Change Everything for the Town
+
+Exclusives, From, MGM, MGM TV, Horror
+
+Tue, 30 Jun 2026 14:00:13 GMT
+
+https://collider.com/from-season-4-finale-marielle-elgin-deaths-kaelen-ohm-nathan-d-simmons-interview/
+
+From stars Kaelen Ohm and Nathan D. Simmons discuss the Season 4 finale, their characters' shocking fates, and their hopes for the final season.
+---------
+
+# 20 Years Later, The Greatest Dark Fantasy Movie of All Time Officially Returns to Theaters
+
+Movie News, Pan's Labyrinth, Guillermo del Toro, Fantasy
+
+Tue, 30 Jun 2026 14:00:13 GMT
+
+https://collider.com/pans-labyrinth-20th-anniversary-theatrical-release-trailer-3d/
+
+Guillermo del Toro's acclaimed dark fantasy film Pan's Labyrinth celebrates its 20th anniversary with a theatrical re-release in 4K, 3D, and HDR.
+---------
+
+# Steven Spielberg's New Horror Obsession Is Already Available to Watch at Home
+
+Movie News, Obsession, Curry Barker, Inde Navarrette, Prime Video
+
+Tue, 30 Jun 2026 13:14:10 GMT
+
+https://collider.com/obsession-digital-release-date-june-30-2026/
+
+After a historic box office run, Curry Barker's Obsession is officially available to watch at home.
+---------
+
+# 'Alien 3' Director Reveals Scrapped Plans That Would Have Changed the Franchise Forever [Exclusive]
+
+Exclusives, Renny Harlin, Die Hard 2, Alien 3, Alien
+
+Tue, 30 Jun 2026 12:52:18 GMT
+
+https://collider.com/alien-3-original-plot-details/
+
+Renny Harlin revealed why he walked away from directing Alien 3 after 20th Century Fox rejected his radically different ideas.
+---------
+
+# Apple TV's Sweeping 2-Part Sci-Fi Monster Series Is Perfect for a Weekend Binge
+
+TV Features, Monarch: Legacy of Monsters, Kurt Russell, Wyatt Russell, Apple TV
+
+Tue, 30 Jun 2026 12:36:13 GMT
+
+https://collider.com/monarch-legacy-of-monsters-apple-tv-perfect-weekend-binge/
+
+Apple TV's Monarch: Legacy of Monsters is a must-watch sci-fi series that blends emotional storytelling with giant monster action.
+---------
+
+# 'The Originals:' Klaus Mikaelson Quotes That Sum Up His Character
+
+TV Lists, The Originals, Vampire Diaries
+
+Tue, 30 Jun 2026 15:00:21 GMT
+
+https://movieweb.com/the-originals-klaus-mikaelson-quotes/
+
+Klaus Mikaelson's quotes in The Originals and The Vampire Diaries sum him up as one of TV's most complex characters.
+---------
+
+# I'm Worried 'Dexter: Resurrection' Season 2 Is Already Running Out of Ideas
+
+Features, Dexter: Resurrection, Dexter, Krysten Ritter
+
+Tue, 30 Jun 2026 15:00:20 GMT
+
+https://movieweb.com/dexter-resurrection-season-2-krysten-ritter-return-concerning/
+
+There's been a casting announcement for 'Dexter: Resurrection's return, and a worryingly familiar face is coming back. Read on for more.
+---------
+
+# 'Reacher' Season 4 Release Date Officially Confirmed by Prime Video
+
+TV News, Reacher, Neagley, Prime Video
+
+Tue, 30 Jun 2026 14:37:18 GMT
+
+https://movieweb.com/reacher-season-4-prime-video-release-date/
+
+After an excruciating wait, Prime Video has finally confirmed when 'Reacher,' one of its biggest shows ever, will return for Season 4.
+---------
+
+# 10 Years Later, One of the Best Sci-Fi Thrillers Ever Made Sets New Release
+
+Movie News, Arrival, Sci-Fi
+
+Tue, 30 Jun 2026 14:25:10 GMT
+
+https://movieweb.com/arrival-4k-blu-ray-steelbook-release/
+
+Denis Villeneuve's 'Arrival' is getting a new 4K Blu-ray steelbook release to celebrate the 10th anniversary of the acclaimed sci-fi masterpiece.
+---------
+
+# Netflix's Hit Fantasy Epic Returns in New Look as Series Crosses Major Milestone
+
+TV News, One Piece
+
+Tue, 30 Jun 2026 14:01:12 GMT
+
+https://movieweb.com/netflix-one-piece-season-3-production-image/
+
+Netflix's live-action 'One Piece' series has officially wrapped up production on Season 3.
+---------
+
+# Apple TV’s New Hit Thriller Is So Memorable, Even Stephen King Loves It
+
+Features, Maximum Pleasure Guaranteed, Stephen King
+
+Tue, 30 Jun 2026 14:00:19 GMT
+
+https://movieweb.com/maximum-pleasure-guaranteed-thriller-stephen-king/
+
+Stephen King has shared his love for a new thriller TV series that premiered on Apple TV recently.
+---------
+
+# Netflix's Next John Wick-Style Action Thriller Hit Releases Next Month
+
+Movie News, Netflix, Action, Crime, Thriller
+
+Tue, 30 Jun 2026 13:38:32 GMT
+
+https://movieweb.com/netflix-debt-collector-trailer-release-date-action/
+
+You've never heard of 'The Debt Collector,' but based on the new trailer it's destined to be another action thriller streaming smash hit.
+---------
+
+# Taylor Sheridan's Hit Action Thriller Rises Again on Streaming
+
+Movie News, Sicario: Day Of The Soldado, Hot on Streaming, Taylor Sheridan, Action
+
+Tue, 30 Jun 2026 13:30:18 GMT
+
+https://movieweb.com/sicario-2-day-of-the-soldado-taylor-sheridan-streaming-success-sony-june-2026/
+
+Taylor Sheridan's hit action thriller sequel 'Sicario: Day of the Soldado' is a US streaming success on Sony Pictures Core, ahead of 'Sicario 3.'
+---------
+
+# Taylor Sheridan Reveals How He Rage-Baited Critics With 'Landman': "F*ck 'Em"
+
+TV News, Taylor Sheridan, Yellowstone, Landman
+
+Tue, 30 Jun 2026 13:05:41 GMT
+
+https://movieweb.com/taylor-sheridan-admits-rage-bait-critics-landman/
+
+The 'Yellowstone' creator takes aim at critics, Los Angeles, and Marvel.
+---------
+
+# Every Pixar Sequel Movie, Ranked
+
+Movie Lists, Toy Story 2, Pixar, Disney, Toy Story 5
+
+Tue, 30 Jun 2026 13:00:19 GMT
+
+https://movieweb.com/every-pixar-sequel-movie-ranked/
+
+This is every Pixar sequel movie, ranked according to how they measure up to their original film.
+---------
+
 # What From Season 4's Ending Scene Means For Season 5 Explained By Creators
 
 TV, From, FROM - Season 4
