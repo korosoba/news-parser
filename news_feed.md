@@ -1,3 +1,355 @@
+# Paramount+ Officially Upgraded MTV's Most Controversial Show After 26 Years
+
+Streaming TV, Masked Recs
+
+Tue, 30 Jun 2026 22:30:13 GMT
+
+https://screenrant.com/paramount-plus-jackass-mtv-episodes-restored-uncensored-streaming/
+
+Paramount+ has released a restored, uncensored version of Jackass' original TV show to coincide with the new movie, and it's a great nostalgic binge.
+---------
+
+# 2027's Blair Witch Movie Is Continuing A Very Successful Recent Horror Trend
+
+Movies, Blair Witch
+
+Tue, 30 Jun 2026 22:30:13 GMT
+
+https://screenrant.com/blair-witch-movie-2027-director-horror-trend/
+
+A new installment in the Blair Witch franchise is set to release in 2027, and the film is continuing a recent successful trend in the horror genre.
+---------
+
+# Nathan Fillion Goes From The Rookie To HBO's Next Cop Show
+
+Streaming TV, Masked Recs
+
+Tue, 30 Jun 2026 22:15:08 GMT
+
+https://screenrant.com/nathan-fillion-the-rookie-lanterns-hbo-cop-show/
+
+Nathan Fillion has found success with The Rookie, but he's about to join another cop show in August thanks to the upcoming series Lanterns on HBO Max.
+---------
+
+# Haikyu's Return is Less Than 1 Year Away, And It Could Finally Dethrone Infinity Castle
+
+Anime, Haikyu!!
+
+Tue, 30 Jun 2026 22:15:08 GMT
+
+https://screenrant.com/haikyu-little-giant-demon-slayer-infinity-castle-biggest-challenger/
+
+With the epic Karasuno and Kamomedai showdown set for 2027, an upcoming Anime NYC panel promises major updates for the next Haikyu!! movie.
+---------
+
+# Road House Officially Returns With Exciting New Release Next Month
+
+Movies, Road House, Road House 2
+
+Tue, 30 Jun 2026 22:13:16 GMT
+
+https://screenrant.com/road-house-4k-bluray-steelbook-release-july-2026/
+
+Via Vision Entertainment's limited-edition 4K SteelBook release of Road House arrives next month, offering fans a premium collector's edition.
+---------
+
+# Cillian Murphy's A Quiet Place 3 Return Revealed In New Set Images
+
+TV, A Quiet Place Part III, A Quiet Place, Cillian Murphy
+
+Tue, 30 Jun 2026 22:02:44 GMT
+
+https://screenrant.com/a-quiet-place-3-set-images-cillian-murphy-return/
+
+A Quiet Place Part III recently began filming in New York, and new set photos have revealed Cillian Murphy reprising his character from the sequel.
+---------
+
+# Why HBO Max's New High Fantasy Series Has Become A Global Streaming Hit
+
+TV, Masked Recs
+
+Tue, 30 Jun 2026 22:00:55 GMT
+
+https://screenrant.com/hbo-max-house-of-the-dragon-season-3-streaming-charts-rise/
+
+HBO Max's high fantasy series has set the streaming world ablaze, topping the streaming service in several countries, and it is warranted.
+---------
+
+# 5 Shonen Anime Heroes Who Could Beat Goku
+
+Anime
+
+Tue, 30 Jun 2026 22:00:16 GMT
+
+https://screenrant.com/shonen-anime-heroes-beat-goku/
+
+Dragon Ball's Goku isn't just one of the most popular anime characters around: he's one of the strongest, but even he can't defeat these characters.
+---------
+
+# Shovel Knight Officially Returns With Surprise New Release
+
+Gaming, Shovel Knight, Triple-A Games
+
+Tue, 30 Jun 2026 22:00:16 GMT
+
+https://screenrant.com/shovel-knight-uno-cosmetic-pack-release/
+
+At this point Shovel Knight is over 10 years old, which some would even consider retro territory, but it's alive and kicking.
+---------
+
+# Peacock's Dungeon Crawler Carl TV Show Must Succeed At Its Hardest Task
+
+Streaming TV, Dungeon Crawler Carl
+
+Tue, 30 Jun 2026 22:00:16 GMT
+
+https://screenrant.com/dungeon-crawler-carl-princess-donut-problem/
+
+Peacock's Dungeon Crawler Carl could become one of the biggest science fiction shows of all time, but it has to accomplish an important mission first.
+---------
+
+# NCIS Sees Major Shakeup as Fan-Favorite Returns (With a Twist)
+
+TV, NCIS, NCIS: Origins
+
+Tue, 30 Jun 2026 22:30:54 GMT
+
+https://www.cbr.com/ncis-origins-eric-christian-olsen-executive-producer/
+
+An NCIS fan favorite star makes a surprising return to the franchise.
+---------
+
+# The Best Action Anime From Every Year of the 2000s
+
+Anime, Naruto, Bleach
+
+Tue, 30 Jun 2026 22:15:16 GMT
+
+https://www.cbr.com/best-action-anime-every-year-2000s/
+
+The 2000s packed with standout anime series like Naruto and Black Lagoon that continually raised the bar for action.
+---------
+
+# Top 10 DC Heroes Destined to Be the Next Big Stars
+
+Comics, DC Comics, Superman
+
+Tue, 30 Jun 2026 22:00:12 GMT
+
+https://www.cbr.com/dc-heroes-next-breakout-hit/
+
+Forget Batman, DC Comics needs to invest in these forgotten heroes.
+---------
+
+# Netflix Is Officially Rebooting Willy Wonka and the Chocolate Factory
+
+Movies, Charlie and the Chocolate Factory, Willy Wonka and the Chocolate Factory, Netflix
+
+Tue, 30 Jun 2026 22:00:12 GMT
+
+https://www.cbr.com/netflix-willy-wonka-and-the-chocolate-factory-reboot/
+
+Netflix will unveil a peculiar new vision of a world of pure imagination with next year's revamp of a classic Roald Dahl property.
+---------
+
+# 55 Years Later, Netflix Resurrects Gene Wilder with AI for Willy Wonka Return
+
+TV, Willy Wonka and the Chocolate Factory
+
+Tue, 30 Jun 2026 21:35:35 GMT
+
+https://www.cbr.com/gene-wilder-returns-willy-wonka-ai-netflix/
+
+Ten years after his death, Gene Wilder will reprise his role as Willy Wonka with the assistance of AI.
+---------
+
+# All Of Subaru's Deaths In Re: Zero (In Chronological Order)
+
+Anime, re:Zero
+
+Tue, 30 Jun 2026 21:30:15 GMT
+
+https://www.cbr.com/rezero-subaru-deaths-chronological-order/
+
+With the Re: Zero anime now on hiatus from its fourth season, fans can't help but wonder how many times Natsuki Subaru has died across all 77 episodes
+---------
+
+# The Lord of the Rings: Ascension Officially Coming July 14
+
+Games, The Lord of the Rings
+
+Tue, 30 Jun 2026 21:28:19 GMT
+
+https://www.cbr.com/lord-of-the-rings-ascension-official-release-july-14/
+
+A brand-new Lord of the Rings game is officially coming this July.
+---------
+
+# Dutton Ranch Finally Confirms Beth & Rip's Worst Yellowstone Moment
+
+TV, Yellowstone, Dutton Ranch
+
+Tue, 30 Jun 2026 21:25:51 GMT
+
+https://www.cbr.com/yellowstone-dutton-ranch-episode-8-beth-rip-carter-mistake/
+
+Dutton Ranch revisits Beth and Rip's worst Yellowstone moment in Episode 8, "Whiskey Limits," with Carter's story highlighting their past mistakes.
+---------
+
+# Video Games That Feel Like Classic Game Of Thrones
+
+Games, Game Of Thrones, RPG, Video Games
+
+Tue, 30 Jun 2026 21:15:02 GMT
+
+https://www.cbr.com/games-that-feel-like-classic-game-of-thrones/
+
+The early seasons of Game of Thrones are among the best premium TV ever made, and a handful of video games have managed to capture that quality.
+---------
+
+# Netflix Quietly Adds Guy Ritchie and Tom Hardy’s Hit Crime Series, But There’s a Catch
+
+TV News, MobLand, Tom Hardy, Netflix, Guy Ritchie
+
+Tue, 30 Jun 2026 22:44:48 GMT
+
+https://collider.com/guy-ritchie-tom-hardy-mobland-global-streaming-netflix-july-1-2026/
+
+Netflix has added Tom Hardy's Paramount+ original crime series, Mobland, to its catalog, ahead of its highly anticipated Season 2.
+---------
+
+# 10 Fantasy Books With the Greatest Magic Systems
+
+Books and Comics, Books, Fantasy, The Wheel of Time, Shadow and Bone
+
+Tue, 30 Jun 2026 22:21:03 GMT
+
+https://collider.com/fantasy-books-best-magic-systems/
+
+From The Wheel of Time to Discworld, these brilliant fantasy books have the most in-depth, interesting, and unforgettable magic systems in literature.
+---------
+
+# ‘The Last of Us’ Officially Returns in Just 3 Months With New Release
+
+Gaming News, The Last of Us, HBO, Naughty Dog
+
+Tue, 30 Jun 2026 21:59:14 GMT
+
+https://collider.com/the-last-of-us-return-part-2-multiplayer-mode-fan-mod/
+
+The Last of Us returns this September with a new release that fans have been waiting to see for years.
+---------
+
+# New James Bond Details Officially Revealed by 007 Veteran
+
+Movie News, James Bond, Jacob Elordi, Callum Turner, Daniel Craig
+
+Tue, 30 Jun 2026 21:55:45 GMT
+
+https://collider.com/james-bond-casting-director-rejects-jacob-elordi-callum-turner-harris-dickinson-fan-casts/
+
+Former James Bond casting director Debbie McWilliams has shared her input on who should play the next 007, and who shouldn't.
+---------
+
+# 8 Best Japanese Monster Movies Without Godzilla
+
+Movie, Gamera: Guardian of the Universe, Mothra, Rodan, Gamera 3: Revenge of Iris
+
+Tue, 30 Jun 2026 21:55:16 GMT
+
+https://collider.com/best-japanese-monster-movies-without-godzilla-ranked/
+
+There are a few giant monster movies from Japan that don't feature Godzilla, including three classic Gamera films and the original Mothra.
+---------
+
+# 7 Most Romantic Scenes in 'Every Year After' Season 1
+
+TV, Every Year After, Romance, Prime Video, Drama
+
+Tue, 30 Jun 2026 21:44:14 GMT
+
+https://collider.com/every-year-after-season-1-romantic-scenes-ranked/
+
+The hit Prime Video series Every Year After, starring Sadie Soverall, is an ode to summer love, so revisit the most romantic scenes from Season 1.
+---------
+
+# Say Goodbye to ‘Game of Thrones’ Fantasy Crown as Netflix’s Massive New Series Is Far Superior
+
+TV Features, Netflix, Game Of Thrones, Magic: The Gathering, Legendary Entertainment
+
+Tue, 30 Jun 2026 21:42:09 GMT
+
+https://collider.com/netflix-magic-the-gathering-fantasy-series-better-than-game-of-thrones/
+
+Everyone has been trying to make "the next Game of Thrones", but Netflix might actually succed with its adapation of Magic: The Gathering.
+---------
+
+# 10 Greatest Movies of the Last 9 Years
+
+Movie, Parasite, Sinners, Everything Everywhere All at Once, Saltburn
+
+Tue, 30 Jun 2026 21:42:09 GMT
+
+https://collider.com/best-movies-last-9-years-ranked/
+
+From Sinners, to Everything Everywhere All at Once, to Oppenheimer, the past 9 years in cinema has given the world masterpieces.
+---------
+
+# 'Landman' Officially Confirms Major Season 3 Change
+
+TV News, Landman, Taylor Sheridan, Demi Moore, Ali Larter
+
+Tue, 30 Jun 2026 21:41:37 GMT
+
+https://collider.com/taylor-sheridan-landman-season-3-pay-increase-demi-moore-ali-larter/
+
+Big changes are coming to Season 3 of Taylor Sheridan's Landman, especially for both Demi Moore and Ali Larter. Read on for more details.
+---------
+
+# All 5 Nirvana Albums, Ranked
+
+Music Features, 90s, Nirvana, Kurt Cobain, Rock
+
+Tue, 30 Jun 2026 21:27:12 GMT
+
+https://collider.com/every-nirvana-album-ranked/
+
+From Nevermind, to In Utero, to Bleach, this is the definitive ranking of every album from Nirvana's all-too-short career and artistic output.
+---------
+
+# Review | The Minions Are as Adorable and One-Dimensional as Ever in New Sequel
+
+Movie Reviews, Minions & Monsters
+
+Tue, 30 Jun 2026 22:21:24 GMT
+
+https://movieweb.com/minions-and-monsters-review/
+
+The latest installment reminds us that the characters are hilarious but work best when they are supporting characters.
+---------
+
+# Jason Statham 107-Minute Action Thriller Flop Officially Streaming Smash Hit
+
+Movie News, Jason Statham, Shelter, Hot on Streaming, Action, Thriller
+
+Tue, 30 Jun 2026 22:00:12 GMT
+
+https://movieweb.com/jason-statham-shelter-streaming-hit-june-2026/
+
+The action star's latest release remains unstoppable following its streaming debut.
+---------
+
+# Netflix’s Steamiest Thriller Series Is So Good, You’ll Need to Rewatch It
+
+Features, The Hunting Wives, Netflix
+
+Tue, 30 Jun 2026 22:00:12 GMT
+
+https://movieweb.com/the-hunting-wives-netflix-rewatch-season-2/
+
+Netflix has released several memorable thriller TV series, and there is one that is perfect to rewatch before Season 2 premieres.
+---------
+
 # Steam's New 9/10 Free Game Is Getting Rave Reviews
 
 Gaming, Steam, PC
