@@ -1,3 +1,399 @@
+# 2017 Was The Greatest Year Ever For Superhero Movies
+
+Movies, Superhero, Op-Ed
+
+Tue, 30 Jun 2026 17:20:21 GMT
+
+https://screenrant.com/2017-best-year-superhero-movies/
+
+Superhero films have had several great years but 2017 is the best thanks to awesome sequels, an animated classic, and hits from both Marvel and DC.
+---------
+
+# New Nintendo Switch 2 Leak Reveals Updated Screen
+
+Gaming, Nintendo Switch 2
+
+Tue, 30 Jun 2026 17:20:19 GMT
+
+https://screenrant.com/switch-2-new-model-screen-leak-nintendo/
+
+The Nintendo Switch 2 is finally changing a commonly criticized aspect of the system, but some fans might still not get what they want.
+---------
+
+# The Pitt Season 3 Officially Casts 6 New Student Doctors & Patients
+
+TV, The Pitt, HBO Max
+
+Tue, 30 Jun 2026 17:15:39 GMT
+
+https://screenrant.com/the-pitt-season-3-new-recurring-cast-doctors-patients/
+
+The Pitt season 3 is getting a whole host of new faces as the cast reveals the first six new stars to be joining the hit HBO Max medical drama.
+---------
+
+# Christopher Nolan's Original Mind-Bending Thriller Gets A New Streaming Home In A Few Days
+
+Movies, Masked Recs
+
+Tue, 30 Jun 2026 17:00:22 GMT
+
+https://screenrant.com/christopher-nolan-memento-netflix-release-date-july-2026/
+
+The psychological thriller that catapulted director Christopher Nolan to fame will soon become available to watch on a popular streaming service.
+---------
+
+# Before Her Lord Of The Rings Debut, Anya Taylor-Joy’s 89% RT Fantasy Series Is The Perfect Binge
+
+Streaming TV, Masked Recs
+
+Tue, 30 Jun 2026 17:00:22 GMT
+
+https://screenrant.com/anya-taylor-joy-the-dark-crystal-age-of-resistance-lord-of-the-rings-seren/
+
+Anya Taylor-Joy will play a new character in The Lord of the Rings franchise, but she has appeared in a great and bingeable fantasy TV show before.
+---------
+
+# Kingsman Meets The Bear In Prime Video's Genius 2026 Spy Series
+
+Streaming TV, Masked Recs
+
+Tue, 30 Jun 2026 16:50:12 GMT
+
+https://screenrant.com/bait-prime-video-spy-series-kingsman-meets-the-bear/
+
+The Bear has perfected subtle humor and authentic storytelling, while projects like Kingsman have been creating an absurdist spy drama universe.
+---------
+
+# Massive Lawsuit Alleges RAM Manufacturer Collusion Amid Steam Machine Launch
+
+Gaming, Steam, Gaming Hardware
+
+Tue, 30 Jun 2026 16:49:49 GMT
+
+https://screenrant.com/ram-price-fixing-lawsuit-console-steam-machine/
+
+Valve's Steam Machine is launching at an exorbitant price because of components that a new lawsuit alleges were fixed at an artificially high rate.
+---------
+
+# Minions & Monsters Review: A Surprisingly Charming, If Hurried, Addition To The Franchise
+
+Movies, Minions & Monsters, Despicable Me
+
+Tue, 30 Jun 2026 16:44:21 GMT
+
+https://screenrant.com/minions-and-monsters-movie-2026-review/
+
+The latest installment in the Minions franchise seemed unlikely to break new ground, but the narrative and its humor take audiences by surprise.
+---------
+
+# Taylor Sheridan’s Yellowstone Spinoff Confirms Showrunner Replacement After Infamous Firing
+
+TV, Dutton Ranch
+
+Tue, 30 Jun 2026 16:35:01 GMT
+
+https://screenrant.com/dutton-ranch-season-2-showrunner-benjamin-cavell/
+
+Dutton Ranch is coming back for season 2, but this time with a whole new showrunner after creator Taylor Sheridan's firing scandal.
+---------
+
+# 4 Days Before Its Big Return, Hunter x Hunter Debuts Stunning Hisoka Redesign
+
+Anime, Hunter X Hunter
+
+Tue, 30 Jun 2026 16:33:52 GMT
+
+https://screenrant.com/hunter-x-hunter-return-hisoka-redesign/
+
+As Hunter x Hunter's circulation surpasses 100 million copies, the beloved franchise releases the next big manga cover featuring a new Hisoka design.
+---------
+
+# Warner Bros.’ 129-Minute Superhero Reboot With an 83% RT Is Officially a Streaming Hit
+
+Movies, Superman, DCU, HBO Max
+
+Tue, 30 Jun 2026 17:15:23 GMT
+
+https://www.cbr.com/superman-superhero-streaming-success-hbo-max-june-2026/
+
+WB's superhero reboot is back on the HBO Max streaming chart.
+---------
+
+# 10 Best Co-Op Games Announced or Releasing in 2026
+
+Games, Multiplayer Games, Elden Ring, RuneScape, Video Games
+
+Tue, 30 Jun 2026 17:15:13 GMT
+
+https://www.cbr.com/best-co-op-games-announced-releasing-2026/
+
+Co-op gaming is having its biggest year yet. These are the best games to play with friends in 2026, from RuneScape to Elden Ring.
+---------
+
+# New Nintendo Switch 2 Model Revealed in Online Leak
+
+Games, Nintendo, Nintendo Switch, Video Games
+
+Tue, 30 Jun 2026 17:12:13 GMT
+
+https://www.cbr.com/new-nintendo-switch-2-model-online-leak/
+
+The next Nintendo Switch 2 model may have leaked online, as a new variation has been found and is making the rounds, hinting at an improved screen.
+---------
+
+# The Biggest Box Office Surprise of All Time Officially Sets Streaming Release
+
+Movies, Obsession
+
+Tue, 30 Jun 2026 16:51:59 GMT
+
+https://www.cbr.com/obsession-pvod-release/
+
+The record-shattering movie rewrote box office history and it's now heading to digital.
+---------
+
+# Back to the Future Officially Returns With New Release in 2026
+
+Movies, Back to the Future, Sci-Fi
+
+Tue, 30 Jun 2026 16:16:26 GMT
+
+https://www.cbr.com/back-to-the-future-complete-screenplay-book-2026/
+
+Back to the Future gets an exciting new release in 2026.
+---------
+
+# 5 Essential '90s Anime Series That Are Still Perfect Today
+
+Anime, Cowboy Bebop, Sailor Moon, Yu Yu Hakusho
+
+Tue, 30 Jun 2026 16:15:13 GMT
+
+https://www.cbr.com/essential-90s-anime-series-still-perfect-today/
+
+The 1990s had a plethora of excellent anime series that may feel dated in 2026, but these five essential titles are still perfect when watching today.
+---------
+
+# Pokémon TCG Officially Reveals Complete 30th Celebration Card Line
+
+Games, Pokemon, Pokemon Trading Card Game, Pokémon
+
+Tue, 30 Jun 2026 16:06:14 GMT
+
+https://www.cbr.com/pokemon-tcg-official-reveal-30th-celebration-cards-complete-lineup/
+
+The Pokémon Company has officially revealed the Trading Card Game's 30th anniversary line-up, including new Elite Trainer Boxes and booster packs.
+---------
+
+# Marvel Comics Has Finally Created Its Own Boba Fett
+
+Comics, Star Wars, Marvel
+
+Tue, 30 Jun 2026 16:00:14 GMT
+
+https://www.cbr.com/captain-america-12-frenzah-boba-fett-comparisons/
+
+Marvel may have finally found its answer to Star Wars icon Boba Fett.
+---------
+
+# Star Trek II: The Wrath of Khan Has Spock's Hardest Quote
+
+Movies, Star Trek, Star Trek: The Original Series, Star Trek II: The Wrath of Khan
+
+Tue, 30 Jun 2026 16:00:14 GMT
+
+https://www.cbr.com/star-trek-ii-the-wrath-of-khan-best-spock-quote/
+
+Of the many wise, powerful quotes from Spock in Star Trek history, one is surprisingly revealing and moving and not actually spoken by him.
+---------
+
+# Say Goodbye to Alan Ritchson's Reacher Era as Prime Video Debuts Franchise Replacement
+
+TV, Neagley, Reacher
+
+Tue, 30 Jun 2026 15:42:31 GMT
+
+https://www.cbr.com/prime-video-unveils-reacher-spinoff-neagley-first-look-release-date/
+
+Prime Video is doubling down on the Reacher franchise with a twist.
+---------
+
+# ‘GTA 6’ Officially Faces New Controversy Just Days After Record-Breaking Preorder
+
+Gaming News, Grand Theft Auto V, Microsoft Xbox, Gaming, Video Game
+
+Tue, 30 Jun 2026 17:15:13 GMT
+
+https://collider.com/gta-6-preorders-playstation-xbox-response/
+
+Xbox has responded to a viral GTA 6 preorder report claiming PlayStation was outperforming Xbox, saying the data does not represent real preorders.
+---------
+
+# Chris Hemsworth's New R-Rated Crime Thriller Has Officially Arrived
+
+Movie News, Crime 101, Chris Hemsworth, Prime Video, Mark Ruffalo
+
+Tue, 30 Jun 2026 17:14:00 GMT
+
+https://collider.com/crime-101-blu-ray-release-chris-hemsworth-prime-video/
+
+Crime 101, the hit Prime Video thriller starring Chris Hemsworth, has scored a major new release following unprecedented streaming success.
+---------
+
+# HBO Max’s Most Faithful Game of Thrones Spin-Off Is Officially a Streaming Smash Hit
+
+TV News, House of the Dragon, George R.R. Martin, A Knight Of The Seven Kingdoms, HBO Max
+
+Tue, 30 Jun 2026 17:05:13 GMT
+
+https://collider.com/a-knight-of-the-seven-kingdoms-streaming-success-hbo-max-june-2026/
+
+A Knight of the Seven Kingdoms is rising on HBO Max as House of the Dragon Season 3 faces mixed audience reviews.
+---------
+
+# 144-Minute Sci-Fi Masterpiece Officially Gets New Release This Summer
+
+Movie News, Project Hail Mary, Supergirl, Disclosure Day, 4K Blu-ray
+
+Tue, 30 Jun 2026 16:55:13 GMT
+
+https://collider.com/project-hail-mary-the-best-sci-fi-film-of-the-year-physical-release-4k-hd-blu-ray-dvd/
+
+The best sci-fi film of 2026, Project Hail Mary, will be released on 4K Ultra HD, Blu-ray, and DVD this year, featuring exclusive bonus content.
+---------
+
+# Not Enough ‘Baldur’s Gate 3’ Players Experienced the Best Version of the Game
+
+Gaming, Baldur's Gate 3, Larian Studios, Video Game
+
+Tue, 30 Jun 2026 16:45:13 GMT
+
+https://collider.com/baldurs-gate-3-dark-urge-best-way-to-play/
+
+Every Baldur’s Gate 3 playthrough is memorable, but the Dark Urge origin delivers the game’s most compelling story.
+---------
+
+# Willy Wonka Officially Returns With New Netflix Series After 55 Years
+
+TV News, Gene Wilder, Willy Wonka and the Chocolate Factory, Netflix, Roald Dahl
+
+Tue, 30 Jun 2026 16:31:38 GMT
+
+https://collider.com/willy-wonka-netflix-series-competition-the-golden-ticket-trailer/
+
+Netflix is re-opening Willy Wonka’s Chocolate Factory after 55 years with the voice of Gene Wilder in a brand new series.
+---------
+
+# 'Super Mario Galaxy Movie' Officially Lands Streaming Release Date
+
+Movie News, The Super Mario Galaxy Movie, The Super Mario Bros. Movie, Peacock
+
+Tue, 30 Jun 2026 17:06:30 GMT
+
+https://movieweb.com/super-mario-galaxy-movie-streaming-release-date/
+
+'The Super Mario Galaxy Movie' has locked in a streaming release date following the animated sequel's $1 billion box office haul earlier this year.
+---------
+
+# 20 Years Ago, an Unsuspecting $1.8 Billion Movie Franchise Began
+
+Features, The Devil Wears Prada
+
+Tue, 30 Jun 2026 17:01:20 GMT
+
+https://movieweb.com/devil-wears-prada-20th-anniversary/
+
+On June 30, 2006, a movie was released that led to a $1.8 billion franchise, and it's exciting to celebrate its 20th anniversary.
+---------
+
+# 10 Japanese Actors Who Made It Big In American Cinema
+
+Movie Lists, Ken Watanabe, Masi Oka, George Takei
+
+Tue, 30 Jun 2026 17:01:20 GMT
+
+https://movieweb.com/japanese-actors-famous-american-cinema-hollywood/
+
+These Japanese actors found success in America; some had long runs in Japanese cinema, while others started their careers in the US.
+---------
+
+# Armie Hammer's "Banned" Action Thriller Lands Worldwide Release
+
+Movie News, Citizen Vigilante, Armie Hammer
+
+Tue, 30 Jun 2026 16:31:39 GMT
+
+https://movieweb.com/armie-hammer-citizen-vigilante-lands-worldwide-release/
+
+One of the most controversial films of the year was just acquired for worldwide release, less than one week after it streamed for free on X.
+---------
+
+# Timothée Chalamet's New Sci-Fi Space Movie Officially Revealed in First Trailer
+
+Movie News, Not Alone
+
+Tue, 30 Jun 2026 16:25:16 GMT
+
+https://movieweb.com/timothee-chalamet-not-alone-trailer/
+
+Timothée Chalamet is back with an epic new sci-fi story meant for all ages.
+---------
+
+# Netflix's New Smash Hit Crime Thriller Series Officially Renewed 1 Month After Debut
+
+TV News, Nemesis, Crime, Netflix
+
+Tue, 30 Jun 2026 16:10:17 GMT
+
+https://movieweb.com/netflix-nemesis-renewed-season-2/
+
+Netflix has renewed 'Nemesis' for a second season about six weeks after the first dropped.
+---------
+
+# 10 'Harry Potter' Retcons That HBO’s Reboot Can’t Ignore
+
+TV Lists, Harry Potter
+
+Tue, 30 Jun 2026 16:00:20 GMT
+
+https://movieweb.com/harry-potter-retcons-hbo-reboot/
+
+'Harry Potter's TV adaptation will premiere on HBO in December 2026 and stars John Lithgow, Alastair Stout, Arabella Stanton, and Dominic McLaughlin.
+---------
+
+# 15 Worst Villains on Bones
+
+TV Lists, Bones
+
+Tue, 30 Jun 2026 16:00:20 GMT
+
+https://movieweb.com/bones-most-despicable-villains/
+
+Over the course of 12 seasons, Bones and Booth took on countless bad guys (and girls). Here's a comprehensive list of the worst ones.
+---------
+
+# The Best 'Game of Thrones' Spin-off Refuses To Back Down on Streaming
+
+TV News, A Knight Of The Seven Kingdoms, Hot on Streaming, Game of Thrones, House of the Dragon
+
+Tue, 30 Jun 2026 15:30:19 GMT
+
+https://movieweb.com/knight-of-the-seven-kingdoms-game-of-thrones-stream-hbo-max-june-2026/
+
+Four months after the conclusion of Season 1, the best 'Game of Thrones' spin-off has returned to prove that chivalry isn't dead.
+---------
+
+# 'Reacher' Franchise Expands as New Spin-Off Confirms Streaming Release Date
+
+TV News, Neagley, Reacher, Prime Video
+
+Tue, 30 Jun 2026 15:22:00 GMT
+
+https://movieweb.com/neagley-prime-video-release-date/
+
+'Reacher' will expand into new stories with its first official spin-off, which is now confirmed for a release date on Prime Video.
+---------
+
 # Universal Officially Reveals Timothée Chalamet’s New Alien Sci-Fi Movie In Not Alone Trailer
 
 Movies, Not Alone
