@@ -1,3 +1,311 @@
+# 29 Years Later, Only One Dragon Ball GT Concept Is Aging Better than Super Saiyan 4
+
+Anime, Dragon Ball GT, Dragon Ball
+
+Wed, 01 Jul 2026 00:00:05 GMT
+
+https://screenrant.com/dragon-ball-shadow-dragons-aging-better-super-saiyan-4/
+
+As Dragon Ball moves forward without creator Akira Toriyama, revisiting the Shadow Dragons could add fresh, high-stakes storytelling to the series.
+---------
+
+# KPop Demon Hunters Meets Marvel's Spider-Man In New Action Game
+
+Gaming, KPop Demon Hunters, Marvel's Spider-Man, KEMURI, PC
+
+Wed, 01 Jul 2026 00:00:05 GMT
+
+https://screenrant.com/kpop-demon-hunters-kemuri/
+
+Fans of the legendary animated film KPop Demon Hunters and the equally great Marvel's Spider-Man should check out this brand-new action game.
+---------
+
+# 5 Things That Prove Supergirl Is Better Than Its Rotten Tomatoes Score
+
+Movies, Supergirl, DC
+
+Wed, 01 Jul 2026 00:00:05 GMT
+
+https://screenrant.com/supergirl-movie-better-than-rotten-tomatoes-score/
+
+Supergirl was met with middling reviews from critics after a great start with 2025's Superman, but it's far better than Rotten Tomatoes claims.
+---------
+
+# After 16 Years, Illumination's $5.4B Franchise Officially Sets Rotten Tomatoes History With New Movie
+
+Movies, Masked Recs, Illumination
+
+Tue, 30 Jun 2026 23:51:24 GMT
+
+https://screenrant.com/minions-and-monsters-rotten-tomatoes-score-despicable-me-illumination-record/
+
+Illumination's $5.4 billion franchise will release a new movie, and after 16 years, it's officially set to make a Rotten Tomatoes record.
+---------
+
+# Star Wars Has Been Secretly Setting Up A Future Animated Project For 5 Years
+
+Star Wars
+
+Tue, 30 Jun 2026 23:30:07 GMT
+
+https://screenrant.com/star-wars-secretly-setting-up-animated-project-clone-rebellion/
+
+Not unlike Maul - Shadow Lord, Star Wars has been setting up a future animated project that can fill in some major gaps in the official timeline.
+---------
+
+# 8 Best New Shows Releasing In July 2026
+
+Streaming TV
+
+Tue, 30 Jun 2026 23:30:07 GMT
+
+https://screenrant.com/best-tv-shows-releasing-july-2026/
+
+As the days grow longer and hotter in July, the ever-changing world of television has a handful of excellent, brand-new offerings for you to enjoy.
+---------
+
+# Cable's Epic X-Men '97 Season 2 Return Previewed By Marvel Star
+
+TV, X-Men '97
+
+Tue, 30 Jun 2026 23:29:37 GMT
+
+https://screenrant.com/xmen-97-season-2-cable-return-story-michael-johnston/
+
+Exclusive: X-Men '97 star Michael Johnston opened up about voicing the young Cable, a.k.a. Nathan Summers, in season 2 of the popular Disney+ show.
+---------
+
+# Obsession Spinoff Return Chances Addressed By Star After $371M Record-Breaking Success
+
+Movies, Obsession
+
+Tue, 30 Jun 2026 23:17:25 GMT
+
+https://screenrant.com/obsession-movie-spinoff-anthology-return-michael-johnston-response/
+
+Obsession star Michael Johnston discusses the possibility of a spinoff or anthology following the film's record-breaking box office success.
+---------
+
+# Star Wars Jedi 3 Perfect Title Unites Gamers
+
+Gaming, Star Wars Jedi: Survivor, Triple-A Games
+
+Tue, 30 Jun 2026 23:00:20 GMT
+
+https://screenrant.com/star-wars-jedi-3-master-title-gamers-speculate/
+
+Star Wars Jedi: Survivor managed to build on the foundation of Jedi: Fallen Order, but fans think they have the perfect title for the third game.
+---------
+
+# Ridley Scott's Black Hawk Down Is the Best War Movie of the 21st Century
+
+Movies, Black Hawk Down, War, ridley scott
+
+Wed, 01 Jul 2026 00:00:13 GMT
+
+https://www.cbr.com/ridley-scott-black-hawk-down-perfect-war-movie/
+
+Ridley Scott has consistently proven himself a master of epic war cinema, but one film stands out as his undisputed masterpiece of the 21st century.
+---------
+
+# Top 10 DC Heroes James Gunn Should Introduce Next
+
+Comics, DCU, DC Comics
+
+Wed, 01 Jul 2026 00:00:13 GMT
+
+https://www.cbr.com/dc-heroes-james-gunn-dcu-debut/
+
+There's no reason why James Gunn should neglect the perfect heroes for his next cinematic adventure.
+---------
+
+# It's Official, Mark Harmon Is Returning to NCIS for a Season-Long Story Arc
+
+TV, NCIS: Origins, NCIS
+
+Tue, 30 Jun 2026 23:39:33 GMT
+
+https://www.cbr.com/mark-harmon-return-gibbs-ncis-origins-season-3/
+
+Mark Harmon is reprising his role on-screen as Leroy Jethro Gibbs, and not for just a mere cameo.
+---------
+
+# Armie Hammer's Banned 'Batman Meets Punisher' Movie Gets Major Release Update
+
+Movies, Citizen Vigilante
+
+Tue, 30 Jun 2026 23:10:50 GMT
+
+https://www.cbr.com/citizen-vigilante-worldwide-distribution/
+
+The violent and controversial film gets a major release update after being made free for a limited time on X.
+---------
+
+# Studio Ghibli's My Neighbor Totoro Officially Returns to U.S. Theaters This July
+
+Anime, My Neighbor Totoro, Studio Ghibli, GKIDS
+
+Tue, 30 Jun 2026 23:10:12 GMT
+
+https://www.cbr.com/studio-ghibli-my-neighbor-totoro-america-theater-dates-july-2026/
+
+Ghibli Fest 2026 is about to bring My Neighbor Totoro back to the silver screen, although it isn't going to stick around for long.
+---------
+
+# Enola Holmes 3 Review: Millie Bobby Brown’s Sherlock Spinoff Finally Solves Its Biggest Problem
+
+Movies, Enola Holmes 3
+
+Tue, 30 Jun 2026 23:00:04 GMT
+
+https://www.cbr.com/enola-holmes-3-review/
+
+Enola Holmes 3 gives Millie Bobby Brown’s Netflix detective a personal new case that helps the sequel stand apart from Sherlock.
+---------
+
+# Apple TV's Slow-Burn Thriller Remake Returns This Year as the Perfect Widow's Bay Replacement
+
+TV, Presumed Innocent, Widow's Bay, Apple TV
+
+Tue, 30 Jun 2026 23:00:04 GMT
+
+https://www.cbr.com/apple-tv-presumed-innocent-return-widows-bay-replacement/
+
+Following the dramatic ending of Widow's Bay Season 1, Matthew Rhys is returning to our screens in Apple TV's best crime thriller series.
+---------
+
+# 5 Forgotten Sci-Fi Comedies That Are Perfect From Start to Finish
+
+Movies, Sci-Fi
+
+Tue, 30 Jun 2026 23:00:04 GMT
+
+https://www.cbr.com/sci-fi-comedies-no-one-remembers-list/
+
+From heartfelt spoofs to nostalgic casts, these flawless sci-fi comedies deserve more recognition for reigniting interest in the genre.
+---------
+
+# HBO Just Dropped the Perfect Callback to ‘Game of Thrones’ Very First Episode
+
+TV Features, House of the Dragon, Game Of Thrones, George R.R. Martin, HBO
+
+Tue, 30 Jun 2026 23:42:09 GMT
+
+https://collider.com/house-of-the-dragon-season-3-game-of-thrones-rhaenyra-otto-ned-stark-callback/
+
+Rhaenyra beheading Otto Hightower in House of the Dragon subverts Game of Thrones' principles and adds weight to her hollow victory.
+---------
+
+# Apple TV's Newest 100% Rotten Tomatoes Sci-Fi Success Says More About the Streamer Than You Think
+
+TV Features, Silo, Apple TV, Foundation, Severance
+
+Tue, 30 Jun 2026 23:29:05 GMT
+
+https://collider.com/apple-tv-silo-100-rotten-tomatoes-sci-fi-success-streamer/
+
+Apple TV gives its shows time to grow and find an audience, leading to hits like Silo, especially in the science fiction genre.
+---------
+
+# Collider's Best TV Shows of 2026 So Far
+
+TV Features, Best Of, Widow's Bay, A Knight Of The Seven Kingdoms, Daredevil: Born Again
+
+Tue, 30 Jun 2026 23:18:06 GMT
+
+https://collider.com/best-tv-shows-2026-so-far/
+
+From thrilling dramas to hilarious comedies, Collider's best TV shows of 2026 so far kept us tuning in week after week.
+---------
+
+# 24 Years Later, This Brutal Werewolf Movie Still Feels Dangerous
+
+Horror, Dog Soldiers, Sean Pertwee, Gotham, Neil Marshall
+
+Tue, 30 Jun 2026 23:15:14 GMT
+
+https://collider.com/dog-soldiers-best-werewolf-horror-movie/
+
+Neil Marshall's Dog Soldiers remains a top werewolf horror movie with brutal practical effects and nonstop suspense.
+---------
+
+# 'Bosch' Officially Gets a New Spin-Off From Original Creator
+
+TV News, Ballard, Bosch, Prime Video
+
+Tue, 30 Jun 2026 23:02:20 GMT
+
+https://collider.com/bosch-spin-off-michael-connelly-ironwood-catalina-series-renee-ballard-book/
+
+A new Bosch spin-off is officially on the way, with Michael Connelly writing a new story following the fan-favorite Renée Ballard.
+---------
+
+# 'Minions & Monsters' Rotten Tomatoes Score Officially Sets Franchise Record
+
+Movie News, Minions & Monsters, Despicable Me
+
+Tue, 30 Jun 2026 23:58:00 GMT
+
+https://movieweb.com/minions-and-monsters-rotten-tomatoes-score/
+
+It is, for now, the best-reviewed 'Despicable Me' franchise film ever recorded on Rotten Tomatoes.
+---------
+
+# J.J. Abrams Reveals Why His New Dinosaur Movie Isn't a 'Jurassic Park' Replacement
+
+Movie News, The End of Oak Street
+
+Tue, 30 Jun 2026 23:21:10 GMT
+
+https://movieweb.com/the-end-of-oak-street-jurassic-park-jj-abrams/
+
+David Robert Mitchell's 'The End of Oak Street' will be a very different movie from 'Jurassic Park.'
+---------
+
+# Nicolas Winding Refn Finally Returns With New Trailer for Sci-Fi Action Thriller
+
+Movie News, Her Private Hell, Nicolas Winding Refn, Sophie Thatcher
+
+Tue, 30 Jun 2026 23:02:45 GMT
+
+https://movieweb.com/her-private-hell-trailer-nicolas-winding-refn/
+
+Nicolas Winding Refn returns to feature filmmaking with 'Her Private Hell,' a sci-fi thriller starring Sophie Thatcher and Charles Melton.
+---------
+
+# Amazon Prime Officially Rewrites the Rules of 'Reacher'
+
+Features, Reacher, Neagley, Prime Video
+
+Tue, 30 Jun 2026 23:00:42 GMT
+
+https://movieweb.com/reacher-neagley-released-same-time/
+
+The upcoming 'Reacher' plans change everything for the Prime Video series ahead of the spin-off's premiere.
+---------
+
+# Disney Animated Classic Set to Lose Box Office Crown to One of 2026's Biggest Movies
+
+Movie News, Michael, The Lion King
+
+Tue, 30 Jun 2026 23:00:19 GMT
+
+https://movieweb.com/michael-set-to-beat-the-lion-king-global-box-office-gross/
+
+2026's runaway musical biopic is about to overtake this beloved Disney classic's milestone achievement.
+---------
+
+# Review | Millie Bobby Brown's Third Netflix Mystery Offers an Exciting Evolution
+
+3.5 star movies, Enola Holmes 3, Millie Bobby Brown, Netflix
+
+Tue, 30 Jun 2026 23:00:19 GMT
+
+https://movieweb.com/enola-holmes-3-review/
+
+Enola Holmes 3 sees Millie Bobby Brown take on a sinister conspiracy and mature themes in a thrilling, action-packed adventure set in Malta.
+---------
+
 # Paramount+ Officially Upgraded MTV's Most Controversial Show After 26 Years
 
 Streaming TV, Masked Recs
