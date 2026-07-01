@@ -1,3 +1,388 @@
+# Disclosure Day Pitch Meeting
+
+Movies, Disclosure Day, Screen Rant Pitch Meetings
+
+Wed, 01 Jul 2026 19:12:29 GMT
+
+https://screenrant.com/video/disclosure-day-pitch-meeting/
+
+ScreenRant's Pitch Meeting series goes to space and back to look at Steven Spielberg's Disclosure Day and the sci-fi movie's inconsistent plotting.
+---------
+
+# Milly Alcock Will Officially Return To James Gunn's DCU Despite Supergirl's Box Office
+
+Movies, Masked Recs
+
+Wed, 01 Jul 2026 19:00:20 GMT
+
+https://screenrant.com/milly-alcock-james-gunn-dcu-return-supergirl-box-office/
+
+Though Supergirl underperformed at the box office, Milly Alcock is officially confirmed to appear in the next Superman movie, Man of Tomorrow.
+---------
+
+# Blair Witch Reboot: YouTube Horror Takes Over
+
+Movies, Originals
+
+Wed, 01 Jul 2026 19:00:20 GMT
+
+https://screenrant.com/video/blair-witch-reboot-youtube-horror-takes-over/
+
+Blair Witch Could Be Horror's Biggest Comeback. After years of failed attempts to continue the franchise, Blair Witch is returning with Blumhouse, Lionsgate, and a first-time feature director whose horror shorts found millions of fans on YouTube.
+---------
+
+# Official New Harry Potter RPG Is Already A Smash-Hit
+
+Gaming, Harry Potter, Harry Potter and the Sorcerer's Stone, Harry Potter and the Chamber of Secrets, Harry Potter and the Goblet of Fire, Harry Potter and the Prisoner of Azkaban, Harry Potter and the Half-Blood Prince, PC, Hogwarts Legacy, RPG
+
+Wed, 01 Jul 2026 19:00:20 GMT
+
+https://screenrant.com/harry-potter-defenders-of-hogwarts-kickstarter-progress/
+
+This new Harry Potter role-playing game is already making serious waves among fans of the franchise, and it should be on every Potterhead's radar.
+---------
+
+# Hellraiser Just Confirmed 5 New Releases Ahead of Its Next Series
+
+Comics, Hellraiser
+
+Wed, 01 Jul 2026 18:42:52 GMT
+
+https://screenrant.com/hellraiser-resurrections-series-details/
+
+Hellraiser enters one of its biggest franchise expansions yet, with the announcement of five new releases arriving ahead of the upcoming series.
+---------
+
+# Jackass: Best and Last Interview with Steve-O
+
+Videos, Jackass: Best and Last, Jackass
+
+Wed, 01 Jul 2026 18:41:30 GMT
+
+https://screenrant.com/video/jackass-best-and-last-steve-o-interview/
+
+Jackass Best And Last star Steve-O breaks down how the newest movie is full of previously banned footage and reflects on the message he hopes fans take away from the final installment.
+---------
+
+# New Metroid Game For Switch 2 Leaks Online
+
+Gaming, Metroid, Nintendo Switch 2, Triple-A Games
+
+Wed, 01 Jul 2026 18:39:30 GMT
+
+https://screenrant.com/metroid-ravenous-new-game-switch-2-leak/
+
+Months after the long-anticipated release of Metroid Prime 4, it looks like another Metroid game for the Switch 2 is already on the way.
+---------
+
+# Bleach: Thousand-Year Blood War Part 4 Announces Streaming Platform And Release Date
+
+Anime, Bleach, Bleach: Thousand Year Blood War
+
+Wed, 01 Jul 2026 18:37:38 GMT
+
+https://screenrant.com/bleach-thousand-year-blood-war-part-4-release-date-time/
+
+Following the theatrical release, the final episodes of Bleach: Thousand-Year Blood War are officially heading to streaming this July.
+---------
+
+# Why The Prisoner of Azkaban is the Best Harry Potter movie
+
+Movies, Harry Potter and the Prisoner of Azkaban, Harry Potter
+
+Wed, 01 Jul 2026 18:30:21 GMT
+
+https://screenrant.com/best-harry-potter-movie-prisoner-of-azkaban/
+
+While not the highest-rated installment, the third Harry Potter movie is peak cinema and a perfect transition into the latter half of the series.
+---------
+
+# The 10 Greatest R-Rated Superhero Movies of All Time, Ranked
+
+Movies, Logan, Joker, Deadpool
+
+Wed, 01 Jul 2026 19:00:12 GMT
+
+https://www.cbr.com/best-r-rated-superhero-movies-list/
+
+R-rated superhero movies have become far more profitable and popular in recent years, and some of these movies stand the test of time.
+---------
+
+# Naruto Returns in 2027 With Official First Look at New Production
+
+Anime, Naruto
+
+Wed, 01 Jul 2026 18:52:26 GMT
+
+https://www.cbr.com/naruto-ninja-show-2027/
+
+A brand-new Naruto production is set to premiere in February 2027 as a collaborative project between Japan and the UK.
+---------
+
+# Stephen Amell is back in the first look at a highly anticipated reboot of a '90s classic.
+
+TV, Baywatch, Drama
+
+Wed, 01 Jul 2026 18:49:43 GMT
+
+https://www.cbr.com/baywatch-reboot-trailer-stephen-amell-fox/
+
+Stephen Amell is back in the first look at a highly anticipated reboot of a '90s classic.
+---------
+
+# 34 Years Later, X-Men '97 Finally Gives Jubilee a Major Upgrade
+
+TV, X-Men '97, X-Men, Marvel
+
+Wed, 01 Jul 2026 18:46:46 GMT
+
+https://www.cbr.com/marvel-x-men-97-jubilee-character-arc/
+
+The first batch of episodes from X-Men '97's second season paid off an exciting Jubilee storyline over three decades in the making.
+---------
+
+# Netflix's New 25-Episode Samurai Series Is Officially One of the Hottest Shows On Streaming
+
+Anime, Netflix, Baki-Dou: The Invincible Samurai, Baki The Grappler, Baki Hanma
+
+Wed, 01 Jul 2026 18:45:14 GMT
+
+https://www.cbr.com/netflix-baki-dou-hottest-anime-streaming/
+
+Baki-Dou: The Invincible Samurai has become one of Netflix's biggest anime hits, thanks to Musashi Miyamoto and its explosive martial arts fighting.
+---------
+
+# Henry Cavill's Sherlock Holmes Returns With Franchise-Record Rotten Tomatoes Score
+
+Movies, Enola Holmes 3
+
+Wed, 01 Jul 2026 18:41:42 GMT
+
+https://www.cbr.com/henry-cavill-enola-holmes-3-rotten-tomatoes-score/
+
+The hit murder mystery franchise returned after four years.
+---------
+
+# Spider-Man: Brand New Day Director Cast 1 Major Star Without an Audition
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man
+
+Wed, 01 Jul 2026 18:04:21 GMT
+
+https://www.cbr.com/spider-man-brand-new-sadie-sink-cast-no-audition-script/
+
+A major Spider-Man role was cast without an audition or a script.
+---------
+
+# HBO's Steamy & Raunchy 3-Season Comedy Drama Returns as a PVOD Hit 15 Years After Cancellation
+
+TV, Hung, HBO Max, Comedy
+
+Wed, 01 Jul 2026 18:01:13 GMT
+
+https://www.cbr.com/hung-hbo-comedy-drama-pvod-success-july-2026/
+
+HBO's forgotten steamy comedy-drama Hung is a hit on PVOD in the United States and Canada.
+---------
+
+# Absolute Batman's Scott Snyder Announces Undiscovered Country Vol. 6 In Trade
+
+Comics, scott snyder, The Undiscovered Country
+
+Wed, 01 Jul 2026 18:01:13 GMT
+
+https://www.cbr.com/scott-snyder-announces-undiscovered-country-vol-6-victory/
+
+The conclusion to one of Scott Snyder's most acclaimed non-Batman efforts is being released in trade.
+---------
+
+# DC Continues to Avoid Batman's Biggest Modern Conflict
+
+Comics, Batman
+
+Wed, 01 Jul 2026 18:01:13 GMT
+
+https://www.cbr.com/dc-avoiding-batman-iron-man-conflict/
+
+With DC embarking on a new narrative initiative, it feels that a major opportunity has been missed out on.
+---------
+
+# 'Harry Potter' Season 2 Faces Delays as Search Begins for Major Recasting
+
+TV News, Harry Potter, Harry Potter and the Sorcerer's Stone, HBO Max
+
+Wed, 01 Jul 2026 19:00:13 GMT
+
+https://collider.com/harry-potter-hbo-ginny-weasley-recast-season-2-casting-call/
+
+HBO’s Harry Potter reboot has launched a casting search for a new Ginny Weasley following Gracie Cochrane’s Season 2 exit.
+---------
+
+# It's Officially the End of an Era for Amazon's Best Crime Epic
+
+TV News, Godfather of Harlem, Forest Whitaker, MGM, Lucy Fry
+
+Wed, 01 Jul 2026 18:52:55 GMT
+
+https://collider.com/godfather-of-harlem-two-hour-series-finale-mgm-plus/
+
+Forest Whitaker's hit crime thriller Godfather of Harlem has had its fate decided after 4 seasons by MGM+. Read on for more.
+---------
+
+# Taylor Sheridan Finally Reveals the Truth Behind Kevin Costner’s Shocking ‘Yellowstone’ Exit
+
+TV News, Yellowstone, Taylor Sheridan, Kevin Costner, Paramount Plus
+
+Wed, 01 Jul 2026 18:15:13 GMT
+
+https://collider.com/taylor-sheridan-kevin-costner-yellowstone-exit-planned/
+
+Taylor Sheridan addresses Kevin Costner’s Yellowstone exit, saying John Dutton’s story was originally planned to end much earlier.
+---------
+
+# HBO Is Officially Setting Up the Future of 'Game of Thrones' With One Character
+
+TV Features, House of the Dragon, HBO Max, HBO, Game Of Thrones
+
+Wed, 01 Jul 2026 18:11:13 GMT
+
+https://collider.com/house-of-the-dragon-season-3-episode-2-baela-alyn-scene-game-of-thrones-future/
+
+House of the Dragon Season 3 introduces a budding relationship that sets the stage for their impact on Westeros and the events of Game of Thrones.
+---------
+
+# Matt Smith Set for Steamy Murder Mystery Amid 'House of the Dragon's Success
+
+TV News, Matt Smith, House of the Dragon, Mystery, Romance
+
+Wed, 01 Jul 2026 18:02:35 GMT
+
+https://collider.com/matt-smith-murder-mystery-series-the-wolf/
+
+As House of the Dragon wins back fans, Matt Smith has found his next project in a steamy murder mystery series.
+---------
+
+# Guillermo del Toro’s Dark Fantasy Masterpiece Officially Returns With New 20th Anniversary Release [Exclusive]
+
+Exclusives, Guillermo del Toro, Pan's Labyrinth, Fantasy, James Cameron
+
+Wed, 01 Jul 2026 18:01:10 GMT
+
+https://collider.com/pans-labyrinth-20th-anniversary-books-complete-screenplay-inside-creation/
+
+Pan’s Labyrinth is getting two major 20th anniversary books this fall, including a complete screenplay edition and an expanded making-of volume.
+---------
+
+# Today Is a Great Day To Be a 'Stargate' Fan
+
+Movie News, Stargate, Pluto TV, Kurt Russell, Stargate SG-1
+
+Wed, 01 Jul 2026 17:43:53 GMT
+
+https://collider.com/stargate-free-streaming-pluto-tv-july-2026/
+
+Shortly after Prime Video scrapped the reboot series, Stargate is now officially available on free streaming. Read on for more.
+---------
+
+# Netflix Reunites With David Fincher for Unhinged Thriller That Rewrites Streaming Rules
+
+Movie News, David Fincher, Zoë Kravitz, Sadie Sink
+
+Wed, 01 Jul 2026 19:06:37 GMT
+
+https://movieweb.com/netflix-david-fincher-unhinged-new-thriller-streaming/
+
+The video game arrives with some massive star power and relies on your phone as a controller.
+---------
+
+# Matt Damon's Hard Sci-Fi Masterpiece Is an Essential New Streaming Arrival
+
+Movie News, Interstellar, Coming/Leaving Streaming, Matt Damon, Sci-Fi
+
+Wed, 01 Jul 2026 19:00:18 GMT
+
+https://movieweb.com/matt-damon-interstellar-streaming-hulu-july-2026/
+
+To no one's surprise, this one also sees Matt Damon getting stranded in a very remote place.
+---------
+
+# Apple TV Shares New Teaser for Adaptation of Best Cyberpunk Thriller of All Time
+
+TV Trailers, Neuromancer, Apple TV, Sci-Fi
+
+Wed, 01 Jul 2026 18:38:11 GMT
+
+https://movieweb.com/apple-tv-neuromancer-teaser-cyberpunk/
+
+Apple TV releases the second teaser for its adaptation of William Gibson's novel, 'Neuromancer.'
+---------
+
+# Every New Movie and TV Show Coming to Netflix in July 2026
+
+Features, Netflix
+
+Wed, 01 Jul 2026 18:30:19 GMT
+
+https://movieweb.com/netflix-new-movie-tv-july-2026/
+
+Here are all the new movies and TV shows coming to Netflix in July, including a Will Ferrell-created comedy and the return of Enola Holmes.
+---------
+
+# 'Lethal Weapon' Star Danny Glover Confirms Alzheimer's Diagnosis
+
+Movie News, Danny Glover, Lethal Weapon
+
+Wed, 01 Jul 2026 18:11:47 GMT
+
+https://movieweb.com/danny-glover-lethal-weapon-alzheimers/
+
+'Lethal Weapon' star Danny Glover made his Alzheimer's diagnosis public, addressing how he is adjusting to the diagnosis moving forward.
+---------
+
+# Netflix’s Upcoming Epic Fantasy Movie Will Rewrite the Rules of the Genre
+
+Features, Narnia: The Magician's Nephew, The Chronicles of Narnia, Fantasy, Netflix, Greta Gerwig
+
+Wed, 01 Jul 2026 18:00:18 GMT
+
+https://movieweb.com/narnia-netflix-fantasy-movies-genre-rules/
+
+The theatrical release of Greta Gerwig's 'Narnia: The Magician's Nephew' before it arrives on Netflix indicates a turning point for the fantasy genre.
+---------
+
+# In Just 1 Day, the Year's Biggest Thriller Is Already Dominating Streaming
+
+Movie News, Obsession
+
+Wed, 01 Jul 2026 18:00:18 GMT
+
+https://movieweb.com/obsession-streaming-hit-july-2026/
+
+In just 24 hours, the most-talked about film of 2026 has become No. 1 on streaming.
+---------
+
+# In 3 Months, 'Young Sheldon' Officially Confirms New Release After Season 6 Finale
+
+TV News, Young Sheldon
+
+Wed, 01 Jul 2026 17:53:55 GMT
+
+https://movieweb.com/young-sheldon-new-release-book-big-bang-theory/
+
+An all-new book will chronicle how the hit TV show came to life, with all-new behind-the-scenes insight from creators.
+---------
+
+# Christopher Nolan's 'The Odyssey' Tie-In Video Game Officially Debuts
+
+Movie News, The Odyssey, Christopher Nolan, video games
+
+Wed, 01 Jul 2026 17:42:32 GMT
+
+https://movieweb.com/the-odyssey-video-game-roblox/
+
+'The Odyssey: Defy the Gods' is now available in Roblox.
+---------
+
 # 10 Horror Movies To Watch After Undertone
 
 Movies, undertone, Recommendation
