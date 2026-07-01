@@ -1,3 +1,300 @@
+# It's Officially The End Of An Era For Superman After Supergirl's Box Office Bomb
+
+Streaming TV, Masked Recs
+
+Wed, 01 Jul 2026 22:38:48 GMT
+
+https://screenrant.com/my-adventures-with-superman-hbo-max-streaming-charts-fall-july-2026/
+
+Supergirl has become one of the biggest superhero movie box office bombs, and it is now the end of an era for Superman after the DC film's impact.
+---------
+
+# Timothy Olyphant's 6-Part Crime Thriller Is So Good, It Spawned A Second Show
+
+TV, Masked Recs
+
+Wed, 01 Jul 2026 22:31:20 GMT
+
+https://screenrant.com/timothy-olyphant-justified-came-back-for-city-primeval/
+
+Before Yellowstone even existed, Timothy Olyphant's gritty crime thriller series and its killer spinoff blended Western tropes with detective drama.
+---------
+
+# All Ditto Disguises In Pokémon GO (July 2026)
+
+Gaming, Pokemon GO, Pokemon, Mobile, Live Service Games
+
+Wed, 01 Jul 2026 22:30:21 GMT
+
+https://screenrant.com/all-ditto-disguises-in-pokmon-go-july-2026/
+
+The number of disguises that the Normal-type Ditto can turn into in Pokemon GO have shrunk, but methods of discovery remain the same for players.
+---------
+
+# Netflix’s New 4-Part True Crime Series Is An Easy One-Night Binge
+
+Streaming TV, Masked Recs
+
+Wed, 01 Jul 2026 22:10:20 GMT
+
+https://screenrant.com/netflix-worst-neighbor-ever-crime-series-watch/
+
+Netflix's new 4-part true crime series is an easy one-night binge and expands on one of the streamer's most popular true crime franchises of all time.
+---------
+
+# Fan-Favorite Dexter: Resurrection Villain's Season 2 Return After Character Death Revealed In New Set Image
+
+TV, Dexter: Resurrection
+
+Wed, 01 Jul 2026 22:09:44 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-krysten-ritter-return-set-image/
+
+Despite being killed off in Dexter: Resurrection season 1, a new set image has confirmed that one popular villain is back for season 2.
+---------
+
+# 6 Biggest Revelations from the End of Marvel's Ultimate Universe
+
+Comics, Marvel, Ultimate Marvel
+
+Wed, 01 Jul 2026 22:07:21 GMT
+
+https://screenrant.com/ultimate-universe-endgame-finale-review-wrap-up/
+
+The biggest takeaways from Marvel's Ultimate Endgame.
+---------
+
+# Emma Stone's Live-Action Remake Of Disney Villain Gets Sequel Status From Director
+
+Movies, Cruella, Cruella 2
+
+Wed, 01 Jul 2026 22:03:11 GMT
+
+https://screenrant.com/disney-cruella-2-update-craig-gillespie/
+
+Emma Stone leads a different sort of Disney live-action remake, which may still be getting a sequel, per this update five years later.
+---------
+
+# The Simpsons' Next Specials Are The Start Of A New Era
+
+TV, The Simpsons
+
+Wed, 01 Jul 2026 22:01:20 GMT
+
+https://screenrant.com/the-simpsons-disney-plus-specials-new-era/
+
+The Simpsons can refresh its storytelling and offer viewers something timely, fun, and original in 2026, but this change comes at a cost for viewers.
+---------
+
+# Netflix's Next Hit Fantasy Series Puts K-Drama Star Bae Suzy In A Reverse Harem
+
+Anime, Netflix, Masked Recs
+
+Wed, 01 Jul 2026 22:00:20 GMT
+
+https://screenrant.com/netflix-fantasy-drama-men-of-the-harem-bae-suzy/
+
+Adapting another hit series originating from the same creator as The Remarried Empress, this K-drama mainstay is set to lead a stacked cast.
+---------
+
+# Pokémon HeartGold & SoulSilver Switch 2 Ports Just Got An Exciting Update
+
+Gaming, Pokemon, Triple-A Games
+
+Wed, 01 Jul 2026 22:00:20 GMT
+
+https://screenrant.com/pokemon-heartgold-soulsilver-switch-2-update/
+
+Although Game Freak still hasn't announced their next remake (which is expected to be Unova), Switch 2 ports for old games got a nice update.
+---------
+
+# Melissa McCarthy's JonBenet Ramsey Series Leaves Paramount+ for Netflix
+
+TV, Netflix
+
+Wed, 01 Jul 2026 22:33:34 GMT
+
+https://www.cbr.com/netflix-the-murder-of-jonbenet-ramsey/
+
+The true crime series gets a new streaming home ahead of its release.
+---------
+
+# 5 Best Anime Series From the 2010s
+
+Anime, Hunter x Hunter, Attack On Titan, Puella Magi Madoka Magica
+
+Wed, 01 Jul 2026 22:15:12 GMT
+
+https://www.cbr.com/official-best-2010s-anime-series/
+
+Modern classic anime series like Hunter X Hunter and Erased captured the spirit of the 2010s and left a lasting mark on fans worldwide.
+---------
+
+# 127-Minute Transformers Movie That Made $441.7M at the Box Office Is Officially Streaming Free
+
+Movies, Transformers: Rise of the Beasts, Transformers, Sci-Fi
+
+Wed, 01 Jul 2026 22:15:09 GMT
+
+https://www.cbr.com/transformers-rise-of-the-beasts-sci-fi-streaming-free-pluto-tv-july-2026/
+
+The blockbuster Transformers movie is officially streaming for free.
+---------
+
+# Disney's $1.7B Franchise Returns as a Streaming Hit Ahead of Imminent Remake
+
+Movies, Moana, Moana 2
+
+Wed, 01 Jul 2026 22:00:12 GMT
+
+https://www.cbr.com/moana-animated-film-disney-plus-success-july-2026/
+
+Disney is a huge fan of remakes, and fans are preparing for yet another one.
+---------
+
+# Marvel Already Replaced Kingpin With Spider-Man’s Next Major Villain
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Kingpin
+
+Wed, 01 Jul 2026 22:00:12 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-tombstone-perfect-kingpin-replacement/
+
+Until now, Kingpin has been the biggest threat to the MCU's street-level heroes, but Spider-Man: Brand New Day might change that.
+---------
+
+# Marvel’s X-Men ’97 Season 2 Prequel Will Reveal Cut Scenes From The Show
+
+Comics, X-Men, Marvel Comics, X-Men '97
+
+Wed, 01 Jul 2026 22:00:12 GMT
+
+https://www.cbr.com/marvel-x-men-97-season-two-comic-cut-scenes/
+
+Marvel Comics is making sure that audiences don't miss a beat of X-Men '97 with the Limited Series expanding the action beyond the screen.
+---------
+
+# Star Wars' Best Show in Years Is a Steady Streaming Sensation as Fans Await Season 2
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars, Disney+
+
+Wed, 01 Jul 2026 21:37:34 GMT
+
+https://www.cbr.com/star-wars-maul-shadow-lord-sci-fi-success-disney-plus-july-2026/
+
+The hit Star Wars show remains a steady streaming presence.
+---------
+
+# Amazon’s New James Bond Movie is the End of an Era for 007
+
+Movies, James Bond
+
+Wed, 01 Jul 2026 21:30:12 GMT
+
+https://www.cbr.com/007-reboot-end-anti-james-bond-era/
+
+James Bond is in a tough spot with many changes happening to the character, and it may be the end of an era for the British Spy icon.
+---------
+
+# MGM+ Renews Hit 4-Season Crime Drama Show (With a Twist)
+
+TV, Godfather of Harlem
+
+Wed, 01 Jul 2026 21:26:29 GMT
+
+https://www.cbr.com/godfather-of-harlem-renewed-series-finale/
+
+The acclaimed series is officially coming back, but with a catch.
+---------
+
+# Star Trek's Best Romulan Line is the Greatest Quote in Sci-Fi History
+
+Games, Star Trek, Video Games
+
+Wed, 01 Jul 2026 21:15:12 GMT
+
+https://www.cbr.com/star-trek-best-romulan-quote-birth-of-the-federation/
+
+A retro Star Trek game has one of the best quotes ever delivered by a Romulan.
+---------
+
+# Brad Bird Looks Back on a Legendary Career and Forward to ‘Ray Gunn’ at SDCC 2026 [Exclusive]
+
+Exclusives, SDCC, Brad Bird, Ray Gunn, Ratatouille
+
+Wed, 01 Jul 2026 22:15:28 GMT
+
+https://collider.com/brad-bird-ray-gunn-netflix-comic-con-panel-sdcc/
+
+Academy Award-winning animation director Brad Bird will join us for an in-depth conversation spanning the filmmaker's remarkable career and future.
+---------
+
+# 7 TV Characters Who Should Never Have Been Killed Off
+
+TV, Family Guy, The Simpsons, Game Of Thrones, Television
+
+Wed, 01 Jul 2026 22:03:13 GMT
+
+https://collider.com/tv-characters-should-not-have-died/
+
+Despite trying to shock audiences, TV shows like The Simpsons, Game of Thrones, and How I Met Your Mother did not need to kill off these characters.
+---------
+
+# Ryan Coogler’s ‘X-Files’ Reboot Has Wrapped, but There’s a Catch [Exclusive]
+
+Exclusives, The X-Files, Ryan Coogler, Himesh Patel, Danielle Deadwyler
+
+Wed, 01 Jul 2026 22:01:13 GMT
+
+https://collider.com/x-files-reboot-hulu-pilot-filmed-himesh-patel-ryan-coogler-update/
+
+Himesh Patel has confirmed that Ryan Coogler’s X-Files reboot has wrapped its pilot, with Danielle Deadwyler starring alongside him.
+---------
+
+# 7 Western Video Games That Are Perfect From Start to Finish
+
+Video Games, Red Dead Redemption, Red Dead Redemption 2, Western, Westerns
+
+Wed, 01 Jul 2026 21:51:14 GMT
+
+https://collider.com/best-western-video-games-perfect/
+
+Red Dead Redemption 2, Outlaws, and Darkwatch are all among the very best Western video games that are pretty much perfect from start to finish.
+---------
+
+# 10 Classic Horror Books That Are Still Perfect in 2026
+
+Books and Comics, Horror, Dracula, The Haunting of Hill House, Books
+
+Wed, 01 Jul 2026 21:29:13 GMT
+
+https://collider.com/classic-horror-books-still-perfect-2026/
+
+Classic horror books like The Exorcist, The Haunting of Hill House, and The Turn of the Screw are still terrifying and perfect today.
+---------
+
+# 'Disclosure Day's Biggest Mistake Was Its Ending
+
+Movie Features, Disclosure Day, Steven Spielberg, Emily Blunt, Josh O'Connor
+
+Wed, 01 Jul 2026 21:29:13 GMT
+
+https://collider.com/disclosure-day-ending-mistake/
+
+Steven Spielberg's alien blockbuster Disclosure Day spends too much time focused on the wrong things.
+---------
+
+# Every New Movie and TV Show Coming to Apple TV in July 2026
+
+Features, Apple TV
+
+Wed, 01 Jul 2026 21:30:19 GMT
+
+https://movieweb.com/apple-tv-new-movie-tv-july-2026/
+
+Here is every TV series and movie coming to Apple TV for the month of July, including the return of a fan favorite sci-fi series.
+---------
+
 # How Netflix’s #1 Show Of All-Time Inspired Prime Video’s Legally Blonde Prequel Explained By Elle Creator & Cast
 
 TV, Elle, Legally Blonde, Prime Video
