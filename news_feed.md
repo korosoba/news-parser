@@ -1,3 +1,421 @@
+# How Netflix’s #1 Show Of All-Time Inspired Prime Video’s Legally Blonde Prequel Explained By Elle Creator & Cast
+
+TV, Elle, Legally Blonde, Prime Video
+
+Wed, 01 Jul 2026 21:00:21 GMT
+
+https://screenrant.com/legally-blonde-elle-prequel-wednesday-netflix-influence-cast-creator/
+
+Elle's cast and creator talk the Legally Blonde prequel, expanding the titular character's life and inspiration from Netflix's #1 show of all-time.
+---------
+
+# Stardew Valley Meets Dave The Diver In Gorgeous New RPG
+
+Gaming, Stardew Valley, Dave the Diver, Indie Games, PC
+
+Wed, 01 Jul 2026 21:00:21 GMT
+
+https://screenrant.com/tideborne-haven-stardew-valley-like-sim/
+
+If you've ever wished Stardew Valley invested in a full ocean ecosystem, this new game looks like the answer to all your marine dreams.
+---------
+
+# Jon Bernthal's Punisher Is A Month Away From Breaking A Shocking 10-Year Record In The MCU
+
+Movies, Spider-Man: Brand New Day, The Punisher
+
+Wed, 01 Jul 2026 21:00:21 GMT
+
+https://screenrant.com/spider-man-brand-new-day-punisher-movie-debut/
+
+Jon Bernthal has been the MCU's Punisher for a decade now, but it's only with Spider-Man: Brand New Day that he's breaking a major record.
+---------
+
+# Pride And Prejudice Meets Beauty And The Beast In 4-Part Drama Now Streaming For Free
+
+TV, Masked Recs
+
+Wed, 01 Jul 2026 20:41:21 GMT
+
+https://screenrant.com/seeking-persephone-series-pride-prejudice-regency-drama-streaming-free/
+
+Beyond Apple TV's The Buccaneers and Netflix's Bridgerton, there's an underrated Regency romance you're missing out on, and it's free to watch.
+---------
+
+# Justin Hartley Finds His Tracker Replacement In ABC's Reacher Rival
+
+Network TV, Masked Recs
+
+Wed, 01 Jul 2026 20:30:21 GMT
+
+https://screenrant.com/justin-hartley-tracker-replacement-abc-reacher-vival/
+
+Justin Hartley has an upcoming action drama series for ABC that could be the next Tracker, or even the next Reacher, if everything goes well.
+---------
+
+# Minions & Monsters: Over 30 Easter Eggs, References & Major Cameos Explained
+
+Movies, Minions & Monsters
+
+Wed, 01 Jul 2026 20:30:21 GMT
+
+https://screenrant.com/minions-monsters-movie-easter-eggs-references-cameos/
+
+George Lucas appears in the new film, and is one of many cameos, Easter Eggs, and references in Illumination's Minions & Monsters.
+---------
+
+# Netflix Officially Acquires America's Unresolved True Crime Series After Paramount Stalled Release
+
+TV, Netflix
+
+Wed, 01 Jul 2026 20:15:58 GMT
+
+https://screenrant.com/netflix-murder-of-jonbenet-ramsey-release-date-streaming-move/
+
+Netflix is officially releasing a limited series about the tragic murder of six-year-old JonBenét Ramsey after Paramount dropped the project.
+---------
+
+# J.K. Rowling's Harry Potter Is Officially Crossing A Line Fans Never Thought It Would
+
+Streaming TV
+
+Wed, 01 Jul 2026 20:15:19 GMT
+
+https://screenrant.com/jk-rowling-harry-potter-franchise-reboot/
+
+The Harry Potter franchise is still alive after the failure of Fantastic Beasts, & it has officially crossed a line that fans thought it never would.
+---------
+
+# X-Men ’97 Season 2 Debuts To Rare Rotten Tomatoes Audience Score
+
+TV, X-Men '97, X-Men, Marvel Cinematic Universe
+
+Wed, 01 Jul 2026 20:11:46 GMT
+
+https://screenrant.com/xmen-97-season-2-rotten-tomatoes-audience-score-debut/
+
+Marvel Studios' X-Men '97 season 2 has officially premiered, and the Disney+ series has already set another record, this time on Rotten Tomatoes.
+---------
+
+# Another 13-Season NCIS Veteran Confirms Franchise Return
+
+TV, NCIS
+
+Wed, 01 Jul 2026 20:10:10 GMT
+
+https://screenrant.com/ncis-season-24-michael-weatherly-dinozzo-return-confirmed/
+
+It's the season of returns for NCIS, with another fan-favorite veteran actor making his way back to the CBS procedural for an extended arc.
+---------
+
+# 8 Reasons It Is Tough To Watch Die Hard Today
+
+Movies, Die Hard, Action, bruce willis
+
+Wed, 01 Jul 2026 21:00:13 GMT
+
+https://www.cbr.com/reasons-its-tough-to-watch-die-hard-today-list/
+
+Die Hard has remained the ultimate one-man army action movie since its 1988 release, but some things don’t sit right with modern audiences.
+---------
+
+# 10 Gothic Romance Movies Better Than The Bride!
+
+Movies, The Bride!, Bride of Frankenstein, Crimson Peak, Thirst, A Girl Walks Home Alone At Night, Sleepy Hollow, Only Lovers Left Alive, Let the Right One In, Wings of Desire, The Shape of Water, Bram Stoker's Dracula
+
+Wed, 01 Jul 2026 20:30:12 GMT
+
+https://www.cbr.com/gothic-romance-movies-better-than-the-bride-list/
+
+Despite an all-star cast, Maggie Gyllenhaal's The Bride! couldn't match the success and impact of some of the best Gothic romances in cinema history.
+---------
+
+# NCIS Officially Confirms Tony's Future After Tony & Ziva Cancellation
+
+TV, NCIS, NCIS: Tony & Ziva
+
+Wed, 01 Jul 2026 20:28:40 GMT
+
+https://www.cbr.com/ncis-tony-future-after-tony-ziva-cancellation/
+
+The spinoff show brought back two fan-favorites but was sadly canceled after just one season.
+---------
+
+# The Future of Taylor Sheridan's New Yellowstone Spinoff Confirmed by Paramount+
+
+TV, Dutton Ranch
+
+Wed, 01 Jul 2026 20:27:07 GMT
+
+https://www.cbr.com/dutton-ranch-season-2-new-showrunner-update/
+
+A major update is revealed for the hit Yellowstone spinoff's second season.
+---------
+
+# Dragon Ball Reveals Official Cell Sketch With Alternate Second Form Designs
+
+Anime, Dragon Ball
+
+Wed, 01 Jul 2026 20:18:22 GMT
+
+https://www.cbr.com/dragon-ball-akira-toriyama-cell-early-design-reveal/
+
+The new early look of the Dragon Ball antagonist was drawn by Akira Toriyama in 1992 and features several key differences from the finished version.
+---------
+
+# 5 Controversial '80s Anime That Were Banned For A Reason
+
+Anime, Crying Freeman, Violence Jack: Evil Town
+
+Wed, 01 Jul 2026 20:16:13 GMT
+
+https://www.cbr.com/controversial-80s-anime-banned/
+
+Many anime push boundaries, but titles like Midori and Violence Jack faced outright bans and extreme censorship that's steeped them in controversy.
+---------
+
+# Ryan Coogler’s The X-Files Reboot Wraps Pilot
+
+TV, The X-Files, Hulu, David Duchovny
+
+Wed, 01 Jul 2026 20:12:36 GMT
+
+https://www.cbr.com/ryan-coogler-the-x-files-pilot-wrap/
+
+The X-Files reboot star Himesh Patel revealed that filming on the pilot has been completed.
+---------
+
+# In Just 1 Day, The $373M Horror Gem That Grossed Almost 500x Its Budget Is the Biggest Title on PVOD in the U.S.
+
+Movies, Obsession
+
+Wed, 01 Jul 2026 20:00:12 GMT
+
+https://www.cbr.com/obsession-horror-pvod-isuccess-us-july-2026/
+
+The horror was one of the biggest box office surprises of all time.
+---------
+
+# Doctor Doom vs. Mister Fantastic: Marvel's Biggest Rivalry Is Back Before Avengers: Doomsday
+
+Comics, Marvel Comics, Fantastic Four, comic books
+
+Wed, 01 Jul 2026 20:00:12 GMT
+
+https://www.cbr.com/challenges-of-doom-mr-fantastic-1-release-date-confirmed/
+
+One of Marvel Comics' oldest rivalries has returned before the MCU's next major movie event.
+---------
+
+# 8 Best Picture Winners That Nobody Actually Likes
+
+Movie, Academy Awards, Best Picture, Crash, Driving Miss Daisy
+
+Wed, 01 Jul 2026 20:54:13 GMT
+
+https://collider.com/oscars-best-picture-winners-nobody-likes/
+
+Movies like Driving Miss Daisy, American Beauty, and Crash somehow won the Best Picture Oscar, even though basically no one likes them these days.
+---------
+
+# Anya Taylor-Joy's 124-Minute Masterpiece Is Officially Netflix's Newest Streaming Smash
+
+Movie News, Anya Taylor-Joy, Emma, Netflix, Emma.
+
+Wed, 01 Jul 2026 20:43:25 GMT
+
+https://collider.com/anya-taylor-joy-emma-netflix-streaming-success-july-2026/
+
+Anya Taylor-Joy stars in Emma, the 2020 Jane Austen historical romance masterpiece now available to stream on Netflix.
+---------
+
+# 9 Twisty Miniseries That Are Impossible To Predict
+
+TV, TV Miniseries, Behind Her Eyes, WandaVision, His & Hers
+
+Wed, 01 Jul 2026 20:28:13 GMT
+
+https://collider.com/miniseries-twists-unpredictable/
+
+From Sharp Objects to WandaVision, Shining Girls to His & Hers, these twisty miniseries are bound to shock you.
+---------
+
+# Alan Ritchson Demoted to Sidekick in 'Reacher' Spin-Off First Look
+
+TV News, Reacher, Neagley, Alan Ritchson, Prime Video
+
+Wed, 01 Jul 2026 20:26:29 GMT
+
+https://collider.com/reacher-spin-off-first-images-alan-ritchson-maria-sten/
+
+Prime Video’s new Reacher spin-off has revealed first images of Alan Ritchson’s return as Jack Reacher ahead of its September premiere.
+---------
+
+# 'NCIS' Officially Brings Back Fan-Favorite After Shock Spin-Off Cancellation
+
+TV News, NCIS, Michael Weatherly, CBS
+
+Wed, 01 Jul 2026 20:22:25 GMT
+
+https://collider.com/ncis-season-24-cast-michael-weatherly-tony-dinozzo-return/
+
+Following the shock cancellation of Tony & Ziva, Michael Weatherly is returning to the world of NCIS, but his beloved Ziva is nowhere in sight.
+---------
+
+# Apple TV's New Cyberpunk Adaptation Is Already Confirming Its Fidelity to the Book
+
+TV Features, Neuromancer, Apple TV, William Gibson, J.D. Dillard
+
+Wed, 01 Jul 2026 20:21:14 GMT
+
+https://collider.com/neuromancer-apple-tv-cyberpunk-adaptation-fidelity-to-book-teaser/
+
+Apple TV's Neuromancer teaser shows the first line of the novel on an old TV, promising a faithful adaptation of the story's technological aesthetic.
+---------
+
+# Every Anime Coming to Crunchyroll This Summer
+
+TV, Anime, Crunchyroll, You and I Are Polar Opposites, Re:Zero -Starting Life in Another World-
+
+Wed, 01 Jul 2026 20:05:15 GMT
+
+https://collider.com/crunchyroll-anime-lineup-summer-2026/
+
+From new episodes of Hana-Kimi to the exciting debut of Tomb Raider King, these are the anime series debuting exclusively on Crunchyroll this summer.
+---------
+
+# ‘Primitive War’ Director Officially Reveals First Look at New Dinosaur Western [Exclusive]
+
+Movie News, Primitive War, Kickstarter, Western, Action
+
+Wed, 01 Jul 2026 20:00:13 GMT
+
+https://collider.com/primitive-war-dinosaurs-of-the-wild-west-teaser-kickstarter/
+
+Get a new look at Dinosaurs of the Wild West, the upcoming Kickstarter project from Primitive War director Luke Sparke.
+---------
+
+# You Have Just 1 Week To Catch Up on Apple TV’s Greatest Series Before It Returns
+
+TV Features, Trying, Rafe Spall, Apple TV, Sitcom
+
+Wed, 01 Jul 2026 19:58:14 GMT
+
+https://collider.com/apple-tv-greatest-series-sitcom-trying-season-5/
+
+Apple TV’s beloved comedy Trying returns for Season 5 on July 8, making now the perfect time to binge one of TV’s funniest and most heartfelt series.
+---------
+
+# 'Zelda: Ocarina of Time's Switch 2 Remake Preorder Price Is Extremely Alarming
+
+Video Games, The Legend of Zelda, Nintendo Switch, Video Game
+
+Wed, 01 Jul 2026 19:30:01 GMT
+
+https://collider.com/nintendo-legend-of-zelda-ocarina-of-time-remake-switch-2-leaked-price-60-dollars/
+
+Nintendo's The Legend of Zelda: Ocarina of Time remake has sparked backlash from fans as a concerning price tag leaks online.
+---------
+
+# 'Reacher's Most Exciting Replacement Officially Arrives In Two Weeks
+
+Features, Reacher, Lucky
+
+Wed, 01 Jul 2026 21:00:18 GMT
+
+https://movieweb.com/reacher-lucky-replacement/
+
+'Reacher,' starring Alan Ritchson as Jack Reacher, is a memorable action thriller on Amazon Prime Video, but an exciting new series premieres soon.
+---------
+
+# 'NCIS' Officially Bringing Back Franchise Star After Series Cancellation
+
+TV News, NCIS, NCIS: Tony & Ziva, Michael Weatherly
+
+Wed, 01 Jul 2026 20:59:17 GMT
+
+https://movieweb.com/ncis-michael-weatherly-return-season-24/
+
+'NCIS' is officially set to bring back one of its OG stars in a regular role for the first time in more than a decade.
+---------
+
+# 'Baywatch' Trailer Reveals 'Arrow' Star's Reboot of 1990s Cult Classic
+
+TV News, Baywatch, Stephen Amell
+
+Wed, 01 Jul 2026 20:42:13 GMT
+
+https://movieweb.com/baywatch-reboot-teaser-trailer-2027/
+
+Stephen Amell leads a new take on the series that's set to debut in 2027.
+---------
+
+# Every New TV Show and Movie Coming to Hulu and Disney+ in July 2026
+
+Features, Disney+, Hulu
+
+Wed, 01 Jul 2026 20:30:18 GMT
+
+https://movieweb.com/hulu-disney-new-tv-movie-july-2026/
+
+Here is everything coming to Hulu and Disney+ for July, including the newest season of 'X-Men '97.'
+---------
+
+# One of Disney's Most Iconic Franchises Finally Returns With First Sequel Trailer
+
+Movie News, Camp Rock, Demi Lovato
+
+Wed, 01 Jul 2026 20:26:31 GMT
+
+https://movieweb.com/disney-camp-rock-3-trailer/
+
+The teaser for 'Camp Rock 3' features the already-catchy song "One Beat Away."
+---------
+
+# The $115M Sci-Fi Blockbuster That Just Knocked Tom Cruise Off the Box Office Chart
+
+Movie News, Disclosure Day, Oblivion
+
+Wed, 01 Jul 2026 20:00:18 GMT
+
+https://movieweb.com/disclosure-day-beats-tom-cruise-oblivion-domestic-box-office/
+
+Steven Spielberg's latest sci-fi venture has now outgrossed Tom Cruise's underrated action epic at the box office.
+---------
+
+# The Sci-Fi Space Opera on Netflix That Makes 'The Expanse' Seem Small
+
+Features, Sci-Fi, Stargate SG-1, The Expanse
+
+Wed, 01 Jul 2026 20:00:18 GMT
+
+https://movieweb.com/stargate-sg-1-the-expanse-comparison/
+
+'The Expanse' is a popular sci-fi TV series that aired for six seasons and is based on James S. A. Corey's novels.
+---------
+
+# 'Enola Holmes 3' Rotten Tomatoes Score Officially Ends Impressive Netflix Streak
+
+Movie News, Enola Holmes 3, Rotten Tomatoes
+
+Wed, 01 Jul 2026 19:50:24 GMT
+
+https://movieweb.com/enola-holmes-3-rotten-tomatoes-score/
+
+The Rotten Tomatoes score for Netflix's 'Enola Holmes 3' ranked as the lowest amongst the franchise's three entries.
+---------
+
+# Peter Dinklage Goes Full John Wick in Follow-Up to Best Action Thriller of the Year
+
+Movie News, Peter Dinklage, The Furious
+
+Wed, 01 Jul 2026 19:21:11 GMT
+
+https://movieweb.com/the-furious-peter-dinklage-action-thriller-john-wick/
+
+'The Furious' director Kenji Tanigaki has confirmed his next movie, 'The Reckoner.'
+---------
+
 # Disclosure Day Pitch Meeting
 
 Movies, Disclosure Day, Screen Rant Pitch Meetings
