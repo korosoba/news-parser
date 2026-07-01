@@ -1,3 +1,443 @@
+# 10 Horror Movies To Watch After Undertone
+
+Movies, undertone, Recommendation
+
+Wed, 01 Jul 2026 17:20:20 GMT
+
+https://screenrant.com/horror-movies-like-undertone/
+
+Undertone is currently the top trending movie on HBO Max and fans of it should check out these horror films that have similar creepy vibes.
+---------
+
+# Xbox Reportedly Dropping Physical Game Support Alongside PlayStation
+
+Gaming, Xbox, Gaming Hardware
+
+Wed, 01 Jul 2026 17:13:38 GMT
+
+https://screenrant.com/xbox-project-helix-no-disc-drive-physical-games/
+
+PlayStation announced that it would no longer manufacture game discs, starting in 2028, and Xbox may not be far behind for Project Helix.
+---------
+
+# 4 Years Later, Pop Culture's Best Neo-Western Is Officially Back
+
+Comics, Masked Recs
+
+Wed, 01 Jul 2026 17:11:51 GMT
+
+https://screenrant.com/best-western-that-texas-blood-return-allison-ranch/
+
+The current best pop culture neo-western series is finally back after a four year hiatus, and fans do not want to miss this newest installment.
+---------
+
+# Why Colleen Hoover Producing The Love, Theoretically Movie Is So Controversial
+
+Books
+
+Wed, 01 Jul 2026 17:00:21 GMT
+
+https://screenrant.com/love-theoretically-movie-colleen-hoover-controversy-explained/
+
+Ali Hazelwood's 2023 novel Love, Theoretically is being adapted into a movie, but the decision to have Colleen Hoover produce is receiving backlash.
+---------
+
+# Captain Kirk’s Saddest Line In Star Trek History Is Still Haunting 59 Years Later
+
+TV, Star Trek, Star Trek: The Original Series
+
+Wed, 01 Jul 2026 17:00:21 GMT
+
+https://screenrant.com/star-trek-captain-kirk-saddest-line/
+
+Captain Kirk suffered a heartbreak so profound in Star Trek: The Original Series, that it remains the high water mark for the entire franchise.
+---------
+
+# Adventure Time's Finn & Jake Officially Return in First-Ever Halloween Special
+
+Comics, Adventure Time
+
+Wed, 01 Jul 2026 16:59:33 GMT
+
+https://screenrant.com/adventure-time-halloween-special-finn-jake/
+
+Adventure Time’s Finn and Jake are officially returning with the franchise’s first-ever Halloween special this fall.
+---------
+
+# Lord Of The Rings: Cave Troll Of Moria Officially Releases This November
+
+Gaming, The Lord of the Rings, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings: The Return of the King, PC
+
+Wed, 01 Jul 2026 16:57:54 GMT
+
+https://screenrant.com/lord-of-the-rings-cave-troll-of-moria-release-date/
+
+Lord of the Rings officially returns this November with the incredible release featuring the Cave Troll of Moria, mark your calendars.
+---------
+
+# Mel Gibson’s Controversial Historical Epic Returning To Theaters 22 Years Later With New Footage For 2-Part Sequel
+
+Movies, The Passion of the Christ, Mel Gibson
+
+Wed, 01 Jul 2026 16:50:17 GMT
+
+https://screenrant.com/mel-gibson-passion-of-the-christ-theatrical-return-sequel-footage/
+
+Over two decades after releasing a controversial historical film, Mel Gibson is back with a theatrical re-release that will tease the upcoming sequel.
+---------
+
+# 16 Years Later, The Eleventh Doctor's Best Line Is Still The Greatest Quote In Doctor Who History
+
+Streaming TV, Doctor Who
+
+Wed, 01 Jul 2026 16:46:20 GMT
+
+https://screenrant.com/doctor-who-matt-smith-eleventh-hour-best-line/
+
+Doctor Who has had its highs and lows in the last 63 years, but there is one shining moment that stands out as the series' best bit of dialogue.
+---------
+
+# Backrooms Is Getting An Official Extended Cut In 2 Days
+
+Movies, Backrooms
+
+Wed, 01 Jul 2026 16:46:20 GMT
+
+https://screenrant.com/backrooms-extended-cut-everything-must-go-edition/
+
+One of 2026's biggest box office hits is set to soon increase its takings further via the impending release of its extended cut in cinemas.
+---------
+
+# Japan Has Already Officially Crowned Its Top Anime Series of Summer 2026
+
+Anime, Mushoku Tensei: Jobless Reincarnation, From Old Country Bumpkin to Master Swordsman
+
+Wed, 01 Jul 2026 17:00:12 GMT
+
+https://www.cbr.com/japan-top-anime-series-summer-2026-mushoku-tensei/
+
+With Summer 2026 now in full swing, Japanese audiences declare which anime titles they are most excited to see hit the airwaves in the coming months.
+---------
+
+# Lethal Weapon Star Danny Glover Reveals Alzheimer’s Diagnosis
+
+Movies, Lethal Weapon
+
+Wed, 01 Jul 2026 16:38:41 GMT
+
+https://www.cbr.com/danny-glover-reveals-alzheimers-diagnosis/
+
+Actor Danny Glover has publicly announced his Alzheimer's disease diagnosis.
+---------
+
+# Cartoon Network's Highly Anticipated Reboot Instantly Becomes the No. 1 Show on Disney+ in the U.S.
+
+TV, Adventure Time: Side Quests
+
+Wed, 01 Jul 2026 16:29:00 GMT
+
+https://www.cbr.com/adventure-time-side-quests-sci-fi-success-disney-plus-july-2026/
+
+A fan-favorite Cartoon Network series is back and officially a streaming hit.
+---------
+
+# 10 Classic Sci-Fi Anime You Must Watch in 2026
+
+Anime, Gundam, Sci-Fi, Cowboy Bebop, Mobile Suit Gundam I
+
+Wed, 01 Jul 2026 16:16:12 GMT
+
+https://www.cbr.com/classic-sci-fi-anime-to-watch-2026/
+
+From Cowboy Bebop to Trigun, some of the best, must-watch anime are classic sci-fi series that left an indelible mark on the anime landscape.
+---------
+
+# Project Hail Mary Is Officially Heading to Prime Video
+
+Movies, Project Hail Mary, Prime Video
+
+Wed, 01 Jul 2026 16:12:38 GMT
+
+https://www.cbr.com/project-hail-mary-prime-video-release-date-july-2026/
+
+Just two weeks following its streaming debut, Project Hail Mary is launching on Prime Video, too.
+---------
+
+# If You Love Silence of the Lambs, Hulu's Hypnotic 10-Episode Thriller Was Made Just for You
+
+TV, The Patient, Thriller, Hulu
+
+Wed, 01 Jul 2026 16:01:13 GMT
+
+https://www.cbr.com/hulu-the-patient-thriller-like-silence-of-the-lambs/
+
+The Silence of the Lambs was one of the greatest films of the 1990s, and to scratch a similar itch, you may want to check out this Hulu thriller.
+---------
+
+# Supergirl's Movie Ending is Better Than the Comic Book
+
+Movies, Supergirl, supergirl: woman of tomorrow, DCU
+
+Wed, 01 Jul 2026 16:01:13 GMT
+
+https://www.cbr.com/supergirl-movie-ending-better-than-comic-book/
+
+While heavily inspired by Tom King's Woman of Tomorrow, the Supergirl movie quietly changed the ending in a big way and it makes perfect sense.
+---------
+
+# Blade Runner Black Lotus: Las Vegas Vol. 1 Returns Before Anime's Season 2 Confirmation
+
+Comics, Blade Runner: Black Lotus
+
+Wed, 01 Jul 2026 16:01:13 GMT
+
+https://www.cbr.com/blade-runner-black-lotus-last-vegas-vol-1-confirmed/
+
+The influential world of Blade Runner continues to expand.
+---------
+
+# Landman Quietly Rewards Its Season 3 Cast Except Billy Bob Thornton
+
+TV, Landman
+
+Wed, 01 Jul 2026 15:46:08 GMT
+
+https://www.cbr.com/landman-season-3-cast-salary-bumps/
+
+The show will start production later this summer.
+---------
+
+# Lucky: Anya Taylor-Joy Breaks Down Her Complex Hero
+
+TV, Lucky
+
+Wed, 01 Jul 2026 15:35:10 GMT
+
+https://www.cbr.com/video/lucky-anya-taylor-joy-breaks-down-her-complex-hero/
+
+Lucky stars Anya Taylor-Joy and Drew Starkey break down the Apple TV+ thriller, from Lucky's complicated morality to the unforgettable experience of filming inside Caesars Palace.
+---------
+
+# Netflix's 'Enola Holmes 3' Is a Mostly Forgettable Mystery Adventure | Review
+
+Movie, Enola Holmes 3, Netflix, Mystery, Millie Bobby Brown
+
+Wed, 01 Jul 2026 17:22:26 GMT
+
+https://collider.com/enola-holmes-3-review-netflix-movie-millie-bobby-brown/
+
+Millie Bobby Brown's third outing as Sherlock's plucky sibling fails to stand out in the franchise.
+---------
+
+# The First $1B Movie of 2026 Officially Arrives on Netflix This Year
+
+Movie News, The Super Mario Galaxy Movie, The Super Mario Bros. Movie, Nintendo, Netflix
+
+Wed, 01 Jul 2026 17:21:14 GMT
+
+https://collider.com/the-super-mario-galaxy-movie-netflix-streaming-release-date/
+
+The Super Mario Galaxy Movie, the first billion-dollar film of 2026, is set to stream on Netflix in the US later this year. Here's all to know.
+---------
+
+# Netflix's 143-Minute Action Thriller Shoots to Success on Streaming
+
+Movie News, Netflix, Action, Streaming, Movie
+
+Wed, 01 Jul 2026 17:17:17 GMT
+
+https://collider.com/netflix-action-thriller-blast-streaming-success-july-2026/
+
+A new action thriller is taking Netflix by storm, becoming one of the biggest movies on streaming right now. Read on for more.
+---------
+
+# Prime Video’s Steamy 8-Part Romance Series Is a Masterpiece From Start to Finish
+
+TV Features, Off Campus, Prime Video, Ella Bright, Belmont Cameli
+
+Wed, 01 Jul 2026 17:16:13 GMT
+
+https://collider.com/prime-video-romance-series-off-campus-masterpiece/
+
+rime Video released Off Campus last month on May 13, and the steamy romance series has been a streaming hit ever since.
+---------
+
+# ‘Blade Runner’ Meets ‘Children of Men’ Sci-Fi Flop Redeems Itself With 3M Views on Netflix
+
+Movie News, The Creator, John David Washington, Sci-Fi, Gareth Edwards
+
+Wed, 01 Jul 2026 17:05:13 GMT
+
+https://collider.com/the-creator-sci-fi-flop-netflix-viewership-success/
+
+The divisive original sci-fi movie The Creator, directed by Gareth Edwards and starring John David Washington, has emerged as a major Netflix hit.
+---------
+
+# Netflix Launches Immersive New Horror Release With a 'Stranger Things' Legend
+
+Video Games, Netflix, Horror, Games, Sadie Sink
+
+Wed, 01 Jul 2026 16:50:25 GMT
+
+https://collider.com/netflix-sadie-sink-unhinged-horror-game-zoe-kravitz/
+
+Netflix has launched a terrifying new interactive horror experience, starring a Stranger Things star, that is a must-play for subscribers.
+---------
+
+# Netflix's Massive Fantasy Series Lost Over 50% of Its Viewership
+
+TV News, Avatar: The Last Airbender, Netflix, Fantasy
+
+Wed, 01 Jul 2026 16:50:13 GMT
+
+https://collider.com/netflix-avatar-the-last-airbender-season-2-viewership-drop/
+
+The live-action Avatar: The Last Airbender series has officially lost over 50% of its viewers in an alarming Season 2 debut.
+---------
+
+# ‘Bosch’ Meets ‘Peaky Blinders’ in Titus Welliver’s New Crime Saga Launching in 2 Weeks
+
+TV News, The Westies, Titus Welliver, Bosch, Peaky Blinders
+
+Wed, 01 Jul 2026 16:35:47 GMT
+
+https://collider.com/titus-welliver-new-crime-show-the-westies-amazon-mgm-plus-release-date/
+
+Titus Welliver officially returns to Amazon for a new crime thriller launching on streaming in just a few weeks.
+---------
+
+# 6 Forgotten R-Rated Horror Movies That Are Perfect From Start to Finish
+
+Movie, Horror, The Descent, The Autopsy of Jane Doe, Frailty
+
+Wed, 01 Jul 2026 16:34:13 GMT
+
+https://collider.com/forgotten-r-rated-horror-movies-perfect-from-start-to-finish/
+
+From The Descent, to The House of the Dead, to Frailty, these forgotten R-rated horror gems deliver relentless dread, twists, and tension.
+---------
+
+# Mel Gibson's R-Rated Classic Officially Returns to Theaters Before Its Long-Awaited Sequel
+
+Movie News, The Passion of the Christ, Mel Gibson, The Resurrection of the Christ Part 1, The Resurrection of the Christ Part 2
+
+Wed, 01 Jul 2026 16:32:06 GMT
+
+https://collider.com/mel-gibson-passion-of-the-christ-theater-return-september-2026/
+
+Mel Gibson's The Passion of the Christ is officially returning to theaters, along with a sneak preview at the two-part sequel.
+---------
+
+# New 'Star Wars' Spin-Off Unleashes Epic First Teaser
+
+TV News, Star Wars, Star Wars: Visions
+
+Wed, 01 Jul 2026 17:16:29 GMT
+
+https://movieweb.com/star-wars-visions-ninth-jedi-teaser-disney/
+
+One of the best 'Star Wars' projects ever returns with an exciting first teaser for its upcoming spin-off.
+---------
+
+# Sylvester Stallone '90s Sci-Fi Action Thriller That "Really Holds Up" Lands on Free Streaming
+
+Movie News, Sylvester Stallone, Demolition Man, Coming/Leaving Streaming
+
+Wed, 01 Jul 2026 17:00:18 GMT
+
+https://movieweb.com/sylvester-stallone-demolition-man-free-stream-july-2026/
+
+No question, this one belongs in the pantheon of '90s action classics.
+---------
+
+# Netflix’s 5-Year-Old Thriller is Still the Most-Watched Action Movie on Streaming
+
+Features, Red Notice, Netflix, Action, Ryan Reynolds, Dwayne Johnson, Gal Gadot
+
+Wed, 01 Jul 2026 17:00:18 GMT
+
+https://movieweb.com/netflix-red-notice-streaming-hit/
+
+Netflix released a thriller movie five years ago that people still love, and it has a famous cast and an interesting premise.
+---------
+
+# 'Project Hail Mary' Finally Confirms Prime Video Streaming Release Date
+
+Movie News, Project Hail Mary, Ryan Gosling, Sci-Fi, Prime Video
+
+Wed, 01 Jul 2026 16:41:53 GMT
+
+https://movieweb.com/project-hail-mary-prime-video-release-date/
+
+Ryan Gosling's 'Project Hail Mary' has locked in a Prime Video streaming release, following the sci-fi blockbuster's theatrical run and MGM+ debut.
+---------
+
+# Every Movie Coming to Theaters in July 2026
+
+Features, Movie Theaters
+
+Wed, 01 Jul 2026 16:30:18 GMT
+
+https://movieweb.com/movie-theaters-new-july-2026/
+
+'The Odyssey,' and ' Spider-Man: A New Day' are just the start of a fantastic month for the theaters.
+---------
+
+# Captain Kirk’s Best Star Trek Line Just Keeps Getting Better After 60 Years
+
+Features, Star Trek, Star Trek: The Original Series, William Shatner
+
+Wed, 01 Jul 2026 16:01:18 GMT
+
+https://movieweb.com/star-trek-kirk-monologue-best-line/
+
+William Shatner's Star Trek character has countless great quotes, but only one has taken on a life of its own.
+---------
+
+# "Uniquely Disturbing" Banned 80s Thriller Remake Adds Major Blockbuster Star
+
+Movie News, Possession, Thriller, Paul Dano, Horror
+
+Wed, 01 Jul 2026 16:00:44 GMT
+
+https://movieweb.com/possession-remake-thriller-cast/
+
+The twisted remake of an '80s classic from the director of horror hit 'Smile' adds to its impressive cast with the latest announcement.
+---------
+
+# 'Social Reckoning' New Look Confirms Belated Sequel’s Connection to 2010 Original
+
+Movie News, The Social Reckoning
+
+Wed, 01 Jul 2026 15:56:21 GMT
+
+https://movieweb.com/the-social-reckoning-character-posters/
+
+A new look at 'The Social Reckoning' arrived online, confirming an important tie to the story originally told in its 2010 predecessor.
+---------
+
+# The Action Thriller Series Everyone's Been Waiting for Releases in 1 Month
+
+Features, Reacher
+
+Wed, 01 Jul 2026 15:45:18 GMT
+
+https://movieweb.com/reacher-return-august-2026/
+
+Prime Video's 'Reacher' is right on the verge of a comeback, and there's a bonus release with Season 4. Read on for more.
+---------
+
+# Director Behind One of the Best Zombie Movies Ever Made Returns for New Undead Action Thriller
+
+Movie News, Train to Busan
+
+Wed, 01 Jul 2026 15:33:58 GMT
+
+https://movieweb.com/yeon-sang-ho-colony-action-thriller-trailer/
+
+'Train to Busan' director Yeon Sang-ho returns to zombie horror with 'Colony' new trailer.
+---------
+
 # The Minions 4 & Story Future After New Despicable Me Prequel Addressed By Franchise Director
 
 Movies, Minions & Monsters, Minions, Despicable Me
