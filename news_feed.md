@@ -1,3 +1,410 @@
+# The Minions 4 & Story Future After New Despicable Me Prequel Addressed By Franchise Director
+
+Movies, Minions & Monsters, Minions, Despicable Me
+
+Wed, 01 Jul 2026 15:01:47 GMT
+
+https://screenrant.com/minions-4-story-despicable-me-future-franchise-pierre-coffin/
+
+EXCLUSIVE: Minions franchise director Pierre Coffin addresses the possibility of more movies after the newest Despicable Me prequel.
+---------
+
+# Star Trek's Worf Returns With a 4-Part Series This October
+
+Comics, Star Trek
+
+Wed, 01 Jul 2026 14:56:10 GMT
+
+https://screenrant.com/worf-return-star-trek-holo-ween-series-details/
+
+Star Trek’s Worf returns this October in a new four-part series that ditches routine space adventure for full thriller-horror territory.
+---------
+
+# An Underrated Bleach Hero Just Got A God-Tier Upgrade In Major Manga Change
+
+Anime, Bleach, Bleach: Thousand Year Blood War
+
+Wed, 01 Jul 2026 14:31:20 GMT
+
+https://screenrant.com/bleach-orihime-god-tier-upgrade-manga-change/
+
+Bleach has a new strongest hero.
+---------
+
+# Every Main Character & Actor Who Left S.W.A.T (& Why)
+
+Network TV, S.W.A.T.
+
+Wed, 01 Jul 2026 14:31:20 GMT
+
+https://screenrant.com/swat-show-main-characters-actors-exit-reason/
+
+Over the years, several main characters have left S.W.A.T., but the reasons have varied. The hit procedural has featured a rotating ensemble cast.
+---------
+
+# Rockstar Officially Admits Which Console Is Best For GTA 6
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Wed, 01 Jul 2026 14:27:45 GMT
+
+https://screenrant.com/gta-6-best-console-according-to-rockstar/
+
+Amid a Sony campaign that markets Grand Theft Auto 6 as "best on PlayStation," it seems Rockstar has officially made its choice.
+---------
+
+# Elle Season 2 Gets Exciting Filming Update As Prime Video’s Legally Blonde Prequel Arrives
+
+TV, Elle, Legally Blonde
+
+Wed, 01 Jul 2026 14:25:33 GMT
+
+https://screenrant.com/legally-blonde-elle-season-2-filming-update-cast/
+
+EXCLUSIVE: Elle season 2 gets an exciting filming update from two stars as Prime Video's Legally Blonde prequel series arrives on the platform.
+---------
+
+# Project Hail Mary's Prime Video Streaming Release Date Officially Confirmed
+
+Movies, Project Hail Mary, Prime Video
+
+Wed, 01 Jul 2026 14:24:55 GMT
+
+https://screenrant.com/project-hail-mary-prime-video-streaming-release-date/
+
+Project Hail Mary is officially coming to Prime Video as its streaming release date on the Amazon platform is finally confirmed for very soon.
+---------
+
+# Young Sheldon Officially Confirms New Release 2 Years After Untimely Cancellation
+
+Network TV, Young Sheldon, The Big Bang Theory
+
+Wed, 01 Jul 2026 14:14:18 GMT
+
+https://screenrant.com/young-sheldon-book-release-october-2026/
+
+Just two years after its cancellation, Young Sheldon officially confirms a brand new release that will expand the public's knowledge of the Coopers.
+---------
+
+# DC Just Officially Named Its New Strongest Superhero
+
+Comics, DC
+
+Wed, 01 Jul 2026 14:09:36 GMT
+
+https://screenrant.com/dc-new-spectre-wildcat-strongest-hero/
+
+They'd crush Superman in seconds.
+---------
+
+# Dylan O'Brien Breaks 10-Year Streak With Hulu's Wild New Murder Mystery Series
+
+TV, Hulu, Dylan O'Brien
+
+Wed, 01 Jul 2026 14:07:46 GMT
+
+https://screenrant.com/dylan-obrien-lex-hulu-show-tv-streak/
+
+After his acclaimed performances in Twinless and Send Help, Dylan O'Brien is heading to Hulu for a wild new murder mystery thriller series.
+---------
+
+# 10 Powerful Naruto Fights That Suffered the Biggest Consequences
+
+Anime, Naruto, shonen anime, Shonen, Naruto: Shippuden
+
+Wed, 01 Jul 2026 15:15:13 GMT
+
+https://www.cbr.com/naruto-fights-with-greatest-consequences/
+
+Major battles often come with painful losses, permanent injuries, broken friendships, and unavoidable choices that reshape the Naruto universe.
+---------
+
+# Optimus Prime's Best Transformers Line Is the Best Quote in Sci-Fi History
+
+Anime, Transformers, The Transformers: The Movie, optimus prime
+
+Wed, 01 Jul 2026 15:00:12 GMT
+
+https://www.cbr.com/transformers-optimus-primes-best-quote-sci-fi-history/
+
+Optimus Prime has said many notable lines in the Transformers franchise, but perhaps his best was uttered right before his G1 cinematic final battle.
+---------
+
+# Star Trek's Returning 94% RT Masterpiece Fixed the Gorn With Sci-Fi's Smartest Story
+
+TV, Star Trek, Star Trek: The Original Series, Star Trek: Strange New Worlds, Sci-Fi
+
+Wed, 01 Jul 2026 15:00:12 GMT
+
+https://www.cbr.com/star-trek-strange-new-worlds-gorn-retcon/
+
+One decision in Strange New Worlds seemed like a blatant Star Trek continuity error, but it ultimately became a genius sci-fi story.
+---------
+
+# Sanrio Releases New Nintendo Switch 2 Cinnamoroll & Kuromi Controllers and Carry Cases
+
+Anime, sanrio, merchandise, Nintendo Switch
+
+Wed, 01 Jul 2026 14:45:13 GMT
+
+https://www.cbr.com/sanrio-cinnamoroll-kuromi-nintendo-switch-2-controller-carry-case/
+
+Kuromi and Cinnamoroll take the spotlight in the newest Sanrio merchandise, with these adorable items making gaming easier for younger hands.
+---------
+
+# Star Trek: Nemesis Has the Franchise's Scariest Opening Scene
+
+Movies, Star Trek: Nemesis
+
+Wed, 01 Jul 2026 14:30:17 GMT
+
+https://www.cbr.com/star-trek-nemesis-scariest-opening-scene/
+
+Star Trek has countless great moments that are unforgettable, but its darkest opening comes from one of the franchise's worst entries.
+---------
+
+# 3 Creepy Shows to Binge Now That From Season 4 Is Over
+
+TV, From, Wayward Pines, Silo, Horror
+
+Wed, 01 Jul 2026 14:30:17 GMT
+
+https://www.cbr.com/best-creepy-shows-like-from-list/
+
+From Season 4 has come to a dramatic end, but there are several other sinister and mysterious shows that make for perfect replacements.
+---------
+
+# 10 Reasons Cowboy Bebop Is More Relevant Today Than Ever Before
+
+Anime, Cowboy Bebop
+
+Wed, 01 Jul 2026 14:15:14 GMT
+
+https://www.cbr.com/cowboy-bebop-more-relevant-today-than-ever/
+
+Cowboy Bebop is sometimes thought to be overrated by those who weren't around for it, but it's in fact only gotten better since the 1990s.
+---------
+
+# 10 Masterpieces That Changed Marvel Forever
+
+Comics, Marvel, Spider-Man
+
+Wed, 01 Jul 2026 14:00:13 GMT
+
+https://www.cbr.com/comic-masterpieces-that-changed-marvel-forever-list/
+
+These legendary comic books have defined Marvel Comics for generations.
+---------
+
+# Chappell Roan's Comeback Revealed With An Unexpected Twist
+
+Comics, Music
+
+Wed, 01 Jul 2026 14:00:13 GMT
+
+https://www.cbr.com/chappell-roan-midwest-princess-graphic-novel-biography/
+
+The life story of the pop star behind "Pink Pony Club" is about to get graphic.
+---------
+
+# Today Is a Great Day for OG Harry Potter Fans
+
+Movies, Harry Potter
+
+Wed, 01 Jul 2026 13:57:25 GMT
+
+https://www.cbr.com/harry-potter-audiobooks-on-spotify-stephen-fry-jim-dale/
+
+With a TV adaptation on the way, Harry Potter keeps surprising fans.
+---------
+
+# Jimmy Stewart’s Untold World War II Biopic Officially Sets Perfect World Premiere [Exclusive]
+
+Movie News, War, Jimmy Stewart, Jimmy, KJ Apa
+
+Wed, 01 Jul 2026 15:00:13 GMT
+
+https://collider.com/jimmy-new-trailer-world-premiere-fort-worth/
+
+Riverdale's KJ Apa is legendary actor Jimmy Stewart in the upcoming biopic Jimmy, exploring Stewart's decorated military service and iconic career.
+---------
+
+# Danny Glover, 79, Reveals Alzheimer's Diagnosis
+
+Movie News, Danny Glover, Lethal Weapon, Mel Gibson, Lethal Weapon 4
+
+Wed, 01 Jul 2026 14:39:16 GMT
+
+https://collider.com/danny-glover-79-alzheimers-diagnosis/
+
+Danny Glover, 79, has revealed that he has been diagnosed with Alzheimer's, detailing how he has been navigating the degenerative disease.
+---------
+
+# How a Lego Gag Became 'Minions & Monsters' Most Divisive Moment
+
+Exclusives, Minions & Monsters, Illumination, Minions, Despicable Me
+
+Wed, 01 Jul 2026 14:00:13 GMT
+
+https://collider.com/minions-and-monsters-easter-eggs-lego-joke-pierre-coffin/
+
+The team behind Minions & Monsters reveals the film's scrapped Harry Potter references and talks about the surprising end credits scene.
+---------
+
+# The Best WWII Epic Since Apple TV's 'Greyhound' Officially Returns [Exclusive]
+
+TV News, Das Boot, World War II, War
+
+Wed, 01 Jul 2026 13:00:13 GMT
+
+https://collider.com/das-boot-season-2-trailer/
+
+Season 2 of Das Boot is surfacing on MHz Choice this summer, and Collider has a first look at its new trailer. Watch it now.
+---------
+
+# PlayStation Is Officially Cancelling Physical Discs After Shocking 'GTA 6' Announcement
+
+Gaming News, PlayStation 5, PlayStation Plus, PlayStation Network, Sony PlayStation
+
+Wed, 01 Jul 2026 12:41:26 GMT
+
+https://collider.com/playstation-physical-discs-cancelled-2028/
+
+PlayStation announced this morning that they will cease the production of physical discs, in a move that impacts the industry at large.
+---------
+
+# This 4-Book Fantasy Series Inspired 'Game of Thrones,' but It Might Be Too Similar To Adapt
+
+TV Features, Game Of Thrones, George R.R. Martin, A Song of Ice and Fire, HBO
+
+Wed, 01 Jul 2026 12:25:13 GMT
+
+https://collider.com/memory-sorrow-and-thorn-inspired-game-of-thrones-too-similar-adapt/
+
+Memory, Sorrow, and Thorn inspired Game of Thrones, and that might hold it back from getting adapted since the two series are so similar.
+---------
+
+# How an Accidental David Bowie Impression Defined Jemaine Clement's Career for 17 Years
+
+Exclusives, Jemaine Clement, What We Do in the Shadows, Alice and Steve, Kiri and Lou Go Raaa!
+
+Wed, 01 Jul 2026 12:16:59 GMT
+
+https://collider.com/jemaine-clement-david-bowie-impression-flight-of-the-conchords/
+
+Jemaine Clement talks to Collider about New Zealand's first-ever stop-motion animated movie, his game-changing David Bowie impression, and more.
+---------
+
+# Brandon Sklenar's Best Movies and TV Shows, Ranked
+
+Movie Lists, Brandon Sklenar, 1923, Drop
+
+Wed, 01 Jul 2026 15:00:19 GMT
+
+https://movieweb.com/brandon-sklenars-best-movies-tv-shows/
+
+Brandon Sklenar has had one of the most exciting career trajectories, from supporting roles to his most iconic character to date.
+---------
+
+# 'Passengers Ending,' Explained: What Happened to Jim and Aurora?
+
+Features, Passengers, Sci-Fi
+
+Wed, 01 Jul 2026 15:00:19 GMT
+
+https://movieweb.com/passengers-ending-explained/
+
+Despite premiering in 2016, viewers still have questions about how Passengers wrapped up. Here's the film's ending, explained.
+---------
+
+# Disney Quietly Orders Post-Apocalyptic Adaptation That Netflix Already Canceled
+
+TV News, Netflix, Disney+, baby names
+
+Wed, 01 Jul 2026 14:53:38 GMT
+
+https://movieweb.com/disney-the-last-kids-on-earth-live-action-pilot/
+
+Disney+ and Disney Channel have ordered a live-action pilot for 'The Last Kids on Earth' based on Max Brallier’s post-apocalyptic book series.
+---------
+
+# Disney Reportedly Eyeing New Legacy Sequel to '90s Family Favorite
+
+Movie News, The Parent Trap, Disney
+
+Wed, 01 Jul 2026 14:30:24 GMT
+
+https://movieweb.com/the-parent-trap-sequel-reportedly-in-works/
+
+Disney is reportedly developing a legacy sequel to the 1998 family favorite 'The Parent Trap' starring Lindsay Lohan.
+---------
+
+# Ryan Coogler's 'The X-Files' Reboot Finally Crosses a Major Milestone
+
+TV News, The X-Files
+
+Wed, 01 Jul 2026 14:15:33 GMT
+
+https://movieweb.com/ryan-coogler-finished-filming-the-x-files-reboot-pilot/
+
+'The X-Files' lead star Himesh Patel said the Ryan Coogler reboot has hurdled its biggest obstacle to date.
+---------
+
+# Russell Crowe Goes Liam Neeson With Divisive Results in New Action Thriller
+
+Movie News, Russell Crowe, The Get Out, Action, Crime, Thriller
+
+Wed, 01 Jul 2026 14:06:19 GMT
+
+https://movieweb.com/russell-crowe-get-out-rotten-tomatoes-action/
+
+The Rotten Tomatoes score for 'The Get Out' has now been revealed, and it ends a recent streak for Russell Crowe.
+---------
+
+# 3 Binge-Worthy Netflix Shows I'm Downloading For My Next Flight
+
+TV Lists, Netflix
+
+Wed, 01 Jul 2026 14:00:18 GMT
+
+https://movieweb.com/netflix-shows-watch-on-plane/
+
+Netflix has many impressive binge-worthy TV shows, and these are the best ones on the streaming platform to watch on a plane ride.
+---------
+
+# Netflix Scores Big With 143-Minute Action Thriller Taking Over Streaming
+
+Movie News, Action, Hot on Streaming, Netflix
+
+Wed, 01 Jul 2026 13:46:40 GMT
+
+https://movieweb.com/blast-action-netflix-streaming-hit-june-2026/
+
+Netflix's newest action thriller, 'Blast', is officially one of the biggest movies on streaming a week after its debut.
+---------
+
+# Every DCU Movie Still Planned After 'Supergirl's Box Office Flop
+
+Movie Lists, DCU, Supergirl
+
+Wed, 01 Jul 2026 13:00:18 GMT
+
+https://movieweb.com/dcu-movies-after-supergirl/
+
+'Supergirl,' starring Milly Alcock, has flopped at the box office, but the DCU has several other movies in development.
+---------
+
+# 'The Odyssey' Countdown Trailer Unleashes Christopher Nolan's Action Fantasy Epic
+
+Movie News, The Odyssey
+
+Wed, 01 Jul 2026 12:43:09 GMT
+
+https://movieweb.com/the-odyssey-final-trailer/
+
+A countdown trailer for Christopher Nolan's highly anticipated mythic action epic 'The Odyssey' has been released by Universal Pictures.
+---------
+
 # Rhythm Heaven Groove Review: The Beat Is Back
 
 Gaming, Nintendo, Triple-A Games
