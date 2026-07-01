@@ -1,3 +1,377 @@
+# Cyberpunk 2077 Is Beginning A Bold New Era
+
+Gaming, Cyberpunk 2077, PC
+
+Wed, 01 Jul 2026 04:01:25 GMT
+
+https://screenrant.com/cyberpunk-2077-new-record-player-count/
+
+Once again, Cyberpunk 2077 is entering a bold new era, one which should see it achieve never-before-seen levels of success and hype.
+---------
+
+# Yes, A Palpatine Star Wars Series Should Happen (Just Not Where You Think)
+
+Star Wars, Emperor Palpatine / Darth Sidious
+
+Wed, 01 Jul 2026 03:58:00 GMT
+
+https://screenrant.com/palpatine-star-wars-series-with-darth-plagueis-theory-explained/
+
+While Emperor Palpatine actor Ian McDiarmid recently revealed that a Palpatine series was once in the works with Lucasfilm (but there's a better idea)
+---------
+
+# Every Netflix Show Canceled In 2026 (So Far)
+
+Streaming TV, Netflix
+
+Wed, 01 Jul 2026 03:45:22 GMT
+
+https://screenrant.com/netflix-show-cancellations-2026/
+
+Netflix doesn't waste any time cutting TV shows loose when they don't hit the mark. So far in 2026, there have already been some shockers.
+---------
+
+# Every Upcoming Villain Confirmed For James Gunn’s DCU (So Far)
+
+Superheroes, DC Universe, James Gunn, Man of Tomorrow, Mister Miracle, Waller (DCU), Lanterns, Clayface
+
+Wed, 01 Jul 2026 03:39:34 GMT
+
+https://screenrant.com/every-upcoming-villain-confirmed-for-james-gunn-dcu/
+
+Following the release of the DCU's new Supergirl movie, here's every upcoming supervillain confirmed for James Gunn's DC Universe (so far).
+---------
+
+# After 52 Years, Netflix Is Rewriting A Classic American Western For Modern Audiences
+
+TV, Masked Recs
+
+Wed, 01 Jul 2026 03:30:22 GMT
+
+https://screenrant.com/little-house-on-the-prairie-new-setting-location/
+
+Netflix is taking a big gamble rebooting a beloved TV Western, but the changes they've made have actually brought the show back to its roots.
+---------
+
+# A Big Death Is Coming In Jujutsu Kaisen Season 4, And It's A Huge Missed Opportunity
+
+Anime, Jujutsu Kaisen
+
+Wed, 01 Jul 2026 03:30:22 GMT
+
+https://screenrant.com/jujutsu-kaisen-season-4-yuki-death-missed-opportunity/
+
+One major death in Jujutsu Kaisen has major consequences for the themes of the whole franchise, and Season 4 will reignite the debate around it.
+---------
+
+# Netflix’s 2-Season Sci-Fi Masterpiece Has Some Of The Greatest Quotes In TV History
+
+Classic TV, Masked Recs
+
+Wed, 01 Jul 2026 03:19:37 GMT
+
+https://screenrant.com/the-oa-netflix-best-sci-fi-quotes/
+
+Netflix is the streaming home of a two-season sci-fi masterpiece that featured some of the most profound and memorable quotes throughout its runtime.
+---------
+
+# Agents Of SHIELD Timeline & MCU Watch Order: How It Fits With The Movies
+
+TV, Agents of S.H.I.E.L.D., Marvel Cinematic Universe
+
+Wed, 01 Jul 2026 03:00:23 GMT
+
+https://screenrant.com/agents-shield-timeline-watch-viewing-order-mcu-movies/
+
+Agents of SHIELD was literally designed to tie into the MCU - so here's how to watch the show and fit it in among the mainstream MCU timeline.
+---------
+
+# Steam Drops New 10/10 Free Game You'll Struggle To Put Down
+
+Gaming, Steam, PC
+
+Wed, 01 Jul 2026 03:00:21 GMT
+
+https://screenrant.com/steam-free-game-addictive-july-2026/
+
+For those looking for their next favorite game, this new critically acclaimed Steam title that is completely free may just be worth checking out.
+---------
+
+# What Do We Know About Digger, Tom Cruise's Big Collaboration With Alejandro G. Iñárritu
+
+Movies, Digger
+
+Wed, 01 Jul 2026 03:00:21 GMT
+
+https://screenrant.com/digger-tom-cruise-alejandro-g-irritu-tease/
+
+While audiences still don't know much about Tom Cruise's upcoming movie with Alejandro G. Iñárritu, some key clues hint at the movie's tone and story.
+---------
+
+# The Lord of the Rings' Strongest Spells, Ranked
+
+Movies, The Lord of the Rings, Fantasy
+
+Wed, 01 Jul 2026 03:45:14 GMT
+
+https://www.cbr.com/lord-of-the-rings-strongest-magic-spells-list/
+
+Throughout the long history of Middle-earth, various Elves, Maiar, and Valar displayed incredible feats of magic, but which were the strongest?
+---------
+
+# 39 Years Later, Picard's Best Star Trek Line Is Still the Greatest Quote in Sci-Fi History
+
+TV, Star Trek, Star Trek: The Next Generation, Sci-Fi
+
+Wed, 01 Jul 2026 03:30:14 GMT
+
+https://www.cbr.com/star-trek-the-next-generation-justice-picard-best-quote/
+
+In Star Trek: The Next Generation Season 1, Picard takes a firm stand on justice that conflicts with the Prime Directive.
+---------
+
+# Say Goodbye to a Major Marvel Publisher After Official Disney Exit
+
+Anime, Shonen Jump, Marvel
+
+Wed, 01 Jul 2026 02:59:57 GMT
+
+https://www.cbr.com/marvel-shueisha-disney-partnership-end/
+
+An official Marvel publisher has officially announced it is parting ways with Disney, just as fans look forward to new titles.
+---------
+
+# Zorro Reboot Series Reviews Praise 'Perfect' Casting of Oscar-Winning Star
+
+TV, Zorro
+
+Wed, 01 Jul 2026 02:56:05 GMT
+
+https://www.cbr.com/zorro-reboot-reviews-jean-dujardin/
+
+Zorro is back in a more comedic new series with reviewers praising the casting of the titular swordsman.
+---------
+
+# The Ultimate Universe Reached Its Official End With a Striking Piece of Hope
+
+Comics, ultimate comics
+
+Wed, 01 Jul 2026 02:46:34 GMT
+
+https://www.cbr.com/ultimate-endgame-5-review-doom-saves-all/
+
+In a CBR review of Ultimate Endgame #5, see how the end of the Ultimate Universe arrived with a surprising dose of hope
+---------
+
+# Supergirl Will Not Derail James Gunn's DCU For One Big Reason
+
+Movies, Supergirl, DCU
+
+Wed, 01 Jul 2026 02:45:13 GMT
+
+https://www.cbr.com/supergirl-will-not-derail-the-dcu-for-one-big-reason/
+
+Before you overreact to Supergirl's opening weekend, let's talk about this one movie in the grand scheme of the developing DCU.
+---------
+
+# Dutton Ranch Just Rewrote a Major Yellowstone Mistake With a Single Line
+
+TV, Yellowstone, Dutton Ranch
+
+Wed, 01 Jul 2026 02:38:25 GMT
+
+https://www.cbr.com/dutton-ranch-episode-8-carter-story-fix-yellowstone-mistake/
+
+In Dutton Ranch Episode 8, "Whiskey Limits," the Yellowstone franchise fixes a critical mistake from the final season of Taylor Sheridan's flagship.
+---------
+
+# 10 Underdog Anime Heroes Who Proved Everyone Wrong
+
+Anime, Naruto, Black Clover, Solo Leveling
+
+Wed, 01 Jul 2026 02:30:14 GMT
+
+https://www.cbr.com/underdog-anime-heroes-proved-everyone-wrong/
+
+From Naruto to Hinata Shoyo, the biggest underdogs in anime rank among the greatest protagonists of all time.
+---------
+
+# Quantum Leap Writers Return: Major Comeback Comes With a Twist
+
+Comics, Quantum Leap
+
+Wed, 01 Jul 2026 02:03:18 GMT
+
+https://www.cbr.com/before-the-world-crumbles-gungnir-books-confirmed/
+
+In a surprising turn of events, Quantum Leap writers Benjamin Raab and Deric A. Hughes have announced a return to their creative partnership.
+---------
+
+# New Minions Movie Debuts With Record-Breaking Rotten Tomatoes Score
+
+Movies, Rotten Tomatoes, Minions & Monsters
+
+Wed, 01 Jul 2026 02:00:33 GMT
+
+https://www.cbr.com/minions-monsters-rotten-tomatoes-score/
+
+The debut Rotten Tomatoes score of the newest Minions movie has officially been revealed.
+---------
+
+# Taylor Sheridan's Hit 3-Part Spy Thriller Quietly Predicted One of Today's Biggest Headlines
+
+TV Features, Taylor Sheridan, Lioness, Zoe Saldana, Paramount Plus
+
+Wed, 01 Jul 2026 04:45:12 GMT
+
+https://collider.com/lioness-taylor-sheridan-spy-thriller-predicted-headlines/
+
+Taylor Sheridan's Lioness has already eerily mirrored real-life events, tackling timely political issues in its plot.
+---------
+
+# All 5 Toy Story Movies, Ranked by How Much It Will Make You Cry
+
+Movie, Toy Story, Toy Story 2, Toy Story 3, Toy Story 5
+
+Wed, 01 Jul 2026 04:27:14 GMT
+
+https://collider.com/saddest-toy-story-movies-ranked/
+
+Every Toy Story movie is going to make you shed some tears. It's just a matter of finding out which one is going to make you cry the hardest.
+---------
+
+# 10 Most Ambitious Books of All Time
+
+Books and Comics, The Stand, War and Peace, The Lord of the Rings, Les Misérables
+
+Wed, 01 Jul 2026 04:14:13 GMT
+
+https://collider.com/most-ambitious-books-all-time-ranked/
+
+Epic-length books like War and Peace, The Stand, and The Lord of the Rings can all be considered among the most ambitious ever published.
+---------
+
+# 10 Heaviest Movie Masterpieces of All Time
+
+Movie, Se7en, An Elephant Sitting Still, Schindler's List, Come And See
+
+Wed, 01 Jul 2026 03:26:14 GMT
+
+https://collider.com/heaviest-movie-masterpieces-of-all-time-ranked-emotional/
+
+Se7en, Schindler's List, and The Passion of Joan of Arc are all among the heaviest, most emotionally brutal movies ever made.
+---------
+
+# 4 Years Later, HBO’s 3-Part Fantasy Series Is Already Considered a Classic
+
+TV Features, House of the Dragon, Emma D'Arcy, Matt Smith, George R.R. Martin
+
+Wed, 01 Jul 2026 03:01:14 GMT
+
+https://collider.com/house-of-the-dragon-classic-fantasy-series-hbo/
+
+House of the Dragon has officially found its own footing in Season 3 as the Targaryen civil war begins in earnest.
+---------
+
+# These 6 Movie Trilogies Are a Masterclass in Screenwriting
+
+Movie, Three Colors: Blue, The Lord of the Rings, Before Sunrise, The Dark Knight Trilogy
+
+Wed, 01 Jul 2026 02:09:14 GMT
+
+https://collider.com/movie-trilogies-masterclass-in-screenwriting/
+
+Movie trilogies like The Lord of the Rings, The Dark Knight, the Before films showcase some of the smartest, most rewarding screenwriting ever.
+---------
+
+# Jason Statham's $1.5 Billion Success Proves He Needs a Tom Cruise Team-Up
+
+Movie Features, Jason Statham, Tom Cruise, Furious 7, Top Gun 3
+
+Wed, 01 Jul 2026 01:12:12 GMT
+
+https://collider.com/jason-statham-tom-cruise-action-movie/
+
+Tom Cruise and Jason Statham have only shared one scene in Collateral. Here's why Hollywood is long overdue for pairing the two action icons.
+---------
+
+# 8 Must-Watch Adventure Horror Movies, Ranked
+
+Movie, Adventure, Horror, The Descent, Jaws
+
+Wed, 01 Jul 2026 00:51:15 GMT
+
+https://collider.com/best-adventure-horror-movies-must-watch-ranked/
+
+Jaws, The Descent, and King Kong are all among the greatest, must-watch adventure horror movies that excite and terrify in equal measure.
+---------
+
+# 10 Sci-Fi Video Games Better Than Most Movie Blockbusters You've Seen
+
+Movie, Science Fiction, Mass Effect, Video Game
+
+Wed, 01 Jul 2026 00:32:18 GMT
+
+https://collider.com/sci-fi-video-games-better-than-movie-blockbusters/
+
+Many great sci-fi video games have qualities that exceed those of most blockbuster films, including acclaimed titles like Half-Life 2 and Bioshock.
+---------
+
+# 8 Sitcoms That Are 10/10, No Notes
+
+TV, Sitcom, It's Always Sunny in Philadelphia, The Golden Girls, Community
+
+Wed, 01 Jul 2026 00:11:22 GMT
+
+https://collider.com/sitcoms-perfect-no-notes/
+
+From the beloved classic The Golden Girls to the long-running It's Always Sunny in Philadelphia, these sitcoms are some of the best of the genre.
+---------
+
+# 12 Great TV Shows Where Everyone Agrees the Ending Is Perfect
+
+TV Lists, Breaking Bad, The Americans, The Good Place
+
+Wed, 01 Jul 2026 02:00:31 GMT
+
+https://movieweb.com/tv-shows-perfect-endings/
+
+These TV shows, from sitcoms to dramas to thrillers, have perfect and memorable endings that people still talk about.
+---------
+
+# Taylor Sheridan Finally Explains Kevin Costner's Unexpected 'Yellowstone' Exit
+
+TV News, Yellowstone, Kevin Costner, Taylor Sheridan
+
+Wed, 01 Jul 2026 01:25:40 GMT
+
+https://movieweb.com/taylor-sheridan-kevin-costner-yellowstone-exit/
+
+John Dutton was always going to leave the show; it just happened later than expected.
+---------
+
+# 'Avengers: Doomsday' Merch Offers Best Look Yet at Doctor Doom in the MCU
+
+Movie News, Avengers: Doomsday, MCU, Robert Downey Jr.
+
+Wed, 01 Jul 2026 00:51:44 GMT
+
+https://movieweb.com/avengers-doomsday-mcu-doctor-doom-merchandise/
+
+A recent Advent calendar suggests the marketing campaign is beginning to kick in.
+---------
+
+# 'Indiana Jones' & 'Harry Potter' Actor Michael Byrne Dies at 82
+
+Movie News, Harry Potter, Indiana Jones
+
+Wed, 01 Jul 2026 00:26:25 GMT
+
+https://movieweb.com/indiana-jones-actor-michael-byrne-dies-at-82/
+
+The accomplished British actor, whose career encompassed film, television and theatre, was best known for his villainous role in 'The Last Crusade'
+---------
+
 # 29 Years Later, Only One Dragon Ball GT Concept Is Aging Better than Super Saiyan 4
 
 Anime, Dragon Ball GT, Dragon Ball
