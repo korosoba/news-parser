@@ -1,3 +1,377 @@
+# John Cena's New R-Rated Netflix Movie Debuts To Disappointing Rotten Tomatoes Score
+
+Movies, Little Brother
+
+Thu, 02 Jul 2026 13:06:44 GMT
+
+https://screenrant.com/little-brother-netflix-rotten-tomatoes-score-debut/
+
+John Cena's new, R-rated Netflix movie debuts to a disappointing Rotten Tomatoes score, despite drawing in a sizable audience.
+---------
+
+# New Pokémon Game Officially Releases On July 18
+
+Gaming, Pokemon
+
+Thu, 02 Jul 2026 13:04:17 GMT
+
+https://screenrant.com/pokemon-new-game-plakoro-pokepla-july-release/
+
+A new Pokémon game is officially and surprisingly releasing on July 18, offering up a new kind of experience to Pokémon fans this year.
+---------
+
+# No Star Wars Fan Realized 10 Years Ago It Was The End Of An Era
+
+Movies, Masked Recs
+
+Thu, 02 Jul 2026 13:01:20 GMT
+
+https://screenrant.com/star-wars-rogue-one-end-era-not-realize/
+
+The signs were there, but no one could have predicted the Star Wars franchise's decade-long decline when its $1 billion hit was released in 206.
+---------
+
+# Resident Evil Officially Returns With New Free DLC
+
+Gaming, Resident Evil, Triple-A Games, PC
+
+Thu, 02 Jul 2026 13:00:20 GMT
+
+https://screenrant.com/resident-evil-survival-unit-monster-hunter-dlc/
+
+After months of waiting, Resident Evil is making waves with another surprise DLC that you can download and play right now entirely for free.
+---------
+
+# HBO Max Is Now Home To A Great Horror Franchise Before A New Sequel Hits Theaters
+
+Movies, Streaming Release, Recommendation, Evil Dead
+
+Thu, 02 Jul 2026 13:00:20 GMT
+
+https://screenrant.com/hbo-max-evil-dead-movies-streaming-july/
+
+HBO Max has a great slate of films arriving in July, including movies that make up one of the greatest horror franchises in history, Evil Dead.
+---------
+
+# 'The Funniest Novel of All Time' Gets New Adaptation This September
+
+Comics, Masked Recs
+
+Thu, 02 Jul 2026 13:00:20 GMT
+
+https://screenrant.com/new-confederacy-of-dunces-adaptation-best-comedy/
+
+New A Confederacy of Dunces adaptation.
+---------
+
+# 32 Years Later, Homer’s Best Line Is Still The Greatest Quote In The Simpsons History
+
+Classic TV, The Simpsons
+
+Thu, 02 Jul 2026 12:57:22 GMT
+
+https://screenrant.com/homer-simpsons-greatest-quote-in-history/
+
+The Simpsons' most memorable line came from an unexpected episode that showcased the show's unique ability to subvert expectations and break TV rules.
+---------
+
+# 2026 Officially Marks The Start Of An Era For Criminal Minds
+
+TV, Criminal Minds
+
+Thu, 02 Jul 2026 12:45:09 GMT
+
+https://screenrant.com/paramount-plus-criminal-minds-streaming-charts-rise/
+
+Criminal Minds has officially started a new era as its streaming success reaches an exciting height on Paramount+ several years after it started.
+---------
+
+# 5 Project Hail Mary Deleted Scenes Are Releasing Soon
+
+Movies, Project Hail Mary
+
+Thu, 02 Jul 2026 12:30:20 GMT
+
+https://screenrant.com/project-hail-mary-deleted-scenes-dvd-release/
+
+Project Hail Mary's extensive roster of deleted scenes are getting a new reveal thanks to the latest update about the iconic 2026 movie.
+---------
+
+# Netflix’s New 10-Part Action Series Has Rare 4-Week Streak At #1 On Global Streaming Charts
+
+TV, Masked Recs
+
+Thu, 02 Jul 2026 12:20:39 GMT
+
+https://screenrant.com/netflix-teach-you-a-lesson-global-streaming-charts-four-week-streak/
+
+Netflix's new, 10-part action series gets a rare 4-week streak at Number 1 on global streaming charts, captivating viewers around the world.
+---------
+
+# 10 Hilarious Far Side Comics About the Ocean
+
+Comics, The Far Side
+
+Thu, 02 Jul 2026 13:01:13 GMT
+
+https://www.cbr.com/hilarious-far-side-comics-about-the-ocean/
+
+Humorous environmental peril is a running theme in The Far Side comics. While all are amusing, one of the funniest locales remains the ocean.
+---------
+
+# '80s Cult Classic Rad Creators Reveal How They Reinvent Helltrack
+
+CBR Exclusives, Rad
+
+Thu, 02 Jul 2026 13:00:44 GMT
+
+https://www.cbr.com/rad-writers-sequel-cult-classic-motocrosss-helltrack/
+
+In a CBR exclusive interview with the writer of the graphic novel sequel to the 1980s cult classic motocross film, Rad, see how Helltrack returns
+---------
+
+# 8 Years Later, Dean Winchester's Greatest Supernatural Quote Remains 100% Undisputed
+
+TV, Supernatural, The CW, Horror
+
+Thu, 02 Jul 2026 13:00:13 GMT
+
+https://www.cbr.com/supernatural-dean-winchester-best-undisputed-quote/
+
+Dean Winchester's most impactful line in Supernatural still resonates with fans and remains the best quote in the series.
+---------
+
+# It's Officially The End of An Era for the Avatar Movies
+
+Movies, Avatar: Fire and Ash, Avatar, Disney+
+
+Thu, 02 Jul 2026 13:00:13 GMT
+
+https://www.cbr.com/end-of-original-avatar-trilogy-era/
+
+The focus for Avatar has changed now that the latest installment in the Pandora series has found its new online home.
+---------
+
+# Lord of the Rings: Cave Troll of Moria Officially Arrives November 2026
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings: The Return of the King
+
+Thu, 02 Jul 2026 12:58:14 GMT
+
+https://www.cbr.com/lord-of-the-rings-cave-troll-of-moria-official-new-release-november-2026/
+
+The Lord of the Rings: Cave Troll of Moria is an upcoming premium release that brings one of the movie trilogy's most memorable monsters to life.
+---------
+
+# Sonic the Hedgehog Is a Streaming Success 6 Years Later
+
+Movies, Sonic the Hedgehog, Paramount Plus
+
+Thu, 02 Jul 2026 12:00:12 GMT
+
+https://www.cbr.com/sonic-the-hedgehog-action-streaming-success-paramount-plus-july-2026/
+
+Six years ago, Paramount launched a massive franchise with this movie, that's now a streaming sensation.
+---------
+
+# 10 Best Absolute Batman Moments We Can't Wait To See In The Animated Series
+
+Comics, Absolute Batman
+
+Thu, 02 Jul 2026 12:00:12 GMT
+
+https://www.cbr.com/absolute-batman-moments-for-animated-series/
+
+The Absolute Batman moments that made us wish for the animated series.
+---------
+
+# Marvel Confirms Venom's Son Is Back—and He's More Powerful Than Ever
+
+Comics, Venom
+
+Thu, 02 Jul 2026 12:00:12 GMT
+
+https://www.cbr.com/venom-259-dylan-brock-toxin/
+
+The heir to one of Marvel's most important legacies just got a brand-new look courtesy of his latest superpowered symbiote partner.
+---------
+
+# 'Silo' Season 2 Recap: What To Remember Before Rebecca Ferguson's Apple TV Sci-Fi Returns
+
+TV Features, Silo, Rebecca Ferguson, Tim Robbins, Apple TV
+
+Thu, 02 Jul 2026 12:46:13 GMT
+
+https://collider.com/silo-season-2-recap-what-to-remember-before-season-3-premieres/
+
+Refresh your memory on Silo Season 2's key events, characters, and revelations before Apple TV's critically acclaimed sci-fi series returns.
+---------
+
+# 15 Anime Shows With the Best Character Development, Ranked
+
+TV, Anime, Sound! Euphonium, Ashita no Joe, Attack on Titan
+
+Thu, 02 Jul 2026 12:32:14 GMT
+
+https://collider.com/anime-shows-best-character-development-ranked/
+
+Berserk, Attack on Titan, and One Piece are among the best anime shows that benefit from outstanding character development.
+---------
+
+# It’s Officially the End of an Era for Henry Cavill’s 3-Part Netflix Detective Saga
+
+Movie News, Enola Holmes 3, Henry Cavill, Netflix, Millie Bobby Brown
+
+Thu, 02 Jul 2026 12:28:25 GMT
+
+https://collider.com/henry-cavill-enola-holmes-3-rotten-tomatoes-score/
+
+The verdict is on on Netflix's hit detective franchise, Enola Holmes 3. Read on to learn more about the film's Rotten Tomatoes score.
+---------
+
+# Only 3 Horror Books Are Better Than 'The Shining'
+
+Books and Comics, The Shining, Stephen King, It, Frankenstein
+
+Thu, 02 Jul 2026 12:17:14 GMT
+
+https://collider.com/horror-books-better-than-the-shining/
+
+Not many horror books are better and scarier than The Shining, but a few arguably are, including House of Leaves and one other Stephen King novel.
+---------
+
+# 7 HBO Endings That Are Genuine Masterpieces
+
+TV, HBO, Curb Your Enthusiasm, Succession, Six Feet Under
+
+Thu, 02 Jul 2026 12:08:13 GMT
+
+https://collider.com/hbo-endings-masterpieces/
+
+It's an achievement to end a series well, but HBO shows like Half Man, Succession, and Curb Your Enthusiasm have endings that are true masterpieces.
+---------
+
+# Stephen King’s Near-Perfect Dystopian Masterpiece Walks Onto HBO Max Soon
+
+Movie News, The Long Walk, Stephen King, HBO Max, Cooper Hoffman
+
+Thu, 02 Jul 2026 12:00:13 GMT
+
+https://collider.com/stephen-king-the-long-walk-streaming-release-date-hbo-max-july-10-2026/
+
+HBO Max has finally set a streaming date for the best Stephen King horror adaptation of the last 10 years.
+---------
+
+# 10 Bleakest Sci-Fi Movie Masterpieces of All Time
+
+Movie, Sci-Fi, Children of Men, Threads
+
+Thu, 02 Jul 2026 11:56:13 GMT
+
+https://collider.com/bleakest-sci-fi-movie-masterpieces-all-time-ranked/
+
+Dystopian classics like Seconds, Threads, and Children of Men are among the bleakest science fiction movie masterpieces of all time.
+---------
+
+# This Masterclass in Western Movies Is Set to Become a Cult Classic on Streaming
+
+Movie Features, Horizon: An American Saga - Chapter 1, Kevin Costner, Prime Video, HBO Max
+
+Thu, 02 Jul 2026 11:56:13 GMT
+
+https://collider.com/horizon-american-saga-western-movie-kevin-costner-cult-classic-streaming/
+
+A frustrating box office bomb, Kevin Costner's Horizon: An American Saga feels destined for cult classic movie status.
+---------
+
+# ‘Avatar: The Last Airbender’ Fans Need To Read Fantasy’s Best Martial Arts Epic
+
+TV Features, Avatar: The Last Airbender, Books, Series, Fantasy
+
+Thu, 02 Jul 2026 11:46:13 GMT
+
+https://collider.com/avatar-the-last-airbender-must-read-jade-city-fantasy-epic/
+
+Love Avatar: The Last Airbender? Here’s why Fonda Lee’s Jade City is the perfect fantasy novel to read next.
+---------
+
+# 10 Most Perfect Final Shots of the 20th Century, Ranked
+
+Movie, The Godfather, Sunset Boulevard, Fight Club, The Searchers
+
+Thu, 02 Jul 2026 11:43:14 GMT
+
+https://collider.com/most-perfect-final-movie-shots-20th-century-ranked/
+
+20th century classics like Fight Club, The Searchers, and The Godfather all have some of the best final shots in the history of cinema.
+---------
+
+# Prime Video's Raunchy R-Rated Smash Holds Firm Against New Prequel Series
+
+TV News, Off Campus, Elle, Hot on Streaming, Prime Video
+
+Thu, 02 Jul 2026 13:03:12 GMT
+
+https://movieweb.com/off-campus-beats-elle-prime-video-streaming-top-10-july-2026/
+
+Despite being released two months ago, 'Off Campus' has fended off one of Prime Video's most anticipated new shows to remain #1 on streaming.
+---------
+
+# 10 Great 'John Wick'-Esque Action Thriller Movies With Female Leads
+
+Movie Lists, John Wick
+
+Thu, 02 Jul 2026 13:00:18 GMT
+
+https://movieweb.com/john-wick-action-thrillers-female-leads/
+
+'John Wick,' the popular action franchise starring Keanu Reeves, is great, but these movies with female leads are even better.
+---------
+
+# ABC’s 8-Part Action Thriller Is So Good, You’ll Forget All About 'Reacher'
+
+Features, The Rookie, Reacher
+
+Thu, 02 Jul 2026 12:01:18 GMT
+
+https://movieweb.com/the-rookie-reacher-comparison/
+
+'Reacher' may be a popular action thriller starring Alan Ritchson on Amazon Prime Video, but ABC has an even better series.
+---------
+
+# Tom Hanks Returns for New Baseball Movie, 35 Years After His Sports Classic
+
+Movie News, Tom Hanks, Sports
+
+Thu, 02 Jul 2026 11:55:24 GMT
+
+https://movieweb.com/the-comebacker-tom-hanks-baseball-release-date/
+
+Sony Pictures has set the theatrical release date for Tom Hanks' baseball drama, 'The Comebacker,' over 30 years after his original sports classic.
+---------
+
+# Disney+'s Returning Marvel Series Overhauls Underrated Deadpool Storyline
+
+Features
+
+Thu, 02 Jul 2026 11:10:18 GMT
+
+https://movieweb.com/x-men-97-x-force-deadpool/
+
+'Deadpool 2's X-Force subplot deserves more praise, and Marvel has finally realized its potential. Read on for more.
+---------
+
+# Taylor Sheridan "Secretly" Filming New Action Thriller Set for 2027 Release
+
+Movie News, Taylor Sheridan, F.A.S.T., Action, Thriller, Brandon Sklenar
+
+Thu, 02 Jul 2026 11:08:24 GMT
+
+https://movieweb.com/taylor-sheridan-secretly-filming-fast-action-thriller/
+
+While trying to remain under cover, a new look and details about the upcoming action thriller have been revealed.
+---------
+
 # Attack On Titan Officially Returning For A Brand-New Finale
 
 Gaming, Attack on Titan
