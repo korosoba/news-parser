@@ -1,3 +1,366 @@
+# Red Dead Redemption 2 Meets Stephen King’s Dark Tower In Brand-New Fantasy Epic
+
+Gaming, Red Dead Redemption 2, The Dark Tower, Triple-A Games, PC
+
+Thu, 02 Jul 2026 04:00:29 GMT
+
+https://screenrant.com/red-dead-redemption-meets-stephen-king-new-dark-fantasy/
+
+Rockstar might not go West any time soon, but a dark take on the setting from one of the best worldbuilders out there could be the next best thing.
+---------
+
+# Henry Cavill's Sherlock Holmes Future On Netflix Addressed By Star After Enola Holmes 3
+
+Movies, Enola Holmes 3, Henry Cavill
+
+Thu, 02 Jul 2026 03:50:56 GMT
+
+https://screenrant.com/henry-cavill-sherlock-holmes-watson-netflix-future-himesh-patel/
+
+Exclusive: One of Henry Cavill's Enola Holmes 3 co-stars has shared their thoughts on what could be next for this film series' Sherlock Holmes.
+---------
+
+# Monster Hunter Meets Valheim In Massive New 2027 RPG
+
+Gaming, Steam, Triple-A Games
+
+Thu, 02 Jul 2026 03:00:21 GMT
+
+https://screenrant.com/monster-hunter-meets-valheim-wild-wild-eden/
+
+Two titans combine as a massive new 2027 RPG is unveiled, and it looks extremely ambitious, even for the open-world RPG genre.
+---------
+
+# Resident Evil Director Compares Reboot To Lord Of The Rings
+
+Movies, Resident Evil
+
+Thu, 02 Jul 2026 02:54:51 GMT
+
+https://screenrant.com/resident-evil-zach-cregger-lord-of-the-rings-comparison/
+
+Zach Cregger, the director of the Resident Evil movie reboot, compares the upcoming video game adaptation to the Lord of the Rings franchise.
+---------
+
+# Marvel Officially Unveils White Costume For Reed Richards' New Appearance
+
+Marvel Comics, Fantastic Four
+
+Thu, 02 Jul 2026 02:47:13 GMT
+
+https://screenrant.com/reed-richards-maker-new-costume/
+
+Marvel introduces an alternate version of one of Reed Richards' most unique costumes, with an all-white redesign for Mister Fantastic's suit.
+---------
+
+# The Director James Gunn Called “One Of The Best Action Filmmakers” Sets New Movie With John Wick Creator
+
+Movies, Masked Recs
+
+Thu, 02 Jul 2026 02:34:31 GMT
+
+https://screenrant.com/the-reckoner-movie-kenji-tanigaki-direct-derek-kolstad-write/
+
+James Gunn called this director "one of the best action filmmakers," and now he has a new movie in the works with the creator of John Wick.
+---------
+
+# PlayStation Online Multiplayer Is About To Change Forever
+
+Gaming, PlayStation Plus, PlayStation, PlayStation 4, Sony
+
+Thu, 02 Jul 2026 02:00:33 GMT
+
+https://screenrant.com/playstation-online-multiplayer-no-playstation-network/
+
+Discover how PC users can soon play PlayStation games online without a PlayStation Network subscription, thanks to the shadPS4 emulator and shadNET.
+---------
+
+# Billie Piper Officially Returns To Doctor Who This Summer After Sci-Fi Show’s Indefinite Hiatus
+
+TV, Doctor Who
+
+Thu, 02 Jul 2026 01:25:21 GMT
+
+https://screenrant.com/doctor-who-the-ninth-doctor-adventures-dark-tides-billie-piper-audio-return/
+
+While the Doctor Who TV show is on hiatus, Billie Piper is confirmed to reprise companion Rose Tyler in another project later this summer.
+---------
+
+# X-Men '97 Season 2: Over 30 Easter Eggs, Marvel References, & Cameos In Episodes 1-3
+
+Superheroes, X-Men '97, Marvel Cinematic Universe
+
+Thu, 02 Jul 2026 01:11:13 GMT
+
+https://screenrant.com/x-men-97-season-2-easter-eggs-marvel-references-episode-1-3/
+
+X-Men '97 season 2 has premiered on Disney+ with its first three episodes. Here's every major Easter eggs, reference, and background cameo we spotted.
+---------
+
+# Thor Just Unleashed Marvel's Best Twist Of 2026
+
+Marvel Comics, Thor
+
+Thu, 02 Jul 2026 01:09:41 GMT
+
+https://screenrant.com/mortal-thor-sigurd-donald-blake-twist/
+
+Marvel's most shocking twist of the year might be the revelation that Thor isn't the character everybody has followed all along, despite all hints.
+---------
+
+# 5 Masterpiece Action Anime Better Than JJK
+
+Anime
+
+Thu, 02 Jul 2026 04:30:13 GMT
+
+https://www.cbr.com/masterpiece-action-anime-better-than-jjk-list/
+
+Jujutsu Kaisen is one of the best action anime of the 21st century, but a handful of series are even better.
+---------
+
+# 10 Greatest RPG Masterpieces of the Last Decade List
+
+Games, RPG, Video Games, Cyberpunk 2077, Assassin's Creed
+
+Thu, 02 Jul 2026 03:45:13 GMT
+
+https://www.cbr.com/greatest-rpg-masterpieces-last-decade/
+
+Gamers haven't been able to get enough of recent RPGs like Clair Obscur: Expedition 33 and Baldur's Gate 3.
+---------
+
+# Melania Trump's Hefty Salary for Polarizing Amazon Documentary Revealed
+
+Movies, Melania
+
+Thu, 02 Jul 2026 03:39:53 GMT
+
+https://www.cbr.com/melania-trump-salary-amazon-documentary/
+
+Melania Trump was paid well for the extremely divisive movie which infamously bombed at the box office.
+---------
+
+# Pokémon Winds & Waves Legendaries Already Leaked Online
+
+Games, Pokemon
+
+Thu, 02 Jul 2026 03:16:13 GMT
+
+https://www.cbr.com/pokemon-winds-waves-legendaries-leaked-online/
+
+Pokémon Winds and Waves aren't releasing until 2027, but fans have already gotten their first look at the RPGs' box art Legendaries.
+---------
+
+# 10 Classic Sci-Fi Games You Must Play in 2026
+
+Games, Video Games, Science Fiction
+
+Thu, 02 Jul 2026 03:16:13 GMT
+
+https://www.cbr.com/best-classic-sci-fi-games-of-all-time/
+
+Gamers who still haven't played Halo 2 or Half-Life 2 in 2026 are plainly missing out.
+---------
+
+# Liam Neeson & Christina Ricci's Forgotten Horror Film Resurrected on Free Streaming
+
+Movies, After.Life, liam neeson
+
+Thu, 02 Jul 2026 03:11:26 GMT
+
+https://www.cbr.com/after-life-streaming-pluto-tv-july-2026/
+
+The forgotten film featuring Liam Neeson in one of his creepiest roles has made a comeback on streaming.
+---------
+
+# NCIS Officially Won't Look the Same in Season 24 Thanks to a Major CBS Update
+
+TV, NCIS, CBS
+
+Thu, 02 Jul 2026 03:03:50 GMT
+
+https://www.cbr.com/ncis-season-24-casting-changes-new-characters/
+
+NCIS will be unrecognizable when it returns in the fall for Season 24, thanks to a recent update from CBS regarding massive casting shake-ups.
+---------
+
+# Gundam Revives a Forgotten Transforming Mecha With Massive New Release
+
+Anime, Mobile Suit Gundam, Mobile Suit Zeta Gundam, merchandise, bandai
+
+Thu, 02 Jul 2026 03:00:13 GMT
+
+https://www.cbr.com/bandai-metal-robot-spirits-gundam-asshimar-release/
+
+The METAL ROBOT SPIRITS line is adding one of the weirdest Gundam designs from one of the most obscure Gundam media ever as a new action figure.
+---------
+
+# 5 Anime Characters Objectively Stronger Than Gear 5 Luffy
+
+Anime, One Piece, Sailor Moon, Jujutsu Kaisen
+
+Thu, 02 Jul 2026 02:46:13 GMT
+
+https://www.cbr.com/one-piece-anime-characters-stronger-than-gear-5-luffy/
+
+Gear 5 might give Luffy the power to conquer Blackbeard and Imu, but it couldn't stand against characters like Sukuna and Saitama.
+---------
+
+# 10 Classic Open World Games You Must Play in 2026
+
+Games, Red Dead Redemption 2, Batman, Grand Theft Auto
+
+Thu, 02 Jul 2026 02:30:12 GMT
+
+https://www.cbr.com/classic-open-world-games-must-play-in-2026/
+
+Open world titles like Red Dead Redemption 2 are still absolute must-play games in 2026.
+---------
+
+# Prime Video's 'Every Year After' Isn't the Only Carley Fortune Book Getting Adapted
+
+TV Features, Every Year After, Prime Video, Meghan Markle, Prince Harry, Duke of Sussex
+
+Thu, 02 Jul 2026 04:12:14 GMT
+
+https://collider.com/every-year-after-new-adaptation-meet-me-at-the-lake/
+
+As Every Year After continues to tread on Prime Video, Meghan Markle and Prince Harry are behind the adaptation for Meet Me at the Lake.
+---------
+
+# Sorry 'The Dark Knight,' But This Is Still the Best Superhero Ever Made
+
+Movie Features, Spider-Man 2, Sam Raimi, Tobey Maguire, The Dark Knight
+
+Thu, 02 Jul 2026 04:07:18 GMT
+
+https://collider.com/spider-man-2-best-superhero-movie-ever-made-the-dark-knight/
+
+With Spider-Man 2, Sam Raimi truly jumpstarted the modern superhero era.
+---------
+
+# 'Friends' Got a Hollywood Star To Work for Free Thanks to a Clever Bet
+
+TV Features, Friends, Bruce Willis, Matthew Perry, The Whole Nine Yards
+
+Thu, 02 Jul 2026 04:06:15 GMT
+
+https://collider.com/friends-bruce-willis-matthew-perry-lost-bet-guest-star/
+
+Find out how Bruce Willis appeared on Friends for free after losing a major bet while filming The Whole Nine Yards.
+---------
+
+# 5 Years Later, Christopher Walken's 3-Part Crime Thriller Is Already Considered a Classic
+
+TV Features, The Outlaws, Christopher Walken, Series, Prime Video
+
+Thu, 02 Jul 2026 03:52:14 GMT
+
+https://collider.com/prime-video-the-outlaws-christopher-walken-modern-crime-classic/
+
+Five years later, The Outlaws has earned modern-classic status thanks to Christopher Walken, brilliant writing, and unforgettable characters.
+---------
+
+# 19 Years Later, ‘The Sopranos’ New Release Adds Another Layer to the Classic Series
+
+TV Features, The Sopranos, James Gandolfini, David Chase, HBO
+
+Thu, 02 Jul 2026 03:16:14 GMT
+
+https://collider.com/the-sopranos-4k-remaster-release-date-december-2026/
+
+The Sopranos' 4K restoration not only features new bonus material but also ensures that this classic series is preserved for future generations.
+---------
+
+# 10 Fantasy Movies That Nailed Their Endings Perfectly
+
+Movie, Fantasy, It's a Wonderful Life, The Lord of the Rings: The Return of the King, The Wizard of Oz
+
+Thu, 02 Jul 2026 03:03:15 GMT
+
+https://collider.com/fantasy-movie-perfect-endings/
+
+From animation sensations like Shrek 2 to international classics like The Seventh Seal, these fantasy gems know exactly how to end a story.
+---------
+
+# 10 Forgotten Sci-Fi Shows That Are Perfect From Start to Finish
+
+TV, Sci-Fi, Science Fiction, Babylon 5, Continuum
+
+Thu, 02 Jul 2026 03:01:14 GMT
+
+https://collider.com/forgotten-sci-fi-shows-perfect-start-to-finish/
+
+These forgotten sci-fi shows are practically flawless, including the game-changing space opera Babylon 5 and the underrated action gem Continuum.
+---------
+
+# Director of Fallout's Best Game Officially Praises Prime Video Series
+
+TV News, Prime Video, Fallout, Video Game, Ella Purnell
+
+Thu, 02 Jul 2026 01:30:13 GMT
+
+https://collider.com/prime-video-fallout-new-vegas-director-reaction/
+
+Fallout Season 3 is on the way, but before then, the director of Fallout: New Vegas has given their thoughts on the hit Prime Video series.
+---------
+
+# Pokémon Is Quietly Moving on From Ash Ketchum With New Streaming Favorite
+
+TV News, Pokémon Horizons, Pokémon, Netflix, Anime
+
+Thu, 02 Jul 2026 01:01:14 GMT
+
+https://collider.com/pokemon-horizons-the-series-season-3-streaming-success-netflix-july-2026/
+
+Pokémon Horizons Season 3, following a new protagonist, Liko, has become a streaming favorite on Netflix. Read on for all the details.
+---------
+
+# PlayStation Officially Announces Free Games for July 2026
+
+Gaming News, PlayStation 5, PlayStation Plus, PlayStation Network, Sony PlayStation 5
+
+Thu, 02 Jul 2026 00:30:13 GMT
+
+https://collider.com/playstation-plus-free-games-july-2026-black-desert/
+
+PlayStation has officially announced the three games available to PS Plus members starting today, amid the ongoing disc controversy.
+---------
+
+# 10 Most Powerful MCU Characters With No Superpowers
+
+Movie Lists, MCU
+
+Thu, 02 Jul 2026 02:00:31 GMT
+
+https://movieweb.com/mcu-characters-no-superpowers/
+
+Marvel characters don't necessarily need superpowers to save the day. Some of the franchise's best figures are regular people. Read on for more.
+---------
+
+# 8 Greatest Fantasy Movies of the Past 10 Years
+
+Movie Lists, The Green Knight, Wicked, The Shape of Water, Fantasy
+
+Thu, 02 Jul 2026 01:00:19 GMT
+
+https://movieweb.com/greatest-fantasy-movies-past-10-years/
+
+Fantasy is always changing, which means the greatest movies are always changing, but what's the best right now?
+---------
+
+# First 'Evil Dead Burn' Reactions Promise Most "Unhinged" Horror Entry Yet
+
+Movie News, Evil Dead Burn
+
+Thu, 02 Jul 2026 00:52:40 GMT
+
+https://movieweb.com/evil-dead-burn-first-reactions-reviews/
+
+Audience reactions to the new spin-off highlight the new movie's brutality.
+---------
+
 # Marvel Reveals Major Avengers Redesigns For New Fantasy Series
 
 Marvel Comics, The Avengers
