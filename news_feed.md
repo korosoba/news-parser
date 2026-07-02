@@ -1,3 +1,300 @@
+# Mashle's Official Season 3 Return Drops Brand-New Look & Release Window
+
+Anime, Mashle: Magic and Muscles, Anime Expo
+
+Thu, 02 Jul 2026 23:16:55 GMT
+
+https://screenrant.com/mashle-season-3-trailer-release-date-window/
+
+Mashle season 3 is almost here.
+---------
+
+# Steam's New Free RPG Is One For Final Fantasy Fans
+
+Gaming, Steam
+
+Thu, 02 Jul 2026 23:00:20 GMT
+
+https://screenrant.com/steam-free-rpg-final-fantasy-vibes/
+
+Explore mysteries, solve clever puzzles, and unwind with Oblivion Maiden, a free Steam adventure with glowing reviews.
+---------
+
+# Supergirl Officially Reinvents Green Lantern Lore With New Lantern Team
+
+DC Comics, Green Lantern
+
+Thu, 02 Jul 2026 23:00:20 GMT
+
+https://screenrant.com/new-green-lantern-lore-supergirl/
+
+DC assembles an unprecedented team of Lantern heroes from across the Emotional Spectrum and redefines how the Lantern Corps work together.
+---------
+
+# The X-Men's Biggest Two Villains Team Up Before Avengers: Doomsday
+
+Streaming TV, Masked Recs
+
+Thu, 02 Jul 2026 22:57:55 GMT
+
+https://screenrant.com/x-men-villains-marvel-tv-show-disney-plus-team-up/
+
+Marvel has released a TV show that brings together the X-Men's two biggest villains before Avengers: Doomsday, and their team-up is surprising.
+---------
+
+# Scott Eastwood's New WWII Thriller With Iconic War Movie Tradition Debuts To Underwhelming RT Audience Score
+
+Movies, Lucky Strike, Scott Eastwood
+
+Thu, 02 Jul 2026 22:46:35 GMT
+
+https://screenrant.com/lucky-strike-rotten-tomatoes-audience-score-debut/
+
+Scott Eastwood stars in a new World War II movie, which now boasts a lackluster audience score on Rotten Tomatoes days after its release.
+---------
+
+# Prime Video's New R-Rated Remake Based On Bestselling Trilogy Earns Solid Rotten Tomatoes Audience Score
+
+Movies, Masked Recs
+
+Thu, 02 Jul 2026 22:40:10 GMT
+
+https://screenrant.com/your-fault-london-rotten-tomatoes-audience-score-prime-video/
+
+Prime Video's new R-rated remake based on a bestselling trilogy earns a solid Rotten Tomatoes audience score after its release on June 17.
+---------
+
+# The Office Officially Returns In 2 Weeks With New Footage
+
+Classic TV, The Office
+
+Thu, 02 Jul 2026 22:30:21 GMT
+
+https://screenrant.com/the-office-superfan-digital-blu-ray-release-july-14/
+
+The Office is releasing over 25 hours of new Superfan footage, deleted scenes, and more on July 14 thanks to a digital and Blu-ray edition.
+---------
+
+# It's Officially The Month Of Tom Holland
+
+Movies, Tom Holland
+
+Thu, 02 Jul 2026 22:15:21 GMT
+
+https://screenrant.com/tom-holland-release-month-july-2026/
+
+Tom Holland is about to have the biggest month of the year in July, and his 2026 could get even bigger if one rumor turns out to be true.
+---------
+
+# DC Comics Has Rewritten Superboy's Origin Story Again (Yes, Really)
+
+Streaming TV, Masked Recs
+
+Thu, 02 Jul 2026 22:01:36 GMT
+
+https://screenrant.com/my-adventures-of-superman-season-3-superboy-origin-story/
+
+DC has debuted a new version of Superboy, and, as usual, the studio is messing with his comic book origin yet again, resulting in a surprising story.
+---------
+
+# No Crunchyroll Required: Jujutsu Kaisen Season 3 Is Releasing on Netflix Worldwide
+
+Anime, Jujutsu Kaisen, Netflix
+
+Thu, 02 Jul 2026 23:21:13 GMT
+
+https://www.cbr.com/jujutsu-kaisen-season-3-netflix-release-date-confirm/
+
+The latest addition to the Jujutsu Kaisen anime is officially making its way to Netflix, and fans barely have to wait for it.
+---------
+
+# 10 Anime So Bold They Effortlessly Cross The Line
+
+Anime, Devilman Crybaby, Goblin Slayer
+
+Thu, 02 Jul 2026 23:15:13 GMT
+
+https://www.cbr.com/bold-anime-that-cross-the-line/
+
+Controversy alone does not create lasting impact, and some anime stand out because they deliberately step into territory that many creators avoid.
+---------
+
+# 10 Hard Sci-Fi Anime That Are Perfect From Start to Finish
+
+Anime, Sci-Fi, Cowboy Bebop, Planetes
+
+Thu, 02 Jul 2026 23:15:13 GMT
+
+https://www.cbr.com/flawless-hard-sci-fi-anime-list/
+
+Hard sci-fi anime masterpieces like Planetes and Cowboy Bebop redefined the genre with unflinching realism and profound philosophical explorations.
+---------
+
+# Absolute Martian Manhunter's Finale Marks The End of An Era For DC's Absolute Universe
+
+Comics, DC Comics, Absolute Universe
+
+Thu, 02 Jul 2026 23:00:13 GMT
+
+https://www.cbr.com/absolute-martian-manhunter-marks-end-of-era-for-dc-universe/
+
+The end of the Absolute Universe's best comic book series has come, and DC Comics will never be the same.
+---------
+
+# NCIS' Surprise Gibbs Update Completes 1 of the Best Bait-&-Switches in CBS History
+
+TV, NCIS, NCIS: Origins
+
+Thu, 02 Jul 2026 23:00:13 GMT
+
+https://www.cbr.com/ncis-mark-harmon-leroy-jethro-gibbs-bait-and-switch-return/
+
+Mark Harmon is officially returning to NCIS as Leroy Jethro Gibbs in 2026, with CBS pulling off one of the best bait-and-switches in its history.
+---------
+
+# 5 Adventure Movies Better Than Indiana Jones
+
+Movies, Indiana Jones, Adventure
+
+Thu, 02 Jul 2026 23:00:13 GMT
+
+https://www.cbr.com/adventure-movies-better-than-indiana-jones-list/
+
+Indiana Jones inspired a generation of cinema, and these movies honor that legacy while bringing something fresh to the action-adventure genre.
+---------
+
+# NBC Officially Decides Fate of 2-Season Crime Procedural 2 Months After Finale
+
+TV, The Hunting Party
+
+Thu, 02 Jul 2026 22:32:08 GMT
+
+https://www.cbr.com/nbc-the-hunting-party-fate-revealed/
+
+The show's future is officially determined two months after the Season 2 finale.
+---------
+
+# Dragon Ball Super's New Gods of Destruction Are Stronger Than Zeno
+
+Anime, Dragon Ball Super, Dragon Ball
+
+Thu, 02 Jul 2026 22:18:13 GMT
+
+https://www.cbr.com/dragon-ball-xenoverse-3-time-gods-destruction-leak/
+
+Zeno was long known as the strongest canonical character in Dragon Ball Super, but that's about to change according to a new leak for Xenoverse 3.
+---------
+
+# Marvel Officially Casts Torchwood Star in Major X-Men Role
+
+TV, X-Men '97
+
+Thu, 02 Jul 2026 22:13:25 GMT
+
+https://www.cbr.com/x-men-97-season-2-psylocke-casting/
+
+An X-Men fan favorite returns with a new actor in the role.
+---------
+
+# Apple TV's Best Sci-Fi Series Officially Returns in Less Than 24 Hours
+
+TV News, Silo, Apple TV, Sci-Fi, Drama
+
+Thu, 02 Jul 2026 23:30:13 GMT
+
+https://collider.com/apple-tv-silo-season-3-release-date-july-3-2026/
+
+Apple TV's critically acclaimed sci-fi series returns for its highly anticipated third season tomorrow. Get all the details here.
+---------
+
+# 10 Best Netflix Original Movies (So Far), Ranked
+
+Movie, Netflix, The Irishman, The Power of the Dog, Roma
+
+Thu, 02 Jul 2026 23:12:13 GMT
+
+https://collider.com/best-netflix-original-movies-ranked/
+
+Oscar-winning dramas like Roma and underrated thrillers like The Stranger are among the best original efforts from the streaming giant Netflix.
+---------
+
+# Before Amazon Adapts 'Fourth Wing,' Read This Fantasy Masterpiece Instead
+
+Books and Comics, Books, Fantasy, Fourth Wing, Science Fiction
+
+Thu, 02 Jul 2026 23:07:14 GMT
+
+https://collider.com/fourth-wing-fantasy-series-replacement-read-the-will-of-the-many/
+
+Waiting for Amazon’s Fourth Wing? Read James Islington’s The Will of the Many, one of fantasy’s best recent academy novels.
+---------
+
+# It’s the End of an Era for Hulu’s 4-Part Anime Franchise
+
+TV News, Bleach: Thousand-Year Blood War, Bleach, Hulu, Disney+
+
+Thu, 02 Jul 2026 23:00:13 GMT
+
+https://collider.com/bleach-thousand-year-blood-war-final-season-4-release-date-hulu-july-25-2026/
+
+The highly anticipated final arc of the Bleach anime, Bleach: Thousand-Year Blood War Part 4: The Calamity, has finally set a premiere date.
+---------
+
+# 'From's Final Season Needs To Bring Back This Forgotten Horror Storyline
+
+TV Features, From, MGM, MGM TV, Horror
+
+Thu, 02 Jul 2026 22:58:13 GMT
+
+https://collider.com/from-tv-series-final-season-fatima-golem-storyline/
+
+One subplot in From Season 4 could be revived and integrated into the final season, offering new horror elements and character development.
+---------
+
+# All 8 Uncharted Games, Ranked
+
+Video Games, Video Game, Uncharted, Naughty Dog, Adventure
+
+Thu, 02 Jul 2026 22:55:14 GMT
+
+https://collider.com/uncharted-games-ranked/
+
+From Drake's Fortune, to Among Thieves, to A Thief's End, this is the definitive ranking of every Naughty Dog Uncharted video game.
+---------
+
+# 'The Odyssey' Performance Compared to Heath Ledger's Joker After Standing Ovation
+
+Movie News, The Odyssey, Christopher Nolan, Samantha Morton
+
+Thu, 02 Jul 2026 23:25:13 GMT
+
+https://movieweb.com/the-odyssey-samantha-morton-heath-ledger-performance/
+
+Samantha Morton's performance in Christopher Nolan's 'The Odyssey' compared to Heath Ledger's Joker after a standing ovation at a crew screening
+---------
+
+# 37 Years Later, James Cameron's "Banned" Sci-Fi Masterpiece Arrives on Streaming
+
+Movie News, The Abyss, Coming/Leaving Streaming, James Cameron
+
+Thu, 02 Jul 2026 23:00:18 GMT
+
+https://movieweb.com/james-cameron-the-abyss-streaming-july-2026/
+
+One more chance to stream one of the best sci-fi movies ever made, no question about it.
+---------
+
+# Quentin Tarantino's Perfect 100% RT-Rated Revenge Thriller Gets New Release
+
+Movie News, Kill Bill: The Whole Bloody Affair, Quentin Tarantino, Kill Bill, Kill Bill: Vol. 1, Kill Bill: Vol. 2
+
+Thu, 02 Jul 2026 22:58:31 GMT
+
+https://movieweb.com/kill-bill-whole-bloody-affair-blu-ray-release/
+
+'Kill Bill: The Whole Bloody Affair' is coming to 4K Ultra HD Blu-ray.
+---------
+
 # All 13 Netflix Harlan Coben TV Shows, Ranked
 
 Streaming TV
