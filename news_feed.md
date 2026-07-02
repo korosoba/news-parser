@@ -1,3 +1,388 @@
+# Nathan Fillion's New HBO Cop Show Is The Complete Opposite Of The Rookie
+
+Streaming TV, Masked Recs
+
+Thu, 02 Jul 2026 17:30:20 GMT
+
+https://screenrant.com/lanterns-nathan-fillion-role-opposite-of-the-rookie/
+
+Nathan Fillion is doing another police procedural on top of The Rookie — but his HBO superhero show Lanterns couldn't be more different.
+---------
+
+# Alan Ritchson’s R-Rated Jack Reacher Replacement Gets Explosive New Trailer
+
+Movies, Runner
+
+Thu, 02 Jul 2026 17:23:53 GMT
+
+https://screenrant.com/alan-ritchson-runner-movie-trailer-owen-wilson/
+
+Alan Ritchson is in a race against time to save a young girl's life in the explosive new trailer for Runner, his R-rated Jack Reacher replacement.
+---------
+
+# Prime Video's The Boys Is Not Over Yet & Its Best Character's 2027 Return Is The Perfect Next Chapter
+
+TV, The Boys, Vought Rising
+
+Thu, 02 Jul 2026 17:20:20 GMT
+
+https://screenrant.com/the-boys-prime-video-soldier-boy-best-character-vought-rising/
+
+The Boys season 5 killed many of the show's best characters, but the Prime Video superhero franchise returns in 2027 with its best player.
+---------
+
+# What This Year's Fangoria Chainsaw Award Nominations Say About Modern Horror
+
+Movies, Horror, fangoria, Obsession, Backrooms, Hokum, Dust Bunny, 28 Years Later: The Bone Temple
+
+Thu, 02 Jul 2026 17:20:20 GMT
+
+https://screenrant.com/fangoria-chainsaw-awards-horror-genre/
+
+The 2026 Fangoria Chainsaw Award nominations speak to the sheer variety and broad success that the horror genre has been enjoying lately.
+---------
+
+# House Of The Dragon Star's Netflix Post-Apocalyptic Show Is A Sci-Fi Masterpiece
+
+Streaming TV, Masked Recs
+
+Thu, 02 Jul 2026 17:00:21 GMT
+
+https://screenrant.com/sonoya-mizuno-terminator-zero-netflix-sci-fi-masterpiece/
+
+One of the main actors in House of the Dragon stars in a post-apocalyptic sci-fi sereis on Netflix that you need to watch if you missed it.
+---------
+
+# Ryan Coogler's X-Files Reboot Awaits Official Decision After Major Filming Update
+
+TV, The X-Files, Ryan Coogler
+
+Thu, 02 Jul 2026 16:59:38 GMT
+
+https://screenrant.com/ryan-coogler-x-files-pilot-filming-wrap-himesh-patel/
+
+The X-Files reboot from Ryan Coogler just reached a major milestone in the production process, as revealed by one of the two lead stars.
+---------
+
+# Ryan Gosling's R-Rated Netflix Action Movie Is On The Verge Of Losing A Major Record
+
+Classic Movies, The Gray Man, Ryan Gosling, Netflix
+
+Thu, 02 Jul 2026 16:45:21 GMT
+
+https://screenrant.com/ryan-gosling-the-gray-man-netflix-movie-record-lose/
+
+Four years ago, Ryan Gosling made a record-setting action movie for Netflix, but now it is on the verge of losing its historical achievement.
+---------
+
+# New Resident Evil Reboot Ignoring OG Game Characters Clarified By Director
+
+Movies, Resident Evil
+
+Thu, 02 Jul 2026 16:44:33 GMT
+
+https://screenrant.com/resident-evil-2026-reboot-no-game-characters-explained-zach-cregger/
+
+Director Zach Cregger explains why his upcoming Resident Evil reboot ignores characters from the original games like Leon Kennedy and Jill Valentine.
+---------
+
+# Millie Bobby Brown’s Enola Holmes 3 Sets New Franchise Rotten Tomatoes Audience Score Record
+
+Movies, Enola Holmes 3, Enola Holmes, Millie Bobby Brown, Netflix
+
+Thu, 02 Jul 2026 16:42:21 GMT
+
+https://screenrant.com/millie-bobby-brown-enola-holmes-3-rotten-tomatoes-audience-score/
+
+As Millie Bobby Brown's Enola Holmes 3 movie has officially been released on Netflix, the audience score for the film has debuted on Rotten Tomatoes.
+---------
+
+# Chicago PD Losing Major OG Star After 13 Season
+
+Network TV, Chicago P.D., One Chicago
+
+Thu, 02 Jul 2026 16:36:40 GMT
+
+https://screenrant.com/chicago-pd-laroyce-hawkins-kevin-atwater-exit/
+
+Ahead of Chicago PD season 14's premiere, Hank Voight's Intelligence Unit is losing a major original cast member, which is a blow to the team.
+---------
+
+# 44 Years Later, Kirk’s Smartest Wrath of Khan Line Remains the Best Quote in Sci-Fi
+
+Movies, Star Trek, Star Trek II: The Wrath of Kahn
+
+Thu, 02 Jul 2026 17:30:12 GMT
+
+https://www.cbr.com/star-trek-the-wrath-of-khan-kirk-smartest-quote/
+
+Kirk’s line about facing death in Star Trek II: The Wrath of Khan gives Spock’s most famous quote more significant meaning.
+---------
+
+# Hugh Jackman Hints He's Not Done With Wolverine Amid Avengers: Doomsday Rumors
+
+Movies, Wolverine, X-Men (Film)
+
+Thu, 02 Jul 2026 17:23:52 GMT
+
+https://www.cbr.com/hugh-jackman-not-done-playing-wolverine/
+
+Deadpool did say that Hugh Jackman would being doing this 'til he's 90.
+---------
+
+# 10 Open World Games With Flawless Worldbuilding
+
+Games, Video Games, The Legend of Zelda, Red Dead Redemption, Harry Potter
+
+Thu, 02 Jul 2026 17:16:13 GMT
+
+https://www.cbr.com/open-world-games-with-flawless-worldbuilding/
+
+Video games like Red Dead Redemption and Hogwarts Legacy allow players to fully immerse themselves in imaginative worlds that feel real.
+---------
+
+# Say Goodbye to Major Streaming Problem as New US Law Bans Controversial Ad Practice
+
+TV, Streaming
+
+Thu, 02 Jul 2026 17:03:33 GMT
+
+https://www.cbr.com/streaming-ad-volume-law-change-california/
+
+This has long been a common problem with streaming services.
+---------
+
+# Anime Expo Reveals Hololive x HYTE Limited-Edition PC Collection Featuring Ninomae Ina'Nis
+
+Anime, YouTube, merchandise
+
+Thu, 02 Jul 2026 17:00:13 GMT
+
+https://www.cbr.com/hololive-ninomae-inanis-hyte-pc-collection-anime-expo/
+
+Anime idol VTuber Ninomae Ina'nis is headlining the latest Hololive x HYTE limited-edition PC accessories debuting at Anime Expo this week.
+---------
+
+# New Mary Jane Comic From Marvel Gets Exclusive First Look and All-Star Creative Team
+
+Comics, Marvel, Spider-Man
+
+Thu, 02 Jul 2026 16:55:50 GMT
+
+https://www.cbr.com/mary-jane-face-it-tiger-1-first-look-revealed/
+
+Face it, Tiger...
+---------
+
+# Chicago P.D. Says Goodbye as Original Star Exits After 13 Seasons
+
+TV, Chicago P.D., Crime, Action
+
+Thu, 02 Jul 2026 16:45:50 GMT
+
+https://www.cbr.com/chicago-pd-laroyce-hawkins-exit/
+
+An original Chicago P.D. cast member is leaving the series.
+---------
+
+# Paramount's G.I. Joe Reboot Gets Filming Update From Danny McBride
+
+Movies, G.I. Joe
+
+Thu, 02 Jul 2026 16:44:24 GMT
+
+https://www.cbr.com/gi-joe-reboot-update-danny-mcbride/
+
+Danny McBride offers an extremely promising update on his G.I. Joe movie at Paramount.
+---------
+
+# X-Men '97 Replaces Professor X & Magneto With 1 of Marvel's Most Powerful Mutants
+
+TV, X-Men '97, X-Men, Marvel
+
+Thu, 02 Jul 2026 16:30:13 GMT
+
+https://www.cbr.com/x-men-97-mother-askani-replaces-professor-x-magneto/
+
+The first episode of X-Men '97's second season featured one of the strangest and mightiest mutant heroes from Marvel's X-Men comics.
+---------
+
+# Lucky: Annette Bening's Complex Crime Boss
+
+TV, Lucky
+
+Thu, 02 Jul 2026 16:15:12 GMT
+
+https://www.cbr.com/video/lucky-annette-bening-s-complex-crime-boss/
+
+Lucky star Annette Bening breaks down Priscilla, one of the Apple TV+ series' most morally complicated characters. She explains why the crime boss is driven by fear as much as power, how years of abuse shaped her worldview, and why she never saw Priscilla as a straightforward villain.Bening also discusses how Lucky flips familiar crime drama dynamics by putting layered women at the center of the story instead of traditional male archetypes. Plus, she shares why she avoids judging her characters, reflects on playing nuanced women throughout her career, and even answers the internet's biggest question: is Priscilla secretly a horse girl?
+---------
+
+# Marvel Officially Brings Kang the Conqueror Back Before ‘Avengers: Doomsday’
+
+TV News, X-Men '97, Avengers: Doomsday, Robert Downey Jr, Jonathan Majors
+
+Thu, 02 Jul 2026 17:30:13 GMT
+
+https://collider.com/marvel-kang-the-conqueror-return-x-men-97-season-2-rama-tut-variant/
+
+Only six months before Robert Downey Jr. takes the stage in Avengers: Doomsday, Marvel has brought back Kang the Conqueror in its latest project.
+---------
+
+# New Harry Potter Release Officially Launches for 25th Anniversary
+
+Gaming News, Harry Potter, Harry Potter and the Sorcerer's Stone, HBO Max, Fantasy
+
+Thu, 02 Jul 2026 17:25:10 GMT
+
+https://collider.com/harry-potter-25th-anniversary-hogwarts-mystery-event/
+
+Ahead of the HBO remake's debut, the Harry Potter film franchise is celebrating its 25th anniversary in a major way.
+---------
+
+# 10 Stephen King Books That Will Keep You Hooked From Start to Finish
+
+Books and Comics, Stephen King, Carrie, Misery, Books
+
+Thu, 02 Jul 2026 17:23:14 GMT
+
+https://collider.com/stephen-king-books-hooked-start-to-finish/
+
+Briskly paced Stephen King masterpieces like The Long Walk, Carrie, and Misery are guaranteed to hook you from beginning to end.
+---------
+
+# 10 Best Rock Songs of the 1990s
+
+Music Features, 1990s, Weezer, David Bowie, Radiohead
+
+Thu, 02 Jul 2026 17:22:14 GMT
+
+https://collider.com/best-1990s-rock-songs-ranked/
+
+The 1990s was a solid decade for the rock genre, with songs like "Smells Like Teen Spirit," "Say It Ain't So," and "Closer" being especially great.
+---------
+
+# 10 Classic Action Movies Nobody Wants to See a Remake Of
+
+Movie, Action, Die Hard, Dirty Harry, Enter the Dragon
+
+Thu, 02 Jul 2026 17:18:13 GMT
+
+https://collider.com/classic-action-movies-no-remakes/
+
+From Raiders of the Lost Ark to The Matrix, Die Hard to Dirty Harry, these action films should never be remade.
+---------
+
+# Ryan Reynolds' Return as Green Lantern Officially Addressed by DC Boss
+
+Movie News, James Gunn, Ryan Reynolds, DCU, Lanterns
+
+Thu, 02 Jul 2026 17:17:42 GMT
+
+https://collider.com/ryan-reynolds-green-lantern-return-dcu-casting-rumors-james-gunn/
+
+DC co-chair James Gunn addresses speculation that Ryan Reynolds was originally set to reprise his role as Hal Jordan in HBO Max's Lanterns.
+---------
+
+# Christopher Nolan's 'The Odyssey' Expands With New Release 2 Weeks Before Theater Debut
+
+Gaming News, The Odyssey, Christopher Nolan, Matt Damon, Oppenheimer
+
+Thu, 02 Jul 2026 17:15:14 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-surprise-new-release-roblox-video-game/
+
+Ahead of Christopher Nolan's highly anticipated film The Odyssey, which premieres soon, a new companion survival adventure game has been released.
+---------
+
+# Greg Daniels, Damon Lindelof, and Katie Dippold Join Collider’s First-Ever "Showrunners on Showrunning" SDCC Panel
+
+Exclusives, SDCC, Greg Daniels, Damon Lindelof, Katie Dippold
+
+Thu, 02 Jul 2026 17:10:52 GMT
+
+https://collider.com/sdcc-greg-daniels-damon-lindelof-katie-dippold-showrunners-on-showrunning-panel/
+
+Details on our upcoming Showrunners on Showrunning panel at SDCC 2026, with Greg Daniels, Damon Lindelof, and Katie Dippold.
+---------
+
+# Only 3 Movie Trilogies Are Better Than 'The Dark Knight'
+
+Movie, The Dark Knight Trilogy, The Lord of the Rings, Before Sunrise, Three Colors: Blue
+
+Thu, 02 Jul 2026 17:08:15 GMT
+
+https://collider.com/movie-trilogies-better-than-the-dark-knight/
+
+Christopher Nolan's Dark Knight Trilogy is certainly masterful, but film series like The Lord of the Rings and Three Colours are even greater.
+---------
+
+# Spider-Noir Officially Begins a New Era After Prime Video's Biggest Hit [Exclusive]
+
+Exclusives, Spider-Noir, Marvel, Spider-Man, Superhero
+
+Thu, 02 Jul 2026 17:00:13 GMT
+
+https://collider.com/marvel-contest-of-champions-trailer-spider-noir-web-of-corruption-event/
+
+A new trailer for Marvel Contest of Champions teases Spider-Noir's entrance into the game with an event full of intrigue and corruption.
+---------
+
+# Streaming's Most Underrated Crime Epic Ending With Two-Hour Finale After 4 Seasons
+
+TV News, Giancarlo Esposito, Godfather of Harlem, Forest Whitaker
+
+Thu, 02 Jul 2026 17:23:39 GMT
+
+https://movieweb.com/godfather-of-harlam-two-hour-finale-mgm/
+
+MGM+ has confirmed that 'Godfather of Harlem' will end with a two-hour finale instead of a traditional fifth season.
+---------
+
+# It's the End of an Era for Sydney Sweeney's Steamy R-Rated Smash
+
+TV News, Euphoria, HBO Max, Hot on Streaming, Sydney Sweeney
+
+Thu, 02 Jul 2026 17:00:19 GMT
+
+https://movieweb.com/euphoria-sydney-sweeney-rrated-streaming-hbo-july-2026/
+
+Sydney Sweeney's R-rated thriller 'Euphoria' has been knocked off the streaming charts on HBO Max.
+---------
+
+# Forget ‘The Wheel of Time,’ HBO’s Underrated Fantasy Series Is Even Better
+
+Features, Carnivale, The Wheel of Time, HBO Max
+
+Thu, 02 Jul 2026 17:00:19 GMT
+
+https://movieweb.com/carnivale-wheel-of-time-comparison/
+
+'The Wheel of Time' is an Amazon Prime Video fantasy series starring Rosamund Pike, and this underrated HBO show is even better.
+---------
+
+# Every New Movie and TV Show Coming to Peacock in July 2026
+
+Features, Peacock
+
+Thu, 02 Jul 2026 16:30:18 GMT
+
+https://movieweb.com/peacock-new-movie-tv-july-2026/
+
+Peacock is adding many classic titles to streaming, alongside a Colleen Hoover adaptation and an anticipated miniseries in July
+---------
+
+# 10 Great '80s Action Movies No One Talks About Anymore
+
+Movie Lists, 1980s, Action
+
+Thu, 02 Jul 2026 16:00:19 GMT
+
+https://movieweb.com/great-80s-action-movies-no-one-talks-about/
+
+These forgotten '80s action movie gems deserve more recognition.
+---------
+
 # Marvel’s Spider-Man 3 Official Update Isn’t What Fans Wanted
 
 Gaming, Marvel's Spider-Man 3, Triple-A Games
