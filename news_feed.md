@@ -1,3 +1,289 @@
+# Hugh Jackman Teases Marvel Future As His Wolverine Era May Not End Just Yet
+
+Movies, Wolverine, Marvel Cinematic Universe, X-Men, Hugh Jackman
+
+Thu, 02 Jul 2026 20:30:28 GMT
+
+https://screenrant.com/hugh-jackman-wolverine-era-marvel-future-response/
+
+X-Men veteran star Hugh Jackman opens up about his future as Wolverine in the Marvel Cinematic Universe, as the Logan actor may not be done yet.
+---------
+
+# 1 Year Later, Rumi's Best Line Is Still KPop Demon Hunters' Greatest Quote
+
+Movies, KPop Demon Hunters
+
+Thu, 02 Jul 2026 20:30:20 GMT
+
+https://screenrant.com/kpop-demon-hunters-rumi-best-line/
+
+KPop Demon Hunters is still celebrating its first anniversary, and a year later, Rumi's best line is still the movie's most powerful quote.
+---------
+
+# Kylo Ren's 5 Best Quotes In Star Wars: The Last Jedi
+
+Movies, Star Wars
+
+Thu, 02 Jul 2026 20:30:20 GMT
+
+https://screenrant.com/star-wars-last-jedi-kylo-ren-best-quotes/
+
+Kylo Ren has increased screen time in The Last Jedi, where he gives some of his most famous quotes in all of the sequel trilogy.
+---------
+
+# Wolverine's Bone Claws Officially Return To Marvel
+
+Streaming TV, Masked Recs
+
+Thu, 02 Jul 2026 20:15:23 GMT
+
+https://screenrant.com/x-men-97-season-2-wolverine-bone-claws/
+
+Marvel Studios officially brings back Wolverine's bone claws for the X-Men's new 2026 appearance, and Logan's design for his return makes sense.
+---------
+
+# Toy Story 5 Box Office Keeping Disney's 16-Year Streak Alive Is Now Two-Thirds Accomplished
+
+Movies, Toy Story 5, Toy Story, Box Office
+
+Thu, 02 Jul 2026 20:14:25 GMT
+
+https://screenrant.com/toy-story-5-box-office-606-million-global-milestone/
+
+After being in theaters for less than two weeks, Toy Story 5 continues to be a hit, and it’s now two-thirds of the way to reaching a huge milestone.
+---------
+
+# You Only Have 1 Week Left To Binge Bryan Cranston's Forgotten 3-Part Crime Drama On Netflix
+
+TV, Masked Recs
+
+Thu, 02 Jul 2026 20:02:21 GMT
+
+https://screenrant.com/bryan-cranston-sneaky-pete-crime-drama-leaving-netflix-july-9/
+
+Bryan Cranston's most underrated show mixed crime drama and dark comedy in a blend worthy of Breaking Bad, but the 3-part show leaves Netflix soon.
+---------
+
+# Disney's Live-Action Moana Remake Is Already A Streaming Hit
+
+Movies, Moana
+
+Thu, 02 Jul 2026 19:35:12 GMT
+
+https://screenrant.com/moana-live-action-remake-special-look-disney-plus-streaming-success-july-2026/
+
+Disney's live-action Moana remake is already a major streaming hit on Disney+ ahead of its much-anticipated theatrical release on July 10.
+---------
+
+# 7 Years Later, Netflix's 2-Part Crime Thriller Series Is Already Considered A Classic
+
+TV, Masked Recs
+
+Thu, 02 Jul 2026 19:30:18 GMT
+
+https://screenrant.com/7-years-later-netflixs-2-part-crime-thriller-series-is-already-considered-a-classic/
+
+Netflix has produced some great TV shows over the past decade and a half, but not many of them are a match for this modern-day crime classic.
+---------
+
+# PlayStation Ending Physical Discs Has Other Companies All Making The Same Joke
+
+Gaming, PlayStation, Triple-A Games, PC
+
+Thu, 02 Jul 2026 19:30:03 GMT
+
+https://screenrant.com/playstation-disc-production-ending-fan-company-reaction/
+
+PlayStation has done the unthinkable for its future game releases, causing countless players and companies to stand together for once.
+---------
+
+# Steven Spielberg Officially Adapting One Of The Biggest Online Horror Franchises Of All Time
+
+Movies, The Mandela Catalogue, Steven Spielberg
+
+Thu, 02 Jul 2026 19:22:55 GMT
+
+https://screenrant.com/mandela-catalogue-movie-adaptation-amazon-steven-spielberg/
+
+Steven Spielberg is officially attached to adapt one of the biggest online horror franchises of all time into a feature-length movie.
+---------
+
+# Studio Ghibli Returns Movie Reel Towel Collection With Kiki and Princess Mononoke to Official Store
+
+Anime, Princess Mononoke, Kiki's Delivery Service, Studio Ghibli, merchandise, Castle in the Sky, Porco Rosso
+
+Thu, 02 Jul 2026 20:32:15 GMT
+
+https://www.cbr.com/studio-ghibli-film-reel-towel-collection-return/
+
+Studio Ghibli's official store brings back a delightful mini-towel collection that highlights famous quotes and scenes from several iconic films.
+---------
+
+# 10 Most Perfect Anime of the Last 20 Years, Ranked
+
+Anime, Fullmetal Alchemist: Brotherhood, Frieren: Beyond Journey's End, Isekai
+
+Thu, 02 Jul 2026 20:15:12 GMT
+
+https://www.cbr.com/most-perfect-anime-last-20-years-ranked/
+
+Fullmetal Alchemist, Frieren, Odd Taxi and other elite anime that stand as the best series of the last 20 years.
+---------
+
+# MASK's Upcoming Transformers and G.I. Joe Crossover Revealed
+
+Comics, M.A.S.K., G.I. Joe, Transformers
+
+Thu, 02 Jul 2026 20:00:12 GMT
+
+https://www.cbr.com/mask-energon-universe-crossover-transformers-gi-joe-confirmed/
+
+The new MASK series has ties to both Transformers and G.I. Joe, and the creative team reveals what fans need to know before the crossover happens.
+---------
+
+# Clint Eastwood's Hang 'Em High is the Best Revenge Western
+
+Movies, Western, Hang ‘Em High, Clint Eastwood
+
+Thu, 02 Jul 2026 20:00:12 GMT
+
+https://www.cbr.com/clint-eastwood-hang-em-high-best-revenge-western/
+
+Breaking out as a Western icon in 1964, Clint Eastwood earned one of the best careers in film history, including one forgotten revenge gem.
+---------
+
+# Disney+’s 2-Season Superhero Revival With a 99% RT Is Officially a Streaming Hit After Return
+
+TV, X-Men '97, X-Men, Disney+
+
+Thu, 02 Jul 2026 19:23:24 GMT
+
+https://www.cbr.com/x-men-97-superhero-success-disney-plus-july-2026/
+
+Disney's critically acclaimed superhero revival is back and dominating the streaming charts.
+---------
+
+# It's The End Of An Era For PlayStation In 2027
+
+Games, PlayStation (Original), PlayStation 5, Video Games
+
+Thu, 02 Jul 2026 19:16:12 GMT
+
+https://www.cbr.com/playstation-end-of-an-era-2027/
+
+2027 marks a climactic year for the PlayStation brand, as the company moves away from physical media and moves fully into the digital space.
+---------
+
+# 7 Best Anime Coming to Netflix and Crunchyroll in July
+
+TV, Anime, Crunchyroll, Netflix
+
+Thu, 02 Jul 2026 20:05:13 GMT
+
+https://collider.com/best-anime-netflix-crunchyroll-july-2026/
+
+From the debut of Mebius Dust to new episodes of You and I Are Polar Opposites, these are the best anime coming to Netflix and Crunchyroll in July.
+---------
+
+# All 13 2026 Netflix Movies, Ranked
+
+Movie, Netflix, Peaky Blinders: The Immortal Man, Office Romance, People We Meet on Vacation
+
+Thu, 02 Jul 2026 19:52:15 GMT
+
+https://collider.com/every-2026-netflix-movie-ranked/
+
+From a Matt Damon-Ben Affleck reunion to Sally Field bringing pure emotion, Netflix's original movie list is giving viewers a reason to keep watching.
+---------
+
+# 10 Greatest Sci-Fi Books That Are Better the Second Time Around
+
+Books and Comics, Books, Science Fiction
+
+Thu, 02 Jul 2026 19:34:14 GMT
+
+https://collider.com/best-sci-fi-books-better-second-time/
+
+Sci-fi books like Solaris and Neuromancer greatly improve on a second reading, with aspects like worldbuilding and characterization growing stronger.
+---------
+
+# Michael Bay’s 5-Part Sci-Fi Series Makes a Smashing Netflix Debut
+
+TV News, The Last Ship, Eric Dane, Michael Bay, Netflix
+
+Thu, 02 Jul 2026 19:20:14 GMT
+
+https://collider.com/the-last-ship-streaming-success-netflix-july-2026/
+
+Michael Bay executive-produced the sci-fi series The Last Ship, which recently debuted on Netflix to great success. Find out more.
+---------
+
+# 'Harry Potter' Officially Begins Recasting Major Character Ahead of Season 2 Filming
+
+TV News, Harry Potter
+
+Thu, 02 Jul 2026 20:37:12 GMT
+
+https://movieweb.com/hbo-harry-potter-season-2-casting-call-ginny-weasley/
+
+HBO's 'Harry Potter' series is officially starting its casting call for one of the biggest characters in Season 2, which will be recast from Season 1.
+---------
+
+# Every New Movie and TV Show Coming to HBO Max in July 2026
+
+Features, HBO Max
+
+Thu, 02 Jul 2026 20:30:18 GMT
+
+https://movieweb.com/hbo-max-new-movie-tv-july-2026/
+
+The Big Bang Theory lives on, while one of the most talked-about movies of 2026 debuts on HBO Max this July.
+---------
+
+# 79 Years Later, Filmmakers Solve Murder Case From Scarlett Johansson Film
+
+Movie News, Black Dahlia, Scarlett Johansson
+
+Thu, 02 Jul 2026 20:01:49 GMT
+
+https://movieweb.com/elizabeth-short-muder-solved-black-dahlia-scarlett-johansson-film/
+
+79 years later, filmmakers finally solve the historical murder case from the Scarlett Johansson film.
+---------
+
+# 'Mortal Kombat 2' Suffers Box Office Fatality as It’s Beaten by New 97% Rated Action Epic
+
+Movie News, Mortal Kombat II, Blades of the Guardians, Action, Martial Arts
+
+Thu, 02 Jul 2026 20:00:18 GMT
+
+https://movieweb.com/blades-of-the-guardians-beats-mortal-kombat-2-box-office/
+
+Jet Li's 2026 martial arts fantasy epic just finished 'Mortal Kombat II' at the global box office.
+---------
+
+# Alan Ritchson's R-Rated 'Reacher' Replacement Action Thriller Debuts New Trailer
+
+Movie News, Runner, Alan Ritchson, Owen Wilson
+
+Thu, 02 Jul 2026 19:46:14 GMT
+
+https://movieweb.com/alan-ritchson-runner-trailer-action-thriller/
+
+The actor teams up with Owen Wilson for the new movie 'Runner.'
+---------
+
+# First 'G.I. Joe' Movie Plot Details Revealed as Reboot Gets Filming Update
+
+Movie News, G.I. Joe
+
+Thu, 02 Jul 2026 19:13:43 GMT
+
+https://movieweb.com/gi-joe-reboot-plot-details-filming-update/
+
+The writer of the upcoming movie has revealed exciting new details about the story and a potential production start date.
+---------
+
 # The Perfect Avengers: Doomsday Guide Is Releasing Soon To Catch Up Before December 2026
 
 Movies, Avengers: Doomsday, Marvel Cinematic Universe
