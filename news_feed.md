@@ -1,3 +1,234 @@
+# Marvel Reveals Major Avengers Redesigns For New Fantasy Series
+
+Marvel Comics, The Avengers
+
+Wed, 01 Jul 2026 23:56:23 GMT
+
+https://screenrant.com/marvel-new-series-realmguard-avengers/
+
+Marvel's new release reimagines the Avengers as fantasy characters, with major redesigns for iconic figures like Spider-Man and Doctor Doom.
+---------
+
+# Tom Hanks' New Movie Sets The Perfect Release Date
+
+Movies, Tom Hanks
+
+Wed, 01 Jul 2026 23:53:18 GMT
+
+https://screenrant.com/the-comebacker-tom-hanks-movie-july-2027-release-date/
+
+As Toy Story 5 continues to dominates the box office, a new Tom Hanks that reunites with a former director is set to release at the perfect time.
+---------
+
+# Glen Powell's 6-Part Hulu Series Makes For An Easy One-Night Binge
+
+TV, Masked Recs
+
+Wed, 01 Jul 2026 23:35:20 GMT
+
+https://screenrant.com/chad-powers-only-6-episodes-hulu-perfect-binge-watch/
+
+Glen Powell's divisive dark comedy show on Hulu took a daring approach by casting an actor famous for his charisma in a uniquely unpleasant role.
+---------
+
+# OG Supergirl Star Reviews The New DCU Movie After Disappointing Box Office Debut
+
+Movies, Supergirl, DC Universe, DC
+
+Wed, 01 Jul 2026 23:23:24 GMT
+
+https://screenrant.com/dcu-supergirl-milly-alcock-helen-slater-review/
+
+Helen Slater, the star of the original Supergirl movie released in 1984, shares her review of the DCU's new Supergirl film led by Milly Alcock.
+---------
+
+# Heroes Officially Enters A New Era As Netflix Brings It Back
+
+Streaming TV, Heroes
+
+Wed, 01 Jul 2026 23:15:20 GMT
+
+https://screenrant.com/heroes-netflix-us-return-july-2026/
+
+Heroes will become the newest show to gain a second life on Netflix, propelling it into the mainstream and increasing the chances of a reboot.
+---------
+
+# Street Fighter Movie Extends Franchise's 32-Year Rating Tradition Despite Mortal Kombat Rivalry
+
+Movies, Street Fighter
+
+Wed, 01 Jul 2026 23:07:15 GMT
+
+https://screenrant.com/street-fighter-2026-movie-mpa-rating-confirmed-tradition/
+
+The upcoming Street Fighter movie extends the franchise's 32-year rating tradition despite its direct competition with the Mortal Kombat movies.
+---------
+
+# 18 Years Later, It's Always Sunny Still Hasn't Topped Its Best Episode
+
+Streaming TV, It's Always Sunny in Philadelphia
+
+Wed, 01 Jul 2026 23:00:21 GMT
+
+https://screenrant.com/its-always-sunny-in-philadelphia-best-episode-nightman-cometh-not-topped/
+
+More than two decades later, It's Always Sunny in Philadelphia still hasn't topped its greatest episode: the season 4 finale, "The Nightman Cometh."
+---------
+
+# One Piece's Anime Just Completely Altered Its Own Lore (And There's No Turning Back)
+
+Anime, One Piece
+
+Wed, 01 Jul 2026 23:00:21 GMT
+
+https://screenrant.com/one-piece-anime-harley-mural-changed/
+
+Episode #1168 of One Piece finally clears up a major mystery surrounding the Harley and the mural, along with dropping a quiet yet huge hint.
+---------
+
+# Netflix's New Suspense Thriller Series Is A Streaming Hit In Less Than 1 Week
+
+TV, Masked Recs, Netflix
+
+Wed, 01 Jul 2026 23:00:21 GMT
+
+https://screenrant.com/notes-from-the-last-row-netflix-june-2026-charts-streaming-charts/
+
+After just days, Netflix's new thriller is continuing a hot streak for the platform by combining twisty developments with fraught dynamics.
+---------
+
+# DC Confirms Controversial Superman Origin Story Change Yet Again
+
+Movies, Superman, Supergirl, DC
+
+Wed, 01 Jul 2026 23:00:21 GMT
+
+https://screenrant.com/dc-supergirl-movie-superman-origin-story-change-confirmed/
+
+2025's Superman featured a major shift in his origin that had fans divided, and the DCU's latest release is doubling down on this decision.
+---------
+
+# It's Official, Supergirl Snaps an Exciting DCU Streak
+
+Movies, Supergirl, DCU
+
+Thu, 02 Jul 2026 00:01:14 GMT
+
+https://www.cbr.com/supergirl-breaks-dcu-post-credits-scene-streak/
+
+Supergirl is breaking with a tradition that has dominated not just the DCU but superhero movies and TV shows as a whole.
+---------
+
+# John Wick Creator Set to Turn Peter Dinklage Into the Next Big Action Star
+
+Movies, John Wick, peter dinklage
+
+Wed, 01 Jul 2026 23:33:35 GMT
+
+https://www.cbr.com/peter-dinklage-derek-kolstad-the-reckoner/
+
+The creator of John Wick teams up with the director of The Furious and the Russo Brothers to transform Peter Dinklage into the next big action hero.
+---------
+
+# Sailor Moon Creator Naoko Takeuchi Reveals New Usagi & Chibiusa Artwork
+
+Anime, Sailor Moon
+
+Wed, 01 Jul 2026 23:05:12 GMT
+
+https://www.cbr.com/sailor-moon-naoko-takeuchi-usagi-chibiusa-new-art-2026/
+
+Naoko Takeuchi unveils a beautiful new Sailor Moon illustration celebrating Usagi and Chibiusa's shared June 30 birthday.
+---------
+
+# Netflix's Forgotten 12-Year-Old Sci-Fi Series Is the 2010s' Darkest Cult Classic
+
+TV, The Last Ship, Netflix
+
+Wed, 01 Jul 2026 23:00:13 GMT
+
+https://www.cbr.com/netflix-dark-sci-fi-the-last-ship-cult-classic/
+
+Over five seasons, The Last Ship told one of the darkest stories ever brought to the screen, and it has now become a beloved cult classic on Netflix.
+---------
+
+# 5 Sci-Fi Books Every Star Wars Fan Should Read at Least Once
+
+Movies, Star Wars
+
+Wed, 01 Jul 2026 23:00:13 GMT
+
+https://www.cbr.com/sci-fi-books-perfect-for-star-wars-fans-list/
+
+Star Wars fans should put the Millennium Falcon on autopilot and read these sci-fi books at least one time.
+---------
+
+# ‘GTA 6’ Destroys Records With Alleged $1B First Hour Pre-Orders
+
+Gaming News, Grand Theft Auto V, Grand Theft Auto, Grand Theft Auto 5, PlayStation 5
+
+Thu, 02 Jul 2026 00:00:14 GMT
+
+https://collider.com/gta-6-first-hour-pre-orders-1-billion/
+
+GTA 6 may have generated up to $1 billion in pre-order revenue, putting Rockstar’s sequel well past 2026’s biggest movies.
+---------
+
+# Marvel’s Best Detective Is Officially Returning to Paramount's 10/10 Crime Thriller
+
+TV News, Dexter, Dexter: Resurrection, Krysten Ritter
+
+Wed, 01 Jul 2026 23:30:13 GMT
+
+https://collider.com/dexter-resurrection-season-2-krysten-ritter-returning/
+
+Paramount's hit series, Dexter: Resurrection, is reviving a killed-off character for its highly anticipated second season. Here's all to know.
+---------
+
+# This Award-Winning Series Is Still the Greatest American TV Show Ever Made
+
+TV Features, Seinfeld, Jerry Seinfeld, Larry David, Julia Louis-Dreyfus
+
+Wed, 01 Jul 2026 23:24:14 GMT
+
+https://collider.com/seinfeld-greatest-american-tv-show-ever-made/
+
+Seinfeld is considered the greatest American TV show of all time, one that broke sitcom tropes and left a lasting impact on pop culture.
+---------
+
+# 10 Most Ambitious Sci-Fi Movies of All Time, Ranked
+
+Movie, Megalopolis, Mad Max: Fury Road, Avatar, Sci-Fi
+
+Wed, 01 Jul 2026 23:11:13 GMT
+
+https://collider.com/most-ambitious-sci-fi-movies-ever-ranked/
+
+Avengers: Infinity War, Mad Max: Fury Road, Megalopolis, Avatar, and more make up our list of the most ambitious sci-fi movies of all time.
+---------
+
+# Apple TV’s 4-Part Sci-Fi Masterpiece Isn’t Backing Down on Streaming
+
+TV News, Silo, Apple TV, Sci-Fi, Thriller
+
+Wed, 01 Jul 2026 23:00:13 GMT
+
+https://collider.com/rebecca-ferguson-silo-streaming-success-apple-tv-july-2026/
+
+The Apple TV sci-fi thriller that critics are raving about has taken over the streaming charts. Get all the details here.
+---------
+
+# 'Barbarian' Director to Adapt Gen-Z Meme After Multi-Million-Dollar Deal
+
+Movie News, Zach Cregger, Horror
+
+Wed, 01 Jul 2026 23:23:24 GMT
+
+https://movieweb.com/zach-cregger-siren-head-movie-meme/
+
+Zach Cregger and Brian Duffield are writing Warner Bros.’ Siren Head movie, giving the viral creature project some serious horror credibility.
+---------
+
 # It's Officially The End Of An Era For Superman After Supergirl's Box Office Bomb
 
 Streaming TV, Masked Recs
