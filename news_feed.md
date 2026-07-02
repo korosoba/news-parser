@@ -1,3 +1,322 @@
+# All 13 Netflix Harlan Coben TV Shows, Ranked
+
+Streaming TV
+
+Thu, 02 Jul 2026 22:00:21 GMT
+
+https://screenrant.com/netflix-harlan-coben-shows-ranked/
+
+Thus far, 13 Harlan Coben novels have been adapted into streaming shows on Netflix. Here's how every single collaboration ranks, from worst to best.
+---------
+
+# Steam Officially Making Hit Zelda-Like RPG Completely Free
+
+Gaming, Steam
+
+Thu, 02 Jul 2026 22:00:20 GMT
+
+https://screenrant.com/steam-free-game-august-2026-moonlighter/
+
+Moonlighter, Steam's free game for August 2026, blends Zelda-style combat, roguelike dungeons, and shopkeeping into one charming pixel-art adventure.
+---------
+
+# Millie Bobby Brown Officially Makes Netflix History
+
+Movies, Masked Recs
+
+Thu, 02 Jul 2026 21:59:20 GMT
+
+https://screenrant.com/millie-bobby-brown-netflix-history-enola-holmes/
+
+Millie Bobby Brown's latest Netflix project is set to make history for the streaming service, becoming one of few franchises to hit a huge milestone.
+---------
+
+# Why Sam Claflin's Mycroft Isn't In Enola Holmes 3
+
+Movies, Enola Holmes 3
+
+Thu, 02 Jul 2026 21:50:20 GMT
+
+https://screenrant.com/enola-holmes-3-sam-claflin-mycroft-absence-explained/
+
+One major Holmes family member was notably absent from Enola Holmes 3, and unlike in the previous movie, this absence remains a mystery.
+---------
+
+# 24 Years Later, Gilmore Girls' Best Episode Is Still One Of Television's Greatest Hours
+
+Classic TV, Gilmore Girls
+
+Thu, 02 Jul 2026 21:30:20 GMT
+
+https://screenrant.com/gilmore-girls-best-episode-tv-greatest-hours/
+
+Over two decades later, the best Gilmore Girls episode still stands as one of the best episodes in TV history, and it's a joy to rewatch.
+---------
+
+# The Wait Is Over: The Apothecary Diaries Lands Movie Release Date With New Trailer
+
+Anime, The Apothecary Diaries
+
+Thu, 02 Jul 2026 21:26:34 GMT
+
+https://screenrant.com/apothecary-diaries-secret-treasure-movie-release-date-trailer/
+
+The Apothecary Diaries upcoming December movie reveals release date, official first trailer, and title! Here is everything you need to know.
+---------
+
+# Disney's New Epic Fantasy Series Officially Renewed For Season 2 With First Look & Release Date Confirmed
+
+TV, Dragon Striker
+
+Thu, 02 Jul 2026 21:22:34 GMT
+
+https://screenrant.com/disney-dragon-striker-season-2-renewal-release-date-confirmed/
+
+Disney just announced that its animated fantasy series has been renewed for a second season and offered a first look at the upcoming chapter.
+---------
+
+# 10 Best Female-Led Superhero Movies & TV Shows
+
+Movies, Superhero, Ranking
+
+Thu, 02 Jul 2026 21:20:21 GMT
+
+https://screenrant.com/best-female-led-superhero-movies-shows-ranked/
+
+Supergirl is the latest in a long line of superhero movies and TV shows featuring female leads and many of them have been fantastic and underrated.
+---------
+
+# Taylor Sheridan’s New Action Thriller With 1923 Star Gets First Look Ahead Of 2027 Release
+
+Movies, F.A.S.T.
+
+Thu, 02 Jul 2026 21:06:38 GMT
+
+https://screenrant.com/taylor-sheridan-fast-brandon-sklenar-set-photo/
+
+A first look has been released of Taylor Sheridan's new action thriller F.A.S.T., starring 1923's Brandon Sklenar, and set to release in April 2027.
+---------
+
+# Spider-Man: Brand New Day Is the Biggest MCU Movie Since Endgame
+
+Movies, Spider-Man: Brand New Day
+
+Thu, 02 Jul 2026 22:00:12 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-biggest-mcu-movie-since-endgame/
+
+Spider-Man: Brand New Day has become Marvel's biggest pre-release event in years, suggesting the MCU has finally recaptured major momentum.
+---------
+
+# In Just 1 Day, Prime Video's Legally Blonde Prequel Becomes No. 2 in the U.S.
+
+TV, Elle, Prime Video, Comedy
+
+Thu, 02 Jul 2026 21:49:44 GMT
+
+https://www.cbr.com/elle-comedy-success-prime-video-july-2026/
+
+A day after the Legally Blonde prequel series, Elle, premiered on Prime Video, the show has climbed the charts to No. 2 in the United States.
+---------
+
+# Sullivan's Crossing Is Netflix's No. 3 Show in the U.S. After Scott Patterson's Departure
+
+TV, Sullivan's Crossing, The CW, Netflix
+
+Thu, 02 Jul 2026 21:44:25 GMT
+
+https://www.cbr.com/sullivans-crossing-drasma-success-netflix-july-2026/
+
+The CW's Canadian import Sullivan's Crossing has climbed up the charts on Netflix to No. 3 with the fourth season after Scott Patterson's exit.
+---------
+
+# Best Nintendo Games From the 2000s
+
+Games, Nintendo, Nintendo 64, Video Games
+
+Thu, 02 Jul 2026 21:16:15 GMT
+
+https://www.cbr.com/best-nintendo-games-from-the-2000s/
+
+Nintendo has produced an incredible roster of first-party exclusives over the years, with the 2000s containing some of the company's greatest games.
+---------
+
+# The Crow Director Blasts Supergirl's Milly Alcock Critics: 'Diseased Media Culture'
+
+Movies, Supergirl
+
+Thu, 02 Jul 2026 21:15:53 GMT
+
+https://www.cbr.com/alex-proyas-defends-supergirl-milly-alcock/
+
+The Crow director Alex Proyas has a message for those putting Supergirl star Milly Alcock on blast.
+---------
+
+# Disney+ Officially Crowns Its New Top Movie Franchise With 2 Billion Hours Streamed
+
+Movies, Toy Story, Animation, Disney+
+
+Thu, 02 Jul 2026 21:13:32 GMT
+
+https://www.cbr.com/toy-story-top-disney-plus-franchise-2-billion-hours/
+
+There's a clear winner in the contest for top film franchise on Disney+.
+---------
+
+# 5 Essential R-Rated 80s Action Movies That Are Still Perfect Today
+
+Movies, Action
+
+Thu, 02 Jul 2026 21:00:13 GMT
+
+https://www.cbr.com/must-watch-r-rated-80s-action-movies-list/
+
+The 1980s delivered some of the greatest action cinema in history and these five R-rated masterpieces still hold up perfectly for modern audiences.
+---------
+
+# M. Night Shyamalan’s 'Creepy & Strange' 2-Part Sci-Fi Thriller Is the Definitive From Replacement
+
+TV, Wayward Pines, From, Sci-Fi, Thriller
+
+Thu, 02 Jul 2026 21:00:13 GMT
+
+https://www.cbr.com/m-night-shyamalan-wayward-pines-from-replacement/
+
+Before From comes to an end with its fifth and final season, Fox's version of the isolated town puzzle-box mystery deserves more recognition.
+---------
+
+# 'The Vampire Diaries' Stars Have Been Plotting Their Reunion for 10 Years [Exclusive]
+
+TV News, Nina Dobrev, The Vampire Diaries, The Get Out, Paul Wesley
+
+Thu, 02 Jul 2026 22:00:13 GMT
+
+https://collider.com/the-vampire-diaries-reunion-nina-dobrev-paul-wesley-new-mystery-series/
+
+Nina Dobrev revealed how her reunion with The Vampire Diaries co-star Paul Wesley in her new show, You Deserve to Know, was years in the making.
+---------
+
+# 8 Greatest Animated Shows Even Diehards Haven't Seen
+
+TV, Animation, Erased, Wakfu, The Midnight Gospel
+
+Thu, 02 Jul 2026 21:52:14 GMT
+
+https://collider.com/best-animated-shows-diehards-missed/
+
+Even if you consider yourself a diehard animation fan, you probably missed series like The Midnight Gospel, Wakfu, and Jentry Chau vs. the Underworld.
+---------
+
+# This R-Rated Satanic Thriller Has One of the Most Disturbing Endings Ever — and It’s Free on YouTube
+
+Movie Features, Angel Heart, Mickey Rourke, Horror, YouTube
+
+Thu, 02 Jul 2026 21:46:13 GMT
+
+https://collider.com/angel-heart-ending-explained-satanic-twist-mickey-rourke/
+
+Alan Parker’s Angel Heart shocked audiences with a Satanic twist, Mickey Rourke’s doomed detective, and a disturbing ending still haunting fans.
+---------
+
+# 'The Bear' Is Officially Over, but This Character Needs Their Own Spin-Off
+
+TV Features, The Bear, Jeremy Allen White, Ayo Edebiri, Ebon Moss-Bachrach
+
+Thu, 02 Jul 2026 21:27:13 GMT
+
+https://collider.com/the-bear-season-5-marcus-spin-off/
+
+After The Bear's finale, a potential Marcus spin-off could delve into the character's growth, family, and finding his own identity in the kitchen.
+---------
+
+# 10 Action Movies That Are Intense From Start to Finish
+
+Movie, Action, 300, Baby Driver, Speed
+
+Thu, 02 Jul 2026 21:19:13 GMT
+
+https://collider.com/perfect-action-movies-intense-start-to-finish/
+
+From The Fugitive, to Mad Max: Fury Road, to Taken, these action films bring the intensity from beginning to the end.
+---------
+
+# Haley Kiyoko’s Highly Anticipated Coming of Age Romance Is Quickly Becoming a Fan Favorite
+
+Movie Features, Coming of Age, Buzzfeed Studios, Focus Features, Romance
+
+Thu, 02 Jul 2026 21:09:13 GMT
+
+https://collider.com/girls-like-girls-newest-coming-of-age-rom-com/
+
+Haley Kiyoko's iconic "Girls Like Girls" music video has made it to the big screen in her debut film, starring Myra Malloy and Maya Da Costa.
+---------
+
+# 10 Perfect Sci-Fi Movies Based on Books
+
+Movie, Sci-Fi, Books, The Iron Giant, Stalker
+
+Thu, 02 Jul 2026 20:57:13 GMT
+
+https://collider.com/perfect-sci-fi-movies-based-on-books-ranked/
+
+Great sci-fi movies like Project Hail Mary, Stalker, and The Iron Giant were perfectly adapted from excellent books.
+---------
+
+# Christopher Nolan Officially Reveals the Key Role ‘The Dark Knight’ Played in ‘The Odyssey’
+
+Exclusives, The Odyssey, Christopher Nolan, IMAX, Matt Damon
+
+Thu, 02 Jul 2026 20:41:24 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-imax-the-dark-knight-connection/
+
+He also reflects on his collaboration with IMAX's David Keighley, who safeguarded IMAX and film stock, keeping film production and lenses thriving.
+---------
+
+# Karl Urban's Forgotten Action Thriller Officially Lands on Streaming
+
+Movie News, RED, Peacock, Coming/Leaving Streaming, Action
+
+Thu, 02 Jul 2026 22:00:18 GMT
+
+https://movieweb.com/red-action-streaming-peacock-july-2026/
+
+Karl Urban and Bruce Willis's forgotten 2010 action thriller 'RED' is now streaming on Peacock.
+---------
+
+# 5 Binge-Worthy Netflix Thrillers You Won’t Want To Miss This Weekend
+
+TV Lists, Netflix
+
+Thu, 02 Jul 2026 22:00:18 GMT
+
+https://movieweb.com/netflix-thrillers-binge-watch/
+
+Netflix has released some of the most popular thriller series in recent years, and these five picks are perfect for a weekend binge-watch.
+---------
+
+# The Definitive '80s Cyberpunk Action Thriller Returns This Fall With New Release
+
+Movie News, Akira, Katsuhiro Otomo
+
+Thu, 02 Jul 2026 21:56:35 GMT
+
+https://movieweb.com/akira-theater-release-4k-restoration/
+
+Nearly four decades after its debut, 'Akira' is returning to theaters.
+---------
+
+# Harlan Coben's Greatest Netflix Miniseries Is a Masterpiece Crime Thriller
+
+Features, Netflix, The Innocent, Harlan Coben
+
+Thu, 02 Jul 2026 21:00:19 GMT
+
+https://movieweb.com/netflix-harlan-coben-the-innocent-binge-watch/
+
+Harlan Coben has several Netflix thriller miniseries with famous stars and compelling storylines, but this one is the best.
+---------
+
 # Hugh Jackman Teases Marvel Future As His Wolverine Era May Not End Just Yet
 
 Movies, Wolverine, Marvel Cinematic Universe, X-Men, Hugh Jackman
