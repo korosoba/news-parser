@@ -1,3 +1,399 @@
+# The Perfect Avengers: Doomsday Guide Is Releasing Soon To Catch Up Before December 2026
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Thu, 02 Jul 2026 19:04:32 GMT
+
+https://screenrant.com/avengers-doomsday-visual-dictionary-book-release-date-details/
+
+Before Avengers: Doomsday is released in December, a new guide will come out allowing MCU fans to catch up on the Multiverse Saga's key events.
+---------
+
+# Fallout 4 Is Getting Brand-New Content In 2026
+
+Gaming, Fallout 4, Fallout, PC
+
+Thu, 02 Jul 2026 19:00:22 GMT
+
+https://screenrant.com/fallout-4-creation-club-new-companions/
+
+While there's no telling how long we'll be waiting for Fallout 5, turns out there's brand-new Fallout 4 content available this year.
+---------
+
+# Naruto's Successor Series Officially Rewrites The Rasengan
+
+Streaming TV, Boruto: Two Blue Vortex, Naruto
+
+Thu, 02 Jul 2026 19:00:22 GMT
+
+https://screenrant.com/naruto-sequel-rewrites-the-rasengan-two-blue-vortex/
+
+A new Naruto anime is on the way, and as the power scale is driven upward, a brand new Rasengan emerges to cause absolute devastation.
+---------
+
+# Dragon Ball's Objective Weakest Z-Fighter Was The First To Beat Vegeta
+
+Anime, Dragon Ball, Dragon Ball Z
+
+Thu, 02 Jul 2026 19:00:22 GMT
+
+https://screenrant.com/vegeta-first-dragon-ball-loss-yajirobe/
+
+Discover why Yajirobe, Dragon Ball's seemingly weakest fighter, deserves more respect for being the first to take down Vegeta in battle.
+---------
+
+# Enola Holmes 3 Interviews with Millie Bobby Brown, Louis Partridge, Himesh Patel & Phillip Barantini
+
+Videos, Enola Holmes 3, Enola Holmes, Millie Bobby Brown
+
+Thu, 02 Jul 2026 18:44:30 GMT
+
+https://screenrant.com/video/enola-holmes-3-millie-bobby-brown-louis-partridge-himesh-patel-phillip-barantini/
+
+Enola Holmes 3 director Phillip Barantini and stars Millie Bobby Brown, Louis Partridge, and Himesh Patel discuss the darker tone of the third film, the future of Sherlock and Watson's dynamic, and Brown's first time directing a scene for the franchise.
+---------
+
+# Spider-Man: Brand New Day: 5 Things We Need To See From Hulk's Return
+
+Movies, Spider-Man: Brand New Day
+
+Thu, 02 Jul 2026 18:30:19 GMT
+
+https://screenrant.com/spider-man-brand-new-day-hulk-return-wish-list/
+
+Mark Ruffalo is officially making his MCU return as the Hulk in Spider-Man: Brand New Day, and this comeback needs a few things to succeed.
+---------
+
+# The Wait Is Almost Over: Netflix Is Finally Getting Jujutsu Kaisen Season 3
+
+Anime, Jujutsu Kaisen, Netflix
+
+Thu, 02 Jul 2026 18:30:19 GMT
+
+https://screenrant.com/jujutsu-kaisen-season-3-netflix-streaming-date/
+
+Following the events of the Shibuya Incident, the highly anticipated Culling Game arc is officially joining Netflix's global library this Summer.
+---------
+
+# Marvel Confirms Punisher Is Officially Getting His Own Bullseye
+
+Marvel Comics, punisher, The Punisher
+
+Thu, 02 Jul 2026 18:22:25 GMT
+
+https://screenrant.com/punisher-new-villain-like-bullseye-collateral-damage/
+
+As Jigsaw's arc concludes in Benjamin Percy's ongoing Punisher comic book run, a new villain finally has Frank Castle in their crosshairs.
+---------
+
+# Paramount’s New G.I. Joe Reboot Gets Major Plot & Filming Update Details From Writer
+
+Movies, G.I. Joe
+
+Thu, 02 Jul 2026 18:18:47 GMT
+
+https://screenrant.com/gi-joe-reboot-movie-plot-details-filming-update-danny-mcbride/
+
+Paramount is rebooting its G.I. Joe franchise, and writer Danny McBride is teasing what fans can expect from the upcoming film, including the genre.
+---------
+
+# Russell Crowe’s Intense World War II Thriller Quickly Climbs Streaming Charts After Changing Platforms
+
+Movies, Masked Recs
+
+Thu, 02 Jul 2026 18:01:32 GMT
+
+https://screenrant.com/russell-crowe-nuremberg-prime-video-streaming-success-july-2026/
+
+Russell Crowe's new intense World War II thriller has become a global streaming sensation, with the movie quickly climbing streaming charts.
+---------
+
+# The 5 Greatest Action Comedies Of the Last 30 Years, Ranked
+
+Movies, Action
+
+Thu, 02 Jul 2026 19:01:13 GMT
+
+https://www.cbr.com/best-action-comedies-last-30-years-ranked-list/
+
+Action comedies have been the backbone of the genre for a long time, but the past 30 years have produced some true masterpieces.
+---------
+
+# Steven Spielberg Secures Rights to Viral YouTube Horror Hit After Backrooms Success
+
+Movies, steven spielberg
+
+Thu, 02 Jul 2026 18:47:44 GMT
+
+https://www.cbr.com/steven-spielberg-the-mandela-catalogue-movie/
+
+Steven Spielberg lands the feature film rights to a viral sensation after a very competitive bidding war.
+---------
+
+# Apple TV's 'Unfilmable' Cyberpunk Adaptation Gets New Teaser Straight From the Book
+
+TV, Neuromancer, Sci-Fi, Apple TV
+
+Thu, 02 Jul 2026 18:39:51 GMT
+
+https://www.cbr.com/neuromancer-apple-tv-show-teaser-anniversary/
+
+Apple TV just gave cyberpunk fans a very good reason to be excited.
+---------
+
+# 8 Spy Movies Better Than James Bond
+
+Movies, James Bond
+
+Thu, 02 Jul 2026 18:30:12 GMT
+
+https://www.cbr.com/perfect-spy-movies-better-than-james-bond-list/
+
+James Bond is a legendary secret agent, but other spy movies have surpassed him over the decades.
+---------
+
+# Stranger Things Star Confirms They Auditioned With Hugh Jackman for Major X-Men Role
+
+Movies, Logan, X-Men (Film)
+
+Thu, 02 Jul 2026 18:20:03 GMT
+
+https://www.cbr.com/millie-bobby-brown-confirms-failed-logan-audition/
+
+The X-Men universe could have looked a little different had this casting happened.
+---------
+
+# Minions & Monsters: Pierre Coffin's Secret Easter Eggs
+
+Movies, Minions & Monsters
+
+Thu, 02 Jul 2026 18:15:14 GMT
+
+https://www.cbr.com/video/minions-monsters-pierre-coffin-s-secret-easter-eggs/
+
+Minions & Monsters director and longtime Minions voice actor Pierre Coffin breaks down the comedy, hidden movie references, and surprising creative choices behind the latest adventure.
+---------
+
+# Only 3 JJK Characters Can Defeat Satoru Gojo
+
+Anime, Jujutsu Kaisen, Shonen, shonen anime
+
+Thu, 02 Jul 2026 18:15:14 GMT
+
+https://www.cbr.com/jjk-characters-who-can-defeat-gojo/
+
+Satoru Gojo may be the strongest sorcerer in modern jujutsu society, but there are three characters who could take him out.
+---------
+
+# Attack on Titan 3 Reveals New Winter Release for PS5, Xbox Series X/S and PC
+
+Anime, Attack on Titan, Koei Tecmo
+
+Thu, 02 Jul 2026 18:09:43 GMT
+
+https://www.cbr.com/attack-on-titan-3-trailer-winter-release-confirm/
+
+The anime giant returns, and the new trailer teases MAPPA's gorgeous animation along with a surprisingly early release window.
+---------
+
+# Its Officially the End of an Era for Gilmore Girls
+
+TV, Gilmore Girls
+
+Thu, 02 Jul 2026 18:04:29 GMT
+
+https://www.cbr.com/gilmore-girls-leaves-netflix-for-prime-video/
+
+It's the end of an era for fans of Gilmore Girls.
+---------
+
+# HBO Officially Finds Its True Detective Replacement With a New 6-Part Streaming Hit
+
+TV, Half Man, HBO Max, Drama
+
+Thu, 02 Jul 2026 18:00:12 GMT
+
+https://www.cbr.com/show-like-true-detective-half-man-hbo-max/
+
+Created by and starring Baby Reindeer's Richard Gadd, this HBO 6-part streaming hit trades murder mysteries for something far more unsettling.
+---------
+
+# Cult ’90s Sci-Fi Series Officially Reveals New Villain Ahead of August Return [Exclusive]
+
+TV News, Biker Mice From Mars, Biker Mice from Mars, Comic Book, Action Figures
+
+Thu, 02 Jul 2026 19:01:14 GMT
+
+https://collider.com/biker-mice-from-mars-scorch-comic-book-action-figure-image/
+
+Get an exclusive first look at Scorch, the new comics-original Biker Mice From Mars villain joining Nacelle’s action figure line.
+---------
+
+# Hulu’s 5-Part Masterpiece Stays Locked in as a Major Streaming Powerhouse
+
+TV News, The Bear, Hulu, Disney+, Jeremy Allen White
+
+Thu, 02 Jul 2026 19:01:14 GMT
+
+https://collider.com/the-bear-final-season-5-streaming-success-hulu-disney-plus-july-2026/
+
+The Bear concludes its final season on top of two streamers, with fans praising the show's character development and strong performances.
+---------
+
+# Stephen King's Sci-Fi Horror Hit Shares Its Secret Weapon With This Underseen 3-Part Thriller
+
+TV Features, Stephen King, The Institute, Mr. Mercedes, Brendan Gleeson
+
+Thu, 02 Jul 2026 18:58:43 GMT
+
+https://collider.com/stephen-king-the-institute-mr-mercedes-jack-bender-connection/
+
+The Institute Season 2 renewal makes now the perfect time to watch Mr. Mercedes, Jack Bender’s underrated Stephen King thriller.
+---------
+
+# 'Moana 3' Officially in the Works Ahead of Live-Action Remake
+
+Movie News, Moana, Moana 2, Dwayne Johnson
+
+Thu, 02 Jul 2026 18:38:21 GMT
+
+https://collider.com/moana-3-confirmed-dwayne-johnson-returning/
+
+With the live-action remake on the horizon, Dwayne Johnson has officially confirmed that Moana 3 is now in development. Read on for more.
+---------
+
+# Obsession: Playing Bear Got Under His Skin | Set Stories
+
+Movie, Obsession
+
+Thu, 02 Jul 2026 18:15:31 GMT
+
+https://collider.com/video/obsession-playing-bear-got-under-his-skin-set-stories/
+
+Michael Johnston takes us behind the scenes of Curry Barker's psychological horror film Obsession, breaking down how he approached Bear's unsettling emotional journey, the demanding long-take performances, and why the script immediately stood out to him.
+---------
+
+# Josh Brolin Nearly Quit Ridley Scott’s New Sci-Fi Movie After 1 Day
+
+Movie News, Josh Brolin, Ridley Scott, Jacob Elordi, The Dog Stars
+
+Thu, 02 Jul 2026 18:15:14 GMT
+
+https://collider.com/josh-brolin-nearly-quit-ridley-scott-sci-fi-movie-dog-stars/
+
+Josh Brolin admitted that he wasn't immediately a fan of Ridley Scott's new directing style on The Dog Stars, and wanted to quit the movie after a day
+---------
+
+# 10 Greatest American Drama Shows of All Time
+
+TV, Drama, Game Of Thrones, Breaking Bad, The Sopranos
+
+Thu, 02 Jul 2026 18:09:13 GMT
+
+https://collider.com/best-american-drama-shows-all-time-ranked/
+
+Game of Thrones, Twin Peaks, The Sopranos, and The West Wing are among the greatest American drama shows ever made, but which series is the best?
+---------
+
+# The Best Sci-Fi Series of the 2000s Has Officially Arrived on Netflix
+
+TV News, Heroes, Heroes Reborn, Sci-Fi, NBC
+
+Thu, 02 Jul 2026 18:01:13 GMT
+
+https://collider.com/heroes-netflix-streaming-july-2026/
+
+Heroes has returned to Netflix with all four seasons, giving viewers another chance to save the cheerleader and save the world.
+---------
+
+# Hugh Jackman All But Confirms Wolverine's Return Despite Marvel's X-Men Reboot
+
+Movie News, Hugh Jackman, Deadpool & Wolverine, Avengers: Secret Wars, X-Men
+
+Thu, 02 Jul 2026 17:45:53 GMT
+
+https://collider.com/hugh-jackman-wolverine-return-avengers-secret-wars/
+
+Hugh Jackman has all but assured he'll return as Wolverine in the MCU as rumors swirl about a potential role in Avengers: Secret Wars.
+---------
+
+# The Lord of the Rings Gets Official New Release This Year
+
+Movie News, The Lord of the Rings, The Lord of the Rings: The Rings of Power, The Fellowship of the Ring, The Lord of the Rings: The Hunt for Gollum
+
+Thu, 02 Jul 2026 17:45:12 GMT
+
+https://collider.com/the-lord-of-the-rings-new-release-cave-troll-of-moria-figure/
+
+The Lord of the Rings fans are getting a brand-new release inspired by The Fellowship of the Ring, which launches this November.
+---------
+
+# Original 'Lord of the Rings' Icon Gives Return Update for Upcoming Sequel
+
+Movie News, The Lord of the Rings, Elijah Wood, Stephen Colbert
+
+Thu, 02 Jul 2026 18:53:24 GMT
+
+https://movieweb.com/lord-of-the-rings-sequel-elijah-wood-return/
+
+Elijah Wood confirms there is a plan in place for a return, but it isn't yet official.
+---------
+
+# Every New Movie and TV Show Coming to Paramount+ in July 2026
+
+Features, Paramount Plus
+
+Thu, 02 Jul 2026 18:30:18 GMT
+
+https://movieweb.com/paramount-new-movie-tv-july-2026/
+
+Star Trek, a new hit thriller, and a collection celebrating America's 250th anniversary lead the line-up for Paramount in July.
+---------
+
+# Mel Gibson's Long-Awaited Sequel Gets Exclusive Sneak Peek as Original Returns to Theaters
+
+Movie News, The Resurrection of the Christ Part 1, The Passion of the Christ
+
+Thu, 02 Jul 2026 18:26:16 GMT
+
+https://movieweb.com/passion-of-the-christ-rerelease-resurrection-of-the-christ-sneak-peek/
+
+One of Mel Gibson's controversial epics is getting a limited theatrical re-release, and it comes with a sneak peek into his latest passion project.
+---------
+
+# 10 Funniest Far Side Comics About Ducks
+
+Movie Lists, The Far Side
+
+Thu, 02 Jul 2026 18:00:17 GMT
+
+https://movieweb.com/far-side-best-ducks/
+
+Gary Larson loved all kinds of animals, and while cows and dogs often stole the spotlight, there are plenty of great Far Side comics about ducks.
+---------
+
+# Dwayne Johnson Finally Confirms Sequel to One of His Biggest Franchises
+
+Movie News, Moana, Dwayne Johnson
+
+Thu, 02 Jul 2026 17:54:58 GMT
+
+https://movieweb.com/moana-3-dwayne-johnson-confirmed/
+
+Dwayne "The Rock" Johnson confirmed plans to expand one of his most popular franchises ever with a new movie.
+---------
+
+# Josh Brolin Almost Quit Ridley Scott's 'The Dog Stars' After One Day on Set
+
+Movie News, The Dog Stars, Josh Brolin, Ridley Scott
+
+Thu, 02 Jul 2026 17:52:09 GMT
+
+https://movieweb.com/the-dog-stars-josh-brolin-almost-quit/
+
+Josh Brolin has revealed he almost quit 'The Dog Stars' on the first day of filming because he found Ridley Scott's unconventional methods unsettling.
+---------
+
 # Nathan Fillion's New HBO Cop Show Is The Complete Opposite Of The Rookie
 
 Streaming TV, Masked Recs
