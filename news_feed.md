@@ -1,3 +1,377 @@
+# Marvel’s Spider-Man 3 Official Update Isn’t What Fans Wanted
+
+Gaming, Marvel's Spider-Man 3, Triple-A Games
+
+Thu, 02 Jul 2026 15:34:41 GMT
+
+https://screenrant.com/marvels-spider-man-3-digital-future-playstation/
+
+Marvel's Spider-Man 3 will mark the beginning of a sad era for Insomniac that will leave many gamers with incomplete collections for the franchise.
+---------
+
+# 30 Years Later, Independence Day Is Still The Blueprint Every Alien Invasion Blockbuster Copies
+
+Classic Movies, Independence Day
+
+Thu, 02 Jul 2026 15:30:20 GMT
+
+https://screenrant.com/independence-day-30-year-anniversary-alien-invasion-movies/
+
+It has been 30 years since Independence Day hit theaters, a movie that is not only the best 4th of July film but also the best alien invasion movie.
+---------
+
+# Brad Pitt's Highest-Grossing Film Ever Gets Encouraging Franchise Return Update From Jerry Bruckheimer
+
+Movies, F1, Brad Pitt
+
+Thu, 02 Jul 2026 15:20:44 GMT
+
+https://screenrant.com/brad-pitt-f1-sequel-script-update-jerry-bruckheimer/
+
+Brad Pitt set a new box office high in 2025 for his long and storied career, and work will soon begin on a sequel to the critically acclaimed film.
+---------
+
+# Even More Legendary Studios Reportedly On Xbox's Chopping Block
+
+Gaming, Xbox, Triple-A Games, PC
+
+Thu, 02 Jul 2026 15:14:35 GMT
+
+https://screenrant.com/xbox-studio-closure-risk-obsidian-report/
+
+The news about Xbox just keeps getting worse, although one legendary studio is now reportedly safe from an imminent risk of being shut down.
+---------
+
+# Avatar: The Last Airbender’s Controversial New Movie Seemingly Releasing 3 Months Early
+
+Movies, The Legend of Aang: The Last Airbender
+
+Thu, 02 Jul 2026 15:04:24 GMT
+
+https://screenrant.com/avatar-aang-the-last-airbender-movie-earlier-release-report/
+
+A massive update on The Legend of Aang: The Last Airbender suggests that the upcoming animated movie might be released way before expected.
+---------
+
+# Your PlayStation 6 Games Already Have An Expiration Date
+
+Gaming, PlayStation 6
+
+Thu, 02 Jul 2026 15:01:56 GMT
+
+https://screenrant.com/playstation-6-games-expiration-date/
+
+The PlayStation 6 hasn't even been formally revealed yet, but recent industry acts have proven that it already has an expiration date lined up.
+---------
+
+# Diablo 4: Mephisto Officially Releases April 2027
+
+Gaming, Diablo 4, Diablo IV: Lord of Hatred, Diablo IV: Vessel of Hatred, Diablo, PC
+
+Thu, 02 Jul 2026 15:00:20 GMT
+
+https://screenrant.com/diablo-4-mephisto-mask-statue-release-info/
+
+Diablo 4: Lord of Hatred officially returns with Mephisto, a brand-new release featuring one of Sanctuary’s most notorious Prime Evils.
+---------
+
+# Ghosts’ Casting Update Opens Exciting Possibilities For Season 6
+
+Network TV, Ghosts
+
+Thu, 02 Jul 2026 15:00:20 GMT
+
+https://screenrant.com/ghosts-season-6-ben-feldman-kyle-cast-member/
+
+Ghosts' season 6 sees a fan-favorite supporting character promoted to the main cast, opening up new avenues for comedy and chaos at Woodstone Manor.
+---------
+
+# George R.R. Martin Officially Sets New A Song Of Ice & Fire Release In 2 Weeks
+
+TV, A Song of Ice and Fire
+
+Thu, 02 Jul 2026 14:56:26 GMT
+
+https://screenrant.com/george-rr-martin-song-of-ice-and-fire-calendar-july-2026/
+
+George R.R. Martin officially confirms a new release date for A Song of Ice and Fire, which will be available to the public in just two weeks.
+---------
+
+# HBO’s Harry Potter Season 2 Officially Launches Recasting Of Major Book Character
+
+TV, Harry Potter, HBO
+
+Thu, 02 Jul 2026 14:46:54 GMT
+
+https://screenrant.com/harry-potter-hbo-season-2-ginny-weasley-casting/
+
+The casting process is officially underway for one of the most important Harry Potter characters to make their debut in season 2 of the HBO show.
+---------
+
+# Apple TV's New 'Unfilmable' Fantasy TV Event Confirms Official Episode Count
+
+TV, The Stormlight Archive, The Cosmere, Apple TV
+
+Thu, 02 Jul 2026 15:17:39 GMT
+
+https://www.cbr.com/the-stormlight-archives-apple-tv-show-episodes/
+
+Apple TV's upcoming fantasy epic gets an update from the author.
+---------
+
+# 8 Anime Quotes Everyone Uses Today
+
+Anime, Death Note, Pokemon, Neon Genesis Evangelion, Dragon Ball Z, Fullmetal Alchemist: Brotherhood, Cowboy Bebop, Fate/Stay Night, Naruto
+
+Thu, 02 Jul 2026 15:15:13 GMT
+
+https://www.cbr.com/popular-anime-quotes-everyone-uses-today/
+
+Some anime quotes are so iconic they have left the screen and become a part of fans' everyday lexicon.
+---------
+
+# DC's Absolute Universe's First Major Crossover Has Arrived With A Catch
+
+Comics, Absolute Universe
+
+Thu, 02 Jul 2026 15:00:13 GMT
+
+https://www.cbr.com/dc-absolute-universe-crossover-absolute-martian-manhunter-12/
+
+It looks like DC is putting together a team.
+---------
+
+# Evangelion Revives Its Most Powerful Long-Range Mecha With New Threezero Action Figure
+
+Anime, Neon Genesis Evangelion, merchandise, action figures, Evangelion: 3.0 You Can (Not) Redo, toys
+
+Thu, 02 Jul 2026 15:00:13 GMT
+
+https://www.cbr.com/evangelion-type-8a-action-figure-threezero/
+
+The newest Evangelion action figure from Threezero brings one of the Rebuild of Evangelion mecha to life with loads of weapons and accessories.
+---------
+
+# 10 Greatest Anime Villains of All Time
+
+Anime, Bleach, Naruto, My Hero Academia, Dragon Ball
+
+Thu, 02 Jul 2026 15:00:13 GMT
+
+https://www.cbr.com/official-greatest-anime-villains-of-all-time/
+
+These ten villains stand as the best in all of anime, the likes of Griffith and Madara Uchiha single-handedly elevating their entire series.
+---------
+
+# The Hunt for Gollum Will Officially Fix Thranduil's Hobbit Quote
+
+Movies, The Lord of the Rings: The Hunt for Gollum
+
+Thu, 02 Jul 2026 14:30:13 GMT
+
+https://www.cbr.com/the-hunt-for-gollum-fix-the-hobbit-thranduil-aragron-plot-hole/
+
+The Lord of the Rings: The Hunt for Gollum will bring back Thranduil from The Hobbit, so it can follow up on one of the Elvenking's final lines.
+---------
+
+# The 5-Part Sci-Fi Cult Classic That Beat Fringe to Smart Parallel Universe TV
+
+TV, Sliders, Sci-Fi, Fringe
+
+Thu, 02 Jul 2026 14:30:13 GMT
+
+https://www.cbr.com/sliders-sci-fi-cult-classic-beats-fringe-smart-parallel-universe-tv/
+
+Over a decade before Fringe became a sci-fi fan favorite, Jerry O'Connell's Sliders made alternate reality TV feel fresh, fun and exciting.
+---------
+
+# HBO Begins Search for Major Harry Potter Character Recast Following Season 2 Shake-Up
+
+TV, Harry Potter
+
+Thu, 02 Jul 2026 14:28:40 GMT
+
+https://www.cbr.com/hbo-harry-potter-recasting-ginny-weasley-gracie-cochrane-open-call/
+
+HBO is looking to replace one of of the stars of its upcoming Harry Potter series following a surprising departure.
+---------
+
+# 10 Netflix Anime That Are 10/10, No Notes
+
+Anime, The Apothecary Diaries, Frieren: Beyond Journey's End, Neon Genesis Evangelion
+
+Thu, 02 Jul 2026 14:16:14 GMT
+
+https://www.cbr.com/netflix-anime-flawless-start-to-finish/
+
+From gripping thrillers to emotional epics, these Netflix anime are flawless from start to finish and deserve a perfect 10/10 rating.
+---------
+
+# Silo Season 3: Rebecca Ferguson on Juliette's Trauma
+
+TV, Silo
+
+Thu, 02 Jul 2026 14:16:14 GMT
+
+https://www.cbr.com/video/silo-season-3-rebecca-ferguson-on-juliette-s-trauma/
+
+Silo Season 3 stars Rebecca Ferguson and creator Graham Yost break down Juliette Nichols' emotional journey and the long-awaited look at the Before Times.
+---------
+
+# Worf Officially Returns to Deep Space 9 in New Star Trek Horror Series
+
+Books and Comics News, Star Trek: Deep Space Nine, Star trek, Horror, Sci-Fi
+
+Thu, 02 Jul 2026 15:14:25 GMT
+
+https://collider.com/star-trek-worf-deep-space-9-holo-ween-2-horror-comic-series/
+
+IDW’s Star Trek: Holo-Ween 2 brings Worf back to Deep Space 9 for a Halloween horror mystery with Dax, Odo, and Bashir.
+---------
+
+# ‘Elden Ring’ Officially Returns With New Release in 2027
+
+Gaming News, Elden Ring, Alex Garland, A24
+
+Thu, 02 Jul 2026 15:12:47 GMT
+
+https://collider.com/elden-ring-rot-and-sorcery-july-2027-release/
+
+Steamforged’s Elden Ring: Rot & Sorcery board game release arrives in July 2027 with new core boxes set in Liurnia and Caelid.
+---------
+
+# ‘Akira’ Officially Returns to Theaters With New 4K IMAX Release [Exclusive]
+
+Movie News, Akira, Crunchyroll, Anime, IMAX
+
+Thu, 02 Jul 2026 15:00:13 GMT
+
+https://collider.com/akira-4k-imax-sci-fi-anime-rerelease-september/
+
+The legendary anime classic Akira is officially returning to U.S. theaters in 4K and IMAX this summer through Crunchyroll and Sony.
+---------
+
+# ‘Interstellar’ Star’s New Western Thriller Gets Brutal First Trailer [Exclusive]
+
+Movie News, Mackenzie Foy, Sean Bean, Odeya Rush, Western
+
+Thu, 02 Jul 2026 15:00:13 GMT
+
+https://collider.com/the-isolate-thief-trailer-western/
+
+One woman must fend off a gang of outlaws in a frozen fortress in the new Civil War Western The Isolate Thief. Watch the trailer now.
+---------
+
+# 'NCIS' Star Returning to Franchise After 3-Year Absence in All-New Role
+
+TV News, Eric Christian Olsen, NCIS, NCIS: Los Angeles
+
+Thu, 02 Jul 2026 15:31:33 GMT
+
+https://movieweb.com/eric-christian-olsen-ncis-origins-executive-producer/
+
+'NCIS: Los Angeles' star Eric Christian Olsen is rejoining the 'NCIS' franchise as an executive producer on 'Origins' season 3.
+---------
+
+# Apple TV's Anti-'Game of Thrones' Adaptation Confirms It Will Rival Hit Fantasy Epic
+
+TV News, The Stormlight Archive, Apple TV
+
+Thu, 02 Jul 2026 15:23:47 GMT
+
+https://movieweb.com/apple-tv-stormlight-archive-season-1-episode-count/
+
+The epic fantasy adaptation just got a major update from the original author Brandon Sanderson.
+---------
+
+# New "Reacher Meets Rambo" Action Thriller Series Is a Streaming Smash Hit
+
+TV News, The Nowhere Man, Action, Thriller, Reacher, Rambo, STARZ
+
+Thu, 02 Jul 2026 15:00:19 GMT
+
+https://movieweb.com/nowhere-man-reacher-rambo-action-thriller-stream-july-2026/
+
+The under-the-radar action thriller show explodes onto the streaming charts.
+---------
+
+# 'Candy' vs. 'Love and Death:' How Do the Two Miniseries Differ?
+
+Features, Candy, Love & Death, HBO Max, hulu, Elizabeth Olsen, Jessica Biel
+
+Thu, 02 Jul 2026 15:00:19 GMT
+
+https://movieweb.com/candy-vs-love-and-death/
+
+The case of Candy Montgomery inspired two different miniseries; these are the differences between the two.
+---------
+
+# 36 Years Later, Jean-Claude Van Damme's Cult Classic Gets New Release
+
+Movie News, Lionheart, Jean Claude Van Damme
+
+Thu, 02 Jul 2026 14:45:28 GMT
+
+https://movieweb.com/jean-claude-van-damme-lionheart-4k-blu-ray-release/
+
+Jean-Claude Van Damme's cult-classic action movie 'Lionheart' is getting a new 4K Blu-ray release as part of the MVD Rewind Collection.
+---------
+
+# Netflix Rescues Real-Life Murder Series After Paramount+ Cancellation
+
+TV News, Netflix, Melissa McCarthy, Mystery
+
+Thu, 02 Jul 2026 14:44:09 GMT
+
+https://movieweb.com/netflix-murder-of-jonbenet-ramsey-paramount/
+
+Netflix has picked up the completed JonBenét Ramsey limited series after Paramount+ walked away.
+---------
+
+# Netflix's New 8-Part Crime Thriller Is Officially the Biggest Show on Streaming
+
+TV News, I Will Find You, Hot on Streaming, Crime, Thriller, Netflix
+
+Thu, 02 Jul 2026 14:03:40 GMT
+
+https://movieweb.com/i-will-find-you-netflix-crime-thriller-streaming-hit-july-2026/
+
+After just two weeks, Netflix's new Harlan Coben adaptation has become the biggest show on streaming at the moment.
+---------
+
+# The Most Persistent 'Minions' Urban Legend Has Finally Been Officially Addressed
+
+Movie News, Minions & Monsters, Despicable Me
+
+Thu, 02 Jul 2026 14:03:39 GMT
+
+https://movieweb.com/minions-monsters-director-addresses-hitler/
+
+'Minions & Monsters' director Pierre Coffin finally reveals what the Minions were doing during World War II.
+---------
+
+# 'Landman' Stars Getting Big Upgrade in New Season of Taylor Sheridan's Western
+
+TV News, Landman, Demi Moore, Paramount Plus
+
+Thu, 02 Jul 2026 14:03:06 GMT
+
+https://movieweb.com/landman-stars-pay-increases-taylor-sheridan/
+
+Demi Moore will now make as much as Billy Bob Thornton.
+---------
+
+# Taylor Sheridan's Greatest TV Series Is a Perfect Weekend Binge
+
+Features, Taylor Sheridan, Dutton Ranch
+
+Thu, 02 Jul 2026 14:00:18 GMT
+
+https://movieweb.com/dutton-ranch-season-1-binge-watch/
+
+Taylor Sheridan has created several popular TV shows, but there is one series that is better than the others, and it's perfect to watch all weekend.
+---------
+
 # John Cena's New R-Rated Netflix Movie Debuts To Disappointing Rotten Tomatoes Score
 
 Movies, Little Brother
