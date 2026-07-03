@@ -1,3 +1,366 @@
+# Star-Lord’s MCU Return Should Absolutely Reverse This Marvel Retcon
+
+Movies, Marvel Cinematic Universe, Star-Lord
+
+Fri, 03 Jul 2026 02:00:33 GMT
+
+https://screenrant.com/marvel-mcu-star-lord-return-god-power/
+
+Guardians of the Galaxy Vol. 2 made one surprising decision about Star-Lord's future, but there's still a way to change it (and the MCU should).
+---------
+
+# Pokémon Officially Returns To Unova For New 30th Anniversary Release
+
+Gaming, Pokemon, Triple-A Games, Nintendo
+
+Fri, 03 Jul 2026 02:00:33 GMT
+
+https://screenrant.com/pokemon-unova-merch-30th-anniversary/
+
+Pokémon is bringing back a fan-favorite region with its newest anniversary celebration, offering a treat for every fan of the series to enjoy.
+---------
+
+# New Star Wars Show Trailer Continues A Jedi's Epic Quest To Save Their Father
+
+TV, Star Wars: Visions, Star Wars, Anime
+
+Fri, 03 Jul 2026 01:29:46 GMT
+
+https://screenrant.com/star-wars-visions-presents-the-ninth-jedi-trailer/
+
+A Jedi's epic quest to rescue her father continues in the first trailer for the anime spinoff series Star Wars: Visions Presents - The Ninth Jedi.
+---------
+
+# Titus Welliver’s Gritty New Crime Drama Gets “Very Confident” Season 2 Update Ahead Of Release
+
+TV, The Westies, Titus Welliver
+
+Fri, 03 Jul 2026 01:07:34 GMT
+
+https://screenrant.com/titus-welliver-the-westies-season-2-update-chris-brancato/
+
+MGM+'s The Westies premieres later this month, but its showrunner is already optimistic about the Titus Welliver-led series' chances for season 2.
+---------
+
+# Enola Holmes 3 Ending Explained: Who Kidnapped Sherlock & Do Enola & Tewkesbury Get Married?
+
+Movies, Enola Holmes 3
+
+Fri, 03 Jul 2026 01:00:21 GMT
+
+https://screenrant.com/enola-holmes-3-movie-ending-explained/
+
+Netflix's brand-new addition to the Enola Holmes franchise, Enola Holmes 3, has just hit the streamer—here's what you need to know about the ending.
+---------
+
+# It's Official, Mushoku Tensei Is Japan's #1 Anime Of Summer 2026
+
+Anime, Mushoku Tensei: Jobless Reincarnation
+
+Fri, 03 Jul 2026 01:00:21 GMT
+
+https://screenrant.com/mushoku-tensei-japan-biggest-anime-summer-2026/
+
+While Western audiences wait for Bleach and Grand Blue Dreaming, Japanese viewers have officially crowned their top anime of Summer 2026.
+---------
+
+# The Witcher 3 Online Multiplayer Update Lets You Explore With Friends
+
+Gaming, The Witcher 3: Wild Hunt, The Witcher, Triple-A Games, PC
+
+Fri, 03 Jul 2026 01:00:21 GMT
+
+https://screenrant.com/witcher-3-online-multiplayer-update-july-2026/
+
+The Witcher 3 is adding new content over a decade after its release, but fans have an even better way to re-experience the classic game in co-op.
+---------
+
+# Star Wars Officially Brings Back Rey's Replacement As Disney Moves Away From Canon
+
+Streaming TV, Masked Recs
+
+Fri, 03 Jul 2026 00:30:21 GMT
+
+https://screenrant.com/star-wars-brings-back-rey-replacement-disney-canon/
+
+Star Wars: Visions Presents - The Ninth Jedi is giving Legends its own version of Rey Skywalker, and it could signal a big shift for Star Wars.
+---------
+
+# Avatar: The Last Airbender's New Changes Complicate Season 3's Redemption Arcs
+
+Streaming TV, Avatar: The Last Airbender
+
+Fri, 03 Jul 2026 00:00:21 GMT
+
+https://screenrant.com/avatar-the-last-airbender-netflix-mai-ty-lee-redemption-arcs/
+
+Netflix made a lot of changes to Avatar: The Last Airbender in season 2, which has the potential to make some arcs in season 3 more difficult.
+---------
+
+# X-Men '97: Every Horseman of Apocalypse Explained
+
+Superheroes, X-Men '97, Marvel Cinematic Universe
+
+Fri, 03 Jul 2026 00:00:21 GMT
+
+https://screenrant.com/x-men-97-season-2-horseman-of-apocalypse-explained/
+
+X-Men '97 season 2 takes place across multiple timelines, meaning multiple Horsemen are serving (or have served) Apocalypse, the First Mutant.
+---------
+
+# Banned 48-Year-Old Horror Movie's Reboot Officially Starts Streaming This Month
+
+Movies, Faces of Death
+
+Fri, 03 Jul 2026 02:02:32 GMT
+
+https://www.cbr.com/faces-of-death-reboot-shudder-streaming-july-2026/
+
+Months after its debut in theaters, the new reboot of the controversial horror classic arrives on streaming this month.
+---------
+
+# 5 Female-Led Superhero Movies Better Than Supergirl
+
+Movies, Supergirl
+
+Fri, 03 Jul 2026 02:01:14 GMT
+
+https://www.cbr.com/female-superhero-movies-better-than-supergirl-list/
+
+Supergirl hasn't been the box office smash that DC Studios wanted, and for fans who didn't connect with the movie, there are great alternatives.
+---------
+
+# 10 Marvel Heroes Who Should Never Become Avengers
+
+Comics, Marvel
+
+Fri, 03 Jul 2026 02:01:14 GMT
+
+https://www.cbr.com/marvel-heroes-who-should-never-join-the-avengers/
+
+These Marvel heroes might have once been considered to be members of the Avengers, but these days they would not make the main squad.
+---------
+
+# Yu-Gi-Oh's Most Iconic Monsters Are Officially Getting an Upgrade
+
+Games, Yu-Gi-Oh!, Tabletop
+
+Fri, 03 Jul 2026 01:56:15 GMT
+
+https://www.cbr.com/yugioh-most-iconic-monsters-chaos-origins-expansion-upgrade/
+
+Yu-Gi-Oh's new Chaos Origins set has revamped Yugi Muto's iconic monsters, with all-new effects to make them competitive in the current meta.
+---------
+
+# Cowboy Bebop's Most Tragic Character Was Never Spike Spiegel
+
+Anime, Cowboy Bebop
+
+Fri, 03 Jul 2026 01:45:13 GMT
+
+https://www.cbr.com/cowboy-bebop-most-tragic-character-gren-not-spike/
+
+Cowboy Bebop's Gren represents a tragedy that Spike can never imagine
+---------
+
+# 10 Best Games of 2026 So Far, Officially Ranked
+
+Games, Resident Evil, Video Games, Star Fox
+
+Fri, 03 Jul 2026 01:30:13 GMT
+
+https://www.cbr.com/best-games-2026-so-far-ranked-list/
+
+2026's first half featured surprising hits and anticipated releases like Resident Evil Requiem and 007 First Light that have already impressed fans.
+---------
+
+# Anne Hathaway's Reason for Quitting Judd Apatow's $219M Comedy Confirmed
+
+Movies, Knocked Up
+
+Fri, 03 Jul 2026 01:15:38 GMT
+
+https://www.cbr.com/anne-hathaway-quit-knocked-up/
+
+Nearly two decades later, Seth Rogen confirms the reason for Anne Hathaway's departure from his $219M romantic comedy.
+---------
+
+# 10 Darkest Anime Arcs of All Time
+
+Anime, Hunter X Hunter, Attack on Titan, Jujutsu Kaisen
+
+Fri, 03 Jul 2026 01:00:13 GMT
+
+https://www.cbr.com/darkest-anime-arcs-ever-list/
+
+An anime series is defined by its monumental arcs throughout the adventure, and these examples hold some of the darkest arcs in the medium.
+---------
+
+# Only 5 Westerns Are Darker Than Clint Eastwood's Unforgiven
+
+Movies, Western
+
+Fri, 03 Jul 2026 00:30:14 GMT
+
+https://www.cbr.com/perfect-westerns-darker-than-clint-eastwood-unforgiven-list/
+
+In 1992, Clint Eastwood turned in one the darkest Westerns of all time with Unforgiven, but some movies make the Old West even more grim.
+---------
+
+# It's Official, 2026's Best Fantasy Anime Is Not Over Yet
+
+Anime, Wistoria: Wand and Sword, Fantasy
+
+Fri, 03 Jul 2026 00:16:13 GMT
+
+https://www.cbr.com/best-2026-fantasy-anime-wistoria-wand-and-sword-season-3/
+
+With a third season already confirmed, Wistoria: Wand and Sword is set to continue its fantasy genre dominance with its ultimate underdog.
+---------
+
+# Netflix’s 6-Part Sci-Fi Series Is the Smartest Horror Show Since ‘Haunting of Hill House’
+
+TV Features, The Haunting of Hill House, Cassandra, Netflix, Sci-Fi
+
+Fri, 03 Jul 2026 01:53:14 GMT
+
+https://collider.com/netflix-smartest-horror-after-haunting-of-hill-house-cassandra-miniseries/
+
+Netflix's six-part series Cassandra flips the haunted house trope on its head by introducing themes of AI and the danger of convenience.
+---------
+
+# Disney+’s 2-Part Superhero Series Completely Changes Its Format With Its 2026 Return
+
+TV Features, X-Men '97, X-Men: The Animated Series, Disney+
+
+Fri, 03 Jul 2026 01:36:14 GMT
+
+https://collider.com/x-men-97-season-2-opening-credits-format-change/
+
+Disney+'s X-Men '97 Season 2 innovatively changes its opening credits to match each episode's unique storyline, enhancing character focus.
+---------
+
+# Everything Coming to Apple TV in July 2026
+
+TV, Apple TV, Silo, Trying, Lucky
+
+Fri, 03 Jul 2026 01:24:13 GMT
+
+https://collider.com/new-apple-tv-movies-shows-july-2026/
+
+Silo Season 3, The Dink, Trying Season 5, Lucky, and more are highly anticipated shows and movies coming to Apple TV this month.
+---------
+
+# The Best Star Wars Series Ever Made Gets Its First Official Spin-Off in Stunning Trailer
+
+TV News, Star Wars, Star Wars: Visions, Anime, Disney+
+
+Fri, 03 Jul 2026 01:22:33 GMT
+
+https://collider.com/star-wars-the-ninth-jedi-trailer-disney-plus/
+
+Star Wars: Visions gets its first-ever spin-off series with The Ninth Jedi, which just got a stunning first trailer. See it here!
+---------
+
+# This Perfect ‘Game of Thrones’ Replacement Is Still One of 2026's Biggest Streaming Hits
+
+TV News, Robin Hood, Game Of Thrones, MGM, Amazon
+
+Fri, 03 Jul 2026 01:00:13 GMT
+
+https://collider.com/game-of-thrones-replacement-robin-hood-streaming-success-mgm-plus-july-2026/
+
+MGM+'s perfect historical adventure series for fans missing Game of Thrones is still one of the most popular shows of 2026.
+---------
+
+# The Greatest Japanese Fantasy Epic of All Time Officially Returns to Theaters This Month
+
+Movie News, My Neighbor Totoro, Studio Ghibli, Anime, Fantasy
+
+Fri, 03 Jul 2026 00:30:14 GMT
+
+https://collider.com/my-neighor-totoro-theater-return-july-11-2026/
+
+Studio Ghibli's beloved animated film My Neighbor Totoro is returning to theaters for a limited time. Read on for all the details.
+---------
+
+# 'The Bear's Final Twist Is the Perfect Ending Fans Have Been Waiting For
+
+TV Features, The Bear, Jeremy Allen White, Ayo Edebiri, Ebon Moss-Bachrach
+
+Fri, 03 Jul 2026 00:13:14 GMT
+
+https://collider.com/the-bear-season-5-finale-michelin-star-twist-perfect/
+
+The Bear's Season 5 finale delivers a surprising conclusion as the restaurant earns two Michelin Stars in a satisfying twist.
+---------
+
+# Tom Hiddleston's Apple TV Epic Officially Scores Rare Theatrical Release
+
+Movie News, Apple TV, Tenzing, Tenzing Norgay Trainor, Tom Hiddleston
+
+Fri, 03 Jul 2026 00:00:13 GMT
+
+https://collider.com/tom-hiddleston-apple-tv-tenzing-norgay-biopic-release-date-october-9-2026/
+
+The untold story of Tenzing Norgay, the first recorded climber to reach the summit of Everest, is coming to theaters. Get all the details.
+---------
+
+# Forget 'Halloween,' This Stoner Action Romp Is the Filmmaker's Greatest Hit
+
+Movie Features, Pineapple Express, David Gordon Green, Seth Rogen, Halloween
+
+Thu, 02 Jul 2026 23:48:15 GMT
+
+https://collider.com/david-gordon-green-pineapple-express-best-movie-halloween-exorcist/
+
+David Gordon Green’s Pineapple Express remains his career peak, beating his Halloween and Exorcist sequels with chaos, comedy, and style.
+---------
+
+# 10 Western Shows That Will Keep You Hooked From Start to Finish
+
+TV, Western, Little House on the Prairie, Lonesome Dove, Longmire
+
+Thu, 02 Jul 2026 23:39:13 GMT
+
+https://collider.com/western-shows-hooked-start-to-finish/
+
+From the classic series Little House on the Prairie to the modern crime drama Longmire, these Western TV shows will keep you hooked to your screen.
+---------
+
+# 10 Most Perfect Netflix Shows of the Past 10 Years
+
+TV Lists, Netflix
+
+Fri, 03 Jul 2026 02:00:32 GMT
+
+https://movieweb.com/perfect-netflix-tv-shows-past-10-years/
+
+Netflix has released some incredible TV shows over the past decade, from sci-fi to sitcoms to thrillers, and these are the best ones.
+---------
+
+# It's Officially the End of an Era for Action Crime Thriller After Two Seasons
+
+TV News, The Hunting Party
+
+Fri, 03 Jul 2026 00:40:10 GMT
+
+https://movieweb.com/the-hunting-party-canceled-actor-contracts/
+
+After shopping around 'The Hunting Party' after NBC canceled it, the stars' contracts have expired, marking the end of an era.
+---------
+
+# Apple TV's Upcoming Fantasy Series is So Epic, It Can Run For Decades
+
+Features, The Cosmere, Brandon Sanderson, Fantasy
+
+Fri, 03 Jul 2026 00:00:19 GMT
+
+https://movieweb.com/apple-tv-brandon-sanderson-cosmere-run-for-decades/
+
+Fantasy has never been in better hands that it is now, with one of the biggest undertakings to the genre coming soon to Apple TV.
+---------
+
 # Mashle's Official Season 3 Return Drops Brand-New Look & Release Window
 
 Anime, Mashle: Magic and Muscles, Anime Expo
