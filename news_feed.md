@@ -1,3 +1,355 @@
+# Red Dead Redemption 2 Meets Valheim In New Open-World RPG
+
+Gaming, Red Dead Redemption 2
+
+Fri, 03 Jul 2026 16:19:01 GMT
+
+https://screenrant.com/red-dead-redemption-2-western-rye/
+
+Red Dead Redemption 2 fans awaiting a next-gen update and any news about a possible third installment have the best new game to tide them over.
+---------
+
+# Netflix Just Added 2025’s Best Hidden Gem Comedy With 94% On RT, And A Sequel Is In The Works
+
+Movies, Masked Recs
+
+Fri, 03 Jul 2026 16:15:20 GMT
+
+https://screenrant.com/netflix-comedy-movie-one-of-them-days-hidden-gem-2025/
+
+Discover the hidden gem comedy now streaming on Netflix with a 94% RT score. Learn about the film's origins, cast chemistry, & exciting sequel plans.
+---------
+
+# Spider-Man's Return This Month Officially Ends An Era
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Fri, 03 Jul 2026 16:15:20 GMT
+
+https://screenrant.com/spider-man-movie-return-july-2026/
+
+July is going to be a big month for Spider-Man, as the Marvel superhero returns to action this month and ends an unusual era for Peter Parker.
+---------
+
+# Elle Interviews with Lexi Minetree, Chandler Kinney, Gabrielle Policano & More
+
+TV, Elle, Legally Blonde
+
+Fri, 03 Jul 2026 16:06:14 GMT
+
+https://screenrant.com/video/elle-season-1-lexi-minetree-chandler-kinney-cast-producers-interview/
+
+Elle stars Lexi Minetree, Chandler Kinney, Gabrielle Policano, June Diane Raphael, Tom Everett Scott, Zac Looker, and Jacob Moskovitz join their EPs in answering burning questions about season 1.
+---------
+
+# Netflix Peaked With This 3-Minute Scene That's Now 4 Years Old
+
+TV, Masked Recs
+
+Fri, 03 Jul 2026 16:01:21 GMT
+
+https://screenrant.com/netflix-best-moment-stranger-things-eddie-guitar-scene/
+
+Discover the scene that has been crowned Netflix's most iconic moment, a sequence that perfectly encapsulates the streaming service's appeal.
+---------
+
+# LaMonica Garrett Shows Off His Action Chops In Man Of War Clip
+
+Exclusive, LaMonica Garrett
+
+Fri, 03 Jul 2026 16:00:22 GMT
+
+https://screenrant.com/video/man-of-war-2026-lamonica-garrett-clip/
+
+Exclusive: ScreenRant presents a clip from action thriller Man of War, starring LaMonica Garrett as a man who stops at nothing to rescue his daughter.
+---------
+
+# 2026's Biggest Superhero Death Is Officially Permanent: Is That a Good Thing?
+
+Comics, Captain America
+
+Fri, 03 Jul 2026 16:00:22 GMT
+
+https://screenrant.com/captain-america-death-ultimate-universe-endgame/
+
+Did Marvel's biggest death of the year work?
+---------
+
+# NBC’s Underrated 2-Part Crime Series Is Officially Dead In New Cast Update
+
+Network TV, The Hunting Party
+
+Fri, 03 Jul 2026 16:00:05 GMT
+
+https://screenrant.com/the-hunting-party-season-3-cancelled-contract-expires/
+
+After waiting for being saved from its disappointing cancellation, NBC's two-part crime show is officially done after a new status update.
+---------
+
+# Clair Obscur: Expedition 33 Follow-Up Game Gets Official Update
+
+Gaming, Clair Obscur: Expedition 33, PC
+
+Fri, 03 Jul 2026 15:48:12 GMT
+
+https://screenrant.com/clair-obscur-expedition-33-next-game/
+
+Clair Obscur: Expedition 33 fans have been waiting patiently for word on Sandfall Interactive's follow-up project, and we just got an official update.
+---------
+
+# 5 Essential 2000s Anime Series That Are Still Perfect Today
+
+Anime, Paranoia Agent, Code Geass: Lelouch of the Rebellion, Samurai Champloo
+
+Fri, 03 Jul 2026 16:16:12 GMT
+
+https://www.cbr.com/essential-2000s-anime-still-perfect-today/
+
+The 2000s were a polarizing decade for anime, but titles like Monster and Paranoia Agent have aged gracefully and are regarded as evergreen classics.
+---------
+
+# Silo Season 3: The Secret Behind Helen & Daniel
+
+TV, Silo
+
+Fri, 03 Jul 2026 16:16:12 GMT
+
+https://www.cbr.com/video/silo-season-3-the-secret-behind-helen-daniel/
+
+Silo Season 3 stars Jessica Henwick and Ashley Zukerman discuss Helen and Daniel's emotional journey, their surprising promotion from Season 2 guest stars to leading the show's newest storyline, and why their relationship became the heart of the season.
+---------
+
+# Hugh Jackman Offers Explicit Advice to Marvel's Next Wolverine Star
+
+Movies, Marvel, Marvel Comics, MCU, Deadpool & Wolverine, Deadpool & Wolverine (2024), Avengers: Doomsday, Avengers: Doomsday (2026), X-Men, Logan
+
+Fri, 03 Jul 2026 16:01:44 GMT
+
+https://www.cbr.com/hugh-jackman-explicit-advice-to-next-marvel-wolverine-star/
+
+This is the fantastic advice for whoever becomes the next Wolverine for Marvel and the MCU.
+---------
+
+# Jon Bernthal's The Accountant 2 Is His Best Performance
+
+Movies, The Accountant 2, The Accountant, jon bernthal
+
+Fri, 03 Jul 2026 16:00:14 GMT
+
+https://www.cbr.com/jon-bernthal-accountant-2-best-action-thriller-performance/
+
+Jon Bernthal has become one of the hottest action stars of the modern age, but his best performance is still in an unexpected thriller.
+---------
+
+# War of the Worlds Franchise Returns With a Brand-New Comic Trade Release
+
+Comics, War of The Worlds
+
+Fri, 03 Jul 2026 16:00:14 GMT
+
+https://www.cbr.com/war-of-the-worlds-thunder-child-comic-trade-release/
+
+Anyone could have believed this seminal sci-fi story would inspire such an acclaimed comic book.
+---------
+
+# Absolute Batman Book Delayed Ahead of Release
+
+Comics, Absolute Batman
+
+Fri, 03 Jul 2026 15:58:34 GMT
+
+https://www.cbr.com/absolute-batman-24-delayed-new-release-date-confirmed/
+
+Fans may have to wait a bit longer for an upcoming issue of Absolute Batman.
+---------
+
+# Matt Reeves' Batman Series Gets New Look, Teases Joker Just 1 Month Before Return
+
+TV, Batman: Caped Crusader, Batman, Prime Video
+
+Fri, 03 Jul 2026 15:38:30 GMT
+
+https://www.cbr.com/batman-caped-crusader-teaser-matt-reeves/
+
+Only one month until Batman is back on patrol.
+---------
+
+# Marvel’s 2-Season Superhero Revival Returns With Better RT Audience Score Than Season 1
+
+TV, X-Men '97
+
+Fri, 03 Jul 2026 15:35:38 GMT
+
+https://www.cbr.com/marvel-x-men-97-season-2-rotten-tomatoes-score/
+
+The first season of Marvel's superhero series put up strong numbers, but the recently released sophomore season still managed to reach new heights.
+---------
+
+# Cowboy Bebop Creator Shuts Down Hopes for Return of Adult Swim Anime Hit
+
+Anime, Lazarus, Adult Swim, toonami, Cartoon Network
+
+Fri, 03 Jul 2026 15:34:15 GMT
+
+https://www.cbr.com/lazarus-shinichiro-watanabe-sequel-shut-down/
+
+The creator of Cowboy Bebop may have quietly confirmed the end of their latest controversial anime series after just a single season.
+---------
+
+# 5 Anime Martial Artists Better Than Goku
+
+Anime, Dragon Ball, shonen anime, Shonen
+
+Fri, 03 Jul 2026 15:16:15 GMT
+
+https://www.cbr.com/anime-martial-artists-better-than-goku/
+
+Anime martial artists who genuinely surpass Goku do so because their respective series treat combat as a discipline rather than a numbers game.
+---------
+
+# 10 Classic Movie Epics To Watch Before Christopher Nolan's 'The Odyssey'
+
+Movie, The Odyssey, Christopher Nolan, Apocalypse Now, Gladiator
+
+Fri, 03 Jul 2026 16:07:13 GMT
+
+https://collider.com/classic-epic-movies-like-the-odyssey-christopher-nolan/
+
+Before Christopher Nolan's next epic The Odyssey hits theaters, be sure to watch movies like Lawrence of Arabia, Gladiator, and Apocalypse Now.
+---------
+
+# George R.R. Martin Officially Sets New ‘A Song of Ice & Fire’ Release in Just 2 Weeks
+
+Books and Comics, A Song of Ice and Fire, George R.R. Martin, Game Of Thrones, House of the Dragon
+
+Fri, 03 Jul 2026 16:06:30 GMT
+
+https://collider.com/george-rr-martin-song-of-ice-and-fire-2027-calendar-release-date/
+
+George R.R. Martin’s new A Song of Ice and Fire release arrives July 21, 2026, with new artwork by Tyler Jacobson.
+---------
+
+# ‘Fallout’ Fans Get Surprise New Release Before Season 3
+
+Gaming News, Fallout, Prime Video, Bethesda, Fallout 76
+
+Fri, 03 Jul 2026 15:30:13 GMT
+
+https://collider.com/fallout-4-new-release-companion-miss-weldy/
+
+Fallout fans are being treated to a new release this week as news about Season 3 ramps up following the castings of Aaron Paul and Manny Jacinto.
+---------
+
+# Taylor Sheridan Officially Reunites With ‘1923’ Star for New Action Thriller
+
+Movie News, 1923, F.A.S.T., Taylor Sheridan, Brandon Sklenar
+
+Fri, 03 Jul 2026 15:29:59 GMT
+
+https://collider.com/taylor-sheridan-new-action-movie-fast-brandon-sklenar-set-photo/
+
+A new set photo from Taylor Sheridan’s F.A.S.T. offers a fresh look at Brandon Sklenar’s upcoming Warner Bros. action thriller.
+---------
+
+# 3 ‘Star Trek: Picard’ Stars Officially Reunite for New Sci-Fi Series
+
+TV News, Star Trek: Picard, X-Men '97, Marvel, Star Trek
+
+Fri, 03 Jul 2026 15:19:38 GMT
+
+https://collider.com/x-men-97-star-trek-reunion-gates-mcfadden-john-de-lancie-michael-dorn/
+
+Star Trek legends Gates McFadden, John de Lancie, and Michael Dorn reunite in Marvel’s new 10/10 sci-fi series.
+---------
+
+# Alan Ritchson’s Perfect ‘Reacher’ Season 4 Appetizer Officially Releases This Month
+
+Movie News, Motor City, Alan Ritchson, Reacher, Shailene Woodley
+
+Fri, 03 Jul 2026 15:00:33 GMT
+
+https://collider.com/alan-ritchson-new-action-movie-motor-city-before-reacher-season-4-release-date/
+
+Alan Ritchson officially launches the perfect new action movie coming just weeks before Reacher Season 4.
+---------
+
+# Netflix Launches New 'Stranger Things' Release Featuring Never-Before-Seen Footage
+
+TV News, Stranger Things
+
+Fri, 03 Jul 2026 16:06:06 GMT
+
+https://movieweb.com/netflix-stranger-things-book-tudom-new-content/
+
+Netflix continues to honor the legacy of 'Stranger Things' with an all-new release that gives fans a peak behind the curtain of the hit series.
+---------
+
+# Taylor Sheridan's Streaming Smash Action Thriller Just Keeps Getting Better
+
+Features, Marshals, Taylor Sheridan, Thriller
+
+Fri, 03 Jul 2026 16:00:19 GMT
+
+https://movieweb.com/taylor-sheridan-marshals-season-2/
+
+Taylor Sheridan's streaming smash hit is coming back sooner than anyone expected, proving once again why the mega-producer has so many fans.
+---------
+
+# Apple TV's 100% Rated Dystopian Sci-Fi Masterpiece Is Already a Streaming Smash
+
+TV News, Silo, Hot on Streaming, Sci-Fi, Science Fiction, Apple TV
+
+Fri, 03 Jul 2026 16:00:19 GMT
+
+https://movieweb.com/silo-season-3-sci-fi-streaming-hit-apple-tv-july-2026/
+
+Less than a day after the premiere of Season 3, Apple TV's returning sci-fi masterpiece has become a global smash.
+---------
+
+# Steven Spielberg Lands His Own 'Backrooms' Replacement With Viral Thriller Adaptation
+
+Movie News, Steven Spielberg, Backrooms
+
+Fri, 03 Jul 2026 15:36:29 GMT
+
+https://movieweb.com/steven-spielberg-the-mandela-catalogue-movie-adaptation/
+
+One of YouTube's most-celebrated analog horror series is about to be adapted into a feature film, and it has Steven Spielberg's backing.
+---------
+
+# Netflix Reveals "Nail-Biting" Opening From Long-Awaited Western Classic Reboot
+
+TV News, Little House on the Prairie, Netflix
+
+Fri, 03 Jul 2026 15:20:09 GMT
+
+https://movieweb.com/little-house-on-the-prairie-opening-netflix/
+
+Netflix has shared a sneak peek of 'Little House on the Prairie,' revealing the "nail-biting" opening minutes of the Western classic reboot.
+---------
+
+# 'Silo' Season 3 Cast & Character Guide: Every New Character Explained
+
+Features, Silo, Apple TV, Rebecca Ferguson
+
+Fri, 03 Jul 2026 15:00:19 GMT
+
+https://movieweb.com/silo-season-3-cast-characters/
+
+'Silo' Season 3 is now streaming on Apple TV and stars Rebecca Ferguson and Steve Zahn.
+---------
+
+# Jared Leto Is Running a Cult Straight Out of a True Crime Docuseries
+
+Features, Jared Leto, True Crime
+
+Fri, 03 Jul 2026 15:00:19 GMT
+
+https://movieweb.com/jared-leto-cult-true-crime/
+
+Jared Leto's career has seen its ups and downs, but after some box office flops and allegations, things are getting complicated for fans.
+---------
+
 # Why Full House Recast Danny Tanner After The Pilot Episode
 
 Classic TV, Full House
