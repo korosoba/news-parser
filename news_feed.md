@@ -1,3 +1,267 @@
+# James Gunn & DC’s Creative Battle For Supergirl Movie Revealed In Damning New Report
+
+Movies, Supergirl, DC Universe
+
+Fri, 03 Jul 2026 21:39:49 GMT
+
+https://screenrant.com/supergirl-movie-production-issues-james-gunn-dcu/
+
+A new detailed report about the many problems behind DC Studios' Supergirl movie, starring Milly Alcock as Kara Zor-El, reveals several BTS issues.
+---------
+
+# The Batman 2 Writer Reveals Shocking Truth About The Downfall Of Comic Book Adaptations
+
+TV, The Batman Part II
+
+Fri, 03 Jul 2026 21:35:52 GMT
+
+https://screenrant.com/the-batman-2-mattson-tomlin-video-game-adaptation-beats-comic-book/
+
+The Batman 2 writer, Mattson Tomlin, revealed the surprising reason why comic book adaptations are beginning to get pushed out of the spotlight.
+---------
+
+# Two Of The Best Baseball Movies Ever Have Arrived On Netflix In July
+
+Movies, Moneyball, A League of Their Own, Netflix, Streaming Release
+
+Fri, 03 Jul 2026 21:30:21 GMT
+
+https://screenrant.com/netflix-moneyball-league-of-their-own-great-baseball-movies-july/
+
+Netflix is the best place to find top baseball movies during this year's dog days of summer, including these two iconic films from the genre.
+---------
+
+# 15 Years Ago, ABC Ruined Its Promising 3-Part Comedy With Five Scheduling Changes
+
+Network TV, Masked Recs
+
+Fri, 03 Jul 2026 21:30:21 GMT
+
+https://screenrant.com/happy-endings-abc-changed-schedule-ruined-potential/
+
+Despite strong reviews, ABC’s 3-part sitcom struggled to find an audience due to frequent scheduling changes, hindering the show's success.
+---------
+
+# 2 Years Later, Solo Leveling Anime Announces Return
+
+Anime, Solo Leveling, Anime Expo
+
+Fri, 03 Jul 2026 21:29:35 GMT
+
+https://screenrant.com/solo-leveling-anime-return-movie-beyond-system/
+
+After nearly two years of waiting, fans finally have official confirmation that the Solo Leveling anime franchise is returning with a new movie.
+---------
+
+# Paramount+ Officially Explains Rossi's Criminal Minds Character Retcon
+
+Network TV, Criminal Minds
+
+Fri, 03 Jul 2026 21:15:20 GMT
+
+https://screenrant.com/criminal-minds-season-19-rossi-voit-donnie-mallick-character-retcon/
+
+David Rossi's character has changed dramatically since Criminal Minds: Evolution began, but season 19 perfectly explains his true nature.
+---------
+
+# Armie Hammer’s Major Acting Return Sets 2 Very Different Rotten Tomatoes Records
+
+Movies, Armie Hammer, Citizen Vigilante
+
+Fri, 03 Jul 2026 21:08:23 GMT
+
+https://screenrant.com/armie-hammer-citizen-vigilante-movie-rotten-tomatoes-score-records/
+
+Armie Hammer's major acting return is stirring up controversy, but is also setting two very different records for the star on Rotten Tomatoes.
+---------
+
+# 10 Police Procedurals Better Than NCIS
+
+TV, NCIS
+
+Fri, 03 Jul 2026 21:00:21 GMT
+
+https://screenrant.com/10-police-procedurals-better-than-ncis/
+
+There aren't many police-procedural series better than NCIS, but the few that are belong in the pantheon of all-time greats within the genre.
+---------
+
+# Lord Of The Rings: Realms In Exile Is The Best LOTR Game You Never Played
+
+Gaming, The Lord of the Rings, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings: The Return of the King, Crusader Kings 3, PC
+
+Fri, 03 Jul 2026 21:00:21 GMT
+
+https://screenrant.com/lord-of-the-rings-realms-in-exile-mod-opinions/
+
+Lord of the Rings: Realms In Exile is probably not on your list of most-played games, but it might be the best LOTR experience on offer.
+---------
+
+# 5 Best Scenes In Tobey Maguire's Spider-Man 2
+
+Movies, Spider-Man 2
+
+Fri, 03 Jul 2026 21:00:21 GMT
+
+https://screenrant.com/spider-man-2-movie-best-scenes/
+
+Tobey Maguire's Spider-Man trilogy is one of the best in the entire superhero genre, and these scenes stand out in the second installment.
+---------
+
+# James Gunn Shelved Original Supergirl Cut After Creative Clash With Director
+
+Movies, Supergirl, James Gunn
+
+Fri, 03 Jul 2026 21:49:15 GMT
+
+https://www.cbr.com/james-gunn-shelved-supergirl-creative-clash/
+
+The second movie in the DCU is out in theaters, but it's expected to lose tens of thousands of dollars.
+---------
+
+# 2 Days After Leaving Netflix, 7-Season Cult Classic Drama Becomes an Instant Hit on PVOD
+
+TV, Gilmore Girls, Apple TV, Netflix
+
+Fri, 03 Jul 2026 21:36:23 GMT
+
+https://www.cbr.com/gilmore-girls-drama-pvod-success-july-2026/
+
+Where they lead, fans will follow.
+---------
+
+# Greta Gerwig's Narnia Casting Officially Kills the Meryl Streep Aslan Rumor
+
+Movies, Narnia: The Magician's Nephew
+
+Fri, 03 Jul 2026 21:30:14 GMT
+
+https://www.cbr.com/narnia-ciaran-hinds-casting-ends-meryl-streep-aslan-era/
+
+A The Lord of the Rings: The Rings of Power star was just added to the cast of Netflix's The Magician's Nephew, contradicting a long-standing rumor.
+---------
+
+# Solo Leveling Returns With Official First Look at New Anime Movie
+
+Anime, Solo Leveling, Crunchyroll
+
+Fri, 03 Jul 2026 21:29:05 GMT
+
+https://www.cbr.com/solo-leveling-beyond-the-system-anime-movie-confirm/
+
+Sung Jinwoo is back and more powerful than ever. Solo Leveling has just announced a new anime movie coming ahead of Season 3 titled Beyond the System.
+---------
+
+# 10 Classic 2010s Anime Series That Are Unwatchable Today
+
+Anime, Tokyo Ghoul, The Promised Neverland
+
+Fri, 03 Jul 2026 21:16:14 GMT
+
+https://www.cbr.com/classic-2010s-anime-series-that-are-unwatchable-today/
+
+The 2010s was a breakout decade for anime, but some of its biggest hits, like Tokyo Ghoul and Berserk, haven't aged gracefully.
+---------
+
+# Netflix's Highly Underrated 3-Season Hidden Gem Becomes an Instant Streaming Hit After New Episodes
+
+TV, Survival of the Thickest
+
+Fri, 03 Jul 2026 21:00:12 GMT
+
+https://www.cbr.com/survival-of-the-thickest-season-3-netflix-streaming-return/
+
+Netflix's underrated dramedy returns for its third season as an instant streaming hit.
+---------
+
+# 6 Forgotten Movie Trilogies That Are Worth Watching From Start to Finish
+
+Movie, Before Midnight, Rosemary's Baby, Election, Ingmar Bergman
+
+Fri, 03 Jul 2026 21:59:13 GMT
+
+https://collider.com/forgotten-movie-trilogies-worth-watching-start-to-finish/
+
+From crime thrillers to realistic romances, these trilogies have been forgotten.
+---------
+
+# 3 Must-Watch Prime Video Movies To Stream This Weekend (July 4-5)
+
+Movie, The Sheep Detectives, Legally Blonde, Prime Video, Superman
+
+Fri, 03 Jul 2026 21:49:13 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-july-4-2026/
+
+Legally Blonde, Superman, and The Sheep Detectives make up our list of the best Prime Video movies to stream the weekend of July 4th, 2026.
+---------
+
+# The Clint Eastwood 2018 Movie Everyone Hated Has a Secret Strength
+
+Movie Features, Clint Eastwood, The 15:17 to Paris, American Sniper, Midnight In The Garden Of Good And Evil
+
+Fri, 03 Jul 2026 21:35:13 GMT
+
+https://collider.com/clint-eastwood-the-15-17-to-paris/
+
+Clint Eastwood’s The 15:17 to Paris took a bold gamble by casting real heroes. Explore why the divisive biopic still works.
+---------
+
+# Netflix’s 8-Part Hidden Gem Is the Smartest Sci-Fi Drama Since ‘Black Mirror’
+
+TV Features, Netflix, Osmosis, Black Mirror, Sci-Fi
+
+Fri, 03 Jul 2026 21:24:13 GMT
+
+https://collider.com/netflix-best-sci-fi-since-black-mirror-osmosis-miniseries/
+
+Netflix’s forgotten sci-fi series Osmosis is an underrated Black Mirror-style thriller about AI, love, and dangerous technology.
+---------
+
+# 10 Best Epic Movies of the 1980s
+
+Movie, Once Upon a Time in America, Ran, The Right Stuff, Scarface
+
+Fri, 03 Jul 2026 21:05:14 GMT
+
+https://collider.com/best-epic-movies-1980s-ranked/
+
+The best epic movies released in the 1980s include masterpieces like The Right Stuff, Once Upon a Time in America, and The Last Temptation of Christ.
+---------
+
+# Only 3 Movies Are More Perfect Than 'The Godfather'
+
+Movie, The Godfather, Casablanca, Citizen Kane, Seven Samurai
+
+Fri, 03 Jul 2026 20:50:14 GMT
+
+https://collider.com/movies-more-perfect-than-the-godfather/
+
+Can any film truly surpass The Godfather? These three cinematic masterpieces make a compelling case through ambition and artistry.
+---------
+
+# Flawless 100% Rated War Epic Is Officially One of the Biggest Shows on Streaming
+
+TV News, SAS: Rogue Heroes, Hot on Streaming, Action
+
+Fri, 03 Jul 2026 21:30:20 GMT
+
+https://movieweb.com/sas-rogue-heroes-war-streaming-success-mgm-july-2026/
+
+The 100% Rotten Tomatoes-rated World War II action series 'SAS: Rogue Heroes' is a major streaming success on MGM+ before Season 3.
+---------
+
+# 8 Classic Kung Fu Movies With 10/10 Action That Are Free To Stream
+
+Movie Lists, Martial Arts, Streaming Recommendations, Action, Tubi
+
+Fri, 03 Jul 2026 21:00:18 GMT
+
+https://movieweb.com/classic-kung-fu-action-movies-free-stream/
+
+These action-packed kung fu classics are 100% free to stream right now!
+---------
+
 # Netflix’s Enola Holmes 3 Gave Millie Bobby Brown One Of Her Biggest Career Changes Yet
 
 Movies, Enola Holmes 3, Enola Holmes, Sherlock Holmes, Netflix
