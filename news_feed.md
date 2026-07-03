@@ -1,3 +1,333 @@
+# 6 Reasons Why Will Smith's Independence Day Is Still Great 30 Years Later
+
+Movies, Independence Day, Will Smith
+
+Fri, 03 Jul 2026 17:45:21 GMT
+
+https://screenrant.com/independence-day-movie-30-year-anniversary/
+
+Independence Day has officially turned 30 years old, and this Roland Emmerich classic has six major reasons why it's still great today.
+---------
+
+# HBO’s Harry Potter Series Will Finally Fix Harry’s Magic In Sorcerer’s Stone
+
+Streaming TV, Harry Potter, Harry Potter - Season 1
+
+Fri, 03 Jul 2026 17:30:20 GMT
+
+https://screenrant.com/harry-potter-hbo-fix-magic-sorcerers-stone/
+
+HBO's Harry Potter TV series can address inconsistencies in magic, particularly Harry's abilities, compared to the books in Sorcerer's Stone.
+---------
+
+# 3 Best Movies To Watch On Disney+ This Weekend (July 4-5)
+
+Movies, Disney+, Recommendation
+
+Fri, 03 Jul 2026 17:20:21 GMT
+
+https://screenrant.com/best-disney-plus-movies-watch-weekend-july-4/
+
+The best movies on Disney+ this weekend are an animated global hit, one of the best Marvel movies, and a space opera that dominated theaters.
+---------
+
+# 35 Years Later, Terminator 2: Judgment Day Is Still The Best Terminator Movie
+
+Movies, Terminator 2: Judgment Day, Terminator
+
+Fri, 03 Jul 2026 17:15:20 GMT
+
+https://screenrant.com/terminator-2-judgement-day-best-terminator-movie/
+
+Terminator 2: Judgment Day has officially hit its 35th anniversary, and it's still easily the best film in the Terminator franchise to date.
+---------
+
+# Interview With The Vampire’s Future After Genre-Changing Vampire Lestat Clarified By AMC Boss
+
+TV, Interview with the Vampire
+
+Fri, 03 Jul 2026 17:06:16 GMT
+
+https://screenrant.com/interview-with-the-vampire-season-4-update-dan-mcdermott/
+
+The future of Interview with the Vampire just got a clarifying update after season 3, thanks to a direct response from AMC's Chief Content Officer.
+---------
+
+# Fast & Furious 11 Is Officially Filming As Vin Diesel Shares “Amazing Finale” Set Video
+
+Movies, Fast Forever, Fast & Furious, Vin Diesel
+
+Fri, 03 Jul 2026 17:05:11 GMT
+
+https://screenrant.com/fast-furious-11-filming-start-vin-diesel-set-video/
+
+Fast & Furious 11 is finally filming as Vin Diesel shares a set video teasing the "amazing finale" and thanking fans for their patience.
+---------
+
+# Shonen Jump Ends A Beloved Series By Breaking The Genre's Most Sacred Rule
+
+Anime, Shonen Jump, Masked Recs
+
+Fri, 03 Jul 2026 17:01:20 GMT
+
+https://screenrant.com/hima-ten-ending-break-shonen-jum-most-sacred-rule/
+
+This Shonen Jump manga broke all the rules.
+---------
+
+# Arnold Schwarzenegger’s 81% RT Sci-Fi Classic Secretly Unites 5 Star Trek Actors
+
+TV, Total Recall, Star Trek
+
+Fri, 03 Jul 2026 17:01:20 GMT
+
+https://screenrant.com/star-trek-actors-total-recall-arnold-schwarzenegger/
+
+Arnold Schwarzenegger's Total Recall is an all-time classic sci-fi action movie that happens to include nearly a half-dozen actors from Star Trek.
+---------
+
+# Mad Max: The Road Warrior Actor Dies At 76
+
+Movies, Mad Max 2: The Road Warrior, Mad Max
+
+Fri, 03 Jul 2026 16:57:58 GMT
+
+https://screenrant.com/kjell-nilsson-death-obituary/
+
+George Miller’s Mad Max sequel, The Road Warrior, came out 45 years ago in 1981. One of the stars has passed away after battling kidney disease.
+---------
+
+# Tom Holland’s Proper Spider-Man MCU Debut Is Climbing Netflix’s Charts At The Perfect Time
+
+Movies, Masked Recs
+
+Fri, 03 Jul 2026 16:42:31 GMT
+
+https://screenrant.com/tom-holland-spiderman-homecoming-netflix-streaming-success-july-2026/
+
+Tom Holland has played Spider-Man in several MCU films over the past decade, and now his first proper debut as the superhero is a hit on Netflix.
+---------
+
+# The Movie That Got Jeff Bridges Sent Back to Acting School
+
+Movies, jeff bridges, Fat City
+
+Fri, 03 Jul 2026 17:44:10 GMT
+
+https://www.cbr.com/the-movie-that-got-jeff-bridges-sent-back-to-acting-school/
+
+Jeff Bridges admits this role got him humbled by a Hollywood legend.
+---------
+
+# Marvel's Scariest Mutants Finally Make Their TV Debut
+
+TV, X-Men '97, Marvel Cinematic Universe, Disney+
+
+Fri, 03 Jul 2026 17:30:13 GMT
+
+https://www.cbr.com/marvel-x-men-97-season-2-apocalypse-horsemen-debut/
+
+X-Men '97 Season 2's premiere episode finally marked the first appearance of some of Marvel's scariest mutant villains.
+---------
+
+# 10 Fantasy Anime Series That Are Perfectly Written
+
+Anime, Frieren: Beyond Journey's End, Made in Abyss, Fantasy
+
+Fri, 03 Jul 2026 17:15:12 GMT
+
+https://www.cbr.com/fantasy-anime-series-perfectly-written/
+
+These anime balance rich lore, compelling characters, and thoughtful storytelling with remarkable consistency.
+---------
+
+# Kjell Nilsson, Lord Humungus in Mad Max 2: The Road Warrior, Dies at 76
+
+Movies, obituary
+
+Fri, 03 Jul 2026 17:00:26 GMT
+
+https://www.cbr.com/kjell-nilsson-dead/
+
+Swedish actor Kjell Nilsson, best known for his role as Lord Humungus in the original Mad Max movie, has passed away.
+---------
+
+# Scott Snyder Teases Massive Batman Reunion, Sending Fans Into a Frenzy
+
+Comics, Batman, DC Comics, The New 52
+
+Fri, 03 Jul 2026 17:00:13 GMT
+
+https://www.cbr.com/scott-snyder-greg-capullo-team-up-teased/
+
+One of the most critically acclaimed creative teams might just be returning to Batman for an all-new entry in DC Comics' Absolute Universe.
+---------
+
+# Fullmetal Alchemist's New Limited-Edition Seiko Watch Goes International
+
+Anime, Fullmetal Alchemist, merchandise
+
+Fri, 03 Jul 2026 17:00:13 GMT
+
+https://www.cbr.com/fullmetal-alchemist-edward-elric-seiko-watch-international-release/
+
+One of the hottest pieces of collectible Fullmetal Alchemist gear is finally available for international buyers, assuming they can get one.
+---------
+
+# Christian Bale, Leonardo DiCaprio Officially Teaming for Sequel to 30-Year-Old Crime Epic
+
+Movies, Heat 2, Crime
+
+Fri, 03 Jul 2026 16:58:44 GMT
+
+https://www.cbr.com/heat-2-christian-bale-leonardo-dicaprio-production-start/
+
+Christian Bale and Leonardo DiCaprio will finally make a movie together, and filming starts soon.
+---------
+
+# Say Goodbye to a Major Streaming Service as Prime Video's Official Phaseout Continues
+
+TV, Prime Video
+
+Fri, 03 Jul 2026 16:52:25 GMT
+
+https://www.cbr.com/prime-video-ad-free-phaseout-ultra-reminder/
+
+The streamer just reminded subscribers of one of the biggest changes to its services.
+---------
+
+# Lupita Nyong’o Addresses Her Odyssey Casting: ‘I Was Stunned’
+
+Movies, The Odyssey, Christopher Nolan, lupita nyong'o, jon bernthal
+
+Fri, 03 Jul 2026 16:23:26 GMT
+
+https://www.cbr.com/lupita-nyongo-the-odyssey-casting-confession/
+
+Lupita Nyong'o plays both Helen of Troy and her sister, Clytemnestra, in The Odyssey.
+---------
+
+# 'Peaky Blinders' Officially Returns Next Month, But There’s a Catch
+
+TV News, Peaky Blinders, Peaky Blinders: The Immortal Man, Cillian Murphy, Steven Knight
+
+Fri, 03 Jul 2026 17:46:58 GMT
+
+https://collider.com/peaky-blinders-underworld-experience-london-august-2026/
+
+Peaky Blinders Underworld brings Tommy Shelby’s world to London Bridge this August, ahead of the upcoming Peaky Blinders spin-off series.
+---------
+
+# Christopher Nolan Reveals What J.J. Abrams and Zack Snyder Wanted to Take From 'The Dark Knight'
+
+Exclusives, Christopher Nolan, J.J. Abrams, Zack Snyder, The Dark Knight
+
+Fri, 03 Jul 2026 17:41:10 GMT
+
+https://collider.com/jj-abrams-zack-snyder-the-dark-knight-imax-lens-christopher-nolan/
+
+Christopher Nolan says a rare custom IMAX lens he used on The Dark Knight became so valuable that J.J. Abrams and Zack Snyder wanted to borrow it.
+---------
+
+# J.R.R. Tolkien’s Rare ‘Hobbit’ Book Officially Sells for $50,000
+
+Books and Comics News, The Hobbit, J.R.R. Tolkien, The Lord of the Rings, Fantasy
+
+Fri, 03 Jul 2026 17:30:14 GMT
+
+https://collider.com/first-edition-hobbit-jrr-tolkien-novel-50000-dollars-auction/
+
+A first-edition copy of J.R.R. Tolkien's The Hobbit was sold at an auction after being donated to Oxfam along with a pile of other books.
+---------
+
+# This 2026 Best-Selling Graphic Novel Could Be TV’s Next Great American Series
+
+Books and Comics, The Copenhagen Test, Future Man, Lucky Hank, PBS Kids
+
+Fri, 03 Jul 2026 17:28:14 GMT
+
+https://collider.com/mixed-feelings-graphic-novel-sara-amini-best-seller-tv-series-opinion/
+
+Sara Amini's Mixed Feelings has become one of the best selling graphic novels of 2026, and is perfect for a television adaptation.
+---------
+
+# Marvel Officially Brings Back Fan-Favorite Villain With New Costume Reveal
+
+Movie News, The Falcon and the Winter Soldier, Daniel Brühl, Captain America: Civil War, Avengers: Doomsday
+
+Fri, 03 Jul 2026 17:14:45 GMT
+
+https://collider.com/daniel-bruhl-baron-zemo-marvel-promo-new-costume/
+
+Daniel Brühl is back as Baron Zemo in a new Marvel promo, giving the MCU villain a comic-accurate purple costume.
+---------
+
+# Mad Max Franchise Icon Dead at 76
+
+Movie News, Obituary, Mad Max 2: The Road Warrior, Action, Science Fiction
+
+Fri, 03 Jul 2026 17:09:17 GMT
+
+https://collider.com/mad-max-2-the-road-warrior-lord-humungus-actor-kjell-nilsson-dead-at-76/
+
+Kjell Nilsson, best known as Lord Humungus in Mad Max 2, has died at the age of 76. Read on for more details.
+---------
+
+# 10 Best Movie Shootouts of All Time
+
+Movie, Heat, Hard Boiled, The Matrix, Scarface
+
+Fri, 03 Jul 2026 17:04:15 GMT
+
+https://collider.com/best-movie-shootouts-all-time-ranked/
+
+The best shootouts in cinema history can be found in masterpieces like The Untouchables, The Wild Bunch, and The Good, the Bad and the Ugly.
+---------
+
+# MCU Icon Officially Takes on Lord Voldemort in New Harry Potter Offshoot
+
+Books and Comics News, Harry Potter, Harry Potter and the Sorcerer's Stone, Audible
+
+Fri, 03 Jul 2026 16:41:17 GMT
+
+https://collider.com/harry-potter-audiobook-lord-voldemort-cast-daniel-bruhl/
+
+Daniel Brühl has been cast as Lord Voldemort in a new set of Harry Potter full-cast audiobooks, which begin releasing this November.
+---------
+
+# Leonardo DiCaprio's Long-Awaited Action Thriller Sequel Officially Moving Forward
+
+Movie News, Heat 2, Leonardo DiCaprio, Heat
+
+Fri, 03 Jul 2026 17:20:18 GMT
+
+https://movieweb.com/leonardo-dicaprio-christian-bale-heat-2-confirmed/
+
+Leonardo DiCaprio will be joined by Christian Bale in the long-awaited 'Heat' sequel.
+---------
+
+# HBO's Masterpiece Beats 'Band of Brothers' as the Greatest War Series of All Time
+
+Features
+
+Fri, 03 Jul 2026 17:00:20 GMT
+
+https://movieweb.com/hbo-generation-kill-beats-band-of-brothers/
+
+'Band of Brothers' is undoubtedly a masterpiece, but that doesn't mean it's undisputed as the war series GOAT.
+---------
+
+# Every New Movie and TV Show Coming to Prime Video in July 2026
+
+Features, Prime Video
+
+Fri, 03 Jul 2026 16:30:18 GMT
+
+https://movieweb.com/prime-video-new-movie-tv-july-2026/
+
+Prime brings one of the greatest Westerns of all time to streaming, and the anticipated 'Legally Blonde' prequel makes its series debut.
+---------
+
 # Red Dead Redemption 2 Meets Valheim In New Open-World RPG
 
 Gaming, Red Dead Redemption 2
