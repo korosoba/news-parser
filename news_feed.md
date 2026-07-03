@@ -1,3 +1,278 @@
+# Pokémon Victory Will Take Us To A Brand-New Region
+
+Gaming, Pokemon, Triple-A Games
+
+Fri, 03 Jul 2026 23:00:21 GMT
+
+https://screenrant.com/pokemon-victory-fan-game-new-region/
+
+If you've been wanting to check out a brand-new region in Pokémon before Winds and Waves hits, you may want to try out Pokémon Victory.
+---------
+
+# Webtoon's #1 Thriller Is Only 20 Chapters and Already A Masterpiece
+
+Anime, Webtoon, Masked Recs
+
+Fri, 03 Jul 2026 23:00:21 GMT
+
+https://screenrant.com/i-dare-you-webtoon-biggest-thriller/
+
+Forget the action-packed mainstream hits, Webtoon's new #1 series is a high school psychological thriller, and it's as dark as they come.
+---------
+
+# 2026’s Most Tragic Doomed Yuri Is Here And You Don’t Want To Miss Crunchyroll's Sneak Peek
+
+Anime, Crunchyroll, Anime Expo
+
+Fri, 03 Jul 2026 22:50:45 GMT
+
+https://screenrant.com/crunchyroll-doomed-yuri-love-you-till-your-dying-day-sneak-peek/
+
+The most tragic doomed yuri anime in years is finally here, and this stunning Crunchyroll sneak peek proves that you do not want to miss it.
+---------
+
+# 1 Year Later, KPop Demon Hunters' Best Song Is Still Better Than Anything Disney Has Made
+
+Movies, KPop Demon Hunters
+
+Fri, 03 Jul 2026 22:30:21 GMT
+
+https://screenrant.com/kpop-demon-hunters-best-song-better-than-disney/
+
+A year later, the best song from KPop Demon Hunters — the Oscar-winning "Golden" — still puts everything Disney has ever done to shame.
+---------
+
+# Marvel Officially Reveals New Origin of Doctor Doom's Codename
+
+Comics, Doctor Doom
+
+Fri, 03 Jul 2026 22:30:21 GMT
+
+https://screenrant.com/doctor-doom-codename-origin-change/
+
+Doctor doctor
+---------
+
+# Chris Pratt Praises Epic New War Movie Releasing This Weekend As "Braveheart For Americans"
+
+Movies, Young Washington, Chris Pratt
+
+Fri, 03 Jul 2026 22:14:16 GMT
+
+https://screenrant.com/chris-pratt-young-washington-movie-review-praise/
+
+After starring in the biggest film of 2026 so far, Chris Pratt is urging his fans to go see a new war movie that he’s comparing to Braveheart.
+---------
+
+# Spider-Man: Brand New Day's New MJ Fixes The MCU's Zendaya Mistake
+
+Movies, Spider-Man: Brand New Day
+
+Fri, 03 Jul 2026 22:07:20 GMT
+
+https://screenrant.com/spider-man-brand-new-day-mj-different-character/
+
+Spider-Man: Brand New Day is about to make the MCU's MJ a much more interesting character, and it'll finally give Zendaya something to work with.
+---------
+
+# Say Goodbye To House Of The Dragon As HBO's Biggest Fantasy Event Of The Decade Is Almost Here
+
+Streaming TV, Masked Recs
+
+Fri, 03 Jul 2026 22:00:20 GMT
+
+https://screenrant.com/harry-potter-hbo-fantasy-event-house-of-the-dragon/
+
+House of the Dragon is the biggest fantasy event on HBO right now, but that will all change this holiday season when the Harry Potter show premieres.
+---------
+
+# Halo As We Know It May Be Over Forever
+
+Gaming, Halo, Triple-A Games
+
+Fri, 03 Jul 2026 22:00:20 GMT
+
+https://screenrant.com/halo-future-evaluation-xbox/
+
+Not every franchise lasts 25 years as Halo has, but according to a new report, Xbox could be changing it forever amid reorganization efforts.
+---------
+
+# Netflix's 8-Part Harlan Coben Crime Series Gets Replaced by New True Crime Docuseries
+
+TV, Worst Neighbor Ever, Netflix, Crime
+
+Fri, 03 Jul 2026 23:00:13 GMT
+
+https://www.cbr.com/worst-neighbor-ever-true-crime-docuseries-netflix-success-july-2026/
+
+Harlan Coben's crime miniseries has been dominating charts, but Netflix's Worst Neighbor Ever is now the most-watched show in the US.
+---------
+
+# It's Officially a New Era For NCIS: Los Angeles in 2026
+
+TV, NCIS, NCIS: Los Angeles, CBS
+
+Fri, 03 Jul 2026 23:00:13 GMT
+
+https://www.cbr.com/cbs-ncis-los-angeles-revival-2026/
+
+CBS officially signals an NCIS: Los Angeles revival in 2026 after the franchise's second spinoff ended in 2023 due to network spending cuts.
+---------
+
+# Star Trek: The Original Series Officially Returns With New Release in 2026
+
+TV, Star Trek: The Original Series, Star Trek, Sci-Fi
+
+Fri, 03 Jul 2026 22:07:03 GMT
+
+https://www.cbr.com/star-trek-the-original-series-60th-anniversary-amazon-exclusive-blu-ray/
+
+The original Star Trek is back at the perfect time.
+---------
+
+# Alex Garland's Dystopian War Masterpiece Heads to Free Streaming at the Right Time
+
+Movies, Civil War, War
+
+Fri, 03 Jul 2026 22:00:12 GMT
+
+https://www.cbr.com/civil-war-movie-streaming-free-pluto-tv-july-2026/
+
+Time for Independence Day counterprogramming.
+---------
+
+# 10 Supporting Supergirl Characters Missing From the DCU Movie
+
+Comics, DC Comics, DCU
+
+Fri, 03 Jul 2026 22:00:12 GMT
+
+https://www.cbr.com/supporting-supergirl-characters-missing-dcu-movie/
+
+It's not too late for these fan-favorite characters to appear in other DC Universe movies or shows.
+---------
+
+# Prime Video’s Prequel to a 25-Year-Old Classic Becomes an Instant Streaming Obsession
+
+TV News, Prime Video, Elle, Comedy, Legally Blonde
+
+Fri, 03 Jul 2026 23:00:14 GMT
+
+https://collider.com/prime-video-legally-blonde-prequel-elle-streaming-success-july-2026/
+
+Prime Video’s surprise prequel series races to No. 1 in the U.S. and dominates charts in more than 50 countries worldwide.
+---------
+
+# This '80s Fantasy Masterpiece Did 'Game of Thrones' Decades Before HBO
+
+Movie Features, Excalibur, Fantasy, Game Of Thrones, King Arthur
+
+Fri, 03 Jul 2026 22:49:13 GMT
+
+https://collider.com/excalibur-1981-dark-fantasy-movie-before-game-of-thrones/
+
+John Boorman's Excalibur redefined Arthurian fantasy with brutal medieval combat, surreal visuals, and Game of Thrones-style moral complexity.
+---------
+
+# One of the Biggest Video Game Movies Ever Is Making a Streaming Comeback
+
+Movie News, Sonic the Hedgehog, Sega, Video Game, Pluto TV
+
+Fri, 03 Jul 2026 22:45:12 GMT
+
+https://collider.com/sonic-the-hedgehog-free-streaming-success-pluto-tv-july-2026/
+
+Sonic the Hedgehog, the successful sci-fi video game adaptation, is making a comeback on free streaming.
+---------
+
+# 10 Best Netflix Original Shows Based on True Stories, Ranked
+
+TV, Netflix, Narcos, Maid, When They See Us
+
+Fri, 03 Jul 2026 22:44:12 GMT
+
+https://collider.com/netflix-shows-based-on-true-stories-ranked/
+
+Dive into the top Netflix original shows inspired by real events, offering gripping storytelling and powerful performances, from Narcos to Maid.
+---------
+
+# The Best Horror Movie of the Year Dethrones Ryan Gosling's Sci-Fi Adventure
+
+Movie News, Obsession, Project Hail Mary, Ryan Gosling, Horror
+
+Fri, 03 Jul 2026 22:30:14 GMT
+
+https://collider.com/prime-video-obsession-overtakes-project-hail-mary-streaming-success-july-2026/
+
+The horror flick Obsession, produced by Blumhouse and directed by Curry Barker, has quickly risen to the top spot on Prime Video's domestic charts.
+---------
+
+# 'Superman's Mr. Terrific Spin-Off Series Is Officially Happening
+
+TV News, Superman, Edi Gathegi, Allan Heinberg, DC Comics
+
+Fri, 03 Jul 2026 22:18:15 GMT
+
+https://collider.com/superman-spin-off-mr-terrific-series-sandman-writer-allan-heinberg/
+
+DC has reportedly found a writer for its upcoming Superman spin-off series in the showrunner of Netflix's The Sandman.
+---------
+
+# The Best WWII Movie You Haven’t Seen Quietly Becomes Massive #1 Streaming Hit
+
+Movie News, Sisu: Road to Revenge, HBO Max, Stephen Lang, Sisu
+
+Fri, 03 Jul 2026 22:15:13 GMT
+
+https://collider.com/ww2-john-wick-replacement-sisu-2-road-to-revenge-streamming-success-hbo-max-july-2026/
+
+The John Wick-style WW2 movie that took the world by storm in 2025 is quietly becoming a massive streaming success on HBO Max.
+---------
+
+# Taylor Sheridan's 'Marshals' Officially Unveils First Look at Season 2
+
+TV News, Marshals, Taylor Sheridan, Paramount Plus, Yellowstone
+
+Fri, 03 Jul 2026 22:00:13 GMT
+
+https://collider.com/taylor-sheridan-marshals-season-2-teaser-trailer/
+
+Taylor Sheridan's smash hit Yellowstone spin-off, Marshals, has unveiled a new look at Season 2 ahead of its anticipated fall premiere.
+---------
+
+# 137-Minute 'Reacher Meets Die Hard' Action Thriller Rises Again on Streaming
+
+Movie News, White House Down, Hot on Streaming, Action, Reacher
+
+Fri, 03 Jul 2026 23:00:19 GMT
+
+https://movieweb.com/white-house-down-action-streaming-success-sony-july-2026/
+
+Channing Tatum's Die Hard/Reacher-esque action thriller 'White House Down' is a streaming success on Sony Pictures Core.
+---------
+
+# New 'G.I. Joe' Movie Finally Sets Up a Fan-Favorite Character After 40 Years
+
+Features, G.I. Joe, G.I. Joe 3, G.I. Joe: The Rise of Cobra, Danny McBride
+
+Fri, 03 Jul 2026 23:00:19 GMT
+
+https://movieweb.com/gi-joe-movie-character-serpentor/
+
+Danny McBride wrote a new 'G.I. Joe' movie, and the details may hint at the live-action debut of a fan-favorite character.
+---------
+
+# A 5-Part Sci-Fi Thriller Nobody Remembers Is So Weird, You’ll Watch It All Weekend
+
+Features, iZombie
+
+Fri, 03 Jul 2026 22:00:19 GMT
+
+https://movieweb.com/izombie-sci-fi-thriller-binge-watch/
+
+A five-season science-fiction thriller TV series aired several years ago that tells a memorable story and features a talented cast.
+---------
+
 # James Gunn & DC’s Creative Battle For Supergirl Movie Revealed In Damning New Report
 
 Movies, Supergirl, DC Universe
