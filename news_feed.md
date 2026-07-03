@@ -1,3 +1,311 @@
+# Why Full House Recast Danny Tanner After The Pilot Episode
+
+Classic TV, Full House
+
+Fri, 03 Jul 2026 14:30:22 GMT
+
+https://screenrant.com/full-house-danny-recast-bob-saget-john-posey/
+
+The original unaired pilot for Full House starred John Posey as Danny Tanner. Here's why he was replaced by Bob Saget for the rest of the show.
+---------
+
+# 8 Years Later, Johnny Lawrence's Best Line Is Still The Greatest Quote In Karate Kid History
+
+Classic TV, Cobra Kai
+
+Fri, 03 Jul 2026 14:30:20 GMT
+
+https://screenrant.com/cobra-kai-johnny-lawrence-best-line-karate-kid-history/
+
+8 years after he said it, Johnny Lawrence's best line remains one of the greatest quotes in The Karate Kid franchise, and a thematic statement.
+---------
+
+# DC Officially Locks Down a Modern Classic Comic You Can't Afford to Miss
+
+Comics, DC
+
+Fri, 03 Jul 2026 14:30:20 GMT
+
+https://screenrant.com/absolute-martian-manhunter-ending-review/
+
+Absolutely a classic.
+---------
+
+# 1 Major Five Nights At Freddy's 3 Change Could Make It The Best Film In The Series
+
+Movies, Five Nights at Freddy's 3, Five Nights at Freddy's
+
+Fri, 03 Jul 2026 14:30:20 GMT
+
+https://screenrant.com/five-nights-freddys-3-change-best-film-series/
+
+Five Nights at Freddy's 3 is switching things up compared to the films that came before, and it could make it the franchise's best film yet.
+---------
+
+# Romería Review: Moving Family Drama Finds Strength In Its Subtlety
+
+New Movies, Romería
+
+Fri, 03 Jul 2026 14:22:22 GMT
+
+https://screenrant.com/romeria-movie-review/
+
+Carla Simón’s Romería is a powerful family drama that centers on identity, grief, and the difficult truths we uncover when searching for the past.
+---------
+
+# New Pirate Fantasy Novel Getting TV Adaptation Ahead Of Official Publication
+
+TV
+
+Fri, 03 Jul 2026 14:22:03 GMT
+
+https://screenrant.com/tempest-tv-adaptation-victoria-aveyard-pirate-fantasy/
+
+A new pirate TV show based on an upcoming fantasy novel is coming to the small screen, with Chernin Entertainment securing the screen rights.
+---------
+
+# The Best Translation Of The Odyssey To Read Before Christopher Nolan's New Movie Releases
+
+Movies, The Odyssey
+
+Fri, 03 Jul 2026 14:15:20 GMT
+
+https://screenrant.com/the-odyssey-best-translation-read-before-christopher-nolan-movie/
+
+Christopher Nolan adapts a centuries-old epic poem in The Odyssey, one that has been translated numerous times with varying levels of accessibility.
+---------
+
+# 56 Years Later, Stan Lee's Greatest Line Remains The Best Quote In Comic Book History
+
+Comics, Stan Lee
+
+Fri, 03 Jul 2026 14:02:34 GMT
+
+https://screenrant.com/stan-lee-best-quote-world-needs-superheroes/
+
+Stan Lee on the importance of superheroes.
+---------
+
+# One Piece Episode #1169 Release Date And Time
+
+Anime, One Piece
+
+Fri, 03 Jul 2026 14:00:21 GMT
+
+https://screenrant.com/one-piece-episode-1169-release-date-time/
+
+One Piece goes on a break with another banger.
+---------
+
+# Dutton Ranch Season 2: Confirmation, Cast, Story & Everything We Know
+
+TV, Yellowstone, Dutton Ranch
+
+Fri, 03 Jul 2026 14:00:21 GMT
+
+https://screenrant.com/dutton-ranch-season-2-confirmation-cast-story-updates/
+
+After season 1's explosive finale, Beth and Rip are set to return in Dutton Ranch season 2. Here's what we know about what's coming up next.
+---------
+
+# 9 Times Hunter x Hunter Refused to Give Fans What They Wanted
+
+Anime, Hunter X Hunter
+
+Fri, 03 Jul 2026 14:15:13 GMT
+
+https://www.cbr.com/hunter-x-hunter-most-subversive-moments/
+
+Hunter X Hunter is one of the most unique shonen battle anime ever, often going out of its way to subvert audience expectations.
+---------
+
+# Silo Season 3 Cast Reveal Why Everything Changes
+
+TV, Silo
+
+Fri, 03 Jul 2026 14:15:13 GMT
+
+https://www.cbr.com/video/silo-season-3-cast-reveal-why-everything-changes/
+
+Silo Season 3 finally starts answering some of the series' biggest mysteries, and Common and Alexandria Riley explain why this season changes everything for Robert and Camille Sims.
+---------
+
+# 10 Best Far Side Comics Set in Movie Theaters
+
+Comics, The Far Side
+
+Fri, 03 Jul 2026 14:01:14 GMT
+
+https://www.cbr.com/best-far-side-comics-set-in-movie-theaters/
+
+Gary Larson set quite a few The Far Side comics in movie theaters, and they are among some of the most relatable and hilarious strips in the series.
+---------
+
+# Disney’s $1.7 Billion Franchise Officially Returning With Original Series Sequel After Remake
+
+Movies, Moana, Moana 2
+
+Fri, 03 Jul 2026 13:37:10 GMT
+
+https://www.cbr.com/disney-moana-3-in-develoment-dwayne-johnson/
+
+The hit franchise will sail again after the upcoming remake.
+---------
+
+# The Greatest DBZ Vegeta Quote Proves He's the Best Shonen Villain
+
+Anime, Vegeta, Dragon Ball Z, Dragon Ball
+
+Fri, 03 Jul 2026 13:15:13 GMT
+
+https://www.cbr.com/dbz-best-vegeta-quote-greatest-shonen-villain/
+
+Dragon Ball's Vegeta experiences a profound morality crisis which culminates in a dark speech that solidifies his status as shonen's best villain.
+---------
+
+# The Best Thriller From Every Year of the 2010s
+
+Movies, Thriller
+
+Fri, 03 Jul 2026 13:01:13 GMT
+
+https://www.cbr.com/best-thrillers-every-year-2010s-list/
+
+The 2010s gave audiences some great films, but the thrillers from this decade were some of the best.
+---------
+
+# Critical Role Star Eyes 'Dungeon Crawler Carl’ TV Series Role
+
+Exclusives, Ladies Night, Dungeon Crawler Carl, Laura Bailey, Marisha Ray
+
+Fri, 03 Jul 2026 14:10:26 GMT
+
+https://collider.com/dungeon-crawler-carl-tv-series-critical-role-marisha-ray/
+
+During Collider Ladies Night Live, Critical Role's Laura Bailey makes the perfect pitch for Peacock's upcoming Dungeon Crawler Carl show.
+---------
+
+# 3 Binge-Worthy Netflix Series To Watch This Weekend (July 4-5)
+
+TV, Interview with the Vampire, Bloodline, Survival of the Thickest, Netflix
+
+Fri, 03 Jul 2026 12:41:13 GMT
+
+https://collider.com/netflix-shows-binge-weekend-july-4/
+
+Survival of the Thickest, Bloodline, and Interview With the Vampire make up our list of the best Netflix shows to binge the weekend of July 4th, 2026.
+---------
+
+# After 12 Years, Marvel Finally Brings Back a Major Villain
+
+TV News, X-Men '97, Eternals, Guardians of the Galaxy, Marvel
+
+Fri, 03 Jul 2026 12:38:11 GMT
+
+https://collider.com/x-men-97-season-2-celestial-eson-eternals-connection/
+
+Following the unexpected appearance of Kang the Conqueror, another Marvel villain has been teased in X-Men '97.
+---------
+
+# 'Spider-Man: Brand New Day' Teased a Major Daredevil Crossover in Plain Sight
+
+Movie Features, Spider-Man: Brand New Day, Spider-Man, Daredevil, MCU
+
+Fri, 03 Jul 2026 12:24:14 GMT
+
+https://collider.com/spider-man-brand-new-day-daredevil-kingpin-punisher-spider-man-5/
+
+A secret Marvel villain in Spider-Man: Brand New Day could tie into Daredevil: Born Again.
+---------
+
+# Apple's 127-Minute Original Action Sci-Fi Epic Is Officially One of the Biggest Streaming Hits Ever
+
+Movie News, Apple TV, Miles Teller, Anya Taylor-Joy, Action, Sci-Fi, The Gorge
+
+Fri, 03 Jul 2026 14:30:18 GMT
+
+https://movieweb.com/apple-tv-gorge-most-watched-ever-stream-action-sci-fi/
+
+The world's most dangerous secret lies between them.
+---------
+
+# Brendan Fraser’s 2026 World War II Epic Has Already Set a New Release Date
+
+Movie News, Pressure, Brendan Fraser
+
+Fri, 03 Jul 2026 14:29:23 GMT
+
+https://movieweb.com/brendan-fraser-pressure-4k-blu-ray-release/
+
+Brendan Fraser's WWII thriller 'Pressure' lands on 4K, Blu-ray, and DVD July 28, just weeks after its digital release.
+---------
+
+# Original 'Chicago P.D.' Star Officially Exiting Crime Series After 13 Years
+
+TV News, Chicago P.D.
+
+Fri, 03 Jul 2026 14:26:22 GMT
+
+https://movieweb.com/chicago-pd-laroyce-hawkins-exiting-season-14/
+
+A 'Chicago P.D.' star is leaving the NBC crime drama after 13 years, marking another major shift for the Intelligence Unit ahead of Season 14.
+---------
+
+# 'The Raid' Icon Breaks Bad in Trailer for New High-Flying Action Thriller
+
+Movie News, Iko Uwais, Action, Thriller
+
+Fri, 03 Jul 2026 13:53:23 GMT
+
+https://movieweb.com/wings-dread-trailer-iko-uwais-action-thriller-stream/
+
+Iko Uwais goes head-to-head with fellow action icon Ashton Chen in 'Wings of Dread.'
+---------
+
+# Netflix Scores Big With Liam Neeson's 90-Minute Action Thriller Remake
+
+Movie News, Liam Neeson, Retribution, Hot on Streaming, Action, Netflix
+
+Fri, 03 Jul 2026 13:30:19 GMT
+
+https://movieweb.com/retribution-liam-neeson-action-netflix-streaming-hit-july-2026/
+
+Liam Neeson's intense 2023 action thriller has come from behind on Netflix to become a global smash.
+---------
+
+# 9 Perfect HBO Thriller Shows You Can Binge in One Weekend
+
+TV Lists, Thriller, HBO Max, TV Miniseries
+
+Fri, 03 Jul 2026 13:00:19 GMT
+
+https://movieweb.com/hbo-thrillers-binge-watch/
+
+If you're looking for a gripping TV show to binge-watch this weekend, look no further than these incredible HBO miniseries.
+---------
+
+# 164 Years Later, a Historical Epic Masterpiece Returns With a Major Twist in First Trailer
+
+Movie News, Les Misérables
+
+Fri, 03 Jul 2026 13:00:10 GMT
+
+https://movieweb.com/les-miserables-trailer-fred-cavaye-adaptation/
+
+The first trailer for Fred Cavayé’s 'Les Misérables' adaptation has been released, unveiling a very different take compared to the Hugh Jackman movie.
+---------
+
+# Taylor Sheridan Favorite's New War Thriller Hailed as "One of the Best Action Movies of the Year"
+
+Movie News, LaMonica Garrett, Action, Thriller, War
+
+Fri, 03 Jul 2026 12:11:24 GMT
+
+https://movieweb.com/man-of-war-best-action-thriller-stream-reviews/
+
+The "Rambo meets Taken" action outing is available to stream now.
+---------
+
 # Supergirl Cast: Meet the Stars of DCU's Upcoming Film
 
 Superheroes, DC Universe, Supergirl
