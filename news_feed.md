@@ -1,3 +1,366 @@
+# Supergirl Cast: Meet the Stars of DCU's Upcoming Film
+
+Superheroes, DC Universe, Supergirl
+
+Fri, 03 Jul 2026 12:00:22 GMT
+
+https://screenrant.com/supergirl-movie-cast-characters-confirmed/
+
+A stunning ensemble cast assembles for the hotly anticipated Supergirl film, but how will it connect to the larger DCU story after Superman?
+---------
+
+# 13 Years Ago, Dragon Ball Unveiled The One Alien Race Stronger Than Any Saiyan
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Fri, 03 Jul 2026 12:00:21 GMT
+
+https://screenrant.com/dragon-ball-angels-stronger-than-saiyans/
+
+The full potential of an alien race from Dragon Ball Super has yet to be showcased, hinting that even more intense battles could be on the horizon.
+---------
+
+# No One In House Of The Dragon Mourns The Real Victims Of The Targaryens’ War
+
+TV, Op-Ed, Game of Thrones, House of the Dragon
+
+Fri, 03 Jul 2026 12:00:21 GMT
+
+https://screenrant.com/house-of-the-dragon-real-victims-dragons/
+
+House of the Dragon season 3 has featured major character deaths, yet the Game of Thrones prequel continues to pay little heed to its unsung victims.
+---------
+
+# "The Jedi And The Sith Have Disappeared": Star Wars Kicks Off A New Era This August
+
+Streaming TV, Masked Recs, Star Wars
+
+Fri, 03 Jul 2026 11:54:31 GMT
+
+https://screenrant.com/star-wars-the-ninth-jedi-disney-new-era/
+
+A new Star Wars era starts next month, as the ancient conflict between the Jedi and the dark side rages on in a far-flung corner of the galaxy.
+---------
+
+# XBOX Game Pass Is Losing A Huge Number Of Games This Month
+
+Gaming, Xbox Game Pass, Xbox, Xbox Series X/S, PC
+
+Fri, 03 Jul 2026 11:52:51 GMT
+
+https://screenrant.com/xbox-game-pass-losing-12-games-july-2026/
+
+XBOX Game Pass subscribers may want to check out these games soon, as several unique titles are expected to be removed later this month.
+---------
+
+# Honkai Star Rail 4.4 Update: Release Date, Livestream Codes, New Characters, Banners, Fate Collab, & More
+
+Gaming, Honkai: Star Rail, PC, Live Service Games
+
+Fri, 03 Jul 2026 11:33:48 GMT
+
+https://screenrant.com/honkai-star-rail-44-release-codes-characters-banners/
+
+All the major details about Honkai: Star Rail 4.4 have been revealed by developer HoYoverse, including new characters, banners, and more.
+---------
+
+# Pokémon Winds & Waves Perfect New Region Name Unites Gamers
+
+Gaming, Pokemon Winds and Waves, Pokemon
+
+Fri, 03 Jul 2026 11:30:19 GMT
+
+https://screenrant.com/pokemon-winds-waves-new-region-name-speculation/
+
+Discover the inspiration behind Pokémon Winds & Waves' brand-new archipelago region, set to launch in 2027
+---------
+
+# Marvel Studios' Avengers Replacement Officially Becomes Worldwide Streaming Hit On Disney+
+
+TV, Masked Recs, Marvel Cinematic Universe, Disney+
+
+Fri, 03 Jul 2026 11:22:40 GMT
+
+https://screenrant.com/xmen-97-season-2-disney-plus-streaming-success-july-2026/
+
+One of Marvel Studios' biggest projects for 2026 has finally returned to Disney+, as it is already a worldwide streaming sensation after two days.
+---------
+
+# Disney Officially Announces The End Of An Era Arrives September 2026
+
+Gaming, Disney, Disney+, PC, RPG
+
+Fri, 03 Jul 2026 11:10:30 GMT
+
+https://screenrant.com/disney-pixel-rpg-ends-september-2026/
+
+Disney has officially announced the end of a long-running era will arrive later this summer, and it will be devastating news for many dedicated fans.
+---------
+
+# It's Officially A Brand-New Era For Nintendo
+
+Gaming, Nintendo
+
+Fri, 03 Jul 2026 11:04:12 GMT
+
+https://screenrant.com/nintend-new-ip-beyond-zelda-mario/
+
+Nintendo legend Shigeru Miyamoto has confirmed it's time for the beloved gaming company to try something new.
+---------
+
+# Daredevil: Born Again Season 3 Set Photos Officially Spoil a Major MCU Antihero’s Return
+
+TV, MCU, Daredevil: Born Again, superheroes
+
+Fri, 03 Jul 2026 12:00:12 GMT
+
+https://www.cbr.com/daredevil-born-again-season-3-set-photos-elektra-return/
+
+Another huge character from the Defenders Saga will return in the next season of Daredevil: Born Again--and this one is no hero.
+---------
+
+# The Dark Knight Returns Remake Celebrates Milestone Anniversary With A Creative Twist
+
+Comics, batman the dark knight returns, Batman
+
+Fri, 03 Jul 2026 12:00:12 GMT
+
+https://www.cbr.com/batman-the-dark-knight-returns-recreated-sdcc/
+
+The revolutionary Batman comic is coming back unlike you've ever seen it before.
+---------
+
+# Elden Ring: Rot & Sorcery Officially Arrives July 2027
+
+Games, Elden Ring, Tabletop
+
+Fri, 03 Jul 2026 11:58:13 GMT
+
+https://www.cbr.com/elden-ring-rot-sorcery-official-new-release-july-2027/
+
+It's almost time to explore The Lands Between again, as Elden Ring: Rot & Sorcery launches in July 2027, opening new paths to Caelid and Liurnia.
+---------
+
+# George RR Martin's 4-Part Neo-Western With 100% RT Is Replacing The Walking Dead
+
+TV, Dark Winds, The Walking Dead, AMC
+
+Fri, 03 Jul 2026 11:30:12 GMT
+
+https://www.cbr.com/george-rr-martin-neo-western-dark-winds-the-walking-dead-replacement/
+
+AMC's neo-Western crime drama Dark Winds has maintained a perfect RT score, surpassing The Walking Dead's legacy as the network's critical darling.
+---------
+
+# Square Enix Officially Reveals 2 New Final Fantasy Releases for 2027
+
+Games, Final Fantasy, Final Fantasy 7 Remake, final fantasy xiv
+
+Fri, 03 Jul 2026 11:10:12 GMT
+
+https://www.cbr.com/new-final-fantasy-releases-2027-square-enix-official/
+
+Square Enix has officially revealed the release date for two upcoming Final Fantasy novels, with one set in Eorzea and the other in Midgar.
+---------
+
+# 10 Things Invincible Gets Right That Other Superhero Comics Don't
+
+Comics, Invincible
+
+Fri, 03 Jul 2026 11:00:13 GMT
+
+https://www.cbr.com/things-invincible-does-better-than-other-superhero-comics/
+
+Is Invincible better than other superhero comics? It's a simple, undebatable claim to defend
+---------
+
+# The 8-Part Netflix Gothic Horror Series Stephen King Called a 10/10 Masterpiece
+
+TV, The Fall of the House of Usher, Netflix, Stephen King
+
+Fri, 03 Jul 2026 10:43:27 GMT
+
+https://www.cbr.com/netflix-the-fall-of-the-house-of-usher-stephen-king-praise/
+
+Even Stephen King thinks Netflix's adaptation of Edgar Allan Poe's classic gothic horror story is too good to miss.
+---------
+
+# The 3-Part Taylor Sheridan & Frank Grillo Team-Up That's Taking Over Mafia TV
+
+TV, Tulsa King, Frisco King
+
+Fri, 03 Jul 2026 10:00:12 GMT
+
+https://www.cbr.com/taylor-sheridan-frank-grillo-mafia-tv-series-tulsa-king-2026/
+
+Taylor Sheridan's three-part crime thriller is muscling its way onto the mafia television landscape, set to dominate the scene in 2026.
+---------
+
+# James McAvoy's Speak No Evil Remake Is Finally Getting the Love It Deserves
+
+Movies, Speak No Evil, Horror, james mcavoy
+
+Fri, 03 Jul 2026 10:00:12 GMT
+
+https://www.cbr.com/james-mcavoy-speak-no-evil-remake-paramount-plus-horror-gem/
+
+James McAvoy’s 110-minute psychological thriller remake of a Danish horror film is dominating platforms like Paramount+ and Peacock.
+---------
+
+# Landman Officially Confirms Billy Bob Thornton's Replacement
+
+TV, Landman, Paramount Plus
+
+Fri, 03 Jul 2026 09:55:59 GMT
+
+https://www.cbr.com/landman-season-2-cooper-norris-wolfcamp-project-manager/
+
+Landman Season 2 finally launched its replacement for Billy Bob Thornton's Tommy Norris, indelibly changing Taylor Sheridan's oil drama.
+---------
+
+# Move Over 'Born in the USA', This is the 4th of July’s Real Misunderstood Anthem
+
+Music Features, Forrest Gump, Music, Family Guy, Rock
+
+Fri, 03 Jul 2026 12:00:13 GMT
+
+https://collider.com/4th-of-july-misunderstood-creedence-clearwater-revival-fortunate-son/
+
+Creedence Clearwater Revival's Fortunate Son was made the poster song of war via movies like Forrest Gump, even when it's advocating for the opposite
+---------
+
+# 10 Most Unpredictable Movies of All Time
+
+Movie, Pulp Fiction, Everything Everywhere All at Once, Psycho, Paprika
+
+Fri, 03 Jul 2026 11:57:13 GMT
+
+https://collider.com/most-unpredictable-movies-all-time-ranked/
+
+If you're after some of the most unpredictable movies of all time, it's worth watching classics like Psycho, Pulp Fiction, and After Hours.
+---------
+
+# 7 Movies That Aged Unbelievably Poorly
+
+Movie, Soul Man, Revenge of the Nerds, Ace Ventura: Pet Detective, American Beauty
+
+Fri, 03 Jul 2026 11:45:13 GMT
+
+https://collider.com/movies-aged-unbelievably-poorly/
+
+These once-beloved hits haven't survived changing times and evolving audiences, with American Beauty and Love Actually aging the worst.
+---------
+
+# 10 Psychological Thrillers Without a Single Flaw
+
+Movie, Thriller, The Silence of the Lambs, Parasite, Diabolique
+
+Fri, 03 Jul 2026 11:36:13 GMT
+
+https://collider.com/psychological-thrillers-without-flaws/
+
+From modern Oscar-winning classics like Get Out to age-old masterpieces like Psycho, these psychological thrillers are perfect from start to finish.
+---------
+
+# The Beatles Had 20 No. 1 Hits but Their Saddest Song Never Reached No. 1
+
+Music Features, The Beatles, Paul McCartney, John Lennon, Rock, Music
+
+Fri, 03 Jul 2026 11:31:14 GMT
+
+https://collider.com/the-beatles-saddest-song-shes-leaving-home/
+
+The Beatles wrote 20 No. 1 hits, but their most heartbreaking song never became a chart-topping single from the landmark 1967 Sgt. Pepper album.
+---------
+
+# 10 Perfect HBO Shows With 20 Episodes or Less
+
+TV, HBO, Band of Brothers, John Adams, DTF St. Louis
+
+Fri, 03 Jul 2026 11:22:12 GMT
+
+https://collider.com/perfect-hbo-shows-shorter-than-20-episodes/
+
+Explore the best HBO series that tell their stories within 20 episodes, including short shows like The Rehearsal, Band of Brothers, and Watchmen.
+---------
+
+# 10 Best Thriller Movies of 2026 So Far
+
+Movie, Thriller, Backrooms, Obsession, The Death of Robin Hood
+
+Fri, 03 Jul 2026 11:21:13 GMT
+
+https://collider.com/best-thriller-movies-2026-so-far-ranked/
+
+Backrooms, Obsession, and Send Help are all among the best thriller movies released so far in 2026.
+---------
+
+# 8 Most Perfectly Directed Movie Trilogies of All Time, Ranked
+
+Movie, The Dark Knight Trilogy, The Lord of the Rings, Three Colors: Blue, Before Sunrise
+
+Fri, 03 Jul 2026 11:07:13 GMT
+
+https://collider.com/most-perfectly-directed-movie-trilogies-all-time-ranked/
+
+From The Lord of the Rings, to The Dark Knight, to the Before films, these masterfully directed trilogies showcase cinema at its most precise.
+---------
+
+# The Most Anticipated Fantasy Game of 2026 Is Releasing 3 Weeks Early
+
+Gaming, Onimusha, Capcom, Action, Grand Theft Auto
+
+Fri, 03 Jul 2026 11:00:13 GMT
+
+https://collider.com/fantasy-game-onimusha-way-of-the-sword-release-date-moved-up-september-4-2026/
+
+As GTA 6 shatters records, the most anticipated fantasy game of 2026 has moved up its release date by a whopping 3 weeks.
+---------
+
+# 8 Unanswered Questions Fans Still Debate About 'Breaking Bad'
+
+TV, Breaking Bad, AMC, Bryan Cranston, Crime
+
+Fri, 03 Jul 2026 10:48:34 GMT
+
+https://collider.com/breaking-bad-unanswered-questions/
+
+AMC's masterpiece Breaking Bad, starring Bryan Cranston, has long ended, but there are still questions fans debate about the crime drama to this day.
+---------
+
+# 7 Biggest Questions After 'Silo' Season 3's Premiere
+
+TV Lists, Silo
+
+Fri, 03 Jul 2026 12:00:18 GMT
+
+https://movieweb.com/silo-season-3-premiere-big-questions/
+
+'Silo' Season 3 is now streaming on Apple TV, and the sci-fi series stars Rebecca Ferguson, Common, and Radisha Jones.
+---------
+
+# Netflix Finds New #1 Streaming Smash Hit With Henry Cavill's 105-Minute Action-Adventure
+
+Movie News, Henry Cavill, Enola Holmes 3, Action, Adventure, Netflix
+
+Fri, 03 Jul 2026 11:34:10 GMT
+
+https://movieweb.com/netflix-cavill-enola-holmes-3-stream-july-2026/
+
+The whodunit sequel 'Enola Holmes 3' has quickly climbed the streaming charts following its debut earlier this week.
+---------
+
+# 'Dutton Ranch' Season 1 Ending, Explained
+
+Features, Dutton Ranch, Yellowstone
+
+Fri, 03 Jul 2026 11:00:19 GMT
+
+https://movieweb.com/dutton-ranch-season-1-ending-explained/
+
+During 'Dutton Ranch' season 1, Beaulah Jackson's 10 Petal Ranch was clearly up to more than just running cattle, and the finale finally showed what.
+---------
+
 # Sword Art Online Officially Returns July 5 For One-Off Special
 
 Gaming, Sword Art Online
