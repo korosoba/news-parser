@@ -1,3 +1,267 @@
+# Prime Video's Invincible Makes Switching Genres Look Easy
+
+TV, Invincible
+
+Fri, 03 Jul 2026 19:01:20 GMT
+
+https://screenrant.com/invincible-switch-genres-look-easy/
+
+Some shows are ruined entirely by unexpected genre shifts, but Prime Video's superhero series Invincible became even better when it changed genre.
+---------
+
+# v6 SR_Avatar Season 2’s Ending Just Changed The Entire Final Season_SCR_H_SITE
+
+TV, Originals
+
+Fri, 03 Jul 2026 19:00:12 GMT
+
+https://screenrant.com/video/v6-sr-avatar-season-2-s-ending-just-changed-the-entire-final-season-scr-h-site/
+
+Avatar: The Last Airbender may have quietly changed the entire story with one shocking Season 2 decision. While most fans focused on the action and familiar moments, Netflix's finale introduced a twist that could completely redefine Aang's journey in the final season.
+---------
+
+# Hogwarts Legacy’s Chamber Of Secrets Breaks The Lore, But It’s Awesome To Explore
+
+Gaming, Hogwarts Legacy, Triple-A Games
+
+Fri, 03 Jul 2026 19:00:12 GMT
+
+https://screenrant.com/hogwarts-legacy-chamber-of-secrets-mod-breaks-lore/
+
+Although it's a lore-breaking exercise, Hogwarts Legacy’s Chamber of Secrets is worth going through once if you're a fan of the Wizarding World.
+---------
+
+# 29 Years Later, Laurence Fishburne Finally Returns To This Iconic Sci-Fi Franchise
+
+Movies, Event Horizon, Laurence Fishburne
+
+Fri, 03 Jul 2026 19:00:12 GMT
+
+https://screenrant.com/event-horizon-inferno-laurence-fishburne-miller-return/
+
+Nearly 30 years later, this sci-fi franchise has brought back Laurence Fishburne's character, but is he a hero or villain this time around?
+---------
+
+# Star Trek’s New Kirk Ending Will Be The Most Controversial In Canon History
+
+Streaming TV, Star Trek: Strange New Worlds, Star Trek
+
+Fri, 03 Jul 2026 18:54:12 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-kirk-ending-controversial/
+
+Captain Kirk's upcoming ending (and beginning) could prove to be one of the most controversial transitions in Star Trek's franchise history.
+---------
+
+# Kevin Bacon's Horror Movie That Launched A 7-Part Franchise Resurfaces As US Streaming Hit At The Perfect Time
+
+Movies, Masked Recs
+
+Fri, 03 Jul 2026 18:50:56 GMT
+
+https://screenrant.com/kevin-bacon-tremors-paramount-plus-streaming-success-july-2026/
+
+Kevin Bacon's horror movie that launched a seven-part franchise resurfaces as a streaming hit in the United States at the perfect time.
+---------
+
+# Official PlayStation Plus Price Update Confirms What We All Suspected
+
+Gaming, PlayStation Plus
+
+Fri, 03 Jul 2026 18:37:46 GMT
+
+https://screenrant.com/playstation-plus-price-hikes-ongoing/
+
+Sony hints at more PlayStation Plus adjustments as it eyes higher profits through new tiers and added value, and fans may not be happy.
+---------
+
+# Legend Of Zelda’s Official Link Redesign Confirms The Series’ New Direction
+
+Gaming, The Legend of Zelda, Triple-A Games
+
+Fri, 03 Jul 2026 18:30:40 GMT
+
+https://screenrant.com/zelda-official-link-redesign-series-future/
+
+The Legend of Zelda is known for its inconsistent yet incredible art direction, and Link's newest appearance teases another bold new era.
+---------
+
+# Taylor Sheridan Is Secretly Making His Biggest Action Movie Yet
+
+Movies, Masked Recs
+
+Fri, 03 Jul 2026 18:30:21 GMT
+
+https://screenrant.com/taylor-sheridan-new-action-thriller-fast-secret-filming/
+
+Taylor Sheridan is currently in production on a massive new action thriller, F.A.S.T., for a big theatrical release in 2027, and it could be huge.
+---------
+
+# Two Years Later, Reacher's Best Line Sums Up Why The Show Is Such A Hit
+
+TV, Reacher
+
+Fri, 03 Jul 2026 18:30:21 GMT
+
+https://screenrant.com/reacher-show-best-line-throat-rip-fun-why/
+
+Alan Ritchson's Reacher has delivered some great gags, but his best line from the second season sums up why Prime Video's thriller is so popular.
+---------
+
+# CBS Confirms the End of an Era for NCIS: Origins
+
+TV, NCIS: Origins, NCIS, CBS
+
+Fri, 03 Jul 2026 19:01:12 GMT
+
+https://www.cbr.com/cbs-ncis-origins-season-3-shortened-episode-count/
+
+It's officially the end of an era for CBS's Navy prequel, NCIS: Origins, as the Leroy Jethro Gibbs series loses momentum despite its Season 3 renewal.
+---------
+
+# The 10 Greatest R-Rated Action Movies Of the Last 10 Years, Ranked
+
+Movies, Action
+
+Fri, 03 Jul 2026 19:01:12 GMT
+
+https://www.cbr.com/best-r-rated-action-movies-last-10-years-ranked-list/
+
+These R-rated action movies pushed boundaries and set new standards for the genre over the past decade.
+---------
+
+# 5 Anime Series With Endings That Are Considered Masterpieces
+
+Anime, Attack on Titan
+
+Fri, 03 Jul 2026 18:15:12 GMT
+
+https://www.cbr.com/best-anime-endings-considered-masterpieces/
+
+Anime like Your Lie in April and Attack on Titan have the most impactful, perfect endings in the history of the medium.
+---------
+
+# Ultimate Black Panther's Unpublished Horror Comic Revealed
+
+Comics, Black Panther
+
+Fri, 03 Jul 2026 18:00:14 GMT
+
+https://www.cbr.com/ultimate-black-panthers-unpublished-horror-comic-revealed/
+
+Wait, Marvel's Black Panther almost went scary?
+---------
+
+# Rebecca Ferguson Reveals Apple TV’s ‘Silo’ Season 4 Will Finally Answer the Show’s Biggest Mysteries
+
+Exclusives, Silo, Rebecca Ferguson, Graham Yost, Apple TV
+
+Fri, 03 Jul 2026 19:04:13 GMT
+
+https://collider.com/silo-season-4-apple-tv-sci-fi-rebecca-ferguson-interview/
+
+Rebecca Ferguson and Graham Yost talk to Collider about Season 3's biggest surprises, already wrapping Season 4, and Ferguson's emotional last day.
+---------
+
+# Your Favorite Dark British Crime Drama Returns With New Season 2 Trailer on Paramount+
+
+TV News, The Crow Girl, Paramount Plus, MobLand, Eve Myles
+
+Fri, 03 Jul 2026 19:01:13 GMT
+
+https://collider.com/paramount-plus-british-dark-crime-drama-the-crow-girl-season-2-trailer-release-date/
+
+Paramount+'s 88% RT crime drama The Crow Girl has unveiled a chilling Season 2 trailer alongside its premiere date. Here's all to know.
+---------
+
+# Christian Bale and Leonardo DiCaprio's Roles Officially Confirmed for 'Heat 2'
+
+Movie News, Heat 2, Christian Bale, Leonardo DiCaprio, Michael Mann
+
+Fri, 03 Jul 2026 18:55:15 GMT
+
+https://collider.com/heat-2-christian-bale-leonardo-dicaprio-characters-confirmed-filming-start-november-2026/
+
+Heat 2 is locking in Leonardo DiCaprio, Christian Bale, and more for the long-awaited crime sequel. Read on for more details.
+---------
+
+# HBO’s Most Controversial Show Concludes With Unholy Viewership Milestone
+
+TV News, Euphoria, Sam Levinson, HBO, Zendaya
+
+Fri, 03 Jul 2026 18:30:13 GMT
+
+https://collider.com/euphoria-hbo-most-controversial-show-nielsen-ratings-viewership/
+
+The final episode of HBO's Euphoria pushed the controversial show to an unholy viewership figure on the latest Nielsen charts. Find out more.
+---------
+
+# Avatar The Last Airbender S2: The Shot-for-Shot Fan Moments | Collider BTS
+
+TV, Avatar: The Last Airbender
+
+Fri, 03 Jul 2026 18:15:13 GMT
+
+https://collider.com/video/avatar-the-last-airbender-s2-the-shot-for-shot-fan-moments-collider-bts/
+
+Avatar: The Last Airbender Season 2 takes Netflix's live-action adaptation in a darker, more mature direction while staying true to what made the animated series beloved. Executive Producer/Writer Christine Boylan, Executive Producer/Director Jabbar Raisani, editor Payton Koch, and composer Takeshi Furukawa break down how they approached the next chapter.
+---------
+
+# Taylor Sheridan’s ‘Yellowstone’ Sequel Nears 1 Billion Minutes Watched Milestone
+
+TV News, Dutton Ranch, Yellowstone, Taylor Sheridan, Western
+
+Fri, 03 Jul 2026 18:00:14 GMT
+
+https://collider.com/dutton-ranch-nielsen-ratings-viewership-taylor-sheridan-1-billion-minutes-watched/
+
+The viewership for Taylor Sheridan's Yellowstone sequel series, Dutton Ranch, has been increasing with every new episode, according to Nielsen.
+---------
+
+# Every Must-See Movie Streaming in July 2026
+
+Features
+
+Fri, 03 Jul 2026 18:30:19 GMT
+
+https://movieweb.com/moview-streaming-july-2026/
+
+Here is every movie coming to streaming in July to major streaming platforms, including Netflix, Prime Video, Paramount+, and more.
+---------
+
+# Long-Awaited Disney Sequel Makes $300M at the Box Office in Just 10 Days
+
+Movie News, Toy Story 5, Toy Story
+
+Fri, 03 Jul 2026 18:00:19 GMT
+
+https://movieweb.com/toy-story-5-300-million-box-office-10-days/
+
+Following a record-breaking opening, the follow-up has set yet another box office milestone.
+---------
+
+# Best Psychological Thrillers, Ranked
+
+Movie Lists, Thriller
+
+Fri, 03 Jul 2026 18:00:19 GMT
+
+https://movieweb.com/best-psychological-thrillers-ranked/
+
+Analyzing the catalogs of some of the industry's most visionary directors, we break down the best psychological thriller movies.
+---------
+
+# Netflix Star Wants Revival of Hit Superhero Series 2 Years After Divisive Finale
+
+TV News, The Umbrella Academy, Netflix
+
+Fri, 03 Jul 2026 17:54:49 GMT
+
+https://movieweb.com/the-umbrella-academy-netflix-revival-aidan-gallagher/
+
+One of Netflix's biggest superhero shows could still have life following a divisive finale that aired in 2024.
+---------
+
 # 6 Reasons Why Will Smith's Independence Day Is Still Great 30 Years Later
 
 Movies, Independence Day, Will Smith
