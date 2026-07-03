@@ -1,3 +1,366 @@
+# Netflix’s Enola Holmes 3 Gave Millie Bobby Brown One Of Her Biggest Career Changes Yet
+
+Movies, Enola Holmes 3, Enola Holmes, Sherlock Holmes, Netflix
+
+Fri, 03 Jul 2026 20:30:20 GMT
+
+https://screenrant.com/enola-holmes-3-netflix-millie-bobby-brown-first-time-directing-cast-director/
+
+Millie Bobby Brown and the cast and director of Enola Holmes 3 talk Netflix's mystery threequel and how it gave her one of her biggest career changes.
+---------
+
+# Disney Finally Gives Its New Star Wars Hero The Jedi Training Rey Skipped
+
+Streaming TV, Star Wars
+
+Fri, 03 Jul 2026 20:30:20 GMT
+
+https://screenrant.com/star-wars-lah-kara-ninth-jedi-padawan-training/
+
+A new hero has been positioned as the immediate future of Star Wars, and they are already receiving a focus on training that Rey Skywalker lacked.
+---------
+
+# Millie Bobby Brown’s First Post-Stranger Things Project Is A Streaming Hit Despite Mixed Reviews
+
+Movies, Masked Recs, Millie Bobby Brown, Netflix
+
+Fri, 03 Jul 2026 20:28:41 GMT
+
+https://screenrant.com/millie-bobby-brown-enola-holmes-3-netflix-streaming-success-july-2026/
+
+After her conclusion with Stranger Things, Millie Bobby Brown's new 2026 project has officially become a worldwide streaming hit for the star.
+---------
+
+# JoJo's Bizarre Adventure: Steel Ball Run Part 2 Confirms Netflix Release Date
+
+Anime, STEEL BALL RUN, Jojo's Bizarre Adventure
+
+Fri, 03 Jul 2026 20:28:24 GMT
+
+https://screenrant.com/jojos-bizarre-adventure-steel-ball-run-part-2-confirms-netflix-release-date/
+
+Fans of JoJo's Bizarre Adventure have a new date to mark on their calendars with the release confirmation for the 2nd stage of Steel Ball Run.
+---------
+
+# Flash Officially Unlocks Full Potential of New Superpower
+
+DC Comics, The Flash
+
+Fri, 03 Jul 2026 20:15:21 GMT
+
+https://screenrant.com/flash-new-superpower-insight-explained/
+
+Wally West is already DC’s fastest Flash, but after months of buildup, he’s finally unlocked the full potential of his newest superpower.
+---------
+
+# CBS’s Crime Series Cancelled Three Times Is Officially Coming Back
+
+Network TV, S.W.A.T. Exiles, S.W.A.T.
+
+Fri, 03 Jul 2026 20:15:21 GMT
+
+https://screenrant.com/swat-exiles-release-september-2026/
+
+It's rare for networks to reverse show cancellations, but one CBS series not only survived a couple of them, it's even coming back for a new era.
+---------
+
+# Dune Officially Returns September 2026 With A New Adventure
+
+Gaming, Dune, Dune Awakening, Dune: Part Two, Dune: Part Three, PC
+
+Fri, 03 Jul 2026 20:01:01 GMT
+
+https://screenrant.com/dune-awakening-september-2026-release-date/
+
+Dune is making a triumphant return this September with a new adventure that fans will not want to miss.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (July 4-5)
+
+Movies, Prime Video, Recommendation
+
+Fri, 03 Jul 2026 20:01:01 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-july-4/
+
+The best movies on Prime Video this weekend are a classic comedy, a disturbing new sci-fi thriller, and a Jason Statham R-rated action film.
+---------
+
+# Supernatural Has Already Set Up Season 16 With 3 Big Reveals
+
+TV, Supernatural, The Winchesters
+
+Fri, 03 Jul 2026 20:01:01 GMT
+
+https://screenrant.com/supernatural-season-16-set-up-clues/
+
+A sixteenth season of Supernatural could pick up right where The Winchesters left off for Sam and Dean despite how the original series ended.
+---------
+
+# Titus Welliver's 7-Part Crime Thriller Is So Good, It Spawned 3 Spinoffs
+
+Streaming TV, Masked Recs
+
+Fri, 03 Jul 2026 19:30:20 GMT
+
+https://screenrant.com/titus-welliver-bosch-spawned-3-spinoffs/
+
+Titus Welliver stars in a seven-season crime thriller series that is so good that there will soon be three spinoff shows in the franchise.
+---------
+
+# 6 Reasons Why Mortal Kombat II Is Better Than The Original
+
+Movies, Mortal Kombat II
+
+Fri, 03 Jul 2026 20:30:13 GMT
+
+https://www.cbr.com/how-mortal-kombat-ii-is-better-than-the-original-list/
+
+2021's Mortal Kombat wasn't beloved by fans, but Mortal Kombat II made some huge improvements over its predecessor.
+---------
+
+# Marvel Casts 3 Star Trek Actors In Key X-Men Roles
+
+TV, X-Men '97, X-Men, Disney+
+
+Fri, 03 Jul 2026 20:29:59 GMT
+
+https://www.cbr.com/x-men-97-cast-star-trek-gates-mcfadden-michael-dorn-john-de-lancie/
+
+Star Trek fans will recognize these new additions to the X-Men.
+---------
+
+# Daryl Dixon's Walking Dead Future Gets Encouraging Update Ahead of Spinoff's Final Season
+
+TV, The Walking Dead: Daryl Dixon, The Walking Dead
+
+Fri, 03 Jul 2026 20:27:07 GMT
+
+https://www.cbr.com/daryl-dixon-walking-dead-future-update/
+
+Daryl Dixon's Walking Dead future beyond the end of his spinoff gets an update straight from AMC.
+---------
+
+# Only 5 Action RPGs Are Better Than Dark Souls
+
+Games, Dark Souls, The Witcher 3: Wild Hunt, Bloodborne, Elden Ring
+
+Fri, 03 Jul 2026 20:15:13 GMT
+
+https://www.cbr.com/action-rpgs-better-than-dark-souls/
+
+Dark Souls is one of the greatest action RPGs of all time, but a few modern epics manage to be superior games.
+---------
+
+# Lucky Producer on Reinventing the Female Action Hero
+
+TV, Lucky
+
+Fri, 03 Jul 2026 20:15:13 GMT
+
+https://www.cbr.com/video/lucky-producer-on-reinventing-the-female-action-hero/
+
+Lucky producer Lauren Neustadter explains why Apple TV+'s new thriller became Hello Sunshine's boldest project yet. From Anya Taylor-Joy's morally complex heroine to reinventing familiar action tropes, Neustadter reveals what made Lucky such an exciting adaptation.
+---------
+
+# Spider-Man: Homecoming Is a Streaming Success on Netflix
+
+Movies, Spider-Man: Homecoming, MCU, superheroes
+
+Fri, 03 Jul 2026 20:00:41 GMT
+
+https://www.cbr.com/tom-holland-spider-man-homecoming-streaming-success-netflix-july-2026/
+
+Nearly ten years after its release, this massive hit starring Tom Holland is a streaming sensation.
+---------
+
+# ThunderCats New Series Confirmed: Cheetara Takes Center Stage in Epic Return
+
+Comics, Thundercats
+
+Fri, 03 Jul 2026 20:00:41 GMT
+
+https://www.cbr.com/thundercats-cheetara-vol-2-dynamite-entertainment-release-date-confirmed/
+
+A new ThunderCats series is on the way, and it promises to be the first in a "new wave of titles" for the franchise.
+---------
+
+# Spider-Woman's Massive 50th Anniversary Special Revealed by Marvel
+
+Comics, Spider-Woman
+
+Fri, 03 Jul 2026 20:00:41 GMT
+
+https://www.cbr.com/spider-woman-50th-anniversary-special-release-date-confirmed/
+
+Jessica Drew is officially heading for one of her biggest milestones of all time, and Spider-Woman's never looked better than she does now.
+---------
+
+# The Lucas Museum of Narrative Art Tickets Go on Sale This Month
+
+Movies, george lucas, Star Wars
+
+Fri, 03 Jul 2026 19:50:12 GMT
+
+https://www.cbr.com/george-lucas-museum-narrative-art-tickets-sale-july-2026/
+
+George Lucas's next project is arriving later this year. Here's when you can get tickets.
+---------
+
+# Solo Leveling Becomes the Biggest Manga in Japan Ahead of New Movie Announcement
+
+Anime, Solo Leveling
+
+Fri, 03 Jul 2026 19:35:16 GMT
+
+https://www.cbr.com/solo-leveling-manhwa-billboard-june-manga-charts/
+
+The Solo Leveling manhwa is currently the best-selling "manga" in Japan, and it achieved all this even before its anime comeback has been announced.
+---------
+
+# 'The Odyssey's Tom Holland and Anne Hathaway Explain Christopher Nolan’s Never-Before-Seen IMAX Trick
+
+Exclusives, The Odyssey, Christopher Nolan, Anne Hathaway, Tom Holland
+
+Fri, 03 Jul 2026 20:27:02 GMT
+
+https://collider.com/tom-holland-anne-hathaway-odyssey-imax-mirror-system-christopher-nolan/
+
+The pair discuss how Nolan invented a blimp and mirror rig to capture intimate dialogue using IMAX cameras.
+---------
+
+# Marvel Goes Full High Fantasy in New Spin-Off Series
+
+Books and Comics News, Marvel, Marvel Comics, Spider-Man, Fantasy
+
+Fri, 03 Jul 2026 20:09:15 GMT
+
+https://collider.com/marvel-fantasy-spin-off-series-realmguard-infinity-comic/
+
+The Avengers and other Marvel heroes are getting a fantasy makeover in a new spin-off series. Read on for more.
+---------
+
+# Prime Video's New 8-Part Drama Series Is Quietly Becoming 2026's Biggest Surprise
+
+TV Features, It's Not Like That, Prime Video, Scott Foley, Erinn Hayes
+
+Fri, 03 Jul 2026 20:08:13 GMT
+
+https://collider.com/prime-video-drama-series-its-not-like-that-surprise/
+
+One of Prime Video’s biggest surprises this year is It’s Not Like That, Scott Foley’s new family drama.
+---------
+
+# Netflix Viewers Just Brought This $574M Fantasy Classic Back to Life
+
+Movie News, Night at the Museum, Ben Stiller, Netflix, Fantasy
+
+Fri, 03 Jul 2026 20:00:43 GMT
+
+https://collider.com/night-at-the-museum-netflix-global-top-10-ben-stiller/
+
+Night at the Museum, Ben Stiller’s $574M family fantasy movie, is back on Netflix’s global charts nearly 20 years after its theatrical release.
+---------
+
+# Now Is the Perfect Time To Watch HBO’s 7-Episode American Epic
+
+TV Features, John Adams, Paul Giamatti, Laura Linney, HBO
+
+Fri, 03 Jul 2026 19:43:13 GMT
+
+https://collider.com/john-adams-hbo-perfect-american-epic/
+
+HBO's acclaimed miniseries John Adams, starring Paul Giamatti, delves into the passionate and flawed second U.S. President and the birth of democracy.
+---------
+
+# 10 Greatest Multiplayer Video Games of All Time
+
+Gaming, Video Game, Super Smash Bros., GoldenEye 007 Remake, Halo
+
+Fri, 03 Jul 2026 19:29:13 GMT
+
+https://collider.com/best-multiplayer-video-games-all-time-ranked/
+
+Nothing beats gaming with others, and the greatest multiplayer titles include platformers like Super Smash Bros. and sandbox games like Minecraft.
+---------
+
+# The Minds Behind 'A Quiet Place,' 'The Purge,' and the 'X-Men' Franchise Join Collider's SDCC 2026 Producers Panel
+
+Exclusives, SDCC, A Quiet Place, The Purge, Artemis
+
+Fri, 03 Jul 2026 19:25:48 GMT
+
+https://collider.com/sdcc-producers-on-producing-panel-simon-kinberg-andrew-form-brad-fuller/
+
+Details on our upcoming Producers on Producing panel at SDCC 2026, with Simon Kinberg, Andrew Form, and Brad Fuller.
+---------
+
+# Saturday Night Live Is Quietly Expanding Again After Its Biggest International Misfire
+
+TV Features, Saturday Night Live, Saturday Night Live UK, Series, Comedy
+
+Fri, 03 Jul 2026 19:12:11 GMT
+
+https://collider.com/saturday-night-live-global-expansion-snl-france/
+
+Saturday Night Live’s new French adaptation signals the franchise is expanding globally again after learning from years of international misfires.
+---------
+
+# 10 Best Video Games to Play While Waiting for 'God of War: Laufey'
+
+TV, Video Game, God of War, Assassin's Creed: Valhalla, Star Wars Jedi: Survivor
+
+Fri, 03 Jul 2026 19:08:14 GMT
+
+https://collider.com/games-like-god-of-war-laufey/
+
+Discover video games like God of War: Laufey to check out before its 2027 release, from Hellblade: Senua's Sacrifice to Black Myth: Wukong.
+---------
+
+# Every Must-See TV Show Streaming in July 2026
+
+Features
+
+Fri, 03 Jul 2026 20:30:18 GMT
+
+https://movieweb.com/tv-streaming-july-2026/
+
+From 'The Hawk' on Netflix to ' Stuart Fails to Save The Universe' on HBO Max, here is every TV show coming to streaming in July.
+---------
+
+# Marvel Has Finally Figured Out How To Use Kang the Conqueror
+
+Features, X-Men '97, MCU
+
+Fri, 03 Jul 2026 20:01:01 GMT
+
+https://movieweb.com/x-men-97-rama-tut-kang/
+
+Could Kang return after 'Avengers: Secret Wars' to forge one of the X-Men's greatest foes? Marvel may have cracked the code for the unresolved arc.
+---------
+
+# The Best New TV Show On Each Streaming Service to Watch This Weekend
+
+TV Lists, Disney+, Prime Video, Hulu, Netflix, Apple TV, Paramount Plus
+
+Fri, 03 Jul 2026 20:01:01 GMT
+
+https://movieweb.com/best-tv-shows-streaming-service-weekend/
+
+Here are the best new TV shows to watch this weekend on Netflix, Apple TV+, Prime Video, Disney+/Hulu, Paramount+, and HBO Max.
+---------
+
+# Jodie Foster Convinced Brad Pitt's Biggest Movie of All Time Was "Made by AI"
+
+Movie News, Jodie Foster, F1, Brad Pitt
+
+Fri, 03 Jul 2026 19:50:26 GMT
+
+https://movieweb.com/jodie-foster-brad-pitt-f1-made-by-ai/
+
+Jodie Foster stirred conversation at the Aspen Ideas Festival after suggesting Brad Pitt's blockbuster 'F1' looked like it was "made by AI."
+---------
+
 # Prime Video's Invincible Makes Switching Genres Look Easy
 
 TV, Invincible
