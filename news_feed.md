@@ -1,3 +1,344 @@
+# 2026's Most Anticipated Webtoon Anime Just Got Delayed And It's Bad News
+
+Anime, Eleceed, Webtoon
+
+Sat, 04 Jul 2026 19:00:21 GMT
+
+https://screenrant.com/eleceed-webtoon-anime-delayed-2027-not-2026/
+
+One of 2026's most anticipated webtoon anime adaptations, Eleceed, has been quietly delayed to 2027 and it might just be doomed as a result.
+---------
+
+# Krrish 4 Could Revive Bollywood Superheroes
+
+Movies, Originals
+
+Sat, 04 Jul 2026 19:00:21 GMT
+
+https://screenrant.com/video/krrish-4-could-revive-bollywood-superheroes/
+
+Krrish 4: Bollywood's Superhero Comeback? After more than a decade of rumors, delays, and development setbacks, India's biggest superhero franchise is finally gearing up for its long-awaited return.
+---------
+
+# Fallout Officially Returns This Month
+
+Gaming, Fallout
+
+Sat, 04 Jul 2026 19:00:21 GMT
+
+https://screenrant.com/fallout-dark-horse-statue-july-2026/
+
+Fallout is not be getting another game in the main series for a while, but there are new releases connected to the franchise you might want to see.
+---------
+
+# 10 Things You Didn't Know About The Harry Potter Movies
+
+Movies, Harry Potter
+
+Sat, 04 Jul 2026 18:55:21 GMT
+
+https://screenrant.com/harry-potter-movies-trivia-behind-the-scenes-details/
+
+Hogwarts still holds some mysteries when it comes to the Harry Potter movies that even the biggest Potter fanatics still don’t know about.
+---------
+
+# The Handmaid's Tale Fully Switched Genres After Season 3, And Was Never The Same
+
+TV, The Handmaid's Tale
+
+Sat, 04 Jul 2026 18:55:21 GMT
+
+https://screenrant.com/the-handmaids-tale-change-genre/
+
+Hulu's adaptation of Margaret Atwood's dystopian novel The Handmaid's Tale extended its story far past the original book, thus changing its genre.
+---------
+
+# PlayStation Officially Confirms Your Favorite Games Can Still Be Physical
+
+Gaming, PlayStation, Triple-A Games
+
+Sat, 04 Jul 2026 18:31:58 GMT
+
+https://screenrant.com/playstation-physical-game-reprints-2028/
+
+PlayStation rocked the industry by announcing the end of physical games this week, but a new report confirms that they won't go away entirely.
+---------
+
+# Netflix’s 97% RT Hit Thriller Is Guy Ritchie Meets Martin Scorsese
+
+TV, Masked Recs
+
+Sat, 04 Jul 2026 18:30:19 GMT
+
+https://screenrant.com/legends-netflix-tv-show-like-guy-ritchie-martin-scorsese/
+
+Netflix's best miniseries of 2026 is the perfect blend of Guy Ritchie's fast-talking gangster flicks and Martin Scorsese's slow-burning mob sagas.
+---------
+
+# Marvel Announces Classic Villain's Return For Next Iron Man Appearance
+
+Marvel Comics, Iron Man
+
+Sat, 04 Jul 2026 18:30:19 GMT
+
+https://screenrant.com/iron-man-tony-stark-whiplash-return/
+
+Sixteen years after his MCU debut, a classic Iron Man villain comes back to reignite his battle against Tony Stark alongside other foes.
+---------
+
+# Don't Be Fooled, PlayStation 6 Won't Be Cheaper With Digital-Only Consoles
+
+Gaming, PlayStation 6, PlayStation, Gaming Hardware
+
+Sat, 04 Jul 2026 18:30:19 GMT
+
+https://screenrant.com/playstation-6-consoles-not-cheaper-ps5-no-disc/
+
+Sony has announced that it will no longer be producing discs for PlayStation consoles, but don’t be fooled, this move won’t make the PS6 cheaper.
+---------
+
+# The Real Villain Of Meet The Parents Isn’t Who You Think
+
+Movies, Meet the Parents
+
+Sat, 04 Jul 2026 18:30:19 GMT
+
+https://screenrant.com/meet-the-parents-real-villain/
+
+The classic cringe comedy wants to you think that one character is the villain, but the antagonist of Meet the Parents is actually someone else.
+---------
+
+# 5 Times Jujutsu Kaisen's Suguru Geto Was Right
+
+Anime, Jujutsu Kaisen, shonen anime
+
+Sat, 04 Jul 2026 19:16:13 GMT
+
+https://www.cbr.com/jujutsu-kaisen-suguru-geto-was-right/
+
+Suguru Geto is initially introduced as one of JJK's most brutal villains, but his path to villainy was paved with good intentions turned sour.
+---------
+
+# In Just 1 Day, Disney’s Sequel 20 Years in the Making Becomes a PVOD Hit
+
+Movies, The Devil Wears Prada, The Devil Wears Prada 2
+
+Sat, 04 Jul 2026 19:00:13 GMT
+
+https://www.cbr.com/the-devil-wears-prada-2-comedy-pvod-success-july-2026/
+
+Gird your loins, as the film is heading to streaming soon.
+---------
+
+# Power Rangers Unlimited #1 Just Killed Off One of the Franchise's Most Beloved Villains
+
+Comics, Power Rangers
+
+Sat, 04 Jul 2026 19:00:13 GMT
+
+https://www.cbr.com/power-rangers-unlimited-zedd-death-confirmed/
+
+One of the Mighty Morphin Power Rangers' original big bads just lost their life in one of the most shocking moments in franchise history.
+---------
+
+# Sylvester Stallone Celebrates 50 Years of Rocky in Honor of America's 250th Anniversary
+
+Movies, Rocky, sylvester stallone
+
+Sat, 04 Jul 2026 18:53:51 GMT
+
+https://www.cbr.com/sylvester-stallone-rocky-america-250/
+
+Sylvester Stallone reflects on how Rocky changed his life after the movie's release 50 years ago.
+---------
+
+# Studio Ghibli Reveals Lost Version of WWII Anime Grave of the Fireflies
+
+Anime, Grave of the Fireflies, Studio Ghibli
+
+Sat, 04 Jul 2026 18:36:13 GMT
+
+https://www.cbr.com/studio-ghibli-grave-of-the-fireflies-lost-version-reveal/
+
+A post-humous investigation of Ghibli co-founder Isao Takahata's home uncovers a never-before-seen script and film reel for his iconic WWII anime.
+---------
+
+# Netflix's New 'Unfilmable' Supernatural Event Series Is the First Video Game Show of Its Kind
+
+TV, Persona, Shin Megami Tensei, Netflix
+
+Sat, 04 Jul 2026 18:30:13 GMT
+
+https://www.cbr.com/netflix-persona-live-action-series/
+
+Netflix is planning an adaptation of one of the biggest JRPG franchises, but it might be even harder source material to work with than One Piece.
+---------
+
+# Pokémon Officially Drops New Game This July
+
+Games, Pokemon
+
+Sat, 04 Jul 2026 18:16:13 GMT
+
+https://www.cbr.com/pokemon-releases-official-new-game-july-2026/
+
+An unexpected new Pokémon game is officially coming out in July 2026.
+---------
+
+# 10 Greatest Anime Series of the Last 5 Years, Ranked
+
+Anime, Witch Hat Atelier, Isekai
+
+Sat, 04 Jul 2026 18:16:13 GMT
+
+https://www.cbr.com/greatest-anime-series-2020s-ranked/
+
+The last five years have seen some of the most popular anime releases ever, the best of which include Witch Hat Atelier and Bocchi the Rock!
+---------
+
+# AMC's Vampire Masterpiece Universe Gets Major Update Amid Recent Rebranding
+
+TV, The Vampire Lestat, Interview with the Vampire
+
+Sat, 04 Jul 2026 18:05:24 GMT
+
+https://www.cbr.com/amc-the-vampire-lestat-future-amc-president/
+
+The series recently returned with a perfectly-rated season.
+---------
+
+# Breaking Bad Icon Officially Returns 4 Years Later for America 250th Celebration
+
+TV, Breaking Bad, Better Call Saul
+
+Sat, 04 Jul 2026 18:03:39 GMT
+
+https://www.cbr.com/breaking-bad-jonathan-banks-mike-america-250/
+
+A Breaking Bad and Better Call Saul fan favorite is back to celebrate America's 250th birthday in his own unique way.
+---------
+
+# 'The Conjuring' Stars Reunite in This High-Stakes Thriller Now Streaming on Paramount+
+
+Movie News, The Commuter, The Conjuring, Paramount Plus, Liam Neeson
+
+Sat, 04 Jul 2026 19:00:13 GMT
+
+https://collider.com/the-commuter-streaming-paramount-plus-july-2026/
+
+The Conjuring fans can't miss this Patrick Wilson-Vera Farmiga team-up that also stars Liam Neeson. Read on for more details.
+---------
+
+# 'The Death of Robin Hood' Isn't Reinventing the Legend, It's Returning to Its Darkest Roots
+
+Movie Features, The Death of Robin Hood, Hugh Jackman, Jodie Comer, A24
+
+Sat, 04 Jul 2026 18:54:07 GMT
+
+https://collider.com/death-of-robin-hood-hugh-jackman-character-dark-origins/
+
+Hugh Jackman's new A24 film, The Death of Robin Hood, looks to explore the mythical hero's darker origins.
+---------
+
+# Netflix’s ‘Gossip Girl’ Meets ‘Pride and Prejudice’ Series Is So Good, It Was Renewed Twice Before It Premiered
+
+TV Features, Bridgerton, Netflix, Romance, Shonda Rhimes
+
+Sat, 04 Jul 2026 18:38:14 GMT
+
+https://collider.com/bridgerton-netflix-gossip-girl-meet-pride-and-prejudice-renewal/
+
+Bridgerton was renewed for Seasons 5 and 6 ahead of Season 4's release, demonstrating Netflix's confidence in the smash-hit series' future.
+---------
+
+# ‘The Bear’ Season 5 Proves Its Biggest Change Was Always Holding It Back
+
+TV Features, The Bear, Ebon Moss-Bachrach, Jeremy Allen White, Ayo Edebiri
+
+Sat, 04 Jul 2026 18:27:13 GMT
+
+https://collider.com/the-bear-season-5-fewer-celebrity-cameos/
+
+The Bear's final season shifted away from celebrity cameos in favor of focusing on the original cast and their character development.
+---------
+
+# Elle: The Nirvana Shirt Changed the Script | Collider BTS
+
+TV, Elle
+
+Sat, 04 Jul 2026 18:15:13 GMT
+
+https://collider.com/video/elle-the-nirvana-shirt-changed-the-script-collider-bts/
+
+Elle: The Hidden Costume Details You Missed brings you behind the scenes of Amazon Prime Video's Elle with costume designers Sara Byblow and Sophie De Rakoff, who reveal how every outfit helped shape the future Elle Woods before Legally Blonde.
+---------
+
+# HBO’s Near-Perfect Detective Saga Is Your Next Streaming Obsession
+
+TV News, True Detective, HBO Max, Matthew McConaughey, Nicolas Cage
+
+Sat, 04 Jul 2026 18:01:43 GMT
+
+https://collider.com/hbo-true-detective-streaming-success-july-2026-season-5-update/
+
+HBO's near-perfect four season detective series keeps proving why it should be your next streaming obsession, despite no Season 5 news.
+---------
+
+# The 10 Most American Movies Ever Made
+
+Movie Lists
+
+Sat, 04 Jul 2026 19:00:19 GMT
+
+https://movieweb.com/most-american-movies-ever/
+
+With America celebrating its 250th anniversary, these movies are the ideal to pop on before and after the fireworks kick off.
+---------
+
+# 10 Forgotten MTV Shows From the 2000s
+
+TV Lists, 2000s
+
+Sat, 04 Jul 2026 19:00:19 GMT
+
+https://movieweb.com/forgotten-mtv-shows-2000s/
+
+MTV ruled the airwaves through the 2000s and produced some of the craziest shows; here are a few you may have forgotten.
+---------
+
+# 30 Years Ago Today, the Greatest Movie Celebration of America Was Released
+
+Features, Independence Day
+
+Sat, 04 Jul 2026 18:45:18 GMT
+
+https://movieweb.com/independence-day-30th-anniversary/
+
+Earning over $800 million during its opening weekend in 1996, this definitive American blockbuster is the perfect movie to celebrate 250.
+---------
+
+# Ridley Scott’s Masterpiece Series Nobody Remembers Is Still a Must-Watch
+
+Features, The Man in the High Castle, Ridley Scott
+
+Sat, 04 Jul 2026 18:30:18 GMT
+
+https://movieweb.com/the-man-in-the-high-castle-must-watch/
+
+Ridley Scott has directed plenty of great movies and produced plenty of great TV, and this title stands out as his best hidden gem.
+---------
+
+# On 'Terminator 2's 35th Anniversary, Be Careful Not To Watch the Wrong Version
+
+Features, Terminator 2: Judgment Day
+
+Sat, 04 Jul 2026 18:00:19 GMT
+
+https://movieweb.com/terminator-2-35th-anniversary-4k-guide/
+
+As James Cameron's all-time great sci-fi action sequel turns 35, leave the 4K version behind and watch the best home video version instead
+---------
+
 # Robert Eggers' Follow-Up To 2024's $182 Million Hit Is Going Against Hollywood History
 
 Movies, Masked Recs
