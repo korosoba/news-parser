@@ -1,3 +1,344 @@
+# Marvel Officially Unveils Wild New Captain America Suit
+
+Gaming, Marvel, Marvel Rivals, Captain America, PC
+
+Sat, 04 Jul 2026 14:03:57 GMT
+
+https://screenrant.com/marvel-new-captain-america-skin-rivals/
+
+Marvel has just unveiled a brand-new Captain America suit redesign to celebrate 4th of July, and fans are in for a big surprise.
+---------
+
+# South Park's 2026 Return Comes With A 22-Year-Old Problem
+
+TV, South Park
+
+Sat, 04 Jul 2026 14:02:21 GMT
+
+https://screenrant.com/south-park-2026-return-problem-movie/
+
+South Park's upcoming season faces a potential creative crisis that creators Trey Parker and Matt Stone already fell victim to 22 years earlier.
+---------
+
+# The Greatest Horror TV Series Of All Time Sets Netflix Release Date
+
+TV, Masked Recs
+
+Sat, 04 Jul 2026 14:01:21 GMT
+
+https://screenrant.com/hannibal-tv-netflix-streaming-release-date-july-2026/
+
+More than 10 years after its dark premiere, what is arguably the greatest horror TV show of all time is set to arrive on Netflix this month.
+---------
+
+# PlayStation 6 Price Leak Confirms You Need To Start Saving ASAP
+
+Gaming, PlayStation
+
+Sat, 04 Jul 2026 14:01:21 GMT
+
+https://screenrant.com/playstation-6-price-leak-release-window-fears/
+
+The PlayStation 6's manufacturing cost has reached $960, according to a recent leak, suggesting the next-gen console could cost upwards of $1000.
+---------
+
+# 10 Greatest Pokémon Fan Theories of All Time
+
+Anime, Pokemon
+
+Sat, 04 Jul 2026 14:01:21 GMT
+
+https://screenrant.com/best-pokemon-fan-theories/
+
+The Pokémon fan theories we all want to be true.
+---------
+
+# Taylor Sheridan’s Dutton Ranch Is About To Hit Major Streaming Milestone After Season 2 Greenlight
+
+TV, Dutton Ranch
+
+Sat, 04 Jul 2026 13:47:17 GMT
+
+https://screenrant.com/taylor-sheridan-dutton-ranch-streaming-billion-minutes-milestone-close/
+
+Dutton Ranch just closed in on another major milestone, proving that the Paramount+ spinoff earned its confident and early renewal for season 2.
+---------
+
+# Evil Dead Burn Moves Further And Further Away From Sam Raimi's Original Vision
+
+Movies, Evil Dead Burn
+
+Sat, 04 Jul 2026 13:45:21 GMT
+
+https://screenrant.com/evil-dead-burn-moves-away-sam-raimi-original/
+
+Evil Dead Burn looks to continue the very popular horror movie franchise, but each movie is moving further from Sam Raimi's original movies' vision.
+---------
+
+# Disney+'s Nostalgic 8-Part Space Fantasy Series With Near-Perfect RT Score Is The Perfect Weekend Binge
+
+Streaming TV, Masked Recs
+
+Sat, 04 Jul 2026 13:45:21 GMT
+
+https://screenrant.com/star-wars-skeleton-crew-disney-weekend-binge/
+
+Disney's nostalgic, space fantasy treasure-hunting adventure series is the perfect weekend binge. All eight episodes are available to stream now.
+---------
+
+# 10 Sci-Fi Movies To Watch As A Perfect Double Feature With Project Hail Mary
+
+Movies, Sci-Fi, Project Hail Mary, Prime Video, What to Watch on Prime Video
+
+Sat, 04 Jul 2026 13:33:36 GMT
+
+https://screenrant.com/project-hail-mary-scifi-movies-double-features-prime-video/
+
+Just watched Project Hail Mary? Check out these 10 sci-fi hits currently free on Prime Video—the perfect double-feature lineup.
+---------
+
+# Marvel Just Released Some of the Greatest Supervillain Art of All Time
+
+Comics, Thor
+
+Sat, 04 Jul 2026 13:30:19 GMT
+
+https://screenrant.com/mortal-thor-donald-blake-serpent/
+
+Thor's latest nemesis' killer design, explained.
+---------
+
+# HBO's 7-Part Political Series With 83% RT Becomes a PVOD Hit at the Right Time
+
+TV, John Adams, hbo, Apple TV
+
+Sat, 04 Jul 2026 14:00:14 GMT
+
+https://www.cbr.com/hbo-john-adams-political-series-pvod-hit-us-fourth-july-2026/
+
+HBO's 2008 political miniseries John Adams is making its way up the Apple TV store charts just in time for the Fourth of July.
+---------
+
+# The Best Cartoon Network Show of the 2010s Is Getting an Official Halloween Special
+
+Comics, Adventure Time
+
+Sat, 04 Jul 2026 14:00:14 GMT
+
+https://www.cbr.com/adventure-time-halloween-special-oni-press-release-date/
+
+A spooky new special will see the stars of Cartoon Network's legendary animated fantasy series embarking on their first ever Halloween adventure.
+---------
+
+# Pokémon Delivers Last-Minute Save for Pikachu, Eevee & Piplup
+
+Anime, Pokemon, Nintendo, Nintendo Switch
+
+Sat, 04 Jul 2026 14:00:10 GMT
+
+https://www.cbr.com/pokemon-pikachu-eevee-piplup-mailbox-save/
+
+After a flood of requests from citizens, Japan chooses to preserve a special piece of Pokémon history for Pikachu, Eevee and Piplup lovers.
+---------
+
+# Jenna Ortega & Glen Powell's 5-Part Jurassic World Netflix Show Is Better Than the Movies in Every Way
+
+TV, Jurassic World: Camp Cretaceous, Jurassic Park, Netflix
+
+Sat, 04 Jul 2026 13:30:12 GMT
+
+https://www.cbr.com/netflix-jurassic-world-camp-cretaceous-better-than-jurassic-world-movies/
+
+One Netflix dinosaur series outshines the show's franchise films in several ways, making it a must-watch for dino fans.
+---------
+
+# 8 Anime Series That Are Perfect From the First Scene
+
+Anime, Frieren: Beyond Journey's End, Attack On Titan
+
+Sat, 04 Jul 2026 13:15:12 GMT
+
+https://www.cbr.com/anime-perfect-from-first-scene/
+
+These anime prove that a brilliant first impression can lead to an even better overall experience.
+---------
+
+# 5 Greatest Fantasy Book Trilogies Of All Time, Ranked
+
+Movies, Fantasy, books, The Lord of the Rings
+
+Sat, 04 Jul 2026 13:00:13 GMT
+
+https://www.cbr.com/best-fantasy-book-trilogies-ranked-list/
+
+The best things come in threes and that includes fantasy books. These trilogies are genre-defining masterpieces wrapped up neatly in a 3-part story.
+---------
+
+# Jesse Eisenberg Thinks a Minions and Zombieland Crossover Would Work
+
+CBR Exclusives, Minions & Monsters
+
+Sat, 04 Jul 2026 12:07:13 GMT
+
+https://www.cbr.com/jesse-eisenberg-minions-zombieland-crossover-idea/
+
+Jesse Eisenberg and Zoey Deutch pitched a wild Zombieland idea while discussing Minions & Monsters with CBR.
+---------
+
+# 10 Blockbuster Movies That Are Amazing From Start to Finish
+
+Movie, Blockbuster, Mad Max: Fury Road, Raiders of the Lost Ark, Back to the Future
+
+Sat, 04 Jul 2026 14:04:14 GMT
+
+https://collider.com/best-blockbuster-movies-amazing/
+
+From The Dark Knight, to Back to the Future, to Jurassic Park, these blockbuster classics deliver unforgettable thrills from beginning to end.
+---------
+
+# Rebecca Ferguson’s Sci-Fi Masterpiece Just Got Even Bigger on Apple TV
+
+TV News, Silo, Rebecca Ferguson, Apple TV, Sci-Fi
+
+Sat, 04 Jul 2026 14:00:14 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-silo-season-3-streaming-success-apple-tv/
+
+Rebecca Ferguson’s Apple TV sci-fi series Silo is back with Season 3, proving the dystopian drama remains one of the platform’s biggest genre shows.
+---------
+
+# 8 Forgotten Netflix Mystery Movies That Are Perfect From Start to Finish
+
+Movie, Mystery, Glass Onion: A Knives Out Mystery, They Cloned Tyrone, Netflix
+
+Sat, 04 Jul 2026 13:23:14 GMT
+
+https://collider.com/forgotten-netflix-mystery-movies-perfect-start-to-finish/
+
+From the sci-fi comedy They Cloned Tyrone to Glass Onion: A Knives Out Mystery, these forgotten Netflix mystery movies are practically flawless.
+---------
+
+# Kevin Costner’s Shelved Western Franchise Turns to Streaming for Redemption
+
+Movie News, Kevin Costner, Horizon: An American Saga - Chapter 1, Western, Prime Video
+
+Sat, 04 Jul 2026 13:15:12 GMT
+
+https://collider.com/kevin-costner-horizon-chapter-1-streaming-redemption/
+
+Kevin Costner’s Horizon: Chapter One is looking for streaming redemption after the Western franchise faced major theatrical setbacks.
+---------
+
+# Brad Pitt’s Apple TV Action Hit Is Quietly Crushing the Competition on Streaming
+
+Movie News, Brad Pitt, Wolfs, Apple TV, George Clooney
+
+Sat, 04 Jul 2026 12:45:14 GMT
+
+https://collider.com/brad-pitt-wolfs-streaming-success-apple-tv-july-2026/
+
+Brad Pitt's Apple TV crime thriller alongside George Clooney is a streaming hit once again. Here's everything you should know.
+---------
+
+# Forget 'Fallout,' Walton Goggins' 6-Part Western Masterpiece Is a Monster Hit on Streaming
+
+TV News, Justified, Timothy Olyphant, Walton Goggins, Hulu
+
+Sat, 04 Jul 2026 12:30:13 GMT
+
+https://collider.com/walton-goggins-western-series-justified-streaming-success-hulu-july-2026/
+
+Walton Goggins' six-season Western masterpiece has emerged once again as a global streaming hit on several platforms. Read on for more details.
+---------
+
+# 10 Movie Endings That Are Genuine Masterpieces
+
+Movie, Chinatown, Casablanca, The Good, the Bad and the Ugly, The Godfather
+
+Sat, 04 Jul 2026 12:29:13 GMT
+
+https://collider.com/movie-endings-true-masterpieces/
+
+From Whiplash and Casablanca to Chinatown and Cinema Paradiso, these movies feature incredible endings that stay with you long after the credits roll.
+---------
+
+# The Harlan Coben Formula That Turned Netflix Into a Thriller Machine
+
+TV Features, Harlan Coben, Netflix, I Will Find You, Run Away
+
+Sat, 04 Jul 2026 12:17:13 GMT
+
+https://collider.com/netflix-harlan-coben-what-if-series-formula-meaning/
+
+Harlan Coben's Netflix series I Will Find You, starring Sam Worthington and Britt Lower, is dominating six months after Run Away did the same.
+---------
+
+# 37 Years Later, Picard's Best Line Still Defines the Entire Star Trek Universe
+
+TV Features, Star Trek: The Next Generation, Star Trek, Patrick Stewart, Paramount+ with Showtime
+
+Sat, 04 Jul 2026 12:03:13 GMT
+
+https://collider.com/star-trek-the-next-generation-picard-best-quote/
+
+Picard's crucial wisdom about life and leadership to Data in Star Trek encapsulates his essence as a strong and empathetic mentor.
+---------
+
+# 10 Best Sci-Fi Horror Movies of the Last 20 Years You've Never Heard Of
+
+Movie, Psycho Goreman, The Endless, Beyond the Black Rainbow, Slither
+
+Sat, 04 Jul 2026 12:02:14 GMT
+
+https://collider.com/best-sci-fi-horror-movies-last-20-years-youve-never-heard-of/
+
+Beyond the Black Rainbow, Psycho Goreman, and The Endless are all among the best sci-fi horror movies of the last 20 years you've never heard of.
+---------
+
+# 5 'Foundation' Season 4 Theories That Will Change the Way You Watch the Series
+
+TV Lists, Foundation
+
+Sat, 04 Jul 2026 14:01:19 GMT
+
+https://movieweb.com/foundation-season-4-theories/
+
+Isaac Asimov's 'Foundation' books series has found new life on Apple TV. Season 4 holds some awesome possibilities. Read on for more.
+---------
+
+# Liam Neeson's Non-Stop 104-Minute Action Thriller Shoots Onto Streaming
+
+Movie News, Liam Neeson, The Commuter, Coming/Leaving Streaming, Action
+
+Sat, 04 Jul 2026 14:01:19 GMT
+
+https://movieweb.com/liam-neeson-the-commuter-action-streaming-pluto-tv-july-2026/
+
+It might not be Neeson's best work, but this 2018 action thriller directed by 'Carry-On's Jaume Collet-Serra sure is fun.
+---------
+
+# Jodie Foster's New Mystery Thriller Finally Sets Netflix Streaming Debut
+
+Movie News, A Private Life, Jodie Foster
+
+Sat, 04 Jul 2026 13:37:11 GMT
+
+https://movieweb.com/jodie-foster-private-life-netflix-july-2026/
+
+Jodie Foster’s French mystery thriller 'A Private Life' is heading to Netflix after a festival run that included Cannes, Toronto, and Deauville.
+---------
+
+# Mark Wahlberg's $154M Action War Thriller Gets New Streaming Home
+
+Movie News, Lone Survivor, Mark Wahlberg, Coming/Leaving Streaming
+
+Sat, 04 Jul 2026 13:22:42 GMT
+
+https://movieweb.com/mark-wahlberg-lone-survivor-peacock-streaming-july-2026/
+
+When it comes to intense war movies, this 121-minute epic stands among the very best.
+---------
+
 # Batman Finally Unmasks As Bruce Wayne: Here's Why
 
 DC Comics, Batman
