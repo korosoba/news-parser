@@ -1,3 +1,267 @@
+# Criminal Minds Unintentionally Exposes Its Self-Inflicted Weakness
+
+Network TV, Criminal Minds
+
+Sat, 04 Jul 2026 20:15:20 GMT
+
+https://screenrant.com/criminal-minds-season-19-sicarius-fan-voit-weakness-exposed/
+
+Many positive changes were made to Criminal Minds' formula since Paramount+ took over, but Evolution's biggest weakness keeps getting worse.
+---------
+
+# Happy Days Invented 2 Real-Life Phrases We All Still Use Today
+
+TV, Happy Days
+
+Sat, 04 Jul 2026 20:02:20 GMT
+
+https://screenrant.com/happy-days-invent-real-phrases/
+
+The sitcom Happy Days, known for its nostalgic vision of teenage life in the '50s Midwest, inadvertently added two iconic phrases to the lexicon.
+---------
+
+# The 2020s' Biggest New Anime Franchise Is Secretly An Isekai, But No One Talks About It
+
+Anime, Uma Musume Pretty Derby, Isekai, Explainer
+
+Sat, 04 Jul 2026 20:00:20 GMT
+
+https://screenrant.com/umamusume-pretty-derby-isekai-anime/
+
+The true king of isekai anime.
+---------
+
+# 10 Invincible Characters That Need To Be In The Next Invincible Game
+
+Gaming, Invincible, Live Service Games, PC
+
+Sat, 04 Jul 2026 20:00:20 GMT
+
+https://screenrant.com/best-video-game-invincible-characters/
+
+Invincible's massive cast of iconic characters is easily one of its best selling points, with no shortage of unique heroes deserving a spotlight.
+---------
+
+# 8 Mystery Shows Better Than Lost
+
+Classic TV
+
+Sat, 04 Jul 2026 19:45:20 GMT
+
+https://screenrant.com/mystery-shows-better-than-lost/
+
+These 8 mystery shows surpass Lost's iconic status, offering tighter narratives, compelling characters, and more satisfying payoffs than the ABC hit.
+---------
+
+# One Piece Is Stealing From Another Big 3 Shonen Classic For Its Final Arcs, And It's Brilliant
+
+Anime, One Piece
+
+Sat, 04 Jul 2026 19:30:21 GMT
+
+https://screenrant.com/one-piece-steal-from-bleach-final-arc/
+
+A Holy Knight of the World Government unsheathed an ability that may borrow from another classic anime's coolest ideas while teasing a Zoro power-up.
+---------
+
+# ABC Breaks The Rookie's 5-Year Record For Season 9
+
+Network TV, The Rookie, ABC
+
+Sat, 04 Jul 2026 19:30:21 GMT
+
+https://screenrant.com/the-rookie-season-9-filming-update-break-record/
+
+John Nolan and Mid-Wilshire are still on a break, but ahead of season 9's premiere, ABC has already broken a five-year record for The Rookie.
+---------
+
+# 5 Illumination Animated Movies Just As Good As Disney And Pixar
+
+Movies, Illumination, Despicable Me, The Secret Life of Pets, The Super Mario Bros. Movie, Sing, The Lorax
+
+Sat, 04 Jul 2026 19:25:21 GMT
+
+https://screenrant.com/illumination-animated-movies-good-as-disney-pixar/
+
+While Disney and Pixar of course dominate animation discourses, Illumination has been quietly amassing its own collection of animated classics.
+---------
+
+# Intense Anime Series That Are Perfect From Start to Finish
+
+Anime, Cyberpunk: Edgerunners, Monster
+
+Sat, 04 Jul 2026 20:15:12 GMT
+
+https://www.cbr.com/intense-anime-perfect-start-to-finish/
+
+These anime never let up, delivering gripping stories from the opening episode to the final scene.
+---------
+
+# Suits' Patrick J. Adams Pitches New Revival Idea (& Meghan Markle Reunion)
+
+TV, Suits
+
+Sat, 04 Jul 2026 20:09:26 GMT
+
+https://www.cbr.com/patrick-j-adams-pitches-suits-revival/
+
+Suits star Patrick J. Adams knows how to bring the show back along with Meghan Markle.
+---------
+
+# HBO's Gripping 8-Part Crime Series Returns as a PVOD Hit 10 Years Later
+
+TV, The Night Of, HBO Max, Crime
+
+Sat, 04 Jul 2026 20:00:13 GMT
+
+https://www.cbr.com/the-night-of-hbo-crime-drama-success-pvod-july-2026/
+
+HBO's crime drama with no bad episodes, The Night Of, is now a hit on PVOD in the United States.
+---------
+
+# David Dastmalchian's Comic The Accessories Reimagines Horror Movie Icons
+
+Comics, Horror
+
+Sat, 04 Jul 2026 20:00:13 GMT
+
+https://www.cbr.com/the-accessories-david-dastmalchian-comic-reimagines-horror-movie-icons/
+
+An upcoming comic puts classic horror movie supporting characters in the spotlight.
+---------
+
+# 5 Multiverse Movies Better Than Anything Marvel Has Made
+
+Movies, MCU
+
+Sat, 04 Jul 2026 20:00:13 GMT
+
+https://www.cbr.com/best-multiverse-movies-better-than-marvel-list/
+
+These five movies prove the multiverse works best when it's more than just a cool spectacle.
+---------
+
+# NBC Officially Decides Fate of Emily Deschanel's Bones Replacement 5 Months After Pilot Confirmation
+
+TV, Bones
+
+Sat, 04 Jul 2026 19:56:22 GMT
+
+https://www.cbr.com/nbc-emily-deschanel-key-witness-fate/
+
+The show was announced earlier this year but it won't move forward.
+---------
+
+# 40 One Piece Quotes That Inspire Us
+
+Anime, One Piece
+
+Sat, 04 Jul 2026 19:45:12 GMT
+
+https://www.cbr.com/one-piece-quotes-that-inspire-us/
+
+In Eiichiro Oda's One Piece, there's no shortage of inspirational quotes that offer something for anyone needing to find their inner pirate.
+---------
+
+# Supergirl Just Barely Avoided the Worst Second-Weekend Drop in Comic Book Movie History
+
+Movies, Supergirl
+
+Sat, 04 Jul 2026 19:44:22 GMT
+
+https://www.cbr.com/supergirl-second-weekend-drop/
+
+Supergirl sees a big decline in its second weekend at the box office, but it's still not the record low for comic book movies.
+---------
+
+# 5 Biggest Plot Holes In Netflix's Enola Holmes 3
+
+Movies, Enola Holmes 3, Enola Holmes, Netflix
+
+Sat, 04 Jul 2026 19:30:12 GMT
+
+https://www.cbr.com/enola-holmes-3-biggest-plot-holes-list/
+
+From beginning to end, Enola Holmes 3's lackluster plot raises several unanswered questions.
+---------
+
+# 5 Sci-Fi Books To Read After 'Dungeon Crawler Carl'
+
+Books and Comics, Dungeon Crawler Carl, Ready Player One, Pacific Rim, X-Men '97
+
+Sat, 04 Jul 2026 20:06:13 GMT
+
+https://collider.com/5-sci-fi-books-like-dungeon-crawler-carl/
+
+Matt Dimmaman's Dungeon Crawler Carl saga is becoming a smash hit, and here are five books that fit the same vibe.
+---------
+
+# 11 Years Later, Tom Hardy’s Sci-Fi Masterpiece Is Quietly Crushing the Competition on Streaming
+
+Movie News, Mad Max: Fury Road, Tom Hardy, George Miller, Charlize Theron
+
+Sat, 04 Jul 2026 20:00:13 GMT
+
+https://collider.com/tom-hardy-sci-fi-mad-max-fury-road-global-streaming-success-prime-video-apple-tv-july-2026/
+
+Tom Hardy's near-perfect sci-fi masterpiece co-starring Charlize Theron is officially one of the biggest streaming hits ever.
+---------
+
+# 8 Classic Fantasy Movies Nobody Wants To See a Remake Of
+
+Movie, Fantasy, Classics, The Neverending Story, The Princess Bride
+
+Sat, 04 Jul 2026 19:52:13 GMT
+
+https://collider.com/classic-fantasy-movies-no-remakes/
+
+The Princess Bride, The Neverending Story, My Neighbor Totoro, Shrek, and more make our list of fantasy movies nobody wants a remake of.
+---------
+
+# Only 10 Movies From the '70s Are Truly Perfect From Start to Finish
+
+Movie, Jaws, Chinatown, The Godfather, Barry Lyndon
+
+Sat, 04 Jul 2026 19:36:13 GMT
+
+https://collider.com/movies-70s-perfect-start-to-finish/
+
+From game-changing blockbusters like Star Wars to horror juggernauts like Alien, these '70s sensations are the equivalent of cinematic perfection.
+---------
+
+# The Best Sci-Fi Movie of 2026 Can't Stop Winning After Streaming Debut
+
+Movie News, Project Hail Mary, Prime Video, Hot on Streaming
+
+Sat, 04 Jul 2026 20:00:19 GMT
+
+https://movieweb.com/project-hail-mary-streaming-success-prime-july-2026-scifi/
+
+The best sci-fi movie of 2026, 'Project Hail Mary,' is already a streaming success on Prime Video.
+---------
+
+# 'Seinfeld’s Greatest Elaine Quote Still Lives Rent Free In Our Heads
+
+Features, Seinfeld, Great Line
+
+Sat, 04 Jul 2026 20:00:19 GMT
+
+https://movieweb.com/seinfeld-elaine-underrated-season-9-quote/
+
+'Seinfeld' has many memorable quotes from every main character, and this Elaine Benes (Julia Louis-Dreyfus) line is one of the best.
+---------
+
+# After 37 Years, Leonardo DiCaprio is Finally Breaking His "No Sequels" Rule
+
+Features, Leonardo DiCaprio
+
+Sat, 04 Jul 2026 19:30:19 GMT
+
+https://movieweb.com/leonardo-dicaprio-breaking-no-sequels-rule-heat-2/
+
+Leonardo DiCaprio has officially joined the cast of a sequel film, marking his first sequel role since 'Critters 3' in 1991.
+---------
+
 # 2026's Most Anticipated Webtoon Anime Just Got Delayed And It's Bad News
 
 Anime, Eleceed, Webtoon
