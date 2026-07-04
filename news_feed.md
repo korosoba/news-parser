@@ -1,3 +1,245 @@
+# Robert Eggers' Follow-Up To 2024's $182 Million Hit Is Going Against Hollywood History
+
+Movies, Masked Recs
+
+Sat, 04 Jul 2026 17:58:21 GMT
+
+https://screenrant.com/robert-eggers-werwulf-werewolf-movies-box-office-trend/
+
+With its star-studded cast, Nosferatu director Robert Eggers' next horror now needs to be the first successful entry into a risky genre this decade.
+---------
+
+# The Mandalorian And Grogu Ties With Solo For Star Wars' Quickest Plummet From The Box Office Top 10
+
+Star Wars, The Mandalorian and Grogu, Box Office
+
+Sat, 04 Jul 2026 17:56:58 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-box-office-week-7-domestic-chart-result/
+
+The Mandalorian and Grogu falls from the domestic box office Top 10 chart during weekend 7, tying for the quickest plummet of the Star Wars franchise.
+---------
+
+# Why Obsession's Curry Barker Is Perfect For A24's New Texas Chainsaw Massacre
+
+Movies, The Texas Chainsaw Massacre
+
+Sat, 04 Jul 2026 17:45:20 GMT
+
+https://screenrant.com/texas-chainsaw-massacre-curry-barker-writer-director-perfect/
+
+The up-and-coming Obsession director is helming A24’s Texas Chainsaw movie, and he may have just what it takes to revitalize the languid franchise.
+---------
+
+# Andy Serkis' New Epic War Movie Debuts To Rare Rotten Tomatoes Audience Score
+
+Movies, Young Washington
+
+Sat, 04 Jul 2026 17:44:00 GMT
+
+https://screenrant.com/young-washington-rotten-tomatoes-audience-score/
+
+A new war drama starring Lord of the Rings alumnus Andy Serkis accomplishes a rare achievement with its Rotten Tomatoes audience score.
+---------
+
+# Christopher Nolan Reveals Why His "Brutal" Fantasy Epic Is R-Rated
+
+Movies, The Odyssey
+
+Sat, 04 Jul 2026 17:35:28 GMT
+
+https://screenrant.com/christopher-nolan-the-odyssey-r-rating-reason/
+
+The Odyssey’s surprising R rating gets a new explanation from Christopher Nolan, who teases an especially “brutal” experience for audiences.
+---------
+
+# Gilmore Girls' New Streaming Home Creates A Perfect Back-To-Back Binge
+
+Streaming TV, Masked Recs
+
+Sat, 04 Jul 2026 17:30:20 GMT
+
+https://screenrant.com/gilmore-girls-streaming-prime-video-hart-of-dixie-double-binge/
+
+Now that Gilmore Girls has a new streaming home, subscribers can take advantage of the cozy small-town vibes with this long-running similar series.
+---------
+
+# Ryan Gosling's New Sci-Fi Thriller Rocks Prime Video's Streaming Chart At #1
+
+Movies, Masked Recs, Prime Video, Ryan Gosling
+
+Sat, 04 Jul 2026 17:20:32 GMT
+
+https://screenrant.com/project-hail-mary-prime-video-streaming-success-july-2026/
+
+One of the biggest sci-fi movies of 2026 has officially become a massive worldwide streaming hit following its arrival on Prime Video this summer.
+---------
+
+# 10 Greatest Movie Portrayals Of The Devil
+
+Movies, The Devil's Advocate, Constantine, End of Days, The Witch, Tenacious D In The Pick Of Destiny, South Park: Bigger, Longer & Uncut, Legend, Bedazzled, Angel Heart, The Prophecy
+
+Sat, 04 Jul 2026 17:20:20 GMT
+
+https://screenrant.com/best-movie-devil-portrayals/
+
+Movies often portray the devil as taking many forms. Here's a selection of films where the devil becomes an unforgettable part of the title.
+---------
+
+# Jurassic Park Meets Animal Crossing In New Free Game
+
+Gaming, Animal Crossing, Indie, Steam
+
+Sat, 04 Jul 2026 17:15:21 GMT
+
+https://screenrant.com/jurassic-park-game-very-safe-dino-park/
+
+Manage your own prehistoric theme park, deal with dangerous dinosaurs, and enjoy chaotic multiplayer fun with friends.
+---------
+
+# Marvel Reveals The Punisher's New Powers Before His Next Return
+
+Marvel Comics, The Punisher
+
+Sat, 04 Jul 2026 17:00:20 GMT
+
+https://screenrant.com/punisher-new-powers-explained-marvel/
+
+The Punisher earns his spot among Marvel's magical superheroes with the reveal of his unexpected supernatural power, which answers many questions.
+---------
+
+# 10 Best Pokémon 30th Celebration Cards, Ranked
+
+Games, Pokemon, Pokemon Trading Card Game, Pokemon TCG, Tabletop, TCG
+
+Sat, 04 Jul 2026 17:15:14 GMT
+
+https://www.cbr.com/best-pokemon-30th-celebration-teased-cards/
+
+Pokémon's tease of the best "30th Celebration" TCG cards are a promising reminder of the game's longevity.
+---------
+
+# In Just 1 Day, The Sci-Fi Movie Event of the Year Expands Global Streaming Domination
+
+Movies, Project Hail Mary
+
+Sat, 04 Jul 2026 17:00:12 GMT
+
+https://www.cbr.com/project-hail-mary-prime-video-global-success-july-2026/
+
+One of the biggest movies of the year so far continues to dominate. Who knew?
+---------
+
+# 10 Must-Read Captain America Comics This Fourth of July
+
+Comics, Captain America, Marvel, comic books
+
+Sat, 04 Jul 2026 17:00:12 GMT
+
+https://www.cbr.com/best-captain-america-comics-fourth-of-july/
+
+Celebrate the United States' 250th birthday with these must-read Captain America comics.
+---------
+
+# 8 Best Thriller Books of the Past 20 Years, Ranked
+
+Movie, Thriller, Gone Girl, The Woman in the Window, Bullet Train
+
+Sat, 04 Jul 2026 17:57:14 GMT
+
+https://collider.com/best-thriller-books-last-20-years-ranked/
+
+Big Little Lies, Gone Girl, The Woman in the Window, The Killer Question, and more make up our list of the best thriller books of the past 20 years.
+---------
+
+# George Lucas Cut the Best Scene From the Greatest Star Wars Prequel
+
+Movie Features, Star Wars: Episode III - Revenge of the Sith, Ewan McGregor, Natalie Portman, George Lucas
+
+Sat, 04 Jul 2026 17:53:15 GMT
+
+https://collider.com/revenge-of-the-sith-obi-wan-padme-deleted-scene/
+
+The Revenge of the Sith novelization reveals a missing Obi-Wan and Padmé scene that changes Anakin’s tragedy and deepens their friendship.
+---------
+
+# 7 Shows That Tried to Be the Next 'Avatar: The Last Airbender'
+
+TV, Avatar: The Last Airbender, Steven Universe, The Legend of Korra, The Dragon Prince
+
+Sat, 04 Jul 2026 17:19:13 GMT
+
+https://collider.com/shows-tried-to-be-avatar-the-last-airbender/
+
+Avatar: The Last Airbender is a masterclass of fantasy animation, and shows like Steven Universe and The Legend of Korra tried to continue its legacy.
+---------
+
+# This 10/10 John Wayne Western Hooks You in Under 4 Minutes
+
+Movie Features, John Wayne, Howard Hawks, Western, Westerns, Rio Bravo
+
+Sat, 04 Jul 2026 17:09:13 GMT
+
+https://collider.com/john-wayne-rio-bravo-best-western-opening-scene/
+
+Rio Bravo opens with one of John Wayne's greatest scenes, using almost no dialogue to establish its characters and why the Western remains a classic.
+---------
+
+# 10 Crime Shows That Are a Masterclass in Suspense
+
+TV, Crime, Legends, Nine Puzzles, High Potential
+
+Sat, 04 Jul 2026 17:04:13 GMT
+
+https://collider.com/suspenseful-crime-tv-shows/
+
+Immerse yourself in the world of suspense with these crime shows that excel in crafting compelling mysteries, from Mindhunter to Broadchurch.
+---------
+
+# Jason Statham’s $529M Sci-Fi Monster Movie Is Taking a Bite Out of HBO Max
+
+Movie News, The Meg, Jason Statham, Sci-Fi, Meg 2: The Trench
+
+Sat, 04 Jul 2026 17:01:14 GMT
+
+https://collider.com/jason-statham-sci-fi-movie-the-meg-streaming-hbo-max-july-2026/
+
+Jason Statham's takes on a giant shark in his blockbuster sci-fi franchise-starter, The Meg, now on streaming. Find out more here.
+---------
+
+# 10 TV Procedural Crime Thrillers Better Than 'The Rookie'
+
+TV Lists, Bosch, The Rookie, Criminal Minds, Thriller
+
+Sat, 04 Jul 2026 17:30:18 GMT
+
+https://movieweb.com/tv-procedural-thrillers-better-the-rookie/
+
+'The Rookie' is great, but with decades of great crime procedurals, there's plenty of better TV out there. Here's a shortlist to get you started.
+---------
+
+# Taylor Sheridan's New 'Yellowstone' Sequel Is Officially One of the Biggest Shows on Streaming
+
+TV News, Dutton Ranch, Paramount Plus, Hot on Streaming, Taylor Sheridan, Yellowstone
+
+Sat, 04 Jul 2026 17:00:18 GMT
+
+https://movieweb.com/dutton-ranch-taylor-sheridan-streaming-success-paramount-july-2026/
+
+The newest 'Yellowstone' spin-off, 'Dutton Ranch,' is a major streaming success following the Season 1 finale. Season 2 is in development.
+---------
+
+# 5 Lessons James Gunn's DCU Must Learn From 'Supergirl'
+
+Movie Lists, Supergirl, DCU
+
+Sat, 04 Jul 2026 17:00:18 GMT
+
+https://movieweb.com/dcu-biggest-supergirl-lessons/
+
+Despite underperforming at the box office, 'Supergirl' does provide some helpful lessons future DCU movies should consider.
+---------
+
 # Andrew Lincoln's Sicario Meets Extraction Action Series Saved Itself By Switching Genres After One Season
 
 TV, Strike Back, Andrew Lincoln
