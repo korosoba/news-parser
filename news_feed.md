@@ -1,3 +1,212 @@
+# 10 Near-Perfect '80s Action Movies That Aged Like Fine Wine
+
+Classic Movies, Action
+
+Sat, 04 Jul 2026 22:25:21 GMT
+
+https://screenrant.com/80s-action-movies-aged-fine-wine/
+
+The best action movies from the 1980s remain more memorable than many other films, and here are the films that have all aged like fine wine.
+---------
+
+# Delicious in Dungeon Season 2 Netflix Release Date Revealed
+
+Anime, Delicious in Dungeon, Anime Expo
+
+Sat, 04 Jul 2026 22:13:19 GMT
+
+https://screenrant.com/delicious-in-dungeon-netflix-season-2-release-date/
+
+Netflix's hit fantasy anime Delicious is Dungeon Season 2 officially has a return date after nearly four years of waiting.
+---------
+
+# The Lord Of The Rings Officially Returns November 2026 To Begin A New Era
+
+Streaming TV, Masked Recs
+
+Sat, 04 Jul 2026 22:13:20 GMT
+
+https://screenrant.com/the-rings-of-power-season-3-november-2026-new-lotr-era/
+
+The Lord of the Rings franchise is being revived and building momentum after the trilogy was one of the biggest fantasy masterpieces of all time.
+---------
+
+# HBO Max's Upcoming Drama Gives Neve Campbell A Proper Lincoln Lawyer Replacement
+
+TV, Masked Recs
+
+Sat, 04 Jul 2026 22:02:22 GMT
+
+https://screenrant.com/neve-campbell-lincoln-lawyer-replacement-hbo-max-the-shore/
+
+Neve Campbell's new series promises a gripping, twisty family story from HBOMax after the upcoming conclusion of Netflix's The Lincoln Lawyer.
+---------
+
+# Subnautica 2 Free Download Officially Available Now
+
+Gaming, Subnautica 2
+
+Sat, 04 Jul 2026 22:00:20 GMT
+
+https://screenrant.com/subnautica-2-free-download-game-pass-psa/
+
+Xbox Game Pass Ultimate members can now download and play Subnautica 2's early access version for free.
+---------
+
+# Elden Ring Movie Scores A Multi-Million Dollar Investment In New Update
+
+Movies, Elden Ring, A24
+
+Sat, 04 Jul 2026 21:31:57 GMT
+
+https://screenrant.com/elden-ring-movie-a24-multi-million-dollar-investment-google-update/
+
+A24's upcoming adaptation of the video game Elden Ring landed a multi-million dollar investment from one of the biggest companies in the world.
+---------
+
+# Margaret Qualley's Most Underrated Performance Is In A Small Thriller That Nobody Talks About
+
+Movies, Margaret Qualley, Sanctuary, Op-Ed
+
+Sat, 04 Jul 2026 21:30:21 GMT
+
+https://screenrant.com/margaret-qualley-underrated-performance-sanctuary/
+
+Margaret Qualley is one of the fastest rising stars in Hollywood and the actor's most underrated performance is in Sanctuary, a hidden gem thriller.
+---------
+
+# 10 Greatest Hard Sci-Fi Games of All Time
+
+Games, Sci-Fi, Video Games, Gaming
+
+Sat, 04 Jul 2026 22:16:13 GMT
+
+https://www.cbr.com/greatest-hard-sci-fi-games-all-time/
+
+True hard sci-fi games are few and far between, but when game developers get the hard science right in games like Per Aspera, it wows players.
+---------
+
+# Delicious in Dungeon Season 2 Reveals First Look Ahead of October 2027 Netflix Return
+
+Anime, Delicious in Dungeon
+
+Sat, 04 Jul 2026 22:00:18 GMT
+
+https://www.cbr.com/delicious-in-dungeon-season-2-netflix-october-2027-first-look/
+
+Fans of Delicious in Dungeon just got a major official release update on their favorite high fantasy anime series.
+---------
+
+# M.A.S.K. Creative Team Reveal What Inspired the Reboot Series
+
+Comics, skybound, image comics, Transformers
+
+Sat, 04 Jul 2026 22:00:12 GMT
+
+https://www.cbr.com/m-a-s-k-reboot-inspiration-explained/
+
+Relive the 80s with Sybound and Image Comics' revamp of MASK joining the imprint's Energon Universe and suggesting a major crossover is in the works.
+---------
+
+# Paramount Adaptation of Hit Fantasy Book Condemned by Author: 'I Will Not Watch It'
+
+Movies, Children of Blood and Bone
+
+Sat, 04 Jul 2026 21:32:34 GMT
+
+https://www.cbr.com/children-of-blood-and-bone-author-condemns-paramount-movie/
+
+The author also shared a screenshot of blocking the movie's star Amandla Stenberg, telling her to never mention her name again.
+---------
+
+# Ben Affleck's $370M R-Rated Thriller Returns as a Netflix Hit 12 Years Later
+
+Movies, Gone Girl, Thriller, Netflix
+
+Sat, 04 Jul 2026 21:30:13 GMT
+
+https://www.cbr.com/ben-affleck-gone-girl-crime-thriller-netflix-sucess-july-2026/
+
+Ben Affleck's acclaimed thriller Gone Girl is a streaming hit on Netflix in the United States.
+---------
+
+# The Sci-Fi Disaster That Grossed Less Than Half Its $150M Budget Lands on Prime Video
+
+Movie News, Moonfall, Roland Emmerich, Sci-Fi, Patrick Wilson
+
+Sat, 04 Jul 2026 22:15:13 GMT
+
+https://collider.com/roland-emmerich-sci-fi-disaster-moonfall-streaming-prime-video-july-2026/
+
+Roland Emmerich's big-budget sci-fi bomb starring Patrick Wilson and Halle Berry, Moonfall, is now streaming on Prime Video.
+---------
+
+# 10 Fantasy Books Better Than Most Movies You've Seen
+
+Books and Comics, Books, Fantasy, The Lord of the Rings, A Song of Ice and Fire
+
+Sat, 04 Jul 2026 22:03:14 GMT
+
+https://collider.com/fantasy-books-better-than-most-movies/
+
+From The Lions of Al-Rassan to Words of Radiance, these incredible and evocative fantasy books surpass nearly every major movie in the beloved genre.
+---------
+
+# Apple TV's Cyberpunk Sci-Fi Series Is Finally Here in First Teaser
+
+TV News, Neuromancer, Apple TV, Science Fiction, William Gibson
+
+Sat, 04 Jul 2026 22:00:13 GMT
+
+https://collider.com/apple-tv-cyberpunk-sci-fi-series-neuromancer-teaser-trailer/
+
+Since 1984, fans have wanted to see Neuromancer come to life, and now thanks to Apple TV, it's happening. See the teaser here!
+---------
+
+# Netflix’s Forgotten 6-Part Spy Thriller Series Is a Must-Watch Before Season 2
+
+TV Features, Black Doves, Keira Knightley, Ben Whishaw, Netflix
+
+Sat, 04 Jul 2026 21:47:14 GMT
+
+https://collider.com/black-doves-netflix-spy-thriller-must-watch-before-season-2/
+
+With standout performances from Keira Knightley and Ben Whishaw, Netflix's underrated spy thriller Black Doves is a must-watch before Season 2.
+---------
+
+# 10 Greatest Netflix TV Masterpieces of the Last 10 Years, Ranked
+
+TV, Netflix, Adolescence, Squid Game, Stranger Things
+
+Sat, 04 Jul 2026 21:41:13 GMT
+
+https://collider.com/best-netflix-shows-masterpieces-last-10-years-ranked/
+
+Discover the best Netflix original TV shows from the past 10 years, featuring acclaimed hits like Squid Game, Dark, and The Crown.
+---------
+
+# James Gunn's First DCU Movie Soars on HBO Max as 'Supergirl' Flops
+
+Movie News, Supergirl, Superman, DC, HBO Max
+
+Sat, 04 Jul 2026 21:30:13 GMT
+
+https://collider.com/james-gunn-superman-streaming-success-hbo-max-july-2026/
+
+Supergirl is helping send the first DU film, Superman, flying up the streaming charts in America. Here's everything to know about the superhero film.
+---------
+
+# Every 'Yellowstone' Spin-off In Development After 'Dutton Ranch'
+
+Features, Dutton Ranch, Yellowstone
+
+Sat, 04 Jul 2026 22:00:18 GMT
+
+https://movieweb.com/yellowstone-spin-offs-after-dutton-ranch/
+
+'Dutton Ranch' proved a worthy sequel to Taylor Sheridan's flagship neo-Western 'Yellowstone', and the franchise is far from done expanding.
+---------
+
 # Say Goodbye To Star Wars Canon As Disney Launches A Whole New Universe
 
 Streaming TV, Star Wars: Visions, Star Wars
