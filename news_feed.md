@@ -1,3 +1,256 @@
+# Say Goodbye To Star Wars Canon As Disney Launches A Whole New Universe
+
+Streaming TV, Star Wars: Visions, Star Wars
+
+Sat, 04 Jul 2026 21:15:20 GMT
+
+https://screenrant.com/star-wars-visions-presents-label-disney-new-universe/
+
+Star Wars' last major release this year will change everything for the galaxy far, far away, as Disney prepares to launch a brand-new universe.
+---------
+
+# Three Great But Very Different Shark Movies Hit Peacock Ahead Of Shark Week 2026
+
+Movies, Peacock, Streaming Release, Jaws, Shark Tale, The Shallows
+
+Sat, 04 Jul 2026 21:15:20 GMT
+
+https://screenrant.com/jaws-the-shallows-shark-tale-peacock-streaming-before-shark-week/
+
+Shark Week is coming up near the end of July but until that time, you can check out this trio of shark films that have arrived on Peacock.
+---------
+
+# Paramount's New Epic Fantasy Movie Based On Bestselling Novels Loses Support From Author
+
+Movies, Children of Blood and Bone, Paramount Pictures
+
+Sat, 04 Jul 2026 21:08:40 GMT
+
+https://screenrant.com/paramount-children-of-blood-and-bone-movie-loses-tomi-adeyemi-support/
+
+Paramount's upcoming epic fantasy movie based on a bestselling series loses support from the author, with just six months before its release.
+---------
+
+# 13 Years Later, Studio Ghibli’s Spiritual Sequel To Grave of the Fireflies Is Aging Like Fine Wine
+
+Anime, Studio Ghibli, The Wind Rises
+
+Sat, 04 Jul 2026 21:00:20 GMT
+
+https://screenrant.com/studio-ghibli-grave-of-fireflies-successor-wind-rises-aged-perfectly/
+
+Explore the anti-war themes and moral complexity of Ghibli's The Wind Rises, a haunting reflection on WWII's unintended consequences of innovation.
+---------
+
+# Batman: Arkham Knight’s Most Heartwarming Feature Is Officially Just A Bug
+
+Gaming, Batman: Arkham Knight, Triple-A Games
+
+Sat, 04 Jul 2026 21:00:20 GMT
+
+https://screenrant.com/batman-arkham-knight-robin-bug/
+
+Batman: Arkham Knight has so many incredible NPC interactions that one slipped by unnoticed as an unintended bug for the last 11 years.
+---------
+
+# All 7 Scream Movies, Ranked By Box Office
+
+Movies, Scream, Ranking
+
+Sat, 04 Jul 2026 21:00:20 GMT
+
+https://screenrant.com/scream-movies-box-office-ranking/
+
+The Scream franchise has been a box office juggernaut since it debuted back in 1996, but which of the meta slasher flicks made the most money?
+---------
+
+# Batman: Knightfall Part 1 Has The Robin Story That DCU Fans Needed
+
+Movies, Batman: Knightfall Part 1: Knightfall
+
+Sat, 04 Jul 2026 20:45:20 GMT
+
+https://screenrant.com/dc-batman-knightfall-part-1-robin-dcu-story/
+
+Batman's next upcoming movie has a Robin story that has already drawn in audiences, which is perfectly timed to help the DCU with its own decisions.
+---------
+
+# One Of Doctor Who's Greatest Stories Is Hard To Watch Today
+
+Classic TV, Doctor Who
+
+Sat, 04 Jul 2026 20:32:20 GMT
+
+https://screenrant.com/doctor-who-talons-of-weng-chiang-hard-to-watch/
+
+Even though one Doctor Who's early storylines is still seen as one of the show's greatest outings, this serial is almost un-watchable in 2026.
+---------
+
+# 13 Years Later, Addictive Dark Action Manga Murciélago Is Finally Getting An Anime
+
+Anime, Anime Expo
+
+Sat, 04 Jul 2026 20:30:20 GMT
+
+https://screenrant.com/murcielago-action-seinen-yuri-anime-confirmed/
+
+An underrated action manga is finally getting an anime.
+---------
+
+# 20 Years Later, Gears Of War Is Making The Same Mistake
+
+Gaming, Gears of War, Triple-A Games
+
+Sat, 04 Jul 2026 20:30:20 GMT
+
+https://screenrant.com/gears-of-war-movie-origin-story-mistake/
+
+Gears of War limited its storytelling potential greatly in its original trilogy, and it seems as if the franchise's newest entry is doing the same.
+---------
+
+# 5 Perfect Action Anime Better Than Demon Slayer
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Demon Slayer: Mugen Train
+
+Sat, 04 Jul 2026 21:15:12 GMT
+
+https://www.cbr.com/action-anime-better-than-demon-slayer/
+
+Demon Slayer's expertise in the action anime genre is hard to beat, but a handful of series manage to surpass it.
+---------
+
+# Netflix's One Piece Remake Studio Launches New Anime Awards to Rival Crunchyroll
+
+Anime, One Piece, Crunchyroll, Netflix
+
+Sat, 04 Jul 2026 21:07:28 GMT
+
+https://www.cbr.com/one-piece-remake-studio-challenges-crunchyroll-anime-awards/
+
+The studio behind Netflix's The One Piece anime remake is officially challenging Crunchyroll with its own Anime Awards launching in fall 2026.
+---------
+
+# Samara Weaving's $42M Horror Sequel Is an Instant Streaming Hit After Grossing 3x Its Budget
+
+Movies, Ready or Not, Ready or Not 2: Here I Come
+
+Sat, 04 Jul 2026 21:00:12 GMT
+
+https://www.cbr.com/samara-weaving-ready-or-not-2-here-i-come-slasher-hulu-success-july-2026/
+
+The hit slasher sequel continues its domination on streaming.
+---------
+
+# What's Streaming on HBO Max in June 2026? Everything Arriving This Month
+
+Movies, HBO Max
+
+Sat, 04 Jul 2026 20:30:20 GMT
+
+https://www.cbr.com/what-streaming-hbo-max-june-2026-full-list/
+
+With the celebration of the Fourth of July, there's nothing better than knowing what else is next.
+---------
+
+# 8 Greatest Steamy Adult Series To Stream on Netflix
+
+TV, Netflix, Bridgerton, Outlander, Sense8
+
+Sat, 04 Jul 2026 21:17:14 GMT
+
+https://collider.com/best-steamy-shows-netflix/
+
+Sexy fare like Sense8, Bridgerton, and Outlander are all among the steamiest shows you can watch right now with your Netflix subscription.
+---------
+
+# Taylor Sheridan’s 4-Part Crime Masterpiece Is the Perfect Weekend Binge for 'MobLand' Fans
+
+TV News, Tulsa King, Yellowstone, MobLand, Taylor Sheridan
+
+Sat, 04 Jul 2026 21:15:13 GMT
+
+https://collider.com/taylor-sheridan-tulsa-king-streaming-success-paramount-plus-july-2026/
+
+Taylor Sheridan's epic crime thriller with shades of Yellowstone and MobLand has become a global sensation on Paramount+.
+---------
+
+# 6 Worst MCU Movies of All Time
+
+Movie, MCU, Superhero, Eternals, Captain America: Brave New World
+
+Sat, 04 Jul 2026 21:14:13 GMT
+
+https://collider.com/worst-marvel-mcu-movies-ranked/
+
+From Eternals, to The Incredible Hulk, to Ant-Man and the Wasp: Quantumania, these MCU movies are the pits.
+---------
+
+# 20 Years Later, This Criminally Underrated Detective Series Is Still One of the Best
+
+TV Features, Psych, James Roday, Crime, Comedy
+
+Sat, 04 Jul 2026 21:11:13 GMT
+
+https://collider.com/best-detective-series-psych-apple/
+
+Psych features visually engaging cases and 1980s nostalgia, making it a must-watch for crime and comedy fans alike.
+---------
+
+# This 85-Minute Horror Hit Is an Instant HBO Max Streaming Smash
+
+Movie News, undertone, Horror, HBO Max, Streaming
+
+Sat, 04 Jul 2026 21:01:13 GMT
+
+https://collider.com/undertone-streaming-success-hbo-max-july-2026/
+
+One of the most terrifying movies of the year is an HBO Max hit. Here's everything you should know about the horror movie Undertone.
+---------
+
+# Dan Stevens' Forgotten Cult Classic Thriller Deserves a Rewatch Ahead of 'Onslaught'
+
+Movie Features, Adam Wingard, Simon Barrett, The Guest, Onslaught
+
+Sat, 04 Jul 2026 20:38:13 GMT
+
+https://collider.com/the-guest-onslaught-spiritual-sequel-adam-wingard-dan-stevens/
+
+Adam Wingard and Simon Barrett's The Guest may be the perfect companion to Onslaught, sharing Dan Stevens, super soldiers, and genre DNA.
+---------
+
+# Forget 'Nuremberg,' This WWII Courtroom Masterpiece Is Officially Streaming on Prime Video
+
+Movie News, Nuremberg, Judgment at Nuremberg, World War II, Prime Video
+
+Sat, 04 Jul 2026 20:30:13 GMT
+
+https://collider.com/judgment-at-nuremberg-ww2-classic-streaming-prime-video-july-2026/
+
+One of the greatest movies about the Holocaust ever made, Judgment at Nuremberg, is now streaming on Prime Video.
+---------
+
+# Stephen King’s Most Underrated Thriller Adaptation Still Holds Up
+
+Features, Misery, Stephen King
+
+Sat, 04 Jul 2026 21:00:18 GMT
+
+https://movieweb.com/misery-stephen-king-thriller-holds-up/
+
+Stephen King's beloved novels have been adapted into some of the most popular movies of all time, and one is the most underrated.
+---------
+
+# Jason Statham's Hit Action Thriller Is a Must-Watch for 'Reacher' Fans
+
+Features, Jason Statham, Homefront, Reacher, Thriller
+
+Sat, 04 Jul 2026 20:30:18 GMT
+
+https://movieweb.com/homefront-jason-statham-reacher-replacement/
+
+Missing 'Reacher'? Love action? This Jason Statham movie checks those two primary boxes, and it's worth checking out for anyone who missed it.
+---------
+
 # Criminal Minds Unintentionally Exposes Its Self-Inflicted Weakness
 
 Network TV, Criminal Minds
