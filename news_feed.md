@@ -1,3 +1,278 @@
+# All 3 Movies Directed By Olivia Wilde, Ranked
+
+Movies, Olivia Wilde
+
+Sat, 04 Jul 2026 15:30:20 GMT
+
+https://screenrant.com/movies-directed-by-olivia-wilde/
+
+With the release of The Invite, Olivia Wilde has now officially directed three movies. But which among them is the best, and which is the worst?
+---------
+
+# Ghostbusters: Night Shift Should Have Revived The Franchise's Most Underrated Entry
+
+TV, Ghostbusters: Night Shift, The Real Ghostbusters, Ghostbusters
+
+Sat, 04 Jul 2026 15:30:20 GMT
+
+https://screenrant.com/real-ghostbusters-night-shift-show-revival-movie-timeline/
+
+Netflix's animated series Ghostbusters: Night Shift is set in the movie's timeline, but it should have revived this underrated spinoff instead.
+---------
+
+# James Van Der Beek’s Final Role In Prime Video’s New Comedy Prequel Series Praised By Creator
+
+Exclusive, Elle
+
+Sat, 04 Jul 2026 15:22:56 GMT
+
+https://screenrant.com/james-van-der-beek-elle-prime-video-final-role-praised-creator/
+
+EXCLUSIVE: James Van Der Beek's final role has been revealed, as the new comedy prequel series and its creator pay tribute to the late actor.
+---------
+
+# Dragon Ball Officially Announces New Form For Goku After 37 Years
+
+Gaming, Dragon Ball, Dragon Ball Z, Dragon Ball Xenoverse 2, Dragon Ball Xenoverse 3, PC
+
+Sat, 04 Jul 2026 15:03:12 GMT
+
+https://screenrant.com/dragon-ball-goku-new-form-confirmed/
+
+Hard to believe it's been 37 years, but Dragon Ball has officially announced a brand-new form for Goku that longtime fans won't want to miss.
+---------
+
+# Minions & Monsters’ Shocking George Lucas Cameo & Old Hollywood References Broken Down By Cast & Director
+
+Movies, Minions & Monsters, Despicable Me
+
+Sat, 04 Jul 2026 15:00:21 GMT
+
+https://screenrant.com/minions-monsters-george-lucas-cameo-hollywood-references-cast-creator/
+
+The Minions & Monsters director and cast talk the new Despicable Me prequel, George Lucas' surprise cameo, and its Old Hollywood references.
+---------
+
+# Prime Video's Sicario Meets The Punisher Action Show Got Even Better When It Swapped Its Main Character
+
+TV, The Terminal List: Dark Wolf, The Terminal List
+
+Sat, 04 Jul 2026 15:00:21 GMT
+
+https://screenrant.com/terminal-list-dark-wolf-protagonist-switch-sicario-punisher/
+
+This Prime Video thriller, which has shades of Sicario and The Punisher, got even better in its second series when it swapped out its main character.
+---------
+
+# Ridley Scott Nearly Pushed One Of His New Sci-Fi Stars To Get “The F—k Out” Of The 2026 Movie
+
+Movies, The Dog Stars
+
+Sat, 04 Jul 2026 15:00:21 GMT
+
+https://screenrant.com/the-dog-stars-ridley-scott-josh-brolin-almost-quit/
+
+One major star of Ridley Scott’s upcoming The Dog Stars reveals that he nearly quit the 2026 sci-fi action movie after a single day of work.
+---------
+
+# Rocky Horror Meets Saw In The Weirdest Cyberpunk Sci-Fi Of All Time
+
+Movies, Masked Recs
+
+Sat, 04 Jul 2026 15:00:21 GMT
+
+https://screenrant.com/cyberpunk-repo-the-genetic-opera-rocky-horror-saw-recommendation/
+
+Cyberpunk is filled with more traditional stories, but one movie that's best described as "Rocky Horror meets Saw" is the weirdest of all time.
+---------
+
+# Pokémon: Chasing Glory Together Officially Announced For July 16
+
+Gaming, Pokemon Trading Card Game, Pokemon
+
+Sat, 04 Jul 2026 15:00:21 GMT
+
+https://screenrant.com/pokemon-chasing-glory-together-july-16-release/
+
+Pokémon: Chasing Glory Together has been revealed, and it's got a July 2026 release date, so it's coming pretty soon. There's just one small catch.
+---------
+
+# Dutton Ranch’s True Villain Reveal & Season 2 Future Addressed By Cole Hauser & Kelly Reilly
+
+TV, Dutton Ranch
+
+Sat, 04 Jul 2026 14:50:27 GMT
+
+https://screenrant.com/dutton-ranch-season-2-future-villain-kelly-reilly-cole-hauser/
+
+Dutton Ranch's true villain is revealed ahead of season 2, as Cole Hauser and Kelly Reilly expand on the future of the spinoff and the intense finale.
+---------
+
+# Matt Reeves' 8-Episode Prime Video Sci-Fi Show Is Becoming a Cult Classic
+
+TV, Tales from the Loop, Sci-Fi, Prime Video
+
+Sat, 04 Jul 2026 15:30:12 GMT
+
+https://www.cbr.com/matt-reeves-tales-from-the-loop-sci-fi-modern-cult-classic/
+
+Matt Reeves produced one of the most criminally overlooked sci-fi shows of the 2020s, which is thankfully starting to find the audience it deserves.
+---------
+
+# D&D Ravenloft: The Horrors Within Review - A New Era Of Terror Begins Now
+
+Games, Dungeons and Dragons, Baldur's Gate 3, Tabletop
+
+Sat, 04 Jul 2026 15:30:12 GMT
+
+https://www.cbr.com/dnd-ravenloft-the-horrors-within-review/
+
+Ravenloft: The Horrors Within is a new Dungeons & Dragons book focusing on the Domains of Dread with updated options and fresh advice for DMs.
+---------
+
+# It's Official, Summer 2026's Best New Anime Is the Sci-Fi Event of the Decade
+
+Anime, Ghost in the Shell, The Ghost in the Shell, mecha, Prime Video, Sci-Fi
+
+Sat, 04 Jul 2026 15:15:13 GMT
+
+https://www.cbr.com/summer-2026-best-new-anime-ghost-in-the-shell-return/
+
+Ghost in the Shell is coming back this July, and the returning cyberpunk anime franchise has a chance to become a bigger hit than ever before.
+---------
+
+# Matt Smith Reacts to Keanu Reeves Watching His 15% Panned Sony Superhero Movie
+
+Movies, Morbius
+
+Sat, 04 Jul 2026 15:03:43 GMT
+
+https://www.cbr.com/matt-smith-keanu-reeves-watching-morbius/
+
+Doctor Who and House of the Dragon star Matt Smith offers an explicit and candid reaction to Keanu Reeves watching his superhero bomb.
+---------
+
+# Robert Duvall's Final Directorial Effort Is Streaming for Free 11 Years Later
+
+Movies, Wild Horses, Paramount, Western
+
+Sat, 04 Jul 2026 15:00:12 GMT
+
+https://www.cbr.com/robert-duvall-wild-horses-streaming-free-pluto-tv-july-2026/
+
+Now is the perfect time to watch Robert Duvall's Western crime drama, Wild Horses, for free in the United States.
+---------
+
+# 10 Classic 2000s Anime Series That Are Unwatchable Today
+
+Anime, Elfen Lied, Vampire Knight, Love Hina
+
+Sat, 04 Jul 2026 15:00:12 GMT
+
+https://www.cbr.com/classic-2000s-anime-series-unwatchable-today/
+
+The 2000s had its fair share of phenomenal hits and memorable classics, but these ten anime series are tough to go back to in 2026.
+---------
+
+# Charlie Cox's 2-Part Adaptation of the Best Classic Novel Ever Written Is a 10/10 Masterpiece
+
+TV, Moby Dick, charlie cox
+
+Sat, 04 Jul 2026 14:30:12 GMT
+
+https://www.cbr.com/charlie-cox-moby-dick-masterpiece/
+
+Before becoming Daredevil in the Marvel Cinematic Universe, Charlie Cox starred in a celebrated adaptation of one of the most iconic stories ever.
+---------
+
+# 10 Prime Video Anime That Are 10/10, No Notes
+
+Anime, Vinland Saga, Naruto: Shippuden, Assassination Classroom, Prime Video
+
+Sat, 04 Jul 2026 14:15:13 GMT
+
+https://www.cbr.com/perfect-prime-video-anime-no-notes/
+
+While Prime Video's anime library may not be as vast as other streaming platforms, it still includes these ten phenomenal titles that are must-watch.
+---------
+
+# Lucky Creators Explain the Show's Unique POV
+
+TV, Lucky
+
+Sat, 04 Jul 2026 14:15:13 GMT
+
+https://www.cbr.com/video/lucky-creators-explain-the-show-s-unique-pov/
+
+Lucky creators Jonathan Tropper and Cassie Pappas explain the storytelling choices behind Apple TV+'s thriller. They break down why the series never leaves Lucky's point of view, how they adapted the novel's flashbacks for television, and why Drew Starkey's mysterious role works so well from her perspective.
+---------
+
+# Prime Video’s New Sci-Fi Movie Hit Is Taking Over Streaming
+
+Movie News, Project Hail Mary, Prime Video, Sci-Fi, Ryan Gosling
+
+Sat, 04 Jul 2026 15:30:12 GMT
+
+https://collider.com/project-hail-mary-prime-video-streaming-success-july-2026/
+
+Project Hail Mary, the Ryan Gosling sci-fi blockbuster, is officially taking over Prime Video after its theatrical run.
+---------
+
+# Zendaya Shares How Tom Holland Helped Ease Her Anxiety on Christopher Nolan's 'The Odyssey'
+
+Exclusives, The Odyssey, Christopher Nolan, Zendaya, John Leguizamo
+
+Sat, 04 Jul 2026 15:28:37 GMT
+
+https://collider.com/zendaya-tom-holland-the-odyssey-christopher-nolan/
+
+Zendaya and John Leguizamo reveal Christopher Nolan’s impressive strategy to film The Odyssey's dialogue with IMAX cameras and more.
+---------
+
+# Taylor Sheridan Returns to TV With a New Series That Will Fix Marvel’s Biggest Mistake
+
+TV Features, Frisco King, Taylor Sheridan, Tulsa King, Samuel L. Jackson
+
+Sat, 04 Jul 2026 15:23:14 GMT
+
+https://collider.com/frisco-king-taylor-sheridan-samuel-l-jackson-tulsa-king-spinoff/
+
+Taylor Sheridan is returning to television with Frisco King, writing every episode for the upcoming Tulsa King spin-off starring Samuel L. Jackson.
+---------
+
+# This Netflix Movie Will Wreck You and You Should Watch It Anyway
+
+Exclusives, In Waves, Netflix, Animation, Annecy
+
+Sat, 04 Jul 2026 15:19:15 GMT
+
+https://collider.com/in-waves-netflix-aj-dungo-phuong-mai-nguyen/
+
+Netflix’s In Waves, directed by Phuong Mai Nguyen, adapts illustrator A.J. Dungo’s personal graphic novel into one of the best films of 2026.
+---------
+
+# Henry Cavill Is the King of Streaming With 2 Back-to-Back Blockbusters
+
+Movie News, Henry Cavill, In the Grey, Enola Holmes 3, Man of Steel
+
+Sat, 04 Jul 2026 14:46:13 GMT
+
+https://collider.com/henry-cavill-enola-holmes-3-in-the-grey-streaming-succcess-netflix-prime-video/
+
+Henry Cavill has two major streaming releases in 2026, with Enola Holmes 3 on Netflix and In the Grey on Prime Video.
+---------
+
+# Netflix's "Guy Ritchie-Esque" Crime Thriller Makes for a Perfect Weekend Binge
+
+Features, The Tourist, Crime, Netflix, Guy Ritchie, Thriller
+
+Sat, 04 Jul 2026 15:00:19 GMT
+
+https://movieweb.com/netflix-the-tourist-binge-watch/
+
+Guy Ritchie fans who can't get enough dark comedy mixed with intense violence need to check out Netflix's little-known series.
+---------
+
 # Marvel Officially Unveils Wild New Captain America Suit
 
 Gaming, Marvel, Marvel Rivals, Captain America, PC
