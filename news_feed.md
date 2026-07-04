@@ -1,3 +1,289 @@
+# Andrew Lincoln's Sicario Meets Extraction Action Series Saved Itself By Switching Genres After One Season
+
+TV, Strike Back, Andrew Lincoln
+
+Sat, 04 Jul 2026 16:55:22 GMT
+
+https://screenrant.com/strike-back-sicario-meets-extraction-genre-switch-action/
+
+This Andrew Lincoln action show, which has shades of Extraction and Sicario, wisely switched genres after the original season and became a big hit.
+---------
+
+# Supernatural Officially Returns September 2026 And Sam & Dean Won't Be Together
+
+Classic TV, Supernatural
+
+Sat, 04 Jul 2026 16:46:20 GMT
+
+https://screenrant.com/supernatural-returns-wayward-special-sam-dean-separated/
+
+Supernatural will return with an all-new story and event later this year, one that will force the Winchester brothers to go their separate ways.
+---------
+
+# The Devil Wears Prada: 30 Miranda Priestly Quotes That Are Almost Too Savage
+
+Movies, The Devil Wears Prada
+
+Sat, 04 Jul 2026 16:40:21 GMT
+
+https://screenrant.com/devil-wears-prada-miranda-priestly-quotes-savage/
+
+The Devil Wears Prada is ruled by Meryl Streep's Miranda Priestly, Runaway's editor-in-chief known for delivering savage and fabulous quotes.
+---------
+
+# Netflix’s Record-Setting New Thriller Finally Dethroned By 4-Part Crime Series
+
+TV, Masked Recs
+
+Sat, 04 Jul 2026 16:39:43 GMT
+
+https://screenrant.com/worst-neighbor-ever-netflix-streaming-success-july-2026-i-will-find-you-dethrone/
+
+Netflix's record-breaking crime thriller is finally dethroned after a headline-grabbing run, losing to a four-part series that recently debuted.
+---------
+
+# Anime Has Found Its Next Sasuke In Netflix's Next Cyberpunk Masterpiece
+
+Anime, Cyberpunk: Edgerunners 2, Netflix
+
+Sat, 04 Jul 2026 16:30:19 GMT
+
+https://screenrant.com/cyberpunk-edgerunners-2-sasuke-naruto-replacement-d/
+
+Anime's new Sasuke is here.
+---------
+
+# Anya Taylor-Joy Breaks Silence On Joining Lord Of The Ring As New Character
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, Anya Taylor-Joy
+
+Sat, 04 Jul 2026 16:22:26 GMT
+
+https://screenrant.com/lord-of-the-rings-hunt-for-gollum-seren-anya-taylor-joy-response/
+
+After being cast as the original character Seren in The Lord of the Rings: The Hunt for Gollum, Anya Taylor-Joy discusses joining the franchise.
+---------
+
+# DC Has Confirmed Why One Batman Villain Has Been Off Limits For Live-Action Until Now
+
+Movies, Clayface, DC Universe
+
+Sat, 04 Jul 2026 16:20:19 GMT
+
+https://screenrant.com/dc-batman-clayface-live-action-movie-missing/
+
+One Batman villain's absence from the world of live-action movies makes a lot more sense now based on new reveals about DC's film roster.
+---------
+
+# The Boys Video Game Nobody Talks About Is Still Worth Playing
+
+Gaming, The Boys
+
+Sat, 04 Jul 2026 16:15:20 GMT
+
+https://screenrant.com/the-boys-trigger-warning-video-game-vr/
+
+The Boys has had several video game crossovers, but few fans of the hit Amazon Prime Video series or comic book know about its months-old game.
+---------
+
+# 3 Best Shows To Watch On Netflix This 4th Of July Weekend
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Sat, 04 Jul 2026 16:10:20 GMT
+
+https://screenrant.com/best-netflix-shows-watch-weekend-july-4/
+
+These are 3 of the very best shows on Netflix to watch this 4th of July weekend, all with patriotic themes and historical context relating to the USA.
+---------
+
+# The Brutal Truth Behind Haymitch's Hunger Games Revealed In New Sunrise On The Reaping Trailer
+
+Movies, The Hunger Games: Sunrise on the Reaping
+
+Sat, 04 Jul 2026 16:05:44 GMT
+
+https://screenrant.com/hunger-games-sunrise-on-the-reaping-haymitch-origins-teaser/
+
+A new The Hunger Games: Sunrise on the Reaping teaser featuring unseen footage has been released on Haymitch Abernathy's birthday.
+---------
+
+# How to Get Every Sebastian Heart Event In Stardew Valley
+
+Games, Stardew Valley, Video Games
+
+Sat, 04 Jul 2026 16:51:13 GMT
+
+https://www.cbr.com/stardew-valley-sebastian-heart-event-guide/
+
+Stardew Valley's Sebastian is one of the more difficult romance options, and knowing how to woo him makes all the difference in securing his heart.
+---------
+
+# 5 Action Movie Franchises Better Than John Wick
+
+Movies, John Wick
+
+Sat, 04 Jul 2026 16:30:12 GMT
+
+https://www.cbr.com/action-movie-franchises-better-than-john-wick/
+
+John Wick created a new gold standard for the action genre, but there are still some franchises that excel beyond the Wick films.
+---------
+
+# 5 Underrated '80s Sitcoms That Still Hold Up
+
+TV, Sitcoms, My Two Dads, Out of This World, The New Leave It to Beaver
+
+Sat, 04 Jul 2026 16:30:12 GMT
+
+https://www.cbr.com/underrated-80s-sitcoms-still-hold-up-list/
+
+The 1980s may have been a golden era for sitcoms, but some entertaining shows like My Two Dads and Out of This World fell into obscurity.
+---------
+
+# 5 Solo Leveling: Beyond the System Movie Details Fans Missed in the New Trailer
+
+Anime, Solo Leveling
+
+Sat, 04 Jul 2026 16:15:13 GMT
+
+https://www.cbr.com/solo-leveling-beyond-the-system-movie-trailer-missed-details-list/
+
+The teaser trailer to Solo Leveling’s upcoming movie, Beyond the System, is already hiding some exciting hints at the series’ future in plain sight.
+---------
+
+# How Lucky Reinvented the Book's Flashbacks
+
+TV, Lucky
+
+Sat, 04 Jul 2026 16:15:13 GMT
+
+https://www.cbr.com/video/how-lucky-reinvented-the-book-s-flashbacks/
+
+Jonathan Tropper and Cassie Pappas reveal how adapting Lucky meant transforming the novel's detailed flashbacks into quick, emotional moments for the Apple TV+ series.
+---------
+
+# Minions & Monsters Cast Pick Their Dream Crossovers
+
+Movies, Minions & Monsters
+
+Sat, 04 Jul 2026 16:15:13 GMT
+
+https://www.cbr.com/video/minions-monsters-cast-pick-their-dream-crossovers/
+
+Jeff Bridges shares an unforgettable Hollywood story while promoting Minions & Monsters, alongside Allison Janney and Bobby Moynihan. The cast also reveals the coolest movie swag they've ever received and imagines hilarious Minions crossovers with some of their most iconic projects.
+---------
+
+# Yellowstone's Most Divisive Spinoff Officially Returns to the Streaming Charts as Fans Await Season 2
+
+TV, Yellowstone, Marshals, Dutton Ranch
+
+Sat, 04 Jul 2026 16:12:30 GMT
+
+https://www.cbr.com/yellowstons-divisive-spinoff-marshals-returns-to-streaming-charts-before-season-2/
+
+The success of Yellowstone may not be enough to save the spinoff, but it's surging at the moment.
+---------
+
+# The Hunger Games Officially Confirms Katniss Everdeen's Replacement
+
+Movies, The Hunger Games, The Hunger Games: Sunrise on the Reaping
+
+Sat, 04 Jul 2026 16:03:40 GMT
+
+https://www.cbr.com/the-hunger-games-sunrise-on-the-reaping-haymitch-featurette/
+
+The long-running dystopian franchise continues.
+---------
+
+# 5 Forgotten R-Rated Westerns That Are Perfect From Start to Finish
+
+Movies, Western, Ravenous
+
+Sat, 04 Jul 2026 16:00:12 GMT
+
+https://www.cbr.com/best-forgotten-r-rated-westerns-list/
+
+As much as audiences have fallen in love with the darker side of the Western, some of its best R-rated masterpieces have fallen into obscurity.
+---------
+
+# DC's Absolute Universe Just Got The Weirdest Must-Own Collectibles
+
+Comics, Absolute Universe
+
+Sat, 04 Jul 2026 16:00:12 GMT
+
+https://www.cbr.com/dc-absolute-universe-collectibles-program-rug/
+
+These items would really tie an Absolute Universe fan's room together.
+---------
+
+# 6 Greatest Action Movies of 2026 So Far
+
+Movie, Action, War Machine, Apex, The Furious
+
+Sat, 04 Jul 2026 16:36:13 GMT
+
+https://collider.com/best-action-movies-2026-so-far-ranked/
+
+The Furious, Apex, and War Machine are all among the very best action movies released in 2026 so far.
+---------
+
+# 5 Bruce Springsteen Albums That Are Perfect
+
+Music Features, Bruce Springsteen, Music, Rock, Springsteen: Deliver Me From Nowhere
+
+Sat, 04 Jul 2026 16:18:13 GMT
+
+https://collider.com/bruce-springsteen-albums-perfect/
+
+There are a few Bruce Springsteen albums that are essentially perfect, including Darkness on the Edge of Town, Nebraska, and Born in the U.S.A.
+---------
+
+# ’The Flash’ Grossed More in 3 Days Than ‘Supergirl’ Has All Week
+
+Movie News, The Flash, Supergirl, Box Office, Milly Alcock
+
+Sat, 04 Jul 2026 16:16:13 GMT
+
+https://collider.com/supergirl-box-office-the-flash-comparison-dc-50-million/
+
+Supergirl continues to struggle at the box office, with The Flash outgrossing its first-week total in only three days.
+---------
+
+# 2026’s Most Exciting Sci-Fi Prequel Reveals New Look at Its Doomed Hero
+
+Movie News, The Hunger Games, The Hunger Games: Sunrise on the Reaping, Woody Harrelson
+
+Sat, 04 Jul 2026 16:04:16 GMT
+
+https://collider.com/hunger-games-sunrise-on-the-reaping-young-haymitch-featurette/
+
+The Hunger Games: Sunrise on the Reaping reveals a new look at Joseph Zada as young Haymitch in a featurette teasing the Second Quarter Quell.
+---------
+
+# 14 Years Later, David Ayer's Crime Thriller Officially Getting New Release
+
+Movie News, End of Watch, Jake Gyllenhaal
+
+Sat, 04 Jul 2026 16:21:48 GMT
+
+https://movieweb.com/jake-gyllenhaal-end-of-watch-4k-blu-ray/
+
+This gives latecomers another shot at adding 'End of Watch' to the shelf in 4K.
+---------
+
+# Dutton Ranch' Season 2: Release Window, Cast, Plot, & Everything We Know
+
+Features, Dutton Ranch, Yellowstone, Everything We Know
+
+Sat, 04 Jul 2026 16:00:18 GMT
+
+https://movieweb.com/dutton-ranch-season-2-everything-we-know/
+
+Yellowstone spinoff, Dutton Ranch, was recently renewed for Season 2. But who will be in it? And what will it be about?
+---------
+
 # All 3 Movies Directed By Olivia Wilde, Ranked
 
 Movies, Olivia Wilde
