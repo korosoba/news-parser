@@ -1,3 +1,333 @@
+# 41 Years Later, Doc's Best Back To The Future Line Is Still One Of The Best In Sci-Fi History
+
+Movies, Back to the Future
+
+Sat, 04 Jul 2026 01:00:22 GMT
+
+https://screenrant.com/back-to-the-future-doc-greatest-quote-in-sci-fi-history/
+
+Back to the Future is one of the most iconic and quotable sci-fi movies of the 1980s, and it has aged extremely well, including one line in particular
+---------
+
+# Zelda: Twilight Princess Finally Returns On The Last Platform We Expected
+
+Gaming, The Legend of Zelda: Twilight Princess, The Legend of Zelda
+
+Sat, 04 Jul 2026 01:00:22 GMT
+
+https://screenrant.com/zelda-twilight-princess-3ds-fan-port/
+
+The Legend of Zelda: Twilight Princess has been rumored for Switch and Switch 2 for some time, but it's now appearing on the last console we expected.
+---------
+
+# Marvel Officially Confirms Powerful Hulk Ally For Bruce Banner's Next Appearance
+
+Marvel Comics, Hulk
+
+Sat, 04 Jul 2026 01:00:22 GMT
+
+https://screenrant.com/hulk-war-doctor-voodoo-bruce-banner/
+
+Bruce Banner seeks the help of Marvel's most underrated sorcerer to stop Hulk once and for all, but the odds appear to be stacked against them.
+---------
+
+# 10 TV Shows To Watch Over The 4th Of July Weekend On Netflix, Prime Video & HBO Max
+
+Streaming TV
+
+Sat, 04 Jul 2026 00:54:24 GMT
+
+https://screenrant.com/new-tv-shows-to-watch-netflix-hbo-prime-july-3-5/
+
+If you're staying home over the 4th of July weekend, these ten new and returning TV shows on Netflix, Prime Video, and HBO Max can entertain you.
+---------
+
+# Crunchyroll Officially Confirms Demon Slayer Infinity Castle Streaking Date
+
+Anime, Demon Slayer, Anime Expo
+
+Sat, 04 Jul 2026 00:43:35 GMT
+
+https://screenrant.com/demon-slayer-infinity-castle-crunchyroll-streaming-release-date/
+
+The first film of the epic final Demon Slayer saga will be available to stream soon.
+---------
+
+# Marvel Officially Rewrites History With The First X-Man
+
+Superheroes, X-Men '97, Marvel Cinematic Universe
+
+Sat, 04 Jul 2026 00:30:21 GMT
+
+https://screenrant.com/x-men-97-marvel-rewrites-history-first-x-man-apocalypse/
+
+X-Men '97 season 2 has premiered with a trio of epic episodes, while also seeing the classic team of mutants attempting to rewrite history itself.
+---------
+
+# True Detective Meets Watchmen In HBO's New Sci-Fi Series
+
+Streaming TV, Masked Recs
+
+Sat, 04 Jul 2026 00:23:22 GMT
+
+https://screenrant.com/hbo-lanterns-true-detective-meets-watchmen/
+
+HBO has an upcoming science fiction show that is part True Detective and part Watchmen, and it could end up becoming the best show of the year.
+---------
+
+# X-Men '97 Finally Revives A Jean Grey Story Marvel Rejected 30 Years Ago
+
+TV, X-Men '97, X-Men: The Animated Series
+
+Sat, 04 Jul 2026 00:21:56 GMT
+
+https://screenrant.com/xmen-97-revives-jean-grey-story-marvel-rejected/
+
+X-Men '97 executive producers Eric and Julia Lewald revealed how a rejected storyline they pitched 30 years ago made its way into the show.
+---------
+
+# Matt Reeves' Batman Sequel Gender-Swaps One Of The Dark Knight's Most Iconic Villains
+
+Streaming TV, Masked Recs
+
+Sat, 04 Jul 2026 00:00:21 GMT
+
+https://screenrant.com/batman-caped-crusader-season-2-gender-swapped-villain/
+
+Batman: Caped Crusader season 2 has officially changed the Mad Hatter from a man to a woman, keeping with the show's trend of reinventing villains.
+---------
+
+# Apple TV's Best Sci-Fi Show Instantly Becomes the Most-Watched Show in the U.S.
+
+TV, Silo, Apple TV, Sci-Fi
+
+Sat, 04 Jul 2026 01:00:14 GMT
+
+https://www.cbr.com/silo-apple-tv-dystopian-sci-fi-success-july-2026/
+
+Apple TV's dystopian sci-fi Silo takes over the streaming charts after its highly anticipated return.
+---------
+
+# 3 JJK Characters Even Gojo Feared
+
+Anime, Jujutsu Kaisen, Shonen, shonen anime
+
+Sat, 04 Jul 2026 00:45:13 GMT
+
+https://www.cbr.com/jjk-characters-gojo-feared/
+
+Even Satoru Gojo was wary of a few characters in Jujutsu Kaisen, but he never backed down.
+---------
+
+# Classic Games We Need a Remake Of
+
+Games, Video Games, Final Fantasy, Castlevania: Symphony of the Night
+
+Sat, 04 Jul 2026 00:30:13 GMT
+
+https://www.cbr.com/classic-games-that-need-remake/
+
+The video game industry loves bringing back old titles, but there are still plenty of classic games that badly need the remake treatment.
+---------
+
+# DC Studios Developing Superman Spinoff Series About Fan-Favorite Justice League Hero
+
+TV, Superman, DCU
+
+Sat, 04 Jul 2026 00:27:43 GMT
+
+https://www.cbr.com/superman-spinoff-mister-terrific-series/
+
+James Gunn's Superman movie is getting a new spinoff series.
+---------
+
+# 5 Masterpiece Action Anime Without a Single Flaw
+
+Anime, Hellsing Ultimate, Akudama Drive
+
+Sat, 04 Jul 2026 00:15:13 GMT
+
+https://www.cbr.com/masterpiece-action-anime-flawless/
+
+Great action anime need more than incredible fights, and these series excel in every area that matters.
+---------
+
+# In Just 1 Day, Henry Cavill's Sherlock Holmes Is Officially the No. 1 Film in the World
+
+Movies, Enola Holmes 3
+
+Sat, 04 Jul 2026 00:00:13 GMT
+
+https://www.cbr.com/henry-cavill-enola-holmes-3-netflix-success-july-2026/
+
+The murder mystery film also set a franchise record for its reception.
+---------
+
+# Resident Evil's Oldest Mystery Has Officially Been Solved
+
+Games, Resident Evil
+
+Sat, 04 Jul 2026 00:00:13 GMT
+
+https://www.cbr.com/resident-evil-oldest-mystery-officially-solved/
+
+A mystery from Resident Evil 3: Nemesis has finally been solved, nearly thirty years after the game first launched on the original PlayStation.
+---------
+
+# A24's Google DeepMind AI Deal is the End of an Era for Hollywood
+
+Movies, A24
+
+Sat, 04 Jul 2026 00:00:13 GMT
+
+https://www.cbr.com/a24-ai-deal-ends-movie-star-era-of-hollywood/
+
+The A24 and Google DeepMind partnership promises better production tools, but a closer look shows something more interesting at play.
+---------
+
+# 10 Batman Comics That Are Perfect From Start to Finish
+
+Comics, Batman, DC Comics, batman the dark knight returns
+
+Sat, 04 Jul 2026 00:00:13 GMT
+
+https://www.cbr.com/perfect-batman-comics-from-start-to-finish/
+
+With a history that dates back to 1939, Batman has enough adventures in print to keep any reader satisfied, but some are flawless from start to end.
+---------
+
+# Rebecca Ferguson Teases How a New Amnesia Storyline Changes Silo Season 3
+
+CBR Exclusives, Silo, Apple TV, Sci-Fi
+
+Fri, 03 Jul 2026 23:56:31 GMT
+
+https://www.cbr.com/silo-season-3-rebecca-ferguson-juliette-amnesia-storyline/
+
+Plus, showrunner Graham Yost explains how real-world events affected Silo's story in Season 3.
+---------
+
+# Halloween Comes Early as Tim Burton's 105-Minute Horror Masterpiece Hits Paramount+
+
+Movie News, Johnny Depp, Sleepy Hollow, Paramount Plus, Tim Burton
+
+Sat, 04 Jul 2026 01:00:14 GMT
+
+https://collider.com/johnny-depp-sleepy-hollow-streaming-paramount-plus-july-2026/
+
+Tim Burton's gothic gem starring Johnny Depp is getting a new streaming home before his Hollywood return.
+---------
+
+# 15 Years Later, Steven Spielberg's Cult Classic Sci-Fi Thriller Is Streaming Again
+
+Movie News, Steven Spielberg, Sci-Fi, Super 8, Paramount Plus
+
+Sat, 04 Jul 2026 00:45:13 GMT
+
+https://collider.com/super-8-streaming-paramount-plus-july-2026/
+
+Steven Spielberg's cult classic sci-fi thriller directed by J.J. Abrams is streaming once again. Read on for more details about Super 8.
+---------
+
+# 10 Crime Movies With Perfect Mysteries From Start to Finish
+
+Movie, Crime, Chinatown, Se7en, Gone Girl
+
+Sat, 04 Jul 2026 00:45:13 GMT
+
+https://collider.com/crime-movies-perfect-mysteries-start-to-finish/
+
+From modern gems like Knives Out to decades-old classics like Chinatown, these crime movies have faultless, flawless mysteries from start to finish.
+---------
+
+# HBO’s ‘Harry Potter’ Series Faces Its Biggest Test With the Golden Trio
+
+TV Features, Harry Potter, HBO Max, Harry Potter and the Stone
+
+Sat, 04 Jul 2026 00:39:13 GMT
+
+https://collider.com/hbo-harry-potter-tv-series-trio-harry-ron-hermione/
+
+HBO's Harry Potter series plans to delve into the complexities of Harry, Ron, and Hermione.
+---------
+
+# Taylor Sheridan’s 3-Part Masterpiece Is Quietly Soaring on Streaming
+
+TV News, Landman, Taylor Sheridan, Paramount Plus, Billy Bob Thornton
+
+Sat, 04 Jul 2026 00:30:13 GMT
+
+https://collider.com/taylor-sheridan-landman-streaming-success-paramount-plus-july-2026-season-3-release-date/
+
+Taylor Sheridan's Landman, which is being eyed as a contender at the next Emmys, is steamrolling competition on Paramount+ streaming charts.
+---------
+
+# The Lord of the Rings Officially Sets New Release for July 14
+
+Gaming News, The Lord of the Rings, J.R.R. Tolkien, The Lord of the Rings: The Fellowship of the Ring, Amazon
+
+Sat, 04 Jul 2026 00:15:13 GMT
+
+https://collider.com/lord-of-the-rings-ascension-tabletop-rpg-release-date-july-14-2026/
+
+The Lord of the Rings universe officially returns with a brand-new release on July 14, 2026. Read on for more details.
+---------
+
+# This 110-Minute Found-Footage Nightmare Does 2 Things Better Than 'Backrooms'
+
+Movie Features, Backrooms, Horror, The Outwaters, Found Footage
+
+Sat, 04 Jul 2026 00:11:13 GMT
+
+https://collider.com/backrooms-outwaters-horror-comparison/
+
+Backrooms and The Outwaters redefine Lovecraftian horror through liminal spaces, found-footage terror, and existential collapse in mythmaking.
+---------
+
+# 10 Greatest Sci-Fi Shows With Over 5 Seasons
+
+TV, Sci-Fi, Doctor Who, Rick and Morty, Lost
+
+Sat, 04 Jul 2026 00:02:14 GMT
+
+https://collider.com/best-sci-fi-tv-shows-over-5-seasons-ranked/
+
+We rank the greatest sci-fi shows that are over five seasons long, including Rick and Morty, Doctor Who, The X-Files, and Star Wars: The Clone Wars.
+---------
+
+# ‘Game of Thrones’ Star’s WWII Thriller Proves to Be an Absolute Monster Hit on Streaming
+
+TV News, Game Of Thrones, The Wheel of Time, SAS: Rogue Heroes, Steven Knight
+
+Sat, 04 Jul 2026 00:00:13 GMT
+
+https://collider.com/ww2-thriller-sas-rogue-heroes-streaming-success-hbo-max-july-2026/
+
+Steven Knight's WW2 thriller, SAS: Rogue Heroes, remains a streaming sensation on HBO Max as we await the arrival of Season 3.
+---------
+
+# Prime Video’s 10/10 Detective Movie Shoots to #1 Spot in Streaming Debut
+
+Movie News, The Sheep Detectives, Hugh Jackman, Rian Johnson, Knives Out
+
+Fri, 03 Jul 2026 23:45:13 GMT
+
+https://collider.com/hugh-jackman-the-sheep-detectives-streaming-success-prime-video-july-2026/
+
+Hugh Jackman’s The Sheep Detectives has hit No. 1 on Prime Video, giving the cozy murder mystery a big streaming win.
+---------
+
+# Vin Diesel Confirms Final Sequel to His Biggest Franchise of All Time in New Video
+
+Movie News, Fast Forever, Vin Diesel
+
+Fri, 03 Jul 2026 23:10:32 GMT
+
+https://movieweb.com/fast-forever-vin-diesel-filming/
+
+Vin Diesel officially confirmed that filming is underway for what is likely to be one of the biggest sequels of his career.
+---------
+
 # Pokémon Victory Will Take Us To A Brand-New Region
 
 Gaming, Pokemon, Triple-A Games
