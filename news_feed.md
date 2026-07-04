@@ -1,3 +1,344 @@
+# Sword Art Online's Long-Awaited Return Has Left Fans Split
+
+Gaming, Sword Art Online, Triple-A Games, PC
+
+Sat, 04 Jul 2026 04:30:20 GMT
+
+https://screenrant.com/sword-art-online-echoes-of-aincrad-demo-opinions/
+
+While the iconic franchise has been on a bit of a hiatus for the past few years, SAO is back with one of its biggest releases yet this month.
+---------
+
+# GTA 5 Free Download Officially Available Until July 13
+
+Gaming, Grand Theft Auto 5
+
+Sat, 04 Jul 2026 04:00:32 GMT
+
+https://screenrant.com/gta-5-free-download-july-2026/
+
+Rockstar's latest update for GTA Online offers players the chance to earn up to GTA$1.5 million and receive free vehicles.
+---------
+
+# Star Wars: Visions Presents – The Ninth Jedi's Unique Feature Was A Mistake
+
+TV
+
+Sat, 04 Jul 2026 03:49:55 GMT
+
+https://screenrant.com/star-wars-visions-presents-the-ninth-jedi-unique-feature-originally-mistake/
+
+Star Wars: Visions Presents – The Ninth Jedi creator explained how he changed the lore of the massive franchise due to a simple childhood mistake.
+---------
+
+# Apple TV’s The Wheel Of Time Replacement Has Already Fixed 1 Fatal Flaw
+
+Streaming TV, Masked Recs
+
+Sat, 04 Jul 2026 03:15:22 GMT
+
+https://screenrant.com/apple-tv-brandon-sanderson-the-stormlight-archive-hands-on/
+
+The Wheel of Time live-action TV show might have failed, but Apple TV's providing a high fantasy replacement that's already fixed a fatal flaw.
+---------
+
+# Final Fantasy 6’s Long Awaited Return Is Officially A Hit With Gamers
+
+Gaming, Final Fantasy, Triple-A Games
+
+Sat, 04 Jul 2026 03:00:22 GMT
+
+https://screenrant.com/final-fantasy-6s-long-awaited-return-is-officially-a-hit-with-gamers/
+
+In the end, Final Fantasy 6 will go down as one of the best RPGs ever made, and its return has really resonated with old and new fans alike.
+---------
+
+# Noah Wyle Honors The Pitt Season 2's UK Arrival With A Touching Message
+
+TV, The Pitt
+
+Sat, 04 Jul 2026 02:38:30 GMT
+
+https://screenrant.com/noah-wyle-the-pitt-season-2-uk-finale-nhs-endorsement/
+
+The Pitt's season 2 finale has finally aired in the UK, and to honor the occasion, Noah Wyle who portrays Dr. Robby posts a touching message.
+---------
+
+# Marvel's Ancient Egyptian History Explained (X-Men '97, Kang, Moon Knight, & More)
+
+Superheroes, X-Men '97, Marvel Cinematic Universe, Kang the Conqueror, Moon Knight
+
+Sat, 04 Jul 2026 02:30:21 GMT
+
+https://screenrant.com/marvel-ancient-egypt-history-explained-x-men-97-kang-moon-knight/
+
+As proven by X-Men '97 Season 2, the Marvel Universe's version of Ancient Egypt was a truly chaotic time full of time-displaced heroes and villains.
+---------
+
+# Reacher Season 4’s 2026 Release Date Reveals 1 Harsh Truth About Its New Spinoff
+
+Streaming TV, Reacher, Reacher - Season 4, Neagley
+
+Sat, 04 Jul 2026 02:00:26 GMT
+
+https://screenrant.com/reacher-season-4-neagley-spinoff-harsh-truth/
+
+Reacher season 4’s 2026 release date has finally been confirmed, and it is hard not to see how it reveals one harsh truth about the Neagley spinoff.
+---------
+
+# HBO's 36-Episode Western Masterpiece Is The TV Version Of Tombstone
+
+Classic TV, Masked Recs
+
+Sat, 04 Jul 2026 01:30:21 GMT
+
+https://screenrant.com/hbo-deadwood-western-tv-version-of-tombstone/
+
+HBO's Deadwood is essentially the television version of the classic Western film Tombstone, and it actually surpasses the movie in a few key ways.
+---------
+
+# Why Minions & Monsters' Rotten Tomatoes Score Is Near-Perfect
+
+Movies, Minions & Monsters
+
+Sat, 04 Jul 2026 01:30:21 GMT
+
+https://screenrant.com/minions-and-monsters-rotten-tomatoes-score-reviews-explained/
+
+Despite the reputation Minions movies have for being full of nonsensical humor for kids, Minions & Monsters has proven popular even with critics.
+---------
+
+# Silo Stars Teases Season 3's Massive Dual Timeline Shift
+
+CBR Exclusives, Silo, Apple TV, Sci-Fi
+
+Sat, 04 Jul 2026 04:05:31 GMT
+
+https://www.cbr.com/silo-season-3-timeline-shift-common-alexandria-riley-interview/
+
+Silo is going back to the past to uncover its greatest mystery in Season 3.
+---------
+
+# Crunchyroll Unveils Witch Hat Atelier Season 2 in Teaser Trailer
+
+Anime, Witch Hat Atelier, Crunchyroll
+
+Sat, 04 Jul 2026 04:00:20 GMT
+
+https://www.cbr.com/crunchyroll-drops-witch-hat-atelier-season-2-teaser-trailer/
+
+Witch Hat Atelier Season 1 may be done, but Crunchryoll hypes up fans with a peek into Season 2's dark adventure.
+---------
+
+# Gundam Finally Brings Back the Mecha That Changed the Franchise After 40 Years
+
+Anime, Mobile Suit Gundam, Mobile Suit Zeta Gundam, merchandise, bandai, toys, action figures
+
+Sat, 04 Jul 2026 03:51:14 GMT
+
+https://www.cbr.com/zeta-gundam-bandai-robot-spirits-action-figure/
+
+A new Bandai action figure based on the title mech from 1985's Mobile Suit Zeta Gundam expertly recreates the iconic giant robot after 40 years.
+---------
+
+# 10 Classic Anime With Perfect Endings
+
+Anime, Fullmetal Alchemist: Brotherhood, Code Geass: Lelouch of the Rebellion
+
+Sat, 04 Jul 2026 03:45:14 GMT
+
+https://www.cbr.com/classic-anime-masterpiece-endings-list/
+
+A strong, satisfying ending isn't easy, but anime like Paranoia Agent and Code Geass make a fantastic finale seem like a piece of cake.
+---------
+
+# 5 Greatest Action Movies of the 2020s, Ranked
+
+Movies, Action, Top Gun: Maverick, John Wick
+
+Sat, 04 Jul 2026 03:45:14 GMT
+
+https://www.cbr.com/best-action-movies-of-the-2020s-ranked/
+
+The 2020s have already given audiences some of the greatest modern action movies, and these five are the best of the best.
+---------
+
+# Patrick Stewart's Favorite Star Trek Episode Deserves to Be Called a Sci-Fi Masterpiece
+
+TV, Star Trek, Star Trek: The Next Generation, Sci-Fi
+
+Sat, 04 Jul 2026 03:30:14 GMT
+
+https://www.cbr.com/star-trek-tng-patrick-stewart-favorite-episode-inner-light/
+
+Patrick Stewart has named his favorite Star Trek episode, and it is worthy of the actor's praise.
+---------
+
+# After Supergirl Flop, Fans Call for James Gunn to 'Release the Gillespie Cut!'
+
+Movies, Supergirl
+
+Sat, 04 Jul 2026 03:22:25 GMT
+
+https://www.cbr.com/supergirl-release-the-gillespie-cut/
+
+After the tepid release of Supergirl, DC fans are calling for director Craig Gillespie's original cut before studio edits to be released.
+---------
+
+# 24 Years Ago, This American FPS Captivated the World
+
+Games, usa, Video Games
+
+Sat, 04 Jul 2026 03:15:14 GMT
+
+https://www.cbr.com/americas-army-usa-video-game-retrospective/
+
+Nearly twenty-five years ago, the United States Army released one of the best FPS games ever made.
+---------
+
+# Supergirl Marks the End of an Era for Superman Movies
+
+Movies, Superman, Supergirl, DCU
+
+Sat, 04 Jul 2026 03:15:14 GMT
+
+https://www.cbr.com/superman-supergirl-first-team-up-dcu/
+
+The latest addition to the DCU officially marks the beginning of a new (and long-delayed) era for Superman movies.
+---------
+
+# 10 Batman Comics That First Introduced Iconic Villain
+
+Comics, Batman, DC Comics, Joker
+
+Sat, 04 Jul 2026 03:00:13 GMT
+
+https://www.cbr.com/batman-comics-that-introduced-iconic-villains/
+
+Although the adventures of Batman and Robin often dominate the pages of DC Comics, some of his best issues introduced his greatest foes.
+---------
+
+# Pokémon Officially Needs To Move Away From Its Winning Formula
+
+Gaming, Pokémon, Nintendo Switch, Adventure
+
+Sat, 04 Jul 2026 04:08:13 GMT
+
+https://collider.com/pokemon-games-formula-change/
+
+The regional evil team has been a staple of Pokémon games since Generation I, but recent titles prove it's time to leave this particular plot behind.
+---------
+
+# The 'Dungeon Crawler Carl' Series Has One Major Advantage Over Other Fantasy and Sci-Fi Adaptations
+
+Books and Comics, Dungeon Crawler Carl, Peacock, Seth MacFarlane, NBCUniversal
+
+Sat, 04 Jul 2026 03:55:15 GMT
+
+https://collider.com/dungeon-crawler-carl-tv-series-advantage-ending/
+
+Peacock's upcoming Dungeon Crawler Carl series is kicking off with nearly the entire book saga already complete.
+---------
+
+# Apple TV's 16-Episode Historical Drama Is Too Good To Be Left Unfinished
+
+TV Features, Pachinko, Apple TV, Youn Yuh-Jung, Jin Ha
+
+Sat, 04 Jul 2026 03:41:14 GMT
+
+https://collider.com/pachinko-apple-tv-needs-season-3-min-jin-lee-book/
+
+Apple TV abruptly ended the critically acclaimed series Pachinko after two seasons, leaving fans yearning for a conclusion to the epic story.
+---------
+
+# Nintendo's Fantasy Masterpiece Is Coming To Remind You Why It's the GOAT
+
+Gaming, Video Game, The Legend of Zelda, Legend of Zelda: Breath of the Wild, Nintendo Switch
+
+Sat, 04 Jul 2026 03:09:14 GMT
+
+https://collider.com/legend-of-zelda-ocarina-of-time-remake-nintendo-switch-2-greatest-all-time/
+
+The upcoming Nintendo Switch 2 remake of The Legend of Zelda: Ocarina of Time will remind everyone why the original is still the greatest of all time.
+---------
+
+# 10 Obscure Sci-Fi Shows That Became Cult Classics
+
+TV, Sci-Fi, Falling Skies, The 100, Continuum
+
+Sat, 04 Jul 2026 03:04:14 GMT
+
+https://collider.com/obscure-sci-fi-shows-became-cult-classics/
+
+Although sci-fi shows like Falling Skies, Dark Angel, Mutant X, and The 100 weren't as popular, these series eventually evolved into cult classics.
+---------
+
+# Captain Kirk Is Great, but This Star Trek Captain Beats Him Every Single Time
+
+TV Features, Star Trek, Star Trek: Strange New Worlds, William Shatner, Anson Mount
+
+Sat, 04 Jul 2026 02:00:26 GMT
+
+https://collider.com/best-star-trek-captain-pike-strange-new-worlds-opinion/
+
+Anson Mount’s Captain Pike stands above Star Trek’s other captains by embodying Starfleet’s best ideals through empathy, courage, and moral leadership
+---------
+
+# Prime Video's 'Game of Thrones' Replacement Is the Greatest Fantasy Show of All Time
+
+TV Features, The Wheel of Time, Prime Video, Fantasy
+
+Sat, 04 Jul 2026 01:55:14 GMT
+
+https://collider.com/wheel-of-time-prime-video-best-fantasy-series/
+
+The Wheel of Time remains the definitive fantasy series from Prime Video and is a must-watch for fans of the genre.
+---------
+
+# 11 Years Later, Margot Robbie's Slick Crime Thriller Comes to Paramount+
+
+Movie News, Margot Robbie, Focus, Paramount Plus, Will Smith
+
+Sat, 04 Jul 2026 01:30:13 GMT
+
+https://collider.com/margot-robbie-focus-streaming-paramount-plus-july-2026/
+
+Margot Robbie's 2015 crime movie with Will Smith is now on a new streamer. Here's everything you should know about Focus.
+---------
+
+# Mel Gibson’s WWII Masterpiece Finds a New Streaming Home 10 Years Later
+
+Movie News, Mel Gibson, Hacksaw Ridge, Paramount Plus, Andrew Garfield
+
+Sat, 04 Jul 2026 01:15:13 GMT
+
+https://collider.com/andrew-garfield-hacksaw-ridge-streaming-paramount-plus-july-2026/
+
+Mel Gibson's epic war movie starring Andrew Garfield gets a new streaming home. Find out more about Hacksaw Ridge here.
+---------
+
+# Apple TV's New 97% Sci-Fi Spin-Off Is the Smartest Way To Revisit a Hit Show
+
+TV Features, Star City, For All Mankind, Apple TV, Sci-Fi
+
+Sat, 04 Jul 2026 01:14:14 GMT
+
+https://collider.com/star-city-apple-tv-sci-fi-spinoff-for-all-mankind-revisiting/
+
+Apple TV's Star City is a gripping sci-fi spin-off that complements and expands the world of For All Mankind.
+---------
+
+# 9 Nostalgic 2000s Shows No One Talks About Anymore
+
+TV Lists, Joan of Arcadia
+
+Sat, 04 Jul 2026 02:01:18 GMT
+
+https://movieweb.com/nostalgic-2000s-shows-no-one-talks-about/
+
+These 2000s TV shows, from dramas to sitcoms, are still impressive, and they're both nostalgic and underrated.
+---------
+
 # 41 Years Later, Doc's Best Back To The Future Line Is Still One Of The Best In Sci-Fi History
 
 Movies, Back to the Future
