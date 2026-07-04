@@ -1,3 +1,256 @@
+# Pixar's Amazing 2026 Box Office Is Great News For Its Next Original Film
+
+Movies, Pixar, Toy Story 5, Hoppers, Gatto
+
+Sat, 04 Jul 2026 23:15:21 GMT
+
+https://screenrant.com/pixar-2026-box-office-success-gatto/
+
+2026 has been one of Pixar's best years in recent memory with two box office hits, and it's great news for their next original film, Gatto.
+---------
+
+# David Tennant's "Disengage" From The Tenth Doctor In Final Doctor Who Season Revealed
+
+TV, Doctor Who, David Tennant
+
+Sat, 04 Jul 2026 23:04:31 GMT
+
+https://screenrant.com/doctor-who-season-4-david-tennant-disengage-alex-kingston-response/
+
+One of David Tennant's Doctor Who co-stars recalled how he seemed to "disengage" from playing the Tenth Doctor during his final season.
+---------
+
+# Avatar: The Last Airbender Meets Arcane In Apple TV's New Fantasy Series
+
+Streaming TV, Masked Recs
+
+Sat, 04 Jul 2026 23:03:20 GMT
+
+https://screenrant.com/apple-tv-stormlight-fantasy-show-avoid-avatar-arcane-mistakes/
+
+Fantasy TV shows can often make the same mistake, which is sometimes avoidable. Apple TV's new fantasy series is learning from other shows.
+---------
+
+# Kaley Cuoco's Secret Role In Larry David's New 7-Part HBO Comedy Addressed By Star
+
+TV, Life, Larry and the Pursuit of Unhappiness, Kaley Cuoco
+
+Sat, 04 Jul 2026 23:00:24 GMT
+
+https://screenrant.com/life-larry-and-the-pursuit-of-unhappiness-kaley-cuoco-secret-role-response/
+
+Kaley Cuoco discusses her role in Larry David's new HBO comedy limited series and why she immediately agreed to sign on with very little information.
+---------
+
+# Yuri's Most Viral New-Gen Anime Is Coming To Crunchyroll, And It's Only 6 Months Away
+
+Anime, Crunchyroll, Anime Expo
+
+Sat, 04 Jul 2026 23:00:20 GMT
+
+https://screenrant.com/crunchyroll-green-yuri-guy-she-was-interested-january-2027/
+
+Crunchyroll shared exciting news for fans of queer romance, as the anime adaptation of one of the most popular yuri series is coming soon.
+---------
+
+# Harley Quinn Gets New Origin Story Ahead Of Batman's Next Appearance
+
+DC Comics, Harley Quinn
+
+Sat, 04 Jul 2026 23:00:20 GMT
+
+https://screenrant.com/harley-quinn-new-absolute-batman-origin-explained/
+
+Harley Quinn's new origin story distances her from the Joker and suggests a different Batman villain inspired her to take up the mallet.
+---------
+
+# Marvel’s Official New Avengers Lineup Ahead Of Doomsday Hailed As “Peak”
+
+Gaming, Marvel, Avengers Assemble
+
+Sat, 04 Jul 2026 23:00:20 GMT
+
+https://screenrant.com/marvel-rivals-avengers-lineup-doomsday/
+
+The next Avengers movie is still pretty mysterious, but the hero squad is lining up once again in a whole new medium.
+---------
+
+# 10 Years Later, Bleach Is Finally Getting The Sequel We've Been Waiting For
+
+Anime, Bleach, Anime Expo
+
+Sat, 04 Jul 2026 22:46:15 GMT
+
+https://screenrant.com/bleach-sequel-mirrors-high-mobile-game/
+
+Bleach is finally back.
+---------
+
+# Solo Leveling's New Movie Teaser Is the Perfect Live-Action Blueprint
+
+Anime, Solo Leveling
+
+Sat, 04 Jul 2026 22:30:21 GMT
+
+https://screenrant.com/solo-leveling-new-movie-teaser-live-action-glimpse/
+
+Despite concerns, Solo Leveling's new concept trailer for Beyond the System showcases the potential for an absolutely stunning live-action series.
+---------
+
+# Prime Video's Muhammad Ali Series Reveals First Look and Official Release Date
+
+TV, Prime Video
+
+Sat, 04 Jul 2026 23:29:11 GMT
+
+https://www.cbr.com/prime-video-the-greatest-trailer-release-date/
+
+Michael B. Jordan and Cross creator Ben Watkins are executive producing the Muhammad Ali series.
+---------
+
+# 10 Forgotten Fantasy Anime That Are Perfect From Start to Finish
+
+Anime, Isekai, Fantasy
+
+Sat, 04 Jul 2026 23:16:13 GMT
+
+https://www.cbr.com/forgotten-fantasy-anime-perfect-from-start-to-finish/
+
+The modern fantasy anime space is dominated by Frieren and Witch Hat Atelier, but these forgotten classics have always been perfect.
+---------
+
+# Robert Patrick Revisits Terminator 2 Origins on 35th Anniversary: 'Forever Grateful'
+
+Movies, Terminator 2: Judgment Day
+
+Sat, 04 Jul 2026 23:04:12 GMT
+
+https://www.cbr.com/terminator-2-35-years-later-robert-patrick/
+
+T-1000 actor Robert Patrick reflects on 35 years of Terminator 2: Judgment Day.
+---------
+
+# Robin Williams' $123M War Comedy Returns as a Streaming Hit 39 Years After Grossing 9x Its Budget
+
+Movies, Good Morning, Vietnam, Comedy, Paramount Plus
+
+Sat, 04 Jul 2026 23:00:12 GMT
+
+https://www.cbr.com/robin-williams-good-morning-vietnam-comedy-paramount-success-july-2026/
+
+Robin Williams' acclaimed war movie based on a true story, Good Morning, Vietnam, is a streaming hit in the United States.
+---------
+
+# Taylor Sheridan Finally Reveals Kevin Costner's Missing Yellowstone Scene in Dutton Ranch
+
+TV, Dutton Ranch, Yellowstone, kevin costner
+
+Sat, 04 Jul 2026 22:34:49 GMT
+
+https://www.cbr.com/yellowstone-dutton-ranch-episode-9-season-1-finale-rob-will-oreana-scene/
+
+The finale of Taylor Sheridan and Chad Feenhan's Dutton Ranch Season 1 reveals Kevin Costner's John Dutton character's missing Yellowstone scene.
+---------
+
+# 10 Life Lessons Star Wars Fans Still Carry Today
+
+Movies, Star Wars
+
+Sat, 04 Jul 2026 22:30:12 GMT
+
+https://www.cbr.com/best-life-lessons-star-wars-taught-fans-list/
+
+Star Wars has taught its audience a great deal and these life lessons are still relevant in the world today.
+---------
+
+# The Sci-Fi Sequel That Ended a $1B Franchise Hits HBO Max This Month
+
+Movie News, Pacific Rim, Pacific Rim: Uprising, John Boyega, Sci-Fi
+
+Sat, 04 Jul 2026 23:15:12 GMT
+
+https://collider.com/pacific-rim-uprising-sci-fi-sequel-streaming-hbo-max-july-2026/
+
+The expensive sci-fi misfire Pacific Rim: Uprising is coming to HBO Max soon. Find out when you can watch the film.
+---------
+
+# 'Top Gun: Maverick' Meets World War II in Tom Hanks and Steven Spielberg’s 9-Part Masterpiece
+
+TV News, Masters of the Air, Tom Hanks, Steven Spielberg, Apple TV
+
+Sat, 04 Jul 2026 23:00:13 GMT
+
+https://collider.com/tom-hanks-steven-spielberg-ww2-series-masters-of-the-air-streaming-success-apple-tv-july-2026/
+
+The Top Gun: Maverick-style WW2 miniseries produced by Tom Hanks and Steven Spielberg is staging a comeback on streaming.
+---------
+
+# 25 Best Books of All Time
+
+Books and Comics, The Lord of the Rings, War and Peace, The Stand, Wuthering Heights
+
+Sat, 04 Jul 2026 22:51:13 GMT
+
+https://collider.com/best-books-all-time-ranked/
+
+Selecting the greatest books ever published isn't easy, but classics like Frankenstein, Dune, and The Count of Monte Cristo are all up there.
+---------
+
+# 24 Years Later, Vin Diesel’s High-Octane Action Hit Is Back on Streaming
+
+Movie News, Vin Diesel, xxx, Paramount Plus, XXX
+
+Sat, 04 Jul 2026 22:45:13 GMT
+
+https://collider.com/vin-diesel-xxx-streaming-paramount-plus-july-2026/
+
+24 years later, Vin Diesel's action hit xXx is coming to a new streamer. Here's everything you should know.
+---------
+
+# Before Season 2, Star Wars' Most Ambitious Disney+ Series Is the Perfect Weekend Binge
+
+TV News, Ahsoka, Star Wars, Disney Plus, Rosario Dawson
+
+Sat, 04 Jul 2026 22:30:13 GMT
+
+https://collider.com/star-wars-disney-plus-series-ahsoka-streaming-success-season-2-release-date/
+
+The most ambitious Star Wars series to ever hit Disney Plus has become the perfect weekend binge before it returns for Season 2.
+---------
+
+# Suits Star Reveals Pitch for Revival Series
+
+TV News, Suits, Patrick J. Adams
+
+Sat, 04 Jul 2026 23:17:55 GMT
+
+https://movieweb.com/suits-revival-series-pitch-patrick-adams/
+
+'Suits' star Patrick J. Adams revealed the story he would like to see told in a potential revival of the show.
+---------
+
+# These Movies That Are Perfect to Fall Asleep To
+
+Movie Lists
+
+Sat, 04 Jul 2026 23:00:18 GMT
+
+https://movieweb.com/movies-you-can-fall-asleep-to/
+
+Sleep can be hard; these movies can help your mind relax and make it easier to drift off.
+---------
+
+# 'Supergirl's Divisive Music Choice Covered up the Movie's Biggest Problem
+
+Features, Supergirl, DCU
+
+Sat, 04 Jul 2026 23:00:17 GMT
+
+https://movieweb.com/supergirl-bad-cgi-battle-op-ed/
+
+'Supergirl's needle drop backlash is overshadowing a bigger DCU problem looming in the finale that has doomed past superhero franchises.
+---------
+
 # 10 Near-Perfect '80s Action Movies That Aged Like Fine Wine
 
 Classic Movies, Action
