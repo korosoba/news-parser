@@ -1,3 +1,322 @@
+# MGM+'s From Season 5 Officially Begins Filming A Week After Season 4 Finale
+
+TV, From
+
+Sun, 05 Jul 2026 22:38:46 GMT
+
+https://screenrant.com/from-season-5-filming-start-confirmed/
+
+Only a week after the From season 4 finale was released on MGM+, filming has officially begun on the fifth and final season of the horror series.
+---------
+
+# Cyberpunk 2077 Meets Blade Runner In Prime Video's New Sci-Fi Series
+
+Streaming TV, Masked Recs
+
+Sun, 05 Jul 2026 22:30:20 GMT
+
+https://screenrant.com/ghost-in-the-shell-new-prime-video-cyberpunk-series/
+
+Prime Video is releasing a new anime series based on Ghost in the Shell this week, and it promises to be a lot more faithful to the manga.
+---------
+
+# 5 Marvel Heroes Stronger Than Superman
+
+Comics, Superman
+
+Sun, 05 Jul 2026 22:30:20 GMT
+
+https://screenrant.com/marvel-heroes-stronger-superman-hulk/
+
+We're looking exclusively at physical strength.
+---------
+
+# Marvel’s Wolverine Is Finally Letting Me Fix My Biggest Gripe With The Character
+
+Gaming, Marvel's Wolverine, Triple-A Games
+
+Sun, 05 Jul 2026 22:30:20 GMT
+
+https://screenrant.com/marvels-wolverine-bone-claws-customization-option/
+
+Marvel's Wolverine was always guaranteed to give Logan optional costume skins, but I'm thrilled about a different form of customization.
+---------
+
+# GTA 6 Fans Split On New PlayStation Change
+
+Gaming, Grand Theft Auto 6, PlayStation, Triple-A Games
+
+Sun, 05 Jul 2026 22:30:20 GMT
+
+https://screenrant.com/gta-6-playstation-logo-changed-back-reaction/
+
+Grand Theft Auto 6's marketing has been anything but predictable or satisfying, arguably, and PlayStation isn't necessarily helping the situation.
+---------
+
+# 3 Street Racing Movies Better Than The Fast & Furious Franchise
+
+Movies, Fast & Furious
+
+Sun, 05 Jul 2026 22:25:20 GMT
+
+https://screenrant.com/street-racing-movies-better-than-fast-and-furious/
+
+The Fast & Furious franchise might have set a new standard for street racing movies, but these three films outpace the Vin Diesel series.
+---------
+
+# 8 Friends Quotes Everyone Still Uses Today
+
+Classic TV, Friends
+
+Sun, 05 Jul 2026 22:15:20 GMT
+
+https://screenrant.com/friends-quotes-still-used/
+
+Explore the most memorable and quotable Friends moments from iconic lines like 'No uterus, no opinion' to 'How you doin'?'.
+---------
+
+# Spider-Man Villain's Mistake Resurfaces Ahead Of Brand New Day
+
+Movies, Spider-Man: Brand New Day, Spider-Man: Far from Home
+
+Sun, 05 Jul 2026 22:04:01 GMT
+
+https://screenrant.com/spider-man-far-from-home-mysterio-mistake-mcu/
+
+An MCU villain's major flaw resurfaces on the internet ahead of the release of this summer's most highly anticipated film Spider-Man: Brand New Day.
+---------
+
+# The 20 Contestants Who Spent The Longest Time On Alone Ranked
+
+Reality TV, Alone
+
+Sun, 05 Jul 2026 22:00:23 GMT
+
+https://screenrant.com/longest-time-on-alone-contestants-ranked/
+
+One of the most brutal survival reality shows of all time, Alone places contestants in the vast wilderness in hopes of surviving the longest.
+---------
+
+# NBC’s 4-Part Sci-Fi Superhero Series Now Streaming On Netflix Still Deserves A Revival
+
+Streaming TV, Masked Recs
+
+Sun, 05 Jul 2026 22:00:21 GMT
+
+https://screenrant.com/heroes-now-streaming-netflix-needs-revival/
+
+The Boys was not the first TV show to revolutionize the superhero genre, with NBC doing it first. That series deserves a better finale and wider world
+---------
+
+# Ryan Reynolds' $786M Action-Packed Sequel Returns as a Streaming Hit 8 Years Later
+
+Movies, Deadpool, ryan reynolds, Deadpool 2
+
+Sun, 05 Jul 2026 22:30:13 GMT
+
+https://www.cbr.com/ryan-reynolds-deadpool-2-success-hbo-max-july-2026/
+
+One of the biggest R-rated superhero sequels of all time is making major waves in the world of streaming amidst some serious franchise speculation.
+---------
+
+# This $817M Sci-Fi Masterpiece Is a Hulu Streaming Hit at the Right Time
+
+Movies, Independence Day, Sci-Fi, Hulu
+
+Sun, 05 Jul 2026 22:30:13 GMT
+
+https://www.cbr.com/will-smith-independence-day-sci-fi-action-hulu-success-july-2026/
+
+The 30-year-old sci-fi film that revitalized an entire genre, Independence Day, is a streaming hit in the United States.
+---------
+
+# 4 Reasons It's Hard To Play Final Fantasy 7 Today
+
+Games, Final Fantasy, Final Fantasy 7 Remake, Final Fantasy VII Remake
+
+Sun, 05 Jul 2026 22:15:12 GMT
+
+https://www.cbr.com/why-its-hard-to-play-final-fantasy-7-today/
+
+The original Final Fantasy 7 is an all-time classic, but certain aspects of its design and gameplay make it hard to enjoy in the modern era.
+---------
+
+# Netflix's Narnia Reboot Is Already the Movie Event of the Decade
+
+Movies, Netflix, The Chronicles of Narnia, Narnia: The Magician's Nephew
+
+Sun, 05 Jul 2026 22:15:12 GMT
+
+https://www.cbr.com/netflix-narnia-reboot-fantasy-movie-event-of-2020s/
+
+Netflix is going big with Greta Gerwig's The Chronicles of Narnia franchise, and with that in mind, it could be Netflix's biggest win ever.
+---------
+
+# Newly Discovered Fantastic Four Concept Art Shows the Thing’s Best Unused Design
+
+Comics, The Thing, Fantastic Four, Marvel Comics
+
+Sun, 05 Jul 2026 22:01:13 GMT
+
+https://www.cbr.com/fantastic-four-concept-art-the-thing-scrapped-design/
+
+Recently surfaced concept art reveals a more monstrous version of Marvel's The Thing that might have taken its First Steps into the MCU.
+---------
+
+# 5 Masterpiece Creature Features Better Than Jaws
+
+Movies, Jaws
+
+Sun, 05 Jul 2026 22:01:13 GMT
+
+https://www.cbr.com/creature-features-better-than-jaws-list/
+
+These five creature-feature films surpass Jaws, even if they weren't considered instant classics.
+---------
+
+# Dragon Ball Launches a New Official Series With Goku's Namek Arrival
+
+Anime, Dragon Ball, merchandise, Dragon Ball Z
+
+Sun, 05 Jul 2026 22:01:13 GMT
+
+https://www.cbr.com/dragon-ball-goku-arrival-at-the-battlefield-startune-reveal/
+
+Goku's arrival on the planet Namek has been recreated as part of a brand-new series that will replicate classic moments from the franchise.
+---------
+
+# Toy Story Characters Team Up With Comic Characters
+
+Comics, Toy Story 5, CSBG, The Line It Is Drawn
+
+Sun, 05 Jul 2026 21:57:19 GMT
+
+https://www.cbr.com/toy-story-characters-comic-character-team-up/
+
+In a brand-new Line it is Drawn, see the characters from Toy Story team up with comic characters
+---------
+
+# Forget 'Disclosure Day,' This is the Best Steven Spielberg Sci-Fi Movie No One's Talking About
+
+Movie Features, Disclosure Day, Steven Spielberg, A.I.: Artificial Intelligence, Pluto TV
+
+Sun, 05 Jul 2026 22:49:12 GMT
+
+https://collider.com/disclosure-day-artificial-intelligence-best-steven-spielberg-sci-fi-movie/
+
+Discourse rages around Disclosure Day, but Steven Spielberg's true sci-fi masterpiece remains 2001's A.I.: Artificial Intelligence.
+---------
+
+# Karl Urban Hunts Down a 'Game of Thrones' Icon in the R-Rated Sci-Fi Hit Coming to Free Streaming
+
+Movie News, Dredd, Judge Dredd, Karl Urban, Action
+
+Sun, 05 Jul 2026 22:45:12 GMT
+
+https://collider.com/karl-urban-dredd-free-streaming-fawesome-july-2026/
+
+Dredd, Karl Urban’s hard-hitting sci-fi cult classic, is now streaming free. Here's everything you should know about the brutal movie.
+---------
+
+# The Best Fantasy TV Show Ever Made Is a British Miniseries No One Talks About
+
+TV Features, Fantasy, Bertie Carvel, BBC, History
+
+Sun, 05 Jul 2026 22:42:13 GMT
+
+https://collider.com/jonathan-strange-and-mr-norrell-fantasy-tv-show/
+
+Jonathan Norrell and Mr. Norrell is a sweeping historical fantasy series that didn't get enough recognition when it first came out.
+---------
+
+# 'Attack on Titan' Officially Begins a New Era With Brutal First Look
+
+Gaming News, Attack on Titan, Attack On Titan, PS5, Anime
+
+Sun, 05 Jul 2026 22:30:13 GMT
+
+https://collider.com/attack-on-titan-3-video-game-release-window-first-look-trailer-koei-tecmo/
+
+Koei Tecmo's Attack on Titan 3, the final video game adaptation of the popular manga, has set a launch window and unveiled a first-look trailer.
+---------
+
+# 8 Most Perfect Action Shows of the Last 5 Years
+
+TV, Action, Reacher, Daredevil: Born Again, Invincible
+
+Sun, 05 Jul 2026 22:22:13 GMT
+
+https://collider.com/most-perfect-action-shows-last-5-years-ranked/
+
+Reacher, Invincible, Andor, and Daredevil: Born Again are among the best action shows of the last 5 years, but which series is the greatest?
+---------
+
+# Stephen King’s Most Devastating Horror Ending Is Streaming Free This Month
+
+Movie News, The Mist, Horror, Stephen King, Thomas Jane
+
+Sun, 05 Jul 2026 22:15:12 GMT
+
+https://collider.com/stephen-king-the-mist-free-streaming-fawesome-july-2026/
+
+The Mist, Frank Darabont’s devastating Stephen King horror movie, is now streaming free. Find out everything to know here.
+---------
+
+# 8 Greatest Thriller Movies Worth Watching Again and Again, Ranked
+
+Movie, Thriller, Fight Club, Mulholland Drive, Psycho
+
+Sun, 05 Jul 2026 22:03:14 GMT
+
+https://collider.com/best-thriller-movies-worth-rewatching-ranked/
+
+The Silence of the Lambs, The Shining, Psycho, Fight Club, and more make up our list of the best thriller movies worth watching again and again.
+---------
+
+# Mark Wahlberg’s Explosive Disaster Blockbuster Finds New Life on Streaming
+
+Movie News, Mark Wahlberg, Deepwater Horizon, Paramount Plus, Kurt Russell
+
+Sun, 05 Jul 2026 22:00:13 GMT
+
+https://collider.com/deepwater-horizon-streaming-paramount-plus-july-2026/
+
+Mark Wahlberg's disaster epic with Kurt Russell, Deepwater Horizon, is streaming on a new platform. Find out more here.
+---------
+
+# All 4 Self-Titled Led Zeppelin Albums, Ranked
+
+Music Features, Led Zeppelin, Music, Rock, 1970s
+
+Sun, 05 Jul 2026 21:55:14 GMT
+
+https://collider.com/led-zeppelin-albums-self-titled-ranked/
+
+The first four Led Zeppelin albums were self-titled or, in the case of the fourth, technically untitled... but which proved to be the biggest classic?
+---------
+
+# 10 Times 'The Far Side' Went Full Sci-Fi
+
+Movie Lists, The Far Side
+
+Sun, 05 Jul 2026 22:30:19 GMT
+
+https://movieweb.com/far-side-best-sci-fi/
+
+Larson's love of science in 'The Far Side' led to some strips that took the strip into the realm of sci-fi: these are the best.
+---------
+
+# 8 Action Thriller Movies That Are Better Than 'Sicario'
+
+Movie Lists, Sicario
+
+Sun, 05 Jul 2026 22:00:19 GMT
+
+https://movieweb.com/action-thriller-movies-better-sicario/
+
+Taylor Sheridan's 'Sicario' is one of the most popular action thrillers, but these other action movies deal with similar subjects
+---------
+
 # 9 Years Later, Marvel's The Defenders Season 2 Is Finally Happening
 
 Streaming TV, Masked Recs
