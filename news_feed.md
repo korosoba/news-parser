@@ -1,3 +1,256 @@
+# Diablo 4 Free Download Officially Available For 48 Hours
+
+Gaming, Diablo 4
+
+Sun, 05 Jul 2026 05:00:21 GMT
+
+https://screenrant.com/diablo-4-free-download-july-2026-48-hours/
+
+Blizzard offers a free Warlock trial for Diablo 4 during the Season of Death Awakening, allowing players to level up to level 30.
+---------
+
+# Red Dead Redemption 2 Free Download Available For 24 Hours
+
+Gaming, Red Dead Redemption 2, Red Dead Online
+
+Sun, 05 Jul 2026 04:30:21 GMT
+
+https://screenrant.com/red-dead-redemption-2-free-download-24-hours-july-2026/
+
+Earn triple rewards, XP, and more by taking down criminals in the Bounty Hunter Bonuses event in Red Dead Online.
+---------
+
+# New Spider-Man RPG Officially Confirmed For September 2026
+
+Gaming, Spider-Man, Marvel's Spider-Man, Marvel, RPG, PC
+
+Sun, 05 Jul 2026 04:00:28 GMT
+
+https://screenrant.com/spider-man-midtown-mayhem-rpg-september-2026/
+
+A brand-new Spider-Man RPG is set to launch this September, making it the perfect game to play after watching the latest movie in theatres.
+---------
+
+# Netflix Just Saved JoJo's Bizarre Adventure By Fixing The Blunder That Nearly Killed It
+
+Anime, Netflix, Jojo's Bizarre Adventure, JoJo's Bizarre Adventure
+
+Sun, 05 Jul 2026 03:55:21 GMT
+
+https://screenrant.com/netflix-jojos-bizarre-adventure-steel-ball-run-release-fixed/
+
+One major worry has hung over Netflix's most promising anime of 2026, but the streaming service has finally addressed it and saved the adaptation.
+---------
+
+# 5 Near-Perfect Anime in Crunchyroll No One Talks About
+
+Anime, Crunchyroll
+
+Sun, 05 Jul 2026 03:37:55 GMT
+
+https://screenrant.com/crunchyroll-near-perfect-anime-nobody-remembers/
+
+Some of Crunchyroll’s forgotten anime are true gems that lack the popularity they deserve, but they offer worthwhile experiences to viewers.
+---------
+
+# The World Of Silo Explained
+
+Streaming TV, Silo
+
+Sun, 05 Jul 2026 03:30:21 GMT
+
+https://screenrant.com/silo-world-location-history-explained/
+
+The 2023 Apple TV+ series is based on a trilogy of books that collectively outline all the background information explaining how the silo came to be.
+---------
+
+# Black Clover's Anime Return Just Showed Asta's Final Animated Form And Honestly, It's Perfect
+
+Anime, Black Clover, Anime Expo
+
+Sun, 05 Jul 2026 03:24:26 GMT
+
+https://screenrant.com/black-clover-season-2-anime-asta-devil-unite-form-trailer/
+
+After five long years away, the hit shonen anime returns with a stunning new trailer showcasing the highly anticipated look at Asta's ultimate form.
+---------
+
+# Blumhouse's New Horror Reimagining With Rare R-Rating Is Officially HBO Max's #1 Movie In Just One Day
+
+Movies, Masked Recs, HBO Max
+
+Sun, 05 Jul 2026 03:19:14 GMT
+
+https://screenrant.com/blumhouse-lee-cronins-the-mummy-hbo-max-july-2026-streaming-charts/
+
+In just one day, Blumhouse's new horror reimagining with a rare R-rating is officially dominating HBO Max's streaming charts at No. 1.
+---------
+
+# DC's Creature Commandos Gets Major Season 2 Update From Showrunner
+
+TV, Creature Commandos
+
+Sun, 05 Jul 2026 03:13:23 GMT
+
+https://screenrant.com/dc-creature-commandos-season-2-update/
+
+DC Studio's Creature Commandos' showrunner just offered fans a major update about the popular animated series' upcoming second season.
+---------
+
+# After 3 Years, RWBY Is Officially Returning For Volume 10
+
+Anime, RWBY, Anime Expo
+
+Sun, 05 Jul 2026 03:08:33 GMT
+
+https://screenrant.com/rwby-volume-10-confirmed/
+
+The announcement of RWBY's Volume 10 comes as a relief to fans who feared the beloved series might never continue after its original studio's closure.
+---------
+
+# 10 Anime Series Without a Single Flaw
+
+Anime, Fullmetal Alchemist: Brotherhood, Cowboy Bebop
+
+Sun, 05 Jul 2026 03:45:13 GMT
+
+https://www.cbr.com/flawless-anime-series-list/
+
+Anime like Fullmetal Alchemist: Brotherhood and Monster showcase impeccable pacing, characterization, and thematic ambition from start to finish.
+---------
+
+# Paramount's New Star Trek Movie Reset Is Great News For Fans
+
+Movies, Star Trek, Paramount, Sci-Fi
+
+Sun, 05 Jul 2026 03:40:13 GMT
+
+https://www.cbr.com/paramount-star-trek-movie-reboot-good-news-for-fans/
+
+The Star Trek franchise is making its triumphant big-screen return, and details on the fresh series reset are incredibly exciting for Trek fans.
+---------
+
+# 10 Amazing Sitcoms Barely Anyone Remembers
+
+TV, Sitcoms, 2 Broke Girls, Superstore
+
+Sun, 05 Jul 2026 03:30:12 GMT
+
+https://www.cbr.com/amazing-sitcoms-no-one-remembers-list/
+
+Over the decades, sitcoms have come and gone, with only a few being remembered. That said, some sitcoms were amazing but also forgotten.
+---------
+
+# Japan Crowns the 10 Best Yuri Anime of All Time
+
+Anime, Mobile Suit Gundam: The Witch from Mercury, Mobile Suit Gundam, The Executioner and Her Way of Life
+
+Sun, 05 Jul 2026 03:30:12 GMT
+
+https://www.cbr.com/best-yuri-anime-all-time-japan-survey/
+
+A popular Japanese ranking site unveils which yuri (girls' love) anime titles are the greatest representatives of the genre.
+---------
+
+# 10 RPGs That Are Perfectly Written List
+
+Games, RPG, Final Fantasy VII, The Witcher 3: Wild Hunt
+
+Sun, 05 Jul 2026 03:15:13 GMT
+
+https://www.cbr.com/perfectly-written-rpg-list/
+
+From Final Fantasy VII to Clair Obscur: Expedition 33,  these RPGs feature shocking character arcs and mind-blowing plot twists.
+---------
+
+# PS5 Finally Gets 9/10 Indie RPG This Year After PC, Xbox & Switch Success
+
+Games
+
+Sun, 05 Jul 2026 03:14:50 GMT
+
+https://www.cbr.com/back-to-the-dawn-playstation-5-release/
+
+The game has overwhelmingly positive reviews on other platforms, and it's finally making its way to PlayStation 5.
+---------
+
+# It's Officially the End of an Era for NCIS
+
+TV, NCIS, NCIS: Sydney, NCIS: Origins
+
+Sun, 05 Jul 2026 03:06:40 GMT
+
+https://www.cbr.com/ncis-origins-sydney-shortened-seasons-2026-2027-end-of-era/
+
+CBS ushers in the end of an era for its Navy franchise, with NCIS making unrecognizable changes to its programming in the 2026-2027 TV schedule.
+---------
+
+# Jon Bernthal Confirms Punisher's Relationship to Peter Parker in Spider-Man: Brand New Day
+
+Movies, Spider-Man: Brand New Day, The Punisher, Spider-Man
+
+Sun, 05 Jul 2026 03:01:13 GMT
+
+https://www.cbr.com/jon-bernthal-punisher-spider-man-brand-new-day-relationship/
+
+Thanks to Spider-Man, the world is about to see a version of The Punisher it never thought possible.
+---------
+
+# 10 Greatest Open-World Games of the Last 5 Years, Ranked
+
+Games, Video Games, Elden Ring, open world
+
+Sun, 05 Jul 2026 02:45:12 GMT
+
+https://www.cbr.com/best-open-world-games-last-5-years-ranked-list/
+
+From heart-pounding action to immersive storytelling, open-world games like Elden Ring and Spider-Man 2 pushed boundaries, leaving a lasting impact.
+---------
+
+# 5 Best Anime Series From the '80s
+
+Anime
+
+Sun, 05 Jul 2026 02:30:13 GMT
+
+https://www.cbr.com/best-80s-anime-series-list/
+
+The 1980s were a golden era for anime with pioneering series like Dragon Ball and Gunbuster that remain iconic to this day.
+---------
+
+# Apple TV Has Great Sci-Fi, but This 8-Part Horror Fantasy Is Its Most Overlooked Gem
+
+TV Features, The Changeling, Apple TV, Sci-Fi, Horror
+
+Sun, 05 Jul 2026 03:08:13 GMT
+
+https://collider.com/apple-tv-best-most-overlooked-series-the-changeling/
+
+Apple TV's The Changeling is an underrated horror series with haunting performances and nonstop tension from start to finish.
+---------
+
+# Before Its Apple TV Debut, Read the One Book That Puts All Romantasy Tropes to Shame
+
+Books and Comics, Mistborn, Brandon Sanderson, Fantasy, Apple TV
+
+Sun, 05 Jul 2026 03:07:13 GMT
+
+https://collider.com/apple-tv-best-new-fantasy-romance-movie-mistborn/
+
+Brandon Sanderson's Mistborn is being adapted for Apple TV and is the rare fantasy book that makes romance grounded and believable.
+---------
+
+# ‘Star Trek’ Is Bringing Fan-Favorite Characters and Alien Worlds Back Together
+
+Books and Comics, Star Trek, Star Trek: The Next Generation, Star Trek: Deep Space Nine, Star Trek: Strange New Worlds
+
+Sun, 05 Jul 2026 01:54:14 GMT
+
+https://collider.com/star-trek-idw-publishing-alien-collection-storytelling-opportunities-opinion/
+
+IDW Publishing is highlighting the best part of Star Trek with its reprints of classic Trek comics that explore the franchise's different aliens.
+---------
+
 # Silo Season 3 Secretly Teased Daniel's Role In The Silos' Creation
 
 Streaming TV, Silo, Silo - Season 3
