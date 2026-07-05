@@ -1,3 +1,256 @@
+# Universal’s $1.3B Fantasy Franchise Is Officially Changing Streaming Homes This Month
+
+Movies, Masked Recs
+
+Sun, 05 Jul 2026 16:56:36 GMT
+
+https://screenrant.com/wicked-for-good-netflix-release-date-july-2026/
+
+After reaching $1.3 billion, this fantasy franchise is changing streaming homes this month, with the most recent movie coming to Netflix.
+---------
+
+# All 8 Movies From Disney's Silver Age Era, Ranked
+
+Movies, Disney, Lady and the Tramp, One Hundred and One Dalmatians, Cinderella, Sleeping Beauty, The Jungle Book, Alice in Wonderland, Peter Pan, The Sword in the Stone
+
+Sun, 05 Jul 2026 16:55:21 GMT
+
+https://screenrant.com/disney-silver-age-era-movies-ranked/
+
+We rank Disney’s Silver Age from worst to best. From Cinderella to The Jungle Book, we break down 8 iconic classics that shaped animation history.
+---------
+
+# 10 Classic Movie Musicals We'll Never Get Tired Of Watching
+
+Movies, Musical
+
+Sun, 05 Jul 2026 16:40:20 GMT
+
+https://screenrant.com/movie-musicals-classics-we-love/
+
+Movie musicals capture the grandeur and magic of cinema better than any other genre, and we will never get tired of watching these 10 classic films.
+---------
+
+# Marvel Horror Show Is The Perfect Introduction For Rumored Avengers: Doomsday Team
+
+Streaming TV, Marvel, Masked Recs
+
+Sun, 05 Jul 2026 16:30:20 GMT
+
+https://screenrant.com/marvel-zombies-young-avengers-introduction-before-doomsday/
+
+Avengers: Doomsday is rumored to include one team that hasn't officially been announced, and Marvel's adult horror show is their perfect introduction.
+---------
+
+# New Switch 2 Hardware Leak Has Nintendo Fans All Saying The Same Thing
+
+Gaming, Nintendo Switch 2, Triple-A Games
+
+Sun, 05 Jul 2026 16:30:20 GMT
+
+https://screenrant.com/nintendo-switch-2-upgrade-leak-reaction/
+
+While the Switch 2 has already been dominating sales, Nintendo's latest hardware upgrade isn't going over well with Switch players.
+---------
+
+# 7 Manhwa That Are Just As Good As Omniscient Reader's Viewpoint
+
+Anime, Omniscient Reader, Manhwa
+
+Sun, 05 Jul 2026 16:30:20 GMT
+
+https://screenrant.com/manhwa-as-good-as-omniscient-readers-viewpoint/
+
+While ORV takes an extended break, these fantasy survival manhwa offer the perfect mix of ruthless systems and clever protagonists.
+---------
+
+# 10 Greatest Adventure Movies Of The Last 10 Years, Ranked
+
+Movies
+
+Sun, 05 Jul 2026 16:21:19 GMT
+
+https://screenrant.com/best-adventure-movies-last-10-years-ranked/
+
+The last decade of cinema has produced some of the finest adventure movies ever, with many pushing the genre’s boundaries into thrilling new areas.
+---------
+
+# Star Wars Should Reuse The Original Andor Story For A New Show
+
+TV, Andor
+
+Sun, 05 Jul 2026 16:21:19 GMT
+
+https://screenrant.com/star-wars-original-andor-story-new-show/
+
+The new book The Art of Andor gives fans plenty of behind the scenes information on the show, including a glimpse at its original story.
+---------
+
+# 12 Years Later, John Wick’s Next Appearance Has Fans Worried
+
+Gaming, John Wick, Triple-A Games
+
+Sun, 05 Jul 2026 16:00:21 GMT
+
+https://screenrant.com/john-wick-gameplay-fan-reaction/
+
+John Wick movies have slowly drifted away from popular culture as its Keanu Reeves-led entries ceased, and one new appearance is bringing him back.
+---------
+
+# I Will Find You: Why Netflix Viewers Can't Stop Watching
+
+Movies, I Will Find You
+
+Sun, 05 Jul 2026 16:00:21 GMT
+
+https://screenrant.com/video/i-will-find-you-why-netflix-viewers-just-can-t-stop-watching-it/
+
+I Will Find You: Why Netflix Wanted It Immediately. Before Harlan Coben had even finished writing the novel, Netflix already knew it wanted to turn I Will Find You into a limited series. That decision says a lot about what the streaming giant is looking for—and why this adaptation has become one of its biggest successes of 2026.
+---------
+
+# DC Absolute Creators Piggyback On Red-Hot Man Of Tomorrow Cameo Rumors
+
+Comics, DC Comics, DCU, Superman, Superman: Man of Tomorrow, Supergirl, Martian Manhunter
+
+Sun, 05 Jul 2026 16:48:22 GMT
+
+https://www.cbr.com/dc-absolute-creator-man-of-tomorrow-cameo-martian-manhunter/
+
+It's becoming really clear that this isn't just a James Gunn rumor for Superman.
+---------
+
+# Sam Neill's 3-Part Mystery Thriller Is the Tightest Adaptation of an Agatha Christie Novel
+
+TV, And Then There Were None, Mystery
+
+Sun, 05 Jul 2026 16:30:13 GMT
+
+https://www.cbr.com/sam-neill-and-then-there-were-none-great-agatha-christie-adaptation/
+
+The BBC’s underrated miniseries is a masterclass in adapting an Agatha Christie novel, refusing to soften its bleak, cruel tone for comfort.
+---------
+
+# 5 Best Anime Series From the 1990s
+
+Anime, Berserk, Cowboy Bebop, Yu Yu Hakusho
+
+Sun, 05 Jul 2026 16:15:13 GMT
+
+https://www.cbr.com/best-anime-series-1990s-berserk-evangelion/
+
+The influence of these anime extends far beyond their original release, continuing to resonate with audiences today.
+---------
+
+# Power Rangers Just Introduced the Biggest Ranger Roster Ever in Its Latest Series
+
+Comics, Power Rangers
+
+Sun, 05 Jul 2026 16:00:13 GMT
+
+https://www.cbr.com/boom-studios-power-rangers-unlimited-team-revealed/
+
+BOOM! Studios' new Power Rangers series has officially introduced the biggest team of Rangers that fans of the franchise have ever seen.
+---------
+
+# That Time I Got Reincarnated as a Slime Is Finally Streaming on Netflix Worldwide
+
+Anime, That Time I Got Reincarnated as a Slime, Isekai, Netflix
+
+Sun, 05 Jul 2026 16:00:13 GMT
+
+https://www.cbr.com/that-time-i-got-reincarnated-as-a-slime-netflix-streaming-worldwide/
+
+One of the best isekai anime series of all time is finally available to stream outside of Crunchyroll.
+---------
+
+# Doctor Who Showrunner Praises Starz for Having the 'Nerve' to Release His New Thriller Show in the U.S.
+
+TV, Doctor Who
+
+Sun, 05 Jul 2026 15:54:27 GMT
+
+https://www.cbr.com/russell-t-davies-tip-toe-starz-release-us/
+
+While Doctor Who's fate is up in the air, the showrunner has a new project coming to the U.S. soon.
+---------
+
+# 5 ‘A Song of Ice and Fire’ Plotlines Fans Will Never See Adapted on HBO
+
+Books and Comics, Game Of Thrones, A Song of Ice and Fire, George R.R. Martin, HBO Max
+
+Sun, 05 Jul 2026 16:55:13 GMT
+
+https://collider.com/a-song-of-ice-and-fire-plotlines-hbo-game-of-thrones-abandoned/
+
+HBO's Game of Thrones adapted George R.R. Martin's A Song of Ice and Fire, but many plotlines were left by the wayside.
+---------
+
+# This 94% Rotten Tomatoes Adventure Epic Was George Lucas’ Easiest Film To Make
+
+Movie Features, George Lucas, Raiders of the Lost Ark, Indiana Jones, Star Wars
+
+Sun, 05 Jul 2026 16:41:13 GMT
+
+https://collider.com/george-lucas-raiders-lost-ark-easiest-film/
+
+George Lucas reveals Raiders of the Lost Ark was his easiest film set ever, with Spielberg, Harrison Ford, and zero studio drama.
+---------
+
+# Steven Spielberg’s Divisive New Sci-Fi Movie Just Hit $100 Million
+
+Movie News, Disclosure Day, Steven Spielberg, Sci-Fi, Box Office
+
+Sun, 05 Jul 2026 16:15:14 GMT
+
+https://collider.com/disclosure-day-box-office-100-million-steven-spielberg/
+
+Steven Spielberg’s new sci-fi thriller has passed $100 million at the domestic box office despite mixed reactions.
+---------
+
+# 10 Best Mindless Action Movies of All Time
+
+Movie, Commando, Mission: Impossible - Fallout, Fast & Furious 6, Kung Fu Hustle
+
+Sun, 05 Jul 2026 16:06:14 GMT
+
+https://collider.com/best-mindless-action-movies-all-time-ranked/
+
+Plenty of classic action movies can be enjoyed in a mindless sort of way, including the likes of Commando, Fast & Furious 6, and Pineapple Express.
+---------
+
+# Stephen King and Guillermo del Toro Agree This 4-Part Apple TV+ Thriller Deserves a Second Look
+
+TV Features, Servant, M. Night Shyamalan, Stephen King, Guillermo del Toro
+
+Sun, 05 Jul 2026 15:54:13 GMT
+
+https://collider.com/servant-apple-tv-thriller-stephen-king-guillermo-del-toro/
+
+Stephen King and Guillermo del Toro can agree that Servant is an underrated Apple TV series that offers horror scares and shocking twists.
+---------
+
+# Arnold Schwarzenegger's Forgotten 109-Minute Action Thriller Bursts Onto Streaming
+
+Movie News, Arnold Schwarzenegger, Sabotage, Coming/Leaving Streaming, Action, David Ayer
+
+Sun, 05 Jul 2026 16:00:18 GMT
+
+https://movieweb.com/sabotage-arnold-schwarzenegger-action-streaming-free-pluto-tv-july-2026/
+
+Before directing Jason Statham in 'The Beekeeper' and 'A Working Man,' David Ayer teamed with Arnold Schwarzenegger for this violent thriller.
+---------
+
+# 17 Years Later, Ridley Scott’s 7-Part Thriller Keeps Getting Better
+
+Features, The Good Wife, Ridley Scott
+
+Sun, 05 Jul 2026 16:00:18 GMT
+
+https://movieweb.com/the-good-wife-ridley-scott-holds-up/
+
+Ridley Scott has produced a lot of popular TV series, but this one is particularly underrated and impressive.
+---------
+
 # Supergirl Hits Major Global Box Office Milestone, In Triple The Time That 2025's Superman Took
 
 Superheroes, Box Office Milestone, Supergirl, DC Universe
