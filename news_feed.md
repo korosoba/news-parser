@@ -1,3 +1,300 @@
+# Batman Officially Crowns His Deadliest Villain
+
+DC Comics, Batman
+
+Sun, 05 Jul 2026 19:45:51 GMT
+
+https://screenrant.com/deadliest-batman-villain-ojo/
+
+Batman's newest villain is an assassin whose full potential and motive seemingly haven't been revealed yet, but they are surely intimidating.
+---------
+
+# HBO Will Change Forever In 6 Months
+
+Streaming TV, HBO, HBO Max, Masked Recs
+
+Sun, 05 Jul 2026 19:45:21 GMT
+
+https://screenrant.com/hbo-harry-potter-friday-premiere-streaming-strategy/
+
+As HBO prepares to launch one of its biggest shows of all time, it's clear the network is making significant changes to its traditional strategy.
+---------
+
+# $3.3B Dystopian Sci-Fi Franchise Is Officially Coming To Netflix At The Perfect Time
+
+Movies, Masked Recs, Netflix
+
+Sun, 05 Jul 2026 19:30:26 GMT
+
+https://screenrant.com/hunger-games-franchise-netflix-release-date-july-2026/
+
+One of the defining franchises of the dystopian sci-fi genre is coming to Netflix in its entirety before the release of the next installment.
+---------
+
+# X-Men '97 Officially Makes The Jump To Live-Action After Acclaimed Season 2 Premiere
+
+Movies, Masked Recs
+
+Sun, 05 Jul 2026 19:30:21 GMT
+
+https://screenrant.com/x-men-97-live-action-avengers-doomsday-costumes/
+
+Despite having the cast from the movies, the costumes in Avengers: Doomsday suggest the movie's X-Men story will veer closer to the animated series.
+---------
+
+# This Tales From The Crypt Episode Did Obsession 35 Years Ago
+
+TV, Tales From the Crypt, Obsession
+
+Sun, 05 Jul 2026 19:25:21 GMT
+
+https://screenrant.com/obsession-tales-from-the-crypt-episode-similarities/
+
+Obsession is the latest horror movie to take the world by storm, but it bears a striking resemblance to a 35-year-old episode of Tales from the Crypt.
+---------
+
+# The Batman 2 Reportedly Adds Iconic DC Villain To Cast
+
+Movies, The Batman Part II
+
+Sun, 05 Jul 2026 19:20:13 GMT
+
+https://screenrant.com/the-batman-2-barry-keoghan-joker-return-report/
+
+The Batman Part II may finally be adding this iconic DC villain, as a new report alleges that this actor will indeed be appearing in the sequel.
+---------
+
+# Hit Sci-Fi Horror Movie Based On A Mind-Bending Book Getting Special New Release This Year
+
+Movies, Annihilation
+
+Sun, 05 Jul 2026 19:02:12 GMT
+
+https://screenrant.com/annihilation-movie-sci-fi-horror-blu-ray-release-date-special-edition/
+
+A star-studded sci-fi horror is returning, but with a twist, and despite an extremely poor box office performance, the movie has found redemption.
+---------
+
+# Jujutsu Kaisen Season 4 Release Date Gets Disappointing Anime Expo Update
+
+Anime, Jujutsu Kaisen
+
+Sun, 05 Jul 2026 19:00:21 GMT
+
+https://screenrant.com/jujutsu-kaisen-season-4-release-date-disappointing-update/
+
+Jujutsu Kaisen leaves fans high and dry as Anime Expo 2026 fails to deliver the Season 4 update many were hoping for.
+---------
+
+# This Forgotten Space Opera Is The Perfect Guilty Pleasure Sci-Fi (& It’s Free To Watch)
+
+Classic TV, Masked Recs
+
+Sun, 05 Jul 2026 19:00:21 GMT
+
+https://screenrant.com/forgotten-space-opera-starhunter-free-tubi/
+
+If you're looking for a "so bad it's good" space opera, this forgotten sci-fi show is the perfect choice. Plus, it's completely free!
+---------
+
+# Hideo Kojima Fans United Over Official Xbox Response To His New Game
+
+Gaming, OD: A Hideo Kojima Game, Triple-A Games, PC
+
+Sun, 05 Jul 2026 19:00:21 GMT
+
+https://screenrant.com/hideo-kojima-od-not-canceled-reaction/
+
+With Xbox preparing for one of its worst announcements in years, players are rushing out in support of Kojima's upcoming new release.
+---------
+
+# Rebecca Ferguson's Hit Apple TV Sci-Fi Officially Divides Critics & Audiences on RT After Perfect Score
+
+TV, Silo
+
+Sun, 05 Jul 2026 19:45:54 GMT
+
+https://www.cbr.com/rebecca-ferguson-silo-season-3-divisive-rotten-tomatoes-critics-audience-score/
+
+The sci-fi show set a new record, both good and bad.
+---------
+
+# The Bear Season 5 Gets Disappointing Streaming News Despite Near-Perfect Scores
+
+TV, The Bear
+
+Sun, 05 Jul 2026 19:30:14 GMT
+
+https://www.cbr.com/the-bear-season-5-disney-plus-hulu-drop-july-2026/
+
+The hit series reached the end of the road, but it's not making a splash on streaming.
+---------
+
+# Andy Serkis' New War Epic Scores Sequel After Divisive Rotten Tomatoes Score
+
+Movies, Young Washington
+
+Sun, 05 Jul 2026 19:23:30 GMT
+
+https://www.cbr.com/young-washington-rotten-tomatoes-score-sequel-announced/
+
+While critics were mixed with their opinions, audiences loved the war epic.
+---------
+
+# 10 Classic 2000s Manga Series That Are Unreadable Today
+
+Anime, Elfen Lied, Witchblade, Ghost Hound, Manga
+
+Sun, 05 Jul 2026 19:15:12 GMT
+
+https://www.cbr.com/classic-2000s-manga-unreadable-today/
+
+The 2000s has a plethora of tremendous manga titles readily available for all audiences, but readers may want to skip on these ten titles altogether.
+---------
+
+# 10 Military Movies Better Than Netflix's War Machine
+
+Movies, War Machine
+
+Sun, 05 Jul 2026 19:00:13 GMT
+
+https://www.cbr.com/military-movies-better-than-netflix-war-machine-list/
+
+These ten movies have more firepower than Netflix's well-watched action sci-fi thriller starring Alan Ritchson.
+---------
+
+# New Minions Movie Debuts With Record-Breaking Box Office After Best RT Score
+
+Movies, Minions & Monsters, Despicable Me, box office
+
+Sun, 05 Jul 2026 18:42:11 GMT
+
+https://www.cbr.com/minions-and-monsters-box-office-opening/
+
+The franchise is still alive, even though it's not an instant hit.
+---------
+
+# 10 Shonen Anime That Redefined What a Hero Could Be
+
+Anime, shonen anime, Shonen
+
+Sun, 05 Jul 2026 18:15:12 GMT
+
+https://www.cbr.com/shonen-anime-redefine-heroism/
+
+Heroes stand at the forefront of shonen anime, but some anime go beyond the norm to redefine the standard for heroism.
+---------
+
+# The Anime Classic That Dethroned Studio Ghibli Is Returning to Theaters [Exclusive]
+
+Exclusives, Your Name, Makoto Shinkai, Anime, GKIDS
+
+Sun, 05 Jul 2026 19:45:13 GMT
+
+https://collider.com/your-name-makoto-shinkai-anime-4k-theaterical-rerelease-august/
+
+Makoto Shinkai's influential romantic fantasy anime classic Your Name is officially returning to theaters in 4K to celebrate its tenth anniversary.
+---------
+
+# Netflix's 4-Episode Survival Thriller Is the Perfect One-Night Binge
+
+TV Features, Lord of the Flies, Netflix, Jack Thorne, Thriller
+
+Sun, 05 Jul 2026 19:42:13 GMT
+
+https://collider.com/lord-of-the-flies-netflix-survival-thriller-one-night-binge/
+
+Netflix's Lord of the Flies series expands the beloved British novel into a 4-episode adaptation, exploring the story's themes with greater depth.
+---------
+
+# 10 Johnny Cash Albums That Are Perfect From Start to Finish
+
+Music Features, Johnny Cash, Country, Music, Rock
+
+Sun, 05 Jul 2026 19:11:14 GMT
+
+https://collider.com/johnny-cash-albums-perfect-start-to-finish/
+
+The Man in Black was considered a master talent for a reason. Here are some of his best works.
+---------
+
+# Amazon Prime Makes 'Breaking Bad' Star's 10/10 Sci-Fi Game Completely Free To Play
+
+Gaming News, Aaron Paul, Jeffrey Wright, PlayStation Plus, Amazon
+
+Sun, 05 Jul 2026 19:00:13 GMT
+
+https://collider.com/amazon-prime-superhero-game-dispatch-free-july-2026/
+
+One of the best superhero games in years is now available for free on Amazon Prime's gaming library for Prime members.
+---------
+
+# The Cranberries Song That Made Dolores O'Riordan One of Rock's Greatest Voices
+
+Music Features, Music, Rock, The Cranberries - Live - London, Billboard Hot 100
+
+Sun, 05 Jul 2026 18:56:13 GMT
+
+https://collider.com/the-cranberries-zombie-dolores-oriordan-rocks-greatest-voice/
+
+The Cranberries lead singer Dolores O'Riordan's powerful vocal performance on Zombie cemented her legacy as one of rock's most iconic voices.
+---------
+
+# 8 Greatest Hard Sci-Fi Movies of the '80s, Ranked
+
+Movie, Sci-Fi, 1980s, The Terminator, The Fly
+
+Sun, 05 Jul 2026 18:49:13 GMT
+
+https://collider.com/best-hard-sci-fi-movies-1980s-ranked/
+
+The Terminator, The Fly, Aliens, Blade Runner, Akira, and more make up our list of the best hard sci-fi movies of the '80s.
+---------
+
+# 10 Heaviest Episodes of 'Game of Thrones'
+
+TV, Game Of Thrones, HBO, Television, Fantasy
+
+Sun, 05 Jul 2026 18:40:14 GMT
+
+https://collider.com/game-of-thrones-heaviest-episodes-ranked/
+
+Game of Thrones was a heavy-going TV show, with episodes like "The Rains of Castamere," "Baelor," and "The Dance of Dragons" being especially bleak.
+---------
+
+# 10 Best 2000s Cartoons That Are Worth Revisiting
+
+TV, 2000s, Cartoons, Animation, Avatar: The Last Airbender
+
+Sun, 05 Jul 2026 18:33:14 GMT
+
+https://collider.com/best-2000s-cartoons-worth-revisiting/
+
+Avatar: The Last Airbender, Teen Titans, Star Wars: The Clone Wars, and Kim Possible are among the best 2000s cartoons that are worth revisiting.
+---------
+
+# 12 Classic Sci-Fi Shows No One Talks About Anymore
+
+TV Lists, Sci-Fi
+
+Sun, 05 Jul 2026 19:00:19 GMT
+
+https://movieweb.com/classic-sci-fi-shows-no-one-talks-about/
+
+These overlooked sci-fi gems still deserve more recognition among classic TV discussions.
+---------
+
+# Sherlock' Meets 'Mindhunter' in One of the Most Underrated Detective Thrillers
+
+Features, Elementary, Thriller, Mindhunter, Sherlock
+
+Sun, 05 Jul 2026 18:30:20 GMT
+
+https://movieweb.com/elementary-sherlock-meets-mindhunter-comparison/
+
+Running for seven seasons and 154 episodes, this series that combines elements from two of your favorites makes for an exciting detective thriller.
+---------
+
 # The Rings Of Power Understands The Real Meaning Behind LOTR's Fellowship
 
 Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
