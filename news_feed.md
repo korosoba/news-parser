@@ -1,3 +1,256 @@
+# Supergirl Hits Major Global Box Office Milestone, In Triple The Time That 2025's Superman Took
+
+Superheroes, Box Office Milestone, Supergirl, DC Universe
+
+Sun, 05 Jul 2026 15:41:59 GMT
+
+https://screenrant.com/supergirl-2026-box-office-100-million-global-milestone/
+
+Supergirl hits a major global box office milestone during its second weekend that its DCU predecessor Superman hit before its first even started.
+---------
+
+# Jeremy Renner's Sci-Fi Movie With One Of The Best Twists Ever Getting Special New Release
+
+Movies, Arrival
+
+Sun, 05 Jul 2026 15:32:55 GMT
+
+https://screenrant.com/jeremy-renner-arrival-movie-sci-fi-blu-ray-release-date-special-edition/
+
+One of the best movies of Jeremy Renner's career, a sci-fi epic with a brilliant plot twist, is getting a special anniversary release.
+---------
+
+# Matt Smith Repeats His Emmy-Nominated Netflix Role In HBO’s House Of The Dragon
+
+TV, House of the Dragon, The Crown
+
+Sun, 05 Jul 2026 15:30:20 GMT
+
+https://screenrant.com/matt-smith-daemon-prince-philip-the-crown-house-of-dragon/
+
+Matt Smith is sensational as Daemon Targaryen in House of the Dragon, and no wonder, since his previous Emmy-nominated role on Netflix was a warm-up.
+---------
+
+# Marvel’s Wolverine Is Officially The End Of An Era For PlayStation
+
+Gaming, Marvel's Wolverine, Triple-A Games
+
+Sun, 05 Jul 2026 15:30:20 GMT
+
+https://screenrant.com/marvels-wolverine-playstation-last-physical-release/
+
+Marvel's Wolverine will be a celebration for Insomniac as its Marvel universe expands, but a somber day for PlayStation fans in the end of an era.
+---------
+
+# Timothée Chalamet’s New 2027 Movie Not Alone Continues An Impressive 9-Year-Long Trend
+
+Movies, Timothée Chalamet, Not Alone
+
+Sun, 05 Jul 2026 15:30:20 GMT
+
+https://screenrant.com/timothee-chalamets-not-alone-movie-2027-trend/
+
+2027's new Timothée Chalamet movie is set to bring one film trend into its tenth year, marking a decade of one on-screen tradition holding true.
+---------
+
+# Noah Wyle Almost Starred In The Greatest World War II Movie Of All Time
+
+Movies, Noah Wyle, Saving Private Ryan
+
+Sun, 05 Jul 2026 15:28:41 GMT
+
+https://screenrant.com/noah-wyle-saving-private-ryan-almost-cast/
+
+Noah Wyle is best known for ER and The Pitt, but the medical drama television star almost played a major role in an all-time great World War II film.
+---------
+
+# Minions & Monsters Earns Worst Box Office Debut Of The Entire Franchise Despite Record-Breaking RT Score (Domestic Top 5)
+
+Movies, Minions & Monsters, Box Office, Despicable Me
+
+Sun, 05 Jul 2026 15:21:15 GMT
+
+https://screenrant.com/minions-and-monsters-box-office-opening-weekend-domestic-chart-report/
+
+Even though critics are loving Minions & Monsters, it earns by far the worst domestic opening weekend of the entire 7-film Despicable Me franchise.
+---------
+
+# Darth Vader Should Have Known Luke And Leia Were His Kids The First Time They Met On Screen
+
+Movies, Anakin Skywalker/Darth Vader, Star Wars
+
+Sun, 05 Jul 2026 15:00:20 GMT
+
+https://screenrant.com/star-wars-darth-vader-anakin-skywalker-luke-leia-similar/
+
+The truth about Luke Skywalker and Leia Organa being Darth Vader's children took some time to be revealed, but he should have recognized it sooner.
+---------
+
+# After 45 Years, A Shocking Sci-Fi Series Cliffhanger Will Finally Be Resolved
+
+Streaming TV, Masked Recs
+
+Sun, 05 Jul 2026 15:00:20 GMT
+
+https://screenrant.com/sci-fi-series-blakes-7-reboot-cliffhanger-solve/
+
+An iconic British sci-fi show is currently being rebooted. Not only will it rival Doctor Who, but it will resolve a 45 year old cliffhanger ending.
+---------
+
+# PlayStation Plus Members Losing 3 Free Games In 24 Hours
+
+Gaming, PlayStation Plus, Triple-A Games
+
+Sun, 05 Jul 2026 15:00:20 GMT
+
+https://screenrant.com/playstation-plus-essential-games-leaving-july-2026/
+
+PlayStation Plus Essential's monthly games for June are on their way out. You have one final day to add these three games to your library.
+---------
+
+# 10 Forgotten Fantasy Manga That Are Perfect From Start to Finish
+
+Anime, Manga, Fantasy, Chrono Crusade
+
+Sun, 05 Jul 2026 15:16:13 GMT
+
+https://www.cbr.com/perfect-but-forgotten-fantasy-manga/
+
+Fantasy manga has a nasty habit of dragging past the natural ending point, but those with clear direction from start to finish become unforgettable.
+---------
+
+# 10 Best Frieren Quotes About Time
+
+Anime, Frieren: Beyond Journey's End, Shonen
+
+Sun, 05 Jul 2026 15:00:13 GMT
+
+https://www.cbr.com/best-frieren-quotes-about-time/
+
+Time is nothing to an elf like Frieren, but the relationships she forged across her journey changed the way she thought about everything, even time.
+---------
+
+# 10 Action Anime That Are (Almost) As Good As Solo Leveling
+
+Anime, Solo Leveling
+
+Sun, 05 Jul 2026 14:45:13 GMT
+
+https://www.cbr.com/action-anime-series-better-than-solo-leveling-streaming-list/
+
+Anime like Berserk and Tokyo Ghoul are the perfect replacements for Solo Leveling.
+---------
+
+# All 9 Titans From Attack On Titan, Ranked By Strength
+
+Uncategorised, Attack on Titan, Anime
+
+Sun, 05 Jul 2026 14:45:13 GMT
+
+https://www.cbr.com/aot-strongest-titan/
+
+Attack on Titan's Nine Titans each have a unique power, but their users can influence each titan's individual strengths.
+---------
+
+# Vin Diesel Prepares to Say Goodbye to Fast & Furious With Major Production Update
+
+Movies, vin diesel, Fast Forever
+
+Sun, 05 Jul 2026 14:38:15 GMT
+
+https://www.cbr.com/vin-diesel-fast-forever-production-started/
+
+The long-running car saga is coming to an end soon.
+---------
+
+# Star Trek's Darkest Voyager Story Will Go Down as the Best Character Arc in Sci-Fi History
+
+TV, Star Trek: Voyager, Sci-Fi, Star Trek
+
+Sun, 05 Jul 2026 14:30:13 GMT
+
+https://www.cbr.com/star-trek-voyager-dark-lon-suder-story-best-sci-fi-character-arc-ever/
+
+One of the most underrated and unique character arcs from Star Trek: Voyager tackled interesting challenges with a horror legend's dip into sci-fi.
+---------
+
+# 10 Best Manga of the Last 5 Years, Ranked
+
+Anime, Dandadan, Gachiakuta, Kagurabachi, Manga
+
+Sun, 05 Jul 2026 14:15:14 GMT
+
+https://www.cbr.com/official-best-manga-last-five-years/
+
+Since 2020, some of the greatest manga of all time, like Dandadan and Kagurabachi, have begun serialization.
+---------
+
+# Matt Damon Breaks Down the Bizarre Camera Hack That Made Christopher Nolan’s 'The Odyssey' Possible
+
+Exclusives, The Odyssey, Matt Damon, Christopher Nolan, IMAX
+
+Sun, 05 Jul 2026 15:32:43 GMT
+
+https://collider.com/matt-damon-the-odyssey-imax-70mm-new-camera/
+
+He also explains why the best way to watch the movie is in IMAX 70mm.
+---------
+
+# The Latest Minions Movie Proves This Franchise Is Bulletproof
+
+Movie News, Minions & Monsters, Box Office, Minions, Despicable Me
+
+Sun, 05 Jul 2026 15:30:13 GMT
+
+https://collider.com/minions-and-monsters-box-office-domination-165-million/
+
+The Minions franchise continues its box office dominance with its latest installment reinforcing its status as one of Hollywood’s most consistent hits
+---------
+
+# Zack Snyder’s Divisive DC Epic Gets a Second Chance as ‘Supergirl’ Struggles to Take Off
+
+Movie News, Supergirl, Zack Snyder, Man of Steel, James Gunn
+
+Sun, 05 Jul 2026 14:46:13 GMT
+
+https://collider.com/supergirl-man-of-steel-zack-snyder-digital-charts-success/
+
+Zack Snyder’s controversial epic is getting renewed attention from DC fans amid disappointment over Supergirl’s box office performance.
+---------
+
+# The Best Korean Sci-Fi Movies Of All Time
+
+Movie Lists
+
+Sun, 05 Jul 2026 15:00:20 GMT
+
+https://movieweb.com/best-korean-sci-fi-movies/
+
+These films are not just about futuristic technology and special effects; they delve into philosophical and existential questions about humanity.
+---------
+
+# 10 Best 'The Big Bang Theory' Stuart Episodes to Watch Before His Spin-Off
+
+TV Lists, Stuart Fails to Save the Universe, The Big Bang Theory, Comedy, Kevin Sussman, HBO Max
+
+Sun, 05 Jul 2026 15:00:19 GMT
+
+https://movieweb.com/the-big-bang-theory-stuart-episodes-spin-off/
+
+Before Stuart Bloom returns in 'Stuart Fails to Save the Universe,' make sure to check out his most important episodes from 'The Big Bang Theory.'
+---------
+
+# 'Silo': Common Explains Robert Sims' Big Conflict in Season 3
+
+TV News, Silo, Common
+
+Sun, 05 Jul 2026 14:27:12 GMT
+
+https://movieweb.com/common-silo-season-3-exclusive-interview/
+
+One of the show's most conflicted antagonists is being set up for a redemption arc in Season 3.
+---------
+
 # Amidst Peter Parker Death Rumors, Brand New Day Has 2 Perfect Spider-Man Replacements
 
 Movies, Marvel Cinematic Universe, Marvel, Spider-Man: Brand New Day
