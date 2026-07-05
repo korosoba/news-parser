@@ -1,3 +1,267 @@
+# A Sequel To Kurt Russell's Greatest Western Is Finally Happening, And His Replacement Is Perfect
+
+Movies, Bone Tomahawk, Kurt Russell
+
+Sun, 05 Jul 2026 20:45:20 GMT
+
+https://screenrant.com/brigands-rattlecreek-bone-tomahawk-spiritual-sequel-kurt-russell/
+
+A spiritual sequel to Kurt Russell's greatest Western is finally happening, and stands a chance of becoming the best "Oater" of the 2020s.
+---------
+
+# 10 Greatest War Movie Battle Scenes Of All Time, Ranked
+
+Classic Movies, War
+
+Sun, 05 Jul 2026 20:35:21 GMT
+
+https://screenrant.com/best-war-movie-battle-scenes-ranked/
+
+War movies live and die by the battle scenes, as putting these young men's lives in danger sells the idea that war is hell, and these are the best.
+---------
+
+# 12 Best Seeds For Jungles In Minecraft 1.21
+
+Gaming, Minecraft, PC, Triple-A Games
+
+Sun, 05 Jul 2026 20:30:21 GMT
+
+https://screenrant.com/minecraft-121-best-seeds-jungle/
+
+Jungles are one of the most diverse biomes in Minecraft, providing huge, dense, and tall tropical landscapes for you to explore in your next world.
+---------
+
+# Netflix’s 7-Part Fantasy Epic Is Guaranteed To Break A Streaming Record
+
+Movies, Masked Recs
+
+Sun, 05 Jul 2026 20:30:20 GMT
+
+https://screenrant.com/narnia-the-magicians-nephew-movie-netflix-box-office-record/
+
+The release format of this upcoming Netflix series means that a major streaming record is already certain, months before it arrives on our screens.
+---------
+
+# After 6 Disappointing Episodes, Criminal Minds Finally Remembered Its True Self In Season 19
+
+Network TV, Criminal Minds
+
+Sun, 05 Jul 2026 20:15:21 GMT
+
+https://screenrant.com/criminal-minds-remembers-true-self-season-19-episode-7/
+
+Criminal Minds: Evolution redeems itself with a case-of-the-week that showcases the BAU working together and highlights Garcia's empathetic strengths.
+---------
+
+# X-Men ‘97 Reveals Key Details About A Major Season Two Villain
+
+Marvel Comics, X-Men '97
+
+Sun, 05 Jul 2026 20:00:21 GMT
+
+https://screenrant.com/xmen-97-exodus-new-details-season-two/
+
+X-Men '97 season 2 sets up a new villain plotline with a subtle detail that forebodes an even more intense conflict than Apocalypse's return.
+---------
+
+# 10 Prestige TV Shows That Are A Masterclass In Storytelling
+
+Classic TV
+
+Sun, 05 Jul 2026 20:00:21 GMT
+
+https://screenrant.com/prestige-tv-shows-masterclass-storytelling/
+
+A compelling story is what elevates a good TV show into a great one. These ten prestige shows have truly mastered the art of storytelling.
+---------
+
+# 5 Characters Ocarina Of Time Remake Needs To Give A Bigger Role
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda, Triple-A Games
+
+Sun, 05 Jul 2026 20:00:21 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-characters-improvements/
+
+The original Ocarina of Time has a bad habit of giving important characters very little screen time or development, which the remake can remedy.
+---------
+
+# National Treasure Is a Streaming Sensation 22 Years Later
+
+Movies, National Treasure, Indiana Jones, Hulu
+
+Sun, 05 Jul 2026 20:30:13 GMT
+
+https://www.cbr.com/national-treasure-indiana-jones-streaming-success-hulu-july-2026/
+
+While the Indiana Jones franchise sputters out and dies, this perfect replacement franchise has found new life on streaming.
+---------
+
+# The Rare Taylor Sheridan & Samuel L. Jackson Team-Up That's Taking Over Crime TV
+
+TV, Tulsa King, Frisco King
+
+Sun, 05 Jul 2026 20:30:13 GMT
+
+https://www.cbr.com/frisco-king-taylor-sheridan-samuel-l-jackson/
+
+A new spin-off outside Taylor Sheridan's Yellowstone universe is set to take over the crowded crime genre, and it stars Samuel L. Jackson.
+---------
+
+# Ridley Scott's Upcoming Sci-Fi Almost Lost 1 Major Star Before Filming Began
+
+Movies, The Dog Stars
+
+Sun, 05 Jul 2026 20:29:16 GMT
+
+https://www.cbr.com/ridley-scott-the-dog-stars-almost-lost-josh-brolin/
+
+Ridley Scott's unusual filming methods came close to scaring off one of his next movie's lead stars.
+---------
+
+# 10 Strongest Decepticons, Ranked By Physical Power
+
+Anime, Transformers
+
+Sun, 05 Jul 2026 20:15:13 GMT
+
+https://www.cbr.com/transformers-strongest-decepticons-ranked/
+
+Led by Megatron, the Decepticons have maintained their endless war with the Autobots for so long through overwhelming physical power.
+---------
+
+# Kevin Bacon's $16M Creature Feature Returns as 1 of the Biggest Films in the U.S.
+
+Movies, Tremors
+
+Sun, 05 Jul 2026 20:00:13 GMT
+
+https://www.cbr.com/kevin-bacon-tremors-paramount-plus-success-july-2026/
+
+One of the most beloved creature features of an entire generation is officially a streaming sensation ahead of what might be the perfect sequel.
+---------
+
+# Wolverine’s Nostalgic ’80s Redesign Revamps the X-Men’s Fiercest Hero
+
+Comics, Wolverine, X-Men, Marvel Comics, MCU
+
+Sun, 05 Jul 2026 20:00:13 GMT
+
+https://www.cbr.com/wolverine-24-1980s-redesign-revealed/
+
+Everyone's favorite X-Man gets a retro redesign, prompting many to ask whether this is the new look that might inspire Wolverine's MCU look on-screen.
+---------
+
+# Solo Leveling's New S-Rank Hunter Is the Perfect Sung Jinwoo Replacement
+
+Anime, Solo Leveling, Solo Leveling:ARISE
+
+Sun, 05 Jul 2026 20:00:13 GMT
+
+https://www.cbr.com/solo-leveling-arise-agnes-rivera-sung-jinwoo-replacement/
+
+Solo Leveling’s new manhwa one-shot introduces fans to Agnes Rivera, the closest thing to a female version of Sung Jinwoo the series has ever had.
+---------
+
+# All 7 YRF Spy Universe Movies, Ranked
+
+Movie, Bollywood, Blockbuster, Action, Pathaan
+
+Sun, 05 Jul 2026 20:47:13 GMT
+
+https://collider.com/yrf-spy-universe-movies-ranked/
+
+From Pathaan, to Tiger Zinda Hai, to War, this is the definitive ranking of every YRF Spy Universe movie from worst to best.
+---------
+
+# Prime Video’s Underseen 8-Part Sci-Fi Is One of the 21st Century’s Most Impressive Shows
+
+TV Features, Prime Video, Sci-Fi, Tales from the Loop, Fantasy
+
+Sun, 05 Jul 2026 20:43:13 GMT
+
+https://collider.com/prime-video-underseen-sci-fi-series-tales-from-the-loop/
+
+Prime Video's Tales from the Loop is an overlooked sci-fi gem that puts humanity first with one of TV's most emotional stories.
+---------
+
+# Netflix Officially Finds Its Next Global Hit With This 8-Part Teen Thriller
+
+TV News, Oasis, Netflix, Elite, Drama
+
+Sun, 05 Jul 2026 20:31:14 GMT
+
+https://collider.com/oasis-netflix-elite-replacement-streaming-success-july-2026/
+
+Netflix's latest Spanish teen series, Oasis, has become a major hit globally. Get all the details here.
+---------
+
+# 10 DreamWorks Animated Movies That Are Better Than 'Shrek'
+
+Movie, DreamWorks Animation, Shrek, How to Train Your Dragon, Kung Fu Panda
+
+Sun, 05 Jul 2026 20:03:14 GMT
+
+https://collider.com/dreamworks-animated-movies-better-than-shrek/
+
+For as groundbreaking as Shrek was for DreamWorks, animated movies like How to Train Your Dragon and The Prince of Egypt are arguably better.
+---------
+
+# Michael Fassbender’s 2-Part Spy Thriller Is Quietly Crushing the Competition on Streaming
+
+TV News, The Agency, Michael Fassbender, Thriller, Drama
+
+Sun, 05 Jul 2026 20:00:13 GMT
+
+https://collider.com/michael-fassbender-the-agency-streaming-success-paramount-plus-july-2026/
+
+Michael Fassbender's spy series has gained popularity on Paramount+ after an excellent second season. Here's everything to know about The Agency.
+---------
+
+# Prime Video's Near-Perfect Fantasy Series Is So Good, It's Saving an Entire Genre
+
+TV Features, Prime Video, The Legend of Vox Machina, The Mighty Nein, Critical Role
+
+Sun, 05 Jul 2026 19:56:13 GMT
+
+https://collider.com/prime-video-legend-of-vox-machina-saving-fantasy-genre-opinion/
+
+The fantasy genre has had its ups and downs over the years, but Legend of Vox Machina has put it back on the upswing.
+---------
+
+# The 21 Highest-Rated Horror Movies, According to IMDb
+
+Movie Lists, Horror, IMDb
+
+Sun, 05 Jul 2026 20:00:19 GMT
+
+https://movieweb.com/highest-rated-horror-movies-imdb/
+
+IMDb's rating system has pointed to these horror films as the best of all time.
+---------
+
+# Ridley Scott's Action Epic Gets Thumbs Up From Audiences on Streaming
+
+Movie News, Gladiator II, Paramount Plus, Hot on Streaming, Ridley Scott
+
+Sun, 05 Jul 2026 20:00:18 GMT
+
+https://movieweb.com/gladiator-2-stream-paramount-action-epic-july-2026/
+
+Ridley Scott's epic action sequel, 'Gladiator II,' is a global streaming success on Paramount+.
+---------
+
+# 7 Masterpiece Guy Ritchie Action Movies I'll Never Stop Rewatching
+
+Movie Lists, Guy Ritchie, Guy Ritchie's The Covenant, Snatch, Action
+
+Sun, 05 Jul 2026 20:00:18 GMT
+
+https://movieweb.com/masterpiece-guy-ritchie-movies-rewatchable/
+
+If you've only watched these Guy Ritchie classics once, you're missing at least half the fun. They're always going to be worth revisiting.
+---------
+
 # Batman Officially Crowns His Deadliest Villain
 
 DC Comics, Batman
