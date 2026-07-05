@@ -1,3 +1,289 @@
+# 9 Years Later, Marvel's The Defenders Season 2 Is Finally Happening
+
+Streaming TV, Masked Recs
+
+Sun, 05 Jul 2026 21:30:21 GMT
+
+https://screenrant.com/the-defenders-season-2-daredevil-born-again-reunion/
+
+With Jessica Jones, Luke Cage, Iron Fist, and Elektra, Daredevil: Born Again season 3 is starting to sound more like The Defenders season 2.
+---------
+
+# 10 Greatest Illumination Animated Movie Characters
+
+Classic Movies, Illumination
+
+Sun, 05 Jul 2026 21:30:21 GMT
+
+https://screenrant.com/best-illumination-animated-movie-characters/
+
+Over the past quarter century, the Minions have helped Illumination build a cast of characters as iconic as those of Disney and Pixar
+---------
+
+# One Piece Just Stole A My Hero Academia Legend, And Fans Will Lose Their Minds Over It
+
+Anime, One Piece
+
+Sun, 05 Jul 2026 21:30:21 GMT
+
+https://screenrant.com/netflix-one-piece-my-hero-academia-yuki-hayashi/
+
+One Piece's remake is coming in hot with a new soundtrack completely its own and by one of anime's most talented composers.
+---------
+
+# 10 Best PS3 Games To Download Before The Store Is Gone Forever
+
+Gaming, PlayStation 3, Triple-A Games
+
+Sun, 05 Jul 2026 21:30:21 GMT
+
+https://screenrant.com/playstation-3-games-download-store-closure-ps3/
+
+Sony is shutting down the PlayStation Store on PS3, so you soon won't be able to purchase new games – here are 10 for the quintessential experience.
+---------
+
+# 5 Lord Of The Rings Weapons Stronger Than The One Ring, Ranked
+
+Movies, The Lord of the Rings
+
+Sun, 05 Jul 2026 21:15:21 GMT
+
+https://screenrant.com/lord-rings-weapons-stronger-than-one-ring-ranked/
+
+At first it might appear the One Ring is the most powerful weapon, but Tolkien’s Middle-earth has far deadlier forces hiding in its history.
+---------
+
+# Hollywood Just Retconned Legally Blonde
+
+Streaming TV, Masked Recs
+
+Sun, 05 Jul 2026 21:15:21 GMT
+
+https://screenrant.com/elle-prime-video-legally-blonde/
+
+Prime Video’s new high school drama, which serves as a sequel to the fan-favorite film Legally Blonde, has changed the movie’s basic premise.
+---------
+
+# The Boys Officially Replaces Antony Starr's Homelander With A New Lead
+
+Streaming TV, Masked Recs
+
+Sun, 05 Jul 2026 21:00:21 GMT
+
+https://screenrant.com/the-boys-vought-rising-spinoff-replaces-homelander/
+
+When The Boys franchise continues in Vought Rising, Soldier Boy will replace Homelander as the lead character (and some would argue he already did).
+---------
+
+# Marvel Debuts 5 Outrageous New Spider-Man Variants; Details Here
+
+Marvel Comics, Spider-Man
+
+Sun, 05 Jul 2026 21:00:21 GMT
+
+https://screenrant.com/new-spider-man-variants-debut/
+
+Marvel's Spider-Verse expands with five brand-new Spider-People who push the boundaries of the Spider-Man mantle way beyond Peter Parker.
+---------
+
+# Superman’s Death Is Already Set Up For DC's Batman: Knightfall Movie Story
+
+Movies, Batman: Knightfall Part 1: Knightfall, DC Universe
+
+Sun, 05 Jul 2026 21:00:21 GMT
+
+https://screenrant.com/superman-death-batman-knightfall-movie-story-setup/
+
+The story DC's next Batman movie adapts means it may be curtains for the Man of Steel based on how the upcoming film handles its ties to his death.
+---------
+
+# Nintendo Fans United Over PlayStation’s Vow To Eliminate Physical Discs
+
+Gaming, Nintendo
+
+Sun, 05 Jul 2026 21:00:21 GMT
+
+https://screenrant.com/sony-playstation-ending-discs-fan-reaction/
+
+PlayStation (as well as Xbox, seemingly) has made its choice concerning physical media, and fans know how they want Nintendo to respond.
+---------
+
+# Plot Twist: Anne Hathaway Thought She Was Cast as Another Iconic DC Villain in The Dark Knight Rises
+
+Movies, The Dark Knight Rises
+
+Sun, 05 Jul 2026 21:20:53 GMT
+
+https://www.cbr.com/the-dark-knight-rises-anne-hathaway-harley-quinn/
+
+Anne Hathaway spent time preparing to play a totally different Batman villain before being shocked to learn she was actually up for Catwoman.
+---------
+
+# 10 Fantasy Anime With Flawless Worldbuilding
+
+Anime, One Piece, Frieren: Beyond Journey's End, Attack on Titan
+
+Sun, 05 Jul 2026 21:15:13 GMT
+
+https://www.cbr.com/best-fantasy-anime-with-flawless-worldbuilding/
+
+Fantasy anime like Frieren and Delicious in Dungeon have only become successful thanks to their flawless worldbuilding.
+---------
+
+# Paramount+'s Hit Yellowstone Spinoff Receives Great Streaming News 2 Days After Season
+
+TV, Dutton Ranch, Paramount Plus, Yellowstone
+
+Sun, 05 Jul 2026 21:00:13 GMT
+
+https://www.cbr.com/dutton-ranch-western-paramount-plus-success-july-2026/
+
+The ranch is different, but the success is not.
+---------
+
+# Rob Lowe Is Rebooting St. Elmo's Fire
+
+Movies, St. Elmo's Fire
+
+Sun, 05 Jul 2026 21:00:13 GMT
+
+https://www.cbr.com/rob-lowe-st-elmos-fire-reboot-confirmed/
+
+One of the greatest Brat Pack cult classics of the 1980s is finally set to be reinvented for the modern age, with much of the cast expected to return.
+---------
+
+# 7 Upcoming Netflix Shows, Ranked by Anticipation
+
+TV, Netflix, East of Eden, The Hawk, The Gentlemen
+
+Sun, 05 Jul 2026 21:51:14 GMT
+
+https://collider.com/upcoming-netflix-shows-ranked-anticipation/
+
+East of Eden, Little House on the Prairie, and a new season of The Gentlemen are among the most anticipated upcoming Netflix shows.
+---------
+
+# 5 Books That Were Better Than Their Netflix Adaptations
+
+Books and Comics, Netflix, Books, Streaming, Lists
+
+Sun, 05 Jul 2026 21:46:13 GMT
+
+https://collider.com/books-that-were-better-than-netflix-adaptations/
+
+Loved these Netflix adaptations? These five books and book series are even better, offering deeper stories, richer worlds, and complete endings.
+---------
+
+# 8 Worst Phoned-In Performances by Great Actors
+
+Movie, Actors, Rooney Mara, Marlon Brando, Jennifer Lawrence
+
+Sun, 05 Jul 2026 21:42:14 GMT
+
+https://collider.com/worst-phoned-in-movie-performances-great-actors-ranked/
+
+Sometimes, it feels like a good actor is in a movie just to collect a paycheck, as seen with Jennifer Lawrence in Dark Phoenix and Rooney Mara in Pan.
+---------
+
+# Nintendo’s Hit Sci-Fi Franchise Officially Returns This Month
+
+Gaming News, Nintendo, Video Game, Sci-Fi, Nintendo Switch
+
+Sun, 05 Jul 2026 21:30:13 GMT
+
+https://collider.com/splatoon-raiders-nintendo-switch-2-release-july-23-2026/
+
+Nintendo's Splatoon series is making a comeback soon with a single-player spin-off that will play with the popular shooter's formula.
+---------
+
+# 10 Years Later, Denzel Washington’s Oscar-Winning Masterpiece Finds a New Streaming Home
+
+Movie News, Denzel Washington, Fences, Paramount Plus, streaming
+
+Sun, 05 Jul 2026 21:15:14 GMT
+
+https://collider.com/denzel-washington-fences-streaming-paramount-plus-july-2026/
+
+Denzel Washington's Oscar-winning gem alongside Viola Davis is available on a new streamer. Find out more here.
+---------
+
+# Prime Video's 12-Episode Spy Thriller Is the James Bond Replacement You Need
+
+TV Features, The Night Manager, Tom Hiddleston, Olivia Colman, Hugh Laurie
+
+Sun, 05 Jul 2026 21:14:13 GMT
+
+https://collider.com/the-night-manager-prime-video-james-bond-replacement-best-spy-thriller/
+
+The Night Manager is a modern take on the classic spy thriller featuring James Bond-worthy action and intrigue on Prime Video.
+---------
+
+# He-Man Officially Returns With a Brand-New Release This November
+
+Books and Comics News, Masters of the Universe, He-Man and the Masters of the Universe
+
+Sun, 05 Jul 2026 21:00:13 GMT
+
+https://collider.com/he-man-masters-of-the-universe-revolution-library-edition-november-release/
+
+A new Masters of the Universe release is scheduled for this fall. Here's everything to know about the new He-Man adventure.
+---------
+
+# Star Wars' New 'Episode IX' Jedi Sequel Creatively Solves Massive Franchise Problem
+
+Features, Star Wars, Star Wars: Visions, Star Wars: Episode IX - The Rise of Skywalker
+
+Sun, 05 Jul 2026 21:30:19 GMT
+
+https://movieweb.com/star-wars-ninth-jedi-sequels-fix/
+
+The new 'Star Wars' series does something so bold that it also solves an issue that's existed since 'The Rise of Skywalker." Read on for more.
+---------
+
+# Every 'Heat 2' Star & Who They're Playing From the Original Movie
+
+Movie Lists, Heat 2, Heat
+
+Sun, 05 Jul 2026 21:15:19 GMT
+
+https://movieweb.com/heat-2-stars-characters-confirmed/
+
+After months of conjecture, Christian Bale, Leonardo DiCaprio, and Stephen Graham have been cast as main characters in Heat 2
+---------
+
+# 'Silo' Stars Compare Season 3 to 'Game of Thrones,' 'Succession'
+
+Exclusives, Silo, Jessica Henwick, Ashley Zukerman
+
+Sun, 05 Jul 2026 21:10:10 GMT
+
+https://movieweb.com/apple-tv-silo-jessica-henwick-ashley-zukerman-interview/
+
+With 'Silo' expanding in Season 3, Jessica Henwick and Ashley Zukerman told MovieWeb what it's like joining another major ensemble.
+---------
+
+# 1 of Streaming's Biggest Dark Action Fantasy Hits Is Getting Its 1st Movie
+
+Movie News, Solo Leveling
+
+Sun, 05 Jul 2026 21:09:27 GMT
+
+https://movieweb.com/solo-leveling-movie-adaptation/
+
+'Solo Leveling' is turning its next chapter into a theatrical movie.
+---------
+
+# Nicolas Cage's Action Thriller Is the Perfect 'Fast & Furious' Replacement
+
+Features, Fast & Furious
+
+Sun, 05 Jul 2026 21:00:19 GMT
+
+https://movieweb.com/nic-cage-fast-furious-replacement/
+
+Have you ever thought what the 'Fast & Furious' movies would look like with Nicolas Cage? You probably haven't... but now you're curious!
+---------
+
 # A Sequel To Kurt Russell's Greatest Western Is Finally Happening, And His Replacement Is Perfect
 
 Movies, Bone Tomahawk, Kurt Russell
