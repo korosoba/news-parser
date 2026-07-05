@@ -1,3 +1,223 @@
+# Netflix's 3-Part British Rom-Com Officially Comes To An End This Month
+
+Streaming TV, Masked Recs
+
+Sun, 05 Jul 2026 12:15:20 GMT
+
+https://screenrant.com/heartstopper-movie-end-series-netflix-july-17/
+
+Netflix's beloved British rom-com series Heartstopper comes to a close this month with a film-length finale film, Heartstopper Forever, after years.
+---------
+
+# Dutton Ranch’s Biggest Death Was Also Season 1’s Biggest Letdown
+
+TV, Yellowstone, Dutton Ranch, Op-Ed
+
+Sun, 05 Jul 2026 12:00:21 GMT
+
+https://screenrant.com/dutton-ranch-rob-will-death-biggest-letdown/
+
+Audiences may have hoped for this despicable Dutton Ranch character to die, but now that it happened, it robs season 2 of major story opportunities.
+---------
+
+# Delicious In Dungeon's Successor Anime Has Been Found, And It's Coming Next Year
+
+Anime, Masked Recs
+
+Sun, 05 Jul 2026 12:00:21 GMT
+
+https://screenrant.com/soara-house-of-monsters-delicious-in-dungeon-successor/
+
+Delicious in Dungeon's monsters meets My Neighbor Totoro's cuteness in this heartwarming upcoming fantasy anime that is going to premiere in 2027.
+---------
+
+# Fallout: Wasteland Wanderer Is An Official Solo RPG You Can Play Now
+
+Gaming, Fallout
+
+Sun, 05 Jul 2026 12:00:21 GMT
+
+https://screenrant.com/fallout-wasteland-wanderer-solo-rpg/
+
+A new solo Fallout tabletop RPG is coming later this summer, and preorders are open now. Here’s why you should have this one on your radar.
+---------
+
+# Robert Eggers’ Werwulf Breaks Two Huge Horror Rules For The Right Reasons
+
+Movies, Werwulf
+
+Sun, 05 Jul 2026 12:00:21 GMT
+
+https://screenrant.com/robert-eggers-werwulf-horror-werewolf-movies-rule-break/
+
+Robert Eggers' next horror movie is set to take some major rules and traditions and break them in order to breathe fresh life into a new story.
+---------
+
+# Pokemon Legends Hoenn Is The Prequel We Always Wanted
+
+Gaming, Pokemon
+
+Sun, 05 Jul 2026 11:30:21 GMT
+
+https://screenrant.com/pokemon-legends-hoenn-fan-game-delta/
+
+Explore the Industrial Revolution era in Hoenn as you take on the role of Pokémon Rangers.
+---------
+
+# Alien Officially Returns Later This Year With Chariot Of The Angels
+
+Gaming, Alien, tabletop games
+
+Sun, 05 Jul 2026 11:00:21 GMT
+
+https://screenrant.com/alien-chariot-of-the-angels-2026-release/
+
+In light of some recent projects, the Alien universe is back again later this year, as Chariot of the Angels looks to mix up the lore.
+---------
+
+# Hellraiser Officially Confirmed To Return With Five New Series
+
+Comics, Hellraiser
+
+Sun, 05 Jul 2026 12:00:13 GMT
+
+https://www.cbr.com/hellraiser-resurrections-comic-book-one-shots/
+
+An upcoming series of Hellraiser comics is going to tear your soul apart.
+---------
+
+# 10 Essential Joker Stories That Shaped Batman Movies
+
+Comics, Batman
+
+Sun, 05 Jul 2026 11:00:12 GMT
+
+https://www.cbr.com/joker-stories-that-influenced-batman-movies/
+
+The Joker is almost as important to the Batman mythology as the Caped Crusader himself, and these stories prove it.
+---------
+
+# 'Avatar: The Last Airbender's Toph Explains Why She Didn't Want to Say "I Invented Metalbending" Line
+
+Exclusives, Miyako, Ladies Night, Avatar: The Last Airbender, Netflix
+
+Sun, 05 Jul 2026 12:00:14 GMT
+
+https://collider.com/avatar-the-last-airbender-toph-metalbending-miyako/
+
+Avatar: The Last Airbender star Miyako explains how she brought Earth and Metalbender Toph Beifong to life on screen in the Netflix live-action serie.
+---------
+
+# Nicolas Cage’s 94-Minute Biblical Horror Nightmare Is Free To Watch
+
+Movie News, The Carpenter's Son, Nicolas Cage, Noah Jupe, FKA Twigs
+
+Sun, 05 Jul 2026 12:00:14 GMT
+
+https://collider.com/nicolas-cage-carpenters-son-streaming-free-tubi-july-2026/
+
+Nicolas Cage's psychological horror movie inspired by the adolescence of Jesus, The Carpenter's Son, is streaming for free this month. Find out more.
+---------
+
+# 'Couture' Wastes Angelina Jolie's Emotionally Bare Performance
+
+Movie Reviews, Couture, Angelina Jolie, Louis Garrel, Alice Winocour
+
+Sun, 05 Jul 2026 12:00:14 GMT
+
+https://collider.com/couture-angelina-jolie-movie-review/
+
+In Couture, Angelina Jolie's strong performance can't make up for the fashion drama's many shortcomings.
+---------
+
+# 6 Worst '90s Horror Movies That Are Truly 0/10
+
+Movie, Horror, 1990s, Psycho, Urban Legend
+
+Sun, 05 Jul 2026 11:57:14 GMT
+
+https://collider.com/worst-90s-horror-movies/
+
+From a bomb from a horror visionary to a terrible sequel, these '90s horror movies are truly the worst of the decade.
+---------
+
+# ‘Supernatural’ Is Ready To Return, but There’s a Catch
+
+TV Features, Supernatural, Jensen Ackles, Jared Padalecki, Eric Kripke
+
+Sun, 05 Jul 2026 11:57:14 GMT
+
+https://collider.com/supernatural-return-jensen-ackles-amazon-the-boys-vought-rising/
+
+The Supernatural cast, including Jensen Ackles and Jared Padalecki, is keen on reviving the series, but cast schedules prevent a potential comeback.
+---------
+
+# 8 Years Later, Eric Dane's Hit Sci-Fi Thriller Becomes a Netflix Smash Hit
+
+TV News, The Last Ship, Eric Dane, Netflix, Sci-Fi
+
+Sun, 05 Jul 2026 11:45:13 GMT
+
+https://collider.com/the-last-ship-eric-dane-netflix-streaming-success-july-2026/
+
+Eric Dane's post-apocalyptic thriller has become a Netflix smash hit, 8 years after its premiere. Get all the details here.
+---------
+
+# 6 Psychological Thrillers Better Than 'The Silence of the Lambs'
+
+Movie, Thriller, The Silence of the Lambs, Se7en, Cure
+
+Sun, 05 Jul 2026 11:44:14 GMT
+
+https://collider.com/psychological-thriller-movies-better-than-silence-of-the-lambs/
+
+While The Silence of the Lambs has stood as an icon of masterful psychological thrillers for decades now, films like Cure and Seven are even better.
+---------
+
+# The Western That Quentin Tarantino Called "The Best-Directed Movie of All Time" Is Streaming on Prime Video
+
+Movie News, The Good, the Bad and the Ugly, Clint Eastwood, Western, Prime Video
+
+Sun, 05 Jul 2026 11:30:14 GMT
+
+https://collider.com/clint-eastwood-western-good-the-bad-the-ugly-streaming-prime-video-july-2026/
+
+The greatest spaghetti Western of all time, Clint Eastwood's The Good, the Bad and the Ugly, is now on streaming. Find out more here.
+---------
+
+# 10 HBO Shows With Perfect Endings, Ranked
+
+TV, HBO
+
+Sun, 05 Jul 2026 11:08:14 GMT
+
+https://collider.com/hbo-shows-perfect-endings-ranked/
+
+Explore the top HBO series that concluded with unforgettable and perfect finales, including shows like Succession, The Sopranos, and The Leftovers.
+---------
+
+# The Best 4-Part Horror Series on TV is Quietly Taking Over the World
+
+TV News, From, MGM, HBO Max, Paramount Plus
+
+Sun, 05 Jul 2026 11:00:13 GMT
+
+https://collider.com/amazon-horror-from-multiple-streaming-services-july-success/
+
+MGM+'s captivating sci-fi horror series From has become a global sensation. Get all the details here.
+---------
+
+# Oscar Isaac's 108-Minute Hard Sci-Fi Thriller Touches Down on New Streaming Home
+
+Movie News, Ex Machina, Coming/Leaving Streaming, Sci-Fi, Thriller
+
+Sun, 05 Jul 2026 12:00:19 GMT
+
+https://movieweb.com/ex-machina-sci-fi-streaming-free-tubi-july-2026/
+
+Before 'Elden Ring' releases in 2028, sci-fi fans would do well to check out Alex Garland's directorial debut, which is now streaming free.
+---------
+
 # The Last Of Us Part 3 Teaser Has Gamers Losing It
 
 Gaming, The Last of Us
