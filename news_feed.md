@@ -1,3 +1,355 @@
+# Amidst Peter Parker Death Rumors, Brand New Day Has 2 Perfect Spider-Man Replacements
+
+Movies, Marvel Cinematic Universe, Marvel, Spider-Man: Brand New Day
+
+Sun, 05 Jul 2026 14:00:21 GMT
+
+https://screenrant.com/spider-man-brand-new-day-miles-morales-silk-replacement/
+
+Rumors continue to build about Peter Parker's possible death in Brand New Day, and the Marvel Cinematic Universe already has 2 perfect replacements.
+---------
+
+# Xbox Game Pass Gets Awesome Day-One Game On July 15
+
+Gaming, Xbox Game Pass, PC, Indie
+
+Sun, 05 Jul 2026 14:00:21 GMT
+
+https://screenrant.com/xbox-game-pass-denshattack-day-one-release/
+
+An awesome new day-one release is arriving on Xbox Game Pass on July 15, and you won’t want to miss out on the chance to play it firsthand.
+---------
+
+# Apple TV’s 3-Part Sci-Fi Series Fiercely Divides Critics & Audiences On Rotten Tomatoes
+
+TV, Masked Recs
+
+Sun, 05 Jul 2026 14:00:11 GMT
+
+https://screenrant.com/silo-season-3-rotten-tomatoes-audience-score/
+
+Following the return of this Apple TV science-fiction series, there is a deep divide between critics and audiences on Rotten Tomatoes.
+---------
+
+# Avatar Season 2 Interviews with Gordon Cormier, Kiawentiio, Dallas Liu & More
+
+TV, Avatar: The Last Airbender
+
+Sun, 05 Jul 2026 13:59:50 GMT
+
+https://screenrant.com/video/avatar-last-airbender-season-2-gordon-cormier-kiawentiio-dallas-liu-interview/
+
+Avatar: The Last Airbender stars Gordon Cormier, Kiawentiio, Ian Ousley, Dallas Liu, Elizabeth Yu , and EPs Christine Boylan & Jabbar Raisani break down the biggest moments of season 2, with special emphasis on the Zutara prison arc.
+---------
+
+# Taylor Sheridan Brutally Slams Marvel & Superhero Movies
+
+Movies, Marvel Cinematic Universe, Taylor Sheridan
+
+Sun, 05 Jul 2026 13:51:25 GMT
+
+https://screenrant.com/taylor-sheridan-marvel-movies-criticism/
+
+Yellowstone's Taylor Sheridan gets candid about the Marvel Cinematic Universe and superhero movies, as he shares massive criticism of the genre.
+---------
+
+# 8 Anime That Went Badly Wrong In Season 2
+
+Classic TV, Anime
+
+Sun, 05 Jul 2026 13:45:20 GMT
+
+https://screenrant.com/anime-went-wrong-in-season-2/
+
+Some of the best anime series run for decades on end, but a poor season 2 can ruin a promising show's momentum and leave the audience heartbroken.
+---------
+
+# Olivia Wilde's Best Movies And Shows, Ranked
+
+Movies, Olivia Wilde
+
+Sun, 05 Jul 2026 13:45:20 GMT
+
+https://screenrant.com/best-olivia-wilde-movies-shows-ranked/
+
+As both a director and an actor, Olivia Wilde has proven herself to be one of the most original and interesting creatives in Hollywood.
+---------
+
+# Minions & Monsters Interviews with Jeff Bridges, Zoey Deutch, Jesse Eisebnerg, Allison Janney, And More
+
+Movies, Minions & Monsters, Despicable Me, Jesse Eisenberg, Zoey Deutch, Allison Janney, Jeff Bridges
+
+Sun, 05 Jul 2026 13:43:25 GMT
+
+https://screenrant.com/video/minions-monsters-jeff-bridges-zoey-deutch-jesse-eisebnerg-allison-janney-interview/
+
+Minions & Monsters stars Zoey Deutch, Jesse Eisenberg, Allison Janney, Jeff Bridges, Bobby Moynihan, and director Pierre Coffin pitch ideas for future Minions plots and share their favorite Old Hollywood references.
+---------
+
+# Sarah Michelle Gellar’s New Horror Movie Is An Instant Streaming Smash Hit
+
+Movies, Streaming Charts, Masked Recs, Sarah Michelle Gellar
+
+Sun, 05 Jul 2026 13:36:27 GMT
+
+https://screenrant.com/ready-or-not-2-here-i-come-hulu-disney-plus-streaming-success-july-2026/
+
+Buffy the Vampire Slayer and I Know What You Did Last Summer star Sarah Michelle Gellar's new horror movie is an instant sensation on streaming.
+---------
+
+# This Star Trek Quote Is the Most Iconic Thing Captain Kirk Never Said
+
+Classic TV, Captain James Kirk, Star Trek: The Original Series
+
+Sun, 05 Jul 2026 13:31:19 GMT
+
+https://screenrant.com/star-trek-best-quote-bones-kirk/
+
+Kirk wasn't Star Trek: The Original Series' only quotable character.
+---------
+
+# Chris Pine's Jason Bourne Replacement With 45% RT Finds a Second Life on Streaming at the Right Time
+
+Movies, The Contractor
+
+Sun, 05 Jul 2026 14:00:14 GMT
+
+https://www.cbr.com/chris-pine-the-contractor-paramount-streaming-success-july-2026/
+
+Chris Pine stars in this action-thriller with similarities to Jason Bourne, and it's finally enjoying new success years later for the holiday weekend.
+---------
+
+# Gundam Wing Revives a Forgotten Transforming Mecha After 30 Years
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam Wing, merchandise
+
+Sun, 05 Jul 2026 14:00:14 GMT
+
+https://www.cbr.com/gundam-wing-hydra-high-grade-gunpla/
+
+A mobile suit from one of the most obscure Gundam Wing manga spinoffs is soon taking flight as the newest High Grade After Colony model kit.
+---------
+
+# 10 Far Side Comics That Predicted the Future
+
+Comics, The Far Side
+
+Sun, 05 Jul 2026 14:00:14 GMT
+
+https://www.cbr.com/far-side-comics-that-predicted-the-future/
+
+Some comics are ahead of their time, while others downright predict the future. Thanks to Larson's creativity, this happens often in The Far Side.
+---------
+
+# The Legend of Zelda Officially Returns in 2026 With Brand-New Port
+
+Games, The Legend of Zelda
+
+Sun, 05 Jul 2026 13:51:13 GMT
+
+https://www.cbr.com/zelda-twilight-princess-new-pc-port-2026/
+
+The new PC port for Twilight Princess is the best way to play one of the greatest Zelda games.
+---------
+
+# Taylor Sheridan Officially Canceled Kayce's Yellowstone Story in Marshals
+
+TV, Marshals, Yellowstone
+
+Sun, 05 Jul 2026 13:30:13 GMT
+
+https://www.cbr.com/marshals-season-1-finale-cancels-kayce-dutton-yellowstone-ending/
+
+As Marshals wrapped its first season, Taylor Sheridan canceled a fan-favorite Kayce Dutton story from Yellowstone's series finale.
+---------
+
+# The 3 Shonen Anime Objectively Better Than Chainsaw Man
+
+Anime, Chainsaw Man, Fullmetal Alchemist: Brotherhood, Hunter X Hunter
+
+Sun, 05 Jul 2026 13:15:13 GMT
+
+https://www.cbr.com/shonen-anime-officially-better-than-chainsaw-man/
+
+While Chainsaw Man remains a fan favorite, these shonen series offer an even more complete experience for many viewers.
+---------
+
+# BBC's 10/10 Sherlock Holmes Adaptation Is Climbing the Charts Amid Netflix's New Release
+
+TV, Sherlock
+
+Sun, 05 Jul 2026 13:00:13 GMT
+
+https://www.cbr.com/bbc-sherlock-benedict-cumberbatch-pvod-success-july-2026/
+
+With Sherlock Holmes back in the spotlight, the BBC's legendary 4-part adaptation is enjoying its own newfound success.
+---------
+
+# 10 Masterpiece Sci-Fi Movies Better Than Avatar
+
+Movies, Avatar, Sci-Fi, The Matrix
+
+Sun, 05 Jul 2026 13:00:13 GMT
+
+https://www.cbr.com/sci-fi-movies-better-than-avatar-list/
+
+James Cameron's technical marvel is a massive achievement. But these sci-fi must-sees are all stronger and significantly better.
+---------
+
+# Jon Bernthal's Only Horror Show Is a Gritty 10/10 Binge Watch
+
+TV, jon bernthal, The Walking Dead, Horror
+
+Sun, 05 Jul 2026 12:30:13 GMT
+
+https://www.cbr.com/the-walking-dead-jon-bernthal-only-horror-show/
+
+Jon Bernthal is known for his physically intense characters but only one series was a straight-up horror.
+---------
+
+# Anya Taylor-Joy Returns to TV With New Crime Thriller in 2 Weeks
+
+TV News, Anya Taylor-Joy, Apple TV, Lucky, The Queen's Gambit
+
+Sun, 05 Jul 2026 14:00:14 GMT
+
+https://collider.com/anya-taylor-joy-lucky-apple-tv-crime-thriller-release-date/
+
+Anya Taylor-Joy’s Apple TV crime thriller Lucky debuts this month, marking her next major streaming TV role.
+---------
+
+# These 5 Cillian Murphy Movies Are His True Masterpieces
+
+Movie, Cillian Murphy, Steve, Oppenheimer, Dunkirk
+
+Sun, 05 Jul 2026 13:55:13 GMT
+
+https://collider.com/best-cillian-murphy-movies-masterpieces/
+
+From Inception, to Oppenheimer, to 28 Days Later, these Cillian Murphy masterpieces reveal the range, intensity, and brilliance of a modern icon.
+---------
+
+# ‘House of the Dragon’ Is Quietly Setting Up Another Major Reveal About Aegon’s Prophecy
+
+TV Features, House of the Dragon, Game Of Thrones, A Song of Ice and Fire, George R.R. Martin
+
+Sun, 05 Jul 2026 13:32:13 GMT
+
+https://collider.com/house-of-the-dragon-preparing-reveal-aegons-prophecy-stark-meaning/
+
+House of the Dragon fans theorize that House Stark knew about Aegon's prophecy of the White Walkers. The show may reveal that connection by the end.
+---------
+
+# Titus Welliver’s 'The Sopranos' Replacement Officially Debuts in 10 Days
+
+TV News, The Westies, Titus Welliver, J.K. Simmons, The Sopranos
+
+Sun, 05 Jul 2026 13:15:13 GMT
+
+https://collider.com/the-westies-titus-welliver-mgm-plus-sopranos-replacement-release-date/
+
+MGM+’s The Westies, starring Titus Welliver and J.K. Simmons, debuts this month with major gangster-drama potential.
+---------
+
+# The Most Colossal Sci-Fi Western Flop of the '90s Rides Onto Free Streaming
+
+Movie News, The Mandalorian and Grogu, Wild Wild West, Will Smith, Sci-Fi
+
+Sun, 05 Jul 2026 12:45:13 GMT
+
+https://collider.com/wild-wild-west-sci-fi-western-flop-streaming-free-tubi-july-2026/
+
+One of the biggest box-office duds of the 1990s, the movie that Will Smith chose to make over The Matrix, is streaming for free this month.
+---------
+
+# 6 Forgotten Supernatural Horror Movies That Are Perfect From Start to Finish
+
+Movie, Horror, Lake Mungo, A Tale of Two Sisters, The Orphanage
+
+Sun, 05 Jul 2026 12:34:14 GMT
+
+https://collider.com/forgotten-supernatural-horror-movies-perfect-start-to-finish/
+
+From Lake Mungo, to The Orphanage, to The Changeling, these forgotten supernatural horror masterpieces blend grief, dread, and haunting perfection.
+---------
+
+# 8 Most Perfectly Written Movie Trilogies of All Time, Ranked
+
+Movie, Three Colors: Blue, Before Sunrise, The Lord of the Rings, Pather Panchali
+
+Sun, 05 Jul 2026 12:34:14 GMT
+
+https://collider.com/most-perfectly-written-movie-trilogies-ranked/
+
+From The Lord of the Rings, to The Dark Knight, to the Before films, these movie trilogies feature writing that remains unmatched in cinema.
+---------
+
+# PlayStation’s "Heartbreaking" Physical Games Decision Draws Major Industry Response
+
+Gaming News, Baldur's Gate 3, PlayStation (Original), Sony, Larian Studios
+
+Sun, 05 Jul 2026 12:30:13 GMT
+
+https://collider.com/baldurs-gate-3-binding-of-isaac-publisher-reaction-playstation-ending-physical-games/
+
+Baldur's Gate 3 studio Larian's director of publishing is among the prominent names speaking out against PlayStation ending physical games production.
+---------
+
+# 10 Perfect Thriller Shows With 20 Episodes or Less
+
+TV, Thriller, 1883, Ripley, The Dropout
+
+Sun, 05 Jul 2026 12:21:14 GMT
+
+https://collider.com/perfect-thriller-shows-shorter-than-20-episodes/
+
+Discover the most captivating short thriller shows with 20 episodes or fewer, including The Little Drummer Girl, Ripley, and Escape at Dannemora.
+---------
+
+# 50 Years Later, the Original 'Jaws' Is a Huge Streaming Hit
+
+Movie News, Jaws, Hot on Streaming
+
+Sun, 05 Jul 2026 14:03:30 GMT
+
+https://movieweb.com/jaws-streaming-hit-peacock-july-2026/
+
+And the other entries in the franchise are drawing huge numbers too.
+---------
+
+# Zendaya's R-Rated A24 Movie Lands New Release
+
+Movie News, The Drama, Zendaya Coleman, Robert Pattinson
+
+Sun, 05 Jul 2026 14:00:19 GMT
+
+https://movieweb.com/the-drama-4k-blu-ray-release-date/
+
+A24 has officially confirmed the 4K and Blu-ray release date for 'The Drama,' the Zendaya and Robert Pattinson dark comedy.
+---------
+
+# Tom Hanks' 90-Minute War Epic Is Officially One of the Biggest Streaming Hits in History
+
+Movie News, Tom Hanks, War, Greyhound, Apple TV
+
+Sun, 05 Jul 2026 14:00:19 GMT
+
+https://movieweb.com/tom-hanks-greyhound-biggest-streaming-hits-ever-july-2026/
+
+The WWII movie has just crossed a monumental streaming milestone.
+---------
+
+# 9 War Movies That Are Better Than 'Platoon'
+
+Movie Lists, Platoon, War
+
+Sun, 05 Jul 2026 14:00:19 GMT
+
+https://movieweb.com/war-movies-better-than-platoon/
+
+'Platoon' is fantastic, but these war movies are even better.
+---------
+
 # Netflix's 3-Part British Rom-Com Officially Comes To An End This Month
 
 Streaming TV, Masked Recs
