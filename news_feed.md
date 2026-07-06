@@ -1,3 +1,289 @@
+# 15 Years Later, Supernatural's Greatest Quote Comes From Its Most Underrated Character
+
+TV, Supernatural
+
+Mon, 06 Jul 2026 22:58:20 GMT
+
+https://screenrant.com/best-supernatural-quote-bobby-singer-explained/
+
+Supernatural's greatest line doesn’t actually belong to Dean, Sam, or even Castiel, but rather to the show's most underrated character.
+---------
+
+# Shudder's Longest-Running Horror Franchise Adapting The Perfect Backrooms Replacement For Next Movie
+
+Movies, V/H/S
+
+Mon, 06 Jul 2026 22:46:37 GMT
+
+https://screenrant.com/vhs-franchise-scp-first-movie-backrooms-replacement/
+
+Shudder's longest-running horror franchise is adapting the perfect Backrooms replacement for its next movie, which should be a chilling nightmare.
+---------
+
+# Solo Leveling Season 3's Release Window Is Officially Here, And It's A Bigger Deal Than Fans Think
+
+Anime, Solo Leveling
+
+Mon, 06 Jul 2026 22:39:46 GMT
+
+https://screenrant.com/solo-leveling-season-3-release-window-movie-improtant/
+
+Solo Leveling season 3's release window is here, and it might actually be a big clue about the franchise's future.
+---------
+
+# Apple TV Taps Supergirl Director & Fantastic Four Star For New Crime Thriller Adaptation
+
+TV, Apple TV
+
+Mon, 06 Jul 2026 22:35:45 GMT
+
+https://screenrant.com/guilty-creatures-apple-tv-show-craig-gillespie-direct-julia-garner-star/
+
+Following Supergirl's theatrical release, the director is teaming up with a Fantastic Four star in Apple TV's adaptation of a true-crime book.
+---------
+
+# Sci-Fi Movie Trilogies Better Than Back To The Future
+
+Classic Movies, Back to the Future
+
+Mon, 06 Jul 2026 22:30:21 GMT
+
+https://screenrant.com/sci-fi-movie-trilogy-better-than-back-future/
+
+Back to the Future is widely considered one of the best sci-fi movie trilogies of all time, but there are five that are better in many ways.
+---------
+
+# Netflix Officially Reboots A 27-Year-Old Fantasy Series
+
+TV, Masked Recs
+
+Mon, 06 Jul 2026 22:29:20 GMT
+
+https://screenrant.com/one-piece-netflix-anime-reboot-2027/
+
+Netflix's upcoming fantasy reboot is huge news, as the original series remains one of the most popular and long-running franchises in the genre.
+---------
+
+# Final Fantasy 7 Revelation Is Not Where The Story Ends
+
+Gaming, Final Fantasy VII Revelation, Triple-A Games
+
+Mon, 06 Jul 2026 22:00:20 GMT
+
+https://screenrant.com/final-fantasy-7-revelation-dlc-leaks/
+
+Although Final Fantasy 7 Revelation is technically the end of the trilogy, Square Enix isn't presenting it as the end of the story, according to this.
+---------
+
+# 8 Political Thrillers Better Than House Of Cards
+
+Classic TV, House of Cards
+
+Mon, 06 Jul 2026 22:00:20 GMT
+
+https://screenrant.com/political-thrillers-better-than-house-of-cards/
+
+House of Cards dominated the political thriller landscape for years, but there are several other similar TV shows that outrank the Netflix series.
+---------
+
+# After 88 Years, Superman's Biggest DC Crossover Ever Is Here
+
+DC Comics, Superman
+
+Mon, 06 Jul 2026 21:57:21 GMT
+
+https://screenrant.com/superman-biggest-crossover-explained/
+
+The Man of Steel has had some unforgettable crossovers. However, DC Comics has now raised the bar with its biggest Superman crossover yet.
+---------
+
+# Netflix's Beloved Crime Drama Franchise Is Officially Dead: 'That Story Is Told'
+
+TV, Narcos
+
+Mon, 06 Jul 2026 22:43:30 GMT
+
+https://www.cbr.com/netflix-narcos-creator-confirms-series-over/
+
+After six seasons, it's time for fans to say goodbye forever to the masterpiece crime drama franchise.
+---------
+
+# Spider-Man: Beyond The Spider-Verse Gets Massive Update: 'We're Deep in It'
+
+Movies, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man: Into The Spider-Verse, Spider-Man: Into The Spider-Verse 4K ULTRA HD 4K UHD, Spider-Man: Across the Spider-Verse, Spider-Man: Beyond the Spider-Verse, Spider-Man: Brand New Day
+
+Mon, 06 Jul 2026 22:35:14 GMT
+
+https://www.cbr.com/spider-man-beyond-the-spider-verse-massive-update-from-marvel/
+
+Marvel just delivered the most massive update yet on the Spider-Verse finale.
+---------
+
+# 10 Greatest Anime Masterpieces of the Last Decade
+
+Anime, Spy x Family, My Hero Academia, The Apothecary Diaries
+
+Mon, 06 Jul 2026 22:16:13 GMT
+
+https://www.cbr.com/anime-masterpieces-last-decade/
+
+The last decade delivered an extraordinary range of anime, drawing audiences who never watched anime before and deepening longtime fan devotion.
+---------
+
+# Supergirl Director Recruits Julia Garner for Apple TV True Crime Series Based on Bestselling Novel
+
+TV, Apple TV
+
+Mon, 06 Jul 2026 22:14:23 GMT
+
+https://www.cbr.com/apple-tv-guilty-creatures-craig-gillespie-julia-garner/
+
+After Supergirl failed to take flight at the box office, director Craig Gillespie will head back to the small screen.
+---------
+
+# Original He-Man Officially Returns With New 2026 Release After Reboot Bombs at the Box Office
+
+TV, He-Man and the Masters of the Universe, Masters of the Universe, Sci-Fi
+
+Mon, 06 Jul 2026 22:04:48 GMT
+
+https://www.cbr.com/he-man-and-the-masters-of-the-universe-original-series-blu-ray/
+
+The original He-Man has the power once again.
+---------
+
+# Dennis Quaid’s 118-Minute Sci-Fi Thriller With 70% RT Is Officially a Free Streaming Hit
+
+Movies, Frequency, Tubi, Science Fiction
+
+Mon, 06 Jul 2026 22:01:13 GMT
+
+https://www.cbr.com/dennis-quaid-frequency-sci-fi-tubi-success-july-2026/
+
+This cult classic, which also inspired a short-lived television series, is topping the charts on Tubi.
+---------
+
+# Project Hail Mary is the Best Movie of 2026 and is Streaming on Prime Video
+
+Movies, Sci-Fi, Project Hail Mary, Prime Video
+
+Mon, 06 Jul 2026 22:01:13 GMT
+
+https://www.cbr.com/project-hail-mary-best-movie-2026-streaming-prime-video/
+
+2026 has gifted audiences some of the best movies of the decade, and Prime Video's latest sci-fi masterpiece lives up to the hype as best of the year.
+---------
+
+# Christopher Nolan's The Odyssey Hailed as an 'Absolute Triumph' in Early Reactions
+
+Movies, The Odyssey
+
+Mon, 06 Jul 2026 21:52:42 GMT
+
+https://www.cbr.com/christopher-nolan-the-odyssey-first-reactions/
+
+The first reactions for The Odyssey have officially been revealed following the Christopher Nolan movie's world premiere.
+---------
+
+# 31 Years Later, This Sci-Fi Space Opera Quietly Changed TV Forever
+
+TV Features, Babylon 5, Sci-Fi, TNT
+
+Mon, 06 Jul 2026 22:52:13 GMT
+
+https://collider.com/babylon-5-sci-fi-space-opera-changed-tv-forever/
+
+Babylon 5 was a scrappy syndicated series that proved long-form sci-fi could hit harder than big-budget shows.
+---------
+
+# Marvel's Most Highly Anticipated Superhero Clash Has Been 31 Years in the Making
+
+TV Features, X-Men '97, X-Men: The Animated Series, X-Men, Marvel
+
+Mon, 06 Jul 2026 22:41:12 GMT
+
+https://collider.com/x-men-97-season-2-havok-cyclops-meeting-theory/
+
+With Havok returning in X-Men '97 Season 2, it's time for the series to pay off a confrontation that's been 31 years in the making.
+---------
+
+# The Perfect Double Feature To Watch With ‘Project Hail Mary’ Is Now on Prime Video
+
+Movie, Prime Video, Bottoms, The Martian, Till
+
+Mon, 06 Jul 2026 22:34:13 GMT
+
+https://collider.com/best-movies-prime-video-july-6-2026/
+
+The Martian, Bottoms, and Till make up our list of the best movies to watch on Prime Video the week of July 6th, 2026.
+---------
+
+# DC’s Latest Superhero Movie Crosses $100 Million, but There’s a Catch
+
+Movie News, Supergirl, James Gunn, Blue Beetle, Box Office
+
+Mon, 06 Jul 2026 22:30:13 GMT
+
+https://collider.com/blue-beetle-abandoned-superhero-movie-grossed-more-than-supergirl-box-office/
+
+Supergirl hasn't yet overtaken the 2023 DC superhero movie Blue Beetle at the box office. Here's how much the new movie has grossed so far.
+---------
+
+# Netflix’s Cancelled-Too-Soon Sci-Fi Spectacle Passes 3.4 Billion Minutes Watched
+
+TV News, The Boroughs, Netflix, Sci-Fi, Duffer Brothers
+
+Mon, 06 Jul 2026 22:00:13 GMT
+
+https://collider.com/the-boroughs-duffer-brothers-netflix-cancelled-sci-fi-nielsen-ratings-3-billion-minutes/
+
+Netflix's abruptly cancelled sci-fi series, The Boroughs, has passed another massive viewership milestone, according to the Nielsen report.
+---------
+
+# 10 Most Pointless Movie Remakes That Nobody Asked For
+
+Movie, Oldboy, Psycho, The Lion King, The Mummy
+
+Mon, 06 Jul 2026 21:53:13 GMT
+
+https://collider.com/most-pointless-movie-remakes-nobody-asked-for/
+
+From Psycho, to Planet of the Apes, to Point Break, we're still asking ourselves why these terrible remakes happened.
+---------
+
+# 6 Biggest Questions After 'House of the Dragon' Season 3, Episode 3
+
+TV Lists, House of the Dragon
+
+Mon, 06 Jul 2026 22:39:52 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-episode-3-big-questions/
+
+All of your questions in one place, zero book spoilers. Here are the biggest takeaways from the latest episode.
+---------
+
+# Kevin Costner's Western Adventure Masterpiece Getting New Director's Cut
+
+Movie News, Dances With Wolves, Kevin Costner
+
+Mon, 06 Jul 2026 22:38:08 GMT
+
+https://movieweb.com/dances-with-wolves-new-directors-cut-kevin-costner/
+
+The '90s classic is getting a release with an extended runtime.
+---------
+
+# Fate of Netflix & Denzel Washington's Historical Epic Confirmed After Production Stalled
+
+Movie News, Denzel Washington, Netflix, Antoine Fuqua
+
+Mon, 06 Jul 2026 22:02:26 GMT
+
+https://movieweb.com/denzel-washington-hannibal-movie-netflix-canceled/
+
+The star's biopic of Hannibal was set to be directed by longtime collaborator Antoine Fuqua
+---------
+
 # Every Despicable Me Movie, Ranked Worst To Best
 
 Movies, Despicable Me
