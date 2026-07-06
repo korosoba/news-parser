@@ -1,3 +1,267 @@
+# Despicable Me Director Clarifies Possible Female Minions & Their Immortality
+
+Movies, Minions & Monsters
+
+Sun, 05 Jul 2026 23:52:59 GMT
+
+https://screenrant.com/despicable-me-female-minion-possibility-pierre-coffin/
+
+Despicable Me and Minions & Monsters director, Pierre Coffin, answers fans' burning questions such as whether female Minions exist.
+---------
+
+# 7 Harsh Realities Of Rewatching One Piece's East Blue Arc Today
+
+Anime, One Piece
+
+Sun, 05 Jul 2026 23:46:09 GMT
+
+https://screenrant.com/one-piece-east-blue-arc-harsh-realities/
+
+The East Blue arc is one of the most important stories in One Piece, but rewatching it today through a modern lens comes with some harsh realities.
+---------
+
+# Dungeons & Dragons: 10 Most Physically Powerful Races In The Game
+
+Gaming, Dungeons and Dragons, Dungeons & Dragons, tabletop games
+
+Sun, 05 Jul 2026 23:30:22 GMT
+
+https://screenrant.com/dungeons-dragons-races-most-physically-powerful/
+
+Which  playable D&amp;D races correlate best with strong characters due to their abilities, bonuses and general stats?
+---------
+
+# Black Clover's Real Successor Is Already Here, But Nobody's Talking About It
+
+Anime, Masked Recs
+
+Sun, 05 Jul 2026 23:30:21 GMT
+
+https://screenrant.com/witchriv-black-clover-best-successor-shonen-jump/
+
+This new dark fantasy shonen contrasts with Black Clover in a good way, making it the perfect replacement series that more people should check out.
+---------
+
+# Disney's Moana Live-Action Remake Box Office Faces A Major Obstacle Lilo & Stitch Didn't
+
+Movies, Moana
+
+Sun, 05 Jul 2026 23:16:22 GMT
+
+https://screenrant.com/disney-moana-live-action-remake-box-office-obstacle/
+
+While Lilo & Stitch broke the billion-dollar mark at the box office, the live-action remake of Moana faces an obstacle that movie didn't.
+---------
+
+# The Wait Is Over, One Piece Is Giving Sanji The Haki Upgrade He Always Deserved
+
+Anime, One Piece
+
+Sun, 05 Jul 2026 23:00:21 GMT
+
+https://screenrant.com/sanji-one-piece-haki-upgrade/
+
+Chapter 1187 sets the stage for a massive power-up, hinting that Sanji will soon awaken Supreme King Haki to defeat a Holy Knight.
+---------
+
+# The Last Airbender's Most Tragic Arc Is Wasted In Netflix's Avatar Series
+
+Streaming TV, Avatar: The Last Airbender
+
+Sun, 05 Jul 2026 23:00:21 GMT
+
+https://screenrant.com/avatar-the-last-airbender-netflix-appa-missing-wasted-story/
+
+Netflix’s Avatar: The Last Airbender had a lot of good original stories involved, but the most tragic one was absent from the live-action version.
+---------
+
+# New Daredevil Appearance Has Fans Afraid That The Character’s Fate Is Sealed
+
+Gaming, Marvel Tokon: Fighting Souls, Daredevil, Triple-A Games
+
+Sun, 05 Jul 2026 23:00:21 GMT
+
+https://screenrant.com/daredevil-fighting-games-background-character-history/
+
+Daredevil hasn't had much luck with regard to one of his more niche appearances, and it seems that legacy will not be ending any time soon.
+---------
+
+# In Just 1 Day, Divisive $90 Million Horror Reimagining Becomes the Most-Watched Movie in the World
+
+Movies, Lee Cronin's The Mummy
+
+Mon, 06 Jul 2026 00:00:15 GMT
+
+https://www.cbr.com/lee-cronins-the-mummy-horror-hbo-max-success-july-2026/
+
+The film didn't impress critics but audiences enjoyed it enough o make it a commercial hit.
+---------
+
+# Demon Slayer Loses No. 1 Spot for Highest-Ranked Anime Swordsman of 2026
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Sword Art Online
+
+Mon, 06 Jul 2026 00:00:15 GMT
+
+https://www.cbr.com/anime-swordsmen-top-ranking-2026/
+
+Demon Slayer is facing another loss in 2026, according to a new ranking of dual-wielding anime swordsmen.
+---------
+
+# PlayStation Petition to Rescue Physical Games Flies Past 100K Signatures
+
+Games, PlayStation 5
+
+Sun, 05 Jul 2026 23:52:22 GMT
+
+https://www.cbr.com/playstation-petition-save-physical-games/
+
+It didn't even take a week for more than 100,000 gamers to sign the petition to rescue physical games.
+---------
+
+# 5 Near-Perfect Romance Anime You Can Only Stream on Netflix
+
+Anime, Netflix, Romance, Love Through a Prism, My Happy Marriage
+
+Sun, 05 Jul 2026 23:45:41 GMT
+
+https://www.cbr.com/near-perfect-romance-anime-only-on-netflix/
+
+Netflix is home to some of the best original romance anime on streaming, and their catalog is always growing.
+---------
+
+# Netflix's New Philip K. Dick Sci-Fi Show Is the Miniseries Event of the Decade
+
+TV, Netflix, Sci-Fi, TV Miniseries
+
+Sun, 05 Jul 2026 23:30:15 GMT
+
+https://www.cbr.com/netflix-new-phillip-k-dick-the-future-is-ours-miniseries/
+
+Netflix has an upcoming science fiction miniseries inspired by Philip K. Dick's early work that will make TV history.
+---------
+
+# Dandadan Launches Its Endgame Before Season 3 Can Even Adapt the Manga’s Best Arc
+
+Anime
+
+Sun, 05 Jul 2026 23:15:18 GMT
+
+https://www.cbr.com/dandadan-season-3-space-globalists-best-manga-arc/
+
+Only the manga's ending could eclipse Dandadan's best arc.
+---------
+
+# Amazon's Reboot of 35-Year-Old R-Rated Thriller Gets Massive Update 1 Year Later
+
+Movies, Basic Instinct
+
+Sun, 05 Jul 2026 23:08:39 GMT
+
+https://www.cbr.com/amazon-basic-instinct-reboot-update/
+
+One of the most controversial movies of the past four decades is getting a reboot that's expected to be just as risky.
+---------
+
+# 5 Masterpiece Fantasy Book Series With the Best Magic Systems
+
+Movies, Fantasy, books, The Wheel of Time
+
+Sun, 05 Jul 2026 23:00:13 GMT
+
+https://www.cbr.com/perfect-fantasy-book-series-with-best-magic-list/
+
+Many fantasy books have fascinating worlds and mystical beings, but these five are truly masterpieces both in writing and in magical systems.
+---------
+
+# Disney’s Best Avatar Replacement Is Officially Returning for Season 2
+
+TV News, Disney, Avatar: The Last Airbender, Fantasy, Dragon Striker
+
+Mon, 06 Jul 2026 00:00:16 GMT
+
+https://collider.com/disney-avatar-replacement-dragon-striker-returning-season-2/
+
+Disney's most underrated fantasy series just secured Season 2, giving viewers another reason to discover this animated gem.
+---------
+
+# Guy Ritchie and Tom Hardy's Hit Crime Series Is Officially Taking Over Netflix
+
+TV News, MobLand, Netflix, Thriller, Paramount+ with Showtime
+
+Sun, 05 Jul 2026 23:46:15 GMT
+
+https://collider.com/tom-hardy-mobland-netflix-streaming-success-july-2026/
+
+As fans await the second season of MobLand, the first is seeing major gains on another streaming platform. Get all the details here.
+---------
+
+# The Bittersweet Ending of Bungie's Greatest Game
+
+Gaming, Destiny, Destiny 2, Bungie
+
+Sun, 05 Jul 2026 23:30:15 GMT
+
+https://collider.com/bungie-greatest-video-game-destiny-2-ending/
+
+After nearly 12 years, Bungie has cancelled all future plans for 'Destiny 2.'
+---------
+
+# Steven Spielberg Officially Returns to Horror With Adaptation of Viral Internet Trend
+
+Movie News, The Mandela Catalogue, Steven Spielberg, Backrooms, YouTube
+
+Sun, 05 Jul 2026 23:30:15 GMT
+
+https://collider.com/mandela-catalogue-youtube-horror-film-steven-spielberg-producing/
+
+After the success of Backrooms, Steven Spielberg is now attached to a feature adaptation of another YouTube analog horror hit, The Mandela Catalogue.
+---------
+
+# This Beloved 4-Part Fantasy Book Series Is Begging for a TV Adaptation
+
+Books and Comics, Fantasy, Books, Young Adult, Streaming
+
+Sun, 05 Jul 2026 23:28:19 GMT
+
+https://collider.com/the-raven-cycle-fantasy-series-needs-tv-adaptation/
+
+The Raven Cycle by Maggie Stiefvater is a beloved fantasy series ripe for a TV adaptation, with complex characters and rich worldbuilding.
+---------
+
+# 'Mayor of Kingstown' Star's War Movie Masterpiece Is Taking Over Free Streaming This Month
+
+Movie News, The Hurt Locker, Kathryn Bigelow, War, Jeremy Renner
+
+Sun, 05 Jul 2026 23:15:18 GMT
+
+https://collider.com/the-hurt-locker-free-streaming-fawesome-july-2026/
+
+Kathryn Bigelow's Oscar-winning war movie starring Jeremy Renner, The Hurt Locker, is now streaming free of charge. Find out more here.
+---------
+
+# 17 Years Later, the Best Sci-Fi Movie You've Never Watched Is Officially Streaming Free
+
+Movie News, Moon, Duncan Jones, Sci-Fi, Sam Rockwell
+
+Sun, 05 Jul 2026 23:00:13 GMT
+
+https://collider.com/sam-rockwell-sci-fi-moon-free-streaming-fawesome-july-2026/
+
+Sam Rockwell’s acclaimed sci-fi movie by Duncan Jones, Moon, is now streaming free this July. Here's where to watch it.
+---------
+
+# DC Just Quietly Launched Another TV Universe
+
+Features, DCU, Batman, Absolute Batman
+
+Sun, 05 Jul 2026 23:30:19 GMT
+
+https://movieweb.com/dc-absolute-batman-tv-universe/
+
+Just as the DCU takes its first hit with 'Supergirl', DC Studios launches another universe with massive potential.
+---------
+
 # MGM+'s From Season 5 Officially Begins Filming A Week After Season 4 Finale
 
 TV, From
