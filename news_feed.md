@@ -1,3 +1,388 @@
+# Jason Statham’s $125M Action Remake Sequel Is Officially Streaming For Free 10 Years Later
+
+Movies, Masked Recs
+
+Mon, 06 Jul 2026 18:18:36 GMT
+
+https://screenrant.com/jason-statham-mechanic-resurrection-fawesome-streaming-release-july-2026/
+
+In 2016, Jason Statham starred in an action thriller that grossed $125 million. Now fans can watch it at home on a free streaming service.
+---------
+
+# 5 Best Shows To Watch On Netflix This Week (July 6–10)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Mon, 06 Jul 2026 18:07:22 GMT
+
+https://screenrant.com/best-netflix-shows-watch-week-july-6/
+
+This week's batch of the best shows to watch on Netflix includes new releases ranging from anime & romantic dramas to period pieces & crime thrillers.
+---------
+
+# 17 Years Ago, Captain Kirk Changed Star Trek Forever With One Jaw-Dropping Line
+
+Movies, Star Trek
+
+Mon, 06 Jul 2026 18:00:24 GMT
+
+https://screenrant.com/star-trek-2009-captain-kirk-line-changed-forever/
+
+J.J. Abrams' Star Trek 2009 altered the style and presentation of Star Trek going forward, and this was epitomized by one ferocious line from Kirk.
+---------
+
+# DC Officially Brings Back A Batman Actor For A New Trilogy After Critically Panned Movie
+
+Movies, Masked Recs
+
+Mon, 06 Jul 2026 17:56:27 GMT
+
+https://screenrant.com/batman-knightfall-anson-mount-bruce-wayne-actor-injustice/
+
+DC is officially bringing back a Batman actor to lead a new Dark Knight movie trilogy, and the star's return is shocking for a major reason.
+---------
+
+# H.P. Lovecraft’s New Horror Reboot Reportedly Casts Beloved Mad Scientist
+
+Movies, Re-Animator
+
+Mon, 06 Jul 2026 17:52:27 GMT
+
+https://screenrant.com/hp-lovecraft-reanimator-reboot-cast-herbert-west-joseph-morgan-report/
+
+The death-defeating mad scientist at the center of an H.P. Lovecraft's horror classic has been cast for a new reboot with a Vampire Diaries star.
+---------
+
+# Crunchyroll Confirms Aoashi Season 2 Is Only 4 Months Away
+
+Anime, Aoashi, Crunchyroll, Aoashi - Season 2
+
+Mon, 06 Jul 2026 17:51:52 GMT
+
+https://screenrant.com/aoashi-best-new-gen-sports-anime-return-season-2/
+
+After more than four years, Aoashi's anime comeback is finally here. Crunchyroll confirmed Aoashi Season 2 will begin streaming in October 2026,
+---------
+
+# 30 Years & 2 Hit TV Shows Later, Tyrion's Best Line Is Still The Greatest Quote In Game Of Thrones
+
+Books, Game of Thrones
+
+Mon, 06 Jul 2026 17:48:43 GMT
+
+https://screenrant.com/30-years-2-hit-tv-shows-later-tyrions-best-line-is-still-the-greatest-quote-in-game-of-thrones/
+
+Tyrion Lannister's greatest quote holds up.
+---------
+
+# Fallout, The Elder Scrolls Affected By Xbox’s Massive Overhaul
+
+Gaming, Xbox, Fallout, The Elder Scrolls
+
+Mon, 06 Jul 2026 17:48:30 GMT
+
+https://screenrant.com/xbox-major-overhaul-fallout-elder-scrolls-impact/
+
+Xbox is streamlining in what is reportedly a massive overhaul to its current roster of big-budget franchises, including Fallout and The Elder Scrolls.
+---------
+
+# Supergirl (2026) Pitch Meeting
+
+Movies, Supergirl, DC Universe, Screen Rant Pitch Meetings
+
+Mon, 06 Jul 2026 17:46:47 GMT
+
+https://screenrant.com/video/supergirl-2026-pitch-meeting/
+
+ScreenRant's Pitch Meeting series suits up to take a look at Supergirl and why the DC Universe's second major chapter never quite took off.
+---------
+
+# 5 Masterpiece Anime Better Than Tokyo Ghoul
+
+Anime, Vinland Saga, Fullmetal Alchemist: Brotherhood, Attack on Titan, Tokyo Ghoul
+
+Mon, 06 Jul 2026 18:15:12 GMT
+
+https://www.cbr.com/anime-better-than-tokyo-ghoul/
+
+Tokyo Ghoul captivated audiences with its visceral action and ideological battles, but these five anime titles provide a more complete experience.
+---------
+
+# This 98% RT John Wick Replacement Finally Sets PVOD Release Date
+
+Movies, The Furious
+
+Mon, 06 Jul 2026 18:08:24 GMT
+
+https://www.cbr.com/the-furious-pvod-streaming-release-date/
+
+The "action movie event of the year" is now coming to PVOD after its run in theaters.
+---------
+
+# Rick and Morty & Upcoming Spin-Off Described as 'Doctor Who and The X-Files" by Series Creator
+
+TV, Rick and Morty, President Curtis
+
+Mon, 06 Jul 2026 18:00:15 GMT
+
+https://www.cbr.com/rick-and-morty-president-curtis-doctor-who-the-x-files-comparison/
+
+Rick and Morty series creator Dan Harmon explains how the cartoon and its upcoming spinoff can co-exist by comparing them to two major sci-fi shows.
+---------
+
+# Teenage Mutant Ninja Turtles Reveals Its Darkest Story Yet
+
+Comics, Teenage Mutant Ninja Turtles
+
+Mon, 06 Jul 2026 18:00:14 GMT
+
+https://www.cbr.com/teenage-mutant-ninja-turtles-the-hunger-1-release-date-confirmed/
+
+This September, the Teenage Mutant Ninja Turtles face their most terrifying foes yet in a one-shot comic that delves into the depths of horror.
+---------
+
+# 59 Years Later, Star Trek's Greatest Sulu Episode Changed Sci-Fi Forever
+
+TV, Star Trek, Star Trek: The Original Series, Sci-Fi
+
+Mon, 06 Jul 2026 17:30:13 GMT
+
+https://www.cbr.com/star-trek-mirror-mirror-groundbreaking-sulu-episode/
+
+A staple of sci-fi storytelling, especially in today's most popular franchises, owes a huge debt to an episode of Star Trek in which Sulu dominates.
+---------
+
+# Sanrio Gives Hello Kitty a New Limited-Edition U.S. Collectible With Only 1,500 Available
+
+Anime, sanrio, Hello Kitty, merchandise, collectibles
+
+Mon, 06 Jul 2026 17:30:13 GMT
+
+https://www.cbr.com/sanrio-hello-kitty-ultra-premier-boxed-posable-figurine/
+
+Sanrio unveils a limited-edition Hello Kitty Ultra-Premier figurine, giving collectors a colorful new release limited to just 1,500 units.
+---------
+
+# 5 Nintendo Switch 2 Games Perfect for Kids & Families List
+
+Games, Nintendo, Pokemon, Mario Kart
+
+Mon, 06 Jul 2026 17:15:37 GMT
+
+https://www.cbr.com/nintendo-switch-2-games-perfect-for-kids-families/
+
+Nintendo Switch 2 has more than its share of video games that are perfect for kids and families.
+---------
+
+# Netflix Seals the Fate of Denzel Washington's Historical Epic Ahead of Filming Start
+
+Movies, denzel washington, Netflix
+
+Mon, 06 Jul 2026 17:08:05 GMT
+
+https://www.cbr.com/netflix-denzel-washington-hannibal-movie-fate/
+
+The historical epic reteams Denzel Washington with his Equalizer trilogy director Antoine Fuqua.
+---------
+
+# Netflix Officially Finds Its Myron Bolitar for New Harlan Coben Series
+
+TV, Netflix, Untitled Myron Bolitar Series
+
+Mon, 06 Jul 2026 16:42:21 GMT
+
+https://www.cbr.com/myron-bolitar-series-harlan-coben-colin-woodell-cast/
+
+After years of trying, Netflix finally scored the series fans have been waiting for.
+---------
+
+# Ride or Die Creators on Reinventing the Buddy Action Genre
+
+TV, Ride or Die
+
+Mon, 06 Jul 2026 16:15:14 GMT
+
+https://www.cbr.com/video/ride-or-die-creators-on-reinventing-the-buddy-action-genre/
+
+Ride or Die creators Tessa Coates and Matt Miller break down the creative philosophy behind Amazon Prime Video's new action series. They explain why the show was always envisioned like a classic buddy-action blockbuster, discuss the effortless chemistry between Hannah Waddingham and Octavia Spencer, and reveal the industry assumptions they had to push back against throughout production. The conversation also explores why Hollywood should invest in original female-led action franchises instead of simply reimagining established characters.
+---------
+
+# 10 Most Shocking Deaths in 'House of the Dragon'
+
+TV, House of the Dragon, Game Of Thrones, HBO, George R.R. Martin
+
+Mon, 06 Jul 2026 18:22:13 GMT
+
+https://collider.com/house-of-the-dragon-shocking-deaths-ranked/
+
+HBO's House of the Dragon features no shortage of bloodshed, and we highlight the most shocking deaths in the Game of Thrones prequel series.
+---------
+
+# ‘Black Mirror’ Meets ‘The Twilight Zone’ in This Creepy 2-Season Sci-Fi Series
+
+TV Features, The Outer Limits, Black Mirror, The Twilight Zone, Sci-Fi
+
+Mon, 06 Jul 2026 18:18:13 GMT
+
+https://collider.com/black-mirror-twilight-zone-replacement-sci-fi-series-outer-limits/
+
+The Outer Limits still feels remarkably modern, with eerie sci-fi stories that inspired generations of genre television.
+---------
+
+# John Wick Is Officially Back With New Release
+
+Movie News, John Wick, Keanu Reeves, From the World of John Wick: Ballerina
+
+Mon, 06 Jul 2026 18:10:45 GMT
+
+https://collider.com/john-wick-ballerina-hot-toys-artisan-edition-figure/
+
+Hot Toys new John Wick Artisan Edition figure from Ballerina is limited to 2,000 units worldwide and goes up for pre-order through Sideshow.
+---------
+
+# Rambo Who? The Most Unstoppable Action Hero Officially Arrives in New Smash Hit Thriller
+
+Movie News, STARZ, Action, Rambo, First Blood
+
+Mon, 06 Jul 2026 18:10:14 GMT
+
+https://collider.com/the-nowhere-man-starz-streaming-hit-bonko-khoza/
+
+Bonko Khoza’s The Nowhere Man has become a surprise streaming hit, delivering a brutal new spin on the Reacher-style action hero.
+---------
+
+# Alan Ritchson’s R-Rated ‘Reacher’ Replacement Officially Takes Over in Just 2 Months
+
+Movie News, Runner, Alan Ritchson, Owen Wilson, Reacher
+
+Mon, 06 Jul 2026 17:50:13 GMT
+
+https://collider.com/alan-ritchson-runner-trailer-release-date-owen-wilson/
+
+Alan Ritchson’s new action thriller Runner hits theatres in September, pairing the Reacher star with Owen Wilson.
+---------
+
+# 5 ‘Fire & Blood’ Changes That Make ‘House of the Dragon’ Even Better
+
+Books and Comics, House of the Dragon, Game Of Thrones, George R.R. Martin, HBO Max
+
+Mon, 06 Jul 2026 17:47:14 GMT
+
+https://collider.com/house-of-the-dragon-best-fire-and-blood-book-changes-that-work/
+
+House of the Dragon changed many plot points from Fire & Blood, but there are only a few that actually benefit the narrative.
+---------
+
+# A 'Game of Thrones' Star Is Getting His Own ‘John Wick’-Style Action Movie
+
+Movie News, Peter Dinklage, Kenji Tanigaki, The Reckoner, Derek Kolstad
+
+Mon, 06 Jul 2026 17:30:14 GMT
+
+https://collider.com/john-wick-style-action-movie-peter-dinklage-the-reckoner-derek-kolstad/
+
+Game of Thrones' Peter Dinklage teams up with John Wick writer Derek Kolstad for the upcoming action film 'The Reckoner,' directed by Kenji Tanigaki.
+---------
+
+# These 6 Viggo Mortensen Movies Are His Only True Masterpieces
+
+Movie, Viggo Mortensen, The Lord of the Rings: The Return of the King, The Lord of the Rings: The Two Towers, A History of Violence
+
+Mon, 06 Jul 2026 17:14:32 GMT
+
+https://collider.com/viggo-mortensen-movies-best/
+
+From Eastern Promises, to Captain Fantastic, to A History of Violence to an iconic fantasy epic, these are Viggo Mortensen’s true masterpieces.
+---------
+
+# The 10 Greatest Sci-Fi Movies Based on Books, Ranked
+
+Movie, Sci-Fi, Stalker, Blade Runner, Dune: Part Two
+
+Mon, 06 Jul 2026 17:12:14 GMT
+
+https://collider.com/best-sci-fi-movies-based-on-books-ranked/
+
+Many of the best sci-fi movies ever made are based on books, from important classics like Stalker to influential films like Blade Runner.
+---------
+
+# Director of 2026's Biggest Fantasy Sequel Officially Responds to Record-Breaking RT Score
+
+Movie News, Mortal Kombat, Mortal Kombat II, Rotten Tomatoes
+
+Mon, 06 Jul 2026 17:10:13 GMT
+
+https://collider.com/mortal-kombat-2-rotten-tomatoes-score-simon-mcquoid-response/
+
+Mortal Kombat II director Simon McQuoid has addressed the sequel’s record-breaking Rotten Tomatoes score ahead of its home release.
+---------
+
+# Netflix Scores Big With New 10-Part Action Thriller That's Taking Over Streaming
+
+TV News, Agent Kim Reactivated, Hot on Streaming, Action, Netflix
+
+Mon, 06 Jul 2026 18:00:22 GMT
+
+https://movieweb.com/agent-kim-reactivated-action-netflix-streaming-hit-july-2026/
+
+Netflix's newest smash action thriller hit has now become one of the biggest shows on streaming since its debut on June 26.
+---------
+
+# Netflix's Next Harlan Coben Mystery Thriller Adaptation Officially Revealed
+
+TV News, Harlan Coben, Netflix, Mystery
+
+Mon, 06 Jul 2026 17:59:56 GMT
+
+https://movieweb.com/netflix-harlan-coben-mystery-myron-bolitar/
+
+Harlan Coben's longest-running series of novels is finally getting an adaptation.
+---------
+
+# Michael Fassbender's Sci-Fi Action Epic Unleashes Monstrous Aliens in New Trailer
+
+Movie News, Michael Fassbender, Hope
+
+Mon, 06 Jul 2026 17:37:37 GMT
+
+https://movieweb.com/michael-fassbender-hope-aliens-international-trailer/
+
+The "bold" new epic 'Hope' just got a new trailer revealing the aliens behind the action.
+---------
+
+# Bob Odenkirk's "John Wick Meets Fargo" Action Thriller Gets New Release
+
+Movie News, Normal, Bob Odenkirk, Action
+
+Mon, 06 Jul 2026 16:56:23 GMT
+
+https://movieweb.com/bob-odenkirk-normal-4k-blu-ray-release/
+
+Magnolia Home Entertainment have announced 4K Blu-ray and Blu-ray releases for Ben Wheatley's action thriller 'Normal,' starring Bob Odenkirk.
+---------
+
+# Paramount's Upcoming Fantasy Adaptation Condemned by the Original Author
+
+Movie News, Children of Blood and Bone
+
+Mon, 06 Jul 2026 16:55:32 GMT
+
+https://movieweb.com/paramount-children-of-blood-and-bone-tomi-adeyemi/
+
+Tomi Adeyemi, who wrote 'Children of Blood and Bone,' has said she won’t watch the finished movie and won’t promote it.
+---------
+
+# 10 Crime Miniseries That Can Be Called Masterpieces
+
+Movie Lists, Crime
+
+Mon, 06 Jul 2026 16:31:18 GMT
+
+https://movieweb.com/crime-miniseries-can-be-called-masterpieces/
+
+A very special few miniseries earn the privilege of being called masterpieces, but these 10 crime series deserve the label.
+---------
+
 # High Potential’s Unexpected Early Return Confirmed Despite Season 3's Delay To 2027
 
 Network TV, High Potential
