@@ -1,3 +1,377 @@
+# Injustice 3 Has DC Fans Seriously Hyped, And We See Why
+
+Gaming, Injustice, Injustice 2, Injustice: Gods Among Us, Triple-A Games, DC
+
+Mon, 06 Jul 2026 04:30:19 GMT
+
+https://screenrant.com/injustice-3-ed-boon-twitter-poll-speculation/
+
+Injustice 3 is rumored to be in development, and fans have launched into a frenzy yet again following Ed Boon's latest social media posts.
+---------
+
+# Dutton Ranch Star Says Season 1’s Biggest Death Wasn’t Their Character’s Fault
+
+TV, Dutton Ranch, Yellowstone
+
+Mon, 06 Jul 2026 04:17:07 GMT
+
+https://screenrant.com/dutton-ranch-rob-will-death-joaquin-juan-pablo-raba-innocent/
+
+Dutton Ranch season 1 ends with a major character dead, but their assailant is a mystery. However, one actor says the likeliest suspect didn't do it.
+---------
+
+# New Witcher 3 DLC Gives Gamers Something They've Begged For
+
+Gaming, The Witcher 3: Wild Hunt, Triple-A Games
+
+Mon, 06 Jul 2026 04:00:30 GMT
+
+https://screenrant.com/witcher-3-expansion-new-gwent-cards-reactions/
+
+The Witcher 3: Wild Hunt is being rejuvenated with new, official content next year, and one of its gameplay features is all that players will need.
+---------
+
+# 31 Years Later, The Best Toy Story Movie Should Be Obvious
+
+Movies, Toy Story, Toy Story 5, Toy Story 2, Pixar
+
+Mon, 06 Jul 2026 03:58:52 GMT
+
+https://screenrant.com/best-toy-story-movie-is-obvious-toy-story-2/
+
+Especially after the release of Toy Story 5, the very best Toy Story movie in the original Pixar franchise is obvious over 30 years later.
+---------
+
+# Dragon Ball's Greatest Episode Aired 33 Years Ago, And Nothing Has Topped It Since
+
+Anime, Dragon Ball, Dragon Ball Z
+
+Mon, 06 Jul 2026 03:58:20 GMT
+
+https://screenrant.com/dragon-ball-gohan-cell-games-greatest-episode-ever/
+
+Discover why Dragon Ball Z's Episode 191, featuring Gohan's epic battle against Perfect Cell, remains the franchise's greatest episode
+---------
+
+# 5 Bucket List Anime Every Fan Needs To Watch At Least Once
+
+Anime
+
+Mon, 06 Jul 2026 03:40:20 GMT
+
+https://screenrant.com/best-bucket-list-anime-watch-once/
+
+There are countless great anime out there, but these 5 choices stand out with their ability to be absolutely life-changing.
+---------
+
+# House of the Dragon Star Teases Consequences Following Dangerous Request
+
+TV, House of the Dragon
+
+Mon, 06 Jul 2026 03:31:20 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-steve-toussaint-corlys-rhaenyra-favor/
+
+House of the Dragon star revealed why his character's actions in the most recent episode of the show's third season might end in bloodshed.
+---------
+
+# 5 Dragon Ball Villain Designs That Are 10/10 Perfect
+
+Anime, Dragon Ball
+
+Mon, 06 Jul 2026 03:20:24 GMT
+
+https://screenrant.com/dragon-ball-villain-designs-perfect/
+
+The Dragon Ball franchise is filled with ultra-powerful villains, but the strongest characters aren't always the most visually striking.
+---------
+
+# Apple TV’s Most Popular Comedy Finally Returns In 1 Month
+
+Streaming TV, Masked Recs
+
+Mon, 06 Jul 2026 03:05:20 GMT
+
+https://screenrant.com/ted-lasso-apple-tv-return-one-month-august-2026/
+
+Prepare for more laughs when Ted Lasso returns to Apple TV+ for the highly-anticipated and very different fourth season in just one more month.
+---------
+
+# The 2026 Isekai Anime No One Talks About Is Crunchyroll's Best Kept Secret
+
+Anime, Crunchyroll, Masked Recs
+
+Mon, 06 Jul 2026 03:02:39 GMT
+
+https://screenrant.com/my-ribdiculous-reincarnation-crunchyroll-best-kept-isekai-anime-secret/
+
+A Spring 2026 anime that flew under the radar defied all expectations, becoming one of the most entertaining isekai of the year so far.
+---------
+
+# The Vampire Lestat Star Chooses the Most "Fun and Challenging" Moment Of the Season
+
+CBR Exclusives, The Vampire Lestat
+
+Mon, 06 Jul 2026 03:59:51 GMT
+
+https://www.cbr.com/the-vampire-lestat-sheila-atim-akasha-stone-scene/
+
+The Vampire Lestat star Sheila Atim discusses Akasha’s debut, the Queen’s stone-like stillness, and her dramatic awakening scene.
+---------
+
+# Supergirl Author Exclusively Previews New Archie Event
+
+Comics, Archie Comics
+
+Mon, 06 Jul 2026 03:57:38 GMT
+
+https://www.cbr.com/supergirl-author-exclusively-previews-new-archie-event/
+
+Superstar writer Tom King, co-creator of Supergirl: Woman of Tomorrow, has a new Archie one-shot coming out, and CBR has an exclusive preview of it
+---------
+
+# Zom 100: Bucket List of the Dead Anime Is Leaving Netflix in July 2026
+
+Anime, Zom 100: Bucket List of the Dead, Netflix
+
+Mon, 06 Jul 2026 03:30:13 GMT
+
+https://www.cbr.com/zom-100-leaves-netflix/
+
+There's little time left, the best zombie anime of the decade is officially leaving Netflix this July.
+---------
+
+# Netflix's 8-Part 'Unfilmable' Thriller Is the Best Hard Sci-Fi on Streaming
+
+TV, Netflix, 3 Body Problem, Sci-Fi
+
+Mon, 06 Jul 2026 03:30:13 GMT
+
+https://www.cbr.com/netflix-3-body-problem-best-streaming-hard-sci-fi/
+
+Netflix adapted a popular novel into a complex hard sci-fi series that trusts viewers to engage with its scientific concepts.
+---------
+
+# 10 Must-Watch Anime That Have Zero Bad Arcs
+
+Anime
+
+Mon, 06 Jul 2026 03:15:14 GMT
+
+https://www.cbr.com/best-anime-perfect-with-no-bad-arcs-list/
+
+Anime like Fullmetal Alchemist: Brotherhood deliver one perfect arc after another.
+---------
+
+# The Lord of the Rings' 5 Best Archers, Ranked
+
+Movies, The Lord of the Rings, The Hobbit, Fantasy
+
+Mon, 06 Jul 2026 03:01:13 GMT
+
+https://www.cbr.com/lord-of-the-rings-strongest-archers-list/
+
+Many of Middle-earth's most famous warriors favored the bow and arrow, but which of these long-ranged combatants was the strongest in Tolkien's lore?
+---------
+
+# The Vampire Lestat Star Reveals Why the Queen’s Arrival Should Terrify Fans
+
+CBR Exclusives, The Vampire Lestat
+
+Mon, 06 Jul 2026 02:54:46 GMT
+
+https://www.cbr.com/the-vampire-lestat-sheila-atim-akasha-queen-reveal/
+
+The Vampire Lestat star Sheila Atim discusses Akasha’s debut, Lestat’s fear and the Queen’s long-teased role in the AMC series.
+---------
+
+# House of the Dragon Season 3 Story Expands in Game of Thrones: Dragonfire
+
+Games, House of the Dragon
+
+Mon, 06 Jul 2026 02:47:51 GMT
+
+https://www.cbr.com/game-of-thrones-dragonfire-house-of-the-dragon-season-3/
+
+Go deeper into the new episodes of House of the Dragon with Game of Thrones: Dragonfire.
+---------
+
+# 10 Classic 2010s Games That Are Unplayable Today
+
+Games, Video Games, PlayStation 4
+
+Mon, 06 Jul 2026 02:46:13 GMT
+
+https://www.cbr.com/unplayable-2010s-games/
+
+The 2010's were a fantastic time in gaming history, but these games are unfortunately stuck in the past.
+---------
+
+# 10 Best Anime Series For People Who Think They Hate Anime
+
+Anime
+
+Mon, 06 Jul 2026 02:30:13 GMT
+
+https://www.cbr.com/best-anime-series-perfect-for-non-anime-fans-list/
+
+Even people who hate anime will love series like Black Lagoon and Death Note.
+---------
+
+# This Near-Perfect 2-Part Sci-Fi Horror Series Is Officially Free To Stream
+
+TV Features, Helix, Sci-Fi, SyFy, Tubi
+
+Mon, 06 Jul 2026 03:32:13 GMT
+
+https://collider.com/helix-2-season-sci-fi-horror-streaming-free/
+
+Helix is an overlooked sci-fi horror series that delivers eerie paranoia, shocking twists, and two unforgettable seasons.
+---------
+
+# 'The Vampire Lestat's Hardest Episode 5 Song Was Written From Scratch Multiple Times
+
+Interviews, The Vampire Lestat, Sam Reid, AMC, Rolin Jones
+
+Mon, 06 Jul 2026 02:20:13 GMT
+
+https://collider.com/the-vampire-lestat-episode-5-hardest-song-stained-glass-eyes-sam-reid-daniel-hart-comments/
+
+The Vampire Lestat's Sam Reid and Daniel Hart reveal which Season 3 song underwent extensive rewrites before its powerful performance in Episode 5.
+---------
+
+# 'The Vampire Lestat' Officially Introduces the Legendary "Mother" of All Vampires
+
+Exclusives, The Vampire Lestat, Interview with the Vampire, Sheila Atim, AMC
+
+Mon, 06 Jul 2026 02:15:14 GMT
+
+https://collider.com/the-vampire-lestat-episode-5-akasha-sheila-atim-interview/
+
+The Vampire Lestat's Sheila Atim discusses Akasha's connection with Lestat and why that powerful monologue was surprisingly easy to learn.
+---------
+
+# 'House of the Dragon' Season 3's Masterpiece Episode Is Everything 'Game of Thrones' Ending Should've Been | Review
+
+TV Reviews, House of the Dragon, Game Of Thrones, Emma D'Arcy, HBO Max
+
+Mon, 06 Jul 2026 02:00:25 GMT
+
+https://collider.com/house-of-the-dragon-season-3-episode-3-review/
+
+House of the Dragon Season 3 goes experimental with an episode focusing solely on Rhaenyra, and it's another masterpiece for the Game of Thrones saga.
+---------
+
+# 10 Apple TV Shows That Are 10/10, No Notes
+
+TV, Apple TV, Severance, Pluribus, Widow's Bay
+
+Mon, 06 Jul 2026 01:22:14 GMT
+
+https://collider.com/apple-tv-shows-perfect-no-notes/
+
+Discover flawless Apple TV shows with exceptional quality, captivating storytelling, and outstanding performances, from Severance to Widow's Bay.
+---------
+
+# Taylor Sheridan Reveals How He Convinced Billy Bob Thornton To Join 'Landman'
+
+TV News, Taylor Sheridan, Landman, Billy Bob Thornton, Bad Santa
+
+Mon, 06 Jul 2026 00:45:13 GMT
+
+https://collider.com/taylor-sheridan-landman-bad-santa-pitch-for-billy-bob-thornton/
+
+Taylor Sheridan revealed that he pitched Landman to Billy Bob Thornton by referencing one of the actor's most beloved movies, Bad Santa. Find out more
+---------
+
+# HBO Max's 'Harry Potter' Producer Moves to Netflix for Major New Project
+
+Movie News, Netflix, Harry Potter, Harry Potter 20th Anniversary: Return to Hogwarts, Documentary
+
+Mon, 06 Jul 2026 00:31:15 GMT
+
+https://collider.com/hbo-max-harry-potter-producer-mohammed-adnan-netflix-documentary/
+
+Netflix continues to expand its documentary offerings by hiring Mohammed Adnan, a key producer behind HBO Max's Harry Potter 20th Anniversary reunion.
+---------
+
+# Crunchyroll's 26-Episode Sci-Fi Anime Put a New Twist on the Classic Western
+
+TV Features, Crunchyroll, Anime, Sci-Fi, Western
+
+Mon, 06 Jul 2026 00:20:14 GMT
+
+https://collider.com/trigun-crunchyroll-sci-fi-western-anime/
+
+Trigun is a post-apocalyptic sci-fi anime that seamlessly blends Western elements into its story, giving a new dimension to a beloved genre.
+---------
+
+# New WWII Movie Falls Behind Brendan Fraser's 'Pressure' in a Major Way
+
+Movie News, Thriller, War, Lucky Strike, Rotten Tomatoes
+
+Mon, 06 Jul 2026 00:15:13 GMT
+
+https://collider.com/scott-eastwood-ww2-thriller-lucky-strike-rotten-tomatoes-score-is-it-good/
+
+A new WWII thriller aimed for immersive battlefield intensity, but mixed reviews and weak audience reception tell a different story.
+---------
+
+# 6 Great Fantasy Shows Overshadowed by 'Game of Thrones'
+
+TV, Game Of Thrones, American Gods, The Shannara Chronicles, Galavant
+
+Mon, 06 Jul 2026 00:02:14 GMT
+
+https://collider.com/fantasy-shows-overshadowed-by-game-of-thrones/
+
+Dive into fantastic TV shows that never quite reached the spotlight, overshadowed by the cultural phenomenon of Game of Thrones.
+---------
+
+# 'House of the Dragon' S3E3 Review: Politics Get More Brutal Than the Battlefield
+
+TV Reviews, House of the Dragon
+
+Mon, 06 Jul 2026 02:00:30 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-episode-3-review-recap/
+
+'House of the Dragon' Episode 3 whisks us away from the clanging swords of war to the tense atmosphere of Westerosi politics.
+---------
+
+# HBO Puts a New Twist on an Abandoned 'Game of Thrones' Arc
+
+Features, House of the Dragon, Game Of Thrones
+
+Mon, 06 Jul 2026 02:00:13 GMT
+
+https://movieweb.com/hbo-daeron-house-of-the-dragon-faegon-arc/
+
+Even 15 years in, the franchise continues to surprise us.
+---------
+
+# 'Young Washington' Sequel in the Works After Record-Setting Box Office Haul
+
+Movie News, Young Washington, History, Ben Kingsley
+
+Mon, 06 Jul 2026 01:31:16 GMT
+
+https://movieweb.com/young-washington-sequel-1776-box-office/
+
+'1776' will skip forward in time to show us what George Washington was up to during the American Revolutionary War.
+---------
+
+# 'Dutton Ranch's New Mystery Villain, Explained
+
+Features, Dutton Ranch, Yellowstone
+
+Mon, 06 Jul 2026 01:00:19 GMT
+
+https://movieweb.com/dutton-ranch-mariano-explained/
+
+The Ten Petal Ranch clearly had something more nefarious going on during season 1 of Dutton Ranch, and the mastermind was revealed in the finale.
+---------
+
 # Despicable Me Director Clarifies Possible Female Minions & Their Immortality
 
 Movies, Minions & Monsters
