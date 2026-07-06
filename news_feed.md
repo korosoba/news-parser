@@ -1,3 +1,399 @@
+# Brandon Sanderson Gives Exciting New Update On Sequel To His 13-Year-Old Fantasy Mystery
+
+Books, Brandon Sanderson
+
+Mon, 06 Jul 2026 20:18:54 GMT
+
+https://screenrant.com/brandon-sanderson-the-rithmatist-sequel-book-update/
+
+Brandon Sanderson has written multiple books over the years, but he hasn’t forgotten about his promise to release a sequel to his 2013 fantasy novel.
+---------
+
+# Why Apple TV's New Dystopian Sci-Fi Series Has Become A Global Streaming Hit
+
+Streaming TV, Masked Recs
+
+Mon, 06 Jul 2026 20:16:26 GMT
+
+https://screenrant.com/apple-tv-silo-season-3-streaming-charts-rise/
+
+Apple TV's dystopian Sci-Fi series based on pitch-perfect post-apocalyptic novels has officially become a global streaming hit for a few reasons.
+---------
+
+# KPop Demon Hunters 2 Will Replace A Major Character
+
+Movies, KPop Demon Hunters
+
+Mon, 06 Jul 2026 20:15:20 GMT
+
+https://screenrant.com/kpop-demon-hunters-2-new-villain-jinu/
+
+While KPop Demon Hunters 2 is in development and no plot details have been revealed, it will have to replace one big character from the first movie.
+---------
+
+# New R-Rated Action Thriller Hailed By James Gunn As "One Of The Best" Officially Hits Digital Tomorrow
+
+Movies, Masked Recs
+
+Mon, 06 Jul 2026 20:07:55 GMT
+
+https://screenrant.com/the-furious-movie-digital-release-date-july-2026/
+
+A new R-rated action thriller hailed by James Gunn as "one of the best" officially hits digital tomorrow following its theatrical release.
+---------
+
+# Marvel Is Officially Replacing Wolverine
+
+Marvel Comics, Wolverine
+
+Mon, 06 Jul 2026 20:00:20 GMT
+
+https://screenrant.com/new-wolverine-taskmaster-healing-factor/
+
+Wolverine's healing factor is stolen by an unexpected character, who promises to kill Logan and replace him as Marvel's top unstoppable anti-hero.
+---------
+
+# Resident Evil Requiem Officially Returns July 30 With New DLC
+
+Gaming, Resident Evil, Resident Evil Veronica, Resident Evil 9, PC
+
+Mon, 06 Jul 2026 20:00:20 GMT
+
+https://screenrant.com/resident-evil-requiem-amiibo-weapon-skins-july-2026/
+
+Resident Evil Requiem is officially getting brand-new DLC on July 30 ahead of the release of Resident Evil Veronica in 2027.
+---------
+
+# 8 Near-Perfect K-Dramas That Deserve More Attention
+
+Classic TV, K-Drama
+
+Mon, 06 Jul 2026 20:00:20 GMT
+
+https://screenrant.com/k-dramas-near-perfect-deserve-more-attention/
+
+Korean dramas have become pretty popular over the last 10 years, but there are some shows from the genre that deserve more attention than they get.
+---------
+
+# The Best Godzilla Franchise Officially Returns In 4 Months
+
+New Movies, Godzilla
+
+Mon, 06 Jul 2026 19:55:20 GMT
+
+https://screenrant.com/godzilla-return-godzilla-minus-zero-release/
+
+Godzilla officially returns to the big screen in four months, as a new movie will continue the best version of the King of Monsters' story.
+---------
+
+# X-Files’ New Mulder Replacement Addresses Whether They’re A Skeptic Or Believer After Wrapping Hulu Reboot Pilot
+
+TV, The X-Files, Himesh Patel
+
+Mon, 06 Jul 2026 19:49:14 GMT
+
+https://screenrant.com/x-files-hulu-reboot-mulder-replacement-skeptic-believer-addressed-himesh-patel/
+
+Himesh Patel addresses whether The X-Files' new Mulder replacement character is going to be a believer or a skeptic in the Hulu reboot.
+---------
+
+# Robert Downey Jr. Shares Avengers: Doomsday Poster Art
+
+Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Mon, 06 Jul 2026 19:38:29 GMT
+
+https://screenrant.com/avengers-doomsday-poster-robert-downey-jr/
+
+As Marvel's Avengers: Doomsday is officially less than half a year away from releasing in theaters, Robert Downey Jr. shares a brilliant poster.
+---------
+
+# 10 Times JJK Chose Consequences Over Fan Service
+
+Anime, Jujutsu Kaisen
+
+Mon, 06 Jul 2026 20:15:12 GMT
+
+https://www.cbr.com/jujutsu-kaisen-consequence-over-fan-service/
+
+Jujutsu Kaisen doesn't pull punches when it comes to consequences, no matter how badly fans want a more peaceful outcome.
+---------
+
+# Margot Robbie's Ocean's Eleven Prequel Casts Star of Netflix's Biggest Heist Show
+
+Movies, Ocean's Eleven
+
+Mon, 06 Jul 2026 20:13:45 GMT
+
+https://www.cbr.com/oceans-eleven-prequel-cast-update-omar-sy-more/
+
+The cast of Margot Robbie's Ocean's Eleven prequel continues to expand.
+---------
+
+# Amazon's Fourth Wing Series Eyed by Horror Star Who Wants to Be the 'Perfect Violet'
+
+TV, Fourth Wing
+
+Mon, 06 Jul 2026 20:01:46 GMT
+
+https://www.cbr.com/amazon-fourth-wing-series-inde-navarrette/
+
+A horror movie star dreams of playing the live-action Violet Sorrengail.
+---------
+
+# Mark Wahlberg's 2023 Sleeper Hit Celebrates Major Streaming Milestone Despite Mixed Reviews
+
+Movies, The Family Plan, Apple TV, AppleTV+
+
+Mon, 06 Jul 2026 20:00:12 GMT
+
+https://www.cbr.com/mark-wahlberg-the-family-plan-apple-tv-streaming-milestone/
+
+Audiences cannot stop streaming Mark Wahlberg's 2023 sleeper hit on Apple TV.
+---------
+
+# Razer Unveils Limited-Edition Wuthering Waves Gaming Gear Featuring Denia
+
+Anime, merchandise, Cyberpunk: Edgerunners
+
+Mon, 06 Jul 2026 20:00:12 GMT
+
+https://www.cbr.com/razer-wuthering-waves-denia-gaming-gear/
+
+Wuthering Waves fans get their first look at Razer's new limited edition U.S. gaming collection based on the stunning resonator Denia.
+---------
+
+# 5 Forgotten Sylvester Stallone Movies Now Streaming for Free on His 80th Birthday
+
+Movies, sylvester stallone
+
+Mon, 06 Jul 2026 19:07:33 GMT
+
+https://www.cbr.com/sylvester-stallone-free-streaming-movies-80th-birthday/
+
+Fans can celebrate Sylvester Stallone turning 80 by revisiting some of his long-forgotten films for free.
+---------
+
+# Canon Events: Black Mask Pushed Catwoman To The Edge, and Then She Went Even Further
+
+Comics, Canon Events, Catwoman, DC Comics
+
+Mon, 06 Jul 2026 19:00:12 GMT
+
+https://www.cbr.com/canon-events-catwoman-vs-black-mask-tragic-rivalry/
+
+The intense feud between Catwoman and Black Mask pushed Selina Kyle to her limits and beyond in a gripping comic book rivalry with a dark ending.
+---------
+
+# 16 Years Later, Apple's 10/10 Hit With 98% RT Arrives as the Perfect Lost Replacement
+
+TV, Widow's Bay, Lost, Apple TV
+
+Mon, 06 Jul 2026 19:00:12 GMT
+
+https://www.cbr.com/apple-tv-widows-bay-perfect-lost-replacement/
+
+Many TV shows have tried to become the "New Lost" in the 16 years since the mystery series' finale, but only one shows promise of succeeding.
+---------
+
+# 5 Masterpiece Sci-Fi Sequels Better Than Star Wars: The Empire Strikes Back
+
+Movies, The Empire Strikes Back, Aliens, Spider-Man: Across the Spider-Verse
+
+Mon, 06 Jul 2026 19:00:12 GMT
+
+https://www.cbr.com/perfect-sci-fi-sequels-better-than-star-wars-empire-strikes-back/
+
+The Empire Strikes Back is sci-fi perfection, but there are a few sequels even better
+---------
+
+# 10 Funniest Far Side Comics About Tennis, Ranked
+
+Comics, The Far Side
+
+Mon, 06 Jul 2026 18:59:51 GMT
+
+https://www.cbr.com/funniest-far-side-comics-about-tennis/
+
+Ping-pong, tennis balls, and nets are fair game when Gary Larson highlighted the sport of tennis in his iconic The Far Side comic strip.
+---------
+
+# 10 Best Anime Series of 2026 So Far
+
+TV, Anime, Daemons of the Shadow Realm, Journal with Witch, NIPPON SANGOKU: The Three Nations of the Crimson Sun
+
+Mon, 06 Jul 2026 20:05:14 GMT
+
+https://collider.com/best-anime-2026-so-far-ranked/
+
+From Witch Hat Atelier to Nippon Sangoku, these anime shows have excelled in the first half of 2026, quickly becoming the best the genre has to offer.
+---------
+
+# ‘Solo Leveling’ Season 3 Is Happening, but There’s a Big Catch
+
+Movie News, Solo Leveling, Crunchyroll, Sony Pictures, Anime
+
+Mon, 06 Jul 2026 20:00:13 GMT
+
+https://collider.com/solo-leveling-beyond-the-system-movie-season-3/
+
+Solo Leveling will continue with Beyond the System - The Movie, a new anime film following Sung Jinwoo after Season 2.
+---------
+
+# 5 Action-Packed Movies of the 2020s That Nobody Remembers Today
+
+Movie, Action, Gunpowder Milkshake, Boy Kills World, Monkey Man
+
+Mon, 06 Jul 2026 19:41:13 GMT
+
+https://collider.com/action-packed-movies-2020s-nobody-remembers-today/
+
+From Boy Kills World to Monkey Man, these action movies of the 2020s have been all but forgotten, but deserve a second look from mainstream audiences.
+---------
+
+# Frodo’s Next Lord of the Rings Return Just Got More Complicated
+
+Movie News, The Lord of the Rings, Elijah Wood, Stephen Colbert, The Lord of the Rings: Shadow of the Past
+
+Mon, 06 Jul 2026 19:31:13 GMT
+
+https://collider.com/stephen-colbert-lord-of-the-rings-shadows-of-the-past-elijah-wood-frodo-update/
+
+Elijah Wood addressed his rumored return as Frodo in Stephen Colbert’s Lord of the Rings movie, saying the project is not official yet.
+---------
+
+# A Must-Watch Film Before ‘Spider-Man: Brand New Day’ Is Now on Netflix
+
+Movie, Spider-Man: Homecoming, A League of Their Own, Willy Wonka and the Chocolate Factory, Netflix
+
+Mon, 06 Jul 2026 19:19:14 GMT
+
+https://collider.com/best-netflix-movies-watch-july-6-2026/
+
+Spider-Man: Homecoming, Willy Wonka and the Chocolate Factory, and A League of Their Own make our list of best movies to stream the week of July 6.
+---------
+
+# $932M Magic-Heist Franchise Gets Exciting Sequel Update
+
+Movie News, Now You See Me, Now You See Me 2, Now You See Me: Now You Don't, Jesse Eisenberg
+
+Mon, 06 Jul 2026 19:00:14 GMT
+
+https://collider.com/now-you-see-me-4-jesse-eisenberg-update-j-daniel-atlas/
+
+Jesse Eisenberg says he wants to make Now You See Me 4 “more than anything else," after reprising J. Daniel Atlas in the heist franchise.
+---------
+
+# 4 Years Later, This Coming-of-Age Novel Still Hits Like a Punch to the Gut
+
+Books and Comics, Books, Movie, Paramount, Daisy Edgar-Jones
+
+Mon, 06 Jul 2026 18:56:13 GMT
+
+https://collider.com/tomorrow-and-tomorrow-and-tomorrow-coming-of-age-novel-four-years-later/
+
+Why Tomorrow, and Tomorrow, and Tomorrow remains one of the decade’s most affecting coming-of-age novels four years later.
+---------
+
+# Enola Holmes 3: Millie Bobby Brown on Going Darker | Set Stories
+
+TV, Enola Holmes
+
+Mon, 06 Jul 2026 18:30:13 GMT
+
+https://collider.com/video/enola-holmes-3-millie-bobby-brown-on-going-darker-set-stories/
+
+Millie Bobby Brown, Louis Partridge, director Philip Barantini, and Sharon Duncan-Brewster take us behind the scenes of Netflix's Enola Holmes 3, revealing how the franchise has matured alongside its cast while embracing a darker, more emotional mystery.
+---------
+
+# 'The Raid's Star Is Breaking Bad in New Trailer for High-Flying Action Thriller
+
+Movie News, The Raid, The Raid: Redemption, Iko Uwais, Action
+
+Mon, 06 Jul 2026 18:30:13 GMT
+
+https://collider.com/iko-uwais-wings-of-dread-trailer-iqiyi-streaming/
+
+The Raid star Iko Uwais goes bad in Wings of Dread, a new plane-set action thriller now streaming. Find out how to watch it here.
+---------
+
+# Original ‘Big Bang Theory’ Icon Finally Sets Acting Return 7 Years Later
+
+TV News, The Big Bang Theory, Johnny Galecki, Drama
+
+Mon, 06 Jul 2026 20:14:32 GMT
+
+https://movieweb.com/johnny-galecki-big-bang-theory-acting-return/
+
+Nearly a decade after the end of 'The Big Bang Theory,' Johnny Galecki (Leonard) will return to acting.
+---------
+
+# 10 Masterpiece Sci-Fi Sequels That Improve the Original Movie
+
+Movie Lists, Aliens, The Empire Strikes Back, Sci-Fi
+
+Mon, 06 Jul 2026 20:00:18 GMT
+
+https://movieweb.com/sci-fi-sequels-improved-original/
+
+They say sequels are bad, but the sci-fi genre alone has enough legendary follow-ups to argue against that statement.
+---------
+
+# Prime Video Officially Makes Major Permanent Change to Popular Streaming Service
+
+TV News, Prime Video
+
+Mon, 06 Jul 2026 19:47:02 GMT
+
+https://movieweb.com/prime-video-upgrades-ad-free-tier-with-ultra-streaming/
+
+Prime Video is offering subscribers with a new premium experience for a small mark-up on the monthly upkeep.
+---------
+
+# '24 Jump Street' Title Change Officially Explained by Phil Lord & Chris Miller
+
+Movie News, 21 Jump Street
+
+Mon, 06 Jul 2026 19:19:27 GMT
+
+https://movieweb.com/24-jump-street-title-explained/
+
+The directing duo behind '21 Jump Street' explain why the third film will skip '23 Jump Street.'
+---------
+
+# Cult-Classic '80s Sci-Fi Movie Officially Getting a Reboot With DC Star
+
+Movie News, Re-Animator, H.P. Lovecraft, Katie Cassidy, Joseph Morgan
+
+Mon, 06 Jul 2026 19:16:35 GMT
+
+https://movieweb.com/re-animator-reboot-remake-katie-cassidy-h-p-lovecraft/
+
+'Arrow's Katie Cassidy is starring in a new adaptation of the H.P. Lovecraft movie 'Re-Animator.'
+---------
+
+# New 'Game of Thrones' Prequel Can Clear up a 9-Year-Old Jon Snow Mystery
+
+Features, Game Of Thrones, Game of Thrones
+
+Mon, 06 Jul 2026 19:00:18 GMT
+
+https://movieweb.com/game-of-thrones-mad-king-lyanna-rhaegar/
+
+'The Mad King' will surely answer an unresolved 'Game of Thrones' Season 7 question. Read on for more.
+---------
+
+# Disney Sequel Marks Another Milestone as It Edges Closer to Becoming 2026's Biggest Box Office Hit
+
+Movie News, Toy Story 5, Toy Story, Pixar
+
+Mon, 06 Jul 2026 19:00:18 GMT
+
+https://movieweb.com/toy-story-5-hauls-750-million-globally-on-its-third-week/
+
+Disney's latest offering is breaking box office expectations since its release, and it has reached another milestone in its third week.
+---------
+
 # Jason Statham’s $125M Action Remake Sequel Is Officially Streaming For Free 10 Years Later
 
 Movies, Masked Recs
