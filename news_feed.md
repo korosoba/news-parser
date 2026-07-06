@@ -1,3 +1,377 @@
+# Every Despicable Me Movie, Ranked Worst To Best
+
+Movies, Despicable Me
+
+Mon, 06 Jul 2026 21:50:21 GMT
+
+https://screenrant.com/despicable-me-minions-movies-ranked-worst-best/
+
+With Minions: The Rise of Gru being the latest, it’s time to rank each Despicable Me movie and take a look at what made them successful.
+---------
+
+# Netflix’s Best Horror TV Show Of All Time Is About To Be Dethroned
+
+Streaming TV, Masked Recs
+
+Mon, 06 Jul 2026 21:45:21 GMT
+
+https://screenrant.com/hannibal-netflix-dethrone-haunting-of-hill-house/
+
+Netflix is home to the best horror TV show of all time, but it might be about to be dethroned as another great show is being added very soon.
+---------
+
+# Xbox Game Pass Reportedly Doing Much Worse Than Expected
+
+Gaming, Xbox Game Pass, Live Service Games, Xbox
+
+Mon, 06 Jul 2026 21:41:58 GMT
+
+https://screenrant.com/xbox-game-pass-subscribers-under-expectations/
+
+Xbox is in the midst of its largest restructure ever, with mass layoffs and studio divestment, and Game Pass is having struggles of its own.
+---------
+
+# The Odyssey Reactions Are Officially In On Christopher Nolan's 2026 Epic
+
+Movies, The Odyssey, Christopher Nolan
+
+Mon, 06 Jul 2026 21:37:10 GMT
+
+https://screenrant.com/the-odyssey-movie-reactions-christopher-nolan/
+
+Christopher Nolan's next movie, The Odyssey, is finally arriving this summer, as the first set of reactions has officially arrived about his film.
+---------
+
+# Robert Pattinson's Batman Gets An Upgrade In DC's New Dark Knight Series
+
+Streaming TV, Masked Recs
+
+Mon, 06 Jul 2026 21:30:20 GMT
+
+https://screenrant.com/absolute-batman-dc-animated-series-robert-pattinson-upgrade/
+
+Absolute Batman, which is now getting a TV show, feels just as gritty and grounded as Robert Pattinson's Batman, but to the tenth power.
+---------
+
+# Evil Dead Burn’s Original MPA Rating Honoring A 45-Year-Long Sam Raimi Franchise Tradition Detailed By Director
+
+Movies, Evil Dead Burn, Evil Dead
+
+Mon, 06 Jul 2026 21:26:08 GMT
+
+https://screenrant.com/evil-dead-burn-nc-17-r-rating-change-sebastien-vanicek/
+
+EXCLUSIVE: Evil Dead Burn director Sébastien Vaniček breaks down the 2026 film having to trim down scenes from an NC-17 rating to an R rating.
+---------
+
+# Disney's Moana Franchise Officially Returning To Theaters This Week
+
+New Movies, Moana
+
+Mon, 06 Jul 2026 21:20:22 GMT
+
+https://screenrant.com/disney-moana-live-action-movie-theaters-how-to-watch/
+
+Disney has one of its biggest franchises officially back in theaters this week, as a $1.7 billion movie series expands in a fresh direction.
+---------
+
+# Netflix's Sci-Fi Show Based On An Unfilmable Book Is So Good, It's Already Renewed For 2 More Seasons
+
+Streaming TV, Masked Recs
+
+Mon, 06 Jul 2026 21:15:20 GMT
+
+https://screenrant.com/3-body-problem-netflix-unfilmable-book-renewed-three-seasons/
+
+Netflix has a fantastic sci-fi show based on a novel series that was once considered unfilmable, but now it's getting a second and a third season.
+---------
+
+# Ready Or Not's Grace MacCaullay Is The Greatest Final Girl Ever
+
+Movies, Ready or Not, Ready or Not 2: Here I Come, Op-Ed
+
+Mon, 06 Jul 2026 21:00:21 GMT
+
+https://screenrant.com/ready-or-not-grace-maccaulley-best-final-girl-horror/
+
+Grace MacCaullay is Samara Weaving's protagonist in the Ready or Not movies, where she's proven that she's the best final girl in big screen history.
+---------
+
+# 3 Years Later, Hogwarts Legacy Players Uncover Game's Final Secret
+
+Gaming, Hogwarts Legacy, Triple-A Games
+
+Mon, 06 Jul 2026 21:00:21 GMT
+
+https://screenrant.com/hogwarts-legacy-dragon-secret/
+
+There's a lot to explore in Hogwarts Legacy, especially if you're going for a 100% rating, but fans have discovered a final secret.
+---------
+
+# Sebastian Stan Photo Seemingly Confirms The Batman 2 Villain Identity
+
+Movies, The Batman Part II, Batman, superheroes
+
+Mon, 06 Jul 2026 21:05:57 GMT
+
+https://www.cbr.com/the-batman-2-sebastian-stan-villain-victor-zsasz/
+
+We may finally have confirmation of which villain Sebastian Stan is playing in The Batman Part II.
+---------
+
+# Star Wars Reveals The Secrets of the High Republic Through All New Series
+
+Comics, Star Wars, Star Wars: The High Republic Show, star wars: the high republic, Star Wars (2020)
+
+Mon, 06 Jul 2026 21:00:13 GMT
+
+https://www.cbr.com/star-wars-reveals-secrets-of-the-high-republic-new-series/
+
+Star Wars is bringing a fresh new series for the High Republic in 2026.
+---------
+
+# 5 Essential R-Rated 70s Westerns That Are Still Perfect Today
+
+Movies, Western
+
+Mon, 06 Jul 2026 21:00:13 GMT
+
+https://www.cbr.com/must-watch-r-rated-70s-westerns-list/
+
+The 70s produced some of the grittiest Westerns ever made, and these R-rated classics remain essential viewing for genre fans today.
+---------
+
+# Say Goodbye to Reacher as the King of Prime Video Thanks to Amazon's Historic New Bosch Strategy
+
+TV, Prime Video, Bosch, Ballard
+
+Mon, 06 Jul 2026 20:45:13 GMT
+
+https://www.cbr.com/prime-video-bosch-universe-expansion-versus-reacher/
+
+The Bosch universe is redefining the approach to police procedural media franchises like no other show.
+---------
+
+# The Big Bang Theory Star Officially Returns to Acting After 7-Year Hiatus
+
+TV, The Big Bang Theory
+
+Mon, 06 Jul 2026 20:36:43 GMT
+
+https://www.cbr.com/johnny-galecki-acting-return-kowalski/
+
+It has taken several years for the actor to return to work after the end of The Big Bang Theory.
+---------
+
+# From Officially Resurrects Dead Character for Season 5
+
+TV, From
+
+Mon, 06 Jul 2026 20:31:50 GMT
+
+https://www.cbr.com/from-officially-resurrects-dead-character-for-season-5/
+
+The hit series just wrapped Season 4, but fans are already looking forward to Season 5.
+---------
+
+# 10 Greatest Superhero Movie Needle Drops Ever
+
+Movies, superheroes, Marvel Comics, DC Comics
+
+Mon, 06 Jul 2026 20:30:14 GMT
+
+https://www.cbr.com/greatest-superhero-movie-needle-drops-ranked-list/
+
+When the action is mounting and the heroes are ready for battle, these needle drops make everything feel more epic.
+---------
+
+# Solo Leveling Reveals New Anime Story That Was Never in the Manhwa
+
+Anime, Solo Leveling
+
+Mon, 06 Jul 2026 20:27:13 GMT
+
+https://www.cbr.com/solo-leveling-karma-anime-canon-chugong-manhwa/
+
+Solo Leveling creator Chugong has contributed a brand new story to the series’ universe which looks poised to appear in the anime.
+---------
+
+# Netflix Quietly Dropped a 6-Episode Spy Show That Will Go Down as a Modern Crime Classic
+
+TV, Netflix, Legends, Crime
+
+Mon, 06 Jul 2026 20:21:13 GMT
+
+https://www.cbr.com/netflix-legends-modern-spy-crime-classic/
+
+This nail-biting thriller is based on a true story stranger than fiction, and it's a tour de force of suspense and layered storytelling.
+---------
+
+# Apple TV’s Biggest History-Making Series Is Officially Back This Week
+
+TV Features, Apple TV, Trying, Slow Horses, Bad Sisters
+
+Mon, 06 Jul 2026 21:52:15 GMT
+
+https://collider.com/apple-tv-trying-season-5-return-history-making-series-meaning/
+
+Apple TV's first British series, Trying, is making its grand return this week.
+---------
+
+# ‘The Odyssey’ First Reactions Say Christopher Nolan’s Biggest Gamble Paid Off
+
+Movie News, The Odyssey, Christopher Nolan, Matt Damon, Lupita Nyong'o
+
+Mon, 06 Jul 2026 21:44:25 GMT
+
+https://collider.com/the-odyssey-first-reactions-christopher-nolan-is-it-good/
+
+First reactions to Christopher Nolan’s The Odyssey tease a massive IMAX epic starring Matt Damon ahead of the movie’s July 2026 release.
+---------
+
+# This 1960s Flop Ended Up Being the Most Important Album in Alternative Rock History
+
+Music Features, Rock, Punk, Grunge
+
+Mon, 06 Jul 2026 21:34:14 GMT
+
+https://collider.com/velvet-underground-and-nico-alternative-rock/
+
+1960s self-titled rock album The Velvet Underground & Nico is groundbreaking and extremely influential to alternative rock music
+---------
+
+# The Coolest Western You’ve Never Seen Is Taking Netflix By Storm
+
+Movie News, Old Henry, Tim Blake Nelson, Western, Netflix
+
+Mon, 06 Jul 2026 21:30:13 GMT
+
+https://collider.com/old-henry-coolest-western-of-the-decade-netflix-streaming-success/
+
+One of the best Westerns of the last decade, Old Henry, has been discovered on Netflix five years after its theatrical release.
+---------
+
+# 6 Best Sci-Fi Movies of 2026 So Far
+
+Movie, Sci-Fi, Project Hail Mary, Disclosure Day, Backrooms
+
+Mon, 06 Jul 2026 21:08:13 GMT
+
+https://collider.com/best-sci-fi-movies-2026-so-far-ranked/
+
+From blockbuster hits like Project Hail Mary to streaming hits like War Machine, these sci-fi movies have made 2026 a great year for the genre.
+---------
+
+# Rebecca Ferguson’s Sci-Fi Masterpiece Nears Massive Streaming Milestone
+
+TV News, Silo, Rebecca Ferguson, Apple TV, Sci-Fi
+
+Mon, 06 Jul 2026 21:00:13 GMT
+
+https://collider.com/silo-rebecca-ferguson-sci-fi-masterpiece-apple-tv-streaming-milestone/
+
+Rebecca Ferguson's critically acclaimed sci-fi series, Silo, has returned with a bang on Apple TV. The show is now nearing a major streaming milestone
+---------
+
+# 8 Great Thriller Books Not Written by Stephen King
+
+Books and Comics, No Country for Old Men, The Talented Mr. Ripley, And Then There Were None, Stephen King
+
+Mon, 06 Jul 2026 20:48:13 GMT
+
+https://collider.com/great-thriller-books-not-stephen-king/
+
+Stephen King's written some truly thrilling books, but there are plenty of great ones written by others, including The Black Dahlia and Watchers.
+---------
+
+# This 100% Rotten Tomatoes Western Series Is the Best Show to Binge on Netflix
+
+TV, Dark Winds, Black Monday, Netflix, Sports
+
+Mon, 06 Jul 2026 20:47:15 GMT
+
+https://collider.com/netflix-shows-binge-july-6/
+
+Dark Winds, Black Monday, and Rafa make up our list of the best Netflix shows to binge the week of July 6th, 2026.
+---------
+
+# Enola Holmes 3: The Wedding Dress Had a Secret | Collider BTS
+
+TV, Enola Holmes
+
+Mon, 06 Jul 2026 20:30:14 GMT
+
+https://collider.com/video/enola-holmes-3-the-wedding-dress-had-a-secret-collider-bts/
+
+What makes Enola Holmes feel so modern while staying rooted in the Victorian era? According to Oscar-winning costume designer Consolata Boyle, every fabric, silhouette, and color choice is designed to reveal what's happening inside the characters—not just recreate history.
+---------
+
+# ‘Arrival’ Meets ‘The Thing’ in Sci-Fi Masterpiece Getting Special New Release This Year
+
+Movie News, Annihilation, Arrival, The Thing, Netflix
+
+Mon, 06 Jul 2026 20:30:14 GMT
+
+https://collider.com/sci-fi-masterpiece-annihilation-special-4k-blu-ray-release/
+
+The mind-bending sci-fi horror film Annihilation, starring Natalie Portman, is returning as a limited-edition SteelBook with a 4K edition this year.
+---------
+
+# ‘Ozark’ Star Continues Crime Thriller Domination With New Series on Apple TV
+
+TV News, Apple TV, Julia Garner, Crime
+
+Mon, 06 Jul 2026 21:37:49 GMT
+
+https://movieweb.com/apple-tv-julia-garner-guilty-creatures/
+
+Julia Garner will play another small time criminal in 'Guilty Creatures: Sex, God, and Murder in Tallahassee, Florida.'
+---------
+
+# 'The Odyssey' Reactions Reveal if Christopher Nolan's Fantasy Epic Lives Up to the Hype
+
+Movie News, The Odyssey, Christopher Nolan
+
+Mon, 06 Jul 2026 21:32:44 GMT
+
+https://movieweb.com/the-odyssey-reactions-reviews-first-christopher-nolan/
+
+The first reviews to advanced screenings of Nolan's latest have landed online.
+---------
+
+# Disney's Fantasy Movie That Inspired 'Toy Story' Still Holds Up After 39 Years
+
+Features, Disney, The Brave Little Toaster, Pixar, Holds Up
+
+Mon, 06 Jul 2026 21:30:18 GMT
+
+https://movieweb.com/disney-toy-story-brave-little-toaster/
+
+The film that inspired 'Toy Story' is a cult classic that never quite rose to the heights of Pixar, but still has fans for good reason.
+---------
+
+# Apple TV's Sci-Fi Masterpiece Makes Surprise Return on Streaming
+
+TV News, Severance, Apple TV, Hot on Streaming, Sci-Fi
+
+Mon, 06 Jul 2026 21:00:19 GMT
+
+https://movieweb.com/severance-scifi-streaming-success-apple-july-2026/
+
+The best sci-fi show on streaming, Apple TV's 'Severance,' is a global success ahead of Season 3.
+---------
+
+# Major TV Platform Announces It's Officially Shutting Down for Good
+
+TV News, Streaming
+
+Mon, 06 Jul 2026 20:34:09 GMT
+
+https://movieweb.com/tv-time-shutting-down-alternatives-tracking-data/
+
+The popular TV tracking app TV Time announced it is shutting down on Jul. 15.
+---------
+
 # Brandon Sanderson Gives Exciting New Update On Sequel To His 13-Year-Old Fantasy Mystery
 
 Books, Brandon Sanderson
