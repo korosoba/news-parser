@@ -1,3 +1,245 @@
+# Taylor Sheridan’s Bigger Involvement In Dutton Ranch Season 2 Revealed After Original Showrunner Firing
+
+TV, Dutton Ranch, Yellowstone, Taylor Sheridan
+
+Tue, 07 Jul 2026 00:11:58 GMT
+
+https://screenrant.com/dutton-ranch-season-2-taylor-sheridan-involvement-kelly-reilly-explained/
+
+After the loss of showrunner Chad Feehan, another change is underway for Dutton Ranch season 2, with this one involving Taylor Sheridan.
+---------
+
+# Say Goodbye To Benedict Cumberbatch's Sherlock As It's Officially The End Of An Era
+
+Streaming TV, Masked Recs
+
+Tue, 07 Jul 2026 00:00:22 GMT
+
+https://screenrant.com/sherlock-holmes-end-of-an-era-modern-adaptations/
+
+Benedict Cumberbatch's Sherlock started a new era of adaptations of the Great Detective, but after some great adaptations, this era has ended.
+---------
+
+# One Piece Finally Proves Zoro Is Far Stronger Than Sanji, But That's About To Change
+
+Anime, One Piece
+
+Tue, 07 Jul 2026 00:00:22 GMT
+
+https://screenrant.com/one-piece-zoro-stronger-than-sanji-change/
+
+A famous pirate set the record straight on which Straw Hat member is stronger, but his advice may tip the scales & change the crew's dynamic forever.
+---------
+
+# Jon Bernthal's Record-Breaking 6-Part Netflix Crime Thriller Series Surpasses Hit Spy Drama & It Is Fitting
+
+TV, Masked Recs
+
+Mon, 06 Jul 2026 23:32:34 GMT
+
+https://screenrant.com/his-and-hers-netflix-series-record-the-night-agent/
+
+Jon Bernthal's Netflix crime thriller series entered a special group of the streaming service's shows, leaving a spy drama behind, and it makes sense.
+---------
+
+# Taylor Sheridan Officially Cancels Beth & Rip’s Yellowstone Story
+
+Streaming TV, Dutton Ranch, Yellowstone
+
+Mon, 06 Jul 2026 23:31:21 GMT
+
+https://screenrant.com/dutton-ranch-beth-rip-quiet-life-yellowstone-story-canceled/
+
+Dutton Ranch continued Beth and Rip's story from Yellowstone, but it also completely reversed and canceled the ending of their character arcs.
+---------
+
+# DC Officially Unveils The Perfect Dragon Ball Z Tribute
+
+TV, Masked Recs
+
+Mon, 06 Jul 2026 23:15:20 GMT
+
+https://screenrant.com/my-adventures-with-superman-dragon-ball-tribute-future-trunks/
+
+DC has delivered the perfect tribute to the beloved anime Dragon Ball Z through the latest incarnation of one of its popular superheroes.
+---------
+
+# Dutton Ranch’s Kelly Reilly & Cole Hauser Break Silence On Season 2's Showrunner Replacement
+
+TV, Dutton Ranch, Yellowstone, Paramount Plus, Kelly Reilly, Cole Hauser
+
+Mon, 06 Jul 2026 23:06:19 GMT
+
+https://screenrant.com/dutton-ranch-season-2-showrunner-replacement-kelly-reilly-cole-hauser-response/
+
+Kelly Reilly and Cole Huaser are breaking their silence on Dutton Ranch season 2 replacing showrunners after Taylor Sheridan firing the original.
+---------
+
+# Ted Lasso Meets Mean Girls In Prime Video's New Show That's Already Been Renewed For Season 2
+
+Streaming TV, Masked Recs
+
+Mon, 06 Jul 2026 23:00:20 GMT
+
+https://screenrant.com/elle-prime-video-ted-lasso-meets-mean-girls/
+
+Prime Video's new fish-out-of-water comedy series takes the best parts of Ted Lasso and Mean Girls, and it's coming back for more with season 2.
+---------
+
+# Andor's Scrapped Horror Story Is Perfect For Star Wars To Still Use
+
+Movies, Star Wars
+
+Mon, 06 Jul 2026 23:00:20 GMT
+
+https://screenrant.com/andor-horror-story-k2so-star-wars-future-good/
+
+Andor's ninth episode was originally a horror story involving K-2SO, and this idea is good enough to be retooled for a different show in the future.
+---------
+
+# The Wonder Woman Comic That Could Save James Gunn's DC Universe
+
+Comics, DC Comics
+
+Tue, 07 Jul 2026 00:00:13 GMT
+
+https://www.cbr.com/wonder-woman-the-circle-best-dcu-choice/
+
+It's time for the DCU to take a more unique approach to its most popular heroes, and one Wonder Woman comic story could be the key.
+---------
+
+# It's Officially the End of an Era for the Super Mario Bros. Movies
+
+Movies, The Super Mario Bros. Movie, The Super Mario Galaxy Movie
+
+Tue, 07 Jul 2026 00:00:13 GMT
+
+https://www.cbr.com/super-mario-galaxy-movie-streaming-july-2026-end-theatrical-run/
+
+The Super Mario Galaxy Movie (2026) hits its last major milestone on July 30th.
+---------
+
+# Dragon Ball Officially Gives Goku a Brand-New Transformation After 4 Years
+
+Anime, Dragon Ball
+
+Mon, 06 Jul 2026 23:51:05 GMT
+
+https://www.cbr.com/dragon-ball-xenoverse-2-dlc-goku-ultra-supervillain-transformation/
+
+Dragon Ball just introduced a brand-new transformation for Goku that allows him to gain strength by overcoming mind control, similar to Majin Vegeta.
+---------
+
+# MCU X-Men Director Met With the Breakout Horror Star of 2026 Amid Marvel Casting Buzz
+
+Movies, Marvel, Marvel Comics, MCU, Obsession, Horror, X-Men, Avengers: Doomsday, Avengers: Doomsday (2026)
+
+Mon, 06 Jul 2026 23:30:55 GMT
+
+https://www.cbr.com/mcu-x-men-director-met-with-the-breakout-obsession-star-casting/
+
+Can Inde Navarrette go from being an instant horror legend to securing an iconic Marvel role?
+---------
+
+# George R.R. Martin's 4-Part Neo-Western Turns Into a Netflix Hit After New Release
+
+TV, Dark Winds
+
+Mon, 06 Jul 2026 23:00:13 GMT
+
+https://www.cbr.com/george-rr-martin-dark-winds-neo-western-netflix-success-july-2026/
+
+The neo-Western show has been a stunning success, which continues on Netflix.
+---------
+
+# 3 Batman Movies Better Than The Dark Knight
+
+Movies, The Dark Knight, Batman
+
+Mon, 06 Jul 2026 23:00:13 GMT
+
+https://www.cbr.com/best-batman-movies-better-than-the-dark-knight-list/
+
+The Dark Knight is often considered the best Batman movie ever made, but these 3 masterpieces narrowly beat out Christopher Nolan's 2008 masterpiece.
+---------
+
+# Jason Momoa's 5-Part Sci-Fi Cult Classic Is Stargate SG-1's Only Perfect Replacement
+
+TV, Stargate, Jason Momoa, Sci-Fi
+
+Mon, 06 Jul 2026 23:00:13 GMT
+
+https://www.cbr.com/jason-momoa-stargate-atlantis-best-stargate-sg-1-replacement/
+
+With Jason Momoa’s incredible career and renewed interest in the franchise, Stargate Atlantis is finally receiving the recognition it deserves.
+---------
+
+# The Next Assassin’s Creed Game Is Just 3 Days Away
+
+Gaming News, Assassin's Creed, Assassin's Creed Odyssey, Assassin's Creed IV: Black Flag
+
+Tue, 07 Jul 2026 00:00:13 GMT
+
+https://collider.com/assassins-creed-black-flag-resynced-release-date-july-2026/
+
+Assassin’s Creed Black Flag Resynced arrives July 9 with new missions, upgraded combat, and a major visual overhaul
+---------
+
+# ‘Obsession’ Is Officially One of the Highest-Grossing Horror Hits Ever
+
+Movie News, Obsession, Horror, Curry Barker, Box Office
+
+Mon, 06 Jul 2026 23:30:14 GMT
+
+https://collider.com/obsession-box-office-milestone-400-million/
+
+Obsession, the decade's most viral horror movie, is now close to entering the list of the top 10 highest-grossing horror movies of all time.
+---------
+
+# 'Dutton Ranch' Just Set Up 6 Unexpected Season 2 Mysteries
+
+TV, Dutton Ranch, Yellowstone, Paramount Plus, Western
+
+Mon, 06 Jul 2026 23:14:14 GMT
+
+https://collider.com/dutton-ranch-season-2-mysteries/
+
+Dutton Ranch has wrapped up its first season, so while we wait for Season 2, these are our burning questions for the Yellowstone sequel series.
+---------
+
+# Forget 'Fargo,' Billy Bob Thornton's Chilly Crime Movie Is the Best Late-Night Watch
+
+Movie Features, A Simple Plan, Fargo, Billy Bob Thornton
+
+Mon, 06 Jul 2026 23:08:13 GMT
+
+https://collider.com/billy-bob-thornton-a-simple-plan-chilly-crime-movie-fargo-mgm-plus/
+
+Billy Bob Thornton starred in A Simple Plan before he was in the Fargo TV series, and it's got a lot to offer for fans of Fargo (the film and show).
+---------
+
+# Fast & Furious Officially Returns With Set Update From Vin Diesel
+
+Movie News, Vin Diesel, Fast Forever, Fast & Furious, Blockbuster
+
+Mon, 06 Jul 2026 23:00:13 GMT
+
+https://collider.com/vin-diesel-fast-forever-sneak-peek-set-video/
+
+Vin Diesel shares a behind-the-scenes glimpse of the final Fast & Furious installment, Fast Forever, as the franchise nears $7.5 billion in revenue.
+---------
+
+# The 8 Best New Netflix Shows of 2026 (So Far)
+
+TV Lists, The Boroughs, Netflix
+
+Mon, 06 Jul 2026 23:00:19 GMT
+
+https://movieweb.com/best-new-netflix-shows-2026/
+
+There have been great returning shows on Netflix this year, but 2026 has introduced several appealing new titles.
+---------
+
 # 15 Years Later, Supernatural's Greatest Quote Comes From Its Most Underrated Character
 
 TV, Supernatural
