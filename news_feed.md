@@ -1,3 +1,399 @@
+# The Odyssey Interviews with Christopher Nolan & Matt Damon
+
+Videos, The Odyssey, Christopher Nolan, Matt Damon
+
+Tue, 07 Jul 2026 18:03:26 GMT
+
+https://screenrant.com/video/the-odyssey-christopher-nolan-matt-damon-interview/
+
+The Odyssey director Christopher Nolan breaks down other places in his filmography where other echoes of Homer's seminal work can be found, while star Matt Damon reflects on Odysseus' morality in the heat of battle.
+---------
+
+# HBO Max's #1 Trending Movie Officially Redeems A 94-Year-Old Franchise
+
+Movies, Masked Recs
+
+Tue, 07 Jul 2026 18:02:20 GMT
+
+https://screenrant.com/lee-cronins-the-mummy-redeem-franchise-trending-hbo-max/
+
+HBOMax's new number one movie proves an iconic horror franchise that's been around since 1932 can still succeed with its next blockbuster sequel.
+---------
+
+# Solo Leveling Is Officially Returning With An All-New Story
+
+Gaming, Solo Leveling, Solo Leveling - Season 1, Solo Leveling - Season 2, Solo Leveling:ARISE, PC
+
+Tue, 07 Jul 2026 18:00:21 GMT
+
+https://screenrant.com/solo-leveling-karma-story-trailer/
+
+Solo Leveling is making an official return in 2026 with a fresh story that will introduce new iconic characters and locations.
+---------
+
+# Supernatural Brings Sam and Dean Back Next Month for One Final Chapter
+
+Comics, Supernatural
+
+Tue, 07 Jul 2026 17:53:00 GMT
+
+https://screenrant.com/supernatural-series-finale-return-dean-and-sam/
+
+Supernatural fans are officially one month away from seeing Sam and Dean return for one final ride, as the franchise prepares for an epic conclusion.
+---------
+
+# Oscar-Winning Godzilla Director & Ridley Scott Team-Up For Historic New Sci-Fi Thriller With Plot Details Revealed
+
+Movies, Godzilla Minus One, Ridley Scott
+
+Tue, 07 Jul 2026 17:50:21 GMT
+
+https://screenrant.com/takashi-yamazaki-nue-movie-development-ridley-scott/
+
+After earning an Oscar for Godzilla Minus One, director Takashi Yamazaki is teaming up with Ridley Scott to make a mysterious sci-fi thriller.
+---------
+
+# Avatar Aang: The Last Airbender’s Trailer Draws 1 Major Complaint & The Fans Are Right
+
+Movies, Avatar: The Last Airbender, Avatar Aang: The Last Airbender
+
+Tue, 07 Jul 2026 17:45:20 GMT
+
+https://screenrant.com/avatar-aang-the-last-airbender-movie-trailer-cinemas-complaint-right/
+
+Avatar Aang: The Last Airbender's stunning trailer has fans excited, but one major complaint keeps surfacing – and they're right to make it.
+---------
+
+# The Odyssey Interviews with Anne Hathaway, Tom Holland, Zendaya & John Leguizamo
+
+Interviews, The Odyssey, Zendaya, Anne Hathaway, Tom Holland, John Leguizamo
+
+Tue, 07 Jul 2026 17:35:45 GMT
+
+https://screenrant.com/video/the-odyssey-anne-hathaway-tom-holland-zendaya-john-leguizamo-interview/
+
+The Odyssey stars Anne Hathaway, Tom Holland, Zendaya, and John Leguizamo share their respect for Christopher Nolan's vision and favorite scores from his filmography.
+---------
+
+# The Batman 2 Officially Replaces A Major Character
+
+Movies, The Batman Part II, Batman, DC
+
+Tue, 07 Jul 2026 17:30:21 GMT
+
+https://screenrant.com/the-batman-part-2-replaces-selina-kyle-catwoman/
+
+Zoë Kravitz's Catwoman seemingly won't be in The Batman Part II, meaning Matt Reeves will need to find a new female lead: here's who it could be.
+---------
+
+# 31 Years Later, the Greatest Quote In Crime Movie History Still Tops the Godfather
+
+Movies, Heat, The Godfather
+
+Tue, 07 Jul 2026 17:24:33 GMT
+
+https://screenrant.com/heat-action-juice-best-crime-quote/
+
+This 1995 classic surpasses the Godfather with 1 line.
+---------
+
+# 8 Reasons It's Hard to Watch One Piece Today
+
+Anime, One Piece
+
+Tue, 07 Jul 2026 18:15:13 GMT
+
+https://www.cbr.com/one-piece-reason-its-unwatchable-2026/
+
+One Piece may be one of the biggest shonen battle anime in the world, but that doesn't mean it's always fun to watch.
+---------
+
+# Marvel's Black Cat Gets Her Best Redesign Yet With a High Fantasy Twist
+
+Comics, Marvel Comics, black cat
+
+Tue, 07 Jul 2026 18:00:13 GMT
+
+https://www.cbr.com/marvel-realmguard-black-cat-redesign-revealed/
+
+Marvel Comics' latest high fantasy adventure gives Black Cat a subtle redesign that perfectly captures what fans love about the character.
+---------
+
+# Netflix Officially Enters New Era With Historic Deal
+
+TV, Netflix
+
+Tue, 07 Jul 2026 17:59:32 GMT
+
+https://www.cbr.com/netflix-new-video-licensing-deal/
+
+A new Netflix deal brings a lot more unique content to its subscribers.
+---------
+
+# Kevin Costner's $424M Western Masterpiece Returns With New Version in 2026
+
+Movies, Dances With Wolves
+
+Tue, 07 Jul 2026 17:38:57 GMT
+
+https://www.cbr.com/kevin-costner-dances-with-wolves-restored-directors-cut/
+
+One of Kevin Costner's greatest films will debut a new cut this August.
+---------
+
+# For All Mankind's Greatest Achievement Took 5 Seasons to Pull Off
+
+TV, For All Mankind, Apple TV
+
+Tue, 07 Jul 2026 17:30:14 GMT
+
+https://www.cbr.com/for-all-mankind-margo-madison-arc/
+
+It has taken five seasons for one of the best stories in For All Mankind to fully be brought to life, but there must be even more to come.
+---------
+
+# Pokémon LEGO Reveals 5 New Sets Including Rayquaza and Red
+
+Anime, Pokemon, LEGO, toys
+
+Tue, 07 Jul 2026 17:28:14 GMT
+
+https://www.cbr.com/pokemon-new-lego-sets-first-look-october-release/
+
+Pokémon fans just got their first look at the franchise's next five LEGO sets, including one that has been the subject of some major rumors this year.
+---------
+
+# Prime Video's Hit Video Game Adaptation Officially Kicks Off Production 5 Months After Last Episode
+
+TV, Fallout
+
+Tue, 07 Jul 2026 17:25:51 GMT
+
+https://www.cbr.com/prime-video-hit-video-game-adaptation-fallout-kicks-off-production-season-3/
+
+This is the news Fallout fans have been waiting on.
+---------
+
+# 5 Biggest Chase Cards In Disney Lorcana's Attack of the Vine
+
+Games, Disney Lorcana, Tabletop, TCG
+
+Tue, 07 Jul 2026 17:15:13 GMT
+
+https://www.cbr.com/disney-lorcana-chase-cards-attack-of-the-vine/
+
+The next Disney Lorcana expansion set is just around the corner, and Attack of the Vine is set to introduce some seriously game changing chase cards.
+---------
+
+# Wicked Director's Michael Replacement Officially Takes Major Leap 2 Years Later
+
+Movies, Wicked, universal
+
+Tue, 07 Jul 2026 17:06:48 GMT
+
+https://www.cbr.com/jon-m-chu-britney-spears-biopic-screenwriter-liz-meriwether/
+
+The biopic world will receive another huge name.
+---------
+
+# Avatar Aang: The Last Airbender Gets Paramount+ Streaming Release Date
+
+Anime, Avatar: The Last Airbender, The Legend of Aang: The Last Airbender
+
+Tue, 07 Jul 2026 17:02:09 GMT
+
+https://www.cbr.com/avatar-aang-the-last-airbender-paramount-streaming-release-date/
+
+Avatar Aang: The Last Airbender debuts its first official trailer and ends any hope of a theatrical release.
+---------
+
+# Jason Statham Surrenders Streaming Crown After 40-Day Reign
+
+Movie News, Jason Statham, Shelter, STARZ, Action
+
+Tue, 07 Jul 2026 18:20:13 GMT
+
+https://collider.com/jason-statham-shelter-loses-streaming-crown-after-40-days/
+
+After more than a month, Jason Statham's Shelter has surrendered its crown on the Starz streaming service. Find out more.
+---------
+
+# Dwayne Johnson Officially Finds Next Original Action Movie With Matt Damon
+
+Movie News, Drama, Dwayne Johnson, Ben Affleck, Matt Damon
+
+Tue, 07 Jul 2026 18:00:47 GMT
+
+https://collider.com/dwayne-johnson-motorcycle-action-movie-matt-damon-ben-affleck-producing/
+
+Dwayne Johnson is joining forces with Matt Damon and Ben Affleck for a brand-new action movie as a motorcyclist with dementia.
+---------
+
+# Harlan Coben’s Longest-Running Book Series Officially Comes to Netflix
+
+TV News, Harlan Coben, Netflix, I Will Find You, KJ Apa
+
+Tue, 07 Jul 2026 18:00:13 GMT
+
+https://collider.com/harlan-coben-new-netflix-series-myron-bolitar-cast-colin-woodell-kj-apa-diane-guererro/
+
+Netflix has officially announced its next Harlan Coben show, Myron Bolitar, which will be led by KJ Apa and Colin Woodell.
+---------
+
+# 6 Movie Masterpieces With One Terrible Scene
+
+Movie, The Irishman, The Godfather Part II, Pulp Fiction, Once Upon a Time in the West
+
+Tue, 07 Jul 2026 17:52:13 GMT
+
+https://collider.com/movie-masterpieces-one-terrible-scene/
+
+Movies like The Irishman, Pulp Fiction, and The Last of the Mohicans are all pretty much perfect, or would be, if not for one scene missing the mark.
+---------
+
+# Ridley Scott Officially Teams With 'Godzilla Minus One' Director for New Sci-Fi Movie
+
+Movie News, Ridley Scott, Godzilla Minus One, Takashi Yamazaki, Sci-Fi
+
+Tue, 07 Jul 2026 17:50:28 GMT
+
+https://collider.com/godzilla-minus-one-director-takashi-yamazaki-new-sci-fi-movie-ridley-scott-producing/
+
+Ahead of Godzilla Minus One's sequel, director Takashi Yamazaki is officially teaming with Ridley Scott for a new sci-fi movie.
+---------
+
+# Apple TV’s New 8-Episode Series Officially Reunites ‘True Detective’s Best Duo
+
+TV News, True Detective, Woody Harrelson, Matthew McConaughey, Brothers
+
+Tue, 07 Jul 2026 17:40:15 GMT
+
+https://collider.com/apple-tv-true-detective-reunion-brothers-release-date-september-2026/
+
+True Detective stars Matthew McConaughey and Woody Harrelson are reuniting on Apple TV. Get all the details here.
+---------
+
+# Stephen King’s Forgotten 5-Part Sci-Fi Fantasy Series Is Making a Surprise Comeback
+
+TV News, Haven, Prime Video, Stephen King, Carrie
+
+Tue, 07 Jul 2026 17:20:13 GMT
+
+https://collider.com/stephen-king-sci-fi-fantasy-series-haven-streaming-success-prime-video-july-2026/
+
+Stephen King's long-forgotten Prime Video sci-fi fantasy series, Haven, is making a streaming comeback 11 years after its final season.
+---------
+
+# 25 Years Later, Vin Diesel's $7 Billion Franchise Starter Makes a Comeback
+
+Movie News, The Fast and the Furious, Vin Diesel, MGM, Streaming
+
+Tue, 07 Jul 2026 17:00:13 GMT
+
+https://collider.com/the-fast-and-the-furious-streaming-hit-july-2026-mgm/
+
+After 25 years, Vin Diesel's The Fast and the Furious is making a comeback, on streaming before the end of the end of the $7 billion franchise.
+---------
+
+# 6 Perfect Movies That Are 80 Minutes Long or Less
+
+Movie, Before Sunset, The Nightmare Before Christmas, The Passion Of Joan Of Arc, Rope
+
+Tue, 07 Jul 2026 16:45:13 GMT
+
+https://collider.com/perfect-movies-80-minutes-long-or-less/
+
+The Passion of Joan of Arc, Before Sunset, and The Nightmare Before Christmas are among the best movie masterpieces that run about 80 minutes.
+---------
+
+# Move Over ‘Pressure,’ a New WWII Movie Is Enthralling Audiences Despite Limited Release
+
+Movie News, Lucky Strike, Pressure, Scott Eastwood, Colin Hanks
+
+Tue, 07 Jul 2026 16:40:13 GMT
+
+https://collider.com/lucky-strike-ww2-movie-colin-hanks-scott-eastwood-limited-release-box-office/
+
+After the success of Pressure, a new World War II movie titled Lucky Strike is making its presence felt at the box office. Find out more.
+---------
+
+# Aaron Taylor-Johnson's Explosive Action Thriller Gets New Release
+
+Movie News, Fuze, Aaron Taylor-Johnson, Action
+
+Tue, 07 Jul 2026 17:55:11 GMT
+
+https://movieweb.com/fuze-blu-ray-release-action-thriller/
+
+Aaron Taylor-Johnson's explosive action thriller 'Fuze' officially arrived on Blu-ray on Jul. 7, 2026, following the movie's digital release in May.
+---------
+
+# Sacha Baron Cohen Reportedly Returning as Iconic Comedy Character in New Secret Sequel
+
+Movie News, Sacha Baron Cohen, Da Ali G Show, Comedy
+
+Tue, 07 Jul 2026 17:46:57 GMT
+
+https://movieweb.com/sacha-baron-cohen-ali-g-sequel/
+
+Ali G may soon be back indahouse.
+---------
+
+# Kristen Stewart Is a Super-Powered Stoner in First Trailer for Trippy Sci-Fi Adventure
+
+Movie News, The Wrong Girls, Kristen Stewart
+
+Tue, 07 Jul 2026 17:38:47 GMT
+
+https://movieweb.com/kristen-stewart-the-wrong-girls-trailer/
+
+Stewart co-stars opposite Alia Shawkat, Seth Rogen, Genna Davis, and Lakeith Stanfield.
+---------
+
+# The Best Southern Gothic Fairy Tale Is Streaming Free on Tubi
+
+Features, Tubi
+
+Tue, 07 Jul 2026 17:31:19 GMT
+
+https://movieweb.com/night-of-the-hunter-watch-tubi/
+
+Robert Mitchum gave the performance of a lifetime in this stunning Southern Gothic fairy tale.
+---------
+
+# New 'Avatar: The Last Airbender' Movie Finally Sets Streaming Premiere Date After Leak
+
+Movie News, Avatar Aang: The Last Airbender, Paramount Plus
+
+Tue, 07 Jul 2026 17:07:10 GMT
+
+https://movieweb.com/avatar-aang-last-airbender-paramount-release-date/
+
+Paramount+ officially nailed down a release date for 'Avatar: The Last Airbender' after a controversial leak.
+---------
+
+# 8 Perfect Apple TV Shows With No Bad Seasons
+
+Features, Apple TV, Ted Lasso, Slow Horses, Shrinking
+
+Tue, 07 Jul 2026 17:00:19 GMT
+
+https://movieweb.com/perfect-apple-tv-shows/
+
+Look out, HBO. Apple TV is the rising star of prestige television, and it already has a collection of reliable hits that sustain high quality.
+---------
+
+# Jude Law Leading His Own Jason Statham-Esque Action Thriller
+
+Movie News, Jude Law, Zach Baylin
+
+Tue, 07 Jul 2026 16:45:13 GMT
+
+https://movieweb.com/jude-law-getaway-driver-action-thriller/
+
+Jude Law will star in an untitled getaway driver action movie from 'Black Rabbit' and 'The Order' writer Zach Baylin, made by his Riff Raff banner.
+---------
+
 # Tom Holland Is Already Manifesting His Next Big Role After Spider-Man & The Odyssey
 
 Movies, The Odyssey, Tom Holland
