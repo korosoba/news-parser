@@ -1,3 +1,311 @@
+# Big Little Lies Meets Gilmore Girls In Peacock's New Series With One Of Its Best Casts
+
+Streaming TV, Masked Recs
+
+Tue, 07 Jul 2026 21:45:20 GMT
+
+https://screenrant.com/five-star-weekend-big-little-lies-meets-gilmore-girls/
+
+Peacock's star-studded upcoming beach drama based on a popular book blends the best and most addictive parts of Big Little Lies and Gilmore Girls.
+---------
+
+# Fast & Furious 11's Filming Start Clarified After Vin Diesel’s Viral Set Video
+
+Movies
+
+Tue, 07 Jul 2026 21:42:44 GMT
+
+https://screenrant.com/fast-furious-11-filming-start-vin-diesel-video-clarification/
+
+After Vin Diesel's viral video seemingly confirmed that Fast & Furious 11 production had started, the movie's filming status has been clarified.
+---------
+
+# Christopher Nolan's The Odyssey Is Officially Changing Genres
+
+Movies, The Odyssey
+
+Tue, 07 Jul 2026 21:31:20 GMT
+
+https://screenrant.com/the-odyssey-christopher-nolan-changing-genre-horror/
+
+Early reactions to Christopher Nolan's new cinematic epic reveal that he's introduced a whole new genre to The Odyssey, in a major career first.
+---------
+
+# Netflix Officially Hints One Piece Season 4 Is Happening As Enel's Live-Action Debut Nears
+
+Streaming TV, One Piece
+
+Tue, 07 Jul 2026 21:24:21 GMT
+
+https://screenrant.com/one-piece-live-action-season-4-netflix-almost-confirmed/
+
+One of Netflix's biggest current shows is the live-action adaptation of One Piece, and its future is looking quite bright with an exciting storyline.
+---------
+
+# LL Cool J's New NCIS Spinoff Officially Casts First Female Lead
+
+TV, NCIS
+
+Tue, 07 Jul 2026 21:22:31 GMT
+
+https://screenrant.com/ncis-new-york-spinoff-jennifer-beals-female-role-casting/
+
+LL Cool J's spinoff NCIS: New York premieres on CBS this fall, and it's been announced who will be the female lead of the franchise's newest show.
+---------
+
+# Prime Video’s R-Rated Reacher Replacement Is Returning With An Even Better Cast
+
+TV, Masked Recs
+
+Tue, 07 Jul 2026 21:17:22 GMT
+
+https://screenrant.com/the-terminal-list-season-2-better-cast/
+
+Reacher offers explosive action, but another dark thriller show's more paranoid conspiracy thriller plotting could make it Prime Video's best.
+---------
+
+# Sony's 'Walking Dead Meets Sons Of Anarchy' Is A Hit Show Waiting To Happen
+
+Streaming TV, Masked Recs
+
+Tue, 07 Jul 2026 21:06:53 GMT
+
+https://screenrant.com/sony-days-gone-video-game-tv-show-adaptation/
+
+Days Gone has all the ingredients of a Walking Dead-style zombie drama, with the hook of a man searching the post-apocalyptic wasteland for his wife.
+---------
+
+# Netflix’s Buffy Replacement Is Officially Streaming For Free
+
+Streaming TV, Masked Recs
+
+Tue, 07 Jul 2026 21:00:22 GMT
+
+https://screenrant.com/netflix-hemlock-grove-buffy-replacement-streaming-free/
+
+Netflix's best Buffy replacement is no longer a lost horror gem as it has finally found a new home, and this time, it's streaming for free.
+---------
+
+# Two Underrated Must-See Movie Trilogies Are Now Streaming On HBO Max
+
+Movies, The Mummy, The Equalizer, HBO Max, Recommendation
+
+Tue, 07 Jul 2026 21:00:22 GMT
+
+https://screenrant.com/hbo-max-the-mummy-equalizer-underrated-trilogies/
+
+HBO Max's catalog of new additions in July includes two trilogies that deserve more love and should be watched by movie fans everywhere.
+---------
+
+# GTA 6 Is Going To Become Unplayable For All Of Us Eventually
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Tue, 07 Jul 2026 21:00:22 GMT
+
+https://screenrant.com/gta-6-unplayable-no-disc-policy/
+
+While it isn't going to happen right away, Take-Two's new policy on the GTA series is going to lead to a lot of headaches over time.
+---------
+
+# Marvel Reveals The Punisher's New Superpowers Before Next MCU Appearance
+
+Comics, Marvel, Marvel Comics, MCU, Spider-Man: Brand New Day, The Punisher, The Punisher: One Last Kill
+
+Tue, 07 Jul 2026 21:47:10 GMT
+
+https://www.cbr.com/marvel-reveals-the-punisher-new-superpowers-before-spider-man-appearance/
+
+The Punisher never, ever thought Marvel would give him this superpower.
+---------
+
+# Say Goodbye to Password Sharing as Netflix Confirms End Date for Shared Accounts
+
+TV, Netflix
+
+Tue, 07 Jul 2026 21:25:08 GMT
+
+https://www.cbr.com/netflix-end-date-shared-accounts/
+
+What started as a marketing strategy for Netflix kicked off the worst streaming trend of all time.
+---------
+
+# 10 Open-World Games Without a Single Flaw
+
+Games, Video Games, Grand Theft Auto, Cyberpunk 2077, Red Dead Redemption
+
+Tue, 07 Jul 2026 21:15:12 GMT
+
+https://www.cbr.com/best-open-world-games-flawless-start-to-finish/
+
+Open-world games reach greater heights than any others, and titles like Cyberpunk 2077 and Red Dead Redemption 2 are truly flawless.
+---------
+
+# Power Rangers Unlimited #1 Review: The Rangers Charge Into an Exciting New Era
+
+Comics, Power Rangers
+
+Tue, 07 Jul 2026 21:01:14 GMT
+
+https://www.cbr.com/power-rangers-unlimited-1-review/
+
+The latest Power Rangers series from BOOM! Studios is the intergenerational experience that fans have been waiting for, and it might be perfect.
+---------
+
+# Every Greek Mythological Figure Confirmed in The Odyssey, So Far
+
+Movies, The Odyssey, Christopher Nolan, matt damon
+
+Tue, 07 Jul 2026 21:01:14 GMT
+
+https://www.cbr.com/christopher-nolan-the-odyssey-confirmed-greek-mythological-figures-list/
+
+Christopher Nolan’s The Odyssey is bringing one of literature’s most famous journeys back to theaters.
+---------
+
+# Jennifer Garner's 8-Part The White Lotus Replacement Enchants Critics Ahead of Debut
+
+TV, Rotten Tomatoes, The Five-Star Weekend
+
+Tue, 07 Jul 2026 20:35:09 GMT
+
+https://www.cbr.com/jennifer-garner-the-five-star-weekend-rotten-tomatoes/
+
+While the show doesn't come with murder, it features secrets, drama, and more from "the queen of beach reads."
+---------
+
+# Netflix's 7-Episode Instant Mystery Classic Is as Close to Perfect as Remakes Get
+
+TV, Murderville, Netflix, Mystery, Sitcoms
+
+Tue, 07 Jul 2026 20:30:14 GMT
+
+https://www.cbr.com/netflix-murderville-murder-mystery-remake/
+
+Netflix's remake of a British sitcom is a must-watch for any fan of murder mystery comedies.
+---------
+
+# 5 Greatest Fantasy Books of the 2020s, Ranked
+
+Movies, Fantasy, books
+
+Tue, 07 Jul 2026 20:30:14 GMT
+
+https://www.cbr.com/best-fantasy-books-2020s-list/
+
+With the rise of BookTok and Bookstagram, books have never been more popular and fantasy has become the staple genre for a new generation of readers.
+---------
+
+# 10 Must-Watch Horror Shows To Enjoy While You Wait for 'From' Season 5
+
+TV, From, Horror, Widow's Bay, Twin Peaks
+
+Tue, 07 Jul 2026 21:44:14 GMT
+
+https://collider.com/horror-shows-like-from-tv-series/
+
+Widow's Bay, Twin Peaks, Yellowjackets, and Midnight Mass are perfect shows to watch while you wait for Season 5 of the MGM+ horror series From.
+---------
+
+# 8 Heaviest Mystery Movies of All Time
+
+Movie, Chinatown, Se7en, Oldboy, Zodiac
+
+Tue, 07 Jul 2026 21:42:15 GMT
+
+https://collider.com/heaviest-mystery-movies-all-time-ranked/
+
+Chinatown, Mystic River, and Picnic at Hanging Rock can all be included among the heaviest and most depressing mystery movies ever made.
+---------
+
+# Jason Statham's 114-Minute Survival Thriller Is an Essential New Streaming Arrival
+
+Movie Features, The Meg, Meg 2: The Trench, Jason Statham, HBO Max
+
+Tue, 07 Jul 2026 21:23:13 GMT
+
+https://collider.com/jason-statham-the-meg-survival-thriller-essential-new-streaming/
+
+The Meg is the quintessential summer movie, and we all need it this summer more than ever.
+---------
+
+# Law & Order Star Officially Joins New 'NCIS' Spin-Off Following 'Organized Crime' Cancellation
+
+TV News, NCIS, Jennifer Beals, LL Cool J, Shane Harper
+
+Tue, 07 Jul 2026 21:19:45 GMT
+
+https://collider.com/ll-cool-j-ncis-new-york-spin-off-cast-jennifer-beals/
+
+LL Cool J's new NCIS spin-off has officially rounded out its cast with a Law & Order: Organized Crime star.
+---------
+
+# NBCUniversal Officially Expanded Its TV Empire in a Massive $2.1 Billion Deal
+
+TV Features, NBCUniversal, Sky Go, ITV, Streaming
+
+Tue, 07 Jul 2026 20:54:13 GMT
+
+https://collider.com/nbcuniversal-sky-itv-deal-tv-empire-expansion-details/
+
+NBCUniversal is expanding its global TV footprint after Sky’s $2.1 billion ITV deal, creating new opportunities for major U.K. hits.
+---------
+
+# Leonardo DiCaprio & Tobey Maguire Tried To Bury This Movie for 31 Years
+
+Features, Leonardo DiCaprio, Tobey Maguire, Don's Plum, The Curse of Don's Plum
+
+Tue, 07 Jul 2026 21:00:20 GMT
+
+https://movieweb.com/leonardo-dicaprio-tobey-maguire-dons-plum/
+
+After decades of trying to keep audiences from seeing the divisive film, DiCaprio and Maguire's project is now 100% free to stream.
+---------
+
+# Jason Statham's Biggest Ever Action Thriller Makes a Splash on New Streaming Home
+
+Movie News, Jason Statham, The Meg, Coming/Leaving Streaming
+
+Tue, 07 Jul 2026 21:00:20 GMT
+
+https://movieweb.com/jason-statham-the-meg-streaming-hbo-max-july-2026/
+
+This is not your regular Statham action vehicle, but curiously, it is more interesting than an average high-octane feature.
+---------
+
+# The 10 Most Powerful Transformers, Ranked
+
+Movie Lists, Transformers
+
+Tue, 07 Jul 2026 20:30:28 GMT
+
+https://movieweb.com/most-powerful-transformers-ranked/
+
+From Dinobots to planet size robots, who are the strongest Transformers?
+---------
+
+# A24 Fantasy Filmmaker Returns With Award-Winning Supernatural Thriller Adaptation
+
+Movie News, David Lowery, Michael Bay, Alex Ross Perry
+
+Tue, 07 Jul 2026 20:26:51 GMT
+
+https://movieweb.com/the-fisherman-supernatural-thriller-adaptation/
+
+John Langan's 2016 novel 'The Fisherman' will be adapted by David Lowery, Alex Ross Perry, and Michael Bay.
+---------
+
+# Creator of the All-Time Best TV Show Announces Update on Next HBO Project
+
+TV News, David Chase, HBO Max
+
+Tue, 07 Jul 2026 20:26:37 GMT
+
+https://movieweb.com/sopranos-david-chase-hbo-series-mk-ultra/
+
+'The Sopranos' creator David Chase offers new insight into the status of his announced TV series focusing on the MKUltra program.
+---------
+
 # Demon Slayer Just Released Their First Infinity Castle Part 2 Tease, And No One Noticed
 
 Anime, Demon Slayer, Demon Slayer: Kimetsu no Yaiba Infinity Castle
