@@ -1,3 +1,377 @@
+# Demon Slayer Just Released Their First Infinity Castle Part 2 Tease, And No One Noticed
+
+Anime, Demon Slayer, Demon Slayer: Kimetsu no Yaiba Infinity Castle
+
+Tue, 07 Jul 2026 20:18:23 GMT
+
+https://screenrant.com/demon-slayer-infinity-castle-part-2-first-tease/
+
+The Demon Slayer franchise quietly prepares fans for the trilogy's next chapter with a subtle tease for Infinity Castle Part 2 that no one noticed.
+---------
+
+# Netflix's Sherlock Holmes Franchise Returns With 20.7M Debut Despite Viewership Setback
+
+Movies, Sherlock Holmes
+
+Tue, 07 Jul 2026 20:10:43 GMT
+
+https://screenrant.com/netflix-enola-holmes-3-viewership-comparison/
+
+Despite an impressive 20.7 million views in the new movie's first five days, Netflix's Sherlock Holmes franchise returns with a viewership setback.
+---------
+
+# Disney’s $32M Cult Classic Sequel Emerges As New Streaming Hit At The Perfect Time
+
+Movies, Masked Recs, Disney
+
+Tue, 07 Jul 2026 20:07:59 GMT
+
+https://screenrant.com/disney-super-troopers-2-us-hbo-max-streaming-success-july-2026/
+
+Disney is releasing a new cult classic comedy sequel this summer, but until then, its processor is finding success on the streaming charts.
+---------
+
+# Robert Pattinson Compares Christopher Nolan's The Odyssey Role To Twilight's Jacob
+
+Movies, The Odyssey, Twilight
+
+Tue, 07 Jul 2026 20:06:55 GMT
+
+https://screenrant.com/christopher-nolan-the-odyssey-antinous-twilight-comparison-robert-pattinson/
+
+Robert Pattinson compares his role as Antinous in The Odyssey not to his Twilight character, Edward Cullen, but to Taylor Lautner's Jacob.
+---------
+
+# PlayStation’s Latest Update Met With Instant Backlash
+
+Gaming, PlayStation, PlayStation (Original)
+
+Tue, 07 Jul 2026 20:05:37 GMT
+
+https://screenrant.com/playstation-first-post-disc-controversy-backlash/
+
+Fans were prepared to pounce whenever PlayStation decided to rear its head on social media again, cementing their stance on an all-digital future.
+---------
+
+# Returning NCIS Star Wants "Resolution" For Cancelled LA Spinoff's Biggest 5-Year-Old Mystery
+
+TV, NCIS: Los Angeles, NCIS
+
+Tue, 07 Jul 2026 20:01:52 GMT
+
+https://screenrant.com/rncis-franchise-hetty-resolution-hopes-eric-christian-olsen/
+
+NCIS: Los Angeles alum Eric Christian Olsen, who's now an executive producer on Origins, is keen on one of LA's mysteries to be resolved.
+---------
+
+# Marvel Studios' MCU Replacement Beat Avengers: Secret Wars By 29 Years
+
+Classic TV, Masked Recs
+
+Tue, 07 Jul 2026 20:00:22 GMT
+
+https://screenrant.com/spider-man-animated-series-secret-wars-episodes/
+
+Avengers: Secret Wars is one of the MCU's most highly anticipated projects, yet a beloved Marvel series covered this saga almost three decades prior.
+---------
+
+# Avatar Aang: The Last Airbender Cast: Every Actor And Character Confirmed To Appear
+
+Movies, Avatar: The Last Airbender, Avatar Aang: The Last Airbender, Fantasy, Family
+
+Tue, 07 Jul 2026 19:53:23 GMT
+
+https://screenrant.com/avatar-aang-last-airbender-movie-cast-actor-characters/
+
+Meet the voice cast of Avatar Aang: The Last Airbender, including Eric Nam and Steven Yeun. Discover who is playing the iconic Gaang.
+---------
+
+# Game Of Thrones' Secret 6-Episode Season Is One Of The Fantasy Series' Best & Darkest
+
+TV, Game of Thrones
+
+Tue, 07 Jul 2026 19:33:52 GMT
+
+https://screenrant.com/game-of-thrones-telltale-series-hbo-fantasy-show-best/
+
+Game of Thrones ran up until season eight on HBO, but many viewers missed its secret 6-episode season with Kit Harington, Emilia Clarke, and others.
+---------
+
+# Netflix's Global Smash Hit Thriller Was So Good, It Came Back For 4 More Seasons After Being Canceled
+
+Classic TV, Masked Recs
+
+Tue, 07 Jul 2026 19:30:21 GMT
+
+https://screenrant.com/you-netflix-came-back-after-season-1-cancellation/
+
+Netflix has a global smash hit thriller in its library that was going to be canceled after one season, but ended up getting four more seasons.
+---------
+
+# Our Exclusive First Look at Marvel's Upcoming Amazing Spider-Man #1000
+
+CBR Exclusives, Spider-Man, Amazing Spider-Man, Marvel Comics
+
+Tue, 07 Jul 2026 20:19:23 GMT
+
+https://www.cbr.com/our-exclusive-first-look-at-amazing-spider-man-1000/
+
+The historic Spider-Man book drops in September, but you can take a look at some pages right now!
+---------
+
+# Brandon Sanderson returns with a new sci-fi trilogy set in a famiiar universe.
+
+TV, Skyward, Sci-Fi, Brandon Sanderson
+
+Tue, 07 Jul 2026 20:16:27 GMT
+
+https://www.cbr.com/blightfall-brandon-sanderson-riftwake-skyward-cytoverse/
+
+Brandon Sanderson returns with a new sci-fi trilogy set in a familiar universe.
+---------
+
+# 5 Masterpiece Fantasy Anime Series With the Best Magic Systems
+
+Anime, Jujutsu Kaisen, Fullmetal Alchemist: Brotherhood, Black Clover
+
+Tue, 07 Jul 2026 20:15:15 GMT
+
+https://www.cbr.com/5-masterpiece-fantasy-anime-series-with-the-best-magic-systems/
+
+From rigid spellcraft to limitless sorcery, these fantasy anime feature the most compelling, well-crafted magic systems ever created.
+---------
+
+# Spider-Man Franchise Fan Favorite Confirms Brand New Day Absence: 'I Ain't in It'
+
+Movies, Spider-Man: Brand New Day
+
+Tue, 07 Jul 2026 20:14:42 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-jk-simmons-j-jonah-jameson/
+
+A major Spider-Man star claims to have zero presence in the upcoming movie Brand New Day.
+---------
+
+# McDonald's Releases 6 New Cinnamoroll Happy Meal Toys for July 2026
+
+Anime, sanrio, Hello Kitty, mcdonald's, merchandise, toys, collectibles
+
+Tue, 07 Jul 2026 20:05:12 GMT
+
+https://www.cbr.com/mcdonalds-sanrio-cinnamoroll-happy-meal-toys-july-2026/
+
+The newest Sanrio fast food collaboration will put Cinnamoroll center stage, giving Happy Meal fans several cafe-themed toys to collect.
+---------
+
+# Ben Affleck's 149-Minute Thriller, Now on Netflix, Is Still His Greatest Performance Ever
+
+Movies, Ben Affleck, Gone Girl, david fincher
+
+Tue, 07 Jul 2026 20:00:14 GMT
+
+https://www.cbr.com/ben-affleck-gone-girl-best-performance-thriller-netflix/
+
+Some of Ben Affleck's best performances occur in movies of his own making, but his best acting role was in a film he never directed.
+---------
+
+# Marvel Officially Reveals Skaar's New Look After His Hulk Debut
+
+Comics, Hulk, skaar
+
+Tue, 07 Jul 2026 20:00:14 GMT
+
+https://www.cbr.com/infernal-hulk-8-skaar-new-look/
+
+The son of the Hulk returns!
+---------
+
+# Robert Pattinson Compares The Odyssey Character to Twilight's Jacob
+
+Movies, The Odyssey, robert pattinson, The Twilight Saga
+
+Tue, 07 Jul 2026 19:48:33 GMT
+
+https://www.cbr.com/robert-pattinson-compares-the-odyssey-antinous-twilight-jacob/
+
+Almost a decade and a half later, Robert Pattinson gets pulled into another high-profile love triangle.
+---------
+
+# Jurassic Park Meets Yellowstone in Trailer for Primitive War Director's New Series
+
+Movies
+
+Tue, 07 Jul 2026 19:22:34 GMT
+
+https://www.cbr.com/dinosaurs-of-the-wild-west-trailer/
+
+Dinosaurs and cowboys co-exist in the next project from the director of Primitive War.
+---------
+
+# Apple TV's New Thriller Is the Closest TV Has Come to Hannibal in Years
+
+TV, Cape Fear, Hannibal, Apple TV
+
+Tue, 07 Jul 2026 19:01:12 GMT
+
+https://www.cbr.com/apple-tv-cape-fear-hannibal-replacement/
+
+One of the most iconic psychological thriller villains ever has returned in a new Apple TV series that has drawn comparisons to NBC's Hannibal.
+---------
+
+# New Marvel Trailer Officially Brings Apocalypse to the Multiverse in Spectacular Fashion
+
+Gaming News, Marvel, MCU, Marvel Studios, X-Men '97
+
+Tue, 07 Jul 2026 20:12:08 GMT
+
+https://collider.com/marvel-rivals-mystery-of-thebes-trailer-apocalypse-jubilee-the-hood/
+
+The Age of Apocalypse has begun in Marvel Rivals, with Jubilee and The Hood confirmed as the hit game's newest characters.
+---------
+
+# Every Tame Impala Studio Album, Ranked
+
+Music News, Music, Rock, EDM, Lists
+
+Tue, 07 Jul 2026 20:00:15 GMT
+
+https://collider.com/every-tame-impala-album-ranked/
+
+From Innerspeaker to Lonerism to Currents and Deadbeat, the definitive ranking of every Tame Impala studio album.
+---------
+
+# 10 Network TV Storylines That Would Never Air Today
+
+TV, How I Met Your Mother, Three's Company, Growing Pains, Sitcom
+
+Tue, 07 Jul 2026 19:44:13 GMT
+
+https://collider.com/controversial-network-tv-storylines-never-air-today/
+
+From Barney preying on women in How I Met Your Mother to the fat jokes in Growing Pains, these network TV storylines would never air today.
+---------
+
+# Marvel's R-Rated Sequel Is an Instant Hit on Rival Streamer
+
+Movie News, Deadpool 2, HBO Max, Ryan Reynolds, Marvel
+
+Tue, 07 Jul 2026 19:30:12 GMT
+
+https://collider.com/deadpool-2-hbo-max-top-10-ryan-reynolds/
+
+Ryan Reynolds' hit Marvel sequel Deadpool 2 has quickly climbed its way onto HBO Max's domestic top 10 list.
+---------
+
+# The Joker’s Fate After ‘The Dark Knight’ Was Never Told on Screen, but This Shadowy Novel Hints at the Truth
+
+Movie Features, The Dark Knight, The Dark Knight Rises, Heath Ledger, Christopher Nolan
+
+Tue, 07 Jul 2026 19:24:14 GMT
+
+https://collider.com/dark-knight-rises-joker-fate-heath-ledger-ending/
+
+The Dark Knight Rises never reveals what happened to Heath Ledger's Joker—but its official novelization offers a haunting answer fans may have missed.
+---------
+
+# 29 Years Later, 'South Park' Is Finally Fixing Its Biggest Problem
+
+TV Features, South Park, Trey Parker, Matt Stone, Paramount Plus
+
+Tue, 07 Jul 2026 19:22:15 GMT
+
+https://collider.com/south-park-season-29-release-schedule-change/
+
+South Park is addressing its inconsistent release schedule with Season 29, moving to a bi-weekly format that will keep it timely and fans engaged.
+---------
+
+# The Highest-Rated Minions Movie Officially Opens With the Lowest Box Office
+
+Movie News, Minions & Monsters, Despicable Me, Illumination, Animation
+
+Tue, 07 Jul 2026 19:00:13 GMT
+
+https://collider.com/minions-and-monsters-box-office-despicable-me-franchise-low/
+
+Minions & Monsters, the latest installment in the Despicable Me franchise, opened to the lowest box office debut in the series' history.
+---------
+
+# The Best Assassin’s Creed RPG Is Officially Free To Play
+
+Gaming News, Assassin's Creed Origins, Assassin's Creed IV: Black Flag, Ubisoft, Assassin's Creed
+
+Tue, 07 Jul 2026 18:40:13 GMT
+
+https://collider.com/assassins-creed-origins-free-download-july-2026/
+
+The most overlooked Assassin's Creed of the RPG era is now free to play before the launch of Black Flag Resynced, but there's a catch.
+---------
+
+# Forget 'Marshals': Taylor Sheridan's Long-Awaited Action Thriller Returns in August
+
+Features, Taylor Sheridan, Marshals, Lioness
+
+Tue, 07 Jul 2026 20:00:21 GMT
+
+https://movieweb.com/taylor-sheridan-lioness-season-3-august/
+
+2025 came and went without any episode of this action thriller, but Taylor Sheridan's biggest sleeper hit is back soon.
+---------
+
+# 'Power Rangers' Icon's Final Acting Role Posthumously Revealed in Sci-Fi Action Trailer
+
+Movie News, Legend of the White Dragon
+
+Tue, 07 Jul 2026 19:55:34 GMT
+
+https://movieweb.com/jason-david-frank-legend-of-the-white-dragon-trailer-release-date/
+
+A 'Power Rangers' icon's much-anticipated passion project hits theaters on the most important day for the fandom.
+---------
+
+# Ridley Scott Teams Up With Director of All-Time Best 'Godzilla' Movie for New Epic
+
+Movie News, Ridley Scott, Godzilla Minus One
+
+Tue, 07 Jul 2026 19:06:50 GMT
+
+https://movieweb.com/ridley-scott-godzilla-minus-one-nue/
+
+We know almost nothing about 'Nue,' but if the director of 'Godzilla Minus One' is excited about it, count us in.
+---------
+
+# Dwayne Johnson Finds His Next Action Movie From Ben Affleck & Matt Damon
+
+Movie News, Dwayne Johnson, Ben Affleck, Matt Damon
+
+Tue, 07 Jul 2026 18:55:26 GMT
+
+https://movieweb.com/dwayne-johnson-free-byrd-movie/
+
+The new movie 'Free Byrd' will have Johnson playing a motorcycle stuntman attempting to hide his dementia diagnosis.
+---------
+
+# 'Harold & Kumar 4' Finally Gets the High-Flying Update 15 Years in the Making
+
+Movie News, Harold & Kumar 4
+
+Tue, 07 Jul 2026 18:38:14 GMT
+
+https://movieweb.com/harold-and-kumar-4-update/
+
+The Academy Award-winning producer Greg Shapiro hopes to start shooting 'Harold & Kumar 4' soon.
+---------
+
+# Johnny Depp's $654M Action-Adventure Classic Officially Dethroned by Long-Awaited Sequel at Box Office
+
+Movie News, Toy Story 5, Pirates of the Caribbean: The Curse of the Black Pearl, Toy Story, Johnny Depp, Pirates of the Caribbean
+
+Tue, 07 Jul 2026 18:30:19 GMT
+
+https://movieweb.com/toy-story-5-beats-pirates-caribbean-box-office-global/
+
+Disney's latest sequel has now outpaced Johnny Depp's first swashbuckling epic, which is a massive box office success in its own right.
+---------
+
 # The Odyssey Interviews with Christopher Nolan & Matt Damon
 
 Videos, The Odyssey, Christopher Nolan, Matt Damon
