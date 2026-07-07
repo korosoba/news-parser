@@ -1,3 +1,256 @@
+# Smallville Star's New HBO Crime Series Officially Casts Oscar Winner In Lead Role
+
+TV, HBO
+
+Tue, 07 Jul 2026 23:44:10 GMT
+
+https://screenrant.com/hbo-dorothea-geena-davis-casting-confirmed/
+
+A Smallville star's new HBO crime series officially casts an Oscar winner in the lead role as one of the most notorious serial killers.
+---------
+
+# Angelina Jolie's Record-Breaking New Movie Debuts To Disappointing Rotten Tomatoes Score
+
+Movies, Masked Recs
+
+Tue, 07 Jul 2026 23:30:49 GMT
+
+https://screenrant.com/couture-2026-rotten-tomatoes-audience-score-debut/
+
+Angelina Jolie is back with a new movie this year, and while notable in some key ways, its Rotten Tomatoes debut is highly disappointing.
+---------
+
+# The Lord Of The Rings Officially Retcons Peter Jackson's Trilogy
+
+Movies, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings
+
+Tue, 07 Jul 2026 23:30:21 GMT
+
+https://screenrant.com/lord-of-the-rings-hunt-for-gollum-retcon-peter-jackson-trilogy/
+
+The Lord of the Rings: The Hunt for Gollum is going to change a lot about Peter Jackson's original trilogy, and it could repeat The Hobbit's mistake.
+---------
+
+# How DC's $2.46 Billion Superhero Franchise Shocked Star In Crazy Audition Twist
+
+Movies, Masked Recs, DC Universe
+
+Tue, 07 Jul 2026 23:13:55 GMT
+
+https://screenrant.com/the-dark-knight-rises-anne-hathaway-catwoman-harley-quinn-audition/
+
+As a major Hollywood star boarded one of DC's billion-dollar superhero franchises, the actor ended up having a very surprising audition process.
+---------
+
+# The Original Green Ranger's Final Role Is Officially Coming To Theaters In A New Sci-Fi Movie
+
+Movies, Masked Recs
+
+Tue, 07 Jul 2026 23:08:54 GMT
+
+https://screenrant.com/jason-david-frank-legend-of-the-white-dragon-release-august-28/
+
+Four years after the tragic passing of Jason David Frank, the OG Green Ranger actor's epic sci-fi movie is finally hitting theaters.
+---------
+
+# The Real Villain Of Obsession Reverses Defense Of "Awful" Character
+
+Movies, Obsession, Michael Johnston, Horror
+
+Tue, 07 Jul 2026 23:00:20 GMT
+
+https://screenrant.com/obsession-movie-2026-bear-defense-reversed-michael-johnston/
+
+Michael Johnston talks Obsession's record-breaking box office run and reverses his defense of the the movie's "awful" character and real villain.
+---------
+
+# Nicole Kidman's Trending 8-Part Apple TV Series Is Far Better Than Her Recent Movies
+
+Streaming TV, Masked Recs
+
+Tue, 07 Jul 2026 23:00:20 GMT
+
+https://screenrant.com/nicole-kidman-margos-got-money-troubles-apple-tv-better-recent-movies/
+
+While Nicole Kidman's recent feature films haven't made much of a pop culture splash, the same can't be said of her recent Apple TV series.
+---------
+
+# Aang: The Last Airbender Just Set Up A Massive Korra Retcon That Could Change Avatar Forever
+
+Anime, Avatar Aang: The Last Airbender, Avatar: The Last Airbender, The Legend of Korra
+
+Tue, 07 Jul 2026 23:00:20 GMT
+
+https://screenrant.com/aang-the-last-airbender-just-set-up-a-massive-korra-retcon-that-could-change-avatar-forever/
+
+The first full trailer for Avatar Aang: The Last Airbender hints at a story that could reshape one of the biggest pieces of The Legend of Korra lore.
+---------
+
+# Game of Thrones: Dragonfire Bonus Content Officially Available Now
+
+Games, Game Of Thrones, House of the Dragon
+
+Tue, 07 Jul 2026 23:47:57 GMT
+
+https://www.cbr.com/game-of-thrones-dragonfire-bonus-content/
+
+New content officially drops for Game of Thrones: Dragonfire.
+---------
+
+# Spider-Man: Brand New Day Officially Reveals Hot Toys Spider-Man
+
+Games, Spider-Man: Brand New Day
+
+Tue, 07 Jul 2026 23:35:13 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-official-reveals-hot-toys-spider-man/
+
+Fans just got their first look at the next awe-striking Hot Toys Spider-Man: Brand New Day sculpt, and the Wall-Crawler has never looked better.
+---------
+
+# Mary Hartman, Mary Hartman Star Louise Lasser Dies at 87
+
+TV, Mary Hartman, Mary Hartman, obituary
+
+Tue, 07 Jul 2026 23:13:06 GMT
+
+https://www.cbr.com/louise-lasser-dead/
+
+Louise Lasser was also known for being the first leading lady for a feature film directed by ex-husband Woody Allen.
+---------
+
+# Paramount+ Quietly Cancels Dutton Ranch Season 2's Key Storyline
+
+TV, Yellowstone, Dutton Ranch
+
+Tue, 07 Jul 2026 23:01:12 GMT
+
+https://www.cbr.com/dutton-ranch-season-1-finale-cancel-carter-oreana-story/
+
+Dutton Ranch Season 1's finale on Paramount+ quietly cancels one of the most promising stories for Season 2, true to form for Yellowstone.
+---------
+
+# Apex Legends Officially Reveals New Cyberpunk: Edgerunners Crossover Event
+
+Anime, Cyberpunk: Edgerunners, Cyberpunk 2077, Apex Legends
+
+Tue, 07 Jul 2026 23:01:12 GMT
+
+https://www.cbr.com/apex-legends-cyberpunk-edgerunners-crossover/
+
+Cyberpunk: Edgerunners joins Apex Legends this July with limited-time character skins, weapons, mods, and more in a new crossover event.
+---------
+
+# 6 Fantasy Movies That Are a Masterclass in Worldbuilding
+
+Movies, Fantasy, The Lord of the Rings, Harry Potter
+
+Tue, 07 Jul 2026 23:01:12 GMT
+
+https://www.cbr.com/fantasy-movies-with-best-worldbuilding-list/
+
+The fantasy genre often includes new worlds full of wonder, but these six fantasy movies are an absolute masterclass in the art of worldbuilding.
+---------
+
+# Taylor Sheridan's Next Project Is Breaking a Major Tradition for the 'Yellowstone' Creator
+
+TV News, Taylor Sheridan, Yellowstone, Western, Landman
+
+Tue, 07 Jul 2026 23:45:13 GMT
+
+https://collider.com/taylor-sheridan-new-series-the-laird-scotland-filming/
+
+Taylor Sheridan is reportedly leaving the U.S. behind to film a brand-new series in Scotland, which is expected to be another big hit for Paramount+.
+---------
+
+# HBO Is Officially Setting Up a Colossal Targaryen Betrayal After ‘Game of Thrones’
+
+TV Features, House of the Dragon, Game Of Thrones, HBO Max, Steve Toussaint
+
+Tue, 07 Jul 2026 23:42:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-corlys-betrays-rhaenyra-game-of-thrones/
+
+After Rhaenyra rejected Corlys' request to legitimize his sons, brewing animosity between the Targaryens, which will lead to even more death.
+---------
+
+# The Most Highly Anticipated Fantasy Sequel Finally Gets an Update After 13 Years of Silence
+
+Books and Comics News, Brandon Sanderson, Apple TV, The Stormlight Archive, The Wheel of Time
+
+Tue, 07 Jul 2026 23:30:13 GMT
+
+https://collider.com/brandon-sanderson-the-rithmatist-sequel-the-aztlanian-update/
+
+Brandon Sanderson assures fans that the sequel to one of his beloved fantasy works will be published, though a release date remains uncertain.
+---------
+
+# 'Dutton Ranch' Is Risking a Major 'Yellowstone' Mistake After Its Season 1 Finale Betrayal
+
+TV Features, Dutton Ranch, Yellowstone, Cole Hauser, Kelly Reilly
+
+Tue, 07 Jul 2026 23:18:13 GMT
+
+https://collider.com/dutton-ranch-season-finale-joaquin-betrayal-yellowstone-mistake/
+
+Dutton Ranch risks falling into Yellowstone's narrative pitfalls as Joaquin's Season 1 finale betrayal mirrors Jamie's storyline.
+---------
+
+# HBO’s 8-Part Murder Mystery Masterpiece Skyrockets to Major Success 10 Years Later
+
+TV News, The Night Of, John Turturro, Riz Ahmed, HBO
+
+Tue, 07 Jul 2026 23:15:14 GMT
+
+https://collider.com/hbo-murder-mystery-masterpiece-the-night-of-streaming-success-itunes-july-2026/
+
+One of the greatest murder mystery shows of the decade, The Night Of, is being rediscovered on digital platforms a decade after its run.
+---------
+
+# This Divisive Sci-Fi Is Steven Spielberg's True Masterpiece 25 Years Later
+
+Movie Features, Steven Spielberg, Stanley Kubrick, A.I. Artificial Intelligence, Disclosure Day
+
+Tue, 07 Jul 2026 23:15:14 GMT
+
+https://collider.com/steven-spielberg-ai-artificial-intelligence-kubrick/
+
+Steven Spielberg left Harry Potter to complete Stanley Kubrick's A.I.: Artificial Intelligence—a sci-fi classic that's only grown more relevant.
+---------
+
+# 'Dutton Ranch's Rising Star Teases a Big Change for the Taylor Sheridan Series
+
+TV News, Dutton Ranch, Taylor Sheridan, Paramount Plus, Western
+
+Tue, 07 Jul 2026 23:00:13 GMT
+
+https://collider.com/taylor-sheridan-dutton-ranch-season-2-update-natalie-alyn-lind/
+
+The future of Taylor Sheridan's Dutton Ranch has already been confirmed, and a fan favorite has teased big plans for her beloved character.
+---------
+
+# New 'NCIS' Spin-Off Officially Gets Casting Boost With 'Star Wars' Star
+
+TV News, NCIS, Jennifer Beals
+
+Tue, 07 Jul 2026 23:43:28 GMT
+
+https://movieweb.com/ncis-new-york-cast-jennifer-beals/
+
+The next chapter in the 'NCIS' story will now include a major player from one of Star Wars' biggest streaming series.
+---------
+
+# Netflix's 85-Minute Original Action Thriller Is Officially One of the Biggest Streaming Hits Ever
+
+Movie News, Netflix, Action, Thriller
+
+Tue, 07 Jul 2026 23:00:18 GMT
+
+https://movieweb.com/netflix-counterstrike-most-watched-ever-stream-action/
+
+It's like five John Wicks versus the cartel.
+---------
+
 # KPop Demon Hunters Meets Buffy In Netflix’s 100% RT Fantasy Series
 
 TV, Masked Recs
