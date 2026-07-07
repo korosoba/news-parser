@@ -1,3 +1,399 @@
+# Tom Holland Is Already Manifesting His Next Big Role After Spider-Man & The Odyssey
+
+Movies, The Odyssey, Tom Holland
+
+Tue, 07 Jul 2026 16:08:22 GMT
+
+https://screenrant.com/tom-holland-role-manifest-the-odyssey-telemachus-future/
+
+EXCLUSIVE: The Odyssey and Spider-Man: Brand New Day star Tom Holland is already looking to his next massive role after his upcoming 2026 movies.
+---------
+
+# It’s The End Of An Era For ABC’s Longest-Running Show
+
+Network TV, Grey's Anatomy
+
+Tue, 07 Jul 2026 16:00:20 GMT
+
+https://screenrant.com/greys-anatomy-end-era-abc/
+
+ABC's legacy series that has been on the air for over two decades have officially ended an era after over 460 episodes.
+---------
+
+# The Blood of the Dawnwalker Hands-On Preview: Tastes Like The Next Witcher Killer
+
+Gaming
+
+Tue, 07 Jul 2026 16:00:20 GMT
+
+https://screenrant.com/blood-of-the-dawnwalker-preview-vampire-action-rpg/
+
+Within the game's first hours, player's will see experience branching plotlines & combat that is even more varied than the best action RPGs around.
+---------
+
+# Christopher Nolan's Breakout Movie Needs To Be Seen On Netflix Ahead Of The Odyssey
+
+Movies, Memento, Christopher Nolan, Recommendation
+
+Tue, 07 Jul 2026 15:50:22 GMT
+
+https://screenrant.com/memento-christopher-nolan-breakout-movie-netflix/
+
+Before The Odyssey hits theaters, it's worth checking out Christopher Nolan's Memento on Netflix, as it shows his ability to tell a non-linear story.
+---------
+
+# Netflix's New Friday Night Lights Replacement Unveils First Look & Official Release Date
+
+TV, Netflix
+
+Tue, 07 Jul 2026 15:49:44 GMT
+
+https://screenrant.com/netflix-crew-girl-images-release-date-details/
+
+Netflix is weeks away from debuting a brand-new sports TV show, and the popular streamer has now revealed the release date and first-look images.
+---------
+
+# BBC's New Harry Potter-esque Series Is Officially Renewed For Season 2
+
+TV
+
+Tue, 07 Jul 2026 15:48:25 GMT
+
+https://screenrant.com/bbc-crookhaven-season-2-renewal-confirmed/
+
+BBC is charging ahead with its hit drama series, which carries echoes of Harry Potter in both its central setting, characters, and themes.
+---------
+
+# Sean Bean's Gritty New Fantasy Series Gets An Exciting Season 2 Filming Update
+
+TV, Robin Hood, Sean Bean, MGM+
+
+Tue, 07 Jul 2026 15:47:40 GMT
+
+https://screenrant.com/sean-bean-robin-hood-season-2-filming-update/
+
+Exclusive: Sean Bean offers an exciting filming update on season 2 of his gritty new fantasy series after it became a smash hit last year.
+---------
+
+# DC Studios Already Has The Perfect Absolute Batman
+
+Comics, Absolute Batman, DC Universe
+
+Tue, 07 Jul 2026 15:30:20 GMT
+
+https://screenrant.com/dc-studios-has-perfect-absolute-batman-animated-series-actor-aleks-le/
+
+Although an animated Absolute Batman series was only just announced by DC Studios, one actor actually auditioned for the role months ago.
+---------
+
+# PlayStation Facing $450 Million Lawsuit Following Physical Media Announcement
+
+Gaming, PlayStation, Gaming Hardware
+
+Tue, 07 Jul 2026 15:28:44 GMT
+
+https://screenrant.com/playstation-450-million-lawsuit-physical-media/
+
+PlayStation recently announced that it was ending physical game disc production in 2028, and a lawsuit is no seeking compensation for affected users.
+---------
+
+# An Underrated Western Masterpiece Is Quietly Taking Over Netflix Charts
+
+Movies, Masked Recs
+
+Tue, 07 Jul 2026 15:25:55 GMT
+
+https://screenrant.com/old-henry-movie-western-netflix-streaming-success-july-2026/
+
+After initially under the radar in theaters, a modern Western masterpiece is now being discovered on Netflix and is climbing the top 10 chart.
+---------
+
+# 10 Perfect Anime Series That Are 20 Episodes or Less
+
+Anime, Odd Taxi, Cyberpunk: Edgerunners
+
+Tue, 07 Jul 2026 16:15:12 GMT
+
+https://www.cbr.com/perfect-short-anime-series-20-episodes-or-less/
+
+Anime is a medium where less can be more, with titles like Odd Taxi and Ping Pong the Animation achieving perfection with limited episode counts.
+---------
+
+# George Lucas Just Returned to Sci-Fi 21 Years Later
+
+Movies, george lucas, Minions & Monsters, Sci-Fi
+
+Tue, 07 Jul 2026 16:00:14 GMT
+
+https://www.cbr.com/george-lucas-star-wars-sci-fi-return-minions-monsters/
+
+More than two decades after Star Wars: Episode III -- Revenge of the Sith, George Lucas has finally returned to sci-fi.
+---------
+
+# 10 Marvel Mutants Who Could Defeat the Avengers
+
+Comics, Marvel, X-Men, Avengers
+
+Tue, 07 Jul 2026 16:00:14 GMT
+
+https://www.cbr.com/best-marvel-mutants-stronger-than-the-avengers-list/
+
+These supremely powerful Marvel mutants are able to take on the Earth's Mightiest heroes and win.
+---------
+
+# 31 Years Later, Star Trek's Darkest Episode Still Has the Best Space Battle in Sci-Fi History
+
+TV, Star Trek: Deep Space Nine, Star Trek, Sci-Fi
+
+Tue, 07 Jul 2026 16:00:14 GMT
+
+https://www.cbr.com/star-trek-ds9-way-of-the-warrior-epic-sci-fi-space-battle/
+
+With each passing moment, the stakes grow higher and the consequences more dire in this unforgettable Star Trek battle.
+---------
+
+# Jason David Frank's Final Role Revealed in Legend of the White Dragon Trailer (Exclusive)
+
+CBR Exclusives, Legend of the White Dragon, Power Rangers, Mighty Morphin Power Rangers
+
+Tue, 07 Jul 2026 16:00:14 GMT
+
+https://www.cbr.com/legend-of-the-white-dragon-trailer-jason-david-frank/
+
+Fans just got their best look yet at the long-awaited Legend of the White Dragon starring the late, great Power Rangers icon Jason David Frank.
+---------
+
+# DC Reveals Brainiac's New Look Ahead of Man of Tomorrow
+
+Comics, DC Comics, Man of Tomorrow
+
+Tue, 07 Jul 2026 16:00:14 GMT
+
+https://www.cbr.com/dc-comics-brainiac-supergirl-survive-first-look/
+
+With the Superman sequel on the horizon, DC is giving fans a sneak peek at Brainiac's new look.
+---------
+
+# Arnold Schwarzenegger's $519M Sci-Fi Action Sequel Sets New Release Next Month
+
+Movies, Terminator 2: Judgment Day, Terminator, Sci-Fi
+
+Tue, 07 Jul 2026 15:52:19 GMT
+
+https://www.cbr.com/terminator-2-in-theaters-august-2026/
+
+Arnold Schwarzenegger's star-making sci-fi blockbuster returns to theaters.
+---------
+
+# 10 Most Powerful Cowboy Bebop Moments That Chose Silence Over Exposition
+
+Anime, Cowboy Bebop
+
+Tue, 07 Jul 2026 15:15:12 GMT
+
+https://www.cbr.com/cowboy-bebop-most-powerful-emotional-moments/
+
+Cowboy Bebop remains one of the greatest anime of all time because it knew when to choose emotional silence over lengthy exposition.
+---------
+
+# A Controversial Marvel Rumor May See Digital Comics Land A New Home
+
+Comics, Marvel, Marvel Comics, MCU
+
+Tue, 07 Jul 2026 15:00:13 GMT
+
+https://www.cbr.com/marvel-rumor-digital-comics-get-new-home/
+
+A new report involving Marvel Comics and DC Comics has the internet in a panic.
+---------
+
+# 5 Shonen Protagonists Who Could Beat Sung Jinwoo
+
+Anime, Solo Leveling, Dragon Ball Z, One Punch Man
+
+Tue, 07 Jul 2026 15:00:13 GMT
+
+https://www.cbr.com/shonen-protagonists-who-could-beat-sung-jinwoo/
+
+Sung Jinwoo is the strongest character in Solo Leveling, but if he were to encounter any of these shonen protagonists, he'd be in big trouble.
+---------
+
+# Quentin Tarantino’s Final Movie Gets Major Production Update After 7 Year Delay
+
+Movie News, Quentin Tarantino, Robert Richardson, The Adventures of Cliff Booth, Once Upon a Time in Hollywood
+
+Tue, 07 Jul 2026 16:20:13 GMT
+
+https://collider.com/quentin-tarantino-final-movie-production-update-robert-richardson/
+
+Quentin Tarantino is currently working on a play, but he'll devote himself fully to his final film soon, his cinematographer Robert Richardson said.
+---------
+
+# After Gibbs’ Return, ‘NCIS’ Is Officially Bringing Back Another Legendary Franchise Icon
+
+TV Features, NCIS, Mark Harmon, Michael Weatherly, Series
+
+Tue, 07 Jul 2026 16:19:14 GMT
+
+https://collider.com/after-gibbs-ncis-michael-weatherly-return-season-24-tony-dinozzo/
+
+Michael Weatherly’s return as Tony DiNozzo marks another major legacy move for NCIS and could reshape Season 24.
+---------
+
+# Kevin Costner's Most Ambitious Western is Returning With a Twist
+
+Movie News, Kevin Costner, Dances With Wolves, Western, 4k
+
+Tue, 07 Jul 2026 16:00:14 GMT
+
+https://collider.com/kevin-costner-dances-with-wolves-4k-restoration/
+
+Kevin Costner's epic Western Dances with Wolves is set to return with a 4K extended edition restoration, premiering at the Locarno Film Festival.
+---------
+
+# Common Knows What It Takes To Change the World
+
+Collider Signature, Common, Silo, Apple TV, Sci-Fi
+
+Tue, 07 Jul 2026 16:00:14 GMT
+
+https://collider.com/common-silo-season-3-actor-rapper-career-interview/
+
+Common opens up about Apple TV's Silo Season 3, his music, acting career, activism, and the purpose that continues to guide his work.
+---------
+
+# Apple TV Officially Orders New True-Crime Series Adaptation With Julia Garner
+
+TV News, Julia Garner, Apple TV, Supergirl, Craig Gillespie
+
+Tue, 07 Jul 2026 15:40:46 GMT
+
+https://collider.com/julia-garner-next-big-role-apple-tv-thriller-series-based-on-book-guilty-creatures/
+
+Emmy winner Julia Garner takes on a new role in Apple TV's upcoming thriller series based on Mikita Brottman's acclaimed true-crime book.
+---------
+
+# ‘Primitive War’ Director Officially Returns With New Dinosaur Western Series
+
+TV News, Primitive War, Kickstarter, Western, Action
+
+Tue, 07 Jul 2026 15:00:13 GMT
+
+https://collider.com/dinosaurs-of-the-wild-west-kickstarter-launch-trailer/
+
+Dinosaurs of the Wild West, a new project from the creators of Primitive War, has launched its Kickstarter. Here's how to get involved.
+---------
+
+# Paramount+ Officially Sets New Release Date for ‘Avatar’ Movie
+
+Movie News, The Legend of Aang: The Last Airbender, Avatar: The Last Airbender, Paramount Plus
+
+Tue, 07 Jul 2026 15:00:13 GMT
+
+https://collider.com/avatar-aang-the-last-airbender-release-date-july-25-first-trailer/
+
+Paramount has released the first trailer for Avatar Aang: The Last Airbender, confirming that the film has been bumped up to July 25.
+---------
+
+# Apple TV's 'The Fall' Replacement Will Become Your New Crime Obsession After Stunning First Look
+
+TV News, Stephen Graham, Liev Schreiber, Zazie Beetz, Apple TV
+
+Tue, 07 Jul 2026 14:13:56 GMT
+
+https://collider.com/apple-tv-nocturne-first-look-liev-schreiber-stephen-graham-zazie-beetz/
+
+Apple TV has unveiled a first look at Nocturne, a new crime drama starring Liev Schreiber, Zazie Beetz, and Stephen Graham.
+---------
+
+# Apple TV's Epic Sci-Fi Adaptation Beats Star Wars at Its Own Game
+
+Features, Foundation, Star Wars
+
+Tue, 07 Jul 2026 16:01:20 GMT
+
+https://movieweb.com/foundation-better-clones-star-wars/
+
+'Foundation' makes use of a very specific sci-fi trope that Star Wars helped popularize. Read on for more.
+---------
+
+# Matt Damon's Controversial Action Epic Lands on Free Streaming
+
+Movie News, The Great Wall, Tubi, Hot on Streaming, Action
+
+Tue, 07 Jul 2026 16:01:20 GMT
+
+https://movieweb.com/the-great-wall-streaming-free-tubi-july-2026-action/
+
+Matt Damon's forgotten action epic caused a lot of controversy, and tanked at the box office. But it's now streaming for free.
+---------
+
+# 'House of the Dragon' Finally Fixes Its Biggest Rhaenyra & Alicent Problem
+
+TV Shows, House of the Dragon, Game of Thrones
+
+Tue, 07 Jul 2026 15:49:51 GMT
+
+https://movieweb.com/house-of-the-dragon-alicent-rhaenrya-problem-fixed/
+
+Scenes between Rhaenyra Targaryen and Alicent Hightower are suddenly way more enjoyable.
+---------
+
+# The Greatest Action Sci-Fi Thriller of All Time Sets New Release 35 Years Later
+
+Movie News, Terminator 2: Judgment Day, Terminator 2, Terminator
+
+Tue, 07 Jul 2026 15:40:39 GMT
+
+https://movieweb.com/terminator-2-judgment-day-theatrical-rerelease-35th-anniversary/
+
+James Cameron's sci-fi action masterpiece, 'Terminator 2: Judgment Day,' is returning to theaters to commemorate the movie's 35th anniversary.
+---------
+
+# 'Dinosaurs of the Wild West' Sci-Fi Western Trailer
+
+Movie News, Sci-Fi, Western, Primitive War, Luke Sparke
+
+Tue, 07 Jul 2026 15:03:26 GMT
+
+https://movieweb.com/dinosaurs-of-the-wild-west-trailer/
+
+Cowboys and dinosaurs coexist in the first trailer for the bold new sci-fi Western universe from the director of 'Primitive War'.
+---------
+
+# Next Addictive Streaming Crime Thriller Arrives in First Look at Stephen Graham's New Series
+
+TV News, Apple TV, Stephen Graham, Liev Schreiber
+
+Tue, 07 Jul 2026 14:36:15 GMT
+
+https://movieweb.com/apple-tv-nocturne-stephen-graham-release-date-first-look/
+
+Stephen Graham is a serial killer in the star-studded Apple TV crime thriller.
+---------
+
+# 10 Best Telenovelas on Netflix
+
+TV Lists, Netflix
+
+Tue, 07 Jul 2026 14:00:19 GMT
+
+https://movieweb.com/telenovelas-on-netflix/
+
+If you haven't already watched these telenovelas on Netflix, it's time to add them to your list.
+---------
+
+# 'House of the Dragon' Season 2 Is Finally Over
+
+Features, House of the Dragon
+
+Tue, 07 Jul 2026 14:00:18 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-finally-begins/
+
+Maybe the real ending is the friends we made along the way.
+---------
+
 # Walton Goggins Reveals The Ghoul’s Fallout Season 3 Return In Major Filming Update
 
 TV, Fallout
