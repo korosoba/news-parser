@@ -1,3 +1,256 @@
+# KPop Demon Hunters Meets Buffy In Netflix’s 100% RT Fantasy Series
+
+TV, Masked Recs
+
+Tue, 07 Jul 2026 22:45:20 GMT
+
+https://screenrant.com/jentry-chau-vs-the-underworld-like-kpop-demon-hunters-buffy/
+
+This unexpected choice blends KPop Demon Hunters and Buffy the Vampire Slayer in a killer Netflix series that's criminally underrated 2 years later.
+---------
+
+# Netflix's Jurassic Park Series With Glen Powell Officially Gives The Dinosaur Franchise A Full Shared Universe
+
+TV, Masked Recs
+
+Tue, 07 Jul 2026 22:31:39 GMT
+
+https://screenrant.com/jurassic-world-camp-cretaceous-netflix-shared-universe/
+
+Netflix's 5-part Jurassic Park series with Glen Powell, Jenna Ortega, and more shows how the dinosaur shared universe needs to keep looking to TV.
+---------
+
+# Titus Welliver Confirms Bosch's Episode Count In Upcoming Prime Video Return
+
+TV, Ballard, Bosch, Titus Welliver, Prime Video
+
+Tue, 07 Jul 2026 22:30:21 GMT
+
+https://screenrant.com/ballard-season-2-bosch-return-episode-count-titus-welliver/
+
+Exclusive: Titus Welliver teases Bosch's return in Ballard season 2 and confirms how many episodes his iconic character will appear in the show.
+---------
+
+# Jaws Meets The Magnificent Seven In This Trending Horror On Paramount+
+
+Movies, Masked Recs
+
+Tue, 07 Jul 2026 22:30:21 GMT
+
+https://screenrant.com/tremors-movie-paramount-streaming-trending-jaws-magnificent-seven/
+
+There's a horror film climbing the streaming charts on Paramount+, and if you're a fan of Jaws and Western films, you'll love this monster movie.
+---------
+
+# 30 Years Later, the Greatest Opening Scene In Fiction Is Still Unmatched
+
+Books, Sci-Fi
+
+Tue, 07 Jul 2026 22:30:21 GMT
+
+https://screenrant.com/infinite-jest-hal-incandenza-opening-scene-masterpiece/
+
+This '96 novel's opening is still mesmerizing.
+---------
+
+# Spider-Man's Greatest Enemy Officially Won't Return In Brand New Day
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Tue, 07 Jul 2026 22:21:54 GMT
+
+https://screenrant.com/spider-man-brand-new-day-j-jonah-jameson-not-returning-jk-simmons/
+
+Spider-Man: Brand New Day will feature many villains in the new Phase 6 installment, but his biggest enemy is officially not returning despite rumors.
+---------
+
+# 5 Star Wars Villain Designs That Are 10/10 Perfect
+
+Movies, Star Wars
+
+Tue, 07 Jul 2026 22:01:20 GMT
+
+https://screenrant.com/star-wars-villain-designs-perfect/
+
+The greatest masterpieces.
+---------
+
+# 49 Years Later, Hawkeye's Best MASH Line Is Still The Greatest Quote In Sitcom History
+
+Classic TV, M*A*S*H
+
+Tue, 07 Jul 2026 22:01:20 GMT
+
+https://screenrant.com/mash-best-quote-sitcom-history/
+
+In the heart of the Korean War, a single line from MASH's Hawkeye pierced through the classic sitcom's humor, revealing the harsh reality of war.
+---------
+
+# Zelda: Skyward Sword HD Switch 2 Upgrade Has Gamers Split
+
+Gaming, The Legend of Zelda, Triple-A Games
+
+Tue, 07 Jul 2026 22:01:20 GMT
+
+https://screenrant.com/zelda-skyward-sword-hd-switch-2-upgrade-hopes/
+
+Although fans are welcoming of a Zelda: Skyward Sword HD Switch 2 upgrade, they aren't sure how it's actually going to work out in the end.
+---------
+
+# Marvel Rivals Reveals Next Iconic Hero Right Before Release
+
+Gaming, Marvel Rivals, Marvel, Triple-A Games, PC
+
+Tue, 07 Jul 2026 22:00:12 GMT
+
+https://screenrant.com/marvel-rivals-jubilee-character-reveal-hood-season-9/
+
+Marvel Rivals is right on the cusp of Season Nine, and it's offered a first look at both heroes coming this season, with one getting a full reveal.
+---------
+
+# President Snow Has the Darkest Hunger Games Quote
+
+Movies, The Hunger Games: Mockingjay - Part 2
+
+Tue, 07 Jul 2026 22:31:14 GMT
+
+https://www.cbr.com/the-hunger-games-president-snow-darkest-quote/
+
+The Hunger Games has plenty of memorable quotes, but this line from President Snow remains the darkest - and most important - in the series.
+---------
+
+# LL Cool J's New NCIS Spinoff's Full Cast & Character Details Revealed
+
+TV, NCIS
+
+Tue, 07 Jul 2026 22:25:49 GMT
+
+https://www.cbr.com/ncis-new-york-full-cast/
+
+LL Cool J's co-stars for his new NCIS spinoff series have been found.
+---------
+
+# Jeremy Renner’s 10-Year-Old Hard Sci-Fi Masterpiece Officially Returns With New 2026 Release
+
+Movies, Arrival, Sci-Fi
+
+Tue, 07 Jul 2026 22:22:02 GMT
+
+https://www.cbr.com/arrival-10th-anniversary-steelbook/
+
+Jeremy Renner's sci-fi classic is back.
+---------
+
+# 8 Perfect 2000s Anime Series No One Remembers Today
+
+Anime, Planetes, Gankutsuou: The Count of Monte Cristo
+
+Tue, 07 Jul 2026 22:15:14 GMT
+
+https://www.cbr.com/perfect-2000s-anime-series-no-one-remembers-today/
+
+The 2000s introduced many groundbreaking anime, but some of the decade's strongest series are now cult classics that are barely remembered.
+---------
+
+# Kevin Costner’s Western Box Office Bomb Gets a Second Chance as Prime Video Hit
+
+Movies, Western, Horizon: An American Saga - Chapter 1
+
+Tue, 07 Jul 2026 22:00:13 GMT
+
+https://www.cbr.com/kevin-costner-horizon-western-prime-video-success-july-2026/
+
+Kevin Costner’s doomed Western gets another chance with streaming audiences.
+---------
+
+# James Gunn's DCU Is Learning the Wrong Lessons From Marvel
+
+Movies, DCU, Supergirl, James Gunn
+
+Tue, 07 Jul 2026 22:00:13 GMT
+
+https://www.cbr.com/james-gunns-dcu-copying-mcu-mistakes/
+
+With the first official flop of his DCU underway in Supergirl, James Gunn needs to rethink his MCU-inspired approach to the future of the franchise.
+---------
+
+# Hulu’s Criminally Underseen Crime Series Is a Brutal Watch for ‘True Detective’ Fans
+
+TV Features, Cardinal, True Detective, Crime, Hulu
+
+Tue, 07 Jul 2026 22:46:12 GMT
+
+https://collider.com/true-detective-crime-series-replacement-cardinal-4-seasons-hulu/
+
+Hulu's Cardinal is a brutal Canadian crime drama and book adaptation that True Detective fans should add to their watchlist.
+---------
+
+# 6 Worst R-Rated 2000s Comedy Movies That Are Truly 0/10
+
+Movie, Freddy Got Fingered, Gigli, Comedy, Pledge This!
+
+Tue, 07 Jul 2026 22:22:12 GMT
+
+https://collider.com/worst-r-rated-2000s-comedy-movies-ranked/
+
+From bad sequels to tone-deaf originals, the '00s had some utterly terrible comedies.
+---------
+
+# 6 Must-Read Fantasy Books for Fans of The Lord of the Rings
+
+Books and Comics, Fantasy, Books, The Lord of the Rings, J.R.R. Tolkien
+
+Tue, 07 Jul 2026 22:15:15 GMT
+
+https://collider.com/fantasy-books-like-the-lord-of-the-rings/
+
+Fans of The Lord of the Rings should add The Dragonbone Chair, The Last Unicorn, and other fantasy classics to their reading list.
+---------
+
+# 10 Best Graphic Novels of All Time
+
+Books and Comics, Batman, Uzumaki, Watchmen, V For Vendetta
+
+Tue, 07 Jul 2026 21:55:15 GMT
+
+https://collider.com/best-graphic-novels-all-time-ranked/
+
+Classics like Batman: Year One, V for Vendetta, and Supergirl: Woman of Tomorrow can all be counted among the very best graphic novels of all time.
+---------
+
+# New 'Mobland' Replacement Series Revealed in First Trailer for Boxing Crime Thriller
+
+TV News, STARZ
+
+Tue, 07 Jul 2026 22:41:32 GMT
+
+https://movieweb.com/starz-fightland-first-trailer-crime-thriller/
+
+The producers of the Starz original 'Power' are back with a new gritty crime saga.
+---------
+
+# Christopher Nolan's Most Underrated Movie Getting New Release 21 Years Later
+
+Movie News, Christopher Nolan, The Prestige
+
+Tue, 07 Jul 2026 22:41:16 GMT
+
+https://movieweb.com/christopher-nolan-the-prestige-rerelease/
+
+One of Christopher Nolan's most underappreciated films will be back in theaters in the not-too-distant future.
+---------
+
+# Prime Video's 107-Minute Action Thriller Passes Major Streaming Milestone
+
+Movie News, Tom Clancy's Jack Ryan: Ghost War, Prime Video, Hot on Streaming, Action
+
+Tue, 07 Jul 2026 22:00:19 GMT
+
+https://movieweb.com/jack-ryan-ghost-war-action-stream-prime-july-2026/
+
+Prime Video's big new action thriller is taking no prisoners on streaming.
+---------
+
 # Big Little Lies Meets Gilmore Girls In Peacock's New Series With One Of Its Best Casts
 
 Streaming TV, Masked Recs
