@@ -1,3 +1,366 @@
+# Red Dead Redemption 3 All-New Gang And Era Leaves Gamers Divided
+
+Gaming, Red Dead Redemption 2, Triple-A Games
+
+Tue, 07 Jul 2026 04:30:20 GMT
+
+https://screenrant.com/red-dead-redemption-3-new-gang-hopes/
+
+Fans of the series aren't sure if they can accept a brand-new gang in Red Dead Redemption 3,  as the gang from the second remains iconic.
+---------
+
+# Steam Drops 4 New Free Games You Can Keep Forever, No Subscription Needed
+
+Gaming, Steam
+
+Tue, 07 Jul 2026 04:00:29 GMT
+
+https://screenrant.com/steam-4-free-games-july-2026/
+
+Discover four free Steam games offering fun and unique experiences, with no microtransactions or hidden costs to worry about.
+---------
+
+# Popular TV Service Will Officially End This Month
+
+TV
+
+Tue, 07 Jul 2026 03:39:10 GMT
+
+https://screenrant.com/tv-time-shut-down-july-15/
+
+Despite having more than 25 million users and providing unique features, this popular television platform is shutting down this month.
+---------
+
+# This Permanent Change To Green Lantern Lore Is What Fans Deserve
+
+DC Comics, Green Lantern
+
+Tue, 07 Jul 2026 03:06:23 GMT
+
+https://screenrant.com/green-lantern-corps-lore-change-united/
+
+DC is subtly revolutionizing the Green Lantern mythos, paving the way for the Corps to take a more prominent and completely fresh role.
+---------
+
+# 24 Years Later, Kakashi's Best Naruto Line Is Still One Of The Greatest Quotes In Anime History
+
+Classic TV, Naruto
+
+Tue, 07 Jul 2026 02:30:22 GMT
+
+https://screenrant.com/kakashi-greatest-quote-naruto-best-anime-history/
+
+A single great line from Kakashi in Naruto perfectly captures the series' overarching theme while masterfully conveying the heart of shonen anime.
+---------
+
+# Stephen King “Loved” Hugh Jackman’s New Mystery Movie
+
+Movies, Masked Recs
+
+Tue, 07 Jul 2026 02:04:25 GMT
+
+https://screenrant.com/the-sheep-detectives-stephen-king-review/
+
+After Hugh Jackman's new mystery movie proved to be a hit with critics and audiences, it has found another fan in iconic author Stephen King.
+---------
+
+# 10 Years Later, Star Wars Doubles Down On Andor’s Darkness With New Rogue One Prequel
+
+Movies, Rogue One: A Star Wars Story, Andor, Star Wars
+
+Tue, 07 Jul 2026 02:00:32 GMT
+
+https://screenrant.com/saw-gerrera-andor-darkness-new-rogue-one-prequel-star-wars/
+
+10 years after the release of Rogue One, Star Wars' brand-new prequel story would have absolutely been one Andor's darkest episodes.
+---------
+
+# Zelda: Oracle Of Ages & Seasons Switch 2 Remake Unites Gamers
+
+Gaming, The Legend of Zelda, Triple-A Games
+
+Tue, 07 Jul 2026 02:00:32 GMT
+
+https://screenrant.com/zelda-oracle-games-switch-2-remake-hopes/
+
+Although many other games get love from Nintendo, fans have been waiting for Zelda: Oracle of Ages & Seasons remake for a long time.
+---------
+
+# 71 Years Later, Netflix’s 7-Part Period Drama Rewrites James Dean’s Best Role
+
+TV, Masked Recs
+
+Tue, 07 Jul 2026 01:00:21 GMT
+
+https://screenrant.com/east-of-eden-netflix-rewrite-cal-trask/
+
+Netflix's making a bold move by making significant changes to the role that secured James Dean's legacy for their new miniseries adaptation.
+---------
+
+# Supergirl Introduces Permanent New Superhero To DC Lore
+
+DC Comics, Supergirl
+
+Tue, 07 Jul 2026 01:00:21 GMT
+
+https://screenrant.com/supergirl-new-superhero-thundergirl/
+
+DC unveils a new Kryptonian hero with artificial powers and a unique sonic voice, setting them apart from all other Superman analogues.
+---------
+
+# Makoto Shinkai's Your Name Officially Returns August 2026 With 10th Anniversary Release
+
+Anime, Your Name, Makoto Shinkai, amc theatres, GKIDS
+
+Tue, 07 Jul 2026 03:50:13 GMT
+
+https://www.cbr.com/makoto-shinkai-your-name-anniversary-screening-august-2026/
+
+One of director Makoto Shinkai's most beloved films celebrates its 10th anniversary with a new theatrical event in North America.
+---------
+
+# 10 Long SNES Games That Take Forever to Complete
+
+Games, Nintendo
+
+Tue, 07 Jul 2026 03:45:14 GMT
+
+https://www.cbr.com/longest-snes-games-ever-list/
+
+SNES games like Final Fantasy 6 can keep players busy for dozens of hours or more.
+---------
+
+# Dutton Ranch Officially Abandons Beth & Rip's Yellowstone Ending
+
+TV, Dutton Ranch, Yellowstone
+
+Tue, 07 Jul 2026 03:32:38 GMT
+
+https://www.cbr.com/dutton-ranch-season-1-finale-episode-9-cancel-yellowstone-ending/
+
+In the finale of Dutton Ranch Season 1, Paramount+'s Yellowstone spinoff abandons Beth and Rip's original ending from Yellowstone Season 5.
+---------
+
+# 8 Open-World RPGs That Reward Exploration
+
+Games, Gaming, Dragon's Dogma, Elden Ring, open world, RPG
+
+Tue, 07 Jul 2026 03:15:12 GMT
+
+https://www.cbr.com/open-world-rpgs-that-reward-exploration/
+
+Some open-world RPGs go above and beyond to reward players for taking the time to explore their vast landscape.
+---------
+
+# DC Comics' New Blue Lantern Reveal Includes a Shocking Twist
+
+Comics, DC Comics, Supergirl, comic books
+
+Tue, 07 Jul 2026 03:00:13 GMT
+
+https://www.cbr.com/supergirl-survive-3-release-date-blue-lantern-reveal/
+
+In a shocking turn of events, another DC Comics character becomes the new Blue Lantern.
+---------
+
+# Howl's Moving Castle Is Studio Ghibli's No. 1 Movie on Netflix
+
+Anime, Studio Ghibli, Netflix, Howl's Moving Castle
+
+Tue, 07 Jul 2026 02:50:13 GMT
+
+https://www.cbr.com/netflix-studio-ghibli-howls-moving-castle-most-watched/
+
+According to Netflix's latest engagement reports, the platform's top performing Ghibli film is a high fantasy gem from the early 2000s.
+---------
+
+# 5 Greatest Final Movie Shots of the 2020s, Ranked
+
+Movies, Marty Supreme, The Substance
+
+Tue, 07 Jul 2026 02:45:12 GMT
+
+https://www.cbr.com/best-final-movie-shots-of-2020s-list/
+
+The last few years have given us some wild movies and even wilder final shots. These five films delivered the best closing moments of the 2020s.
+---------
+
+# 10 Classic Action Anime That Are Unwatchable Today
+
+Anime, Fist of the North Star, Saint Seiya: Knights of the Zodiac
+
+Tue, 07 Jul 2026 02:45:12 GMT
+
+https://www.cbr.com/unwatchable-classic-action-anime/
+
+Classic action anime helped lay the foundation for the genre, but not all of the classics withstand the test of time.
+---------
+
+# Disney Lorcana: 3 Most Valuable Attack of the Vine Cards
+
+Games, Disney, Disney Lorcana, Tabletop, TCG
+
+Tue, 07 Jul 2026 02:30:13 GMT
+
+https://www.cbr.com/disney-lorcana-most-valuable-cards-attack-of-the-vine/
+
+The latest set of Disney Lorcana is set to hit markets globally, and these three Attack of the Vine cards are by far the most valuable early on.
+---------
+
+# Hard Boiled is the Best Martial Arts Movie Ever
+
+Movies, Hard Boiled
+
+Tue, 07 Jul 2026 02:15:12 GMT
+
+https://www.cbr.com/hard-boiled-best-martial-arts-movie/
+
+The martial arts industry has been influenced by this classic film to such an extent that productions are still trying to raise the bar.
+---------
+
+# All 11 David Bowie Albums From the 1970s, Ranked
+
+Music Features, David Bowie, Music, Rock, 1970s
+
+Tue, 07 Jul 2026 04:06:12 GMT
+
+https://collider.com/david-bowie-1970s-albums-ranked/
+
+David Bowie was on fire throughout the 1970s, with classic albums like Heroes and Hunky Dory... but which of his 11 from that decade was the best?
+---------
+
+# 7 Forgotten K-Dramas That Are Perfect From Start to Finish
+
+TV, South Korea, Just Between Lovers, The Smile Has Left Your Eyes, Mother
+
+Tue, 07 Jul 2026 03:55:14 GMT
+
+https://collider.com/forgotten-k-dramas-perfect-start-to-finish/
+
+From the mystery thriller series The Smile Has Left Your Eyes to the K-romance Rain or Shine, these forgotten K-dramas are genuinely flawless.
+---------
+
+# Netflix’s 94% Crime Thriller Is Officially Dead, but Its Legacy Is Bigger Than Ever
+
+TV Features, Netflix, Narcos, Pedro Pascal, Wagner Moura
+
+Tue, 07 Jul 2026 03:52:13 GMT
+
+https://collider.com/netflix-narcos-best-crime-thriller-series-bigger-legacy/
+
+Narcos may have ended in 2017 after three seasons, but its legacy on Netflix and beyond will continue to live on.
+---------
+
+# 10 Crime Movies Without a Single Flaw
+
+Movie, Crime, The Godfather Part II, Knives Out, The Departed
+
+Tue, 07 Jul 2026 03:12:14 GMT
+
+https://collider.com/crime-movies-without-flaws/
+
+The crime genre has produced several brilliant movies throughout its long history, with masterpieces like The Sting and Heat being virtually flawless.
+---------
+
+# 'The Defenders' Season 2 Is Finally Happening, but There's a Catch
+
+TV Features, Daredevil: Born Again, The Defenders, MCU, Disney+
+
+Tue, 07 Jul 2026 01:47:13 GMT
+
+https://collider.com/the-defenders-season-2-plotline-daredevil-born-again-season-3-details/
+
+Daredevil: Born Again has become a Defenders reunion, but Marvel Studios is handling it differently than Netflix did, which will change the story.
+---------
+
+# 6 '90s Sci-Fi Movies That Are Terrible From Start to Finish
+
+Movie, Sci-Fi, Alien Resurrection, Wing Commander, Lost in Space
+
+Tue, 07 Jul 2026 01:38:13 GMT
+
+https://collider.com/worst-90s-sci-fi-movies-terrible/
+
+From Super Mario Bros. to Judge Dredd, these infamous '90s sci-fi disasters prove big concepts can still crash hard.
+---------
+
+# ‘Delicious in Dungeon’ Officially Sets Season 2 Release on Netflix
+
+TV News, Delicious in Dungeon, Netflix, Anime, Fantasy
+
+Tue, 07 Jul 2026 01:30:14 GMT
+
+https://collider.com/delicious-in-dungeon-season-2-update-first-look-netflix/
+
+Netflix and Studio Trigger announce the return of Delicious in Dungeon with a first look at Season 2, set to premiere in 2027.
+---------
+
+# The Perfect ‘Gilmore Girls’ Replacement Is Ready to Binge on Prime Video
+
+TV, Prime Video, Hart of Dixie, The Rig, Criminal Minds
+
+Tue, 07 Jul 2026 01:11:14 GMT
+
+https://collider.com/prime-video-shows-binge-july-6-2026/
+
+Hart of Dixie, Criminal Minds, and The Rig make up our list of the best Prime Video shows to binge-watch the week of July 6th, 2026.
+---------
+
+# ‘John Wick’ Star’s Forgotten Action Bomb Resurfaces 6 Years Later as Massive Netflix Hit
+
+Movie News, The Doorman, Netflix, Ruby Rose, John Wick: Chapter 2
+
+Tue, 07 Jul 2026 01:00:13 GMT
+
+https://collider.com/john-wick-star-ruby-rose-action-movie-the-doorman-streaming-success-netflix-july-2026/
+
+The Doorman, the critically panned action movie starring John Wick 2 veteran Ruby Rose, has resurfaced on Netflix as a streaming hit.
+---------
+
+# 10 Historically Inaccurate Movies That Are Still Masterpieces
+
+Movie, Bonnie and Clyde, The Last Samurai, Lawrence of Arabia, Amadeus
+
+Tue, 07 Jul 2026 00:41:14 GMT
+
+https://collider.com/historically-inaccurate-movies-masterpieces/
+
+Gladiator, Lawrence of Arabia, and Amadeus are examples of movies with significant historical inaccuracies that nevertheless are terrific films.
+---------
+
+# 7 DC Characters Who Are Better Fighters Than Batman
+
+Movie Lists, Batman, DCU
+
+Tue, 07 Jul 2026 01:00:18 GMT
+
+https://movieweb.com/dc-characters-better-fighter-batman/
+
+Here are 8 DC characters who are better fighters than Batman, based on their raw strength, fighting experience, and sheer ruthlessness.
+---------
+
+# Banned 2026 Revenge Thriller Already Getting a New Follow-Up Release This Month
+
+Movie News, Citizen Vigilante, Uwe Boll
+
+Tue, 07 Jul 2026 00:34:02 GMT
+
+https://movieweb.com/citizen-vigilante-video-game-adaptation/
+
+The Armie Hammer-starring 'Citizen Vigilante' is getting a video game adaptation.
+---------
+
+# Rebecca Ferguson on 'Silo' Season 3 Memory Loss & What's Next for Juliette
+
+TV News, Silo, Rebecca Ferguson, Graham Yost
+
+Tue, 07 Jul 2026 00:19:16 GMT
+
+https://movieweb.com/silo-juliette-memory-loss-explained-rebecca-ferguson/
+
+Graham Yost insists 'Silo' Season 3's amnesia twist is not a soap-opera shortcut.
+---------
+
 # Taylor Sheridan’s Bigger Involvement In Dutton Ranch Season 2 Revealed After Original Showrunner Firing
 
 TV, Dutton Ranch, Yellowstone, Taylor Sheridan
