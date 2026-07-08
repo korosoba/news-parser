@@ -1,3 +1,388 @@
+# DC Officially Casts New Batman After Robert Pattinson & He Can Match A Marvel Trend
+
+Movies, Masked Recs
+
+Wed, 08 Jul 2026 16:15:21 GMT
+
+https://screenrant.com/batman-movie-cast-anson-mount-knightfall-dc-marvel-trend/
+
+James Gunn's DC Studios has cast a new Batman after Robert Pattinson, and the Dark Knight can match a Marvel trend for the actor playing Bruce Wayne.
+---------
+
+# A K-Pop Idol Is Officially Joining A Major New Movie For Her Acting Debut
+
+Movies
+
+Wed, 08 Jul 2026 16:07:55 GMT
+
+https://screenrant.com/sana-twice-acting-debut-korean-japanese-movie/
+
+An iconic idol from one of the biggest K-pop groups of all time is set to make her acting debut, and it seems like it may be the perfect career move.
+---------
+
+# Harley Quinn's Wild Origin Change Officially Makes Her Joker's Daughter
+
+DC Comics, Harley Quinn
+
+Wed, 08 Jul 2026 16:07:35 GMT
+
+https://screenrant.com/harley-quinn-joker-daughter-origin-change-explained/
+
+DC gives Harley Quinn her boldest origin yet, abandoning her past ties to the Joker by officially making her his biological daughter.
+---------
+
+# It’s Official, The Best Fleabag Replacement Is Returning For Season 3
+
+TV, Such Brave Girls, Fleabag, Comedy, Hulu, BBC, A24, What to Watch on Hulu
+
+Wed, 08 Jul 2026 16:04:26 GMT
+
+https://screenrant.com/such-brave-girls-season-3-fleabag-replacement/
+
+A24’s BAFTA-winning dark comedy Such Brave Girls is returning for Season 3, making now the perfect time to discover TV’s best Fleabag replacement.
+---------
+
+# 3 Years Later, The Owl House Drops First Look At The Series’ Official Sequel
+
+Comics, The Owl House
+
+Wed, 08 Jul 2026 16:03:15 GMT
+
+https://screenrant.com/owl-house-sequel-long-lived-king-return-new-comic/
+
+Fans are finally treated to a glimpse of The Owl House's official sequel by Dana Terrace, and it looks so much better than we could have imagined.
+---------
+
+# Assassin’s Creed Black Flag Resynced: How To Capture Forts
+
+Gaming, Assassin's Creed Black Flag Resynced, Assassin's Creed
+
+Wed, 08 Jul 2026 16:00:20 GMT
+
+https://screenrant.com/assassins-creed-black-flag-resynced-capture-forts/
+
+Once you get a few hours into Assassin's Creed Black Flag Resynced, you'll start to see forts on the map. However, you may not be ready for them yet.
+---------
+
+# Evil Dead Burn Review: Sam Raimi's Brutal Horror Franchise Has Never Been So Nasty
+
+New Movies, Evil Dead Burn, Evil Dead
+
+Wed, 08 Jul 2026 16:00:20 GMT
+
+https://screenrant.com/evil-dead-burn-movie-2026-review/
+
+Despite an uneven script, Evil Dead Burn thrives in bringing the franchise's most ruthless Deadite massacre to life with expert direction.
+---------
+
+# Gangland Clip Highlights The Humor In Lou Diamond Phillips' New Crime Thriller
+
+Exclusive, Lou Diamond Phillips
+
+Wed, 08 Jul 2026 16:00:20 GMT
+
+https://screenrant.com/video/gangland-lou-diamond-phillips-crime-thriller-clip/
+
+Exclusive: ScreenRant presents a clip from Gangland, a crime thriller starring Lou Diamond Phillips as a tribal cop hunting down a fugitive.
+---------
+
+# Crunchyroll's 100 Girlfriends Is Its Most Controversial Romance, And It Just Crossed A Line
+
+Anime, The 100 Girlfriends Who Really, Really, Really, Really, Really Love You
+
+Wed, 08 Jul 2026 16:00:20 GMT
+
+https://screenrant.com/100-girlfriends-season-3-premiere-controversy/
+
+100 Girlfriends just got even wilder.
+---------
+
+# Harry Potter Officially Rewrites Harry's Relationship With Magic
+
+Streaming TV, Harry Potter
+
+Wed, 08 Jul 2026 16:00:20 GMT
+
+https://screenrant.com/hbo-harry-potter-origin-story-magic-background-change-movies/
+
+Discover how the HBO Harry Potter series reimagines Harry's discovery of his magical abilities and the Dursleys' role, expanding on the books.
+---------
+
+# Evil Dead Burns: The Brutal Stunts Were All Real
+
+Movies, Evil Dead Burn
+
+Wed, 08 Jul 2026 16:15:13 GMT
+
+https://www.cbr.com/video/evil-dead-burns-the-brutal-stunts-were-all-real/
+
+Some of the most jaw-dropping moments in Evil Dead Burns weren't CGI—they were built with practical effects, elaborate stunt rigs, and an incredible crew. Souheila Yacoub, Hunter Doohan, and Luciane Buchanan break down how the film's most brutal sequences came together and why those scenes were even harder to perform than they look.
+---------
+
+# 5 Classic Fantasy Anime That Shaped Frieren
+
+Anime, Frieren: Beyond Journey's End, Record Of Lodoss War, Fantasy
+
+Wed, 08 Jul 2026 16:15:13 GMT
+
+https://www.cbr.com/classic-fantasy-anime-that-shaped-frieren/
+
+While Frieren: Beyond Journey's End brought a unique perspective to fantasy, these older titles helped pave the way.
+---------
+
+# DC Officially Confirms Absolute Batman Publishing Exclusives For San Diego Comic Con
+
+Comics, Absolute Batman
+
+Wed, 08 Jul 2026 16:00:12 GMT
+
+https://www.cbr.com/dc-confirms-absolute-batman-sdcc-exclusives/
+
+Absolute Batman is coming to SDCC!
+---------
+
+# Star Wars Is Officially Giving Rey and Leia the Sequel Story Fans Wanted
+
+Movies, Star Wars
+
+Wed, 08 Jul 2026 16:00:12 GMT
+
+https://www.cbr.com/star-wars-legacy-rey-skywalker-leia-organa/
+
+Seven years later, an upcoming Star Wars novel finally shines a light on Leia and Rey's mentor/mentee relationship.
+---------
+
+# Apple TV’s New 10/10 Cyberpunk Hit Is the Perfect Altered Carbon Replacement
+
+TV, Apple TV, Sci-Fi, Neuromancer
+
+Wed, 08 Jul 2026 16:00:12 GMT
+
+https://www.cbr.com/apple-tv-neuromancer-altered-carbon-replacement-series/
+
+This upcoming sci-fi series, based on a book by cyberpunk pioneer William Gibson, should fill the void left by Netflix's unjustly canceled cult hit.
+---------
+
+# Solo Leveling Officially Brings Back Cha Haein in New Manhwa Release
+
+Anime, Solo Leveling
+
+Wed, 08 Jul 2026 15:48:13 GMT
+
+https://www.cbr.com/solo-leveling-karma-manhwa-cha-haein-return/
+
+Solo Leveling fans have been waiting for months for Cha Haein to show up in the manhwa, and now she finally has in the most unexpected way.
+---------
+
+# 30 Best Sukuna Quotes and Speeches In Jujutsu Kaisen
+
+Anime, Jujutsu Kaisen, shonen anime, Shonen
+
+Wed, 08 Jul 2026 15:45:14 GMT
+
+https://www.cbr.com/jujutsu-kaisen-sukuna-best-quotes/
+
+Though he is the series' villain, Sukuna, the King of Curses, has delivered plenty of intriguing quotes throughout Jujutsu Kaisen.
+---------
+
+# Disney's New Live-Action Remake of $1.7B Franchise Fails to Impress Critics With Lower RT Than Snow White
+
+Movies, Rotten Tomatoes, Moana, Moana 2
+
+Wed, 08 Jul 2026 15:44:29 GMT
+
+https://www.cbr.com/disney-moana-live-action-remake-rotten-tomatoes-score/
+
+Disney wanted to see how far it'll go, and it has discovered.
+---------
+
+# 78th Emmy Nominations Full List (Updated Live)
+
+TV, Emmy Awards
+
+Wed, 08 Jul 2026 15:32:30 GMT
+
+https://www.cbr.com/78th-emmy-nominations-full-list/
+
+The Emmy Awards are almost here. While the official ceremony will take place on Sept. 14, the nominations are officially on the way.
+---------
+
+# Star Wars Officially Returns With Unmissable New Experience 3 Months Before Next Movie
+
+Movies, Star Wars, Star Wars: Starfighter
+
+Wed, 08 Jul 2026 15:16:40 GMT
+
+https://www.cbr.com/star-wars-the-experience-2027/
+
+A new interactive exhibit is set to open in 2027, celebrating the Star Wars franchise's 50th anniversary.
+---------
+
+# Marvel Officially Announces Major X-Men and Fantastic Four Crossover Ahead of ‘Doomsday’
+
+Books and Comics News, X-Men, Fantastic Four, Avengers: Doomsday (2026), MCU Phase 4
+
+Wed, 08 Jul 2026 16:14:39 GMT
+
+https://collider.com/x-men-fantastic-four-dnx-marvel-comics-event-x-virus/
+
+Marvel’s DNX will bring the X-Men and Fantastic Four together this September for a 5-issue comic event about the terrifying X-Virus.
+---------
+
+# ‘The Lord of the Rings’ Gets Huge New Release Ahead of ‘Rings of Power’ Season 3
+
+Movie News, The Lord of the Rings, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King, The Lord of the Rings: The Fellowship of the Ring
+
+Wed, 08 Jul 2026 16:07:07 GMT
+
+https://collider.com/lord-of-the-rings-deluxe-illustrated-box-set-2026-release/
+
+The Lord of the Rings is getting a deluxe illustrated box set with Alan Lee artwork, sprayed edges, foldout maps, and three removable art cards.
+---------
+
+# The Fantasy Saga That Helped Inspire Harry Potter Is Getting a Huge New Release
+
+Books and Comics News, Fantasy, Harry Potter, Books
+
+Wed, 08 Jul 2026 16:06:32 GMT
+
+https://collider.com/earthsea-complete-box-set-ursula-k-le-guin-library-of-america/
+
+Ursula K. Le Guin’s beloved fantasy series that helped inspire Harry Potter is getting a new 6-book boxed set.
+---------
+
+# 'Evil Dead Burn' Review: A Deadly Good Entry in Horror's Best Franchise
+
+Movie Reviews, Evil Dead Burn, Evil Dead, Bruce Campbell, Evil Dead Rise
+
+Wed, 08 Jul 2026 16:00:13 GMT
+
+https://collider.com/evil-dead-burn-horror-sequel-review/
+
+Evil Dead Burn delivers the scares, character depth, comedic moments, and shocking finale that have made Evil Dead the best franchise in modern horror
+---------
+
+# Before ‘Band of Brothers,’ This Epic 5-Season WWII Series Changed the Entire Genre
+
+TV Features, Combat!, Band of Brothers, War, Action
+
+Wed, 08 Jul 2026 15:52:14 GMT
+
+https://collider.com/best-world-war-ii-series-combat-before-band-of-brothers/
+
+Long before Band of Brothers, Combat! changed WWII television with realistic storytelling, authentic military detail, and unforgettable characters.
+---------
+
+# New Novel Inspired by 'A Court of Thorns and Roses' Officially Lands TV Adaptation
+
+Books and Comics News, A Court of Thorns and Roses, Books, Universal
+
+Wed, 08 Jul 2026 15:30:13 GMT
+
+https://collider.com/jessica-knoll-helpless-tv-adaptation-confirmed/
+
+Universal has acquired the rights to adapt Jessica Knoll's new novel Helpless, inspired by Sarah J. Maas' A Court of Thorns and Roses, for the screen.
+---------
+
+# Marvel Officially Brings Back ‘Moon Knight’ Character After 4 Years
+
+TV News, X-Men '97, Moon Knight, MCU, Disney Plus
+
+Wed, 08 Jul 2026 15:13:49 GMT
+
+https://collider.com/x-men-97-khonshu-moon-knight-cameo-marvel-return/
+
+X-Men ’97 just brought a surprise Moon Knight fan-favorite back, marking the character’s first appearance in 4 years.
+---------
+
+# ‘Fallout’ Gets Official New Release on July 31 Before Season 3
+
+Gaming News, Fallout, Prime Video, Bethesda, Fallout 76
+
+Wed, 08 Jul 2026 15:00:13 GMT
+
+https://collider.com/fallout-factions-tabletop-game-battle-for-boston-expansion-release-date-july-31/
+
+Fallout: Battle for Boston, a new expansion for the Fallout: Factions tabletop game, officially arrives on July 31 before Season 3.
+---------
+
+# ‘Moana’ Review: The Rock’s Live-Action Disney Remake Isn’t a Voyage Worth Taking
+
+Movie, Moana, The Rock, Disney
+
+Wed, 08 Jul 2026 15:00:13 GMT
+
+https://collider.com/moana-2026-live-action-review/
+
+Newcomer Catherine Laga'aia and The Rock fail to recapture the magic of the animated Moana in this unnecessary live-action remake that plays it safe.
+---------
+
+# New Batman Release Changes Harley Quinn's Origin in Game-Changing Joker Twist
+
+Movie News, Absolute Batman
+
+Wed, 08 Jul 2026 16:12:34 GMT
+
+https://movieweb.com/absolute-batman-comic-spoilers-joker-harley-quinn/
+
+Harley Quinn has a wild new origin story in a new Batman-centric adventure, changing the game for her relationship with the Joker.
+---------
+
+# 10 Most Perfect Sci-Fi TV Shows of the Past 10 Years
+
+TV Lists, Sci-Fi
+
+Wed, 08 Jul 2026 16:00:18 GMT
+
+https://movieweb.com/perfect-sci-fi-tv-shows-past-decade/
+
+Some amazing sci-fi shows have premiered since 2016, but some of them were especially great. Read on for more.
+---------
+
+# 'Evil Dead Burn' Review: A Gruesome Slog Lacks Scares & Subtlety
+
+Movie Reviews, Evil Dead Burn, Evil Dead
+
+Wed, 08 Jul 2026 16:00:18 GMT
+
+https://movieweb.com/evil-dead-burn-review/
+
+The latest entry in the horror franchise delivers graphic gore but falls short on scares and a coherent plot.
+---------
+
+# 'Moana' Live-Action Remake Rotten Tomatoes Score Officially Revealed
+
+Movie News, Moana, Dwayne Johnson
+
+Wed, 08 Jul 2026 15:55:28 GMT
+
+https://movieweb.com/moana-live-action-rotten-tomatoes-score/
+
+Disney's live-action remake held its premiere this week, and the first wave of critic reactions is anything but united on the result.
+---------
+
+# Taylor Sheridan Will Be More "Involved" in Upcoming 'Yellowstone' Spin-off
+
+TV News, Yellowstone, Dutton Ranch, Taylor Sheridan
+
+Wed, 08 Jul 2026 15:39:25 GMT
+
+https://movieweb.com/taylor-sheridan-yellowstone-dutton-ranch-season-2/
+
+After writing every episode of 'Yellowstone,' Taylor Sheridan stepped back for the spin-off series 'Dutton Ranch.' But that may change in Season 2.
+---------
+
+# Review | Disney's Latest Live-Action Cash Grab Should Be Avoided...You're Welcome
+
+Movie Reviews, Moana, Disney, Dwayne Johnson
+
+Wed, 08 Jul 2026 15:00:19 GMT
+
+https://movieweb.com/moana-live-action-reboot-review/
+
+The songs are still terrific, but Dwyane Johnson and Catherine Laga’aia drown in Disney's misbegotten attempt to reinvent another animated classic
+---------
+
 # 8 Failed Video Game Movie Adaptations That Deserve Another Try
 
 Movies, The Super Mario Galaxy Movie
