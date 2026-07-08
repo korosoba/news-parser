@@ -1,3 +1,355 @@
+# Mad Men: All 18 Of Don Draper's Mistresses Explained
+
+Classic TV, Mad Men
+
+Wed, 08 Jul 2026 20:30:22 GMT
+
+https://screenrant.com/mad-men-don-draper-mistresses-girlfriends-romances-every/
+
+Don Draper may have had 3 wives in Mad Men, but that didn't stop Sterling Cooper's creative director from having affairs with 18 women in the series.
+---------
+
+# The Punisher Meets The Wire In HBO's 6-Part Crime Thriller Series
+
+TV, Masked Recs
+
+Wed, 08 Jul 2026 20:30:21 GMT
+
+https://screenrant.com/we-own-this-city-like-the-wire-the-punisher/
+
+One of HBO's most underappreciated miniseries is a spiritual sequel to The Wire featuring Jon Bernthal in the best role of his TV career.
+---------
+
+# Game Of Thrones Officially Revives 15-Year-Old Franchise Tradition Broken By House Of The Dragon Last Year
+
+TV, A Knight Of The Seven Kingdoms, Game of Thrones, House of the Dragon, Emmy Awards
+
+Wed, 08 Jul 2026 20:26:59 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-season-1-outstanding-drama-emmy-nomination/
+
+The Game of Thrones franchise recovers at the Emmys with A Knight of the Seven Kingdoms after a crucial snub for House of the Dragon season 2.
+---------
+
+# New Fantasy Epic Based On Bestselling Children's Novel Reportedly Breaks Runtime Record
+
+Movies, Wildwood
+
+Wed, 08 Jul 2026 20:20:54 GMT
+
+https://screenrant.com/wildwood-movie-runtime-animation-record/
+
+A new fantasy epic based on a bestselling children's novel reportedly breaks a runtime record, falling just short of a beloved superhero movie.
+---------
+
+# Prime Video Made A Billion-Dollar Franchise Even Better With 1 Cast Choice
+
+Streaming TV, Masked Recs
+
+Wed, 08 Jul 2026 20:15:20 GMT
+
+https://screenrant.com/jack-ryan-franchise-prime-video-saved-john-krasinski/
+
+Prime Video took a flagging franchise and pushed it into the billion-dollar range with a successful TV show, led by a surprising casting choice.
+---------
+
+# Alien Officially Rewrites Canon With Its Best Installment Since James Cameron's Sequel
+
+TV, Masked Recs
+
+Wed, 08 Jul 2026 20:05:21 GMT
+
+https://screenrant.com/alien-earth-best-installment-since-james-cameron/
+
+The Alien franchise's canon was completely rewritten by its best installment since 1986's Aliens, dropping existing lore for an unpredictable story.
+---------
+
+# The Odyssey's Most Unexpected Casting Choice Has A Much Bigger Purpose Than You Realize
+
+Movies, The Odyssey, Christopher Nolan
+
+Wed, 08 Jul 2026 20:03:59 GMT
+
+https://screenrant.com/the-odyssey-bard-role-travis-scott-explained-christopher-nolan/
+
+EXCLUSIVE: Christopher Nolan further explains the metatextual implications of a surprising casting choice in his adaptation of the Greek myth.
+---------
+
+# Harry Bosch's Sequel Potential In New Movie Gets Update From Titus Welliver
+
+Movies, Bosch, Titus Welliver, Prime Video
+
+Wed, 08 Jul 2026 19:59:33 GMT
+
+https://screenrant.com/harry-bosch-sequel-movie-update-titus-welliver/
+
+Exclusive: Titus Welliver offers an update on the chances of a Bosch sequel movie after the success of another Prime Video show's expansion.
+---------
+
+# Disney Channel's Popular 23-Year-Old Trilogy Is Officially Getting A New Sequel As Original Icon Confirms Return
+
+Movies, The Cheetah Girls, Raven-Symone
+
+Wed, 08 Jul 2026 19:58:22 GMT
+
+https://screenrant.com/disney-channel-cheetah-girls-4-movie-development-raven-symone/
+
+While starring on That's So Raven, Raven-Symoné also appeared in a series of popular Disney movies, and a new sequel is officially on the way.
+---------
+
+# John Wick Creator’s 92-Minute Action Thriller That Saved Its Star’s Life Is Rocketing Up Global Streaming Charts
+
+Movies, Masked Recs
+
+Wed, 08 Jul 2026 19:48:49 GMT
+
+https://screenrant.com/nobody-movie-prime-video-streaming-success-july-2026-bob-odenkirk-saved/
+
+John Wick creator's new action thriller, which saved the star's life during production, is now rocketing up the global streaming charts.
+---------
+
+# Henry Cavill's 108-Minute Mystery Adventure Is Netflix's No. 1 Movie in the World
+
+Movies, Enola Holmes 3, Adventure, Netflix
+
+Wed, 08 Jul 2026 20:38:29 GMT
+
+https://www.cbr.com/enola-holmes-adventure-success-netflix-july-2026/
+
+Henry Cavill new Netflix movie is a global hit.
+---------
+
+# 7 Years Later, Hulu's Adaptation of Sci-Fi Classic Is Officially Dead
+
+TV, The Hitchhiker's Guide to the Galaxy
+
+Wed, 08 Jul 2026 20:37:59 GMT
+
+https://www.cbr.com/hulu-hitchhikers-guide-to-the-galaxy-reboot-scrapped/
+
+The long-awaited sci-fi reboot gets a very unfortunate update seven years after it was first announced.
+---------
+
+# The Ending to Netflix's Perfect 3-Season Sci-Fi Show Remains Untouchable 5 Years Later
+
+TV, Netflix, Dark, Sci-Fi
+
+Wed, 08 Jul 2026 20:31:13 GMT
+
+https://www.cbr.com/netflix-dark-series-finale-sci-fi-masterpiece/
+
+While countless other shows collapsed under the pressure of the landing, the ending of this Netflix sci-fi masterpiece remains untouchable.
+---------
+
+# The 10 Most Subversive Thriller Movies of the Last 50 Years, Ranked
+
+Movies, Thriller
+
+Wed, 08 Jul 2026 20:31:13 GMT
+
+https://www.cbr.com/perfect-subversive-thriller-movies-last-50-years-list/
+
+Since 1976, Hollywood has gifted thriller fans some of the greatest crime and mystery movies ever made, the best of which subverted the genre.
+---------
+
+# Disney Settles Court Case That Voids Years of Price Hikes With $50 Million Worth of Refunds for Subscribers
+
+TV, walt disney studios, Disney, YouTube Premium
+
+Wed, 08 Jul 2026 20:22:29 GMT
+
+https://www.cbr.com/disney-settles-court-case-youtube-tv-directv/
+
+The move comes just a few months after Netflix lost a similar case.
+---------
+
+# Spy x Family Reveals First Look at Anya & Bond's Big Sequel Return
+
+Anime, Spy X Family
+
+Wed, 08 Jul 2026 20:16:13 GMT
+
+https://www.cbr.com/spy-x-family-2-new-first-look-reveal/
+
+The Spy x Family franchise gears up for its next big production starring anime's favorite child psychic and her Great Pyrenees, Bond.
+---------
+
+# 10 Manga Arcs Considered Flawless Masterpieces
+
+Anime, Berserk, Attack on Titan, Hunter X Hunter
+
+Wed, 08 Jul 2026 20:15:12 GMT
+
+https://www.cbr.com/best-manga-arcs-flawless-masterpieces/
+
+Masterpiece manga like Berserk and Hunter X Hunter often contain flawless arcs.
+---------
+
+# HBO's 4-Season Thriller Series Snubbed Again at the Emmys After 96% RT Season: 'Modern Day The Wire'
+
+TV, Industry, Emmy Awards
+
+Wed, 08 Jul 2026 20:10:41 GMT
+
+https://www.cbr.com/industry-season-4-snubbed-emmys/
+
+The very highly-acclaimed HBO series still has yet to earn a single Primetime Emmy Award nomination.
+---------
+
+# Possible Buffy The Vampire Slayer Crossover Might Reunite Buffy and Angel Decades Later
+
+Comics, Buffy The Vampire Slayer, Angel
+
+Wed, 08 Jul 2026 20:00:12 GMT
+
+https://www.cbr.com/buffy-the-vampire-slayer-angel-crossover-comic/
+
+The Buffyverse comes back from the dead.
+---------
+
+# Star Wars Director Officially Reveals How the Franchise Shaped His New Netflix Anime
+
+Exclusives, Netflix, Anime, The Ribbon Hero, Star Wars: Visions
+
+Wed, 08 Jul 2026 20:34:49 GMT
+
+https://collider.com/netflix-the-ribbon-hero-princess-knight-director-yuki-igarashi/
+
+Netflix's The Ribbon Hero director Yûki Igarashi explains to Collider Star Wars: Visions' influence on the anime film. Read on for more.
+---------
+
+# 2026’s Record-Breaking Horror Hit Officially Comes Home Next Week
+
+Movie News, Obsession, Blumhouse, 4K Blu-ray, Focus Features
+
+Wed, 08 Jul 2026 20:30:14 GMT
+
+https://collider.com/obsession-physical-media-blu-ray-dvd-release-july-2026/
+
+Blumhouse Productions' Obsession, a low-budget horror film, is set to release on physical media in one week after becoming a major box-office success.
+---------
+
+# 6 Video Games That Deserve an Adaptation
+
+TV, Video Game, Red Dead Redemption 2, Disco Elysium, The Last of Us
+
+Wed, 08 Jul 2026 20:28:13 GMT
+
+https://collider.com/video-games-deserve-adaptation/
+
+From Red Dead Redemption 2 to Subnautica, these incredible video games have worlds, characters, and stories that could translate well to TV and film.
+---------
+
+# Prime Video’s Near-Perfect 93% Series Is the Perfect Weekend Binge Ahead of Season 2
+
+TV Features, Prime Video, Overcompensating, Comedy, Connie Britton
+
+Wed, 08 Jul 2026 20:21:14 GMT
+
+https://collider.com/prime-video-comedy-series-overcompensating-season-2/
+
+After a hilarious Season 1, Prime Video’s overlooked comedy series Overcompensating is gearing up for an even better sophomore season.
+---------
+
+# 'Evil Dead Burn' Sets Rotten Tomatoes Ablaze With Fiery Debut
+
+Movie News, Evil Dead Burn, Souheila Yacoub, Rotten Tomatoes, Warner Bros.
+
+Wed, 08 Jul 2026 20:08:25 GMT
+
+https://collider.com/evil-dead-burn-rotten-tomatoes-score-is-it-good/
+
+Once again, Evil Dead is a critical darling as the newest chapter impresses critics in its Rotten Tomatoes debut.
+---------
+
+# New Fallout Game Officially Coming After 10+ Year Wait
+
+Gaming News, Fallout, Bethesda, Obsidian Entertainment, Microsoft Xbox
+
+Wed, 08 Jul 2026 20:05:45 GMT
+
+https://collider.com/fallout-new-vegas-developers-obsidian-entertainment-franchise-return/
+
+Obsidian Entertainment, the team behind Fallout: New Vegas, are reportedly returning to the franchise for a brand-new game.
+---------
+
+# Amazon’s New ‘Reacher’ Replacement Is Officially Coming to Theaters
+
+Movie News, Reacher, Amazon, Matthew Michael Carnahan, Prime Video
+
+Wed, 08 Jul 2026 20:01:14 GMT
+
+https://collider.com/amazon-mgm-reacher-replacement-deadlock-adaptation-the-gatekeeper/
+
+Amazon MGM has officially greenlit a feature adaptation of Deadlock, the second novel in James Byrne's Dez Limerick series.
+---------
+
+# 11 Years Later, 'Superman' Star's 99-Minute Flop Is Somehow the #1 Movie in America
+
+Movie News, Vacation, Skyler Gisondo, Comedy, Superman
+
+Wed, 08 Jul 2026 20:00:12 GMT
+
+https://collider.com/skyler-gisondo-vacation-paramount-plus-streaming-success-july-2026/
+
+Superman star Skyler Gisondo's overlooked vulgar comedy is a streaming sensation over a decade later. Get all the details here.
+---------
+
+# Beloved ‘Final Fantasy’ RPG Is Permanently Shutting Down in 3 Months
+
+Gaming News, Final Fantasy, Video Game, Fantasy, Sci-Fi
+
+Wed, 08 Jul 2026 19:36:14 GMT
+
+https://collider.com/final-fantasy-vii-spin-off-ever-crisis-ending-service-october-6-2026/
+
+A beloved RPG spin-off tied to one of gaming's biggest franchises will disappear forever this October, taking years of content with it.
+---------
+
+# Pearl Jam's Least Popular Album is Actually Their Best Work
+
+Music Features, Rock, Grunge, Eddie Vedder
+
+Wed, 08 Jul 2026 19:32:13 GMT
+
+https://collider.com/pearl-jam-riot-act-alternative-rock/
+
+Grunge band Pearl Jam's 2002 album 'Riot Act' polarized their fan base. The experimental  lyrics and songs are unlike any of their previous music
+---------
+
+# Ridley Scott's $130M Sci-Fi Epic Loses Box Office Crown 2026's Biggest Surprise Hit
+
+Movie News, Obsession, Prometheus
+
+Wed, 08 Jul 2026 20:00:18 GMT
+
+https://movieweb.com/obsession-beats-ridley-scott-prometheus-box-office/
+
+'Obsession' has yet beaten another blockbuster science fiction epic after spending 53 days in theaters.
+---------
+
+# Star Trek Is Officially Done With Captain Kirk
+
+Features, Star Trek, William Shatner
+
+Wed, 08 Jul 2026 20:00:18 GMT
+
+https://movieweb.com/star-trek-captain-kirk-done/
+
+Captain Kirk has permeated the Star Trek franchise. But 60 years later, it's time to leave him behind. Read on for more.
+---------
+
+# 'Citizen Vigilante 2' in Question as Armie Hammer Slams His Own Action Thriller
+
+Movie News, Citizen Vigilante, Armie Hammer
+
+Wed, 08 Jul 2026 19:32:23 GMT
+
+https://movieweb.com/citizen-vigilante-2-armie-hammer-slams-movie/
+
+Despite reports of a sequel, the star of the movie reportedly had harsh words for the controversial thriller.
+---------
+
 # Read An Exclusive Excerpt From Hawk & Sparrow, Ayana Gray's New Gilded Age Romantasy
 
 Books, Hawk & Sparrow
