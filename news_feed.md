@@ -1,3 +1,311 @@
+# 5 Years Later, Invader Zim Is Returning With New 2026 Series
+
+Comics, Invader Zim
+
+Wed, 08 Jul 2026 05:05:19 GMT
+
+https://screenrant.com/invader-zim-new-comic-series-2026/
+
+Invader Zim is returning for a new comic series in 2026, but the franchise's creator has mixed thoughts about the revival.
+---------
+
+# It's Official, Pokémon Emerald Fans Are Headed Back To Hoenn This August
+
+Gaming, Pokemon, Triple-A Games
+
+Wed, 08 Jul 2026 04:30:19 GMT
+
+https://screenrant.com/pokemon-emerald-lego-rayquaza-august-2026/
+
+Pokémon Emerald is one of the most beloved entries in the entire Pokémon franchise, and everyone should have their calendars marked.
+---------
+
+# Steam Drops 3 Free Downloads You Can Claim For 24 Hours
+
+Gaming, Steam, Triple-A Games
+
+Wed, 08 Jul 2026 04:01:26 GMT
+
+https://screenrant.com/steam-3-free-downloads-july-2026-24-hours/
+
+Amid multiple Steam sales and festivals, as well as the monumental launch of the new Steam Machines, there are free downloads you can grab now.
+---------
+
+# Dragon Striker Is Disney's Avatar Replacement, And It's 11 Episodes Of Perfection
+
+TV, Dragon Striker, Disney
+
+Wed, 08 Jul 2026 03:30:22 GMT
+
+https://screenrant.com/dragon-striker-avatar-last-airbender-replacement-perfect/
+
+Discover why Disney's Dragon Striker is captivating fans with its imaginative fantasy adventure, reminiscent of Avatar: The Last Airbender.
+---------
+
+# Yellowstone's New Kevin Costner Replacement Addresses Dutton Ranch's Rumored 5-Season Plan
+
+TV, Dutton Ranch, Yellowstone
+
+Wed, 08 Jul 2026 03:29:58 GMT
+
+https://screenrant.com/dutton-ranch-five-season-plan-annette-bening-response/
+
+Dutton Ranch just wrapped its wildly successful first season. Annette Bening addresses the possibility of her spinoff running as long as Yellowstone.
+---------
+
+# The MCU Officially Teases A Major Avengers: Doomsday X-Men Theory
+
+Superheroes, X-Men '97, Avengers: Doomsday, Marvel Cinematic Universe
+
+Wed, 08 Jul 2026 03:17:11 GMT
+
+https://screenrant.com/mcu-avengers-doomsday-x-men-97-theory-loki-music/
+
+Thanks to a subtle reference in the premiere episodes of X-Men '97 season 2, one of the biggest Avengers: Doomsday theories looks even more likely.
+---------
+
+# Fallout: Chicago Will Keep You Busy Until Fallout 5
+
+Gaming, Fallout
+
+Wed, 08 Jul 2026 03:00:22 GMT
+
+https://screenrant.com/fallout-chicago-new-vegas-conversion-mod/
+
+Discover the post-apocalyptic world of Fallout: Chicago, an extensive fan-made mod for New Vegas offering new quests, factions, and more.
+---------
+
+# Sullivan's Crossing Hit With Major Shakeup As Season 5 Fate Remains In Limbo
+
+TV, Sullivan's Crossing
+
+Wed, 08 Jul 2026 02:32:58 GMT
+
+https://screenrant.com/sullivans-crossing-season-5-floyd-kane-new-showrunner/
+
+With season 5's fate still facing uncertainty, a major change has taken place behind the scenes of the romantic drama series Sullivan's Crossing.
+---------
+
+# Apple TV Just Avoided A Game Of Thrones-Sized Disaster
+
+Streaming TV, Apple TV, Masked Recs
+
+Wed, 08 Jul 2026 02:31:22 GMT
+
+https://screenrant.com/brandon-sanderson-time-gap-the-stormlight-archive-game-of-thrones-disaster/
+
+A highly anticipated series will adapt an unfinished book series, but the Apple TV show has a failsafe to evade a Game of Thrones disaster.
+---------
+
+# Super Mario Eclipse Is The Sunshine Sequel We Always Wanted
+
+Gaming, Super Mario Sunshine, Super Mario, Triple-A Games
+
+Wed, 08 Jul 2026 02:00:33 GMT
+
+https://screenrant.com/super-mario-eclipse-sunshine-fan-sequel/
+
+Super Mario Sunshine has always stood apart from other 3D Mario experiences, but fans who loved F.L.U.D.D. can now get a taste of some more.
+---------
+
+# 5 Perfect Turn-Based RPGs That Nobody Remembers
+
+Games, Role Playing Game
+
+Wed, 08 Jul 2026 03:45:13 GMT
+
+https://www.cbr.com/perfect-turn-based-rpgs-everyone-forgot-list/
+
+Some of the best turn-based RPGs, like Lost Odyssey, have been almost entirely forgotten.
+---------
+
+# 5 Anime Characters Stronger Than Rimuru Tempest
+
+Anime, That Time I Got Reincarnated as a Slime, Dragon Ball Super
+
+Wed, 08 Jul 2026 03:45:13 GMT
+
+https://www.cbr.com/anime-characters-stronger-than-rimuru-tempest/
+
+Rimuru Tempest ranks among anime's strongest characters, but a select few operate on an even greater level.
+---------
+
+# 7 American Anime That Can Be Called Masterpieces, Ranked
+
+Anime
+
+Wed, 08 Jul 2026 03:45:13 GMT
+
+https://www.cbr.com/best-american-anime-masterpieces-ranked/
+
+Some of the best American animated series, like Teen Titans and Avatar: The Last Airbender, take heavy inspiration from anime.
+---------
+
+# Star Trek: Deep Space Nine Finally Returns With Official New Release
+
+TV, Star Trek: Deep Space Nine - Emissary
+
+Wed, 08 Jul 2026 03:36:25 GMT
+
+https://www.cbr.com/star-trek-deep-space-nine-the-peacemakers-release/
+
+A fan favorite takes the spotlight in the next official story from Star Trek: Deep Space Nine.
+---------
+
+# Prime Video's 4-Season Action Thriller Will Go Down as the Best Book Adaptation in TV History
+
+TV, Prime Video, Reacher, Action
+
+Wed, 08 Jul 2026 03:30:15 GMT
+
+https://www.cbr.com/prime-video-reacher-best-book-to-tv-adaptation-ever/
+
+Prime Video has many great shows, but its best action thriller also makes history as a book adaptation.
+---------
+
+# Spider-Man: Brand New Day Just Teased The Death of a New Character
+
+Movies, Spider-Man: Brand New Day, MCU, superheroes
+
+Wed, 08 Jul 2026 03:15:14 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-death-of-jean-dewolff-mcu/
+
+Spider-Man: Brand New Day is still weeks away, but it may have already confirmed that one major character will die.
+---------
+
+# Gundam Brings Back Sold-Out Master Grade Gunpla After Massive Demand
+
+Anime, Mobile Suit Gundam, merchandise, bandai, toys
+
+Wed, 08 Jul 2026 03:00:14 GMT
+
+https://www.cbr.com/gundam-sentinel-master-grade-gunpla-bandai-re-release/
+
+After selling out in early 2025, a Gundam model kit is back by fan demand to bring a mobile suit design from a forgotten release back to life.
+---------
+
+# Marvel's Strongest Comics Right Now All Share One Surprising Trait
+
+Comics, Marvel
+
+Wed, 08 Jul 2026 03:00:14 GMT
+
+https://www.cbr.com/marvel-strongest-comics-shared-trait/
+
+Marvel has had a string of incredible comics in recent years and they all take a similar narrative angle.
+---------
+
+# Paramount Is Officially Rebooting The G.I. Joe Franchise Next Year
+
+Movies, GI Joe, Paramount, Sci-Fi
+
+Wed, 08 Jul 2026 02:45:13 GMT
+
+https://www.cbr.com/paramount-gi-joe-movie-reboot-greatest-sci-fi-franchise/
+
+One of the most timeless sci-fi action franchises is finally getting a big-screen reboot next year.
+---------
+
+# D&D's Newest Domain of Dread Adds Lovecraftian Flavor to Ravenloft
+
+Games, Dungeons and Dragons, Tabletop, H.P. Lovecraft
+
+Wed, 08 Jul 2026 02:45:13 GMT
+
+https://www.cbr.com/dungeons-dragons-domain-of-dread-lovecraft-cthulhu-ravenloft/
+
+The latest Domain of Dread introduced to D&amp;D's Ravenloft campaign setting will be familiar to fans of Lovecraft, as it stars his most famous monster.
+---------
+
+# Prime Video's All-Time Greatest Action Franchise Is Officially Changing Its Formula in 2026
+
+TV Features, Reacher, Neagley, Alan Ritchson, Prime Video
+
+Wed, 08 Jul 2026 04:45:12 GMT
+
+https://collider.com/reacher-season-4-neagley-premiere-franchise-formula-change/
+
+Prime Video's best action franchise is changing its formula in 2026 with back-to-back premieres for Reacher Season 4 and the Neagley spin-off.
+---------
+
+# 10 Marvel Heroes Strong Enough To Stop Doom
+
+Movie, MCU, Avengers: Doomsday, Superhero, Robert Downey Jr
+
+Wed, 08 Jul 2026 04:27:14 GMT
+
+https://collider.com/marvel-heroes-strong-enough-stop-doom/
+
+From Scarlet Witch to the Hulk, Captain Marvel to Loki, these Marvel heroes have the strength to defeat Doom.
+---------
+
+# The Real Villain of 'Supergirl's' Box Office Struggles May Be Franchise Expectations
+
+Movie Features, Milly Alcock, Supergirl, Jason Momoa, James Gunn
+
+Wed, 08 Jul 2026 04:14:13 GMT
+
+https://collider.com/supergirl-box-office-dcu-franchise-expectations/
+
+Supergirl was supposed to be a hit for James Gunn's DCU, but its box office struggles show the danger of pinning franchise hopes on a single film.
+---------
+
+# Netflix’s Biggest Shows Are Officially Losing Viewers, and the Reason Is Painfully Obvious
+
+TV Features, Netflix, One Piece, Avatar: The Last Airbender, A Good Girl's Guide to Murder
+
+Wed, 08 Jul 2026 03:55:14 GMT
+
+https://collider.com/netflix-viewership-decline-production-gap-meaning/
+
+While Netflix often launches shows that take the world by storm, those shows are shedding viewers for a glaringly obvious reason.
+---------
+
+# 'Game of Thrones' Needs To Copy Harry Potter To Fix Its Greatest Mistake
+
+Gaming, Game Of Thrones, Video Game, Fantasy, Hogwarts Legacy
+
+Wed, 08 Jul 2026 03:26:15 GMT
+
+https://collider.com/game-of-thrones-video-game-fix-biggest-mistake/
+
+Game of Thrones' handling of the White Walkers is infamously awful, but a video game centered on the Long Night could actually fix that major mistake.
+---------
+
+# Netflix Quietly Created the Most Bingeable True Crime Franchise on Streaming
+
+TV Features, Jason Blum, Blumhouse, Worst Ex Ever, Worst Neighbor Ever, Worst Roommate Ever
+
+Wed, 08 Jul 2026 02:24:14 GMT
+
+https://collider.com/netflix-worst-neighbor-ever-jason-blum-true-crime-series/
+
+Jason Blum's Worst Ever true crime franchise on Netflix is a binge-worthy dive into the darkest relationships between roommates, exes, and neighbors.
+---------
+
+# Prime Video's Tomb Raider Reboot Gets Glowing Endorsement From Video Game Star
+
+TV News, Tomb Raider, Sophie Turner, Prime Video
+
+Wed, 08 Jul 2026 02:01:14 GMT
+
+https://collider.com/prime-video-tomb-raider-sophie-turner-update-alix-wilton-regan/
+
+Ahead of Prime Video's reboot of the franchise, Tomb Raider voice actor Alix Wilton Regan has revealed if she's met Sophie Turner.
+---------
+
+# 10 Most Perfect TV Shows from the 1990s I Still Think About Daily
+
+TV Lists, Batman: The Animated Series, The X-Files, Seinfeld
+
+Wed, 08 Jul 2026 02:00:32 GMT
+
+https://movieweb.com/1990s-tv-shows-perfect/
+
+Were the '90s peak TV? It's hard to deny the 21st century's variety, but these classics hold a special place in the zeitgeist.
+---------
+
 # Apple TV's Upcoming Thriller Based On Acclaimed Novel Is 'Taken Meets No Country For Old Men'
 
 Streaming TV, Masked Recs
