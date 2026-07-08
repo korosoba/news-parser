@@ -1,3 +1,300 @@
+# Henry Cavill's New #1 Movie In The World Is His Best Role Since Superman
+
+Movies, Masked Recs
+
+Wed, 08 Jul 2026 23:00:21 GMT
+
+https://screenrant.com/enola-holmes-3-henry-cavill-number-1-netflix-movie/
+
+The DCEU star won over fantasy and sci-fi fans with roles like Clark Kent and Geralt of Rivia, and his latest movie finally recaptures those heights.
+---------
+
+# David Corenswet’s Superman Just Got His Biggest Ally To Stop Brainiac In DC's Man Of Tomorrow
+
+Movies, Man of Tomorrow, Supergirl, Superman, DC Universe
+
+Wed, 08 Jul 2026 22:34:27 GMT
+
+https://screenrant.com/supergirl-superman-movie-sequel-man-of-tomorrow-brainiac-defeat/
+
+David Corenswet's Superman fights Brainiac in 2027's Man of Tomorrow, and he has just found his biggest ally — not Lex Luthor — to stop the villain.
+---------
+
+# See Metal Sonic's Design For Sonic's Next Appearance
+
+Comics, Sonic the Hedgehog
+
+Wed, 08 Jul 2026 22:31:20 GMT
+
+https://screenrant.com/metal-sonic-design-meteor/
+
+Metal Sonic's organic upgrade and Super Sonic-like transformation expands his mythos in the franchise, courtesy of Dr. Eggman's latest evil plan.
+---------
+
+# Star Wars Begins To Rebuild The Jedi Order In 1 Month
+
+Streaming TV, Star Wars, Star Wars: Visions
+
+Wed, 08 Jul 2026 22:31:20 GMT
+
+https://screenrant.com/star-wars-rebuild-jedi-order-ninth-jedi-show/
+
+Star Wars: Visions Presents - The Ninth Jedi will be the franchise's first time trying to rebuild the Jedi Order, and it comes out in just one month.
+---------
+
+# 5 Reasons Why The Moana Remake Reviews Are So Negative
+
+Movies, Moana
+
+Wed, 08 Jul 2026 22:31:20 GMT
+
+https://screenrant.com/moana-2026-remake-reviews-explained/
+
+Moana is the latest live-action adaptation of a Disney animated movie, but this one is failing critically while others succeeded and here is why.
+---------
+
+# Netflix & Toho's First R-Rated TV Remake Of Sci-Fi Classic Officially Marked Streaming Hit In Less Than One Week
+
+TV, Masked Recs, Netflix
+
+Wed, 08 Jul 2026 22:10:20 GMT
+
+https://screenrant.com/netflix-human-vapor-july-2026-streaming-charts-toho/
+
+Netflix and Toho collaborate for the first time to remake a 1960s sci-fi classic, and in less than one week, the TV show is a streaming hit.
+---------
+
+# One of The Best Jokes In The Simpsons History Was Secretly Improvised
+
+Classic TV, The Simpsons
+
+Wed, 08 Jul 2026 22:03:20 GMT
+
+https://screenrant.com/simpsons-sideshow-bob-rake-gag-improvised/
+
+One of the most iconic jokes from The Simpsons has influenced decades of later animated comedy shows, but the original gag was last-minute improv.
+---------
+
+# Ghost In The Shell Officially Returns With A Stunning New Release
+
+Gaming, Ghost in the Shell
+
+Wed, 08 Jul 2026 22:00:21 GMT
+
+https://screenrant.com/ghost-in-the-shell-new-keyboard/
+
+The legendary Ghost in the Shell is officially back with a brand-new project that fans will absolutely want to get their hands on.
+---------
+
+# Transformers Finally Gives Starscream's Most Loyal Seeker His Biggest Anime Update
+
+Anime, Transformers, merchandise, toys
+
+Wed, 08 Jul 2026 23:10:13 GMT
+
+https://www.cbr.com/transformers-skywarp-flame-toys/
+
+Skywarp joins Flame Toys' lineup of stylized anime-esque Transformers kits, with this redeco homaging decades of designs for the Seeker jets.
+---------
+
+# 5 Perfect '80s Sci-Fi Shows Nobody Remembers
+
+TV, Sci-Fi, Alien Nation, the martian chronicles, Amazing Stories
+
+Wed, 08 Jul 2026 23:00:13 GMT
+
+https://www.cbr.com/best-forgotten-80s-sci-fi-shows-list/
+
+Some of the best sci-fi series ever brought to the screen were delivered during the 1980s, but many have unfortunately been forgotten.
+---------
+
+# New Stranger Things Sequel Book Announced Before Netflix Return
+
+Comics, Stranger Things
+
+Wed, 08 Jul 2026 23:00:13 GMT
+
+https://www.cbr.com/stranger-things-the-official-story-behind-the-legendary-series-out-now/
+
+Despite the main series recently ending, there's a bright future ahead for the Stranger Things franchise.
+---------
+
+# The 5 Best Adventure Movies of 2026 So Far, Ranked
+
+Movies, Adventure
+
+Wed, 08 Jul 2026 23:00:13 GMT
+
+https://www.cbr.com/2026-best-adventure-movies-so-far-list/
+
+The adventure movie genre is making a big comeback and some of 2026's releases are a large part of that.
+---------
+
+# DC Reveals Harley Quinn's New Origin Story For Next Batman Story
+
+Comics, DC Comics, DCU, Batman, Harley Quinn
+
+Wed, 08 Jul 2026 22:27:42 GMT
+
+https://www.cbr.com/dc-reveals-harley-quinn-new-origin-story-for-next-batman/
+
+This is not what anyone expected from Harley Quinn in 2026 — if ever.
+---------
+
+# James Gunn's DC Studios Casts Gorilla Grodd In New Superman Spinoff Series
+
+TV, DCU, HBO Max, Crime
+
+Wed, 08 Jul 2026 22:19:50 GMT
+
+https://www.cbr.com/dc-crime-gorilla-grodd-jimmy-tatro/
+
+DC Crime has found it's Gorilla Grodd
+---------
+
+# Evil Dead Burn's Fiery Rotten Tomatoes Score Officially Revealed
+
+Movies, Evil Dead Burn
+
+Wed, 08 Jul 2026 22:16:58 GMT
+
+https://www.cbr.com/evil-dead-burn-rotten-tomatoes-score/
+
+The debut score for the newest Evil Dead movie is officially revealed ahead of its theatrical debut this weekend.
+---------
+
+# 5 Masterpiece Action Anime Better Than Attack on Titan
+
+Anime, Attack on Titan, Attack On Titan
+
+Wed, 08 Jul 2026 22:15:14 GMT
+
+https://www.cbr.com/masterpiece-action-anime-better-than-attack-on-titan/
+
+From Chainsaw Man to Scissor Seven, several masterpiece action anime have already bested Attack on Titan.
+---------
+
+# Ad Vitam Is One of Netflix's Biggest Streaming Movies Ever
+
+Movies, Ad Vitam
+
+Wed, 08 Jul 2026 22:00:12 GMT
+
+https://www.cbr.com/netflix-biggest-non-english-movie-ad-vitam/
+
+Ad Vitam (2025) has become one of the most-watched Netflix original movies with more than 63 million views.
+---------
+
+# Judge Dredd Returns In Crossover With Biker Mice From Mars
+
+Comics, Judge Dredd, Biker Mice From Mars
+
+Wed, 08 Jul 2026 22:00:12 GMT
+
+https://www.cbr.com/judge-dredd-biker-mice-from-mars-crossover-series/
+
+The Law has met his unlikeliest match.
+---------
+
+# John Travolta’s New Crime Thriller Gets Explosive First Trailer
+
+Movie News, John Travolta, Rebecca De Mornay, Lukas Haas, DJ Khaled
+
+Wed, 08 Jul 2026 22:33:40 GMT
+
+https://collider.com/the-gentleman-thief-trailer-john-travolta-heist-movie/
+
+John Travolta is The Gentleman Thief in the trailer for his new crime thriller. Watch it now.
+---------
+
+# 10 'The Spectacular Spider-Man' Episodes That Can Be Called Masterpieces
+
+TV, Superhero, Spider-Man, The Spectacular Spider-Man, Marvel
+
+Wed, 08 Jul 2026 22:26:15 GMT
+
+https://collider.com/the-spectacular-spider-man-episodes-best-ranked/
+
+Episodes of The Spectactular Spider-Man like "Intervention," "Shear Strength," and "Opening Night" are all so good they can be called masterpieces.
+---------
+
+# 10 Horror Movies Without a Single Flaw
+
+Movie, Horror, The Exorcist, Alien, Hereditary
+
+Wed, 08 Jul 2026 22:22:13 GMT
+
+https://collider.com/horror-movies-without-flaws/
+
+From Rosemary's Baby to The Thing, these outstanding horror movies rank as the best in cinematic history, famous for not having even a single flaw.
+---------
+
+# DC's Strangest Villain Ever Officially Joins New 'Superman' Spin-Off
+
+TV News, DC Comics, Jimmy Tatro, Superman, Skyler Gisondo
+
+Wed, 08 Jul 2026 22:11:06 GMT
+
+https://collider.com/james-gunn-superman-spin-off-dc-crime-cast-jimmy-tatro-gorilla-grodd/
+
+One of DC's most fearsome and strangest villains, Gorilla Grodd, has reportedly been cast in James Gunn's new Superman spin-off.
+---------
+
+# Prime Video Is the Best Streamer for Romance, and These 7 Shows Prove It
+
+TV, Prime Video, Romance, Every Year After, The Summer I Turned Pretty
+
+Wed, 08 Jul 2026 22:03:13 GMT
+
+https://collider.com/prime-video-best-streamer-romance-shows/
+
+Prime Video is the premier streaming service for the romance genre, and series like Off Campus, Every Year After, and My Lady Jane are proof.
+---------
+
+# Netflix’s Final ‘Night Agent’ Season Brings Back Its Biggest Missing Character [Exclusive]
+
+TV News, The Night Agent, Luciane Buchanan, Gabriel Basso, Netflix
+
+Wed, 08 Jul 2026 22:00:13 GMT
+
+https://collider.com/the-night-agent-luciane-buchanan-explains-rose-larking-season-4-return/
+
+Luciane Buchanan, who plays Rose Larkin in The Night Agent, breaks her silence on returning for the fourth and final season of the Netflix show.
+---------
+
+# Armie Hammer Comeback Director Wants Canceled 'Star Wars' Star to Join Action Sequel
+
+Movie News, Citizen Vigilante, Gina Carano
+
+Wed, 08 Jul 2026 22:26:40 GMT
+
+https://movieweb.com/citizen-vigilante-2-gina-carano-casting/
+
+'Citizen Vigilante 2' already has a release window, and Uwe Boll wants to bring Gina Carano into the action thriller follow-up.
+---------
+
+# Taylor Sheridan's 9-Part Thriller Takes No Prisoners on Streaming
+
+TV News, Dutton Ranch, Paramount Plus, Hot on Streaming, Taylor Sheridan
+
+Wed, 08 Jul 2026 22:00:18 GMT
+
+https://movieweb.com/dutton-ranch-taylor-sheridan-stream-july-2026-paramount/
+
+Taylor Sheridan's biggest show in years is slaying the competition on streaming.
+---------
+
+# 12 Fantasy Book Series With Masterful World-Building
+
+TV Lists, Fantasy
+
+Wed, 08 Jul 2026 22:00:18 GMT
+
+https://movieweb.com/fantasy-book-series-masterful-world-building/
+
+Some fantasy worlds take from the classics. Some fantasy worlds become the classics, expanding their stories with endless immersion.
+---------
+
 # Mighty Morphin Power Rangers Confirms Tommy Oliver’s Return Next Month
 
 Comics, Mighty Morphin Power Rangers, Power Rangers
