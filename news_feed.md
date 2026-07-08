@@ -1,3 +1,355 @@
+# New Genshin Impact 7.0 Free Character Will Revolutionize Gameplay
+
+Gaming, Genshin Impact, PC, Live Service Games
+
+Wed, 08 Jul 2026 17:51:55 GMT
+
+https://screenrant.com/genshin-impact-70-leaks-free-character-alyosha-stellar/
+
+According to a new leak regarding Genshin Impact 7.0, there will be a new free character from Snezhnaya who will provide a lot of value to teams.
+---------
+
+# 6 Marvel Characters Obsession Star Inde Navarrette Could Play In The MCU's X-Men Movie
+
+Movies, Obsession, X-Men, Marvel Cinematic Universe
+
+Wed, 08 Jul 2026 17:45:20 GMT
+
+https://screenrant.com/marvel-characters-inde-navarrette-xmen-movie/
+
+Inde Navarrette has met with the director of Marvel’s new X-Men movie, and would be a great fit to join the project in any of these iconic roles.
+---------
+
+# NBC Didn't Learn Its Lesson From Chicago P.D.'s Universally Hated Twist
+
+Network TV, Chicago P.D.
+
+Wed, 08 Jul 2026 17:30:21 GMT
+
+https://screenrant.com/chicago-pd-jay-halsteady-exit-mistake-not-learn/
+
+Chicago P.D. cutting LaRoyce Hawkins from the cast as Officer Atwater for season 14 is repeating the same mistake from how Halstead exited.
+---------
+
+# 2026 Emmy Predictions: Who Should Win & Who Will Win
+
+Streaming TV, Emmy Awards
+
+Wed, 08 Jul 2026 17:15:21 GMT
+
+https://screenrant.com/2026-emmy-winner-predictions/
+
+The nominations for the 2026 Emmys have been announced, but who will win the actual awards? And, more importantly, who should win them?
+---------
+
+# Evil Dead Burn’s Rotten Tomatoes Debut Breaks Franchise’s 13-Year Streak
+
+Movies, Evil Dead Burn, Evil Dead
+
+Wed, 08 Jul 2026 17:05:26 GMT
+
+https://screenrant.com/evil-dead-burn-movie-rotten-tomatoes-score-franchise-comparison/
+
+The Evil Dead franchise is back, and the Sébastien Vaniček-directed horror flick has just debuted on Rotten Tomatoes ahead of its July 10 release.
+---------
+
+# 7 Years After Endgame, Steve Rogers Officially Returns As Captain America Before Avengers: Doomsday
+
+Streaming TV, Masked Recs
+
+Wed, 08 Jul 2026 17:03:11 GMT
+
+https://screenrant.com/steve-rogers-captain-america-return-2026-x-men-97-avengers/
+
+Steve Rogers, not Sam Wilson, is officially Marvel's Captain America in this 2026 release, and his role with the X-Men is an interesting one.
+---------
+
+# Invincible Officially Recast Mark, And Nobody Noticed
+
+Gaming, Invincible, Invincible - Season 1, Invincible - Season 3, Invincible - Season 4, Invincible - Season 2, PC
+
+Wed, 08 Jul 2026 17:00:21 GMT
+
+https://screenrant.com/invincible-vs-mark-recast-gamers-react/
+
+Invincible was quietly recast without anybody noticing, slipping a massive change past even the most hardcore fans of the franchise.
+---------
+
+# Vikings Meets Percy Jackson In Netflix's Underrated 18-Part Fantasy Series
+
+Streaming TV, Masked Recs
+
+Wed, 08 Jul 2026 17:00:21 GMT
+
+https://screenrant.com/netflix-ragnarok-vikings-meets-percy-jackson-fantasy-series/
+
+Vikings have had a moment in TV culture, but while Vikings was a phenomenon and Percy Jackson has Norse mythology, there is another underrated TV show
+---------
+
+# Why Hulu's Adaptation Of All-Time Sci-Fi Classic Is Officially Dead Explained By Creator
+
+TV, The Hitchhiker's Guide to the Galaxy, Hulu, Carlton Cuse
+
+Wed, 08 Jul 2026 16:58:37 GMT
+
+https://screenrant.com/hulu-hitchhikers-guide-to-the-galaxy-tv-adaptation-dead-explained-carlton-cuse/
+
+Exclusive: Creator Carlton Cuse confirms Hulu's adaptation of one of the biggest sci-fi classics ever is dead and shares why it was scrapped.
+---------
+
+# It's Officially The End Of An Era For Millie Bobby Brown On Netflix
+
+New Movies, Millie Bobby Brown, Netflix, Enola Holmes 3
+
+Wed, 08 Jul 2026 16:45:21 GMT
+
+https://screenrant.com/millie-bobby-brown-netflix-movies-end-era/
+
+Millie Bobby Brown has brought lots of success to Netflix with her various projects, but now, her latest marks the end of an era for the partnership.
+---------
+
+# X-Men ’97 Nightcrawler Actor Reveals What 'Clicked' During One Key Scene
+
+CBR Exclusives, X-Men '97
+
+Wed, 08 Jul 2026 17:49:58 GMT
+
+https://www.cbr.com/x-men-adrian-hough-nightcrawler-key-scene/
+
+One pivotal scene featuring Nightcrawler and Wolverine had Adrian Hough feeling a deep connection to the character.
+---------
+
+# 8 Perfect Western Movies Nobody Remembers Today
+
+Movies, Western, The Gunfighter, Ravenous
+
+Wed, 08 Jul 2026 17:30:13 GMT
+
+https://www.cbr.com/perfect-western-movies-nobody-remembers-list/
+
+The Western genre has produced too many Hollywood classics to count, leaving some of its greatest stories to be forgotten to modern audiences.
+---------
+
+# Marvel’s Best Show in Years Scores MCU's First Major Emmy Nomination in 5 Years
+
+TV, Marvel, Marvel Comics, MCU, Wonder Man
+
+Wed, 08 Jul 2026 17:27:41 GMT
+
+https://www.cbr.com/marvel-wonder-man-gets-mcu-first-major-emmy-nomination-in-5-years/
+
+Wonder Man went from being a literal joke to possibly bringing home an Emmy for Marvel.
+---------
+
+# 10 Most Powerful Cards In Disney Lorcana's Attack of the Vine
+
+Games, Disney, Disney Lorcana, Tabletop, TCG
+
+Wed, 08 Jul 2026 17:15:13 GMT
+
+https://www.cbr.com/disney-lorcana-attack-of-the-vine-most-powerful-cards/
+
+The highly-anticipated 13th set from Disney Lorcana is on the horizon and these 10 Attack of the Vine cards are must-haves for their tremendous power.
+---------
+
+# Absolute Batman Just Dropped A Bombshell That Will Destroy Gotham's Hero
+
+Comics, Absolute Batman
+
+Wed, 08 Jul 2026 17:01:13 GMT
+
+https://www.cbr.com/absolute-batman-22-bombshell-bruce-waynes-father/
+
+Absolute Batman will never be the same after this.
+---------
+
+# Frieren Director Finally Explains Why Season 3 Is Taking So Long
+
+Anime, Frieren: Beyond Journey's End
+
+Wed, 08 Jul 2026 17:01:13 GMT
+
+https://www.cbr.com/frieren-beyond-journeys-end-season-3-director-wait-explain/
+
+Frieren: Beyond Journey's End director Tomoya Kitagawa breaks down why anime's favorite elven mage isn't returning to the airwaves until late 2027.
+---------
+
+# Game of Thrones Officially Reclaims TV Crown With New Series After House of the Dragon Miss
+
+TV, A Knight Of The Seven Kingdoms, House of the Dragon, Fantasy
+
+Wed, 08 Jul 2026 17:00:33 GMT
+
+https://www.cbr.com/a-knight-of-the-seven-kingdom-emmy-nomination-outstanding-drama/
+
+HBO Game of Thrones franchise has come to reclaim its throne.
+---------
+
+# Scott Snyder Confirms When Absolute Batman Story Arc Will End
+
+Comics, Absolute Batman
+
+Wed, 08 Jul 2026 16:47:19 GMT
+
+https://www.cbr.com/scott-snyder-confirms-absolute-batman-story-arc-ending/
+
+Absolute Batman's creator teases the end of an era.
+---------
+
+# 6 Worst Action Thriller Movies That Are Unwatchable Today
+
+Movie, Action, Thriller, Ballistic: Ecks vs. Sever, The Cold Light of Day
+
+Wed, 08 Jul 2026 17:41:13 GMT
+
+https://collider.com/worst-action-thriller-movies/
+
+From Taken 3 to Alex Cross, these action thrillers squandered tension, pacing, and excitement at every turn.
+---------
+
+# Marvel Gets First Acting Emmy Nomination in 5 Years
+
+TV News, Wonder Man, Yahya Abdul-Mateen II, MCU, Disney+
+
+Wed, 08 Jul 2026 17:33:42 GMT
+
+https://collider.com/wonder-man-yahya-abdul-mateen-emmy-nomination-marvel/
+
+Yahya Abdul-Mateen II has earned a 2026 Emmy nomination for Wonder Man, marking a major awards breakthrough for Marvel’s Disney+ series.
+---------
+
+# Disney’s Latest Live-Action Remake is Getting a ‘Snow White’ Level Reaction
+
+Movie News, Disney, Moana, Dwayne Johnson, Rotten Tomatoes
+
+Wed, 08 Jul 2026 17:25:39 GMT
+
+https://collider.com/disney-live-action-moana-remake-rotten-tomatoes-score-is-it-good/
+
+Disney and Dwayne Johnson's live-action Moana remake is being clobbered by critics with a devastating Rotten Tomatoes debut.
+---------
+
+# Michael J. Fox Officially Returns With Historic Milestone for the First Time in 10 Years
+
+TV News, Michael J. Fox, Shrinking, Emmy Awards, Apple TV
+
+Wed, 08 Jul 2026 17:05:54 GMT
+
+https://collider.com/apple-tv-shrinking-season-3-michael-j-fox-emmy-nomination/
+
+Michael J. Fox has officially earned his 18th Emmy nomination for his work in Apple TV's Shrinking Season 3.
+---------
+
+# 6 Worst 2000s Horror Movies That Are Truly 0/10
+
+Movie, Horror, 2000s, The Happening, Book of Shadows: Blair Witch 2
+
+Wed, 08 Jul 2026 16:34:13 GMT
+
+https://collider.com/worst-2000s-horror-movies/
+
+From The Happening, to FeardotCom, to House of the Dead, these 2000s horror flicks are horrendous.
+---------
+
+# One Spider-Man Veteran Confirms He Is Not Returning This July
+
+Movie News, J.K. Simmons, Spider-Man: Brand New Day, Marvel Studios, J. Jonah Jameson
+
+Wed, 08 Jul 2026 16:30:13 GMT
+
+https://collider.com/jk-simmons-spider-man-brand-new-day-return-rumors-response/
+
+J.K. Simmons has finally responded to rumors that he will return as J. Jonah Jameson in Spider-Man: Brand New Day.
+---------
+
+# Rob Reiner Earns a Touching Final Honor
+
+TV News, Rob Reiner, The Bear, Emmy Awards
+
+Wed, 08 Jul 2026 17:53:57 GMT
+
+https://movieweb.com/rob-reiner-emmy-nomination-the-bear/
+
+The late Rob Reiner was honored with a special recognition seven months after his tragic passing in late 2025.
+---------
+
+# 'Dutton Ranch' Star Reveals What the Finale Twist Means for the 'Yellowstone' Universe
+
+TV News, Dutton Ranch, Taylor Sheridan
+
+Wed, 08 Jul 2026 17:51:55 GMT
+
+https://movieweb.com/dutton-ranch-natalie-alyn-lind-finale-twist-yellowstone/
+
+The 'Dutton Ranch' reveal could have a major impact on the 'Yellowstone' universe.
+---------
+
+# 'Dune: Part Three' Teaser Unleashes a Transformed Timothée Chalamet in Action-Packed Finale
+
+Movie News, Dune: Part Three, Dune
+
+Wed, 08 Jul 2026 17:28:27 GMT
+
+https://movieweb.com/new-dune-part-three-trailer-timothee-chalamet/
+
+The epic conclusion to the sci-fi saga is almost here.
+---------
+
+# 39 Years Later, Kevin Costner's Iconic Crime Thriller Masterpiece Sets New Release
+
+Movie News, The Untouchables
+
+Wed, 08 Jul 2026 17:05:29 GMT
+
+https://movieweb.com/the-untouchables-4k-blu-ray-steelbook-release/
+
+Paramount Pictures is re-issuing the Limited Edition 4K UHD Blu-ray steelbook for Brian De Palma's 1987 crime thriller classic 'The Untouchables.'
+---------
+
+# Liam Neeson's 114-Minute Gangster Action Thriller Shoots Onto Free Streaming
+
+Movie News, Run All Night, Coming/Leaving Streaming
+
+Wed, 08 Jul 2026 17:00:20 GMT
+
+https://movieweb.com/run-all-night-free-streaming-tubi-july-2026/
+
+When will they learn that Neeson is not to be messed with?
+---------
+
+# 10 Calvin and Hobbes Strips That Reference Classic Movies
+
+Movie Lists
+
+Wed, 08 Jul 2026 17:00:20 GMT
+
+https://movieweb.com/calvin-and-hobbes-classic-movie-references/
+
+Bill Watterson occasionally slipped pop culture nods into Calvin and Hobbes. Here are the top 10 strips that reference classic movies.
+---------
+
+# The #1 Streaming Service Officially Crowned After Breaking Major Milestone
+
+TV News, Emmy Awards, Apple TV
+
+Wed, 08 Jul 2026 16:59:42 GMT
+
+https://movieweb.com/apple-tv-emmys-2026-streaming-milestone/
+
+The new king of the streaming world has been officially crowned after reaching an impressive milestone in one particular arena.
+---------
+
+# New Erotic Sci-Fi Thriller Spin-Off Sets Digital Release After Skipping Theaters
+
+Movie News, SOULM8TE
+
+Wed, 08 Jul 2026 16:41:30 GMT
+
+https://movieweb.com/soulm8te-official-trailer-digital-streaming-release-date/
+
+This R-rated sequel to 2023's breakout hit features a companion robot gone rogue.
+---------
+
 # DC Officially Casts New Batman After Robert Pattinson & He Can Match A Marvel Trend
 
 Movies, Masked Recs
