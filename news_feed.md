@@ -1,3 +1,355 @@
+# Apple TV's Upcoming Thriller Based On Acclaimed Novel Is 'Taken Meets No Country For Old Men'
+
+Streaming TV, Masked Recs
+
+Wed, 08 Jul 2026 01:15:20 GMT
+
+https://screenrant.com/last-seen-apple-tv-adaptation-taken-no-country-for-old-men/
+
+There is an upcoming Western thriller series for Apple TV based on an acclaimed action novel, and it is 'Taken meets No Country for Old Men'.
+---------
+
+# Christian Bale & Scarlett Johansson's Hit $109M Sci-Fi Classic Officially Sets First New Theatrical Release In 20 Years
+
+Movies, The Prestige, Hugh Jackman, Scarlett Johansson
+
+Wed, 08 Jul 2026 01:03:23 GMT
+
+https://screenrant.com/the-prestige-20th-anniversary-re-release-christopher-nolan/
+
+Following its original release in 2006, Scarlett Johansson and Hugh Jackman's The Prestige is returning to theaters for its 20th anniversary.
+---------
+
+# PlayStation Plus Users Given Bonus Freebie For July 2026
+
+Gaming, PlayStation Plus
+
+Wed, 08 Jul 2026 01:00:22 GMT
+
+https://screenrant.com/playstation-plus-premium-saros-free-trial/
+
+PlayStation Plus gamers can grab a bonus freebie, and it happens to be one of 2026's best games.
+---------
+
+# Why 14-Season NCIS Star Is Officially Returning With New Role
+
+TV, NCIS: Origins, Eric Christian Olsen, NCIS
+
+Wed, 08 Jul 2026 00:40:40 GMT
+
+https://screenrant.com/ncis-origins-season-3-eric-christian-olsen-return-explained/
+
+A returning star opened up about becoming an executive producer on NCIS: Origins season 3 after appearing in NCIS: Los Angeles for 14 seasons.
+---------
+
+# Prime Video Cancels New Series With 100% RT Score After Just 1 Season
+
+TV, It's Not Like That, It's Not Like That - Season 1
+
+Wed, 08 Jul 2026 00:01:23 GMT
+
+https://screenrant.com/its-not-like-that-series-canceled-prime-video/
+
+After attaining a rare 100% critics' score on Rotten Tomatoes, Prime Video has still made the decision to cancel the show after just one season.
+---------
+
+# James Gunn's First DCU Box Office Bomb Restores The Snyderverse's Superman Problem
+
+Movies, Masked Recs
+
+Wed, 08 Jul 2026 00:00:21 GMT
+
+https://screenrant.com/supergirl-box-office-bomb-james-gunn-dcu-snyderverse-problem/
+
+James Gunn's DC Universe just got its first box office bomb, and it's reminiscent of the biggest problem with the Snyderverse's Superman.
+---------
+
+# One Piece Confirms That Luffy's Biggest Fight Ever Has Truly Just Begun
+
+Anime, One Piece (1997), One Piece
+
+Wed, 08 Jul 2026 00:00:21 GMT
+
+https://screenrant.com/one-piece-luffy-imu-biggest-fight-ever-gear-5/
+
+The clash between Luffy & the King of the World is a battle with centuries of context that is finally underway in what might be Elbaph's finale.
+---------
+
+# Bleach Officially Confirms New Era To Begin After This Year's Finale
+
+Gaming, Bleach
+
+Wed, 08 Jul 2026 00:00:21 GMT
+
+https://screenrant.com/bleach-mirrors-high-new-era-post-finale/
+
+A new era for Bleach is set to officially being later this year after Thousand-Year Blood War, with new characters from creator Tite Kubo.
+---------
+
+# 10 Haunted Houses In Movies Where You Couldn't Pay Us Enough To Stay The Night
+
+Movies, We Are Still Here, Hell House LLC Origins: The Carmichael Manor, Rose Red, 1408, The Conjuring, The Others, Sinister, The Woman In Black, The Haunting in Connecticut, The Haunting
+
+Wed, 08 Jul 2026 00:00:21 GMT
+
+https://screenrant.com/scariest-haunted-houses-in-horror-movies/
+
+Haunted houses and horror movies go hand in hand, and here's a selection of films featuring homes you would be wise to stay far away from.
+---------
+
+# 4 Near-Perfect RPGs Ruined By The Main Character
+
+Games, Role Playing Game, Video Games, Final Fantasy
+
+Wed, 08 Jul 2026 01:45:12 GMT
+
+https://www.cbr.com/rpgs-most-controversial-main-characters/
+
+RPGs like Final Fantasy XII and Star Ocean: The Last Hope are perfect in almost every way - apart from their protagonists.
+---------
+
+# Prime Video Pulls the Plug on New Series With 100% Rotten Tomatoes Score
+
+TV, It's Not Like That
+
+Wed, 08 Jul 2026 01:39:14 GMT
+
+https://www.cbr.com/prime-video-cancels-its-not-like-that/
+
+Prime Video officially cancels its new drama series that earned universal praise with its reviews.
+---------
+
+# It's Officially a New Era for the 'John Wick' Franchise
+
+Movies, John Wick
+
+Wed, 08 Jul 2026 01:30:14 GMT
+
+https://www.cbr.com/caine-spinoff-end-of-john-wick-era/
+
+John Wick's story has seemingly ended, but it's the start of something new that fans have been waiting for in the franchise.
+---------
+
+# 5 Near-Perfect Anime Canceled Too Soon
+
+Anime, Yuri on Ice, Ouran High School Host Club
+
+Wed, 08 Jul 2026 01:25:13 GMT
+
+https://www.cbr.com/near-perfect-anime-canceled-too-soon/
+
+Anime like Ouran High School Host Club and Yuri on Ice built massive fandoms, but didn't secure a second season.
+---------
+
+# Xbox Game Pass Confirms 8 New Games Coming This Month
+
+Games, Xbox Series X (1)
+
+Wed, 08 Jul 2026 00:57:27 GMT
+
+https://www.cbr.com/xbox-game-pass-july-2026/
+
+Several new games on Xbox Game Pass are confirmed for July 2026, including a pair of Day One releases.
+---------
+
+# 2027 Is Officially The End Of An Era For The Nintendo Switch
+
+Games, Nintendo, Nintendo Switch, Hardware
+
+Wed, 08 Jul 2026 00:45:14 GMT
+
+https://www.cbr.com/2027-official-end-of-era-nintendo-switch/
+
+2027 will be a huge year for the original Nintendo Switch system, one that marks the end of an era for the company's best-selling console.
+---------
+
+# It's Official, We're Finally Getting the Sherlock Holmes TV Event of the Decade
+
+TV, moriarty, Sherlock Holmes, Mystery
+
+Wed, 08 Jul 2026 00:30:14 GMT
+
+https://www.cbr.com/new-moriarty-series-sherlock-holmes-tv-event/
+
+A newly announced TV series set in the world of Sherlock Holmes is poised to become a major television event.
+---------
+
+# Matt Damon Explains Why Christopher Nolan’s Scripts Are So Special
+
+CBR Exclusives, The Odyssey
+
+Wed, 08 Jul 2026 00:18:16 GMT
+
+https://www.cbr.com/matt-damon-christopher-nolan-scripts-the-odyssey/
+
+Matt Damon discusses working with Christopher Nolan on The Odyssey and why the director’s writing gives actors creative freedom.
+---------
+
+# Transformers x Scooby-Doo Officially Reveals Mysterious Prime & Automutt
+
+Anime, Transformers, Scooby-Doo, merchandise, hasbro, toys, hanna-barbera
+
+Wed, 08 Jul 2026 00:16:13 GMT
+
+https://www.cbr.com/transformers-scooby-doo-mysterious-prime-automutt/
+
+The newest Transformers collab toy turns the Mystery Machine into a robot in disguise, with the figure coming complete with a Cybertronian Scooby-Doo.
+---------
+
+# 10 Greatest Anime Power-Ups of All Time
+
+Anime, One Piece, Sailor Moon, Dragon Ball
+
+Wed, 08 Jul 2026 00:15:12 GMT
+
+https://www.cbr.com/official-best-anime-power-ups-of-all-time/
+
+The greatest power-ups in anime, coming from series like One Piece and Sailor Moon, represent some of the most epic moments in the medium's history.
+---------
+
+# 2026’s Most Controversial Banned Thriller Is Already Getting a Sequel This Month
+
+Gaming News, Citizen Vigilante, PlayStation (Original), Armie Hammer, Thriller
+
+Wed, 08 Jul 2026 01:45:13 GMT
+
+https://collider.com/citizen-vigilante-playstation-video-game-sequel-release-date-july-16-2026/
+
+Despite receiving a 6% critics' rating and being banned in Germany, the controversial 2026 thriller Citizen Vigilante is already getting a sequel.
+---------
+
+# 8 Best Horror Movies of 2026 So Far
+
+Movie, Horror, Obsession, Backrooms, 28 Years Later: The Bone Temple
+
+Wed, 08 Jul 2026 01:43:14 GMT
+
+https://collider.com/best-horror-movies-2026-so-far-ranked/
+
+2026 is a downright historic year for horror cinema, with modern juggernauts like Obsession and Backrooms standing out among the year's best movies.
+---------
+
+# The Best Sci-Fi Fantasy Series of the ‘80s Officially Returns With Major New Release
+
+Movie News, Masters of the Universe, Nicholas Galitzine, Fantasy
+
+Wed, 08 Jul 2026 01:30:14 GMT
+
+https://collider.com/he-man-and-the-masters-of-the-universe-original-series-blu-ray/
+
+He-Man and the Masters of the Universe: The Complete Original Series is officially returning with a brand-new release in 2026.
+---------
+
+# 26 Years Later, Dennis Quaid’s Cult Classic Sci-Fi Thriller Quietly Dominates Free Streaming
+
+Movie News, Sci-Fi, Thriller, Dennis Quaid, Frequency
+
+Wed, 08 Jul 2026 01:15:13 GMT
+
+https://collider.com/dennis-quaid-sci-fi-thriller-frequency-free-streaming-success-tubi-july-2026/
+
+A forgotten Dennis Quaid sci-fi thriller is suddenly dominating free streaming charts 26 years later, proving some stories age perfectly.
+---------
+
+# 'Ted Lasso' Icon Confirms Major Change For Season 4
+
+TV News, Apple TV, Hannah Waddingham, Ted Lasso, Jason Sudeikis
+
+Wed, 08 Jul 2026 01:00:15 GMT
+
+https://collider.com/apple-tv-ted-lasso-season-4-update-hannah-waddingham/
+
+Ahead of the beloved Apple TV series' return, Ted Lasso star Hannah Waddingham has given an update on the different dynamic of Season 4.
+---------
+
+# 10 Best Cozy Video Games of All Time, Ranked
+
+TV, Pokemon Snap, Stardew Valley, The Sims, Animal Crossing New Horizons
+
+Wed, 08 Jul 2026 00:55:14 GMT
+
+https://collider.com/cozy-video-games-best-ranked/
+
+From Stardew Valley to Animal Crossing: New Horizons, these are the best low-stress, relaxing, and cozy video games to play if you need to unwind.
+---------
+
+# These 6 Timothée Chalamet Movies Are Masterpieces
+
+Movie, Timothée Chalamet, Dune, Dune: Part Two, Call Me by Your Name
+
+Wed, 08 Jul 2026 00:51:14 GMT
+
+https://collider.com/best-timothee-chalamet-movies-masterpieces/
+
+From Call Me by Your Name, to Dune, to other career-defining performances, these Timothée Chalamet movies stand above the rest.
+---------
+
+# Prime Video Officially Revives Kevin Costner’s Massive Western Flop
+
+Movie News, Horizon: An American Saga - Chapter 1, Kevin Costner, Yellowstone, Western
+
+Wed, 08 Jul 2026 00:45:14 GMT
+
+https://collider.com/kevin-costner-horizon-chapter-one-prime-video-streaming-success-july-2026/
+
+Kevin Costner left Yellowstone for his passion project, which is now slowly cultivating a streaming fan base. Get all the details.
+---------
+
+# 9 Crime Thrillers Better Than 'Seven'
+
+Movie, The Silence of the Lambs, Thriller, Se7en, Rear Window
+
+Wed, 08 Jul 2026 00:32:14 GMT
+
+https://collider.com/crime-thriller-movies-better-than-seven/
+
+From Hollywood icons like Rear Window to international classics like Memories of Murder, these crime thriller movies are arguably superior to Seven.
+---------
+
+# Netflix’s New Spy Thriller Is One of the Biggest Streaming Sleeper Hits of 2026
+
+TV News, Netflix, Agent Kim Reactivated, Action, Thriller
+
+Wed, 08 Jul 2026 00:30:14 GMT
+
+https://collider.com/netflix-spy-thriller-agent-kim-reactivated-streaming-success-july-2026/
+
+A new 10-part spy thriller is dominating Netflix charts across 26 countries, but its biggest surprise might be how fast it exploded.
+---------
+
+# The 10 Best 'Simpsons' Couch Gags of the First 10 Seasons
+
+TV Lists, The Simpsons
+
+Wed, 08 Jul 2026 01:01:20 GMT
+
+https://movieweb.com/simpsons-best-couch-gags-first-10-seasons/
+
+From fezzes and go-karts to kicklines and elephants, these are the 10 best 'Simpsons' couch gags of the first 10 seasons.
+---------
+
+# Underrated 3-Part 'Reacher' Replacement Action Thriller Crosses a Major Milestone
+
+TV News, Tracker
+
+Wed, 08 Jul 2026 00:19:31 GMT
+
+https://movieweb.com/tracker-season-4-filming-start-announced/
+
+Justin Hartley confirmed that 'Tracker' Season 4 has begun filming.
+---------
+
+# 41 Years Later, the '80s Sci-Fi Masterpiece That'll Never Get a Remake Scores Big on Streaming
+
+Movie News, Back to the Future, Hot on Streaming
+
+Wed, 08 Jul 2026 00:00:19 GMT
+
+https://movieweb.com/back-to-the-future-streaming-hit-hbo-max-july-2026/
+
+Can you come up with another sci-fi icon that hasn't been remade? Neither could we.
+---------
+
 # Smallville Star's New HBO Crime Series Officially Casts Oscar Winner In Lead Role
 
 TV, HBO
