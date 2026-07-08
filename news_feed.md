@@ -1,3 +1,388 @@
+# 8 Failed Video Game Movie Adaptations That Deserve Another Try
+
+Movies, The Super Mario Galaxy Movie
+
+Wed, 08 Jul 2026 14:46:21 GMT
+
+https://screenrant.com/failed-video-game-movie-adaptations-another-try/
+
+Hollywood has made a lot of weak video game adaptations, but a select few of those films had great potential and could really use another try.
+---------
+
+# Marvel Studios Officially Reveals Kang The Conqueror's Design In 2026 Return
+
+Streaming TV, Masked Recs
+
+Wed, 08 Jul 2026 14:34:58 GMT
+
+https://screenrant.com/x-men-97-disney-plus-marvel-kang-the-conqueror-reveal/
+
+Kang the Conqueror returns with a new actor in 2026's Marvel Studios release, and the villain's design is as perfect as expected for his new role.
+---------
+
+# Sophie Turner’s Tomb Raider Gets Early Rave Reception From New Lara Croft Replacement
+
+TV, Tomb Raider
+
+Wed, 08 Jul 2026 14:33:40 GMT
+
+https://screenrant.com/tomb-raider-show-sophie-turner-lara-croft-praised-alix-wilton-regan/
+
+Lara Croft newcomer Alix Wilton Regan shares an enthusiastic early comment about Sophie Turner’s upcoming Tomb Raider show at Prime Video.
+---------
+
+# Scarlet Witch Has A Permanent New Child In Marvel Continuity
+
+Marvel Comics, Scarlet Witch
+
+Wed, 08 Jul 2026 14:19:49 GMT
+
+https://screenrant.com/scarlet-witch-new-child-eovan/
+
+Scarlet Witch breathes life into a literal weapon, giving birth to the a new hero and teaching it the power of free will to save Earth from destructio
+---------
+
+# Final Fantasy 7: Before Crisis Officially Marks End Of An Era On October 2026
+
+Gaming, Final Fantasy 7, Final Fantasy 7: Ever Crisis, Live Service Games, RPG
+
+Wed, 08 Jul 2026 14:16:39 GMT
+
+https://screenrant.com/final-fantasy-7-before-crisis-october-2026-shutdown/
+
+Before Crisis FFVII is making an official debut outside of Japan with a new release for Final Fantasy 7, but everything will end in October 2026.
+---------
+
+# 20 Years Ago, Doctor Who Rewrote The Doctor With A Single Line
+
+Classic TV, Doctor Who
+
+Wed, 08 Jul 2026 14:15:21 GMT
+
+https://screenrant.com/doctor-who-rewrite-character-rose-love-line/
+
+Every incarnation of Doctor Who's main character retains the usual core personality traits, but one line spoken 20 years ago changed everything.
+---------
+
+# The Big Bang Theory Lead Star Explains Acting Comeback After 7-Year Hiatus
+
+Network TV, The Big Bang Theory, Johnny Galecki
+
+Wed, 08 Jul 2026 14:03:13 GMT
+
+https://screenrant.com/johnny-galecki-kowalski-acting-comeback-explain/
+
+Seven years after The Big Bang Theory ended on CBS and one of its lead actors is making an acting comeback, and they have a good reason why.
+---------
+
+# The 8 Most Successful Original Movies of 2026 So Far
+
+Movies
+
+Wed, 08 Jul 2026 14:00:21 GMT
+
+https://screenrant.com/most-successful-2026-original-movies/
+
+Original movies have seen major success this year, making a case for continued studio investment in creativity despite a trend toward existing IP.
+---------
+
+# Jason Statham Is A Blood-Soaked Hero Saving A Cargo Ship Of Hostages In New Mutiny Trailer
+
+Movies, Mutiny, Jason Statham
+
+Wed, 08 Jul 2026 13:39:59 GMT
+
+https://screenrant.com/jason-statham-mutiny-movie-official-trailer/
+
+Jason Statham is pulling no punches as he embarks on a blood-soaked quest to save a cargo ship full of hostages in the new Mutiny trailer.
+---------
+
+# Superman Sequel Man Of Tomorrow Seemingly Reveals Return Of Dead DCU Villain In New Set Photo
+
+Movies, Man of Tomorrow, Superman, DC Universe
+
+Wed, 08 Jul 2026 13:31:28 GMT
+
+https://screenrant.com/superman-man-of-tomorrow-set-photo-flula-borg-return/
+
+After their death in a previous DC Universe project, the upcoming Superman sequel, Man of Tomorrow, is seemingly bringing a villain back for 2027.
+---------
+
+# Guy Ritchie's Sherlock Holmes 3 Gets a Major Script Update
+
+Movies, Sherlock Holmes
+
+Wed, 08 Jul 2026 14:34:09 GMT
+
+https://www.cbr.com/sherlock-holmes-3-script-update/
+
+One of the most long-awaited threequels of the century might actually be in the works after a 15 year wait, assuming things "shake out" well.
+---------
+
+# Universal Seals the Fate of M3GAN's R-Rated Spinoff Soulm8te After Sequel Bombed
+
+Movies, M3GAN, SOULM8TE, M3GAN 2.0
+
+Wed, 08 Jul 2026 14:30:37 GMT
+
+https://www.cbr.com/soulm8te-straight-to-streaming-august-2026/
+
+When it premiered in 2022, the M3GAN franchise revolutionized the sci-fi horror genre.
+---------
+
+# 6 Overlooked 2000s Sci-Fi Shows That Still Hold Up Today
+
+TV, Sci-Fi, Dark Angel, The 4400, Dollhouse
+
+Wed, 08 Jul 2026 14:30:13 GMT
+
+https://www.cbr.com/underrated-2000s-sci-fi-shows-list/
+
+The 2000s brought many excellent shows, but some sci-fi series, such as Dollhouse and The 4400, were sadly overlooked.
+---------
+
+# Assassin's Creed Black Flag Resynced is Officially the Best Remake of 2026, So Far
+
+Games, Assassin's Creed
+
+Wed, 08 Jul 2026 14:30:13 GMT
+
+https://www.cbr.com/assassins-creed-black-flag-resynced-review/
+
+Ubisoft raised its sails for Assassin's Creed Black Flag Resynced, and it achieves high marks for what it keeps and what it changes.
+---------
+
+# The Walking Dead's Rick/Daryl Reunion Is Finally More Possible Thanks to a New AMC Update
+
+TV, The Walking Dead, The Walking Dead: Daryl Dixon
+
+Wed, 08 Jul 2026 14:15:12 GMT
+
+https://www.cbr.com/the-walking-dead-rick-grimes-daryl-dixon-reunion/
+
+The Walking Dead bromance may not be dead yet as a reunion between Rick and Daryl is possible.
+---------
+
+# 4 Anime Swordsmen Stronger Than Roronoa Zoro
+
+Anime, One Piece, Bleach, Fairy Tail
+
+Wed, 08 Jul 2026 14:15:12 GMT
+
+https://www.cbr.com/one-piece-anime-swordsmen-stronger-than-zoro/
+
+One Piece's iconic Roronoa Zoro is far from being the strongest swordsman in all of anime.
+---------
+
+# It's Official, Pokémon Winds & Waves' First Regional Variant Has Leaked
+
+Games, Pokemon
+
+Wed, 08 Jul 2026 13:21:37 GMT
+
+https://www.cbr.com/pokemon-winds-waves-regional-variant-leaked/
+
+A trustworthy leaker is claiming that an iconic Gen 1 Pokémon is receiving a regional variant and new evolutions in Pokémon Winds & Waves.
+---------
+
+# 10 Best Action Anime of the Last 5 Years, Ranked
+
+Anime, Solo Leveling, Jujutsu Kaisen
+
+Wed, 08 Jul 2026 13:17:07 GMT
+
+https://www.cbr.com/best-action-anime-of-the-last-5-years-ranked/
+
+It's never been a better time to be an action anime fan, with the past five years going above and beyond with many of their adrenaline-pumping hits.
+---------
+
+# HBO's Most Controversial TV Season of the Decade Gets 50% PVOD Discount
+
+TV, Euphoria
+
+Wed, 08 Jul 2026 13:00:12 GMT
+
+https://www.cbr.com/hbo-euphoria-season-3-complete-series-bundle-sale-july-2026/
+
+Fans can snag one of HBO's biggest hits in recent years at an unbeatable price with this limited-time discount.
+---------
+
+# Terminator 2's Return To Theaters Cements It As the Greatest Action Movie Ever
+
+Movies, Terminator 2: Judgment Day, james cameron
+
+Wed, 08 Jul 2026 13:00:12 GMT
+
+https://www.cbr.com/terminator-2-greatest-action-movie-of-all-time-back-in-theaters/
+
+Just in time for its anniversary, fans can revisit James Cameron's genre-defining action movie that still stands the test of time.
+---------
+
+# 5 Video Games That Need an Anime Adaptation
+
+Video Games, Cyberpunk: Edgerunners, Devil May Cry, Castlevania, Pokémon
+
+Wed, 08 Jul 2026 14:30:14 GMT
+
+https://collider.com/5-video-games-that-need-an-anime-adaptation/
+
+In the wake of Cyberpunk: Edgerunners and Devil May Cry's success, here are five different video games that deserve an anime adaptation.
+---------
+
+# 'Evil Dead Burn' Stars Reveal the Hidden Character Backstories You Won't See in the Movie
+
+Exclusives, Evil Dead Burn, The Evil Dead, Horror, Sam Raimi
+
+Wed, 08 Jul 2026 14:01:13 GMT
+
+https://collider.com/evil-dead-burn-character-backstory-meaning-hunter-doohan-luciane-buchanan/
+
+Evil Dead Burn's Luciane Buchanan, Hunter Doohan, and Souheila Yacoub reveal their two-page character backstories and creepy Deadite details.
+---------
+
+# Jason Statham's R-Rated Action Thriller Gets Jaw-Dropping Trailer Ahead of August Release
+
+Movie News, Mutiny, Jason Statham, Action, Jean-François Richet
+
+Wed, 08 Jul 2026 13:03:30 GMT
+
+https://collider.com/jason-statham-r-rated-action-thriller-mutiny-trailer/
+
+Jason Statham's next R-rated action thriller, Mutiny, debuts a jaw-dropping new trailer ahead of August release date.
+---------
+
+# 10 Fantasy Anime Better Than 'Frieren: Beyond Journey's End'
+
+TV, Anime, Frieren: Beyond Journey's End, Delicious in Dungeon, Witch Hat Atelier
+
+Wed, 08 Jul 2026 12:50:13 GMT
+
+https://collider.com/fantasy-anime-better-than-frieren-beyond-journeys-end/
+
+Frieren: Beyond Journey's End is considered the best fantasy anime right now, but some, like Berserk and Witch Hat Atelier, might actually be better.
+---------
+
+# Forget 'Law & Order: SVU,' This 3-Part Police Series Is Officially "One of the Best Shows" on Streaming
+
+TV Features, Law & Order: Special Victims Unit, Blue Lights, BBC, Crime
+
+Wed, 08 Jul 2026 12:24:15 GMT
+
+https://collider.com/law-and-order-svu-replacement-blue-lights-britbox-series/
+
+Fans of Law & Order: SVU should tune into to the BBC’s action-packed three-season cop show, Blue Lights.
+---------
+
+# 'House of the Dragon' Is Finally Doing Justice to Its Two Best Characters
+
+TV Features, House of the Dragon, Matt Smith, Emma D'Arcy, HBO Max
+
+Wed, 08 Jul 2026 12:09:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-episode-3-daemon-rhaenyra-relationship/
+
+After a whole season of pitting them against each other, Rhaenyra and Daemon are finally working together in House of the Dragon.
+---------
+
+# 8 '80s Horror Movies That Became Comedy Cult Classics
+
+Movie Lists, Horror
+
+Wed, 08 Jul 2026 14:30:21 GMT
+
+https://movieweb.com/80s-horror-movies-to-comedy-cult-classics/
+
+These movies are one-of-a-kind in the way they are now often approached as comedies instead of their original intended horror.
+---------
+
+# Christopher Nolan Defends One of 'The Odyssey's Biggest Changes as a "No-Brainer"
+
+Movie News, The Odyssey, Christopher Nolan, Matt Damon, Tom Holland, Robert Pattinson, Jon Bernthal
+
+Wed, 08 Jul 2026 14:22:10 GMT
+
+https://movieweb.com/christopher-nolan-the-odyssey-english-language-change/
+
+The director explains his deliberate approach to language in the fantasy epic
+---------
+
+# Netflix Star Finds His Replacement 'You' Thriller Project With Disney Lead
+
+Movie News, Penn Badgley, Rachel Zegler
+
+Wed, 08 Jul 2026 14:13:42 GMT
+
+https://movieweb.com/penn-badgley-rachel-zegler-nda-thriller/
+
+Penn Badgley returns to psychological-thriller territory in 'NDA' opposite 'Snow White' star Rachel Zegler.
+---------
+
+# New Supernatural Thriller Confirmed to Officially Reunite 'King Kong' Stars
+
+Movie News, Kong: Skull Island, John Goodman, Brie Larson
+
+Wed, 08 Jul 2026 14:00:31 GMT
+
+https://movieweb.com/skeletons-john-goodman-brie-larson-reunion/
+
+John Goodman has joined Brie Larson in the upcoming creature feature horror film 'Skeletons,' marking their first reunion since 'Kong: Skull Island.'
+---------
+
+# Jason Statham's New 107-Minute Action Thriller Falls to Unknown Vigilante Crime Favorite on Streaming
+
+Movie News, Jason Statham, Shelter, Hot on Streaming, Action, Crime
+
+Wed, 08 Jul 2026 14:00:18 GMT
+
+https://movieweb.com/they-took-my-daughter-jason-statham-shelter-streaming-starz-july-2026/
+
+A new crime thriller streaming on Starz has come out of nowhere to topple some of the biggest hits around, including Jason Statham's latest smash hit.
+---------
+
+# Jason Statham's Most Successful Action Franchise Gets Disappointing Update
+
+Movie News, Fast Forever, Fast and Furious, Jason Statham, Vin Diesel
+
+Wed, 08 Jul 2026 13:15:42 GMT
+
+https://movieweb.com/vin-diesel-fast-forever-not-filming-update/
+
+It's a sad day for 'Fast & Furious' fans, one week after 'Fast Forever' star Vin Diesel's hopeful "update."
+---------
+
+# Jason Statham Is Back in First Trailer for Next Month's New Action Thriller
+
+Movie News, Jason Statham, Mutiny, Action, Thriller
+
+Wed, 08 Jul 2026 13:12:51 GMT
+
+https://movieweb.com/jason-statham-mutiny-trailer-action-thriller/
+
+There’s blood in the water.
+---------
+
+# Netflix's Explosive New 143-Minute Action Thriller Is Officially a Global Smash
+
+Movie News, Action, Hot on Streaming, Netflix
+
+Wed, 08 Jul 2026 12:24:14 GMT
+
+https://movieweb.com/blast-action-netflix-streaming-hit-july-2026/
+
+Netflix's newest action thriller, 'Blast', is officially a global smash two weeks after its streaming debut.
+---------
+
+# 'The Raid' Icon's New Non-Stop Action Thriller "Blows Liam Neeson Out of the Sky"
+
+Movie News, Iko Uwais, Action, Thriller, Streaming
+
+Wed, 08 Jul 2026 12:03:19 GMT
+
+https://movieweb.com/iko-uwais-wings-of-dread-reviews-action-thriller/
+
+The high-flying martial arts thriller is streaming now and has been hailed as the perfect '90s action throwback.
+---------
+
 # Disney’s Moana Remake First Reactions Are In
 
 Movies, Moana
