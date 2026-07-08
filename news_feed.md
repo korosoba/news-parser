@@ -1,3 +1,256 @@
+# Mighty Morphin Power Rangers Confirms Tommy Oliver’s Return Next Month
+
+Comics, Mighty Morphin Power Rangers, Power Rangers
+
+Wed, 08 Jul 2026 21:57:21 GMT
+
+https://screenrant.com/power-rangers-green-tommy-oliver-return-explained/
+
+The countdown has officially begun for the return of Mighty Morphin Power Rangers’ Tommy Oliver, who is making a monumental comeback this summer.
+---------
+
+# X-Men '97 Has A Huge Advantage Over X-Men: The Animated Series
+
+TV, X-Men '97
+
+Wed, 08 Jul 2026 21:48:26 GMT
+
+https://screenrant.com/xmen-97-storytelling-advantage-over-original-animated-series/
+
+X-Men '97's executive producer who was also the producer on X-Men: The Animated Series revealed why the Disney+ show has a major advantage.
+---------
+
+# James Gunn's DC Universe Officially Casts Major Flash Villain In Upcoming Superman Spinoff
+
+TV, Superman, DC Universe, The Flash
+
+Wed, 08 Jul 2026 21:42:32 GMT
+
+https://screenrant.com/superman-spinoff-tv-show-jimmy-tatro-gorilla-grodd-dc-casting/
+
+DC Studios is finally tapping into The Flash mythos as one of the Scarlet Speedster's major villains has been cast in James Gunn's Superman spinoff
+---------
+
+# Avatar: The Last Airbender Officially Returns In 2 Weeks With Its Most Exciting Projects In Years
+
+Classic TV, Avatar: The Last Airbender, Avatar Aang: The Last Airbender
+
+Wed, 08 Jul 2026 21:31:20 GMT
+
+https://screenrant.com/avatar-the-last-airbender-aang-movie-legends-game/
+
+Avatar: The Last Airbender is returning with an animated movie, Avatar Aang, and a video game, Avatar Legends, which are releasing the same weekend.
+---------
+
+# Ted Lasso Season 5 Return Gets Exciting New Update From Apple TV Exec
+
+TV, Ted Lasso
+
+Wed, 08 Jul 2026 21:28:25 GMT
+
+https://screenrant.com/ted-lasso-season-5-progress-apple-tv-matt-cherniss-update/
+
+Ted Lasso season 5's return receives an exciting new update from Apple TV executive Matt Cherniss ahead of season 4's premiere next month.
+---------
+
+# Ncuti Gatwa & Doctor Who Star Officially Reunite After Sci-Fi Show Exit & Indefinite Hiatus
+
+Movies, Ncuti Gatwa, Doctor Who
+
+Wed, 08 Jul 2026 21:20:44 GMT
+
+https://screenrant.com/ncuti-gatwa-doctor-who-reunion-movie-niamh-marie-smith/
+
+Following Ncuti Gatwa's exit from Doctor Who, followed by it going on hiatus, the actor is set to re-team with one of his co-stars from the series.
+---------
+
+# 2 Years Later, Dune Has Finally Answered A Major Question
+
+New Movies, Dune: Part Two, Dune: Part Three, Dune
+
+Wed, 08 Jul 2026 21:20:20 GMT
+
+https://screenrant.com/dune-2-where-chani-went-answered-dune-3/
+
+The Dune movie franchise left audiences with a major question regarding Chani's Dune 2 fate, and now an answer has finally come ahead of Dune 3.
+---------
+
+# IT: Welcome To Derry Season 2 Story Update Gets Early Review From HBO CEO
+
+TV, It: Welcome to Derry
+
+Wed, 08 Jul 2026 21:18:27 GMT
+
+https://screenrant.com/it-welcome-to-derry-season-2-direction-casey-bloys-response/
+
+As the wait for IT: Welcome to Derry season 2 continues, the story receives a promising update and early review from HBO CEO Casey Bloys.
+---------
+
+# A Knight Of The Seven Kingdoms' 3-Season Plan Addressed By HBO CEO
+
+TV, A Knight Of The Seven Kingdoms, Game of Thrones
+
+Wed, 08 Jul 2026 21:14:40 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-3-season-plan-casey-bloys-response/
+
+The head of HBO speaks out about the future of A Knight of the Seven Kingdoms and who will ultimately make the call on how many seasons it airs for.
+---------
+
+# Timothy Olyphant's New Drama Series Based on Bestselling Novel Gets Official Verdict From Author
+
+TV, Masked Recs
+
+Wed, 08 Jul 2026 21:03:48 GMT
+
+https://screenrant.com/timothy-olyphant-the-five-star-weekend-verdict-elin-hilderbrand/
+
+A brand-new drama series starring Timothy Olyphant gets an official verdict from the author who wrote the bestselling novel it is based on.
+---------
+
+# 10 Perfect Open-World Games That Are 50 Hours or More
+
+Games, Elden Ring, The Legend of Zelda: Tears of the Kingdom, Red Dead Redemption 2, Video Games
+
+Wed, 08 Jul 2026 21:16:14 GMT
+
+https://www.cbr.com/perfect-open-world-games-50-hours-or-longer/
+
+While some of the greatest open-world games can be completed in one or two sittings, these ten masterpieces require at least 50 hours to finish.
+---------
+
+# Ridley Scott Calls His Return to Sci-Fi His Best Movie in 10 Years
+
+Movies, ridley scott, The Dog Stars
+
+Wed, 08 Jul 2026 21:05:32 GMT
+
+https://www.cbr.com/ridley-scott-the-dog-stars-best-movie-10-years/
+
+Ridley Scott offers an exciting tease for his new sci-fi movie hitting theaters this summer.
+---------
+
+# 6 Characters Marvel Is Hiding in Spider-Man: Brand New Day
+
+Movies, Spider-Man: Brand New Day, MCU, superheroes
+
+Wed, 08 Jul 2026 21:01:13 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-secret-marvel-cameos-list-ranked/
+
+Spider-Man: Brand New Day is hiding several major cameos. Here's who we think might appear.
+---------
+
+# Disney+’s 2-Season Fantasy Reboot With 95% RT Officially a Streaming Hit Ahead of New Episodes
+
+TV, Percy Jackson & the Olympians
+
+Wed, 08 Jul 2026 20:46:13 GMT
+
+https://www.cbr.com/percy-jackson-fantasy-disney-plus-success-july-2026/
+
+The beloved fantasy reboot is back on Disney+'s Top 10 chart.
+---------
+
+# 8 Scariest Stephen King Novellas
+
+Books and Comics, The Mist, Stephen King, Apt Pupil, The Langoliers
+
+Wed, 08 Jul 2026 21:51:14 GMT
+
+https://collider.com/scariest-stephen-king-novellas-ranked/
+
+Some of Stephen King's scariest stories are novellas, including classics like The Mist and Apt Pupil, plus newer ones like Rattlesnakes and 1922.
+---------
+
+# Fans Are Convinced Jason in ‘GTA 6’ Has a Secret ‘Red Dead Redemption 2’ Connection
+
+Gaming, Rockstar Games, Grand Theft Auto, Games, Red Dead Redemption 2
+
+Wed, 08 Jul 2026 21:29:13 GMT
+
+https://collider.com/gta-6-jason-arthur-morgan-red-dead-redemption-2-relative-fan-theory/
+
+A new GTA 6 fan theory suggests Jason Duval could be Arthur Morgan’s descendant, connecting Grand Theft Auto 6 to Red Dead Redemption 2.
+---------
+
+# Guillermo del Toro Reunites With 'Pan's Labyrinth' Stars for 20th Anniversary Panel at SDCC 2026
+
+Exclusives, Pan's Labyrinth, SDCC, Guillermo del Toro, Ivana Baquero
+
+Wed, 08 Jul 2026 21:13:55 GMT
+
+https://collider.com/guillermo-del-toro-pans-labyrinth-sdcc-panel-ivana-baquero-doug-jones-guillermo-navarro/
+
+Details on our upcoming Pan's Labyrinth Q&amp;A panel at SDCC 2026, with special guests Guillermo del Toro, Ivana Baquero, and Doug Jones.
+---------
+
+# M. Night Shyamalan's Divisive Thriller Truly Feels Like a Lost 'Twilight Zone' Episode
+
+Movie Features, Old, M. Night Shyamalan, The Twilight Zone, Rod Serling
+
+Wed, 08 Jul 2026 20:54:13 GMT
+
+https://collider.com/m-night-shyamalan-old-twilight-zone-horror-movie/
+
+M. Night Shyamalan's Old captures the eerie, high-concept spirit of The Twilight Zone, turning rapid aging into one of modern horror's smartest ideas.
+---------
+
+# 'Evil Dead Burn' Officially Carves Up an Impressive Rotten Tomatoes Score
+
+Movie News, Evil Dead Burn
+
+Wed, 08 Jul 2026 21:28:37 GMT
+
+https://movieweb.com/evil-dead-burn-rotten-tomatoes-score/
+
+The new entry in the horror franchise has received some interesting and visceral reactions.
+---------
+
+# Apple TV's New 98% RT Horror Series Is Officially a Streaming Classic
+
+Features, Widow's Bay
+
+Wed, 08 Jul 2026 21:27:54 GMT
+
+https://movieweb.com/widows-bay-emmy-nominations/
+
+One of the most acclaimed new TV shows of 2026, Apple TV's horror-comedy series Widow's Bay, just nabbed 19 Emmy nominations.
+---------
+
+# How a $20 Million Historical Movie Beat a $170 Million Superhero Epic at the Box Office
+
+Features, Supergirl, Young Washington
+
+Wed, 08 Jul 2026 21:07:34 GMT
+
+https://movieweb.com/young-washington-supergirl-box-office/
+
+'Young Washington' might have won the Fourth of July weekend, but how will it fare after its holiday opening weekend gimmick?
+---------
+
+# Jason Statham's "John Wick Meets Taken" Action Thriller Loses to 2026 Sci-Fi Masterpiece on Streaming
+
+Movie News, Jason Statham, Project Hail Mary, A Working Man, Hot on Streaming
+
+Wed, 08 Jul 2026 21:00:19 GMT
+
+https://movieweb.com/project-hail-mary-a-working-man-beats-streaming-july-2026/
+
+While Statham is a streaming powerhouse, he has fallen behind this year's sci-fi darling.
+---------
+
+# Apple TV Eyeing Expansion of Near-Perfect Supernatural Thriller Streaming Series
+
+TV News, Widow's Bay, Apple TV
+
+Wed, 08 Jul 2026 20:59:28 GMT
+
+https://movieweb.com/widows-bay-spinoffs-apple-tv-streaming/
+
+One Apple TV exec confirms that 'Widow's Bay' could expand into spin-offs.
+---------
+
 # Mad Men: All 18 Of Don Draper's Mistresses Explained
 
 Classic TV, Mad Men
