@@ -1,3 +1,355 @@
+# Read An Exclusive Excerpt From Hawk & Sparrow, Ayana Gray's New Gilded Age Romantasy
+
+Books, Hawk & Sparrow
+
+Wed, 08 Jul 2026 19:16:23 GMT
+
+https://screenrant.com/hawk-and-sparrow-book-ayana-gray-excerpt-exclusive/
+
+Ayana Gray's new YA novel, Hawk & Sparrow, debuts this September, and ScreenRant has an exclusive excerpt from the Gilded Age era mystery romance.
+---------
+
+# Tom Hanks' Da Vinci Code Replacement & Filming Start Window Get Major Update From Netflix Reboot Creator
+
+TV, The Da Vinci Code, Robert Langdon
+
+Wed, 08 Jul 2026 19:12:26 GMT
+
+https://screenrant.com/tom-hanks-da-vinci-code-netflix-reboot-replacement-filming-start-update/
+
+EXCLUSIVE: Tom Hanks played Robert Langdon in three Da Vinci Code films, but a brand-new actor will soon step into that role on Netflix.
+---------
+
+# Elder Scrolls 6 Release Date Update Is Better Than We Expected
+
+Gaming, The Elder Scrolls 6, The Elder Scrolls, PC
+
+Wed, 08 Jul 2026 19:00:23 GMT
+
+https://screenrant.com/elder-scrolls-6-release-window-leak/
+
+We've had a brand-new Elder Scrolls 6 release date update, and it may be a lot more promising than a lot of people were expecting.
+---------
+
+# Reacher Officially Releasing 2 Seasons In 2026 Is A Double-Edged Sword
+
+Streaming TV, Reacher, Neagley
+
+Wed, 08 Jul 2026 19:00:23 GMT
+
+https://screenrant.com/reacher-season-4-neagley-2026-release-double-edged-sword/
+
+2026 will be a massive year for Prime Video's Reacher, but while the upcoming releases provide reason to be excited, there is also a downside.
+---------
+
+# Supergirl: Why DCU Fans Are Right To Worry
+
+Movies, Originals
+
+Wed, 08 Jul 2026 19:00:23 GMT
+
+https://screenrant.com/video/supergirl-why-dcu-fans-are-right-to-worry/
+
+The DCU suddenly finds itself at a crossroads. While Superman proved James Gunn's new shared universe could connect with audiences, Supergirl has raised difficult questions about the franchise's momentum, superhero fatigue, and whether Warner Bros.' changing ownership could reshape the entire plan.
+---------
+
+# Timothy Olyphant's Hit Apple TV Comedy Gets Exciting Filming Update For Season 2
+
+TV, Stick
+
+Wed, 08 Jul 2026 18:49:58 GMT
+
+https://screenrant.com/timothy-olyphant-stick-season-2-filming-update/
+
+Timothy Olyphant shares an update on the filming of season 2 of his successful Apple TV comedy series following its renewal last summer.
+---------
+
+# New Fallout Game Is Coming From New Vegas Developer
+
+Gaming, Fallout
+
+Wed, 08 Jul 2026 18:31:37 GMT
+
+https://screenrant.com/fallout-new-game-obsidian-new-vegas-josh-sawyer/
+
+The studio behind what might be the best Fallout game is finally returning to the franchise after Xbox restructuring and lay-offs this week.
+---------
+
+# DC Officially Debuts Green Lantern's Ultimate Superpower
+
+DC Comics, Green Lantern
+
+Wed, 08 Jul 2026 18:30:22 GMT
+
+https://screenrant.com/green-lantern-greatest-construct/
+
+DC reveals what might be the Green Lanterns' most powerful construct, dividing the power rings' history in two with the help of dozens of characters.
+---------
+
+# 5 Actors We'd Love To Play Carl In Peacock's Dungeon Crawler Carl Show
+
+Streaming TV, Dungeon Crawler Carl
+
+Wed, 08 Jul 2026 18:30:22 GMT
+
+https://screenrant.com/dungeon-crawler-carl-show-character-casting-actors/
+
+Casting Carl will be one of the most difficult challenges for Peacock's Dungeon Crawler Carl show, but these five actors may just have what it takes.
+---------
+
+# The 10 Most Profitable Movies Of All Time (Including Obsession)
+
+Movies, Obsession
+
+Wed, 08 Jul 2026 18:30:22 GMT
+
+https://screenrant.com/most-profitable-movies-all-time/
+
+Obsession continues to break box office records and now stands among esteemed company as one of the most profitable films of all time.
+---------
+
+# Roku Removes Major Streaming Feature After a Decade: 'Trash Update'
+
+TV, Roku
+
+Wed, 08 Jul 2026 19:03:42 GMT
+
+https://www.cbr.com/roku-removes-streaming-feature-homepage-update/
+
+With many streaming platforms making huge changes, a fan-favorite's new update leaves fans unhappy.
+---------
+
+# Naruto Shippuden Officially Returns With Its First New Anime Short in 9 Years
+
+Anime, Naruto, Naruto: Shippuden, Boruto: Naruto Next Generations
+
+Wed, 08 Jul 2026 19:00:45 GMT
+
+https://www.cbr.com/naruto-shippuden-new-anime-short-9-years/
+
+After almost 10 years, Naruto Shippuden returns with its first new anime short ahead of the franchise's 25th anniversary celebration in 2027.
+---------
+
+# 8 Classic Kids Movies No One Talks About Anymore
+
+Movies, Animation, Anastasia, Sci-Fi
+
+Wed, 08 Jul 2026 19:00:13 GMT
+
+https://www.cbr.com/classic-kids-movies-no-one-remembers-list/
+
+Kids cinema has led to some of the greatest filmmaking in history, but even some of the best classics have become so obscure no one talks about them.
+---------
+
+# The Boys Fans Cry Foul After 2026 Emmy Nominations Reveal Major Snub
+
+TV, The Boys
+
+Wed, 08 Jul 2026 18:46:56 GMT
+
+https://www.cbr.com/the-boys-antony-starr-emmys-snub/
+
+The Boys fans threw in a flag after the full nominations for this year's Primetime Emmy Awards were revealed.
+---------
+
+# 7 Anime Heroes Stronger Than Superman
+
+Anime, Superman
+
+Wed, 08 Jul 2026 18:45:13 GMT
+
+https://www.cbr.com/anime-heroes-stronger-than-superman/
+
+Superman has been the pinnacle of strength for decades, but several anime heroes have emerged in recent years who could challenge the Man of Steel.
+---------
+
+# Dune Part Three   Official Trailer
+
+Movies, Dune: Part Three
+
+Wed, 08 Jul 2026 18:12:27 GMT
+
+https://www.cbr.com/video/dune-part-three-official-trailer/
+
+Warner Bros. unveiled the official trailer for Dune: Part Three
+---------
+
+# Dune Part Three Trailer Officially Unveils the Sci-Fi Event of 2026
+
+Movies, Dune: Part Three, Sci-Fi
+
+Wed, 08 Jul 2026 18:11:50 GMT
+
+https://www.cbr.com/dune-part-three-trailer/
+
+Dune: Part Three unveils an epic new trailer.
+---------
+
+# Nathan Fillion's Dark Midwest Noir Series First Look Revealed
+
+Comics, Dark Horse Comics
+
+Wed, 08 Jul 2026 18:00:12 GMT
+
+https://www.cbr.com/nathan-fillion-dark-horse-witness-point-first-look/
+
+Dark Horse Comics shares an early look at Nathan Fillion's Witness Point.
+---------
+
+# Tomb Raider / G.I. Joe Crossover Planned For Fall 2026
+
+Comics, Tomb Raider, G.I. Joe
+
+Wed, 08 Jul 2026 18:00:12 GMT
+
+https://www.cbr.com/gi-joe-tomb-raider-crossover-comic-fall-2026/
+
+Lara Croft is about to rub elbows with some real American heroes.
+---------
+
+# 8 Action Thrillers Better Than 'John Wick'
+
+Movie, John Wick, Action, Thriller, Heat
+
+Wed, 08 Jul 2026 19:19:14 GMT
+
+https://collider.com/action-thriller-movies-better-than-john-wick/
+
+John Wick marked a distinct before-and-after in the action genre, but thrillers like The Raid and Upgrade might actually surpass it in sheer quality.
+---------
+
+# Two of Gaming’s Best Sci-Fi Franchises Are Officially Crossing Over
+
+Gaming News, Cyberpunk: Edgerunners, Apex Legends, Netflix, Video Game
+
+Wed, 08 Jul 2026 19:13:37 GMT
+
+https://collider.com/cyberpunk-edgerunners-apex-legends-crossover-trailer/
+
+As Netflix gears up for Season 2, Cyberpunk: Edgerunners is making a major comeback in an unexpected crossover.
+---------
+
+# Netflix Officially Brings Back Fan-Favorite Feature After 6 Years, But There's a Big Catch
+
+TV News, Netflix, Streaming, International
+
+Wed, 08 Jul 2026 19:05:46 GMT
+
+https://collider.com/netflix-free-trial-return-international/
+
+6 years after being discontinued, Netflix is officially bringing back free trials, but there's a big catch.
+---------
+
+# PlayStation Fans Officially Refuse To Let Sony Ignore Gaming's Biggest Conflict
+
+Gaming News, PlayStation 5, PlayStation (Original), Sony, Games
+
+Wed, 08 Jul 2026 19:00:14 GMT
+
+https://collider.com/playstation-breaks-silence-physical-games-disc-backlash/
+
+Sony's announcement to stop producing physical game discs in 2028 has ignited a firestorm of criticism from fans demanding a reversal.
+---------
+
+# Prime Video's Best Sci-Fi Detective Series Is Officially One of Marvel's Most Acclaimed Shows Ever
+
+TV News, Emmy Awards, Spider-Noir, Prime Video, Marvel
+
+Wed, 08 Jul 2026 18:40:10 GMT
+
+https://collider.com/prime-video-detective-series-spider-noir-11-emmy-nominations/
+
+As fans wait for news on Season 2, Prime Video's new detective series scored a whopping 11 nominations for this year's Emmys.
+---------
+
+# The Best Pirate Game of All Time Returns to Thunderous Applause
+
+Gaming News, Assassin's Creed IV: Black Flag, Assassin's Creed, Ubisoft
+
+Wed, 08 Jul 2026 18:38:23 GMT
+
+https://collider.com/assassins-creed-black-flag-resynced-metacritic-score-is-it-good/
+
+The reviews of Assassin's Creed: Black Flag Resynced are in, and they're praising it as one of the franchise's best games.
+---------
+
+# Harlan Coben’s Netflix Series Surges Back to #1 With 74 Million Views
+
+TV News, Harlan Coben, I Will Find You, Netflix, Sam Worthington
+
+Wed, 08 Jul 2026 18:30:13 GMT
+
+https://collider.com/i-will-find-you-harlan-coben-netflix-mystery-74-million-views-in-3-weeks/
+
+Harlan Coben's latest Netflix limited series, I Will Find You, continues to dominate the streamer's viewership charts for the third week in a row.
+---------
+
+# It Is Officially the End of an Era for Dune
+
+Movie News, Dune, Dune 2, Dune: Part Three, Sci-Fi
+
+Wed, 08 Jul 2026 18:21:30 GMT
+
+https://collider.com/dune-part-3-trailer-jason-momoa-timothee-chalamet/
+
+Paul Atreides is no longer the hero in a brand-new trailer for Dune: Part 3. See the trailer for the sci-fi finale here!
+---------
+
+# Moana: Maui’s Hook Nearly Beat Dwayne Johnson | Set Stories
+
+Movie, Moana
+
+Wed, 08 Jul 2026 18:15:14 GMT
+
+https://collider.com/video/moana-maui-s-hook-nearly-beat-dwayne-johnson-set-stories/
+
+Catherine Laga'aia and Dwayne Johnson share some of the funniest and most meaningful moments from making Disney's live-action Moana, from an unforgettable banana prank to the challenge of learning authentic Polynesian wayfinding.
+---------
+
+# In Just 5 Minutes, AMC’s Hit Vampire Thriller Officially Changes Everything on a Rewatch
+
+TV Features, Interview with the Vampire, The Vampire Lestat, Assad Zaman, AMC+
+
+Wed, 08 Jul 2026 18:11:13 GMT
+
+https://collider.com/the-vampire-lestat-episode-5-daniel-armand-devils-minion-scene/
+
+Episode 5 of The Vampire Lestat dramatically alters the series' dynamics with a surprising Armand revelation, reshaping the entire show to date.
+---------
+
+# Netflix Finds New Hit With George R.R. Martin's Dark Thriller
+
+TV News, Dark Winds, Netflix, Hot on Streaming, George R.R. Martin
+
+Wed, 08 Jul 2026 19:00:21 GMT
+
+https://movieweb.com/dark-winds-george-r-martin-stream-netflix-july-2026/
+
+George R.R. Martin's hidden gem dark thriller is now streaming on Netflix.
+---------
+
+# Harlan Coben's #1 in the World Netflix Thriller Can Run For Years
+
+Features, Harlan Coben, Netflix, Thriller, I Will Find You
+
+Wed, 08 Jul 2026 18:00:18 GMT
+
+https://movieweb.com/i-will-find-you-harlan-coben-multiple-seasons/
+
+Netflix's adaptation of Harlan Coben's popular novel has taken the world by storm. But does it have legs running beyond the source material?
+---------
+
+# 15 Best TV-MA Anime Series on Netflix
+
+TV Lists, Anime, Netflix
+
+Wed, 08 Jul 2026 18:00:18 GMT
+
+https://movieweb.com/best-r-rated-anime-series-netflix/
+
+These great anime series on Netflix don’t shy away from mature themes and thought-provoking narratives.
+---------
+
 # New Genshin Impact 7.0 Free Character Will Revolutionize Gameplay
 
 Gaming, Genshin Impact, PC, Live Service Games
