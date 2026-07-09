@@ -1,3 +1,355 @@
+# Nathan Fillion's New HBO Show Is The Rookie Meets Firefly
+
+Streaming TV, Masked Recs
+
+Thu, 09 Jul 2026 22:45:20 GMT
+
+https://screenrant.com/lanterns-nathan-fillion-the-rookie-meets-firefly/
+
+Nathan Fillion has an upcoming HBO TV show that brings together the best elements of The Rookie and Firefly, and it will be a huge TV show.
+---------
+
+# Castiel's Best Supernatural Line Is Still The Greatest Quote in TV History
+
+TV, Supernatural
+
+Thu, 09 Jul 2026 22:41:56 GMT
+
+https://screenrant.com/best-supernatural-quote-castiel-tv-history/
+
+Castiel delivers some of Supernatural's most profound lines, with one quote standing out as one of the greatest lines in television history.
+---------
+
+# 10 Most Powerful Hogwarts Professors In The Harry Potter Movies
+
+Movies, Harry Potter
+
+Thu, 09 Jul 2026 22:31:20 GMT
+
+https://screenrant.com/harry-potter-movies-most-powerful-hogwarts-professors/
+
+The Hogwarts staff from the Harry potter movies boasts some of the most formidable spell-casters in the world of witchcraft and wizardry.
+---------
+
+# 7 Police Procedural Shows Better Than Blue Bloods
+
+Streaming TV, Blue Bloods
+
+Thu, 09 Jul 2026 22:31:20 GMT
+
+https://screenrant.com/police-procedural-shows-better-than-blue-bloods/
+
+Blue Bloods distinctive setup and central police family set the show apart. That said, there are other police procedurals that rival Blue Bloods.
+---------
+
+# Naruto’s Live-Action Reboot Takes Big Step Forward In First Team 7 Casting Update
+
+Movies, Naruto
+
+Thu, 09 Jul 2026 22:29:26 GMT
+
+https://screenrant.com/narutos-live-action-reboot-team-7-casting-update/
+
+A brand-new casting update has been confirmed by both Lionsgate and the Naruto live-action reboot's director Destin Daniel Cretton for the new movie.
+---------
+
+# 5 Years Later, The Sopranos Creator Admits To 1 Critical Canon Mistake With HBO's Prequel Movie
+
+TV, The Many Saints of Newark, The Sopranos
+
+Thu, 09 Jul 2026 22:15:59 GMT
+
+https://screenrant.com/the-sopranos-many-saints-of-newark-canon-mistake-david-chase/
+
+It’s been five years since The Sopranos prequel film was released, but creator David Chase is finally owning up to a major mistake he made.
+---------
+
+# Taylor Sheridan's Best Action Thriller Since Sicario Returns In Just One Month
+
+Streaming TV, Masked Recs
+
+Thu, 09 Jul 2026 22:15:21 GMT
+
+https://screenrant.com/taylor-sheridan-lioness-season-3-august-2/
+
+Taylor Sheridan's best action thriller since Sicario is coming back to Paramount+ in early August, and it's the greatest show in his catalog.
+---------
+
+# Prime Video's New Blade Runner Sequel Show Gets Exciting Release Update From EP
+
+TV, Blade Runner 2099, Blade Runner, Prime Video
+
+Thu, 09 Jul 2026 22:07:58 GMT
+
+https://screenrant.com/blade-runner-2099-prime-video-release-update-exciting-zucker/
+
+Exclusive: Producer David W. Zucker offers a very exciting release and marketing update for Prime Video's highly-anticipated Blade Runner sequel.
+---------
+
+# 12 Years Later, Tony DiNozzo Proved NCIS Wrong
+
+TV, NCIS
+
+Thu, 09 Jul 2026 22:04:21 GMT
+
+https://screenrant.com/ncis-tony-dinozzo-prove-wrong-tali/
+
+In an unexpected twist, NCIS fan-favorite Tony DiNozzo went through a drastic but believable transformation that contradicted his own iconic quote.
+---------
+
+# DC Will Soon Launch A New Shared Universe Led By A The Boys Star
+
+Streaming TV, Masked Recs
+
+Thu, 09 Jul 2026 21:51:13 GMT
+
+https://screenrant.com/my-adventures-with-green-lantern-dcu-new-cinematic-universe/
+
+A major star from Prime Video's The Boys is now set to lead DC's new shared universe, and the actor is playing a fan-favorite superhero.
+---------
+
+# Critical Role's Calamity Movie Is the Perfect Lord of the Rings Replacement
+
+Movies, Critical Role
+
+Thu, 09 Jul 2026 22:30:13 GMT
+
+https://www.cbr.com/critical-role-calamity-movie-perfect-lord-of-the-rings-replacement/
+
+After the success of The Legend of Vox Machina and The Mighty Nein, the team behind Critical Role has plans for a theatrical fantasy epic.
+---------
+
+# Netflix Breaks Silence on Canceling the Boroughs After 1 Season Despite 96% RT Score
+
+TV, The Boroughs
+
+Thu, 09 Jul 2026 22:29:14 GMT
+
+https://www.cbr.com/netflix-explains-canceling-the-boroughs/
+
+A Netflix exec comments on ending The Boroughs after just one season.
+---------
+
+# 8 Reasons It's Tough to Read One Piece Today
+
+Anime, One Piece, Manga
+
+Thu, 09 Jul 2026 22:15:14 GMT
+
+https://www.cbr.com/one-piece-manga-hard-to-read-today/
+
+One Piece is not the kind of story that lets one read it casually, take a break, and pick it back up without consequences.
+---------
+
+# Christopher Nolan Introduces a Career First With The Odyssey's End Credits
+
+Movies
+
+Thu, 09 Jul 2026 22:04:38 GMT
+
+https://www.cbr.com/christopher-nolan-the-odyssey-post-credit-scene-first/
+
+Christopher Nolan does something new after nearly three decades in filmmaking.
+---------
+
+# Adventure Time Reveals Finn and Jake's New Look Ahead of Series Return
+
+Comics, comics, Adventure Time, Cartoon Network
+
+Thu, 09 Jul 2026 22:00:13 GMT
+
+https://www.cbr.com/adventure-time-halloween-special-first-look/
+
+Finn and Jake make their long-awaited return for a holiday special.
+---------
+
+# Keanu Reeves' New Action Thriller Is Jaws With a Sci-Fi Twist
+
+Movies, Keanu Reeves
+
+Thu, 09 Jul 2026 21:33:17 GMT
+
+https://www.cbr.com/keanu-reeves-shiver-jaws-time-travel/
+
+Keanu Reeves shares details about his next movie which blends shark horror with time travel sci-fi.
+---------
+
+# Davie Bowie's 2-Season Steamy Anthology Series Returns as a PVOD Hit 26 Years After Last Episode
+
+TV, Horror, The Hunger
+
+Thu, 09 Jul 2026 21:31:17 GMT
+
+https://www.cbr.com/david-bowie-the-hunger-success-pvod-apple-tv-store/
+
+One of the most underrated steamy horror anthologies is officially making a run for the top of the video-on-demand charts nearly 30 years after ending
+---------
+
+# 5 MCU Heroes Smarter Than Tony Stark, Ranked
+
+Movies, MCU, Tony Stark
+
+Thu, 09 Jul 2026 21:30:14 GMT
+
+https://www.cbr.com/mcu-movie-heroes-smarter-than-tony-stark-list/
+
+Tony Stark may think he is the smartest hero in the multiverse, but the MCU has some heroes who outrank even his intelligence.
+---------
+
+# Tom Hanks’ 20-Episode World War II Series Is Officially No. 1 on PVOD in America
+
+TV, Tom Hanks, Apple TV
+
+Thu, 09 Jul 2026 21:20:54 GMT
+
+https://www.cbr.com/world-war-2-with-tom-hanks-success-pvod-apple-tv-store/
+
+World War II with Tom Hanks premiered in May on the History Channel, and the show has topped the PVOD charts in the United States.
+---------
+
+# 5 Best One Piece Starter Decks in 2026
+
+Games, One Piece, TCG, Tabletop
+
+Thu, 09 Jul 2026 21:15:13 GMT
+
+https://www.cbr.com/best-one-piece-starter-decks-to-buy-2026/
+
+For interested tabletop players looking to get into the One Piece TCG, these five starter decks are an excellent introduction to the game's mechanics.
+---------
+
+# Live-Action 'Naruto' Remake Officially Begins Search for Team 7
+
+Movie News, Naruto, Destin Daniel Cretton, Spider-Man: Brand New Day, Anime
+
+Thu, 09 Jul 2026 22:42:53 GMT
+
+https://collider.com/naruto-live-action-remake-casting-begins-destin-daniel-cretton/
+
+Destin Daniel Cretton's live-action 'Naruto' remake has officially begun pre-production, with casting now kicking off.
+---------
+
+# Guy Ritchie’s ‘Sherlock Holmes 3’ Officially Gets Its Biggest Update in 15 Years
+
+Movie News, Sherlock Holmes, Sherlock Holmes: A Game of Shadows, Guy Ritchie, Robert Downey Jr
+
+Thu, 09 Jul 2026 22:30:14 GMT
+
+https://collider.com/guy-ritchie-sherlock-holmes-3-script-update-chris-brancato/
+
+Sherlock Holmes 3 writer Chris Brancato has confirmed that he has written a draft of Robert Downey Jr.’s long-awaited sequel.
+---------
+
+# 8 Most Disappointing Movies of 2026 So Far
+
+Movie, Supergirl, Scream 7, The Bride!, The Mandalorian and Grogu
+
+Thu, 09 Jul 2026 22:08:13 GMT
+
+https://collider.com/most-disappointing-movies-2026-so-far-ranked/
+
+Supergirl, Scream 7, and The Bride! are all among the most disappointing movies released in 2026 so far.
+---------
+
+# Forget ‘Gladiator II,’ Ridley Scott Says This Is His Best Movie Since ‘The Martian’
+
+Movie News, Ridley Scott, The Martian, The Dog Stars, Jacob Elordi
+
+Thu, 09 Jul 2026 22:00:13 GMT
+
+https://collider.com/ridley-scott-the-dog-stars-comments-best-movie-since-the-martian/
+
+Ridley Scott claimed that his upcoming sci-fi movie, The Dog Stars, is better than any film he has made in more than a decade. Read his full comments.
+---------
+
+# 'Game of Thrones' Left These 8 Questions Unanswered
+
+TV, Game Of Thrones, George R.R. Martin, HBO, Fantasy
+
+Thu, 09 Jul 2026 21:52:13 GMT
+
+https://collider.com/game-of-thrones-unanswered-questions/
+
+The HBO fantasy juggernaut Game of Thrones has long ended, but there are still questions that fans debate about the drama series to this day.
+---------
+
+# Russell Crowe Quietly Dropped the Year's Must-See Crime Thriller on Prime Video
+
+Movie
+
+Thu, 09 Jul 2026 21:45:14 GMT
+
+https://collider.com/russell-crowe-must-see-the-get-out-prime-video/
+
+Prime Video's 'The Get Out,' directed by Derrick Borte, stars Russel Crowe as a retired club owner attempting to leave his life of crime behind.
+---------
+
+# 10 Most Rewatchable TV Shows of All Time
+
+TV, The Office, The Golden Girls, Parks and Recreation, Game Of Thrones
+
+Thu, 09 Jul 2026 21:39:14 GMT
+
+https://collider.com/most-rewatchable-tv-shows-of-all-time-ranked/
+
+AMC's Breaking Bad, HBO's Game of Thrones, and NBC's The Office are among the greatest TV shows that are perfect to watch over and over again.
+---------
+
+# HBO's Thrilling Sci-Fi Epic Is at Its Best When It Sticks to the Books
+
+TV Features, Dune: Prophecy, Emily Watson, Mark Strong, Denis Villeneuve
+
+Thu, 09 Jul 2026 21:27:15 GMT
+
+https://collider.com/dune-prophecy-frank-herbert-book-hbo-sci-fi-epic/
+
+Dune: Prophecy draws from the Frank Herbert book lore by delving into the origins of the Bene Gesserit and their role in shaping the universe.
+---------
+
+# Director of Sydney Sweeney's Best R-Rated Thriller Officially Finds Next Movie
+
+Movie News, Paul Feig, Blumhouse, Platinum Dunes, Michael Bay
+
+Thu, 09 Jul 2026 21:20:56 GMT
+
+https://collider.com/the-housemaid-director-paul-feig-new-horror-thriller-detention-blumhouse/
+
+Ahead of Sydney Sweeney's The Housemaid 2, Paul Feig has officially lined up their next thriller thanks to Blumhouse.
+---------
+
+# 10 Best Action Scenes From Crime Movies
+
+Movie, Heat, Kill Bill: Vol. 1, Scarface, The Raid 2
+
+Thu, 09 Jul 2026 21:19:14 GMT
+
+https://collider.com/best-action-scenes-from-crime-movies-ranked/
+
+Heat, The Untouchables, and To Live and Die in L.A. are all masterful crime movies that also happen to have at least one fantastic action scene.
+---------
+
+# 'Bosch's Future Confirmed as Star Admits Ending Lacked "Proper Closure"
+
+TV News, Bosch, Bosch: Legacy, Titus Welliver
+
+Thu, 09 Jul 2026 22:06:56 GMT
+
+https://movieweb.com/bosch-legacy-season-4-movie-titus-welliver-reaction/
+
+Titus Welliver has good news for 'Bosch' fans waiting for an update on 'Bosch: Legacy' Season 4 and a potential full-length movie.
+---------
+
+# Ryan Reynolds Officially Rebooting CIA Spy Thriller Series for Disney
+
+TV News, Ryan Reynolds, Disney+
+
+Thu, 09 Jul 2026 21:02:38 GMT
+
+https://movieweb.com/ryan-reynolds-spy-school-adaptation-disney-plus/
+
+Reynolds’ Maximum Effort is bringing to life the beloved book series 'Spy School.'
+---------
+
 # 7 Adaptations Of The Odyssey You Didn't Know Were Adaptations Of The Odyssey
 
 Movies, The Odyssey, The Warriors, Beau Is Afraid, O Brother, Where Art Thou?, Keyhole, Cold Mountain, The SpongeBob SquarePants Movie
