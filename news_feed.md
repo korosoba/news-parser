@@ -1,3 +1,300 @@
+# Supernatural's Official 2026 Return Redefines Sam And Dean
+
+Classic TV, Supernatural
+
+Thu, 09 Jul 2026 01:00:20 GMT
+
+https://screenrant.com/supernatural-2026-return-changes-sam-dean/
+
+Supernatural evolved from a monster of the week show to an epic tale about brotherhood and sacrifice, but the next Supernatural redefines Sam and Dean
+---------
+
+# Dragon Ball Fans Are Seriously Unhappy With Goku’s Latest Redesign
+
+Gaming, Dragon Ball, Triple-A Games
+
+Thu, 09 Jul 2026 01:00:20 GMT
+
+https://screenrant.com/dragon-ball-goku-redesign-gamers-react/
+
+Although Goku has had a fairly sterling reputation for many years, it seems like fans aren't loving this new stark Goku redesign.
+---------
+
+# Superman Candidate James Gunn Called "A Great F***ing Actor" Addresses DCU Batman Rumors
+
+Movies, The Brave and the Bold, Batman, DC Universe
+
+Thu, 09 Jul 2026 00:40:47 GMT
+
+https://screenrant.com/batman-dcu-casting-rumors-tom-brittney-response-james-gunn/
+
+After losing out on Superman to David Corenswet, a highly rumored actor for DC Studios' Batman movie addresses if he is joining James Gunn's DCU.
+---------
+
+# Every Big Brother Winner, Ranked
+
+Reality TV, Big Brother
+
+Thu, 09 Jul 2026 00:00:21 GMT
+
+https://screenrant.com/big-brother-winners-ranked/
+
+Big Brother is on the road to crowning its 28th winner, but the reality TV institution has a long history of divisive players claiming the prize.
+---------
+
+# 5 Old-School Kung Fu Movies With Shocking Plot Twists You Didn't See Coming
+
+Movies
+
+Thu, 09 Jul 2026 00:00:21 GMT
+
+https://screenrant.com/old-school-kung-fu-movies-plot-twists/
+
+Some old-school kung fu movies knew how to keep audiences guessing with shocking plot twists that made their stories truly unpredictable.
+---------
+
+# Severance Season 3’s "Bigger" & "Epic" Story Teased By Apple TV Boss
+
+TV, Severance
+
+Wed, 08 Jul 2026 23:57:36 GMT
+
+https://screenrant.com/severance-season-3-bigger-epic-story-matt-cherniss-response/
+
+With Severance season 3 filming set to begin soon, Apple TV boss Matt Cherniss teases a "bigger" and "epic" story in the upcoming episodes.
+---------
+
+# Avengers: Doomsday Reveals First Look At Doctor Doom's Throne Room
+
+Movies, Avengers: Doomsday
+
+Wed, 08 Jul 2026 23:48:49 GMT
+
+https://screenrant.com/avengers-doomsday-doctor-doom-throne-room-first-look/
+
+Marvel Studios finally offers fans an exciting first look at Doctor Doom's throne room and X-Mansion from the upcoming film Avengers: Doomsday.
+---------
+
+# Marvel Studios Confirms Black Widow's Design For Surprise 2026 Avengers Return
+
+Streaming TV, Masked Recs
+
+Wed, 08 Jul 2026 23:41:29 GMT
+
+https://screenrant.com/x-men-97-disney-plus-marvel-black-widow-design-reveal/
+
+Black Widow is shockingly back as confirmed by Marvel Studios in this 2026 release, and the Avengers member returns with a new costume.
+---------
+
+# Guy Ritchie’s 8-Part Netflix Thriller Gets Even Better Ahead Of Season 2
+
+TV, Masked Recs
+
+Wed, 08 Jul 2026 23:30:22 GMT
+
+https://screenrant.com/the-gentlemen-netflix-season-2-even-better/
+
+Guy Ritchie's move into the world of television is about to get a whole lot bigger, as his first streaming series returns with a bang later this year.
+---------
+
+# Milly Alcock's Supergirl Among Hallmark's DC & Marvel Keepsake Ornaments
+
+Movies, Supergirl
+
+Thu, 09 Jul 2026 01:00:25 GMT
+
+https://www.cbr.com/supergirl-milly-alcock-marvel-dc-hallmark-ornaments/
+
+Hallmark's new Keepsake Ornaments for DC and Marvel characters have been unveiled.
+---------
+
+# 10 Most Expensive Pikachu Cards In Pokémon TCG
+
+Games, Pokemon, Pokemon TCG, Tabletop
+
+Thu, 09 Jul 2026 00:45:12 GMT
+
+https://www.cbr.com/pokemon-tcg-most-expensive-pikachu-cards/
+
+Pikachu cards are among the most sought-after units in the Pokemon TCG and, among the plethora of available options, these ten are the most expensive.
+---------
+
+# Dragon Ball Super Officially Gives Gohan Beast the Technique That Killed Goku
+
+Anime, Dragon Ball Super, Dragon Ball
+
+Thu, 09 Jul 2026 00:41:10 GMT
+
+https://www.cbr.com/dragon-ball-super-divers-gohan-beast-special-beam-cannon/
+
+Gohan Beast returns in a brand-new trailer unleashing the very same attack that led to Goku’s first-ever death in Dragon Ball Z.
+---------
+
+# 10 Greatest R-Rated Westerns Since Unforgiven
+
+Movies, Unforgiven
+
+Thu, 09 Jul 2026 00:31:13 GMT
+
+https://www.cbr.com/perfect-r-rated-westerns-since-unforgiven-list/
+
+Clint Eastwood turned in the greatest R-rated Western ever made when he directed Unforgiven, pushing Hollywood towards the dark side of the West.
+---------
+
+# Star Trek Finally Introduced a Han Solo Copycat After 56 Years
+
+TV, Star Trek: Strange New Worlds, Star Wars, Sci-Fi
+
+Thu, 09 Jul 2026 00:31:13 GMT
+
+https://www.cbr.com/star-trek-strange-new-worlds-erica-ortega-han-solo-copycat/
+
+Star Trek is very different from Star Wars in key ways, but one new character in Strange New Worlds is the hotshot, Han Solo pilot the universe needed
+---------
+
+# 2026's Most Divisive & Controversial Action Film Gets an Official PS5 Game
+
+Games, Citizen Vigilante
+
+Thu, 09 Jul 2026 00:24:07 GMT
+
+https://www.cbr.com/citizen-vigilante-video-game-announced-ps5/
+
+The ultra-violent, polarizing action thriller has been turned into a video game that comes to PlayStation 5 this month.
+---------
+
+# Solo Leveling's New Trailer Makes Jinwoo the Final Villain of the Anime
+
+Anime, Solo Leveling
+
+Thu, 09 Jul 2026 00:15:13 GMT
+
+https://www.cbr.com/solo-leveling-karma-trailer-jinwoo-villain-nemir/
+
+Beneath the heavy armor of Solo Leveling's newest villain is a man who bares an uncanny resemblance to Sung Jinwoo himself, and it's no coincidence.
+---------
+
+# Taylor Sheridan Officially Confirms a Historic Yellowstone & Justified Team-Up
+
+TV, Dutton Ranch, Yellowstone, Justified
+
+Thu, 09 Jul 2026 00:03:08 GMT
+
+https://www.cbr.com/yellowstone-dutton-ranch-season-2-showrunner-justified-benjamin-cavell/
+
+Yellowstone officially confirms a promising franchise collaboration with key ties to Timothy Olyphant's outstanding neo-Western series, Justified.
+---------
+
+# Guy Ritchie's New 98-Minute Action Thriller Is 50% Cheaper on PVOD After Bombing in Theaters
+
+Movies, In the Grey, guy ritchie
+
+Thu, 09 Jul 2026 00:00:13 GMT
+
+https://www.cbr.com/guy-ritchie-in-the-grey-discount-fandango-july-2026/
+
+The movie was also panned by critics.
+---------
+
+# DC Is Finally Publishing the Comics Marvel Fans Have Been Asking For
+
+Comics, DC Comics, Marvel, Absolute Batman
+
+Thu, 09 Jul 2026 00:00:13 GMT
+
+https://www.cbr.com/dc-publishing-comics-marvel-fans-want/
+
+It’s no secret among comic readers that Marvel has dropped the ball on the 616, allowing DC to win over its fan base with better superhero stories.
+---------
+
+# 20 Years Before ‘Weapons,’ Josh Brolin Starred Alongside Paul Walker and Jessica Alba in This Underseen Action Adventure
+
+Movie Features, Josh Brolin, Jessica Alba, Into the Blue, Paul Walker
+
+Thu, 09 Jul 2026 01:04:13 GMT
+
+https://collider.com/weapons-josh-brolin-into-the-blue/
+
+Josh Brolin's forgotten, scene-stealing role in Paul Walker's wild treasure thriller Into the Blue is getting rediscovered.
+---------
+
+# Netflix’s New Mystery Movie Scores Over 20M Views in Just 5 Days
+
+Movie News, Enola Holmes 3, Netflix, Millie Bobby Brown, Streaming
+
+Thu, 09 Jul 2026 01:00:13 GMT
+
+https://collider.com/enola-holmes-3-20-million-views-netflix-july-2026/
+
+Despite mixed reviews, Enola Holmes 3 becomes Netflix's most-watched title in July, amassing 20.7 million views in its first five days.
+---------
+
+# The 6 Best Gangster Movies Released Since 2000, Ranked
+
+Movie, Martin Scorsese, The Departed, Crime, Gangs of New York
+
+Thu, 09 Jul 2026 00:31:14 GMT
+
+https://collider.com/best-gangster-movies-since-2000/
+
+Modern crime classics like Eastern Promises, Gangs of New York, and The Departed are all among the very best gangster movies released since 2000.
+---------
+
+# 10 Best Epic Movies of the 1950s
+
+Movie, Ben-Hur, Seven Samurai, The Bridge On The River Kwai, The Human Condition I: No Greater Love
+
+Thu, 09 Jul 2026 00:17:14 GMT
+
+https://collider.com/best-epic-movies-1950s-ranked/
+
+The 1950s was a big decade for big movies, with some of the best epics from then including Ben-Hur, Seven Samurai, and The Ten Commandments.
+---------
+
+# The Most Perfect Movie of Every Genre in the 2020s So Far
+
+Movie, The Banshees of Inisherin, The Boy and the Heron, Anatomy of a Fall, All Quiet on the Western Front
+
+Wed, 08 Jul 2026 23:21:14 GMT
+
+https://collider.com/most-perfect-movies-2020s-every-genre/
+
+From Dune: Part Two to Past Lives, these are the 2020s films that define their respective genres and set the standard for modern cinema.
+---------
+
+# Netflix's Historical Thriller Reboot Series Finally Gets Promising Update
+
+TV News, Dan Brown, Robert Langdon, Netflix, Carlton Cuse
+
+Thu, 09 Jul 2026 00:21:16 GMT
+
+https://movieweb.com/da-vinci-code-reboot-netflix-update/
+
+Carlton Cuse claims his Dan Brown adaptation 'The Secret of Secrets' will start filming for Netflix soon.
+---------
+
+# Netflix Star Set to Play Iconic DC Villain in New 'Superman' Spin-Off
+
+TV News, DCU
+
+Thu, 09 Jul 2026 00:00:08 GMT
+
+https://movieweb.com/superman-jimmy-tatro-gorilla-grodd/
+
+'American Vandal' star Jimmy Tatro is circling the role of Gorilla Grodd in the Jimmy Olsen-led spin-off series.
+---------
+
+# Guy Ritchie's 'Sherlock Holmes 3' Finally Gets Promising Update 15 Years Late
+
+Movie News, Sherlock Holmes, Guy Ritchie, Robert Downey Jr.
+
+Wed, 08 Jul 2026 23:40:39 GMT
+
+https://movieweb.com/sherlock-holmes-3-update-script-ready/
+
+Screenwriter Chris Brancato's comments suggest 'Sherlock Holmes 3' is still alive, but Downey’s schedule may be the real holdup.
+---------
+
 # Henry Cavill's New #1 Movie In The World Is His Best Role Since Superman
 
 Movies, Masked Recs
