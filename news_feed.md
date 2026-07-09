@@ -1,3 +1,443 @@
+# 10 Scariest Horror Movies To Avoid If You're Afraid Of Clowns
+
+Movies, It, Stitches, House of 1000 Corpses, 31, Circus Kane, Haunt, Terrifier, Hell House LLC, Clown, Hell House LLC Origins: The Carmichael Manor
+
+Thu, 09 Jul 2026 17:45:21 GMT
+
+https://screenrant.com/scariest-horror-movies-with-clowns/
+
+Clowns can be entertaining and funny or downright terrifying depending on the movie, and some focus on the latter in unforgettable ways.
+---------
+
+# Ryan Reynolds Officially Sets New TV Adaptation Of Bestselling 14-Book Spy Series
+
+TV
+
+Thu, 09 Jul 2026 17:38:40 GMT
+
+https://screenrant.com/spy-school-tv-series-disney-plus-ryan-reynolds/
+
+Ryan Reynolds has set his sights on his next big television series, teaming up with Disney+ to adapt a popular and long-running spy series.
+---------
+
+# Pokémon Legends: Z-A Changes Forever Next Week
+
+Gaming, Pokemon Legends Z-A, Pokemon
+
+Thu, 09 Jul 2026 17:37:33 GMT
+
+https://screenrant.com/pokemon-legends-za-season-14-changes-rewards/
+
+Pokémon Legends: Z-A is set to get a new update on July 15, and it will drastically change the game for Trainers in Season 14 Ranked Battles.
+---------
+
+# Warner Bros. Sets New Remake Of Iconic 33-Year-Old Classic Adventure Franchise
+
+Movies, Free Willy, Warner Bros.
+
+Thu, 09 Jul 2026 17:30:26 GMT
+
+https://screenrant.com/warner-bros-free-willy-franchise-reboot-development-details/
+
+Warner Bros. is eyeing another classic franchise of theirs for a new remake in the form of a classic adventure franchise that's been dormant.
+---------
+
+# The Truth Behind Heated Rivalry's Emmy Controversy
+
+Streaming TV, Heated Rivalry
+
+Thu, 09 Jul 2026 17:30:22 GMT
+
+https://screenrant.com/heated-rivalry-emmy-nomination-controversy-explained/
+
+It may seem shocking that Heated Rivalry didn't receive a single Primetime Emmy nomination, but the hockey romance series wasn't actually snubbed.
+---------
+
+# After 7.2 Billion Minutes Viewed In 3 Weeks, Netflix Has Crowned A New Rom-Com Movie Queen
+
+New Movies, Netflix, Voicemails for Isabelle
+
+Thu, 09 Jul 2026 17:20:21 GMT
+
+https://screenrant.com/netflix-voicemails-for-isabelle-success-zoey-deutch/
+
+Netflix has a major hit on its hands with a new rom-com movie that's earned over 7 billion minutes viewed so far, cementing its star as a genre queen.
+---------
+
+# Assassin's Creed Black Flag Resynced Free Download Officially Available Now
+
+Gaming, Assassin's Creed Black Flag Resynced, Triple-A Games
+
+Thu, 09 Jul 2026 17:12:53 GMT
+
+https://screenrant.com/assassins-creed-black-flag-resynced-launch-freebie/
+
+You might want to act quickly, but there is an Assassin's Creed Black Flag Resynced free download available, to celebrate the launch of the remake.
+---------
+
+# Why Netflix's 4-Part True Crime Series Is Dominating Streaming In The US
+
+Streaming TV, Masked Recs
+
+Thu, 09 Jul 2026 17:09:47 GMT
+
+https://screenrant.com/netflix-worst-neighbor-ever-us-streaming-charts/
+
+Netflix's Worst Neighbor Ever, a gripping 4-part true crime series, has been dominating US streaming charts since its early July 2026 release.
+---------
+
+# Henry Cavill's Hit New Netflix The Witcher Follow-Up Is Officially Dethroned By Western Thriller
+
+Movies, Masked Recs
+
+Thu, 09 Jul 2026 17:06:15 GMT
+
+https://screenrant.com/enola-holmes-3-dethroned-old-henry-netflix-us-streaming-charts/
+
+Henry Cavill’s follow-up to The Witcher was the top movie in the U.S., but now an underrated Western thriller has just claimed its spot.
+---------
+
+# Brandon Sanderson’s Apple TV Mistborn Movie Gets Best Writing Update Yet As Author Addresses Long Wait
+
+Movies, Mistborn
+
+Thu, 09 Jul 2026 17:03:07 GMT
+
+https://screenrant.com/mistborn-movie-apple-tv-script-progress-long-wait-brandon-sanderson/
+
+Prolific fantasy author Brandon Sanderson has shared an exciting update on Apple TV's Mistborn movie, which the writer is currently working on.
+---------
+
+# American Horror Story Officially Sets 2026 Return Date After 2-Year Hiatus
+
+TV, American Horror Story, American Horror Story: Coven
+
+Thu, 09 Jul 2026 17:46:48 GMT
+
+https://www.cbr.com/american-horror-story-officially-sets-2026-return-date-fx/
+
+AHS finally has an official return date set by FX, and with a surprise or two.
+---------
+
+# America's Most Expensive TV Show Ever Was a 9-Part Sci-Fi Series NBC Buried
+
+TV, NBC, Sci-Fi, Supertrain
+
+Thu, 09 Jul 2026 17:30:13 GMT
+
+https://www.cbr.com/supertrain-most-expensive-american-tv-show/
+
+In 1979, NBC produced a science-fiction adventure series that became the most expensive TV show ever made and was ahead of its time.
+---------
+
+# Magic: The Gathering’s Star Trek Set Reveals Confirmed For July
+
+Games, Magic: The Gathering, Star Trek, Tabletop
+
+Thu, 09 Jul 2026 17:29:24 GMT
+
+https://www.cbr.com/mtg-star-trek-set-reveal-confirmed-july-2026/
+
+Wizards of the Coast has kept quiet about the details of the Star Trek crossover set, but that's about to change, as more information arrives in July.
+---------
+
+# 1 Disney Lorcana: Attack of the Vine Card Is Designed to Break the Game
+
+Games, Disney, Disney Lorcana, Tabletop, TCG
+
+Thu, 09 Jul 2026 17:15:13 GMT
+
+https://www.cbr.com/disney-lorcana-attack-of-the-vine-game-breaker/
+
+Christopher Robin - Hunny Sage from Disney Lorcana's upcoming 13th set, Attack of the Vine, has serious game-breaking potential.
+---------
+
+# Netflix's 'Slick' 2-Part Guy Ritchie Crime Show Officially Sets 2026 Return Date
+
+TV, The Gentlemen
+
+Thu, 09 Jul 2026 17:09:36 GMT
+
+https://www.cbr.com/netflix-the-gentlemen-season-2-release-date/
+
+The hit Guy Ritchie series is finally set to return to Netflix after a 2-year wait.
+---------
+
+# Japan Reveals the Top 10 Anime of 2026 So Far in Official New Ranking
+
+Anime, Jujutsu Kaisen, Frieren: Beyond Journey's End, That Time I Got Reincarnated as a Slime, NIPPON SANGOKU: The Three Nations of the Crimson Sun, Daemons of the Shadow Realm
+
+Thu, 09 Jul 2026 17:00:36 GMT
+
+https://www.cbr.com/top-anime-2026-first-half-u-next-ranking/
+
+Jujutsu Kaisen and Frieren dominate official new streaming rankings from Japan, along with some brand-new anime IP in 2026.
+---------
+
+# Jeff Lemire Blames Lengthy Phantom Road Hiatus On Sales
+
+Comics, jeff lemire
+
+Thu, 09 Jul 2026 17:00:13 GMT
+
+https://www.cbr.com/jeff-lemire-phantom-road-horror-comic-hiatus/
+
+When will this ghostly comic be resurrected?
+---------
+
+# Robert Duvall's Falling Down is His Most Misunderstood Movie
+
+Movies, Falling Down
+
+Thu, 09 Jul 2026 17:00:13 GMT
+
+https://www.cbr.com/robert-duvall-falling-down-forgotten-action-classic/
+
+In 1993, Robert Duvall co-starred in one of the most intense thrillers of the decade, one that audiences still misunderstand 33 years later.
+---------
+
+# Marvel's Horror Era: Is This the Future of Marvel Comics?
+
+Comics, Marvel
+
+Thu, 09 Jul 2026 17:00:13 GMT
+
+https://www.cbr.com/marvel-comics-future-horror-genre/
+
+The horror genre is enjoying a resurgence lately, and Marvel is ready to start leaning into it heavily.
+---------
+
+# HBO's 96% RT Crime Drama Revives Mare of Easttown for Historic Crossover
+
+TV, Task, Mare of Easttown
+
+Thu, 09 Jul 2026 16:57:52 GMT
+
+https://www.cbr.com/hbo-task-season-2-mare-of-easttown-crossover/
+
+Mare of Easttown is coming back in a surprising way.
+---------
+
+# 10 Network TV Characters Written Off Because of Behind-the-Scenes Drama
+
+TV, Two and a Half Men, Grey's Anatomy, Community, Sitcom
+
+Thu, 09 Jul 2026 17:18:16 GMT
+
+https://collider.com/network-tv-characters-written-off-behind-the-scenes-drama/
+
+From Charlie Sheen in Two and a Half Men to Katherine Heigl in Grey's Anatomy, numerous actors have been written off their shows due to drama.
+---------
+
+# Forget ‘Yellowstone,’ This Hit Appalachian Crime Series Is Coming Back With an Even Bigger Season 2
+
+TV News, Blue Ridge: The Series, Prime Video, Western, Yellowstone
+
+Thu, 09 Jul 2026 17:15:26 GMT
+
+https://collider.com/blue-ridge-the-series-season-2-insp-release-date-trailer/
+
+Blue Ridge: The Series Season 2 premieres July 19 on INSP, bringing Johnathon Schaech back for new Appalachian mysteries and threats.
+---------
+
+# 10 Most Depressing Blockbuster Movies, Ranked
+
+Movie, Blockbuster, Titanic, Schindler's List, A Star is Born
+
+Thu, 09 Jul 2026 17:08:15 GMT
+
+https://collider.com/most-depressing-blockbuster-movies-ranked/
+
+Blockbuster movies generally intend to thrill and entertain, but some, like A Star Is Born and Schindler's List, are upsetting and depressing.
+---------
+
+# The Hunger Games Officially Returns With 5-Movie Theatrical Event
+
+Movie News, The Hunger Games, The Hunger Games: Sunrise on the Reaping, The Hunger Games: Mockingjay - Part 1
+
+Thu, 09 Jul 2026 17:04:11 GMT
+
+https://collider.com/hunger-games-movies-theaters-re-release-september-sunrise-on-the-reaping/
+
+All five Hunger Games movies will return to theaters this September before The Hunger Games: Sunrise on the Reaping arrives in November.
+---------
+
+# Zach Cregger, Jonathan Goldstein, and John Francis Daley Join Collider's 'Directors on Directing' Panel at SDCC
+
+Exclusives, SDCC, Jonathan Goldstein, John Francis Daley, Zach Cregger
+
+Thu, 09 Jul 2026 16:30:25 GMT
+
+https://collider.com/zach-cregger-jonathan-goldstein-john-francis-daley-sdcc-directors-on-directing-panel/
+
+Details on our upcoming Directors on Directing panel at SDCC 2026, with Zach Cregger, Jonathan Goldstein, and John Francis Daley.
+---------
+
+# All 7 Types of Ring in Lord of the Rings, Ranked by Power
+
+Movie, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King, The Lord of the Rings: The Rings of Power
+
+Thu, 09 Jul 2026 16:21:14 GMT
+
+https://collider.com/lord-of-the-rings-rings-ranked-power/
+
+From the One Ring, to the Elven Rings of Power, to the Ring of Barahir, these are all types of rings in The Lord of the Rings, ranked by power.
+---------
+
+# When Is the Next 'Fourth Wing' Book Coming Out?
+
+Books and Comics, Fourth Wing, Prime Video, Books, Amazon
+
+Thu, 09 Jul 2026 16:03:15 GMT
+
+https://collider.com/fourth-wing-book-4-release-date-mystery-novella-rebecca-yarros/
+
+After breaking records with Onyx Storm, Fourth Wing fans anxiously await the release of Empyrean Book 4.
+---------
+
+# Kylo Ren Officially Returns in New Star Wars Release Next Month [Exclusive]
+
+Books and Comics News, Adam Driver, Kylo Ren, Star Wars, Star Wars: Episode IX - The Rise of Skywalker
+
+Thu, 09 Jul 2026 16:00:13 GMT
+
+https://collider.com/star-wars-the-fall-of-kylo-ren-release-date-august-12-marvel-comics/
+
+Star Wars has announced a new Kylo Ren comic book series between The Last Jedi and The Rise of Skywalker, coming next month.
+---------
+
+# HBO’s Most Experimental Game of Thrones Episode Officially Changes the Franchise Formula
+
+TV Features, House of the Dragon, Game Of Thrones, George R.R. Martin, Ryan Condal
+
+Thu, 09 Jul 2026 15:49:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-episode-3-franchise-change/
+
+House of the Dragon's "Rhaenyra Triumphant" shakes up the Game of Thrones formula with a new approach that should redefine the franchise.
+---------
+
+# Netflix’s New Western Remake Is Officially a Masterpiece
+
+TV News, Little House on the Prairie, Netflix, Western, Rotten Tomatoes
+
+Thu, 09 Jul 2026 15:39:39 GMT
+
+https://collider.com/little-house-on-the-prairie-netflix-rotten-tomatoes-score/
+
+Netflix’s Little House on the Prairie remake debuts with an impressive Rotten Tomatoes Score, giving the Western drama a strong critical start.
+---------
+
+# Guy Ritchie's Hit Crime Thriller Netflix Series Finally Returns in Season 2 Trailer
+
+TV News, Theo James, Kaya Scodelario, The Gentlemen
+
+Thu, 09 Jul 2026 17:34:12 GMT
+
+https://movieweb.com/guy-ritchie-the-gentlemen-season-2-trailer/
+
+'The Gentlemen' Season 2 teaser brings Guy Ritchie’s crime world back to Netflix, with Theo James and Kaya Scodelario returning.
+---------
+
+# Marvel Villain Delivers the Best Franchise's Best Line in 5 Years
+
+Features, X-Men '97, WandaVision, MCU
+
+Thu, 09 Jul 2026 17:06:20 GMT
+
+https://movieweb.com/x-men-97-great-magneto-line/
+
+'WandaVision' did have my favorite MCU line. But I think 'X-Men '97 may have just stolen the title. Read on for more.
+---------
+
+# Sydney Sweeney's $220 Million R-Rated Sleeper Hit Sets New Release
+
+Movie News, Anyone But You, Sydney Sweeney
+
+Thu, 09 Jul 2026 17:05:34 GMT
+
+https://movieweb.com/anyone-but-you-4k-blu-ray-release/
+
+Sony Pictures Home Entertainment is releasing a 4K Ultra HD Blu-ray of 'Anyone But You,' the R-rated rom-com starring Sydney Sweeney and Glen Powell.
+---------
+
+# Prime Video's 'Rambo' Meets 'Batman' Action Thriller Is a Streaming Smash
+
+Movie News, Action, Hot on Streaming, Prime Video
+
+Thu, 09 Jul 2026 17:00:19 GMT
+
+https://movieweb.com/prime-video-vengeance-action-streaming-hit-july-2026/
+
+Amazon's violent new original action thriller titled 'Vengeance' has officially become a global hit on streaming.
+---------
+
+# Titus Welliver's "Anti-Bosch" Crime Thriller Series Is Finally Out This Weekend
+
+Features, Bosch, Titus Welliver, Thriller, The Westies
+
+Thu, 09 Jul 2026 17:00:19 GMT
+
+https://movieweb.com/titus-welliver-the-westies-anti-bosch-crime-thriller/
+
+Following his iconic run as Harry Bosch, Titus Welliver is playing against type in his brand new crime series.
+---------
+
+# 'House of the Dragon' Season 4 Has Already Hit a Major Milestone
+
+TV News, House of the Dragon
+
+Thu, 09 Jul 2026 16:43:58 GMT
+
+https://movieweb.com/house-of-the-dragon-season-4-ryan-condal-scripts/
+
+Showrunner Ryan Condal has revealed the progress of 'House of the Dragon' Season 4.
+---------
+
+# 'Justice League' Star Finally Confirms DC's Canceled Movie As "One of the Strangest Stories"
+
+Movie News, DCU, Justice League, J.K. Simmons, Batgirl
+
+Thu, 09 Jul 2026 16:40:25 GMT
+
+https://movieweb.com/jk-simmons-batgirl-cancelled/
+
+According to one 'Justice League' star, the notorious cancellation of a major DC film was "one of the strangest stories."
+---------
+
+# New DCU Batman Favorite Teases Superhero Future Following Recent Casting Rumors
+
+Movie News, Batman, DCU, Tom Brittney, James Gunn
+
+Thu, 09 Jul 2026 16:30:34 GMT
+
+https://movieweb.com/batman-james-gunn-dcu-reboot-tom-brittney/
+
+The actor already has experience with James Gunn after coming close to playing Superman.
+---------
+
+# New Supernatural Thriller Twist on 'Barney' Gets Terrifying First Trailer
+
+Movie News, Buddy, Horror
+
+Thu, 09 Jul 2026 16:19:41 GMT
+
+https://movieweb.com/buddy-first-trailer-cristin-milioti/
+
+The first trailer for a new 2026 horror movie evokes memories of the 'Barney' children's show with a scary new character at the center.
+---------
+
+# Long-Awaited MCU Series Finally Gets Update 1 Year After Marvel Delay
+
+TV News, Marvel's Nova, MCU, Superhero, Disney+
+
+Thu, 09 Jul 2026 16:12:14 GMT
+
+https://movieweb.com/mcu-marvel-nova-michael-waldron-writer/
+
+'Loki' writer Michael Waldron is taking on Marvel's 'Nova' series.
+---------
+
 # This Man On Fire Meets Sicario Thriller Is So Good, It Spawned Another Show
 
 TV, The Terminal List: Dark Wolf, The Terminal List
