@@ -1,3 +1,333 @@
+# Dr. Abbot’s The Pitt Season 3 Story Details Teased By Shawn Hatosy
+
+TV, The Pitt, The Pitt - Season 2, Shawn Hatosy
+
+Thu, 09 Jul 2026 19:12:21 GMT
+
+https://screenrant.com/the-pitt-season-3-abott-story-details-tease-shawn-hatosy/
+
+As The Pitt earned numerous Emmy nominations, Dr. Abbot star Shawn Hatosy teases new story details as the cast continues to film season 3.
+---------
+
+# Zelda: Twilight Princess' Massive Return Is The 40th Anniversary Celebration We Needed
+
+Gaming, The Legend of Zelda: Twilight Princess, Triple-A Games
+
+Thu, 09 Jul 2026 19:00:20 GMT
+
+https://screenrant.com/zelda-twilight-princess-multiple-recomps-40th-anniversary/
+
+The Zelda series is celebrating its 40th anniversary, but Twilight Princess has something up its sleeve that any fan will want to take note of.
+---------
+
+# 11 Years Later, Dominic Toretto's Best Line Is Still The Greatest Quote In Fast & Furious History
+
+Movies, Fast & Furious, Furious 7
+
+Thu, 09 Jul 2026 19:00:20 GMT
+
+https://screenrant.com/dom-vin-diesel-best-line-fast-furious-history/
+
+The Fast & Furious franchise has evolved over the years, but one unforgettable quote from Vin Diesel's Dom remains the best moment in the series.
+---------
+
+# OG Coven Witches’ Returns Finally Revealed In American Horror Story Season 13 Set Images
+
+TV, American Horror Story
+
+Thu, 09 Jul 2026 18:59:58 GMT
+
+https://screenrant.com/american-horror-story-season-13-set-photos-coven/
+
+The witches are back in American Horror Story, as new set photos confirm the return of some iconic Coven characters and actresses for season 13.
+---------
+
+# Netflix's 8-Part Pokémon Series With Rare Perfect Rotten Tomatoes Score Is The Ideal One-Night Weekend Binge
+
+TV, Masked Recs
+
+Thu, 09 Jul 2026 18:40:38 GMT
+
+https://screenrant.com/pokemon-concierge-netflix-anime-series-must-watch/
+
+Netflix's 8-part Pokémon series is one of the streaming service's best shows, and it works as the perfect one-night weekend binge for subscribers.
+---------
+
+# The Ghost in the Shell Is Already Prime Video's 10th Biggest Series
+
+Anime, Prime Video, The Ghost in the Shell
+
+Thu, 09 Jul 2026 18:30:21 GMT
+
+https://screenrant.com/ghost-in-the-shell-prime-video-cyberpunk-thriller-10th-biggest-show/
+
+Prime Video's next big hit is here.
+---------
+
+# The Expanse Completely Switches Genres In Season 2
+
+Classic TV, The Expanse
+
+Thu, 09 Jul 2026 18:30:21 GMT
+
+https://screenrant.com/the-expanse-switches-genres-season-2/
+
+The Expanse is renowned as one of the foremost sci-fi space operas of the 21st century, but it completely switches genre after the first season.
+---------
+
+# Barney-Inspired Figure Becomes Scary Monster In Official Trailer For New Horror Buddy
+
+Movies
+
+Thu, 09 Jul 2026 18:28:50 GMT
+
+https://screenrant.com/buddy-movie-trailer/
+
+Roadside Attractions and Saban Films have a new horror film coming out this summer called Buddy, and the teaser trailer has just been released.
+---------
+
+# Henry Cavill’s Wolverine Returns 2 Years Later In New Marvel Release
+
+Movies, Wolverine, Henry Cavill, Marvel Cinematic Universe
+
+Thu, 09 Jul 2026 18:13:52 GMT
+
+https://screenrant.com/henry-cavill-wolverine-action-figure-marvel-legends/
+
+After making his debut in the Marvel Cinematic Universe in 2024's Deadpool & Wolverine, Henry Cavill's variant is finally returning 2 years later.
+---------
+
+# Fallout: Chicago Is Officially the Perfect Fallout 5 Replacement
+
+Games, Fallout
+
+Thu, 09 Jul 2026 19:21:13 GMT
+
+https://www.cbr.com/fallout-chicago-perfect-fallout-5-replacement/
+
+While fans will have to wait a long time for Fallout 5, players can play a new adventure that'll take them down to the Windy City.
+---------
+
+# 10 Best RPGs of the 2020s (So Far)
+
+Games, Role Playing Game, Video Games, Baldur's Gate 3, Elden Ring, Cyberpunk 2077, Like a Dragon 8
+
+Thu, 09 Jul 2026 19:15:13 GMT
+
+https://www.cbr.com/best-rpgs-2020s-so-far/
+
+The 2020s have produced such great RPGs like Elden Ring and Mewgenics.
+---------
+
+# Dragon Ball Officially Gives Super Saiyan Blue Goku a Brand-New Attack
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Thu, 09 Jul 2026 19:00:25 GMT
+
+https://www.cbr.com/dragon-ball-super-divers-ssj-blue-goku-new-attack/
+
+Goku’s newest attack in Dragon Ball just made his Super Saiyan Blue form even stronger.
+---------
+
+# 5 Most Anticipated Blockbuster Movies Still Coming in 2026, Ranked
+
+Movies, Fantasy, The Odyssey, Spider-Man: Brand New Day
+
+Thu, 09 Jul 2026 19:00:13 GMT
+
+https://www.cbr.com/most-anticipated-blockbuster-movies-left-in-2026-list/
+
+After hits like Obsession and Michael, 2026 still has plenty of exciting blockbuster movies to come, some of which fans can’t stop talking about.
+---------
+
+# Invader Zim Reboot Didn't Consult Series Creator For Major Comeback
+
+Comics, Invader Zim
+
+Thu, 09 Jul 2026 19:00:13 GMT
+
+https://www.cbr.com/invader-zim-comic-reboot-series-creator-not-consulted/
+
+Does this blunder justify global conquest?
+---------
+
+# Keanu Reeves' 136-Minute Sci-Fi Action With an 83% RT Is Officially a Free Streaming Hit
+
+Movies, The Matrix, Sci-Fi
+
+Thu, 09 Jul 2026 18:39:32 GMT
+
+https://www.cbr.com/the-matrix-sci-fi-action-success-pluto-tv-july-2026/
+
+Keanu Reeves' action classic is killing it on free streaming.
+---------
+
+# Widow's Bay Gets Season 2 Update From Apple TV Boss After Emmy Nominations
+
+TV, Widow's Bay
+
+Thu, 09 Jul 2026 18:28:02 GMT
+
+https://www.cbr.com/widows-bay-season-2-update-emmy-nominations/
+
+An official update is revealed for the future of Widow's Bay after the Apple TV series earned a plethora of Emmy nominations.
+---------
+
+# Jennifer Lawrence's $3.3B Dystopian Franchise Returns to Theaters Ahead of New Sequel
+
+Movies, The Hunger Games
+
+Thu, 09 Jul 2026 18:22:27 GMT
+
+https://www.cbr.com/the-hunger-games-theatrical-rerelease-september-2026/
+
+Audiences will be able to revisit Jennifer Lawrence's fan-favorite dystopian franchise before the next entry is released.
+---------
+
+# 10 Phantom Troupe Moments That Changed Hunter x Hunter Forever
+
+Anime, Hunter X Hunter
+
+Thu, 09 Jul 2026 18:15:13 GMT
+
+https://www.cbr.com/hunter-x-hunter-phantom-troupe-moments-changed-everything/
+
+The Phantom Troupe is one of the best villain organizations in all of anime, and they often changed the entire course of Hunter X Hunter.
+---------
+
+# Timothée Chalamet Says the First Two Dune Movies Are 'Siblings' — But Dune 3 Isn't
+
+CBR Exclusives, Dune: Part Three
+
+Thu, 09 Jul 2026 18:00:13 GMT
+
+https://www.cbr.com/dune-3-differen-from-first-movies-timothe-chalamet/
+
+The star of Dune: Part Three explains why it takes the sci-fi saga in a new direction.
+---------
+
+# Forget ‘Chernobyl,’ Netflix’s 8-Part Thriller Is the Perfect Weekend Binge
+
+TV Features, Chernobyl, The Days, Netflix, HBO
+
+Thu, 09 Jul 2026 18:59:14 GMT
+
+https://collider.com/chernobyl-replacement-series-the-days-miniseries/
+
+The Days on Netflix is a must-watch eight-episode thriller about Fukushima, human courage, and the choices behind a nuclear disaster.
+---------
+
+# 'X-Men '97's Most Shocking Death Was Rewritten To Be Much More Brutal [Exclusive]
+
+TV News, X-Men '97, Magneto, Marvel Animation, Disney+
+
+Thu, 09 Jul 2026 18:45:13 GMT
+
+https://collider.com/x-men-97-matthew-waterson-magneto-death-future-season-2/
+
+X-Men '97 voice actor Matthew Waterson explains when he found out about Magneto's death in Season 2, Episode 4, and it's much earlier than you think.
+---------
+
+# 30 Years Later, a '90s Cult Classic Adventure Is Officially Getting a Remake
+
+Movie News, Free Willy, Russo Brothers, AGBO
+
+Thu, 09 Jul 2026 18:16:44 GMT
+
+https://collider.com/free-willy-remake-avengers-directors-joe-anthony-russo/
+
+33 years later, a remake of a '90s family classic is officially in the works from Avengers duo Joe and Anthony Russo.
+---------
+
+# X-Men '97 S2: Magneto’s Final Scene Got Darker | Set Stories
+
+TV, X-Men '97
+
+Thu, 09 Jul 2026 18:15:13 GMT
+
+https://collider.com/video/x-men-97-s2-magneto-s-final-scene-got-darker-set-stories/
+
+Matthew Waterson takes us inside Magneto's biggest moments in X-Men '97 Season 2, from recording the emotional final scenes to exploring Erik Lehnsherr's evolving relationship with Professor X. The actor also reveals how returning for Season 2 felt very different after finding his footing in the role during the acclaimed first season.
+---------
+
+# Captain America Officially Returns to Boston This August
+
+Movie News, Chris Evans, Fan Expo, Captain America: The First Avenger, Knives Out
+
+Thu, 09 Jul 2026 18:04:09 GMT
+
+https://collider.com/chris-evans-fan-expo-boston-2026-avengers-doomsday/
+
+Chris Evans is joining FAN EXPO Boston 2026 for autographs, photo ops, and special experiences ahead of his return in Avengers: Doomsday.
+---------
+
+# Saoirse Ronan's Acclaimed New Mystery Thriller Revealed in First Trailer
+
+Movie News, Saoirse Ronan, Bad Apples
+
+Thu, 09 Jul 2026 19:14:42 GMT
+
+https://movieweb.com/saoirse-ronan-bad-apples-trailer/
+
+The first trailer for Saoirse Ronan's 'Bad Apples' arrives, teasing the dark teacher satire that drew strong reviews on the festival circuit.
+---------
+
+# Sydney Sweeney's 104-Minute R-Rated Thriller Is Overtaken by Brad Pitt's Biggest Ever Film on Streaming
+
+Movie News, Sydney Sweeney, Echo Valley, F1, Brad Pitt, Hot on Streaming
+
+Thu, 09 Jul 2026 19:00:19 GMT
+
+https://movieweb.com/sydney-sweeney-echo-valley-beaten-f1-streaming-july-2026/
+
+The Oscar-winning sports drama remains a strong streaming draw one year after its extremely successful theatrical run.
+---------
+
+# We're 1 Year Away From the Superhero Event Movie We've Been Waiting For
+
+Features, Man of Tomorrow
+
+Thu, 09 Jul 2026 19:00:19 GMT
+
+https://movieweb.com/man-of-tomorrow-one-year-away/
+
+Superhero movies have seen a dry spell, but there's one character audiences are still holding out hope for. Could this finally be the answer?
+---------
+
+# First Official 'Idiots' Trailer Unleashes "Dumb & Dumber Meets Midnight Run" Crime Film
+
+Movie News, Idiots
+
+Thu, 09 Jul 2026 18:50:35 GMT
+
+https://movieweb.com/idiots-trailer-oshea-jackson-dave-franco/
+
+The first official trailer for O'Shea Jackson Jr. and Dave Franco's new comedy, 'Idiots' was released online.
+---------
+
+# Liam Neeson's Long-Awaited Action Thriller Sets Release Date After Title Change
+
+Movie News, Zachary Levi, Guy Moshe, Denzel Washington, Keanu Reeves, Liam Neeson
+
+Thu, 09 Jul 2026 18:33:07 GMT
+
+https://movieweb.com/liam-neeson-action-thriller-the-fit-release-date-title/
+
+Previously known as 'Hotel Tehran,' Liam Neeson’s new action thriller is now titled 'The Fix' and will arrive in theaters on September 11, 2026.
+---------
+
+# Jennifer Lawrence's Dystopian Action Franchise Officially Sets New Release in 2 Months
+
+Movie News, The Hunger Games, The Hunger Games: Sunrise on the Reaping
+
+Thu, 09 Jul 2026 17:57:31 GMT
+
+https://movieweb.com/hunger-games-franchise-theatrical-rerelease/
+
+'The Hunger Games' franchise is set to return to theaters this September ahead of the release of the new prequel.
+---------
+
 # 10 Scariest Horror Movies To Avoid If You're Afraid Of Clowns
 
 Movies, It, Stitches, House of 1000 Corpses, 31, Circus Kane, Haunt, Terrifier, Hell House LLC, Clown, Hell House LLC Origins: The Carmichael Manor
