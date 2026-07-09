@@ -1,3 +1,443 @@
+# This Man On Fire Meets Sicario Thriller Is So Good, It Spawned Another Show
+
+TV, The Terminal List: Dark Wolf, The Terminal List
+
+Thu, 09 Jul 2026 15:30:21 GMT
+
+https://screenrant.com/terminal-list-dark-wolf-sicario-meets-man-fire/
+
+This gritty Amazon Prime thriller plays like a mix of Man on Fire and Sicario, and was such a hit it immediately spawned another series.
+---------
+
+# Red Dead Redemption 2 Free Download Available For 48 Hours
+
+Gaming, Red Dead Redemption 2, Triple-A Games
+
+Thu, 09 Jul 2026 15:27:42 GMT
+
+https://screenrant.com/red-dead-redemption-2-free-download-48-hours-july-2026/
+
+Although Red Dead Redemption 2 has been out for a while now, there are still downloads for it rolling out, as Rockstar preps for Grand Theft Auto 6.
+---------
+
+# Star Trek's Goodbye To Captain Kirk Confirms The End Of An Era
+
+Comics, Star Trek
+
+Thu, 09 Jul 2026 15:20:22 GMT
+
+https://screenrant.com/star-trek-the-last-starship-finale-kirk-details/
+
+One of the greatest eras in Star Trek history is coming to an end, and with Kirk leading this final mission, it will be a bittersweet farewell.
+---------
+
+# Forza Horizon 6: Horizon Decades - Ito Region Treasure Hunt Location
+
+Gaming, Forza Horizon 6
+
+Thu, 09 Jul 2026 15:17:49 GMT
+
+https://screenrant.com/forza-horizon-6-horizon-decades-ito-region-treasure-hunt/
+
+Here's where to find the Ito region treasure chest during the Horizon Decades festival playlist.
+---------
+
+# Netflix's Little House On The Prairie Season 2: Cast, Confirmation & Everything We Know
+
+Streaming TV, Little House on the Prairie
+
+Thu, 09 Jul 2026 15:15:21 GMT
+
+https://screenrant.com/little-house-on-the-prairie-netflix-season-2-explained/
+
+Updates on Netflix's Little House on the Prairie Season 2, including cast changes, renewal news, and what to anticipate in the upcoming season.
+---------
+
+# The Elder Scrolls 6 Just Got A Very Unfortunate Update
+
+Gaming, The Elder Scrolls 6, The Elder Scrolls, Triple-A Games
+
+Thu, 09 Jul 2026 15:13:47 GMT
+
+https://screenrant.com/elder-scrolls-6-xbox-layoffs/
+
+The Elder Scrolls 6 developer and publisher Bethesda has been hit by the mass layoffs across Xbox, and the cut staff will have a "substantial" effect.
+---------
+
+# Guy Ritchie’s The Gentlemen Season 2 Release Date & Return Revealed In Netflix’s New Trailer
+
+TV, The Gentlemen
+
+Thu, 09 Jul 2026 15:05:33 GMT
+
+https://screenrant.com/the-gentlemen-season-2-teaser-release-date/
+
+The Gentlemen are coming back in an all-new teaser for season 2, which reveals the official release date for the Guy Ritchie adaptation.
+---------
+
+# Avengers: Doomsday Replaces 2 Major Characters
+
+Movies, Avengers: Doomsday
+
+Thu, 09 Jul 2026 15:02:22 GMT
+
+https://screenrant.com/avengers-doomsday-replaces-iron-man-black-widow/
+
+The MCU is bringing multiple legacy characters back into the fold in Avengers: Doomsday, but the returnees are overshadowed by two missing faces.
+---------
+
+# Steam Pulls Final Fantasy Game Ahead Of Full Shutdown
+
+Gaming, Final Fantasy 7: Ever Crisis, Final Fantasy, Triple-A Games, PC
+
+Thu, 09 Jul 2026 15:00:50 GMT
+
+https://screenrant.com/final-fantasy-steam-delisted-ever-crisis/
+
+One Final Fantasy spin-off is retiring later this year, and it's officially departing Steam early for those who haven't yet downloaded it.
+---------
+
+# Forza Horizon 6: On The Rise Photo Challenge Guide
+
+Gaming, Forza Horizon 6
+
+Thu, 09 Jul 2026 14:50:27 GMT
+
+https://screenrant.com/forza-horizon-6-on-the-rise-photo-challenge-guide/
+
+Here's how to complete the #OnTheRise photo challenge during the spring season of the Horizon Decades festival playlist.
+---------
+
+# Sanrio's Latest Most Popular Characters Continue a Surprising Trend
+
+Anime, Hello Kitty
+
+Thu, 09 Jul 2026 15:15:12 GMT
+
+https://www.cbr.com/sanrio-hello-kitty-new-most-popular-character-surprising-trend/
+
+One of the most upsetting trends for Hello Kitty fans is also one of the best things that Sanrio could ask for, even if that doesn't sound possible.
+---------
+
+# Guy Ritchie's 2-Part Crime Classic Finally Confirms Return Date After Major Controversy
+
+TV, MobLand
+
+Thu, 09 Jul 2026 15:11:11 GMT
+
+https://www.cbr.com/guy-ritchie-mobland-season-2-release-date-teaser/
+
+The hit crime drama finally returns in two months.
+---------
+
+# 5 Best Gogeta Battles, Ranked
+
+Anime, Dragon Ball, Dragon Ball Z, Dragon Ball Super
+
+Thu, 09 Jul 2026 15:00:13 GMT
+
+https://www.cbr.com/dragon-ball-official-best-gogeta-battles-ranked/
+
+Gogeta, the fusion of Goku and Vegeta, is an unforgettable fighter who has been involved in some of Dragon Ball's best battles.
+---------
+
+# New Evangelion Unit-02 Seiko Watch Gets International Release, Limited to 400 Pieces
+
+Anime, Neon Genesis Evangelion, merchandise
+
+Thu, 09 Jul 2026 14:50:15 GMT
+
+https://www.cbr.com/evangelion-eva-02-seiko-divers-watch-international-release/
+
+The latest Neon Genesis Evangelion timepiece combines a luxurious Diver's watch mold with the EVA Unit-02's colors, but supplies are limited.
+---------
+
+# Godzilla Officially Returns in Trailer for New 2026 Movie
+
+Movies, Godzilla Minus Zero, Godzilla, Horror
+
+Thu, 09 Jul 2026 14:47:47 GMT
+
+https://www.cbr.com/godzilla-minus-zero-trailer/
+
+Godzilla is back in Godzilla Minus Zero
+---------
+
+# 6 Best Mystery Shows on Hulu Right Now
+
+TV, Hulu, Only Murders in the Building, Mystery, The Patient
+
+Thu, 09 Jul 2026 14:31:13 GMT
+
+https://www.cbr.com/best-hulu-mystery-shows-now-list/
+
+Don't waste hours scrolling through endless streaming options. Hulu has the best mystery shows to watch right now.
+---------
+
+# 3 Most Overpowered Devil Fruits In One Piece
+
+Anime, One Piece
+
+Thu, 09 Jul 2026 14:15:14 GMT
+
+https://www.cbr.com/one-piece-most-overpowered-devil-fruits/
+
+Luffy's Hito Hito no Mi: Model Nika is nowhere near the most overpowered Devil Fruit in One Piece.
+---------
+
+# Mortal Kombat II: Simon McQuoid on Baraka's Challenge
+
+Movies, Mortal Kombat II
+
+Thu, 09 Jul 2026 14:15:14 GMT
+
+https://www.cbr.com/video/mortal-kombat-ii-simon-mcquoid-on-baraka-s-challenge/
+
+Simon McQuoid reveals how Mortal Kombat II decided which fighters would shape the franchise's future—and why one fan-favorite nearly didn't make the cut. The director explains why Baraka was his biggest creative challenge, how Johnny Cage, Kitana, and Jade fit into the sequel's larger story, and why "anyone can die" remains a guiding philosophy for the movies. He also discusses adapting Mortal Kombat's massive roster, creating emotionally grounded character arcs, and the surprising process of making iconic game characters feel believable on screen.
+---------
+
+# G.I. Joe and Lara Croft's Crossover Returns Thanks To High Fan Demand
+
+Comics, G.I. Joe, Lara Croft: Tomb Raider
+
+Thu, 09 Jul 2026 14:00:17 GMT
+
+https://www.cbr.com/gi-joe-a-real-american-hero-331-second-printing-release-date-confirmed/
+
+Lara Croft's surprise appearance in G.I. Joe: A Real American Hero returns along with the announcement of a new crossover series later this year.
+---------
+
+# 10 Most Ambitious Anime of All Time, Ranked
+
+Anime, One Piece, Dragon Ball, Mobile Suit Gundam
+
+Thu, 09 Jul 2026 13:15:14 GMT
+
+https://www.cbr.com/most-ambitious-anime-ranked/
+
+Masterpiece anime like Mobile Suit Gundam and FLCL fearlessly reached for the stars.
+---------
+
+# The Complete CBS Fall 2026 Schedule
+
+TV, CBS, Marshals, Survivor, NCIS
+
+Thu, 09 Jul 2026 15:36:15 GMT
+
+https://collider.com/cbs-fall-2026-schedule/
+
+From reality show dynasties like Survivor to originals like Cupertino, the CBS Fall 2026 line-up is filled with familiar titles and exciting new ones.
+---------
+
+# Netflix’s Most Thrilling Crime Series Officially Returns in 2 Months
+
+TV News, The Gentlemen, Guy Ritchie, Netflix
+
+Thu, 09 Jul 2026 15:25:47 GMT
+
+https://collider.com/the-gentlemen-season-2-trailer-netflix-release-date/
+
+The Gentlemen Season 2 trailer confirms the Netflix crime series returns on September 3, bringing Guy Ritchie’s stylish criminal world back.
+---------
+
+# ‘Mare of Easttown’ Is Officially Returning to HBO With a Shocking Crossover
+
+TV News, Mare of Easttown, Task, HBO, Julianne Nicholson
+
+Thu, 09 Jul 2026 15:07:44 GMT
+
+https://collider.com/task-season-2-mare-of-easttown-crossover-julianne-nicholson/
+
+HBO’s Task Season 2 will feature a Mare of Easttown crossover, with Julianne Nicholson returning as Lori Ross.
+---------
+
+# Legendary Video Game Hero Officially Returns in Stunning New Release [Exclusive]
+
+Exclusives, Thief, Action, Fantasy, Graphic Novel
+
+Thu, 09 Jul 2026 15:00:13 GMT
+
+https://collider.com/thief-pulse-of-promise-comic-cover-images-backerkit-campaign/
+
+The legendary stealth video game franchise Thief has returned from the shadows in a new graphic novel featuring a cover by a Marvel and DC veteran.
+---------
+
+# Star Trek’s Darkest Episode Still Has the Best Space Battle Sci-Fi Has Ever Seen
+
+TV Features, Star Trek, Star Trek: The Next Generation, Star Trek: Deep Space Nine, Paramount Plus
+
+Thu, 09 Jul 2026 14:30:52 GMT
+
+https://collider.com/star-trek-next-generation-best-sci-fi-space-battle-best-of-both-worlds-wolf-359/
+
+Star Trek: The Next Generation was forever changed by "The Best of Both Worlds," which features a battle that rocked the entire franchise.
+---------
+
+# Keanu Reeves Officially Reveals New Sci-Fi Action Movie That Is 'Groundhog Day' Meets 'Jaws' [Exclusive]
+
+Exclusives, Keanu Reeves, Tim Miller
+
+Thu, 09 Jul 2026 14:30:13 GMT
+
+https://collider.com/keanu-reeves-time-travel-shark-movie-shiver/
+
+Keanu Reeves talks to Collider about his new motorcycle docu-series as well as teases his first original action movie sine John Wick.
+---------
+
+# Guy Ritchie's New Crime Thriller Is Already the Perfect 'MobLand' Replacement
+
+TV News, Guy Ritchie, Prime Video, MobLand, In the Grey
+
+Thu, 09 Jul 2026 14:19:16 GMT
+
+https://collider.com/guy-ritchie-capital-amazon-mgm-crime-series-mobland-replacement/
+
+Guy Ritchie and Rob Williams are developing a new London crime series at Amazon MGM Studios with members of the Young Sherlock producing team.
+---------
+
+# The Biggest Sci-Fi Sequel of 2026 Officially Arrives This November
+
+Movie News, Godzilla Minus Zero, Godzilla Minus One, Takashi Yamazaki, Toho
+
+Thu, 09 Jul 2026 14:00:26 GMT
+
+https://collider.com/godzilla-minus-zero-trailer-release-date-november-6/
+
+Toho has released the first official trailer for Godzilla Minus Zero, confirming that the sequel to Godzilla Minus One will be released on November 6.
+---------
+
+# Sabrina the Teenage Witch Officially Returns This Fall [Exclusive]
+
+Books and Comics News, Sabrina the Teenage Witch, Chilling Adventures of Sabrina, Comics, Archie Comics
+
+Thu, 09 Jul 2026 14:00:17 GMT
+
+https://collider.com/sabrina-is-back-in-a-new-comic-this-fall-and-we-have-a-first-look-exclusive/
+
+Discover a new take on Sabrina the Teenage Witch, brought to life by Corinna Bechko and Kano, set to release this October.
+---------
+
+# Tom Hardy Officially Returns in Guy Ritchie's Explosive ‘MobLand’ Season 2 Trailer
+
+TV News, MobLand, Tom Hardy, Pierce Brosnan, Guy Ritchie
+
+Thu, 09 Jul 2026 13:00:14 GMT
+
+https://collider.com/mobland-season-2-trailer-release-date-tom-hardy/
+
+Tom Hardy returns as Harry Da Souza in the MobLand Season 2 trailer, with the Paramount+ crime drama premiering September 18.
+---------
+
+# Keanu Reeves' New Sci-Fi Action Thriller Is a Twist on a Beloved Time Travel Classic
+
+Movie News, Keanu Reeves, Tim Miller
+
+Thu, 09 Jul 2026 15:33:51 GMT
+
+https://movieweb.com/keanu-reeves-shiver-groundhog-day-jaws-action-thriller/
+
+Keanu Reeves confirmed that he will be "getting eaten by sharks" in the new sci-fi action thriller.
+---------
+
+# Hulu's Long-Awaited Sci-Fi Reboot Fate Officially Confirmed After 7 Years
+
+TV News, The Hitchhiker's Guide to the Galaxy, Hulu, Carlton Cuse, Douglas Adams
+
+Thu, 09 Jul 2026 15:21:45 GMT
+
+https://movieweb.com/hulu-hitchhikers-guide-to-the-galaxy-reboot-dead/
+
+Carlton Cuse has confirmed the fate of Hulu's planned sci-fi series after years of uncertainty.
+---------
+
+# Guy Ritchie Sets New Crime Thriller Series at Amazon After MobLand Success
+
+TV News, Guy Ritchie
+
+Thu, 09 Jul 2026 15:06:56 GMT
+
+https://movieweb.com/guy-ritchie-capital-amazon-crime-series/
+
+Guy Ritchie is developing 'Capital', a new crime thriller series at Amazon MGM Studios, echoing his London gangster hit 'MobLand'.
+---------
+
+# Prime Video's Raunchy R-Rated Smash Finally Toppled by New Prequel Series
+
+TV News, Off Campus, Elle, Hot on Streaming, Prime Video
+
+Thu, 09 Jul 2026 15:00:19 GMT
+
+https://movieweb.com/prime-video-off-campus-elle-streaming-success-july-2026/
+
+After almost two months, Prime Video's biggest hit has officially been dethroned on streaming by a newcomer drenched in pink.
+---------
+
+# Netflix's Long-Awaited Western Reboot Officially Debuts With Sweeping Rotten Tomatoes Score
+
+TV News, Little House on the Prairie
+
+Thu, 09 Jul 2026 14:36:49 GMT
+
+https://movieweb.com/little-house-on-the-prairie-netflix-rotten-tomatoes/
+
+Netflix's reboot of one of the most iconic Western shows in history is ready to go, complete with an impressive Rotten Tomatoes score.
+---------
+
+# One of the Best Science Fiction Films of All Time Is on YouTube for Free
+
+Features, Sci-Fi, YouTube
+
+Thu, 09 Jul 2026 14:30:19 GMT
+
+https://movieweb.com/stalker-best-science-fiction-streaming/
+
+Set in a dystopian future, this 1970s masterpiece challenges reality by presenting a simple idea: a room where wishes can be granted
+---------
+
+# Bob Odenkirk & Mike Flanagan's Wild Cult-Classic Reboot Already Officially Streaming
+
+Movie News, The Room
+
+Thu, 09 Jul 2026 14:28:41 GMT
+
+https://movieweb.com/bob-odenkirk-mike-flanagan-the-room-returns-digital-streaming/
+
+The star-studded, heartfelt remake of "the worst movie ever made" is finally getting a digital release.
+---------
+
+# 'Godzilla Minus Zero' Trailer Unleashes the Iconic Monster
+
+Movie News, Godzilla Minus Zero, Godzilla
+
+Thu, 09 Jul 2026 14:11:01 GMT
+
+https://movieweb.com/godzilla-minus-zero-new-trailer/
+
+The second teaser trailer for the highly anticipated Kaiju sequel is here.
+---------
+
+# Guy Ritchie’s Divisive Crime Thriller TV Reboot Makes For a Perfect Weekend Binge
+
+Features, Guy Ritchie, Snatch, Thriller
+
+Thu, 09 Jul 2026 14:00:23 GMT
+
+https://movieweb.com/snatch-tv-series-guy-ritchie-binge-watch/
+
+'Harry Potter' star Rupert Grint stars in the polarizing adaptation of Guy Ritchie's classic gangster film, making it a must-see for fans of both.
+---------
+
+# Tom Hardy Returns in First 'Mobland' Season 2 Trailer as Release Date Confirmed
+
+TV News, MobLand
+
+Thu, 09 Jul 2026 13:19:27 GMT
+
+https://movieweb.com/mobland-season-2-trailer-release-date/
+
+Tom Hardy returns in the new trailer for 'MobLand' Season 2, which it has now been confirmed will be released this September.
+---------
+
 # Sean Bean Was Thrilled Making His Western Debut As A "F---ed-Up Ba---rd"
 
 Movies, Sean Bean
