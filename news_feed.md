@@ -1,3 +1,333 @@
+# Fallout 5 Official Setting Has Gamers Concerned
+
+Gaming, Fallout 5, Triple-A Games
+
+Thu, 09 Jul 2026 05:30:20 GMT
+
+https://screenrant.com/fallout-5-official-setting-bethesda-gamers-react/
+
+The next Fallout is still a ways away, but official new information on the setting has gamers concerned that it won't measure up.
+---------
+
+# Halo Is Officially Getting The Prequel We’ve Been Waiting For In November 2026
+
+Gaming, Halo, Triple-A Games
+
+Thu, 09 Jul 2026 05:00:20 GMT
+
+https://screenrant.com/halo-fall-of-reach-prequel-november-2026/
+
+The definitive way to experience one of Halo's best stories is officially launching this year, which every fan should have on their radar.
+---------
+
+# The Legend Of Zelda Movie’s Perfect Ganon Casting Splits Gamers
+
+Gaming, The Legend of Zelda
+
+Thu, 09 Jul 2026 04:30:20 GMT
+
+https://screenrant.com/zelda-live-action-movie-ganon-casting-speculation/
+
+The Legend of Zelda has a massive choice to make regarding its iconic series villain, Ganondorf, and fans can't agree on how they feel about it.
+---------
+
+# Assassin's Creed Black Flag Resynced: Where To Find The Lowest Point On The Map
+
+Gaming, Assassin's Creed Black Flag Resynced
+
+Thu, 09 Jul 2026 04:01:25 GMT
+
+https://screenrant.com/assassins-creed-black-flag-resynced/where-to-find-the-lowest-point-on-the-map/
+
+Here's how to find the lowest point in the ocean and complete the "Davy Jones's Locker" trophy or achievement.
+---------
+
+# Assassin's Creed Black Flag Resynced: All Legendary Ship Locations
+
+Gaming, Assassin's Creed Black Flag Resynced
+
+Thu, 09 Jul 2026 04:01:25 GMT
+
+https://screenrant.com/assassins-creed-black-flag-resynced-all-legendary-ship-locations/
+
+In this guide, we'll tell you where to find each of the four legendary ships in Black Flag Resynced.
+---------
+
+# Assassin's Creed Black Flag Resynced: All Tavern Games
+
+Gaming, Assassin's Creed Black Flag Resynced
+
+Thu, 09 Jul 2026 04:01:25 GMT
+
+https://screenrant.com/assassins-creed-black-flag-resynced-all-tavern-games/
+
+Here's everything you need to know about the tavern games in Black Flag Resynced.
+---------
+
+# Assassin's Creed Black Flag Resynced: Best Ship Upgrades To Buy
+
+Gaming, Assassin's Creed Black Flag Resynced
+
+Thu, 09 Jul 2026 04:01:25 GMT
+
+https://screenrant.com/assassins-creed-black-flag-resynced/
+
+Here are the best upgrades you should buy for the Jackdaw as soon as possible.
+---------
+
+# Cyberpunk 2077: Edgerunners Game Officially Coming September 2026
+
+Gaming, Cyberpunk 2077, Cyberpunk: Edgerunners, Cyberpunk: Edgerunners 2
+
+Thu, 09 Jul 2026 04:00:28 GMT
+
+https://screenrant.com/cyberpunk-2077-edgerunners-hunted-game-september-2026/
+
+The official Cyberpunk 2077: Edgerunners game is finally releasing in September 2026, just in time for the launch of Edgerunners Season 2.
+---------
+
+# Adventure Time Officially Changes Art Style For New Release
+
+Comics, Adventure Time
+
+Thu, 09 Jul 2026 03:40:48 GMT
+
+https://screenrant.com/adventure-time-quadruple-feature-new-art-style/
+
+Adventure Time's new release completely transforms the show's art style by embracing a century-old animation style rarely seen in modern cartoons.
+---------
+
+# DC Studios Officially Teases The Best Future For The DCU’s Superman
+
+Superheroes, My Adventures With Superman, DC Universe, Superman
+
+Thu, 09 Jul 2026 03:35:38 GMT
+
+https://screenrant.com/dc-studios-teases-best-dcu-superman-future-superboy/
+
+DC Studios' latest Superman project is teasing a very exciting future for the DCU's Superman with an epic proof-of-concept adventure for Kal-El.
+---------
+
+# For the First Time Ever, U.S. Gundam Fans Get the Perfect Gunpla Release
+
+Anime, Mobile Suit Gundam, merchandise
+
+Thu, 09 Jul 2026 03:59:12 GMT
+
+https://www.cbr.com/hidetaka-tenjin-artistry-of-gundam-america-release/
+
+Hidetaka Tenjin has had years of experience with the Gundam franchise, and now, publisher UDON is collecting every artwork in a new collection.
+---------
+
+# 5 Survival Games That Get Harder The Longer You Survive
+
+Games, survival, Video Games, Don't Starve
+
+Thu, 09 Jul 2026 03:45:15 GMT
+
+https://www.cbr.com/survival-games-get-harder-over-time-list/
+
+Challenge intensifies in games like Rust and Abiotic Factor, offering a constantly evolving experience that tests both skills and resourcefulness.
+---------
+
+# The Only 3 Lord of the Rings Characters Who Defeated Sauron
+
+Movies, The Lord of the Rings, The Hobbit, Fantasy
+
+Thu, 09 Jul 2026 03:45:15 GMT
+
+https://www.cbr.com/lord-of-the-rings-characters-who-defeated-sauron-list/
+
+Over the thousands of years that the Dark Lord Sauron terrorized the Free Peoples of Middle-earth, just three heroes managed to beat him in a fight.
+---------
+
+# 10 Years Later, the Smartest Time-Loop Episode in Sci-Fi History Is Still Untouchable
+
+TV, 12 Monkeys, Sci-Fi, universal
+
+Thu, 09 Jul 2026 03:31:14 GMT
+
+https://www.cbr.com/12-monkeys-smartest-time-loop-episode-tv-history/
+
+This classic sci-fi time-loop episode is an untouchable masterpiece in both the familiar genre device and its service to the characters.
+---------
+
+# Twilight Princess' Official Switch 2 Remaster Is the Last Thing Zelda Needs
+
+Games, The Legend of Zelda
+
+Thu, 09 Jul 2026 03:15:13 GMT
+
+https://www.cbr.com/zelda-twilight-princess-switch-2-remaster-unnecessary/
+
+New leaks and rumors suggest Twilight Princess is about to make its Switch 2 debut, but whether Zelda fans even need it is another question entirely.
+---------
+
+# 10 Perfect PS1 Games Nobody Remembers
+
+Games, PlayStation (Original)
+
+Thu, 09 Jul 2026 03:00:13 GMT
+
+https://www.cbr.com/most-perfect-ps1-games-nobody-remembers-list/
+
+PS1 games like Legend of Legaia and Threads of Fate have been lost to time.
+---------
+
+# NBC's Iconic 52-Year-Old Drama Streaming for Free as Netflix Debuts New Reboot
+
+TV, Little House on the Prairie
+
+Thu, 09 Jul 2026 02:49:13 GMT
+
+https://www.cbr.com/little-house-on-the-prairie-streaming-free-pluto-tv/
+
+Netflix's reboot arrive this week, while the original NBC series can be streamed for free in its entirety.
+---------
+
+# 10 Strongest Saiyans in the Dragon Ball Franchise, Officially Ranked
+
+Anime, Dragon Ball, Dragon Ball Z, Dragon Ball Super
+
+Thu, 09 Jul 2026 02:45:13 GMT
+
+https://www.cbr.com/dragon-ball-strongest-saiyans-officially-ranked/
+
+Saiyans represent Dragon Ball's strongest characters, but individuals like Goku, Vegeta, and their fusions put their less powerful peers to shame.
+---------
+
+# The 25 Best R-Rated Anime Movies, Ranked
+
+Anime
+
+Thu, 09 Jul 2026 02:45:13 GMT
+
+https://www.cbr.com/best-mature-anime-movies/
+
+The 1997 classic anime film Perfect Blue proves that anime isn't just for younger audiences; anime can have mature, serious themes, too.
+---------
+
+# 10 Strongest Anime Heroes Who Can Defeat the Ant King From Solo Leveling
+
+Anime, Solo Leveling
+
+Thu, 09 Jul 2026 02:35:13 GMT
+
+https://www.cbr.com/solo-leveling-ant-king-vs-strongest-anime-heroes-list/
+
+Not many anime heroes could hold their own against the Ant King of Solo Leveling.
+---------
+
+# 10 Best Songs of the 1970s
+
+Music Features, Fleetwood Mac, David Bowie, Blondie, Bruce Springsteen
+
+Thu, 09 Jul 2026 04:08:13 GMT
+
+https://collider.com/best-1970s-songs-ranked/
+
+The absolute best songs released in the 1970s include masterful tracks like "Bridge over Troubled Water," "Heart of Glass," and "Stairway to Heaven."
+---------
+
+# Netflix's Underrated 2-Part Fantasy Series Is Still Worth Watching
+
+TV Features, South Korea, Fantasy, Netflix, Drama
+
+Thu, 09 Jul 2026 04:08:13 GMT
+
+https://collider.com/netflix-tale-of-the-nine-tailed-fantasy-series-k-drama/
+
+Netflix's Tale of the Nine-Tailed is a unique romantic fantasy K-Drama based around an age-old Korean legend that's been overlooked for too long.
+---------
+
+# Heated Rivalry's Emmys Snub Isn't for the Reason You Think
+
+TV Features, Heated Rivalry, HBO Max, Saturday Night Live UK, Emmy Awards
+
+Thu, 09 Jul 2026 03:53:15 GMT
+
+https://collider.com/heated-rivalry-2026-emmys-snub-ruling-meaning/
+
+Many fans of Heated Rivalry were confused by the show's snub at this year's Emmys, which boils down to a longstanding rule.
+---------
+
+# HBO’s 14-Episode Drama Is So Good, It Keeps Outgrowing the Book
+
+TV Features, Big Little Lies, Laura Dern, Nicole Kidman, Reese Witherspoon
+
+Thu, 09 Jul 2026 03:15:13 GMT
+
+https://collider.com/big-little-lies-hbo-series-outgrew-book/
+
+HBO's Big Little Lies transformed television with its A-list cast and gripping storytelling, becoming a cultural phenomenon that outgrew the book.
+---------
+
+# This 4-Part Sci-Fi Series Officially Changed the Winning Formula for Steamy TV Romance
+
+TV Features, Farscape, Sci-Fi, Romance, SyFy
+
+Thu, 09 Jul 2026 03:10:13 GMT
+
+https://collider.com/farscape-best-sci-fi-romance-changed-tv-formula/
+
+Farscape’s John Crichton and Aeryn Sun romance broke the usual TV formula, creating one of sci-fi’s most emotionally rewarding love stories.
+---------
+
+# 21 Years Later, HBO Max’s Crime Thriller Is Still Perfect From Start to Finish
+
+Movie Features, A History of Violence, David Cronenberg, Viggo Mortensen, Ed Harris
+
+Thu, 09 Jul 2026 03:03:13 GMT
+
+https://collider.com/history-of-violence-viggo-mortensen-david-cronenberg-hbo-max/
+
+A History of Violence isn't just an iconic thriller, this Viggo Mortensen crime drama is one of the best comic book adaptations of all time.
+---------
+
+# 7 Hard Sci-Fi Shows Where Every Episode Is a Masterpiece
+
+TV, Sci-Fi, The Expanse, For All Mankind, Black Mirror
+
+Thu, 09 Jul 2026 03:01:13 GMT
+
+https://collider.com/hard-sci-fi-shows-every-episode-masterpiece/
+
+Prime Video's The Expanse, FX's Devs, and Netflix's Black Mirror are among the rare class of hard sci-fi series where every episode is a masterpiece.
+---------
+
+# 6 Months Before ‘Doomsday,’ Marvel’s $1.5 Billion Classic Surges on Streaming
+
+Movie News, The Avengers, Superhero, MCU, Hulu
+
+Thu, 09 Jul 2026 01:30:16 GMT
+
+https://collider.com/the-avengers-hulu-top-10-avengers-doomsday-marvel/
+
+The 2012 MCU film 'The Avengers' has made a resurgence on streaming platforms, ranking high on Hulu's Top 10 Movies in the U.S.
+---------
+
+# Paramount+'s 7-Part Masterpiece Is the Perfect Late-Night Binge for 'MobLand' Fans
+
+TV Features, MobLand, Ray Donovan, Paramount Plus, Showtime
+
+Thu, 09 Jul 2026 01:19:13 GMT
+
+https://collider.com/paramount-plus-mobland-perfect-replacement-series-ray-donovan/
+
+Before MobLand dominated Paramount+'s charts, it had a predecessor: Ray Donovan.
+---------
+
+# Gandalf's Best Quote Is Still the Greatest in the 'Lord of the Rings' Franchise
+
+Features, The Lord of the Rings, The Hobbit: An Unexpected Journey
+
+Thu, 09 Jul 2026 02:00:31 GMT
+
+https://movieweb.com/gandalf-best-peter-jackson-lord-of-the-rings-quote/
+
+Ancient and wise Gandalf is responsible for some of the most quotable lines in the 'Lord of the Rings' franchise, but one stands above the rest.
+---------
+
 # Supernatural's Official 2026 Return Redefines Sam And Dean
 
 Classic TV, Supernatural
