@@ -1,3 +1,300 @@
+# Paramount+ Has Officially Cheapened Criminal Minds' Best Asset
+
+Network TV, Criminal Minds
+
+Thu, 09 Jul 2026 23:45:21 GMT
+
+https://screenrant.com/paramount-plus-ruined-criminal-minds-found-family-element/
+
+Paramount+ has made many changes to Criminal Minds since 2022, but one of the best parts of the original series seems to be gone for good.
+---------
+
+# MobLand Season 2’s New Tom Hardy Rival Looks Terrifying
+
+Streaming TV, MobLand
+
+Thu, 09 Jul 2026 23:30:21 GMT
+
+https://screenrant.com/mobland-tom-hardy-rival-beast-johnny-flynn/
+
+Tom Hardy's Harry Da Souza has a new adversary in MobLand's second season, and he's  scarier than anything else we've seen in the show so far.
+---------
+
+# HBO Introduced A Permanent Change To A Song Of Ice And Fire Lore
+
+Streaming TV, Masked Recs
+
+Thu, 09 Jul 2026 23:15:21 GMT
+
+https://screenrant.com/house-of-the-dragon-aegon-dream-change-asoiaf-lore/
+
+With the House of the Dragon premiere, HBO added an addendum to accepted A Song of Ice and Fire lore, and it looks like the change is here to stay.
+---------
+
+# 10 Best-Written Anime Villains Who Set The Absolute Gold Standard
+
+Anime
+
+Thu, 09 Jul 2026 23:11:27 GMT
+
+https://screenrant.com/best-anime-villains-writing-gold-standard/
+
+Villainy in anime is a very intentional plot device and these villains are narrative perfection given character form.
+---------
+
+# Lobo's 6 Most Brutal Comic Moments
+
+Comics, DC Comics
+
+Thu, 09 Jul 2026 23:08:18 GMT
+
+https://screenrant.com/lobos-6-most-brutal-comic-moments/
+
+The Last Czarnian has standout moments of gore and terror in the comics, enough to make him DC's most brutal character.
+---------
+
+# Cult Classic Mystery Series That Paved The Way For The X-Files Is Quietly Dominating Streaming
+
+TV, Masked Recs
+
+Thu, 09 Jul 2026 23:02:36 GMT
+
+https://screenrant.com/twin-peaks-mubi-streaming-success-july-2026-x-files-connection/
+
+A cult classic mystery series that paved the way for The X-Files is quietly dominating streaming nearly four decades after its premiere.
+---------
+
+# Ridley Scott's The Terror Season 4 Fate Confirmed By EP
+
+TV, The Terror, AMC+, Shudder, Horror
+
+Thu, 09 Jul 2026 23:01:54 GMT
+
+https://screenrant.com/ridley-scott-the-terror-season-4-fate-confirmed-renewed/
+
+Exclusive: Executive Producer David W. Zucker confirms the fate of Ridley Scott's The Terror season 4 after the show's return from a lengthy hiatus.
+---------
+
+# 20 Best Rick & Morty Episodes, Ranked
+
+TV, Rick and Morty
+
+Thu, 09 Jul 2026 23:00:21 GMT
+
+https://screenrant.com/best-rick-morty-episodes-ranked/
+
+From the game-changing canon episodes to the best purely comedic highlights, these 20 unmissable episodes are Rick & Morty's finest half-hours.
+---------
+
+# Animal Crossing Officially Returns August 2026
+
+Gaming, Animal Crossing, Nintendo, Nintendo Switch 2
+
+Thu, 09 Jul 2026 23:00:20 GMT
+
+https://screenrant.com/animal-crossing-august-2026-new-merch-confirmed/
+
+The legendary Animal Crossing is making a huge return in August 2026 with a brand-new project that fans are sure to absolutely adore.
+---------
+
+# DC Finally Admits There's One Justice League Hero Batman Can’t Beat
+
+Comics, Batman, Justice League
+
+Thu, 09 Jul 2026 22:54:20 GMT
+
+https://screenrant.com/why-batman-cannot-beat-aquaman-explained/
+
+Batman is infamous for creating contingency plans. However, DC has now revealed that there is one hero Batman has no true contingency plan for.
+---------
+
+# Zelda's Newly Confirmed Majora's Mask Switch 2 Remake Already Looks Perfect
+
+Games, The Legend of Zelda: Majora's Mask, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Thu, 09 Jul 2026 23:37:13 GMT
+
+https://www.cbr.com/zelda-majoras-mask-switch-2-remake-leak-analysis/
+
+A Majora's Mask Switch 2 remake coming after Ocarina of Time has accidentally leaked, and it already looks like Nintendo is taking the right approach.
+---------
+
+# 5 Classic Anime That Shaped Pokémon
+
+Anime, Pokémon, Dragon Ball
+
+Thu, 09 Jul 2026 23:15:13 GMT
+
+https://www.cbr.com/classic-anime-that-shaped-pokemon/
+
+These older series helped establish the adventure, friendship, and storytelling ideas that Pokémon later embraced.
+---------
+
+# Critical Role Returns to the Age of Umbra Tonight
+
+Games, Critical Role, Tabletop, Daggerheart
+
+Thu, 09 Jul 2026 23:00:13 GMT
+
+https://www.cbr.com/critical-role-age-of-umbra-swallowlands-july-2026/
+
+Critical Role is officially heading back to the Age of Umbra for the first time in nearly a year, and fans won't have to wait long for it.
+---------
+
+# CBS Officially Confirms a New Yellowstone Era in Marshals
+
+TV, Marshals, Yellowstone, CBS
+
+Thu, 09 Jul 2026 23:00:13 GMT
+
+https://www.cbr.com/cbs-yellowstone-marshals-historic-full-season-order-2026/
+
+CBS confirms a new era for Taylor Sheridan's Yellowstone franchise as Marshals continue to dominate network TV with the franchise's historic series.
+---------
+
+# Naruto Finally Brings Back Shippuden's Sasuke Reunion Arc in Official New Release
+
+Anime, Naruto, Naruto: Shippuden, merchandise
+
+Thu, 09 Jul 2026 23:00:13 GMT
+
+https://www.cbr.com/naruto-shippuden-sasuke-reunion-arc-figuartszero-release/
+
+The Naruto franchise is ready to revisit one of its most emotional arcs with an official new release from the Shippuden era.
+---------
+
+# 3 Superhero Trilogies Better Than James Gunn's Guardians of the Galaxy
+
+Movies, superheroes, Action, Guardians of the Galaxy
+
+Thu, 09 Jul 2026 23:00:13 GMT
+
+https://www.cbr.com/superhero-trilogies-better-than-guardians-of-the-galaxy-list/
+
+James Gunn's Guardians of the Galaxy trilogy set a high standard, and the following three superhero trilogies belong in the same conversation.
+---------
+
+# 'Evil Dead Burn's Post-Credits Scene Just Changed the Rules of the Franchise
+
+Movie Features, Evil Dead Burn, Evil Dead Rise, Sam Raimi, The Evil Dead
+
+Thu, 09 Jul 2026 23:48:13 GMT
+
+https://collider.com/evil-dead-burn-post-credits-scene-meaning-franchise-connection/
+
+The Deadites are back in Evil Dead Burn, and the two post-credit scenes reveal surprising information about the franchise's future.
+---------
+
+# Hit Cyberpunk Sci-Fi Returns With First Major Release in 9 Years
+
+TV News, Blade Runner 2099, Michelle Yeoh, Hunter Schafer, San Diego Comic-Con
+
+Thu, 09 Jul 2026 23:47:15 GMT
+
+https://collider.com/prime-video-sci-fi-blade-runner-2099-sdcc-panel/
+
+Blade Runner fans will finally get their first look at the upcoming sci-fi sequel series this month. Get all the details here.
+---------
+
+# Taylor Sheridan’s ‘Tulsa King’ Is Officially Returning Sooner Than Expected
+
+TV News, Tulsa King, Taylor Sheridan, Paramount Plus, Sylvester Stallone
+
+Thu, 09 Jul 2026 23:45:14 GMT
+
+https://collider.com/taylor-sheridan-tulsa-king-season-3-blu-ray-september-8-2026/
+
+Paramount has set a new release for Sylvester Stallone and Taylor Sheridan's Tulsa King ahead of the Season 4 premiere.
+---------
+
+# All 20 Stephen King Sci-Fi Books, Ranked
+
+Books and Comics, Firestarter, Stephen King, The Dark Tower, Under the Dome
+
+Thu, 09 Jul 2026 23:21:13 GMT
+
+https://collider.com/stephen-king-sci-fi-books-ranked/
+
+There are 20 books written by Stephen King that belong to the sci-fi genre, including The Dead Zone and Firestarter... but which of them is the best?
+---------
+
+# The 12 Scariest Sci-Fi Movie Villains, Ranked
+
+Movie, Sci-Fi, 2001: A Space Odyssey, Star Wars: Episode V - The Empire Strikes Back, Star Trek 2: The Wrath of Khan
+
+Thu, 09 Jul 2026 23:12:14 GMT
+
+https://collider.com/scariest-sci-fi-movie-villains-all-time-ranked/
+
+The Predator, The Xenomorph, and Immortan Joe are among the most terrifying villains from science fiction movies, ever.
+---------
+
+# The Best Sci-Fi Series of the 2000s Gets Disappointing Reboot Update
+
+TV News, Heroes, Netflix, NBC, Tim Kring
+
+Thu, 09 Jul 2026 23:00:13 GMT
+
+https://collider.com/best-sci-fi-series-2000s-heroes-reboot-update/
+
+The anticipated Heroes reboot, set to continue the beloved 2000s sci-fi series, has hit a roadblock, leaving fans uncertain about its future.
+---------
+
+# Marvel's 30-Minute Character Shocker Just Hit Fans With a Major Gut-Punch
+
+TV Features, X-Men '97, X-Men: The Animated Series, X-Men, Marvel Animation
+
+Thu, 09 Jul 2026 22:58:14 GMT
+
+https://collider.com/x-men-97-season-2-episode-4-apocalypse-kills-magneto/
+
+X-Men '97 Season 2's latest episode wraps up with a shocking and emotionally devastating end for one character, leaving fans heartbroken.
+---------
+
+# 10 Greatest Spider-Man Costumes in Comic Books
+
+Books and Comics, Spider-Man, Comics, Marvel Comics, Superhero
+
+Thu, 09 Jul 2026 22:54:13 GMT
+
+https://collider.com/best-spider-man-comic-book-costumes/
+
+The many heroes carrying the Spider-Man mantle have also worn numerous cool costumes throughout comic book history, but these are the most iconic.
+---------
+
+# Christopher Nolan's 'The Odyssey' Confirmed to Shatter a 28-Year-Record
+
+Movie News, The Odyssey
+
+Thu, 09 Jul 2026 23:51:10 GMT
+
+https://movieweb.com/christopher-nolan-the-odyssey-original-song/
+
+Christopher Nolan helped write the lyrics for a new original song in 'The Odyssey' titled "When I'm Home.'
+---------
+
+# 'The Pitt' Star Officially Confirms Season 3 Is the End of an Era
+
+TV News, The Pitt, Noah Wyle
+
+Thu, 09 Jul 2026 23:18:08 GMT
+
+https://movieweb.com/the-pitt-season-3-timeline-confirmed/
+
+The new season will be the first time the events of the series took place previous to its real-time release.
+---------
+
+# 'Spider-Man' Filmmaker's Live-Action 27-Year-Old Fantasy Reboot Gets Positive Update
+
+Movie News, Destin Cretton, Naruto
+
+Thu, 09 Jul 2026 23:04:59 GMT
+
+https://movieweb.com/naruto-destin-daniel-cretton-casting-update/
+
+The director of the newest Spider-Man movie is now moving forward with a live-action adaptation of a massive animated fantasy franchise.
+---------
+
 # Nathan Fillion's New HBO Show Is The Rookie Meets Firefly
 
 Streaming TV, Masked Recs
