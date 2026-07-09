@@ -1,3 +1,355 @@
+# 7 Adaptations Of The Odyssey You Didn't Know Were Adaptations Of The Odyssey
+
+Movies, The Odyssey, The Warriors, Beau Is Afraid, O Brother, Where Art Thou?, Keyhole, Cold Mountain, The SpongeBob SquarePants Movie
+
+Thu, 09 Jul 2026 21:00:21 GMT
+
+https://screenrant.com/the-odyssey-adaptations-you-didnt-know/
+
+Christopher Nolan isn't the first filmmaker inspired by Homer. These 7 unexpected movies are actually all secret adaptations of The Odyssey.
+---------
+
+# Dragon Ball's Latest Finale Just Set Up A Bold New Era For The Series
+
+Gaming, Dragon Ball, Dragon Ball Xenoverse 2, Triple-A Games, PC
+
+Thu, 09 Jul 2026 21:00:21 GMT
+
+https://screenrant.com/dragon-ball-xenoverse-2-post-credits-explained/
+
+The Dragon Ball franchise has just reached the end of an era with a big finale to one of its longest arcs, and it will start a new era for the series.
+---------
+
+# Apple TV's Upcoming Altered Carbon Replacement Adapts A Cyberpunk Masterpiece
+
+TV, Masked Recs
+
+Thu, 09 Jul 2026 21:00:21 GMT
+
+https://screenrant.com/aneuromancer-apple-tv-altered-carbon-replacement/
+
+The cancellation of Altered Carbon left a gaping hole in the world of cyberpunk TV, but Apple TV+ may have found the perfect replacement.
+---------
+
+# Why Netflix's 10/10 Western Masterpiece That Was Quietly Released Has Become A US Streaming Hit
+
+Movies, Masked Recs
+
+Thu, 09 Jul 2026 20:59:21 GMT
+
+https://screenrant.com/netflix-old-henry-streaming-charts-rise-united-states/
+
+One of Netflix's most successful movies is a Western masterpiece that was quietly released, and its US streaming hit status comes for a reason.
+---------
+
+# It's Official, Alan Ritchson's Batman Casting Can Finally Happen
+
+Streaming TV, Absolute Batman, Batman, Alan Ritchson
+
+Thu, 09 Jul 2026 20:45:21 GMT
+
+https://screenrant.com/alan-ritchson-absolute-batman-animated-series-fancast/
+
+DC is adapting an animated Absolute Batman series, which could give fan-favorite actor Alan Ritchson a chance to voice the Dark Knight.
+---------
+
+# Pluribus Season 2 Release Timeline Gets Major New Update From Apple TV Exec
+
+TV, Pluribus, Pluribus - Season 2
+
+Thu, 09 Jul 2026 20:35:07 GMT
+
+https://screenrant.com/pluribus-season-2-apple-tv-release-timeline-response-matt-cherniss/
+
+The return timeline for Pluribus season 2 on Apple TV gets a direct new update from exec Matt Cherniss after the hit series' first Emmys nominations.
+---------
+
+# Every Character Recast For Disney's Moana Live-Action Remake
+
+Movies, Moana
+
+Thu, 09 Jul 2026 20:32:24 GMT
+
+https://screenrant.com/disney-moana-live-action-characters-recast/
+
+Disney’s live-action Moana remake introduces new stars as familiar faces return, with fresh actors taking on beloved island characters.
+---------
+
+# Alien: Earth Season 2's Cast Adds 2 More Major Game Of Thrones Franchise Stars
+
+TV, Alien: Earth
+
+Thu, 09 Jul 2026 20:31:28 GMT
+
+https://screenrant.com/alien-earth-season-2-cast-sam-spruell-jerome-flynn-tracey-ullman/
+
+After FX confirmed Peter Dinklage's involvement in Alien: Earth season 2, the series adds two more actors from the Game of Thrones franchise.
+---------
+
+# Sean Bean's Dark New Western Thriller The Isolate Thief Took Years To Finally Make
+
+Movies, The Isolate Thief, Sean Bean
+
+Thu, 09 Jul 2026 20:30:20 GMT
+
+https://screenrant.com/sean-bean-the-isolate-thief-movie-years-to-make/
+
+Sean Bean talks his dark new Western thriller The Isolate Thief and reveals how it took years to finally get made, and why he stayed committed.
+---------
+
+# Disney Writers Push To Resurrect Cancelled Monsters, Inc. Sequel
+
+Movies, Monsters, Inc., Pixar
+
+Thu, 09 Jul 2026 20:29:33 GMT
+
+https://screenrant.com/monster-inc-cancelled-lost-in-scaradise-sequel-hopes-hilgenberg-muir/
+
+The writers behind a Monsters, Inc. sequel that never got made are urging Disney and Pixar to revive their script and make it into a movie.
+---------
+
+# Batman Needs Better Mysteries, Not More Robins
+
+Comics, Batman, DC Comics, Robin
+
+Thu, 09 Jul 2026 21:00:14 GMT
+
+https://www.cbr.com/batman-needs-better-mysteries/
+
+Batman isn’t dubbed the World’s Greatest Detective for nothing, and DC needs to revive the mystery side of Gotham rather than making new Robins.
+---------
+
+# The 10 Greatest Cyberpunk Books of All Time, Ranked
+
+Movies, Cyberpunk, Science Fiction, books
+
+Thu, 09 Jul 2026 21:00:14 GMT
+
+https://www.cbr.com/best-cyberpunk-books-ever-list/
+
+A combination of "lowlife and high tech", cyberpunk is a gritty, dystopian sub-genre of science fiction that blends futuristic tech with urban decay.
+---------
+
+# Mortal Kombat 2 Director Simon McQuoid Unpacks the Sequel’s Key Deaths
+
+CBR Exclusives, Mortal Kombat II
+
+Thu, 09 Jul 2026 20:47:32 GMT
+
+https://www.cbr.com/mortal-kombat-2-simon-mcquoid-character-deaths-sequel-future/
+
+Mortal Kombat II director Simon McQuoid discusses the sequel’s major character deaths, Johnny Cage, Baraka, and future stories.
+---------
+
+# Terrifier's Art the Clown Actor Joins Sequel to 20-Year-Old Cult Horror Hit
+
+Movies, Behind the Mask: The Rise of Leslie Vernon
+
+Thu, 09 Jul 2026 20:37:25 GMT
+
+https://www.cbr.com/david-howard-thornton-joines-behind-the-mask-2/
+
+David Howard Thornton joins Robert Englund in the long-awaited horror movie sequel.
+---------
+
+# Hunter x Hunter Officially Loses to One Piece in New Oricon Manga Sales Ranking
+
+Anime, Hunter X Hunter, One Piece
+
+Thu, 09 Jul 2026 20:30:12 GMT
+
+https://www.cbr.com/hunter-x-hunter-vs-one-piece-oricon-manga-ranking/
+
+Hunter x Hunter has failed to win the top spot following its return from hiatus, losing out to what has easily become 2026's hottest series.
+---------
+
+# Star Trek's Cancellation Makes This 10-Part Sci-Fi Masterpiece Mandatory Viewing
+
+TV, Star Trek, Stargate SG-1, Sci-Fi
+
+Thu, 09 Jul 2026 20:30:12 GMT
+
+https://www.cbr.com/stargate-sg1-star-trek-sci-fi-replacement/
+
+Military action, politics, and complex characters make this sci-fi series a must-watch, especially for Star Trek fans looking for something different.
+---------
+
+# 5 Masterpiece Action Franchises Better Than Fast and Furious
+
+Movies, Fast and Furious, Action, Mad Max
+
+Thu, 09 Jul 2026 20:30:12 GMT
+
+https://www.cbr.com/action-movie-franchises-better-than-fast-and-furious-list/
+
+In 2001, Rob Cohen’s The Fast and the Furious created an action movie institution, but it’s no secret there are plenty of franchises far better.
+---------
+
+# Alien: Earth Is Officially Reuniting Game of Thrones Greatest Duo as Season 2 Begins Filming
+
+TV, Alien: Earth, Alien, Sci-Fi
+
+Thu, 09 Jul 2026 20:28:38 GMT
+
+https://www.cbr.com/alien-earth-season-2-production-start-jerome-flynn-peter-dinklage/
+
+Game of Thrones fans now have even more reason to check out FX's Alien series.
+---------
+
+# 5 Transformers Characters Even Optimus Prime Feared
+
+Anime, Transformers, optimus prime, mecha
+
+Thu, 09 Jul 2026 20:16:13 GMT
+
+https://www.cbr.com/transformers-characters-optimus-prime-fears/
+
+In the various versions of the Transformers franchise, there are Decepticon enemies that even Autobot leader Optimus Prime is afraid to go against.
+---------
+
+# Spider-Man Legend John Romita Jr. Debuts Amazing Spider-Man #1000 Cover Art
+
+Comics, Spider-Man
+
+Thu, 09 Jul 2026 20:03:55 GMT
+
+https://www.cbr.com/john-romita-jr-amazing-spider-man-1000-cover-revealed/
+
+Spider-Man fans must have this John Romita Jr. variant cover for Amazing Spider-Man #1000.
+---------
+
+# 6 Worst 2010s R-Rated Action Movies
+
+Movie, Action, Reprisal, A Good Day to Die Hard, Hitman: Agent 47
+
+Thu, 09 Jul 2026 20:57:13 GMT
+
+https://collider.com/worst-r-rated-action-movies-2010s-ranked/
+
+From Machete Kills to A Good Day to Die Hard, these disastrous 2010s action movies wasted stars, action, and R ratings.
+---------
+
+# Star Trek Officially Returns With Expansive New Release in 2 Months
+
+TV News, Star Trek: The Original Series, Blu-ray, Star Trek, William Shatner
+
+Thu, 09 Jul 2026 20:27:20 GMT
+
+https://collider.com/star-trek-original-series-60th-anniversary-blu-ray-boxed-set-release-date/
+
+Star Trek: The Original Series celebrates its 60th anniversary with new Blu-ray and DVD releases, plus an Amazon exclusive gift set on September 8.
+---------
+
+# Ridley Scott's 2-Part Sci-Fi Hit Adds a 'Game of Thrones' Star as Filming Starts
+
+TV News, Alien: Earth, Ridley Scott, Tracey Ullman, Sam Spruell
+
+Thu, 09 Jul 2026 20:14:39 GMT
+
+https://collider.com/alien-earth-season-2-cast-jerome-flynn-tracey-ullman-filming-start/
+
+A fan-favorite Game of Thrones star has officially joined Season 2 of Ridley Scott's Alien: Earth as filming kicks off.
+---------
+
+# 6 Best Disaster Movies of the Last 20 Years, Ranked
+
+Movie, The End We Start From, Pandora, The Wave, Twisters
+
+Thu, 09 Jul 2026 19:52:14 GMT
+
+https://collider.com/best-disaster-movies-last-20-years-ranked/
+
+From Twisters to Pandora, these disaster movies prove the genre is about gripping stories, not just spectacular destruction.
+---------
+
+# 10 Greatest Fantasy Books With the Best Worldbuilding
+
+Books and Comics, Books, The Lord of the Rings: The Fellowship of the Ring, Fantasy, Game Of Thrones
+
+Thu, 09 Jul 2026 19:33:14 GMT
+
+https://collider.com/fantasy-books-best-worldbuilding-ranked/
+
+From A Clash of Kings to A Wizard of Earthsea, these fantasy books became renowned for their amazing worldbuilding, which only gets better with age.
+---------
+
+# Brad Pitt's Biggest Ever Movie Officially Beaten at the Box Office by 2026 Supernatural Sleeper Hit
+
+Movie News, Backrooms, F1
+
+Thu, 09 Jul 2026 21:00:19 GMT
+
+https://movieweb.com/backrooms-beats-brad-pitt-f1-movie-domestic-box-office/
+
+One of this summer's breakout hits just defeated Brad Pitt's high-octane sports epic.
+---------
+
+# The 10 Best 'Law & Order: SVU' Episodes of the First 10 Seasons
+
+TV Lists, Law & Order: Special Victims Unit
+
+Thu, 09 Jul 2026 21:00:19 GMT
+
+https://movieweb.com/best-law-and-order-svu-episodes-first-10-seasons/
+
+This is peak 'SVU.'
+---------
+
+# Henry Cavill's 8 Best Action Thrillers, Ranked
+
+Movie Lists, Henry Cavill
+
+Thu, 09 Jul 2026 21:00:19 GMT
+
+https://movieweb.com/henry-cavill-best-action-thrillers-ranked/
+
+From 'Man of Steel' to 'Mission: Impossible – Fallout,' these are Henry Cavill's most impressive action movies thus far.
+---------
+
+# The Crime Thriller TV Series Everyone's Been Waiting For Begins Its Countdown to 2026 Release
+
+Features, Tracker
+
+Thu, 09 Jul 2026 20:43:42 GMT
+
+https://movieweb.com/tracker-season-4-countdown/
+
+Filming for Tracker Season 4 has begun, and based on major revelations in Season 3, it's set to be a wild ride.
+---------
+
+# Jason Statham's 116-Minute Action Thriller Is Officially One of Amazon's Biggest Streaming Hits
+
+Movie News, A Working Man, Jason Statham, Hot on Streaming
+
+Thu, 09 Jul 2026 20:00:19 GMT
+
+https://movieweb.com/jason-statham-a-working-man-amazon-biggest-streaming-july-2026/
+
+While we wait for next month's new action outing, 'Mutiny,' the beloved icon keeps breaking records in the streaming-verse.
+---------
+
+# HBO's 2 Best Crime Thrillers Are Officially Crossing Over in New Season
+
+TV News, Task, Mare of Easttown
+
+Thu, 09 Jul 2026 19:36:46 GMT
+
+https://movieweb.com/hbo-mare-of-easttown-crossover-task-season-2/
+
+Brad Ingelby's acclaimed HBO TV shows now exist in a shared universe.
+---------
+
+# Russo Brothers Officially Rebooting Beloved 4-Part Family Adventure Classic
+
+Movie News, Joe Russo, Anthony Russo, Free Willy
+
+Thu, 09 Jul 2026 19:35:25 GMT
+
+https://movieweb.com/free-willy-reboot-russo-brothers/
+
+The 'Avengers' directors will be producing a new reboot of 'Free Willy.'
+---------
+
 # Dr. Abbot’s The Pitt Season 3 Story Details Teased By Shawn Hatosy
 
 TV, The Pitt, The Pitt - Season 2, Shawn Hatosy
