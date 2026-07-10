@@ -1,3 +1,256 @@
+# Netflix's Next Massive Dark Fantasy Hit Is Only 1 Week Away
+
+TV, Netflix, Masked Recs
+
+Fri, 10 Jul 2026 23:40:21 GMT
+
+https://screenrant.com/netflix-dark-fantasy-drama-the-east-palace-streaming/
+
+Kicking off a killer weekend for the middle of July, Netflix has a chilling and action-packed new dark fantasy hit on the way.
+---------
+
+# Tom Hanks’ New Replacement Actor Reportedly Revealed In Netflix’s 26-Year-Old Mystery Thriller Franchise Reboot
+
+TV, The Da Vinci Code
+
+Fri, 10 Jul 2026 23:34:56 GMT
+
+https://screenrant.com/the-secret-of-secrets-cast-negotiations-morgan-spector-rebecca-hall/
+
+An upcoming Netflix series rebooting a hit mystery thriller franchise draws close to officially finding its replacement for a key Tom Hanks character.
+---------
+
+# Apple TV Is Expanding A $2.5 Billion Franchise With A New Sci-Fi Prequel
+
+Streaming TV, Masked Recs
+
+Fri, 10 Jul 2026 23:30:22 GMT
+
+https://screenrant.com/monarch-lee-shaw-spinoff-apple-tv-godzilla-prequel/
+
+The Apple TV+ sci-fi slate continues its meteoric growth, and one upcoming TV show will once again reshape a Hollywood cinematic universe.
+---------
+
+# Prime Video’s New Fantasy Crime Adaptation Gets Exciting First Look & Review From Creator
+
+TV, Prime Video, Sex Criminals
+
+Fri, 10 Jul 2026 23:08:59 GMT
+
+https://screenrant.com/prime-video-sex-criminals-series-set-photos-creator-review/
+
+Prime Video's upcoming TV adaptation of an Eisner Award-winning comic book series gets a major update from one of its co-creators.
+---------
+
+# 10 Best Anime About Ghosts & Spirits Every Horror Fan Needs to Watch
+
+TV, Horror
+
+Fri, 10 Jul 2026 23:00:23 GMT
+
+https://screenrant.com/must-watch-anime-ghosts-spirits/
+
+Some of the best anime of all time deal with ghosts and spirits, naturally leading many fans to wonder what the best supernatural anime are.
+---------
+
+# Steam's New Free Story-Driven Game Has 100% Positive Reviews
+
+Gaming, Steam, PC
+
+Fri, 10 Jul 2026 23:00:22 GMT
+
+https://screenrant.com/steam-free-story-driven-game-july-2026/
+
+The latest free Steam game is getting rave reviews from fans, which is perfect for those looking for a great story-driven experience.
+---------
+
+# The Dragon Ball Z Scene I Loved As A Kid Is Harder To Watch Today
+
+Anime, Dragon Ball Z
+
+Fri, 10 Jul 2026 23:00:22 GMT
+
+https://screenrant.com/dragon-ball-z-future-trunks-debut-frieza-scene-harder-to-watch/
+
+Dragon Ball Z is packed with moments that resonated with teenage viewers in the 2000s, but rewatching one scene elicits a different response today.
+---------
+
+# Christopher Nolan Defends The Odyssey's Modern-Day English & Historical Inaccuracies Amid Many Controversies
+
+Movies, The Odyssey, Christopher Nolan
+
+Fri, 10 Jul 2026 22:58:16 GMT
+
+https://screenrant.com/the-odyssey-english-dialogue-historical-inaccuracy-defense-christopher-nolan/
+
+Director Christopher Nolan defends against multiple controversies behind The Odyssey, including the modern-day English and historical inaccuracies.
+---------
+
+# Marvel Exclusively Previews Punisher Running Afoul of Spider-Man's Webbing
+
+Comics, Spider-Man 4
+
+Fri, 10 Jul 2026 23:51:27 GMT
+
+https://www.cbr.com/marvel-exclusive-preview-punisher-vs-spider-man/
+
+In a CBR exclusive preview of Punisher vs. Spider-Man, see Frank Castle deal with Spider-Man's webbing in a hilarious way
+---------
+
+# 10 Classic Mecha Anime Series That Are Unwatchable Today
+
+Anime, Mobile Suit Gundam, mecha
+
+Fri, 10 Jul 2026 23:45:13 GMT
+
+https://www.cbr.com/classic-mecha-anime-series-unwatchable-today/
+
+Mecha anime once defined the world of anime, but some supposedly classic series demonstrate why the genre has fallen off over time.
+---------
+
+# Christopher Nolan Breaks Silence on The Odyssey's 'Woke' Casting Backlash
+
+Movies, The Odyssey
+
+Fri, 10 Jul 2026 23:17:43 GMT
+
+https://www.cbr.com/christopher-nolan-responds-the-odyssey-woke-backlash/
+
+Christopher Nolan breaks his silence on the "woke" casting backlash surrounding The Odyssey.
+---------
+
+# 5 Perfect Sci-Fi Anime to Binge Before the Ghost in the Shell Movie
+
+Anime, Ghost in the Shell, Cyberpunk: Edgerunners, Sci-Fi
+
+Fri, 10 Jul 2026 23:15:13 GMT
+
+https://www.cbr.com/sci-fi-anime-binge-before-ghost-in-the-shell/
+
+These series explore many of the same themes that helped make Ghost in the Shell a landmark of science fiction.
+---------
+
+# Titus Welliver & J.K. Simmons' New Crime Drama Debuts Strong on Rotten Tomatoes
+
+TV, The Westies, Rotten Tomatoes
+
+Fri, 10 Jul 2026 23:02:57 GMT
+
+https://www.cbr.com/the-westies-rotten-tomatoes-score/
+
+Bosch star Titus Welliver is joined by J.K. Simmons in the gritty new crime drama series.
+---------
+
+# July 30 Will Be a Great Day for Solo Leveling Fans
+
+Anime, Solo Leveling, Solo Leveling:ARISE
+
+Fri, 10 Jul 2026 23:00:14 GMT
+
+https://www.cbr.com/solo-leveling-arise-shadow-monarch-new-trailer-release-date/
+
+Solo Leveling releases a new teaser trailer for an upcoming release that introduces the true Shadow Monarch just before the anime does.
+---------
+
+# Tom Hardy's 10/10 Gangster Show Is Returning as 2026's Undisputed Crime TV Event
+
+TV, MobLand
+
+Fri, 10 Jul 2026 23:00:14 GMT
+
+https://www.cbr.com/tom-hardy-mobland-season-2-september-18-2026-release-date/
+
+Despite rumors that its leading actor was fired, Paramount+'s gangster series, starring Tom Hardy and directed by Guy Ritchie, will dominate 2026.
+---------
+
+# Hulu Is Saying Goodbye to Terrible War of the Worlds Adaptation
+
+Movies, War of The Worlds, Hulu, War of the Worlds : The Attack
+
+Fri, 10 Jul 2026 23:00:14 GMT
+
+https://www.cbr.com/hulu-war-of-the-worlds-adaptation-leaving-july-2026/
+
+Hulu is losing one of the worst-received modern War of the Worlds adaptations.
+---------
+
+# The 10 Most Successful Movies of 2026 So Far
+
+Movies, Project Hail Mary
+
+Fri, 10 Jul 2026 23:00:14 GMT
+
+https://www.cbr.com/most-successful-movies-2026-so-far-list/
+
+The highest-grossing movies of the year have involved beavers, race cars, and lots of aliens.
+---------
+
+# Netflix's Most-Missed Comfort Show Just Found a New Streaming Home
+
+TV, Gilmore Girls, The Ghost in the Shell, Prime Video, Life on Mars
+
+Fri, 10 Jul 2026 23:43:15 GMT
+
+https://collider.com/prime-video-shows-binge-weekend-july-10-2026/
+
+The Ghost in the Shell, Life on Mars, and Gilmore Girls make up our list of the best Prime Video shows to stream the weekend of July 10th, 2026.
+---------
+
+# 10 Best TV Detectives of the Last 5 Years
+
+TV, Mystery, Law & Order: Special Victims Unit, High Potential, True Detective
+
+Fri, 10 Jul 2026 23:02:14 GMT
+
+https://collider.com/tv-detectives-best-last-5-years-ranked/
+
+High Potential's Morgan Gillory, Poker Face's Charlie Cale, and the titular Will Trent have become the new faces of TV sleuths over the last 5 years.
+---------
+
+# Hulu Officially Kills Ambitious Sci-Fi Reboot After Years of Delays
+
+TV News, The Hitchhiker's Guide to the Galaxy, Carlton Cuse, Hulu, Sci-Fi
+
+Fri, 10 Jul 2026 23:00:14 GMT
+
+https://collider.com/hulu-sci-fi-reboot-hitchikers-guide-to-the-galaxy-cancelled/
+
+Hulu's highly anticipated series adaptation of Douglas Adams' beloved sci-fi novel The Hitchhiker's Guide to the Galaxy has been cancelled.
+---------
+
+# Christopher Nolan Reveals If He'll Remake This '80s Cult-Classic Action Movie
+
+Movie News, Christopher Nolan, Blue Thunder
+
+Fri, 10 Jul 2026 23:43:33 GMT
+
+https://movieweb.com/christopher-nolan-blue-thunder-reboot/
+
+The filmmaker spoke about the rampant rumors surrounding his next film.
+---------
+
+# Apple TV Officially Scraps Ridley Scott's 8-Part Crime Adaptation
+
+TV News, Apple TV, Ridley Scott, Dope Thief
+
+Fri, 10 Jul 2026 23:13:13 GMT
+
+https://movieweb.com/dope-thief-ridley-scott-season-2-canceled/
+
+One producer on 'Dope Thief' confirms there won't be a Season 2 of the series on Apple TV.
+---------
+
+# Netflix Finds Tom Hanks Replacement for Its Historical Thriller Reboot
+
+TV News, The Da Vinci Code, Tom Hanks
+
+Fri, 10 Jul 2026 23:08:27 GMT
+
+https://movieweb.com/the-secret-of-secrets-morgan-spector-netflix/
+
+A franchise previously led by Tom Hanks will be revived with a new star on Netflix for a fresh generation of fans.
+---------
+
 # 3 Best Movies To Watch On Prime Video This Weekend (July 11-12)
 
 Movies, Prime Video, Recommendation
