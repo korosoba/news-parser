@@ -1,3 +1,322 @@
+# Timothy Olyphant's New Drama Series Based On Bestselling Novel Is Officially #1 On Peacock's Streaming Charts
+
+TV, Masked Recs
+
+Fri, 10 Jul 2026 20:45:42 GMT
+
+https://screenrant.com/timothy-olyphant-the-five-star-weekend-peacock-july-2026-streaming-charts/
+
+Timothy Olyphant's new show is already a #1 hit, beating out reality TV juggernauts, thanks partly to his latest reunion with a popular star.
+---------
+
+# Disney’s Live-Action Moana Doesn’t Have A Post-Credits Scene, But There’s Another Reason To Stay
+
+New Movies, Moana
+
+Fri, 10 Jul 2026 20:45:20 GMT
+
+https://screenrant.com/disney-moana-live-action-movie-post-credits-scene/
+
+Although it may not have a post-credits scene, the live-action Moana offers a special surprise for viewers feeling nostalgic for the original
+---------
+
+# Why Netflix's New 8-Part Crime Series Is An International Streaming Hit
+
+Streaming TV, Masked Recs
+
+Fri, 10 Jul 2026 20:45:20 GMT
+
+https://screenrant.com/netflix-i-will-find-you-streaming-hit-explained/
+
+Netflix’s new crime drama based on a bestselling novel by Harlan Coben became an international streaming hit when it debuted on the platform.
+---------
+
+# David Boreanaz's The Rockford Files Season 1 Episode Count Officially Confirmed
+
+TV, The Rockford Files, The Rockford Files - Season 1
+
+Fri, 10 Jul 2026 20:37:18 GMT
+
+https://screenrant.com/david-boreanaz-the-rockford-files-nbc-reboot-episode-count-confirmed/
+
+Exclusive: The episode count for season 1 of David Boreanaz's Rockford Files reboot has officially been confirmed ahead of its premiere.
+---------
+
+# Alicent's Fourth Child Explained: Who Daeron Targaryen Is & Where He's Been In House Of The Dragon
+
+TV, House of the Dragon, Game of Thrones
+
+Fri, 10 Jul 2026 20:30:21 GMT
+
+https://screenrant.com/daeron-targaryen-alicent-son-explained-house-of-the-dragon/
+
+House of the Dragon season 3 finally introduces Daeron Targaryen, Alicent and Viserys' fourth child, but his role in the story is looking complicated.
+---------
+
+# Why James From Minions & Monsters Is The Best Character In The Minions Series
+
+Movies, Minions & Monsters, Minions
+
+Fri, 10 Jul 2026 20:30:20 GMT
+
+https://screenrant.com/minions-best-character-james-minions-monsters/
+
+The Minions are well-known for being Illumination's biggest goofballs, but their best Minions character, James, shows just how compelling they can be.
+---------
+
+# 10 Most Epic Death Scenes In Adventure Movies
+
+Movies, Adventure, Odyssey, Fantasy
+
+Fri, 10 Jul 2026 20:27:31 GMT
+
+https://screenrant.com/most-epic-death-scenes-adventure-movies/
+
+From Braveheart to Gladiator, these adventure movie death scenes turned sacrifice and final stands into cinematic legend.
+---------
+
+# Ridley Scott's Dope Thief Season 2 Fate Sealed By Apple TV
+
+TV, Dope Thief, Apple TV, Ridley Scott
+
+Fri, 10 Jul 2026 20:18:49 GMT
+
+https://screenrant.com/ridley-scott-dope-thief-season-2-apple-tv-fate-cancelled/
+
+Exclusive: Executive producer David W. Zucker confirms the season 2 fate of Ridley Scott's Dope Thief one year after the Apple TV show's premiere.
+---------
+
+# 24 Years Later, Fantasy's 2 Biggest Franchises Are Going Head-To-Head Again
+
+Streaming TV, Masked Recs
+
+Fri, 10 Jul 2026 20:15:21 GMT
+
+https://screenrant.com/harry-potter-lord-of-the-rings-rivalry-return-tv/
+
+Two of the most influential franchises in the fantasy genre will go head-to-head again after 24 years, but this time, they will do so on TV.
+---------
+
+# 15 Best Quotes From Shoresy
+
+Streaming TV, Shoresy
+
+Fri, 10 Jul 2026 20:00:22 GMT
+
+https://screenrant.com/best-shoresy-quotes/
+
+The Letterkenny spinoff Shoresy is just as loaded with incredible one-liners as Jared Keeso's original comedy, and might even surpass it at times.
+---------
+
+# Boston Blue Star Donnie Wahlberg Shares Exciting Season 2 Update
+
+TV, Boston Blue
+
+Fri, 10 Jul 2026 20:35:25 GMT
+
+https://www.cbr.com/boston-blue-season-2-starts-filming/
+
+Donnie Wahlberg drops an update on the anticipated second season of the Blue Bloods offshoot.
+---------
+
+# 5 Masterpiece Fantasy Book Series With the Best Villains
+
+Movies, Fantasy, books, a song of ice and fire
+
+Fri, 10 Jul 2026 20:30:13 GMT
+
+https://www.cbr.com/perfect-fantasy-book-series-with-best-villains-list/
+
+Interesting villains can be a defining mark of what makes a fantasy book series a masterpiece, but these five franchises stand apart from the rest.
+---------
+
+# Netflix's 9-Part Thriller Based on a Bestselling Book Series Is Already a Modern Classic
+
+TV, Jo Nesbø's Detective Hole, Netflix, Thriller
+
+Fri, 10 Jul 2026 20:30:13 GMT
+
+https://www.cbr.com/netflix-detective-hole-crime-thriller-modern-classic-show/
+
+Netflix's recent book adaptation of a best-selling crime series is already redefining the crime thriller genre on the streaming platform.
+---------
+
+# Dragon Ball Finally Brings Back Super Saiyan Gohan With Rare 32-Year-Old Design
+
+Anime, Dragon Ball, Dragon Ball Z
+
+Fri, 10 Jul 2026 20:30:13 GMT
+
+https://www.cbr.com/dragon-ball-toriyama-archives-super-saiyan-gohan-green-gi/
+
+Dragon Ball's latest Toriyama Archives release highlights a rarely-seen SSJ Gohan design from the manga that the DBZ anime never included.
+---------
+
+# 10 Rarest One Piece Cards, With Prices
+
+Games, One Piece, TCG, Tabletop
+
+Fri, 10 Jul 2026 20:15:13 GMT
+
+https://www.cbr.com/rarest-one-piece-tcg-cards-with-prices/
+
+The One Piece Trading Card Game has picked up in interest over a short time, causing some of the rarest cards to demand costs in the five figures.
+---------
+
+# Fan-Favorite Disney Ride Returning After Devastating Closure
+
+Comics, The Haunted Mansion, Disney
+
+Fri, 10 Jul 2026 20:01:13 GMT
+
+https://www.cbr.com/the-haunted-mansion-stray-spirits-release-date-confirmed/
+
+One of the most beloved Disney attractions of all time is getting a chilling new title after the original's shocking closure.
+---------
+
+# Netflix's Little House on the Prairie Officially Divides Critics & Audiences After 'Woke' Complaints
+
+TV, Little House on the Prairie
+
+Fri, 10 Jul 2026 19:45:59 GMT
+
+https://www.cbr.com/netflix-little-house-on-the-prairie-rotten-tomatoes-score/
+
+The Little House on the Prairie reboot gets its debut Rotten Tomatoes score.
+---------
+
+# In Just 1 Day, Paramount+’s 96-Minute Crime Thriller With 100% RT Is Officially No. 1 in the US
+
+Movies, Wardriver
+
+Fri, 10 Jul 2026 19:33:26 GMT
+
+https://www.cbr.com/wardriver-crime-thriller-paramount-plus-success-july-2026/
+
+The latest pulse-pounding crime-thriller from Paramount+ is officially the number one movie in the United States barely 24 hours after its debut.
+---------
+
+# Netflix Confirms Jacob Black Replacement in New Twilight Series
+
+TV News, Twilight, The Twilight Saga: Eclipse, The Twilight Saga: New Moon, The Twilight Saga: Breaking Dawn - Part 1
+
+Fri, 10 Jul 2026 20:03:54 GMT
+
+https://collider.com/netflix-twilight-spin-off-midnight-sun-jacob-black-casting-begins/
+
+Netflix's upcoming Twilight spin-off series, Midnight Sun, has officially begun the search for Taylor Lautner's replacement as Jacob.
+---------
+
+# John Wick Director's New Crime Thriller Officially Hits Major Release Date Delay
+
+Movie News, How to Rob a Bank, David Leitch, Nicholas Hoult, Zoë Kravitz
+
+Fri, 10 Jul 2026 19:58:32 GMT
+
+https://collider.com/david-leitch-nicholas-hoult-how-to-rob-a-bank-delayed-november-12-2026/
+
+David Leitch and Nicholas Hoult's How to Rob a Bank has been delayed, now releasing much closer to Dune: Part 3 and Avengers: Doomsday.
+---------
+
+# Prime Video's Most Underrated Sci-Fi Series Was Cancelled Before Its Best Chapter
+
+TV Features, Stargate: Atlantis, Stargate SG-1, Jason Momoa, Sci-Fi
+
+Fri, 10 Jul 2026 19:55:14 GMT
+
+https://collider.com/stargate-atlantis-extinction-prime-video-sci-fi-cancellation/
+
+Stargate Atlantis' potential sixth season and the planned direct-to-video film Extinction unfortunately never saw the light of day.
+---------
+
+# 'Blue Bloods’ Officially Returns With New Spin-Off Episodes This October
+
+TV News, Boston Blue, CBS, Donnie Wahlberg, Blue Bloods
+
+Fri, 10 Jul 2026 19:30:46 GMT
+
+https://collider.com/boston-blue-season-2-cbs-release-date-blue-bloods-spin-off/
+
+CBS has revealed the premiere date for Boston Blue Season 2; the Blue Bloods spin-off stars Donnie Wahlberg and Sonequa Martin-Green.
+---------
+
+# All 14 Assassin's Creed Games, Ranked
+
+Gaming, Video Game, Assassin's Creed Odyssey, Assassin's Creed, Assassin's Creed IV: Black Flag
+
+Fri, 10 Jul 2026 19:29:14 GMT
+
+https://collider.com/assassins-creed-games-mainline-ranked/
+
+From the 2007 original to the recently released Assassin's Creed: Shadows, this is the definitive ranking of every mainline Assassin's Creed game.
+---------
+
+# 25 Best Songs of All Time
+
+Music Features, Prince, David Bowie, The Beach Boys, The Beatles
+
+Fri, 10 Jul 2026 19:22:13 GMT
+
+https://collider.com/best-songs-all-time-ranked/
+
+The best songs ever made include untouchable classics like "Purple Rain" by Prince, "Across the Universe" by The Beatles, and ABBA's "Dancing Queen."
+---------
+
+# 'Evil Dead Burn's Unexpected Post-Credits Scenes Are Worth Sticking Around For
+
+Features, Evil Dead Burn, Evil Dead, Horror
+
+Fri, 10 Jul 2026 20:00:18 GMT
+
+https://movieweb.com/evil-dead-burn-post-credits-deadite-ellie/
+
+Those who brave the ultra-violent 'Evil Dead Burn' are treated to two post-credits scenes, and one has huge implications for the franchise as a whole.
+---------
+
+# "John Wick Meets Jason Bourne" Action Thriller Is Officially One of Amazon's Biggest Streaming Hits
+
+Movie News, Prime Video, Action, Thriller, Agent Zeta
+
+Fri, 10 Jul 2026 20:00:18 GMT
+
+https://movieweb.com/prime-video-agent-zeta-most-watched-action-stream-july-2026/
+
+The 134-minute action epic has been likened to 'Jack Ryan,' 'The Terminal List,' and even Jason Statham.
+---------
+
+# 'John Wick' Director's Heist Action Thriller Officially Gets New Release Date
+
+Movie News, How to Rob a Bank
+
+Fri, 10 Jul 2026 19:57:41 GMT
+
+https://movieweb.com/how-to-rob-bank-release-date/
+
+'How to Rob a Bank' has moved from Labor Day weekend to November.
+---------
+
+# Prime Video Officially Confirms the Fate of Its 2-Part Historical Epic
+
+TV News, House of David, Prime Video
+
+Fri, 10 Jul 2026 19:48:18 GMT
+
+https://movieweb.com/prime-video-house-of-david-renewed-season-3/
+
+Prime Video is about to complete its flagship show's three-season arc.
+---------
+
+# Cult-Classic '70s Sci-Fi Movie Getting All-New Release
+
+Movie News, Attack of the Killer Tomatoes!
+
+Fri, 10 Jul 2026 19:41:46 GMT
+
+https://movieweb.com/attack-of-the-killer-tomatoes-sequel-organic-intelligence/
+
+The sequel 'Attack of the Killer Tomatoes: Organic Intelligence' will land in select theaters on Aug. 7.
+---------
+
 # 13 Years Later, Rick And Morty Has Made An Art Of Ripping Off Marvel
 
 Comics, Rick and Morty, Fantastic Four
