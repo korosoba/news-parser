@@ -1,3 +1,278 @@
+# 3 Best Movies To Watch On Prime Video This Weekend (July 11-12)
+
+Movies, Prime Video, Recommendation
+
+Fri, 10 Jul 2026 22:50:32 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-july-11/
+
+The best movies on Prime Video this weekend are a timely star-studded adventure, an A24 thriller, and the best sci-fi movie of 2026 thus far.
+---------
+
+# 45 Years Later, Escape From New York Predicted A Future We're Still Living In
+
+Classic Movies, Escape From New York
+
+Fri, 10 Jul 2026 22:31:21 GMT
+
+https://screenrant.com/escape-from-new-york-45th-anniversary/
+
+It has been 45 years since John Carpenter's Escape from New York hit theaters, and it was strangely accurate to the way the world has ended up.
+---------
+
+# 64 Years Later, Marvel Comics' Best Line Is The Greatest Quote In Superhero History
+
+Marvel Comics, Marvel, Spider-Man, Superhero
+
+Fri, 10 Jul 2026 22:31:21 GMT
+
+https://screenrant.com/marvel-comics-with-great-power-best-superhero-quote/
+
+Superhero comics are not the always most obvious place to find a profound quote, but Marvel gave superhero fans one that is timeless wisdom.
+---------
+
+# Superman Lore Just Changed Forever in the Darkest Way
+
+Comics, Superman
+
+Fri, 10 Jul 2026 22:31:21 GMT
+
+https://screenrant.com/superman-project-firestorm-dc-lore/
+
+A dark project.
+---------
+
+# The 10 Best Horror TV Shows Of All Time, Ranked
+
+TV, Horror, Ranking
+
+Fri, 10 Jul 2026 22:25:22 GMT
+
+https://screenrant.com/best-horror-shows-ever-made-ranked/
+
+From groundbreaking anthologies to spine-tingling miniseries and everything in between, the best horror TV shows of all time are guaranteed to shock.
+---------
+
+# Invincible Season 6 Gets Exciting New Prime Video Return Update & Renewal Reaction From JK Simmons
+
+TV, Invincible, Prime Video
+
+Fri, 10 Jul 2026 22:23:50 GMT
+
+https://screenrant.com/invincible-season-6-production-start-renewal-reaction-jk-simmons/
+
+Exclusive: Invincible star JK Simmons shares an exciting update on his season 6 return and the renewal news, as the series runs for two more seasons.
+---------
+
+# New Movie Remake Of 55-Year-Old Epic Classic Is Searching For Home After Lingering For 6 Years
+
+Movies, Fiddler on the Roof
+
+Fri, 10 Jul 2026 22:11:37 GMT
+
+https://screenrant.com/fiddler-on-the-roof-remake-update-thomas-kail/
+
+After In the Heights and Hamilton, Thomas Kail had his sights set on another musical, but six years later, his new update isn’t a hopeful sign.
+---------
+
+# Titus Welliver’s New Gritty Crime Series Debuts To Solid Rotten Tomatoes Score
+
+TV, Masked Recs
+
+Fri, 10 Jul 2026 22:06:12 GMT
+
+https://screenrant.com/the-westies-rotten-tomatoes-score/
+
+Titus Welliver's new show is off to a rocking start, with critics praising the actor's latest venture into a crime drama that's unlike Bosch.
+---------
+
+# HBO's 6-Part Anti-Game Of Thrones Is Already Aging Well
+
+TV, Masked Recs
+
+Fri, 10 Jul 2026 22:01:21 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-anti-game-of-thrones-aging-well/
+
+The Game of Thrones formula feels a little played out in 2026, but one HBO spinoff stands out for its fresh and subversive take on the franchise.
+---------
+
+# Marvel's Spider-Man Officially Returns With New Release July 28
+
+Gaming, Marvel's Spider-Man, Marvel's Spider-Man 2, Spider-Man, Marvel
+
+Fri, 10 Jul 2026 22:00:20 GMT
+
+https://screenrant.com/marvels-spider-man-july-2026-return-brand-new-day/
+
+Marvel's Spider-Man is getting a brand-new release on July 28 that fans are absolutely going to want to check out.
+---------
+
+# Netflix Finds Tom Hanks Replacement for New Series From Da Vinci Code Author
+
+TV
+
+Fri, 10 Jul 2026 22:36:54 GMT
+
+https://www.cbr.com/netflix-series-robert-langdon-morgan-spector/
+
+The role made famous by Tom Hanks in The Da Vinci Code will be played by a new actor in the Netflix series.
+---------
+
+# 5 Greatest Metroidvania Masterpieces of the Last Decade
+
+Games, Animal Well, metroidvania, Hollow Knight: Voidheart Edition
+
+Fri, 10 Jul 2026 22:15:14 GMT
+
+https://www.cbr.com/best-metroidvania-games-last-decade/
+
+The Metroidvania formula is simple enough, but there's nothing easy about the best games in the genre.
+---------
+
+# Prime Video's Sleeper Hit Historical Drama Officially Renewed for Season 3
+
+TV, House of David
+
+Fri, 10 Jul 2026 22:12:31 GMT
+
+https://www.cbr.com/house-of-david-renewed-season-3-prime-video/
+
+The hit series is officially returning to Prime Video for a third season.
+---------
+
+# Matthew McConaughey's Divisive Submarine War Movie Is Streaming on Netflix at the Right Time
+
+Movies, U-571
+
+Fri, 10 Jul 2026 22:00:13 GMT
+
+https://www.cbr.com/matthew-mcconaughey-u571-sci-fi-streaming-netflix-july-2026/
+
+One of the most divisive World War II films of the century is finally making its way to a brand-new streaming home on a major platform.
+---------
+
+# Invincible Creator Slams Marvel and DC Over Huge Fan Concern
+
+Comics, image comics, Marvel, Marvel Comics, Invincible, Invincible (TV Show), Invincible Presents: Atom Eve, DC Comics, DCU, MCU
+
+Fri, 10 Jul 2026 22:00:13 GMT
+
+https://www.cbr.com/invincible-creator-robert-kirkman-slams-marvel-and-dc-over-huge-fan-concern/
+
+Marvel and DC Comics won't be happy about Robert Kirkman's latest comments.
+---------
+
+# 10 Greatest Sci-Fi TV Masterpieces of the 21st Century, Ranked
+
+TV, Sci-Fi, Black Mirror, Severance, Battlestar Galactica
+
+Fri, 10 Jul 2026 22:44:14 GMT
+
+https://collider.com/best-sci-fi-shows-modern-masterpieces-ranked/
+
+Dive into the best sci-fi TV shows of the 21st century that offer exceptional storytelling and visuals, from Black Mirror to Battlestar Galactica.
+---------
+
+# Taylor Sheridan’s ‘Sicario’ Has Nothing on Apple TV’s Criminally Overlooked 10-Part Thriller
+
+TV Features, Taylor Sheridan, Echo 3, Apple TV, Sicario
+
+Fri, 10 Jul 2026 22:34:39 GMT
+
+https://collider.com/taylor-sheridan-sicario-replacement-series-apple-tv-echo-3/
+
+Taylor Sheridan might have risen to prominence with Sicario, yet Apple TV's Echo 3 outstrips it in grittiness.
+---------
+
+# Netflix Officially Recasts One of Tom Hanks' Most Iconic Roles
+
+Movie News, The Da Vinci Code, Thriller, Netflix, Tom Hanks
+
+Fri, 10 Jul 2026 22:28:52 GMT
+
+https://collider.com/netflix-secret-of-secrets-series-replace-tom-hanks-cast-morgan-spector/
+
+Netflix's reboot of the Robert Langdon novels has tapped The Gilded Age's Morgan Spector to replace Tom Hanks.
+---------
+
+# The 14 Best Opening Scenes in Film History
+
+Movie, No Country for Old Men, The Hateful Eight, Taxi Driver, Field of Dreams
+
+Fri, 10 Jul 2026 22:19:14 GMT
+
+https://collider.com/best-opening-scenes-film-history/
+
+Movies like The Hateful Eight and Field of Dreams hook an audience in. Here are the 14 best opening scenes in movie history.
+---------
+
+# After 10 Years, a Major Free Streaming Favorite Loses a Key Feature
+
+TV News, Roku, Streaming Service, Prime Video, Spotify
+
+Fri, 10 Jul 2026 22:00:13 GMT
+
+https://collider.com/roku-removes-customization-feature-homepage/
+
+Roku just triggered a fierce user revolt, proving some platform changes are far riskier than they seem.
+---------
+
+# 10 Best Metroidvania Video Games of All Time
+
+Video Games
+
+Fri, 10 Jul 2026 21:59:13 GMT
+
+https://collider.com/metroidvania-video-games-best-ranked/
+
+Star Wars Jedi: Fallen Order, Metroid Prime, and Castlevania: Symphony of the Night are all among the best Metroidvania games of all time.
+---------
+
+# New 'Avengers: Doomsday' Synopsis Officially Reveals the Team's Lineup
+
+Movie News, Avengers: Doomsday, MCU
+
+Fri, 10 Jul 2026 22:06:42 GMT
+
+https://movieweb.com/avengers-doomsday-roster-synopsis-revealed/
+
+Ahead of San Diego Comic-Con, a display in Shanghai, China, highlights the large roster of heroes in 'Avengers: Doomsday.'
+---------
+
+# When Will 'Moana' 2026 Release on Disney+?
+
+Features, Moana
+
+Fri, 10 Jul 2026 22:00:18 GMT
+
+https://movieweb.com/moana-2026-disney-plus-release-date/
+
+10 years later, 'Moana' has been remade into a live-action movie. The new movie is now in theaters, but here's when you can watch it on Disney+.
+---------
+
+# Harlan Coben's New 8-Part Thriller Hit Faces Unexpected Setback on Streaming
+
+TV News, I Will Find You, Netflix, Hot on Streaming, Worst Neighbor Ever
+
+Fri, 10 Jul 2026 22:00:18 GMT
+
+https://movieweb.com/i-will-find-you-beaten-worst-neighbor-ever-stream-netflix-july-2026/
+
+Harlan Coben's latest Netflix hit suffers a major blow after racing to the top of the streaming charts.
+---------
+
+# James Bond Reboot Confirms First Details About Who Will Play the Next 007
+
+Movie News, James Bond
+
+Fri, 10 Jul 2026 21:57:32 GMT
+
+https://movieweb.com/james-bond-casting-first-details/
+
+New details about who will play the next James Bond are now available from one of the most knowledgeable sources on the subject.
+---------
+
 # Fan-Favorite Targaryen's A Knight Of The Seven Kingdoms Season 2 Return Chances Addressed By Star
 
 TV, A Knight Of The Seven Kingdoms, Game of Thrones
