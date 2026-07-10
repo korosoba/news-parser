@@ -1,3 +1,388 @@
+# DC Unveils Batman Villain's Greatest Redesign Of All Time, Bar None
+
+DC Comics, Batman
+
+Fri, 10 Jul 2026 03:22:22 GMT
+
+https://screenrant.com/absolute-batman-new-villain-redesign-calendar-man/
+
+DC's Absolute Batman introduces a new set of drastic redesigns for three villains that get transformed into nightmarish body-horror creatures.
+---------
+
+# 5 Cyberpunk Sci-Fi Books Better Than William Gibson’s Neuromancer
+
+Streaming TV, Neuromancer, Altered Carbon
+
+Fri, 10 Jul 2026 03:16:43 GMT
+
+https://screenrant.com/books-better-william-gibson-neuromancer-cyberpunk-sci-fi/
+
+William Gibson’s Neuromancer is the most seminal cyberpunk book out there, but a few other novels from the same sci-fi subgenre are arguably better.
+---------
+
+# Patrick Stewart Addresses Avengers: Doomsday Retirement Rumors
+
+Movies, Avengers: Doomsday, Patrick Stewart
+
+Fri, 10 Jul 2026 03:02:41 GMT
+
+https://screenrant.com/patrick-stewart-avengers-doomsday-retirement-rumors/
+
+Patrick Stewart finally addresses the rumors that have been surfacing on the internet regarding his potential retirement after Avengers: Doomsday.
+---------
+
+# PlayStation 3 Classics Return As Sony Backs Away From Physical Media
+
+Gaming, PlayStation, PlayStation 3, PlayStation 5, PC
+
+Fri, 10 Jul 2026 03:00:22 GMT
+
+https://screenrant.com/playstation-3-classics-recomps/
+
+Iconic PlayStation 3 games are making a significant return just as Sony decides to move away from physical releases altogether.
+---------
+
+# 22 Years Later, Itachi's Best Naruto Line Is Still One Of The Greatest Villain Quotes In Anime History
+
+Classic TV, Naruto
+
+Fri, 10 Jul 2026 02:30:22 GMT
+
+https://screenrant.com/itachi-best-naruto-quote-greatest-anime-villain-line/
+
+An anime is defined by its villains, and in the case of Naruto, Itachi's words and actions serve as a dark, twisted, and complicated reminder.
+---------
+
+# Big Brother 28: Week 1 Head of Household (HOH) Results
+
+Reality TV, Big Brother
+
+Fri, 10 Jul 2026 02:15:21 GMT
+
+https://screenrant.com/big-brother-28-week-1-head-of-household-spoilers/
+
+Big Brother 28 kicks off with a shocking twist as Survivor winner Dee Valladares is revealed to be part of the competition and HOH via spoilers.
+---------
+
+# 10 Neo-Noir TV Shows That Are Perfect From Start To Finish
+
+Streaming TV, Film Noir
+
+Fri, 10 Jul 2026 02:00:33 GMT
+
+https://screenrant.com/neo-noir-tv-shows-perfect-start-to-finish/
+
+Film noir is one of the most visually distinctive genres, and after a period in which it fell out of fashion, TV is picking it up with neo-noir.
+---------
+
+# Elden Ring Movie Star Reveals The Shocking Way He Landed His Role
+
+Movies, Elden Ring
+
+Fri, 10 Jul 2026 01:50:49 GMT
+
+https://screenrant.com/elden-ring-movie-how-peter-serafinowicz-role-a24/
+
+Star of the upcoming live-action film adaptation of Elden Ring revealed the surprising way he landed his role in the highly antcipated A24 film.
+---------
+
+# Netflix’s 2-Part Sci-Fi Masterpiece Is So Good, Fans Still Hope It’ll Return Despite Cancellation
+
+Classic TV, Masked Recs
+
+Fri, 10 Jul 2026 01:46:21 GMT
+
+https://screenrant.com/the-oa-netflix-canceled-sci-fi-return-hope/
+
+Netflix is the streaming home of a 2-season sci-fi masterpiece that is so good that its fans expect it to return six years after its cancellation.
+---------
+
+# 28 Years Later, Sisko's Greatest Quote Proves He's Always Been Star Trek's Best Captain
+
+TV, Star Trek: Deep Space Nine, Star Trek
+
+Fri, 10 Jul 2026 01:31:23 GMT
+
+https://screenrant.com/star-trek-captain-sisko-greatest-quote/
+
+Star Trek is full of great leaders making defining moments for themselves, but Benjamin Sisko proved his wartime worthiness like nobody else could.
+---------
+
+# 10 Sitcoms With Zero Weak Seasons
+
+TV, Sitcoms, Schitt's Creek, Ted Lasso, Parks and Recreation
+
+Fri, 10 Jul 2026 03:30:12 GMT
+
+https://www.cbr.com/sitcoms-with-no-weak-seasons-list/
+
+While some sitcoms are hit-or-miss, these are nearly perfect, with no weak seasons throughout their entire runs.
+---------
+
+# 10 Marvel and DC Characters Who Should Star in Reality TV Shows
+
+Comics, Marvel, DC Comics, comics
+
+Fri, 10 Jul 2026 03:30:12 GMT
+
+https://www.cbr.com/marvel-and-dc-characters-who-should-be-on-reality-tv/
+
+These Marvel and DC characters would thrive inside reality television.
+---------
+
+# 10 Pokémon TCG Cards Worth More Than a PS5 Right Now
+
+Games, Pokemon, Pokemon Trading Card Game, Pokemon TCG
+
+Fri, 10 Jul 2026 03:15:13 GMT
+
+https://www.cbr.com/pokemon-tcg-expensive-cards-worth-more-than-ps5/
+
+These modern Pokémon cards are so expensive that they have a higher value than a brand-new PlayStation 5.
+---------
+
+# Avatar: Fire and Ash Is Star Wars Meets The Lord of the Rings
+
+Movies, Avatar, Avatar: Fire and Ash
+
+Fri, 10 Jul 2026 03:15:13 GMT
+
+https://www.cbr.com/avatar-fire-and-ash-disney-star-wars-meets-lotr/
+
+Avatar: Fire and Ash expands the prodigious scope of James Cameron's vision
+---------
+
+# Transformers G1 Repugnus Gets Exclusive New Megatooth Figure
+
+Anime, Transformers, merchandise, toys, action figures
+
+Fri, 10 Jul 2026 03:00:13 GMT
+
+https://www.cbr.com/transformers-g1-repugnus-megatooth-figure/
+
+The latest Transformers fan convention has an exclusion action figure based on one of the most horrifying and obscure Generation 1 Autobots.
+---------
+
+# 5 Classic Cartoon Network Anime Series That Are Unwatchable Today
+
+Anime, toonami, SD Gundam Force, Cartoon Network
+
+Fri, 10 Jul 2026 02:46:13 GMT
+
+https://www.cbr.com/cartoon-network-anime-unwatchable-today/
+
+Cartoon Network's Toonami was the home of many groundbreaking anime in the West, but it also featured its share of duds that are hard to revisit.
+---------
+
+# 6 Fantasy Books That Rival Harry Potter
+
+Movies, Harry Potter
+
+Fri, 10 Jul 2026 02:30:13 GMT
+
+https://www.cbr.com/fantasy-book-better-than-harry-potter-list/
+
+The Harry Potter franchise is beloved worldwide, but there are quite a few fantasy books that are much better.
+---------
+
+# J.K. Simmons Laments Warner Bros. Canceling 'Unreleasable' DC Superhero Movie
+
+Movies, Batgirl
+
+Fri, 10 Jul 2026 02:25:04 GMT
+
+https://www.cbr.com/jk-simmons-talks-batgirl-fate/
+
+Actor J.K. Simmons calls out Warner Bros. and DC Studios for putting the kibosh on the superhero movie.
+---------
+
+# 10 Perfect Open-World RPGs That Are 10/10, No Notes
+
+Games, Role Playing Game, Video Games
+
+Fri, 10 Jul 2026 02:15:13 GMT
+
+https://www.cbr.com/best-open-world-rpgs-flawless-start-to-finish/
+
+Elden Ring and Cyberpunk 2077 exemplify what the open-world RPG genre can offer at its best.
+---------
+
+# 10 Greatest 'Die Hard' Clone Movies Of the Last 30 Years, Ranked
+
+Movies, Die Hard
+
+Fri, 10 Jul 2026 02:00:24 GMT
+
+https://www.cbr.com/best-die-hard-movie-clones-last-30-years-list/
+
+Die Hard might be one of the best action movies of the last few decades, but plenty of copycats have managed to stand toe-to-toe with the hit.
+---------
+
+# '9-1-1' Is Officially Changing Buck for the Better
+
+TV Features, 9-1-1, ABC, Oliver Stark, Ryan Guzman
+
+Fri, 10 Jul 2026 03:04:14 GMT
+
+https://collider.com/9-1-1-season-9-buck-story-change-foster-father-theo/
+
+9-1-1 made Buck into a foster father to Theo in the Season 9 finale, marking a new chapter of maturity and responsibility for the character.
+---------
+
+# The Biggest Historical Series in Video Games Is Officially Back to Its Roots
+
+Gaming, Video Game, History, Assassin's Creed IV: Black Flag, Action
+
+Fri, 10 Jul 2026 03:03:15 GMT
+
+https://collider.com/assassins-creed-black-flag-resynced-franchise-formula-no-rpg/
+
+With Assassin's Creed Black Flag Resynced, the iconic historical gaming series drops the RPG elements and goes back to what made it great originally.
+---------
+
+# Ahead of 'Dune: Part Three', Denis Villeneuve's 10/10 Sci-Fi Sets New Release
+
+Movie News, Arrival, Amy Adams, Denis Villeneuve, Dune: Part Three
+
+Fri, 10 Jul 2026 02:00:24 GMT
+
+https://collider.com/denis-villeneuve-sci-fi-arrival-10th-anniversary-blu-ray-steelbook-september-8-2026/
+
+Denis Villeneuve's best sci-fi movie, Arrival, is officially returning with a new release for its 10th anniversary.
+---------
+
+# Taylor Sheridan’s 3-Part Western Smash Hit Continues To Impress on Paramount+
+
+TV News, Landman, Taylor Sheridan, Emmy Awards, Paramount Plus
+
+Fri, 10 Jul 2026 01:45:15 GMT
+
+https://collider.com/taylor-sheridan-landman-streaming-success-paramount-plus-july-2026/
+
+Following the Yellowstone creator's Emmy snubs, one of Taylor Sheridan's most popular shows is once again dominating Paramount+.
+---------
+
+# Prime Video's Superhero Emmys Snub Still Broke Streaming Records With 57M Viewers
+
+TV Features, The Boys, Eric Kripke, Prime Video, Emmy Awards
+
+Fri, 10 Jul 2026 01:36:14 GMT
+
+https://collider.com/the-boys-season-5-emmys-snub-57-million-viewers-streaming/
+
+Despite impressive viewing figures and record-breaking engagement, The Boys' final season was largely snubbed by the 2026 Emmys.
+---------
+
+# Netflix Officially Reveals Why It Cancelled One of the Biggest Sci-Fi Hits of 2026
+
+TV News, The Boroughs, Netflix, Sci-Fi, Duffer Brothers
+
+Fri, 10 Jul 2026 01:30:14 GMT
+
+https://collider.com/the-boroughs-cancellation-netflix-response/
+
+Netflix boss discusses the decision to cancel The Boroughs last month despite strong viewership. Get all the details here.
+---------
+
+# One of Anime’s Biggest Hits Is Climbing the Streaming Charts After Its Movie Reveal
+
+TV News, Solo Leveling, Crunchyroll, Anime, Fantasy
+
+Fri, 10 Jul 2026 01:15:14 GMT
+
+https://collider.com/sci-fi-anime-solo-leveling-streaming-success-crunchyroll-july-2026/
+
+The Solo Leveling anime, based on the popular Webtoon novel, sees a resurgence in popularity as fans await the upcoming movie adaptation.
+---------
+
+# Taylor Sheridan's Empire Is Under Attack from Paramount's 10/10 Spy Thriller
+
+TV News, The Agency, Michael Fassbender, Richard Gere, Jeffrey Wright
+
+Fri, 10 Jul 2026 01:00:13 GMT
+
+https://collider.com/the-agency-spy-thriller-versus-taylor-sheridan-dutton-ranch-paramount-plus/
+
+The Paramount+ spy series The Agency, starring Michael Fassbender in the lead role, is proving stiff competition for Taylor Sheridan's Dutton Ranch.
+---------
+
+# Taylor Sheridan’s 3-Part War Thriller Officially Returns in 1 Month
+
+TV News, Lioness, Taylor Sheridan, Paramount Plus, Zoe Saldana
+
+Fri, 10 Jul 2026 00:45:14 GMT
+
+https://collider.com/taylor-sheridan-lioness-season-3-release-date-paramount-plus-august-2-2026/
+
+The next big show from Taylor Sheridan is officially coming to Paramount Plus in less than one month, with Lioness Season 3 releasing very soon.
+---------
+
+# 'The Walking Dead's Best Spin-Off Officially Breaks a Colossal Franchise Tradition
+
+TV News, The Walking Dead, The Walking Dead: Daryl Dixon, San Diego Comic-Con, Norman Reedus
+
+Fri, 10 Jul 2026 00:29:36 GMT
+
+https://collider.com/the-walking-dead-daryl-dixon-final-season-4-skipping-sdcc-2026/
+
+Despite an incoming fourth and final season, The Walking Dead: Daryl Dixon is breaking tradition in a disappointing way.
+---------
+
+# 'Alien: Earth' Casting Update Reveals an Official 'Game of Thrones' Reunion
+
+TV News, Alien: Earth, Game Of Thrones
+
+Fri, 10 Jul 2026 02:46:23 GMT
+
+https://movieweb.com/alien-earth-season-2-casting-jerome-flynn/
+
+Two actors with history in 'Game of Thrones' will now come back together in new roles for the next chapter in the 'Alien' franchise.
+---------
+
+# The 12 Best Erotic Movies of the 21st Century (So Far)
+
+Movie Lists, Babygirl
+
+Fri, 10 Jul 2026 02:00:31 GMT
+
+https://movieweb.com/best-erotic-movies-21st-century/
+
+Often misunderstood and maligned, erotic film has delivered some of the best cinematic experiences of the 21st century. These films prove it.
+---------
+
+# Every Movie George Lucas Actually Directed, Ranked
+
+Movie Lists, George Lucas
+
+Fri, 10 Jul 2026 01:00:19 GMT
+
+https://movieweb.com/george-lucas-directed-movies-ranked/
+
+It has been 21 years since George Lucas directed a feature film, but which of them is his best?
+---------
+
+# HBO Reportedly Cancels Its Planned Reboot of '80s Dystopian Sci-Fi
+
+TV News, V For Vendetta, V for Vendetta
+
+Fri, 10 Jul 2026 00:48:26 GMT
+
+https://movieweb.com/v-for-vendetta-hbo-series-canceled/
+
+HBO has passed on Pete Jackson's 'V for Vendetta' adaptation, which was described as a period-piece reimagining.
+---------
+
+# FX's Beloved 12-Part Thriller Series Return Officially Announced
+
+TV News, American Horror Story
+
+Thu, 09 Jul 2026 23:59:54 GMT
+
+https://movieweb.com/american-horror-story-season-13-premiere-confirmed/
+
+'American Horror Story: 13' is confirmed to premiere on FX on Sep. 24.
+---------
+
 # Paramount+ Has Officially Cheapened Criminal Minds' Best Asset
 
 Network TV, Criminal Minds
