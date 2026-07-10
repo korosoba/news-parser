@@ -1,3 +1,366 @@
+# Baldur's Gate 3: The Necromancy Of Thay Officially Releases On July 21
+
+Gaming, Baldur's Gate 3
+
+Fri, 10 Jul 2026 13:02:39 GMT
+
+https://screenrant.com/baldurs-gate-3-necromancy-thay-official-release-july-21/
+
+Baldur's Gate 3 is officially back thanks to Baldur's Gate 3: The Necromancy Of Thay, which releases later this month on July 21, 2026.
+---------
+
+# Marvel Rivals: Season 9 Buffs & Nerfs Explained
+
+Gaming, Marvel Rivals, PC, Live Service Games
+
+Fri, 10 Jul 2026 13:00:20 GMT
+
+https://screenrant.com/marvel-rivals-season-9-all-buffs-nerfs-characters/
+
+Season 9 is set to be the most game-changing event in Marvel Rivals since launch, drastically altering how characters work in huge balance changes.
+---------
+
+# Tom Hanks' 4 WW2 Series Ranked
+
+Classic TV, Tom Hanks
+
+Fri, 10 Jul 2026 13:00:20 GMT
+
+https://screenrant.com/tom-hanks-world-war-2-shows-ranked/
+
+Tom Hanks has spent the 21st century investigating World War II and producing some of the greatest television series centered on the conflict.
+---------
+
+# 14 Years Later, Harvey's Best Line Is Still The Greatest Quote In Suits History
+
+Classic TV, Suits
+
+Fri, 10 Jul 2026 12:45:21 GMT
+
+https://screenrant.com/suits-best-quote-harvey-specter/
+
+Harvey Specter remains one of the most iconic TV lawyers of all time, but his best line perfectly describes Suits— and the show's entire legacy.
+---------
+
+# Peaky Blinders Meets The Departed In J.K. Simmons' New 8-Part Gangster Thriller
+
+Streaming TV, Masked Recs
+
+Fri, 10 Jul 2026 12:34:21 GMT
+
+https://screenrant.com/the-westies-new-gangster-thriller-series-watch/
+
+Fans of shows like Peaky Blinders and movies like The Departed have something to look forward to this weekend as J.K. Simmons' new series debuts.
+---------
+
+# Shameless: Lip's Greatest Love Interests, Ranked
+
+Classic TV, Shameless
+
+Fri, 10 Jul 2026 12:30:21 GMT
+
+https://screenrant.com/shameless-lip-greatest-lovers-ranked/
+
+Lip Gallagher has had his fair share of lovers over the course of Shameless, but today we're counting down the best of them.
+---------
+
+# 4 Years Later, God Of War's Best Line Is The Most Badass Quote In Gaming History
+
+Gaming, God of War
+
+Fri, 10 Jul 2026 12:30:19 GMT
+
+https://screenrant.com/god-of-war-ragnarok-kratos-greatest-quote/
+
+God of War is full of incredibly quotable moments, but one line in particular stands above the rest for many.
+---------
+
+# One Of The Greatest Westerns Of All Time Is Still Breaking New Ground After 50 Years
+
+Streaming TV, Masked Recs
+
+Fri, 10 Jul 2026 12:30:19 GMT
+
+https://screenrant.com/netflix-little-house-on-the-prairie-remake-break-new-ground/
+
+After 50 years, Netflix's Little House on the Prairie adaptation breathes new life into the Western genre by embracing diverse perspectives & story.
+---------
+
+# Rogue's New Redesign Is Her Best Since 1991
+
+Comics, X-Men
+
+Fri, 10 Jul 2026 12:30:19 GMT
+
+https://screenrant.com/x-men-rogue-new-costume-redesign-rambit/
+
+Including a dark new superpower.
+---------
+
+# The Big Bang Theory’s New Release Ends An 8-Year Franchise Drought Before It Even Debuts
+
+Network TV, The Big Bang Theory, Stuart Fails to Save the Universe
+
+Fri, 10 Jul 2026 12:15:20 GMT
+
+https://screenrant.com/stuart-fails-to-save-the-universe-sdcc-panel-drought-end/
+
+In 2026, The Big Bang Theory's store is officially continuing. However, before the sequel even releases, it has already ended an 8-year drought
+---------
+
+# Steam Officially Drops 4 9/10 Free Games This July, No Strings Attached
+
+Games, Steam
+
+Fri, 10 Jul 2026 13:01:13 GMT
+
+https://www.cbr.com/steam-official-free-games-july-2026/
+
+Steam is officially offering four incredible games for completely free this July.
+---------
+
+# The Lord of the Rings' 10 Most Important Life Lessons
+
+Movies, The Lord of the Rings, Fantasy
+
+Fri, 10 Jul 2026 13:01:13 GMT
+
+https://www.cbr.com/best-life-lessons-lord-of-the-rings-taught-fans-list/
+
+J. R. R. Tolkien's The Lord of the Rings novel and Peter Jackson's film adaptations have taught generations of fans some unforgettable life lessons.
+---------
+
+# Game of Thrones Star's 8-Part Sci-Fi Series Is TV's Smartest Forgotten Space Drama
+
+TV, Outcasts, Game Of Thrones, BBC One
+
+Fri, 10 Jul 2026 13:01:13 GMT
+
+https://www.cbr.com/game-of-thrones-star-outcasts-smart-forgotten-sci-fi-space-drama/
+
+Back in 2011, an eight-episode British series became one of the smartest sci-fi dramas on TV, but it never got the follow-up it deserved.
+---------
+
+# 10 Hilarious Far Side Comics About Mobsters
+
+Comics, The Far Side
+
+Fri, 10 Jul 2026 13:01:13 GMT
+
+https://www.cbr.com/funniest-far-side-comics-about-mobsters/
+
+Gary Larson, creator of The Far Side, is known for making just about anything funny in his iconic strip, even supposedly "dangerous" mafia mobsters.
+---------
+
+# Pokémon Officially Returns to Kanto With New Deluxe Collector's Release Coming August 25
+
+Games, Pokemon
+
+Fri, 10 Jul 2026 12:36:12 GMT
+
+https://www.cbr.com/pokemon-new-official-kanto-release-anniversary-august-25/
+
+Pokémon is putting out a new anniversary release this August, and it's finally taking fans back to Kanto.
+---------
+
+# Marvel Studios Confirms SDCC 2026 Plans Ahead of Avengers: Doomsday
+
+Movies, marvel studios, Avengers: Doomsday, San Diego Comic-Con
+
+Fri, 10 Jul 2026 12:00:12 GMT
+
+https://www.cbr.com/marvel-studios-confirms-sdcc-2026-plans-avengers-doomsday/
+
+With just a few months before Avengers: Doomsday hits theaters, Marvel Studios officially confirms that it is returning to San Diego Comic Con.
+---------
+
+# Scott Snyder Confirms Greg Capullo's Absolute Batman Debut
+
+Comics, Absolute Batman
+
+Fri, 10 Jul 2026 12:00:12 GMT
+
+https://www.cbr.com/scott-snyder-confirms-greg-capullos-absolute-batman-debut/
+
+The Absolute Batman creator's frequent collaborator is set to enter the universe.
+---------
+
+# Why the Midnight Universe Could Be Marvel's Next Big Franchise
+
+Comics, Marvel
+
+Fri, 10 Jul 2026 11:00:34 GMT
+
+https://www.cbr.com/midnight-universe-could-be-marvels-next-big-franchise/
+
+Marvel is launching its Midnight Universe and it could mark a new era for the massive publishing house.
+---------
+
+# Netflix's New Western Drama Is the Binge-Worthy Show You Need This Weekend
+
+TV, The Tick, Little House on the Prairie, Lord of the Flies, Netflix
+
+Fri, 10 Jul 2026 12:41:13 GMT
+
+https://collider.com/netflix-shows-binge-weekend-july-10/
+
+Little House on the Prairie, The Tick, and Lord of the Flies make up our list of the best Netflix shows to binge the weekend of July 10th, 2026.
+---------
+
+# 10 Classic Thriller Books You Must Read in 2026
+
+Books and Comics, Books, The Talented Mr. Ripley, Thriller, The Woman in White
+
+Fri, 10 Jul 2026 12:23:13 GMT
+
+https://collider.com/classic-thriller-books-must-read-2026/
+
+From The Spy Who Came in From the Cold to Strangers on the Train, these are the literary thriller classics that are an absolute must-read in 2026.
+---------
+
+# ‘Cape Fear’ Cast Teases a Shocking Finale After Episode 7’s Brutal Twist
+
+Exclusives, Cape Fear, Apple TV, Patrick Wilson, Javier Bardem, Amy Adams
+
+Fri, 10 Jul 2026 12:05:13 GMT
+
+https://collider.com/cape-fear-episode-7-twist-javier-bardem-amy-adams-patrick-wilson/
+
+Javier Bardem, Amy Adams and Patrick Wilson discuss Cape Fear Episode 7, Max Cady’s revenge, Anna’s secrets and the final episodes.
+---------
+
+# Henry Cavill’s Netflix Mystery Loses Top Spot to a 10/10 Western
+
+Movie News, Old Henry, Henry Cavill, Enola Holmes 3, Netflix
+
+Fri, 10 Jul 2026 12:00:13 GMT
+
+https://collider.com/henry-cavill-enola-holmes-3-overtaken-by-old-henry-streaming-success-netflix-july-2026/
+
+The critically acclaimed Western Old Henry has taken the domestic Netflix crown, overtaking Henry Cavill's Enola Holmes 3.
+---------
+
+# 10 Worst Psychological Thrillers of the Last 25 Years
+
+Movie, Psychological Thriller, Dark Crimes, Slender Man, They/Them
+
+Fri, 10 Jul 2026 11:57:13 GMT
+
+https://collider.com/worst-psychological-thrillers-last-25-years-ranked/
+
+Critically derided flops like The Fanatic, Slender Man, and Hurry Up Tomorrow are all among the worst psychological thrillers of the last 25 years.
+---------
+
+# 11 Best Children's Books Masterpieces of All Time, Ranked
+
+Books and Comics, Books, The Hobbit, Family, Charlotte’s Web
+
+Fri, 10 Jul 2026 11:45:13 GMT
+
+https://collider.com/best-childrens-books-all-time-ranked/
+
+Harry Potter and the Philosopher's Stone, Charlotte's Web, and Alice's Adventures in Wonderland are all among the very best children's books ever.
+---------
+
+# 10 Greatest Examples of Video Games as Art
+
+Gaming, Video Game, Concrete Genie, Stray, Shadow of the Colossus
+
+Fri, 10 Jul 2026 11:36:13 GMT
+
+https://collider.com/best-video-games-as-art-examples/
+
+From Shadow of the Colossus to Stray, these are the best and most iconic examples of "video games as art," proving the medium has much more to offer.
+---------
+
+# The Beatles Song Parents Wanted Banned Became a Rock Masterpiece
+
+Music Features, The Beatles, Paul McCartney, John Lennon, Rock, Music
+
+Fri, 10 Jul 2026 11:30:13 GMT
+
+https://collider.com/the-beatles-a-day-in-the-life-banned-song/
+
+One of The Beatles' greatest songs was also one of their most controversial, with lyrics that pushed boundaries and upset listeners.
+---------
+
+# Disney’s 3-Part Fantasy Saga Is Quietly Crushing the Competition on Streaming
+
+TV News, Percy Jackson & the Olympians, Percy Jackson & The Olympians, Disney+, Fantasy
+
+Fri, 10 Jul 2026 11:30:13 GMT
+
+https://collider.com/disney-plus-percy-jackson-and-the-olympians-streaming-success-july-2026/
+
+Percy Jackson and the Olympians is climbing the streaming charts as fans revisit Seasons 1 and 2 ahead of the show's third chapter in 2026.
+---------
+
+# 10 Best Video Games To Play While Waiting for 'GTA 6'
+
+TV, Video Game, Grand Theft Auto, Cyberpunk 2077, Red Dead Redemption 2
+
+Fri, 10 Jul 2026 11:22:13 GMT
+
+https://collider.com/games-like-gta-6/
+
+Discover the best video games to enjoy before the highly anticipated release of Grand Theft Auto 6, featuring a mix of genres and styles.
+---------
+
+# Jon Bernthal's 2-Part Action Thriller Is Officially a Global Streaming Smash Hit
+
+Movie News, Jon Bernthal, Action, Thriller, The Accountant, The Accountant 2
+
+Fri, 10 Jul 2026 13:00:18 GMT
+
+https://movieweb.com/the-accountant-2-bernthal-affleck-action-stream-july-2026/
+
+'The Punisher' star once again proves his action hero worth in the long-awaited sequel.
+---------
+
+# Sheldon's Most Emotional Quote Is the Best in 'The Big Bang Theory' History
+
+Features, The Big Bang Theory, Comedy, Jim Parsons, Young Sheldon
+
+Fri, 10 Jul 2026 13:00:18 GMT
+
+https://movieweb.com/big-bang-theory-sheldon-quote-greatest-history/
+
+Sheldon Cooper often voiced whatever came to mind, but his most emotional line of dialogue is undoubtedly also 'The Big Bang Theory's greatest quote.
+---------
+
+# Apple TV Puts a Twist on 'Silo's Oldest Mystery
+
+Features, Silo, Apple TV
+
+Fri, 10 Jul 2026 12:01:18 GMT
+
+https://movieweb.com/silo-season-3-safe-outside-twist/
+
+Just as I thought 'Silo' had run out of ways to reinvent itself, it does something like this. Read on for more.
+---------
+
+# Forget 'Marshals,' Taylor Sheridan's 2-Part Masterpiece Makes Streaming Comeback
+
+TV News, Landman, Paramount Plus, Hot on Streaming, Taylor Sheridan, Marshals
+
+Fri, 10 Jul 2026 11:00:38 GMT
+
+https://movieweb.com/landman-taylor-sheridan-streaming-success-paramount-july-2026/
+
+Taylor Sheridan's hit series (which is better than 'Yellowstone,' is only getting more popular before the new season.
+---------
+
+# 6 Greatest Fantasy Miniseries You Can Watch This Weekend
+
+TV Lists, Fantasy
+
+Fri, 10 Jul 2026 11:00:38 GMT
+
+https://movieweb.com/best-fantasy-miniseries/
+
+When you are looking for a little escapism over the weekend, these fantasy miniseries are worth your time.
+---------
+
 # The Boys: Trigger Warning Kicks Off A Controversial New Era For The Show
 
 Gaming, The Boys
