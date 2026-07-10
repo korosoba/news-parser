@@ -1,3 +1,421 @@
+# Netflix's R-Rated Series Ends On High Note With Rare Rotten Tomatoes Streak
+
+TV, Masked Recs
+
+Fri, 10 Jul 2026 17:40:26 GMT
+
+https://screenrant.com/netflix-survival-of-the-thickest-season-3-rotten-tomatoes-score/
+
+Netflix's returning series ends on an impressively positive note, as it manages to hit a relatively rare achievement on Rotten Tomatoes.
+---------
+
+# House Of David Season 3's Fate Officially Decided By Prime Video
+
+TV, House of David
+
+Fri, 10 Jul 2026 17:30:26 GMT
+
+https://screenrant.com/house-of-david-season-3-renewal-prime-video/
+
+After House of David season 2 ended last November, Prime Video has finally announced whether the biblical drama will receive another season.
+---------
+
+# Kirk's Final Star Trek Story Is Here, And It Breaks The Captain’s One Sacred Rule
+
+Comics, Star Trek
+
+Fri, 10 Jul 2026 17:30:21 GMT
+
+https://screenrant.com/star-trek-kirk-final-story-break-rule-no-win-scenario/
+
+The end?
+---------
+
+# 6 New Upcoming Sci-Fi TV Shows Based on Books You Need To Watch
+
+Streaming TV
+
+Fri, 10 Jul 2026 17:30:21 GMT
+
+https://screenrant.com/upcoming-sci-fi-shows-based-on-books-must-watch/
+
+The science fiction genre will be expanding with some of the most must-watch television shows that will be based on incredible literary works.
+---------
+
+# 3 Best Movies To Watch On Disney+ This Weekend (July 11-12)
+
+Movies, Disney+, Recommendation
+
+Fri, 10 Jul 2026 17:21:21 GMT
+
+https://screenrant.com/best-disney-plus-movies-watch-weekend-july-11/
+
+The best movies to watch on Disney+ this weekend range from a Disney animated classic to a superhero franchise hit to an immersive original sci-fi.
+---------
+
+# The Boys EP’s New Netflix Western Series Is A Fantastic Follow-Up To Prime Video’s Hit Series
+
+TV, Little House on the Prairie
+
+Fri, 10 Jul 2026 17:16:03 GMT
+
+https://screenrant.com/little-house-on-the-prairie-the-boys-comparison-rebecca-sonnenshine/
+
+EXCLUSIVE: This new Netflix series is the perfect follow-up to The Boys, as the executive producer reveals more about the new Western.
+---------
+
+# 10 Greatest K-Dramas About Food & Cooking, Ranked
+
+TV, K-Drama
+
+Fri, 10 Jul 2026 17:15:21 GMT
+
+https://screenrant.com/best-k-dramas-about-food-cooking-chefs/
+
+From the friendships formed in Let's Eat to the rekindled passion for cooking in Eccentric! Chef Moon, certain K-dramas use food for storytelling.
+---------
+
+# Harry Potter's Official 2026 Return Is Breaking The Lore In A Huge Way
+
+Gaming
+
+Fri, 10 Jul 2026 17:00:21 GMT
+
+https://screenrant.com/harry-potter-defenders-of-hogwarts-lore-change/
+
+The next major 2026 Harry Potter project looks incredible for fans, but it is absolutely breaking the lore in a pretty significant way.
+---------
+
+# Cult Hannibal Adaptation That Inspired CBS’ 24-Year Crime Franchise Is Officially Returning With Exciting New Release
+
+Movies, Manhunter, Hannibal
+
+Fri, 10 Jul 2026 16:50:45 GMT
+
+https://screenrant.com/hannibal-manhunter-movie-4k-release-csi-inspiration/
+
+Thomas Harris’ Hannibal books have been adapted into several movies, but one of them is getting a theatrical re-release to celebrate 40 years.
+---------
+
+# 30 Best Romance Manga Of The Last Decade
+
+Anime, Manga, Romance
+
+Fri, 10 Jul 2026 17:30:13 GMT
+
+https://www.cbr.com/best-romance-manga-of-the-decade/
+
+Manga readers love a great romantic tale, and from HoriMya to Orange, there have been plenty of options to choose from over the last ten years.
+---------
+
+# Evangelion Officially Returns With Ride On Summer '26
+
+Games, Neon Genesis Evangelion
+
+Fri, 10 Jul 2026 17:29:13 GMT
+
+https://www.cbr.com/evangelion-official-return-ride-on-summer-26/
+
+Neon Genesis Evangelion fans can finally take on one of the biggest franchise experiences of all time, and it is absolutely massive.
+---------
+
+# After FOX's Roku Acquisition, Netflix Eyes Letterboxd Purchase
+
+TV, Netflix
+
+Fri, 10 Jul 2026 17:28:40 GMT
+
+https://www.cbr.com/netflix-eyes-letterboxd-purchase/
+
+After reports of Netflix being interested in Lionsgate, the streaming giant is eyeing a different platform.
+---------
+
+# The Naruto Live-Action Movie Officially Begins Global Casting for Naruto, Sakura and Sasuke
+
+Movies, Naruto, Naruto: Shippuden, Boruto: Naruto Next Generations
+
+Fri, 10 Jul 2026 17:16:14 GMT
+
+https://www.cbr.com/naruto-live-action-movie-global-casting/
+
+After 11 years, the live-action Naruto movie has officially begun a global casting search for the actors who will play Naruto, Sakura and Sasuke.
+---------
+
+# 10 Greatest Anime Quotes That Offer Surprisingly Good Life Advice
+
+Anime, Cowboy Bebop, Gintama
+
+Fri, 10 Jul 2026 17:16:14 GMT
+
+https://www.cbr.com/best-anime-quotes-good-life-advice/
+
+Quotes from anime series like Gintama and Cowboy Bebop can teach viewers valuable lessons about life.
+---------
+
+# Jason Statham's $89M Sleeper Hit A Working Man Returns To Prime Video
+
+Movies, A Working Man, Prime Video, Jason Statham
+
+Fri, 10 Jul 2026 17:00:13 GMT
+
+https://www.cbr.com/jason-statham-a-working-man-action-prime-video-success-july-2026/
+
+Jason Statham’s action hit is finding new life on streaming after a modest theatrical run.
+---------
+
+# Evangelion Revives Its Forgotten Official Sequel After 13 Years
+
+Anime, Neon Genesis Evangelion
+
+Fri, 10 Jul 2026 17:00:13 GMT
+
+https://www.cbr.com/evangelion-anima-audible-release/
+
+A new version Evangelion ANIMA is being released 13 years later, allowing fans to re-experience the official alternate take on the anime's ending.
+---------
+
+# Star Trek Just Fixed One of The Next Generation’s Most Hated Characters
+
+Comics, Star Trek
+
+Fri, 10 Jul 2026 16:58:45 GMT
+
+https://www.cbr.com/star-trek-next-generation-alexander-rozhenko-redemption-idw-comics/
+
+One of The Next Generation's most frustrating characters gets a chance at redemption in Star Trek's upcoming series.
+---------
+
+# A Classic '90s Anime Is Making Its Comeback Through Kickstarter
+
+Anime, Tenchi Muyo, kickstarter
+
+Fri, 10 Jul 2026 16:15:12 GMT
+
+https://www.cbr.com/tenchi-muyo-anime-return-kickstarter-crowd-funding/
+
+An anime beloved by older millennials everywhere is close to getting a new series, but it's up to fans to see it done!
+---------
+
+# Lestat & Louis Have Finally Found Common Ground in New Clip From Penultimate The Vampire Lestat Episode
+
+CBR Exclusives, The Vampire Lestat
+
+Fri, 10 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/lestat-louis-the-vampire-lestat-montreal-clip/
+
+Exclusive: The show is already nearing its finale, and CBR has a clip from its second-to-last episode.
+---------
+
+# Guillermo del Toro's 72% Alien Invasion Movie is a 10/10 Streaming Favourite
+
+Movie News, Guillermo del Toro, Charlie Hunnam, Idris Elba, Pacific Rim
+
+Fri, 10 Jul 2026 17:40:13 GMT
+
+https://collider.com/pacific-rim-streaming-top-10-vudu-guillermo-del-toro/
+
+Guillermo del Toro's sci-fi action film Pacific Rim rises to the 8th spot on Vudu's top 10 list.
+---------
+
+# NBC Quietly Cancelled Its Best New Series After Burying It on TV’s Worst Night
+
+TV Features, NBC, Sitcom, Series, Taran Killam
+
+Fri, 10 Jul 2026 17:28:14 GMT
+
+https://collider.com/nbc-stumble-cancelled-friday-night-worst-time-slot/
+
+NBC’s Stumble earned strong reviews, but a Friday night time slot may have doomed the comedy before it found an audience.
+---------
+
+# George R.R. Martin's Newest 'Game of Thrones' Spin-Off Premieres in Less Than 2 Weeks
+
+Books and Comics News, Game Of Thrones, A Knight Of The Seven Kingdoms, House of the Dragon, George R.R. Martin
+
+Fri, 10 Jul 2026 17:27:46 GMT
+
+https://collider.com/game-of-thrones-the-mad-king-stage-play-premiere/
+
+Game of Thrones: The Mad King begins its world premiere at the Royal Shakespeare Theatre on July 20, bringing Westeros’ Mad King to the stage.
+---------
+
+# Taylor Sheridan’s Most Brutal Crime Thriller Is Officially Taking Over the World
+
+Movie News, Marshals, Sicario, Taylor Sheridan, Crime
+
+Fri, 10 Jul 2026 17:20:14 GMT
+
+https://collider.com/sicario-streaming-success-taylor-sheridan-denis-villeneuve-july-2026/
+
+Taylor Sheridan's crime masterpiece, Sicario, starring Emily Blunt and Josh Brolin, is seeing a resurgence on a surprise streaming platform.
+---------
+
+# 2026's Most Anticipated Sci-Fi Sequel Officially Makes a Major Change
+
+Movie News, Dune, Dune: Part Two, Dune: Part Three, Sci-Fi
+
+Fri, 10 Jul 2026 17:17:50 GMT
+
+https://collider.com/dune-part-3-denis-villeneuve-thriller-more-intense/
+
+Denis Villeneuve teased Dune: Part 3 as a more intense, emotional thriller with a different rhythm from the first two movies.
+---------
+
+# 2026’s $400M Horror Phenomenon Lands on Streaming Next Week
+
+Movie News, Obsession, Curry Barker, Inde Navarrette, Peacock
+
+Fri, 10 Jul 2026 17:07:26 GMT
+
+https://collider.com/obsession-peacock-streaming-release-date-july-2026/
+
+Obsession officially sets streaming release date, bringing the record-breaking 2026 horror hit home after its massive box office run.
+---------
+
+# Ridley Scott's 10/10 Horror Masterpiece Officially Returns for Season 4
+
+TV News, The Terror, Ridley Scott, Horror, Sci-Fi
+
+Fri, 10 Jul 2026 17:06:35 GMT
+
+https://collider.com/ridley-scott-horror-series-the-terror-season-4-renewed/
+
+Ridley Scott's hit horror series is officially returning for Season 4 after shattering records on Rotten Tomatoes.
+---------
+
+# 8 Most Perfect Netflix Romance Movies of the Last 10 Years
+
+Movie, Netflix, Romance, Voicemails for Isabelle, People We Meet on Vacation
+
+Fri, 10 Jul 2026 17:04:14 GMT
+
+https://collider.com/most-perfect-netflix-romance-movies-last-10-years-ranked/
+
+People We Meet on Vacation, Voicemails for Isabelle, The Half of It, and Set It Up are among Netflix's best romance movies of the last decade.
+---------
+
+# ‘Five-Star Weekend’s Most Shocking Secret Finally Explodes in Episode 6
+
+TV, The Five-Star Weekend, Gemma Chan, Chloe Sevigny, D'Arcy Carden
+
+Fri, 10 Jul 2026 17:02:14 GMT
+
+https://collider.com/five-star-weekend-peacock-chloe-sevigny-gemma-chan-darcy-carden/
+
+D’Arcy Carden, Chloe Sevigny, and Gemma Chan discuss Five-Star Weekend’s biggest moments and guest stars, including a League of Their Own reunion.
+---------
+
+# The Greatest Sitcom Ever Made Is Officially Taking Over Netflix
+
+TV News, Friends, Netflix, Sitcom, Comedy
+
+Fri, 10 Jul 2026 17:00:13 GMT
+
+https://collider.com/friends-netflix-global-top-10-streaming-return/
+
+Friends is back on Netflix’s global Top 10 chart after returning to the streamer, proving the classic NBC sitcom still has major streaming power.
+---------
+
+# One of the Biggest Movies of the Year Officially Shifts Digital Streaming Date
+
+Movie News, Backrooms, Kane Parsons
+
+Fri, 10 Jul 2026 17:19:30 GMT
+
+https://movieweb.com/backrooms-digital-release-date-july/
+
+'Backrooms' is reaching digital a little later than expected, with A24 now pointing to July 14, 2026.
+---------
+
+# 9 Best Disaster Documentaries on Netflix
+
+TV Lists, Documentary, Netflix
+
+Fri, 10 Jul 2026 17:00:20 GMT
+
+https://movieweb.com/best-disaster-documentaries-on-netflix/
+
+Netflix has become known for its entertaining documentaries, and when it comes to chronicling disasters, these 9 are the best.
+---------
+
+# Netflix Scores Big With New 8-Part Western Remake That's Taking Over Streaming
+
+TV News, Little House on the Prairie, Hot on Streaming, Western, Netflix
+
+Fri, 10 Jul 2026 17:00:19 GMT
+
+https://movieweb.com/little-house-on-the-prairie-western-netflix-streaming-july-2026/
+
+After just 24 hours, Netflix has found their newest smash hit series by way of their adaptation of Laura Ingalls Wilder's popular novels.
+---------
+
+# This Netflix Thriller Miniseries Will Go Down as a Modern Action Classic
+
+Features, Bodyguard, Thriller, Action, Richard Madden, Netflix
+
+Fri, 10 Jul 2026 17:00:19 GMT
+
+https://movieweb.com/bodyguard-netflix-thriller-miniseries-action-classic/
+
+The BBC production 'Bodyguard' became an instant hit before and after it arrived on Netflix, proving itself to be an action-packed modern classic.
+---------
+
+# Netflix Looks To Buy Major Social Network With Over 30M Users
+
+Movie News, Netflix, Letterboxd Unboxd
+
+Fri, 10 Jul 2026 16:42:34 GMT
+
+https://movieweb.com/netflix-buying-letterboxd-paramount/
+
+The mega streamer is gearing up for another acquisition to boost its user base.
+---------
+
+# MCU Icon Chris Evans Joins Fan Expo Boston 2026 Ahead of 'Avengers: Doomsday'
+
+Movie News, Chris Evans, MCU, Captain America, Avengers: Doomsday
+
+Fri, 10 Jul 2026 16:22:43 GMT
+
+https://movieweb.com/chris-evans-joins-fan-expo-boston-2026/
+
+The actor, who is set to reprise the role of Steve Rogers this year, returns home for a "historic moment" for FAN EXPO Boston.
+---------
+
+# One of the Biggest Streaming Platforms Could Be Free Soon
+
+TV News, Disney+
+
+Fri, 10 Jul 2026 16:09:43 GMT
+
+https://movieweb.com/disney-plus-free-tier-streaming-shows/
+
+One of the key players in the streaming wars could soon pivot to free content.
+---------
+
+# 10 K-Dramas Like Vincenzo to Watch Next
+
+TV Lists, K-Drama
+
+Fri, 10 Jul 2026 16:00:21 GMT
+
+https://movieweb.com/k-dramas-like-vincenzo/
+
+Fans of Vincenzo, we have the perfect K-dramas for you to watch next.
+---------
+
+# 30 Years Later, a Beloved Sci-Fi Cult Classic Is Getting a New Release
+
+Movie News, Mars Attacks!, Sci-Fi
+
+Fri, 10 Jul 2026 15:55:51 GMT
+
+https://movieweb.com/mars-attacks-4k-blu-ray-release/
+
+Tim Burton's sci-fi cult classic 'Mars Attacks!' is coming to 4K Ultra HD Blu-ray for the first time in celebration of the film's 30th anniversary.
+---------
+
 # Netflix's 8-Part Supernatural Series With Rare Perfect Rotten Tomatoes Score Is One Of Its Best
 
 TV, Masked Recs
