@@ -1,3 +1,322 @@
+# 13 Years Later, Rick And Morty Has Made An Art Of Ripping Off Marvel
+
+Comics, Rick and Morty, Fantastic Four
+
+Fri, 10 Jul 2026 19:14:51 GMT
+
+https://screenrant.com/rick-morty-new-fantastic-four-comparison/
+
+Rick and Morty truly loves Marvel.
+---------
+
+# Titus Welliver Details Tragic New Anti-Harry Bosch Detective Role In Gritty Crime Series The Westies
+
+TV, The Westies, The Westies - Season 1, Titus Welliver
+
+Fri, 10 Jul 2026 19:14:22 GMT
+
+https://screenrant.com/titus-welliver-the-westies-keenan-backstory-eamon-dynamic-tease/
+
+EXCLUSIVE: With days to go until The Westies premieres on MGM+, Titus Welliver reveals how different his new character is from Harry Bosch.
+---------
+
+# 7-Season NCIS Star Addresses Franchise Return As Multiple Vets Set New Stories
+
+TV, NCIS: New Orleans, NCIS
+
+Fri, 10 Jul 2026 19:09:36 GMT
+
+https://screenrant.com/ncis-franchise-return-loretta-wade-cch-pounder-response/
+
+EXCLUSIVE: A veteran of NCIS, and of television as a whole, candidly responds to whether a return to the CBS franchise is in the works.
+---------
+
+# Evil Dead Burn’s "Horrible" Extended Dishwasher Scene & The Worst Scenes To Film Detailed By Cast & Director
+
+Movies, Evil Dead Burn, Evil Dead, Horror
+
+Fri, 10 Jul 2026 19:00:57 GMT
+
+https://screenrant.com/evil-dead-burn-extended-dishwasher-scene-filming-challenges-director-cast/
+
+Co-writer/director Sébastien Vaniček and the Evil Dead Burn cast talk the horror franchise's return and the "horrible" extended dishwasher scene.
+---------
+
+# In 3 Weeks, Spider-Man Meets 2 Of Marvel's Biggest Heroes For The First Time
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Fri, 10 Jul 2026 19:00:20 GMT
+
+https://screenrant.com/spider-man-brand-new-day-new-marvel-hero-crossovers/
+
+Spider-Man is on the cusp of meeting two of Marvel's biggest and most popular heroes for the first time, thanks to Spider-Man: Brand New Day.
+---------
+
+# 36 Years Later, Lisa’s Funniest Line Still Defines The Simpsons
+
+TV, The Simpsons
+
+Fri, 10 Jul 2026 19:00:20 GMT
+
+https://screenrant.com/the-simpsons-lisa-funniest-line-defines-show/
+
+Homer and Bart might get most of the laughs in The Simpsons, but Lisa's best jokes in the sitcom tend to have a deeper meaning to them.
+---------
+
+# Criminal Minds' Format Change Fails To End Its Most Toxic BAU Trope
+
+Network TV, Criminal Minds
+
+Fri, 10 Jul 2026 19:00:20 GMT
+
+https://screenrant.com/criminal-minds-format-change-fails-end-toxic-trope-grief/
+
+Criminal Minds: Evolution promised a deep look into the BAU, but the series struggles to portray grief in a nuanced way, despite the streaming shift.
+---------
+
+# Cornelius Fudge's New Harry Potter HBO Series Story & Book Comparison Addressed By Remake Star
+
+TV, Harry Potter
+
+Fri, 10 Jul 2026 18:54:26 GMT
+
+https://screenrant.com/harry-potter-hbo-series-cornelius-fudge-story-bertie-carvel/
+
+EXCLUSIVE: Bertie Carvel sheds light his version of Cornelius Fudge featured in HBO’s Harry Potter TV show and how he compares to the books.
+---------
+
+# 3 New Apple TV Shows To Binge This Weekend (July 10–12)
+
+Streaming TV, Apple TV, What to Watch on Apple TV+
+
+Fri, 10 Jul 2026 18:54:22 GMT
+
+https://screenrant.com/apple-tv-new-shows-weekend-binge-july-10/
+
+Apple TV has several great new streaming options to binge this weekend, July 10–12, 2026, including a feel-good sitcom and a massive sci-fi series.
+---------
+
+# Ghost Recon’s Official Return Is Sooner Than Expected
+
+Gaming, Ghost Recon, Triple-A Games, PC
+
+Fri, 10 Jul 2026 18:44:51 GMT
+
+https://screenrant.com/ghost-recon-wildlands-definitive-edition-leak/
+
+Ghost Recon has been on hiatus for seven whole years without a new game announced, but its next release may have leaked just ahead of a surprise drop.
+---------
+
+# 8 Greatest Anime Series With 8 Episodes or Less
+
+Anime, FLCL, Takopi's Original Sin
+
+Fri, 10 Jul 2026 19:15:12 GMT
+
+https://www.cbr.com/greatest-anime-series-8-episodes-or-less/
+
+Anime don't need to have extensive episode counts to be engaging, with series like Golden Boy and FLCL barely needing any time to leave an impact.
+---------
+
+# Danny McBride's $40M 'Comedic Masterpiece' Action Flop Just Left Netflix
+
+Movies, 30 Minutes or Less
+
+Fri, 10 Jul 2026 19:00:13 GMT
+
+https://www.cbr.com/danny-mcbride-30-minutes-or-less-left-netflix-july-2026/
+
+One of Danny McBride's most critically divisive films is officially set to take a step back from streaming in just a matter of weeks.
+---------
+
+# Only 3 Star Wars Characters Can Defeat Darth Vader
+
+Movies, Star Wars
+
+Fri, 10 Jul 2026 19:00:13 GMT
+
+https://www.cbr.com/star-wars-characters-who-defeat-darth-vader-list/
+
+As one of the most powerful characters in all of Star Wars, only a select few truly stand a chance against Darth Vader.
+---------
+
+# Former James Bond Casting Director Doubles Down on 007 Being a White Male: 'The Character That Stays'
+
+Movies, James Bond
+
+Fri, 10 Jul 2026 18:38:19 GMT
+
+https://www.cbr.com/james-bond-casting-director-white-male/
+
+The casting director who cast the last four James Bonds doesn't want to see the new 007 change his race or gender.
+---------
+
+# 9 Months After Casting, Ariana Grande Drops Out of American Horror Story Season 13
+
+TV, American Horror Story, American Horror Story: Coven
+
+Fri, 10 Jul 2026 18:34:41 GMT
+
+https://www.cbr.com/ariana-grande-drops-out-american-horror-story-season-13/
+
+The first-look photos didn't include the Wicked superstar.
+---------
+
+# After HiAnime, AniGo Anime Streaming Site Goes Offline in Court-Ordered Shutdown
+
+Anime, piracy, Streaming
+
+Fri, 10 Jul 2026 18:30:13 GMT
+
+https://www.cbr.com/anigo-anime-streaming-domain-shutdown/
+
+The anime streaming website domain was recently suspended in response to an official court order in late 2025.
+---------
+
+# Power Rangers' Never-Seen-Before Original Pitch Officially Makes Its Way Online 34 Years Later
+
+TV, Mighty Morphin Power Rangers, Power Rangers
+
+Fri, 10 Jul 2026 18:28:59 GMT
+
+https://www.cbr.com/power-rangers-original-pitch-online-clip/
+
+The original Power Rangers pitch video from 1992 has officially surfaced on social media, and it is nothing like what fans grew up watching.
+---------
+
+# Marvel Unveils Never-Before-Published Steve Ditko Spider-Man Sketch
+
+Comics, Spider-Man
+
+Fri, 10 Jul 2026 18:16:32 GMT
+
+https://www.cbr.com/amazing-spider-man-1000-steve-ditko-sketch-revealed/
+
+Marvel's surprises are endless for Amazing Spider-Man #1000.
+---------
+
+# 10 Weakest Anime Villains of All Time
+
+Anime, Dragon Ball, Naruto, JoJo's Bizarre Adventure, Fullmetal Alchemist: Brotherhood
+
+Fri, 10 Jul 2026 18:15:13 GMT
+
+https://www.cbr.com/weakest-anime-villains-all-time/
+
+Some anime villains just end up earning their reputations through incompetence, cowardice or fragile gimmicks rather than genuine combat ability.
+---------
+
+# The Best Crime Movies From Every Year of The 1990s
+
+Movies, Crime
+
+Fri, 10 Jul 2026 18:00:13 GMT
+
+https://www.cbr.com/best-crime-movie-1990s-list/
+
+If there was something the '90s had in spades, it was the catalogue of premium crime films.
+---------
+
+# 10 Greatest K-Dramas of the Last 5 Years, Ranked
+
+TV, South Korea, When Life Gives You Tangerines, Bloodhounds, Squid Game
+
+Fri, 10 Jul 2026 19:09:14 GMT
+
+https://collider.com/best-k-dramas-last-5-years-ranked/
+
+From Squid Game to Moving, these are the top Korean dramas from the past five years, ranked by their storytelling, acting, and overall impact.
+---------
+
+# The Best Fantasy Game of 2026 Slashes Costs After 'GTA 6' Price Hike
+
+Gaming News, Crimson Desert, Pearl Abyss, Grand Theft Auto, Fantasy
+
+Fri, 10 Jul 2026 19:08:00 GMT
+
+https://collider.com/2026-fantasy-game-crimson-desert-price-drop/
+
+Crimson Desert, 2026 breakout fantasy game, is now cheaper than ever before on PlayStation and Xbox. Read on for more.
+---------
+
+# Ariana Grande Officially Drops Out of Her First Major TV Series in 10 Years
+
+TV News, Ariana Grande, American Horror Story, FX, Ryan Murphy
+
+Fri, 10 Jul 2026 19:06:06 GMT
+
+https://collider.com/ryan-murphy-american-horror-story-season-13-ariana-grande/
+
+Ryan Murphy's American Horror Story Season 13 has officially lost a huge name in its stellar ensemble cast. Read on for more details.
+---------
+
+# Cape Fear Built a Hospital in Just 10 Days | Collider BTS
+
+TV, Cape Fear
+
+Fri, 10 Jul 2026 18:15:13 GMT
+
+https://collider.com/video/cape-fear-built-a-hospital-in-just-10-days-collider-bts/
+
+What does it take to reinvent the visual language of Cape Fear for television? Director of photography Celiana Cárdenas and production designer Jamie Walker McCall break down the creative choices that shaped one of 2026's most visually ambitious thrillers.
+---------
+
+# Taylor Sheridan Reveals How He Convinced a ‘Yellowstone’ Hater to Join ‘Landman’
+
+TV News, Landman, Taylor Sheridan, Sam Elliott, Yellowstone
+
+Fri, 10 Jul 2026 18:08:39 GMT
+
+https://collider.com/taylor-sheridan-sam-elliott-yellowstone-hater-reaction-landman/
+
+Taylor Sheridan says Sam Elliott called Yellowstone a cowboy soap opera before joining his TV universe in 1883 and Landman.
+---------
+
+# Star Wars Officially Goes Full Romance With New Release in Just 2 Weeks
+
+Books and Comics, Star Wars: Episode IX - The Rise of Skywalker, Star Wars, Sci-Fi, Romance
+
+Fri, 10 Jul 2026 17:58:57 GMT
+
+https://collider.com/star-wars-eyes-like-stars-romance-novel-release-date-july-26-2026/
+
+Star Wars is set to launch a new romance story this month with Ashley Poston’s Star Wars: Eyes Like Stars.
+---------
+
+# James Gunn's Superhero Flop Officially Beaten by $20M Ridley Scott-Esque Epic at the Box Office
+
+Movie News, Supergirl, Young Washington, James Gunn, Box Office
+
+Fri, 10 Jul 2026 19:00:18 GMT
+
+https://movieweb.com/young-washington-beats-supergirl-domestic-box-office/
+
+This small-budget underdog is taking on the big-budget comic book movie franchise.
+---------
+
+# After 3 Years, 'Silo' Finally Answers 2 Major Questions
+
+Features, Silo
+
+Fri, 10 Jul 2026 19:00:18 GMT
+
+https://movieweb.com/silo-relics-memory-drugs-explained/
+
+Two major questions were answered in the second episode of 'Silo' Season 3, and the answers are terrifying.
+---------
+
+# Ridley Scott's 3-Part Thriller Masterpiece's Fate Is Now Official
+
+TV News, The Terror, Ridley Scott
+
+Fri, 10 Jul 2026 17:55:44 GMT
+
+https://movieweb.com/ridley-scott-the-terror-season-4-confirmed/
+
+Plans are in place for a Season 4 of 'The Terror' to move forward at AMC.
+---------
+
 # Netflix's R-Rated Series Ends On High Note With Rare Rotten Tomatoes Streak
 
 TV, Masked Recs
