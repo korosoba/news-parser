@@ -1,3 +1,256 @@
+# Fan-Favorite Targaryen's A Knight Of The Seven Kingdoms Season 2 Return Chances Addressed By Star
+
+TV, A Knight Of The Seven Kingdoms, Game of Thrones
+
+Fri, 10 Jul 2026 21:53:14 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-season-2-baelor-targaryen-return-response-bertie-carvel/
+
+EXCLUSIVE: A fan-favorite Targaryen character's potential appearance in A Knight of the Seven Kingdoms season 2 gets a new response from their actor.
+---------
+
+# God Of War Laufey Gets Official Release Window Update
+
+Gaming, God of War Laufey, God of War, Triple-A Games
+
+Fri, 10 Jul 2026 21:45:40 GMT
+
+https://screenrant.com/god-of-war-laufey-release-window-update-physical/
+
+God of War Laufey has never seemed like it was too far away after its official reveal, and this release window is now narrowed down completely.
+---------
+
+# HBO Officially Launches A New Shared Universe
+
+Streaming TV, Masked Recs
+
+Fri, 10 Jul 2026 21:30:20 GMT
+
+https://screenrant.com/task-mare-of-easttown-hbo-shared-universe/
+
+HBO is officially launching its first shared universe since Game of Thrones as Task and Mare of Easttown get a confirmed crossover character.
+---------
+
+# Dakota & Elle Fanning's New War Movie Based On Novel Sets 2027 Release Date
+
+Movies, The Nightingale
+
+Fri, 10 Jul 2026 21:26:19 GMT
+
+https://screenrant.com/dakota-elle-fanning-the-nightingale-2027-release-date/
+
+Dakota and Elle Fanning's upcoming film adaptation of a popular war novel finally gets an updated release date after a slight delay.
+---------
+
+# Dungeons & Dragons: 17 Best Homebrew Classes In D&D 5e
+
+Lists, Dungeons & Dragons: Honor Among Thieves, Critical Role, Dungeons & Dragons
+
+Fri, 10 Jul 2026 21:00:23 GMT
+
+https://screenrant.com/dnd-5e-best-homebrew-classes-dungeons-dragons/
+
+These exceptional homebrew classes for Dungeons & Dragons 5e offer exciting new options for players and make for perfect additions to any DM's binder.
+---------
+
+# Elrond's True Form Finally Appears In The Rings Of Power Season 3
+
+Streaming TV, The Lord of the Rings: The Rings of Power
+
+Fri, 10 Jul 2026 21:00:21 GMT
+
+https://screenrant.com/the-rings-of-power-season-3-real-elrond/
+
+Robert Aramayo's Elrond hasn't quite evolved into the character fans know from The Lord of the Rings, but The Rings of Power season 3 changes that.
+---------
+
+# Marvel Rivals: How To Use Every New Season 9 Team-Up
+
+Gaming, Marvel Rivals, PC, Live Service Games
+
+Fri, 10 Jul 2026 21:00:21 GMT
+
+https://screenrant.com/marvel-rivals-season-9-every-how-to-use-every-team-up/
+
+The newest Season of Marvel Rivals completely reworks Team-Ups, giving characters loadouts to choose from based on synergies with other heroes.
+---------
+
+# Ubisoft Announces Temporary Fix For A Glaring Assassin's Creed Black Flag Resynced Bug
+
+Gaming, Assassin's Creed Black Flag Resynced, Triple-A Games, PC
+
+Fri, 10 Jul 2026 20:57:21 GMT
+
+https://screenrant.com/ubisoft-black-flag-resynced-bug-fix/
+
+Black Flag Resynced has faced heavy criticism over its launch, but its most glaring issue is one that Ubisoft never intended to include.
+---------
+
+# New Titus Welliver Crime Thriller's Crossover Potential With 7-Year-Old Gangster Series Addressed By EPs
+
+TV, The Westies, Godfather of Harlem
+
+Fri, 10 Jul 2026 20:55:49 GMT
+
+https://screenrant.com/the-westies-godfather-of-harlem-crossover-potential-producer-response/
+
+EXCLUSIVE: Creators Chris Brancato and Michael Panes reveal if The Westies will include any crossovers with another crime series they produced.
+---------
+
+# 3 New HBO Max Shows To Binge This Weekend (July 10–12)
+
+Streaming TV, HBO Max, What to Watch on Max
+
+Fri, 10 Jul 2026 20:48:20 GMT
+
+https://screenrant.com/hbo-max-new-shows-weekend-binge-july-10/
+
+The three best new shows to binge on HBO Max this weekend span a variety of genres and are all trending right now, including the #1 series worldwide.
+---------
+
+# 10 Strongest Anime Heroes, Officially Ranked
+
+Anime, Naruto, Dragon Ball, That Time I Got Reincarnated as a Slime, Sailor Moon
+
+Fri, 10 Jul 2026 21:15:13 GMT
+
+https://www.cbr.com/official-strongest-anime-heroes-of-all-time/
+
+Anime has an extensive list of powerful, universe-bending heroes, and these ten protagonists stand head and shoulders above the rest.
+---------
+
+# Ridley Scott's 3-Season Anthology Series' Future Officially Confirmed
+
+TV, The Terror
+
+Fri, 10 Jul 2026 21:14:34 GMT
+
+https://www.cbr.com/ridley-scott-the-terror-season-4-future/
+
+The horror series has been a major success and just returned with a new installment this year.
+---------
+
+# 8 Greatest Martial Arts Movies Worth Watching Again and Again, Ranked
+
+Movies, Action
+
+Fri, 10 Jul 2026 21:00:12 GMT
+
+https://www.cbr.com/most-rewatchable-martial-arts-movies-ranked-list/
+
+Fans keep returning to the following martial arts films that have stood the test of time because they deliver over and over again.
+---------
+
+# Pokémon Winds & Waves Reveals Franchise-First Starter Type Combo
+
+Games, Pokemon, Nintendo, Pokémon
+
+Fri, 10 Jul 2026 20:56:14 GMT
+
+https://www.cbr.com/pokemon-winds-waves-doing-something-series-never-done-before/
+
+The latest Pokémon Winds & Waves leaks claim that the Pokémon in the Gen 10 games are doing something never before seen in the franchise.
+---------
+
+# The Biggest Sci-Fi Movie of 2026 Is Officially Dominating Prime Video
+
+Movie, The Adventures of Priscilla, Queen of the Desert, Project Hail Mary, Bones and All, Prime Video
+
+Fri, 10 Jul 2026 21:48:14 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-july-10-2026/
+
+The Adventures of Priscilla, Queen of the Desert, Project Hail Mary, and more make up our list of the best Prime Video movies to stream this weekend.
+---------
+
+# 10 Best Psychological Thriller Books of the 21st Century
+
+Books and Comics, Books, Psychological Thriller, Girl with the Dragon Tattoo, Gone Girl
+
+Fri, 10 Jul 2026 21:35:13 GMT
+
+https://collider.com/best-psychological-thriller-books-21st-century-ranked/
+
+Gone Girl, The Girl With the Dragon Tattoo, and Shutter Island are all among the very best psychological thriller books released in the 21st century.
+---------
+
+# Crunchyroll’s Forgotten 2-Part Fantasy Anime Is a Masterpiece From Start to Finish
+
+TV Features, Ranking of Kings, Anime, Fantasy, Crunchyroll
+
+Fri, 10 Jul 2026 21:24:13 GMT
+
+https://collider.com/crunchyroll-forgotten-fantasy-series-ranking-of-kings/
+
+Ranking of Kings blends beautiful animation, thoughtful disability representation, and an emotional friendship at its core.
+---------
+
+# 10 Best Thrillers of the Last 20 Years You've Never Heard Of
+
+Movie, Black Bear, The Lesson, The Dirties, Thriller
+
+Fri, 10 Jul 2026 21:05:14 GMT
+
+https://collider.com/best-thrillers-last-20-years-youve-never-heard-of/
+
+Black Bear, The Lesson, and The Dirties are among the very best thriller movies released over the last 20 years that you've probably never heard of.
+---------
+
+# Titus Welliver's New Crime Thriller Falls Short of 'Bosch's Rave Reviews
+
+TV News, The Westies, Titus Welliver, Bosch
+
+Fri, 10 Jul 2026 21:03:38 GMT
+
+https://collider.com/titus-welliver-bosch-replacement-the-westies-metacritic-score-is-it-good/
+
+Titus Welliver's biggest crime thriller since Bosch has been met with a dicey debut from critics. Read on for all the details.
+---------
+
+# 10 Best Psychological Horror Books of All Time, Ranked
+
+Books and Comics, Books, Horror, Psychological Thriller, Stephen King
+
+Fri, 10 Jul 2026 20:50:13 GMT
+
+https://collider.com/best-psychological-horror-books-ranked/
+
+The Silence of the Lambs, House of Leaves, and The Turn of the Screw are all among the best, most frightening psychological horror books of all time.
+---------
+
+# 'Spider-Man: Brand New Day' All-Time Box Office Numbers Smash Away Superhero Fatigue
+
+Movie News, Spider-Man: Brand New Day, Tom Holland
+
+Fri, 10 Jul 2026 21:49:53 GMT
+
+https://movieweb.com/spider-man-brand-new-day-box-office-tracking/
+
+Early tracking suggests 'Spider-Man: Brand New Day' could be headed for a massive domestic opening.
+---------
+
+# Forgotten Hannibal Lecter Thriller Returns With Trailer for All-New Version
+
+Movie News, Manhunter, Michael Mann
+
+Fri, 10 Jul 2026 21:42:07 GMT
+
+https://movieweb.com/manhunter-4k-final-cut-trailer/
+
+Michael Mann's vision of the terrifying novel will be returning to theaters in a new 4K restoration.
+---------
+
+# 10 Strongest Martial Arts Heroes in Action Movie History, Ranked
+
+Movie Lists, Martial Arts, Action
+
+Fri, 10 Jul 2026 21:00:18 GMT
+
+https://movieweb.com/strongest-martial-arts-action-heroes/
+
+Which martial arts heroes can take hits and dish out punishment better than the rest?
+---------
+
 # Timothy Olyphant's New Drama Series Based On Bestselling Novel Is Officially #1 On Peacock's Streaming Charts
 
 TV, Masked Recs
