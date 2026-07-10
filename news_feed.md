@@ -1,3 +1,322 @@
+# Netflix's 8-Part Supernatural Series With Rare Perfect Rotten Tomatoes Score Is One Of Its Best
+
+TV, Masked Recs
+
+Fri, 10 Jul 2026 15:39:11 GMT
+
+https://screenrant.com/netflix-marianne-horror-series-best/
+
+Netflix's 8-episode supernatural series is one of its most unsettling, and the project with a rare perfect Rotten Tomatoes score sits among the best.
+---------
+
+# Legend Of Zelda: Oracles Appears Online, May Be The Remakes We've Waited For
+
+Gaming, The Legend of Zelda: Oracle of Seasons, The Legend of Zelda: Oracle of Ages, The Legend of Zelda, Triple-A Games
+
+Fri, 10 Jul 2026 15:36:51 GMT
+
+https://screenrant.com/legend-of-zelda-oracles-leak-remake-hopes/
+
+A new Zelda game called Oracles seems to be in development, and it could finally be the return of Oracle of Seasons and Oracle of Ages.
+---------
+
+# KPop Demon Hunters 2's New Soundtrack Already Has 1 Massive Problem
+
+Movies, KPop Demon Hunters
+
+Fri, 10 Jul 2026 15:30:20 GMT
+
+https://screenrant.com/kpop-demon-hunters-2-soundtrack-golden-problem/
+
+KPop Demon Hunters is already facing various challenges, along with a massive problem thanks to one of the first movie's best elements.
+---------
+
+# Daredevil: Born Again Season 3 Return Gets Major Status Update From Underrated MCU Vigilante
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe
+
+Fri, 10 Jul 2026 15:26:32 GMT
+
+https://screenrant.com/daredevil-born-again-season-3-swordsman-return-update-dalton/
+
+With filming currently underway for Daredevil: Born Again season 3, one of the stars opens up about his future in the Marvel Cinematic Universe.
+---------
+
+# Pokémon Winds & Waves Release Date Delay Praised By Gamers
+
+Gaming, Pokemon Winds and Waves, Pokemon, Triple-A Games
+
+Fri, 10 Jul 2026 15:17:21 GMT
+
+https://screenrant.com/pokemon-winds-waves-release-date-delays/
+
+The release date delay that Pokémon Winds and Waves have suffered is exciting players thanks to what that could mean for their overall quality.
+---------
+
+# Spider-Man Vs Hulk Footage Seemingly Confirms Another MCU Villain Return In Brand New Day
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Fri, 10 Jul 2026 15:08:50 GMT
+
+https://screenrant.com/spider-man-brand-new-day-trailer-shocker-villain-reveal/
+
+More Spider-Man: Brand New Day footage has been released, featuring Peter Parker's battle against Hulk, that hints at another MCU villain come back.
+---------
+
+# GTA 6 Trailer 3 Teaser Surfaces, Brace Yourselves
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Fri, 10 Jul 2026 15:00:21 GMT
+
+https://screenrant.com/gta-6-trailer-3-teased-rockstar-update/
+
+There has finally been some movement around GTA VI over the last month or so, but that third trailer remains an elusive dream.
+---------
+
+# 3 Years Later, Kendall Roy’s Best Line Is Still Succession’s Greatest Quote
+
+Classic TV, Succession
+
+Fri, 10 Jul 2026 15:00:21 GMT
+
+https://screenrant.com/succession-best-quote-season-4-kendall-roy/
+
+Though Logan Roy's larger-than-life presence dominated most of Succession, it's his son Kendall who has the best quote of the entire HBO show.
+---------
+
+# Pokémon Unveils Official New Charizard Design That's Like Nothing We've Seen Before
+
+Gaming, Pokemon, Pokémon, PC
+
+Fri, 10 Jul 2026 14:55:47 GMT
+
+https://screenrant.com/pokemon-new-charizard-design-official-release/
+
+Pokémon fans have seen dozens of Charizard iterations over the years, but nothing quite like this newly revealed design.
+---------
+
+# Obsession’s Streaming Release Date Finally Revealed
+
+Movies, Obsession, Horror, Peacock
+
+Fri, 10 Jul 2026 14:51:24 GMT
+
+https://screenrant.com/obsession-movie-peacock-streaming-release-date/
+
+Blumhouse's Obsession officially sets its streaming release date on Peacock after it became one of the biggest horror hits of the year.
+---------
+
+# 2026's Best Horror Officially Confirms New Release This Month
+
+Movies, Obsession, Peacock
+
+Fri, 10 Jul 2026 15:20:37 GMT
+
+https://www.cbr.com/obsession-horror-peacock-release-date/
+
+It's about to be a lot easier to watch the most successful horror film of 2026.
+---------
+
+# Only 3 Fantasy Anime Are Objectively Better Than Frieren
+
+Anime, Frieren: Beyond Journey's End, Mushoku Tensei: Jobless Reincarnation, To Your Eternity, Fantasy
+
+Fri, 10 Jul 2026 15:15:13 GMT
+
+https://www.cbr.com/fantasy-anime-objectively-better-than-frieren/
+
+Frieren: Beyond Journey's End is a breakout fantasy success, but titles like Mushoku Tensei and To Your Eternity manage to reach even greater heights.
+---------
+
+# Official Gundam Wing x Code Geass Crossover Manga Launches
+
+Anime, Gundam
+
+Fri, 10 Jul 2026 15:00:46 GMT
+
+https://www.cbr.com/gundam-wing-code-geass-crossover-manga-release/
+
+The new Gundam Wing release will see the Holy Britannian Empire trying to take on the Mobile Suits.
+---------
+
+# 10 Common Misunderstandings About Cowboy Bebop
+
+Anime, Cowboy Bebop
+
+Fri, 10 Jul 2026 15:00:13 GMT
+
+https://www.cbr.com/cowboy-bebop-common-misunderstandings/
+
+Cowboy Bebop's near 30-year legacy is all too often defined by fan speculation and assumption, which has led to plenty of misunderstandings.
+---------
+
+# HBO Confirms a Huge Change to George RR Martin's House of the Dragon Timeline
+
+TV, House of the Dragon, Game Of Thrones, HBO Max
+
+Fri, 10 Jul 2026 14:55:51 GMT
+
+https://www.cbr.com/hbo-house-of-the-dragon-timeline-change-rhaenyra-corlys-fracture/
+
+One of House of the Dragon's best duos is reaching its demise sooner than expected.
+---------
+
+# Prime Video's 8-Episode Mystery Show Based on a Bestselling Novel Kicks Off Season 2 With Returning Characters
+
+TV, We Were Liars
+
+Fri, 10 Jul 2026 14:46:35 GMT
+
+https://www.cbr.com/prime-video-we-were-liars-season-2-production/
+
+One of Prime Video's hottest drama series of the past year is finally back in production, and the first looks from the set are fantastic.
+---------
+
+# Predator Director's New Paramount Horror Movie Officially Sets Release Date at the Perfect Time
+
+Movies, Friday The 13th
+
+Fri, 10 Jul 2026 14:31:38 GMT
+
+https://www.cbr.com/dan-trachtenberg-freddy-the-13th-adaptation-release-date-confirmed/
+
+The director of Predator: Badlands sets his sights on a new horror franchise, and the adaptation lands an appropriately spooky release date.
+---------
+
+# 5 Taylor Sheridan TV Moments That Left Fans Stunned
+
+TV, Yellowstone, 1883, 1923
+
+Fri, 10 Jul 2026 14:30:13 GMT
+
+https://www.cbr.com/taylor-sheridan-stunning-tv-moments-list/
+
+Taylor Sheridan's shows are known for their brutal twists and turns, and these shocking moments had viewers reeling across the Yellowstone universe.
+---------
+
+# Disney+ Plans Free Streaming Tier After $50M YouTube TV Settlement
+
+TV, Disney, Disney+
+
+Fri, 10 Jul 2026 14:19:12 GMT
+
+https://www.cbr.com/disney-considering-free-tier/
+
+The move will be absolutely revolutionary for current streaming services.
+---------
+
+# 5 Masterpiece Action Anime Series With the Best Power Systems
+
+Anime, Jujutsu Kaisen, Hunter x Hunter
+
+Fri, 10 Jul 2026 14:15:13 GMT
+
+https://www.cbr.com/masterpiece-action-anime-best-power-systems/
+
+Anime like Jojo's Bizarre Adventure and Jujutsu Kaisen prove that the best action stories begin with a well-crafted foundation for their powers.
+---------
+
+# Govee Brings the Magic of Disney's Live- Action Theatrical Reimagining of “Moana” to Life With New Immersive Lighting Effects
+
+Music News, Moana, Moana 2, Disney
+
+Fri, 10 Jul 2026 14:10:50 GMT
+
+https://collider.com/disney-moana-govee-lighting-effects/
+
+Experience the magic of Disney's Moana in your home with Govee's new collection of Moana-inspired lighting effects.
+---------
+
+# 40 Years Later, Michael Mann's Most Fearsome Psychological Thriller Returns With New Release [Exclusive]
+
+Movie News, Manhunter, Michael Mann, William Petersen, Stephen Lang
+
+Fri, 10 Jul 2026 14:00:13 GMT
+
+https://collider.com/manhunter-the-final-cut-4k-release-trailer/
+
+Michael Mann's Manhunter: The Final Cut is coming to theaters this summer, and Collider has its first trailer. Watch it now.
+---------
+
+# 'Star City's Creators Were Building To That Major Venus Mission Twist All Along
+
+Collider Signature, Star City, Apple TV, For All Mankind, Sci-Fi
+
+Fri, 10 Jul 2026 14:00:13 GMT
+
+https://collider.com/star-city-finale-meaning-venus-mission-twist-for-all-mankind-creators/
+
+Star City creators Matt Wolpert and Ben Nedivi discuss the finale's shocking Venus mission twist and their plans for For All Mankind's final season.
+---------
+
+# 'Star City' Season 1 Ending Explained: Was That Really the Chief Designer?
+
+Features, Star City, For All Mankind
+
+Fri, 10 Jul 2026 15:20:19 GMT
+
+https://movieweb.com/star-city-season-1-ending-explained/
+
+'Star City's first big finish came with a lot to unpack. Read on for more.
+---------
+
+# 'Obsession' Streaming Release Date Officially Revealed
+
+Movie News, Obsession, Peacock
+
+Fri, 10 Jul 2026 15:09:20 GMT
+
+https://movieweb.com/obsession-streaming-release-peacock/
+
+Focus Features officially confirmed when 'Obsession' will be available for all to stream online.
+---------
+
+# Netflix Planning Big Shift That Could Change Streaming Forever
+
+TV News, Netflix
+
+Fri, 10 Jul 2026 15:06:08 GMT
+
+https://movieweb.com/netflix-planning-live-streaming-channels/
+
+Netflix eyes live channels, bundles in possible shift beyond on-demand.
+---------
+
+# Liam Neeson's 131-Minute Sci-Fi Action Thriller Refuses To Sink on Streaming
+
+Movie News, Liam Neeson, Battleship, Hot on Streaming, Action
+
+Fri, 10 Jul 2026 15:01:18 GMT
+
+https://movieweb.com/liam-neeson-battleship-sci-fi-action-streaming-hit-prime-video-july-2026/
+
+One of Liam Neeson's most derivative movies is making a comeback on Prime Video after it was recently added the to the streaming platform.
+---------
+
+# The 8 Best Action Shows Streaming on Prime Video
+
+TV Lists, Prime Video, Reacher, Tom Clancy's Jack Ryan, Fallout
+
+Fri, 10 Jul 2026 15:00:58 GMT
+
+https://movieweb.com/best-action-shows-prime-video/
+
+Action fans, don't worry about a thing. Friday night is sorted with these shows, including some you've probably missed.
+---------
+
+# 'Dune: Part Three' Opening Is a Sci-Fi Twist on One of the Greatest War Movies Ever Made
+
+Movie News, Dune: Part Three, Denis Villeneuve
+
+Fri, 10 Jul 2026 13:56:28 GMT
+
+https://movieweb.com/dune-part-three-opening-saving-private-ryan/
+
+The closing instalment of Denis Villeneuve's sci-fi trilogy begins with an explosive nod to one of the great war films.
+---------
+
 # Baldur's Gate 3: The Necromancy Of Thay Officially Releases On July 21
 
 Gaming, Baldur's Gate 3
