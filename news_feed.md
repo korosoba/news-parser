@@ -1,3 +1,256 @@
+# It's The End Of An Era For Euphoria
+
+Streaming TV, Euphoria
+
+Sat, 11 Jul 2026 15:45:20 GMT
+
+https://screenrant.com/euphoria-emmy-nominations-end-of-an-era/
+
+Euphoria just scored its final Emmy nomination — Zendaya for Outstanding Lead Actress — and it marks the end of an era for the controversial series.
+---------
+
+# Ridley Scott's TV Adaptation Of Barack Obama-Approved Bestselling Novel Gets New Update From Producer After 4 Years
+
+TV, Ridley Scott
+
+Sat, 11 Jul 2026 15:43:33 GMT
+
+https://screenrant.com/ridley-scott-foundation-book-tv-adaptation-update-barack-obama-approval/
+
+Exclusive: Ridley Scott's long-gestating TV adaptation of Barack Obama's one-time beach read finally gets a fresh update from one of its producers.
+---------
+
+# Netflix's New Western Remake Proves Early Season 2 Renewal Worthwhile With #2 Streaming Debut
+
+TV, Masked Recs, Netflix, Streaming Charts
+
+Sat, 11 Jul 2026 15:39:44 GMT
+
+https://screenrant.com/netflix-little-house-on-the-prairie-show-july-2026-streaming-charts/
+
+Netflix's new Western reboot TV series, which was renewed for season 2 four months before its premiere, becomes an instant streaming hit.
+---------
+
+# 7 Things That Happen In Every Game Of Thrones Season
+
+Classic TV, Game Of Thrones
+
+Sat, 11 Jul 2026 15:30:20 GMT
+
+https://screenrant.com/game-of-thrones-things-happen-every-season/
+
+HBO's Game of Thrones was one of the biggest pop culture phenomena ever, and every season, you could always count on these things happening.
+---------
+
+# 2016’s $12 Billion Fantasy Series Movie Warcraft Is Leaving Netflix In 1 Month
+
+Movies, Warcraft, Netflix
+
+Sat, 11 Jul 2026 15:30:20 GMT
+
+https://screenrant.com/netflix-warcraft-movie-fantasy-leaving/
+
+The major 2016 movie that spawned from one $12 billion fantasy empire is reportedly set to be leaving Netflix soon, giving users weeks to watch it.
+---------
+
+# Steam Users Abusing Valve's Refund Policy To Grab Free Games
+
+Gaming, Steam, Triple-A Games
+
+Sat, 11 Jul 2026 15:30:20 GMT
+
+https://screenrant.com/steam-users-abusing-valves-refund-policy-to-grab-free-games/
+
+Steam has a fantastic refund policy that many users tout as the industry paragon, but several industry voices say it can be abused.
+---------
+
+# Marvel Studios' Official Avengers: Doomsday Concept Art Unveils Best Look At Doctor Doom's Mask & Returning Heroes
+
+Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Sat, 11 Jul 2026 15:26:45 GMT
+
+https://screenrant.com/avengers-doomsday-xmen-marvel-characters-design-concept-art/
+
+Doctor Doom's mask and the big MCU heroes line-up get the best, closest look in new official Avengers: Doomsday marketing from Marvel Studios.
+---------
+
+# 8 Nearly Perfect Alternate History TV Shows
+
+Classic TV
+
+Sat, 11 Jul 2026 15:15:20 GMT
+
+https://screenrant.com/nearly-perfect-alternate-history-tv-shows/
+
+These 8 alternate history shows are the ultimate "what if..?" series, combining compelling stories with impressive visuals and strong acting.
+---------
+
+# November 20 Will Be A Huge Day For Fantasy Fans
+
+Streaming TV, Masked Recs
+
+Sat, 11 Jul 2026 15:03:19 GMT
+
+https://screenrant.com/percy-jackson-season-3-sunrise-reaping-november-20/
+
+Fantasy fans will be in for a treat when two of the biggest ongoing franchises in the genre return with their next installments on November 20.
+---------
+
+# Original ER Star Candidly Rejects The Pitt Reunion Chances 19 Years Later
+
+TV, The Pitt, ER, HBO Max, CCH Pounder
+
+Sat, 11 Jul 2026 15:00:21 GMT
+
+https://screenrant.com/the-pitt-er-reunion-chances-rejection-cch-pounder/
+
+Exclusive: One of the original stars of ER is very candidly rejecting the idea of a reunion with Noah Wyle on The Pitt for a key reason.
+---------
+
+# 10 Strongest Anime Swordsmen, Ranked By Power
+
+Anime, Bleach, Berserk, One Piece
+
+Sat, 11 Jul 2026 15:16:13 GMT
+
+https://www.cbr.com/strongest-anime-swordsmen-ranked-by-power/
+
+Swordsmen like Dracule Mihawk and Ichigo Kurosaki stand above all others in the world of anime.
+---------
+
+# Nicholas Hoult & David Leitch's Heist Action Movie Delayed 2 Months Ahead of Release
+
+Movies, How to Rob a Bank
+
+Sat, 11 Jul 2026 15:00:37 GMT
+
+https://www.cbr.com/nicholas-hoult-david-leitch-how-to-rob-a-bank-action-new-release-date/
+
+One of the most hotly-anticipated crime thrillers of the year just got pushed back only two months from its originally planned release date.
+---------
+
+# HBO's New 7-Part Comedy Is Officially 1 of the Biggest Titles on Streaming
+
+TV, Life, Larry and the Pursuit of Unhappiness, hbo, HBO Max
+
+Sat, 11 Jul 2026 15:00:13 GMT
+
+https://www.cbr.com/life-larry-andh-the-pursuit-of-unhappiness-comedy-hbo-success-us-july-2026/
+
+Larry David's new sketch comedy Life, Larry and the Pursuit of Unhappiness is only a few episodes in, but has quickly risen up the streaming charts.
+---------
+
+# 5 Masterpiece Shonen Anime With the Best Power Systems
+
+Anime, Hunter x Hunter, Jujutsu Kaisen, One Piece, Fullmetal Alchemist Brotherhood
+
+Sat, 11 Jul 2026 15:00:13 GMT
+
+https://www.cbr.com/masterpiece-shonen-anime-with-best-power-systems/
+
+Shonen anime like Hunter X Hunter and One Piece feature some of the best power systems ever.
+---------
+
+# Disney's New Live-Action Remake Fails to Meet Box Office Expectations
+
+Movie News, Dwayne Johnson, Moana, Box Office
+
+Sat, 11 Jul 2026 15:30:13 GMT
+
+https://collider.com/moana-remake-box-office-debut-17-million/
+
+Dwayne Johnson’s critically panned Moana remake struggled in its box office debut, opening below expectations for Disney.
+---------
+
+# HBO Max's Forgotten 2-Part Mystery Thriller Is a Perfect Binge-Watch
+
+TV Features, The Flight Attendant, HBO Max, Kaley Cuoco, Rosie Perez
+
+Sat, 11 Jul 2026 15:24:13 GMT
+
+https://collider.com/the-flight-attendant-hbo-max-perfect-binge-watch/
+
+HBO Max's darkly funny thriller The Flight Attendant, starring Kaley Cuoco, features a gripping murder mystery that's perfect for binge-watching.
+---------
+
+# After Harlan Coben’s ‘I Will Find You,’ Netflix Officially Raises the Bar With Its Next Thriller
+
+TV Features, I Will Find You, Jamie Dornan, Netflix, Harlan Coben
+
+Sat, 11 Jul 2026 14:47:13 GMT
+
+https://collider.com/harlan-coben-i-will-find-you-netflix-next-thriller-the-undertow/
+
+Netflix's I Will Find You was a huge success, and it already has a similar hit lined up with The Undertow. Crime-drama consistently wins for Netflix.
+---------
+
+# Alan Ritchson Officially Returns With New R-Rated Action Thriller in 2 Weeks
+
+Movie News, Alan Ritchson, Motor City, Action, Reacher
+
+Sat, 11 Jul 2026 14:45:13 GMT
+
+https://collider.com/motor-city-alan-ritchson-action-movie-release-date-july-2026/
+
+Alan Ritchson’s new action movie Motor City arrives in 2 weeks, bringing the Reacher star back to the genre fans love.
+---------
+
+# Kevin Feige Reveals 'X-Men' MCU Release Timeline
+
+Movie News, X-Men, Kevin Feige, MCU
+
+Sat, 11 Jul 2026 15:21:54 GMT
+
+https://movieweb.com/mcu-x-men-first-movie-release/
+
+Kevin Feige confirms where Marvel's 'X-Men' reboot lands in the MCU timeline, placing Jake Schreier's mutant movie after 'Avengers: Secret Wars.'
+---------
+
+# Every Season of 'Daredevil,' Ranked (Including 'Born Again')
+
+TV Shows, Daredevil: Born Again, Daredevil, Disney+
+
+Sat, 11 Jul 2026 15:00:20 GMT
+
+https://movieweb.com/every-season-of-daredevil-born-again-ranked/
+
+'Daredevil' has brought excellent stories to the small screen for a decade now, with each season bringing something new to the table.
+---------
+
+# Guy Ritchie's Best Crime Thriller in 7 Years is a Netflix Series
+
+Features, The Gentlemen, Guy Ritchie, Crime, Thriller, Netflix, MobLand
+
+Sat, 11 Jul 2026 15:00:18 GMT
+
+https://movieweb.com/guy-ritchie-the-gentlemen-best-crime-thriller/
+
+While 'MobLand' is undoubtedly great, Guy Ritchie's best crime thriller in the last 7 years is actually the TV show (not the movie), 'The Gentlemen.'
+---------
+
+# Liam Neeson's 115-Minute Western Action Thriller Is Back for Revenge on Free Streaming
+
+Movie News, Seraphim Falls, Liam Neeson, Pierce Brosnan
+
+Sat, 11 Jul 2026 15:00:18 GMT
+
+https://movieweb.com/liam-neeson-seraphim-falls-streaming-july-tubi/
+
+Liam Neeson and Pierce Brosnan star in the mid-2000s revenge thriller set shortly after the American Civil War.
+---------
+
+# 'Supergirl' Does Worse at the Box Office Than Any DC Movie Since 'Catwoman'
+
+Movie News, Supergirl
+
+Sat, 11 Jul 2026 14:58:50 GMT
+
+https://movieweb.com/supergirl-dc-box-office-catwoman/
+
+DC's 'Supergirl' has crawled to $108 million worldwide, its lowest-grossing tentpole since Halle Berry's 'Catwoman' in 2004.
+---------
+
 # George Lucas Vs. Disney: Who Saved More Jedi From Order 66?
 
 Star Wars
