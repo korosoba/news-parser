@@ -1,3 +1,267 @@
+# See First Appearance Of Spider-Man's Historic New Villain
+
+Marvel Comics, Spider-Man
+
+Sat, 11 Jul 2026 18:37:45 GMT
+
+https://screenrant.com/spider-man-new-villain-ravage/
+
+Marvel reveals the first full look at Spider-Man's next villain mere weeks before their arrival, still hiding the antagonist's real identity.
+---------
+
+# 16 Years Later, One Piece's Most Chilling Quote Proves Who The Series' Best Villain Is
+
+Anime, One Piece
+
+Sat, 11 Jul 2026 18:32:33 GMT
+
+https://screenrant.com/one-piece-doflamingo-best-villain-quote/
+
+From his iconic speech on justice to his pure love for chaos, Doflamingo remains one of the most brilliant villains in anime history.
+---------
+
+# 10 Seriously Dark Comedy Movies Guaranteed To Make You Squirm
+
+Movies, Comedy
+
+Sat, 11 Jul 2026 18:30:20 GMT
+
+https://screenrant.com/dark-comedy-movies-make-you-squirm/
+
+You may have seen some dark comedies in the past, but these seriously twisted laugh riots are guaranteed to make you squirm in your seat.
+---------
+
+# Apple TV's Oldest Surviving Comedy Series Officially Becomes A Streaming Hit In Just 3 Days
+
+TV, Masked Recs, Streaming Charts, Apple TV
+
+Sat, 11 Jul 2026 18:25:36 GMT
+
+https://screenrant.com/apple-tv-trying-season-5-streaming-charts-july-2026/
+
+Apple TV's longest-running ongoing comedy series becomes a major streaming hit just three days after the premiere of its newest season.
+---------
+
+# There's One Reason For One Piece's Lasting Success, And It Needs to Become the Gold Standard
+
+Anime, One Piece
+
+Sat, 11 Jul 2026 18:00:20 GMT
+
+https://screenrant.com/one-piece-success-oda-casting-most-important-characters/
+
+The secret to One Piece's success lies in Oda's dedication to ensuring each adaptation stays true to his vision, and it should be the standard.
+---------
+
+# Before The Boys, Erin Moriarty Appeared In Another 10/10 Superhero Show
+
+Streaming TV, Masked Recs
+
+Sat, 11 Jul 2026 18:00:20 GMT
+
+https://screenrant.com/the-boys-erin-moriarty-jessica-jones-character/
+
+Playing Starlight in The Boys is easily the biggest role of Erin Moriarty's career, but over a decade ago, she featured in another hit superhero show.
+---------
+
+# Pokémon's First Official Multi-Region Game In Decades Has Gamers Seriously Losing It
+
+Gaming, Pokemon
+
+Sat, 11 Jul 2026 18:00:20 GMT
+
+https://screenrant.com/pokemon-project-seed-multiple-regions-dream-game/
+
+Rumored Pokémon Project Seed could be the franchise's first official multi-region game, spanning beloved regions.
+---------
+
+# Live-Action Moana Remake Director Responds To Maui's Oddly Missing Design Feature After Negative Reviews
+
+Movies, Moana
+
+Sat, 11 Jul 2026 17:59:45 GMT
+
+https://screenrant.com/moana-disney-remake-maui-design-issues-thomas-kail/
+
+Director Thomas Kail addresses a common point of criticism in the Moana reviews involving some surprising missing anatomy for Dwayne Johnson’s Maui.
+---------
+
+# It's the End of an Era for The Lincoln Lawyer
+
+TV, The Lincoln Lawyer
+
+Sat, 11 Jul 2026 18:22:29 GMT
+
+https://www.cbr.com/the-lincoln-lawyer-season-5-wrap/
+
+The hit legal drama just shared a major update.
+---------
+
+# 10 Masterpiece ‘90s Anime Series With the Most Staying Power
+
+Anime, Sailor Moon, Neon Genesis Evangelion, Berserk
+
+Sat, 11 Jul 2026 18:15:12 GMT
+
+https://www.cbr.com/masterpiece-90s-anime-most-staying-power/
+
+1990s anime like Sailor Moon and Neon Genesis Evangelion are still beloved and popular today.
+---------
+
+# The $67.3M Sci-Fi Movie That Made Armageddon's Science Look Bearable Returns as a Prime Video Hit 4 Years Later
+
+Movies, Moonfall
+
+Sat, 11 Jul 2026 18:00:13 GMT
+
+https://www.cbr.com/moonfall-sci-fi-prime-video-hit-july-2026/
+
+One of the most ludicrous and critically bemoaned science fiction features of the past decade is officially a streaming hit on a major platform.
+---------
+
+# Metal Sonic Unveils an Intense New Design for Sonic's 35th Anniversary
+
+Comics, Sonic the Hedgehog, idw publishing, comics
+
+Sat, 11 Jul 2026 18:00:13 GMT
+
+https://www.cbr.com/metal-sonics-redesign-revealed-35th-anniversary/
+
+To mark the landmark 35th Anniversary, IDW unleashes its upgrade of Metal Sonic on our hero Sonic the Hedgehog to mark the occasion.
+---------
+
+# Arcane Officially Reveals Fractured Jinx 1/6 Scale Collectible Figure
+
+Anime, Arcane, Netflix, League of Legends
+
+Sat, 11 Jul 2026 18:00:13 GMT
+
+https://www.cbr.com/arcane-fractured-jinx-1-6-scale-figure/
+
+Arcane: League of Legends officially reveals the Fractured Jinx 1/6 Scale Collectible Figure, inspired by Jinx's Season 2 Netflix appearance.
+---------
+
+# The Greatest Urban Fantasy Book Series Still Deserves a Better Adaptation 19 Years Later
+
+TV Features, The Dresden Files, SyFy, Fantasy, Books
+
+Sat, 11 Jul 2026 18:38:13 GMT
+
+https://collider.com/dresden-files-book-series-failed-adaptation/
+
+Jim Butcher's The Dresden Files book series, a cornerstone of urban fantasy, could benefit from a new adaptation 19 years after a failed TV show.
+---------
+
+# New 'Avengers: Doomsday' Sneak Peek Officially Reveals Doctor Doom, Loki, and More
+
+Movie News, Avengers: Doomsday, Robert Downey Jr, Tom Hiddleston, MCU
+
+Sat, 11 Jul 2026 18:30:24 GMT
+
+https://collider.com/avengers-doomsday-first-look-art-doctor-doom-loki/
+
+A new sneak peek of Avengers: Doomsday gives us our best look yet at Robert Downey Jr.'s villain and Tom Hiddleston's return as Loki.
+---------
+
+# Prime Video’s Best 3-Part Fantasy Adaptation Made a Major Change From the Books
+
+TV Features, The Wheel of Time, Prime Video, Fantasy
+
+Sat, 11 Jul 2026 18:27:13 GMT
+
+https://collider.com/the-wheel-of-time-prime-video-fantasy-book-change-taveren/
+
+Prime Video's The Wheel of Time enhances the story by making more characters ta'veren, enriching their overall arcs.
+---------
+
+# Star City: Why Pretty Shots Were Rejected | Collider BTS
+
+TV, Star City
+
+Sat, 11 Jul 2026 18:16:13 GMT
+
+https://collider.com/video/star-city-why-pretty-shots-were-rejected-collider-bts/
+
+Creating the visual language of Star City meant resisting the urge to make every frame beautiful. Cinematographer Brendan Uegama explains why the Apple TV+ series embraces handheld camerawork, imperfect lenses, and naturalistic lighting to make its alternate-history Soviet space race feel grounded and authentic.
+---------
+
+# Pierce Brosnan’s $100 Million Fantasy Epic Quietly Takes Over Netflix
+
+Movie News, Percy Jackson & The Olympians: The Lightning Thief, Pierce Brosnan, Percy Jackson & the Olympians, Netflix
+
+Sat, 11 Jul 2026 18:00:13 GMT
+
+https://collider.com/pierce-brosnan-percy-jackson-and-the-olympians-streaming-success-netflix-july-2026/
+
+Pierce Brosnan's bonkers Percy Jackson movie is finding new life on Netflix as fans await the next season of the Disney Plus series.
+---------
+
+# 8 Perfect Fantasy Books That Nobody Remembers
+
+TV, Fantasy, Books, The Wheel of Time, Doctor Who
+
+Sat, 11 Jul 2026 17:57:13 GMT
+
+https://collider.com/perfect-fantasy-books-nobody-remembers/
+
+The Anubis Gates, The Dragonbone Chair, The Sword of Winter, and more make up our list of perfect fantasy books that nobody remembers.
+---------
+
+# 10 Bleakest Video Game Endings of All Time
+
+Gaming, Video Game, Cyberpunk 2077, Fallout, The Walking Dead
+
+Sat, 11 Jul 2026 17:53:14 GMT
+
+https://collider.com/bleakest-video-game-endings-all-time-ranked/
+
+From cult classics like Mother 3 to artful titles like Shadow of the Colossus, these video games feature the most devastating endings in the medium.
+---------
+
+# The Best 'LotR' Follow-up Is a Divisive 2-Season Fantasy Book Adaptation
+
+Features, The Shannara Chronicles, The Lord of the Rings, The Hobbit, Fantasy, John Rhys-Davies, Austin Butler
+
+Sat, 11 Jul 2026 18:45:18 GMT
+
+https://movieweb.com/shannara-chronicles-lord-of-the-rings-follow-up/
+
+A decade ago, 'The Shannara Chronicles' started airing, and while it wasn't perfect, it proved itself as one of the best 'LotR' follow-ups ever.
+---------
+
+# The '90s Sci-Fi Action Hidden Gem That Inspired 'Mad Max: Fury Road'
+
+Features, Mad Max: Fury Road, Tank Girl
+
+Sat, 11 Jul 2026 18:30:18 GMT
+
+https://movieweb.com/tank-girl-sci-fi-inspired-mad-max/
+
+This movie rumbled so 'Mad Max' could go full throttle.
+---------
+
+# 8 Fantasy TV Shows That Will Keep You Hooked from Start to Finish
+
+TV Lists, Fantasy
+
+Sat, 11 Jul 2026 18:00:19 GMT
+
+https://movieweb.com/fantasy-tv-shows-perfect/
+
+These fantasy series never get boring and never slow down. If you're in it for the entertainment, look no further.
+---------
+
+# 10 Movies Like 'Joy Ride' to Watch Next
+
+Movie Lists, Joy Ride
+
+Sat, 11 Jul 2026 18:00:19 GMT
+
+https://movieweb.com/movies-like-joy-ride/
+
+Here are some great options to get you laughing your head off if you enjoyed Adele Lim's latest movie, Joy Ride.
+---------
+
 # Bruce Campbell's Evil Dead Burn Role Is A True End Of An Era For The Franchise
 
 Movies, Evil Dead Burn, Evil Dead, Horror
