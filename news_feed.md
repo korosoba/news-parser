@@ -1,3 +1,256 @@
+# George Lucas Vs. Disney: Who Saved More Jedi From Order 66?
+
+Star Wars
+
+Sat, 11 Jul 2026 14:30:20 GMT
+
+https://screenrant.com/star-wars-jedi-saved-order-66-george-lucas-disney/
+
+The number of Jedi who survived Order 66 greatly differs depending on whether it's George Lucas' Star Wars era being talked about or Disney's.
+---------
+
+# New Marvel Game Being Blocked In 132 Countries Outrages Fans
+
+Gaming, Marvel, Marvel Tokon: Fighting Souls, PlayStation
+
+Sat, 11 Jul 2026 14:30:20 GMT
+
+https://screenrant.com/marvel-tokon-countries-blocking-banning/
+
+Like Helldivers 2 before it, an upcoming Marvel game is presumably being hit with a restriction that will make it unplayable in 132 countries.
+---------
+
+# The Best Indie Comedy of 2025 Is Free Right Now, No Subscription Needed
+
+Movies, The Guy Who Didn't Like Musicals
+
+Sat, 11 Jul 2026 14:28:10 GMT
+
+https://screenrant.com/free-comedy-horror-musical-starkid-west-end/
+
+A horror comedy fresh off the West End!
+---------
+
+# We're Officially 1 Week Away From Ethan Hawke's HBO Max Batman Series' Return
+
+TV, Masked Recs
+
+Sat, 11 Jul 2026 14:16:21 GMT
+
+https://screenrant.com/batwheels-season-3d-hbo-max-batman-series-july-2026-release/
+
+Ethan Hawke's Batman series is returning to HBO Max next week, arriving before DC's other major July 2026 Dark Knight TV show is set to arrive.
+---------
+
+# 1 Year After Suits LA, Stephen Amell Is Bringing Back Another Iconic Show
+
+Streaming TV, Masked Recs
+
+Sat, 11 Jul 2026 14:16:21 GMT
+
+https://screenrant.com/stephen-amell-baywatch-reboot-after-suits-la/
+
+Stephen Amell's stint as Ted Black didn't last long, but his upcoming leading role on a major network series will be bigger and better than Suits LA.
+---------
+
+# Walking Dead’s Continuity Imploded So Hard, It Created A Whole New Character
+
+Comics, The Walking Dead, The Walking Dead - Season 1
+
+Sat, 11 Jul 2026 14:16:21 GMT
+
+https://screenrant.com/walking-dead-continuity-issue-lilly-telltale/
+
+The Walking Dead admirably folded one continuity into another, and one misstep resulted in the debut of a brand-new character, basically.
+---------
+
+# October 2027 Is Going To Be The Greatest Month In Fantasy Anime History
+
+Anime, Masked Recs
+
+Sat, 11 Jul 2026 14:00:20 GMT
+
+https://screenrant.com/october-2027-best-fantasy-anime-month-frieren-delicious-dungeon/
+
+Frieren and Delicious in Dungeon, two of the most celebrated fantasy anime, are expected to return in October 2027, and here is why that matters.
+---------
+
+# Star Wars Genesis Might Be The Most Exciting Star Wars RPG Ever
+
+Gaming, Star Wars, Triple-A Games, PC
+
+Sat, 11 Jul 2026 14:00:20 GMT
+
+https://screenrant.com/star-wars-genesis-open-world-rpg-mod-opinion/
+
+While the future of official Star Wars games is still up in the air, this RPG you can play right now is the best thing we've seen in years.
+---------
+
+# 34 Years Later, Roseanne’s Best Line Is Still The Quintessential Sitcom Quote
+
+Classic TV, Roseanne, The Conners
+
+Sat, 11 Jul 2026 13:59:20 GMT
+
+https://screenrant.com/roseanne-best-line-greatest-sitcom-quotes/
+
+Roseanne was a rare sitcom that continued even after losing its title character, and the show's greatest line ever explains how it pulled this off.
+---------
+
+# Peacock's New Epic Science Fantasy Series Is Coming to Dethrone Star Wars for Good
+
+TV, Dungeon Crawler Carl, Star Wars, Fantasy, Sci-Fi
+
+Sat, 11 Jul 2026 14:30:13 GMT
+
+https://www.cbr.com/peacock-dungeon-crawler-carl-dethrone-star-wars/
+
+Peacock's upcoming science fantasy series is set to shake up the streaming world with the adaptation's unique blend of high fantasy and sci-fi.
+---------
+
+# 10 Classic Anime Series That Were Way Ahead of Their Time
+
+Anime, Legend Of The Galactic Heroes, Dragon Ball, mecha
+
+Sat, 11 Jul 2026 14:15:13 GMT
+
+https://www.cbr.com/classic-anime-series-way-ahead-of-their-time/
+
+Classic anime like Serial Experiments Lain and Legend of the Galactic Heroes were decades ahead of modern trends.
+---------
+
+# Transformers Beast Wars II Galvatron Gets First New Figure Since 1998
+
+Anime, Transformers, Beast Wars, merchandise, toys, hasbro
+
+Sat, 11 Jul 2026 14:00:12 GMT
+
+https://www.cbr.com/transformers-new-legends-beast-wars-galvatron-release/
+
+The Beast Wars II version of Galvatron is finally receiving a new toy, letting international fans collect one of the most obscure Transformers ever.
+---------
+
+# Street Fighter is the Martial Arts Movie Event of the Decade
+
+Movies, Street Fighter
+
+Sat, 11 Jul 2026 14:00:12 GMT
+
+https://www.cbr.com/street-fighter-reboot-martial-arts-movie-of-decade/
+
+The upcoming video game adaptation, Street Fighter (2026), is expected to make a huge splash for video game movies and martial arts movies alike.
+---------
+
+# Marvel Just Replaced Wolverine With Its Most Terrifying Character Yet
+
+Comics, Wolverine
+
+Sat, 11 Jul 2026 14:00:12 GMT
+
+https://www.cbr.com/wolverine-23-taskmaster-replaces-wolverine/
+
+Wolverine is fighting a losing battle against one of Marvel's most underrated villains, and they're using his own powers against him.
+---------
+
+# Pokémon Legends: Z-A Official Free Downloads Available for a Limited Time
+
+Games
+
+Sat, 11 Jul 2026 13:20:13 GMT
+
+https://www.cbr.com/pokemon-legends-z-a-official-free-download-limited-time-july-2026/
+
+Pokémon Legends: Z-A players just got a whole host of new free downloadables, and they come with some unexpectedly comfortable breathing room.
+---------
+
+# 10 Best Anime Movies For People Who Think They Hate Anime
+
+Anime, Studio Ghibli, Ponyo
+
+Sat, 11 Jul 2026 13:15:12 GMT
+
+https://www.cbr.com/best-movies-for-people-who-hate-anime/
+
+Movies like Tokyo Godfather and the works of Studio Ghibli can easily entice those who think they hate anime.
+---------
+
+# Netflix's Secret Western Hit Becomes a Streaming Smash in Just 3 Days
+
+TV News, Little House on the Prairie, Netflix, Western, Luke Bracey
+
+Sat, 11 Jul 2026 14:00:13 GMT
+
+https://collider.com/little-house-on-the-prairie-netflix-streaming-success-july-2026/
+
+Netflix’s Little House on the Prairie remake is riding strong reviews and early streaming momentum as its new Western drama finds an audience.
+---------
+
+# 10 Cozy Mystery Movies To Watch if You Love 'The Sheep Detectives'
+
+Movie, The Sheep Detectives, Mystery, Zootopia, Knives Out
+
+Sat, 11 Jul 2026 13:42:13 GMT
+
+https://collider.com/mystery-movies-like-the-sheep-detectives/
+
+Enola Holmes, Knives Out, See How They Run, and The Thursday Murder Club are perfect mystery movies to watch if you love The Sheep Detectives.
+---------
+
+# Anya Taylor-Joy's New Crime Series Officially Arrives on Apple TV This Week
+
+TV News, Anya Taylor-Joy, Lucky, Apple TV, Annette Bening
+
+Sat, 11 Jul 2026 13:15:12 GMT
+
+https://collider.com/lucky-anya-taylor-joy-apple-tv-crime-drama-premiere-july-2026/
+
+Anya Taylor-Joy’s new Apple TV crime drama Lucky premieres this week, marking her latest major streaming role.
+---------
+
+# Marvel Reveals 'Avengers: Doomsday' Official Concept Art
+
+Movie News, Avengers: Doomsday
+
+Sat, 11 Jul 2026 14:26:19 GMT
+
+https://movieweb.com/avengers-doomsday-official-concept-art/
+
+Official new concept art for Marvel Studios' 'Avengers: Doomsday' teases an epic lineup of Marvel heroes.
+---------
+
+# 'Blue Bloods' Officially Returns With Spin-Off Confirming Its Release Date
+
+TV News, Boston Blue
+
+Sat, 11 Jul 2026 14:20:35 GMT
+
+https://movieweb.com/boston-blue-season-2-release-date/
+
+'Blue Bloods' fans won't have to wait too long for the spin-off's Season 2.
+---------
+
+# Iconic 128-Minute Non-Stop Action Thriller Is Being Cut From Streaming
+
+Movie News, Hard Boiled, Coming/Leaving Streaming, John Woo, Action
+
+Sat, 11 Jul 2026 14:00:18 GMT
+
+https://movieweb.com/hard-boiled-john-woo-action-leaving-tubi-july-2026/
+
+Widely regarded as one of director John Woo's masterpieces, 'Hard Boiled' is a must-see for all action lovers before it gets cut from Tubi.
+---------
+
+# Alan Ritchson’s Legendary Action Thriller Streak Officially Continues This Fall
+
+Features, Reacher, Alan Ritchson, Thriller
+
+Sat, 11 Jul 2026 14:00:18 GMT
+
+https://movieweb.com/alan-ritchson-reacher-season-4-runner/
+
+After dominating the small screen since 2022, the Reacher star is punching his way to the big screen this autumn with Runner
+---------
+
 # Green Lantern's New Superpower Is Beyond Even Superman
 
 DC Comics, Green Lantern
