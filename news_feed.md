@@ -1,3 +1,289 @@
+# Green Lantern's New Superpower Is Beyond Even Superman
+
+DC Comics, Green Lantern
+
+Sat, 11 Jul 2026 13:00:21 GMT
+
+https://screenrant.com/green-lantern-new-power-emotional-expanse/
+
+DC reveals a completely new extradimensional realm, outside space and time, that can only be accessed by an exclusive number of Green Lanterns.
+---------
+
+# Prime Video's 6-Part Space Opera Makes Even Battlestar Galactica Feel Small
+
+Classic TV, Masked Recs
+
+Sat, 11 Jul 2026 13:00:21 GMT
+
+https://screenrant.com/the-expanse-prime-video-make-battlestar-galactica-look-small/
+
+Battlestar Galactica is one of the most expansive space operas to ever grace a TV screen, but even that can feel small compared to a sci-fi rival.
+---------
+
+# God Of War Trilogy Remake Officially Getting One Massive Controversial Change
+
+Gaming, God of War Trilogy Remake, God of War, Triple-A Games
+
+Sat, 11 Jul 2026 13:00:21 GMT
+
+https://screenrant.com/god-of-war-trilogy-remake-change-digital/
+
+The God of War Trilogy Remake is likely to be one of the first major PlayStation games to suffer from the all-digital future that's been proposed.
+---------
+
+# Spider-Man: Brand New Day Is Finally Making Up For One Of The Worst Hulk Insults In The MCU
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Hulk
+
+Sat, 11 Jul 2026 12:55:20 GMT
+
+https://screenrant.com/spider-man-brand-new-day-hulk-powers-fight/
+
+The Hulk's role in Spider-Man: Brand New Day deals with one of the oldest issues with the way the MCU has had to handle the hero over the years.
+---------
+
+# Major Avenger's Spider-Man: Brand New Day Return Revealed By Marvel's Kevin Feige
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Sat, 11 Jul 2026 12:51:37 GMT
+
+https://screenrant.com/spider-man-brand-new-day-yelena-marvel-return-kevin-feige-confirmed/
+
+Spider-Man: Brand New Day will seemingly feature another Avengers member in addition to Mark Ruffalo's Hulk, and it is a major MCU hero.
+---------
+
+# Paramount Canceled Star Trek's Best Future At The Worst Time
+
+Streaming TV, Star Trek, Masked Recs
+
+Sat, 11 Jul 2026 12:30:20 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-canceled-best-future/
+
+The cancellation of Star Trek's final remaining live-action shows has impacted the franchise's most exciting and bold vision for the future.
+---------
+
+# 9 Hilarious Movies With More Than One All-Time Great Comedy Scene
+
+Movies, Comedy, Explainer
+
+Sat, 11 Jul 2026 12:30:20 GMT
+
+https://screenrant.com/comedy-movies-multiple-hilarious-scenes/
+
+Some comedy films are so great that they feature not one, but two hilarious scenes that stand up as some of the best in cinematic history.
+---------
+
+# PlayStation Drops 6 Free Downloads You Can Claim Now Without PS Plus
+
+Gaming, PlayStation
+
+Sat, 11 Jul 2026 12:30:20 GMT
+
+https://screenrant.com/playstation-6-free-downloads-july-2026-no-ps-plus/
+
+Discover 6 free PlayStation demos available to download now, including Carry the Glass, Salvation: Echoes of War, and more.
+---------
+
+# All 10 X-Men TV Series, Ranked
+
+Superheroes, X-Men, Marvel Cinematic Universe, X-Men: The Animated Series, X-Men: Evolution, X-Men '97, Wolverine and the X-Men, Legion, The Gifted
+
+Sat, 11 Jul 2026 12:30:20 GMT
+
+https://screenrant.com/every-xmen-tv-show-ranked/
+
+From Wolverine's bizarre Australian-accent era to groundbreaking animated classics, here's how all 10 X-Men TV shows ever made stack up.
+---------
+
+# 6 NCIS Theories About The Real Reason For Tony Dinozzo's NCIS Return
+
+Network TV, NCIS
+
+Sat, 11 Jul 2026 12:15:19 GMT
+
+https://screenrant.com/ncis-season-24-tony-dinozzo-return-reason-theories/
+
+Michael Weatherly is returning to NCIS in the fall, less than a year after NCIS: Tony & Ziva was cancelled, possibly for one of these reasons.
+---------
+
+# Disney's $1.7B Franchise Returns as a Streaming Hit as Remake Sets RT Record
+
+Movies, Moana
+
+Sat, 11 Jul 2026 13:00:13 GMT
+
+https://www.cbr.com/disney-animated-moana-franchise-streaming-success-july-2026/
+
+Ten years later, the beloved Disney animated movie returns to the streaming charts. But will its live action counterpart enjoy the same success?
+---------
+
+# 10 Best Far Side Comic Strips From The 1990s
+
+Comics, The Far Side
+
+Sat, 11 Jul 2026 13:00:13 GMT
+
+https://www.cbr.com/best-far-side-comic-strips-from-the-1990s/
+
+The Far Side comics continue to entertain. The 1990s saw an incorporation of more parody and cynicism, and these panels show the hilarious results.
+---------
+
+# CBS Quietly Rewrites Scott Caan's Hawaii Five-0 Role in NCIS & Breaks Franchise Canon
+
+TV, Hawaii Five-0, NCIS, NCIS: Los Angeles
+
+Sat, 11 Jul 2026 12:30:12 GMT
+
+https://www.cbr.com/scott-caan-cbs-comeback-ncis-new-york-break-franchise-canon/
+
+CBS's latest NCIS spinoff will completely shift expectations for Scott Caan of Hawaii Five-0 fame, officially breaking the Navy franchise's rules.
+---------
+
+# Ben 10 Variant Cover Has a Surprising Reference to Akira
+
+Comics, Ben 10, Akira
+
+Sat, 11 Jul 2026 12:00:12 GMT
+
+https://www.cbr.com/ben-10-akira-variant-cover-tribute/
+
+Does Ben 10's Omnitrix include the monster from this anime classic?
+---------
+
+# It's Official, In 3 Months Guillermo del Toro's Pan's Labyrinth Returns to Theaters
+
+Movies, Pan's Labyrinth
+
+Sat, 11 Jul 2026 12:00:12 GMT
+
+https://www.cbr.com/pans-labyrinth-20th-anniversary-best-dark-fantasy-movie/
+
+Audiences will finally have the rare chance to experience one of cinema's defining fantasy films on the big screen again in October.
+---------
+
+# 'Evil Dead Burn's Most Talked-About Scene Was Done with an Actual Sex Doll
+
+Exclusives, Evil Dead Burn, Luciane Buchanan, Ladies Night, Horror
+
+Sat, 11 Jul 2026 13:01:13 GMT
+
+https://collider.com/evil-dead-burn-thya-death-luciane-buchanan/
+
+While on Collider Ladies Night, Evil Dead Burn star Luciane Buchanan broke down Thya's most shocking scenes in the movie.
+---------
+
+# 10 Heaviest TV Episodes of the Last 15 Years
+
+TV, Television, The Bear, Game Of Thrones, Breaking Bad
+
+Sat, 11 Jul 2026 12:53:13 GMT
+
+https://collider.com/heaviest-tv-episodes-last-15-years-ranked/
+
+The Bear, Breaking Bad, and Game of Thrones have hit audiences with brutal moments over the last 15 years, but which TV episode is the heaviest?
+---------
+
+# 10 Best Mindless Action Movies of the 1980s
+
+Movie, Missing in Action, Commando, Highlander, The Running Man
+
+Sat, 11 Jul 2026 12:46:13 GMT
+
+https://collider.com/best-mindless-action-movies-1980s-ranked/
+
+There were plenty of good action movies from the 1980s that feel pretty simple and even mindless, including Commando and Missing in Action.
+---------
+
+# Quentin Tarantino's 10/10 Western Is Riding Off Streaming Despite Sequel News
+
+Movie News, Django Unchained, Quentin Tarantino, Jamie Foxx, Leonardo DiCaprio
+
+Sat, 11 Jul 2026 12:45:13 GMT
+
+https://collider.com/django-unchained-leaving-paramount-plus-july-24-2026/
+
+The blockbuster Quentin Tarantino Western Django Unchained, starring Jamie Foxx and Leonardo DiCaprio, is leaving Paramount+ soon.
+---------
+
+# Prime Video’s 10/10 ‘Reacher’ Replacement Is So Good, It’s Already Getting Another Season
+
+TV News, Cross, Reacher, Prime Video, Aldis Hodge
+
+Sat, 11 Jul 2026 12:30:13 GMT
+
+https://collider.com/prime-video-cross-season-2-streaming-success-july-2026/
+
+Cross, which has been hailed as Prime Video's perfect Reacher replacement, already has a third season on the way less than two years after Season 1.
+---------
+
+# 10 Perfect Comic Books That Every Spider-Man Fan Must Read
+
+Books and Comics, Spider-Man, Comics, Superhero, Spider-Man: Brand New Day
+
+Sat, 11 Jul 2026 12:30:13 GMT
+
+https://collider.com/spider-man-comics-every-fan-must-read/
+
+Comic issues like Kraven's Last Hunt and The Night Gwen Stacy Died rank among the most essential that every self-respecting Spider-Man fan must read.
+---------
+
+# 10 Best Louis L’Amour Western Books
+
+Books and Comics, Hondo, The Sacketts, Books, Westerns
+
+Sat, 11 Jul 2026 12:14:13 GMT
+
+https://collider.com/best-louis-lamour-western-books-ranked/
+
+Hondo, The Daybreakers, and The Lonesome Gods are all among the very best Western novels written by Louis L'Amour.
+---------
+
+# 'Supernatural's Rob Benedict Reveals Where Chuck's Story Could Go After Season 15
+
+Interviews, Supernatural, Rob Benedict, The CW, Eric Kripke
+
+Sat, 11 Jul 2026 12:03:12 GMT
+
+https://collider.com/supernatural-rob-benedict-chuck-interview-creation-toronto-2026/
+
+Supernatural's Rob Benedict discusses his journey into the fandom, the show's impact on his life, and his hopes for Chuck and the Winchesters.
+---------
+
+# Ridley Scott's 8-Part Sci-Fi Masterpiece Shoots to Success Ahead of New Episodes
+
+TV News, Alien: Earth, Ridley Scott, Hulu, Noah Hawley
+
+Sat, 11 Jul 2026 12:00:12 GMT
+
+https://collider.com/ridley-scott-sci-fi-alien-earth-streaming-success-hulu-july-2026/
+
+Fans around the world are binging the first season of the Ridley Scott-produced sci-fi series, Alien: Earth, before the return of Season 2.
+---------
+
+# ‘Obsession’ Proves Curry Barker Is Exactly What the Texas Chainsaw Massacre Franchise Needs
+
+Movie Features, Obsession, Curry Barker, Inde Navarrette, Texas Chain Saw Massacre
+
+Sat, 11 Jul 2026 11:47:13 GMT
+
+https://collider.com/obsession-curry-barker-texas-chainsaw-massacre-franchise-reboot/
+
+The Texas Chainsaw Massacre franchise has flailed for years, but Curry Barker's tension-building on Obsession shows how he can save the series.
+---------
+
+# Netflix's 8-Year-Old Thriller Is the Biggest Horror Movie in Streaming History
+
+Movie News, Bird Box, Hot on Streaming, Horror, Netflix
+
+Sat, 11 Jul 2026 12:00:18 GMT
+
+https://movieweb.com/bird-box-netflix-most-watched-horror-movie-streaming-history/
+
+The most-watched horror movie in Netflix history is a compelling thriller based on a popular 2014 novel by Josh Malerman.
+---------
+
 # Captain America Fans Left Bewildered By Weird New Design Detail
 
 Gaming, Captain America, Marvel Rivals, Triple-A Games
