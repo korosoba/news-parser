@@ -1,3 +1,267 @@
+# 10 Best Crime Movie Plot Twists, Ranked
+
+Classic Movies, Crime
+
+Sat, 11 Jul 2026 23:20:20 GMT
+
+https://screenrant.com/best-crime-movie-plot-twists-ranked/
+
+The best crime movies often shock the viewers by revealing that nothing was as it seemed, and these are the best, unexpected twists in crime movies.
+---------
+
+# 40 Years Later, James Cameron's Alien Sequel Has The Best Line In The Franchise
+
+Movies, Aliens
+
+Sat, 11 Jul 2026 23:00:20 GMT
+
+https://screenrant.com/james-cameron-aliens-ripley-best-quote-alien-franchise/
+
+James Cameron's Aliens still has the most iconic line in the entire franchise, courtesy of Ellen Ripley: "Get away from her, you b****!"
+---------
+
+# Mistborn Officially Returns November 18 With New Adventure
+
+Gaming, Mistborn, The Cosmere, Brandon Sanderson, PC, The Well of Ascension (2007), The Final Empire (2006), The Hero of Ages (2008)
+
+Sat, 11 Jul 2026 23:00:20 GMT
+
+https://screenrant.com/mistborn-well-of-ascension-expansion-november-18/
+
+Brandon Sanderson's iconic Mistborn saga officially returns on November 18 with a brand-new adventure for fans of the iconic fantasy series.
+---------
+
+# 7 Most Iconic Lobo Quotes
+
+Comics, DC Comics, Lobo
+
+Sat, 11 Jul 2026 23:00:20 GMT
+
+https://screenrant.com/7-most-iconic-lobo-quotes/
+
+DC's ultimate trash-talker is rife with lines that are just as epic as they are foul.
+---------
+
+# With 5 Seasons Across 3 Shows, This Epic Historical Series Is 100% Worth Your Time
+
+Classic TV, Masked Recs
+
+Sat, 11 Jul 2026 22:45:19 GMT
+
+https://screenrant.com/spartacus-epic-historical-drama-franchise-series-must-watch/
+
+This sprawling world of historical fiction is the prime example of how history and entertainment can come together in one incredible story.
+---------
+
+# It's Official, King Of The Hill Returns In Less Than 2 Weeks
+
+Streaming TV, King of the Hill
+
+Sat, 11 Jul 2026 22:30:20 GMT
+
+https://screenrant.com/king-of-the-hill-season-15-revival-new-era-return/
+
+Hulu's King of the Hill revival is coming back for its second season in just a couple of weeks, and I can't wait to see Hank and Peggy again.
+---------
+
+# 15 Years Later, This Cyclops Line Is Still His Greatest Quote In X-Men History
+
+Comics, X-Men
+
+Sat, 11 Jul 2026 22:30:20 GMT
+
+https://screenrant.com/cyclops-best-quote-x-men-history/
+
+Do you agree with our pick?
+---------
+
+# MCU Spider-Man Star Reveals That He Has Never Met Tom Holland
+
+Movies, Spider-Man: Brand New Day, Tom Holland, J.K. Simmons
+
+Sat, 11 Jul 2026 22:22:25 GMT
+
+https://screenrant.com/mcu-spider-man-j-k-simmons-never-met-tom-holland/
+
+The actor behind one of Spider-Man's most iconic characters revealed that he has never met Tom Holland despite appearing in several of his films.
+---------
+
+# 5 Unforgettable Far Side Comics Starring Dogs
+
+Comics, The Far Side
+
+Sat, 11 Jul 2026 22:22:22 GMT
+
+https://screenrant.com/far-side-dogs-unforgettable-comics/
+
+Perfect Far Side punchlines about pups!
+---------
+
+# Apple TV's Upcoming Sci-Fi Series Is Westworld Meets The Matrix
+
+Streaming TV, Masked Recs
+
+Sat, 11 Jul 2026 22:15:19 GMT
+
+https://screenrant.com/apple-tv-neuromancer-westworld-meets-the-matrix/
+
+Apple TV has been dominating the sci-fi space for years now, and it could be about to get even better thanks to an upcoming new release.
+---------
+
+# Dutton Ranch Star Was Shocked Character Wasn't Killed Off: 'Well, This Is It'
+
+TV, Dutton Ranch
+
+Sat, 11 Jul 2026 23:19:53 GMT
+
+https://www.cbr.com/dutton-ranch-juan-pablo-raba-character-fate-season-1/
+
+One of the stars of Dutton Ranch was pleasantly surprised to learn they weren't being killed off in Season 1.
+---------
+
+# 5 Greatest Fantasy Anime Masterpieces of the Last Decade
+
+Anime, Frieren: Beyond Journey's End, Overlord
+
+Sat, 11 Jul 2026 23:15:12 GMT
+
+https://www.cbr.com/fantasy-anime-masterpieces-of-the-last-decade/
+
+Anime has hundreds of compelling fantasy anime to enjoy, but there's a select handful of titles that push the magical genre to its apex!
+---------
+
+# The 10 Most Disturbing Joker Moments Ever Written
+
+Comics
+
+Sat, 11 Jul 2026 23:00:12 GMT
+
+https://www.cbr.com/10-most-terrifying-joker-moments/
+
+There's a reason Joker is Batman's most dangerous foe, and among the scariest villains in comic book history.
+---------
+
+# 10 Fantasy Books With the Greatest Worlds
+
+Movies, Fantasy, books, The Lord of the Rings
+
+Sat, 11 Jul 2026 22:30:12 GMT
+
+https://www.cbr.com/fantasy-books-with-the-greatest-worlds-list/
+
+Settings that are filled with magic, wonder, and awe, excellent world-building is one of the most essential aspects of a good fantasy novel.
+---------
+
+# It's Official, Pokémon Cards As We Know Them Are Over
+
+Games, Pokemon, Pokemon Trading Card Game, Nintendo
+
+Sat, 11 Jul 2026 22:15:12 GMT
+
+https://www.cbr.com/official-pokemon-trading-cards-scalping-over/
+
+Nintendo has officially commented on the Pokémon Trading Card Game scalping problem and has confirmed how it will be solved in the near future.
+---------
+
+# Say Goodbye to Christopher Nolan's Sci-Fi Masterpiece on Streaming
+
+Movie News, The Prestige, Christian Bale, Hugh Jackman, Peacock
+
+Sat, 11 Jul 2026 23:16:12 GMT
+
+https://collider.com/christopher-nolan-the-prestige-leaving-peacock-august-2026/
+
+Christopher Nolan's The Prestige, which many regard as one of his most underrated films, is about to be removed from Peacock. Find out when.
+---------
+
+# Ridley Scott’s Franchise-Ending Sci-Fi Epic Officially Says Goodbye HBO Max
+
+Movie News, Ridley Scott, Alien: Covenant, Sci-Fi, HBO Max
+
+Sat, 11 Jul 2026 23:00:13 GMT
+
+https://collider.com/ridley-scott-sci-fi-movie-alien-covenant-leaving-hbo-max-august-2026/
+
+Ridley Scott's Alien: Covenant, which underperformed at the box office but received positive reviews, is about to be removed from HBO Max.
+---------
+
+# 10 Best Epic Books of All Time
+
+Books and Comics, The Stand, War and Peace, The Dark Tower, The Lord of the Rings
+
+Sat, 11 Jul 2026 22:51:13 GMT
+
+https://collider.com/best-epic-books-all-time-ranked/
+
+Classics like The Winds of War, The Stand, and The Lord of the Rings can all count themselves among the very best epic books ever published.
+---------
+
+# The Keanu Reeves Movie That Redefined the Action Genre Is Leaving HBO Max
+
+Movie News, John Wick, Keanu Reeves, Action
+
+Sat, 11 Jul 2026 22:45:12 GMT
+
+https://collider.com/keanu-reeves-john-wick-leaving-hbo-max-august-2026/
+
+Keanu Reeves' genre-redefining action hit, John Wick, is about to be removed from HBO Max. Find out how long you have left to watch it.
+---------
+
+# Prime Video's 3-Part Sci-Fi Masterpiece Is Refusing to Budge From the Streaming Top 10
+
+TV News, Fallout, Prime Video, Sci-Fi, Walton Goggins
+
+Sat, 11 Jul 2026 22:31:14 GMT
+
+https://collider.com/fallout-streaming-success-prime-video-july-2026/
+
+Fallout, which has a strong case for being the best sci-fi show of the last few years, is still dominating streaming on Prime Video before Season 3.
+---------
+
+# Taylor Sheridan's 5-Part Crime Thriller Is Building Toward an Epic 2026 Finale
+
+TV News, Mayor of Kingstown, Jeremy Renner, Taylor Sheridan, Paramount Plus
+
+Sat, 11 Jul 2026 22:15:12 GMT
+
+https://collider.com/taylor-sheridan-mayor-of-kingstown-season-5-finale-2026/
+
+Taylor Sheridan's Mayor of Kingstown has wrapped filming on Season 5, setting the stage for an epic finale in 2026.
+---------
+
+# Jason Statham's Burt Reynolds Action Thriller Reboot Beats the Original
+
+Features, Jason Statham
+
+Sat, 11 Jul 2026 23:00:17 GMT
+
+https://movieweb.com/jason-statham-wild-card-burt-reynolds-remake/
+
+Jason Statham's 'Wild Card' is a reboot of the 1986 Burt Reynolds movie 'Heat.' But is it better than the original?
+---------
+
+# New 'Avengers: Doomsday' Promo Reunites Three Core Cast Members
+
+Movie News, Avengers: Doomsday, Chris Evans, Robert Downey Jr., Chris Hemsworth, MCU
+
+Sat, 11 Jul 2026 22:59:12 GMT
+
+https://movieweb.com/avengers-doomsday-promo-evans-downey-hemsworth/
+
+Chris Evans, Robert Downey Jr., and Chris Hemsworth appeared in a video that played at the Shanghai Expo, teasing the next MCU film.
+---------
+
+# 8 Great Gangster Movies No One Ever Talks About
+
+Movie Lists
+
+Sat, 11 Jul 2026 22:30:19 GMT
+
+https://movieweb.com/great-gangster-movies-no-one-talks-about/
+
+While classics like 'Goodfellas' are great to revisit, there are plenty of other gangster movies to check out.
+---------
+
 # Cyberpunk 2077: Apex Expands The Game’s Map
 
 Gaming, Cyberpunk 2077
