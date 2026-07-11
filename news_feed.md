@@ -1,3 +1,355 @@
+# 8 Hit Shows From The Early 2000s That Hit Much Different Today
+
+Classic TV
+
+Sat, 11 Jul 2026 21:00:21 GMT
+
+https://screenrant.com/popular-shows-early-2000s-hit-different-today/
+
+The biggest TV shows of the early 2000s are still popular today, if a time capsule of a bygone era, but the way audiences view them changes over time.
+---------
+
+# The One Spider-Man Character Who Won’t Be In Brand New Day Is The Right Call after No Way Home
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man: No Way Home
+
+Sat, 11 Jul 2026 21:00:21 GMT
+
+https://screenrant.com/spider-man-brand-new-day-j-jonah-jameson-no-way-home/
+
+Though Spider-Man: Brand New Day has an expansive cast list, one famous Marvel character who's a staple of Spider-Man's stories will be absent.
+---------
+
+# Xbox Game Pass Bombshell Leaves Subscribers Torn
+
+Gaming, Xbox Game Pass, Xbox
+
+Sat, 11 Jul 2026 21:00:21 GMT
+
+https://screenrant.com/xbox-game-pass-30-million-subscriber-reaction/
+
+Xbox Game Pass subscriber numbers reportedly fall far below what Microsoft had projected or hoped for, and the service's own users know why.
+---------
+
+# Disney+ Has The Potential To Change Streaming Forever
+
+Streaming TV, Disney Plus
+
+Sat, 11 Jul 2026 20:45:19 GMT
+
+https://screenrant.com/disney-plus-change-streaming-free-tier-plan/
+
+Disney+ is actively exploring ways to change the streaming industry forever with a radical new plan that would challenge how streamers operate.
+---------
+
+# Star Wars Officially Settles Fan Debate After 49 Years
+
+Star Wars
+
+Sat, 11 Jul 2026 20:39:20 GMT
+
+https://screenrant.com/star-wars-han-solo-chewbacca-sidekick/
+
+Although Han Solo is usually perceived as the face of his duo, a surprising amount of Star Wars lore supports the opposite interpretation.
+---------
+
+# 10 Classic Movies You Wouldn't Believe Have A PG Rating
+
+Movies
+
+Sat, 11 Jul 2026 20:30:21 GMT
+
+https://screenrant.com/classic-movies-pg-rating-surprising/
+
+Changes in the MPAA rating system, as well as shifts in cultural sentiments, have left some mature movies with shockingly low PG ratings.
+---------
+
+# Lion King Star's $27M Lawsuit Over Circle Of Life Translation Gets Verdict
+
+Movies, The Lion King
+
+Sat, 11 Jul 2026 20:16:13 GMT
+
+https://screenrant.com/lion-king-circle-of-life-lawsuit-comic-learnmore-dismissed-verdict/
+
+The infamous lawsuit surrounding a misunderstanding regarding the classic Lion King song, Circle of Life, has finally come to a close.
+---------
+
+# Say Goodbye To Criminal Minds Season 19's Best Character
+
+Network TV, Criminal Minds
+
+Sat, 11 Jul 2026 20:15:20 GMT
+
+https://screenrant.com/criminal-minds-connor-storrie-lance-kingston-departure-setup/
+
+Criminal Minds season 19 has almost reached its climactic end, but one of the most intriguing additions to the cast will likely disappear— for good.
+---------
+
+# 90 Day Fiancé Season 2: Where Are They Now?
+
+Reality TV, 90 Day Fiancé
+
+Sat, 11 Jul 2026 20:00:23 GMT
+
+https://screenrant.com/90-day-fiance-season-2-where-are-they-now/
+
+It's been nine years since 90 Day Fiancé season 2 aired, and much has changed. What is the cast up to today?
+---------
+
+# Mass Effect Officially Returns To Its Best Era In 2027
+
+Gaming, Mass Effect
+
+Sat, 11 Jul 2026 20:00:22 GMT
+
+https://screenrant.com/mass-effect-edi-statue-2027-release/
+
+Dark Horse Direct releases a highly detailed Mass Effect: EDI Figure, commemorating the iconic AI from the Mass Effect trilogy.
+---------
+
+# Netflix's Twilight Follow-Up Finally Gets Major Update With Returning Characters
+
+TV, The Twilight Saga, Midnight Sun, Twilight
+
+Sat, 11 Jul 2026 21:10:17 GMT
+
+https://www.cbr.com/netflix-midnight-sun-casting-characters/
+
+The streaming giant is handling the follow-up to the hit vampire saga.
+---------
+
+# 5 Most Bizarre A24 Movies of All Time, Ranked
+
+Movies, A24
+
+Sat, 11 Jul 2026 21:00:13 GMT
+
+https://www.cbr.com/strangest-a24-movies-ever-ranked-list/
+
+A24 has become a premier studio in recent years, but it has also created some strange and bizarre films.
+---------
+
+# Kevin Feige Teases Florence Pugh's Important Role Before Avengers: Doomsday
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Sat, 11 Jul 2026 20:37:49 GMT
+
+https://www.cbr.com/kevin-feige-florence-pugh-important-role-before-avengers-doomsday/
+
+Kevin Feige opens up about the key role that Florence Pugh's Yelena Belova will be playing when Avengers: Doomsday arrives in theaters this winter.
+---------
+
+# 5 Forgotten Martial Arts Movies That Are Amazing From Start to Finish
+
+Movies, Action
+
+Sat, 11 Jul 2026 20:30:12 GMT
+
+https://www.cbr.com/perfect-martial-arts-movies-nobody-remembers-list/
+
+The martial arts genre is full of hidden gems and there are some forgotten movies that are perfect from the moment they begin.
+---------
+
+# Steven Spielberg's Weirdest Superhero Series Was Decades Ahead of the Internet
+
+TV, Freakazoid!, steven spielberg, superheroes
+
+Sat, 11 Jul 2026 20:30:12 GMT
+
+https://www.cbr.com/steven-spielberg-freakazoid-ahead-of-its-time/
+
+Steven Spielberg’s weirdest cartoon flopped in the '90s because its chaotic, random humor predicted modern internet meme culture decades too early.
+---------
+
+# Demon Slayer: Every Hashira's Nichirin Blade, Ranked
+
+Anime, Demon Slayer: Kimetsu no Yaiba, shonen anime
+
+Sat, 11 Jul 2026 20:16:13 GMT
+
+https://www.cbr.com/demon-slayer-hashira-nichirin-blades-ranked/
+
+Nichirin blades are more than just weapons; they are an extension of a Demon Slayer's identity.
+---------
+
+# Robert Pattinson Reacts to Unexpected Batman Crossover at The Odyssey Premiere
+
+Movies, The Odyssey
+
+Sat, 11 Jul 2026 20:12:30 GMT
+
+https://www.cbr.com/robert-pattinson-batman-the-odyssey-premiere/
+
+The Batman star Robert Pattinson is surprised by the Dark Knight at The Odyssey's premiere.
+---------
+
+# Magic: The Gathering Officially Confirms More Marvel Sets Coming Soon
+
+Games, Magic: The Gathering, Marvel, Tabletop
+
+Sat, 11 Jul 2026 20:10:12 GMT
+
+https://www.cbr.com/magic-the-gathering-new-marvel-sets-coming-soon/
+
+Magic: The Gathering's Principal Designer has confirmed that more Marvel Comics content is coming to the tabletop card game in the future.
+---------
+
+# Taraji P. Henson's $21M Gritty Crime Thriller Is Officially Getting Its Redemption on Streaming After Flopping in Theaters
+
+Movies, Proud Mary, Thriller, Action
+
+Sat, 11 Jul 2026 20:00:13 GMT
+
+https://www.cbr.com/taraji-p-henson-proud-mary-action-crime-thriller-starz-success-july-2026/
+
+Taraji P. Henson's underrated action-crime thriller, Proud Mary, is finding redemption on streaming almost a decade later.
+---------
+
+# 'Supernatural's 2026 Return Promises To Take the Franchise to a Whole New Level
+
+TV Features, Supernatural, Jensen Ackles, Jared Padalecki, Comics
+
+Sat, 11 Jul 2026 21:10:15 GMT
+
+https://collider.com/supernatural-wayward-special-2026-return/
+
+Supernatural: Wayward Special will see Sam and Dean split up for the first time in the comic series, leading into a new event for the franchise.
+---------
+
+# 2 Decades Later, Clint Eastwood’s Revolutionary WWII Epic Is Leaving Paramount+
+
+Movie News, Clint Eastwood, World War II, Flags of Our Fathers, Letters from Iwo Jima
+
+Sat, 11 Jul 2026 21:00:14 GMT
+
+https://collider.com/clint-eastwood-ww2-movie-flags-of-our-fathers-leaving-paramount-plus-august-2026/
+
+Clint Eastwood's WWII epic Flags of Our Fathers, which served as a companion piece to Letters from Iwo Jima, is leaving Paramount+.
+---------
+
+# 6 Worst Sci-Fi Horror Movies That Failed on Every Level
+
+Movie, Sci-Fi, Horror, Dracula 3000, Jason X
+
+Sat, 11 Jul 2026 20:38:13 GMT
+
+https://collider.com/worst-sci-fi-horror-movies/
+
+The Cloverfield Paradox, Doom, and Aliens vs Predator: Requiem are among the absolute worst, abysmal sci-fi horror movies that failed on every level.
+---------
+
+# Say Hello to 2026’s Next $1 Billion Blockbuster in 19 Days
+
+Movie News, Spider-Man: Brand New Day, Tom Holland, Destin Daniel Cretton, MCU
+
+Sat, 11 Jul 2026 20:30:12 GMT
+
+https://collider.com/spider-man-brand-new-day-release-date-july-31-2026-1-billion-projected-box-office/
+
+Spider-Man: Brand New Day, which is projected to easily surpass $1 billion at the global box office, arrives at the end of this month.
+---------
+
+# 10 Greatest Animated Buddy Comedy Movies
+
+Movie, Animation, Toy Story, Comedy, Robot Dreams
+
+Sat, 11 Jul 2026 20:29:13 GMT
+
+https://collider.com/best-animated-buddy-comedy-movies-ranked/
+
+The buddy comedy has a long history of success in feature-length animation, with Zootopia, Aladdin, and Shrek as some of the subgenre's best examples.
+---------
+
+# 26 Years Later, This ‘Sopranos’ Episode Changed the Show Forever
+
+TV Features, The Sopranos, James Gandolfini, HBO, Crime
+
+Sat, 11 Jul 2026 20:28:13 GMT
+
+https://collider.com/the-sopranos-best-episode-funhouse-tony-soprano-masterpiece/
+
+The Sopranos Season 2 finale “Funhouse” proved why Tony Soprano remains TV’s greatest antihero and helped turn the HBO drama into a masterpiece.
+---------
+
+# ‘The Late Show’ Is Over, but Stephen Colbert’s CBS Battle Is Just Getting Messier
+
+TV Features, Stephen Colbert, CBS, Late Show with Stephen Colbert, Comedy
+
+Sat, 11 Jul 2026 20:06:14 GMT
+
+https://collider.com/the-late-show-stephen-colbert-cbs-battle-emmys/
+
+Stephen Colbert’s fight with CBS didn’t end when The Late Show signed off. It’s only grown messier in the months since.
+---------
+
+# The 10 Best Deadites From the 'Evil Dead' Movies, Ranked
+
+Features, Evil Dead Burn, Evil Dead
+
+Sat, 11 Jul 2026 21:00:19 GMT
+
+https://movieweb.com/evil-dead-best-deadites-ranked/
+
+The malevolent and mischievous Deadites have wreaked havoc across all 'Evil Dead' movies, but some are simply more diabolical, and therefore more fun.
+---------
+
+# Christopher Nolan Breaks Silence On 'The Odyssey' Casting After Backlash
+
+Movie News, The Odyssey, Christopher Nolan, Lupita Nyong'o
+
+Sat, 11 Jul 2026 20:46:57 GMT
+
+https://movieweb.com/christopher-nolan-odyssey-casting-backlash/
+
+The Oscar-winning director finally responds to the criticism surrounding his casting choices for 'The Odyssey.'
+---------
+
+# 'Mayor of Kingstown' Star's New Series Is Perfect for Taylor Sheridan Fans
+
+TV News, The Westies
+
+Sat, 11 Jul 2026 20:27:19 GMT
+
+https://movieweb.com/the-westies-perfect-for-taylor-sheridan-fans/
+
+MovieWeb sat down with actor Hamish Allan-Headley to talk about how the upcoming crime series parallels Sheridan's work on TV.
+---------
+
+# Karl Urban's $80M Action Fantasy Epic Confirms New Release
+
+Movie News, Simon McQuoid, Mortal Kombat II, Karl Urban
+
+Sat, 11 Jul 2026 20:09:08 GMT
+
+https://movieweb.com/karl-urbans-80m-action-fantasy-epic-confirms-new-release/
+
+Karl Urban's 'Mortal Kombat II' is heading to 4K Blu-ray and Blu-ray after its theatrical run.
+---------
+
+# Liam Neeson's 106-Minute Action Thriller Lands on Free Streaming
+
+Movie News, In the Land of Saints and Sinners, Tubi, Coming/Leaving Streaming, Liam Neeson, Action
+
+Sat, 11 Jul 2026 20:00:19 GMT
+
+https://movieweb.com/liam-neeson-in-the-land-of-saints-and-sinners-action-streaming-free-tubi-july-2026/
+
+Liam Neeson's action thriller western 'In the Land of Saints and Sinners' will stream for free on Tubi in July 2026.
+---------
+
+# 'Tracker' Season 4: Everything We Know
+
+Features, Tracker
+
+Sat, 11 Jul 2026 20:00:19 GMT
+
+https://movieweb.com/tracker-season-4-everything-we-know/
+
+Filming is underway for Tracker Season 4, and aside from the move from B.C. to Los Angeles, there are a few things we know and suspect for the return.
+---------
+
 # Darth Maul Actor’s Dark Side Star Wars Theory Is Genius
 
 Star Wars, Star Wars: Maul - Shadow Lord, Anakin Skywalker/Darth Vader, Darth Maul, Count Dooku, Emperor Palpatine / Darth Sidious
