@@ -1,3 +1,333 @@
+# Stardew Valley 3D Is A Very Different Experience
+
+Gaming, Stardew Valley
+
+Sat, 11 Jul 2026 04:30:21 GMT
+
+https://screenrant.com/stardew-valley-3d-mod-available-now/
+
+A new Stardew Valley mod transforms the beloved farming sim into a first-person 3D experience, with VR support planned.
+---------
+
+# Clayface Backstory Revealed Ahead Of New Movie
+
+DC Comics, Clayface
+
+Sat, 11 Jul 2026 04:30:21 GMT
+
+https://screenrant.com/clayface-backstory-basil-karlo/
+
+Clayface has a brand-new appearance that will tide fans over until the villain makes his live-action debut with an origin story in the DCU.
+---------
+
+# GTA 5 Free Download Officially Available For 48 Hours
+
+Gaming, Grand Theft Auto 5, Grand Theft Auto Online
+
+Sat, 11 Jul 2026 04:00:31 GMT
+
+https://screenrant.com/gta-5-free-download-online-48-hours-july-2026/
+
+Participate in the GTA Online Fine Art Collector event between June 18 and July 13 to earn up to GTA$1,500,000 in bonus cash
+---------
+
+# Netflix's New Crime Thriller Book Adaptation Is 10/10, And It's The Perfect Weekend Binge
+
+TV, Netflix, Masked Recs
+
+Sat, 11 Jul 2026 03:32:36 GMT
+
+https://screenrant.com/im-not-afraid-netflix-crime-thriller-perfect/
+
+Netflix's latest book-to-screen adaptation is the perfect mystery-filled miniseries that will keep viewers hooked for a couple of hours.
+---------
+
+# Pop Culture Has Its New Pikachu, And It's Coming from Marvel
+
+Marvel Comics, Wolverine
+
+Sat, 11 Jul 2026 03:31:24 GMT
+
+https://screenrant.com/new-wolverine-mascot-design/
+
+Move over, Jeff the Land Shark—a new adorable Marvel critter has arrived, and it may only be a matter of time until they debut in Marvel Rivals, too.
+---------
+
+# X-Men '97's Biggest Death Is Going to Have Major Repercussions For Seasons 3 & 4
+
+TV, X-Men '97
+
+Sat, 11 Jul 2026 03:23:58 GMT
+
+https://screenrant.com/xmen-97-magneto-death-repercussions-seasons-3-4/
+
+According to X-Men '97's executive producer, Larry Houston, the Disney+ animated series' most shocking death to date will have a lasting impact.
+---------
+
+# Paramount+’s 94% RT Star Trek Series Will Officially Introduce A Major Movie Character
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Sat, 11 Jul 2026 03:06:15 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-kirk-david-marcus/
+
+Star Trek: Strange New Worlds season 4 will officially introduce a major character in James T. Kirk's life who later appears in Star Trek II.
+---------
+
+# There's Only One Class Of Dragon Ball Fighter Goku and Vegeta Will Never Surpass
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Sat, 11 Jul 2026 03:00:23 GMT
+
+https://screenrant.com/dragon-ball-goku-vegeta-never-surpass-angel-god/
+
+Dragon Ball has always made a point of pushing past one's limits, but one particular benchmark doesn't seem feasible for Goku or Vegeta to clear.
+---------
+
+# July 13 Is Going To Be A Huge Day For Xbox Game Pass
+
+Gaming, Xbox Game Pass, PC, Indie
+
+Sat, 11 Jul 2026 03:00:23 GMT
+
+https://screenrant.com/xbox-game-pass-ascend-to-zero-day-one-july-13/
+
+Xbox Game Pass is getting a promising new day-one release added to the catalog on July 13, and you’ll want to mark your calendar to play it.
+---------
+
+# Big Brother 28: Week 1 Nominations Made By HOH (SPOILERS)
+
+Reality TV, Big Brother
+
+Sat, 11 Jul 2026 02:45:22 GMT
+
+https://screenrant.com/big-brother-28-week-1-nominations-made-by-hoh-spoilers/
+
+Learn the first set of nominees in Big Brother 28 as the live feeds provide spoilers on the HOH's choices & the houseguests' reactions to the twist.
+---------
+
+# Colin Farrell Explains How His Sugar Character Differs From Traditional Film Noir Detectives
+
+TV, colin farrell, Sugar, Apple TV
+
+Sat, 11 Jul 2026 04:23:17 GMT
+
+https://www.cbr.com/colin-farrell-interview-sugar-noir-detective-differences/
+
+Sugar Season 2 star Colin Farrell discusses John Sugar’s noir voiceover, love of classic movies, and unusually compassionate detective.
+---------
+
+# Silo Star Details Shocking Transition Into an Antagonist in New Season
+
+CBR Exclusives, Silo, Sci-Fi, Apple TV
+
+Sat, 11 Jul 2026 04:07:29 GMT
+
+https://www.cbr.com/silo-season-3-camille-sims-villain-alexandria-riley/
+
+Silo Season 3 star Alexandria Riley discusses Camille Sims becoming Head of IT, her darker turn, and Robert Sims' changing loyalties.
+---------
+
+# 10 Greatest Anime Movies Worth Watching Again and Again
+
+Anime, Promare, Dragon Ball Super: Broly
+
+Sat, 11 Jul 2026 03:45:14 GMT
+
+https://www.cbr.com/greatest-anime-movies-worth-rewatching-list/
+
+Anime movies like Promare, Mirai, and Tokyo Godfathers aren't just cinematic triumphs, but titles that audiences can repeatedly revisit!
+---------
+
+# Disney's 10 Worst Live-Action Remakes, According to Rotten Tomatoes
+
+Movies, Moana, Disney
+
+Sat, 11 Jul 2026 03:45:14 GMT
+
+https://www.cbr.com/worst-disney-live-action-remakes-rotten-tomatoes-list/
+
+Revisit the very worst of Disney's live-action remakes (and the new Moana reboot is on the list).
+---------
+
+# Apple TV's 'Unfilmable' Sci-Fi Show Quietly Solved TV's Biggest Adaptation Problem
+
+TV, Apple TV, Foundation, Sci-Fi
+
+Sat, 11 Jul 2026 03:30:15 GMT
+
+https://www.cbr.com/apple-tv-unfilmable-foundation-solved-adaptation-problem/
+
+Decades of failed attempts couldn't stop this iconic sci-fi saga from breaking the mold and establishing a new standard for the genre.
+---------
+
+# The Best RPG on Every Sega Console, Officially Ranked
+
+Games, sega, Sega Genesis, Video Games
+
+Sat, 11 Jul 2026 03:15:13 GMT
+
+https://www.cbr.com/best-sega-console-rpg-jrpg-phantasy-star-panzer-dragoon-skies-of-arcaida/
+
+Phantasy Star and Skies of Arcadia are among Sega's greatest RPGs.
+---------
+
+# Say Goodbye to Mushoku Tensei's Official Sequel in 2026
+
+Anime, Mushoku Tensei, Mushoku Tensei: Jobless Reincarnation
+
+Sat, 11 Jul 2026 03:00:14 GMT
+
+https://www.cbr.com/mushoku-tensei-redundant-reincarnation-end-date/
+
+A 12-year-old series that helped popularize the isekai genre globally announces the release of its fourth and final installment.
+---------
+
+# 10 Hunter x Hunter Villains Who Were More Human Than Expected
+
+Anime, Hunter X Hunter
+
+Sat, 11 Jul 2026 02:45:14 GMT
+
+https://www.cbr.com/hunter-x-hunter-surprisingly-human-villains-list/
+
+These Hunter x Hunter villains seem unstoppable, but a closer look reveals surprising moments of vulnerability and unexpected emotions.
+---------
+
+# Enola Holmes 3 Is Officially The End of an Era For Netflix
+
+Movies, Enola Holmes 3, Netflix, Mystery
+
+Sat, 11 Jul 2026 02:45:14 GMT
+
+https://www.cbr.com/enola-holmes-3-netflix-viewership-end-of-era/
+
+Enola Holmes 3 marks the end of an era for Netflix that could spell disaster for the streaming giant--and Millie Bobby Brown's hit franchise.
+---------
+
+# 5 Classic RPGs That Shaped Clair Obscur
+
+Games, Persona 5, Sekiro: Shadows Die Twice, RPG
+
+Sat, 11 Jul 2026 02:15:13 GMT
+
+https://www.cbr.com/classic-rpgs-inspired-clair-obscur-expedition-33-list/
+
+Clair Obscur: Expedition 33 has taken the gaming world by storm, and some of the most iconic RPGs of all time helped inspire the decade's biggest hit.
+---------
+
+# The Alex Garland Movie Viewers Hated Is Worth a Second Look
+
+Movie Features, Society, Alex Garland, Men, A24
+
+Sat, 11 Jul 2026 04:09:14 GMT
+
+https://collider.com/alex-garland-men-hated-horror-movie-gore-stuart-gordon/
+
+Alex Garland's horror film 'Men' was treated as a missed big swing by many critics, but gore and wild energy make it a fun break from elevated horror.
+---------
+
+# 2026's Emmy Nominations Expose the Awards’ Biggest Problem
+
+TV Features, Emmy Awards, The Pitt, Widow's Bay, The White Lotus
+
+Sat, 11 Jul 2026 03:59:14 GMT
+
+https://collider.com/emmy-nominations-2026-the-pitt-acting-categories-rule-change/
+
+With shows like The Pitt dominating certain acting categories, is it time for the Emmys to overhaul their nomination process?
+---------
+
+# All 7 Harry Potter Books, Ranked
+
+Movie, Harry Potter, Books, Fantasy, J.K. Rowling
+
+Sat, 11 Jul 2026 03:09:14 GMT
+
+https://collider.com/harry-potter-books-ranked-worst-to-best/
+
+The Harry Potter books are some of the most important in fantasy, but some are far stronger in terms of writing, worldbuilding, and characterization.
+---------
+
+# Forget 'Star Wars,' Prime Video's Next Sci-Fi Franchise Is on the Horizon
+
+TV Features, Sci-Fi, Prime Video, Michael B. Jordan, TV Series
+
+Sat, 11 Jul 2026 02:57:14 GMT
+
+https://collider.com/prime-video-victories-greater-than-death-adaptation/
+
+Prime Video's upcoming adaptation of Victories Greater Than Death will be the next big hit.
+---------
+
+# 'Call of Duty's Best Games Have Officially Returned on PS5, But There's a Huge Catch
+
+Gaming News, Call of Duty, PlayStation 5, Call of Duty: Black Ops, Action
+
+Sat, 11 Jul 2026 02:50:46 GMT
+
+https://collider.com/call-of-duty-black-ops-2-ps5-ps4-release/
+
+Call of Duty: Black Ops and Black Ops 2 are now available on PS5 and PS4 as classic PlayStation ports, not full remasters.
+---------
+
+# 3 Years Later, This Neo-Western Thriller Officially Deserves a Second Chance
+
+TV Features, Big Sky, ABC, Jensen Ackles, Thriller
+
+Sat, 11 Jul 2026 02:15:14 GMT
+
+https://collider.com/big-sky-season-4-deserves-another-chance-abc-series/
+
+Big Sky deserved a second chance after ABC cancelled the 3-part crime thriller, especially after Season 3 found a stronger direction.
+---------
+
+# ‘Chicago P.D.’ Is Officially Coming to Netflix
+
+TV News, Chicago P.D., Netflix, The Rookie, Jason Beghe
+
+Sat, 11 Jul 2026 02:00:24 GMT
+
+https://collider.com/chicago-pd-global-streaming-netflix-august-2026/
+
+Netflix is set to add Dick Wolf's popular police procedural drama, Chicago P.D., to its international lineup this summer.
+---------
+
+# FX's Beloved 12-Part Thriller Series Suddenly Loses Major Star
+
+TV News, American Horror Story, Horror, Ariana Grande
+
+Sat, 11 Jul 2026 04:11:54 GMT
+
+https://movieweb.com/american-horror-story-13-ariana-grande/
+
+Ariana Grande will not be part of the new season of 'American Horror Story' as originally planned.
+---------
+
+# Titus Welliver's 'Bosch' Replacement Series Rotten Tomatoes Score Revealed
+
+TV News, The Westies, Titus Welliver
+
+Sat, 11 Jul 2026 02:15:26 GMT
+
+https://movieweb.com/the-westies-titus-welliver-rotten-tomatoes/
+
+Titus Welliver is on his way back to the small screen, as his new series earned its initial Rotten Tomatoes score.
+---------
+
+# 7 Masterpiece Thriller TV Shows You Can Stream for Free
+
+TV Lists, Thriller, The Night Manager, How to Get Away With Murder
+
+Sat, 11 Jul 2026 02:00:31 GMT
+
+https://movieweb.com/thriller-tv-shows-stream-free/
+
+Need a good thriller? Not looking to break the bank on a streaming subscription? Here are seven excuses to stay up late that won't cost you a dime.
+---------
+
 # Donnie Wahlberg Teases First Look At Blue Bloods Tradition In Boston Blue Season 2
 
 TV, Boston Blue, Blue Bloods
