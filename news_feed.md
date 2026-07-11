@@ -1,3 +1,91 @@
+# Captain America Fans Left Bewildered By Weird New Design Detail
+
+Gaming, Captain America, Marvel Rivals, Triple-A Games
+
+Sat, 11 Jul 2026 11:31:21 GMT
+
+https://screenrant.com/captain-america-marvel-rivals-controversial-skin-reaction/
+
+Captain America is currently experiencing the same objectification that many female Marvel characters do, though it's ironically a double standard.
+---------
+
+# Zelda: Quartet Of Time Announcement Has Gamers Seriously Excited
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Sat, 11 Jul 2026 11:00:29 GMT
+
+https://screenrant.com/zelda-quartet-of-time-reactions-announcement/
+
+Fans of The Legend of Zelda: Ocarina of Time are excited about the announcement of 'Quartet of Time.'
+---------
+
+# TV's Smartest Sci-Fi Western Is a Stealth 3-Season Masterpiece 13 Years Later
+
+TV, Defiance
+
+Sat, 11 Jul 2026 11:31:13 GMT
+
+https://www.cbr.com/defiance-smart-sci-fi-western-masterpiece/
+
+Over a decade after its premiere on Syfy, this three-season sci-fi Western is still one of the most well-crafted drama series on television.
+---------
+
+# Absolute Batman Animated Series: Why It Can't Focus Only on Bruce Wayne
+
+Comics, Absolute Batman, DC Comics, Batman
+
+Sat, 11 Jul 2026 11:00:25 GMT
+
+https://www.cbr.com/absolute-batman-animated-series-bruce-wayne-worries/
+
+With Scott Snyder and Nick Dragotta’s Absolute Batman set to dominate superhero streaming, DC must take the opportunity to establish a new DCAU.
+---------
+
+# 11 Years Later, Michael Bay's 121-Minute Action Thriller Is Being Cut From Streaming
+
+Movie News, 13 Hours: The Secret Soldiers of Benghazi, Michael Bay, John Krasinski, Paramount Plus
+
+Sat, 11 Jul 2026 11:45:13 GMT
+
+https://collider.com/michael-bay-war-movie-13-hours-leaving-peacock-august-2026/
+
+Michael Bay's uncharacteristically reined-in action movie, 13 Hours: The Secret Soldiers of Benghazi, is leaving Paramount+. Find out when.
+---------
+
+# Tom Hanks' 'National Treasure' Replacement Is Quietly Taking Over Streaming 20 Years Later
+
+Movie News, The Da Vinci Code, Tom Hanks, Ian McKellen, Paul Bettany
+
+Sat, 11 Jul 2026 11:31:14 GMT
+
+https://collider.com/tom-hanks-the-da-vinci-code-streaming-success-prime-video-apple-tv-july-2026/
+
+The Da Vinci Code, the bonkers conspiracy thriller starring Tom Hanks, is blowing up on streaming after being slammed by critics 20 years ago.
+---------
+
+# ‘Saturday Night Live UK’ Is Officially Forced Into a Major Change Earlier Than Expected
+
+TV Features, Saturday Night Live, Saturday Night Live UK, SNL, Lorne Michaels
+
+Sat, 11 Jul 2026 11:23:33 GMT
+
+https://collider.com/snl-saturday-night-live-uk-season-2-major-change-british-prime-ministers/
+
+Sir Keir Starmer’s resignation ends George Fouracres’ SNL UK impression, but Andy Burnham could give Paddy Young a major new role.
+---------
+
+# Netflix’s 4-Part Action Masterpiece Proves Why It's the Perfect 'Reacher' Replacement
+
+TV News, The Night Agent, Reacher, Netflix, Gabriel Basso
+
+Sat, 11 Jul 2026 11:00:25 GMT
+
+https://collider.com/netflix-the-night-agent-streaming-success-july-2026-reacher-replacement/
+
+Reacher fans are obsessing over Netflix's four-part action show starring Gabriel Basso from A House of Dynamite.
+---------
+
 # Pokémon Crystal Reflection Is The Definitive Johto Return
 
 Gaming, Pokemon
