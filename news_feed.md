@@ -1,3 +1,289 @@
+# Cyberpunk 2077: Apex Expands The Game’s Map
+
+Gaming, Cyberpunk 2077
+
+Sat, 11 Jul 2026 22:00:21 GMT
+
+https://screenrant.com/cyberpunk-2077-apex-fan-map-expansion/
+
+Discover the APEX mod for Cyberpunk 2077, which adds a new safehouse in the Badlands with unique interactions, a garage, and more.
+---------
+
+# You’ve Only Got 5 Weeks Left To Catch Venom: The Last Stand On Netflix
+
+Movies, Venom: The Last Dance, Marvel Cinematic Universe
+
+Sat, 11 Jul 2026 21:55:20 GMT
+
+https://screenrant.com/venom-the-last-stand-netflix-leave/
+
+One of the most dramatic endings to a Marvel hero's movie story is reportedly set to leave Netflix soon, giving viewers just a few weeks to catch it.
+---------
+
+# 4-Part Superhero Series Now On Netflix Gets Better With Every Watch
+
+Streaming TV, Masked Recs
+
+Sat, 11 Jul 2026 21:45:20 GMT
+
+https://screenrant.com/heroes-on-netflix-better-with-every-watch/
+
+Superhero shows are in a weird spot in the landscape of TV right now, but a new addition to Netflix is proving to be a resurgence for a beloved story.
+---------
+
+# 15 Years Later, Anton Yelchin's Forgotten Horror Remake Flop Is Aging Like Fine Wine
+
+Movies, Anton Yelchin
+
+Sat, 11 Jul 2026 21:30:21 GMT
+
+https://screenrant.com/fright-night-aging-fine-wine-anton-yelchin/
+
+This 2011 remake of Tom Holland's 1985 classic starring Anton Yelchin, is truly a victim of its time, as is evident 15 years later.
+---------
+
+# 10 Legacy Horror Sequels That Revived A Dead Franchise
+
+Classic Movies, Horror
+
+Sat, 11 Jul 2026 21:30:21 GMT
+
+https://screenrant.com/legacy-horror-sequels-revived-dead-franchise/
+
+Even the best horror franchises faltered after one too many entries. However, there have been legacy sequels that have revived dead franchises.
+---------
+
+# 5 Big Bang Theory Spinoffs That Should Happen After Stuart Fails To Save The Universe
+
+Streaming TV, The Big Bang Theory
+
+Sat, 11 Jul 2026 21:30:21 GMT
+
+https://screenrant.com/big-bang-theory-spinoffs-after-stuart-fails-to-save-the-world/
+
+Stuart Fails to Save the Universe and Young Sheldon have renewed interest in the best parts of The Big Bang Theory, which should expand further.
+---------
+
+# One Of The Best Sherlock Holmes Adaptations Of The Century Is Officially Coming Back
+
+Streaming TV, Masked Recs, Sherlock Holmes
+
+Sat, 11 Jul 2026 21:16:20 GMT
+
+https://screenrant.com/young-sherlock-best-adaptation-century-coming-back/
+
+Though this century has seen several excellent and original Sherlock Holmes adaptations, only one has been confirmed to return in the near future.
+---------
+
+# The Punisher Meets Die Hard In Taylor Sheridan's Fiery 2021 Thriller
+
+Movies, Masked Recs
+
+Sat, 11 Jul 2026 21:16:20 GMT
+
+https://screenrant.com/those-wish-dead-movie-punisher-meets-die-hard/
+
+Taylor Sheridan mashed up The Punisher with Die Hard for his most underrated action thriller, which starred Jon Bernthal and Tyler Perry.
+---------
+
+# Obsession Is Officially Heading to Netflix This Fall
+
+Movies, Obsession, Netflix, Peacock
+
+Sat, 11 Jul 2026 22:00:13 GMT
+
+https://www.cbr.com/obsession-netflix-release-window/
+
+The horror phenomenon sets its streaming sights on the streaming giant.
+---------
+
+# Absolute Batman's Clayface Looks Like The Scariest Version Of The Villain Ever
+
+Comics, Absolute Batman, Batman, clayface
+
+Sat, 11 Jul 2026 22:00:13 GMT
+
+https://www.cbr.com/absolute-batman-23-absolute-clayface-variant-scary/
+
+Terror is taking shape in Absolute Batman.
+---------
+
+# Persona Reunites Its Most Iconic Heroes With New 30th Anniversary Designs
+
+Anime, Persona, Persona 5, merchandise
+
+Sat, 11 Jul 2026 22:00:13 GMT
+
+https://www.cbr.com/persona-30th-anniversary-ichiban-kuji/
+
+In honor of the multimedia franchise's 30th anniversary, Ichiban Kuji's latest lottery features figures and collectibles based on Atlus' Persona.
+---------
+
+# Dwayne Johnson Reveals His Dream Project With Kevin Hart: 'Not Letting That Dream Go'
+
+TV, The Odd Couple, the odd couple, dwayne johnson, Jumanji, Kevin Hart
+
+Sat, 11 Jul 2026 21:20:52 GMT
+
+https://www.cbr.com/dwayne-johnson-kevin-hart-the-odd-couple-broadway-revival/
+
+Dwayne Johnson opens up about the one passion project he is still working to make happen with Kevin Hart, and if it does it's heading to Broadway.
+---------
+
+# 5 Anime Weapons Stronger Than JJK's Split Soul Katana
+
+Anime, Bleach, One Piece, Akame ga Kill!, Jujutsu Kaisen
+
+Sat, 11 Jul 2026 21:15:13 GMT
+
+https://www.cbr.com/jjk-anime-weapons-stronger-than-jujutsu-kaisen-split-soul-katana/
+
+The world of anime features numerous weapons that put Jujutsu Kaisen's Split Soul Katana to shame.
+---------
+
+# 9 Forgotten Prime Video Shows That Are Perfect From Start to Finish
+
+TV, Prime Video, Outer Range, Tales from the Loop, Vanity Fair
+
+Sat, 11 Jul 2026 22:08:13 GMT
+
+https://collider.com/forgotten-prime-video-shows-perfect-start-to-finish/
+
+From the sci-fi neo-Western Outer Range to the historical miniseries Vanity Fair, these forgotten Prime Video series are practically flawless.
+---------
+
+# The Best Spider-Man Movie Is Officially One of Netflix's Biggest Hits Right Now
+
+Movie Features, Spider-Man: Homecoming, Tom Holland, Spider-Man: Brand New Day, Marvel
+
+Sat, 11 Jul 2026 22:05:13 GMT
+
+https://collider.com/spider-man-homecoming-brand-new-day-tom-holland/
+
+As excitement builds for Spider-Man: Brand New Day, Netflix viewers are heading back to Tom Holland's acclaimed 2017 debut, Spider-Man: Homecoming.
+---------
+
+# 10 Years Later, Mel Gibson's WWII Epic Is Being Cut From Paramount+
+
+Movie News, Hacksaw Ridge, Mel Gibson, Andrew Garfield, Sam Worthington
+
+Sat, 11 Jul 2026 22:01:14 GMT
+
+https://collider.com/mel-gibson-hacksaw-ridge-ww2-movie-leaving-paramount-plus-august-2026/
+
+One of the most controversial WW2 movies of the decade, Mel Gibson's Hacksaw Ridge, is leaving its streaming home. Find out more.
+---------
+
+# HBO's Best Thriller of the Decade Still Isn't Getting the Emmys Love It Deserves
+
+TV Features, Industry, Myha'la, Marisa Abela, HBO
+
+Sat, 11 Jul 2026 21:47:14 GMT
+
+https://collider.com/industry-best-hbo-thriller-emmys-snub/
+
+Despite strong reviews and growing viewership, HBO's Industry remains frustratingly overlooked by Emmy voters.
+---------
+
+# The 20 Most Influential Video Games of All Time, Ranked
+
+TV, Video Game, Fortnite, Super Mario Bros., Doom
+
+Sat, 11 Jul 2026 21:42:13 GMT
+
+https://collider.com/most-influential-video-games-of-all-time-ranked/
+
+Explore the history and evolution of video games through this ranked list of the most influential games of all time, from Pong to Minecraft.
+---------
+
+# Sorry, ‘Back to the Future’ Fans, but This Thriller Is Michael J. Fox’s Greatest Film Ever
+
+Movie Features, The Frighteners, Michael J. Fox, Peter Jackson, Horror
+
+Sat, 11 Jul 2026 21:30:13 GMT
+
+https://collider.com/michael-j-fox-best-movie-the-frighteners-peter-jackson-horror-thriller-comedy/
+
+Before Middle-earth, Peter Jackson directed Michael J. Fox in The Frighteners, delivering the actor’s greatest performance.
+---------
+
+# Henry Cavill’s 10/10 Action Masterpiece With Rebecca Ferguson Is Taking Over the World
+
+Movie News, Mission: Impossible - Fallout, Henry Cavill, Rebecca Ferguson, Tom Cruise
+
+Sat, 11 Jul 2026 21:30:13 GMT
+
+https://collider.com/henry-cavill-rebecca-ferguson-mission-impossible-fallout-streaming-success-paramount-plus-july-2026/
+
+Henry Cavill's critically acclaimed action thriller co-starring Rebecca Ferguson is officially taking over Paramount Plus streaming charts.
+---------
+
+# Marvel Boss Officially Confirms the Status of the X-Men in the MCU
+
+Movie News, MCU, X-Men, X-Men '97, Kevin Feige
+
+Sat, 11 Jul 2026 21:24:13 GMT
+
+https://collider.com/x-men-mcu-role-marvel-boss-kevin-feige/
+
+Marvel boss Kevin Feige has teased the X-Men in the MCU ahead of Jean Grey's rumored role in the new Spider-Man movie.
+---------
+
+# Marvel’s New X-Men Project Officially Launches in Just 2 Months
+
+Gaming News, Wolverine, X-Men, Marvel, X-Men '97
+
+Sat, 11 Jul 2026 21:15:13 GMT
+
+https://collider.com/marvel-new-x-men-project-wolverine-release-date-ps5-september-15/
+
+Marvel's next X-Men project after X-Men '97 will officially premiere in two months with the arrival of Marvel's Wolverine.
+---------
+
+# Dario Argento Is a Master of Horror, and These 4 Movies Are His Masterpieces
+
+Movie, Dario Argento, Suspiria, Deep Red, Tenebrae
+
+Sat, 11 Jul 2026 21:14:14 GMT
+
+https://collider.com/best-dario-argento-horror-movie-masterpieces/
+
+From dreamlike terror to stylish murder mysteries, these Dario Argento masterpieces showcase horror at its most imaginative.
+---------
+
+# The Greatest Cyberpunk Action Thriller of All Time Is a Free Streaming Smash Hit Ahead of Sequel
+
+Movie News, The Matrix, The Matrix 5, Action, Thriller, Sci-Fi
+
+Sat, 11 Jul 2026 22:00:19 GMT
+
+https://movieweb.com/the-matrix-free-stream-july-2026/
+
+It's been almost three decades, but it's still one of the most influential action movies ever made.
+---------
+
+# The 10 Best Game of Thrones Franchise Episodes, Ranked
+
+TV Lists, Game of Thrones, Game Of Thrones, House of the Dragon, A Knight Of The Seven Kingdoms
+
+Sat, 11 Jul 2026 22:00:19 GMT
+
+https://movieweb.com/game-of-thrones-franchise-best-episodes/
+
+'Game of Thrones,' 'House of the Dragon,' and 'A Knight of the Seven Kingdoms' create a sprawling epic. But some episodes are better than others.
+---------
+
+# 10 Highest-Grossing Movies With A Budget Less Than $1 Million
+
+Movie Lists, Obsession, Bruce Lee, Halloween
+
+Sat, 11 Jul 2026 21:30:18 GMT
+
+https://movieweb.com/highest-grossing-movies-budget-less-1-million/
+
+'Obsession' has broken record after record — what other small-budget movies have made box office history?
+---------
+
 # 8 Hit Shows From The Early 2000s That Hit Much Different Today
 
 Classic TV
