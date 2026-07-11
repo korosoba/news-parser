@@ -1,3 +1,234 @@
+# Darth Maul Actor’s Dark Side Star Wars Theory Is Genius
+
+Star Wars, Star Wars: Maul - Shadow Lord, Anakin Skywalker/Darth Vader, Darth Maul, Count Dooku, Emperor Palpatine / Darth Sidious
+
+Sat, 11 Jul 2026 19:55:20 GMT
+
+https://screenrant.com/darth-maul-actor-sam-witwer-dark-side-star-wars-theory-sith-lords/
+
+Darth Maul actor Sam Witwer recently shared a genius theory about the dark side and the Dark Lords of the Sith (and I can't stop thinking about it).
+---------
+
+# Homelander's Antony Starr Officially Wraps Filming For New Netflix Show, 2 Months After The Boys Ended
+
+TV, Antony Starr, Netflix
+
+Sat, 11 Jul 2026 19:46:26 GMT
+
+https://screenrant.com/antony-starr-breakers-filming-wrapped-update-netflix/
+
+After Antony Starr ended his Homelander stint on The Boys, the actor is set to appear in a new Netflix series, which just wrapped filming.
+---------
+
+# Netflix Has Found The Next Virgin River With New 8-Part Family Drama
+
+Streaming TV, Masked Recs
+
+Sat, 11 Jul 2026 19:45:21 GMT
+
+https://screenrant.com/netflix-little-house-on-the-prairie-virgin-river-replacement/
+
+Netflix's adaptation of Little House on the Prairie resonates with Virgin River fans, offering a light drama with a heartwarming family at its core.
+---------
+
+# For 8 Years, There Was Only One Star Trek (& Not The One Fans Loved)
+
+TV, Star Trek
+
+Sat, 11 Jul 2026 19:30:20 GMT
+
+https://screenrant.com/star-trek-jj-abrams-movies-dark-era/
+
+Star Trek has grown by leaps and bounds in the last decade, but there was a time not long ago when fans didn't know the fate of the Prime Timeline.
+---------
+
+# 2026’s Most Exciting Soulslike Officially Announces Release Date
+
+Gaming, Mortal Shell
+
+Sat, 11 Jul 2026 19:30:20 GMT
+
+https://screenrant.com/mortal-shell-2-release-date-soulslike/
+
+Soulslikes nearly went for all of 2026 in a dry spell, but there is thankfully one now launching at the end of summer that deserves your attention.
+---------
+
+# Minions & Monsters: The Anti-Disney Formula Still Works
+
+Movies, Originals
+
+Sat, 11 Jul 2026 19:00:21 GMT
+
+https://screenrant.com/video/minions-monsters-why-the-franchise-doesn-t-age-out/
+
+For years, Hollywood has treated bigger stories, deeper mythology, and expanding universes as the key to building blockbuster franchises. Minions & Monsters quietly proves there's another way.
+---------
+
+# 7 The Boys Characters That Desparately Need Their Own Game
+
+Gaming, The Boys, Triple-A Games, PC
+
+Sat, 11 Jul 2026 19:00:21 GMT
+
+https://screenrant.com/the-boys-characters-standalone-video-game/
+
+The Boys has no shortage of fantastic characters to choose from, but only some have the story potential to star in their own gaming venture.
+---------
+
+# "The Most Unhinged Dark Comedy" Movie Finally Sets 2026 Release Date
+
+Movies, Bad Apples
+
+Sat, 11 Jul 2026 18:53:11 GMT
+
+https://screenrant.com/bad-apples-movie-release-date/
+
+The movie described as "the most unhinged dark comedy" featuring a four-time Academy Award nominee finally has a theatrical release date set.
+---------
+
+# Demon Slayer: Infinity Castle Digital Release Set for July 28, Preorders Now Live
+
+Anime, Demon Slayer, Demon Slayer: Kimetsu no Yaiba Infinity Castle
+
+Sat, 11 Jul 2026 20:00:13 GMT
+
+https://www.cbr.com/demon-slayer-infinity-castle-home-release/
+
+Demon Slayer: Kimetsu no Yaiba — The Movie: Infinity Castle is finally getting the digital release that fans have been waiting on for over a year.
+---------
+
+# Amazing Spider-Man #1000 Reveals Terrifying Junji Ito-Style Horror Cover
+
+Comics, Amazing Spider-Man
+
+Sat, 11 Jul 2026 20:00:13 GMT
+
+https://www.cbr.com/amazing-spider-man-1000-frank-miller-peach-momoko-cover/
+
+The legendary horror manga artist's influence reaches Spider-Man as a terrifying new cover is revealed for the landmark 1000th issue.
+---------
+
+# Law & Order Star Recalls Spouse of Real-Life Murder Victim Came on Set & Begged Them to Change the Story
+
+TV, Law & Order
+
+Sat, 11 Jul 2026 19:30:42 GMT
+
+https://www.cbr.com/law-order-jesse-l-martin-real-life-murder-case/
+
+The actor clarified the person was "well aware" they were working on a case based on the murder.
+---------
+
+# 5 Essential R-Rated 2000s Westerns That Are Still Perfect Today
+
+Movies, Western
+
+Sat, 11 Jul 2026 19:30:13 GMT
+
+https://www.cbr.com/perfect-r-rated-2000s-westerns-list/
+
+The Western made a major comeback during the 2000s, and these essential R-rated movies remain among the genre's finest to revisit today.
+---------
+
+# Netflix's Little House on the Prairie Reboot Landed Surprise Cameo From Original Star
+
+TV, Little House on the Prairie
+
+Sat, 11 Jul 2026 19:25:30 GMT
+
+https://www.cbr.com/netflix-little-house-on-the-prairie-original-star-cameo/
+
+Fans might have missed a big star from the original NBC series popping up in Netflix's Little House on the Prairie reboot.
+---------
+
+# 10 Reasons It's Already Tough to Watch Attack On Titan Today
+
+Anime, Attack On Titan, Attack on Titan
+
+Sat, 11 Jul 2026 19:16:12 GMT
+
+https://www.cbr.com/attack-on-titan-unwatchable-today-2026/
+
+Attack on Titan is an essential anime masterpiece, but there are certain elements that haven't aged well and make it difficult to revisit.
+---------
+
+# Tom Holland Breaks Down The Odyssey's 'Dad' Controversy: 'It's No Less Correct'
+
+Movies, The Odyssey
+
+Sat, 11 Jul 2026 18:51:01 GMT
+
+https://www.cbr.com/tom-holland-talks-the-odyssey-dad-controversy/
+
+The Odyssey actor Tom Holland addresses the movie's "dad" situation.
+---------
+
+# Tom Hanks’ 10-Part WWII Masterpiece Continues Its Unstoppable Reign on Streaming
+
+TV News, Band of Brothers, HBO, Tom Hanks, Steven Spielberg
+
+Sat, 11 Jul 2026 20:00:13 GMT
+
+https://collider.com/ww2-miniseries-band-of-brothers-tom-hanks-streaming-success-hbo-max-july-2026/
+
+Band of Brothers, the WW2 miniseries created by Tom Hanks, has officially become one of the biggest streaming hits ever.
+---------
+
+# 8 Best Psychological Thrillers of 2026 So Far
+
+Movie, Dead Man's Wire, Obsession, Backrooms, Psychological Thriller
+
+Sat, 11 Jul 2026 19:49:14 GMT
+
+https://collider.com/best-psychological-thrillers-2026-so-far-ranked/
+
+From pop-culture mega hits like Obsession and Backrooms to underrated gems like Act One, these psychological thrillers are the best of 2026 so far.
+---------
+
+# 10 Best Songs of the Last 10 Years
+
+Music Features, Music, Beyonce, Taylor Swift, Pop
+
+Sat, 11 Jul 2026 19:26:13 GMT
+
+https://collider.com/the-10-best-songs-of-the-last-decade-ranked/
+
+"Formation" by Beyoncé, "DtMF" by Bad Bunny, and "Black Swan" by BTS are all among the very best songs released over the last 10 years.
+---------
+
+# Star Wars' Most Anticipated Sequel Finally Moves Forward After 3 Years
+
+Gaming News, Star Wars, Star Wars Jedi: Fallen Order, Star Wars Jedi: Survivor, Respawn Entertainment
+
+Sat, 11 Jul 2026 19:08:22 GMT
+
+https://collider.com/star-wars-jedi-3-sequel-development-update/
+
+Cal Kestis' third and reportedly final Star Wars Jedi game quietly just got its biggest update in years. Read on for more.
+---------
+
+# Agatha Christie Meets Quentin Tarantino in 167-Minute Epic Escaping Streaming
+
+Movie News, The Hateful Eight, Quentin Tarantino, Agatha Christie, Western
+
+Sat, 11 Jul 2026 19:00:13 GMT
+
+https://collider.com/quentin-tarantino-western-the-hateful-eight-leaving-peacock-july-22-2026/
+
+Quentin Tarantino's sprawling chamber piece, The Hateful Eight, is about to leave Peacock. Find out how long you have left to watch it.
+---------
+
+# 10 Best Star Trek Retcons That Actually Improved the Lore
+
+TV Lists, Star Trek
+
+Sat, 11 Jul 2026 19:00:18 GMT
+
+https://movieweb.com/star-trek-best-lore-retcons/
+
+Some of the best parts of the Star Trek canon were added retroactively. Read on for more.
+---------
+
 # See First Appearance Of Spider-Man's Historic New Villain
 
 Marvel Comics, Spider-Man
