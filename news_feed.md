@@ -1,3 +1,234 @@
+# 4 Years Later, Reacher Cutting Ties With These Characters Was The Right Move
+
+TV, Reacher, Op-Ed
+
+Sat, 11 Jul 2026 16:40:21 GMT
+
+https://screenrant.com/reacher-show-roscoe-finley-cutting-character-right/
+
+Four years after the original season arrived, Prime's Reacher proved it was right to move beyond these two beloved supporting characters.
+---------
+
+# Apple TV's Cape Fear Season 2 Chances Addressed By Star
+
+Exclusive, Cape Fear
+
+Sat, 11 Jul 2026 16:37:44 GMT
+
+https://screenrant.com/cape-fear-apple-tv-season-2-chances-cch-pounder/
+
+EXCLUSIVE: CCH Pounder addresses whether audiences can expect a season 2 of Apple TV’s Cape Fear as the show barrels towards its finale.
+---------
+
+# The Bear: Carmy’s 8 Tattoos & Their Meaning Explained
+
+Streaming TV, The Bear
+
+Sat, 11 Jul 2026 16:30:22 GMT
+
+https://screenrant.com/the-bear-carmy-tattoos-meaning-explained/
+
+Carmy has many tattoos on his arms in The Bear, with each seemingly dropping hints about his history, his philosophies, and his passion for cooking.
+---------
+
+# It's The Start Of A New Era For Dungeons & Dragons Fans
+
+TV, Masked Recs
+
+Sat, 11 Jul 2026 16:30:20 GMT
+
+https://screenrant.com/dungeons-and-dragons-new-era-adaptations/
+
+The unexpected popularity boost of Dungeons and Dragons has ushered in a new golden age for adaptations of the beloved tabletop game franchise.
+---------
+
+# Ocarina Of Time’s Lost Temple Can Be Restored In The Remake
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda, Triple-A Games
+
+Sat, 11 Jul 2026 16:30:20 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-light-temple/
+
+The Ocarina of Time remake seems unlikely to make sweeping changes, but bringing back some cut content could improve an iconic sequence.
+---------
+
+# Unless It Makes Less Than Half Of Supergirl’s Box Office, Clayface Is Already A DCU Win
+
+Movies, Supergirl, DC Universe
+
+Sat, 11 Jul 2026 16:20:21 GMT
+
+https://screenrant.com/clayface-dcu-budget-supergirl-box-office-comparison/
+
+While the DCU's next movie has been considered a risk of sorts, its current setup means its prospective box office results already look promising.
+---------
+
+# Amazon's 10/10 Whodunit Is Better Than Knives Out's Last Movie
+
+Movies, Masked Recs
+
+Sat, 11 Jul 2026 16:15:20 GMT
+
+https://screenrant.com/the-sheep-detectives-better-than-knives-out-3/
+
+Amazon's new whodunit, The Sheep Detectives, might be a comedy, but it's also a more compelling murder mystery than the last Knives Out movie.
+---------
+
+# It's Officially The Start Of An Era For Naruto
+
+Movies, Masked Recs
+
+Sat, 11 Jul 2026 16:06:20 GMT
+
+https://screenrant.com/naruto-masashi-kishimoto-live-action-movie-new-era/
+
+The Naruto franchise has been dead for almost a decade now, but it's about to make a comeback with Destin Daniel Cretton's new live-action movie.
+---------
+
+# Evil Dead Burn’s Rotten Tomatoes Score Sets Franchise Record After 34 Years
+
+Movies, Evil Dead Burn, Evil Dead
+
+Sat, 11 Jul 2026 16:04:12 GMT
+
+https://screenrant.com/evil-dead-burn-rotten-tomatoes-audience-score-debut/
+
+Evil Dead Burn has officially landed its audience score on Rotten Tomatoes, as Sam Raimi's beloved supernatural horror franchise sets a new record.
+---------
+
+# Sparks of Tomorrow Is Summer 2026's Best Anime, And It's Not On Crunchyroll
+
+Anime, Sparks of Tomorrow
+
+Sat, 11 Jul 2026 16:00:20 GMT
+
+https://screenrant.com/sparks-tomorrow-summer-best-anime-netflix-not-crunchyroll/
+
+Guess who has the best anime of the summer?
+---------
+
+# 5 Essential Batman Animated Movies to Watch Before DC's Knightfall Trilogy
+
+Movies, Batman: Knightfall Part 1: Knightfall, Batman, DCU
+
+Sat, 11 Jul 2026 16:30:13 GMT
+
+https://www.cbr.com/must-watch-batman-animated-movies-before-knightfall-trilogy-list/
+
+With the first chapter in DC’s Batman: Knightfall animated trilogy on the horizon, there are some masterpieces every true Dark Knight fan must watch.
+---------
+
+# 33 Years Later, Star Trek's Scariest Episode Deserves to Be Called a Horror Masterpiece
+
+TV, Star Trek: The Next Generation, Star Trek, Horror, Sci-Fi
+
+Sat, 11 Jul 2026 16:30:13 GMT
+
+https://www.cbr.com/star-trek-tng-scariest-horror-episode-frame-of-mind/
+
+Although Star Trek: The Next Generation isn't a horror series, there's one episode that still gives us nightmares.
+---------
+
+# 10 Greatest Anime Redemption Arcs of All Time
+
+Anime, Avatar: The Last Airbender, Dragon Ball
+
+Sat, 11 Jul 2026 16:15:12 GMT
+
+https://www.cbr.com/official-greatest-anime-redemption-arcs-of-all-time/
+
+Redemptions arcs, like those of Zuko and Vegeta, are among the most celebrated storylines in all of anime.
+---------
+
+# Jane Seymour Gets an Unexpected Offer From Dr. Quinn Co-Star in New Clip From Underrated 5-Season Mystery Drama
+
+CBR Exclusives, Harry Wild
+
+Sat, 11 Jul 2026 16:00:27 GMT
+
+https://www.cbr.com/jane-seymour-joe-lando-harry-wild-clip/
+
+Exclusive: Jane Seymour's character accepts a new proposal in the upcoming episode of the mystery series.
+---------
+
+# Marvel Finally Confirms the Truth About a Fantastic Four Mystery
+
+Comics, Silver Surfer, Fantastic Four, Marvel Comics
+
+Sat, 11 Jul 2026 16:00:12 GMT
+
+https://www.cbr.com/the-fantastic-four-first-foes-shalla-bal-questions-answered/
+
+After an impactful appearance in Fantastic Four: First Steps, the beloved Silver Surfer's origins are explored in an upcoming Marvel Comic.
+---------
+
+# Hatsune Miku Officially Becomes Your iPhone's New Voice
+
+Anime, Hatsune Miku, iPhone
+
+Sat, 11 Jul 2026 16:00:12 GMT
+
+https://www.cbr.com/hatsune-miku-iphone-notification-voice-release/
+
+Hatsune Miku is still belting out the tunes, and now, fans can also have her voice out important notifications and reminders on their phones.
+---------
+
+# 6 Must-Read Fantasy Books for Fans of Harry Potter
+
+Books and Comics, Fantasy, Harry Potter and the Cursed Child, Books, Philip Pullman
+
+Sat, 11 Jul 2026 16:36:13 GMT
+
+https://collider.com/fantasy-books-like-harry-potter-must-read/
+
+From The Worst Witch, to Nevermoor, to other fantasy classics, these magical fantasy books are perfect for Harry Potter fans.
+---------
+
+# Disney+ and Ryan Reynolds Officially Adapting Legendary Spy Franchise
+
+TV News, Ryan Reynolds, Disney+, Chris Fedak, 20th Century Studios
+
+Sat, 11 Jul 2026 16:25:43 GMT
+
+https://collider.com/disney-plus-spy-school-series-adaptation-ryan-reynolds-producing/
+
+Ryan Reynolds is teaming with Disney+ for a new series adaptation of the Spy School novels. Read on for all the details.
+---------
+
+# 10 Scariest Stephen King Villains
+
+Books and Comics, Misery, Stephen King, It, The Shining
+
+Sat, 11 Jul 2026 16:18:13 GMT
+
+https://collider.com/scariest-stephen-king-villains-ranked/
+
+The scariest Stephen King villains of all time include the titular entity from IT, The Stand's Randall Flagg, and Jack Torrance from The Shining.
+---------
+
+# 'Bosch's Titus Welliver Returns With Major New Crime Drama This Week
+
+TV News, Titus Welliver, The Westies, J.K. Simmons, Bosch
+
+Sat, 11 Jul 2026 16:15:13 GMT
+
+https://collider.com/the-westies-titus-welliver-crime-drama-series-premiere-july-2026/
+
+The Westies, Titus Welliver’s new crime-drama series, officially premieres this week, bringing the Bosch star back to the genre.
+---------
+
+# HBO's War Masterpiece Beats 'Band of Brothers' at Its Own Game
+
+Features, Band of Brothers
+
+Sat, 11 Jul 2026 16:00:17 GMT
+
+https://movieweb.com/the-pacific-hbo-beats-band-of-brothers/
+
+Steven Spielberg's 'Band of Brothers' is the most critically acclaimed war miniseries, but the director's other show does a few things better.
+---------
+
 # It's The End Of An Era For Euphoria
 
 Streaming TV, Euphoria
