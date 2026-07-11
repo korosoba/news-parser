@@ -1,3 +1,278 @@
+# Bruce Campbell's Evil Dead Burn Role Is A True End Of An Era For The Franchise
+
+Movies, Evil Dead Burn, Evil Dead, Horror
+
+Sat, 11 Jul 2026 17:45:20 GMT
+
+https://screenrant.com/evil-dead-burn-bruce-campbell-producer-role-change/
+
+Bruce Campbell's reduced creative role in Evil Dead Burn marks a quiet but important end of an era for the franchise after 40-plus years.
+---------
+
+# All GTA 6 Weapons Confirmed So Far
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Sat, 11 Jul 2026 17:45:20 GMT
+
+https://screenrant.com/gta-6-all-weapons-confirmed/
+
+Grand Theft Auto 6 has revealed a handful of weapons that are sure to become iconic, and there's probably plenty still left to be shown in gameplay.
+---------
+
+# Sam Raimi's Spider-Man Is Making A Surprise Comeback
+
+Movies, Masked Recs
+
+Sat, 11 Jul 2026 17:34:22 GMT
+
+https://screenrant.com/sam-raimi-spider-man-organic-webbing-brand-new-day/
+
+Tobey Maguire probably isn't in Spider-Man: Brand New Day, but Spidey's new organic webbing is a clear reference to the Sam Raimi trilogy.
+---------
+
+# Marvel Permanently Settles Captain Marvel Vs Hulk, No Room For Doubt
+
+Marvel Comics, Hulk, Captain Marvel
+
+Sat, 11 Jul 2026 17:30:20 GMT
+
+https://screenrant.com/hulk-vs-captain-marvel-winner-confirmed/
+
+In a shocking turn of events, Marvel confirms the "Hulk vs Captain Marvel" battle inevitably ends with one of the Avengers simply giving up.
+---------
+
+# 8 Things About NCIS Season 1 Everybody Forgets
+
+Network TV, NCIS
+
+Sat, 11 Jul 2026 17:15:20 GMT
+
+https://screenrant.com/ncis-season-1-details-everyone-forgets/
+
+The changes from the early days of NCIS, even to its second season and beyond, are a shocking shift for even the most seasoned viewers of the show.
+---------
+
+# For The First Time In 35 Years, Leonardo DiCaprio Is Breaking His No Sequels Rule
+
+Movies, Heat 2, Leonardo DiCaprio
+
+Sat, 11 Jul 2026 17:15:20 GMT
+
+https://screenrant.com/leonardo-dicaprio-no-sequels-rule-break-heat-2/
+
+Leonardo DiCaprio is breaking his own sacred rule about never making sequels, making an exception for a highly anticipated follow-up to a classic.
+---------
+
+# Hannah Waddingham's New Prime Video Action Series Is A "Complete Departure"
+
+TV, Ride or Die
+
+Sat, 11 Jul 2026 17:01:43 GMT
+
+https://screenrant.com/ride-or-die-prime-video-hannah-waddingham-complete-departure/
+
+EXCLUSIVE: Ahead of Ted Lasso season 4, Hannah Waddingham can be seen in Prime Video's new action series that is a "complete departure" for her.
+---------
+
+# Jaadugar Is Crunchyroll's Best, And Most Controversial, Anime Of 2026
+
+Anime, Crunchyroll
+
+Sat, 11 Jul 2026 17:00:21 GMT
+
+https://screenrant.com/jaadugar-crunchyroll-best-2026-anime-controversy-explained/
+
+2026's best new anime doesn't deserve the hate.
+---------
+
+# 10 Harsh Realities Of Rewatching The Wire
+
+Classic TV, The Wire
+
+Sat, 11 Jul 2026 17:00:21 GMT
+
+https://screenrant.com/harsh-realities-rewatching-the-wire/
+
+The Wire might be the greatest TV series ever made, but there are some flaws and downsides and weaknesses that stick out when you rewatch the show.
+---------
+
+# All 8 Star Wars Games Free On PlayStation Plus, Ranked
+
+Gaming, Star Wars, PlayStation, Triple-A Games
+
+Sat, 11 Jul 2026 17:00:21 GMT
+
+https://screenrant.com/star-wars-8-free-games-ps-plus-ranked/
+
+While its rotating category might not have the largest amount of Star Wars offerings, it still has some great classics worth checking out.
+---------
+
+# 10 Greatest One Piece Cards of All Time Judged By Their Art
+
+Games, One Piece, TCG, Tabletop
+
+Sat, 11 Jul 2026 17:15:12 GMT
+
+https://www.cbr.com/greatest-one-piece-tcg-card-art-of-all-time/
+
+The One Piece Trading Card Game contains some of the finest tabletop art, and these ten units are heavily celebrated by the TCG's community.
+---------
+
+# MCU's X-Men Movie Release Timeline Officially Confirmed by Kevin Feige
+
+Movies, X-Men, Marvel Cinematic Universe
+
+Sat, 11 Jul 2026 17:09:04 GMT
+
+https://www.cbr.com/mcu-x-men-movie-release-timeline-kevin-feige/
+
+Marvel Studios head Kevin Feige confirms exactly when the Marvel Cinematic Universe will get its X-Men movie, and it's coming sooner than fans think.
+---------
+
+# Zooey Deschanel Reveals Which New Girl Main Character She Had to Rally to Cast
+
+TV, New Girl
+
+Sat, 11 Jul 2026 17:02:33 GMT
+
+https://www.cbr.com/zooey-deschanel-casting-lamorne-morris-winston/
+
+The sitcom is perfect as is, but one key character could've been completely different.
+---------
+
+# Before Their Oscar Nominations, Wagner Moura and Fernanda Torres Made This Underrated Comedy Gem
+
+Movie Features, Wagner Moura, Fernanda Torres, Brazil, Golden Globes
+
+Sat, 11 Jul 2026 17:29:13 GMT
+
+https://collider.com/basic-sanitation-movie-wagner-moura-fernanda-torres/
+
+Before their Oscar nominations, Wagner Moura and Fernanda Torres starred in Basic Sanitation, a Brazilian comedy hiding more future stars.
+---------
+
+# Did Marvel's Kevin Feige Just Spoil a Huge 'Spider-Man: Brand New Day' Cameo?
+
+Movie News, MCU, Spider-Man: Brand New Day, Florence Pugh, Kevin Feige
+
+Sat, 11 Jul 2026 17:26:09 GMT
+
+https://collider.com/mcu-florence-pugh-yelena-belova-return-spider-man-brand-new-day-vision-quest/
+
+Ahead of Avengers: Doomsday, Marvel boss Kevin Feige has teased that Florence Pugh's Yelena Belova has a secret role in another MCU project.
+---------
+
+# 15 Kripke Era ‘Supernatural’ Episodes That Are Perfect From Start to Finish
+
+TV, Supernatural, Jared Padalecki, Jensen Ackles, The WB
+
+Sat, 11 Jul 2026 17:17:13 GMT
+
+https://collider.com/supernatural-kripke-era-episodes-perfect-start-to-finish/
+
+"Swan Song," "Monster Movie," and "Pilot" are all among very best, near-perfect episodes of Supernatural's early Kripke era.
+---------
+
+# 10 Perfect Sci-Fi Movies With the Best Plots, Ranked
+
+Movie, Sci-Fi, The Terminator, Interstellar, The Matrix
+
+Sat, 11 Jul 2026 17:09:14 GMT
+
+https://collider.com/perfect-sci-fi-movies-best-plots-ranked/
+
+The greatest storytelling the sci-i genre has to offer.
+---------
+
+# 10 Best HBO Shows Based on True Stories, Ranked
+
+TV, HBO, Band of Brothers, Chernobyl, The Pacific
+
+Sat, 11 Jul 2026 17:04:14 GMT
+
+https://collider.com/best-hbo-shows-based-on-true-stories-ranked/
+
+Explore the top HBO series based on true stories, from gripping crime dramas like The Staircase to epic war narratives like Band of Brothers.
+---------
+
+# Collider Ladies Night Returns to SDCC with Stars of 'Lanterns,' 'The Walking Dead,' 'Silo' & 'Coyote vs. Acme'
+
+Exclusives, Ladies Night, Poorna Jagannathan, Lana Condor, SDCC
+
+Sat, 11 Jul 2026 17:00:13 GMT
+
+https://collider.com/sdcc-poorna-jagannathan-lana-condor-jessica-henwick-aimee-garcia/
+
+Ladies Night will return to SDCC! In 2026, Perri Nemiroff will take the stage with Poorna Jagannathan, Lana Condor, Aimee Garcia & Jessica Henwick.
+---------
+
+# Experience 131 Minutes of Pure Action With John Wick Before He Escapes Streaming
+
+Movie News, John Wick: Chapter 3 - Parabellum, Keanu Reeves, Action, John Wick
+
+Sat, 11 Jul 2026 17:00:13 GMT
+
+https://collider.com/keanu-reeves-john-wick-chapter-3-parabellum-leaving-hbo-max-august-2026/
+
+The critically acclaimed action sequel John Wick: Chapter 3 — Parabellum didn't have too many detractors, but it had a few. It's now leaving HBO Max.
+---------
+
+# 8 Animated Disney Movies That Deserve the Live-Action Treatment
+
+Movie, Disney, Animation, Meet the Robinsons, The Emperor's New Groove
+
+Sat, 11 Jul 2026 16:52:14 GMT
+
+https://collider.com/disney-animated-movies-deserve-live-action-treatment/
+
+Now that Moana and Lilo & Stitch have received the live-action treatment, Disney animated movies like The Emperor's New Groove deserve it, too.
+---------
+
+# 'Elle' Tops Prime Video Ratings, Defeating Nicolas Cage's 'Spider-Noir'
+
+TV News, Elle, Prime Video
+
+Sat, 11 Jul 2026 17:47:13 GMT
+
+https://movieweb.com/elle-prime-video-ratings-debut/
+
+Prime Video's 'Elle' is already a massive hit, topping the streamer's viewing charts and moving past Nicolas Cage's recent hit.
+---------
+
+# HBO's Crime Thriller Masterpiece Kickstarted the Streaming Revolution
+
+Features
+
+Sat, 11 Jul 2026 17:30:18 GMT
+
+https://movieweb.com/oz-started-streaming-revolution-j-k-simmons/
+
+Well before the streaming era officially began, HBO's first major series redefined how television was consumed
+---------
+
+# Prime's Reboot of a '90s Sci-Fi Masterpiece Is Already a Hit on Streaming
+
+TV News, The Ghost in the Shell, Prime Video, Hot on Streaming, Sci-Fi
+
+Sat, 11 Jul 2026 17:00:19 GMT
+
+https://movieweb.com/ghost-in-the-shell-reboot-stream-prime-july-2026-scifi/
+
+Prime Video's new cyberpunk 'The Ghost in the Shell' reboot is one of the biggest sci-fi shows on streaming right now.
+---------
+
+# Apple TV's 8-Part Sci-fi Miniseries Has One of the Greatest TV Casts Ever
+
+Features, Extrapolations
+
+Sat, 11 Jul 2026 17:00:19 GMT
+
+https://movieweb.com/extrapolations-apple-tv-great-cast/
+
+Apple TV's cautionary anthology series 'Extrapolations' remains vastly underrated despite its epic, star-studded ensemble.
+---------
+
 # 4 Years Later, Reacher Cutting Ties With These Characters Was The Right Move
 
 TV, Reacher, Op-Ed
