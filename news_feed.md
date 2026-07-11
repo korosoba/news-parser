@@ -1,3 +1,322 @@
+# Donnie Wahlberg Teases First Look At Blue Bloods Tradition In Boston Blue Season 2
+
+TV, Boston Blue, Blue Bloods
+
+Sat, 11 Jul 2026 01:43:26 GMT
+
+https://screenrant.com/boston-blue-season-2-family-dinner-tradition-blue-bloods/
+
+Donnie Wahlberg offers fans a behind-the-scenes look at Boston Blue season 2's take on one of Blue Bloods' most beloved traditions.
+---------
+
+# Dragon Ball's Goku Replacement Is Officially The New Face Of The Series
+
+Gaming, Dragon Ball, Dragon Ball Xenoverse 3, PC
+
+Sat, 11 Jul 2026 01:26:25 GMT
+
+https://screenrant.com/dragon-ball-xenoverse-3-goku-replaced-j-age-explained/
+
+Dragon Ball is officially replacing Goku as the lead protagonist, with the new face of the series getting an epic reveal announcement.
+---------
+
+# After 6 Years, Solo Leveling's Isekai Rival Has Ended With A Perfect 10/10 Rating
+
+Anime, Villains Are Destined to Die
+
+Sat, 11 Jul 2026 01:00:21 GMT
+
+https://screenrant.com/solo-leveling-isekai-rival-villains-destined-die-perfect/
+
+One of the best villainess manhwa has ended after six years with a perfect run and rating, and now's the best time to catch up.
+---------
+
+# Pokémon 30th Anniversary Collection Officially Announced For Retro Fans
+
+Gaming, Pokemon, Nintendo
+
+Sat, 11 Jul 2026 01:00:21 GMT
+
+https://screenrant.com/pokemon-30th-anniversary-collection-uniqlo/
+
+The latest Pokémon 30th anniversary release has been officially announced, and it is the perfect project for fans of the retro games.
+---------
+
+# House Of The Dragon Season 3 Officially Rewrites George R.R. Martin's Rhaenyra
+
+Streaming TV, House of the Dragon, House of the Dragon - Season 3, Game of Thrones
+
+Sat, 11 Jul 2026 01:00:21 GMT
+
+https://screenrant.com/house-of-the-dragon-rewrites-grrm-rhaenyra-nobles/
+
+House of the Dragon has played around plenty with George R.R. Martin's canon story. Now, Rhaenyra makes an unprecedented move in season 3, episode 3.
+---------
+
+# 2 Years Later, The Return Of Netflix's One Hundred Years of Solitude Is Only 1 Month Away
+
+TV, One Hundred Years of Solitude (2024), Netflix
+
+Sat, 11 Jul 2026 00:40:20 GMT
+
+https://screenrant.com/one-hundred-years-solitude-return-netflix-best-banned-book-adaptation/
+
+Book lovers have a lot to celebrate, as Netflix's adaptation of one of history’s greatest books is set to end in just a month's time.
+---------
+
+# Timothy Olyphant's Canceled Netflix Sci-Fi Show Is A Hidden Gem
+
+Streaming TV, Masked Recs
+
+Sat, 11 Jul 2026 00:30:20 GMT
+
+https://screenrant.com/timothy-olyphant-terminator-zero-canceled-netflix-hidden-gem/
+
+Timothy Olyphant hasn't had the best luck at Netflix, and one of his canceled shows — the animated Terminator Zero — remains a hidden gem.
+---------
+
+# Star Trek Celebrates Its 60th Anniversary With Massive Comic-Con Event
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Sat, 11 Jul 2026 00:03:57 GMT
+
+https://screenrant.com/star-trek-60th-anniversary-comic-con/
+
+Star Trek is throwing a huge, star-studded celebration of it's 60th anniversary at San Diego Comic-Con 2026. Here's who and what's beaming in.
+---------
+
+# Prime Video's Upcoming Fantasy Show Is Vikings Meets The Witcher
+
+Streaming TV, Masked Recs
+
+Sat, 11 Jul 2026 00:00:21 GMT
+
+https://screenrant.com/god-of-war-prime-video-vikings-meets-the-witcher/
+
+The very best elements of the historical drama Vikings and Netflix's fantasy series The Witcher are coming together for Prime Video's newest series.
+---------
+
+# Avatar Officially Returns This Month For An All-New Adventure
+
+Gaming, Avatar: The Last Airbender, Avatar: The Last Airbender - Season 1, Avatar: The Last Airbender - Season 2, Avatar: The Last Airbender - Season 3, PC, Avatar Aang: The Last Airbender
+
+Sat, 11 Jul 2026 00:00:21 GMT
+
+https://screenrant.com/avatar-legends-release-date-psa-july-2026/
+
+Avatar: The Last Airbender is making an official return later this month in an all-new adventure that longtime fans and newcomers will love.
+---------
+
+# 5 Anime Characters Objectively Stronger Than Ultra Instinct Goku
+
+Anime, Dragon Ball, Tenchi Muyo, Sailor Moon
+
+Sat, 11 Jul 2026 01:45:14 GMT
+
+https://www.cbr.com/anime-characters-stronger-ultra-instinct-goku/
+
+Ultra Instinct still operates within the rules of physical combat and relies on defeating opponents through superior technique, speed and power
+---------
+
+# Disney's Moana Remake Opening Box Office Numbers Sink to Snow White Levels
+
+Movies, Moana
+
+Sat, 11 Jul 2026 01:35:48 GMT
+
+https://www.cbr.com/disney-moana-remake-opening-day-box-office/
+
+The Moana remake is having an opening that's on par with Rachel Zegler's disastrous Snow White debut.
+---------
+
+# 10 Hardest Sega Genesis Games, Officially Ranked
+
+Games, Sega Genesis, Chakan: The Forever Man, sega
+
+Sat, 11 Jul 2026 01:25:14 GMT
+
+https://www.cbr.com/hardest-sega-genesis-games-officially-ranked/
+
+The Sega Genesis is home to nearly 1,000 games, but these ten titles in particular serve as the hardest experiences on the 16-bit console.
+---------
+
+# DC's Bold 2026 Slate Leaves Marvel Looking Cautious
+
+Comics, DC Comics, Marvel, Batman
+
+Sat, 11 Jul 2026 01:01:15 GMT
+
+https://www.cbr.com/dc-comics-bigger-creative-risks-2026/
+
+DC Comics has reclaimed the top spot in the American comic book industry by championing creative freedom and imagination like never before.
+---------
+
+# 5 Anime Characters Who Are Smarter Than Sherlock Holmes
+
+Anime, Death Note, Bleach
+
+Sat, 11 Jul 2026 00:45:14 GMT
+
+https://www.cbr.com/anime-characters-smarter-than-sherlock-holmes/
+
+Sherlock Holmes is fiction's most famous detective, but these anime characters display even more astonishing intellect.
+---------
+
+# 25 Greatest Zombie Anime of All Time
+
+Anime, Zombie, zombies
+
+Sat, 11 Jul 2026 00:31:15 GMT
+
+https://www.cbr.com/best-zombie-anime/
+
+From movies like Black Butler: Book of the Atlantic to anime like Tokyo Ghoul, the greatest zombie anime keep viewers on the edge of their seats.
+---------
+
+# The Lord of the Rings Movies Broke Gandalf Lore
+
+Movies, The Lord of the Rings
+
+Sat, 11 Jul 2026 00:31:14 GMT
+
+https://www.cbr.com/the-lord-of-the-rings-trilogy-broke-shadowfax-lore/
+
+The Lord of the Rings movies have changed canon before, but this one change made for an iconic character debut that fans still love.
+---------
+
+# 10 Greatest Open-World RPGs of the Last 10 Years, Ranked
+
+Games, Video Games, Elden Ring, Assassin's Creed, Cyberpunk 2077
+
+Sat, 11 Jul 2026 00:31:14 GMT
+
+https://www.cbr.com/best-modern-open-world-rpgs/
+
+The greatest open-world RPGs of modern times include Elden Ring and Assassin's Creed Odyssey.
+---------
+
+# The Star Trek Show Gene Roddenberry Erased From Trek Canon Hits Even Harder 53 Years Later
+
+TV, Star Trek: The Animated Series, Sci-Fi, Star Trek
+
+Sat, 11 Jul 2026 00:31:14 GMT
+
+https://www.cbr.com/star-trek-tas-gene-roddenberry-erased-canon/
+
+One Star Trek series was erased from canon by Gene Roddenberry himself, but it continued to shape the universe just the same.
+---------
+
+# Transformers Revives Ironhide's Original Movie Design After Nearly 20 Years
+
+Anime, Transformers, merchandise
+
+Sat, 11 Jul 2026 00:20:15 GMT
+
+https://www.cbr.com/transformers-ironhide-yolopark-amk-pro/
+
+The newest Yolopark Transformers figure recreates the heavy-duty Ironhide, bringing his design from the Bayverse movies to life in stunning detail.
+---------
+
+# Disney+'s Overlooked 2-Part MCU Series Is Still Worth Watching
+
+TV Features, Cloak & Dagger, MCU, Marvel, Olivia Holt, Aubrey Joseph
+
+Sat, 11 Jul 2026 01:55:14 GMT
+
+https://collider.com/cloak-and-dagger-disney-mcu-series-worth-watching/
+
+The MCU's Cloak & Dagger defies expectations and remains relevant with its character-driven drama and themes of mental health.
+---------
+
+# 'God of War: Laufey' Release Window Confirmed Amid PlayStation Backlash
+
+Gaming News, God of War, Deborah Ann Woll, PlayStation 5, Sony
+
+Sat, 11 Jul 2026 01:37:29 GMT
+
+https://collider.com/god-of-war-laufey-ps5-2027-release-window/
+
+God of War: Laufey will be getting a physical release despite PlayStation's recent announcement, hinting at a 2027 debut.
+---------
+
+# 4 Greatest Val Kilmer Movies That Define His Career
+
+Movie, Val Kilmer, Heat, Tombstone, The Doors
+
+Sat, 11 Jul 2026 01:14:14 GMT
+
+https://collider.com/best-val-kilmer-movies-ranked/
+
+Val Kilmer built one of Hollywood’s most fascinating careers, and these performances show exactly why he remains so unforgettable.
+---------
+
+# Forget 'Invincible,' Prime Video Has a New Sci-Fi Streaming Sensation on Their Hands
+
+TV News, The Ghost in the Shell, Anime, Prime Video, Ghost in the Shell
+
+Sat, 11 Jul 2026 01:00:15 GMT
+
+https://collider.com/prime-video-sci-fi-the-ghost-in-the-shell-streaming-success-july-2026/
+
+The iconic Ghost in the Shell franchise returns with a new anime series on Prime Video, following Motoko Kusanagi and her elite cybercrime team.
+---------
+
+# 60 Years Later, This Captain Kirk Quote Remains Star Trek's Most Powerful Moment
+
+TV Features, Star Trek: The Original Series, Star Trek, William Shatner, Paramount+ with Showtime
+
+Sat, 11 Jul 2026 00:39:14 GMT
+
+https://collider.com/star-trek-original-series-captain-kirk-balance-of-terror-quote/
+
+Star Trek's "Balance of Terror" episode showcases Captain Kirk's powerful message against bigotry, highlighting the franchise's enduring themes.
+---------
+
+# Secret Wolverine Spin-Off Officially Revealed
+
+Books and Comics News, Wolverine, Marvel, San Diego Comic-Con, PlayStation 5
+
+Sat, 11 Jul 2026 00:07:16 GMT
+
+https://collider.com/marvel-playstation-wolverine-prequel-comic-sdcc/
+
+Ahead of SDCC and PlayStation's new Wolverine game, a secret X-Men project has been officially revealed.
+---------
+
+# Pokémon’s Biggest Rival Gets Officially a Major Win Over ‘GTA 6’
+
+Gaming News, Nintendo, Pokémon, Sci-Fi, GTA V
+
+Sat, 11 Jul 2026 00:01:15 GMT
+
+https://collider.com/sci-fi-game-palworld-price-increase-not-happening-launch/
+
+Following GTA 6's disappointing but not unexpected price increase, Palworld will not be following in the game's footsteps.
+---------
+
+# Netflix's 'Twilight' Reboot Confirms Jacob Replacement
+
+TV News, Twilight, Taylor Lautner, Netflix
+
+Sat, 11 Jul 2026 00:59:15 GMT
+
+https://movieweb.com/twilight-reboot-netflix-new-jacob/
+
+A casting breakdown for Jacob and Billy Black marks one of the first concrete signs the project is moving.
+---------
+
+# Netflix's Reboot of the GOAT Western Series Is Already Renewed for Season 2
+
+Features, Little House on the Prairie, Netflix, Western
+
+Sat, 11 Jul 2026 00:00:20 GMT
+
+https://movieweb.com/netflix-little-house-on-the-prairy-season-2/
+
+Before 'Little House on the Prairie' released, Netflix renewed the series for Season 2, a rare sign that the streamer is confident in its future.
+---------
+
 # Netflix's Next Massive Dark Fantasy Hit Is Only 1 Week Away
 
 TV, Netflix, Masked Recs
