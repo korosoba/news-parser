@@ -1,3 +1,245 @@
+# ABC's Complete Fall 2026 Schedule
+
+Network TV, ABC
+
+Sun, 12 Jul 2026 15:45:19 GMT
+
+https://screenrant.com/abc-complete-fall-2026-schedule/
+
+The Disney-owned network is all set for the next TV cycle, as ABC confirms its fall 2026 schedule with fan-favorite procedurals and comedies.
+---------
+
+# New Fallout Game First Details And Gameplay Appear Online
+
+Gaming, Fallout, Triple-A Games, PC
+
+Sun, 12 Jul 2026 15:41:47 GMT
+
+https://screenrant.com/fallout-new-game-leak-first-details/
+
+After news of a new Fallout game in development broke last week, the first details about what to expect from the next installment have now appeared.
+---------
+
+# Michael Jackson Movie Is Officially The First Billion-Dollar Biopic Ever
+
+Movies, Michael, Box Office Milestone
+
+Sun, 12 Jul 2026 15:39:00 GMT
+
+https://screenrant.com/michael-2026-box-office-1-billion-global-milestone/
+
+2026's Michael Jackson, which stars Jaafar Jackson as the King of Pop, becomes the first biopic to ever earn $1 billion at the box office.
+---------
+
+# Anya Taylor-Joy's 7-Part Netflix Thriller Has Aged Like Fine Wine
+
+Streaming TV, Masked Recs
+
+Sun, 12 Jul 2026 15:30:21 GMT
+
+https://screenrant.com/queens-gambit-anya-taylor-joy-netflix-keeps-getting-better/
+
+Anya Taylor-Joy is returning to television with Apple TV's Lucky, so now is the best time to watch her Emmy-winning cerebral thriller on Netflix.
+---------
+
+# EA Thought It Had To “Put Lipstick On A Pig” To Sell Dragon Age
+
+Gaming, Dragon Age, Triple-A Games, EA
+
+Sun, 12 Jul 2026 15:30:21 GMT
+
+https://screenrant.com/dragon-age-ea-management-bioware/
+
+Dragon Age has long been a successful fantasy RPG series, but publisher Electronic Arts was seemingly incapable of recognizing its merits.
+---------
+
+# Ne Zha Is Leaving Netflix Next Month
+
+Movies, Ne Zha, Netflix
+
+Sun, 12 Jul 2026 15:30:21 GMT
+
+https://screenrant.com/netflix-ne-zha-movie-netflix-leaving/
+
+The prequel to a $2.2 billion fantasy movie hit that wowed audiences in 2025 is reportedly schedule to leave Netflix in just a few weeks.
+---------
+
+# Disney Princess Father’s Death Explained By Author 25 Years Later: “What Did He Do?!”
+
+Movies, The Princess Diaries
+
+Sun, 12 Jul 2026 15:26:56 GMT
+
+https://screenrant.com/princess-diaries-disney-movie-mia-father-death-meg-cabot-explained/
+
+25 years later, author Meg Cabot explains why Disney chose to kill the father of a princess, and why she ultimately approved of this change.
+---------
+
+# Moana Live-Action Remake Set To Lose $100 Million At The Box Office With Snow White-Level Debut (Domestic Top 5)
+
+Movies, Box Office, Moana
+
+Sun, 12 Jul 2026 15:26:25 GMT
+
+https://screenrant.com/moana-2026-box-office-opening-weekend-domestic-chart-report/
+
+The live-action remake of Moana sinks below its already lukewarm projections during its domestic box office debut, almost hitting Snow White's level.
+---------
+
+# One Piece Just Gave Luffy His Most Brutal Beating In Years, And It's Perfect
+
+Anime, One Piece
+
+Sun, 12 Jul 2026 15:06:39 GMT
+
+https://screenrant.com/one-piece-luffy-imu-fight-loss-brutal/
+
+It's never been more over for Luffy.
+---------
+
+# Moana Live-Action Remake's Biggest Changes From $687M Disney Hit Explained By Director
+
+Exclusive, Moana
+
+Sun, 12 Jul 2026 15:02:54 GMT
+
+https://screenrant.com/moana-live-action-remake-changes-explained-thomas-kail/
+
+EXCLUSIVE: Moana's remake has more differences than you realize, and director Thomas Kail explains the biggest changes made from the original movie.
+---------
+
+# 2026 Just Scored Its Second $1 Billion Movie With Record-Breaking Release
+
+Movies, box office, The Super Mario Galaxy Movie, Michael
+
+Sun, 12 Jul 2026 15:41:40 GMT
+
+https://www.cbr.com/michael-billion-dollar-milestone-box-office/
+
+The Super Mario Galaxy Movie just scored a new box office buddy.
+---------
+
+# 10 Greatest 2000s Anime Series, Officially Ranked
+
+Anime, Gundam, Shonen, seinen, Gintama, Naruto
+
+Sun, 12 Jul 2026 15:15:12 GMT
+
+https://www.cbr.com/greatest-2000s-anime-officially-ranked/
+
+The 2000s featured incredible anime, like Naruto and Gintama, that are still beloved to this day.
+---------
+
+# Disney's Moana Live-Action Officially Divides Critics & Audiences: 'Ignore the Haters'
+
+Movies, Moana, Rotten Tomatoes
+
+Sun, 12 Jul 2026 15:02:57 GMT
+
+https://www.cbr.com/disney-moana-live-action-critics-audiences-rotten-tomatoes/
+
+As Moana scored even lower than Snow White, audiences had something to say.
+---------
+
+# 5 Shonen Anime With Better Power Systems Than JJK
+
+Anime, Hunter X Hunter, One Piece, Naruto, shonen anime, Jujutsu Kaisen
+
+Sun, 12 Jul 2026 15:00:13 GMT
+
+https://www.cbr.com/shonen-anime-better-power-systems-than-jjk/
+
+Jujutsu Kaisen's Cursed Energy is one of modern shonen anime's most exciting power systems, but it pales in comparison to other superior systems.
+---------
+
+# The Best Far Side Comics About Cats
+
+Comics, The Far Side
+
+Sun, 12 Jul 2026 15:00:13 GMT
+
+https://www.cbr.com/best-far-side-comics-about-cats/
+
+While Gary Larson may have favored cows, aliens, and dogs, he also featured cats in various forms across his iconic comic strip, The Far Side.
+---------
+
+# This 'House of the Dragon' Fan Theory Could Finally Explain One of 'Game of Thrones'' Biggest Mysteries
+
+TV Features, House of the Dragon, Game Of Thrones, A Song of Ice and Fire, HBO
+
+Sun, 12 Jul 2026 15:27:13 GMT
+
+https://collider.com/house-of-the-dragon-alys-rivers-theory-game-of-thrones-mystery/
+
+House of the Dragon's Alys Rivers may be Game of Thrones' Leaf in disguise, answering several mysteries from the original series.
+---------
+
+# Dwayne Johnson’s Box Office Woes Get Worse With ‘Moana’ Remake
+
+Movie News, Moana, Dwayne Johnson, Box Office
+
+Sun, 12 Jul 2026 15:14:26 GMT
+
+https://collider.com/moana-remake-dwayne-johnson-box-office-95-million/
+
+Dwayne Johnson’s Moana remake is facing box office trouble after a weak debut, continuing a rough theatrical stretch for the star.
+---------
+
+# Netflix's Thrilling 2-Part Series Completely Rewrote the Crime TV Formula
+
+TV Features, Mindhunter, Netflix, David Fincher, Jonathan Groff
+
+Sun, 12 Jul 2026 14:58:13 GMT
+
+https://collider.com/mindhunter-netflix-changed-true-crime-formula/
+
+Mindhunter revolutionized the crime genre with David Fincher's directing, its deep dive into the minds of serial killers, and its complex characters.
+---------
+
+# Even Ryan Reynolds’ Franchise-Destroying ‘Green Lantern’ Grossed 2x More Than ‘Supergirl’
+
+Movie News, Supergirl, Green Lantern, Box Office, Ryan Reynolds
+
+Sun, 12 Jul 2026 14:45:13 GMT
+
+https://collider.com/supergirl-box-office-green-lantern-ryan-reynolds-comparison/
+
+Supergirl’s box office total is trailing far behind Ryan Reynolds’ notorious Green Lantern, making the DC comparison even more brutal.
+---------
+
+# 2026 Finally Finds Its Second Billion-Dollar Movie With Hit Record Breaker
+
+Movie News, Michael, Musical, Drama
+
+Sun, 12 Jul 2026 15:17:28 GMT
+
+https://movieweb.com/michael-billion-dollars-worldwide/
+
+'Michael' is now the second movie of 2026 to make over $1 billion at the box office.
+---------
+
+# 12 Most Powerful Kaiju in 'Godzilla' Movie History, Ranked
+
+Features, Godzilla
+
+Sun, 12 Jul 2026 15:00:19 GMT
+
+https://movieweb.com/12-most-powerful-kaiju-godzilla-movies/
+
+Godzilla and his deadliest enemies have gotten upgrades over the years, but these 12 represent the most powerful kaiju in live-action history.
+---------
+
+# A 91-Minute 96% Rated Sci-Fi Thriller Masterpiece Is Leaving Free Streaming
+
+Movie News, Gravity, Coming/Leaving Streaming
+
+Sun, 12 Jul 2026 14:44:28 GMT
+
+https://movieweb.com/gravity-leaving-free-streaming-pluto-july-2026/
+
+Sci-fi should always make you believe in the impossible. This one actually terrified us by making the impossible feel more real than ever.
+---------
+
 # 64 Years Of Hulk Lore Just Changed Forever With One Line
 
 Marvel Comics, Hulk
