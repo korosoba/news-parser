@@ -1,3 +1,234 @@
+# All The Evil Dead Movies Ranked, Worst To Best
+
+Streaming TV, Evil Dead II, Army of Darkness, Evil Dead, Evil Dead Rise, The Evil Dead
+
+Sun, 12 Jul 2026 16:40:20 GMT
+
+https://screenrant.com/evil-dead-movies-ranked-best-worst/
+
+From 1981's original to Evil Dead Rise, the Evil Dead movies are some of the best - and weirdest - horror films. Here's the Evil Dead movies ranked.
+---------
+
+# 10 Movies You Need To Watch Before The Odyssey
+
+Movies, The Odyssey
+
+Sun, 12 Jul 2026 16:30:19 GMT
+
+https://screenrant.com/movies-to-watch-before-the-odyssey/
+
+Christopher Nolan's The Odyssey comes to theaters on July 17, 2026, but in the meantime, here are 10 similar movies to enjoy while you wait.
+---------
+
+# Fallout Fans United After Shocking Official Franchise News
+
+Gaming, Fallout, Triple-A Games
+
+Sun, 12 Jul 2026 16:30:19 GMT
+
+https://screenrant.com/fallout-obsidian-developer-reaction/
+
+The latest official update on the Fallout franchise would normally be cause for celebration, but it's sadly at great expense for Obsidian.
+---------
+
+# It's Official, Buffy The Vampire Slayer's Return Is Only One Month Away
+
+Comics, Buffy The Vampire Slayer, Buffy the Vampire Slayer
+
+Sun, 12 Jul 2026 16:22:10 GMT
+
+https://screenrant.com/buffy-the-vampire-slayer-series-return-explained/
+
+Slayers, mark your calendars, because in one month, Buffy the Vampire Slayer returns with a new series that brings back fan-favorite characters.
+---------
+
+# Taylor Sheridan's The Walking Dead Recasting Saved The Show
+
+TV, The Walking Dead, Taylor Sheridan
+
+Sun, 12 Jul 2026 16:15:19 GMT
+
+https://screenrant.com/walking-dead-taylor-sheridan-jon-bernthal-recasting-saved/
+
+Taylor Sheridan was almost locked in for a major role on The Walking Dead, but his replacement by a future star worked out for everyone.
+---------
+
+# Gachiakuta Is Crunchyroll's Only 2025 Anime To Break New-Gen Shonen's 1 Sacred Rule (Exclusive)
+
+Anime, Gachiakuta, Crunchyroll
+
+Sun, 12 Jul 2026 16:00:21 GMT
+
+https://screenrant.com/gachiakuta-break-new-gen-shonen-sacred-rule-episode-count/
+
+The inside scoop on why Gachiakuta is so good.
+---------
+
+# NCIS Season 24: Tony DiNozzo’s Return Changes NCIS
+
+TV, Originals
+
+Sun, 12 Jul 2026 16:00:21 GMT
+
+https://screenrant.com/video/ncis-season-24-tony-s-return-changes-the-franchise/
+
+Michael Weatherly is officially returning to NCIS, and after nearly a decade away, Tony DiNozzo's comeback couldn't arrive at a more important moment. With Leon Vance gone and the agency facing its biggest leadership shakeup in years, Season 24 has the chance to do far more than bring back a fan favorite.
+---------
+
+# 5 Years Later, Netflix’s Best Original Horror Movie Still Hasn’t Been Dethroned
+
+Movies, Masked Recs
+
+Sun, 12 Jul 2026 16:00:21 GMT
+
+https://screenrant.com/netflix-best-original-horror-movie-fear-street/
+
+Half a decade after its original release, it is clearer than ever that Netflix's best original horror movie is a rare masterpiece from the streamer.
+---------
+
+# Dead Rising's Long-Awaited Return Has Fans Seriously Pumped
+
+Gaming, Dead Rising, Triple-A Games
+
+Sun, 12 Jul 2026 16:00:21 GMT
+
+https://screenrant.com/dead-rising-new-game-rumor-reaction/
+
+Dead Rising is a franchise that has been dormant for a while beyond its Deluxe Remaster, but fans are getting their hopes up about a new game.
+---------
+
+# MCU: The 10 Best Supporting Characters From Phase Two
+
+Movies, Marvel Cinematic Universe, Ranking
+
+Sun, 12 Jul 2026 15:55:20 GMT
+
+https://screenrant.com/mcu-best-supporting-characters-phase-two/
+
+Phase Two of the MCU brought us some standout supporting players, from hilarious comedic relief characters to sidekicks who eventually became heroes.
+---------
+
+# This Classic Sci-Fi Epic Still Has the Darkest Pilot Episode in Television History
+
+TV, Battlestar Galactica, Sci-Fi
+
+Sun, 12 Jul 2026 16:30:12 GMT
+
+https://www.cbr.com/battlestar-galactica-darkest-sci-fi-pilot-tv-history/
+
+Ronald D. Moore's Battlestar Galactica reimagining delivered the darkest series premiere of all time.
+---------
+
+# Original Kiki's Delivery Service Illustrator Akiko Hayashi Dies at 81
+
+Anime, Kiki's Delivery Service, Studio Ghibli
+
+Sun, 12 Jul 2026 16:21:35 GMT
+
+https://www.cbr.com/akiko-hayashi-dies-81-kikis-delivery-service-illustrator/
+
+Akiko Hayashi, the original illustrator of Kiki's Delivery Service, the book behind the Studio Ghibli film, has died at 81.
+---------
+
+# 8 Strongest Time Manipulation Abilities in Anime, Ranked
+
+Anime, Bleach, My Hero Academia, Jojo's Bizarre Adventure, Sailor Moon
+
+Sun, 12 Jul 2026 16:15:12 GMT
+
+https://www.cbr.com/strongest-time-manipulation-abilities-in-anime/
+
+Time manipulators in anime like DIO and Hit break all the established rules of the action anime they star in.
+---------
+
+# Dark Souls' Biggest Comeback Ever Is Only 3 Months Away
+
+Comics, Dark Souls
+
+Sun, 12 Jul 2026 16:00:13 GMT
+
+https://www.cbr.com/dark-souls-redemption-vol-3-yen-press-release-date-confirmed/
+
+The new Dark Souls release sees a guardian, a keeper and a hunter bringing hope to a dying world.
+---------
+
+# 5 Sci-Fi Movies With the Best Character Development, Ranked
+
+Movies, The Iron Giant, Children of Men, Eternal Sunshine of the Spotless Mind
+
+Sun, 12 Jul 2026 16:00:13 GMT
+
+https://www.cbr.com/sci-fi-movies-with-the-best-character-development-ranked/
+
+Some of the greatest character arcs in fiction can be found in sci-fi
+---------
+
+# 9 Forgotten 1990s Thrillers That Have Aged Like Fine Wine
+
+Movie, Thriller, 1990s, Copycat, The Game
+
+Sun, 12 Jul 2026 16:41:13 GMT
+
+https://collider.com/forgotten-90s-thriller-movies-aged-like-fine-wine/
+
+Although '90s thrillers like Copycat, The Last Seduction, and The Game have been largely forgotten, their reputation has only improved with time.
+---------
+
+# Pixar's Long-Awaited $1B Franchise Is Officially Here
+
+Movie News, Toy Story 5, Pixar, Box Office, Tom Hanks
+
+Sun, 12 Jul 2026 16:15:12 GMT
+
+https://collider.com/toy-story-5-box-office-on-track-billion-dollar-milestone/
+
+Pixar’s Toy Story 5 is set to cross $1 billion at the global box office, becoming the latest blockbuster to hit the milestone this year.
+---------
+
+# 10 Most Thrilling Documentaries of All Time
+
+Movie, Free Solo, The Imposter, american animals, The Thin Blue Line
+
+Sun, 12 Jul 2026 16:06:14 GMT
+
+https://collider.com/most-thrilling-documentaries-all-time-ranked/
+
+The most thrilling documentaries of all time include crime-related ones like The Imposter and movies about extreme sports like Free Solo.
+---------
+
+# ‘Jack Ryan’ Meets ‘The Americans’ in This Tense Paramount+ Spy Thriller
+
+TV Features, The Agency, Paramount Plus, Tom Clancy's Jack Ryan, The Americans
+
+Sun, 12 Jul 2026 15:55:12 GMT
+
+https://collider.com/the-agency-paramount-spy-thriller-jack-ryan-meets-the-americans/
+
+Michael Fassbender stars in The Agency, a Paramount+ spy thriller that successfully combines the best of Jack Ryan and The Americans.
+---------
+
+# Michael Fassbender’s Underrated Spy Thriller Shoots to Success on Streaming
+
+TV News, The Agency, Paramount Plus, Action
+
+Sun, 12 Jul 2026 16:27:50 GMT
+
+https://movieweb.com/michael-fassbender-the-agency-paramount/
+
+'The Agency' is officially a hit on Paramount+. Now we just the streamer to give the green light to a third season.
+---------
+
+# Clint Eastwood's 20-Year-Old WWII Masterpiece Beats 'Saving Private Ryan'
+
+Features, Clint Eastwood, Flags of Our Fathers, Saving Private Ryan
+
+Sun, 12 Jul 2026 16:00:19 GMT
+
+https://movieweb.com/clint-eastwood-wwii-masterpiece-beats-saving-private-ryan/
+
+In 2006, Clint Eastwood's 'Flags of Our Fathers' hit theaters. It's still less popular than 'Saving Private Ryan,' but it does one thing better.
+---------
+
 # ABC's Complete Fall 2026 Schedule
 
 Network TV, ABC
