@@ -1,3 +1,223 @@
+# DC’s Canceled Batgirl Movie Addressed By Star 4 Years Later: “It’s Bizarre”
+
+Movies, Batgirl
+
+Sun, 12 Jul 2026 17:34:41 GMT
+
+https://screenrant.com/dc-batgirl-movie-cancellation-jk-simmons-response/
+
+Four years after Batgirl’s shocking cancellation by Warner Bros. leadership, Commissioner Gordon actor J.K. Simmons speaks out regarding the movie.
+---------
+
+# 10 Spectacular Spider-Man Episodes That Are Considered Masterpieces
+
+Classic TV, The Spectacular Spider-Man, Spider-Man
+
+Sun, 12 Jul 2026 17:30:20 GMT
+
+https://screenrant.com/best-spectacular-spider-man-episodes-masterpieces/
+
+The Spectacular Spider-Man is one of the best Spider-Man TV shows, and these 10 episodes from the short-lived series stand out as the best.
+---------
+
+# Tracker’s Surprise Character Exit Derails Season 4
+
+Network TV, Tracker
+
+Sun, 12 Jul 2026 17:15:19 GMT
+
+https://screenrant.com/tracker-season-4-russell-jensen-ackles-exit-derail/
+
+In one of the biggest twist of its run, Tracker sees an unexpected character exit that derails the ideal story for season 4 of the CBS show.
+---------
+
+# This Classic Coen Brothers Comedy Is A Must-Watch Before Seeing The Odyssey
+
+Movies, Masked Recs
+
+Sun, 12 Jul 2026 17:15:19 GMT
+
+https://screenrant.com/o-brother-where-art-thou-the-odyssey-recommendation/
+
+Christopher Nolan's The Odyssey is officially almost here, but before you see it in theaters, check out this Coen Brothers must-watch comedy classic.
+---------
+
+# Evil Creators & Stars New CBS Reunion Show Sets Official Release Date
+
+TV, Cupertino, Cupertino - Season 1
+
+Sun, 12 Jul 2026 17:11:22 GMT
+
+https://screenrant.com/cupertino-cbs-show-release-date-revealed/
+
+Mike Colter reunites with Evil creators Michelle and Robert King for a new CBS series, the legal drama Cupertino, which has now set a release date.
+---------
+
+# David Boreanaz Reacts To Hulu's Buffy Reboot Cancellation & Angel's Potential Future
+
+Exclusive, Buffy The Vampire Slayer, Angel
+
+Sun, 12 Jul 2026 17:04:25 GMT
+
+https://screenrant.com/buffy-vampire-slayer-hulu-reboot-cancellation-angel-future-david-boreanaz-reaction/
+
+EXCLUSIVE: Buffy the Vampire Slayer may not be resurrected after all, as series star David Boreanaz reacts to the shocking cancellation by Hulu.
+---------
+
+# Ghost in the Shell Is Back On Prime Video, And Its First Episode Is A 10/10
+
+Anime, Ghost in the Shell, The Ghost in the Shell
+
+Sun, 12 Jul 2026 17:00:21 GMT
+
+https://screenrant.com/the-ghost-in-the-shell-back-first-episode-perfect/
+
+Ghost in the Shell has never looked so good.
+---------
+
+# All 9 Attack On Titan Spinoffs & Specials Explained
+
+Classic TV, Attack On Titan
+
+Sun, 12 Jul 2026 17:00:21 GMT
+
+https://screenrant.com/attack-on-titan-spinoffs-specials-explained/
+
+Attack on Titan has several spinoffs and specials, with some focusing on deeper character development and others simply being a fun watch.
+---------
+
+# Pokémon Winds & Waves Leak Confirms We'll Be Playing This Game Forever
+
+Gaming, Pokemon Winds and Waves, Pokemon, Triple-A Games
+
+Sun, 12 Jul 2026 17:00:21 GMT
+
+https://screenrant.com/pokemon-winds-waves-leaked-size/
+
+Generation 10's Winds and Waves are the victim of widespread leaks, and some new info hints that a jaw-dropping number of new Pokémon may be added.
+---------
+
+# 10 Best Comedy Movies On HBO Max Everyone Needs To Watch
+
+Movies, HBO Max, Comedy, Recommendation
+
+Sun, 12 Jul 2026 16:55:19 GMT
+
+https://screenrant.com/best-comedy-movies-hbo-max-need-watch-once/
+
+HBO Max has an incredible catalog of movies, especially when it comes to comedies, from legitimate classics to hilarious mockumentaries and more.
+---------
+
+# The 10 Greatest Opening Shots of the 21st Century, Ranked
+
+Movies, The Brutalist, Children of Men
+
+Sun, 12 Jul 2026 17:30:12 GMT
+
+https://www.cbr.com/best-opening-movie-shots-21st-century-ranked/
+
+These opening shots have gone down in history as some of the most impressive and memorable, establishing their movies as the 21st century's best.
+---------
+
+# Avengers: Doomsday Concept Art Reveals First Look at Robert Downey Jr.'s Doctor Doom
+
+Movies, Avengers: Doomsday
+
+Sun, 12 Jul 2026 17:26:22 GMT
+
+https://www.cbr.com/avengers-doomsday-concept-art-robert-downey-jrs-doctor-doom/
+
+Robert Downey Jr. is coming back to the MCU, this time, as a supervillain.
+---------
+
+# 8 Near-Perfect 2D Platformers, Officially Ranked
+
+Games, Video Games, super mario bros, Nintendo
+
+Sun, 12 Jul 2026 17:15:12 GMT
+
+https://www.cbr.com/best-2d-platformers-of-all-time-officially-ranked/
+
+2D platformers defined the SNES and Sega Genesis era, but many incredible games in the genre continue to be released each year.
+---------
+
+# Marvel's Surprise Hit Series Returns as a Streaming Hit After Major Emmy Nomination
+
+TV, Wonder Man, Marvel, Disney+
+
+Sun, 12 Jul 2026 17:00:13 GMT
+
+https://www.cbr.com/marvel-wonder-man-success-post-emmy-disney-plus-july-2026/
+
+One of Marvel's best series is gaining traction.
+---------
+
+# Frank Miller's Batman: Year One Prequel Would Finally Reveal Jim Gordon's Secret Past
+
+Comics, Batman
+
+Sun, 12 Jul 2026 17:00:13 GMT
+
+https://www.cbr.com/frank-millers-batman-year-one-prequel-jim-gordon-chicago-police/
+
+Batman: Year One is the archetypal Batman origin, and a lot of that has to do with the role Jim Gordon played.
+---------
+
+# 10 Kid-Friendly TV Shows That Are Better Than They Get Credit For
+
+TV, The Spectacular Spider-Man, Ben 10: Omniverse, The Batman, Animation
+
+Sun, 12 Jul 2026 17:50:13 GMT
+
+https://collider.com/kid-friendly-tv-shows-better-than-they-get-credit-for/
+
+The Spectacular Spider-Man, The Batman, and The Legend of Korra are kid-friendly animated TV shows better than they get credit for.
+---------
+
+# HBO Max's 2-Part Sci-Fi Prequel Is Taking Over the World Again
+
+TV News, Dune, Dune: Prophecy, HBO Max, Streaming
+
+Sun, 12 Jul 2026 17:00:14 GMT
+
+https://collider.com/dune-prophecy-streaming-success-hbo-max-july-2026/
+
+The Dune project that split fans down the middle is a streaming hit. Here's everything you should know.
+---------
+
+# One of the Best Action Epic Films of All Time Is on YouTube for Free
+
+Features, Troy, The Odyssey
+
+Sun, 12 Jul 2026 17:30:18 GMT
+
+https://movieweb.com/troy-best-action-epic-streaming/
+
+Never skip a great movie when it's streaming for free, and one of the most entertaining action epics ever made is just a few clicks away on YouTube.
+---------
+
+# Every Tom Hardy TV Series, Ranked
+
+TV Lists, Tom Hardy
+
+Sun, 12 Jul 2026 17:00:19 GMT
+
+https://movieweb.com/every-tom-hardy-tv-series-ranked/
+
+As one of the seminal actors of his generation, Tom Hardy has proven his skills on both the big screen and small, with some top-notch shows.
+---------
+
+# Why Was 'Bosch: Legacy' Canceled? Titus Welliver Is Just as Mad as We Are
+
+Features, Bosch: Legacy, Titus Welliver
+
+Sun, 12 Jul 2026 17:00:19 GMT
+
+https://movieweb.com/titus-welliver-bosch-legacy-canceled-explained/
+
+Titus Welliver opens up about Amazon's decision to cancel 'Bosch: Legacy' after 3 seasons.
+---------
+
 # All The Evil Dead Movies Ranked, Worst To Best
 
 Streaming TV, Evil Dead II, Army of Darkness, Evil Dead, Evil Dead Rise, The Evil Dead
