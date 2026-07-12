@@ -1,3 +1,344 @@
+# 64 Years Of Hulk Lore Just Changed Forever With One Line
+
+Marvel Comics, Hulk
+
+Sun, 12 Jul 2026 14:30:20 GMT
+
+https://screenrant.com/hulk-lore-changes-forever-bruce-banner-addicted/
+
+The Hulk's origins and unstoppable nature gain a new explanation that change the way Bruce Banner interacts with his gamma monster counterpart.
+---------
+
+# Casting Friends If It Was Made In 2026: All 6 Main Roles
+
+Classic TV, Friends
+
+Sun, 12 Jul 2026 14:30:20 GMT
+
+https://screenrant.com/friends-2026-cast-fancast-all-6-main-characters/
+
+Discover how six rising stars embody the essence of Friends' beloved characters in a 2026 reboot, balancing humor, heart, and relatable charm.
+---------
+
+# It's Official, Game Of Thrones Is Returning As A New Era Dawns
+
+Gaming, Game of Thrones, Game of Thrones: Kingsroad, PC
+
+Sun, 12 Jul 2026 14:15:25 GMT
+
+https://screenrant.com/game-of-thrones-kingsroad-future-plans-confirmed/
+
+Game of Thrones is making an official return that will mark the beginning of a bold new era for the franchise's future.
+---------
+
+# The 5 Best Incredible Hulk Writers In Marvel Comics History, Ranked
+
+Comics, Hulk, Ranking
+
+Sun, 12 Jul 2026 14:15:20 GMT
+
+https://screenrant.com/marvel-comics-best-hulk-writers/
+
+We all know that the Hulk is the strongest one there is, but which Incredible Hulk writer is the strongest in Marvel Comics history?
+---------
+
+# 10 Pokémon TCG: Pitch Black Cards Worth The Most Money
+
+Gaming, Pokemon Trading Card Game
+
+Sun, 12 Jul 2026 14:00:20 GMT
+
+https://screenrant.com/pokemon-tcg-pitch-black-cards-worth-most-money/
+
+Discover the highest value cards in the Pokémon TCG: Pitch Black set, including rare Mega Hyper Rares and Special Illustration Rares.
+---------
+
+# Forget Invincible, The Legend of Vox Machina Is Prime's Best New Animated Series
+
+Anime, Prime Video, The Legend of Vox Machina
+
+Sun, 12 Jul 2026 14:00:20 GMT
+
+https://screenrant.com/legend-vox-machina-prime-video-best-animated-series/
+
+Invincible may take up Amazon Prime Video's animation spotlight, but it is not the best Amazon Prime original animated series. This masterpiece is.
+---------
+
+# NCIS Clears The Path For Ziva’s Original Replacement’s Return
+
+Network TV, NCIS, NCIS: Origins
+
+Sun, 12 Jul 2026 14:00:20 GMT
+
+https://screenrant.com/ncis-origins-season-3-gibbs-ziva-replacement-return/
+
+Amid a couple of major cast changes for NCIS, CBS has also effectively cleared the path for the return of Ziva's replacement character.
+---------
+
+# Disney's Upcoming Movie Releases - From 2026 To 2031
+
+Movies, Disney
+
+Sun, 12 Jul 2026 13:45:20 GMT
+
+https://screenrant.com/disney-upcoming-movies-list-release-dates/
+
+Between Pixar, the MCU, Star Wars, 20th Century Studios, and the famed animated studio, Disney has several exciting releases slated up to 2031.
+---------
+
+# HBO Max's New R-Rated Series Breaking Down Fiery 40-Year-Old Tradition Is An Overnight Streaming Hit
+
+TV, Streaming Charts, Masked Recs, HBO Max
+
+Sun, 12 Jul 2026 13:31:35 GMT
+
+https://screenrant.com/the-man-will-burn-hbo-max-july-2026-streaming-charts/
+
+A new R-rated series on HBO Max that documents an unusual fiery tradition becomes an instant streaming hit after debuting its first episode.
+---------
+
+# Crunchyroll Just Revived The 2000s' Best Magical Girl Anime, But It's Unwatchable
+
+Anime, Crunchyroll
+
+Sun, 12 Jul 2026 13:30:20 GMT
+
+https://screenrant.com/lyrical-nanoha-best-2000s-magical-girl-anime-crunchyroll-unwatchable/
+
+Crunchyroll is ruining a classic magical girl anime.
+---------
+
+# Pokémon Players Can Officially Celebrate an Iconic Duo Alongside Another Major Milestone
+
+Games, Pokemon
+
+Sun, 12 Jul 2026 14:30:12 GMT
+
+https://www.cbr.com/pokemon-tcg-merch-mew-mewtwo-card-sleeves/
+
+Pokémon gamers and collectors just got a stunning new line of merchandise showcasing who of the most beloved characters of all time.
+---------
+
+# Netflix's Sci-Fi Masterpiece Dark Remains the King of Time Travel TV
+
+TV, Dark, Netflix
+
+Sun, 12 Jul 2026 14:30:12 GMT
+
+https://www.cbr.com/netflix-dark-best-time-travel-show/
+
+Dark remains Netflix's defining time-travel series because every paradox, revelation, and twist ultimately serves a deeply human story.
+---------
+
+# 10 Anime Series That Are 10/10, No Notes
+
+Anime
+
+Sun, 12 Jul 2026 14:15:13 GMT
+
+https://www.cbr.com/perfect-anime-series-no-notes/
+
+Forget One Piece and Dragon Ball, there are plenty of other anime that deliver engaging stories, all while leaving a lasting impression on viewers.
+---------
+
+# NBC's Iconic Police Procedural Spinoff Sets Netflix Release for the First Time
+
+TV, Chicago P.D.
+
+Sun, 12 Jul 2026 14:01:29 GMT
+
+https://www.cbr.com/nbc-chicago-pd-netflix-global-release/
+
+One of the most iconic police procedurals of an entire generation is officially heading to Netflix for its first international release on the platform
+---------
+
+# Razer Turns Gaming Kawaii With New Cinnamoroll Headset
+
+Anime, sanrio, merchandise, Razer
+
+Sun, 12 Jul 2026 14:00:13 GMT
+
+https://www.cbr.com/sanrio-cinnamoroll-ears-razer-headset-release/
+
+The latest Sanrio gaming accessory is exactly what fans of Hello Kitty and Friends (and Cinnamoroll) have been waiting to get their hands on.
+---------
+
+# Christopher Nolan's Inception Is Better Than The Dark Knight
+
+Movies, Inception, The Dark Knight, Christopher Nolan
+
+Sun, 12 Jul 2026 13:30:13 GMT
+
+https://www.cbr.com/christopher-nolan-inception-better-than-the-dark-knight/
+
+The Dark Knight is seen as one of Christopher Nolan's greatest achievements, but there is one complex thriller that is better than the Batman sequel.
+---------
+
+# Stephen King Officially Revives His 'Unfilmable' Dark Fantasy Franchise Ahead of Prime Video Series
+
+TV, The Talisman, Stephen King, Fantasy
+
+Sun, 12 Jul 2026 13:30:13 GMT
+
+https://www.cbr.com/stephen-king-talisman-fantasy-trilogy-other-worlds-than-these/
+
+Stephen King revisits one of his biggest franchises ahead of Prime Video's upcoming TV series adaptation.
+---------
+
+# Baldur's Gate 3: The Necromancy of Thay Officially Revealed
+
+Games, Baldur's Gate 3, Dungeons and Dragons, Baldur's Gate
+
+Sun, 12 Jul 2026 13:15:21 GMT
+
+https://www.cbr.com/baldurs-gate-3-necromancy-of-thay-coming-july-21/
+
+Baldur's Gate 3 players can soon own one of the game's most famous items, as the Necromancy of Thay has been officially announced and is coming soon.
+---------
+
+# 10 Greatest Anime Comebacks of All Time
+
+Anime, Dragon Ball, shonen anime, My Hero Academia
+
+Sun, 12 Jul 2026 13:15:12 GMT
+
+https://www.cbr.com/greatest-anime-comebacks-all-time/
+
+The best anime comebacks of all time resist spectacle, focusing instead on the permanent price the character pays for the power to rise from the ashes
+---------
+
+# 5 Greatest Tilda Swinton Movies That Define Her Career
+
+Movie, Tilda Swinton, We Need To Talk About Kevin, Michael Clayton, Only Lovers Left Alive
+
+Sun, 12 Jul 2026 14:09:13 GMT
+
+https://collider.com/best-tilda-swinton-movies-ranked/
+
+Movies like Orlando and We Need to Talk About Kevin reveal why Tilda Swinton became one of the most fascinating actors of her generation.
+---------
+
+# Marvel Hopes for a Hail Mary as ‘Spider-Man: Brand New Day’ Eyes Year’s Biggest Box Office Debut
+
+Movie News, Spider-Man: Brand New Day, Marvel, Tom Holland, Zendaya
+
+Sun, 12 Jul 2026 14:00:13 GMT
+
+https://collider.com/spider-man-brand-new-day-box-office-debut-marvel/
+
+Spider-Man: Brand New Day could deliver the year’s biggest box office debut as Marvel looks for a major theatrical comeback.
+---------
+
+# One of Fantasy’s Greatest Series Still Doesn’t Have a TV Adaptation
+
+TV Features, Jade City, Books, Series, Television
+
+Sun, 12 Jul 2026 13:24:14 GMT
+
+https://collider.com/fantasy-series-green-bone-saga-books-need-tv-adaptation/
+
+One of modern fantasy’s best trilogies still hasn’t reached TV. Here’s why Fonda Lee’s Green Bone Saga deserves an adaptation.
+---------
+
+# Guy Ritchie’s ‘Indiana Jones’ Meets ‘National Treasure’ Epic Passes Massive Streaming Milestone
+
+Movie News, Fountain of Youth, Guy Ritchie, Apple TV, John Krasinski
+
+Sun, 12 Jul 2026 13:15:12 GMT
+
+https://collider.com/fountain-of-youth-streaming-milestone-1-year-guy-ritchie/
+
+Guy Ritchie’s Fountain of Youth has crossed a major streaming milestone, nearly 1 year after the adventure tentpole first premiered.
+---------
+
+# Amazon's $100M Spy Thriller Is Dethroned by the Best Sci-Fi Film of 2026
+
+Movie News, Project Hail Mary, Tom Clancy's Jack Ryan: Ghost War, Hot on Streaming
+
+Sun, 12 Jul 2026 14:35:23 GMT
+
+https://movieweb.com/jack-ryan-ghost-war-project-hail-mary-prime-video-july-2026/
+
+The latest battle in the streaming wars proves audiences are still choosing sci-fi over action.
+---------
+
+# 'Sherlock' Co-Creator Shares Ideas for 'Middle-Aged' Series Revival
+
+TV News, Sherlock, Benedict Cumberbatch, Martin Freeman
+
+Sun, 12 Jul 2026 14:33:49 GMT
+
+https://movieweb.com/benedict-cumberbatch-sherlock-season-5/
+
+Steven Moffat says he would revisit 'Sherlock' if he can persuade Benedict Cumberbatch and Martin Freeman, with a 'middle-aged' Season 5 in mind.
+---------
+
+# 'Avatar: Fire and Ash' Continues to Dominate Disney+ Streaming Chart
+
+Movie News, Avatar: Fire and Ash, Disney+
+
+Sun, 12 Jul 2026 14:31:41 GMT
+
+https://movieweb.com/avatar-fire-and-ash-streaming-disney-plus-success/
+
+'Avatar: Fire and Ash' still ranks as one of the most-watched projects on Disney+ long after it first hit the streaming service.
+---------
+
+# Jason Statham's Intense 105-Minute Action Thriller Surges on Streaming
+
+Movie News, Jason Statham, The Beekeeper, Hot on Streaming, Action
+
+Sun, 12 Jul 2026 14:27:32 GMT
+
+https://movieweb.com/jason-statham-the-beekeeper-action-streaming-prime-video-july-2026/
+
+Ahead of next year's sequel, Jason Statham's 'The Beekeeper' is enjoying a resurgence on Prime Video in an unlikely category.
+---------
+
+# 10 Darkest Far Side Comics (And Why They're Still Funny)
+
+Movie Lists, The Far Side
+
+Sun, 12 Jul 2026 14:00:18 GMT
+
+https://movieweb.com/far-side-best-darkest/
+
+Gary Larson took 'The Far Side' into some dark territory but would always get a laugh; these ten strips prove it.
+---------
+
+# Lee Cronin's 'The Mummy' Crushes the Competition on HBO Max
+
+Movies, Karl Urban, Lee Cronin's The Mummy
+
+Sun, 12 Jul 2026 13:40:40 GMT
+
+https://movieweb.com/the-mummy-2026-hbo-max-hit/
+
+Released in theaters in April 2026, Lee Cronin's 'The Mummy' is getting its second wind on streaming.
+---------
+
+# Task' Season 2 Adds Julianne Moore for 'Mare of Easttown' Crossover
+
+TV News, Mark Ruffalo, Task, Mare of Easttown
+
+Sun, 12 Jul 2026 13:35:40 GMT
+
+https://movieweb.com/julianne-moore-task-season-2/
+
+HBO is linking two Brad Ingelsby crime dramas, with Julianne Nicholson set to reprise Lori Ross from 'Mare of Easttown' in Season 2 of 'Task.'
+---------
+
+# Is a 'Black Widow' Character Returning for 'Spider-Man: Brand New Day'?
+
+Movie, Florence Pugh, Kevin Feige
+
+Sun, 12 Jul 2026 13:23:35 GMT
+
+https://movieweb.com/spider-man-brand-new-day-florence-pugh/
+
+A new Kevin Feige comment has Marvel fans convinced that Florence Pugh’s Yelena Belova could appear in 'Spider-Man: Brand New Day.'
+---------
+
 # 76 Years Later, DC Gives A Beloved Hero Powers Strong Enough To Kill Superman
 
 DC Comics, Superman
