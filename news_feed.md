@@ -1,3 +1,113 @@
+# Dark Souls: Abyss Watchers Officially Arrives In 2027
+
+Gaming, Dark Souls
+
+Sun, 12 Jul 2026 11:30:20 GMT
+
+https://screenrant.com/dark-souls-abyss-watchers-2027-release/
+
+First 4 Figures announces the Abyss Watchers SD statue, a highly detailed collectible inspired by the Dark Souls III boss fight.
+---------
+
+# Cyberpunk 2077 Second Expansion Has Fans Excited For The Game’s Future
+
+Gaming, Cyberpunk 2077, Triple-A Games
+
+Sun, 12 Jul 2026 11:00:20 GMT
+
+https://screenrant.com/cyberpunk-2077-second-dlc-hopes/
+
+Cyberpunk 2077 hasn't lost any momentum in the last little while, and now would be the perfect time for a new Phantom Liberty-like expansion.
+---------
+
+# 4 Detective Shows That Are 10/10 Masterpieces
+
+TV, Bosch, Crime, Mindhunter
+
+Sun, 12 Jul 2026 11:30:12 GMT
+
+https://www.cbr.com/best-detective-show-masterpieces-list/
+
+There are many great detective shows, and some of them can even be called masterpieces.
+---------
+
+# 11 Years Later, Taylor Sheridan’s Neo-Western Masterpiece Is Quietly Soaring on Streaming
+
+Movie News, Sicario, Taylor Sheridan, Zero Dark Thirty, No Country for Old Men
+
+Sun, 12 Jul 2026 11:46:13 GMT
+
+https://collider.com/taylor-sheridan-neo-western-sicario-streaming-success-hulu-prime-video-july-2026/
+
+Taylor Sheridan's smash-hit neo-Western with shades of Zero Dark Thirty and No Country for Old Men is having a moment on streaming.
+---------
+
+# ‘The Five-Star Weekend’ Showrunner Reveals What Happens to Gigi After That Shocking Finale
+
+Interviews, The Five-Star Weekend, Peacock, Jennifer Garner, Judy Greer
+
+Sun, 12 Jul 2026 11:43:13 GMT
+
+https://collider.com/five-star-weekend-peacock-series-ending-meaning/
+
+The Five-Star Weekend showrunner Bekah Brunstetter talks casting Judy Greer as a villain, reality TV, and what happens to Gigi after that finale.
+---------
+
+# You Officially Have 1 Month To Catch Up on Prime Video’s Greatest Record-Breaking 3-Part Series
+
+TV Features, Reacher, Prime Video, Alan Ritchson, Crime
+
+Sun, 12 Jul 2026 11:43:13 GMT
+
+https://collider.com/prime-video-reacher-season-4-catchup-binge/
+
+Prime Video’s record-breaking action thriller Reacher is about to debut Season 4 on August 12.
+---------
+
+# 50 Cent's New Gritty Crime Thriller Officially Sets Its Release Date
+
+TV News, 50 Cent, Power, STARZ, Thriller
+
+Sun, 12 Jul 2026 11:30:12 GMT
+
+https://collider.com/50-cent-power-replacement-fightland-release-date-july-31-2026/
+
+50 Cent, the visionary behind the hit crime series Power, is back with a new, gritty crime show. Get all the details here.
+---------
+
+# 7 Great Miniseries That Are Actually Worth the Hype
+
+TV, TV Miniseries, Normal People, Half Man, Midnight Mass
+
+Sun, 12 Jul 2026 11:09:14 GMT
+
+https://collider.com/tv-miniseries-worth-the-hype/
+
+Hulu's Normal People, HBO's Half Man, and Netflix's Midnight Mass are among the great TV miniseries you might have skipped but are worth the hype.
+---------
+
+# Marvel's R-Rated Superhero Smash Is Quietly Crushing the Competition on HBO Max
+
+Movie News, Deadpool 2, Superhero, HBO Max, Streaming
+
+Sun, 12 Jul 2026 11:01:12 GMT
+
+https://collider.com/ryan-reynolds-deadpool-2-streaming-success-hbo-max-july-2026/
+
+An unlikely superhero sequel is a champion on the HBO Max streaming charts. Here's everything you should know about Deadpool 2.
+---------
+
+# 10 Greatest Fantasy TV Masterpieces of the 21st Century, Ranked
+
+TV, Fantasy, Game Of Thrones, Arcane, House of the Dragon
+
+Sun, 12 Jul 2026 10:59:13 GMT
+
+https://collider.com/best-fantasy-shows-modern-masterpieces-ranked/
+
+Discover the top fantasy TV masterpieces of the 21st century that have redefined the genre, from Game of Thrones to Arcane.
+---------
+
 # Pokémon Winds & Waves New Kanto Evolution Splits Gamers
 
 Gaming, Pokemon Winds and Waves, Pokemon
