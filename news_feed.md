@@ -1,3 +1,234 @@
+# 76 Years Later, DC Gives A Beloved Hero Powers Strong Enough To Kill Superman
+
+DC Comics, Superman
+
+Sun, 12 Jul 2026 13:00:21 GMT
+
+https://screenrant.com/dc-lana-lang-kryptonite-woman-power-kill-superman/
+
+DC's latest addition to the Super-Family gives Superman a valuable and powerful ally, but also puts the Man of Steel's life in great danger.
+---------
+
+# Apple TV's Longest-Running Series Could Go On Forever
+
+Streaming TV, Masked Recs
+
+Sun, 12 Jul 2026 13:00:21 GMT
+
+https://screenrant.com/apple-tv-the-morning-show-could-go-on-forever/
+
+One of Apple TV's very first shows has already made its mark on the contemporary television landscape, and its run has no end in sight.
+---------
+
+# Perfect New Game Of Thrones Spin-Off Is Painfully Obvious
+
+Gaming, Game of Thrones, Triple-A Games
+
+Sun, 12 Jul 2026 13:00:21 GMT
+
+https://screenrant.com/game-of-thrones-video-game-kingdom-come-deliverance/
+
+Game of Thrones is monolithic television, but hasn't produced a truly great video game, even though it's uniquely equipped for an excellent RPG.
+---------
+
+# The DCEU Actor Teased To Return In Man Of Tomorrow Could Define The DCU’s Future
+
+Movies, DC Universe
+
+Sun, 12 Jul 2026 12:55:19 GMT
+
+https://screenrant.com/dceu-dcu-actor-return-flula-borg-tease-cast/
+
+The theories that one DCEU actor is set to appear in one of the DCU's next movies would help define the franchise's future in more than one way.
+---------
+
+# It's The End Of An Era For Netflix's Enola Holmes
+
+Movies, Enola Holmes, Netflix, Rotten Tomatoes, Enola Holmes 3
+
+Sun, 12 Jul 2026 12:47:19 GMT
+
+https://screenrant.com/netflix-enola-holmes-series-end-era/
+
+Enola Holmes 3 hits a franchise-low Rotten Tomatoes score and slips on the charts. Is this the end of Netflix's hit detective series?
+---------
+
+# Marvel’s Daredevil Villain Star Wai Ching Ho Dies At 82
+
+TV, wai ching ho
+
+Sun, 12 Jul 2026 12:31:53 GMT
+
+https://screenrant.com/wai-ching-ho-madame-gao-daredevil-obituary/
+
+Wai Ching Ho, who played the major villain Madame Gao in Marvel's Daredevil, Iron Fist, and The Defenders series, has passed away at the age of 82.
+---------
+
+# 6 Times It's Always Sunny In Philadelphia Directly Mocked Its Own Audience
+
+TV, It's Always Sunny in Philadelphia
+
+Sun, 12 Jul 2026 12:30:21 GMT
+
+https://screenrant.com/its-always-sunny-philadelphia-mock-audience/
+
+It's Always Sunny in Philadelphia loves mocking its fans. These 6 episodes turned audience complaints and debates into the joke itself.
+---------
+
+# JK Simmons & Titus Welliver Bring Irish-American Mob History To Life In MGM+'s The Westies
+
+Exclusive, The Westies, The Westies - Season 1, Titus Welliver, J.K. Simmons
+
+Sun, 12 Jul 2026 12:00:20 GMT
+
+https://screenrant.com/the-westies-season-1-set-visit-jk-simmon-titus-welliver/
+
+ScreenRant visits the set of The Westies season 1, speaking to J.K. Simmons, Titus Welliver, Tom Brittney, and the creators about what's in store.
+---------
+
+# Titus Welliver's Dark Winds Update Is A Major Bummer For Season 5
+
+Streaming TV, Dark Winds, Titus Welliver
+
+Sun, 12 Jul 2026 12:00:20 GMT
+
+https://screenrant.com/titus-welliver-dark-winds-season-5-return-villain-future/
+
+Titus Welliver won't be returning for Dark Winds season 5, and losing the chance to see his villain character Dominic McNair is disappointing.
+---------
+
+# 10 Batman Stories That Deserve Animated Adaptations
+
+Comics, Batman
+
+Sun, 12 Jul 2026 13:00:12 GMT
+
+https://www.cbr.com/batman-stories-that-deserve-animated-adaptations/
+
+What story will bring Batman back to animation next?
+---------
+
+# 10 Masterpiece Low-Budget Horror Movies, Ranked
+
+Movies, Horror, Creep, Halloween, Paranormal Activity, Truth or Dare?: A Critical Madness, Skinamarink, The Blair Witch Project, The Evil Dead, Eraserhead, Night of the Living Dead, Obsession
+
+Sun, 12 Jul 2026 13:00:12 GMT
+
+https://www.cbr.com/perfect-low-budget-horror-movies-ranked-list/
+
+Horror movies don't always need a big budget to make an impact. In fact, some of the most memorable horror flicks have been made on a shoestring.
+---------
+
+# HBO Is Finally Changing Its Game of Thrones Formula After 7 Years
+
+TV, Game Of Thrones, House of the Dragon, hbo
+
+Sun, 12 Jul 2026 12:30:12 GMT
+
+https://www.cbr.com/hbo-house-of-the-dragon-s3e3-changing-game-of-thrones-formula/
+
+House of the Dragon S3 delves into the complexities of ruling the Seven Kingdoms, offering a deeper exploration than Game of Thrones ever provided.
+---------
+
+# Absolute Batman Unveils Darkest Tweedle-Dee, Tweedle-Dum, and Calendar Man Yet
+
+Comics, Absolute Batman, Batman
+
+Sun, 12 Jul 2026 12:01:13 GMT
+
+https://www.cbr.com/absolute-batman-22-tweedledee-tweedledum-calendar-man-debut/
+
+Absolute Batman unveiled yet another twisted take on some classic villains.
+---------
+
+# 2026's R-Rated Monster Remake Is a No. 1 Sleeper Hit on HBO Max
+
+Movie News, Lee Cronin's The Mummy, Monster, HBO Max, Streaming
+
+Sun, 12 Jul 2026 12:45:12 GMT
+
+https://collider.com/lee-cronins-the-mummy-streaming-success-hbo-max-july-2026/
+
+Lee Cronin's The Mummy, the hidden gem 2026 monster reboot, is smashing the global streaming charts. Read on for more details.
+---------
+
+# 6 Worst Sci-Fi Action Movies That Failed on Every Level
+
+Movie, Sci-Fi, Action, Dragonball Evolution, Battlefield Earth
+
+Sun, 12 Jul 2026 12:35:12 GMT
+
+https://collider.com/worst-sci-fi-action-movies/
+
+From Independence Day: Resurgence to After Earth, these sci-fi action flops wasted ideas, stars, and spectacle.
+---------
+
+# Forget ‘Reacher,’ Jon Bernthal's 2 Action Epics Are Both Streaming Hits
+
+Movie News, Jon Bernthal, The Accountant, HBO Max, The Accountant 2
+
+Sun, 12 Jul 2026 12:30:13 GMT
+
+https://collider.com/the-accountant-2-streaming-hits-hbo-max-july-2026/
+
+Starring Jon Bernthal and Ben Affleck, both The Accountant and its sequel are streaming sensations at the same time.
+---------
+
+# 8 Great Sci-Fi Shows Overshadowed by 'Stranger Things'
+
+TV, Sci-Fi, Stranger Things, The OA, Alice in Borderland
+
+Sun, 12 Jul 2026 12:22:13 GMT
+
+https://collider.com/sci-fi-shows-overshadowed-by-stranger-things/
+
+Discover sci-fi shows overshadowed by Netflix's Stranger Things, each offering unique narratives and characters, from The OA to Alice in Borderland.
+---------
+
+# 'X-Men '97' Makes Marvel History Once Again With New Season 2 Episode
+
+TV News, X-Men '97, Marvel Animation, X-Men, MCU
+
+Sun, 12 Jul 2026 12:05:13 GMT
+
+https://collider.com/marvel-x-men-97-season-2-episode-4-imdb-record/
+
+X-Men '97's newest masterpiece is officially one of the best-rated Marvel TV episodes ever according to IMDb.
+---------
+
+# Apple TV's Feel-Good Phenomenon Is Still Taking Over the World
+
+TV News, Ted Lasso, Apple TV, Drama, Comedy
+
+Sun, 12 Jul 2026 12:01:13 GMT
+
+https://collider.com/ted-lasso-apple-tv-streaming-success-season-4-premiere-date-august-8-2026/
+
+Ahead of an anticipated fourth season, Apple TV's fan-favorite series rises on streaming charts. Get all the details here.
+---------
+
+# 40 Years Later, Marvel's First-Ever Comic Book Movie Sets New Release
+
+Movie News, Howard the Duck, Howard the Duck (1986)
+
+Sun, 12 Jul 2026 12:55:08 GMT
+
+https://movieweb.com/howard-the-duck-4k-blu-ray-release-marvel-anniversary/
+
+Marvel’s first-ever comic book movie 'Howard the Duck' is commemorating its 40th anniversary with a new Limited Edition 4K Ultra HD Blu-ray steelbook.
+---------
+
+# Terrifying 109-Minute Dystopian War Thriller Arrives on Free Streaming
+
+Movie News, Civil War, Coming/Leaving Streaming, War, Thriller
+
+Sun, 12 Jul 2026 12:00:18 GMT
+
+https://movieweb.com/civil-war-dystopian-thriller-streaming-free-tubi-july-2026/
+
+Alex Garland's chilling 2024 dystopian war thriller swaps the usual sci-fi spectacle for a realistic portrayal of a nation torn apart.
+---------
+
 # Dark Souls: Abyss Watchers Officially Arrives In 2027
 
 Gaming, Dark Souls
