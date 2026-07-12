@@ -1,3 +1,289 @@
+# Forgotten DC Show Is An Adrenaline-Fueled Joyride (& It’s Free To Watch)
+
+Classic TV, DC, Masked Recs
+
+Sun, 12 Jul 2026 20:00:19 GMT
+
+https://screenrant.com/human-target-dc-adrenaline-fueled-spy-action-tubi/
+
+Before the Arrowverse, a high-octane DC TV show offered great storytelling and adrenaline-fueled fight sequences, and you can now watch it for free.
+---------
+
+# Game Of Thrones Officially Unveils New Character Who Shares Dany's Rare Gift
+
+Gaming, Game of Thrones, House of the Dragon, A Song of Ice and Fire, PC, Game Of Thrones
+
+Sun, 12 Jul 2026 20:00:19 GMT
+
+https://screenrant.com/game-of-thrones-dragonfire-jalya-waters-dragon-dreams/
+
+Game of Thrones has officially introduced a new character with a rare gift that only a small number of Targaryens and Velaryons possess.
+---------
+
+# 21 Years After Serenity, Firefly Officially Returns This September
+
+Classic TV, Firefly, Masked Recs
+
+Sun, 12 Jul 2026 19:45:19 GMT
+
+https://screenrant.com/firefly-2026-comic-mark-russell-new-era/
+
+Firefly is the little show that could. Even now, over 20 years later, the space-faring franchise is about to launch a whole new era of storytelling.
+---------
+
+# A Jon Bernthal Career Tradition Officially Continues In The Odyssey
+
+Movies, Jon Bernthal
+
+Sun, 12 Jul 2026 19:40:36 GMT
+
+https://screenrant.com/jon-bernthal-the-odyssey-let-me-tell-you-something-tradition/
+
+Jon Bernthal has now revealed a smaller detail that longtime fans will immediately recognize in Christopher Nolan's adaptation of The Odyssey.
+---------
+
+# From: 10 Worst Decisions The Town Residents Have Made
+
+Streaming TV, From
+
+Sun, 12 Jul 2026 19:30:19 GMT
+
+https://screenrant.com/from-characters-worst-decisions/
+
+The Township has learned a lot over the course of From's four seasons, but they have also made their share of poor decisions that came at a cost.
+---------
+
+# Pokémon Pokopia DLC Rollout Leaks Split Fans
+
+Gaming, Pokemon Pokopia
+
+Sun, 12 Jul 2026 19:30:19 GMT
+
+https://screenrant.com/pokemon-pokopia-dlc-leaks-reaction/
+
+The Pokémon Pokopia DLC rollout has leaked, revealing three DLCs with varying content. Fans are divided over content and pricing.
+---------
+
+# 10 Greatest Stephen King Movies That Are Radically Different From His Books
+
+Movies, Stephen King
+
+Sun, 12 Jul 2026 19:25:19 GMT
+
+https://screenrant.com/best-stephen-king-movies-different-from-books/
+
+Some films based on Stephen King's works made radical changes that make them different from the books, and these films are the best to do it.
+---------
+
+# Disney’s Tangled Live-Action Release Window Revealed In New Report
+
+Movies, Tangled
+
+Sun, 12 Jul 2026 19:20:39 GMT
+
+https://screenrant.com/disney-tangled-remake-release-window-report/
+
+The magic of Tangled will return, as a new report seemingly confirms the release window for Disney’s live-action remake of the beloved movie.
+---------
+
+# 21 Years Later, Michael Scott’s Best Line Is Still The Greatest Quote In The Office’s History
+
+TV, The Office
+
+Sun, 12 Jul 2026 19:00:20 GMT
+
+https://screenrant.com/michael-scott-best-quote-the-office-history/
+
+Michael Scott gave us too many classic lines to count across his seven seasons in The Office, but his very best first aired way back in 2005.
+---------
+
+# Red Dead Redemption 2 Gets Best Upgrade In Years
+
+Gaming, Red Dead Redemption 2, Triple-A Games
+
+Sun, 12 Jul 2026 19:00:20 GMT
+
+https://screenrant.com/red-dead-redemption-2-unlimited-horse-stamina-mod/
+
+Red Dead Redemption 2's realism has always added friction to its gameplay, and fans thankfully no longer need to deal with it in the open world.
+---------
+
+# Bridgerton Fan Favorite's New Rom-Com Officially Sets Netflix Release Date
+
+Movies, You, Me & Tuscany, Bridgerton, Netflix
+
+Sun, 12 Jul 2026 20:00:12 GMT
+
+https://www.cbr.com/bridgerton-rege-jean-page-rom-com-you-me-tuscany-netflix-release-date/
+
+The Bridgerton star's latest rom-com, You, Me & Tuscany, was acclaimed by viewers and is officially heading to Netflix.
+---------
+
+# Batman Has Finally Found the One Hero He Can't Defeat
+
+Comics, Aquaman, Batman, Justice League
+
+Sun, 12 Jul 2026 20:00:12 GMT
+
+https://www.cbr.com/emperor-aquaman-19-batman-cant-defeat-aquaman/
+
+The most prominent members of the Justice League have finally admitted that there is one among them they could never beat, not even Batman.
+---------
+
+# Studio Ghibli Returns Howl's Moving Castle Tote Bag to Official Store After 4 Years
+
+Anime, Howl's Moving Castle, merchandise, Studio Ghibli
+
+Sun, 12 Jul 2026 20:00:12 GMT
+
+https://www.cbr.com/studio-ghibli-howls-moving-castle-jewelry-box-re-release/
+
+Studio Ghibli's official store re-releases a stunning Howl's Moving castle replica that doubles as a handy jewelry or accessory box.
+---------
+
+# David Boreanaz Reacts To Hulu's Buffy Reboot Cancellation 4 Months Later
+
+TV, Buffy The Vampire Slayer, Buffy the Vampire Slayer Sequel Series
+
+Sun, 12 Jul 2026 19:51:46 GMT
+
+https://www.cbr.com/david-boreanaz-reacts-to-hulu-buffy-reboot-cancellation/
+
+The actor wasn't confirmed to return as the fan-favorite vampire Angel.
+---------
+
+# 4 Near-Perfect Shonen Anime Ruined By the Main Character
+
+Anime, shonen anime, Shonen, Demon Slayer: Kimetsu no Yaiba, Black Clover, Fairy Tail
+
+Sun, 12 Jul 2026 19:15:12 GMT
+
+https://www.cbr.com/shonen-anime-ruined-by-main-character/
+
+Even legendary anime like Fairy Tail and Demon Slayer were dragged down by underdeveloped main characters.
+---------
+
+# Apple TV's 'Perfect Feel-Good Comedy' Returns With Fantastic Rotten Tomatoes Score
+
+TV, Trying
+
+Sun, 12 Jul 2026 19:12:47 GMT
+
+https://www.cbr.com/apple-tv-trying-season-5-rotten-tomatoes-score/
+
+The hidden gem series is largely underrated and not one of Apple TV's most popular options.
+---------
+
+# NBC's Endlessly Quotable Sitcom Returns as a Netflix Global Sensation 22 Years After Final Episode
+
+TV, Friends, NBC, Sitcoms
+
+Sun, 12 Jul 2026 19:00:13 GMT
+
+https://www.cbr.com/nbc-friends-comedy-sitcom-netflix-success-july-2026/
+
+NBC has some of the most memorable and quotable sitcoms, and one of their best, Friends, is a streaming hit more than 20 years after finale.
+---------
+
+# Marvel's Massive X-Men and Avengers Summer 2026 Plans Just Collapsed
+
+Comics, Marvel
+
+Sun, 12 Jul 2026 19:00:13 GMT
+
+https://www.cbr.com/marvels-x-men-and-avengers-plans-summer-2026-fell-apart/
+
+There were big things in store for X-Men and Avengers this summer, but those plans fell through and made way for something new.
+---------
+
+# 5 Classic Action Movies That Shaped John Wick
+
+Movies, John Wick, Action
+
+Sun, 12 Jul 2026 19:00:13 GMT
+
+https://www.cbr.com/action-movies-that-inspired-john-wick-list/
+
+The action franchise's love for the genre is apparent with every entry, from influential films to underrated classics.
+---------
+
+# Hideo Kojima Officially Responds to PlayStation's Execution of Physical Media
+
+Gaming News, Metal Gear, Gaming, Hideo Kojima, Sony PlayStation
+
+Sun, 12 Jul 2026 20:00:12 GMT
+
+https://collider.com/metal-gear-legend-playstation-controversy-hideo-kojima-comments/
+
+A Metal Gear legend has spoken about the huge Playstation controversy. Read on for more details.
+---------
+
+# ‘Star City’s Finale Twist Quietly Rewrites ‘For All Mankind’s Alternate History
+
+TV Features, Star City, For All Mankind, Apple TV, Sci-Fi
+
+Sun, 12 Jul 2026 19:42:12 GMT
+
+https://collider.com/star-city-finale-twist-rewrites-for-all-mankind-history/
+
+The Star City finale adds a tragic twist to the Venus mission, rewriting For All Mankind's alternate history of space exploration.
+---------
+
+# One of the Greatest Sci-Fi Westerns of the '90s Is Officially Taking Over the World
+
+Movie News, Back to the Future Part III, Sci-Fi, Western, HBO Max
+
+Sun, 12 Jul 2026 19:00:14 GMT
+
+https://collider.com/back-to-the-future-part-three-streaming-success-hbo-max-july-2026/
+
+The sci-fi Western that ended a beloved franchise is a surprise streaming hit on HBO Max. Here's everything you should know.
+---------
+
+# Every Steven Spielberg War Movie & TV Show, Ranked
+
+Movie Lists, Steven Spielberg, War, Action, Drama
+
+Sun, 12 Jul 2026 20:00:18 GMT
+
+https://movieweb.com/steven-spielberg-war-movie-tv-ranked/
+
+From 'Saving Private Ryan' to 'Masters of the Air', how do Steven Spielberg's war genre masterpieces stack up?
+---------
+
+# All Upcoming Zombie Movies Shambling Into Theaters in 2026
+
+Movie Lists, Horror
+
+Sun, 12 Jul 2026 20:00:18 GMT
+
+https://movieweb.com/upcoming-zombies-movies-in-theaters-in-2026/
+
+Zombie movies continue to impress and draw in audiences. 2026 has been great for the Undead, and it will only get better with these releases.
+---------
+
+# Disneys New $250M Remake On Track For One of the Year's Worst Box Office Results
+
+Movie News, Moana, Disney, Dwayne Johnson
+
+Sun, 12 Jul 2026 19:05:25 GMT
+
+https://movieweb.com/moana-box-office-disney-remake/
+
+'Moana' is the latest live-action Disney remake to drastically underperform at the box office.
+---------
+
+# Jason Statham's Stealth Remake of a John Wayne Western Masterpiece
+
+Features, Jason Statham, John Wayne, Rio Bravo, Ghosts of Mars, John Carpenter
+
+Sun, 12 Jul 2026 19:00:18 GMT
+
+https://movieweb.com/jason-statham-ghost-of-mars-remake-rio-bravo/
+
+There was a time when Statham didn't have the same leading-man appeal, factoring into a proven story still misfiring.
+---------
+
 # 21st Century’s Biggest Original Horror Movie Just Shattered Every Record
 
 Horror, Obsession, Box Office
