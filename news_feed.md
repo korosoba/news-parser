@@ -1,3 +1,256 @@
+# 21st Century’s Biggest Original Horror Movie Just Shattered Every Record
+
+Horror, Obsession, Box Office
+
+Sun, 12 Jul 2026 18:50:38 GMT
+
+https://screenrant.com/obsession-highest-grossing-original-century-record/
+
+This horror movie is defying all odds, as an unexpected original movie has just become the 21st Century's biggest while shattering every record.
+---------
+
+# 8 Best Space Western TV Shows (#1 Is A Masterpiece)
+
+Classic TV
+
+Sun, 12 Jul 2026 18:30:19 GMT
+
+https://screenrant.com/best-space-western-tv-shows-ranked/
+
+The Space Western is a small, still-growing pocket of the sci-fi genre, but these eight shows set a high bar for what the genre can be.
+---------
+
+# Dragon Ball Z Officially Says Goodbye To Goku And Akira Toriyama With Touching Sendoff
+
+Gaming, Dragon Ball Z, Triple-A Games, PC
+
+Sun, 12 Jul 2026 18:28:59 GMT
+
+https://screenrant.com/dragon-ball-xenoverse-2-goku-toriyama-tribute/
+
+Two years after Akira Toriyama's death, Dragon Ball Z has just paid homage to a legendary piece of Toriyama art that closed out Goku's saga.
+---------
+
+# George Lucas Museum Will Be Free For Thousands Of Guests
+
+Movies, George Lucas
+
+Sun, 12 Jul 2026 18:18:52 GMT
+
+https://screenrant.com/george-lucas-museum-narrative-art-free-guest-pass/
+
+Ahead of the opening on September 22, it has been revealed that the Lucas Museum of Narrative Art will be free for thousands of guests.
+---------
+
+# Beloved Superhero Series Officially Returns This Wednesday
+
+DC Comics, DC
+
+Sun, 12 Jul 2026 18:08:48 GMT
+
+https://screenrant.com/dc-dark-knights-steel-return-superman-batman/
+
+DC is revisiting a fascinating high-fantasy mythology with brand-new lore in another 12-issue series that can hopefully live up to the hype.
+---------
+
+# Elden Ring: How To Get All Eye Alterations
+
+Gaming, Elden Ring, PC
+
+Sun, 12 Jul 2026 18:00:22 GMT
+
+https://screenrant.com/elden-ring-eye-alterations-locations-unlock-guide/
+
+As Tarnished journey through the Lands Between in Elden Ring, they can acquire three different eye alterations depending on their choices.
+---------
+
+# Dragon Ball Super Never Ruined Goku, It Improved Him
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Sun, 12 Jul 2026 18:00:19 GMT
+
+https://screenrant.com/dragon-ball-super-improved-goku/
+
+Dragon Ball Super captured Goku's goofy nature better than previous anime entries, aligning more closely with Akira Toriyama's original character.
+---------
+
+# 36 Years Later, Twin Peaks' Best Line Is Still The Scariest Quote In TV History
+
+TV, Twin Peaks
+
+Sun, 12 Jul 2026 18:00:19 GMT
+
+https://screenrant.com/twin-peaks-best-quote-scariest-tv-history/
+
+In a haunting twist, the most unsettling line in TV history reveals the true horror lurking beneath this classic show's famously quirky facade.
+---------
+
+# Hogwarts Legacy Is About To Change Forever
+
+Gaming, Hogwarts Legacy, Triple-A Games
+
+Sun, 12 Jul 2026 18:00:19 GMT
+
+https://screenrant.com/hogwarts-legacy-creative-mode-mod/
+
+Hogwarts Legacy has been around for over three years, but this latest change is going to significantly alter how people look at the game.
+---------
+
+# Elden Ring: Raya Lucaria Officially Out July 2026
+
+Games, Elden Ring
+
+Sun, 12 Jul 2026 18:45:12 GMT
+
+https://www.cbr.com/elden-ring-raya-lucaria-official-new-release-july-2026/
+
+A brand-new Elden Ring collectible is coming later this month.
+---------
+
+# Christopher Nolan Confirms Why He's Never Made a Horror Movie
+
+Movies, Christopher Nolan
+
+Sun, 12 Jul 2026 18:36:22 GMT
+
+https://www.cbr.com/christopher-nolan-first-horror-movie/
+
+The Odyssey director Christopher Nolan speaks about why he's never done horror and if he ever will.
+---------
+
+# How Much Moana's Underwhelming Debut Will Cost Disney Revealed
+
+Movies, Moana, Disney, box office
+
+Sun, 12 Jul 2026 18:33:15 GMT
+
+https://www.cbr.com/moana-box-office-weekend-debut-loss/
+
+Disney's new live-action remake had one of the lowest openings.
+---------
+
+# Lilo & Stitch Star Confirms Sequel Will Start Filming 'Soon'
+
+Movies, Lilo & Stitch
+
+Sun, 12 Jul 2026 18:19:11 GMT
+
+https://www.cbr.com/lilo-stitch-2-filming-soon/
+
+The star of Disney's live-action Lilo & Stitch confirms that the hotly-anticipated sequel will officially be starting soon, and fans can't wait.
+---------
+
+# 10 High Stakes JJK Fights That Were About More Than Winning
+
+Anime, Jujutsu Kaisen
+
+Sun, 12 Jul 2026 18:15:12 GMT
+
+https://www.cbr.com/jjk-most-high-stakes-impactful-fights/
+
+Jujutsu Kaisen is filled with memorable fights, and many of them were about much more than which combatant would win.
+---------
+
+# 10 Green Lantern Corps Comics That Define DC's Greatest Space Heroes
+
+Comics, DC Comics, Green Lantern
+
+Sun, 12 Jul 2026 18:00:12 GMT
+
+https://www.cbr.com/best-green-lantern-corps-comics-ever-published/
+
+The stars have always belonged to the Green Lantern Corps, and they have some of the best sci-fi comics of any superhero.
+---------
+
+# HBO Max Quietly Says Goodbye to Tom & Jerry's Newest Cartoon Network Series
+
+Anime, Tom and Jerry, HBO Max
+
+Sun, 12 Jul 2026 18:00:12 GMT
+
+https://www.cbr.com/tom-and-jerry-gokko-hbo-max-streaming-exit/
+
+Tom & Jerry Gokko has left HBO Max in the U.S., but fans can still stream every adorable anime-inspired short for free on WB Kids YouTube.
+---------
+
+# 8 Best Horror Books of the Last 20 Years, Ranked
+
+TV, Horror, Stephen King, Bird Box, The Terror
+
+Sun, 12 Jul 2026 18:49:14 GMT
+
+https://collider.com/best-horror-books-last-20-years-ranked/
+
+Annihilation, Uzumaki, Horns, The Terror, and more make up our list of the best horror books of the last 20 years.
+---------
+
+# 8 Movies With Great Scores and Soundtracks
+
+Movie, Scarface, Magnolia, The Crow, An American Werewolf In London
+
+Sun, 12 Jul 2026 18:41:12 GMT
+
+https://collider.com/movies-great-scores-and-soundtracks/
+
+Some movies, like Scarface and An American Werewolf in London, have great scores while also featuring memorable soundtracks of pre-existing songs.
+---------
+
+# The Complete ABC Fall 2026 Schedule
+
+TV, ABC, Grey's Anatomy, Shark Tank, 9-1-1
+
+Sun, 12 Jul 2026 18:33:12 GMT
+
+https://collider.com/abc-fall-2026-schedule/
+
+From long-running favorites like Grey's Anatomy to hit reality shows like Shark Tank, the ABC Fall 2026 line-up is filled with stellar TV series.
+---------
+
+# Apple TV's 6-Part Sci-Fi Hit Continues To Impress on Streaming
+
+TV News, For All Mankind, Apple TV, Sci-Fi, Drama
+
+Sun, 12 Jul 2026 18:00:12 GMT
+
+https://collider.com/apple-tv-for-all-mankind-streaming-success-july-2026/
+
+Despite declining critical acclaim and viewership, Apple TV's sci-fi epic is still a streaming favorite. Get all the details here.
+---------
+
+# HBO’s Greatest 3-Part Sci-Fi Series Got Even Better After Moving Away From the Book
+
+TV Features, The Leftovers, Damon Lindelof, Carrie Coon, Justin Theroux
+
+Sun, 12 Jul 2026 17:58:13 GMT
+
+https://collider.com/the-leftovers-hbo-sci-fi-better-after-book/
+
+HBO's The Leftovers got even more mind-bending and profound after moving on from the source material.
+---------
+
+# 'Desert Warrior' Sets Blu-ray Release After Historically Bad Box-Office Run
+
+Movies, Desert Warrior, Anthony Mackie
+
+Sun, 12 Jul 2026 18:54:00 GMT
+
+https://movieweb.com/desert-warrior-home-video-release/
+
+Now, the Anthony Mackie and Ben Kingsley historical epic is heading to DVD and Blu-ray.
+---------
+
+# 5 Lessons Disney Must Learn After 'Moana's Live-Action Reboot
+
+Movie Lists, Moana, Disney
+
+Sun, 12 Jul 2026 18:00:17 GMT
+
+https://movieweb.com/moana-five-lessons-disney/
+
+After a dissapointing critical response and potentially worrying box office, 'Moana' should mark a change for Disney.
+---------
+
 # DC’s Canceled Batgirl Movie Addressed By Star 4 Years Later: “It’s Bizarre”
 
 Movies, Batgirl
