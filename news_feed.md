@@ -1,3 +1,267 @@
+# Titus Welliver Compares His New The Night Agent Netflix Role To Harry Bosch
+
+TV, The Night Agent, Titus Welliver, Bosch
+
+Sun, 12 Jul 2026 00:57:33 GMT
+
+https://screenrant.com/titus-welliver-the-night-agent-season-4-past-roles-comparison/
+
+Exclusive: Titus Welliver discussed how his new role as DOJ prosecutor Duval in The Night Agent season 4 differs from his time playing Harry Bosch.
+---------
+
+# Star Wars Officially Redeems The Character George Lucas Failed
+
+Streaming TV, Star Wars, Darth Maul
+
+Sun, 12 Jul 2026 00:40:20 GMT
+
+https://screenrant.com/star-wars-redeems-darth-maul-character/
+
+Over the years, one of Star Wars' most compelling characters has made an extraordinary comeback, and their dark, tragic story isn't over yet.
+---------
+
+# 7 Years Later, A Missing Star Trek Actor Reveals Their Beloved Character’s Return
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Sun, 12 Jul 2026 00:32:43 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-james-frain-sarek-return/
+
+Last seen at the end of Star Trek: Discovery season 2, James Frain announces that he's donning his Vulcan ears to play Ambassador Sarek again.
+---------
+
+# Benedict Cumberbatch & Martin Freeman Officially Reunite 9 Years After Sherlock Series Finale
+
+TV, Sherlock, Benedict Cumberbatch, Martin Freeman
+
+Sun, 12 Jul 2026 00:17:45 GMT
+
+https://screenrant.com/benedict-cumberbatch-martin-freeman-sherlock-reunion/
+
+Nearly a decade after the Sherlock finale, Benedict Cumberbatch and Martin Freeman are seen together at an unexpected reunion at Wimbledon.
+---------
+
+# Silo Finally Confirms The Real Power Behind The PEZ Dispenser Relic
+
+Streaming TV, Silo
+
+Sun, 12 Jul 2026 00:15:20 GMT
+
+https://screenrant.com/silo-season-3-pez-relic-memory-power-explained/
+
+With one major story development in season 2’s episode 2, Apple TV’s Silo seems to confirmed the true significance of the central PEZ dispenser relic.
+---------
+
+# Psych 4 Reunion Movie's Fate Rests On Studio With New Update From James Roday Rodriguez
+
+TV, Psych
+
+Sun, 12 Jul 2026 00:10:57 GMT
+
+https://screenrant.com/psych-4-movie-peacock-limitation-james-roday-rodriguez/
+
+James Roday Rodriguez, who portrays Shawn Spencer in Psych, revealed whether the comedy crime series will get another reunion movie.
+---------
+
+# Sorry MJ, But Marvel Confirms Spider-Man’s Best Love Interest Is Another Heroine
+
+Marvel Comics, Spider-Man
+
+Sun, 12 Jul 2026 00:00:21 GMT
+
+https://screenrant.com/spider-man-best-love-interest-raelith-not-mj/
+
+If The Amazing Spider-Man still refuses to let Peter Parker and Mary Jane Watson rekindle their flame, this love interest deserves the whole world.
+---------
+
+# Star Trek: Space Hunt Officially Releases August 2026
+
+Gaming, Star Trek, Star Trek - Season 1, Star Trek - Season 2, Star Trek - Season 3, PC
+
+Sun, 12 Jul 2026 00:00:21 GMT
+
+https://screenrant.com/star-trek-space-hunt-august-release/
+
+Star Trek officially returns in August with Space Hunt, an epic new release bringing back Captain Kirk, Spock, Picard, Data, and more.
+---------
+
+# Netflix's 3-Part Sci-Fi Series Is As Close To Perfect As Remakes Get
+
+Classic TV, Masked Recs
+
+Sat, 11 Jul 2026 23:30:20 GMT
+
+https://screenrant.com/lost-in-space-sci-fi-remake-netflix-perfect/
+
+One of Netflix's most underrated science fiction shows is the perfect example of a modern-day remake, and all three seasons are streaming now.
+---------
+
+# Noah Wyle's Former ER Co-Star Has No Interest in The Pitt Reunion: 'That's About 1 Man'
+
+TV, ER, The Pitt
+
+Sun, 12 Jul 2026 00:46:43 GMT
+
+https://www.cbr.com/er-star-cch-pounder-the-pitt-reunion/
+
+An original ER star rejects appearing on The Pitt after recalling how her role was reduced on ER.
+---------
+
+# 5 Reasons One Piece's East Blue Arc Is Unwatchable Today
+
+Anime, One Piece, shonen anime
+
+Sun, 12 Jul 2026 00:45:13 GMT
+
+https://www.cbr.com/one-piece-east-blue-arc-unwatchable-today/
+
+One Piece's East Blue arc, where it all begins, now sits at the furthest possible distance from modern production standards, making it unwatchable.
+---------
+
+# Only 3 RPGS Are Better Than Baldur's Gate 3
+
+Games, Baldur's Gate 3, Dragon Age: Origins (dupe), Role Playing Game, RPG
+
+Sun, 12 Jul 2026 00:30:12 GMT
+
+https://www.cbr.com/rpgs-better-than-baldurs-gate-3/
+
+Baldur's Gate 3 is the pinnacle for modern role-playing games, but there are still a few that surpass its legacy.
+---------
+
+# 8 Best Fire-Based Abilities in Anime, Ranked
+
+Anime, Fairy Tail, One Piece
+
+Sun, 12 Jul 2026 00:15:13 GMT
+
+https://www.cbr.com/best-fire-based-abilities-in-anime-ranked/
+
+These powers combine devastating force with unique mechanics that make every battle more exciting.
+---------
+
+# The Boys' Antony Starr Plays Another Creepy Role in New Netflix Series That Just Wrapped Filming
+
+TV, Netflix, The Boys
+
+Sun, 12 Jul 2026 00:03:58 GMT
+
+https://www.cbr.com/breakers-netflix-filming-wrap-antony-starr/
+
+Homelander actor Antony Starr isn't wasting any time on his on-screen return following the conclusion of The Boys.
+---------
+
+# Samuel L. Jackson's New Paramount+ Show Confirms a Major Taylor Sheridan Strategy Shift
+
+TV, Tulsa King, Frisco King
+
+Sun, 12 Jul 2026 00:00:12 GMT
+
+https://www.cbr.com/taylor-sheridan-strategy-shift-move-tulsa-king-spinoff-to-texas/
+
+Sylvester Stallone and Samuel L Jackson's new Paramount+ series confirms a major strategic shift in Taylor Sheridan's television universe.
+---------
+
+# 8 Reasons It's Tough To Watch Back to the Future Today
+
+Movies, Back to the Future, Sci-Fi, Adventure
+
+Sun, 12 Jul 2026 00:00:12 GMT
+
+https://www.cbr.com/reasons-tough-to-watch-back-to-the-future-today/
+
+Although Back to the Future is a near-flawless part of 1980s Hollywood pop culture, a few small details can make it tough to watch it today.
+---------
+
+# Crunchyroll Says Netflix Isn't Enough for Anime Fans Anymore
+
+Anime, Crunchyroll, Netflix, Streaming
+
+Sun, 12 Jul 2026 00:00:12 GMT
+
+https://www.cbr.com/crunchyroll-vs-netflix-anime-fan-model/
+
+Crunchyroll has revealed that it aims to be more than just an anime streaming platform for its user base.
+---------
+
+# 8 Classic Shonen Anime Series That Are Unwatchable Today
+
+Anime, Shonen, shonen anime
+
+Sat, 11 Jul 2026 23:45:13 GMT
+
+https://www.cbr.com/unwatchable-classic-shonen-anime-series/
+
+The classics may have built the foundation for modern shonen anime, but they were created for an entirely different viewing audience.
+---------
+
+# Netflix’s Twisty 6-Part Thriller With 100% RT Is the Best Slow-Burn Series of the Decade
+
+TV, Netflix, The Secrets We Keep, Thriller
+
+Sat, 11 Jul 2026 23:30:12 GMT
+
+https://www.cbr.com/netflix-secrets-we-keep-2020s-best-slow-burn-thriller/
+
+Netflix is home to some of the best slow-burn thrillers, and at the top of the watch stack is a Nordic Noir mystery.
+---------
+
+# 4 Years Later, AMC’s Western Noir Thriller Is Already Considered a Classic
+
+TV Features, Dark Winds, Western, Zahn McClarnon, AMC
+
+Sat, 11 Jul 2026 23:52:13 GMT
+
+https://collider.com/dark-winds-amc-western-noir-thriller-classic/
+
+AMC's Western noir thriller series Dark Winds is already a classic thanks to its captivating mysteries and characters.
+---------
+
+# Prime Video Is Hiding One of TV's Best Supernatural Fantasies You've Never Heard Of
+
+TV Features, Being Human, Aidan Turner, Russell Tovey, Lenora Crichlow
+
+Sat, 11 Jul 2026 23:36:13 GMT
+
+https://collider.com/being-human-prime-video-supernatural-fantasy/
+
+Despite its relatable characters and unique blend of humor and horror, Being Human is an underrated series that often gets overlooked by fantasy fans.
+---------
+
+# David Fincher's Groundbreaking Thriller Is Being Cut From Streaming
+
+Movie News, David Fincher, Se7en, Brad Pitt, Morgan Freeman
+
+Sat, 11 Jul 2026 23:30:13 GMT
+
+https://collider.com/david-fincher-seven-leaving-peacock-august-2026/
+
+David Fincher's defining thriller, Se7en, is about to be removed from Peacock. Find out how long you have left to watch it.
+---------
+
+# Johnny Galecki Ends Post-'Big Bang Theory' Acting Hiatus with New Role
+
+TV News, Johnny Galecki, The Big Bang Theory
+
+Sun, 12 Jul 2026 00:29:32 GMT
+
+https://movieweb.com/johnny-galecki-returns-to-acting/
+
+Johnny Galecki, best known for 'The Big Bang Theory,' is set to take on his first new role since the hit sitcom ended.
+---------
+
+# 5 Years Later, Apple TV's Sci-Fi Franchise Replaces Its Best Character
+
+Features, Star City, For All Mankind, Apple TV
+
+Sun, 12 Jul 2026 00:00:19 GMT
+
+https://movieweb.com/star-city-sasha-gordo-replacement/
+
+A perfect successor has entered the story.
+---------
+
 # 10 Best Crime Movie Plot Twists, Ranked
 
 Classic Movies, Crime
