@@ -1,3 +1,146 @@
+# Pokémon Winds & Waves New Kanto Evolution Splits Gamers
+
+Gaming, Pokemon Winds and Waves, Pokemon
+
+Sun, 12 Jul 2026 10:30:26 GMT
+
+https://screenrant.com/pokemon-winds-waves-psyduck-variant-opinions/
+
+Pokémon Winds and Waves leaks have been rolling out in full force lately, and one of them includes a new evolution for a Gen 1 fan-favorite.
+---------
+
+# New Fallout: New Vegas RPG Gets Promising Update
+
+Gaming, Fallout: New Vegas, Fallout, PC, Fallout 4
+
+Sun, 12 Jul 2026 10:01:21 GMT
+
+https://screenrant.com/fallout-new-vegas-rpg-restocks-coming-soon/
+
+There's been an exciting update for the highly anticipated Fallout: New Vegas RPG, and fans will want to keep their eyes peeled for a release soon.
+---------
+
+# Red Dead Redemption 2 60fps On Console Is Real, And It’s Beautiful
+
+Gaming, Red Dead Redemption 2
+
+Sun, 12 Jul 2026 09:30:20 GMT
+
+https://screenrant.com/red-dead-redemption-2-60fps-ps5-gameplay/
+
+Discover how Red Dead Redemption 2 looks running at 60FPS on next-gen consoles.
+---------
+
+# ABC Officially Confirms Bad News for High Potential Season 3 After Historic Renewal Decision
+
+TV, ABC, High Potential
+
+Sun, 12 Jul 2026 10:30:21 GMT
+
+https://www.cbr.com/abc-historic-2026-2027-schedule-bad-news-high-potential-season-3/
+
+ABC confirms bad news for Kaitlin Olson's High Potential Season 3, despite the network's historic achievements in its 2026-2027 broadcast schedule.
+---------
+
+# 5 Masterpiece Western Movies Better Than Tombstone
+
+Movies, Western, Tombstone
+
+Sun, 12 Jul 2026 10:30:21 GMT
+
+https://www.cbr.com/masterpiece-western-movies-better-than-tombstone-list/
+
+George P. Cosmatos and Kurt Russell’s Tombstone set a new standard for Westerns in 1993, but some masterpieces are even better takes on the genre.
+---------
+
+# Every MCU Actor in The Odyssey
+
+Movies, MCU, The Odyssey, Spider-Man: Brand New Day
+
+Sun, 12 Jul 2026 10:00:12 GMT
+
+https://www.cbr.com/mcu-actors-in-christopher-nolan-odyssey-list/
+
+Christopher Nolan's adaptation of The Odyssey boasts a star-studded cast, including several actors who have appeared in the Marvel Cinematic Universe.
+---------
+
+# Apple TV's 10/10 Sci-Fi Hit Is Rewriting the Post-Apocalyptic TV Formula for the 2020s
+
+TV, Silo, Apple TV, Sci-Fi
+
+Sun, 12 Jul 2026 10:00:12 GMT
+
+https://www.cbr.com/silo-season-3-origin-story/
+
+Apple TV's Silo is taking an imaginative approach to revealing the truth about its apocalyptic world.
+---------
+
+# Titus Welliver's New Crime Thriller Is Inspired by an Infamous Real-Life Gang
+
+TV Features, J.K. Simmons, Titus Welliver, The Westies, Crime
+
+Sun, 12 Jul 2026 10:44:31 GMT
+
+https://collider.com/the-westies-true-story-titus-welliver-crime-thriller/
+
+Titus Welliver's new series The Westies is inspired by a real-life Irish crime syndicate that dominated Hell's Kitchen.
+---------
+
+# 'MobLand' Creator’s Beloved Spy Thriller Is Officially Taking Over the World
+
+TV News, The Agency, Jez Butterworth, Paramount Plus, MobLand
+
+Sun, 12 Jul 2026 10:30:21 GMT
+
+https://collider.com/the-agency-paramount-streaming-success-july-2026/
+
+Before MobLand, series writer Jez Butterworth wrote another Paramount+ thriller that is currently topping the charts. Get all the details here.
+---------
+
+# 6 Forgotten Spider-Man Video Games That Are Way Better Than You Think
+
+Gaming, Spider-Man, Video Game, Superhero, Marvel
+
+Sun, 12 Jul 2026 10:22:19 GMT
+
+https://collider.com/spider-man-video-games-forgotten-better-than-you-think/
+
+From Spider-Man 2: Enter Electro to Ultimate Spider-Man: Total Mayhem, these forgotten video games starring the Wall-Crawler deserve more attention.
+---------
+
+# Russell Crowe's Brutal WWII Thriller Shoots to the Top of Global Streaming Charts
+
+Movie News, Russell Crowe, Nuremberg, Prime Video, World War II
+
+Sun, 12 Jul 2026 10:01:13 GMT
+
+https://collider.com/russell-crowe-nuremberg-streaming-hit-prime-video-july-2026/
+
+Russell Crowe's brutal WWII thriller with Rami Malek and Michael Shannon is a hit on global streaming. Read on for details.
+---------
+
+# Anya Taylor-Joy's Apple TV Crime Thriller Officially Debuts in 3 Days
+
+TV News, Anya Taylor-Joy, Lucky, Apple TV, Thriller
+
+Sun, 12 Jul 2026 09:41:13 GMT
+
+https://collider.com/anya-taylor-joy-apple-tv-thriller-lucky-premiere-date-july-15-2026/
+
+Anya Taylor-Joy returns to television this week with an Apple TV crime thriller about a con artist. Get all the details.
+---------
+
+# The 10 Best 'House of the Dragon' Quotes, Ranked
+
+TV, House of the Dragon, HBO, Fantasy, George R.R. Martin
+
+Sun, 12 Jul 2026 09:27:13 GMT
+
+https://collider.com/best-house-of-the-dragon-quotes-ranked/
+
+Explore the best quotes from House of the Dragon, ranked by their impact on the story and the wisdom they convey about power and the human condition.
+---------
+
 # Genshin Impact 7.0 Character Leak Is A Great Sign For Snezhnaya Update
 
 Gaming, Genshin Impact, PC, Live Service Games
