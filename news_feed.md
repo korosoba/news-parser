@@ -1,3 +1,300 @@
+# 6 Best Low Fantasy TV Shows With Superb Magic Systems
+
+Classic TV, Fantasy
+
+Sun, 12 Jul 2026 22:00:20 GMT
+
+https://screenrant.com/low-fantasy-tv-shows-best-magic-systems/
+
+High fantasy TV shows might get more attention for magic systems, but these six low fantasy TV shows prove that the subgenre can do it just as well.
+---------
+
+# PlayStation Plus Free 2026 GOTY Contender Met With Backlash
+
+Gaming, PlayStation Plus
+
+Sun, 12 Jul 2026 22:00:20 GMT
+
+https://screenrant.com/playstation-plus-saros-free-trial-controversy/
+
+PlayStation Plus' newest freebie technically isn't 'free,' and fans are using this opportunity to revisit the Game Trials versus demos debate.
+---------
+
+# 5 Star Trek Ship Designs That Are 10/10 Perfect
+
+TV, Star Trek
+
+Sun, 12 Jul 2026 22:00:20 GMT
+
+https://screenrant.com/best-star-trek-ship-designs-perfect/
+
+The best of the best.
+---------
+
+# Doctor Who Releases David Tennant & Billie Piper Deleted Scenes
+
+TV, Doctor Who
+
+Sun, 12 Jul 2026 21:46:25 GMT
+
+https://screenrant.com/doctor-who-david-tennant-billie-piper-deleted-scenes/
+
+BBC just released several deleted scenes from Doctor Who, featuring the Tenth Doctor (David Tennant) and Rose Tyler (Billie Piper).
+---------
+
+# September Is Going To Be A Great Month For Guy Ritchie Fans
+
+Streaming TV, Masked Recs
+
+Sun, 12 Jul 2026 21:45:20 GMT
+
+https://screenrant.com/guy-ritchie-mobland-the-gentleman-season-2-september-2026-return/
+
+Guy Ritchie has had an exciting year — and it’s going to get even better for his fans with his two upcoming projects set to be released in September.
+---------
+
+# 44 Years Later, Spock's Best Star Trek Line Is Still Controversial
+
+Star Trek
+
+Sun, 12 Jul 2026 21:30:20 GMT
+
+https://screenrant.com/44-years-later-spocks-best-star-trek-line-is-still-controversial/
+
+Spock is one of the most iconic sci-fi characters, and his influence is still felt in today's TV shows, while his best line is often debated.
+---------
+
+# Why A Nightmare On Elm Street 2 Is So Different
+
+Movies, A Nightmare on Elm Street 2: Freddy's Revenge
+
+Sun, 12 Jul 2026 21:30:20 GMT
+
+https://screenrant.com/a-nightmare-on-elm-street-2-franchise-changes/
+
+Freddy's second movie is noticeably different from the rest of the franchise, and this is why A Nightmare on Elm Street 2 isn't like the others.
+---------
+
+# Seth Rogen's Comedy Remake With 96% RT Score Quietly Debuts in Theaters
+
+Movies, The Invite
+
+Sun, 12 Jul 2026 22:06:29 GMT
+
+https://www.cbr.com/the-invite-olivia-wilde-seth-rogen-now-in-theaters/
+
+A24's highly-acclaimed new film has its wide release in movie theaters.
+---------
+
+# Euphoria Star's Underrated Indie Movie With 86% RT Is Heading to Netflix in Just 1 Day
+
+Movies, Mile End Kicks
+
+Sun, 12 Jul 2026 22:00:12 GMT
+
+https://www.cbr.com/mile-end-kicks-indie-rom-com-netflix-release-july-2026/
+
+One of the most critically acclaimed indie flops of the past year is officially making its way to one of the biggest streaming platforms of all time.
+---------
+
+# 31 Years Later, Tenchi Muyo Finally Returns With an Official Anime Sequel
+
+Anime, Tenchi Muyo, toonami, Cartoon Network
+
+Sun, 12 Jul 2026 22:00:12 GMT
+
+https://www.cbr.com/tenchi-muyo-official-sequel/
+
+Tenchi Muyo! is finally back with the official Tenchi Galaxy sequel project, reviving a Toonami sci-fi classic after 31 years.
+---------
+
+# 10 Batman Characters Who Should Finally Get Solo Series
+
+Comics, DC Comics, Batman
+
+Sun, 12 Jul 2026 22:00:12 GMT
+
+https://www.cbr.com/batman-characters-who-deserve-solo-series/
+
+The Bat-Signal has plenty of spotlight for all the major characters in Gotham City.
+---------
+
+# 6 Classic WWII Movies Everyone Forgot Are Actually Perfect
+
+Movies, War
+
+Sun, 12 Jul 2026 22:00:12 GMT
+
+https://www.cbr.com/perfect-wwii-movies-no-one-remembers-list/
+
+Many of the best WWII movies have faded from memory, but the following overlooked classics remain some of the most effective war films ever made.
+---------
+
+# Avatar: Fire & Ash Loses No. 1 Spot on Disney+
+
+Movies, Avatar: Fire and Ash, Avatar, Disney+
+
+Sun, 12 Jul 2026 21:35:12 GMT
+
+https://www.cbr.com/avatar-fire-and-ash-streaming-failure-disney-plus-sci-fi-july-2026/
+
+After only two weeks, Avatar: Fire and Ash is officially out of the top spot on Disney+'s streaming charts.
+---------
+
+# The Batman 2 Is Replacing The Riddler as Its Primary Villain
+
+Movies, The Batman, The Batman Part II
+
+Sun, 12 Jul 2026 21:30:12 GMT
+
+https://www.cbr.com/the-batman-2-the-riddler-villain-replacement/
+
+The biggest plot points of The Batman: Part II are kept under wraps, but it isn't hard to see the writing on the wall for a significant character.
+---------
+
+# 10 Best Anime Series for People Who Only Watch Live-Action
+
+Anime, Cowboy Bebop, Attack on Titan
+
+Sun, 12 Jul 2026 21:15:13 GMT
+
+https://www.cbr.com/best-anime-for-live-action-fans/
+
+Even new fans used to live-action TV series can appreciate anime shows like Cowboy Bebop and Monster.
+---------
+
+# 10 Greatest K-Pop Albums of All Time, Ranked
+
+Movie, Blackpink, Music, BTS: Global Takeover, KPop Demon Hunters
+
+Sun, 12 Jul 2026 22:03:12 GMT
+
+https://collider.com/best-kpop-albums-all-time-ranked/
+
+The Most Beautiful Moment in Life: Young Forever by BTS, The Album by BLACKPINK, and more make up our list of the best K-pop albums of all time.
+---------
+
+# Titus Welliver’s New War Thriller Sparks Confusion With Bizarre Release Date
+
+Movie News, Liam Neeson, Action, Titus Welliver, Thriller
+
+Sun, 12 Jul 2026 22:00:13 GMT
+
+https://collider.com/titus-welliver-liam-neeson-thriller-the-fix-release-date-september-11-2026/
+
+Bosch star Titus Welliver's long-delayed thriller finally has a release date, but one surprising decision is already raising eyebrows.
+---------
+
+# 10 Best Epic Movies of the 1970s
+
+Movie, The Godfather Part II, The Godfather, Barry Lyndon, Duck, You Sucker
+
+Sun, 12 Jul 2026 21:57:13 GMT
+
+https://collider.com/best-epic-movies-1970s-ranked/
+
+Movies like The Godfather and its sequel, A Touch of Zen, and Barry Lyndon can all count themselves among the most masterful epics of the 1970s.
+---------
+
+# 6 Best Animated Movies of 2026 So Far
+
+Movie, Animation, Family, Swapped, Hoppers
+
+Sun, 12 Jul 2026 21:55:12 GMT
+
+https://collider.com/best-animated-movies-2026-so-far-ranked/
+
+Toy Story 3, Swapped, and Minions and Monsters are all among the very best animated movies released so far in 2026.
+---------
+
+# 10 Most Surprising One-Hit Wonders of All Time
+
+Music Features, Lists, Music, Garth Brooks
+
+Sun, 12 Jul 2026 21:45:13 GMT
+
+https://collider.com/one-hit-wonders-surprising/
+
+Major music acts like Weezer, The White Stripes, and The Jimi Hendrix Experience surprisingly, technically fit the definition of a one-hit wonder.
+---------
+
+# 6 Worst R-Rated Movies of the 2010s
+
+Movie, Movie 43, The Fanatic, Gotti, The Happytime Murders
+
+Sun, 12 Jul 2026 21:42:12 GMT
+
+https://collider.com/worst-r-rated-movies-2010s-ranked/
+
+The Snowman, Gotti, and The Happytime Murders are among the absolute worst R-rated movies of the 2010s decade.
+---------
+
+# Sydney Sweeney’s R-Rated Sleeper Hit Officially Returns With New Release This Month
+
+Movie News, Sydney Sweeney, Anyone But You, Blu-ray, Glen Powell
+
+Sun, 12 Jul 2026 21:30:13 GMT
+
+https://collider.com/sydney-sweeney-anyone-but-you-4k-blu-ray-release-date-july-21-2026/
+
+Sydney Sweeney's surprise box-office phenomenon is getting a major upgrade with a brand-new release. Read on for more details.
+---------
+
+# 36 Years Later, This 'Jaws' Meets 'A Quiet Place' Creature Feature Is a Surprise Streaming Hit
+
+Movie Features, Tremors, Kevin Bacon, Reba McEntire, Paramount Plus
+
+Sun, 12 Jul 2026 21:23:12 GMT
+
+https://collider.com/tremors-kevin-bacon-paramount-plus-streaming-jaws/
+
+Kevin Bacon's Tremors was a box office flop in 1990, but it found a new life on video, and is currently among Paramount+'s top 10 most popular films.
+---------
+
+# Anne Hathaway's 'Ocean's Eleven' Replacement Is a Surprise Netflix Hit
+
+Movie News, Anne Hathaway, The Hustle, Netflix, Rebel Wilson
+
+Sun, 12 Jul 2026 21:15:13 GMT
+
+https://collider.com/anne-hathaway-the-hustle-netflix-streaming-success-july-2026/
+
+Anne Hathaway teams up with Rebel Wilson for a heist movie that's heating up the Netflix streaming charts. Read on for more.
+---------
+
+# Forget 'Yellowstone,' This Western Video Game Series Could Be Your Next Obsession, but There's a Catch
+
+TV Features, Red Dead Redemption 2, Red Dead Redemption, Western, Yellowstone
+
+Sun, 12 Jul 2026 21:14:13 GMT
+
+https://collider.com/red-dead-redemption-2-western-video-game-yellowstone-replacement/
+
+Red Dead Redemption 2 could inspire the next great Western series, but a live-action adaptation seems unlikely due to Rockstar.
+---------
+
+# The Perfect 'Spartacus' Replacement Quietly Came Out One Year Ago
+
+Features, Spartacus
+
+Sun, 12 Jul 2026 22:00:18 GMT
+
+https://movieweb.com/gladiators-perfect-spartacus-replacement/
+
+Missing Spartacus? This six-episode series is a must-watch, and you'll even learn something about Ancient Rome along the way.
+---------
+
+# How To Read ‘The Odyssey’ & Which Translation You Should Choose
+
+Features, The Odyssey
+
+Sun, 12 Jul 2026 21:30:18 GMT
+
+https://movieweb.com/how-to-read-the-odyssey-which-translation/
+
+'The Odyssey' is by no means an easy thing to understand, but let's get you started with some baseline information.
+---------
+
 # 10 Greatest Mindless 80s Action Movies Of All Time, Ranked
 
 Classic Movies, Action
