@@ -1,3 +1,267 @@
+# 10 Best Death Game Anime
+
+Anime
+
+Sun, 12 Jul 2026 23:00:22 GMT
+
+https://screenrant.com/best-death-game-anime/
+
+The Death Game genre is one of anime's most iconic, running the gamut from entertainingly edgy schlock to powerful critiques of humanity.
+---------
+
+# The Boys Quietly Killed Its Own Replacement
+
+Streaming TV, The Boys
+
+Sun, 12 Jul 2026 23:00:20 GMT
+
+https://screenrant.com/the-boys-ending-gen-v-spinoff-cancel-worse/
+
+The Boys would have had a perfect replacement based on strong teases and even stronger characters, but it quietly killed any possibility of this.
+---------
+
+# Super Mario Officially Returns In 2027, Mark Your Calendars
+
+Gaming, Super Mario, Super Mario Bros., Super Mario Bros. Wonder, Triple-A Games
+
+Sun, 12 Jul 2026 23:00:20 GMT
+
+https://screenrant.com/super-mario-2027-return-new-figure/
+
+One of the most successful Super Mario Bros. games on the Nintendo Switch returns in roughly a year from now, celebrating how momentous it is.
+---------
+
+# Dead By Daylight: 10 Horror Icons That Still Need To Be Killers
+
+Gaming, Dead by Daylight, Live Service Games, PC
+
+Sun, 12 Jul 2026 23:00:20 GMT
+
+https://screenrant.com/dead-by-daylight-killer-crossover-wishlist/
+
+Dead By Daylight has seen absolutely massive success with its crossover characters, but it's still missing more than a few classic horror villains.
+---------
+
+# Netflix Has One Live-Action Anime Adaptation Better Than One Piece, And It's 10/10
+
+TV, Netflix, Masked Recs
+
+Sun, 12 Jul 2026 22:52:28 GMT
+
+https://screenrant.com/yuyu-hakusho-netflix-live-action-anime-better-one-piece/
+
+While the Straw Hats get all the praise, Netflix's brilliant live-action adaptation remains the platform's true masterpiece.
+---------
+
+# 12 Best Weapons For Rogues In Baldur’s Gate 3
+
+Gaming, Baldur's Gate 3, Baldur's Gate, PC
+
+Sun, 12 Jul 2026 22:30:20 GMT
+
+https://screenrant.com/baldurs-gate-3-best-weapons-rogue-bg3/
+
+Which daggers, shortswords, rapiers, and bows are the best weapons for the rogue class in Baldur's Gate 3? Here are the 10 best.
+---------
+
+# 10 Best Family Western TV Shows
+
+Classic TV
+
+Sun, 12 Jul 2026 22:30:19 GMT
+
+https://screenrant.com/best-family-western-tv-series/
+
+Delve into a list of the 10 essential family western TV shows leading the genre's revival, highlighting classics & modern takes with fun dynamics.
+---------
+
+# DC Confirms Its Most Underrated Villain For Batman's Next Appearance
+
+DC Comics, Batman
+
+Sun, 12 Jul 2026 22:30:19 GMT
+
+https://screenrant.com/prometheus-return-batman-justice-league-villain/
+
+DC confirms Batman's next villain, who forces the Dark Knight into an unlikely alliance with a dangerous criminal he shouldn't trust for a second.
+---------
+
+# Moana Live-Action Remake Rotten Tomatoes Score Officially Sets Disney Audience Record By 2 Points
+
+Movies, Moana, Disney
+
+Sun, 12 Jul 2026 22:28:33 GMT
+
+https://screenrant.com/disney-moana-live-action-remake-rotten-tomatoes-audience-score-record/
+
+Disney's new live-action Moana remake has officially set a new Rotten Tomatoes record by just two points, as audiences congregate in theaters.
+---------
+
+# When Will Disney's Moana Live-Action Remake Release On Streaming?
+
+New Movies, Moana
+
+Sun, 12 Jul 2026 22:25:19 GMT
+
+https://screenrant.com/disney-moana-live-action-release-streaming-disney-plus/
+
+Disney hasn't announced when Moana will release on streaming. But past data allows us to predict its streaming debut with likely accuracy
+---------
+
+# 7 Anime Heroes Stronger Than Spider-Man
+
+Anime, Spider-Man, Dragon Ball, Sailor Moon
+
+Sun, 12 Jul 2026 23:15:12 GMT
+
+https://www.cbr.com/anime-heroes-stronger-than-spider-man/
+
+Spider-Man's strength and agility wouldn't save him against Goku or Naruto.
+---------
+
+# Prime Video's 8-Part Drama With 100% RT Keeps Climbing the Charts Despite Speedy Cancellation
+
+TV, It's Not Like That
+
+Sun, 12 Jul 2026 23:00:13 GMT
+
+https://www.cbr.com/its-not-like-that-streaming-rise-after-cancelation/
+
+Prime Video might have been too quick to pull the plug on the new series.
+---------
+
+# 5 Stephen King Monsters More Powerful Than Pennywise
+
+Movies, It, Stephen King, The Dark Tower
+
+Sun, 12 Jul 2026 23:00:13 GMT
+
+https://www.cbr.com/stephen-king-monsters-more-powerful-than-pennywise-list/
+
+Stephen King is the undisputed master of horror, and while Pennywise is his most famous monster, there are many that are more powerful.
+---------
+
+# Prime Video's Returning 10/10 Epic Is the Decade's Undisputed Fantasy TV Event
+
+TV, The Lord of the Rings, The Lord of the Rings: The Rings of Power, Fantasy
+
+Sun, 12 Jul 2026 23:00:13 GMT
+
+https://www.cbr.com/the-lord-of-the-rings-rings-of-power-season-3-fantasy-event/
+
+Prime Video's massive fantasy television show is coming back this year--and it could be the fantasy event of the decade.
+---------
+
+# Every Enchanted Card In Disney Lorcana's Attack of the Vine
+
+Games, Disney, Disney Lorcana, Tabletop, TCG
+
+Sun, 12 Jul 2026 22:15:12 GMT
+
+https://www.cbr.com/disney-lorcana-attack-of-the-vine-enchanted-cards/
+
+The new Disney Lorcana set, Attack of the Vine, contains a vast amount of Enchanted cards that will have collectors foaming at the mouth.
+---------
+
+# 8 Sci-Fi Show Endings That Are Genuine Masterpieces
+
+TV, Sci-Fi, Lost, The Leftovers, Battlestar Galactica
+
+Sun, 12 Jul 2026 23:21:12 GMT
+
+https://collider.com/sci-fi-show-endings-masterpieces/
+
+It's a badge of honor to end a series well, but sci-fi shows like The Leftovers and Battlestar Galactica have endings that are true masterpieces.
+---------
+
+# Rebecca Ferguson's 2026 Fantasy Gem Officially Sets New Release
+
+Movie News, Rebecca Ferguson, The Magic Faraway Tree, Fantasy, Blu-ray
+
+Sun, 12 Jul 2026 23:15:12 GMT
+
+https://collider.com/rebecca-ferguson-magic-faraway-tree-available-blu-ray-july-2026/
+
+Rebecca Ferguson 91% RT fantasy film with Andrew Garfield, The Magic Faraway Tree, will soon be available on Blu-ray. Find out all the details here.
+---------
+
+# Say Goodbye to the Quentin Tarantino Movie He Calls His "Masterpiece"
+
+Movie News, Inglourious Basterds, Quentin Tarantino, Brad Pitt, Christoph Waltz
+
+Sun, 12 Jul 2026 23:00:13 GMT
+
+https://collider.com/quentin-tarantino-ww2-epic-inglourious-basterds-leaving-peacock-july-22-2026/
+
+The spaghetti Western-inspired WWII movie that Quentin Tarantino calls his masterpiece, Inglourious Basterds, is about to be removed from Peacock.
+---------
+
+# Taylor Sheridan Officially Brings ‘Justified’ Into the ‘Yellowstone’ Universe
+
+TV Features, Dutton Ranch, Justified, SEAL Team, Paramount Plus
+
+Sun, 12 Jul 2026 22:49:12 GMT
+
+https://collider.com/taylor-sheridan-dutton-ranch-season-2-justified-showrunner-replacement/
+
+When Dutton Ranch returns for Season 2, it'll have a new showrunner in Justified alum Benjamin Cavell.
+---------
+
+# 'Lost' Meets 'Dark' in MGM's All-Time Greatest 4-Part Horror Series
+
+TV Features, From, Lost, Dark, Harold Perrineau
+
+Sun, 12 Jul 2026 22:46:13 GMT
+
+https://collider.com/from-tv-show-mgm-lost-meets-dark-horror-series/
+
+MGM+'s hit series From is reaching its epic conclusion next season, making now the perfect time to catch up on this thrilling mystery series.
+---------
+
+# 7 Years Later, the Most Hotly Debated 'Mario Kart' Game Is Officially Shutting Down
+
+Gaming News, Mario Kart, Nintendo, Android, Mario
+
+Sun, 12 Jul 2026 22:45:12 GMT
+
+https://collider.com/mario-kart-tour-shutting-down-7-years-later-september-29/
+
+Seven years after launch, Nintendo is shutting down its mobile game Mario Kart Tour in two months. Here's what we know.
+---------
+
+# BritBox's 'Wonka' Rival Officially Brings In a Dune Favorite
+
+TV News, Wonka, Britbox, Dune: Prophecy, Drama
+
+Sun, 12 Jul 2026 22:30:12 GMT
+
+https://collider.com/wonka-replacement-the-cadburys-cast-dune-star-jessica-barden/
+
+Dune: Prophecy's Jessica Barden stars in BritBox's Wonka replacement, The Cadburys. Find out more here.
+---------
+
+# Apple TV Revives David Bowie's Forgotten Horror Series on Streaming
+
+TV News, David Bowie, Anthology, Horror, The Hunger
+
+Sun, 12 Jul 2026 22:15:12 GMT
+
+https://collider.com/davie-bowie-anthology-series-the-hunger-streaming-success-apple-store-july-2026/
+
+A forgotten anthology hosted by David Bowie is suddenly climbing digital charts decades later, fueled by an unexpected resurgence.
+---------
+
+# 8 Incredible Fantasy Books You Can Read in Just One Night
+
+TV Lists, Fantasy, Brandon Sanderson
+
+Sun, 12 Jul 2026 23:00:18 GMT
+
+https://movieweb.com/gripping-fantasy-books-perfect-one-night-binge/
+
+Many fantasy books require a hefty time commitment, but these novellas and fast-paced reads can be enjoyed over the course of one night.
+---------
+
 # 6 Best Low Fantasy TV Shows With Superb Magic Systems
 
 Classic TV, Fantasy
