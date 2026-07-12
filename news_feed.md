@@ -1,3 +1,223 @@
+# 10 Greatest Mindless 80s Action Movies Of All Time, Ranked
+
+Classic Movies, Action
+
+Sun, 12 Jul 2026 21:00:20 GMT
+
+https://screenrant.com/best-mindless-80s-action-movies-all-time-ranked/
+
+The 1980s featured some of the most over-the-top, mindless action ever seen on screen, as stars like Stallone and Schwarzenegger became true icons
+---------
+
+# Mulder's Iconic X-Files Line Sets A High Standard For Hulu's Reboot
+
+Streaming TV, The X-Files
+
+Sun, 12 Jul 2026 21:00:20 GMT
+
+https://screenrant.com/the-x-files-reboot-iconic-mulder-line-challenge/
+
+Mulder has some of the best quotes in The X-Files, but his line in the 1998 movie perfectly describes his unparalleled relationship with Scully.
+---------
+
+# GTA 6 Boycott Exposes A Much Bigger Problem
+
+Gaming, Grand Theft Auto 6, PlayStation, Triple-A Games
+
+Sun, 12 Jul 2026 21:00:20 GMT
+
+https://screenrant.com/gta-6-boycott-problems-digital-only-games/
+
+Grand Theft Auto 6 boycotts have PlayStation users' hearts in the right place, but they probably won't make a difference when all is said and done.
+---------
+
+# DCU’s Tragic Hero Backstory Change In 2026 Makes Superman Even Better A Year Later
+
+Movies, DC Universe, Superman, Supergirl
+
+Sun, 12 Jul 2026 20:45:19 GMT
+
+https://screenrant.com/dc-universe-superman-movie-krypto-supergirl-backstory-change/
+
+The changes made to the backstory of one notable DC Universe hero has already enhanced the 2025 movie story of Superman covertly behind the scenes.
+---------
+
+# Demon Slayer's Tanjiro Could Beat Goku In A Fight
+
+Anime, Demon Slayer, Dragon Ball
+
+Sun, 12 Jul 2026 20:30:20 GMT
+
+https://screenrant.com/demon-slayer-tanjiro-beat-goku-fight/
+
+Goku's intense strength & abilities would make short work of most opponents, but Demon Slayer's Tanjiro has a secret weapon that's very effective.
+---------
+
+# GTA 6 Fans Braced For A Fully Unplayable Launch Day
+
+Gaming, Grand Theft Auto 6, Triple-A Games, PC
+
+Sun, 12 Jul 2026 20:30:20 GMT
+
+https://screenrant.com/gta-6-launch-psn-outage-fan-reaction/
+
+Rockstar has already been under fire over Grand Theft Auto 6's release, but this latest update has fans worried about its launch more than ever.
+---------
+
+# DC Studios' Death Of Superman Adaptation Explained By Writers
+
+TV, My Adventures With Superman, Superman, DC Universe
+
+Sun, 12 Jul 2026 20:23:52 GMT
+
+https://screenrant.com/my-adventures-with-superman-season-3-death-of-superman-explained/
+
+EXCLUSIVE: The newest adaptation of The Death of Superman in one of DC Studios' ongoing biggest projects gets officially addressed by the writers.
+---------
+
+# Apple TV's 10/10 Drama Series That Still Needs an Emmy Celebrates Major Streaming Milestone
+
+TV, Shrinking, Apple TV, Drama
+
+Sun, 12 Jul 2026 21:00:12 GMT
+
+https://www.cbr.com/shrinking-apple-tv-comedy-drama-streaming-milestone-july-2026/
+
+Apple TV's critically acclaimed series, Shrinking, is celebrating a major milestone as fans hope 2026 is the year it wins its first Emmy.
+---------
+
+# Wai Ching Ho, Daredevil and Iron Fist Actress, Dies at 82
+
+TV, obituary, Daredevil
+
+Sun, 12 Jul 2026 20:31:49 GMT
+
+https://www.cbr.com/wai-ching-ho-dead/
+
+Wai Ching Ho, who appeared in Daredevil and other Marvel shows, has passed away.
+---------
+
+# CBS Confirms Kayce Dutton's Team Is Already Changing in Marshals Season 2
+
+TV, Yellowstone, Marshals, CBS
+
+Sun, 12 Jul 2026 20:30:12 GMT
+
+https://www.cbr.com/cbs-marshals-season-2-change-kayce-dutton-team/
+
+CBS's first look at Marshals Season 2 teases massive changes to Kayce Dutton's team in the second season of Luke Grimes' Yellowstone spinoff.
+---------
+
+# 5 Greatest Sci-Fi Book Trilogies Of All Time, Ranked
+
+Movies, Sci-Fi
+
+Sun, 12 Jul 2026 20:30:12 GMT
+
+https://www.cbr.com/best-sci-fi-book-trilogies-ever-ranked-list/
+
+Sci-fi is the most enduring genre of all time and there are some must-read book trilogies that all fans should read.
+---------
+
+# 10 Strongest Quirks in My Hero Academia, Ranked
+
+Anime, My Hero Academia, shonen anime
+
+Sun, 12 Jul 2026 20:15:12 GMT
+
+https://www.cbr.com/strongest-quirks-mha-ranked/
+
+My Hero Academia is home to hundreds of quirks on both the hero and villain sides, but not all quirks are created equal.
+---------
+
+# It's Official, Mistborn Returns This November
+
+Games, Mistborn
+
+Sun, 12 Jul 2026 20:14:10 GMT
+
+https://www.cbr.com/mistborn-the-deckbuilding-game-november-2026/
+
+The next exciting release for Brandon Sanderson's Mistborn is coming later this year.
+---------
+
+# Amazon's Best Book of the Year So Far Is Perfect for 'His & Hers' Fans
+
+Books and Comics News, Books, His & Hers, Amazon, Netflix
+
+Sun, 12 Jul 2026 21:00:13 GMT
+
+https://collider.com/amazon-book-of-the-year-kin-perfect-for-his-hers-fans/
+
+Amazon names its Book of the Year, and it's perfect for fans of the Tessa Thompson and Jon Bernthal-led His & Hers.
+---------
+
+# These 5 Video Game Villains Are Worse Than Anything in Movies
+
+Video Games, Final Fantasy, The Legend of Zelda, Borderlands, Video Game
+
+Sun, 12 Jul 2026 20:54:13 GMT
+
+https://collider.com/video-game-villains-worse-than-movie-villains-evil/
+
+From Sephiroth to AM, these video game villains commit atrocities that make even cinema’s most iconic bad guys seem tame.
+---------
+
+# Netflix Turned This Overlooked DC Graphic Novel Into an Addictive 8-Part Sci-Fi Thriller
+
+TV Features, Bodies, Netflix, DC Comics, Graphic Novel
+
+Sun, 12 Jul 2026 20:43:12 GMT
+
+https://collider.com/netflix-bodies-dc-graphic-novel-adaptation-series/
+
+Bodies adapts an overlooked DC graphic novel into an addictive 8-part Netflix sci-fi thriller spanning four timelines.
+---------
+
+# ‘Yellowstone's Gritty 9-Part Spin-Off Climbs to Streaming Dominance
+
+TV News, Dutton Ranch, Yellowstone, Paramount Plus, Western
+
+Sun, 12 Jul 2026 20:31:12 GMT
+
+https://collider.com/dutton-ranch-yellowstone-spin-off-paramount-plus-streaming-success-july-2026/
+
+As Yellowstone expands with multiple spin-offs, its 9-episode hit series is officially the number one show on streaming. Get all the details.
+---------
+
+# Jason Statham's Most Divisive Action Thriller Sets Free Streaming Release Date
+
+Movie News, Parker, Tubi, Coming/Leaving Streaming, Action
+
+Sun, 12 Jul 2026 21:00:18 GMT
+
+https://movieweb.com/parker-jason-statham-action-stream-free-tubi-august-2026/
+
+Jason Statham's rare crime thriller flop is coming to free streaming.
+---------
+
+# Taylor Sheridan's Forgotten 'Star Trek' Episode is Mandatory Viewing
+
+Features, Taylor Sheridan, Star Trek
+
+Sun, 12 Jul 2026 21:00:18 GMT
+
+https://movieweb.com/taylor-sheridans-forgotten-star-trek-episode/
+
+During his acting days, Yellowstone creator Taylor Sheridan had a supporting role in Star Trek: Enterprise.
+---------
+
+# 'Obsession' Is Now the Highest-Grossing Original Horror Film of the 21st Century
+
+Movie News, Obsession, Horror, It, The Sixth Sense
+
+Sun, 12 Jul 2026 20:56:53 GMT
+
+https://movieweb.com/obsession-original-horror-box-office/
+
+'Obsession' continues to break records left and right ahead of its streaming debut.
+---------
+
 # Forgotten DC Show Is An Adrenaline-Fueled Joyride (& It’s Free To Watch)
 
 Classic TV, DC, Masked Recs
