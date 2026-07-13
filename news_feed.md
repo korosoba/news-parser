@@ -1,3 +1,443 @@
+# New Taylor Sheridan Texas Crime Thriller Series Casting Update Adds 2 Mysterious Roles
+
+TV, Frisco King, Frisco King - Season 1, Taylor Sheridan, Arturo Del Puerto
+
+Mon, 13 Jul 2026 16:49:51 GMT
+
+https://screenrant.com/frisco-king-casting-tom-pecinka-arturo-del-puerto/
+
+Taylor Sheridan is creating a Tulsa King spinoff with Samuel L. Jackson’s Russell Lee Washington Jr., and two new stars have now joined the cast.
+---------
+
+# J.J. Abrams’ New Sci-Fi Movie’s Potential Cloverfield Connections Addressed By Director
+
+Movies, The End of Oak Street, Cloverfield
+
+Mon, 13 Jul 2026 16:49:32 GMT
+
+https://screenrant.com/jj-abrams-end-of-oak-street-cloverfield-connections-addressed-mitchell/
+
+The director of J.J. Abrams' new sci-fi thriller addresses the potential connections between his film and the iconic Cloverfield franchise.
+---------
+
+# NBC Fan-Favorite Series Makes TV History By Breaking A 24-Year Record
+
+Network TV, NBC, One Chicago, Chicago Fire
+
+Mon, 13 Jul 2026 16:45:17 GMT
+
+https://screenrant.com/chicago-fire-longest-running-firefighter-show-record-nbc/
+
+One fan-favorite series on NBC will officially make tv history by breaking an industry record that has been established over two decades ago.
+---------
+
+# Alan Ritchson’s Cancelled Series With Upcoming Revival Confirms New Head Start On Viewership Comeback
+
+TV, Masked Recs, Alan Ritchson
+
+Mon, 13 Jul 2026 16:32:21 GMT
+
+https://screenrant.com/alan-ritchson-blue-mountain-state-lionsgate-plus-streaming-success-july-2026-revival/
+
+One of Alan Ritchson's cult series that is in the process of getting a new revival is finding a new audience in 2026 through the world of streaming.
+---------
+
+# Alan Ritchson's 2-Part Sci-Fi Movies Are The Most Underrated Franchise Reboot Of The 2010s
+
+Movies, Masked Recs
+
+Mon, 13 Jul 2026 16:30:17 GMT
+
+https://screenrant.com/alan-ritchson-teenage-mutant-ninja-turtles-underrated-reboot/
+
+The Teenage Mutant Ninja Turtles movies starring Alan Ritchson aren't great, but they're nowhere near as bad as they're made out to be.
+---------
+
+# Smallville's Tom Welling Returns As Superman For R-Rated James Gunn DCU Team In New DC Art
+
+TV, Smallville, Superman, DC Universe
+
+Mon, 13 Jul 2026 16:23:24 GMT
+
+https://screenrant.com/smallville-tom-welling-superman-return-dc-universe-the-authority-art/
+
+Smallville's Tom Welling returns as Superman with a striking costume in new DC art that sees him join an R-rated team planned for James Gunn's DCU.
+---------
+
+# Kiki’s Delivery Service Creator Passes Away At 81
+
+Anime, Kiki's Delivery Service
+
+Mon, 13 Jul 2026 16:17:08 GMT
+
+https://screenrant.com/akiko-hayashi-kikis-delivery-service-death/
+
+As the Kiki's Delivery Service franchise enters a new era, the original creator of Kiki's Delivery Service passes away at the age of 81.
+---------
+
+# Paramount & WB Face Major New Multi-State Lawsuit To Block Merger
+
+Movies, Paramount Pictures
+
+Mon, 13 Jul 2026 16:16:33 GMT
+
+https://screenrant.com/paramount-wb-face-major-new-multi-state-lawsuit-to-block-merger/
+
+Paramount is being sued by a coalition of state attorneys general to stop its $111 billion takeover of Warner Bros. Discovery as the threat looms.
+---------
+
+# The Terminal List Meets Terminator In Prime Video's 2-Hour Sci-Fi Thriller
+
+Movies, Masked Recs
+
+Mon, 13 Jul 2026 16:01:17 GMT
+
+https://screenrant.com/the-tomorrow-war-terminal-list-meets-terminator-prime-video/
+
+Taking The Terminal List’s spy story and The Terminator franchise’s sci-fi twist, this Prime Video thriller more than earned its upcoming sequel.
+---------
+
+# Fantastic Four’s New Superweapon Might Be Marvel’s Coolest Of All Time
+
+Marvel Comics, Fantastic Four (2022), Fantastic Four
+
+Mon, 13 Jul 2026 16:00:36 GMT
+
+https://screenrant.com/fantastic-four-new-superweapon/
+
+The newest threat to humanity in Marvel Comics is one that not even the Fantastic Four is immune to, and its fate is left to two children.
+---------
+
+# Christopher Nolan's The Odyssey Cast Gets Personal
+
+Movies, The Odyssey
+
+Mon, 13 Jul 2026 16:15:11 GMT
+
+https://www.cbr.com/video/christopher-nolan-s-the-odyssey-cast-gets-personal/
+
+Matt Damon and Anne Hathaway break down the emotional heart of Christopher Nolan's The Odyssey, explaining why the relationship between Odysseus and Penelope drives every moment of the film. They also reveal which Nolan movies they'd preserve for future generations and why those films continue to reward repeat viewings.
+---------
+
+# 5 Masterpiece Action Anime Better Than Cowboy Bebop
+
+Anime, Cowboy Bebop, shonen anime, Hunter x Hunter, Jujutsu Kaisen
+
+Mon, 13 Jul 2026 16:15:11 GMT
+
+https://www.cbr.com/action-anime-better-than-cowboy-bebop/
+
+Cowboy Bebop's reputation as a masterpiece is well-deserved, but anime's continued evolution raises newer action anime to far greater heights.
+---------
+
+# Michael Keaton's Iconic Villain Role in Spider-Man: Homecoming Almost Went to 1 Major Disney Legend
+
+Movies, Spider-Man: Homecoming, michael keaton
+
+Mon, 13 Jul 2026 16:14:16 GMT
+
+https://www.cbr.com/michael-keaton-vulture-spider-man-homecoming-almost-cast-lin-manuel-miranda/
+
+This would've killed Tom Holland's Spider-Man franchise before it ever got going.
+---------
+
+# Paramount Officially Confirms Reboot of Iconic 42-Year-Old Horror Franchise
+
+Movies, Nightmare on Elm Street, paramount pictures
+
+Mon, 13 Jul 2026 16:13:20 GMT
+
+https://www.cbr.com/nightmare-on-elm-street-reboot-paramount/
+
+An iconic horror movie franchise is getting rebooted at Paramount.
+---------
+
+# Batman Finally Faces a Long-Overdue Villain Return
+
+Comics, Batman, DC Comics
+
+Mon, 13 Jul 2026 16:00:11 GMT
+
+https://www.cbr.com/justice-league-knight-vision-prometheus-batman-lex-luthor/
+
+This fan-favorite Batman villain is likely to need some Justice League level reinforcements.
+---------
+
+# McCoy's Cantina Scene in Star Trek III Changed the Franchise Forever
+
+Movies, Star Trek, Star Trek: The Original Series, Star Trek III: The Search for Spock
+
+Mon, 13 Jul 2026 16:00:11 GMT
+
+https://www.cbr.com/star-trek-iii-search-for-spock-mccoy-cantina-scene-changed-franchise/
+
+One fantastic scene in the Star Trek movies with The Original Series Cast focused on Doctor McCoy opened up the universe in a new way.
+---------
+
+# Paramount-WBD Merger Faces Major Antitrust Action in the U.S.
+
+TV, paramount pictures, warner bros
+
+Mon, 13 Jul 2026 15:55:48 GMT
+
+https://www.cbr.com/paramount-wbd-merger-antitrust-action-state-attorneys-general/
+
+The upcoming merger isn't going as smoothly as Paramount hoped.
+---------
+
+# Pokémon Officially Cracks Down on TCG Scalpers
+
+Games, Pokemon TCG, Pokemon
+
+Mon, 13 Jul 2026 15:45:11 GMT
+
+https://www.cbr.com/pokemon-tcg-officially-clamps-down-scalpers/
+
+The Pokémon Company has announced a new measure to clamp down on scalpers who are instantly buying up fresh Pokémon Trading Card Game cards.
+---------
+
+# Spider-Man: Brand New Day Producer Compares Sadie Sink's Mystery Character to No Way Home's 'Worst-Kept Secret'
+
+Movies, Spider-Man: Brand New Day
+
+Mon, 13 Jul 2026 15:44:29 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-sadie-sink-mystery-no-way-home-worst-kept-secret/
+
+Spider-Man fans may actually be on to something regarding who Sadie Sink is playing in Brand New Day.
+---------
+
+# Hello Kitty Finally Says Goodbye With New Limited-Edition Seiko Watch
+
+Anime, Hello Kitty, sanrio, merchandise
+
+Mon, 13 Jul 2026 15:30:11 GMT
+
+https://www.cbr.com/hello-kitty-shinkansen-seiko-watch-release/
+
+Seiko's newest and most elegant Hello Kitty watch commemorates both the Sanrio mascot and the closing of her iconic shinkansen train in 2026.
+---------
+
+# Apple TV’s 750-Day Streaming Hit Is Officially One of Its Best Shows
+
+TV News, Shrinking, Apple TV, Streaming, Comedy
+
+Mon, 13 Jul 2026 16:45:12 GMT
+
+https://collider.com/shrinking-streaming-milestone-750-days-apple-tv-july-2026/
+
+Shrinking has crossed a massive milestone on Apple TV following an impressive set of Emmy nominations for Season 3.
+---------
+
+# Guy Ritchie’s British Crime Sensation Quietly Returns As #1 Late-Night Favorite
+
+Movie News, Sherlock Holmes, Guy Ritchie, Robert Downey Jr, Jude Law
+
+Mon, 13 Jul 2026 16:30:12 GMT
+
+https://collider.com/guy-ritchie-sherlock-holmes-streaming-success-july-2026/
+
+Guy Ritchie's most famous British crime drama has quietly made a comeback as a #1 late-night fan-favorite on streaming charts.
+---------
+
+# Netflix Officially Replaces ‘Squid Game’
+
+TV News, Monopoly, Netflix, Reality, Squid Game: The Challenge
+
+Mon, 13 Jul 2026 16:27:33 GMT
+
+https://collider.com/netflix-monopoly-competition-series-casting-prize/
+
+Netflix has announced a new Monopoly competition series from Studio Lambert & Hasbro Entertainment, with casting now open and a 2027 premiere planned.
+---------
+
+# Taylor Sheridan’s Biggest Missing ‘Yellowstone’ Spin-Off ‘6666’ Just Got a Rare Update
+
+TV Features, Taylor Sheridan, Paramount Plus, Yellowstone, Western
+
+Mon, 13 Jul 2026 16:23:54 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-spinoff-6666-jefferson-white-update/
+
+Jefferson White shares a rare update on Taylor Sheridan's long-delayed 6666 spinoff, revealing whether the Yellowstone series is still moving forward.
+---------
+
+# Zendaya's Twisted New Release Is Already One of the Biggest Movies on Streaming
+
+Movie News, Zendaya, Robert Pattinson, The Drama, The Odyssey
+
+Mon, 13 Jul 2026 16:16:11 GMT
+
+https://collider.com/zendaya-robert-pattinson-the-drama-streaming-success-amazon-prime-july-2026/
+
+Before Spider-Man: Brand New Day arrives, Zendaya's psychological thriller The Drama has quickly become a streaming hit.
+---------
+
+# 'A Nightmare on Elm Street' Is Officially Back From the Dead With New Movie
+
+Movie News, A Nightmare on Elm Street, Horror, Paramount, Wes Craven
+
+Mon, 13 Jul 2026 16:09:21 GMT
+
+https://collider.com/nightmare-on-elm-street-new-movie-paramount-primal-wes-craven/
+
+Paramount has landed U.S. theatrical rights for a new A Nightmare on Elm Street movie, launching its new genre label Paramount Primal.
+---------
+
+# ’Spider-Noir’s Nicolas Cage Officially Returns to New York Comic Con This October [Exclusive]
+
+TV News, Nicolas Cage, New York Comic Con, Spider-Noir, Longlegs
+
+Mon, 13 Jul 2026 16:00:12 GMT
+
+https://collider.com/nicolas-cage-new-york-comic-con-spider-noir-panel-nycc-autographs-photo-ops/
+
+Spider-Noir star Nicolas Cage is officially set to attend New York Comic Con this October, with a panel and autograph opportunities.
+---------
+
+# ‘Disclosure Day’ Just Beat Denis Villeneuve’s Sci-Fi Franchise-Starter at the Box Office, but There’s a Catch
+
+Movie News, Disclosure Day, Dune, Denis Villeneuve, Steven Spielberg
+
+Mon, 13 Jul 2026 16:00:12 GMT
+
+https://collider.com/disclosure-day-overtakes-denis-villeneuve-dune-box-office/
+
+Steven Spielberg's divisive sci-fi movie Disclosure Day has overtaken Denis Villeneuve's first Dune at the box office, but there's a catch.
+---------
+
+# 'The Odyssey' Stars Explain the Intense Timing Constraints of Christopher Nolan's IMAX Epic
+
+Exclusives, The Odyssey, Lupita Nyong'o, Himesh Patel, Christopher Nolan
+
+Mon, 13 Jul 2026 15:50:51 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-lupita-nyongo-himesh-patel-interview/
+
+The Odyssey stars Lupita Nyong'o and Himesh Patel break down Christopher Nolan's directing style and filming on IMAX.
+---------
+
+# Keanu Reeves' $1.7 Billion Sci-Fi Masterpiece Is Free To Watch
+
+Movie News, The Matrix, Keanu Reeves, The Matrix 5, Sci-Fi
+
+Mon, 13 Jul 2026 15:45:12 GMT
+
+https://collider.com/keanu-reeves-the-matrix-free-streaming-success-pluto-tv-july-2026/
+
+The Matrix, starring Keanu Reeves, Laurence Fishburne and Carrie-Anne Moss, is reigning on free streaming. Find out more here.
+---------
+
+# Lord of the Rings Director Praises Viggo Mortensen Replacement "He's Fantastic"
+
+Movie News, The Lord of the Rings: The Hunt for Gollum, Jamie Dornan, Andy Serkis
+
+Mon, 13 Jul 2026 16:51:09 GMT
+
+https://movieweb.com/lord-of-the-rings-hunt-gollum-jamie-dornan-aragorn-fantastic/
+
+'The Hunt for Gollum' director heaped massive praise upon the new star taking over the role of Aragorn from Viggo Mortensen.
+---------
+
+# Netflix Remake of 195-Year-Old Historical Epic Masterpiece Confirms New Title
+
+Movie News, Hunchback of Notre Dame, The Hunchback of Notre Dame, Netflix
+
+Mon, 13 Jul 2026 16:15:31 GMT
+
+https://movieweb.com/hunchback-of-notre-dame-netflix-remake-title/
+
+Netflix has confirmed the official title for its highly anticipated remake of 'The Hunchback of Notre-Dame' ahead of the movie's release this fall.
+---------
+
+# Taylor Sheridan's Best Action Thriller Is One of the Biggest Shows on Streaming
+
+TV News, Lioness, Paramount Plus, Hot on Streaming, Taylor Sheridan, Action
+
+Mon, 13 Jul 2026 16:00:16 GMT
+
+https://movieweb.com/taylor-sheridan-lioness-action-stream-paramount-july-2026/
+
+Taylor Sheridan's action thriller series 'Spec Ops: Lioness' is a major streaming hit on Paramount+ ahead of Season 3's release.
+---------
+
+# 16 of the Greatest Summer Comedies Ever
+
+Movie Lists
+
+Mon, 13 Jul 2026 16:00:16 GMT
+
+https://movieweb.com/best-summer-comedy-movies/
+
+Grab your swimsuit or trunks, lather on the sunscreen, and get ready, we're revisiting some of film history's most classic summer comedies.
+---------
+
+# AMC's 'Anne Rice's Mayfair Witches' Season 3 Teaser Confirms Release Window
+
+TV Trailers, Mayfair Witches, AMC+, Horror
+
+Mon, 13 Jul 2026 15:54:14 GMT
+
+https://movieweb.com/mayfair-witches-season-3-release-window/
+
+AMC may have canceled 'Talamasca: The Secret Order,' but the next season of 'Mayfair Witches' is on the way.
+---------
+
+# The Best Stephen King Movie in Decades Is Officially the #1 New Streaming Smash Hit
+
+Movie News, The Long Walk, Hot on Streaming, Stephen King, Horror, Thriller, HBO Max
+
+Mon, 13 Jul 2026 15:15:16 GMT
+
+https://movieweb.com/the-long-walk-streaming-hit-hbo-max-july-2026/
+
+Stephen King fans know this was worth waiting decades for.
+---------
+
+# 'Scrubs' Revival Season 2: Confirmation, Release Window, & Everything We Know
+
+Features, Scrubs
+
+Mon, 13 Jul 2026 15:00:16 GMT
+
+https://movieweb.com/scrubs-season-2-everything-we-know/
+
+The beloved medical sitcom is already gearing up for another comeback.
+---------
+
+# 'Law & Order: SVU' Icon Offers Major Update on Season 28 Return
+
+TV News, Law & Order: Special Victims Unit, Ice-T
+
+Mon, 13 Jul 2026 14:58:06 GMT
+
+https://movieweb.com/law-and-order-svu-ice-t-season-28-role/
+
+One of the biggest stars from 'Law & Order: SVU' is expected to play a much bigger role in the show's 28th season.
+---------
+
+# Mike Flanagan Reboots Stephen King Classic in First Look at New Amazon Series
+
+TV News, Stephen King, Mike Flanagan, Carrie
+
+Mon, 13 Jul 2026 14:56:22 GMT
+
+https://movieweb.com/mike-flanagan-stephen-king-carrie-prime-video-first-look/
+
+Horror maestro Mike Flanagan takes on 'Carrie' in the first look at the upcoming Prime Video streaming adaptation.
+---------
+
+# Sacha Baron Cohen Revives Ali G for Surprise Wimbledon Appearance
+
+Movie News, Sacha Baron Cohen, Ali G Indahouse, Comedy
+
+Mon, 13 Jul 2026 14:51:08 GMT
+
+https://movieweb.com/sacha-baron-cohen-wimbledon-2026/
+
+The rumors that Sacha Baron Cohen is reviving this classic character for the screen are looking more believable by the moment.
+---------
+
 # Spider-Man’s New MCU Trilogy Plans Addressed By Producer Ahead Of Brand New Day
 
 Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
