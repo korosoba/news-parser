@@ -1,3 +1,212 @@
+# Every Death In Evil Dead Burn, Ranked By Brutality
+
+Movies, Evil Dead Burn, Evil Dead
+
+Mon, 13 Jul 2026 23:43:25 GMT
+
+https://screenrant.com/evil-dead-burn-deaths-ranked-brutality/
+
+From Deadite decapitations to skull-crushing finales, here's every death in Evil Dead Burn ranked from plain nasty to absolutely horrifying.
+---------
+
+# HBO’s Record-Breaking 5-Part Comedy Has One Of The Best Casts
+
+Streaming TV, Masked Recs
+
+Mon, 13 Jul 2026 23:30:17 GMT
+
+https://screenrant.com/hacks-most-emmy-nominations-comedy-final-season-best/
+
+This hit comedy series broke nomination records ahead of the 2026 Emmys, and it owes much of its success to its truly standout cast members.
+---------
+
+# 7 X-Men Stories That Are Considered Flawless
+
+Comics, X-Men
+
+Mon, 13 Jul 2026 23:30:17 GMT
+
+https://screenrant.com/xmen-comic-arcs-considered-masterpieces/
+
+With sixty years of diverse and ingenious storylines, these seven X-Men stories are the franchise's magnum opus.
+---------
+
+# 5 Most Iconic Anime Cyborgs
+
+Anime
+
+Mon, 13 Jul 2026 23:03:33 GMT
+
+https://screenrant.com/most-iconic-anime-cyborgs/
+
+Anime is no stranger to fascinating cybernetically enhanced individuals, and these 5 may just be the most famous in the medium.
+---------
+
+# The Five Star Weekend's 5 Main Characters Ranked
+
+Streaming TV, The Five-Star Weekend, The Five-Star Weekend - Season 1
+
+Mon, 13 Jul 2026 23:00:18 GMT
+
+https://screenrant.com/the-five-star-weekend-characters-arc-ranked/
+
+Discover how the five main characters — Hollis, Tatum, Dru-Ann, Brooke, and Gigi — of The Five Star Weekend rank in terms of season 1 arcs.
+---------
+
+# Dungeons & Dragons Meets Zelda In Epic New RPG
+
+Gaming, Dungeons and Dragons, The Legend of Zelda
+
+Mon, 13 Jul 2026 23:00:18 GMT
+
+https://screenrant.com/dungeons-dragons-meets-zelda-twlight-princess-new-rpg/
+
+Whether you're a fan of Dungeons & Dragons, The Legend of Zelda, or both, there's a new RPG to check out that mixes the best of both worlds.
+---------
+
+# How Steven Spielberg Invented The Most Profitable MPAA Rating
+
+Movies, Steven Spielberg, Gremlins, Indiana Jones and the Temple of Doom
+
+Mon, 13 Jul 2026 23:00:18 GMT
+
+https://screenrant.com/steven-spielberg-pg-13-rating-invented/
+
+Two graphic Spielberg flicks shocked parents in the 1980s and highlighted the void between PG and R ratings, spurring the invention of PG-13.
+---------
+
+# Superman Villain Gets DC's Most Hardcore Redesign Since Doomsday
+
+DC Comics, Superman
+
+Mon, 13 Jul 2026 22:56:17 GMT
+
+https://screenrant.com/superman-villain-kryl-ux-new-redesign-pictures/
+
+One of Superman’s most underrated villains has debuted a new look that is beyond epic and is so hardcore that it rivals Doomsday’s own.
+---------
+
+# 10 Greatest Jurassic Park Games, Ranked
+
+Games, Jurassic Park, Video Games
+
+Mon, 13 Jul 2026 23:15:11 GMT
+
+https://www.cbr.com/best-jurassic-park-video-games-sam-neill/
+
+Jurassic Park games like Jurassic Park: Rampage Edition capture the magic of the classic movies.
+---------
+
+# Hotel Transylvania 5 Just Got a Huge Update 4 Years After Last Movie
+
+Movies, Hotel Transylvania 5, Hotel Transylvania
+
+Mon, 13 Jul 2026 23:00:27 GMT
+
+https://www.cbr.com/hotel-transylvania-5-update-release-date/
+
+Big news is revealed for the future of the Hotel Transylvania franchise.
+---------
+
+# From's First 10 Minutes Just Became Required Viewing Before Season 5
+
+TV, From, MGM+
+
+Mon, 13 Jul 2026 23:00:12 GMT
+
+https://www.cbr.com/from-first-episode-required-viewing-before-final-season-5-theory/
+
+Over four seasons, critically-acclaimed sci-fi horror series From has posed many mysteries, but might have answered its biggest question already.
+---------
+
+# 5 Masterpiece Fantasy Movies With the Best Battle Scenes
+
+Movies, Fantasy
+
+Mon, 13 Jul 2026 23:00:12 GMT
+
+https://www.cbr.com/best-battles-in-perfect-fantasy-movies-list/
+
+The third act almost always focuses on a massive battle sequence and these fantasy movies boast some of the best in cinema.
+---------
+
+# Dragon Ball Says Goodbye With Akira Toriyama's Final Goku Design
+
+Anime, Dragon Ball
+
+Mon, 13 Jul 2026 23:00:12 GMT
+
+https://www.cbr.com/dragon-ball-xenoverse-2-final-manga-volume-goku-outfit/
+
+Dragon Ball sends a heartfelt farewell to its most enduring video game of the decade with a bittersweet homage to Goku's last design in the manga.
+---------
+
+# DC Comics Reveals New Rules That Ban Shops Over Price Gouging
+
+Comics, DC Comics, DCU
+
+Mon, 13 Jul 2026 22:55:38 GMT
+
+https://www.cbr.com/dc-comics-will-ban-shops-over-price-gouging/
+
+DC Comics dropped the hammer on price gouging — fans are ecstatic, but some shops aren't.
+---------
+
+# ‘Avengers: Doomsday’ Is Officially the Second Longest MCU Movie Ever
+
+Movie News, Avengers: Doomsday (2026), Marvel, MCU, Robert Downey Jr
+
+Mon, 13 Jul 2026 23:33:10 GMT
+
+https://collider.com/avengers-doomsday-runtime-confirmed-second-longest-mcu-movie/
+
+Avengers: Doomsday’s runtime has been revealed ahead of ticket sales, with the Marvel epic clocking in as the second-longest MCU movie.
+---------
+
+# It’s the End of an Era for Netflix’s ‘Bosch’ Replacement
+
+TV News, The Lincoln Lawyer, Netflix, Bosch
+
+Mon, 13 Jul 2026 23:00:12 GMT
+
+https://collider.com/the-lincoln-lawyer-season-5-filming-wrapped/
+
+The Lincoln Lawyer Season 5, inspired by Michael Connelly's novel Resurrection Walk, just got a fantastic filming update. Find out more here.
+---------
+
+# 'House of the Dragon' Officially Confirms Its Biggest Book Change To Date
+
+TV Features, House of the Dragon, HBO Max, George R.R. Martin, HBO
+
+Mon, 13 Jul 2026 22:52:12 GMT
+
+https://collider.com/house-of-the-dragon-season-3-helaena-pregnant-maelor-book-change/
+
+House of the Dragon's latest twist with Helaena's unexpected pregnancy takes the series off-book and raises questions about the storyline's direction.
+---------
+
+# New 'Avengers: Doomsday' Runtime Report Confirms Big 'Endgame' Downgrade
+
+Movie News, Avengers: Doomsday
+
+Mon, 13 Jul 2026 23:23:47 GMT
+
+https://movieweb.com/avengers-doomsday-runtime-report/
+
+The latest update on the runtime for 'Avengers: Doomsday' could be a bit of a letdown after what fans saw in 'Avengers: Endgame.'
+---------
+
+# Netflix Finds 'Squid Game' Replacement Series With $2 Million Prize
+
+TV News, Netflix, Squid Game, Monopoly
+
+Mon, 13 Jul 2026 23:09:37 GMT
+
+https://movieweb.com/monopoly-competition-series-netflix/
+
+Netflix's latest reality series 'Monopoly' comes from the creative team behind 'Squid Game: The Competition.'
+---------
+
 # Avengers: Doomsday Runtime & Ticket Sale Date Officially Revealed
 
 Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
