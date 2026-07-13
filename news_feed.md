@@ -1,3 +1,245 @@
+# Avengers: Doomsday Runtime & Ticket Sale Date Officially Revealed
+
+Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Mon, 13 Jul 2026 22:37:39 GMT
+
+https://screenrant.com/avengers-doomsday-runtime-ticket-sale-date-confirmed/
+
+Marvel Studios' Avengers: Doomsday is less than half a year away from release, as its runtime and ticket sale date have finally been announced.
+---------
+
+# Timothy Olyphant's Upcoming Crime Thriller Is Ozark Meets Killing Eve
+
+Streaming TV, Masked Recs
+
+Mon, 13 Jul 2026 22:30:18 GMT
+
+https://screenrant.com/lucky-apple-tv-ozark-meets-killing-eve/
+
+TV icon Timothy Olyphant's highly anticipated Apple TV crime thriller takes the best parts of other hits in the genre, Ozark and Killing Eve.
+---------
+
+# Evil Dead Burn Has 2 Credits Scenes, But Only 1 Matters (And It Breaks Franchise Rules)
+
+Movies, Evil Dead, Evil Dead Burn
+
+Mon, 13 Jul 2026 22:28:43 GMT
+
+https://screenrant.com/evil-dead-burn-post-credits-scenes/
+
+Evil Dead Burn's shocking post-credits scene brings back a truly iconic Deadite, but the twist completely breaks the franchise's own rules.
+---------
+
+# Marvel's New Movie Is Thanos' Perfect MCU Return
+
+Movies, Masked Recs
+
+Mon, 13 Jul 2026 22:23:29 GMT
+
+https://screenrant.com/mcu-nova-movie-thanos-marvel-return-michael-waldron/
+
+Marvel Studios' newly revealed movie is the perfect project for Josh Brolin's Thanos to finally return in, and it is not one of the Avengers movies.
+---------
+
+# The Westies Episode 1's Shocking Ending & Aftermath Explained By JK Simmons & Tom Brittney
+
+TV, The Westies, The Westies - Season 1
+
+Mon, 13 Jul 2026 22:10:37 GMT
+
+https://screenrant.com/the-westies-episode-1-ending-explanation-jk-simmons-tom-brittney/
+
+Exclusive: J.K. Simmons and Tom Brittney explain The Westies episode 1's shocking ending, its aftermath, and what it means for Sweeney and Jimmy.
+---------
+
+# Reacher Officially Returns In 1 Month
+
+Streaming TV, Reacher
+
+Mon, 13 Jul 2026 22:00:17 GMT
+
+https://screenrant.com/reacher-season-4-release-prime-video-one-month/
+
+Reacher has taken Prime Video by storm, quickly becoming the platform's flagship action show. After three great seasons, the fourth arrives in August.
+---------
+
+# Squid Game Meets The Last of Us in New Sci-Fi Thriller
+
+Books, Masked Recs
+
+Mon, 13 Jul 2026 22:00:17 GMT
+
+https://screenrant.com/new-sci-fi-novel-mrbeast-most-dangerous-games/
+
+"100 players. $1 billion. ARE YOU THE ONE?"
+---------
+
+# 28 Years Later, Sam Neill's Best Line In Event Horizon Is Still The Scariest Quote In Sci-Fi Movie History
+
+Movies, Event Horizon, Sam Neill
+
+Mon, 13 Jul 2026 21:50:17 GMT
+
+https://screenrant.com/event-horizon-movie-sam-neill-quote-scifi-movie/
+
+Sam Neill's Dr Weir is an unforgettable character in Event Horizon with some chilling quotes that will stick with you long after the credits.
+---------
+
+# Solo Leveling Confirms the New Movie Is Canon to Jinwoo's Manhwa Storyline
+
+Anime, Solo Leveling
+
+Mon, 13 Jul 2026 22:29:11 GMT
+
+https://www.cbr.com/solo-leveling-beyond-the-system-movie-double-dungeon-arc-confirmation/
+
+A new update for Solo Leveling’s upcoming movie, Beyond the System, confirms the film won’t be anime-only filler: it covers the manhwa’s next arcs.
+---------
+
+# Netflix's Best Fantasy Anime Officially Beats Game of Thrones At Its Own Game
+
+Anime, Frieren: Beyond Journey's End, Game Of Thrones, Fantasy, Netflix
+
+Mon, 13 Jul 2026 22:15:11 GMT
+
+https://www.cbr.com/netflix-fantasy-anime-beats-game-of-thrones-at-own-game/
+
+Game of Thrones brought fantasy TV to new heights, but Frieren: Beyond Journey's End soars even higher.
+---------
+
+# The Hobbit’s Full Story Is Officially Coming to Magic: The Gathering
+
+Games, Magic: The Gathering, The Hobbit, The Lord of the Rings
+
+Mon, 13 Jul 2026 22:10:12 GMT
+
+https://www.cbr.com/magic-the-gathering-hobbit-set-lord-of-the-rings-changes/
+
+Wizards of the Coast is releasing a Magic: The Gathering crossover with The Hobbit, and it's doing something that the Lord of the Rings set couldn't.
+---------
+
+# Don Heck's Original Iron Man Art Shatters Records at Auction
+
+Comics, Iron Man
+
+Mon, 13 Jul 2026 22:00:11 GMT
+
+https://www.cbr.com/don-heck-iron-man-original-artwork-heritage-auctions/
+
+A rare Don Heck gem featuring Iron Man artwork is shattering record highs for auction prices.
+---------
+
+# Tom Holland's $3.9B Action Franchise Is Dominating Disney+ U.S. Charts Ahead of His 'Favorite' Sequel
+
+Movies, Spider-Man
+
+Mon, 13 Jul 2026 22:00:11 GMT
+
+https://www.cbr.com/tom-holland-spider-man-franchise-disney-plus-success-july-2026/
+
+Tom Holland is unstoppable this summer.
+---------
+
+# The Empire Strikes Back Had Han Solo's Best Star Wars Quote
+
+Movies, Star Wars, Star Wars: Episode V - The Empire Strikes Back, Han Solo
+
+Mon, 13 Jul 2026 22:00:11 GMT
+
+https://www.cbr.com/star-wars-empire-strikes-back-han-solo-best-star-wars-quote/
+
+One of the most iconic lines from Han Solo in the Star Wars trilogy seems like an almost throwaway moment, but it was a painstakingly nuanced scene.
+---------
+
+# 'The Boys' Officially Has a New Main Character After Homelander's Brutal Ending
+
+TV Features, The Boys, Vought Rising, Prime Video, Jensen Ackles
+
+Mon, 13 Jul 2026 22:41:12 GMT
+
+https://collider.com/the-boys-new-main-character-soldier-boy-vought-rising/
+
+The Boys' next spinoff, Vought Rising, will be led by a character perfectly positioned to step into Homelander's role as the franchise's new lead.
+---------
+
+# 3 Stellar Movies You Need To Stream on Prime Video This Week (July 13-17)
+
+Movie, Prime Video, 65, How to Lose A Guy In 10 Days, Gladiator
+
+Mon, 13 Jul 2026 22:34:11 GMT
+
+https://collider.com/best-movies-prime-video-july-13-2026/
+
+How to Lose a Guy in 10 Days, Gladiator, and 65 make up our list of the best Prime Video movies to stream the week of July 13, 2026.
+---------
+
+# 10 Psychological Thrillers That Are Perfect From the First Scene to the Last
+
+Movie, Thriller, Rosemary's Baby, Parasite, Rear Window
+
+Mon, 13 Jul 2026 22:15:12 GMT
+
+https://collider.com/psychological-thriller-movies-perfect-first-scene-to-last/
+
+Cinema has given us many incredible psychological thrillers, but some, like Oldboy, Rear Window, and Whiplash, stand out for being perfect throughout.
+---------
+
+# The First Billion-Dollar Biopic Is Officially Here
+
+Movie News, Michael, Box Office, Biopic
+
+Mon, 13 Jul 2026 22:00:11 GMT
+
+https://collider.com/michael-jackson-biopic-box-office-history-1-billion/
+
+Lionsgate's Michael starring Jaafar Jackson as Michael Jackson becomes the first biopic to surpass $1 billion at the global box office.
+---------
+
+# The Addictive Action Thriller on HBO Max That Makes John Wick Seem Small
+
+Movie Features, John Wick, The Equalizer, Denzel Washington, HBO Max
+
+Mon, 13 Jul 2026 21:53:11 GMT
+
+https://collider.com/hbo-max-the-equalizer-trilogy-denzel-washington-better-than-john-wick/
+
+John Wick might be all the rage, but the Equalizer trilogy trumps it with its bold, brutal apporach to the action thriller genre.
+---------
+
+# Sony Officially Reviving $1.4B Supernatural Family Adventure Franchise
+
+Movie News, Hotel Transylvania, Hotel Transylvania 5
+
+Mon, 13 Jul 2026 22:39:32 GMT
+
+https://movieweb.com/hotel-transylvania-5-confirmed-sony-pictures/
+
+Sony is set to add another chapter to one of its most successful family adventure franchises of the last 20 years.
+---------
+
+# Pedro Pascal Leads First Look at 'Andor' Creator's Long-Awaited Movie Return
+
+Movie News, Tony Gilroy, Pedro Pascal
+
+Mon, 13 Jul 2026 22:23:48 GMT
+
+https://movieweb.com/pedro-pascal-tony-gilroy-behemoth-first-look/
+
+New details on the mysterious film from the showrunner behind the critically acclaimed 'Andor' have finally been revealed.
+---------
+
+# Every 'NCIS' Series, Ranked
+
+TV Lists, NCIS, NCIS: Los Angeles
+
+Mon, 13 Jul 2026 22:00:15 GMT
+
+https://movieweb.com/every-ncis-show-ranked/
+
+'NCIS,' the police procedural TV series, has many spin-off shows, including 'NCIS: Origins' and 'NCIS: Los Angeles.'
+---------
+
 # The Wildest Medical Drama Of The 21st Century Makes The Pitt Look Tame
 
 Classic TV, Masked Recs
