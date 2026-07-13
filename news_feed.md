@@ -1,3 +1,278 @@
+# Jason Statham’s $398M Jurassic Park Rival Is Quickly Climbing Netflix’s Global Streaming Charts
+
+Movies, Masked Recs
+
+Mon, 13 Jul 2026 20:39:48 GMT
+
+https://screenrant.com/jason-statham-meg-2-trench-netflix-global-streaming-success-july-2026-jurassic-park/
+
+Jason Statham’s shark movie is making waves on Netflix after climbing into the streamer's worldwide Top 10 movies.
+---------
+
+# Move Over Sci-Fi, Apple TV Is Coming For Another Streaming Crown
+
+Streaming TV, Apple TV
+
+Mon, 13 Jul 2026 20:30:17 GMT
+
+https://screenrant.com/apple-tv-streaming-success-comedy-shows/
+
+Apple TV has been dominating the sci-fi genre for years (Severance, Pluribus, etc.), but the streamer shouldn't be overlooked when it comes to comedy.
+---------
+
+# How David Boreanaz's New Reboot Of Classic NBC Detective Series Will Differ From The Original
+
+TV, The Rockford Files, David Boreanaz
+
+Mon, 13 Jul 2026 20:27:32 GMT
+
+https://screenrant.com/david-boreanaz-the-rockford-files-reboot-changes-explained/
+
+Exclusive: David Boreanaz explained how NBC's The Rockford Files reboot will stand out from the original 1970s series starring James Garner.
+---------
+
+# Marvel Has A New Daredevil, And She’s A Classic Spider-Man Love Interest
+
+Marvel Comics, Daredevil
+
+Mon, 13 Jul 2026 20:19:24 GMT
+
+https://screenrant.com/mary-jane-new-daredevil-marvel/
+
+Marvel Comics' most revered love interest has been having a bit of an identity crisis lately, and a new appearance has her become another superhero.
+---------
+
+# House Of The Dragon's 2 Gnarliest Missing Dragons Finally Being Introduced By Season 4 Teased By Ryan Condal
+
+TV, House of the Dragon, Game of Thrones
+
+Mon, 13 Jul 2026 20:16:55 GMT
+
+https://screenrant.com/house-of-the-dragon-grey-ghost-cannibal-introductions-ryan-condal/
+
+Showrunner Ryan Condal hints at House of the Dragon's two biggest missing dragons from George R.R. Martin's Fire & Blood book finally appearing.
+---------
+
+# Stranger Things' Scripts Can Settle Many Season 5 Controversies
+
+Streaming TV, Masked Recs
+
+Mon, 13 Jul 2026 20:16:16 GMT
+
+https://screenrant.com/stranger-things-season-5-scripts-compendium-story-controversial/
+
+Stranger Things is officially returning a lot sooner than expected, but with a twist that can completely change how you see the final season.
+---------
+
+# Prime Video's 8-Part TV-14 Superhero Show Is The Complete Opposite Of The Boys
+
+TV, Masked Recs
+
+Mon, 13 Jul 2026 20:05:17 GMT
+
+https://screenrant.com/spider-noir-opposite-the-boys-prime-video/
+
+A surprising, subversive twist on the dark deconstruction of the genre seen in The Boys, Prime Video's new edgy superhero show is unexpectedly fun.
+---------
+
+# Game of Thrones: Kingsroad Season 1 Officially Starts July 15
+
+Games, Game Of Thrones
+
+Mon, 13 Jul 2026 20:45:11 GMT
+
+https://www.cbr.com/game-of-thrones-kingsroad-season-1-offically-starts-july-15/
+
+A new season of Game of Thrones begins in two days, and more fans of Westeros need to be ready.
+---------
+
+# HBO's 12-Episode Steampunk Show Is a Stealth Masterpiece for Sci-Fi Fans
+
+TV, The Nevers, Sci-Fi, hbo
+
+Mon, 13 Jul 2026 20:30:11 GMT
+
+https://www.cbr.com/hbo-the-nevers-steampunk-sci-fi-reappraisal/
+
+HBO's forgotten steampunk sci-fi show, The Nevers, didn't get the conclusion it deserved, but it's a stellar piece of television that's full of life.
+---------
+
+# 5 Greatest Fantasy Book Trilogies of the 21st Century, Ranked
+
+Movies, Fantasy
+
+Mon, 13 Jul 2026 20:30:11 GMT
+
+https://www.cbr.com/best-fantasy-book-trilogies-21st-century-ranked-list/
+
+Fantasy has found new relevance in the 21st century and there are some outstanding trilogies that all fans must read.
+---------
+
+# Every Marine Admiral in One Piece, Ranked (By Strength)
+
+Anime, One Piece
+
+Mon, 13 Jul 2026 20:15:11 GMT
+
+https://www.cbr.com/one-piece-admirals-ranked-by-strength/
+
+The Marine Admirals are one of the strongest factions in all of One Piece, but the likes of Akainu, Aokiji, and Fujitora are far from being equal.
+---------
+
+# Andy Serkis Defends Animal Farm Adaptation After Bombing in Theaters: 'A Very Strange Outing'
+
+Movies, Animal Farm, andy serkis
+
+Mon, 13 Jul 2026 20:10:42 GMT
+
+https://www.cbr.com/andy-serkis-defends-animal-farm/
+
+The film drew criticism from all sides of the barnhouse aisles.
+---------
+
+# Avatar: The Last Airbender Officially Ends Suki's Story in 48 Hours
+
+Anime, Avatar: The Last Airbender, Dark Horse Comics
+
+Mon, 13 Jul 2026 20:09:23 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-kyoshi-warriors-volume-3-release/
+
+One of the most unexpected Avatar: The Last Airbender series is approaching its final chapter, with less than 2 days left before its official release.
+---------
+
+# Anya Taylor-Joy’s 127-Minute Sci-Fi Horror Climbs the Charts on Apple TV 1 Year Later
+
+Movies, The Gorge, Sci-Fi, Apple TV
+
+Mon, 13 Jul 2026 20:00:11 GMT
+
+https://www.cbr.com/anya-taylor-joy-the-gorge-apple-tv-streaming-success-july-2026/
+
+Apple TV's unexpected sci-fi horror hit starring Anya Taylor-Joy and Miles Teller is tearing through the streaming competition all over again.
+---------
+
+# Marvel Drops a Scarlet Witch Twist Nobody Saw Coming
+
+Comics, Scarlet Witch
+
+Mon, 13 Jul 2026 20:00:11 GMT
+
+https://www.cbr.com/sorcerer-supreme-8-scarlet-witch-adopted-child-weapon-of-extinction/
+
+Marvel Comics' latest Sorcerer Supreme just introduced a whole new character who might just alter the trajectory of the Scarlet Witch forever.
+---------
+
+# 10 Most Important Movie Sequels of All Time
+
+Movie, Terminator 2: Judgment Day, The Godfather Part II, The Empire Strikes Back, Aliens
+
+Mon, 13 Jul 2026 20:48:12 GMT
+
+https://collider.com/most-important-movie-sequels-all-time-ranked/
+
+Sequels like The Godfather Part II, The Empire Strikes Back, and Bride of Frankenstein are all among the most important in cinema history.
+---------
+
+# 3 Fantastic Shows to Binge on Netflix This Week
+
+TV, Heroes, Better Call Saul, Running Point, Netflix
+
+Mon, 13 Jul 2026 20:47:11 GMT
+
+https://collider.com/netflix-shows-binge-july-13/
+
+Better Call Saul, Heroes, and Running Point make up our list of the best Netflix shows to watch the week of July 13, 2026.
+---------
+
+# Former PlayStation Boss Confirms 2028 Is the End of an Era
+
+Gaming News, PlayStation Plus, PlayStation (Original), Sony, Gaming
+
+Mon, 13 Jul 2026 20:31:12 GMT
+
+https://collider.com/playstation-ending-physical-games-shawn-layden-reaction/
+
+Former PlayStation boss Shawn Layden reacts to Sony ending physical game discs for new PlayStation releases beginning in January 2028.
+---------
+
+# After ‘Jurassic Park,’ Sam Neill Set the Bar for This Underseen 3-Part Apple TV Sci-Fi Series
+
+TV Features, Sam Neill, Jurassic Park, Invasion, Apple TV
+
+Mon, 13 Jul 2026 20:23:12 GMT
+
+https://collider.com/sam-neill-apple-tv-invasion-best-sci-fi-role-after-jurassic-park-replacement/
+
+The late, great Sam Neill delivered an incredible performance in Apple TV's Invasion, which took a grounded approach to first contact.
+---------
+
+# ‘Loki’ Creator Returns to Marvel for New Movie
+
+Movie News, Michael Waldron, Avengers: Doomsday, Loki, MCU
+
+Mon, 13 Jul 2026 20:17:26 GMT
+
+https://collider.com/marvel-nova-movie-michael-waldron/
+
+Avengers: Doomsday writer Michael Waldron is developing a Nova movie at Marvel Studios after the cosmic project was previously planned as a series.
+---------
+
+# 10 Classic Anime Where Every Episode Is a Masterpiece
+
+TV, Anime, Samurai Champloo, Paranoia Agent, Cowboy Bebop
+
+Mon, 13 Jul 2026 20:05:12 GMT
+
+https://collider.com/anime-classics-every-episode-masterpiece/
+
+From Paranoia Agent to Cowboy Bebop, these incredible anime have become true classics in the medium, producing proper masterpieces with every episode.
+---------
+
+# 'Obsession' Officially Becomes the Highest-Grossing Original Horror Movie of the Century
+
+Movie News, Obsession, Horror, Curry Barker, Box Office
+
+Mon, 13 Jul 2026 20:01:12 GMT
+
+https://collider.com/obsession-highest-grossing-original-horror-426-million-box-office/
+
+Obsession, directed by Curry Barker, has become the highest-grossing original horror movie of this century, surpassing records and earning praise.
+---------
+
+# Canceled 'Guardians of the Galaxy' Spin-Off Series Now Moving Forward as New MCU Movie
+
+Movie News, MCU, Loki, NOVA
+
+Mon, 13 Jul 2026 20:30:22 GMT
+
+https://movieweb.com/michael-waldron-nova-mcu-film/
+
+Marvel is developing a 'Nova' film from Michael Waldron, creator of 'Loki' and the co-writer of 'Avengers: Doomsday.'
+---------
+
+# Returning 'Star Trek: Discovery' Character Creates Worrying Problem for 'Strange New Worlds'
+
+Features, Star Trek: Strange New Worlds, Star Trek, Star Trek: Discovery
+
+Mon, 13 Jul 2026 20:00:16 GMT
+
+https://movieweb.com/star-trek-sarek-return-problem/
+
+James Frain is coming back before the current era of Star Trek ends, but is this the right decision? Read on for more
+---------
+
+# Zack Snyder's Divisive Action Epic Officially Dethroned by Long-Awaited Sequel at the Box Office
+
+Movie News, Toy Story 5, Batman v Superman: Dawn of Justice, Toy Story, Zack Snyder, box office
+
+Mon, 13 Jul 2026 20:00:16 GMT
+
+https://movieweb.com/toy-story-5-beats-batman-v-superman-global-box-office/
+
+One of Disney's long-running film franchises just dunked on the DCEU SnyderVerse.
+---------
+
 # Marvel’s Long-Awaited Nova Project Finally Moving Forward With Key MCU Writer
 
 Movies, Nova, Marvel Cinematic Universe
