@@ -1,3 +1,278 @@
+# Marvel’s Long-Awaited Nova Project Finally Moving Forward With Key MCU Writer
+
+Movies, Nova, Marvel Cinematic Universe
+
+Mon, 13 Jul 2026 19:54:39 GMT
+
+https://screenrant.com/nova-movie-mcu-development-confirmed-michael-waldron/
+
+Marvel's introduction of Nova into the MCU is finally getting closer as the studio hires a key franchise writer for the long-awaited project.
+---------
+
+# DC Confirms Robin Basically Has Permanent Superpowers From Now On
+
+DC Comics, Robin
+
+Mon, 13 Jul 2026 19:42:59 GMT
+
+https://screenrant.com/batman-robin-superpowers-utility-belt-gadgets/
+
+Robin's new abilities appear to be inspired by multiple Justice League heroes, whose unique superpowers Batman's sidekick may now recreate.
+---------
+
+# Marvel Cast TV's Best Villain Actor Of The 21st Century And Is Barely Using Them
+
+Streaming TV, Masked Recs
+
+Mon, 13 Jul 2026 19:30:17 GMT
+
+https://screenrant.com/mcu-cast-tony-dalton-underused-swordsman-jack-duquesne/
+
+The MCU has had a villain problem for almost as long as it has existed, but one of the recent additions appears to be the biggest injustice yet.
+---------
+
+# Christopher Nolan Gave Zendaya A Rare Director's Note On The Odyssey
+
+Movies, The Odyssey, Zendaya, John Leguizamo
+
+Mon, 13 Jul 2026 19:24:42 GMT
+
+https://screenrant.com/video/odyssey-christopher-nolan-zendaya-directors-note/
+
+The Odyssey stars Zendaya and John Leguizamo compare notes over the reactions they received from Christopher Nolan while filming.
+---------
+
+# Anson Mount Addresses Potential Star Trek Pike Return After Strange New Worlds Ending
+
+TV, Star Trek: Strange New Worlds, Star Trek, Anson Mount
+
+Mon, 13 Jul 2026 19:16:55 GMT
+
+https://screenrant.com/anson-mount-star-trek-return-after-strange-new-worlds-response/
+
+Star Trek: Strange New Worlds will be ending after five seasons, and Anson Mount is teasing whether he’ll play Pike again in the future.
+---------
+
+# Disney+'s New $1.5 Billion Space Opera Succeeds In Its Hardest Task
+
+Movies, Masked Recs
+
+Mon, 13 Jul 2026 19:16:30 GMT
+
+https://screenrant.com/disney-plus-avatar-fire-and-ash-sci-fi-franchise-box-office-success/
+
+Disney+'s new space opera proves itself as a hit sci-fi movie by succeeding in its hardest task, and it was one of the genre's most challenging.
+---------
+
+# Kingdom Hearts 4 Hype Reaches Fever Pitch For August 15 Announcement
+
+Gaming, Kingdom Hearts 4, Triple-A Games, PC
+
+Mon, 13 Jul 2026 19:04:56 GMT
+
+https://screenrant.com/kingdom-hearts-4-announcement-d23-august-speculation/
+
+Kingdom Hearts fans have been treated to radio silence for years, but an upcoming announcement could be the chance for some major reveals.
+---------
+
+# 4 Years After Gear 5, One Piece's Luffy Finally Unlocks A New Form (With One Catch)
+
+Anime, One Piece
+
+Mon, 13 Jul 2026 19:04:43 GMT
+
+https://screenrant.com/one-piece-luffy-new-form-gum-gum-genie/
+
+One Piece's King of the World has pushed Luffy to develop a new transformation that is narratively brilliant and an incredible burn against the foe.
+---------
+
+# Mortal Kombat 3 Gets Official Status Update From Director After Breaking Multiple Franchise Records
+
+Movies, Mortal Kombat, Mortal Kombat II
+
+Mon, 13 Jul 2026 19:01:49 GMT
+
+https://screenrant.com/mortal-kombat-3-status-update-simon-mcquoid/
+
+Director Simon McQuoid offers an official status update on Mortal Kombat 3 after breaking multiple franchise records with the latest film.
+---------
+
+# The Odyssey: Why Nolan’s Epic Is Dividing Fans
+
+Movies, Originals
+
+Mon, 13 Jul 2026 19:00:18 GMT
+
+https://screenrant.com/video/the-odyssey-why-nolan-s-epic-is-dividing-fans/
+
+Christopher Nolan's The Odyssey has become one of the most talked-about movies of the year—but not because anyone has actually seen it yet. Instead, much of the conversation has centered on casting choices, historical accuracy, costume design, and whether a myth over 2,000 years old even has a single "correct" interpretation.
+---------
+
+# 5 Greatest Sam Neill Movies, Ranked
+
+Movies, Sci-Fi, Jurassic Park, Event Horizon
+
+Mon, 13 Jul 2026 19:30:11 GMT
+
+https://www.cbr.com/greatest-sam-neill-movies-ranked-list/
+
+The late great Sam Neill starred in countless classics, but these 5 all-time masterpieces stand as his very best.
+---------
+
+# The Witcher 3: Legacy Officially Coming Summer 2027
+
+Games, The Witcher, The Witcher 3: Wild Hunt, Tabletop
+
+Mon, 13 Jul 2026 19:15:11 GMT
+
+https://www.cbr.com/the-witcher-3-legacy-official-new-release-summer-2027/
+
+The Witcher: Legacy is finally launching in Summer 2027, giving players the chance to experience the fall of Kaer Morhen across a massive campaign.
+---------
+
+# Netflix's New Philip K. Dick Sci-Fi Show Replaces the Best Steven Spielberg Film of the 2000s
+
+TV, Minority Report
+
+Mon, 13 Jul 2026 19:00:11 GMT
+
+https://www.cbr.com/netflixs-new-philip-k-dick-sci-fi-show-replaces-the-best-steven-spielberg-film-of-the-2000s/
+
+Netflix's The Future Is Ours challenges a sci-fi classic with a bold adaptation of Philip K. Dick's work set in a dystopian future.
+---------
+
+# 5 Essential R-Rated 80s Horror Movies That Are Still Perfect Today
+
+Movies, Horror, Evil Dead, The Thing
+
+Mon, 13 Jul 2026 19:00:11 GMT
+
+https://www.cbr.com/perfect-r-rated-80s-horror-movies-list/
+
+The 80s have endured as a golden age of American horror, having unleashed a slew of R-rated classics still terrifying today.
+---------
+
+# 10 Best Sam Neill Movies
+
+Movie, Jurassic Park, Sam Neill, The Piano, Possession
+
+Mon, 13 Jul 2026 19:42:12 GMT
+
+https://collider.com/best-sam-neill-movies-ranked/
+
+Sam Neill did a bit of everything across a remarkable acting career, including blockbusters like Jurassic Park and horror films like Possession.
+---------
+
+# Tom Holland’s Spider-Man Future Confirmed Beyond ‘Brand New Day’
+
+Movie News, Spider-Man, Spider-Man: Brand New Day, Tom Holland, MCU
+
+Mon, 13 Jul 2026 19:30:12 GMT
+
+https://collider.com/spider-man-new-trilogy-update-marvel/
+
+Spider-Man: Brand New Day producer teases new trilogy after Tom Holland, Zendaya, and Jon Bernthal hit the big screen this summer.
+---------
+
+# 'The Hunger Games' Meets Stephen King in HBO Max’s No. 1 Dystopian Thriller
+
+Movie News, The Long Walk, HBO Max, Stephen King, Thriller
+
+Mon, 13 Jul 2026 19:30:12 GMT
+
+https://collider.com/the-long-walk-streaming-success-hbo-max-july-2026/
+
+Stephen King’s The Long Walk is now the No. 1 movie on HBO Max ahead of director Francis Lawrence’s next Hunger Games film.
+---------
+
+# 3 Fan-Favorite Movies To Watch on Netflix This Week (July 13-17)
+
+Movie, Mile End Kicks, Old Henry, Minions: The Rise of Gru, Netflix
+
+Mon, 13 Jul 2026 19:19:12 GMT
+
+https://collider.com/best-netflix-movies-watch-july-13-2026/
+
+Mile End Kicks, Minions: The Rise of Gru, and Old Henry make up our list of the best movies to watch on Netflix the week of July 13, 2026.
+---------
+
+# Titus Welliver's 'The Sopranos' Replacement Is Taking Over Streaming With Just 2 Episodes
+
+TV News, Titus Welliver, J.K. Simmons, The Westies, The Departed
+
+Mon, 13 Jul 2026 19:00:12 GMT
+
+https://collider.com/the-westies-titus-welliver-sopranos-replacement-mgm-series-streaming-success/
+
+Titus Welliver's new crime drama series The Westies, which also features J.K. Simmons, has made a splashy debut on MGM+. Find out more.
+---------
+
+# Rebecca Ferguson Is Officially the Queen of Sci-Fi on Apple TV
+
+TV News, Rebecca Ferguson, Sci-Fi, Silo, Apple TV
+
+Mon, 13 Jul 2026 18:40:11 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-masterpiece-silo-apple-tv-milestone/
+
+The critically acclaimed sci-fi series Silo, starring Rebecca Ferguson, has passed a massive milestone on the Apple TV viewership chart.
+---------
+
+# New Dinosaur Thriller Director Explains if It's Quietly a 'Cloverfield' Sequel
+
+Movie News, Cloverfield, The End of Oak Street, David Robert Mitchell
+
+Mon, 13 Jul 2026 19:50:38 GMT
+
+https://movieweb.com/cloverfield-sequel-the-end-of-oak-street-connection/
+
+David Robert Mitchell has a cryptic update about his 'The End of Oak Street.'
+---------
+
+# David Boreanaz Confirms the Fate of His Beloved 12-Part Crime Series Revival
+
+TV News, Bones, Crime, David Boreanaz
+
+Mon, 13 Jul 2026 19:41:45 GMT
+
+https://movieweb.com/david-boreanaz-bones-revival/
+
+David Boreanez is willing to reprise his role, but a lot of other things would have to come together for a proper revival.
+---------
+
+# One of the Most Iconic Supernatural Thriller Franchises of All Time Is Officially Back
+
+Movie News, A Nightmare on Elm Street
+
+Mon, 13 Jul 2026 19:29:59 GMT
+
+https://movieweb.com/a-nightmare-in-elm-street-new-movie/
+
+An '80s iconic horror franchise is being revived for a new generation of audiences.
+---------
+
+# Angelina Jolie's War Thriller Adaptation With Salma Hayek Sets Release Date 2 Years Later
+
+Movie News, Without Blood, Angelina Jolie, Salma Hayek Pinault
+
+Mon, 13 Jul 2026 18:47:29 GMT
+
+https://movieweb.com/angelina-jolie-without-blood-release-date/
+
+The latest directorial effort from Angelina Jolie will soon be in theaters.
+---------
+
+# 'Avengers: Doomsday' Director Confirms MCU Is Back To "Phase Zero"
+
+Movie News, Avengers: Doomsday, Joe Russo
+
+Mon, 13 Jul 2026 18:44:52 GMT
+
+https://movieweb.com/avengers-doomsday-joe-russo-mcu-phase-zero/
+
+'Avengers: Doomsday' director Joe Russo teased a return to a tried and true formula for the MCU's next massive blockbuster.
+---------
+
 # Prime Video's Upcoming Sci-Fi Series Is Altered Carbon Meets True Detective
 
 TV, Masked Recs
