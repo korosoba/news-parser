@@ -1,3 +1,377 @@
+# Spider-Man’s New MCU Trilogy Plans Addressed By Producer Ahead Of Brand New Day
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Mon, 13 Jul 2026 14:12:40 GMT
+
+https://screenrant.com/spiderman-new-mcu-trilogy-brand-new-day-addressed-pascal/
+
+Brand New Day is the start of a new chapter for Spider-Man, and Amy Pascal is revealing whether it truly is the launch of another trilogy.
+---------
+
+# Sadie Sink’s Mysterious MCU Character Gets No Way Home-Level Tease From Brand New Day Producer
+
+Movies, Spider-Man: Brand New Day
+
+Mon, 13 Jul 2026 14:08:39 GMT
+
+https://screenrant.com/sadie-sink-mystery-mcu-character-no-way-home-comparison-pascal/
+
+Sadie Sink's role in Spider-Man: Brand New Day is a mystery, as producer Amy Pascal subtly hints at what fans can expect in a No Way Home-level tease.
+---------
+
+# One-Punch Man Finally Delivers The Saitama Vs Genos Rematch Fans Waited 11 Years For
+
+Anime, One-Punch Man
+
+Mon, 13 Jul 2026 14:00:17 GMT
+
+https://screenrant.com/one-punch-man-webcomic-saitama-genos-rematch/
+
+One-Punch Man's rematch of the century.
+---------
+
+# 10 Most Powerful Characters In Heroes Season 1
+
+Classic TV, Heroes
+
+Mon, 13 Jul 2026 14:00:17 GMT
+
+https://screenrant.com/heroes-season-1-most-powerful-characters/
+
+Of the superpowered individuals who are introduced in Heroes season 1, these 10 rank among the most powerful, be it physically or in other ways.
+---------
+
+# Spaceballs 2 Recreates Iconic OG Scene 40 Years Later In First Official Poster
+
+Movies, Spaceballs: The New One, Spaceballs
+
+Mon, 13 Jul 2026 13:58:34 GMT
+
+https://screenrant.com/spaceballs-2-comb-desert-poster-reveal/
+
+The first official poster has arrived for Spaceballs: The New One, recreating a hilarious scene from the original movie nearly four decades later.
+---------
+
+# Sydney Sweeney’s Gritty New R-Rated Flop Fights Up HBO Max’s Global Streaming Charts
+
+Movies, Sydney Sweeney, Streaming Charts, Masked Recs
+
+Mon, 13 Jul 2026 13:56:05 GMT
+
+https://screenrant.com/sydney-sweeney-christy-hbo-max-streaming-success-july-2026/
+
+A Sydney Sweeney movie that flopped in theaters before the release of her hit thriller The Housemaid is surging up a major streaming chart.
+---------
+
+# Marvel Officially Debuts New Superhero Codename for Jessica Jones
+
+Comics, Jessica Jones
+
+Mon, 13 Jul 2026 13:31:18 GMT
+
+https://screenrant.com/jessica-jones-spidergirl-new-codename-what-if/
+
+Yes, there's a costume.
+---------
+
+# 34 Years Later, the Greatest Superhero Death in History Remains Unmatched
+
+Comics, DC Comics, Marvel, Superman
+
+Mon, 13 Jul 2026 13:24:27 GMT
+
+https://screenrant.com/superman-death-dc-cultural-impact-retrospective/
+
+This superhero death changed everything.
+---------
+
+# Pokémon Cards Are Officially About To Change Forever
+
+Gaming, Pokemon Trading Card Game, tabletop games
+
+Mon, 13 Jul 2026 13:17:01 GMT
+
+https://screenrant.com/pokemon-trading-card-game-scalping-changes/
+
+Availability has been an issue for Pokémon cards for a long time, but that's about to change thanks to a new decree from Nintendo.
+---------
+
+# 3 Different Project Hail Mary Actors Have Oscar Hopes In 2027
+
+Movies, Project Hail Mary
+
+Mon, 13 Jul 2026 13:15:18 GMT
+
+https://screenrant.com/project-hail-mary-3-actors-oscar-hopes/
+
+Not one, not two, but three Project Hail Mary actors (Ryan Gosling, Sandra Hüller, and James Ortiz) have a real chance at scoring an Oscar nomination.
+---------
+
+# Denzel Washington's $161M Drama Returns as a Streaming Hit 14 Years After Grossing 5x Its Budget
+
+Movies, Flight, denzel washington
+
+Mon, 13 Jul 2026 14:00:11 GMT
+
+https://www.cbr.com/denzel-washington-flight-drama-starz-success-july-2026/
+
+The smash hit film saw Washington starring alongside Don Cheadle, Kelly Reilly and John Goodman.
+---------
+
+# Marvel Announces a Secret Wolverine Game Prequel With One Big Twist
+
+Comics, Marvel, Wolverine, comics
+
+Mon, 13 Jul 2026 14:00:11 GMT
+
+https://www.cbr.com/insomniac-wolverine-comic-release-date-confirmed/
+
+This Wolverine prequel is a must-have for eager gamers and Marvel fans alike.
+---------
+
+# Sam Neill's Perfect 2-Part Magic Series Still Has the Best Ending in Fantasy TV History
+
+TV, Merlin, Fantasy
+
+Mon, 13 Jul 2026 13:29:18 GMT
+
+https://www.cbr.com/sam-neill-merlin-miniseries-best-fantasy-tv-ending/
+
+The fantasy genre has given audiences plenty of classics, but Sam Neill's Merlin miniseries gave them one of its best endings of all time.
+---------
+
+# Tom Cruise Is Unrecognizable in The Revenant Director's New Satirical Drama
+
+Movies, tom cruise, Digger
+
+Mon, 13 Jul 2026 13:19:16 GMT
+
+https://www.cbr.com/tom-cruise-digger-official-trailer/
+
+The critically acclaimed director embarks in a new era in the new trailer.
+---------
+
+# The Accountant Franchise Is Officially Dominating HBO Max
+
+Movies, The Accountant, Action, HBO Max
+
+Mon, 13 Jul 2026 13:00:12 GMT
+
+https://www.cbr.com/the-accountant-action-streaming-success-hbo-max-july-2026/
+
+The Accountant franchise has returned to the top of HBO Max's streaming charts. What does this mean for a potential sequel?
+---------
+
+# Evil Dead Burn Officially Resurrects a 34-Year-Old Franchise Twist
+
+Movies, Evil Dead Burn, Evil Dead
+
+Mon, 13 Jul 2026 13:00:12 GMT
+
+https://www.cbr.com/evil-dead-burn-animal-deadites-franchise-return/
+
+One scene took a turn that brought back a rarely seen Deadite variant.
+---------
+
+# The Best Far Side Comics About Stranded People
+
+Comics, The Far Side
+
+Mon, 13 Jul 2026 13:00:12 GMT
+
+https://www.cbr.com/funniest-far-side-comics-about-stranded-people/
+
+The Far Side comics are incredible illustrations by Gary Larson that contain amusing and recurring themes worth revisiting, like stranded people.
+---------
+
+# Hulu Killing Its Reboot of Sci-Fi's Greatest Classic Is the Biggest TV Fumble in Years
+
+TV, The Hitchhiker's Guide to the Galaxy, Sci-Fi, Hulu
+
+Mon, 13 Jul 2026 13:00:12 GMT
+
+https://www.cbr.com/hulu-canceled-hitchhikers-guide-to-the-galaxy-reboot-greatest-sci-fi-tv-fumble/
+
+Seven years after it was first announced under development, the Hitchhiker's Guide to the Galaxy sci-fi reboot is unfortunately dead.
+---------
+
+# The Meg Is Dominating the Streaming Charts on HBO Max
+
+Movies, The Meg, Jason Statham, HBO Max
+
+Mon, 13 Jul 2026 12:00:11 GMT
+
+https://www.cbr.com/jason-statham-the-meg-action-streaming-success-hbo-max-july-2026/
+
+One of the best creature features of the modern era is swimming to the top of HBO Max's streaming charts.
+---------
+
+# One Piece Chapter 1188 Delivers a Spectacular Fight with a Shocking Ending
+
+Anime, One Piece
+
+Mon, 13 Jul 2026 12:00:11 GMT
+
+https://www.cbr.com/one-piece-review-chapter-1188-imu-kills-luffy/
+
+Luffy is utterly and completely outmatched by Imu in One Piece Chapter 1188.
+---------
+
+# Sam Neill’s 6-Part Murder Mystery Series Is Quietly One of the Best Shows on Netflix
+
+TV Features, Sam Neill, Untamed, Netflix, Thriller
+
+Mon, 13 Jul 2026 13:48:37 GMT
+
+https://collider.com/sam-neill-best-performance-netflix-series-untamed/
+
+Sam Neill gives one of his final standout performances in Netflix's Untamed, a mystery series that deserves to be revisited by fans once more.
+---------
+
+# Astonishing 'Digger' Trailer Officially Shows Why Tom Cruise Might Finally Win His Oscar
+
+Movie News, Digger, Alejandro G. Inarritu, Tom Cruise, Academy Awards
+
+Mon, 13 Jul 2026 13:41:08 GMT
+
+https://collider.com/digger-trailer-tom-cruise-alejandro-inarritu/
+
+The new Digger trailer offers a wild look at Tom Cruise’s transformative role in Alejandro G. Iñárritu’s 2026 movie.
+---------
+
+# Spider-Man Faces a Mischievous Villain in New Series Sneak Peek [Exclusive]
+
+Exclusives, Spidey and His Amazing Friends, Disney+, Disney Junior, Spider-Man
+
+Mon, 13 Jul 2026 13:00:12 GMT
+
+https://collider.com/spidey-and-his-amazing-friends-season-5-sneak-peek-symbie/
+
+A new sneak peek at Marvel's Spidey and His Amazing Friends Season 5 introduces the mischievous Symbie and his devious Slime Factory.
+---------
+
+# New 'Invincible' Season 6 Update Has Fans More Excited Than Ever
+
+TV News, Invincible, Robert Kirkman, J.K. Simmons, Prime Video
+
+Mon, 13 Jul 2026 12:00:12 GMT
+
+https://collider.com/invincible-season-6-update-jk-simmons-comments/
+
+J.K. Simmons reveals that recording for Invincible Season 6 has begun, providing an update fans have been eagerly awaiting.
+---------
+
+# 10 Worst Video Games Based on Movies
+
+Video Games, Video Game, Gaming, 007, E.T. the Extra-Terrestrial
+
+Mon, 13 Jul 2026 11:40:12 GMT
+
+https://collider.com/worst-video-games-based-on-movies/
+
+There have been several awful video games based on movies, with flops like Catwoman, Back to the Future, and E.T. among the absolute worst.
+---------
+
+# 15 Disney Movies That Are Amazing From Start to Finish
+
+Movie, Pixar, Disney, Beauty and the Beast, Lilo & Stitch
+
+Mon, 13 Jul 2026 11:38:12 GMT
+
+https://collider.com/best-disney-movies-that-are-amazing/
+
+Lilo & Stitch, Toy Story, and Aladdin are all among the absolute best Disney movies that are genuinely amazing from beginning to end.
+---------
+
+# 10 Worst TV Shows of All Time
+
+TV, The Idol, My Mother the Car, The Swan, The Jerry Springer Show
+
+Mon, 13 Jul 2026 11:37:12 GMT
+
+https://collider.com/worst-tv-shows-all-time-ranked/
+
+From The Swan to All's Fair, these TV shows were quite bad. In fact, you can easily consider them among the worst TV shows ever made.
+---------
+
+# 'Lord of the Rings': The Greatest Quote From Every Trilogy Movie, Ranked
+
+Movie Lists, The Lord of the Rings, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King
+
+Mon, 13 Jul 2026 14:00:16 GMT
+
+https://movieweb.com/lord-of-the-rings-best-quote-every-trilogy-movie/
+
+‘The Lord of the Rings’ movies are endlessly quotable, with fun one-liners and genuine wisdom, but which lines stand out as the trilogy’s best?
+---------
+
+# Spaceballs 2 New Look Delivers Perfect Punchline, Confirms When We'll See More
+
+Movie News, Spaceballs: The New One
+
+Mon, 13 Jul 2026 13:35:30 GMT
+
+https://movieweb.com/spaceballs-2-first-poster/
+
+Amazon MGM Studios is on its way to teasing new information from the highly-anticipated 2027 sequel 'Spaceballs: The New One.'
+---------
+
+# First 'Digger' Trailer Finally Reveals an Unrecognizable Tom Cruise in All His Glory
+
+Movie News, Digger, Tom Cruise
+
+Mon, 13 Jul 2026 13:07:28 GMT
+
+https://movieweb.com/digger-trailer-tom-cruise-transformation/
+
+The first trailer for Alejandro G. Iñárritu's dark comedy 'Digger,' starring Tom Cruise, has been released online.
+---------
+
+# Jennifer Garner's New 8-Part Series Is Already a Streaming Hit on Peacock
+
+TV News, The Five-Star Weekend, Hot on Streaming, Jennifer Garner, Peacock
+
+Mon, 13 Jul 2026 13:00:31 GMT
+
+https://movieweb.com/the-five-star-weekend-streaming-peacock-july-2026/
+
+Less than a week after its debut, Jennifer Garner's new series has already proven to be a massive hit on Peacock.
+---------
+
+# 'House of the Dragon's Divisive Book Change Finally Pays Off
+
+Features, House of the Dragon, Fantasy
+
+Mon, 13 Jul 2026 13:00:16 GMT
+
+https://movieweb.com/house-of-the-dragon-book-change-rhaena/
+
+'House of the Dragon' Season 3, which stars Emma D'Arcy and Matt Smith, is now airing on HBO on Sunday evenings.
+---------
+
+# Sam Neill's 97% RT Rated Hidden Gem Sets New Release for 10th Anniversary
+
+Movie News, Hunt for the Wilderpeople, Sam Neill
+
+Mon, 13 Jul 2026 12:42:56 GMT
+
+https://movieweb.com/sam-neill-hunt-wilderpeople-4k-blu-ray-release/
+
+A new 4K Blu-ray and Blu-ray for Taika Waititi's 'Hunt for the Wilderpeople,' starring Sam Neill, has been announced for the movie's 10th anniversary.
+---------
+
+# Every Main Star Trek Ship's Chief Engineer, Ranked by Ability
+
+TV Lists, Star Trek
+
+Mon, 13 Jul 2026 12:01:15 GMT
+
+https://movieweb.com/star-trek-chief-engineers-ranked/
+
+It takes a lot to lead a Starfleet engineering crew.
+---------
+
 # Pokémon Winds & Waves Eeveelution Leak Isn't What Anyone Imagined
 
 Gaming, Pokemon Winds and Waves, Pokemon
