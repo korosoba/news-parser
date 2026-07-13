@@ -1,3 +1,399 @@
+# Prime Video's Upcoming Sci-Fi Series Is Altered Carbon Meets True Detective
+
+TV, Masked Recs
+
+Mon, 13 Jul 2026 18:04:18 GMT
+
+https://screenrant.com/blade-runner-2099-altered-carbon-true-detective-prime-video/
+
+Prime Video's exciting upcoming cyberpunk detective story is set to blend True Detective's gritty realism with Altered Carbon's high-concept sci-fi.
+---------
+
+# Valheim Meets The Last Of Us In Free Open-World RPG That's Free To Keep Until July 19
+
+Gaming, Valheim, The Last of Us, PC, RPG
+
+Mon, 13 Jul 2026 18:00:18 GMT
+
+https://screenrant.com/valheim-last-of-us-free-open-world-july-2026/
+
+Fans of Valheim and The Last of Us absolutely need to grab this open-world RPG while it is still completely free to keep.
+---------
+
+# House Of The Dragon Season 3 Cutting Brutal Daemon & Rhaenyra Book Story Explained By Ryan Condal
+
+TV, House of the Dragon, House of the Dragon - Season 3
+
+Mon, 13 Jul 2026 17:59:36 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-daemon-rhaenyra-nettles-story-cut-ryan-condal/
+
+Showrunner Ryan Condal discusses why House of the Dragon season 3 chose not to adapt a controversial Daemon and Nettles storyline from Fire & Blood.
+---------
+
+# XBOX Game Pass Just Got Another New Day-One Game, Available Now
+
+Gaming, Xbox, Xbox Game Pass, Xbox Series X/S, PC
+
+Mon, 13 Jul 2026 17:54:15 GMT
+
+https://screenrant.com/xbox-game-pass-day-one-release-ascend-to-zero/
+
+XBOX Game Pass subscribers just got an incredible new Day-One release today, July 13, and Ultimate members can check it out now.
+---------
+
+# Sheriff Country Season 2 Gets Exciting New Production Update & Location Reveal From Returning Icon
+
+TV, Sheriff Country, Fire Country
+
+Mon, 13 Jul 2026 17:47:47 GMT
+
+https://screenrant.com/sheriff-country-season-2-filming-update-sarah-wayne-callies/
+
+Sheriff Country season 2 gets a boost with franchise icon returning to direct an episode after helming two episodes in season 1 and a location reveal.
+---------
+
+# Bones Reunion & Sequel Chances Addressed By David Boreanaz 9 Years Later
+
+TV, Bones
+
+Mon, 13 Jul 2026 17:43:30 GMT
+
+https://screenrant.com/bones-reunion-sequel-show-chances-david-boreanaz/
+
+EXCLUSIVE: A Bones sequel series' chances get addressed by star David Boreanaz, and the actor's comments are exciting for fans of the crime series.
+---------
+
+# Harley Quinn's Mom Debuts Her Supervillain Codename & Costume
+
+DC Comics, Harley Quinn
+
+Mon, 13 Jul 2026 17:32:38 GMT
+
+https://screenrant.com/harley-quinn-mother-villain-absolute-universe-explained/
+
+If you haven't been keeping up with DC lately, Harley Quinn's lore has gone completely off the rails, revealing her mother is a classic DC villain.
+---------
+
+# Guy Ritchie's Sherlock TV Series Finally Does What The BBC Version Never Could
+
+Streaming TV, Young Sherlock
+
+Mon, 13 Jul 2026 17:32:17 GMT
+
+https://screenrant.com/young-sherlock-moriarty-bbc-relationship/
+
+Guy Ritchie's Sherlock Holmes TV show was a hit over at Prime Video, and it's doing one big thing that the BBC's Sherlock could never do.
+---------
+
+# Marvel Studios Sets Up A Villain Even More Terrifying Than Thanos
+
+Streaming TV, Masked Recs
+
+Mon, 13 Jul 2026 17:30:18 GMT
+
+https://screenrant.com/x-men-97-season-2-onslaught-tease-magneto-charles/
+
+Thanos remains the blueprint for Marvel's on-screen antagonists, but the studio's latest project just teased an even more terrifying villain.
+---------
+
+# What Happened To Krystal S. After My 600-Lb Life Season 12
+
+Reality TV, My 600 Lb Life
+
+Mon, 13 Jul 2026 17:30:18 GMT
+
+https://screenrant.com/krystal-s-my-600-lb-life-season-12-update/
+
+Krystal’s life has changed after appearing on My 600-Lb Life. She successfully lost a significant amount of weight and is now in a new relationship.
+---------
+
+# 7 Classic Anime Series Every New Fan Needs To Watch At Least Once
+
+Anime, shonen anime, Naruto, Fullmetal Alchemist: Brotherhood
+
+Mon, 13 Jul 2026 18:15:12 GMT
+
+https://www.cbr.com/classic-anime-new-fans-need-to-watch/
+
+Classic anime like FMAB and One Piece deserve at least a single try by every anime newbie.
+---------
+
+# Prime Video's Best Superhero Show Gets Massive Return Update
+
+TV, Invincible, Invincible Presents: Atom Eve, Prime Video
+
+Mon, 13 Jul 2026 18:11:32 GMT
+
+https://www.cbr.com/invincible-season-6-production-start-jk-simmons/
+
+This is the news diehard Invincible fans have been waiting on.
+---------
+
+# Absolute Batman Is Winning Over New Comics Collectors, But There's a Catch
+
+Comics, Absolute Batman
+
+Mon, 13 Jul 2026 18:00:11 GMT
+
+https://www.cbr.com/absolute-batman-new-comic-collectors-be-warned/
+
+Absolute Batman is a runaway hit for comic collectors, but with that comes a much lighter wallet.
+---------
+
+# Peacock's Friday the 13th Prequel Series Finally Unveils First Look
+
+TV, Crystal Lake
+
+Mon, 13 Jul 2026 17:55:47 GMT
+
+https://www.cbr.com/peacock-crystal-lake-first-look/
+
+The show will finally give horror fans what they ask for.
+---------
+
+# Official Marvel Art Reveals the Protagonists of Avengers: Doomsday
+
+Movies, MCU, Avengers, Avengers: Doomsday
+
+Mon, 13 Jul 2026 17:45:11 GMT
+
+https://www.cbr.com/avengers-doomsday-main-characters-captain-america-mister-fantastic/
+
+The latest update on Avengers: Doomsday has revealed which two characters will be key to the Marvel Cinematic Universe's next crossover film.
+---------
+
+# Green Lantern's 8-Year-Old Reimagining That Inspired the DCU is a Comic You Should Be Reading
+
+Comics, Lanterns, Green Lantern, Comics You Should Be Reading
+
+Mon, 13 Jul 2026 17:45:11 GMT
+
+https://www.cbr.com/green-lantern-earth-one-dcu-inspiration-comic-you-should-be-reading/
+
+Gabriel Hardman and Corinna Bechko's two-volume series was a reimagining of Hal Jordan and the GLC that inspired the upcoming DCU series Lanterns.
+---------
+
+# Matt Reeves Is Abandoning DC's Batman Formula After 3 Decades
+
+TV, Batman, Batman: Caped Crusader, DCU
+
+Mon, 13 Jul 2026 17:30:12 GMT
+
+https://www.cbr.com/matt-reeves-batman-caped-crusader-s2-back-to-basics/
+
+Matt Reeves has been singularly focused on Batman for years now, and one surprising project throws away the classic DC Batman formula for good.
+---------
+
+# Evangelion's 6 New Mecha Collectibles Give LEGO a Run for Its Money
+
+Anime, Neon Genesis Evangelion, merchandise, Good Smile Company, toys
+
+Mon, 13 Jul 2026 17:30:12 GMT
+
+https://www.cbr.com/evangelion-good-smile-company-brickroid-figure-release/
+
+Six of the cutest new Rebuild of Evangelion action figures are being added to Good Smile Company's blockiest line of mecha anime collectibles.
+---------
+
+# Taylor Sheridan's Hit Spy Series Finally Returns as a Streaming Hit Ahead of New Episodes
+
+TV, Lioness
+
+Mon, 13 Jul 2026 17:00:41 GMT
+
+https://www.cbr.com/taylor-sheridan-lioness-spy-show-paramount-plus-success-july-2026/
+
+The show will finally return next month and audiences are quickly catching up.
+---------
+
+# Lord Of The Rings: The Hunt For Gollum Will Use AI to De-Age OG Characters, Andy Serkis Confirms
+
+Movies, The Lord of the Rings: The Hunt for Gollum
+
+Mon, 13 Jul 2026 16:58:50 GMT
+
+https://www.cbr.com/lotr-the-hunt-for-gollum-using-ai/
+
+It's not the first time The Lord of the Rings franchise has dabbled with AI use either.
+---------
+
+# 'Silo' Season 3 Needs To Answer These 9 Questions (or Else)
+
+TV, Silo, Apple TV, Sci-Fi, Science Fiction
+
+Mon, 13 Jul 2026 18:23:12 GMT
+
+https://collider.com/silo-season-3-questions-need-answers/
+
+Silo Season 3 is in full swing, and before it wraps up, there are some pressing issues that need to be addressed in the Apple TV sci-fi series.
+---------
+
+# New Dune Project Coming Fall 2026 Changes Everything We Know About Arrakis
+
+Gaming News, Dune: Part Three, Dune: Part Two, Dune, Dune: Prophecy
+
+Mon, 13 Jul 2026 18:20:12 GMT
+
+https://collider.com/new-dune-project-imperium-conspiracy-exansion-release-date-fall-2026/
+
+A new Dune project coming this fall, before Part Three, will change everything fans have come to expect from the dusty sands of Arrakis.
+---------
+
+# Moana Built Real Waterfalls Across an Acre of Sets | Collider BTS
+
+Movie, Moana
+
+Mon, 13 Jul 2026 18:16:12 GMT
+
+https://collider.com/video/moana-built-real-waterfalls-across-an-acre-of-sets-collider-bts/
+
+Disney's live-action Moana had to honor one of the studio's most beloved animated films while creating something that could stand on its own. Director and executive producer Thomas Kail explains how his team approached that challenge, from preserving what audiences already love to finding new ways to tell the story.
+---------
+
+# Apple TV’s Best Comedy Has Quietly Outperformed 'Ted Lasso' for 5 Seasons
+
+TV Features, Apple TV, Trying, Ted Lasso, Rafe Spall
+
+Mon, 13 Jul 2026 18:12:12 GMT
+
+https://collider.com/apple-tv-best-comedy-trying-ted-lasso-replacement/
+
+While Ted Lasso may always be Apple TV’s biggest comedy, Trying has been a heartfelt, consistent comedy staple for five seasons.
+---------
+
+# 5 Years Later, Britain's Biggest Crime Drama Is Finally Returning
+
+TV News, Line of Duty, Crime, BBC, Drama
+
+Mon, 13 Jul 2026 18:00:12 GMT
+
+https://collider.com/line-of-duty-season-7-production-complete/
+
+After a 5-year hiatus, Line of Duty's AC-12 team, led by Martin Compston, Adrian Dunbar, and Vicky McClure, reassembles to investigate a new crime.
+---------
+
+# 16 Years Later, ‘Bosch’ Star Titus Welliver’s Crime Masterpiece Resurfaces on Streaming
+
+Movie News, The Town, Titus Welliver, Ben Affleck, Jeremy Renner
+
+Mon, 13 Jul 2026 17:40:12 GMT
+
+https://collider.com/the-town-ben-affleck-titus-welliver-crime-masterpiece-streaming-success-july/
+
+The Boston-set crime thriller The Town, directed by and starring Ben Affleck, has resurfaced on streaming.
+---------
+
+# Anya Taylor-Joy Officially Returns to TV With New Crime Thriller in Less Than 48 Hours
+
+TV News, Lucky, Anya Taylor-Joy, Timothy Olyphant, Apple TV
+
+Mon, 13 Jul 2026 17:21:12 GMT
+
+https://collider.com/anya-taylor-joy-apple-tv-crime-thriller-lucky-release-date-july-15-how-to-watch/
+
+Lucky, Apple TV's new crime thriller starring Anya Taylor-Joy and Timothy Olyphant, officially premieres in less than 48 hours.
+---------
+
+# 15 Best Fantasy Shows of the 1980s, Ranked
+
+TV, Fantasy, He-Man and the Masters of the Universe, The Twilight Zone, Amazing Stories (1985)
+
+Mon, 13 Jul 2026 17:12:12 GMT
+
+https://collider.com/fantasy-shows-1980s-best-ranked/
+
+We rank the best fantasy shows from the '80s, from The Twilight Zone to He-Man and the Masters of the Universe.
+---------
+
+# 10 Best Classic Rock Innuendo Songs of All Time
+
+Music Features, Music, Rock
+
+Mon, 13 Jul 2026 17:10:12 GMT
+
+https://collider.com/best-classic-rock-innuendo-songs/
+
+From "Sledgehammer" by Peter Gabriel to "Ice Cream Man" by Van Halen, these are the best, filthiest classic rock songs laden with innuendo.
+---------
+
+# Glen Powell’s $69M Sci-Fi Stephen King Remake Gets Second Chance on Paramount+
+
+Movie News, The Running Man, Edgar Wright, Paramount+ with Showtime, Science Fiction
+
+Mon, 13 Jul 2026 17:00:12 GMT
+
+https://collider.com/edgar-wrights-sci-fi-thriller-is-racing-up-the-streaming-charts/
+
+Edgar Wright's adaptation of Stephen King's 'The Running Man' is gaining traction on streaming platforms, ranking high on Paramount+.
+---------
+
+# Sam Neill's 10 Best Movies & TV Shows
+
+Movie Lists, Sam Neill, Jurassic Park, Peaky Blinders
+
+Mon, 13 Jul 2026 18:15:17 GMT
+
+https://movieweb.com/sam-neill-best-movies-tv-shows/
+
+Sam Neill starred in some of the most popular and memorable movies and TV shows, from 'Jurassic Park' to 'Peaky Blinders.'
+---------
+
+# 'House of the Dragon' Can't Stop Repeating the Same Villain Problem
+
+Features, House of the Dragon
+
+Mon, 13 Jul 2026 18:00:16 GMT
+
+https://movieweb.com/house-of-the-dragon-ormund-hightower-villain-problem/
+
+'House of the Dragon' doesn't need to be perfect, but its most frustrating villain trend has to end.
+---------
+
+# Henry Cavill's 98-Minute Action Thriller Flop Is Being Wiped From Streaming
+
+Movie News, Henry Cavill, Night Hunter, Coming/Leaving Streaming, Action
+
+Mon, 13 Jul 2026 18:00:16 GMT
+
+https://movieweb.com/night-hunter-henry-cavill-action-streaming-pluto-tv-july-2026/
+
+One of Henry Cavill's most divisive action thrillers that earned just $1 million is now streaming for free, but only for a limited time.
+---------
+
+# '80s Cult Classic Is Resurrected in First Teaser as Beloved Franchise Finally Returns
+
+TV News, Crystal Lake, Friday The 13th, Peacock
+
+Mon, 13 Jul 2026 17:24:39 GMT
+
+https://movieweb.com/friday-the-13th-crystal-lake-teaser/
+
+The first teaser for the 'Friday the 13th' prequel series 'Crystal Lake' has been released.
+---------
+
+# Forget 'Marshals': Paramount’s Neo-Western is the Perfect 'Yellowstone' Follow-up
+
+Features, Yellowstone, Joe Pickett
+
+Mon, 13 Jul 2026 17:00:17 GMT
+
+https://movieweb.com/joe-pickett-marshals-replacement/
+
+'Marshals' is one of the most popular Western series by Taylor Sheridan, but another TV show might be even better.
+---------
+
+# The Punisher's MCU Timeline, Explained
+
+Features, The Punisher, Daredevil: Born Again, MCU
+
+Mon, 13 Jul 2026 17:00:17 GMT
+
+https://movieweb.com/the-punisher-mcu-timeline-explained/
+
+Jon Bernthal has built a legacy as The Punisher across different TV series; this is how they all tie together.
+---------
+
 # New Taylor Sheridan Texas Crime Thriller Series Casting Update Adds 2 Mysterious Roles
 
 TV, Frisco King, Frisco King - Season 1, Taylor Sheridan, Arturo Del Puerto
