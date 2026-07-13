@@ -1,3 +1,201 @@
+# The Wildest Medical Drama Of The 21st Century Makes The Pitt Look Tame
+
+Classic TV, Masked Recs
+
+Mon, 13 Jul 2026 21:45:18 GMT
+
+https://screenrant.com/house-wildest-medical-drama-beats-the-pitt/
+
+The Pitt has stood out for its fast pace, drama, and intensity, but there's an even wilder medical drama that makes Dr. Robby's workplace look tame.
+---------
+
+# New Timothy Olyphant Drama Series’ Biggest Changes From Bestselling Novel Explained By Showrunner
+
+TV, The Five-Star Weekend, The Five-Star Weekend - Season 1
+
+Mon, 13 Jul 2026 21:31:48 GMT
+
+https://screenrant.com/the-five-star-weekend-show-book-changes-showrunner-explained/
+
+Jennifer Garner and Timothy Olyphant are starring in a new Peacock series, and the showrunner reveals why she made several changes from the book.
+---------
+
+# Netflix’s 6-Part Crime Thriller With Near-Perfect Rotten Tomatoes Score Gets Better With Every Watch
+
+TV, Masked Recs
+
+Mon, 13 Jul 2026 21:30:17 GMT
+
+https://screenrant.com/legends-netflix-better-rewatch/
+
+The best crime miniseries new to Netflix this year is so good that you can only fully appreciate its quality through multiple viewings.
+---------
+
+# HBO's 6-Part Fantasy Series With A 30-Year Plan Shows Game Of Thrones How It's Done
+
+TV, Masked Recs
+
+Mon, 13 Jul 2026 21:27:44 GMT
+
+https://screenrant.com/hbo-a-knight-seven-kingdoms-fantasy-series-game-of-thrones-plans/
+
+HBO's recent hit fantasy series teaches Game of Thrones how it is done, all thanks to the genre releases 30-year plan to adapt an ambitious franchise.
+---------
+
+# Sony’s $1.3B Gothic Fantasy Franchise Confirms New Movie With 2027 Release Date & Story Details
+
+Movies, Hotel Transylvania 5, Hotel Transylvania
+
+Mon, 13 Jul 2026 21:15:09 GMT
+
+https://screenrant.com/hotel-transylvania-5-confirmed-release-date-story-details/
+
+After the previous movies grossed a combined total of $1.3 billion worldwide, Sony's fantasy franchise is officially continuing with a new sequel.
+---------
+
+# The Matrix Meets Record-Breaking Musical In Lin-Manuel Miranda’s New Star-Studded Movie
+
+Movies, Masked Recs, Lin-Manuel Miranda
+
+Mon, 13 Jul 2026 21:05:35 GMT
+
+https://screenrant.com/octet-lin-manuel-miranda-matrix-comparisons/
+
+Alongside a star-studded ensemble, Lin-Manuel Miranda's latest musical to film adaptation blends themes from A Chorus Line and The Matrix.
+---------
+
+# Forget ACOTAR: NYT Bestselling Cozy Romantasy Series Finally Returns This Month
+
+Books, Romantasy
+
+Mon, 13 Jul 2026 21:03:37 GMT
+
+https://screenrant.com/spellshop-sea-of-charms-third-book-release-july-2026/
+
+Get ready for a cozy romantasy you won't put down because the New York Times bestselling series The Spellshop returns in 2 weeks
+---------
+
+# The Pitt’s Night Shift Spinoff Update Is Good News For HBO’s Medical Drama
+
+TV, The Pitt
+
+Mon, 13 Jul 2026 21:02:17 GMT
+
+https://screenrant.com/the-pitt-night-shift-spinoff-update-franchise/
+
+HBO boss Casey Bloys' answer to a question about The Pitt's potential night shift spinoff is surprisingly positive news for HBO's medical drama.
+---------
+
+# Fallout 5 Official Update Has Left Fans Seriously Torn
+
+Gaming, Fallout 5, Triple-A Games
+
+Mon, 13 Jul 2026 21:00:18 GMT
+
+https://screenrant.com/fallout-5-update-xbox-layoffs-bethesda-future/
+
+Xbox has made an official comment on Fallout 5, and fans aren't necessarily happy with what the publisher or Bethesda has to say.
+---------
+
+# Prime Video’s Mass Effect Adaptation Gets First Major Update From Writer 2 Years Later
+
+TV, Mass Effect, Prime Video
+
+Mon, 13 Jul 2026 20:57:44 GMT
+
+https://screenrant.com/prime-video-mass-effect-tv-adaptation-update-daniel-casey/
+
+Daniel Casey offers the first major update on Prime Video's Mass Effect adaptation some two years after the show was first announced in the works.
+---------
+
+# 5 Most Expensive Mickey Mouse Cards In Disney Lorcana
+
+Games, Disney, Disney Lorcana, Tabletop, TCG
+
+Mon, 13 Jul 2026 21:15:12 GMT
+
+https://www.cbr.com/disney-lorcana-most-expensive-mickey-mouse-cards/
+
+One of Disney Lorcana's biggest mascots is the iconic Mickey Mouse, and these five cards are extremely expensive to pick up for dedicated collectors.
+---------
+
+# Bones Lead Star Addresses Potential Reunion 9 Years After Last Episode
+
+TV, Bones
+
+Mon, 13 Jul 2026 21:05:39 GMT
+
+https://www.cbr.com/bones-david-boreanaz-potential-reunion/
+
+After 12 seasons, fans still want more.
+---------
+
+# 8 Classic Westerns No One Talks About Anymore
+
+Movies, Western, Thriller, Bad Day at Black Rock
+
+Mon, 13 Jul 2026 21:00:12 GMT
+
+https://www.cbr.com/perfect-classic-westerns-list/
+
+The Western genre was once a box office powerhouse, but its 21st century slump means even some of the best classics aren’t talked about anymore.
+---------
+
+# 10 Most Perfect Comedy Shows of the Last 20 Years
+
+TV, Comedy, Sitcom, Ted Lasso, Modern Family
+
+Mon, 13 Jul 2026 21:36:11 GMT
+
+https://collider.com/most-perfect-comedy-shows-last-20-years-ranked/
+
+Modern Family, Ted Lasso, and Parks and Recreation are among the best TV comedy series of the last 20 years, but which show is the greatest?
+---------
+
+# The Director of 'Evil Dead Burn' Has a Debut Film With a Near-Perfect Rotten Tomatoes Score
+
+Movie Features, Infested, Evil Dead Burn, Horror, The Evil Dead
+
+Mon, 13 Jul 2026 21:31:12 GMT
+
+https://collider.com/evil-dead-burn-director-debut-film-infested-shudder/
+
+Before Evil Dead Burn, director Sébastien Vaniček helmed the French creature feature Infested, which has a score of 95% on Rotten Tomatoes.
+---------
+
+# 10 Beautifully Written Books You Must Read at Least Once
+
+Books and Comics, Books, F. Scott Fitzgerald, Cormac McCarthy, The Great Gatsby
+
+Mon, 13 Jul 2026 21:08:12 GMT
+
+https://collider.com/books-beautifully-written-must-read/
+
+Books like Suttree by Cormac McCarthy and To the Lighthouse by Virginia Woolf are so beautifully written you must read them at least once.
+---------
+
+# Anthony Mackie’s $150M Historical Epic Is Finally Getting a Second Chance
+
+Movie News, Anthony Mackie, Desert Warrior, Rupert Wyatt, Ben Kingsley
+
+Mon, 13 Jul 2026 21:00:12 GMT
+
+https://collider.com/anthony-mackie-desert-warrior-box-office-bomb-digital-debut-july-2026/
+
+The $150 million period epic Desert Warrior, starring Anthony Mackie and Ben Kingsley, has made its digital debut after a disastrous box-office run.
+---------
+
+# Spider-Man's MCU Future After 'Brand New Day' Quietly Confirmed
+
+Movie News, Spider-Man: Brand New Day, MCU
+
+Mon, 13 Jul 2026 21:32:07 GMT
+
+https://movieweb.com/spider-man-mcu-future-confirmed/
+
+Amy Pascal hopes to make more MCU-set Spider-Man movies, but it only focusing on one film at a time.
+---------
+
 # Jason Statham’s $398M Jurassic Park Rival Is Quickly Climbing Netflix’s Global Streaming Charts
 
 Movies, Masked Recs
