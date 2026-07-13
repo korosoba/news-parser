@@ -1,3 +1,311 @@
+# 5 Superhero Shows That Have Aged Like Fine Wine
+
+Classic TV, Superhero
+
+Mon, 13 Jul 2026 00:45:19 GMT
+
+https://screenrant.com/superhero-shows-that-aged-well/
+
+From classics like X-Men: The Animated Series to more recent masterpieces like Watchmen, these superhero TV shows are aging like a fine wine.
+---------
+
+# Forget Festivus, This Is Jerry Stiller's Funniest Seinfeld Episode
+
+Classic TV, Seinfeld
+
+Mon, 13 Jul 2026 00:30:20 GMT
+
+https://screenrant.com/jerry-stiller-seinfeld-best-episode-frank-costanza/
+
+Festivus gave Seinfeld one of its funniest episodes, but it wasn't Jerry Stiller's finest half-hour in the role of Frank Costanza; that was "The Rye."
+---------
+
+# 5 Most Controversial Marvel & DC Characters
+
+Marvel Comics, Marvel, DC
+
+Mon, 13 Jul 2026 00:30:20 GMT
+
+https://screenrant.com/most-controversial-marvel-dc-characters/
+
+Marvel and DC have introduced countless characters designed specifically to be hated, but a select few gained negative notoriety accidentally.
+---------
+
+# 29 Years Later, Lee Child's Greatest Reacher Quote Hits Harder Thanks To The Prime Video Series
+
+Streaming TV, Reacher
+
+Mon, 13 Jul 2026 00:15:19 GMT
+
+https://screenrant.com/reacher-said-nothing-lee-child-quote-change-tv-show/
+
+The greatest quote from Lee Child’s Reacher books hits even harder in the Prime Video show because of how incredibly it interprets the source material
+---------
+
+# Netflix Didn't Just Steal Prime Video's Banana Fish, They Improved It
+
+Anime, Netflix, Banana Fish
+
+Mon, 13 Jul 2026 00:00:21 GMT
+
+https://screenrant.com/banana-fish-netflix-steal-prime-video-action-thriller/
+
+Banana Fish is getting the love it deserves.
+---------
+
+# Netflix's Most-Watched Movie Of All Time Beat Disney At Its Own Game
+
+Movies, Masked Recs
+
+Mon, 13 Jul 2026 00:00:21 GMT
+
+https://screenrant.com/kpop-demon-hunters-netflix-most-watched-movie-beat-disney/
+
+Netflix has a clear standout movie as its most-watched of all time, proving that Disney is focusing on the wrong things by beating it at its own game.
+---------
+
+# The East Palace Review: Netflix’s Supernatural Period Piece Is An Epic Battle For The Ages
+
+Streaming TV, The East Palace
+
+Mon, 13 Jul 2026 00:00:21 GMT
+
+https://screenrant.com/east-palace-review/
+
+The East Palace is one of the most highly-anticipated K-dramas of the year, and Netflix's newest dark fantasy certainly lives up to the hype.
+---------
+
+# One Of The Best Crossover "Versus" Films Ever Made Is This 1971 Martial Arts Epic
+
+Movies, Masked Recs
+
+Mon, 13 Jul 2026 00:00:21 GMT
+
+https://screenrant.com/zatoichi-meets-the-one-armed-swordsman-crossover-martial-arts-movie/
+
+A forgotten 1971 martial arts movie stands out as one of the greatest crossover films to pit two different heroic icons against each other.
+---------
+
+# PlayStation Plus New Free RPG Is An 80-Hour Masterpiece
+
+Gaming, PlayStation Plus, RPG, Indie
+
+Mon, 13 Jul 2026 00:00:21 GMT
+
+https://screenrant.com/playstation-plus-free-80-hour-rpg-masterpiece/
+
+Those who are subscribed to PlayStation Plus can now grab a new 80-hour RPG for free via their membership, and it’s an absolute masterpiece.
+---------
+
+# Over 30 Things I Learned From The Art Of Andor Book
+
+Movies, Andor
+
+Mon, 13 Jul 2026 00:00:21 GMT
+
+https://screenrant.com/over-30-things-i-learned-from-the-art-of-andor-book/
+
+The new book reveals plenty of compelling behind the scenes information about what is one of Star Wars' most successful projects in recent years.
+---------
+
+# 5 Transformers Characters Objectively Stronger Than Optimus Prime
+
+Anime, Transformers, optimus prime
+
+Mon, 13 Jul 2026 00:45:12 GMT
+
+https://www.cbr.com/transformers-more-powerful-than-optimus-prime-list/
+
+From cosmic gods to corrupted Primes, the hierarchy of power in the Transformers universe extends far above the popular Autobots leader Optimus Prime.
+---------
+
+# Stephen King's Adaptation Based on His First-Ever Novel Is Officially the No. 1 on HBO Max in the U.S.
+
+Movies, The Long Walk
+
+Mon, 13 Jul 2026 00:30:12 GMT
+
+https://www.cbr.com/stephen-king-the-long-walk-dystopian-hbo-max-us-success-july-2026/
+
+The dystopian horror film was a decent hit in theaters and instantly dominated streaming charts.
+---------
+
+# Stephen King's Most Terrifying Story Just Got the Replacement It Deserves
+
+Movies, Stephen King, Send Help, Misery
+
+Mon, 13 Jul 2026 00:30:12 GMT
+
+https://www.cbr.com/sam-raimi-send-help-stephen-king-misery-replacement/
+
+Stephen King's most terrifying story didn't have anything to do with ghosts or ghouls, making it perfect for re-visitation.
+---------
+
+# 5 Underrated PlayStation 1 Series That Need A Remake
+
+Games, PlayStation (Original), Final Fantasy, Mega Man
+
+Mon, 13 Jul 2026 00:30:12 GMT
+
+https://www.cbr.com/playstation-underrated-ps1-series-need-remakes/
+
+Many classic PlayStation series from the PS1 era more than deserve remakes and revivals in 2026.
+---------
+
+# Absolute Universe Versions of Classic Cartoons
+
+Comics, Absolute Batman, CSBG, The Line It Is Drawn
+
+Mon, 13 Jul 2026 00:24:27 GMT
+
+https://www.cbr.com/absolute-universe-classic-cartoons/
+
+In a brand-new Line it is Drawn,  in honor of Absolute Batman becoming a cartoon, check out these Absolute Universe version of classic cartoons
+---------
+
+# 10 Most Perfect Pokémon Anime Episodes, Ranked
+
+Anime, Pokemon, Pokémon, Pokémon Origins
+
+Mon, 13 Jul 2026 00:15:12 GMT
+
+https://www.cbr.com/most-perfect-pokemon-anime-episodes-ranked/
+
+The Pokémon anime series has over 1,300 episodes split across 28 seasons, and these ten episodes rank as the perfect embodiment of the show's spirit.
+---------
+
+# Avatar 4 Marks the End of Avatar's Jake Sully Era
+
+Movies, Avatar 4, Avatar
+
+Mon, 13 Jul 2026 00:15:12 GMT
+
+https://www.cbr.com/avatar-4-end-of-era-new-main-character-kiri/
+
+The recent Avatar announcement strengthens the franchise as an ever-expanding, multi-voiced story unfolding across generations.
+---------
+
+# Chainsaw Man x Arbiter Studio's Official Collab Launched July 3 Is Almost Sold Out Already
+
+Anime
+
+Mon, 13 Jul 2026 00:01:51 GMT
+
+https://www.cbr.com/arbiter-studio-chainsaw-man-best-anime-collab-power-aki/
+
+Chainsaw Man's iconic power trio officially returns with exclusive designs in the second official limited-time collection with Arbiter Studio.
+---------
+
+# Banana Fish Finally Gets Its First Official English Dub on Netflix This August
+
+Anime, Banana Fish, Prime Video, Netflix
+
+Mon, 13 Jul 2026 00:00:12 GMT
+
+https://www.cbr.com/banana-fish-english-dub-netflix-august-2026/
+
+Banana Fish finally gets an official English dub this August, nearly a year after Amazon's controversial AI dub was pulled.
+---------
+
+# Sydney Sweeney's R-Rated Drama With 66% RT Is a Global HBO Max Hit After Flopping in Theaters
+
+Movies, Christy
+
+Mon, 13 Jul 2026 00:00:12 GMT
+
+https://www.cbr.com/christy-sydney-sweeney-hbo-max-july-2026/
+
+Sydney Sweeney's divisive movie earns redemption on streaming after bombing at the box office.
+---------
+
+# ‘John Wick’ Meets ‘Thor’ in Cult Classic Action Hit Leaving Peacock
+
+Movie News, John Wick, Violent Night, David Harbour, Peacock
+
+Mon, 13 Jul 2026 00:31:12 GMT
+
+https://collider.com/david-harbour-violent-night-leaving-peacock-july-20-2026/
+
+The cult hit action movie Violent Night, whose sequel is due out this year, is about to leave Peacock. Find out how long you have left to watch it.
+---------
+
+# After 23 Seasons, 'NCIS' Best Duo Is No Longer McGee and Parker
+
+TV Features, NCIS, Wilmer Valderrama, Katrina Law
+
+Mon, 13 Jul 2026 00:20:13 GMT
+
+https://collider.com/ncis-season-23-best-duo-torres-knight/
+
+NCIS proves in Season 22 Torres and Knight share the best dynamic currently on the show, with Season 23 pointing to a new development between them.
+---------
+
+# 10 HBO Shows That Are Way Better Than You Remember
+
+TV, HBO, Boardwalk Empire, Sharp Objects, Westworld
+
+Mon, 13 Jul 2026 00:02:12 GMT
+
+https://collider.com/hbo-shows-better-than-you-remember/
+
+Revisit great HBO shows that have aged well and deserve a second look, including Scenes From a Marriage, Sharp Objects, and Boardwalk Empire.
+---------
+
+# Forget 'Indiana Jones,' Nicolas Cage's Adventure Hit Is a Streaming Smash on Hulu
+
+Movie News, Nicolas Cage, Indiana Jones, National Treasure, Hulu
+
+Mon, 13 Jul 2026 00:00:12 GMT
+
+https://collider.com/nicolas-cage-national-treasure-streaming-success-hulu-july-2026/
+
+Nicolas Cage takes on Indiana Jones in one of the most-watched movies on Hulu. Here's everything you should know.
+---------
+
+# Netflix's Best Taylor Sheridan Replacement Officially Returns in Less Than 2 Weeks
+
+TV News, Ransom Canyon, Netflix, Taylor Sheridan, Western
+
+Sun, 12 Jul 2026 23:45:12 GMT
+
+https://collider.com/netflix-taylor-sheridan-replacement-ransom-canyon-season-2-release-date-july-23-2026/
+
+Netflix's hit neo-Western starring Josh Duhamel is back for Season 2 soon, and things are heating up. Get all the details here.
+---------
+
+# 48 Years Later, This Forgotten Blockbuster Sequel Is a Streaming Smash Hit
+
+Movie News, Jaws 2, Streaming, Peacock, Horror
+
+Sun, 12 Jul 2026 23:30:12 GMT
+
+https://collider.com/jaws-2-streaming-success-peacock-july-2026/
+
+The record-breaking sequel to one of the biggest blockbuster movies ever, Jaws 2, is surprising on the streaming charts.
+---------
+
+# This Bold 3-Part Fantasy Series Deserves To Become the Next 'Shadow and Bone'
+
+TV Features, Books, Fantasy, Streaming, Television
+
+Sun, 12 Jul 2026 23:27:12 GMT
+
+https://collider.com/legendborn-series-fantasy-adaptation-next-shadow-and-bone/
+
+Tracy Deonn's award-winning fantasy series The Legendborn Cycle is perfect for a TV adaptation, offering a unique blend of legend and history.
+---------
+
+# The 10 Best 'Chicago Fire' Episodes, Ranked
+
+TV Lists, Chicago Fire
+
+Mon, 13 Jul 2026 00:00:18 GMT
+
+https://movieweb.com/best-chicago-fire-episodes-ranked/
+
+From "My Miracle" and "I Am the Apocalypse" to "A Dark Day" and more, here are the most memorable 'Chicago Fire' episodes.
+---------
+
 # 10 Best Death Game Anime
 
 Anime
