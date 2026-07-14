@@ -1,3 +1,311 @@
+# Rebecca Ferguson’s $244M Fantasy Remake Roars Back To Life On Streaming 12 Years Later
+
+Movies, Masked Recs
+
+Tue, 14 Jul 2026 17:37:30 GMT
+
+https://screenrant.com/rebecca-ferguson-hercules-movie-mgm-plus-streaming-success-july-2026/
+
+Rebecca Ferguson's forgotten fantasy remake that was once a box office smash is roaring back to life as a streaming hit 12 years later.
+---------
+
+# Christopher Nolan's The Odyssey Sets New Release On Peacock Today
+
+Movies, The Odyssey
+
+Tue, 14 Jul 2026 17:33:00 GMT
+
+https://screenrant.com/the-odyssey-making-of-an-epic-peacock-release/
+
+As The Odyssey’s theatrical debut approaches, Christopher Nolan has just released an exciting new look at his upcoming epic on Peacock.
+---------
+
+# 13 Greatest Space Opera TV Shows Of All Time
+
+Classic TV, Sci-Fi
+
+Tue, 14 Jul 2026 17:30:17 GMT
+
+https://screenrant.com/best-space-opera-tv-shows-all-time/
+
+Space operas are a cornerstone of science fiction, with the very best of them combining epic adventures with character-driven storytelling.
+---------
+
+# Alan Ritchson Circling Lead For New Netflix Action Movie 33 Years In The Making
+
+Movies, Alan Ritchson
+
+Tue, 14 Jul 2026 17:15:23 GMT
+
+https://screenrant.com/alan-ritchson-maelstron-netflix-movie-cast/
+
+Reacher star Alan Ritchson is back in action, as Netflix has found its potential next leading man for its upcoming action movie titled Maelstrom.
+---------
+
+# Japan Just Crowned 2026's Top 10 Manga, And One Piece Isn't Even In The Top 5
+
+Anime
+
+Tue, 14 Jul 2026 17:13:22 GMT
+
+https://screenrant.com/top-10-manga-2026-crowned-japan/
+
+Japan just released the officialy top 10 manga rankings so far from 2026 and, shockingly, One Piece did not even rank within the top 5.
+---------
+
+# Only These 4 Books Have Won Both The Hugo And Nebula Award
+
+Books, Fantasy
+
+Tue, 14 Jul 2026 17:01:17 GMT
+
+https://screenrant.com/fantasy-every-book-hugo-nebula-award-winner/
+
+In a genre where only a handful of novels have ever won both the prestigious Hugo and Nebula awards, the books that managed this feat stand out.
+---------
+
+# The Rookie Confirms First Casting Change For Season 9
+
+Network TV, The Rookie
+
+Tue, 14 Jul 2026 17:01:17 GMT
+
+https://screenrant.com/the-rookie-casting-change-confirmed/
+
+Nathan Fillion's top-rated procedural isn't coming back until 2027, but a casting shake-up is already confirmed to happen in The Rookie season 9.
+---------
+
+# Confirmed: Assassin's Creed Returns in Just Three Months
+
+Comics, Assassin's Creed
+
+Tue, 14 Jul 2026 16:53:30 GMT
+
+https://screenrant.com/assassins-creed-dynasty-return-details/
+
+It's been over a year since the last mainline Assassin's Creed release, but the wait for the franchise's next adventure is almost over.
+---------
+
+# Netflix & Stranger Things Alum's New Supernatural Thriller Is Officially Releasing This Year
+
+TV, Netflix
+
+Tue, 14 Jul 2026 16:49:58 GMT
+
+https://screenrant.com/netflix-below-show-release-date-plot-details-explained/
+
+Netflix is officially getting back into the supernatural thriller genre, teaming up with a familiar actor for a chilling six-part series.
+---------
+
+# How Bluey Beat X-Men '97 To Become Disney+'s #1 Show In The U.S.
+
+Streaming TV, Bluey
+
+Tue, 14 Jul 2026 16:37:20 GMT
+
+https://screenrant.com/bluey-compilations-dethroned-x-men-97-disney-plus/
+
+Disney+'s series is a timeless animated series that is going from strength to strength, and it is not surprising that it is at the top spot again.
+---------
+
+# Jurassic Park III Has Sam Neill's Best Alan Grant Quote
+
+Movies, Jurassic Park, Jurassic Park 3
+
+Tue, 14 Jul 2026 17:30:12 GMT
+
+https://www.cbr.com/jurassic-park-iii-best-sam-neill-alan-grant-quote/
+
+Looking back at the legendary Sam Neill's acting career, a line from 2001's Jurassic Park III stands out as one of the most iconic sci-fi quotes ever.
+---------
+
+# The Mandalorian Officially Returns to Disney+ With New 2026 Special After Box Office Struggles
+
+TV, The Mandalorian, Star Wars, Disney+
+
+Tue, 14 Jul 2026 17:25:26 GMT
+
+https://www.cbr.com/lego-the-mandalorian-disney-plus-special/
+
+The Mandalorian (and Grogu) return to Disney+ following their movie's underwhelming box office.
+---------
+
+# Solo Leveling Manhwa Officially Returns in August With New Art Book
+
+Anime, Solo Leveling
+
+Tue, 14 Jul 2026 17:24:12 GMT
+
+https://www.cbr.com/solo-leveling-manhwa-webtoon-art-book-august-release-date/
+
+Solo Leveling just announced a brand-new manhwa book release celebrating the masterful artist who made Jinwoo's story into an international hit: DUBU.
+---------
+
+# 10 Perfect PS2 Games No One Remembers
+
+Games, PlayStation 2, Video Games
+
+Tue, 14 Jul 2026 17:15:12 GMT
+
+https://www.cbr.com/perfect-ps2-games-no-one-remembers/
+
+Sony's PlayStation 2 contains is home to a roster of exceptional titles, but unfortunately, not every game got the attention it deserved.
+---------
+
+# Crunchyroll Store to Require Mega or Ultimate Fan Membership Starting This August
+
+Anime, Crunchyroll, Crunchyroll Premium
+
+Tue, 14 Jul 2026 17:10:08 GMT
+
+https://www.cbr.com/crunchyroll-store-members-only/
+
+Crunchyroll fans will need a paid membership to shop for anime Blu-rays, collectibles, merchandise and more when the new store launches this August.
+---------
+
+# DC Studios’ Superman Series Is Officially a Streaming Hit on HBO Max
+
+TV, DCU, DC Comics, James Gunn, Superman, My Adventures With Superman, Supergirl
+
+Tue, 14 Jul 2026 16:39:58 GMT
+
+https://www.cbr.com/dc-studios-hbo-max-superman-series-officially-streaming-hit/
+
+James Gunn and the DCU desperately needed this spectacular news.
+---------
+
+# 10 Greatest Anime Fight Scenes of All Time
+
+Anime, My Hero Academia, Naruto, One Punch
+
+Tue, 14 Jul 2026 16:15:11 GMT
+
+https://www.cbr.com/official-greatest-anime-fight-scenes-of-all-time/
+
+Fight scenes are one of the main things that fans come to anime for, and series like Cowboy Bebop and My Hero Academia feature some of the best ever.
+---------
+
+# Shark Week Officially Reveals First Look at 20 New Releases [Exclusive]
+
+TV News, Shark Week, Discovery Channel, Expedition Unknown, Ken Jeong
+
+Tue, 14 Jul 2026 17:30:12 GMT
+
+https://collider.com/shark-week-2026-trailer-discovery-channel/
+
+Discovery Channel's annual Shark Week celebration returns with a new trailer showcasing premieres like How to Train a Great White, and more!
+---------
+
+# Alan Ritchson Sets Explosive 'War Machine' Follow-Up at Netflix
+
+Movie News, War Machine, Reacher, Sci-Fi, Alan Ritchson
+
+Tue, 14 Jul 2026 17:25:28 GMT
+
+https://collider.com/alan-ritchson-netflix-action-thriller-maelstrom/
+
+Following the massive success of War Machine, Alan Ritchson is officially returning to Netflix for a new action thriller.
+---------
+
+# Even Without 'Reacher,' Alan Ritchson Is Set to Win 2026 With the Biggest Year of His Career
+
+Movie Features, Alan Ritchson, Motor City, Runner, Reacher
+
+Tue, 14 Jul 2026 16:46:12 GMT
+
+https://collider.com/alan-ritchson-2026-multiple-movies-reacher-season-4/
+
+After his recent Netflix hit, Alan Ritchson still has four movies coming out this year, in addition to his double duty on Reacher and Neagley.
+---------
+
+# ‘Star Trek’ Is Officially Bringing Back Its Most Unexpected Movie Character
+
+TV Features, Star Trek: Strange New Worlds, Star Trek III: The Search for Spock, Star Trek II: The Wrath of Khan, Paramount Plus
+
+Tue, 14 Jul 2026 16:43:12 GMT
+
+https://collider.com/star-trek-strange-new-worlds-season-4-david-marcus-appearance/
+
+Star Trek: Strange New Worlds is about to bring Jim Kirk's son, David, into the fold, adding a new dimension to a tragic relationship.
+---------
+
+# 'The Mandalorian' Officially Returns to Disney+ With New Spin-Off
+
+TV News, The Mandalorian, The Mandalorian and Grogu, Disney+
+
+Tue, 14 Jul 2026 16:39:52 GMT
+
+https://collider.com/lego-star-wars-the-mandalorian-disney-plus-special/
+
+Following The Mandalorian and Grogu, the Star Wars icons are officially returning to Disney+ with a brand-new release.
+---------
+
+# Jenna Ortega’s New Taika Waititi Dystopian Sci-Fi Movie Is Already Getting Rave Reviews
+
+Exclusives, Klara and the Sun, Taika Waititi, Natasha Lyonne, Jenna Ortega
+
+Tue, 14 Jul 2026 16:39:14 GMT
+
+https://collider.com/natasha-lyonne-klara-and-the-sun-update-taika-waititi-new-sci-fi-movie/
+
+Natasha Lyonne reflects on her positive experience finally getting to work with Taika Waititi on the Oscar-nominee's adaptation of Klara and the Sun.
+---------
+
+# Nearly 10 Years Later, Ridley Scott Finally Returns to Sci-Fi With New Thriller Trailer
+
+Movie News, The Dog Stars, Ridley Scott, Josh Brolin, Jacob Elordi
+
+Tue, 14 Jul 2026 16:19:31 GMT
+
+https://collider.com/ridley-scott-sci-fi-the-dog-stars-final-trailer/
+
+Ridley Scott returns to sci-fi in the final trailer for The Dog Stars, starring Jacob Elordi and Josh Brolin. See it here!
+---------
+
+# The 10 Most Powerful Dragons in 'House of the Dragon' Season 3
+
+TV Lists, House of the Dragon, HBO Max, Fantasy
+
+Tue, 14 Jul 2026 17:00:16 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-powerful-dragons/
+
+'House of the Dragon,' the 'Game of Thrones' spin-off airing on HBO, has many deadly dragons, from Vhagar to Tessarion.
+---------
+
+# Ridley Scott Takes on the Post-Apocalypse in Trailer for Action-Packed 'The Last of Us' Thriller
+
+Movie News, The Dog Stars, Ridley Scott
+
+Tue, 14 Jul 2026 16:51:09 GMT
+
+https://movieweb.com/ridley-scott-dog-stars-final-trailer/
+
+New trailer for Ridley Scott's 'The Dog Stars' stars Jacob Elordi, Josh Brolin, and Margaret Qualley.
+---------
+
+# 'Doctor Who' Fate Confirmed as 60-Year-Old Sci-Fi Series Plans Major Changes
+
+TV News, Doctor Who / Whoniverse
+
+Tue, 14 Jul 2026 16:33:19 GMT
+
+https://movieweb.com/doctor-who-fate-confirmed-future-series-plans/
+
+'Doctor Who's future is currently in limbo following the BBC's decision to put the show out for competitive tender this year.
+---------
+
+# 'Moana' Fans Rave About the Live-Action SCREENX Event at AMC Burbank 25
+
+Features, Moana
+
+Tue, 14 Jul 2026 16:08:51 GMT
+
+https://movieweb.com/moana-screen-x-movieweb-screening/
+
+MovieWeb's Joe Deckelmeier hosted a special screening of 'Moana' in Los Angeles in SCREENX ahead of the film's release.
+---------
+
 # Ridley Scott's The Dog Stars New Trailer
 
 Movies, The Dog Stars
