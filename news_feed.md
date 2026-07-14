@@ -1,3 +1,355 @@
+# Avengers: Doomsday's Revealed Runtime Breaks A Massive MCU Record
+
+Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Tue, 14 Jul 2026 14:35:34 GMT
+
+https://screenrant.com/avengers-doomsday-runtime-reveal-mcu-record/
+
+Avengers: Doomsday's runtime has been revealed in a major report, and it gives the MCU movie a massive record ahead of its December release.
+---------
+
+# Batman: Arkham Knight Is Basically Free For 24 More Hours
+
+Gaming, Batman: Arkham Knight, Triple-A Games
+
+Tue, 14 Jul 2026 14:16:47 GMT
+
+https://screenrant.com/batman-arkham-knight-massive-playstation-discount/
+
+If you haven't dived into the Batman: Arkham core trilogy yet, now is arguably the best time, especially since it's at one of its lowest prices yet.
+---------
+
+# Steven Spielberg’s Disclosure Day Officially Sets Major New Release Next Week
+
+Movies, Disclosure Day, Steven Spielberg
+
+Tue, 14 Jul 2026 14:16:08 GMT
+
+https://screenrant.com/steven-spielberg-disclosure-day-digital-release-date-july-2026/
+
+Steven Spielberg's Disclosure Day is getting an exciting new release next week after his return to alien sci-fi stories was met with acclaim.
+---------
+
+# The Mandalorian & Grogu Officially Sets Exciting New Release Next Week After Record-Breaking Box Office Run
+
+Movies, The Mandalorian and Grogu
+
+Tue, 14 Jul 2026 14:14:47 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-digital-release-date/
+
+The Mandalorian and Grogu is coming home, as an exciting new release date has been unveiled after a tense and record-breaking box office performance.
+---------
+
+# Lord Of The Rings: The Hunt For Gollum Casting Criticisms Defended By Andy Serkis
+
+Movies, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings
+
+Tue, 14 Jul 2026 14:09:33 GMT
+
+https://screenrant.com/lord-of-the-rings-hunt-for-gollum-andy-serkis-casting-controversy/
+
+Andy Serkis defends The Lord of the Rings: The Hunt For Gollum from casting criticisms, unpacking the movie's approach to Middle-earth.
+---------
+
+# After 33 Years, Pierce Brosnan Introduced A James Bond Twist So Good That GoldenEye Was Copied Ever Since
+
+Movies, James Bond, GoldenEye
+
+Tue, 14 Jul 2026 14:00:17 GMT
+
+https://screenrant.com/james-bond-betrayed-goldeneye-movie-trope/
+
+GoldenEye introduced James Bond's friend-turned-foe, 006, who kicked off a new trend that repeats in Pierce Brosnan and Daniel Craig's 007 movies.
+---------
+
+# It's Official, Star Trek Is Returning With A New Series This Fall (Exclusive)
+
+Comics, Star Trek
+
+Tue, 14 Jul 2026 14:00:17 GMT
+
+https://screenrant.com/star-trek-zero-point-new-series-this-fall/
+
+A timely Trek.
+---------
+
+# 10 Best Wordle Clones To Keep You Busy
+
+Gaming, Wordle
+
+Tue, 14 Jul 2026 14:00:17 GMT
+
+https://screenrant.com/best-wordle-clones-play-free/
+
+Discover the top Wordle clones that offer exciting variations on the popular word game, providing endless entertainment and challenges.
+---------
+
+# Brandon Sanderson’s Stormlight: Stonewalkers Sequel Officially Announced
+
+Gaming, Brandon Sanderson, PC, The Stormlight Archive, The Cosmere, Mistborn, RPG
+
+Tue, 14 Jul 2026 13:54:57 GMT
+
+https://screenrant.com/brandon-sanderson-stormlight-stonewalkers-sequel-announcement/
+
+Brandon Sanderson's Stormlight RPG campaign Stonewalkers is officially getting a dedicated sequel, arriving sooner than expected.
+---------
+
+# Pokémon Scarlet & Violet Players Have Until July 17 To Claim A Free Super-Rare 'Mon
+
+Gaming, Pokemon Scarlet and Violet, Triple-A Games
+
+Tue, 14 Jul 2026 13:40:00 GMT
+
+https://screenrant.com/pokemon-scarlet-violet-limited-time-free-monster/
+
+If you own Pokémon Scarlet & Violet, it's worth logging in just to grab this super-rare 'mon before July 17, when it'll be gone.
+---------
+
+# Robert De Niro Hunts a Serial Killer in New Netflix Thriller Based on Bestselling Novel
+
+Movies, The Whisper Man
+
+Tue, 14 Jul 2026 14:31:44 GMT
+
+https://www.cbr.com/robert-de-niro-the-whisper-man-netflix-trailer/
+
+Netflix unveils Robert De Niro's new movie based on a bestselling novel.
+---------
+
+# 5 '90s Saturday Morning Cartoons You Forgot Existed
+
+TV, Animation, The Pirates Of Dark Water, Bump in the Night
+
+Tue, 14 Jul 2026 14:30:11 GMT
+
+https://www.cbr.com/forgotten-90s-saturday-morning-cartoons-list/
+
+Saturday morning cartoons was a core memory for so many '90s kids. These are some of the cartoons you probably forgot about.
+---------
+
+# The Whisper Man   Official Trailer   Netflix
+
+Movies, The Whisper Man
+
+Tue, 14 Jul 2026 14:26:34 GMT
+
+https://www.cbr.com/video/the-whisper-man-trailer/
+
+Netflix unveils the trailer for The Whisper Man
+---------
+
+# 10 Strongest Transformers Weapons and Abilities, Ranked
+
+Anime, Transformers
+
+Tue, 14 Jul 2026 14:15:12 GMT
+
+https://www.cbr.com/strongest-transformers-weapons-and-abilities-ranked/
+
+As strong as many Autobots and Decepticons are, many of them need special weapons and abilities to reach their full potential.
+---------
+
+# Absolute Catwoman Just Brought Debuted Absolute Huntress and Absolute The Question
+
+Comics, Catwoman, Absolute Universe, huntress, the question
+
+Tue, 14 Jul 2026 14:00:11 GMT
+
+https://www.cbr.com/absolute-catwoman-2-absolute-huntress-absolute-question/
+
+Absolute Catwoman is joined by a few familiar faces.
+---------
+
+# Ghost in the Shell's Director Reveals Why the 2026 Reboot Had to Change
+
+CBR Exclusives, The Ghost in the Shell, Ghost in the Shell
+
+Tue, 14 Jul 2026 13:55:06 GMT
+
+https://www.cbr.com/ghost-in-the-shell-director-interview-manga-changes/
+
+In an exclusive CBR interview, The Ghost in the Shell director Mokochan explains why the new anime needed to make changes to Masamune Shirow's manga.
+---------
+
+# 5 Ways The Big 3 Are Better Than the Dark Shonen Trio
+
+Anime, One Piece, Naruto, Jujutsu Kaisen
+
+Tue, 14 Jul 2026 13:15:12 GMT
+
+https://www.cbr.com/big-3-anime-better-than-dark-shonen-trio/
+
+The Dark Shonen Trio might all be incredible series, yet they are still no match for the Big 3 of One Piece, Naruto, and Bleach.
+---------
+
+# Ryan Reynolds & Kenneth Branagh's New Buddy Comedy Unveils Action-Packed Trailer
+
+Movies, Mayday
+
+Tue, 14 Jul 2026 13:00:12 GMT
+
+https://www.cbr.com/ryan-reynolds-kenneth-branagh-mayday-trailer/
+
+The new Apple TV Original comes from Dungeons & Dragons: Honor Among Thieves directing duo.
+---------
+
+# 5 Fights We Need to See in Mortal Kombat III
+
+Movies, Mortal Kombat, Mortal Kombat II
+
+Tue, 14 Jul 2026 13:00:12 GMT
+
+https://www.cbr.com/mortal-kombat-3-movie-fights-that-should-happen-list/
+
+The upcoming sequel to Mortal Kombat II can feature showdowns between some of the most popular characters from the previous installments.
+---------
+
+# 3 Years Before The Sopranos, Fox Canceled TV's Most Controversial Antihero
+
+TV, The Sopranos, Profit, Drama
+
+Tue, 14 Jul 2026 13:00:12 GMT
+
+https://www.cbr.com/fox-canceled-profit-most-controversial-tv-antihero-pre-the-sopranos/
+
+After only one season, Fox had the audacity to cancel the show that paved the way for Tony Soprano to become the head of the DiMeo crime family.
+---------
+
+# The Year’s Most Unexpected 'Andor' and 'The Mandalorian' Team-Up Is Finally Here
+
+Movie News, Pedro Pascal, Tony Gilroy, Olivia Wilde, Will Arnett
+
+Tue, 14 Jul 2026 14:22:59 GMT
+
+https://collider.com/pedro-pascal-tony-gilroy-behemoth-trailer/
+
+Tony Gilroy's new Pedro Pascal-led drama unveils a riveting first trailer that finally reveals what Behemoth is all about. Watch now.
+---------
+
+# Robert De Niro's New Adaptation of a Bestselling Crime Thriller Is Officially Here
+
+Movie News, The Whisper Man, Adam Scott, Robert De Niro, Michelle Monaghan
+
+Tue, 14 Jul 2026 13:00:28 GMT
+
+https://collider.com/robert-de-niro-crime-thriller-the-whisper-man-trailer/
+
+Adam Scott and Robert De Niro are on the hunt for a killer in The Whisper Man. Watch the trailer now.
+---------
+
+# Ryan Reynolds & Kenneth Branagh Turn 'Top Gun' Into a Cold War Hit in First Apple TV Movie Trailer
+
+Movie News, Mayday, Ryan Reynolds, Kenneth Branagh, Apple TV
+
+Tue, 14 Jul 2026 13:00:12 GMT
+
+https://collider.com/ryan-reynolds-kenneth-branagh-mayday-trailer-release-date/
+
+Ryan Reynolds and Kenneth Branagh star in the Cold War action comedy Mayday, which premieres this fall on Apple TV. Watch the trailer now.
+---------
+
+# The Sequel Trilogy's Missing Chapter Officially Fixes 'Star Wars: The Rise of Skywalker'
+
+Books and Comics, Star Wars, Star Wars: Episode IX - The Rise of Skywalker, Star Wars: Episode VIII - The Last Jedi, Daisy Ridley
+
+Tue, 14 Jul 2026 13:00:12 GMT
+
+https://collider.com/star-wars-legacy-fixes-the-rise-of-skywalker-review/
+
+Discover how Star Wars: Legacy novel fills in the missing pieces of Rey's Jedi training and underdeveloped storylines from The Rise of Skywalker.
+---------
+
+# Mike Flanagan Confirms His Long-Awaited Stephen King Adaptation Is Still Alive
+
+Movie News, Mike Flanagan
+
+Tue, 14 Jul 2026 14:42:18 GMT
+
+https://movieweb.com/mike-flanagan-dark-tower-stephen-king-adaptation/
+
+The director is determined to move forward with his "Holy Grail"
+---------
+
+# Disney Announces New 'Star Wars' Release Just 3 Months After Theatrical Flop
+
+Movie News, Star Wars
+
+Tue, 14 Jul 2026 14:21:02 GMT
+
+https://movieweb.com/disney-star-wars-lego-animated/
+
+Just three months after 'The Mandalorian and Grogu' underperformed at the box office, Disney has another 'Star Wars' release on the way.
+---------
+
+# 'The Mandalorian and Grogu' Officially Sets Digital Streaming Date
+
+Movie News, The Mandalorian and Grogu
+
+Tue, 14 Jul 2026 14:18:19 GMT
+
+https://movieweb.com/the-mandalorian-and-grogu-digital-streaming-release-date/
+
+Disney and Lucasfilm officially confirmed when 'The Mandalorian and Grogu' will be available for purchase digitally.
+---------
+
+# Timothy Olyphant Officially Confirms He's the King of TV This Week
+
+Features, Timothy Olyphant, Lucky
+
+Tue, 14 Jul 2026 14:00:16 GMT
+
+https://movieweb.com/timothy-olyphant-lucky-king-of-tv/
+
+Timothy Olyphant has starred in many memorable TV shows, and his new project looks like it will be one of his best.
+---------
+
+# Fate of FX's Supernatural Thriller Adaptation Revealed After 1 Season
+
+TV News, The Beauty
+
+Tue, 14 Jul 2026 13:41:54 GMT
+
+https://movieweb.com/the-beauty-cast-released-fx/
+
+Ryan Murphy's latest body horror show gets a concerning Season 2 update.
+---------
+
+# Ryan Reynolds Gets His Own 'Top Gun' in First Trailer for Streaming Action Thriller
+
+Movie News, Mayday
+
+Tue, 14 Jul 2026 13:22:05 GMT
+
+https://movieweb.com/mayday-trailer-ryan-reynolds-kenneth-branagh/
+
+The first trailer for Apple TV's Cold War action thriller 'Mayday,' starring Ryan Reynolds and Kenneth Branagh, has been released online.
+---------
+
+# Netflix Scores Big With New 6-Part Mystery Thriller Series That's Taking Over Streaming
+
+TV News, Netflix, Mystery, Thriller
+
+Tue, 14 Jul 2026 13:00:16 GMT
+
+https://movieweb.com/im-not-afraid-netflix-most-watched-thriller-stream-july-2026/
+
+Sharing similarities with 'Stranger Things,' the horrors found here are all disturbingly human.
+---------
+
+# The 8 Best John Woo Action Movies, Ranked
+
+Movie Lists, John Woo, Action, Thriller
+
+Tue, 14 Jul 2026 13:00:16 GMT
+
+https://movieweb.com/john-woo-action-movies-ranked/
+
+From 'Hard Boiled' to 'Face/Off', how do director John Woo's greatest action movies stack up?
+---------
+
 # Pokémon Officially Announces Brand-New 2026 Game Featuring Team Rocket's Return
 
 Gaming, Pokemon
