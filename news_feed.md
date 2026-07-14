@@ -1,3 +1,333 @@
+# Ridley Scott's The Dog Stars New Trailer
+
+Movies, The Dog Stars
+
+Tue, 14 Jul 2026 16:08:20 GMT
+
+https://screenrant.com/ridley-scott-the-dog-stars-new-trailer/
+
+The Dog Stars' new trailer has officially been released.
+---------
+
+# Guy Ritchie & Tom Hardy's Hit Crime Thriller Series Officially Returns As Worldwide Streaming Powerhouse After Massive Season 2 Return Update
+
+TV, Masked Recs
+
+Tue, 14 Jul 2026 16:07:46 GMT
+
+https://screenrant.com/mobland-paramount-plus-streaming-success-july-2026/
+
+After a big update regarding the show’s season 2 return, a crime thriller from Guy Ritchie and Tom Hardy is back in the worldwide streaming rankings.
+---------
+
+# Taylor Sheridan's Biggest Action Series Yet Is Taking Over Streaming At The Perfect Time
+
+TV, Taylor Sheridan, Masked Recs
+
+Tue, 14 Jul 2026 16:07:40 GMT
+
+https://screenrant.com/taylor-sheridan-lioness-stream-paramount-plus-july-2026/
+
+Taylor Sheridan's biggest action show is dominating at just the right time, returning to the Top 10 with mere weeks until new episodes debut.
+---------
+
+# 10 Greatest Movie Epics Of The 1970s, Ranked
+
+Movies, Ranking, The Odyssey, Adventure, Fantasy, Christopher Nolan, Drama, Star Wars, The Godfather, Apocalypse Now
+
+Tue, 14 Jul 2026 16:00:31 GMT
+
+https://screenrant.com/10-best-movie-epics-1970s-ranked/
+
+From doomed military campaigns to collapsing families, these are the 10 greatest movie epics of the 1970s that pushed cinema to its absolute limits.
+---------
+
+# Yeah Mad Cast Guide: Who Stars In The Australian YouTube Comedy Show
+
+Reality TV, YouTube
+
+Tue, 14 Jul 2026 16:00:18 GMT
+
+https://screenrant.com/yeah-mad-cast-guide/
+
+The original Yeah Mad cast consisted of seven full time cast members or hosts, but has changed since the first season.
+---------
+
+# Paramount’s Classic 88% RT Techno-Thriller Is A Secret Star Trek: The Next Generation Reunion
+
+Movies, The Hunt for Red October, Star Trek, Star Trek: The Next Generation
+
+Tue, 14 Jul 2026 16:00:17 GMT
+
+https://screenrant.com/hunt-for-red-october-star-trek-tng-reunion-gates-mcfadden-daniel-davis/
+
+The Hunt for Red October's cast includes Sean Connery, Alec Baldwin, Sam Neill, James Earl Jones, and two famous faces from Star Trek: TNG.
+---------
+
+# Hellboy Returns Next Week for a New Post-Guillermo del Toro Era
+
+Comics, Hellboy
+
+Tue, 14 Jul 2026 16:00:17 GMT
+
+https://screenrant.com/giant-robot-hellboy-return-exclusive-preview/
+
+While nostalgia for the Guillermo del Toro era will always remain strong, fans now have a new Hellboy chapter to look forward to, beginning next week.
+---------
+
+# Timothy Olyphant’s New Crime Thriller Adaptation Is Subtly A 7-Movie Release On Apple TV
+
+TV, Lucky
+
+Tue, 14 Jul 2026 16:00:10 GMT
+
+https://screenrant.com/lucky-apple-tv-episodes-movies-comparison-executive-producer/
+
+Exclusive: Executive producer Lauren Neustadter explains why Timothy Olyphant’s new Apple TV series Lucky can almost be thought of as seven movies.
+---------
+
+# New Stephen King Book Releases This Fall
+
+Books, Stephen King
+
+Tue, 14 Jul 2026 15:41:42 GMT
+
+https://screenrant.com/new-book-art-craft-of-stephen-king-release-date-sept-2026/
+
+Stephen King is making a comeback, as a new book will be released this fall ahead of another expected release, making 2026 the year of horror.
+---------
+
+# It's Official: George R.R. Martin's Game of Thrones Returns With New Release in 2026
+
+TV, Game Of Thrones, Fantasy
+
+Tue, 14 Jul 2026 16:04:41 GMT
+
+https://www.cbr.com/game-of-thrones-limited-edition-folio-society/
+
+George R.R. Martin's fantasy epic is back in 2026.
+---------
+
+# Agatha Christie’s Unfilmable Detective Masterpiece Still Has the Best Twist in Crime History
+
+TV, Poirot, Mystery
+
+Tue, 14 Jul 2026 16:00:11 GMT
+
+https://www.cbr.com/agatha-christie-the-murder-of-roger-ackroyd-best-mystery-twist/
+
+Agatha Christie's most critically acclaimed murder mystery still has the best twist in crime fiction 100 years later.
+---------
+
+# Jason Statham's Homefront Is the Perfect John Wick Replacement
+
+Movies, Homefront, Jason Statham, Action
+
+Tue, 14 Jul 2026 16:00:11 GMT
+
+https://www.cbr.com/jason-statham-homefront-john-wick-replacement-action-masterpiece/
+
+Jason Statham's 2013 action-thriller is the perfect John Wick replacement for fans of the genre.
+---------
+
+# Japan Has Already Officially Crowned Its Top Manga Series of 2026
+
+Anime, The Apothecary Diaries, Frieren: Beyond Journey's End
+
+Tue, 14 Jul 2026 15:30:12 GMT
+
+https://www.cbr.com/japan-top-manga-series-2026-apothecary-diaries/
+
+A recent Oricon survey reveals which manga titles are stirring up the most buzz and attracting the largest followings.
+---------
+
+# 4 Cartoon Network Anime Series That Are 10/10 Masterpieces
+
+Anime, Cartoon Network, Dragon Ball, Yu Yu Hakusho
+
+Tue, 14 Jul 2026 15:15:11 GMT
+
+https://www.cbr.com/cartoon-network-anime-series-flawless-masterpieces/
+
+The iconic Toonami and Adult Swim blocks of Cartoon Network made waves, but only a few of the anime they featured are true masterpieces.
+---------
+
+# The Hunt for Gollum Director Refuses Politically Correct 'Casting for the Sake of Casting' After Diversity Criticism
+
+Movies, The Lord of the Rings: The Hunt for Gollum
+
+Tue, 14 Jul 2026 15:10:41 GMT
+
+https://www.cbr.com/lotr-the-hunt-for-gollum-diversity-criticisms-andy-serkis-response/
+
+The Hunt for Gollum director Andy Serkis addresses the lack of diversity in his new Lord of the Rings movie.
+---------
+
+# The First Star Wars Movie in 7 Years Is Finally Heading to Streaming With Extra Scenes
+
+Movies, The Mandalorian and Grogu, Star Wars, Disney+
+
+Tue, 14 Jul 2026 15:00:14 GMT
+
+https://www.cbr.com/the-mandalorian-and-grogu-streaming-release-date/
+
+Star Wars fans can finally visit the galaxy far, far away from home again.
+---------
+
+# Amazing Spider-Man: Amazing Visions Reveals the Inspiration Behind 25 Iconic Covers
+
+CBR Exclusives, Spider-Man
+
+Tue, 14 Jul 2026 15:00:12 GMT
+
+https://www.cbr.com/amazing-spider-man-amazing-visions-lee-bernejo-covers/
+
+Learn about Lee Bermejo's Amazing Spider-Man variant covers from this one-shot.
+---------
+
+# 5 Anime Gods Stronger Than Gear 5 Luffy
+
+Anime, Dragon Ball, Puella Magi Madoka Magica, One Piece
+
+Tue, 14 Jul 2026 15:00:12 GMT
+
+https://www.cbr.com/anime-gods-stronger-than-gear-5-luffy/
+
+Luffy's Gear 5 transformation makes him a One Piece god, but these anime deities are still far more powerful than the future Pirate King.
+---------
+
+# The Conjuring Prequel Finds Its New Ed & Lorraine Warren
+
+Movies, The Conjuring Universe, The Conjuring: Last Rites
+
+Tue, 14 Jul 2026 15:00:09 GMT
+
+https://www.cbr.com/the-conjuring-prequel-new-ed-lorraine-warren/
+
+The horror franchise keeps haunting.
+---------
+
+# ‘Street Fighter’ Meets ‘Mortal Kombat’ in New Four-Player Action Game [Exclusive]
+
+Exclusives, Action, Image Comics, Video Game, San Diego Comic-Con
+
+Tue, 14 Jul 2026 16:00:12 GMT
+
+https://collider.com/final-boss-video-game-adaptation-tyler-kirkham-image-comics/
+
+Bit Bot Media is joining forces with acclaimed comic artist Tyler Kirkham to make his original story, Final Boss, into a genre-bending video game.
+---------
+
+# One of the Most Twisted and Horrifying Fairytales Arrives Next Week
+
+Movie News, Pinocchio: Unstrung, Horror, Robert Englund, Pinocchio
+
+Tue, 14 Jul 2026 15:30:12 GMT
+
+https://collider.com/pinocchio-unstrung-twisted-horrifying-fairytale-premiere-date-plot-details-how-to-watch/
+
+Pinocchio Unstrung, the latest addition to the Twisted Childhood Universe, promises a chilling new spin on Carlo Collodi's classic tale next week.
+---------
+
+# 29 Years Later, This Fan-Favorite Sam Neill Horror Film Is Streaming Free
+
+Movie Features, Event Horizon, Sam Neill, Horror, Science Fiction
+
+Tue, 14 Jul 2026 15:02:53 GMT
+
+https://collider.com/sam-neill-event-horizon-best-horror-performance-streaming-tubi/
+
+Sam Neill's 1997 space horror Event Horizon was initially a box office bomb, but it has become a cult favorite, and is now streaming free on Tubi.
+---------
+
+# One of 2026's First True Masterpieces Officially Sets Release Date With Side-Splitting Trailer
+
+Movie News, The Incomer, Sundance Film Festival, Domhnall Gleeson, Michelle Gomez
+
+Tue, 14 Jul 2026 15:01:12 GMT
+
+https://collider.com/domhnall-gleeson-the-incomer-first-trailer-release-date-september-2026/
+
+Sumerian Pictures has released the first official trailer for The Incomer, the new comedy starring Domhnall Gleeson coming to theaters this September.
+---------
+
+# George R.R. Martin’s ‘Game of Thrones’ Gets Official New Release for 30th Anniversary
+
+Books and Comics News, Game Of Thrones, George R.R. Martin, House of the Dragon, A Knight Of The Seven Kingdoms
+
+Tue, 14 Jul 2026 15:01:12 GMT
+
+https://collider.com/george-rr-martin-game-of-thrones-limited-edition-hardback-dragon-leather-book-folio-society/
+
+The Folio Society has officially released a new limited edition of George R.R. Martin's A Game of Thrones to celebrate the 30th anniversary,
+---------
+
+# 'John Wick' Icon's 90-Minute Non-Stop Action Thriller Aims High on Streaming
+
+Movie News, Scott Adkins, Take Cover, Hot on Streaming, Action
+
+Tue, 14 Jul 2026 16:00:16 GMT
+
+https://movieweb.com/take-cover-scott-adkins-action-streaming-paramount-hulu-july-2026/
+
+Ahead of his new MMA action thriller, one of the most underrated action stars around is looking for redemption on streaming.
+---------
+
+# 'Reacher' Season 4 Book Change Has Already Improved the Amazon Series
+
+Features, Reacher
+
+Tue, 14 Jul 2026 16:00:16 GMT
+
+https://movieweb.com/reacher-season-4-book-change-setting/
+
+'Reacher' Season 4 isn't set in New York, which would have honored the source material. However, this is a good thing. Read on for more.
+---------
+
+# Netflix Officially Reveals Tense First Look at 'Jaws' Meets 'The Host' Monster Thriller
+
+TV News, Netflix, Josh Hartnett
+
+Tue, 14 Jul 2026 15:52:10 GMT
+
+https://movieweb.com/below-netflix-first-look/
+
+Netflix's new series, 'Below,' evokes memories of 'Jaws' and 'The Host' as a new monster-based thriller gets set for its release.
+---------
+
+# 'The Odyssey' Cast & Character Guide: Who's Who In Christopher Nolan's Epic?
+
+Features, The Odyssey
+
+Tue, 14 Jul 2026 15:01:16 GMT
+
+https://movieweb.com/the-odyssey-christopher-nolan-cast-character-guide/
+
+The cast for Christopher Nolan's 'The Odyssey' is stellar: here is every actor and the role they will play.
+---------
+
+# 7 Years Later, Blumhouse's Cult Classic Thriller Finally Gets Sequel Update
+
+Movie News, Ma
+
+Tue, 14 Jul 2026 14:54:39 GMT
+
+https://movieweb.com/ma-2-octavia-spencer-horror-update/
+
+The anticipated sequel to 2019's sleeper slasher hit gets an exciting update.
+---------
+
+# Titus Welliver Officially Replaced as First Look at 'Bosch' Spin-off Reveals New Actor
+
+TV News, Bosch: Start of Watch, Bosch
+
+Tue, 14 Jul 2026 14:46:19 GMT
+
+https://movieweb.com/titus-welliver-bosch-start-of-watch-first-look-cameron-monaghan/
+
+'Bosch: Start of Watch' has dropped its first look at Cameron Monaghan as Harry Bosch.
+---------
+
 # Avengers: Doomsday's Revealed Runtime Breaks A Massive MCU Record
 
 Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
