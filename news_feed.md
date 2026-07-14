@@ -1,3 +1,388 @@
+# Apple TV's 3-Season 'Lost Meets Fallout' Sci-Fi Series Succeeds In Its Hardest Task
+
+TV, Masked Recs
+
+Tue, 14 Jul 2026 19:01:18 GMT
+
+https://screenrant.com/silo-apple-tv-lost-fallout-sci-fi-mystery/
+
+In a genre TV landscape dominated by mystery box storytelling, one Apple TV's sci-fi masterpiece has managed to outshine even its inspiration Lost.
+---------
+
+# Dragon Ball Officially Unveils Our First New Saiyan Since 2018
+
+Gaming, Dragon Ball, Dragon Ball Xenoverse 3, Dragon Ball Xenoverse 2
+
+Tue, 14 Jul 2026 19:00:17 GMT
+
+https://screenrant.com/dragon-ball-xenoverse-3-new-saiyan-first-since-2018/
+
+Dragon Ball officially revealed the franchise's first all-new original Saiyan since Shallot arrived nearly a decade ago in 2018.
+---------
+
+# 5 Best Animated Movies Of 2026 So Far, Ranked
+
+Movies, Animation, Ranking, Toy Story 5, Minions & Monsters, Hoppers, GOAT, The Super Mario Galaxy Movie, Pixar
+
+Tue, 14 Jul 2026 18:38:17 GMT
+
+https://screenrant.com/best-animated-movies-2026-so-far-ranked/
+
+From record-breaking franchise sequels to brilliant original stories like GOAT, discover the 5 best animated movies of 2026 so far.
+---------
+
+# Star Wars' Adam Driver Suits Up As Magneto In New MCU X-Men Movie Art
+
+Movies, Marvel's X-Men, X-Men, Marvel Cinematic Universe
+
+Tue, 14 Jul 2026 18:32:42 GMT
+
+https://screenrant.com/adam-driver-magneto-casting-mcu-xmen-movie-art/
+
+Adam Driver trades in Star Wars' Kylo Ren mask and suit for Magneto's signature helmet and comics-accurate costume in new MCU X-Men movie art.
+---------
+
+# Avatar: The Last Airbender Is 1 Day Away From The End Of An Era
+
+Comics, Avatar: The Last Airbender
+
+Tue, 14 Jul 2026 18:32:21 GMT
+
+https://screenrant.com/avatar-last-airbender-kyoshi-warrior-end-era/
+
+Avatar: The Last Airbender is one day away from a massive franchise release that fans do not want to miss. Here is everything you need to know.
+---------
+
+# Will Spider-Man: Brand New Day Beat Avengers: Doomsday At The Box Office?
+
+Movies, Spider-Man: Brand New Day, Avengers: Doomsday, Marvel Cinematic Universe
+
+Tue, 14 Jul 2026 18:32:17 GMT
+
+https://screenrant.com/spider-man-brand-new-day-beat-avengers-doomsday-box-office/
+
+Spider-Man: Brand New Day and Avengers: Doomsday are both poised to be massive earners at the box office, but Brand New Day will likely make more.
+---------
+
+# Stranger Things Sets New Release This September From The Duffer Brothers
+
+TV, Stranger Things
+
+Tue, 14 Jul 2026 18:30:59 GMT
+
+https://screenrant.com/stranger-things-new-release-duffer-brothers-photo-book/
+
+Stranger Things is making a comeback, as the Duffer Brothers return to Hawkins for a never-before-seen project for fans in an exciting update.
+---------
+
+# 10 Years Later, Sam Neill's Most Underrated Role Is From Taika Waititi's 97% RT Masterpiece
+
+Movies, Masked Recs, Taika Waititi, Sam Neill
+
+Tue, 14 Jul 2026 18:30:18 GMT
+
+https://screenrant.com/sam-neill-underrated-role-hunt-for-the-wilderpeople/
+
+Discover Sam Neill's finest yet most underrated performance in Taika Waititi’s New Zealand adventure-comedy with a stellar 97% Rotten Tomatoes score.
+---------
+
+# Marvel's 4-Part Scarlet Witch Saga Begins A New Chapter In 3 Months
+
+Superheroes, VisionQuest, Marvel Cinematic Universe
+
+Tue, 14 Jul 2026 18:30:18 GMT
+
+https://screenrant.com/marvel-visionquest-show-scarlet-witch-saga-new-chapter/
+
+Marvel has given Scarlet Witch an epic saga that extends to a fourth part in three months, and it will tell a completely new story connected to Wanda.
+---------
+
+# The Westies Review: MGM+ Officially Has One Of Its Best Casts In New Mob Drama Series
+
+Streaming TV, The Westies
+
+Tue, 14 Jul 2026 18:30:09 GMT
+
+https://screenrant.com/the-westies-review/
+
+The Westies is a deeply immersive mob drama series on MGM+ that ultimately lacks emotional depth but makes up for it with outstanding performances.
+---------
+
+# HBO's 6-Part Space Opera Prequel Returns as a Streaming Hit
+
+TV, Dune: Prophecy, HBO Max
+
+Tue, 14 Jul 2026 19:00:12 GMT
+
+https://www.cbr.com/dune-prophecy-space-opera-streaming-hit-july-2026/
+
+HBO’s hit series is finding renewed attention on streaming ahead of its next season.
+---------
+
+# The Lord of the Rings' Five Best Spearmen, Ranked
+
+Movies, The Lord of the Rings, Fantasy
+
+Tue, 14 Jul 2026 19:00:12 GMT
+
+https://www.cbr.com/lord-of-the-rings-strongest-spearmen-list/
+
+While most of The Lord of the Rings' heroes wielded swords, some of the greatest warriors in J. R. R. Tolkien's lore preferred spears.
+---------
+
+# 10 Saddest Anime Moments of All Time, Ranked
+
+Anime, One Piece, Puella Magi Madoka Magica, Fullmetal Alchemist: Brotherhood
+
+Tue, 14 Jul 2026 18:15:12 GMT
+
+https://www.cbr.com/offiial-saddest-anime-moments-of-all-time-ranked/
+
+The saddest anime moments of all time show the full weight of series like Erased, Madoka Magica, and One Piece.
+---------
+
+# The Walking Dead: Dead City Introduces Negan's New Ally in New Clip
+
+CBR Exclusives, The Walking Dead: Dead City
+
+Tue, 14 Jul 2026 18:00:48 GMT
+
+https://www.cbr.com/the-walking-dead-dead-city-negan-ally-jimmi-simpson-clip/
+
+Exclusive: The Walking Dead: Dead City returns soon, and Negan will find a brand-new ally.
+---------
+
+# 5 Forgotten Adventure Movies That Are Amazing From Start to Finish
+
+Movies, Adventure
+
+Tue, 14 Jul 2026 18:00:11 GMT
+
+https://www.cbr.com/perfect-adventure-movies-no-one-remembers-list/
+
+There are countless adventure movies that have remained iconic for years, but these five perfect genre epics have been unfortunately forgotten.
+---------
+
+# Absolute Batman Reveals A Shocking Harley Quinn Twist
+
+Comics, Absolute Batman, Harley Quinn
+
+Tue, 14 Jul 2026 18:00:11 GMT
+
+https://www.cbr.com/absolute-batman-22-harley-quinn-mother-doctor-arkham/
+
+Absolute Harley Quinn may be good, but her origins are sinister.
+---------
+
+# Star Trek MTG Commander Decks Pit The Federation Vs Klingons & Borg
+
+Games, Star Trek, Magic: The Gathering, Tabletop
+
+Tue, 14 Jul 2026 17:46:11 GMT
+
+https://www.cbr.com/star-trek-mtg-commander-decks-federation-klingons-borg/
+
+Wizards of the Coast has announced the four Commander Decks for the Star Trek MTG set, with the Federation facing the Borg and the Klingons.
+---------
+
+# 13 Years Later, Netflix’s Original 7-Season Streaming Hit Could Get a Reunion Movie
+
+TV News, Orange is The New Black, Netflix, Natasha Lyonne, Jenji Kohan
+
+Tue, 14 Jul 2026 19:00:12 GMT
+
+https://collider.com/orange-is-the-new-black-netflix-reunion-movie-natasha-lyonne/
+
+Orange Is the New Black star Natasha Lyonne wants to see a reunion movie for one of Netflix's oldest shows.
+---------
+
+# 10 Best Grunge Albums of All Time
+
+Music Features, Nirvana, 1990s, Music, Grunge
+
+Tue, 14 Jul 2026 18:55:12 GMT
+
+https://collider.com/best-grunge-albums-all-time-ranked/
+
+Nevermind by Nirvana, Live Through This by Hole, and Above by Mad Season are all among the best grunge rock albums in music history.
+---------
+
+# PlayStation Hit With $427M Lawsuit Over Physical Media Backlash
+
+Gaming News, PlayStation 5, PlayStation Plus, Video Game, Hideo Kojima
+
+Tue, 14 Jul 2026 18:34:59 GMT
+
+https://collider.com/playstation-physical-media-controversy-new-lawsuit/
+
+As PlayStation fans revolt against the company over its plans to kill physical media, a new lawsuit could cost Sony half a billion dollars.
+---------
+
+# George R.R. Martin's Biggest Rival Confirms New Release for His Stellar Fantasy Franchise
+
+Gaming News, Brandon Sanderson, Sci-Fi, Fantasy, Gaming
+
+Tue, 14 Jul 2026 18:28:14 GMT
+
+https://collider.com/brandon-sanderson-stormlight-archive-war-for-roshar-fall-2026-kickstarter/
+
+Brandon Sanderson is officially returning to the fantasy world of The Stormlight Archive for a brand-new project. Read on for more.
+---------
+
+# Apple TV’s ‘Silo’ Season 3 Just Turned a Controversial Book Change Into Its Smartest Easter Egg
+
+TV Features, Silo, Apple TV, Ashley Zukerman, Graham Yost
+
+Tue, 14 Jul 2026 18:20:12 GMT
+
+https://collider.com/apple-tvs-silo-season-3-just-turned-a-controversial-book-change-into-its-smartest-easter-egg/
+
+Apple TV's Silo changed the name of a book character Donald to Daniel, yet it slipped in a subtle line about the switch to keep the story focused.
+---------
+
+# X-Men ’97 Season 2: One Mutant Could Break the Story | Collider BTS
+
+TV, X-Men '97
+
+Tue, 14 Jul 2026 18:16:12 GMT
+
+https://collider.com/video/x-men-97-season-2-one-mutant-could-break-the-story-collider-bts/
+
+Thirty years after helping launch one of Marvel's most influential animated series, Eric Lewald, Julia Lewald, and Larry Houston are looking back at the stories that almost made it into X-Men: The Animated Series—and how those ideas are finding new life in X-Men '97.
+---------
+
+# Anya Taylor-Joy Reveals Shock Revelation About Her 'Lord of the Rings' History
+
+Movie News, The Lord of the Rings: The Hunt for Gollum, Anya Taylor-Joy, The Lord of the Rings, Fantasy
+
+Tue, 14 Jul 2026 18:06:17 GMT
+
+https://collider.com/anya-taylor-joy-reading-the-lord-of-the-rings-the-hunt-for-gollum/
+
+Ahead of The Lord of the Rings: The Hunt for Gollum, Anya Taylor-Joy has opened up on her history with the Tolkien novels.
+---------
+
+# ‘Game of Thrones’ Officially Returns to Winterfell This Week
+
+Gaming News, Game Of Thrones, A Knight Of The Seven Kingdoms, House of the Dragon, George R.R. Martin
+
+Tue, 14 Jul 2026 18:00:21 GMT
+
+https://collider.com/game-of-thrones-kingsroad-season-1-release-date-july-15-2026/
+
+Game of Thrones: Kingsroad Season 1 begins this week with a new Northern tournament, house rankings, and permanent Hall of Fame rewards.
+---------
+
+# 6 Worst R-Rated Horror Movies of the 2010s
+
+Movie, Horror, The Devil Inside, Cabin Fever, The Gallows
+
+Tue, 14 Jul 2026 17:52:12 GMT
+
+https://collider.com/worst-r-rated-horror-movies-2010s-ranked/
+
+From Leatherface, to The Devil Inside, to the Cabin Fever remake, these dreadful R-rated 2010s horror movies are terrible from start to finish.
+---------
+
+# Jason Statham’s 116-Minute Sci-Fi Classic Is Officially One of Netflix’s Biggest Worldwide Hits
+
+Movie News, Meg 2: The Trench, The Meg, Jason Statham, Sci-Fi
+
+Tue, 14 Jul 2026 17:45:45 GMT
+
+https://collider.com/jason-statham-meg-2-the-trench-netflix-global-streaming-success-netflix-july-2026/
+
+Jason Statham's smash-hit sci-fi classic is making waves in more ways than one on Netflix. Read on for more details.
+---------
+
+# 2026's New $1 Billion Smash Hit Officially Steals Box Office Crown From Beloved Disney Classic
+
+Movie News, Michael, The Lion King
+
+Tue, 14 Jul 2026 19:00:16 GMT
+
+https://movieweb.com/michael-1-billion-beats-the-lion-king-global-box-office/
+
+2026's second billion-dollar film has now surpassed this Disney classic's lifetime gross.
+---------
+
+# Robert De Niro's New Netflix Crime Thriller Adaptation Gets Tense First Trailer
+
+Movie News, The Whisper Man, Robert De Niro
+
+Tue, 14 Jul 2026 18:22:16 GMT
+
+https://movieweb.com/robert-de-niro-netflix-whisper-man-trailer/
+
+Netflix has released the first trailer for 'The Whisper Man,' pairing Robert De Niro with Adam Scott.
+---------
+
+# New 'The Conjuring' Movie Reportedly Recasts Ed & Lorraine Warren With Rising Stars
+
+Movie News, The Conjuring Universe
+
+Tue, 14 Jul 2026 18:10:49 GMT
+
+https://movieweb.com/the-conjuring-first-communion-recasts-ed-lorraine-warren/
+
+'The Conjuring' prequel may have found its new Ed & Lorraine Warren.
+---------
+
+# One of 2026's Most Divisive Movies Gets New Release as It Hits $1 Billion
+
+Movie News, Michael
+
+Tue, 14 Jul 2026 18:00:33 GMT
+
+https://movieweb.com/michael-4k-blu-ray-release/
+
+Lionsgate Home Entertainment has released 'Michael,' the blockbuster biopic about Michael Jackson, on 4K Ultra HD Blu-ray and Blu-ray.
+---------
+
+# Forget 'Severance,' Apple TV's Best Show Is a Global Streaming Hit
+
+TV News, Trying, Apple TV, Hot on Streaming, Severance, Silo
+
+Tue, 14 Jul 2026 18:00:16 GMT
+
+https://movieweb.com/trying-streaming-success-apple-july-2026/
+
+Forget 'Severance' and 'Silo,' Apple TV's best returning series, the British sitcom 'Trying' is a global streaming success.
+---------
+
+# Apple TV's Perfect Sci-Fi Spin-off Beats Its Parent Show at Its Own Game
+
+Features, Star City
+
+Tue, 14 Jul 2026 18:00:16 GMT
+
+https://movieweb.com/star-city-finale-for-all-mankind-improvement/
+
+'For All Mankind' spin-off 'Star City' is already showing the original series how it's done. Read on for more.
+---------
+
+# Alan Ritchson Leads New Blockbuster Netflix Action Thriller 33 Years in the Making
+
+Movie News, Alan Ritchson, Netflix
+
+Tue, 14 Jul 2026 17:54:57 GMT
+
+https://movieweb.com/alan-ritchson-leads-new-blockbuster-netflix-action-thriller/
+
+The decades-old script is finally being brought to life by Netflix with Alan Ritchson as the lead.
+---------
+
+# Ryan Murphy Teams Up With 'American Psycho' Writer in First Trailer for High School Thriller
+
+TV News, The Shards, Ryan Murphy
+
+Tue, 14 Jul 2026 17:42:09 GMT
+
+https://movieweb.com/ryan-murphy-the-shards-trailer-fx/
+
+Ryan Murphy's vision of blood-soaked, sex-filled Los Angeles continues.
+---------
+
 # Rebecca Ferguson’s $244M Fantasy Remake Roars Back To Life On Streaming 12 Years Later
 
 Movies, Masked Recs
