@@ -1,3 +1,333 @@
+# From & Lost Exist In The Same Universe: Theory Explained
+
+Streaming TV, From
+
+Tue, 14 Jul 2026 20:32:17 GMT
+
+https://screenrant.com/from-and-lost-connected-same-universe-theory/
+
+From and Lost have far too much in common for the similarities between the two mystery box shows to be nothing more than a coincidence.
+---------
+
+# Tom Hardy’s Returning 10-Part Crime Thriller Makes Peaky Blinders Look Tame
+
+TV, Masked Recs
+
+Tue, 14 Jul 2026 20:30:17 GMT
+
+https://screenrant.com/mobland-makes-peaky-blinders-tame/
+
+Peaky Blinders is a British gangster drama that takes no prisoners, but Tom Hardy's most recent TV show is an even tougher version of organized crime.
+---------
+
+# 8 Forgotten Shows That Will Make You Nostalgic For The '90s
+
+Classic TV
+
+Tue, 14 Jul 2026 20:15:18 GMT
+
+https://screenrant.com/forgotten-nostalgic-tv-shows-90s-era/
+
+The 1990s were a golden era of television, as the decade still represents some of the most creative TV shows to ever grace the small screen.
+---------
+
+# Train To Busan Is Officially Getting A Massive New Release 10 Years Later
+
+Movies, Train to Busan, Horror
+
+Tue, 14 Jul 2026 20:08:50 GMT
+
+https://screenrant.com/train-to-busan-10th-anniversary-4k-theatrical-release-august-2026/
+
+The popular South Korean zombie movie Train to Busan sets an official return to theaters to celebrate the 10th anniversary of its debut.
+---------
+
+# DCEU Hero Confirmed To Return In James Gunn's Superman Sequel Man Of Tomorrow
+
+Movies, Man of Tomorrow, Superman, DC Universe
+
+Tue, 14 Jul 2026 20:04:19 GMT
+
+https://screenrant.com/superman-man-of-tomorrow-blue-beetle-xolo-mariduena-return/
+
+One of the last heroes to get introduced in the DCEU is officially confirmed to make their DC Universe debut in James Gunn's Man of Tomorrow movie.
+---------
+
+# Prime Video's Fantasy Universe Is 5 Seasons In, And Every Season Has 100% On Rotten Tomatoes
+
+TV, Masked Recs
+
+Tue, 14 Jul 2026 20:03:17 GMT
+
+https://screenrant.com/vox-machina-amazon-fantasy-universe-perfect-rotten-tomatoes-score/
+
+Prime Video's R-rated fantasy franchise seems unstoppable, with two critically acclaimed shows both earning perfect 100% ratings on Rotten Tomatoes.
+---------
+
+# Assassin's Creed Hexe Leak Reveals Editions, Pre-Order Details, & More
+
+Gaming, Assassin's Creed, Triple-A Games, PC
+
+Tue, 14 Jul 2026 19:57:49 GMT
+
+https://screenrant.com/assassins-creed-hexe-editions-preorders-release-window-leak/
+
+Details on the next Assassin's Creed game are finally here, including the editions, a planned pre-order bonus, and a possible release window.
+---------
+
+# $1.5B Action Sequel With One Of The Most Tearjerker Endings Of All-Time Is Racing Up U.S. Streaming Charts
+
+Movies, Masked Recs
+
+Tue, 14 Jul 2026 19:51:29 GMT
+
+https://screenrant.com/furious-7-peacock-streaming-success-july-2026-tearjerker-ending/
+
+A $1.5 billion action sequel with one of the most tearjerker endings of all-time is racing up the streaming charts in the United States.
+---------
+
+# Avengers: Doomsday Writer Wants Glen Powell As Fan-Favorite Hero & It Could Already Be Happening
+
+Movies, Masked Recs
+
+Tue, 14 Jul 2026 19:31:30 GMT
+
+https://screenrant.com/glen-powell-mcu-nova-casting-update-marvel-studios/
+
+One of Avengers: Doomsday's writers revealed the Marvel hero Glen Powell should play, and a new MCU movie update suggests it could be happening.
+---------
+
+# Jensen Ackles Offers First Batman DC Universe Casting Update In 6 Months
+
+Movies, The Brave and the Bold, Batman, DC Universe
+
+Tue, 14 Jul 2026 19:30:50 GMT
+
+https://screenrant.com/dcu-batman-brave-bold-casting-update-jensen-ackles/
+
+Jensen Ackles, who continues to be one of the big fan-favorite choices for Batman in James Gunn's DC Universe, finally shares a casting update.
+---------
+
+# Paramount+ Is Dismantling Star Trek After a Historic 9-Year Streaming Run
+
+TV, Star Trek, Paramount Plus, Sci-Fi
+
+Tue, 14 Jul 2026 20:31:11 GMT
+
+https://www.cbr.com/paramount-star-trek-streaming-reset/
+
+After a successful nine-year run of Star Trek series on streaming, Paramount faces uncertainty as no new shows are currently in development.
+---------
+
+# 10 Best Anime Series for People Who Hate Long-Running Shonen
+
+Anime, Cowboy Bebop, Devilman Crybaby, Cyberpunk: Edgerunners
+
+Tue, 14 Jul 2026 20:15:11 GMT
+
+https://www.cbr.com/best-short-anime-non-long-shonen-series/
+
+Shows like Devilman Crybaby and Cowboy Bebop are perfect for fans who don't have time for endless shonen adventures.
+---------
+
+# Christopher Nolan Gets Unexpected Rival As AI The Odyssey Movie Is Announced
+
+Movies, The Odyssey, Artificial Intelligence
+
+Tue, 14 Jul 2026 20:08:13 GMT
+
+https://www.cbr.com/christopher-nolan-the-odyssey-ai-rival/
+
+We have The Odyssey at home.
+---------
+
+# Naruto Blazing Makes an Unexpected Comeback After 6 Years
+
+Anime, Naruto, namco bandai
+
+Tue, 14 Jul 2026 20:00:11 GMT
+
+https://www.cbr.com/naruto-shippuden-ultimate-ninja-blazing-revival/
+
+A new project is bringing back Naruto Shippuden: Ultimate Ninja Blazing by recreating the game on a private server.
+---------
+
+# Clint Eastwood's Unforgiven is Better Than Tombstone
+
+Movies, Western, Tombstone, Unforgiven
+
+Tue, 14 Jul 2026 20:00:11 GMT
+
+https://www.cbr.com/clint-eastwoods-unforgiven-better-than-tombstone/
+
+As great as Tombstone is, when it comes to '90s Westerns, Clint Eastwood's magnum opus claimed the top spot, and nothing has come close since.
+---------
+
+# A Massive Sci-Fi Universe Is Expanding With New Thrilling Spinoffs
+
+Comics, Stellaris
+
+Tue, 14 Jul 2026 20:00:11 GMT
+
+https://www.cbr.com/dren-productions-stellaris-comics-spinoffs-confirmed/
+
+Stellaris, the popular sci-fi strategy game, is receiving its own graphic novel series.
+---------
+
+# The Last Starfighter Sequel's Writer Talks Time Jumps, Alex's New Journey And More
+
+CBR Exclusives, The Last Starfighter
+
+Tue, 14 Jul 2026 19:36:23 GMT
+
+https://www.cbr.com/last-starfighter-sequel-interview-ben-raab-deric-hughes/
+
+In a CBR exclusive interview with Ben Raab and Deric A. Hughes, the writers of The Last Starfighter sequel, learn how they chose to adapt the film
+---------
+
+# Ryan Murphy’s New Serial Killer Series Based on Bestselling Book Unveils Lush Trailer
+
+TV, The Shards, Ryan Murphy
+
+Tue, 14 Jul 2026 19:07:47 GMT
+
+https://www.cbr.com/ryan-murphy-the-shards-trailer/
+
+Ryan Murphy knows how to sell a serial killer series — especially when set in a different period.
+---------
+
+# 'Alien: Earth' Creator's Highly Anticipated Video Game Series Officially Casts Steve Buscemi
+
+TV News, Far Cry, Alien: Earth, Noah Hawley, Steve Buscemi
+
+Tue, 14 Jul 2026 20:19:46 GMT
+
+https://collider.com/fx-hulu-far-cry-series-cast-steve-buscemi/
+
+FX's adaptation of the popular Far Cry video game series has officially added Steve Buscemi alongside Rob Mac.
+---------
+
+# 'Bosch' Star Titus Welliver Will Not Return for George R.R. Martin's Western Crime Hit
+
+TV News, Dark Winds, Titus Welliver, The Night Agent, AMC
+
+Tue, 14 Jul 2026 20:10:28 GMT
+
+https://collider.com/bosch-titus-welliver-dark-winds-season-5-not-returning/
+
+Despite becoming an instant fan-favorite, Bosch's Titus Welliver will not be returning for the new season of George R.R. Martin's hit crime series.
+---------
+
+# 10 TV Shows That Became Hits by Abandoning Their Original Premise
+
+TV, Big Brother, Community, The Office, Fear the Walking Dead
+
+Tue, 14 Jul 2026 19:44:12 GMT
+
+https://collider.com/tv-shows-changed-original-premise/
+
+From Big Brother to The Office, Fringe to Cougar Town, these TV shows changed their concepts and drastically improved because of it.
+---------
+
+# 10 Most Fatalistic Movies of All Time
+
+Movie, The Mist, Se7en, The Vanishing, Come And See
+
+Tue, 14 Jul 2026 19:24:12 GMT
+
+https://collider.com/most-fatalistic-movies-all-time-ranked/
+
+Stellar movies like Seven and Melancholia feature bleak, disturbing, and hopeless plots that cement them in the pantheon of great fatalistic cinema.
+---------
+
+# This 'Project Hail Mary' Meets 'Cast Away' Survival Thriller Video Game Could Be Streaming's Next Big Hit
+
+TV Features, Video Game, Sci-Fi, Television, Thriller
+
+Tue, 14 Jul 2026 19:22:12 GMT
+
+https://collider.com/this-survival-thriller-video-game-deserves-a-terrifying-adaptation/
+
+One video game series that deserves its own adaptation is Subnautica, which would make for a terrifying and captivating adaptation.
+---------
+
+# Lord of the Rings Is Finally Back With Its First Official Teaser
+
+Movie News, The Lord of the Rings: The Hunt for Gollum, Andy Serkis, The Lord of the Rings, Fantasy
+
+Tue, 14 Jul 2026 19:22:09 GMT
+
+https://collider.com/the-lord-of-the-rings-the-hunt-for-gollum-filming-start-teaser-andy-serkis/
+
+The Hunt for Gollum is on, as Andy Serkis stars in the first teaser for the new Lord of the Rings movie. See it here!
+---------
+
+# Original 'Buffy' Star Finally Reacts to Hulu's Cancelled Sci-Fi Reboot
+
+TV News, Buffy The Vampire Slayer, Hulu, David Boreanaz, Sarah Michelle Gellar
+
+Tue, 14 Jul 2026 19:15:02 GMT
+
+https://collider.com/buffy-the-vampire-slayer-hulu-reboot-response-david-boreanaz/
+
+David Boreanaz has responded to the cancellation of Hulu's Buffy the Vampire Slayer reboot . Read on for all the details.
+---------
+
+# 'Superman 2' Officially Bringing Back DC Superhero After Short-Lived DCEU Stint
+
+Movie News, Man of Tomorrow, Blue Beetle, Superman, DCU
+
+Tue, 14 Jul 2026 20:33:34 GMT
+
+https://movieweb.com/man-of-tomorrow-blue-beetle/
+
+Xolo Maridueña will reprise his role as Blue Beetle in 'Man of Tomorrow.'
+---------
+
+# 'The Odyssey' Gets All-New Streaming Release 3 Days Before the Action Epic Even Debuts
+
+Movie News, The Odyssey
+
+Tue, 14 Jul 2026 20:13:30 GMT
+
+https://movieweb.com/the-odyssey-gets-all-new-streaming-release/
+
+An extensive new look at the movie has hit streaming platforms.
+---------
+
+# Sydney Sweeney's R-Rated Box Office Disaster Scores Big on Streaming
+
+Movie News, Sydney Sweeney, Christy, Hot on Streaming
+
+Tue, 14 Jul 2026 20:01:15 GMT
+
+https://movieweb.com/christy-sydney-sweeney-streaming-hit-hbo-max-july-2026/
+
+The biopic was one of 2025's notorious box office bombs.
+---------
+
+# Steven Spielberg's 'Disclosure Day' Digital Streaming Date Officially Confirmed
+
+Movie News, Disclosure Day, Sci-Fi, Steven Spielberg
+
+Tue, 14 Jul 2026 19:42:47 GMT
+
+https://movieweb.com/disclosure-day-digital-streaming-date/
+
+You can watch Steven Spielberg's latest sci-fi smash at home very soon.
+---------
+
+# First Official 'Hunt for Gollum' Teaser Revives 'Lord of the Rings' Icon
+
+Movie News, The Lord of the Rings: The Hunt for Gollum, Andy Serkis
+
+Tue, 14 Jul 2026 19:33:43 GMT
+
+https://movieweb.com/the-lord-of-the-rings-the-hunt-for-gollum-first-footage/
+
+One of the biggest characters from 'The Lord of the Rings' is back in new footage from production on 'The Hunt for Gollum.'
+---------
+
 # Apple TV's 3-Season 'Lost Meets Fallout' Sci-Fi Series Succeeds In Its Hardest Task
 
 TV, Masked Recs
