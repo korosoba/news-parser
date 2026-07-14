@@ -1,3 +1,223 @@
+# Star Trek: Strange New Worlds Showrunner Explains Why Season 4's Wrath Of Khan Shakeup Isn't A “Retcon”
+
+TV, Star Trek: Strange New Worlds, Star Trek II: The Wrath of Khan
+
+Tue, 14 Jul 2026 23:13:26 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-david-retcon-henry-alonso-myers-explained/
+
+Star Trek: Strange New Worlds' Henry Alonso Myers explained why one of season 4's stories doesn't actually contradict The Wrath of Khan.
+---------
+
+# Netflix's 7-Season Sci-Fi Series Beat Star Trek At Its Own Game
+
+TV, Masked Recs
+
+Tue, 14 Jul 2026 23:05:17 GMT
+
+https://screenrant.com/star-trek-black-mirror-netflix-beat-at-own-game/
+
+Netflix's longest-running sci-fi series is not only a masterpiece, but also accidentally created an ideal Star Trek replacement in two outings.
+---------
+
+# Lord Of The Rings Officially Returns August 14 With New Retelling Of The Hobbit
+
+Gaming, The Lord of the Rings, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King, PC
+
+Tue, 14 Jul 2026 23:01:18 GMT
+
+https://screenrant.com/lord-of-the-rings-magic-gathering-hobbit-story/
+
+Lord of the Rings will make an official return on August 14 with a brand-new retelling of Tolkien's The Hobbit tale.
+---------
+
+# 40 Years Later, These 5 Best Lines From Aliens Still Hit Hard
+
+Movies, Aliens
+
+Tue, 14 Jul 2026 23:01:18 GMT
+
+https://screenrant.com/aliens-movie-1986-best-lines/
+
+Aliens is officially celebrating its 40th anniversary this week, and these five iconic lines from the hit film still hit hard after all these years.
+---------
+
+# House Of The Dragon S3 Reveals A Song Of Ice & Fire Detail Cut From GOT
+
+TV, House of the Dragon, House of the Dragon - Season 3, Game Of Thrones, Game of Thrones, A Song of Ice and Fire
+
+Tue, 14 Jul 2026 23:00:07 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-cyvasse-game-image/
+
+House of the Dragon season 3 reveals a detail from George R.R. Martin's A Song of Ice and Fire novels that never appeared in Game of Thrones.
+---------
+
+# Domhnall Gleeson's New 'Charming to a Fault' Fantasy Comedy With 92% RT Debuts First Look
+
+Movies, The Incomer
+
+Tue, 14 Jul 2026 23:38:39 GMT
+
+https://www.cbr.com/the-incomer-official-trailer/
+
+The new comedy impressed the critics at Sundance ahead of its upcoming wide release.
+---------
+
+# Marvel's Gritty 2-Season Superhero Series Returns to the Charts on Disney+
+
+TV, The Punisher, Marvel, Disney+
+
+Tue, 14 Jul 2026 23:00:12 GMT
+
+https://www.cbr.com/marvel-the-punisher-superhero-disney-plus-success-july-2026/
+
+The fan-favorite vigilante recently marked a big return.
+---------
+
+# Apple TV's New 5-Star Thriller Remake Is Quietly Flying Under Everyone's Radar
+
+TV, Cape Fear
+
+Tue, 14 Jul 2026 23:00:12 GMT
+
+https://www.cbr.com/apple-tv-cape-fear-underrated-thriller/
+
+Apple TV has a great track record with shows, but negative reviews for one of its latest is discouraging viewers when it doesn't deserve them.
+---------
+
+# X-Men’s New Wolverine Reveals the Most '90s Superpower Marvel Has Ever Introduced
+
+Comics, X-Men, Wolverine, Marvel Comics
+
+Tue, 14 Jul 2026 23:00:12 GMT
+
+https://www.cbr.com/x-men-dnx-scalphunter-wolverine-replacement/
+
+From hunter to antihero, Greycrow will be filling the void on the X-Men left by Wolverine with a prominent role in the upcoming DNX crossover arc.
+---------
+
+# The 5 Best Action Movies of 2026 So Far, Ranked
+
+Movies, Action
+
+Tue, 14 Jul 2026 23:00:12 GMT
+
+https://www.cbr.com/best-action-movies-so-far-2026-list/
+
+Action movies always remain in demand for audiences and 2026 has already given fans some outstanding movies in the genre.
+---------
+
+# Daemons of the Shadow Realm Had to Be the Opposite of Fullmetal Alchemist, Creator Says
+
+Anime, Fullmetal Alchemist, Daemons of the Shadow Realm, Square Enix
+
+Tue, 14 Jul 2026 23:00:12 GMT
+
+https://www.cbr.com/daemons-of-the-shadow-realm-fma-hiromu-arakawa-opposite/
+
+FMA creator Hiromu Arakawa explains why she chose not to go with her previously successful narrative for her new hit series.
+---------
+
+# 'House of the Dragon' Just Gave 'Fire & Blood' Fans Hope With These 5 Words
+
+TV Features, House of the Dragon, Game Of Thrones, Tom Glynn-Carney, HBO
+
+Tue, 14 Jul 2026 23:43:12 GMT
+
+https://collider.com/house-of-the-dragon-fire-and-blood-aegon-sunfyre-alive/
+
+Aegon II's reunion with Sunfyre proves the dragon is potentially alive in the latest House of the Dragon episode, giving hope to book fans.
+---------
+
+# New 'The Mandalorian' Sequel Officially Confirmed for July 31
+
+Gaming News, The Mandalorian and Grogu, The Mandalorian, Star Wars, Pedro Pascal
+
+Tue, 14 Jul 2026 23:21:46 GMT
+
+https://collider.com/star-wars-the-mandalorian-adventures-tabletop-game-sworn-to-the-creed-expansion-release-date-july-31-2026/
+
+The Mandalorian and Grogu are officially returning to the Star Wars galaxy with a brand-new release at the end of the month.
+---------
+
+# Rebecca Ferguson's "Half-Mel Brooks" Fantasy Epic Is Taking Over Free Streaming
+
+Movie News, Rebecca Ferguson, Hercules, Dwayne Johnson, The Odyssey
+
+Tue, 14 Jul 2026 23:15:37 GMT
+
+https://collider.com/rebecca-ferguson-epic-hercules-free-streaming-pluto-tv-july-2026/
+
+Rebecca Ferguson's Hercules, Gladiator, and more are heading to free streaming ahead of Christopher Nolan's The Odyssey.
+---------
+
+# 10 Sci-Fi Movie Masterpieces That Clearly Influenced Apple TV's 'Silo'
+
+Movie, Sci-Fi, Apple TV, Silo, Alien
+
+Tue, 14 Jul 2026 23:15:12 GMT
+
+https://collider.com/silo-apple-tv-sci-fi-movie-influences/
+
+The greatest sci-fi show currently airing, Apple TV's Silo owes a debt to classic films of the genre like Alien, Logan's Run, and Dark City.
+---------
+
+# Tatiana Maslany’s Apple TV Thriller Officially Returns With Finale Sneak Peek [Exclusive]
+
+TV News, Maximum Pleasure Guaranteed, Tatiana Maslany, Jake Johnson, Apple TV
+
+Tue, 14 Jul 2026 23:12:04 GMT
+
+https://collider.com/maximum-pleasure-guaranteed-finale-sneak-peek/
+
+Tatiana Maslany fights for her daughter in the courtroom in a sneak peek of the Maximum Pleasure Guaranteed finale. Watch it now.
+---------
+
+# Titus Welliver’s Calls His New ‘Bosch’ Replacement “Incredible” in Fantastic Update
+
+TV News, Bosch, Bosch: Legacy, Bosch: Start of Watch
+
+Tue, 14 Jul 2026 23:00:28 GMT
+
+https://collider.com/bosch-start-of-watch-titus-welliver-comments-cameron-monaghan/
+
+Titus Welliver says Bosch: Start of Watch brings back the franchise’s “true OGs,” with Cameron Monaghan taking over as Harry Bosch.
+---------
+
+# Apple TV Quietly Cancels Ridley Scott’s 10/10 Best Crime Thriller
+
+TV News, Dope Thief, Ridley Scott, Apple TV, Wagner Moura
+
+Tue, 14 Jul 2026 22:50:51 GMT
+
+https://collider.com/ridley-scott-dope-thief-season-2-cancelled-apple-tv/
+
+Producer David W. Zucker provides an update on the second season of Dope Thief, the Ridley Scott-produced Apple TV crime thriller.
+---------
+
+# FX's 6-Part Action Franchise Adaptation Officially Adds 'Fargo' Star
+
+TV News, Steve Buscemi, Far Cry
+
+Tue, 14 Jul 2026 23:41:07 GMT
+
+https://movieweb.com/far-cry-tv-show-adaptation-steve-buscemi/
+
+The 'Far Cry' adaptation from Noah Hawley has added Steve Buscemi to the mix.
+---------
+
+# Taylor Sheridan's 'Landman' Returning in 2 Months With Official New Release
+
+TV News, Landman, Taylor Sheridan
+
+Tue, 14 Jul 2026 23:09:19 GMT
+
+https://movieweb.com/landman-season-2-blu-ray-release/
+
+A new Blu-ray and DVD release for Season 2 is now on the way, giving fans another reason to revisit the hit series.
+---------
+
 # Stephen King Responds To His Books Being Banned In Red State
 
 Books, Stephen King
