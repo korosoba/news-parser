@@ -1,3 +1,256 @@
+# Pokémon Officially Announces Brand-New 2026 Game Featuring Team Rocket's Return
+
+Gaming, Pokemon
+
+Tue, 14 Jul 2026 12:42:08 GMT
+
+https://screenrant.com/pokemon-team-rocket-board-game-2026/
+
+Pokémon has officially announced a new game all that's all about Team Rocket, and while some details are still vague, it'll release in 2026.
+---------
+
+# Kevin Smith Changed Pop Culture Before He Ever Made a Movie
+
+DC Comics, Kevin Smith
+
+Tue, 14 Jul 2026 12:37:11 GMT
+
+https://screenrant.com/kevin-smith-kill-jason-todd-vote-batman-dc/
+
+Kevin Smith helped seal a pop culture icon's fate.
+---------
+
+# 5 New Netflix Shows To Binge This Week (July 13–17)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Tue, 14 Jul 2026 12:34:18 GMT
+
+https://screenrant.com/netflix-new-shows-week-binge-july-10/
+
+Five of the best new shows to binge-watch on Netflix this week, July 13–17, 2026, include a sports docuseries and a hilarious star-studded comedy.
+---------
+
+# Pokémon Colosseum Official Nintendo Switch 2 Announcement Frustrates Gamers
+
+Gaming, Pokemon
+
+Tue, 14 Jul 2026 12:31:17 GMT
+
+https://screenrant.com/pokemon-colosseum-switch-2-release-date-frustrations/
+
+Pokémon Colosseum is a classic title in its own right, but a recent announcement has gone down poorly with fans overall.
+---------
+
+# FX’s “Absolutely Bonkers” Sci-Fi Horror Series Hits Major Season 2 Setback
+
+TV, The Beauty, FX
+
+Tue, 14 Jul 2026 12:31:17 GMT
+
+https://screenrant.com/the-beauty-season-2-show-cast-options-expire/
+
+FX and Ryan Murphy's new sci-fi horror series faces a major season 2 setback, as a new update could put the show's future into question.
+---------
+
+# CBS Officially Reverses NCIS's Saddest Curse Today
+
+Network TV, NCIS
+
+Tue, 14 Jul 2026 12:15:17 GMT
+
+https://screenrant.com/ncis-no-original-character-curse-reverse-cbs/
+
+Months before NCIS season 24 premieres, today marks that day tat CBS is officially reversing the saddest curse that the procedural has ever had.
+---------
+
+# The Conjuring Prequel Reportedly Casts New Ed & Lorraine Warren
+
+Horror, The Conjuring Universe
+
+Tue, 14 Jul 2026 12:14:09 GMT
+
+https://screenrant.com/the-conjuring-first-communion-prequel-ed-lorraine-warren-cast/
+
+The Conjuring is coming back for more, as the prequel reportedly finds its new stars to replace Patrick Wilson and Vera Farmiga as Ed & Lorraine.
+---------
+
+# Baldur's Gate 3 Completely Switches Genre In Trials Of Tav
+
+Gaming, Baldur's Gate 3, PC
+
+Tue, 14 Jul 2026 12:12:13 GMT
+
+https://screenrant.com/baldurs-gate-3-trials-of-tav-roguelike-mod/
+
+Baldur's Gate 3 fans looking for a change of pace can check out Trials of Tav, which completely revamps the game into a new genre.
+---------
+
+# Resident Evil 10 Lead Character Has Gamers Divided
+
+Gaming, Resident Evil, Resident Evil 9
+
+Tue, 14 Jul 2026 12:00:18 GMT
+
+https://screenrant.com/resident-evil-10-lead-character-speculation/
+
+Resident Evil is in a great place right now, but fan thoughts have already turned towards the potential pitfalls of a sequel.
+---------
+
+# Enola Holmes 3's Crucial Mistakes That Made It The Worst Entry In The Series
+
+Movies, Enola Holmes 3, Op-Ed
+
+Tue, 14 Jul 2026 12:00:18 GMT
+
+https://screenrant.com/enola-holmes-3-mistakes-worst-movie-in-franchise/
+
+Enola Holmes 3 is the first film in the series to receive lackluster reviews and a handful of aspects can be pointed to for the movie's struggles.
+---------
+
+# Marvel Studios Is Officially Developing a Nova Movie
+
+Movies, Nova, MCU, superheroes
+
+Tue, 14 Jul 2026 12:00:12 GMT
+
+https://www.cbr.com/marvel-studios-nova-movie-avengers-doomsday-secret-wars/
+
+Marvel Studios has confirmed its next solo superhero movie for after Avengers: Doomsday and Secret Wars, and it's someone fans have been waiting for.
+---------
+
+# Scott Snyder Reveals the One Thing Absolute Batman Animated Series Won’t Change From the Comic
+
+Comics, Absolute Batman
+
+Tue, 14 Jul 2026 12:00:12 GMT
+
+https://www.cbr.com/scott-snyder-absolute-batman-animated-series-update/
+
+Will the Absolute Batman animated series be an absolute copy?
+---------
+
+# Prime Video's Gritty 2-Part Batman Show Is Throwing Away the DC Rulebook After Supergirl
+
+TV, Batman: Caped Crusader, Batman, Animation
+
+Tue, 14 Jul 2026 11:30:11 GMT
+
+https://www.cbr.com/prime-video-batman-caped-crusader-changes-dc-rulebook-post-supergirl/
+
+Batman: Caped Crusader returns to Prime Video, and after the DCU's Supergirl failed to launch, Bruce Timm could save DC once again.
+---------
+
+# George R.R. Martin Revealed His Ending Plans for A Song of Ice and Fire Years Ago
+
+TV Features, Game Of Thrones, HBO Max, George R.R. Martin, A Song of Ice and Fire
+
+Tue, 14 Jul 2026 12:36:12 GMT
+
+https://collider.com/george-rr-martin-game-of-thrones-ending-song-of-ice-and-fire/
+
+George R.R. Martin's A Song of Ice and Fire series may ultimately end similarly to Game of Thrones, despite fan theories and speculation.
+---------
+
+# 10 Classic Horror Books You Must Read in 2026
+
+Books and Comics, Horror, The Haunting of Hill House, Books
+
+Tue, 14 Jul 2026 12:27:13 GMT
+
+https://collider.com/classic-horror-books-must-read-2026/
+
+It's always a great time to experience a horror classic, and books like The Call of Cthulhu and Ghost Story will make for exceptional reads in 2026.
+---------
+
+# The 10 Best Thriller Movies Where the Villain Wins
+
+Movie, Thriller, Se7en, No Country for Old Men, The Silence of the Lambs
+
+Tue, 14 Jul 2026 12:14:11 GMT
+
+https://collider.com/thriller-movies-where-villain-wins/
+
+Chilling classics like Funny Games and Se7en are among the best thrillers where the villain walks away victorious.
+---------
+
+# Taylor Sheridan's Explosive Spy Series Quietly Climbs the Streaming Ranks
+
+TV News, Taylor Sheridan, Paramount Plus, Lioness, streaming
+
+Tue, 14 Jul 2026 12:00:12 GMT
+
+https://collider.com/taylor-sheridan-lioness-streaming-hit-paramount-plus-july-2026/
+
+Taylor Sheridan's spy series Lioness is climbing the streaming ranks on Paramount+, with a 10% increase in U.S. households reached in Season 2.
+---------
+
+# 10 Greatest Fantasy Books of the 2020s (So Far), Ranked
+
+TV, The Witcher, Books, Fantasy, The Princess Bride
+
+Tue, 14 Jul 2026 11:52:12 GMT
+
+https://collider.com/2020s-fantasy-books-best-ranked/
+
+From Tress of the Emerald Sea to Crossroads of Ravens, these are the best fantasy novels to come out during the 2020s... so far, anyway.
+---------
+
+# George R.R. Martin Set To Finally Deliver 'The Winds of Winter' Update in 1 Month
+
+Books and Comics News, George R.R. Martin, The Winds of Winter, Game Of Thrones, House of the Dragon
+
+Tue, 14 Jul 2026 11:31:12 GMT
+
+https://collider.com/george-rr-martin-the-winds-of-winter-worldcon-2026-appearance/
+
+George R.R. Martin will appear at LAcon V next month, shortly after The Winds of Winter passed another staggering milestone.
+---------
+
+# 10 Movies That Take Themselves Way Too Seriously
+
+Movie, The Batman, Justice League, Cowboys & Aliens, Spectre
+
+Tue, 14 Jul 2026 11:31:12 GMT
+
+https://collider.com/movies-take-themselves-too-seriously/
+
+Movies like Crash and Spectre take themselves way too seriously, ruining what would otherwise be compelling and unique narratives by being too morose.
+---------
+
+# 'Dune: Part Three's Focus on Paul's Villain Arc Could Ruin the Books' Greatest Part
+
+Movie Features, Dune: Part Three, Denis Villeneuve, Dune, Dune: Part Two
+
+Tue, 14 Jul 2026 11:04:12 GMT
+
+https://collider.com/dune-part-3-paul-villain-arc-distracts-from-leto-ii/
+
+Denis Villeneuve finally delivered the Paul Atreides villain story everyone needed, but Dune: Part 3 still needs room to involve the next generation.
+---------
+
+# Nicolas Cage's R-Rated War Epic From Legendary Action Icon Gets New Release
+
+Movie News, Windtalkers, Nicolas Cage, War, John Woo
+
+Tue, 14 Jul 2026 12:26:20 GMT
+
+https://movieweb.com/windtalkers-blu-ray-release/
+
+John Woo’s World War II action epic 'Windtalkers,' starring Nicolas Cage, has received a new Blu-ray release as part of the MVD Marquee Collection.
+---------
+
+# What Time 'Lucky' Releases on Apple TV & Full Season Schedule
+
+Features, Lucky, Coming/Leaving Streaming
+
+Tue, 14 Jul 2026 12:00:16 GMT
+
+https://movieweb.com/lucky-apple-tv-release-schedule/
+
+Anya Taylor-Joy headlines 'Lucky', a new 7-part Apple TV crime miniseries that is releasing this summer.
+---------
+
 # Animal Crossing: New Horizons Free July 2026 DLC Released
 
 Gaming, Animal Crossing, Animal Crossing New Horizons
