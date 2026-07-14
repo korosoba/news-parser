@@ -1,3 +1,344 @@
+# Inglourious Basterds Meets Back To The Future In Netflix's 8-Part Stephen King Series
+
+Classic TV, Masked Recs
+
+Tue, 14 Jul 2026 01:00:18 GMT
+
+https://screenrant.com/11-22-63-stephen-king-time-travel-show-netflix-sci-fi/
+
+Netflix is currently home to one of the best and most underrated Stephen King sci-fi thriller shows, and it's a perfect show to binge-watch.
+---------
+
+# Action-Packed New Fantasy Series Drops New Look At Its Unlikeliest Champion (Exclusive)
+
+Comics
+
+Tue, 14 Jul 2026 01:00:18 GMT
+
+https://screenrant.com/champion-of-the-rose-action-fantasy-trailer/
+
+The oppressive Empire of Sagrada's new tournament could shape its future, as long as it doesn't consume its mightiest fighter or his patron first.
+---------
+
+# Dragon Ball Z: Kakarot Sequel Leaves Fans Split
+
+Gaming, Dragon Ball Z, Triple-A Games
+
+Tue, 14 Jul 2026 01:00:18 GMT
+
+https://screenrant.com/dragon-ball-z-kakarot-sequel-hopes/
+
+Fans of the action RPG Dragon Ball Z: Kakarot are eager for a sequel, and it looks like there's mixed reactions given a recent event.
+---------
+
+# The X-Files Reboot Needs To Get This One Element Right In Order To Be Successful
+
+TV, The X-Files
+
+Tue, 14 Jul 2026 01:00:18 GMT
+
+https://screenrant.com/xfiles-reboot-one-element-right-characters/
+
+David Duchovny and Gillian Anderson haven't yet been announced as part of the cast of the reboot, but the success of the new project depends on it.
+---------
+
+# Mike Flanagan’s Carrie Series Confirms 4 Massive Stephen King Book Changes
+
+TV, Carrie
+
+Tue, 14 Jul 2026 00:53:14 GMT
+
+https://screenrant.com/prime-video-carrie-show-stephen-king-book-changes-mike-flanagan-confirmed/
+
+As Mike Flanagan's TV adaptation of Stephen King's Carrie draws closer, he confirms four major changes from the source material to expect.
+---------
+
+# We're Not Joking, Prime Video's 5-Part Fantasy Series Is Superior To The Wheel Of Time
+
+Streaming TV, Masked Recs, The Legend of Vox Machina
+
+Tue, 14 Jul 2026 00:42:17 GMT
+
+https://screenrant.com/the-legend-of-vox-machina-prime-video-fantasy-series-better-wheel-time/
+
+The Wheel of Time is a live-action fantasy epic from Prime Video, but the platform's best fantasy show is actually the animated Legend of Vox Machina.
+---------
+
+# It's Officially The Start Of An Era For Taylor Sheridan's 3-Part Spy Thriller Series
+
+TV, Masked Recs
+
+Tue, 14 Jul 2026 00:35:19 GMT
+
+https://screenrant.com/lioness-paramount-plus-streaming-charts-rise-july-2026/
+
+Taylor Sheridan's spy series returns soon to Paramount+, but ahead of its new season, the espionage show has marked the start of an era.
+---------
+
+# 10 Best K-Drama Performances By K-Pop Idols
+
+Classic TV, K-Drama
+
+Tue, 14 Jul 2026 00:30:17 GMT
+
+https://screenrant.com/best-k-pop-idol-k-drama-performances-ranked/
+
+Countless K-pop legends have appeared on television, but only true triple threats go down in K-drama history for their iconic acting moments.
+---------
+
+# Star Trek Meets Star Wars In Apple TV's 3-Part Sci-Fi Series
+
+Streaming TV, Masked Recs
+
+Tue, 14 Jul 2026 00:00:18 GMT
+
+https://screenrant.com/foundation-apple-star-trek-meets-star-wars-sci-fi/
+
+Apple TV is home to one of the best sci-fi TV shows in recent years, and it brings together the best elements of Star Trek and Star Wars.
+---------
+
+# 6 Beloved Retro Anime That Are Still Going Strong
+
+Anime
+
+Tue, 14 Jul 2026 00:00:18 GMT
+
+https://screenrant.com/best-retro-anime-continue-2026/
+
+They say all good things must come to an end, but these six legendary anime franchises have spent decades proving that rule wrong.
+---------
+
+# 5 Best Square Enix Games That Aren't Final Fantasy
+
+Games, NieR, Chrono Trigger, Kingdom Hearts, Square Enix, Video Games, Final Fantasy
+
+Tue, 14 Jul 2026 01:45:11 GMT
+
+https://www.cbr.com/best-square-enix-games-not-final-fantasy/
+
+Final Fantasy is the crown jewel of the Square Enix roster, but they several have other games under their umbrella are equally amazing to play.
+---------
+
+# It's Officially a New Era for Naruto
+
+Anime, Naruto, Naruto: Shippuden, Boruto: Naruto Next Generations
+
+Tue, 14 Jul 2026 01:25:12 GMT
+
+https://www.cbr.com/naruto-pubg-mobile-game-animation-new-era-for-anime/
+
+Naruto's new animated short could mean exciting new developments for the franchise, characters, and future ahead.
+---------
+
+# FX's The Beauty Gets an Unfortunate Season 2 Update
+
+TV, The Beauty
+
+Tue, 14 Jul 2026 00:48:48 GMT
+
+https://www.cbr.com/fx-the-beauty-season-2-update/
+
+It's not looking good for the future of The Beauty, which ended its first season on a massive cliffhanger.
+---------
+
+# 5 Greatest Books With Video Game Adaptations
+
+Games, The Witcher, The Lord of the Rings, Parasite Eve, Video Games
+
+Tue, 14 Jul 2026 00:45:12 GMT
+
+https://www.cbr.com/greatest-book-to-video-game-adaptations/
+
+Some video games drew inspiration from exceptional novels, and these 5 book-to-game adaptations represent the best transitions in the gaming medium.
+---------
+
+# 5 Masterpiece Action Anime Better Than Solo Leveling
+
+Anime, Solo Leveling
+
+Tue, 14 Jul 2026 00:30:11 GMT
+
+https://www.cbr.com/masterpiece-action-anime-better-than-solo-leveling/
+
+Solo Leveling is famous for its aura farming and action, but anime like Chainsaw Man are even better.
+---------
+
+# Apple TV's 'Unfilmable' Space Opera Series Beats Star Wars at Its Own Game
+
+TV, Foundation, Sci-Fi, Star Wars
+
+Tue, 14 Jul 2026 00:30:11 GMT
+
+https://www.cbr.com/apple-tv-foundation-sci-fi-better-than-star-wars/
+
+Apple TV's best sci-fi show is secretly everything that Star Wars wants to be.
+---------
+
+# The Last Duel is Ridley Scott's Greatest Movie
+
+Movies, The Last Duel
+
+Tue, 14 Jul 2026 00:30:11 GMT
+
+https://www.cbr.com/best-ridley-scott-movie-the-last-duel/
+
+This five year old box office bomb from Ridley Scott is his best movie since Gladiator, and it deserves far more attention from fantasy fans
+---------
+
+# Jujutsu Kaisen Brings Back Satoru Gojo With New Official Design
+
+Anime, Jujutsu Kaisen
+
+Tue, 14 Jul 2026 00:20:11 GMT
+
+https://www.cbr.com/jujutsu-kaisen-monster-strike-july-2026-update/
+
+The Jujutsu Kaisen anime teams up with an iconic video game to introduce bold new designs for Satoru Gojo, Yuji Itadori and more.
+---------
+
+# Avengers: Doomsday's Epic Runtime Revealed Just Ahead of Early Ticket Sales
+
+Movies, Avengers: Doomsday
+
+Tue, 14 Jul 2026 00:17:08 GMT
+
+https://www.cbr.com/avengers-doomsday-runtime-revealed/
+
+Filmgoers better grab the large popcorn for Avengers: Doomsday in theaters.
+---------
+
+# 10 Crunchyroll Anime That Are 10/10, No Notes
+
+Anime, Crunchyroll, Spy x Family, Jujutsu Kaisen, Demon Slayer: Kimetsu no Yaiba
+
+Tue, 14 Jul 2026 00:15:11 GMT
+
+https://www.cbr.com/perfect-crunchyroll-anime-no-notes/
+
+Crunchyroll's library is full of acclaimed titles with action, drama, or quiet moments of reflection that leave little room for complaints!
+---------
+
+# Paramount+'s Biggest ‘NCIS’ Streaming Mistake Is Still Leaving Out Its Best Series
+
+TV Features, NCIS: Los Angeles, NCIS, Series, Paramount Plus
+
+Tue, 14 Jul 2026 01:47:12 GMT
+
+https://collider.com/paramount-plus-biggest-ncis-streaming-mistake-ncis-los-angeles/
+
+Paramount+ has nearly every NCIS series—except NCIS: Los Angeles. Here’s why the hit procedural deserves to return.
+---------
+
+# 23 Years Before Nolan's 'The Odyssey,' This Oscar-Winning Film Already Modernized the Ancient Epic
+
+Movie Features, Cold Mountain, Jude Law, Nicole Kidman, The Odyssey
+
+Tue, 14 Jul 2026 01:38:12 GMT
+
+https://collider.com/cold-mountain-the-odyssey-christopher-nolan-jude-law/
+
+Before Christopher Nolan's The Odyssey, Anthony Minghella's Cold Mountain brought the ancient Greek epic to the big screen, with an American twist.
+---------
+
+# 10 Movie Sequels That Had Absolutely No Reason To Exist
+
+Movie, Independence Day: Resurgence, I Know What You Did Last Summer, Cars 2, The Huntsman: Winter's War
+
+Tue, 14 Jul 2026 01:11:12 GMT
+
+https://collider.com/worst-movie-sequels-no-reason-to-exist/
+
+Pointless and disappointing movie sequels like Cars 2, Zoolander 2, and The Huntsman: Winter's War genuinely have no reason to exist.
+---------
+
+# 3 Sleeper Hit Series You Need to Binge on Prime Video This Week
+
+TV, Prime Video, With Love, Everybody Hates Chris, Bait
+
+Tue, 14 Jul 2026 01:11:12 GMT
+
+https://collider.com/prime-video-shows-binge-july-13-2026/
+
+Bait, With Love, and Everybody Hates Chris make up our list of the best Prime Video shows to binge the week of July 13, 2026.
+---------
+
+# Disney+ Makes Major Free Streaming Move as Subscription Prices Climb
+
+Disney+, YouTube, Crunchyroll, Paramount Plus
+
+Tue, 14 Jul 2026 01:00:12 GMT
+
+https://collider.com/disney-plus-free-streaming-tier-update/
+
+Disney explores a bold new strategy as subscriber fatigue grows, free rivals surge, and a major legal settlement reshapes optics.
+---------
+
+# 'House of the Dragon' Is Drawing Direct Inspiration From HBO's 'Succession' With Its Latest Twist
+
+TV Features, House of the Dragon, HBO, HBO Max, Succession
+
+Tue, 14 Jul 2026 00:55:12 GMT
+
+https://collider.com/house-of-the-dragon-hbo-succession-twist-daeron-helaena-maelor/
+
+As House of the Dragon's Targaryens fight for the Iron Throne, the show mirrors Succession's family power struggles, with new claimants dividing the family.
+---------
+
+# The ‘Community’ Movie Officially Gets Its Most Encouraging Update Yet
+
+TV Features, Community, Dan Harmon, Peacock
+
+Tue, 14 Jul 2026 00:52:12 GMT
+
+https://collider.com/community-movie-officially-gets-encouraging-update-steve-levy-six-seasons-podcast/
+
+Steve Levy's update on the Community movie reassures us that work continues slow and steady, without any behind-the-scenes drama.
+---------
+
+# 6 Forgotten R-Rated Thrillers That Are Amazing From Start to Finish
+
+Movie, Thriller, let me in, Sleepy Hollow, The Long Goodbye
+
+Tue, 14 Jul 2026 00:09:12 GMT
+
+https://collider.com/forgotten-r-rated-thrillers-amazing-start-to-finish/
+
+From Sleepy Hollow,  to One False Move, to The Long Goodbye, these overlooked R-rated thrillers deserve a watch as soon as possible.
+---------
+
+# The 10 Greatest Crime TV Shows of All Time, Ranked
+
+TV, Crime, Breaking Bad, The Sopranos, The Wire
+
+Tue, 14 Jul 2026 00:05:12 GMT
+
+https://collider.com/best-crime-shows-all-time-ranked/
+
+Some of the greatest shows of all time fall under the crime genre, from The Sopranos to Breaking Bad. Which is the best one?
+---------
+
+# ‘Gladiator’ Meets ‘The Lord of the Rings’ in HBO Max’s $497M Historical Epic
+
+Movie News, The Lord of the Rings, The Odyssey, Troy, Orlando Bloom
+
+Tue, 14 Jul 2026 00:00:12 GMT
+
+https://collider.com/troy-streaming-success-before-the-odyssey-july-2026/
+
+Troy, the epic historical action film is becoming a streaming sensation ahead of the release of Christopher Nolan's epic, The Odyssey.
+---------
+
+# New 'Lord of the Rings' Spin-Off Confirmed to Use Worst AI CGI Trend
+
+Movie News, The Lord of the Rings: The Hunt for Gollum
+
+Mon, 13 Jul 2026 23:51:03 GMT
+
+https://movieweb.com/lord-of-the-rings-ai-deepfake/
+
+Director Andy Serkis revealed 'The Lord of the Rings: The Hunt for Gollum' will use some AI tools to digitally de-age some of the actors.
+---------
+
 # Every Death In Evil Dead Burn, Ranked By Brutality
 
 Movies, Evil Dead Burn, Evil Dead
