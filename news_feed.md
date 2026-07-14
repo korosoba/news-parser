@@ -1,3 +1,256 @@
+# Stephen King Responds To His Books Being Banned In Red State
+
+Books, Stephen King
+
+Tue, 14 Jul 2026 22:45:35 GMT
+
+https://screenrant.com/stephen-king-book-banned-utah-response/
+
+After a red state banned another one of his books, Stephen King has shared his reaction, and once again takes a firm stance on this issue.
+---------
+
+# Netflix's Biggest Korean Zombie Hit Is Expected To Return In 2027
+
+Streaming TV, Masked Recs
+
+Tue, 14 Jul 2026 22:45:17 GMT
+
+https://screenrant.com/all-of-us-are-dead-season-2-2027-release/
+
+Netflix is home to some of the best Korean TV shows in recent years, and its best Korean zombie horror show might finally return in 2027.
+---------
+
+# Rotten Tomatoes Crowns The Best Western Series Of All Time (And It's Not Yellowstone)
+
+Streaming TV, Masked Recs
+
+Tue, 14 Jul 2026 22:31:17 GMT
+
+https://screenrant.com/best-western-tv-show-rotten-tomatoes-justified/
+
+The Western revival has given us some great new Western TV shows to watch, but while critics and audiences can disagree, one stands out as the best.
+---------
+
+# Enjoy These 10 Big Anime Hits? Here Are Their Lesser-Known Spinoffs You May Love
+
+Anime
+
+Tue, 14 Jul 2026 22:31:17 GMT
+
+https://screenrant.com/anime-masterpieces-best-spinoff-series/
+
+Successful anime almost always come with their respective side stories, and here are some that are definitely worth your while.
+---------
+
+# Nintendo Officially Unveils New Classic Game Collection
+
+Gaming, Nintendo
+
+Tue, 14 Jul 2026 22:00:17 GMT
+
+https://screenrant.com/nintendo-classic-game-collection-snes/
+
+A new collection of Nintendo console games you may never have heard of is coming soon, but you might not be able to play them just yet.
+---------
+
+# Netflix's Witcher Replacement Is His Dark Materials Meets The Lord Of The Rings
+
+Streaming TV, Masked Recs
+
+Tue, 14 Jul 2026 22:00:17 GMT
+
+https://screenrant.com/magic-the-gathering-netflix-his-dark-materials-meets-lotr/
+
+After Netflix dropped the ball with The Witcher, the streaming platform has needed a new flagship fantasy show, and an upcoming one may be perfect.
+---------
+
+# Gerard Butler’s ‘John Carpenter Meets The A-Team’ Thriller Is Only On Netflix For 3 More Weeks
+
+Movies, Masked Recs, Gerard Butler
+
+Tue, 14 Jul 2026 22:00:17 GMT
+
+https://screenrant.com/gerard-butler-copshop-leaving-netflix-august-2026-ateam-john-carpenter-comparisons/
+
+Early in August, Gerard Butler's critically-popular action movie that's a mix of John Carpenter and The A-Team will be leaving Netflix.
+---------
+
+# 5 Sci-Fi Franchises Desperately Overdue for a Reboot
+
+Movies, Sci-Fi, Masked Recs
+
+Tue, 14 Jul 2026 22:00:17 GMT
+
+https://screenrant.com/best-classic-sci-fi-franchises-need-reboot/
+
+Yes, we're serious about #1...
+---------
+
+# Spider-Man's Hit TV Show That's Already Renewed For 1 More Season Returns With New Episodes
+
+TV, Masked Recs
+
+Tue, 14 Jul 2026 21:57:06 GMT
+
+https://screenrant.com/marvel-disney-plus-spider-man-tv-show-new-episodes/
+
+Spider-Man's hit TV show, which is one of the Marvel hero's biggest releases ever, returns on streaming with new episodes at the right time.
+---------
+
+# Steven Spielberg's New Divisive Sci-Fi Sets Streaming Release Date
+
+Movies, Disclosure Day
+
+Tue, 14 Jul 2026 22:25:00 GMT
+
+https://www.cbr.com/steven-spielberg-disclosure-day-streaming-release-date/
+
+The sci-fi movie heads home after its theatrical debut last month.
+---------
+
+# 10 Classic '90s Anime Series That Are Unwatchable Today
+
+Anime, Mobile Suit Gundam Wing, Mobile Suit Gundam, Rurouni Kenshin
+
+Tue, 14 Jul 2026 22:15:12 GMT
+
+https://www.cbr.com/classic-90s-anime-series-unwatchable-today/
+
+Some anime classics hold up through the ages, but others just aren't the same when revisited decades later.
+---------
+
+# New Open-World RPG Finally Brings Studio Ghibli and The Legend of Zelda Together
+
+Games, open world, RPG, The Legend of Zelda
+
+Tue, 14 Jul 2026 22:05:12 GMT
+
+https://www.cbr.com/of-peaks-and-tides-studio-ghibli-legend-of-zelda-replacement/
+
+Breath of the Wild meets Studio Ghibli in the upcoming open-world RPG Of Peaks and Tides.
+---------
+
+# Joseph Gordon-Levitt & Timothy Olyphant's Divisive CIA Movie Is Heading to Netflix in Just 1 Day
+
+Movies, Snowden
+
+Tue, 14 Jul 2026 22:00:11 GMT
+
+https://www.cbr.com/snowden-drama-netflix-release-july-2026/
+
+One of the most controversial political thrillers of the past decade is finally heading to one of the biggest streaming platforms.
+---------
+
+# DC's Horror Comics Are Better Than Its Superhero Books
+
+Comics, DC Comics, Horror, DC Vertigo
+
+Tue, 14 Jul 2026 22:00:11 GMT
+
+https://www.cbr.com/dc-horror-comics-better-than-superhero/
+
+As much as the Absolute Universe might be bringing superheroes to new heights, everyone has overlooked a fantastic run of DC horror.
+---------
+
+# The Resident Evil Movie Franchise is a Sci-Fi Horror Masterpiece
+
+Movies, Resident Evil
+
+Tue, 14 Jul 2026 22:00:11 GMT
+
+https://www.cbr.com/milla-jovovich-resident-evil-perfect-horror-franchise/
+
+For all the criticism these Resident Evil movies received from fans and critics, they did what many video game adaptations failed to do.
+---------
+
+# ‘Everybody Loves Raymond’ Is Much Harder To Watch Once You Notice This
+
+TV Features, Everybody Loves Raymond, Ray Romano, CBS, Paramount Plus
+
+Tue, 14 Jul 2026 22:46:12 GMT
+
+https://collider.com/everybody-loves-raymond-ray-barone-worst-character/
+
+Everybody Loves Raymond remains a beloved sitcom classic, but Ray Barone's selfish behavior makes its title increasingly harder to believe on rewatch.
+---------
+
+# Former Rockstar Producer Defends Ignoring PC Players at 'GTA 6' Launch
+
+Gaming News, Rockstar Games, GTA 5, Video Game, PC
+
+Tue, 14 Jul 2026 22:42:53 GMT
+
+https://collider.com/gta-6-skipping-pc-explained-former-rockstar-producer-john-ricchio/
+
+Rockstar is once again leaving PC players hanging with the launch of GTA 6, and a former Grand Theft Auto producer has explained why.
+---------
+
+# ‘Buffy The Vampire Slayer’ Officially Returns Next Month
+
+Books and Comics News, Buffy The Vampire Slayer, Buffy, Hulu, Sarah Michelle Gellar
+
+Tue, 14 Jul 2026 22:36:01 GMT
+
+https://collider.com/buffy-the-vampire-slayer-sequel-series-comic-release-date-august-19-2026/
+
+After the cancellation of the Hulu revival, Buffy the Vampire Slayer is set to return in a new series, launching in August 2026. Here's all to know.
+---------
+
+# 10 Best Epic Thrillers of All Time
+
+Movie, Inglourious Basterds, JFK, One Battle After Another, Kill Bill: The Whole Bloody Affair
+
+Tue, 14 Jul 2026 22:21:12 GMT
+
+https://collider.com/best-epic-thrillers-all-time-ranked/
+
+If you're after amazing thrillers with epic runtimes, it's worth watching the likes of Gangs of Wasseypur, The Towering Inferno, and Kill Bill.
+---------
+
+# David Fincher's Highest-Grossing Film Is Officially One of Netflix's Biggest Streaming Hits
+
+Movie Features, Gone Girl, David Fincher, Ben Affleck, Rosamund Pike
+
+Tue, 14 Jul 2026 21:55:12 GMT
+
+https://collider.com/david-fincher-gone-girl-netflix-streaming-july-2026/
+
+David Fincher's 2014 thriller Gone Girl was the highest-grossing film of his career, and 12 years later, it's climbing the Netflix charts.
+---------
+
+# 'Reacher's Alan Ritchson Gives Major Update on Season 5 of His Action Thriller
+
+TV News, Reacher, Alan Ritchson
+
+Tue, 14 Jul 2026 22:30:58 GMT
+
+https://movieweb.com/reacher-alan-ritchson-filming-season-5/
+
+Alan Ritchson provided a thrilling update on the progress he is making for Season 5 of his hit Prime Video show, 'Reacher.'
+---------
+
+# 'Tracker' Star Officially Confirms Their Season 4 Status in the Action Thriller
+
+TV News, Tracker, Jensen Ackles
+
+Tue, 14 Jul 2026 22:21:27 GMT
+
+https://movieweb.com/tracker-star-confirms-season-4/
+
+Jensen Ackles confirms 'Tracker' Season 4 is already in production.
+---------
+
+# The 10 Best Jack Reacher Books, Ranked
+
+TV Lists, Reacher
+
+Tue, 14 Jul 2026 22:00:15 GMT
+
+https://movieweb.com/best-jack-reacher-books-ranked/
+
+'Reacher,' the Amazon Prime Video action series starring Alan Ritchson, is based on the book series by Lee Child.
+---------
+
 # NBC Quietly Killed Bones' Replacement Before It Even Premiered
 
 TV, Masked Recs
