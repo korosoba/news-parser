@@ -1,3 +1,311 @@
+# NBC Quietly Killed Bones' Replacement Before It Even Premiered
+
+TV, Masked Recs
+
+Tue, 14 Jul 2026 21:28:17 GMT
+
+https://screenrant.com/nbc-emily-deschanel-pilot-key-witness-canceled/
+
+Series star Emily Deschanel's new police procedural sounded like the perfect replacement for the beloved Bones, but NBC quietly killed the show.
+---------
+
+# Prime Bingeable New Assassin Action Series Debuts To Rare Rotten Tomatoes Score
+
+TV, Masked Recs
+
+Tue, 14 Jul 2026 21:21:40 GMT
+
+https://screenrant.com/ride-or-die-prime-video-show-rotten-tomatoes-score/
+
+A rare Rotten Tomatoes score has arrived for Prime Video's new action series featuring a popular television star as an assassin on the run.
+---------
+
+# CBS Franchise With Over 1000 Episodes Officially Breaks Major 5-Year Network Record
+
+TV, Big Brother, CBS
+
+Tue, 14 Jul 2026 21:17:30 GMT
+
+https://screenrant.com/big-brother-season-28-cbs-audience-viewership-record-five-years/
+
+One of the longest-running shows on CBS, which will celebrate its 1,000th episode this summer, has reached a new viewership record for the network.
+---------
+
+# Dutton Ranch Star Reacts To Taylor Sheridan Series’ Massive Viewership Success Ahead Of Season 2 Return
+
+TV, Dutton Ranch, Yellowstone
+
+Tue, 14 Jul 2026 21:15:31 GMT
+
+https://screenrant.com/dutton-ranch-viewership-success-season-2-return-reaction-annette-bening/
+
+Exclusive: Annette Benning reacts to Dutton Ranch's record-breaking viewership success as she gears up for her season 2 return in the series.
+---------
+
+# 10 Near-Perfect Sci-Fi Adventure Movies That No One Remembers Today
+
+Movies, Sci-Fi
+
+Tue, 14 Jul 2026 21:00:18 GMT
+
+https://screenrant.com/great-scifi-adventure-movies-no-one-remembers/
+
+These near-perfect science fiction adventure flicks might be some of the best the genre has to offer, but they are sadly forgotten today.
+---------
+
+# The Expanse Meets War Of The Worlds In Netflix's 8-Part Sci-Fi Series
+
+TV, Masked Recs
+
+Tue, 14 Jul 2026 21:00:18 GMT
+
+https://screenrant.com/3-body-problem-netflix-expanse-meets-war-of-the-worlds/
+
+One underrated Netflix sci-fi series blends The Expanse's ambitious storytelling style with a plot that rivals the genre classic War Of The Worlds.
+---------
+
+# Power Rangers Unveils First Look at New Villain Ahead of Green Ranger’s Return
+
+Comics, Mighty Morphin Power Rangers, Power Rangers
+
+Tue, 14 Jul 2026 20:54:18 GMT
+
+https://screenrant.com/power-rangers-green-new-villain-explained/
+
+Power Rangers fans are officially less than a month away from the return of Tommy Oliver's Green Ranger, and with it, comes a new villain.
+---------
+
+# Alan Ritchson Confirms Reacher Season 5 Filming Timeline
+
+TV, Reacher, Jack Reacher, Alan Ritchson, Prime Video
+
+Tue, 14 Jul 2026 20:52:39 GMT
+
+https://screenrant.com/reacher-season-5-filming-start-date-alan-ritchson/
+
+Exclusive: Alan Ritchson offers a massive filming update on Reacher season 5 while also confirming progress on the next season's scripts.
+---------
+
+# The Wheel Of Time Meets The Hunger Games In Netflix's 2-Part High Fantasy Series
+
+Streaming TV, Masked Recs
+
+Tue, 14 Jul 2026 20:45:18 GMT
+
+https://screenrant.com/shadow-and-bone-netflix-wheel-of-time-meets-hunger-games/
+
+One of Netflix's best high-fantasy TV shows brings together the best things about The Hunger Games and The Wheel of Time, but there's a catch.
+---------
+
+# The Lord of the Rings Finally Reveals First Look at First Movie in 3 Years
+
+Movies, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings, Fantasy
+
+Tue, 14 Jul 2026 21:42:36 GMT
+
+https://www.cbr.com/the-lord-of-the-rings-the-hunt-for-gollum-first-look/
+
+It's finally time to return to the Third Age of Middle-earth.
+---------
+
+# Netflix's Live-Action Series of Hit Animated Fantasy Becomes a PVOD Hit After Underwhelming Season 2 Viewership
+
+TV, Avatar: The Last Airbender, Netflix, Fantasy
+
+Tue, 14 Jul 2026 21:30:12 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-netflix-live-action-fantasy-pvod-success-july-2026/
+
+Netflix's live-action series becomes one of the AppleTV store's most downloaded shows, despite low Season 2 viewership.
+---------
+
+# Apple TV's Mistborn is the Ultimate Fantasy-Cyberpunk Mash-Up
+
+Movies, Mistborn
+
+Tue, 14 Jul 2026 21:30:12 GMT
+
+https://www.cbr.com/apple-tv-mistborn-perfect-fantasy-cyberpunk-mash-up/
+
+Apple TV has acquired the rights to Brandon Sanderson's Mistborn books, giving the streaming studio access to a once-in-a-lifetime franchise.
+---------
+
+# Amazing Spider-Man #1000 Reveals The One Villain Who Can Rewrite Peter Parker's Future
+
+Comics, Marvel, Marvel Comics, MCU, Spider-Man, Amazing Spider-Man, Spider-Man: Brand New Day, Spider-Verse, Spider-Man: Into The Spider-Verse, Spider-Man: Across the Spider-Verse, Spider-Man: Beyond the Spider-Verse
+
+Tue, 14 Jul 2026 21:28:55 GMT
+
+https://www.cbr.com/amazing-spider-man-1000-reveals-villain-rewrites-peter-parker-future/
+
+Marvel just unleashed the 'most frightening' Spider-Man villain in decades.
+---------
+
+# 10 Best Disney Lorcana Villain Cards, Ranked
+
+Games, Disney, Disney Lorcana, Tabletop
+
+Tue, 14 Jul 2026 21:15:12 GMT
+
+https://www.cbr.com/best-disney-lorcana-villain-cards-ranked/
+
+The Disney Lorcana TCG contains as many iconic villains as the movies the game is based on, and these are the best of the best.
+---------
+
+# In Just 1 Day, Titus Welliver & J.K. Simmons' New Crime Drama Is Officially the No. 1 Show After Strong RT Score
+
+TV, The Westies, Crime, MGM+
+
+Tue, 14 Jul 2026 21:00:12 GMT
+
+https://www.cbr.com/titus-welliver-j-k-simmons-the-westies-mgm-crime-drama-success-july-2026/
+
+Titus Welliver & J.K. Simmons team up for an MGM+ crime drama series, The Westies, which is currently dominating streaming.
+---------
+
+# 10 Psychological Thrillers I Knew Would Be Masterpieces
+
+Movies, Thriller, Gone Girl, The Killing of a Sacred Deer, Fight Club, Get Out, Prisoners, The Silence of the Lambs, Parasite, Shutter Island, The Menu, Black Swan
+
+Tue, 14 Jul 2026 21:00:12 GMT
+
+https://www.cbr.com/perfect-psychological-thriller-movies-list/
+
+Some of the most incredible psychological thrillers in cinema history have made a strong impact in their first moments.
+---------
+
+# Tracker Season 4 Will Officially Bring Back 1 Key Character
+
+TV, Tracker
+
+Tue, 14 Jul 2026 20:59:29 GMT
+
+https://www.cbr.com/tracker-season-4-bring-back-jensen-ackles/
+
+The series is currently in production with a major change.
+---------
+
+# James Gunn’s Superman Sequel Officially Brings Back DCEU Star After 4-Year Absence
+
+Movies, Man of Tomorrow, DCU, DC Extended Universe
+
+Tue, 14 Jul 2026 20:41:58 GMT
+
+https://www.cbr.com/superman-2-man-of-tomorrow-blue-beetle-xolo-mariduena/
+
+A DCEU star is making their DCU debut in Man of Tomorrow.
+---------
+
+# 10 Must-Watch Shows After You Finish 'The Bear'
+
+TV, The Bear, The Pitt, Shameless, Girls
+
+Tue, 14 Jul 2026 21:45:12 GMT
+
+https://collider.com/tv-shows-like-the-bear-hulu/
+
+HBO Max's The Pitt, Showtime's Shameless, FX's Atlanta, and Fox's Kitchen Nightmares are perfect to watch after you finish watching Hulu's The Bear.
+---------
+
+# 10 Most Disturbing Books of All Time
+
+Books and Comics, American Psycho, Books, It, Blonde
+
+Tue, 14 Jul 2026 21:42:12 GMT
+
+https://collider.com/most-disturbing-books-all-time-ranked/
+
+Classic books like Blood Meridian, American Psycho, and Gravity's Rainbow can all be counted among the most disturbing literature ever published.
+---------
+
+# 10 Best Gothic Horror Books of All Time
+
+Books and Comics, Horror, Books, Thriller, Vampire
+
+Tue, 14 Jul 2026 21:23:12 GMT
+
+https://collider.com/best-gothic-horror-books-all-time-ranked/
+
+Dracula, The Turn of the Screw, and Strange Case of Dr. Jekyll and Mr. Hyde are all among the very best gothic horror books ever written.
+---------
+
+# This is Prince’s Greatest Song, but He’s Not Even Famous For It
+
+Music Features, Prince, Chris Cornell
+
+Tue, 14 Jul 2026 20:57:12 GMT
+
+https://collider.com/prince-nothing-compares-2-u-sinead-oconnor/
+
+Prince wrote "Nothing Compares 2 U" in 1984 for his funk band The Family, but Irish singer Sinéad O'Connor's 1990 version was a worldwide success
+---------
+
+# Forget 'Peaky Blinders,' Netflix’s Brutal 8-Part Crime Series Is the Perfect Weekend Binge
+
+TV Features, Peaky Blinders, Netflix, House of Guinness, Louis Partridge
+
+Tue, 14 Jul 2026 20:55:12 GMT
+
+https://collider.com/peaky-blinders-replacement-netflix-crime-series-house-of-guinness/
+
+In 2025, Peaky Blinders creator Stephen Knight released the perfect crime replacement with the Netflix drama House of Guinness.
+---------
+
+# The DCU's First Hero Is Officially Back for James Gunn's 'Superman' Sequel
+
+Movie News, Man of Tomorrow, Blue Beetle, Xolo Mariduena, James Gunn
+
+Tue, 14 Jul 2026 20:43:46 GMT
+
+https://collider.com/superman-2-sequel-man-of-tomorrow-cast-xolo-mariduena-blue-beetle-return/
+
+Blue Beetle is officially back! Xolo Maridueña will reprise the fan-favorite role in James Gunn's Superman follow-up, Man of Tomorrow.
+---------
+
+# Ridley Scott's Cancelled 2-Part Sci-Fi Series Gets Its Biggest Update in Years
+
+TV News, Raised by Wolves, Ridley Scott, HBO Max, Sci-Fi
+
+Tue, 14 Jul 2026 20:38:15 GMT
+
+https://collider.com/ridley-scott-sci-fi-series-raised-by-wolves-season-3-cancellation-explained-david-w-zucker/
+
+We finally know why Ridley Scott's Raised by Wolves was cancelled after just two seasons despite widespread acclaim.
+---------
+
+# Netflix's New 8-Part Western Series Is Now One of the Biggest Shows on Streaming
+
+TV News, Little House on the Prairie, Hot on Streaming, Western, Netflix
+
+Tue, 14 Jul 2026 21:47:20 GMT
+
+https://movieweb.com/little-house-on-the-prairie-netflix-western-streaming-july-2026/
+
+Netflix has scored big with their new Western series that puts a fresh spin on the classic novels by Laura Ingalls Wilder.
+---------
+
+# Family-Friendly $1.3 Billion Movie Franchise Is Finally Getting Rebooted
+
+Movie News
+
+Tue, 14 Jul 2026 21:14:46 GMT
+
+https://movieweb.com/alvin-and-the-chipmunks-reboot-franchise/
+
+A new take on 'Alvin and the Chipmunks' is officially in the works.
+---------
+
+# Every ‘Reacher’ Fan Should Watch the Thriller’s Exciting Rival Nobody Remembers
+
+Features, The Day of the Jackal, Reacher
+
+Tue, 14 Jul 2026 21:00:16 GMT
+
+https://movieweb.com/day-of-jackal-reacher-comparison/
+
+'Reacher,' the Amazon Prime Video series starring Alan Ritchson as Jack Reacher, is coming back in August 2026 with Season 4.
+---------
+
 # From & Lost Exist In The Same Universe: Theory Explained
 
 Streaming TV, From
