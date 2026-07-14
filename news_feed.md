@@ -1,3 +1,289 @@
+# Fallout 4 Returns With An Extra-Special New Quest You Can Play Now
+
+Gaming, Fallout 4, Triple-A Games
+
+Tue, 14 Jul 2026 04:31:17 GMT
+
+https://screenrant.com/fallout-4-new-quest-modding-for-charity/
+
+If you've been wanting an excuse to get back into Fallout 4 after a long hiatus, this might be the time to dive back into the adventure.
+---------
+
+# Subnautica Meets Bloodborne In Terrifying New Open-World Survival Game
+
+Gaming, Subnautica 2, Subnautica, Steam, Indie
+
+Tue, 14 Jul 2026 04:01:19 GMT
+
+https://screenrant.com/open-waters-bloodborne-meets-subnautica/
+
+Subnautica may be the reigning champion of oceanic horror games, but this indie Steam game may take the cake regarding how triggering it'll be.
+---------
+
+# Solo Leveling Is Now The Biggest Challenger To Demon Slayer's Throne
+
+Anime, Solo Leveling
+
+Tue, 14 Jul 2026 03:41:40 GMT
+
+https://screenrant.com/solo-leveling-beyond-system-movie-biggest-challenge-demon-slayer-throne/
+
+The announcement of a Solo Leveling anime movie in 2027 has fans buzzing, wondering if it can match Demon Slayer's extraordinary box office success.
+---------
+
+# Naruto Can Finally Beat One Piece For The First Time In 20 Years
+
+Streaming TV, Naruto, One Piece
+
+Tue, 14 Jul 2026 03:30:18 GMT
+
+https://screenrant.com/naruto-live-action-movie-beats-one-piece-after-20-years/
+
+It's been a long time since Naruto could be considered the most popular anime in the United States, but it's looking like that is all about to change.
+---------
+
+# 100-Year-Old Dystopian Cyberpunk Masterpiece That Inspired Blade Runner Predicted 2026
+
+Movies, Masked Recs
+
+Tue, 14 Jul 2026 03:10:06 GMT
+
+https://screenrant.com/1927-metropolis-first-cyberpunk-sci-fi-predict-2026/
+
+A 100-year-old highly acclaimed dystopian cyberpunk masterpiece, which also later inspired Ridley Scott’s Blade Runner, is surprisingly set in 2026.
+---------
+
+# Steam Drops Gorgeous Free Game With 98% Positive Reviews
+
+Gaming, Steam
+
+Tue, 14 Jul 2026 03:00:18 GMT
+
+https://screenrant.com/steam-free-game-hyperfist/
+
+Steam's latest free game proves satisfying combat doesn't need a blockbuster budget to shine.
+---------
+
+# The Major Difference Between X-Men’s Morph & Mystique Powers Explained
+
+Superheroes, X-Men '97, X-Men, Marvel Cinematic Universe
+
+Tue, 14 Jul 2026 02:45:17 GMT
+
+https://screenrant.com/xmen-97-morph-mystique-powers-difference-explained-marvel/
+
+Although Marvel's Morph and Mystique share very similar powersets as key X-Men characters, there are some key notable differences between the two.
+---------
+
+# Supergirl Introduces The Epic Opposite Of Superman's Kryptonite
+
+DC Comics, Supergirl
+
+Tue, 14 Jul 2026 02:39:41 GMT
+
+https://screenrant.com/supergirl-anti-kryptonite-yellow-ring/
+
+Supergirl recovers one of the most secretly powerful weapons in DC's Kryptonian lore, engineered to store and awaken Superman-like powers.
+---------
+
+# Tom Holland’s First Major Spider-Man Villain Nearly Cast A Disney Legend
+
+Movies, Spider-Man, Spider-Man: Homecoming, Marvel Cinematic Universe
+
+Tue, 14 Jul 2026 02:31:37 GMT
+
+https://screenrant.com/spider-man-homecoming-lin-manuel-miranda-vulture-casting/
+
+A surprising Disney star turned down a key villain role in the Marvel Cinematic Universe opposite Tom Holland's Spider-Man.
+---------
+
+# 1 Year Later, These Are The Undisputed 5 Best Moments In James Gunn's Superman
+
+Movies, Superman
+
+Tue, 14 Jul 2026 02:00:28 GMT
+
+https://screenrant.com/1-year-later-these-are-the-undisputed-5-best-moments-in-james-gunns-superman/
+
+James Gunn's Superman turns one year old this week, and there are many moments that cement it as one of the best superhero films in recent years.
+---------
+
+# Gundam SEED's Most Iconic Mecha Transforms Into a Real Honda Ride
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam SEED, merchandise, bandai
+
+Tue, 14 Jul 2026 03:59:11 GMT
+
+https://www.cbr.com/gundam-seed-honda-scooter-reveal/
+
+Bandai and Honda are teaming up for a new exclusive Gundam scooter, with the design and colors based on a premiere mecha from the Cosmic Era.
+---------
+
+# 4 Near-Perfect JRPGs Ruined By the Main Character
+
+Games, Role Playing Game, Video Games, JRPG
+
+Tue, 14 Jul 2026 03:45:12 GMT
+
+https://www.cbr.com/worst-jrpg-main-characters-all-time/
+
+Vaan from Final Fantasy XII and Endir from I Am Setsuna are among the least impressive JRPG protagonists.
+---------
+
+# The Star Trek Episode With 'the Best Ending Ever Filmed' According to Michael Dorn (He's Right)
+
+TV, Star Trek, Star Trek: The Next Generation, Sci-Fi
+
+Tue, 14 Jul 2026 03:30:11 GMT
+
+https://www.cbr.com/star-trek-tng-michael-dorn-best-ending-the-drumhead/
+
+This iconic Star Trek episode stands as a testament to the show's ability to create meaningful, cerebral science fiction with longevity.
+---------
+
+# 5 Classic NES Games That Are 100% Unplayable Today
+
+Games, X-Men, Nintendo, Gaming
+
+Tue, 14 Jul 2026 03:15:12 GMT
+
+https://www.cbr.com/unplayable-classic-nes-games/
+
+The NES era of video gaming was a major step forward in game mechanic and design, not every game got it right!
+---------
+
+# Warner Bros.' 166-Minute Space Opera Is Greatest Sci-Fi Sequel of the 21st Century
+
+Movies, Dune, Dune 2
+
+Tue, 14 Jul 2026 03:15:12 GMT
+
+https://www.cbr.com/dune-part-two-greatest-21-century-sci-fi-sequel/
+
+Sci-fi's greatest franchise continues to top itself, one immaculate film after another.
+---------
+
+# 5 Sci-Fi Books That Can Be the Next Jurassic Park
+
+Movies, Sci-Fi
+
+Tue, 14 Jul 2026 03:00:12 GMT
+
+https://www.cbr.com/sci-fi-books-jurassic-park-replacement-list/
+
+From monster epics to time-travel stories with prehistoric twists, several sci-fi books are begging for onscreen adaptations and blockbuster success.
+---------
+
+# Batman Quietly Transformed Gotham Into DC’s Most Important City
+
+Comics, Batman, DC Comics, Robin
+
+Tue, 14 Jul 2026 03:00:12 GMT
+
+https://www.cbr.com/batman-gotham-dc-comics-most-important-city/
+
+Batman has amassed one of the greatest supporting casts in comics, turning Gotham into a powerhouse more interesting than some solo superhero books.
+---------
+
+# First New Sailor Moon Design in 3 Years Confirms Exclusive SDCC Release
+
+Anime, Sailor Moon, San Diego Comic-Con, merchandise, collectibles
+
+Tue, 14 Jul 2026 03:00:12 GMT
+
+https://www.cbr.com/sailor-moon-figpin-desig-sdcc-release-2026/
+
+Sailor Moon unveils its first new FiGPiN design in nearly three years, coming exclusively to San Diego Comic-Con 2026.
+---------
+
+# Netflix's Squid Game Replacement Series Gets Update With $2M Prize
+
+TV, Monopoly, Netflix, Squid Game
+
+Tue, 14 Jul 2026 02:35:50 GMT
+
+https://www.cbr.com/netflix-monopoly-series-2-million-dollar-prize-details/
+
+The new series has been hailed as perfect for Squid Game fans.
+---------
+
+# Underrated Interview With the Vampire Spinoff Finally Confirms Release Window With Gripping Teaser
+
+TV, Mayfair Witches
+
+Tue, 14 Jul 2026 02:32:08 GMT
+
+https://www.cbr.com/mayfair-witches-season-3-teaser-release-window/
+
+The underrated Anne Rice series gets a new sneak peek as fans await its AMC return.
+---------
+
+# Sam Neill's Horror Roles Prove He Was Always the Genre's Best Kept Secret
+
+Movie Features, Sam Neill, Horror, Event Horizon, In the Mouth of Madness
+
+Tue, 14 Jul 2026 04:05:12 GMT
+
+https://collider.com/sam-neill-best-horror-performance-possession-event-horizon/
+
+Though he's best known as a Jurassic Park hero, Sam Neill also had iconic turns as a good guy gone bad in horror movies like Event Horizon.
+---------
+
+# 9 Best Movies of 2026 So Far You Haven't Heard Of
+
+Movie, Faces of Death, Blue Heron, Saccharine, Power Ballad
+
+Tue, 14 Jul 2026 04:05:12 GMT
+
+https://collider.com/best-movies-2026-you-havent-heard-of/
+
+While there have been many great movies released in 2026 so far, great films like Saccharine, Power Ballad, and Jinsei are still massively overlooked.
+---------
+
+# 8 Classic Mystery Books That Are Perfect From the First Page to the Last
+
+Books and Comics, Mystery, Agatha Christie, The Maltese Falcon, Edgar Allan Poe
+
+Tue, 14 Jul 2026 03:55:12 GMT
+
+https://collider.com/classic-mystery-books-perfect-first-page-to-last/
+
+From the famous Sherlock Holmes crime story The Hound of Baskervilles to The Maltese Falcon, these classic mystery books are genuinely flawless.
+---------
+
+# ABC Officially Changes 'High Potential's Winning Formula for 2026
+
+TV Features, High Potential, ABC, Kaitlin Olson, Procedural
+
+Tue, 14 Jul 2026 03:16:12 GMT
+
+https://collider.com/high-potential-abc-midseason-premiere-change-2026/
+
+ABC announces High Potential Season 3 will premiere mid-season, joining the network's spring lineup, with new showrunners and a shorter episode count.
+---------
+
+# Forget Blockbuster Movies, Big Franchises Need To Focus on Video Games
+
+Gaming, Video Game, Star Wars, Harry Potter, DCU
+
+Tue, 14 Jul 2026 03:11:12 GMT
+
+https://collider.com/star-wars-harry-potter-dc-comics-make-video-games-not-movies/
+
+After so many high-profile failures, franchises like Star Wars, DC Comics, and Harry Potter need to take a break from movies and focus on video games.
+---------
+
+# 10 Crime Thriller Shows That Shouldn't Have Been Canceled
+
+TV Lists, Crime, Mindhunter, Law & Order: Organized Crime
+
+Tue, 14 Jul 2026 02:01:16 GMT
+
+https://movieweb.com/crime-thriller-tv-shows-canceled/
+
+These crime thriller TV shows were canceled despite being high-quality examples of this popular genre.
+---------
+
 # Inglourious Basterds Meets Back To The Future In Netflix's 8-Part Stephen King Series
 
 Classic TV, Masked Recs
