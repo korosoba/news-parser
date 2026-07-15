@@ -1,3 +1,333 @@
+# New Cyberpunk 2077 Game Officially Reveals Brand-New Gameplay
+
+Gaming, tabletop games, Cyberpunk 2077
+
+Wed, 15 Jul 2026 18:34:55 GMT
+
+https://screenrant.com/cyberpunk-2077-board-game-gameplay-reveal/
+
+Cyberpunk 2077's lore and worldbuilding have planted seeds for a beautiful future, and one of the IP's newest entries can blossom alongside it.
+---------
+
+# The New Nightmare On Elm Street Movie Will Be The End Of An Era For Freddy Krueger
+
+Movies, A Nightmare on Elm Street, Freddy Krueger
+
+Wed, 15 Jul 2026 18:30:18 GMT
+
+https://screenrant.com/new-nightmare-elm-street-movie-end-era-studio/
+
+Freddy Krueger is returning to theaters in a new Nightmare on Elm Street remake, but his latest big-screen appearance will be the end of an era.
+---------
+
+# New Timothy Olyphant Apple TV Thriller Series Lucky's Season 2 Potential Addressed By EPs
+
+TV, Lucky, Apple TV, Timothy Olyphant
+
+Wed, 15 Jul 2026 18:24:26 GMT
+
+https://screenrant.com/timothy-olyphant-lucky-season-2-apple-tv-addressed-eps-showrunners/
+
+Exclusive: The showrunners and EPs of Timothy Olyphant's new thriller Lucky address the potential for a season 2 of the Apple TV series.
+---------
+
+# 5 Changes To Robert Pattinson’s Batman Suit & Logo For The Batman 2
+
+Superheroes, The Batman Part II
+
+Wed, 15 Jul 2026 18:16:37 GMT
+
+https://screenrant.com/the-batman-2-batsuit-costume-differences/
+
+Robert Pattinson's Batman suit for The Batman 2 has been officially revealed, and the first look confirms a few changes to the costume and logo.
+---------
+
+# HBO’s 12-Part Sitcom Masterpiece Beats Seinfeld At Its Own Game
+
+TV, Masked Recs
+
+Wed, 15 Jul 2026 18:00:18 GMT
+
+https://screenrant.com/curb-your-enthusiasm-beats-seinfeld-at-own-game/
+
+Seinfeld might have been the most innovative TV sitcom of its generation, but this HBO series  takes its pioneering approach to comedy even further.
+---------
+
+# It's Officially The Start Of An Era For Star Wars' The Mandalorian
+
+TV, The Mandalorian
+
+Wed, 15 Jul 2026 17:56:49 GMT
+
+https://screenrant.com/the-mandalorian-disney-plus-streaming-charts-rise-july-2026/
+
+After The Mandalorian and Grogu movie, Disney+ now marks the start of a new era for Pedro Pascal's Star Wars franchise with an exciting update.
+---------
+
+# DC Finally Unveils Aquaman's New Look for Its Post-Jason Momoa Era
+
+DC Comics, Aquaman
+
+Wed, 15 Jul 2026 17:56:46 GMT
+
+https://screenrant.com/dark-knights-of-steel-aquaman-reveal/
+
+Jason Momoa may have moved on from playing Aquaman, but DC has officially kicked off what could be the King of Atlantis' greatest era yet.
+---------
+
+# Gabriel Luna's New Dexter: Resurrection Season 2 Villain Character & Story Officially Confirmed
+
+TV, Dexter: Resurrection, Gabriel Luna
+
+Wed, 15 Jul 2026 17:55:40 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-gabriel-luna-serial-killer-role-confirmed/
+
+After starring on shows like The Last of Us and FUBAR, Gabriel Luna is heading back to the small screen for a villainous role on Dexter: Resurrection.
+---------
+
+# Sam Neill's 10 Greatest Scenes In The Jurassic Park Movies
+
+Movies, Sam Neill, Jurassic Park, Jurassic Park 3, Jurassic World Dominion
+
+Wed, 15 Jul 2026 17:45:22 GMT
+
+https://screenrant.com/jurassic-park-movies-sam-neill-best-scenes/
+
+Sam Neill's Dr. Grant became a household name thanks to Jurassic Park, and here are some of his greatest moments that define his character.
+---------
+
+# 10 Anime Series That Are Perfect From the First Scene
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Attack On Titan
+
+Wed, 15 Jul 2026 18:45:12 GMT
+
+https://www.cbr.com/perfect-anime-first-scene/
+
+A memorable opening reveals more about an anime's ambition than ten episodes of set-up ever could.
+---------
+
+# Dexter: Resurrection Season 2 Officially Casts the Last of Us Star in Major Role
+
+TV, Dexter: Resurrection, Dexter
+
+Wed, 15 Jul 2026 18:40:32 GMT
+
+https://www.cbr.com/dexter-resurrection-season-2-cast-diego-luna/
+
+One of the stars of HBO's The Last of Us is joining Dexter: Resurrection as a serial killer.
+---------
+
+# Don't Move Trailer Reveals New Look at Impractical Jokers' New Horror
+
+Movies, Impractical Jokers
+
+Wed, 15 Jul 2026 18:39:42 GMT
+
+https://www.cbr.com/dont-move-trailer/
+
+The first full trailer for one of the most unexpected creature features of the year has finally arrived, and it looks absolutely terrifying.
+---------
+
+# Netflix's Cinderella Reboot Officially Casts Harry Potter Star as Its Prince Charming
+
+Movies, Netflix
+
+Wed, 15 Jul 2026 18:30:36 GMT
+
+https://www.cbr.com/netflix-cinderella-reboot-daniel-radcliffe/
+
+Netflix's new take on Cinderella includes some exciting additions to the cast.
+---------
+
+# 7 Untold Lord of the Rings Storylines Perfect For The Hunt for Gollum
+
+Movies, The Lord of the Rings: The Hunt for Gollum
+
+Wed, 15 Jul 2026 18:30:12 GMT
+
+https://www.cbr.com/perfect-lotr-storylines-for-hunt-for-gollum-list/
+
+The Lord of the Rings: The Hunt for Gollum will take place over 17 years, so Aragorn's search is not the only Tolkien plotline that may appear.
+---------
+
+# Landman Season 2 Is Finally Returning in 2 Months After Replacing Billy Bob Thornton
+
+TV, Landman
+
+Wed, 15 Jul 2026 18:14:20 GMT
+
+https://www.cbr.com/landman-season-2-bluray-release/
+
+Taylor Sheridan's Landman returns with a new release in just two months.
+---------
+
+# Scott Snyder Reveals Why He Avoided Catwoman During New 52 Era
+
+Comics, Catwoman, Batman, scott snyder
+
+Wed, 15 Jul 2026 18:00:12 GMT
+
+https://www.cbr.com/scott-snyder-avoided-new-52-catwoman/
+
+Scott Snyder's talents writing for the Bat do not translate to the Cat.
+---------
+
+# DC's Secret Weapon Against Marvel Is Simpler Than You Think
+
+Comics, Marvel, DC Comics, Absolute Batman
+
+Wed, 15 Jul 2026 18:00:12 GMT
+
+https://www.cbr.com/marvel-vs-dc-strategy-in-publishing-debate/
+
+As the Marvel vs DC rivalry heats up in 2026, there's a clear winner when it comes to listening to what fans want in comics.
+---------
+
+# G.I. Joe Official Enters a New Era as Paramount Reboot Finds Director
+
+Movies, G.I. Joe
+
+Wed, 15 Jul 2026 17:54:56 GMT
+
+https://www.cbr.com/paramount-gi-joe-reboot-danny-mcbride-directing/
+
+It's official: Paramount is rebooting G.I. Joe for a new generation.
+---------
+
+# 'The Rookie' Gets Extremely Rare New Release Before Season 9 Return
+
+TV News, The Rookie, ABC, Procedural, Hulu
+
+Wed, 15 Jul 2026 18:21:55 GMT
+
+https://collider.com/the-rookie-season-8-episode-10-extended-cut-release-date/
+
+6 months before Season 9 is set to air, ABC's The Rookie is dropping an extended cut of a major episode in an extremely rare move.
+---------
+
+# Maximum Pleasure Guaranteed Was Named by a Spam Email | Collider BTS
+
+TV, Maximum Pleasure Guaranteed
+
+Wed, 15 Jul 2026 18:15:12 GMT
+
+https://collider.com/video/maximum-pleasure-guaranteed-was-named-by-a-spam-email-collider-bts/
+
+Creator David J. Rosen takes Collider behind the scenes of Maximum Pleasure Guaranteed, sharing how the Apple TV+ series evolved from an early idea into a comic thriller that balances suspense, humor, and heartfelt emotion.
+---------
+
+# 'House of the Dragon' Just Made a Fan-Favorite Character Even Better With This Major Book Change
+
+TV Features, House of the Dragon, Matt Smith, HBO Max
+
+Wed, 15 Jul 2026 18:11:12 GMT
+
+https://collider.com/house-of-the-dragon-season-3-episode-4-daemon-rhaena-sheepstealer-book-change/
+
+House of the Dragon's decision to replace Nettles with Rhaena adds depth to Daemon's character, exploring his fatherhood and loyalty in a complex way.
+---------
+
+# Tom Holland Addresses Sadie Sink’s Mysterious MCU Debut in ‘Spider-Man: Brand New Day’ [Exclusive]
+
+Exclusives, Spider-Man: Brand New Day
+
+Wed, 15 Jul 2026 18:08:59 GMT
+
+https://collider.com/spider-man-brand-new-day-tom-holland-sadie-sink-jon-bernthal-punisher/
+
+Tom Holland says Sadie Sink steals the third act of Spider-Man: Brand New Day, while teasing Peter and Frank’s unlikely friendship.
+---------
+
+# ‘Cyberpunk 2077’ Officially Returns Next Year With Ambitious New Release
+
+Gaming News, Cyberpunk 2077, Cyberpunk: Edgerunners, Cyberpunk: Edgerunners 2, CD Projekt Red
+
+Wed, 15 Jul 2026 18:00:12 GMT
+
+https://collider.com/cyberpunk-2077-new-release-board-game-tabletop-experience-release-date-2027/
+
+Cyberpunk 2077 is officially set to return in 2027 with the franchise's first tabletop game, allowing players to experience new layers of Night City.
+---------
+
+# Netflix Officially Brings Back ‘Stranger Things’ With a New 2026 Release
+
+TV News, Stranger Things, Duffer Brothers, Netflix, Shawn Levy
+
+Wed, 15 Jul 2026 17:57:32 GMT
+
+https://collider.com/stranger-things-season-1-vhs-special-edition-netflix/
+
+Stranger Things Season 1 has received a new VHS Special Edition makeover on Netflix as the hit sci-fi series celebrates its 10th anniversary.
+---------
+
+# 'G.I. Joe' Reboot Movie Officially Confirmed After 13-Year Wait
+
+Movie News, Danny McBride, Hasbro, G.I. Joe, Paramount
+
+Wed, 15 Jul 2026 17:55:48 GMT
+
+https://collider.com/gi-joe-reboot-movie-confirmed-danny-mcbride-directing/
+
+Paramount G.I. Joe reboot is officially moving forward, with Danny McBride set to make his feature directorial debut on the project.
+---------
+
+# Jason Statham's New Action Film From 'John Wick' Director Adds 'Ted Lasso' Favorite
+
+Movies, Jason Statham, Hannah Waddingham
+
+Wed, 15 Jul 2026 18:54:34 GMT
+
+https://movieweb.com/jason-statham-stole-my-bike-hannah-waddingham-cast/
+
+Hannah Waddingham has joined Jason Statham's meta action comedy.
+---------
+
+# Record-Setting Psychological Thriller Getting All-New Release in 3 Months
+
+Movie News, Silence of the Lambs, Criterion Collection
+
+Wed, 15 Jul 2026 18:37:54 GMT
+
+https://movieweb.com/silence-of-the-lambs-criterion-4k-release/
+
+'The Silence of the Lambs' is heading to 4K Ultra HD under the Criterion Collection banner this October, 35 years after its Oscar sweep.
+---------
+
+# Ryan Gosling's $523 Million History-Making Classic Getting New Release
+
+Movie News, Ryan Gosling, La La Land
+
+Wed, 15 Jul 2026 18:33:36 GMT
+
+https://movieweb.com/ryan-gosling-la-la-land-anniversary/
+
+'La La Land' returns to theaters, for the first time in Dolby, for its ten-year anniversary.
+---------
+
+# Netflix Scores Big With New 6-Part Action Thriller Series Dominating Streaming
+
+TV News, Netflix, Action, Thriller, Agent Kim Reactivated
+
+Wed, 15 Jul 2026 18:30:16 GMT
+
+https://movieweb.com/netflix-agent-kim-reactivated-most-watched-july-2026/
+
+Forget Baba Yaga, a new one-man army has been unleashed.
+---------
+
+# Liam Neeson Is a Fugitive on the Run in First Trailer for New Non-Stop Action Thriller
+
+Movie News, Liam Neeson, The Mongoose
+
+Wed, 15 Jul 2026 18:12:47 GMT
+
+https://movieweb.com/liam-neeson-the-mongoose-trailer-action-thriller/
+
+Liam Neeson is back with a new non-stop action thriller in 'The Mongoose."
+---------
+
 # Prime Video’s New "Edge-Of-Your-Seat" Crime Series Debuts To Rare Rotten Tomatoes Score
 
 TV, Masked Recs, Prime Video
