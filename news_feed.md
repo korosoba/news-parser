@@ -1,3 +1,410 @@
+# Prime Video’s New "Edge-Of-Your-Seat" Crime Series Debuts To Rare Rotten Tomatoes Score
+
+TV, Masked Recs, Prime Video
+
+Wed, 15 Jul 2026 17:39:49 GMT
+
+https://screenrant.com/prime-video-murder-101-rotten-tomatoes-score-debut/
+
+Prime Video's new crime series is off to a rare start, as the new three-part saga explores a different and unexpected side of a popular genre.
+---------
+
+# The Wait Is Over, As Solo Leveling Returns This August With Next Big Release
+
+Anime, Solo Leveling
+
+Wed, 15 Jul 2026 17:35:46 GMT
+
+https://screenrant.com/solo-leveling-new-release-august-2026/
+
+As Solo Leveling fans eagerly await the return of Ragnarok and Beyond the System, a major release in August is also happening. Here's what we know.
+---------
+
+# Western Hailed As Cinema's "Greatest Achievement" Is Now Streaming On Prime Video
+
+Movies, Masked Recs
+
+Wed, 15 Jul 2026 17:32:55 GMT
+
+https://screenrant.com/western-fistful-of-dollars-movie-streaming-prime-video/
+
+A Western, which Quentin Tarantino has described as "the greatest achievement in the history of cinema," is now streaming on Prime Video.
+---------
+
+# Marvel Unleashes The Ultimate Doctor Doom Twist Ahead Of Doomsday
+
+Marvel Comics, Doctor Doom
+
+Wed, 15 Jul 2026 17:30:42 GMT
+
+https://screenrant.com/captain-america-doctor-doom-valeria/
+
+Doctor Doom's origin story get a huge twist ahead of Avengers: Doomsday, as one of the few people he's ever trusted is revealed to be after him.
+---------
+
+# Sex And The City's Most Underrated Character Has Aged Like Fine Wine
+
+Classic TV, Sex and the City
+
+Wed, 15 Jul 2026 17:30:42 GMT
+
+https://screenrant.com/sex-and-the-city-miranda-character-aged-well/
+
+Between Carrie, Samantha, Charlotte, & Miranda, one was underrated during Sex & the City but has since been vindicated more than any other character.
+---------
+
+# The Rookie Officially Returning This Month With New Hulu Release
+
+TV, The Rookie
+
+Wed, 15 Jul 2026 17:29:58 GMT
+
+https://screenrant.com/the-rookie-season-8-episode-10-extended-cut-release-hulu/
+
+Nathan Fillion's The Rookie will be back this month on Hulu with the debut of an extended episode in an intriguing new move for the streamer.
+---------
+
+# The Westies Interview with Titus Welliver & Jessica Frances Dukes
+
+TV, The Westies, The Westies - Season 1, Titus Welliver
+
+Wed, 15 Jul 2026 17:25:27 GMT
+
+https://screenrant.com/video/the-westies-titus-welliver-jessica-frances-dukes-interview/
+
+The Westies stars Titus Welliver and Jessica Frances Dukes explain their dynamic, as well as Glenn Keenan's tragic backstory,  in the new MGM series.
+---------
+
+# New Pokémon Winds & Waves Price Leak Is Another Punch In The Gut
+
+Gaming, Pokemon Winds and Waves, Pokemon, Triple-A Games
+
+Wed, 15 Jul 2026 17:10:55 GMT
+
+https://screenrant.com/pokemon-winds-waves-leak-price-increase/
+
+Everything happening in the industry now, including leaks, is pointing to the notion that Pokémon Winds and Waves will be more expensive than usual.
+---------
+
+# Paramount’s Second G.I. Joe Reboot Officially Finds Its Director
+
+Movies, G.I. Joe
+
+Wed, 15 Jul 2026 17:09:37 GMT
+
+https://screenrant.com/gi-joe-paramount-reboot-movie-director-danny-mcbride-confirmed/
+
+Paramount's next G.I. Joe reboot movie is quickly gaining steam as it officially finds its director to helm the next era of the hit franchise.
+---------
+
+# Captain Kirk's Final Chapter Officially Begins Today
+
+Comics, Star Trek
+
+Wed, 15 Jul 2026 17:04:49 GMT
+
+https://screenrant.com/star-trek-captain-kirk-last-starship-final-chapter/
+
+Is Kirk going out as the good guy?
+---------
+
+# Fandango Officially Confirms Historic Free Streaming Upgrade for All Users
+
+TV, Streaming
+
+Wed, 15 Jul 2026 17:41:46 GMT
+
+https://www.cbr.com/fandango-free-streaming-upgrade/
+
+The game is changing in the world of free streaming.
+---------
+
+# 10 Most Valuable Pokémon TCG Cards You Can Still Pull Today
+
+Games, Pokemon, Pokemon TCG, Pokemon Trading Card Game, Tabletop
+
+Wed, 15 Jul 2026 17:30:43 GMT
+
+https://www.cbr.com/most-valuable-modern-pokemon-tcg-cards/
+
+There are still some excellent Pokémon TCG cards players can find when opening packs from the last three years.
+---------
+
+# 5 Biggest SDCC 2026 Movie Panels, Ranked
+
+Movies, San Diego Comic-Con, MCU, Avatar: The Last Airbender
+
+Wed, 15 Jul 2026 17:30:43 GMT
+
+https://www.cbr.com/biggest-comic-con-2026-movie-panels-list/
+
+From superhero franchises to new properties by beloved directors, these film-related panels will be the biggest events at San Diego Comic-Con 2026.
+---------
+
+# After 12 Years, Peter Jackson Returns To Direct Sequel to Steven Spielberg’s $374M Adventure
+
+Movies, The Adventures of Tintin, peter jackson
+
+Wed, 15 Jul 2026 17:23:53 GMT
+
+https://www.cbr.com/peter-jackson-returns-to-direct-tintin-sequel/
+
+Peter Jackson announces his next directorial effort, and it's one that fans have been waiting 15 years to see.
+---------
+
+# Netflix's Live-Action One Piece Reveals Chopper Collectible Figure
+
+Anime, One Piece, merchandise
+
+Wed, 15 Jul 2026 17:00:40 GMT
+
+https://www.cbr.com/netflix-one-piece-live-action-chopper-figure/
+
+One Piece fans can soon get their hands on a collectible figure based on Tony Tony Chopper's live-action debut on Netflix ahead of Season 3.
+---------
+
+# Absolute Green Arrow Just Got A Huge Boost From DC Comics
+
+Comics, Green Arrow, Absolute Universe
+
+Wed, 15 Jul 2026 16:38:59 GMT
+
+https://www.cbr.com/absolute-green-arrow-12-issue-extension-dc-comics/
+
+There is more of Absolute Green Arrow to look forward to!
+---------
+
+# 20 Anime to Watch If You Like Apothecary Diaries
+
+Anime, Yona of the Dawn, Ascendance of a Bookworm, The Apothecary Diaries, My Next Life as a Villainess: All Routes Lead to Doom!
+
+Wed, 15 Jul 2026 16:30:30 GMT
+
+https://www.cbr.com/anime-similar-to-apothecary-diaries/
+
+Apothecary Diaries fans have plenty of options if they're looking for similar anime filled with love, hijinks, and emotional stakes.
+---------
+
+# Game of Thrones Is Finally Telling the Story of Aegon Conquest
+
+Movies, Game Of Thrones
+
+Wed, 15 Jul 2026 16:30:29 GMT
+
+https://www.cbr.com/game-of-thrones-aegons-conquest-perfect-movie/
+
+There's a new project coming to the Game of Thrones universe--and it's exactly the one fans have been begging to see.
+---------
+
+# The Batman Director Confirms They Quietly Changed Robert Pattinson's Batsuit for Part II
+
+Movies, Batman, The Batman, The Batman Part II, The Batman – Part II, DC Comics, DCU
+
+Wed, 15 Jul 2026 16:27:38 GMT
+
+https://www.cbr.com/the-batman-director-confirms-batsuit-change-for-part-ii/
+
+It's official — DC Studios has changed the Batsuit for The Batman Part II.
+---------
+
+# Marvel's Must-Read Horror Saga Confirms Variant Covers For X-Men, Spider-Man Books
+
+Comics, Marvel
+
+Wed, 15 Jul 2026 16:18:15 GMT
+
+https://www.cbr.com/marvel-comics-midnight-universe-variant-covers/
+
+Marvel Comics' bold horror saga has unveiled terrifying new variant covers for its most daring era yet.
+---------
+
+# 8 Greatest Horror Movies of 1999, Ranked
+
+Movie, Horror, Sleepy Hollow, The Blair Witch Project, The Mummy
+
+Wed, 15 Jul 2026 17:42:50 GMT
+
+https://collider.com/best-horror-movies-1999-ranked/
+
+From Idle Hands, to Sleepy Hollow, to The Sixth Sense, these horror movies capped off the 20th century on horrifying high-note.
+---------
+
+# Prime Video’s Cancelled Fantasy Epic Makes a $1.16 Million Comeback
+
+Gaming News, The Wheel of Time, Prime Video, Robert Jordan, Josha Stradowski
+
+Wed, 15 Jul 2026 17:30:49 GMT
+
+https://collider.com/the-wheel-of-time-new-2027-release-war-of-the-dragon/
+
+War of the Dragon: The Wheel of Time, a new board game set in The Wheel of Time universe, is officially set to launch in 2027.
+---------
+
+# Why Apple TV's ‘Star City’ Finale Doesn’t End With a Time Jump Like 'For All Mankind'
+
+Exclusives, Apple TV, For All Mankind, Sci-Fi, Star City
+
+Wed, 15 Jul 2026 17:25:35 GMT
+
+https://collider.com/apple-tv-star-city-season-1-finale-explained-meaning-future-plans/
+
+Star City co-creators and star Alice Englert break down the For All Mankind spin-off's biggest twists and turns in the Apple TV sci-fi epic.
+---------
+
+# Disney's Most Ambitious Failed Star Wars Attraction Is Coming to SDCC
+
+Movie News, Star Wars, Star Wars: Galactic Starcruiser, Disney, San Diego Comic-Con
+
+Wed, 15 Jul 2026 17:00:40 GMT
+
+https://collider.com/halcyon-daze-the-final-voyages-of-disneys-star-wars-galactic-starcruiser-screening-sdcc-gen-con/
+
+Halcyon Daze, the fan documentary exploring Disney's ambitious Star Wars: Galactic Starcruiser attraction, is officially coming to SDCC and Gen Con.
+---------
+
+# Christopher Nolan Officially Scores His Highest Rotten Tomatoes Score of All Time for 'The Odyssey'
+
+Movie News, The Odyssey, Christopher Nolan, Matt Damon, Anne Hathaway
+
+Wed, 15 Jul 2026 16:51:49 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-rotten-tomatoes-score-is-it-good/
+
+Christopher Nolan's The Odyssey has defied sky-high expectations to set a new Rotten Tomatoes record! Read on for all the details.
+---------
+
+# 10 Forgotten '80s Horror Comedies That Have Aged Like Fine Wine
+
+Movie, Fright Night, Vampire's Kiss, House, Parents
+
+Wed, 15 Jul 2026 16:34:31 GMT
+
+https://collider.com/forgotten-80s-horror-comedy-movies-aged-like-fine-wine/
+
+Chopping Mall, Vampire's Kiss, and Fright Night are mostly forgotten '80s horror comedies that have aged like fine wine.
+---------
+
+# Jason Statham's Next Action Masterpiece Recruits a 'Ted Lasso' Icon
+
+Movie News, Jason Statham, Hannah Waddingham, David Leitch, Action
+
+Wed, 15 Jul 2026 16:32:56 GMT
+
+https://collider.com/jason-statham-stole-my-bike-cast-hannah-waddingham/
+
+Jason Statham and David Leitch's meta action movie, Jason Statham Stole My Bike, has officially recruited Ted Lasso icon Hannah Waddingham.
+---------
+
+# ‘Lord of the Rings’ Superfan Erika Ishii Calls Out Fantasy’s Tolkien Problem [Exclusive]
+
+Gaming News, Fantasy, J.R.R. Tolkien, The Lord of the Rings, Dimension 20
+
+Wed, 15 Jul 2026 16:30:32 GMT
+
+https://collider.com/fantasy-lord-of-the-rings-tolkien-problem-erika-ishii/
+
+Erika Ishii says fantasy has a Tolkien problem, arguing modern creators should look beyond the tropes popularized by Middle-earth.
+---------
+
+# ‘For All Mankind’ Boss Confirms Season 6 Return Timeline [Exclusive]
+
+Exclusives, For All Mankind, Ronald D. Moore, Sci-Fi, Apple TV
+
+Wed, 15 Jul 2026 16:15:39 GMT
+
+https://collider.com/for-all-mankind-season-6-release-window-finale-update/
+
+For All Mankind creators Ben Nedivi and Matt Wolpert say Season 6 is nearly done filming and tease an emotional series finale.
+---------
+
+# Andrew Garfield Leads a Rebellion in First Look at 2026 Action Epic From 'Bourne' Director
+
+Movie News, The Uprising, Andrew Garfield
+
+Wed, 15 Jul 2026 17:35:32 GMT
+
+https://movieweb.com/andrew-garfield-first-look-paul-greengrass-the-uprising/
+
+Andrew Garfield collaborates with another celebrated director in his upcoming historical action film.
+---------
+
+# 19 Years Later, Johnny Depp's R-Rated Gothic Masterpiece Sets New Release
+
+Movie News, Sweeney Todd: The Demon Barber of Fleet Street, Sweeney Todd, Johnny Depp
+
+Wed, 15 Jul 2026 17:35:28 GMT
+
+https://movieweb.com/johnny-depp-sweeney-todd-4k-blu-ray-release/
+
+'Sweeney Todd: The Demon Barber of Fleet Street,' Tim Burton's gothic masterpiece starring Johnny Depp, is getting a new 4K Blu-ray steelbook release.
+---------
+
+# New 'G. I. Joe' Movie Officially Moving Forward as "Grounded" Reboot Finds Director
+
+Movie News, G.I. Joe 3, Danny McBride, GI Joe
+
+Wed, 15 Jul 2026 17:27:58 GMT
+
+https://movieweb.com/gi-joe-danny-mcbride-director/
+
+Danny McBride, best known for comedy movies, is set to write and direct a new grounded take on 'G.I. Joe.'
+---------
+
+# Marvel Revives $373 Million Prequel That Nearly Killed an Entire Franchise
+
+Features, X-Men '97, X-Men Origins: Wolverine, Marvel Cinematic Universe
+
+Wed, 15 Jul 2026 17:06:45 GMT
+
+https://movieweb.com/x-men-97-wolverine-origins-revival/
+
+'X-Men Origins: Wolverine' didn't live up to its potential in 2009. Marvel seems ready to try to give it new life. Read on for more.
+---------
+
+# James Gunn's DCU Timeline Officially Becomes Even More Confusing
+
+Features, Blue Beetle, DCU, James Gunn
+
+Wed, 15 Jul 2026 17:01:39 GMT
+
+https://movieweb.com/blue-beetle-return-confusing-dcu-timeline/
+
+The DCU has been difficult to follow from the beginning, and the return of Blue Beetle isn't going to make things any easier. Read on for more.
+---------
+
+# 10 Best New Sci-Fi Movies No One Is Talking About
+
+Movie Lists, Sci-Fi
+
+Wed, 15 Jul 2026 17:01:39 GMT
+
+https://movieweb.com/best-new-sci-fi-movies-no-one-is-talking-about/
+
+From surreal trips into the unknown to B-movie goodness, these sci-fi movies deserve more recognition.
+---------
+
+# Apple TV's Perfect Mystery Series Officially Sets Return Date 2 Years Later
+
+TV News, Where's Wanda?, Apple TV
+
+Wed, 15 Jul 2026 16:55:20 GMT
+
+https://movieweb.com/apple-tv-wheres-wanda-season-2-release-date/
+
+'Where's Wanda?' Season 2 was greenlit by Apple TV earlier this year.
+---------
+
+# Christopher Nolan's 'The Odyssey' Rotten Tomatoes Score Officially Revealed
+
+Movie News, The Odyssey, Rotten Tomatoes
+
+Wed, 15 Jul 2026 16:19:52 GMT
+
+https://movieweb.com/the-odyssey-rotten-tomatoes-score/
+
+Rotten Tomatoes officially revealed its first critics' score for Christopher Nolan's latest epic, 'The Odyssey.'
+---------
+
 # Elden Ring's Successor Is Getting A Playable Demo This August
 
 Gaming, Elden Ring, Elden Ring: Shadow of the Erdtree, PC, The Duskbloods, Nintendo Switch 2
