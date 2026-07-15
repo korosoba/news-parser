@@ -1,3 +1,234 @@
+# Apple TV’s Stephen King-Approved Crime Thriller Season 2 Story Teased By Creator
+
+TV, Maximum Pleasure Guaranteed, Maximum Pleasure Guaranteed - Season 1
+
+Wed, 15 Jul 2026 23:15:46 GMT
+
+https://screenrant.com/maximum-pleasure-guaranteed-season-2-story-details-david-rosen-response/
+
+Apple TV's new crime thriller series that Stephen King compared to the work of Alfred Hitchcock receives exciting season 2 story teases.
+---------
+
+# X-Men '97 Season 2: Over 30 Easter Eggs, Weapon X References, & Cameos In Episode 5
+
+Superheroes, X-Men '97, Marvel Cinematic Universe
+
+Wed, 15 Jul 2026 23:15:20 GMT
+
+https://screenrant.com/x-men-97-season-2-episode-5-easter-eggs-weapon-x-marvel-references/
+
+X-Men '97 season 2 episode 5 features an exciting collection of Easter eggs and Marvel references as Wolverine's new team infiltrates Weapon X.
+---------
+
+# Despite Being Cast, One Harry Potter Star Won’t Be Arriving Until At Least Season 2
+
+Streaming TV, Harry Potter
+
+Wed, 15 Jul 2026 23:15:20 GMT
+
+https://screenrant.com/bertie-carvel-cornelius-fudge-harry-potter-tv-show-season-2/
+
+The Harry Potter TV show cast has already caused quite a stir ahead of the show's debut, but one central character is unlikely to appear in season 1.
+---------
+
+# How Morph Brings The Light In X-Men '97 Season 2 Explained By J. P. Karliak
+
+Interviews, X-Men '97, X-Men, Marvel Cinematic Universe
+
+Wed, 15 Jul 2026 23:00:25 GMT
+
+https://screenrant.com/xmen-97-season-2-jp-karliak-morph-interview/
+
+J. P. Karliak expands on Morph's newest challenges in X-Men '97 season 2, and finally wanting to bring the Marvel mutant to life in live-action.
+---------
+
+# Lord Of The Rings Meets The Walking Dead In Stephen King's 9-Part Fantasy Series
+
+Streaming TV, Masked Recs
+
+Wed, 15 Jul 2026 23:00:19 GMT
+
+https://screenrant.com/the-stand-stephen-king-lotr-meets-walking-dead/
+
+Stephen King is a master of horror writing, but he excels at blending genres, giving his horror stories unexpectedly disturbing twists and turns.
+---------
+
+# GTA 6 Trailer 3 Has Gamers Seriously Losing It
+
+Gaming, Rockstar Games, Grand Theft Auto 6, Grand Theft Auto
+
+Wed, 15 Jul 2026 23:00:19 GMT
+
+https://screenrant.com/gta-6-trailer-3-release-gamer-concerns/
+
+As GTA6 approaches, fans are expressing frustration over the lack of new reveals and marketing efforts from Take-Two Interactive and Rockstar Games.
+---------
+
+# Oppenheimer Is Still Christopher Nolan’s Greatest Movie
+
+Movies, Oppenheimer
+
+Wed, 15 Jul 2026 23:00:19 GMT
+
+https://screenrant.com/oppenheimer-is-still-christopher-nolans-greatest-movie/
+
+Cillian Murphy and Robert Downey Jr. star in what is still Christopher Nolan's greatest movie, even after the release of The Odyssey.
+---------
+
+# Fallout Game Designer Is "Embarrassed" By Prime Video Series
+
+TV, Fallout
+
+Wed, 15 Jul 2026 22:56:26 GMT
+
+https://screenrant.com/fallout-game-designer-embarrassed-prime-video-series-dialogue/
+
+The lead video game designer of Fallout: New Vegas reveals the problem he has with Prime Video's hit TV adaptation of the popular franchise.
+---------
+
+# 15 Years Later, the Greatest Modern Fantasy Series Still Doesn't Have an Ending
+
+Books, Fantasy, The Kingkiller Chronicles
+
+Wed, 15 Jul 2026 22:36:19 GMT
+
+https://screenrant.com/kingkiller-chronicles-patrick-rothfuss-unfinished-trilogy/
+
+This legendary fantasy epic is still incomplete.
+---------
+
+# After 13.6 Billion Minutes Viewed, It's The End Of An Era For Netflix's Fantasy Movie
+
+New Movies, Swapped
+
+Wed, 15 Jul 2026 22:30:19 GMT
+
+https://screenrant.com/netflix-swapped-movie-top-10-end-era/
+
+Netflix delivered a huge fantasy movie earlier this year, but after earning 13.6 billion minutes viewed, the film has reached the end of an era.
+---------
+
+# All 40 Episodes of Forgotten Ghostbusters Series Are Now Streaming for Free
+
+TV, Extreme Ghostbusters
+
+Wed, 15 Jul 2026 23:22:23 GMT
+
+https://www.cbr.com/extreme-ghostbusters-animated-series-streaming-free-tubi-july-2026/
+
+Ghostbusters fans can stream the entire animated series at no cost whatsoever.
+---------
+
+# LEGO Keeps Naruto's Ichiraku Ramen Set Alive in New Official Update
+
+Anime, Naruto, LEGO
+
+Wed, 15 Jul 2026 23:00:12 GMT
+
+https://www.cbr.com/lego-naruto-ichiraku-ramen-set-july-2026-update/
+
+A Naruto-inspired LEGO concept reaches a major support milestone, ensuring that the build now has a solid chance of becoming an official LEGO set.
+---------
+
+# 4 Heist Movies That Are 10/10 Masterpieces
+
+Movies
+
+Wed, 15 Jul 2026 23:00:12 GMT
+
+https://www.cbr.com/perfect-heist-movies-list/
+
+A great heist movie requires both tension and flawless execution, and the following four films are among the best the genre has to offer.
+---------
+
+# Stephen King Calls Out Banning of Novellas That Inspired Stand by Me & Shawshank Redemption
+
+Movies, Stephen King, Stand by Me, The Shawshank Redemption
+
+Wed, 15 Jul 2026 22:47:32 GMT
+
+https://www.cbr.com/stephen-king-book-banned-utah-shawshank-redemption-stand-by-me/
+
+Stephen King isn't happy about the novella collection being made unavailable.
+---------
+
+# 'The Pitt' Meets Its Match in This 8-Part Spy Thriller That Redefined TV Storytelling
+
+TV Features, 24, Joel Surnow, Kiefer Sutherland, The Pitt
+
+Wed, 15 Jul 2026 23:24:12 GMT
+
+https://collider.com/24-the-pitt-thriller-tv-show/
+
+24's groundbreaking real-time narrative structure transformed TV spy thrillers, keeping audiences on the edge of their seats for eight seasons.
+---------
+
+# Say Goodbye to This Iconic Horror Franchise Before It Disappears from Streaming
+
+Movie Features, Saw, James Wan, Saw X, Netflix
+
+Wed, 15 Jul 2026 23:22:12 GMT
+
+https://collider.com/saw-sequels-streaming-leaving-netflix-july-2026/
+
+Watch Jigsaw's greatest moments while you can, because all 10 Saw movies are set to leave Netflix on July 19.
+---------
+
+# Titus Welliver Gives a Colossal Update on His Long-Awaited ‘Bosch’ Movie
+
+TV News, Bosch, Bosch: Legacy, Ballard, Titus Welliver
+
+Wed, 15 Jul 2026 23:00:12 GMT
+
+https://collider.com/titus-welliver-bosch-return-movie-comments/
+
+Titus Welliver says plans remain alive for a standalone Bosch movie following the end of Bosch: Legacy.
+---------
+
+# Brennan Lee Mulligan’s Fantasy World Officially Expands With a New Graphic Novel [Exclusive]
+
+Books and Comics News, Games, Gaming, Books, Comics
+
+Wed, 15 Jul 2026 22:30:12 GMT
+
+https://collider.com/worlds-beyond-number-graphic-novel-erika-ishii-campaign-book/
+
+Erika Ishii explains how the Worlds Beyond Number graphic novel expands Umora and shares their hopes for a future campaign book.
+---------
+
+# 'Reacher's Alan Ritchson Brings Explosive Action in Final Trailer for New Thriller
+
+Movie News, Runner, Alan Ritchson, Owen Wilson
+
+Wed, 15 Jul 2026 23:05:44 GMT
+
+https://movieweb.com/alan-ritchson-runner-final-trailer-action-thriller/
+
+The final trailer for 'Runner' has been released before the movie hits theaters on Sep. 11.
+---------
+
+# Paramount+ Releasing Highly Anticipated Fantasy Original in Theaters
+
+Movie News, Avatar: The Last Airbender, Avatar Aang: The Last Airbender, Paramount Plus
+
+Wed, 15 Jul 2026 22:57:09 GMT
+
+https://movieweb.com/avatar-aang-last-airbender-theatrical-release/
+
+But not in many.
+---------
+
+# Bruce Campbell stars in 'The Adventures of Brisco County, Jr.'
+
+Movie News, Bruce Campbell
+
+Wed, 15 Jul 2026 22:56:29 GMT
+
+https://movieweb.com/bruce-campbell-western-book-reconcile/
+
+'Evil Dead' star Bruce Campbell is releasing the Western novella 'Reconcile.'
+---------
+
 # Former DCEU Hero's Confirmed Return In Superman Movie Sequel Man Of Tomorrow Is Perfect
 
 Movies, Man of Tomorrow, Superman, DC Universe
