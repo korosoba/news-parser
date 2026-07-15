@@ -1,3 +1,410 @@
+# The Batman 2 Officially Delayed Again & It Shatters A DC Record
+
+Movies, The Batman Part II, Batman, DC Universe
+
+Wed, 15 Jul 2026 14:41:42 GMT
+
+https://screenrant.com/the-batman-2-delayed-no-superman-dc-record/
+
+DC has delayed The Batman 2 yet again, and with its new release date, the Robert Pattinson movie will no longer help break a franchise record.
+---------
+
+# "New Flash Power Unlocked" As DC Upgrades Its Fastest Hero
+
+DC Comics, The Flash
+
+Wed, 15 Jul 2026 14:40:21 GMT
+
+https://screenrant.com/absolute-flash-new-superpower/
+
+The Flash's powers evolve again as he gains an extremely useful ability, though this power requires a more cautious approach to his godlike potential.
+---------
+
+# The Big Bang Theory’s Return This Month Finally Fulfills 8-Year Story The OG Show Couldn’t
+
+Network TV, The Big Bang Theory, Stuart Fails to Save the Universe
+
+Wed, 15 Jul 2026 14:38:49 GMT
+
+https://screenrant.com/stuart-fails-save-universe-tbbt-story-stuart-denise-fix/
+
+As The Big Bang Theory returns in 2026, its brand new story finally fulfills one story from its original CBS run that was unfortunately cut.
+---------
+
+# 8 Korean Thrillers That Make Squid Game Look Tame
+
+Classic TV, Squid Game, K-Drama
+
+Wed, 15 Jul 2026 14:30:18 GMT
+
+https://screenrant.com/korean-thrillers-squid-game-look-tame/
+
+Squid Game is Netflix's biggest K-drama to date, but the genre is jam-packed with thrillers that are just as gory, gritty, and gloriously dark.
+---------
+
+# Superman Family Permanently Expands with Jaw-Dropping New Member
+
+DC Comics, Superman
+
+Wed, 15 Jul 2026 14:26:25 GMT
+
+https://screenrant.com/superman-new-hero-ultraboy-explained/
+
+With Superman missing, the Super-Family is in chaos, and things keep escalating with the addition of a controversial new hero.
+---------
+
+# Warner Bros. Delays Jenna Ortega & Glen Powell's New Sci-Fi Fantasy The Great Beyond By A Year
+
+Movies, Jenna Ortega, Glen Powell
+
+Wed, 15 Jul 2026 14:14:25 GMT
+
+https://screenrant.com/the-great-beyond-release-date-delay-2027/
+
+Multiple Warner Bros. films are changing release dates, including Jenna Ortega and Glen Powell’s upcoming sci-fi fantasy, The Great Beyond.
+---------
+
+# PlayStation Abruptly Cancels Game, Issues Players Refunds
+
+Gaming, PlayStation, Dying Light: The Beast, PC, Triple-A Games
+
+Wed, 15 Jul 2026 14:04:29 GMT
+
+https://screenrant.com/playstation-refunds-dying-light-the-beast/
+
+An anticipated game for PlayStation consoles was abruptly cancelled, and players are being issued refunds for the title that will never arrive.
+---------
+
+# The Batman Part 2 Footage Reveals Robert Pattinson's Return As Caped Crusader
+
+Movies, The Batman Part II, Batman, DC Universe, Robert Pattinson
+
+Wed, 15 Jul 2026 14:02:58 GMT
+
+https://screenrant.com/the-batman-part-2-robert-pattinson-first-footage-return-video/
+
+In the wake of the movie's 2028 delay, the first footage for The Batman: Part II reveals Robert Pattinson's return as the iconic DC hero.
+---------
+
+# Magic: The Gathering: Star Trek - Release Date, Pricing, Sets, & Cards Info
+
+Gaming, Magic: The Gathering, tabletop games, PC
+
+Wed, 15 Jul 2026 14:00:18 GMT
+
+https://screenrant.com/mtg-star-trek-set-release-date-price-cards/
+
+Magic: The Gathering's Star Trek set is a long time coming, but it already seems more than worth the wait thanks to these flavorful cards.
+---------
+
+# Marvel Officially Announces the Identity of Its New Hulk
+
+Comics, Hulk
+
+Wed, 15 Jul 2026 13:59:38 GMT
+
+https://screenrant.com/new-hulk-name-revealed-marvel/
+
+Bruce Banner officially replaced.
+---------
+
+# 5 Vampire Shows Better Than The Vampire Lestat
+
+TV, The Vampire Lestat, Interview with the Vampire, Fantasy
+
+Wed, 15 Jul 2026 14:30:11 GMT
+
+https://www.cbr.com/vampire-shows-better-than-the-vampire-lestat-list/
+
+Although the punk rock show The Vampire Lestat might be taking over hearts everywhere, these five vampiric shows are even better.
+---------
+
+# The Batman 2 Officially Delayed as First Teaser Reveals New Release Date
+
+Movies, The Batman Part II, Batman
+
+Wed, 15 Jul 2026 14:27:46 GMT
+
+https://www.cbr.com/the-batman-2-trailer-delay-release-date/
+
+The Batman: Part II has been delayed yet again.
+---------
+
+# 10 Must-Watch Action Anime Series With Zero Bad Episodes
+
+Anime, Attack On Titan, Cyberpunk: Edgerunners, Mob Psycho 100
+
+Wed, 15 Jul 2026 14:15:12 GMT
+
+https://www.cbr.com/must-watch-action-anime-zero-bad-episodes/
+
+Few anime balance action, storytelling and pacing as well as series like Mob Psycho 100 and Fate/Zero.
+---------
+
+# Star Wars' 3-Season Series That Kicked Off a New Era Gets Is of the Biggest Shows in the U.S. at the Right Time
+
+TV, The Mandalorian, Star Wars, Disney+
+
+Wed, 15 Jul 2026 14:00:12 GMT
+
+https://www.cbr.com/star-wars-the-mandalorian-sci-fi-streaming-success-disney-plus-july-2026/
+
+A hit Star Wars series is surging on Disney+. Is it enough to save the franchise?
+---------
+
+# Scott Snyder Almost Returned To Marvel Before Launching DC's Absolute Universe
+
+Comics, scott snyder
+
+Wed, 15 Jul 2026 14:00:12 GMT
+
+https://www.cbr.com/scott-snyder-almost-marvel-return-before-absolute-universe-launch/
+
+Snyder nearly went back to the other major comic book publisher.
+---------
+
+# Every Sword Wielded By Roronoa Zoro in One Piece
+
+Anime, One Piece
+
+Wed, 15 Jul 2026 13:30:12 GMT
+
+https://www.cbr.com/one-piece-blades-roronoa-zoro-wielded-used/
+
+Roronoa Zoro is one of the most prominent swordsmen in One Piece, and he’s used many powerful blades, including Wado Ichimonji and Enma.
+---------
+
+# 5 Best Hard Sci-Fi Anime Series of the Last 5 Years, Ranked
+
+Anime, Dr. Stone, 86: EIGHTY-SIX, Orb: On the Movements of the Earth
+
+Wed, 15 Jul 2026 13:15:12 GMT
+
+https://www.cbr.com/best-hard-sci-fi-anime-series-last-5-years-ranked/
+
+From Orb to Dr. Stone, these hard sci-fi anime series explore AI, space, science, and the future of humanity.
+---------
+
+# Apple TV's Best Drama Ever Celebrates Major Streaming Milestone Ahead of New Episodes
+
+TV, Ted Lasso, Apple TV, Jason Sudeikis
+
+Wed, 15 Jul 2026 13:00:12 GMT
+
+https://www.cbr.com/ted-lasso-drama-streaming-milestone-apple-tv-july-2026/
+
+Ted Lasso is celebrating a major milestone, cementing its spot as one of Apple TV's biggest shows.
+---------
+
+# Jenna Ortega Stole the Show in Netflix's 5-Part Jurassic World Series With 92% RT
+
+TV, Jurassic World, Jurassic World: Camp Cretaceous, Netflix
+
+Wed, 15 Jul 2026 13:00:12 GMT
+
+https://www.cbr.com/jenna-ortega-jurassic-world-camp-cretaceous-netflix-series/
+
+Netflix's Jurassic World: Camp Cretaceous features a stellar performance from Jenna Ortega, who steals the show.
+---------
+
+# 5 Masterpiece Sci-Fi Book Series With the Best Lore
+
+Movies, Science Fiction, books
+
+Wed, 15 Jul 2026 13:00:12 GMT
+
+https://www.cbr.com/sci-fi-book-series-with-best-lore-list/
+
+These sci-fi series have the most intricate & expansive lore in literature, with their millennia-spanning galactic histories and sprawling multiverses
+---------
+
+# All 5 Daniel Craig James Bond Pre-Title Sequences, Ranked
+
+Movie, James Bond, 007, Daniel Craig, Skyfall
+
+Wed, 15 Jul 2026 14:31:12 GMT
+
+https://collider.com/daniel-craig-james-bond-movies-pre-title-sequences-ranked/
+
+From Casino Royale, to Spectre, to Skyfall, this is the definitive ranking of every pre-title sequence from Daniel Craig's five James Bond movies.
+---------
+
+# The Next Fourth Wing Book Is Officially Coming This Fall
+
+Books and Comics News, Fourth Wing, Michael B. Jordan, Fantasy, Books
+
+Wed, 15 Jul 2026 14:06:10 GMT
+
+https://collider.com/new-fourth-wing-book-release-date-fall-2026/
+
+Rebecca Yarros officially confirms the release date for her next Fourth Wing book, and it's arriving sooner than expected.
+---------
+
+# DC Officially Confirms Major 'The Batman: Part 2' Delay
+
+Movie News, The Batman Part II, DC Comics, Matt Reeves, Robert Pattinson
+
+Wed, 15 Jul 2026 14:05:06 GMT
+
+https://collider.com/the-batman-part-2-release-date-delayed-2028/
+
+Robert Pattinson's return to Bruce Wayne hit with major delay as DC sets release date for The Batman Part 2.
+---------
+
+# Marvel Announces Spider-Man and Punisher’s Next Team-Up Before ‘Brand New Day’
+
+Books and Comics News, Spider-Man, The Punisher, Spider-Man: Brand New Day, Marvel Comics
+
+Wed, 15 Jul 2026 14:00:12 GMT
+
+https://collider.com/punisher-vs-the-amazing-spider-man-1-preview-marvel-comics/
+
+A new preview for Marvel Comics' Punisher Vs. Spider-Man teases a team-up going back to Frank Castle and Peter Parker's first meeting.
+---------
+
+# Marvel Officially Reveals Carnage’s New Role in the Spider-Man Franchise
+
+Books and Comics News, Spider-Man, Marvel Comics, Venom: Let There Be Carnage, Marvel
+
+Wed, 15 Jul 2026 13:50:12 GMT
+
+https://collider.com/the-amazing-spider-man-spider-versity-issue-4-preview/
+
+Marvel Comics has unveiled the latest issue of The Amazing Spider-Man: Spider-Versity, welcoming a fan-favorite Symbiote onto campus.
+---------
+
+# Marvel Officially Confirms Jessica Jones' Return With a New Spider-Man Twist
+
+Books and Comics News, Jessica Jones, Marvel Comics, What If, Spider-Man
+
+Wed, 15 Jul 2026 13:40:12 GMT
+
+https://collider.com/what-if-jessica-jones-1-marvel-comics-preview/
+
+A new Marvel Comics preview reintroduces Jessica Jones in a What If scenario that gives her the powers of Spider-Man. Check it out here!
+---------
+
+# Marvel Officially Reveals a New 'Fantastic Four' Threat Ahead of 'Avengers: Doomsday' Return
+
+Books and Comics News, The Fantastic Four: First Steps, Marvel Comics, Fantastic Four, Marvel
+
+Wed, 15 Jul 2026 13:31:12 GMT
+
+https://collider.com/fantastic-four-2025-issue-14-marvel-comics-preview/
+
+Marvel has shared a preview for Fantastic Four #14, which introduces a new mystery that threatens Marvel's First Family and all of humanity.
+---------
+
+# Marvel Officially Confirms the X-Men’s Newest Recruit Is Ready to Sacrifice Everything
+
+Books and Comics News, Marvel Comics, X-Men
+
+Wed, 15 Jul 2026 13:20:12 GMT
+
+https://collider.com/x-men-issue-33-ben-liu-deadly-mission-preview/
+
+Ben Liu's determination to join the X-Men leads him to face an impossible choice that could cost him his life in X-Men #33.
+---------
+
+# Star Wars Officially Reveals What Han Solo Did After ‘Return of the Jedi’
+
+Books and Comics News, Star Wars, Star Wars: Episode VI - Return of the Jedi, Marvel Comics
+
+Wed, 15 Jul 2026 13:10:12 GMT
+
+https://collider.com/star-wars-han-solo-hondo-ohnaka-echoes-of-the-empire-preview/
+
+Discover Han Solo's early adventures after the Empire's defeat in Star Wars: Galaxy's Edge – Echoes of the Empire #4.
+---------
+
+# The Next Rocky Movie Is Officially Here
+
+Movie News, I Play Rocky, Rocky, Peter Farrelly, AnnaSophia Robb
+
+Wed, 15 Jul 2026 13:00:12 GMT
+
+https://collider.com/sylvester-stallone-biopic-i-play-rocky-first-trailer/
+
+Discover the untold story of how Sylvester Stallone fought to bring his Rocky script to life in the upcoming biopic I Play Rocky.
+---------
+
+# 10 Best Miniseries on BritBox That Are Perfect From Start to Finish
+
+TV Lists
+
+Wed, 15 Jul 2026 14:30:16 GMT
+
+https://movieweb.com/best-miniseries-britbox/
+
+BritBox has an impressive collection of miniseries that could easily be called masterpieces.  These series fit that bill
+---------
+
+# 100% RT-Rated Paramount+ Series To End After 3 Seasons
+
+TV News, Paramount Plus
+
+Wed, 15 Jul 2026 14:16:20 GMT
+
+https://movieweb.com/colin-from-accounts-ending-3-seasons-paramount/
+
+The critically acclaimed Paramount+ series to bow out with it's third season
+---------
+
+# 'The Batman 2' Officially Sets New Release Date as Robert Pattinson Returns in First Teaser
+
+Movie News, The Batman Part II
+
+Wed, 15 Jul 2026 14:04:27 GMT
+
+https://movieweb.com/the-batman-part-2-release-date-delay-2028/
+
+Warner Bros confirmed a release date delay for Matt Reeves' second Caped Crusader movie, 'The Batman - Part II' while bringing new footage.
+---------
+
+# Apple TV's New 7-Part Crime Thriller Is a Global Streaming Hit in 1 Day
+
+TV News, Lucky, Apple TV, Hot on Streaming, Action
+
+Wed, 15 Jul 2026 14:00:17 GMT
+
+https://movieweb.com/lucky-action-thriller-streaming-success-apple-july-2026/
+
+Apple TV's new action-packed crime thriller 'Lucky,' with Anya Taylor-Joy and Timothy Olyphant, is already a major hit.
+---------
+
+# It's Officially the End of an Era for Netflix After 10 Years
+
+Features, Stranger Things, Netflix
+
+Wed, 15 Jul 2026 14:00:17 GMT
+
+https://movieweb.com/stranger-things-10-years-netflix-end-of-era/
+
+Netflix has released some of the most unforgettable and popular TV shows of the past decade, including one that is still being talked about.
+---------
+
+# The Rocky Saga Continues in First Trailer for Upcoming Amazon Spin-off
+
+Movie News, I Play Rocky, Sylvester Stallone
+
+Wed, 15 Jul 2026 13:22:40 GMT
+
+https://movieweb.com/i-play-rocky-trailer/
+
+The first trailer for 'I Play Rocky,' starring Anthony Ippolito as Sylvester Stallone, has been released, teasing the true story behind 'Rocky.'
+---------
+
+# The Best 'Aliens' Line is Still the Greatest Quote in Sci-Fi Movie History
+
+Features, Great Line, Alien, James Cameron
+
+Wed, 15 Jul 2026 13:00:17 GMT
+
+https://movieweb.com/aliens-newt-best-sci-fi-movie-quote/
+
+'Aliens,' the sci-fi movie released in 1986, has many great quotes, but Newt has one line that is particularly unforgettable.
+---------
+
 # Peacock's Friday The 13th Prequel Series Isn't The Show You Think
 
 Streaming TV, Crystal Lake
