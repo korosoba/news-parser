@@ -1,3 +1,289 @@
+# Zelda Meets Monster Hunter In Huge New Open-World JRPG Arriving July 22
+
+Gaming, JRPG, RPG, PC, Triple-A Games
+
+Wed, 15 Jul 2026 04:30:18 GMT
+
+https://screenrant.com/dragonsword-awakening-zelda-meets-monster-hunter/
+
+A huge new open-world JRPG that mixes elements from the Zelda and Monster Hunter franchises is set to arrive on July 22, and it may interest you.
+---------
+
+# Steam's Latest 9/10 Free Game Will Consume All Your Spare Time
+
+Gaming, Steam, Triple-A Games
+
+Wed, 15 Jul 2026 04:00:26 GMT
+
+https://screenrant.com/steam-free-game-july-2026-like-stardew-valley/
+
+If you're looking for a free game to play while you have some downtime, this new release on Steam is sailing thanks to very positive reviews.
+---------
+
+# Timothy Olyphant & Anya Taylor-Joy's Rotten Tomatoes Hot Streak Extends With Apple TV's New Crime Thriller
+
+TV, Masked Recs, Timothy Olyphant, Anya Taylor-Joy, Apple TV
+
+Wed, 15 Jul 2026 03:53:56 GMT
+
+https://screenrant.com/timothy-olyphant-lucky-show-apple-tv-rotten-tomatoes-score-anya-taylor-joy/
+
+Timothy Olyphant and Anya Taylor-Joy continue their Rotten Tomatoes hot streak with Apple TV's new crime thriller based on a bestselling novel.
+---------
+
+# 6 Biggest Avengers: Doomsday Questions We Have After Marvel Released Official Art
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
+
+Wed, 15 Jul 2026 03:45:39 GMT
+
+https://screenrant.com/avengers-doomsday-questions-after-marvel-official-art/
+
+Marvel Studios recently released official new art featuring what looks to be the full cast of Avengers: Doomsday (but I've got some big questions).
+---------
+
+# A Canceled Shonen Jump Manga Got A Killer New Anime, And More Are Already On The Way
+
+Anime, Shonen Jump
+
+Wed, 15 Jul 2026 03:45:18 GMT
+
+https://screenrant.com/black-torch-anime-canceled-manga-creator-surprise-future-theory/
+
+A canceled Shonen Jump Plus manga from years ago has shockingly received an anime adaptation, and it looks great.
+---------
+
+# 4 Years Later, Elden Ring Player Uncovers Trick To Skip Game's Final Boss
+
+Gaming, Elden Ring, Triple-A Games
+
+Wed, 15 Jul 2026 03:00:19 GMT
+
+https://screenrant.com/elden-ring-skip-games-final-boss/
+
+Years after the release of the incredible era-defining Elden Ring, a fan has discovered a cool trick to skip the final boss of the game.
+---------
+
+# Berserk 1997's Anime Sequel Is Here, And Its First Two Episodes Are Near-Perfect
+
+Anime, Berserk
+
+Wed, 15 Jul 2026 02:30:18 GMT
+
+https://screenrant.com/berserk-new-1997-anime-sequel-near-perfect/
+
+Kentaro Miura's classic is getting a new lease on life from a source even its publishers continue to underestimate.
+---------
+
+# Marvel Teases A Permanent Death That Will Break Spider-Man More Than Gwen Stacy
+
+Marvel Comics, Spider-Man
+
+Wed, 15 Jul 2026 02:00:29 GMT
+
+https://screenrant.com/marvel-teases-aunt-may-death-spider-man/
+
+A death in Peter Parker's life is being teased and foreshadowed in every way possible, and threatening to shatter Spider-Man lore forever.
+---------
+
+# Prime Video Just Resurrected The 1990s' Biggest Cyberpunk Franchise
+
+Anime, Prime Video, Masked Recs
+
+Wed, 15 Jul 2026 02:00:29 GMT
+
+https://screenrant.com/ghost-in-the-shell-prime-video-biggest-1990s-cyberpunk-change/
+
+Prime Video's adaptation of Ghost in the Shell brings fresh perspectives to the franchise, offering a modern take on the classic series.
+---------
+
+# 5 Theories About What The New Nightmare On Elm Street Movie Could Be
+
+Movies, A Nightmare on Elm Street
+
+Wed, 15 Jul 2026 02:00:29 GMT
+
+https://screenrant.com/new-nightmare-elm-street-movie-theories/
+
+A new Nightmare on Elm Street is in the works, but the exact plan for it is unclear. However, some theories offer some intriguing possibilities.
+---------
+
+# Dandadan Season 3 Gets Official Williams F1 Car Ahead of 2027 Premiere
+
+Anime, Dandadan
+
+Wed, 15 Jul 2026 03:59:12 GMT
+
+https://www.cbr.com/dandadan-season-3-f1-race-car/
+
+The Dandadan franchise partners with a major F1 racing team to create one of the world's first-ever shonen anime-inspired race cars.
+---------
+
+# Peacock's Friday the 13th Prequel Creator Explains Canon-Breaking Change
+
+TV, Crystal Lake, Friday The 13th
+
+Wed, 15 Jul 2026 03:56:08 GMT
+
+https://www.cbr.com/crystal-lake-friday-the-13th-prequel-1970s-setting/
+
+Artistic liberties were made for Peacock's Crystal Lake series that deviated from established Friday the 13th lore.
+---------
+
+# 8 Greatest Fantasy Movies Worth Watching Again and Again, Ranked
+
+Movies, Fantasy, The Lord of the Rings, Spirited Away
+
+Wed, 15 Jul 2026 03:45:12 GMT
+
+https://www.cbr.com/greatest-rewatchable-fantasy-movies-ranked/
+
+These legendary fantasy hits never get old, no matter how many times fans watch them.
+---------
+
+# 10 Best Non-Shonen Anime Series Since 2000
+
+Anime, Vinland Saga, Gurren Lagann
+
+Wed, 15 Jul 2026 03:45:12 GMT
+
+https://www.cbr.com/best-non-shonen-anime-since-2000/
+
+Shonen might be the most popular genre of anime, but some of the best series of this century, like Vinland Saga, completely outperform it.
+---------
+
+# 6 Fantasy Books Better Than The Witcher
+
+TV, Fantasy, The Witcher, books
+
+Wed, 15 Jul 2026 03:30:12 GMT
+
+https://www.cbr.com/fantasy-books-beat-the-witcher-list/
+
+The novel behind the hit show The Witcher might have a cult following, but there are other fantasy books that delve into the genre better.
+---------
+
+# 5 Greatest Fantasy Games of the 2020s, Ranked
+
+Games, Elden Ring, The Legend of Zelda, Video Games
+
+Wed, 15 Jul 2026 03:15:12 GMT
+
+https://www.cbr.com/greatest-fantasy-games-of-the-2020s/
+
+From Elden Ring to Baldur's Gate 3, the 2020s have had some of the best fantasy games of any era.
+---------
+
+# Spider-Man: Brand New Day Ignores One of Marvel's Most Beloved Characters
+
+Movies, Spider-Man: Brand New Day, superheroes, MCU
+
+Wed, 15 Jul 2026 03:15:12 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-j-jonah-jameson-role-explained/
+
+One fan-favorite character from Tom Holland's Spider-Man movies won't return for Brand New Day--and it's a shame.
+---------
+
+# Transformers Officially Brings Back the Original Cartoon's Forgotten Seekers
+
+Anime, Transformers, The Transformers, merchandise, toys, hasbro
+
+Wed, 15 Jul 2026 03:00:12 GMT
+
+https://www.cbr.com/transformers-studio-series-seeker-storm-pack-hasbro-release/
+
+The Transformers Studio Series line is expanding with four new Seeker jets who are ready to fly off for good once the pre-order period is over.
+---------
+
+# Anya Taylor-Joy's 'Addictive' New Crime Thriller Series Gets Official Rotten Tomatoes Score
+
+TV, Lucky, Rotten Tomatoes
+
+Wed, 15 Jul 2026 02:56:26 GMT
+
+https://www.cbr.com/lucky-rotten-tomatoes-score/
+
+Timothy Olyphant also stars in the crime thriller series that starts streaming this week.
+---------
+
+# 5 Sci-Fi Games Like Dungeon Crawler Carl
+
+Games, Borderlands, The Outer Worlds, Cyberpunk 2077, Video Games
+
+Wed, 15 Jul 2026 02:45:12 GMT
+
+https://www.cbr.com/sci-fi-games-like-dungeon-crawler-carl/
+
+Fans of the gritty, comedic Dungeon Crawler Carl title may find solace in the following five games that provide equally enjoyable experiences.
+---------
+
+# 7 Thriller Shows That Are a Masterclass in Cliffhangers
+
+TV, Breaking Bad, The Night Manager, Sherlock, Thriller
+
+Wed, 15 Jul 2026 04:27:12 GMT
+
+https://collider.com/thriller-shows-masterclass-cliffhangers/
+
+Bosch, Silo, Breaking Bad, Prison Break, and more make up our list of thriller shows that are a masterclass in cliffhangers.
+---------
+
+# Sam Neill Delivered His Greatest Performance in This 97% Rotten Tomatoes Classic
+
+Movie Features, Sam Neill, Hunt for the Wilderpeople, Taika Waititi, Julian Dennison
+
+Wed, 15 Jul 2026 04:14:12 GMT
+
+https://collider.com/sam-neill-best-movie-taika-waititi-hunt-for-the-wilderpeople/
+
+Hunt for the Wilderpeople is the perfect showcase for everything Sam Neill did best.
+---------
+
+# 'The Last of Us' Meets 'Wuthering Heights' in This Near-Perfect Gothic Book
+
+Books and Comics, Books, Horror, Thriller, Psychological Thriller
+
+Wed, 15 Jul 2026 03:26:12 GMT
+
+https://collider.com/mexican-gothic-gothic-horror-book-near-perfect/
+
+The 2020 Gothic horror Mexican Gothic is a richly atmospheric book exploring heavy themes of colonialism, female exploitation, and bodily autonomy.
+---------
+
+# 'House of the Dragon's James Norton Confirms What Makes Ormund Hightower Such a Dangerous Villain
+
+Exclusives, House of the Dragon, James Norton, HBO, Fantasy
+
+Wed, 15 Jul 2026 02:01:12 GMT
+
+https://collider.com/house-of-the-dragon-season-3-episode-4-ormund-hightower-james-norton-interview/
+
+House of the Dragon's James Norton breaks down Episode 4, his memorable bath scene, Ormund's "toxic" relationship with Daeron, and more.
+---------
+
+# Netflix’s Brutal 3-Season Jason Momoa Series Is Officially More Timely Than Ever
+
+TV Features, Jason Momoa, Netflix, Frontier, Series
+
+Wed, 15 Jul 2026 01:57:12 GMT
+
+https://collider.com/netflix-frontier-jason-momoa-hudsons-bay-company-relevance/
+
+Jason Momoa’s Frontier is newly relevant after Hudson’s Bay’s collapse, revealing the company’s brutal origins in Netflix’s historical drama.
+---------
+
+# The 10 Best Fantasy TV Episodes of All Time, Ranked
+
+TV Lists, Fantasy
+
+Wed, 15 Jul 2026 02:00:28 GMT
+
+https://movieweb.com/best-fantasy-tv-episodes-ranked/
+
+The best fantasy TV episodes of all time capitalize on emotional impact, spectacle, or a combination of the two — and they elevate their shows.
+---------
+
 # Spider-Man’s Worst Character Just Carved Their Name Into 63 Years Of Marvel Lore
 
 Marvel Comics, Spider-Man
