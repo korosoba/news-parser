@@ -1,3 +1,289 @@
+# Ryan Gosling's Record-Setting $504M Hit Is Officially Returning To Theaters 10 Years Later
+
+Movies, La La Land, Ryan Gosling
+
+Wed, 15 Jul 2026 21:26:54 GMT
+
+https://screenrant.com/ryan-gosling-la-la-land-theatrical-rerelease-10th-anniversary-details/
+
+10 years after La La Land was originally released and made over $504 million, the Damien Chazelle-helmed musical is heading back to theaters.
+---------
+
+# Ridley Scott’s Returning Sci-Fi Horror Series Is Taking Things To “A Whole Other Level”
+
+TV, Alien: Earth
+
+Wed, 15 Jul 2026 21:26:42 GMT
+
+https://screenrant.com/alien-earth-season-2-new-level-scale-tease-zucker/
+
+Ridley Scott's prequel series is on its way back, and the show's executive producer revealed that it will be bigger and better than the first season.
+---------
+
+# 8 Best MCU Origin Story Movies
+
+Movies, Marvel Cinematic Universe, Ranking
+
+Wed, 15 Jul 2026 21:20:19 GMT
+
+https://screenrant.com/best-mcu-origin-story-movies/
+
+The Marvel Cinematic Universe has introduced us to some of the best superheroes ever thanks to a handful of fantastic origin story movies.
+---------
+
+# Jujutsu Kaisen Officially Returns For New Season And Major Crossover
+
+Gaming, Jujutsu Kaisen, Triple-A Games
+
+Wed, 15 Jul 2026 21:00:18 GMT
+
+https://screenrant.com/jujutsu-kaisen-monster-strike-july-2026-new-season/
+
+Jujutsu Kaisen is going on its fourth season, and there are so many more projects that involve the cursed world of Yuji Itadori.
+---------
+
+# 67 Years Later, DC Permanently Kills Off An Iconic Supervillain
+
+DC Comics
+
+Wed, 15 Jul 2026 21:00:18 GMT
+
+https://screenrant.com/absolute-flash-gorilla-grodd-death/
+
+Only one month after delivering a shocking villain twist, DC's Absolute Universe presents another shocking revelation that ends in tragedy.
+---------
+
+# Hulu's #1 Movie Stars The Two Best Modern Scream Queens
+
+Movies, Ready or Not 2: Here I Come, Kathryn Newton, Samara Weaving, Op-Ed
+
+Wed, 15 Jul 2026 21:00:18 GMT
+
+https://screenrant.com/best-modern-scream-queens-samara-weaving-kathryn-newton-ready-or-not-2/
+
+Samara Weaving and Kathryn Newton are as good as it gets when it comes to modern horror scream queens and their film together is atop Hulu's charts.
+---------
+
+# How To Read All The Dungeon Crawler Carl Books For Free
+
+Books, Dungeon Crawler Carl
+
+Wed, 15 Jul 2026 21:00:18 GMT
+
+https://screenrant.com/how-read-dungeon-crawler-carl-books-free-leaving-ku/
+
+Every Dungeon Crawler Carl book is available to read for free, but don't wait, because they won't be available forever.
+---------
+
+# A Defining Era For Disney Animated Movies Ended 15 Years Ago Today
+
+Movies, Disney, Winnie the Pooh
+
+Wed, 15 Jul 2026 21:00:18 GMT
+
+https://screenrant.com/disney-animated-movies-2d-era-end-2011/
+
+One of Disney's biggest eras for its animated films that lasted for decades officially ended 15 years ago today, and it's still missed by fans.
+---------
+
+# Yellowstone Switching Main Characters 3 Times In 2 Years Reveals The Truth About Kevin Costner's John Dutton
+
+TV, Yellowstone
+
+Wed, 15 Jul 2026 20:58:18 GMT
+
+https://screenrant.com/yellowstone-change-main-character-john-dutton-truth/
+
+The Yellowstone franchise's decision to change its main character three times in two years reveals a deeper truth about Kevin Costner's John Dutton.
+---------
+
+# Avatar: The Last Airbender’s Controversial New Movie Is Officially Releasing Early
+
+TV, Avatar Aang: The Last Airbender, Avatar: The Last Airbender
+
+Wed, 15 Jul 2026 20:50:30 GMT
+
+https://screenrant.com/avatar-aang-the-last-airbender-movie-early-theatrical-release/
+
+After being pulled from theaters, leaking early, and being surrounded by controversy, Avatar Aang: The Last Airbender is getting an early release.
+---------
+
+# 10 Open-World Games That Are Instantly Fun
+
+Games, open world, Gaming, Video Games, Hogwarts Legacy, Batman: Arkham Knight
+
+Wed, 15 Jul 2026 21:15:12 GMT
+
+https://www.cbr.com/open-world-games-that-are-instantly-fun/
+
+Open-World games can take time to get truly started, but a select few get straight to the action and keep on going through to the end.
+---------
+
+# Jason Statham’s 103-Minute Action That Launched a Franchise Is Officially a Free Streaming Hit
+
+Movies, The Expendables, Action
+
+Wed, 15 Jul 2026 21:07:47 GMT
+
+https://www.cbr.com/the-expendables-action-success-pluto-july-2026/
+
+Jason Statham franchise-starting action hit is blowing up on streaming, and it's free.
+---------
+
+# The Simpsons Finally Acknowledges Apu 9 Years After Phasing Him Out
+
+TV, The Simpsons
+
+Wed, 15 Jul 2026 21:05:26 GMT
+
+https://www.cbr.com/the-simpsons-finally-acknowledges-apu/
+
+The moment may have fans wondering if Apu will have a big presence again in future episodes.
+---------
+
+# Michael Bay's Post-Apocalyptic Sci-Fi Series Is TV's Smartest 5-Season Binge
+
+TV, The Last Ship, Sci-Fi
+
+Wed, 15 Jul 2026 21:00:12 GMT
+
+https://www.cbr.com/michael-bay-the-last-ship-sci-fi-binge/
+
+With a focus on allegorical storytelling, this five-season hit is one of the smartest post-apocalyptic sci-fi shows of the last decade.
+---------
+
+# 5 Essential R-Rated 2010s Westerns That Are Still Perfect Today
+
+Movies, Western, Django Unchained, Hell or High Water
+
+Wed, 15 Jul 2026 21:00:12 GMT
+
+https://www.cbr.com/perfect-r-rated-2010s-westerns-list/
+
+The R-rated side of the Western has given audiences a great insight into life on the frontier, and the 2010s served up some unforgettable gems.
+---------
+
+# Jensen Ackles Officially Breaks CBS's Justin Hartley Formula in Tracker Season 3
+
+TV, Tracker, CBS
+
+Wed, 15 Jul 2026 20:48:19 GMT
+
+https://www.cbr.com/cbs-tracker-season-4-jensen-ackles-supernatural-formula-shift/
+
+The finale of Season 3 of Tracker confirms that Jensen Ackles, officially expected to return in Season 4, has repeatedly broken the series' formula.
+---------
+
+# Kingdom Hearts Officially Returns August 15, Mark Your Calendars
+
+Games, Kingdom Hearts
+
+Wed, 15 Jul 2026 20:45:12 GMT
+
+https://www.cbr.com/kingdom-hearts-officialreturn-august-15-disney-event/
+
+Kingdom Hearts fans finally have something to look forward to after years of waiting for any major updates on their favorite video game franchise.
+---------
+
+# Anya Taylor-Joy & Timothy Olyphant's New Apple Thriller Is TV's Next 10/10 Book Adaptation
+
+TV, Lucky, Thriller, Apple TV
+
+Wed, 15 Jul 2026 20:30:12 GMT
+
+https://www.cbr.com/timothy-olyphant-anya-taylor-joy-apple-tv-lucky-adaptation/
+
+Apple TV's new crime thriller starring Anya Taylor-Joy and Timothy Olyphant could be the best book adaptation of the decade.
+---------
+
+# Paramount’s 134-Minute Fantasy Reboot With a 91% RT Is Officially a Free Streaming Hit
+
+Movies, Dungeons & Dragons: Honor Among Thieves, Fantasy
+
+Wed, 15 Jul 2026 20:28:43 GMT
+
+https://www.cbr.com/dungeons-and-dragons-honor-among-thieves-fantasy-success-pluto-july-2026/
+
+Fantasy fans won't want to miss this free streaming hit.
+---------
+
+# 10 Greatest Transformers Combiners, Ranked by Power
+
+Anime, Transformers
+
+Wed, 15 Jul 2026 20:15:12 GMT
+
+https://www.cbr.com/greatest-transformers-combiners-ranked-power/
+
+Multiple minds fuse when a Transformers combiner forms, and that fusion turns into an instrument of terrifying purpose or a walking experiment.
+---------
+
+# 8 Essential Batman Video Games, Ranked
+
+Video Games, Video Game, Batman: Arkham Knight, Batman: Arkham Asylum (dupe), Lego Batman
+
+Wed, 15 Jul 2026 20:54:12 GMT
+
+https://collider.com/batman-video-games-ranked/
+
+From Batman: Arkham City, to Batman: The Telltale Series, to Lego Batman: The Video Game, these are the best Batman video games of all time.
+---------
+
+# 8 Most Ambitious Fantasy Movies Ever Made, Ranked
+
+Movie, Avatar, Fantasy, Who Framed Roger Rabbit, Spirited Away
+
+Wed, 15 Jul 2026 20:28:12 GMT
+
+https://collider.com/most-ambitious-fantasy-movies-ever-made-ranked/
+
+The NeverEnding Story, Stardust, Spirited Away, Avatar, Fantasia, and more make up our list of the most ambitious fantasy movies ever made.
+---------
+
+# Will Ferrell Officially Ranks His Funniest Sports Movie Characters Ahead of Netflix’s ‘The Hawk’
+
+Interviews, The Hawk, Will Ferrell, Molly Shannon, Netflix
+
+Wed, 15 Jul 2026 20:15:12 GMT
+
+https://collider.com/netflix-the-hawk-will-ferrell-sports-characters-ranked/
+
+Will Ferrell and Molly Shannon share the secret behind their long-time working relationship, as well as rank Ferrell's previous sports characters.
+---------
+
+# 7 Things You Need to Know About 'The Odyssey' Before Watching
+
+Movie Lists, The Odyssey
+
+Wed, 15 Jul 2026 21:00:17 GMT
+
+https://movieweb.com/the-odyssey-need-to-know-facts/
+
+Before the release of Christopher Nolan's 'Oppenheimer' follow-up, here are the biggest things to know about 'The Odyssey.'
+---------
+
+# Sam Neill's Underrated Netflix Thriller Is a Perfect One-Night Binge
+
+Features, Sam Neill, Untamed, Netflix, Thriller
+
+Wed, 15 Jul 2026 20:35:54 GMT
+
+https://movieweb.com/netflix-untamed-sam-neill-thriller/
+
+Sam Neill fans need to see the late actor's gripping performance in Netflix's addictive nature-set thriller Untamed
+---------
+
+# 'The Rookie' Confirms New Release Months Ahead of Long-Awaited Season 9
+
+TV News, The Rookie
+
+Wed, 15 Jul 2026 20:25:24 GMT
+
+https://movieweb.com/the-rookie-extended-episode-season-9/
+
+ABC is giving 'The Rookie' fans fresh content well ahead of the show’s Season 9 comeback.
+---------
+
 # IT: Welcome To Derry Season 2’s Update Is Great News For Stephen King’s HBO Show
 
 TV, It: Welcome to Derry
