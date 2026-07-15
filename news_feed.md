@@ -1,3 +1,300 @@
+# Peacock's Friday The 13th Prequel Series Isn't The Show You Think
+
+Streaming TV, Crystal Lake
+
+Wed, 15 Jul 2026 12:30:18 GMT
+
+https://screenrant.com/crystal-lake-friday-13th-prequel-surprising-story/
+
+Peacock has dropped a trailer for its Friday the 13th prequel series, Crystal Lake, and it's clear that the show is about more than Jason's origins.
+---------
+
+# 9 MCU Castings That Are Perfect But Underrated
+
+Movies, Marvel Cinematic Universe, Ranking
+
+Wed, 15 Jul 2026 12:30:18 GMT
+
+https://screenrant.com/mcu-casting-ators-perfect-underrated/
+
+The MCU has always been great at casting its characters, yet a few of the best choices have flown under the radar, even though they're perfect.
+---------
+
+# Wheel Of Time: War Of The Dragon Begins An Epic New Era For The Series
+
+Gaming, The Wheel of Time, PC
+
+Wed, 15 Jul 2026 12:18:13 GMT
+
+https://screenrant.com/wheel-of-time-war-of-the-dragon-new-era/
+
+The Wheel of Time: War of the Dragon is a complete new way to experience the iconic fantasy adventure, and marks the start of an incredible new era.
+---------
+
+# Zelda Officially Kicks Off 40th Anniversary With Multiple September 2026 Releases
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Wed, 15 Jul 2026 12:00:19 GMT
+
+https://screenrant.com/zelda-40th-anniversary-september-2026-releases/
+
+The Legend of Zelda is celebrating a very big birthday this year, and there are plenty of releases coming down the pipeline as a result.
+---------
+
+# 9 Best Comedy Movie Trilogies Ever
+
+Movies, Comedy, Ranking
+
+Wed, 15 Jul 2026 12:00:19 GMT
+
+https://screenrant.com/best-comedy-movie-trilogies/
+
+Comedy is a genre that tends to get overlooked when it comes to trilogies, yet there have been some great and hilarious ones throughout history.
+---------
+
+# Ryan Murphy's Next Major Release Isn't American Horror Story
+
+TV, Masked Recs
+
+Wed, 15 Jul 2026 12:00:19 GMT
+
+https://screenrant.com/ryan-murphy-american-horror-story-hulu-the-shards-august-release/
+
+Before American Horror Story season 13 arrives, divisive producer Ryan Murphy has another controversial horror/thriller/true crime show on the way.
+---------
+
+# Hogwarts Legacy 2 September 2026 Announcement Unites Gamers
+
+Gaming, Hogwarts Legacy
+
+Wed, 15 Jul 2026 11:30:18 GMT
+
+https://screenrant.com/hogwarts-legacy-2-september-2026-announcement-hopes/
+
+Fans eagerly await potential Hogwarts Legacy sequel announcement on September 1, as speculation grows about the future of the popular RPG series.
+---------
+
+# The Elder Scrolls: Valenwood Officially Launches November 2026
+
+Gaming, The Elder Scrolls, The Elder Scrolls 6, The Elder Scrolls V: Skyrim, PC
+
+Wed, 15 Jul 2026 11:26:30 GMT
+
+https://screenrant.com/elder-scrolls-valenwood-expansion-november-2026/
+
+The Elder Scrolls officially returns in November 2026, taking players to the mysterious forests of Valenwood for a brand-new adventure.
+---------
+
+# 100% RT Series From CBS Is Officially Ending With Season 3
+
+TV, Colin from Accounts
+
+Wed, 15 Jul 2026 11:15:18 GMT
+
+https://screenrant.com/colin-from-accounts-show-season-3-end-confirmed/
+
+One of the most underrated shows produced by CBS with 100% on Rotten Tomatoes is officially wrapping up its impressive run after three seasons.
+---------
+
+# Mark Hamill's Joker Returns With A Live-Action Twist
+
+Comics, mark hamill, Joker
+
+Wed, 15 Jul 2026 12:00:11 GMT
+
+https://www.cbr.com/dc-all-in-special-1-mark-hamill-joker-variant-cover/
+
+You've never seen Mark Hamill's Joker like this.
+---------
+
+# 10 Batman Comics Every DC Movie Fan Should Read
+
+Comics, Batman, DC Comics
+
+Wed, 15 Jul 2026 11:45:12 GMT
+
+https://www.cbr.com/batman-comics-dc-movie-fans-should-read/
+
+Batman has been a force to be reckoned with in both comics and movies since the 1940s, and some stories are the perfect starting point for film fans.
+---------
+
+# Disney+ Finally Fixes the Biggest Fumble in MCU History
+
+TV, X-Men '97, MCU, Marvel
+
+Wed, 15 Jul 2026 11:30:12 GMT
+
+https://www.cbr.com/x-men-97-mcu-kang-rama-tut-update/
+
+Marvel Studios' X-Men '97 has made amends for a major failure of the Marvel Cinematic Universe's Multiverse Saga involving Kang.
+---------
+
+# 'Baldur's Gate 3' Creators Drop Perfect Response to Gerard Way's Shock Gaming Confession
+
+Gaming News, Baldur's Gate 3, Larian Studios, Gerard Way, Gaming
+
+Wed, 15 Jul 2026 12:30:12 GMT
+
+https://collider.com/baldurs-gate-3-my-chemical-romance-gerard-way-confession-larian-studios-response/
+
+My Chemical Romance's Gerard Way recently revealed he's never played Baldur's Gate 3, and the game's creator has responded.
+---------
+
+# Turning ‘Nova’ Into a Movie Could Repeat One of Marvel’s Biggest TV Mistakes
+
+TV Features, Loki, Avengers: Doomsday, Thunderbolts*, Disney Plus
+
+Wed, 15 Jul 2026 12:24:12 GMT
+
+https://collider.com/nova-movie-marvel-studios-disney-plus-television-problem-opinion/
+
+While Nova is finally moving to the silver screen, it might run into the same issue as recent Marvel projects.
+---------
+
+# 8 Soft Sci-Fi Movies That Are Perfect From the First Scene to the Last
+
+Movie, Science Fiction, Melancholia, Eternal Sunshine of the Spotless Mind
+
+Wed, 15 Jul 2026 12:20:12 GMT
+
+https://collider.com/soft-sci-fi-movies-perfect-first-scene-to-last/
+
+From rom-coms like About Time to disaster dramas like Melancholia, these soft sci-fi movies successfully remain perfectly flawless throughout their.
+---------
+
+# ‘Bosch’s Titus Welliver Reveals His Next Crime Thriller Role in 'The Night Agent' Season 4
+
+TV News, The Night Agent, Titus Welliver, Bosch, Netflix
+
+Wed, 15 Jul 2026 12:01:12 GMT
+
+https://collider.com/bosch-titus-welliver-the-night-agent-season-4-role-martin-duval/
+
+Bosch actor Titus Welliver explains his new character, Martin Duval, who he'll play in the fourth and final season of The Night Agent on Netflix.
+---------
+
+# Tatiana Maslany Has "No Idea" Where 'Maximum Pleasure Guaranteed' Will Go After That Bonkers Finale
+
+Interviews, Maximum Pleasure Guaranteed, Tatiana Maslany, Apple TV, Thriller
+
+Wed, 15 Jul 2026 12:01:12 GMT
+
+https://collider.com/maximum-pleasure-guaranteed-finale-tatiana-maslany-interview/
+
+Maximum Pleasure Guaranteed star Tatiana Maslany breaks down her tense custody battle with Karl, the thriller's many twists, and the Portland reveal.
+---------
+
+# 10 Best Movie Villains of the 2020s So Far
+
+Movie, Obsession, One Battle After Another, Godzilla Minus One, Weapons
+
+Wed, 15 Jul 2026 11:51:12 GMT
+
+https://collider.com/best-movie-villains-2020s-so-far-ranked/
+
+Bear from Obsession, Aunt Gladys from Weapons, and Remmick from Sinners are all among the greatest movie villains of the 2020s so far.
+---------
+
+# Prime Video’s 50-Episode Psychological Horror Is So Good, It Goes Way Beyond the Books It's Based On
+
+TV Features, Bates Motel, Psycho, Freddie Highmore, Vera Farmiga
+
+Wed, 15 Jul 2026 11:49:12 GMT
+
+https://collider.com/bates-motel-prime-video-psychological-horror-book/
+
+Bates Motel delves deep into Norman Bates' backstory, taking significant liberties with the original Psycho novel and film.
+---------
+
+# 10 Greatest Miniseries Masterpieces of All Time
+
+TV, Miniseries, Adolescence, Chernobyl, Roots
+
+Wed, 15 Jul 2026 11:45:13 GMT
+
+https://collider.com/best-miniseries-masterpieces-all-time-ranked/
+
+From Adolescence to Band of Brothers, these miniseries masterpieces are the greatest of all time.
+---------
+
+# The Complete NBC Fall 2026 Schedule
+
+TV, NBC, Law & Order: Special Victims Unit, St. Denis Medical, One Chicago
+
+Wed, 15 Jul 2026 11:41:12 GMT
+
+https://collider.com/nbc-fall-2026-schedule/
+
+From returning sitcoms like St. Denis Medical to long-running favorites like Law & Order: SVU, the NBC Fall 2026 line-up is stacked with great shows.
+---------
+
+# 10 Classic Adventure Books You Must Read in 2026
+
+Books and Comics, Books, Around the World in 80 Days, Adventure, Robinson Crusoe
+
+Wed, 15 Jul 2026 11:36:12 GMT
+
+https://collider.com/classic-adventure-books-must-read-2026/
+
+The adventure genre has produced many timeless classics that are still must-reads today, including Around the World in Eighty Days and Don Quixote.
+---------
+
+# One of Netflix's All-Time Best Sci-Fi Series Getting New Release in 2 Months
+
+TV News, Stranger Things, Netflix
+
+Wed, 15 Jul 2026 12:35:20 GMT
+
+https://movieweb.com/netflix-stranger-things-coffee-table-photo-book/
+
+Fans of Netflix's biggest sci-fi series are in for a special treat this September.
+---------
+
+# Netflix Finds New Smash Hit With 'John Wick' Star's 97-Minute Action Thriller
+
+Movie News, The Doorman, Action, Thriller, Netflix
+
+Wed, 15 Jul 2026 12:30:16 GMT
+
+https://movieweb.com/the-doorman-netflix-action-most-watched-july-2026/
+
+After bombing quite spectacularly at the box office, the no-nonsense action flick is now a streaming success.
+---------
+
+# Forget 'John Wick', Keanu Reeves Risks Lives in Thrilling New Racer Docuseries
+
+TV News, Hooligans: The ARCH Racing Project, Keanu Reeves, John Wick
+
+Wed, 15 Jul 2026 12:00:41 GMT
+
+https://movieweb.com/keanu-reeves-hooligans-arch-racing-docuseries/
+
+In an interview with MovieWeb, Keanu Reeves spoke about the risks of his new docuseries with Gard Hollinger, 'Hooligans: The ARCH Racing Project.'
+---------
+
+# George R.R. Martin Can Reveal a 'Game of Thrones' Mystery in New Prequel
+
+Features, Game of Thrones, George R.R. Martin
+
+Wed, 15 Jul 2026 12:00:17 GMT
+
+https://movieweb.com/george-rr-martin-game-of-thrones-laughing-tree-mad-king-prequel/
+
+An upcoming 'Game of Thrones' prequel play can finally solve a long-running mystery from the popular franchise based on George R.R. Martin's books.
+---------
+
+# Henry Cavill's New 108-Minute Netflix Action Adventure Is Still the Biggest Movie on Streaming
+
+Movie News, Henry Cavill, Enola Holmes 3, Action, Adventure, Netflix
+
+Wed, 15 Jul 2026 11:46:14 GMT
+
+https://movieweb.com/henry-cavill-netflix-enola-holmes-3-biggest-movie-streaming-july-2026/
+
+The new action-adventure outing is now dominating Netflix after achieving another 12 million views.
+---------
+
 # Fallout 3 Remake Gameplay Leak Has Fans Braced For Stealth Drop
 
 Gaming, Fallout
