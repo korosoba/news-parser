@@ -1,3 +1,333 @@
+# IT: Welcome To Derry Season 2’s Update Is Great News For Stephen King’s HBO Show
+
+TV, It: Welcome to Derry
+
+Wed, 15 Jul 2026 19:57:19 GMT
+
+https://screenrant.com/it-welcome-to-derry-season-2-slow-progress-good/
+
+IT: Welcome to Derry's season 2 update from HBO CEO Casey Bloys is good news for the Stephen King adaptation and Pennywise's onscreen future.
+---------
+
+# Stephen King-Approved Horror Movie Dominates Second Streamer's Top 10 In Just 2 Weeks
+
+Movies, Masked Recs
+
+Wed, 15 Jul 2026 19:51:26 GMT
+
+https://screenrant.com/undertone-movie-netflix-global-streaming-success-july-2026-stephen-king-approved/
+
+A Stephen King-approved horror movie dominates a second streamer's Top 10 in just two weeks after making 44 times its budget at the box office.
+---------
+
+# Pokémon King & Queen Leaked Details Appear Online
+
+Gaming, Pokemon, Triple-A Games
+
+Wed, 15 Jul 2026 19:51:09 GMT
+
+https://screenrant.com/pokemon-king-queen-leaked-details/
+
+The eighth generation of Pokémon games almost looked completely different, according to a new look at the scrapped Pokémon King & Queen.
+---------
+
+# Netflix’s New Remake Of 22-Year-Old Classic Officially Casts 2000s Icon
+
+TV, 13 Going on 30, Jessica Alba
+
+Wed, 15 Jul 2026 19:45:34 GMT
+
+https://screenrant.com/netflix-13-going-on-30-remake-series-cast-jessica-alba/
+
+A rom-com starring Jennifer Garner from 2004 is currently being remade by Netflix, and an icon from the 2000s has just joined the cast.
+---------
+
+# The Last Of Us Has New Competition As Prime Video Goes All In On Video Game Shows
+
+Streaming TV, The Last of Us
+
+Wed, 15 Jul 2026 19:30:19 GMT
+
+https://screenrant.com/prime-video-upcoming-video-game-shows-last-of-us-competition/
+
+The Last of Us will have some stiff competition for the title of biggest video game adaptation when Prime debuts its God of War and Tomb Raider shows.
+---------
+
+# Barbara Gordon's Batgirl Gets New Powers & Her Most Epic Redesign Yet
+
+DC Comics, Batgirl
+
+Wed, 15 Jul 2026 19:25:02 GMT
+
+https://screenrant.com/dark-knights-steel-redesign-batgirl-oracle/
+
+Batgirl has debuted her greatest redesign ever, transforming from a brilliant genius into the most powerful version of Barbara Gordon yet.
+---------
+
+# New Naruto Movie Casting Reveal Confirms Major Anime Change Fans Missed
+
+Movies, Naruto
+
+Wed, 15 Jul 2026 19:20:25 GMT
+
+https://screenrant.com/naruto-movie-casting-reveal-characters-actors-older/
+
+Naruto's movie still has plenty to reveal, including its anticipated release date, but the latest casting updates certainly spark worthy speculation.
+---------
+
+# Marvel Studios Rewrites Wolverine In New 2026 Release
+
+Streaming TV, Masked Recs
+
+Wed, 15 Jul 2026 19:11:19 GMT
+
+https://screenrant.com/wolverine-powers-rewrite-xmen-tv-show-disney-plus/
+
+Wolverine is back in this 2026 Marvel Studios release, and Logan's dark new storyline comes with a twist that is a game-changer for his powers.
+---------
+
+# Ben Affleck's Batman Replacement Shows What The DCEU Could've Been
+
+Movies, Masked Recs
+
+Wed, 15 Jul 2026 19:02:18 GMT
+
+https://screenrant.com/ben-affleck-the-accountant-streaming-success/
+
+Ben Affleck's action thriller franchise is a worldwide hit on HBO Max, and a brutal reminder of just how good his DCEU Batman could have been.
+---------
+
+# Crunchyroll Adds 10 More Manga Releases in New July 2026 Update
+
+Anime, Crunchyroll, Manga, Black Torch, Hana-Kimi
+
+Wed, 15 Jul 2026 20:06:12 GMT
+
+https://www.cbr.com/crunchyroll-manga-july-2026-release-update/
+
+Crunchyroll expands its growing manga collection with '90s-era classics like Hana-Kimi, underrated Shonen Jump gems like Black Torch and more.
+---------
+
+# Stephen King's 108-Minute Dystopian Thriller Is the Perfect The Mist Replacement
+
+Movies, The Mist, The Long Walk
+
+Wed, 15 Jul 2026 20:00:12 GMT
+
+https://www.cbr.com/the-long-walk-perfect-the-mist-replacement/
+
+No Stephen King ending has been quite so good since The Mist's shocking conclusion.
+---------
+
+# Robert Kirkman Denies Superhero Fatigue, Blames Bad Writing Instead
+
+Comics, Invincible
+
+Wed, 15 Jul 2026 20:00:12 GMT
+
+https://www.cbr.com/robert-kirkman-superhero-fatigue-blames-bad-writing/
+
+Invincible co-creator believes people still love superheroes, they just want better writing.
+---------
+
+# Elden Ring Successor Officially Playable This August
+
+Games, Elden Ring, Nintendo
+
+Wed, 15 Jul 2026 19:50:11 GMT
+
+https://www.cbr.com/elden-ring-successor-officially-playable-august-2026/
+
+FromSoftware has finally announced when its next game after Elden Ring Nightreign will be playable, but not everyone will be able to jump in.
+---------
+
+# 35 Most Popular Marvel Characters, Ranked
+
+Comics, Marvel, Spider-Man, Iron Man, Scarlet Witch
+
+Wed, 15 Jul 2026 19:45:12 GMT
+
+https://www.cbr.com/popular-marvel-characters/
+
+Whether they received popularity from the MCU or they've always been fan favorites, everyone knows the names of Marvel's most popular characters.
+---------
+
+# Stranger Things Officially Returns Today With Surprise Streaming Release on Netflix
+
+TV, Stranger Things, Netflix, Sci-Fi
+
+Wed, 15 Jul 2026 19:37:07 GMT
+
+https://www.cbr.com/stranger-things-vhs-special-edition-10th-anniversary/
+
+Stranger Things is back like never before.
+---------
+
+# Christopher Nolan's The Odyssey Officially Debuts With His Best-Ever Rotten Tomatoes Score
+
+Movies, The Odyssey, Fantasy
+
+Wed, 15 Jul 2026 19:21:09 GMT
+
+https://www.cbr.com/the-odyssey-rotten-tomatoes-score/
+
+The Odyssey sets a new high bar in Christopher Nolan's acclaimed career.
+---------
+
+# Pokémon Winds and Waves Is Changing Its Battle System After Legends: Z-A
+
+Games, Pokemon
+
+Wed, 15 Jul 2026 19:05:12 GMT
+
+https://www.cbr.com/pokemon-winds-and-waves-changing-battle-system-legends-z-a/
+
+Pokémon is once again changing up its battle system for Winds and Waves.
+---------
+
+# The 10 Greatest Erotic Movies of the 21st Century, Ranked
+
+Movies
+
+Wed, 15 Jul 2026 19:00:12 GMT
+
+https://www.cbr.com/best-erotic-movies-of-the-21st-century-list/
+
+Whether they lean into romance or outright thriller territory, these are the 10 erotic movies that left the biggest mark on modern cinema.
+---------
+
+# 10 Greatest Pokémon of the Last 10 Years
+
+TV, Pokémon, Video Game, Anime, Gaming
+
+Wed, 15 Jul 2026 20:05:12 GMT
+
+https://collider.com/best-pokemon-last-10-years/
+
+The Pokémon franchise has given us some truly incredible Pokémon over the last decade, including juggernauts like Incineroar, Zacian, and Meowscarada.
+---------
+
+# Michael Fassbender’s New Monster Epic Is Coming to Comic-Con
+
+Movie News, Neon, San Diego Comic-Con, Hope, Action
+
+Wed, 15 Jul 2026 19:58:53 GMT
+
+https://collider.com/michael-fassbender-sci-fi-hope-na-hong-jin-comic-con-footage-hoyeon/
+
+Na Hong-Jin’s monster sci-fi epic Hope, starring Michael Fassbender, is heading to SDCC with Hoyeon and new footage ahead of its September release.
+---------
+
+# Prime Video's Next Fantasy Show Combines the Best Parts of 'Vikings' and 'The Witcher'
+
+TV Features, God of War, The Witcher, Vikings, Prime Video
+
+Wed, 15 Jul 2026 19:48:11 GMT
+
+https://collider.com/prime-video-god-of-war-the-witcher-vikings-replacement/
+
+God of War replaces Vikings and The Witcher in a story about a god in exile who must learn to be a true father while on an odyssey with his son.
+---------
+
+# Netflix’s New Western Lassos 6.4 Million Views in 4 Days Despite Review Bombing
+
+TV News, Netflix, Little House on the Prairie, Western, Luke Bracey
+
+Wed, 15 Jul 2026 19:30:12 GMT
+
+https://collider.com/netflix-western-little-house-on-the-prairie-6-million-views-review-bombed/
+
+Netflix's Little House on the Prairie defied a review-bombing campaign and raked in more than 6 million views in its first week. Find out more.
+---------
+
+# 5 Greatest Julia Roberts Movie Masterpieces
+
+Movie, Julia Roberts, Notting Hill, My Best Friend's Wedding, Erin Brockovich
+
+Wed, 15 Jul 2026 19:19:12 GMT
+
+https://collider.com/best-julia-roberts-movies/
+
+From rom-com royalty to Oscar-worthy turns, these Julia Roberts classics prove her greatest strength was always beneath the charm.
+---------
+
+# Henry Cavill’s New Netflix Detective Movie Loses 8.7 Million Views in Just 1 Week
+
+Movie News, Henry Cavill, Enola Holmes 3, Millie Bobby Brown, Netflix
+
+Wed, 15 Jul 2026 19:01:12 GMT
+
+https://collider.com/enola-holmes-3-millie-bobby-brown-henry-cavill-netflix-30-million-views/
+
+Enola Holmes 3, starring Millie Bobby Brown and Henry Cavill, suffered a massive drop in viewership in its second week on Netflix. Find out more.
+---------
+
+# 8 Perfect Hulu Shows With No Bad Seasons
+
+TV Lists, The Bear, Hulu
+
+Wed, 15 Jul 2026 20:00:17 GMT
+
+https://movieweb.com/perfect-hulu-shows-no-bad-seasons/
+
+Hulu is one of the most popular streaming services and has released some memorable original TV shows over the past few years.
+---------
+
+# Netflix's New 8-Part Harlan Coben Thriller Is Officially the Biggest Show on Streaming
+
+TV News, I Will Find You, Netflix, Hot on Streaming
+
+Wed, 15 Jul 2026 20:00:17 GMT
+
+https://movieweb.com/netflix-i-will-find-you-biggest-show-streaming-july-2026/
+
+If you like a quick binge, there's nothing better on streaming than this right now.
+---------
+
+# Peter Jackson's Action-Adventure Classic Sequel Crosses a Major Milestone
+
+Movie News, Peter Jackson, The Adventures of Tintin, Steven Spielberg
+
+Wed, 15 Jul 2026 19:35:10 GMT
+
+https://movieweb.com/peter-jackson-tintin-2-sequel-script-update/
+
+Peter Jackson says he and Fran Walsh have wrapped the script for the 'Tintin' sequel, his likely next film as director after 15 years.
+---------
+
+# Upcoming 'The Conjuring' Expansion Officially Confirms All-New Release Date
+
+Movie News, The Conjuring Universe, The Revenge of La Llorona
+
+Wed, 15 Jul 2026 19:20:08 GMT
+
+https://movieweb.com/conjuring-spin-off-new-release-date/
+
+'The Revenge of La Llorona' has moved up its release date to Febraury 2027.
+---------
+
+# 'Dexter: Resurrection' Season 2 Finds Its Latest Serial Killer Villain in 'The Last of Us' Star
+
+TV News, Dexter: Resurrection, Gabriel Luna
+
+Wed, 15 Jul 2026 19:15:59 GMT
+
+https://movieweb.com/dexter-resurrection-season-2-cast-gabriel-luna/
+
+Dexter feeds his Dark Passenger with the blood of new serial killers in 'Dexter: Resurrection' Season 2.
+---------
+
+# Jenna Ortega's New Sci-Fi Project Suffers a Major Release Date Setback
+
+Movie News
+
+Wed, 15 Jul 2026 19:10:53 GMT
+
+https://movieweb.com/the-great-beyond-release-delay/
+
+Jenna Ortega's new sci-fi movie faces an unexpected release delay as post-production on the project pushes forward.
+---------
+
 # New Cyberpunk 2077 Game Officially Reveals Brand-New Gameplay
 
 Gaming, tabletop games, Cyberpunk 2077
