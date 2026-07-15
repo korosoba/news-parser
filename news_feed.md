@@ -1,3 +1,344 @@
+# Spider-Man’s Worst Character Just Carved Their Name Into 63 Years Of Marvel Lore
+
+Marvel Comics, Spider-Man
+
+Wed, 15 Jul 2026 01:44:11 GMT
+
+https://screenrant.com/spider-man-1000-paul-marvel-lore/
+
+Spider-Man fans agree that one character above all others deserves all of their resentment and hatred, and they're being honored as the meme they are.
+---------
+
+# Lucky Review: Anya Taylor-Joy’s Badass Crime Series Is The Thrill Ride Of The Summer
+
+Streaming TV, Lucky
+
+Wed, 15 Jul 2026 01:01:18 GMT
+
+https://screenrant.com/lucky-tv-review/
+
+Anya Taylor-Joy plays a talented con artist on the run from both sides of the law in Lucky, Apple TV's wildly entertaining summer crime thriller.
+---------
+
+# Kingdom Come: Deliverance Is Officially Back With A New RPG
+
+Gaming, Kingdom Come: Deliverance, Kingdom Come: Deliverance II, PC, RPG
+
+Wed, 15 Jul 2026 01:00:19 GMT
+
+https://screenrant.com/kingdom-come-deliverance-board-game-rpg/
+
+Kingdom Come: Deliverance officially returns with a brand-new and long-awaited RPG taking players back to 15th-century Bohemia.
+---------
+
+# The Big Bang Theory Officially Changes Genre This Month
+
+Streaming TV, Masked Recs
+
+Wed, 15 Jul 2026 01:00:19 GMT
+
+https://screenrant.com/the-big-bang-theory-change-genre-stuart-fails-to-save-universe/
+
+The Big Bang Theory was always a love letter to sci-fi, but until recently, the spinoffs have been sitcoms. Now, the franchise is changing to sci-fi.
+---------
+
+# The MCU’s New Fantastic Four Prequel Is The Silver Surfer Story First Steps Needed
+
+Superheroes, The Fantastic Four: First Steps, Marvel Cinematic Universe, Silver Surfer
+
+Wed, 15 Jul 2026 00:30:18 GMT
+
+https://screenrant.com/mcu-fantastic-four-prequel-new-silver-surfer-story/
+
+The Silver Surfer's new and canonical prequel before the events of the MCU's Fantastic Four: First Steps would have been perfect for the actual movie.
+---------
+
+# NBC Issued A Death Sentence To A 15-Year-Old Franchise With 159 Episodes
+
+Network TV, Masked Recs
+
+Wed, 15 Jul 2026 00:30:18 GMT
+
+https://screenrant.com/nbc-suits-la-cancellation-ends-franchise/
+
+NBC tried to capitalize off one of the greatest streaming successes of modern history, but the network's failure puts an entire franchise in jeopardy.
+---------
+
+# House Of The Dragon Season 3 Hints At A Different Ending For A Major Team Green Character
+
+Streaming TV, House of the Dragon
+
+Wed, 15 Jul 2026 00:16:17 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-helaena-different-ending-maelor/
+
+House of the Dragon has teased that Helaena is pregnant, confirming that her ending will be even more different from the books than we thought.
+---------
+
+# Stranger Things Meets The Umbrella Academy In Netflix's 2-Part Fantasy Series
+
+Streaming TV, Masked Recs
+
+Wed, 15 Jul 2026 00:00:18 GMT
+
+https://screenrant.com/wednesday-netflix-stranger-things-meets-umbrella-academy-series/
+
+Netflix's Wednesday series planted the Addams Family icon in a supernatural coming-of-age show in the vein of Stranger Things or The Umbrella Academy.
+---------
+
+# 7 Perfect Action Anime With Guns
+
+Anime
+
+Wed, 15 Jul 2026 00:00:18 GMT
+
+https://screenrant.com/perfect-action-anime-guns/
+
+Standout action anime come in all shapes and sizes, and these seven series are among the best featuring gunslinging mayhem.
+---------
+
+# Witch Hat Atelier Is The Neverending Story's True Heir Confirms Series Creator (Exclusive)
+
+Anime, Witch Hat Atelier
+
+Wed, 15 Jul 2026 00:00:18 GMT
+
+https://screenrant.com/witch-hat-atelier-2026-best-fantasy-series-neverending-story-successor/
+
+Exclusive: The Neverending Story has yet to receive a direct sequel forty-two years later, but its 2026 successor honors its classic fantasy elements.
+---------
+
+# 5 Magical Fantasy Manga Better Than Harry Potter
+
+Anime, Manga, Harry Potter, Witch Hat Atelier
+
+Wed, 15 Jul 2026 01:25:12 GMT
+
+https://www.cbr.com/magical-fantasy-manga-better-than-harry-potter/
+
+Harry Potter's wizarding world is nothing compared to the magical stories of Witch Hat Atelier and Little Witch Academia.
+---------
+
+# Natasha Lyonne Breaks Silence on Her Surprising Poker Face Exit After 2 Seasons
+
+TV, Poker Face
+
+Wed, 15 Jul 2026 01:25:09 GMT
+
+https://www.cbr.com/natasha-lyonne-talks-poker-face-season-3-exit/
+
+Natasha Lyonne comments on being replaced as the lead star for Poker Face for its planned third season.
+---------
+
+# Lucky Review: Anya Taylor-Joy’s Apple TV Thriller Can’t Escape Its Biggest Problem
+
+TV, Apple TV, Crime, Lucky
+
+Wed, 15 Jul 2026 01:00:12 GMT
+
+https://www.cbr.com/lucky-show-review/
+
+Apple TV’s Lucky boasts a stellar cast and slick thrills, but familiar storytelling keeps the crime drama from standing out.
+---------
+
+# Zelda's 40th Anniversary Celebration Finally Begins This September
+
+Games, The Legend of Zelda, Nintendo
+
+Wed, 15 Jul 2026 00:45:12 GMT
+
+https://www.cbr.com/zeldas-40th-anniversary-nintendo-direct-september/
+
+The stars are aligning around September for Zelda’s 40th anniversary, as multiple official releases converge around several new rumors and leaks.
+---------
+
+# Netflix's New Reboot of a Beloved 39-Year-Old Sitcom Is Already the Comedy TV Event of 2026
+
+TV, Netflix, a different world, Sitcoms
+
+Wed, 15 Jul 2026 00:30:11 GMT
+
+https://www.cbr.com/netflix-a-different-world-reboot-comedy-tv-event-2026/
+
+Netflix's long-awaited revival of a beloved '80s sitcom will take the iconic series in a completely new direction while keeping its legacy intact.
+---------
+
+# 5 Sith Stronger Than Darth Vader
+
+Movies, Star Wars
+
+Wed, 15 Jul 2026 00:30:11 GMT
+
+https://www.cbr.com/most-powerful-sith-not-darth-vader-list/
+
+Darth Vader may be the most iconic Sith of all time, but these Dark Side wielders put him to shame.
+---------
+
+# Dragon Ball Z Finally Brings Back Android 16 vs. Cell After 34 Years
+
+Anime, Dragon Ball, Dragon Ball Z, merchandise
+
+Wed, 15 Jul 2026 00:20:12 GMT
+
+https://www.cbr.com/dragon-ball-match-makers-banpresto-android-16-vs-cell/
+
+The franchise has brought back the fight between Cell and Android 16, which set Gohan on the path to greatness.
+---------
+
+# Dragon Ball Super Remake Is Skipping the Copy Vegeta Saga
+
+Anime, Dragon Ball Super: Beerus, Dragon Ball Super, Dragon Ball
+
+Wed, 15 Jul 2026 00:15:12 GMT
+
+https://www.cbr.com/dragon-ball-super-remake-skipping-copy-vegeta-arc/
+
+Dragon Ball Super's upcoming anime remake is taking a more concise, manga-adjacent approach that will finally undo Vegeta's most regrettable form.
+---------
+
+# Noah Hawley’s Alien: Earth Follow-Up Casts Sopranos Actor in Major Role
+
+TV, Far Cry
+
+Tue, 14 Jul 2026 23:49:13 GMT
+
+https://www.cbr.com/far-cry-series-casts-steve-buscemi/
+
+An 8-time Emmy nominee boards Noah Hawley's next TV series based on a major IP.
+---------
+
+# Colin Farrell's Most Shocking Thriller Has Officially Arrived on HBO Max
+
+Movie Features, The Killing of a Sacred Deer, Colin Farrell, Yorgos Lanthimos, Barry Keoghan
+
+Wed, 15 Jul 2026 01:43:12 GMT
+
+https://collider.com/colin-farrell-killing-of-a-sacred-deer-barry-keoghan-streaming-hbo-max/
+
+Yorgos Lanthimos' chilling thriller The Killing of a Sacred Deer showed a new side of star Colin Farrell, and introduced Barry Keoghan to the world.
+---------
+
+# You're Officially Running Out of Time to Watch the 2010s' Greatest Sci-Fi Movie
+
+Movie Features, Ex Machina, Oscar Isaac, Domhnall Gleeson, Alicia Vikander
+
+Wed, 15 Jul 2026 01:12:12 GMT
+
+https://collider.com/ex-machina-streaming-netflix-leaving-july-best-sci-fi-movie/
+
+Alex Garland's 2013 sci-fi masterpiece, Ex Machina, is going to be leaving its main streaming home soon.
+---------
+
+# Anya Taylor-Joy's Apple TV Crime Thriller Struggles To Strike the Right Balance | Review
+
+TV Reviews, Lucky, Anya Taylor-Joy, Timothy Olyphant, Apple TV
+
+Wed, 15 Jul 2026 01:01:12 GMT
+
+https://collider.com/lucky-apple-tv-review-anya-taylor-joy/
+
+Despite a promising concept, Anya Taylor-Joy's Apple TV crime thriller Lucky struggles to strike the right balance between action and emotion.
+---------
+
+# 10 Classic Romance Movies Nobody Wants To See a Remake Of
+
+Movie, Romance, Moonstruck, Sleepless In Seattle, It Happened One Night
+
+Wed, 15 Jul 2026 00:55:12 GMT
+
+https://collider.com/classic-romance-movies-no-remakes/
+
+Moonstruck, Casablanca, Breakfast at Tiffany's, Gone with the Wind, and more make up our list of romance movies nobody wants a remake of.
+---------
+
+# 10 Best Book Trilogies of All Time
+
+Books and Comics, His Dark Materials, The Lord of the Rings, The Hunger Games, The Three Musketeers
+
+Wed, 15 Jul 2026 00:51:12 GMT
+
+https://collider.com/best-book-trilogies-all-time-ranked/
+
+The best book trilogies of all time include fantasy ones like His Dark Materials and Mistborn alongside intense crime-thrillers like Underworld USA.
+---------
+
+# 7 HBO Miniseries Where Every Episode Is a Masterpiece
+
+TV, HBO, TV Miniseries, Band of Brothers, Sharp Objects
+
+Wed, 15 Jul 2026 00:11:12 GMT
+
+https://collider.com/hbo-miniseries-every-episode-masterpiece/
+
+Band of Brothers, Mare of Easttown, Chernobyl, and Sharp Objects are among the rare class of HBO miniseries where every episode is a masterpiece.
+---------
+
+# Natasha Lyonne Finally Addresses Being Replaced in ‘Poker Face’ Season 3
+
+TV News, Poker Face, Natasha Lyonne, Rian Johnson, Peter Dinklage
+
+Wed, 15 Jul 2026 00:00:12 GMT
+
+https://collider.com/poker-face-season-3-update-natasha-lyonne/
+
+Natasha Lyonne discusses her original expectations for Poker Face, Rian Johnson's mystery series, and her hopes for a Season 3 return.
+---------
+
+# Anya Taylor-Joy's Crime Show 'Lucky' Officially Debuts Rotten Tomatoes Score
+
+TV News, Lucky, Anya Taylor-Joy, Rotten Tomatoes
+
+Wed, 15 Jul 2026 01:35:44 GMT
+
+https://movieweb.com/lucky-rotten-tomatoes-score-revealed/
+
+Apple TV's 'Lucky,' starring Anya Taylor-Joy, had its initial Rotten Tomatoes score revealed ahead of its debut.
+---------
+
+# Taylor Sheridan's 3-Part Smash Crime Thriller is Officially Better Than Ever
+
+Features, Frisco King, Tulsa King, Taylor Sheridan
+
+Wed, 15 Jul 2026 01:00:17 GMT
+
+https://movieweb.com/tulsa-king-spinoff-frisco-king-momentum/
+
+Taylor Sheridan has produced some of the most-watched dramas and thrillers of the last decade, and one of his best series just got even better.
+---------
+
+# Anya Taylor-Joy Confirms She's a Streaming Star in New Crime Thriller | Review
+
+TV Reviews, Anya Taylor-Joy, Timothy Olyphant, Lucky
+
+Wed, 15 Jul 2026 01:00:17 GMT
+
+https://movieweb.com/lucky-review/
+
+Star of 'The Queen's Gambit' returns to the small screen in another showcase of her talents.
+---------
+
+# Hulu Officially Making Its Sci-Fi Thriller 'Severance' Replacement
+
+TV News, Adam Scott, Hulu, Sci-Fi
+
+Wed, 15 Jul 2026 00:31:07 GMT
+
+https://movieweb.com/shifter-tv-series-adam-scott-hulu-sci-fi/
+
+Adam Scott and other figures from 'Severance' are adapting the sci-fi graphic novel 'Shifter.'
+---------
+
+# One of the Greatest American Epics of All Time Getting New Release 87 Years Later
+
+Movie News, Gone with the Wind
+
+Wed, 15 Jul 2026 00:28:23 GMT
+
+https://movieweb.com/gone-with-the-wind-blu-ray-release/
+
+One of the greatest films in American cinema history will be back in the spotlight with a new release in 2026.
+---------
+
 # Star Trek: Strange New Worlds Showrunner Explains Why Season 4's Wrath Of Khan Shakeup Isn't A “Retcon”
 
 TV, Star Trek: Strange New Worlds, Star Trek II: The Wrath of Khan
