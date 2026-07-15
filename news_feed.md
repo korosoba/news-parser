@@ -1,3 +1,322 @@
+# Elden Ring's Successor Is Getting A Playable Demo This August
+
+Gaming, Elden Ring, Elden Ring: Shadow of the Erdtree, PC, The Duskbloods, Nintendo Switch 2
+
+Wed, 15 Jul 2026 16:07:59 GMT
+
+https://screenrant.com/the-duskbloods-network-test-august-nintendo-switch/
+
+Elden Ring's successor just got an official playable demo announcement planned for August, and players can sign up later this month.
+---------
+
+# Step Into A Wicked Wonderland With Gorgeous New Descendants BTS Clip
+
+Exclusive, Descendants: Wicked Wonderland, Descendants
+
+Wed, 15 Jul 2026 16:00:20 GMT
+
+https://screenrant.com/video/descendants-wicked-wonderland-set-creation-clip/
+
+Exclusive: ScreenRant presents a BTS look at the beautiful sets of Descendants: Wicked Wonderland, featuring interviews with the stars and director.
+---------
+
+# It Took Me 20 Years To Realize What Every Single Mad Max Movie Is Really About
+
+Movies, Mad Max
+
+Wed, 15 Jul 2026 16:00:20 GMT
+
+https://screenrant.com/mad-max-real-meaning-every-movie/
+
+The Mad Max movies might be gonzo, post-apocalyptic westerns on wheels, but they all deal with deeper themes of parenthood (even Furiosa).
+---------
+
+# The Odyssey Review: Christopher Nolan’s Epic Is A Stunning Achievement
+
+New Movies, The Odyssey
+
+Wed, 15 Jul 2026 16:00:20 GMT
+
+https://screenrant.com/the-odyssey-movie-2026-review/
+
+A fascinating adaptation and a surprising companion piece to Oppenheimer, The Odyssey is all the overwhelming cinematic experience that was promised.
+---------
+
+# 5 Greatest 90s Anime Characters That Will Always Be Legends
+
+Anime
+
+Wed, 15 Jul 2026 16:00:20 GMT
+
+https://screenrant.com/best-90s-anime-characters/
+
+The best anime characters of the past 30 years.
+---------
+
+# Spider-Man Returns In Marvel Studios' New Release 2 Weeks Before Brand New Day
+
+Streaming TV, Masked Recs
+
+Wed, 15 Jul 2026 15:57:00 GMT
+
+https://screenrant.com/spider-man-x-men-97-cameo-brand-new-day/
+
+Spider-Man fights a powerful villain in Marvel Studios' newest release that is out now, and it comes with a twist before Spider-Man: Brand New Day.
+---------
+
+# 8 Most Anticipated Animated Movies Still Coming In 2026
+
+Movies, Animation, Disney, Pixar, Avatar: The Last Airbender
+
+Wed, 15 Jul 2026 15:56:30 GMT
+
+https://screenrant.com/best-upcoming-animated-movies-rest-of-2026/
+
+From Avatar Aang to Ray Gunn, here are the 8 most anticipated animated movies still coming in the second half of 2026.
+---------
+
+# PlayStation Plus Reveals All Extra & Premium Games For July 2026
+
+Gaming, PlayStation Plus
+
+Wed, 15 Jul 2026 15:36:20 GMT
+
+https://screenrant.com/playstation-plus-games-july-2026-revealed/
+
+We now know all of the PlayStation Plus games for July, regardless of which tier you subscribe to, and there are some interesting options for players.
+---------
+
+# Rebecca Yarros Reveals New Fourth Wing Cover And Title For September Release
+
+Books, Fourth Wing (2023)
+
+Wed, 15 Jul 2026 15:35:21 GMT
+
+https://screenrant.com/fourth-wing-cover-title-release-date-reveal-september-2026/
+
+Fourth Wing is taking to the skies once again, as author Rebecca Yarros has revealed a surprising new title set for release in September.
+---------
+
+# Taylor Sheridan’s New 8-Part Crime Western Is Breaking Bad Meets Pulp Fiction
+
+TV, Masked Recs
+
+Wed, 15 Jul 2026 15:30:18 GMT
+
+https://screenrant.com/frisco-king-taylor-sheridan-like-breaking-bad-pulp-fiction/
+
+The latest TV Western from Taylor Sheridan is an thrilling mix of Breaking Bad's narco-themed empire building and Pulp Fiction's snappy dialogue.
+---------
+
+# Prime Video's 100% RT Bosch Replacement Gets the Update Everyone Was Waiting for
+
+TV, Ballard, Bosch
+
+Wed, 15 Jul 2026 16:06:29 GMT
+
+https://www.cbr.com/prime-video-ballard-season-2-filming-update/
+
+The ever-expanding Bosch universe on Prime Video gets a great update from its creator.
+---------
+
+# The Odyssey Review: Christopher Nolan’s Most Ambitious Movie Is Nearly Perfect
+
+Movies, The Odyssey
+
+Wed, 15 Jul 2026 16:00:45 GMT
+
+https://www.cbr.com/the-odyssey-review/
+
+Nolan's adaptation is sublime.
+---------
+
+# Mighty Morphin Power Rangers Confirm New Villain Before Green Ranger's Return
+
+Comics, Power Rangers
+
+Wed, 15 Jul 2026 16:00:13 GMT
+
+https://www.cbr.com/power-rangers-green-2-new-villain-confirmed/
+
+Tommy Oliver has a new enemy in Power Rangers: Green.
+---------
+
+# Sylvester Stallone Biopic I Play Rocky Officially Gets First Trailer After His 80th Birthday
+
+Movies, Rocky, Rocky II, Rocky III, Rocky IV, Rocky V, sylvester stallone
+
+Wed, 15 Jul 2026 15:38:16 GMT
+
+https://www.cbr.com/sylvester-stallone-biopic-i-play-rocky-officially-gets-first-trailer-after-his-80th-birthday/
+
+The official trailer proves this biopic has all the makings of a record-breaking film.
+---------
+
+# Ryan Gosling's 128-Minute Masterpiece Is Officially Heading Back to Theaters
+
+Movies, La La Land
+
+Wed, 15 Jul 2026 15:31:59 GMT
+
+https://www.cbr.com/ryan-gosling-la-la-land-heading-back-to-theaters/
+
+In the wake of Project Hail Mary's success, another fan-favorite Ryan Gosling movie is heading back to theaters.
+---------
+
+# Pokémon's Official 30th Anniversary Boxes Arrive at McDonald's in First Look
+
+Anime, Pokemon, merchandise, mcdonald's, food
+
+Wed, 15 Jul 2026 15:30:11 GMT
+
+https://www.cbr.com/pokemon-30th-anniversary-box-mcdonalds-first-look/
+
+The 30th anniversary of Pokémon continues in the country that started it all, with McDonald's making meals even happier for long-time fans.
+---------
+
+# 10 Strongest Isekai Anime Protagonists, Ranked By Power
+
+Anime, Isekai
+
+Wed, 15 Jul 2026 15:15:12 GMT
+
+https://www.cbr.com/strongest-isekai-anime-protagonists-ranked/
+
+In anime, few things are stronger than high school kids that have been transported to another world.
+---------
+
+# Captain America's New Look Is Already Begging for Online Backlash
+
+Comics, Marvel, Marvel Comics, MCU, Captain America, Avengers, Avengers: Doomsday, Avengers: Doomsday (2026)
+
+Wed, 15 Jul 2026 15:12:21 GMT
+
+https://www.cbr.com/captain-america-new-look-causing-online-backlash-marvel/
+
+This might be the single most controversial Captain America redesign ever.
+---------
+
+# 10 Strongest Domain Expansions in Jujutsu Kaisen
+
+Anime, Jujutsu Kaisen, Shonen
+
+Wed, 15 Jul 2026 15:01:12 GMT
+
+https://www.cbr.com/jujutsu-kaisen-official-strongest-domain-expansions/
+
+Overpowered Domain Expansions are the most famous and destructive abilities present in Jujutsu Kaisen.
+---------
+
+# 'The Odyssey' Review: Christopher Nolan's Adaptation of the Classic Epic Is Much More Than a Star-Studded Blockbuster
+
+Movie Reviews, The Odyssey, Christopher Nolan, Matt Damon, Anne Hathaway
+
+Wed, 15 Jul 2026 16:00:13 GMT
+
+https://collider.com/the-odyssey-review-christopher-nolan/
+
+Christopher Nolan's The Odyssey is much more than just an artful blockbuster with excellent performances from Matt Damon and Anne Hathaway.
+---------
+
+# Star Trek Celebrates 60 Years With Retro ‘Strange New Worlds’ Reveal [Exclusive]
+
+Exclusives, Star Trek, Star Trek: Strange New Worlds, Paramount Plus, Sci-Fi
+
+Wed, 15 Jul 2026 16:00:13 GMT
+
+https://collider.com/star-trek-strange-new-worlds-season-4-episode-titles/
+
+Strange New Worlds Season 4 pays homage to a classic Star Trek episode with its finale title. See all episode titles on stunning trading cards.
+---------
+
+# Netflix’s Greatest Western Is Still One of the 21st Century’s Best Hidden Gems
+
+TV Features, Godless, Netflix, Western, Sam Waterston
+
+Wed, 15 Jul 2026 15:52:12 GMT
+
+https://collider.com/netflix-greatest-21st-century-western-series-godless/
+
+Godless, starring Jeff Daniels and Michelle Dockery, remains one of Netflix’s greatest Westerns and a defining 21st-century hidden gem.
+---------
+
+# Liam Neeson's New Action Thriller Looks Like a Brutal 'The Fugitive' Meets 'Taken' [Exclusive]
+
+Exclusives, The Mongoose, Liam Neeson, Marisa Tomei, Ving Rhames
+
+Wed, 15 Jul 2026 15:00:12 GMT
+
+https://collider.com/the-mongoose-trailer-liam-neeson-action-thriller/
+
+The official trailer for The Mongoose finds Liam Neeson in the middle of an action-packed cross-country car chase with a relentless police force.
+---------
+
+# New Crime Thriller Perfect for Taylor Sheridan Fans Debuts Solid Rotten Tomatoes Score
+
+TV News, The Westies
+
+Wed, 15 Jul 2026 16:11:10 GMT
+
+https://movieweb.com/the-westies-rotten-tomatoes-score/
+
+'The Westies' had its two-episode premiere earlier this Sunday, with critics now offering a verdict on the crime thriller series starrin J.K. Simmons.
+---------
+
+# 'It's Always Sunny in Philadelphia' Season 18 Release Date Officially Confirmed
+
+TV News, It's Always Sunny in Philadelphia, Comedy, Disney+
+
+Wed, 15 Jul 2026 16:06:26 GMT
+
+https://movieweb.com/always-sunny-in-philadelphia-season-18-release-date/
+
+The long-running sitcom is returning faster than fans are used to.
+---------
+
+# 'Harry Potter' Reaches Major Milestone 5 Months Before a Franchise Reset
+
+Features, Harry Potter and the Deathly Hallows - Part 2, Harry Potter
+
+Wed, 15 Jul 2026 16:00:18 GMT
+
+https://movieweb.com/harry-potter-deathly-hallows-anniversary/
+
+'Harry Potter,' the popular fantasy franchise, has reached a big milestone before the franchise changes in just a few months.
+---------
+
+# Christopher Nolan's 'The Odyssey' Delivers an Action Epic Masterpiece | Review
+
+Movie Reviews, The Odyssey, Christopher Nolan, Matt Damon
+
+Wed, 15 Jul 2026 16:00:18 GMT
+
+https://movieweb.com/the-odyssey-review/
+
+The filmmaker offers not only a spectacular tale of fantasy but also complex and layered characters.
+---------
+
+# Netflix Scores Big With Modern Remake of 66 Year Old Sci-Fi Thriller Classic
+
+TV News, Netflix, Human Vapor, Sci-Fi, Thriller
+
+Wed, 15 Jul 2026 15:30:16 GMT
+
+https://movieweb.com/netflix-human-vapor-sci-fi-most-watched-july-2026/
+
+It's detective thriller meets sci-fi terror. And it's officially one of Netflix's biggest streaming hits.
+---------
+
+# 'Harry Potter' Icon Returns To Magical Worlds in Netflix's New Fantasy Movie
+
+Movie News, Netflix, Steps, Daniel Radcliffe
+
+Wed, 15 Jul 2026 15:20:43 GMT
+
+https://movieweb.com/harry-potter-daniel-radcliffe-netflix-steps-voice-cast/
+
+Netflix's wild twist on the classic fairy tale just added a 'Harry Potter' star to its voice cast.
+---------
+
 # The Batman 2 Officially Delayed Again & It Shatters A DC Record
 
 Movies, The Batman Part II, Batman, DC Universe
