@@ -1,3 +1,289 @@
+# Marvel Teases Unbelievable Leader for the Avengers' New Era
+
+Comics, The Avengers
+
+Thu, 16 Jul 2026 12:14:11 GMT
+
+https://screenrant.com/spider-man-new-leader-avengers/
+
+The Avengers' next leader is coming into focus.
+---------
+
+# Wheel Of Time: The Last Battle Arrives June 2027
+
+Gaming, The Wheel of Time
+
+Thu, 16 Jul 2026 12:00:11 GMT
+
+https://screenrant.com/wheel-of-time-last-battle-june-2027/
+
+The Wheel of Time series is one of the most iconic series in fantasy history, and that makes a new release very welcome indeed.
+---------
+
+# 10 Things In Star Trek: Strange New Worlds Season 4 We Can’t Wait To See
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Thu, 16 Jul 2026 12:00:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-10-things-excited/
+
+Star Trek: Strange New Worlds season 4 is highly anticipated, and there are many things known about the next 10 episodes that we're very excited for.
+---------
+
+# Adventure Time Is Officially Returning With Brand-New RPG
+
+Gaming, Adventure Time, Adventure Time: Distant Lands, Adventure Time: Side Quests, PC
+
+Thu, 16 Jul 2026 11:36:02 GMT
+
+https://screenrant.com/adventure-time-rpg-2026-release-date/
+
+Adventure Time is making an epic return with a brand-new role-playing game that longtime fans will not want to miss out on.
+---------
+
+# Pacific Rim: Breachfall Is The Sequel We've Waited 13 Years For
+
+Gaming, Pacific Rim
+
+Thu, 16 Jul 2026 11:35:24 GMT
+
+https://screenrant.com/pacific-rim-breachfall-board-game-sequel/
+
+The Pacific Rim movies have been one of the more successful new franchises of recent years, and this latest release is testament to that.
+---------
+
+# Zelda Fans Can Download An Ocarina Of Time Remake Demo Now
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Thu, 16 Jul 2026 11:15:44 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-demo-cryzenx/
+
+There might be an official Ocarina of Time remake on the way soon, but there are fan developers who continue to put out great work regardless.
+---------
+
+# Halo: Campaign Evolved Will Officially Be Unplayable For Millions
+
+Gaming, Halo: Campaign Evolved, Halo: Combat Evolved, Halo, PC
+
+Thu, 16 Jul 2026 11:06:06 GMT
+
+https://screenrant.com/halo-campaign-evolved-internet-connection-required/
+
+Halo: Campaign Evolved is set to launch on July 28, but millions of gamers will officially not be able to play the game at all.
+---------
+
+# Mario Kart Is Coming To PC August 2026
+
+Gaming, Nintendo, Mario Kart, Wii, PC, Mario
+
+Thu, 16 Jul 2026 10:56:41 GMT
+
+https://screenrant.com/mario-kart-wii-august-2026-pc-port/
+
+Get ready for retro racing action as Mario Kart Wii, the classic Nintendo title, is being rebuilt and released for PC. Experience over 200 tracks soon
+---------
+
+# Pokémon Officially Unveils New Eeveelution Release For Series’ 30th Anniversary
+
+Gaming, Pokemon
+
+Thu, 16 Jul 2026 10:50:23 GMT
+
+https://screenrant.com/pokemon-new-eeveelution-30th-anniversary-set/
+
+The Pokémon Company knows that the Eeeveelutions are a huge draw for fans, as this release evidences.
+---------
+
+# DC Corrects the Supergirl's Biggest Movie Mistake
+
+Comics, Marvel Comics, Supergirl
+
+Thu, 16 Jul 2026 12:00:15 GMT
+
+https://www.cbr.com/supergirl-15-better-than-supergirl-movie/
+
+Supergirl may not have delivered at the box office, but her future still looks pretty bright.
+---------
+
+# The Walking Dead's New Westworld Connection Makes Dead City Season 3 Mandatory Viewing
+
+TV, The Walking Dead: Dead City, The Walking Dead, Horror
+
+Thu, 16 Jul 2026 11:30:15 GMT
+
+https://www.cbr.com/the-walking-dead-dead-city-season-3-jimmi-simpson-dillard/
+
+The Walking Dead: Dead City Season 3 has confirmed several new main or recurring cast members, and one in particular has fans excited.
+---------
+
+# Liam Neeson Officially Returns to Action in Trailer for New Thriller 3 Months Ahead of Release
+
+Movies, liam neeson, The Mongoose
+
+Thu, 16 Jul 2026 11:01:15 GMT
+
+https://www.cbr.com/liam-neeson-thriller-the-mongoose-official-trailer/
+
+Neeson plays a war hero on a high speed car chase in the newly released trailer for his upcoming action thriller.
+---------
+
+# Marvel Changed The One Thing That Made the X-Men Great
+
+Comics, X-Men, comics, chris claremont
+
+Thu, 16 Jul 2026 11:01:15 GMT
+
+https://www.cbr.com/marvel-broke-the-one-thing-that-made-the-x-men-great/
+
+The X-Men remain one of Marvel's most popular franchises; the secret to their success has resonated with readers for generations. So why change it?
+---------
+
+# 7 Most Perfect K-Dramas of the Last 15 Years
+
+TV, South Korea, When Life Gives You Tangerines, Crash Landing On You, Alchemy of Souls
+
+Thu, 16 Jul 2026 12:09:14 GMT
+
+https://collider.com/most-perfect-k-dramas-last-15-years-ranked/
+
+Reply 1988, Crash Landing on You, Healer, and Alchemy of Souls are among the best K-dramas of the last 15 years, but which series is the greatest?
+---------
+
+# The Lord of the Rings Officially Returns This August With New Crossover
+
+Gaming News, Magic: The Gathering, The Lord of the Rings, The Hobbit: An Unexpected Journey, Fantasy
+
+Thu, 16 Jul 2026 12:01:14 GMT
+
+https://collider.com/lord-of-the-rings-the-hobbit-magic-the-gathering-expansion/
+
+After a hugely successful Lord of the Rings crossover, Magic: The Gathering is now crossing over with the Tolkien franchise's prequel story.
+---------
+
+# Oliver Stone’s Divisive 130-Minute Mind-Bending Crime Thriller Is the Perfect One-Night Binge
+
+Movie Features, Netflix, Savages, Oliver Stone, Aaron Taylor-Johnson
+
+Thu, 16 Jul 2026 11:57:15 GMT
+
+https://collider.com/oliver-stones-crime-thriller-savages-one-night-binge/
+
+"The kind of story where things just got so out of control"
+---------
+
+# ‘Star Trek’s Worst Series Failed at the One Thing ‘The Next Generation’ Perfected
+
+TV Features, Star Trek: The Next Generation, Star Trek, Star Trek: Enterprise, Paramount Plus
+
+Thu, 16 Jul 2026 11:46:16 GMT
+
+https://collider.com/star-trek-enterprise-the-next-generation-storyline-failure-opinion/
+
+Star Trek: Enterprise is often considered the nadir of the franchise, and its approach to storytelling is a large reason why.
+---------
+
+# 10 Greatest Amy Adams Movies That Define Her Career
+
+Movie, Amy Adams, Arrival, Nocturnal Animals, Vice
+
+Thu, 16 Jul 2026 11:43:15 GMT
+
+https://collider.com/best-amy-adams-movies/
+
+From American Hustle and Nocturnal Animals to other unforgettable performances, these Amy Adams movies represent her very best work.
+---------
+
+# Anya Taylor-Joy’s New Apple TV Crime Thriller Steals Critics’ Hearts in RT Debut
+
+TV News, Anya Taylor-Joy, Apple TV, Crime, Thriller
+
+Thu, 16 Jul 2026 11:30:15 GMT
+
+https://collider.com/anya-taylor-joy-apple-tv-crime-thriller-lucky-rotten-tomatoes-score-is-it-good/
+
+Anya Taylor-Joy’s new Apple TV crime thriller is winning critics over with sharp tension, strong performances, and gripping twists.
+---------
+
+# 10 Greatest Crime Caper Movies of All Time
+
+Movie, Crime, Ocean's Eleven, Paper Moon, The Sting
+
+Thu, 16 Jul 2026 11:21:14 GMT
+
+https://collider.com/best-crime-caper-movies-all-time-ranked/
+
+Crime capers have stories that are more delightful and engaging than the average heist drama, as evidenced by movies like Ocean's Eleven and Snatch.
+---------
+
+# 10 Most Subversive Comedy Movies of All Time
+
+Movie, Comedy, Dr. Strangelove Or: How I Learned To Stop Worrying And Love The Bomb, The Death of Stalin, Monty Python's The Meaning Of Life
+
+Thu, 16 Jul 2026 11:04:15 GMT
+
+https://collider.com/most-subversive-comedy-movies-ranked/
+
+Blazing Saddles, Four Lions, and Monty Python's The Meaning of Life are all among the most subversive comedy movies in the history of cinema.
+---------
+
+# Alan Ritchson's 'Reacher' Season 5 Is Already Taking a Massive Step Forward
+
+TV News, Reacher, Alan Ritchson, Prime Video, Jack Reacher
+
+Thu, 16 Jul 2026 11:01:15 GMT
+
+https://collider.com/reacher-season-5-alan-ritchson-filming-start-july-2026/
+
+Alan Ritchson confirms Reacher Season 5 starts filming this month, with all scripts already completed.
+---------
+
+# 10 Horror Books That Should Be Made Into Miniseries
+
+TV, Books, Horror, Clive Barker, Joe Hill
+
+Thu, 16 Jul 2026 10:53:15 GMT
+
+https://collider.com/horror-books-deserve-miniseries-adaptation/
+
+From The Damnation Game to The Fisherman, House of Leaves to King Sorrow, we need to see these horror books on screen.
+---------
+
+# Netflix’s New Western Is So Good, You’ll Forget All About Taylor Sheridan
+
+Features, Little House on the Prairie, Netflix
+
+Thu, 16 Jul 2026 12:00:12 GMT
+
+https://movieweb.com/little-house-on-prairie-taylor-sheridan-comparison/
+
+Taylor Sheridan has many popular Western TV shows, but Netflix's new Western series might be even better.
+---------
+
+# Jason Statham's 113-Minute Action Thriller Surges on Streaming Ahead of 'Mutiny'
+
+Movie News, Jason Statham, The Meg, Hot on Streaming, Action
+
+Thu, 16 Jul 2026 11:30:12 GMT
+
+https://movieweb.com/jason-statham-the-meg-action-streaming-hbo-max-july-2026/
+
+Ahead of Jason Statham's new action thriller, 'Mutiny,' one of his biggest movies ever has returned to take a bite out of streaming.
+---------
+
+# How Much 'The Odyssey' Needs to Make at the Box Office to Profit
+
+Features, The Odyssey, Christopher Nolan
+
+Thu, 16 Jul 2026 11:00:12 GMT
+
+https://movieweb.com/the-odyssey-box-office-budget-profit/
+
+'The Odyssey,' directed by Christopher Nolan, releases in theaters on July 17, 2026, and stars Matt Damon, Robert Pattinson, and Zendaya.
+---------
+
 # The Walking Dead: Aftermath Is Officially A New Chapter For The Series
 
 Gaming, The Walking Dead
