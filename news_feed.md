@@ -1,3 +1,234 @@
+# Children Of Blood & Bone Author’s Movie Involvement Clarified By Director After Publicly Denouncing Adaptation
+
+Movies, Children of Blood and Bone
+
+Thu, 16 Jul 2026 22:04:28 GMT
+
+https://screenrant.com/children-of-blood-and-bone-movie-tomi-adeyemi-involvement-denouncement-clarified-director/
+
+After Tomi Adeyemi’s public denouncement of the Children of Blood & Bone film, the director is opening up about the author’s involvement.
+---------
+
+# Law & Order Returns To Its Golden Era This Fall
+
+TV
+
+Thu, 16 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/law-and-order-golden-era-scheduling-nbc/
+
+The flagship series of NBC's longest-running procedural franchise is returning to its roots for season 26 with a major change this fall.
+---------
+
+# GTA 5 Limited-Time Free Download Officially Available Now
+
+Gaming, Grand Theft Auto 5
+
+Thu, 16 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/gta-5-limited-time-free-download-july-2026/
+
+GTA VI might be getting all the headlines right now, but there's still life in the most recent entry yet.
+---------
+
+# Supergirl's Next Appearance Stars Iconic Villain, DC Confirms
+
+Comics, Supergirl
+
+Thu, 16 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/supergirl-next-appearance-villain-ursa-zod/
+
+Her new foe has a long cinematic history.
+---------
+
+# Sam Raimi’s ‘The Shining On A Farm’ Horror Franchise Is Quietly Dominating Global Streaming Charts
+
+Movies, Masked Recs, Horror
+
+Thu, 16 Jul 2026 21:56:05 GMT
+
+https://screenrant.com/sam-raimi-the-messengers-franchise-lionsgate-plus-streaming-success-july-2026-the-shining/
+
+The Sam Raimi horror franchise described as "The Shining on a farm" is quietly dominating global streaming 17 years after the last movie.
+---------
+
+# What Gandalf's Balrog Speech In The Lord Of The Rings Really Means: All Hidden Lore Details
+
+Movies, The Lord of the Rings
+
+Thu, 16 Jul 2026 21:45:11 GMT
+
+https://screenrant.com/the-lord-of-the-rings-gandalf-balrog-speech-explained/
+
+In The Lord of the Rings: The Fellowship of the Ring, Gandalf delivers a memorable speech to the Balrog, but there's a deeper meaning to his words.
+---------
+
+# New John Wick Movie Officially Closer To Release In Massive Filming Update
+
+Movies, John Wick
+
+Thu, 16 Jul 2026 21:40:07 GMT
+
+https://screenrant.com/john-wick-caine-spinoff-filming-wrap-update-donnie-yen/
+
+The John Wick universe is expanding with Caine's story, and a new update reveals the upcoming film has reached another major milestone.
+---------
+
+# Sicario Meets Jack Ryan In Taylor Sheridan's 2-Part Action Series
+
+TV, Masked Recs
+
+Thu, 16 Jul 2026 21:33:11 GMT
+
+https://screenrant.com/lioness-sicario-jack-ryan-taylor-sheridan/
+
+In a surprising twist, Taylor Sheridan's hit spy series blends the gritty realism of 2015's Sicario with the high-stakes espionage of Jack Ryan.
+---------
+
+# The Odyssey Ending Explained: Why Odysseus Really Couldn't Go Home
+
+New Movies, The Odyssey, Explainer
+
+Thu, 16 Jul 2026 21:30:11 GMT
+
+https://screenrant.com/the-odyssey-movie-2026-ending-explained/
+
+Christopher Nolan’s adaptation of one of literature’s oldest surviving stories is here, and his take on the ending is the key to understanding it.
+---------
+
+# The CW's Near-Perfect Supernatural Series Is Streaming for Free for the First Time
+
+TV, iZombie, The CW, Paramount
+
+Thu, 16 Jul 2026 22:21:40 GMT
+
+https://www.cbr.com/izombie-streaming-free-pluto-tv/
+
+iZombie, along with a whole slate of CW shows, will stream for free on Pluto TV starting Aug. 1
+---------
+
+# Every Piccolo Form in Dragon Ball, Ranked By Power
+
+Anime, Dragon Ball, Akira Toriyama
+
+Thu, 16 Jul 2026 22:15:15 GMT
+
+https://www.cbr.com/every-piccolo-form-dragon-ball-ranked/
+
+Piccolo is one of Dragon Ball's strongest characters and he's able to reach even greater heights with the help of a wide range of forms.
+---------
+
+# The Odyssey Special Streaming Release Hits No. 4 on Peacock in America 1 Day Before Film Debuts
+
+Movies, The Odyssey, Fantasy, Peacock
+
+Thu, 16 Jul 2026 22:09:11 GMT
+
+https://www.cbr.com/the-odyssey-the-making-of-an-epic-success-peacock-july-2026/
+
+The Odyssey hype is very real.
+---------
+
+# It's Officially the Start of a New Era for Lord of the Rings After 12 Years
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum
+
+Thu, 16 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/the-lord-of-the-rings-hunt-for-gollum-first-feature-film-after-12-years/
+
+In the struggle for IPs to remain relevant, The Lord of the Rings is back in the saddle again.
+---------
+
+# Operation: Iron Coffin Features Dracula's Wildest Action Sequence So Far
+
+Comics, Dracula
+
+Thu, 16 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/operation-iron-coffin-2-wild-dracula-action-sequence/
+
+Dracula's war against the Nazis gets crazier.
+---------
+
+# YouTube TV Quietly Gets a Major Upgrade After Disney+ Settlement
+
+TV, YouTube
+
+Thu, 16 Jul 2026 21:32:45 GMT
+
+https://www.cbr.com/youtube-tv-new-channels/
+
+YouTube TV just got a boost.
+---------
+
+# 5 Best Family Movies of 2026 So Far
+
+Movie, Family, Swapped, Hoppers, Toy Story 5
+
+Thu, 16 Jul 2026 22:08:14 GMT
+
+https://collider.com/best-family-movies-2026-so-far-ranked/
+
+The Sheep Detectives, Toy Story 5, and Minions & Monsters are all among the very best movies for kids and families released in 2026 so far.
+---------
+
+# Denzel Washington Was Always at His Best Working With This Misunderstood Action Filmmaker
+
+Movie Features, Denzel Washington, Tony Scott, Man on Fire, The Taking of Pelham 123, Crimson Tide
+
+Thu, 16 Jul 2026 21:45:15 GMT
+
+https://collider.com/denzel-washington-tony-scott-crimson-tide/
+
+Denzel Washington and Tony Scott's collaborations, which included Crimson Tide and Man on Fire, pushed each of them in new directions.
+---------
+
+# Forget 'Gladiator,' Christopher Nolan Turned to This Cyberpunk Action Masterpiece When Making 'The Odyssey'
+
+Movie News, The Odyssey, Christopher Nolan, Blade Runner
+
+Thu, 16 Jul 2026 22:19:26 GMT
+
+https://movieweb.com/the-odyssey-christopher-nolan-blade-runner/
+
+Christopher Nolan revealed his shocking choice for the movie that served as the biggest inspiration for 'The Odyssey.'
+---------
+
+# Star Trek Sets up Stealth Sequel to 36-Year-Old Franchise Classic
+
+Features, Star Trek: Strange New Worlds, Star Trek, Star Trek: The Next Generation
+
+Thu, 16 Jul 2026 22:01:12 GMT
+
+https://movieweb.com/star-trek-tomorrows-enterprise-stealth-sequel/
+
+'Star Trek: The Next Generation' Season 3 put out an unforgettable episode that the franchise is finally responding to. Read on for more.
+---------
+
+# Jason Statham Dominates as Pair of Action Thrillers Become the Biggest Movies on Streaming
+
+Movie News, Jason Statham, The Beekeeper, A Working Man, Hot on Streaming, Prime Video
+
+Thu, 16 Jul 2026 22:01:12 GMT
+
+https://movieweb.com/jason-statham-stream-beekeeper-working-man-prime-july-2026/
+
+There's no questioning the legacy of action's greatest modern icon, and his latest streaming feat proves it.
+---------
+
+# Who Does Elliot Page Play in 'The Odyssey'?
+
+Features, The Odyssey, Elliot Page
+
+Thu, 16 Jul 2026 22:01:12 GMT
+
+https://movieweb.com/elliot-page-sinon-the-odyssey/
+
+Elliot Page is playing a unique character in Christopher Nolan's 'The Odyssey' adaptation, and the Achilles theories had it all wrong.
+---------
+
 # Netflix's Divisive New #1 Series Hits 1.8 Billion Minutes In Just 7 Days
 
 TV, Masked Recs
