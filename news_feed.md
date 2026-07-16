@@ -1,3 +1,234 @@
+# Liam Neeson's New 99-Minute "Gooey Splatter" Sci-Fi Surges On Streaming After Quiet Theatrical Run
+
+Movies, Masked Recs
+
+Thu, 16 Jul 2026 23:17:18 GMT
+
+https://screenrant.com/liam-neeson-cold-storage-mgm-plus-streaming-success-july-2026/
+
+Liam Neeson's new 99-minute "gooey splatter" sci-fi movie surges on streaming after a quiet theatrical run that grossed only $4 million.
+---------
+
+# After George Lucas' Recent Star Wars Comments, The Last Jedi Makes So Much More Sense
+
+Star Wars, Star Wars: Episode VIII - The Last Jedi
+
+Thu, 16 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/star-wars-last-jedi-george-lucas-fan-reactions/
+
+George Lucas has recently commented on franchise filmmaking, only bolstering Star Wars: The Last Jedi and making it even better than it was.
+---------
+
+# Square Enix Drops Surprise Remaster For One Of Its Best JRPGs
+
+Gaming, Square Enix, Star Ocean: The Second Story R, Nintendo Switch 2
+
+Thu, 16 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/square-enix-switch-2-remaster-star-ocean/
+
+Just a few days after Square Enix announced Switch 2 ports for Octopath Traveler 1 and 2, the company announced another incredible JRPG is added too.
+---------
+
+# 5 Retro Anime Without A Single Flaw
+
+Anime
+
+Thu, 16 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/retro-anime-flawless/
+
+Looking to rewatch some older classic anime? These 5 anime are absolutely flawless and the perfect place to start or relive your retro anime journey.
+---------
+
+# All 9 Upcoming Stephen King Movies & TV Shows
+
+Streaming TV, Stephen King
+
+Thu, 16 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/tephen-king-upcoming-movie-tv-show-adaptations/
+
+Stephen King is the king of horror, but his genre blending skills have resulted in a unique style that is often adapted, with many upcoming projects.
+---------
+
+# Brandon Sanderson's Mistborn Movie Gets Disappointing New Release Update
+
+Movies, Mistborn, Brandon Sanderson
+
+Thu, 16 Jul 2026 22:50:04 GMT
+
+https://screenrant.com/misborn-movie-2027-release-unlikely-brandon-sanderson/
+
+Brandon Sanderson unfortunately gives Mistborn fans some bad news regarding Apple TV's upcoming screen adaptation of the popular book.
+---------
+
+# HBO's New Must-Watch 8-Part Detective Series Is 1 Month Away
+
+Streaming TV, Masked Recs
+
+Thu, 16 Jul 2026 22:47:31 GMT
+
+https://screenrant.com/hbo-lanterns-green-lantern-series-dc-release-august-2026/
+
+After shows like True Detective and Mare of Easttown, HBO has a new must-watch crime series on the way, and it will be released in one month.
+---------
+
+# Christopher Nolan’s The Odyssey Is Now A Streaming Hit Following Record-Breaking RT Debut
+
+Movies, The Odyssey, Christopher Nolan
+
+Thu, 16 Jul 2026 22:35:48 GMT
+
+https://screenrant.com/christopher-nolan-the-odyssey-documentary-peacock-streaming-success-july-2026/
+
+The Odyssey, Christopher Nolan's latest epic, is breaking Rotten Tomatoes records, with its documentary highlighting the scale and authenticity.
+---------
+
+# J.J. Abrams' Next Movie Is Quietly A Jurassic Park Reunion
+
+Movies, Masked Recs
+
+Thu, 16 Jul 2026 22:31:11 GMT
+
+https://screenrant.com/jj-abrams-jenna-ortega-glen-powell-jurassic-park-reunion/
+
+Jenna Ortega and Glen Powell's upcoming collaboration with Rise of the Skywalker director JJ Abrams marks a secret Jurassic Park franchise reunion.
+---------
+
+# NCIS Season 24 Finally Opens the Door for Ziva's Return After 7 Years
+
+TV, NCIS, NCIS: Tony & Ziva
+
+Thu, 16 Jul 2026 23:17:39 GMT
+
+https://www.cbr.com/ncis-season-24-cote-de-pablo-ziva-david-return/
+
+Seven years after her last appearance, NCIS Season 24 has created the perfect way for Cote de Pablo to return to the flagship series as Ziva David.
+---------
+
+# 5 Classic Kids Anime Series That Are Unwatchable Today
+
+Anime, Sailor Moon, Voltron: Defender of the Universe, Speed Racer
+
+Thu, 16 Jul 2026 23:15:15 GMT
+
+https://www.cbr.com/classic-kids-anime-series-unwatchable-today/
+
+Despite their nostalgic appeal, dated tropes and poor animation make classic kids anime like Sailor Moon and Voltron tough to watch today.
+---------
+
+# AnimeFLV Stops Streaming Videos as Major Anime Site Remains Online
+
+Anime, piracy
+
+Thu, 16 Jul 2026 23:05:15 GMT
+
+https://www.cbr.com/animeflv-streaming-site-goes-dark/
+
+The website, which attracted over 70 million visitors in June 2026 alone, has stopped serving videos to visitors.
+---------
+
+# Jake Gyllenhaal's Reboot of 37-Year-Old Action Classic Returns to The Charts
+
+Movies, Road House, Prime Video, Action
+
+Thu, 16 Jul 2026 23:00:15 GMT
+
+https://www.cbr.com/road-house-action-success-prime-video-july-2026/
+
+Jake Gyllenhaal’s Road House is back on streaming charts as the franchise prepares for another round of punches and high kicks.
+---------
+
+# 5 Martial Arts Movies That Are Pretty Much Perfect
+
+Movies, Police Story, Crouching Tiger, Hidden Dragon
+
+Thu, 16 Jul 2026 23:00:15 GMT
+
+https://www.cbr.com/perfect-martial-arts-movies-list/
+
+There have been many spectacular martial arts movies over the decades, but only a few are truly perfect.
+---------
+
+# Netflix Confirms 6-Part Thriller Based on a Book as No. 1 Most-Watched Show of 2026
+
+TV, His & Hers, Netflix
+
+Thu, 16 Jul 2026 22:29:23 GMT
+
+https://www.cbr.com/netflix-his-and-hers-most-watched-series-2026/
+
+The Netflix Original show outperformed returning titles with its stellar streaming numbers.
+---------
+
+# 6 Worst R-Rated Action Movies of the 2000s
+
+Movie, Action, War, Alone in the Dark, Doomsday
+
+Thu, 16 Jul 2026 23:21:14 GMT
+
+https://collider.com/worst-r-rated-2000s-action-movies/
+
+From Ballistic: Ecks vs. Sever to Doomsday, these disastrous 2000s action movies buried decent ideas under baffling filmmaking decisions.
+---------
+
+# 20 Longest Anime Series, Ranked
+
+TV, Anime, One Piece, Naruto, Pokémon
+
+Thu, 16 Jul 2026 23:12:15 GMT
+
+https://collider.com/longest-anime-tv-series-ranked/
+
+From Yu-Gi-Oh! to One Piece, these are the longest running anime series on television.
+---------
+
+# After ‘Backrooms,' Another Viral Internet Horror Is Getting a Big Screen Adaptation
+
+Movie News, Backrooms, Horror, TriStar Pictures, Sony
+
+Thu, 16 Jul 2026 23:00:15 GMT
+
+https://collider.com/backrooms-replacement-new-horror-adaptation-cartoon-cat-confirmed/
+
+Following the success of A24's Backrooms movie, another horror adaptation of a viral internet sensation is also now in the works.
+---------
+
+# Harlan Coben’s Twisty 8-Episode Netflix Miniseries Proves He’s Still the Reigning King of Crime Dramas
+
+TV Features, I Will Find You, Netflix, Harlan Coben, Crime
+
+Thu, 16 Jul 2026 22:58:15 GMT
+
+https://collider.com/harlan-coben-i-will-find-you-netflix-crime-thriller-streaming-success/
+
+I Will Find You's continued success in Netflix's Top 10 only proves that no crime writer's stories are more addictive than Harlan Coben's.
+---------
+
+# 'Anaconda' Thriller Replacement Confirmed From Underrated Action Sci-Fi Filmmaker
+
+Movie News, Anaconda, Julius Avery, Horror
+
+Thu, 16 Jul 2026 22:45:24 GMT
+
+https://movieweb.com/crush-movie-python-thriller-julius-avery/
+
+The filmmaker behind 'Overlord' and 'The Pope's Exorcist' is stepping into the swamp.
+---------
+
+# 'Nightmare Before Christmas' Officially Returning With New Release in October
+
+Movie News, The Nightmare Before Christmas
+
+Thu, 16 Jul 2026 22:38:29 GMT
+
+https://movieweb.com/nightmare-before-christmas-graphic-novel-zero/
+
+A new hardcover that collects 'The Nightmare Before Christmas – Zero's Journey' will hit shelves on Oct. 6.
+---------
+
 # Children Of Blood & Bone Author’s Movie Involvement Clarified By Director After Publicly Denouncing Adaptation
 
 Movies, Children of Blood and Bone
