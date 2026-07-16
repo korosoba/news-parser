@@ -1,3 +1,344 @@
+# 7-Season SNL Star Officially Leaving For Netflix’s New Harlan Coben Franchise
+
+TV, Saturday Night Live, Untitled Myron Bolitar Series
+
+Thu, 16 Jul 2026 18:43:47 GMT
+
+https://screenrant.com/chloe-fineman-saturday-night-live-exit-netflix-harlan-coban-myron-bolitar-cast/
+
+A Saturday Night Live cast member who starred in seven seasons is officially leaving the show for Netflix's new Harlan Coben franchise.
+---------
+
+# The Wolf Of Wall Street Returns In Paramount+'s New 3-Part Series
+
+Streaming TV, Masked Recs
+
+Thu, 16 Jul 2026 18:42:11 GMT
+
+https://screenrant.com/paramount-plus-the-real-wolf-of-wall-street-series-watch/
+
+Jordan Belfort, best known as The Wolf of Wall Street, is officially back in a brand new 3-part docuseries now streaming exclusively on Paramount+.
+---------
+
+# Children Of Blood & Bone’s First Images Reveal Paramount’s Sweeping New Fantasy Epic Adaptation
+
+Movies, Children of Blood and Bone
+
+Thu, 16 Jul 2026 18:33:41 GMT
+
+https://screenrant.com/children-of-blood-and-bone-movie-first-images/
+
+Paramount has released new images from Children of Blood and Bone, revealing a first look at the sweeping new adaptation of a fantasy epic.
+---------
+
+# Song Kang's First Post-Military K-Drama Is Officially Coming To Netflix
+
+Streaming TV, K-Drama
+
+Thu, 16 Jul 2026 18:32:09 GMT
+
+https://screenrant.com/song-kang-comeback-netflix-k-drama-2026/
+
+Song Kang's absence has been palpably felt the past few years, but his highly-anticipated comeback K-drama will stream on Netflix incredibly soon.
+---------
+
+# The Walking Dead Meets Lost In Steven Spielberg's 13-Part Sci-Fi Series
+
+Classic TV, Masked Recs
+
+Thu, 16 Jul 2026 18:30:12 GMT
+
+https://screenrant.com/terra-nova-the-walking-dead-lost-steven-spielberg/
+
+Steven Spielberg was the EP for a 13-episode science fiction TV show that is part The Walking Dead and part Lost, and it deserved another season.
+---------
+
+# Black Mirror Meets Stranger Things In Netflix’s 7-Part Sci-Fi Series
+
+Classic TV, Masked Recs
+
+Thu, 16 Jul 2026 18:30:12 GMT
+
+https://screenrant.com/joko-anwars-nightmares-daydreams-netflix-anthology-sci-fi/
+
+One of Netflix’s best yet underrated anthology series is the perfect combination of elements reminiscent of Black Mirror and Stranger Things.
+---------
+
+# Marvel's New X-Men Costumes Are Wildly More Comics-Accurate Than Even Fox's Best Suits
+
+Movies, X-Men, Marvel Cinematic Universe, Avengers: Doomsday
+
+Thu, 16 Jul 2026 18:30:12 GMT
+
+https://screenrant.com/avengers-doomsday-xmen-costumes-comics-accurate-fox-era/
+
+Marvel may finally give the X-Men the comic-accurate costumes fans have wanted, surpassing even Fox's best attempts at adapting the iconic designs.
+---------
+
+# What We Do in the Shadows’ Spiritual Successor Arrives in Just Three Months
+
+Comics, Masked Recs
+
+Thu, 16 Jul 2026 18:29:06 GMT
+
+https://screenrant.com/what-we-do-in-the-shadows-dinner-date-series-details/
+
+Fans should have a new series on their radar that could be WWDITS' true spiritual successor, putting a fresh spin on vampires through modern dating.
+---------
+
+# 15 Best Romance Movies Like People We Meet On Vacation
+
+Movies, People We Meet on Vacation
+
+Thu, 16 Jul 2026 18:12:11 GMT
+
+https://screenrant.com/best-movies-like-people-we-meet-on-vacation/
+
+Based on Emily Henry's bestselling novel, People We Meet On Vacation is an instant classic— but the Netflix rom-com isn't in a league of its own.
+---------
+
+# The Odyssey Officially Marks The Start Of An Era For Christopher Nolan
+
+Movies, The Odyssey
+
+Thu, 16 Jul 2026 18:04:27 GMT
+
+https://screenrant.com/christopher-nolan-the-odyssey-fantasy-epic-first/
+
+Christopher Nolan's The Odyssey has already proven to be a record-breaker for the director, and the fantasy epic starts a new era for the auteur.
+---------
+
+# Saturday Night Live Says Goodbye to Fan-Favorite Star After 7 Seasons
+
+TV, Saturday Night Live, NBC, Comedy
+
+Thu, 16 Jul 2026 18:49:00 GMT
+
+https://www.cbr.com/chloe-fineman-leaving-snl-saturday-night-live-season-52/
+
+SNL is losing one of its most popular players ahead of its new season.
+---------
+
+# Rebecca Yarros’ Fourth Wing Officially Returns in 2026 With New Release Ahead of TV Series
+
+TV, Fourth Wing
+
+Thu, 16 Jul 2026 18:38:19 GMT
+
+https://www.cbr.com/rebecca-yarros-fourth-wing-book-threshing-day/
+
+A new release for Rebecca Yaros' The Empyrean series has officially been confirmed.
+---------
+
+# Hidden Gem Anime Series Every New Fan Needs To Watch
+
+Anime, Odd Taxi, Baccano!
+
+Thu, 16 Jul 2026 18:16:15 GMT
+
+https://www.cbr.com/hidden-gem-anime-for-new-fans/
+
+Some of the best experiences anime has to offer are waiting just beyond the most popular recommendations.
+---------
+
+# 12 Years Later, Sequel to a $23.3M Cult Horror Hit Finally Moves Forward With New Cast
+
+Movies, It Follows, They Follow
+
+Thu, 16 Jul 2026 18:00:53 GMT
+
+https://www.cbr.com/it-follows-sequel-they-follow-full-cast/
+
+The long-gestating horror sequel gets a major update.
+---------
+
+# 1 Jurassic Park Canon Change Saved the Franchise
+
+Movies, Jurassic Park
+
+Thu, 16 Jul 2026 18:00:15 GMT
+
+https://www.cbr.com/jurassic-park-alternate-ending-saved-franchise/
+
+A single deviation from the novel version of Jurassic Park allowed the films to become a massive multimedia franchise that persists to this day.
+---------
+
+# Spider-Man: One More Day Might Be Given A Sequel After All
+
+Comics, Spider-Man, brand new day, Mary Jane Watson
+
+Thu, 16 Jul 2026 18:00:15 GMT
+
+https://www.cbr.com/spider-man-one-more-day-joe-quesada-sequel-tease/
+
+One of the most controversial arcs in Marvel comic book history, and fans are hoping that Spider-Man will get his happy ending yet, One More Day.
+---------
+
+# Steam Makes 9/10 Co-Op Game 100% Free Until July 17
+
+Games, Steam
+
+Thu, 16 Jul 2026 17:50:15 GMT
+
+https://www.cbr.com/free-steam-games-right-now-co-op-catch-me/
+
+Steam makes co-op game Catch Me! 100% free, but the offer won't last for long.
+---------
+
+# 'The Hawk's Luke Wilson Officially Weighs in on a Possible Crossover With Apple TV’s ‘Stick’
+
+Interviews, The Hawk, Luke Wilson, Jimmy Tatro, Fortune Feimster
+
+Thu, 16 Jul 2026 18:30:15 GMT
+
+https://collider.com/netflix-the-hawk-apple-tv-stick-crossover-luke-wilson-interview/
+
+The Hawk cast explains what drew them to the Netflix sports comedy series, as well as speculate what their characters could do in a second season.
+---------
+
+# 2 Years Later, Prime Video’s 121-Minute Action Thriller Is Still a Streaming Hit
+
+Movie News, Prime Video, Road House, Guy Ritchie, Action
+
+Thu, 16 Jul 2026 18:30:15 GMT
+
+https://collider.com/road-house-streaming-success-prime-video-july-2026/
+
+Jake Gyllenhaal’s Road House remains a Prime Video Top 10 hit two years after the action remake’s record-breaking streaming debut.
+---------
+
+# 'Doctor Who' Icon Tries To Solve an Impossible Case in First Images for New British Crime Thriller
+
+TV News, Time, David Tennant, Sean Bean, Stephen Graham
+
+Thu, 16 Jul 2026 18:28:47 GMT
+
+https://collider.com/british-crime-thriller-time-season-3-images-david-tennant/
+
+Time, the British crime anthology series, has revealed David Tennant's new character in the first look at Season 3.
+---------
+
+# X-Men ’97 S2: Why Recording Got So Complicated | Set Stories
+
+TV, X-Men '97
+
+Thu, 16 Jul 2026 18:15:15 GMT
+
+https://collider.com/video/x-men-97-s2-why-recording-got-so-complicated-set-stories/
+
+The voices behind Rogue, Morph, and Nightcrawler reflect on what makes X-Men '97 such a special return, while teasing what's still to come for Marvel's beloved mutants.
+---------
+
+# ‘Star Trek: Voyager’ Officially Returns With a New Release Today
+
+TV News, Star Trek: Voyager, Video Game, Star Trek, Science Fiction
+
+Thu, 16 Jul 2026 18:14:46 GMT
+
+https://collider.com/star-trek-voyager-across-the-unknown-delta-chronicles-dlc/
+
+Star Trek: Voyager — Across the Unknown launches its Delta Chronicles DLC with five new missions, two playable heroes, and alternate story outcomes.
+---------
+
+# 7 Forgotten Mystery Shows That Are Perfect From Start to Finish
+
+TV, Mystery, Deadloch, Top of the Lake, A Murder at the End of the World
+
+Thu, 16 Jul 2026 18:09:15 GMT
+
+https://collider.com/forgotten-mystery-shows-perfect-start-to-finish/
+
+From the crime comedy series Deadloch to the miniseries A Murder at the End of the World, these forgotten mystery shows are practically flawless.
+---------
+
+# Anya Taylor-Joy Explains Why She Actually "Had Fun" Shooting 'Lucky's Intense Car Crash Stunt
+
+Exclusives, Lucky, Anya Taylor-Joy, Drew Starkey, Apple TV
+
+Thu, 16 Jul 2026 18:01:15 GMT
+
+https://collider.com/lucky-apple-tv-premiere-anya-taylor-joy-drew-starkey-interview/
+
+Anya Taylor-Joy breaks down the experience of shooting Lucky's intense premiere car crash stunt: "Is it terrible to say I had fun?"
+---------
+
+# ‘The Boys’ Has a New Review-Bombing Problem
+
+Gaming News, The Boys, Prime Video, Karl Urban, Antony Starr
+
+Thu, 16 Jul 2026 18:01:15 GMT
+
+https://collider.com/the-boys-trigger-warning-review-bombing-metacritic-score-bad/
+
+The Boys: Trigger Warning, the new VR game that launched on PSVR last month, has officially come under fire from review bombers.
+---------
+
+# The Best 4-Part Sci-Fi Remake Is Still One of the Genre’s Biggest Surprises
+
+TV Features, 12 Monkeys, SyFy, Science Fiction
+
+Thu, 16 Jul 2026 17:58:14 GMT
+
+https://collider.com/best-sci-fi-time-travel-show-12-monkeys/
+
+Syfy's 12 Monkeys turned a risky remake into one of the smartest, most satisfying time-travel shows of the 2010s.
+---------
+
+# 'Fallout' Is Officially Exploding With a New Event Ahead of Season 3
+
+Gaming News, Fallout, Fallout 76, San Diego Comic-Con, Bethesda
+
+Thu, 16 Jul 2026 17:52:05 GMT
+
+https://collider.com/sdcc-2026-world-of-fallout-panel-details-new-game/
+
+Ahead of Season 3 and following reports of a new game in the works, Fallout is officially exploding into SDCC 2026.
+---------
+
+# 'The Odyssey' Already Confirmed to Get New Reboot After Christopher Nolan's Release
+
+TV News, The Odyssey
+
+Thu, 16 Jul 2026 18:07:43 GMT
+
+https://movieweb.com/the-odyssey-new-reboot-series/
+
+'Odysseus,' a new TV series from 'Stranger Things' showrunner Karl Gajdusek and 'Halo' director Roel Reiné, arrives as Nolan's 'The Odyssey' opens.
+---------
+
+# Stephen King's Sci-Fi Thriller Loved by Roger Ebert Lands on Free Streaming
+
+Movie News, The Dead Zone, Tubi, Coming/Leaving Streaming, Stephen King
+
+Thu, 16 Jul 2026 18:01:12 GMT
+
+https://movieweb.com/stephen-king-dead-zone-stream-free-tubi-august-2026/
+
+Stephen King's forgotten 1983 sci-fi horror thriller 'The Dead Zone' will stream for free on Tubi in August.
+---------
+
+# Marvel's Confirmed X-Men Roster Misses a Perfect Opportunity
+
+Features, MCU's Movie Order (2008 - 2019) - The Infinity Saga (Iron Man - Spider-Man: Far from Home), X-Men
+
+Thu, 16 Jul 2026 18:01:12 GMT
+
+https://movieweb.com/marvel-avengers-doomsday-x-men-roster/
+
+'Avengers: Doomsday' should feature the original five X-Men introduced in 1963.
+---------
+
+# First Look at Long-Awaited Action Fantasy Epic From 'The Old Guard' Director Revealed
+
+Movie News, Children of Blood and Bone
+
+Thu, 16 Jul 2026 17:52:21 GMT
+
+https://movieweb.com/children-of-blood-and-bone-first-look/
+
+Paramount has released the first images of 'Children of Blood and Bone', director Gina Prince-Bythewood's adaptation of the popular book.
+---------
+
 # Ryan Gosling's Iconic First-Ever TV Show Is Officially Being Rebooted By Disney
 
 TV
