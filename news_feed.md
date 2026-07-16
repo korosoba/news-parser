@@ -1,3 +1,256 @@
+# Claire Had Two Children In Heroes, And Their Father Was The Show's Final Villain
+
+Classic TV, Heroes, Heroes Reborn
+
+Thu, 16 Jul 2026 00:45:20 GMT
+
+https://screenrant.com/heroes-claire-children-father-final-villain/
+
+Heroes' Claire gave birth to two children, and the follow-up Heroes Reborn established their biological father as the franchise's final villain.
+---------
+
+# The Dark Tower Meets Resident Evil In This 100-Minute Movie Based On A GRRM Story
+
+Movies, Masked Recs
+
+Thu, 16 Jul 2026 00:30:19 GMT
+
+https://screenrant.com/in-the-lost-lands-fantasy-movie-george-rr-martin-story/
+
+Hulu is currently home to a fantasy action movie from a story by George R. R. Martin, which feels like The Dark Tower meets Resident Evil.
+---------
+
+# 10 Years After Zack Snyder's Batman v Superman, DC Kills Superman Again
+
+Streaming TV, Masked Recs
+
+Thu, 16 Jul 2026 00:21:48 GMT
+
+https://screenrant.com/my-adventures-with-superman-hbo-max-death-no-powers/
+
+Zack Snyder famously killed Henry Cavill's Superman, and 10 years later, DC is once again killing the Man of Steel, with a twist, in 2026.
+---------
+
+# Tom Holland Is The Undisputed King Of Summer 2026
+
+Movies, Tom Holland
+
+Thu, 16 Jul 2026 00:10:19 GMT
+
+https://screenrant.com/tom-holland-summer-2026-movies/
+
+Tom Holland stars in two massive films this summer and cements his status as a true movie star in a day and age in which movie stars are long gone.
+---------
+
+# Star Trek: Strange New Worlds Officially Reveals Season 4 Episode Titles: What They Could Mean
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Thu, 16 Jul 2026 00:01:29 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-episode-titles-meaning/
+
+Star Trek: Strange New Worlds dropped the titles of all 10 season 4 episodes. Here's what they could mean for the USS Enterprise's new voyages.
+---------
+
+# Palworld: 12 Best Technologies To Unlock First
+
+Gaming, PC, Palworld
+
+Thu, 16 Jul 2026 00:00:19 GMT
+
+https://screenrant.com/palworld-best-technology-unlock-upgrades/
+
+There are a lot of new technologies to build at the beginning of the game, but there are some that you should prioritize over others in Palworld.
+---------
+
+# The Wheel Of Time Meets The Witcher In Prime Video's 2-Part Fantasy Series
+
+Streaming TV, Masked Recs
+
+Thu, 16 Jul 2026 00:00:18 GMT
+
+https://screenrant.com/the-rings-of-power-amazon-wheel-of-time-meets-witcher-fantasy/
+
+Fantasy comes in all varieties. If you love the refined CGI of The Wheel of Time and the grittiness of The Witcher, Prime Video has just the thing.
+---------
+
+# James Cameron's Cyberpunk Cult Classic Just Got A Complete Streaming Overhaul
+
+Movies, Masked Recs
+
+Wed, 15 Jul 2026 23:56:48 GMT
+
+https://screenrant.com/james-cameron-strange-days-disney-plus-streaming-upgrade-fix/
+
+James Cameron's cyberpunk cult classic receives a complete streaming overhaul over three decades after its release, restoring the original version.
+---------
+
+# The One TV Show David Boreanaz Would Revisit Deserves A Revival
+
+Classic TV, Bones, David Boreanaz
+
+Wed, 15 Jul 2026 23:45:19 GMT
+
+https://screenrant.com/david-boreanaz-wants-bones-revival/
+
+David Boreanaz has had a remarkable career moving from one hit show to the next, but there is only one character and show that he would return to.
+---------
+
+# NCIS: Origins Star Pitches Secret Family Connection To Flagship Show
+
+TV, NCIS: Origins, NCIS
+
+Wed, 15 Jul 2026 23:34:27 GMT
+
+https://screenrant.com/ncis-origins-mary-jo-vance-family-theory-tyla-abercrumbie-explained/
+
+One of NCIS: Origins' lead actors has come up with an idea for how their character can be related to one of the most important NCIS characters.
+---------
+
+# Nintendo Is Celebrating Metroid's 40th Anniversary in a Big Way
+
+Games, Metroid, Nintendo
+
+Thu, 16 Jul 2026 00:45:12 GMT
+
+https://www.cbr.com/metroid-40th-anniversary-august/
+
+Every Nintendo fan has understandably been talking about Mario and Zelda in 2026, but Metroid has big things coming that have slipped under the radar.
+---------
+
+# Picard's Single Greatest TNG Line Hits Harder Than Any Star Trek Quote Since
+
+TV, Star Trek: The Next Generation, Star Trek, Sci-Fi
+
+Thu, 16 Jul 2026 00:30:12 GMT
+
+https://www.cbr.com/picard-star-trek-the-next-generation-man-of-the-people-quote/
+
+Expressing the sentiment that the ends don’t always justify the means, Picard’s line in Man of the People sums up one of Star Trek's biggest themes.
+---------
+
+# Bleach: Brave Souls 11th Anniversary Bankai Livestream Set for July 20
+
+Anime, Bleach
+
+Thu, 16 Jul 2026 00:20:12 GMT
+
+https://www.cbr.com/bleach-brave-souls-11th-anniversary-july-update/
+
+Bleach: Brave Souls celebrates its 11th anniversary with a star-studded livestream featuring new game reveals, updates and the original VA cast.
+---------
+
+# Hugh Jackman's The Sheep Detectives, Is the Best Mystery on Prime Video
+
+Movies, hugh jackman, The Sheep Detectives, Prime Video
+
+Thu, 16 Jul 2026 00:00:12 GMT
+
+https://www.cbr.com/hugh-jackman-the-sheep-dectives-best-mystery-thriller/
+
+This mysterious comedy may have flown under the radar in theaters, but The Sheep Detectives is a hidden gem just begging to be found on Prime Video.
+---------
+
+# James Gunn's Superman Spinoff Officially Casts Gorilla Grodd with YouTuber-Turned-Actor
+
+TV, DCU, gorilla grodd, Superman
+
+Wed, 15 Jul 2026 23:44:09 GMT
+
+https://www.cbr.com/jimmy-tatro-officially-cast-gorilla-grodd-superman-jimmy-olsen-spinoff/
+
+The Gorilla Grodd casting is now official for the Superman spinoff.
+---------
+
+# NCIS Abandoned Its Best Pauley Perrette Comeback in 8 Years
+
+TV, NCIS
+
+Wed, 15 Jul 2026 23:42:48 GMT
+
+https://www.cbr.com/pauley-perrette-abby-sciuto-ncis-season-23-comeback-missed/
+
+In NCIS Season 23, CBS fumbled its best opportunity in years to return NCIS Forensic Scientist Abby Sciuto to the franchise alongside Timothy McGee.
+---------
+
+# Win Tickets to Our Early 'Futurama' Season 14 Screening and Q&A With Cast and Creators
+
+Exclusives, Screening, Futurama, Hulu, Matt Groening
+
+Thu, 16 Jul 2026 00:39:26 GMT
+
+https://collider.com/futurama-season-14-screening-matt-groening-billy-west-cast-q-and-a/
+
+Details on how to enter for your chance to win free tickets to our Futurama Season 14 early screening and Q&amp;A with the cast and creators.
+---------
+
+# 5 Years Later, This 94% Fresh Box Office Bomb Western Is a Netflix Hit
+
+Movie Features, Old Henry, Tim Blake Nelson, Stephen Dorff, Western
+
+Thu, 16 Jul 2026 00:32:12 GMT
+
+https://collider.com/old-henry-tim-blake-nelson-western-netflix-streaming-july-2026/
+
+Tim Blake Nelson has a rare lead role in 2021's Old Henry, a critically acclaimed box office bomb Western that's now a streaming hit on Netflix.
+---------
+
+# Jensen Ackles Officially Addresses a ‘Tracker’ Season 4 Return
+
+TV News, Tracker, Jensen Ackles, Justin Hartley, CBS
+
+Thu, 16 Jul 2026 00:30:12 GMT
+
+https://collider.com/tracker-season-4-jensen-ackles-russell-shaw-fate-cbs/
+
+Jensen Ackles explains whether fans can expect to see more Russell Shaw in Tracker Season 4, which is now in production.
+---------
+
+# 'Grey's Anatomy' Is Officially Ending Its Most Important Era
+
+TV Features, Grey's Anatomy, ABC, Ellen Pompeo, Patrick Dempsey
+
+Thu, 16 Jul 2026 00:19:12 GMT
+
+https://collider.com/greys-anatomy-derek-meredith-era-ending/
+
+After 22 seasons, Grey’s Anatomy is taking a risk and ending the fan-favorite couple Derek and Meredith as she agrees to marry again.
+---------
+
+# These 5 Jude Law Movies Are Are Genuine Classics
+
+Movie, Jude Law, Gattaca, The Grand Budapest Hotel, A.I. Artificial Intelligence
+
+Thu, 16 Jul 2026 00:17:13 GMT
+
+https://collider.com/best-jude-law-movies-ranked/
+
+From The Talented Mr. Ripley to A.I. Artificial Intelligence, these Jude Law classics reveal the talent behind one of cinema’s finest stars.
+---------
+
+# 'The Westies’ Creators Tease a Surprise ‘Godfather of Harlem’ Crossover for Titus Welliver's New Hit
+
+TV News, The Westies, Titus Welliver, Godfather of Harlem, MGM
+
+Thu, 16 Jul 2026 00:00:12 GMT
+
+https://collider.com/titus-welliver-crime-thriller-the-westies-godfather-of-harlem-crossover/
+
+The Westies creators, Chris Brancato and Michael Panes, tease a possible Godfather of Harlem crossover for the new Titus Welliver series.
+---------
+
+# DC Unveils Batman's Next Villain With a Long-Overdue Comeback
+
+Books and Comics News, The Batman, The Batman Part II, Robert Pattinson, DC Comics
+
+Wed, 15 Jul 2026 23:30:12 GMT
+
+https://collider.com/dc-comics-batman-next-villain-long-overdue-comeback-prometheus/
+
+DC reveals Batman's next adversary, the ruthless supervillain Prometheus, in Justice League: Knight Vision Special #1, set for release this month.
+---------
+
 # Apple TV’s Stephen King-Approved Crime Thriller Season 2 Story Teased By Creator
 
 TV, Maximum Pleasure Guaranteed, Maximum Pleasure Guaranteed - Season 1
