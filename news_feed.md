@@ -1,3 +1,344 @@
+# Netflix's Divisive New #1 Series Hits 1.8 Billion Minutes In Just 7 Days
+
+TV, Masked Recs
+
+Thu, 16 Jul 2026 21:21:05 GMT
+
+https://screenrant.com/i-will-find-you-show-netflix-billion-minutes-viewed/
+
+Netflix's new crime thriller series has become a global streaming sensation, amassing 1.8 billion minutes despite a divisive reception.
+---------
+
+# Fallout Season 3 Set Images Seemingly Reveal Fan-Favorite Game Character's Introduction
+
+TV, Fallout
+
+Thu, 16 Jul 2026 21:16:51 GMT
+
+https://screenrant.com/fallout-season-3-set-images-joshua-graham-tease/
+
+New set images of Fallout season 3 has revealed that a fan-favorite character might appear in the upcoming installment of the Prime Video adaptation.
+---------
+
+# Guillermo Del Toro's 150-Minute Horror Movie Is Getting A Rare New Release With Unseen Footage
+
+Movies, Horror, Frankenstein
+
+Thu, 16 Jul 2026 21:05:50 GMT
+
+https://screenrant.com/guillermo-del-toro-frankenstein-criterion-4k-release-extended-cut-october-2026/
+
+Oscar winner Guillermo del Toro's latest horror movie is getting a new release with a special expanded addition that features additional footage.
+---------
+
+# Marvel’s Wolverine Reveals Iconic Villain In New Trailer
+
+Gaming, Marvel's Wolverine, Triple-A Games
+
+Thu, 16 Jul 2026 21:00:38 GMT
+
+https://screenrant.com/marvels-wolverine-trailer-lady-deathstrike/
+
+A new story trailer for Marvel's Wolverine throws yet another villain into the mix, and this nemesis could make for the perfect match-up.
+---------
+
+# Friends Is Much Harder To Watch Once You Notice This
+
+Classic TV, Friends
+
+Thu, 16 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/friends-worst-aged-moment-harder-to-watch/
+
+Friends is still one of the best and most influential sitcoms of all time, but rewatching it now is a lot harder once you notice a huge problem.
+---------
+
+# Dark Souls Meets Assassin’s Creed Shadows In New Free PlayStation Plus RPG
+
+Gaming, PlayStation, PlayStation Plus, Dark Souls, PlayStation 5
+
+Thu, 16 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/dark-souls-meets-assassins-creed-shadows-new-ps-plus-free-game/
+
+This action-packed adventure blends the best of Assassin's Creed and Dark Souls, all available for free to PlayStation Plus subscribers.
+---------
+
+# Netflix's Best Yellowstone Replacement Returns Next Week
+
+Streaming TV, Masked Recs
+
+Thu, 16 Jul 2026 20:54:11 GMT
+
+https://screenrant.com/netflix-ransom-canyon-season-2-yellowstone-replacement/
+
+Netflix subscribers are just days away from diving into the streamer's best Yellowstone replacement series when Ransom Canyon returns for season 2.
+---------
+
+# Alan Ritchson’s New Sci-Fi Thriller Officially Becomes Netflix’s #1 Movie This Year
+
+Movies, War Machine, Alan Ritchson
+
+Thu, 16 Jul 2026 20:32:35 GMT
+
+https://screenrant.com/alan-ritchson-war-machine-netflix-most-watched-movie-first-half-2026/
+
+Netflix has announced that the Alan Ritchson-led sci-fi thriller War Machine is the #1 most-viewed movie on the streaming platform in 2026.
+---------
+
+# Jensen Ackles' Upcoming Superhero Show Will Make The Boys Look Tame
+
+Streaming TV, Masked Recs
+
+Thu, 16 Jul 2026 20:30:11 GMT
+
+https://screenrant.com/jensen-ackles-vought-rising-darker-than-the-boys/
+
+Soldier Boy may have embodied the violent superhedonism of Supes in The Boys, but Jensen Ackles' return will escalate the brutality to new heights.
+---------
+
+# My Little Pony Collector Set Revealed For San Diego Comic-Con 2026
+
+Exclusive, My Little Pony, Hasbro, San Diego Comic-Con
+
+Thu, 16 Jul 2026 20:28:04 GMT
+
+https://screenrant.com/my-little-pony-collector-set-hasbro-sdcc-2026/
+
+ScreenRant has the exclusive first look at Hasbro's My Little Pony Kayou Friendship in the Cards for San Diego Comic-Con 2026.
+---------
+
+# Taylor Sheridan's Most Hated Landman Character Has Finally Been Replaced
+
+TV, Dutton Ranch, Yellowstone, Landman
+
+Thu, 16 Jul 2026 21:25:23 GMT
+
+https://www.cbr.com/yellowstone-dutton-ranch-azul-redeem-jr-villarreal-landman-character/
+
+The most unlikable character in Billy Bob Thornton's Landman drama on Paramount+ has officially been reborn in Taylor Sheridan's television universe.
+---------
+
+# Nintendo Is Officially Replacing the Mario Movies With the Legend of Zelda
+
+Movies, The Legend of Zelda, Nintendo, Mario
+
+Thu, 16 Jul 2026 21:16:15 GMT
+
+https://www.cbr.com/legend-of-zelda-replaces-mario-nintendo-movies/
+
+Mario may be Nintendo's box office golden goose, but 2027 will see the very important rise of another Nintendo hero on the big screen.
+---------
+
+# Every Fallout Game, Officially Ranked
+
+Games, Fallout, Role Playing Game, Video Games
+
+Thu, 16 Jul 2026 21:15:15 GMT
+
+https://www.cbr.com/official-best-fallout-games-ever-ranked/
+
+Fallout is one of the premier RPG franchises in the gaming world, but not all of its titles are equally great.
+---------
+
+# Stephen King’s Horror Classic Officially Unveils 3 Twisted Tales Ahead of August Release
+
+Games, Creepshow
+
+Thu, 16 Jul 2026 21:10:15 GMT
+
+https://www.cbr.com/stephen-king-creepshow-game-official-new-release-this-august/
+
+Fans can now check out exactly what kind of horror stories they can look forward to when Creepshow arrives, and it is scary good looking.
+---------
+
+# Paramount Reveals First Look at Hit Fantasy Book Adaptation Condemned by Author
+
+Movies, Children of Blood and Bone
+
+Thu, 16 Jul 2026 21:08:26 GMT
+
+https://www.cbr.com/paramount-children-of-blood-and-bone-first-look/
+
+The first official look at the fantasy adaptation is unveiled shortly after the project was condemned by the author.
+---------
+
+# 5 Strongest Weapons in Sci-Fi Movie History, Ranked
+
+Movies, Sci-Fi, Star Trek II: The Wrath of Khan, Star Trek, Ender's Game, Star Wars, Avengers: Infinity War
+
+Thu, 16 Jul 2026 21:01:15 GMT
+
+https://www.cbr.com/strongest-sci-fi-movie-weapons-ranked-list/
+
+Some of the most memorable sci-fi movie villains have harnessed the power of cinema's most shocking, unique, and powerful weapons.
+---------
+
+# 36 Years Later, Picard’s Greatest Star Trek Line Is Still the Scariest Quote in Sci-Fi History
+
+TV, Star Trek, Star Trek: The Next Generation, Sci-Fi
+
+Thu, 16 Jul 2026 20:30:15 GMT
+
+https://www.cbr.com/star-trek-tng-yesterdays-enterprise-picard-scariest-line/
+
+After a shaky start, Star Trek: The Next Generation Season 3 saved the series with an episode that was both dark and hopeful.
+---------
+
+# The 5 Best Mortal Kombat Movie Fights, Ranked
+
+Movies, Mortal Kombat, Mortal Kombat II
+
+Thu, 16 Jul 2026 20:30:15 GMT
+
+https://www.cbr.com/mortal-kombat-best-movie-fights-list/
+
+From the 1995 classic to the recently-released Mortal Kombat II, these are the greatest action scenes of Mortal Kombat's live-action film adaptations.
+---------
+
+# Disney+ Is Officially Rebooting an Iconic 71-Year-Old Kids' Series
+
+TV, The Mickey Mouse Club, Disney+
+
+Thu, 16 Jul 2026 20:18:34 GMT
+
+https://www.cbr.com/mickey-mouse-club-reboot-disney-plus/
+
+Disney+ is bringing this series to a new generation.
+---------
+
+# 5 Anime Swordsmen Stronger Than Dracule Mihawk
+
+Anime, One Piece, Berserk, Dragon Ball
+
+Thu, 16 Jul 2026 20:15:15 GMT
+
+https://www.cbr.com/anime-swordsmen-stronger-than-mihawk-one-piece/
+
+Dracule Mihawk represents One Piece as the ultimate swordsman, but outside One Piece, the competition for strongest swordsman is pretty fierce.
+---------
+
+# Netflix Just Added One of TV's Best Spy Thrillers to Its 2026 Roster
+
+TV Features, Killing Eve, Netflix, Jodie Comer, Sandra Oh
+
+Thu, 16 Jul 2026 21:27:15 GMT
+
+https://collider.com/killing-eve-netflix-spy-thriller-streaming/
+
+Killing Eve, the critically acclaimed spy thriller starring Sandra Oh and Jodie Comer, just dropped the entire four seasons on Netflix.
+---------
+
+# 18 Years Later, These Are the 10 Best Movies of 2008
+
+Movie, WALL-E, The Dark Knight, Step Brothers, Synecdoche, New York
+
+Thu, 16 Jul 2026 21:19:15 GMT
+
+https://collider.com/best-movies-2008/
+
+21st century classics like The Dark Knight, Rachel Getting Married, and The Wrestler are all among the very best movies released in 2008.
+---------
+
+# As a Casual Fan, Here's How I'd Rank All 7 Harry Potter Books
+
+Books and Comics, Harry Potter, Harry Potter and the Sorcerer's Stone, Harry Potter and the Chamber of Secrets, Harry Potter and the Prisoner of Azkaban
+
+Thu, 16 Jul 2026 21:09:15 GMT
+
+https://collider.com/harry-potter-books-ranked-by-a-casual-fan/
+
+From The Philosopher's Stone to The Deathly Hallows, this is a ranking of every Harry Potter book from a casual fan of J.K Rowling's Wizarding World.
+---------
+
+# 7 of Spider-Man's Biggest Transformations in the Marvel Comic Books
+
+Movie Features, Spider-Man: Brand New Day, Comics, Spider-Man
+
+Thu, 16 Jul 2026 20:58:15 GMT
+
+https://collider.com/evolution-of-spider-man-brand-new-day-changes-marvel-comics/
+
+The evolution of Spider-Man took shocking twists and turns before Spider-Man: Brand New Day.
+---------
+
+# Wolverine's Most R-Rated Story Yet Reveals a Fan-Favorite Villain
+
+Gaming News, Deadpool & Wolverine (2024), PlayStation 5, Hugh Jackman, Marvel
+
+Thu, 16 Jul 2026 20:45:03 GMT
+
+https://collider.com/playstation-wolverine-cinematic-trailer-sabretooth-lady-deathstrike-reveal/
+
+A new trailer for PlayStation's Wolverine officially reveals a fan-favorite villain and a new look at Sabretooth and The Hand.
+---------
+
+# Did This Modern Rock Band Rip Off Led Zeppelin?
+
+Music Features, Led Zeppelin, Rock
+
+Thu, 16 Jul 2026 20:32:15 GMT
+
+https://collider.com/led-zeppelin-classic-rock-greta-van-fleet/
+
+Up-and-coming rock band Greta Van Fleet has a very similar sound to classic rock legends Led Zeppelin, specifically Robert Plant's iconic vocals
+---------
+
+# 10 Greatest Heroes in 'Batman: The Animated Series' Who Aren't the Dark Knight
+
+TV, Batman: The Animated Series, Superhero, DC Comics, Animation
+
+Thu, 16 Jul 2026 20:05:15 GMT
+
+https://collider.com/batman-the-animated-series-best-heroes-not-batman/
+
+The Caped Crusader might be the star in Batman: The Animated Series, but the show has multiple other great heroes, from Dick Grayson to Renee Montoya.
+---------
+
+# Lost R-Rated 'X-Files' Movie Debuts on New Streamer Ahead of New Reboot
+
+Movie News, The X-Files, The X-Files: I Want to Believe, Hulu
+
+Thu, 16 Jul 2026 21:02:35 GMT
+
+https://movieweb.com/the-x-files-r-rated-i-want-to-believe-streaming-directors-cut/
+
+The director's cut of 'The X-Files: I Want to Believe' lands on Hulu on Aug. 14.
+---------
+
+# 10 Far Side Comics That Are Straight Out of a Horror Movie
+
+Movie Lists, The Far Side
+
+Thu, 16 Jul 2026 21:00:12 GMT
+
+https://movieweb.com/far-side-best-horror/
+
+Gary Larson's 'The Far Side' could conjure up some terrifying ideas and imagery; these ten strips prove it.
+---------
+
+# Tom Cruise Reveals His Official Review of Epic Action 'The Odyssey'
+
+Movie News, The Odyssey, Tom Cruise
+
+Thu, 16 Jul 2026 20:30:59 GMT
+
+https://movieweb.com/tom-cruise-the-odyssey/
+
+Tom Cruise endorses Christopher Nolan's latest epic.
+---------
+
+# Disney Officially Developing Streaming Reboot of Beloved Franchise 71 Years Later
+
+TV News, Disney, The Mickey Mouse Club
+
+Thu, 16 Jul 2026 20:13:04 GMT
+
+https://movieweb.com/disney-mickey-mouse-club-reboot/
+
+Disney+ is developing a new 'Mickey Mouse Club' pilot, marking the franchise’s latest revival.
+---------
+
 # Buffy The Vampire Slayer's 2026 Return Comes With A Big Catch
 
 TV, Buffy The Vampire Slayer
