@@ -1,3 +1,190 @@
+# The Walking Dead: Aftermath Is Officially A New Chapter For The Series
+
+Gaming, The Walking Dead
+
+Thu, 16 Jul 2026 10:24:12 GMT
+
+https://screenrant.com/walking-dead-aftermath-2026-new-chapter/
+
+The Walking Dead has been through all sorts of eras over the years, and you can really carve out your own journey in a new release.
+---------
+
+# The Hawk Review: Will Ferrell's Sports Comedy Is A Weak Addition To The Genre
+
+Streaming TV, The Hawk
+
+Thu, 16 Jul 2026 10:00:11 GMT
+
+https://screenrant.com/the-hawk-tv-review/
+
+Will Ferrell stars in his brand-new sports comedy series; however, the show struggles to escape comparison to similar projects and falls short.
+---------
+
+# GTA 6 Officially Facing One Final Delay, Brace Yourselves
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Thu, 16 Jul 2026 09:55:06 GMT
+
+https://screenrant.com/gta-6-final-delay-confirmed-pc/
+
+GTA VI is finally coming in November, but there is one version of the game that's deliberately being delayed for a year or more.
+---------
+
+# Steam Makes 2023 9/10 Game 100% Free To Keep For 24 Hours
+
+Gaming, Steam
+
+Thu, 16 Jul 2026 09:18:20 GMT
+
+https://screenrant.com/steam-free-game-catch-me-july-2026-24-hours/
+
+Steam has always got great offers on that allow gamers to play for free, and today is no exception to the rule.
+---------
+
+# Star Wars Revisits The Original Trilogy In New Game Available Today
+
+Gaming, PowerWash Simulator, Star Wars
+
+Thu, 16 Jul 2026 09:00:12 GMT
+
+https://screenrant.com/star-wars-powerwash-simulator-2-dlc-empire/
+
+Experience a unique crossover as one popular game releases a new Star Wars DLC pack, taking players to iconic locations from the original trilogy.
+---------
+
+# DC's The Batman Part II Delay Just Canceled the Greatest Year in Superhero Movie History
+
+Movies, The Batman Part II, DCU, Batman
+
+Thu, 16 Jul 2026 10:00:15 GMT
+
+https://www.cbr.com/the-batman-2-delay-ruins-2027-superhero-movie-year/
+
+2027 will no longer have the opportunity to make history in the superhero movie realm.
+---------
+
+# 10 Best Far Side Comics if You're a Cat Lover
+
+Comics, The Far Side
+
+Thu, 16 Jul 2026 10:00:15 GMT
+
+https://www.cbr.com/best-far-side-comics-for-cat-lovers/
+
+If you're a cat person, these comics from The Far Side are purrfect for you.
+---------
+
+# 10 Most Universally Beloved Superhero Movies of the Last 30 Years
+
+Movie, The Incredibles, Superhero, Unbreakable, The Dark Knight
+
+Thu, 16 Jul 2026 10:42:15 GMT
+
+https://collider.com/most-universally-beloved-superhero-movies-last-30-years-ranked/
+
+The Dark Knight, Spider-Man: Into the Spider-Verse, and The Incredibles are among the most universally beloved superhero movies of the last 30 years.
+---------
+
+# The 15 Scariest Video Games of All Time, Ranked
+
+TV, Video Game, The Last of Us, Horror, Resident Evil
+
+Thu, 16 Jul 2026 10:36:20 GMT
+
+https://collider.com/scariest-video-games-of-all-time-ranked/
+
+Our list of the scariest video games of all time spans more than 20 years' worth of spooky games, from action-horror to survival stories.
+---------
+
+# Titus Welliver on What Sets His New Crime Character Apart From Harry Bosch
+
+TV News, Bosch, Titus Welliver, The Westies, Ballard
+
+Thu, 16 Jul 2026 10:30:18 GMT
+
+https://collider.com/titus-welliver-bosch-the-westies-differences-explained/
+
+Titus Welliver breaks down the differences between the legendary Harry Bosch and his new crime thriller character.
+---------
+
+# 10 Forgotten 2000s Books That Are Perfect From Start to Finish
+
+Books and Comics, Books, On Chesil Beach, Lisey's Story, John Green
+
+Thu, 16 Jul 2026 10:17:15 GMT
+
+https://collider.com/forgotten-2000s-books-perfect-start-to-finish/
+
+From An Abundance of Katherines to On Chesil Beach, these forgotten book gems of the 2000s are just as worthy of a read today as they were back then.
+---------
+
+# The 15 Best Fantasy TV Shows of the Last 10 Years, Ranked
+
+TV, Fantasy, House of the Dragon, The Lord of the Rings: The Rings of Power, The Witcher
+
+Thu, 16 Jul 2026 10:03:14 GMT
+
+https://collider.com/best-fantasy-shows-last-10-years-ranked/
+
+The best fantasy TV shows of the past 10 years feature epic tales and magical realms, as seen in House of the Dragon, Arcane, and Wednesday.
+---------
+
+# ‘X-Men '97’ Officially Confirms Mortal Kombat Star as a Fan-Favorite Villain
+
+TV News, X-Men '97, X-Men, X-Men: The Animated Series, Marvel
+
+Thu, 16 Jul 2026 10:00:15 GMT
+
+https://collider.com/x-men-97-season-2-cast-lady-deathstrike-erika-ishii/
+
+Erika Ishii, the star of Mortal Kombat 1, Apex: Legends, and Ghost of Yōtei, has joined the cast of X-Men '97 as a villainous fan-favorite.
+---------
+
+# After 85 Million Views, Netflix Has Crowned a New Mystery King
+
+TV News, I Will Find You, Netflix, Harlan Coben, Sam Worthington
+
+Thu, 16 Jul 2026 09:30:15 GMT
+
+https://collider.com/harlan-coben-netflix-mystery-series-i-will-find-you-85-million-views/
+
+Harlan Coben's I Will Find You has hit 85 million views on Netflix after one month of release, and is about to enter the streamer's all-time top 10.
+---------
+
+# 30 Years Later, Nicolas Cage's Stellar Action Thriller Still Hasn't Been Topped
+
+Movie, The Rock, Nicolas Cage, Sean Connery, Michael Bay
+
+Thu, 16 Jul 2026 09:04:15 GMT
+
+https://collider.com/the-rock-nicolas-cage-hbo-max-streaming-july-2026/
+
+30 years later, action thriller The Rock still feels fresh, largely due to stellar performances by Nicolas Cage, Sean Connery and Ed Harris.
+---------
+
+# BBC Officially Responds to 'Doctor Who' Cancellation
+
+TV News, BBC, Doctor Who, Sci-Fi, Russell T. Davies
+
+Thu, 16 Jul 2026 09:00:15 GMT
+
+https://collider.com/doctor-who-cancellation-bbc-response-series-future/
+
+The BBC addresses Doctor Who rumors, confirming the show's future despite cancellation, as they invest in long-term growth for the iconic series.
+---------
+
+# Sam Neill's Cause of Death Confirmed
+
+Movie News, Sam Neill, Jurassic Park
+
+Thu, 16 Jul 2026 09:27:50 GMT
+
+https://movieweb.com/sam-neill-cause-of-death/
+
+The cause of death for actor Sam Neill has been confirmed, days after the 'Jurassic Park' star's tragic passing aged 78.
+---------
+
 # 10 Pokémon Winds & Waves Regional Variants That Are Perfect 10/10s
 
 Gaming, Pokemon Winds and Waves, Pokemon
