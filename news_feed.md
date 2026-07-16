@@ -1,3 +1,399 @@
+# Power Rangers Will Say Goodbye To Megazords As A New Era Begins
+
+Streaming TV, Power Rangers
+
+Thu, 16 Jul 2026 16:06:11 GMT
+
+https://screenrant.com/power-rangers-new-era-fewer-megazord-scenes/
+
+The next Power Rangers TV show is going to make a lot of changes to the classic formula, including not having a Zord battle in every single episode.
+---------
+
+# Our Effed Up World Trailer Introduces An Out-Of-This-World Entity
+
+Videos
+
+Thu, 16 Jul 2026 16:00:12 GMT
+
+https://screenrant.com/video/our-effed-up-world-movie-trailer/
+
+Exclusive: ScreenRant presents the teaser for Our Effed Up World, a queer sci-fi film produced by Jane Schoenbrun and directed by Alice Maio Mackay.Our Effed Up World has its International Premiere at Fantasia Film Festival on July 18!
+---------
+
+# The X-Files Switching Casts After 33 Years Is A Double-Edged Sword
+
+TV, The X-Files
+
+Thu, 16 Jul 2026 15:58:11 GMT
+
+https://screenrant.com/the-x-files-switching-casts-double-edged-sword/
+
+The X-Files reboot, helmed by Sinners director Ryan Coogler, has sparked a heated debate over the iconic sci-fi thriller franchise's future.
+---------
+
+# The Batman 2's New Release Date Is Actually Perfect
+
+Superheroes, The Batman Part II
+
+Thu, 16 Jul 2026 15:50:11 GMT
+
+https://screenrant.com/the-batman-2-release-date-delay-perfect/
+
+The Batman 2 has received another new release date following its third delay, but this time, the sequel has landed on a perfect opening.
+---------
+
+# Dragon Ball XenoVerse 2 Is Completely Free Until July 19
+
+Gaming, Dragon Ball Xenoverse 2, Triple-A Games
+
+Thu, 16 Jul 2026 15:49:05 GMT
+
+https://screenrant.com/dragon-ball-xenoverse-2-is-completely-free-until-july-19/
+
+If you haven't played the 10-year-running-and-still-updating epic yet, you can check out Dragon Ball XenoVerse 2 for free now until July 19.
+---------
+
+# Forza Horizon 6: Italian Exotics - Nangan Region Treasure Hunt Location
+
+Gaming, Forza Horizon 6
+
+Thu, 16 Jul 2026 15:37:13 GMT
+
+https://screenrant.com/forza-horizon-6-italian-exotics-nangan-region-treasure-hunt-location/
+
+In this guide, we'll tell you where you can round up the Nangan region treasure hunt during the Italian Exotics series.
+---------
+
+# It’s Officially The End Of An Era For The Simpsons & Fox
+
+TV, The Simpsons, Animal Control, FOX
+
+Thu, 16 Jul 2026 15:33:27 GMT
+
+https://screenrant.com/the-simpsons-fox-era-ending-sunday-night-schedule/
+
+It's officially the end of an era for The Simpsons and its fellow animated comedies at Fox, as a notable change will soon be coming to the network.
+---------
+
+# Evil Dead's Rotating Directors Idea Is What More Horror Franchises Should Try
+
+Movies, Evil Dead, Op-Ed
+
+Thu, 16 Jul 2026 15:30:12 GMT
+
+https://screenrant.com/evil-dead-switching-directors-great-horror-concept/
+
+The Evil Dead franchise has had different directors for each of its last three movies, which is something more horror film series need to adapt.
+---------
+
+# Star Trek Will Launch A New Era Soon
+
+Movies, Star Trek, Masked Recs
+
+Thu, 16 Jul 2026 15:30:12 GMT
+
+https://screenrant.com/star-trek-movie-franchise-new-era/
+
+Though Star Trek's current slate of shows will come to an end next year, there's still more to come, as the franchise prepares for a fresh start.
+---------
+
+# The Westies Season 1 Interview with JK Simmons & Tom Brittney
+
+TV, The Westies, The Westies - Season 1, J.K. Simmons
+
+Thu, 16 Jul 2026 15:26:35 GMT
+
+https://screenrant.com/video/the-westies-season-1-jk-simmons-tom-brittney-interview/
+
+The Westies stars JK Simmons and Tom Brittney break down how the dynamic between Eamon Sweeney and Jimmy Roarke shifts after episode 1's shocking ending, and how they explored their backstory together before the show started.
+---------
+
+# Robert Kirkman Sparks Debate by Calling Batman 'Irrelevant'
+
+Comics, DC Comics, DCU, Batman, The Batman, The Batman – Part II, Invincible, The Walking Dead
+
+Thu, 16 Jul 2026 16:00:16 GMT
+
+https://www.cbr.com/robert-kirkman-sparks-debate-calls-dc-batman-irrelevant/
+
+The Invincible creator really said the unthinkable about Batman.
+---------
+
+# Confirmed: Assassin's Creed Is Returning In 2026
+
+Comics, Assassin's Creed
+
+Thu, 16 Jul 2026 16:00:16 GMT
+
+https://www.cbr.com/assassins-creed-dynasty-the-complete-collection-hardcover-release-date-confirmed/
+
+One of the most underrated Assassin's Creed titles of the decade is about to come back with a brand-new, long overdue collected edition.
+---------
+
+# Apple TV's 'Unfilmable' Sci-Fi Masterpiece Has the Greatest Time Jumps in TV History
+
+TV, Apple TV, Sci-Fi, Foundation
+
+Thu, 16 Jul 2026 16:00:16 GMT
+
+https://www.cbr.com/apple-tv-foundation-best-time-sci-fi-jumps/
+
+Apple TV has created some incredible sci-fi shows, but one epic series was once considered unfilmable.
+---------
+
+# Overhated & Underrated: Clash of the Titans is an Underrated Epic
+
+CBR Exclusives, Overhated & Underrated, Clash of the Titans
+
+Thu, 16 Jul 2026 16:00:16 GMT
+
+https://www.cbr.com/overhated-underrated-clash-of-the-titans/
+
+The Odyssey has finally arrived in theaters but there is one underrated fantasy epic that is worth watching at home first.
+---------
+
+# Max Cady Faces More Time Behind Bars in Cape Fear Episode 8 Sneak Peek
+
+TV, Cape Fear
+
+Thu, 16 Jul 2026 16:00:10 GMT
+
+https://www.cbr.com/cape-fear-exclusive-clip-episode-108/
+
+Exclusive: The Bowdens get a win in a sneak peek at Cape Fear episode 8, but Max might still have something up his sleeve.
+---------
+
+# In Just 1 Day, Chiwetel Ejiofor's Record-Breaking 101-Minute Horror Masterpiece Is Officially an Instant PVOD Sensation
+
+Movies, Backrooms, The Backrooms
+
+Thu, 16 Jul 2026 15:55:33 GMT
+
+https://www.cbr.com/chiwetel-ejiofor-record-breaking-horror-masterpiece-backrooms-instant-pvod-success/
+
+It took just 24 hours for the instant horror classic Backrooms to dominate streaming like this.
+---------
+
+# Prime Video's New 10-Episode Sci-Fi Hit Was Designed to Look Like a Lost '90s Anime
+
+Anime, The Ghost in the Shell, Ghost in the Shell
+
+Thu, 16 Jul 2026 15:43:49 GMT
+
+https://www.cbr.com/ghost-in-the-shell-prime-video-90s-anime-director-interview/
+
+In an interview with CBR, The Ghost in the Shell’s director and character designer explain how they recaptured the classic manga’s unique retro feel.
+---------
+
+# Razer Levels Up Gamers With Exclusive New Hello Kitty Keycap Collection
+
+Anime, Hello Kitty, sanrio, Razer, merchandise
+
+Thu, 16 Jul 2026 15:30:15 GMT
+
+https://www.cbr.com/hello-kitty-razer-keycap-collection/
+
+Fans of Hello Kitty, Kuromi, My Melody, Cinnamoroll and Pompompurin will be able to level up their gaming with a must-have new collection from Razer.
+---------
+
+# Sean Bean's Gritty Medieval Reboot Casts Once Upon a Time Fan Favorite in Key Role
+
+TV, Robin Hood (2025)
+
+Thu, 16 Jul 2026 15:23:34 GMT
+
+https://www.cbr.com/robin-hood-season-2-cast-colin-odonoghue-prince-richard/
+
+The latest hit streaming adaptation of one of the most iconic stories of all time just picked up a fan-favorite star ahead of Season 2.
+---------
+
+# 10 Strongest Pokémon in the Anime, Ranked By Power
+
+Anime, Pokemon
+
+Thu, 16 Jul 2026 15:15:15 GMT
+
+https://www.cbr.com/official-strongest-pokemon-in-the-anime/
+
+The Pokémon anime has been running for decades, and the strongest Pokémon in the series, both normal and Legendary, have been well-established.
+---------
+
+# The Director of 'Sharknado' Returns for More Mayhem With 'Water Park Shark' Sneak Peek [Exclusive]
+
+Movie News, Sharknado, Horror, Comedy, Action
+
+Thu, 16 Jul 2026 16:00:15 GMT
+
+https://collider.com/water-park-shark-sneak-peek/
+
+Watch mutant sharks attack a Cape Cod water park in a sneak peek from Water Park Shark, the new movie from Sharknado director Anthony C. Ferrante.
+---------
+
+# Javier Bardem’s 10-Episode Psychological Thriller Is Officially Dominating Apple TV
+
+TV Features, Cape Fear, Javier Bardem, Amy Adams, Patrick Wilson
+
+Thu, 16 Jul 2026 15:50:15 GMT
+
+https://collider.com/javier-bardem-cape-fear-apple-tv-streaming/
+
+Apple TV's Cape Fear reboot, starring Javier Bardem and Amy Adams, expands the classic tale into a 10-episode psychological thriller.
+---------
+
+# 8 Great Shows Perfect for Fans of 'Obsession'
+
+TV, Obsession, Supernatural, Superman & Lois, Tell Me Lies
+
+Thu, 16 Jul 2026 15:36:15 GMT
+
+https://collider.com/shows-like-obsession-movie/
+
+Fans of 2026's smash horror hit Obsession will also enjoy series like The CW's Supernatural, Hulu's Tell Me Lies, and Netflix's Baby Reindeer.
+---------
+
+# Masterpiece's 100% RT British Detective Series Officially Sets Season 2 Release Date
+
+TV News, BBC, Maigret
+
+Thu, 16 Jul 2026 15:28:12 GMT
+
+https://collider.com/maigret-season-2-release-date-first-look/
+
+Maigret Season 2 premieres October 18 on Masterpiece PBS, with a new first look teasing higher stakes for Benjamin Wainwright’s detective.
+---------
+
+# Andrew Garfield's Epic 'Braveheart' Replacement Officially Reveals First Trailer
+
+Movie News, The Uprising, Andrew Garfield, Paul Greengrass, Jamie Bell
+
+Thu, 16 Jul 2026 15:01:39 GMT
+
+https://collider.com/the-uprising-trailer-andrew-garfield-paul-greengrass/
+
+The first trailer for The Uprising has arrived, with Andrew Garfield leading the legendary Peasants' Revolt in the historical action epic.
+---------
+
+# Hollywood's Biggest Stars Reveal Their Favorite Christopher Nolan Movie
+
+Exclusives, Christopher Nolan
+
+Thu, 16 Jul 2026 15:01:15 GMT
+
+https://collider.com/video/hollywood-s-biggest-stars-reveal-their-favorite-christopher-nolan-movie/
+
+With Christopher Nolan's The Odyssey hitting theaters and @IMAX, we asked some of Hollywood's biggest stars one important question:What's your favorite Christopher Nolan movie? From Leonardo DiCaprio, Colin Farrell, Jack Black, Steven Spielberg, the Stranger Things cast, and many more, the answers ranged from The Dark Knight and Interstellar to Inception, The Prestige, Memento, Dunkirk, and Oppenheimer.Now it's your turn: which Nolan movie tops your list? 🍿
+---------
+
+# Prime Video Officially Replaces Liam Neeson's 'Taken' Franchise With Epic New Action Thriller
+
+Movie News, Gal Gadot, Kevin Macdonald, Damian Lewis, Prime Video
+
+Thu, 16 Jul 2026 15:01:15 GMT
+
+https://collider.com/the-runner-trailer-gal-gadot-prime-video/
+
+Watch Gal Gadot race to save her kidnapped son in the first trailer for The Runner, a new action thriller coming to Prime Video.
+---------
+
+# Taylor Sheridan’s Darkest War Thriller Officially Returns With Must-Watch Season 3 Trailer
+
+TV News, Lioness, Taylor Sheridan, Paramount Plus, Zoe Saldana
+
+Thu, 16 Jul 2026 15:01:15 GMT
+
+https://collider.com/taylor-sheridan-lioness-season-3-trailer-release-date-august-2026/
+
+Paramount has released the first official trailer for Lioness Season 3, confirming that the Taylor Sheridan-produced series will return on August 2.
+---------
+
+# Alan Ritchson's New Action Movie Is Officially ‘Reacher’ Meets ‘Fast & Furious’
+
+TV News, Runner, Alan Ritchson, Owen Wilson, Action
+
+Thu, 16 Jul 2026 15:00:43 GMT
+
+https://collider.com/runner-trailer-alan-ritchson-owen-wilson/
+
+Watch Alan Ritchson and Owen Wilson race to save a child while battling a ruthless cartel in the first trailer for Runner, in theaters September 11.
+---------
+
+# Taylor Sheridan's Best Action Thriller Finally Returns in Explosive New Trailer
+
+TV News, Taylor Sheridan, Lioness
+
+Thu, 16 Jul 2026 15:17:03 GMT
+
+https://movieweb.com/taylor-sheridan-lioness-season-3-trailer-paramount/
+
+The best Taylor Sheridan action series is finally back in the explosive official trailer for 'Lioness' Season 3.
+---------
+
+# Gal Gadot Gets Her Own 'Taken' in First Trailer for High-Stakes Thriller
+
+Movie News, Gal Gadot
+
+Thu, 16 Jul 2026 15:16:37 GMT
+
+https://movieweb.com/the-runner-gal-gadot-first-trailer/
+
+Gal Gadot stars in an exciting new thriller movie, taking the spotlight in a first trailer that brings memories of 'Taken.'
+---------
+
+# Andrew Garfield Is a One-Man Army in First Trailer for 'Bourne' Director's New Historical Epic
+
+Movie News, The Uprising, Andrew Garfield, Paul Greengrass
+
+Thu, 16 Jul 2026 15:14:44 GMT
+
+https://movieweb.com/the-uprising-trailer/
+
+Focus Features has released the first trailer for 'The Uprising,' a historical action epic directed by Paul Greengrass and starring Andrew Garfield.
+---------
+
+# 42 Years Later, One of the Definitive 80s Action Movies Finally Sets New Release
+
+Movie News, Beverly Hills Cop, Eddie Murphy
+
+Thu, 16 Jul 2026 15:05:07 GMT
+
+https://movieweb.com/beverly-hills-cop-4k-blu-ray-release/
+
+Paramount Home Entertainment is preparing a Limited Edition 4K Ultra HD Blu-ray Steelbook for Eddie Murphy's 1984 action classic 'Beverly Hills Cop.'
+---------
+
+# 'Scrubs' Season 2's Returning Character Can Finally Pay Off 17-Year-Old Twist
+
+Features, Scrubs
+
+Thu, 16 Jul 2026 15:00:12 GMT
+
+https://movieweb.com/scrubs-season-2-kelso-cox-friends/
+
+Dr. Kelso was missing from the 'Scrubs' revival's inaugural run, but now there's a perfect reason for his return. Read on for more.
+---------
+
+# New 'Superman' Spin-Off Officially Casts One of DC's Greatest Villains
+
+TV News, Man of Tomorrow, Superman
+
+Thu, 16 Jul 2026 14:52:10 GMT
+
+https://movieweb.com/superman-spin-off-jimmy-tatro-gorilla-grodd-cast/
+
+The Jimmy Olsen-focused 'Superman' spin-off has landed its first major villain.
+---------
+
+# Will Ferrell's New Netflix Series Debuts With Jaw-Dropping Rotten Tomatoes Score
+
+TV News, The Hawk, Will Ferrell, Netflix
+
+Thu, 16 Jul 2026 14:46:58 GMT
+
+https://movieweb.com/will-ferrell-the-hawk-rotten-tomatoes-score/
+
+Will Ferrell is back on Netflix with a new show, but its initial Rotten Tomatoes score may come as a shock.
+---------
+
 # Matt Reeves Confirms New Batsuit Design Change For The Batman 2
 
 Movies, The Batman Part II
