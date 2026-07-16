@@ -1,3 +1,344 @@
+# House Of The Dragon Explains Why The Tyrells, Not The Hightowers, Ruled The Reach
+
+Streaming TV, House of the Dragon, Game of Thrones
+
+Thu, 16 Jul 2026 03:45:11 GMT
+
+https://screenrant.com/house-of-the-dragon-explain-why-tyrells-not-hightowers-reach/
+
+The Hightowers are the powerhouse of the Reach in House of the Dragon, though they are technically the bannermen of Game of Thrones' Tyrells.
+---------
+
+# DC’s New Superman Release Rewrites Clark Kent’s Powers
+
+Superheroes, My Adventures With Superman, DC Universe
+
+Thu, 16 Jul 2026 03:38:51 GMT
+
+https://screenrant.com/my-adventures-with-superman-season-3-rewrites-powers-gone/
+
+DC's newest Superman release saw the Man of Steel going into full overdrive with his powers, showcasing new abilities (but there's a big trade-off).
+---------
+
+# 5 Reasons Boruto Is Actually Better Than Naruto Fans Think
+
+Anime, Boruto: Naruto Next Generations, Naruto
+
+Thu, 16 Jul 2026 03:30:11 GMT
+
+https://screenrant.com/why-boruto-better-naruto-fans-think/
+
+Naruto fans have a lot of misconceptions about Boruto. Here's why to watch (or read) the sequel to one of the most successful shonen ever.
+---------
+
+# Charlie Hunnam’s New Sons Of Anarchy Replacement Is Justified’s Perfect Follow-Up
+
+Streaming TV, Masked Recs
+
+Thu, 16 Jul 2026 03:00:11 GMT
+
+https://screenrant.com/charlie-hunnam-sons-of-anarchy-criminal-justified-replacement/
+
+Charlie Hunnam is set to star in an upcoming crime thriller that will not only replace Sons of Anarchy but also become Justified’s perfect follow-up.
+---------
+
+# Silo Season 3's Amnesia Plot Criticism Misses The Point Of The Apple TV Sci-Fi Show
+
+Streaming TV, Silo, Silo - Season 3
+
+Thu, 16 Jul 2026 02:31:31 GMT
+
+https://screenrant.com/silo-season-3-amnesia-story-criticism-unfair/
+
+Silo season 3 is being heavily critisized for its amnesia plot, but it is hard not to see how the hate towards the show misses the point of its story.
+---------
+
+# 10 Most Anticipated Movies Of The Rest Of 2026
+
+Movies
+
+Thu, 16 Jul 2026 02:31:31 GMT
+
+https://screenrant.com/most-anticipated-movies-2026-end-of-year/
+
+2026 has recently hit its halfway point, making it the perfect time to look ahead at the year to come and pinpoint all the movies to look out for.
+---------
+
+# Prime Video's New Epic Sci-Fi Series Is Rewriting A 19-Year-Old Franchise
+
+Streaming TV, Masked Recs
+
+Thu, 16 Jul 2026 02:25:00 GMT
+
+https://screenrant.com/prime-video-mass-effect-rewrite-franchise/
+
+Falling in line with the Fallout adaptation, an upcoming epic sci-fi series on Prime Video will feature major rewrites to a 19-year-old franchise.
+---------
+
+# Narnia Meets Coraline In 2026’s Record-Breaking Fantasy Movie
+
+Movies, Masked Recs
+
+Thu, 16 Jul 2026 02:20:17 GMT
+
+https://screenrant.com/wildwood-movie-narnia-meets-coraline/
+
+Ahead of Greta Gerwig's The Magician's Nephew adaptation, a record-breaking Narnia meets Coraline fantasy movie is coming to theaters in 2026.
+---------
+
+# 42 Years Later, The Greatest Line In Dystopian Fiction History Hits Harder In Apple TV’s Sci-Fi Masterpiece
+
+Streaming TV, Masked Recs
+
+Thu, 16 Jul 2026 01:30:21 GMT
+
+https://screenrant.com/silo-season-3-george-orwell-1984-quote/
+
+One of the greatest lines in the history of dystopian fiction seems to hit even harder after watching Apple TV’s post-apocalyptic sci-fi masterpiece.
+---------
+
+# Captain America's New Superpower Makes Him Stronger Than Ever Before
+
+Marvel Comics, Captain America
+
+Thu, 16 Jul 2026 01:11:18 GMT
+
+https://screenrant.com/captain-america-new-powers-hell/
+
+Captain America becomes stronger than ever after gaining an unexpected divine enhancement that makes his pure spirit a literal superpower.
+---------
+
+# The Hunt for Gollum Will Use The Lord of the Rings' Best Effects
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, The Hobbit
+
+Thu, 16 Jul 2026 03:46:15 GMT
+
+https://www.cbr.com/lord-of-the-rings-hunt-for-gollum-practical-effects/
+
+Director Andy Serkis confirmed that The Lord of the Rings: The Hunt for Gollum will maintain an important aspect of Peter Jackson's films.
+---------
+
+# Unplayable Classic SEGA Genesis Games
+
+Games, Sega Genesis, Disney, Video Games
+
+Thu, 16 Jul 2026 03:46:15 GMT
+
+https://www.cbr.com/unplayable-classic-sega-genesis-games/
+
+The Sega Genesis houses hundreds of incredible games, although these 5 should be avoided by players feeling nostalgic.
+---------
+
+# James Bond’s New Actor Starred in a Near-Perfect Netflix Sci-Fi Series 10 Years Ago
+
+TV, James Bond, The OA, Netflix
+
+Thu, 16 Jul 2026 03:30:15 GMT
+
+https://www.cbr.com/new-james-bond-patrick-gibson-netflix-the-oa-sci-fi/
+
+The James Bond franchise has just introduced its new leading man, who appeared on a smash-hit Netflix sci-fi series that fans are desperate to return.
+---------
+
+# Top 10 Marvel Heroes Who Should Replace the MCU's Current Leads
+
+Comics, Marvel, Marvel Cinematic Universe
+
+Thu, 16 Jul 2026 03:30:15 GMT
+
+https://www.cbr.com/marvel-heroes-better-than-mcu-leads/
+
+Marvel Studios needs to stop neglecting some of its on-screen heroes who have so much untapped potential.
+---------
+
+# Event Horizon Writer Officially Confirms His Approach for New Sci-Fi Horror Series
+
+CBR Exclusives, oni press
+
+Thu, 16 Jul 2026 03:22:32 GMT
+
+https://www.cbr.com/forever-home-christian-ward-interview/
+
+In a CBR exclusive interview with Christian Ward, learn about the Event Horizon writer's new sci-fi horror series, The Forever Home
+---------
+
+# Apple TV's No. 1 Sci-Fi Show Celebrates Major Milestone After Divisive Season 3
+
+TV, Silo, Apple TV, Sci-Fi
+
+Thu, 16 Jul 2026 03:22:18 GMT
+
+https://www.cbr.com/silo-sci-fi-success-apple-tv-july-2026/
+
+Apple TV's Silo celebrates 500 days in streamer's Top 10 TV shows in the United States, despite mixed reviews from fans.
+---------
+
+# 10 Long NES Games That Take Forever to Complete
+
+Games, The Legend of Zelda, Dragon Quest, Nintendo
+
+Thu, 16 Jul 2026 03:15:15 GMT
+
+https://www.cbr.com/long-nes-games-take-forever-to-complete/
+
+The NES catalog contains some of the most ground-breaking titles in the medium, and these ten games especially kept players hooked for hours.
+---------
+
+# Michael Fassbender's James Bond Replacement Quietly Climbs the Charts on Paramount+
+
+TV, The Agency, michael fassbender, Paramount Plus
+
+Thu, 16 Jul 2026 03:11:40 GMT
+
+https://www.cbr.com/the-agency-michael-fassbender-spy-thriller-paramount-success-july-2026/
+
+The Agency, starring Michael Fassbender, holds its spot in the Top 10 TV shows on Paramount+ nearly a month after the Season 2 release.
+---------
+
+# Disney+'s Gritty Superhero Show Returns as a Streaming Hit 2 Months Later
+
+TV, Daredevil: Born Again, Marvel, Disney+
+
+Thu, 16 Jul 2026 03:00:59 GMT
+
+https://www.cbr.com/daredevil-born-again-superhero-success-disney-plus-july-2026/
+
+Marvel's Daredevil: Born Again is climbing back up the charts on Disney+ over two months after the Season 2 finale.
+---------
+
+# 10 Greatest Anime Series From 2011 to 2020
+
+Anime
+
+Thu, 16 Jul 2026 03:00:15 GMT
+
+https://www.cbr.com/best-anime-series-from-2011-2020-list/
+
+2011 to 2020 was an incredible time for anime, with all-time classics like Jujutsu Kaisen and Demon Slayer making their debut.
+---------
+
+# Apple TV's Greatest Space Epic Is a Near-Perfect Binge for 'Star Trek' and 'Star Wars' Fans
+
+TV Features, Foundation, Apple TV, Star trek, Star Wars
+
+Thu, 16 Jul 2026 03:24:15 GMT
+
+https://collider.com/apple-tv-foundation-near-perfect-binge-star-trek-wars-fans/
+
+Apple TV's Foundation is perfect for fans of popular sci-fi because it adapts one of the seminal stories of the genre with a modern sensibility.
+---------
+
+# HBO Is Officially Bringing Back 'Mare of Easttown' in a Fantastic Way
+
+TV Features, Task, HBO, Julianne Nicholson, Mare of Easttown
+
+Thu, 16 Jul 2026 03:15:15 GMT
+
+https://collider.com/task-season-2-cast-julianne-nicholson-mare-of-easttown-crossover-hbo/
+
+Julianne Nicholson is set to reprise her Mare of Easttown role in Task Season 2, confirming that the two shows exist in the same universe.
+---------
+
+# Netflix’s Forgotten 16-Episode Dark Fantasy Is Still the Perfect Weekend Binge
+
+TV Features, Hotel Del Luna, Netflix, Fantasy, Horror
+
+Thu, 16 Jul 2026 03:09:15 GMT
+
+https://collider.com/netflix-dark-fantasy-series-hidden-gem-hotel-del-luna-series/
+
+Hotel del Luna blends romance, horror, and fantasy into one of Netflix's most unforgettable supernatural series.
+---------
+
+# In 2026, This American Book Classic Is Just Not Worth Reading
+
+Books and Comics, Books, To Kill A Mockingbird, Drama, Classics
+
+Thu, 16 Jul 2026 03:03:15 GMT
+
+https://collider.com/to-kill-a-mockingbird-classic-american-book-not-worth-reading-2026/
+
+Although praised for its themes of justice, morality, and racial relations, To Kill a Mockingbird is an outdated and often problematic book in 2026.
+---------
+
+# 10 Greatest Sci-Fi Shows With 10 Episodes or Less
+
+TV, Sci-Fi, Science Fiction, Station Eleven, Tales from the Loop
+
+Thu, 16 Jul 2026 03:01:15 GMT
+
+https://collider.com/best-sci-fi-shows-10-episodes-or-less/
+
+Station Eleven and Tales from the Loop are some of the sci-fi shows that prove you don't need more than 10 episodes to tell a compelling story.
+---------
+
+# ‘Breaking Bad’s Creator Forgotten 96% Crime Drama Is the Perfect Weekend Binge for ‘Bosch’ Fans
+
+TV Features, Battle Creek, Bosch, Series, Crime
+
+Thu, 16 Jul 2026 02:31:34 GMT
+
+https://collider.com/breaking-bad-creator-vince-gilligan-battle-creek-perfect-bosch-replacement/
+
+Finished Bosch? Vince Gilligan’s forgotten 96% crime drama Battle Creek is the perfect 13-episode weekend binge.
+---------
+
+# These 5 Brendan Fraser Movies Are True Classics
+
+Movie, Brendan Fraser, The Mummy, Gods And Monsters, School Ties
+
+Thu, 16 Jul 2026 01:03:13 GMT
+
+https://collider.com/best-brendan-fraser-movies-classics/
+
+Brendan Fraser has had a long, impactful film career, with movies like The Mummy, School Ties, and Gods and Monsters standing out as true classics.
+---------
+
+# 10 Most Underrated Stand-Alone Sci-Fi Movies You Can Watch This Weekend
+
+Movie Lists, Science Fiction, Dredd, Invisible Man, Prey
+
+Thu, 16 Jul 2026 02:31:31 GMT
+
+https://movieweb.com/underrated-stand-alone-sci-fi-movies/
+
+These are the 10 most underrated stand-alone sci-fi movies you can watch this weekend without having to be familiar with a franchise.
+---------
+
+# SCREENX Triumphs Ahead of Groundbreaking 'Spider-Man: Brand New Day' Release
+
+Movie News, Spider-Man: Brand New Day
+
+Thu, 16 Jul 2026 01:06:43 GMT
+
+https://movieweb.com/spider-man-brand-new-day-screenx/
+
+SCREENX is set to give viewers a unique format to take in everything coming in Marvel and Sony's 'Spider-Man: Brand New Day.'
+---------
+
+# 'The Odyssey's Full Trojan War Backstory, Explained
+
+Features, The Odyssey, Christopher Nolan
+
+Thu, 16 Jul 2026 01:00:17 GMT
+
+https://movieweb.com/the-odyssey-trojan-war-backstory/
+
+The prequel to 'The Odyssey' is truly epic, but Christopher Nolan won't pull many punches in telling it to you. Here's what you need to know.
+---------
+
+# One of the Best Action Epic Films of All Time Officially Returns in New Release
+
+Movie News, Troy, Brad Pitt, Eric Bana
+
+Thu, 16 Jul 2026 00:56:36 GMT
+
+https://movieweb.com/troy-4k-blu-ray-limited-edition-release/
+
+The 2004 'Troy' is set to land on 4K Ultra HD for the first time, along with its director's cut.
+---------
+
 # Claire Had Two Children In Heroes, And Their Father Was The Show's Final Villain
 
 Classic TV, Heroes, Heroes Reborn
