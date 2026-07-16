@@ -1,3 +1,355 @@
+# Matt Reeves Confirms New Batsuit Design Change For The Batman 2
+
+Movies, The Batman Part II
+
+Thu, 16 Jul 2026 14:23:39 GMT
+
+https://screenrant.com/the-batman-2-batsuit-ears-change-matt-reeves-confirm/
+
+In a new post on social media, Matt Reeves confirms that viewers will be seeing an altered Batsuit on Robert Pattinson in The Batman Part II.
+---------
+
+# The Rookie Sets Chenford Surprise Ahead Of Season 9
+
+Network TV, The Rookie
+
+Thu, 16 Jul 2026 14:22:35 GMT
+
+https://screenrant.com/the-rookie-season-8-extended-lucy-tim-surprise/
+
+The Rookie creator Alexi Hawley announces an extended release of season 8 episode 10 on Hulu, focusing on Tim and Lucy's emotional journey.
+---------
+
+# The Legend of Zelda Confirms Three Huge New Reveals Coming Next Week
+
+Gaming, The Legend of Zelda, PC
+
+Thu, 16 Jul 2026 14:21:44 GMT
+
+https://screenrant.com/legend-of-zelda-hasbro-license-comic-con-reveals-confirmed/
+
+The Legend of Zelda is officially set to reveal three new releases next week, continuing the 40th anniversary celebration in style.
+---------
+
+# Will Ferrell’s New Netflix Series Debuts With All-Time Career Rotten Tomatoes Record
+
+TV, Masked Recs, Netflix, Will Ferrell
+
+Thu, 16 Jul 2026 14:04:59 GMT
+
+https://screenrant.com/netflix-the-hawk-rotten-tomatoes-score-debut/
+
+Will Ferrell is back with a new big comedy series, this time on Netflix, as his 2026 TV show has officially landed its Rotten Tomatoes score.
+---------
+
+# Red Dead Redemption 2 Free Download Officially Available Until July 20
+
+Gaming, Red Dead Redemption 2, Red Dead Redemption
+
+Thu, 16 Jul 2026 14:00:11 GMT
+
+https://screenrant.com/red-dead-redemption-2-free-download-online-july-20/
+
+We might not be getting another Red Dead Redemption game for a long while yet, but there's still plenty going on in the most recent release.
+---------
+
+# Netflix Is Losing A Major Anime Franchise On August 1st
+
+Anime, Netflix
+
+Thu, 16 Jul 2026 14:00:11 GMT
+
+https://screenrant.com/netflix-losing-fate-last-encore-anime-august-1/
+
+Netflix may be home to some of anime's greatest, but on August 1st Netflix loses an entry in one of the most iconic anime franchises of all time.
+---------
+
+# Pokémon Winds & Waves Is Breaking The Series’ Biggest 30-Year Rule
+
+Gaming, Pokemon Winds and Waves, Pokemon, Triple-A Games
+
+Thu, 16 Jul 2026 13:40:16 GMT
+
+https://screenrant.com/pokemon-winds-waves-breaking-series-30-year-rule/
+
+A new set of leaks regarding Pokémon Winds and Waves suggests that the Gen 10 games are going to have a massive change to the battle system.
+---------
+
+# Marvel Officially Debuts Cyclops Redesign with Shaved Head and Beard
+
+Comics, X-Men
+
+Thu, 16 Jul 2026 13:30:11 GMT
+
+https://screenrant.com/x-men-cyclops-redesign-midnight/
+
+Looking hardcore, Cyke!
+---------
+
+# GTA Online's Future Officially Confirmed Ahead Of GTA 6 Launch
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto Online, Grand Theft Auto, PC
+
+Thu, 16 Jul 2026 13:15:40 GMT
+
+https://screenrant.com/gta-online-future-confirmed-gta-6/
+
+Rockstar has officially confirmed the future of GTA Online in a new update announcement, with new seasonal content planned ahead of GTA 6's launch.
+---------
+
+# Sean Bean's Hit New Fantasy Series Gets Major Season 2 Return & First Additional Casting Update
+
+TV, Robin Hood
+
+Thu, 16 Jul 2026 13:12:58 GMT
+
+https://screenrant.com/robin-hood-season-2-filming-start-casting-additions/
+
+Sean Bean's hit new fantasy TV show gets a major season 2 return and additional casting update as development of the series continues.
+---------
+
+# Star Trek's 'Good' Borg Officially Reverts to Classic Villainous Behavior
+
+Comics, Star Trek
+
+Thu, 16 Jul 2026 14:26:00 GMT
+
+https://www.cbr.com/star-trek-last-starship-7-review-borg-agnes-reversion/
+
+In a CBR review of Star Trek: The Last Starship #7, see how the U.S.S. Omega's Borg ally tragically reverts to form
+---------
+
+# 10 Anime Power Systems That Are Nearly Perfect
+
+Anime, Hell's Paradise: Jigokuraku, Demon Slayer, Jujutsu Kaisen, Chainsaw Man
+
+Thu, 16 Jul 2026 14:15:14 GMT
+
+https://www.cbr.com/best-near-perfect-anime-power-systems/
+
+Anime power systems dictate the scaling and character progression of their series, and these ten are nearly perfect.
+---------
+
+# Star Wars Comic Settles Debate About Han Solo And Chewbacca
+
+Comics, Star Wars
+
+Thu, 16 Jul 2026 14:00:14 GMT
+
+https://www.cbr.com/star-wars-galaxys-edge-echoes-of-the-empire-4-han-solo-chewbacca/
+
+The debate over these Star Wars heroes' dynamic is settled.
+---------
+
+# Wizards of the Coast Officially Reveals Retailer Dates for Magic: The Gathering - Star Trek
+
+Games, Magic: The Gathering, Tabletop, Star Trek
+
+Thu, 16 Jul 2026 13:59:15 GMT
+
+https://www.cbr.com/wizards-of-the-coast-retailer-dates-mtg-star-trek-official/
+
+Wizards of the Coast has revealed when Magic: The Gathering players will be able to purchase cards from the Star Trek crossover set in 2026.
+---------
+
+# Pedro Pascal Sets New Movie Just 2 Weeks Before 'Avengers: Doomsday'
+
+Movies, Avengers: Doomsday, Fantastic Four
+
+Thu, 16 Jul 2026 13:50:41 GMT
+
+https://www.cbr.com/pedro-pascal-bemehoth-trailer/
+
+Pedro Pascal will have two major movies arriving in December 2026.
+---------
+
+# The Terminator's Return Confirmed To Feature Wildest Pop Culture Crossover So far
+
+Comics, Terminator, Archie Comics
+
+Thu, 16 Jul 2026 13:25:50 GMT
+
+https://www.cbr.com/terminator-archie-crossover-announcement/
+
+Dynamite Entertainment is shocking the world again with an outrageous combination of the worlds of Riverdale and the Terminator in a new crossover
+---------
+
+# 4 SNES Games Better Than Chrono Trigger
+
+Games, Nintendo, Chrono Trigger
+
+Thu, 16 Jul 2026 13:20:15 GMT
+
+https://www.cbr.com/snes-games-better-than-chrono-trigger-list/
+
+Chrono Trigger is widely hailed as one of the best SNES games, but a few titles on the console are even better.
+---------
+
+# 5 Modern Shonen Anime Better Than One Piece
+
+Anime, One Piece, shonen anime
+
+Thu, 16 Jul 2026 13:15:15 GMT
+
+https://www.cbr.com/modern-shonen-anime-better-than-one-piece/
+
+The One Piece anime has quite a few shortcomings, and modern shonen anime have begun to provide tough competition for the classic pirate adventure.
+---------
+
+# Halle Berry’s Moonfall is the Best Sci-Fi on Prime Video
+
+Movies, Moonfall, halle berry, roland emmerich
+
+Thu, 16 Jul 2026 13:01:15 GMT
+
+https://www.cbr.com/halle-berry-moonfall-best-sci-fi-on-prime-video/
+
+One of the best sci-fi disaster movies on Prime Video is also one of cinema's most underrated films from the "Master of Disaster," Roland Emmerich.
+---------
+
+# Starz's New Werewolf Show Based on a Bestselling Book Is Fantasy TV's Gold Standard
+
+TV, Fantasy, Starz
+
+Thu, 16 Jul 2026 13:01:15 GMT
+
+https://www.cbr.com/starz-the-wolf-king-fantasy-tv-gold-standard/
+
+Starz's upcoming adaptation of Lauren Palphreyman’s The Wolf King promises a faithful retelling that will fill a gap in romantasy TV.
+---------
+
+# A 'Once Upon a Time' Icon Is Heading to MGM+’s Epic New Historical Series
+
+TV News, Robin Hood, Colin O'Donoghue, James Purefoy, MGM
+
+Thu, 16 Jul 2026 14:08:44 GMT
+
+https://collider.com/robin-hood-season-2-cast-colin-odonoghue/
+
+MGM+'s epic Robin Hood adaptation adds Colin O'Donoghue, James Purefoy, and Luke Roberts to Season 2.
+---------
+
+# Fox Officially Confirms the End of an Era for 'The Simpsons' Sundays
+
+TV Features, The Simpsons, Animal Control, Fox, Hulu
+
+Thu, 16 Jul 2026 12:39:15 GMT
+
+https://collider.com/fox-september-2026-schedule-change-the-simpsons-animal-control/
+
+Fox is moving Animal Control to its Sunday night block, ending the era of Animation Domination anchored by The Simpsons.
+---------
+
+# The 10 Best Sci-Fi Movies of All Time, Ranked According to Letterboxd
+
+Movie, Sci-Fi, Interstellar, Spider-Man: Across the Spider-Verse, Letterboxd
+
+Thu, 16 Jul 2026 12:32:15 GMT
+
+https://collider.com/best-sci-fi-movies-ranked-letterboxd/
+
+From Interstellar to Spider-Man: Across the Spider-Verse, these are the best science fiction movies of all time according to Letterboxd.
+---------
+
+# Titus Welliver’s Bosch Is Officially Returning to Prime Video
+
+TV News, Bosch, Bosch: Legacy, Ballard
+
+Thu, 16 Jul 2026 12:30:14 GMT
+
+https://collider.com/bosch-spin-off-ballard-season-2-titus-welliver-return-confirmed/
+
+Titus Welliver confirms Harry Bosch will appear in several episodes of the hit spin-off, Ballard, Season 2 on Prime Video.
+---------
+
+# Apple TV’s Most Relevant 8-Part Sci-Fi Show Feels More Urgent Than Ever
+
+TV Features, Apple TV, Meryl Streep, Extrapolations, Kit Harrington
+
+Thu, 16 Jul 2026 12:24:14 GMT
+
+https://collider.com/apple-tv-urgent-sci-fi-show-extrapolations/
+
+Back in 2023, Apple TV released one of its most urgent and necessary shows in the climate anthology series, Extrapolations.
+---------
+
+# Eric Clapton's Most Heartbreaking Song in 1991 Became His Highest-Selling Single
+
+Music Features, Eric Clapton - MTV Unplugged, Music, Rush, Rock
+
+Thu, 16 Jul 2026 12:20:15 GMT
+
+https://collider.com/eric-clapton-tears-in-heaven-highest-selling-single-1991/
+
+Eric Clapton channeled his unimaginable grief following the tragic death of his young son into the creation of his most heartbreaking and highest-selling single, Tears in Heaven.
+---------
+
+# 10 Classic Fantasy Books You Must Read in 2026
+
+Books and Comics, Books, Fantasy, A Song of Ice and Fire
+
+Thu, 16 Jul 2026 12:17:14 GMT
+
+https://collider.com/classic-fantasy-books-must-read-2026/
+
+Fantasy classics like A Wizard of Earthsea, The Once and Future King, and A Game of Thrones are among the books that you simply must read in 2026.
+---------
+
+# 'MobLand' Star Joins Twisty New Thriller 12 Years in the Making
+
+Movie News, Helen Mirren
+
+Thu, 16 Jul 2026 14:25:48 GMT
+
+https://movieweb.com/mobland-helen-mirren-stars-in-a-talent-for-murder/
+
+'MobLand' fans are in for a treat with this upcoming psychological thriller inspired by the Tom Ripley saga.
+---------
+
+# Zach Cregger's 'Resident Evil' Runtime Revealed
+
+Movie News, Resident Evil, Zach Cregger
+
+Thu, 16 Jul 2026 14:06:26 GMT
+
+https://movieweb.com/zach-cregger-resident-evil-runtime-revealed/
+
+The director's lean, pared-back approach has already drawn comparisons with 'Fury Road'
+---------
+
+# Netflix’s New Thriller Will Give ‘I Will Find You’ a Run For Its Money
+
+Features, Netflix, The Whisper Man, I Will Find You, Robert De Niro
+
+Thu, 16 Jul 2026 14:01:12 GMT
+
+https://movieweb.com/the-whisper-man-upcoming-netflix-thriller/
+
+Harlan Coben's latest Netflix thriller series, 'I Will Find You,' has been a big hit, but an upcoming thriller will appeal to fans, too.
+---------
+
+# Taylor Sheridan Officially Loses Streaming Crown to TV's Best Crime Thriller
+
+TV News, Taylor Sheridan, Hot on Streaming, Criminal Minds, Criminal Minds: Evolution, Dutton Ranch
+
+Thu, 16 Jul 2026 14:01:12 GMT
+
+https://movieweb.com/taylor-sheridan-dutton-ranch-criminal-minds-streaming-july-2026/
+
+Taylor Sheridan's best show in years has officially been overtaken by a long-running crime thriller that people can't get enough of on streaming.
+---------
+
+# The 10 Most Binge-Worthy Miniseries of the 21st Century
+
+TV Lists, Band of Brothers, Mare of Easttown, The Queen's Gambit
+
+Thu, 16 Jul 2026 13:00:12 GMT
+
+https://movieweb.com/binge-worthy-miniseries-21st-century/
+
+These miniseries, from thrillers to dramas to a popular series about war, are the most impressive and binge-worthy of the past few decades.
+---------
+
 # Marvel Teases Unbelievable Leader for the Avengers' New Era
 
 Comics, The Avengers
