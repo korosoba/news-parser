@@ -1,3 +1,399 @@
+# Ryan Gosling's Iconic First-Ever TV Show Is Officially Being Rebooted By Disney
+
+TV
+
+Thu, 16 Jul 2026 17:33:50 GMT
+
+https://screenrant.com/mickey-mouse-club-reboot-disney-pilot-order/
+
+Ryan Gosling's first major role is getting the reboot treatment at Disney+, as the iconic show could launch the next generation of global stars.
+---------
+
+# Timothy Olyphant's New TV Streak Continues With 2 Trending Shows
+
+Streaming TV, Masked Recs, Timothy Olyphant
+
+Thu, 16 Jul 2026 17:30:12 GMT
+
+https://screenrant.com/timothy-olyphant-lucky-five-star-weekend-trending-binge/
+
+Timothy Olyphant is officially the king of TV with two new trending shows, and together, they make for the perfect summer weekend binge.
+---------
+
+# Why The Odyssey's Rotten Tomatoes Score Is So Close To Perfect
+
+Movies, The Odyssey
+
+Thu, 16 Jul 2026 17:20:12 GMT
+
+https://screenrant.com/the-odyssey-rotten-tomatoes-score-reviews-explained/
+
+Christopher Nolan's The Odyssey has earned a near-perfect Rotten Tomatoes score. Here's why critics are calling the IMAX epic one of his greatest.
+---------
+
+# Tim Burton's The Nightmare Before Christmas Confirms Next Release, And It Already Looks Stunning
+
+Comics, The Nightmare Before Christmas
+
+Thu, 16 Jul 2026 17:09:17 GMT
+
+https://screenrant.com/tim-burton-the-nightmare-before-christmas-zero-release-details/
+
+Tim Burton’s The Nightmare Before Christmas is returning just in time for Spooky Season with a new release starring Jack Skellington’s ghostly pup.
+---------
+
+# Paramount's Hit $214 Million Horror Trending #1 Worldwide Is A Victim Of Its Own Success
+
+TV, Masked Recs
+
+Thu, 16 Jul 2026 17:01:12 GMT
+
+https://screenrant.com/scream-7-success-franchise-problem/
+
+One unexpected change turned a massive box office hit into a critical laughing stock, as an iconic horror series becomes its own worst nightmare.
+---------
+
+# Tomb Raider: The Crypt Of Chronos Officially Launches Summer 2026
+
+Gaming, Tomb Raider
+
+Thu, 16 Jul 2026 17:00:11 GMT
+
+https://screenrant.com/tomb-raider-crypt-of-chronos-2026-release-date/
+
+Tomb Raider returns this summer with The Crypt of Chronos, an official new release taking Lara Croft on an exciting adventure on the island of Kairos.
+---------
+
+# Resident Evil Reboot’s Reported Runtime Sets A New Franchise Record After 24 Years
+
+Movies, Resident Evil, Horror, Zach Cregger
+
+Thu, 16 Jul 2026 16:50:05 GMT
+
+https://screenrant.com/resident-evil-2026-reboot-runtime-franchise-record/
+
+Zach Cregger's Resident Evil reboot's runtime has reportedly been set and hits a major new franchise 24 years after it originally launched.
+---------
+
+# New The Odyssey TV Series Happening With Stranger Things Exec
+
+TV
+
+Thu, 16 Jul 2026 16:49:08 GMT
+
+https://screenrant.com/odysseus-tv-series-stranger-things-halo-alums/
+
+The Odyssey is getting the TV show treatment, with a new series in the works from a Stranger Things executive and a director of the Halo show.
+---------
+
+# This 15-Year-Old Star-Studded Hidden Gem Needs To Be Seen By Rom-Com Fans
+
+Movies, 10 Years, Recommendation
+
+Thu, 16 Jul 2026 16:45:11 GMT
+
+https://screenrant.com/10-years-underrated-romantic-comedy-great-cast-stars/
+
+Channing Tatum, Aubrey Plaza, Kate Mara, Oscar Isaac, and a bunch of other stars appear in this fun hidden gem romantic comedy from 2011.
+---------
+
+# Power Origins Trailer Reveals The First Look At Ghost & Tommy’s Replacements
+
+TV, Power: Origins
+
+Thu, 16 Jul 2026 16:43:47 GMT
+
+https://screenrant.com/power-origins-trailer-young-ghost-tommy-replacements-revealed/
+
+Ghost and Tommy are, as Starz unveils a first look teaser at the new spinoff Power: Origins, which focuses on younger versions of the characters.
+---------
+
+# Optimus Prime Turns Evil in New Limited-Edition Transformers Release
+
+Anime, Transformers, optimus prime, Transformers: Rise of the Beasts, merchandise, toys
+
+Thu, 16 Jul 2026 17:30:20 GMT
+
+https://www.cbr.com/transformers-rise-of-the-beasts-optimus-prime-shattered-glass-yolopark-release/
+
+Yolopark's new limited-edition model kit for Optimus Prime remixes a recent Transformers movie design with a dark, foreboding color scheme.
+---------
+
+# Marvel's Nova Movie is Officially the Perfect Place for Thanos' Return
+
+Movies, Nova, Marvel Cinematic Universe, Thanos
+
+Thu, 16 Jul 2026 17:30:16 GMT
+
+https://www.cbr.com/mcu-nova-movie-thanos-return/
+
+After the unexpected announcement of a new movie in development for the MCU, now is the perfect time to bring an iconic sci-fi villain back to life.
+---------
+
+# 5 Open-World Games That Quietly Outclassed GTA Without Getting Enough Credit
+
+Games, Grand Theft Auto, Video Games, Sleeping Dogs
+
+Thu, 16 Jul 2026 17:15:16 GMT
+
+https://www.cbr.com/open-world-games-that-outclass-gta/
+
+Certain open-world games, including Saints Row 2 and The Godfather, are actually better than GTA, even if they don't get the credit they deserve.
+---------
+
+# Jon Bernthal Breaks Silence on Why He Exited Daredevil: Born Again
+
+TV, Marvel, Marvel Comics, MCU, The Punisher, The Punisher: One Last Kill, Marvel's The Punisher, Daredevil, Daredevil: Born Again
+
+Thu, 16 Jul 2026 17:06:06 GMT
+
+https://www.cbr.com/jon-bernthal-breaks-silence-on-daredevil-born-again-exit/
+
+Punisher fans won't believe why he's no longer in Daredevil: Born Again.
+---------
+
+# Marvel Confirms Major Shakeup In Bid To Reclaim Momentum
+
+Comics, Marvel
+
+Thu, 16 Jul 2026 17:05:06 GMT
+
+https://www.cbr.com/marvel-leaving-new-york-city-burbank-california-location-confirmed/
+
+Shocking changes lie ahead for Marvel Comics.
+---------
+
+# The Last Starfighter Returns For San Diego Comic-Con Exclusive Variant Cover
+
+Comics, The Last Starfighter
+
+Thu, 16 Jul 2026 17:01:15 GMT
+
+https://www.cbr.com/the-last-starfighter-1-sdcc-variant-cover/
+
+Fans of this out-of-this-world cult favorite are in for a treat at SDCC.
+---------
+
+# X-Men '97's Future Confirmed as Marvel Producer Reveals Number of Seasons
+
+TV, Marvel, Marvel Comics, MCU, X-Men, X-Men '97
+
+Thu, 16 Jul 2026 16:47:20 GMT
+
+https://www.cbr.com/x-men-97-future-confirmed-marvel-reveals-number-of-seasons/
+
+Marvel just sealed the fate of X-Men '97 with a single sentence.
+---------
+
+# Christopher Nolan Gets New Rival As the Odyssey TV Series From Stranger Things EP Is Announced
+
+Movies, The Odyssey, Christopher Nolan
+
+Thu, 16 Jul 2026 16:19:40 GMT
+
+https://www.cbr.com/christopher-nolan-rival-odyssey-tv-series-announced-stranger-things-influence/
+
+The Odyssey won't end with Christopher Nolan's epic, and Stranger Things might influence what's next.
+---------
+
+# 5 Greatest Banned Anime Of All Time
+
+Anime, Death Note, Elfen Lied
+
+Thu, 16 Jul 2026 16:15:15 GMT
+
+https://www.cbr.com/greatest-banned-anime-of-all-time/
+
+Some of the most acclaimed series in anime have been banned due to disturbing imagery and mature themes, but that doesn't detract from their quality!
+---------
+
+# Anya Taylor-Joy’s 10/10 Sci-Fi Thriller Is Officially One of Apple TV’s Biggest Hits
+
+Movie News, The Gorge, Anya Taylor-Joy, Apple TV, Lucky
+
+Thu, 16 Jul 2026 17:30:16 GMT
+
+https://collider.com/anya-taylor-joy-sci-fi-blockbuster-the-gorge-streaming-success-apple-tv-july-2026/
+
+The Gorge, Anya Taylor-Joy's epic sci-fi blockbuster co-starring Miles Teller, is one of Apple TV's biggest streaming hits of 2026.
+---------
+
+# The Next ‘John Wick’ Movie Officially Sets the Stage for 2027 Release
+
+Movie News, Caine John Wick Spinoff, Donnie Yen, John Wick, Keanu Reeves
+
+Thu, 16 Jul 2026 17:27:45 GMT
+
+https://collider.com/new-john-wick-movie-spin-off-caine-filming-wrapped-donnie-yen/
+
+The next John Wick spin-off movie, Caine, starring Donnie Yen, is set for a 2027 release following its latest production update.
+---------
+
+# 90 Years Later, It's the End of an Era for Marvel Comics
+
+Books and Comics News, Marvel Comics, Marvel, Marvel Studios, MCU
+
+Thu, 16 Jul 2026 17:22:47 GMT
+
+https://collider.com/marvel-comics-new-editor-in-chief-moving-new-york-los-angeles/
+
+Marvel Comics is moving from New York to Los Angeles after nearly 90 years, as a new Editor-in-Chief replaces C.B. Cebulski.
+---------
+
+# Matt Reeves’ ‘The Batman’ Sequel Is Making a Major Change to Robert Pattinson’s Dark Knight
+
+Movie News, The Batman Part II, Matt Reeves, Robert Pattinson, The Batman
+
+Thu, 16 Jul 2026 17:19:41 GMT
+
+https://collider.com/the-batman-2-sequel-robert-pattinson-batsuit-changes-confirmed-matt-reeves/
+
+Director Matt Reeves confirmed a change to Robert Pattinson's Batsuit while showing the first footage from The Batman: Part 2.
+---------
+
+# 10 Action Thriller Series That Blow Any Movie Out of the Water
+
+TV, Andor, 24, Alias, Action
+
+Thu, 16 Jul 2026 17:18:16 GMT
+
+https://collider.com/action-thriller-series-better-than-movies/
+
+Alias, The Night Agent, Andor, Reacher, 24, and more make up our list of action thriller series that are better than any movie.
+---------
+
+# Netflix's New Western Dethrones Harlan Coben's Smash Hit Thriller
+
+TV News, Little House on the Prairie, I Will Find You, Netflix, Western
+
+Thu, 16 Jul 2026 17:07:03 GMT
+
+https://collider.com/netflix-little-house-on-the-praire-overtakes-harlan-coben-i-will-find-you-streaming-success-july-2026/
+
+After reigning supreme on Netflix for weeks, Harlan Coben's I Will Find You has been officially dethroned by a new Western. Get all the details here.
+---------
+
+# Colin Farrell’s Sci-Fi Detective Mystery Officially Returns With a Twist [Exclusive]
+
+TV News, Sugar, Colin Farrell, Laura Donnelly, Apple TV
+
+Thu, 16 Jul 2026 17:01:15 GMT
+
+https://collider.com/sugar-season-2-unknowns-sneak-peek-colin-farrell/
+
+Watch Colin Farrell turn on the charm in an exclusive clip from Sugar Season 2, Episode 5, premiering July 17 on Apple TV.
+---------
+
+# 'The Acolyte's Star Returns to Fantasy in an Epic New Adventure
+
+Movie News, Children of Blood and Bone, Damson Idris, Amandla Stenberg, Cynthia Erivo
+
+Thu, 16 Jul 2026 16:40:19 GMT
+
+https://collider.com/paramount-fantasy-adaptation-children-of-blood-and-bone-first-images/
+
+Paramount has unveiled the first official images of Children of Blood & Bone shortly after the original book's author publicly disowned the project.
+---------
+
+# Prime Video’s Forgotten Jean-Claude Van Damme Series From Ridley Scott Deserves Another Chance
+
+TV Features, Jean Claude Van Damme, Prime Video, Ridley Scott, Action
+
+Thu, 16 Jul 2026 16:28:15 GMT
+
+https://collider.com/jean-claude-van-johnson-prime-video-deserves-second-chance/
+
+Jean-Claude Van Damme’s cancelled Prime Video series Jean-Claude Van Johnson, produced by Ridley Scott, deserves a second chance.
+---------
+
+# 3 Fantasy Movies That Are Unironically Better Than The Lord of the Rings
+
+Movie, Fantasy, The Lord of the Rings, Spirited Away, The Wizard of Oz
+
+Thu, 16 Jul 2026 16:21:16 GMT
+
+https://collider.com/fantasy-movies-better-than-the-lord-of-the-rings-unironically/
+
+Think nothing can top The Lord of the Rings? Fantasy movies like Spirited Away and Pan's Labyrinth make a strong case for the fantasy crown.
+---------
+
+# Dave Bautista Leads Star-Studded First Look at New Alien Invasion Sci-Fi Film
+
+Movie News, Dave Bautista
+
+Thu, 16 Jul 2026 17:27:13 GMT
+
+https://movieweb.com/dave-bautista-alpha-gang-sci-fi-first-look/
+
+The offbeat sci-fi comedy from the Zellner brothers is set to premiere in TIFF's Special Presentations lineup.
+---------
+
+# Will Ferrell's New Netflix Series Offers Lowbrow Laughs With Heart | Review
+
+TV Reviews, The Hawk, Will Ferrell, Molly Shannon, Luke Wilson
+
+Thu, 16 Jul 2026 17:06:30 GMT
+
+https://movieweb.com/the-hawk-review/
+
+Will Ferrell hasn't given up his passion for highlighting the goofiness in our world.
+---------
+
+# When Will 'The Odyssey' Release on Streaming?
+
+Features, The Odyssey
+
+Thu, 16 Jul 2026 17:00:13 GMT
+
+https://movieweb.com/when-the-odyssey-release-on-streaming/
+
+With Christopher Nolan's 'The Odyssey' set to rule the box office this summer, find out when the epic will be available to stream at home
+---------
+
+# 15 Iconic ‘80s Dance Movies
+
+Movie Lists, 1980s
+
+Thu, 16 Jul 2026 17:00:13 GMT
+
+https://movieweb.com/iconic-80s-dance-movies/
+
+The 80s remain one of the best decades for music and dance; these 15 movies prove just that.
+---------
+
+# 'Watchmen' Favorite & More Are Cursed as They Join Long-Awaited Supernatural Thriller Sequel
+
+Movie News, They Follow, It Follows
+
+Thu, 16 Jul 2026 16:44:48 GMT
+
+https://movieweb.com/it-follows-sequel-they-follow-jackie-earle-haley-cast/
+
+The sequel to 2015's supernatural hit will soon have you looking over your shoulder.
+---------
+
+# 2026's Near-Perfect Sci-Fi Masterpiece Officially Becomes the Biggest Movie on Streaming
+
+Movie News, Project Hail Mary, Prime Video, Sci-Fi, Ryan Gosling
+
+Thu, 16 Jul 2026 16:30:13 GMT
+
+https://movieweb.com/project-hail-mary-biggest-movie-streaming-prime-video-july-2026/
+
+Starring Ryan Gosling, the science fiction epic is now a major Oscar contender and box office success.
+---------
+
+# Henry Cavill and Kevin Hart's New Netflix Spy Movie Gets Major Update
+
+Movie News, Henry Cavill, Kevin Hart, Netflix
+
+Thu, 16 Jul 2026 16:17:39 GMT
+
+https://movieweb.com/henry-cavill-netflix-spy-duo-kevin-hart/
+
+Henry Cavill and Kevin Hart will team up for a new action-comedy.
+---------
+
 # Power Rangers Will Say Goodbye To Megazords As A New Era Begins
 
 Streaming TV, Power Rangers
