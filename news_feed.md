@@ -1,3 +1,47 @@
+# 10 Pokémon Winds & Waves Regional Variants That Are Perfect 10/10s
+
+Gaming, Pokemon Winds and Waves, Pokemon
+
+Thu, 16 Jul 2026 07:35:34 GMT
+
+https://screenrant.com/pokemon-winds-waves-regional-variants-gen-10/
+
+Pokémon Winds and Waves will likely be getting regional variants when the Gen 10 games release, and these Pokémon would be perfect fits.
+---------
+
+# Avatar: Frontiers of Pandora Free For Millions On July 21
+
+Gaming, Avatar: Frontiers Of Pandora, Triple-A Games, PlayStation Plus
+
+Thu, 16 Jul 2026 07:00:11 GMT
+
+https://screenrant.com/avatar-frontiers-pandora-ps-plus-july-21/
+
+Avatar: Frontiers of Pandora is receiving its best free update yet next week, but it won't be available for all gamers when it releases.
+---------
+
+# The Hawk Review: Happy Gilmore Meets Will Ferrell in a Middling Netflix Comedy
+
+TV, The Hawk
+
+Thu, 16 Jul 2026 07:01:15 GMT
+
+https://www.cbr.com/the-hawk-netflix-review/
+
+Will Ferrell stars in Netflix's new golf comedy with Luke Wilson and Molly Shannon, but predictable storytelling holds it back.
+---------
+
+# Will Ferrell Isn't the Only Reason To Watch Netflix's 'Ted Lasso' Rival 'The Hawk' | Review
+
+TV Reviews, The Hawk, Will Ferrell, Molly Shannon, Netflix
+
+Thu, 16 Jul 2026 07:01:15 GMT
+
+https://collider.com/the-hawk-review-netflix-will-ferrell/
+
+Netflix's new sports comedy The Hawk is proof that Will Ferrell's wildest swings still work, but he's definitely not the only reason to watch.
+---------
+
 # Star Trek: Second Contact Officially Releases 2026
 
 Gaming, Star Trek, Triple-A Games
