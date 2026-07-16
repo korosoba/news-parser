@@ -1,3 +1,289 @@
+# Buffy The Vampire Slayer's 2026 Return Comes With A Big Catch
+
+TV, Buffy The Vampire Slayer
+
+Thu, 16 Jul 2026 20:00:11 GMT
+
+https://screenrant.com/buffy-the-vampire-slayer-comic-return-hulu-canceled-revival/
+
+Buffy the Vampire Slayer will return with a new series full of everyone's fan-favorites, but this comeback might not be what viewers hoped for.
+---------
+
+# Marvel Just Dropped Its Biggest Retcon In 65 Years
+
+Marvel Comics, Marvel
+
+Thu, 16 Jul 2026 20:00:11 GMT
+
+https://screenrant.com/marvel-fantastic-four-major-retcon/
+
+Marvel quietly reveals one of the most dramatic retcons in its main universe's history, rewriting every single human character on Earth-616.
+---------
+
+# It's Officially The End Of An Era For The Lincoln Lawyer & Netflix
+
+TV, The Lincoln Lawyer, Manuel Garcia-Rulfo
+
+Thu, 16 Jul 2026 19:52:08 GMT
+
+https://screenrant.com/netflix-the-lincoln-lawyer-season-5-filming-wrap-manuel-garcia-rulfo/
+
+At the start of the year, The Lincoln Lawyer was renewed for one final season, and the star of the legal drama has revealed a major new update.
+---------
+
+# 23 Years Ago, Christopher Nolan Almost Directed The Odyssey’s Prequel
+
+Movies, Masked Recs
+
+Thu, 16 Jul 2026 19:30:11 GMT
+
+https://screenrant.com/christopher-nolan-troy-director-before-the-odyssey/
+
+Christopher Nolan's new Ancient Greek epic is shaping up to be the biggest blockbuster of 2026, and way back in 2003 he almost directed its prequel.
+---------
+
+# X-Men ’97 Season 5’s Fate Addressed By Director
+
+TV, X-Men '97, X-Men
+
+Thu, 16 Jul 2026 19:29:52 GMT
+
+https://screenrant.com/xmen-97-season-5-future-addressed-larry-houston/
+
+X-Men '97 director Larry Houston addresses the fate of a possible season 5 to the animated revival, unpacking how long the show could run for.
+---------
+
+# The Naruto Movie's Massive Casting News Just Doomed The Film
+
+Anime, Naruto
+
+Thu, 16 Jul 2026 19:01:15 GMT
+
+https://screenrant.com/naruto-movie-casting-age-up-doom/
+
+The Naruto movie is dead on arrival.
+---------
+
+# Why HBO Max's $1 Billion Dinosaur Movie With Near-Perfect RT Score Has Become A Global Streaming Hit
+
+Movies, Masked Recs
+
+Thu, 16 Jul 2026 19:00:44 GMT
+
+https://screenrant.com/hbo-max-jurassic-park-streaming-charts-rise/
+
+HBO Max's $1 billion dinosaur movie is now one of the most popular streaming releases worldwide, and there is a special explanation for its success.
+---------
+
+# Tom Cruise's Digger Trailer Is Hiding the Real Disaster
+
+Movies, Digger
+
+Thu, 16 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/video/tom-cruise-s-digger-trailer-is-hiding-the-real-disaster/
+
+Tom Cruise's latest movie looks like a globe-spanning disaster epic, but its first trailer is hiding far more than explosive set pieces. Beneath the environmental catastrophe, giant iceberg, and political chaos is a mystery about who really caused the apocalypse—and who will actually save the day.
+---------
+
+# Yoda's Single Greatest Star Wars Quote Hits Harder 46 Years Later
+
+Movies, Star Wars, Star Wars: Episode V - The Empire Strikes Back
+
+Thu, 16 Jul 2026 20:00:15 GMT
+
+https://www.cbr.com/star-wars-empire-strikes-back-yoda-greatest-quote/
+
+Yoda has had plenty of great lines, but his best quote in Star Wars has only become more important over the years.
+---------
+
+# Los Angeles Dodgers Legend Shohei Ohtani Joins Absolute Batman Craze For 'Gritty' New Trading Card
+
+Comics, Absolute Batman, Batman
+
+Thu, 16 Jul 2026 20:00:15 GMT
+
+https://www.cbr.com/absolute-batman-la-dodgers-shohei-ohtani-trading-card/
+
+Absolute Ohtani!
+---------
+
+# Netflix's Happy Gilmore Replacement Series Debuts With Brutal Rotten Tomatoes Score
+
+TV, The Hawk
+
+Thu, 16 Jul 2026 19:59:45 GMT
+
+https://www.cbr.com/the-hawk-rotten-tomatoes-score/
+
+Netflix wasn't quite able to just tap, tap, tap it in with the release of the golf comedy series.
+---------
+
+# John Wick Officially Enters New Era as Next Movie Wraps Filming
+
+Movies, Caine John Wick Spinoff, John Wick, Action
+
+Thu, 16 Jul 2026 19:38:09 GMT
+
+https://www.cbr.com/john-wick-caine-spinoff-wraps-filming/
+
+Prepare to return to the world of John Wick.
+---------
+
+# The Rookie Officially Returns With Special Episode on Hulu Ahead of Season 9
+
+TV, The Rookie, Hulu
+
+Thu, 16 Jul 2026 19:00:37 GMT
+
+https://www.cbr.com/the-rookie-special-extended-episode-hulu/
+
+The Rookie fans get a special release ahead of Season 9's premiere on ABC next year.
+---------
+
+# 5 Strongest Weapons in Fantasy Book History, Ranked
+
+Movies, Fantasy, His Dark Materials, The Wheel of Time
+
+Thu, 16 Jul 2026 19:00:16 GMT
+
+https://www.cbr.com/strongest-fantasy-book-weapons-ranked-list/
+
+Fantasy is a book genre that doesn't lack for choice in terms of powerful tools, but these five weapons are unparalleled in strength.
+---------
+
+# 8 Greatest Netflix Series With 4 Episodes or Less
+
+TV, Netflix, TV Miniseries, Adolescence, Lord of the Flies
+
+Thu, 16 Jul 2026 19:52:15 GMT
+
+https://collider.com/best-netflix-series-4-episodes-or-less/
+
+Death by Lightning, Adolescence, When They See Us, Lord of the Flies, and more make our list of the best Netflix series with four episodes or less.
+---------
+
+# 10 Iconic Suits We Need in the Next Spider-Man Video Game
+
+Gaming, Spider-Man, Video Game, Superhero, Marvel Comics
+
+Thu, 16 Jul 2026 19:33:15 GMT
+
+https://collider.com/spider-man-video-games-suits-we-need/
+
+The Spider-Man games allow you to play in the hero's most iconic costumes, but some, like the Prowler Suit and the Vibranium Suit, are still missing.
+---------
+
+# ‘Fallout: New Vegas’ Writer Has a Brutal Criticism of Prime Video’s Adaptation
+
+TV News, Fallout, Prime Video, Gaming, Bethesda
+
+Thu, 16 Jul 2026 19:20:22 GMT
+
+https://collider.com/fallout-new-vegas-writer-prime-video-dialogue-criticism/
+
+Fallout: New Vegas writer Chris Avellone has given a brutally honest review of Prime Video's hit sci-fi adaptation of the popular game series.
+---------
+
+# Matt Damon Is Officially Joining ‘Fortnite’ Thanks to Christopher Nolan’s ‘The Odyssey’
+
+Gaming News, The Odyssey, Fortnite, Christopher Nolan, Gaming
+
+Thu, 16 Jul 2026 19:13:37 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-fortnite-crossover/
+
+As Christopher Nolan's The Odyssey aims to shatter box office records, the Greek epic is officially coming to Fortnite.
+---------
+
+# The Decade’s Most Divisive Horror Fantasy Novel Is Officially Getting a Movie
+
+Movie News, Books, Streaming, Thriller, Romance
+
+Thu, 16 Jul 2026 19:09:19 GMT
+
+https://collider.com/hunting-adeline-movie-adaptation-confirmed-hd-carlton/
+
+H.D. Carlton has confirmed a Haunting Adeline movie adaptation, potentially bringing the complete Cat and Mouse Duet to the screen.
+---------
+
+# Christopher Nolan's 'The Odyssey' Gets a Rare Review From Tom Cruise
+
+Movie News, Christopher Nolan, Tom Cruise, The Odyssey, IMAX
+
+Thu, 16 Jul 2026 19:01:37 GMT
+
+https://collider.com/tom-cruise-christopher-nolan-the-odyssey-review/
+
+Tom Cruise has seen Christopher Nolan's The Odyssey in IMAX 70mm and has given a rare and surprising review of the new blockbuster.
+---------
+
+# Netflix’s Beloved 3-Season Romance Officially Returns for One Final Chapter
+
+TV News, Netflix, Heartstopper, Heartstopper Forever, Romance
+
+Thu, 16 Jul 2026 19:00:16 GMT
+
+https://collider.com/heartstopper-forever-streaming-netflix-july-2026/
+
+Heartstopper's emotional finale, Heartstopper Forever, premieres on Netflix this week, featuring Kit Connor, Joe Locke, and the beloved cast.
+---------
+
+# Quentin Tarantino's Western Masterpiece Loses Box Office Battle to 2026's Breakout Thriller Hit
+
+Movie News, Obsession, Django Unchained
+
+Thu, 16 Jul 2026 20:00:12 GMT
+
+https://movieweb.com/obsession-beats-quentin-tarantino-django-unchained-global-gross/
+
+One of this summer's biggest box office hits just outperformed Quentin Tarantino's Western masterpiece.
+---------
+
+# New 'John Wick' Movie Officially Crosses Major Milestone Ahead of Release
+
+Movie News, Caine John Wick Spinoff, John Wick
+
+Thu, 16 Jul 2026 19:55:49 GMT
+
+https://movieweb.com/donnie-yen-john-wick-caine-finished-filming/
+
+The upcoming 'John Wick' spin-off proves the franchise hasn't lost steam.
+---------
+
+# Jenna Ortega Gets 'Nasty' in Tense New Sports Thriller With Shades of 'Whiplash'
+
+Movie News, Jenna Ortega, Rose Byrne
+
+Thu, 16 Jul 2026 19:44:18 GMT
+
+https://movieweb.com/jenna-ortega-sports-thriller-nasty/
+
+Jeanna Ortega and Rose Byrne sign on to the next film from the director of 'If I Had Legs I'd Kick You.'
+---------
+
+# Iconic 'SNL' Member Officially Leaving Series After 7 Seasons
+
+TV News, Saturday Night Live
+
+Thu, 16 Jul 2026 19:10:03 GMT
+
+https://movieweb.com/snl-chloe-fineman-exit/
+
+One of the most notable cast members on 'SNL' has performed their final skit after the end of Season 51.
+---------
+
+# Guy Ritchie's 'Indiana Jones' Rip-Off Crosses Major Streaming Milestone
+
+Movie News, Fountain of Youth, Apple TV, Hot on Streaming, Guy Ritchie
+
+Thu, 16 Jul 2026 19:01:12 GMT
+
+https://movieweb.com/fountain-of-youth-streaming-success-apple-july-2026/
+
+Guy Ritchie's Indiana Jones rip-off action adventure movie, 'Fountain of Youth,' is one of the biggest movies streaming on Apple TV.
+---------
+
 # 7-Season SNL Star Officially Leaving For Netflix’s New Harlan Coben Franchise
 
 TV, Saturday Night Live, Untitled Myron Bolitar Series
