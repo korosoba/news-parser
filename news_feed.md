@@ -1,3 +1,223 @@
+# 8 Sci-Fi TV Shows That Earned Perfect 100% Rotten Tomatoes Ratings
+
+Classic TV
+
+Fri, 17 Jul 2026 20:00:11 GMT
+
+https://screenrant.com/sci-fi-tv-shows-perfect-100-rotten-tomatoes-score/
+
+Science fiction TV shows are not always easy to get right, which makes it even more gratifying when one earns the highly sought-after 100% RT score.
+---------
+
+# Christopher Nolan's The Odyssey Rotten Tomatoes Score Gets Official Audience Verdict
+
+Movies, The Odyssey, Christopher Nolan
+
+Fri, 17 Jul 2026 19:49:49 GMT
+
+https://screenrant.com/christopher-nolan-the-odyssey-rotten-tomatoes-audience-score-record/
+
+Christopher Nolan's The Odyssey is now in theaters, and the Rotten Tomatoes audience score is officially revealed amid multiple controversies.
+---------
+
+# Netflix’s Man On Fire Season 2 Gets First Status Update After Successful Top 10 Run
+
+TV, Man on Fire, Man on Fire - Season 1
+
+Fri, 17 Jul 2026 19:44:08 GMT
+
+https://screenrant.com/man-on-fire-netflix-season-2-status-update-limbo-report/
+
+Netflix’s remake of Denzel Washington’s Man on Fire has yet to be renewed, but there’s a brand-new update about the decision-making process.
+---------
+
+# Psych: Every Nickname Shawn Has For Gus
+
+Classic TV, Psych
+
+Fri, 17 Jul 2026 19:30:12 GMT
+
+https://screenrant.com/psych-shawn-gus-nicknames-list/
+
+Through eight seasons of Psych and three movies, Shawn has introduced Gus with fake nicknames. Here's every made-up nickname Shawn has given Gus.
+---------
+
+# Dune Meets The Lord Of The Rings In HBO Max's 2-Part Sci-Fi Series
+
+Classic TV, Masked Recs
+
+Fri, 17 Jul 2026 19:30:11 GMT
+
+https://screenrant.com/raised-by-wolves-dune-meets-lord-of-the-rings/
+
+Ridley Scott's two-season science fiction series that debuted on HBO is part Lord of the Rings, part Dune, and surprisingly difficult to find.
+---------
+
+# Fallout 3 Prequel Officially Confirmed By Bethesda
+
+Gaming, Fallout
+
+Fri, 17 Jul 2026 19:30:11 GMT
+
+https://screenrant.com/fallout-3-prequel-bethesda-confirmed/
+
+Fallout 3 is officially getting a prequel story, more than a decade and a half since the release of the original game.
+---------
+
+# Stephen King's Single Location Horror Movie Haunts Global Streaming Charts 19 Years Later
+
+Movies, Masked Recs, Stephen King
+
+Fri, 17 Jul 2026 19:02:54 GMT
+
+https://screenrant.com/stephen-king-1408-lionsgate-plus-streaming-success-july-2026/
+
+Stephen King’s books and stories have been adapted numerous times over the years, and one of them is seeing renewed success on the streaming charts.
+---------
+
+# My Hero Academia: United Survival Is A Brand-New Chapter For The Series
+
+Gaming, My Hero Academia, Live Service Games, PC
+
+Fri, 17 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/my-hero-academia-united-survival-new-story-content/
+
+Months after wrapping things up in a final epilogue special, My Hero Academia is set to deliver new story material in the upcoming United Survival.
+---------
+
+# Yellowstone’s 2 Hit Spinoffs Are Missing Taylor Sheridan’s Secret Weapon
+
+TV, Yellowstone, Dutton Ranch, Marshals
+
+Fri, 17 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/dutton-ranch-marshals-montana-missing-character/
+
+Marshals and Dutton Ranch breathed new life into Yellowstone, but neither spinoff takes advantage of a crucial element of Taylor Sheridan's flagship.
+---------
+
+# In Less Than 2 Weeks, Harlan Coben's New 8-Part Crime Drama Is Officially 1 of Netflix's Biggest Shows of the Year
+
+TV, I Will Find You, Netflix, Run Away
+
+Fri, 17 Jul 2026 20:00:15 GMT
+
+https://www.cbr.com/harlan-coben-i-will-find-you-thriller-netflix-viewership-report-july-2026/
+
+In less than two weeks, Harlan Coben's I Will Find You became Netflix's No. 3 most watched show of 2026
+---------
+
+# DC Just Revealed a Major Clayface Mystery Ahead of His DCU Movie
+
+Comics, clayface, Clayface
+
+Fri, 17 Jul 2026 20:00:15 GMT
+
+https://www.cbr.com/clayface-celebrity-dirt/
+
+One of Batman's most iconic enemies is officially at the center of DC Comics' latest shocking mystery, and it could change everything.
+---------
+
+# The Surprise $429M Horror Hit of 2026 With 94% RT Is Officially Streaming on Peacock
+
+Movies, Obsession
+
+Fri, 17 Jul 2026 19:57:28 GMT
+
+https://www.cbr.com/obsession-starts-streaming-peacock-july-2026/
+
+Catch the acclaimed horror flick at home after its record-shattering theatrical run.
+---------
+
+# Yakuza Voice Director Confirms What Makes The Game A Success
+
+CBR Exclusives, Yakuza
+
+Fri, 17 Jul 2026 19:10:37 GMT
+
+https://www.cbr.com/yakuza-voice-director-marc-hawes-success-comments/
+
+Voice director Marc Hawes reveals the secret behind Yakuza's universal appeal.
+---------
+
+# Ocarina of Time Switch 2 Remake Gameplay Trailer Has a Release Date
+
+Games, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Fri, 17 Jul 2026 19:04:15 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-remake-gameplay-trailer-leak-analysis/
+
+Ignore the "August 4" rumors, Zelda fans can actually expect to see more from the long-awaited Ocarina of Time Switch 2 remake around September 9.
+---------
+
+# 10 Time Travel Books Every Back to the Future Fan Should Read
+
+Movies, Back to the Future, Science Fiction, books
+
+Fri, 17 Jul 2026 19:00:15 GMT
+
+https://www.cbr.com/time-travel-books-for-back-to-the-future-fans-list/
+
+Full of paradoxes, humor, and heart, these sci-fi books are perfect for anyone missing the time travel antics of the Back to the Future films.
+---------
+
+# 10 Fantasy Movies That Are Better the Second Time Around
+
+Movie, Fantasy, Where the Wild Things Are, Shrek 2, Babe: Pig in the City
+
+Fri, 17 Jul 2026 19:30:15 GMT
+
+https://collider.com/best-fantasy-movies-better-second-time/
+
+From Hook to Shrek 2, these incredible fantasy movies are somehow even better on a second watch, allowing audiences to fully appreciate every detail.
+---------
+
+# 8 Great Sci-Fi Shows Overshadowed by 'Lost'
+
+TV, Sci-Fi, Lost, Fringe, Jericho
+
+Fri, 17 Jul 2026 19:08:14 GMT
+
+https://collider.com/sci-fi-shows-overshadowed-by-lost/
+
+Dive into incredible sci-fi shows that share similarities with the groundbreaking Lost, but were overshadowed by its popularity and cultural impact.
+---------
+
+# 'The Raid' Icon Leads New 'John Wick' Meets 'MobLand' Action Crime Thriller Series
+
+TV News
+
+Fri, 17 Jul 2026 19:04:05 GMT
+
+https://movieweb.com/the-raid-iko-uwais-crime-thriller-series-jakarta/
+
+Star Iko Uwais is joining forces with the creators of the 'John Wick' spin-off 'The Continental' for a new TV show.
+---------
+
+# Amazon's 122-Minute Smash Is Now One of the Biggest Action Movies on Streaming
+
+Movie News, The Wrecking Crew, Hot on Streaming, Action, Prime Video
+
+Fri, 17 Jul 2026 19:00:12 GMT
+
+https://movieweb.com/the-wrecking-crew-prime-video-action-streaming-july-2026/
+
+Prime Video's smash hit features the first on-screen pairing of two of the biggest action stars on the planet, Dave Bautista and Jason Momoa.
+---------
+
+# 'The Odyssey' Ending & What Happens to Odysseus & Penelope, Explained
+
+Features, The Odyssey
+
+Fri, 17 Jul 2026 18:59:25 GMT
+
+https://movieweb.com/the-odyssey-ending-explained/
+
+'The Odyssey' has never been easy to understand, and Nolan's version has likely left audiences with questions.
+---------
+
 # Will Ferrell’s New Netflix Series Debuts To Solid Rotten Tomatoes Audience Score
 
 TV, Masked Recs, Will Ferrell, Netflix
@@ -5276,224 +5496,4 @@ Thu, 16 Jul 2026 12:00:11 GMT
 https://screenrant.com/star-trek-strange-new-worlds-season-4-10-things-excited/
 
 Star Trek: Strange New Worlds season 4 is highly anticipated, and there are many things known about the next 10 episodes that we're very excited for.
----------
-
-# Adventure Time Is Officially Returning With Brand-New RPG
-
-Gaming, Adventure Time, Adventure Time: Distant Lands, Adventure Time: Side Quests, PC
-
-Thu, 16 Jul 2026 11:36:02 GMT
-
-https://screenrant.com/adventure-time-rpg-2026-release-date/
-
-Adventure Time is making an epic return with a brand-new role-playing game that longtime fans will not want to miss out on.
----------
-
-# Pacific Rim: Breachfall Is The Sequel We've Waited 13 Years For
-
-Gaming, Pacific Rim
-
-Thu, 16 Jul 2026 11:35:24 GMT
-
-https://screenrant.com/pacific-rim-breachfall-board-game-sequel/
-
-The Pacific Rim movies have been one of the more successful new franchises of recent years, and this latest release is testament to that.
----------
-
-# Zelda Fans Can Download An Ocarina Of Time Remake Demo Now
-
-Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
-
-Thu, 16 Jul 2026 11:15:44 GMT
-
-https://screenrant.com/zelda-ocarina-of-time-remake-demo-cryzenx/
-
-There might be an official Ocarina of Time remake on the way soon, but there are fan developers who continue to put out great work regardless.
----------
-
-# Halo: Campaign Evolved Will Officially Be Unplayable For Millions
-
-Gaming, Halo: Campaign Evolved, Halo: Combat Evolved, Halo, PC
-
-Thu, 16 Jul 2026 11:06:06 GMT
-
-https://screenrant.com/halo-campaign-evolved-internet-connection-required/
-
-Halo: Campaign Evolved is set to launch on July 28, but millions of gamers will officially not be able to play the game at all.
----------
-
-# Mario Kart Is Coming To PC August 2026
-
-Gaming, Nintendo, Mario Kart, Wii, PC, Mario
-
-Thu, 16 Jul 2026 10:56:41 GMT
-
-https://screenrant.com/mario-kart-wii-august-2026-pc-port/
-
-Get ready for retro racing action as Mario Kart Wii, the classic Nintendo title, is being rebuilt and released for PC. Experience over 200 tracks soon
----------
-
-# Pokémon Officially Unveils New Eeveelution Release For Series’ 30th Anniversary
-
-Gaming, Pokemon
-
-Thu, 16 Jul 2026 10:50:23 GMT
-
-https://screenrant.com/pokemon-new-eeveelution-30th-anniversary-set/
-
-The Pokémon Company knows that the Eeeveelutions are a huge draw for fans, as this release evidences.
----------
-
-# DC Corrects the Supergirl's Biggest Movie Mistake
-
-Comics, Marvel Comics, Supergirl
-
-Thu, 16 Jul 2026 12:00:15 GMT
-
-https://www.cbr.com/supergirl-15-better-than-supergirl-movie/
-
-Supergirl may not have delivered at the box office, but her future still looks pretty bright.
----------
-
-# The Walking Dead's New Westworld Connection Makes Dead City Season 3 Mandatory Viewing
-
-TV, The Walking Dead: Dead City, The Walking Dead, Horror
-
-Thu, 16 Jul 2026 11:30:15 GMT
-
-https://www.cbr.com/the-walking-dead-dead-city-season-3-jimmi-simpson-dillard/
-
-The Walking Dead: Dead City Season 3 has confirmed several new main or recurring cast members, and one in particular has fans excited.
----------
-
-# Liam Neeson Officially Returns to Action in Trailer for New Thriller 3 Months Ahead of Release
-
-Movies, liam neeson, The Mongoose
-
-Thu, 16 Jul 2026 11:01:15 GMT
-
-https://www.cbr.com/liam-neeson-thriller-the-mongoose-official-trailer/
-
-Neeson plays a war hero on a high speed car chase in the newly released trailer for his upcoming action thriller.
----------
-
-# Marvel Changed The One Thing That Made the X-Men Great
-
-Comics, X-Men, comics, chris claremont
-
-Thu, 16 Jul 2026 11:01:15 GMT
-
-https://www.cbr.com/marvel-broke-the-one-thing-that-made-the-x-men-great/
-
-The X-Men remain one of Marvel's most popular franchises; the secret to their success has resonated with readers for generations. So why change it?
----------
-
-# 7 Most Perfect K-Dramas of the Last 15 Years
-
-TV, South Korea, When Life Gives You Tangerines, Crash Landing On You, Alchemy of Souls
-
-Thu, 16 Jul 2026 12:09:14 GMT
-
-https://collider.com/most-perfect-k-dramas-last-15-years-ranked/
-
-Reply 1988, Crash Landing on You, Healer, and Alchemy of Souls are among the best K-dramas of the last 15 years, but which series is the greatest?
----------
-
-# The Lord of the Rings Officially Returns This August With New Crossover
-
-Gaming News, Magic: The Gathering, The Lord of the Rings, The Hobbit: An Unexpected Journey, Fantasy
-
-Thu, 16 Jul 2026 12:01:14 GMT
-
-https://collider.com/lord-of-the-rings-the-hobbit-magic-the-gathering-expansion/
-
-After a hugely successful Lord of the Rings crossover, Magic: The Gathering is now crossing over with the Tolkien franchise's prequel story.
----------
-
-# Oliver Stone’s Divisive 130-Minute Mind-Bending Crime Thriller Is the Perfect One-Night Binge
-
-Movie Features, Netflix, Savages, Oliver Stone, Aaron Taylor-Johnson
-
-Thu, 16 Jul 2026 11:57:15 GMT
-
-https://collider.com/oliver-stones-crime-thriller-savages-one-night-binge/
-
-"The kind of story where things just got so out of control"
----------
-
-# ‘Star Trek’s Worst Series Failed at the One Thing ‘The Next Generation’ Perfected
-
-TV Features, Star Trek: The Next Generation, Star Trek, Star Trek: Enterprise, Paramount Plus
-
-Thu, 16 Jul 2026 11:46:16 GMT
-
-https://collider.com/star-trek-enterprise-the-next-generation-storyline-failure-opinion/
-
-Star Trek: Enterprise is often considered the nadir of the franchise, and its approach to storytelling is a large reason why.
----------
-
-# 10 Greatest Amy Adams Movies That Define Her Career
-
-Movie, Amy Adams, Arrival, Nocturnal Animals, Vice
-
-Thu, 16 Jul 2026 11:43:15 GMT
-
-https://collider.com/best-amy-adams-movies/
-
-From American Hustle and Nocturnal Animals to other unforgettable performances, these Amy Adams movies represent her very best work.
----------
-
-# Anya Taylor-Joy’s New Apple TV Crime Thriller Steals Critics’ Hearts in RT Debut
-
-TV News, Anya Taylor-Joy, Apple TV, Crime, Thriller
-
-Thu, 16 Jul 2026 11:30:15 GMT
-
-https://collider.com/anya-taylor-joy-apple-tv-crime-thriller-lucky-rotten-tomatoes-score-is-it-good/
-
-Anya Taylor-Joy’s new Apple TV crime thriller is winning critics over with sharp tension, strong performances, and gripping twists.
----------
-
-# 10 Greatest Crime Caper Movies of All Time
-
-Movie, Crime, Ocean's Eleven, Paper Moon, The Sting
-
-Thu, 16 Jul 2026 11:21:14 GMT
-
-https://collider.com/best-crime-caper-movies-all-time-ranked/
-
-Crime capers have stories that are more delightful and engaging than the average heist drama, as evidenced by movies like Ocean's Eleven and Snatch.
----------
-
-# 10 Most Subversive Comedy Movies of All Time
-
-Movie, Comedy, Dr. Strangelove Or: How I Learned To Stop Worrying And Love The Bomb, The Death of Stalin, Monty Python's The Meaning Of Life
-
-Thu, 16 Jul 2026 11:04:15 GMT
-
-https://collider.com/most-subversive-comedy-movies-ranked/
-
-Blazing Saddles, Four Lions, and Monty Python's The Meaning of Life are all among the most subversive comedy movies in the history of cinema.
----------
-
-# Alan Ritchson's 'Reacher' Season 5 Is Already Taking a Massive Step Forward
-
-TV News, Reacher, Alan Ritchson, Prime Video, Jack Reacher
-
-Thu, 16 Jul 2026 11:01:15 GMT
-
-https://collider.com/reacher-season-5-alan-ritchson-filming-start-july-2026/
-
-Alan Ritchson confirms Reacher Season 5 starts filming this month, with all scripts already completed.
----------
-
-# 10 Horror Books That Should Be Made Into Miniseries
-
-TV, Books, Horror, Clive Barker, Joe Hill
-
-Thu, 16 Jul 2026 10:53:15 GMT
-
-https://collider.com/horror-books-deserve-miniseries-adaptation/
-
-From The Damnation Game to The Fisherman, House of Leaves to King Sorrow, we need to see these horror books on screen.
 ---------
