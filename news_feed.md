@@ -1,3 +1,245 @@
+# Brandon Sanderson's Mistborn AAA RPG Teaser Splits Gamers
+
+Gaming, Mistborn, The Cosmere, The Stormlight Archive, Brandon Sanderson, PC, RPG
+
+Fri, 17 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/brandon-sanderson-mistborn-aaa-rpg-tease-reactions/
+
+Brandon Sanderson's Mistborn series could potentially get a major AAA RPG, but gamers aren't entirely sure it's going to pan out.
+---------
+
+# 10 Great Horror Movies With Alternate Dimensions To Watch If You Love Backrooms
+
+Movies, Backrooms, Vivarium, Event Horizon, Cube, Annihilation, Exit 8, Coherence, Grave Encounters, As Above, So Below, Insidious
+
+Fri, 17 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/horror-movies-alternate-dimensions-like-backrooms/
+
+Backrooms wowed audiences with its unique take on alternative dimensions, but other movies focusing on the subject are worth your time.
+---------
+
+# Ethan Hawke's 3-Part HBO Max Batman Series Returns With New Episodes
+
+TV, Masked Recs
+
+Fri, 17 Jul 2026 22:54:52 GMT
+
+https://screenrant.com/ethan-hawke-batwheels-hbo-max-batman-series-new-episodes/
+
+Ethan Hawke's Batman series has returned with new episodes, and the underrated HBO Max show brings along other DC heroes with the Dark Knight.
+---------
+
+# Winnie-The-Pooh: Blood & Honey 3's Plot Details And Franchise Timeline Setting Revealed
+
+Movies, Winnie The Pooh: Blood and Honey 3, The Twisted Childhood Universe, Horror
+
+Fri, 17 Jul 2026 22:53:03 GMT
+
+https://screenrant.com/winnie-the-pooh-blood-honey-3-plot-details-franchise-timeline-setting/
+
+Exclusive: Director/producer Scott Chambers reveals the first plot details for Winnie-the-Pooh: Blood and Honey 3 and where it sits in the franchise.
+---------
+
+# 6 Masterpiece Novels That Are Perfect Audiobook Listens
+
+Books, Sci-Fi, Fantasy, Stephen King
+
+Fri, 17 Jul 2026 22:35:12 GMT
+
+https://screenrant.com/masterpiece-novels-must-listen-audiobooks/
+
+Literary masterpieces that are must-listens.
+---------
+
+# Breaking Bad's Most Disturbing Line Didn't Even Come From Walter White
+
+Classic TV, Breaking Bad
+
+Fri, 17 Jul 2026 22:30:11 GMT
+
+https://screenrant.com/breaking-bad-most-disturbing-line-not-walter-white/
+
+Breaking Bad is a masterpiece in disturbing character writing, but while Walt gets many of the best lines, the most unsettling is from someone else.
+---------
+
+# After 7 Years, The Mandalorian Is Changing Genres For Next Release
+
+Comics, The Mandalorian, Star Wars
+
+Fri, 17 Jul 2026 22:23:33 GMT
+
+https://screenrant.com/the-mandalorian-genre-change-danger-dark/
+
+The Mandalorian's next release is a small comic that has big implications for the franchise's future.
+---------
+
+# Pokémon Officially Surprises Fans With New Eeveelution Release for 30th Anniversary
+
+Games, Pokemon
+
+Fri, 17 Jul 2026 23:13:15 GMT
+
+https://www.cbr.com/pokemon-new-eeveelution-official-30th-anniversary-release/
+
+Pokémon's new Eeveelution collab is the perfect 30th anniversary celebration for the franchise.
+---------
+
+# First Look at Arrow and Vampire Diaries Stars in '80s Horror Reboot Revealed
+
+Movies, Re-Animator
+
+Fri, 17 Jul 2026 23:08:07 GMT
+
+https://www.cbr.com/herbert-west-reanimator-first-look-joseph-morgan-katie-cassidy/
+
+The iconic 80s horror flick gets rebooted with fan favorites from the Arrowverse and The Vampire Diaries.
+---------
+
+# Studio Ghibli Releases New Stationery Collection With 25 Designs for Howl's Moving Castle, Spirited Away & More
+
+Anime, Studio Ghibli, merchandise
+
+Fri, 17 Jul 2026 23:05:15 GMT
+
+https://www.cbr.com/studio-ghibli-25-movie-new-wooden-clip-collection/
+
+Donguri Sora unveils a dazzling new office clip collection which pays tribute to every major Studio Ghibli production.
+---------
+
+# 5 Christopher Nolan Movies Worth Watching Again and Again
+
+Movies, Christopher Nolan, The Odyssey
+
+Fri, 17 Jul 2026 23:00:15 GMT
+
+https://www.cbr.com/most-rewatchable-christopher-nolan-movies-list/
+
+As The Odyssey sails into theaters, revisit some of Christopher Nolan's greatest films that never get old.
+---------
+
+# CBS Is Giving Justin Hartley's Tracker Formula a Risky Season 4 Replacement
+
+TV, Tracker, CBS, Crime
+
+Fri, 17 Jul 2026 23:00:15 GMT
+
+https://www.cbr.com/cbs-justin-hartley-tracker-new-risky-season-4-mystery/
+
+Three seasons in, Tracker finally solved the big overarching mystery only to replace it with the tease of another one that risks a frustrating repeat.
+---------
+
+# HBO's 7-Season Horror Series Based on Hit Comic Book Is Dominating PVOD 30 Years Later
+
+TV, Tales From the Crypt, HBO Max, Horror
+
+Fri, 17 Jul 2026 22:31:14 GMT
+
+https://www.cbr.com/hbo-tales-from-the-crypt-horror-pvod-success-july-2026/
+
+HBO's Tales From the Crypt, a classic horror anthology, becomes a No. 1 PVOD hit 30 years after its debut
+---------
+
+# After 18 Years, the X-Files’ Never-Before-Seen R-Rated Movie Sets Release Date Ahead of Reboot
+
+Movies, The X Files: I Want to Believe
+
+Fri, 17 Jul 2026 22:27:14 GMT
+
+https://www.cbr.com/the-x-files-i-want-to-believe-r-rated-cut-release-date/
+
+The official title for the unseen X-Files film has also been revealed.
+---------
+
+# Only 5 RPGs Are Better Than Skyrim
+
+Games, The Elder Scrolls V: Skyrim, Role Playing Game, Video Games, The Witcher 3: Wild Hunt, Baldur's Gate 3
+
+Fri, 17 Jul 2026 22:15:15 GMT
+
+https://www.cbr.com/better-rpgs-than-skyrim/
+
+Skyrim may have dominated the RPG-scape for nearly 15 years, but in that time plenty of other RPGs have risen to challenge Bethesda's masterpiece.
+---------
+
+# All 3 Christopher Nolan Adventure Movies, Ranked
+
+Movie, The Odyssey, Christopher Nolan, Inception, Interstellar
+
+Fri, 17 Jul 2026 23:08:15 GMT
+
+https://collider.com/christopher-nolan-adventure-movies-ranked/
+
+Christopher Nolan has directed a handful of full-on adventure movies, including Interstellar and The Odyssey, but which of them is the best overall?
+---------
+
+# Sydney Sweeney’s ‘Rocky’ Replacement Is a Knockout on HBO Max
+
+Movie News, Christy, Sydney Sweeney, The Housemaid, Euphoria
+
+Fri, 17 Jul 2026 23:00:15 GMT
+
+https://collider.com/sydney-sweeney-rocky-replacement-christy-streaming-success-hbo-max-july-2026/
+
+Christy, the box office bomb starring Sydney Sweeney as the famous boxer, has found redemption as one of the most-watched titles on HBO Max.
+---------
+
+# 10 Netflix Shows That Are Way Too Intense for Kids
+
+TV, Netflix, Stranger Things, 13 Reasons Why, The Witcher
+
+Fri, 17 Jul 2026 22:59:15 GMT
+
+https://collider.com/netflix-shows-too-intense-for-kids/
+
+From Stranger Things to Big Mouth, these shows may look kid-friendly, but they're far too intense.
+---------
+
+# The New Evil Dead Films Are Brutal Masterpieces, but Something Vital Is Missing
+
+Horror, Evil Dead Burn, The Evil Dead
+
+Fri, 17 Jul 2026 22:48:15 GMT
+
+https://collider.com/evil-dead-burn-brutal-horror-dark-comedy-missing/
+
+Evil Dead Burn proves the franchise doesn’t need to pull its punches, but it also doesn’t need to stop cracking jokes.
+---------
+
+# The 10 Best HBO Shows of All Time, Ranked
+
+TV, HBO, Game Of Thrones, The Sopranos, Band of Brothers
+
+Fri, 17 Jul 2026 22:44:15 GMT
+
+https://collider.com/best-hbo-shows-all-time-ranked/
+
+Discover the best HBO shows of all time, ranked by their impact and storytelling, including series like The Sopranos, The Wire, and Game of Thrones.
+---------
+
+# Adult Swim Fans Are Officially Losing a Cult-Favorite Series This Summer
+
+TV Features, Adult Swim, HBO Max, Metalocalypse, Superjail!
+
+Fri, 17 Jul 2026 22:34:15 GMT
+
+https://collider.com/adult-swim-metalocalypse-superjail-schedule-switch-meaning/
+
+Adult Swim is about to take Metalocalypse off of its schedule, marking the end of an era for the cult classic.
+---------
+
+# Jeremy Renner's 5 Best Movie Masterpieces, Ranked
+
+Movie, Jeremy Renner, The Hurt Locker, Wake Up Dead Man: A Knives Out Mystery, Wind River
+
+Fri, 17 Jul 2026 22:19:15 GMT
+
+https://collider.com/best-jeremy-renner-movies/
+
+From The Town to Wind River and other career-defining performances, these Jeremy Renner movies stand above the rest.
+---------
+
 # 8 Movie Monsters Stronger Than Godzilla
 
 Movies, Godzilla
@@ -5254,246 +5496,4 @@ Thu, 16 Jul 2026 15:37:13 GMT
 https://screenrant.com/forza-horizon-6-italian-exotics-nangan-region-treasure-hunt-location/
 
 In this guide, we'll tell you where you can round up the Nangan region treasure hunt during the Italian Exotics series.
----------
-
-# It’s Officially The End Of An Era For The Simpsons & Fox
-
-TV, The Simpsons, Animal Control, FOX
-
-Thu, 16 Jul 2026 15:33:27 GMT
-
-https://screenrant.com/the-simpsons-fox-era-ending-sunday-night-schedule/
-
-It's officially the end of an era for The Simpsons and its fellow animated comedies at Fox, as a notable change will soon be coming to the network.
----------
-
-# Evil Dead's Rotating Directors Idea Is What More Horror Franchises Should Try
-
-Movies, Evil Dead, Op-Ed
-
-Thu, 16 Jul 2026 15:30:12 GMT
-
-https://screenrant.com/evil-dead-switching-directors-great-horror-concept/
-
-The Evil Dead franchise has had different directors for each of its last three movies, which is something more horror film series need to adapt.
----------
-
-# Star Trek Will Launch A New Era Soon
-
-Movies, Star Trek, Masked Recs
-
-Thu, 16 Jul 2026 15:30:12 GMT
-
-https://screenrant.com/star-trek-movie-franchise-new-era/
-
-Though Star Trek's current slate of shows will come to an end next year, there's still more to come, as the franchise prepares for a fresh start.
----------
-
-# The Westies Season 1 Interview with JK Simmons & Tom Brittney
-
-TV, The Westies, The Westies - Season 1, J.K. Simmons
-
-Thu, 16 Jul 2026 15:26:35 GMT
-
-https://screenrant.com/video/the-westies-season-1-jk-simmons-tom-brittney-interview/
-
-The Westies stars JK Simmons and Tom Brittney break down how the dynamic between Eamon Sweeney and Jimmy Roarke shifts after episode 1's shocking ending, and how they explored their backstory together before the show started.
----------
-
-# Robert Kirkman Sparks Debate by Calling Batman 'Irrelevant'
-
-Comics, DC Comics, DCU, Batman, The Batman, The Batman – Part II, Invincible, The Walking Dead
-
-Thu, 16 Jul 2026 16:00:16 GMT
-
-https://www.cbr.com/robert-kirkman-sparks-debate-calls-dc-batman-irrelevant/
-
-The Invincible creator really said the unthinkable about Batman.
----------
-
-# Confirmed: Assassin's Creed Is Returning In 2026
-
-Comics, Assassin's Creed
-
-Thu, 16 Jul 2026 16:00:16 GMT
-
-https://www.cbr.com/assassins-creed-dynasty-the-complete-collection-hardcover-release-date-confirmed/
-
-One of the most underrated Assassin's Creed titles of the decade is about to come back with a brand-new, long overdue collected edition.
----------
-
-# Apple TV's 'Unfilmable' Sci-Fi Masterpiece Has the Greatest Time Jumps in TV History
-
-TV, Apple TV, Sci-Fi, Foundation
-
-Thu, 16 Jul 2026 16:00:16 GMT
-
-https://www.cbr.com/apple-tv-foundation-best-time-sci-fi-jumps/
-
-Apple TV has created some incredible sci-fi shows, but one epic series was once considered unfilmable.
----------
-
-# Overhated & Underrated: Clash of the Titans is an Underrated Epic
-
-CBR Exclusives, Overhated & Underrated, Clash of the Titans
-
-Thu, 16 Jul 2026 16:00:16 GMT
-
-https://www.cbr.com/overhated-underrated-clash-of-the-titans/
-
-The Odyssey has finally arrived in theaters but there is one underrated fantasy epic that is worth watching at home first.
----------
-
-# Max Cady Faces More Time Behind Bars in Cape Fear Episode 8 Sneak Peek
-
-TV, Cape Fear
-
-Thu, 16 Jul 2026 16:00:10 GMT
-
-https://www.cbr.com/cape-fear-exclusive-clip-episode-108/
-
-Exclusive: The Bowdens get a win in a sneak peek at Cape Fear episode 8, but Max might still have something up his sleeve.
----------
-
-# In Just 1 Day, Chiwetel Ejiofor's Record-Breaking 101-Minute Horror Masterpiece Is Officially an Instant PVOD Sensation
-
-Movies, Backrooms, The Backrooms
-
-Thu, 16 Jul 2026 15:55:33 GMT
-
-https://www.cbr.com/chiwetel-ejiofor-record-breaking-horror-masterpiece-backrooms-instant-pvod-success/
-
-It took just 24 hours for the instant horror classic Backrooms to dominate streaming like this.
----------
-
-# Prime Video's New 10-Episode Sci-Fi Hit Was Designed to Look Like a Lost '90s Anime
-
-Anime, The Ghost in the Shell, Ghost in the Shell
-
-Thu, 16 Jul 2026 15:43:49 GMT
-
-https://www.cbr.com/ghost-in-the-shell-prime-video-90s-anime-director-interview/
-
-In an interview with CBR, The Ghost in the Shell’s director and character designer explain how they recaptured the classic manga’s unique retro feel.
----------
-
-# Razer Levels Up Gamers With Exclusive New Hello Kitty Keycap Collection
-
-Anime, Hello Kitty, sanrio, Razer, merchandise
-
-Thu, 16 Jul 2026 15:30:15 GMT
-
-https://www.cbr.com/hello-kitty-razer-keycap-collection/
-
-Fans of Hello Kitty, Kuromi, My Melody, Cinnamoroll and Pompompurin will be able to level up their gaming with a must-have new collection from Razer.
----------
-
-# Sean Bean's Gritty Medieval Reboot Casts Once Upon a Time Fan Favorite in Key Role
-
-TV, Robin Hood (2025)
-
-Thu, 16 Jul 2026 15:23:34 GMT
-
-https://www.cbr.com/robin-hood-season-2-cast-colin-odonoghue-prince-richard/
-
-The latest hit streaming adaptation of one of the most iconic stories of all time just picked up a fan-favorite star ahead of Season 2.
----------
-
-# 10 Strongest Pokémon in the Anime, Ranked By Power
-
-Anime, Pokemon
-
-Thu, 16 Jul 2026 15:15:15 GMT
-
-https://www.cbr.com/official-strongest-pokemon-in-the-anime/
-
-The Pokémon anime has been running for decades, and the strongest Pokémon in the series, both normal and Legendary, have been well-established.
----------
-
-# The Director of 'Sharknado' Returns for More Mayhem With 'Water Park Shark' Sneak Peek [Exclusive]
-
-Movie News, Sharknado, Horror, Comedy, Action
-
-Thu, 16 Jul 2026 16:00:15 GMT
-
-https://collider.com/water-park-shark-sneak-peek/
-
-Watch mutant sharks attack a Cape Cod water park in a sneak peek from Water Park Shark, the new movie from Sharknado director Anthony C. Ferrante.
----------
-
-# Javier Bardem’s 10-Episode Psychological Thriller Is Officially Dominating Apple TV
-
-TV Features, Cape Fear, Javier Bardem, Amy Adams, Patrick Wilson
-
-Thu, 16 Jul 2026 15:50:15 GMT
-
-https://collider.com/javier-bardem-cape-fear-apple-tv-streaming/
-
-Apple TV's Cape Fear reboot, starring Javier Bardem and Amy Adams, expands the classic tale into a 10-episode psychological thriller.
----------
-
-# 8 Great Shows Perfect for Fans of 'Obsession'
-
-TV, Obsession, Supernatural, Superman & Lois, Tell Me Lies
-
-Thu, 16 Jul 2026 15:36:15 GMT
-
-https://collider.com/shows-like-obsession-movie/
-
-Fans of 2026's smash horror hit Obsession will also enjoy series like The CW's Supernatural, Hulu's Tell Me Lies, and Netflix's Baby Reindeer.
----------
-
-# Masterpiece's 100% RT British Detective Series Officially Sets Season 2 Release Date
-
-TV News, BBC, Maigret
-
-Thu, 16 Jul 2026 15:28:12 GMT
-
-https://collider.com/maigret-season-2-release-date-first-look/
-
-Maigret Season 2 premieres October 18 on Masterpiece PBS, with a new first look teasing higher stakes for Benjamin Wainwright’s detective.
----------
-
-# Andrew Garfield's Epic 'Braveheart' Replacement Officially Reveals First Trailer
-
-Movie News, The Uprising, Andrew Garfield, Paul Greengrass, Jamie Bell
-
-Thu, 16 Jul 2026 15:01:39 GMT
-
-https://collider.com/the-uprising-trailer-andrew-garfield-paul-greengrass/
-
-The first trailer for The Uprising has arrived, with Andrew Garfield leading the legendary Peasants' Revolt in the historical action epic.
----------
-
-# Hollywood's Biggest Stars Reveal Their Favorite Christopher Nolan Movie
-
-Exclusives, Christopher Nolan
-
-Thu, 16 Jul 2026 15:01:15 GMT
-
-https://collider.com/video/hollywood-s-biggest-stars-reveal-their-favorite-christopher-nolan-movie/
-
-With Christopher Nolan's The Odyssey hitting theaters and @IMAX, we asked some of Hollywood's biggest stars one important question:What's your favorite Christopher Nolan movie? From Leonardo DiCaprio, Colin Farrell, Jack Black, Steven Spielberg, the Stranger Things cast, and many more, the answers ranged from The Dark Knight and Interstellar to Inception, The Prestige, Memento, Dunkirk, and Oppenheimer.Now it's your turn: which Nolan movie tops your list? 🍿
----------
-
-# Prime Video Officially Replaces Liam Neeson's 'Taken' Franchise With Epic New Action Thriller
-
-Movie News, Gal Gadot, Kevin Macdonald, Damian Lewis, Prime Video
-
-Thu, 16 Jul 2026 15:01:15 GMT
-
-https://collider.com/the-runner-trailer-gal-gadot-prime-video/
-
-Watch Gal Gadot race to save her kidnapped son in the first trailer for The Runner, a new action thriller coming to Prime Video.
----------
-
-# Taylor Sheridan’s Darkest War Thriller Officially Returns With Must-Watch Season 3 Trailer
-
-TV News, Lioness, Taylor Sheridan, Paramount Plus, Zoe Saldana
-
-Thu, 16 Jul 2026 15:01:15 GMT
-
-https://collider.com/taylor-sheridan-lioness-season-3-trailer-release-date-august-2026/
-
-Paramount has released the first official trailer for Lioness Season 3, confirming that the Taylor Sheridan-produced series will return on August 2.
 ---------
