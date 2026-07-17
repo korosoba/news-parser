@@ -1,3 +1,91 @@
+# Magic: The Gathering As We Know It Is Over
+
+Gaming, Magic: The Gathering, tabletop games
+
+Fri, 17 Jul 2026 06:30:12 GMT
+
+https://screenrant.com/magic-the-gathering-universes-beyond-adapt-or-leave/
+
+Magic: The Gathering's head designer officially confirms the future of the game, establishing that the "toothpaste is out of the tube."
+---------
+
+# Avatar Officially Returns July 21, Mark Your Calendars
+
+Gaming, Avatar, Triple-A Games
+
+Fri, 17 Jul 2026 06:00:11 GMT
+
+https://screenrant.com/avatar-july-21-frontiers-of-pandora-ps-plus-release/
+
+With everyone waiting to see what James Cameron will do next with the fourth mainline Avatar film, the series is returning on July 21.
+---------
+
+# Assassin's Creed Odyssey Remake Leaves Gamers Torn
+
+Gaming, Assassin's Creed Odyssey, Triple-A Games
+
+Fri, 17 Jul 2026 05:30:11 GMT
+
+https://screenrant.com/assassins-creed-odyssey-remake-fan-opinions/
+
+Fans want specific things out of an Assassin's Creed Odyssey remake, which has left a ton of gamers torn after an Ubisoft tease.
+---------
+
+# Cyberpunk 2077 Meets Baldur’s Gate 3 In New Free PS Plus RPG
+
+Gaming, PlayStation Plus, Triple-A Games
+
+Fri, 17 Jul 2026 05:00:11 GMT
+
+https://screenrant.com/playstation-plus-free-rpg-cyberpunk-2077-meets-baldurs-gate-3/
+
+In what seems like a natural fit, Cyberpunk 2077 and Baldur's Gate 3 collide in a new game you can pick up for free on PlayStation Plus.
+---------
+
+# PlayStation Is Officially Reviving a 2005 PS2 Classic For PS5
+
+Gaming, PlayStation 5, PlayStation Plus, Triple-A Games, Indigo Prophecy, PlayStation
+
+Fri, 17 Jul 2026 04:30:11 GMT
+
+https://screenrant.com/playstation-ps2-classic-2005-ps-plus/
+
+A classic PlayStation 2 game released back in 2005 is officially making its way onto PlayStation 5 consoles later this month, so mark your calendar.
+---------
+
+# Marvel Reveals Horror Redesign For Spider-Man’s Next Appearance
+
+Marvel Comics, Spider-Man
+
+Fri, 17 Jul 2026 04:09:57 GMT
+
+https://screenrant.com/spider-man-horror-redesign-marvel-midnight/
+
+Spider-Man's weirdest costume design, maybe ever, has been revealed for Marvel's boldest and scariest new comic book publishing line, Midnight.
+---------
+
+# God of War Forced to Recast Kratos Following Bombshell Development
+
+TV, God of War, God of War Ragnarok, God of War II, God of War III, God of War: Ascension, Prime Video
+
+Fri, 17 Jul 2026 04:23:47 GMT
+
+https://www.cbr.com/god-of-war-forced-to-recast-kratos-following-major-development-injury/
+
+A bombshell development just changed everything for Kratos and God of War.
+---------
+
+# 13 Greatest Sci-Fi Books of the Past 20 Years, Ranked
+
+TV, Sci-Fi, Andy Weir, Blake Crouch, Suzanne Collins
+
+Fri, 17 Jul 2026 04:51:14 GMT
+
+https://collider.com/best-sci-fi-books-past-20-years-ranked/
+
+From The Martian to The Hunger Games, Project Hail Mary to Station Eleven, these sci-fi books have shaped the genre over the past two decades.
+---------
+
 # Final Fantasy Meets Clair Obscur In New Free RPG
 
 Gaming, RPG, Live Service Games, PC, Lord of Mysteries
