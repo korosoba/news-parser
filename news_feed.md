@@ -1,3 +1,300 @@
+# The Elder Scrolls 6 Official Teaser Revealed By Bethesda
+
+Gaming, The Elder Scrolls 6, PC, The Elder Scrolls, Bethesda
+
+Fri, 17 Jul 2026 14:24:05 GMT
+
+https://screenrant.com/elder-scrolls-6-official-teaser-bethesda-update-july-17/
+
+The Elder Scrolls 6 just got an official teaser update from Bethesda, confirming major details about the game's release and planned content.
+---------
+
+# Fallout 3 And Fallout: New Vegas Remakes Officially Confirmed
+
+Gaming, Fallout, Fallout: New Vegas, Triple-A Games, PC
+
+Fri, 17 Jul 2026 14:22:40 GMT
+
+https://screenrant.com/fallout-3-new-vegas-remake-announcement-bethesda/
+
+Fallout 3 and Fallout: New Vegas are officially returning, per the latest update on the Fallout franchise from Bethesda Game Studios itself.
+---------
+
+# Fallout 5 Officially Announced By Bethesda
+
+Gaming, Triple-A Games, Fallout
+
+Fri, 17 Jul 2026 14:22:31 GMT
+
+https://screenrant.com/fallout-5-officially-announced-bethesda/
+
+Bethesda Game Studios has officially announced Fallout 5 as part of the upcoming repertoire for the company, and fans can already be delighted.
+---------
+
+# Returning DCEU Hero Breaks Silence On New Role In James Gunn’s Superman Sequel Man Of Tomorrow
+
+Movies, Man of Tomorrow, Blue Beetle, Xolo Mariduena, DC Universe
+
+Fri, 17 Jul 2026 14:15:03 GMT
+
+https://screenrant.com/superman-man-of-tomorrow-blue-beetle-return-xolo-mariduena-silence-break/
+
+A few characters from the now-defunct DCEU have joined James Gunn’s rebooted Universe, and one of them is speaking out about the experience.
+---------
+
+# “Wouldn’t Do That Again": Jim Parsons Reveals The Harsh Truth About The Big Bang Theory's Experience
+
+Network TV, The Big Bang Theory
+
+Fri, 17 Jul 2026 14:00:49 GMT
+
+https://screenrant.com/jim-parsons-the-big-bang-theory-experience-harsh-reality/
+
+Seven years after The Big Bang Theory wrapped up its 12-season run on CBS, Jim Parsons is looking back at it with some sad realizations.
+---------
+
+# Peacock's 8-Part Sci-Fi Series Is So Good, It Demands To Be Watched Twice
+
+Classic TV, Masked Recs
+
+Fri, 17 Jul 2026 14:00:11 GMT
+
+https://screenrant.com/mrs-davis-peacock-sci-fi-series-watch-twice/
+
+There is an eight-episode sci-fi masterpiece on Peacock that is so good, you'll want to watch it twice, and you'll enjoy it more the second time.
+---------
+
+# PAW Patrol: Dino World Exclusive Trailer & Image Reveal
+
+Gaming, PAW Patrol, Triple-A Games, PC
+
+Fri, 17 Jul 2026 14:00:11 GMT
+
+https://screenrant.com/paw-patrol-dino-world-exclusive-trailer-image-reveal/
+
+PAW Patrol is set to return later this month with Dino World, and Screen Rant can exclusively reveal the new trailer and set of images.
+---------
+
+# One Piece Episode #1170 Release Date And Time
+
+Anime, One Piece
+
+Fri, 17 Jul 2026 14:00:11 GMT
+
+https://screenrant.com/one-piece-episode-1170-release-date-time/
+
+One Piece is back and better than ever.
+---------
+
+# Final Fantasy 10: Blissful Eternity Officially Releases August 2026
+
+Gaming, Final Fantasy X, Triple-A Games
+
+Fri, 17 Jul 2026 13:41:56 GMT
+
+https://screenrant.com/final-fantasy-10-blissful-eternity-release-date/
+
+Not every Final Fantasy has become a franchise all on their own, but Final Fantasy 10 has managed to muster up a ton of releases.
+---------
+
+# LOTR’s Gandalf & Sauron Rings Of Power Season 3 Returns Get Epic First Look
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Fri, 17 Jul 2026 13:31:37 GMT
+
+https://screenrant.com/lotr-rings-of-power-season-3-gandalf-sauron-return-image-first-look/
+
+Gandalf and Sauron get new designs for The Lord of the Rings: The Rings of Power season 3 in the first epic look at the returning Prime Video series.
+---------
+
+# Brenda Fricker, My Left Foot and Home Alone 2 Star, Dies at 81
+
+Movies, Home Alone 2: Lost in New York, My Left Foot, obituary
+
+Fri, 17 Jul 2026 14:16:26 GMT
+
+https://www.cbr.com/brenda-fricker-dead/
+
+The actress made history with her Oscar win.
+---------
+
+# Only 3 Action Anime Are Better Than Solo Leveling
+
+Anime, Solo Leveling, Attack On Titan
+
+Fri, 17 Jul 2026 14:15:15 GMT
+
+https://www.cbr.com/action-anime-better-than-solo-leveling/
+
+Solo Leveling has set a high bar for modern action anime, but these series still stand above it in key areas.
+---------
+
+# Chip Zdarsky Declares Hot Take On Variant Covers and Comic Collector Culture
+
+Comics, Marvel, DC Comics
+
+Fri, 17 Jul 2026 14:01:15 GMT
+
+https://www.cbr.com/chip-zdarsky-variant-covers-comic-collector-culture-comments/
+
+Although an enjoyable hobby for many, comic collecting can go too far, Chip Zdarsky explains.
+---------
+
+# 5 Most Powerful Anime Characters Gojo Could Beat
+
+Anime, Jujutsu Kaisen, Dragon Ball, Chainsaw Man, One Piece
+
+Fri, 17 Jul 2026 13:15:15 GMT
+
+https://www.cbr.com/jjk-strongest-anime-characters-gojo-could-beat/
+
+Satoru Gojo from Jujutsu Kaisen isn't invincible, but he can still defeat some of the most powerful characters in anime history.
+---------
+
+# Jason Statham's New 107-Minute Action Flop Is a Certified Hit 54 Days After Dropping on Streaming
+
+Movies, Shelter, Jason Statham
+
+Fri, 17 Jul 2026 13:01:15 GMT
+
+https://www.cbr.com/jason-statham-shelter-starz-streaming-success-july-2026/
+
+Despite mixed reviews from critics, fans have sent Jason Statham's latest action thriller to the top of the streaming charts after its recent debut.
+---------
+
+# Before Yellowstone, Taylor Sheridan Nearly Stole Jon Bernthal's Greatest TV Role
+
+TV, The Walking Dead
+
+Fri, 17 Jul 2026 13:01:15 GMT
+
+https://www.cbr.com/the-walking-dead-taylor-sheridan-nearly-played-shane/
+
+Taylor Sheridan is known for helming the Yellowstone franchise, but he once almost played The Walking Dead's first villain.
+---------
+
+# 6 Classic Action Movies We Need a Remake Of
+
+Movies, Dragonheart, Speed, Hard Boiled
+
+Fri, 17 Jul 2026 13:01:15 GMT
+
+https://www.cbr.com/classic-action-movies-needing-remakes-list/
+
+Some of the best action movies would benefit from a modern remake
+---------
+
+# 'Heartstopper Forever' Is the Perfect Ending to the Beloved Netflix Series | Review
+
+TV Reviews, Heartstopper, Heartstopper Forever, Netflix, Romance
+
+Fri, 17 Jul 2026 14:01:15 GMT
+
+https://collider.com/heartstopper-forever-review-netflix/
+
+Heartstopper Forever gives fans of the series what they want with a feel-good ending for the beloved Netflix series.
+---------
+
+# Prime Video's 'God of War' Series Is Officially Recasting Its Lead
+
+TV News, Prime Video, God of War, Ryan Hurst, Ronald D. Moore
+
+Fri, 17 Jul 2026 12:55:07 GMT
+
+https://collider.com/prime-video-god-of-war-recast-kratos-ryan-hurst-exit/
+
+Prime Video's God of War series is officially recasting Kratos after Ryan Hurst was injured on the set, halting production.
+---------
+
+# The 3 Best Netflix Shows to Binge This Weekend All Have One Thing in Common
+
+TV, The Hawk, The Tick, Black Rabbit, Netflix
+
+Fri, 17 Jul 2026 12:41:14 GMT
+
+https://collider.com/best-netflix-shows-binge-july-18/
+
+The Hawk, The Tick, and Black Rabbit make up our list of the best Netflix shows you should binge the weekend of July 18th, 2026.
+---------
+
+# Apple TV's Long-Awaited Epic Fantasy Adaptation Gets Disappointing Update
+
+Movie News, Mistborn, Apple TV
+
+Fri, 17 Jul 2026 14:00:20 GMT
+
+https://movieweb.com/apple-tv-mistborn-movie-release-date-update/
+
+It's a disappointing day for fans of the Cosmere universe.
+---------
+
+# 44 Years Later, the "Greatest Action Film Ever Made" Shoots to Streaming Success
+
+Movie News, First Blood, Rambo, Action, Thriller
+
+Fri, 17 Jul 2026 14:00:12 GMT
+
+https://movieweb.com/rambo-first-blood-best-action-thriller-stream-july-2026/
+
+Even decades later, the action thriller classic continues to impress.
+---------
+
+# Prime Video's Historical Epic With 'HotD' Star Is a Perfect Weekend Binge
+
+Features, Prime Video, Game Of Thrones
+
+Fri, 17 Jul 2026 14:00:12 GMT
+
+https://movieweb.com/king-and-conqueror-weekend-binge/
+
+Just two men and a throne. Sound familiar?
+---------
+
+# Netflix Officially Addresses Potential Game-Changing Subscription Change
+
+TV News, Netflix
+
+Fri, 17 Jul 2026 13:53:08 GMT
+
+https://movieweb.com/netflix-free-tier-streaming-subscription/
+
+Will Netflix offer a free tier on their app? One of the streamer's CEOs officially addresses the speculation.
+---------
+
+# Amazon's God of War Series Makes Game-Changing Decision Following Lead Actor's Injury
+
+TV News, God of War, Ryan Hurst
+
+Fri, 17 Jul 2026 13:40:05 GMT
+
+https://movieweb.com/god-of-war-recast-kratos-injury/
+
+Prime Video's new 'God of War' series made a shocking call after a serious injury threatened to set back production on the anticipated series.
+---------
+
+# Taylor Sheridan's 89% Rated 'Yellowstone' Sequel Suffers Streaming Setback
+
+TV News, Dutton Ranch, Paramount Plus, Hot on Streaming, All the Queen's Men, Taylor Sheridan
+
+Fri, 17 Jul 2026 13:00:13 GMT
+
+https://movieweb.com/dutton-ranch-taylor-sheridan-beaten-all-the-queens-men-stream-paramount/
+
+Taylor Sheridan's 'Yellowstone' sequel 'Dutton Ranch' has been dethroned on Paramount+, ahead of Season 2.
+---------
+
+# Tyrion's Line is Still the Greatest Quote in 'Game of Thrones' History
+
+Features, Game Of Thrones
+
+Fri, 17 Jul 2026 13:00:13 GMT
+
+https://movieweb.com/game-of-thrones-tyrion-best-quote/
+
+'Game of Thrones,' the HBO fantasy series based on George R.R. Martin's books, has one particularly memorable quote from Tyrion Lannister.
+---------
+
 # It's The Start Of An Era For Alan Ritchson's 3-Part Prime Video Series
 
 Streaming TV, Masked Recs
