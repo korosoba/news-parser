@@ -1,3 +1,256 @@
+# The Legend Of Zelda Major 2027 Release Officially Confirmed As New Chapter Begins
+
+Gaming, The Legend of Zelda
+
+Fri, 17 Jul 2026 11:00:11 GMT
+
+https://screenrant.com/legend-of-zelda-2027-new-hasbro-deals/
+
+The Legend of Zelda is coming back in a big way, after confirmation of a major new deal means more is coming down the pipeline.
+---------
+
+# Star Wars: Knights Of The Old Republic Remake Official Release Date Update Shared
+
+Gaming, Star Wars: Knights of the Old Republic, Star Wars
+
+Fri, 17 Jul 2026 10:30:15 GMT
+
+https://screenrant.com/star-wars-knights-old-republic-remake-release-date-update/
+
+Fans of the Star Wars: Knights of the Old Republic (KOTOR) Remake received an update on its development status.
+---------
+
+# Zelda: Ocarina Of Time Remake Pre-Order Date Appears Online
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo Switch 2, Nintendo, Nintendo Direct
+
+Fri, 17 Jul 2026 10:01:45 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-pre-order-date-leak/
+
+A potential pre-order date for the highly anticipated Zelda: Ocarina of Time remake has surfaced, suggesting an August release on Nintendo Switch 2
+---------
+
+# Game Of Thrones: War For Westeros Will Officially Arrive In 2027
+
+Gaming, Game of Thrones
+
+Fri, 17 Jul 2026 10:00:11 GMT
+
+https://screenrant.com/game-of-thrones-war-for-westeros-development-update/
+
+PlaySide Studios announces that the highly anticipated Game of Thrones: War for Westeros real-time strategy game will launch in early 2027.
+---------
+
+# Big Brother 28: Week 2 Head of Household (HOH) Results (SPOILERS)
+
+Reality TV, Big Brother
+
+Fri, 17 Jul 2026 10:00:11 GMT
+
+https://screenrant.com/big-brother-28-week-2-head-of-household-spoilers/
+
+Find out who won the Big Brother 28 Week 2 Head of Household competition in this spoiler-filled update & discover how the power dynamics may shift.
+---------
+
+# Fallout: Viva New Vegas Officially Announced
+
+Gaming, Fallout, Fallout Shelter
+
+Fri, 17 Jul 2026 09:30:11 GMT
+
+https://screenrant.com/fallout-viva-new-vegas-officially-announced/
+
+There might not be a whole new Fallout game coming any time soon, but there's plenty going on in the existing titles to enjoy.
+---------
+
+# A 9/10 Game From 2019 Has Finally Returned To Steam, Now Completely Free To Own
+
+Gaming, Steam
+
+Fri, 17 Jul 2026 09:23:52 GMT
+
+https://screenrant.com/steam-free-game-killer-queen-black/
+
+Killer Queen Black, the fast-paced team-based action strategy game with a 'Very Positive' rating, is now available for free.
+---------
+
+# The Funniest Far Side Comics About Baseball
+
+Comics, The Far Side
+
+Fri, 17 Jul 2026 10:30:18 GMT
+
+https://www.cbr.com/the-far-side-best-funniest-baseball-comics/
+
+While baseball is a relatively young sport, compared to soccer, it is still a world-renowned and respected game, and even The Far Side took notice.
+---------
+
+# DC Is Right To Avoid The Joker In Robert Pattinson's Batman
+
+Movies, The Batman Part II
+
+Fri, 17 Jul 2026 10:00:15 GMT
+
+https://www.cbr.com/batman-part-2-no-joker-perfect-choice/
+
+As Matt Reeves develops his Epic Crime Saga, one iconic Batman villain will be left in the background of this universe and it's the right call.
+---------
+
+# Prime Video’s Legally Blonde Prequel Elle Is TV's First Great Anti-Prequel
+
+TV, Elle, Legally Blonde, Prime Video
+
+Fri, 17 Jul 2026 10:00:15 GMT
+
+https://www.cbr.com/prime-video-elle-legally-blonde-anti-prequel/
+
+Prime Video's highly anticipated prequel series defies expectations and might even be better as an "anti-prequel."
+---------
+
+# Forget John Wick, Jason Statham's Newest Action Hit Is Taking Over Streaming
+
+Movie News, A Working Man, Jason Statham, John Wick, Prime Video
+
+Fri, 17 Jul 2026 11:00:15 GMT
+
+https://collider.com/jason-statham-a-working-man-streaming-success-prime-video-july-2026/
+
+Jason Statham's massive action hit with shades of John Wick has become one of the biggest streaming success stories of 2026.
+---------
+
+# 10 Historical Romance Books That Could Be the Next 'Bridgerton'
+
+Books and Comics, Bridgerton, Netflix, Romance
+
+Fri, 17 Jul 2026 10:47:15 GMT
+
+https://collider.com/historical-romance-books-the-next-bridgerton/
+
+Bridgerton is an international sensation thanks to the Netflix series, and there are plenty of other historical romance books that could be as big.
+---------
+
+# 10 Greatest Sci-Fi Epic Movies of the 21st Century
+
+Movie, Science Fiction, Dune: Part Two, Spider-Man: Across the Spider-Verse, Furiosa: A Mad Max Saga
+
+Fri, 17 Jul 2026 10:38:15 GMT
+
+https://collider.com/best-sci-fi-epic-movies-21st-century-ranked/
+
+The best sci-fi epic movies of the 21st century include misunderstood efforts like The Fountain and grand, ambitious masterpieces like Dune: Part Two.
+---------
+
+# New ‘Halo’ Project Launching This Month Officially Hits Final Milestone
+
+Gaming News, Halo, Steven Spielberg, Halo 4
+
+Fri, 17 Jul 2026 10:30:18 GMT
+
+https://collider.com/halo-campaign-evolved-gone-gold-release-date-july-2026/
+
+The new Halo project launching this month, Campaign Evolved, has gone gold several weeks before release, marking its final milestone.
+---------
+
+# This Star Trek Movie Fixed the Franchise, and It's Not the One You'd Expect
+
+Movie Features, Star Trek, Star Trek IV: The Voyage Home, Star Trek II: The Wrath of Kahn, Gene Roddenberry
+
+Fri, 17 Jul 2026 10:15:15 GMT
+
+https://collider.com/star-trek-4-voyage-home-fixed-franchise/
+
+Though Star Trek II: The Wrath of Khan is the best original cast film, Star Trek IV: The Voyage Home restored Gene Roddenberry's original vision.
+---------
+
+# 10 Netflix Shows With Mind-Blowing Plot Twists, Ranked
+
+TV, Netflix, Dark, The Haunting of Hill House, Black Mirror
+
+Fri, 17 Jul 2026 10:09:15 GMT
+
+https://collider.com/netflix-shows-with-shocking-plot-twists-ranked/
+
+Explore the best Netflix series featuring shocking plot twists, from sci-fi masterpieces like Dark to horror hits like The Haunting of Hill House.
+---------
+
+# Anya Taylor-Joy Is Coming For Rebecca Ferguson’s Apple TV Crown
+
+TV News, Anya Taylor-Joy, Lucky, Apple TV, The Gorge
+
+Fri, 17 Jul 2026 10:00:15 GMT
+
+https://collider.com/lucky-anya-taylor-joy-apple-tv-crime-series-streaming-success/
+
+With the new crime drama series Lucky, Anya Taylor-Joy has delivered another hit for Apple TV. Find out more.
+---------
+
+# All 9 Batman: Arkham Video Games, Ranked
+
+Gaming, Video Game, Batman: Arkham Knight, Batman: Arkham Asylum, Superhero
+
+Fri, 17 Jul 2026 09:41:15 GMT
+
+https://collider.com/batman-arkham-video-games-ranked/
+
+The Batman: Arkham series includes many amazing video games, including Arkham Asylum and Arkham Knight, but which of the mainline titles is the best?
+---------
+
+# A $1.5M Western Gem Is Challenging a $225M Action Blockbuster on Netflix
+
+Movie News, Old Henry, F9, Netflix, Vin Diesel
+
+Fri, 17 Jul 2026 09:30:15 GMT
+
+https://collider.com/old-henry-western-fast-and-furious-9-netflix-viewership/
+
+The Western gem Old Henry went toe to toe with the $225 million action blockbuster F9 on Netflix's latest viewership chart. Find out more.
+---------
+
+# 3 Movie Masterpieces To Watch on Netflix This Weekend (July 18-19)
+
+Movie, Apollo 13, The Hunger Games: The Ballad of Songbirds and Snakes, High Fidelity, Netflix
+
+Fri, 17 Jul 2026 09:22:15 GMT
+
+https://collider.com/best-netflix-movies-watch-weekend-july-18/
+
+The Ballad of Songbirds & Snakes, Apollo 13, and High Fidelity make up our list of the best Netflix movies to watch the weekend of July 18th, 2026.
+---------
+
+# Jason Statham's New 100-Minute Action Thriller Is One of Streaming's Biggest Films
+
+Movie News, Jason Statham, Shelter, Action, Thriller
+
+Fri, 17 Jul 2026 11:00:13 GMT
+
+https://movieweb.com/jason-statham-shelter-action-thriller-stream-july-2026/
+
+The 2026 action effort has fought its way back up the streaming charts.
+---------
+
+# Who Is David Keighley? 'The Odyssey's Tribute, Explained
+
+Features, Christopher Nolan, The Odyssey, IMAX
+
+Fri, 17 Jul 2026 11:00:13 GMT
+
+https://movieweb.com/the-odyssey-david-keighley-tribute-explained/
+
+Christopher Nolan dedicated 'The Odyssey' to a true pioneer.
+---------
+
+# Matt Damon Confirms 'Jason Bourne 6' Fate Following Recasting Rumors
+
+Movie News, Jason Bourne 6, Jason Bourne, Bourne, Matt Damon
+
+Fri, 17 Jul 2026 10:17:22 GMT
+
+https://movieweb.com/jason-bourne-6-matt-damon-in-the-works/
+
+Matt Damon has confirmed he is currently in talks for a new 'Jason Bourne' movie amid rumors that the lead character may be recast.
+---------
+
 # McDonald's Teases New Pokémon Happy Meals, But Expect Them To Sell Out Fast
 
 Gaming, Pokemon, Pokemon GO, Pokémon GO, pokemon lets go pikachu
