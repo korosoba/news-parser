@@ -1,3 +1,289 @@
+# One Of The Most Divisive Hercule Poirot Adaptations Is Dominating Multiple New Netflix Releases
+
+Movies, Masked Recs, Hercule Poirot
+
+Fri, 17 Jul 2026 21:03:47 GMT
+
+https://screenrant.com/hercule-poirot-death-on-the-nile-2022-netflix-global-streaming-success-july-2026/
+
+Kenneth Branagh's polarizing Hercule Poirot adaptation of Agatha Christie's mystery novel is finally making waves on Netflix worldwide.
+---------
+
+# Hulk & Spider-Man's Upcoming Fight Must Stop An Embarrassing MCU Trend
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Fri, 17 Jul 2026 21:00:12 GMT
+
+https://screenrant.com/spider-man-brand-new-day-hulk-fight-lose-trend-stop/
+
+Spider-Man and Hulk are going to fight in Spider-Man: Brand New Day, and when they do, the MCU needs to stop an embarrassing trend for one hero.
+---------
+
+# Digimon: Timeless Bonds Releases September 2026
+
+Gaming, Digimon, Triple-A Games
+
+Fri, 17 Jul 2026 21:00:12 GMT
+
+https://screenrant.com/digimon-timeless-bonds-september-2026-release/
+
+Digimon has endured since 1997, and it's still going strong, especially given that there's another official release slated for September.
+---------
+
+# Every Actor In The Odyssey, Ranked By Screen Time
+
+Movies, Odyssey
+
+Fri, 17 Jul 2026 21:00:12 GMT
+
+https://screenrant.com/the-odyssey-movie-actors-ranked-screen-time/
+
+Matt Damon and Tom Holland lead the way in Christopher Nolan's The Odyssey, and are joined by Robert Pattinson, Anne Hathaway, and more.
+---------
+
+# Prime Video's Ambitious Sci-Fi Adaptation Is Coming For The Last Of Us' Crown
+
+Streaming TV, Masked Recs
+
+Fri, 17 Jul 2026 20:45:11 GMT
+
+https://screenrant.com/mass-effect-prime-video-adaptation-the-last-of-us-beat/
+
+HBO's The Last of Us finally put paid to the idea that video games can't enjoy live-action success, but Prime Video's sci-fi series could beat it.
+---------
+
+# 3 Emmy-nominated shows on HBO Max you must watch this weekend (July 17–19)
+
+Streaming TV, HBO Max, What to Watch on Max
+
+Fri, 17 Jul 2026 20:42:11 GMT
+
+https://screenrant.com/hbo-max-shows-emmys-2026-watch-weekend-july-17/
+
+HBO Max has the most nominations of all streaming platforms at the 2026 Emmy Awards and these three nominated original series are among the very best.
+---------
+
+# It's The End Of An Era For Star Wars After 30 Years
+
+Movies, Star Wars
+
+Fri, 17 Jul 2026 20:30:11 GMT
+
+https://screenrant.com/star-wars-theatrical-cut-end-of-an-era-special-editions/
+
+As the franchise's 50th anniversary looms, Star Wars fans will be treated to a historic release in 2027, one that they've waited 30 years to see.
+---------
+
+# ABC's Detective Crime Series Is A Global Streaming Smash At The Perfect Time
+
+TV, Masked Recs
+
+Fri, 17 Jul 2026 20:07:17 GMT
+
+https://screenrant.com/abc-rj-decker-disney-plus-streaming-success-july-2026-perfect-time/
+
+ABC's detective crime series becomes a global streaming smash at the perfect time, as another batch of episodes is already well on the way.
+---------
+
+# 3 Best Movies To Watch On Netflix This Weekend (July 18-19)
+
+Movies, Netflix, Recommendation
+
+Fri, 17 Jul 2026 20:02:43 GMT
+
+https://screenrant.com/best-netflix-movies-watch-weekend-july-18/
+
+Netflix's must-watch movies this weekend range from a new original romance, a massive dinosaur hit, and a intense dystopian Sci-Fi adventure.
+---------
+
+# The CW Seals the Fate of 4-Season Drama After Star’s Exit
+
+TV, Sullivan's Crossing, The CW
+
+Fri, 17 Jul 2026 21:09:57 GMT
+
+https://www.cbr.com/the-cw-sullivans-crossing-season-5-future/
+
+Following Scott Patterson's exit, The CW has renewed Canadian romance drama Sullivan's Crossing for Season 5.
+---------
+
+# Timothy Olyphant's New 8-Part Series Based on Bestselling Novel Shoots to No. 1 With 1B Minutes Viewed in 1 Week
+
+TV, The Five-Star Weekend
+
+Fri, 17 Jul 2026 20:59:49 GMT
+
+https://www.cbr.com/timothy-olyphant-the-five-star-weekend1b-minutes-viewed-july-2026/
+
+The actor's shows turn into instant streaming hits.
+---------
+
+# Netflix's Viewership Report Officially Confirms Sad News About The Boroughs After Cancellation
+
+TV, The Boroughs, Netflix, Sci-Fi
+
+Fri, 17 Jul 2026 20:48:58 GMT
+
+https://www.cbr.com/the-boroughs-canceled-netflix-low-ratings/
+
+It's time for The Boroughs fans to face some sad facts.
+---------
+
+# Star Wars Officially Breaks a 49-Year-Old Jedi Rule
+
+TV, Star Wars, Star Wars: Maul - Shadow Lord, Disney+
+
+Fri, 17 Jul 2026 20:45:15 GMT
+
+https://www.cbr.com/star-wars-maul-shadow-lord-breaks-oldest-jedi-trope/
+
+The thrilling finale of Star Wars: Maul - Shadow Lord's first season put a dark twist on one of the franchise's oldest Jedi traditions.
+---------
+
+# 5 Strongest Magic Items in The Lord of the Rings, Ranked
+
+Movies, The Lord of the Rings
+
+Fri, 17 Jul 2026 20:31:14 GMT
+
+https://www.cbr.com/strongest-magic-items-in-the-lord-of-the-rings-ranked/
+
+Tolkien included several magical objects in his vast legendarium, some of which have become integral aspects of The Lord of the Rings
+---------
+
+# Alan Ritchson's 107-Minute Thriller Is Officially Netflix's Biggest Film of 2026
+
+Movies, Netflix, War Machine
+
+Fri, 17 Jul 2026 20:26:28 GMT
+
+https://www.cbr.com/alan-ritchson-war-machine-netflix-2026-biggest-movie/
+
+Alan Ritchson's Netflix movie is the streamer's biggest debut of the year.
+---------
+
+# 5 Classic Sega Genesis Games Every Gamer Needs to Play At Least Once
+
+Games, Sonic the Hedgehog, Streets of Rage, Sega Genesis
+
+Fri, 17 Jul 2026 20:16:15 GMT
+
+https://www.cbr.com/classic-sega-genesis-games-everyone-should-play/
+
+The Sega Genesis boasts a massive roster of classic games, and everyone needs to play its greatest masterpieces at least once.
+---------
+
+# Hunter x Hunter Officially Loses to One Piece Again in New Oricon Manga Sales Ranking
+
+Anime, Hunter X Hunter, One Piece
+
+Fri, 17 Jul 2026 20:06:15 GMT
+
+https://www.cbr.com/hunter-x-hunter-vs-one-piece-new-oricon-manga-sales-ranking/
+
+Hunter x Hunter continues to lose out to the hottest returning manga of the year, although it isn't letting go of its spot on the top 10 sales list.
+---------
+
+# All 86 Episodes of 'The Sopranos,' Ranked
+
+TV, The Sopranos, HBO, David Chase, James Gandolfini
+
+Fri, 17 Jul 2026 21:05:14 GMT
+
+https://collider.com/the-sopranos-every-episode-ranked/
+
+There are 86 episodes of The Sopranos spread out across six seasons, from the pilot to "Made in America," but which one is the best overall?
+---------
+
+# Colin Farrell's 6 Best Movie Masterpieces, Ranked
+
+Movie, Colin Farrell, In Bruges, Phone Booth, The Gentlemen
+
+Fri, 17 Jul 2026 20:50:15 GMT
+
+https://collider.com/best-colin-farrell-movies/
+
+From In Bruges to The Banshees of Inisherin and career-defining gems, these Colin Farrell movies are true classics.
+---------
+
+# Netflix's New 6-Part Crime Thriller Follows One of History's Largest Murder Investigations
+
+TV Features, Netflix, Crime, The Bombing of Pan Am 103, Patrick J. Adams
+
+Fri, 17 Jul 2026 20:08:14 GMT
+
+https://collider.com/netflix-crime-thriller-the-bombing-of-pan-am-103-true-story/
+
+On July 30, Netflix will be releasing The Bombing of Pan Am 103, a star-studded series about one of history’s most shocking murder investigations.
+---------
+
+# Matt Damon's Original Netflix Action Thriller Is Officially One of the Year's Biggest Streaming Hits
+
+Movie News, The Rip, Hot on Streaming
+
+Fri, 17 Jul 2026 21:00:12 GMT
+
+https://movieweb.com/the-rip-matt-damon-netflix-streaming-hit-2026/
+
+Wasn't it exciting to see Matt Damon and Ben Affleck share the screen again?
+---------
+
+# The Ancient Greek Rule You Must Understand for 'The Odyssey' To Make Sense
+
+Features, The Odyssey
+
+Fri, 17 Jul 2026 21:00:12 GMT
+
+https://movieweb.com/the-odyssey-zeus-law-explained/
+
+Christopher Nolan's 'The Odyssey' transports audiences to the ancient world, centered around one of its most integral values.
+---------
+
+# Cult-Classic '80s Sci-Fi Movie Reboot First-Look Images Officially Released
+
+Movie News, Re-Animator, Katie Cassidy, Joseph Morgan, Sci-Fi
+
+Fri, 17 Jul 2026 20:58:26 GMT
+
+https://movieweb.com/re-animator-reboot-remake-first-look-h-p-lovecraft/
+
+The first glimpse of Joseph Morgan and Katie Cassidy in 'Herbert West: Reanimator' has debuted.
+---------
+
+# Brendan Fraser's Critically Acclaimed War Epic Officially Confirms Streaming Release Date
+
+Movie News, Pressure, Peacock
+
+Fri, 17 Jul 2026 20:13:48 GMT
+
+https://movieweb.com/brendan-fraser-pressure-peacock-streaming-release-date/
+
+Brendan Fraser's war room drama offers a fresh perspective on the D-Day landings.
+---------
+
+# 'The Odyssey' Has Already Officially Smashed a $1-Billion Movie's Record in Hours
+
+Movie News, The Odyssey, Box Office
+
+Fri, 17 Jul 2026 20:06:16 GMT
+
+https://movieweb.com/the-odyssey-box-office-record-previews/
+
+It only took hours for Christopher Nolan's 'The Odyssey' to etch its name into the box office record books.
+---------
+
+# The 10 Best American-Made Martial Arts Movies of All Time
+
+Movie Lists, Martial Arts, Action
+
+Fri, 17 Jul 2026 20:01:12 GMT
+
+https://movieweb.com/best-american-made-martial-arts-movies/
+
+From Bruce Lee to Keanu Reeves, these are the best American-made martial arts movies packed with great characters and impeccable action.
+---------
+
 # 8 Sci-Fi TV Shows That Earned Perfect 100% Rotten Tomatoes Ratings
 
 Classic TV
@@ -5210,290 +5496,4 @@ Thu, 16 Jul 2026 13:15:40 GMT
 https://screenrant.com/gta-online-future-confirmed-gta-6/
 
 Rockstar has officially confirmed the future of GTA Online in a new update announcement, with new seasonal content planned ahead of GTA 6's launch.
----------
-
-# Sean Bean's Hit New Fantasy Series Gets Major Season 2 Return & First Additional Casting Update
-
-TV, Robin Hood
-
-Thu, 16 Jul 2026 13:12:58 GMT
-
-https://screenrant.com/robin-hood-season-2-filming-start-casting-additions/
-
-Sean Bean's hit new fantasy TV show gets a major season 2 return and additional casting update as development of the series continues.
----------
-
-# Star Trek's 'Good' Borg Officially Reverts to Classic Villainous Behavior
-
-Comics, Star Trek
-
-Thu, 16 Jul 2026 14:26:00 GMT
-
-https://www.cbr.com/star-trek-last-starship-7-review-borg-agnes-reversion/
-
-In a CBR review of Star Trek: The Last Starship #7, see how the U.S.S. Omega's Borg ally tragically reverts to form
----------
-
-# 10 Anime Power Systems That Are Nearly Perfect
-
-Anime, Hell's Paradise: Jigokuraku, Demon Slayer, Jujutsu Kaisen, Chainsaw Man
-
-Thu, 16 Jul 2026 14:15:14 GMT
-
-https://www.cbr.com/best-near-perfect-anime-power-systems/
-
-Anime power systems dictate the scaling and character progression of their series, and these ten are nearly perfect.
----------
-
-# Star Wars Comic Settles Debate About Han Solo And Chewbacca
-
-Comics, Star Wars
-
-Thu, 16 Jul 2026 14:00:14 GMT
-
-https://www.cbr.com/star-wars-galaxys-edge-echoes-of-the-empire-4-han-solo-chewbacca/
-
-The debate over these Star Wars heroes' dynamic is settled.
----------
-
-# Wizards of the Coast Officially Reveals Retailer Dates for Magic: The Gathering - Star Trek
-
-Games, Magic: The Gathering, Tabletop, Star Trek
-
-Thu, 16 Jul 2026 13:59:15 GMT
-
-https://www.cbr.com/wizards-of-the-coast-retailer-dates-mtg-star-trek-official/
-
-Wizards of the Coast has revealed when Magic: The Gathering players will be able to purchase cards from the Star Trek crossover set in 2026.
----------
-
-# Pedro Pascal Sets New Movie Just 2 Weeks Before 'Avengers: Doomsday'
-
-Movies, Avengers: Doomsday, Fantastic Four
-
-Thu, 16 Jul 2026 13:50:41 GMT
-
-https://www.cbr.com/pedro-pascal-bemehoth-trailer/
-
-Pedro Pascal will have two major movies arriving in December 2026.
----------
-
-# The Terminator's Return Confirmed To Feature Wildest Pop Culture Crossover So far
-
-Comics, Terminator, Archie Comics
-
-Thu, 16 Jul 2026 13:25:50 GMT
-
-https://www.cbr.com/terminator-archie-crossover-announcement/
-
-Dynamite Entertainment is shocking the world again with an outrageous combination of the worlds of Riverdale and the Terminator in a new crossover
----------
-
-# 4 SNES Games Better Than Chrono Trigger
-
-Games, Nintendo, Chrono Trigger
-
-Thu, 16 Jul 2026 13:20:15 GMT
-
-https://www.cbr.com/snes-games-better-than-chrono-trigger-list/
-
-Chrono Trigger is widely hailed as one of the best SNES games, but a few titles on the console are even better.
----------
-
-# 5 Modern Shonen Anime Better Than One Piece
-
-Anime, One Piece, shonen anime
-
-Thu, 16 Jul 2026 13:15:15 GMT
-
-https://www.cbr.com/modern-shonen-anime-better-than-one-piece/
-
-The One Piece anime has quite a few shortcomings, and modern shonen anime have begun to provide tough competition for the classic pirate adventure.
----------
-
-# Halle Berry’s Moonfall is the Best Sci-Fi on Prime Video
-
-Movies, Moonfall, halle berry, roland emmerich
-
-Thu, 16 Jul 2026 13:01:15 GMT
-
-https://www.cbr.com/halle-berry-moonfall-best-sci-fi-on-prime-video/
-
-One of the best sci-fi disaster movies on Prime Video is also one of cinema's most underrated films from the "Master of Disaster," Roland Emmerich.
----------
-
-# Starz's New Werewolf Show Based on a Bestselling Book Is Fantasy TV's Gold Standard
-
-TV, Fantasy, Starz
-
-Thu, 16 Jul 2026 13:01:15 GMT
-
-https://www.cbr.com/starz-the-wolf-king-fantasy-tv-gold-standard/
-
-Starz's upcoming adaptation of Lauren Palphreyman’s The Wolf King promises a faithful retelling that will fill a gap in romantasy TV.
----------
-
-# A 'Once Upon a Time' Icon Is Heading to MGM+’s Epic New Historical Series
-
-TV News, Robin Hood, Colin O'Donoghue, James Purefoy, MGM
-
-Thu, 16 Jul 2026 14:08:44 GMT
-
-https://collider.com/robin-hood-season-2-cast-colin-odonoghue/
-
-MGM+'s epic Robin Hood adaptation adds Colin O'Donoghue, James Purefoy, and Luke Roberts to Season 2.
----------
-
-# Fox Officially Confirms the End of an Era for 'The Simpsons' Sundays
-
-TV Features, The Simpsons, Animal Control, Fox, Hulu
-
-Thu, 16 Jul 2026 12:39:15 GMT
-
-https://collider.com/fox-september-2026-schedule-change-the-simpsons-animal-control/
-
-Fox is moving Animal Control to its Sunday night block, ending the era of Animation Domination anchored by The Simpsons.
----------
-
-# The 10 Best Sci-Fi Movies of All Time, Ranked According to Letterboxd
-
-Movie, Sci-Fi, Interstellar, Spider-Man: Across the Spider-Verse, Letterboxd
-
-Thu, 16 Jul 2026 12:32:15 GMT
-
-https://collider.com/best-sci-fi-movies-ranked-letterboxd/
-
-From Interstellar to Spider-Man: Across the Spider-Verse, these are the best science fiction movies of all time according to Letterboxd.
----------
-
-# Titus Welliver’s Bosch Is Officially Returning to Prime Video
-
-TV News, Bosch, Bosch: Legacy, Ballard
-
-Thu, 16 Jul 2026 12:30:14 GMT
-
-https://collider.com/bosch-spin-off-ballard-season-2-titus-welliver-return-confirmed/
-
-Titus Welliver confirms Harry Bosch will appear in several episodes of the hit spin-off, Ballard, Season 2 on Prime Video.
----------
-
-# Apple TV’s Most Relevant 8-Part Sci-Fi Show Feels More Urgent Than Ever
-
-TV Features, Apple TV, Meryl Streep, Extrapolations, Kit Harrington
-
-Thu, 16 Jul 2026 12:24:14 GMT
-
-https://collider.com/apple-tv-urgent-sci-fi-show-extrapolations/
-
-Back in 2023, Apple TV released one of its most urgent and necessary shows in the climate anthology series, Extrapolations.
----------
-
-# Eric Clapton's Most Heartbreaking Song in 1991 Became His Highest-Selling Single
-
-Music Features, Eric Clapton - MTV Unplugged, Music, Rush, Rock
-
-Thu, 16 Jul 2026 12:20:15 GMT
-
-https://collider.com/eric-clapton-tears-in-heaven-highest-selling-single-1991/
-
-Eric Clapton channeled his unimaginable grief following the tragic death of his young son into the creation of his most heartbreaking and highest-selling single, Tears in Heaven.
----------
-
-# 10 Classic Fantasy Books You Must Read in 2026
-
-Books and Comics, Books, Fantasy, A Song of Ice and Fire
-
-Thu, 16 Jul 2026 12:17:14 GMT
-
-https://collider.com/classic-fantasy-books-must-read-2026/
-
-Fantasy classics like A Wizard of Earthsea, The Once and Future King, and A Game of Thrones are among the books that you simply must read in 2026.
----------
-
-# 'MobLand' Star Joins Twisty New Thriller 12 Years in the Making
-
-Movie News, Helen Mirren
-
-Thu, 16 Jul 2026 14:25:48 GMT
-
-https://movieweb.com/mobland-helen-mirren-stars-in-a-talent-for-murder/
-
-'MobLand' fans are in for a treat with this upcoming psychological thriller inspired by the Tom Ripley saga.
----------
-
-# Zach Cregger's 'Resident Evil' Runtime Revealed
-
-Movie News, Resident Evil, Zach Cregger
-
-Thu, 16 Jul 2026 14:06:26 GMT
-
-https://movieweb.com/zach-cregger-resident-evil-runtime-revealed/
-
-The director's lean, pared-back approach has already drawn comparisons with 'Fury Road'
----------
-
-# Netflix’s New Thriller Will Give ‘I Will Find You’ a Run For Its Money
-
-Features, Netflix, The Whisper Man, I Will Find You, Robert De Niro
-
-Thu, 16 Jul 2026 14:01:12 GMT
-
-https://movieweb.com/the-whisper-man-upcoming-netflix-thriller/
-
-Harlan Coben's latest Netflix thriller series, 'I Will Find You,' has been a big hit, but an upcoming thriller will appeal to fans, too.
----------
-
-# Taylor Sheridan Officially Loses Streaming Crown to TV's Best Crime Thriller
-
-TV News, Taylor Sheridan, Hot on Streaming, Criminal Minds, Criminal Minds: Evolution, Dutton Ranch
-
-Thu, 16 Jul 2026 14:01:12 GMT
-
-https://movieweb.com/taylor-sheridan-dutton-ranch-criminal-minds-streaming-july-2026/
-
-Taylor Sheridan's best show in years has officially been overtaken by a long-running crime thriller that people can't get enough of on streaming.
----------
-
-# The 10 Most Binge-Worthy Miniseries of the 21st Century
-
-TV Lists, Band of Brothers, Mare of Easttown, The Queen's Gambit
-
-Thu, 16 Jul 2026 13:00:12 GMT
-
-https://movieweb.com/binge-worthy-miniseries-21st-century/
-
-These miniseries, from thrillers to dramas to a popular series about war, are the most impressive and binge-worthy of the past few decades.
----------
-
-# Marvel Teases Unbelievable Leader for the Avengers' New Era
-
-Comics, The Avengers
-
-Thu, 16 Jul 2026 12:14:11 GMT
-
-https://screenrant.com/spider-man-new-leader-avengers/
-
-The Avengers' next leader is coming into focus.
----------
-
-# Wheel Of Time: The Last Battle Arrives June 2027
-
-Gaming, The Wheel of Time
-
-Thu, 16 Jul 2026 12:00:11 GMT
-
-https://screenrant.com/wheel-of-time-last-battle-june-2027/
-
-The Wheel of Time series is one of the most iconic series in fantasy history, and that makes a new release very welcome indeed.
----------
-
-# 10 Things In Star Trek: Strange New Worlds Season 4 We Can’t Wait To See
-
-TV, Star Trek, Star Trek: Strange New Worlds
-
-Thu, 16 Jul 2026 12:00:11 GMT
-
-https://screenrant.com/star-trek-strange-new-worlds-season-4-10-things-excited/
-
-Star Trek: Strange New Worlds season 4 is highly anticipated, and there are many things known about the next 10 episodes that we're very excited for.
 ---------
