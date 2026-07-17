@@ -1,3 +1,344 @@
+# Brandon Sanderson Reveals He Is Still Changing Genre In 2028
+
+Books, Brandon Sanderson
+
+Fri, 17 Jul 2026 00:57:18 GMT
+
+https://screenrant.com/brandon-sanderson-mistborn-books-genre-2028/
+
+During the Mistborn 20th anniversary stream, Brandon Sanderson confirmed the current direction of the series, including the upcoming genre change.
+---------
+
+# All 12 Seasons Of Curb Your Enthusiasm, Ranked
+
+Classic TV, Curb Your Enthusiasm
+
+Fri, 17 Jul 2026 00:45:12 GMT
+
+https://screenrant.com/curb-your-enthusiasm-12-seasons-ranked/
+
+Curb Your Enthusiasm has ended its run after 12 hilarious seasons, and some seasons of the Larry David sitcom were stronger than others.
+---------
+
+# Star Trek: Strange New Worlds Showrunner Reveals Whether A Pike TOS Story Will Be Revisited
+
+TV, Star Trek: Strange New Worlds, Star Trek: The Original Series
+
+Fri, 17 Jul 2026 00:24:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-pike-tos-story-revisited/
+
+Star Trek: Strange New Worlds' Henry Alonso Myers addressed whether the series will revisit the events of The Original Series episode "The Cage."
+---------
+
+# Criminal Minds Has Ruined The BAU
+
+Network TV, Criminal Minds
+
+Fri, 17 Jul 2026 00:15:11 GMT
+
+https://screenrant.com/criminal-minds-has-ruined-the-bau/
+
+Criminal Minds: Evolution showcases the BAU's struggles and inefficiencies in solving complex cases, raising questions about the team's effectiveness.
+---------
+
+# Brandon Sanderson Addresses Mistborn Spinoff’s Adaptation Chances At Apple TV
+
+Movies, Mistborn, Brandon Sanderson
+
+Fri, 17 Jul 2026 00:11:34 GMT
+
+https://screenrant.com/mistborn-secret-history-movie-adaptation-chances-brandon-sanderson/
+
+Brandon Sanderson offers fans another update regarding his popular Mistborn series, this time the author reveals the chances of a potential spinoff.
+---------
+
+# Marvel Studios Subtly Remakes The Best Hulk Movie
+
+Streaming TV, Masked Recs
+
+Fri, 17 Jul 2026 00:02:22 GMT
+
+https://screenrant.com/marvel-studios-subtly-remakes-the-best-hulk-movie/
+
+Marvel has just come up with the perfect way to remake the best and most underrated Hulk movie to date, and it is already out on Disney+.
+---------
+
+# 5 Batsuit Upgrades We Want To See In Robert Pattinson’s The Batman 2
+
+Superheroes, The Batman Part II, DC Universe
+
+Fri, 17 Jul 2026 00:00:11 GMT
+
+https://screenrant.com/5-batsuit-upgrades-we-want-robert-pattinson-the-batman-2/
+
+After the first official look at Robert Pattinson in The Batman - Part II, here are some more batsuit upgrades we'd love to see in the upcoming sequel
+---------
+
+# DC Just Created Its Own Hulk, And the Result Is Terrifying
+
+DC Comics, Masked Recs
+
+Thu, 16 Jul 2026 23:57:11 GMT
+
+https://screenrant.com/absolute-green-arrow-solomon-grundy-hulk/
+
+As terrifying as Bruce Banner's Hulk can be, DC’s latest reimagining of one of Batman’s most iconic villains may be even more frightening.
+---------
+
+# The Westies Season 1 Interviews with Chris Brancato, Michael Panes & Stanley Morgan
+
+TV, The Westies, The Westies - Season 1
+
+Thu, 16 Jul 2026 23:42:20 GMT
+
+https://screenrant.com/video/the-westies-season-1-chris-brancato-michael-panes-stanley-morgan-interview/
+
+The Westies showrunners Chris Brancato and Michael Panes explain their writing process, and how their new MGM+ show evolved from a Godfather of Harlem pitch, while star Stanley Morgan digs deeper into the complex character of Mickey Flanagan.
+---------
+
+# 9 Best Dungeons & Dragons Adventures Set In Forgotten Realms
+
+Games, Dungeons and Dragons, Tabletop, Gaming
+
+Fri, 17 Jul 2026 00:45:15 GMT
+
+https://www.cbr.com/best-dnd-adventures-set-in-forgotten-realms/
+
+The Forgotten Realms is one of D&amp;D's most recognizable worlds, and there are plenty of adventures to be had from Baldur's Gate to Chult!
+---------
+
+# In Just 2 Days, Timothy Olyphant's New Crime Series Based on Hit Novel Is Officially the Most-Watched Show in the U.S.
+
+TV, Lucky, Apple TV, Crime
+
+Fri, 17 Jul 2026 00:30:15 GMT
+
+https://www.cbr.com/lucky-crime-apple-tv-success-july-2026/
+
+Apple TV's new crime series, Lucky, is an instant hit, becoming the most watched Apple TV show in the U.S.
+---------
+
+# 5 Biggest Spider-Man Villains Still Missing From the MCU
+
+Movies, Marvel Cinematic Universe
+
+Fri, 17 Jul 2026 00:30:15 GMT
+
+https://www.cbr.com/5-biggest-spider-man-villains-still-missing-from-the-mcu/
+
+Tom Holland's version of Peter Parker has faced more supervillains than any other, but some of his greatest enemies are still absent from the MCU.
+---------
+
+# Say Goodbye to HBO as the King of Space Opera TV as Amazon Prepares to Bury Dune: Prophecy
+
+TV, HBO Max, Prime Video, Sci-Fi
+
+Fri, 17 Jul 2026 00:30:15 GMT
+
+https://www.cbr.com/prime-video-captives-war-vs-hbo-dune-prophecy-comparison/
+
+Prime Video's upcoming sci-fi series is set to cement the streamer as the king of space-opera TV, taking on competition from HBO.
+---------
+
+# Crunchyroll Removes Black Lagoon, Blood Blockade Battlefront and Grimgar From Streaming
+
+Anime, Crunchyroll, Black Lagoon, Grimgar, Ashes and Illusions, Blood Blockade Battlefront, Funimation
+
+Fri, 17 Jul 2026 00:20:16 GMT
+
+https://www.cbr.com/crunchyroll-black-lagoon-grimgar-blood-blockade-battlefront-remove/
+
+Crunchyroll is once again facing backlash for removing anime from its platform without any warning.
+---------
+
+# 10 Ways Gojo Changed Jujutsu Society Forever
+
+Anime, Jujutsu Kaisen, Shonen, shonen anime
+
+Fri, 17 Jul 2026 00:15:15 GMT
+
+https://www.cbr.com/satoru-gojo-changed-jujutsu-society-forever/
+
+Satoru Gojo's influence on Jujutsu Kaisen extends far beyond his title as the strongest sorcerer of the modern era.
+---------
+
+# Matt Damon's Heavily Underseen Crime Comedy Is Making a Streaming Comeback at the Right Time
+
+Movies, The Instigators, The Odyssey, Crime
+
+Fri, 17 Jul 2026 00:00:15 GMT
+
+https://www.cbr.com/matt-damon-the-instigators-crime-comedy-apple-tv-success-july-2026/
+
+Matt Damon's crime comedy, The Instigators, is rising on the Apple TV charts ahead of his starring role in Christopher Nolan's The Odyssey.
+---------
+
+# In Just 1 Day, Prime Video's Near-Perfect New 8-Part Action Adventure Shoots Straight to No. 2 in the U.S.
+
+TV, Ride or Die, Prime Video, Action-Adventure
+
+Fri, 17 Jul 2026 00:00:15 GMT
+
+https://www.cbr.com/ride-or-die-action-success-prime-video-july-2026/
+
+Prime Video's new action adventure buddy comedy, Ride or Die, becomes the No. 2 most watched TV show on Prime Video, just one day after its release.
+---------
+
+# Paramount's Nightmare on Elm Street Reboot Is the Horror Event of the Decade
+
+Movies, A Nightmare on Elm Street, freddy kreuger
+
+Fri, 17 Jul 2026 00:00:15 GMT
+
+https://www.cbr.com/nightmare-on-elm-street-reboot-horror-event-of-the-decade/
+
+The return of Freddy Krueger could use nostalgia in a good way while building upon the franchise's roots and the progression of horror movies.
+---------
+
+# Rainbow Rowell On Her Official Marvel Return to the Runaways
+
+Comics, Runaways
+
+Thu, 16 Jul 2026 23:37:53 GMT
+
+https://www.cbr.com/rainbow-rowell-marvel-runaways-what-if-interview/
+
+In a CBR exclusive interview with Rainbow Rowell, the longtime Runaways writers discusses returning to the characters for a What If...? special
+---------
+
+# Horror's Most Sadistic Franchise Is Officially Back
+
+Gaming News, Saw, Horror, Gaming
+
+Fri, 17 Jul 2026 00:30:15 GMT
+
+https://collider.com/saw-prequel-genesis-closed-beta-july-2026/
+
+The Saw franchise is finally back after a 3-year hiatus, with the newest prequel taking place over 100 years before the rise of Jigsaw.
+---------
+
+# 'House of the Dragon' Has Officially Beat 'Game of Thrones' at Its Own Game
+
+TV Features, House of the Dragon, Game Of Thrones, HBO, HBO Max
+
+Fri, 17 Jul 2026 00:13:15 GMT
+
+https://collider.com/house-of-the-dragon-season-3-dragons-rider-bond-game-of-thrones/
+
+House of the Dragon surpasses Game of Thrones in its portrayal of dragons, giving them distinct personalities and strong bonds with their riders.
+---------
+
+# Everyone Was Wrong About Keanu Reeves in 'Bram Stoker's Dracula'
+
+Movie Features, Bram Stoker's Dracula, Keanu Reeves, Francis Ford Coppola, Horror
+
+Fri, 17 Jul 2026 00:11:15 GMT
+
+https://collider.com/keanu-reeves-bram-stokers-dracula/
+
+Though many people think that Keanu Reeves ruined Bram Stoker's Dracula, his take on the character of Jonathan Harker is more memorable than most.
+---------
+
+# Paramount+’s Cult Classic Sleeper Hit Will Not Return for Season 4
+
+TV News, Paramount Plus, Colin from Accounts, CBS, Comedy
+
+Fri, 17 Jul 2026 00:00:15 GMT
+
+https://collider.com/paramount-plus-colin-from-accounts-season-4-cancelled/
+
+Discover the confirmed premiere date for Colin From Accounts Season 3 and learn if this beloved Paramount+ comedy series will have a Season 4.
+---------
+
+# Christopher Nolan's 'The Odyssey' Ending Explained
+
+Movie Features, The Odyssey, Christopher Nolan, Matt Damon, Zendaya
+
+Thu, 16 Jul 2026 23:55:15 GMT
+
+https://collider.com/the-odyssey-ending-explained-christopher-nolan/
+
+Matt Damon stars as Greek hero Odysseus in the long-awaited fantasy epic from Oppenheimer director Christopher Nolan.
+---------
+
+# 8 Fantasy Show Endings That Are Genuine Masterpieces
+
+TV, Fantasy, Avatar: The Last Airbender, Gravity Falls, Buffy The Vampire Slayer
+
+Thu, 16 Jul 2026 23:39:15 GMT
+
+https://collider.com/fantasy-show-endings-masterpieces/
+
+It's an achievement to end a series well, but fantasy shows like Avatar: The Last Airbender and Gravity Falls have endings that are true masterpieces.
+---------
+
+# ‘Kingdom Hearts 4’ Gets Its Biggest Update in 4 Years
+
+Gaming News, Kingdom Hearts III, Disney, D23, Fantasy
+
+Thu, 16 Jul 2026 23:30:15 GMT
+
+https://collider.com/kingdom-hearts-4-d23-panel-august-2026/
+
+Kingdom Hearts is officially coming to D23, where news on the franchise's highly anticipated next chapter is expected to be revealed.
+---------
+
+# Sydney Sweeney's R-Rated Streaming Smash Getting All-New Release
+
+TV News, Sydney Sweeney, Euphoria
+
+Fri, 17 Jul 2026 00:43:49 GMT
+
+https://movieweb.com/euphoria-behind-the-scenes-special-hbo/
+
+HBO Max is revisiting 'Euphoria' with a new retrospective special.
+---------
+
+# Matt Damon Reveals the Six Words That Revived Ridley Scott's Epic Sci-Fi
+
+Movie News, The Martian, Matt Damon, Ridley Scott
+
+Fri, 17 Jul 2026 00:34:10 GMT
+
+https://movieweb.com/ridley-scott-the-martian-matt-damon-casting-reaction/
+
+The actor confirms the advice that prevented him from dropping out of the movie completely.
+---------
+
+# Long-Awaited 'God of War' Series Filming Paused After Severe Cast Member Injury
+
+TV News, God of War
+
+Fri, 17 Jul 2026 00:24:46 GMT
+
+https://movieweb.com/god-of-war-series-ryan-hurst-injury/
+
+Amazon MGM Studios' 'God of War' series had to pause filming after one of its main cast members was seriously injured on set.
+---------
+
+# The 10 Best Erotic Movies of the '90s
+
+Movie Lists, The Last Seduction
+
+Fri, 17 Jul 2026 00:00:12 GMT
+
+https://movieweb.com/best-erotic-movies-90s/
+
+The 1990s marked one of the most exciting time periods for the erotic film genre, and these 10 movies highlight just that.
+---------
+
+# I Saw 'The Odyssey' In Christopher Nolan's Favorite Format - Was It Worth It?
+
+Features, The Odyssey
+
+Thu, 16 Jul 2026 23:51:44 GMT
+
+https://movieweb.com/christopher-nolan-odyssey-imax-70mm-format-guide/
+
+'The Odyssey' is finally here, and Christopher Nolan has widely expressed his preference for IMAX 70mm. Is it actually worth it?
+---------
+
 # Liam Neeson's New 99-Minute "Gooey Splatter" Sci-Fi Surges On Streaming After Quiet Theatrical Run
 
 Movies, Masked Recs
