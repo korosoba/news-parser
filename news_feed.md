@@ -1,3 +1,289 @@
+# Paramount+'s 4-Part Elite Crime Thriller Breaks Major Record Ahead Of Intense Finale
+
+Network TV, Criminal Minds
+
+Fri, 17 Jul 2026 15:45:11 GMT
+
+https://screenrant.com/criminal-minds-paramount-plus-break-record/
+
+Criminal Minds: Evolution nearly surpasses NCIS as Paramount+'s top series, breaking a major record as it heads towards a thrilling season finale.
+---------
+
+# How Much The Odyssey Needs To Make At The Box Office To Profit
+
+New Movies, The Odyssey
+
+Fri, 17 Jul 2026 15:45:11 GMT
+
+https://screenrant.com/the-odyssey-movie-box-office-explained/
+
+Christopher Nolan's The Odyssey is expected to be a big box office performer, and here's how much it needs to make to turn a profit for Universal.
+---------
+
+# Frieda McFadden's 'The Divorce' Is A Global Goodreads Smash Hit
+
+Books, Masked Recs
+
+Fri, 17 Jul 2026 15:43:21 GMT
+
+https://screenrant.com/frieda-mcfadden-divorce-topping-goodreads-global-charts-july-2026/
+
+Frieda McFadden, author of The Housemaid, has released another smash hit, a thriller putting her on top of the charts after less than two months.
+---------
+
+# Matt Damon Reveals The Real Reason Why Jason Bourne 6 Is Taking So Long
+
+Movies, Jason Bourne, Jason Bourne 6
+
+Fri, 17 Jul 2026 15:36:28 GMT
+
+https://screenrant.com/matt-damon-jason-bourne-6-wait-edward-berger-script/
+
+After confirmed to be in development in 2023, Jason Bourne 6 has yet to materialize, and Matt Damon now shares a promising update on the project.
+---------
+
+# Clair Obscur: The Expeditioners Officially Announced
+
+Gaming, Clair Obscur: Expedition 33, PC
+
+Fri, 17 Jul 2026 15:33:45 GMT
+
+https://screenrant.com/clair-obscur-the-expeditioners-announcement/
+
+Clair Obscur: The Expeditioners is a brand-new release that fans of the now-iconic RPG will not want to sleep on.
+---------
+
+# It's The End Of An Era For Harry Potter & HBO
+
+Streaming TV, Masked Recs
+
+Fri, 17 Jul 2026 15:33:32 GMT
+
+https://screenrant.com/its-the-end-of-an-era-for-harry-potter-hbo/
+
+The Wizarding World is about to change forever thanks to HBO's bold release strategy for the upcoming small-screen return to Hogwarts.
+---------
+
+# Xbox Just Rolled Out Its Biggest System Update In Years
+
+Gaming, Xbox, Triple-A Games
+
+Fri, 17 Jul 2026 15:32:24 GMT
+
+https://screenrant.com/xbox-july-2026-system-update-12-new-features/
+
+Amid its major restructuring and lay-offs, Xbox has decided to drop an extensive console system update adding some appreciable features.
+---------
+
+# NBC's Lost Successor Was So Good, It Got 20 More Episodes After Being Canceled
+
+Network TV, Masked Recs
+
+Fri, 17 Jul 2026 15:30:11 GMT
+
+https://screenrant.com/lost-successor-manifest-20-more-episodes-after-cancellation/
+
+NBC had a Lost successor series on the air for three seasons, but when it was canceled, Netflix gave it another chance with 20 more episodes.
+---------
+
+# Nintendo Switch Online’s Next 2 GameCube Games Officially Confirmed
+
+Gaming, Nintendo, Triple-A Games, Nintendo GameCube
+
+Fri, 17 Jul 2026 15:00:11 GMT
+
+https://screenrant.com/nintendo-switch-online-next-gamecube-games-2026/
+
+Although Nintendo has released several GameCube games on Nintendo Switch Online so far, there are still two more to come.
+---------
+
+# Martin Scorsese's Scene-Stealing Role In The Mandalorian And Grogu Explained
+
+Exclusive, The Mandalorian and Grogu, Star Wars, Martin Scorsese
+
+Fri, 17 Jul 2026 15:00:11 GMT
+
+https://screenrant.com/video/the-mandalorian-grogu-martin-scorsese-casting-clip/
+
+Exclusive: ScreenRant presents a clip from The Mandalorian and Grogu, in which Pedro Pascal and Jon Favreau discuss the casting of Martin Scorsese.
+---------
+
+# Hatsune Miku Returns With New Summer Game Release Across PlayStation, Xbox, Switch & PC
+
+Anime, Hatsune Miku
+
+Fri, 17 Jul 2026 15:30:30 GMT
+
+https://www.cbr.com/hatsune-miku-logic-paint-summer-2026-update/
+
+Hatsune Miku Logic Paint S+ is ringing in the summer with new seasonal DLC, complete with stylish new outfits, new items and new puzzles to beat.
+---------
+
+# Gambit's New Era Starts Before His X-Men '97 Return
+
+Comics, X-Men, Gambit, X-Men '97
+
+Fri, 17 Jul 2026 15:17:50 GMT
+
+https://www.cbr.com/gambit-wanted-return-x-men-97-exclusive-preview/
+
+In a CBR exclusive preview of Gambit: Wanted #1, see the Cajun X-Man in action in a lost story set after he first joined the X-Men
+---------
+
+# 10 Anime Heroes Who Deserved Better Endings
+
+Anime, Attack On Titan, Naruto: Shippuden, Chainsaw Man, Puella Magi Madoka Magica, Jujutsu Kaisen, Bungo Stray Dogs, Code Geass: Lelouch of the Rebellion, JoJo's Bizarre Adventure, Fullmetal Alchemist: Brotherhood
+
+Fri, 17 Jul 2026 15:15:15 GMT
+
+https://www.cbr.com/anime-heroes-deserved-better-endings/
+
+From rushed writing to cruel endings, these anime heroes deserved better than what their fate had in store for them.
+---------
+
+# Fallout 5 & New Vegas Remaster Officially Announced By Bethesda
+
+Games, Fallout, Fallout New Vegas, Bethesda Softworks
+
+Fri, 17 Jul 2026 15:10:15 GMT
+
+https://www.cbr.com/fallout-5-new-vegas-remaster-officially-announced-bethesda/
+
+Bethesda officially announced that Fallout 5 is in development, along with remasters of Fallout 3 and Fallout: New Vegas, but don't expect them soon.
+---------
+
+# 9 Darkest Anime Endings of All Time
+
+Anime, Puella Magi Madoka Magica, Berserk, Mobile Suit Gundam
+
+Fri, 17 Jul 2026 15:01:14 GMT
+
+https://www.cbr.com/darkest-anime-endings-of-all-time/
+
+Endings aren't easy, but anime like Space Runaway Ideon and Wolf's Rain build to dark, disturbing finales that audiences aren't likely to forget.
+---------
+
+# Final Fantasy Officially Shuts Down Another Game This September
+
+Games, Final Fantasy, final fantasy xiv, Square Enix
+
+Fri, 17 Jul 2026 14:30:15 GMT
+
+https://www.cbr.com/final-fantasy-mmorpg-shutting-down-september-official/
+
+Another Square Enix game bites the dust, as a Final Fantasy MMORPG is shutting down, with fans losing access to the game in September 2026.
+---------
+
+# 4 High-Concept Sci-Fi Shows That Are 10/10 Masterpieces
+
+TV, Sci-Fi, The Expanse, Battlestar Galactica
+
+Fri, 17 Jul 2026 14:30:15 GMT
+
+https://www.cbr.com/best-high-concept-sci-fi-series-list/
+
+Some sci-fi shows, like Battlestar Galactica and Dark, are so novel that it would be a gift to watch them again for the first time.
+---------
+
+# ‘Reacher’ Is Officially Back With First Look at Season 4
+
+TV News, Reacher, Alan Ritchson, Prime Video, Lee Child
+
+Fri, 17 Jul 2026 15:37:53 GMT
+
+https://collider.com/reacher-season-4-first-look-poster-alan-ritchson/
+
+See Alan Ritchson’s return as Jack Reacher in the first look at Reacher Season 4, premiering August 12 on Prime Video.
+---------
+
+# Fallout Is Entering Its Biggest Era Yet
+
+Gaming News, Fallout, Fallout 76, Bethesda, Fallout Shelter
+
+Fri, 17 Jul 2026 15:09:21 GMT
+
+https://collider.com/fallout-3-new-vegas-remasters-confirmed-fallout-5-update/
+
+Bethesda officially confirms ‘Fallout 3’ and ‘Fallout: New Vegas’ remasters are in development, alongside new plans for ‘Fallout 5’ and ‘Fallout 76.’
+---------
+
+# Jason Statham's All-Star Action Masterpiece Is Finally on Free Streaming
+
+Movie, Jason Statham, The Expendables, Streaming, Pluto TV
+
+Fri, 17 Jul 2026 14:57:20 GMT
+
+https://collider.com/jason-statham-movie-streaming-free-watch-the-expendables/
+
+After leaving Netflix, Sylvester Stallone and Jason Statham movie The Expendables is blowing up on Paramount's Pluto TV.
+---------
+
+# 15 Years After ‘Skyrim,’ The Next Elder Scrolls Game Is Officially Confirmed
+
+Gaming News, The Elder Scrolls V: Skyrim, Bethesda, The Elder Scrolls, Elder Scrolls Online
+
+Fri, 17 Jul 2026 14:56:54 GMT
+
+https://collider.com/elder-scrolls-6-confirmed/
+
+15 years after Skyrim, Bethesda Game Studios confirms that the next Elder Scrolls game is officially in development. Get the details.
+---------
+
+# Alan Ritchson Officially Returns as 'Reacher' in First Look at Season 4
+
+TV News, Reacher, Alan Ritchson
+
+Fri, 17 Jul 2026 15:24:48 GMT
+
+https://movieweb.com/alan-ritchson-reacher-season-4-first-look/
+
+'Reacher' is officially back for more action in the first look at Season 4.
+---------
+
+# Netflix's 6-Part Crime Thriller Is Officially 2026's Most-Streamed Series
+
+TV News, His & Hers, Hot on Streaming, Crime, Thriller, Netflix
+
+Fri, 17 Jul 2026 15:08:27 GMT
+
+https://movieweb.com/his-and-hers-netflix-crime-thriller-biggest-series-streaming-july-2026/
+
+Netflix has officially unveiled its most-watched movies and TV shows of the year, and Jon Bernthal's 6-part crime thriller is at the top of the list.
+---------
+
+# Prime Video's New 'The Rings of Power' Replacement Scores Big on Streaming
+
+TV News, From Old Country Bumpkin to Master Swordsman, Prime Video, Hot on Streaming, The Lord of the Rings: The Rings of Power, Fantasy
+
+Fri, 17 Jul 2026 15:00:12 GMT
+
+https://movieweb.com/old-country-bumpkin-to-master-swordsman-fantasy-stream-prime-july-2026/
+
+Prime Video's new fantasy series 'From Old Country Bumpkin' rivals 'The Rings of Power,' as it's a major streaming success.
+---------
+
+# Brenda Fricker, Oscar Winner and 'Home Alone's Pigeon Lady, Dies at 81
+
+Movie News, Home Alone 2: Lost in New York, Brenda Fricker
+
+Fri, 17 Jul 2026 14:55:32 GMT
+
+https://movieweb.com/brenda-fricker-dies-aged-81/
+
+Academy Award-winner Brenda Fricker, best known as the pigeon lady from 'Home Alone,' passed away at the age of 81.
+---------
+
+# Alan Ritchson's Netflix Sci-Fi Action Thriller Is Officially 2026's Biggest Streaming Movie
+
+Movie News, Alan Ritchson, War Machine, Action, Sci-Fi, Thriller, Netflix
+
+Fri, 17 Jul 2026 14:34:38 GMT
+
+https://movieweb.com/ala-ritchson-war-machine-netflix-biggest-stream-july-2026/
+
+The 'Reacher' star has cemented his reputation as one of the best action heroes in the business.
+---------
+
 # The Elder Scrolls 6 Official Teaser Revealed By Bethesda
 
 Gaming, The Elder Scrolls 6, PC, The Elder Scrolls, Bethesda
