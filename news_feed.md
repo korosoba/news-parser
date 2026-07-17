@@ -1,3 +1,190 @@
+# 8 Movie Monsters Stronger Than Godzilla
+
+Movies, Godzilla
+
+Fri, 17 Jul 2026 22:00:12 GMT
+
+https://screenrant.com/movie-monsters-stronger-than-godzilla/
+
+Godzilla might be "the king of the monsters" but he is not the strongest movie monster of all time, even being beaten by other Monsterverse characters
+---------
+
+# Avengers' New Era Officially Begins September 16, Marvel Confirms
+
+Comics, The Avengers
+
+Fri, 17 Jul 2026 22:00:12 GMT
+
+https://screenrant.com/avengers-new-era-officially-begins-september-16/
+
+September 16 will introduce the first clue of what's next.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (July 18-19)
+
+Movies, Prime Video, Recommendation
+
+Fri, 17 Jul 2026 21:50:22 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-july-18/
+
+Prime Video subscribers looking for the best movies will find them in a chilling horror, an action-packed zombie film, and a stunning sci-fi thriller.
+---------
+
+# The Odyssey Interviews with Christopher Nolan, Matt Damon, Lupita Nyong'o, Himesh Patel & More
+
+Videos, The Odyssey, Christopher Nolan, Anne Hathaway, Matt Damon
+
+Fri, 17 Jul 2026 21:39:50 GMT
+
+https://screenrant.com/video/the-odyssey-christopher-nolan-lupita-nyongo-himesh-patel-interview/
+
+Christopher Nolan, Anne Hathaway, Lupita Nyong'o, Himesh Patel, and more cast members react to the biggest changes from The Odyssey's poem to movie.
+---------
+
+# Prime Video Is The Best Home For Fantasy Fans
+
+Streaming TV, Masked Recs
+
+Fri, 17 Jul 2026 21:39:11 GMT
+
+https://screenrant.com/critical-role-prime-video-best-tv-fantasy-universe/
+
+HBO might have Game of Thrones and its spinoffs, but Prime Video is home to the best fantasy franchise on TV: the Critical Role universe.
+---------
+
+# Netflix’s 8-Part Magical Realist Masterpiece Gets Even Better Ahead Of Season 2
+
+TV, Masked Recs
+
+Fri, 17 Jul 2026 21:30:12 GMT
+
+https://screenrant.com/netflixs-8-part-magical-realist-masterpiece-gets-even-better-ahead-of-season-2/
+
+2 years after its initial release, Netflix's adaptation of an all-time great novel is back with an even bigger cast, and looks to be better than ever.
+---------
+
+# Mark Harmon’s NCIS Return Gets Exciting First Look For Massive Crossover Event
+
+TV, NCIS, NCIS: Origins
+
+Fri, 17 Jul 2026 21:18:44 GMT
+
+https://screenrant.com/ncis-mark-harmon-return-first-look-crossover-event/
+
+Mark Harmon returns to NCIS: Origins for its upcoming third season alongside several familiar faces in an exiting new first look.
+---------
+
+# The Wheel of Time Officially Returns With New Story Next Year
+
+Games, The Wheel of Time
+
+Fri, 17 Jul 2026 22:10:15 GMT
+
+https://www.cbr.com/wheel-of-time-official-return-2027-new-story/
+
+The Wheel of Time fans can officially look forward to another new entry in their favorite fantasy franchise, and it's not all that far off.
+---------
+
+# DC's New Hulk Is a Nightmare Unlike Anything Marvel Has Created
+
+Comics, DC Comics, Hulk, The Incredible Hulk, Marvel, Marvel Comics, MCU
+
+Fri, 17 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/dc-new-hulk-solomon-grundy-is-a-nightmare-unlike-anything-marvel-has-created/
+
+Not even the Hulk would look forward to facing this horrifying DC Comics creature.
+---------
+
+# Netflix's New Steven Spielberg Dinosaur Show Was a Certified Streaming Hit After 100% RT
+
+TV, The Dinosaurs, Netflix, steven spielberg
+
+Fri, 17 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/the-dinosaurs-steven-spielberg-docuseries-netflix-success-july-2026/
+
+Steven Spielberg's dinosaur documentary series hits over 31 million views on Netflix, with a 100% Rotten Tomatoes score.
+---------
+
+# Netflix's The Paradise Murders Is the Greatest Guilty Pleasure Movie
+
+Movies, Netflix
+
+Fri, 17 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/netflix-paradise-murders-greatest-guilty-pleasure-movie-streaming/
+
+The unexpected hit has shocked and puzzled audiences, but many are viewing it with the wrong perspective.
+---------
+
+# Rings of Power Season 3 Confirms a Huge Change to Tolkien's Lord of the Rings Timeline
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Fantasy, Prime Video
+
+Fri, 17 Jul 2026 21:51:14 GMT
+
+https://www.cbr.com/prime-video-rings-of-power-season-3-lord-of-the-rings-timeline-change/
+
+The Lord of the Rings: The Rings of Power Season 3 is about to make a massive change to J.R.R. Tolkien's original lore.
+---------
+
+# 7 Most Disturbing Sci-Fi Anime of the 2000s
+
+Anime, Gantz, Ergo Proxy, Sci-Fi
+
+Fri, 17 Jul 2026 21:15:15 GMT
+
+https://www.cbr.com/most-disturbing-sci-fi-anime-2000s/
+
+Anime and sci-fi have a rich relationship, but titles like Ergo Proxy and Gantz push the genre to dark and disturbing places.
+---------
+
+# The First-Ever Agatha Christie Adaptation Became a Real-Life Mystery
+
+Movie Features, Agatha Christie, Agatha Christie's Seven Dials, Murder on the Orient Express, Kenneth Branagh
+
+Fri, 17 Jul 2026 21:59:15 GMT
+
+https://collider.com/the-passing-of-mr-quin-lost-agatha-christie-movie/
+
+The Passing of Mr. Quin was Agatha Christie's first movie adaptation, but the 1928 silent film has vanished and may be lost forever.
+---------
+
+# 3 Fantastic Movies To Watch on Prime Video This Weekend (July 18-19)
+
+Movie, The Amateur, Do Not Enter, A Fish Called Wanda, Prime Video
+
+Fri, 17 Jul 2026 21:48:15 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-july-18-2026/
+
+Do Not Enter, The Amateur, and A Fish Called Wanda make up our list of the best movies to watch on Prime Video the weekend of July 18, 2026.
+---------
+
+# 10 Best Spy Video Games of All Time
+
+Video Games, Video Game, Hitman 3, 007 First Light, Call of Duty: Black Ops Cold War
+
+Fri, 17 Jul 2026 21:35:15 GMT
+
+https://collider.com/best-spy-video-games-all-time-ranked/
+
+From Metal Gear Solid V: The Phantom Pain, to 007 First Light, to Splinter Cell: Blacklist, these spy games perfected the art of espionage.
+---------
+
+# Starz Releases Teaser for Prequel to 4-Part Crime Thriller Series
+
+TV News, Power, STARZ
+
+Fri, 17 Jul 2026 21:45:25 GMT
+
+https://movieweb.com/power-origins-starz-prequel-teaser/
+
+Starz has released a teaser and new photos for 'Power: Origins,' offering a first glimpse of Spence Moore as Ghost and Charlie Mann as Tommy.
+---------
+
 # One Of The Most Divisive Hercule Poirot Adaptations Is Dominating Multiple New Netflix Releases
 
 Movies, Masked Recs, Hercule Poirot
@@ -5309,191 +5496,4 @@ Thu, 16 Jul 2026 15:01:15 GMT
 https://collider.com/taylor-sheridan-lioness-season-3-trailer-release-date-august-2026/
 
 Paramount has released the first official trailer for Lioness Season 3, confirming that the Taylor Sheridan-produced series will return on August 2.
----------
-
-# Alan Ritchson's New Action Movie Is Officially ‘Reacher’ Meets ‘Fast & Furious’
-
-TV News, Runner, Alan Ritchson, Owen Wilson, Action
-
-Thu, 16 Jul 2026 15:00:43 GMT
-
-https://collider.com/runner-trailer-alan-ritchson-owen-wilson/
-
-Watch Alan Ritchson and Owen Wilson race to save a child while battling a ruthless cartel in the first trailer for Runner, in theaters September 11.
----------
-
-# Taylor Sheridan's Best Action Thriller Finally Returns in Explosive New Trailer
-
-TV News, Taylor Sheridan, Lioness
-
-Thu, 16 Jul 2026 15:17:03 GMT
-
-https://movieweb.com/taylor-sheridan-lioness-season-3-trailer-paramount/
-
-The best Taylor Sheridan action series is finally back in the explosive official trailer for 'Lioness' Season 3.
----------
-
-# Gal Gadot Gets Her Own 'Taken' in First Trailer for High-Stakes Thriller
-
-Movie News, Gal Gadot
-
-Thu, 16 Jul 2026 15:16:37 GMT
-
-https://movieweb.com/the-runner-gal-gadot-first-trailer/
-
-Gal Gadot stars in an exciting new thriller movie, taking the spotlight in a first trailer that brings memories of 'Taken.'
----------
-
-# Andrew Garfield Is a One-Man Army in First Trailer for 'Bourne' Director's New Historical Epic
-
-Movie News, The Uprising, Andrew Garfield, Paul Greengrass
-
-Thu, 16 Jul 2026 15:14:44 GMT
-
-https://movieweb.com/the-uprising-trailer/
-
-Focus Features has released the first trailer for 'The Uprising,' a historical action epic directed by Paul Greengrass and starring Andrew Garfield.
----------
-
-# 42 Years Later, One of the Definitive 80s Action Movies Finally Sets New Release
-
-Movie News, Beverly Hills Cop, Eddie Murphy
-
-Thu, 16 Jul 2026 15:05:07 GMT
-
-https://movieweb.com/beverly-hills-cop-4k-blu-ray-release/
-
-Paramount Home Entertainment is preparing a Limited Edition 4K Ultra HD Blu-ray Steelbook for Eddie Murphy's 1984 action classic 'Beverly Hills Cop.'
----------
-
-# 'Scrubs' Season 2's Returning Character Can Finally Pay Off 17-Year-Old Twist
-
-Features, Scrubs
-
-Thu, 16 Jul 2026 15:00:12 GMT
-
-https://movieweb.com/scrubs-season-2-kelso-cox-friends/
-
-Dr. Kelso was missing from the 'Scrubs' revival's inaugural run, but now there's a perfect reason for his return. Read on for more.
----------
-
-# New 'Superman' Spin-Off Officially Casts One of DC's Greatest Villains
-
-TV News, Man of Tomorrow, Superman
-
-Thu, 16 Jul 2026 14:52:10 GMT
-
-https://movieweb.com/superman-spin-off-jimmy-tatro-gorilla-grodd-cast/
-
-The Jimmy Olsen-focused 'Superman' spin-off has landed its first major villain.
----------
-
-# Will Ferrell's New Netflix Series Debuts With Jaw-Dropping Rotten Tomatoes Score
-
-TV News, The Hawk, Will Ferrell, Netflix
-
-Thu, 16 Jul 2026 14:46:58 GMT
-
-https://movieweb.com/will-ferrell-the-hawk-rotten-tomatoes-score/
-
-Will Ferrell is back on Netflix with a new show, but its initial Rotten Tomatoes score may come as a shock.
----------
-
-# Matt Reeves Confirms New Batsuit Design Change For The Batman 2
-
-Movies, The Batman Part II
-
-Thu, 16 Jul 2026 14:23:39 GMT
-
-https://screenrant.com/the-batman-2-batsuit-ears-change-matt-reeves-confirm/
-
-In a new post on social media, Matt Reeves confirms that viewers will be seeing an altered Batsuit on Robert Pattinson in The Batman Part II.
----------
-
-# The Rookie Sets Chenford Surprise Ahead Of Season 9
-
-Network TV, The Rookie
-
-Thu, 16 Jul 2026 14:22:35 GMT
-
-https://screenrant.com/the-rookie-season-8-extended-lucy-tim-surprise/
-
-The Rookie creator Alexi Hawley announces an extended release of season 8 episode 10 on Hulu, focusing on Tim and Lucy's emotional journey.
----------
-
-# The Legend of Zelda Confirms Three Huge New Reveals Coming Next Week
-
-Gaming, The Legend of Zelda, PC
-
-Thu, 16 Jul 2026 14:21:44 GMT
-
-https://screenrant.com/legend-of-zelda-hasbro-license-comic-con-reveals-confirmed/
-
-The Legend of Zelda is officially set to reveal three new releases next week, continuing the 40th anniversary celebration in style.
----------
-
-# Will Ferrell’s New Netflix Series Debuts With All-Time Career Rotten Tomatoes Record
-
-TV, Masked Recs, Netflix, Will Ferrell
-
-Thu, 16 Jul 2026 14:04:59 GMT
-
-https://screenrant.com/netflix-the-hawk-rotten-tomatoes-score-debut/
-
-Will Ferrell is back with a new big comedy series, this time on Netflix, as his 2026 TV show has officially landed its Rotten Tomatoes score.
----------
-
-# Red Dead Redemption 2 Free Download Officially Available Until July 20
-
-Gaming, Red Dead Redemption 2, Red Dead Redemption
-
-Thu, 16 Jul 2026 14:00:11 GMT
-
-https://screenrant.com/red-dead-redemption-2-free-download-online-july-20/
-
-We might not be getting another Red Dead Redemption game for a long while yet, but there's still plenty going on in the most recent release.
----------
-
-# Netflix Is Losing A Major Anime Franchise On August 1st
-
-Anime, Netflix
-
-Thu, 16 Jul 2026 14:00:11 GMT
-
-https://screenrant.com/netflix-losing-fate-last-encore-anime-august-1/
-
-Netflix may be home to some of anime's greatest, but on August 1st Netflix loses an entry in one of the most iconic anime franchises of all time.
----------
-
-# Pokémon Winds & Waves Is Breaking The Series’ Biggest 30-Year Rule
-
-Gaming, Pokemon Winds and Waves, Pokemon, Triple-A Games
-
-Thu, 16 Jul 2026 13:40:16 GMT
-
-https://screenrant.com/pokemon-winds-waves-breaking-series-30-year-rule/
-
-A new set of leaks regarding Pokémon Winds and Waves suggests that the Gen 10 games are going to have a massive change to the battle system.
----------
-
-# Marvel Officially Debuts Cyclops Redesign with Shaved Head and Beard
-
-Comics, X-Men
-
-Thu, 16 Jul 2026 13:30:11 GMT
-
-https://screenrant.com/x-men-cyclops-redesign-midnight/
-
-Looking hardcore, Cyke!
----------
-
-# GTA Online's Future Officially Confirmed Ahead Of GTA 6 Launch
-
-Gaming, Grand Theft Auto 6, Grand Theft Auto Online, Grand Theft Auto, PC
-
-Thu, 16 Jul 2026 13:15:40 GMT
-
-https://screenrant.com/gta-online-future-confirmed-gta-6/
-
-Rockstar has officially confirmed the future of GTA Online in a new update announcement, with new seasonal content planned ahead of GTA 6's launch.
 ---------
