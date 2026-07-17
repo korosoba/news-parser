@@ -1,3 +1,47 @@
+# McDonald's Teases New Pokémon Happy Meals, But Expect Them To Sell Out Fast
+
+Gaming, Pokemon, Pokemon GO, Pokémon GO, pokemon lets go pikachu
+
+Fri, 17 Jul 2026 07:52:43 GMT
+
+https://screenrant.com/pokemon-happy-meals-returning-mcdonalds-japan-2026/
+
+McDonald's 'Pokémon Summer Mac' campaign in Japan, celebrating Pokémon's 30-year anniversary with exclusive items, game tie-ins  and promotions.
+---------
+
+# Heartstopper Forever Review: A Satisfying Finale For One Of Netflix’s Best Coming-Of-Age Stories
+
+New Movies, Heartstopper Forever
+
+Fri, 17 Jul 2026 07:01:12 GMT
+
+https://screenrant.com/heartstopper-forever-movie-review/
+
+Heartstopper Forever reunites Joe Locke and Kit Connor one last time in a heartfelt film that gives Netflix's beloved romance a fitting goodbye.
+---------
+
+# ‘Gundam’ Meets ‘Godzilla’ in Idris Elba’s Sci-Fi Epic Quietly Crushing the Competition
+
+Movie News, Pacific Rim, Guillermo del Toro, Science Fiction, Action
+
+Fri, 17 Jul 2026 09:00:15 GMT
+
+https://collider.com/pacific-rim-streaming-top-vudu-10-july-2026/
+
+Guillermo del Toro’s Pacific Rim, starring Idris Elba and Charlie Day, has returned to streaming charts 13 years after its original release.
+---------
+
+# Netflix Has Quietly Released the Most Spellbinding Fantasy Epic of 2026 | Review
+
+TV Reviews, The East Palace, Netflix, Fantasy
+
+Fri, 17 Jul 2026 08:00:15 GMT
+
+https://collider.com/the-east-palace-netflix-review/
+
+Netflix's The East Palace combines stunning visuals, a star-studded cast, and a gripping storyline for an unmissable dark fantasy experience.
+---------
+
 # Magic: The Gathering As We Know It Is Over
 
 Gaming, Magic: The Gathering, tabletop games
