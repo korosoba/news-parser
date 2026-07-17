@@ -1,3 +1,300 @@
+# It's The Start Of An Era For Alan Ritchson's 3-Part Prime Video Series
+
+Streaming TV, Masked Recs
+
+Fri, 17 Jul 2026 12:30:11 GMT
+
+https://screenrant.com/alan-ritchson-reacher-prime-video-franchise-expands/
+
+Reacher is the latest hit Prime Video show to get expanded into a larger franchise, with a succession of spinoffs set in the same universe.
+---------
+
+# New Fantastic Four Logo Officially Unveiled by Marvel
+
+Comics, Fantastic Four
+
+Fri, 17 Jul 2026 12:30:11 GMT
+
+https://screenrant.com/new-fantastic-four-logo-costumes-redesign-midnight/
+
+Light meets darkness in new logo.
+---------
+
+# The Odyssey Doesn't Have A Post-Credits Scene, But You'll Regret Leaving Early
+
+New Movies, The Odyssey
+
+Fri, 17 Jul 2026 12:30:11 GMT
+
+https://screenrant.com/the-odyssey-movie-post-credits-sceney/
+
+Christopher Nolan's The Odyssey might not have a post-credits scene at the end of its nearly 3-hour runtime, but there's another reason to stay.
+---------
+
+# GTA Online Is Completely Free Until July 21
+
+Gaming, Grand Theft Auto Online, Grand Theft Auto
+
+Fri, 17 Jul 2026 12:26:51 GMT
+
+https://screenrant.com/gta-online-free-trial-limited-time/
+
+Grand Theft Auto Online is completely free to play right now, and you'll have until July 21 to play at no additional cost on multiple systems.
+---------
+
+# 10 Disney Lorcana: Attack Of The Vine! Cards Worth The Most Money
+
+Gaming, Disney Lorcana
+
+Fri, 17 Jul 2026 12:00:12 GMT
+
+https://screenrant.com/disney-lorcana-attack-of-the-vine-cards-worth-most-money/
+
+Explore the most valuable cards in the new Disney Lorcana: Attack of the Vine! expansion, including rare Enchanted and Iconic versions.
+---------
+
+# Avatar: The Last Airbender Returns With A New Movie In 1 Week
+
+Movies, Avatar: The Last Airbender, Avatar Aang: The Last Airbender
+
+Fri, 17 Jul 2026 12:00:12 GMT
+
+https://screenrant.com/avatar-aang-the-last-airbender-movie-return-release/
+
+A beloved show series that has remained famous for almost two decades since its release is one week away from getting a major movie update.
+---------
+
+# 16 Years Later, Doctor Who's Best Historical Episode Is Still Undefeated
+
+Classic TV, Doctor Who
+
+Fri, 17 Jul 2026 12:00:12 GMT
+
+https://screenrant.com/doctor-who-vincent-and-the-doctor-best-historical-episode/
+
+While Doctor Who's historical episodes can be hit-or-miss, this 19th-century episode is one of the best and most moving the show has ever produced.
+---------
+
+# 5 Years Later, Japan Has Found Its Answer To Squid Game With Brutal New Series
+
+Anime, Masked Recs
+
+Fri, 17 Jul 2026 12:00:12 GMT
+
+https://screenrant.com/darwin-game-japan-answer-squid-game/
+
+Squid Game may be one of the most well-known death game series in recent years from Korea, but Japan is finally releasing a new series to rival it.
+---------
+
+# GTA 6 "Trailer 2.5" Will Tide You Over Until Trailer 3
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto
+
+Fri, 17 Jul 2026 11:45:11 GMT
+
+https://screenrant.com/gta-6-new-trailer-by-fans-for-fans/
+
+The wait for the third GTA trailer goes on, but there is a way you can make it seem a little less long.
+---------
+
+# Pokémon Scarlet & Violet Limited-Time Free Download Available Until August 5
+
+Gaming, Pokemon Scarlet and Violet, Pokemon
+
+Fri, 17 Jul 2026 11:30:12 GMT
+
+https://screenrant.com/pokemon-scarlet-violet-limited-time-free-download-tera-raid/
+
+Explore the latest events in Pokémon Scarlet and Violet, including the 7-Star Magikarp Tera Raid and Mass Outbreaks.
+---------
+
+# 10 Greatest Batman One-Shot Graphic Novels of All Time
+
+Comics, Batman
+
+Fri, 17 Jul 2026 12:00:15 GMT
+
+https://www.cbr.com/greatest-batman-one-shot-graphic-novels/
+
+Sometimes, just a little of Batman goes a long way.
+---------
+
+# Marvel's Strongest Hero Unleashes a All-New Game-Changing Power
+
+Comics, comic books, Avengers, Marvel
+
+Fri, 17 Jul 2026 12:00:15 GMT
+
+https://www.cbr.com/avengers-armegeddon-2-david-cole-new-powers-confirmed/
+
+A new hero, has emerged with Sentry-level strength, joining the Avengers to face off against the Red Hulk.
+---------
+
+# The DCU Quietly Confirms The Flash Is Closer Than Ever
+
+TV, DCU, The Flash, superheroes
+
+Fri, 17 Jul 2026 11:30:15 GMT
+
+https://www.cbr.com/dcu-gorilla-grodd-sets-up-the-flash/
+
+A newly announced DCU project confirms that a fan-favorite speedster may be arriving sooner than we thought.
+---------
+
+# Fans Are Rediscovering Zack Snyder's Greek Epic Ahead of Christopher Nolan's 'The Odyssey'
+
+Movie News, 300, Zack Snyder, Gerard Butler, The Odyssey
+
+Fri, 17 Jul 2026 12:30:15 GMT
+
+https://collider.com/zack-snyder-greek-epic-300-streaming-success-vudu-july-2026/
+
+As anticipation builds for Christopher Nolan's adaptation of Homer's Odyssey, fans are revisiting Zack Snyder's 2007 historical fantasy film 300.
+---------
+
+# Avengers: Doomsday Will Continue an Unspoken MCU Tradition
+
+Movie Features, Avengers: Doomsday, Robert Downey Jr, Chris Evans, Chris Hemsworth
+
+Fri, 17 Jul 2026 12:23:14 GMT
+
+https://collider.com/avengers-doomsday-marvel-studios-tradition-recurring-cast-members/
+
+When Avengers: Doomsday hits theaters this December, it will continue a long-running trend from Marvel Studios' biggest franchise.
+---------
+
+# Jake Johnson Was "Floored" by 'Maximum Pleasure Guaranteed's Finale
+
+TV, Maximum Pleasure Guaranteed, Apple TV, Jake Johnson, The Dink
+
+Fri, 17 Jul 2026 12:04:14 GMT
+
+https://collider.com/maximum-pleasure-guaranteed-finale-jake-johnson-the-dink-interview/
+
+Jake Johnson talks about how shocked he was by Maximum Pleasure Guaranteed's finale, what he would want in a Season 2, and his new comedy, The Dink.
+---------
+
+# Netflix's Stellar 'Yellowstone' Replacement Officially Returns in Just 1 Week
+
+TV News, Ransom Canyon, Josh Duhamel, Minka Kelly, Yellowstone
+
+Fri, 17 Jul 2026 12:00:15 GMT
+
+https://collider.com/ransom-canyon-netflix-yellowstone-dupe-season-2-release-date-july-23-2026/
+
+Netflix's Yellowstone replacement, the neo-Western drama Ransom Canyon, is all set to return with a new season this week. Find out more.
+---------
+
+# ‘Cape Fear’ Showrunner Breaks Down the Shocking Episode 8 Reveal That Changes Everything
+
+Exclusives, Apple TV, Cape Fear, Javier Bardem, Nick Antosca
+
+Fri, 17 Jul 2026 12:00:15 GMT
+
+https://collider.com/cape-fear-episode-8-ending-breakdown-reveal-showrunner-explains/
+
+Cape Fear showrunner Nick Antosca explains Episode 8, Anna and Max’s past, and the dismantling of the Bowden family.
+---------
+
+# 10 Pointless Movie Remakes That Had No Reason To Exist
+
+Movie, RoboCop, Clash of the Titans, Total Recall, Lilo & Stitch
+
+Fri, 17 Jul 2026 11:45:15 GMT
+
+https://collider.com/pointless-movie-remakes-no-reason-to-exist/
+
+Pointless, uninspired movie remakes of classics like RoboCop, Total Recall, and Lilo & Stitch genuinely had no reason to exist.
+---------
+
+# 10 Classic Rock Albums Where Every Song Is a Masterpiece
+
+Music Features, Rock, Queen, Bruce Springsteen, Fleetwood Mac
+
+Fri, 17 Jul 2026 11:41:14 GMT
+
+https://collider.com/classic-rock-albums-every-song-masterpiece/
+
+From Queen to The Beatles, these albums feature wall-to-wall masterpieces.
+---------
+
+# 10 Greatest Hard-Boiled Detective Books of All Time
+
+Books and Comics, Books, The Long Goodbye, The Maltese Falcon, L.A. Confidential
+
+Fri, 17 Jul 2026 11:36:15 GMT
+
+https://collider.com/best-hard-boiled-detective-books-all-time-ranked/
+
+From '90s classics like L.A. Confidential to foundational works like The Maltese Falcon, these are the all-time greatest hard-boiled detective books.
+---------
+
+# Titus Welliver's Post-'Bosch' Masterpiece Reigns Supreme Over Hollywood's Biggest Stars
+
+TV News, Titus Welliver, The Westies, J.K. Simmons, Crime
+
+Fri, 17 Jul 2026 11:30:15 GMT
+
+https://collider.com/titus-welliver-the-westies-streaming-success-mgm-plus-july-2026/
+
+Titus Welliver's new show, The Westies, has overtaken movies starring Ryan Gosling, Jason Statham, and Mark Wahlberg on MGM+. Find out more.
+---------
+
+# 10 Essential Crime Shows You Need To Watch Before You Die
+
+TV, Crime, Breaking Bad, Twin Peaks, The Sopranos
+
+Fri, 17 Jul 2026 11:22:15 GMT
+
+https://collider.com/essential-crime-shows-watch-before-you-die/
+
+Discover the essential crime shows that every fan of gripping storytelling and complex characters must watch, from Breaking Bad to Twin Peaks.
+---------
+
+# Jackie Chan Returns for Sequel to 44-Year-Old Classic Action Franchise
+
+Movie News, Jackie Chan, Armour of God, Action, Adventure, Martial Arts
+
+Fri, 17 Jul 2026 12:01:35 GMT
+
+https://movieweb.com/jackie-chan-returns-armour-god-4-action/
+
+The action movie icon is back for another death-defying action-adventure with our first look at 'Armour of God IV: Ultimatum.'
+---------
+
+# Every Main Star Trek Ship's Chief Medical Officer, Ranked by Ability
+
+TV Lists, Star Trek
+
+Fri, 17 Jul 2026 12:00:12 GMT
+
+https://movieweb.com/star-trek-chief-medical-officers-ranked/
+
+Star Trek has several Chief Medical Officers, but not all of them are created equal. Read on for more.
+---------
+
+# James Bond Finds New Favorite After Netflix Star Auditions for Amazon Reboot
+
+Movie News, james bond, James Bond, Action
+
+Fri, 17 Jul 2026 11:41:39 GMT
+
+https://movieweb.com/james-bond-reboot-new-favorite-tom-francis-audition/
+
+The actor has reportedly already auditioned for the role as Amazon's hunt for the next 007 ramps up.
+---------
+
+# First Look at Gandalf in 'Lord of the Rings: Rings of Power' Season 3 Revealed
+
+TV News, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Fri, 17 Jul 2026 11:32:40 GMT
+
+https://movieweb.com/rings-of-power-season-3-gandalf-first-look/
+
+The first look at Gandalf in 'Lord of the Rings: The Rings of Power' Season 3 has been revealed ahead of this year's San Diego Comic-Con (SDCC).
+---------
+
 # The Legend Of Zelda Major 2027 Release Officially Confirmed As New Chapter Begins
 
 Gaming, The Legend of Zelda
