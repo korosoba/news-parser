@@ -1,3 +1,366 @@
+# Will Ferrell’s New Netflix Series Debuts To Solid Rotten Tomatoes Audience Score
+
+TV, Masked Recs, Will Ferrell, Netflix
+
+Fri, 17 Jul 2026 18:30:44 GMT
+
+https://screenrant.com/netflix-the-hawk-rotten-tomatoes-audience-score-debut/
+
+Following mixed reviews from critics, the audience score on Rotten Tomatoes for Will Ferrell's new TV show on Netflix has officially debuted.
+---------
+
+# Guy Ritchie Gets Major New Streaming Rival Thanks To Prime Video Crime Series
+
+TV, Masked Recs
+
+Fri, 17 Jul 2026 18:30:11 GMT
+
+https://screenrant.com/guy-ritchie-streaming-shows-criminal-prime-video-rival/
+
+Guy Ritchie gets a major new streaming rival thanks to Prime Video's upcoming crime drama that features a familiar face in the leading role.
+---------
+
+# DC Is Dangerously Close To Breaking What Makes Nightwing Special
+
+DC Comics, Nightwing, DC
+
+Fri, 17 Jul 2026 18:30:11 GMT
+
+https://screenrant.com/nightwing-dick-grayson-corrupted/
+
+Nightwing has found himself resorting to baser, emotional tactics, and the reason why has been made clear in his latest appearance.
+---------
+
+# Harry Potter Officially Sets Exciting New Release This October
+
+Movies, Harry Potter
+
+Fri, 17 Jul 2026 18:25:21 GMT
+
+https://screenrant.com/harry-potter-steelbook-library-anniversary-release/
+
+Harry Potter is coming back at the perfect time, as the beloved wizarding world will be returning with an exciting new release set for this October.
+---------
+
+# The 3-Part Fantasy Horror Series So Good, It Started An Entire Shared Universe
+
+TV, Masked Recs
+
+Fri, 17 Jul 2026 18:01:11 GMT
+
+https://screenrant.com/interview-with-the-vampire-anne-rice-start-immortal-universe-franchise/
+
+In the era of shared TV universes, one of the best fictional worlds comes from one of the most underappreciated horror TV masterpieces ever made.
+---------
+
+# Naruto's Upcoming Return Is The One Thing The Franchise Was Still Missing
+
+Movies, Masked Recs
+
+Fri, 17 Jul 2026 17:56:31 GMT
+
+https://screenrant.com/naruto-live-action-remake-franchise-return/
+
+There hasn't been much movement within the Naruto franchise in the last handful of years, but that's all about to change as the anime is left behind.
+---------
+
+# Timothy Olyphant’s New Adaptation Of Bestselling Novel Officially Sets All-Time Streaming Record
+
+TV, The Five-Star Weekend, Peacock, Timothy Olyphant
+
+Fri, 17 Jul 2026 17:50:44 GMT
+
+https://screenrant.com/timothy-olyphant-five-star-weekend-peacock-streaming-record-1-billion-minutes-viewed/
+
+Timothy Olyphant's new adaptation of a bestselling novel is already off to a great start as it officially sets an all-time streaming record.
+---------
+
+# Brandon Sanderson Reveals Early Worry About Mistborn Film Adaptation For Apple TV
+
+Movies, Mistborn, Brandon Sanderson
+
+Fri, 17 Jul 2026 17:43:07 GMT
+
+https://screenrant.com/brandon-sanderson-mistborn-movie-screenplay-pacing-worry/
+
+Author Brandon Sanderson recently revealed that the Mistborn script is 91% complete, but he’s not completely satisfied with the work he’s done so far.
+---------
+
+# Wednesday Season 3's Major New Locations & Tyler's Story Teased By Star
+
+TV, Wednesday, Addams Family
+
+Fri, 17 Jul 2026 17:37:17 GMT
+
+https://screenrant.com/wednesday-season-3-hyde-location-paris-tease-hunter-doohan/
+
+As Wednesday season 3 continues production, returning cast member Hunter Doohan has teased details about upcoming new locations and Tyler's story.
+---------
+
+# Mortal Kombat II Finally Sets Streaming Release Date
+
+Movies, Mortal Kombat II
+
+Fri, 17 Jul 2026 18:27:06 GMT
+
+https://www.cbr.com/mortal-kombat-2-hbo-max-streaming-release-date/
+
+The Mortal Kombat sequel is soon coming to streaming after its theatrical release in May.
+---------
+
+# 10 Dark Shonen Anime to Watch If You Love JJK
+
+Anime, Jujutsu Kaisen, Chainsaw Man, shonen anime
+
+Fri, 17 Jul 2026 18:16:15 GMT
+
+https://www.cbr.com/dark-shonen-anime-for-jujutsu-kaisen-fans/
+
+Jujutsu Kaisen is not the only dark shonen anime out there, and shows like Chainsaw Man and Claymore might help fans fill the void.
+---------
+
+# Clayface On Absolute Batman #23 Variant Cover Pays Homage To The Thing
+
+Comics, Absolute Batman, Batman, clayface, The Thing
+
+Fri, 17 Jul 2026 18:00:16 GMT
+
+https://www.cbr.com/absolute-batman-23-variant-clayface-the-thing-homage/
+
+There is someTHING familiar about this Absolute Batman variant cover.
+---------
+
+# Tom Holland Sparks Viral Debate With Bold Claim About Spider-Man & Robert Pattinson's Batman
+
+Movies, Marvel, Marvel Comics, MCU, tom holland, robert pattinson, The Batman, The Batman Part II, DC Comics, DCU, Batman, Spider-Man, Spider-Man: Brand New Day
+
+Fri, 17 Jul 2026 17:42:32 GMT
+
+https://www.cbr.com/tom-holland-spider-man-robert-pattinson-the-batman-comparison/
+
+The internet is chaotic over a viral debate sparked by Spider-Man about Batman.
+---------
+
+# 14 Years Later, Jackie Chan Officially Returns for Sequel to 3-Part Martial Arts Masterpiece
+
+Movies, Armour of God, Jackie Chan
+
+Fri, 17 Jul 2026 17:37:33 GMT
+
+https://www.cbr.com/jackie-chan-armour-of-god-4-starts-filming/
+
+Jackie Chan officially revives the action franchise for a fourth installment.
+---------
+
+# Christopher Nolan's New 173-Minute Historical Epic Is Officially His Best Release Yet
+
+Movies, The Odyssey, Christopher Nolan, Rotten Tomatoes
+
+Fri, 17 Jul 2026 17:34:41 GMT
+
+https://www.cbr.com/christopher-nolan-the-odyssey-best-rated-critics-audience-rotten-tomatoes/
+
+The movie is on its way to breaking multiple records, and it's started with Rotten Tomatoes.
+---------
+
+# 5 Anime That Are Perfect for Fans of Dungeons & Dragons
+
+Anime, Dungeons and Dragons, Delicious in Dungeon, Dragon Quest
+
+Fri, 17 Jul 2026 17:15:15 GMT
+
+https://www.cbr.com/dungeons-and-dragons-perfect-anime-to-watch/
+
+These near-perfect fantasy anime are must-watch series for any fan of Dungeons & Dragons.
+---------
+
+# Brandon Sanderson's 7-Part Fantasy Epic Gets Major Apple TV Update
+
+Movies, Mistborn, The Cosmere
+
+Fri, 17 Jul 2026 17:13:51 GMT
+
+https://www.cbr.com/brandon-sanderson-mistborn-apple-tv-update/
+
+A disappointing update for Mistborn fans.
+---------
+
+# Japan Releases First Free AI Model for Anime Video Generation
+
+Anime, Artificial Intelligence
+
+Fri, 17 Jul 2026 17:05:15 GMT
+
+https://www.cbr.com/animegen-ai-video-generation-model-japan-official-release/
+
+Japan releases its first official free AI video generation model designed to assist creators with anime production workflows.
+---------
+
+# Pokémon Officially Returns With a Surprise Event This Weekend
+
+Gaming News, Pokémon, Games, Gaming, Nintendo
+
+Fri, 17 Jul 2026 18:20:15 GMT
+
+https://collider.com/pokemon-pokopia-zorua-hide-and-sneak-event/
+
+Zorua’s Hide-and-Sneak Contest comes to Pokémon Pokopia from July 19 through July 27 with multiplayer challenges and exclusive rewards.
+---------
+
+# ‘Marshals’ Officially Returns With Major Consequences in Season 2 [Exclusive]
+
+TV News, Marshals, Taylor Sheridan, Logan Marshall-Green, Collider Forces
+
+Fri, 17 Jul 2026 18:16:55 GMT
+
+https://collider.com/marshals-season-2-logan-marshall-green-cal-cancer-consequences/
+
+Logan Marshall-Green teases major consequences, Cal’s cancer diagnosis, and more huge action in Marshals Season 2.
+---------
+
+# Apple TV's Best Sci-Fi Series Slammed With Devastating Season 2 Update
+
+TV News, Pluribus, Vince Gilligan, Rhea Seehorn, Apple TV
+
+Fri, 17 Jul 2026 18:00:15 GMT
+
+https://collider.com/pluribus-season-2-release-update-apple-tv-vince-gilligan/
+
+Apple TV shares a disappointing Pluribus Season 2 update as early scripts arrive, but no release date has been set for Vince Gilligan’s sci-fi hit.
+---------
+
+# Top Gun Officially Returns With Shock New Release Next Month
+
+Gaming News, Top Gun: Maverick, Battlefield, Tom Cruise, Top Gun
+
+Fri, 17 Jul 2026 17:48:42 GMT
+
+https://collider.com/top-gun-maverick-battlefield-6-crossover/
+
+Top Gun: Maverick is flying into a whole new danger zone next month with a surprise crossover with Battlefield 6. Read on for more.
+---------
+
+# Disney’s $250M Fantasy Remake Quietly Takes Over Disney+ Amid Box Office Struggle
+
+Movie News, Moana, Disney+, Dwayne Johnson
+
+Fri, 17 Jul 2026 17:40:15 GMT
+
+https://collider.com/moana-live-action-special-look-streaming-success-disney-plus-july-2026/
+
+Dwayne Johnson's live-action Moana movie surges on Disney+ with a special look behind the scenes following a disastrous box office opening weekend.
+---------
+
+# Netflix’s Near-Perfect Crime Thriller Is Too Good to End After Just 6 Episodes
+
+TV Features, Legends, Netflix, Crime, Streaming
+
+Fri, 17 Jul 2026 17:28:15 GMT
+
+https://collider.com/netflix-legends-crime-thriller-six-episodes-too-short/
+
+Netflix’s Legends tells a complete story in six episodes, but its gripping true crime premise makes you wish there were many more.
+---------
+
+# ‘The Legend of Korra’ Gets Official Spin-Off Release in 2027
+
+TV News, The Legend of Korra, Avatar: The Last Airbender, Avatar Aang: The Last Airbender
+
+Fri, 17 Jul 2026 17:21:14 GMT
+
+https://collider.com/the-legend-of-korra-concert-tour-15th-anniversary-january-2027/
+
+The Avatar: The Last Airbender spin-off, The Legend of Korra, is officially returning in 2027 for an ambitious new release.
+---------
+
+# The Biggest Fantasy Sequel of 2026 Officially Hits HBO Max Next Week
+
+Movie News, Mortal Kombat II, HBO Max, Karl Urban, Adeline Rudolph
+
+Fri, 17 Jul 2026 17:20:04 GMT
+
+https://collider.com/mortal-kombat-2-streaming-release-date-hbo-max/
+
+It's time to get over to HBO Max, as Mortal Kombat 2 is finally joining the streamer months after it hit theaters. Find out when here!
+---------
+
+# Every A24 Horror Movie, Ranked From Worst to Best
+
+Movie, A24, Horror, Backrooms, The Witch
+
+Fri, 17 Jul 2026 17:04:15 GMT
+
+https://collider.com/a24-horror-movies-ranked/
+
+From Jonathan Glazer's sci-fi masterpiece Under the Skin to the psychological film Backrooms, we determine which horror movie is A24's best.
+---------
+
+# John Wick Meets ‘Welcome to Wrexham’ in Keanu Reeves’ 6-Part Racing Series [Exclusive]
+
+TV News, Keanu Reeves, Hooligans: The ARCH Racing Project, Sports, Samsung
+
+Fri, 17 Jul 2026 17:02:28 GMT
+
+https://collider.com/keanu-reeves-new-series-hooligans-the-arch-racing-project-sneak-peek/
+
+Discover the thrilling world of professional motorcycle racing through Keanu Reeves' personal venture, Hooligans: The ARCH Racing Project.
+---------
+
+# Why Netflix's 'Katla' Is a Must-Watch Show
+
+Features, Katla, Sci-Fi
+
+Fri, 17 Jul 2026 18:30:12 GMT
+
+https://movieweb.com/netflix-katla-mystery-binge/
+
+Netflix's sci-fi thriller 'Katla' is an underrated 8-episode series and one of the platform's most compelling hidden gems.
+---------
+
+# $7 Billion Fantasy Franchise Favorite Officially Dethroned at the Box Office by 95% RT Rated Sequel
+
+Movie News, Toy Story 5, Harry Potter and the Chamber of Secrets
+
+Fri, 17 Jul 2026 18:00:12 GMT
+
+https://movieweb.com/toy-story-5-harry-potter-and-the-chamber-of-secrets-box-office/
+
+This summer's breakout hit just toppled another franchise favorite at the box office.
+---------
+
+# Christopher Nolan Cut One of the Most Famous Moments From 'The Odyssey'
+
+Movie News, The Odyssey
+
+Fri, 17 Jul 2026 17:52:39 GMT
+
+https://movieweb.com/christopher-nolan-the-odyssey-cyclops-scene-criticism/
+
+Christopher Nolan's 'The Odyssey' did not adapt a key moment from the original poem.
+---------
+
+# First Look at Disney's Live-Action 'Tangled' Movie Reveals Rapunzel & Flynn Rider
+
+Movie News, Tangled
+
+Fri, 17 Jul 2026 17:27:19 GMT
+
+https://movieweb.com/tangled-first-look-rapunzel-flynn-rider/
+
+On-set photos reveal the first look of Teagan Croft as Rapunzel and Milo Manheim as Flynn Rider.
+---------
+
+# Sydney Sweeney's Supernatural Remake of Gothic Masterpiece Officially Moving Forward
+
+Movie News, Sydney Sweeney, Sleepy Hollow
+
+Fri, 17 Jul 2026 17:21:22 GMT
+
+https://movieweb.com/sydney-sweeney-sleepy-hollow-remake/
+
+The actor is set to star in 'Hollow,' a retelling of 'The Legend of Sleepy Hollow.'
+---------
+
 # HBO's 7-Hour Crime Drama With A Near-Perfect RT Score Doesn't Waste A Minute
 
 Streaming TV, Masked Recs
@@ -5133,367 +5496,4 @@ Thu, 16 Jul 2026 10:53:15 GMT
 https://collider.com/horror-books-deserve-miniseries-adaptation/
 
 From The Damnation Game to The Fisherman, House of Leaves to King Sorrow, we need to see these horror books on screen.
----------
-
-# Netflix’s New Western Is So Good, You’ll Forget All About Taylor Sheridan
-
-Features, Little House on the Prairie, Netflix
-
-Thu, 16 Jul 2026 12:00:12 GMT
-
-https://movieweb.com/little-house-on-prairie-taylor-sheridan-comparison/
-
-Taylor Sheridan has many popular Western TV shows, but Netflix's new Western series might be even better.
----------
-
-# Jason Statham's 113-Minute Action Thriller Surges on Streaming Ahead of 'Mutiny'
-
-Movie News, Jason Statham, The Meg, Hot on Streaming, Action
-
-Thu, 16 Jul 2026 11:30:12 GMT
-
-https://movieweb.com/jason-statham-the-meg-action-streaming-hbo-max-july-2026/
-
-Ahead of Jason Statham's new action thriller, 'Mutiny,' one of his biggest movies ever has returned to take a bite out of streaming.
----------
-
-# How Much 'The Odyssey' Needs to Make at the Box Office to Profit
-
-Features, The Odyssey, Christopher Nolan
-
-Thu, 16 Jul 2026 11:00:12 GMT
-
-https://movieweb.com/the-odyssey-box-office-budget-profit/
-
-'The Odyssey,' directed by Christopher Nolan, releases in theaters on July 17, 2026, and stars Matt Damon, Robert Pattinson, and Zendaya.
----------
-
-# The Walking Dead: Aftermath Is Officially A New Chapter For The Series
-
-Gaming, The Walking Dead
-
-Thu, 16 Jul 2026 10:24:12 GMT
-
-https://screenrant.com/walking-dead-aftermath-2026-new-chapter/
-
-The Walking Dead has been through all sorts of eras over the years, and you can really carve out your own journey in a new release.
----------
-
-# The Hawk Review: Will Ferrell's Sports Comedy Is A Weak Addition To The Genre
-
-Streaming TV, The Hawk
-
-Thu, 16 Jul 2026 10:00:11 GMT
-
-https://screenrant.com/the-hawk-tv-review/
-
-Will Ferrell stars in his brand-new sports comedy series; however, the show struggles to escape comparison to similar projects and falls short.
----------
-
-# GTA 6 Officially Facing One Final Delay, Brace Yourselves
-
-Gaming, Grand Theft Auto, Grand Theft Auto 6
-
-Thu, 16 Jul 2026 09:55:06 GMT
-
-https://screenrant.com/gta-6-final-delay-confirmed-pc/
-
-GTA VI is finally coming in November, but there is one version of the game that's deliberately being delayed for a year or more.
----------
-
-# Steam Makes 2023 9/10 Game 100% Free To Keep For 24 Hours
-
-Gaming, Steam
-
-Thu, 16 Jul 2026 09:18:20 GMT
-
-https://screenrant.com/steam-free-game-catch-me-july-2026-24-hours/
-
-Steam has always got great offers on that allow gamers to play for free, and today is no exception to the rule.
----------
-
-# Star Wars Revisits The Original Trilogy In New Game Available Today
-
-Gaming, PowerWash Simulator, Star Wars
-
-Thu, 16 Jul 2026 09:00:12 GMT
-
-https://screenrant.com/star-wars-powerwash-simulator-2-dlc-empire/
-
-Experience a unique crossover as one popular game releases a new Star Wars DLC pack, taking players to iconic locations from the original trilogy.
----------
-
-# DC's The Batman Part II Delay Just Canceled the Greatest Year in Superhero Movie History
-
-Movies, The Batman Part II, DCU, Batman
-
-Thu, 16 Jul 2026 10:00:15 GMT
-
-https://www.cbr.com/the-batman-2-delay-ruins-2027-superhero-movie-year/
-
-2027 will no longer have the opportunity to make history in the superhero movie realm.
----------
-
-# 10 Best Far Side Comics if You're a Cat Lover
-
-Comics, The Far Side
-
-Thu, 16 Jul 2026 10:00:15 GMT
-
-https://www.cbr.com/best-far-side-comics-for-cat-lovers/
-
-If you're a cat person, these comics from The Far Side are purrfect for you.
----------
-
-# 10 Most Universally Beloved Superhero Movies of the Last 30 Years
-
-Movie, The Incredibles, Superhero, Unbreakable, The Dark Knight
-
-Thu, 16 Jul 2026 10:42:15 GMT
-
-https://collider.com/most-universally-beloved-superhero-movies-last-30-years-ranked/
-
-The Dark Knight, Spider-Man: Into the Spider-Verse, and The Incredibles are among the most universally beloved superhero movies of the last 30 years.
----------
-
-# The 15 Scariest Video Games of All Time, Ranked
-
-TV, Video Game, The Last of Us, Horror, Resident Evil
-
-Thu, 16 Jul 2026 10:36:20 GMT
-
-https://collider.com/scariest-video-games-of-all-time-ranked/
-
-Our list of the scariest video games of all time spans more than 20 years' worth of spooky games, from action-horror to survival stories.
----------
-
-# Titus Welliver on What Sets His New Crime Character Apart From Harry Bosch
-
-TV News, Bosch, Titus Welliver, The Westies, Ballard
-
-Thu, 16 Jul 2026 10:30:18 GMT
-
-https://collider.com/titus-welliver-bosch-the-westies-differences-explained/
-
-Titus Welliver breaks down the differences between the legendary Harry Bosch and his new crime thriller character.
----------
-
-# 10 Forgotten 2000s Books That Are Perfect From Start to Finish
-
-Books and Comics, Books, On Chesil Beach, Lisey's Story, John Green
-
-Thu, 16 Jul 2026 10:17:15 GMT
-
-https://collider.com/forgotten-2000s-books-perfect-start-to-finish/
-
-From An Abundance of Katherines to On Chesil Beach, these forgotten book gems of the 2000s are just as worthy of a read today as they were back then.
----------
-
-# The 15 Best Fantasy TV Shows of the Last 10 Years, Ranked
-
-TV, Fantasy, House of the Dragon, The Lord of the Rings: The Rings of Power, The Witcher
-
-Thu, 16 Jul 2026 10:03:14 GMT
-
-https://collider.com/best-fantasy-shows-last-10-years-ranked/
-
-The best fantasy TV shows of the past 10 years feature epic tales and magical realms, as seen in House of the Dragon, Arcane, and Wednesday.
----------
-
-# ‘X-Men '97’ Officially Confirms Mortal Kombat Star as a Fan-Favorite Villain
-
-TV News, X-Men '97, X-Men, X-Men: The Animated Series, Marvel
-
-Thu, 16 Jul 2026 10:00:15 GMT
-
-https://collider.com/x-men-97-season-2-cast-lady-deathstrike-erika-ishii/
-
-Erika Ishii, the star of Mortal Kombat 1, Apex: Legends, and Ghost of Yōtei, has joined the cast of X-Men '97 as a villainous fan-favorite.
----------
-
-# After 85 Million Views, Netflix Has Crowned a New Mystery King
-
-TV News, I Will Find You, Netflix, Harlan Coben, Sam Worthington
-
-Thu, 16 Jul 2026 09:30:15 GMT
-
-https://collider.com/harlan-coben-netflix-mystery-series-i-will-find-you-85-million-views/
-
-Harlan Coben's I Will Find You has hit 85 million views on Netflix after one month of release, and is about to enter the streamer's all-time top 10.
----------
-
-# 30 Years Later, Nicolas Cage's Stellar Action Thriller Still Hasn't Been Topped
-
-Movie, The Rock, Nicolas Cage, Sean Connery, Michael Bay
-
-Thu, 16 Jul 2026 09:04:15 GMT
-
-https://collider.com/the-rock-nicolas-cage-hbo-max-streaming-july-2026/
-
-30 years later, action thriller The Rock still feels fresh, largely due to stellar performances by Nicolas Cage, Sean Connery and Ed Harris.
----------
-
-# BBC Officially Responds to 'Doctor Who' Cancellation
-
-TV News, BBC, Doctor Who, Sci-Fi, Russell T. Davies
-
-Thu, 16 Jul 2026 09:00:15 GMT
-
-https://collider.com/doctor-who-cancellation-bbc-response-series-future/
-
-The BBC addresses Doctor Who rumors, confirming the show's future despite cancellation, as they invest in long-term growth for the iconic series.
----------
-
-# Sam Neill's Cause of Death Confirmed
-
-Movie News, Sam Neill, Jurassic Park
-
-Thu, 16 Jul 2026 09:27:50 GMT
-
-https://movieweb.com/sam-neill-cause-of-death/
-
-The cause of death for actor Sam Neill has been confirmed, days after the 'Jurassic Park' star's tragic passing aged 78.
----------
-
-# 10 Pokémon Winds & Waves Regional Variants That Are Perfect 10/10s
-
-Gaming, Pokemon Winds and Waves, Pokemon
-
-Thu, 16 Jul 2026 07:35:34 GMT
-
-https://screenrant.com/pokemon-winds-waves-regional-variants-gen-10/
-
-Pokémon Winds and Waves will likely be getting regional variants when the Gen 10 games release, and these Pokémon would be perfect fits.
----------
-
-# Avatar: Frontiers of Pandora Free For Millions On July 21
-
-Gaming, Avatar: Frontiers Of Pandora, Triple-A Games, PlayStation Plus
-
-Thu, 16 Jul 2026 07:00:11 GMT
-
-https://screenrant.com/avatar-frontiers-pandora-ps-plus-july-21/
-
-Avatar: Frontiers of Pandora is receiving its best free update yet next week, but it won't be available for all gamers when it releases.
----------
-
-# The Hawk Review: Happy Gilmore Meets Will Ferrell in a Middling Netflix Comedy
-
-TV, The Hawk
-
-Thu, 16 Jul 2026 07:01:15 GMT
-
-https://www.cbr.com/the-hawk-netflix-review/
-
-Will Ferrell stars in Netflix's new golf comedy with Luke Wilson and Molly Shannon, but predictable storytelling holds it back.
----------
-
-# Will Ferrell Isn't the Only Reason To Watch Netflix's 'Ted Lasso' Rival 'The Hawk' | Review
-
-TV Reviews, The Hawk, Will Ferrell, Molly Shannon, Netflix
-
-Thu, 16 Jul 2026 07:01:15 GMT
-
-https://collider.com/the-hawk-review-netflix-will-ferrell/
-
-Netflix's new sports comedy The Hawk is proof that Will Ferrell's wildest swings still work, but he's definitely not the only reason to watch.
----------
-
-# Star Trek: Second Contact Officially Releases 2026
-
-Gaming, Star Trek, Triple-A Games
-
-Thu, 16 Jul 2026 06:00:11 GMT
-
-https://screenrant.com/star-trek-second-contact-2026-release/
-
-If you've been wanting to catch up on the series after a hiatus, grabbing Star Trek: Second Contact when it comes out this year is a good idea.
----------
-
-# Star Wars Fans Petition To Save Canceled Sequel: “We Deserve Better”
-
-Gaming, Star Wars Outlaws, Triple-A Games, PC
-
-Thu, 16 Jul 2026 05:00:11 GMT
-
-https://screenrant.com/star-wars-outlaws-2-petition-canceled-game/
-
-Star Wars fans are no strangers to canceled projects at this point, but this sequel is one that could have been a turning point for the series.
----------
-
-# PlayStation 5 Getting Huge Free 100-Hour Open-World Game, No PS Plus Needed
-
-Gaming, PlayStation 5, PlayStation, Once Human
-
-Thu, 16 Jul 2026 04:30:11 GMT
-
-https://screenrant.com/playstation-free-100-hour-open-world-rpg-no-ps-plus/
-
-PlayStation 5 users will want to check out this enormous, brand-new open-world game, packed with content and available without a PS Plus subscription.
----------
-
-# Clair Obscur: Arm Of Gustave Arrives 2027
-
-Gaming, Clair Obscur: Expedition 33, PC, RPG, JRPG
-
-Thu, 16 Jul 2026 04:00:13 GMT
-
-https://screenrant.com/clair-obscur-arm-of-gustave-2027-release/
-
-A brand-new Clair Obscur project titled Arm of Gustave is finally set to release in 2027, giving fans a new way to engage with their favorite game.
----------
-
-# 7 Sci-Fi Shows With Flawless Time Travel
-
-Classic TV, Sci-Fi
-
-Thu, 16 Jul 2026 03:57:17 GMT
-
-https://screenrant.com/sci-fi-tv-shows-flawless-time-travel/
-
-Time travel is exceptionally difficult to nail in TV shows due to the long form content, but these seven sci-fi series get it right.
----------
-
-# Hal Williams, Sanford and Son Actor, Dies at 91
-
-TV, obituary, Sanford and Son
-
-Thu, 16 Jul 2026 04:31:35 GMT
-
-https://www.cbr.com/hal-williams-dead/
-
-Sanford and Son's Hal Williams died just days after reuniting with co-star Howard Platt for a special fan event.
----------
-
-# Forgotten 9-Part Superhero Series Officially Returns on Netflix
-
-TV, The Tick, Netflix, superheroes
-
-Thu, 16 Jul 2026 04:04:40 GMT
-
-https://www.cbr.com/the-tick-streaming-netflix-july-2026/
-
-One of the best superhero comedies of all time is officially making its way to Netflix as its next streaming home, and fans barely have to wait.
----------
-
-# Mushoku Tensei Season 4 Gets New Update From Series Creator
-
-Anime, Mushoku Tensei: Jobless Reincarnation
-
-Thu, 16 Jul 2026 03:59:15 GMT
-
-https://www.cbr.com/mushoku-tensei-season-4-creator-update/
-
-Mushoku Tensei light novel author Rifujin na Magonote addresses fan concerns regarding the future of the series' hit anime adaptation.
----------
-
-# Brendan Fraser’s 112-Minute Cult Classic Sci-Fi Mashup Is Perfect From Start to Finish
-
-Movie Features, Blast from the Past, Alicia Silverstone, Brendan Fraser, Christopher Walken
-
-Thu, 16 Jul 2026 04:07:14 GMT
-
-https://collider.com/brendan-fraser-blast-from-the-past-streaming-tubi-july-2026/
-
-1999's Blast From the Past brought together Brendan Fraser, Alicia Silverstone and Christopher Walken for a sci-fi mashup that still holds up.
 ---------
