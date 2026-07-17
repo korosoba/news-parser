@@ -1,3 +1,333 @@
+# Final Fantasy Meets Clair Obscur In New Free RPG
+
+Gaming, RPG, Live Service Games, PC, Lord of Mysteries
+
+Fri, 17 Jul 2026 04:00:13 GMT
+
+https://screenrant.com/final-fantasy-clair-obscur-style-free-rpg-2027/
+
+An exciting new open-world RPG that blends elements from the Final Fantasy series and Clair Obscur: Expedition 33 is set to arrive pretty soon.
+---------
+
+# Timothy Olyphant & Anya Taylor-Joy’s New Thriller Skyrockets As Apple TV’s #1 Series
+
+TV, Masked Recs, Anya Taylor-Joy, Timothy Olyphant, Apple TV
+
+Fri, 17 Jul 2026 03:57:44 GMT
+
+https://screenrant.com/timothy-olyphant-lucky-apple-tv-july-2026-streaming-charts-anya-taylor-joy/
+
+Timothy Olyphant and Anya Taylor-Joy's new thriller adaptation skyrockets to Apple TV's #1 series on the streaming charts after just one day.
+---------
+
+# 10 Strongest Black Clover Villains Of All Time, Ranked
+
+Anime, Black Clover
+
+Fri, 17 Jul 2026 03:55:12 GMT
+
+https://screenrant.com/strongest-black-clover-villains-ranked/
+
+Discover the 10 strongest villains in Black Clover, and just how terrifying some antagonists got near the ending.
+---------
+
+# God Of War's Kratos Is Being Recast After Ryan Hurst Suffers Major On-Set Injury
+
+TV, God of War
+
+Fri, 17 Jul 2026 03:42:45 GMT
+
+https://screenrant.com/god-of-war-kratos-recast-after-ryan-hurst-injury/
+
+Amazon MGM and Sony's video game adaptation, God of War is recasting Kratos after Ryan Hurst suffered severe injuries while performing a stunt.
+---------
+
+# Netflix’s 96% RT Dystopian Thriller Returning For Season 2 Deserves To Be As Big As Silo
+
+Streaming TV, Masked Recs
+
+Fri, 17 Jul 2026 03:00:12 GMT
+
+https://screenrant.com/netflix-the-eternaut-silo-potential/
+
+Netflix is the streaming home of a returning 96% RT dystopian thriller that has so immense potential that it deserves to be as big as Apple TV’s Silo.
+---------
+
+# Star Trek: To Boldly Go Officially Announced
+
+Gaming
+
+Fri, 17 Jul 2026 03:00:12 GMT
+
+https://screenrant.com/star-trek-to-boldly-go-announcement/
+
+A new Star Trek tie-in is available now, allowing you to step into the shoes of some of the series’ most iconic captains in head-to-head battles.
+---------
+
+# Brandon Sanderson Confirms Mistborn Movies Will Steal From The MCU Playbook
+
+Books, Marvel Cinematic Universe, Brandon Sanderson, Mistborn
+
+Fri, 17 Jul 2026 02:48:27 GMT
+
+https://screenrant.com/brandon-sanderson-mistborn-movies-cameo-mcu-stan-lee/
+
+Brandon Sanderson might be borrowing one of the MCU's best storytelling motifs for Mistborn, but he's putting a wonderfully Cosmere twist on it.
+---------
+
+# Avengers: Doomsday's Connection To Loki's Finale Explained By Star
+
+Movies, Avengers: Doomsday, Loki, Marvel Cinematic Universe
+
+Fri, 17 Jul 2026 02:21:50 GMT
+
+https://screenrant.com/avengers-doomsday-loki-finale-connection-mcu/
+
+Tom Hiddleston opened up about how the events from the Loki TV show's series finale will connect to the upcoming movie Avengers: Doomsday.
+---------
+
+# God Of War Reportedly Pauses Production After Major Star Suffers On-Set Injury
+
+TV, God of War
+
+Fri, 17 Jul 2026 02:14:15 GMT
+
+https://screenrant.com/god-of-war-reportedly-pauses-production-ryan-hurst-injury/
+
+Amazon MGM and Sony's live-action adaptation of the hit video game franchise God of War suffers a major setback after an on-set injury.
+---------
+
+# Netflix's Greatest Action Thriller Of 2023 Has Clearly Set Up Season 3, And Even The Studio Agrees
+
+TV, Bloodhounds
+
+Fri, 17 Jul 2026 01:32:37 GMT
+
+https://screenrant.com/netflix-bloodhounds-best-action-thriller-season-3-ready/
+
+Two of Netflix's greatest fictional boxers have plenty of basis to return for a third season, and it's hardly unintentional.
+---------
+
+# Sailor Moon LEGO Dreams Shut Down as 68 Sets Rejected
+
+Anime, Sailor Moon, LEGO
+
+Fri, 17 Jul 2026 03:59:15 GMT
+
+https://www.cbr.com/sailor-moon-lego-sets-rejected-july-2026/
+
+Sailor Moon's Moon Prism Power slips right out of fans' hands after a brutal rejection.
+---------
+
+# 5 Autobots Stronger Than Optimus Prime
+
+Anime, Transformers, optimus prime, Sci-Fi
+
+Fri, 17 Jul 2026 03:46:15 GMT
+
+https://www.cbr.com/autobots-stronger-than-optimus-prime/
+
+Optimus Prime is the commander of the Autobot army, but there are five members of his system that are arguably stronger in the Transformers universe.
+---------
+
+# The CW's Underrated 8-Season Sports Drama Returns as a PVOD Hit After New Release
+
+TV, All American, The CW, Drama
+
+Fri, 17 Jul 2026 03:31:07 GMT
+
+https://www.cbr.com/all-american-sports-drama-success-pvod-july-2026/
+
+The fan-favorite The CW sports drama is rising on the PVOD charts.
+---------
+
+# Paramount’s New Star Trek Strategy Will Go Down as 1 of Sci-Fi's Most Historic Fumbles
+
+TV, Star Trek, Paramount, Sci-Fi
+
+Fri, 17 Jul 2026 03:31:07 GMT
+
+https://www.cbr.com/star-trek-paramount-strategy-historic-sci-fi-fumble/
+
+Paramount seems to be moving forward with Star Trek feature films, but what does that mean for the television side?
+---------
+
+# The Vampire Lestat's Jacob Anderson Says This 'Toxic' Season 1 Scene Still Affects His Character
+
+CBR Exclusives, The Vampire Lestat
+
+Fri, 17 Jul 2026 03:20:08 GMT
+
+https://www.cbr.com/the-vampire-lestat-jacob-anderson-toxic-louis-lestat-scene/
+
+Jacob Anderson breaks down Louis and Lestat’s changing relationship in The Vampire Lestat Episode 6, “Montreal.”
+---------
+
+# 10 Hardest Zelda Games, Officially Ranked
+
+Games, Video Games, The Legend of Zelda, Fantasy
+
+Fri, 17 Jul 2026 03:15:16 GMT
+
+https://www.cbr.com/hardest-zelda-games-ranked-list/
+
+From classic NES entries to modern masterpieces, these unforgettable Legend of Zelda games will put your skills to the test.
+---------
+
+# Gundam's Most Controversial '90s Anime Finally Returns for 30th Anniversary
+
+Anime, Mobile Fighter G Gundam, Mobile Suit Gundam, merchandise, namco bandai
+
+Fri, 17 Jul 2026 03:05:15 GMT
+
+https://www.cbr.com/g-gundam-30th-anniversary-bandai-original-soundtrack-collection/
+
+Though it debuted over three decades ago, Bandai Namco is celebrating 30 years of Mobile Fighter G Gundam with an exciting trio of new releases.
+---------
+
+# Dermot Mulroney's Ruthless Eyes No. 1 on Prime Video Despite Abysmal Reviews
+
+Movies, Prime Video, Ruthless, Thriller
+
+Fri, 17 Jul 2026 03:00:15 GMT
+
+https://www.cbr.com/predictable-thriller-success-prime-video-july-2026/
+
+The three-year-old film is prepping a streaming comeback, as long as viewers come away from it satisfied.
+---------
+
+# The Vampire Lestat Star Reveals How Claudia Would React To Lestat’s Ballad
+
+TV, The Vampire Lestat
+
+Fri, 17 Jul 2026 02:58:56 GMT
+
+https://www.cbr.com/the-vampire-lestat-delainey-hayles-claudia-stained-glass-eyes/
+
+Delainey Hayles reveals what Claudia thinks of Lestat’s songs “Stained Glass Eyes” and “Big Boss” in The Vampire Lestat.
+---------
+
+# 5 Masterpiece Isekai Anime Better Than No Game, No Life
+
+Anime, No Game, No Life, Overlord, Mushoku Tensei: Jobless Reincarnation
+
+Fri, 17 Jul 2026 02:45:15 GMT
+
+https://www.cbr.com/masterpiece-isekai-anime-better-than-no-game-no-life/
+
+No Game, No Life is an isekai anime that got many fans' attention, but it can't compare to other titles like Escaflowne, Overlord, and Fushigi Yugi.
+---------
+
+# 10 Western Shows Without a Single Flaw
+
+TV, Westerns, Gunsmoke, Justified, 1883
+
+Fri, 17 Jul 2026 04:07:14 GMT
+
+https://collider.com/western-shows-without-flaws-ranked/
+
+There are precious few Western shows that we can confidently say have absolutely no flaws, from Gunsmoke and Justified to Taylor Sheridan's 1883.
+---------
+
+# Netflix's Shocking 92-Minute Cringe Thriller is a Perfect Late Night Watch
+
+Movie Features, Thriller, Netflix, Influencer, Psychological Thriller
+
+Fri, 17 Jul 2026 04:05:15 GMT
+
+https://collider.com/netflix-thriller-influencer-perfect-cringe-watch/
+
+Netflix's thriller, Influencer, directed by Kurtis David Harder, captures the dark twist on one social media star's peaceful getaway.
+---------
+
+# 'Alien's Ripley Is Great, but This Survival Horror Game Character Does It Better
+
+TV Features, Alien, Alien: Isolation, Alien: Isolation - The Series
+
+Fri, 17 Jul 2026 03:04:15 GMT
+
+https://collider.com/alien-isolation-survival-horror-video-game-ripley/
+
+Alien: Isolation is the perfect basis for the next Alien franchise installment on television, featuring a strong heroine in Amanda Ripley.
+---------
+
+# Disaster Movies Learned the Wrong Lesson From 'Independence Day'
+
+Movie, Independence Day, Roland Emmerich, Will Smith, Science Fiction
+
+Fri, 17 Jul 2026 03:03:15 GMT
+
+https://collider.com/roland-emmerich-independence-day-analysis/
+
+The 1996 hit film spawned a bad trend in disaster movies.
+---------
+
+# The Lord of the Rings' Biggest Issue Finally Addressed by Andy Serkis Ahead of 'The Hunt for Gollum'
+
+Movie News, Andy Serkis, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings, Peter Jackson
+
+Fri, 17 Jul 2026 02:00:25 GMT
+
+https://collider.com/lord-of-the-rings-hunt-for-gollum-diversity-response-andy-serkis/
+
+Director and star Andy Serkis addresses criticism over casting choices in The Lord of the Rings: The Hunt for Gollum.
+---------
+
+# HBO Quietly Brings Back One of ‘Game of Thrones’ Most Iconic Locations
+
+TV Features, Game Of Thrones, House of the Dragon, HBO, HBO Max
+
+Fri, 17 Jul 2026 01:36:15 GMT
+
+https://collider.com/house-of-the-dragon-season-3-episode-4-eyrie-moon-door-game-of-thrones/
+
+House of the Dragon Season 3 pays homage to Game of Thrones with a recreated iconic location that adds tension to an already tense scene.
+---------
+
+# Guy Ritchie's 10/10 Crime Thriller Beats Taylor Sheridan at His Own Game
+
+TV News, Guy Ritchie, MobLand, Paramount Plus, Thriller
+
+Fri, 17 Jul 2026 01:30:15 GMT
+
+https://collider.com/guy-ritchie-mobland-streaming-success-paramount-plus-july-2026/
+
+Ahead of a new season, Guy Ritchie's first Paramount+ crime thriller is becoming a hit on streaming again. Get all the details here.
+---------
+
+# Prime Video’s ‘God of War’ Series Suffers Major Setback
+
+TV News, God of War, Prime Video, Ryan Hurst
+
+Fri, 17 Jul 2026 01:02:42 GMT
+
+https://collider.com/god-of-war-series-delayed-2027-ryan-hurst-injured/
+
+Prime Video’s God of War series reportedly delayed to 2027 after Ryan Hurst suffers on-set injury.
+---------
+
+# Titus Welliver Officially Replaces 'Bosch' With Van Helsing in New Vampire Horror Release
+
+Movie News, Abraham's Boys, Titus Welliver, Bosch, Horror
+
+Fri, 17 Jul 2026 01:00:15 GMT
+
+https://collider.com/titus-welliver-bosch-follow-up-abrahams-boys-blu-ray-release/
+
+Titus Welliver's first Bosch follow-up movie, Abraham's Boys, is getting a release from Shudder. Read on for more.
+---------
+
+# 9 Intense Netflix Crime Thrillers I'm Shocked No One Is Talking About
+
+TV Lists, Thriller, Netflix
+
+Fri, 17 Jul 2026 02:00:22 GMT
+
+https://movieweb.com/netflix-intense-crime-thrillers-binge-worthy/
+
+Netflix has released some of the most popular TV crime thrillers of the past few years, but these are the most underrated.
+---------
+
 # Brandon Sanderson Reveals He Is Still Changing Genre In 2028
 
 Books, Brandon Sanderson
