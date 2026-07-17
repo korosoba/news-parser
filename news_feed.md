@@ -1,3 +1,377 @@
+# HBO's 7-Hour Crime Drama With A Near-Perfect RT Score Doesn't Waste A Minute
+
+Streaming TV, Masked Recs
+
+Fri, 17 Jul 2026 17:00:12 GMT
+
+https://screenrant.com/mare-of-easttown-hbo-crime-drama-binge/
+
+HBO's dizzying amount of crime dramas may seem overwhelming to a viewer looking for the perfect binge. But one miniseries is a cut above the rest.
+---------
+
+# The Cast Of Blippi: A Character Guide (& Why The Actor Changed)
+
+Streaming TV, Blippi
+
+Fri, 17 Jul 2026 17:00:12 GMT
+
+https://screenrant.com/cast-of-blippi-character-guide-why-actor-changed/
+
+The cast of Blippi, the children's educational YouTube channel, features two actors in the main role and an ensemble of guests and celebrity cameos.
+---------
+
+# Hello Kitty Unveils Adorable New Collaboration With One Big Twist
+
+Anime, Hello Kitty
+
+Fri, 17 Jul 2026 16:47:21 GMT
+
+https://screenrant.com/hello-kitty-razer-keyboard-collaboration-twist/
+
+Hello Kitty's newest collaboration is both adorable and functional, but there is a big catch that will make it hard to complete the collection.
+---------
+
+# Terminator's Next Release Recasts Arnold Schwarzenegger, John & Sarah Connor
+
+Comics, Terminator
+
+Fri, 17 Jul 2026 16:39:10 GMT
+
+https://screenrant.com/archie-vs-terminator-new-character-redesigns/
+
+The Terminator franchise's next installment redesigns the T-800, Sarah, and John Connor, leaving behind Schwarzenegger, Hamilton, and Furlong.
+---------
+
+# Brendan Fraser's New WWII Thriller Pressure Officially Releases On Streaming Next Week
+
+Movies, Pressure
+
+Fri, 17 Jul 2026 16:33:15 GMT
+
+https://screenrant.com/brendan-fraser-pressure-peacock-streaming-release-date/
+
+Brendan Fraser's new World War II thriller, Pressure, officially releases on streaming next week after an impressive run at the box office.
+---------
+
+# Paramount's New G.I. Joe Movie Is Better Than A Transformers Crossover
+
+Movies, G.I. Joe
+
+Fri, 17 Jul 2026 16:30:11 GMT
+
+https://screenrant.com/paramount-new-gi-joe-movie-better-than-transformers/
+
+Danny McBride's G.I. Joe movie sounds much, much more tantalizing than the Transformers crossover they were setting up in Rise of the Beasts.
+---------
+
+# Why The Big Bang Theory Is Going R-Rated For Its First-Ever Sequel Explained By Creators
+
+TV, Stuart Fails to Save the Universe, Stuart Fails to Save the Universe - Season 1, The Big Bang Theory
+
+Fri, 17 Jul 2026 16:19:46 GMT
+
+https://screenrant.com/big-bang-theory-stuart-fails-save-universe-r-rated-why-creators/
+
+The creators of Stuart Fails to Save the Universe tease the adult humor that franchise viewers can expect from the upcoming Big Bang Theory sequel.
+---------
+
+# Sydney Sweeney’s New Reboot Of Iconic 207-Year-Old Gothic Horror Story Officially Moving Forward
+
+Movies, Sleepy Hollow (Remake)
+
+Fri, 17 Jul 2026 16:15:21 GMT
+
+https://screenrant.com/sydney-sweeney-sleepy-hollow-reboot-confirmed-sony-lindsey-anderson-beer/
+
+A remake of Sleepy Hollow is now officially happening, and Euphoria star Sydney Sweeney is set to star in the anticipated horror movie.
+---------
+
+# Reacher Meets The Boys In Antony Starr's R-Rated Thriller Series
+
+TV, Banshee, Recommendation
+
+Fri, 17 Jul 2026 16:15:11 GMT
+
+https://screenrant.com/banshee-show-reacher-meets-boys-antony-starr/
+
+Antony Starr's first major television series was a gritty blend of Reacher with The Boys, and every season is currently streaming on HBO Max.
+---------
+
+# Mortal Kombat 2 Will Officially Deal A Fatality On Streaming Next Week
+
+Movies, Mortal Kombat II, Mortal Kombat
+
+Fri, 17 Jul 2026 16:08:02 GMT
+
+https://screenrant.com/mortal-kombat-2-hbo-max-streaming-release-date/
+
+The official streaming release date for video game movie sequel Mortal Kombat II has been revealed, and it will arrive surprisingly soon.
+---------
+
+# Marvel Finally Confirms the True Weight of Spider-Man's Responsibility
+
+Comics, Spider-Man
+
+Fri, 17 Jul 2026 17:02:26 GMT
+
+https://www.cbr.com/spider-man-weight-responsibility-exclusive-preview/
+
+In an exclusive preview of next week's Amazing Spider-Man #33, see Spider-Man struggle with the new status quo between him and Aunt May
+---------
+
+# 5 Darkest Fantasy Anime That Would Horrify George R.R. Martin
+
+Anime, Fantasy, George R.R. Martin, a song of ice and fire, Berserk, Puella Magi Madoka Magica, Made in Abyss
+
+Fri, 17 Jul 2026 17:00:15 GMT
+
+https://www.cbr.com/darkest-fantasy-anime-horrify-george-rr-martin/
+
+While GRRM's work still stands out in literature, anime has spent decades building fantasy worlds that push past even Martin's appetite for cruelty.
+---------
+
+# 37 Must-Read Boy's Love Manhwa For BL Fans
+
+Anime, Boys' Love, manhwa, yaoi
+
+Fri, 17 Jul 2026 17:00:15 GMT
+
+https://www.cbr.com/best-boys-love-manhwa-bl-fans/
+
+The boy love genre has grown in recent years, marking a popularization and mainstream acceptance of LGBTQ storylines.
+---------
+
+# After 10 Years, Matt Damon Finally Confirms the Fate of His $1.6B Action Franchise
+
+Movies, Jason Bourne, matt damon
+
+Fri, 17 Jul 2026 16:25:42 GMT
+
+https://www.cbr.com/matt-damon-confirms-jason-bourne-6-director/
+
+Matt Damon is still ready to go back to his high-octane franchise.
+---------
+
+# Matt Damon Reveals The Odyssey's Message That He Can't Stop Thinking About
+
+CBR Exclusives, The Odyssey
+
+Fri, 17 Jul 2026 16:16:14 GMT
+
+https://www.cbr.com/matt-damon-reveals-the-odyssey-real-message/
+
+Matt Damon and Anne Hathaway discuss the power of Odysseus and Penelope's love story in The Odyssey,
+---------
+
+# 5 Anime Characters With Powers Stronger Than All For One
+
+Anime, My Hero Academia, Jujutsu Kaisen, shonen anime, Demon Slayer: Kimetsu no Yaiba
+
+Fri, 17 Jul 2026 16:15:15 GMT
+
+https://www.cbr.com/anime-characters-stronger-than-all-for-one-mha/
+
+My Hero Academia's All For One has an extremely overpowered Quirk, but he wouldn't stand a chance against anime's strongest characters.
+---------
+
+# DC Comics Officially Kills Off The Flash's Most Important Villain
+
+Comics, DC Comics, DCU, The Flash
+
+Fri, 17 Jul 2026 16:07:01 GMT
+
+https://www.cbr.com/dc-comics-officially-kills-off-the-flash-most-important-villain/
+
+One of the most formidable Flash foes of all-time just got killed — quickly.
+---------
+
+# Stranger Things Season 5 Gets More Bad News After Divisive Finale
+
+TV, Stranger Things, Netflix, His & Hers
+
+Fri, 17 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/stranger-things-season-5-netflix-viewership/
+
+Stranger Things Season 5 falls short on Netflix's What We Watched report, compared to the streamer's other hits like His & Hers and Bridgerton.
+---------
+
+# Marvel's Nova Movie is the Sci-Fi Event of the Decade
+
+Movies, Nova, Marvel Cinematic Universe
+
+Fri, 17 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/mcu-nova-marvel-movie-space-opera-sci-fi-event/
+
+The announcement of a brand-new cosmic Marvel Studios movie has already given sci-fi fans something huge to look forward to.
+---------
+
+# Christopher Nolan’s New Odyssey Release Is Already a Streaming Hit
+
+Movie News, The Odyssey, Christopher Nolan, Peacock, Fantasy
+
+Fri, 17 Jul 2026 17:01:14 GMT
+
+https://collider.com/the-odyssey-making-of-an-epic-peacock-streaming-top-5/
+
+The Odyssey: The Making of an Epic, Christopher Nolan’s 22-minute behind-the-scenes documentary, has debuted on streaming.
+---------
+
+# Sydney Sweeney Is Officially Reviving a 200-Year Old Horror Classic
+
+Movie News, Sydney Sweeney, Sony Pictures, Sleepy Hollow, Horror
+
+Fri, 17 Jul 2026 16:45:15 GMT
+
+https://collider.com/sydney-sweeney-sleepy-hollow-remake-confirmed-sony/
+
+Sydney Sweeney's remake of the gothic horror classic Sleepy Hollow is officially moving forward. Read on for all the details.
+---------
+
+# This ‘Star Trek’ Spin-Off Made One of Its Classic Alien Species More Terrifying Than Ever
+
+TV Features, Star Trek, Star Trek: Strange New Worlds, Sci-Fi, Paramount Plus
+
+Fri, 17 Jul 2026 16:42:15 GMT
+
+https://collider.com/star-trek-strange-new-worlds-gorn-species-memento-mori-episode/
+
+Strange New Worlds reinvented the Gorn, turning one of Star Trek’s oldest species into one of its most terrifying recurring threats.
+---------
+
+# ‘Tomb Raider’ Officially Returns With a Surprise Release This Summer
+
+Gaming News, Tomb Raider, Sophie Turner, Angelina Jolie
+
+Fri, 17 Jul 2026 16:40:15 GMT
+
+https://collider.com/tomb-raider-crypt-of-chronos-board-game-release-date-summer-2026/
+
+Tomb Raider will officially return this summer with a new release, sending Lara Croft on yet another unforgettable adventure.
+---------
+
+# Will Ferrell’s First Major TV Role in 5 Years Earns Career-Low Rotten Tomatoes Score
+
+TV News, The Hawk, Will Ferrell, Netflix, Rotten Tomatoes
+
+Fri, 17 Jul 2026 16:21:15 GMT
+
+https://collider.com/will-ferrell-the-hawk-netflix-rotten-tomatoes-score-is-it-good/
+
+Will Ferrell's new Netflix golf dramedy, The Hawk, has arrived, and so far, critics haven't been impressed by the much-anticipated series.
+---------
+
+# 6 Best Heist Movies Released Since 2000
+
+Movie, Thriller, Sexy Beast, Hell or High Water, Snatch
+
+Fri, 17 Jul 2026 16:06:14 GMT
+
+https://collider.com/best-heist-movies-since-2000-ranked/
+
+Ocean's Eleven, Sexy Beast, and Snatch are all among the best heist movies released since the year 2000.
+---------
+
+# The Highest-Grossing WWII Movie Ever Made Storms Streaming Charts After Recent Setback
+
+Movie News, Oppenheimer, Christopher Nolan, World War II, Biopic
+
+Fri, 17 Jul 2026 16:01:15 GMT
+
+https://collider.com/christopher-nolan-oppenheimer-highest-grossing-ww2-movie-itunes-success-july-2026/
+
+Christopher Nolan's Oppenheimer saw a resurgence in popularity on iTunes thanks to the release of the filmmaker's latest epic, The Odyssey.
+---------
+
+# 'King of the Hill' Season 15 Is Everything Fans of the Original Series Could Want | Review
+
+TV Reviews, King of the Hill, Hulu, Animation, Mike Judge
+
+Fri, 17 Jul 2026 16:01:15 GMT
+
+https://collider.com/king-of-the-hill-season-15-hulu-review/
+
+Season 15 of King of the Hill continues to recapture the charm of the original series with a perfect balance of wit, emotions, and real-world topics.
+---------
+
+# 17M Player Sci-Fi RPG Officially Sets 2027 Return Date
+
+Gaming News, Starfield, Bethesda, Gaming, Games
+
+Fri, 17 Jul 2026 15:55:13 GMT
+
+https://collider.com/starfield-new-starborn-content-2027-update/
+
+Bethesda reveals its plans for Starfield Year 3, including new stories, gameplay updates, and additional Starborn content coming in 2027.
+---------
+
+# Taylor Sheridan's Underrated Action Thriller Roars to Streaming Success
+
+TV News, Taylor Sheridan, Lioness, Action, Thriller
+
+Fri, 17 Jul 2026 17:01:12 GMT
+
+https://movieweb.com/taylor-sheridan-lioness-stream-charts-july-2026-action-thriller/
+
+The action outing is climbing the charts ahead of its new season next month.
+---------
+
+# Ridley Scott's 3-Part Thriller Masterpiece is Already Aging Like Fine Wine
+
+Features, Ridley Scott
+
+Fri, 17 Jul 2026 17:01:12 GMT
+
+https://movieweb.com/the-terror-ridley-scott-holds-up/
+
+Ridley Scott has made many TV shows and movies during his impressive career, including this one masterpiece.
+---------
+
+# 'Mortal Kombat II' Officially Confirms Streaming Date
+
+Movie News, Mortal Kombat II, HBO Max
+
+Fri, 17 Jul 2026 16:30:23 GMT
+
+https://movieweb.com/mortal-kombat-ii-hbo-max-streaming-date/
+
+Warner Bros. confirmed when 'Mortal Kombat II' will be available to stream after a slightly disappointing run at the box office.
+---------
+
+# Forget 'Ghost War,' the Best Jack Ryan Movie Came Out 32 Years Ago and Has Now Set New Release
+
+Movie News, Clear And Present Danger, Jack Ryan, Tom Clancy's Jack Ryan: Ghost War
+
+Fri, 17 Jul 2026 16:15:02 GMT
+
+https://movieweb.com/clear-and-present-danger-4k-blu-ray-release/
+
+The Harrison Ford-led adaptation of Tom Clancy's 'Clear and Present Danger' is getting a 4K Blu-ray steelbook on the heels of 'Jack Ryan: Ghost War.'
+---------
+
+# The Funniest Superhero Movies of the 21st Century
+
+Movie Lists, Superheroes, Superhero, Comedy
+
+Fri, 17 Jul 2026 16:00:13 GMT
+
+https://movieweb.com/funny-superhero-movies-21st-century/
+
+Superhero and humor go hand in hand, but these movies deliver comedy like no others.
+---------
+
+# ABC's Complete Fall 2026 Schedule - Every TV Series & When It Releases
+
+TV Lists, Abbott Elementary, 9-1-1, Scrubs
+
+Fri, 17 Jul 2026 16:00:12 GMT
+
+https://movieweb.com/abc-fall-2026-schedule/
+
+'Abbott Elementary,' '9-1-1,' 'Grey's Anatomy,' and more are back this fall.
+---------
+
 # Paramount+'s 4-Part Elite Crime Thriller Breaks Major Record Ahead Of Intense Finale
 
 Network TV, Criminal Minds
@@ -5123,18 +5497,3 @@ https://collider.com/brendan-fraser-blast-from-the-past-streaming-tubi-july-2026
 
 1999's Blast From the Past brought together Brendan Fraser, Alicia Silverstone and Christopher Walken for a sci-fi mashup that still holds up.
 ---------
-
-# 'The Simpsons' Officially Calls Out Its Darkest Fan Theory
-
-TV Features, The Simpsons, Comedy, Animation, Fox
-
-Thu, 16 Jul 2026 04:06:14 GMT
-
-https://collider.com/the-simpsons-season-36-ralph-real-father-eddie-fan-theory/
-
-This long-running fan theory for The Simpsons has been hinted at for years and finally confirmed to be true in Season 36.
----------
-
-# Новости кино и сериалов — 2026-07-16
-
-Файл очищен после ежедневной отправки.
