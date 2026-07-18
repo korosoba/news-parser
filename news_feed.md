@@ -1,3 +1,256 @@
+# 10 Biggest TV Shows Still To Come In 2026
+
+Streaming TV, Star Trek: Strange New Worlds, MobLand, American Horror Story, Harry Potter, The Lord of the Rings: The Rings of Power, Ted Lasso, Reacher, Stuart Fails to Save the Universe, VisionQuest, Lanterns
+
+Sat, 18 Jul 2026 20:30:11 GMT
+
+https://screenrant.com/upcoming-tv-shows-2026-still-to-come/
+
+2026 has delivered a number of major TV shows, both new and established, and these 10 are the biggest left to come for the rest of the year.
+---------
+
+# It's The End Of An Era For Fox's 27-Year-Old Sitcom
+
+TV, Masked Recs
+
+Sat, 18 Jul 2026 20:30:11 GMT
+
+https://screenrant.com/family-guy-new-era-stewie-spinoff/
+
+Fox airs some of the longest running sitcoms on television, and one of them is about to undergo its biggest change in more than a decade.
+---------
+
+# DC’s New Green Lantern Movie Reveal Officially Confirms A Major Change
+
+Movies, Green Lantern
+
+Sat, 18 Jul 2026 20:30:11 GMT
+
+https://screenrant.com/dcu-green-lantern-man-of-tomorrow-cast-change/
+
+Guy Gardner’s confirmed return for Man of Tomorrow further proves that DC Studios is serious about revitalizing this underutilized corps of heroes.
+---------
+
+# Naruto's Live Action Movie Is 5 Steps Away From Being A Masterpiece
+
+Movies, Naruto - Live Action, Naruto
+
+Sat, 18 Jul 2026 20:30:11 GMT
+
+https://screenrant.com/naruto-live-action-movie-steps-away-masterpiece/
+
+The upcoming Naruto movie has the chance to be incredible if it can learn from past live-action adaption mistakes and execute what really matters.
+---------
+
+# One Of The Most Popular Gacha Games Of All Time Is Finally Coming To PC
+
+Gaming, arknights, Triple-A Games, PC
+
+Sat, 18 Jul 2026 20:30:11 GMT
+
+https://screenrant.com/arknights-offciial-pc-release-date/
+
+After waiting for over half a decade with barely functional emulators, this expansive story-rich RPG is finally making its way to PC.
+---------
+
+# 10 Greatest Non-Human Horror Movie Villains Of All Time, Ranked
+
+Movies, Horror, Alien, The Blob, The Stuff, The Birds, Jaws, Nope, Gremlins, Infested, A Quiet Place, Little Shop of Horrors
+
+Sat, 18 Jul 2026 20:30:11 GMT
+
+https://screenrant.com/best-non-human-horror-movie-villains-all-time-ranked/
+
+Some of the most horrifying villains in horror history aren't human at all, and here are ten of the best non-human horror antagonists of all time.
+---------
+
+# Game Of Thrones Meets Stranger Things In HBO's 3-Part Fantasy Series
+
+Classic TV, Masked Recs
+
+Sat, 18 Jul 2026 20:15:11 GMT
+
+https://screenrant.com/his-dark-materials-hbo-game-of-thrones-meets-stranger-things/
+
+HBO's three-season fantasy show combines the political turmoil from Game of Thrones and the multiversal reality of Stranger Things to great effect.
+---------
+
+# Dungeons & Dragons Drops 19 New Subclasses In Surprise Update
+
+Tabletop, Dungeons and Dragons, Dungeons & Dragons, tabletop games
+
+Sat, 18 Jul 2026 20:00:12 GMT
+
+https://screenrant.com/dungeons-dragons-new-subclasses-valda-spire-secrets-dnd/
+
+A big pack with 19 new subclasses for Dungeons and Dragons has just been released, and you can now pick quirky and humorous subclasses.
+---------
+
+# DC Justice League RPG Officially Drops On July 21
+
+Gaming, Justice League, DC, Justice League Dark, Justice League Unlimited, PC
+
+Sat, 18 Jul 2026 20:00:12 GMT
+
+https://screenrant.com/dc-justice-league-unlimited-rpg-july-21/
+
+DC Justice League is getting an official role-playing game later this week on July 21, letting players fight alongside Batman, Superman, and more.
+---------
+
+# 2 Fan-Favorite Game Of Thrones Stars Who Never Shared A Scene Reveal Their New Movie
+
+Movies
+
+Sat, 18 Jul 2026 19:50:41 GMT
+
+https://screenrant.com/game-of-thrones-kristofer-hivju-tom-wlaschiha-uncle-egg-movie-filming/
+
+Despite never sharing a scene together across eight seasons of Game of Thrones, these two stars are now filming a new movie toge3ther.
+---------
+
+# The Chronicles of Narnia Is One of the Greatest Fantasy Franchises Ever
+
+Movies, The Chronicles of Narnia, Netflix, Fantasy
+
+Sat, 18 Jul 2026 20:30:15 GMT
+
+https://www.cbr.com/netflix-rebooting-chronicles-of-narnia-movie/
+
+Netflix's Narnia reboot is already getting audiences excited for what's to come, but it's easy to forget how important a reboot it really is.
+---------
+
+# Freddy Krueger Actor Robert Englund Has 1 Request for Paramount's Nightmare on Elm Street Reboot
+
+Movies, A Nightmare on Elm Street
+
+Sat, 18 Jul 2026 20:22:40 GMT
+
+https://www.cbr.com/robert-englund-request-paramount-nightmare-on-elm-street-reboot/
+
+Robert Englund reacts to A Nightmare on Elm Street being rebooted by Paramount.
+---------
+
+# 5 Anime Gods Stronger Than Superman
+
+Anime, Superman, Bleach, Dragon Ball
+
+Sat, 18 Jul 2026 20:15:15 GMT
+
+https://www.cbr.com/anime-gods-stronger-than-superman/
+
+Pitched against these multiversal anime gods, even Superman faces an insurmountable gap in power that physical invulnerability cannot bridge.
+---------
+
+# The CW's Near-Perfect 4-Season Comedy Is Finally Heading to Free Streaming Next Month
+
+TV, Crazy Ex-Girlfriend, Comedy, The CW
+
+Sat, 18 Jul 2026 20:00:16 GMT
+
+https://www.cbr.com/the-cw-crazy-ex-girlfriend-comedy-streaming-free-pluto-tv-august-2026/
+
+One of the most underseen CW shows with a near-perfect Rotten Tomatoes score, Crazy Ex-Girlfriend, will be streaming for free in the United States.
+---------
+
+# Ghost in the Shell Transforms Its Iconic Red Tank Into a High-End Watch for International Release
+
+Anime, The Ghost in the Shell, Ghost in the Shell, merchandise
+
+Sat, 18 Jul 2026 20:00:16 GMT
+
+https://www.cbr.com/ghost-in-the-shell-fuchikoma-garrack-watch-international-release/
+
+The release of the newest Ghost in the Shell anime coincides with a new Fuchikoma-based watch that combines the cyberpunk anime with modern style.
+---------
+
+# 4 Near-Perfect Adventure Movies Ruined By The Main Character
+
+Movies, Adventure
+
+Sat, 18 Jul 2026 20:00:16 GMT
+
+https://www.cbr.com/perfect-adventure-movies-worst-main-character-list/
+
+Despite the movies themselves being great, some of the worst protagonists ruin the whole adventure.
+---------
+
+# 2 Years Later, Liam Neeson's Brutal Revenge Thriller Becomes a Must-Watch on Netflix
+
+Movie News, Liam Neeson, Westerns, Netflix, In the Land of Saints and Sinners
+
+Sat, 18 Jul 2026 20:30:15 GMT
+
+https://collider.com/liam-neeson-in-the-land-of-saints-and-sinners-streaming-netflix-august-2026/
+
+Liam Neeson's underrated neo-Western, In the Land of Saints and Sinners, hits streaming two years after its release. Read on for more.
+---------
+
+# 10 Greatest Grand Theft Auto Video Games
+
+Books and Comics, Video Game, Grand Theft Auto, Grand Theft Auto V, Grand Theft Auto 5
+
+Sat, 18 Jul 2026 20:29:15 GMT
+
+https://collider.com/best-grand-theft-auto-video-games-ranked/
+
+Before the highly anticipated Grand Theft Auto VI comes out, we're ranking the best entries in the long-running Grand Theft Auto video game series.
+---------
+
+# Apple TV’s New Anya Taylor-Joy Thriller Has a Dark Real-Life Origin
+
+TV Features, Anya Taylor-Joy, Lucky, Apple TV, Reese Witherspoon
+
+Sat, 18 Jul 2026 20:06:14 GMT
+
+https://collider.com/apple-tv-lucky-anya-taylor-joy-thriller-dark-real-life-origin/
+
+Apple TV's Lucky is based on a novel by Marissa Stapley, whose family endured a real-life financial scam when she was a child.
+---------
+
+# Taylor Sheridan's Hit 'Yellowstone' Spin-Off Proves To Be an Absolute Monster Hit on Streaming
+
+TV News, Marshals, Taylor Sheridan, CBS, Paramount Plus
+
+Sat, 18 Jul 2026 20:00:16 GMT
+
+https://collider.com/taylor-sheridan-marshals-streaming-success-paramount-plus-july-2026/
+
+Marshals, the Yellowstone expansion produced by Taylor Sheridan, is surging on Paramount Plus before Season 2 arrives later this year.
+---------
+
+# Only 5 Viola Davis Movies Are Perfect From Start to Finish
+
+Movie, Viola Davis, Fences, Doubt, The Woman King
+
+Sat, 18 Jul 2026 19:49:15 GMT
+
+https://collider.com/best-viola-davis-movies-perfect/
+
+From Prisoners to The Woman King, these Viola Davis masterpieces showcase heartbreak, resilience, power, and unforgettable drama.
+---------
+
+# ‘The Odyssey’ Timeline Explained & All Events In Chronological Order
+
+Features, The Odyssey, Christopher Nolan
+
+Sat, 18 Jul 2026 20:00:13 GMT
+
+https://movieweb.com/the-odyssey-timeline-chronology-explained/
+
+Christopher Nolan's 'The Odyssey' jumps back and forth in time along Odysseus' 10-year journey, making it somewhat difficult to track the events.
+---------
+
+# The Greatest Summer Slashers of All Time, Ranked
+
+Movie Lists, Horror
+
+Sat, 18 Jul 2026 20:00:13 GMT
+
+https://movieweb.com/best-summer-slashers/
+
+Plenty of slasher movies take place during the hottest season of the year; these are the best.
+---------
+
 # Everyone's Official Starfleet Rank In Star Trek: Strange New Worlds Season 4
 
 TV, Star Trek, Star Trek: Strange New Worlds
@@ -5243,257 +5496,4 @@ Fri, 17 Jul 2026 12:00:12 GMT
 https://screenrant.com/doctor-who-vincent-and-the-doctor-best-historical-episode/
 
 While Doctor Who's historical episodes can be hit-or-miss, this 19th-century episode is one of the best and most moving the show has ever produced.
----------
-
-# 5 Years Later, Japan Has Found Its Answer To Squid Game With Brutal New Series
-
-Anime, Masked Recs
-
-Fri, 17 Jul 2026 12:00:12 GMT
-
-https://screenrant.com/darwin-game-japan-answer-squid-game/
-
-Squid Game may be one of the most well-known death game series in recent years from Korea, but Japan is finally releasing a new series to rival it.
----------
-
-# GTA 6 "Trailer 2.5" Will Tide You Over Until Trailer 3
-
-Gaming, Grand Theft Auto 6, Grand Theft Auto
-
-Fri, 17 Jul 2026 11:45:11 GMT
-
-https://screenrant.com/gta-6-new-trailer-by-fans-for-fans/
-
-The wait for the third GTA trailer goes on, but there is a way you can make it seem a little less long.
----------
-
-# Pokémon Scarlet & Violet Limited-Time Free Download Available Until August 5
-
-Gaming, Pokemon Scarlet and Violet, Pokemon
-
-Fri, 17 Jul 2026 11:30:12 GMT
-
-https://screenrant.com/pokemon-scarlet-violet-limited-time-free-download-tera-raid/
-
-Explore the latest events in Pokémon Scarlet and Violet, including the 7-Star Magikarp Tera Raid and Mass Outbreaks.
----------
-
-# 10 Greatest Batman One-Shot Graphic Novels of All Time
-
-Comics, Batman
-
-Fri, 17 Jul 2026 12:00:15 GMT
-
-https://www.cbr.com/greatest-batman-one-shot-graphic-novels/
-
-Sometimes, just a little of Batman goes a long way.
----------
-
-# Marvel's Strongest Hero Unleashes a All-New Game-Changing Power
-
-Comics, comic books, Avengers, Marvel
-
-Fri, 17 Jul 2026 12:00:15 GMT
-
-https://www.cbr.com/avengers-armegeddon-2-david-cole-new-powers-confirmed/
-
-A new hero, has emerged with Sentry-level strength, joining the Avengers to face off against the Red Hulk.
----------
-
-# The DCU Quietly Confirms The Flash Is Closer Than Ever
-
-TV, DCU, The Flash, superheroes
-
-Fri, 17 Jul 2026 11:30:15 GMT
-
-https://www.cbr.com/dcu-gorilla-grodd-sets-up-the-flash/
-
-A newly announced DCU project confirms that a fan-favorite speedster may be arriving sooner than we thought.
----------
-
-# Fans Are Rediscovering Zack Snyder's Greek Epic Ahead of Christopher Nolan's 'The Odyssey'
-
-Movie News, 300, Zack Snyder, Gerard Butler, The Odyssey
-
-Fri, 17 Jul 2026 12:30:15 GMT
-
-https://collider.com/zack-snyder-greek-epic-300-streaming-success-vudu-july-2026/
-
-As anticipation builds for Christopher Nolan's adaptation of Homer's Odyssey, fans are revisiting Zack Snyder's 2007 historical fantasy film 300.
----------
-
-# Avengers: Doomsday Will Continue an Unspoken MCU Tradition
-
-Movie Features, Avengers: Doomsday, Robert Downey Jr, Chris Evans, Chris Hemsworth
-
-Fri, 17 Jul 2026 12:23:14 GMT
-
-https://collider.com/avengers-doomsday-marvel-studios-tradition-recurring-cast-members/
-
-When Avengers: Doomsday hits theaters this December, it will continue a long-running trend from Marvel Studios' biggest franchise.
----------
-
-# Jake Johnson Was "Floored" by 'Maximum Pleasure Guaranteed's Finale
-
-TV, Maximum Pleasure Guaranteed, Apple TV, Jake Johnson, The Dink
-
-Fri, 17 Jul 2026 12:04:14 GMT
-
-https://collider.com/maximum-pleasure-guaranteed-finale-jake-johnson-the-dink-interview/
-
-Jake Johnson talks about how shocked he was by Maximum Pleasure Guaranteed's finale, what he would want in a Season 2, and his new comedy, The Dink.
----------
-
-# Netflix's Stellar 'Yellowstone' Replacement Officially Returns in Just 1 Week
-
-TV News, Ransom Canyon, Josh Duhamel, Minka Kelly, Yellowstone
-
-Fri, 17 Jul 2026 12:00:15 GMT
-
-https://collider.com/ransom-canyon-netflix-yellowstone-dupe-season-2-release-date-july-23-2026/
-
-Netflix's Yellowstone replacement, the neo-Western drama Ransom Canyon, is all set to return with a new season this week. Find out more.
----------
-
-# ‘Cape Fear’ Showrunner Breaks Down the Shocking Episode 8 Reveal That Changes Everything
-
-Exclusives, Apple TV, Cape Fear, Javier Bardem, Nick Antosca
-
-Fri, 17 Jul 2026 12:00:15 GMT
-
-https://collider.com/cape-fear-episode-8-ending-breakdown-reveal-showrunner-explains/
-
-Cape Fear showrunner Nick Antosca explains Episode 8, Anna and Max’s past, and the dismantling of the Bowden family.
----------
-
-# 10 Pointless Movie Remakes That Had No Reason To Exist
-
-Movie, RoboCop, Clash of the Titans, Total Recall, Lilo & Stitch
-
-Fri, 17 Jul 2026 11:45:15 GMT
-
-https://collider.com/pointless-movie-remakes-no-reason-to-exist/
-
-Pointless, uninspired movie remakes of classics like RoboCop, Total Recall, and Lilo & Stitch genuinely had no reason to exist.
----------
-
-# 10 Classic Rock Albums Where Every Song Is a Masterpiece
-
-Music Features, Rock, Queen, Bruce Springsteen, Fleetwood Mac
-
-Fri, 17 Jul 2026 11:41:14 GMT
-
-https://collider.com/classic-rock-albums-every-song-masterpiece/
-
-From Queen to The Beatles, these albums feature wall-to-wall masterpieces.
----------
-
-# 10 Greatest Hard-Boiled Detective Books of All Time
-
-Books and Comics, Books, The Long Goodbye, The Maltese Falcon, L.A. Confidential
-
-Fri, 17 Jul 2026 11:36:15 GMT
-
-https://collider.com/best-hard-boiled-detective-books-all-time-ranked/
-
-From '90s classics like L.A. Confidential to foundational works like The Maltese Falcon, these are the all-time greatest hard-boiled detective books.
----------
-
-# Titus Welliver's Post-'Bosch' Masterpiece Reigns Supreme Over Hollywood's Biggest Stars
-
-TV News, Titus Welliver, The Westies, J.K. Simmons, Crime
-
-Fri, 17 Jul 2026 11:30:15 GMT
-
-https://collider.com/titus-welliver-the-westies-streaming-success-mgm-plus-july-2026/
-
-Titus Welliver's new show, The Westies, has overtaken movies starring Ryan Gosling, Jason Statham, and Mark Wahlberg on MGM+. Find out more.
----------
-
-# 10 Essential Crime Shows You Need To Watch Before You Die
-
-TV, Crime, Breaking Bad, Twin Peaks, The Sopranos
-
-Fri, 17 Jul 2026 11:22:15 GMT
-
-https://collider.com/essential-crime-shows-watch-before-you-die/
-
-Discover the essential crime shows that every fan of gripping storytelling and complex characters must watch, from Breaking Bad to Twin Peaks.
----------
-
-# Jackie Chan Returns for Sequel to 44-Year-Old Classic Action Franchise
-
-Movie News, Jackie Chan, Armour of God, Action, Adventure, Martial Arts
-
-Fri, 17 Jul 2026 12:01:35 GMT
-
-https://movieweb.com/jackie-chan-returns-armour-god-4-action/
-
-The action movie icon is back for another death-defying action-adventure with our first look at 'Armour of God IV: Ultimatum.'
----------
-
-# Every Main Star Trek Ship's Chief Medical Officer, Ranked by Ability
-
-TV Lists, Star Trek
-
-Fri, 17 Jul 2026 12:00:12 GMT
-
-https://movieweb.com/star-trek-chief-medical-officers-ranked/
-
-Star Trek has several Chief Medical Officers, but not all of them are created equal. Read on for more.
----------
-
-# James Bond Finds New Favorite After Netflix Star Auditions for Amazon Reboot
-
-Movie News, james bond, James Bond, Action
-
-Fri, 17 Jul 2026 11:41:39 GMT
-
-https://movieweb.com/james-bond-reboot-new-favorite-tom-francis-audition/
-
-The actor has reportedly already auditioned for the role as Amazon's hunt for the next 007 ramps up.
----------
-
-# First Look at Gandalf in 'Lord of the Rings: Rings of Power' Season 3 Revealed
-
-TV News, The Lord of the Rings: The Rings of Power, The Lord of the Rings
-
-Fri, 17 Jul 2026 11:32:40 GMT
-
-https://movieweb.com/rings-of-power-season-3-gandalf-first-look/
-
-The first look at Gandalf in 'Lord of the Rings: The Rings of Power' Season 3 has been revealed ahead of this year's San Diego Comic-Con (SDCC).
----------
-
-# The Legend Of Zelda Major 2027 Release Officially Confirmed As New Chapter Begins
-
-Gaming, The Legend of Zelda
-
-Fri, 17 Jul 2026 11:00:11 GMT
-
-https://screenrant.com/legend-of-zelda-2027-new-hasbro-deals/
-
-The Legend of Zelda is coming back in a big way, after confirmation of a major new deal means more is coming down the pipeline.
----------
-
-# Star Wars: Knights Of The Old Republic Remake Official Release Date Update Shared
-
-Gaming, Star Wars: Knights of the Old Republic, Star Wars
-
-Fri, 17 Jul 2026 10:30:15 GMT
-
-https://screenrant.com/star-wars-knights-old-republic-remake-release-date-update/
-
-Fans of the Star Wars: Knights of the Old Republic (KOTOR) Remake received an update on its development status.
----------
-
-# Zelda: Ocarina Of Time Remake Pre-Order Date Appears Online
-
-Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo Switch 2, Nintendo, Nintendo Direct
-
-Fri, 17 Jul 2026 10:01:45 GMT
-
-https://screenrant.com/zelda-ocarina-of-time-remake-pre-order-date-leak/
-
-A potential pre-order date for the highly anticipated Zelda: Ocarina of Time remake has surfaced, suggesting an August release on Nintendo Switch 2
 ---------
