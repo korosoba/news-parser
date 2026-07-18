@@ -1,3 +1,201 @@
+# 10 Greatest Fantasy Movies With The Best Worldbuilding
+
+Movies, Avatar, Fantasy, Dune, The Dark Crystal
+
+Sat, 18 Jul 2026 15:16:01 GMT
+
+https://screenrant.com/best-fantasy-movies-good-worldbuilding/
+
+Discover the most immersive realities in cinema with these 10 greatest fantasy movies that mastered complex, unforgettable worldbuilding.
+---------
+
+# The Elder Scrolls 6 Official Release Date Update Is Music To Our Ears
+
+Gaming, The Elder Scrolls 6, The Elder Scrolls, Triple-A Games
+
+Sat, 18 Jul 2026 15:14:26 GMT
+
+https://screenrant.com/elder-scrolls-6-official-release-date-update/
+
+The Elder Scrolls VI's fate has been left sort of up to fans' imaginations until now, as Bethesda finally officially addresses where it's at.
+---------
+
+# New Fallout Game's Release Date Might Be Closer Than We Thought
+
+Gaming, Fallout, Triple-A Games, PC
+
+Sat, 18 Jul 2026 15:01:16 GMT
+
+https://screenrant.com/fallout-obsidian-development-update-release/
+
+Following the major news of a new Fallout game from Obsidian Entertainment, a new report suggests that it could be coming sooner than expected.
+---------
+
+# Netflix's 5-Part Sci-Fi Series Had A Near-Perfect First Season
+
+Streaming TV, Masked Recs
+
+Sat, 18 Jul 2026 15:00:12 GMT
+
+https://screenrant.com/stranger-things-near-perfect-first-season/
+
+This iconic sci-fi-horror series is Netflix's biggest show to date, and it wouldn't have been possible without its spectacular first season.
+---------
+
+# Demon Slayer X Berserk Crossover Teased
+
+Gaming, Dead by Daylight
+
+Sat, 18 Jul 2026 15:00:12 GMT
+
+https://screenrant.com/dead-by-daylight-potential-anime-crossovers/
+
+Some of the most popular anime of all time are currently in talks of coming together for a massive crossover that we never saw coming.
+---------
+
+# New Epic Fantasy Movie Based On Disney's Greatest Classics Magically Climbs To #1 On Streaming Charts
+
+Movies, Descendants: Wicked Wonderland
+
+Sat, 18 Jul 2026 14:55:44 GMT
+
+https://screenrant.com/disney-descendants-wicked-wonderland-july-2026-streaming-charts/
+
+Disney's new fantasy movie officially debuts at #1 on streaming charts, showcasing the franchise's enduring popularity and creative expansion.
+---------
+
+# 6 Ways Steven Spielberg Has Changed The Film Industry Forever
+
+Movies, Steven Spielberg
+
+Sat, 18 Jul 2026 14:45:11 GMT
+
+https://screenrant.com/steven-spielberg-changed-film-industry-forever/
+
+One of the most influential figures in Hollywood, Spielberg has shaped modern filmmaking and movie-going habits over the past fifty-plus years.
+---------
+
+# Alan Ritchson's #1 Sci-Fi Thriller On Netflix Is Reacher Turned Up To 11
+
+Movies, Masked Recs
+
+Sat, 18 Jul 2026 14:30:12 GMT
+
+https://screenrant.com/alan-ritchson-war-machine-netflix-reacher-bigger/
+
+Alan Ritchson stars in a science fiction thriller on Netflix that has been a huge hit for the service and is a throwback to '80s action movies.
+---------
+
+# 5 Masterpiece Isekai Anime With the Best Power Systems
+
+Anime, Re:Zero -Starting Life in Another World-, That Time I Got Reincarnated as a Slime
+
+Sat, 18 Jul 2026 15:15:16 GMT
+
+https://www.cbr.com/masterpiece-isekai-anime-best-power-systems/
+
+The best isekai anime are built on more than imaginative worlds, and these masterpieces prove it with exceptional power systems.
+---------
+
+# Disney Lines Up New Live-Action Adaptation of $271M Hit Animated Film With Colman Domingo
+
+Movies, The Princess and the Frog, Disney, colman domingo
+
+Sat, 18 Jul 2026 15:06:18 GMT
+
+https://www.cbr.com/disney-new-live-action-the-princess-and-the-frog-colman-domingo/
+
+Even with Moana flopping, Disney is pushing ahead with more live-action remakes.
+---------
+
+# Netflix's 95-Minute Fantasy Masterpiece Is Officially 1 of the Biggest Movies of 2026 Despite Earlier Release
+
+Movies, KPop Demon Hunters, Fantasy, Netflix
+
+Sat, 18 Jul 2026 15:00:15 GMT
+
+https://www.cbr.com/kpop-demon-hunters-biggest-netflix-movies-2026/
+
+A 2025 movie remains one of Netflix's biggest movies of 2026.
+---------
+
+# 12 Strongest Gods of Destruction in Dragon Ball, Ranked By Power
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Sat, 18 Jul 2026 15:00:15 GMT
+
+https://www.cbr.com/dragon-ball-strongest-gods-of-destruction-ranked/
+
+The Gods of Destruction in the Dragon Ball universe are some of the strongest entities in the franchise, and some are much stronger than the others.
+---------
+
+# It's Official: The Elder Scrolls VI Is Finally Confirmed
+
+Games, The Elder Scrolls
+
+Sat, 18 Jul 2026 14:00:15 GMT
+
+https://www.cbr.com/elder-scrolls-6-officially-confirmed/
+
+15 years after the release of Skyrim, Bethesda has officially confirmed The Elder Scrolls VI.
+---------
+
+# 'Yellowstone's Best Sequel Officially Replaces Beth Dutton After the Shocking Season 1 Finale
+
+TV Features, Dutton Ranch, Kelly Reilly, Cole Hauser, Paramount Plus
+
+Sat, 18 Jul 2026 15:23:15 GMT
+
+https://collider.com/dutton-ranch-season-1-finale-oreana-beth-dutton-replacement/
+
+Dutton Ranch Season 1's shocking finale officially sets up another character as the Yellowstone franchise's replacement for Beth.
+---------
+
+# Peacock Officially Confirms Its Biggest Scripted Launch of All Time Is This 8-Part Series
+
+TV Features, The Five-Star Weekend, Peacock, Series, Streaming
+
+Sat, 18 Jul 2026 15:14:15 GMT
+
+https://collider.com/peacock-the-five-star-weekend-biggest-scripted-launch/
+
+Peacock confirms Jennifer Garner’s The Five-Star Weekend is the streamer’s biggest original scripted launch ever.
+---------
+
+# Taylor Sheridan’s Hit Spy Thriller Returns With Its Deadliest Mission Yet
+
+TV News, Taylor Sheridan, Lioness, Zoe Saldana, Paramount Plus
+
+Sat, 18 Jul 2026 14:45:15 GMT
+
+https://collider.com/lioness-season-3-paramount-plus-release-date/
+
+Taylor Sheridan’s Lioness officially returns for Season 3 in 2 weeks, with Zoe Saldaña and Nicole Kidman facing a dangerous new mission.
+---------
+
+# 'Interstellar' Ending, Explained
+
+Features, Interstellar
+
+Sat, 18 Jul 2026 15:00:13 GMT
+
+https://movieweb.com/interstellar-ending-explained/
+
+'Interstellar' is one of Christopher Nolan's most complex movies to date. Here is what the end of the sci-fi epic means.
+---------
+
+# 'Tombstone' Fans Can't Miss This Near-Perfect Western Action Thriller on Netflix
+
+Features, Old Henry, Netflix
+
+Sat, 18 Jul 2026 15:00:12 GMT
+
+https://movieweb.com/action-thriller-old-henry-streaming-netflix/
+
+Western fans who enjoy the history that lies beneath 'Tombstone's iconic action sequences can't miss the 94% RT Western action drama on Netflix.
+---------
+
 # 5 Best Performances In The Odyssey, Ranked
 
 Movies, The Odyssey
@@ -5298,202 +5496,4 @@ Thu, 16 Jul 2026 23:30:15 GMT
 https://collider.com/kingdom-hearts-4-d23-panel-august-2026/
 
 Kingdom Hearts is officially coming to D23, where news on the franchise's highly anticipated next chapter is expected to be revealed.
----------
-
-# Sydney Sweeney's R-Rated Streaming Smash Getting All-New Release
-
-TV News, Sydney Sweeney, Euphoria
-
-Fri, 17 Jul 2026 00:43:49 GMT
-
-https://movieweb.com/euphoria-behind-the-scenes-special-hbo/
-
-HBO Max is revisiting 'Euphoria' with a new retrospective special.
----------
-
-# Matt Damon Reveals the Six Words That Revived Ridley Scott's Epic Sci-Fi
-
-Movie News, The Martian, Matt Damon, Ridley Scott
-
-Fri, 17 Jul 2026 00:34:10 GMT
-
-https://movieweb.com/ridley-scott-the-martian-matt-damon-casting-reaction/
-
-The actor confirms the advice that prevented him from dropping out of the movie completely.
----------
-
-# Long-Awaited 'God of War' Series Filming Paused After Severe Cast Member Injury
-
-TV News, God of War
-
-Fri, 17 Jul 2026 00:24:46 GMT
-
-https://movieweb.com/god-of-war-series-ryan-hurst-injury/
-
-Amazon MGM Studios' 'God of War' series had to pause filming after one of its main cast members was seriously injured on set.
----------
-
-# The 10 Best Erotic Movies of the '90s
-
-Movie Lists, The Last Seduction
-
-Fri, 17 Jul 2026 00:00:12 GMT
-
-https://movieweb.com/best-erotic-movies-90s/
-
-The 1990s marked one of the most exciting time periods for the erotic film genre, and these 10 movies highlight just that.
----------
-
-# I Saw 'The Odyssey' In Christopher Nolan's Favorite Format - Was It Worth It?
-
-Features, The Odyssey
-
-Thu, 16 Jul 2026 23:51:44 GMT
-
-https://movieweb.com/christopher-nolan-odyssey-imax-70mm-format-guide/
-
-'The Odyssey' is finally here, and Christopher Nolan has widely expressed his preference for IMAX 70mm. Is it actually worth it?
----------
-
-# Liam Neeson's New 99-Minute "Gooey Splatter" Sci-Fi Surges On Streaming After Quiet Theatrical Run
-
-Movies, Masked Recs
-
-Thu, 16 Jul 2026 23:17:18 GMT
-
-https://screenrant.com/liam-neeson-cold-storage-mgm-plus-streaming-success-july-2026/
-
-Liam Neeson's new 99-minute "gooey splatter" sci-fi movie surges on streaming after a quiet theatrical run that grossed only $4 million.
----------
-
-# After George Lucas' Recent Star Wars Comments, The Last Jedi Makes So Much More Sense
-
-Star Wars, Star Wars: Episode VIII - The Last Jedi
-
-Thu, 16 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/star-wars-last-jedi-george-lucas-fan-reactions/
-
-George Lucas has recently commented on franchise filmmaking, only bolstering Star Wars: The Last Jedi and making it even better than it was.
----------
-
-# Square Enix Drops Surprise Remaster For One Of Its Best JRPGs
-
-Gaming, Square Enix, Star Ocean: The Second Story R, Nintendo Switch 2
-
-Thu, 16 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/square-enix-switch-2-remaster-star-ocean/
-
-Just a few days after Square Enix announced Switch 2 ports for Octopath Traveler 1 and 2, the company announced another incredible JRPG is added too.
----------
-
-# 5 Retro Anime Without A Single Flaw
-
-Anime
-
-Thu, 16 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/retro-anime-flawless/
-
-Looking to rewatch some older classic anime? These 5 anime are absolutely flawless and the perfect place to start or relive your retro anime journey.
----------
-
-# All 9 Upcoming Stephen King Movies & TV Shows
-
-Streaming TV, Stephen King
-
-Thu, 16 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/tephen-king-upcoming-movie-tv-show-adaptations/
-
-Stephen King is the king of horror, but his genre blending skills have resulted in a unique style that is often adapted, with many upcoming projects.
----------
-
-# Brandon Sanderson's Mistborn Movie Gets Disappointing New Release Update
-
-Movies, Mistborn, Brandon Sanderson
-
-Thu, 16 Jul 2026 22:50:04 GMT
-
-https://screenrant.com/misborn-movie-2027-release-unlikely-brandon-sanderson/
-
-Brandon Sanderson unfortunately gives Mistborn fans some bad news regarding Apple TV's upcoming screen adaptation of the popular book.
----------
-
-# HBO's New Must-Watch 8-Part Detective Series Is 1 Month Away
-
-Streaming TV, Masked Recs
-
-Thu, 16 Jul 2026 22:47:31 GMT
-
-https://screenrant.com/hbo-lanterns-green-lantern-series-dc-release-august-2026/
-
-After shows like True Detective and Mare of Easttown, HBO has a new must-watch crime series on the way, and it will be released in one month.
----------
-
-# Christopher Nolan’s The Odyssey Is Now A Streaming Hit Following Record-Breaking RT Debut
-
-Movies, The Odyssey, Christopher Nolan
-
-Thu, 16 Jul 2026 22:35:48 GMT
-
-https://screenrant.com/christopher-nolan-the-odyssey-documentary-peacock-streaming-success-july-2026/
-
-The Odyssey, Christopher Nolan's latest epic, is breaking Rotten Tomatoes records, with its documentary highlighting the scale and authenticity.
----------
-
-# J.J. Abrams' Next Movie Is Quietly A Jurassic Park Reunion
-
-Movies, Masked Recs
-
-Thu, 16 Jul 2026 22:31:11 GMT
-
-https://screenrant.com/jj-abrams-jenna-ortega-glen-powell-jurassic-park-reunion/
-
-Jenna Ortega and Glen Powell's upcoming collaboration with Rise of the Skywalker director JJ Abrams marks a secret Jurassic Park franchise reunion.
----------
-
-# NCIS Season 24 Finally Opens the Door for Ziva's Return After 7 Years
-
-TV, NCIS, NCIS: Tony & Ziva
-
-Thu, 16 Jul 2026 23:17:39 GMT
-
-https://www.cbr.com/ncis-season-24-cote-de-pablo-ziva-david-return/
-
-Seven years after her last appearance, NCIS Season 24 has created the perfect way for Cote de Pablo to return to the flagship series as Ziva David.
----------
-
-# 5 Classic Kids Anime Series That Are Unwatchable Today
-
-Anime, Sailor Moon, Voltron: Defender of the Universe, Speed Racer
-
-Thu, 16 Jul 2026 23:15:15 GMT
-
-https://www.cbr.com/classic-kids-anime-series-unwatchable-today/
-
-Despite their nostalgic appeal, dated tropes and poor animation make classic kids anime like Sailor Moon and Voltron tough to watch today.
----------
-
-# AnimeFLV Stops Streaming Videos as Major Anime Site Remains Online
-
-Anime, piracy
-
-Thu, 16 Jul 2026 23:05:15 GMT
-
-https://www.cbr.com/animeflv-streaming-site-goes-dark/
-
-The website, which attracted over 70 million visitors in June 2026 alone, has stopped serving videos to visitors.
----------
-
-# Jake Gyllenhaal's Reboot of 37-Year-Old Action Classic Returns to The Charts
-
-Movies, Road House, Prime Video, Action
-
-Thu, 16 Jul 2026 23:00:15 GMT
-
-https://www.cbr.com/road-house-action-success-prime-video-july-2026/
-
-Jake Gyllenhaal’s Road House is back on streaming charts as the franchise prepares for another round of punches and high kicks.
 ---------
