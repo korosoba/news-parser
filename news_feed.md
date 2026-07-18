@@ -1,3 +1,69 @@
+# Dragon Ball's Official Return And New Season Leaves Fans Seriously Split
+
+Gaming, Dragon Ball
+
+Sat, 18 Jul 2026 09:00:12 GMT
+
+https://screenrant.com/dragon-ball-gekishin-squadra-season-6-roadmap-reactions/
+
+Fans of Dragon Ball Gekishin Squadra have mixed reactions to the upcoming Season 6 update.
+---------
+
+# Every "Confirmed" PlayStation 6 And Next-Gen Xbox Game So Far
+
+Gaming, Triple-A Games, PC
+
+Sat, 18 Jul 2026 07:51:24 GMT
+
+https://screenrant.com/playstation-6-next-gen-xbox-confirmed-games/
+
+Discover the exciting lineup of games expected to launch on PlayStation 6 and next-gen Xbox consoles, from new games to old franchises alike.
+---------
+
+# Say Goodbye to Alan Ritchson's Most Unexpected Movie on Streaming
+
+Movie News, Alan Ritchson, Ordinary Angels, Hilary Swank, Peacock
+
+Sat, 18 Jul 2026 09:00:15 GMT
+
+https://collider.com/alan-ritchson-ordinary-angels-leaving-peacock-july-21-2026/
+
+Alan Ritchson's rare dramatic movie, Ordinary Angels, is about to be removed from Peacock. Find out when.
+---------
+
+# Ridley Scott's Sci-Fi Masterpiece Surges to #1 on Prime Video Ahead of Sequel Series
+
+Movie News, Blade Runner 2049, Ridley Scott, Blade Runner, Harrison Ford
+
+Sat, 18 Jul 2026 08:40:15 GMT
+
+https://collider.com/ridley-scott-sci-fi-sequel-blade-runner-2049-streaming-success-prime-video-july-2026/
+
+Blade Runner 2049, which is widely hailed as Ridley Scott's greatest sci-fi legacy sequel, is quietly becoming a massive streaming hit.
+---------
+
+# The Western Masterpiece Quentin Tarantino Hates Is Streaming for Free
+
+Movie News, The Man Who Shot Liberty Valance, John Ford, Quentin Tarantino, Western
+
+Sat, 18 Jul 2026 08:20:15 GMT
+
+https://collider.com/man-who-shot-liberty-valance-john-ford-masterpiece-streaming-free-tubi-july-2026/
+
+The Western masterpiece The Man Who Shot Liberty Valance, directed by Quentin Tarantino's least favorite director John Ford, is streaming for free.
+---------
+
+# HBO's 4-Part Streaming Smash Returns to the Top 10 Before Its Next Chapter
+
+TV News, The White Lotus, HBO, HBO Max, Mike White
+
+Sat, 18 Jul 2026 08:00:15 GMT
+
+https://collider.com/hbo-the-white-lotus-season-3-streaming-success-july-2026/
+
+HBO's most popular prestige drama since Succession has surged back into the top 10 before its new season premieres next year.
+---------
+
 # God Of War Fans Divided On Controversial Kratos Recast
 
 Gaming, God of War
@@ -5430,70 +5496,4 @@ Thu, 16 Jul 2026 19:13:37 GMT
 https://collider.com/christopher-nolan-the-odyssey-fortnite-crossover/
 
 As Christopher Nolan's The Odyssey aims to shatter box office records, the Greek epic is officially coming to Fortnite.
----------
-
-# The Decade’s Most Divisive Horror Fantasy Novel Is Officially Getting a Movie
-
-Movie News, Books, Streaming, Thriller, Romance
-
-Thu, 16 Jul 2026 19:09:19 GMT
-
-https://collider.com/hunting-adeline-movie-adaptation-confirmed-hd-carlton/
-
-H.D. Carlton has confirmed a Haunting Adeline movie adaptation, potentially bringing the complete Cat and Mouse Duet to the screen.
----------
-
-# Christopher Nolan's 'The Odyssey' Gets a Rare Review From Tom Cruise
-
-Movie News, Christopher Nolan, Tom Cruise, The Odyssey, IMAX
-
-Thu, 16 Jul 2026 19:01:37 GMT
-
-https://collider.com/tom-cruise-christopher-nolan-the-odyssey-review/
-
-Tom Cruise has seen Christopher Nolan's The Odyssey in IMAX 70mm and has given a rare and surprising review of the new blockbuster.
----------
-
-# Netflix’s Beloved 3-Season Romance Officially Returns for One Final Chapter
-
-TV News, Netflix, Heartstopper, Heartstopper Forever, Romance
-
-Thu, 16 Jul 2026 19:00:16 GMT
-
-https://collider.com/heartstopper-forever-streaming-netflix-july-2026/
-
-Heartstopper's emotional finale, Heartstopper Forever, premieres on Netflix this week, featuring Kit Connor, Joe Locke, and the beloved cast.
----------
-
-# Quentin Tarantino's Western Masterpiece Loses Box Office Battle to 2026's Breakout Thriller Hit
-
-Movie News, Obsession, Django Unchained
-
-Thu, 16 Jul 2026 20:00:12 GMT
-
-https://movieweb.com/obsession-beats-quentin-tarantino-django-unchained-global-gross/
-
-One of this summer's biggest box office hits just outperformed Quentin Tarantino's Western masterpiece.
----------
-
-# New 'John Wick' Movie Officially Crosses Major Milestone Ahead of Release
-
-Movie News, Caine John Wick Spinoff, John Wick
-
-Thu, 16 Jul 2026 19:55:49 GMT
-
-https://movieweb.com/donnie-yen-john-wick-caine-finished-filming/
-
-The upcoming 'John Wick' spin-off proves the franchise hasn't lost steam.
----------
-
-# Jenna Ortega Gets 'Nasty' in Tense New Sports Thriller With Shades of 'Whiplash'
-
-Movie News, Jenna Ortega, Rose Byrne
-
-Thu, 16 Jul 2026 19:44:18 GMT
-
-https://movieweb.com/jenna-ortega-sports-thriller-nasty/
-
-Jeanna Ortega and Rose Byrne sign on to the next film from the director of 'If I Had Legs I'd Kick You.'
 ---------
