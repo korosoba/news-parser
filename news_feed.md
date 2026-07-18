@@ -1,3 +1,234 @@
+# 19 Years Later, One Classic 2000s Anime Has Held Up Better than Any Other from Its Era
+
+Anime, Masked Recs
+
+Sat, 18 Jul 2026 22:30:11 GMT
+
+https://screenrant.com/clannad-2000s-anime-aged-perfectly/
+
+Discover why Clannad, a 2000s anime hit, has stood the test of time, offering a unique and poignant story that remains relevant today.
+---------
+
+# The Walking Dead Is Changing Formats At The Perfect Time
+
+Streaming TV, Masked Recs
+
+Sat, 18 Jul 2026 22:30:11 GMT
+
+https://screenrant.com/the-walking-dead-daryl-dixon-change-formats-good-timing/
+
+TWD is no stranger to reinventing itself, and its latest reworking of the franchise formula arrives at a time when it's never been more necessary.
+---------
+
+# Halo: Parasite's Wake Will Officially See The Flood Return
+
+Gaming, Halo: Campaign Evolved, Triple-A Games, PC
+
+Sat, 18 Jul 2026 22:30:11 GMT
+
+https://screenrant.com/halo-parasites-wake-the-flood-return/
+
+Campaign Evolved is bringing back one of the series' most iconic villains, but we're getting an even bigger deep dive with this new release.
+---------
+
+# X-Men '97's Winter Soldier Easter Egg Has Marvel Fans Excited
+
+TV, X-Men '97
+
+Sat, 18 Jul 2026 22:25:23 GMT
+
+https://screenrant.com/x-men-97-winter-soldier-easter-egg-marvel-fans-deeper-connection/
+
+X-Men '97 season 2 has already dropped several Easter eggs, and one of the most recent ones involves the Winter Soldier's complicated history.
+---------
+
+# Lost Meets Jurassic Park In Netflix's 3-Part Sci-Fi Series
+
+Classic TV, Masked Recs
+
+Sat, 18 Jul 2026 22:23:11 GMT
+
+https://screenrant.com/la-brea-sci-fi-series-lost-meets-jurassic-park/
+
+An intriguing mystery box filled with dinosaurs sounds too good to be true, but one hidden Netflix gem is 3 gripping seasons of exactly that.
+---------
+
+# Assassin's Creed: Black Flag's Historical Figures & Real-Life Characters
+
+Gaming, Assassin's Creed Black Flag Resynced, Assassin's Creed, PC
+
+Sat, 18 Jul 2026 22:00:12 GMT
+
+https://screenrant.com/assassins-creed-black-flag-historical-figures-real-people/
+
+Assassin's Creed: Black Flag features quite a few pirate characters based on real-life historical figures. Who are they, and what made them so famous?
+---------
+
+# 5 Star Wars Ship Designs That Are 10/10 Perfect
+
+Movies, Star Wars
+
+Sat, 18 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/best-star-wars-ship-designs-perfect/
+
+Do you agree with our picks?
+---------
+
+# 20 Years Later, Dexter Has Its Best Cast Yet
+
+Streaming TV, Dexter
+
+Sat, 18 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-best-cast/
+
+Dexter is a great crime show with an uneven success rate, but the cast of Dexter: Resurrection is good enough to warrant the show getting more acclaim
+---------
+
+# Paramount+'s Near-Perfect 8-Season Drama Series Officially Ends in Just 1 Week
+
+TV, The Chi
+
+Sat, 18 Jul 2026 22:30:15 GMT
+
+https://www.cbr.com/the-chi-series-finale-paramount-plus-july-2026/
+
+Fans are finally less than a week away from the finale of one of the most critically-acclaimed drama series of the past decade.
+---------
+
+# The Odyssey's Jon Bernthal Says Lupita Nyong'o Was the Perfect Helen of Troy: 'So Glad It Was Her'
+
+Movies, The Odyssey
+
+Sat, 18 Jul 2026 22:14:02 GMT
+
+https://www.cbr.com/jon-bernthal-praise-the-odyssey-helen-of-troy-casting/
+
+Jon Bernthal explains why "no one else in the world" would have been better cast as Helen of Troy in The Odyssey.
+---------
+
+# Batman: Mask of the Phantasm Is Better Than The Dark Knight
+
+Movies, Batman: Mask of the Phantasm, The Dark Knight, Batman
+
+Sat, 18 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/batman-mask-of-the-phantasm-better-than-the-dark-knight/
+
+This forgotten Batman masterpiece is an even better movie than Christopher Nolan's legendary The Dark Knight.
+---------
+
+# JoJo's Bizarre Adventure: Steel Ball Run Officially Tops 2026's Biggest Anime in New Top 10 Ranking
+
+Anime, Jojo's Bizarre Adventure
+
+Sat, 18 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/jojos-bizarre-adventure-steel-ball-run-filmmarks-streaming-ranking/
+
+JoJo's Bizarre Adventure: Steel Ball Run tops Japan's Spring 2026 anime rankings despite strong criticism over its release schedule.
+---------
+
+# 5 Years Later, Tom Hanks' WWII Thriller Is Still Dominating Late-Night Streaming
+
+Movie News, Greyhound, Tom Hanks, Apple TV, Stephen Graham
+
+Sat, 18 Jul 2026 22:30:15 GMT
+
+https://collider.com/tom-hanks-ww2-greyhound-streaming-success-apple-tv-july-2026/
+
+Greyhound, the Tom Hanks WW2 naval thriller that changed the streaming world, is still a #1 fan-favorite on Apple TV.
+---------
+
+# 'John Wick' Meets 'Die Hard' in the Action Masterpiece Escaping Free Streaming
+
+Movie News, Hard Boiled, Die Hard, John Wick, Tubi
+
+Sat, 18 Jul 2026 22:15:15 GMT
+
+https://collider.com/hard-boiled-leaving-free-streaming-tubi-august-2026/
+
+Don't miss the iconic John Woo action masterpiece Hard Boiled, starring Chow Yun-fat and free to stream until the end of this month.
+---------
+
+# 10 Great HBO Shows That Are Actually Worth the Hype
+
+TV, HBO, The Sopranos, Curb Your Enthusiasm, Succession
+
+Sat, 18 Jul 2026 22:08:14 GMT
+
+https://collider.com/hbo-shows-worth-the-hype/
+
+The Sopranos, Succession, Curb Your Enthusiasm, and Band of Brothers are among the great HBO shows you might have skipped but are worth the hype.
+---------
+
+# 3 Great Movie Trilogies That Give The Lord of the Rings a Run for Its Money
+
+Movie, The Lord of the Rings, Star Wars: Episode IV - A New Hope, The Godfather, Before Sunrise
+
+Sat, 18 Jul 2026 22:05:14 GMT
+
+https://collider.com/best-movie-trilogies-as-good-as-the-lord-of-the-rings/
+
+The Lord of the Rings is an undisputed cinematic masterpiece, but movie trilogies like The Godfather and Star Wars give it a run for its money.
+---------
+
+# The Most Anticipated Video Game of All Time Officially Arrives in 4 Months
+
+Gaming News, Grand Theft Auto, GTA 5, Rockstar Games, GTA V
+
+Sat, 18 Jul 2026 22:00:14 GMT
+
+https://collider.com/video-game-grand-theft-auto-6-release-date-november-19-2026/
+
+Grand Theft Auto 6, which could easily become the highest-selling video game in history, officially releases in just four months.
+---------
+
+# Netflix Already Has the Perfect 'Heartstopper' Replacement After the 'Forever' Movie
+
+Books and Comics, Heartstopper, Netflix, Books, Drama
+
+Sat, 18 Jul 2026 21:47:15 GMT
+
+https://collider.com/radio-silence-alice-oseman-heartstopper-replacement-netflix/
+
+After Heartstopper's conclusion, Netflix should adapt Alice Oseman's Radio Silence next, a touching story set in the same universe.
+---------
+
+# 8 Near-Perfect 'Yellowstone' Replacements No One Talks About
+
+TV Lists, Taylor Sheridan, Yellowstone, Dark Winds
+
+Sat, 18 Jul 2026 22:30:12 GMT
+
+https://movieweb.com/yellowstone-tv-replacements-underrated/
+
+Some fresh picks for 'Yellowstone' fans!
+---------
+
+# Tom Hardy's Netflix Thriller Is the Most Underrated Action Movie of the Decade
+
+Features, Tom Hardy, Havoc, Thriller, Netflix
+
+Sat, 18 Jul 2026 22:15:12 GMT
+
+https://movieweb.com/tom-hardy-havoc-netflix-thriller-underrated/
+
+Forget about 'John Wick'; Tom Hardy's one-man-army action blitz in Netflix's thriller is an exhilarating experience.
+---------
+
+# Netflix’s Most Underrated Thriller Still Has One of the Best Casts
+
+Features, Bloodline, Netflix
+
+Sat, 18 Jul 2026 22:00:12 GMT
+
+https://movieweb.com/bloodline-underrated-netflix-thriller-best-cast/
+
+Netflix has released some popular TV thrillers, and this one has an incredible cast of talented and famous actors.
+---------
+
 # Michael Fassbender's Alien Android Finds His Match In Hulu's 8-Part Sci-Fi Series
 
 Streaming TV, Masked Recs
@@ -5265,235 +5496,4 @@ Fri, 17 Jul 2026 15:01:14 GMT
 https://www.cbr.com/darkest-anime-endings-of-all-time/
 
 Endings aren't easy, but anime like Space Runaway Ideon and Wolf's Rain build to dark, disturbing finales that audiences aren't likely to forget.
----------
-
-# Final Fantasy Officially Shuts Down Another Game This September
-
-Games, Final Fantasy, final fantasy xiv, Square Enix
-
-Fri, 17 Jul 2026 14:30:15 GMT
-
-https://www.cbr.com/final-fantasy-mmorpg-shutting-down-september-official/
-
-Another Square Enix game bites the dust, as a Final Fantasy MMORPG is shutting down, with fans losing access to the game in September 2026.
----------
-
-# 4 High-Concept Sci-Fi Shows That Are 10/10 Masterpieces
-
-TV, Sci-Fi, The Expanse, Battlestar Galactica
-
-Fri, 17 Jul 2026 14:30:15 GMT
-
-https://www.cbr.com/best-high-concept-sci-fi-series-list/
-
-Some sci-fi shows, like Battlestar Galactica and Dark, are so novel that it would be a gift to watch them again for the first time.
----------
-
-# ‘Reacher’ Is Officially Back With First Look at Season 4
-
-TV News, Reacher, Alan Ritchson, Prime Video, Lee Child
-
-Fri, 17 Jul 2026 15:37:53 GMT
-
-https://collider.com/reacher-season-4-first-look-poster-alan-ritchson/
-
-See Alan Ritchson’s return as Jack Reacher in the first look at Reacher Season 4, premiering August 12 on Prime Video.
----------
-
-# Fallout Is Entering Its Biggest Era Yet
-
-Gaming News, Fallout, Fallout 76, Bethesda, Fallout Shelter
-
-Fri, 17 Jul 2026 15:09:21 GMT
-
-https://collider.com/fallout-3-new-vegas-remasters-confirmed-fallout-5-update/
-
-Bethesda officially confirms ‘Fallout 3’ and ‘Fallout: New Vegas’ remasters are in development, alongside new plans for ‘Fallout 5’ and ‘Fallout 76.’
----------
-
-# Jason Statham's All-Star Action Masterpiece Is Finally on Free Streaming
-
-Movie, Jason Statham, The Expendables, Streaming, Pluto TV
-
-Fri, 17 Jul 2026 14:57:20 GMT
-
-https://collider.com/jason-statham-movie-streaming-free-watch-the-expendables/
-
-After leaving Netflix, Sylvester Stallone and Jason Statham movie The Expendables is blowing up on Paramount's Pluto TV.
----------
-
-# 15 Years After ‘Skyrim,’ The Next Elder Scrolls Game Is Officially Confirmed
-
-Gaming News, The Elder Scrolls V: Skyrim, Bethesda, The Elder Scrolls, Elder Scrolls Online
-
-Fri, 17 Jul 2026 14:56:54 GMT
-
-https://collider.com/elder-scrolls-6-confirmed/
-
-15 years after Skyrim, Bethesda Game Studios confirms that the next Elder Scrolls game is officially in development. Get the details.
----------
-
-# Alan Ritchson Officially Returns as 'Reacher' in First Look at Season 4
-
-TV News, Reacher, Alan Ritchson
-
-Fri, 17 Jul 2026 15:24:48 GMT
-
-https://movieweb.com/alan-ritchson-reacher-season-4-first-look/
-
-'Reacher' is officially back for more action in the first look at Season 4.
----------
-
-# Netflix's 6-Part Crime Thriller Is Officially 2026's Most-Streamed Series
-
-TV News, His & Hers, Hot on Streaming, Crime, Thriller, Netflix
-
-Fri, 17 Jul 2026 15:08:27 GMT
-
-https://movieweb.com/his-and-hers-netflix-crime-thriller-biggest-series-streaming-july-2026/
-
-Netflix has officially unveiled its most-watched movies and TV shows of the year, and Jon Bernthal's 6-part crime thriller is at the top of the list.
----------
-
-# Prime Video's New 'The Rings of Power' Replacement Scores Big on Streaming
-
-TV News, From Old Country Bumpkin to Master Swordsman, Prime Video, Hot on Streaming, The Lord of the Rings: The Rings of Power, Fantasy
-
-Fri, 17 Jul 2026 15:00:12 GMT
-
-https://movieweb.com/old-country-bumpkin-to-master-swordsman-fantasy-stream-prime-july-2026/
-
-Prime Video's new fantasy series 'From Old Country Bumpkin' rivals 'The Rings of Power,' as it's a major streaming success.
----------
-
-# Brenda Fricker, Oscar Winner and 'Home Alone's Pigeon Lady, Dies at 81
-
-Movie News, Home Alone 2: Lost in New York, Brenda Fricker
-
-Fri, 17 Jul 2026 14:55:32 GMT
-
-https://movieweb.com/brenda-fricker-dies-aged-81/
-
-Academy Award-winner Brenda Fricker, best known as the pigeon lady from 'Home Alone,' passed away at the age of 81.
----------
-
-# Alan Ritchson's Netflix Sci-Fi Action Thriller Is Officially 2026's Biggest Streaming Movie
-
-Movie News, Alan Ritchson, War Machine, Action, Sci-Fi, Thriller, Netflix
-
-Fri, 17 Jul 2026 14:34:38 GMT
-
-https://movieweb.com/ala-ritchson-war-machine-netflix-biggest-stream-july-2026/
-
-The 'Reacher' star has cemented his reputation as one of the best action heroes in the business.
----------
-
-# The Elder Scrolls 6 Official Teaser Revealed By Bethesda
-
-Gaming, The Elder Scrolls 6, PC, The Elder Scrolls, Bethesda
-
-Fri, 17 Jul 2026 14:24:05 GMT
-
-https://screenrant.com/elder-scrolls-6-official-teaser-bethesda-update-july-17/
-
-The Elder Scrolls 6 just got an official teaser update from Bethesda, confirming major details about the game's release and planned content.
----------
-
-# Fallout 3 And Fallout: New Vegas Remakes Officially Confirmed
-
-Gaming, Fallout, Fallout: New Vegas, Triple-A Games, PC
-
-Fri, 17 Jul 2026 14:22:40 GMT
-
-https://screenrant.com/fallout-3-new-vegas-remake-announcement-bethesda/
-
-Fallout 3 and Fallout: New Vegas are officially returning, per the latest update on the Fallout franchise from Bethesda Game Studios itself.
----------
-
-# Fallout 5 Officially Announced By Bethesda
-
-Gaming, Triple-A Games, Fallout
-
-Fri, 17 Jul 2026 14:22:31 GMT
-
-https://screenrant.com/fallout-5-officially-announced-bethesda/
-
-Bethesda Game Studios has officially announced Fallout 5 as part of the upcoming repertoire for the company, and fans can already be delighted.
----------
-
-# Returning DCEU Hero Breaks Silence On New Role In James Gunn’s Superman Sequel Man Of Tomorrow
-
-Movies, Man of Tomorrow, Blue Beetle, Xolo Mariduena, DC Universe
-
-Fri, 17 Jul 2026 14:15:03 GMT
-
-https://screenrant.com/superman-man-of-tomorrow-blue-beetle-return-xolo-mariduena-silence-break/
-
-A few characters from the now-defunct DCEU have joined James Gunn’s rebooted Universe, and one of them is speaking out about the experience.
----------
-
-# “Wouldn’t Do That Again": Jim Parsons Reveals The Harsh Truth About The Big Bang Theory's Experience
-
-Network TV, The Big Bang Theory
-
-Fri, 17 Jul 2026 14:00:49 GMT
-
-https://screenrant.com/jim-parsons-the-big-bang-theory-experience-harsh-reality/
-
-Seven years after The Big Bang Theory wrapped up its 12-season run on CBS, Jim Parsons is looking back at it with some sad realizations.
----------
-
-# Peacock's 8-Part Sci-Fi Series Is So Good, It Demands To Be Watched Twice
-
-Classic TV, Masked Recs
-
-Fri, 17 Jul 2026 14:00:11 GMT
-
-https://screenrant.com/mrs-davis-peacock-sci-fi-series-watch-twice/
-
-There is an eight-episode sci-fi masterpiece on Peacock that is so good, you'll want to watch it twice, and you'll enjoy it more the second time.
----------
-
-# PAW Patrol: Dino World Exclusive Trailer & Image Reveal
-
-Gaming, PAW Patrol, Triple-A Games, PC
-
-Fri, 17 Jul 2026 14:00:11 GMT
-
-https://screenrant.com/paw-patrol-dino-world-exclusive-trailer-image-reveal/
-
-PAW Patrol is set to return later this month with Dino World, and Screen Rant can exclusively reveal the new trailer and set of images.
----------
-
-# One Piece Episode #1170 Release Date And Time
-
-Anime, One Piece
-
-Fri, 17 Jul 2026 14:00:11 GMT
-
-https://screenrant.com/one-piece-episode-1170-release-date-time/
-
-One Piece is back and better than ever.
----------
-
-# Final Fantasy 10: Blissful Eternity Officially Releases August 2026
-
-Gaming, Final Fantasy X, Triple-A Games
-
-Fri, 17 Jul 2026 13:41:56 GMT
-
-https://screenrant.com/final-fantasy-10-blissful-eternity-release-date/
-
-Not every Final Fantasy has become a franchise all on their own, but Final Fantasy 10 has managed to muster up a ton of releases.
----------
-
-# LOTR’s Gandalf & Sauron Rings Of Power Season 3 Returns Get Epic First Look
-
-TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
-
-Fri, 17 Jul 2026 13:31:37 GMT
-
-https://screenrant.com/lotr-rings-of-power-season-3-gandalf-sauron-return-image-first-look/
-
-Gandalf and Sauron get new designs for The Lord of the Rings: The Rings of Power season 3 in the first epic look at the returning Prime Video series.
 ---------
