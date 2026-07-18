@@ -1,3 +1,212 @@
+# It's Official, Prime Video's The Boys Ends An Era
+
+TV, The Boys
+
+Sat, 18 Jul 2026 23:33:58 GMT
+
+https://screenrant.com/the-boys-prime-video-streaming-charts-fall-july-2026/
+
+The Boys season 5 became a global sensation, but the superhero series has finally taken a major hit on Prime Video ahead of the franchise's return.
+---------
+
+# 7 Non-Canon Star Wars Projects We Want To See After The Ninth Jedi
+
+Star Wars, Star Wars: Visions
+
+Sat, 18 Jul 2026 23:30:11 GMT
+
+https://screenrant.com/non-canon-star-wars-projects-we-want-after-ninth-jedi/
+
+The upcoming Ninth Jedi spin-off from Star Wars: Visions is almost here, but it's also fun to think about future potential non-canon projects too.
+---------
+
+# Helaena's Pregnancy In House Of the Dragon Is Even More Complicated Than You Think
+
+Streaming TV, House of the Dragon, House of the Dragon - Season 3, Game of Thrones
+
+Sat, 18 Jul 2026 23:30:11 GMT
+
+https://screenrant.com/house-of-the-dragon-helaena-pregnancy-who-father-aegon-aemond/
+
+Helaena's pregnancy will put Rhaenyra in a difficult position in House of the Dragon season 3, but there may be further complications involved.
+---------
+
+# HBO's Ambitious 36-Episode Sci-Fi Series Turned Frustration Into An Art Form
+
+Classic TV, Masked Recs
+
+Sat, 18 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/westworld-hbo-sci-fi-series-frustrating-but-good/
+
+HBO's space Western series started with one of the best first seasons of all time. However, the plot's increasingly wild twists outpaced the show.
+---------
+
+# Lara Croft's New Appearance Is a Crossover with a Billion Dollar Franchise
+
+Comics, Tomb Raider
+
+Sat, 18 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/tomb-raider-lara-croft-crossover-gi-joe-preview/
+
+A crossover we've never seen before.
+---------
+
+# Cyberpunk 2077 Sequel's Johnny Silverhand Replacement Divides Gamers
+
+Gaming, Cyberpunk 2077
+
+Sat, 18 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/cyberpunk-2077-sequel-silverhand-replacement/
+
+Fans discuss the potential absence of Johnny Silverhand in the Cyberpunk 2077 sequel, debating whether his character is central to the franchise.
+---------
+
+# Netflix's The Munsters 2 Gets Disappointing New Update From Star
+
+Movies, The Munsters
+
+Sat, 18 Jul 2026 22:51:39 GMT
+
+https://screenrant.com/netflix-the-munsters-2-update-disappointing-richard-brake/
+
+Exclusive: The Munsters actor Richard Brake has shared an update on where things stand with a sequel to Rob Zombie's take on the classic sitcom.
+---------
+
+# It's Official, The Odyssey Confirms Christopher Nolan Is Ready for Horror
+
+Movies, The Odyssey, Christopher Nolan, Horror
+
+Sat, 18 Jul 2026 23:30:15 GMT
+
+https://www.cbr.com/the-odyssey-sets-up-christopher-nolan-horror-movie/
+
+Christopher Nolan gave us two of the most anxiety-inducing sequences of the year tucked inside The Odyssey, proving he is already a horror director.
+---------
+
+# 35 Years Later, Star Trek's Greatest Deanna Troi Episode Remains an Untouchable Sci-Fi Gem
+
+TV, Star Trek: The Next Generation, Sci-Fi, Star Trek
+
+Sat, 18 Jul 2026 23:30:15 GMT
+
+https://www.cbr.com/star-trek-the-next-generation-greatest-deanna-troi-episode/
+
+A crisis on board the Enterprise separates the leaders and pushes Deanna Troi into command, turning this TNG episode into a defining moment for her.
+---------
+
+# 4 Toonami Anime Series That Are 10/10 Masterpieces
+
+Anime, Dragon Ball Z, Cowboy Bebop, toonami
+
+Sat, 18 Jul 2026 23:15:15 GMT
+
+https://www.cbr.com/toonami-anime-series-perfect-masterpieces/
+
+Toonami introduced audiences to some of the finest anime ever created, and these series remain among its greatest success stories.
+---------
+
+# Steam Officially Makes 3 9/10 Games 100% Free Until July 20
+
+Games, Steam
+
+Sat, 18 Jul 2026 23:10:15 GMT
+
+https://www.cbr.com/steam-official-masterpiece-free-games-july-2026/
+
+Three exciting, positively reviewed Steam games are completely free until July 20.
+---------
+
+# Superman's Most Twisted Story Just Permanently Changed His Lore
+
+Comics, firestorm, Superman, DC Comics
+
+Sat, 18 Jul 2026 23:00:15 GMT
+
+https://www.cbr.com/the-fury-of-firestorm-4-supermen-project-consequences/
+
+Another startling revelation about one of the darkest chapters in DC history has just been made, and it taints dozens of heroes' origin stories.
+---------
+
+# 5 Perfect Creature Feature TV Shows Nobody Remembers
+
+TV, Horror, Special Unit 2, FreakyLinks, Friday the 13th: The Series (1987)
+
+Sat, 18 Jul 2026 23:00:15 GMT
+
+https://www.cbr.com/best-forgotten-creature-feature-tv-shows-list/
+
+Weekly monster stories were once a horror television staple, and these forgotten creature feature series are still worth revisiting today.
+---------
+
+# One of the Best Supernatural Horror Series of All Time Is Streaming for Free
+
+TV Features, Twin Peaks, David Lynch, Mark Frost, Kyle MacLachlan
+
+Sat, 18 Jul 2026 23:36:14 GMT
+
+https://collider.com/twin-peaks-david-lynch-supernatural-horror-streaming-free/
+
+David Lynch's barrier-breaking, trailblazing, and trendsetting series, Twin Peaks, is now streaming for free on Pluto TV.
+---------
+
+# 'For All Mankind' Star's Failed Sci-Fi Action Reboot Is Being Cut From Streaming
+
+Movie News, RoboCop, Joel Kinnaman, Peacock, Sci-Fi
+
+Sat, 18 Jul 2026 23:30:14 GMT
+
+https://collider.com/joel-kinnaman-sci-fi-reboot-robocop-leaving-peacock-august-2026/
+
+The 2014 RoboCop reboot, starring Joel Kinnaman and a star-studded supporting cast, is about to be removed from Peacock. Find out when.
+---------
+
+# Tracy Spiridakos' First Series Since 'Chicago P.D.' Arrives in Less Than a Month
+
+TV News, Tracy Spiridakos, Chicago P.D., USA Network, Drama
+
+Sat, 18 Jul 2026 23:15:15 GMT
+
+https://collider.com/tracy-spiridakos-anna-pigeon-august-7-premiere-date-usa-network/
+
+After leaving Chicago P.D., Tracy Spiridakos leads the cast of USA Network's upcoming mystery series. Get all the details here.
+---------
+
+# Jennifer Garner's New Series Is Officially a Summer Streaming Smash
+
+TV News, The Five-Star Weekend, Jennifer Garner, Peacock, Rotten Tomatoes
+
+Sat, 18 Jul 2026 23:00:15 GMT
+
+https://collider.com/jennifer-garner-the-five-star-weekend-streaming-success-apple-tv-july-2026/
+
+Jennifer Garner's latest drama, The Five-Star Weekend, is becoming one of the summer's most popular streaming shows, topping charts worldwide.
+---------
+
+# 5 Michelle Pfeiffer Movies That Are Perfect From Start to Finish
+
+Movie, Michelle Pfeiffer, Scarface, Batman Returns, The Age of Innocence
+
+Sat, 18 Jul 2026 22:51:14 GMT
+
+https://collider.com/best-michelle-pfeiffer-movies-perfect/
+
+From The Age of Innocence to Batman Returns, Michelle Pfeiffer delivered unforgettable performances that defined Hollywood classics.
+---------
+
+# The Horror Movie That Proved Critics Wrong Officially Finds a New Streaming Home on Netflix
+
+Movie News, Horror, Netflix, Five Nights at Freddy's 2, Matthew Lillard
+
+Sat, 18 Jul 2026 22:45:15 GMT
+
+https://collider.com/five-nights-at-freddys-2-streaming-netflix-august-2026/
+
+One of the most divisive horror video game adaptations is coming to Netflix. Here's everything to know about Five Nights at Freddy's 2.
+---------
+
 # 19 Years Later, One Classic 2000s Anime Has Held Up Better than Any Other from Its Era
 
 Anime, Masked Recs
@@ -5287,213 +5496,4 @@ Fri, 17 Jul 2026 17:01:12 GMT
 https://movieweb.com/the-terror-ridley-scott-holds-up/
 
 Ridley Scott has made many TV shows and movies during his impressive career, including this one masterpiece.
----------
-
-# 'Mortal Kombat II' Officially Confirms Streaming Date
-
-Movie News, Mortal Kombat II, HBO Max
-
-Fri, 17 Jul 2026 16:30:23 GMT
-
-https://movieweb.com/mortal-kombat-ii-hbo-max-streaming-date/
-
-Warner Bros. confirmed when 'Mortal Kombat II' will be available to stream after a slightly disappointing run at the box office.
----------
-
-# Forget 'Ghost War,' the Best Jack Ryan Movie Came Out 32 Years Ago and Has Now Set New Release
-
-Movie News, Clear And Present Danger, Jack Ryan, Tom Clancy's Jack Ryan: Ghost War
-
-Fri, 17 Jul 2026 16:15:02 GMT
-
-https://movieweb.com/clear-and-present-danger-4k-blu-ray-release/
-
-The Harrison Ford-led adaptation of Tom Clancy's 'Clear and Present Danger' is getting a 4K Blu-ray steelbook on the heels of 'Jack Ryan: Ghost War.'
----------
-
-# The Funniest Superhero Movies of the 21st Century
-
-Movie Lists, Superheroes, Superhero, Comedy
-
-Fri, 17 Jul 2026 16:00:13 GMT
-
-https://movieweb.com/funny-superhero-movies-21st-century/
-
-Superhero and humor go hand in hand, but these movies deliver comedy like no others.
----------
-
-# ABC's Complete Fall 2026 Schedule - Every TV Series & When It Releases
-
-TV Lists, Abbott Elementary, 9-1-1, Scrubs
-
-Fri, 17 Jul 2026 16:00:12 GMT
-
-https://movieweb.com/abc-fall-2026-schedule/
-
-'Abbott Elementary,' '9-1-1,' 'Grey's Anatomy,' and more are back this fall.
----------
-
-# Paramount+'s 4-Part Elite Crime Thriller Breaks Major Record Ahead Of Intense Finale
-
-Network TV, Criminal Minds
-
-Fri, 17 Jul 2026 15:45:11 GMT
-
-https://screenrant.com/criminal-minds-paramount-plus-break-record/
-
-Criminal Minds: Evolution nearly surpasses NCIS as Paramount+'s top series, breaking a major record as it heads towards a thrilling season finale.
----------
-
-# How Much The Odyssey Needs To Make At The Box Office To Profit
-
-New Movies, The Odyssey
-
-Fri, 17 Jul 2026 15:45:11 GMT
-
-https://screenrant.com/the-odyssey-movie-box-office-explained/
-
-Christopher Nolan's The Odyssey is expected to be a big box office performer, and here's how much it needs to make to turn a profit for Universal.
----------
-
-# Frieda McFadden's 'The Divorce' Is A Global Goodreads Smash Hit
-
-Books, Masked Recs
-
-Fri, 17 Jul 2026 15:43:21 GMT
-
-https://screenrant.com/frieda-mcfadden-divorce-topping-goodreads-global-charts-july-2026/
-
-Frieda McFadden, author of The Housemaid, has released another smash hit, a thriller putting her on top of the charts after less than two months.
----------
-
-# Matt Damon Reveals The Real Reason Why Jason Bourne 6 Is Taking So Long
-
-Movies, Jason Bourne, Jason Bourne 6
-
-Fri, 17 Jul 2026 15:36:28 GMT
-
-https://screenrant.com/matt-damon-jason-bourne-6-wait-edward-berger-script/
-
-After confirmed to be in development in 2023, Jason Bourne 6 has yet to materialize, and Matt Damon now shares a promising update on the project.
----------
-
-# Clair Obscur: The Expeditioners Officially Announced
-
-Gaming, Clair Obscur: Expedition 33, PC
-
-Fri, 17 Jul 2026 15:33:45 GMT
-
-https://screenrant.com/clair-obscur-the-expeditioners-announcement/
-
-Clair Obscur: The Expeditioners is a brand-new release that fans of the now-iconic RPG will not want to sleep on.
----------
-
-# It's The End Of An Era For Harry Potter & HBO
-
-Streaming TV, Masked Recs
-
-Fri, 17 Jul 2026 15:33:32 GMT
-
-https://screenrant.com/its-the-end-of-an-era-for-harry-potter-hbo/
-
-The Wizarding World is about to change forever thanks to HBO's bold release strategy for the upcoming small-screen return to Hogwarts.
----------
-
-# Xbox Just Rolled Out Its Biggest System Update In Years
-
-Gaming, Xbox, Triple-A Games
-
-Fri, 17 Jul 2026 15:32:24 GMT
-
-https://screenrant.com/xbox-july-2026-system-update-12-new-features/
-
-Amid its major restructuring and lay-offs, Xbox has decided to drop an extensive console system update adding some appreciable features.
----------
-
-# NBC's Lost Successor Was So Good, It Got 20 More Episodes After Being Canceled
-
-Network TV, Masked Recs
-
-Fri, 17 Jul 2026 15:30:11 GMT
-
-https://screenrant.com/lost-successor-manifest-20-more-episodes-after-cancellation/
-
-NBC had a Lost successor series on the air for three seasons, but when it was canceled, Netflix gave it another chance with 20 more episodes.
----------
-
-# Nintendo Switch Online’s Next 2 GameCube Games Officially Confirmed
-
-Gaming, Nintendo, Triple-A Games, Nintendo GameCube
-
-Fri, 17 Jul 2026 15:00:11 GMT
-
-https://screenrant.com/nintendo-switch-online-next-gamecube-games-2026/
-
-Although Nintendo has released several GameCube games on Nintendo Switch Online so far, there are still two more to come.
----------
-
-# Martin Scorsese's Scene-Stealing Role In The Mandalorian And Grogu Explained
-
-Exclusive, The Mandalorian and Grogu, Star Wars, Martin Scorsese
-
-Fri, 17 Jul 2026 15:00:11 GMT
-
-https://screenrant.com/video/the-mandalorian-grogu-martin-scorsese-casting-clip/
-
-Exclusive: ScreenRant presents a clip from The Mandalorian and Grogu, in which Pedro Pascal and Jon Favreau discuss the casting of Martin Scorsese.
----------
-
-# Hatsune Miku Returns With New Summer Game Release Across PlayStation, Xbox, Switch & PC
-
-Anime, Hatsune Miku
-
-Fri, 17 Jul 2026 15:30:30 GMT
-
-https://www.cbr.com/hatsune-miku-logic-paint-summer-2026-update/
-
-Hatsune Miku Logic Paint S+ is ringing in the summer with new seasonal DLC, complete with stylish new outfits, new items and new puzzles to beat.
----------
-
-# Gambit's New Era Starts Before His X-Men '97 Return
-
-Comics, X-Men, Gambit, X-Men '97
-
-Fri, 17 Jul 2026 15:17:50 GMT
-
-https://www.cbr.com/gambit-wanted-return-x-men-97-exclusive-preview/
-
-In a CBR exclusive preview of Gambit: Wanted #1, see the Cajun X-Man in action in a lost story set after he first joined the X-Men
----------
-
-# 10 Anime Heroes Who Deserved Better Endings
-
-Anime, Attack On Titan, Naruto: Shippuden, Chainsaw Man, Puella Magi Madoka Magica, Jujutsu Kaisen, Bungo Stray Dogs, Code Geass: Lelouch of the Rebellion, JoJo's Bizarre Adventure, Fullmetal Alchemist: Brotherhood
-
-Fri, 17 Jul 2026 15:15:15 GMT
-
-https://www.cbr.com/anime-heroes-deserved-better-endings/
-
-From rushed writing to cruel endings, these anime heroes deserved better than what their fate had in store for them.
----------
-
-# Fallout 5 & New Vegas Remaster Officially Announced By Bethesda
-
-Games, Fallout, Fallout New Vegas, Bethesda Softworks
-
-Fri, 17 Jul 2026 15:10:15 GMT
-
-https://www.cbr.com/fallout-5-new-vegas-remaster-officially-announced-bethesda/
-
-Bethesda officially announced that Fallout 5 is in development, along with remasters of Fallout 3 and Fallout: New Vegas, but don't expect them soon.
----------
-
-# 9 Darkest Anime Endings of All Time
-
-Anime, Puella Magi Madoka Magica, Berserk, Mobile Suit Gundam
-
-Fri, 17 Jul 2026 15:01:14 GMT
-
-https://www.cbr.com/darkest-anime-endings-of-all-time/
-
-Endings aren't easy, but anime like Space Runaway Ideon and Wolf's Rain build to dark, disturbing finales that audiences aren't likely to forget.
 ---------
