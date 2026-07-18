@@ -1,3 +1,36 @@
+# God Of War Fans Divided On Controversial Kratos Recast
+
+Gaming, God of War
+
+Sat, 18 Jul 2026 07:33:00 GMT
+
+https://screenrant.com/god-of-war-tv-recasting-reaction/
+
+God of War will soon have a new Kratos, leaving the fate of the franchise up in the air, and fans are understandably upset by the news.
+---------
+
+# It's Official, Wolfenstein Returns In Fall 2026
+
+Gaming, Wolfenstein, PC
+
+Sat, 18 Jul 2026 07:00:12 GMT
+
+https://screenrant.com/wolfenstein-ttrpg-fall-2026-release/
+
+The cult favorite Wolfenstein is officially set to return in Fall 2026 with a brand-new game set during The New Order and New Collosus timeline.
+---------
+
+# Brandon Sanderson’s Shards Of Creation Officially Available Now
+
+Gaming, Brandon Sanderson, The Stormlight Archive, The Cosmere, Mistborn, PC
+
+Sat, 18 Jul 2026 06:00:12 GMT
+
+https://screenrant.com/brandon-sanderson-shards-of-creation-2026-release/
+
+Brandon Sanderson's Shards of Creation is officially available to claim now after a hugely successful 2026 launch.
+---------
+
 # Fallout 5 Official Release Date Update Confirms We're In For A Wait
 
 Gaming, Fallout 5, Triple-A Games
@@ -5463,37 +5496,4 @@ Thu, 16 Jul 2026 19:44:18 GMT
 https://movieweb.com/jenna-ortega-sports-thriller-nasty/
 
 Jeanna Ortega and Rose Byrne sign on to the next film from the director of 'If I Had Legs I'd Kick You.'
----------
-
-# Iconic 'SNL' Member Officially Leaving Series After 7 Seasons
-
-TV News, Saturday Night Live
-
-Thu, 16 Jul 2026 19:10:03 GMT
-
-https://movieweb.com/snl-chloe-fineman-exit/
-
-One of the most notable cast members on 'SNL' has performed their final skit after the end of Season 51.
----------
-
-# Guy Ritchie's 'Indiana Jones' Rip-Off Crosses Major Streaming Milestone
-
-Movie News, Fountain of Youth, Apple TV, Hot on Streaming, Guy Ritchie
-
-Thu, 16 Jul 2026 19:01:12 GMT
-
-https://movieweb.com/fountain-of-youth-streaming-success-apple-july-2026/
-
-Guy Ritchie's Indiana Jones rip-off action adventure movie, 'Fountain of Youth,' is one of the biggest movies streaming on Apple TV.
----------
-
-# 7-Season SNL Star Officially Leaving For Netflix’s New Harlan Coben Franchise
-
-TV, Saturday Night Live, Untitled Myron Bolitar Series
-
-Thu, 16 Jul 2026 18:43:47 GMT
-
-https://screenrant.com/chloe-fineman-saturday-night-live-exit-netflix-harlan-coban-myron-bolitar-cast/
-
-A Saturday Night Live cast member who starred in seven seasons is officially leaving the show for Netflix's new Harlan Coben franchise.
 ---------
