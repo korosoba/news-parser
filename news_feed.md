@@ -1,3 +1,234 @@
+# Supergirl Box Office Hits A New Low For DC Franchise During Week 4
+
+Superheroes, Supergirl, DC Universe, Box Office
+
+Sat, 18 Jul 2026 18:21:56 GMT
+
+https://screenrant.com/supergirl-2026-box-office-week-4-domestic-result/
+
+During its fourth weekend, the new DC Universe movie Supergirl hits a new low at the domestic box office for both the DCU and the DCEU.
+---------
+
+# Timothy Olyphant's New Apple TV Thriller Ends Solid Rotten Tomatoes Streak After 3 Years
+
+TV, Lucky
+
+Sat, 18 Jul 2026 18:16:50 GMT
+
+https://screenrant.com/timothy-olyphant-lucky-apple-tv-rotten-tomatoes-audience-score-streak/
+
+Timothy Olyphant's new thriller has officially ended a Rotten Tomatoes streak after three years, with his new Apple TV thriller series.
+---------
+
+# Yellowjackets’ Final Season Gets Major Filming Update As Teen & Adult Stars Unite
+
+TV, Yellowjackets
+
+Sat, 18 Jul 2026 18:16:06 GMT
+
+https://screenrant.com/yellowjackets-season-4-filming-update-melanie-lynskey/
+
+The fourth and final season of the hit series Yellowjackets receives a major filming update from Melanie Lynskey, who plays the adult Shauna.
+---------
+
+# The Emmys’ Newest Change Generates Backlash: “Insane And Utterly Disrespectful”
+
+TV, Emmy Awards
+
+Sat, 18 Jul 2026 18:02:34 GMT
+
+https://screenrant.com/emmy-awards-reduce-telecast-categories-backlash/
+
+The Television Academy's decision to the structure of the Emmy Awards categories and ceremony is sparking major backlash among viewers.
+---------
+
+# The Boys' 2027 Return Is The End Of An Era
+
+Streaming TV, Masked Recs
+
+Sat, 18 Jul 2026 18:00:12 GMT
+
+https://screenrant.com/the-boys-2027-vought-rising-end-of-an-era/
+
+The Boys is set to return for new content in 2027, but after the main show's conclusion, this exciting project will officially mark the end of an era.
+---------
+
+# 7 Heroes Characters With The Absolute Worst Powers
+
+Classic TV, Heroes
+
+Sat, 18 Jul 2026 17:30:11 GMT
+
+https://screenrant.com/heroes-characters-worst-powers/
+
+Heroes introduced a variety of cool characters during its four-season run on NBC, but these seven individuals' powers failed to impress.
+---------
+
+# A Classic Hero Returns For Marvel's Next Guardians Of The Galaxy Roster
+
+Marvel Comics, Guardians of the Galaxy
+
+Sat, 18 Jul 2026 17:28:20 GMT
+
+https://screenrant.com/marvel-new-guardians-galaxy-roster-deaths-head/
+
+A traditionally Earth-based Avenger leaves the planet to join Marvel's new Guardians of the Galaxy team alongside multiple cosmic titans.
+---------
+
+# Netflix's New 10-Part Original Comedy Splits Critics and Audiences on Rotten Tomatoes
+
+TV, The Hawk
+
+Sat, 18 Jul 2026 18:20:35 GMT
+
+https://www.cbr.com/the-hawk-netflix-rotten-tomatoes-audience-score/
+
+Critics shredded Netflix's newest comedy series, but audiences do not agree.
+---------
+
+# 5 Classic Anime Dubs That Are Unwatchable Today
+
+Anime, Dragon Ball Z, Sailor Moon
+
+Sat, 18 Jul 2026 18:15:15 GMT
+
+https://www.cbr.com/classic-anime-dubs-unwatchable-today/
+
+The flaws of these dubs are easier to notice today, especially when compared to more modern dubbing standards.
+---------
+
+# What's Coming to Peacock in August 2026? Everything Arriving Next Month
+
+TV, Peacock
+
+Sat, 18 Jul 2026 18:00:15 GMT
+
+https://www.cbr.com/what-coming-peacock-august-2026-full-list/
+
+August will be a hot month for Peacock.
+---------
+
+# Zenless Zone Zero 2nd Anniversary Update Includes Remielle Dan, Free S-Rank Character and More
+
+Anime, Genshin Impact, JRPG
+
+Sat, 18 Jul 2026 18:00:15 GMT
+
+https://www.cbr.com/zenless-zone-zero-2nd-anniversary-remielle-dan-free-s-rank/
+
+Zenless Zone Zero celebrates its 2nd anniversary with Remielle Dan's debut, a free selectable limited S-Rank agent, anniversary rewards and more.
+---------
+
+# Mighty Morphin Power Rangers Confirms Who the New Rita Really Is
+
+Comics, Power Rangers, Mighty Morphin Power Rangers
+
+Sat, 18 Jul 2026 18:00:15 GMT
+
+https://www.cbr.com/mighty-morphin-power-rangers-2-rita-real-identity-revealed/
+
+The latest version of the Mighty Morphin Power Rangers' original nemesis has finally confirmed who she really is.
+---------
+
+# Game of Thrones' Lena Headey Addresses Fan Reaction to Controversial Season 5 Scene: 'I Was Really Shocked'
+
+TV, Game Of Thrones
+
+Sat, 18 Jul 2026 17:53:03 GMT
+
+https://www.cbr.com/game-of-thrones-lena-headey-body-double-fans-reaction/
+
+Game of Thrones star Lena Headey opens up about the online backlash she faced for a grueling Season 5 sequence.
+---------
+
+# 6 Game of Thrones Deaths That Make Zero Sense
+
+TV, Game Of Thrones, HBO Max, Fantasy
+
+Sat, 18 Jul 2026 17:30:15 GMT
+
+https://www.cbr.com/game-of-thrones-deaths-that-make-no-sense-list/
+
+Some deaths in HBO's Game of Thrones shocked viewers, but they don't hold up under closer scrutiny.
+---------
+
+# The Westies: Why Real Gangsters Were Renamed | Set Stories
+
+TV, The Westies
+
+Sat, 18 Jul 2026 18:15:15 GMT
+
+https://collider.com/video/the-westies-why-real-gangsters-were-renamed-set-stories/
+
+What did it take to bring the infamous Westies to television? J.K. Simmons, Tom Brittney, Titus Welliver, and co-creator/showrunner Chris Brancato pull back the curtain on how The Westies recreated 1980s Hell's Kitchen while balancing real history with dramatic storytelling.
+---------
+
+# Netflix Quietly Adds an X-Men Star's 120-Minute Crime Gem
+
+Movie News, Asphalt City, Netflix, Streaming, Sean Penn
+
+Sat, 18 Jul 2026 18:00:15 GMT
+
+https://collider.com/asphalt-city-streaming-netflix-august-2026/
+
+Sean Penn teams up with an X-Men star in a 2023 thriller coming to Netflix. Find out all the details here.
+---------
+
+# 6 Greatest Sci-Fi Video Games of All Time, Ranked
+
+TV, Sci-Fi, Video Game, Star Wars: Knights of the Old Republic, Cyberpunk 2077
+
+Sat, 18 Jul 2026 17:57:15 GMT
+
+https://collider.com/greatest-sci-fi-video-games-all-time-ranked/
+
+From Half-Life 2 to BioShock, Cyberpunk 2077 to Dune: Awakening, these sci-fi games set the benchmark for immersive worlds and unforgettable stories.
+---------
+
+# 6 Scariest Movies Released Since 2000
+
+Movie, Horror, The Conjuring, Hereditary, Obsession
+
+Sat, 18 Jul 2026 17:52:15 GMT
+
+https://collider.com/scariest-movies-released-since-2000-ranked/
+
+Hereditary, The Babadook, and Sinister are all among the best and most purely terrifying horror movies released since the year 2000.
+---------
+
+# Michael Douglas' 'Falling Down' Getting New 4K Blu-ray Release
+
+Movies, Michael Douglas, Falling Down
+
+Sat, 18 Jul 2026 18:02:00 GMT
+
+https://movieweb.com/michael-douglas-falling-down-4k-blu-ray/
+
+Douglas’ 1993 thriller is returning with a new limited-edition 4K Blu-ray release.
+---------
+
+# Who Is Agamemnon In Greek Myth? 'The Odyssey's King and His Fate, Explained
+
+Features, The Odyssey, Christopher Nolan
+
+Sat, 18 Jul 2026 18:00:12 GMT
+
+https://movieweb.com/the-odyssey-agamemnon-explained/
+
+Benny Safdie plays the Greek king and warlord Agamemnon in Christopher Nolan's 'The Odyssey', who is based on the key figure from Greek mythology.
+---------
+
+# 'The Dark Knight' Trilogy's 10 Best Quotes, Ranked
+
+Movie Lists, The Dark Knight, Batman, The Dark Knight Rises, Batman Begins
+
+Sat, 18 Jul 2026 17:30:12 GMT
+
+https://movieweb.com/the-dark-knight-trilogy-best-quotes-ranked/
+
+From the wisdom of Alfred Pennyworth to Harvey Dent’s political speeches, here are The Dark Knight Trilogy’s 10 best quotes ranked.
+---------
+
 # Final Fantasy 10 Drops Special Movie As 25th Anniversary Surprise
 
 Gaming, Final Fantasy X, Final Fantasy, Triple-A Games, PC
@@ -5265,235 +5496,4 @@ Fri, 17 Jul 2026 06:30:12 GMT
 https://screenrant.com/magic-the-gathering-universes-beyond-adapt-or-leave/
 
 Magic: The Gathering's head designer officially confirms the future of the game, establishing that the "toothpaste is out of the tube."
----------
-
-# Avatar Officially Returns July 21, Mark Your Calendars
-
-Gaming, Avatar, Triple-A Games
-
-Fri, 17 Jul 2026 06:00:11 GMT
-
-https://screenrant.com/avatar-july-21-frontiers-of-pandora-ps-plus-release/
-
-With everyone waiting to see what James Cameron will do next with the fourth mainline Avatar film, the series is returning on July 21.
----------
-
-# Assassin's Creed Odyssey Remake Leaves Gamers Torn
-
-Gaming, Assassin's Creed Odyssey, Triple-A Games
-
-Fri, 17 Jul 2026 05:30:11 GMT
-
-https://screenrant.com/assassins-creed-odyssey-remake-fan-opinions/
-
-Fans want specific things out of an Assassin's Creed Odyssey remake, which has left a ton of gamers torn after an Ubisoft tease.
----------
-
-# Cyberpunk 2077 Meets Baldur’s Gate 3 In New Free PS Plus RPG
-
-Gaming, PlayStation Plus, Triple-A Games
-
-Fri, 17 Jul 2026 05:00:11 GMT
-
-https://screenrant.com/playstation-plus-free-rpg-cyberpunk-2077-meets-baldurs-gate-3/
-
-In what seems like a natural fit, Cyberpunk 2077 and Baldur's Gate 3 collide in a new game you can pick up for free on PlayStation Plus.
----------
-
-# PlayStation Is Officially Reviving a 2005 PS2 Classic For PS5
-
-Gaming, PlayStation 5, PlayStation Plus, Triple-A Games, Indigo Prophecy, PlayStation
-
-Fri, 17 Jul 2026 04:30:11 GMT
-
-https://screenrant.com/playstation-ps2-classic-2005-ps-plus/
-
-A classic PlayStation 2 game released back in 2005 is officially making its way onto PlayStation 5 consoles later this month, so mark your calendar.
----------
-
-# Marvel Reveals Horror Redesign For Spider-Man’s Next Appearance
-
-Marvel Comics, Spider-Man
-
-Fri, 17 Jul 2026 04:09:57 GMT
-
-https://screenrant.com/spider-man-horror-redesign-marvel-midnight/
-
-Spider-Man's weirdest costume design, maybe ever, has been revealed for Marvel's boldest and scariest new comic book publishing line, Midnight.
----------
-
-# God of War Forced to Recast Kratos Following Bombshell Development
-
-TV, God of War, God of War Ragnarok, God of War II, God of War III, God of War: Ascension, Prime Video
-
-Fri, 17 Jul 2026 04:23:47 GMT
-
-https://www.cbr.com/god-of-war-forced-to-recast-kratos-following-major-development-injury/
-
-A bombshell development just changed everything for Kratos and God of War.
----------
-
-# 13 Greatest Sci-Fi Books of the Past 20 Years, Ranked
-
-TV, Sci-Fi, Andy Weir, Blake Crouch, Suzanne Collins
-
-Fri, 17 Jul 2026 04:51:14 GMT
-
-https://collider.com/best-sci-fi-books-past-20-years-ranked/
-
-From The Martian to The Hunger Games, Project Hail Mary to Station Eleven, these sci-fi books have shaped the genre over the past two decades.
----------
-
-# Final Fantasy Meets Clair Obscur In New Free RPG
-
-Gaming, RPG, Live Service Games, PC, Lord of Mysteries
-
-Fri, 17 Jul 2026 04:00:13 GMT
-
-https://screenrant.com/final-fantasy-clair-obscur-style-free-rpg-2027/
-
-An exciting new open-world RPG that blends elements from the Final Fantasy series and Clair Obscur: Expedition 33 is set to arrive pretty soon.
----------
-
-# Timothy Olyphant & Anya Taylor-Joy’s New Thriller Skyrockets As Apple TV’s #1 Series
-
-TV, Masked Recs, Anya Taylor-Joy, Timothy Olyphant, Apple TV
-
-Fri, 17 Jul 2026 03:57:44 GMT
-
-https://screenrant.com/timothy-olyphant-lucky-apple-tv-july-2026-streaming-charts-anya-taylor-joy/
-
-Timothy Olyphant and Anya Taylor-Joy's new thriller adaptation skyrockets to Apple TV's #1 series on the streaming charts after just one day.
----------
-
-# 10 Strongest Black Clover Villains Of All Time, Ranked
-
-Anime, Black Clover
-
-Fri, 17 Jul 2026 03:55:12 GMT
-
-https://screenrant.com/strongest-black-clover-villains-ranked/
-
-Discover the 10 strongest villains in Black Clover, and just how terrifying some antagonists got near the ending.
----------
-
-# God Of War's Kratos Is Being Recast After Ryan Hurst Suffers Major On-Set Injury
-
-TV, God of War
-
-Fri, 17 Jul 2026 03:42:45 GMT
-
-https://screenrant.com/god-of-war-kratos-recast-after-ryan-hurst-injury/
-
-Amazon MGM and Sony's video game adaptation, God of War is recasting Kratos after Ryan Hurst suffered severe injuries while performing a stunt.
----------
-
-# Netflix’s 96% RT Dystopian Thriller Returning For Season 2 Deserves To Be As Big As Silo
-
-Streaming TV, Masked Recs
-
-Fri, 17 Jul 2026 03:00:12 GMT
-
-https://screenrant.com/netflix-the-eternaut-silo-potential/
-
-Netflix is the streaming home of a returning 96% RT dystopian thriller that has so immense potential that it deserves to be as big as Apple TV’s Silo.
----------
-
-# Star Trek: To Boldly Go Officially Announced
-
-Gaming
-
-Fri, 17 Jul 2026 03:00:12 GMT
-
-https://screenrant.com/star-trek-to-boldly-go-announcement/
-
-A new Star Trek tie-in is available now, allowing you to step into the shoes of some of the series’ most iconic captains in head-to-head battles.
----------
-
-# Brandon Sanderson Confirms Mistborn Movies Will Steal From The MCU Playbook
-
-Books, Marvel Cinematic Universe, Brandon Sanderson, Mistborn
-
-Fri, 17 Jul 2026 02:48:27 GMT
-
-https://screenrant.com/brandon-sanderson-mistborn-movies-cameo-mcu-stan-lee/
-
-Brandon Sanderson might be borrowing one of the MCU's best storytelling motifs for Mistborn, but he's putting a wonderfully Cosmere twist on it.
----------
-
-# Avengers: Doomsday's Connection To Loki's Finale Explained By Star
-
-Movies, Avengers: Doomsday, Loki, Marvel Cinematic Universe
-
-Fri, 17 Jul 2026 02:21:50 GMT
-
-https://screenrant.com/avengers-doomsday-loki-finale-connection-mcu/
-
-Tom Hiddleston opened up about how the events from the Loki TV show's series finale will connect to the upcoming movie Avengers: Doomsday.
----------
-
-# God Of War Reportedly Pauses Production After Major Star Suffers On-Set Injury
-
-TV, God of War
-
-Fri, 17 Jul 2026 02:14:15 GMT
-
-https://screenrant.com/god-of-war-reportedly-pauses-production-ryan-hurst-injury/
-
-Amazon MGM and Sony's live-action adaptation of the hit video game franchise God of War suffers a major setback after an on-set injury.
----------
-
-# Netflix's Greatest Action Thriller Of 2023 Has Clearly Set Up Season 3, And Even The Studio Agrees
-
-TV, Bloodhounds
-
-Fri, 17 Jul 2026 01:32:37 GMT
-
-https://screenrant.com/netflix-bloodhounds-best-action-thriller-season-3-ready/
-
-Two of Netflix's greatest fictional boxers have plenty of basis to return for a third season, and it's hardly unintentional.
----------
-
-# Sailor Moon LEGO Dreams Shut Down as 68 Sets Rejected
-
-Anime, Sailor Moon, LEGO
-
-Fri, 17 Jul 2026 03:59:15 GMT
-
-https://www.cbr.com/sailor-moon-lego-sets-rejected-july-2026/
-
-Sailor Moon's Moon Prism Power slips right out of fans' hands after a brutal rejection.
----------
-
-# 5 Autobots Stronger Than Optimus Prime
-
-Anime, Transformers, optimus prime, Sci-Fi
-
-Fri, 17 Jul 2026 03:46:15 GMT
-
-https://www.cbr.com/autobots-stronger-than-optimus-prime/
-
-Optimus Prime is the commander of the Autobot army, but there are five members of his system that are arguably stronger in the Transformers universe.
----------
-
-# The CW's Underrated 8-Season Sports Drama Returns as a PVOD Hit After New Release
-
-TV, All American, The CW, Drama
-
-Fri, 17 Jul 2026 03:31:07 GMT
-
-https://www.cbr.com/all-american-sports-drama-success-pvod-july-2026/
-
-The fan-favorite The CW sports drama is rising on the PVOD charts.
----------
-
-# Paramount’s New Star Trek Strategy Will Go Down as 1 of Sci-Fi's Most Historic Fumbles
-
-TV, Star Trek, Paramount, Sci-Fi
-
-Fri, 17 Jul 2026 03:31:07 GMT
-
-https://www.cbr.com/star-trek-paramount-strategy-historic-sci-fi-fumble/
-
-Paramount seems to be moving forward with Star Trek feature films, but what does that mean for the television side?
 ---------
