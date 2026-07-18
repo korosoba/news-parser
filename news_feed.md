@@ -1,3 +1,168 @@
+# Zelda: Ocarina Of Time Remake Official Gameplay Has Split Gamers
+
+Gaming, The Legend of Zelda
+
+Sat, 18 Jul 2026 10:30:11 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-switch-2-remake-gameplay-hopes/
+
+Fans weigh in on the highly anticipated Zelda: Ocarina of Time Remake.
+---------
+
+# Game Of Thrones: Freedom In Essos Finally Brings Back Dany & The Unsullied
+
+Gaming, Game of Thrones, Game Of Thrones, House of the Dragon, PC, Game Of Thrones - Season 3, Game Of Thrones - Season 4, Game Of Thrones - Season 5, Game Of Thrones - Season 6
+
+Sat, 18 Jul 2026 10:00:11 GMT
+
+https://screenrant.com/game-of-thrones-conquest-freedom-in-essos-event/
+
+Dany, Grey Worm, and the Unsullied are officially back in Game of Thrones: Freedom of Essos, taking players back to Slaver's Bay.
+---------
+
+# Hogwarts Legacy 2 Official Release Window Splits Gamers
+
+Gaming, Hogwarts Legacy
+
+Sat, 18 Jul 2026 09:30:11 GMT
+
+https://screenrant.com/hogwarts-legacy-2-release-window-gamers-react/
+
+Avalanche Software is working on Hogwarts Legacy 2, set to launch around 2027-2028.
+---------
+
+# Prime Video Already Has Its Next Bosch Series Ready to Go & Replace the Original
+
+TV, Bosch, Prime Video
+
+Sat, 18 Jul 2026 10:30:15 GMT
+
+https://www.cbr.com/prime-video-next-bosch-series-the-poet-jack-mcevoy/
+
+Prime Video's Bosch universe expanded with Ballard, and Michael Connelly's The Poet should be the basis for a new crime series next.
+---------
+
+# Pierce Brosnan's Slick '80s Detective Show Outshines Every Single 1 of His Bond Movies
+
+TV, Remington Steele, James Bond, Crime
+
+Sat, 18 Jul 2026 10:00:15 GMT
+
+https://www.cbr.com/pierce-brosnan-remington-steele-better-than-james-bond/
+
+This forgotten '80s detective show launched Pierce Brosnan's career and gave him the skills to become the best James Bond.
+---------
+
+# 8 Perfect Action Movies Nobody Remembers Today
+
+Movies, Action, Déjà Vu, Ronin
+
+Sat, 18 Jul 2026 10:00:15 GMT
+
+https://www.cbr.com/perfect-action-movies-nobody-remembers-today-list/
+
+These action masterpieces have been sadly forgotten by most fans today.
+---------
+
+# Netflix's 3-Part YA Hit Officially Returns Next Month
+
+TV News, Netflix, Drama, My Life with the Walter Boys, Streaming
+
+Sat, 18 Jul 2026 10:30:15 GMT
+
+https://collider.com/my-life-with-the-walter-boys-streaming-netflix-august-2026/
+
+Season 3 of Netflix's teen ranch series, My Life With the Walter Boys, returns soon. Here's everything you should know.
+---------
+
+# 13 Action Movies That Were So Good, Hollywood Spent Decades Copying Them
+
+Movie, John Wick, Action, Die Hard, Mad Max: Fury Road
+
+Sat, 18 Jul 2026 10:05:15 GMT
+
+https://collider.com/action-movies-blueprint/
+
+Die Hard, Mad Max: Fury Road, The Matrix, The Dark Knight, and more make up our list of action movies Hollywood has spent decades copying.
+---------
+
+# 10 Sci-Fi Movies That Are Better the Second Time Around
+
+Movie, Science Fiction, Children of Men, Brazil, Stalker
+
+Sat, 18 Jul 2026 10:03:15 GMT
+
+https://collider.com/best-sci-fi-movies-better-second-time/
+
+From decades-old classics like 2001: A Space Odyssey to modern gems like Arrival, these sci-fi movies demand a second viewing to be fully appreciated.
+---------
+
+# 10 Best PlayStation Games of the 2020s So Far, Ranked
+
+TV, Video Game, Death Stranding, God of War, The Last Of Us Part II Remastered
+
+Sat, 18 Jul 2026 10:02:15 GMT
+
+https://collider.com/best-playstation-games-2020s-ranked/
+
+Discover the best PlayStation games released in the 2020s so far, including Death Stranding 2, God of War Ragnarök, and Astro Bot.
+---------
+
+# Watch David Fincher's Greatest Thriller Free Before Your Next 'Mindhunter' Binge
+
+Movie News, Zodiac, Mindhunter, David Fincher, Pluto TV
+
+Sat, 18 Jul 2026 10:00:15 GMT
+
+https://collider.com/david-fincher-true-crime-zodiac-streaming-free-pluto-tv-july-2026/
+
+David Fincher's critically acclaimed cult classic Zodiac, starring Robert Downey Jr., is streaming for free this month. Find out where.
+---------
+
+# ‘Game of Thrones’ Meets ‘Lord of the Rings’ in Guy Ritchie’s Failed Fantasy Franchise-Starter
+
+Movie News, King Arthur: Legend of the Sword, Guy Ritchie, Game Of Thrones, The Lord of the Rings
+
+Sat, 18 Jul 2026 09:40:15 GMT
+
+https://collider.com/guy-ritchie-historical-epic-king-arthur-legend-of-the-sword-streaming-success-prime-video-july-2026/
+
+Guy Ritchie's failed franchise starter with shades of Game of Thrones and Lord of the Rings has resurfaced as a streaming hit.
+---------
+
+# Bosch Franchise Star's Forgotten Bruce Lee Parody Is a Surprise Netflix Hit 19 Years Later
+
+Movie News, Netflix, balls of fury, Maggie Q, Christopher Walken
+
+Sat, 18 Jul 2026 09:20:15 GMT
+
+https://collider.com/maggie-q-balls-of-fury-streaming-netflix-august-2026/
+
+Ballard's Maggie Q teamed up with Christopher Walken for a bonkers ping-pong movie that's like turning Marty Supreme up to eleven.
+---------
+
+# The Word "Binge-Worthy" Is Overused, but These 10 Netflix Shows Actually Are
+
+TV, Netflix, Sense8, Dark, Black Mirror
+
+Sat, 18 Jul 2026 09:18:15 GMT
+
+https://collider.com/binge-worthy-netflix-shows/
+
+Dive into Netflix series that have earned the "binge-worthy" title with their captivating storylines and compelling characters, from Dark to Sense8.
+---------
+
+# New 'Harry Potter' Release Officially Confirmed Ahead of TV Reboot
+
+Movie News, Harry Potter, HBO Max
+
+Sat, 18 Jul 2026 09:30:16 GMT
+
+https://movieweb.com/harry-potter-new-4k-complete-series-set/
+
+A new 'Harry Potter' 25th anniversary 4K steelbook collection is listed for October, two months before HBO's TV reboot premieres.
+---------
+
 # Dragon Ball's Official Return And New Season Leaves Fans Seriously Split
 
 Gaming, Dragon Ball
@@ -5331,169 +5496,4 @@ Thu, 16 Jul 2026 19:52:08 GMT
 https://screenrant.com/netflix-the-lincoln-lawyer-season-5-filming-wrap-manuel-garcia-rulfo/
 
 At the start of the year, The Lincoln Lawyer was renewed for one final season, and the star of the legal drama has revealed a major new update.
----------
-
-# 23 Years Ago, Christopher Nolan Almost Directed The Odyssey’s Prequel
-
-Movies, Masked Recs
-
-Thu, 16 Jul 2026 19:30:11 GMT
-
-https://screenrant.com/christopher-nolan-troy-director-before-the-odyssey/
-
-Christopher Nolan's new Ancient Greek epic is shaping up to be the biggest blockbuster of 2026, and way back in 2003 he almost directed its prequel.
----------
-
-# X-Men ’97 Season 5’s Fate Addressed By Director
-
-TV, X-Men '97, X-Men
-
-Thu, 16 Jul 2026 19:29:52 GMT
-
-https://screenrant.com/xmen-97-season-5-future-addressed-larry-houston/
-
-X-Men '97 director Larry Houston addresses the fate of a possible season 5 to the animated revival, unpacking how long the show could run for.
----------
-
-# The Naruto Movie's Massive Casting News Just Doomed The Film
-
-Anime, Naruto
-
-Thu, 16 Jul 2026 19:01:15 GMT
-
-https://screenrant.com/naruto-movie-casting-age-up-doom/
-
-The Naruto movie is dead on arrival.
----------
-
-# Why HBO Max's $1 Billion Dinosaur Movie With Near-Perfect RT Score Has Become A Global Streaming Hit
-
-Movies, Masked Recs
-
-Thu, 16 Jul 2026 19:00:44 GMT
-
-https://screenrant.com/hbo-max-jurassic-park-streaming-charts-rise/
-
-HBO Max's $1 billion dinosaur movie is now one of the most popular streaming releases worldwide, and there is a special explanation for its success.
----------
-
-# Tom Cruise's Digger Trailer Is Hiding the Real Disaster
-
-Movies, Digger
-
-Thu, 16 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/video/tom-cruise-s-digger-trailer-is-hiding-the-real-disaster/
-
-Tom Cruise's latest movie looks like a globe-spanning disaster epic, but its first trailer is hiding far more than explosive set pieces. Beneath the environmental catastrophe, giant iceberg, and political chaos is a mystery about who really caused the apocalypse—and who will actually save the day.
----------
-
-# Yoda's Single Greatest Star Wars Quote Hits Harder 46 Years Later
-
-Movies, Star Wars, Star Wars: Episode V - The Empire Strikes Back
-
-Thu, 16 Jul 2026 20:00:15 GMT
-
-https://www.cbr.com/star-wars-empire-strikes-back-yoda-greatest-quote/
-
-Yoda has had plenty of great lines, but his best quote in Star Wars has only become more important over the years.
----------
-
-# Los Angeles Dodgers Legend Shohei Ohtani Joins Absolute Batman Craze For 'Gritty' New Trading Card
-
-Comics, Absolute Batman, Batman
-
-Thu, 16 Jul 2026 20:00:15 GMT
-
-https://www.cbr.com/absolute-batman-la-dodgers-shohei-ohtani-trading-card/
-
-Absolute Ohtani!
----------
-
-# Netflix's Happy Gilmore Replacement Series Debuts With Brutal Rotten Tomatoes Score
-
-TV, The Hawk
-
-Thu, 16 Jul 2026 19:59:45 GMT
-
-https://www.cbr.com/the-hawk-rotten-tomatoes-score/
-
-Netflix wasn't quite able to just tap, tap, tap it in with the release of the golf comedy series.
----------
-
-# John Wick Officially Enters New Era as Next Movie Wraps Filming
-
-Movies, Caine John Wick Spinoff, John Wick, Action
-
-Thu, 16 Jul 2026 19:38:09 GMT
-
-https://www.cbr.com/john-wick-caine-spinoff-wraps-filming/
-
-Prepare to return to the world of John Wick.
----------
-
-# The Rookie Officially Returns With Special Episode on Hulu Ahead of Season 9
-
-TV, The Rookie, Hulu
-
-Thu, 16 Jul 2026 19:00:37 GMT
-
-https://www.cbr.com/the-rookie-special-extended-episode-hulu/
-
-The Rookie fans get a special release ahead of Season 9's premiere on ABC next year.
----------
-
-# 5 Strongest Weapons in Fantasy Book History, Ranked
-
-Movies, Fantasy, His Dark Materials, The Wheel of Time
-
-Thu, 16 Jul 2026 19:00:16 GMT
-
-https://www.cbr.com/strongest-fantasy-book-weapons-ranked-list/
-
-Fantasy is a book genre that doesn't lack for choice in terms of powerful tools, but these five weapons are unparalleled in strength.
----------
-
-# 8 Greatest Netflix Series With 4 Episodes or Less
-
-TV, Netflix, TV Miniseries, Adolescence, Lord of the Flies
-
-Thu, 16 Jul 2026 19:52:15 GMT
-
-https://collider.com/best-netflix-series-4-episodes-or-less/
-
-Death by Lightning, Adolescence, When They See Us, Lord of the Flies, and more make our list of the best Netflix series with four episodes or less.
----------
-
-# 10 Iconic Suits We Need in the Next Spider-Man Video Game
-
-Gaming, Spider-Man, Video Game, Superhero, Marvel Comics
-
-Thu, 16 Jul 2026 19:33:15 GMT
-
-https://collider.com/spider-man-video-games-suits-we-need/
-
-The Spider-Man games allow you to play in the hero's most iconic costumes, but some, like the Prowler Suit and the Vibranium Suit, are still missing.
----------
-
-# ‘Fallout: New Vegas’ Writer Has a Brutal Criticism of Prime Video’s Adaptation
-
-TV News, Fallout, Prime Video, Gaming, Bethesda
-
-Thu, 16 Jul 2026 19:20:22 GMT
-
-https://collider.com/fallout-new-vegas-writer-prime-video-dialogue-criticism/
-
-Fallout: New Vegas writer Chris Avellone has given a brutally honest review of Prime Video's hit sci-fi adaptation of the popular game series.
----------
-
-# Matt Damon Is Officially Joining ‘Fortnite’ Thanks to Christopher Nolan’s ‘The Odyssey’
-
-Gaming News, The Odyssey, Fortnite, Christopher Nolan, Gaming
-
-Thu, 16 Jul 2026 19:13:37 GMT
-
-https://collider.com/christopher-nolan-the-odyssey-fortnite-crossover/
-
-As Christopher Nolan's The Odyssey aims to shatter box office records, the Greek epic is officially coming to Fortnite.
 ---------
