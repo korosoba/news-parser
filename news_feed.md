@@ -1,3 +1,278 @@
+# Everyone's Official Starfleet Rank In Star Trek: Strange New Worlds Season 4
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Sat, 18 Jul 2026 19:30:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-character-ranks/
+
+Star Trek: Strange New Worlds enters year 4 of the Starship Enterprise's five-year mission. Here is everyone's Starfleet rank and responsibilities.
+---------
+
+# New Open-World Zombie Game Is Like Rust Meets Minecraft
+
+Gaming, Minecraft, Rust, Steam, PC
+
+Sat, 18 Jul 2026 19:30:11 GMT
+
+https://screenrant.com/open-world-zombie-survival-game-rust-minecraft/
+
+This brand-new open-world zombie title combines the best elements of Rust and the legendary Minecraft to delight fans of both titles.
+---------
+
+# HBO's Harry Potter Series "Brutal" Filming Conditions Revealed
+
+TV, Harry Potter
+
+Sat, 18 Jul 2026 19:26:45 GMT
+
+https://screenrant.com/harry-potter-hbo-filming-conditions-adriano-goldman/
+
+Harry Potter may want to stay under the stairs, as some new details of HBO's upcoming adaptation and its "brutal" filming conditions are revealed.
+---------
+
+# DC's New Wonder Woman Is Here, And She's Badass
+
+DC Comics, Wonder Woman
+
+Sat, 18 Jul 2026 19:22:43 GMT
+
+https://screenrant.com/dc-new-wonder-woman-badass/
+
+DC introduces a gritty, gun-toting Wonder Woman who teases a very different warrior to the one Earth-0 and even the Absolute Universe made famous.
+---------
+
+# Gerard Butler’s Infamous Fantasy Bomb Is Getting A Streaming Redemption 10 Years Later
+
+Movies, Masked Recs, Gerard Butler, Streaming Charts
+
+Sat, 18 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/gerard-butler-gods-of-egypt-lionsgate-plus-streaming-success-july-2026/
+
+A Gerard Butler fantasy movie that reportedly lost $90 million in theaters is having a resurgence on the streaming charts 10 years later.
+---------
+
+# The Batman Part II: Is Victor Zsasz the Right Villain?
+
+Movies, Originals
+
+Sat, 18 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/video/the-batman-part-2-is-victor-zsasz-the-right-pick-for-the-villain/
+
+Matt Reeves' The Batman Part 2 is finally in production, and one of the biggest mysteries surrounding the sequel may have just taken a dramatic turn. While months of rumors pointed toward Harvey Dent and Two-Face, new reports suggest Sebastian Stan could actually be playing Victor Zsasz—one of Batman's most disturbing comic book villains.
+---------
+
+# Stephen King’s Unadapted Bestselling Horror Novel Is Perfect For Mike Flanagan
+
+TV, Masked Recs
+
+Sat, 18 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/insomnia-stephen-king-perfect-for-mike-flanagan-adaptation/
+
+Mike Flanagan's next Stephen King adaptation might be a Carrie miniseries for Prime Video, but there's another King novel he needs to bring to life.
+---------
+
+# Solo Leveling's New Webtoon Clone Is The Beginning Of A Dark Era
+
+Anime, Webtoon, Masked Recs
+
+Sat, 18 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/shadow-system-new-solo-leveling-clone-webtoon/
+
+Solo Leveling has a new clone in town, and it's starting a trend that could threaten the entire genre.
+---------
+
+# Stardew, Animal Crossing, & The Sims Collide In Gorgeous RPG You Can Try Free Now
+
+Gaming, Stardew Valley
+
+Sat, 18 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/moonfrost-stardew-valley-sims-rpg-free-demo/
+
+A premium cozy farming life-sim RPG for PC, drawing inspiration from beloved titles like Stardew Valley, The Sims, and Animal Crossing.
+---------
+
+# Anya Taylor-Joy's The Queen's Gambit Follow-Up Proves Her $174 Million Flop Deserved Better
+
+Movies, Masked Recs
+
+Sat, 18 Jul 2026 18:30:11 GMT
+
+https://screenrant.com/anya-taylor-joy-lucky-furiosa-deserved-better/
+
+Anya Taylor-Joy is not the obvious choice for an action movie star, but she is surprisingly good in action roles when her unique talents are embraced.
+---------
+
+# Netflix's New 114-Minute Drama Has Critics & Audiences in Agreement With Near-Perfect Score
+
+Movies, Heartstopper, Heartstopper Forever
+
+Sat, 18 Jul 2026 19:35:01 GMT
+
+https://www.cbr.com/heartstopper-forever-rotten-tomatoes-score/
+
+It's officially the end of an era for one of Netflix's most wholesome shows.
+---------
+
+# The 5 Best Canon Star Wars Novels, Ranked
+
+Movies, Star Wars, books, Sci-Fi
+
+Sat, 18 Jul 2026 19:30:15 GMT
+
+https://www.cbr.com/best-canon-star-wars-books-list/
+
+From deep explorations of the films' lore to new adventures with iconic characters, these Star Wars novels are perfect additions to Disney's canon.
+---------
+
+# 10 Classic Thriller Manga You Must Read in 2026
+
+Anime, Manga, Thriller, Monster, Death Note, The Promised Neverland
+
+Sat, 18 Jul 2026 19:15:15 GMT
+
+https://www.cbr.com/must-read-classic-thriller-manga-2026/
+
+Thriller manga is where the medium shines its best, where a single chapter can flip the script from pure joy into something devastating.
+---------
+
+# Emma Thompson's New 98-Minute Action Thriller Perfect for Taylor Sheridan Fans Is Dominating HBO Max Charts
+
+Movies, Dead of Winter
+
+Sat, 18 Jul 2026 19:00:15 GMT
+
+https://www.cbr.com/emma-thompson-thriller-dead-of-winter-hbo-max-success-july-2026/
+
+Fans of Taylor Sheridan's Wind River will love Emma Thompson's new thriller that is dominating the charts on HBO Max.
+---------
+
+# The Nightmare on Elm Street Reboot Is At Risk For 1 Major Reason
+
+Movies, A Nightmare on Elm Street, Paramount
+
+Sat, 18 Jul 2026 19:00:15 GMT
+
+https://www.cbr.com/nightmare-on-elm-street-reboot-psychological-not-slasher-horror/
+
+Paramount has confirmed that one of the biggest horror franchises ever is getting a reboot, but it has already had its moment in the spotlight.
+---------
+
+# William Wisher Jr., Terminator 1 & 2 Co-Writer, Dies at 71
+
+Movies, obituary, The Terminator, Terminator 2: Judgment Day
+
+Sat, 18 Jul 2026 18:56:49 GMT
+
+https://www.cbr.com/william-wisher-jr-dead/
+
+Along with co-writing the beloved Terminator movies with James Cameron, Wisher also had on-screen roles in both films.
+---------
+
+# Netflix & Shondaland's Murder Mystery 'The Residence' Perfect Weekend Binge
+
+TV, The Residence, Mystery, Netflix
+
+Sat, 18 Jul 2026 18:30:15 GMT
+
+https://www.cbr.com/netflix-the-residence-mystery-weekend-binge/
+
+Netflix and Shondaland's partnership has delivered incredible shows, and the 8-part murder mystery The Residence remains the perfect weekend binge.
+---------
+
+# 'The Black Phone' Secretly Shares a Universe With This Horror Anthology
+
+Movie Features
+
+Sat, 18 Jul 2026 19:17:15 GMT
+
+https://collider.com/the-black-phone-vhs-85-connection-explained/
+
+The Black Phone secretly shares a universe with V/H/S/85. Here's how Dreamkill expands Gwen and Finney's family history and psychic powers.
+---------
+
+# Jason Statham's Failed Franchise Reboot Is Being Cut From Paramount+
+
+Movie News, Jason Statham, Expend4bles, Paramount Plus, Action
+
+Sat, 18 Jul 2026 19:00:15 GMT
+
+https://collider.com/expendables-4-jason-statham-leaving-paramount-plus-august-2026/
+
+Jason Statham's critical and commercial disappointment, Expend4bles, is about to be removed from Paramount+. Find out more.
+---------
+
+# Taylor Sheridan's 'Call of Duty' Movie Drops First Official Plot Details
+
+Movie News, Call of Duty, Peter Berg, Taylor Sheridan
+
+Sat, 18 Jul 2026 18:39:28 GMT
+
+https://collider.com/taylor-sheridan-call-of-duty-movie-plot-details-modern-warfare/
+
+Taylor Sheridan's Call of Duty movie will have significant ties to the Modern Warfare games according to director Peter Berg.
+---------
+
+# Star Trek's Most Iconic Character Was Born From a Budget Crisis
+
+TV Features, Star Trek, Star trek, Leonard Nimoy, Gene Roddenberry
+
+Sat, 18 Jul 2026 18:38:15 GMT
+
+https://collider.com/star-trek-the-original-series-spock-vulcan-creation-makeup-budget/
+
+In Star Trek: The Original Series, the tight budget constraints are part of what led to the creation of its most iconic character, Mister Spock.
+---------
+
+# Netflix's 'Little House on the Prairie' Reboot Majorly Improves 1 Character From the Original Series
+
+TV Features, Little House on the Prairie, Netflix, Western
+
+Sat, 18 Jul 2026 18:27:15 GMT
+
+https://collider.com/little-house-on-the-prairie-netflix-mr-edwards-improvement-original-series/
+
+Netflix's Little House on the Prairie reboot elevates Mr. Edwards, exploring his past and present relationships more deeply.
+---------
+
+# HBO's Underrated True Crime Thriller Is So Good, You'll Watch It in One Weekend
+
+Features, Landscapers, HBO Max, Thriller
+
+Sat, 18 Jul 2026 19:30:12 GMT
+
+https://movieweb.com/hbo-landscapers-true-crime-underrated/
+
+No one does crime thriller dramas like HBO, and this one is among the most underrated of the decade.
+---------
+
+# Apple TV’s Hit Thriller Is So Great, Even Stephen King Is Talking About It
+
+Features, Apple TV, Cape Fear, Thriller
+
+Sat, 18 Jul 2026 19:00:12 GMT
+
+https://movieweb.com/stephen-king-talking-apple-tv-cape-fear/
+
+Stephen King likes Apple TV's new hit miniseries, 'Cape Fear', largely because of Javier Bardem's villainous character.
+---------
+
+# Only 3 Apple TV+ Sci-Fi Shows Are True Masterpieces
+
+TV Lists, Apple TV, Silo, Severance, For All Mankind, Sci-Fi
+
+Sat, 18 Jul 2026 18:30:12 GMT
+
+https://movieweb.com/apple-tv-sci-fi-masterpieces/
+
+Living up to the hype isn't easy, and very few Apple TV series are actually the masterpieces people describe them as.
+---------
+
 # Supergirl Box Office Hits A New Low For DC Franchise During Week 4
 
 Superheroes, Supergirl, DC Universe, Box Office
@@ -5221,279 +5496,4 @@ Fri, 17 Jul 2026 10:01:45 GMT
 https://screenrant.com/zelda-ocarina-of-time-remake-pre-order-date-leak/
 
 A potential pre-order date for the highly anticipated Zelda: Ocarina of Time remake has surfaced, suggesting an August release on Nintendo Switch 2
----------
-
-# Game Of Thrones: War For Westeros Will Officially Arrive In 2027
-
-Gaming, Game of Thrones
-
-Fri, 17 Jul 2026 10:00:11 GMT
-
-https://screenrant.com/game-of-thrones-war-for-westeros-development-update/
-
-PlaySide Studios announces that the highly anticipated Game of Thrones: War for Westeros real-time strategy game will launch in early 2027.
----------
-
-# Big Brother 28: Week 2 Head of Household (HOH) Results (SPOILERS)
-
-Reality TV, Big Brother
-
-Fri, 17 Jul 2026 10:00:11 GMT
-
-https://screenrant.com/big-brother-28-week-2-head-of-household-spoilers/
-
-Find out who won the Big Brother 28 Week 2 Head of Household competition in this spoiler-filled update & discover how the power dynamics may shift.
----------
-
-# Fallout: Viva New Vegas Officially Announced
-
-Gaming, Fallout, Fallout Shelter
-
-Fri, 17 Jul 2026 09:30:11 GMT
-
-https://screenrant.com/fallout-viva-new-vegas-officially-announced/
-
-There might not be a whole new Fallout game coming any time soon, but there's plenty going on in the existing titles to enjoy.
----------
-
-# A 9/10 Game From 2019 Has Finally Returned To Steam, Now Completely Free To Own
-
-Gaming, Steam
-
-Fri, 17 Jul 2026 09:23:52 GMT
-
-https://screenrant.com/steam-free-game-killer-queen-black/
-
-Killer Queen Black, the fast-paced team-based action strategy game with a 'Very Positive' rating, is now available for free.
----------
-
-# The Funniest Far Side Comics About Baseball
-
-Comics, The Far Side
-
-Fri, 17 Jul 2026 10:30:18 GMT
-
-https://www.cbr.com/the-far-side-best-funniest-baseball-comics/
-
-While baseball is a relatively young sport, compared to soccer, it is still a world-renowned and respected game, and even The Far Side took notice.
----------
-
-# DC Is Right To Avoid The Joker In Robert Pattinson's Batman
-
-Movies, The Batman Part II
-
-Fri, 17 Jul 2026 10:00:15 GMT
-
-https://www.cbr.com/batman-part-2-no-joker-perfect-choice/
-
-As Matt Reeves develops his Epic Crime Saga, one iconic Batman villain will be left in the background of this universe and it's the right call.
----------
-
-# Prime Video’s Legally Blonde Prequel Elle Is TV's First Great Anti-Prequel
-
-TV, Elle, Legally Blonde, Prime Video
-
-Fri, 17 Jul 2026 10:00:15 GMT
-
-https://www.cbr.com/prime-video-elle-legally-blonde-anti-prequel/
-
-Prime Video's highly anticipated prequel series defies expectations and might even be better as an "anti-prequel."
----------
-
-# Forget John Wick, Jason Statham's Newest Action Hit Is Taking Over Streaming
-
-Movie News, A Working Man, Jason Statham, John Wick, Prime Video
-
-Fri, 17 Jul 2026 11:00:15 GMT
-
-https://collider.com/jason-statham-a-working-man-streaming-success-prime-video-july-2026/
-
-Jason Statham's massive action hit with shades of John Wick has become one of the biggest streaming success stories of 2026.
----------
-
-# 10 Historical Romance Books That Could Be the Next 'Bridgerton'
-
-Books and Comics, Bridgerton, Netflix, Romance
-
-Fri, 17 Jul 2026 10:47:15 GMT
-
-https://collider.com/historical-romance-books-the-next-bridgerton/
-
-Bridgerton is an international sensation thanks to the Netflix series, and there are plenty of other historical romance books that could be as big.
----------
-
-# 10 Greatest Sci-Fi Epic Movies of the 21st Century
-
-Movie, Science Fiction, Dune: Part Two, Spider-Man: Across the Spider-Verse, Furiosa: A Mad Max Saga
-
-Fri, 17 Jul 2026 10:38:15 GMT
-
-https://collider.com/best-sci-fi-epic-movies-21st-century-ranked/
-
-The best sci-fi epic movies of the 21st century include misunderstood efforts like The Fountain and grand, ambitious masterpieces like Dune: Part Two.
----------
-
-# New ‘Halo’ Project Launching This Month Officially Hits Final Milestone
-
-Gaming News, Halo, Steven Spielberg, Halo 4
-
-Fri, 17 Jul 2026 10:30:18 GMT
-
-https://collider.com/halo-campaign-evolved-gone-gold-release-date-july-2026/
-
-The new Halo project launching this month, Campaign Evolved, has gone gold several weeks before release, marking its final milestone.
----------
-
-# This Star Trek Movie Fixed the Franchise, and It's Not the One You'd Expect
-
-Movie Features, Star Trek, Star Trek IV: The Voyage Home, Star Trek II: The Wrath of Kahn, Gene Roddenberry
-
-Fri, 17 Jul 2026 10:15:15 GMT
-
-https://collider.com/star-trek-4-voyage-home-fixed-franchise/
-
-Though Star Trek II: The Wrath of Khan is the best original cast film, Star Trek IV: The Voyage Home restored Gene Roddenberry's original vision.
----------
-
-# 10 Netflix Shows With Mind-Blowing Plot Twists, Ranked
-
-TV, Netflix, Dark, The Haunting of Hill House, Black Mirror
-
-Fri, 17 Jul 2026 10:09:15 GMT
-
-https://collider.com/netflix-shows-with-shocking-plot-twists-ranked/
-
-Explore the best Netflix series featuring shocking plot twists, from sci-fi masterpieces like Dark to horror hits like The Haunting of Hill House.
----------
-
-# Anya Taylor-Joy Is Coming For Rebecca Ferguson’s Apple TV Crown
-
-TV News, Anya Taylor-Joy, Lucky, Apple TV, The Gorge
-
-Fri, 17 Jul 2026 10:00:15 GMT
-
-https://collider.com/lucky-anya-taylor-joy-apple-tv-crime-series-streaming-success/
-
-With the new crime drama series Lucky, Anya Taylor-Joy has delivered another hit for Apple TV. Find out more.
----------
-
-# All 9 Batman: Arkham Video Games, Ranked
-
-Gaming, Video Game, Batman: Arkham Knight, Batman: Arkham Asylum, Superhero
-
-Fri, 17 Jul 2026 09:41:15 GMT
-
-https://collider.com/batman-arkham-video-games-ranked/
-
-The Batman: Arkham series includes many amazing video games, including Arkham Asylum and Arkham Knight, but which of the mainline titles is the best?
----------
-
-# A $1.5M Western Gem Is Challenging a $225M Action Blockbuster on Netflix
-
-Movie News, Old Henry, F9, Netflix, Vin Diesel
-
-Fri, 17 Jul 2026 09:30:15 GMT
-
-https://collider.com/old-henry-western-fast-and-furious-9-netflix-viewership/
-
-The Western gem Old Henry went toe to toe with the $225 million action blockbuster F9 on Netflix's latest viewership chart. Find out more.
----------
-
-# 3 Movie Masterpieces To Watch on Netflix This Weekend (July 18-19)
-
-Movie, Apollo 13, The Hunger Games: The Ballad of Songbirds and Snakes, High Fidelity, Netflix
-
-Fri, 17 Jul 2026 09:22:15 GMT
-
-https://collider.com/best-netflix-movies-watch-weekend-july-18/
-
-The Ballad of Songbirds & Snakes, Apollo 13, and High Fidelity make up our list of the best Netflix movies to watch the weekend of July 18th, 2026.
----------
-
-# Jason Statham's New 100-Minute Action Thriller Is One of Streaming's Biggest Films
-
-Movie News, Jason Statham, Shelter, Action, Thriller
-
-Fri, 17 Jul 2026 11:00:13 GMT
-
-https://movieweb.com/jason-statham-shelter-action-thriller-stream-july-2026/
-
-The 2026 action effort has fought its way back up the streaming charts.
----------
-
-# Who Is David Keighley? 'The Odyssey's Tribute, Explained
-
-Features, Christopher Nolan, The Odyssey, IMAX
-
-Fri, 17 Jul 2026 11:00:13 GMT
-
-https://movieweb.com/the-odyssey-david-keighley-tribute-explained/
-
-Christopher Nolan dedicated 'The Odyssey' to a true pioneer.
----------
-
-# Matt Damon Confirms 'Jason Bourne 6' Fate Following Recasting Rumors
-
-Movie News, Jason Bourne 6, Jason Bourne, Bourne, Matt Damon
-
-Fri, 17 Jul 2026 10:17:22 GMT
-
-https://movieweb.com/jason-bourne-6-matt-damon-in-the-works/
-
-Matt Damon has confirmed he is currently in talks for a new 'Jason Bourne' movie amid rumors that the lead character may be recast.
----------
-
-# McDonald's Teases New Pokémon Happy Meals, But Expect Them To Sell Out Fast
-
-Gaming, Pokemon, Pokemon GO, Pokémon GO, pokemon lets go pikachu
-
-Fri, 17 Jul 2026 07:52:43 GMT
-
-https://screenrant.com/pokemon-happy-meals-returning-mcdonalds-japan-2026/
-
-McDonald's 'Pokémon Summer Mac' campaign in Japan, celebrating Pokémon's 30-year anniversary with exclusive items, game tie-ins  and promotions.
----------
-
-# Heartstopper Forever Review: A Satisfying Finale For One Of Netflix’s Best Coming-Of-Age Stories
-
-New Movies, Heartstopper Forever
-
-Fri, 17 Jul 2026 07:01:12 GMT
-
-https://screenrant.com/heartstopper-forever-movie-review/
-
-Heartstopper Forever reunites Joe Locke and Kit Connor one last time in a heartfelt film that gives Netflix's beloved romance a fitting goodbye.
----------
-
-# ‘Gundam’ Meets ‘Godzilla’ in Idris Elba’s Sci-Fi Epic Quietly Crushing the Competition
-
-Movie News, Pacific Rim, Guillermo del Toro, Science Fiction, Action
-
-Fri, 17 Jul 2026 09:00:15 GMT
-
-https://collider.com/pacific-rim-streaming-top-vudu-10-july-2026/
-
-Guillermo del Toro’s Pacific Rim, starring Idris Elba and Charlie Day, has returned to streaming charts 13 years after its original release.
----------
-
-# Netflix Has Quietly Released the Most Spellbinding Fantasy Epic of 2026 | Review
-
-TV Reviews, The East Palace, Netflix, Fantasy
-
-Fri, 17 Jul 2026 08:00:15 GMT
-
-https://collider.com/the-east-palace-netflix-review/
-
-Netflix's The East Palace combines stunning visuals, a star-studded cast, and a gripping storyline for an unmissable dark fantasy experience.
----------
-
-# Magic: The Gathering As We Know It Is Over
-
-Gaming, Magic: The Gathering, tabletop games
-
-Fri, 17 Jul 2026 06:30:12 GMT
-
-https://screenrant.com/magic-the-gathering-universes-beyond-adapt-or-leave/
-
-Magic: The Gathering's head designer officially confirms the future of the game, establishing that the "toothpaste is out of the tube."
 ---------
