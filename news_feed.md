@@ -1,3 +1,267 @@
+# Michael Fassbender's Alien Android Finds His Match In Hulu's 8-Part Sci-Fi Series
+
+Streaming TV, Masked Recs
+
+Sat, 18 Jul 2026 21:30:11 GMT
+
+https://screenrant.com/alien-earth-kirsh-vs-david-prometheus-android/
+
+Kirsh, Timothy Olyphant's cunning android character from Alien: Earth, would've figured out David's nefarious intentions 20 minutes into Prometheus.
+---------
+
+# GTA Online Is Free For Another 48 Hours
+
+Gaming, Grand Theft Auto Online, Triple-A Games
+
+Sat, 18 Jul 2026 21:30:11 GMT
+
+https://screenrant.com/gta-online-free-july-2026/
+
+Grand Theft Auto Online's new update launch has coincided with a free trial for the game, but fans don't have a whole lot longer to capitalize on it.
+---------
+
+# Big Brother 28: Week 2 Power of Veto Results (SPOILERS)
+
+Reality TV, Big Brother
+
+Sat, 18 Jul 2026 21:21:33 GMT
+
+https://screenrant.com/big-brother-28-week-2-power-of-veto-results-spoilers/
+
+Find out who the week 2 Power of Veto winner is ahead of Big Brother 28 and after new nominations for eviction were made, setting the stage for chaos.
+---------
+
+# Forget The Odyssey, Disney’s Mythology Fantasy Epic Will Never Be Topped
+
+Movies, The Odyssey, Hercules
+
+Sat, 18 Jul 2026 21:15:11 GMT
+
+https://screenrant.com/disney-hercules-the-odyssey-never-topped/
+
+Conversations about The Odyssey are understandably everywhere right now, but this 1997 Disney movie, also centered on mythology, shouldn't be ignored.
+---------
+
+# Grant Gustin's DCEU Crossover Is The Arrowverse Ending Fans Deserved
+
+Classic TV, Masked Recs
+
+Sat, 18 Jul 2026 21:15:11 GMT
+
+https://screenrant.com/grant-gustin-dceu-crossover-crisis-arrowverse-ending/
+
+Grant Gustin's Flash got the perfect ending when he passed on the torch to the next Barry Allen in the Arrowverse's "Crisis on Infinite Earths."
+---------
+
+# Scrubs Season 2 Revival Officially Begins Filming With First Set Photo Unveiled
+
+TV, Scrubs
+
+Sat, 18 Jul 2026 21:14:48 GMT
+
+https://screenrant.com/scrubs-season-2-filming-update-set-photos/
+
+The first set photo for the sophomore season of the Scrubs reboot has officially been unveiled, proving that production is in progress.
+---------
+
+# Six Years Later, This 10/10 Classic Is Still Netflix's Most Watched Series in 2026
+
+Anime, Netflix, Masked Recs
+
+Sat, 18 Jul 2026 21:03:37 GMT
+
+https://screenrant.com/true-beauty-netflix-most-watched-series/
+
+Netflix just revealed its most-streamed shows of 2026 so far, and one K-drama is still dominating the rankings years later.
+---------
+
+# 7 Years Later, Tommy Shelby's Best Peaky Blinders Line Reveals His Biggest Mistake
+
+Streaming TV, Peaky Blinders
+
+Sat, 18 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/peaky-blinders-best-tommy-shelby-line-mistake/
+
+Tommy Shelby is one of the most memorable anti-heroes in the gangster genre, and his best Peaky Blinders line reveals his fatal flaw.
+---------
+
+# Dishonored Official Return Confirmed For 2026
+
+Gaming, Dishonored, Dishonored 2, dishonored 3, PC
+
+Sat, 18 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/dishonored-official-return-2026-launch/
+
+Dishonored remains one of the greatest immersive stealth sim games of all time, and it's officially making an epic return later this year.
+---------
+
+# 1 Star Trek Novel Detail Completely Erases The Original Series
+
+TV, Star Trek
+
+Sat, 18 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/star-trek-tmp-novel-detail-tos-change/
+
+One of the weirdest Star Trek novels features a small detail that completely rewrites the history of The Original Series in the franchise canon.
+---------
+
+# 10 Naruto Techniques That Are Honestly Overpowered Plot Devices
+
+Anime, Naruto, Naruto: Shippuden
+
+Sat, 18 Jul 2026 21:15:15 GMT
+
+https://www.cbr.com/overpowered-naruto-techniques-as-plot-devices/
+
+Naruto's world is full of incredible abilities, but some techniques exceed power levels, becoming solutions to problems that should be unsolvable.
+---------
+
+# The Best Far Side Comics About Holidays, Ranked
+
+Comics, The Far Side
+
+Sat, 18 Jul 2026 21:00:15 GMT
+
+https://www.cbr.com/the-best-far-side-holiday-comics-ever-written/
+
+Some of the best Far Side holiday strips reflected Gary Larson’s poignant and irreverent attitudes toward the traditions surrounding the holidays.
+---------
+
+# 8 Greatest Mystery Movies Worth Watching Again and Again, Ranked
+
+Movies, Mystery, Knives Out
+
+Sat, 18 Jul 2026 21:00:15 GMT
+
+https://www.cbr.com/most-rewatchable-mystery-movies-ranked-list/
+
+These must-watch mystery movies get even better upon repeated viewings.
+---------
+
+# 10 Fantasy Shows That Are a Masterclass in Worldbuilding
+
+TV, Fantasy, Game Of Thrones, The Wheel of Time, Avatar: The Last Airbender
+
+Sat, 18 Jul 2026 21:41:14 GMT
+
+https://collider.com/best-fantasy-shows-worldbuilding/
+
+Explore the best fantasy series known for exceptional worldbuilding, including Game of Thrones, His Dark Materials, and The Wheel of Time.
+---------
+
+# Netflix's Paranoid Sci-Fi Masterpiece Is the Perfect Weekend Watch
+
+Movie Features, Bugonia, Yorgos Lanthimos, Emma Stone, Jesse Plemons
+
+Sat, 18 Jul 2026 21:30:15 GMT
+
+https://collider.com/netflixs-paranoid-sci-fi-masterpiece-perfect-weekend-watch/
+
+With Yorgos Lanthimos' Bugonia making the rounds on Netflix, now is the perfect time to watch  (or rewatch) the Best Picture nominee.
+---------
+
+# Forget 'Off Campus,' The Steamiest Movie of the Decade Is Leaving Streaming
+
+Movie News, Challengers, Off Campus, Zendaya, Peacock
+
+Sat, 18 Jul 2026 21:30:15 GMT
+
+https://collider.com/zendaya-challengers-leaving-peacock-august-2026/
+
+The steamy romantic drama Challengers, starring Zendaya, is about to be removed from Peacock. Find out more.
+---------
+
+# 3 Years Later, This Sci-Fi Masterpiece Is Still the Most Disturbing Dystopian Film on Netflix
+
+Movie Features, Paradise, Sci-Fi, Netflix, Thriller
+
+Sat, 18 Jul 2026 21:30:15 GMT
+
+https://collider.com/netflix-sci-fi-masterpiece-paradise-disturbing-dystopian/
+
+Netflix's 2023 German sci-fi thriller 'Paradise,' directed by Boris Kunz, examines the terrifying consequences of making years a commodity.
+---------
+
+# Guy Ritchie Is Officially Outdoing ‘MobLand’ With New Prime Video Crime Thriller Series
+
+TV News, Guy Ritchie, MobLand, Prime Video, Paramount Plus
+
+Sat, 18 Jul 2026 21:15:15 GMT
+
+https://collider.com/guy-ritchie-prime-video-series-capital-mobland-similarities/
+
+Guy Ritchie is officially working on a new crime thriller series at Prime Video, Capital, which aims to compete with MobLand on Paramount+.
+---------
+
+# Batman's Best Video Game Would Make a Better TV Spin-Off Than 'The Penguin'
+
+TV Features, Batman: Arkham Asylum, The Penguin, Video Game, DCU
+
+Sat, 18 Jul 2026 21:10:15 GMT
+
+https://collider.com/batman-arkham-asylum-video-game-tv-series/
+
+Batman: Arkham Asylum could provide the perfect foundation for a live-action TV adaptation, offering a deep look into the Dark Knight's world.
+---------
+
+# Forget ‘Reacher,’ Prime Video’s Elite Spy Thriller Just Crushed a Massive Streaming Milestone
+
+Movie News, Tom Clancy's Jack Ryan: Ghost War, Reacher, Tom Clancy's Jack Ryan, Prime Video
+
+Sat, 18 Jul 2026 21:00:15 GMT
+
+https://collider.com/prime-video-spy-thriller-jack-ryan-ghost-war-streaming-success-prime-video-july-2026/
+
+Prime Video's elite spy thriller just crushed a huge streaming milestone before the fourth season of Reacher premieres next month.
+---------
+
+# 'Star Trek': 10 Captain Kirk Quotes That Still Live Rent-Free in Our Heads
+
+Movie Lists, Star Trek
+
+Sat, 18 Jul 2026 21:30:12 GMT
+
+https://movieweb.com/star-trek-captain-kirk-quotes/
+
+60 years since his television debut, Captain Kirk's words remain an inspiration to Star Trek fans and beyond.
+---------
+
+# 8 Biggest Things Christopher Nolan Cut From 'The Odyssey'
+
+Movie Lists, The Odyssey
+
+Sat, 18 Jul 2026 21:15:12 GMT
+
+https://movieweb.com/the-odyssey-things-christopher-nolan-cut/
+
+How accurate is 'The Odyssey'? Well, there are definitely some things missing. Here are all the important characters and events Nolan left out.
+---------
+
+# Christopher Nolan's 'The Odyssey' Earns Epic Rotten Tomatoes Audience Score
+
+Movies, The Odyssey, Christopher Nolan
+
+Sat, 18 Jul 2026 21:14:15 GMT
+
+https://movieweb.com/christopher-nolan-odyssey-rotten-tomatoes-audience-score/
+
+Christopher Nolan's The Odyssey, a $250 million adaptation of Homer's epic poem, has earned the director's highest Rotten Tomatoes scores and a projected $120 million domestic debut, surpassing expectations.
+---------
+
+# Netflix Is Now Streaming the Best Sci-Fi Adaptation of the Last 15 Years
+
+Features, The Hunger Games, Netflix, Sci-Fi
+
+Sat, 18 Jul 2026 21:00:12 GMT
+
+https://movieweb.com/hunger-games-movies-streaming-netflix/
+
+Netflix is now streaming one of the greatest sci-fi adaptations to emerge in recent years, and it's arriving on the platform at the ideal time.
+---------
+
 # 10 Biggest TV Shows Still To Come In 2026
 
 Streaming TV, Star Trek: Strange New Worlds, MobLand, American Horror Story, Harry Potter, The Lord of the Rings: The Rings of Power, Ted Lasso, Reacher, Stuart Fails to Save the Universe, VisionQuest, Lanterns
@@ -5232,268 +5496,4 @@ Fri, 17 Jul 2026 13:31:37 GMT
 https://screenrant.com/lotr-rings-of-power-season-3-gandalf-sauron-return-image-first-look/
 
 Gandalf and Sauron get new designs for The Lord of the Rings: The Rings of Power season 3 in the first epic look at the returning Prime Video series.
----------
-
-# Brenda Fricker, My Left Foot and Home Alone 2 Star, Dies at 81
-
-Movies, Home Alone 2: Lost in New York, My Left Foot, obituary
-
-Fri, 17 Jul 2026 14:16:26 GMT
-
-https://www.cbr.com/brenda-fricker-dead/
-
-The actress made history with her Oscar win.
----------
-
-# Only 3 Action Anime Are Better Than Solo Leveling
-
-Anime, Solo Leveling, Attack On Titan
-
-Fri, 17 Jul 2026 14:15:15 GMT
-
-https://www.cbr.com/action-anime-better-than-solo-leveling/
-
-Solo Leveling has set a high bar for modern action anime, but these series still stand above it in key areas.
----------
-
-# Chip Zdarsky Declares Hot Take On Variant Covers and Comic Collector Culture
-
-Comics, Marvel, DC Comics
-
-Fri, 17 Jul 2026 14:01:15 GMT
-
-https://www.cbr.com/chip-zdarsky-variant-covers-comic-collector-culture-comments/
-
-Although an enjoyable hobby for many, comic collecting can go too far, Chip Zdarsky explains.
----------
-
-# 5 Most Powerful Anime Characters Gojo Could Beat
-
-Anime, Jujutsu Kaisen, Dragon Ball, Chainsaw Man, One Piece
-
-Fri, 17 Jul 2026 13:15:15 GMT
-
-https://www.cbr.com/jjk-strongest-anime-characters-gojo-could-beat/
-
-Satoru Gojo from Jujutsu Kaisen isn't invincible, but he can still defeat some of the most powerful characters in anime history.
----------
-
-# Jason Statham's New 107-Minute Action Flop Is a Certified Hit 54 Days After Dropping on Streaming
-
-Movies, Shelter, Jason Statham
-
-Fri, 17 Jul 2026 13:01:15 GMT
-
-https://www.cbr.com/jason-statham-shelter-starz-streaming-success-july-2026/
-
-Despite mixed reviews from critics, fans have sent Jason Statham's latest action thriller to the top of the streaming charts after its recent debut.
----------
-
-# Before Yellowstone, Taylor Sheridan Nearly Stole Jon Bernthal's Greatest TV Role
-
-TV, The Walking Dead
-
-Fri, 17 Jul 2026 13:01:15 GMT
-
-https://www.cbr.com/the-walking-dead-taylor-sheridan-nearly-played-shane/
-
-Taylor Sheridan is known for helming the Yellowstone franchise, but he once almost played The Walking Dead's first villain.
----------
-
-# 6 Classic Action Movies We Need a Remake Of
-
-Movies, Dragonheart, Speed, Hard Boiled
-
-Fri, 17 Jul 2026 13:01:15 GMT
-
-https://www.cbr.com/classic-action-movies-needing-remakes-list/
-
-Some of the best action movies would benefit from a modern remake
----------
-
-# 'Heartstopper Forever' Is the Perfect Ending to the Beloved Netflix Series | Review
-
-TV Reviews, Heartstopper, Heartstopper Forever, Netflix, Romance
-
-Fri, 17 Jul 2026 14:01:15 GMT
-
-https://collider.com/heartstopper-forever-review-netflix/
-
-Heartstopper Forever gives fans of the series what they want with a feel-good ending for the beloved Netflix series.
----------
-
-# Prime Video's 'God of War' Series Is Officially Recasting Its Lead
-
-TV News, Prime Video, God of War, Ryan Hurst, Ronald D. Moore
-
-Fri, 17 Jul 2026 12:55:07 GMT
-
-https://collider.com/prime-video-god-of-war-recast-kratos-ryan-hurst-exit/
-
-Prime Video's God of War series is officially recasting Kratos after Ryan Hurst was injured on the set, halting production.
----------
-
-# The 3 Best Netflix Shows to Binge This Weekend All Have One Thing in Common
-
-TV, The Hawk, The Tick, Black Rabbit, Netflix
-
-Fri, 17 Jul 2026 12:41:14 GMT
-
-https://collider.com/best-netflix-shows-binge-july-18/
-
-The Hawk, The Tick, and Black Rabbit make up our list of the best Netflix shows you should binge the weekend of July 18th, 2026.
----------
-
-# Apple TV's Long-Awaited Epic Fantasy Adaptation Gets Disappointing Update
-
-Movie News, Mistborn, Apple TV
-
-Fri, 17 Jul 2026 14:00:20 GMT
-
-https://movieweb.com/apple-tv-mistborn-movie-release-date-update/
-
-It's a disappointing day for fans of the Cosmere universe.
----------
-
-# 44 Years Later, the "Greatest Action Film Ever Made" Shoots to Streaming Success
-
-Movie News, First Blood, Rambo, Action, Thriller
-
-Fri, 17 Jul 2026 14:00:12 GMT
-
-https://movieweb.com/rambo-first-blood-best-action-thriller-stream-july-2026/
-
-Even decades later, the action thriller classic continues to impress.
----------
-
-# Prime Video's Historical Epic With 'HotD' Star Is a Perfect Weekend Binge
-
-Features, Prime Video, Game Of Thrones
-
-Fri, 17 Jul 2026 14:00:12 GMT
-
-https://movieweb.com/king-and-conqueror-weekend-binge/
-
-Just two men and a throne. Sound familiar?
----------
-
-# Netflix Officially Addresses Potential Game-Changing Subscription Change
-
-TV News, Netflix
-
-Fri, 17 Jul 2026 13:53:08 GMT
-
-https://movieweb.com/netflix-free-tier-streaming-subscription/
-
-Will Netflix offer a free tier on their app? One of the streamer's CEOs officially addresses the speculation.
----------
-
-# Amazon's God of War Series Makes Game-Changing Decision Following Lead Actor's Injury
-
-TV News, God of War, Ryan Hurst
-
-Fri, 17 Jul 2026 13:40:05 GMT
-
-https://movieweb.com/god-of-war-recast-kratos-injury/
-
-Prime Video's new 'God of War' series made a shocking call after a serious injury threatened to set back production on the anticipated series.
----------
-
-# Taylor Sheridan's 89% Rated 'Yellowstone' Sequel Suffers Streaming Setback
-
-TV News, Dutton Ranch, Paramount Plus, Hot on Streaming, All the Queen's Men, Taylor Sheridan
-
-Fri, 17 Jul 2026 13:00:13 GMT
-
-https://movieweb.com/dutton-ranch-taylor-sheridan-beaten-all-the-queens-men-stream-paramount/
-
-Taylor Sheridan's 'Yellowstone' sequel 'Dutton Ranch' has been dethroned on Paramount+, ahead of Season 2.
----------
-
-# Tyrion's Line is Still the Greatest Quote in 'Game of Thrones' History
-
-Features, Game Of Thrones
-
-Fri, 17 Jul 2026 13:00:13 GMT
-
-https://movieweb.com/game-of-thrones-tyrion-best-quote/
-
-'Game of Thrones,' the HBO fantasy series based on George R.R. Martin's books, has one particularly memorable quote from Tyrion Lannister.
----------
-
-# It's The Start Of An Era For Alan Ritchson's 3-Part Prime Video Series
-
-Streaming TV, Masked Recs
-
-Fri, 17 Jul 2026 12:30:11 GMT
-
-https://screenrant.com/alan-ritchson-reacher-prime-video-franchise-expands/
-
-Reacher is the latest hit Prime Video show to get expanded into a larger franchise, with a succession of spinoffs set in the same universe.
----------
-
-# New Fantastic Four Logo Officially Unveiled by Marvel
-
-Comics, Fantastic Four
-
-Fri, 17 Jul 2026 12:30:11 GMT
-
-https://screenrant.com/new-fantastic-four-logo-costumes-redesign-midnight/
-
-Light meets darkness in new logo.
----------
-
-# The Odyssey Doesn't Have A Post-Credits Scene, But You'll Regret Leaving Early
-
-New Movies, The Odyssey
-
-Fri, 17 Jul 2026 12:30:11 GMT
-
-https://screenrant.com/the-odyssey-movie-post-credits-sceney/
-
-Christopher Nolan's The Odyssey might not have a post-credits scene at the end of its nearly 3-hour runtime, but there's another reason to stay.
----------
-
-# GTA Online Is Completely Free Until July 21
-
-Gaming, Grand Theft Auto Online, Grand Theft Auto
-
-Fri, 17 Jul 2026 12:26:51 GMT
-
-https://screenrant.com/gta-online-free-trial-limited-time/
-
-Grand Theft Auto Online is completely free to play right now, and you'll have until July 21 to play at no additional cost on multiple systems.
----------
-
-# 10 Disney Lorcana: Attack Of The Vine! Cards Worth The Most Money
-
-Gaming, Disney Lorcana
-
-Fri, 17 Jul 2026 12:00:12 GMT
-
-https://screenrant.com/disney-lorcana-attack-of-the-vine-cards-worth-most-money/
-
-Explore the most valuable cards in the new Disney Lorcana: Attack of the Vine! expansion, including rare Enchanted and Iconic versions.
----------
-
-# Avatar: The Last Airbender Returns With A New Movie In 1 Week
-
-Movies, Avatar: The Last Airbender, Avatar Aang: The Last Airbender
-
-Fri, 17 Jul 2026 12:00:12 GMT
-
-https://screenrant.com/avatar-aang-the-last-airbender-movie-return-release/
-
-A beloved show series that has remained famous for almost two decades since its release is one week away from getting a major movie update.
----------
-
-# 16 Years Later, Doctor Who's Best Historical Episode Is Still Undefeated
-
-Classic TV, Doctor Who
-
-Fri, 17 Jul 2026 12:00:12 GMT
-
-https://screenrant.com/doctor-who-vincent-and-the-doctor-best-historical-episode/
-
-While Doctor Who's historical episodes can be hit-or-miss, this 19th-century episode is one of the best and most moving the show has ever produced.
 ---------
