@@ -1,3 +1,223 @@
+# Will Ferrell's New Series With All-Time Career Record Is Officially Netflix's #1 Show
+
+TV, Masked Recs, Will Ferrell, Netflix
+
+Sat, 18 Jul 2026 16:21:39 GMT
+
+https://screenrant.com/netflix-the-hawk-streaming-success-july-2026-charts/
+
+Will Ferrell's latest TV show, which has set new records for his career, has officially become the #1 new series on Netflix, following its premiere.
+---------
+
+# Every A Nightmare On Elm Street Movie, Ranked By Kill Count
+
+Movies, Horror, A Nightmare on Elm Street
+
+Sat, 18 Jul 2026 16:20:11 GMT
+
+https://screenrant.com/nightmare-elm-street-movies-ranked-kill-count/
+
+Freddy Krueger might be horror's most creative killer, but which of the Nightmare on Elm Street movies featured the highest body count?
+---------
+
+# Evil Dead Burn Box Office Crumbles With Franchise-Worst Week 2 Drop
+
+Movies, Evil Dead Burn, Horror, Box Office, Evil Dead
+
+Sat, 18 Jul 2026 16:10:13 GMT
+
+https://screenrant.com/evil-dead-burn-box-office-week-2-domestic-drop/
+
+After earning the horror franchise's lowest debut in more than 30 years, Evil Dead Burn capsizes in its second weekend with a steep sophomore drop.
+---------
+
+# It's The Start Of An Era For Power Rangers Collectors
+
+Classic TV, Power Rangers
+
+Sat, 18 Jul 2026 16:10:11 GMT
+
+https://screenrant.com/power-rangers-playmates-collector-series-line/
+
+There hasn't been a new wave of the Power Rangers Lightning Collection in years, but the long wait for premium Ranger action figures will soon be over
+---------
+
+# Dwayne Johnson’s $250 Million Moana Remake With Flop Debut Now Set To Break 7-Year Record
+
+Movies, Box Office, Moana
+
+Sat, 18 Jul 2026 16:05:20 GMT
+
+https://screenrant.com/moana-2026-box-office-week-2-domestic-drop/
+
+After a disappointing debut, the live-action remake of Moana is set to break a seven-year box office record during its sophomore weekend.
+---------
+
+# 2026 Has Finally Killed The Superhero Fatigue Myth
+
+Streaming TV, Marvel, DC
+
+Sat, 18 Jul 2026 16:03:11 GMT
+
+https://screenrant.com/2026-superhero-fatigue-proved-wrong/
+
+The term "superhero fatigue" has long been used to imply that interest in superhero projects has disappeared, but 2026 has proven otherwise.
+---------
+
+# Dracula's Newest Foe Makes Doctor Van Helsing Look Pathetic (Exclusive)
+
+Comics, Dracula
+
+Sat, 18 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/dracula-villain-helsing-operation-iron-coffin/
+
+At last!
+---------
+
+# Star Wars Is Finally Getting Its First Truly Great Trilogy
+
+Gaming, Star Wars, Star Wars Jedi: Survivor, PC
+
+Sat, 18 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/star-wars-perfect-trilogy-jedi-3/
+
+Star Wars has always had great entries, but has ultimately failed to deliver a truly great trilogy. That is, of course, until now.
+---------
+
+# 4 Years Ago, Star Wars' 3-Part Thriller Changed The Franchise Forever
+
+Streaming TV, Masked Recs, Star Wars
+
+Sat, 18 Jul 2026 15:45:11 GMT
+
+https://screenrant.com/star-wars-andor-narkina-5-change-franchise/
+
+Four years ago, a new Star Wars story changed the franchise forever, testing the limits of the galaxy's storytelling with devastating effect.
+---------
+
+# The Odyssey Box Office Debut Breaks 5 Records At Once
+
+Movies, The Odyssey, Box Office
+
+Sat, 18 Jul 2026 15:42:27 GMT
+
+https://screenrant.com/the-odyssey-2026-box-office-opening-weekend-domestic-chart-report/
+
+Over the span of just three days at the domestic box office, Christopher Nolan's The Odyssey breaks nearly half a dozen major theatrical records.
+---------
+
+# Magic: The Gathering: All Sets Officially Confirmed For 2027
+
+Games, Magic: The Gathering, Tabletop, Magic: The Gathering Arena
+
+Sat, 18 Jul 2026 16:16:15 GMT
+
+https://www.cbr.com/magic-the-gathering-2027-all-confirmed-sets/
+
+Wizards of the Coast has revealed the Magic: The Gathering sets launching in 2027, which include brand-new worlds and a return to familiar ones.
+---------
+
+# 10 Wackiest Anime No One Remembers
+
+Anime, Inferno Cop, Sarazanmai
+
+Sat, 18 Jul 2026 16:16:15 GMT
+
+https://www.cbr.com/wackiest-anime-no-one-remembers/
+
+There are some truly weird anime that go for broke with their ideas, but titles like Sarazanmai, Inferno Cop, and Punch Line are especially outrageous
+---------
+
+# Absolute Batman #23 Variant Cover Pays Tribute To Dark Knight Returns
+
+Comics, Absolute Batman, Batman, batman the dark knight returns, the dark knight returns
+
+Sat, 18 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/absolute-batman-23-variant-cover-dark-knight-returns-tribute/
+
+Absolute Batman variant cover channels a classic.
+---------
+
+# Berserk Finally Brings Back the Original Manga's Strongest Apostle
+
+Anime, Berserk, merchandise, collectibles
+
+Sat, 18 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/berserk-zodd-prime-1-studio/
+
+The newest Prime 1 Studio Berserk statue recreates a classic manga cover, all while making the grievous Zodd even more bloodthirsty than ever.
+---------
+
+# Netflix Confirms AI Usage for Roughly 300 Titles So Far
+
+TV, Netflix, Artificial Intelligence
+
+Sat, 18 Jul 2026 15:42:37 GMT
+
+https://www.cbr.com/netflix-confirms-ai-usage/
+
+The revelation comes two years after the company promised AI won't take anyone's job.
+---------
+
+# Mike Flanagan's Stephen King Adaptation Carrie Is Already Prime Video's Next 5-Star Horror Classi
+
+TV, Carrie, Mike Flanagan, Horror
+
+Sat, 18 Jul 2026 15:31:15 GMT
+
+https://www.cbr.com/prime-video-mike-flanagan-carrie-modern-stephen-king-classic/
+
+Flanagan has stressed that Carrie's TV adaptation expands Stephen King's original novel in ways that film adaptations simply could not.
+---------
+
+# Only 5 Joaquin Phoenix Movies Are Perfect From Start to Finish
+
+Movie, Joaquin Phoenix, Her, Walk The Line, Gladiator
+
+Sat, 18 Jul 2026 16:19:15 GMT
+
+https://collider.com/best-joaquin-phoenix-movies-perfect/
+
+From You Were Never Really Here, to The Master, to Her, Joaquin Phoenix built a career on unforgettable characters and fearless performances.
+---------
+
+# ‘Reacher’ Star Alan Ritchson Is Ready for Revenge in 1 Week
+
+Movie News, Motor City, Alan Ritchson, Action, Reacher
+
+Sat, 18 Jul 2026 16:15:15 GMT
+
+https://collider.com/alan-ritchson-motor-city-release-date-action-thriller/
+
+Alan Ritchson’s brutal revenge thriller Motor City, with Ben Foster and Shailene Woodley, arrives in 1 week.
+---------
+
+# Christopher Nolan’s ‘The Odyssey’ Leaves One of the Greatest Sci-Fi Movies Ever in the Dust
+
+Movie News, The Odyssey, Christopher Nolan, Matt Damon, Box Office
+
+Sat, 18 Jul 2026 15:30:15 GMT
+
+https://collider.com/the-odyssey-box-office-debut-overtakes-dune-part-2/
+
+Christopher Nolan’s The Odyssey officially outperforms Dune: Part Two in historic box office debut.
+---------
+
+# One of the Best War Movies of All Time Is on YouTube for Free
+
+Features, War, Full Metal Jacket
+
+Sat, 18 Jul 2026 16:01:12 GMT
+
+https://movieweb.com/full-metal-jacket-youtube-free/
+
+The war movie genre has delivered some of the most impressive films of the past few decades, and now one is on YouTube free of charge.
+---------
+
 # 10 Greatest Fantasy Movies With The Best Worldbuilding
 
 Movies, Avatar, Fantasy, Dune, The Dark Crystal
@@ -5276,224 +5496,4 @@ Fri, 17 Jul 2026 00:02:22 GMT
 https://screenrant.com/marvel-studios-subtly-remakes-the-best-hulk-movie/
 
 Marvel has just come up with the perfect way to remake the best and most underrated Hulk movie to date, and it is already out on Disney+.
----------
-
-# 5 Batsuit Upgrades We Want To See In Robert Pattinson’s The Batman 2
-
-Superheroes, The Batman Part II, DC Universe
-
-Fri, 17 Jul 2026 00:00:11 GMT
-
-https://screenrant.com/5-batsuit-upgrades-we-want-robert-pattinson-the-batman-2/
-
-After the first official look at Robert Pattinson in The Batman - Part II, here are some more batsuit upgrades we'd love to see in the upcoming sequel
----------
-
-# DC Just Created Its Own Hulk, And the Result Is Terrifying
-
-DC Comics, Masked Recs
-
-Thu, 16 Jul 2026 23:57:11 GMT
-
-https://screenrant.com/absolute-green-arrow-solomon-grundy-hulk/
-
-As terrifying as Bruce Banner's Hulk can be, DC’s latest reimagining of one of Batman’s most iconic villains may be even more frightening.
----------
-
-# The Westies Season 1 Interviews with Chris Brancato, Michael Panes & Stanley Morgan
-
-TV, The Westies, The Westies - Season 1
-
-Thu, 16 Jul 2026 23:42:20 GMT
-
-https://screenrant.com/video/the-westies-season-1-chris-brancato-michael-panes-stanley-morgan-interview/
-
-The Westies showrunners Chris Brancato and Michael Panes explain their writing process, and how their new MGM+ show evolved from a Godfather of Harlem pitch, while star Stanley Morgan digs deeper into the complex character of Mickey Flanagan.
----------
-
-# 9 Best Dungeons & Dragons Adventures Set In Forgotten Realms
-
-Games, Dungeons and Dragons, Tabletop, Gaming
-
-Fri, 17 Jul 2026 00:45:15 GMT
-
-https://www.cbr.com/best-dnd-adventures-set-in-forgotten-realms/
-
-The Forgotten Realms is one of D&amp;D's most recognizable worlds, and there are plenty of adventures to be had from Baldur's Gate to Chult!
----------
-
-# In Just 2 Days, Timothy Olyphant's New Crime Series Based on Hit Novel Is Officially the Most-Watched Show in the U.S.
-
-TV, Lucky, Apple TV, Crime
-
-Fri, 17 Jul 2026 00:30:15 GMT
-
-https://www.cbr.com/lucky-crime-apple-tv-success-july-2026/
-
-Apple TV's new crime series, Lucky, is an instant hit, becoming the most watched Apple TV show in the U.S.
----------
-
-# 5 Biggest Spider-Man Villains Still Missing From the MCU
-
-Movies, Marvel Cinematic Universe
-
-Fri, 17 Jul 2026 00:30:15 GMT
-
-https://www.cbr.com/5-biggest-spider-man-villains-still-missing-from-the-mcu/
-
-Tom Holland's version of Peter Parker has faced more supervillains than any other, but some of his greatest enemies are still absent from the MCU.
----------
-
-# Say Goodbye to HBO as the King of Space Opera TV as Amazon Prepares to Bury Dune: Prophecy
-
-TV, HBO Max, Prime Video, Sci-Fi
-
-Fri, 17 Jul 2026 00:30:15 GMT
-
-https://www.cbr.com/prime-video-captives-war-vs-hbo-dune-prophecy-comparison/
-
-Prime Video's upcoming sci-fi series is set to cement the streamer as the king of space-opera TV, taking on competition from HBO.
----------
-
-# Crunchyroll Removes Black Lagoon, Blood Blockade Battlefront and Grimgar From Streaming
-
-Anime, Crunchyroll, Black Lagoon, Grimgar, Ashes and Illusions, Blood Blockade Battlefront, Funimation
-
-Fri, 17 Jul 2026 00:20:16 GMT
-
-https://www.cbr.com/crunchyroll-black-lagoon-grimgar-blood-blockade-battlefront-remove/
-
-Crunchyroll is once again facing backlash for removing anime from its platform without any warning.
----------
-
-# 10 Ways Gojo Changed Jujutsu Society Forever
-
-Anime, Jujutsu Kaisen, Shonen, shonen anime
-
-Fri, 17 Jul 2026 00:15:15 GMT
-
-https://www.cbr.com/satoru-gojo-changed-jujutsu-society-forever/
-
-Satoru Gojo's influence on Jujutsu Kaisen extends far beyond his title as the strongest sorcerer of the modern era.
----------
-
-# Matt Damon's Heavily Underseen Crime Comedy Is Making a Streaming Comeback at the Right Time
-
-Movies, The Instigators, The Odyssey, Crime
-
-Fri, 17 Jul 2026 00:00:15 GMT
-
-https://www.cbr.com/matt-damon-the-instigators-crime-comedy-apple-tv-success-july-2026/
-
-Matt Damon's crime comedy, The Instigators, is rising on the Apple TV charts ahead of his starring role in Christopher Nolan's The Odyssey.
----------
-
-# In Just 1 Day, Prime Video's Near-Perfect New 8-Part Action Adventure Shoots Straight to No. 2 in the U.S.
-
-TV, Ride or Die, Prime Video, Action-Adventure
-
-Fri, 17 Jul 2026 00:00:15 GMT
-
-https://www.cbr.com/ride-or-die-action-success-prime-video-july-2026/
-
-Prime Video's new action adventure buddy comedy, Ride or Die, becomes the No. 2 most watched TV show on Prime Video, just one day after its release.
----------
-
-# Paramount's Nightmare on Elm Street Reboot Is the Horror Event of the Decade
-
-Movies, A Nightmare on Elm Street, freddy kreuger
-
-Fri, 17 Jul 2026 00:00:15 GMT
-
-https://www.cbr.com/nightmare-on-elm-street-reboot-horror-event-of-the-decade/
-
-The return of Freddy Krueger could use nostalgia in a good way while building upon the franchise's roots and the progression of horror movies.
----------
-
-# Rainbow Rowell On Her Official Marvel Return to the Runaways
-
-Comics, Runaways
-
-Thu, 16 Jul 2026 23:37:53 GMT
-
-https://www.cbr.com/rainbow-rowell-marvel-runaways-what-if-interview/
-
-In a CBR exclusive interview with Rainbow Rowell, the longtime Runaways writers discusses returning to the characters for a What If...? special
----------
-
-# Horror's Most Sadistic Franchise Is Officially Back
-
-Gaming News, Saw, Horror, Gaming
-
-Fri, 17 Jul 2026 00:30:15 GMT
-
-https://collider.com/saw-prequel-genesis-closed-beta-july-2026/
-
-The Saw franchise is finally back after a 3-year hiatus, with the newest prequel taking place over 100 years before the rise of Jigsaw.
----------
-
-# 'House of the Dragon' Has Officially Beat 'Game of Thrones' at Its Own Game
-
-TV Features, House of the Dragon, Game Of Thrones, HBO, HBO Max
-
-Fri, 17 Jul 2026 00:13:15 GMT
-
-https://collider.com/house-of-the-dragon-season-3-dragons-rider-bond-game-of-thrones/
-
-House of the Dragon surpasses Game of Thrones in its portrayal of dragons, giving them distinct personalities and strong bonds with their riders.
----------
-
-# Everyone Was Wrong About Keanu Reeves in 'Bram Stoker's Dracula'
-
-Movie Features, Bram Stoker's Dracula, Keanu Reeves, Francis Ford Coppola, Horror
-
-Fri, 17 Jul 2026 00:11:15 GMT
-
-https://collider.com/keanu-reeves-bram-stokers-dracula/
-
-Though many people think that Keanu Reeves ruined Bram Stoker's Dracula, his take on the character of Jonathan Harker is more memorable than most.
----------
-
-# Paramount+’s Cult Classic Sleeper Hit Will Not Return for Season 4
-
-TV News, Paramount Plus, Colin from Accounts, CBS, Comedy
-
-Fri, 17 Jul 2026 00:00:15 GMT
-
-https://collider.com/paramount-plus-colin-from-accounts-season-4-cancelled/
-
-Discover the confirmed premiere date for Colin From Accounts Season 3 and learn if this beloved Paramount+ comedy series will have a Season 4.
----------
-
-# Christopher Nolan's 'The Odyssey' Ending Explained
-
-Movie Features, The Odyssey, Christopher Nolan, Matt Damon, Zendaya
-
-Thu, 16 Jul 2026 23:55:15 GMT
-
-https://collider.com/the-odyssey-ending-explained-christopher-nolan/
-
-Matt Damon stars as Greek hero Odysseus in the long-awaited fantasy epic from Oppenheimer director Christopher Nolan.
----------
-
-# 8 Fantasy Show Endings That Are Genuine Masterpieces
-
-TV, Fantasy, Avatar: The Last Airbender, Gravity Falls, Buffy The Vampire Slayer
-
-Thu, 16 Jul 2026 23:39:15 GMT
-
-https://collider.com/fantasy-show-endings-masterpieces/
-
-It's an achievement to end a series well, but fantasy shows like Avatar: The Last Airbender and Gravity Falls have endings that are true masterpieces.
----------
-
-# ‘Kingdom Hearts 4’ Gets Its Biggest Update in 4 Years
-
-Gaming News, Kingdom Hearts III, Disney, D23, Fantasy
-
-Thu, 16 Jul 2026 23:30:15 GMT
-
-https://collider.com/kingdom-hearts-4-d23-panel-august-2026/
-
-Kingdom Hearts is officially coming to D23, where news on the franchise's highly anticipated next chapter is expected to be revealed.
 ---------
