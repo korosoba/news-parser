@@ -1,3 +1,113 @@
+# Red Dead Redemption 2 Players Can Now Explore Mexico Without Any Mods
+
+Gaming, Red Dead Redemption
+
+Sat, 18 Jul 2026 11:30:12 GMT
+
+https://screenrant.com/red-dead-redemption-2-mexico-no-mods/
+
+Discover how to access the out-of-bounds Mexico region in Red Dead Redemption 2 using a new glitch.
+---------
+
+# Christopher Nolan Made His First Film For Only $6,000, And It's Still 70 Minutes Of Pure Perfection
+
+Movies, Following, Christopher Nolan
+
+Sat, 18 Jul 2026 11:00:16 GMT
+
+https://screenrant.com/following-christopher-nolan-first-film-perfection/
+
+Christopher Nolan may be best known for his blockbuster epics, but his first movie, 1998's Following, proved he's just as capable on a budget
+---------
+
+# New Pokémon Game Lets Players Explore Four Entire Regions
+
+Gaming, Pokemon
+
+Sat, 18 Jul 2026 11:00:16 GMT
+
+https://screenrant.com/pokemon-decay-four-regions-one-game/
+
+Explore the Talem region in Pokémon Decay, a fully completed ROM hack that combines elements from Kanto, Johto, Hoenn, and Sinnoh.
+---------
+
+# 10 Best Batman vs. Joker Stories Ever Written, Ranked
+
+Comics, Batman, Joker, DC Comics
+
+Sat, 18 Jul 2026 11:45:15 GMT
+
+https://www.cbr.com/best-batman-vs-joker-stories-ever-written/
+
+Batman and Joker have been locked in one the greatest feuds comics have ever seen, and some stand out as simply perfect sagas every fan must read.
+---------
+
+# Marvel Just Made a Spider-Man: The Animated Series Revival Even More Possible
+
+TV, X-Men '97, Spider-Man, Spider-Man: The Animated Series, Marvel
+
+Sat, 18 Jul 2026 11:31:15 GMT
+
+https://www.cbr.com/x-men-97-spider-man-revival-tease/
+
+A recent development has reignited hope for a Disney+ continuation of the beloved 1994 cartoon Spider-Man: The Animated Series.
+---------
+
+# 10 Funniest Far Side Comics Featuring Birds, Ranked
+
+Comics, The Far Side
+
+Sat, 18 Jul 2026 11:00:20 GMT
+
+https://www.cbr.com/funniest-far-side-comics-featuring-birds-ranked/
+
+Gary Larson’s use of chickens in The Far Side is well documented, but he also employed many other types of birds with hilarious results.
+---------
+
+# The Best World War II Movie Since ‘Oppenheimer’ Is Officially a #1 Worldwide Streaming Hit
+
+Movie News, Pressure, Brendan Fraser, Andrew Scott, World War II
+
+Sat, 18 Jul 2026 11:45:15 GMT
+
+https://collider.com/brendan-fraser-ww2-movie-pressure-streaming-success-vod-prime-video-july-2026/
+
+Brendan Fraser and Andrew Scott's hit World War II movie, Pressure, has become a #1 global streaming hit.
+---------
+
+# One of the Most Expensive Franchise Killers in Sci-Fi History Is Streaming for Free
+
+Movie News, Transformers: Rise of the Beasts, Transformers, Sci-Fi, Pluto TV
+
+Sat, 18 Jul 2026 11:30:15 GMT
+
+https://collider.com/transformers-rise-of-the-beasts-sci-fi-leaving-free-streaming-pluto-tv-august-2026/
+
+The franchise-fumbling sci-fi movie Transformers: Rise of the Beasts is streaming for free this month. Find out where.
+---------
+
+# 'Severance' Star Officially Returns to Streaming With New Crime Thriller This Month
+
+Movie News, Russo Brothers, The Whisper Man, Netflix, Adam Scott
+
+Sat, 18 Jul 2026 11:00:19 GMT
+
+https://collider.com/adam-scott-the-whisper-man-streaming-netflix-august-2026/
+
+The Russo Brothers' pre-Avengers: Doomsday project is Netflix's next big crime thriller. Find out more about the Adam Scott-led film here.
+---------
+
+# 10 Most Perfect Sci-Fi Shows of the Last 20 Years
+
+TV, Sci-Fi, Science Fiction, Severance, Pluribus
+
+Sat, 18 Jul 2026 10:52:17 GMT
+
+https://collider.com/most-perfect-sci-fi-shows-last-20-years-ranked/
+
+Severance, For All Mankind, Black Mirror, and The Expanse are among the best sci-fi shows of the last 20 years, but which series is the greatest?
+---------
+
 # Zelda: Ocarina Of Time Remake Official Gameplay Has Split Gamers
 
 Gaming, The Legend of Zelda
@@ -5386,114 +5496,4 @@ Thu, 16 Jul 2026 20:58:15 GMT
 https://collider.com/evolution-of-spider-man-brand-new-day-changes-marvel-comics/
 
 The evolution of Spider-Man took shocking twists and turns before Spider-Man: Brand New Day.
----------
-
-# Wolverine's Most R-Rated Story Yet Reveals a Fan-Favorite Villain
-
-Gaming News, Deadpool & Wolverine (2024), PlayStation 5, Hugh Jackman, Marvel
-
-Thu, 16 Jul 2026 20:45:03 GMT
-
-https://collider.com/playstation-wolverine-cinematic-trailer-sabretooth-lady-deathstrike-reveal/
-
-A new trailer for PlayStation's Wolverine officially reveals a fan-favorite villain and a new look at Sabretooth and The Hand.
----------
-
-# Did This Modern Rock Band Rip Off Led Zeppelin?
-
-Music Features, Led Zeppelin, Rock
-
-Thu, 16 Jul 2026 20:32:15 GMT
-
-https://collider.com/led-zeppelin-classic-rock-greta-van-fleet/
-
-Up-and-coming rock band Greta Van Fleet has a very similar sound to classic rock legends Led Zeppelin, specifically Robert Plant's iconic vocals
----------
-
-# 10 Greatest Heroes in 'Batman: The Animated Series' Who Aren't the Dark Knight
-
-TV, Batman: The Animated Series, Superhero, DC Comics, Animation
-
-Thu, 16 Jul 2026 20:05:15 GMT
-
-https://collider.com/batman-the-animated-series-best-heroes-not-batman/
-
-The Caped Crusader might be the star in Batman: The Animated Series, but the show has multiple other great heroes, from Dick Grayson to Renee Montoya.
----------
-
-# Lost R-Rated 'X-Files' Movie Debuts on New Streamer Ahead of New Reboot
-
-Movie News, The X-Files, The X-Files: I Want to Believe, Hulu
-
-Thu, 16 Jul 2026 21:02:35 GMT
-
-https://movieweb.com/the-x-files-r-rated-i-want-to-believe-streaming-directors-cut/
-
-The director's cut of 'The X-Files: I Want to Believe' lands on Hulu on Aug. 14.
----------
-
-# 10 Far Side Comics That Are Straight Out of a Horror Movie
-
-Movie Lists, The Far Side
-
-Thu, 16 Jul 2026 21:00:12 GMT
-
-https://movieweb.com/far-side-best-horror/
-
-Gary Larson's 'The Far Side' could conjure up some terrifying ideas and imagery; these ten strips prove it.
----------
-
-# Tom Cruise Reveals His Official Review of Epic Action 'The Odyssey'
-
-Movie News, The Odyssey, Tom Cruise
-
-Thu, 16 Jul 2026 20:30:59 GMT
-
-https://movieweb.com/tom-cruise-the-odyssey/
-
-Tom Cruise endorses Christopher Nolan's latest epic.
----------
-
-# Disney Officially Developing Streaming Reboot of Beloved Franchise 71 Years Later
-
-TV News, Disney, The Mickey Mouse Club
-
-Thu, 16 Jul 2026 20:13:04 GMT
-
-https://movieweb.com/disney-mickey-mouse-club-reboot/
-
-Disney+ is developing a new 'Mickey Mouse Club' pilot, marking the franchise’s latest revival.
----------
-
-# Buffy The Vampire Slayer's 2026 Return Comes With A Big Catch
-
-TV, Buffy The Vampire Slayer
-
-Thu, 16 Jul 2026 20:00:11 GMT
-
-https://screenrant.com/buffy-the-vampire-slayer-comic-return-hulu-canceled-revival/
-
-Buffy the Vampire Slayer will return with a new series full of everyone's fan-favorites, but this comeback might not be what viewers hoped for.
----------
-
-# Marvel Just Dropped Its Biggest Retcon In 65 Years
-
-Marvel Comics, Marvel
-
-Thu, 16 Jul 2026 20:00:11 GMT
-
-https://screenrant.com/marvel-fantastic-four-major-retcon/
-
-Marvel quietly reveals one of the most dramatic retcons in its main universe's history, rewriting every single human character on Earth-616.
----------
-
-# It's Officially The End Of An Era For The Lincoln Lawyer & Netflix
-
-TV, The Lincoln Lawyer, Manuel Garcia-Rulfo
-
-Thu, 16 Jul 2026 19:52:08 GMT
-
-https://screenrant.com/netflix-the-lincoln-lawyer-season-5-filming-wrap-manuel-garcia-rulfo/
-
-At the start of the year, The Lincoln Lawyer was renewed for one final season, and the star of the legal drama has revealed a major new update.
 ---------
