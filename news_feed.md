@@ -1,3 +1,245 @@
+# Final Fantasy 10 Drops Special Movie As 25th Anniversary Surprise
+
+Gaming, Final Fantasy X, Final Fantasy, Triple-A Games, PC
+
+Sat, 18 Jul 2026 17:15:04 GMT
+
+https://screenrant.com/final-fantasy-10-special-movie-anniversary-release/
+
+A new Special Movie in celebration of Final Fantasy 10's anniversary is a nice way for fans to revisit the game's emotional, iconic story.
+---------
+
+# Prime Video’s New Action Series Defeats Reacher With Rotten Tomatoes Debut Score
+
+TV, Masked Recs
+
+Sat, 18 Jul 2026 17:00:33 GMT
+
+https://screenrant.com/ride-or-die-rotten-tomatoes-audience-score-reacher-comparison/
+
+Reacher is one of Prime Video's biggest hit series, but that hasn't stopped it from being defeated by one of the streamer's new action shows.
+---------
+
+# Netflix's Underrated 3-Part Book Adaptation Is Little House On The Prairie Meets Pride And Prejudice
+
+Streaming TV, Masked Recs, Anne With an E
+
+Sat, 18 Jul 2026 17:00:12 GMT
+
+https://screenrant.com/anne-with-an-e-netflix-little-house-on-the-prairie-meets-pride-prejudice/
+
+Anne with an E, an adaptation of L.M. Montgomery's Anne of Green Gables book series, is an ideal combination of Little House and Pride and Prejudice.
+---------
+
+# The Odyssey's Oscars Chances: How Many Nominations & Wins Can Christopher Nolan's Epic Get?
+
+New Movies, The Odyssey, Oscars
+
+Sat, 18 Jul 2026 16:55:11 GMT
+
+https://screenrant.com/the-odyssey-oscars-2027-nominations-wins-chances/
+
+Christopher Nolan's The Odyssey is poised to be a huge presence for the 2027 Oscars. Here's an early look at the film's nomination and win chances.
+---------
+
+# It’s Official, Guy Ritchie Is Taking Over Streaming
+
+Streaming TV, Masked Recs
+
+Sat, 18 Jul 2026 16:45:11 GMT
+
+https://screenrant.com/guy-ritchie-streaming-success-takeover/
+
+Guy Ritchie has been a celebrated director of feature films for almost three decades, but it appears that he has easily transitioned into the TV space
+---------
+
+# 10 Reasons It's Hard To Watch The Shawshank Redemption Today
+
+Movies, The Shawshank Redemption
+
+Sat, 18 Jul 2026 16:40:11 GMT
+
+https://screenrant.com/shawshank-redemption-movie-hard-to-watch-today/
+
+From Brooks' tragic story to the movie's legendary reputation, The Shawshank Redemption is so much harder to watch today than upon release.
+---------
+
+# Every Season Of Heroes, Ranked Worst To Best
+
+Classic TV, Heroes
+
+Sat, 18 Jul 2026 16:30:12 GMT
+
+https://screenrant.com/heroes-all-seasons-ranked/
+
+Heroes had a rollercoaster run with major highs and devastating lows, but overall, the show remains a cult classic that is well worth a rewatch.
+---------
+
+# Netflix's #1 Show Of 2026 Reveals An Important Lesson
+
+Streaming TV, Masked Recs
+
+Sat, 18 Jul 2026 16:30:11 GMT
+
+https://screenrant.com/netflix-most-watched-show-2026-his-and-hers-streaming-lesson/
+
+Netflix's limited series 'His & Hers' became the platform's most-watched show in 2026, showcasing the appeal of concise, binge-worthy storytelling.
+---------
+
+# 8 Games To Play If You Liked The Odyssey
+
+Gaming, The Odyssey, Assassin's Creed Odyssey, Triple-A Games, PC
+
+Sat, 18 Jul 2026 16:30:11 GMT
+
+https://screenrant.com/best-games-similar-odyssey-nolan/
+
+Christopher Nolan's The Odyssey is a hard experience to live up to, but these games provide the perfect follow-ups to its grand adventure.
+---------
+
+# 5 Near-Perfect Open-World Games That Were Certified Flops
+
+Games, Gaming, open world, Xbox (Original), Star Wars Outlaws, Sleeping Dogs
+
+Sat, 18 Jul 2026 17:15:15 GMT
+
+https://www.cbr.com/near-perfect-open-world-games-that-flopped/
+
+Sometimes even popular franchise open-world games flop after release, but that doesn't make them any less amazing to play.
+---------
+
+# 10 Classic NES Games That Aren't As Good As You Remember
+
+Games, Nintendo
+
+Sat, 18 Jul 2026 17:00:15 GMT
+
+https://www.cbr.com/masterpiece-nes-games-aged-like-milk-list/
+
+NES games like Super Mario Bros. and Mega Man 3 were amazing back in the day, but they might not live up to your memories.
+---------
+
+# Netflix's 86-Minute Jaws Replacement Is Officially 1 of the Biggest Films Despite Abysmal Reviews
+
+Movies, Thrash, Netflix, Thriller
+
+Sat, 18 Jul 2026 17:00:15 GMT
+
+https://www.cbr.com/thrash-netflix-biggest-movies-2026/
+
+Mixed reviews couldn't tear audiences away from this terrifying shark thriller.
+---------
+
+# Marvel's Best Character Confirmed To Lead Avengers For New Era
+
+Comics, Avengers, Spider-Man
+
+Sat, 18 Jul 2026 17:00:15 GMT
+
+https://www.cbr.com/marvel-spider-man-leading-new-avengers-team/
+
+As Armageddon rages on in the Marvel Universe, one surprising hero is ready to step up and save the day.
+---------
+
+# Disney's Tangled Live-Action Remake Unveils First Look at Flynn Rider & Rapunzel in New Set Photos
+
+Movies, Tangled
+
+Sat, 18 Jul 2026 16:48:57 GMT
+
+https://www.cbr.com/disney-tangled-live-action-first-look-flynn-rider-rapunzel-set-photos/
+
+The new live-action remake looks magical.
+---------
+
+# Square Enix Officially Surprises Fans By Bringing 2 Classic RPGs to Switch 2 October 2026
+
+Games, Nintendo Switch, Square Enix
+
+Sat, 18 Jul 2026 16:40:16 GMT
+
+https://www.cbr.com/square-enix-new-rpgs-switch-2-october-2026-octopath-traveler/
+
+Square Enix is bringing 2 RPGs to the Switch 2 and giving them a much-needed upgrade.
+---------
+
+# CBS Confirmed the End of Matlock Despite Season 3 Renewal
+
+TV, Matlock
+
+Sat, 18 Jul 2026 16:30:15 GMT
+
+https://www.cbr.com/cbs-ended-madeline-case-matlock-season-2-finale/
+
+Despite CBS renewing the series for Matlock Season 3, it's the end of the line for Kathy Bates' leading Madeline "Matty" Matlock character.
+---------
+
+# All 17 Harlan Coben Shows, Ranked
+
+TV, Harlan Coben, I Will Find You, Fool Me Once, Run Away
+
+Sat, 18 Jul 2026 17:19:15 GMT
+
+https://collider.com/harlan-coben-tv-shows-ranked/
+
+From the thrilling No Second Chance to the latest Netflix release I Will Find You, we determine which Harlan Coben series is the absolute best.
+---------
+
+# 5 Classic Crime Shows That Are Still Better Than Most New Series
+
+TV, Crime, Twin Peaks, Breaking Bad, The Sopranos
+
+Sat, 18 Jul 2026 17:04:15 GMT
+
+https://collider.com/classic-crime-shows-better-than-new-series/
+
+Revisit groundbreaking crime shows from the past that remain superior to many contemporary series, from Twin Peaks to The Sopranos.
+---------
+
+# Alan Ritchson Fights Jason Statham in the $700M Action Hit Taking Over Prime Video
+
+Movie News, Fast X, Alan Ritchson, Jason Statham, Prime Video
+
+Sat, 18 Jul 2026 17:01:14 GMT
+
+https://collider.com/alan-ritchson-jason-statham-fast-x-streaming-success-prime-video-july-2026/
+
+Forget Reacher, Alan Ritchson's $700 million action movie with Jason Statham has become a smash hit on Prime Video.
+---------
+
+# 10 Most Important NC-17 Movies of All Time
+
+Movie, Lust, Caution, Killer Joe, The Evil Dead, Midnight Cowboy
+
+Sat, 18 Jul 2026 16:53:14 GMT
+
+https://collider.com/most-important-nc-17-movies-ranked/
+
+Killer Joe, Bad Lieutenant, and The Evil Dead are all among the best and most important movies to ever receive the MPA's infamous NC-17 rating.
+---------
+
+# Everything Christopher Nolan's 'The Odyssey' Changed From the Original Story
+
+Movie, The Odyssey, Christopher Nolan, Fantasy, Adventure
+
+Sat, 18 Jul 2026 16:36:15 GMT
+
+https://collider.com/the-odyssey-christopher-nolan-changes-original-story/
+
+Quite a few changes were made by Christopher Nolan when he adapted The Odyssey, including fewer fantastical elements and some big ending alterations.
+---------
+
+# Guy Ritchie Crime Thriller Reunion 18 Years in the Making Getting 2 More Seasons
+
+Features, Paramount Plus, MobLand, Tom Hardy, Thriller, Guy Ritchie, Crime, RocknRolla
+
+Sat, 18 Jul 2026 17:00:12 GMT
+
+https://movieweb.com/mobland-guy-ritchie-tom-hardy-rocknrolla-reunion/
+
+Nearly 18 years before 'MobLand,' Guy Ritchie and Tom Hardy worked together on the amazing 2008 gangster movie 'RocknRolla,' but now they're reunited.
+---------
+
 # Will Ferrell's New Series With All-Time Career Record Is Officially Netflix's #1 Show
 
 TV, Masked Recs, Will Ferrell, Netflix
@@ -5254,246 +5496,4 @@ Fri, 17 Jul 2026 03:31:07 GMT
 https://www.cbr.com/star-trek-paramount-strategy-historic-sci-fi-fumble/
 
 Paramount seems to be moving forward with Star Trek feature films, but what does that mean for the television side?
----------
-
-# The Vampire Lestat's Jacob Anderson Says This 'Toxic' Season 1 Scene Still Affects His Character
-
-CBR Exclusives, The Vampire Lestat
-
-Fri, 17 Jul 2026 03:20:08 GMT
-
-https://www.cbr.com/the-vampire-lestat-jacob-anderson-toxic-louis-lestat-scene/
-
-Jacob Anderson breaks down Louis and Lestat’s changing relationship in The Vampire Lestat Episode 6, “Montreal.”
----------
-
-# 10 Hardest Zelda Games, Officially Ranked
-
-Games, Video Games, The Legend of Zelda, Fantasy
-
-Fri, 17 Jul 2026 03:15:16 GMT
-
-https://www.cbr.com/hardest-zelda-games-ranked-list/
-
-From classic NES entries to modern masterpieces, these unforgettable Legend of Zelda games will put your skills to the test.
----------
-
-# Gundam's Most Controversial '90s Anime Finally Returns for 30th Anniversary
-
-Anime, Mobile Fighter G Gundam, Mobile Suit Gundam, merchandise, namco bandai
-
-Fri, 17 Jul 2026 03:05:15 GMT
-
-https://www.cbr.com/g-gundam-30th-anniversary-bandai-original-soundtrack-collection/
-
-Though it debuted over three decades ago, Bandai Namco is celebrating 30 years of Mobile Fighter G Gundam with an exciting trio of new releases.
----------
-
-# Dermot Mulroney's Ruthless Eyes No. 1 on Prime Video Despite Abysmal Reviews
-
-Movies, Prime Video, Ruthless, Thriller
-
-Fri, 17 Jul 2026 03:00:15 GMT
-
-https://www.cbr.com/predictable-thriller-success-prime-video-july-2026/
-
-The three-year-old film is prepping a streaming comeback, as long as viewers come away from it satisfied.
----------
-
-# The Vampire Lestat Star Reveals How Claudia Would React To Lestat’s Ballad
-
-TV, The Vampire Lestat
-
-Fri, 17 Jul 2026 02:58:56 GMT
-
-https://www.cbr.com/the-vampire-lestat-delainey-hayles-claudia-stained-glass-eyes/
-
-Delainey Hayles reveals what Claudia thinks of Lestat’s songs “Stained Glass Eyes” and “Big Boss” in The Vampire Lestat.
----------
-
-# 5 Masterpiece Isekai Anime Better Than No Game, No Life
-
-Anime, No Game, No Life, Overlord, Mushoku Tensei: Jobless Reincarnation
-
-Fri, 17 Jul 2026 02:45:15 GMT
-
-https://www.cbr.com/masterpiece-isekai-anime-better-than-no-game-no-life/
-
-No Game, No Life is an isekai anime that got many fans' attention, but it can't compare to other titles like Escaflowne, Overlord, and Fushigi Yugi.
----------
-
-# 10 Western Shows Without a Single Flaw
-
-TV, Westerns, Gunsmoke, Justified, 1883
-
-Fri, 17 Jul 2026 04:07:14 GMT
-
-https://collider.com/western-shows-without-flaws-ranked/
-
-There are precious few Western shows that we can confidently say have absolutely no flaws, from Gunsmoke and Justified to Taylor Sheridan's 1883.
----------
-
-# Netflix's Shocking 92-Minute Cringe Thriller is a Perfect Late Night Watch
-
-Movie Features, Thriller, Netflix, Influencer, Psychological Thriller
-
-Fri, 17 Jul 2026 04:05:15 GMT
-
-https://collider.com/netflix-thriller-influencer-perfect-cringe-watch/
-
-Netflix's thriller, Influencer, directed by Kurtis David Harder, captures the dark twist on one social media star's peaceful getaway.
----------
-
-# 'Alien's Ripley Is Great, but This Survival Horror Game Character Does It Better
-
-TV Features, Alien, Alien: Isolation, Alien: Isolation - The Series
-
-Fri, 17 Jul 2026 03:04:15 GMT
-
-https://collider.com/alien-isolation-survival-horror-video-game-ripley/
-
-Alien: Isolation is the perfect basis for the next Alien franchise installment on television, featuring a strong heroine in Amanda Ripley.
----------
-
-# Disaster Movies Learned the Wrong Lesson From 'Independence Day'
-
-Movie, Independence Day, Roland Emmerich, Will Smith, Science Fiction
-
-Fri, 17 Jul 2026 03:03:15 GMT
-
-https://collider.com/roland-emmerich-independence-day-analysis/
-
-The 1996 hit film spawned a bad trend in disaster movies.
----------
-
-# The Lord of the Rings' Biggest Issue Finally Addressed by Andy Serkis Ahead of 'The Hunt for Gollum'
-
-Movie News, Andy Serkis, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings, Peter Jackson
-
-Fri, 17 Jul 2026 02:00:25 GMT
-
-https://collider.com/lord-of-the-rings-hunt-for-gollum-diversity-response-andy-serkis/
-
-Director and star Andy Serkis addresses criticism over casting choices in The Lord of the Rings: The Hunt for Gollum.
----------
-
-# HBO Quietly Brings Back One of ‘Game of Thrones’ Most Iconic Locations
-
-TV Features, Game Of Thrones, House of the Dragon, HBO, HBO Max
-
-Fri, 17 Jul 2026 01:36:15 GMT
-
-https://collider.com/house-of-the-dragon-season-3-episode-4-eyrie-moon-door-game-of-thrones/
-
-House of the Dragon Season 3 pays homage to Game of Thrones with a recreated iconic location that adds tension to an already tense scene.
----------
-
-# Guy Ritchie's 10/10 Crime Thriller Beats Taylor Sheridan at His Own Game
-
-TV News, Guy Ritchie, MobLand, Paramount Plus, Thriller
-
-Fri, 17 Jul 2026 01:30:15 GMT
-
-https://collider.com/guy-ritchie-mobland-streaming-success-paramount-plus-july-2026/
-
-Ahead of a new season, Guy Ritchie's first Paramount+ crime thriller is becoming a hit on streaming again. Get all the details here.
----------
-
-# Prime Video’s ‘God of War’ Series Suffers Major Setback
-
-TV News, God of War, Prime Video, Ryan Hurst
-
-Fri, 17 Jul 2026 01:02:42 GMT
-
-https://collider.com/god-of-war-series-delayed-2027-ryan-hurst-injured/
-
-Prime Video’s God of War series reportedly delayed to 2027 after Ryan Hurst suffers on-set injury.
----------
-
-# Titus Welliver Officially Replaces 'Bosch' With Van Helsing in New Vampire Horror Release
-
-Movie News, Abraham's Boys, Titus Welliver, Bosch, Horror
-
-Fri, 17 Jul 2026 01:00:15 GMT
-
-https://collider.com/titus-welliver-bosch-follow-up-abrahams-boys-blu-ray-release/
-
-Titus Welliver's first Bosch follow-up movie, Abraham's Boys, is getting a release from Shudder. Read on for more.
----------
-
-# 9 Intense Netflix Crime Thrillers I'm Shocked No One Is Talking About
-
-TV Lists, Thriller, Netflix
-
-Fri, 17 Jul 2026 02:00:22 GMT
-
-https://movieweb.com/netflix-intense-crime-thrillers-binge-worthy/
-
-Netflix has released some of the most popular TV crime thrillers of the past few years, but these are the most underrated.
----------
-
-# Brandon Sanderson Reveals He Is Still Changing Genre In 2028
-
-Books, Brandon Sanderson
-
-Fri, 17 Jul 2026 00:57:18 GMT
-
-https://screenrant.com/brandon-sanderson-mistborn-books-genre-2028/
-
-During the Mistborn 20th anniversary stream, Brandon Sanderson confirmed the current direction of the series, including the upcoming genre change.
----------
-
-# All 12 Seasons Of Curb Your Enthusiasm, Ranked
-
-Classic TV, Curb Your Enthusiasm
-
-Fri, 17 Jul 2026 00:45:12 GMT
-
-https://screenrant.com/curb-your-enthusiasm-12-seasons-ranked/
-
-Curb Your Enthusiasm has ended its run after 12 hilarious seasons, and some seasons of the Larry David sitcom were stronger than others.
----------
-
-# Star Trek: Strange New Worlds Showrunner Reveals Whether A Pike TOS Story Will Be Revisited
-
-TV, Star Trek: Strange New Worlds, Star Trek: The Original Series
-
-Fri, 17 Jul 2026 00:24:11 GMT
-
-https://screenrant.com/star-trek-strange-new-worlds-pike-tos-story-revisited/
-
-Star Trek: Strange New Worlds' Henry Alonso Myers addressed whether the series will revisit the events of The Original Series episode "The Cage."
----------
-
-# Criminal Minds Has Ruined The BAU
-
-Network TV, Criminal Minds
-
-Fri, 17 Jul 2026 00:15:11 GMT
-
-https://screenrant.com/criminal-minds-has-ruined-the-bau/
-
-Criminal Minds: Evolution showcases the BAU's struggles and inefficiencies in solving complex cases, raising questions about the team's effectiveness.
----------
-
-# Brandon Sanderson Addresses Mistborn Spinoff’s Adaptation Chances At Apple TV
-
-Movies, Mistborn, Brandon Sanderson
-
-Fri, 17 Jul 2026 00:11:34 GMT
-
-https://screenrant.com/mistborn-secret-history-movie-adaptation-chances-brandon-sanderson/
-
-Brandon Sanderson offers fans another update regarding his popular Mistborn series, this time the author reveals the chances of a potential spinoff.
----------
-
-# Marvel Studios Subtly Remakes The Best Hulk Movie
-
-Streaming TV, Masked Recs
-
-Fri, 17 Jul 2026 00:02:22 GMT
-
-https://screenrant.com/marvel-studios-subtly-remakes-the-best-hulk-movie/
-
-Marvel has just come up with the perfect way to remake the best and most underrated Hulk movie to date, and it is already out on Disney+.
 ---------
