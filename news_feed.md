@@ -1,3 +1,102 @@
+# Fallout 5 Official Release Date Update Confirms We're In For A Wait
+
+Gaming, Fallout 5, Triple-A Games
+
+Sat, 18 Jul 2026 04:45:11 GMT
+
+https://screenrant.com/fallout-5-release-date-update-official/
+
+Although confirmation of Fallout 5 is nice, the actual details that Bethesda provided shows that we might be in for a longer wait than expected.
+---------
+
+# Stardew Valley Meets Resident Evil In This New Farming Horror Game
+
+Gaming, Steam, Stardew Valley, Indie
+
+Sat, 18 Jul 2026 04:30:12 GMT
+
+https://screenrant.com/stardew-valley-resident-evil-crop-game/
+
+The latest game to take what is beloved about Stardew Valley and stew it in a much darker atmosphere has players combatting rot instead of monsters.
+---------
+
+# Dragon Ball Xenoverse 2 Is 100% Free For 24 Hours
+
+Gaming, Dragon Ball, Dragon Ball Xenoverse 2, PC, Triple-A Games
+
+Sat, 18 Jul 2026 04:15:12 GMT
+
+https://screenrant.com/dragon-ball-xenoverse-2-free-24-hours/
+
+One of the best adaptations of Akira Toriyama’s series, Dragon Ball Xenoverse 2, is 100% free for all players to grab, but you need to move fast.
+---------
+
+# Steam Just Dropped 2026's GOTY, And It's Completely Free
+
+Gaming, Steam
+
+Sat, 18 Jul 2026 04:00:13 GMT
+
+https://screenrant.com/steam-free-2026-goty-take-care-of-dog/
+
+Discover the unsettling world of 'Take Care of the Dog', a highly-rated psychological horror game now available for free on Steam.
+---------
+
+# 5 Years Later, Netflix's The Boys Replacement Is Marvel's Best Superhero Series No One Talks About
+
+Anime, Netflix, The Boys, Masked Recs
+
+Sat, 18 Jul 2026 03:59:12 GMT
+
+https://screenrant.com/netflix-super-crooks-the-boys-replacement/
+
+This unusual Netflix series from 2021 has practically everything fans of The Boys could want, minus much of the baggage weighing it down in the end.
+---------
+
+# How The Odyssey Changed Jon Bernthal’s Approach To Acting
+
+CBR Exclusives, The Odyssey
+
+Sat, 18 Jul 2026 04:04:23 GMT
+
+https://www.cbr.com/the-odyssey-changed-jon-bernthal-approach-to-acting/
+
+Jon Bernthal discusses playing King Menelaus, drawing on his theater training, and working at Christopher Nolan’s epic scale.
+---------
+
+# Gundam Wing 30th Anniversary Heero Yuy Military-Style Jacket Gets U.S. Release
+
+Anime, Mobile Suit Gundam Wing, Mobile Suit Gundam, merchandise, Clothing, bandai
+
+Sat, 18 Jul 2026 03:59:15 GMT
+
+https://www.cbr.com/gundam-wing-heero-yuy-military-jacket-america-bandai-release/
+
+A popular STRICT-G hoodie based on Gundam Wing is being re-released, but stylish anime fans might have to hunt for the hoodie fit for Heero Yuy.
+---------
+
+# 10 High Fantasy Books That Are Perfectly Written
+
+Books and Comics, Books, Fantasy, Game Of Thrones, The Neverending Story
+
+Sat, 18 Jul 2026 04:08:15 GMT
+
+https://collider.com/high-fantasy-books-perfectly-written/
+
+From The Hobbit to Oathbringer, these high fantasy books have the best writing in the genre, to the point where they can truly be considered perfect.
+---------
+
+# This 'Off Campus' Meets 'Fourth Wing' Fantasy Book Is Begging for a TV Adaptation
+
+TV Features, Books, Off Campus, Fourth Wing, Fantasy
+
+Sat, 18 Jul 2026 04:02:16 GMT
+
+https://collider.com/the-winged-game-off-campus-meets-fourth-wing-fantasy-tv-adaptation/
+
+Sophie Kim's The Winged Game is the perfect fantasy sports romance for a TV adaptation, with elements of Off Campus, Heated Rivalry, and Fourth Wing.
+---------
+
 # 5 Star Trek Episodes That Predicted The Future
 
 Star Trek
@@ -5397,103 +5496,4 @@ Thu, 16 Jul 2026 18:43:47 GMT
 https://screenrant.com/chloe-fineman-saturday-night-live-exit-netflix-harlan-coban-myron-bolitar-cast/
 
 A Saturday Night Live cast member who starred in seven seasons is officially leaving the show for Netflix's new Harlan Coben franchise.
----------
-
-# The Wolf Of Wall Street Returns In Paramount+'s New 3-Part Series
-
-Streaming TV, Masked Recs
-
-Thu, 16 Jul 2026 18:42:11 GMT
-
-https://screenrant.com/paramount-plus-the-real-wolf-of-wall-street-series-watch/
-
-Jordan Belfort, best known as The Wolf of Wall Street, is officially back in a brand new 3-part docuseries now streaming exclusively on Paramount+.
----------
-
-# Children Of Blood & Bone’s First Images Reveal Paramount’s Sweeping New Fantasy Epic Adaptation
-
-Movies, Children of Blood and Bone
-
-Thu, 16 Jul 2026 18:33:41 GMT
-
-https://screenrant.com/children-of-blood-and-bone-movie-first-images/
-
-Paramount has released new images from Children of Blood and Bone, revealing a first look at the sweeping new adaptation of a fantasy epic.
----------
-
-# Song Kang's First Post-Military K-Drama Is Officially Coming To Netflix
-
-Streaming TV, K-Drama
-
-Thu, 16 Jul 2026 18:32:09 GMT
-
-https://screenrant.com/song-kang-comeback-netflix-k-drama-2026/
-
-Song Kang's absence has been palpably felt the past few years, but his highly-anticipated comeback K-drama will stream on Netflix incredibly soon.
----------
-
-# The Walking Dead Meets Lost In Steven Spielberg's 13-Part Sci-Fi Series
-
-Classic TV, Masked Recs
-
-Thu, 16 Jul 2026 18:30:12 GMT
-
-https://screenrant.com/terra-nova-the-walking-dead-lost-steven-spielberg/
-
-Steven Spielberg was the EP for a 13-episode science fiction TV show that is part The Walking Dead and part Lost, and it deserved another season.
----------
-
-# Black Mirror Meets Stranger Things In Netflix’s 7-Part Sci-Fi Series
-
-Classic TV, Masked Recs
-
-Thu, 16 Jul 2026 18:30:12 GMT
-
-https://screenrant.com/joko-anwars-nightmares-daydreams-netflix-anthology-sci-fi/
-
-One of Netflix’s best yet underrated anthology series is the perfect combination of elements reminiscent of Black Mirror and Stranger Things.
----------
-
-# Marvel's New X-Men Costumes Are Wildly More Comics-Accurate Than Even Fox's Best Suits
-
-Movies, X-Men, Marvel Cinematic Universe, Avengers: Doomsday
-
-Thu, 16 Jul 2026 18:30:12 GMT
-
-https://screenrant.com/avengers-doomsday-xmen-costumes-comics-accurate-fox-era/
-
-Marvel may finally give the X-Men the comic-accurate costumes fans have wanted, surpassing even Fox's best attempts at adapting the iconic designs.
----------
-
-# What We Do in the Shadows’ Spiritual Successor Arrives in Just Three Months
-
-Comics, Masked Recs
-
-Thu, 16 Jul 2026 18:29:06 GMT
-
-https://screenrant.com/what-we-do-in-the-shadows-dinner-date-series-details/
-
-Fans should have a new series on their radar that could be WWDITS' true spiritual successor, putting a fresh spin on vampires through modern dating.
----------
-
-# 15 Best Romance Movies Like People We Meet On Vacation
-
-Movies, People We Meet on Vacation
-
-Thu, 16 Jul 2026 18:12:11 GMT
-
-https://screenrant.com/best-movies-like-people-we-meet-on-vacation/
-
-Based on Emily Henry's bestselling novel, People We Meet On Vacation is an instant classic— but the Netflix rom-com isn't in a league of its own.
----------
-
-# The Odyssey Officially Marks The Start Of An Era For Christopher Nolan
-
-Movies, The Odyssey
-
-Thu, 16 Jul 2026 18:04:27 GMT
-
-https://screenrant.com/christopher-nolan-the-odyssey-fantasy-epic-first/
-
-Christopher Nolan's The Odyssey has already proven to be a record-breaker for the director, and the fantasy epic starts a new era for the auteur.
 ---------
