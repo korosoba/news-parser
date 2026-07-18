@@ -1,3 +1,256 @@
+# 8 Best Vincent Price Movies No One Ever Talks About
+
+Movies, Horror, Vincent Price
+
+Sat, 18 Jul 2026 12:55:11 GMT
+
+https://screenrant.com/vincent-price-movies-best-no-one-talks-about/
+
+Vincent Price starred in far more than a few horror classics. These overlooked gems showcase the legendary actor at his most entertaining.
+---------
+
+# 5 Brilliant Far Side Comics Starring Albert Einstein
+
+Comics, The Far Side
+
+Sat, 18 Jul 2026 12:35:11 GMT
+
+https://screenrant.com/far-side-einstein-cameos-funniest-cartoons/
+
+The famous scientist's best Far Side cameos.
+---------
+
+# MCU's Original Vulture Casting Would Have Killed Tom Holland's Spider-Man Series Before It Began
+
+Movies, Spider-Man: Homecoming, Spider-Man, Marvel Cinematic Universe, Lin-Manuel Miranda
+
+Sat, 18 Jul 2026 12:30:11 GMT
+
+https://screenrant.com/mcu-spider-man-homecoming-vulture-original-casting-ruin-series/
+
+Spider-Man: Homecoming nearly cast Lin-Manuel Miranda as Vulture instead of Michael Keaton, and it would have been awful for the MCU's best series.
+---------
+
+# Hogwarts Legacy Fans, Mark Your Calendars For September 1
+
+Gaming, Hogwarts Legacy
+
+Sat, 18 Jul 2026 12:30:11 GMT
+
+https://screenrant.com/hogwarts-legacy-september-2026-back-to-hogwarts/
+
+Fans are speculating that Hogwarts Legacy 2 may be announced on September 1, traditionally 'Back to Hogwarts Day.'
+---------
+
+# All 14 Spider-Man TV Series, Ranked
+
+Superheroes, Spider-Man, Marvel Cinematic Universe, Spider-Man: The Animated Series, Your Friendly Neighborhood Spider-Man, Spider-Noir, The Spectacular Spider-Man, The Amazing Spider-Man
+
+Sat, 18 Jul 2026 12:30:11 GMT
+
+https://screenrant.com/every-spiderman-tv-show-ranked/
+
+From the iconic 1994 Spider-Man: TAS, to Spider-Noir and Japanese Spider-Man, Spider-Man’s television history has had its highs and lows.
+---------
+
+# Star Trek: Strange New Worlds Season 4 Will Be The End Of An Era
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Sat, 18 Jul 2026 12:00:12 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-last-10-episodes/
+
+Star Trek: Strange New Worlds season 4 isn't the final season, but it does mark a specific end for the prequel as it makes a big change in season 5.
+---------
+
+# Crunchyroll Just Dropped 2026's Cutest Anime
+
+Anime, Crunchyroll, Masked Recs
+
+Sat, 18 Jul 2026 12:00:12 GMT
+
+https://screenrant.com/crunchyroll-cat-dragon-2026-custest-anime/
+
+Looking for a cute and wholesome anime to pass the time? Crunchyroll has you covered, with this new anime that is the most adorable series of 2026.
+---------
+
+# The Witcher: No Man's Land Officially Arrives This Year
+
+Gaming, The Witcher
+
+Sat, 18 Jul 2026 12:00:12 GMT
+
+https://screenrant.com/witcher-no-mans-land-fall-2026/
+
+Discover the highly anticipated The Witcher: No Man's Land skirmish wargame, set to launch this Fall 2026.
+---------
+
+# 10 Greatest 1970s Horror Movies Nobody Talks About
+
+Movies, Horror, Demons of the Mind, Death Line, The Creeping Flesh, Frankenstein and the Monster from Hell, Vampyres, Frightmare, Full Circle, Prey, The Shout
+
+Sat, 18 Jul 2026 12:00:12 GMT
+
+https://screenrant.com/best-1970s-horror-movies-nobody-talks-about/
+
+The 1970s produced more than just horror classics. These overlooked gems delivered chilling scares, strange ideas, and unforgettable atmosphere.
+---------
+
+# 3 Hard Fantasy Shows That Are Required Viewing
+
+TV, House of the Dragon, Fantasy, Game Of Thrones, His Dark Materials
+
+Sat, 18 Jul 2026 12:30:15 GMT
+
+https://www.cbr.com/essential-hard-fantasy-shows-list/
+
+While there are many excellent hard fantasy shows on TV, only a few are essential viewing for genre fans.
+---------
+
+# Absolute Batman Confirmed To Change Drastically With Midpoint Issue
+
+Comics, Absolute Batman, Batman
+
+Sat, 18 Jul 2026 12:00:16 GMT
+
+https://www.cbr.com/absolute-batman-midpoint-change-confirmed/
+
+Scott Snyder drops another update about Absolute Batman's future.
+---------
+
+# Confirmed: The Best 2010 Cartoon Network Show Gets  New Spinoff
+
+Comics, Ben 10, Cartoon Network
+
+Sat, 18 Jul 2026 12:00:16 GMT
+
+https://www.cbr.com/ben-10-creator-files-october-release-confirmed/
+
+One of Cartoon Network's longest-running and most successful franchises is making a surprising new return, sooner than expected.
+---------
+
+# Over 40 Years Later, Horror Still Hasn’t Topped This Movie's Perfect Ending
+
+Horror, The Thing, John Carpenter, John Carpenter's The Thing
+
+Sat, 18 Jul 2026 12:46:15 GMT
+
+https://collider.com/john-carpenter-the-thing-horror-best-ending/
+
+More than 40 years later, The Thing still has the greatest ending in horror history.
+---------
+
+# Forget 'Bosch,' Billy Bob Thornton's 4-Part Crime Hit Is Taking Over Prime Video
+
+TV News, Goliath, Bosch, Billy Bob Thornton, Prime Video
+
+Sat, 18 Jul 2026 12:45:15 GMT
+
+https://collider.com/billy-bob-thornton-goliath-streaming-success-prime-video-july-2026/
+
+Bosch fans are discovering a new favorite show in Goliath, the Billy Bob Thornton-led drama streaming on Prime Video.
+---------
+
+# 'Maximum Pleasure Guaranteed's Finale Was Always Going To End With That Huge Twist
+
+TV, Maximum Pleasure Guaranteed, Apple TV, Thriller, David Gordon Green
+
+Sat, 18 Jul 2026 12:41:15 GMT
+
+https://collider.com/maximum-pleasure-guaranteed-finale-david-gordon-green-david-rosen-interview/
+
+Maximum Pleasure Guaranteed's David Rosen and David Gordon Green break down the show's world and Paula's journey that led to that twisted finale.
+---------
+
+# Say Goodbye to the $129 Million Adventure Flop on Paramount+
+
+Movie News, Sahara, Matthew McConaughey, Indiana Jones, Paramount Plus
+
+Sat, 18 Jul 2026 12:30:15 GMT
+
+https://collider.com/matthew-mcconaughey-sahara-leaving-paramount-plus-august-2026/
+
+The infamous box-office misfire Sahara, starring Matthew McConaughey, is about to be removed from Paramount+. Find out more.
+---------
+
+# 7 Most Perfect Superhero Movies Released Since 2000
+
+Movie, The Dark Knight, Logan, The Incredibles, Superhero
+
+Sat, 18 Jul 2026 12:20:15 GMT
+
+https://collider.com/most-perfect-superhero-movies-since-2000-ranked/
+
+The Dark Knight, Spider-Man: Into the Spider-Verse, and The Incredibles are all among the best, most perfect superhero movies released since 2000.
+---------
+
+# 10 Funniest Shows of the 2000s
+
+TV, It's Always Sunny in Philadelphia, Community
+
+Sat, 18 Jul 2026 12:17:14 GMT
+
+https://collider.com/funniest-tv-shows-2000s-ranked/
+
+It's Always Sunny in Philadelphia, The Office, and Curb Your Enthusiasm are all among the funniest TV comedy shows of the 2000s.
+---------
+
+# 10 Video Games With the Best Character Development
+
+Gaming, Video Game, Life is Strange, Disco Elysium, Mass Effect
+
+Sat, 18 Jul 2026 12:14:15 GMT
+
+https://collider.com/video-games-best-character-development/
+
+The Last of Us, Disco Elysium, and God of War are all among the greatest video games with outstanding, emotionally engaging character development.
+---------
+
+# Homer’s Best Quote Perfectly Explains Why ‘The Simpsons’ Is an All-Time Great
+
+TV Features, The Simpsons, FOX TV, Animation, Sitcom
+
+Sat, 18 Jul 2026 12:03:15 GMT
+
+https://collider.com/homers-best-line-is-the-perfect-quote-to-define-the-simpsons/
+
+Homer's iconic quote in The Simpsons' Season 7's "Team Homer" episode perfectly captures the show's one constant that makes it so good.
+---------
+
+# 10 Bleakest Dystopias in Book History
+
+Books and Comics, Books, The Handmaid's Tale, A Clockwork Orange, The Stand
+
+Sat, 18 Jul 2026 12:02:15 GMT
+
+https://collider.com/bleakest-dystopias-books-ranked/
+
+From the violence of A Clockwork Orange to the mind-invading tyranny of Nineteen Eighty-Four, these are the bleakest and grimiest dystopias in books.
+---------
+
+# Stephen King's 2025 Sci-Fi Thriller Continues Its Unstoppable Reign on Paramount+
+
+Movie News, The Running Man, Stephen King, Glen Powell, Paramount Plus
+
+Sat, 18 Jul 2026 12:00:15 GMT
+
+https://collider.com/stephen-king-the-running-man-streaming-success-paramount-plus-july-2026/
+
+The Running Man, the $100 million sci-fi thriller inspired by the famous Stephen King novel, has become one of the biggest streaming hits of 2026.
+---------
+
+# Sylvester Stallone's Forgotten 110-Minute Action Thriller Returns To Streaming
+
+Movie News, Sylvester Stallone, The Specialist, Coming/Leaving Streaming, Action
+
+Sat, 18 Jul 2026 12:00:12 GMT
+
+https://movieweb.com/sylvester-stallone-the-specialist-action-streaming-tubi-august-2026/
+
+Ahead of the release of 'I Play Rocky,' one of Sylvester Stallone's forgotten '90s action thrillers is returning to streaming next month.
+---------
+
 # Red Dead Redemption 2 Players Can Now Explore Mexico Without Any Mods
 
 Gaming, Red Dead Redemption
@@ -5243,257 +5496,4 @@ Thu, 16 Jul 2026 21:21:05 GMT
 https://screenrant.com/i-will-find-you-show-netflix-billion-minutes-viewed/
 
 Netflix's new crime thriller series has become a global streaming sensation, amassing 1.8 billion minutes despite a divisive reception.
----------
-
-# Fallout Season 3 Set Images Seemingly Reveal Fan-Favorite Game Character's Introduction
-
-TV, Fallout
-
-Thu, 16 Jul 2026 21:16:51 GMT
-
-https://screenrant.com/fallout-season-3-set-images-joshua-graham-tease/
-
-New set images of Fallout season 3 has revealed that a fan-favorite character might appear in the upcoming installment of the Prime Video adaptation.
----------
-
-# Guillermo Del Toro's 150-Minute Horror Movie Is Getting A Rare New Release With Unseen Footage
-
-Movies, Horror, Frankenstein
-
-Thu, 16 Jul 2026 21:05:50 GMT
-
-https://screenrant.com/guillermo-del-toro-frankenstein-criterion-4k-release-extended-cut-october-2026/
-
-Oscar winner Guillermo del Toro's latest horror movie is getting a new release with a special expanded addition that features additional footage.
----------
-
-# Marvel’s Wolverine Reveals Iconic Villain In New Trailer
-
-Gaming, Marvel's Wolverine, Triple-A Games
-
-Thu, 16 Jul 2026 21:00:38 GMT
-
-https://screenrant.com/marvels-wolverine-trailer-lady-deathstrike/
-
-A new story trailer for Marvel's Wolverine throws yet another villain into the mix, and this nemesis could make for the perfect match-up.
----------
-
-# Friends Is Much Harder To Watch Once You Notice This
-
-Classic TV, Friends
-
-Thu, 16 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/friends-worst-aged-moment-harder-to-watch/
-
-Friends is still one of the best and most influential sitcoms of all time, but rewatching it now is a lot harder once you notice a huge problem.
----------
-
-# Dark Souls Meets Assassin’s Creed Shadows In New Free PlayStation Plus RPG
-
-Gaming, PlayStation, PlayStation Plus, Dark Souls, PlayStation 5
-
-Thu, 16 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/dark-souls-meets-assassins-creed-shadows-new-ps-plus-free-game/
-
-This action-packed adventure blends the best of Assassin's Creed and Dark Souls, all available for free to PlayStation Plus subscribers.
----------
-
-# Netflix's Best Yellowstone Replacement Returns Next Week
-
-Streaming TV, Masked Recs
-
-Thu, 16 Jul 2026 20:54:11 GMT
-
-https://screenrant.com/netflix-ransom-canyon-season-2-yellowstone-replacement/
-
-Netflix subscribers are just days away from diving into the streamer's best Yellowstone replacement series when Ransom Canyon returns for season 2.
----------
-
-# Alan Ritchson’s New Sci-Fi Thriller Officially Becomes Netflix’s #1 Movie This Year
-
-Movies, War Machine, Alan Ritchson
-
-Thu, 16 Jul 2026 20:32:35 GMT
-
-https://screenrant.com/alan-ritchson-war-machine-netflix-most-watched-movie-first-half-2026/
-
-Netflix has announced that the Alan Ritchson-led sci-fi thriller War Machine is the #1 most-viewed movie on the streaming platform in 2026.
----------
-
-# Jensen Ackles' Upcoming Superhero Show Will Make The Boys Look Tame
-
-Streaming TV, Masked Recs
-
-Thu, 16 Jul 2026 20:30:11 GMT
-
-https://screenrant.com/jensen-ackles-vought-rising-darker-than-the-boys/
-
-Soldier Boy may have embodied the violent superhedonism of Supes in The Boys, but Jensen Ackles' return will escalate the brutality to new heights.
----------
-
-# My Little Pony Collector Set Revealed For San Diego Comic-Con 2026
-
-Exclusive, My Little Pony, Hasbro, San Diego Comic-Con
-
-Thu, 16 Jul 2026 20:28:04 GMT
-
-https://screenrant.com/my-little-pony-collector-set-hasbro-sdcc-2026/
-
-ScreenRant has the exclusive first look at Hasbro's My Little Pony Kayou Friendship in the Cards for San Diego Comic-Con 2026.
----------
-
-# Taylor Sheridan's Most Hated Landman Character Has Finally Been Replaced
-
-TV, Dutton Ranch, Yellowstone, Landman
-
-Thu, 16 Jul 2026 21:25:23 GMT
-
-https://www.cbr.com/yellowstone-dutton-ranch-azul-redeem-jr-villarreal-landman-character/
-
-The most unlikable character in Billy Bob Thornton's Landman drama on Paramount+ has officially been reborn in Taylor Sheridan's television universe.
----------
-
-# Nintendo Is Officially Replacing the Mario Movies With the Legend of Zelda
-
-Movies, The Legend of Zelda, Nintendo, Mario
-
-Thu, 16 Jul 2026 21:16:15 GMT
-
-https://www.cbr.com/legend-of-zelda-replaces-mario-nintendo-movies/
-
-Mario may be Nintendo's box office golden goose, but 2027 will see the very important rise of another Nintendo hero on the big screen.
----------
-
-# Every Fallout Game, Officially Ranked
-
-Games, Fallout, Role Playing Game, Video Games
-
-Thu, 16 Jul 2026 21:15:15 GMT
-
-https://www.cbr.com/official-best-fallout-games-ever-ranked/
-
-Fallout is one of the premier RPG franchises in the gaming world, but not all of its titles are equally great.
----------
-
-# Stephen King’s Horror Classic Officially Unveils 3 Twisted Tales Ahead of August Release
-
-Games, Creepshow
-
-Thu, 16 Jul 2026 21:10:15 GMT
-
-https://www.cbr.com/stephen-king-creepshow-game-official-new-release-this-august/
-
-Fans can now check out exactly what kind of horror stories they can look forward to when Creepshow arrives, and it is scary good looking.
----------
-
-# Paramount Reveals First Look at Hit Fantasy Book Adaptation Condemned by Author
-
-Movies, Children of Blood and Bone
-
-Thu, 16 Jul 2026 21:08:26 GMT
-
-https://www.cbr.com/paramount-children-of-blood-and-bone-first-look/
-
-The first official look at the fantasy adaptation is unveiled shortly after the project was condemned by the author.
----------
-
-# 5 Strongest Weapons in Sci-Fi Movie History, Ranked
-
-Movies, Sci-Fi, Star Trek II: The Wrath of Khan, Star Trek, Ender's Game, Star Wars, Avengers: Infinity War
-
-Thu, 16 Jul 2026 21:01:15 GMT
-
-https://www.cbr.com/strongest-sci-fi-movie-weapons-ranked-list/
-
-Some of the most memorable sci-fi movie villains have harnessed the power of cinema's most shocking, unique, and powerful weapons.
----------
-
-# 36 Years Later, Picard’s Greatest Star Trek Line Is Still the Scariest Quote in Sci-Fi History
-
-TV, Star Trek, Star Trek: The Next Generation, Sci-Fi
-
-Thu, 16 Jul 2026 20:30:15 GMT
-
-https://www.cbr.com/star-trek-tng-yesterdays-enterprise-picard-scariest-line/
-
-After a shaky start, Star Trek: The Next Generation Season 3 saved the series with an episode that was both dark and hopeful.
----------
-
-# The 5 Best Mortal Kombat Movie Fights, Ranked
-
-Movies, Mortal Kombat, Mortal Kombat II
-
-Thu, 16 Jul 2026 20:30:15 GMT
-
-https://www.cbr.com/mortal-kombat-best-movie-fights-list/
-
-From the 1995 classic to the recently-released Mortal Kombat II, these are the greatest action scenes of Mortal Kombat's live-action film adaptations.
----------
-
-# Disney+ Is Officially Rebooting an Iconic 71-Year-Old Kids' Series
-
-TV, The Mickey Mouse Club, Disney+
-
-Thu, 16 Jul 2026 20:18:34 GMT
-
-https://www.cbr.com/mickey-mouse-club-reboot-disney-plus/
-
-Disney+ is bringing this series to a new generation.
----------
-
-# 5 Anime Swordsmen Stronger Than Dracule Mihawk
-
-Anime, One Piece, Berserk, Dragon Ball
-
-Thu, 16 Jul 2026 20:15:15 GMT
-
-https://www.cbr.com/anime-swordsmen-stronger-than-mihawk-one-piece/
-
-Dracule Mihawk represents One Piece as the ultimate swordsman, but outside One Piece, the competition for strongest swordsman is pretty fierce.
----------
-
-# Netflix Just Added One of TV's Best Spy Thrillers to Its 2026 Roster
-
-TV Features, Killing Eve, Netflix, Jodie Comer, Sandra Oh
-
-Thu, 16 Jul 2026 21:27:15 GMT
-
-https://collider.com/killing-eve-netflix-spy-thriller-streaming/
-
-Killing Eve, the critically acclaimed spy thriller starring Sandra Oh and Jodie Comer, just dropped the entire four seasons on Netflix.
----------
-
-# 18 Years Later, These Are the 10 Best Movies of 2008
-
-Movie, WALL-E, The Dark Knight, Step Brothers, Synecdoche, New York
-
-Thu, 16 Jul 2026 21:19:15 GMT
-
-https://collider.com/best-movies-2008/
-
-21st century classics like The Dark Knight, Rachel Getting Married, and The Wrestler are all among the very best movies released in 2008.
----------
-
-# As a Casual Fan, Here's How I'd Rank All 7 Harry Potter Books
-
-Books and Comics, Harry Potter, Harry Potter and the Sorcerer's Stone, Harry Potter and the Chamber of Secrets, Harry Potter and the Prisoner of Azkaban
-
-Thu, 16 Jul 2026 21:09:15 GMT
-
-https://collider.com/harry-potter-books-ranked-by-a-casual-fan/
-
-From The Philosopher's Stone to The Deathly Hallows, this is a ranking of every Harry Potter book from a casual fan of J.K Rowling's Wizarding World.
----------
-
-# 7 of Spider-Man's Biggest Transformations in the Marvel Comic Books
-
-Movie Features, Spider-Man: Brand New Day, Comics, Spider-Man
-
-Thu, 16 Jul 2026 20:58:15 GMT
-
-https://collider.com/evolution-of-spider-man-brand-new-day-changes-marvel-comics/
-
-The evolution of Spider-Man took shocking twists and turns before Spider-Man: Brand New Day.
 ---------
