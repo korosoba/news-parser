@@ -1,3 +1,333 @@
+# 5 Best Performances In The Odyssey, Ranked
+
+Movies, The Odyssey
+
+Sat, 18 Jul 2026 14:15:12 GMT
+
+https://screenrant.com/best-the-odyssey-performances/
+
+Christopher Nolan's The Odyssey bolsters an all-star cast delivering superb performances, but there are few that stand out above the rest.
+---------
+
+# Christopher Nolan & Matt Damon Explain The Deeper Meaning Behind Athena's Reveal In The Odyssey Ending
+
+Movies, The Odyssey
+
+Sat, 18 Jul 2026 14:00:28 GMT
+
+https://screenrant.com/the-odyssey-ending-troy-sacking-athena-reveal-explained-christopher-nolan/
+
+The Odyssey means more than people first thought, as Christopher Nolan and Matt Damon reveal the true and deeper meaning behind Athena's reveal.
+---------
+
+# Heated Rivalry's Timeline Explained (& What To Expect With Season 2)
+
+Streaming TV, Heated Rivalry, Explainer
+
+Sat, 18 Jul 2026 14:00:13 GMT
+
+https://screenrant.com/heated-rivalry-show-timeline-explained/
+
+Hockey romance Heated Rivalry has taken the world by storm, but the page-to-screen adaptation has a complicated timeline that differs from the source.
+---------
+
+# The Wait Is Over: Fourth Wing's New Release Is Out On Amazon Now
+
+Books, Fourth Wing (2023), The Empyrean Series
+
+Sat, 18 Jul 2026 14:00:11 GMT
+
+https://screenrant.com/fourth-wing-new-game-next-major-release/
+
+Fourth Wing just released the next big installment in the franchise, titled Fourth Wing: Rise of the Wingleader. Here is everything you need to know.
+---------
+
+# Game Of Thrones Official Return Delayed To 2027, But Fans Don't Mind
+
+Gaming, Game of Thrones, Game of Thrones: War for Westeros
+
+Sat, 18 Jul 2026 14:00:11 GMT
+
+https://screenrant.com/game-of-thrones-war-for-westeros-2027-delay-fan-reactions/
+
+Game of Thrones War for Westeros, an upcoming real-time strategy game, has been delayed to 2027.
+---------
+
+# Keke Palmer's Upcoming Space Opera Is Star Wars Meets The Orville
+
+Movies, Masked Recs
+
+Sat, 18 Jul 2026 14:00:11 GMT
+
+https://screenrant.com/spaceballs-2-the-new-one-star-wars-meets-orville/
+
+Keke Palmer's upcoming space opera movie is Star Wars meets The Orville, and it already has plenty of hilariously promising potential.
+---------
+
+# Hannah Waddingham’s New Assassin Action Series Is An Instant #1 Hit For Prime Video
+
+TV, Masked Recs
+
+Sat, 18 Jul 2026 13:51:10 GMT
+
+https://screenrant.com/ride-or-die-prime-video-streaming-success-july-2026/
+
+Before the return of Ted Lasso, Hannah Waddingham is leading a different series, an assassin action show that is already a hit for Prime Video.
+---------
+
+# How Accurate Band Of Brothers' Head-Shaving Scene Is To Real History
+
+Classic TV, Band of Brothers
+
+Sat, 18 Jul 2026 13:30:11 GMT
+
+https://screenrant.com/band-of-brothers-head-shaving-scene-true-accurate/
+
+In Band of Brothers, episode 4, "Replacements", the men of Easy stumble upon a dramatic head-shaving punishment, but did it really happen?
+---------
+
+# Fallout 5 Official Release Date Update Comes At A Terrible Cost
+
+Gaming, Fallout
+
+Sat, 18 Jul 2026 13:30:11 GMT
+
+https://screenrant.com/fallout-5-official-release-date-update-cost/
+
+As Xbox undergoes major restructuring and layoffs, Bethesda focuses on developing Fallout 5.
+---------
+
+# Matt Damon Reveals How Ridley Scott Candidly Convinced Him To Star In The Martian
+
+Movies, The Martian
+
+Sat, 18 Jul 2026 13:29:18 GMT
+
+https://screenrant.com/matt-damon-the-martian-ridley-scott-convince/
+
+Matt Damon received widespread praise for his role in The Martian, but the actor reveals how Ridley Scott had to convince him to play the role.
+---------
+
+# 10 Most Overpowered Cursed Techniques in JJK
+
+Anime, Jujutsu Kaisen
+
+Sat, 18 Jul 2026 14:15:15 GMT
+
+https://www.cbr.com/jujutsu-kaisen-most-op-cursed-techniques/
+
+Jujutsu Kaisen's Cursed Techniques are generally impressive, but some of them are effortlessly superior
+---------
+
+# It's Official: The Elder Scrolls VI Is Finally Confirmed
+
+Games, The Elder Scrolls
+
+Sat, 18 Jul 2026 14:00:15 GMT
+
+https://www.cbr.com/elder-scrolls-6-officialy-confirmed/
+
+15 years after the release of Skyrim, Bethesda has officially confirmed The Elder Scrolls VI.
+---------
+
+# What We Do in the Shadows' Spiritual Comic Book Sequel, Dinner Date, Arrives in Just 3 Months
+
+Comics, What We Do in the Shadows
+
+Sat, 18 Jul 2026 14:00:15 GMT
+
+https://www.cbr.com/dinner-date-vampire-comic-spiritual-what-we-do-in-the-shadows-sequel/
+
+Here comes a bloody funny new comic book series perfect for What We Do in the Shadows fans.
+---------
+
+# Transformers Brings Back Optimus Prime, Hot Rod & More in Retro 1986 Designs
+
+Anime, Transformers, merchandise, toys, toys r us, hasbro
+
+Sat, 18 Jul 2026 14:00:15 GMT
+
+https://www.cbr.com/transformers-hasbro-china-toysrus-retro-bundles/
+
+Hasbro China is releasing numerous retro Transformers toy bundles, with one of these commemorating the franchise's first movie, 40 years later.
+---------
+
+# James Gunn's DCU Is Bringing Back Blue Beetle
+
+Movies, DCU, Man of Tomorrow, Blue Beetle
+
+Sat, 18 Jul 2026 14:00:15 GMT
+
+https://www.cbr.com/james-gunn-dcu-blue-beetle-return/
+
+A forgotten hero from the Snyderverse is returning in the new DCU, and it could finally give him the popularity he and his 2023 movie deserved.
+---------
+
+# The Uprising Trailer Reveals Andrew Garfield's Epic Braveheart Replacement
+
+Movies, The Uprising
+
+Sat, 18 Jul 2026 13:34:38 GMT
+
+https://www.cbr.com/andrew-garfield-the-uprising-trailer/
+
+Audiences just got their first glimpse at Andrew Garfield's upcoming historical epic, and the Peasant's Revolt has never looked more explosive.
+---------
+
+# Ray Romano's Favorite Everybody Loves Raymond Episode Is the Best 22 Minutes in Sitcom History
+
+TV, Everybody Loves Raymond, Sitcoms
+
+Sat, 18 Jul 2026 13:31:15 GMT
+
+https://www.cbr.com/ray-romano-favorite-everybody-loves-raymond-episode-talk-to-your-daughter/
+
+Legendary comedian Ray Romano names his favorite episode of Everybody Loves Raymond, and it's a perfect choice that illustrates the sitcom's legacy.
+---------
+
+# In 1 Month, Ridley Scott Returns to Sci-Fi with The Dog Stars
+
+Movies, The Dog Stars, ridley scott, Sci-Fi
+
+Sat, 18 Jul 2026 13:31:15 GMT
+
+https://www.cbr.com/ridley-scott-sci-fi-return-the-dog-stars-movie/
+
+Nearly nine years after his last sci-fi movie, one of the genre's best directors is set to return with a new book adaptation this summer.
+---------
+
+# 10 Must-Watch Anime Series That Don't Waste a Single Episode
+
+Anime
+
+Sat, 18 Jul 2026 13:15:15 GMT
+
+https://www.cbr.com/must-watch-anime-series-no-wasted-episodes/
+
+These ten anime are incredible from start to finish, and not a single episode is worth skipping.
+---------
+
+# Ben Affleck & Matt Damon's Lawsuit-Inducing Is Officially 1 of Netflix's Biggest Movies This Year
+
+Movies, The Rip, Netflix, Crime
+
+Sat, 18 Jul 2026 13:00:16 GMT
+
+https://www.cbr.com/the-rip-netflix-biggest-movies-2026/
+
+The movie that sparked a lawsuit is one of Netflix's biggest hits of the year.
+---------
+
+# Julianne Moore's 6 Best Movie Masterpieces, Ranked
+
+Movie, Julianne Moore, Boogie Nights, Far From Heaven, Magnolia
+
+Sat, 18 Jul 2026 14:04:15 GMT
+
+https://collider.com/best-julianne-moore-movie-masterpieces/
+
+From Children of Men, to Magnolia, to Far from Heaven, these Julianne Moore masterpieces reveal why she remains one of cinema’s finest actors.
+---------
+
+# Batman Officially Returns With a New 10-Part Release This Month
+
+TV News, Batman: Caped Crusader, The Batman Part II, Matt Reeves, J.J. Abrams
+
+Sat, 18 Jul 2026 14:00:15 GMT
+
+https://collider.com/batman-caped-crusader-season-2-release-date/
+
+The Dark Knight returns when Batman: Caped Crusader Season 2 releases all 10 episodes on Prime Video this month.
+---------
+
+# ‘Saturday Night Live UK’ Is Quietly Fixing the Biggest Problem of Today's Comedy Hits
+
+TV Features, Saturday Night Live UK, Saturday Night Live, BBC, SNL
+
+Sat, 18 Jul 2026 13:52:15 GMT
+
+https://collider.com/snl-saturday-night-live-uk-changing-british-comedy/
+
+Saturday Night Live UK arrived at the right time to serve as a blueprint for an alternative way for traditional broadcasters to make a comedy hit.
+---------
+
+# 7 Movies That Clearly Influenced 'The Invite'
+
+Movie, The Invite, 12 Angry Men, The Graduate, Who's Afraid of Virginia Woolf?
+
+Sat, 18 Jul 2026 13:41:14 GMT
+
+https://collider.com/the-invite-movie-influences/
+
+The cinematic influence of movies like Who's Afraid of Virginia Woolf? and 12 Angry Men are found in the DNA of Olivia Wilde's comedy, The Invite.
+---------
+
+# $497M Historical Epic Rides ‘The Odyssey’s Coattails to Streaming Success
+
+Movie News, The Odyssey, Troy, Christopher Nolan, Brad Pitt
+
+Sat, 18 Jul 2026 13:15:15 GMT
+
+https://collider.com/the-odyssey-christopher-nolan-troy-movie-streaming-success-july-2026/
+
+Christopher Nolan’s The Odyssey sends the historical epic he nearly directed skyrocketing back up the streaming charts.
+---------
+
+# Jake Gyllenhaal's 'Road House' Remake Becomes Streaming Hit
+
+Movie News, Jake Gyllenhaal, Road House, Hot on Streaming
+
+Sat, 18 Jul 2026 14:09:59 GMT
+
+https://movieweb.com/road-house-remake-prime-video-streaming-hit-july-2026/
+
+Two years after its original release, the Amazon MGM Studios original has found a much-deserved second life on streaming.
+---------
+
+# 'NCIS' Icons Officially Return to the Franchise in All-New Photos
+
+TV News, NCIS, NCIS: Origins, NCIS: New York
+
+Sat, 18 Jul 2026 14:01:27 GMT
+
+https://movieweb.com/ncis-icons-return-to-franchise-all-new-photos/
+
+Fresh photos from across the 'NCIS' universe spotlight the franchise’s latest wave of returns.
+---------
+
+# Netflix's Best Fantasy Series Since 'The Witcher' Was Cancelled Too Soon
+
+Features, Lockwood & Co., Netflix, Crime, Fantasy, Thriller, Action, The Witcher
+
+Sat, 18 Jul 2026 14:00:12 GMT
+
+https://movieweb.com/lockwood-co-netflix-cancelled-too-soon/
+
+Three years ago, Netflix made the mistake of cancelling 'Lockwood & Co.' after only one season, even though it was a huge success.
+---------
+
+# Mia Goth's Forgotten R-Rated Post-Apocalyptic Thriller Resurfaces on Free Streaming 11 Years Later
+
+Movie News, Mia Goth, The Survivalist, Coming/Leaving Streaming, Thriller
+
+Sat, 18 Jul 2026 14:00:12 GMT
+
+https://movieweb.com/mia-goth-the-survivalist-thriller-streaming-free-tubi-august-2026/
+
+Before 'The Odyssey,' Mia Goth made a name for herself in a forgotten thriller that's set to return to free streaming next month.
+---------
+
+# James Cameron's 'Aliens' Celebrated in New Deluxe Coffee Table Book
+
+Movie News, Aliens
+
+Sat, 18 Jul 2026 13:52:07 GMT
+
+https://movieweb.com/james-cameron-aliens-deluxe-book/
+
+As 'Aliens' turns 40, a new commemorative release is on the way for the movie's generations of fans.
+---------
+
 # 8 Best Vincent Price Movies No One Ever Talks About
 
 Movies, Horror, Vincent Price
@@ -5166,334 +5496,4 @@ Thu, 16 Jul 2026 23:00:15 GMT
 https://www.cbr.com/road-house-action-success-prime-video-july-2026/
 
 Jake Gyllenhaal’s Road House is back on streaming charts as the franchise prepares for another round of punches and high kicks.
----------
-
-# 5 Martial Arts Movies That Are Pretty Much Perfect
-
-Movies, Police Story, Crouching Tiger, Hidden Dragon
-
-Thu, 16 Jul 2026 23:00:15 GMT
-
-https://www.cbr.com/perfect-martial-arts-movies-list/
-
-There have been many spectacular martial arts movies over the decades, but only a few are truly perfect.
----------
-
-# Netflix Confirms 6-Part Thriller Based on a Book as No. 1 Most-Watched Show of 2026
-
-TV, His & Hers, Netflix
-
-Thu, 16 Jul 2026 22:29:23 GMT
-
-https://www.cbr.com/netflix-his-and-hers-most-watched-series-2026/
-
-The Netflix Original show outperformed returning titles with its stellar streaming numbers.
----------
-
-# 6 Worst R-Rated Action Movies of the 2000s
-
-Movie, Action, War, Alone in the Dark, Doomsday
-
-Thu, 16 Jul 2026 23:21:14 GMT
-
-https://collider.com/worst-r-rated-2000s-action-movies/
-
-From Ballistic: Ecks vs. Sever to Doomsday, these disastrous 2000s action movies buried decent ideas under baffling filmmaking decisions.
----------
-
-# 20 Longest Anime Series, Ranked
-
-TV, Anime, One Piece, Naruto, Pokémon
-
-Thu, 16 Jul 2026 23:12:15 GMT
-
-https://collider.com/longest-anime-tv-series-ranked/
-
-From Yu-Gi-Oh! to One Piece, these are the longest running anime series on television.
----------
-
-# After ‘Backrooms,' Another Viral Internet Horror Is Getting a Big Screen Adaptation
-
-Movie News, Backrooms, Horror, TriStar Pictures, Sony
-
-Thu, 16 Jul 2026 23:00:15 GMT
-
-https://collider.com/backrooms-replacement-new-horror-adaptation-cartoon-cat-confirmed/
-
-Following the success of A24's Backrooms movie, another horror adaptation of a viral internet sensation is also now in the works.
----------
-
-# Harlan Coben’s Twisty 8-Episode Netflix Miniseries Proves He’s Still the Reigning King of Crime Dramas
-
-TV Features, I Will Find You, Netflix, Harlan Coben, Crime
-
-Thu, 16 Jul 2026 22:58:15 GMT
-
-https://collider.com/harlan-coben-i-will-find-you-netflix-crime-thriller-streaming-success/
-
-I Will Find You's continued success in Netflix's Top 10 only proves that no crime writer's stories are more addictive than Harlan Coben's.
----------
-
-# 'Anaconda' Thriller Replacement Confirmed From Underrated Action Sci-Fi Filmmaker
-
-Movie News, Anaconda, Julius Avery, Horror
-
-Thu, 16 Jul 2026 22:45:24 GMT
-
-https://movieweb.com/crush-movie-python-thriller-julius-avery/
-
-The filmmaker behind 'Overlord' and 'The Pope's Exorcist' is stepping into the swamp.
----------
-
-# 'Nightmare Before Christmas' Officially Returning With New Release in October
-
-Movie News, The Nightmare Before Christmas
-
-Thu, 16 Jul 2026 22:38:29 GMT
-
-https://movieweb.com/nightmare-before-christmas-graphic-novel-zero/
-
-A new hardcover that collects 'The Nightmare Before Christmas – Zero's Journey' will hit shelves on Oct. 6.
----------
-
-# Children Of Blood & Bone Author’s Movie Involvement Clarified By Director After Publicly Denouncing Adaptation
-
-Movies, Children of Blood and Bone
-
-Thu, 16 Jul 2026 22:04:28 GMT
-
-https://screenrant.com/children-of-blood-and-bone-movie-tomi-adeyemi-involvement-denouncement-clarified-director/
-
-After Tomi Adeyemi’s public denouncement of the Children of Blood & Bone film, the director is opening up about the author’s involvement.
----------
-
-# Law & Order Returns To Its Golden Era This Fall
-
-TV
-
-Thu, 16 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/law-and-order-golden-era-scheduling-nbc/
-
-The flagship series of NBC's longest-running procedural franchise is returning to its roots for season 26 with a major change this fall.
----------
-
-# GTA 5 Limited-Time Free Download Officially Available Now
-
-Gaming, Grand Theft Auto 5
-
-Thu, 16 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/gta-5-limited-time-free-download-july-2026/
-
-GTA VI might be getting all the headlines right now, but there's still life in the most recent entry yet.
----------
-
-# Supergirl's Next Appearance Stars Iconic Villain, DC Confirms
-
-Comics, Supergirl
-
-Thu, 16 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/supergirl-next-appearance-villain-ursa-zod/
-
-Her new foe has a long cinematic history.
----------
-
-# Sam Raimi’s ‘The Shining On A Farm’ Horror Franchise Is Quietly Dominating Global Streaming Charts
-
-Movies, Masked Recs, Horror
-
-Thu, 16 Jul 2026 21:56:05 GMT
-
-https://screenrant.com/sam-raimi-the-messengers-franchise-lionsgate-plus-streaming-success-july-2026-the-shining/
-
-The Sam Raimi horror franchise described as "The Shining on a farm" is quietly dominating global streaming 17 years after the last movie.
----------
-
-# What Gandalf's Balrog Speech In The Lord Of The Rings Really Means: All Hidden Lore Details
-
-Movies, The Lord of the Rings
-
-Thu, 16 Jul 2026 21:45:11 GMT
-
-https://screenrant.com/the-lord-of-the-rings-gandalf-balrog-speech-explained/
-
-In The Lord of the Rings: The Fellowship of the Ring, Gandalf delivers a memorable speech to the Balrog, but there's a deeper meaning to his words.
----------
-
-# New John Wick Movie Officially Closer To Release In Massive Filming Update
-
-Movies, John Wick
-
-Thu, 16 Jul 2026 21:40:07 GMT
-
-https://screenrant.com/john-wick-caine-spinoff-filming-wrap-update-donnie-yen/
-
-The John Wick universe is expanding with Caine's story, and a new update reveals the upcoming film has reached another major milestone.
----------
-
-# Sicario Meets Jack Ryan In Taylor Sheridan's 2-Part Action Series
-
-TV, Masked Recs
-
-Thu, 16 Jul 2026 21:33:11 GMT
-
-https://screenrant.com/lioness-sicario-jack-ryan-taylor-sheridan/
-
-In a surprising twist, Taylor Sheridan's hit spy series blends the gritty realism of 2015's Sicario with the high-stakes espionage of Jack Ryan.
----------
-
-# The Odyssey Ending Explained: Why Odysseus Really Couldn't Go Home
-
-New Movies, The Odyssey, Explainer
-
-Thu, 16 Jul 2026 21:30:11 GMT
-
-https://screenrant.com/the-odyssey-movie-2026-ending-explained/
-
-Christopher Nolan’s adaptation of one of literature’s oldest surviving stories is here, and his take on the ending is the key to understanding it.
----------
-
-# The CW's Near-Perfect Supernatural Series Is Streaming for Free for the First Time
-
-TV, iZombie, The CW, Paramount
-
-Thu, 16 Jul 2026 22:21:40 GMT
-
-https://www.cbr.com/izombie-streaming-free-pluto-tv/
-
-iZombie, along with a whole slate of CW shows, will stream for free on Pluto TV starting Aug. 1
----------
-
-# Every Piccolo Form in Dragon Ball, Ranked By Power
-
-Anime, Dragon Ball, Akira Toriyama
-
-Thu, 16 Jul 2026 22:15:15 GMT
-
-https://www.cbr.com/every-piccolo-form-dragon-ball-ranked/
-
-Piccolo is one of Dragon Ball's strongest characters and he's able to reach even greater heights with the help of a wide range of forms.
----------
-
-# The Odyssey Special Streaming Release Hits No. 4 on Peacock in America 1 Day Before Film Debuts
-
-Movies, The Odyssey, Fantasy, Peacock
-
-Thu, 16 Jul 2026 22:09:11 GMT
-
-https://www.cbr.com/the-odyssey-the-making-of-an-epic-success-peacock-july-2026/
-
-The Odyssey hype is very real.
----------
-
-# It's Officially the Start of a New Era for Lord of the Rings After 12 Years
-
-Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum
-
-Thu, 16 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/the-lord-of-the-rings-hunt-for-gollum-first-feature-film-after-12-years/
-
-In the struggle for IPs to remain relevant, The Lord of the Rings is back in the saddle again.
----------
-
-# Operation: Iron Coffin Features Dracula's Wildest Action Sequence So Far
-
-Comics, Dracula
-
-Thu, 16 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/operation-iron-coffin-2-wild-dracula-action-sequence/
-
-Dracula's war against the Nazis gets crazier.
----------
-
-# YouTube TV Quietly Gets a Major Upgrade After Disney+ Settlement
-
-TV, YouTube
-
-Thu, 16 Jul 2026 21:32:45 GMT
-
-https://www.cbr.com/youtube-tv-new-channels/
-
-YouTube TV just got a boost.
----------
-
-# 5 Best Family Movies of 2026 So Far
-
-Movie, Family, Swapped, Hoppers, Toy Story 5
-
-Thu, 16 Jul 2026 22:08:14 GMT
-
-https://collider.com/best-family-movies-2026-so-far-ranked/
-
-The Sheep Detectives, Toy Story 5, and Minions & Monsters are all among the very best movies for kids and families released in 2026 so far.
----------
-
-# Denzel Washington Was Always at His Best Working With This Misunderstood Action Filmmaker
-
-Movie Features, Denzel Washington, Tony Scott, Man on Fire, The Taking of Pelham 123, Crimson Tide
-
-Thu, 16 Jul 2026 21:45:15 GMT
-
-https://collider.com/denzel-washington-tony-scott-crimson-tide/
-
-Denzel Washington and Tony Scott's collaborations, which included Crimson Tide and Man on Fire, pushed each of them in new directions.
----------
-
-# Forget 'Gladiator,' Christopher Nolan Turned to This Cyberpunk Action Masterpiece When Making 'The Odyssey'
-
-Movie News, The Odyssey, Christopher Nolan, Blade Runner
-
-Thu, 16 Jul 2026 22:19:26 GMT
-
-https://movieweb.com/the-odyssey-christopher-nolan-blade-runner/
-
-Christopher Nolan revealed his shocking choice for the movie that served as the biggest inspiration for 'The Odyssey.'
----------
-
-# Star Trek Sets up Stealth Sequel to 36-Year-Old Franchise Classic
-
-Features, Star Trek: Strange New Worlds, Star Trek, Star Trek: The Next Generation
-
-Thu, 16 Jul 2026 22:01:12 GMT
-
-https://movieweb.com/star-trek-tomorrows-enterprise-stealth-sequel/
-
-'Star Trek: The Next Generation' Season 3 put out an unforgettable episode that the franchise is finally responding to. Read on for more.
----------
-
-# Jason Statham Dominates as Pair of Action Thrillers Become the Biggest Movies on Streaming
-
-Movie News, Jason Statham, The Beekeeper, A Working Man, Hot on Streaming, Prime Video
-
-Thu, 16 Jul 2026 22:01:12 GMT
-
-https://movieweb.com/jason-statham-stream-beekeeper-working-man-prime-july-2026/
-
-There's no questioning the legacy of action's greatest modern icon, and his latest streaming feat proves it.
----------
-
-# Who Does Elliot Page Play in 'The Odyssey'?
-
-Features, The Odyssey, Elliot Page
-
-Thu, 16 Jul 2026 22:01:12 GMT
-
-https://movieweb.com/elliot-page-sinon-the-odyssey/
-
-Elliot Page is playing a unique character in Christopher Nolan's 'The Odyssey' adaptation, and the Achilles theories had it all wrong.
----------
-
-# Netflix's Divisive New #1 Series Hits 1.8 Billion Minutes In Just 7 Days
-
-TV, Masked Recs
-
-Thu, 16 Jul 2026 21:21:05 GMT
-
-https://screenrant.com/i-will-find-you-show-netflix-billion-minutes-viewed/
-
-Netflix's new crime thriller series has become a global streaming sensation, amassing 1.8 billion minutes despite a divisive reception.
 ---------
