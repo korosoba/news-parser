@@ -1,3 +1,322 @@
+# 5 Star Trek Episodes That Predicted The Future
+
+Star Trek
+
+Sat, 18 Jul 2026 03:38:30 GMT
+
+https://screenrant.com/star-trek-episodes-predicted-future/
+
+Some of Star Trek's most ambitious and accurate predictions originated in single episodes that preceded actual technological inventions by decades.
+---------
+
+# Spider-Man: Brand New Day May Have Confirmed Rumors About A Daredevil Character's Return
+
+Movies, Spider-Man: Brand New Day
+
+Sat, 18 Jul 2026 03:21:17 GMT
+
+https://screenrant.com/spider-man-brand-new-day-daredevil-claire-temple/
+
+A major rumor about a Daredevil character's return in Spider-Man: Brand New Day might have just been confirmed by one of the stars of the film.
+---------
+
+# Martin Scorsese’s Star Wars Character Returns In An All-New Story
+
+Star Wars, The Mandalorian and Grogu
+
+Sat, 18 Jul 2026 03:15:12 GMT
+
+https://screenrant.com/martin-scorsese-star-wars-character-returns-hugo-durant-echoes-empire/
+
+Two months after The Mandalorian & Grogu, an all-new Star Wars story features the return of director Martin Scorsese's beloved cameo character.
+---------
+
+# 5 Dystopian Post-Apocalyptic Adaptations Better Than Apple TV’s Silo
+
+Streaming TV, Silo, The Last of Us, Station Eleven, Sweet Tooth, Fallout, 12 Monkeys
+
+Sat, 18 Jul 2026 03:15:12 GMT
+
+https://screenrant.com/dystopian-post-apocalyptic-adaptations-better-silo/
+
+Apple TV’s Silo is easily one of the best post-apocalyptic shows out there, but a handful of dystopian sci-fi thrillers are arguably even better.
+---------
+
+# Why Christopher Nolan Changed The Odyssey's Most Famous Scene
+
+Movies, The Odyssey, Christopher Nolan
+
+Sat, 18 Jul 2026 03:09:38 GMT
+
+https://screenrant.com/the-odyssey-christopher-nolan-famous-scene-change/
+
+Exclusive: Anne Hathaway discusses The Odyssey's Penelope and Christopher Nolan's decision to remove a famous scene from the iconic story.
+---------
+
+# Joffrey Velaryon's Role In House Of The Dragon Explained & What Happens To Him In GRRM's Fire & Blood
+
+Streaming TV, House of the Dragon, House of the Dragon - Season 3
+
+Sat, 18 Jul 2026 03:00:12 GMT
+
+https://screenrant.com/joffrey-velaryon-house-dragon-tragic-fate-song-ice-fire-explained/
+
+Joffrey Velaryon is the youngest son of Rhaenyra and Laenor Velaryon, and while he’s a minor character, his fate is key to House of the Dragon.
+---------
+
+# Netflix’s New Legal Drama Is Already Renewed For Season 2, And It’s A 10/10 Weekend Binge
+
+Streaming TV
+
+Sat, 18 Jul 2026 02:30:26 GMT
+
+https://screenrant.com/netflix-legal-drama-losing-judgment-weekend-binge/
+
+This new legal series, which combines the best of courtroom drama with a murder mystery and a unique female lead, is a hidden gem on Netflix.
+---------
+
+# All 4 Seasons Of Netflix's 9-Year-Old Psychological Thriller Are Perfect
+
+Classic TV, Masked Recs
+
+Sat, 18 Jul 2026 02:30:12 GMT
+
+https://screenrant.com/the-sinner-all-seasons-netflix-perfect-psychological-thriller/
+
+An incredible psychological thriller premiered almost a decade ago, and it is still hard not to appreciated how all four of its season are perfect.
+---------
+
+# X-Men '97 Major Winter Soldier Connection Explained
+
+Superheroes, X-Men '97, Marvel Cinematic Universe
+
+Sat, 18 Jul 2026 02:00:23 GMT
+
+https://screenrant.com/x-men-97-winter-soldier-weapon-x-connection-explained/
+
+The latest episode of Marvel Studios' X-Men '97 season 2 featured an exciting tie to Bucky Barnes' Winter Soldier (but what's the actual history?)
+---------
+
+# Star Wars: Galactic Contention Is The Battlefront Sequel We Always Wanted
+
+Gaming, Star Wars Battlefront 2 (2017), Live Service Games, PC
+
+Sat, 18 Jul 2026 02:00:22 GMT
+
+https://screenrant.com/star-wars-galactic-contention-battlefield-vibes/
+
+After nearly a decade since the release of Battlefront 2, the closest thing to a sequel we've seen yet is nearly everything fans could want.
+---------
+
+# 10 Best Mindless Anime Of All Time
+
+Anime, Gintama, One-Punch Man
+
+Sat, 18 Jul 2026 03:45:15 GMT
+
+https://www.cbr.com/best-mindless-anime-ever-ranked/
+
+Gintama, Asobi Asobase, Hellsing Ultimate and a few more anime are the absolute best mindless watches.
+---------
+
+# 5 Fights We Need To See in the Street Fighter Movie
+
+Movies, Street Fighter, Action
+
+Sat, 18 Jul 2026 03:45:15 GMT
+
+https://www.cbr.com/street-fighter-movie-fights-that-should-happen-list/
+
+There are certain characters whom fans would love to see clash in the upcoming film adaptation of the Street Fighter video game series.
+---------
+
+# NBC's Canceled Sci-Fi Time Travel Series Is Netflix's Most Bingeable New Hidden Gem
+
+TV, La Brea, Sci-Fi, Netflix
+
+Sat, 18 Jul 2026 03:30:15 GMT
+
+https://www.cbr.com/netflix-la-brea-most-bingeable-sci-fi-time-travel-series/
+
+Netflix’s canceled sci-fi offering is a high-concept time-travel mystery that will reel viewers back in time to 10,000 BC.
+---------
+
+# Batman’s Most Important Comic Is Forgotten By His Biggest Fans
+
+Comics, Batman, DC Comics, Joker
+
+Sat, 18 Jul 2026 03:30:15 GMT
+
+https://www.cbr.com/batman-1-most-important-comic/
+
+Batman has starred in some of the most important comics ever printed, but one issue stands out ahead of the rest, and it isn’t what you think.
+---------
+
+# 7 Classic SNES Games That Are 10/10 Masterpieces
+
+Games, Super Mario World, The Legend of Zelda: A Link to the Past, Nintendo
+
+Sat, 18 Jul 2026 03:15:16 GMT
+
+https://www.cbr.com/classic-snes-games-flawless-masterpieces-list/
+
+The SNES was the introductory console for many kids in the 1990s, and these seven masterpieces served as the foundation of the system's longevity.
+---------
+
+# Avatar: The Way of Water Is The Greatest Sci-Fi Sequel of the 21st Century
+
+Movies, Avatar: The Way of Water, Disney, Sci-Fi
+
+Sat, 18 Jul 2026 03:15:16 GMT
+
+https://www.cbr.com/avatar-the-way-of-water-greatest-21st-century-sci-fi-sequel/
+
+This legendary follow-up to one of the biggest sci-fi movies in history is the definitive sequel of the modern age.
+---------
+
+# Dragon Ball Unearths Rare 34-Year-Old Art for Original SS Goku vs. Cell Design
+
+Anime, Dragon Ball, weekly shonen jump
+
+Sat, 18 Jul 2026 03:05:15 GMT
+
+https://www.cbr.com/dragon-ball-ss-goku-vs-cell-original-draft/
+
+Original draft artwork by Akira Toriyama featuring one of the earlier appearances of Super Saiyan Goku's transformation has been officially revealed.
+---------
+
+# The Vampire Lestat's Delainey Hayles Explains What Fuels Claudia's Anger In Season 3
+
+CBR Exclusives, The Vampire Lestat
+
+Sat, 18 Jul 2026 02:58:28 GMT
+
+https://www.cbr.com/the-vampire-lestat-delainey-hayles-claudia-anger-louis-seance/
+
+Delainey Hayles explains why Claudia directs so much anger at Louis during The Vampire Lestat’s devastating séance scene.
+---------
+
+# 10 Best Netflix Anime for Adult Fans
+
+Anime, Netflix, Death Note
+
+Sat, 18 Jul 2026 02:45:15 GMT
+
+https://www.cbr.com/best-netflix-anime-for-adults-list/
+
+Between mature titles like Monster, Death Note, and Kakegurui, Netflix has its share of dark and adult anime for older audiences to enjoy.
+---------
+
+# 5 Open-World RPGs Where Side Quests Feel Like Main Quests
+
+Games, The Witcher 3: Wild Hunt, open world, RPG
+
+Sat, 18 Jul 2026 02:15:16 GMT
+
+https://www.cbr.com/open-world-rpgs-side-quests-feel-like-main-quests-list/
+
+The side quests found in these games will make you forget about completing the main story quest for hours on end.
+---------
+
+# The American Version of ‘Sailor Moon’ Censored More Than You Realize
+
+TV Features, Sailor Moon, Anime, Pluto TV, Crunchyroll
+
+Sat, 18 Jul 2026 03:22:15 GMT
+
+https://collider.com/sailor-moon-american-series-version-censorship-details/
+
+Sailor Moon’s original U.S. dub censored deaths, LGBTQ+ relationships, and key themes, reshaping the anime for American audiences.
+---------
+
+# Forget Batman and Superman, This Fan-Favorite Hero Is DC's Greatest Character
+
+Books and Comics, comic books, Nightwing, DC Comics, Superhero
+
+Sat, 18 Jul 2026 03:09:15 GMT
+
+https://collider.com/nightwing-best-dc-superhero-not-batman-superman/
+
+Most think of the Trinity as the undefeated legends of DC, but Nightwing is actually the greatest character, embodying the best qualities of a hero.
+---------
+
+# Harlan Coben’s New Mystery Thriller Is One of Netflix’s Biggest Debuts Ever
+
+TV News, I Will Find You, Harlan Coben, Sam Worthington, Britt Lower
+
+Sat, 18 Jul 2026 02:00:25 GMT
+
+https://collider.com/harlan-coben-netflix-i-will-find-you-streaming-success-july-2026/
+
+Harlan Coben's new Netflix show, I Will Find You, delivered a record-breaking debut for the streamer, according to the latest Nielsen report.
+---------
+
+# Agatha Christie’s Darkest Adaptation Is a 3-Part Murder Mystery Done Right
+
+TV Features, And Then There Were None, Agatha Christie, BBC, Charles Dance
+
+Sat, 18 Jul 2026 01:55:15 GMT
+
+https://collider.com/agatha-christie-and-then-there-were-none-2013-adaptation-murder-mystery/
+
+Agatha Christie's And Then There Were None captures the novel's bleak tone and scathing commentary on human nature, delivering a faithful adaptation.
+---------
+
+# One of Avatar’s Best Sequels Is Officially Returning in 2026
+
+Gaming News, Avatar 4, Avatar 5, Avatar: Fire and Ash, PlayStation Plus
+
+Sat, 18 Jul 2026 01:45:15 GMT
+
+https://collider.com/avatar-frontiers-of-pandora-playstation-plus-release-date-july-21-2026/
+
+Avatar: Frontiers of Pandora will be available on the PlayStation Plus Game Catalog next week, alongside other notable titles.
+---------
+
+# 8 Movie Trilogies That Peak With Their Middle Chapter
+
+Movie, The Empire Strikes Back, Mad Max 2: The Road Warrior, Evil Dead II, The Dark Knight
+
+Sat, 18 Jul 2026 01:41:15 GMT
+
+https://collider.com/movie-trilogies-peak-middle-chapter/
+
+From cult gems like Evil Dead 2 to all-time classics like The Godfather Part II, these middle movies stand as the best in their respective trilogies.
+---------
+
+# Evil Dead Fans Can Now Purchase a Life-Sized Bruce Campbell for Halloween
+
+Movie News, Army of Darkness, Bruce Campbell, Evil Dead, Horror
+
+Sat, 18 Jul 2026 01:30:15 GMT
+
+https://collider.com/evil-dead-army-of-darkness-life-size-bruce-campbell-animatronic/
+
+The king is back, baby, as Evil Dead fans can now own a life-size animatronic of Ash Williams just in time for Halloween.
+---------
+
+# 3 Years Later, Paramount's 10/10 Fantasy Movie Is a Free Streaming Hit3 Years Later, Paramount's 10/10 Fantasy Movie Is a Free Streaming Hit
+
+Movie News, Paramount, Dungeons and Dragons: Honor among Thieves, Fantasy, Chris Pine
+
+Sat, 18 Jul 2026 01:15:15 GMT
+
+https://collider.com/paramount-fantasy-movie-dungeons-and-dragons-honor-among-thieves-free-streaming-success-pluto-tv-july-2026/
+
+With a 91% critics score and a second life on free streaming, Paramount's fantasy adventure is finally getting the audience it deserves.
+---------
+
+# 'Game of Thrones': The 12 Best Franchise Characters, Ranked
+
+TV Lists, Game Of Thrones
+
+Sat, 18 Jul 2026 02:39:57 GMT
+
+https://movieweb.com/best-game-of-thrones-franchise-characters-ranked/
+
+Who's the best of the best in Westeros?
+---------
+
 # Big Brother 28: Week 2 Nominations Made By HOH (SPOILERS)
 
 Reality TV, Big Brother
@@ -5177,323 +5496,4 @@ Thu, 16 Jul 2026 18:04:27 GMT
 https://screenrant.com/christopher-nolan-the-odyssey-fantasy-epic-first/
 
 Christopher Nolan's The Odyssey has already proven to be a record-breaker for the director, and the fantasy epic starts a new era for the auteur.
----------
-
-# Saturday Night Live Says Goodbye to Fan-Favorite Star After 7 Seasons
-
-TV, Saturday Night Live, NBC, Comedy
-
-Thu, 16 Jul 2026 18:49:00 GMT
-
-https://www.cbr.com/chloe-fineman-leaving-snl-saturday-night-live-season-52/
-
-SNL is losing one of its most popular players ahead of its new season.
----------
-
-# Rebecca Yarros’ Fourth Wing Officially Returns in 2026 With New Release Ahead of TV Series
-
-TV, Fourth Wing
-
-Thu, 16 Jul 2026 18:38:19 GMT
-
-https://www.cbr.com/rebecca-yarros-fourth-wing-book-threshing-day/
-
-A new release for Rebecca Yaros' The Empyrean series has officially been confirmed.
----------
-
-# Hidden Gem Anime Series Every New Fan Needs To Watch
-
-Anime, Odd Taxi, Baccano!
-
-Thu, 16 Jul 2026 18:16:15 GMT
-
-https://www.cbr.com/hidden-gem-anime-for-new-fans/
-
-Some of the best experiences anime has to offer are waiting just beyond the most popular recommendations.
----------
-
-# 12 Years Later, Sequel to a $23.3M Cult Horror Hit Finally Moves Forward With New Cast
-
-Movies, It Follows, They Follow
-
-Thu, 16 Jul 2026 18:00:53 GMT
-
-https://www.cbr.com/it-follows-sequel-they-follow-full-cast/
-
-The long-gestating horror sequel gets a major update.
----------
-
-# 1 Jurassic Park Canon Change Saved the Franchise
-
-Movies, Jurassic Park
-
-Thu, 16 Jul 2026 18:00:15 GMT
-
-https://www.cbr.com/jurassic-park-alternate-ending-saved-franchise/
-
-A single deviation from the novel version of Jurassic Park allowed the films to become a massive multimedia franchise that persists to this day.
----------
-
-# Spider-Man: One More Day Might Be Given A Sequel After All
-
-Comics, Spider-Man, brand new day, Mary Jane Watson
-
-Thu, 16 Jul 2026 18:00:15 GMT
-
-https://www.cbr.com/spider-man-one-more-day-joe-quesada-sequel-tease/
-
-One of the most controversial arcs in Marvel comic book history, and fans are hoping that Spider-Man will get his happy ending yet, One More Day.
----------
-
-# Steam Makes 9/10 Co-Op Game 100% Free Until July 17
-
-Games, Steam
-
-Thu, 16 Jul 2026 17:50:15 GMT
-
-https://www.cbr.com/free-steam-games-right-now-co-op-catch-me/
-
-Steam makes co-op game Catch Me! 100% free, but the offer won't last for long.
----------
-
-# 'The Hawk's Luke Wilson Officially Weighs in on a Possible Crossover With Apple TV’s ‘Stick’
-
-Interviews, The Hawk, Luke Wilson, Jimmy Tatro, Fortune Feimster
-
-Thu, 16 Jul 2026 18:30:15 GMT
-
-https://collider.com/netflix-the-hawk-apple-tv-stick-crossover-luke-wilson-interview/
-
-The Hawk cast explains what drew them to the Netflix sports comedy series, as well as speculate what their characters could do in a second season.
----------
-
-# 2 Years Later, Prime Video’s 121-Minute Action Thriller Is Still a Streaming Hit
-
-Movie News, Prime Video, Road House, Guy Ritchie, Action
-
-Thu, 16 Jul 2026 18:30:15 GMT
-
-https://collider.com/road-house-streaming-success-prime-video-july-2026/
-
-Jake Gyllenhaal’s Road House remains a Prime Video Top 10 hit two years after the action remake’s record-breaking streaming debut.
----------
-
-# 'Doctor Who' Icon Tries To Solve an Impossible Case in First Images for New British Crime Thriller
-
-TV News, Time, David Tennant, Sean Bean, Stephen Graham
-
-Thu, 16 Jul 2026 18:28:47 GMT
-
-https://collider.com/british-crime-thriller-time-season-3-images-david-tennant/
-
-Time, the British crime anthology series, has revealed David Tennant's new character in the first look at Season 3.
----------
-
-# X-Men ’97 S2: Why Recording Got So Complicated | Set Stories
-
-TV, X-Men '97
-
-Thu, 16 Jul 2026 18:15:15 GMT
-
-https://collider.com/video/x-men-97-s2-why-recording-got-so-complicated-set-stories/
-
-The voices behind Rogue, Morph, and Nightcrawler reflect on what makes X-Men '97 such a special return, while teasing what's still to come for Marvel's beloved mutants.
----------
-
-# ‘Star Trek: Voyager’ Officially Returns With a New Release Today
-
-TV News, Star Trek: Voyager, Video Game, Star Trek, Science Fiction
-
-Thu, 16 Jul 2026 18:14:46 GMT
-
-https://collider.com/star-trek-voyager-across-the-unknown-delta-chronicles-dlc/
-
-Star Trek: Voyager — Across the Unknown launches its Delta Chronicles DLC with five new missions, two playable heroes, and alternate story outcomes.
----------
-
-# 7 Forgotten Mystery Shows That Are Perfect From Start to Finish
-
-TV, Mystery, Deadloch, Top of the Lake, A Murder at the End of the World
-
-Thu, 16 Jul 2026 18:09:15 GMT
-
-https://collider.com/forgotten-mystery-shows-perfect-start-to-finish/
-
-From the crime comedy series Deadloch to the miniseries A Murder at the End of the World, these forgotten mystery shows are practically flawless.
----------
-
-# Anya Taylor-Joy Explains Why She Actually "Had Fun" Shooting 'Lucky's Intense Car Crash Stunt
-
-Exclusives, Lucky, Anya Taylor-Joy, Drew Starkey, Apple TV
-
-Thu, 16 Jul 2026 18:01:15 GMT
-
-https://collider.com/lucky-apple-tv-premiere-anya-taylor-joy-drew-starkey-interview/
-
-Anya Taylor-Joy breaks down the experience of shooting Lucky's intense premiere car crash stunt: "Is it terrible to say I had fun?"
----------
-
-# ‘The Boys’ Has a New Review-Bombing Problem
-
-Gaming News, The Boys, Prime Video, Karl Urban, Antony Starr
-
-Thu, 16 Jul 2026 18:01:15 GMT
-
-https://collider.com/the-boys-trigger-warning-review-bombing-metacritic-score-bad/
-
-The Boys: Trigger Warning, the new VR game that launched on PSVR last month, has officially come under fire from review bombers.
----------
-
-# The Best 4-Part Sci-Fi Remake Is Still One of the Genre’s Biggest Surprises
-
-TV Features, 12 Monkeys, SyFy, Science Fiction
-
-Thu, 16 Jul 2026 17:58:14 GMT
-
-https://collider.com/best-sci-fi-time-travel-show-12-monkeys/
-
-Syfy's 12 Monkeys turned a risky remake into one of the smartest, most satisfying time-travel shows of the 2010s.
----------
-
-# 'Fallout' Is Officially Exploding With a New Event Ahead of Season 3
-
-Gaming News, Fallout, Fallout 76, San Diego Comic-Con, Bethesda
-
-Thu, 16 Jul 2026 17:52:05 GMT
-
-https://collider.com/sdcc-2026-world-of-fallout-panel-details-new-game/
-
-Ahead of Season 3 and following reports of a new game in the works, Fallout is officially exploding into SDCC 2026.
----------
-
-# 'The Odyssey' Already Confirmed to Get New Reboot After Christopher Nolan's Release
-
-TV News, The Odyssey
-
-Thu, 16 Jul 2026 18:07:43 GMT
-
-https://movieweb.com/the-odyssey-new-reboot-series/
-
-'Odysseus,' a new TV series from 'Stranger Things' showrunner Karl Gajdusek and 'Halo' director Roel Reiné, arrives as Nolan's 'The Odyssey' opens.
----------
-
-# Stephen King's Sci-Fi Thriller Loved by Roger Ebert Lands on Free Streaming
-
-Movie News, The Dead Zone, Tubi, Coming/Leaving Streaming, Stephen King
-
-Thu, 16 Jul 2026 18:01:12 GMT
-
-https://movieweb.com/stephen-king-dead-zone-stream-free-tubi-august-2026/
-
-Stephen King's forgotten 1983 sci-fi horror thriller 'The Dead Zone' will stream for free on Tubi in August.
----------
-
-# Marvel's Confirmed X-Men Roster Misses a Perfect Opportunity
-
-Features, MCU's Movie Order (2008 - 2019) - The Infinity Saga (Iron Man - Spider-Man: Far from Home), X-Men
-
-Thu, 16 Jul 2026 18:01:12 GMT
-
-https://movieweb.com/marvel-avengers-doomsday-x-men-roster/
-
-'Avengers: Doomsday' should feature the original five X-Men introduced in 1963.
----------
-
-# First Look at Long-Awaited Action Fantasy Epic From 'The Old Guard' Director Revealed
-
-Movie News, Children of Blood and Bone
-
-Thu, 16 Jul 2026 17:52:21 GMT
-
-https://movieweb.com/children-of-blood-and-bone-first-look/
-
-Paramount has released the first images of 'Children of Blood and Bone', director Gina Prince-Bythewood's adaptation of the popular book.
----------
-
-# Ryan Gosling's Iconic First-Ever TV Show Is Officially Being Rebooted By Disney
-
-TV
-
-Thu, 16 Jul 2026 17:33:50 GMT
-
-https://screenrant.com/mickey-mouse-club-reboot-disney-pilot-order/
-
-Ryan Gosling's first major role is getting the reboot treatment at Disney+, as the iconic show could launch the next generation of global stars.
----------
-
-# Timothy Olyphant's New TV Streak Continues With 2 Trending Shows
-
-Streaming TV, Masked Recs, Timothy Olyphant
-
-Thu, 16 Jul 2026 17:30:12 GMT
-
-https://screenrant.com/timothy-olyphant-lucky-five-star-weekend-trending-binge/
-
-Timothy Olyphant is officially the king of TV with two new trending shows, and together, they make for the perfect summer weekend binge.
----------
-
-# Why The Odyssey's Rotten Tomatoes Score Is So Close To Perfect
-
-Movies, The Odyssey
-
-Thu, 16 Jul 2026 17:20:12 GMT
-
-https://screenrant.com/the-odyssey-rotten-tomatoes-score-reviews-explained/
-
-Christopher Nolan's The Odyssey has earned a near-perfect Rotten Tomatoes score. Here's why critics are calling the IMAX epic one of his greatest.
----------
-
-# Tim Burton's The Nightmare Before Christmas Confirms Next Release, And It Already Looks Stunning
-
-Comics, The Nightmare Before Christmas
-
-Thu, 16 Jul 2026 17:09:17 GMT
-
-https://screenrant.com/tim-burton-the-nightmare-before-christmas-zero-release-details/
-
-Tim Burton’s The Nightmare Before Christmas is returning just in time for Spooky Season with a new release starring Jack Skellington’s ghostly pup.
----------
-
-# Paramount's Hit $214 Million Horror Trending #1 Worldwide Is A Victim Of Its Own Success
-
-TV, Masked Recs
-
-Thu, 16 Jul 2026 17:01:12 GMT
-
-https://screenrant.com/scream-7-success-franchise-problem/
-
-One unexpected change turned a massive box office hit into a critical laughing stock, as an iconic horror series becomes its own worst nightmare.
----------
-
-# Tomb Raider: The Crypt Of Chronos Officially Launches Summer 2026
-
-Gaming, Tomb Raider
-
-Thu, 16 Jul 2026 17:00:11 GMT
-
-https://screenrant.com/tomb-raider-crypt-of-chronos-2026-release-date/
-
-Tomb Raider returns this summer with The Crypt of Chronos, an official new release taking Lara Croft on an exciting adventure on the island of Kairos.
----------
-
-# Resident Evil Reboot’s Reported Runtime Sets A New Franchise Record After 24 Years
-
-Movies, Resident Evil, Horror, Zach Cregger
-
-Thu, 16 Jul 2026 16:50:05 GMT
-
-https://screenrant.com/resident-evil-2026-reboot-runtime-franchise-record/
-
-Zach Cregger's Resident Evil reboot's runtime has reportedly been set and hits a major new franchise 24 years after it originally launched.
----------
-
-# New The Odyssey TV Series Happening With Stranger Things Exec
-
-TV
-
-Thu, 16 Jul 2026 16:49:08 GMT
-
-https://screenrant.com/odysseus-tv-series-stranger-things-halo-alums/
-
-The Odyssey is getting the TV show treatment, with a new series in the works from a Stranger Things executive and a director of the Halo show.
 ---------
