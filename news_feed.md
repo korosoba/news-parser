@@ -1,3 +1,245 @@
+# Batman Will Break A Golden Dark Knight Rule In 2028
+
+Movies, Batman, The Batman Part II, Dynamic Duo
+
+Sun, 19 Jul 2026 16:55:11 GMT
+
+https://screenrant.com/the-batman-part-2-dynamic-duo-2028-movie-rule-break/
+
+Batman's on-screen future is set to break one of the more frequently upheld rules created around the hero and his extensive filmography.
+---------
+
+# Blumhouse's New Horror With 21st Century Box Office Record Is Officially Peacock's #1 Movie
+
+Movies, Masked Recs, Blumhouse, Peacock
+
+Sun, 19 Jul 2026 16:54:40 GMT
+
+https://screenrant.com/blumhouse-obsession-movie-peacock-july-2026-streaming-charts/
+
+Blumhouse's new original horror, which set a major box-office record in the 21st century, continues its dominance as Peacock's #1 movie.
+---------
+
+# John Krasinski As Kakashi: Naruto's Live-Action Cast Picked By A Magazine Resurfaces
+
+Movies, Naruto
+
+Sun, 19 Jul 2026 16:42:17 GMT
+
+https://screenrant.com/john-krasinski-kakashi-naruto-live-action-magazine-cast/
+
+Fans were thinking about a live-action Naruto movie even back in the 2000s, and it's certainly fun to look back on which actors they might've picked.
+---------
+
+# 10 Greatest X-Files Episodes Nobody Talks About
+
+TV, The X-Files
+
+Sun, 19 Jul 2026 16:40:11 GMT
+
+https://screenrant.com/best-xfiles-episodes-nobody-talks-about/
+
+Whether forgotten monsters-of-the-week to underrated mythology stories, these X-Files episodes deserve far more attention and love from fans.
+---------
+
+# Guy Ritchie's Paramount+ Gangster Series Has A Reunion 45 Years In The Making
+
+TV, Masked Recs
+
+Sun, 19 Jul 2026 16:30:11 GMT
+
+https://screenrant.com/mobland-guy-ritchie-pierce-brosnan-helen-mirren-gangster-reunion/
+
+Guy Ritchie has an eye for casting, as demonstrated by remarkable screen reunion he's brought about on his hit Paramount+ gangster TV show.
+---------
+
+# Forget Dragon Ball, Naruto's Creator Just Revealed The Anime's True Inspiration
+
+Anime, Naruto, Spider-Man
+
+Sun, 19 Jul 2026 16:30:11 GMT
+
+https://screenrant.com/naruto-spider-man-inspiration-not-dragon-ball/
+
+The true reason for Naruto's success is revealed.
+---------
+
+# Every Movie In The MCU's Phase One, Ranked
+
+Movies, Marvel Cinematic Universe, Ranking
+
+Sun, 19 Jul 2026 16:20:11 GMT
+
+https://screenrant.com/mcu-phase-one-movies-ranked/
+
+Phase One of the Marvel Cinematic Universe started the franchise off with a bang, but how do the first six MCU movies stack up?
+---------
+
+# Tom Hanks' New Movie Toy Story 5 Set To Break All-Time Box Office Record For $4 Billion Franchise
+
+Movies, Toy Story 5, Toy Story, Box Office Milestone
+
+Sun, 19 Jul 2026 16:00:23 GMT
+
+https://screenrant.com/toy-story-5-box-office-950-million-global-milestone/
+
+By hitting a huge new global box office milestone, Toy Story 5 sets itself on a path to break an unprecedented record for the blockbuster franchise.
+---------
+
+# 12 Years Later, Gon And Killua Are Finally Back In Hunter x Hunter
+
+Anime, Hunter X Hunter
+
+Sun, 19 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/hunter-x-hunter-gon-killua-return/
+
+After more than a decade away from the main storyline, Gon and Killua have officially returned to the hit manga to assist Kurapika.
+---------
+
+# Fox's Complete Fall 2026 Schedule
+
+Network TV, FOX
+
+Sun, 19 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/fox-complete-fall-2026-schedule/
+
+As the 2026-2027 TV cycle nears, Fox has officially unveiled its primetime programming this upcoming fall, and it features a lot of good shows.
+---------
+
+# Jason Bateman's 10-Part Horror Thriller Is the Tightest Adaptation of a Stephen King Novel
+
+TV, The Outsider, Horror, Stephen King, HBO Max
+
+Sun, 19 Jul 2026 16:30:15 GMT
+
+https://www.cbr.com/the-outsider-best-stephen-king-tv-adaptation/
+
+While many Stephen King stories have been adapted for TV, only one series is truly the best, and it's wildly underrated.
+---------
+
+# 5 Classic Toonami Anime That Are Unwatchable Today
+
+Anime, toonami, Cartoon Network
+
+Sun, 19 Jul 2026 16:15:15 GMT
+
+https://www.cbr.com/unwatchable-classic-toonami-anime/
+
+Some of the best Toonami series are regrettably no longer watchable these days.
+---------
+
+# The Odyssey Officially Defeats The Dark Knight Rises as Christopher Nolan's Biggest Debut
+
+Movies, The Odyssey, Christopher Nolan, box office
+
+Sun, 19 Jul 2026 16:10:55 GMT
+
+https://www.cbr.com/the-odyssey-box-office-christopher-nolan-biggest-debut/
+
+One of the most anticipated films of the year has officially delivered.
+---------
+
+# Kenneth Branagh's $137M Agatha Christie Sequel Returns as a Netflix Global Sensation 4 Years Later
+
+Movies, Death on the Nile, Netflix, Mystery
+
+Sun, 19 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/agatha-christie-death-on-the-nile-mystery-netflix-success-july-2026/
+
+Kenneth Branagh's adaptation of one of Agatha Christie's most popular crime novels, Death on the Nile, is a global hit on Netflix 4 years later.
+---------
+
+# 5 Greatest Soft Sci-Fi Of the 21st Century, Ranked
+
+Movies, Sci-Fi, Mad Max, Children of Men
+
+Sun, 19 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/best-soft-sci-fi-of-21st-century-list/
+
+The soft side of the sci-fi genre continues to show the versatility of cinema, wooing audiences with deeply relatable and humanist stories.
+---------
+
+# 7 Forgotten Heist Movies That Are Perfect From Start to Finish
+
+Movie, Crime, Logan Lucky, The Score, Thief
+
+Sun, 19 Jul 2026 16:41:14 GMT
+
+https://collider.com/forgotten-heist-movies-perfect-start-to-finish/
+
+From the Jason Statham hidden classic The Bank Job to Michael Mann's early film Thief, these forgotten heist movies are practically flawless.
+---------
+
+# 2026’s Latest Billion-Dollar Blockbuster Officially Overtakes 'The Dark Knight'
+
+Movie News, The Dark Knight, Michael, Box Office, Christopher Nolan
+
+Sun, 19 Jul 2026 16:15:15 GMT
+
+https://collider.com/michael-box-office-overtakes-the-dark-knight-worldwide-1-billion/
+
+The controversial Michael Jackson biopic Michael overtakes The Dark Knight’s worldwide box office total after surpassing $1 billion.
+---------
+
+# Netflix's Straw Hat Pirates Are Officially Setting Sail for a New 'One Piece' Special [Exclusive]
+
+TV News, One Piece, Netflix, Mackenyu, Emily Rudd
+
+Sun, 19 Jul 2026 16:00:15 GMT
+
+https://collider.com/lego-one-piece-netflix-animated-special-cast-inaki-godoy-mackenyu/
+
+The main cast of Netflix's One Piece is returning once more for a LEGO special this fall, and new images reveal them in fresh brick forms.
+---------
+
+# Liam Neeson's 'The Commuter' Departs Free Streaming in August
+
+Movie News, The Commuter, Liam Neeson, Coming/Leaving Streaming
+
+Sun, 19 Jul 2026 16:37:24 GMT
+
+https://movieweb.com/liam-neeson-commuter-leaves-free-streaming-pluto-august-2026/
+
+People need to learn to leave Liam Neeson alone.
+---------
+
+# Dane DeHaan Crime Thriller 'Wardriver' Tops Paramount+ with Little Fanfare
+
+Movie News, Wardriver
+
+Sun, 19 Jul 2026 16:29:11 GMT
+
+https://movieweb.com/wardriver-paramount-plus-ratings-hit/
+
+Dane DeHaan's cyber-thriller 'Wardriver' surprises by climbing to the top of Paramount+'s film chart, surpassing 'Top Gun: Maverick' and 'The Contractor'.
+---------
+
+# HBO Scores Big With Muted Horror That’s Proven Divisive on Rotten Tomatoes
+
+Movie News, undertone
+
+Sun, 19 Jul 2026 16:22:07 GMT
+
+https://movieweb.com/undertone-2026-hbo-max/
+
+The A24 release has found success on streaming, climbing the ratings charts despite a split Rotten Tomatoes score.
+---------
+
+# Star Trek's Stardates Explained: How They're Calculated & What They Mean
+
+Features, Star Trek
+
+Sun, 19 Jul 2026 16:00:12 GMT
+
+https://movieweb.com/star-trek-stardates-explained/
+
+Stardates are a cool part of Star Trek lore, but do they make sense? Read for more.
+---------
+
 # Karl Urban And Val Kilmer Made An Incredible Western Nobody Talks About Now
 
 TV, Masked Recs
@@ -5254,246 +5496,4 @@ Sat, 18 Jul 2026 02:39:57 GMT
 https://movieweb.com/best-game-of-thrones-franchise-characters-ranked/
 
 Who's the best of the best in Westeros?
----------
-
-# Big Brother 28: Week 2 Nominations Made By HOH (SPOILERS)
-
-Reality TV, Big Brother
-
-Sat, 18 Jul 2026 00:39:58 GMT
-
-https://screenrant.com/big-brother-28-week-2-nominations-made-by-hoh-spoilers/
-
-Big Brother 28 Head of Household Rick Devens nominated Lyric, Jason, and Melody for eviction in week 2, shaking up the game and creating major chaos.
----------
-
-# Marvel Reveals The Punisher's New Costume For Frank Castle's Next Appearance
-
-Marvel Comics, The Punisher
-
-Sat, 18 Jul 2026 00:31:56 GMT
-
-https://screenrant.com/punisher-new-costume-next-appearance/
-
-Frank Castle ditches his iconic skull-emblazoned costume for a stealthy look as he faces off against the Hulk and Spider-Man for the first time.
----------
-
-# Brandon Sanderson's Mistborn Series Isn't The Fantasy You Think It Is
-
-Books, Brandon Sanderson, Mistborn
-
-Sat, 18 Jul 2026 00:10:27 GMT
-
-https://screenrant.com/brandon-sanderson-mistborn-books-fantasy-sci-fi/
-
-The Mistborn book series by Brandon Sanderson might technically be classified as "high fantasy," but they are so much more than that.
----------
-
-# Netflix's 8-Part Sci-Fi Series With High RT Score Is The Perfect Weekend Binge
-
-TV, Masked Recs
-
-Sat, 18 Jul 2026 00:04:54 GMT
-
-https://screenrant.com/bodies-netflix-sci-fi-series-must-watch/
-
-Netflix's 8-episode Sci-Fi series will take viewers on a mind-bending and atmospheric ride, as a murder investigation takes quite the turn.
----------
-
-# 10 Marvel Shows To Watch Before Spider-Man: Brand New Day
-
-Streaming TV, Spider-Man: Brand New Day
-
-Sat, 18 Jul 2026 00:03:11 GMT
-
-https://screenrant.com/marvel-shows-to-watch-before-spider-man-brand-new-day/
-
-Before you watch Spider-Man: Brand New Day, you need to catch up on Daredevil, The Punisher, and maybe even X-Men: The Animated Series.
----------
-
-# 10 Strongest Hell's Paradise Characters Of All Time, Ranked
-
-Anime, Hell's Paradise: Jigokuraku
-
-Sat, 18 Jul 2026 00:00:11 GMT
-
-https://screenrant.com/hells-paradise-jigokuraku-strongest-characters-list/
-
-Hell's Paradise holds a good number of logic-defying powerful characters, so here are the anime and manga's strongest characters of the series.
----------
-
-# 17 Most Fun-To-Play Class Builds In Baldur's Gate 3
-
-Gaming, Baldur's Gate 3, Baldur's Gate, PC, Triple-A Games
-
-Sat, 18 Jul 2026 00:00:11 GMT
-
-https://screenrant.com/baldurs-gate-3-most-fun-classes/
-
-When creating a Baldur's Gate 3 character is can be tempting to try to optimize everything; however, some of the most interesting build put fun first.
----------
-
-# Disney Developing Live-Action Princess And The Frog Remake With Oscar-Nominated Writer
-
-Movies, The Princess and the Frog
-
-Fri, 17 Jul 2026 23:28:26 GMT
-
-https://screenrant.com/dprincess-and-the-frog-live-action-remake-disney-colman-domingo/
-
-Disney is developing a live-action remake for an upcoming live-action adaptation of the hit animated film, Princess and the Frog.
----------
-
-# Spider-Man's Best Villain Design Finally Returns
-
-Marvel Comics, Spider-Man
-
-Fri, 17 Jul 2026 23:17:16 GMT
-
-https://screenrant.com/spider-man-red-goblin-return/
-
-Two of Spider-Man's most ruthless enemies have redeemed themselves, only for them to revert to their old villainous ways when they cross paths again.
----------
-
-# 8 Reasons It’s Hard to Watch Dragon Ball Z Today
-
-Anime, Dragon Ball Z, Dragon Ball, Akira Toriyama, shonen anime
-
-Sat, 18 Jul 2026 00:45:16 GMT
-
-https://www.cbr.com/dragon-ball-z-hard-to-watch-today/
-
-Dragon Ball Z is a classic foundational anime, but it still suffers from its share of issues that become more obvious through a modern lens.
----------
-
-# MCU Star's 7-Part Reacher Replacement Is Officially a Streaming Hit Amid Uncertain Season 2
-
-TV, Man on Fire
-
-Sat, 18 Jul 2026 00:30:15 GMT
-
-https://www.cbr.com/man-on-fire-netflix-success-viewership-report-july-2026/
-
-With an underwhelming reception, the series turned into a major streaming hit.
----------
-
-# Disney Reveals New Star Wars Lightsaber Rule 49 Years Later
-
-TV, Star Wars: Maul - Shadow Lord, Sci-Fi, Star Wars
-
-Sat, 18 Jul 2026 00:30:15 GMT
-
-https://www.cbr.com/star-wars-maul-shadow-lord-lightsaber-sound-change/
-
-Star Wars rewrote the rules for lightsabers--and they just got so much cooler.
----------
-
-# 5 Masterpiece RPG Series With the Best Lore
-
-Games, The Elder Scrolls, Mass Effect, Dark Souls, Video Games, Dragon Age
-
-Sat, 18 Jul 2026 00:30:15 GMT
-
-https://www.cbr.com/masterpiece-rpg-series-best-lore/
-
-The role-playing game genre is home to some of the greatest stories and lore in the history of gaming.
----------
-
-# 2026 Emmys Cut 5 Categories From NBC Telecast in Effort to Boost Ratings
-
-TV, Emmy Awards
-
-Sat, 18 Jul 2026 00:22:27 GMT
-
-https://www.cbr.com/emmys-drops-5-categories-nbc-broadcast/
-
-This year's Primetime Emmy Awards will be undergoing some changes for its televised ceremony.
----------
-
-# Jujutsu Kaisen Is Back With First Look at 4 Official New Designs
-
-Anime, Jujutsu Kaisen, Jujutsu Kaisen 0, mappa
-
-Sat, 18 Jul 2026 00:20:15 GMT
-
-https://www.cbr.com/jujutsu-kaisen-mappa-15th-anniversary-designs/
-
-Jujutsu Kaisen is joining in on one of the biggest milestones in the anime industry with some brand-new designs.
----------
-
-# 5 Naruto Characters Who Should Have Become Hokage
-
-Anime, Naruto, Naruto: Shippuden, Boruto: Naruto Next Generations
-
-Sat, 18 Jul 2026 00:15:15 GMT
-
-https://www.cbr.com/naruto-characters-should-have-been-hokage/
-
-Naruto constantly shows that the title of Hokage belongs to someone who earns trust through actions rather than reputation and strength.
----------
-
-# Netflix’s R-Rated Steamy Series Is Officially 1 of the Most Popular Shows of 2026
-
-TV, Bridgerton
-
-Sat, 18 Jul 2026 00:00:15 GMT
-
-https://www.cbr.com/netflix-bridgerton-most-popular-show-viewership-report-june-2026/
-
-The steamy series has already been renewed for two more seasons, and the viewership data proves why.
----------
-
-# Mortal Kombat II Finally Succeeds on Streaming
-
-Movies, Mortal Kombat II, Action, HBO Max
-
-Sat, 18 Jul 2026 00:00:15 GMT
-
-https://www.cbr.com/mortal-kombat-2-action-sequel-streaming-success-hbo-max/
-
-After a disappointing box office run, Mortal Kombat II is finally finding new success on streaming.
----------
-
-# Game-Breaking D&D Villains To Challenge Your Players With
-
-Games, Dungeons and Dragons, Tabletop, Dungeons & Dragons, Gaming
-
-Sat, 18 Jul 2026 00:00:15 GMT
-
-https://www.cbr.com/game-breaking-dnd-villains/
-
-Dungeons & Dragons has no shortage of incredible villains to throw at the party, but a select few provide the greatest challenge of all.
----------
-
-# Russell Crowe Officially Returns to Netflix Following ‘Nuremberg’s Success
-
-Movie News, The Exorcism, Russell Crowe, Horror, Netflix
-
-Sat, 18 Jul 2026 00:45:15 GMT
-
-https://collider.com/russell-crowe-horror-movie-the-exorcism-streaming-netflix-july-28-2026/
-
-The critically panned horror film The Exorcism, starring Russell Crowe, is coming to Netflix soon. Find out when you can watch it.
----------
-
-# Only 1 Video Game Is Perfect for an ‘Arcane’-Style Adaptation
-
-TV Features, Overwatch, Arcane, Netflix, Video Game
-
-Sat, 18 Jul 2026 00:39:15 GMT
-
-https://collider.com/overwatch-video-game-arcane-style-adaptation/
-
-Overwatch is the ideal choice for an Arcane-inspired adaptation, with its extensive lore, passionate fanbase, and untapped storytelling potential.
----------
-
-# 7 Years Later, Octavia Spencer Officially Confirms the Status of Her Cult Classic Thriller
-
-Movie News, Ma, Blumhouse, Thriller, Octavia Spencer
-
-Sat, 18 Jul 2026 00:30:15 GMT
-
-https://collider.com/blumhouse-ma-2-sequel-update-octavia-spencer/
-
-Octavia Spencer’s viral Blumhouse thriller is finally moving toward a sequel, with the team taking its time to bring back the cult favorite.
 ---------
