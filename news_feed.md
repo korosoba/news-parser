@@ -1,3 +1,245 @@
+# Homelander's Best Line Is the Most Misunderstood Quote in The Boys History
+
+Comics, The Boys
+
+Sun, 19 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/boys-homelander-best-line-quote/
+
+"The only man in the sky is me."
+---------
+
+# FX's 7-Part Crime Thriller Was So Good They Made The Same Story Again, Backwards
+
+Classic TV, Masked Recs
+
+Sun, 19 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/sons-of-anarchy-story-mayans-mc-backwards/
+
+FX's biker thriller Sons of Anarchy was such a success that the world was explored further, with a sequel that focused on the original antagonists.
+---------
+
+# The Elder Scrolls: Elsweyr Officially Releases November 2026
+
+Gaming, The Elder Scrolls, The Elder Scrolls 6, The Elder Scrolls V: Skyrim, The Elder Scrolls IV: Oblivion Remastered, PC
+
+Sun, 19 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/elder-scrolls-elsweyr-heroes-of-tamriel-november-2026/
+
+The Elder Scrolls: Elsweyr is officially set to release in November 2026 as part of the massive Heroes of Tamriel expansion.
+---------
+
+# I Finally Watched Avatar: Fire And Ash, And I'm More Confused By The Reviews Than Ever
+
+Movies, Avatar: Fire and Ash
+
+Sun, 19 Jul 2026 21:55:11 GMT
+
+https://screenrant.com/avatar-fire-and-ash-reviews-plot-female-characters/
+
+The reviews of the latest addition to James Cameron's award-winning franchise Avatar, Avatar: Fire and Ash, are missing some major details.
+---------
+
+# very Marvel & DC Character Parodied In Amazon's Series
+
+Streaming TV, The Boys
+
+Sun, 19 Jul 2026 21:54:52 GMT
+
+https://screenrant.com/boys-amazon-marvel-dc-hero-character-parody/
+
+Prime Video’s The Boys is an often brutal parody of the superhero genre, and DC and Marvel's finest inspire some of its main superheroes.
+---------
+
+# The Walking Dead’s Daryl Dixon Spinoff Is Built For A Netflix Binge
+
+Streaming TV, The Walking Dead: Daryl Dixon
+
+Sun, 19 Jul 2026 21:45:11 GMT
+
+https://screenrant.com/netflix-the-walking-dead-daryl-dixon-season-3-watch/
+
+The Walking Dead: Daryl Dixon is built for a Netflix weekend binge following the addition of its third season on July 19, months after its premiere.
+---------
+
+# Hulu’s 5-Part Dark Fantasy Series Is As Close To Perfect As Spinoffs Get
+
+Classic TV, Masked Recs
+
+Sun, 19 Jul 2026 21:30:11 GMT
+
+https://screenrant.com/angel-buffy-spinoff-close-to-perfect/
+
+Many modern spin-offs can't escape the shadow of their parent shows, but one supernatural saga from the late 90s remains the blueprint for success.
+---------
+
+# When Will The Odyssey Be Available On Streaming?
+
+New Movies, The Odyssey
+
+Sun, 19 Jul 2026 21:30:11 GMT
+
+https://screenrant.com/the-odyssey-streaming-release-home-video/
+
+The Odyssey is playing in theaters worldwide, but it will come to streaming, digital, and Blu-ray later. Here's what we know about each release.
+---------
+
+# Spider-Man: Brand New Day's New Spider-Sense Details Reveal A Major Change
+
+Movies, Spider-Man: Brand New Day
+
+Sun, 19 Jul 2026 21:24:51 GMT
+
+https://screenrant.com/spider-man-brand-new-day-new-spider-sense-change/
+
+Spider-Man: Brand New Day's director revealed at an exclusive event that the upcoming film's spider-sense would be different from previous versions.
+---------
+
+# Time Is Running Out to Watch Tobey Maguire's Spider-Man Trilogy as It's Losing Its Streaming Home Soon
+
+Movies, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man 2, Spider-Man 3, Spider-Man: Brand New Day, Spider-Man: No Way Home
+
+Sun, 19 Jul 2026 22:10:03 GMT
+
+https://www.cbr.com/time-is-running-out-to-watch-tobey-maguires-spider-man-trilogy-as-its-losing-its-streaming-home-soon/
+
+This is terrible news for fans of Tobey Maguire's iconic Spider-Man trilogy.
+---------
+
+# The 10 Best Epic Movies of the 1980s, Ranked
+
+Movies
+
+Sun, 19 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/best-epic-movies-1980s-ranked-list/
+
+Following in the tradition of classics like Lawrence of Arabia, the 1980s unleashed some of the greatest epic movies audiences have ever seen.
+---------
+
+# 5 Most Overrated Mecha Anime Not Worth the Hype
+
+Anime, Code Geass: Lelouch of the Rebellion, Mobile Suit Gundam SEED Destiny, mecha
+
+Sun, 19 Jul 2026 21:15:15 GMT
+
+https://www.cbr.com/overrated-mecha-anime-not-worth-hype/
+
+Anime is full of rich and rewarding mecha series, but some of the genre's most popular titles get a little more love than they actually deserve.
+---------
+
+# Brandon Sanderson Officially Returns This Fall With Stormlight: War for Roshar
+
+Games, Brandon Sanderson, The Stormlight Archive
+
+Sun, 19 Jul 2026 21:13:14 GMT
+
+https://www.cbr.com/brandon-sanderson-official-new-release-fall-2026-stormlight/
+
+Brandon Sanderson's latest project, Stormlight: War for Roshar, will be shared with fans later this year.
+---------
+
+# 8 Best Mystery Books Packed With Plot Twists
+
+TV, Mystery, The Hound Of The Baskervilles, Gone Girl, Shutter Island
+
+Sun, 19 Jul 2026 22:03:14 GMT
+
+https://collider.com/mystery-books-most-plot-twists/
+
+Gone Girl, Shutter Island, The Maltese Falcon, and more make up our list of the best mystery books that are packed with plot twists.
+---------
+
+# Apple TV's New 10-Part Hit Is Officially One of Streaming's Biggest Success Stories
+
+TV News, Apple TV, Widow's Bay, Matthew Rhys, Horror
+
+Sun, 19 Jul 2026 22:00:15 GMT
+
+https://collider.com/widows-bay-apple-tv-streaming-success-nielsen-ratings-july-2026/
+
+Apple TV's breakout hit of 2026, the comedy horror series Widow's Bay, debuted on the Nielsen streaming chart in its finale week.
+---------
+
+# 8 Best Steven Spielberg Movies of the 21st Century
+
+Movie, Catch Me If You Can, Steven Spielberg, West Side Story, Minority Report
+
+Sun, 19 Jul 2026 21:55:14 GMT
+
+https://collider.com/best-steven-spielberg-movies-21st-century-ranked/
+
+Minority Report, Munich, and Catch Me if You Can are all among the very best Steven Spielberg movies of the 21st century.
+---------
+
+# ‘The Sopranos’ Never Topped This Masterpiece 60-Minute Episode
+
+TV Features, The Sopranos, James Gandolfini, HBO, Michael Imperioli
+
+Sun, 19 Jul 2026 21:32:14 GMT
+
+https://collider.com/the-sopranos-masterpiece-episode-pine-barrens/
+
+“Pine Barrens” remains the best episode of The Sopranos, combining unforgettable comedy, brilliant character work, and groundbreaking storytelling.
+---------
+
+# Stephen King's New Masterpiece Is Officially One of HBO Max's Biggest Streaming Hits
+
+Movie News, HBO Max, Stephen King, Streaming, The Long Walk
+
+Sun, 19 Jul 2026 21:30:15 GMT
+
+https://collider.com/stephen-king-the-long-walk-streaming-hit-hbo-max-july-2026/
+
+A modern Stephen King masterpiece starring Mark Hamill is a huge hit on HBO Max. Here's everything you should know.
+---------
+
+# 'Invincible' Creator's "Most Violent Superhero Series of the Year' Debuts in 3 Days
+
+Books and Comics, Robert Kirkman, Invincible, X-Men, Superhero
+
+Sun, 19 Jul 2026 21:15:15 GMT
+
+https://collider.com/terminal-robert-kirkman-new-comic-issue-one-release-date-july-22-2026/
+
+Robert Kirkman's new comic book series Terminal, described as Invincible meets X-Men, is about to debut next week.
+---------
+
+# 'Reacher's Sloppiest Character Death Is the Biggest Mistake of the Prime Video Series
+
+TV Features, Reacher, Prime Video, Action, Crime
+
+Sun, 19 Jul 2026 21:14:15 GMT
+
+https://collider.com/reacher-season-3-agent-eliot-death-biggest-mistake/
+
+The death of Agent Eliot in Reacher Season 3 feels preventable, showcasing a major misstep that undermines the competence of the heroes.
+---------
+
+# Prime’s Streaming Smash Series Has Been Trending For 2 Months
+
+Features, Off Campus, Prime Video
+
+Sun, 19 Jul 2026 22:00:12 GMT
+
+https://movieweb.com/off-campus-prime-video-must-watch/
+
+Amazon Prime Video has a TV series that is perfect summer entertainment and that has been popular since it was released two months ago.
+---------
+
+# Every Monster Odysseus Faces in 'The Odyssey' & How They Differ From the Book
+
+Movie Lists, The Odyssey
+
+Sun, 19 Jul 2026 21:30:12 GMT
+
+https://movieweb.com/monsters-trials-the-odyssey-book-differences/
+
+From the Cyclops to the Sirens, how does Christopher Nolan's vision line up with Odysseus's trials in Homer's epic poem?
+---------
+
 # Charlie Hunnam's New Character Is The Anti Jax Teller
 
 Streaming TV, Masked Recs
@@ -5254,246 +5496,4 @@ Sat, 18 Jul 2026 14:00:15 GMT
 https://collider.com/batman-caped-crusader-season-2-release-date/
 
 The Dark Knight returns when Batman: Caped Crusader Season 2 releases all 10 episodes on Prime Video this month.
----------
-
-# ‘Saturday Night Live UK’ Is Quietly Fixing the Biggest Problem of Today's Comedy Hits
-
-TV Features, Saturday Night Live UK, Saturday Night Live, BBC, SNL
-
-Sat, 18 Jul 2026 13:52:15 GMT
-
-https://collider.com/snl-saturday-night-live-uk-changing-british-comedy/
-
-Saturday Night Live UK arrived at the right time to serve as a blueprint for an alternative way for traditional broadcasters to make a comedy hit.
----------
-
-# 7 Movies That Clearly Influenced 'The Invite'
-
-Movie, The Invite, 12 Angry Men, The Graduate, Who's Afraid of Virginia Woolf?
-
-Sat, 18 Jul 2026 13:41:14 GMT
-
-https://collider.com/the-invite-movie-influences/
-
-The cinematic influence of movies like Who's Afraid of Virginia Woolf? and 12 Angry Men are found in the DNA of Olivia Wilde's comedy, The Invite.
----------
-
-# $497M Historical Epic Rides ‘The Odyssey’s Coattails to Streaming Success
-
-Movie News, The Odyssey, Troy, Christopher Nolan, Brad Pitt
-
-Sat, 18 Jul 2026 13:15:15 GMT
-
-https://collider.com/the-odyssey-christopher-nolan-troy-movie-streaming-success-july-2026/
-
-Christopher Nolan’s The Odyssey sends the historical epic he nearly directed skyrocketing back up the streaming charts.
----------
-
-# Jake Gyllenhaal's 'Road House' Remake Becomes Streaming Hit
-
-Movie News, Jake Gyllenhaal, Road House, Hot on Streaming
-
-Sat, 18 Jul 2026 14:09:59 GMT
-
-https://movieweb.com/road-house-remake-prime-video-streaming-hit-july-2026/
-
-Two years after its original release, the Amazon MGM Studios original has found a much-deserved second life on streaming.
----------
-
-# 'NCIS' Icons Officially Return to the Franchise in All-New Photos
-
-TV News, NCIS, NCIS: Origins, NCIS: New York
-
-Sat, 18 Jul 2026 14:01:27 GMT
-
-https://movieweb.com/ncis-icons-return-to-franchise-all-new-photos/
-
-Fresh photos from across the 'NCIS' universe spotlight the franchise’s latest wave of returns.
----------
-
-# Netflix's Best Fantasy Series Since 'The Witcher' Was Cancelled Too Soon
-
-Features, Lockwood & Co., Netflix, Crime, Fantasy, Thriller, Action, The Witcher
-
-Sat, 18 Jul 2026 14:00:12 GMT
-
-https://movieweb.com/lockwood-co-netflix-cancelled-too-soon/
-
-Three years ago, Netflix made the mistake of cancelling 'Lockwood & Co.' after only one season, even though it was a huge success.
----------
-
-# Mia Goth's Forgotten R-Rated Post-Apocalyptic Thriller Resurfaces on Free Streaming 11 Years Later
-
-Movie News, Mia Goth, The Survivalist, Coming/Leaving Streaming, Thriller
-
-Sat, 18 Jul 2026 14:00:12 GMT
-
-https://movieweb.com/mia-goth-the-survivalist-thriller-streaming-free-tubi-august-2026/
-
-Before 'The Odyssey,' Mia Goth made a name for herself in a forgotten thriller that's set to return to free streaming next month.
----------
-
-# James Cameron's 'Aliens' Celebrated in New Deluxe Coffee Table Book
-
-Movie News, Aliens
-
-Sat, 18 Jul 2026 13:52:07 GMT
-
-https://movieweb.com/james-cameron-aliens-deluxe-book/
-
-As 'Aliens' turns 40, a new commemorative release is on the way for the movie's generations of fans.
----------
-
-# 8 Best Vincent Price Movies No One Ever Talks About
-
-Movies, Horror, Vincent Price
-
-Sat, 18 Jul 2026 12:55:11 GMT
-
-https://screenrant.com/vincent-price-movies-best-no-one-talks-about/
-
-Vincent Price starred in far more than a few horror classics. These overlooked gems showcase the legendary actor at his most entertaining.
----------
-
-# 5 Brilliant Far Side Comics Starring Albert Einstein
-
-Comics, The Far Side
-
-Sat, 18 Jul 2026 12:35:11 GMT
-
-https://screenrant.com/far-side-einstein-cameos-funniest-cartoons/
-
-The famous scientist's best Far Side cameos.
----------
-
-# MCU's Original Vulture Casting Would Have Killed Tom Holland's Spider-Man Series Before It Began
-
-Movies, Spider-Man: Homecoming, Spider-Man, Marvel Cinematic Universe, Lin-Manuel Miranda
-
-Sat, 18 Jul 2026 12:30:11 GMT
-
-https://screenrant.com/mcu-spider-man-homecoming-vulture-original-casting-ruin-series/
-
-Spider-Man: Homecoming nearly cast Lin-Manuel Miranda as Vulture instead of Michael Keaton, and it would have been awful for the MCU's best series.
----------
-
-# Hogwarts Legacy Fans, Mark Your Calendars For September 1
-
-Gaming, Hogwarts Legacy
-
-Sat, 18 Jul 2026 12:30:11 GMT
-
-https://screenrant.com/hogwarts-legacy-september-2026-back-to-hogwarts/
-
-Fans are speculating that Hogwarts Legacy 2 may be announced on September 1, traditionally 'Back to Hogwarts Day.'
----------
-
-# All 14 Spider-Man TV Series, Ranked
-
-Superheroes, Spider-Man, Marvel Cinematic Universe, Spider-Man: The Animated Series, Your Friendly Neighborhood Spider-Man, Spider-Noir, The Spectacular Spider-Man, The Amazing Spider-Man
-
-Sat, 18 Jul 2026 12:30:11 GMT
-
-https://screenrant.com/every-spiderman-tv-show-ranked/
-
-From the iconic 1994 Spider-Man: TAS, to Spider-Noir and Japanese Spider-Man, Spider-Man’s television history has had its highs and lows.
----------
-
-# Star Trek: Strange New Worlds Season 4 Will Be The End Of An Era
-
-TV, Star Trek, Star Trek: Strange New Worlds
-
-Sat, 18 Jul 2026 12:00:12 GMT
-
-https://screenrant.com/star-trek-strange-new-worlds-season-4-last-10-episodes/
-
-Star Trek: Strange New Worlds season 4 isn't the final season, but it does mark a specific end for the prequel as it makes a big change in season 5.
----------
-
-# Crunchyroll Just Dropped 2026's Cutest Anime
-
-Anime, Crunchyroll, Masked Recs
-
-Sat, 18 Jul 2026 12:00:12 GMT
-
-https://screenrant.com/crunchyroll-cat-dragon-2026-custest-anime/
-
-Looking for a cute and wholesome anime to pass the time? Crunchyroll has you covered, with this new anime that is the most adorable series of 2026.
----------
-
-# The Witcher: No Man's Land Officially Arrives This Year
-
-Gaming, The Witcher
-
-Sat, 18 Jul 2026 12:00:12 GMT
-
-https://screenrant.com/witcher-no-mans-land-fall-2026/
-
-Discover the highly anticipated The Witcher: No Man's Land skirmish wargame, set to launch this Fall 2026.
----------
-
-# 10 Greatest 1970s Horror Movies Nobody Talks About
-
-Movies, Horror, Demons of the Mind, Death Line, The Creeping Flesh, Frankenstein and the Monster from Hell, Vampyres, Frightmare, Full Circle, Prey, The Shout
-
-Sat, 18 Jul 2026 12:00:12 GMT
-
-https://screenrant.com/best-1970s-horror-movies-nobody-talks-about/
-
-The 1970s produced more than just horror classics. These overlooked gems delivered chilling scares, strange ideas, and unforgettable atmosphere.
----------
-
-# 3 Hard Fantasy Shows That Are Required Viewing
-
-TV, House of the Dragon, Fantasy, Game Of Thrones, His Dark Materials
-
-Sat, 18 Jul 2026 12:30:15 GMT
-
-https://www.cbr.com/essential-hard-fantasy-shows-list/
-
-While there are many excellent hard fantasy shows on TV, only a few are essential viewing for genre fans.
----------
-
-# Absolute Batman Confirmed To Change Drastically With Midpoint Issue
-
-Comics, Absolute Batman, Batman
-
-Sat, 18 Jul 2026 12:00:16 GMT
-
-https://www.cbr.com/absolute-batman-midpoint-change-confirmed/
-
-Scott Snyder drops another update about Absolute Batman's future.
----------
-
-# Confirmed: The Best 2010 Cartoon Network Show Gets  New Spinoff
-
-Comics, Ben 10, Cartoon Network
-
-Sat, 18 Jul 2026 12:00:16 GMT
-
-https://www.cbr.com/ben-10-creator-files-october-release-confirmed/
-
-One of Cartoon Network's longest-running and most successful franchises is making a surprising new return, sooner than expected.
----------
-
-# Over 40 Years Later, Horror Still Hasn’t Topped This Movie's Perfect Ending
-
-Horror, The Thing, John Carpenter, John Carpenter's The Thing
-
-Sat, 18 Jul 2026 12:46:15 GMT
-
-https://collider.com/john-carpenter-the-thing-horror-best-ending/
-
-More than 40 years later, The Thing still has the greatest ending in horror history.
----------
-
-# Forget 'Bosch,' Billy Bob Thornton's 4-Part Crime Hit Is Taking Over Prime Video
-
-TV News, Goliath, Bosch, Billy Bob Thornton, Prime Video
-
-Sat, 18 Jul 2026 12:45:15 GMT
-
-https://collider.com/billy-bob-thornton-goliath-streaming-success-prime-video-july-2026/
-
-Bosch fans are discovering a new favorite show in Goliath, the Billy Bob Thornton-led drama streaming on Prime Video.
 ---------
