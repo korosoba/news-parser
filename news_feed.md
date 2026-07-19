@@ -1,3 +1,179 @@
+# Anne Hathaway Gives Major Update On Long-Awaited Sequel 22 Years Later
+
+Movies, The Princess Diaries 3
+
+Sun, 19 Jul 2026 17:56:43 GMT
+
+https://screenrant.com/anne-hathaway-princess-diaries-3-production-update/
+
+Anne Hathaway is Hollywood royalty and has now given an interesting update regarding the future of a 25-year-old franchise and its sequel.
+---------
+
+# Prime Video's New Stephen King Series Will Be Stranger Things But WAY Bloodier
+
+Streaming TV, Masked Recs
+
+Sun, 19 Jul 2026 17:30:11 GMT
+
+https://screenrant.com/carrie-stephen-king-prime-video-series-stranger-things-bloody/
+
+Based on an iconic Stephen King novel, Prime Video's Stranger Things replacement promises to be much darker than the popular Netflix show.
+---------
+
+# How Every Christopher Nolan Movie Foreshadows The Odyssey
+
+Movies, The Odyssey, Christopher Nolan
+
+Sun, 19 Jul 2026 17:15:11 GMT
+
+https://screenrant.com/how-every-christopher-nolan-movie-foreshadows-the-odyssey-connections-and-parallels/
+
+The Odyssey is now playing in theaters, feeling very much like the culmination of Christopher Nolan's entire filmmaking career thus far.
+---------
+
+# 4-Part Superhero Series On Netflix Beats Marvel At Its Own Game
+
+Network TV, Masked Recs, Heroes
+
+Sun, 19 Jul 2026 17:00:11 GMT
+
+https://screenrant.com/heroes-season-1-beat-marvel-at-own-game/
+
+Before Marvel brought heroes together for Avengers films, NBC's Heroes set a precedent for how to do it the best, and is now streaming on Netflix.
+---------
+
+# Power Rangers Officially Return In A Major Way On July 28
+
+Gaming, Power Rangers, Triple-A Games, PlayStation Plus
+
+Sun, 19 Jul 2026 17:00:11 GMT
+
+https://screenrant.com/power-rangers-ritas-rewind-ps-plus-july-28/
+
+Power Rangers is giving one of its installments with the greatest potential another shot at success, and it'll be available to millions.
+---------
+
+# HBO's Harry Potter Biggest Criticism Addressed by Cinematographer
+
+TV, Harry Potter
+
+Sun, 19 Jul 2026 17:30:55 GMT
+
+https://www.cbr.com/hbo-harry-potter-color-grading-criticism-cinematographer/
+
+The series will premiere in December, but it has already received criticism.
+---------
+
+# CBS Confirms Tracker Is Abandoning Justin Hartley's Original Formula for Good
+
+TV, Tracker
+
+Sun, 19 Jul 2026 17:30:15 GMT
+
+https://www.cbr.com/tracker-season-3-finale-change-justin-hartley-show/
+
+Justin Hartley's CBS show is unrecognizable in the finale of Tracker Season 3, as its supernatural premise turns a corner for Colter Shaw.
+---------
+
+# 10 Best Leader Cards In the One Piece TCG
+
+Games, One Piece, TCG, Tabletop
+
+Sun, 19 Jul 2026 17:15:15 GMT
+
+https://www.cbr.com/best-leader-cards-one-piece-tcg/
+
+From Luffy to Zoro, these One Piece TCG Leader cards are pivotal for building a winning deck.
+---------
+
+# Prime Video's 2-Season Reacher Replacement Finds Global Success on Paramount+ as Fans Await New Episodes
+
+TV, Cross, Prime Video, Crime
+
+Sun, 19 Jul 2026 17:01:14 GMT
+
+https://www.cbr.com/prime-video-alex-cross-crime-drama-paramount-success-july-2026/
+
+Prime Video's crime drama based on James Patterson's best-selling book series, Cross, is now a global hit on Paramount+.
+---------
+
+# Riverdale Is Officially Returning After the End of the Divisive Live-Action Series
+
+Comics, Riverdale, oni press
+
+Sun, 19 Jul 2026 17:01:14 GMT
+
+https://www.cbr.com/oni-press-riverdale-sabrina-jughead-compact-editions-release-date/
+
+A special new release will take fans back into Riverdale with some familiar faces.
+---------
+
+# Voltron Turns to the Dark Side With a Limited-Edition Mecha Collectible
+
+Anime, Voltron, Voltron: Legendary Defender, merchandise, toys
+
+Sun, 19 Jul 2026 17:01:14 GMT
+
+https://www.cbr.com/voltron-legendary-defenders-carbotix-black-blitzway/
+
+Voltron, one of the most iconic giant robots of all time, gets a dark new premium collectible based on its most recent animated adaptation.
+---------
+
+# 3 Years After Ending, This 145-Episode Spy Adventure Series Is Already Considered a Classic
+
+TV Features, Archer, Jessica Walter, H. Jon Benjamin, FX
+
+Sun, 19 Jul 2026 17:58:14 GMT
+
+https://collider.com/archer-tv-show-fx-spy-adventure-classic/
+
+3 years after its series finale, FX's Archer stands as one of television's best comedies with its sharp wit, crude jokes, and unexpected heart.
+---------
+
+# 10 Best Mindless Horror Movies of All Time
+
+Movie, Evil Dead II, Grindhouse, Gremlins, Dead Alive
+
+Sun, 19 Jul 2026 17:03:14 GMT
+
+https://collider.com/best-mindless-horror-movies-all-time-ranked/
+
+Mindless and easy-to-watch horror movies can be great, as classics like Gremlins, Evil Dead II, and The Return of the Living Dead all demonstrate.
+---------
+
+# Deadpool Officially Returns With New X-Men Release This Month
+
+Collectibles, Deadpool, X-Men: The Animated Series, X-Men '97, Ryan Reynolds
+
+Sun, 19 Jul 2026 17:01:14 GMT
+
+https://collider.com/deadpool-mondo-figure-x-men-the-animated-series-release-date-san-diego-comic-con-july-2026/
+
+Mondo has released a new Deadpool figure based on his appearance in X-Men: The Animated Series launching at San Diego Comic-Con later this month.
+---------
+
+# Anne Hathaway Offers Major 'Princess Diaries 3' Update
+
+Movie News, The Princess Diaries, The Princess Diaries 3, Anne Hathaway
+
+Sun, 19 Jul 2026 17:44:54 GMT
+
+https://movieweb.com/princess-diaries-3-storyline-breakthrough/
+
+Anne Hathaway says the 'Princess Diaries 3' script was scrapped and rebuilt, and that her third pregnancy has pushed filming further out.
+---------
+
+# One of the Best Sci-Fi Action Movies of All Time Is on YouTube for Free
+
+Features, Sci-Fi, Terminator 2
+
+Sun, 19 Jul 2026 17:30:12 GMT
+
+https://movieweb.com/terminator-2-best-sci-fi-action-youtube/
+
+While many streaming services have a great selection of sci-fi movies, one of the most beloved is streaming on YouTube for free.
+---------
+
 # Batman Will Break A Golden Dark Knight Rule In 2028
 
 Movies, Batman, The Batman Part II, Dynamic Duo
@@ -5320,180 +5496,4 @@ Sat, 18 Jul 2026 03:30:15 GMT
 https://www.cbr.com/netflix-la-brea-most-bingeable-sci-fi-time-travel-series/
 
 Netflix’s canceled sci-fi offering is a high-concept time-travel mystery that will reel viewers back in time to 10,000 BC.
----------
-
-# Batman’s Most Important Comic Is Forgotten By His Biggest Fans
-
-Comics, Batman, DC Comics, Joker
-
-Sat, 18 Jul 2026 03:30:15 GMT
-
-https://www.cbr.com/batman-1-most-important-comic/
-
-Batman has starred in some of the most important comics ever printed, but one issue stands out ahead of the rest, and it isn’t what you think.
----------
-
-# 7 Classic SNES Games That Are 10/10 Masterpieces
-
-Games, Super Mario World, The Legend of Zelda: A Link to the Past, Nintendo
-
-Sat, 18 Jul 2026 03:15:16 GMT
-
-https://www.cbr.com/classic-snes-games-flawless-masterpieces-list/
-
-The SNES was the introductory console for many kids in the 1990s, and these seven masterpieces served as the foundation of the system's longevity.
----------
-
-# Avatar: The Way of Water Is The Greatest Sci-Fi Sequel of the 21st Century
-
-Movies, Avatar: The Way of Water, Disney, Sci-Fi
-
-Sat, 18 Jul 2026 03:15:16 GMT
-
-https://www.cbr.com/avatar-the-way-of-water-greatest-21st-century-sci-fi-sequel/
-
-This legendary follow-up to one of the biggest sci-fi movies in history is the definitive sequel of the modern age.
----------
-
-# Dragon Ball Unearths Rare 34-Year-Old Art for Original SS Goku vs. Cell Design
-
-Anime, Dragon Ball, weekly shonen jump
-
-Sat, 18 Jul 2026 03:05:15 GMT
-
-https://www.cbr.com/dragon-ball-ss-goku-vs-cell-original-draft/
-
-Original draft artwork by Akira Toriyama featuring one of the earlier appearances of Super Saiyan Goku's transformation has been officially revealed.
----------
-
-# The Vampire Lestat's Delainey Hayles Explains What Fuels Claudia's Anger In Season 3
-
-CBR Exclusives, The Vampire Lestat
-
-Sat, 18 Jul 2026 02:58:28 GMT
-
-https://www.cbr.com/the-vampire-lestat-delainey-hayles-claudia-anger-louis-seance/
-
-Delainey Hayles explains why Claudia directs so much anger at Louis during The Vampire Lestat’s devastating séance scene.
----------
-
-# 10 Best Netflix Anime for Adult Fans
-
-Anime, Netflix, Death Note
-
-Sat, 18 Jul 2026 02:45:15 GMT
-
-https://www.cbr.com/best-netflix-anime-for-adults-list/
-
-Between mature titles like Monster, Death Note, and Kakegurui, Netflix has its share of dark and adult anime for older audiences to enjoy.
----------
-
-# 5 Open-World RPGs Where Side Quests Feel Like Main Quests
-
-Games, The Witcher 3: Wild Hunt, open world, RPG
-
-Sat, 18 Jul 2026 02:15:16 GMT
-
-https://www.cbr.com/open-world-rpgs-side-quests-feel-like-main-quests-list/
-
-The side quests found in these games will make you forget about completing the main story quest for hours on end.
----------
-
-# The American Version of ‘Sailor Moon’ Censored More Than You Realize
-
-TV Features, Sailor Moon, Anime, Pluto TV, Crunchyroll
-
-Sat, 18 Jul 2026 03:22:15 GMT
-
-https://collider.com/sailor-moon-american-series-version-censorship-details/
-
-Sailor Moon’s original U.S. dub censored deaths, LGBTQ+ relationships, and key themes, reshaping the anime for American audiences.
----------
-
-# Forget Batman and Superman, This Fan-Favorite Hero Is DC's Greatest Character
-
-Books and Comics, comic books, Nightwing, DC Comics, Superhero
-
-Sat, 18 Jul 2026 03:09:15 GMT
-
-https://collider.com/nightwing-best-dc-superhero-not-batman-superman/
-
-Most think of the Trinity as the undefeated legends of DC, but Nightwing is actually the greatest character, embodying the best qualities of a hero.
----------
-
-# Harlan Coben’s New Mystery Thriller Is One of Netflix’s Biggest Debuts Ever
-
-TV News, I Will Find You, Harlan Coben, Sam Worthington, Britt Lower
-
-Sat, 18 Jul 2026 02:00:25 GMT
-
-https://collider.com/harlan-coben-netflix-i-will-find-you-streaming-success-july-2026/
-
-Harlan Coben's new Netflix show, I Will Find You, delivered a record-breaking debut for the streamer, according to the latest Nielsen report.
----------
-
-# Agatha Christie’s Darkest Adaptation Is a 3-Part Murder Mystery Done Right
-
-TV Features, And Then There Were None, Agatha Christie, BBC, Charles Dance
-
-Sat, 18 Jul 2026 01:55:15 GMT
-
-https://collider.com/agatha-christie-and-then-there-were-none-2013-adaptation-murder-mystery/
-
-Agatha Christie's And Then There Were None captures the novel's bleak tone and scathing commentary on human nature, delivering a faithful adaptation.
----------
-
-# One of Avatar’s Best Sequels Is Officially Returning in 2026
-
-Gaming News, Avatar 4, Avatar 5, Avatar: Fire and Ash, PlayStation Plus
-
-Sat, 18 Jul 2026 01:45:15 GMT
-
-https://collider.com/avatar-frontiers-of-pandora-playstation-plus-release-date-july-21-2026/
-
-Avatar: Frontiers of Pandora will be available on the PlayStation Plus Game Catalog next week, alongside other notable titles.
----------
-
-# 8 Movie Trilogies That Peak With Their Middle Chapter
-
-Movie, The Empire Strikes Back, Mad Max 2: The Road Warrior, Evil Dead II, The Dark Knight
-
-Sat, 18 Jul 2026 01:41:15 GMT
-
-https://collider.com/movie-trilogies-peak-middle-chapter/
-
-From cult gems like Evil Dead 2 to all-time classics like The Godfather Part II, these middle movies stand as the best in their respective trilogies.
----------
-
-# Evil Dead Fans Can Now Purchase a Life-Sized Bruce Campbell for Halloween
-
-Movie News, Army of Darkness, Bruce Campbell, Evil Dead, Horror
-
-Sat, 18 Jul 2026 01:30:15 GMT
-
-https://collider.com/evil-dead-army-of-darkness-life-size-bruce-campbell-animatronic/
-
-The king is back, baby, as Evil Dead fans can now own a life-size animatronic of Ash Williams just in time for Halloween.
----------
-
-# 3 Years Later, Paramount's 10/10 Fantasy Movie Is a Free Streaming Hit3 Years Later, Paramount's 10/10 Fantasy Movie Is a Free Streaming Hit
-
-Movie News, Paramount, Dungeons and Dragons: Honor among Thieves, Fantasy, Chris Pine
-
-Sat, 18 Jul 2026 01:15:15 GMT
-
-https://collider.com/paramount-fantasy-movie-dungeons-and-dragons-honor-among-thieves-free-streaming-success-pluto-tv-july-2026/
-
-With a 91% critics score and a second life on free streaming, Paramount's fantasy adventure is finally getting the audience it deserves.
----------
-
-# 'Game of Thrones': The 12 Best Franchise Characters, Ranked
-
-TV Lists, Game Of Thrones
-
-Sat, 18 Jul 2026 02:39:57 GMT
-
-https://movieweb.com/best-game-of-thrones-franchise-characters-ranked/
-
-Who's the best of the best in Westeros?
 ---------
