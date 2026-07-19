@@ -1,3 +1,267 @@
+# Xbox Game Pass Members, Mark Your Calendars For July 21
+
+Gaming, Xbox Game Pass
+
+Sun, 19 Jul 2026 05:00:12 GMT
+
+https://screenrant.com/xbox-game-pass-july-21-releases/
+
+A huge, critically acclaimed co-op survival game hits Xbox Game Pass on July 21, and here are all the reasons you'll want to give it a shot.
+---------
+
+# It's Official, Invincible Begins A New Chapter This Month
+
+Gaming, Invincible, Triple-A Games
+
+Sun, 19 Jul 2026 04:01:12 GMT
+
+https://screenrant.com/invincible-rpg-releases-july-30-2026-reminder/
+
+The Invincible series is marching toward its conclusion in the TV realm, but July 30 is a huge day for fans of the franchise.
+---------
+
+# Should You Choose File Not Found Background in Starfield?
+
+Gaming, Starfield
+
+Sun, 19 Jul 2026 03:59:11 GMT
+
+https://screenrant.com/starfield-file-not-found-background-traits-differences/
+
+Out of all the options one can make at the start of their Starfield journey, perhaps none are more mysterious than the File Not Found background.
+---------
+
+# 5 Naruto Villain Designs That Are 10/10 Perfect
+
+Anime, Naruto
+
+Sun, 19 Jul 2026 03:58:04 GMT
+
+https://screenrant.com/best-naruto-villain-design-perfect/
+
+Explore how Naruto's villains have iconic designs that flawlessly reflect their personalities and abilities, making them unforgettable.
+---------
+
+# Whisper It, But Sauron Is The Lord Of The Rings' Biggest Failure
+
+Movies, The Lord of the Rings
+
+Sun, 19 Jul 2026 03:51:24 GMT
+
+https://screenrant.com/lord-of-the-rings-sauron-failure/
+
+Sauron set the standard for the fantasy villain, but it's interesting to consider how much he simply didn't achieve in The Lord of the Rings.
+---------
+
+# One Piece Remake Producer Drops First Season 2 Hint (Exclusive)
+
+Anime, The One Piece
+
+Sun, 19 Jul 2026 03:30:12 GMT
+
+https://screenrant.com/one-piece-remake-season-2-update-george-wada/
+
+The most ambitious anime remake in recent memory has plenty of eyes on its February 2027 release, with many more curious about its future beyond that.
+---------
+
+# 5 Years Later, This Prime Video Crime Thriller Series Is Still One of Streaming's Greatest Masterpieces
+
+TV, Prime Video, Masked Recs
+
+Sun, 19 Jul 2026 03:30:12 GMT
+
+https://screenrant.com/prime-video-thriller-masterpiece-mouse-streaming/
+
+The exceptional quality of this series has cemented its status as one of the best crime thrillers available on Prime Video, long after its premiere.
+---------
+
+# Why Abbott Elementary's "Ava Coleman" Is Credited As One Of The Show's Writers
+
+Network TV, Abbott Elementary
+
+Sun, 19 Jul 2026 03:20:12 GMT
+
+https://screenrant.com/abbott-elementary-ava-coleman-writer-name-explained/
+
+Abbott Elementary credits a writer named "Ava Coleman," but it's not a case of the hit ABC comedy adding a character's name to the team as a joke.
+---------
+
+# After 10 Years, July Is The End Of A Glorious Era For Dragon Ball
+
+Gaming, Dragon Ball, Dragon Ball Xenoverse 2
+
+Sun, 19 Jul 2026 03:18:32 GMT
+
+https://screenrant.com/dragon-ball-xenoverse-2-end-era/
+
+ragon Ball Xenoverse 2's 10-year era comes to a close with the release of its final DLC, ahead of the highly anticipated Dragon Ball Xenoverse 3.
+---------
+
+# Sean Bean's New Western Thriller With Villain Role Debuts To Solid Rotten Tomatoes Score
+
+Movies, Masked Recs, Sean Bean
+
+Sun, 19 Jul 2026 03:16:36 GMT
+
+https://screenrant.com/sean-bean-the-isolate-thief-rotten-tomatoes-score/
+
+The award-winning actor Sean Bean is back to playing a major villain in a new Western thriller, which just debuted to a solid Rotten Tomatoes score.
+---------
+
+# 10 Modern Anime Series Every New Fan Needs to Watch Once
+
+Anime, Cyberpunk: Edgerunners, Vinland Saga
+
+Sun, 19 Jul 2026 03:45:15 GMT
+
+https://www.cbr.com/best-modern-anime-series-for-new-fans/
+
+New-gen anime like Cyberpunk: Edgerunners and Vinland Saga are must-watches for beginner anime fans.
+---------
+
+# It’s Officially the End of an Era for the Mummy Movies
+
+Movies, The Mummy, The Mummy 4
+
+Sun, 19 Jul 2026 03:40:15 GMT
+
+https://www.cbr.com/the-mummy-4-end-of-era-timeline-change/
+
+Making several timeline changes, the upcoming sequel in The Mummy franchise will ignore the mistakes of its past to become a long-awaited trilogy.
+---------
+
+# 5 Stephen King Books Better Than IT
+
+TV, Stephen King, It, Horror
+
+Sun, 19 Jul 2026 03:30:15 GMT
+
+https://www.cbr.com/best-stephen-king-books-better-than-it-list/
+
+Stephen King's IT is certainly the most popular of his adaptations, but as far as the books go, it's a far cry from being the Horror Master's best.
+---------
+
+# Bandai Re-Releases 3 Johnny Ridden Gunpla Kits for the Gelgoog and Zaku II
+
+Anime, Mobile Suit Gundam, merchandise, bandai, toys
+
+Sun, 19 Jul 2026 03:30:15 GMT
+
+https://www.cbr.com/gundam-johnny-ridden-gunpla-bandai-re-release/
+
+Three Gundam plastic model kits based on a classic spinoff are receiving a re-release, with all of them based on mechs piloted by Johnny Ridden.
+---------
+
+# 10 Best Open-World Action RPGs of All Time, Officially Ranked
+
+Games, open world, RPG
+
+Sun, 19 Jul 2026 03:15:15 GMT
+
+https://www.cbr.com/best-open-world-action-rpgs-all-time-official-ranked-list/
+
+Open-world action RPGs like The Witcher 3 and Elden Ring are true masterpieces.
+---------
+
+# Tom Welling's Remake of 46-Year-Old John Carpenter Horror Movie Is Streaming for Free
+
+Movies, The Fog
+
+Sun, 19 Jul 2026 03:04:37 GMT
+
+https://www.cbr.com/tom-welling-the-fog-horror-tubi-june-2026/
+
+The forgotten horror movie remake starring Smallville's Tom Welling can be streamed for free over two decades after its release in theaters.
+---------
+
+# 10 Best Turn-Based RPGs of All Time, Ranked
+
+Games, Role Playing Game, RPG, JRPG
+
+Sun, 19 Jul 2026 02:45:15 GMT
+
+https://www.cbr.com/best-turn-based-rpgs-of-all-time-ranked-list/
+
+Clair Obscur: Expedition 33 and Dragon Quest XI some of the greatest turn-based RPGs ever.
+---------
+
+# Doc Brown's Best Back to the Future Line is Still the Greatest Quote in Sci-Fi Movie History
+
+Movies, Back to the Future, Sci-Fi
+
+Sun, 19 Jul 2026 02:40:15 GMT
+
+https://www.cbr.com/doc-brown-back-to-the-future-line-greatest-sci-fi-quote/
+
+Doc's iconic closing line in Back to the Future is a testament to the movie's ambition, perfectly setting up the 1989 sequel.
+---------
+
+# 10 Action Anime Series That Are 10/10, No Notes
+
+Anime, Attack on Titan, Hunter X Hunter
+
+Sun, 19 Jul 2026 02:30:16 GMT
+
+https://www.cbr.com/action-anime-series-flawless-start-to-finish/
+
+Many popular action anime are clearly meant for kids, but others are as masterfully written as the greatest dramas.
+---------
+
+# 10 Biggest Differences Between The Odyssey Movie and the Book
+
+Movies, The Odyssey
+
+Sun, 19 Jul 2026 02:00:25 GMT
+
+https://www.cbr.com/the-odyssey-biggest-differences-movie-book-list/
+
+From the lotus-eaters to Odysseus's return to Ithaca, Christopher Nolan's The Odyssey makes some notable changes to the source material.
+---------
+
+# Every 2026 Prime Video Show, Ranked Worst to Best
+
+TV, Prime Video, Spider-Noir, Off Campus, Scarpetta
+
+Sun, 19 Jul 2026 03:39:15 GMT
+
+https://collider.com/prime-video-shows-2026-ranked/
+
+From Spider-Noir to Off Campus, Young Sherlock to Scarpetta, it's been a busy year for Prime Video. Here's every 2026 show, ranked worst to best.
+---------
+
+# Alan Ritchson’s Best Performance Still Isn't the One Everyone Talks About
+
+TV Features, Titans, Alan Ritchson, HBO Max, DCU, Television
+
+Sun, 19 Jul 2026 02:54:15 GMT
+
+https://collider.com/alan-ritchson-titans-hbo-max-dc-universe/
+
+Reacher star Alan Ritchson was great in Smallville and Blue Mountain State, but his best performance to date was in Titans on HBO Max.
+---------
+
+# 'The Odyssey' Opening Weekend Sets Box-Office Record for Christopher Nolan
+
+Movie News, The Odyssey, box office, Christopher Nolan
+
+Sun, 19 Jul 2026 04:38:49 GMT
+
+https://movieweb.com/christopher-nolan-odyssey-career-best-opening/
+
+'The Odyssey' is on track to make more than even 'The Dark Knight Rises.'
+---------
+
+# CBS's Complete Fall 2026 Schedule - Every TV Series & When It Airs
+
+TV Lists, Marshals
+
+Sun, 19 Jul 2026 02:00:22 GMT
+
+https://movieweb.com/cbss-complete-fall-2026-schedule/
+
+CBS's TV fall line-up is set. Here's which day of the week your favorite show will be airing.
+---------
+
 # All 7 Greek Gods & Monsters In Christopher Nolan's The Odyssey
 
 Movies, The Odyssey
@@ -5232,268 +5496,4 @@ Fri, 17 Jul 2026 17:37:17 GMT
 https://screenrant.com/wednesday-season-3-hyde-location-paris-tease-hunter-doohan/
 
 As Wednesday season 3 continues production, returning cast member Hunter Doohan has teased details about upcoming new locations and Tyler's story.
----------
-
-# Mortal Kombat II Finally Sets Streaming Release Date
-
-Movies, Mortal Kombat II
-
-Fri, 17 Jul 2026 18:27:06 GMT
-
-https://www.cbr.com/mortal-kombat-2-hbo-max-streaming-release-date/
-
-The Mortal Kombat sequel is soon coming to streaming after its theatrical release in May.
----------
-
-# 10 Dark Shonen Anime to Watch If You Love JJK
-
-Anime, Jujutsu Kaisen, Chainsaw Man, shonen anime
-
-Fri, 17 Jul 2026 18:16:15 GMT
-
-https://www.cbr.com/dark-shonen-anime-for-jujutsu-kaisen-fans/
-
-Jujutsu Kaisen is not the only dark shonen anime out there, and shows like Chainsaw Man and Claymore might help fans fill the void.
----------
-
-# Clayface On Absolute Batman #23 Variant Cover Pays Homage To The Thing
-
-Comics, Absolute Batman, Batman, clayface, The Thing
-
-Fri, 17 Jul 2026 18:00:16 GMT
-
-https://www.cbr.com/absolute-batman-23-variant-clayface-the-thing-homage/
-
-There is someTHING familiar about this Absolute Batman variant cover.
----------
-
-# Tom Holland Sparks Viral Debate With Bold Claim About Spider-Man & Robert Pattinson's Batman
-
-Movies, Marvel, Marvel Comics, MCU, tom holland, robert pattinson, The Batman, The Batman Part II, DC Comics, DCU, Batman, Spider-Man, Spider-Man: Brand New Day
-
-Fri, 17 Jul 2026 17:42:32 GMT
-
-https://www.cbr.com/tom-holland-spider-man-robert-pattinson-the-batman-comparison/
-
-The internet is chaotic over a viral debate sparked by Spider-Man about Batman.
----------
-
-# 14 Years Later, Jackie Chan Officially Returns for Sequel to 3-Part Martial Arts Masterpiece
-
-Movies, Armour of God, Jackie Chan
-
-Fri, 17 Jul 2026 17:37:33 GMT
-
-https://www.cbr.com/jackie-chan-armour-of-god-4-starts-filming/
-
-Jackie Chan officially revives the action franchise for a fourth installment.
----------
-
-# Christopher Nolan's New 173-Minute Historical Epic Is Officially His Best Release Yet
-
-Movies, The Odyssey, Christopher Nolan, Rotten Tomatoes
-
-Fri, 17 Jul 2026 17:34:41 GMT
-
-https://www.cbr.com/christopher-nolan-the-odyssey-best-rated-critics-audience-rotten-tomatoes/
-
-The movie is on its way to breaking multiple records, and it's started with Rotten Tomatoes.
----------
-
-# 5 Anime That Are Perfect for Fans of Dungeons & Dragons
-
-Anime, Dungeons and Dragons, Delicious in Dungeon, Dragon Quest
-
-Fri, 17 Jul 2026 17:15:15 GMT
-
-https://www.cbr.com/dungeons-and-dragons-perfect-anime-to-watch/
-
-These near-perfect fantasy anime are must-watch series for any fan of Dungeons & Dragons.
----------
-
-# Brandon Sanderson's 7-Part Fantasy Epic Gets Major Apple TV Update
-
-Movies, Mistborn, The Cosmere
-
-Fri, 17 Jul 2026 17:13:51 GMT
-
-https://www.cbr.com/brandon-sanderson-mistborn-apple-tv-update/
-
-A disappointing update for Mistborn fans.
----------
-
-# Japan Releases First Free AI Model for Anime Video Generation
-
-Anime, Artificial Intelligence
-
-Fri, 17 Jul 2026 17:05:15 GMT
-
-https://www.cbr.com/animegen-ai-video-generation-model-japan-official-release/
-
-Japan releases its first official free AI video generation model designed to assist creators with anime production workflows.
----------
-
-# Pokémon Officially Returns With a Surprise Event This Weekend
-
-Gaming News, Pokémon, Games, Gaming, Nintendo
-
-Fri, 17 Jul 2026 18:20:15 GMT
-
-https://collider.com/pokemon-pokopia-zorua-hide-and-sneak-event/
-
-Zorua’s Hide-and-Sneak Contest comes to Pokémon Pokopia from July 19 through July 27 with multiplayer challenges and exclusive rewards.
----------
-
-# ‘Marshals’ Officially Returns With Major Consequences in Season 2 [Exclusive]
-
-TV News, Marshals, Taylor Sheridan, Logan Marshall-Green, Collider Forces
-
-Fri, 17 Jul 2026 18:16:55 GMT
-
-https://collider.com/marshals-season-2-logan-marshall-green-cal-cancer-consequences/
-
-Logan Marshall-Green teases major consequences, Cal’s cancer diagnosis, and more huge action in Marshals Season 2.
----------
-
-# Apple TV's Best Sci-Fi Series Slammed With Devastating Season 2 Update
-
-TV News, Pluribus, Vince Gilligan, Rhea Seehorn, Apple TV
-
-Fri, 17 Jul 2026 18:00:15 GMT
-
-https://collider.com/pluribus-season-2-release-update-apple-tv-vince-gilligan/
-
-Apple TV shares a disappointing Pluribus Season 2 update as early scripts arrive, but no release date has been set for Vince Gilligan’s sci-fi hit.
----------
-
-# Top Gun Officially Returns With Shock New Release Next Month
-
-Gaming News, Top Gun: Maverick, Battlefield, Tom Cruise, Top Gun
-
-Fri, 17 Jul 2026 17:48:42 GMT
-
-https://collider.com/top-gun-maverick-battlefield-6-crossover/
-
-Top Gun: Maverick is flying into a whole new danger zone next month with a surprise crossover with Battlefield 6. Read on for more.
----------
-
-# Disney’s $250M Fantasy Remake Quietly Takes Over Disney+ Amid Box Office Struggle
-
-Movie News, Moana, Disney+, Dwayne Johnson
-
-Fri, 17 Jul 2026 17:40:15 GMT
-
-https://collider.com/moana-live-action-special-look-streaming-success-disney-plus-july-2026/
-
-Dwayne Johnson's live-action Moana movie surges on Disney+ with a special look behind the scenes following a disastrous box office opening weekend.
----------
-
-# Netflix’s Near-Perfect Crime Thriller Is Too Good to End After Just 6 Episodes
-
-TV Features, Legends, Netflix, Crime, Streaming
-
-Fri, 17 Jul 2026 17:28:15 GMT
-
-https://collider.com/netflix-legends-crime-thriller-six-episodes-too-short/
-
-Netflix’s Legends tells a complete story in six episodes, but its gripping true crime premise makes you wish there were many more.
----------
-
-# ‘The Legend of Korra’ Gets Official Spin-Off Release in 2027
-
-TV News, The Legend of Korra, Avatar: The Last Airbender, Avatar Aang: The Last Airbender
-
-Fri, 17 Jul 2026 17:21:14 GMT
-
-https://collider.com/the-legend-of-korra-concert-tour-15th-anniversary-january-2027/
-
-The Avatar: The Last Airbender spin-off, The Legend of Korra, is officially returning in 2027 for an ambitious new release.
----------
-
-# The Biggest Fantasy Sequel of 2026 Officially Hits HBO Max Next Week
-
-Movie News, Mortal Kombat II, HBO Max, Karl Urban, Adeline Rudolph
-
-Fri, 17 Jul 2026 17:20:04 GMT
-
-https://collider.com/mortal-kombat-2-streaming-release-date-hbo-max/
-
-It's time to get over to HBO Max, as Mortal Kombat 2 is finally joining the streamer months after it hit theaters. Find out when here!
----------
-
-# Every A24 Horror Movie, Ranked From Worst to Best
-
-Movie, A24, Horror, Backrooms, The Witch
-
-Fri, 17 Jul 2026 17:04:15 GMT
-
-https://collider.com/a24-horror-movies-ranked/
-
-From Jonathan Glazer's sci-fi masterpiece Under the Skin to the psychological film Backrooms, we determine which horror movie is A24's best.
----------
-
-# John Wick Meets ‘Welcome to Wrexham’ in Keanu Reeves’ 6-Part Racing Series [Exclusive]
-
-TV News, Keanu Reeves, Hooligans: The ARCH Racing Project, Sports, Samsung
-
-Fri, 17 Jul 2026 17:02:28 GMT
-
-https://collider.com/keanu-reeves-new-series-hooligans-the-arch-racing-project-sneak-peek/
-
-Discover the thrilling world of professional motorcycle racing through Keanu Reeves' personal venture, Hooligans: The ARCH Racing Project.
----------
-
-# Why Netflix's 'Katla' Is a Must-Watch Show
-
-Features, Katla, Sci-Fi
-
-Fri, 17 Jul 2026 18:30:12 GMT
-
-https://movieweb.com/netflix-katla-mystery-binge/
-
-Netflix's sci-fi thriller 'Katla' is an underrated 8-episode series and one of the platform's most compelling hidden gems.
----------
-
-# $7 Billion Fantasy Franchise Favorite Officially Dethroned at the Box Office by 95% RT Rated Sequel
-
-Movie News, Toy Story 5, Harry Potter and the Chamber of Secrets
-
-Fri, 17 Jul 2026 18:00:12 GMT
-
-https://movieweb.com/toy-story-5-harry-potter-and-the-chamber-of-secrets-box-office/
-
-This summer's breakout hit just toppled another franchise favorite at the box office.
----------
-
-# Christopher Nolan Cut One of the Most Famous Moments From 'The Odyssey'
-
-Movie News, The Odyssey
-
-Fri, 17 Jul 2026 17:52:39 GMT
-
-https://movieweb.com/christopher-nolan-the-odyssey-cyclops-scene-criticism/
-
-Christopher Nolan's 'The Odyssey' did not adapt a key moment from the original poem.
----------
-
-# First Look at Disney's Live-Action 'Tangled' Movie Reveals Rapunzel & Flynn Rider
-
-Movie News, Tangled
-
-Fri, 17 Jul 2026 17:27:19 GMT
-
-https://movieweb.com/tangled-first-look-rapunzel-flynn-rider/
-
-On-set photos reveal the first look of Teagan Croft as Rapunzel and Milo Manheim as Flynn Rider.
----------
-
-# Sydney Sweeney's Supernatural Remake of Gothic Masterpiece Officially Moving Forward
-
-Movie News, Sydney Sweeney, Sleepy Hollow
-
-Fri, 17 Jul 2026 17:21:22 GMT
-
-https://movieweb.com/sydney-sweeney-sleepy-hollow-remake/
-
-The actor is set to star in 'Hollow,' a retelling of 'The Legend of Sleepy Hollow.'
 ---------
