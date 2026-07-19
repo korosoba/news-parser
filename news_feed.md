@@ -1,3 +1,212 @@
+# Charlie Hunnam's New Character Is The Anti Jax Teller
+
+Streaming TV, Masked Recs
+
+Sun, 19 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/charlie-hunnam-criminal-show-anti-jax-teller/
+
+Charlie Hunnam has appeared in some excellent crime dramas, with the most famous being Sons of Anarchy. Now, he will play a very different character.
+---------
+
+# John Wayne's Remake Of The Odyssey Is His Greatest Western
+
+Movies, The Searchers, John Wayne
+
+Sun, 19 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/searchers-movie-odyssey-remake-greatest-western/
+
+John Wayne made a Western riff on The Odyssey during his heyday, and it resulted in not only his best movie, but the greatest Western ever made.
+---------
+
+# All 12 Friday The 13th Movies, Ranked By Box Office
+
+Movies, Friday The 13th, Ranking
+
+Sun, 19 Jul 2026 20:45:11 GMT
+
+https://screenrant.com/friday-the-13th-movies-box-office-ranked/
+
+The Friday the 13th franchise is a horror juggernaut, but which of the 12 creepy slasher flicks made the most money at the box office?
+---------
+
+# 13 Greatest Ubisoft Games Of All Time
+
+Gaming, Ubisoft, Far Cry, Assassin's Creed, Tom Clancy's Rainbow Six Siege, Triple-A Games
+
+Sun, 19 Jul 2026 20:30:12 GMT
+
+https://screenrant.com/best-ubisoft-games-all-time/
+
+Ubisoft has made a plethora of amazing games, but only a few stand out as the very best of its library, including iconic titles and hidden gems.
+---------
+
+# Apple TV’s New 10-Part Emmy Favorite Is The Perfect Horror Binge
+
+TV, Masked Recs
+
+Sun, 19 Jul 2026 20:30:11 GMT
+
+https://screenrant.com/widows-bay-emmys-favorite-horror-binge/
+
+Apple TV has upped its horror game this year with an exceptional new release that blends classic genre tropes with brilliantly subversive comedy.
+---------
+
+# James Gunn Confirms Why Reality TV Star Pulled Out of Superman Sequel
+
+Movies, Man of Tomorrow
+
+Sun, 19 Jul 2026 21:03:15 GMT
+
+https://www.cbr.com/james-gunn-man-of-tomorrow-reality-star-cameo/
+
+A big reality TV star was going to appear in the upcoming Superman sequel.
+---------
+
+# Apple TV's 'Perfect Feel-Good Comedy' Is a Global Streaming Hit After Wonderful RT Score
+
+TV, Trying
+
+Sun, 19 Jul 2026 21:00:15 GMT
+
+https://www.cbr.com/trying-comedy-apple-tv-global-success-july-2026/
+
+The series largely flew under the radar, despite strong reviews.
+---------
+
+# Absolute Batman Confirms Batman Will Face His Most Unbelievable Enemy Yet
+
+Comics, Batman
+
+Sun, 19 Jul 2026 21:00:15 GMT
+
+https://www.cbr.com/absolute-batman-23-batman-fighting-batman-confirmed/
+
+DC Comics' Absolute Batman is on track for his most brutal fight yet, and his next opponent has already proven to be absolutely unbeatable.
+---------
+
+# Cowboy Bebop Creator Says There's Too Much Anime – And Most of It Looks the Same
+
+Anime, Cowboy Bebop, Lazarus
+
+Sun, 19 Jul 2026 21:00:15 GMT
+
+https://www.cbr.com/cowboy-bebop-creator-too-much-anime-looks-the-same/
+
+Cowboy Bebop creator Shinichiro Watanabe explains how the modern anime industry is failing to embrace original works with the enthusiasm they deserve.
+---------
+
+# The Batman: Part II's Delay Is Bad News for James Gunn's DC Reboot
+
+Movies, The Batman Part II, DCU, The Brave and the Bold
+
+Sun, 19 Jul 2026 21:00:15 GMT
+
+https://www.cbr.com/the-batman-part-2-delay-brave-and-the-bold-dcu-james-gunn/
+
+The Batman: Part II has officially been delayed to 2028. This is bad news for Batman fans on two fronts.
+---------
+
+# Newest Addition to Long-Running Sniper Franchise Fell Under The Radar, But Turned Into a Netflix Global Hit
+
+Movies, Netflix
+
+Sun, 19 Jul 2026 20:30:15 GMT
+
+https://www.cbr.com/sniper-no-nation-action-netflix-success-june-2026/
+
+The 33-year-old franchise returns with the latest installment finding streaming success on Netflix.
+---------
+
+# 5 Strongest Deadite Variations in Evil Dead History, Ranked
+
+Movies, Evil Dead
+
+Sun, 19 Jul 2026 20:30:15 GMT
+
+https://www.cbr.com/strongest-deadites-in-evil-dead-list/
+
+The Evil Dead franchise contains many variations of the Deadites, so let's take a look at which ones are actually the strongest versions.
+---------
+
+# 4 Action Anime Series That Are 10/10 Masterpieces
+
+Anime, Gurren Lagann, Fullmetal Alchemist
+
+Sun, 19 Jul 2026 20:15:15 GMT
+
+https://www.cbr.com/perfect-action-anime-series-masterpieces/
+
+Action anime like Gurren Lagann and Hunter x Hunter have virtually no flaws.
+---------
+
+# Jason Statham Meets 'Jaws' in HBO Max's Latest Late-Night Favorite
+
+Movie News, Jason Statham, Jaws, The Meg, HBO Max
+
+Sun, 19 Jul 2026 21:00:15 GMT
+
+https://collider.com/jason-statham-shark-movie-the-meg-streaming-hit-hbo-max-july-2026/
+
+Jason Statham's Jaws replacement takes a bite out of the streaming competition in the lead-up to Shark Week. Here's everything you should know.
+---------
+
+# Brian De Palma's Most Hitchcockian Thriller Is Hiding in Plain Sight
+
+Movie Features, Brian De Palma, John Travolta, Blow Out, Alfred Hitchcock
+
+Sun, 19 Jul 2026 20:56:14 GMT
+
+https://collider.com/blow-out-best-brian-de-palma-hitchcock-thriller/
+
+Brian De Palma's Blow Out blends Hitchcock-style suspense, John Travolta, and a chilling conspiracy into one of the greatest thrillers ever made.
+---------
+
+# 3 Years Later, Netflix’s 8-Part Fantasy Book Adaptation Deserves a Second Chance
+
+TV Features, Fantasy, Lockwood & Co., Netflix, Thriller
+
+Sun, 19 Jul 2026 20:43:14 GMT
+
+https://collider.com/netflix-fantasy-series-lockwood-co-deserves-season-2/
+
+Three years later, Netflix’s 8-episode Lockwood & Co. adaptation still deserves a Season 2 to resolve its cliffhanger and explore more of the books.
+---------
+
+# Forget 'The Vampire Lestat,' TV's Best Modern Vampire Series Is a Streaming Smash
+
+TV News, The Vampire Diaries, The Originals, Peacock, Drama
+
+Sun, 19 Jul 2026 20:30:15 GMT
+
+https://collider.com/the-originals-vampire-diaries-spin-off-peacock-streaming-success-july-2026/
+
+The darkest Vampire Diaries spin-off has recently found a new audience on streaming. Get all the details here.
+---------
+
+# Mike Flanagan’s New Thriller Rewrites the Rules of Stephen King Adaptations
+
+Features, Carrie, Stephen King, Mike Flanagan
+
+Sun, 19 Jul 2026 21:00:12 GMT
+
+https://movieweb.com/carrie-mike-flanagan-stephen-king-reboot-changes/
+
+Mike Flanagan, known for Netflix series like 'Midnight Mass,' is making a thriller reboot of a beloved Stephen King story.
+---------
+
+# 'John Wick' Got Its Name Because Keanu Reeves Couldn't Remember the Original Title
+
+Features, John Wick
+
+Sun, 19 Jul 2026 20:30:12 GMT
+
+https://movieweb.com/john-wick-franchise-name-story/
+
+John Wick's original title was dropped because of Keanu Reeves, and the rest is history. Here's how it went down.
+---------
+
 # DC's Newest Hero Is Officially Better Than Batman
 
 DC Comics, Batman
@@ -5287,213 +5496,4 @@ Sat, 18 Jul 2026 12:45:15 GMT
 https://collider.com/billy-bob-thornton-goliath-streaming-success-prime-video-july-2026/
 
 Bosch fans are discovering a new favorite show in Goliath, the Billy Bob Thornton-led drama streaming on Prime Video.
----------
-
-# 'Maximum Pleasure Guaranteed's Finale Was Always Going To End With That Huge Twist
-
-TV, Maximum Pleasure Guaranteed, Apple TV, Thriller, David Gordon Green
-
-Sat, 18 Jul 2026 12:41:15 GMT
-
-https://collider.com/maximum-pleasure-guaranteed-finale-david-gordon-green-david-rosen-interview/
-
-Maximum Pleasure Guaranteed's David Rosen and David Gordon Green break down the show's world and Paula's journey that led to that twisted finale.
----------
-
-# Say Goodbye to the $129 Million Adventure Flop on Paramount+
-
-Movie News, Sahara, Matthew McConaughey, Indiana Jones, Paramount Plus
-
-Sat, 18 Jul 2026 12:30:15 GMT
-
-https://collider.com/matthew-mcconaughey-sahara-leaving-paramount-plus-august-2026/
-
-The infamous box-office misfire Sahara, starring Matthew McConaughey, is about to be removed from Paramount+. Find out more.
----------
-
-# 7 Most Perfect Superhero Movies Released Since 2000
-
-Movie, The Dark Knight, Logan, The Incredibles, Superhero
-
-Sat, 18 Jul 2026 12:20:15 GMT
-
-https://collider.com/most-perfect-superhero-movies-since-2000-ranked/
-
-The Dark Knight, Spider-Man: Into the Spider-Verse, and The Incredibles are all among the best, most perfect superhero movies released since 2000.
----------
-
-# 10 Funniest Shows of the 2000s
-
-TV, It's Always Sunny in Philadelphia, Community
-
-Sat, 18 Jul 2026 12:17:14 GMT
-
-https://collider.com/funniest-tv-shows-2000s-ranked/
-
-It's Always Sunny in Philadelphia, The Office, and Curb Your Enthusiasm are all among the funniest TV comedy shows of the 2000s.
----------
-
-# 10 Video Games With the Best Character Development
-
-Gaming, Video Game, Life is Strange, Disco Elysium, Mass Effect
-
-Sat, 18 Jul 2026 12:14:15 GMT
-
-https://collider.com/video-games-best-character-development/
-
-The Last of Us, Disco Elysium, and God of War are all among the greatest video games with outstanding, emotionally engaging character development.
----------
-
-# Homer’s Best Quote Perfectly Explains Why ‘The Simpsons’ Is an All-Time Great
-
-TV Features, The Simpsons, FOX TV, Animation, Sitcom
-
-Sat, 18 Jul 2026 12:03:15 GMT
-
-https://collider.com/homers-best-line-is-the-perfect-quote-to-define-the-simpsons/
-
-Homer's iconic quote in The Simpsons' Season 7's "Team Homer" episode perfectly captures the show's one constant that makes it so good.
----------
-
-# 10 Bleakest Dystopias in Book History
-
-Books and Comics, Books, The Handmaid's Tale, A Clockwork Orange, The Stand
-
-Sat, 18 Jul 2026 12:02:15 GMT
-
-https://collider.com/bleakest-dystopias-books-ranked/
-
-From the violence of A Clockwork Orange to the mind-invading tyranny of Nineteen Eighty-Four, these are the bleakest and grimiest dystopias in books.
----------
-
-# Stephen King's 2025 Sci-Fi Thriller Continues Its Unstoppable Reign on Paramount+
-
-Movie News, The Running Man, Stephen King, Glen Powell, Paramount Plus
-
-Sat, 18 Jul 2026 12:00:15 GMT
-
-https://collider.com/stephen-king-the-running-man-streaming-success-paramount-plus-july-2026/
-
-The Running Man, the $100 million sci-fi thriller inspired by the famous Stephen King novel, has become one of the biggest streaming hits of 2026.
----------
-
-# Sylvester Stallone's Forgotten 110-Minute Action Thriller Returns To Streaming
-
-Movie News, Sylvester Stallone, The Specialist, Coming/Leaving Streaming, Action
-
-Sat, 18 Jul 2026 12:00:12 GMT
-
-https://movieweb.com/sylvester-stallone-the-specialist-action-streaming-tubi-august-2026/
-
-Ahead of the release of 'I Play Rocky,' one of Sylvester Stallone's forgotten '90s action thrillers is returning to streaming next month.
----------
-
-# Red Dead Redemption 2 Players Can Now Explore Mexico Without Any Mods
-
-Gaming, Red Dead Redemption
-
-Sat, 18 Jul 2026 11:30:12 GMT
-
-https://screenrant.com/red-dead-redemption-2-mexico-no-mods/
-
-Discover how to access the out-of-bounds Mexico region in Red Dead Redemption 2 using a new glitch.
----------
-
-# Christopher Nolan Made His First Film For Only $6,000, And It's Still 70 Minutes Of Pure Perfection
-
-Movies, Following, Christopher Nolan
-
-Sat, 18 Jul 2026 11:00:16 GMT
-
-https://screenrant.com/following-christopher-nolan-first-film-perfection/
-
-Christopher Nolan may be best known for his blockbuster epics, but his first movie, 1998's Following, proved he's just as capable on a budget
----------
-
-# New Pokémon Game Lets Players Explore Four Entire Regions
-
-Gaming, Pokemon
-
-Sat, 18 Jul 2026 11:00:16 GMT
-
-https://screenrant.com/pokemon-decay-four-regions-one-game/
-
-Explore the Talem region in Pokémon Decay, a fully completed ROM hack that combines elements from Kanto, Johto, Hoenn, and Sinnoh.
----------
-
-# 10 Best Batman vs. Joker Stories Ever Written, Ranked
-
-Comics, Batman, Joker, DC Comics
-
-Sat, 18 Jul 2026 11:45:15 GMT
-
-https://www.cbr.com/best-batman-vs-joker-stories-ever-written/
-
-Batman and Joker have been locked in one the greatest feuds comics have ever seen, and some stand out as simply perfect sagas every fan must read.
----------
-
-# Marvel Just Made a Spider-Man: The Animated Series Revival Even More Possible
-
-TV, X-Men '97, Spider-Man, Spider-Man: The Animated Series, Marvel
-
-Sat, 18 Jul 2026 11:31:15 GMT
-
-https://www.cbr.com/x-men-97-spider-man-revival-tease/
-
-A recent development has reignited hope for a Disney+ continuation of the beloved 1994 cartoon Spider-Man: The Animated Series.
----------
-
-# 10 Funniest Far Side Comics Featuring Birds, Ranked
-
-Comics, The Far Side
-
-Sat, 18 Jul 2026 11:00:20 GMT
-
-https://www.cbr.com/funniest-far-side-comics-featuring-birds-ranked/
-
-Gary Larson’s use of chickens in The Far Side is well documented, but he also employed many other types of birds with hilarious results.
----------
-
-# The Best World War II Movie Since ‘Oppenheimer’ Is Officially a #1 Worldwide Streaming Hit
-
-Movie News, Pressure, Brendan Fraser, Andrew Scott, World War II
-
-Sat, 18 Jul 2026 11:45:15 GMT
-
-https://collider.com/brendan-fraser-ww2-movie-pressure-streaming-success-vod-prime-video-july-2026/
-
-Brendan Fraser and Andrew Scott's hit World War II movie, Pressure, has become a #1 global streaming hit.
----------
-
-# One of the Most Expensive Franchise Killers in Sci-Fi History Is Streaming for Free
-
-Movie News, Transformers: Rise of the Beasts, Transformers, Sci-Fi, Pluto TV
-
-Sat, 18 Jul 2026 11:30:15 GMT
-
-https://collider.com/transformers-rise-of-the-beasts-sci-fi-leaving-free-streaming-pluto-tv-august-2026/
-
-The franchise-fumbling sci-fi movie Transformers: Rise of the Beasts is streaming for free this month. Find out where.
----------
-
-# 'Severance' Star Officially Returns to Streaming With New Crime Thriller This Month
-
-Movie News, Russo Brothers, The Whisper Man, Netflix, Adam Scott
-
-Sat, 18 Jul 2026 11:00:19 GMT
-
-https://collider.com/adam-scott-the-whisper-man-streaming-netflix-august-2026/
-
-The Russo Brothers' pre-Avengers: Doomsday project is Netflix's next big crime thriller. Find out more about the Adam Scott-led film here.
----------
-
-# 10 Most Perfect Sci-Fi Shows of the Last 20 Years
-
-TV, Sci-Fi, Science Fiction, Severance, Pluribus
-
-Sat, 18 Jul 2026 10:52:17 GMT
-
-https://collider.com/most-perfect-sci-fi-shows-last-20-years-ranked/
-
-Severance, For All Mankind, Black Mirror, and The Expanse are among the best sci-fi shows of the last 20 years, but which series is the greatest?
 ---------
