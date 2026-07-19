@@ -1,3 +1,190 @@
+# How HBO's New Harry Potter Series Took 7 Hours To Film Quidditch Game
+
+TV, Harry Potter
+
+Sun, 19 Jul 2026 14:56:43 GMT
+
+https://screenrant.com/harry-potter-hbo-season-1-quidditch-filming/
+
+Capturing the magic of Harry Potter is no easy task, as the Director of Photography reveals how one sequence took the crew seven hours to film.
+---------
+
+# Will Ferrell's New Netflix Series Just Cemented A Streaming Rivalry
+
+Movies, The Hawk, Stick
+
+Sun, 19 Jul 2026 14:40:11 GMT
+
+https://screenrant.com/the-hawk-will-ferrell-stick-owen-wilson-rivalry/
+
+Will Ferrell and Owen Wilson have shared the screen many times, but Ferrell's latest Netflix TV show has just pitted these costars against each other.
+---------
+
+# Bosch's New Era Begins After 10 Seasons
+
+Streaming TV, Masked Recs
+
+Sun, 19 Jul 2026 14:30:12 GMT
+
+https://screenrant.com/bosch-new-era-switching-casts-after-10-seasons/
+
+Bosch has been a staple of crime thrillers in the streaming era since it debuted in 2015, and after a decade Amazon is shaking up the winning formula.
+---------
+
+# Robert Jordan’s The Wheel of Time Officially Returns January 2027
+
+Gaming, The Wheel of Time
+
+Sun, 19 Jul 2026 14:30:12 GMT
+
+https://screenrant.com/wheel-of-time-war-dragon-january-2027-release-date/
+
+Robert Jordan’s The Wheel of Time series is officially back next year thanks to War of the Dragon: The Wheel of Time, releasing in January 2027.
+---------
+
+# 10 Greatest Crime Movies Based On Real Criminals
+
+Classic Movies, Crime
+
+Sun, 19 Jul 2026 14:15:11 GMT
+
+https://screenrant.com/crime-movies-based-on-real-criminals/
+
+There have been some great crime movies over the years, and here are the best ones released that are based on real criminals and their stories.
+---------
+
+# 36 Years Later, Q's Best Line Is Still Star Trek's Greatest Insult
+
+Star Trek
+
+Sun, 19 Jul 2026 14:00:11 GMT
+
+https://screenrant.com/star-trek-best-insult-q-worf/
+
+Ouch.
+---------
+
+# Game Of Thrones: The North Bannerman Duel Festival Officially Releases July 22
+
+Gaming, Game of Thrones, Game of Thrones: Kingsroad, Game Of Thrones, PC
+
+Sun, 19 Jul 2026 14:00:11 GMT
+
+https://screenrant.com/game-of-thrones-north-bannerman-duel-festival-july-22/
+
+Game of Thrones returns July 22 with The North Bannerman Duel Festival, a unique new limited-time event fans don't want to miss.
+---------
+
+# Star Trek's James Kirk Officially Joins the Borg, but as a Captain or as a King?
+
+Comics, Star Trek
+
+Sun, 19 Jul 2026 14:17:38 GMT
+
+https://www.cbr.com/star-trek-last-starship-8-review-james-kirk-joins-borg/
+
+In a CBR review of Star Trek: The Last Starship #8, see James Kirk join the Borg, and learn what that means for the future of the Federation
+---------
+
+# 5 Great Dark Shonen Anime Overshadowed By JJK
+
+Anime, Talentless Nana, Dark Gathering, Jujutsu Kaisen
+
+Sun, 19 Jul 2026 14:15:15 GMT
+
+https://www.cbr.com/great-dark-shonen-anime-overshadowed-by-jjk/
+
+During the height of Jujutsu Kaisen's popularity, these five dark shonen titles were overshadowed and didn't get the attention they deserved.
+---------
+
+# Jon Favreau's 114-Minute The Bear Replacement Movie Is Losing Its Streaming Home Next Month
+
+Movies, Chef
+
+Sun, 19 Jul 2026 14:12:52 GMT
+
+https://www.cbr.com/jon-favreau-chef-leaving-netflix-august-2026/
+
+The Star Wars director's drama was a massive hit that led to a reality show.
+---------
+
+# 10 Batman Stories That Changed Gotham Forever
+
+Comics, Batman, DC Comics, Batman: Knightfall Part 1: Knightfall
+
+Sun, 19 Jul 2026 14:00:15 GMT
+
+https://www.cbr.com/batman-stories-that-changed-gotham/
+
+Since 1939, Gotham has been shaped by a variety of key DC Comics stories into the greatest city in the medium, and some arcs are truly iconic.
+---------
+
+# Christopher Nolan’s New Epic Demolishes Box-Office Expectations in Majestic Debut
+
+Movie News, The Odyssey, Christopher Nolan, Box Office, Matt Damon
+
+Sun, 19 Jul 2026 14:45:15 GMT
+
+https://collider.com/the-odyssey-box-office-debut-260-million/
+
+Christopher Nolan returns to the box office with a record-breaking opening weekend haul for The Odyssey. See how much it’s made.
+---------
+
+# 'Game of Thrones' Best Character Deserved a Better Ending
+
+TV Features, Game Of Thrones, HBO Max, George R.R. Martin, Nikolaj Coster-Waldau
+
+Sun, 19 Jul 2026 14:36:15 GMT
+
+https://collider.com/jamie-lannister-deserved-a-better-ending-on-game-of-thrones/
+
+Jamie Lannister's character arc in Game of Thrones ended dismally when five seasons of character development were erased on one fell swoop.
+---------
+
+# Peacock's 4-Hour Revenge Thriller Is the Perfect Weekend Binge
+
+Movie, Kill Bill: The Whole Bloody Affair, Kill Bill: Vol. 1, Kill Bill: Vol. 2, Quentin Tarantino
+
+Sun, 19 Jul 2026 14:09:15 GMT
+
+https://collider.com/kill-bill-the-whole-bloody-affair-peacock-streaming-binge/
+
+Peacock has made Kill Bill: The Whole Bloody Affair easy to binge over a weekend, and it really does hold up as an all-time great revenge thriller.
+---------
+
+# Anya Taylor-Joy’s Sci-Fi Hit Refuses to Leave Apple TV's Top 10
+
+Movie News, Anya Taylor-Joy, The Gorge, Miles Teller, Apple TV
+
+Sun, 19 Jul 2026 14:00:15 GMT
+
+https://collider.com/anya-taylor-joy-the-gorge-apple-tv-top-10-milestone-500-days/
+
+Anya Taylor-Joy’s sci-fi thriller The Gorge passes a massive milestone on Apple TV’s U.S. Top 10, extending its remarkable streaming run.
+---------
+
+# 'Soylent Green' Sets Date for New 4K Blu-ray Release for Sci-Fi Classic
+
+Movie News, Soylent Green
+
+Sun, 19 Jul 2026 14:35:02 GMT
+
+https://movieweb.com/soylent-green-4k-blu-ray-release/
+
+Richard Fleischer's 1973 dystopian classic 'Soylent Green' gets a limited-edition 4K restoration from Arrow Video, featuring Edward G. Robinson.
+---------
+
+# One of the Century's Best Action Movies Is Getting Even Better Upon Its New Release
+
+Features, Train to Busan, Horror
+
+Sun, 19 Jul 2026 14:00:12 GMT
+
+https://movieweb.com/train-to-busan-10th-anniversary-release/
+
+A Korean action horror movie labeled as one of the best movies of the first quarter of the century is returning to theaters, and with good reason.
+---------
+
 # 10 Greatest Animated Kids Movies Of The 2010s That Deserve More Love
 
 Classic Movies, Animation
@@ -5309,191 +5496,4 @@ Fri, 17 Jul 2026 22:35:12 GMT
 https://screenrant.com/masterpiece-novels-must-listen-audiobooks/
 
 Literary masterpieces that are must-listens.
----------
-
-# Breaking Bad's Most Disturbing Line Didn't Even Come From Walter White
-
-Classic TV, Breaking Bad
-
-Fri, 17 Jul 2026 22:30:11 GMT
-
-https://screenrant.com/breaking-bad-most-disturbing-line-not-walter-white/
-
-Breaking Bad is a masterpiece in disturbing character writing, but while Walt gets many of the best lines, the most unsettling is from someone else.
----------
-
-# After 7 Years, The Mandalorian Is Changing Genres For Next Release
-
-Comics, The Mandalorian, Star Wars
-
-Fri, 17 Jul 2026 22:23:33 GMT
-
-https://screenrant.com/the-mandalorian-genre-change-danger-dark/
-
-The Mandalorian's next release is a small comic that has big implications for the franchise's future.
----------
-
-# Pokémon Officially Surprises Fans With New Eeveelution Release for 30th Anniversary
-
-Games, Pokemon
-
-Fri, 17 Jul 2026 23:13:15 GMT
-
-https://www.cbr.com/pokemon-new-eeveelution-official-30th-anniversary-release/
-
-Pokémon's new Eeveelution collab is the perfect 30th anniversary celebration for the franchise.
----------
-
-# First Look at Arrow and Vampire Diaries Stars in '80s Horror Reboot Revealed
-
-Movies, Re-Animator
-
-Fri, 17 Jul 2026 23:08:07 GMT
-
-https://www.cbr.com/herbert-west-reanimator-first-look-joseph-morgan-katie-cassidy/
-
-The iconic 80s horror flick gets rebooted with fan favorites from the Arrowverse and The Vampire Diaries.
----------
-
-# Studio Ghibli Releases New Stationery Collection With 25 Designs for Howl's Moving Castle, Spirited Away & More
-
-Anime, Studio Ghibli, merchandise
-
-Fri, 17 Jul 2026 23:05:15 GMT
-
-https://www.cbr.com/studio-ghibli-25-movie-new-wooden-clip-collection/
-
-Donguri Sora unveils a dazzling new office clip collection which pays tribute to every major Studio Ghibli production.
----------
-
-# 5 Christopher Nolan Movies Worth Watching Again and Again
-
-Movies, Christopher Nolan, The Odyssey
-
-Fri, 17 Jul 2026 23:00:15 GMT
-
-https://www.cbr.com/most-rewatchable-christopher-nolan-movies-list/
-
-As The Odyssey sails into theaters, revisit some of Christopher Nolan's greatest films that never get old.
----------
-
-# CBS Is Giving Justin Hartley's Tracker Formula a Risky Season 4 Replacement
-
-TV, Tracker, CBS, Crime
-
-Fri, 17 Jul 2026 23:00:15 GMT
-
-https://www.cbr.com/cbs-justin-hartley-tracker-new-risky-season-4-mystery/
-
-Three seasons in, Tracker finally solved the big overarching mystery only to replace it with the tease of another one that risks a frustrating repeat.
----------
-
-# HBO's 7-Season Horror Series Based on Hit Comic Book Is Dominating PVOD 30 Years Later
-
-TV, Tales From the Crypt, HBO Max, Horror
-
-Fri, 17 Jul 2026 22:31:14 GMT
-
-https://www.cbr.com/hbo-tales-from-the-crypt-horror-pvod-success-july-2026/
-
-HBO's Tales From the Crypt, a classic horror anthology, becomes a No. 1 PVOD hit 30 years after its debut
----------
-
-# After 18 Years, the X-Files’ Never-Before-Seen R-Rated Movie Sets Release Date Ahead of Reboot
-
-Movies, The X Files: I Want to Believe
-
-Fri, 17 Jul 2026 22:27:14 GMT
-
-https://www.cbr.com/the-x-files-i-want-to-believe-r-rated-cut-release-date/
-
-The official title for the unseen X-Files film has also been revealed.
----------
-
-# Only 5 RPGs Are Better Than Skyrim
-
-Games, The Elder Scrolls V: Skyrim, Role Playing Game, Video Games, The Witcher 3: Wild Hunt, Baldur's Gate 3
-
-Fri, 17 Jul 2026 22:15:15 GMT
-
-https://www.cbr.com/better-rpgs-than-skyrim/
-
-Skyrim may have dominated the RPG-scape for nearly 15 years, but in that time plenty of other RPGs have risen to challenge Bethesda's masterpiece.
----------
-
-# All 3 Christopher Nolan Adventure Movies, Ranked
-
-Movie, The Odyssey, Christopher Nolan, Inception, Interstellar
-
-Fri, 17 Jul 2026 23:08:15 GMT
-
-https://collider.com/christopher-nolan-adventure-movies-ranked/
-
-Christopher Nolan has directed a handful of full-on adventure movies, including Interstellar and The Odyssey, but which of them is the best overall?
----------
-
-# Sydney Sweeney’s ‘Rocky’ Replacement Is a Knockout on HBO Max
-
-Movie News, Christy, Sydney Sweeney, The Housemaid, Euphoria
-
-Fri, 17 Jul 2026 23:00:15 GMT
-
-https://collider.com/sydney-sweeney-rocky-replacement-christy-streaming-success-hbo-max-july-2026/
-
-Christy, the box office bomb starring Sydney Sweeney as the famous boxer, has found redemption as one of the most-watched titles on HBO Max.
----------
-
-# 10 Netflix Shows That Are Way Too Intense for Kids
-
-TV, Netflix, Stranger Things, 13 Reasons Why, The Witcher
-
-Fri, 17 Jul 2026 22:59:15 GMT
-
-https://collider.com/netflix-shows-too-intense-for-kids/
-
-From Stranger Things to Big Mouth, these shows may look kid-friendly, but they're far too intense.
----------
-
-# The New Evil Dead Films Are Brutal Masterpieces, but Something Vital Is Missing
-
-Horror, Evil Dead Burn, The Evil Dead
-
-Fri, 17 Jul 2026 22:48:15 GMT
-
-https://collider.com/evil-dead-burn-brutal-horror-dark-comedy-missing/
-
-Evil Dead Burn proves the franchise doesn’t need to pull its punches, but it also doesn’t need to stop cracking jokes.
----------
-
-# The 10 Best HBO Shows of All Time, Ranked
-
-TV, HBO, Game Of Thrones, The Sopranos, Band of Brothers
-
-Fri, 17 Jul 2026 22:44:15 GMT
-
-https://collider.com/best-hbo-shows-all-time-ranked/
-
-Discover the best HBO shows of all time, ranked by their impact and storytelling, including series like The Sopranos, The Wire, and Game of Thrones.
----------
-
-# Adult Swim Fans Are Officially Losing a Cult-Favorite Series This Summer
-
-TV Features, Adult Swim, HBO Max, Metalocalypse, Superjail!
-
-Fri, 17 Jul 2026 22:34:15 GMT
-
-https://collider.com/adult-swim-metalocalypse-superjail-schedule-switch-meaning/
-
-Adult Swim is about to take Metalocalypse off of its schedule, marking the end of an era for the cult classic.
----------
-
-# Jeremy Renner's 5 Best Movie Masterpieces, Ranked
-
-Movie, Jeremy Renner, The Hurt Locker, Wake Up Dead Man: A Knives Out Mystery, Wind River
-
-Fri, 17 Jul 2026 22:19:15 GMT
-
-https://collider.com/best-jeremy-renner-movies/
-
-From The Town to Wind River and other career-defining performances, these Jeremy Renner movies stand above the rest.
 ---------
