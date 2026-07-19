@@ -1,3 +1,124 @@
+# Stardew Valley Switches Genres In Path Of Dew
+
+Gaming, Stardew Valley
+
+Sun, 19 Jul 2026 09:30:11 GMT
+
+https://screenrant.com/stardew-valley-path-of-dew-rpg-overhaul/
+
+Discover a new side of Stardew Valley with the Path of Dew mod, which turns the beloved farming sim into a stats-based RPG experience.
+---------
+
+# Star Wars Fans Think They’ve Spotted A Brand-New Sith In New Trailer
+
+Gaming, Star Wars Zero Company, Star Wars
+
+Sun, 19 Jul 2026 09:00:11 GMT
+
+https://screenrant.com/star-wars-zero-company-sith-red-lightsaber-fan-reaction/
+
+Star Wars is teasing a mysterious character wielding a red-bladed lightsaber, and fans are trying to deduce who they may be before they appear.
+---------
+
+# Steam Makes 3 Huge Games Completely Free For 24 Hours
+
+Gaming, Steam
+
+Sun, 19 Jul 2026 08:04:56 GMT
+
+https://screenrant.com/steam-3-free-games-24-hours-weekend/
+
+Steam gamers can get their hands on three games right now completely free, but you need to be quick.
+---------
+
+# Wolverine’s Newest Love Interest Is Already Dividing Fans
+
+Gaming, Marvel's Wolverine, Triple-A Games
+
+Sun, 19 Jul 2026 08:00:11 GMT
+
+https://screenrant.com/marvels-wolverine-love-interest-fan-reaction/
+
+Wolverine's extensive past with a particular character is proving to be incredibly iconic, yet some fans aren't fully on board with the relationship.
+---------
+
+# Pixar's New Sci-Fi Sleeper Hit Is a Streaming Smash on Disney+
+
+Movie News, Toy Story 5, Hoppers, Pixar, Disney+
+
+Sun, 19 Jul 2026 09:40:15 GMT
+
+https://collider.com/pixar-hoppers-streaming-success-disney-plus-july-2026/
+
+Fans are revisiting Pixar's 2026 sleeper gem, Hoppers, sending it up the streaming charts. Here's everything you should know.
+---------
+
+# 8 Great Crime Shows Overshadowed by 'Breaking Bad'
+
+TV, Crime, Breaking Bad, Your Honor, Boardwalk Empire
+
+Sun, 19 Jul 2026 09:26:15 GMT
+
+https://collider.com/crime-shows-overshadowed-by-breaking-bad/
+
+Explore brilliant crime series that fell under Breaking Bad's shadow, each offering unique thrills and suspense, from Boardwalk Empire to Your Honor.
+---------
+
+# Say Goodbye to Matt Damon's Mind-Bending Sci-Fi Thriller
+
+Movie News, The Adjustment Bureau, Matt Damon, Emily Blunt, Sci-Fi
+
+Sun, 19 Jul 2026 09:20:15 GMT
+
+https://collider.com/matt-damon-sci-fi-the-adjustment-bureau-leaving-peacock-august-2026/
+
+Matt Damon and Emily Blunt's underrated sci-fi movie The Adjustment Bureau is about to be removed from Peacock. Find out when.
+---------
+
+# The Best Movie in a $7 Billion Franchise Is Quietly Crushing the Competition on Streaming
+
+Movie News, Fast Five, Vin Diesel, Peacock, Streaming
+
+Sun, 19 Jul 2026 09:00:15 GMT
+
+https://collider.com/fast-five-streaming-success-peacock-july-2026/
+
+Ahead of a franchise return, Vin Diesel's Fast Five is a streaming hit again. Find out where to watch the action-packed sequel here.
+---------
+
+# The Landmark Western Quentin Tarantino Called “Ugly” Is Streaming for Free
+
+Movie News, McCabe & Mrs. Miller, Warren Beatty, Robert Altman, Quentin Tarantino
+
+Sun, 19 Jul 2026 08:40:15 GMT
+
+https://collider.com/mccabe-and-mrs-miller-western-streaming-free-tubi-july-2026/
+
+The Western film that Quentin Tarantino said has the "worst-mixed opening act in the history of Hollywood" is streaming for free. Find out more.
+---------
+
+# 10 Years Later, Tom Hardy's Brutal Western Thriller Is Officially Taking Over Streaming
+
+Movie News, The Revenant, Tom Hardy, Leonardo DiCaprio, Alejandro G. Inarritu
+
+Sun, 19 Jul 2026 08:20:15 GMT
+
+https://collider.com/tom-hardy-neo-western-the-revenant-streaming-success-prime-video-july-2026/
+
+The Revenant, the Oscar-winning neo-Western starring Tom Hardy and Leonardo DiCaprio, has stormed back into the global streaming top 10.
+---------
+
+# It's the End of an Era for This Cult Sci-Fi Thriller on Paramount+
+
+Movie News, Denzel Washington, Russell Crowe, Virtuosity, Sci-Fi
+
+Sun, 19 Jul 2026 08:00:15 GMT
+
+https://collider.com/russell-crowe-virtuosity-sci-fi-thriller-leaving-paramount-plus-august-2026/
+
+The bizarre sci-fi thriller Virtuosity, starring Denzel Washington and Russell Crowe, is about to leave its streaming home. Find out more.
+---------
+
 # Pokémon Winds & Waves' Latest Leak Is Its Biggest Yet
 
 Gaming, Pokemon Winds and Waves, Triple-A Games
@@ -5375,125 +5496,4 @@ Fri, 17 Jul 2026 19:00:15 GMT
 https://www.cbr.com/time-travel-books-for-back-to-the-future-fans-list/
 
 Full of paradoxes, humor, and heart, these sci-fi books are perfect for anyone missing the time travel antics of the Back to the Future films.
----------
-
-# 10 Fantasy Movies That Are Better the Second Time Around
-
-Movie, Fantasy, Where the Wild Things Are, Shrek 2, Babe: Pig in the City
-
-Fri, 17 Jul 2026 19:30:15 GMT
-
-https://collider.com/best-fantasy-movies-better-second-time/
-
-From Hook to Shrek 2, these incredible fantasy movies are somehow even better on a second watch, allowing audiences to fully appreciate every detail.
----------
-
-# 8 Great Sci-Fi Shows Overshadowed by 'Lost'
-
-TV, Sci-Fi, Lost, Fringe, Jericho
-
-Fri, 17 Jul 2026 19:08:14 GMT
-
-https://collider.com/sci-fi-shows-overshadowed-by-lost/
-
-Dive into incredible sci-fi shows that share similarities with the groundbreaking Lost, but were overshadowed by its popularity and cultural impact.
----------
-
-# 'The Raid' Icon Leads New 'John Wick' Meets 'MobLand' Action Crime Thriller Series
-
-TV News
-
-Fri, 17 Jul 2026 19:04:05 GMT
-
-https://movieweb.com/the-raid-iko-uwais-crime-thriller-series-jakarta/
-
-Star Iko Uwais is joining forces with the creators of the 'John Wick' spin-off 'The Continental' for a new TV show.
----------
-
-# Amazon's 122-Minute Smash Is Now One of the Biggest Action Movies on Streaming
-
-Movie News, The Wrecking Crew, Hot on Streaming, Action, Prime Video
-
-Fri, 17 Jul 2026 19:00:12 GMT
-
-https://movieweb.com/the-wrecking-crew-prime-video-action-streaming-july-2026/
-
-Prime Video's smash hit features the first on-screen pairing of two of the biggest action stars on the planet, Dave Bautista and Jason Momoa.
----------
-
-# 'The Odyssey' Ending & What Happens to Odysseus & Penelope, Explained
-
-Features, The Odyssey
-
-Fri, 17 Jul 2026 18:59:25 GMT
-
-https://movieweb.com/the-odyssey-ending-explained/
-
-'The Odyssey' has never been easy to understand, and Nolan's version has likely left audiences with questions.
----------
-
-# Will Ferrell’s New Netflix Series Debuts To Solid Rotten Tomatoes Audience Score
-
-TV, Masked Recs, Will Ferrell, Netflix
-
-Fri, 17 Jul 2026 18:30:44 GMT
-
-https://screenrant.com/netflix-the-hawk-rotten-tomatoes-audience-score-debut/
-
-Following mixed reviews from critics, the audience score on Rotten Tomatoes for Will Ferrell's new TV show on Netflix has officially debuted.
----------
-
-# Guy Ritchie Gets Major New Streaming Rival Thanks To Prime Video Crime Series
-
-TV, Masked Recs
-
-Fri, 17 Jul 2026 18:30:11 GMT
-
-https://screenrant.com/guy-ritchie-streaming-shows-criminal-prime-video-rival/
-
-Guy Ritchie gets a major new streaming rival thanks to Prime Video's upcoming crime drama that features a familiar face in the leading role.
----------
-
-# DC Is Dangerously Close To Breaking What Makes Nightwing Special
-
-DC Comics, Nightwing, DC
-
-Fri, 17 Jul 2026 18:30:11 GMT
-
-https://screenrant.com/nightwing-dick-grayson-corrupted/
-
-Nightwing has found himself resorting to baser, emotional tactics, and the reason why has been made clear in his latest appearance.
----------
-
-# Harry Potter Officially Sets Exciting New Release This October
-
-Movies, Harry Potter
-
-Fri, 17 Jul 2026 18:25:21 GMT
-
-https://screenrant.com/harry-potter-steelbook-library-anniversary-release/
-
-Harry Potter is coming back at the perfect time, as the beloved wizarding world will be returning with an exciting new release set for this October.
----------
-
-# The 3-Part Fantasy Horror Series So Good, It Started An Entire Shared Universe
-
-TV, Masked Recs
-
-Fri, 17 Jul 2026 18:01:11 GMT
-
-https://screenrant.com/interview-with-the-vampire-anne-rice-start-immortal-universe-franchise/
-
-In the era of shared TV universes, one of the best fictional worlds comes from one of the most underappreciated horror TV masterpieces ever made.
----------
-
-# Naruto's Upcoming Return Is The One Thing The Franchise Was Still Missing
-
-Movies, Masked Recs
-
-Fri, 17 Jul 2026 17:56:31 GMT
-
-https://screenrant.com/naruto-live-action-remake-franchise-return/
-
-There hasn't been much movement within the Naruto franchise in the last handful of years, but that's all about to change as the anime is left behind.
 ---------
