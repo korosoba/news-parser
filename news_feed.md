@@ -1,3 +1,190 @@
+# Karl Urban And Val Kilmer Made An Incredible Western Nobody Talks About Now
+
+TV, Masked Recs
+
+Sun, 19 Jul 2026 15:55:11 GMT
+
+https://screenrant.com/comanche-moon-western-karl-urban-val-kilmer-forgotten/
+
+Nearly 20 years after it debuted, nobody is talking about this great Western that Karl Urban and Val Kilmer made together, but they should.
+---------
+
+# The Odyssey Box Office Crushes All-Time Christopher Nolan Record
+
+Movies, The Odyssey, Box Office
+
+Sun, 19 Jul 2026 15:38:02 GMT
+
+https://screenrant.com/the-odyssey-2026-global-box-office-debut/
+
+During its first three days in global theaters, the new epic adventure movie The Odyssey breaks an all-time record for director Christopher Nolan.
+---------
+
+# Dakota Fanning's 8-Part Psychological Thriller Is Gone Girl Meets Big Little Lies
+
+Streaming TV, Masked Recs, Dakota Fanning
+
+Sun, 19 Jul 2026 15:30:11 GMT
+
+https://screenrant.com/all-her-fault-psychological-thriller-gone-girl-big-little-lies/
+
+Dakota Fanning scored an Emmy nomination for Peacock's hit domestic thriller series that combines the best of Gone Girl and Big Little Lies.
+---------
+
+# How Two Point Became One Of The Biggest Simulation Series In Existence
+
+Gaming, Two Point Museum, Two Point Campus
+
+Sun, 19 Jul 2026 15:30:11 GMT
+
+https://screenrant.com/two-point-studios-museum-hospital-campus-interview/
+
+Two Point Studios reflects on a decade of management sim games, discussing the future of Two Point Museum, upcoming DLC, and more in our interview.
+---------
+
+# 8 Great Movie Epics That Are Filled With Historical Inaccuracies
+
+Movies, Gladiator, Braveheart, The Patriot, 300, U-571, The Last Samurai, Pearl Harbor, 10,000 BC
+
+Sun, 19 Jul 2026 15:30:11 GMT
+
+https://screenrant.com/great-movie-epics-historical-inaccuracies/
+
+These beloved historical epics thrilled audiences and won awards, but they're also packed with inaccuracies that left historians shaking their heads.
+---------
+
+# Robert Downey Jr.'s Underrated Road Trip Comedy Is A Netflix Hit 16 Years Later
+
+Movies, Masked Recs
+
+Sun, 19 Jul 2026 15:22:29 GMT
+
+https://screenrant.com/robert-downey-jr-due-date-netflix-streaming-success-july-2026/
+
+16 years after its release in theaters, one underrated road trip comedy starring Robert Downey Jr. is now driving its way up Netflix’s top 10 chart.
+---------
+
+# Ariana Grande's Next Movie Is Already Getting Hate, But Its 26-Year Legacy Makes It A Must-Watch
+
+Movies, Focker-In-Law
+
+Sun, 19 Jul 2026 15:00:12 GMT
+
+https://screenrant.com/focker-in-law-ariana-grande-must-watch/
+
+Ariana Grande is starring in a brand-new movie later this year, which marks the latest installment in a decades-old, beloved larger franchise.
+---------
+
+# 5 Anime Tournament Arcs That Are Considered Masterpieces
+
+Anime
+
+Sun, 19 Jul 2026 15:00:12 GMT
+
+https://screenrant.com/anime-tournament-arcs-considered-masterpieces/
+
+The best tournament arcs in anime history.
+---------
+
+# Disney Lorcana: Hyperia City - Release Date, Confirmed Cards, & Illumineer’s Trove Details
+
+Gaming, Disney Lorcana
+
+Sun, 19 Jul 2026 15:00:12 GMT
+
+https://screenrant.com/disney-lorcana-hyperia-city-release-date-cards-products-prerelease/
+
+Discover the release dates, confirmed cards, and product lineup for Disney Lorcana: Hyperia City, the 14th set bringing vibrant urban setting.
+---------
+
+# HBO's New Fantasy Series Is More Expensive Than The Lord of the Rings: The Rings of Power
+
+TV, Harry Potter, The Lord of the Rings: The Rings of Power
+
+Sun, 19 Jul 2026 15:41:17 GMT
+
+https://www.cbr.com/hbo-harry-potter-more-expensive-the-lord-of-the-rings-the-rings-of-power/
+
+The series just broke a major record six months before release.
+---------
+
+# 10 Strongest Mortals in Dragon Ball, Officially Ranked
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Sun, 19 Jul 2026 15:15:15 GMT
+
+https://www.cbr.com/dragon-ball-super-strongest-mortals-officially-ranked/
+
+Dragon Ball has introduced Gods, Angels, and omnipotent deities, but it's also full of extremely powerful mortals who should not be underestimated.
+---------
+
+# Hunter X Hunter Officially Brings Back Gon and Killua
+
+Anime, Hunter X Hunter
+
+Sun, 19 Jul 2026 15:00:15 GMT
+
+https://www.cbr.com/hunter-x-hunter-gon-killua-officially-return/
+
+12 years after their last appearance in the Hunter X Hunter manga, Gon and Killua are finally back.
+---------
+
+# 10 Greatest Anime Villains Everyone Underestimated
+
+Anime, Hunter X Hunter, Attack On Titan
+
+Sun, 19 Jul 2026 15:00:15 GMT
+
+https://www.cbr.com/most-underestimated-anime-villains/
+
+Underestimation can easily becomes the sharpest tool in an anime villain's arsenal.
+---------
+
+# Forget 'Game of Thrones,' the Best Fantasy Game Ever Deserves a Better Adaptation
+
+TV Features, The Elder Scrolls V: Skyrim, The Elder Scrolls, Fantasy, Game Of Thrones
+
+Sun, 19 Jul 2026 15:54:15 GMT
+
+https://collider.com/skyrim-adaptation-best-fantasy-video-game-of-all-time-game-of-thrones/
+
+Despite challenges, Skyrim stands out as a fantasy video game ripe for adaptation, primed to tell an epic story set in the Elder Scrolls world.
+---------
+
+# Disney’s ‘Moana’ Remake Drowned Out by 'The Odyssey' at the Box Office
+
+Movie News, Moana, The Odyssey, Christopher Nolan, Box Office
+
+Sun, 19 Jul 2026 15:30:15 GMT
+
+https://collider.com/the-odyssey-overtakes-moana-box-office-178-million/
+
+Disney’s live-action Moana faces a steep second-weekend drop as Christopher Nolan’s The Odyssey takes over the box office.
+---------
+
+# 4 Meg Ryan Movies That Are Perfect From Start to Finish
+
+Movie, Meg Ryan, When Harry Met Sally, Sleepless In Seattle, You’ve Got Mail
+
+Sun, 19 Jul 2026 15:04:14 GMT
+
+https://collider.com/meg-ryan-movies-are-masterpieces/
+
+Meg Ryan's greatest performances go far beyond rom-com nostalgia, from When Harry Met Sally... to deeper dramas.
+---------
+
+# Before Netflix Remake, a Forgotten Fantasy Series Succeeded Where Disney Failed
+
+Features, Narnia: The Magician's Nephew, The Chronicles of Narnia, The Chronicles of Narnia: The Silver Chair, Netflix, Disney, Fantasy, Tom Baker, Greta Gerwig
+
+Sun, 19 Jul 2026 15:00:12 GMT
+
+https://movieweb.com/narnia-bbc-fantasy-series-netflix-remake-disney-failed/
+
+The Disney 'Narnia' franchise never managed to adapt 'The Silver Chair,' and if Netflix wants to avoid the same mistake, it should look at the BBC.
+---------
+
 # How HBO's New Harry Potter Series Took 7 Hours To Film Quidditch Game
 
 TV, Harry Potter
@@ -5309,191 +5496,4 @@ Sat, 18 Jul 2026 00:30:15 GMT
 https://collider.com/blumhouse-ma-2-sequel-update-octavia-spencer/
 
 Octavia Spencer’s viral Blumhouse thriller is finally moving toward a sequel, with the team taking its time to bring back the cult favorite.
----------
-
-# The 2000s’ Most Criminally Overlooked Horror Franchise Is Officially Back
-
-Movie News, The Descent Part 2, The Descent, Lionsgate, Horror
-
-Sat, 18 Jul 2026 00:15:15 GMT
-
-https://collider.com/2000s-horror-sequel-the-descent-part-2-4k-blu-ray-release/
-
-After 16 years, The Descent: Part 2, the sequel to the 2005 horror classic, is getting its first 4K Ultra HD steelbook release in the US.
----------
-
-# This 'Backrooms' Detail You Missed Makes It So Much More Terrifying
-
-Movie Features, Backrooms, Kane Parsons, Chiwetel Ejiofer, Renate Reinsve
-
-Sat, 18 Jul 2026 00:11:15 GMT
-
-https://collider.com/backrooms-kane-parsons-terrifying-detail/
-
-A tiny, blink-and-you'll-miss-it detail near the beginning of Backrooms foreshadows the terrible fate of two characters.
----------
-
-# 7 Must-Watch Shows To Enjoy While You Wait for 'Little House on the Prairie' Season 2
-
-TV, Little House on the Prairie, The Other Bennet Sister, Heartland
-
-Sat, 18 Jul 2026 00:02:15 GMT
-
-https://collider.com/tv-shows-like-little-house-on-the-prairie-netflix/
-
-The Other Bennet Sister, Heartland, and Anne with an E are great shows to watch while you wait for Season 2 of Netflix's Little House on the Prairie.
----------
-
-# 11 Years Later, Marvel's Most Divisive Action Sequel Is a Streaming Hit
-
-Movie News, Avengers: Doomsday, Avengers: Age of Ultron, STARZ, MCU
-
-Sat, 18 Jul 2026 00:00:15 GMT
-
-https://collider.com/avengers-age-of-ultron-streaming-success-starz-july-2026/
-
-Avengers: Doomsday is just months away, and one of the Marvel team's most divisive chapters is a sudden streaming hit 11 years later.
----------
-
-# Titus Welliver’s ‘80s-Set ‘Bosch’ Replacement Is Officially Rewriting History [Exclusive]
-
-Exclusives, The Westies, MGM, Crime, Titus Welliver
-
-Sat, 18 Jul 2026 00:00:15 GMT
-
-https://collider.com/the-westies-true-story-stanley-morgan-mickey-jimmy-coonan-featherstone/
-
-The Westies star Stanley Morgan explains how notorious gangsters Jimmy Coonan and Mickey Featherstone inspired the MGM+ crime drama.
----------
-
-# Disney’s Newest Live-Action Remake Announced Following ‘Moana’s Box Office Failure
-
-Movie News, Colman Domingo, The Princess and the Frog, Disney, Moana
-
-Fri, 17 Jul 2026 23:50:12 GMT
-
-https://collider.com/disney-live-action-princess-and-the-frog-remake-princess-tiana-colman-domingo/
-
-Euphoria icon Colman Domingo is reportedly writing a new live-action Princess and the Frog movie following Princess Tiana.
----------
-
-# Cartoon Network’s 2-Part Mystery Masterpiece Finally Gets a New Release
-
-TV News, Cartoon Network, Scooby-Doo! Mystery Incorporated, Mystery, Blu-ray
-
-Fri, 17 Jul 2026 23:45:15 GMT
-
-https://collider.com/cartoon-network-scooby-doo-mystery-incorporated-blu-ray-release/
-
-One of animation’s smartest serialized mysteries is finally getting a complete Blu-ray release 13 years after it ended.
----------
-
-# The 10 Best Crime Thrillers of the 20th Century, Ranked
-
-Movie Lists, The Silence of the Lambs
-
-Sat, 18 Jul 2026 00:00:12 GMT
-
-https://movieweb.com/best-crime-thriller-movies-20th-century/
-
-These crime thriller movies are some of the most impressive from the 20th century and feature big stars and memorable plotlines.
----------
-
-# Today Is Officially the End of an Era for Netflix's 98% RT-Rated Series
-
-TV News, Heartstopper Forever, Heartstopper, Netflix
-
-Fri, 17 Jul 2026 23:47:45 GMT
-
-https://movieweb.com/heart-stopper-forever-finale-netflix-streaming/
-
-With 'Heartstopper Forever' now on Netflix, a defining romance series of the streaming era is officially saying goodbye.
----------
-
-# 5 Best New Prime Video Shows of 2026 (So Far)
-
-TV Lists, Prime Video
-
-Fri, 17 Jul 2026 23:45:12 GMT
-
-https://movieweb.com/best-prime-video-tv-shows-2026/
-
-From buddy road comedies to coming-of-age origin stories and more, discover the most entertaining new Prime Video originals of the year.
----------
-
-# Disney Reportedly Finds Its Next Beloved Classic to Get Live-Action Adaptation
-
-Movie News, The Princess and the Frog, Colman Domingo, Disney
-
-Fri, 17 Jul 2026 23:43:38 GMT
-
-https://movieweb.com/disney-princess-and-the-frog-live-action-spin-off/
-
-Colman Domingo is reportedly developing a live-action movie focused on 'The Princess and the Frog's Princess Tiana.
----------
-
-# Netflix's Hit Action Thriller Reboot Gets Disappointing Season 2 Update
-
-TV News, Man on Fire, Netflix, Yahya Abdul-Mateen II
-
-Fri, 17 Jul 2026 23:41:39 GMT
-
-https://movieweb.com/man-on-fire-season-2-netflix-delayed/
-
-The Yahya Abdul-Mateen II-starring 'Man on Fire' has yet to receive an update on Season 2.
----------
-
-# Brandon Sanderson's Mistborn AAA RPG Teaser Splits Gamers
-
-Gaming, Mistborn, The Cosmere, The Stormlight Archive, Brandon Sanderson, PC, RPG
-
-Fri, 17 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/brandon-sanderson-mistborn-aaa-rpg-tease-reactions/
-
-Brandon Sanderson's Mistborn series could potentially get a major AAA RPG, but gamers aren't entirely sure it's going to pan out.
----------
-
-# 10 Great Horror Movies With Alternate Dimensions To Watch If You Love Backrooms
-
-Movies, Backrooms, Vivarium, Event Horizon, Cube, Annihilation, Exit 8, Coherence, Grave Encounters, As Above, So Below, Insidious
-
-Fri, 17 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/horror-movies-alternate-dimensions-like-backrooms/
-
-Backrooms wowed audiences with its unique take on alternative dimensions, but other movies focusing on the subject are worth your time.
----------
-
-# Ethan Hawke's 3-Part HBO Max Batman Series Returns With New Episodes
-
-TV, Masked Recs
-
-Fri, 17 Jul 2026 22:54:52 GMT
-
-https://screenrant.com/ethan-hawke-batwheels-hbo-max-batman-series-new-episodes/
-
-Ethan Hawke's Batman series has returned with new episodes, and the underrated HBO Max show brings along other DC heroes with the Dark Knight.
----------
-
-# Winnie-The-Pooh: Blood & Honey 3's Plot Details And Franchise Timeline Setting Revealed
-
-Movies, Winnie The Pooh: Blood and Honey 3, The Twisted Childhood Universe, Horror
-
-Fri, 17 Jul 2026 22:53:03 GMT
-
-https://screenrant.com/winnie-the-pooh-blood-honey-3-plot-details-franchise-timeline-setting/
-
-Exclusive: Director/producer Scott Chambers reveals the first plot details for Winnie-the-Pooh: Blood and Honey 3 and where it sits in the franchise.
----------
-
-# 6 Masterpiece Novels That Are Perfect Audiobook Listens
-
-Books, Sci-Fi, Fantasy, Stephen King
-
-Fri, 17 Jul 2026 22:35:12 GMT
-
-https://screenrant.com/masterpiece-novels-must-listen-audiobooks/
-
-Literary masterpieces that are must-listens.
 ---------
