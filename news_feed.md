@@ -1,3 +1,223 @@
+# DC's Newest Hero Is Officially Better Than Batman
+
+DC Comics, Batman
+
+Sun, 19 Jul 2026 20:03:51 GMT
+
+https://screenrant.com/batman-prion-better-tracker-skills/
+
+DC's newest hero outsmarts Batman before the Dark Knight even realizes it, challenging the Bruce Wayne's reputation as the World's Greatest Detective.
+---------
+
+# The Real Reason Christopher Nolan Will Never Answer His Movies’ Ambiguous Endings
+
+Movies, Christopher Nolan, The Odyssey
+
+Sun, 19 Jul 2026 20:02:49 GMT
+
+https://screenrant.com/christopher-nolan-movies-ambiguous-endings-no-answers-explained/
+
+Christopher Nolan explains the purpose of his ambiguous endings and the one movie that is the reason he will never give us real answers.
+---------
+
+# 17 Artists Perform At World Cup Finals Halftime Show Between Spain And Argentina
+
+TV, Sports
+
+Sun, 19 Jul 2026 20:02:19 GMT
+
+https://screenrant.com/world-cup-final-halftime-show-spain-argentina/
+
+The World Cup is finishing with a bang, as Argentina and Spain face off in the most-watched event in the world with the first-ever halftime show.
+---------
+
+# Stardew Valley Official Return Has Gamers United
+
+Gaming, Stardew Valley, tabletop games, Magic: The Gathering
+
+Sun, 19 Jul 2026 20:00:11 GMT
+
+https://screenrant.com/magic-the-gathering-stardew-valley-reaction/
+
+Stardew Valley is officially returning in a brand-new playable form this month, but it's one that fans agree they could have never seen coming.
+---------
+
+# Star Trek's 3 Versions Of Spock, Ranked
+
+Streaming TV, Star Trek
+
+Sun, 19 Jul 2026 20:00:11 GMT
+
+https://screenrant.com/star-trek-spock-versions-ranked/
+
+Every crewmember of the Enterprise in Star Trek: TOS has gained a following, but none are as iconic as Spock and the actors who've played him.
+---------
+
+# 10 Greatest War Movie Villains Of All Time, Ranked
+
+Classic Movies, War
+
+Sun, 19 Jul 2026 19:55:11 GMT
+
+https://screenrant.com/greatest-war-movie-villains/
+
+There have been great war movies over the last century, but the best of them offer up villains who make it more than just a battle of many.
+---------
+
+# 9 Years After BBC's Sherlock, Sherlock Holmes Begins A New Era
+
+Streaming TV, Masked Recs
+
+Sun, 19 Jul 2026 19:53:31 GMT
+
+https://screenrant.com/young-sherlock-new-era-after-bbc-sherlock/
+
+Benedict Cumberbatch raised the bar when he filled the shoes of literature's most famous detective, and the levels he set are finally being met.
+---------
+
+# The 20 Highest-Rated TV Episodes In History
+
+Classic TV
+
+Sun, 19 Jul 2026 19:45:12 GMT
+
+https://screenrant.com/highest-rated-tv-episodes-imdb/
+
+The most acclaimed and highest-rated TV episodes of all time, featuring unforgettable moments, shocking twists, and emotionally charged storytelling.
+---------
+
+# Wednesday Season 3's New Location Detailed by Franchise Star
+
+TV, Wednesday
+
+Sun, 19 Jul 2026 20:05:31 GMT
+
+https://www.cbr.com/wednesday-season-3-paris-location-hunter-doohan/
+
+One of the stars of Wednesday just confirmed another surprising location change for Season 3 of the fan-favorite Addams Family series.
+---------
+
+# Netflix's New 97-Minute Steamy Thriller Is Officially the Most-Watched Film in the World
+
+Movies, Netflix
+
+Sun, 19 Jul 2026 20:00:15 GMT
+
+https://www.cbr.com/desire-thriller-netflix-global-success-july-2026/
+
+The new steamy thriller was first released in theaters and then it turned into a streaming hit.
+---------
+
+# Paramount Is Officially Rebooting the Star Trek Franchise
+
+Movies, Star Trek, paramount pictures
+
+Sun, 19 Jul 2026 19:30:16 GMT
+
+https://www.cbr.com/paramount-rebooting-star-trek-movie/
+
+The upcoming Star Trek reboot is set to be a standalone story unconnected to the previous Kelvin Timeline and series.
+---------
+
+# 10 Heaviest One Piece Arcs, Ranked
+
+Anime, One Piece, shonen anime, Shonen
+
+Sun, 19 Jul 2026 19:15:15 GMT
+
+https://www.cbr.com/heaviest-one-piece-arcs-ranked/
+
+Underneath the vibrant exterior of One Piece's shonen tropes lies its unmatched capacity for tragedy.
+---------
+
+# 10 Essential Vince Vaughn Movies, Ranked
+
+Movie, Vince Vaughn, Wedding Crashers, Swingers, Freaky
+
+Sun, 19 Jul 2026 20:03:14 GMT
+
+https://collider.com/vince-vaughn-movies-essential-ranked/
+
+Swingers, Wedding Crashers, and Freaky are all among the very best and most essential Vince Vaughn movies.
+---------
+
+# Christopher Nolan's First Sci-Fi Movie With Matt Damon Is Taking Over the World
+
+Movie News, Christopher Nolan, Hulu, The Odyssey, Interstellar
+
+Sun, 19 Jul 2026 20:00:15 GMT
+
+https://collider.com/christopher-nolan-sci-fi-interstellar-streaming-success-hulu-july-2026/
+
+As fans gear up for Christopher Nolan's The Odyssey, one of his sci-fi blockbusters is climbing streaming charts. Find out more here.
+---------
+
+# The Best ‘Rear Window’ Remake Is Hidden in This 8-Part Masterpiece
+
+TV Features, Castle, Alfred Hitchcock, Rear Window, ABC
+
+Sun, 19 Jul 2026 19:55:14 GMT
+
+https://collider.com/castle-the-lives-of-others-best-rear-window-remake/
+
+Castle’s The Lives of Others turns Hitchcock’s Rear Window into one of television’s smartest and most entertaining homage episodes.
+---------
+
+# One of the Best Evil Dead Projects of All Time Is Officially Streaming for Free
+
+TV Features, Ash vs Evil Dead, The Evil Dead, Bruce Campbell, Sam Raimi
+
+Sun, 19 Jul 2026 19:31:14 GMT
+
+https://collider.com/ash-vs-evil-dead-streaming-free-pluto-tv/
+
+Ash vs Evil Dead, one of the best projects in the franchise following Ash Williams' final adventure, is now free to watch on streaming.
+---------
+
+# 27 Years Ago, Cate Blanchett and Judi Dench Shared the Strangest Oscar Record in History
+
+Movie Features, Cate Blanchett, Judi Dench, Shakespeare in Love, Elizabeth
+
+Sun, 19 Jul 2026 19:19:15 GMT
+
+https://collider.com/cate-blanchett-judi-dench-queen-elizabeth-oscar-nominations/
+
+Cate Blanchett and Judi Dench made Oscar history as the only actresses nominated in the same year for portraying the same historical figure.
+---------
+
+# Ridley Scott's $630 Million Sci-Fi Masterpiece Makes a Comeback on Streaming
+
+Movie News, The Martian, Prime Video, Hot on Streaming, Sci-Fi, Ridley Scott
+
+Sun, 19 Jul 2026 20:00:12 GMT
+
+https://movieweb.com/the-martian-ridley-scott-scifi-streaming-success-prime-video-july-2026/
+
+Before 'The Dog Stars,' Ridley Scott's modern sci-fi masterpiece 'The Martian' is a hit on streaming.
+---------
+
+# The 15 Greatest Netflix Shows of All Time, Ranked
+
+Features, Netflix
+
+Sun, 19 Jul 2026 20:00:12 GMT
+
+https://movieweb.com/best-netflix-tv-shows-all-time/
+
+The streaming pioneer has been responsible for some of the very best television shows of all time, but some in the catalog are truly unforgettable.
+---------
+
+# James Cameron Has Fulfilled Arnold Schwarzenegger's Condition To Join 'Avatar'
+
+Features, Avatar, James Cameron, Arnold Schwarzenegger
+
+Sun, 19 Jul 2026 19:30:13 GMT
+
+https://movieweb.com/james-cameron-arnold-schwarzenegger-avatar-role/
+
+James Cameron introduced the right role for Arnold Schwarzenneger in Avatar 3. Will the action star take it?
+---------
+
 # 12 Years Later, The Hobbit Revisionism Has Started
 
 Movies, The Lord of the Rings: The Hunt for Gollum
@@ -5276,224 +5496,4 @@ Sat, 18 Jul 2026 10:52:17 GMT
 https://collider.com/most-perfect-sci-fi-shows-last-20-years-ranked/
 
 Severance, For All Mankind, Black Mirror, and The Expanse are among the best sci-fi shows of the last 20 years, but which series is the greatest?
----------
-
-# Zelda: Ocarina Of Time Remake Official Gameplay Has Split Gamers
-
-Gaming, The Legend of Zelda
-
-Sat, 18 Jul 2026 10:30:11 GMT
-
-https://screenrant.com/zelda-ocarina-of-time-remake-switch-2-remake-gameplay-hopes/
-
-Fans weigh in on the highly anticipated Zelda: Ocarina of Time Remake.
----------
-
-# Game Of Thrones: Freedom In Essos Finally Brings Back Dany & The Unsullied
-
-Gaming, Game of Thrones, Game Of Thrones, House of the Dragon, PC, Game Of Thrones - Season 3, Game Of Thrones - Season 4, Game Of Thrones - Season 5, Game Of Thrones - Season 6
-
-Sat, 18 Jul 2026 10:00:11 GMT
-
-https://screenrant.com/game-of-thrones-conquest-freedom-in-essos-event/
-
-Dany, Grey Worm, and the Unsullied are officially back in Game of Thrones: Freedom of Essos, taking players back to Slaver's Bay.
----------
-
-# Hogwarts Legacy 2 Official Release Window Splits Gamers
-
-Gaming, Hogwarts Legacy
-
-Sat, 18 Jul 2026 09:30:11 GMT
-
-https://screenrant.com/hogwarts-legacy-2-release-window-gamers-react/
-
-Avalanche Software is working on Hogwarts Legacy 2, set to launch around 2027-2028.
----------
-
-# Prime Video Already Has Its Next Bosch Series Ready to Go & Replace the Original
-
-TV, Bosch, Prime Video
-
-Sat, 18 Jul 2026 10:30:15 GMT
-
-https://www.cbr.com/prime-video-next-bosch-series-the-poet-jack-mcevoy/
-
-Prime Video's Bosch universe expanded with Ballard, and Michael Connelly's The Poet should be the basis for a new crime series next.
----------
-
-# Pierce Brosnan's Slick '80s Detective Show Outshines Every Single 1 of His Bond Movies
-
-TV, Remington Steele, James Bond, Crime
-
-Sat, 18 Jul 2026 10:00:15 GMT
-
-https://www.cbr.com/pierce-brosnan-remington-steele-better-than-james-bond/
-
-This forgotten '80s detective show launched Pierce Brosnan's career and gave him the skills to become the best James Bond.
----------
-
-# 8 Perfect Action Movies Nobody Remembers Today
-
-Movies, Action, Déjà Vu, Ronin
-
-Sat, 18 Jul 2026 10:00:15 GMT
-
-https://www.cbr.com/perfect-action-movies-nobody-remembers-today-list/
-
-These action masterpieces have been sadly forgotten by most fans today.
----------
-
-# Netflix's 3-Part YA Hit Officially Returns Next Month
-
-TV News, Netflix, Drama, My Life with the Walter Boys, Streaming
-
-Sat, 18 Jul 2026 10:30:15 GMT
-
-https://collider.com/my-life-with-the-walter-boys-streaming-netflix-august-2026/
-
-Season 3 of Netflix's teen ranch series, My Life With the Walter Boys, returns soon. Here's everything you should know.
----------
-
-# 13 Action Movies That Were So Good, Hollywood Spent Decades Copying Them
-
-Movie, John Wick, Action, Die Hard, Mad Max: Fury Road
-
-Sat, 18 Jul 2026 10:05:15 GMT
-
-https://collider.com/action-movies-blueprint/
-
-Die Hard, Mad Max: Fury Road, The Matrix, The Dark Knight, and more make up our list of action movies Hollywood has spent decades copying.
----------
-
-# 10 Sci-Fi Movies That Are Better the Second Time Around
-
-Movie, Science Fiction, Children of Men, Brazil, Stalker
-
-Sat, 18 Jul 2026 10:03:15 GMT
-
-https://collider.com/best-sci-fi-movies-better-second-time/
-
-From decades-old classics like 2001: A Space Odyssey to modern gems like Arrival, these sci-fi movies demand a second viewing to be fully appreciated.
----------
-
-# 10 Best PlayStation Games of the 2020s So Far, Ranked
-
-TV, Video Game, Death Stranding, God of War, The Last Of Us Part II Remastered
-
-Sat, 18 Jul 2026 10:02:15 GMT
-
-https://collider.com/best-playstation-games-2020s-ranked/
-
-Discover the best PlayStation games released in the 2020s so far, including Death Stranding 2, God of War Ragnarök, and Astro Bot.
----------
-
-# Watch David Fincher's Greatest Thriller Free Before Your Next 'Mindhunter' Binge
-
-Movie News, Zodiac, Mindhunter, David Fincher, Pluto TV
-
-Sat, 18 Jul 2026 10:00:15 GMT
-
-https://collider.com/david-fincher-true-crime-zodiac-streaming-free-pluto-tv-july-2026/
-
-David Fincher's critically acclaimed cult classic Zodiac, starring Robert Downey Jr., is streaming for free this month. Find out where.
----------
-
-# ‘Game of Thrones’ Meets ‘Lord of the Rings’ in Guy Ritchie’s Failed Fantasy Franchise-Starter
-
-Movie News, King Arthur: Legend of the Sword, Guy Ritchie, Game Of Thrones, The Lord of the Rings
-
-Sat, 18 Jul 2026 09:40:15 GMT
-
-https://collider.com/guy-ritchie-historical-epic-king-arthur-legend-of-the-sword-streaming-success-prime-video-july-2026/
-
-Guy Ritchie's failed franchise starter with shades of Game of Thrones and Lord of the Rings has resurfaced as a streaming hit.
----------
-
-# Bosch Franchise Star's Forgotten Bruce Lee Parody Is a Surprise Netflix Hit 19 Years Later
-
-Movie News, Netflix, balls of fury, Maggie Q, Christopher Walken
-
-Sat, 18 Jul 2026 09:20:15 GMT
-
-https://collider.com/maggie-q-balls-of-fury-streaming-netflix-august-2026/
-
-Ballard's Maggie Q teamed up with Christopher Walken for a bonkers ping-pong movie that's like turning Marty Supreme up to eleven.
----------
-
-# The Word "Binge-Worthy" Is Overused, but These 10 Netflix Shows Actually Are
-
-TV, Netflix, Sense8, Dark, Black Mirror
-
-Sat, 18 Jul 2026 09:18:15 GMT
-
-https://collider.com/binge-worthy-netflix-shows/
-
-Dive into Netflix series that have earned the "binge-worthy" title with their captivating storylines and compelling characters, from Dark to Sense8.
----------
-
-# New 'Harry Potter' Release Officially Confirmed Ahead of TV Reboot
-
-Movie News, Harry Potter, HBO Max
-
-Sat, 18 Jul 2026 09:30:16 GMT
-
-https://movieweb.com/harry-potter-new-4k-complete-series-set/
-
-A new 'Harry Potter' 25th anniversary 4K steelbook collection is listed for October, two months before HBO's TV reboot premieres.
----------
-
-# Dragon Ball's Official Return And New Season Leaves Fans Seriously Split
-
-Gaming, Dragon Ball
-
-Sat, 18 Jul 2026 09:00:12 GMT
-
-https://screenrant.com/dragon-ball-gekishin-squadra-season-6-roadmap-reactions/
-
-Fans of Dragon Ball Gekishin Squadra have mixed reactions to the upcoming Season 6 update.
----------
-
-# Every "Confirmed" PlayStation 6 And Next-Gen Xbox Game So Far
-
-Gaming, Triple-A Games, PC
-
-Sat, 18 Jul 2026 07:51:24 GMT
-
-https://screenrant.com/playstation-6-next-gen-xbox-confirmed-games/
-
-Discover the exciting lineup of games expected to launch on PlayStation 6 and next-gen Xbox consoles, from new games to old franchises alike.
----------
-
-# Say Goodbye to Alan Ritchson's Most Unexpected Movie on Streaming
-
-Movie News, Alan Ritchson, Ordinary Angels, Hilary Swank, Peacock
-
-Sat, 18 Jul 2026 09:00:15 GMT
-
-https://collider.com/alan-ritchson-ordinary-angels-leaving-peacock-july-21-2026/
-
-Alan Ritchson's rare dramatic movie, Ordinary Angels, is about to be removed from Peacock. Find out when.
----------
-
-# Ridley Scott's Sci-Fi Masterpiece Surges to #1 on Prime Video Ahead of Sequel Series
-
-Movie News, Blade Runner 2049, Ridley Scott, Blade Runner, Harrison Ford
-
-Sat, 18 Jul 2026 08:40:15 GMT
-
-https://collider.com/ridley-scott-sci-fi-sequel-blade-runner-2049-streaming-success-prime-video-july-2026/
-
-Blade Runner 2049, which is widely hailed as Ridley Scott's greatest sci-fi legacy sequel, is quietly becoming a massive streaming hit.
----------
-
-# The Western Masterpiece Quentin Tarantino Hates Is Streaming for Free
-
-Movie News, The Man Who Shot Liberty Valance, John Ford, Quentin Tarantino, Western
-
-Sat, 18 Jul 2026 08:20:15 GMT
-
-https://collider.com/man-who-shot-liberty-valance-john-ford-masterpiece-streaming-free-tubi-july-2026/
-
-The Western masterpiece The Man Who Shot Liberty Valance, directed by Quentin Tarantino's least favorite director John Ford, is streaming for free.
 ---------
