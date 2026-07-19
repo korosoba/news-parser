@@ -1,3 +1,201 @@
+# Assassin's Creed Origins Rebirth Is The Next-Gen Remaster Of Our Dreams
+
+Gaming, Assassin's Creed
+
+Sun, 19 Jul 2026 11:00:12 GMT
+
+https://screenrant.com/assassins-creed-origins-rebirth-reshade-mod/
+
+Assassin's Creed Origins is back and looking better than ever thanks to this free download.
+---------
+
+# Star Wars Jedi: Fallen Order Officially Returns December 2026
+
+Gaming, Star Wars Jedi: Fallen Order, Star Wars
+
+Sun, 19 Jul 2026 10:48:16 GMT
+
+https://screenrant.com/star-wars-jedi-fallen-order-sequel-december-2026/
+
+This is getting out of hand. Now there are three of them! Star Wars Jedi: Fallen Order will return this December.
+---------
+
+# 29 Years Later, The Original Fallout Is Getting A Remake
+
+Gaming, Fallout
+
+Sun, 19 Jul 2026 10:30:16 GMT
+
+https://screenrant.com/fallout-remake-original-game-new-vegas/
+
+The original Fallout game is more than deserving of its place in gaming history, and it's also long overdue a remake.
+---------
+
+# Say Goodbye To Loki And WandaVision As 2026 Crowns Marvel's Best Show Of The Decade
+
+Streaming TV, Masked Recs, Marvel Cinematic Universe
+
+Sun, 19 Jul 2026 10:00:11 GMT
+
+https://screenrant.com/x-men-97-best-marvel-show-decade/
+
+While the Multiverse Saga has proven a challenging chapter in Marvel's history, there is a show coming in 2026 that has pulled way ahead of its peers.
+---------
+
+# The Legend Of Zelda: Clockwork Realm Is A Great RPG Nobody Remembers
+
+Gaming, The Legend of Zelda
+
+Sun, 19 Jul 2026 10:00:11 GMT
+
+https://screenrant.com/legend-of-zelda-clockwork-realm-game/
+
+Discover a unique Legend of Zelda adventure with Clockwork Realm, where up to 4 players cooperate to defeat Ganondorf.
+---------
+
+# The Funniest Far Side Comics Featuring Flowers, Ranked
+
+Comics, The Far Side
+
+Sun, 19 Jul 2026 11:00:15 GMT
+
+https://www.cbr.com/best-far-side-comics-flowers-ranked/
+
+The Far Side is willing to make the most of nature's most beloved flora through unique comic strips.
+---------
+
+# Spider-Man: Brand New Day Officially Teases Venom’s MCU Debut
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sun, 19 Jul 2026 10:30:19 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-venom-mcu-debut-tease/
+
+Fans are desperate to see Spider-Man battle Venom in the MCU, and one scene from Brand New Day might make this even more likely.
+---------
+
+# Paramount+'s New Dexter Formula Is Turning Resurrection Season 2 Into a Crime TV Event
+
+TV, Dexter: Resurrection, Dexter, Crime, Paramount Plus
+
+Sun, 19 Jul 2026 10:30:19 GMT
+
+https://www.cbr.com/dexter-resurrection-season-2-new-serial-killers/
+
+With many high-profile actors tapped to play killers in Dexter: Resurrection Season 2, it is shaping up to be a bona fide crime TV event.
+---------
+
+# Apple TV's Timothy Olyphant & Anya Taylor-Joy 'Lucky' Classic Thriller
+
+TV, Lucky, Apple TV, Thriller
+
+Sun, 19 Jul 2026 10:00:15 GMT
+
+https://www.cbr.com/apple-tv-lucky-modern-classic/
+
+Apple TV's latest action thriller based on a book, Lucky, is a fast-paced, addictive series and an instant classic.
+---------
+
+# 5 Underrated Crime Thrillers Better Than Se7en
+
+Movies, Se7en, Crime, Thriller
+
+Sun, 19 Jul 2026 10:00:15 GMT
+
+https://www.cbr.com/best-crime-thrillers-better-than-seven-list/
+
+David Fincher's Se7en is an absolute masterpiece, but these underrated crime thrillers beat it at its own game.
+---------
+
+# ‘Back to the Future’ Meets James Bond in the Sci-Fi Blockbuster Leaving Streaming
+
+Movie News, Men in Black 3, Will Smith, Sci-Fi, Josh Brolin
+
+Sun, 19 Jul 2026 11:00:15 GMT
+
+https://collider.com/will-smith-men-in-black-3-sci-fi-movie-leaving-peacock-august-2026/
+
+The head-spinning franchise threequel Men in Black 3, starring Will Smith and Josh Brolin, is about to be removed from Peacock. Find out when.
+---------
+
+# The 10 Most Intense TV Finales of All Time, Ranked
+
+TV, Series Finale, Breaking Bad, The Sopranos, Succession
+
+Sun, 19 Jul 2026 10:59:15 GMT
+
+https://collider.com/most-intense-tv-finales-ranked/
+
+Explore the most intense and unforgettable TV finales of all time, seen in shows like Breaking Bad, The Sopranos, and Succession.
+---------
+
+# ‘Silo’ Fans Need These 8 Brilliant Literary Sci-Fi Book Series Between Episodes
+
+Books and Comics, Books, Silo, Science Fiction, 3 Body Problem, Annihilation, Robopocalypse
+
+Sun, 19 Jul 2026 10:51:14 GMT
+
+https://collider.com/science-fiction-book-series-like-silo-wool-trilogy/
+
+Silo Season 3 is here, but between episodes, get your sci-fi fix with excellent book series like Southern Reach, Wanderers, and Children of Time.
+---------
+
+# Forget 'Yellowstone,' Paramount+ Has a Perfect Neo-Western Adaptation Waiting in the Wings
+
+TV Features, Books, Western, Horror, Television
+
+Sun, 19 Jul 2026 10:44:15 GMT
+
+https://collider.com/toms-crossing-neo-western-horror-tv-adaptation/
+
+As Paramount+ prepares to lose Taylor Sheridan, Mark Z. Danielewski's neo-Western horror epic Tom's Crossing could make a phenomenal TV series.
+---------
+
+# Colleen Hoover Has Another Streaming Winner With Her 2026 Blockbuster Adaptation
+
+Movie News, Colleen Hoover, Netflix, Regretting You, Streaming
+
+Sun, 19 Jul 2026 10:30:19 GMT
+
+https://collider.com/colleen-hoover-regretting-you-streaming-success-netflix-july-2026/
+
+Regretting You, a controversial Colleen Hoover adaptation starring Allison Williams, is taking over global streaming. Find out more here.
+---------
+
+# 10 Best Robins in DC Comics
+
+Books and Comics, comic books, DC Comics, Superhero, Nightwing
+
+Sun, 19 Jul 2026 10:22:16 GMT
+
+https://collider.com/best-robin-dc-comics-ranked/
+
+Many characters have assumed the Robin mantle over the years, from Dick Grayson to Damian Wayne, but which hero was the all-time best in the role?
+---------
+
+# 6 Perfect Fantasy Video Games That Nobody Remembers
+
+TV, Fantasy, Video Game, Gaming, World of Warcraft
+
+Sun, 19 Jul 2026 10:01:14 GMT
+
+https://collider.com/fantasy-video-games-nobody-remembers/
+
+From Arx Fatalis to Black Book, these forgotten fantasy video game gems delivered unforgettable worlds, stories, and gameplay.
+---------
+
+# It's the End of an Era for James Cameron's $200 Million Sci-Fi Epic
+
+Movie News, James Cameron, Robert Rodriguez, Alita: Battle Angel, Sci-Fi
+
+Sun, 19 Jul 2026 10:00:15 GMT
+
+https://collider.com/james-cameron-sci-fi-alita-battle-angel-leaving-peacock-august-2026/
+
+James Cameron's passion project, the sci-fi franchise-starter Alita: Battle Angel, is about to be removed from Peacock. Find out more.
+---------
+
 # Stardew Valley Switches Genres In Path Of Dew
 
 Gaming, Stardew Valley
@@ -5298,202 +5496,4 @@ Fri, 17 Jul 2026 20:58:26 GMT
 https://movieweb.com/re-animator-reboot-remake-first-look-h-p-lovecraft/
 
 The first glimpse of Joseph Morgan and Katie Cassidy in 'Herbert West: Reanimator' has debuted.
----------
-
-# Brendan Fraser's Critically Acclaimed War Epic Officially Confirms Streaming Release Date
-
-Movie News, Pressure, Peacock
-
-Fri, 17 Jul 2026 20:13:48 GMT
-
-https://movieweb.com/brendan-fraser-pressure-peacock-streaming-release-date/
-
-Brendan Fraser's war room drama offers a fresh perspective on the D-Day landings.
----------
-
-# 'The Odyssey' Has Already Officially Smashed a $1-Billion Movie's Record in Hours
-
-Movie News, The Odyssey, Box Office
-
-Fri, 17 Jul 2026 20:06:16 GMT
-
-https://movieweb.com/the-odyssey-box-office-record-previews/
-
-It only took hours for Christopher Nolan's 'The Odyssey' to etch its name into the box office record books.
----------
-
-# The 10 Best American-Made Martial Arts Movies of All Time
-
-Movie Lists, Martial Arts, Action
-
-Fri, 17 Jul 2026 20:01:12 GMT
-
-https://movieweb.com/best-american-made-martial-arts-movies/
-
-From Bruce Lee to Keanu Reeves, these are the best American-made martial arts movies packed with great characters and impeccable action.
----------
-
-# 8 Sci-Fi TV Shows That Earned Perfect 100% Rotten Tomatoes Ratings
-
-Classic TV
-
-Fri, 17 Jul 2026 20:00:11 GMT
-
-https://screenrant.com/sci-fi-tv-shows-perfect-100-rotten-tomatoes-score/
-
-Science fiction TV shows are not always easy to get right, which makes it even more gratifying when one earns the highly sought-after 100% RT score.
----------
-
-# Christopher Nolan's The Odyssey Rotten Tomatoes Score Gets Official Audience Verdict
-
-Movies, The Odyssey, Christopher Nolan
-
-Fri, 17 Jul 2026 19:49:49 GMT
-
-https://screenrant.com/christopher-nolan-the-odyssey-rotten-tomatoes-audience-score-record/
-
-Christopher Nolan's The Odyssey is now in theaters, and the Rotten Tomatoes audience score is officially revealed amid multiple controversies.
----------
-
-# Netflix’s Man On Fire Season 2 Gets First Status Update After Successful Top 10 Run
-
-TV, Man on Fire, Man on Fire - Season 1
-
-Fri, 17 Jul 2026 19:44:08 GMT
-
-https://screenrant.com/man-on-fire-netflix-season-2-status-update-limbo-report/
-
-Netflix’s remake of Denzel Washington’s Man on Fire has yet to be renewed, but there’s a brand-new update about the decision-making process.
----------
-
-# Psych: Every Nickname Shawn Has For Gus
-
-Classic TV, Psych
-
-Fri, 17 Jul 2026 19:30:12 GMT
-
-https://screenrant.com/psych-shawn-gus-nicknames-list/
-
-Through eight seasons of Psych and three movies, Shawn has introduced Gus with fake nicknames. Here's every made-up nickname Shawn has given Gus.
----------
-
-# Dune Meets The Lord Of The Rings In HBO Max's 2-Part Sci-Fi Series
-
-Classic TV, Masked Recs
-
-Fri, 17 Jul 2026 19:30:11 GMT
-
-https://screenrant.com/raised-by-wolves-dune-meets-lord-of-the-rings/
-
-Ridley Scott's two-season science fiction series that debuted on HBO is part Lord of the Rings, part Dune, and surprisingly difficult to find.
----------
-
-# Fallout 3 Prequel Officially Confirmed By Bethesda
-
-Gaming, Fallout
-
-Fri, 17 Jul 2026 19:30:11 GMT
-
-https://screenrant.com/fallout-3-prequel-bethesda-confirmed/
-
-Fallout 3 is officially getting a prequel story, more than a decade and a half since the release of the original game.
----------
-
-# Stephen King's Single Location Horror Movie Haunts Global Streaming Charts 19 Years Later
-
-Movies, Masked Recs, Stephen King
-
-Fri, 17 Jul 2026 19:02:54 GMT
-
-https://screenrant.com/stephen-king-1408-lionsgate-plus-streaming-success-july-2026/
-
-Stephen King’s books and stories have been adapted numerous times over the years, and one of them is seeing renewed success on the streaming charts.
----------
-
-# My Hero Academia: United Survival Is A Brand-New Chapter For The Series
-
-Gaming, My Hero Academia, Live Service Games, PC
-
-Fri, 17 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/my-hero-academia-united-survival-new-story-content/
-
-Months after wrapping things up in a final epilogue special, My Hero Academia is set to deliver new story material in the upcoming United Survival.
----------
-
-# Yellowstone’s 2 Hit Spinoffs Are Missing Taylor Sheridan’s Secret Weapon
-
-TV, Yellowstone, Dutton Ranch, Marshals
-
-Fri, 17 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/dutton-ranch-marshals-montana-missing-character/
-
-Marshals and Dutton Ranch breathed new life into Yellowstone, but neither spinoff takes advantage of a crucial element of Taylor Sheridan's flagship.
----------
-
-# In Less Than 2 Weeks, Harlan Coben's New 8-Part Crime Drama Is Officially 1 of Netflix's Biggest Shows of the Year
-
-TV, I Will Find You, Netflix, Run Away
-
-Fri, 17 Jul 2026 20:00:15 GMT
-
-https://www.cbr.com/harlan-coben-i-will-find-you-thriller-netflix-viewership-report-july-2026/
-
-In less than two weeks, Harlan Coben's I Will Find You became Netflix's No. 3 most watched show of 2026
----------
-
-# DC Just Revealed a Major Clayface Mystery Ahead of His DCU Movie
-
-Comics, clayface, Clayface
-
-Fri, 17 Jul 2026 20:00:15 GMT
-
-https://www.cbr.com/clayface-celebrity-dirt/
-
-One of Batman's most iconic enemies is officially at the center of DC Comics' latest shocking mystery, and it could change everything.
----------
-
-# The Surprise $429M Horror Hit of 2026 With 94% RT Is Officially Streaming on Peacock
-
-Movies, Obsession
-
-Fri, 17 Jul 2026 19:57:28 GMT
-
-https://www.cbr.com/obsession-starts-streaming-peacock-july-2026/
-
-Catch the acclaimed horror flick at home after its record-shattering theatrical run.
----------
-
-# Yakuza Voice Director Confirms What Makes The Game A Success
-
-CBR Exclusives, Yakuza
-
-Fri, 17 Jul 2026 19:10:37 GMT
-
-https://www.cbr.com/yakuza-voice-director-marc-hawes-success-comments/
-
-Voice director Marc Hawes reveals the secret behind Yakuza's universal appeal.
----------
-
-# Ocarina of Time Switch 2 Remake Gameplay Trailer Has a Release Date
-
-Games, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
-
-Fri, 17 Jul 2026 19:04:15 GMT
-
-https://www.cbr.com/zelda-ocarina-of-time-remake-gameplay-trailer-leak-analysis/
-
-Ignore the "August 4" rumors, Zelda fans can actually expect to see more from the long-awaited Ocarina of Time Switch 2 remake around September 9.
----------
-
-# 10 Time Travel Books Every Back to the Future Fan Should Read
-
-Movies, Back to the Future, Science Fiction, books
-
-Fri, 17 Jul 2026 19:00:15 GMT
-
-https://www.cbr.com/time-travel-books-for-back-to-the-future-fans-list/
-
-Full of paradoxes, humor, and heart, these sci-fi books are perfect for anyone missing the time travel antics of the Back to the Future films.
 ---------
