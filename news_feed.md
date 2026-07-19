@@ -1,3 +1,289 @@
+# 12 Years Later, The Hobbit Revisionism Has Started
+
+Movies, The Lord of the Rings: The Hunt for Gollum
+
+Sun, 19 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/the-hobbit-revisionism-started-12-years-later/
+
+For all the good things that The Hobbit introduced, the movie wasn't popular among Tolkien fans. However, the next movie will make it better, or worse
+---------
+
+# Marvel's Spider-Man Official Suit Redesign Splits Gamers
+
+Gaming, Marvel's Spider-Man, Triple-A Games
+
+Sun, 19 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/marvels-spider-man-white-suit-symbol-controversy/
+
+Marvel's Spider-Man almost played it safe when it came to its boldest costume design choice, and it clearly made the right choice in the end.
+---------
+
+# 10 Sci-Fi Shows That Almost Became The Next Lost
+
+Classic TV, Lost
+
+Sun, 19 Jul 2026 18:30:11 GMT
+
+https://screenrant.com/sci-fi-shows-almost-became-the-next-lost/
+
+Whenever there's a hit TV show, like Lost, every television producer in Hollywood will try to come up with "the next Lost" (and most fail miserably).
+---------
+
+# Scott Snyder Reveals Absolute Batman Will Be A “Bigger, Better” Version Of The Comic
+
+TV, Masked Recs, Batman, DC Universe
+
+Sun, 19 Jul 2026 18:07:11 GMT
+
+https://screenrant.com/absolute-batman-tv-show-scott-snyder-differences-explained/
+
+The showrunner for DC Studios' major upcoming Batman TV show, which is officially in the works, reveals the series will make changes from the comics.
+---------
+
+# Jason Statham's New Action Thriller Is Reacher Meets Under Siege
+
+Movies, Masked Recs
+
+Sun, 19 Jul 2026 18:00:11 GMT
+
+https://screenrant.com/jason-statham-mutiny-reacher-on-water/
+
+Jason Statham's latest action thriller, Mutiny, is basically a season of Reacher set at sea — and it could be Stath's best movie in years.
+---------
+
+# X-Men ’97 S2: Marvel’s Mutant Test Before Doomsday
+
+TV, Originals
+
+Sun, 19 Jul 2026 18:00:11 GMT
+
+https://screenrant.com/video/x-men-97-just-revealed-marvel-s-next-big-strategy/
+
+Avengers: Doomsday Already Started In X-Men '97. Marvel's newest season of X-Men '97 is doing far more than revisiting the beloved animated series. Hidden beneath the time travel, dystopian futures, and mutant mythology is a storytelling experiment that could determine how Avengers: Doomsday unfolds.
+---------
+
+# Baldur's Gate 4's Boldest Move Is One Fans Wouldn't Expect
+
+Gaming, Baldur's Gate 3, Baldur's Gate, Triple-A Games, PC, Dungeons and Dragons
+
+Sun, 19 Jul 2026 18:00:11 GMT
+
+https://screenrant.com/baldurs-gate-4-boldest-move-setting-ravenloft-barovia/
+
+Little is known about Baldur’s Gate 4 other than it has been confirmed by Wizards of the Coast, but its setting details could change everything.
+---------
+
+# The Rock's Dream DC Project Will Officially Happen With An Unexpected Twist
+
+Comics, DCU, dwayne johnson, DC Comics, Superman, Man of Steel, Black Adam, Shazam, Shazam!, Shazam! The Fury of the Gods
+
+Sun, 19 Jul 2026 19:00:15 GMT
+
+https://www.cbr.com/the-rock-dream-dc-project-officially-happens-with-unexpected-twist/
+
+The Rock is finally getting his wish, but DC Comics put a twist on it in Absolute Superman #21.
+---------
+
+# The CW's Underrated 3-Season Drama Is Officially Leaving Netflix Next Month
+
+TV, The Game
+
+Sun, 19 Jul 2026 19:00:15 GMT
+
+https://www.cbr.com/the-cw-the-game-leaving-netflix-august-2026/
+
+The underrated drama was a spinoff, and it serves as the perfect binge before it leaves Netflix.
+---------
+
+# Solo Leveling Officially Returns With System Sync on August 14
+
+Anime, Solo Leveling, Omniscient Reader
+
+Sun, 19 Jul 2026 19:00:15 GMT
+
+https://www.cbr.com/solo-leveling-omniscient-readers-viewpoint-system-sync/
+
+Solo Leveling's Sung Jinwoo and Omniscient Reader's Viewpoint's Kim Dokja for an epic collaboration between manhwa's biggest rivals.
+---------
+
+# 5 Greatest Fantasy Movies Recommended by Roger Ebert
+
+Movies, Fantasy
+
+Sun, 19 Jul 2026 19:00:15 GMT
+
+https://www.cbr.com/best-fantasy-movies-recommended-by-roger-ebert-list/
+
+Roger Ebert is one of the most revered film critics of all time, and there are some perfect fantasy films that Ebert recommended.
+---------
+
+# Katee Sackhoff's 3-Season Sci-Fi Show With a 90% RT Score Outshines Battlestar Galactica
+
+TV, Sci-Fi, Battlestar Galactica, The Mandalorian
+
+Sun, 19 Jul 2026 18:30:15 GMT
+
+https://www.cbr.com/katee-sackhoff-the-mandalorian-vs-battlestar-galactica/
+
+Katee Sackhoff has been part of some great sci-fi shows, but only one surpassed the greatness of Battlestar Galactica.
+---------
+
+# 10 Anime Series With Flawless First Seasons
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Attack on Titan, Spy X Family
+
+Sun, 19 Jul 2026 18:15:15 GMT
+
+https://www.cbr.com/anime-series-with-flawless-first-seasons/
+
+Not all anime finish strong, but series like Demon Slayer and Spy X Family started perfectly.
+---------
+
+# The Vampire Lestat's Sarah Afful Explains the 'Magical Connection' She Has to Merrick
+
+CBR Exclusives, The Vampire Lestat
+
+Sun, 19 Jul 2026 18:02:27 GMT
+
+https://www.cbr.com/the-vampire-lestat-sarah-afful-merrick-mayfair-claudia-seance/
+
+Sarah Afful explains how she brought Merrick Mayfair’s boldness and supernatural abilities to The Vampire Lestat’s séance scene.
+---------
+
+# Russell Crowe's 95-Minute Divisive Horror Is Officially Making Its Way to Netflix
+
+Movies, The Exorcism
+
+Sun, 19 Jul 2026 18:00:15 GMT
+
+https://www.cbr.com/the-exorcism-netflix-release-july-2026/
+
+One of the most critically divisive horror films of the decade is officially heading to a brand-new streaming home in just a matter of days.
+---------
+
+# NBC's 'Chicago P.D.' Finally Hits Netflix, But There's a Catch
+
+TV News, Chicago P.D., Netflix, NBC, Procedural
+
+Sun, 19 Jul 2026 19:00:15 GMT
+
+https://collider.com/chicago-pd-nbc-procedural-netflix-international-streaming/
+
+NBC's gritty police procedural is coming to Netflix this August as Season 14 nears. Here's all you need to know.
+---------
+
+# 8 Detective Shows That Make Sherlock Look Like an Amateur
+
+TV, Sherlock, Elementary, True Detective, Poirot
+
+Sun, 19 Jul 2026 18:49:15 GMT
+
+https://collider.com/detective-shows-better-than-sherlock/
+
+Luther, Mindhunter, Elementary, True Detective, and more make up our list of detective shows that make Sherlock look like an amateur.
+---------
+
+# 6 Worst R-Rated '90s Action Movies
+
+Movie, Action, Steel Frontier, Universal Soldier: The Return, Judge Dredd
+
+Sun, 19 Jul 2026 18:40:15 GMT
+
+https://collider.com/6-worst-r-rated-90s-action-movies-that-are-truly-010/
+
+From Double Team, to Steel Frontier, to Judge Dredd, these disastrous R-rated '90s action movies were embarrassing rather than thrilling.
+---------
+
+# 10 Sci-Fi Books About Aliens That Are 10/10, No Notes
+
+Books and Comics, Science Fiction, Sci-Fi, Stephen King, Project Hail Mary
+
+Sun, 19 Jul 2026 18:33:14 GMT
+
+https://collider.com/sci-fi-books-aliens-perfect-no-notes/
+
+From Andy Weir's Project Hail Mary to the international masterpiece The Three-Body Problem, these alien-themed science fiction novels are flawless.
+---------
+
+# 13 Years Later, Disney's First PG-13 Movie Is a Streaming Hit
+
+Movie News, Pirates of the Caribbean: The Curse of the Black Pearl, Disney, Disney+, Streaming
+
+Sun, 19 Jul 2026 18:00:15 GMT
+
+https://collider.com/pirates-of-the-caribbean-the-curse-of-the-black-pearl-streaming-success-disney-plus-july-2026/
+
+Disney's first PG-13 movie, Pirates of the Caribbean: The Curse of the Black Pearl, has found streaming success 13 years later. Find out more here.
+---------
+
+# All The Stars of Netflix's 'One Piece' Will Return for New Special
+
+TV News, One Piece, Netflix
+
+Sun, 19 Jul 2026 19:00:41 GMT
+
+https://movieweb.com/one-piece-netflix-stars-lego-special/
+
+All the main stars of Netflix's live-action 'One Piece' remake will return for the upcoming animated special.
+---------
+
+# Apple TV's Sci-Fi Hit Is Left With a Spare Character After Huge Book Change
+
+Features, Foundation, Apple TV, Sci-Fi
+
+Sun, 19 Jul 2026 19:00:12 GMT
+
+https://movieweb.com/foundation-magnifico-spare-character/
+
+'Foundation' Season 3's finale massively altered one of the source material's biggest twists. It's had an interesting side effect. Read on for now.
+---------
+
+# The 10 Most Disturbing Books of All Time
+
+Movie Lists
+
+Sun, 19 Jul 2026 18:30:12 GMT
+
+https://movieweb.com/most-disturbing-books-all-time/
+
+Literature goes to dark and challenging places and thoughts like no other medium: These ten books prove it.
+---------
+
+# Hulu’s Masterpiece Smash Hit Deserves Its Rotten Tomatoes Score
+
+Features, The Bear, Hulu
+
+Sun, 19 Jul 2026 18:00:12 GMT
+
+https://movieweb.com/the-bear-hulu-deserves-rotten-tomatoes-score/
+
+Hulu has several memorable original TV shows, but this series is particularly impressive.
+---------
+
+# 4 Werewolf Movies Coming in 2026 and Beyond
+
+Movie Lists, Horror
+
+Sun, 19 Jul 2026 18:00:12 GMT
+
+https://movieweb.com/werewolf-movies-coming-in-2026-and-beyond/
+
+With so many classic monsters making a resurgence, horror fans can expect to see these upcoming werewolf movies.
+---------
+
+# 'Supergirl' Sets Unfortunate Record for the DC Universe
+
+Movie News, Supergirl, Superhero, Superman
+
+Sun, 19 Jul 2026 18:00:11 GMT
+
+https://movieweb.com/supergirl-box-office-record-dc-superman/
+
+This superhero pic did not fly high.
+---------
+
 # Anne Hathaway Gives Major Update On Long-Awaited Sequel 22 Years Later
 
 Movies, The Princess Diaries 3
@@ -5210,290 +5496,4 @@ Sat, 18 Jul 2026 08:20:15 GMT
 https://collider.com/man-who-shot-liberty-valance-john-ford-masterpiece-streaming-free-tubi-july-2026/
 
 The Western masterpiece The Man Who Shot Liberty Valance, directed by Quentin Tarantino's least favorite director John Ford, is streaming for free.
----------
-
-# HBO's 4-Part Streaming Smash Returns to the Top 10 Before Its Next Chapter
-
-TV News, The White Lotus, HBO, HBO Max, Mike White
-
-Sat, 18 Jul 2026 08:00:15 GMT
-
-https://collider.com/hbo-the-white-lotus-season-3-streaming-success-july-2026/
-
-HBO's most popular prestige drama since Succession has surged back into the top 10 before its new season premieres next year.
----------
-
-# God Of War Fans Divided On Controversial Kratos Recast
-
-Gaming, God of War
-
-Sat, 18 Jul 2026 07:33:00 GMT
-
-https://screenrant.com/god-of-war-tv-recasting-reaction/
-
-God of War will soon have a new Kratos, leaving the fate of the franchise up in the air, and fans are understandably upset by the news.
----------
-
-# It's Official, Wolfenstein Returns In Fall 2026
-
-Gaming, Wolfenstein, PC
-
-Sat, 18 Jul 2026 07:00:12 GMT
-
-https://screenrant.com/wolfenstein-ttrpg-fall-2026-release/
-
-The cult favorite Wolfenstein is officially set to return in Fall 2026 with a brand-new game set during The New Order and New Collosus timeline.
----------
-
-# Brandon Sanderson’s Shards Of Creation Officially Available Now
-
-Gaming, Brandon Sanderson, The Stormlight Archive, The Cosmere, Mistborn, PC
-
-Sat, 18 Jul 2026 06:00:12 GMT
-
-https://screenrant.com/brandon-sanderson-shards-of-creation-2026-release/
-
-Brandon Sanderson's Shards of Creation is officially available to claim now after a hugely successful 2026 launch.
----------
-
-# Fallout 5 Official Release Date Update Confirms We're In For A Wait
-
-Gaming, Fallout 5, Triple-A Games
-
-Sat, 18 Jul 2026 04:45:11 GMT
-
-https://screenrant.com/fallout-5-release-date-update-official/
-
-Although confirmation of Fallout 5 is nice, the actual details that Bethesda provided shows that we might be in for a longer wait than expected.
----------
-
-# Stardew Valley Meets Resident Evil In This New Farming Horror Game
-
-Gaming, Steam, Stardew Valley, Indie
-
-Sat, 18 Jul 2026 04:30:12 GMT
-
-https://screenrant.com/stardew-valley-resident-evil-crop-game/
-
-The latest game to take what is beloved about Stardew Valley and stew it in a much darker atmosphere has players combatting rot instead of monsters.
----------
-
-# Dragon Ball Xenoverse 2 Is 100% Free For 24 Hours
-
-Gaming, Dragon Ball, Dragon Ball Xenoverse 2, PC, Triple-A Games
-
-Sat, 18 Jul 2026 04:15:12 GMT
-
-https://screenrant.com/dragon-ball-xenoverse-2-free-24-hours/
-
-One of the best adaptations of Akira Toriyama’s series, Dragon Ball Xenoverse 2, is 100% free for all players to grab, but you need to move fast.
----------
-
-# Steam Just Dropped 2026's GOTY, And It's Completely Free
-
-Gaming, Steam
-
-Sat, 18 Jul 2026 04:00:13 GMT
-
-https://screenrant.com/steam-free-2026-goty-take-care-of-dog/
-
-Discover the unsettling world of 'Take Care of the Dog', a highly-rated psychological horror game now available for free on Steam.
----------
-
-# 5 Years Later, Netflix's The Boys Replacement Is Marvel's Best Superhero Series No One Talks About
-
-Anime, Netflix, The Boys, Masked Recs
-
-Sat, 18 Jul 2026 03:59:12 GMT
-
-https://screenrant.com/netflix-super-crooks-the-boys-replacement/
-
-This unusual Netflix series from 2021 has practically everything fans of The Boys could want, minus much of the baggage weighing it down in the end.
----------
-
-# How The Odyssey Changed Jon Bernthal’s Approach To Acting
-
-CBR Exclusives, The Odyssey
-
-Sat, 18 Jul 2026 04:04:23 GMT
-
-https://www.cbr.com/the-odyssey-changed-jon-bernthal-approach-to-acting/
-
-Jon Bernthal discusses playing King Menelaus, drawing on his theater training, and working at Christopher Nolan’s epic scale.
----------
-
-# Gundam Wing 30th Anniversary Heero Yuy Military-Style Jacket Gets U.S. Release
-
-Anime, Mobile Suit Gundam Wing, Mobile Suit Gundam, merchandise, Clothing, bandai
-
-Sat, 18 Jul 2026 03:59:15 GMT
-
-https://www.cbr.com/gundam-wing-heero-yuy-military-jacket-america-bandai-release/
-
-A popular STRICT-G hoodie based on Gundam Wing is being re-released, but stylish anime fans might have to hunt for the hoodie fit for Heero Yuy.
----------
-
-# 10 High Fantasy Books That Are Perfectly Written
-
-Books and Comics, Books, Fantasy, Game Of Thrones, The Neverending Story
-
-Sat, 18 Jul 2026 04:08:15 GMT
-
-https://collider.com/high-fantasy-books-perfectly-written/
-
-From The Hobbit to Oathbringer, these high fantasy books have the best writing in the genre, to the point where they can truly be considered perfect.
----------
-
-# This 'Off Campus' Meets 'Fourth Wing' Fantasy Book Is Begging for a TV Adaptation
-
-TV Features, Books, Off Campus, Fourth Wing, Fantasy
-
-Sat, 18 Jul 2026 04:02:16 GMT
-
-https://collider.com/the-winged-game-off-campus-meets-fourth-wing-fantasy-tv-adaptation/
-
-Sophie Kim's The Winged Game is the perfect fantasy sports romance for a TV adaptation, with elements of Off Campus, Heated Rivalry, and Fourth Wing.
----------
-
-# 5 Star Trek Episodes That Predicted The Future
-
-Star Trek
-
-Sat, 18 Jul 2026 03:38:30 GMT
-
-https://screenrant.com/star-trek-episodes-predicted-future/
-
-Some of Star Trek's most ambitious and accurate predictions originated in single episodes that preceded actual technological inventions by decades.
----------
-
-# Spider-Man: Brand New Day May Have Confirmed Rumors About A Daredevil Character's Return
-
-Movies, Spider-Man: Brand New Day
-
-Sat, 18 Jul 2026 03:21:17 GMT
-
-https://screenrant.com/spider-man-brand-new-day-daredevil-claire-temple/
-
-A major rumor about a Daredevil character's return in Spider-Man: Brand New Day might have just been confirmed by one of the stars of the film.
----------
-
-# Martin Scorsese’s Star Wars Character Returns In An All-New Story
-
-Star Wars, The Mandalorian and Grogu
-
-Sat, 18 Jul 2026 03:15:12 GMT
-
-https://screenrant.com/martin-scorsese-star-wars-character-returns-hugo-durant-echoes-empire/
-
-Two months after The Mandalorian & Grogu, an all-new Star Wars story features the return of director Martin Scorsese's beloved cameo character.
----------
-
-# 5 Dystopian Post-Apocalyptic Adaptations Better Than Apple TV’s Silo
-
-Streaming TV, Silo, The Last of Us, Station Eleven, Sweet Tooth, Fallout, 12 Monkeys
-
-Sat, 18 Jul 2026 03:15:12 GMT
-
-https://screenrant.com/dystopian-post-apocalyptic-adaptations-better-silo/
-
-Apple TV’s Silo is easily one of the best post-apocalyptic shows out there, but a handful of dystopian sci-fi thrillers are arguably even better.
----------
-
-# Why Christopher Nolan Changed The Odyssey's Most Famous Scene
-
-Movies, The Odyssey, Christopher Nolan
-
-Sat, 18 Jul 2026 03:09:38 GMT
-
-https://screenrant.com/the-odyssey-christopher-nolan-famous-scene-change/
-
-Exclusive: Anne Hathaway discusses The Odyssey's Penelope and Christopher Nolan's decision to remove a famous scene from the iconic story.
----------
-
-# Joffrey Velaryon's Role In House Of The Dragon Explained & What Happens To Him In GRRM's Fire & Blood
-
-Streaming TV, House of the Dragon, House of the Dragon - Season 3
-
-Sat, 18 Jul 2026 03:00:12 GMT
-
-https://screenrant.com/joffrey-velaryon-house-dragon-tragic-fate-song-ice-fire-explained/
-
-Joffrey Velaryon is the youngest son of Rhaenyra and Laenor Velaryon, and while he’s a minor character, his fate is key to House of the Dragon.
----------
-
-# Netflix’s New Legal Drama Is Already Renewed For Season 2, And It’s A 10/10 Weekend Binge
-
-Streaming TV
-
-Sat, 18 Jul 2026 02:30:26 GMT
-
-https://screenrant.com/netflix-legal-drama-losing-judgment-weekend-binge/
-
-This new legal series, which combines the best of courtroom drama with a murder mystery and a unique female lead, is a hidden gem on Netflix.
----------
-
-# All 4 Seasons Of Netflix's 9-Year-Old Psychological Thriller Are Perfect
-
-Classic TV, Masked Recs
-
-Sat, 18 Jul 2026 02:30:12 GMT
-
-https://screenrant.com/the-sinner-all-seasons-netflix-perfect-psychological-thriller/
-
-An incredible psychological thriller premiered almost a decade ago, and it is still hard not to appreciated how all four of its season are perfect.
----------
-
-# X-Men '97 Major Winter Soldier Connection Explained
-
-Superheroes, X-Men '97, Marvel Cinematic Universe
-
-Sat, 18 Jul 2026 02:00:23 GMT
-
-https://screenrant.com/x-men-97-winter-soldier-weapon-x-connection-explained/
-
-The latest episode of Marvel Studios' X-Men '97 season 2 featured an exciting tie to Bucky Barnes' Winter Soldier (but what's the actual history?)
----------
-
-# Star Wars: Galactic Contention Is The Battlefront Sequel We Always Wanted
-
-Gaming, Star Wars Battlefront 2 (2017), Live Service Games, PC
-
-Sat, 18 Jul 2026 02:00:22 GMT
-
-https://screenrant.com/star-wars-galactic-contention-battlefield-vibes/
-
-After nearly a decade since the release of Battlefront 2, the closest thing to a sequel we've seen yet is nearly everything fans could want.
----------
-
-# 10 Best Mindless Anime Of All Time
-
-Anime, Gintama, One-Punch Man
-
-Sat, 18 Jul 2026 03:45:15 GMT
-
-https://www.cbr.com/best-mindless-anime-ever-ranked/
-
-Gintama, Asobi Asobase, Hellsing Ultimate and a few more anime are the absolute best mindless watches.
----------
-
-# 5 Fights We Need To See in the Street Fighter Movie
-
-Movies, Street Fighter, Action
-
-Sat, 18 Jul 2026 03:45:15 GMT
-
-https://www.cbr.com/street-fighter-movie-fights-that-should-happen-list/
-
-There are certain characters whom fans would love to see clash in the upcoming film adaptation of the Street Fighter video game series.
----------
-
-# NBC's Canceled Sci-Fi Time Travel Series Is Netflix's Most Bingeable New Hidden Gem
-
-TV, La Brea, Sci-Fi, Netflix
-
-Sat, 18 Jul 2026 03:30:15 GMT
-
-https://www.cbr.com/netflix-la-brea-most-bingeable-sci-fi-time-travel-series/
-
-Netflix’s canceled sci-fi offering is a high-concept time-travel mystery that will reel viewers back in time to 10,000 BC.
 ---------
