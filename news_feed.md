@@ -1,3 +1,256 @@
+# Apple TV's Hit 97% RT Comedy Is Quietly One Of Its Best Shows In Any Genre
+
+Streaming TV, Masked Recs
+
+Sun, 19 Jul 2026 23:15:11 GMT
+
+https://screenrant.com/trying-apple-tv-best-shows/
+
+One of Apple TV's oldest and most underrated comedies is also one of its best shows in any genre, and it deserves way more hype than it gets.
+---------
+
+# The 7 Coolest Things Godzilla Has Done With His Atomic Breath
+
+Movies, Godzilla
+
+Sun, 19 Jul 2026 23:15:11 GMT
+
+https://screenrant.com/godzilla-coolest-atomic-breath-scenes/
+
+Over the course of his long movie history, Godzilla has accomplished some remarkable feats with his signature power, the atomic breath.
+---------
+
+# 8 Funniest Sci-Fi Movies To Watch After Project Hail Mary
+
+Movies, Project Hail Mary, Sci-Fi
+
+Sun, 19 Jul 2026 23:15:11 GMT
+
+https://screenrant.com/funny-sci-fi-movies-like-project-hail-mary/
+
+One of the best things about Project Hail Mary is the film’s tremendous humor, and these eight excellent sci-fi hits are arguably even funnier.
+---------
+
+# It's Time For Star Trek To Break A 31-Year Streak
+
+Star Trek
+
+Sun, 19 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/star-trek-break-format-streak-new-crew-timeline/
+
+Star Trek's universe is vast, and the series has expanded for decades. However, it is in the wrong direction, with Star Trek expanding outwards.
+---------
+
+# Resident Evil 1 Remake Release Window Has Gamers Hyped
+
+Gaming, Resident Evil, Triple-A Games
+
+Sun, 19 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/resident-evil-remake-launch-timeline-leak/
+
+Resident Evil may have at least a couple of new remakes on the way quite soon, resulting in a steady stream of installments that players can expect.
+---------
+
+# Beloved $5.6 Billion Animation Empire Is Making A Massive Comeback On Netflix U.S.
+
+Movies, Masked Recs
+
+Sun, 19 Jul 2026 22:48:45 GMT
+
+https://screenrant.com/minions-the-rise-of-gru-netflix-streaming-success-july-2026/
+
+An esteemed animated franchises that's made billions of dollars is experiencing a resurgence in popularity on Netflix in the United States.
+---------
+
+# Netflix’s New 12-Part Ghost Romance Is A Murder Mystery With A Twist
+
+Streaming TV, Masked Recs
+
+Sun, 19 Jul 2026 22:47:12 GMT
+
+https://screenrant.com/netflix-spooky-in-love-k-drama-series-watch/
+
+Netflix's new 12-part K-drama ghost romance series is a thrilling murder mystery with a supernatural twist and is officially a must-watch this week.
+---------
+
+# Deadwood Meets Reacher In Hulu's 6-Part Neo-Western Series
+
+Classic TV, Masked Recs
+
+Sun, 19 Jul 2026 22:30:11 GMT
+
+https://screenrant.com/justified-hulu-deadwood-meets-reacher-neo-western-series/
+
+A hit FX show now on Hulu brings the Western sensibilities of Deadwood to Reacher's gritty lone-wolf justice, and it's absolutely incredible.
+---------
+
+# Star Trek Announces Captain Kirk's Final Villain in Franchise History
+
+Comics, Star Trek
+
+Sun, 19 Jul 2026 22:30:11 GMT
+
+https://screenrant.com/star-trek-captain-kirk-ending-final-villain/
+
+It's the perfect choice.
+---------
+
+# 10 Greatest Greek Mythology Movies Including The Odyssey, Ranked
+
+Classic Movies, The Odyssey
+
+Sun, 19 Jul 2026 22:25:12 GMT
+
+https://screenrant.com/best-greek-mythology-movies/
+
+With The Odyssey hitting in 2026, how does it rank among the best Greek mythology movies ever released through the years in cinema history.
+---------
+
+# 5 Masterpiece Supernatural Anime Better Than Jujutsu Kaisen
+
+Anime, Jujutsu Kaisen, Yu Yu Hakusho
+
+Sun, 19 Jul 2026 23:15:15 GMT
+
+https://www.cbr.com/masterpiece-supernatural-anime-better-than-jjk/
+
+For viewers seeking the very best supernatural anime has to offer, these exceptional supernatural series deserve to be at the top of the list.
+---------
+
+# Outlander Officially Returns With New 2026 Release 4 Months After Season 8 Finale
+
+TV, Outlander
+
+Sun, 19 Jul 2026 23:00:15 GMT
+
+https://www.cbr.com/outlander-complete-series-dvd-collection/
+
+Outlander shaped the romance genre, and it's now heading for a final farewell.
+---------
+
+# Spider-Man's Most Dangerous Villain Officially Returns With A Shocking, Upgraded Redesign
+
+Comics, Marvel, Marvel Comics, Spider-Man, Spider-Man: Brand New Day, Spider-Verse, MCU
+
+Sun, 19 Jul 2026 23:00:15 GMT
+
+https://www.cbr.com/spider-man-most-dangerous-villain-returns-with-shocking-redesign/
+
+How in the world is Spider-Man going to defeat what Marvel just unleashed?
+---------
+
+# The 96% RT Sci-Fi Show George RR Martin Declared Was 'Doing Science Fiction Right'
+
+TV, Star Wars, Andor, george rr martin, Sci-Fi
+
+Sun, 19 Jul 2026 23:00:15 GMT
+
+https://www.cbr.com/george-rr-martin-star-wars-andor-high-praise/
+
+The creator of Game of Thrones had high praise for one of TV's recent sci-fi highlights.
+---------
+
+# 10 Hardest Sega Saturn Games, Officially Ranked
+
+Games, Contra, sega, RPG, Video Games
+
+Sun, 19 Jul 2026 22:15:15 GMT
+
+https://www.cbr.com/hardest-sega-saturn-games-ranked/
+
+The Sega Saturn had its share of easy games to conquer in a weekend, but it also had plenty that tested the patience and durability of players.
+---------
+
+# Netflix Just Landed One of the Biggest Sci-Fi Franchises of All Time
+
+Movie News, The Hunger Games, The Hunger Games: Sunrise on the Reaping, Netflix
+
+Sun, 19 Jul 2026 23:15:15 GMT
+
+https://collider.com/hunger-games-franchise-streaming-netflix-july-2026/
+
+Ahead of the franchise's next film and the upcoming theatrical event in September, Netflix adds all five Hunger Games films to its library.
+---------
+
+# James Bond Is Officially Back From the Dead
+
+Movie News, No Time to Die, Daniel Craig, James Bond, 007
+
+Sun, 19 Jul 2026 23:00:15 GMT
+
+https://collider.com/james-bond-no-time-to-die-daniel-craig-streaming-success-prime-video-july-2026/
+
+No Time to Die, the final James Bond movie starring Daniel Craig, has been resurrected as one of the biggest streaming hits of 2026.
+---------
+
+# Prime Video's 16-Episode Crime Thriller Is a Must-Watch for Fans of 'The Lincoln Lawyer'
+
+TV Features, The Lincoln Lawyer, Cross, Prime Video, Crime
+
+Sun, 19 Jul 2026 22:46:15 GMT
+
+https://collider.com/cross-prime-video-crime-thriller-lincoln-lawyer/
+
+If you're counting the days until The Lincoln Lawyer returns for Season 5, Prime Video's crime thriller series Cross will make the wait easier.
+---------
+
+# 'Magic: The Gathering Officially Reveals Its Most Unexpected Crossover Yet
+
+Video Games, Stardew Valley, Magic: The Gathering, Video Game, Fantasy
+
+Sun, 19 Jul 2026 22:45:15 GMT
+
+https://collider.com/stardew-valley-exciting-crossover-with-mtg-magic-the-gathering/
+
+Magic: The Gathering reveals Stardew Valley crossover at MagicCon Amsterdam, with a superdrop called Superdrop of the Moonlight Jellies.
+---------
+
+# Netflix's Biggest Sci-Fi Movie of 2026 Belongs to Alan Ritchson
+
+Movie News, War Machine, Alan Ritchson, Netflix, The Rip
+
+Sun, 19 Jul 2026 22:30:15 GMT
+
+https://collider.com/alan-ritchson-sci-fi-war-machine-netflix-most-watched-movie-2026/
+
+Netflix reveals Alan Ritchson's bonkers sci-fi action masterpiece, War Machine, as its most-watched film of the first half of 2026.
+---------
+
+# Henry Cavill's New Detective Hit Officially Dethroned by Netflix's Must-See Crime Thriller
+
+Movie News, Henry Cavill, Enola Holmes 3, True Crime, Netflix
+
+Sun, 19 Jul 2026 22:15:15 GMT
+
+https://collider.com/enola-holmes-3-shipwrecked-nightmare-at-sea-streaming-success-netflix-july-2026/
+
+Henry Cavill's threequel with Millie Bobby Brown, Enola Holmes 3, is being beaten on streaming by a must-watch true crime movie.
+---------
+
+# 7 Possibilities for Christopher Nolan's Next Movie, Based on His Interviews
+
+Features, Christopher Nolan
+
+Sun, 19 Jul 2026 23:00:12 GMT
+
+https://movieweb.com/christopher-nolan-next-movie-possibilities/
+
+Now that Christopher Nolan's long-awaited epic 'The Odyssey' has hit theaters cinema fans are naturally asking what's next for the legendary director.
+---------
+
+# 10 Crunchyroll Action Thriller Anime That Are Better Than ‘Attack on Titan’
+
+TV Lists, Attack On Titan, Anime, Attack on Titan
+
+Sun, 19 Jul 2026 22:30:12 GMT
+
+https://movieweb.com/crunchyroll-action-thriller-anime-better-attack-on-titan/
+
+These action thriller anime outshine the beloved 'Attack on Titan' in at least one area, and they're all available to stream on Crunchyroll.
+---------
+
 # Homelander's Best Line Is the Most Misunderstood Quote in The Boys History
 
 Comics, The Boys
@@ -5243,257 +5496,4 @@ Sat, 18 Jul 2026 15:00:13 GMT
 https://movieweb.com/interstellar-ending-explained/
 
 'Interstellar' is one of Christopher Nolan's most complex movies to date. Here is what the end of the sci-fi epic means.
----------
-
-# 'Tombstone' Fans Can't Miss This Near-Perfect Western Action Thriller on Netflix
-
-Features, Old Henry, Netflix
-
-Sat, 18 Jul 2026 15:00:12 GMT
-
-https://movieweb.com/action-thriller-old-henry-streaming-netflix/
-
-Western fans who enjoy the history that lies beneath 'Tombstone's iconic action sequences can't miss the 94% RT Western action drama on Netflix.
----------
-
-# 5 Best Performances In The Odyssey, Ranked
-
-Movies, The Odyssey
-
-Sat, 18 Jul 2026 14:15:12 GMT
-
-https://screenrant.com/best-the-odyssey-performances/
-
-Christopher Nolan's The Odyssey bolsters an all-star cast delivering superb performances, but there are few that stand out above the rest.
----------
-
-# Christopher Nolan & Matt Damon Explain The Deeper Meaning Behind Athena's Reveal In The Odyssey Ending
-
-Movies, The Odyssey
-
-Sat, 18 Jul 2026 14:00:28 GMT
-
-https://screenrant.com/the-odyssey-ending-troy-sacking-athena-reveal-explained-christopher-nolan/
-
-The Odyssey means more than people first thought, as Christopher Nolan and Matt Damon reveal the true and deeper meaning behind Athena's reveal.
----------
-
-# Heated Rivalry's Timeline Explained (& What To Expect With Season 2)
-
-Streaming TV, Heated Rivalry, Explainer
-
-Sat, 18 Jul 2026 14:00:13 GMT
-
-https://screenrant.com/heated-rivalry-show-timeline-explained/
-
-Hockey romance Heated Rivalry has taken the world by storm, but the page-to-screen adaptation has a complicated timeline that differs from the source.
----------
-
-# The Wait Is Over: Fourth Wing's New Release Is Out On Amazon Now
-
-Books, Fourth Wing (2023), The Empyrean Series
-
-Sat, 18 Jul 2026 14:00:11 GMT
-
-https://screenrant.com/fourth-wing-new-game-next-major-release/
-
-Fourth Wing just released the next big installment in the franchise, titled Fourth Wing: Rise of the Wingleader. Here is everything you need to know.
----------
-
-# Game Of Thrones Official Return Delayed To 2027, But Fans Don't Mind
-
-Gaming, Game of Thrones, Game of Thrones: War for Westeros
-
-Sat, 18 Jul 2026 14:00:11 GMT
-
-https://screenrant.com/game-of-thrones-war-for-westeros-2027-delay-fan-reactions/
-
-Game of Thrones War for Westeros, an upcoming real-time strategy game, has been delayed to 2027.
----------
-
-# Keke Palmer's Upcoming Space Opera Is Star Wars Meets The Orville
-
-Movies, Masked Recs
-
-Sat, 18 Jul 2026 14:00:11 GMT
-
-https://screenrant.com/spaceballs-2-the-new-one-star-wars-meets-orville/
-
-Keke Palmer's upcoming space opera movie is Star Wars meets The Orville, and it already has plenty of hilariously promising potential.
----------
-
-# Hannah Waddingham’s New Assassin Action Series Is An Instant #1 Hit For Prime Video
-
-TV, Masked Recs
-
-Sat, 18 Jul 2026 13:51:10 GMT
-
-https://screenrant.com/ride-or-die-prime-video-streaming-success-july-2026/
-
-Before the return of Ted Lasso, Hannah Waddingham is leading a different series, an assassin action show that is already a hit for Prime Video.
----------
-
-# How Accurate Band Of Brothers' Head-Shaving Scene Is To Real History
-
-Classic TV, Band of Brothers
-
-Sat, 18 Jul 2026 13:30:11 GMT
-
-https://screenrant.com/band-of-brothers-head-shaving-scene-true-accurate/
-
-In Band of Brothers, episode 4, "Replacements", the men of Easy stumble upon a dramatic head-shaving punishment, but did it really happen?
----------
-
-# Fallout 5 Official Release Date Update Comes At A Terrible Cost
-
-Gaming, Fallout
-
-Sat, 18 Jul 2026 13:30:11 GMT
-
-https://screenrant.com/fallout-5-official-release-date-update-cost/
-
-As Xbox undergoes major restructuring and layoffs, Bethesda focuses on developing Fallout 5.
----------
-
-# Matt Damon Reveals How Ridley Scott Candidly Convinced Him To Star In The Martian
-
-Movies, The Martian
-
-Sat, 18 Jul 2026 13:29:18 GMT
-
-https://screenrant.com/matt-damon-the-martian-ridley-scott-convince/
-
-Matt Damon received widespread praise for his role in The Martian, but the actor reveals how Ridley Scott had to convince him to play the role.
----------
-
-# 10 Most Overpowered Cursed Techniques in JJK
-
-Anime, Jujutsu Kaisen
-
-Sat, 18 Jul 2026 14:15:15 GMT
-
-https://www.cbr.com/jujutsu-kaisen-most-op-cursed-techniques/
-
-Jujutsu Kaisen's Cursed Techniques are generally impressive, but some of them are effortlessly superior
----------
-
-# It's Official: The Elder Scrolls VI Is Finally Confirmed
-
-Games, The Elder Scrolls
-
-Sat, 18 Jul 2026 14:00:15 GMT
-
-https://www.cbr.com/elder-scrolls-6-officialy-confirmed/
-
-15 years after the release of Skyrim, Bethesda has officially confirmed The Elder Scrolls VI.
----------
-
-# What We Do in the Shadows' Spiritual Comic Book Sequel, Dinner Date, Arrives in Just 3 Months
-
-Comics, What We Do in the Shadows
-
-Sat, 18 Jul 2026 14:00:15 GMT
-
-https://www.cbr.com/dinner-date-vampire-comic-spiritual-what-we-do-in-the-shadows-sequel/
-
-Here comes a bloody funny new comic book series perfect for What We Do in the Shadows fans.
----------
-
-# Transformers Brings Back Optimus Prime, Hot Rod & More in Retro 1986 Designs
-
-Anime, Transformers, merchandise, toys, toys r us, hasbro
-
-Sat, 18 Jul 2026 14:00:15 GMT
-
-https://www.cbr.com/transformers-hasbro-china-toysrus-retro-bundles/
-
-Hasbro China is releasing numerous retro Transformers toy bundles, with one of these commemorating the franchise's first movie, 40 years later.
----------
-
-# James Gunn's DCU Is Bringing Back Blue Beetle
-
-Movies, DCU, Man of Tomorrow, Blue Beetle
-
-Sat, 18 Jul 2026 14:00:15 GMT
-
-https://www.cbr.com/james-gunn-dcu-blue-beetle-return/
-
-A forgotten hero from the Snyderverse is returning in the new DCU, and it could finally give him the popularity he and his 2023 movie deserved.
----------
-
-# The Uprising Trailer Reveals Andrew Garfield's Epic Braveheart Replacement
-
-Movies, The Uprising
-
-Sat, 18 Jul 2026 13:34:38 GMT
-
-https://www.cbr.com/andrew-garfield-the-uprising-trailer/
-
-Audiences just got their first glimpse at Andrew Garfield's upcoming historical epic, and the Peasant's Revolt has never looked more explosive.
----------
-
-# Ray Romano's Favorite Everybody Loves Raymond Episode Is the Best 22 Minutes in Sitcom History
-
-TV, Everybody Loves Raymond, Sitcoms
-
-Sat, 18 Jul 2026 13:31:15 GMT
-
-https://www.cbr.com/ray-romano-favorite-everybody-loves-raymond-episode-talk-to-your-daughter/
-
-Legendary comedian Ray Romano names his favorite episode of Everybody Loves Raymond, and it's a perfect choice that illustrates the sitcom's legacy.
----------
-
-# In 1 Month, Ridley Scott Returns to Sci-Fi with The Dog Stars
-
-Movies, The Dog Stars, ridley scott, Sci-Fi
-
-Sat, 18 Jul 2026 13:31:15 GMT
-
-https://www.cbr.com/ridley-scott-sci-fi-return-the-dog-stars-movie/
-
-Nearly nine years after his last sci-fi movie, one of the genre's best directors is set to return with a new book adaptation this summer.
----------
-
-# 10 Must-Watch Anime Series That Don't Waste a Single Episode
-
-Anime
-
-Sat, 18 Jul 2026 13:15:15 GMT
-
-https://www.cbr.com/must-watch-anime-series-no-wasted-episodes/
-
-These ten anime are incredible from start to finish, and not a single episode is worth skipping.
----------
-
-# Ben Affleck & Matt Damon's Lawsuit-Inducing Is Officially 1 of Netflix's Biggest Movies This Year
-
-Movies, The Rip, Netflix, Crime
-
-Sat, 18 Jul 2026 13:00:16 GMT
-
-https://www.cbr.com/the-rip-netflix-biggest-movies-2026/
-
-The movie that sparked a lawsuit is one of Netflix's biggest hits of the year.
----------
-
-# Julianne Moore's 6 Best Movie Masterpieces, Ranked
-
-Movie, Julianne Moore, Boogie Nights, Far From Heaven, Magnolia
-
-Sat, 18 Jul 2026 14:04:15 GMT
-
-https://collider.com/best-julianne-moore-movie-masterpieces/
-
-From Children of Men, to Magnolia, to Far from Heaven, these Julianne Moore masterpieces reveal why she remains one of cinema’s finest actors.
----------
-
-# Batman Officially Returns With a New 10-Part Release This Month
-
-TV News, Batman: Caped Crusader, The Batman Part II, Matt Reeves, J.J. Abrams
-
-Sat, 18 Jul 2026 14:00:15 GMT
-
-https://collider.com/batman-caped-crusader-season-2-release-date/
-
-The Dark Knight returns when Batman: Caped Crusader Season 2 releases all 10 episodes on Prime Video this month.
 ---------
