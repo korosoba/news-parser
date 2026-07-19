@@ -1,3 +1,36 @@
+# Pokémon Winds & Waves' Latest Leak Is Its Biggest Yet
+
+Gaming, Pokemon Winds and Waves, Triple-A Games
+
+Sun, 19 Jul 2026 07:00:12 GMT
+
+https://screenrant.com/pokemon-winds-waves-pokedex-300-new-pokemon-leak/
+
+After an unprecedented leak
+---------
+
+# Baldur's Gate 3 Gets Official New Release For July 2026
+
+Gaming, Baldur's Gate 3, PC, Dungeons & Dragons
+
+Sun, 19 Jul 2026 06:00:11 GMT
+
+https://screenrant.com/baldurs-gate-3-necromancy-thay-book-release-july-2026/
+
+Baldur's Gate 3 is getting an official new release later this month featuring one of the game's most iconic pieces of lore.
+---------
+
+# 'Call of Duty' Director Peter Berg Reveals Which 'CoD' Games Fuel the Plot
+
+Movie News, Call of Duty
+
+Sun, 19 Jul 2026 05:28:08 GMT
+
+https://movieweb.com/call-of-duty-modern-warfare-movie/
+
+The upcoming 'Call of Duty' movie, written by Taylor Sheridan, will be set in the same universe as the 'Modern Warfare' games.
+---------
+
 # Xbox Game Pass Members, Mark Your Calendars For July 21
 
 Gaming, Xbox Game Pass
@@ -5463,37 +5496,4 @@ Fri, 17 Jul 2026 17:56:31 GMT
 https://screenrant.com/naruto-live-action-remake-franchise-return/
 
 There hasn't been much movement within the Naruto franchise in the last handful of years, but that's all about to change as the anime is left behind.
----------
-
-# Timothy Olyphant’s New Adaptation Of Bestselling Novel Officially Sets All-Time Streaming Record
-
-TV, The Five-Star Weekend, Peacock, Timothy Olyphant
-
-Fri, 17 Jul 2026 17:50:44 GMT
-
-https://screenrant.com/timothy-olyphant-five-star-weekend-peacock-streaming-record-1-billion-minutes-viewed/
-
-Timothy Olyphant's new adaptation of a bestselling novel is already off to a great start as it officially sets an all-time streaming record.
----------
-
-# Brandon Sanderson Reveals Early Worry About Mistborn Film Adaptation For Apple TV
-
-Movies, Mistborn, Brandon Sanderson
-
-Fri, 17 Jul 2026 17:43:07 GMT
-
-https://screenrant.com/brandon-sanderson-mistborn-movie-screenplay-pacing-worry/
-
-Author Brandon Sanderson recently revealed that the Mistborn script is 91% complete, but he’s not completely satisfied with the work he’s done so far.
----------
-
-# Wednesday Season 3's Major New Locations & Tyler's Story Teased By Star
-
-TV, Wednesday, Addams Family
-
-Fri, 17 Jul 2026 17:37:17 GMT
-
-https://screenrant.com/wednesday-season-3-hyde-location-paris-tease-hunter-doohan/
-
-As Wednesday season 3 continues production, returning cast member Hunter Doohan has teased details about upcoming new locations and Tyler's story.
 ---------
