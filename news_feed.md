@@ -1,3 +1,267 @@
+# 10 Greatest Animated Kids Movies Of The 2010s That Deserve More Love
+
+Classic Movies, Animation
+
+Sun, 19 Jul 2026 13:45:11 GMT
+
+https://screenrant.com/best-2010-animated-kids-movies-deserve-more-love/
+
+the 2010s had some high-quality animated movies that everyone loves, but there were also some underrated movies that deserve more attention.
+---------
+
+# 54 Years Later, The Godfather's Greatest Line Tastes Even Sweeter
+
+Classic TV, The Godfather, The Sopranos
+
+Sun, 19 Jul 2026 13:30:12 GMT
+
+https://screenrant.com/the-godfather-cannoli-line-better-today/
+
+The Godfather's best line is still one of the greatest in film history, and over five decades later, it's even better thanks to one TV show.
+---------
+
+# 12 Hidden Features In Palworld That Will Improve Your Experience
+
+Gaming, Palworld, PC
+
+Sun, 19 Jul 2026 13:30:12 GMT
+
+https://screenrant.com/palworld-hidden-features-mechanics/
+
+Palworld is an immensely fun and surprisingly large game, but there aren't many directions, leaving people to miss these hidden features.
+---------
+
+# 6 Most Iconic Gibberish Languages In Movies, TV, & Video Games
+
+Classic Movies
+
+Sun, 19 Jul 2026 13:15:11 GMT
+
+https://screenrant.com/gibberish-languages-movies-tv-video-games/
+
+While languages like Elvish, Klingon, and Dothraki have been fully fleshed out, other iconic fictional dialects are just pure gibberish
+---------
+
+# Marvel Studios Sets Up X-23's Return After Deadpool & Wolverine
+
+Streaming TV, Masked Recs
+
+Sun, 19 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/x-men-97-season-2-x-23-return-after-deadpool-wolverine/
+
+Marvel has set up the perfect return for X-23, with the character having last appeared in one of the studio's releases in Deadpool & Wolverine.
+---------
+
+# How Will Ferrell’s New Netflix Comedy Hit #1 Despite 29% RT Score
+
+Streaming TV, The Hawk
+
+Sun, 19 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/netflix-will-ferrell-new-comedy-hit-rotten-tomatoes/
+
+Will Ferrell's new Netflix golf comedy series The Hawk hit #1 in the United States overnight despite a low Rotten Tomatoes score – how did he do it?
+---------
+
+# When Hogwarts Will First Appear In HBO's Harry Potter Officially Confirmed
+
+TV, Harry Potter, Harry Potter - Season 1
+
+Sun, 19 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/hbo-harry-potter-hogwarts-first-appearance-confirmed/
+
+As HBO's Harry Potter debut draws closer, it is revealed when fans can expect to see Hogwarts for the first time in the television series.
+---------
+
+# Avatar: The Last Airbender's New Movie Gets Theatrical Release, But Fans Won't Be Happy
+
+Movies, Avatar Aang: The Last Airbender, Avatar: The Last Airbender
+
+Sun, 19 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/avatar-aang-last-airbender-theatrical-release-fan-anger/
+
+Avatar Aang's long-awaited return has fans questioning Paramount's decision, as Avatar Aang: The Last Airbender gets controversial theater release.
+---------
+
+# 10 Greatest Dungeons & Dragons Adventure Books On D&D Beyond
+
+Tabletop, Dungeons and Dragons, Dungeons & Dragons, tabletop games
+
+Sun, 19 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/best-dnd-beyond-adventure-books/
+
+Outside of the obvious picks, like Curse of Strahd or Descent into Avernus, there are some great adventure books you can buy on D&amp;D Beyond.
+---------
+
+# 10 Times You Didn't Notice Major Movies Used CGI
+
+Movies, Children of Men, Joker, Avengers: Infinity War, Marvel Cinematic Universe, Jurassic Park, Forrest Gump, John Wick, Machete, Iron Man 3, Brokeback Mountain
+
+Sun, 19 Jul 2026 12:55:12 GMT
+
+https://screenrant.com/major-movies-cgi-unnoticed/
+
+From a CGI baby to a $5,000 digital dog poop, these major movies used invisible visual digital effects that most viewers never noticed.
+---------
+
+# It's Official, Star Trek Permanently Killed Off Its Best Villains
+
+TV, Star Trek, Star Trek: Picard, Paramount Plus, Sci-Fi
+
+Sun, 19 Jul 2026 13:30:15 GMT
+
+https://www.cbr.com/paramount-star-trek-picard-ended-borg-storyline/
+
+Star Trek: Picard was the swan song for The Next Generation characters, but it was also the grand finale for the show's iconic villains.
+---------
+
+# 5 Masterpiece Fantasy Anime Series With the Best Lore
+
+Anime, Frieren: Beyond Journey's End, Delicious in Dungeon
+
+Sun, 19 Jul 2026 13:15:15 GMT
+
+https://www.cbr.com/masterpiece-fantasy-anime-with-best-lore/
+
+Few anime weave their mythology into the story as seamlessly as these extraordinary fantasy epics.
+---------
+
+# 10 Best Thriller Movies Recommended by Stephen King
+
+Movies, Stephen King, Thriller, Sorcerer, The Long Walk, Misery, The Autopsy of Jane Doe, Jaws, No One Will Save You, The Mist, The Getaway, Secret Window, The Way of the Gun
+
+Sun, 19 Jul 2026 13:00:15 GMT
+
+https://www.cbr.com/best-stephen-king-approved-thriller-movies-list/
+
+If there's any movie recommendations you can trust, it's those of legendary horror and thriller author Stephen King.
+---------
+
+# Everything You Forgot About Ted Lasso During the Long Wait for Season 4
+
+TV, Ted Lasso
+
+Sun, 19 Jul 2026 12:30:15 GMT
+
+https://www.cbr.com/ted-lasso-season-3-recap/
+
+It will be over three years since Season 3 when Season 4 of Ted Lasso premieres, so you've likely forgotten many details.
+---------
+
+# 'The End of Oak Street's Director Made a Cult Detective Movie You've Probably Never Seen
+
+Movie Features, David Robert Mitchell, Under the Silver Lake, Andrew Garfield, The End of Oak Street
+
+Sun, 19 Jul 2026 13:31:15 GMT
+
+https://collider.com/ewan-mcgregor-dinosaur-movie-the-end-of-oak-street-director-under-the-silver-lake/
+
+After the hit It Follows and before The End of Oak Street, David Robert Mitchell made the neo-noir flop-turned-cult classic Under the Silver Lake.
+---------
+
+# After 750 Days, Tom Hanks’ WWII Thriller Takes the Crown as Apple TV’s Biggest Hit
+
+Movie News, Tom Hanks, Greyhound, Apple TV, World War II
+
+Sun, 19 Jul 2026 13:15:15 GMT
+
+https://collider.com/tom-hanks-ww2-thriller-greyhound-apple-tv-top-10-milestone-750-days/
+
+Tom Hanks’ 91-minute WW2 thriller Greyhound sails past massive milestone on Apple TV’s U.S. Top 10 charts, 6 years after its initial release.
+---------
+
+# 2026's Hidden-Gem Sci-Fi Thriller Is Officially a Global Streaming Smash
+
+Movie News, Redux Redux, Hulu, Sci-Fi, Streaming
+
+Sun, 19 Jul 2026 12:45:15 GMT
+
+https://collider.com/redux-redux-sci-fi-streaming-success-hulu-july-2026/
+
+The most mind-bending and underrated sci-fi project of 2026 so far is a quiet streaming hit.  Here's all to know about Redux Redux.
+---------
+
+# ’Twilight’s Best Character Was Never a Vampire, and It Isn’t Even Close
+
+Movie Features, Twilight, Billy Burke, The Twilight Saga: New Moon, The Twilight Saga
+
+Sun, 19 Jul 2026 12:34:15 GMT
+
+https://collider.com/twilight-movie-best-character-charlie-swan/
+
+Charlie Swan is still the best character in the Twilight saga, and Billy Burke’s performance is a big reason why he remains such a fan favorite.
+---------
+
+# Apple TV's New 10-Part Mystery Thriller Is Your Next Weekend Binge
+
+TV News, Cape Fear, Apple TV, Javier Bardem, Amy Adams
+
+Sun, 19 Jul 2026 12:30:15 GMT
+
+https://collider.com/apple-tv-cape-fear-streaming-success-july-2026/
+
+Cape Fear, the new Apple TV mystery thriller, is winning over fans around the world before its highly anticipated Season 1 finale.
+---------
+
+# What Your Favorite Book Genre Says About You
+
+TV, Books, Sci-Fi, Thriller, Romance
+
+Sun, 19 Jul 2026 12:21:14 GMT
+
+https://collider.com/what-your-favorite-book-genre-says-about-you/
+
+Discover how your favorite book genre reflects your personality traits, from imagination and resilience in fantasy to emotional depth in romance.
+---------
+
+# Classic War Drama 'Saving Private Ryan' Is About to Leave Free Streaming
+
+Movie News, Saving Private Ryan, Coming/Leaving Streaming
+
+Sun, 19 Jul 2026 13:53:35 GMT
+
+https://movieweb.com/saving-private-ryan-leaving-free-streaming-pluto-august-2026/
+
+War movies have never been the same since this one changed the genre forever.
+---------
+
+# Christopher Nolan's 97% 'The Odyssey' Already Scores Big on Streaming
+
+Movie News, The Odyssey, Hot on Streaming, Peacock
+
+Sun, 19 Jul 2026 13:43:30 GMT
+
+https://movieweb.com/christopher-nolan-odyssey-already-streaming-hit/
+
+'The Odyssey' is poised to become one of 2026's most successful movies.
+---------
+
+# 'Ride or Die' Action Spy Series Tops Streaming, Earns Raves for Prime Video
+
+TV News, Ride or Die
+
+Sun, 19 Jul 2026 13:33:48 GMT
+
+https://movieweb.com/prime-video-ride-or-die-ratings-hit/
+
+Amazon's new action-comedy series Ride or Die, starring Hannah Waddingham, Octavia Spencer, and Bill Nighy, debuts at No. 1 on Prime Video with  96% Rotten Tomatoes score.
+---------
+
+# 'Terminator,' 'Terminator 2' Co-Writer William Wisher Jr. Has Died at 71
+
+Movie News, Terminator 2: Judgment Day
+
+Sun, 19 Jul 2026 13:09:01 GMT
+
+https://movieweb.com/william-wisher-jr-dead-at-71/
+
+Screenwriter William Wisher Jr., known for his contributions to 'The Terminator' and 'Terminator 2: Judgment Day,' has died at the age of 71. Wisher collaborated with James Cameron on these iconic sci-fi films.
+---------
+
 # Red Dead Redemption 3 Can Wait, RDR2: The Forgotten Frontier Is Coming
 
 Gaming, Red Dead Redemption, Red Dead Redemption 2
@@ -5232,268 +5496,4 @@ Fri, 17 Jul 2026 22:19:15 GMT
 https://collider.com/best-jeremy-renner-movies/
 
 From The Town to Wind River and other career-defining performances, these Jeremy Renner movies stand above the rest.
----------
-
-# 8 Movie Monsters Stronger Than Godzilla
-
-Movies, Godzilla
-
-Fri, 17 Jul 2026 22:00:12 GMT
-
-https://screenrant.com/movie-monsters-stronger-than-godzilla/
-
-Godzilla might be "the king of the monsters" but he is not the strongest movie monster of all time, even being beaten by other Monsterverse characters
----------
-
-# Avengers' New Era Officially Begins September 16, Marvel Confirms
-
-Comics, The Avengers
-
-Fri, 17 Jul 2026 22:00:12 GMT
-
-https://screenrant.com/avengers-new-era-officially-begins-september-16/
-
-September 16 will introduce the first clue of what's next.
----------
-
-# 3 Best Movies To Watch On Prime Video This Weekend (July 18-19)
-
-Movies, Prime Video, Recommendation
-
-Fri, 17 Jul 2026 21:50:22 GMT
-
-https://screenrant.com/best-prime-video-movies-watch-weekend-july-18/
-
-Prime Video subscribers looking for the best movies will find them in a chilling horror, an action-packed zombie film, and a stunning sci-fi thriller.
----------
-
-# The Odyssey Interviews with Christopher Nolan, Matt Damon, Lupita Nyong'o, Himesh Patel & More
-
-Videos, The Odyssey, Christopher Nolan, Anne Hathaway, Matt Damon
-
-Fri, 17 Jul 2026 21:39:50 GMT
-
-https://screenrant.com/video/the-odyssey-christopher-nolan-lupita-nyongo-himesh-patel-interview/
-
-Christopher Nolan, Anne Hathaway, Lupita Nyong'o, Himesh Patel, and more cast members react to the biggest changes from The Odyssey's poem to movie.
----------
-
-# Prime Video Is The Best Home For Fantasy Fans
-
-Streaming TV, Masked Recs
-
-Fri, 17 Jul 2026 21:39:11 GMT
-
-https://screenrant.com/critical-role-prime-video-best-tv-fantasy-universe/
-
-HBO might have Game of Thrones and its spinoffs, but Prime Video is home to the best fantasy franchise on TV: the Critical Role universe.
----------
-
-# Netflix’s 8-Part Magical Realist Masterpiece Gets Even Better Ahead Of Season 2
-
-TV, Masked Recs
-
-Fri, 17 Jul 2026 21:30:12 GMT
-
-https://screenrant.com/netflixs-8-part-magical-realist-masterpiece-gets-even-better-ahead-of-season-2/
-
-2 years after its initial release, Netflix's adaptation of an all-time great novel is back with an even bigger cast, and looks to be better than ever.
----------
-
-# Mark Harmon’s NCIS Return Gets Exciting First Look For Massive Crossover Event
-
-TV, NCIS, NCIS: Origins
-
-Fri, 17 Jul 2026 21:18:44 GMT
-
-https://screenrant.com/ncis-mark-harmon-return-first-look-crossover-event/
-
-Mark Harmon returns to NCIS: Origins for its upcoming third season alongside several familiar faces in an exiting new first look.
----------
-
-# The Wheel of Time Officially Returns With New Story Next Year
-
-Games, The Wheel of Time
-
-Fri, 17 Jul 2026 22:10:15 GMT
-
-https://www.cbr.com/wheel-of-time-official-return-2027-new-story/
-
-The Wheel of Time fans can officially look forward to another new entry in their favorite fantasy franchise, and it's not all that far off.
----------
-
-# DC's New Hulk Is a Nightmare Unlike Anything Marvel Has Created
-
-Comics, DC Comics, Hulk, The Incredible Hulk, Marvel, Marvel Comics, MCU
-
-Fri, 17 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/dc-new-hulk-solomon-grundy-is-a-nightmare-unlike-anything-marvel-has-created/
-
-Not even the Hulk would look forward to facing this horrifying DC Comics creature.
----------
-
-# Netflix's New Steven Spielberg Dinosaur Show Was a Certified Streaming Hit After 100% RT
-
-TV, The Dinosaurs, Netflix, steven spielberg
-
-Fri, 17 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/the-dinosaurs-steven-spielberg-docuseries-netflix-success-july-2026/
-
-Steven Spielberg's dinosaur documentary series hits over 31 million views on Netflix, with a 100% Rotten Tomatoes score.
----------
-
-# Netflix's The Paradise Murders Is the Greatest Guilty Pleasure Movie
-
-Movies, Netflix
-
-Fri, 17 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/netflix-paradise-murders-greatest-guilty-pleasure-movie-streaming/
-
-The unexpected hit has shocked and puzzled audiences, but many are viewing it with the wrong perspective.
----------
-
-# Rings of Power Season 3 Confirms a Huge Change to Tolkien's Lord of the Rings Timeline
-
-TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Fantasy, Prime Video
-
-Fri, 17 Jul 2026 21:51:14 GMT
-
-https://www.cbr.com/prime-video-rings-of-power-season-3-lord-of-the-rings-timeline-change/
-
-The Lord of the Rings: The Rings of Power Season 3 is about to make a massive change to J.R.R. Tolkien's original lore.
----------
-
-# 7 Most Disturbing Sci-Fi Anime of the 2000s
-
-Anime, Gantz, Ergo Proxy, Sci-Fi
-
-Fri, 17 Jul 2026 21:15:15 GMT
-
-https://www.cbr.com/most-disturbing-sci-fi-anime-2000s/
-
-Anime and sci-fi have a rich relationship, but titles like Ergo Proxy and Gantz push the genre to dark and disturbing places.
----------
-
-# The First-Ever Agatha Christie Adaptation Became a Real-Life Mystery
-
-Movie Features, Agatha Christie, Agatha Christie's Seven Dials, Murder on the Orient Express, Kenneth Branagh
-
-Fri, 17 Jul 2026 21:59:15 GMT
-
-https://collider.com/the-passing-of-mr-quin-lost-agatha-christie-movie/
-
-The Passing of Mr. Quin was Agatha Christie's first movie adaptation, but the 1928 silent film has vanished and may be lost forever.
----------
-
-# 3 Fantastic Movies To Watch on Prime Video This Weekend (July 18-19)
-
-Movie, The Amateur, Do Not Enter, A Fish Called Wanda, Prime Video
-
-Fri, 17 Jul 2026 21:48:15 GMT
-
-https://collider.com/best-prime-video-movies-watch-weekend-july-18-2026/
-
-Do Not Enter, The Amateur, and A Fish Called Wanda make up our list of the best movies to watch on Prime Video the weekend of July 18, 2026.
----------
-
-# 10 Best Spy Video Games of All Time
-
-Video Games, Video Game, Hitman 3, 007 First Light, Call of Duty: Black Ops Cold War
-
-Fri, 17 Jul 2026 21:35:15 GMT
-
-https://collider.com/best-spy-video-games-all-time-ranked/
-
-From Metal Gear Solid V: The Phantom Pain, to 007 First Light, to Splinter Cell: Blacklist, these spy games perfected the art of espionage.
----------
-
-# Starz Releases Teaser for Prequel to 4-Part Crime Thriller Series
-
-TV News, Power, STARZ
-
-Fri, 17 Jul 2026 21:45:25 GMT
-
-https://movieweb.com/power-origins-starz-prequel-teaser/
-
-Starz has released a teaser and new photos for 'Power: Origins,' offering a first glimpse of Spence Moore as Ghost and Charlie Mann as Tommy.
----------
-
-# One Of The Most Divisive Hercule Poirot Adaptations Is Dominating Multiple New Netflix Releases
-
-Movies, Masked Recs, Hercule Poirot
-
-Fri, 17 Jul 2026 21:03:47 GMT
-
-https://screenrant.com/hercule-poirot-death-on-the-nile-2022-netflix-global-streaming-success-july-2026/
-
-Kenneth Branagh's polarizing Hercule Poirot adaptation of Agatha Christie's mystery novel is finally making waves on Netflix worldwide.
----------
-
-# Hulk & Spider-Man's Upcoming Fight Must Stop An Embarrassing MCU Trend
-
-Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
-
-Fri, 17 Jul 2026 21:00:12 GMT
-
-https://screenrant.com/spider-man-brand-new-day-hulk-fight-lose-trend-stop/
-
-Spider-Man and Hulk are going to fight in Spider-Man: Brand New Day, and when they do, the MCU needs to stop an embarrassing trend for one hero.
----------
-
-# Digimon: Timeless Bonds Releases September 2026
-
-Gaming, Digimon, Triple-A Games
-
-Fri, 17 Jul 2026 21:00:12 GMT
-
-https://screenrant.com/digimon-timeless-bonds-september-2026-release/
-
-Digimon has endured since 1997, and it's still going strong, especially given that there's another official release slated for September.
----------
-
-# Every Actor In The Odyssey, Ranked By Screen Time
-
-Movies, Odyssey
-
-Fri, 17 Jul 2026 21:00:12 GMT
-
-https://screenrant.com/the-odyssey-movie-actors-ranked-screen-time/
-
-Matt Damon and Tom Holland lead the way in Christopher Nolan's The Odyssey, and are joined by Robert Pattinson, Anne Hathaway, and more.
----------
-
-# Prime Video's Ambitious Sci-Fi Adaptation Is Coming For The Last Of Us' Crown
-
-Streaming TV, Masked Recs
-
-Fri, 17 Jul 2026 20:45:11 GMT
-
-https://screenrant.com/mass-effect-prime-video-adaptation-the-last-of-us-beat/
-
-HBO's The Last of Us finally put paid to the idea that video games can't enjoy live-action success, but Prime Video's sci-fi series could beat it.
----------
-
-# 3 Emmy-nominated shows on HBO Max you must watch this weekend (July 17–19)
-
-Streaming TV, HBO Max, What to Watch on Max
-
-Fri, 17 Jul 2026 20:42:11 GMT
-
-https://screenrant.com/hbo-max-shows-emmys-2026-watch-weekend-july-17/
-
-HBO Max has the most nominations of all streaming platforms at the 2026 Emmy Awards and these three nominated original series are among the very best.
----------
-
-# It's The End Of An Era For Star Wars After 30 Years
-
-Movies, Star Wars
-
-Fri, 17 Jul 2026 20:30:11 GMT
-
-https://screenrant.com/star-wars-theatrical-cut-end-of-an-era-special-editions/
-
-As the franchise's 50th anniversary looms, Star Wars fans will be treated to a historic release in 2027, one that they've waited 30 years to see.
 ---------
