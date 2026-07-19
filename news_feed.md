@@ -1,3 +1,179 @@
+# Red Dead Redemption 3 Can Wait, RDR2: The Forgotten Frontier Is Coming
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2
+
+Sun, 19 Jul 2026 12:00:11 GMT
+
+https://screenrant.com/red-dead-redemption-2-forgotten-frontier-fan-expansion-progress/
+
+Red Dead Redemption 2 is full of interesting locations, but one in particular is about to be thrust back into the spotlight.
+---------
+
+# 10 Legendary DC Artists Who Changed Batman Forever
+
+Comics, Batman
+
+Sun, 19 Jul 2026 12:00:11 GMT
+
+https://screenrant.com/best-batman-artists-of-all-time/
+
+These are the artists who defined Batman for generations
+---------
+
+# The Perfect Stranger Things Follow-Up Is A Long-Stalled Adaptation Of Best-Selling Fantasy Book Series
+
+TV
+
+Sun, 19 Jul 2026 12:00:11 GMT
+
+https://screenrant.com/stranger-things-follow-up-power-of-five-book-adaptation/
+
+A long-stalled Anthony Horowitz adaptation would make an absolutely perfect streaming series to fill the void left by Stranger Things concluding.
+---------
+
+# GTA 6 Online Teaser Has Gamers Losing Their Minds
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto Online, Triple-A Games
+
+Sun, 19 Jul 2026 11:55:15 GMT
+
+https://screenrant.com/gta-online-gta-6-continuation-reaction/
+
+As prepared as many fans are for Grand Theft Auto 6, there may still be a few surprises in store for Grand Theft Auto Online in the future.
+---------
+
+# HBO's Harry Potter Series Has Yet To Complete Episode 1
+
+TV, Harry Potter
+
+Sun, 19 Jul 2026 11:42:39 GMT
+
+https://screenrant.com/harry-potter-hbo-episode-1-production-update/
+
+HBO is taking its time with Harry Potter, as a shocking development has come to light regarding the season 1 production update ahead of its release.
+---------
+
+# 12 Perfect Books You Can Read In A Day
+
+Books, Sci-Fi, Horror
+
+Sun, 19 Jul 2026 11:30:11 GMT
+
+https://screenrant.com/perfect-short-novels-one-day-read/
+
+Must-read, binge-worthy pageturners.
+---------
+
+# Hogwarts Legacy Just Got A Major Upgrade
+
+Gaming, Hogwarts Legacy
+
+Sun, 19 Jul 2026 11:30:11 GMT
+
+https://screenrant.com/hogwarts-legacy-enhanced-third-person-camera-upgrade/
+
+Hogwarts Legacy is a very solid game in its own right, but that doesn't mean improvements can't be made for your next playthrough.
+---------
+
+# 5 Steamiest TV Shows of All Time
+
+TV, Bridgerton, Outlander, True Blood, Romance
+
+Sun, 19 Jul 2026 11:30:15 GMT
+
+https://www.cbr.com/steamiest-tv-shows-of-all-time-list/
+
+Be it contemporary, supernatural, or historical, shows like Bridgerton and True Blood have one thing in common.
+---------
+
+# The MCU Nova Movie Is the Perfect Guardians of the Galaxy Replacement
+
+Movies, MCU, Nova, Guardians of the Galaxy
+
+Sun, 19 Jul 2026 11:30:15 GMT
+
+https://www.cbr.com/mcu-nova-movie-guardians-of-the-galaxy-replacement/
+
+A newly announced Marvel movie is the perfect Guardians of the Galaxy replacement.
+---------
+
+# Netflix's Western Remake Loses Momentum to Harlan Coben's Hit Mystery Thriller
+
+TV News, Netflix, I Will Find You, Little House on the Prairie, Streaming
+
+Sun, 19 Jul 2026 12:00:15 GMT
+
+https://collider.com/little-house-on-the-prairie-i-will-find-you-streaming-success-netflix-july-2026/
+
+Little House on the Prairie is losing on the global Netflix charts to a mystery series. Here's everything you should know.
+---------
+
+# Forget the Finale, This ‘Game of Thrones’ Episode Is the Greatest TV Hour Ever
+
+TV Features, Game Of Thrones, A Song of Ice and Fire, HBO, George R.R. Martin
+
+Sun, 19 Jul 2026 11:57:14 GMT
+
+https://collider.com/game-of-thrones-best-episode-red-wedding-rains-of-castamere/
+
+Game of Thrones' Rains of Castamere episode is a masterpiece of TV with exceptional performances, direction, and cultural impact.
+---------
+
+# Tom Cruise and Steven Spielberg's Sci-Fi Masterpiece Is Being Cut From Streaming
+
+Movie News, Steven Spielberg, War of The Worlds, Sci-Fi, Tom Cruise
+
+Sun, 19 Jul 2026 11:45:15 GMT
+
+https://collider.com/steven-spielberg-sci-fi-war-of-the-worlds-leaving-peacock-august-2026/
+
+Steven Spielberg's sci-fi blockbuster War of the Worlds, starring Tom Cruise, is about to leave Peacock. Find out when.
+---------
+
+# 10 Greatest Marvel Video Games of All Time
+
+Gaming, Video Game, Marvel's Spider-Man, Marvel Comics, Spider-Man
+
+Sun, 19 Jul 2026 11:44:15 GMT
+
+https://collider.com/best-marvel-video-games-all-time-ranked/
+
+Marvel is best known for their many comics and movies, but it's also a video game juggernaut, producing iconic titles like 2018's Marvel's Spider-Man.
+---------
+
+# Apple TV Officially Sets Release Date for Chris Pratt's New Military Action Thriller
+
+Movie News, Chris Pratt, Apple TV, McG, Linda Cardellini
+
+Sun, 19 Jul 2026 11:30:15 GMT
+
+https://collider.com/chris-pratt-way-of-the-warrior-kid-apple-tv-release-date-november-20-2026/
+
+Chris Pratt's new Apple TV movie finds him playing a different kind of Navy SEAL. Get all the details here.
+---------
+
+# 10 Fantasy Shows I Knew Would Be Masterpieces After the First 10 Minutes
+
+TV, Fantasy, Game Of Thrones, Supernatural, Stranger Things
+
+Sun, 19 Jul 2026 11:09:14 GMT
+
+https://collider.com/fantasy-tv-shows-masterpieces-first-10-minutes/
+
+Certain fantasy shows kick off in amazing fashion and never let up, including epic series like Game of Thrones, Supernatural, and Stranger Things.
+---------
+
+# Scarlett Johansson's R-Rated Sci-Fi Thriller Is Being Wiped From Streaming
+
+Movie News, Scarlett Johansson, Under the Skin, Coming/Leaving Streaming, Sci-Fi
+
+Sun, 19 Jul 2026 12:00:12 GMT
+
+https://movieweb.com/under-the-skin-scarlett-johansson-sci-fi-stream-pluto-tv-tubi-july-2026/
+
+Ahead of the release of her new crime thriller, 'Paper Tiger,' one of Johansson's best movies is set to depart streaming at the end of the month.
+---------
+
 # Assassin's Creed Origins Rebirth Is The Next-Gen Remaster Of Our Dreams
 
 Gaming, Assassin's Creed
@@ -5320,180 +5496,4 @@ Fri, 17 Jul 2026 20:30:11 GMT
 https://screenrant.com/star-wars-theatrical-cut-end-of-an-era-special-editions/
 
 As the franchise's 50th anniversary looms, Star Wars fans will be treated to a historic release in 2027, one that they've waited 30 years to see.
----------
-
-# ABC's Detective Crime Series Is A Global Streaming Smash At The Perfect Time
-
-TV, Masked Recs
-
-Fri, 17 Jul 2026 20:07:17 GMT
-
-https://screenrant.com/abc-rj-decker-disney-plus-streaming-success-july-2026-perfect-time/
-
-ABC's detective crime series becomes a global streaming smash at the perfect time, as another batch of episodes is already well on the way.
----------
-
-# 3 Best Movies To Watch On Netflix This Weekend (July 18-19)
-
-Movies, Netflix, Recommendation
-
-Fri, 17 Jul 2026 20:02:43 GMT
-
-https://screenrant.com/best-netflix-movies-watch-weekend-july-18/
-
-Netflix's must-watch movies this weekend range from a new original romance, a massive dinosaur hit, and a intense dystopian Sci-Fi adventure.
----------
-
-# The CW Seals the Fate of 4-Season Drama After Star’s Exit
-
-TV, Sullivan's Crossing, The CW
-
-Fri, 17 Jul 2026 21:09:57 GMT
-
-https://www.cbr.com/the-cw-sullivans-crossing-season-5-future/
-
-Following Scott Patterson's exit, The CW has renewed Canadian romance drama Sullivan's Crossing for Season 5.
----------
-
-# Timothy Olyphant's New 8-Part Series Based on Bestselling Novel Shoots to No. 1 With 1B Minutes Viewed in 1 Week
-
-TV, The Five-Star Weekend
-
-Fri, 17 Jul 2026 20:59:49 GMT
-
-https://www.cbr.com/timothy-olyphant-the-five-star-weekend1b-minutes-viewed-july-2026/
-
-The actor's shows turn into instant streaming hits.
----------
-
-# Netflix's Viewership Report Officially Confirms Sad News About The Boroughs After Cancellation
-
-TV, The Boroughs, Netflix, Sci-Fi
-
-Fri, 17 Jul 2026 20:48:58 GMT
-
-https://www.cbr.com/the-boroughs-canceled-netflix-low-ratings/
-
-It's time for The Boroughs fans to face some sad facts.
----------
-
-# Star Wars Officially Breaks a 49-Year-Old Jedi Rule
-
-TV, Star Wars, Star Wars: Maul - Shadow Lord, Disney+
-
-Fri, 17 Jul 2026 20:45:15 GMT
-
-https://www.cbr.com/star-wars-maul-shadow-lord-breaks-oldest-jedi-trope/
-
-The thrilling finale of Star Wars: Maul - Shadow Lord's first season put a dark twist on one of the franchise's oldest Jedi traditions.
----------
-
-# 5 Strongest Magic Items in The Lord of the Rings, Ranked
-
-Movies, The Lord of the Rings
-
-Fri, 17 Jul 2026 20:31:14 GMT
-
-https://www.cbr.com/strongest-magic-items-in-the-lord-of-the-rings-ranked/
-
-Tolkien included several magical objects in his vast legendarium, some of which have become integral aspects of The Lord of the Rings
----------
-
-# Alan Ritchson's 107-Minute Thriller Is Officially Netflix's Biggest Film of 2026
-
-Movies, Netflix, War Machine
-
-Fri, 17 Jul 2026 20:26:28 GMT
-
-https://www.cbr.com/alan-ritchson-war-machine-netflix-2026-biggest-movie/
-
-Alan Ritchson's Netflix movie is the streamer's biggest debut of the year.
----------
-
-# 5 Classic Sega Genesis Games Every Gamer Needs to Play At Least Once
-
-Games, Sonic the Hedgehog, Streets of Rage, Sega Genesis
-
-Fri, 17 Jul 2026 20:16:15 GMT
-
-https://www.cbr.com/classic-sega-genesis-games-everyone-should-play/
-
-The Sega Genesis boasts a massive roster of classic games, and everyone needs to play its greatest masterpieces at least once.
----------
-
-# Hunter x Hunter Officially Loses to One Piece Again in New Oricon Manga Sales Ranking
-
-Anime, Hunter X Hunter, One Piece
-
-Fri, 17 Jul 2026 20:06:15 GMT
-
-https://www.cbr.com/hunter-x-hunter-vs-one-piece-new-oricon-manga-sales-ranking/
-
-Hunter x Hunter continues to lose out to the hottest returning manga of the year, although it isn't letting go of its spot on the top 10 sales list.
----------
-
-# All 86 Episodes of 'The Sopranos,' Ranked
-
-TV, The Sopranos, HBO, David Chase, James Gandolfini
-
-Fri, 17 Jul 2026 21:05:14 GMT
-
-https://collider.com/the-sopranos-every-episode-ranked/
-
-There are 86 episodes of The Sopranos spread out across six seasons, from the pilot to "Made in America," but which one is the best overall?
----------
-
-# Colin Farrell's 6 Best Movie Masterpieces, Ranked
-
-Movie, Colin Farrell, In Bruges, Phone Booth, The Gentlemen
-
-Fri, 17 Jul 2026 20:50:15 GMT
-
-https://collider.com/best-colin-farrell-movies/
-
-From In Bruges to The Banshees of Inisherin and career-defining gems, these Colin Farrell movies are true classics.
----------
-
-# Netflix's New 6-Part Crime Thriller Follows One of History's Largest Murder Investigations
-
-TV Features, Netflix, Crime, The Bombing of Pan Am 103, Patrick J. Adams
-
-Fri, 17 Jul 2026 20:08:14 GMT
-
-https://collider.com/netflix-crime-thriller-the-bombing-of-pan-am-103-true-story/
-
-On July 30, Netflix will be releasing The Bombing of Pan Am 103, a star-studded series about one of history’s most shocking murder investigations.
----------
-
-# Matt Damon's Original Netflix Action Thriller Is Officially One of the Year's Biggest Streaming Hits
-
-Movie News, The Rip, Hot on Streaming
-
-Fri, 17 Jul 2026 21:00:12 GMT
-
-https://movieweb.com/the-rip-matt-damon-netflix-streaming-hit-2026/
-
-Wasn't it exciting to see Matt Damon and Ben Affleck share the screen again?
----------
-
-# The Ancient Greek Rule You Must Understand for 'The Odyssey' To Make Sense
-
-Features, The Odyssey
-
-Fri, 17 Jul 2026 21:00:12 GMT
-
-https://movieweb.com/the-odyssey-zeus-law-explained/
-
-Christopher Nolan's 'The Odyssey' transports audiences to the ancient world, centered around one of its most integral values.
----------
-
-# Cult-Classic '80s Sci-Fi Movie Reboot First-Look Images Officially Released
-
-Movie News, Re-Animator, Katie Cassidy, Joseph Morgan, Sci-Fi
-
-Fri, 17 Jul 2026 20:58:26 GMT
-
-https://movieweb.com/re-animator-reboot-remake-first-look-h-p-lovecraft/
-
-The first glimpse of Joseph Morgan and Katie Cassidy in 'Herbert West: Reanimator' has debuted.
 ---------
