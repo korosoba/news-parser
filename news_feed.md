@@ -1,3 +1,190 @@
+# The Forsaken Saintess Is Resurrecting An Underrated Isekai Genre (Exclusive)
+
+Anime, Isekai, Anime Expo
+
+Mon, 20 Jul 2026 23:30:11 GMT
+
+https://screenrant.com/forsaken-saintess-foodie-road-trip-changing-isekai-anime-better/
+
+The Forsaken Saintess and Her Foodie Roadtrip in Another World is leading the charge in resurrecting the cozy slice-of-life anime subgenre.
+---------
+
+# 22 Years Later, Tommy's Best Line Is Still One Of The Greatest Quotes In Power Rangers History
+
+Classic TV, Power Rangers
+
+Mon, 20 Jul 2026 23:30:11 GMT
+
+https://screenrant.com/tommy-best-quote-power-rangers/
+
+Jason David Frank had some of the best dialogue in Power Rangers, but for his greatest quote he wasn't wearing his iconic green spandex.
+---------
+
+# David Boreanaz’s Upcoming Detective Drama Reboot Sets Up A New Franchise
+
+TV, The Rockford Files, David Boreanaz
+
+Mon, 20 Jul 2026 23:28:11 GMT
+
+https://screenrant.com/the-rockford-files-david-boreanaz-reboot-franchise/
+
+David Boreanaz is set to star in a reboot of NBC's classic cop show The Rockford Files, and this take on James Garner's series could spawn a spinoff.
+---------
+
+# Zack Snyder & James Gunn's Supergirls Couldn't Be More Different
+
+Movies, Supergirl, Man of Steel, DC Universe
+
+Mon, 20 Jul 2026 23:15:11 GMT
+
+https://screenrant.com/zack-snyder-james-gunn-supergirl-differences/
+
+Zack Snyder and James Gunn both included Supergirl in the DCEU and DCU respectively, but they had very different takes on Kara Zor-El's character.
+---------
+
+# President Curtis Season 2 Return Plans Addressed By Rick & Morty Spinoff Co-Creator
+
+TV, President Curtis, President Curtis - Season 1, Rick and Morty
+
+Mon, 20 Jul 2026 23:07:10 GMT
+
+https://screenrant.com/president-curtis-season-2-chances-james-siciliano/
+
+Exclusive: President Curtis co-creator James Siciliano addresses whether there are plans for the Rick and Morty spinoff to return for season 2.
+---------
+
+# Christopher Nolan's The Odyssey Rotten Tomatoes Score Breaks Top 5 Box Office Record
+
+Movies, The Odyssey
+
+Mon, 20 Jul 2026 23:00:18 GMT
+
+https://screenrant.com/christopher-nolan-the-odyssey-rotten-tomatoes-score-box-office-record/
+
+Christopher Nolan's The Odyssey has earned rave reviews from critics and fans, and its Rotten Tomatoes score beats the epic's box office competition.
+---------
+
+# Dragon Ball Z Officially Brings Back Piccolo's Greatest Namek Power-Up
+
+Anime, Dragon Ball, Dragon Ball Z, merchandise
+
+Mon, 20 Jul 2026 23:05:14 GMT
+
+https://www.cbr.com/dbz-piccolo-fusion-solid-edge-works-release/
+
+The new release recreates Piccolo's iconic moment as he swoops in to save Gohan from Frieza.
+---------
+
+# Hulu's King of the Hill Revival Outshines First Season With Even Higher Rotten Tomatoes Score
+
+TV, King of the Hill
+
+Mon, 20 Jul 2026 23:00:25 GMT
+
+https://www.cbr.com/king-of-the-hill-season-15-rotten-tomatoes-score/
+
+King of the Hill is better than ever two seasons into its revival on Hulu.
+---------
+
+# 5 Masterpiece Fantasy Book Series With the Best Battles
+
+Movies, Fantasy
+
+Mon, 20 Jul 2026 23:00:15 GMT
+
+https://www.cbr.com/fantasy-books-with-the-best-battles-list/
+
+Fantasy book series often thrive on world-building, but the best combine character development with engaging battles that keep readers hooked.
+---------
+
+# Scrubs Revival Undergoes Cast Shakeup in Season 2
+
+TV, Scrubs, Comedy, ABC
+
+Mon, 20 Jul 2026 22:59:22 GMT
+
+https://www.cbr.com/scrubs-revival-season-2-cast-exit-x-mona-joel-kim-booster/
+
+Hulu's Scrubs revival officially says goodbye to two cast members ahead of Season 2.
+---------
+
+# CBS' 'Tracker' Has Officially Reached the End of an Era
+
+TV Features, Tracker, Justin Hartley, Paramount, CBS
+
+Mon, 20 Jul 2026 23:39:14 GMT
+
+https://collider.com/cbs-tracker-season-3-ashton-shaw-mystery-resolved/
+
+As Tracker concludes its main narrative, Colter Shaw faces new challenges in Season 4 with a move to LA and the need for fresh mysteries to solve.
+---------
+
+# ‘Harry Potter’ Reboot Has a Major Filming Problem the Movies Never Faced
+
+TV Features, Harry Potter, Daniel Radcliffe, Emma Watson, Rupert Grint
+
+Mon, 20 Jul 2026 23:23:14 GMT
+
+https://collider.com/harry-potter-reboot-brutal-filming-schedule/
+
+HBO's Harry Potter reboot is undergoing a brutal filming schedule because of the realities of filming with child actors.
+---------
+
+# Every HBO Show of 2026 So Far, Ranked Worst to Best
+
+TV, HBO, A Knight Of The Seven Kingdoms, DTF St. Louis, Rooster
+
+Mon, 20 Jul 2026 23:14:14 GMT
+
+https://collider.com/hbo-shows-2026-so-far-ranked/
+
+From the Game of Thrones prequel A Knight of the Seven Kingdoms to the crime miniseries DTF St. Louis, which 2026 HBO show is the best of the year?
+---------
+
+# 'The Rookie' Season 9 Officially Brings a Major Cast Shake-Up
+
+TV Features, The Rookie, ABC, Nathan Fillion, Alexi Hawley
+
+Mon, 20 Jul 2026 22:52:14 GMT
+
+https://collider.com/the-rookie-is-officially-changing-its-cast-in-season-9/
+
+The Rookie Season 9 will bring fresh energy and storylines to the series, as Miles graduates and a new recruit joins the LAPD.
+---------
+
+# 'Scrubs' Revival Casting Update Confirms Which Stars Won't Return for Season 2
+
+TV News, Scrubs
+
+Mon, 20 Jul 2026 23:25:20 GMT
+
+https://movieweb.com/scrubs-season-2-cast-update/
+
+X Mayo and Joel Kim Booster won't be returning for Season 2 of the revival series.
+---------
+
+# Alan Ritchson's Blockbuster Netflix Action Sequel Officially Sets Perfect New Title
+
+Movie News, War Machine
+
+Mon, 20 Jul 2026 23:03:47 GMT
+
+https://movieweb.com/alan-ritchsons-blockbuster-netflix-action-sequel-sets-perfect-new-title/
+
+The sequel to the hit 'War Machine' scored the perfect title: 'War Machines.'
+---------
+
+# 'The Odyssey' Has Already Dethroned a Long-Awaited Sci-Fi Comeback at the Box Office
+
+Movie News, The Odyssey, Disclosure Day
+
+Mon, 20 Jul 2026 23:00:13 GMT
+
+https://movieweb.com/the-odyssey-beats-disclosure-day-global-box-office/
+
+Christopher Nolan's 'The Odyssey' has beaten another auteur filmmaker's anticipated epic.
+---------
+
 # 5 Movies Christopher Nolan Should Make After The Odyssey
 
 Movies, Masked Recs
@@ -5309,191 +5496,4 @@ Sun, 19 Jul 2026 13:30:12 GMT
 https://screenrant.com/palworld-hidden-features-mechanics/
 
 Palworld is an immensely fun and surprisingly large game, but there aren't many directions, leaving people to miss these hidden features.
----------
-
-# 6 Most Iconic Gibberish Languages In Movies, TV, & Video Games
-
-Classic Movies
-
-Sun, 19 Jul 2026 13:15:11 GMT
-
-https://screenrant.com/gibberish-languages-movies-tv-video-games/
-
-While languages like Elvish, Klingon, and Dothraki have been fully fleshed out, other iconic fictional dialects are just pure gibberish
----------
-
-# Marvel Studios Sets Up X-23's Return After Deadpool & Wolverine
-
-Streaming TV, Masked Recs
-
-Sun, 19 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/x-men-97-season-2-x-23-return-after-deadpool-wolverine/
-
-Marvel has set up the perfect return for X-23, with the character having last appeared in one of the studio's releases in Deadpool & Wolverine.
----------
-
-# How Will Ferrell’s New Netflix Comedy Hit #1 Despite 29% RT Score
-
-Streaming TV, The Hawk
-
-Sun, 19 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/netflix-will-ferrell-new-comedy-hit-rotten-tomatoes/
-
-Will Ferrell's new Netflix golf comedy series The Hawk hit #1 in the United States overnight despite a low Rotten Tomatoes score – how did he do it?
----------
-
-# When Hogwarts Will First Appear In HBO's Harry Potter Officially Confirmed
-
-TV, Harry Potter, Harry Potter - Season 1
-
-Sun, 19 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/hbo-harry-potter-hogwarts-first-appearance-confirmed/
-
-As HBO's Harry Potter debut draws closer, it is revealed when fans can expect to see Hogwarts for the first time in the television series.
----------
-
-# Avatar: The Last Airbender's New Movie Gets Theatrical Release, But Fans Won't Be Happy
-
-Movies, Avatar Aang: The Last Airbender, Avatar: The Last Airbender
-
-Sun, 19 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/avatar-aang-last-airbender-theatrical-release-fan-anger/
-
-Avatar Aang's long-awaited return has fans questioning Paramount's decision, as Avatar Aang: The Last Airbender gets controversial theater release.
----------
-
-# 10 Greatest Dungeons & Dragons Adventure Books On D&D Beyond
-
-Tabletop, Dungeons and Dragons, Dungeons & Dragons, tabletop games
-
-Sun, 19 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/best-dnd-beyond-adventure-books/
-
-Outside of the obvious picks, like Curse of Strahd or Descent into Avernus, there are some great adventure books you can buy on D&amp;D Beyond.
----------
-
-# 10 Times You Didn't Notice Major Movies Used CGI
-
-Movies, Children of Men, Joker, Avengers: Infinity War, Marvel Cinematic Universe, Jurassic Park, Forrest Gump, John Wick, Machete, Iron Man 3, Brokeback Mountain
-
-Sun, 19 Jul 2026 12:55:12 GMT
-
-https://screenrant.com/major-movies-cgi-unnoticed/
-
-From a CGI baby to a $5,000 digital dog poop, these major movies used invisible visual digital effects that most viewers never noticed.
----------
-
-# It's Official, Star Trek Permanently Killed Off Its Best Villains
-
-TV, Star Trek, Star Trek: Picard, Paramount Plus, Sci-Fi
-
-Sun, 19 Jul 2026 13:30:15 GMT
-
-https://www.cbr.com/paramount-star-trek-picard-ended-borg-storyline/
-
-Star Trek: Picard was the swan song for The Next Generation characters, but it was also the grand finale for the show's iconic villains.
----------
-
-# 5 Masterpiece Fantasy Anime Series With the Best Lore
-
-Anime, Frieren: Beyond Journey's End, Delicious in Dungeon
-
-Sun, 19 Jul 2026 13:15:15 GMT
-
-https://www.cbr.com/masterpiece-fantasy-anime-with-best-lore/
-
-Few anime weave their mythology into the story as seamlessly as these extraordinary fantasy epics.
----------
-
-# 10 Best Thriller Movies Recommended by Stephen King
-
-Movies, Stephen King, Thriller, Sorcerer, The Long Walk, Misery, The Autopsy of Jane Doe, Jaws, No One Will Save You, The Mist, The Getaway, Secret Window, The Way of the Gun
-
-Sun, 19 Jul 2026 13:00:15 GMT
-
-https://www.cbr.com/best-stephen-king-approved-thriller-movies-list/
-
-If there's any movie recommendations you can trust, it's those of legendary horror and thriller author Stephen King.
----------
-
-# Everything You Forgot About Ted Lasso During the Long Wait for Season 4
-
-TV, Ted Lasso
-
-Sun, 19 Jul 2026 12:30:15 GMT
-
-https://www.cbr.com/ted-lasso-season-3-recap/
-
-It will be over three years since Season 3 when Season 4 of Ted Lasso premieres, so you've likely forgotten many details.
----------
-
-# 'The End of Oak Street's Director Made a Cult Detective Movie You've Probably Never Seen
-
-Movie Features, David Robert Mitchell, Under the Silver Lake, Andrew Garfield, The End of Oak Street
-
-Sun, 19 Jul 2026 13:31:15 GMT
-
-https://collider.com/ewan-mcgregor-dinosaur-movie-the-end-of-oak-street-director-under-the-silver-lake/
-
-After the hit It Follows and before The End of Oak Street, David Robert Mitchell made the neo-noir flop-turned-cult classic Under the Silver Lake.
----------
-
-# After 750 Days, Tom Hanks’ WWII Thriller Takes the Crown as Apple TV’s Biggest Hit
-
-Movie News, Tom Hanks, Greyhound, Apple TV, World War II
-
-Sun, 19 Jul 2026 13:15:15 GMT
-
-https://collider.com/tom-hanks-ww2-thriller-greyhound-apple-tv-top-10-milestone-750-days/
-
-Tom Hanks’ 91-minute WW2 thriller Greyhound sails past massive milestone on Apple TV’s U.S. Top 10 charts, 6 years after its initial release.
----------
-
-# 2026's Hidden-Gem Sci-Fi Thriller Is Officially a Global Streaming Smash
-
-Movie News, Redux Redux, Hulu, Sci-Fi, Streaming
-
-Sun, 19 Jul 2026 12:45:15 GMT
-
-https://collider.com/redux-redux-sci-fi-streaming-success-hulu-july-2026/
-
-The most mind-bending and underrated sci-fi project of 2026 so far is a quiet streaming hit.  Here's all to know about Redux Redux.
----------
-
-# ’Twilight’s Best Character Was Never a Vampire, and It Isn’t Even Close
-
-Movie Features, Twilight, Billy Burke, The Twilight Saga: New Moon, The Twilight Saga
-
-Sun, 19 Jul 2026 12:34:15 GMT
-
-https://collider.com/twilight-movie-best-character-charlie-swan/
-
-Charlie Swan is still the best character in the Twilight saga, and Billy Burke’s performance is a big reason why he remains such a fan favorite.
----------
-
-# Apple TV's New 10-Part Mystery Thriller Is Your Next Weekend Binge
-
-TV News, Cape Fear, Apple TV, Javier Bardem, Amy Adams
-
-Sun, 19 Jul 2026 12:30:15 GMT
-
-https://collider.com/apple-tv-cape-fear-streaming-success-july-2026/
-
-Cape Fear, the new Apple TV mystery thriller, is winning over fans around the world before its highly anticipated Season 1 finale.
----------
-
-# What Your Favorite Book Genre Says About You
-
-TV, Books, Sci-Fi, Thriller, Romance
-
-Sun, 19 Jul 2026 12:21:14 GMT
-
-https://collider.com/what-your-favorite-book-genre-says-about-you/
-
-Discover how your favorite book genre reflects your personality traits, from imagination and resilience in fantasy to emotional depth in romance.
 ---------
