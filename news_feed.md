@@ -1,3 +1,267 @@
+# 5 Perfect Sci-Fi Shows You Can Binge In A Day
+
+Classic TV, Sci-Fi
+
+Mon, 20 Jul 2026 20:15:11 GMT
+
+https://screenrant.com/best-sci-fi-shows-binge-one-day/
+
+Many science fiction shows take multiple seasons to tell their story, but these five series aren't just great shows; they can be binged in a day.
+---------
+
+# Prime Video's 3-Part Action Thriller Series With Near-Perfect RT Score Has One Of Its Best Casts
+
+TV, Masked Recs
+
+Mon, 20 Jul 2026 20:14:05 GMT
+
+https://screenrant.com/prime-video-reacher-thriller-series-cast-best/
+
+Prime Video's action series has become a global hit, and a lot of that is due to its talented ensemble, with a perfect cast despite a daunting task.
+---------
+
+# Big Brother 28 Week 2 Power Of Veto Ceremony Results (SPOILERS)
+
+Reality TV, Big Brother
+
+Mon, 20 Jul 2026 20:04:18 GMT
+
+https://screenrant.com/big-brother-28-week-2-power-veto-ceremony-results-spoilers/
+
+After winning Head of Household and Power of Veto, Devens' strategic choices in the Big Brother 28 house shape the game with a replacement nominee.
+---------
+
+# All 3 Anne Rice's Immortal Universe TV Shows Ranked
+
+Streaming TV, Immortal Universe
+
+Mon, 20 Jul 2026 20:00:11 GMT
+
+https://screenrant.com/anne-rice-immortal-universe-tv-shows-ranked/
+
+AMC's Immortal Universe offers 3 distinct shows based on Anne Rice's books, but only one can truly claim to live up to the source material.
+---------
+
+# How CookieRun: Braverse Ran Head-First Into The World Of TCGs (Interview)
+
+Gaming, Cookie Run: Kingdom
+
+Mon, 20 Jul 2026 20:00:11 GMT
+
+https://screenrant.com/cookierun-braverse-interview/
+
+We spoke with Devsisters about how CookieRun: Braverse brings the franchise's beloved cookie characters to the physical TCG world and beyond.
+---------
+
+# 5 Incredible Shows To Watch On Prime Video This Week (July 20–24)
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Mon, 20 Jul 2026 19:45:11 GMT
+
+https://screenrant.com/best-prime-video-shows-watch-week-july-20/
+
+These five incredible Prime Video original shows are worth watching for all subscribers, ranging from action thrillers to laugh-out-loud comedies.
+---------
+
+# Spider-Man: How Yelena Changes Brand New Day
+
+Movies, Originals
+
+Mon, 20 Jul 2026 19:45:08 GMT
+
+https://screenrant.com/video/spider-man-how-yelena-changes-brand-new-day/
+
+Spider-Man: Brand New Day's Yelena Twist Explained. Kevin Feige may have just confirmed Florence Pugh's Yelena Belova is appearing before Avengers: Doomsday—and all signs point to Spider-Man: Brand New Day.
+---------
+
+# Star Wars Is Bringing Back The Acolyte’s Divisive Lore Change
+
+Streaming TV, The Acolyte, Star Wars, Star Wars: Visions
+
+Mon, 20 Jul 2026 19:30:11 GMT
+
+https://screenrant.com/star-wars-acolyte-lightsaber-bleeding-ninth-jedi/
+
+The Acolyte's lightsaber bleeding scene was incredibly divisive, but the upcoming Star Wars show The Ninth Jedi is doubling down on the lore change.
+---------
+
+# Rick & Morty Officially Finds Its X-Files Spinoff Series
+
+TV, President Curtis, President Curtis - Season 1, Rick and Morty
+
+Mon, 20 Jul 2026 19:16:36 GMT
+
+https://screenrant.com/rick-morty-president-curtis-x-files-comparison-creator/
+
+EXCLUSIVE: Ryan Coogler may be working on an X-Files reboot, but Rick & Morty is about to debut its own version of the iconic sci-fi series.
+---------
+
+# Avatar: The Last Airbender Sequel Makes Surprise Official Comeback in January 2027
+
+Anime, Avatar: The Last Airbender, The Legend of Korra
+
+Mon, 20 Jul 2026 20:05:15 GMT
+
+https://www.cbr.com/avatar-legend-of-korra-in-concert-global-release/
+
+One of the most beloved animated sequels of an entire generation is returning next year with a brand-new production that fans will absolutely adore.
+---------
+
+# Marvel Officially Renames Doctor Doom Before Major MCU Debut
+
+Comics, Doctor Doom
+
+Mon, 20 Jul 2026 20:01:14 GMT
+
+https://www.cbr.com/doctor-doom-captain-latveria-godzilla-conquers-the-multiverse-1/
+
+Before the name "Doctor Doom" goes out of style...
+---------
+
+# Marvel’s New Spider-Man Strategy Is 1 of the MCU's Most Historic Fumbles
+
+Movies, Spider-Man: Brand New Day, MCU, superheroes
+
+Mon, 20 Jul 2026 20:01:14 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-peter-parker-college-mcu-mistake/
+
+Spider-Man: Brand New Day introduces a new strategy for the MCU's web-slinger that could doom the character forever.
+---------
+
+# Untamed Is Finally Returning With New Release in 3 Months
+
+TV, Untamed
+
+Mon, 20 Jul 2026 19:32:45 GMT
+
+https://www.cbr.com/untamed-season-1-dvd-release/
+
+The series has been renewed for Season 2.
+---------
+
+# Avengers: Doomsday Trailer Secretly Reveals How Steve Rogers Was Brought Back
+
+Movies, Marvel, Marvel Comics, MCU, Avengers: Doomsday, Avengers: Doomsday (2026), Loki
+
+Mon, 20 Jul 2026 19:09:36 GMT
+
+https://www.cbr.com/avengers-doomsday-steve-rogers-return-explained-trailer/
+
+The world finally knows how the MCU brought Steve Rogers back for Avengers: Doomsday.
+---------
+
+# 5 Movies That Are Perfect for Fans of Dungeons & Dragons
+
+Movies, Dungeons and Dragons, Guardians of the Galaxy, Dungeons & Dragons: Honor Among Thieves, The Princess Bride
+
+Mon, 20 Jul 2026 19:00:15 GMT
+
+https://www.cbr.com/best-movies-for-dungeon-and-dragons-fans-list/
+
+Dungeons & Dragons remains as popular as ever and there are some movies that are perfect for fans of the TTRPG.
+---------
+
+# Netflix’s Reboot of a Beloved 39-Year-Old Sitcom Is Already Getting Everything Right
+
+TV Features, a different world, Netflix, Sitcom, Series
+
+Mon, 20 Jul 2026 19:47:14 GMT
+
+https://collider.com/netflix-a-different-another-world-reboot-sequel-getting-everything-right/
+
+Netflix’s A Different World sequel is making all the right creative choices by continuing the story instead of remaking it.
+---------
+
+# 'Assassin's Creed' Comes to Life in a Daring New World Record
+
+Gaming News, assassins creed, Assassin's Creed IV: Black Flag, Gaming, Video Game
+
+Mon, 20 Jul 2026 19:45:15 GMT
+
+https://collider.com/assassins-creed-leap-of-faith-world-record-lilou-ruel/
+
+Lilou Ruel recreates ‘Assassin’s Creed’s Leap of Faith with an 18.2-meter jump into hay, breaking a world record inspired by Black Flag Resynced.
+---------
+
+# All 5 Bruce Willis and Samuel L. Jackson Movies, Ranked
+
+Movie, Die Hard: With a Vengeance, Pulp Fiction, Bruce Willis, Samuel L. Jackson
+
+Mon, 20 Jul 2026 19:41:14 GMT
+
+https://collider.com/bruce-willis-samuel-l-jackson-movies-ranked/
+
+There are five movies that both Bruce Willis and Samuel L. Jackson appeared in, including Unbreakable and Pulp Fiction, but which one is the best?
+---------
+
+# 3 Fantastic Movies To Watch on Netflix This Week (July 20-24)
+
+Movie, Heartstopper Forever, Bugonia, American Graffiti, Netflix
+
+Mon, 20 Jul 2026 19:19:14 GMT
+
+https://collider.com/best-netflix-movies-watch-july-20-2026/
+
+Heartstopper Forever, Bugonia, and American Graffiti make up our list of the best Netflix movies to watch the week of July 20th, 2026.
+---------
+
+# Prime Video’s ‘Bosch’ Replacement Officially Returns Without Titus Welliver
+
+TV News, Ballard, Bosch, Titus Welliver, Maggie Q
+
+Mon, 20 Jul 2026 19:16:15 GMT
+
+https://collider.com/ballard-season-2-sneak-peek-maggie-q-titus-welliver/
+
+Maggie Q shares an intense Ballard preview ahead of Season 2, though Titus Welliver is nowhere to be seen in the new footage.
+---------
+
+# Netflix's 8-Part Harlan Coben Series Crowned One of the Biggest Thrillers of 2026
+
+TV News, I Will Find You, Hot on Streaming, Thriller, Netflix
+
+Mon, 20 Jul 2026 20:00:12 GMT
+
+https://movieweb.com/i-will-find-you-netflix-biggest-thriller-streaming-july-2026/
+
+The newest Harlan Coben adaptation has officially been crowned one of the biggest thrillers of 2026 in a new report released by Netflix.
+---------
+
+# Disney+ Officially Moving Forward With Iconic Supernatural Adaptation for 2027 Release
+
+TV News, Afterlife With Archie, Disney+
+
+Mon, 20 Jul 2026 19:26:35 GMT
+
+https://movieweb.com/disney-plus-greenlights-afterlife-with-archie/
+
+Disney+ embraces the macabre with its upcoming adaptation of a horror graphic novel.
+---------
+
+# 10 Netflix Original Anime That Are 10/10 Masterpieces
+
+TV Lists, Anime, Netflix
+
+Mon, 20 Jul 2026 19:00:12 GMT
+
+https://movieweb.com/netflix-anime-masterpieces/
+
+Netflix has many original anime TV series, and these are the best ones that every fan of the genre should watch.
+---------
+
+# 'Scary Movie' Officially Confirms Digital Streaming Date
+
+Movie News, Scary Movie
+
+Mon, 20 Jul 2026 18:57:38 GMT
+
+https://movieweb.com/scary-movie-digital-release-date/
+
+The sixth instalment in the 'Scary Movie' franchise saw the Wayans brothers make a grand return.
+---------
+
 # Game Of Thrones Meets Yellowstone In FX's 7-Part Crime Drama Series
 
 Classic TV, Masked Recs
@@ -5232,268 +5496,4 @@ Sun, 19 Jul 2026 03:30:12 GMT
 https://screenrant.com/prime-video-thriller-masterpiece-mouse-streaming/
 
 The exceptional quality of this series has cemented its status as one of the best crime thrillers available on Prime Video, long after its premiere.
----------
-
-# Why Abbott Elementary's "Ava Coleman" Is Credited As One Of The Show's Writers
-
-Network TV, Abbott Elementary
-
-Sun, 19 Jul 2026 03:20:12 GMT
-
-https://screenrant.com/abbott-elementary-ava-coleman-writer-name-explained/
-
-Abbott Elementary credits a writer named "Ava Coleman," but it's not a case of the hit ABC comedy adding a character's name to the team as a joke.
----------
-
-# After 10 Years, July Is The End Of A Glorious Era For Dragon Ball
-
-Gaming, Dragon Ball, Dragon Ball Xenoverse 2
-
-Sun, 19 Jul 2026 03:18:32 GMT
-
-https://screenrant.com/dragon-ball-xenoverse-2-end-era/
-
-ragon Ball Xenoverse 2's 10-year era comes to a close with the release of its final DLC, ahead of the highly anticipated Dragon Ball Xenoverse 3.
----------
-
-# Sean Bean's New Western Thriller With Villain Role Debuts To Solid Rotten Tomatoes Score
-
-Movies, Masked Recs, Sean Bean
-
-Sun, 19 Jul 2026 03:16:36 GMT
-
-https://screenrant.com/sean-bean-the-isolate-thief-rotten-tomatoes-score/
-
-The award-winning actor Sean Bean is back to playing a major villain in a new Western thriller, which just debuted to a solid Rotten Tomatoes score.
----------
-
-# 10 Modern Anime Series Every New Fan Needs to Watch Once
-
-Anime, Cyberpunk: Edgerunners, Vinland Saga
-
-Sun, 19 Jul 2026 03:45:15 GMT
-
-https://www.cbr.com/best-modern-anime-series-for-new-fans/
-
-New-gen anime like Cyberpunk: Edgerunners and Vinland Saga are must-watches for beginner anime fans.
----------
-
-# It’s Officially the End of an Era for the Mummy Movies
-
-Movies, The Mummy, The Mummy 4
-
-Sun, 19 Jul 2026 03:40:15 GMT
-
-https://www.cbr.com/the-mummy-4-end-of-era-timeline-change/
-
-Making several timeline changes, the upcoming sequel in The Mummy franchise will ignore the mistakes of its past to become a long-awaited trilogy.
----------
-
-# 5 Stephen King Books Better Than IT
-
-TV, Stephen King, It, Horror
-
-Sun, 19 Jul 2026 03:30:15 GMT
-
-https://www.cbr.com/best-stephen-king-books-better-than-it-list/
-
-Stephen King's IT is certainly the most popular of his adaptations, but as far as the books go, it's a far cry from being the Horror Master's best.
----------
-
-# Bandai Re-Releases 3 Johnny Ridden Gunpla Kits for the Gelgoog and Zaku II
-
-Anime, Mobile Suit Gundam, merchandise, bandai, toys
-
-Sun, 19 Jul 2026 03:30:15 GMT
-
-https://www.cbr.com/gundam-johnny-ridden-gunpla-bandai-re-release/
-
-Three Gundam plastic model kits based on a classic spinoff are receiving a re-release, with all of them based on mechs piloted by Johnny Ridden.
----------
-
-# 10 Best Open-World Action RPGs of All Time, Officially Ranked
-
-Games, open world, RPG
-
-Sun, 19 Jul 2026 03:15:15 GMT
-
-https://www.cbr.com/best-open-world-action-rpgs-all-time-official-ranked-list/
-
-Open-world action RPGs like The Witcher 3 and Elden Ring are true masterpieces.
----------
-
-# Tom Welling's Remake of 46-Year-Old John Carpenter Horror Movie Is Streaming for Free
-
-Movies, The Fog
-
-Sun, 19 Jul 2026 03:04:37 GMT
-
-https://www.cbr.com/tom-welling-the-fog-horror-tubi-june-2026/
-
-The forgotten horror movie remake starring Smallville's Tom Welling can be streamed for free over two decades after its release in theaters.
----------
-
-# 10 Best Turn-Based RPGs of All Time, Ranked
-
-Games, Role Playing Game, RPG, JRPG
-
-Sun, 19 Jul 2026 02:45:15 GMT
-
-https://www.cbr.com/best-turn-based-rpgs-of-all-time-ranked-list/
-
-Clair Obscur: Expedition 33 and Dragon Quest XI some of the greatest turn-based RPGs ever.
----------
-
-# Doc Brown's Best Back to the Future Line is Still the Greatest Quote in Sci-Fi Movie History
-
-Movies, Back to the Future, Sci-Fi
-
-Sun, 19 Jul 2026 02:40:15 GMT
-
-https://www.cbr.com/doc-brown-back-to-the-future-line-greatest-sci-fi-quote/
-
-Doc's iconic closing line in Back to the Future is a testament to the movie's ambition, perfectly setting up the 1989 sequel.
----------
-
-# 10 Action Anime Series That Are 10/10, No Notes
-
-Anime, Attack on Titan, Hunter X Hunter
-
-Sun, 19 Jul 2026 02:30:16 GMT
-
-https://www.cbr.com/action-anime-series-flawless-start-to-finish/
-
-Many popular action anime are clearly meant for kids, but others are as masterfully written as the greatest dramas.
----------
-
-# 10 Biggest Differences Between The Odyssey Movie and the Book
-
-Movies, The Odyssey
-
-Sun, 19 Jul 2026 02:00:25 GMT
-
-https://www.cbr.com/the-odyssey-biggest-differences-movie-book-list/
-
-From the lotus-eaters to Odysseus's return to Ithaca, Christopher Nolan's The Odyssey makes some notable changes to the source material.
----------
-
-# Every 2026 Prime Video Show, Ranked Worst to Best
-
-TV, Prime Video, Spider-Noir, Off Campus, Scarpetta
-
-Sun, 19 Jul 2026 03:39:15 GMT
-
-https://collider.com/prime-video-shows-2026-ranked/
-
-From Spider-Noir to Off Campus, Young Sherlock to Scarpetta, it's been a busy year for Prime Video. Here's every 2026 show, ranked worst to best.
----------
-
-# Alan Ritchson’s Best Performance Still Isn't the One Everyone Talks About
-
-TV Features, Titans, Alan Ritchson, HBO Max, DCU, Television
-
-Sun, 19 Jul 2026 02:54:15 GMT
-
-https://collider.com/alan-ritchson-titans-hbo-max-dc-universe/
-
-Reacher star Alan Ritchson was great in Smallville and Blue Mountain State, but his best performance to date was in Titans on HBO Max.
----------
-
-# 'The Odyssey' Opening Weekend Sets Box-Office Record for Christopher Nolan
-
-Movie News, The Odyssey, box office, Christopher Nolan
-
-Sun, 19 Jul 2026 04:38:49 GMT
-
-https://movieweb.com/christopher-nolan-odyssey-career-best-opening/
-
-'The Odyssey' is on track to make more than even 'The Dark Knight Rises.'
----------
-
-# CBS's Complete Fall 2026 Schedule - Every TV Series & When It Airs
-
-TV Lists, Marshals
-
-Sun, 19 Jul 2026 02:00:22 GMT
-
-https://movieweb.com/cbss-complete-fall-2026-schedule/
-
-CBS's TV fall line-up is set. Here's which day of the week your favorite show will be airing.
----------
-
-# All 7 Greek Gods & Monsters In Christopher Nolan's The Odyssey
-
-Movies, The Odyssey
-
-Sun, 19 Jul 2026 01:45:11 GMT
-
-https://screenrant.com/the-odyssey-movie-greek-gods-monsters/
-
-While there were a lot of gods and monsters in the original The Odyssey poem, only seven actually showed up in the Christopher Nolan movie.
----------
-
-# Jujutsu Kaisen's Next Big Release Is A Major Crossover, But There's One Twist
-
-Gaming, Jujutsu Kaisen
-
-Sun, 19 Jul 2026 01:30:12 GMT
-
-https://screenrant.com/jujutsu-kaisen-next-release-crossover-monster-strike/
-
-Jujutsu Kaisen teams up with Monster Strike for a collaboration, but English players face hurdles due to the game's English server shutdown.
----------
-
-# Prime Video's Invincible Will Change Genres In Season 5
-
-Streaming TV, Invincible
-
-Sun, 19 Jul 2026 01:30:12 GMT
-
-https://screenrant.com/invincible-season-5-change-genre/
-
-Prime Video’s Invincible has constantly switched genres during its run, but its upcoming installment will go back to what the show does best.
----------
-
-# Silo Season 3’s Clever Rewrite Quietly Makes It More Realistic Than The Books
-
-Streaming TV, Silo, Silo - Season 3
-
-Sun, 19 Jul 2026 01:18:47 GMT
-
-https://screenrant.com/silo-season-3-book-change-iran-realistic/
-
-Silo season 3 has introduced a clever rewrite of the original book trilogy, which seemingly makes it even more realistic than its source material.
----------
-
-# Skyrim Meets Game Of Thrones In This Epic Open-World Fantasy RPG Experience
-
-Gaming, The Elder Scrolls, Game of Thrones
-
-Sun, 19 Jul 2026 01:00:12 GMT
-
-https://screenrant.com/skyrim-invicta-game-of-thrones-modlist/
-
-Discover the epic fusion of Skyrim and Game of Thrones with the Invicta modlist.
----------
-
-# 8 Greatest Animal Detective Movies Nobody Talks About Enough
-
-Movies, Mystery
-
-Sun, 19 Jul 2026 01:00:12 GMT
-
-https://screenrant.com/best-animal-detective-movies-underseen/
-
-Many of the best detective movies actually feature animals in notable roles, and these eight are among the strongest that have ever been made.
----------
-
-# Reacher Spinoff’s Confirmed 2026 Return Officially Ends An Era For Neagley
-
-Streaming TV, Reacher, Neagley
-
-Sun, 19 Jul 2026 00:45:36 GMT
-
-https://screenrant.com/reacher-neagley-prime-video-spinoff-new-era/
-
-Reacher’s exciting spinoff series is all set to premiere in 2026, and it is hard not to see how it officially ends an era for Maria Sten’s Neagley.
 ---------
