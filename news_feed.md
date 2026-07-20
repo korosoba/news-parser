@@ -1,3 +1,234 @@
+# Pokémon Winds & Waves Leaked Map Confirms Exact Number Of Gyms
+
+Gaming, Pokemon Winds and Waves, Pokemon, Pokémon, PC
+
+Mon, 20 Jul 2026 11:08:46 GMT
+
+https://screenrant.com/pokemon-winds-waves-leaked-map-number-of-gyms/
+
+There's been yet another huge Pokémon Winds & Waves leak, this time confirming the total number of gyms we can expect when it launches next year.
+---------
+
+# NCIS’s First-Ever Recast Character In 31 Years Revealed In New Set Video
+
+Network TV, NCIS, NCIS: New York
+
+Mon, 20 Jul 2026 11:05:11 GMT
+
+https://screenrant.com/ncis-new-york-scott-caan-recast-first-look/
+
+As the summer break ends, network TV shows is slowly starting production, including the NCIS franchise, which reveals its first ever recast character.
+---------
+
+# Zelda: Ocarina Of Time Remake Gameplay Leak Surfaces Online
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Mon, 20 Jul 2026 11:00:12 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-gameplay-leaks-september-2026/
+
+The Zelda: Ocarina Of Time Remake has been subject to all sorts of rumors, but this latest leak does make a lot of sense.
+---------
+
+# GTA 6 Official Release Date Update Shared In Wake Of Pre-Orders
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto
+
+Mon, 20 Jul 2026 10:30:12 GMT
+
+https://screenrant.com/gta-6-official-release-date-update-july-2026/
+
+It's no secret that GTA VI has been through some ups and downs on the way towards release, but the latest update is a good one.
+---------
+
+# Celebrate The Odyssey Release With Free Download Of Assassin's Creed Odyssey
+
+Gaming, Assassin's Creed Odyssey
+
+Mon, 20 Jul 2026 10:00:11 GMT
+
+https://screenrant.com/celebrate-the-odyssey-release-with-free-download-of-assassins-creed-odyssey/
+
+PlayStation Plus Extra subscribers can now download and play Assassin's Creed Odyssey for free.
+---------
+
+# Hogwarts Legacy: Chamber Of Secrets Lets You Fight The Basilisk And Break Canon
+
+Gaming, Hogwarts Legacy
+
+Mon, 20 Jul 2026 09:48:03 GMT
+
+https://screenrant.com/hogwarts-legacy-chamber-of-secrets-canon-breaking/
+
+There's few more formidable enemies in Harry Potter than the basilisk, and now you can take it on for yourself in Hogwarts Legacy.
+---------
+
+# Half-Life 3 Official Update Released By Valve
+
+Gaming, Valve
+
+Mon, 20 Jul 2026 09:26:17 GMT
+
+https://screenrant.com/half-life-3-official-statement-valve/
+
+Valve clarifies its stance on releasing exclusives for the Steam Machine, potentially putting an end to Half-Life 3 rumors.
+---------
+
+# Fallout 5 Gets Official Update On Xbox Exclusivity
+
+Gaming, Fallout, Fallout 5
+
+Mon, 20 Jul 2026 09:25:04 GMT
+
+https://screenrant.com/fallout-5-official-update-xbox-exclusive/
+
+Fallout 5 hasn't been spoken about for years by Bethesda, but there is finally some movement on what's going on with the game.
+---------
+
+# Magic: The Gathering's 10 Coolest Collaboration Sets Of All Time, Ranked
+
+Gaming, Magic: The Gathering
+
+Mon, 20 Jul 2026 09:04:22 GMT
+
+https://screenrant.com/magic-gathering-coolest-collabs-secret-lairs-mtg/
+
+Magic: The Gathering's universes beyond collaborations have been a huge success, but not every series is given the same quality treatment as the rest.
+---------
+
+# 10 Cutest Far Side Comic Strips of All Time, Ranked
+
+Comics, The Far Side
+
+Mon, 20 Jul 2026 11:00:16 GMT
+
+https://www.cbr.com/cutest-far-side-comic-strips-ranked/
+
+For a comic that deeply enjoyed playing on darker themes, it's surprising how Gary Larson's The Far Side sometimes couldn't help but be plain cute.
+---------
+
+# ‘Reacher’ Season 5 Gets First Look Before Season 4 Even Arrives
+
+TV News, Reacher, Jack Reacher, Alan Ritchson, Prime Video
+
+Mon, 20 Jul 2026 11:17:23 GMT
+
+https://collider.com/reacher-season-5-preview-alan-ritchson/
+
+Reacher's Alan Ritchson shares an early preview of Season 5 before Season 4 has even premiered.
+---------
+
+# 6 Worst R-Rated Sci-Fi Movies of the 2000s
+
+Movie, Sci-Fi, Alone in the Dark, Dreamcatcher, Ghosts of Mars
+
+Mon, 20 Jul 2026 11:04:15 GMT
+
+https://collider.com/worst-r-rated-sci-fi-movies-2000s-ranked/
+
+From Doom to Aliens vs. Predator: Requiem, these disastrous 2000s sci-fi movies failed to deliver any scares or thrills despite being R-rated.
+---------
+
+# Netflix Just Axed One of Horror's Biggest Franchises
+
+Movie News, Saw, Saw X, Horror, James Wan
+
+Mon, 20 Jul 2026 11:00:15 GMT
+
+https://collider.com/netflix-removing-saw-franchise-horror-july-2026/
+
+James Wan and Leigh Whannell's legendary and brutal Saw franchise lost its streaming home. Find out what's next for the horror IP.
+---------
+
+# ‘Wonder Man’ Boss Offers First Update on Season 2 Production [Exclusive]
+
+Exclusives, Wonder Man, Spider-Man: Brand New Day, Destin Daniel Cretton, Yahya Abdul-Mateen II
+
+Mon, 20 Jul 2026 11:00:15 GMT
+
+https://collider.com/wonder-man-season-2-filming-window-update/
+
+Ahead of Spider-Man: Brand New Day, Destin Daniel Cretton tentatively teased when filming could begin on the second season of Wonder Man.
+---------
+
+# 10 Greatest Low Fantasy Books of All Time
+
+Books and Comics, Books, Fantasy, The Odyssey, Harry Potter
+
+Mon, 20 Jul 2026 10:32:18 GMT
+
+https://collider.com/best-low-fantasy-books-all-time-ranked/
+
+From Charlie and the Chocolate Factory to Jonathan Strange & Mr Norrell, these are the best low fantasy books that bring magic into the real world.
+---------
+
+# ‘John Wick’ Meets ‘Taken’ in Netflix’s New 10-Part Action Thriller That's Now the Biggest Show on Streaming
+
+TV News, John Wick, Taken, Netflix, Agent Kim Reactivated
+
+Mon, 20 Jul 2026 10:30:17 GMT
+
+https://collider.com/netflix-agent-kim-reactivated-streaming-success-july-2026/
+
+Netflix’s biggest new action thriller is dominating global charts and just secured extra episodes after its breakout success.
+---------
+
+# Disney Officially Brings Back the Show That Launched Ryan Gosling and Britney Spears
+
+TV News, Disney+, Ryan Gosling, Britney Spears, The Mickey Mouse Club
+
+Mon, 20 Jul 2026 10:00:14 GMT
+
+https://collider.com/disney-mickey-mouse-club-reboot-confirmed/
+
+Disney is reviving the iconic talent-launching series for a new generation, bringing a fresh cast to a beloved franchise.
+---------
+
+# Jason Statham's $397M Shark Thriller Surges Across Global Streaming Charts
+
+Movie News, The Meg 2, Jason Statham, Meg 2: The Trench, Netflix
+
+Mon, 20 Jul 2026 09:30:15 GMT
+
+https://collider.com/jason-statham-meg-2-the-trench-streaming-success-netflix-july-2026/
+
+Meg 2: The Trench starring Jason Statham has found a global audience on Netflix, outperforming other streaming releases.
+---------
+
+# 20 Best MCU Movies, Ranked According to Letterboxd
+
+Movie, MCU, Avengers: Endgame, Avengers: Infinity War, The Avengers
+
+Mon, 20 Jul 2026 09:11:14 GMT
+
+https://collider.com/best-mcu-movies-ranked-letterboxd-marvel/
+
+Film fans on Letterboxd rank Iron Man, Avengers: Endgame, and Thor: Ragnarok among the very best movies in Marvel's MCU franchise.
+---------
+
+# Kevin Feige Confirms ‘Spider-Man: Brand New Day’s Place in the MCU Timeline [Exclusive]
+
+Exclusives, Spider-Man: Brand New Day, Kevin Feige, Amy Pascal, MCU
+
+Mon, 20 Jul 2026 09:00:15 GMT
+
+https://collider.com/spider-man-brand-new-day-mcu-timeline-before-avengers-doomsday/
+
+Kevin Feige confirms when Spider-Man: Brand New Day takes place in relation to Avengers: Doomsday and No Way Home.
+---------
+
+# Marvel Confirms Long-Awaited Arrival of New 'Avengers: Doomsday' Update
+
+Movie News, Avengers: Doomsday, Avengers: Doomsday (2026), The Fantastic Four: First Steps
+
+Mon, 20 Jul 2026 10:18:08 GMT
+
+https://movieweb.com/avengers-doomsday-trailer-tease-marvel/
+
+'The Fantastic Four' social media account disrupted its long-running posting tradition to drop a glitchy Marvel teaser for 'Avengers: Doomsday.'
+---------
+
 # Spider-Man & Daredevil’s New Team-Up Finally Gives Fans What They’ve Wanted
 
 Gaming, Spider-Man, Daredevil, Marvel Rivals, Triple-A Games
@@ -5265,235 +5496,4 @@ Sat, 18 Jul 2026 18:30:12 GMT
 https://movieweb.com/apple-tv-sci-fi-masterpieces/
 
 Living up to the hype isn't easy, and very few Apple TV series are actually the masterpieces people describe them as.
----------
-
-# Supergirl Box Office Hits A New Low For DC Franchise During Week 4
-
-Superheroes, Supergirl, DC Universe, Box Office
-
-Sat, 18 Jul 2026 18:21:56 GMT
-
-https://screenrant.com/supergirl-2026-box-office-week-4-domestic-result/
-
-During its fourth weekend, the new DC Universe movie Supergirl hits a new low at the domestic box office for both the DCU and the DCEU.
----------
-
-# Timothy Olyphant's New Apple TV Thriller Ends Solid Rotten Tomatoes Streak After 3 Years
-
-TV, Lucky
-
-Sat, 18 Jul 2026 18:16:50 GMT
-
-https://screenrant.com/timothy-olyphant-lucky-apple-tv-rotten-tomatoes-audience-score-streak/
-
-Timothy Olyphant's new thriller has officially ended a Rotten Tomatoes streak after three years, with his new Apple TV thriller series.
----------
-
-# Yellowjackets’ Final Season Gets Major Filming Update As Teen & Adult Stars Unite
-
-TV, Yellowjackets
-
-Sat, 18 Jul 2026 18:16:06 GMT
-
-https://screenrant.com/yellowjackets-season-4-filming-update-melanie-lynskey/
-
-The fourth and final season of the hit series Yellowjackets receives a major filming update from Melanie Lynskey, who plays the adult Shauna.
----------
-
-# The Emmys’ Newest Change Generates Backlash: “Insane And Utterly Disrespectful”
-
-TV, Emmy Awards
-
-Sat, 18 Jul 2026 18:02:34 GMT
-
-https://screenrant.com/emmy-awards-reduce-telecast-categories-backlash/
-
-The Television Academy's decision to the structure of the Emmy Awards categories and ceremony is sparking major backlash among viewers.
----------
-
-# The Boys' 2027 Return Is The End Of An Era
-
-Streaming TV, Masked Recs
-
-Sat, 18 Jul 2026 18:00:12 GMT
-
-https://screenrant.com/the-boys-2027-vought-rising-end-of-an-era/
-
-The Boys is set to return for new content in 2027, but after the main show's conclusion, this exciting project will officially mark the end of an era.
----------
-
-# 7 Heroes Characters With The Absolute Worst Powers
-
-Classic TV, Heroes
-
-Sat, 18 Jul 2026 17:30:11 GMT
-
-https://screenrant.com/heroes-characters-worst-powers/
-
-Heroes introduced a variety of cool characters during its four-season run on NBC, but these seven individuals' powers failed to impress.
----------
-
-# A Classic Hero Returns For Marvel's Next Guardians Of The Galaxy Roster
-
-Marvel Comics, Guardians of the Galaxy
-
-Sat, 18 Jul 2026 17:28:20 GMT
-
-https://screenrant.com/marvel-new-guardians-galaxy-roster-deaths-head/
-
-A traditionally Earth-based Avenger leaves the planet to join Marvel's new Guardians of the Galaxy team alongside multiple cosmic titans.
----------
-
-# Netflix's New 10-Part Original Comedy Splits Critics and Audiences on Rotten Tomatoes
-
-TV, The Hawk
-
-Sat, 18 Jul 2026 18:20:35 GMT
-
-https://www.cbr.com/the-hawk-netflix-rotten-tomatoes-audience-score/
-
-Critics shredded Netflix's newest comedy series, but audiences do not agree.
----------
-
-# 5 Classic Anime Dubs That Are Unwatchable Today
-
-Anime, Dragon Ball Z, Sailor Moon
-
-Sat, 18 Jul 2026 18:15:15 GMT
-
-https://www.cbr.com/classic-anime-dubs-unwatchable-today/
-
-The flaws of these dubs are easier to notice today, especially when compared to more modern dubbing standards.
----------
-
-# What's Coming to Peacock in August 2026? Everything Arriving Next Month
-
-TV, Peacock
-
-Sat, 18 Jul 2026 18:00:15 GMT
-
-https://www.cbr.com/what-coming-peacock-august-2026-full-list/
-
-August will be a hot month for Peacock.
----------
-
-# Zenless Zone Zero 2nd Anniversary Update Includes Remielle Dan, Free S-Rank Character and More
-
-Anime, Genshin Impact, JRPG
-
-Sat, 18 Jul 2026 18:00:15 GMT
-
-https://www.cbr.com/zenless-zone-zero-2nd-anniversary-remielle-dan-free-s-rank/
-
-Zenless Zone Zero celebrates its 2nd anniversary with Remielle Dan's debut, a free selectable limited S-Rank agent, anniversary rewards and more.
----------
-
-# Mighty Morphin Power Rangers Confirms Who the New Rita Really Is
-
-Comics, Power Rangers, Mighty Morphin Power Rangers
-
-Sat, 18 Jul 2026 18:00:15 GMT
-
-https://www.cbr.com/mighty-morphin-power-rangers-2-rita-real-identity-revealed/
-
-The latest version of the Mighty Morphin Power Rangers' original nemesis has finally confirmed who she really is.
----------
-
-# Game of Thrones' Lena Headey Addresses Fan Reaction to Controversial Season 5 Scene: 'I Was Really Shocked'
-
-TV, Game Of Thrones
-
-Sat, 18 Jul 2026 17:53:03 GMT
-
-https://www.cbr.com/game-of-thrones-lena-headey-body-double-fans-reaction/
-
-Game of Thrones star Lena Headey opens up about the online backlash she faced for a grueling Season 5 sequence.
----------
-
-# 6 Game of Thrones Deaths That Make Zero Sense
-
-TV, Game Of Thrones, HBO Max, Fantasy
-
-Sat, 18 Jul 2026 17:30:15 GMT
-
-https://www.cbr.com/game-of-thrones-deaths-that-make-no-sense-list/
-
-Some deaths in HBO's Game of Thrones shocked viewers, but they don't hold up under closer scrutiny.
----------
-
-# The Westies: Why Real Gangsters Were Renamed | Set Stories
-
-TV, The Westies
-
-Sat, 18 Jul 2026 18:15:15 GMT
-
-https://collider.com/video/the-westies-why-real-gangsters-were-renamed-set-stories/
-
-What did it take to bring the infamous Westies to television? J.K. Simmons, Tom Brittney, Titus Welliver, and co-creator/showrunner Chris Brancato pull back the curtain on how The Westies recreated 1980s Hell's Kitchen while balancing real history with dramatic storytelling.
----------
-
-# Netflix Quietly Adds an X-Men Star's 120-Minute Crime Gem
-
-Movie News, Asphalt City, Netflix, Streaming, Sean Penn
-
-Sat, 18 Jul 2026 18:00:15 GMT
-
-https://collider.com/asphalt-city-streaming-netflix-august-2026/
-
-Sean Penn teams up with an X-Men star in a 2023 thriller coming to Netflix. Find out all the details here.
----------
-
-# 6 Greatest Sci-Fi Video Games of All Time, Ranked
-
-TV, Sci-Fi, Video Game, Star Wars: Knights of the Old Republic, Cyberpunk 2077
-
-Sat, 18 Jul 2026 17:57:15 GMT
-
-https://collider.com/greatest-sci-fi-video-games-all-time-ranked/
-
-From Half-Life 2 to BioShock, Cyberpunk 2077 to Dune: Awakening, these sci-fi games set the benchmark for immersive worlds and unforgettable stories.
----------
-
-# 6 Scariest Movies Released Since 2000
-
-Movie, Horror, The Conjuring, Hereditary, Obsession
-
-Sat, 18 Jul 2026 17:52:15 GMT
-
-https://collider.com/scariest-movies-released-since-2000-ranked/
-
-Hereditary, The Babadook, and Sinister are all among the best and most purely terrifying horror movies released since the year 2000.
----------
-
-# Michael Douglas' 'Falling Down' Getting New 4K Blu-ray Release
-
-Movies, Michael Douglas, Falling Down
-
-Sat, 18 Jul 2026 18:02:00 GMT
-
-https://movieweb.com/michael-douglas-falling-down-4k-blu-ray/
-
-Douglas’ 1993 thriller is returning with a new limited-edition 4K Blu-ray release.
----------
-
-# Who Is Agamemnon In Greek Myth? 'The Odyssey's King and His Fate, Explained
-
-Features, The Odyssey, Christopher Nolan
-
-Sat, 18 Jul 2026 18:00:12 GMT
-
-https://movieweb.com/the-odyssey-agamemnon-explained/
-
-Benny Safdie plays the Greek king and warlord Agamemnon in Christopher Nolan's 'The Odyssey', who is based on the key figure from Greek mythology.
----------
-
-# 'The Dark Knight' Trilogy's 10 Best Quotes, Ranked
-
-Movie Lists, The Dark Knight, Batman, The Dark Knight Rises, Batman Begins
-
-Sat, 18 Jul 2026 17:30:12 GMT
-
-https://movieweb.com/the-dark-knight-trilogy-best-quotes-ranked/
-
-From the wisdom of Alfred Pennyworth to Harvey Dent’s political speeches, here are The Dark Knight Trilogy’s 10 best quotes ranked.
 ---------
