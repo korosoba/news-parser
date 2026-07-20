@@ -1,3 +1,333 @@
+# New Stardew Valley Rival Adds A Dash Of Baldur’s Gate 3
+
+Gaming, Stardew Valley, Steam, Indie
+
+Mon, 20 Jul 2026 01:00:11 GMT
+
+https://screenrant.com/emberville-stardew-valley-rival-bg3-jennifer-english/
+
+Stardew Valley's biggest farming sim competition just announced a massive update that is sure to give it the edge when it comes to storytelling.
+---------
+
+# It Took Marvel 58 Years To Take Daredevil’s Best Costume From Good To God-Tier
+
+TV, Daredevil
+
+Mon, 20 Jul 2026 00:53:35 GMT
+
+https://screenrant.com/daredevil-best-costume-ketchup-mustard-she-hulk/
+
+Daredevil has only had several new costumes thus far in the MCU, and one that has only made a niche appearance is arguably the best of them all.
+---------
+
+# Netflix’s New Philip K. Dick Show Adapts 1 Of His Most “Unfilmable” Sci-Fi Stories
+
+Streaming TV, Masked Recs
+
+Mon, 20 Jul 2026 00:45:11 GMT
+
+https://screenrant.com/netflix-philip-k-dick-world-jones-made-unfilmable/
+
+Netflix’s new Philip K. Dick adaptation is incredibly ambitious because it adapts one of the most “unfilmable” stories written by the sci-fi author.
+---------
+
+# 2 Years Later, It’s Clear Marvel Missed Their Best Chance To Beat DC
+
+Marvel Comics, DC Comics
+
+Mon, 20 Jul 2026 00:44:12 GMT
+
+https://screenrant.com/marvel-comics-almost-had-dc-absolute/
+
+Marvel was potentially given the same opportunity for success as DC now has with its Absolute publishing line, but let it slip away.
+---------
+
+# 13 Best Battles In Game Of Thrones & House Of The Dragon, Ranked
+
+Streaming TV, Game of Thrones, Game Of Thrones, House of the Dragon
+
+Mon, 20 Jul 2026 00:30:13 GMT
+
+https://screenrant.com/game-of-thrones-house-of-the-dragon-best-battles-ranked/
+
+Game of Thrones and House of the Dragon are packed with unforgettable fantasy battles. These stand out as the best of the best between the two shows.
+---------
+
+# Dragon Ball Reveals New Ultra-Powerful Goku Form For Next Major Release
+
+Gaming, Dragon Ball, Dragon Ball Xenoverse 2
+
+Mon, 20 Jul 2026 00:30:11 GMT
+
+https://screenrant.com/dragon-ball-goku-new-form-superhero-ultra-instinct/
+
+Dragon Ball reveals a new powerful transformation for Goku as the Xenoverse 2 era comes to an end, setting the stage for Xenoverse 3 in 2027.
+---------
+
+# DC Fans Are Convinced A Marvel Rivals Clone Is Right Around The Corner
+
+Gaming, DC, Marvel Rivals, Fortnite, Triple-A Games
+
+Mon, 20 Jul 2026 00:30:11 GMT
+
+https://screenrant.com/dc-fortnite-swimsuit-skins-marvel-rivals-clone/
+
+DC does not yet have its own version of Marvel Rivals, but it seems to be taking inspiration from the 6v6 hero-shooter lately regardless.
+---------
+
+# 10 Sci-Fi Monster Movies That Owe Everything To Alien
+
+Classic Movies, Alien
+
+Mon, 20 Jul 2026 00:10:11 GMT
+
+https://screenrant.com/sci-fi-monster-movies-owe-to-alien/
+
+Alien was a groundbreaking horror sci-fi movie and many movies that came out over the years since owe their existence to this classic movie.
+---------
+
+# Solo Leveling's Movie Could Be The Genre Change The Franchise Needs
+
+Anime, Solo Leveling
+
+Mon, 20 Jul 2026 00:00:11 GMT
+
+https://screenrant.com/solo-leveling-beyond-system-genre-change/
+
+Solo Leveling can leverage its darker elements to create even more compelling tension and character development, taking the franchise to new heights.
+---------
+
+# 3 Years Later, Gareth Edwards' Underrated Sci-Fi Movie Is Finally Getting Its Revenge on the Global Netflix Charts
+
+Movies, The Creator
+
+Mon, 20 Jul 2026 01:00:15 GMT
+
+https://www.cbr.com/the-creator-sci-fi-netflix-success-july-2026/
+
+The underrated sci-fi movie earns some redemption three years after its underwhelming run at the box office.
+---------
+
+# NBC's 2-Part The Odyssey Miniseries Becomes a PVOD Sensation as Christopher Nolan's Film Soars
+
+Movies, The Odyssey, Apple TV
+
+Mon, 20 Jul 2026 01:00:15 GMT
+
+https://www.cbr.com/the-odyssey-miniseries-fantasy-apple-tv-streaming-success-july-2026/
+
+As Christopher Nolan's The Odyssey sets sail, another adaptation of the iconic Greek epic is officially a streaming sensation.
+---------
+
+# Top Dragon Ball Movie Wins Landslide Victory in Official Netflix Ranking
+
+Anime, Dragon Ball, Dragon Ball Z: Battle of Gods
+
+Mon, 20 Jul 2026 01:00:15 GMT
+
+https://www.cbr.com/dragon-ball-z-battle-of-gods-netflix-viewership-report/
+
+Dragon Ball fans sent one of the franchise's best movies straight to the top in a clear and decisive victory in Netflix's latest engagement report.
+---------
+
+# Pokémon Is Officially Bringing Back Ash and Pikachu on August 7
+
+Anime, Pokemon, Disney+, Nintendo
+
+Mon, 20 Jul 2026 01:00:15 GMT
+
+https://www.cbr.com/pokmon-ash-pikachu-indigo-league-disney-plus-august-2026/
+
+Pokémon's Indigo League is making a surprise return with Ash Ketchum and Pikachu this August.
+---------
+
+# 10 Greatest Anime Series From 2009 to 2010
+
+Anime, Fullmetal Alchemist Brotherhood, The Tatami Galaxy
+
+Mon, 20 Jul 2026 00:45:15 GMT
+
+https://www.cbr.com/greatest-anime-series-2009-2010-list/
+
+From 2009 to the end of 2010, the anime medium exceeded expectations with storytelling and world-building thanks to these ten epic titles.
+---------
+
+# 3 Open-World RPGs That Are 10/10 Masterpieces
+
+Games, The Witcher 3: Wild Hunt, Baldur's Gate 3, RPG, Video Games
+
+Mon, 20 Jul 2026 00:30:15 GMT
+
+https://www.cbr.com/best-open-world-rpg-masterpieces/
+
+Open-world role-playing games offer gamers some of the most engaging experiences in video games.
+---------
+
+# 10 Near Perfect Villainess Anime You Should Watch This Summer
+
+Anime, Isekai, My Next Life as a Villainess: All Routes Lead to Doom!
+
+Mon, 20 Jul 2026 00:15:15 GMT
+
+https://www.cbr.com/near-perfect-villainess-anime-watch-this-summer/
+
+Villainess anime continue to be some of the best Isekai series in Summer 2026.
+---------
+
+# 10 Supporting Anime Characters Who Are Better Leaders Than the Protagonist
+
+Anime, Black Clover, Naruto, One Piece
+
+Sun, 19 Jul 2026 23:45:15 GMT
+
+https://www.cbr.com/supporting-anime-characters-better-than-the-protagonist/
+
+Anime protagonists are often leaders by default, and characters like Eren, Luffy, and Asta prove why that's not a good thing.
+---------
+
+# Tom Cruise and Kermit the Frog of The Muppets Finally Meet in Viral Video
+
+TV, The Muppet Show, tom cruise
+
+Sun, 19 Jul 2026 23:43:32 GMT
+
+https://www.cbr.com/tom-cruise-kermit-the-frog-meet/
+
+Tom Cruise and Kermit the Frog became fast friends when the two unexpectedly met in a video that's now gone viral.
+---------
+
+# In Just 5 Days, Titus Welliver & J.K. Simmons' New Crime Drama Loses No. 1 Spot to Hit Lost Replacement
+
+TV, From, The Westies
+
+Sun, 19 Jul 2026 23:30:15 GMT
+
+https://www.cbr.com/from-horror-mgm-plus-success-june-2026/
+
+The crime drama series loses its grip on the top spot on the streaming charts.
+---------
+
+# ‘Euphoria’ Officially Returns for One Final Release 2 Months After Finale
+
+TV News, Euphoria, HBO Max, Sydney Sweeney, Zendaya
+
+Mon, 20 Jul 2026 00:45:15 GMT
+
+https://collider.com/euphoria-a-look-back-featurette-hbo-max-release-date-july-24-2026/
+
+Two months after its finale, HBO’s hit drama returns with a special retrospective celebrating its cast and journey.
+---------
+
+# Netflix's New 8-Part YA Series Is Taking Aim at Prime Video
+
+TV News, Crew Girl, Netflix, Drama, Romance
+
+Mon, 20 Jul 2026 00:30:15 GMT
+
+https://collider.com/crew-girl-netflix-premeire-date-september-10-plot-details/
+
+Netflix's latest teen drama pits the streaming giant against Prime Video in the competitive YA show landscape. Get all the details here.
+---------
+
+# ‘A Quiet Place’ Meets ‘Arachnophobia’ in First Trailer for Terrifying New Survival Thriller
+
+Movie News, Horror, Thriller, A Quiet Place, Arachnophobia
+
+Mon, 20 Jul 2026 00:15:15 GMT
+
+https://collider.com/a-quiet-place-replacement-dont-move-trailer/
+
+A new survival thriller pits stranded survivors against a terrifying predator that hunts by sound, and its first trailer is a chilling must-watch.
+---------
+
+# 10 Perfect Apple TV Shows With 5 Seasons or Less
+
+TV, Apple TV, Ted Lasso, Severance, Bad Sisters
+
+Mon, 20 Jul 2026 00:02:15 GMT
+
+https://collider.com/perfect-apple-tv-shows-shorter-than-5-seasons/
+
+Dive into the top Apple TV original series with five seasons or fewer that deliver exceptional storytelling, including Severance, Pluribus, and Silo.
+---------
+
+# Disney Officially Confirms the End of 'The Mandalorian'
+
+TV News, The Mandalorian, The Mandalorian and Grogu, Disney+
+
+Mon, 20 Jul 2026 00:00:15 GMT
+
+https://collider.com/the-mandalorian-ended-disney-star-wars-featurette/
+
+A new Star Wars featurette appears to confirm The Mandalorian ended in 2023, casting fresh doubt on Season 4.
+---------
+
+# 'Mario Kart' Will No Longer Be Nintendo Exclusive Next Month
+
+Gaming News, Mario Kart, Nintendo, The Super Mario Bros. Movie, Nintendo Switch
+
+Sun, 19 Jul 2026 23:45:15 GMT
+
+https://collider.com/mario-kart-wii-pc-port-beta-august-2026/
+
+Mario Kart Wii is coming to PC through an unofficial fan-made recompilation entering beta in August 2026.
+---------
+
+# ‘The Odyssey’ Surges on Streaming Before Its Theatrical Run Even Begins
+
+Movie News, The Odyssey, Christopher Nolan, Matt Damon, IMAX
+
+Sun, 19 Jul 2026 23:30:15 GMT
+
+https://collider.com/the-odyssey-making-of-an-epic-peacock-streaming-hit-july-2026/
+
+The Odyssey: The Making of an Epic is already a Peacock streaming hit as Christopher Nolan’s new film opens in theaters.
+---------
+
+# Netflix's Best 2-Part Fantasy Adaptation Got Even Better When It Diverted From the Book
+
+TV Features, Shadow and Bone, Netflix, Fantasy, Books
+
+Sun, 19 Jul 2026 23:27:15 GMT
+
+https://collider.com/shadow-and-bone-netflix-adaptation-crows-book-change/
+
+Netflix's Shadow & Bone made a bold move by introducing the Crows early, expanding the story and giving fans a new perspective on the beloved series.
+---------
+
+# Stephen King Admitted He Was Wrong About Kurt Russell's Hidden Gem Western
+
+Features, Bone Tomahawk, Stephen King
+
+Mon, 20 Jul 2026 01:00:12 GMT
+
+https://movieweb.com/stephen-king-review-bone-tomahawk/
+
+After initially dismissing it, Stephen King later admitted he hadn't given Kurt Russell's highly underrated Western horror epic enough credit.
+---------
+
+# 10 Best Fantasy Books from the 2020s That Are Total Masterpieces
+
+TV Lists
+
+Mon, 20 Jul 2026 00:30:12 GMT
+
+https://movieweb.com/best-fantasy-books-2020s/
+
+Fantasy as a genre has gotten way more popular in the 2020s, and many incredible books have joined the genre in the last six years as well.
+---------
+
+# Steven Spielberg & Tom Cruise's Sci-Fi Hit Was Almost an Arnold Schwarzenegger Sequel
+
+Features, Sci-Fi, Steven Spielberg, Minority Report, Tom Cruise, Arnold Schwarzenegger, Total Recall
+
+Sun, 19 Jul 2026 23:30:12 GMT
+
+https://movieweb.com/steven-spielberg-tom-cruise-minority-report-arnold-schwarzenegger-sequel/
+
+Steven Spielberg and Tom Cruise's sci-fi hit was almost a sequel to a classic movie starring Arnold Schwarzenegger. What happened?
+---------
+
 # Apple TV's Hit 97% RT Comedy Is Quietly One Of Its Best Shows In Any Genre
 
 Streaming TV, Masked Recs
@@ -5166,334 +5496,4 @@ Sat, 18 Jul 2026 16:00:11 GMT
 https://screenrant.com/dracula-villain-helsing-operation-iron-coffin/
 
 At last!
----------
-
-# Star Wars Is Finally Getting Its First Truly Great Trilogy
-
-Gaming, Star Wars, Star Wars Jedi: Survivor, PC
-
-Sat, 18 Jul 2026 16:00:11 GMT
-
-https://screenrant.com/star-wars-perfect-trilogy-jedi-3/
-
-Star Wars has always had great entries, but has ultimately failed to deliver a truly great trilogy. That is, of course, until now.
----------
-
-# 4 Years Ago, Star Wars' 3-Part Thriller Changed The Franchise Forever
-
-Streaming TV, Masked Recs, Star Wars
-
-Sat, 18 Jul 2026 15:45:11 GMT
-
-https://screenrant.com/star-wars-andor-narkina-5-change-franchise/
-
-Four years ago, a new Star Wars story changed the franchise forever, testing the limits of the galaxy's storytelling with devastating effect.
----------
-
-# The Odyssey Box Office Debut Breaks 5 Records At Once
-
-Movies, The Odyssey, Box Office
-
-Sat, 18 Jul 2026 15:42:27 GMT
-
-https://screenrant.com/the-odyssey-2026-box-office-opening-weekend-domestic-chart-report/
-
-Over the span of just three days at the domestic box office, Christopher Nolan's The Odyssey breaks nearly half a dozen major theatrical records.
----------
-
-# Magic: The Gathering: All Sets Officially Confirmed For 2027
-
-Games, Magic: The Gathering, Tabletop, Magic: The Gathering Arena
-
-Sat, 18 Jul 2026 16:16:15 GMT
-
-https://www.cbr.com/magic-the-gathering-2027-all-confirmed-sets/
-
-Wizards of the Coast has revealed the Magic: The Gathering sets launching in 2027, which include brand-new worlds and a return to familiar ones.
----------
-
-# 10 Wackiest Anime No One Remembers
-
-Anime, Inferno Cop, Sarazanmai
-
-Sat, 18 Jul 2026 16:16:15 GMT
-
-https://www.cbr.com/wackiest-anime-no-one-remembers/
-
-There are some truly weird anime that go for broke with their ideas, but titles like Sarazanmai, Inferno Cop, and Punch Line are especially outrageous
----------
-
-# Absolute Batman #23 Variant Cover Pays Tribute To Dark Knight Returns
-
-Comics, Absolute Batman, Batman, batman the dark knight returns, the dark knight returns
-
-Sat, 18 Jul 2026 16:00:15 GMT
-
-https://www.cbr.com/absolute-batman-23-variant-cover-dark-knight-returns-tribute/
-
-Absolute Batman variant cover channels a classic.
----------
-
-# Berserk Finally Brings Back the Original Manga's Strongest Apostle
-
-Anime, Berserk, merchandise, collectibles
-
-Sat, 18 Jul 2026 16:00:15 GMT
-
-https://www.cbr.com/berserk-zodd-prime-1-studio/
-
-The newest Prime 1 Studio Berserk statue recreates a classic manga cover, all while making the grievous Zodd even more bloodthirsty than ever.
----------
-
-# Netflix Confirms AI Usage for Roughly 300 Titles So Far
-
-TV, Netflix, Artificial Intelligence
-
-Sat, 18 Jul 2026 15:42:37 GMT
-
-https://www.cbr.com/netflix-confirms-ai-usage/
-
-The revelation comes two years after the company promised AI won't take anyone's job.
----------
-
-# Mike Flanagan's Stephen King Adaptation Carrie Is Already Prime Video's Next 5-Star Horror Classi
-
-TV, Carrie, Mike Flanagan, Horror
-
-Sat, 18 Jul 2026 15:31:15 GMT
-
-https://www.cbr.com/prime-video-mike-flanagan-carrie-modern-stephen-king-classic/
-
-Flanagan has stressed that Carrie's TV adaptation expands Stephen King's original novel in ways that film adaptations simply could not.
----------
-
-# Only 5 Joaquin Phoenix Movies Are Perfect From Start to Finish
-
-Movie, Joaquin Phoenix, Her, Walk The Line, Gladiator
-
-Sat, 18 Jul 2026 16:19:15 GMT
-
-https://collider.com/best-joaquin-phoenix-movies-perfect/
-
-From You Were Never Really Here, to The Master, to Her, Joaquin Phoenix built a career on unforgettable characters and fearless performances.
----------
-
-# ‘Reacher’ Star Alan Ritchson Is Ready for Revenge in 1 Week
-
-Movie News, Motor City, Alan Ritchson, Action, Reacher
-
-Sat, 18 Jul 2026 16:15:15 GMT
-
-https://collider.com/alan-ritchson-motor-city-release-date-action-thriller/
-
-Alan Ritchson’s brutal revenge thriller Motor City, with Ben Foster and Shailene Woodley, arrives in 1 week.
----------
-
-# Christopher Nolan’s ‘The Odyssey’ Leaves One of the Greatest Sci-Fi Movies Ever in the Dust
-
-Movie News, The Odyssey, Christopher Nolan, Matt Damon, Box Office
-
-Sat, 18 Jul 2026 15:30:15 GMT
-
-https://collider.com/the-odyssey-box-office-debut-overtakes-dune-part-2/
-
-Christopher Nolan’s The Odyssey officially outperforms Dune: Part Two in historic box office debut.
----------
-
-# One of the Best War Movies of All Time Is on YouTube for Free
-
-Features, War, Full Metal Jacket
-
-Sat, 18 Jul 2026 16:01:12 GMT
-
-https://movieweb.com/full-metal-jacket-youtube-free/
-
-The war movie genre has delivered some of the most impressive films of the past few decades, and now one is on YouTube free of charge.
----------
-
-# 10 Greatest Fantasy Movies With The Best Worldbuilding
-
-Movies, Avatar, Fantasy, Dune, The Dark Crystal
-
-Sat, 18 Jul 2026 15:16:01 GMT
-
-https://screenrant.com/best-fantasy-movies-good-worldbuilding/
-
-Discover the most immersive realities in cinema with these 10 greatest fantasy movies that mastered complex, unforgettable worldbuilding.
----------
-
-# The Elder Scrolls 6 Official Release Date Update Is Music To Our Ears
-
-Gaming, The Elder Scrolls 6, The Elder Scrolls, Triple-A Games
-
-Sat, 18 Jul 2026 15:14:26 GMT
-
-https://screenrant.com/elder-scrolls-6-official-release-date-update/
-
-The Elder Scrolls VI's fate has been left sort of up to fans' imaginations until now, as Bethesda finally officially addresses where it's at.
----------
-
-# New Fallout Game's Release Date Might Be Closer Than We Thought
-
-Gaming, Fallout, Triple-A Games, PC
-
-Sat, 18 Jul 2026 15:01:16 GMT
-
-https://screenrant.com/fallout-obsidian-development-update-release/
-
-Following the major news of a new Fallout game from Obsidian Entertainment, a new report suggests that it could be coming sooner than expected.
----------
-
-# Netflix's 5-Part Sci-Fi Series Had A Near-Perfect First Season
-
-Streaming TV, Masked Recs
-
-Sat, 18 Jul 2026 15:00:12 GMT
-
-https://screenrant.com/stranger-things-near-perfect-first-season/
-
-This iconic sci-fi-horror series is Netflix's biggest show to date, and it wouldn't have been possible without its spectacular first season.
----------
-
-# Demon Slayer X Berserk Crossover Teased
-
-Gaming, Dead by Daylight
-
-Sat, 18 Jul 2026 15:00:12 GMT
-
-https://screenrant.com/dead-by-daylight-potential-anime-crossovers/
-
-Some of the most popular anime of all time are currently in talks of coming together for a massive crossover that we never saw coming.
----------
-
-# New Epic Fantasy Movie Based On Disney's Greatest Classics Magically Climbs To #1 On Streaming Charts
-
-Movies, Descendants: Wicked Wonderland
-
-Sat, 18 Jul 2026 14:55:44 GMT
-
-https://screenrant.com/disney-descendants-wicked-wonderland-july-2026-streaming-charts/
-
-Disney's new fantasy movie officially debuts at #1 on streaming charts, showcasing the franchise's enduring popularity and creative expansion.
----------
-
-# 6 Ways Steven Spielberg Has Changed The Film Industry Forever
-
-Movies, Steven Spielberg
-
-Sat, 18 Jul 2026 14:45:11 GMT
-
-https://screenrant.com/steven-spielberg-changed-film-industry-forever/
-
-One of the most influential figures in Hollywood, Spielberg has shaped modern filmmaking and movie-going habits over the past fifty-plus years.
----------
-
-# Alan Ritchson's #1 Sci-Fi Thriller On Netflix Is Reacher Turned Up To 11
-
-Movies, Masked Recs
-
-Sat, 18 Jul 2026 14:30:12 GMT
-
-https://screenrant.com/alan-ritchson-war-machine-netflix-reacher-bigger/
-
-Alan Ritchson stars in a science fiction thriller on Netflix that has been a huge hit for the service and is a throwback to '80s action movies.
----------
-
-# 5 Masterpiece Isekai Anime With the Best Power Systems
-
-Anime, Re:Zero -Starting Life in Another World-, That Time I Got Reincarnated as a Slime
-
-Sat, 18 Jul 2026 15:15:16 GMT
-
-https://www.cbr.com/masterpiece-isekai-anime-best-power-systems/
-
-The best isekai anime are built on more than imaginative worlds, and these masterpieces prove it with exceptional power systems.
----------
-
-# Disney Lines Up New Live-Action Adaptation of $271M Hit Animated Film With Colman Domingo
-
-Movies, The Princess and the Frog, Disney, colman domingo
-
-Sat, 18 Jul 2026 15:06:18 GMT
-
-https://www.cbr.com/disney-new-live-action-the-princess-and-the-frog-colman-domingo/
-
-Even with Moana flopping, Disney is pushing ahead with more live-action remakes.
----------
-
-# Netflix's 95-Minute Fantasy Masterpiece Is Officially 1 of the Biggest Movies of 2026 Despite Earlier Release
-
-Movies, KPop Demon Hunters, Fantasy, Netflix
-
-Sat, 18 Jul 2026 15:00:15 GMT
-
-https://www.cbr.com/kpop-demon-hunters-biggest-netflix-movies-2026/
-
-A 2025 movie remains one of Netflix's biggest movies of 2026.
----------
-
-# 12 Strongest Gods of Destruction in Dragon Ball, Ranked By Power
-
-Anime, Dragon Ball, Dragon Ball Super
-
-Sat, 18 Jul 2026 15:00:15 GMT
-
-https://www.cbr.com/dragon-ball-strongest-gods-of-destruction-ranked/
-
-The Gods of Destruction in the Dragon Ball universe are some of the strongest entities in the franchise, and some are much stronger than the others.
----------
-
-# It's Official: The Elder Scrolls VI Is Finally Confirmed
-
-Games, The Elder Scrolls
-
-Sat, 18 Jul 2026 14:00:15 GMT
-
-https://www.cbr.com/elder-scrolls-6-officially-confirmed/
-
-15 years after the release of Skyrim, Bethesda has officially confirmed The Elder Scrolls VI.
----------
-
-# 'Yellowstone's Best Sequel Officially Replaces Beth Dutton After the Shocking Season 1 Finale
-
-TV Features, Dutton Ranch, Kelly Reilly, Cole Hauser, Paramount Plus
-
-Sat, 18 Jul 2026 15:23:15 GMT
-
-https://collider.com/dutton-ranch-season-1-finale-oreana-beth-dutton-replacement/
-
-Dutton Ranch Season 1's shocking finale officially sets up another character as the Yellowstone franchise's replacement for Beth.
----------
-
-# Peacock Officially Confirms Its Biggest Scripted Launch of All Time Is This 8-Part Series
-
-TV Features, The Five-Star Weekend, Peacock, Series, Streaming
-
-Sat, 18 Jul 2026 15:14:15 GMT
-
-https://collider.com/peacock-the-five-star-weekend-biggest-scripted-launch/
-
-Peacock confirms Jennifer Garner’s The Five-Star Weekend is the streamer’s biggest original scripted launch ever.
----------
-
-# Taylor Sheridan’s Hit Spy Thriller Returns With Its Deadliest Mission Yet
-
-TV News, Taylor Sheridan, Lioness, Zoe Saldana, Paramount Plus
-
-Sat, 18 Jul 2026 14:45:15 GMT
-
-https://collider.com/lioness-season-3-paramount-plus-release-date/
-
-Taylor Sheridan’s Lioness officially returns for Season 3 in 2 weeks, with Zoe Saldaña and Nicole Kidman facing a dangerous new mission.
----------
-
-# 'Interstellar' Ending, Explained
-
-Features, Interstellar
-
-Sat, 18 Jul 2026 15:00:13 GMT
-
-https://movieweb.com/interstellar-ending-explained/
-
-'Interstellar' is one of Christopher Nolan's most complex movies to date. Here is what the end of the sci-fi epic means.
 ---------
