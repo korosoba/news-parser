@@ -1,3 +1,410 @@
+# Netflix Releases Next Trailer And Key Visual For One Piece's New 2-Part Series
+
+TV, Netflix, One Piece
+
+Mon, 20 Jul 2026 16:50:23 GMT
+
+https://screenrant.com/netflix-lego-one-piece-trailer-poster/
+
+One Piece's latest project is one of its most unusual yet exciting shows, and it just released a pair of thrilling teases ahead of a September debut.
+---------
+
+# It's Official, Robert Downey Jr.'s Doctor Doom Is More Powerful Than Thanos
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
+
+Mon, 20 Jul 2026 16:45:11 GMT
+
+https://screenrant.com/avengers-doomsday-doctor-doom-more-powerful-thanos/
+
+Avengers: Doomsday has unveiled Robert Downey Jr.'s Doctor Doom, with Marvel confirming the villain is more powerful than Thanos in the process.
+---------
+
+# Tangled Live-Action Set Photos Reveal First Look Inside Corona Castle As Filming Nears End
+
+Movies, Tangled
+
+Mon, 20 Jul 2026 16:41:27 GMT
+
+https://screenrant.com/tangled-live-action-set-photos-inside-corona-castle/
+
+Fans are getting an inside look at Tangled's remake, as new set photos display the controversial look at Corona Castle and its kingdom.
+---------
+
+# Avengers: Doomsday Trailer Breakdown: 13 Major Moments And Exciting Reveals
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
+
+Mon, 20 Jul 2026 16:38:47 GMT
+
+https://screenrant.com/avengers-doomsday-trailer-breakdown-major-moments-and-exciting-reveals/
+
+Avengers: Doomsday's first full trailer has finally been released, featuring several major moments and reveals for the upcoming MCU crossover.
+---------
+
+# 4 Years Later, This 3-Word Line Is Still The Most Devastating Quote In Star Wars History
+
+Streaming TV, Star Wars
+
+Mon, 20 Jul 2026 16:30:11 GMT
+
+https://screenrant.com/andor-kino-loy-cant-swim-devastating-star-wars-quote/
+
+In its nearly 50-year history, Star Wars has produced dozens of devastating quotes, but few have had as much of an impact as this recent one.
+---------
+
+# Must-Play Soulslike May Release On Nintendo Hardware Sooner Than We Thought
+
+Gaming, Nintendo Switch 2, Stellar Blade, Triple-A Games
+
+Mon, 20 Jul 2026 16:19:22 GMT
+
+https://screenrant.com/stellar-blade-nintendo-switch-2-release-date-soon/
+
+2026 is an incredibly busy year for gaming, on Nintendo systems especially, and now a must-play soulslike is crowding into the lineup of releases.
+---------
+
+# Avengers: Doomsday’s New Doctor Doom Scene Confirms A Surprising Design Choice
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Mon, 20 Jul 2026 16:15:11 GMT
+
+https://screenrant.com/avengers-doomsday-new-doctor-doom-scene-design-choice/
+
+The new Avengers: Doomsday trailer weighs in on a fan argument that's been ongoing since Doctor Doom was first revealed for the MCU movie.
+---------
+
+# New Free Steam Horror Is The Backrooms With Evil Teletubbies
+
+Gaming, Steam, Triple-A Games
+
+Mon, 20 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/steam-free-horror-backrooms-meets-teletubbies/
+
+As fans wait for the avalanche of AAA games being released later in the year, you can pick something up now for free that will scratch a horror itch.
+---------
+
+# Naruto Fans Won't Want To Miss July 30
+
+Movies, Masked Recs
+
+Mon, 20 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-july-30-naruto-director/
+
+The Naruto franchise will have a lot to offer fans over the next few years, but for now, a July 30th theatrical release can show us what's to come.
+---------
+
+# 7 Masterpiece Anime Fans Can Watch Completely For Free
+
+Anime
+
+Mon, 20 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/masterpiece-anime-watch-free/
+
+The best anime for those on a budget.
+---------
+
+# Kevin Feige Finally Addresses Adam Driver’s X-Men Villain Role
+
+Movies, Marvel, Marvel Comics, MCU, Avengers, Avengers: Doomsday, Avengers: Doomsday (2026), Avengers: Secret Wars
+
+Mon, 20 Jul 2026 16:39:01 GMT
+
+https://www.cbr.com/kevin-feige-marvel-finally-addresses-adam-drivers-x-men-villain-role/
+
+Marvel has finally broken their silence on the chaotic Adam Driver rumors.
+---------
+
+# Riverdale Officially Returns With Horror Follow-Up on Disney+
+
+TV, Afterlife With Archie, Disney+, Archie Comics Publications
+
+Mon, 20 Jul 2026 16:29:55 GMT
+
+https://www.cbr.com/afterlife-with-archie-disney-plus-series-order/
+
+Riverdale is returning with an undead twist.
+---------
+
+# Sauron Officially Returns in First Look at New Lord of the Rings 2026 Release
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Prime Video
+
+Mon, 20 Jul 2026 16:28:01 GMT
+
+https://www.cbr.com/the-lord-of-the-rings-the-rings-of-power-season-3-sauron-one-ring/
+
+The big bad of Middle-earth returns in 2026.
+---------
+
+# Star Wars' 100% RT Anti-Boba Fett Show Beats Lucasfilm at Its Own Game
+
+TV, Star Wars, Star Wars: Maul - Shadow Lord, Sci-Fi, Disney+
+
+Mon, 20 Jul 2026 16:20:15 GMT
+
+https://www.cbr.com/star-wars-maul-shadow-lord-better-than-book-of-boba-fett/
+
+Lucasfilm has had its hits and misses in recent years, but its latest Star Wars show proves the franchise finally got this key story right.
+---------
+
+# 10 Strongest Fusion Characters in Dragon Ball, Officially Ranked
+
+Anime, Dragon Ball, Akira Toriyama, shonen anime
+
+Mon, 20 Jul 2026 16:15:15 GMT
+
+https://www.cbr.com/strongest-dragon-ball-fusion-characters/
+
+Fusion is one of Dragon Ball's most powerful techniques, but some individuals are able to push it further than others and dominate on the battlefield.
+---------
+
+# DCU Star's New 87-Minute Cyberpunk Sci-Fi Thriller Unveils New Explosive Clip Ahead of Release
+
+CBR Exclusives, frank grillo
+
+Mon, 20 Jul 2026 16:01:15 GMT
+
+https://www.cbr.com/frank-grillo-kill-code-clip-digital-release-july-2026/
+
+Exclusive: Ahead of Man of Tomorrow return, one DCU star has an action-packed cyberthriller on the way.
+---------
+
+# 5 Greatest Sci-Fi Movie Trilogies Of All Time, Ranked
+
+Movies, Sci-Fi, Jurassic Park, Planet of the Apes, Back to the Future, Star Wars, Avatar
+
+Mon, 20 Jul 2026 16:01:15 GMT
+
+https://www.cbr.com/best-sci-fi-movie-trilogies-ranked-list/
+
+The sci-fi genre has included some of the most successful, acclaimed, and revolutionary movie trilogies in cinema history.
+---------
+
+# After 7 Years, Kevin Feige Seals the Fate of Mahershala Ali's MCU Blade Reboot
+
+Movies, Blade, Marvel Cinematic Universe
+
+Mon, 20 Jul 2026 15:49:36 GMT
+
+https://www.cbr.com/mcu-blade-reboot-fate-kevin-feige/
+
+Marvel Studios president Kevin Feige addresses the fate of Mahershala Ali's Blade reboot seven years after its announcement.
+---------
+
+# Sadie Sink Reveals Her Spider-Man Origin Story
+
+Movies, Spider-Man: Brand New Day
+
+Mon, 20 Jul 2026 15:33:55 GMT
+
+https://www.cbr.com/video/sadie-sink-reveals-her-spider-man-origin-story/
+
+Spider-Man: Brand New Day actor Sadie Sink opens up about joining the Marvel Cinematic Universe, her first Spider-Man movie experience, and the online speculation surrounding her role.
+---------
+
+# Hello Kitty, Cinnamoroll & More Are Finally Coming to Disney+ on August 4
+
+Anime, Hello Kitty, Disney+, Cocomelon, sanrio
+
+Mon, 20 Jul 2026 15:32:48 GMT
+
+https://www.cbr.com/cocomelon-playdates-with-sanrio-friends-disney-release-date/
+
+Hello Kitty and her fellow Sanrio mascot characters are officially making their way to Disney+ in one of the most unexpected crossover cartoons.
+---------
+
+# Vin Diesel's $7 Billion Action Franchise Is Now the #1 Biggest Series on Streaming
+
+Movie News, Fast and Furious, Vin Diesel, HBO Max, Fast & Furious
+
+Mon, 20 Jul 2026 16:46:14 GMT
+
+https://collider.com/vin-diesel-fast-and-furious-franchise-streaming-success-hbo-max-july-2026/
+
+The adrenaline-fueled Fast and Furious franchise, starring Vin Diesel and Jason Statham, is enchanting global audiences on streaming.
+---------
+
+# Netflix's Iconic '80s Sitcom Reboot Gets Official First Look
+
+TV News, a different world, Netflix, Sitcom, Maleah Joi Moon
+
+Mon, 20 Jul 2026 16:20:34 GMT
+
+https://collider.com/netflix-a-different-world-reboot-first-look-release-date/
+
+See the first images from Netflix’s A Different World revival, introducing Hillman’s new class before the 10-episode series premieres this fall.
+---------
+
+# ‘Riverdale’ Meets ‘The Walking Dead’ in Disney+’s New Archie Series
+
+TV News, Archie Comics, Roberto Aguirre-Sacasa, Greg Berlanti, Disney+
+
+Mon, 20 Jul 2026 16:20:32 GMT
+
+https://collider.com/riverdale-afterlife-with-archie-disney-plus-series-halloween-2027/
+
+Afterlife With Archie is becoming a live-action Disney+ series from Riverdale's Roberto Aguirre-Sacasa and Greg Berlanti, debuting Halloween 2027.
+---------
+
+# Forget Indiana Jones, Tom Hanks' Globe-Trotting Adventure Is Winning Over Global Audiences
+
+Movie News, Tom Hanks, The Da Vinci Code, Ron Howard, HBO Max
+
+Mon, 20 Jul 2026 16:16:14 GMT
+
+https://collider.com/tom-hanks-the-da-vinci-code-streaming-success-hbo-max-july-2026/
+
+The Da Vinci Code, starring Tom Hanks and Paul Bettany, is making a comeback on HBO Max's global top 10 list. Read on for more.
+---------
+
+# 7 Comics To Read Before 'Spider-Man: Brand New Day'
+
+Books and Comics, Spider-Man: Brand New Day, Spider-Man, Marvel, MCU
+
+Mon, 20 Jul 2026 16:11:14 GMT
+
+https://collider.com/spider-man-brand-new-day-comics-to-read/
+
+Tom Holland's Peter Parker will be back in theaters soon, so you should definitely read these comics before Spider-Man: No Way Home releases.
+---------
+
+# Rebel Wilson’s Directorial Debut Officially Sets U.S. Release Date With New Look [Exclusive]
+
+Movie News, Rebel Wilson, The Deb, Pitch Perfect, Comedy
+
+Mon, 20 Jul 2026 16:00:14 GMT
+
+https://collider.com/rebel-wilson-directorial-debut-the-deb-key-art-vod-release-date-august-2026/
+
+Vertigo Releasing has shared the first key art for Rebel Wilson's directorial debut, The Debt, confirming that the film will be released on August 25.
+---------
+
+# 'Chronicles of Narnia' and 'Mortal Kombat' Stars Unite for Epic 19th-Century Historical Drama [Exclusive]
+
+Exclusives, Poppy Drayton, Ludi Lin, Drama, Rupert Graves
+
+Mon, 20 Jul 2026 16:00:14 GMT
+
+https://collider.com/hudson-and-maria-historical-drama-cast-william-moseley-poppy-drayton-ludi-lin/
+
+The inspirational biopic Hudson & Maria has unveiled its cast, with Chronicles of Narnia star William Moseley playing a legendary missionary.
+---------
+
+# Prime Video Officially Returns to Middle-earth With ‘The Rings of Power’ Season 3 Reveal
+
+TV News, The Lord of the Rings: The Rings of Power, Prime Video, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum
+
+Mon, 20 Jul 2026 15:49:16 GMT
+
+https://collider.com/the-rings-of-power-season-3-new-images-sauron-gandalf/
+
+See the new images from The Rings of Power Season 3, teasing Sauron’s rise, Gandalf’s transformation and the coming war for Middle-earth.
+---------
+
+# Jake Gyllenhaal's 2024 Action Smash Is One of Streaming's Best Late-Night Watches
+
+Movie News, Jake Gyllenhaal, Road House, Doug Liman, Prime Video
+
+Mon, 20 Jul 2026 15:45:05 GMT
+
+https://collider.com/jake-gyllenhaal-road-house-streaming-success-prime-video-july-2026/
+
+Jake Gyllenhaal stars in the high-octane remake of Road House, which has become a streaming hit with a sequel on the way. Find out more here.
+---------
+
+# Avengers: Doomsday Is Already Off to a Bad Start With the X-Men
+
+Movie Features, Avengers: Doomsday, X-Men, Marvel, Robert Downey Jr
+
+Mon, 20 Jul 2026 15:42:39 GMT
+
+https://collider.com/avengers-doomsday-not-x-men-movie-fans-want/
+
+Avengers: Doomsday looks to be a solid Marvel venture, but fans are still waiting for the X-Men to return in their own franchise film.
+---------
+
+# Marvel Studios Officially Addresses Fate of Long-Awaited 'Blade' Movie
+
+Movie News, Mahershala Ali, Blade
+
+Mon, 20 Jul 2026 16:20:54 GMT
+
+https://movieweb.com/marvel-studios-blade-movie-failure-kevin-feige/
+
+The 'Blade' film starring Mahershala Ali has suffered some repeated, prolonged delays.
+---------
+
+# Marvel Officially Replaces Tony Stark After 7 Years
+
+Features, Avengers: Doomsday (2026), Marvel Cinematic Universe
+
+Mon, 20 Jul 2026 16:10:12 GMT
+
+https://movieweb.com/avengers-doomsday-trailer-thor-leader/
+
+The Avengers have lacked leadership since 'Endgame' in 2019, but 'Doomsday' is finally fixing that. Read on for more.
+---------
+
+# Alan Ritchson Makes Major 'Reacher' Announcement as Series Officially Reaches Key Milestone
+
+TV News, Alan Ritchson, Reacher, Prime Video
+
+Mon, 20 Jul 2026 16:04:27 GMT
+
+https://movieweb.com/alan-ritchson-reacher-season-5-filming/
+
+This is good news for fans who want to see new episodes of 'Reacher' every year.
+---------
+
+# Jason Statham's 103-Minute Brutal Action Hit Scores Big on Free Streaming
+
+Movie News, The Expendables
+
+Mon, 20 Jul 2026 16:00:12 GMT
+
+https://movieweb.com/the-expendables-jason-statham-action-stream-free-pluto-july-2026/
+
+Jason Statham's most iconic action hit, 'The Expendables,' is gaining a second life on free streaming.
+---------
+
+# 'Avengers: Doomsday' Fixes Thor's Big 'Infinity War' Mistake
+
+Features, Avengers: Doomsday, Avengers: Infinity War, Marvel Cinematic Universe
+
+Mon, 20 Jul 2026 15:46:57 GMT
+
+https://movieweb.com/avengers-doomsday-fixes-thor-infinity-war-mistake/
+
+The new trailer for 'Avengers: Doomsday' pits Thor against Doctor Doom, and it sees him fixing an 'Infinity War' mistake too late.
+---------
+
+# Christopher Nolan Confirms Long Wait for Next Movie After 'The Odyssey'
+
+Movie News, The Odyssey, Christopher Nolan
+
+Mon, 20 Jul 2026 15:38:17 GMT
+
+https://movieweb.com/christopher-nolan-the-odyssey-3-years-next-movie/
+
+The Oscar-winning director says making 'The Odyssey' pushed him and his crew to their limits.
+---------
+
+# 27 Years Later, Johnny Depp's R-Rated Adaptation of Gothic Classic Sets New Release
+
+Movie News, Sleepy Hollow, Johnny Depp, Tim Burton, Horror
+
+Mon, 20 Jul 2026 15:35:43 GMT
+
+https://movieweb.com/johnny-depp-sleepy-hollow-4k-blu-ray-release/
+
+Tim Burton and Johnny Depp's cult gothic horror classic 'Sleepy Hollow' is getting a new 4K Blu-ray steelbook release.
+---------
+
 # King Of The Hill Season 15 Debuts To Rare Rotten Tomatoes Score
 
 TV, King of the Hill, King of the Hill - Season 15
@@ -5089,411 +5496,4 @@ Sat, 18 Jul 2026 23:36:14 GMT
 https://collider.com/twin-peaks-david-lynch-supernatural-horror-streaming-free/
 
 David Lynch's barrier-breaking, trailblazing, and trendsetting series, Twin Peaks, is now streaming for free on Pluto TV.
----------
-
-# 'For All Mankind' Star's Failed Sci-Fi Action Reboot Is Being Cut From Streaming
-
-Movie News, RoboCop, Joel Kinnaman, Peacock, Sci-Fi
-
-Sat, 18 Jul 2026 23:30:14 GMT
-
-https://collider.com/joel-kinnaman-sci-fi-reboot-robocop-leaving-peacock-august-2026/
-
-The 2014 RoboCop reboot, starring Joel Kinnaman and a star-studded supporting cast, is about to be removed from Peacock. Find out when.
----------
-
-# Tracy Spiridakos' First Series Since 'Chicago P.D.' Arrives in Less Than a Month
-
-TV News, Tracy Spiridakos, Chicago P.D., USA Network, Drama
-
-Sat, 18 Jul 2026 23:15:15 GMT
-
-https://collider.com/tracy-spiridakos-anna-pigeon-august-7-premiere-date-usa-network/
-
-After leaving Chicago P.D., Tracy Spiridakos leads the cast of USA Network's upcoming mystery series. Get all the details here.
----------
-
-# Jennifer Garner's New Series Is Officially a Summer Streaming Smash
-
-TV News, The Five-Star Weekend, Jennifer Garner, Peacock, Rotten Tomatoes
-
-Sat, 18 Jul 2026 23:00:15 GMT
-
-https://collider.com/jennifer-garner-the-five-star-weekend-streaming-success-apple-tv-july-2026/
-
-Jennifer Garner's latest drama, The Five-Star Weekend, is becoming one of the summer's most popular streaming shows, topping charts worldwide.
----------
-
-# 5 Michelle Pfeiffer Movies That Are Perfect From Start to Finish
-
-Movie, Michelle Pfeiffer, Scarface, Batman Returns, The Age of Innocence
-
-Sat, 18 Jul 2026 22:51:14 GMT
-
-https://collider.com/best-michelle-pfeiffer-movies-perfect/
-
-From The Age of Innocence to Batman Returns, Michelle Pfeiffer delivered unforgettable performances that defined Hollywood classics.
----------
-
-# The Horror Movie That Proved Critics Wrong Officially Finds a New Streaming Home on Netflix
-
-Movie News, Horror, Netflix, Five Nights at Freddy's 2, Matthew Lillard
-
-Sat, 18 Jul 2026 22:45:15 GMT
-
-https://collider.com/five-nights-at-freddys-2-streaming-netflix-august-2026/
-
-One of the most divisive horror video game adaptations is coming to Netflix. Here's everything to know about Five Nights at Freddy's 2.
----------
-
-# 19 Years Later, One Classic 2000s Anime Has Held Up Better than Any Other from Its Era
-
-Anime, Masked Recs
-
-Sat, 18 Jul 2026 22:30:11 GMT
-
-https://screenrant.com/clannad-2000s-anime-aged-perfectly/
-
-Discover why Clannad, a 2000s anime hit, has stood the test of time, offering a unique and poignant story that remains relevant today.
----------
-
-# The Walking Dead Is Changing Formats At The Perfect Time
-
-Streaming TV, Masked Recs
-
-Sat, 18 Jul 2026 22:30:11 GMT
-
-https://screenrant.com/the-walking-dead-daryl-dixon-change-formats-good-timing/
-
-TWD is no stranger to reinventing itself, and its latest reworking of the franchise formula arrives at a time when it's never been more necessary.
----------
-
-# Halo: Parasite's Wake Will Officially See The Flood Return
-
-Gaming, Halo: Campaign Evolved, Triple-A Games, PC
-
-Sat, 18 Jul 2026 22:30:11 GMT
-
-https://screenrant.com/halo-parasites-wake-the-flood-return/
-
-Campaign Evolved is bringing back one of the series' most iconic villains, but we're getting an even bigger deep dive with this new release.
----------
-
-# X-Men '97's Winter Soldier Easter Egg Has Marvel Fans Excited
-
-TV, X-Men '97
-
-Sat, 18 Jul 2026 22:25:23 GMT
-
-https://screenrant.com/x-men-97-winter-soldier-easter-egg-marvel-fans-deeper-connection/
-
-X-Men '97 season 2 has already dropped several Easter eggs, and one of the most recent ones involves the Winter Soldier's complicated history.
----------
-
-# Lost Meets Jurassic Park In Netflix's 3-Part Sci-Fi Series
-
-Classic TV, Masked Recs
-
-Sat, 18 Jul 2026 22:23:11 GMT
-
-https://screenrant.com/la-brea-sci-fi-series-lost-meets-jurassic-park/
-
-An intriguing mystery box filled with dinosaurs sounds too good to be true, but one hidden Netflix gem is 3 gripping seasons of exactly that.
----------
-
-# Assassin's Creed: Black Flag's Historical Figures & Real-Life Characters
-
-Gaming, Assassin's Creed Black Flag Resynced, Assassin's Creed, PC
-
-Sat, 18 Jul 2026 22:00:12 GMT
-
-https://screenrant.com/assassins-creed-black-flag-historical-figures-real-people/
-
-Assassin's Creed: Black Flag features quite a few pirate characters based on real-life historical figures. Who are they, and what made them so famous?
----------
-
-# 5 Star Wars Ship Designs That Are 10/10 Perfect
-
-Movies, Star Wars
-
-Sat, 18 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/best-star-wars-ship-designs-perfect/
-
-Do you agree with our picks?
----------
-
-# 20 Years Later, Dexter Has Its Best Cast Yet
-
-Streaming TV, Dexter
-
-Sat, 18 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/dexter-resurrection-season-2-best-cast/
-
-Dexter is a great crime show with an uneven success rate, but the cast of Dexter: Resurrection is good enough to warrant the show getting more acclaim
----------
-
-# Paramount+'s Near-Perfect 8-Season Drama Series Officially Ends in Just 1 Week
-
-TV, The Chi
-
-Sat, 18 Jul 2026 22:30:15 GMT
-
-https://www.cbr.com/the-chi-series-finale-paramount-plus-july-2026/
-
-Fans are finally less than a week away from the finale of one of the most critically-acclaimed drama series of the past decade.
----------
-
-# The Odyssey's Jon Bernthal Says Lupita Nyong'o Was the Perfect Helen of Troy: 'So Glad It Was Her'
-
-Movies, The Odyssey
-
-Sat, 18 Jul 2026 22:14:02 GMT
-
-https://www.cbr.com/jon-bernthal-praise-the-odyssey-helen-of-troy-casting/
-
-Jon Bernthal explains why "no one else in the world" would have been better cast as Helen of Troy in The Odyssey.
----------
-
-# Batman: Mask of the Phantasm Is Better Than The Dark Knight
-
-Movies, Batman: Mask of the Phantasm, The Dark Knight, Batman
-
-Sat, 18 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/batman-mask-of-the-phantasm-better-than-the-dark-knight/
-
-This forgotten Batman masterpiece is an even better movie than Christopher Nolan's legendary The Dark Knight.
----------
-
-# JoJo's Bizarre Adventure: Steel Ball Run Officially Tops 2026's Biggest Anime in New Top 10 Ranking
-
-Anime, Jojo's Bizarre Adventure
-
-Sat, 18 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/jojos-bizarre-adventure-steel-ball-run-filmmarks-streaming-ranking/
-
-JoJo's Bizarre Adventure: Steel Ball Run tops Japan's Spring 2026 anime rankings despite strong criticism over its release schedule.
----------
-
-# 5 Years Later, Tom Hanks' WWII Thriller Is Still Dominating Late-Night Streaming
-
-Movie News, Greyhound, Tom Hanks, Apple TV, Stephen Graham
-
-Sat, 18 Jul 2026 22:30:15 GMT
-
-https://collider.com/tom-hanks-ww2-greyhound-streaming-success-apple-tv-july-2026/
-
-Greyhound, the Tom Hanks WW2 naval thriller that changed the streaming world, is still a #1 fan-favorite on Apple TV.
----------
-
-# 'John Wick' Meets 'Die Hard' in the Action Masterpiece Escaping Free Streaming
-
-Movie News, Hard Boiled, Die Hard, John Wick, Tubi
-
-Sat, 18 Jul 2026 22:15:15 GMT
-
-https://collider.com/hard-boiled-leaving-free-streaming-tubi-august-2026/
-
-Don't miss the iconic John Woo action masterpiece Hard Boiled, starring Chow Yun-fat and free to stream until the end of this month.
----------
-
-# 10 Great HBO Shows That Are Actually Worth the Hype
-
-TV, HBO, The Sopranos, Curb Your Enthusiasm, Succession
-
-Sat, 18 Jul 2026 22:08:14 GMT
-
-https://collider.com/hbo-shows-worth-the-hype/
-
-The Sopranos, Succession, Curb Your Enthusiasm, and Band of Brothers are among the great HBO shows you might have skipped but are worth the hype.
----------
-
-# 3 Great Movie Trilogies That Give The Lord of the Rings a Run for Its Money
-
-Movie, The Lord of the Rings, Star Wars: Episode IV - A New Hope, The Godfather, Before Sunrise
-
-Sat, 18 Jul 2026 22:05:14 GMT
-
-https://collider.com/best-movie-trilogies-as-good-as-the-lord-of-the-rings/
-
-The Lord of the Rings is an undisputed cinematic masterpiece, but movie trilogies like The Godfather and Star Wars give it a run for its money.
----------
-
-# The Most Anticipated Video Game of All Time Officially Arrives in 4 Months
-
-Gaming News, Grand Theft Auto, GTA 5, Rockstar Games, GTA V
-
-Sat, 18 Jul 2026 22:00:14 GMT
-
-https://collider.com/video-game-grand-theft-auto-6-release-date-november-19-2026/
-
-Grand Theft Auto 6, which could easily become the highest-selling video game in history, officially releases in just four months.
----------
-
-# Netflix Already Has the Perfect 'Heartstopper' Replacement After the 'Forever' Movie
-
-Books and Comics, Heartstopper, Netflix, Books, Drama
-
-Sat, 18 Jul 2026 21:47:15 GMT
-
-https://collider.com/radio-silence-alice-oseman-heartstopper-replacement-netflix/
-
-After Heartstopper's conclusion, Netflix should adapt Alice Oseman's Radio Silence next, a touching story set in the same universe.
----------
-
-# 8 Near-Perfect 'Yellowstone' Replacements No One Talks About
-
-TV Lists, Taylor Sheridan, Yellowstone, Dark Winds
-
-Sat, 18 Jul 2026 22:30:12 GMT
-
-https://movieweb.com/yellowstone-tv-replacements-underrated/
-
-Some fresh picks for 'Yellowstone' fans!
----------
-
-# Tom Hardy's Netflix Thriller Is the Most Underrated Action Movie of the Decade
-
-Features, Tom Hardy, Havoc, Thriller, Netflix
-
-Sat, 18 Jul 2026 22:15:12 GMT
-
-https://movieweb.com/tom-hardy-havoc-netflix-thriller-underrated/
-
-Forget about 'John Wick'; Tom Hardy's one-man-army action blitz in Netflix's thriller is an exhilarating experience.
----------
-
-# Netflix’s Most Underrated Thriller Still Has One of the Best Casts
-
-Features, Bloodline, Netflix
-
-Sat, 18 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/bloodline-underrated-netflix-thriller-best-cast/
-
-Netflix has released some popular TV thrillers, and this one has an incredible cast of talented and famous actors.
----------
-
-# Michael Fassbender's Alien Android Finds His Match In Hulu's 8-Part Sci-Fi Series
-
-Streaming TV, Masked Recs
-
-Sat, 18 Jul 2026 21:30:11 GMT
-
-https://screenrant.com/alien-earth-kirsh-vs-david-prometheus-android/
-
-Kirsh, Timothy Olyphant's cunning android character from Alien: Earth, would've figured out David's nefarious intentions 20 minutes into Prometheus.
----------
-
-# GTA Online Is Free For Another 48 Hours
-
-Gaming, Grand Theft Auto Online, Triple-A Games
-
-Sat, 18 Jul 2026 21:30:11 GMT
-
-https://screenrant.com/gta-online-free-july-2026/
-
-Grand Theft Auto Online's new update launch has coincided with a free trial for the game, but fans don't have a whole lot longer to capitalize on it.
----------
-
-# Big Brother 28: Week 2 Power of Veto Results (SPOILERS)
-
-Reality TV, Big Brother
-
-Sat, 18 Jul 2026 21:21:33 GMT
-
-https://screenrant.com/big-brother-28-week-2-power-of-veto-results-spoilers/
-
-Find out who the week 2 Power of Veto winner is ahead of Big Brother 28 and after new nominations for eviction were made, setting the stage for chaos.
----------
-
-# Forget The Odyssey, Disney’s Mythology Fantasy Epic Will Never Be Topped
-
-Movies, The Odyssey, Hercules
-
-Sat, 18 Jul 2026 21:15:11 GMT
-
-https://screenrant.com/disney-hercules-the-odyssey-never-topped/
-
-Conversations about The Odyssey are understandably everywhere right now, but this 1997 Disney movie, also centered on mythology, shouldn't be ignored.
----------
-
-# Grant Gustin's DCEU Crossover Is The Arrowverse Ending Fans Deserved
-
-Classic TV, Masked Recs
-
-Sat, 18 Jul 2026 21:15:11 GMT
-
-https://screenrant.com/grant-gustin-dceu-crossover-crisis-arrowverse-ending/
-
-Grant Gustin's Flash got the perfect ending when he passed on the torch to the next Barry Allen in the Arrowverse's "Crisis on Infinite Earths."
----------
-
-# Scrubs Season 2 Revival Officially Begins Filming With First Set Photo Unveiled
-
-TV, Scrubs
-
-Sat, 18 Jul 2026 21:14:48 GMT
-
-https://screenrant.com/scrubs-season-2-filming-update-set-photos/
-
-The first set photo for the sophomore season of the Scrubs reboot has officially been unveiled, proving that production is in progress.
----------
-
-# Six Years Later, This 10/10 Classic Is Still Netflix's Most Watched Series in 2026
-
-Anime, Netflix, Masked Recs
-
-Sat, 18 Jul 2026 21:03:37 GMT
-
-https://screenrant.com/true-beauty-netflix-most-watched-series/
-
-Netflix just revealed its most-streamed shows of 2026 so far, and one K-drama is still dominating the rankings years later.
----------
-
-# 7 Years Later, Tommy Shelby's Best Peaky Blinders Line Reveals His Biggest Mistake
-
-Streaming TV, Peaky Blinders
-
-Sat, 18 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/peaky-blinders-best-tommy-shelby-line-mistake/
-
-Tommy Shelby is one of the most memorable anti-heroes in the gangster genre, and his best Peaky Blinders line reveals his fatal flaw.
----------
-
-# Dishonored Official Return Confirmed For 2026
-
-Gaming, Dishonored, Dishonored 2, dishonored 3, PC
-
-Sat, 18 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/dishonored-official-return-2026-launch/
-
-Dishonored remains one of the greatest immersive stealth sim games of all time, and it's officially making an epic return later this year.
----------
-
-# 1 Star Trek Novel Detail Completely Erases The Original Series
-
-TV, Star Trek
-
-Sat, 18 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/star-trek-tmp-novel-detail-tos-change/
-
-One of the weirdest Star Trek novels features a small detail that completely rewrites the history of The Original Series in the franchise canon.
----------
-
-# 10 Naruto Techniques That Are Honestly Overpowered Plot Devices
-
-Anime, Naruto, Naruto: Shippuden
-
-Sat, 18 Jul 2026 21:15:15 GMT
-
-https://www.cbr.com/overpowered-naruto-techniques-as-plot-devices/
-
-Naruto's world is full of incredible abilities, but some techniques exceed power levels, becoming solutions to problems that should be unsolvable.
 ---------
