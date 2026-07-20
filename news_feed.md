@@ -1,3 +1,410 @@
+# Game Of Thrones Meets Yellowstone In FX's 7-Part Crime Drama Series
+
+Classic TV, Masked Recs
+
+Mon, 20 Jul 2026 18:30:11 GMT
+
+https://screenrant.com/sons-of-anarchy-game-of-thrones-meets-yellowstone/
+
+FX's best crime drama series takes the best parts of Game of Thrones and Yellowstone, and like the latter, it also features Taylor Sheridan.
+---------
+
+# 10 Movies To Watch If You Love Constantine
+
+Movies, Constantine, End of Days, Angel Heart, The Ninth Gate, Dogma, Legion, Stigmata, Blade, Van Helsing, The Devil's Advocate, The Prophecy
+
+Mon, 20 Jul 2026 18:30:11 GMT
+
+https://screenrant.com/movies-like-constantine-2005/
+
+There aren't many movies quite like Constantine, though some titles remain worthy watches if you're a fan of Keanu Reeves' iconic character.
+---------
+
+# Avengers: Doomsday's Trailer Seemingly Confirms Biggest Loki Theory
+
+Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Mon, 20 Jul 2026 18:16:02 GMT
+
+https://screenrant.com/avengers-doomsday-loki-steve-rogers-theory-tease/
+
+Marvel's Avengers: Doomsday trailer brings back Tom Hiddleston's Loki, seemingly confirming the biggest theory related to the character's return.
+---------
+
+# 5 Near-Perfect Shows To Watch On Netflix This Week (July 20–24)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Mon, 20 Jul 2026 18:15:11 GMT
+
+https://screenrant.com/best-netflix-shows-watch-week-july-20/
+
+These 5 near-perfect Netflix shows are worth watching this week. They are all-time greats across various genres that all subscribers should check out.
+---------
+
+# Timothy Olyphant’s Return In Netflix’s Adventures Of Cliff Booth Gets Disappointing New Update
+
+Movies, The Adventures of Cliff Booth, Once Upon a Time in Hollywood, Timothy Olyphant
+
+Mon, 20 Jul 2026 18:04:15 GMT
+
+https://screenrant.com/timothy-olyphant-adventures-of-cliff-booth-role-brief/
+
+Timothy Olyphant is reprising James Stacy in The Adventures of Cliff Booth, and he’s now revealing a disappointing update about his appearance.
+---------
+
+# Spider-Man: Brand New Day Sets Peter Parker's Surrogate Brother After Iron Man's Death
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Mon, 20 Jul 2026 18:01:50 GMT
+
+https://screenrant.com/spider-man-brand-new-day-iron-man-replacement-punisher-jon-bernthal/
+
+EXCLUSIVE: Jon Bernthal, who is bringing the Punisher back to the MCU, shares how the Punisher replaces Iron Man in Spider-Man: Brand New Day.
+---------
+
+# Buffy The Vampire Slayer’s Angel Spinoff Arrives in Just One Month
+
+Comics, Buffy the Vampire Slayer, Buffy The Vampire Slayer
+
+Mon, 20 Jul 2026 17:59:08 GMT
+
+https://screenrant.com/buffy-the-vampire-slayer-angel-spinoff-explained/
+
+Buffy the Vampire Slayer fans are in for a true treat as the countdown to Angel’s official spinoff begins, with the release now just one month away.
+---------
+
+# Bleach Officially Returning With New Characters Designed By Tite Kubo
+
+Gaming, Mobile, Bleach
+
+Mon, 20 Jul 2026 17:58:51 GMT
+
+https://screenrant.com/bleach-mirrors-high-new-characters-tite-kubo/
+
+Bleach is following up on the Thousand-Year Blood War with a new series entry that is debuting a handful of new characters designed by Tite Kubo.
+---------
+
+# Netflix’s Hit Series Untamed Officially Returns With Exciting New Release This October
+
+TV, Untamed
+
+Mon, 20 Jul 2026 17:55:08 GMT
+
+https://screenrant.com/untamed-season-1-dvd-release-date/
+
+Untamed's first season, featuring all six gripping episodes, is set to release on DVD this October, ahead of the highly anticipated second season.
+---------
+
+# 20 Years Later, Kyle Chandler Is Revisiting His Friday Night Lights Role
+
+Streaming TV, Masked Recs
+
+Mon, 20 Jul 2026 17:30:11 GMT
+
+https://screenrant.com/friday-night-lights-kyle-chandler-hal-jordan-lanterns/
+
+Kyle Chandler is best known for playing Coach Taylor in Friday Night Lights, and now the superhero show Lanterns is letting him play a mentor again.
+---------
+
+# Harlan Coben’s New Netflix Project Based on Hit Novel Series Gets Massive Cast Update
+
+TV, Untitled Myron Bolitar Series, Netflix
+
+Mon, 20 Jul 2026 18:29:15 GMT
+
+https://www.cbr.com/harlan-coben-netflix-myron-bolitar-cast-update/
+
+SNL, Bel-Air, Gotham, and Wednesday stars board Netflix's Harlan Coben series.
+---------
+
+# 10 Perfect Gateway Anime for People Who Think They Hate Anime
+
+Anime, Fullmetal Alchemist: Brotherhood, Spy x Family, Odd Taxi
+
+Mon, 20 Jul 2026 18:16:14 GMT
+
+https://www.cbr.com/gateway-anime-for-people-who-hate-anime/
+
+People who think they hate anime all too often start off with the wrong anime, never realizing there are better options.
+---------
+
+# Kevin Feige Admits The Tom Holland Movies 'Avoided' A Key Spider-Man Trait, But Brand New Day Leans Into It
+
+CBR Exclusives, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man: Brand New Day, tom holland
+
+Mon, 20 Jul 2026 18:06:35 GMT
+
+https://www.cbr.com/kevin-feige-admits-tom-holland-avoided-key-spider-man-trait-until-brand-new-day/
+
+One major piece of Spider-Man's canon ability is finally coming to Brand New Day, and it's not the one you think.
+---------
+
+# Confirmed: DC Secretly Has Unreleased Batman Comics From Tony Daniel
+
+Comics, Batman
+
+Mon, 20 Jul 2026 18:00:15 GMT
+
+https://www.cbr.com/unreleased-dc-batman-comic-confirmed-tony-daniel/
+
+There is more Batman on the horizon than we expected.
+---------
+
+# The Legend of Zelda Movie Just Got Its Biggest Sequel Tease Yet
+
+Movies, The Legend of Zelda, Nintendo, Video Games
+
+Mon, 20 Jul 2026 17:30:15 GMT
+
+https://www.cbr.com/the-legend-of-zelda-movie-sequel-tease-nintendo/
+
+A year before it hits theaters, Nintendo is already teasing a sequel to its live-action Legend of Zelda movie.
+---------
+
+# 5 Detective Shows Smarter Than Sherlock
+
+TV, Sherlock, True Detective, Mystery
+
+Mon, 20 Jul 2026 17:30:15 GMT
+
+https://www.cbr.com/detective-shows-smarter-than-sherlock-list/
+
+While many consider the BBC's Sherlock to be the smartest show of its genre, plenty of detective series have a strong edge on it.
+---------
+
+# Netflix's LEGO One Piece Finally Brings the Live-Action Cast Back in Its First Trailer
+
+Anime, One Piece, Netflix, LEGO
+
+Mon, 20 Jul 2026 17:24:13 GMT
+
+https://www.cbr.com/lego-one-piece-first-trailer-netflix/
+
+Netflix's live-action One Piece cast is back in the first trailer for a new LEGO animated special premiering Sept. 29.
+---------
+
+# Paramount's Warner Bros. Takeover Officially Halted by Judge
+
+TV, paramount pictures
+
+Mon, 20 Jul 2026 17:22:06 GMT
+
+https://www.cbr.com/paramount-warner-bros-takeover-restriction-judge/
+
+After 12 states have officially filed a lawsuit against the merger, Paramount just got more bad news.
+---------
+
+# Canon Events: Captain America Proved He Was Worthy While Standing Against His Government
+
+Comics, Canon Events, Captain America, Thor, Marvel
+
+Mon, 20 Jul 2026 17:15:15 GMT
+
+https://www.cbr.com/canon-events-steve-rogers-the-captain-weilds-thor-hammer-mjolnir-first-time/
+
+Steve Rogers' first time wielding Mjolnir was an incredibly iconic comic scene that remains linked to his rightful defiance against the US government.
+---------
+
+# Lord of the Rings Meets Skyrim In New Open-World RPG
+
+Games, Role Playing Game, Video Games, The Elder Scrolls V: Skyrim, The Lord of the Rings
+
+Mon, 20 Jul 2026 17:15:15 GMT
+
+https://www.cbr.com/fatekeeper-lord-of-the-rings-skyrim-hybrid/
+
+A fascinating new open-world RPG is in early access on Steam, and it's got a lot in common with LotR and Skyrim.
+---------
+
+# DC Has Crowned a New Box Office Disaster
+
+Movie News, Supergirl, Superman, DC
+
+Mon, 20 Jul 2026 18:45:14 GMT
+
+https://collider.com/supergirl-worst-dc-box-office-fourth-weekend/
+
+Supergirl has posted the worst fourth weekend in DC cinematic history as its worldwide box office stalls at $121 million.
+---------
+
+# 9 Thrilling Shows To Watch if You Love Harlan Coben's 'I Will Find You'
+
+TV, I Will Find You, Harlan Coben, All Her Fault, His & Hers
+
+Mon, 20 Jul 2026 18:23:14 GMT
+
+https://collider.com/shows-like-harlan-coben-i-will-find-you/
+
+Peacock's All Her Fault, Netflix's The Beast in Me, and HBO's The Undoing are perfect to watch after you finish the Harlan Coben show I Will Find You.
+---------
+
+# One of Netflix’s Best Teen Romances of All Time Ends With a Near-Perfect Movie
+
+Movie News, Heartstopper Forever, Netflix, Romance, Rotten Tomatoes
+
+Mon, 20 Jul 2026 18:16:14 GMT
+
+https://collider.com/netflix-heartstopper-forever-rotten-tomatoes-is-it-good/
+
+Heartstopper Forever, the final chapter of the beloved Netflix series, earns high praise from critics for its emotional, heartwarming conclusion.
+---------
+
+# Minions & Monsters: The Hollywood Dream Turns Dark | Collider BTS
+
+Movie, Minions & Monsters
+
+Mon, 20 Jul 2026 18:16:14 GMT
+
+https://collider.com/video/minions-monsters-the-hollywood-dream-turns-dark-collider-bts/
+
+John Powell breaks down the music behind Minions & Monsters and reveals how he built one of his most intricate animated scores.
+---------
+
+# Guillermo del Toro's 'Frankenstein' Is Returning With a Monster-Sized New Release
+
+Movie News, Guillermo del Toro, Jacob Elordi, Netflix, Frankenstein
+
+Mon, 20 Jul 2026 17:46:14 GMT
+
+https://collider.com/guillermo-del-toro-frankenstein-reborn-cut-blu-ray-4k-release-october-2026/
+
+Guillermo Del Toro's acclaimed horror adaptation Frankenstein is getting a 4K remastered director's cut with extended runtime and bonus content.
+---------
+
+# 'The Vampire Lestat's Delainey Hayles Reveals Which Scene Quietly Changes Everything on a Rewatch
+
+Exclusives, The Vampire Lestat, Interview with the Vampire, Delainey Hayles, AMC
+
+Mon, 20 Jul 2026 17:31:14 GMT
+
+https://collider.com/the-vampire-lestat-episode-7-finale-delainey-hayles-interview/
+
+Delainey Hayles discusses her pivotal scenes in The Vampire Lestat's finale, including which moment changes everything on a rewatch.
+---------
+
+# Agatha Christie's 62% RT Whodunit Returns to Streaming Charts
+
+Movie News, Death on the Nile, Agatha Christie, Kenneth Branagh, Netflix
+
+Mon, 20 Jul 2026 17:15:15 GMT
+
+https://collider.com/agatha-christie-kenneth-branagh-death-on-the-nile-streaming-netflix-july-2026/
+
+Agatha Christie's mystery classic Death on the Nile, starring Kenneth Branagh and Gal Gadot, returns to streaming success on Netflix.
+---------
+
+# 10 Horror Books That Are Perfectly Written
+
+Books and Comics, Horror, Stephen King, Clive Barker, Books
+
+Mon, 20 Jul 2026 17:14:14 GMT
+
+https://collider.com/horror-books-perfectly-written/
+
+The Hellbound Heart by Clive Barker, The Shining by Stephen King, and The Exorcist by William Peter Blatty are perfectly written horror books.
+---------
+
+# The 10 Best Spin-Off Shows of All Time, Ranked
+
+TV, Spin-off, Better Call Saul, The Originals, Angel
+
+Mon, 20 Jul 2026 17:12:14 GMT
+
+https://collider.com/best-spin-off-shows-ranked/
+
+From Angel to The Simpsons, these are the best TV spin-offs that succeed by differentiating from and sometimes exceeding the original series.
+---------
+
+# Gordon Ramsay Smells a Rat in the Midwest in 'Kitchen Nightmares' Season 10 Return [Exclusive]
+
+TV News, Kitchen Nightmares, Gordon Ramsay, Fox, Reality
+
+Mon, 20 Jul 2026 17:00:15 GMT
+
+https://collider.com/kitchen-nightmares-season-10-premiere-sneak-peek-gordon-ramsay/
+
+A new sneak peek at Season 10 of Kitchen Nightmares sees Gordon Ramsay confronting a serial liar with a kitchen that's never cleaned.
+---------
+
+# Megan Fox Returning for Long-Awaited Sequel to Supernatural Cult Classic
+
+Movie News, Jennifer's Body, Megan Fox
+
+Mon, 20 Jul 2026 18:10:32 GMT
+
+https://movieweb.com/megan-fox-jennifers-body-2-sequel-return/
+
+'Jennifer's Body 2' will reportedly film this fall and Fox is expected to return.
+---------
+
+# Paramount Warner Bros. Merger Officially Paused in Latest Major Legal Hurdle
+
+Movie News, Paramount Plus
+
+Mon, 20 Jul 2026 18:05:22 GMT
+
+https://movieweb.com/paramount-warner-bros-merger-blocked/
+
+After a 12-state coalition argued the merger would violate antitrust laws, a judge granted a 14-day restraining order.
+---------
+
+# Netflix's Remake of an Action Thriller Classic Is Officially One of the Biggest Streaming Hits
+
+TV News, Man on Fire, Netflix, Action, Thriller
+
+Mon, 20 Jul 2026 18:01:12 GMT
+
+https://movieweb.com/netflix-man-fire-most-watched-streaming-action/
+
+The series is now one of the biggest streaming smash hits of 2026.
+---------
+
+# All Upcoming Vampire Movies To Sink Your Teeth Into in 2026 and Beyond
+
+Movie Lists, Horror
+
+Mon, 20 Jul 2026 18:01:12 GMT
+
+https://movieweb.com/vampire-movies-to-look-forward-to-in-2026/
+
+From tragic romantics to ruthless predators, there is plenty of vampire action on the way with new vampire movies in 2026 and beyond
+---------
+
+# 'Rings of Power' Season 3 Officially Reveals First Look at Sauron in His Final Form
+
+TV News, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Fantasy
+
+Mon, 20 Jul 2026 17:25:37 GMT
+
+https://movieweb.com/lord-of-the-rings-of-power-season-3-sauron/
+
+Sauron (Charlie Vickers) finally assumes the mantle of the Dark Lord in 'The Lord of the Rings: The Rings of Power' Season 3.
+---------
+
+# 'Avengers: Doomsday': 7 Easter Eggs & Hidden Details In Marvel's New Trailer
+
+Movie Lists, Avengers: Doomsday, MCU's Movie Order (2008 - 2019) - The Infinity Saga (Iron Man - Spider-Man: Far from Home)
+
+Mon, 20 Jul 2026 17:01:12 GMT
+
+https://movieweb.com/avengers-doomsday-trailer-easter-eggs-hidden-details/
+
+The trailer for 'Avengers: Doomsday' has finally be released online, and features plenty of reveals ahead of its December 18, 2026 releaase date.
+---------
+
+# 10 Funniest Far Side Comics That Make Fun of Real People
+
+Movie Lists, The Far Side
+
+Mon, 20 Jul 2026 17:01:12 GMT
+
+https://movieweb.com/best-far-side-real-people/
+
+Gary Larson poked fun at plenty of different subjects, but these particular comic strips chose to target their humor at real people.
+---------
+
 # Netflix Releases Next Trailer And Key Visual For One Piece's New 2-Part Series
 
 TV, Netflix, One Piece
@@ -5089,411 +5496,4 @@ Sun, 19 Jul 2026 00:45:36 GMT
 https://screenrant.com/reacher-neagley-prime-video-spinoff-new-era/
 
 Reacher’s exciting spinoff series is all set to premiere in 2026, and it is hard not to see how it officially ends an era for Maria Sten’s Neagley.
----------
-
-# Dragon Ball Z Meets Invincible In HBO Max's 3-Part Action Series
-
-Streaming TV, Masked Recs
-
-Sun, 19 Jul 2026 00:30:12 GMT
-
-https://screenrant.com/my-adventures-with-superman-hbo-max-dragon-ball-meets-invincible/
-
-My Adventures with Superman on Adult Swim is western animation with the soul of anime, and one of the best superhero shows currently on the air.
----------
-
-# Mysterious God Of War Posts Sparks Major Kratos Casting Speculation
-
-TV, God of War
-
-Sun, 19 Jul 2026 00:18:42 GMT
-
-https://screenrant.com/god-of-war-post-kratos-adam-scherr-casting-speculation/
-
-Several mysterious God of War social media posts on a professional athlete's X account may have revealed who Prime Video's new Kratos is.
----------
-
-# Apple TV's Upcoming Fantasy Adaptation Makes Even Harry Potter Look Small
-
-Streaming TV, The Stormlight Archive, Harry Potter
-
-Sun, 19 Jul 2026 00:15:11 GMT
-
-https://screenrant.com/apple-tv-stormlight-show-makes-harry-potter-look-small/
-
-Apple TV has an upcoming fantasy TV show based on a bestselling book series in the works that will make HBO’s new Harry Potter saga look small.
----------
-
-# 10 Powerful Pokémon Who Could Beat Gojo
-
-Anime, Pokemon, Jujutsu Kaisen
-
-Sun, 19 Jul 2026 01:45:15 GMT
-
-https://www.cbr.com/pokemon-who-could-beat-satoru-gojo/
-
-Satoru Gojo stands at the absolute peak of power in Jujutsu Kaisen, but even he doesn't stand a chance against the most powerful Pokémon.
----------
-
-# 5 LOTR Weapons Stronger Than the One Ring, Ranked
-
-Movies, The Lord of the Rings, Fantasy
-
-Sun, 19 Jul 2026 01:40:15 GMT
-
-https://www.cbr.com/lotr-weapons-stronger-than-the-one-ring-list/
-
-The One Ring was the most dangerous artifact of the Third Age, but some weapons from earlier in Middle-earth's lore were even more powerful.
----------
-
-# 8 Psychological Horror-Thrillers Better Than Obsession
-
-Movies, Obsession, Possession, Misery
-
-Sun, 19 Jul 2026 01:30:15 GMT
-
-https://www.cbr.com/psychological-thrillers-better-than-obsession/
-
-There's no denying that moviegoers are fixated on Obsession, but these eight movies are more deserving of that movie mania.
----------
-
-# 10 Hardest PS1 RPGs, Officially Ranked
-
-Games, PlayStation (Original), Digimon, Final Fantasy
-
-Sun, 19 Jul 2026 01:25:16 GMT
-
-https://www.cbr.com/hardest-ps1-rpgs-officially-ranked/
-
-The PS1 was the ultimate RPG machine, and many of its classic titles were brutally hard.
----------
-
-# Scrubs Revival Officially Gets an Exciting Season 2 Update from Zach Braff
-
-TV, Scrubs
-
-Sun, 19 Jul 2026 01:15:38 GMT
-
-https://www.cbr.com/scrubs-season-2-starts-filming/
-
-Zach Braff shares the latest update on the second season of the Scrubs revival series.
----------
-
-# The Underrated Horror Sequel Quentin Tarantino Calls a 'Masterpiece' Hits Peacock Next Month
-
-Movies, Gremlins 2: The New Batch, Quentin Tarantino
-
-Sun, 19 Jul 2026 01:00:16 GMT
-
-https://www.cbr.com/gremlins-2-horror-comedy-peacock-august-2026/
-
-Quentin Tarantino says the wildly different sequel "gets better every time you see it."
----------
-
-# 10 Fantasy Anime With the Greatest Worlds
-
-Anime, One Piece, Hunter X Hunter, Fantasy
-
-Sun, 19 Jul 2026 00:45:15 GMT
-
-https://www.cbr.com/greatest-fantasy-anime-worlds/
-
-Fantasy anime like One Piece and Hunter x Hunter take fans on adventures through worlds they want to explore endlessly.
----------
-
-# The Joker Gets Reimagined Once Again to Face Batman in New Streaming Release This Month
-
-TV, Batman: Caped Crusader
-
-Sun, 19 Jul 2026 00:30:16 GMT
-
-https://www.cbr.com/batman-caped-crusader-season-2-release-new-joker-prime-video/
-
-The 10-part streaming release arrives at the end of the month with a reimagined version of the Joker.
----------
-
-# 5 Games Like Game of Thrones
-
-Games, Game Of Thrones, The Witcher 3: Wild Hunt, Dragon Age: Origins (dupe)
-
-Sun, 19 Jul 2026 00:30:16 GMT
-
-https://www.cbr.com/fantasy-games-like-game-of-thrones/
-
-These fantasy games deliver the same brutal atmosphere and political intrigue that made Game of Thrones so compelling to fans.
----------
-
-# 10 Avatar Scenes Netflix’s Live-Action Season 2 Missed the Mark On
-
-Anime, Avatar: The Last Airbender, Netflix
-
-Sun, 19 Jul 2026 00:15:15 GMT
-
-https://www.cbr.com/avatar-the-last-airbender-scenes-netflix-live-action-season-2/
-
-Netflix's live-action adaptation of Avatar: The Last Airbender returned with Season 2 and messed up many scenes from the original anime.
----------
-
-# 7 Most Divisive Superhero Movies of All Time, Ranked
-
-Movie, Superhero, Batman v Superman: Dawn of Justice, Avengers: Age of Ultron, Captain Marvel
-
-Sun, 19 Jul 2026 01:33:15 GMT
-
-https://collider.com/most-divisive-superhero-movies-all-time-ranked/
-
-Why do Deadpool & Wolverine and Eternals still divide fans years later? These superhero movies sparked endless debate.
----------
-
-# NBC's Greatest Drama of the 2020s Is Finally Available To Stream for Free
-
-TV Features, This Is Us, NBC, Sterling K. Brown, Milo Ventimiglia
-
-Sun, 19 Jul 2026 01:01:15 GMT
-
-https://collider.com/this-is-us-nbc-greatest-drama-free-streaming-tubi/
-
-NBC's This Is Us is now streaming for free on Tubi, where you can discover the captivating story of the Pearson family.
----------
-
-# ‘The Dark Knight’ Star’s Globe-Trotting Spy Thriller Is Finally Coming to Netflix
-
-Movie News, Aaron Eckhart, Netflix, James Bond, Chief of Station
-
-Sun, 19 Jul 2026 00:45:15 GMT
-
-https://collider.com/chief-of-station-streaming-netflix-august-2026/
-
-Aaron Eckhart's perfect Bond replacement, Chief of Station, is heading to Netflix next month. Get all the details here.
----------
-
-# Prime Video Is Giving One of Sci-Fi's Biggest Box Office Bombs a Second Chance
-
-Movie News, Prime Video, Moonfall, Roland Emmerich, Halle Berry
-
-Sun, 19 Jul 2026 00:30:15 GMT
-
-https://collider.com/moonfall-prime-video-streaming-success-july-2026/
-
-Prime Video is giving $150 million sci-fi box office bomb Moonfall a second chance to find its audience, despite its disastrous theatrical debut.
----------
-
-# 'The Office' Co-Creator Officially Returns to Netflix With New Special Next Month
-
-TV News, Ricky Gervais, Alley Cats, Netflix, Animation
-
-Sun, 19 Jul 2026 00:15:15 GMT
-
-https://collider.com/ricky-gervais-alley-cats-netflix-august-7-premiere-date/
-
-Ricky Gervais is back on Netflix, this time with an animated comedy series with cats as the main characters. Get all the details here.
----------
-
-# Chris Hemsworth's Failed Sci-Fi Sequel Soars Off Streaming Following Reboot Talks
-
-Movie News, Chris Hemsworth, Men In Black: International, Sci-Fi, Tessa Thompson
-
-Sun, 19 Jul 2026 00:00:15 GMT
-
-https://collider.com/chris-hemsworth-sci-fi-reboot-men-in-black-international-leaving-peacock-august-2026/
-
-The doomed sci-fi reboot Men in Black: International, starring Chris Hemsworth and Tessa Thompson, is about to be removed from Peacock.
----------
-
-# Netflix’s Forgotten 3-Part Horror Series Proves Its Staying Power by Quietly Climbing Another Streamer
-
-TV Features, Netflix, Hemlock Grove, Horror, Bill Skarsgård
-
-Sat, 18 Jul 2026 23:52:14 GMT
-
-https://collider.com/hemlock-grove-netflix-forgotten-horror-series-streaming-apple-tv-store/
-
-Hemlock Grove was one of Netflix's first originals, but it hasn't been on the platform since 2022. Now, it's doing numbers on another streamer.
----------
-
-# Netflix's Most Anticipated Sci-Fi Blockbuster Arrives in Less Than a Month
-
-Movie News, The Last House, Netflix, Wagner Moura, Louis Leterrier
-
-Sat, 18 Jul 2026 23:45:14 GMT
-
-https://collider.com/netflix-sci-fi-horror-the-last-house-streaming-august-2026/
-
-Directed by the director behind Fast X, Netflix's upcoming sci-fi thriller is the most anticipated movie next month. Get all the details here.
----------
-
-# 10 Great TV Shows Where No One Can Agree on the Ending
-
-TV Lists, Game Of Thrones, The Boys, Lost
-
-Sun, 19 Jul 2026 01:00:13 GMT
-
-https://movieweb.com/great-tv-shows-no-one-agrees-ending/
-
-Some TV shows split fans down the middle with their endings, sparking debates about whether they stuck the landing or fizzled out poorly.
----------
-
-# Forget 'Fallout,' FX's Upcoming Video Game Adaptation Has a Perfect Cast
-
-Features, Steve Buscemi, Fallout, Far Cry
-
-Sun, 19 Jul 2026 00:30:13 GMT
-
-https://movieweb.com/far-cry-tv-show-steve-buscemi-cast/
-
-Will the addition of Buscemi be enough to push 'Far Cry' above 'Fallout?'
----------
-
-# It's Official, Prime Video's The Boys Ends An Era
-
-TV, The Boys
-
-Sat, 18 Jul 2026 23:33:58 GMT
-
-https://screenrant.com/the-boys-prime-video-streaming-charts-fall-july-2026/
-
-The Boys season 5 became a global sensation, but the superhero series has finally taken a major hit on Prime Video ahead of the franchise's return.
----------
-
-# 7 Non-Canon Star Wars Projects We Want To See After The Ninth Jedi
-
-Star Wars, Star Wars: Visions
-
-Sat, 18 Jul 2026 23:30:11 GMT
-
-https://screenrant.com/non-canon-star-wars-projects-we-want-after-ninth-jedi/
-
-The upcoming Ninth Jedi spin-off from Star Wars: Visions is almost here, but it's also fun to think about future potential non-canon projects too.
----------
-
-# Helaena's Pregnancy In House Of the Dragon Is Even More Complicated Than You Think
-
-Streaming TV, House of the Dragon, House of the Dragon - Season 3, Game of Thrones
-
-Sat, 18 Jul 2026 23:30:11 GMT
-
-https://screenrant.com/house-of-the-dragon-helaena-pregnancy-who-father-aegon-aemond/
-
-Helaena's pregnancy will put Rhaenyra in a difficult position in House of the Dragon season 3, but there may be further complications involved.
----------
-
-# HBO's Ambitious 36-Episode Sci-Fi Series Turned Frustration Into An Art Form
-
-Classic TV, Masked Recs
-
-Sat, 18 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/westworld-hbo-sci-fi-series-frustrating-but-good/
-
-HBO's space Western series started with one of the best first seasons of all time. However, the plot's increasingly wild twists outpaced the show.
----------
-
-# Lara Croft's New Appearance Is a Crossover with a Billion Dollar Franchise
-
-Comics, Tomb Raider
-
-Sat, 18 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/tomb-raider-lara-croft-crossover-gi-joe-preview/
-
-A crossover we've never seen before.
----------
-
-# Cyberpunk 2077 Sequel's Johnny Silverhand Replacement Divides Gamers
-
-Gaming, Cyberpunk 2077
-
-Sat, 18 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/cyberpunk-2077-sequel-silverhand-replacement/
-
-Fans discuss the potential absence of Johnny Silverhand in the Cyberpunk 2077 sequel, debating whether his character is central to the franchise.
----------
-
-# Netflix's The Munsters 2 Gets Disappointing New Update From Star
-
-Movies, The Munsters
-
-Sat, 18 Jul 2026 22:51:39 GMT
-
-https://screenrant.com/netflix-the-munsters-2-update-disappointing-richard-brake/
-
-Exclusive: The Munsters actor Richard Brake has shared an update on where things stand with a sequel to Rob Zombie's take on the classic sitcom.
----------
-
-# It's Official, The Odyssey Confirms Christopher Nolan Is Ready for Horror
-
-Movies, The Odyssey, Christopher Nolan, Horror
-
-Sat, 18 Jul 2026 23:30:15 GMT
-
-https://www.cbr.com/the-odyssey-sets-up-christopher-nolan-horror-movie/
-
-Christopher Nolan gave us two of the most anxiety-inducing sequences of the year tucked inside The Odyssey, proving he is already a horror director.
----------
-
-# 35 Years Later, Star Trek's Greatest Deanna Troi Episode Remains an Untouchable Sci-Fi Gem
-
-TV, Star Trek: The Next Generation, Sci-Fi, Star Trek
-
-Sat, 18 Jul 2026 23:30:15 GMT
-
-https://www.cbr.com/star-trek-the-next-generation-greatest-deanna-troi-episode/
-
-A crisis on board the Enterprise separates the leaders and pushes Deanna Troi into command, turning this TNG episode into a defining moment for her.
----------
-
-# 4 Toonami Anime Series That Are 10/10 Masterpieces
-
-Anime, Dragon Ball Z, Cowboy Bebop, toonami
-
-Sat, 18 Jul 2026 23:15:15 GMT
-
-https://www.cbr.com/toonami-anime-series-perfect-masterpieces/
-
-Toonami introduced audiences to some of the finest anime ever created, and these series remain among its greatest success stories.
----------
-
-# Steam Officially Makes 3 9/10 Games 100% Free Until July 20
-
-Games, Steam
-
-Sat, 18 Jul 2026 23:10:15 GMT
-
-https://www.cbr.com/steam-official-masterpiece-free-games-july-2026/
-
-Three exciting, positively reviewed Steam games are completely free until July 20.
----------
-
-# Superman's Most Twisted Story Just Permanently Changed His Lore
-
-Comics, firestorm, Superman, DC Comics
-
-Sat, 18 Jul 2026 23:00:15 GMT
-
-https://www.cbr.com/the-fury-of-firestorm-4-supermen-project-consequences/
-
-Another startling revelation about one of the darkest chapters in DC history has just been made, and it taints dozens of heroes' origin stories.
----------
-
-# 5 Perfect Creature Feature TV Shows Nobody Remembers
-
-TV, Horror, Special Unit 2, FreakyLinks, Friday the 13th: The Series (1987)
-
-Sat, 18 Jul 2026 23:00:15 GMT
-
-https://www.cbr.com/best-forgotten-creature-feature-tv-shows-list/
-
-Weekly monster stories were once a horror television staple, and these forgotten creature feature series are still worth revisiting today.
----------
-
-# One of the Best Supernatural Horror Series of All Time Is Streaming for Free
-
-TV Features, Twin Peaks, David Lynch, Mark Frost, Kyle MacLachlan
-
-Sat, 18 Jul 2026 23:36:14 GMT
-
-https://collider.com/twin-peaks-david-lynch-supernatural-horror-streaming-free/
-
-David Lynch's barrier-breaking, trailblazing, and trendsetting series, Twin Peaks, is now streaming for free on Pluto TV.
 ---------
