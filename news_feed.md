@@ -1,3 +1,333 @@
+# Marvel Officially Reveals Robert Downey Jr.'s Doctor Doom Design In First Avengers: Doomsday Trailer
+
+Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Mon, 20 Jul 2026 13:21:26 GMT
+
+https://screenrant.com/avengers-doomsday-doctor-doom-marvel-reveal/
+
+Marvel releases the Avengers: Doomsday trailer after a long wait, and it reveals Robert Downey Jr.'s full design as Doctor Doom, as well as his power.
+---------
+
+# X-Men Introduces Its Most Vicious Rivalry Since Cyclops vs Wolverine
+
+Comics, X-Men
+
+Mon, 20 Jul 2026 13:20:27 GMT
+
+https://screenrant.com/x-men-new-rivalry-wolverine-son/
+
+X-Men's new hero feud goes from simmer to boil.
+---------
+
+# Masters Of The Universe’s Digital Release Date Officially Confirmed
+
+Movies, Masters of the Universe
+
+Mon, 20 Jul 2026 13:17:54 GMT
+
+https://screenrant.com/masters-of-the-universes-digital-release-date-officially-confirmed/
+
+The official streaming release date for the new He-Man movie, Masters of the Universe, is unveiled, and it is coming surprisingly soon.
+---------
+
+# Avengers: Doomsday Official Trailer Reveals X-Men Return As Dr. Doom Devastates The MCU
+
+Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Mon, 20 Jul 2026 13:01:46 GMT
+
+https://screenrant.com/avengers-doomsday-trailer/
+
+Marvel Studios has finally released the first full official Avengers: Doomsday trailer, revealing new footage from the major Phase 6 installment.
+---------
+
+# After The Boys & Invincible, Prime Video Has Another Great Superhero Show
+
+Streaming TV, Masked Recs
+
+Mon, 20 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/spider-noir-prime-video-superhero-show/
+
+Prime Video already had two great superhero shows with The Boys and Invincible, but Spider-Noir blew them both out of the water this summer.
+---------
+
+# 10 Fantasy Books With The Best Lore
+
+Books, Fantasy
+
+Mon, 20 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/fantasy-books-with-best-lore/
+
+Having deep lore is essential for any great fantasy book, but these novels take immersive worldbuilding to levels that it's near-impossible to match.
+---------
+
+# X-Men Officially Debuts Matching Costumes for Wolverine, Rogue and More
+
+Comics, X-Men, Wolverine
+
+Mon, 20 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/x-men-new-costumes-hellfire-rogue-wolverine/
+
+X-Men introduces nanite-tech costumes.
+---------
+
+# Satanic Documentary Is Making A Hell Of A Comeback On HBO Max 6 Years Later
+
+Movies, Masked Recs
+
+Mon, 20 Jul 2026 12:39:19 GMT
+
+https://screenrant.com/hail-satan-hbo-max-streaming-success-july-2026/
+
+A Satanic documentary is making one Hell of a comeback on HBO Max, six years after it was originally released in the United States.
+---------
+
+# 11 Essential Turn-Based RPGs According To Metacritic
+
+Lists, Final Fantasy, Fire Emblem: Three Houses, Chrono Trigger
+
+Mon, 20 Jul 2026 12:31:14 GMT
+
+https://screenrant.com/top-turn-based-rpg-games-metacritic/
+
+The best turn-based RPGs are those that have proven themselves worthy to players through excellent storylines and exceptional gameplay mechanics.
+---------
+
+# Peter Parker Completely Ignores Andrew Garfield’s No Way Home Advice In Spider-Man: Brand New Day
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Mon, 20 Jul 2026 12:30:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-peter-andrew-garfield-advice-ignore/
+
+As Tom Holland returns to the MCU this summer, Spider-Man: Brand New Day will see his Peter Parker ignore Andrew Garfield's advice from No Way Home.
+---------
+
+# Avengers: Doomsday Trailer Finally Drops Ahead of Russo Brothers' Return After 7 Years
+
+Movies, Avengers: Doomsday
+
+Mon, 20 Jul 2026 13:00:48 GMT
+
+https://www.cbr.com/avengers-doomsday-official-trailer/
+
+The superhero team-up was expected to premiere the trailer around the San Diego Comic-Con.
+---------
+
+# 10 Best Hellboy Short Stories, Ranked
+
+Comics, Hellboy
+
+Mon, 20 Jul 2026 13:00:15 GMT
+
+https://www.cbr.com/best-hellboy-short-stories-ranked/
+
+While the main Hellboy epic is vast, the character may work even better in shortform.
+---------
+
+# The Batman Part 2 Will Officially Give Robert Pattinson a New Batsuit
+
+Movies, The Batman Part II, DCU
+
+Mon, 20 Jul 2026 13:00:15 GMT
+
+https://www.cbr.com/the-batman-part-2-new-costume-franchise-trend-dc/
+
+The Batman: Part 2 officially continues a classic franchise trend that began almost forty years ago.
+---------
+
+# Tom Holland Officially Confirms The Surprise Director Who Shot His Spider-Man Costume Reveal
+
+CBR Exclusives, tom holland, Spider-Man: Brand New Day, Spider-Man
+
+Mon, 20 Jul 2026 12:00:15 GMT
+
+https://www.cbr.com/tom-holland-confirms-spider-man-brand-new-day-costume-reveal-director/
+
+This filmmaker has an eye for making Spider-Man look good on camera.
+---------
+
+# 'Avengers: Doomsday' Finally Unleashes Robert Downey Jr.'s Doctor Doom in Explosive Trailer
+
+Movie News, Avengers: Doomsday, Robert Downey Jr, MCU, Chris Evans
+
+Mon, 20 Jul 2026 13:00:23 GMT
+
+https://collider.com/avengers-doomsday-trailer-robert-downey-jr-doctor-doom/
+
+The first Avengers: Doomsday trailer reveals Robert Downey Jr.’s Doctor Doom as the MCU prepares for a major reinvention.
+---------
+
+# Kevin Feige Confirms Adam Driver MCU Casting Rumors
+
+Movie News, Adam Driver, Kevin Feige, MCU, X-Men
+
+Mon, 20 Jul 2026 12:51:46 GMT
+
+https://collider.com/kevin-feige-adam-driver-mcu-casting-wish/
+
+Kevin Feige confirms that he has been trying to court Adam Driver to join the MCU for years.
+---------
+
+# 10 Most Fun Action Movies of All Time
+
+Movie, Raiders of the Lost Ark, Hundreds of Beavers, The Blues Brothers, Kill Bill: Vol. 1
+
+Mon, 20 Jul 2026 12:19:15 GMT
+
+https://collider.com/most-fun-action-movies-all-time-ranked/
+
+Some of the most fun action movies of all time include masterpieces like Raiders of the Lost Ark, The Blues Brothers, and Kill Bill: Vol. 1.
+---------
+
+# Sadie Sink Opens Up About Her Secret 'Spider-Man: Brand New Day' Role
+
+Exclusives, Spider-Man: Brand New Day, Sadie Sink, Tom Holland, Marvel
+
+Mon, 20 Jul 2026 12:15:15 GMT
+
+https://collider.com/spider-man-brand-new-day-sadie-sink-character-secret-role/
+
+Spider-Man: Brand New Day star and Stranger Things icon Sadie Sink finally lifts back the curtain on her secret Marvel role.
+---------
+
+# Henry Cavill's Netflix Spy Movie Sets Major Production Update
+
+Movie News, Henry Cavill, Netflix, Action, Kevin Hart
+
+Mon, 20 Jul 2026 12:00:15 GMT
+
+https://collider.com/henry-cavill-kevin-hart-netflix-thriller-spy-duo-production-update/
+
+Henry Cavill’s next spy comedy just hit a major production milestone, bringing an unexpected duo closer to screens.
+---------
+
+# 6 Best Hard Sci-fi Movies Released Since 2000
+
+Movie, Science Fiction, The Martian, Interstellar, Arrival
+
+Mon, 20 Jul 2026 11:54:15 GMT
+
+https://collider.com/best-hard-sci-fi-movies-since-2000-ranked/
+
+Modern classics like Interstellar, The Martian, and Arrival are among the best hard sci-fi movies released since the year 2000.
+---------
+
+# 10 Sci-Fi Thrillers That Are Perfect From the First Scene to the Last
+
+Movie, Science Fiction, alien, Thriller
+
+Mon, 20 Jul 2026 11:41:14 GMT
+
+https://collider.com/sci-fi-thrillers-perfect-first-scene-to-last/
+
+From Primer to Inception, these superb movies perfectly balance the sci-fi and thriller genres, remaining virtually flawless throughout their runtime.
+---------
+
+# 15 Best Thriller Movies of the Last 25 Years, Ranked
+
+Movie, Thriller, Shutter Island, Oldboy, Parasite
+
+Mon, 20 Jul 2026 11:38:14 GMT
+
+https://collider.com/best-thriller-movies-last-25-years-ranked/
+
+Oldboy, Parasite, and Shutter Island are among the best thriller movies of the last 25 years.
+---------
+
+# 10 Heaviest Books of the 1990s
+
+Books and Comics, The Green Mile, American Psycho, Trainspotting, A Song of Ice and Fire
+
+Mon, 20 Jul 2026 11:32:14 GMT
+
+https://collider.com/heaviest-books-1990s-ranked/
+
+There were some downbeat books published in the 1990s, with the likes of Infinite Jest, The Green Mile, and Trainspotting being some of the heaviest.
+---------
+
+# Robert Downey Jr.'s Forgotten Road Trip Adventure Is Officially a Global Streaming Hit
+
+Movie News, Robert Downey Jr, Zach Galifianakis, Due Date, Netflix
+
+Mon, 20 Jul 2026 11:30:14 GMT
+
+https://collider.com/robert-downey-jr-due-date-streaming-success-netflix-july-2026/
+
+Robert Downey Jr.'s Hangover replacement with Zach Galifianakis, released a decade ago, is making a comeback on Netflix's top 10 charts.
+---------
+
+# 'Avengers: Doomsday' Trailer Unleashes Robert Downey Jr's Villain on the MCU
+
+Movie News, Avengers: Doomsday, Superhero, Marvel Cinematic Universe
+
+Mon, 20 Jul 2026 13:01:29 GMT
+
+https://movieweb.com/avengers-doomsday-trailer/
+
+'Avengers: Doomsday' hits theaters on December 18, 2026, and brings Robert Downey Jr. back to the MCU.
+---------
+
+# Star Trek's 10 Best Non-Starfleet Crew Members, Ranked by Input
+
+TV Lists, Star Trek
+
+Mon, 20 Jul 2026 13:00:12 GMT
+
+https://movieweb.com/star-trek-non-starfleet-crew-members/
+
+Starfleet officers make up the bulk of Star Trek's best characters, but some aren't part of the organization. Read on for more.
+---------
+
+# 'Shipwrecked: Nightmare at Sea' Nets "Terrifying" Streaming Hit for Netflix
+
+Movie News
+
+Mon, 20 Jul 2026 12:41:15 GMT
+
+https://movieweb.com/netflix-shipwrecked-disaster-at-sea-number-one/
+
+The 2026 documentary has joined Netflix's other productions about a maritime disaster.
+---------
+
+# Every Christopher Nolan Opening Weekend Box Office, Ranked
+
+TV Lists, The Odyssey, Christopher Nolan, The Dark Knight Rises, Oppenheimer
+
+Mon, 20 Jul 2026 12:35:59 GMT
+
+https://movieweb.com/christopher-nolan-every-opening-weekend-box-office/
+
+Christopher Nolan's movies have grossed some impressive numbers at the box office, and this is how they all stack up, including 'The Odyssey.'
+---------
+
+# Netflix Quietly Unleashes New Fantasy Action Series With 100% on Rotten Tomatoes
+
+TV News, Netflix, The East Palace, Action, Fantasy, Thriller
+
+Mon, 20 Jul 2026 11:50:41 GMT
+
+https://movieweb.com/netflix-east-palace-fantasy-action-100-rotten-tomatoes/
+
+Debuting just last week, the eight-episode series 'The East Palace' has already entered the global streaming top 10.
+---------
+
+# Netflix Scores Big as Latest Sequel in Underrated Action Franchise Shoots to Success
+
+Movie News, Netflix, Sniper, Action, Thriller
+
+Mon, 20 Jul 2026 11:38:13 GMT
+
+https://movieweb.com/netflix-sniper-no-nation-stream-july-2026/
+
+The action thriller franchise first began 33 years ago, with the latest effort hitting the global Netflix charts with a bang.
+---------
+
 # Pokémon Winds & Waves Leaked Map Confirms Exact Number Of Gyms
 
 Gaming, Pokemon Winds and Waves, Pokemon, Pokémon, PC
@@ -5166,334 +5496,4 @@ Sat, 18 Jul 2026 20:29:15 GMT
 https://collider.com/best-grand-theft-auto-video-games-ranked/
 
 Before the highly anticipated Grand Theft Auto VI comes out, we're ranking the best entries in the long-running Grand Theft Auto video game series.
----------
-
-# Apple TV’s New Anya Taylor-Joy Thriller Has a Dark Real-Life Origin
-
-TV Features, Anya Taylor-Joy, Lucky, Apple TV, Reese Witherspoon
-
-Sat, 18 Jul 2026 20:06:14 GMT
-
-https://collider.com/apple-tv-lucky-anya-taylor-joy-thriller-dark-real-life-origin/
-
-Apple TV's Lucky is based on a novel by Marissa Stapley, whose family endured a real-life financial scam when she was a child.
----------
-
-# Taylor Sheridan's Hit 'Yellowstone' Spin-Off Proves To Be an Absolute Monster Hit on Streaming
-
-TV News, Marshals, Taylor Sheridan, CBS, Paramount Plus
-
-Sat, 18 Jul 2026 20:00:16 GMT
-
-https://collider.com/taylor-sheridan-marshals-streaming-success-paramount-plus-july-2026/
-
-Marshals, the Yellowstone expansion produced by Taylor Sheridan, is surging on Paramount Plus before Season 2 arrives later this year.
----------
-
-# Only 5 Viola Davis Movies Are Perfect From Start to Finish
-
-Movie, Viola Davis, Fences, Doubt, The Woman King
-
-Sat, 18 Jul 2026 19:49:15 GMT
-
-https://collider.com/best-viola-davis-movies-perfect/
-
-From Prisoners to The Woman King, these Viola Davis masterpieces showcase heartbreak, resilience, power, and unforgettable drama.
----------
-
-# ‘The Odyssey’ Timeline Explained & All Events In Chronological Order
-
-Features, The Odyssey, Christopher Nolan
-
-Sat, 18 Jul 2026 20:00:13 GMT
-
-https://movieweb.com/the-odyssey-timeline-chronology-explained/
-
-Christopher Nolan's 'The Odyssey' jumps back and forth in time along Odysseus' 10-year journey, making it somewhat difficult to track the events.
----------
-
-# The Greatest Summer Slashers of All Time, Ranked
-
-Movie Lists, Horror
-
-Sat, 18 Jul 2026 20:00:13 GMT
-
-https://movieweb.com/best-summer-slashers/
-
-Plenty of slasher movies take place during the hottest season of the year; these are the best.
----------
-
-# Everyone's Official Starfleet Rank In Star Trek: Strange New Worlds Season 4
-
-TV, Star Trek, Star Trek: Strange New Worlds
-
-Sat, 18 Jul 2026 19:30:11 GMT
-
-https://screenrant.com/star-trek-strange-new-worlds-season-4-character-ranks/
-
-Star Trek: Strange New Worlds enters year 4 of the Starship Enterprise's five-year mission. Here is everyone's Starfleet rank and responsibilities.
----------
-
-# New Open-World Zombie Game Is Like Rust Meets Minecraft
-
-Gaming, Minecraft, Rust, Steam, PC
-
-Sat, 18 Jul 2026 19:30:11 GMT
-
-https://screenrant.com/open-world-zombie-survival-game-rust-minecraft/
-
-This brand-new open-world zombie title combines the best elements of Rust and the legendary Minecraft to delight fans of both titles.
----------
-
-# HBO's Harry Potter Series "Brutal" Filming Conditions Revealed
-
-TV, Harry Potter
-
-Sat, 18 Jul 2026 19:26:45 GMT
-
-https://screenrant.com/harry-potter-hbo-filming-conditions-adriano-goldman/
-
-Harry Potter may want to stay under the stairs, as some new details of HBO's upcoming adaptation and its "brutal" filming conditions are revealed.
----------
-
-# DC's New Wonder Woman Is Here, And She's Badass
-
-DC Comics, Wonder Woman
-
-Sat, 18 Jul 2026 19:22:43 GMT
-
-https://screenrant.com/dc-new-wonder-woman-badass/
-
-DC introduces a gritty, gun-toting Wonder Woman who teases a very different warrior to the one Earth-0 and even the Absolute Universe made famous.
----------
-
-# Gerard Butler’s Infamous Fantasy Bomb Is Getting A Streaming Redemption 10 Years Later
-
-Movies, Masked Recs, Gerard Butler, Streaming Charts
-
-Sat, 18 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/gerard-butler-gods-of-egypt-lionsgate-plus-streaming-success-july-2026/
-
-A Gerard Butler fantasy movie that reportedly lost $90 million in theaters is having a resurgence on the streaming charts 10 years later.
----------
-
-# The Batman Part II: Is Victor Zsasz the Right Villain?
-
-Movies, Originals
-
-Sat, 18 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/video/the-batman-part-2-is-victor-zsasz-the-right-pick-for-the-villain/
-
-Matt Reeves' The Batman Part 2 is finally in production, and one of the biggest mysteries surrounding the sequel may have just taken a dramatic turn. While months of rumors pointed toward Harvey Dent and Two-Face, new reports suggest Sebastian Stan could actually be playing Victor Zsasz—one of Batman's most disturbing comic book villains.
----------
-
-# Stephen King’s Unadapted Bestselling Horror Novel Is Perfect For Mike Flanagan
-
-TV, Masked Recs
-
-Sat, 18 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/insomnia-stephen-king-perfect-for-mike-flanagan-adaptation/
-
-Mike Flanagan's next Stephen King adaptation might be a Carrie miniseries for Prime Video, but there's another King novel he needs to bring to life.
----------
-
-# Solo Leveling's New Webtoon Clone Is The Beginning Of A Dark Era
-
-Anime, Webtoon, Masked Recs
-
-Sat, 18 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/shadow-system-new-solo-leveling-clone-webtoon/
-
-Solo Leveling has a new clone in town, and it's starting a trend that could threaten the entire genre.
----------
-
-# Stardew, Animal Crossing, & The Sims Collide In Gorgeous RPG You Can Try Free Now
-
-Gaming, Stardew Valley
-
-Sat, 18 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/moonfrost-stardew-valley-sims-rpg-free-demo/
-
-A premium cozy farming life-sim RPG for PC, drawing inspiration from beloved titles like Stardew Valley, The Sims, and Animal Crossing.
----------
-
-# Anya Taylor-Joy's The Queen's Gambit Follow-Up Proves Her $174 Million Flop Deserved Better
-
-Movies, Masked Recs
-
-Sat, 18 Jul 2026 18:30:11 GMT
-
-https://screenrant.com/anya-taylor-joy-lucky-furiosa-deserved-better/
-
-Anya Taylor-Joy is not the obvious choice for an action movie star, but she is surprisingly good in action roles when her unique talents are embraced.
----------
-
-# Netflix's New 114-Minute Drama Has Critics & Audiences in Agreement With Near-Perfect Score
-
-Movies, Heartstopper, Heartstopper Forever
-
-Sat, 18 Jul 2026 19:35:01 GMT
-
-https://www.cbr.com/heartstopper-forever-rotten-tomatoes-score/
-
-It's officially the end of an era for one of Netflix's most wholesome shows.
----------
-
-# The 5 Best Canon Star Wars Novels, Ranked
-
-Movies, Star Wars, books, Sci-Fi
-
-Sat, 18 Jul 2026 19:30:15 GMT
-
-https://www.cbr.com/best-canon-star-wars-books-list/
-
-From deep explorations of the films' lore to new adventures with iconic characters, these Star Wars novels are perfect additions to Disney's canon.
----------
-
-# 10 Classic Thriller Manga You Must Read in 2026
-
-Anime, Manga, Thriller, Monster, Death Note, The Promised Neverland
-
-Sat, 18 Jul 2026 19:15:15 GMT
-
-https://www.cbr.com/must-read-classic-thriller-manga-2026/
-
-Thriller manga is where the medium shines its best, where a single chapter can flip the script from pure joy into something devastating.
----------
-
-# Emma Thompson's New 98-Minute Action Thriller Perfect for Taylor Sheridan Fans Is Dominating HBO Max Charts
-
-Movies, Dead of Winter
-
-Sat, 18 Jul 2026 19:00:15 GMT
-
-https://www.cbr.com/emma-thompson-thriller-dead-of-winter-hbo-max-success-july-2026/
-
-Fans of Taylor Sheridan's Wind River will love Emma Thompson's new thriller that is dominating the charts on HBO Max.
----------
-
-# The Nightmare on Elm Street Reboot Is At Risk For 1 Major Reason
-
-Movies, A Nightmare on Elm Street, Paramount
-
-Sat, 18 Jul 2026 19:00:15 GMT
-
-https://www.cbr.com/nightmare-on-elm-street-reboot-psychological-not-slasher-horror/
-
-Paramount has confirmed that one of the biggest horror franchises ever is getting a reboot, but it has already had its moment in the spotlight.
----------
-
-# William Wisher Jr., Terminator 1 & 2 Co-Writer, Dies at 71
-
-Movies, obituary, The Terminator, Terminator 2: Judgment Day
-
-Sat, 18 Jul 2026 18:56:49 GMT
-
-https://www.cbr.com/william-wisher-jr-dead/
-
-Along with co-writing the beloved Terminator movies with James Cameron, Wisher also had on-screen roles in both films.
----------
-
-# Netflix & Shondaland's Murder Mystery 'The Residence' Perfect Weekend Binge
-
-TV, The Residence, Mystery, Netflix
-
-Sat, 18 Jul 2026 18:30:15 GMT
-
-https://www.cbr.com/netflix-the-residence-mystery-weekend-binge/
-
-Netflix and Shondaland's partnership has delivered incredible shows, and the 8-part murder mystery The Residence remains the perfect weekend binge.
----------
-
-# 'The Black Phone' Secretly Shares a Universe With This Horror Anthology
-
-Movie Features
-
-Sat, 18 Jul 2026 19:17:15 GMT
-
-https://collider.com/the-black-phone-vhs-85-connection-explained/
-
-The Black Phone secretly shares a universe with V/H/S/85. Here's how Dreamkill expands Gwen and Finney's family history and psychic powers.
----------
-
-# Jason Statham's Failed Franchise Reboot Is Being Cut From Paramount+
-
-Movie News, Jason Statham, Expend4bles, Paramount Plus, Action
-
-Sat, 18 Jul 2026 19:00:15 GMT
-
-https://collider.com/expendables-4-jason-statham-leaving-paramount-plus-august-2026/
-
-Jason Statham's critical and commercial disappointment, Expend4bles, is about to be removed from Paramount+. Find out more.
----------
-
-# Taylor Sheridan's 'Call of Duty' Movie Drops First Official Plot Details
-
-Movie News, Call of Duty, Peter Berg, Taylor Sheridan
-
-Sat, 18 Jul 2026 18:39:28 GMT
-
-https://collider.com/taylor-sheridan-call-of-duty-movie-plot-details-modern-warfare/
-
-Taylor Sheridan's Call of Duty movie will have significant ties to the Modern Warfare games according to director Peter Berg.
----------
-
-# Star Trek's Most Iconic Character Was Born From a Budget Crisis
-
-TV Features, Star Trek, Star trek, Leonard Nimoy, Gene Roddenberry
-
-Sat, 18 Jul 2026 18:38:15 GMT
-
-https://collider.com/star-trek-the-original-series-spock-vulcan-creation-makeup-budget/
-
-In Star Trek: The Original Series, the tight budget constraints are part of what led to the creation of its most iconic character, Mister Spock.
----------
-
-# Netflix's 'Little House on the Prairie' Reboot Majorly Improves 1 Character From the Original Series
-
-TV Features, Little House on the Prairie, Netflix, Western
-
-Sat, 18 Jul 2026 18:27:15 GMT
-
-https://collider.com/little-house-on-the-prairie-netflix-mr-edwards-improvement-original-series/
-
-Netflix's Little House on the Prairie reboot elevates Mr. Edwards, exploring his past and present relationships more deeply.
----------
-
-# HBO's Underrated True Crime Thriller Is So Good, You'll Watch It in One Weekend
-
-Features, Landscapers, HBO Max, Thriller
-
-Sat, 18 Jul 2026 19:30:12 GMT
-
-https://movieweb.com/hbo-landscapers-true-crime-underrated/
-
-No one does crime thriller dramas like HBO, and this one is among the most underrated of the decade.
----------
-
-# Apple TV’s Hit Thriller Is So Great, Even Stephen King Is Talking About It
-
-Features, Apple TV, Cape Fear, Thriller
-
-Sat, 18 Jul 2026 19:00:12 GMT
-
-https://movieweb.com/stephen-king-talking-apple-tv-cape-fear/
-
-Stephen King likes Apple TV's new hit miniseries, 'Cape Fear', largely because of Javier Bardem's villainous character.
----------
-
-# Only 3 Apple TV+ Sci-Fi Shows Are True Masterpieces
-
-TV Lists, Apple TV, Silo, Severance, For All Mankind, Sci-Fi
-
-Sat, 18 Jul 2026 18:30:12 GMT
-
-https://movieweb.com/apple-tv-sci-fi-masterpieces/
-
-Living up to the hype isn't easy, and very few Apple TV series are actually the masterpieces people describe them as.
 ---------
