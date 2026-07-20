@@ -1,3 +1,355 @@
+# Brie Larson & J.J. Abrams' New Monster Horror Movie Reveals Official Release Date
+
+Movies
+
+Mon, 20 Jul 2026 21:34:09 GMT
+
+https://screenrant.com/skeletons-brie-larson-jj-abrams-movie-release-date/
+
+A new monster horror movie starring the Academy Award-winning Brie Larson and produced by J.J. Abrams has revealed its official release date.
+---------
+
+# 10 X-Men Characters X-Men '97 Finally Did Justice To
+
+Streaming TV, X-Men '97
+
+Mon, 20 Jul 2026 21:30:11 GMT
+
+https://screenrant.com/x-men-97-characters-finally-did-justice/
+
+Despite how popular the X-Men are, not everyone has received great mainstream showings, but X-Men '97 just changed that for these key characters.
+---------
+
+# Marvel Confirms Avengers Team Rosters For Doomsday
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
+
+Mon, 20 Jul 2026 21:20:11 GMT
+
+https://screenrant.com/avengers-doomsday-team-rosters-characters-split/
+
+Avengers: Doomsday has multiple Avengers teams, and Marvel has confirmed the team rosters as the MCU crossover brings dozens of characters together.
+---------
+
+# Netflix’s New 8-Part Dark Fantasy Thriller Is An Easy One-Night Binge
+
+Streaming TV, Masked Recs
+
+Mon, 20 Jul 2026 21:15:11 GMT
+
+https://screenrant.com/netflix-the-east-palace-series-must-watch/
+
+Netflix just dropped a new 8-part dark fantasy thriller series, and it's already becoming one of the best and easiest shows to binge-watch this week.
+---------
+
+# John Wick Full Timeline Explained: When Each Movie & Spinoff Takes Place
+
+Movies, John Wick, Movie/TV Show Timelines
+
+Mon, 20 Jul 2026 21:00:12 GMT
+
+https://screenrant.com/john-wick-timeline-movies-spinoffs-explained/
+
+The John Wick films and spinoffs have been released over a span of ten years. The In-universe storyline has a surprisingly shorter timeline.
+---------
+
+# HBO Has Found The Perfect Rings Of Power Rival
+
+TV, Masked Recs
+
+Mon, 20 Jul 2026 20:58:11 GMT
+
+https://screenrant.com/harry-potter-hbo-rings-of-power-rival/
+
+While HBO's upcoming show promises to be one of the biggest fantasy series ever, it may struggle to beat Prime Video's Rings of Power for one reason.
+---------
+
+# Wicked Meets Alice In Wonderland In Disney's New Fantasy Movie Taking Over The U.S.
+
+Movies, Masked Recs
+
+Mon, 20 Jul 2026 20:30:11 GMT
+
+https://screenrant.com/descendants-wicked-wonderland-disney-plus-movie/
+
+Disney's latest fantasy movie has quickly taken over Disney+ and with good reason, as it's basically Wicked meets Alice in Wonderland.
+---------
+
+# Scrubs Season 2 Confirms Two Major Cast Exits
+
+TV, Scrubs
+
+Mon, 20 Jul 2026 20:16:32 GMT
+
+https://screenrant.com/scrubs-season-2-cast-exits-returns-promoted/
+
+Scrubs returned earlier this year and earned a renewal from ABC, but the medical comedy is undergoing a cast shakeup ahead of its second season.
+---------
+
+# Every MCU Character Confirmed To Survive Avengers: Doomsday
+
+Movies, Avengers: Doomsday
+
+Mon, 20 Jul 2026 21:30:15 GMT
+
+https://www.cbr.com/mcu-characters-surviving-avengers-doomsday-list/
+
+Avengers: Doomsday will be a deadly time for many MCU heroes, but we know that these characters will live to fight another day.
+---------
+
+# Square Enix Officially Celebrates Final Fantasy 10's 25th Anniversary
+
+Games, Final Fantasy, Square Enix
+
+Mon, 20 Jul 2026 21:20:15 GMT
+
+https://www.cbr.com/final-fantasy-x-25th-anniversary-official-new-release-square-enix/
+
+Square Enix has issued a new release for the 25th anniversary of Final Fantasy 10, making fans hopeful that a remake or new sequel is on the way.
+---------
+
+# 10 Long Open World Games That Take Forever to Complete
+
+Games, Gaming, Xenoblade Chronicles, open world, Elden Ring
+
+Mon, 20 Jul 2026 21:15:14 GMT
+
+https://www.cbr.com/open-world-games-that-take-forever-to-complete/
+
+Some of the best Open-World Games are so intricate, it can take months or more to finish them.
+---------
+
+# Matt Damon’s 142-Minute Sci-Fi Masterpiece With 91% RT Becomes a Streaming Hit 11 Years Later
+
+Movies, The Martian, Sci-Fi, Prime Video
+
+Mon, 20 Jul 2026 21:10:23 GMT
+
+https://www.cbr.com/the-martian-sci-fi-success-prime-video-july-2026/
+
+Over a decade later, The Odyssey star's sci-fi classic is back on the streaming chart.
+---------
+
+# HBO’s Harry Potter Cinematographer Reveals 'Brutal' Conditions Working With the Young Stars
+
+TV, Harry Potter
+
+Mon, 20 Jul 2026 21:01:39 GMT
+
+https://www.cbr.com/hbo-harry-potter-cinematographer-young-stars-schedules/
+
+The series just received the biggest updates yet.
+---------
+
+# The 5 Greatest Animated Movies of 2026 (So Far)
+
+Movies, Toy Story 5
+
+Mon, 20 Jul 2026 21:00:14 GMT
+
+https://www.cbr.com/best-animated-movies-2026-so-far-list/
+
+Animation is having a big year in 2026 and there have already been some truly spectacular animated movies for fans to enjoy.
+---------
+
+# Pokémon Winds & Waves Is Finally Giving Onix and Houndour New Evolutions
+
+Games, Pokemon, Nintendo, Pokémon
+
+Mon, 20 Jul 2026 20:50:15 GMT
+
+https://www.cbr.com/pokemon-winds-waves-new-evolutions-onix-houndour/
+
+A new Pokémon Winds & Waves leak is claiming that Onix and Houndour are finally receiving new regional evolutions, though the types aren't known.
+---------
+
+# One Piece: How Long it Would Take to Watch the Entire Anime Series
+
+Anime, One Piece
+
+Mon, 20 Jul 2026 20:35:15 GMT
+
+https://www.cbr.com/one-piece-how-long-watch-entire-anime-series/
+
+With over 1,100 episodes and counting, binge-watching One Piece is certainly an adventurous and time-consuming challenge.
+---------
+
+# Netflix's 5-Season Sci-Fi Masterpiece Officially The Most-Watched Show of the Year
+
+TV, Stranger Things, Netflix, Sci-Fi
+
+Mon, 20 Jul 2026 20:31:10 GMT
+
+https://www.cbr.com/stranger-things-ratings-netflix-2025-2026/
+
+Netflix's sci-fi classic hits No. 2 in 2025-2026.
+---------
+
+# Amazon's 4-Season Dieselpunk Show Based on a Philip K. Dick Book Is Dystopian Sci-Fi Perfection
+
+TV, The Man in the High Castle, Sci-Fi, Prime Video
+
+Mon, 20 Jul 2026 20:30:15 GMT
+
+https://www.cbr.com/prime-video-the-man-in-the-high-castle-perfect-dieselpunk-dystopian-sci-fi/
+
+Amazon Prime's Philip K. Dick TV adaptation is perfect dieselpunk for the 21st century.
+---------
+
+# Christopher Nolan Officially Solved the Hardest Scene in ‘The Odyssey’
+
+Movie Features, The Odyssey, Christopher Nolan, Matt Damon, Books
+
+Mon, 20 Jul 2026 21:31:14 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-sirens-song-explained/
+
+The Sirens have never worked this well on screen until The Odyssey thanks to Christopher Nolan.
+---------
+
+# This 8-Part Masterpiece Is Destined to Become Your Next Sci-Fi Obsession
+
+Books and Comics, Dungeon Crawler Carl, Books, Peacock, Seth MacFarlane
+
+Mon, 20 Jul 2026 21:23:03 GMT
+
+https://collider.com/best-sci-fi-dungeon-crawler-carl-books-masterpiece-matt-dinniman/
+
+Eight novels in, Matt Dinniman's Dungeon Crawler Carl series is one of the biggest and best book series since The Hunger Games.
+---------
+
+# Disney's Most Anticipated Princess Sequel Hit With Major Rewrites
+
+Movie News, The Princess Diaries, The Princess Diaries 2: Royal Engagement, The Princess Diaries 3, Anne Hathaway
+
+Mon, 20 Jul 2026 21:15:14 GMT
+
+https://collider.com/princess-diaries-3-anne-hathaway-script-update/
+
+Anne Hathaway reveals The Princess Diaries 3 has restarted its script despite a recent story breakthrough.
+---------
+
+# 10 Best Stephen King Psychological Horror Books
+
+Books and Comics, Stephen King, Misery, The Shining, The Long Walk
+
+Mon, 20 Jul 2026 21:08:14 GMT
+
+https://collider.com/best-stephen-king-psychological-horror-books-ranked/
+
+Stephen King has written some incredible psychological horror books over the years, including classics like Misery, The Shining, and The Long Walk.
+---------
+
+# ‘God of War’ Officially Brings Thor Back With a Massive New Release
+
+Gaming News, God of War, Ryan Hurst, Deborah Ann Woll
+
+Mon, 20 Jul 2026 20:58:59 GMT
+
+https://collider.com/god-of-war-ragnarok-thor-prime-1-studio-statue/
+
+God of War Ragnarök’s Thor returns as a massive 1/3-scale Prime 1 Studio statue costing up to $2k and expected to ship by early 2027.
+---------
+
+# 7 Greatest Fantasy Movie Trilogies of All Time
+
+Movie, Fantasy, The Lord of the Rings, Star Wars, How to Train Your Dragon
+
+Mon, 20 Jul 2026 20:49:14 GMT
+
+https://collider.com/best-fantasy-movie-trilogies-all-time-ranked/
+
+From Peter Jackson's Lord of the Rings to George Lucas' original Star Wars saga, these are the greatest fantasy movie trilogies in cinematic history.
+---------
+
+# 3 Stellar Shows to Binge on Netflix This Week (July 20-24)
+
+TV, The Walking Dead: Daryl Dixon, Sullivan's Crossing, The Kominsky Method, Netflix
+
+Mon, 20 Jul 2026 20:47:15 GMT
+
+https://collider.com/netflix-shows-binge-week-july-20-2026/
+
+The Walking Dead: Daryl Dixon, Sullivan's Crossing, and The Komisky Method make up our list of shows to binge the week of July 20th, 2026.
+---------
+
+# HBO’s ‘Harry Potter’ Reboot Is Already Breaking Records
+
+TV News, Harry Potter, HBO, HBO Max
+
+Mon, 20 Jul 2026 20:45:14 GMT
+
+https://collider.com/harry-potter-hbo-series-biggest-streaming-budget/
+
+Harry Potter cinematographer Adriano Goldman says HBO’s remake has the largest production budget ever given to a streaming series.
+---------
+
+# ‘Game of Thrones’ Officially Expands With a Brutal New Release
+
+Gaming News, Game Of Thrones, George R.R. Martin, A Knight Of The Seven Kingdoms, House of the Dragon
+
+Mon, 20 Jul 2026 20:16:14 GMT
+
+https://collider.com/game-of-thrones-kingsroad-north-bannerman-duel-festival/
+
+The Game of Thrones universe continues to expand, with new gaming experiences set in Westeros, including the upcoming North Bannerman Duel Festival.
+---------
+
+# Robert Downey Jr.'s 'Avengers: Doomsday' Doctor Doom Reveal Quickly Divides Marvel Fans
+
+Movie News, Avengers: Doomsday, Robert Downey Jr.
+
+Mon, 20 Jul 2026 21:20:26 GMT
+
+https://movieweb.com/robert-downey-jr-doctor-doom-avengers-doomsday-reaction/
+
+'Avengers: Doomsday' offered audiences the first glimpse of Robert Downey Jr. as Doctor Doom, and fans are mixed.
+---------
+
+# 'Avatar Aang: The Last Airbender' Rotten Tomatoes Score Revealed
+
+Movie News, Avatar Aang: The Last Airbender, Avatar: The Last Airbender
+
+Mon, 20 Jul 2026 21:19:50 GMT
+
+https://movieweb.com/avatar-aang-the-last-airbender-rotten-tomatoes-score/
+
+The first reviews are in for the long-awaited animated feature.
+---------
+
+# 35 Years Later, Keanu Reeves' Explosive Action Classic Gets a New Release
+
+Movie News, Point Break, Keanu Reeves
+
+Mon, 20 Jul 2026 20:45:04 GMT
+
+https://movieweb.com/point-break-35th-anniversary-release/
+
+'Point Break,' the film that launched Reeves' action-star career, is not to be missed when it returns to the big screen.
+---------
+
+# Top Choice for Next James Bond Officially Rules Himself Out of Amazon Reboot Race
+
+Movie News, James Bond
+
+Mon, 20 Jul 2026 20:19:34 GMT
+
+https://movieweb.com/james-bond-harris-dickinson-drops-out/
+
+Harris Dickinson, who was considered a top choice for James Bond, is reportedly out of the running.
+---------
+
+# Netflix's Taylor Sheridan Replacement Officially Getting New Release This Fall
+
+TV News, Untamed, Sam Neill, Eric Bana, Netflix
+
+Mon, 20 Jul 2026 20:14:15 GMT
+
+https://movieweb.com/netflix-untamed-dvd-release-eric-bana/
+
+Season 1 of 'Untamed' is set to arrive on DVD in October.
+---------
+
 # 5 Perfect Sci-Fi Shows You Can Binge In A Day
 
 Classic TV, Sci-Fi
@@ -5144,356 +5496,4 @@ Sun, 19 Jul 2026 10:30:19 GMT
 https://www.cbr.com/spider-man-brand-new-day-venom-mcu-debut-tease/
 
 Fans are desperate to see Spider-Man battle Venom in the MCU, and one scene from Brand New Day might make this even more likely.
----------
-
-# Paramount+'s New Dexter Formula Is Turning Resurrection Season 2 Into a Crime TV Event
-
-TV, Dexter: Resurrection, Dexter, Crime, Paramount Plus
-
-Sun, 19 Jul 2026 10:30:19 GMT
-
-https://www.cbr.com/dexter-resurrection-season-2-new-serial-killers/
-
-With many high-profile actors tapped to play killers in Dexter: Resurrection Season 2, it is shaping up to be a bona fide crime TV event.
----------
-
-# Apple TV's Timothy Olyphant & Anya Taylor-Joy 'Lucky' Classic Thriller
-
-TV, Lucky, Apple TV, Thriller
-
-Sun, 19 Jul 2026 10:00:15 GMT
-
-https://www.cbr.com/apple-tv-lucky-modern-classic/
-
-Apple TV's latest action thriller based on a book, Lucky, is a fast-paced, addictive series and an instant classic.
----------
-
-# 5 Underrated Crime Thrillers Better Than Se7en
-
-Movies, Se7en, Crime, Thriller
-
-Sun, 19 Jul 2026 10:00:15 GMT
-
-https://www.cbr.com/best-crime-thrillers-better-than-seven-list/
-
-David Fincher's Se7en is an absolute masterpiece, but these underrated crime thrillers beat it at its own game.
----------
-
-# ‘Back to the Future’ Meets James Bond in the Sci-Fi Blockbuster Leaving Streaming
-
-Movie News, Men in Black 3, Will Smith, Sci-Fi, Josh Brolin
-
-Sun, 19 Jul 2026 11:00:15 GMT
-
-https://collider.com/will-smith-men-in-black-3-sci-fi-movie-leaving-peacock-august-2026/
-
-The head-spinning franchise threequel Men in Black 3, starring Will Smith and Josh Brolin, is about to be removed from Peacock. Find out when.
----------
-
-# The 10 Most Intense TV Finales of All Time, Ranked
-
-TV, Series Finale, Breaking Bad, The Sopranos, Succession
-
-Sun, 19 Jul 2026 10:59:15 GMT
-
-https://collider.com/most-intense-tv-finales-ranked/
-
-Explore the most intense and unforgettable TV finales of all time, seen in shows like Breaking Bad, The Sopranos, and Succession.
----------
-
-# ‘Silo’ Fans Need These 8 Brilliant Literary Sci-Fi Book Series Between Episodes
-
-Books and Comics, Books, Silo, Science Fiction, 3 Body Problem, Annihilation, Robopocalypse
-
-Sun, 19 Jul 2026 10:51:14 GMT
-
-https://collider.com/science-fiction-book-series-like-silo-wool-trilogy/
-
-Silo Season 3 is here, but between episodes, get your sci-fi fix with excellent book series like Southern Reach, Wanderers, and Children of Time.
----------
-
-# Forget 'Yellowstone,' Paramount+ Has a Perfect Neo-Western Adaptation Waiting in the Wings
-
-TV Features, Books, Western, Horror, Television
-
-Sun, 19 Jul 2026 10:44:15 GMT
-
-https://collider.com/toms-crossing-neo-western-horror-tv-adaptation/
-
-As Paramount+ prepares to lose Taylor Sheridan, Mark Z. Danielewski's neo-Western horror epic Tom's Crossing could make a phenomenal TV series.
----------
-
-# Colleen Hoover Has Another Streaming Winner With Her 2026 Blockbuster Adaptation
-
-Movie News, Colleen Hoover, Netflix, Regretting You, Streaming
-
-Sun, 19 Jul 2026 10:30:19 GMT
-
-https://collider.com/colleen-hoover-regretting-you-streaming-success-netflix-july-2026/
-
-Regretting You, a controversial Colleen Hoover adaptation starring Allison Williams, is taking over global streaming. Find out more here.
----------
-
-# 10 Best Robins in DC Comics
-
-Books and Comics, comic books, DC Comics, Superhero, Nightwing
-
-Sun, 19 Jul 2026 10:22:16 GMT
-
-https://collider.com/best-robin-dc-comics-ranked/
-
-Many characters have assumed the Robin mantle over the years, from Dick Grayson to Damian Wayne, but which hero was the all-time best in the role?
----------
-
-# 6 Perfect Fantasy Video Games That Nobody Remembers
-
-TV, Fantasy, Video Game, Gaming, World of Warcraft
-
-Sun, 19 Jul 2026 10:01:14 GMT
-
-https://collider.com/fantasy-video-games-nobody-remembers/
-
-From Arx Fatalis to Black Book, these forgotten fantasy video game gems delivered unforgettable worlds, stories, and gameplay.
----------
-
-# It's the End of an Era for James Cameron's $200 Million Sci-Fi Epic
-
-Movie News, James Cameron, Robert Rodriguez, Alita: Battle Angel, Sci-Fi
-
-Sun, 19 Jul 2026 10:00:15 GMT
-
-https://collider.com/james-cameron-sci-fi-alita-battle-angel-leaving-peacock-august-2026/
-
-James Cameron's passion project, the sci-fi franchise-starter Alita: Battle Angel, is about to be removed from Peacock. Find out more.
----------
-
-# Stardew Valley Switches Genres In Path Of Dew
-
-Gaming, Stardew Valley
-
-Sun, 19 Jul 2026 09:30:11 GMT
-
-https://screenrant.com/stardew-valley-path-of-dew-rpg-overhaul/
-
-Discover a new side of Stardew Valley with the Path of Dew mod, which turns the beloved farming sim into a stats-based RPG experience.
----------
-
-# Star Wars Fans Think They’ve Spotted A Brand-New Sith In New Trailer
-
-Gaming, Star Wars Zero Company, Star Wars
-
-Sun, 19 Jul 2026 09:00:11 GMT
-
-https://screenrant.com/star-wars-zero-company-sith-red-lightsaber-fan-reaction/
-
-Star Wars is teasing a mysterious character wielding a red-bladed lightsaber, and fans are trying to deduce who they may be before they appear.
----------
-
-# Steam Makes 3 Huge Games Completely Free For 24 Hours
-
-Gaming, Steam
-
-Sun, 19 Jul 2026 08:04:56 GMT
-
-https://screenrant.com/steam-3-free-games-24-hours-weekend/
-
-Steam gamers can get their hands on three games right now completely free, but you need to be quick.
----------
-
-# Wolverine’s Newest Love Interest Is Already Dividing Fans
-
-Gaming, Marvel's Wolverine, Triple-A Games
-
-Sun, 19 Jul 2026 08:00:11 GMT
-
-https://screenrant.com/marvels-wolverine-love-interest-fan-reaction/
-
-Wolverine's extensive past with a particular character is proving to be incredibly iconic, yet some fans aren't fully on board with the relationship.
----------
-
-# Pixar's New Sci-Fi Sleeper Hit Is a Streaming Smash on Disney+
-
-Movie News, Toy Story 5, Hoppers, Pixar, Disney+
-
-Sun, 19 Jul 2026 09:40:15 GMT
-
-https://collider.com/pixar-hoppers-streaming-success-disney-plus-july-2026/
-
-Fans are revisiting Pixar's 2026 sleeper gem, Hoppers, sending it up the streaming charts. Here's everything you should know.
----------
-
-# 8 Great Crime Shows Overshadowed by 'Breaking Bad'
-
-TV, Crime, Breaking Bad, Your Honor, Boardwalk Empire
-
-Sun, 19 Jul 2026 09:26:15 GMT
-
-https://collider.com/crime-shows-overshadowed-by-breaking-bad/
-
-Explore brilliant crime series that fell under Breaking Bad's shadow, each offering unique thrills and suspense, from Boardwalk Empire to Your Honor.
----------
-
-# Say Goodbye to Matt Damon's Mind-Bending Sci-Fi Thriller
-
-Movie News, The Adjustment Bureau, Matt Damon, Emily Blunt, Sci-Fi
-
-Sun, 19 Jul 2026 09:20:15 GMT
-
-https://collider.com/matt-damon-sci-fi-the-adjustment-bureau-leaving-peacock-august-2026/
-
-Matt Damon and Emily Blunt's underrated sci-fi movie The Adjustment Bureau is about to be removed from Peacock. Find out when.
----------
-
-# The Best Movie in a $7 Billion Franchise Is Quietly Crushing the Competition on Streaming
-
-Movie News, Fast Five, Vin Diesel, Peacock, Streaming
-
-Sun, 19 Jul 2026 09:00:15 GMT
-
-https://collider.com/fast-five-streaming-success-peacock-july-2026/
-
-Ahead of a franchise return, Vin Diesel's Fast Five is a streaming hit again. Find out where to watch the action-packed sequel here.
----------
-
-# The Landmark Western Quentin Tarantino Called “Ugly” Is Streaming for Free
-
-Movie News, McCabe & Mrs. Miller, Warren Beatty, Robert Altman, Quentin Tarantino
-
-Sun, 19 Jul 2026 08:40:15 GMT
-
-https://collider.com/mccabe-and-mrs-miller-western-streaming-free-tubi-july-2026/
-
-The Western film that Quentin Tarantino said has the "worst-mixed opening act in the history of Hollywood" is streaming for free. Find out more.
----------
-
-# 10 Years Later, Tom Hardy's Brutal Western Thriller Is Officially Taking Over Streaming
-
-Movie News, The Revenant, Tom Hardy, Leonardo DiCaprio, Alejandro G. Inarritu
-
-Sun, 19 Jul 2026 08:20:15 GMT
-
-https://collider.com/tom-hardy-neo-western-the-revenant-streaming-success-prime-video-july-2026/
-
-The Revenant, the Oscar-winning neo-Western starring Tom Hardy and Leonardo DiCaprio, has stormed back into the global streaming top 10.
----------
-
-# It's the End of an Era for This Cult Sci-Fi Thriller on Paramount+
-
-Movie News, Denzel Washington, Russell Crowe, Virtuosity, Sci-Fi
-
-Sun, 19 Jul 2026 08:00:15 GMT
-
-https://collider.com/russell-crowe-virtuosity-sci-fi-thriller-leaving-paramount-plus-august-2026/
-
-The bizarre sci-fi thriller Virtuosity, starring Denzel Washington and Russell Crowe, is about to leave its streaming home. Find out more.
----------
-
-# Pokémon Winds & Waves' Latest Leak Is Its Biggest Yet
-
-Gaming, Pokemon Winds and Waves, Triple-A Games
-
-Sun, 19 Jul 2026 07:00:12 GMT
-
-https://screenrant.com/pokemon-winds-waves-pokedex-300-new-pokemon-leak/
-
-After an unprecedented leak
----------
-
-# Baldur's Gate 3 Gets Official New Release For July 2026
-
-Gaming, Baldur's Gate 3, PC, Dungeons & Dragons
-
-Sun, 19 Jul 2026 06:00:11 GMT
-
-https://screenrant.com/baldurs-gate-3-necromancy-thay-book-release-july-2026/
-
-Baldur's Gate 3 is getting an official new release later this month featuring one of the game's most iconic pieces of lore.
----------
-
-# 'Call of Duty' Director Peter Berg Reveals Which 'CoD' Games Fuel the Plot
-
-Movie News, Call of Duty
-
-Sun, 19 Jul 2026 05:28:08 GMT
-
-https://movieweb.com/call-of-duty-modern-warfare-movie/
-
-The upcoming 'Call of Duty' movie, written by Taylor Sheridan, will be set in the same universe as the 'Modern Warfare' games.
----------
-
-# Xbox Game Pass Members, Mark Your Calendars For July 21
-
-Gaming, Xbox Game Pass
-
-Sun, 19 Jul 2026 05:00:12 GMT
-
-https://screenrant.com/xbox-game-pass-july-21-releases/
-
-A huge, critically acclaimed co-op survival game hits Xbox Game Pass on July 21, and here are all the reasons you'll want to give it a shot.
----------
-
-# It's Official, Invincible Begins A New Chapter This Month
-
-Gaming, Invincible, Triple-A Games
-
-Sun, 19 Jul 2026 04:01:12 GMT
-
-https://screenrant.com/invincible-rpg-releases-july-30-2026-reminder/
-
-The Invincible series is marching toward its conclusion in the TV realm, but July 30 is a huge day for fans of the franchise.
----------
-
-# Should You Choose File Not Found Background in Starfield?
-
-Gaming, Starfield
-
-Sun, 19 Jul 2026 03:59:11 GMT
-
-https://screenrant.com/starfield-file-not-found-background-traits-differences/
-
-Out of all the options one can make at the start of their Starfield journey, perhaps none are more mysterious than the File Not Found background.
----------
-
-# 5 Naruto Villain Designs That Are 10/10 Perfect
-
-Anime, Naruto
-
-Sun, 19 Jul 2026 03:58:04 GMT
-
-https://screenrant.com/best-naruto-villain-design-perfect/
-
-Explore how Naruto's villains have iconic designs that flawlessly reflect their personalities and abilities, making them unforgettable.
----------
-
-# Whisper It, But Sauron Is The Lord Of The Rings' Biggest Failure
-
-Movies, The Lord of the Rings
-
-Sun, 19 Jul 2026 03:51:24 GMT
-
-https://screenrant.com/lord-of-the-rings-sauron-failure/
-
-Sauron set the standard for the fantasy villain, but it's interesting to consider how much he simply didn't achieve in The Lord of the Rings.
----------
-
-# One Piece Remake Producer Drops First Season 2 Hint (Exclusive)
-
-Anime, The One Piece
-
-Sun, 19 Jul 2026 03:30:12 GMT
-
-https://screenrant.com/one-piece-remake-season-2-update-george-wada/
-
-The most ambitious anime remake in recent memory has plenty of eyes on its February 2027 release, with many more curious about its future beyond that.
----------
-
-# 5 Years Later, This Prime Video Crime Thriller Series Is Still One of Streaming's Greatest Masterpieces
-
-TV, Prime Video, Masked Recs
-
-Sun, 19 Jul 2026 03:30:12 GMT
-
-https://screenrant.com/prime-video-thriller-masterpiece-mouse-streaming/
-
-The exceptional quality of this series has cemented its status as one of the best crime thrillers available on Prime Video, long after its premiere.
 ---------
