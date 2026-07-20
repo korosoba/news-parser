@@ -1,3 +1,344 @@
+# King Of The Hill Season 15 Debuts To Rare Rotten Tomatoes Score
+
+TV, King of the Hill, King of the Hill - Season 15
+
+Mon, 20 Jul 2026 15:20:06 GMT
+
+https://screenrant.com/king-of-the-hill-season-15-rotten-tomatoes-score/
+
+All 10 episodes of King of the Hill season 15 are now available on Hulu, and the show’s return is already earning stunning reviews from critics.
+---------
+
+# Alan Ritchson Announces Major Reacher Season 5 News Ahead Of Season 4 Debut
+
+TV, Reacher
+
+Mon, 20 Jul 2026 15:13:14 GMT
+
+https://screenrant.com/reacher-season-5-filming-start-confirm-alan-ritchson/
+
+Before season 4 could even premiere on Prime Video, Alan Ritchson has already made an exciting announcement about the status of Reacher season 5.
+---------
+
+# Kevin Feige Gets Brutally Honest About Marvel’s Failed Blade Reboot
+
+Movies, Blade
+
+Mon, 20 Jul 2026 15:13:06 GMT
+
+https://screenrant.com/blade-kevin-feige-marvel-failed-reboot/
+
+Marvel's Kevin Feige gets brutally honest about Mahershala Ali's Blade, as the MCU and Blade's futures remain in the balance ahead of Doomsday.
+---------
+
+# 14 Years Later, Prometheus Will Age Better Than Alien: Romulus
+
+Movies, Alien, Alien: Romulus, Prometheus
+
+Mon, 20 Jul 2026 15:02:11 GMT
+
+https://screenrant.com/prometheus-aging-better-than-alien-romulus/
+
+Despite its flaws, the prequel Prometheus took the Alien franchise to daring new places, with ambitious visuals and a mysterious, otherworldly tone.
+---------
+
+# Supernatural Is Giving Sam & Dean 2 Separate Spinoff Series
+
+Comics, Supernatural
+
+Mon, 20 Jul 2026 15:00:48 GMT
+
+https://screenrant.com/supernatural-sam-dean-two-spinoff-series/
+
+Supernatural is officially bringing Dean and Sam Winchester back this fall. AND the two brothers will each be getting their own series.
+---------
+
+# Avatar Aang: The Last Airbender Review - ATLA Sequel Movie Fails To Live Up To Its Grand Legacy
+
+New Movies, Avatar Aang: The Last Airbender
+
+Mon, 20 Jul 2026 15:00:11 GMT
+
+https://screenrant.com/avatar-aang-the-last-airbender-movie-review/
+
+The new movie from original series creators returns to the beloved fantasy world, but Avatar Aang: The Last Airbender is a bit of a letdown.
+---------
+
+# Point Break Returns to Theaters for 35th Anniversary
+
+Movies, Point Break
+
+Mon, 20 Jul 2026 14:56:30 GMT
+
+https://screenrant.com/point-break-35th-anniversary-theatrical-release/
+
+Exclusive: ScreenRant presents the trailer for Point Break’s 35th anniversary, as the summer classic returns to theaters on August 16 and 19!
+---------
+
+# Christopher Nolan’s The Odyssey Shatters Yet Another Major Record
+
+Movies, The Odyssey
+
+Mon, 20 Jul 2026 14:33:07 GMT
+
+https://screenrant.com/the-odyssey-christopher-nolan-letterboxd-record/
+
+Christopher Nolan's The Odyssey continues on its path of global domination, with the fantasy epic now breaking a major all-time movie record.
+---------
+
+# 10 TV Theme Songs That Perfectly Represent Their Show (#1 Is Still Iconic)
+
+Classic TV
+
+Mon, 20 Jul 2026 14:00:11 GMT
+
+https://screenrant.com/sopranos-theme-song-tv-perfect-representation/
+
+The very best TV theme songs are a perfect representation of the tone and feel of their series, like The Sopranos or Curb Your Enthusiasm.
+---------
+
+# GTA Vice City: New Legacy Released While We Wait For GTA 6
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Mon, 20 Jul 2026 14:00:11 GMT
+
+https://screenrant.com/gta-vice-city-new-legacy-unofficial-expansion/
+
+We're about to head back to Vice City in a big way in GTA VI, but if you fancy returning before that, there is a fun way to do so.
+---------
+
+# 10 Ways Boruto Has Actually Improved On Naruto's World-Building
+
+Anime, Boruto: Naruto Next Generations, Naruto, Naruto: Shippuden, shonen anime
+
+Mon, 20 Jul 2026 15:15:15 GMT
+
+https://www.cbr.com/how-boruto-improves-narutos-world-building/
+
+Masashi Kishimoto created one of shonen’s best settings in Naruto, and the sequel shows what happens when that world finally moves forward.
+---------
+
+# Supernatural Officially Confirms the Winchesters Splitting Up
+
+Comics, Supernatural
+
+Mon, 20 Jul 2026 15:04:07 GMT
+
+https://www.cbr.com/supernatural-officially-confirms-the-winchesters-splitting-up/
+
+Dynamite Entertainment will be splitting its hit Supernatural comic book series into TWO books in October, as the WInchesters both go solo
+---------
+
+# DC Comics Officially Reveals New Wonder Woman For A Bold New Era
+
+Comics, DC Comics, DCU, Wonder Woman, Justice League
+
+Mon, 20 Jul 2026 15:00:15 GMT
+
+https://www.cbr.com/dc-comics-officially-reveals-new-wonder-woman/
+
+The world has never, ever seen Wonder Woman like this before.
+---------
+
+# Disney's New Sequel in 11-Year-Old Franchise Is Officially the Most Streamed Title in the World, Replacing Avatar: Fire & Ash
+
+Movies, Descendants: Wicked Wonderland
+
+Mon, 20 Jul 2026 15:00:15 GMT
+
+https://www.cbr.com/disney-descendants-wicked-wonderland-streaming-success-july-2026/
+
+James Cameron's latest Avatar movie falls under the weight of Disney's beloved musical fantasy franchise.
+---------
+
+# 5 Underrated MAPPA Anime That Aren't Jujutsu Kaisen
+
+Anime, Terror in Resonance, Kids on the Slope, Yuri on Ice, Dorohedoro, mappa, Jujutsu Kaisen
+
+Mon, 20 Jul 2026 15:00:15 GMT
+
+https://www.cbr.com/underrated-studio-mappa-anime-not-jujutsu-kaisen/
+
+MAPPA isn't just capable of producing the best action anime. The studio is responsible for these masterpieces, from realistic romance to the absurd.
+---------
+
+# Avatar Aang Review: The Last Airbender Finally Gets the Movie It Deserves
+
+Movies, Avatar Aang: The Last Airbender, Avatar: The Last Airbender, Paramount Plus
+
+Mon, 20 Jul 2026 15:00:15 GMT
+
+https://www.cbr.com/avatar-aang-the-last-airbender-review/
+
+The Avatar has grown up, so it's time he confronts his past in a sequel film that resembles the spirit of the original Nickelodeon series.
+---------
+
+# Peacock's 8-Part Drama With 1 of TV's Best Casts Will Go Down as a Modern Miniseries Classic
+
+TV, Peacock, The Five-Star Weekend, Drama
+
+Mon, 20 Jul 2026 15:00:15 GMT
+
+https://www.cbr.com/peacock-five-star-weekend-modern-miniseries-classic/
+
+Peacock's latest miniseries is an instant classic with a stacked cast oozing chemistry throughout every episode.
+---------
+
+# Masters of the Universe Sets Surprising Streaming Release Date After Bombing in Theaters
+
+Movies, Masters of the Universe
+
+Mon, 20 Jul 2026 14:36:53 GMT
+
+https://www.cbr.com/masters-of-the-universe-prime-video-release-date/
+
+The reboot gave He-Man powers again, but it didn't do much good.
+---------
+
+# 6 Near-Perfect Hard Sci-Fi Movies Nobody Remembers
+
+Movies, Sci-Fi
+
+Mon, 20 Jul 2026 14:30:15 GMT
+
+https://www.cbr.com/perfect-hard-sci-fi-movies-no-one-remembers-list/
+
+Some of the best science fiction movies in recent memory have already been forgotten by the masses, so here's a refresher.
+---------
+
+# Star Trek Officially Confirms Captain Kirk's Final Villain Ever
+
+Comics, Star Trek
+
+Mon, 20 Jul 2026 14:30:15 GMT
+
+https://www.cbr.com/star-trek-captain-kirk-final-villain-story/
+
+Star Trek just revealed the last villain Captain Kirk will face, and they are a surprising adversary worthy of being his final battle.
+---------
+
+# The Ultimate ’80s Toy Crossover Has Finally Arrived [Exclusive]
+
+TV News, The Toys That Made Us, Kickstarter, Comic Book, Netflix
+
+Mon, 20 Jul 2026 15:00:15 GMT
+
+https://collider.com/nacelleverse-year-zero-cover-the-toys-that-made-us-kickstarter/
+
+The Toys That Made Us is starting a Kickstarter campaign, and Collider has an exclusive first look at the project's new comic book.
+---------
+
+# ‘Avatar Aang: The Last Airbender’ Is Too Good To Be a Streaming Afterthought | Review
+
+Movie Reviews, Avatar Aang: The Last Airbender, Paramount Plus, Avatar: The Last Airbender, Steven Yeun
+
+Mon, 20 Jul 2026 15:00:15 GMT
+
+https://collider.com/avatar-aang-the-last-airbender-review-paramount-plus/
+
+Avatar Aang: The Last Airbender is one of the franchise's most beautiful chapters even if it's an epilogue that wasn't wholly necessary.
+---------
+
+# He-Man’s Epic Fantasy Adventure Officially Sets Prime Video Release
+
+Movie News, Masters of the Universe, Prime Video, Travis Knight, Nicholas Galitzine
+
+Mon, 20 Jul 2026 14:59:43 GMT
+
+https://collider.com/masters-of-the-universe-prime-video-digital-release-date-july-2026/
+
+Masters of the Universe, starring Nicholas Galitzine as He-Man and Jared Leto as Skeletor, arrives to buy or rent on Prime Video this week.
+---------
+
+# 7 Years Later, Kevin Feige Takes Responsibility for Marvel’s Biggest Failure
+
+Movie News, Blade, Kevin Feige, MCU, Marvel
+
+Mon, 20 Jul 2026 14:44:43 GMT
+
+https://collider.com/marvel-mcu-blade-movie-delays-mahershala-ali-kevin-feige-regrets/
+
+Kevin Feige shares his regret over Marvel’s delayed Blade movie, admitting he feels like a “gigantic loser” for not getting it made.
+---------
+
+# 'The Vampire Lestat's Creator Answers All Our Burning Questions About the Finale
+
+Exclusives, The Vampire Lestat, Interview with the Vampire, AMC, Rolin Jones
+
+Mon, 20 Jul 2026 14:00:15 GMT
+
+https://collider.com/the-vampire-lestat-episode-7-finale-creator-rolin-jones-interview/
+
+The Vampire Lestat creator Rolin Jones explains the finale's biggest twists and why there might be another title change coming for the show.
+---------
+
+# Forget ‘Severance,’ Apple TV’s Greatest Series Returns In Less Than 1 Month
+
+Features, Apple TV, Ted Lasso, Severance
+
+Mon, 20 Jul 2026 15:00:12 GMT
+
+https://movieweb.com/ted-lasso-apple-tv-season-4/
+
+'Severance,' the sci-fi series starring Adam Scott, is one of Apple TV's best shows, but another big hit is returning soon.
+---------
+
+# Before 'NCIS,' Pauley Perrette Had a Role in This Star-Studded Oscar Winner
+
+Features, NCIS
+
+Mon, 20 Jul 2026 14:27:21 GMT
+
+https://movieweb.com/ncis-pauley-perrette-in-almost-famous/
+
+A beloved cult classic of the 2000s featured a supporting role from an 'NCIS' favorite.
+---------
+
+# 'Masters of the Universe' Officially Confirms Streaming Release Date
+
+Movie News, Masters of the Universe
+
+Mon, 20 Jul 2026 14:23:29 GMT
+
+https://movieweb.com/masters-of-the-universe-prime-video-july-streaming-date/
+
+You can soon have the power from the comfort of your own home when 'Masters of the Universe' arrives on Prime Video.
+---------
+
+# 6 Box Office Records 'The Odyssey' Has Already Broken
+
+Movie Lists, The Odyssey
+
+Mon, 20 Jul 2026 14:01:12 GMT
+
+https://movieweb.com/odyssey-box-office-records-broken/
+
+'The Odyssey,' Christopher Nolan's adaptation of Homer's epic, stars Matt Damon, Anne Hathaway, Zendaya, and Robert Pattinson.
+---------
+
+# Ryan Reynolds Confirms the Future of 'Deadpool' in the MCU
+
+Movie News, Deadpool, Ryan Reynolds, Marvel Cinematic Universe
+
+Mon, 20 Jul 2026 13:50:51 GMT
+
+https://movieweb.com/ryan-reynolds-confirms-deadpool-4-mcu/
+
+The 'Deadpool & Wolverine' star shares an update on Wade Wilson's future in the MCU.
+---------
+
+# Netflix's New 99-Minute Erotic Thriller Is Officially a Smash Hit on Streaming
+
+Movie News, Netflix, Thriller, Hot on Streaming
+
+Mon, 20 Jul 2026 13:45:12 GMT
+
+https://movieweb.com/desire-erotic-thriller-netflix-streaming-hit-july-2026/
+
+A new forbidden romance directed by Teresa Suárez has come out nowhere to become one of Netflix's biggest hits.
+---------
+
 # Marvel Officially Reveals Robert Downey Jr.'s Doctor Doom Design In First Avengers: Doomsday Trailer
 
 Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
@@ -5155,345 +5496,4 @@ Sat, 18 Jul 2026 21:15:15 GMT
 https://www.cbr.com/overpowered-naruto-techniques-as-plot-devices/
 
 Naruto's world is full of incredible abilities, but some techniques exceed power levels, becoming solutions to problems that should be unsolvable.
----------
-
-# The Best Far Side Comics About Holidays, Ranked
-
-Comics, The Far Side
-
-Sat, 18 Jul 2026 21:00:15 GMT
-
-https://www.cbr.com/the-best-far-side-holiday-comics-ever-written/
-
-Some of the best Far Side holiday strips reflected Gary Larson’s poignant and irreverent attitudes toward the traditions surrounding the holidays.
----------
-
-# 8 Greatest Mystery Movies Worth Watching Again and Again, Ranked
-
-Movies, Mystery, Knives Out
-
-Sat, 18 Jul 2026 21:00:15 GMT
-
-https://www.cbr.com/most-rewatchable-mystery-movies-ranked-list/
-
-These must-watch mystery movies get even better upon repeated viewings.
----------
-
-# 10 Fantasy Shows That Are a Masterclass in Worldbuilding
-
-TV, Fantasy, Game Of Thrones, The Wheel of Time, Avatar: The Last Airbender
-
-Sat, 18 Jul 2026 21:41:14 GMT
-
-https://collider.com/best-fantasy-shows-worldbuilding/
-
-Explore the best fantasy series known for exceptional worldbuilding, including Game of Thrones, His Dark Materials, and The Wheel of Time.
----------
-
-# Netflix's Paranoid Sci-Fi Masterpiece Is the Perfect Weekend Watch
-
-Movie Features, Bugonia, Yorgos Lanthimos, Emma Stone, Jesse Plemons
-
-Sat, 18 Jul 2026 21:30:15 GMT
-
-https://collider.com/netflixs-paranoid-sci-fi-masterpiece-perfect-weekend-watch/
-
-With Yorgos Lanthimos' Bugonia making the rounds on Netflix, now is the perfect time to watch  (or rewatch) the Best Picture nominee.
----------
-
-# Forget 'Off Campus,' The Steamiest Movie of the Decade Is Leaving Streaming
-
-Movie News, Challengers, Off Campus, Zendaya, Peacock
-
-Sat, 18 Jul 2026 21:30:15 GMT
-
-https://collider.com/zendaya-challengers-leaving-peacock-august-2026/
-
-The steamy romantic drama Challengers, starring Zendaya, is about to be removed from Peacock. Find out more.
----------
-
-# 3 Years Later, This Sci-Fi Masterpiece Is Still the Most Disturbing Dystopian Film on Netflix
-
-Movie Features, Paradise, Sci-Fi, Netflix, Thriller
-
-Sat, 18 Jul 2026 21:30:15 GMT
-
-https://collider.com/netflix-sci-fi-masterpiece-paradise-disturbing-dystopian/
-
-Netflix's 2023 German sci-fi thriller 'Paradise,' directed by Boris Kunz, examines the terrifying consequences of making years a commodity.
----------
-
-# Guy Ritchie Is Officially Outdoing ‘MobLand’ With New Prime Video Crime Thriller Series
-
-TV News, Guy Ritchie, MobLand, Prime Video, Paramount Plus
-
-Sat, 18 Jul 2026 21:15:15 GMT
-
-https://collider.com/guy-ritchie-prime-video-series-capital-mobland-similarities/
-
-Guy Ritchie is officially working on a new crime thriller series at Prime Video, Capital, which aims to compete with MobLand on Paramount+.
----------
-
-# Batman's Best Video Game Would Make a Better TV Spin-Off Than 'The Penguin'
-
-TV Features, Batman: Arkham Asylum, The Penguin, Video Game, DCU
-
-Sat, 18 Jul 2026 21:10:15 GMT
-
-https://collider.com/batman-arkham-asylum-video-game-tv-series/
-
-Batman: Arkham Asylum could provide the perfect foundation for a live-action TV adaptation, offering a deep look into the Dark Knight's world.
----------
-
-# Forget ‘Reacher,’ Prime Video’s Elite Spy Thriller Just Crushed a Massive Streaming Milestone
-
-Movie News, Tom Clancy's Jack Ryan: Ghost War, Reacher, Tom Clancy's Jack Ryan, Prime Video
-
-Sat, 18 Jul 2026 21:00:15 GMT
-
-https://collider.com/prime-video-spy-thriller-jack-ryan-ghost-war-streaming-success-prime-video-july-2026/
-
-Prime Video's elite spy thriller just crushed a huge streaming milestone before the fourth season of Reacher premieres next month.
----------
-
-# 'Star Trek': 10 Captain Kirk Quotes That Still Live Rent-Free in Our Heads
-
-Movie Lists, Star Trek
-
-Sat, 18 Jul 2026 21:30:12 GMT
-
-https://movieweb.com/star-trek-captain-kirk-quotes/
-
-60 years since his television debut, Captain Kirk's words remain an inspiration to Star Trek fans and beyond.
----------
-
-# 8 Biggest Things Christopher Nolan Cut From 'The Odyssey'
-
-Movie Lists, The Odyssey
-
-Sat, 18 Jul 2026 21:15:12 GMT
-
-https://movieweb.com/the-odyssey-things-christopher-nolan-cut/
-
-How accurate is 'The Odyssey'? Well, there are definitely some things missing. Here are all the important characters and events Nolan left out.
----------
-
-# Christopher Nolan's 'The Odyssey' Earns Epic Rotten Tomatoes Audience Score
-
-Movies, The Odyssey, Christopher Nolan
-
-Sat, 18 Jul 2026 21:14:15 GMT
-
-https://movieweb.com/christopher-nolan-odyssey-rotten-tomatoes-audience-score/
-
-Christopher Nolan's The Odyssey, a $250 million adaptation of Homer's epic poem, has earned the director's highest Rotten Tomatoes scores and a projected $120 million domestic debut, surpassing expectations.
----------
-
-# Netflix Is Now Streaming the Best Sci-Fi Adaptation of the Last 15 Years
-
-Features, The Hunger Games, Netflix, Sci-Fi
-
-Sat, 18 Jul 2026 21:00:12 GMT
-
-https://movieweb.com/hunger-games-movies-streaming-netflix/
-
-Netflix is now streaming one of the greatest sci-fi adaptations to emerge in recent years, and it's arriving on the platform at the ideal time.
----------
-
-# 10 Biggest TV Shows Still To Come In 2026
-
-Streaming TV, Star Trek: Strange New Worlds, MobLand, American Horror Story, Harry Potter, The Lord of the Rings: The Rings of Power, Ted Lasso, Reacher, Stuart Fails to Save the Universe, VisionQuest, Lanterns
-
-Sat, 18 Jul 2026 20:30:11 GMT
-
-https://screenrant.com/upcoming-tv-shows-2026-still-to-come/
-
-2026 has delivered a number of major TV shows, both new and established, and these 10 are the biggest left to come for the rest of the year.
----------
-
-# It's The End Of An Era For Fox's 27-Year-Old Sitcom
-
-TV, Masked Recs
-
-Sat, 18 Jul 2026 20:30:11 GMT
-
-https://screenrant.com/family-guy-new-era-stewie-spinoff/
-
-Fox airs some of the longest running sitcoms on television, and one of them is about to undergo its biggest change in more than a decade.
----------
-
-# DC’s New Green Lantern Movie Reveal Officially Confirms A Major Change
-
-Movies, Green Lantern
-
-Sat, 18 Jul 2026 20:30:11 GMT
-
-https://screenrant.com/dcu-green-lantern-man-of-tomorrow-cast-change/
-
-Guy Gardner’s confirmed return for Man of Tomorrow further proves that DC Studios is serious about revitalizing this underutilized corps of heroes.
----------
-
-# Naruto's Live Action Movie Is 5 Steps Away From Being A Masterpiece
-
-Movies, Naruto - Live Action, Naruto
-
-Sat, 18 Jul 2026 20:30:11 GMT
-
-https://screenrant.com/naruto-live-action-movie-steps-away-masterpiece/
-
-The upcoming Naruto movie has the chance to be incredible if it can learn from past live-action adaption mistakes and execute what really matters.
----------
-
-# One Of The Most Popular Gacha Games Of All Time Is Finally Coming To PC
-
-Gaming, arknights, Triple-A Games, PC
-
-Sat, 18 Jul 2026 20:30:11 GMT
-
-https://screenrant.com/arknights-offciial-pc-release-date/
-
-After waiting for over half a decade with barely functional emulators, this expansive story-rich RPG is finally making its way to PC.
----------
-
-# 10 Greatest Non-Human Horror Movie Villains Of All Time, Ranked
-
-Movies, Horror, Alien, The Blob, The Stuff, The Birds, Jaws, Nope, Gremlins, Infested, A Quiet Place, Little Shop of Horrors
-
-Sat, 18 Jul 2026 20:30:11 GMT
-
-https://screenrant.com/best-non-human-horror-movie-villains-all-time-ranked/
-
-Some of the most horrifying villains in horror history aren't human at all, and here are ten of the best non-human horror antagonists of all time.
----------
-
-# Game Of Thrones Meets Stranger Things In HBO's 3-Part Fantasy Series
-
-Classic TV, Masked Recs
-
-Sat, 18 Jul 2026 20:15:11 GMT
-
-https://screenrant.com/his-dark-materials-hbo-game-of-thrones-meets-stranger-things/
-
-HBO's three-season fantasy show combines the political turmoil from Game of Thrones and the multiversal reality of Stranger Things to great effect.
----------
-
-# Dungeons & Dragons Drops 19 New Subclasses In Surprise Update
-
-Tabletop, Dungeons and Dragons, Dungeons & Dragons, tabletop games
-
-Sat, 18 Jul 2026 20:00:12 GMT
-
-https://screenrant.com/dungeons-dragons-new-subclasses-valda-spire-secrets-dnd/
-
-A big pack with 19 new subclasses for Dungeons and Dragons has just been released, and you can now pick quirky and humorous subclasses.
----------
-
-# DC Justice League RPG Officially Drops On July 21
-
-Gaming, Justice League, DC, Justice League Dark, Justice League Unlimited, PC
-
-Sat, 18 Jul 2026 20:00:12 GMT
-
-https://screenrant.com/dc-justice-league-unlimited-rpg-july-21/
-
-DC Justice League is getting an official role-playing game later this week on July 21, letting players fight alongside Batman, Superman, and more.
----------
-
-# 2 Fan-Favorite Game Of Thrones Stars Who Never Shared A Scene Reveal Their New Movie
-
-Movies
-
-Sat, 18 Jul 2026 19:50:41 GMT
-
-https://screenrant.com/game-of-thrones-kristofer-hivju-tom-wlaschiha-uncle-egg-movie-filming/
-
-Despite never sharing a scene together across eight seasons of Game of Thrones, these two stars are now filming a new movie toge3ther.
----------
-
-# The Chronicles of Narnia Is One of the Greatest Fantasy Franchises Ever
-
-Movies, The Chronicles of Narnia, Netflix, Fantasy
-
-Sat, 18 Jul 2026 20:30:15 GMT
-
-https://www.cbr.com/netflix-rebooting-chronicles-of-narnia-movie/
-
-Netflix's Narnia reboot is already getting audiences excited for what's to come, but it's easy to forget how important a reboot it really is.
----------
-
-# Freddy Krueger Actor Robert Englund Has 1 Request for Paramount's Nightmare on Elm Street Reboot
-
-Movies, A Nightmare on Elm Street
-
-Sat, 18 Jul 2026 20:22:40 GMT
-
-https://www.cbr.com/robert-englund-request-paramount-nightmare-on-elm-street-reboot/
-
-Robert Englund reacts to A Nightmare on Elm Street being rebooted by Paramount.
----------
-
-# 5 Anime Gods Stronger Than Superman
-
-Anime, Superman, Bleach, Dragon Ball
-
-Sat, 18 Jul 2026 20:15:15 GMT
-
-https://www.cbr.com/anime-gods-stronger-than-superman/
-
-Pitched against these multiversal anime gods, even Superman faces an insurmountable gap in power that physical invulnerability cannot bridge.
----------
-
-# The CW's Near-Perfect 4-Season Comedy Is Finally Heading to Free Streaming Next Month
-
-TV, Crazy Ex-Girlfriend, Comedy, The CW
-
-Sat, 18 Jul 2026 20:00:16 GMT
-
-https://www.cbr.com/the-cw-crazy-ex-girlfriend-comedy-streaming-free-pluto-tv-august-2026/
-
-One of the most underseen CW shows with a near-perfect Rotten Tomatoes score, Crazy Ex-Girlfriend, will be streaming for free in the United States.
----------
-
-# Ghost in the Shell Transforms Its Iconic Red Tank Into a High-End Watch for International Release
-
-Anime, The Ghost in the Shell, Ghost in the Shell, merchandise
-
-Sat, 18 Jul 2026 20:00:16 GMT
-
-https://www.cbr.com/ghost-in-the-shell-fuchikoma-garrack-watch-international-release/
-
-The release of the newest Ghost in the Shell anime coincides with a new Fuchikoma-based watch that combines the cyberpunk anime with modern style.
----------
-
-# 4 Near-Perfect Adventure Movies Ruined By The Main Character
-
-Movies, Adventure
-
-Sat, 18 Jul 2026 20:00:16 GMT
-
-https://www.cbr.com/perfect-adventure-movies-worst-main-character-list/
-
-Despite the movies themselves being great, some of the worst protagonists ruin the whole adventure.
----------
-
-# 2 Years Later, Liam Neeson's Brutal Revenge Thriller Becomes a Must-Watch on Netflix
-
-Movie News, Liam Neeson, Westerns, Netflix, In the Land of Saints and Sinners
-
-Sat, 18 Jul 2026 20:30:15 GMT
-
-https://collider.com/liam-neeson-in-the-land-of-saints-and-sinners-streaming-netflix-august-2026/
-
-Liam Neeson's underrated neo-Western, In the Land of Saints and Sinners, hits streaming two years after its release. Read on for more.
----------
-
-# 10 Greatest Grand Theft Auto Video Games
-
-Books and Comics, Video Game, Grand Theft Auto, Grand Theft Auto V, Grand Theft Auto 5
-
-Sat, 18 Jul 2026 20:29:15 GMT
-
-https://collider.com/best-grand-theft-auto-video-games-ranked/
-
-Before the highly anticipated Grand Theft Auto VI comes out, we're ranking the best entries in the long-running Grand Theft Auto video game series.
 ---------
