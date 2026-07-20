@@ -1,3 +1,300 @@
+# 5 Movies Christopher Nolan Should Make After The Odyssey
+
+Movies, Masked Recs
+
+Mon, 20 Jul 2026 22:45:11 GMT
+
+https://screenrant.com/christopher-nolan-movies-after-the-odyssey/
+
+Christopher Nolan's The Odyssey has set the bar even higher for his next movie, and there are already some interesting options for that next project.
+---------
+
+# 6 Most Banned YA Books Of All Time, Explained
+
+Books, The Perks of Being a Wallflower, Are You There God? It's Me, Margaret.
+
+Mon, 20 Jul 2026 22:35:11 GMT
+
+https://screenrant.com/banned-young-adult-fiction-explained/
+
+The most challenged Young Adult books ever.
+---------
+
+# Every 90s Kid Needs to See What Sega Just Did With Sonic
+
+Comics, Sonic the Hedgehog
+
+Mon, 20 Jul 2026 22:30:11 GMT
+
+https://screenrant.com/sonic-hedgehog-godzilla-crossover-art-best/
+
+This Sonic vs Godzilla image is beyond cool.
+---------
+
+# J. J. Abrams Is Switching Genres For His First Movie In 7 Years
+
+Movies, Masked Recs
+
+Mon, 20 Jul 2026 22:15:11 GMT
+
+https://screenrant.com/jj-abrams-new-movie-great-beyond-switch-genres/
+
+J. J. Abrams is best known for his science fiction movies, but after eight years away from the director's chair, he's dabbling in something new.
+---------
+
+# It's Confirmed: Ash Returns With New Pokémon Anime Era In 2 Weeks
+
+Anime, Pokémon, Pokemon
+
+Mon, 20 Jul 2026 22:13:53 GMT
+
+https://screenrant.com/ash-return-pokemon-new-anime-era-disney-streaming-deal/
+
+After a long absence, Ash's original Pokémon era is finally returning to streaming in a big gift for every '90s kid.
+---------
+
+# Prime Video's Upcoming Space Opera Will Be The Expanse With More Aliens
+
+Streaming TV, Masked Recs
+
+Mon, 20 Jul 2026 22:03:11 GMT
+
+https://screenrant.com/prime-video-mass-effect-series-the-expanse-with-aliens/
+
+Prime Video's ambitious upcoming sci-fi series has a lot in common with The Expanse, despite being adapted from a famous video game franchise.
+---------
+
+# 37 Years Later, TNG's Best Episode Is Still Peak Star Trek
+
+TV, Star Trek: The Next Generation, Star Trek
+
+Mon, 20 Jul 2026 22:01:11 GMT
+
+https://screenrant.com/tng-best-episode-star-trek-greatest/
+
+In a groundbreaking episode, The Next Generation upended Star Trek tradition to grapple with the philosophical implications of AI and sentience.
+---------
+
+# Final Fantasy Meets Star Trek In Perfect Square Enix JRPG Nobody Talks About
+
+Gaming, JRPG, RPG, Final Fantasy, PC, Triple-A Games
+
+Mon, 20 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/final-fantasy-meets-star-trek-perfect-square-enix-jrpg/
+
+There’s a remarkable JRPG released by Square Enix that nobody talks about, and it mixes elements from both Final Fantasy and Star Trek.
+---------
+
+# 33 Years Later, Power Rangers Prepares to Change Genres in Its New Series
+
+Comics, Power Rangers
+
+Mon, 20 Jul 2026 21:56:11 GMT
+
+https://screenrant.com/power-rangers-unlimited-change-genre-heist-explained/
+
+Power Rangers is one of the most iconic action franchises ever, but now the series is taking a surprising step into a new genre.
+---------
+
+# Robert Downey Jr.'s Most Important Marvel Chapter Begins Today
+
+Movies, Masked Recs
+
+Mon, 20 Jul 2026 21:45:11 GMT
+
+https://screenrant.com/robert-downey-jr-doomsday-marketing-begins/
+
+Robert Downey Jr. is an integral part of the fabric of the Marvel Cinematic Universe, and now the bell tolls for what will likely be his swansong.
+---------
+
+# 10 Most Recognizable Anime Characters of All Time
+
+Anime, Pokemon, Dragon Ball, One Piece
+
+Mon, 20 Jul 2026 22:15:15 GMT
+
+https://www.cbr.com/most-recognizable-popular-anime-characters/
+
+Anime characters like Son Goku and Monkey D. Luffy are known and loved worldwide.
+---------
+
+# Yellowstone's Divisive Spinoff Is Officially the Most-Watched Broadcast Show Despite 28% RT Audience Score
+
+TV, Marshals, Yellowstone, CBS
+
+Mon, 20 Jul 2026 22:00:14 GMT
+
+https://www.cbr.com/marshals-cbs-most-watched-broadcast-show/
+
+CBS's Yellowstone spinoff with divisive reviews, is the most-watched broadcast show, according to Nielsen ratings.
+---------
+
+# Absolute Batman's Success Is Being Credited to a Surprising Gen Z Trend
+
+Comics, Absolute Batman
+
+Mon, 20 Jul 2026 22:00:14 GMT
+
+https://www.cbr.com/absolute-batman-scott-snyder-tiktok/
+
+Absolute Batman's meteoric rise to fame can be attributed to one major surprise.
+---------
+
+# Prime Video's The Gatekeeper Is the Perfect Reacher Replacement
+
+Movies, Reacher, Prime Video
+
+Mon, 20 Jul 2026 22:00:14 GMT
+
+https://www.cbr.com/prime-video-the-gatekeeper-adaptation-perfect-reacher-replacement/
+
+If you're missing Alan Ritchson in Prime Video's Reacher, this upcoming action thriller adaptation is the perfect remedy.
+---------
+
+# Netflix's Reboot of Beloved 39-Year-Old Sitcom Finally Unveils First Look Ahead of September Release
+
+TV, a different world, Netflix
+
+Mon, 20 Jul 2026 21:54:51 GMT
+
+https://www.cbr.com/netflix-first-look-a-different-world-trailer/
+
+After nearly four decades, a hit 1980s sitcom gets a modern reboot on Netflix.
+---------
+
+# 'Big Bang Theory' Star Refuses to Return
+
+TV News, The Big Bang Theory, Jim Parsons, Sitcom, CBS
+
+Mon, 20 Jul 2026 22:45:14 GMT
+
+https://collider.com/the-big-bang-theory-spin-off-jim-parsons-sheldon-cooper-not-returning/
+
+Jim Parsons addresses whether he would return as Sheldon Cooper as The Big Bang Theory universe continues expanding with new spin-offs.
+---------
+
+# Anya Taylor-Joy's New Apple TV Crime Thriller Is Completely Different From the Book It's Based On
+
+TV Features, Lucky, Apple TV, Anya Taylor-Joy, Annette Bening
+
+Mon, 20 Jul 2026 22:41:14 GMT
+
+https://collider.com/lucky-anya-taylor-joy-apple-tv-crime-thriller-book-differences/
+
+Anya Taylor-Joy's new Apple TV crime thriller Lucky diverges significantly from the original novel, but how do those changes impact the story?
+---------
+
+# 3 Fantastic Movies You Need To Stream on Prime Video This Week (July 20-24)
+
+Movie, Prime Video, A Fistful of Dollars, How to Train Your Dragon, Weapons
+
+Mon, 20 Jul 2026 22:34:14 GMT
+
+https://collider.com/best-movies-prime-video-july-20-2026/
+
+How to Train Your Dragon, A Fistful of Dollars, and Weapons make up our list of the best movies to stream on Prime Video the week of July 20, 2026.
+---------
+
+# ‘Supernatural’ Officially Returns With 2 New Spin-Offs for Sam & Dean
+
+Books and Comics News, Supernatural, Jared Padalecki, Jensen Ackles
+
+Mon, 20 Jul 2026 22:11:37 GMT
+
+https://collider.com/supernatural-dean-sam-winchester-spinoff-comics-october-2026/
+
+Supernatural launches separate Dean and Sam Winchester spin-offs this October, beginning an interconnected story that splits the brothers apart.
+---------
+
+# Pokémon Officially Returns Next Month With Ash and Pikachu's New Adventure
+
+TV News, Pokémon, Pokémon 4Ever, Pokemon GO, Disney+
+
+Mon, 20 Jul 2026 22:09:05 GMT
+
+https://collider.com/pokemon-indigo-league-disney-plus-release-date/
+
+Pokémon: Indigo League comes to Disney+ next month, bringing all 52 episodes of Ash, Pikachu, Misty and Brock’s original Kanto adventure.
+---------
+
+# NCIS Reveals First-Ever Recast Character in 31 Years in New Set Video
+
+TV News, NCIS, NCIS: New York, CBS, LL Cool J
+
+Mon, 20 Jul 2026 22:07:19 GMT
+
+https://collider.com/ncis-new-york-scott-caan-new-character-first-look/
+
+A familiar face returns to the NCIS universe as a new agent in the first look at CBS’ upcoming NCIS: New York spin-off.
+---------
+
+# ‘Coyote vs. Acme’ Is Finally Getting the Premiere It Deserves [Exclusive]
+
+Movie News, Coyote Vs. Acme, Will Forte, Lana Condor, John Cena
+
+Mon, 20 Jul 2026 22:00:14 GMT
+
+https://collider.com/coyote-vs-acme-screening-san-diego-comic-con/
+
+Coyote vs. Acme is getting its first-ever public screening in San Diego this weekend. Here's how you can see it.
+---------
+
+# 'Avengers: Doomsday' Is Officially Adapting the Greatest and Most Devastating Marvel Comics Storyline
+
+Movie Features, Avengers: Doomsday, Avengers: Infinity War, Avengers: Endgame, Avengers: Secret Wars
+
+Mon, 20 Jul 2026 21:53:14 GMT
+
+https://collider.com/avengers-doomsday-trailer-time-runs-out-comic-book-greatest-storyline/
+
+The official trailer for 'Avengers: Doomsday' confirms that it's heavily based on one comic book storyline that will shatter fans' hearts.
+---------
+
+# Ryan Reynolds Confirms Deadpool’s Next Movie
+
+Movie News, Deadpool, Deadpool 2, Deadpool & Wolverine, Ryan Reynolds
+
+Mon, 20 Jul 2026 21:45:15 GMT
+
+https://collider.com/deadpool-4-ryan-reynolds-official-update/
+
+Ryan Reynolds confirms a fourth Deadpool film is in the works, hinting at exciting deep cuts from the character's history that could be featured.
+---------
+
+# The Biggest Moment in the 'Avengers: Doomsday' Trailer is a Major Letdown
+
+Movie News, Avengers: Doomsday, Marvel Cinematic Universe
+
+Mon, 20 Jul 2026 22:11:44 GMT
+
+https://movieweb.com/avengers-doomsday-trailer-steve-rogers-return-disappointment/
+
+Although the ending of this first trailer is supposed to be exciting, reactions online have proven otherwise.
+---------
+
+# Taylor Sheridan's 9-Part Western Spin-off Officially Becomes One of the Biggest Shows on Streaming
+
+TV News, Taylor Sheridan, Dutton Ranch, Yellowstone, Hot on Streaming
+
+Mon, 20 Jul 2026 22:00:12 GMT
+
+https://movieweb.com/taylor-sheridan-dutton-ranch-streaming-hit-july-2026/
+
+The 'Yellowstone' franchise officially expands, and Taylor Sheridan continues to cement himself as the king of modern television.
+---------
+
+# John Wayne's 54-Year-Old Western is the Most Accurate Wild West Film Ever
+
+Features, John Wayne, The Cowboys
+
+Mon, 20 Jul 2026 22:00:12 GMT
+
+https://movieweb.com/cowboys-john-wayne-accurate-western/
+
+John Wayne's Western movie features a historically accurate yet controversial story that angered critics at the time
+---------
+
 # Brie Larson & J.J. Abrams' New Monster Horror Movie Reveals Official Release Date
 
 Movies
@@ -5199,301 +5496,4 @@ Sun, 19 Jul 2026 12:21:14 GMT
 https://collider.com/what-your-favorite-book-genre-says-about-you/
 
 Discover how your favorite book genre reflects your personality traits, from imagination and resilience in fantasy to emotional depth in romance.
----------
-
-# Classic War Drama 'Saving Private Ryan' Is About to Leave Free Streaming
-
-Movie News, Saving Private Ryan, Coming/Leaving Streaming
-
-Sun, 19 Jul 2026 13:53:35 GMT
-
-https://movieweb.com/saving-private-ryan-leaving-free-streaming-pluto-august-2026/
-
-War movies have never been the same since this one changed the genre forever.
----------
-
-# Christopher Nolan's 97% 'The Odyssey' Already Scores Big on Streaming
-
-Movie News, The Odyssey, Hot on Streaming, Peacock
-
-Sun, 19 Jul 2026 13:43:30 GMT
-
-https://movieweb.com/christopher-nolan-odyssey-already-streaming-hit/
-
-'The Odyssey' is poised to become one of 2026's most successful movies.
----------
-
-# 'Ride or Die' Action Spy Series Tops Streaming, Earns Raves for Prime Video
-
-TV News, Ride or Die
-
-Sun, 19 Jul 2026 13:33:48 GMT
-
-https://movieweb.com/prime-video-ride-or-die-ratings-hit/
-
-Amazon's new action-comedy series Ride or Die, starring Hannah Waddingham, Octavia Spencer, and Bill Nighy, debuts at No. 1 on Prime Video with  96% Rotten Tomatoes score.
----------
-
-# 'Terminator,' 'Terminator 2' Co-Writer William Wisher Jr. Has Died at 71
-
-Movie News, Terminator 2: Judgment Day
-
-Sun, 19 Jul 2026 13:09:01 GMT
-
-https://movieweb.com/william-wisher-jr-dead-at-71/
-
-Screenwriter William Wisher Jr., known for his contributions to 'The Terminator' and 'Terminator 2: Judgment Day,' has died at the age of 71. Wisher collaborated with James Cameron on these iconic sci-fi films.
----------
-
-# Red Dead Redemption 3 Can Wait, RDR2: The Forgotten Frontier Is Coming
-
-Gaming, Red Dead Redemption, Red Dead Redemption 2
-
-Sun, 19 Jul 2026 12:00:11 GMT
-
-https://screenrant.com/red-dead-redemption-2-forgotten-frontier-fan-expansion-progress/
-
-Red Dead Redemption 2 is full of interesting locations, but one in particular is about to be thrust back into the spotlight.
----------
-
-# 10 Legendary DC Artists Who Changed Batman Forever
-
-Comics, Batman
-
-Sun, 19 Jul 2026 12:00:11 GMT
-
-https://screenrant.com/best-batman-artists-of-all-time/
-
-These are the artists who defined Batman for generations
----------
-
-# The Perfect Stranger Things Follow-Up Is A Long-Stalled Adaptation Of Best-Selling Fantasy Book Series
-
-TV
-
-Sun, 19 Jul 2026 12:00:11 GMT
-
-https://screenrant.com/stranger-things-follow-up-power-of-five-book-adaptation/
-
-A long-stalled Anthony Horowitz adaptation would make an absolutely perfect streaming series to fill the void left by Stranger Things concluding.
----------
-
-# GTA 6 Online Teaser Has Gamers Losing Their Minds
-
-Gaming, Grand Theft Auto 6, Grand Theft Auto Online, Triple-A Games
-
-Sun, 19 Jul 2026 11:55:15 GMT
-
-https://screenrant.com/gta-online-gta-6-continuation-reaction/
-
-As prepared as many fans are for Grand Theft Auto 6, there may still be a few surprises in store for Grand Theft Auto Online in the future.
----------
-
-# HBO's Harry Potter Series Has Yet To Complete Episode 1
-
-TV, Harry Potter
-
-Sun, 19 Jul 2026 11:42:39 GMT
-
-https://screenrant.com/harry-potter-hbo-episode-1-production-update/
-
-HBO is taking its time with Harry Potter, as a shocking development has come to light regarding the season 1 production update ahead of its release.
----------
-
-# 12 Perfect Books You Can Read In A Day
-
-Books, Sci-Fi, Horror
-
-Sun, 19 Jul 2026 11:30:11 GMT
-
-https://screenrant.com/perfect-short-novels-one-day-read/
-
-Must-read, binge-worthy pageturners.
----------
-
-# Hogwarts Legacy Just Got A Major Upgrade
-
-Gaming, Hogwarts Legacy
-
-Sun, 19 Jul 2026 11:30:11 GMT
-
-https://screenrant.com/hogwarts-legacy-enhanced-third-person-camera-upgrade/
-
-Hogwarts Legacy is a very solid game in its own right, but that doesn't mean improvements can't be made for your next playthrough.
----------
-
-# 5 Steamiest TV Shows of All Time
-
-TV, Bridgerton, Outlander, True Blood, Romance
-
-Sun, 19 Jul 2026 11:30:15 GMT
-
-https://www.cbr.com/steamiest-tv-shows-of-all-time-list/
-
-Be it contemporary, supernatural, or historical, shows like Bridgerton and True Blood have one thing in common.
----------
-
-# The MCU Nova Movie Is the Perfect Guardians of the Galaxy Replacement
-
-Movies, MCU, Nova, Guardians of the Galaxy
-
-Sun, 19 Jul 2026 11:30:15 GMT
-
-https://www.cbr.com/mcu-nova-movie-guardians-of-the-galaxy-replacement/
-
-A newly announced Marvel movie is the perfect Guardians of the Galaxy replacement.
----------
-
-# Netflix's Western Remake Loses Momentum to Harlan Coben's Hit Mystery Thriller
-
-TV News, Netflix, I Will Find You, Little House on the Prairie, Streaming
-
-Sun, 19 Jul 2026 12:00:15 GMT
-
-https://collider.com/little-house-on-the-prairie-i-will-find-you-streaming-success-netflix-july-2026/
-
-Little House on the Prairie is losing on the global Netflix charts to a mystery series. Here's everything you should know.
----------
-
-# Forget the Finale, This ‘Game of Thrones’ Episode Is the Greatest TV Hour Ever
-
-TV Features, Game Of Thrones, A Song of Ice and Fire, HBO, George R.R. Martin
-
-Sun, 19 Jul 2026 11:57:14 GMT
-
-https://collider.com/game-of-thrones-best-episode-red-wedding-rains-of-castamere/
-
-Game of Thrones' Rains of Castamere episode is a masterpiece of TV with exceptional performances, direction, and cultural impact.
----------
-
-# Tom Cruise and Steven Spielberg's Sci-Fi Masterpiece Is Being Cut From Streaming
-
-Movie News, Steven Spielberg, War of The Worlds, Sci-Fi, Tom Cruise
-
-Sun, 19 Jul 2026 11:45:15 GMT
-
-https://collider.com/steven-spielberg-sci-fi-war-of-the-worlds-leaving-peacock-august-2026/
-
-Steven Spielberg's sci-fi blockbuster War of the Worlds, starring Tom Cruise, is about to leave Peacock. Find out when.
----------
-
-# 10 Greatest Marvel Video Games of All Time
-
-Gaming, Video Game, Marvel's Spider-Man, Marvel Comics, Spider-Man
-
-Sun, 19 Jul 2026 11:44:15 GMT
-
-https://collider.com/best-marvel-video-games-all-time-ranked/
-
-Marvel is best known for their many comics and movies, but it's also a video game juggernaut, producing iconic titles like 2018's Marvel's Spider-Man.
----------
-
-# Apple TV Officially Sets Release Date for Chris Pratt's New Military Action Thriller
-
-Movie News, Chris Pratt, Apple TV, McG, Linda Cardellini
-
-Sun, 19 Jul 2026 11:30:15 GMT
-
-https://collider.com/chris-pratt-way-of-the-warrior-kid-apple-tv-release-date-november-20-2026/
-
-Chris Pratt's new Apple TV movie finds him playing a different kind of Navy SEAL. Get all the details here.
----------
-
-# 10 Fantasy Shows I Knew Would Be Masterpieces After the First 10 Minutes
-
-TV, Fantasy, Game Of Thrones, Supernatural, Stranger Things
-
-Sun, 19 Jul 2026 11:09:14 GMT
-
-https://collider.com/fantasy-tv-shows-masterpieces-first-10-minutes/
-
-Certain fantasy shows kick off in amazing fashion and never let up, including epic series like Game of Thrones, Supernatural, and Stranger Things.
----------
-
-# Scarlett Johansson's R-Rated Sci-Fi Thriller Is Being Wiped From Streaming
-
-Movie News, Scarlett Johansson, Under the Skin, Coming/Leaving Streaming, Sci-Fi
-
-Sun, 19 Jul 2026 12:00:12 GMT
-
-https://movieweb.com/under-the-skin-scarlett-johansson-sci-fi-stream-pluto-tv-tubi-july-2026/
-
-Ahead of the release of her new crime thriller, 'Paper Tiger,' one of Johansson's best movies is set to depart streaming at the end of the month.
----------
-
-# Assassin's Creed Origins Rebirth Is The Next-Gen Remaster Of Our Dreams
-
-Gaming, Assassin's Creed
-
-Sun, 19 Jul 2026 11:00:12 GMT
-
-https://screenrant.com/assassins-creed-origins-rebirth-reshade-mod/
-
-Assassin's Creed Origins is back and looking better than ever thanks to this free download.
----------
-
-# Star Wars Jedi: Fallen Order Officially Returns December 2026
-
-Gaming, Star Wars Jedi: Fallen Order, Star Wars
-
-Sun, 19 Jul 2026 10:48:16 GMT
-
-https://screenrant.com/star-wars-jedi-fallen-order-sequel-december-2026/
-
-This is getting out of hand. Now there are three of them! Star Wars Jedi: Fallen Order will return this December.
----------
-
-# 29 Years Later, The Original Fallout Is Getting A Remake
-
-Gaming, Fallout
-
-Sun, 19 Jul 2026 10:30:16 GMT
-
-https://screenrant.com/fallout-remake-original-game-new-vegas/
-
-The original Fallout game is more than deserving of its place in gaming history, and it's also long overdue a remake.
----------
-
-# Say Goodbye To Loki And WandaVision As 2026 Crowns Marvel's Best Show Of The Decade
-
-Streaming TV, Masked Recs, Marvel Cinematic Universe
-
-Sun, 19 Jul 2026 10:00:11 GMT
-
-https://screenrant.com/x-men-97-best-marvel-show-decade/
-
-While the Multiverse Saga has proven a challenging chapter in Marvel's history, there is a show coming in 2026 that has pulled way ahead of its peers.
----------
-
-# The Legend Of Zelda: Clockwork Realm Is A Great RPG Nobody Remembers
-
-Gaming, The Legend of Zelda
-
-Sun, 19 Jul 2026 10:00:11 GMT
-
-https://screenrant.com/legend-of-zelda-clockwork-realm-game/
-
-Discover a unique Legend of Zelda adventure with Clockwork Realm, where up to 4 players cooperate to defeat Ganondorf.
----------
-
-# The Funniest Far Side Comics Featuring Flowers, Ranked
-
-Comics, The Far Side
-
-Sun, 19 Jul 2026 11:00:15 GMT
-
-https://www.cbr.com/best-far-side-comics-flowers-ranked/
-
-The Far Side is willing to make the most of nature's most beloved flora through unique comic strips.
----------
-
-# Spider-Man: Brand New Day Officially Teases Venom’s MCU Debut
-
-Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
-
-Sun, 19 Jul 2026 10:30:19 GMT
-
-https://www.cbr.com/spider-man-brand-new-day-venom-mcu-debut-tease/
-
-Fans are desperate to see Spider-Man battle Venom in the MCU, and one scene from Brand New Day might make this even more likely.
 ---------
