@@ -1,3 +1,223 @@
+# Hit "Wizard Of Oz Meets Texas Chainsaw Massacre" Thriller Releases On Hulu Next Week
+
+Movies, Masked Recs
+
+Tue, 21 Jul 2026 22:52:09 GMT
+
+https://screenrant.com/pearl-hulu-streaming-release-date-august-2026/
+
+A hit thriller, which has been described as "The Wizard of Oz meets Texas Chainsaw Massacre," is officially releasing on Hulu next week.
+---------
+
+# 10 Animated Fantasy Shows With Flawless Worldbuilding
+
+Classic TV, Fantasy
+
+Tue, 21 Jul 2026 22:45:11 GMT
+
+https://screenrant.com/best-animated-fantasy-shows-worldbuilding/
+
+Every fantasy series takes the viewer on a whirlwind journey with its story, but the best create vivid worlds that are just as unforgettable.
+---------
+
+# 10 Best Picard Quotes In Star Trek History
+
+Classic TV, Star Trek
+
+Tue, 21 Jul 2026 22:30:11 GMT
+
+https://screenrant.com/best-picard-quotes-star-trek/
+
+Few Star Trek characters are as wise, eloquent, or speak with the gravitas of Captain Jean-Luc Picard, and each of his greatest quotes proves it.
+---------
+
+# 5 Far Side Insect Comics That Are 10/10 Perfect
+
+Comics, The Far Side
+
+Tue, 21 Jul 2026 22:30:11 GMT
+
+https://screenrant.com/far-side-insect-bugs-comics-gary-larson-best/
+
+Gary Larson's favorite subject?
+---------
+
+# 10 Best Captain America Moments In The MCU (On The First Avenger's 15th Anniversary)
+
+Classic Movies, Captain America
+
+Tue, 21 Jul 2026 22:30:11 GMT
+
+https://screenrant.com/best-captain-america-mcu-moments-ranked/
+
+Captain America remains one of the best heroes to ever exist in the MCU, and here are his 10 best moments in the movies that prove this.
+---------
+
+# Brandon Sanderson Announces Surprise Stormlight Release
+
+Books, The Stormlight Archive, Brandon Sanderson
+
+Tue, 21 Jul 2026 22:23:28 GMT
+
+https://screenrant.com/brandon-sanderson-stormlight-archive-elsecaller-king-lopen-ebook-release/
+
+As the wait continues for Apple TV's The Stormlight Archive series adaptation, Brandon Sanderson has announced a new surprise release.
+---------
+
+# Avengers: Doomsday Trailer Shatters MCU Viewership Record In Just 1 Day
+
+Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Tue, 21 Jul 2026 22:15:26 GMT
+
+https://screenrant.com/avengers-doomsday-mcu-trailer-new-record/
+
+Following Marvel Studios' first official Avengers: Doomsday trailer being released, it has shattered a massive MCU viewership record in just 24 hours.
+---------
+
+# Star Wars' Canceled Ben Solo Movie Is A Bigger Miss Than Ever
+
+Movies, Star Wars, Adam Driver, Ben Solo/Kylo Ren, Marvel Cinematic Universe
+
+Tue, 21 Jul 2026 22:15:11 GMT
+
+https://screenrant.com/star-wars-ben-solo-movie-adam-driver-hunt-for-ben-solo-worse/
+
+It was already disappointing that Disney canceled Adam Driver's The Hunt for Ben Solo, but a new reveal about the MCU makes it even worse than before.
+---------
+
+# 5 Square Enix RPGs That Are 10/10 Masterpieces, No Notes
+
+Gaming, Square Enix, Final Fantasy, Dragon Quest, Star Ocean, Chrono Trigger
+
+Tue, 21 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/square-enix-10-rated-rpgs-no-notes/
+
+Square Enix has been making incredible RPGs since before the two companies merged, but these are easily the five games that are perfect 10/10s.
+---------
+
+# 8 Reasons It’s Tough to Watch Yu-Gi-Oh! Today
+
+Anime, Yu-Gi-Oh!
+
+Tue, 21 Jul 2026 22:15:15 GMT
+
+https://www.cbr.com/yugioh-reasons-its-tough-to-watch-today/
+
+Yu-Gi-Oh! is a classic 2000s kids anime that made millions want to play the TCG, but it can be tough to watch today.
+---------
+
+# Netflix's New 8-Part Western Is Officially 1 of the Most-Watched Shows in the World
+
+TV, Little House on the Prairie, Netflix
+
+Tue, 21 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/little-house-on-the-prairie-western-netflix-global-success-july-2026/
+
+The show gathered steam in its second week, despite "woke" allegations.
+---------
+
+# It's the End of an Era for the Mortal Kombat Movies After 5 Years
+
+Movies, Mortal Kombat, Mortal Kombat II
+
+Tue, 21 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/mortal-kombat-2-digital-release-ends-franchise-era/
+
+Mortal Kombat II's new release marks the end of an era for the franchise after only five years. What comes next?
+---------
+
+# 'Avengers: Doomsday' Breaks New Record 6 Months Before It Hits Theaters
+
+Movie News, Avengers: Doomsday, Avengers: Doomsday (2026), MCU, Avengers: Secret Wars
+
+Tue, 21 Jul 2026 22:52:42 GMT
+
+https://collider.com/avengers-doomsday-trailer-most-viewed-disney-record-503-million-views/
+
+Avengers: Doomsday's recently released teaser is the second biggest trailer launch of all time, just behind Spider-Man: Brand New Day.
+---------
+
+# Only 1 Superman Adaptation Has Outperformed Every Other Live-Action Version
+
+TV Features, Superman, Smallville, James Gunn, Hulu
+
+Tue, 21 Jul 2026 22:47:14 GMT
+
+https://collider.com/smallville-best-superman-adaptation-kent-parents/
+
+Smallville quietly outperformed every other live-action Superman adaptation by making Jonathan and Martha Kent essential to Clark’s heroic journey.
+---------
+
+# 'Yesteryear’ Exposes the Horror Hiding Inside the Tradwife Fantasy
+
+Books and Comics, Thriller, The Stepford Wives, Anne Hathaway, Gone Girl
+
+Tue, 21 Jul 2026 22:43:14 GMT
+
+https://collider.com/yesteryear-tradwife-thriller-books/
+
+Yesteryear is the most popular and divisive installment of the tradwife thriller novel yet.
+---------
+
+# The Greatest Sci-Fi Movie of the 2010s Is Streaming for Free, So Now You Have No Excuse Not to Watch
+
+Movie Features, Gravity, Alfonso Cuaron, Sandra Bullock, George Clooney
+
+Tue, 21 Jul 2026 22:21:14 GMT
+
+https://collider.com/gravity-movie-sandra-bullock-streaming-free-pluto-tv-july-2026/
+
+2013's Sandra Bullock sci-fi drama Gravity, which earned a best director Oscar for Alfonso Cuarón, is streaming free on Pluto TV.
+---------
+
+# Marvel Officially Renames Doctor Doom Ahead of Major MCU Debut
+
+Books and Comics News, MCU, Godzilla, Marvel Comics, Doctor Doom
+
+Tue, 21 Jul 2026 22:00:14 GMT
+
+https://collider.com/doctor-doom-new-name-captain-latveria-godzilla-conquers-the-multiverse-1/
+
+Marvel gives Doctor Doom a new name in a bonkers new release ahead of the character’s MCU debut in Avengers: Doomsday.
+---------
+
+# New Reimagining of 'Texas Chain Saw Massacre' Is Officially Underway
+
+Movie News, Texas Chain Saw Massacre, Texas Chainsaw Massacre
+
+Tue, 21 Jul 2026 22:28:14 GMT
+
+https://movieweb.com/texas-chainsaw-massacre-rotoscope-remake-leatherface/
+
+A rotocoped recreation of the 1974 classic is expected to be released in 2027.
+---------
+
+# Netflix’s Most Binge-Worthy Neo-Western Series Returns in 2 Days
+
+Features, Ransom Canyon, Netflix
+
+Tue, 21 Jul 2026 22:00:12 GMT
+
+https://movieweb.com/ransom-canyon-netflix-season-2/
+
+Netflix's popular Neo-Western TV series is coming back in July 2026, and fans will want to binge-watch it right away.
+---------
+
+# Prime Video Scores New Streaming Hit With $540 Million Sci-Fi Action Hit
+
+Movie News, World War Z, Prime Video, Hot on Streaming, Action, Sci-Fi
+
+Tue, 21 Jul 2026 22:00:12 GMT
+
+https://movieweb.com/world-war-z-scifi-action-stream-prime-july-2026/
+
+The sci-fi horror action hit 'World War Z' is a streaming success on Prime Video ahead of the upcoming sequel with Brad Pitt.
+---------
+
 # Spider-Man: Beyond The Spider-Verse’s New Animated Sequences Get Exciting Early Tease From Jake Johnson
 
 Movies, Spider-Man: Beyond the Spider-Verse, Spider-Verse
@@ -5276,224 +5496,4 @@ Mon, 20 Jul 2026 13:20:27 GMT
 https://screenrant.com/x-men-new-rivalry-wolverine-son/
 
 X-Men's new hero feud goes from simmer to boil.
----------
-
-# Masters Of The Universe’s Digital Release Date Officially Confirmed
-
-Movies, Masters of the Universe
-
-Mon, 20 Jul 2026 13:17:54 GMT
-
-https://screenrant.com/masters-of-the-universes-digital-release-date-officially-confirmed/
-
-The official streaming release date for the new He-Man movie, Masters of the Universe, is unveiled, and it is coming surprisingly soon.
----------
-
-# Avengers: Doomsday Official Trailer Reveals X-Men Return As Dr. Doom Devastates The MCU
-
-Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
-
-Mon, 20 Jul 2026 13:01:46 GMT
-
-https://screenrant.com/avengers-doomsday-trailer/
-
-Marvel Studios has finally released the first full official Avengers: Doomsday trailer, revealing new footage from the major Phase 6 installment.
----------
-
-# After The Boys & Invincible, Prime Video Has Another Great Superhero Show
-
-Streaming TV, Masked Recs
-
-Mon, 20 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/spider-noir-prime-video-superhero-show/
-
-Prime Video already had two great superhero shows with The Boys and Invincible, but Spider-Noir blew them both out of the water this summer.
----------
-
-# 10 Fantasy Books With The Best Lore
-
-Books, Fantasy
-
-Mon, 20 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/fantasy-books-with-best-lore/
-
-Having deep lore is essential for any great fantasy book, but these novels take immersive worldbuilding to levels that it's near-impossible to match.
----------
-
-# X-Men Officially Debuts Matching Costumes for Wolverine, Rogue and More
-
-Comics, X-Men, Wolverine
-
-Mon, 20 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/x-men-new-costumes-hellfire-rogue-wolverine/
-
-X-Men introduces nanite-tech costumes.
----------
-
-# Satanic Documentary Is Making A Hell Of A Comeback On HBO Max 6 Years Later
-
-Movies, Masked Recs
-
-Mon, 20 Jul 2026 12:39:19 GMT
-
-https://screenrant.com/hail-satan-hbo-max-streaming-success-july-2026/
-
-A Satanic documentary is making one Hell of a comeback on HBO Max, six years after it was originally released in the United States.
----------
-
-# 11 Essential Turn-Based RPGs According To Metacritic
-
-Lists, Final Fantasy, Fire Emblem: Three Houses, Chrono Trigger
-
-Mon, 20 Jul 2026 12:31:14 GMT
-
-https://screenrant.com/top-turn-based-rpg-games-metacritic/
-
-The best turn-based RPGs are those that have proven themselves worthy to players through excellent storylines and exceptional gameplay mechanics.
----------
-
-# Peter Parker Completely Ignores Andrew Garfield’s No Way Home Advice In Spider-Man: Brand New Day
-
-Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
-
-Mon, 20 Jul 2026 12:30:11 GMT
-
-https://screenrant.com/spider-man-brand-new-day-peter-andrew-garfield-advice-ignore/
-
-As Tom Holland returns to the MCU this summer, Spider-Man: Brand New Day will see his Peter Parker ignore Andrew Garfield's advice from No Way Home.
----------
-
-# Avengers: Doomsday Trailer Finally Drops Ahead of Russo Brothers' Return After 7 Years
-
-Movies, Avengers: Doomsday
-
-Mon, 20 Jul 2026 13:00:48 GMT
-
-https://www.cbr.com/avengers-doomsday-official-trailer/
-
-The superhero team-up was expected to premiere the trailer around the San Diego Comic-Con.
----------
-
-# 10 Best Hellboy Short Stories, Ranked
-
-Comics, Hellboy
-
-Mon, 20 Jul 2026 13:00:15 GMT
-
-https://www.cbr.com/best-hellboy-short-stories-ranked/
-
-While the main Hellboy epic is vast, the character may work even better in shortform.
----------
-
-# The Batman Part 2 Will Officially Give Robert Pattinson a New Batsuit
-
-Movies, The Batman Part II, DCU
-
-Mon, 20 Jul 2026 13:00:15 GMT
-
-https://www.cbr.com/the-batman-part-2-new-costume-franchise-trend-dc/
-
-The Batman: Part 2 officially continues a classic franchise trend that began almost forty years ago.
----------
-
-# Tom Holland Officially Confirms The Surprise Director Who Shot His Spider-Man Costume Reveal
-
-CBR Exclusives, tom holland, Spider-Man: Brand New Day, Spider-Man
-
-Mon, 20 Jul 2026 12:00:15 GMT
-
-https://www.cbr.com/tom-holland-confirms-spider-man-brand-new-day-costume-reveal-director/
-
-This filmmaker has an eye for making Spider-Man look good on camera.
----------
-
-# 'Avengers: Doomsday' Finally Unleashes Robert Downey Jr.'s Doctor Doom in Explosive Trailer
-
-Movie News, Avengers: Doomsday, Robert Downey Jr, MCU, Chris Evans
-
-Mon, 20 Jul 2026 13:00:23 GMT
-
-https://collider.com/avengers-doomsday-trailer-robert-downey-jr-doctor-doom/
-
-The first Avengers: Doomsday trailer reveals Robert Downey Jr.’s Doctor Doom as the MCU prepares for a major reinvention.
----------
-
-# Kevin Feige Confirms Adam Driver MCU Casting Rumors
-
-Movie News, Adam Driver, Kevin Feige, MCU, X-Men
-
-Mon, 20 Jul 2026 12:51:46 GMT
-
-https://collider.com/kevin-feige-adam-driver-mcu-casting-wish/
-
-Kevin Feige confirms that he has been trying to court Adam Driver to join the MCU for years.
----------
-
-# 10 Most Fun Action Movies of All Time
-
-Movie, Raiders of the Lost Ark, Hundreds of Beavers, The Blues Brothers, Kill Bill: Vol. 1
-
-Mon, 20 Jul 2026 12:19:15 GMT
-
-https://collider.com/most-fun-action-movies-all-time-ranked/
-
-Some of the most fun action movies of all time include masterpieces like Raiders of the Lost Ark, The Blues Brothers, and Kill Bill: Vol. 1.
----------
-
-# Sadie Sink Opens Up About Her Secret 'Spider-Man: Brand New Day' Role
-
-Exclusives, Spider-Man: Brand New Day, Sadie Sink, Tom Holland, Marvel
-
-Mon, 20 Jul 2026 12:15:15 GMT
-
-https://collider.com/spider-man-brand-new-day-sadie-sink-character-secret-role/
-
-Spider-Man: Brand New Day star and Stranger Things icon Sadie Sink finally lifts back the curtain on her secret Marvel role.
----------
-
-# Henry Cavill's Netflix Spy Movie Sets Major Production Update
-
-Movie News, Henry Cavill, Netflix, Action, Kevin Hart
-
-Mon, 20 Jul 2026 12:00:15 GMT
-
-https://collider.com/henry-cavill-kevin-hart-netflix-thriller-spy-duo-production-update/
-
-Henry Cavill’s next spy comedy just hit a major production milestone, bringing an unexpected duo closer to screens.
----------
-
-# 6 Best Hard Sci-fi Movies Released Since 2000
-
-Movie, Science Fiction, The Martian, Interstellar, Arrival
-
-Mon, 20 Jul 2026 11:54:15 GMT
-
-https://collider.com/best-hard-sci-fi-movies-since-2000-ranked/
-
-Modern classics like Interstellar, The Martian, and Arrival are among the best hard sci-fi movies released since the year 2000.
----------
-
-# 10 Sci-Fi Thrillers That Are Perfect From the First Scene to the Last
-
-Movie, Science Fiction, alien, Thriller
-
-Mon, 20 Jul 2026 11:41:14 GMT
-
-https://collider.com/sci-fi-thrillers-perfect-first-scene-to-last/
-
-From Primer to Inception, these superb movies perfectly balance the sci-fi and thriller genres, remaining virtually flawless throughout their runtime.
----------
-
-# 15 Best Thriller Movies of the Last 25 Years, Ranked
-
-Movie, Thriller, Shutter Island, Oldboy, Parasite
-
-Mon, 20 Jul 2026 11:38:14 GMT
-
-https://collider.com/best-thriller-movies-last-25-years-ranked/
-
-Oldboy, Parasite, and Shutter Island are among the best thriller movies of the last 25 years.
 ---------
