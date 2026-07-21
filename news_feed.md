@@ -1,3 +1,223 @@
+# 10 Sci-Fi Ships With 10/10 Designs
+
+Movies, Sci-Fi
+
+Tue, 21 Jul 2026 01:30:11 GMT
+
+https://screenrant.com/best-sci-fi-ship-designs/
+
+Sci-fi cinema is filled with hundreds, even thousands, of perfect ship designs, but here are a handful of those that embody the genre perfectly.
+---------
+
+# Christopher Nolan’s 20-Year-Old Thriller Gets Major Upgrade For Theatrical Re-Release
+
+Movies, The Prestige, Christopher Nolan
+
+Tue, 21 Jul 2026 00:17:39 GMT
+
+https://screenrant.com/the-prestige-theatrical-re-release-70-millimeter-christopher-nolan-explained/
+
+Christopher Nolan's thriller movie released 20 years ago is returning to theaters, and he confirms that the re-release is getting a major upgrade.
+---------
+
+# Obsession Meets M3GAN In Blumhouse's Creepy New Horror Spinoff
+
+Movies, Masked Recs
+
+Tue, 21 Jul 2026 00:15:11 GMT
+
+https://screenrant.com/soulm8te-horror-movie-m3gan-meets-obsession/
+
+Blumhouse's newest franchise-expanding film is nearly here, and the erotic sci-fi thriller feels like the perfect mix of some of modern horror's best.
+---------
+
+# Christopher Nolan Just Proved The Original Dark Knight Is 3,000 Years Old
+
+Superheroes, The Odyssey, The Dark Knight, Christopher Nolan
+
+Tue, 21 Jul 2026 00:04:28 GMT
+
+https://screenrant.com/christopher-nolan-the-odyssey-parallels-to-the-dark-knight-trilogy/
+
+Although it's been 14 years since the end of Christopher Nolan's Dark Knight trilogy, the director's latest film highlights a major Batman truth.
+---------
+
+# X-Men Writer Reveals 11 Rules That Can Save the Franchise
+
+Comics, X-Men
+
+Tue, 21 Jul 2026 00:00:11 GMT
+
+https://screenrant.com/x-men-rules-gail-simone/
+
+Gail Simone's Uncanny X-Men run is guided by a set of 11 personal rules that could redefine Marvel's X-Men franchise, and here's what they are.
+---------
+
+# A 1998 PlayStation Classic Is Finally Being Remade For A Modern Platform
+
+Gaming, PlayStation, PC, Triple-A Games
+
+Tue, 21 Jul 2026 00:00:11 GMT
+
+https://screenrant.com/playstation-1998-classic-remaster-modern-platform/
+
+A classic PlayStation title released back in 1998 is making an official comeback to a modern platform this week, but with tons of huge changes.
+---------
+
+# The Vampire Lestat Stars Break Down the Louis Head Scene
+
+CBR Exclusives, The Vampire Lestat
+
+Tue, 21 Jul 2026 01:56:39 GMT
+
+https://www.cbr.com/the-vampire-lestat-louis-decapitated-head-scene/
+
+The Vampire Lestat stars explain Louis’ severed-head scene, Armand’s apology demand and the unusual logistics behind filming it.
+---------
+
+# 5 Near-Perfect RPGs Ruined by One Terrible Mechanic
+
+Games, Video Games, Horizon Zero Dawn, RPG, Lies of P
+
+Tue, 21 Jul 2026 01:45:15 GMT
+
+https://www.cbr.com/near-perfect-rpgs-ruined-by-one-mechanic/
+
+RPGs like Lies of P and Demon's Souls are fantastic to play, but have one fatal flaw holding them back.
+---------
+
+# 5 Weirdest Anime Superpowers
+
+Anime, One Piece, My Hero Academia, The Law of Ueki, Bobobo-bo Bo-bobo, Bungo Stray Dogs, superheroes
+
+Tue, 21 Jul 2026 01:25:15 GMT
+
+https://www.cbr.com/weirdest-anime-superpowers/
+
+Forget teleportation or super speed, these anime characters have way weirder powers that still make them formidable opponents in battle.
+---------
+
+# Prime Video's New 91-Minute Horror Based on Acclaimed Novel Is Officially a Hit Despite Abysmal Reviews
+
+Movies, Do Not Enter
+
+Tue, 21 Jul 2026 01:00:15 GMT
+
+https://www.cbr.com/do-not-enter-horror-prime-video-success-july-2026/
+
+The underseen horror movie gets the last laugh by finding streaming success despite its harsh reviews.
+---------
+
+# 10 Most Useful Non-Combat D&D Magic Items, Ranked
+
+Games, Dungeons and Dragons, Tabletop, Dungeons & Dragons
+
+Tue, 21 Jul 2026 00:45:15 GMT
+
+https://www.cbr.com/useful-non-combat-dnd-magic-items-ranked/
+
+Dungeons & Dragons players love using enchanted weapons and arcane wands to obliterate their foes, but the best magic items aren't used for combat.
+---------
+
+# Every Silent Hill f Ending, Explained
+
+Games, Silent Hill f
+
+Tue, 21 Jul 2026 00:35:15 GMT
+
+https://www.cbr.com/silent-hill-f-endings-explained/
+
+All five of Silent Hill f's endings, including the first ending, bad ending, and true ending, are explained here.
+---------
+
+# 32 Years Later, the Best Stephen King Show in TV History Remains 100% Untouchable
+
+TV, Stephen King, Horror, The Stand
+
+Tue, 21 Jul 2026 00:30:15 GMT
+
+https://www.cbr.com/best-stephen-king-miniseries-the-stand-1994/
+
+King's stories have always been told brilliantly through miniseries, and this 1994 massive TV event is one that still holds up today.
+---------
+
+# 27 Years Later, Beast Wars Brings Back a Forgotten Power-Up in New Transformers Release
+
+Anime, Transformers, Beast Wars: Transformers, merchandise, action figures, toys
+
+Tue, 21 Jul 2026 00:20:15 GMT
+
+https://www.cbr.com/transformers-beast-wars-lio-convoy-legendary-green-lion-release/
+
+An illuminating new Takara toy for Lio Convoy represents one of his most overlooked forms, as seen in the Beast Wars II: Transformers anime.
+---------
+
+# 5 Most Overpowered Manhwa Protagonists With Anime Adaptations, Ranked
+
+Anime, manhwa, Solo Leveling, The God of High School
+
+Tue, 21 Jul 2026 00:15:15 GMT
+
+https://www.cbr.com/overpowered-manhwa-protagonists-with-anime/
+
+Some of the most overpowered manhwa protagonists really get to show off once their series gets an anime adaptation.
+---------
+
+# The Rookie Is Officially Fixing Season 8’s Biggest Fumble
+
+TV, The Rookie, Hulu, Crime
+
+Tue, 21 Jul 2026 00:02:36 GMT
+
+https://www.cbr.com/the-rookie-season-8-episode-10-extended-cut-hulu-fix/
+
+The Rookie's special Hulu release fixes Season 8's biggest miss.
+---------
+
+# Marvel Just Teased a Major Replacement for Wolverine
+
+TV Features, X-Men '97, X-Men: The Animated Series, X-Men: Evolution, Disney+
+
+Tue, 21 Jul 2026 01:52:15 GMT
+
+https://collider.com/x-men-97-season-2-wolverine-laura-kinney-replacement-meaning/
+
+The latest episode of 'X-Men '97' just teased that a fan-favorite character could take up Wolverine's mantle in future seasons.
+---------
+
+# 3 Excellent Shows You Need to Binge on Prime Video This Week (July 20-24)
+
+TV, Prime Video, Bates Motel, Butterfly, The Middle
+
+Tue, 21 Jul 2026 01:11:14 GMT
+
+https://collider.com/prime-video-shows-binge-july-20-2026/
+
+Butterfly, Bates Motel, and The Middle make up our list of the best shows to watch on Prime Video the week of July 20th, 2026.
+---------
+
+# 10 Greatest Batman Games of All Time
+
+Gaming, Video Game, Batman: Arkham City, Lego Batman, Superhero
+
+Tue, 21 Jul 2026 00:09:14 GMT
+
+https://collider.com/best-batman-video-games-all-time-ranked/
+
+The Dark Knight has had a long career in video games, with titles like Batman: The Telltale Series and Batman: Arkham City ranking among his greatest.
+---------
+
+# 'Big Bang Theory's Jim Parsons Officially Confirms Fate of a Sheldon Return
+
+TV News, Big Bang Theory, Jim Parsons
+
+Tue, 21 Jul 2026 00:25:34 GMT
+
+https://movieweb.com/big-bang-theory-jim-parsons-return-spin-off-reaction/
+
+The actor doesn't see himself returning to the franchise to reprise his role ever again.
+---------
+
 # The Forsaken Saintess Is Resurrecting An Underrated Isekai Genre (Exclusive)
 
 Anime, Isekai, Anime Expo
@@ -5276,224 +5496,4 @@ Sun, 19 Jul 2026 15:00:12 GMT
 https://movieweb.com/narnia-bbc-fantasy-series-netflix-remake-disney-failed/
 
 The Disney 'Narnia' franchise never managed to adapt 'The Silver Chair,' and if Netflix wants to avoid the same mistake, it should look at the BBC.
----------
-
-# How HBO's New Harry Potter Series Took 7 Hours To Film Quidditch Game
-
-TV, Harry Potter
-
-Sun, 19 Jul 2026 14:56:43 GMT
-
-https://screenrant.com/harry-potter-hbo-season-1-quidditch-filming/
-
-Capturing the magic of Harry Potter is no easy task, as the Director of Photography reveals how one sequence took the crew seven hours to film.
----------
-
-# Will Ferrell's New Netflix Series Just Cemented A Streaming Rivalry
-
-Movies, The Hawk, Stick
-
-Sun, 19 Jul 2026 14:40:11 GMT
-
-https://screenrant.com/the-hawk-will-ferrell-stick-owen-wilson-rivalry/
-
-Will Ferrell and Owen Wilson have shared the screen many times, but Ferrell's latest Netflix TV show has just pitted these costars against each other.
----------
-
-# Bosch's New Era Begins After 10 Seasons
-
-Streaming TV, Masked Recs
-
-Sun, 19 Jul 2026 14:30:12 GMT
-
-https://screenrant.com/bosch-new-era-switching-casts-after-10-seasons/
-
-Bosch has been a staple of crime thrillers in the streaming era since it debuted in 2015, and after a decade Amazon is shaking up the winning formula.
----------
-
-# Robert Jordan’s The Wheel of Time Officially Returns January 2027
-
-Gaming, The Wheel of Time
-
-Sun, 19 Jul 2026 14:30:12 GMT
-
-https://screenrant.com/wheel-of-time-war-dragon-january-2027-release-date/
-
-Robert Jordan’s The Wheel of Time series is officially back next year thanks to War of the Dragon: The Wheel of Time, releasing in January 2027.
----------
-
-# 10 Greatest Crime Movies Based On Real Criminals
-
-Classic Movies, Crime
-
-Sun, 19 Jul 2026 14:15:11 GMT
-
-https://screenrant.com/crime-movies-based-on-real-criminals/
-
-There have been some great crime movies over the years, and here are the best ones released that are based on real criminals and their stories.
----------
-
-# 36 Years Later, Q's Best Line Is Still Star Trek's Greatest Insult
-
-Star Trek
-
-Sun, 19 Jul 2026 14:00:11 GMT
-
-https://screenrant.com/star-trek-best-insult-q-worf/
-
-Ouch.
----------
-
-# Game Of Thrones: The North Bannerman Duel Festival Officially Releases July 22
-
-Gaming, Game of Thrones, Game of Thrones: Kingsroad, Game Of Thrones, PC
-
-Sun, 19 Jul 2026 14:00:11 GMT
-
-https://screenrant.com/game-of-thrones-north-bannerman-duel-festival-july-22/
-
-Game of Thrones returns July 22 with The North Bannerman Duel Festival, a unique new limited-time event fans don't want to miss.
----------
-
-# Star Trek's James Kirk Officially Joins the Borg, but as a Captain or as a King?
-
-Comics, Star Trek
-
-Sun, 19 Jul 2026 14:17:38 GMT
-
-https://www.cbr.com/star-trek-last-starship-8-review-james-kirk-joins-borg/
-
-In a CBR review of Star Trek: The Last Starship #8, see James Kirk join the Borg, and learn what that means for the future of the Federation
----------
-
-# 5 Great Dark Shonen Anime Overshadowed By JJK
-
-Anime, Talentless Nana, Dark Gathering, Jujutsu Kaisen
-
-Sun, 19 Jul 2026 14:15:15 GMT
-
-https://www.cbr.com/great-dark-shonen-anime-overshadowed-by-jjk/
-
-During the height of Jujutsu Kaisen's popularity, these five dark shonen titles were overshadowed and didn't get the attention they deserved.
----------
-
-# Jon Favreau's 114-Minute The Bear Replacement Movie Is Losing Its Streaming Home Next Month
-
-Movies, Chef
-
-Sun, 19 Jul 2026 14:12:52 GMT
-
-https://www.cbr.com/jon-favreau-chef-leaving-netflix-august-2026/
-
-The Star Wars director's drama was a massive hit that led to a reality show.
----------
-
-# 10 Batman Stories That Changed Gotham Forever
-
-Comics, Batman, DC Comics, Batman: Knightfall Part 1: Knightfall
-
-Sun, 19 Jul 2026 14:00:15 GMT
-
-https://www.cbr.com/batman-stories-that-changed-gotham/
-
-Since 1939, Gotham has been shaped by a variety of key DC Comics stories into the greatest city in the medium, and some arcs are truly iconic.
----------
-
-# Christopher Nolan’s New Epic Demolishes Box-Office Expectations in Majestic Debut
-
-Movie News, The Odyssey, Christopher Nolan, Box Office, Matt Damon
-
-Sun, 19 Jul 2026 14:45:15 GMT
-
-https://collider.com/the-odyssey-box-office-debut-260-million/
-
-Christopher Nolan returns to the box office with a record-breaking opening weekend haul for The Odyssey. See how much it’s made.
----------
-
-# 'Game of Thrones' Best Character Deserved a Better Ending
-
-TV Features, Game Of Thrones, HBO Max, George R.R. Martin, Nikolaj Coster-Waldau
-
-Sun, 19 Jul 2026 14:36:15 GMT
-
-https://collider.com/jamie-lannister-deserved-a-better-ending-on-game-of-thrones/
-
-Jamie Lannister's character arc in Game of Thrones ended dismally when five seasons of character development were erased on one fell swoop.
----------
-
-# Peacock's 4-Hour Revenge Thriller Is the Perfect Weekend Binge
-
-Movie, Kill Bill: The Whole Bloody Affair, Kill Bill: Vol. 1, Kill Bill: Vol. 2, Quentin Tarantino
-
-Sun, 19 Jul 2026 14:09:15 GMT
-
-https://collider.com/kill-bill-the-whole-bloody-affair-peacock-streaming-binge/
-
-Peacock has made Kill Bill: The Whole Bloody Affair easy to binge over a weekend, and it really does hold up as an all-time great revenge thriller.
----------
-
-# Anya Taylor-Joy’s Sci-Fi Hit Refuses to Leave Apple TV's Top 10
-
-Movie News, Anya Taylor-Joy, The Gorge, Miles Teller, Apple TV
-
-Sun, 19 Jul 2026 14:00:15 GMT
-
-https://collider.com/anya-taylor-joy-the-gorge-apple-tv-top-10-milestone-500-days/
-
-Anya Taylor-Joy’s sci-fi thriller The Gorge passes a massive milestone on Apple TV’s U.S. Top 10, extending its remarkable streaming run.
----------
-
-# 'Soylent Green' Sets Date for New 4K Blu-ray Release for Sci-Fi Classic
-
-Movie News, Soylent Green
-
-Sun, 19 Jul 2026 14:35:02 GMT
-
-https://movieweb.com/soylent-green-4k-blu-ray-release/
-
-Richard Fleischer's 1973 dystopian classic 'Soylent Green' gets a limited-edition 4K restoration from Arrow Video, featuring Edward G. Robinson.
----------
-
-# One of the Century's Best Action Movies Is Getting Even Better Upon Its New Release
-
-Features, Train to Busan, Horror
-
-Sun, 19 Jul 2026 14:00:12 GMT
-
-https://movieweb.com/train-to-busan-10th-anniversary-release/
-
-A Korean action horror movie labeled as one of the best movies of the first quarter of the century is returning to theaters, and with good reason.
----------
-
-# 10 Greatest Animated Kids Movies Of The 2010s That Deserve More Love
-
-Classic Movies, Animation
-
-Sun, 19 Jul 2026 13:45:11 GMT
-
-https://screenrant.com/best-2010-animated-kids-movies-deserve-more-love/
-
-the 2010s had some high-quality animated movies that everyone loves, but there were also some underrated movies that deserve more attention.
----------
-
-# 54 Years Later, The Godfather's Greatest Line Tastes Even Sweeter
-
-Classic TV, The Godfather, The Sopranos
-
-Sun, 19 Jul 2026 13:30:12 GMT
-
-https://screenrant.com/the-godfather-cannoli-line-better-today/
-
-The Godfather's best line is still one of the greatest in film history, and over five decades later, it's even better thanks to one TV show.
----------
-
-# 12 Hidden Features In Palworld That Will Improve Your Experience
-
-Gaming, Palworld, PC
-
-Sun, 19 Jul 2026 13:30:12 GMT
-
-https://screenrant.com/palworld-hidden-features-mechanics/
-
-Palworld is an immensely fun and surprisingly large game, but there aren't many directions, leaving people to miss these hidden features.
 ---------
