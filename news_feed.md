@@ -1,3 +1,168 @@
+# All 13 Christopher Nolan Movies Ranked Worst To Best
+
+Movies, Christopher Nolan
+
+Tue, 21 Jul 2026 10:17:11 GMT
+
+https://screenrant.com/all-christopher-nolan-movies-ranked/
+
+Christopher Nolan is one of the most acclaimed, distinctive filmmakers of his generation. Here's our ranking of his films from worst to best.
+---------
+
+# Mario Kart Double Dash Free Download Available To Grab Now
+
+Gaming, Mario Kart, Nintendo
+
+Tue, 21 Jul 2026 10:08:56 GMT
+
+https://screenrant.com/mario-kart-double-dash-nintendo-music-freebie/
+
+Nintendo has plenty going on that you could easily miss as a fan, including bringing Mario Kart to some important services.
+---------
+
+# Witcher 4 Official Release Date Update Is Music To Our Ears
+
+Gaming, The Witcher, The Witcher 4
+
+Tue, 21 Jul 2026 09:39:54 GMT
+
+https://screenrant.com/witcher-4-release-date-development-updates/
+
+The Witcher 4 is on the way relatively soon, and the latest update on the development front is good news for fans.
+---------
+
+# GTA 6 File Size Leaves Gamers Worried Following Official Update
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Tue, 21 Jul 2026 09:19:04 GMT
+
+https://screenrant.com/gta-6-file-size-official-rockstar-update/
+
+There's still a lot we don't know about GTA VI, but one confirmed piece of information has been more than enough to draw the ire of fans.
+---------
+
+# Marvel’s Daredevil Is Finally Starring In His Own Game
+
+Gaming, tabletop games, Marvel
+
+Tue, 21 Jul 2026 08:00:11 GMT
+
+https://screenrant.com/marvel-champions-card-game-daredevil-echo-playable-expansion/
+
+While Spider-Man and the Avengers receive their epic blockbusters this year, the summer is starting with a new Daredevil and Echo adventure.
+---------
+
+# 5 Sci-Fi Shows Better Than Battlestar Galactica
+
+TV, Battlestar Galactica, Star Trek: Deep Space Nine, The Expanse, 12 Monkeys, Person of Interest, Andor
+
+Tue, 21 Jul 2026 10:00:14 GMT
+
+https://www.cbr.com/sci-fi-shows-better-than-battlestar-galactica-list/
+
+The Battlestar Galactica reboot is one of the greatest series of all time, but in this golden age of sci-fi TV some shows better execute its concepts.
+---------
+
+# Prime Video Is Officially Moving Away From Its Old Ad-Free Formula
+
+TV Features, Amazon, Prime Video, Amazon Studios, Amazon Freevee
+
+Tue, 21 Jul 2026 10:08:14 GMT
+
+https://collider.com/prime-video-ad-free-phaseout-ultra-new-plan/
+
+Prime Video is redefining its streaming tiers by offering ad-supported content as the baseline subscription and raising prices for ad-free viewing.
+---------
+
+# 10 Comic Books Deaths That Changed the Medium Forever
+
+Books and Comics, comic books, Superhero, Marvel Comics, DC Comics
+
+Tue, 21 Jul 2026 10:06:14 GMT
+
+https://collider.com/comic-book-deaths-changed-medium-forever/
+
+The tragic deaths of characters like Gwen Stacy, Bruce and Martha Wayne, and even Superman marked a distinct before-and-after in comic book history.
+---------
+
+# ‘Jurassic Park’ Meets ‘The Twilight Zone’ in Anne Hathaway’s Dinosaur Blockbuster Next Month
+
+Movie News, Anne Hathaway, The Odyssey, Sci-Fi, The End of Oak Street
+
+Tue, 21 Jul 2026 10:00:14 GMT
+
+https://collider.com/the-odyssey-anne-hathaway-end-of-oak-street-august-14/
+
+Anne Hathaway will return to theaters with a sci-fi movie next month, likely making a double feature with the actress possible with The Odyssey.
+---------
+
+# It's Officially the End of an Era for John Wick on Streaming
+
+Movie Features, John Wick, Ballerina, Keanu Reeves, Chad Stahelski
+
+Tue, 21 Jul 2026 09:42:14 GMT
+
+https://collider.com/john-wick-leaving-hbo-july-31/
+
+John Wick is one of the most popular action franchises and will be leaving HBO at the end of July.
+---------
+
+# 'The Odyssey' Has Demolished 2026's Biggest Flop in Just One Weekend
+
+Movie News, The Odyssey, Supergirl, Box Office, Christopher Nolan
+
+Tue, 21 Jul 2026 09:30:15 GMT
+
+https://collider.com/the-odyssey-box-office-264-million-supergirl-121-million/
+
+Christopher Nolan's The Odyssey has demolished box office records in just one weekend, more than doubling the total haul of 2026's biggest flop.
+---------
+
+# 10 Greatest High Fantasy Books of All Time
+
+Books and Comics, Books, Fantasy, The Lord of the Rings
+
+Tue, 21 Jul 2026 09:10:14 GMT
+
+https://collider.com/best-high-fantasy-books-all-time-ranked/
+
+From Midnight Over Sanctaphrax to The Lord of the Rings, these masterpieces represent the best and most fully realized high fantasy books of all time.
+---------
+
+# Tom Hardy's 'Venom' Officially Returns Before ‘Spider-Man: Brand New Day’
+
+Movie News, Venom, Tom Hardy, Lego
+
+Tue, 21 Jul 2026 09:00:15 GMT
+
+https://collider.com/venom-lego-sony-spider-man-universe-first-set/
+
+LEGO has revealed its first-ever Sony’s Spider-Man Universe set, bringing Tom Hardy’s Venom back eight years later.
+---------
+
+# 15 Best TV Shows Based on Video Games, Ranked
+
+TV, Video Game, The Last of Us, Pokémon, Fallout
+
+Tue, 21 Jul 2026 08:58:14 GMT
+
+https://collider.com/tv-series-based-on-video-games-ranked/
+
+From Pokémon to The Last of Us to Fallout, these TV shows stayed true to their video game counterparts.
+---------
+
+# Kevin Feige Knows Where the MCU Is Going After 'Avengers: Doomsday'
+
+Movie News, Avengers: Doomsday, Avengers: Doomsday (2026), Kevin Feige
+
+Tue, 21 Jul 2026 09:52:24 GMT
+
+https://movieweb.com/avengers-doomsday-mcu-roadmap-kevin-feige/
+
+Marvel Studios President Kevin Feige has confirmed that the MCU will not undergo a hard reboot following 'Avengers: Doomsday' and 'Secret Wars.'
+---------
+
 # Wheel Of Time Getting The Finale It Deserves, 2 Years After The Show's Cancellation
 
 Gaming, The Wheel of Time
@@ -5331,169 +5496,4 @@ Sun, 19 Jul 2026 17:01:14 GMT
 https://collider.com/deadpool-mondo-figure-x-men-the-animated-series-release-date-san-diego-comic-con-july-2026/
 
 Mondo has released a new Deadpool figure based on his appearance in X-Men: The Animated Series launching at San Diego Comic-Con later this month.
----------
-
-# Anne Hathaway Offers Major 'Princess Diaries 3' Update
-
-Movie News, The Princess Diaries, The Princess Diaries 3, Anne Hathaway
-
-Sun, 19 Jul 2026 17:44:54 GMT
-
-https://movieweb.com/princess-diaries-3-storyline-breakthrough/
-
-Anne Hathaway says the 'Princess Diaries 3' script was scrapped and rebuilt, and that her third pregnancy has pushed filming further out.
----------
-
-# One of the Best Sci-Fi Action Movies of All Time Is on YouTube for Free
-
-Features, Sci-Fi, Terminator 2
-
-Sun, 19 Jul 2026 17:30:12 GMT
-
-https://movieweb.com/terminator-2-best-sci-fi-action-youtube/
-
-While many streaming services have a great selection of sci-fi movies, one of the most beloved is streaming on YouTube for free.
----------
-
-# Batman Will Break A Golden Dark Knight Rule In 2028
-
-Movies, Batman, The Batman Part II, Dynamic Duo
-
-Sun, 19 Jul 2026 16:55:11 GMT
-
-https://screenrant.com/the-batman-part-2-dynamic-duo-2028-movie-rule-break/
-
-Batman's on-screen future is set to break one of the more frequently upheld rules created around the hero and his extensive filmography.
----------
-
-# Blumhouse's New Horror With 21st Century Box Office Record Is Officially Peacock's #1 Movie
-
-Movies, Masked Recs, Blumhouse, Peacock
-
-Sun, 19 Jul 2026 16:54:40 GMT
-
-https://screenrant.com/blumhouse-obsession-movie-peacock-july-2026-streaming-charts/
-
-Blumhouse's new original horror, which set a major box-office record in the 21st century, continues its dominance as Peacock's #1 movie.
----------
-
-# John Krasinski As Kakashi: Naruto's Live-Action Cast Picked By A Magazine Resurfaces
-
-Movies, Naruto
-
-Sun, 19 Jul 2026 16:42:17 GMT
-
-https://screenrant.com/john-krasinski-kakashi-naruto-live-action-magazine-cast/
-
-Fans were thinking about a live-action Naruto movie even back in the 2000s, and it's certainly fun to look back on which actors they might've picked.
----------
-
-# 10 Greatest X-Files Episodes Nobody Talks About
-
-TV, The X-Files
-
-Sun, 19 Jul 2026 16:40:11 GMT
-
-https://screenrant.com/best-xfiles-episodes-nobody-talks-about/
-
-Whether forgotten monsters-of-the-week to underrated mythology stories, these X-Files episodes deserve far more attention and love from fans.
----------
-
-# Guy Ritchie's Paramount+ Gangster Series Has A Reunion 45 Years In The Making
-
-TV, Masked Recs
-
-Sun, 19 Jul 2026 16:30:11 GMT
-
-https://screenrant.com/mobland-guy-ritchie-pierce-brosnan-helen-mirren-gangster-reunion/
-
-Guy Ritchie has an eye for casting, as demonstrated by remarkable screen reunion he's brought about on his hit Paramount+ gangster TV show.
----------
-
-# Forget Dragon Ball, Naruto's Creator Just Revealed The Anime's True Inspiration
-
-Anime, Naruto, Spider-Man
-
-Sun, 19 Jul 2026 16:30:11 GMT
-
-https://screenrant.com/naruto-spider-man-inspiration-not-dragon-ball/
-
-The true reason for Naruto's success is revealed.
----------
-
-# Every Movie In The MCU's Phase One, Ranked
-
-Movies, Marvel Cinematic Universe, Ranking
-
-Sun, 19 Jul 2026 16:20:11 GMT
-
-https://screenrant.com/mcu-phase-one-movies-ranked/
-
-Phase One of the Marvel Cinematic Universe started the franchise off with a bang, but how do the first six MCU movies stack up?
----------
-
-# Tom Hanks' New Movie Toy Story 5 Set To Break All-Time Box Office Record For $4 Billion Franchise
-
-Movies, Toy Story 5, Toy Story, Box Office Milestone
-
-Sun, 19 Jul 2026 16:00:23 GMT
-
-https://screenrant.com/toy-story-5-box-office-950-million-global-milestone/
-
-By hitting a huge new global box office milestone, Toy Story 5 sets itself on a path to break an unprecedented record for the blockbuster franchise.
----------
-
-# 12 Years Later, Gon And Killua Are Finally Back In Hunter x Hunter
-
-Anime, Hunter X Hunter
-
-Sun, 19 Jul 2026 16:00:11 GMT
-
-https://screenrant.com/hunter-x-hunter-gon-killua-return/
-
-After more than a decade away from the main storyline, Gon and Killua have officially returned to the hit manga to assist Kurapika.
----------
-
-# Fox's Complete Fall 2026 Schedule
-
-Network TV, FOX
-
-Sun, 19 Jul 2026 16:00:11 GMT
-
-https://screenrant.com/fox-complete-fall-2026-schedule/
-
-As the 2026-2027 TV cycle nears, Fox has officially unveiled its primetime programming this upcoming fall, and it features a lot of good shows.
----------
-
-# Jason Bateman's 10-Part Horror Thriller Is the Tightest Adaptation of a Stephen King Novel
-
-TV, The Outsider, Horror, Stephen King, HBO Max
-
-Sun, 19 Jul 2026 16:30:15 GMT
-
-https://www.cbr.com/the-outsider-best-stephen-king-tv-adaptation/
-
-While many Stephen King stories have been adapted for TV, only one series is truly the best, and it's wildly underrated.
----------
-
-# 5 Classic Toonami Anime That Are Unwatchable Today
-
-Anime, toonami, Cartoon Network
-
-Sun, 19 Jul 2026 16:15:15 GMT
-
-https://www.cbr.com/unwatchable-classic-toonami-anime/
-
-Some of the best Toonami series are regrettably no longer watchable these days.
----------
-
-# The Odyssey Officially Defeats The Dark Knight Rises as Christopher Nolan's Biggest Debut
-
-Movies, The Odyssey, Christopher Nolan, box office
-
-Sun, 19 Jul 2026 16:10:55 GMT
-
-https://www.cbr.com/the-odyssey-box-office-christopher-nolan-biggest-debut/
-
-One of the most anticipated films of the year has officially delivered.
 ---------
