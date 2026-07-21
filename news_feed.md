@@ -1,3 +1,278 @@
+# NCIS Has Entered A New Era Unlike Anything In Franchise History
+
+Network TV, NCIS
+
+Tue, 21 Jul 2026 20:36:11 GMT
+
+https://screenrant.com/ncis-2026-2027-cbs-four-show-lineup/
+
+As the NCIS franchise enters a new era, all four current shows will air on CBS for the first time, offering viewers a chance to explore the universe.
+---------
+
+# HBO's 3-Part Fantasy Series Is As Close To Perfect As Book Adaptations Get
+
+Classic TV, Masked Recs
+
+Tue, 21 Jul 2026 20:30:26 GMT
+
+https://screenrant.com/his-dark-materials-hbo-fantasy-series-near-perfect-book-adaptation/
+
+HBO has a three-season fantasy television show adapted from an incredible trilogy by Philip Pullman — and it’s perfect from start to finish.
+---------
+
+# Avengers: Doomsday Doubles Previous MCU Presales In Just 24 Hours
+
+Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Tue, 21 Jul 2026 20:19:29 GMT
+
+https://screenrant.com/avengers-doomsday-advance-ticket-sales/
+
+A new report reveals the advance ticket sale figures for Marvel Studios' Avengers: Doomsday, following the release of the first official trailer.
+---------
+
+# Liam Neeson & Zachary Levi's Tehran-Based Heist Goes Totally Wrong In Official Trailer For The Fix
+
+Movies, Liam Neeson
+
+Tue, 21 Jul 2026 20:17:18 GMT
+
+https://screenrant.com/liam-neeson-the-fix-movie-trailer-zachary-levi/
+
+Liam Neeson and Zachary Levi team up for a mission to Tehran in the new trailer for the action-thriller The Fix, also starring Titus Welliver.
+---------
+
+# 10 K-Drama Couples With The Best Chemistry, Ranked
+
+Classic TV, K-Drama
+
+Tue, 21 Jul 2026 20:15:22 GMT
+
+https://screenrant.com/k-drama-couples-best-chemistry-ranked/
+
+There are countless romance K-dramas on the market, but the best love stories are sold by compatibility and chemistry between the lead actors.
+---------
+
+# Alan Ritchson's $865M Dystopian Thriller Adaptation Is Burning Up Netflix's U.S. Streaming Ranks
+
+Movies, Masked Recs
+
+Tue, 21 Jul 2026 20:15:10 GMT
+
+https://screenrant.com/hunger-games-catching-fire-netflix-streaming-charts-july-2026/
+
+Alan Ritchson's dystopian thriller adaptation, which made $865 million at the box office, is burning up Netflix's streaming rankings in the U.S.
+---------
+
+# Alan Ritchson's Record-Breaking Sci-Fi Netflix Thriller Gets Official Sequel Title In Major Writing Update
+
+Movies
+
+Tue, 21 Jul 2026 20:06:12 GMT
+
+https://screenrant.com/alan-ritchson-war-machines-sequel-netflix-title-confirmed/
+
+After breaking Netflix records, Alan Ritchson’s sci-fi thriller War Machine just got a major sequel update, with the film’s title now revealed.
+---------
+
+# 40 Years Later, Ghostbusters' Upcoming Netflix Release Has A Lot To Live Up To
+
+Streaming TV, Ghostbusters
+
+Tue, 21 Jul 2026 20:00:17 GMT
+
+https://screenrant.com/the-real-ghostbusters-1986-set-standards-upcoming-netflix-show/
+
+Netflix will release a Ghostbusters TV show more than three decades after the original film premiered, and the new series has high standards to meet.
+---------
+
+# The Batman 2 May Be Delayed, But Matt Reeves' Other Batman Returns In Less Than 2 Weeks
+
+Streaming TV, Batman: Caped Crusader, The Batman Part II
+
+Tue, 21 Jul 2026 19:30:27 GMT
+
+https://screenrant.com/batman-caped-crusader-season-2-matt-reeves-batman-returns/
+
+The Batman Part II was delayed to 2028, but Matt Reeves has another version of the Dark Knight in Batman: Caped Crusader, and it's about to return.
+---------
+
+# Netflix's 8-Part Thriller Based on a Bestselling Novel Is Already a Modern Classic
+
+TV, The Hunting Wives, Thriller, Netflix
+
+Tue, 21 Jul 2026 20:30:29 GMT
+
+https://www.cbr.com/netflix-the-hunting-wives-thriller-drama-modern-classic/
+
+The Netflix thriller with an 81% RT score is a modern classic that brings back what made great thriller and drama TV series.
+---------
+
+# 5 Classic Anime Series That Are 100% Unwatchable Today
+
+Anime
+
+Tue, 21 Jul 2026 20:16:24 GMT
+
+https://www.cbr.com/classic-anime-series-totally-unwatchable-today/
+
+Shifting storytelling standards and changing audience expectations have made these anime almost impossible to appreciate.
+---------
+
+# Pokémon's Forgotten '90s Game Is Officially Back After 29 Years
+
+Anime, Pokemon, namco bandai, bandai
+
+Tue, 21 Jul 2026 20:05:21 GMT
+
+https://www.cbr.com/pokemon-plakoro-return-july-2026/
+
+One of the most unexpected returning Pokémon titles has officially arrived with a half-dozen of the most iconic Starters.
+---------
+
+# Spawn Is Getting a Meme-Inspired New Name, Creator Confirms
+
+Comics, Spawn
+
+Tue, 21 Jul 2026 20:00:20 GMT
+
+https://www.cbr.com/spawn-new-name-meme-todd-mcfarlane/
+
+Todd McFarlane opens up about the future of the Spawn Universe, as well as how fans can help name its next infernal antihero when they arrive.
+---------
+
+# Harrison Ford's Blade Runner 2049 Is The Greatest Sci-Fi Sequel of the 21st Century
+
+Movies, Blade Runner 2049, Sci-Fi
+
+Tue, 21 Jul 2026 20:00:20 GMT
+
+https://www.cbr.com/blade-runner-2049-harrison-ford-greatest-sci-fi-sequel/
+
+Denis Villeneuve's Blade Runner 2049 continues to dominate the conversation of being one of the greatest sci-fi sequels of the 21st century.
+---------
+
+# 10 Hardest PS5 Games, Officially Ranked
+
+Games, PlayStation 5
+
+Tue, 21 Jul 2026 19:30:28 GMT
+
+https://www.cbr.com/hardest-ps5-games-ranked-by-difficulty-official/
+
+Some of the most difficult PS5 games, like Death Stranding 2 and Stellar Blade, challenge the player at every turn.
+---------
+
+# Ryan Reynolds Reverses Course on Deadpool's MCU Future
+
+Movies, Deadpool, Marvel Cinematic Universe, X-Men
+
+Tue, 21 Jul 2026 19:23:49 GMT
+
+https://www.cbr.com/ryan-reynolds-new-deadpool-movie-marvel-mcu/
+
+It sounds like Ryan Reynolds has reconsidered his position on Deadpool's role in the Marvel Cinematic Universe.
+---------
+
+# After 139 Million Views, It’s Officially the End of an Era for Ryan Gosling’s Action Thriller
+
+Movie News, Swapped, Netflix, The Gray Man, Action
+
+Tue, 21 Jul 2026 20:16:46 GMT
+
+https://collider.com/after-139-million-views-its-officially-the-end-of-an-era-for-ryan-goslings-action-thriller/
+
+Netflix officially marks the end of an era for its Ryan Gosling-led CIA action thriller The Gray Man as the film loses rank to a fantasy hit.
+---------
+
+# 10 Greatest Thriller Books of the Last 10 Years, Ranked
+
+TV, Thriller, Books, Knives Out, Mystery
+
+Tue, 21 Jul 2026 19:44:16 GMT
+
+https://collider.com/best-thriller-books-last-10-years-ranked/
+
+The Silent Patient, The Guest List, The Chain, Razorblade Tears, and more make up our list of the best thriller books of the last 10 years.
+---------
+
+# Marvel's Biggest Villain Officially Joins Apple TV's MonsterVerse Spin-Off
+
+TV News, Ralph Ineson, Corey Stoll, MonsterVerse, Monarch: Legacy of Monsters
+
+Tue, 21 Jul 2026 19:38:05 GMT
+
+https://collider.com/apple-tv-monarch-legacy-of-monsters-spin-off-cast-ralph-ineson-corey-stoll/
+
+Apple TV's Monarch: Legacy of Monsters' spin-off has added two Marvel veterans to the cast alongside Avengers: Doomsday's Wyatt Russell.
+---------
+
+# 3 World War II Movies That Are Terrible
+
+Movie, Pearl Harbor, Midway, USS Indianapolis, War
+
+Tue, 21 Jul 2026 19:24:25 GMT
+
+https://collider.com/world-war-ii-movies-terrible-start-to-finish/
+
+Some World War II movies failed to hit the mark, including unfortunately flawed ones like Pearl Harbor and USS Indianapolis: Men of Courage.
+---------
+
+# Titus Welliver's Detective Thriller Is One of the Most Rewatchable Shows on TV
+
+TV Features, Bosch, Titus Welliver, Lance Reddick, Prime Video
+
+Tue, 21 Jul 2026 19:21:25 GMT
+
+https://collider.com/bosch-titus-welliver-detective-thriller-rewatch/
+
+Bosch is a rewatch staple, full of complex cases and rich characters that keep viewers hooked season after season.
+---------
+
+# Netflix's New 8-Part Western Officially Crowned the Biggest Show on Streaming
+
+TV News, Little House on the Prairie, Hot on Streaming, Western, Netflix
+
+Tue, 21 Jul 2026 20:12:27 GMT
+
+https://movieweb.com/little-house-on-the-prairie-netflix-western-hit-streaming-july-2026/
+
+Netflix's new Western series has officially dethroned one of the hottest streaming shows of the summer after just two weeks.
+---------
+
+# Disney's Divisive Live-Action Remake Conquers 86-Year-Old Animated Classic at the Box Office
+
+Movie News, Moana, Disney's Pinocchio
+
+Tue, 21 Jul 2026 20:00:18 GMT
+
+https://movieweb.com/disney-live-action-moana-beats-pinocchio-box-office/
+
+Disney's live-action remakes prove nostalgia is still a huge draw at the box office.
+---------
+
+# 10 Best Action Shows Streaming on Netflix
+
+TV Lists, Netflix
+
+Tue, 21 Jul 2026 20:00:18 GMT
+
+https://movieweb.com/best-action-shows-netflix/
+
+Netflix has a lot of memorable and fantastic action TV shows, and these are the ones most worth watching.
+---------
+
+# Prime Video Officially Moving Forward With Classic '80s Action Thriller Reboot
+
+TV News, Robocop, Prime Video
+
+Tue, 21 Jul 2026 19:09:52 GMT
+
+https://movieweb.com/prime-video-robocop-series-greenlit/
+
+The upcoming series boasts an impressive creative team, led by the iconic filmmaker behind 'Aquaman' and 'Saw.'
+---------
+
 # The Wait Is Over: Stranger Things Just Returned With A Will Spinoff Series, And It's Already #1
 
 Comics, Stranger Things, Webtoon
@@ -5221,279 +5496,4 @@ Mon, 20 Jul 2026 10:32:18 GMT
 https://collider.com/best-low-fantasy-books-all-time-ranked/
 
 From Charlie and the Chocolate Factory to Jonathan Strange & Mr Norrell, these are the best low fantasy books that bring magic into the real world.
----------
-
-# ‘John Wick’ Meets ‘Taken’ in Netflix’s New 10-Part Action Thriller That's Now the Biggest Show on Streaming
-
-TV News, John Wick, Taken, Netflix, Agent Kim Reactivated
-
-Mon, 20 Jul 2026 10:30:17 GMT
-
-https://collider.com/netflix-agent-kim-reactivated-streaming-success-july-2026/
-
-Netflix’s biggest new action thriller is dominating global charts and just secured extra episodes after its breakout success.
----------
-
-# Disney Officially Brings Back the Show That Launched Ryan Gosling and Britney Spears
-
-TV News, Disney+, Ryan Gosling, Britney Spears, The Mickey Mouse Club
-
-Mon, 20 Jul 2026 10:00:14 GMT
-
-https://collider.com/disney-mickey-mouse-club-reboot-confirmed/
-
-Disney is reviving the iconic talent-launching series for a new generation, bringing a fresh cast to a beloved franchise.
----------
-
-# Jason Statham's $397M Shark Thriller Surges Across Global Streaming Charts
-
-Movie News, The Meg 2, Jason Statham, Meg 2: The Trench, Netflix
-
-Mon, 20 Jul 2026 09:30:15 GMT
-
-https://collider.com/jason-statham-meg-2-the-trench-streaming-success-netflix-july-2026/
-
-Meg 2: The Trench starring Jason Statham has found a global audience on Netflix, outperforming other streaming releases.
----------
-
-# 20 Best MCU Movies, Ranked According to Letterboxd
-
-Movie, MCU, Avengers: Endgame, Avengers: Infinity War, The Avengers
-
-Mon, 20 Jul 2026 09:11:14 GMT
-
-https://collider.com/best-mcu-movies-ranked-letterboxd-marvel/
-
-Film fans on Letterboxd rank Iron Man, Avengers: Endgame, and Thor: Ragnarok among the very best movies in Marvel's MCU franchise.
----------
-
-# Kevin Feige Confirms ‘Spider-Man: Brand New Day’s Place in the MCU Timeline [Exclusive]
-
-Exclusives, Spider-Man: Brand New Day, Kevin Feige, Amy Pascal, MCU
-
-Mon, 20 Jul 2026 09:00:15 GMT
-
-https://collider.com/spider-man-brand-new-day-mcu-timeline-before-avengers-doomsday/
-
-Kevin Feige confirms when Spider-Man: Brand New Day takes place in relation to Avengers: Doomsday and No Way Home.
----------
-
-# Marvel Confirms Long-Awaited Arrival of New 'Avengers: Doomsday' Update
-
-Movie News, Avengers: Doomsday, Avengers: Doomsday (2026), The Fantastic Four: First Steps
-
-Mon, 20 Jul 2026 10:18:08 GMT
-
-https://movieweb.com/avengers-doomsday-trailer-tease-marvel/
-
-'The Fantastic Four' social media account disrupted its long-running posting tradition to drop a glitchy Marvel teaser for 'Avengers: Doomsday.'
----------
-
-# Spider-Man & Daredevil’s New Team-Up Finally Gives Fans What They’ve Wanted
-
-Gaming, Spider-Man, Daredevil, Marvel Rivals, Triple-A Games
-
-Mon, 20 Jul 2026 05:00:11 GMT
-
-https://screenrant.com/marvel-rivals-spider-man-daredevil-classic-costumes/
-
-Spider-Man and Daredevil's latest team-up seems to suggest that fans can look forward to them in their classic costumes in the near future.
----------
-
-# The Witcher 3: Wild Hunt As We Know It Ends October 2026
-
-Gaming, The Witcher 3: Wild Hunt, The Witcher
-
-Mon, 20 Jul 2026 05:00:11 GMT
-
-https://screenrant.com/witcher-3-wild-hunt-october-2026-upgrades/
-
-The Witcher 3's sudden return to prominence does have at least one negative consequence for those playing on older systems.
----------
-
-# Steam Drops 5 New Free Games You Can Download And Keep Forever
-
-Gaming, Steam
-
-Mon, 20 Jul 2026 04:45:11 GMT
-
-https://screenrant.com/steam-5-free-games-july-2026/
-
-Discover five incredible free Steam games to download and keep forever, including mystery, action, and open-world titles.
----------
-
-# Game Of Thrones Officially Confirms Jon Snow Will Return In 2027
-
-Gaming, Game of Thrones
-
-Mon, 20 Jul 2026 04:30:11 GMT
-
-https://screenrant.com/game-of-thrones-jon-snow-2027-return/
-
-Game of Thrones: War of Westeros delays release until 2027, revealing Jon Snow's pivotal role leading Stark forces into battle.
----------
-
-# Free Nintendo Switch Online Is Yours To Claim For A Very Limited-Time
-
-Gaming, Nintendo, Nintendo Switch 2
-
-Mon, 20 Jul 2026 04:00:14 GMT
-
-https://screenrant.com/nintendo-switch-online-free-july-2026/
-
-Nintendo Switch Online is one of the more compelling subscription services in gaming, and you can get a little more for your money with a new offer.
----------
-
-# Wolverine Just Stole Spider-Man's Thunder, Two Weeks Before Brand New Day
-
-Superheroes, X-Men '97, Spider-Man: Brand New Day, Marvel Cinematic Universe
-
-Mon, 20 Jul 2026 03:59:53 GMT
-
-https://screenrant.com/wolverine-xmen-97-recreating-comic-covers-before-spider-man-brand-new-day/
-
-Just before the release of Spider-Man: Brand New Day, it's pretty crazy to see how Wolverine is beating the Webslinger to the punch in one key way.
----------
-
-# 5 Shonen Anime Without A Single Flaw
-
-Anime, Mob Psycho 100
-
-Mon, 20 Jul 2026 03:59:11 GMT
-
-https://screenrant.com/perfect-shonen-anime-no-flaws/
-
-When searching for shonen anime, one should hold up each of these series as respective benchmarks for the various experiences the genre can exhibit.
----------
-
-# 10 Best Movies To Watch If You Loved The Odyssey
-
-Movies, The Odyssey, Christopher Nolan
-
-Mon, 20 Jul 2026 03:22:39 GMT
-
-https://screenrant.com/best-movies-like-the-odyssey/
-
-If you can't stop thinking about the epic that is Christopher Nolan's The Odyssey, here are some of the best movies to keep the vibes going.
----------
-
-# Daredevil: Born Again Season 3 Reportedly Wraps Filming
-
-TV, Daredevil: Born Again
-
-Mon, 20 Jul 2026 03:21:35 GMT
-
-https://screenrant.com/daredevil-born-again-season-3-wraps-filming/
-
-It appears that Daredevil: Born Again has finally wrapped up filming for its third season, bringing the Disney+ series one step closer to the screen.
----------
-
-# 5 Action Thriller Shows Better Than The Night Agent
-
-Streaming TV, The Night Agent, Reacher, The Day of the Jackal, Bodyguard, Banshee, Tom Clancy's Jack Ryan
-
-Mon, 20 Jul 2026 03:15:17 GMT
-
-https://screenrant.com/action-thriller-shows-better-than-the-night-agent/
-
-The Night Agent has proven to be an incredible addition to Netflix’s long line of action thrillers, but a few other shows of the genre are far better.
----------
-
-# Tom Holland Reflects on Spider-Man's Emotional Journey
-
-Movies, Spider-Man: Brand New Day
-
-Mon, 20 Jul 2026 04:05:15 GMT
-
-https://www.cbr.com/video/tom-holland-reflects-on-spider-man-s-emotional-journey/
-
-Spider-Man: Brand New Day stars Tom Holland, Jon Bernthal, and Jacob Batalon reflect on Peter Parker's emotional journey and what it was like returning to the MCU together.
----------
-
-# The Odyssey: Comic Character Mashed Up With Greek Mythology
-
-Comics, CSBG, The Odyssey, The Line It Is Drawn
-
-Mon, 20 Jul 2026 03:58:34 GMT
-
-https://www.cbr.com/comic-characters-greek-mythology-the-odyssey/
-
-In a brand-new Line it is Drawn, our artists drew your ideas for comic characters mashed up with Greek mythology
----------
-
-# Alvin and the Chipmunks Get Modern Reboot for 70th Anniversary, First Look Unveiled
-
-Movies, Alvin and the Chipmunks
-
-Mon, 20 Jul 2026 03:50:42 GMT
-
-https://www.cbr.com/alvin-and-the-chipmunks-reboot-70th-anniversary-first-look/
-
-Alvin, Simon, and Theodore are being reimagined once again, this time for the TikTok generation.
----------
-
-# 5 Anime Villains Objectively Stronger Than Gear 5 Luffy
-
-Anime, One Piece, Naruto, Bleach
-
-Mon, 20 Jul 2026 03:46:14 GMT
-
-https://www.cbr.com/anime-villains-more-powerful-gear-5-luffy-list/
-
-Gear 5 Luffy has handled the villains of One Piece, but stepping into these five universes would provide a villain he wouldn't be able to overcome.
----------
-
-# Gundam Unicorn's Exclusive High Grade Gunpla Is Finally Coming to the U.S.
-
-Anime, Mobile Suit Gundam, Mobile Suit Gundam Unicorn, merchandise, toys, bandai
-
-Mon, 20 Jul 2026 03:30:15 GMT
-
-https://www.cbr.com/gundam-unicorn-geara-doga-gunpla-bandai-release/
-
-Recreating a design from Mobile Suit Gundam Unicorn, a recent exclusive High Grade Gundam model kit is now being released in a wider capacity.
----------
-
-# House of the Dragon Is Pulling the Plug on Game of Thrones' Formula With a Major Book Change
-
-TV, House of the Dragon, Game Of Thrones, HBO Max
-
-Mon, 20 Jul 2026 03:30:15 GMT
-
-https://www.cbr.com/house-of-the-dragon-game-of-thrones-formula-major-book-change/
-
-The days of erasing minor characters from George R. R. Martin's books appear to be over for House of the Dragon.
----------
-
-# Xbox Game Pass Users Must Say Goodbye to 8 Great Games on July 31
-
-Games, Xbox Series X (1)
-
-Mon, 20 Jul 2026 03:22:17 GMT
-
-https://www.cbr.com/xbox-game-pass-losing-8-games-july-31-2026/
-
-Eight titles are officially leaving Xbox Game Pass in less than two weeks.
----------
-
-# 5 Things We Want to See In Castlevania: Belmont's Curse
-
-Games, Castlevania: Symphony of the Night, Castlevania, Video Games
-
-Mon, 20 Jul 2026 03:15:15 GMT
-
-https://www.cbr.com/castlevania-belmonts-curse-things-fans-want/
-
-Castlevania: Belmont's Curse marks the return of the vampire-hunting clan and their nemesis, Dracula, and fans have high hopes for it.
----------
-
-# These 5 Harrison Ford Movies Are True Classics
-
-Movies, Harrison Ford, The Fugitive, The Empire Strikes Back
-
-Mon, 20 Jul 2026 03:00:16 GMT
-
-https://www.cbr.com/best-harrison-ford-classic-movies-list/
-
-A movie star in the truest sense, Harrison Ford has such a legendary career he has more than one classic to his name.
 ---------
