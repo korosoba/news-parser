@@ -1,3 +1,355 @@
+# The Wait Is Over: Stranger Things Just Returned With A Will Spinoff Series, And It's Already #1
+
+Comics, Stranger Things, Webtoon
+
+Tue, 21 Jul 2026 19:00:16 GMT
+
+https://screenrant.com/stranger-things-webtoon-horror-will-spinoff/
+
+A look back at the earlier Stranger Things days appears to be bringing an avalanche of releases to its most accessible state ever thanks to Webtoon.
+---------
+
+# Xbox Game Pass Just Made One Of 2026’s Best Reviewed Games Totally Free
+
+Gaming, Xbox Game Pass
+
+Tue, 21 Jul 2026 19:00:16 GMT
+
+https://screenrant.com/xbox-game-pass-2026-best-game/
+
+Xbox Game Pass subscribers can now play one of 2026's highest-rated indie games completely free.
+---------
+
+# Mindhunter Meets Scarpetta In Netflix's Upcoming Psychological Thriller From The Russos
+
+TV, Masked Recs
+
+Tue, 21 Jul 2026 19:00:16 GMT
+
+https://screenrant.com/the-whisper-man-netflix-mindhunter-scarpetta/
+
+Adam Scott and Robert De Niro lead a star-studded cast in Netflix's upcoming psychological thriller, a daring blend of Mindhunter and Scarpetta.
+---------
+
+# Netflix's New Fantasy Movie Officially Cracks Most-Viewed Elite List In Just 2 Months
+
+Movies, Masked Recs
+
+Tue, 21 Jul 2026 19:00:10 GMT
+
+https://screenrant.com/netflix-swapped-movie-top-10-most-popular-list/
+
+Netflix's new fantasy movie has officially become one of the streaming service's biggest releases of all time, doing so in just two months.
+---------
+
+# Lord Of The Rings: The Hunt For Gollum Confirms Return Of Major OG Trilogy Location
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum
+
+Tue, 21 Jul 2026 18:46:20 GMT
+
+https://screenrant.com/lord-of-the-rings-hunt-for-gollum-shire-filming-set-photo/
+
+Production is now underway on The Lord of the Rings: The Hunt for Gollum, and a location from the original trilogy is making a comeback.
+---------
+
+# Who Thor Was Talking About In The Avengers: Doomsday Trailer
+
+Movies, Marvel Cinematic Universe, Avengers: Doomsday
+
+Tue, 21 Jul 2026 18:35:32 GMT
+
+https://screenrant.com/avengers-doomsday-trailer-thor-talking-about-explained/
+
+Thor reminds the heroes in the Avengers: Doomsday trailer that countless of those he fought with have died battling villains, but who did he mean?
+---------
+
+# The Odyssey’s Most Controversial Decision Was Also Made By Stanley Kubrick 66 Years Ago
+
+Movies, The Odyssey
+
+Tue, 21 Jul 2026 18:30:11 GMT
+
+https://screenrant.com/the-odyssey-american-accents-stanley-kubrick-spartacus/
+
+Christopher Nolan has caused controversy with one key aspect of The Odyssey, but he isn't the first director to have made this stylistic decision.
+---------
+
+# The Hawk Interview with Jimmy Tatro, Fortune Feimster & Luke Wilson
+
+Interviews, The Hawk, Jimmy Tatro, Luke Wilson, Fortune Feimster
+
+Tue, 21 Jul 2026 18:12:06 GMT
+
+https://screenrant.com/video/the-hawk-jimmy-tatro-fortune-feimster-luke-wilson-interview/
+
+The Hawk stars Jimmy Tatro, Fortune Feimster & Luke Wilson break down the twisted father-son dynamic of the show and their own biggest career swings.
+---------
+
+# Tangled Set Video Shows Flynn Ryder Star Preparing For Major Action Scene
+
+Movies, Tangled
+
+Tue, 21 Jul 2026 18:00:57 GMT
+
+https://screenrant.com/tangled-set-video-flynn-rider-milo-manheim-stunt/
+
+Tangled is getting dangerous, as Disney star Milo Manheim is shown preparing for an iconic stunt as Flynn Ryder for the upcoming remake.
+---------
+
+# Solo Leveling's Crossover With Its Biggest Rival Is One Month Away
+
+Anime, Solo Leveling
+
+Tue, 21 Jul 2026 18:00:12 GMT
+
+https://screenrant.com/solo-leveling-omniscient-readers-viewpoint-crossover-system-sync/
+
+The first official crossover between Solo Leveling and Korea's other top system-based fantasy franchise takes place in Manhattan this August.
+---------
+
+# 7 Anime Everyone Forgot Aired on Cartoon Network
+
+Anime, toonami
+
+Tue, 21 Jul 2026 19:00:20 GMT
+
+https://www.cbr.com/best-forgotten-cartoon-network-anime-list/
+
+Everyone's forgotten about Cartoon Network anime like Outlaw Star.
+---------
+
+# 10 Best Sci-Fi Books With the Greatest Worlds
+
+Movies, Science Fiction, books
+
+Tue, 21 Jul 2026 19:00:20 GMT
+
+https://www.cbr.com/sci-fi-books-with-best-worlds-list/
+
+With deeply constructed and immersive worldbuilding, these sci-fi masterpieces span from sprawling interstellar empires to isolated, alien biospheres
+---------
+
+# James Wan's New Horror Trailer Horrifies Filmgoers: 'Made My Entire Theater Jump'
+
+Movies, Horror, Other Mommy
+
+Tue, 21 Jul 2026 18:50:59 GMT
+
+https://www.cbr.com/other-mommy-official-trailer-james-wan-blumhouse/
+
+Horror fans are saying the trailer alone for James Wan's new horror movie is giving them scares.
+---------
+
+# Euphoria Fan Favorite Reveals Going Method for Shocking Season 3 Scene
+
+TV, Euphoria, HBO Max, Jimmy Kimmel Live!
+
+Tue, 21 Jul 2026 18:43:11 GMT
+
+https://www.cbr.com/euphoria-jacob-elordi-final-scene-filming-torture/
+
+Jacob Elordi reveals the shocking and gruesome details of his final Euphoria scene.
+---------
+
+# seeing The Hand, and introducing him to The Punisher, tells me he'll meet Daredevil soon enough.
+
+Comics, The Last Starfighter, Star Wars
+
+Tue, 21 Jul 2026 18:41:40 GMT
+
+https://www.cbr.com/the-last-starfighter-spinoff-finally-answers-lingering-question/
+
+A cliffhanger that's stood more than 40 years finally ends in 2026.
+---------
+
+# The Big Bang Theory Spinoff's Biggest Creative Challenge
+
+TV, Stuart Fails to Save the Universe
+
+Tue, 21 Jul 2026 18:30:14 GMT
+
+https://www.cbr.com/video/the-big-bang-theory-spinoff-s-biggest-creative-challenge/
+
+Chuck Lorre, Bill Prady, and Zak Penn explain why Stuart Fails to Save the Universe puts the unlikeliest hero at the center of its biggest adventure. The creators reveal why Stuart was the perfect choice, how the beloved comic book shop was rebuilt multiple times for the new series, and why filming in Los Angeles made such a difference.
+---------
+
+# Percy Jackson and the Olympians Boss Warns Season 3 Is the 'Darkest' Entry Yet: 'The Next Step Is Death'
+
+TV, Percy Jackson & the Olympians
+
+Tue, 21 Jul 2026 18:28:46 GMT
+
+https://www.cbr.com/percy-jackson-season-3-darkest-entry-yet/
+
+The popular fantasy show is maturing alongside its cast.
+---------
+
+# Academy Award-Nominated Star Felt 'Misled' About 'Underused & Inconsequential' Dutton Ranch Role
+
+TV, Paramount+ with Showtime, Dutton Ranch, Yellowstone
+
+Tue, 21 Jul 2026 18:27:49 GMT
+
+https://www.cbr.com/dutton-ranch-yellowstone-ed-harris-misled/
+
+The actor will, however, return in Season 2.
+---------
+
+# 10 Best Epic Anime Series of All Time, Ranked
+
+Anime, One Piece, Berserk
+
+Tue, 21 Jul 2026 18:15:14 GMT
+
+https://www.cbr.com/best-epic-anime-series-of-all-time/
+
+Anime series like One Piece and Legend of the Galactic Heroes are the best examples of epics in anime history.
+---------
+
+# Disney+’s Fantasy Reboot With 95% RT Officially Confirms Return Date
+
+TV, Percy Jackson & the Olympians, Disney+
+
+Tue, 21 Jul 2026 18:04:09 GMT
+
+https://www.cbr.com/percy-jackson-season-3-disney-plus-premiere-date/
+
+Disney+ subscribers finally known when the streamer's popular fantasy series will return.
+---------
+
+# Netflix Scores Big With New Western Series Officially Taking Over the World
+
+TV News, Little House on the Prairie, Netflix, Laura Ingalls Wilder: Prairie to Page, Luke Bracey
+
+Tue, 21 Jul 2026 19:01:10 GMT
+
+https://collider.com/little-house-on-the-prairie-netflix-number-one-streaming-9-million-views/
+
+Netflix’s remake of the Western classic Little House on the Prairie has quietly become the most watched show on the streamer.
+---------
+
+# 'House of the Dragon' Just Spoiled the 'Game of Thrones' Prequel Movie’s Biggest Storyline
+
+TV Features, Game Of Thrones, House of the Dragon, HBO Max, A Song of Ice and Fire
+
+Tue, 21 Jul 2026 18:34:02 GMT
+
+https://collider.com/house-of-the-dragon-season-3-episode-5-aegons-conquest-prequel-movie-dorne/
+
+House of the Dragon reveals a pivotal moment in Aegon's Conquest, potentially spoiling Game of Thrones' upcoming prequel film.
+---------
+
+# It’s Official, DC’s Constantine Is Finally Returning
+
+Gaming News, Constantine, Keanu Reeves, DC, Gaming
+
+Tue, 21 Jul 2026 18:27:38 GMT
+
+https://collider.com/constantine-dcko-new-dc-fighting-game-return/
+
+John Constantine joins Batman, Superman and Wonder Woman as a playable fighter in DCKO, DC’s new 2v2 mobile game arriving in 2027.
+---------
+
+# Johnny Depp's R-Rated Gothic Cult Classic Gets New Release Ahead of Sydney Sweeney Remake
+
+Movie News, Sleepy Hollow, Johnny Depp, Tim Burton, Christina Ricci
+
+Tue, 21 Jul 2026 18:21:39 GMT
+
+https://collider.com/sleepy-hollow-johnny-depp-4k-steelbook-release/
+
+Johnny Depp’s Sleepy Hollow returns with a new 4K release ahead of Sydney Sweeney's newly announced remake.
+---------
+
+# Jason Statham’s R-Rated Action Movie Is Officially One of Prime Video’s Biggest Hits
+
+Movie News, Jason Statham, Shelter, Prime Video, Action
+
+Tue, 21 Jul 2026 18:05:18 GMT
+
+https://collider.com/shelter-jason-statham-prime-video-global-streaming-hit-july-2026/
+
+The action movie is officially getting a second chance.
+---------
+
+# 6 Best Action Thrillers Released Since 2000
+
+Movie, Action, Thriller, Casino Royale, One Battle After Another
+
+Tue, 21 Jul 2026 17:52:14 GMT
+
+https://collider.com/best-action-thrillers-since-2000/
+
+Casino Royale, The Dark Knight, and Oldboy are all among the very best action thriller movies released since the year 2000.
+---------
+
+# Prime Video's Near-Perfect 8-Part Action Thriller Blasts Up the Streaming Charts
+
+TV News, Ride or Die, Prime Video, Hot on Streaming, Action
+
+Tue, 21 Jul 2026 19:00:17 GMT
+
+https://movieweb.com/ride-or-die-action-streaming-success-prime-july-2026/
+
+Prime Video's latest 'Reacher' replacement is a 97% rated action sensation.
+---------
+
+# Join Us for an Exclusive Screening of 'Hot Spot' at AMC Century City
+
+Features, Hot Spot
+
+Tue, 21 Jul 2026 18:59:20 GMT
+
+https://movieweb.com/hot-spot-free-movieweb-screening/
+
+MovieWeb is hosting an advanced screening of 'Hot Spot' in LA. The tickets are free if you can get one in time. Read on for more.
+---------
+
+# 10 Years Later, One of Ryan Gosling's Best Movies Finally Fixes Its Biggest Mistake
+
+Movie News, La La Land, Ryan Gosling
+
+Tue, 21 Jul 2026 18:39:22 GMT
+
+https://movieweb.com/ryan-gosling-la-la-land-hand-fixed/
+
+Ryan Gosling can sleep better night knowing his biggest filming mistake has been fixed.
+---------
+
+# 25 Years Later, Action Blockbuster That Sparked $7 Billion Franchise Sets New Release
+
+Movie News, The Fast and the Furious, Fast and Furious
+
+Tue, 21 Jul 2026 18:16:14 GMT
+
+https://movieweb.com/fast-and-the-furious-4k-blu-ray-release/
+
+Universal Pictures is celebrating the 25th anniversary of 'The Fast and the Furious' with a new 4K Ultra HD Blu-ray release.
+---------
+
+# 'Godzilla vs. Kong' Star Kaylee Hottle Dies Aged 18
+
+Movie News, Godzilla vs. Kong
+
+Tue, 21 Jul 2026 18:12:50 GMT
+
+https://movieweb.com/godzilla-vs-kong-kaylee-hottle-dies-aged-18/
+
+Hottle's father confirmed the sad news today.
+---------
+
+# When 'Stuart Fails to Save the Universe' Releases & Full Season Schedule
+
+Features, Stuart Fails to Save the Universe, The Big Bang Theory
+
+Tue, 21 Jul 2026 18:00:13 GMT
+
+https://movieweb.com/when-stuart-fails-save-universe-release-schedule/
+
+'Stuart Fails to Save the Universe,' 'The Big Bang Theory' spin-off series starring Kevin Sussman and Lauren Lapkus, releases soon on HBO Max.
+---------
+
 # Avengers: Doomsday Trailer Hides Doom’s Real Plan
 
 Movies, Originals
@@ -5144,356 +5496,4 @@ Mon, 20 Jul 2026 03:00:16 GMT
 https://www.cbr.com/best-harrison-ford-classic-movies-list/
 
 A movie star in the truest sense, Harrison Ford has such a legendary career he has more than one classic to his name.
----------
-
-# 28 Years Later, PS1 Game Officially Returns This Week With Genre-Changing Prequel
-
-Games, PlayStation (Original)
-
-Mon, 20 Jul 2026 02:46:03 GMT
-
-https://www.cbr.com/hard-edge-war-zone-prequel-game-steam-july-23/
-
-The PlayStation exclusive title gets reimagined with a genre-changing prequel.
----------
-
-# Taylor Sheridan's Game-Changing Military Thriller Revealed a Brand New Side of 2025's Biggest Star
-
-Movie Features, Tom Clancy's Without Remorse, Michael B. Jordan, Taylor Sheridan, Prime Video
-
-Mon, 20 Jul 2026 03:33:14 GMT
-
-https://collider.com/taylor-sheridan-without-remorse-prime-video-michael-b-jordan-performance/
-
-Prime Video's Without Remorse is notable for being penned by Taylor Sheridan and proving that Michael B. Jordan can pull off action stardom.
----------
-
-# 10 Forgotten '90s Sitcoms That Have Aged Like Milk
-
-TV, Sitcom, 90s, Herman's Head, Men Behaving Badly
-
-Mon, 20 Jul 2026 03:22:15 GMT
-
-https://collider.com/forgotten-90s-sitcoms-aged-like-milk/
-
-Time hasn't been so kind to forgotten '90s sitcoms like Herman's Head and The Norm Show, with their reputation growing worse with each passing year.
----------
-
-# 'The Vampire Lestat's Eric Bogosian and Assad Zaman Pitch a Devil's Minion Spin-Off After the Game-Changing Finale
-
-Exclusives, The Vampire Lestat, Interview with the Vampire, Eric Bogosian, Assad Zaman
-
-Mon, 20 Jul 2026 02:22:15 GMT
-
-https://collider.com/the-vampire-lestat-episode-7-finale-eric-bogosian-assad-zaman-interview/
-
-The Vampire Lestat's Eric Bogosian and Assad Zaman discuss the shocking finale, Armand's last act with Louis, and Daniel's deeper motivation.
----------
-
-# Sam Reid Confirms the End of an Era for 'The Vampire Lestat': "That Chapter Is Closing"
-
-Exclusives, The Vampire Lestat, Interview with the Vampire, Sam Reid, AMC
-
-Mon, 20 Jul 2026 02:17:15 GMT
-
-https://collider.com/the-vampire-lestat-episode-7-finale-sam-reid-interview/
-
-The Vampire Lestat's Sam Reid discusses the finale's deeper meaning for Lestat and why it represents a new chapter for his closest relationships.
----------
-
-# 'House of the Dragon' Goes Full-On Horror With a Murder Mystery Twist | Review
-
-TV Reviews, House of the Dragon, Game Of Thrones, Matt Smith, HBO Max
-
-Mon, 20 Jul 2026 02:00:25 GMT
-
-https://collider.com/house-of-the-dragon-season-3-episode-5-review/
-
-House of the Dragon Season 3 continues to slowly stoke the flames of war as a new villain emerges in Episode 5.
----------
-
-# 10 Greatest Miniseries Masterpieces of the 21st Century, Ranked
-
-TV, TV Miniseries, Chernobyl, Band of Brothers, The Queen's Gambit
-
-Mon, 20 Jul 2026 01:22:16 GMT
-
-https://collider.com/best-miniseries-modern-masterpieces-ranked/
-
-Discover the 21st century's best limited series, ranked by storytelling prowess and cultural impact, from Chernobyl to Band of Brothers.
----------
-
-# 'House of the Dragon' Episode 5's Cliffhangers and Book Changes, Explained
-
-Features, House of the Dragon
-
-Mon, 20 Jul 2026 02:00:22 GMT
-
-https://movieweb.com/house-of-the-dragon-season-3-episode-5-ending-changes/
-
-How's that for an ending?
----------
-
-# 'House of the Dragon' S3E5 Review: A Slower Episode Sets the Stage for Battle
-
-TV Reviews, House of the Dragon
-
-Mon, 20 Jul 2026 02:00:22 GMT
-
-https://movieweb.com/house-of-the-dragon-season-3-episode-5-review-recap/
-
-'House of the Dragon' Episode 5 ramps up narrative momentum for the inevitable: another pivotal battle.
----------
-
-# 10 Biggest Questions After 'House of the Dragon' Season 3, Episode 5
-
-TV Lists, House of the Dragon
-
-Mon, 20 Jul 2026 01:55:12 GMT
-
-https://movieweb.com/house-of-the-dragon-season-3-episode-5-big-questions/
-
-'House of the Dragon' is a complicated show. We're here to answer all of your questions in one place, without any book spoilers.
----------
-
-# New Stardew Valley Rival Adds A Dash Of Baldur’s Gate 3
-
-Gaming, Stardew Valley, Steam, Indie
-
-Mon, 20 Jul 2026 01:00:11 GMT
-
-https://screenrant.com/emberville-stardew-valley-rival-bg3-jennifer-english/
-
-Stardew Valley's biggest farming sim competition just announced a massive update that is sure to give it the edge when it comes to storytelling.
----------
-
-# It Took Marvel 58 Years To Take Daredevil’s Best Costume From Good To God-Tier
-
-TV, Daredevil
-
-Mon, 20 Jul 2026 00:53:35 GMT
-
-https://screenrant.com/daredevil-best-costume-ketchup-mustard-she-hulk/
-
-Daredevil has only had several new costumes thus far in the MCU, and one that has only made a niche appearance is arguably the best of them all.
----------
-
-# Netflix’s New Philip K. Dick Show Adapts 1 Of His Most “Unfilmable” Sci-Fi Stories
-
-Streaming TV, Masked Recs
-
-Mon, 20 Jul 2026 00:45:11 GMT
-
-https://screenrant.com/netflix-philip-k-dick-world-jones-made-unfilmable/
-
-Netflix’s new Philip K. Dick adaptation is incredibly ambitious because it adapts one of the most “unfilmable” stories written by the sci-fi author.
----------
-
-# 2 Years Later, It’s Clear Marvel Missed Their Best Chance To Beat DC
-
-Marvel Comics, DC Comics
-
-Mon, 20 Jul 2026 00:44:12 GMT
-
-https://screenrant.com/marvel-comics-almost-had-dc-absolute/
-
-Marvel was potentially given the same opportunity for success as DC now has with its Absolute publishing line, but let it slip away.
----------
-
-# 13 Best Battles In Game Of Thrones & House Of The Dragon, Ranked
-
-Streaming TV, Game of Thrones, Game Of Thrones, House of the Dragon
-
-Mon, 20 Jul 2026 00:30:13 GMT
-
-https://screenrant.com/game-of-thrones-house-of-the-dragon-best-battles-ranked/
-
-Game of Thrones and House of the Dragon are packed with unforgettable fantasy battles. These stand out as the best of the best between the two shows.
----------
-
-# Dragon Ball Reveals New Ultra-Powerful Goku Form For Next Major Release
-
-Gaming, Dragon Ball, Dragon Ball Xenoverse 2
-
-Mon, 20 Jul 2026 00:30:11 GMT
-
-https://screenrant.com/dragon-ball-goku-new-form-superhero-ultra-instinct/
-
-Dragon Ball reveals a new powerful transformation for Goku as the Xenoverse 2 era comes to an end, setting the stage for Xenoverse 3 in 2027.
----------
-
-# DC Fans Are Convinced A Marvel Rivals Clone Is Right Around The Corner
-
-Gaming, DC, Marvel Rivals, Fortnite, Triple-A Games
-
-Mon, 20 Jul 2026 00:30:11 GMT
-
-https://screenrant.com/dc-fortnite-swimsuit-skins-marvel-rivals-clone/
-
-DC does not yet have its own version of Marvel Rivals, but it seems to be taking inspiration from the 6v6 hero-shooter lately regardless.
----------
-
-# 10 Sci-Fi Monster Movies That Owe Everything To Alien
-
-Classic Movies, Alien
-
-Mon, 20 Jul 2026 00:10:11 GMT
-
-https://screenrant.com/sci-fi-monster-movies-owe-to-alien/
-
-Alien was a groundbreaking horror sci-fi movie and many movies that came out over the years since owe their existence to this classic movie.
----------
-
-# Solo Leveling's Movie Could Be The Genre Change The Franchise Needs
-
-Anime, Solo Leveling
-
-Mon, 20 Jul 2026 00:00:11 GMT
-
-https://screenrant.com/solo-leveling-beyond-system-genre-change/
-
-Solo Leveling can leverage its darker elements to create even more compelling tension and character development, taking the franchise to new heights.
----------
-
-# 3 Years Later, Gareth Edwards' Underrated Sci-Fi Movie Is Finally Getting Its Revenge on the Global Netflix Charts
-
-Movies, The Creator
-
-Mon, 20 Jul 2026 01:00:15 GMT
-
-https://www.cbr.com/the-creator-sci-fi-netflix-success-july-2026/
-
-The underrated sci-fi movie earns some redemption three years after its underwhelming run at the box office.
----------
-
-# NBC's 2-Part The Odyssey Miniseries Becomes a PVOD Sensation as Christopher Nolan's Film Soars
-
-Movies, The Odyssey, Apple TV
-
-Mon, 20 Jul 2026 01:00:15 GMT
-
-https://www.cbr.com/the-odyssey-miniseries-fantasy-apple-tv-streaming-success-july-2026/
-
-As Christopher Nolan's The Odyssey sets sail, another adaptation of the iconic Greek epic is officially a streaming sensation.
----------
-
-# Top Dragon Ball Movie Wins Landslide Victory in Official Netflix Ranking
-
-Anime, Dragon Ball, Dragon Ball Z: Battle of Gods
-
-Mon, 20 Jul 2026 01:00:15 GMT
-
-https://www.cbr.com/dragon-ball-z-battle-of-gods-netflix-viewership-report/
-
-Dragon Ball fans sent one of the franchise's best movies straight to the top in a clear and decisive victory in Netflix's latest engagement report.
----------
-
-# Pokémon Is Officially Bringing Back Ash and Pikachu on August 7
-
-Anime, Pokemon, Disney+, Nintendo
-
-Mon, 20 Jul 2026 01:00:15 GMT
-
-https://www.cbr.com/pokmon-ash-pikachu-indigo-league-disney-plus-august-2026/
-
-Pokémon's Indigo League is making a surprise return with Ash Ketchum and Pikachu this August.
----------
-
-# 10 Greatest Anime Series From 2009 to 2010
-
-Anime, Fullmetal Alchemist Brotherhood, The Tatami Galaxy
-
-Mon, 20 Jul 2026 00:45:15 GMT
-
-https://www.cbr.com/greatest-anime-series-2009-2010-list/
-
-From 2009 to the end of 2010, the anime medium exceeded expectations with storytelling and world-building thanks to these ten epic titles.
----------
-
-# 3 Open-World RPGs That Are 10/10 Masterpieces
-
-Games, The Witcher 3: Wild Hunt, Baldur's Gate 3, RPG, Video Games
-
-Mon, 20 Jul 2026 00:30:15 GMT
-
-https://www.cbr.com/best-open-world-rpg-masterpieces/
-
-Open-world role-playing games offer gamers some of the most engaging experiences in video games.
----------
-
-# 10 Near Perfect Villainess Anime You Should Watch This Summer
-
-Anime, Isekai, My Next Life as a Villainess: All Routes Lead to Doom!
-
-Mon, 20 Jul 2026 00:15:15 GMT
-
-https://www.cbr.com/near-perfect-villainess-anime-watch-this-summer/
-
-Villainess anime continue to be some of the best Isekai series in Summer 2026.
----------
-
-# 10 Supporting Anime Characters Who Are Better Leaders Than the Protagonist
-
-Anime, Black Clover, Naruto, One Piece
-
-Sun, 19 Jul 2026 23:45:15 GMT
-
-https://www.cbr.com/supporting-anime-characters-better-than-the-protagonist/
-
-Anime protagonists are often leaders by default, and characters like Eren, Luffy, and Asta prove why that's not a good thing.
----------
-
-# Tom Cruise and Kermit the Frog of The Muppets Finally Meet in Viral Video
-
-TV, The Muppet Show, tom cruise
-
-Sun, 19 Jul 2026 23:43:32 GMT
-
-https://www.cbr.com/tom-cruise-kermit-the-frog-meet/
-
-Tom Cruise and Kermit the Frog became fast friends when the two unexpectedly met in a video that's now gone viral.
----------
-
-# In Just 5 Days, Titus Welliver & J.K. Simmons' New Crime Drama Loses No. 1 Spot to Hit Lost Replacement
-
-TV, From, The Westies
-
-Sun, 19 Jul 2026 23:30:15 GMT
-
-https://www.cbr.com/from-horror-mgm-plus-success-june-2026/
-
-The crime drama series loses its grip on the top spot on the streaming charts.
----------
-
-# ‘Euphoria’ Officially Returns for One Final Release 2 Months After Finale
-
-TV News, Euphoria, HBO Max, Sydney Sweeney, Zendaya
-
-Mon, 20 Jul 2026 00:45:15 GMT
-
-https://collider.com/euphoria-a-look-back-featurette-hbo-max-release-date-july-24-2026/
-
-Two months after its finale, HBO’s hit drama returns with a special retrospective celebrating its cast and journey.
----------
-
-# Netflix's New 8-Part YA Series Is Taking Aim at Prime Video
-
-TV News, Crew Girl, Netflix, Drama, Romance
-
-Mon, 20 Jul 2026 00:30:15 GMT
-
-https://collider.com/crew-girl-netflix-premeire-date-september-10-plot-details/
-
-Netflix's latest teen drama pits the streaming giant against Prime Video in the competitive YA show landscape. Get all the details here.
----------
-
-# ‘A Quiet Place’ Meets ‘Arachnophobia’ in First Trailer for Terrifying New Survival Thriller
-
-Movie News, Horror, Thriller, A Quiet Place, Arachnophobia
-
-Mon, 20 Jul 2026 00:15:15 GMT
-
-https://collider.com/a-quiet-place-replacement-dont-move-trailer/
-
-A new survival thriller pits stranded survivors against a terrifying predator that hunts by sound, and its first trailer is a chilling must-watch.
 ---------
