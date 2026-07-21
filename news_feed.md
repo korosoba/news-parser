@@ -1,3 +1,333 @@
+# The Shining Ending Explained: Why Jack Is In The Photo
+
+Movies, The Shining
+
+Tue, 21 Jul 2026 12:00:12 GMT
+
+https://screenrant.com/shining-movie-ending-meaning-photo-book-explained/
+
+One of the many mysteries of Stanley Kubrick's The Shining is why Jack appears in the photo at the end, and it actually has a semi-simple explanation.
+---------
+
+# Fallout 5 Official Gameplay Teaser Is Exactly What We Hoped For
+
+Gaming, Fallout, Fallout 5
+
+Tue, 21 Jul 2026 12:00:11 GMT
+
+https://screenrant.com/fallout-5-official-gameplay-teaser-todd-howard/
+
+Fallout 5 might be a long way away, but the latest teaser is certainly enough to get the beleaguered fans excited.
+---------
+
+# 12 Best American Crime Shows Of All Time
+
+Classic TV, Crime
+
+Tue, 21 Jul 2026 12:00:11 GMT
+
+https://screenrant.com/best-american-crime-gangster-shows/
+
+From The Sopranos to The Wire to Breaking Bad to True Detective, the lion's share of iconic American TV shows belong to the crime genre.
+---------
+
+# The Witcher 3: Songs Of The Past Official Teaser Unveiled
+
+Gaming, The Witcher 3: Wild Hunt, The Witcher, PC
+
+Tue, 21 Jul 2026 11:51:04 GMT
+
+https://screenrant.com/witcher-3-songs-of-past-official-first-look-teaser/
+
+The Witcher 3's long-awaited DLC, Songs of the Past, just got an official new update, with a major new teaser fans won't want to miss.
+---------
+
+# Steam Giving Away Over 40 Free Downloads In Massive Limited-Time Even
+
+Gaming, Steam, Valve
+
+Tue, 21 Jul 2026 11:30:11 GMT
+
+https://screenrant.com/steam-train-fest-free-demos-limited-time-july-2026/
+
+Steam is having yet another one of its exciting events, and there are plenty of free downloads for players to try out as a result.
+---------
+
+# It's Confirmed: Constantine Is Finally Returning
+
+Gaming, Constantine, John Constantine, PC, DC
+
+Tue, 21 Jul 2026 11:21:01 GMT
+
+https://screenrant.com/constantine-official-return-dcko/
+
+Constantine is finally making a triumphant return to form in a brand-new release scheduled for next year, mark your calendars now.
+---------
+
+# Fourth Wing: Rise of the Wingleader Begins An All-New Saga
+
+Gaming, Fourth Wing (2023)
+
+Tue, 21 Jul 2026 11:00:11 GMT
+
+https://screenrant.com/fourth-wing-rise-of-the-wingleader-new-game/
+
+Fourth Wing has been one of the more successful new fantasy entries of recent years, and it's back in a whole new medium.
+---------
+
+# 7 Video Game Remakes That Are Better Than The Original
+
+Gaming, Triple-A Games, Resident Evil
+
+Tue, 21 Jul 2026 10:41:39 GMT
+
+https://screenrant.com/video-game-remakes-better-than-original/
+
+All video game remakes should strive to be as faithful as possible to the original they're inspired by, but only so many have been better than them.
+---------
+
+# Star Wars' Live-Action Darth Revan Casting Splits Gamers
+
+Gaming, Star Wars, Star Wars: Knights of the Old Republic
+
+Tue, 21 Jul 2026 10:34:50 GMT
+
+https://screenrant.com/star-wars-darth-revan-unmasked-casting-keanu-reeves/
+
+Darth Revan is one of the coolest characters in the Star Wars canon, but fans can't decide who they want to play him.
+---------
+
+# Zelda: Ocarina Of Time Remake Demo Offers You 5 Hours Of Gameplay
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Tue, 21 Jul 2026 10:24:43 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-5-hour-demo/
+
+Experience a 5-hour playable demo of the fan-made The Legend of Zelda: Ocarina of Time Remake, created over 10 years before Nintendo's official remake
+---------
+
+# Absolute Batman Art Sells For Ridiculous Price In Ludicrous Amount Of Time
+
+Comics, Absolute Batman, Batman
+
+Tue, 21 Jul 2026 12:01:14 GMT
+
+https://www.cbr.com/absolute-batman-23-variant-cover-art-sells-high-fast/
+
+Absolute Batman #23 Clayface Variant Cover Art Print For A Lot And Fast
+---------
+
+# 10 DC Characters Who Could Solo the Entire Marvel Universe
+
+Comics, DC Comics
+
+Tue, 21 Jul 2026 12:01:14 GMT
+
+https://www.cbr.com/dc-characters-who-could-destroy-the-marvel-universe/
+
+Some of DC's most powerful characters may be able to sweep through the Marvel Universe and cause chaos in their wake.
+---------
+
+# 10 Best Justice League Comics Ever Published
+
+Comics, Justice League, DC Comics, Superman
+
+Tue, 21 Jul 2026 11:45:15 GMT
+
+https://www.cbr.com/best-justice-league-comics-ever-published/
+
+Since 1960, the Justice League has served as DC Comics’ flagship superhero team, and has some near-flawless stories to prove it.
+---------
+
+# David Boreanaz's 100% RT Crime Thriller Show Is Still Better Than Anything on Streaming
+
+TV, Bones, Crime, Thriller
+
+Tue, 21 Jul 2026 11:30:15 GMT
+
+https://www.cbr.com/bones-best-crime-thriller-show-streaming/
+
+David Boreanaz starred in one of the most celebrated crime thriller shows ever made, and it is still one of the best crime shows on streaming.
+---------
+
+# The Vampire Lestat Boss Gives Thrilling Season 4 Update After Season 3 Finale
+
+TV, Interview with the Vampire, The Vampire Lestat
+
+Tue, 21 Jul 2026 11:01:14 GMT
+
+https://www.cbr.com/the-vampire-lestat-season-4-update-lestat-louis-future/
+
+The Vampire Lestat's third season ended with a massive cliffhanger, and the showrunner is ready to reveal what comes next.
+---------
+
+# The Funniest Far Side Comics About Fashion, Ranked
+
+Comics, The Far Side
+
+Tue, 21 Jul 2026 11:01:14 GMT
+
+https://www.cbr.com/best-far-side-comics-about-fashion-ranked/
+
+Over the years, Gary Larson has toyed with the world of fashion on a few occasions, creating comical fashion puns or faux pas for The Far Side.
+---------
+
+# 'The Odyssey's Spiritual Predecessor Surges to #1 on Streaming Despite Poor Reviews
+
+Movie News, Troy, The Odyssey, Christopher Nolan, Brad Pitt
+
+Tue, 21 Jul 2026 12:01:14 GMT
+
+https://collider.com/the-odyssey-spiritual-predecessor-troy-streaming-success-july-2026/
+
+Troy, the spiritual predecessor to The Odyssey starring Brad Pitt, is surging on streaming right now as Christopher Nolan's epic dominates theaters.
+---------
+
+# 8 Forgotten Action Movies That Deserve to Be Rediscovered on Prime Video
+
+Movie, Action, Prime Video, The Jackal, Enemy of the State
+
+Tue, 21 Jul 2026 11:52:14 GMT
+
+https://collider.com/action-movies-prime-video-forgotten/
+
+From Red Sun to The Jackal, Spy Game to Enemy of the State, these forgotten action movies need to be rediscovered on Prime Video.
+---------
+
+# All 15 Madonna Albums, Ranked
+
+Music Features, Madonna, Pop, Music, Madonna: Truth or Dare
+
+Tue, 21 Jul 2026 11:45:14 GMT
+
+https://collider.com/madonna-albums-ranked/
+
+With Madonna's Confessions II marking a significant comeback, we've marked every album by the Queen of Pop, from Like a Prayer to Ray of Light.
+---------
+
+# Gerard Butler's Bloody 102-Minute Survival Thriller Is One of the Best on Prime Video
+
+Movie Features, Plane, Gerard Butler, Mike Colter, Prime Video
+
+Tue, 21 Jul 2026 11:31:14 GMT
+
+https://collider.com/gerard-butler-action-movie-streaming-prime-video-plane/
+
+Plane, starring Gerard Butler and Mike Colter, is the kind of throwback action-thriller that stands above most of what the genre has to offer.
+---------
+
+# Fleetwood Mac's Most Beautiful Song Proved Christine McVie Was Their Greatest Songwriter
+
+Music Features, Fleetwood Mac, Music, Rock, Billboard Hot 100
+
+Tue, 21 Jul 2026 11:30:14 GMT
+
+https://collider.com/fleetwood-mac-christine-mcvie-greatest-songwriter-songbird/
+
+Christine McVie's heartfelt songwriting made her Fleetwood Mac's emotional core, reaching its peak with the timeless classic Songbird.
+---------
+
+# ‘Red Dead Redemption 2’ Is Officially Getting the Expansion Fans Have Been Waiting For
+
+Gaming News, Red Dead Redemption 2, Rockstar Games, Western, Video Game
+
+Tue, 21 Jul 2026 11:30:14 GMT
+
+https://collider.com/red-dead-redemption-2-mexico-expansion-sadie-adler-new-story/
+
+Red Dead Redemption 2 is officially expanding into Mexico with a new release centered around Sadie Adler before GTA 6.
+---------
+
+# Apple TV’s ‘Silo’ Season 3 Justified Its Most Controversial Twist in Only 3 Episodes
+
+TV Features, Silo, Apple TV, Rebecca Ferguson, Graham Yost
+
+Tue, 21 Jul 2026 11:18:14 GMT
+
+https://collider.com/apple-tv-silo-season-3-justified-controversial-twist-episodes/
+
+Apple TV's Silo Season 3 added an amnesia plotline that wasn't present in the books, but it's already proving to be a great change.
+---------
+
+# 10 Greatest Video Game Masterpieces of the Last 50 Years
+
+Gaming, Video Game, Disco Elysium, The Elder Scrolls V: Skyrim, Elden Ring
+
+Tue, 21 Jul 2026 11:03:14 GMT
+
+https://collider.com/best-video-game-masterpieces-last-50-years-ranked/
+
+The video game medium has mainly taken shape in the last 50 years, thanks to triumphant masterpieces like Elden Ring, Super Mario World, and Skyrim.
+---------
+
+# Jon Snow’s Official ‘Game of Thrones’ Return Delayed to 2027
+
+Gaming News, Game Of Thrones, Jon Snow, Kit Harington, House of the Dragon
+
+Tue, 21 Jul 2026 11:01:14 GMT
+
+https://collider.com/jon-snow-game-of-thrones-return-war-for-westeros-delayed-2027/
+
+Jon Snow's official Game of Thrones return in the new project War for Westeros has been delayed until 2027.
+---------
+
+# 6 Best Vampire Movies Released Since 2020
+
+Movie, Sinners, Abigail, Nosferatu, Humanist Vampire Seeking Consenting Suicidal Person
+
+Tue, 21 Jul 2026 10:41:14 GMT
+
+https://collider.com/best-vampire-movies-since-2020-ranked/
+
+Sinners, Abigail, and Robert Eggers' Nosferatu remake are all among the best vampire movies released since the year 2020.
+---------
+
+# CBS’ Near-Perfect Thriller Spin-Off Beats the Original at Its Own Game
+
+Features, NCIS
+
+Tue, 21 Jul 2026 12:00:12 GMT
+
+https://movieweb.com/ncis-origins-better-than-original/
+
+CBS has many popular dramas, action shows, and thrillers, and its best franchise has one perfect and memorable spin-off series.
+---------
+
+# Amazon Scores Big as Jason Statham's New 107-Minute Action Thriller Shoots up Streaming Ranks
+
+Movie News, Shelter, Jason Statham, Hot on Streaming
+
+Tue, 21 Jul 2026 11:01:12 GMT
+
+https://movieweb.com/jason-statham-shelter-prime-video-global-streaming-july-2026/
+
+The white-knuckle thriller is one of two films Statham released in 2026.
+---------
+
+# Robert De Niro's Underrated 28-Year-Old Action Thriller Still Holds Up
+
+Features, Robert De Niro
+
+Tue, 21 Jul 2026 11:01:12 GMT
+
+https://movieweb.com/robert-de-niro-underrated-classic-ronin/
+
+Robert De Niro's '90s action thriller, Ronin, is still as entertaining today as it was when it was first released.
+---------
+
+# ABC's 'High Potential' Is Officially One of 2026's Most-Watched Shows
+
+TV News, High Potential, Kaitlin Olson
+
+Tue, 21 Jul 2026 10:58:53 GMT
+
+https://movieweb.com/high-potential-most-watched-broadcast-tv-2026/
+
+Nielsen's final 2025-26 figures confirm ABC's 'High Potential' as the third most-watched broadcast series, with 16 million viewers.
+---------
+
 # All 13 Christopher Nolan Movies Ranked Worst To Best
 
 Movies, Christopher Nolan
@@ -5166,334 +5496,4 @@ Sun, 19 Jul 2026 19:00:15 GMT
 https://www.cbr.com/solo-leveling-omniscient-readers-viewpoint-system-sync/
 
 Solo Leveling's Sung Jinwoo and Omniscient Reader's Viewpoint's Kim Dokja for an epic collaboration between manhwa's biggest rivals.
----------
-
-# 5 Greatest Fantasy Movies Recommended by Roger Ebert
-
-Movies, Fantasy
-
-Sun, 19 Jul 2026 19:00:15 GMT
-
-https://www.cbr.com/best-fantasy-movies-recommended-by-roger-ebert-list/
-
-Roger Ebert is one of the most revered film critics of all time, and there are some perfect fantasy films that Ebert recommended.
----------
-
-# Katee Sackhoff's 3-Season Sci-Fi Show With a 90% RT Score Outshines Battlestar Galactica
-
-TV, Sci-Fi, Battlestar Galactica, The Mandalorian
-
-Sun, 19 Jul 2026 18:30:15 GMT
-
-https://www.cbr.com/katee-sackhoff-the-mandalorian-vs-battlestar-galactica/
-
-Katee Sackhoff has been part of some great sci-fi shows, but only one surpassed the greatness of Battlestar Galactica.
----------
-
-# 10 Anime Series With Flawless First Seasons
-
-Anime, Demon Slayer: Kimetsu no Yaiba, Attack on Titan, Spy X Family
-
-Sun, 19 Jul 2026 18:15:15 GMT
-
-https://www.cbr.com/anime-series-with-flawless-first-seasons/
-
-Not all anime finish strong, but series like Demon Slayer and Spy X Family started perfectly.
----------
-
-# The Vampire Lestat's Sarah Afful Explains the 'Magical Connection' She Has to Merrick
-
-CBR Exclusives, The Vampire Lestat
-
-Sun, 19 Jul 2026 18:02:27 GMT
-
-https://www.cbr.com/the-vampire-lestat-sarah-afful-merrick-mayfair-claudia-seance/
-
-Sarah Afful explains how she brought Merrick Mayfair’s boldness and supernatural abilities to The Vampire Lestat’s séance scene.
----------
-
-# Russell Crowe's 95-Minute Divisive Horror Is Officially Making Its Way to Netflix
-
-Movies, The Exorcism
-
-Sun, 19 Jul 2026 18:00:15 GMT
-
-https://www.cbr.com/the-exorcism-netflix-release-july-2026/
-
-One of the most critically divisive horror films of the decade is officially heading to a brand-new streaming home in just a matter of days.
----------
-
-# NBC's 'Chicago P.D.' Finally Hits Netflix, But There's a Catch
-
-TV News, Chicago P.D., Netflix, NBC, Procedural
-
-Sun, 19 Jul 2026 19:00:15 GMT
-
-https://collider.com/chicago-pd-nbc-procedural-netflix-international-streaming/
-
-NBC's gritty police procedural is coming to Netflix this August as Season 14 nears. Here's all you need to know.
----------
-
-# 8 Detective Shows That Make Sherlock Look Like an Amateur
-
-TV, Sherlock, Elementary, True Detective, Poirot
-
-Sun, 19 Jul 2026 18:49:15 GMT
-
-https://collider.com/detective-shows-better-than-sherlock/
-
-Luther, Mindhunter, Elementary, True Detective, and more make up our list of detective shows that make Sherlock look like an amateur.
----------
-
-# 6 Worst R-Rated '90s Action Movies
-
-Movie, Action, Steel Frontier, Universal Soldier: The Return, Judge Dredd
-
-Sun, 19 Jul 2026 18:40:15 GMT
-
-https://collider.com/6-worst-r-rated-90s-action-movies-that-are-truly-010/
-
-From Double Team, to Steel Frontier, to Judge Dredd, these disastrous R-rated '90s action movies were embarrassing rather than thrilling.
----------
-
-# 10 Sci-Fi Books About Aliens That Are 10/10, No Notes
-
-Books and Comics, Science Fiction, Sci-Fi, Stephen King, Project Hail Mary
-
-Sun, 19 Jul 2026 18:33:14 GMT
-
-https://collider.com/sci-fi-books-aliens-perfect-no-notes/
-
-From Andy Weir's Project Hail Mary to the international masterpiece The Three-Body Problem, these alien-themed science fiction novels are flawless.
----------
-
-# 13 Years Later, Disney's First PG-13 Movie Is a Streaming Hit
-
-Movie News, Pirates of the Caribbean: The Curse of the Black Pearl, Disney, Disney+, Streaming
-
-Sun, 19 Jul 2026 18:00:15 GMT
-
-https://collider.com/pirates-of-the-caribbean-the-curse-of-the-black-pearl-streaming-success-disney-plus-july-2026/
-
-Disney's first PG-13 movie, Pirates of the Caribbean: The Curse of the Black Pearl, has found streaming success 13 years later. Find out more here.
----------
-
-# All The Stars of Netflix's 'One Piece' Will Return for New Special
-
-TV News, One Piece, Netflix
-
-Sun, 19 Jul 2026 19:00:41 GMT
-
-https://movieweb.com/one-piece-netflix-stars-lego-special/
-
-All the main stars of Netflix's live-action 'One Piece' remake will return for the upcoming animated special.
----------
-
-# Apple TV's Sci-Fi Hit Is Left With a Spare Character After Huge Book Change
-
-Features, Foundation, Apple TV, Sci-Fi
-
-Sun, 19 Jul 2026 19:00:12 GMT
-
-https://movieweb.com/foundation-magnifico-spare-character/
-
-'Foundation' Season 3's finale massively altered one of the source material's biggest twists. It's had an interesting side effect. Read on for now.
----------
-
-# The 10 Most Disturbing Books of All Time
-
-Movie Lists
-
-Sun, 19 Jul 2026 18:30:12 GMT
-
-https://movieweb.com/most-disturbing-books-all-time/
-
-Literature goes to dark and challenging places and thoughts like no other medium: These ten books prove it.
----------
-
-# Hulu’s Masterpiece Smash Hit Deserves Its Rotten Tomatoes Score
-
-Features, The Bear, Hulu
-
-Sun, 19 Jul 2026 18:00:12 GMT
-
-https://movieweb.com/the-bear-hulu-deserves-rotten-tomatoes-score/
-
-Hulu has several memorable original TV shows, but this series is particularly impressive.
----------
-
-# 4 Werewolf Movies Coming in 2026 and Beyond
-
-Movie Lists, Horror
-
-Sun, 19 Jul 2026 18:00:12 GMT
-
-https://movieweb.com/werewolf-movies-coming-in-2026-and-beyond/
-
-With so many classic monsters making a resurgence, horror fans can expect to see these upcoming werewolf movies.
----------
-
-# 'Supergirl' Sets Unfortunate Record for the DC Universe
-
-Movie News, Supergirl, Superhero, Superman
-
-Sun, 19 Jul 2026 18:00:11 GMT
-
-https://movieweb.com/supergirl-box-office-record-dc-superman/
-
-This superhero pic did not fly high.
----------
-
-# Anne Hathaway Gives Major Update On Long-Awaited Sequel 22 Years Later
-
-Movies, The Princess Diaries 3
-
-Sun, 19 Jul 2026 17:56:43 GMT
-
-https://screenrant.com/anne-hathaway-princess-diaries-3-production-update/
-
-Anne Hathaway is Hollywood royalty and has now given an interesting update regarding the future of a 25-year-old franchise and its sequel.
----------
-
-# Prime Video's New Stephen King Series Will Be Stranger Things But WAY Bloodier
-
-Streaming TV, Masked Recs
-
-Sun, 19 Jul 2026 17:30:11 GMT
-
-https://screenrant.com/carrie-stephen-king-prime-video-series-stranger-things-bloody/
-
-Based on an iconic Stephen King novel, Prime Video's Stranger Things replacement promises to be much darker than the popular Netflix show.
----------
-
-# How Every Christopher Nolan Movie Foreshadows The Odyssey
-
-Movies, The Odyssey, Christopher Nolan
-
-Sun, 19 Jul 2026 17:15:11 GMT
-
-https://screenrant.com/how-every-christopher-nolan-movie-foreshadows-the-odyssey-connections-and-parallels/
-
-The Odyssey is now playing in theaters, feeling very much like the culmination of Christopher Nolan's entire filmmaking career thus far.
----------
-
-# 4-Part Superhero Series On Netflix Beats Marvel At Its Own Game
-
-Network TV, Masked Recs, Heroes
-
-Sun, 19 Jul 2026 17:00:11 GMT
-
-https://screenrant.com/heroes-season-1-beat-marvel-at-own-game/
-
-Before Marvel brought heroes together for Avengers films, NBC's Heroes set a precedent for how to do it the best, and is now streaming on Netflix.
----------
-
-# Power Rangers Officially Return In A Major Way On July 28
-
-Gaming, Power Rangers, Triple-A Games, PlayStation Plus
-
-Sun, 19 Jul 2026 17:00:11 GMT
-
-https://screenrant.com/power-rangers-ritas-rewind-ps-plus-july-28/
-
-Power Rangers is giving one of its installments with the greatest potential another shot at success, and it'll be available to millions.
----------
-
-# HBO's Harry Potter Biggest Criticism Addressed by Cinematographer
-
-TV, Harry Potter
-
-Sun, 19 Jul 2026 17:30:55 GMT
-
-https://www.cbr.com/hbo-harry-potter-color-grading-criticism-cinematographer/
-
-The series will premiere in December, but it has already received criticism.
----------
-
-# CBS Confirms Tracker Is Abandoning Justin Hartley's Original Formula for Good
-
-TV, Tracker
-
-Sun, 19 Jul 2026 17:30:15 GMT
-
-https://www.cbr.com/tracker-season-3-finale-change-justin-hartley-show/
-
-Justin Hartley's CBS show is unrecognizable in the finale of Tracker Season 3, as its supernatural premise turns a corner for Colter Shaw.
----------
-
-# 10 Best Leader Cards In the One Piece TCG
-
-Games, One Piece, TCG, Tabletop
-
-Sun, 19 Jul 2026 17:15:15 GMT
-
-https://www.cbr.com/best-leader-cards-one-piece-tcg/
-
-From Luffy to Zoro, these One Piece TCG Leader cards are pivotal for building a winning deck.
----------
-
-# Prime Video's 2-Season Reacher Replacement Finds Global Success on Paramount+ as Fans Await New Episodes
-
-TV, Cross, Prime Video, Crime
-
-Sun, 19 Jul 2026 17:01:14 GMT
-
-https://www.cbr.com/prime-video-alex-cross-crime-drama-paramount-success-july-2026/
-
-Prime Video's crime drama based on James Patterson's best-selling book series, Cross, is now a global hit on Paramount+.
----------
-
-# Riverdale Is Officially Returning After the End of the Divisive Live-Action Series
-
-Comics, Riverdale, oni press
-
-Sun, 19 Jul 2026 17:01:14 GMT
-
-https://www.cbr.com/oni-press-riverdale-sabrina-jughead-compact-editions-release-date/
-
-A special new release will take fans back into Riverdale with some familiar faces.
----------
-
-# Voltron Turns to the Dark Side With a Limited-Edition Mecha Collectible
-
-Anime, Voltron, Voltron: Legendary Defender, merchandise, toys
-
-Sun, 19 Jul 2026 17:01:14 GMT
-
-https://www.cbr.com/voltron-legendary-defenders-carbotix-black-blitzway/
-
-Voltron, one of the most iconic giant robots of all time, gets a dark new premium collectible based on its most recent animated adaptation.
----------
-
-# 3 Years After Ending, This 145-Episode Spy Adventure Series Is Already Considered a Classic
-
-TV Features, Archer, Jessica Walter, H. Jon Benjamin, FX
-
-Sun, 19 Jul 2026 17:58:14 GMT
-
-https://collider.com/archer-tv-show-fx-spy-adventure-classic/
-
-3 years after its series finale, FX's Archer stands as one of television's best comedies with its sharp wit, crude jokes, and unexpected heart.
----------
-
-# 10 Best Mindless Horror Movies of All Time
-
-Movie, Evil Dead II, Grindhouse, Gremlins, Dead Alive
-
-Sun, 19 Jul 2026 17:03:14 GMT
-
-https://collider.com/best-mindless-horror-movies-all-time-ranked/
-
-Mindless and easy-to-watch horror movies can be great, as classics like Gremlins, Evil Dead II, and The Return of the Living Dead all demonstrate.
----------
-
-# Deadpool Officially Returns With New X-Men Release This Month
-
-Collectibles, Deadpool, X-Men: The Animated Series, X-Men '97, Ryan Reynolds
-
-Sun, 19 Jul 2026 17:01:14 GMT
-
-https://collider.com/deadpool-mondo-figure-x-men-the-animated-series-release-date-san-diego-comic-con-july-2026/
-
-Mondo has released a new Deadpool figure based on his appearance in X-Men: The Animated Series launching at San Diego Comic-Con later this month.
 ---------
