@@ -1,3 +1,212 @@
+# Jensen Ackles' Tracker Season 4 Return Is More Important Than Ever
+
+Network TV, Tracker
+
+Tue, 21 Jul 2026 23:39:01 GMT
+
+https://screenrant.com/tracker-season-4-colter-backstory-jensen-ackles/
+
+As Tracker season 4 explores Colter Shaw's past, Jensen Ackles' return as Russell Shaw is more important than ever to uncover family mysteries.
+---------
+
+# Netflix's Best Fantasy Series Only Needed 2 Seasons To Be A Masterpiece
+
+TV, Masked Recs
+
+Tue, 21 Jul 2026 23:31:11 GMT
+
+https://screenrant.com/arcane-netflix-two-seasons-masterpiece/
+
+Netflix's best fantasy show is an ambitious masterpiece that managed to redefine the genre in only two seasons after Game of Thrones' success.
+---------
+
+# Why Disney+'s $1.5 Billion Space Opera Was Just Dethroned By A New Fantasy Global Hit
+
+Movies, Masked Recs
+
+Tue, 21 Jul 2026 23:25:57 GMT
+
+https://screenrant.com/disney-plus-avatar-fire-and-ash-descendants-wicked-wonderland-charts/
+
+Disney+'s new $1.5 billion space opera has finally been dethroned on the streaming service's charts by a major fantasy movie, and it makes sense.
+---------
+
+# Rhaenyra Makes House Stark’s Deadliest Mistake In Game Of Thrones Even Worse
+
+Streaming TV, House of the Dragon, House of the Dragon - Season 3, Game of Thrones
+
+Tue, 21 Jul 2026 23:15:11 GMT
+
+https://screenrant.com/house-of-the-dragon-rhaenyra-freys-stark-mistake-repeat/
+
+Any good prequel series adds key context to events from the parent show, and House of the Dragon has just done it again with Game of Thrones.
+---------
+
+# Jon Favreau’s New Lion Series Releases On Hulu Next Month After $1.6 Billion Lion King Remake
+
+TV, Jon Favreau, The Lion King
+
+Tue, 21 Jul 2026 23:08:39 GMT
+
+https://screenrant.com/lion-season-1-jon-favreau-hulu-release-date/
+
+Seven years after Jon Favreau's remake of The Lion King became a box office success, the filmmaker's Lion docuseries is premiering on Hulu soon.
+---------
+
+# Steam’s Big New Free MMORPG Is Genshin Impact Meets Zelda
+
+Gaming, Steam
+
+Tue, 21 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/steam-free-mmorpg-like-zelda/
+
+This free game brings open-world exploration, classic MMORPG action, and Genshin-like charm to Steam for free.
+---------
+
+# The Expanse Meets Battlestar Galactica In Apple TV's 5-Part Sci-Fi Series
+
+Streaming TV, Masked Recs
+
+Tue, 21 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/for-all-mankind-apple-tv-expanse-meets-battlestar-galactica/
+
+No modern space operas live up to The Expanse and Battlestar Galactica, but one notable exception is waiting to be discovered on AppleTV+.
+---------
+
+# 6 Greatest Comebacks In Godzilla's Monster Fights
+
+Movies, Godzilla
+
+Tue, 21 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/6-greatest-comebacks-in-godzillas-monster-fights/
+
+Over the course of the franchise's long cinematic history, Godzilla has mounted some impressive comebacks against incredibly powerful enemies.
+---------
+
+# Stuart Fails to Save the Universe Star Recalls Losing Major Big Bang Theory Role
+
+TV, Stuart Fails to Save the Universe, The Big Bang Theory
+
+Tue, 21 Jul 2026 23:08:08 GMT
+
+https://www.cbr.com/big-bang-theory-kevin-sussman-lost-howard-role/
+
+Before getting the role of Stuart Bloom, Kevin Sussman was originally cast as one of the main characters of The Big Bang Theory.
+---------
+
+# Dragon Ball Z Fans Get First Look at 7 New Converse Sneakers for July 2026
+
+Anime, Dragon Ball, Dragon Ball Z, merchandise, Clothing
+
+Tue, 21 Jul 2026 23:05:15 GMT
+
+https://www.cbr.com/dbz-converse-sneaker-collection-july-2026/
+
+DBZ fans can rock the dragon in style this summer, with Converse revealing a new sneaker collection starring Goku, Cell and even an iconic fusion.
+---------
+
+# 5 Best Performances in Nolan's The Odyssey, Ranked
+
+Movies, The Odyssey, Christopher Nolan
+
+Tue, 21 Jul 2026 23:00:14 GMT
+
+https://www.cbr.com/best-performances-in-the-odyssey-list/
+
+The Odyssey is the cinematic event of the year and the movie has some of the best performances out of all of Christopher Nolan's movies.
+---------
+
+# This Forgotten 5-Part Spy Thriller Is Too Good To Miss for Fans of 'Slow Horses'
+
+TV Features, London Spy, Ben Whishaw, Jim Broadbent, Slow Horses
+
+Tue, 21 Jul 2026 23:42:14 GMT
+
+https://collider.com/london-spy-thriller-ben-whishaw-slow-horses/
+
+London Spy is a must-watch for fans of Slow Horses who crave an emotionally driven spy drama with a shocking twist.
+---------
+
+# Ridley Scott Saves Matt Damon in the Sci-Fi Masterpiece Taking Over Prime Video
+
+Movie News, Matt Damon, Sci-Fi, Prime Video, The Martian
+
+Tue, 21 Jul 2026 23:30:14 GMT
+
+https://collider.com/ridley-scott-matt-damon-sci-fi-the-martian-streaming-success-prime-video-july-2026/
+
+Ridley Scott and Matt Damon’s acclaimed sci-fi adventure is climbing Prime Video’s charts again, proving its popularity hasn’t faded over time.
+---------
+
+# ‘God of War’s Kratos Recasting Will Hurt Prime Video’s Series More Than Its Delay
+
+TV Features, God of War, Ryan Hurst, Ronald D. Moore, Prime Video
+
+Tue, 21 Jul 2026 23:29:14 GMT
+
+https://collider.com/god-of-war-recasting-ryan-hurst-kratos-problem/
+
+God of War is replacing Ryan Hurst as Kratos, even though multiple episodes have already been shot.
+---------
+
+# 'House of the Dragon's Biggest Deviation From 'Fire & Blood' Is Saving the Show
+
+TV Features, House of the Dragon, HBO, HBO Max, George R.R. Martin
+
+Tue, 21 Jul 2026 23:18:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-helaena-pregnancy-fire-and-blood-deviation/
+
+Helaena's unexpected pregnancy revitalizes her character in House of the Dragon and complicates her and Alicent's storyline for the better.
+---------
+
+# All 9 Mythological Figures in Christopher Nolan's 'The Odyssey'
+
+Movie, The Odyssey, Christopher Nolan, Fantasy, Zendaya
+
+Tue, 21 Jul 2026 23:15:14 GMT
+
+https://collider.com/the-odyssey-mythological-figures-ranked/
+
+Odysseus encountered many mythological figures on his journey home in Christopher Nolan's The Odyssey, like Polyphemus and the goddess Circe.
+---------
+
+# The Sci-Fi Epic Quentin Tarantino Said Had the "Last Terrific Car Chase" Is Officially Free to Stream
+
+Movie News, James Cameron, Action, Sci-Fi, Terminator 2: Judgment Day
+
+Tue, 21 Jul 2026 23:00:14 GMT
+
+https://collider.com/james-cameron-sci-fi-terminator-2-judgement-day-free-streaming-youtube-july-2026/
+
+One of James Cameron’s greatest sci-fi blockbusters is now streaming free online for its 35th anniversary, with a theatrical comeback also on the way.
+---------
+
+# 'Avengers: Doomsday' Trailer Debuts to Record-Setting Numbers in Just 24 Hours
+
+Movie News, Avengers: Doomsday
+
+Tue, 21 Jul 2026 23:36:52 GMT
+
+https://movieweb.com/avengers-doomsday-trailer-total-views-record/
+
+The highly anticipated trailer set the record for the biggest Disney trailer ever.
+---------
+
+# Sam's Best Line Is Still the Greatest Quote in 'Lord of the Rings' History
+
+Features, The Lord of the Rings, The Lord of the Rings: The Two Towers
+
+Tue, 21 Jul 2026 23:00:12 GMT
+
+https://movieweb.com/lord-of-the-rings-samwise-best-quote/
+
+The best line in 'Lord of the Rings' history belongs to Samwise Gamgee, as it perfectly captures why people keep returning to this story.
+---------
+
 # Hit "Wizard Of Oz Meets Texas Chainsaw Massacre" Thriller Releases On Hulu Next Week
 
 Movies, Masked Recs
@@ -5287,213 +5496,4 @@ Mon, 20 Jul 2026 15:00:15 GMT
 https://www.cbr.com/disney-descendants-wicked-wonderland-streaming-success-july-2026/
 
 James Cameron's latest Avatar movie falls under the weight of Disney's beloved musical fantasy franchise.
----------
-
-# 5 Underrated MAPPA Anime That Aren't Jujutsu Kaisen
-
-Anime, Terror in Resonance, Kids on the Slope, Yuri on Ice, Dorohedoro, mappa, Jujutsu Kaisen
-
-Mon, 20 Jul 2026 15:00:15 GMT
-
-https://www.cbr.com/underrated-studio-mappa-anime-not-jujutsu-kaisen/
-
-MAPPA isn't just capable of producing the best action anime. The studio is responsible for these masterpieces, from realistic romance to the absurd.
----------
-
-# Avatar Aang Review: The Last Airbender Finally Gets the Movie It Deserves
-
-Movies, Avatar Aang: The Last Airbender, Avatar: The Last Airbender, Paramount Plus
-
-Mon, 20 Jul 2026 15:00:15 GMT
-
-https://www.cbr.com/avatar-aang-the-last-airbender-review/
-
-The Avatar has grown up, so it's time he confronts his past in a sequel film that resembles the spirit of the original Nickelodeon series.
----------
-
-# Peacock's 8-Part Drama With 1 of TV's Best Casts Will Go Down as a Modern Miniseries Classic
-
-TV, Peacock, The Five-Star Weekend, Drama
-
-Mon, 20 Jul 2026 15:00:15 GMT
-
-https://www.cbr.com/peacock-five-star-weekend-modern-miniseries-classic/
-
-Peacock's latest miniseries is an instant classic with a stacked cast oozing chemistry throughout every episode.
----------
-
-# Masters of the Universe Sets Surprising Streaming Release Date After Bombing in Theaters
-
-Movies, Masters of the Universe
-
-Mon, 20 Jul 2026 14:36:53 GMT
-
-https://www.cbr.com/masters-of-the-universe-prime-video-release-date/
-
-The reboot gave He-Man powers again, but it didn't do much good.
----------
-
-# 6 Near-Perfect Hard Sci-Fi Movies Nobody Remembers
-
-Movies, Sci-Fi
-
-Mon, 20 Jul 2026 14:30:15 GMT
-
-https://www.cbr.com/perfect-hard-sci-fi-movies-no-one-remembers-list/
-
-Some of the best science fiction movies in recent memory have already been forgotten by the masses, so here's a refresher.
----------
-
-# Star Trek Officially Confirms Captain Kirk's Final Villain Ever
-
-Comics, Star Trek
-
-Mon, 20 Jul 2026 14:30:15 GMT
-
-https://www.cbr.com/star-trek-captain-kirk-final-villain-story/
-
-Star Trek just revealed the last villain Captain Kirk will face, and they are a surprising adversary worthy of being his final battle.
----------
-
-# The Ultimate ’80s Toy Crossover Has Finally Arrived [Exclusive]
-
-TV News, The Toys That Made Us, Kickstarter, Comic Book, Netflix
-
-Mon, 20 Jul 2026 15:00:15 GMT
-
-https://collider.com/nacelleverse-year-zero-cover-the-toys-that-made-us-kickstarter/
-
-The Toys That Made Us is starting a Kickstarter campaign, and Collider has an exclusive first look at the project's new comic book.
----------
-
-# ‘Avatar Aang: The Last Airbender’ Is Too Good To Be a Streaming Afterthought | Review
-
-Movie Reviews, Avatar Aang: The Last Airbender, Paramount Plus, Avatar: The Last Airbender, Steven Yeun
-
-Mon, 20 Jul 2026 15:00:15 GMT
-
-https://collider.com/avatar-aang-the-last-airbender-review-paramount-plus/
-
-Avatar Aang: The Last Airbender is one of the franchise's most beautiful chapters even if it's an epilogue that wasn't wholly necessary.
----------
-
-# He-Man’s Epic Fantasy Adventure Officially Sets Prime Video Release
-
-Movie News, Masters of the Universe, Prime Video, Travis Knight, Nicholas Galitzine
-
-Mon, 20 Jul 2026 14:59:43 GMT
-
-https://collider.com/masters-of-the-universe-prime-video-digital-release-date-july-2026/
-
-Masters of the Universe, starring Nicholas Galitzine as He-Man and Jared Leto as Skeletor, arrives to buy or rent on Prime Video this week.
----------
-
-# 7 Years Later, Kevin Feige Takes Responsibility for Marvel’s Biggest Failure
-
-Movie News, Blade, Kevin Feige, MCU, Marvel
-
-Mon, 20 Jul 2026 14:44:43 GMT
-
-https://collider.com/marvel-mcu-blade-movie-delays-mahershala-ali-kevin-feige-regrets/
-
-Kevin Feige shares his regret over Marvel’s delayed Blade movie, admitting he feels like a “gigantic loser” for not getting it made.
----------
-
-# 'The Vampire Lestat's Creator Answers All Our Burning Questions About the Finale
-
-Exclusives, The Vampire Lestat, Interview with the Vampire, AMC, Rolin Jones
-
-Mon, 20 Jul 2026 14:00:15 GMT
-
-https://collider.com/the-vampire-lestat-episode-7-finale-creator-rolin-jones-interview/
-
-The Vampire Lestat creator Rolin Jones explains the finale's biggest twists and why there might be another title change coming for the show.
----------
-
-# Forget ‘Severance,’ Apple TV’s Greatest Series Returns In Less Than 1 Month
-
-Features, Apple TV, Ted Lasso, Severance
-
-Mon, 20 Jul 2026 15:00:12 GMT
-
-https://movieweb.com/ted-lasso-apple-tv-season-4/
-
-'Severance,' the sci-fi series starring Adam Scott, is one of Apple TV's best shows, but another big hit is returning soon.
----------
-
-# Before 'NCIS,' Pauley Perrette Had a Role in This Star-Studded Oscar Winner
-
-Features, NCIS
-
-Mon, 20 Jul 2026 14:27:21 GMT
-
-https://movieweb.com/ncis-pauley-perrette-in-almost-famous/
-
-A beloved cult classic of the 2000s featured a supporting role from an 'NCIS' favorite.
----------
-
-# 'Masters of the Universe' Officially Confirms Streaming Release Date
-
-Movie News, Masters of the Universe
-
-Mon, 20 Jul 2026 14:23:29 GMT
-
-https://movieweb.com/masters-of-the-universe-prime-video-july-streaming-date/
-
-You can soon have the power from the comfort of your own home when 'Masters of the Universe' arrives on Prime Video.
----------
-
-# 6 Box Office Records 'The Odyssey' Has Already Broken
-
-Movie Lists, The Odyssey
-
-Mon, 20 Jul 2026 14:01:12 GMT
-
-https://movieweb.com/odyssey-box-office-records-broken/
-
-'The Odyssey,' Christopher Nolan's adaptation of Homer's epic, stars Matt Damon, Anne Hathaway, Zendaya, and Robert Pattinson.
----------
-
-# Ryan Reynolds Confirms the Future of 'Deadpool' in the MCU
-
-Movie News, Deadpool, Ryan Reynolds, Marvel Cinematic Universe
-
-Mon, 20 Jul 2026 13:50:51 GMT
-
-https://movieweb.com/ryan-reynolds-confirms-deadpool-4-mcu/
-
-The 'Deadpool & Wolverine' star shares an update on Wade Wilson's future in the MCU.
----------
-
-# Netflix's New 99-Minute Erotic Thriller Is Officially a Smash Hit on Streaming
-
-Movie News, Netflix, Thriller, Hot on Streaming
-
-Mon, 20 Jul 2026 13:45:12 GMT
-
-https://movieweb.com/desire-erotic-thriller-netflix-streaming-hit-july-2026/
-
-A new forbidden romance directed by Teresa Suárez has come out nowhere to become one of Netflix's biggest hits.
----------
-
-# Marvel Officially Reveals Robert Downey Jr.'s Doctor Doom Design In First Avengers: Doomsday Trailer
-
-Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
-
-Mon, 20 Jul 2026 13:21:26 GMT
-
-https://screenrant.com/avengers-doomsday-doctor-doom-marvel-reveal/
-
-Marvel releases the Avengers: Doomsday trailer after a long wait, and it reveals Robert Downey Jr.'s full design as Doctor Doom, as well as his power.
----------
-
-# X-Men Introduces Its Most Vicious Rivalry Since Cyclops vs Wolverine
-
-Comics, X-Men
-
-Mon, 20 Jul 2026 13:20:27 GMT
-
-https://screenrant.com/x-men-new-rivalry-wolverine-son/
-
-X-Men's new hero feud goes from simmer to boil.
 ---------
