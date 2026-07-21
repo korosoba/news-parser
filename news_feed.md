@@ -1,3 +1,278 @@
+# Game Of Thrones: The Moonlit Stalker Officially Unveiled
+
+Gaming, Game of Thrones, Game Of Thrones, PC, House of the Dragon
+
+Tue, 21 Jul 2026 05:00:11 GMT
+
+https://screenrant.com/game-of-thrones-dragonfire-moonlit-stalker-update/
+
+Game of Thrones officially unveils The Moonlit Stalker, an incredible new dragon with unparalleled stealth and precision.
+---------
+
+# It's Official, Gundam Returns October 2026
+
+Tabletop, Gundam, tabletop games
+
+Tue, 21 Jul 2026 04:30:11 GMT
+
+https://screenrant.com/gundam-assemble-october-2026-release-date/
+
+Gundam and its mobile suits are making a glorious comeback in October this year, and you may want to gear up for the official upcoming release.
+---------
+
+# Steam Makes 9/10 RPG Completely Free To Keep, You Have 48 Hours To Claim
+
+Gaming, Steam
+
+Tue, 21 Jul 2026 04:00:14 GMT
+
+https://screenrant.com/steam-free-rpg-48-hours-july-2026/
+
+Steam gamers have one last chance to grab a great game before it's gone.
+---------
+
+# 5 High Fantasy Shows That Would Make Tolkien Proud
+
+Streaming TV, Fantasy
+
+Tue, 21 Jul 2026 03:52:06 GMT
+
+https://screenrant.com/best-high-fantasy-shows-tolkien/
+
+J.R.R. Tolkien had very specific ideas about what made a good fantasy story, and these five high fantasy shows would make Tolkien proud.
+---------
+
+# Reacher Season 5 Can Finally Abandon 1 Overused Story Formula
+
+Streaming TV, Reacher
+
+Tue, 21 Jul 2026 03:15:11 GMT
+
+https://screenrant.com/reacher-season-5-book-abandon-overused-story/
+
+Reacher has relied on redundant storytelling formulas across four seasons, but it looks like it finally has the opportunity to switch things a little.
+---------
+
+# Final Fantasy Meets Chrono Trigger In New JRPG You Can Play Free Now
+
+Gaming, Final Fantasy, Chrono Trigger
+
+Tue, 21 Jul 2026 03:00:12 GMT
+
+https://screenrant.com/final-fantasy-chrono-trigger-forge-of-fae-play-free/
+
+Try Forge of the Fae's free Steam demo, a Celtic-inspired JRPG blending Final Fantasy, Zelda, and Stardew Valley.
+---------
+
+# 5 The Rings Of Power Armor Designs That Are 10/10 Perfect
+
+Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Tue, 21 Jul 2026 02:45:11 GMT
+
+https://screenrant.com/best-rings-of-power-armor-designs/
+
+Prime Video's The Lord of the Rings: The Rings of Power sure knows how to make fantasy war and violence aesthetically pleasing with excellent armor.
+---------
+
+# The 10 Best Tenth Doctor Quotes In Doctor Who History
+
+Streaming TV, Doctor Who
+
+Tue, 21 Jul 2026 02:15:11 GMT
+
+https://screenrant.com/best-tenth-doctor-quotes-doctor-who/
+
+David Tennant has long been a fan favorite version of the Doctor in Doctor Who, but some lines stand the test of time better than others.
+---------
+
+# Gundam: The Witch From Mercury Finally Brings Its Exclusive High Grade Gunpla Back to the U.S.
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam: The Witch from Mercury, merchandise, toys, bandai
+
+Tue, 21 Jul 2026 03:59:15 GMT
+
+https://www.cbr.com/gundam-witch-from-mercury-lfrith-gunpla-bandai-america-re-release/
+
+Two years after it debuted, a unique model kit based on a spinoff of Mobile Suit Gundam: The Witch from Mercury is getting a re-release in the West.
+---------
+
+# 5 Best Open-World RPGs of the 2010s
+
+Games, The Witcher 3: Wild Hunt, Fallout New Vegas, RPG
+
+Tue, 21 Jul 2026 03:45:15 GMT
+
+https://www.cbr.com/best-2010s-open-world-rpgs/
+
+The 2010s were an incredible decade for open-world role-playing games, so let's take a look at five of the best the decade has to offer.
+---------
+
+# Star Trek Quietly Broke Gene Roddenberry’s Most Sacred Rule
+
+TV, Sci-Fi, Star Trek, Star Trek: Strange New Worlds
+
+Tue, 21 Jul 2026 03:30:15 GMT
+
+https://www.cbr.com/star-trek-strange-new-worlds-prayer-broke-gene-roddenberry-rule/
+
+In the Season 3 premiere of Star Trek: Strange New Worlds, Captain Christopher Pike does something surprising that Gene Roddenberry would dislike.
+---------
+
+# 10 The Far Side Comics That Are Still Hilarious Today
+
+Comics, The Far Side
+
+Tue, 21 Jul 2026 03:30:15 GMT
+
+https://www.cbr.com/the-far-side-comics-still-hilarious-today/
+
+Many comic strips use referenced material for comedy, but the best in The Far Side need not be understood to be found hilarious.
+---------
+
+# 10 Long PS5 Games That Take Forever to Complete
+
+Games, Baldur's Gate 3, Elden Ring, Final Fantasy VII Rebirth, PlayStation 5
+
+Tue, 21 Jul 2026 03:15:15 GMT
+
+https://www.cbr.com/longest-ps5-games-take-forever-to-beat-list/
+
+The PS5 catalog is home to some of the greatest games to ever hit a console, and these ten masterpieces hook players for long periods of time.
+---------
+
+# Boruto Officially Goes on Hiatus, Confirms Return Date
+
+Anime, Boruto: Two Blue Vortex, Naruto
+
+Tue, 21 Jul 2026 03:05:16 GMT
+
+https://www.cbr.com/boruto-two-blue-vortex-return-date-september/
+
+One of the most beloved sequel manga of an entire generation has gone on hiatus, although fans won't have to wait too long for its return.
+---------
+
+# Star Wars Quietly Confirms the End of The Mandalorian on Disney+
+
+TV, The Mandalorian
+
+Tue, 21 Jul 2026 02:58:54 GMT
+
+https://www.cbr.com/star-wars-quietly-confirms-end-the-mandalorian-disney-plus/
+
+Star Wars considers The Mandalorian to be finished.
+---------
+
+# 5 Classic Adult Swim Anime Series That Are Unwatchable Today
+
+Anime, Blue Gender, Trinity Blood
+
+Tue, 21 Jul 2026 02:45:15 GMT
+
+https://www.cbr.com/classic-adult-swim-anime-series-that-aged-poorly-list/
+
+Adult Swim's anime lineup once revolutionized how a generation discovered the medium, but time hasn't been kind to some of the series.
+---------
+
+# These 5 Ryan Gosling Movies Are True Masterpieces
+
+Movies, Project Hail Mary, Barbie, ryan gosling
+
+Tue, 21 Jul 2026 02:45:15 GMT
+
+https://www.cbr.com/perfect-ryan-gosling-movies-list/
+
+Having starred in everything from comedy to epic science fiction, Ryan Gosling has headlined some of the best masterpiece movies of the 21st century.
+---------
+
+# 8 Games Every Cyberpunk Edgerunners Fan Should Play
+
+Games, Cyberpunk 2077, Cyberpunk: Edgerunners, Video Games
+
+Tue, 21 Jul 2026 02:30:15 GMT
+
+https://www.cbr.com/best-games-for-cyberpunk-edgerunners-fans-list/
+
+These games are the best to play after finishing the hit Cyberpunk 2077 anime to further explore the Cyberpunk genre and it's many themes.
+---------
+
+# 10 Most Perfect Anime of the Last 20 Years
+
+TV, Anime, Vinland Saga, Attack On Titan, Mob Psycho 100
+
+Tue, 21 Jul 2026 04:18:14 GMT
+
+https://collider.com/most-perfect-anime-shows-last-20-years-ranked/
+
+Vinland Saga, Attack on Titan, Mob Psycho 100, and Steins;Gate are among the best anime of the last 20 years, but which series is the greatest?
+---------
+
+# 20 Best Movie Soundtrack Songs of All Time
+
+Movie, The Wizard of Oz, Titanic, Breakfast at Tiffany's, Singin' in the Rain
+
+Tue, 21 Jul 2026 04:05:14 GMT
+
+https://collider.com/best-movie-soundtrack-songs-all-time-ranked/
+
+From Judy Garland to Celine Dion, these artists made movies even better through song.
+---------
+
+# Prime Video’s Latest 8-Part Action Series Has Quietly Outperformed Its Biggest New Shows of 2026
+
+TV Features, Prime Video, Ride or Die, Hannah Waddingham, Octavia Spencer
+
+Tue, 21 Jul 2026 03:46:15 GMT
+
+https://collider.com/prime-video-action-series-ride-or-die-ratings-success/
+
+Days since its release, Prime Video’s new action series Ride Or Die is a hit with critics priaising the funny, action-packed series.
+---------
+
+# Hulu's 4-Part Sci-Fi Epic Is One of the Best on Any Streaming Platform
+
+Movie Features, Rise of the Planet of the Apes, Dawn of the Planet of the Apes, War for the Planet of the Apes, Kingdom of the Planet of the Apes
+
+Tue, 21 Jul 2026 03:34:15 GMT
+
+https://collider.com/planet-of-the-apes-reboot-hulu-best-science-fiction-epic/
+
+Sci-fi fans looking for a film series worth their time should check out the Planet of the Apes reboot on Hulu.
+---------
+
+# 'The Big Bang Theory's Worst Mistake Was How It Ended This Character's Story
+
+TV Features, Big Bang Theory, CBS, Sitcom, Chuck Lorre
+
+Tue, 21 Jul 2026 03:16:14 GMT
+
+https://collider.com/big-bang-theory-raj-deserved-a-better-ending/
+
+The Big Bang Theory concluded Raj Koothrappali's character arc, leaving some fans unsatisfied with the series finale's resolution.
+---------
+
+# 20 Years Ago, Kevin Smith Made His Last Great Film
+
+Movie Features, Kevin Smith, Clerks 2, Clerks, Scott Mosier
+
+Tue, 21 Jul 2026 03:14:15 GMT
+
+https://collider.com/clerks-2-kevin-smith-20th-anniversary/
+
+20 years ago, Kevin Smith released Clerks II, a sequel to his era-defining debut feature and his last great film.
+---------
+
+# Forget 'Lioness': These 8 Action Thrillers Are 10/10
+
+TV Lists, Lioness, Reacher, Tom Clancy's Jack Ryan, Slow Horses
+
+Tue, 21 Jul 2026 02:00:22 GMT
+
+https://movieweb.com/action-thrillers-better-than-lioness/
+
+'Lioness,' the Taylor Sheridan action thriller series starring Zoe Salanda, is great, but these shows are even better.
+---------
+
 # 10 Sci-Fi Ships With 10/10 Designs
 
 Movies, Sci-Fi
@@ -5221,279 +5496,4 @@ Sun, 19 Jul 2026 16:00:15 GMT
 https://www.cbr.com/agatha-christie-death-on-the-nile-mystery-netflix-success-july-2026/
 
 Kenneth Branagh's adaptation of one of Agatha Christie's most popular crime novels, Death on the Nile, is a global hit on Netflix 4 years later.
----------
-
-# 5 Greatest Soft Sci-Fi Of the 21st Century, Ranked
-
-Movies, Sci-Fi, Mad Max, Children of Men
-
-Sun, 19 Jul 2026 16:00:15 GMT
-
-https://www.cbr.com/best-soft-sci-fi-of-21st-century-list/
-
-The soft side of the sci-fi genre continues to show the versatility of cinema, wooing audiences with deeply relatable and humanist stories.
----------
-
-# 7 Forgotten Heist Movies That Are Perfect From Start to Finish
-
-Movie, Crime, Logan Lucky, The Score, Thief
-
-Sun, 19 Jul 2026 16:41:14 GMT
-
-https://collider.com/forgotten-heist-movies-perfect-start-to-finish/
-
-From the Jason Statham hidden classic The Bank Job to Michael Mann's early film Thief, these forgotten heist movies are practically flawless.
----------
-
-# 2026’s Latest Billion-Dollar Blockbuster Officially Overtakes 'The Dark Knight'
-
-Movie News, The Dark Knight, Michael, Box Office, Christopher Nolan
-
-Sun, 19 Jul 2026 16:15:15 GMT
-
-https://collider.com/michael-box-office-overtakes-the-dark-knight-worldwide-1-billion/
-
-The controversial Michael Jackson biopic Michael overtakes The Dark Knight’s worldwide box office total after surpassing $1 billion.
----------
-
-# Netflix's Straw Hat Pirates Are Officially Setting Sail for a New 'One Piece' Special [Exclusive]
-
-TV News, One Piece, Netflix, Mackenyu, Emily Rudd
-
-Sun, 19 Jul 2026 16:00:15 GMT
-
-https://collider.com/lego-one-piece-netflix-animated-special-cast-inaki-godoy-mackenyu/
-
-The main cast of Netflix's One Piece is returning once more for a LEGO special this fall, and new images reveal them in fresh brick forms.
----------
-
-# Liam Neeson's 'The Commuter' Departs Free Streaming in August
-
-Movie News, The Commuter, Liam Neeson, Coming/Leaving Streaming
-
-Sun, 19 Jul 2026 16:37:24 GMT
-
-https://movieweb.com/liam-neeson-commuter-leaves-free-streaming-pluto-august-2026/
-
-People need to learn to leave Liam Neeson alone.
----------
-
-# Dane DeHaan Crime Thriller 'Wardriver' Tops Paramount+ with Little Fanfare
-
-Movie News, Wardriver
-
-Sun, 19 Jul 2026 16:29:11 GMT
-
-https://movieweb.com/wardriver-paramount-plus-ratings-hit/
-
-Dane DeHaan's cyber-thriller 'Wardriver' surprises by climbing to the top of Paramount+'s film chart, surpassing 'Top Gun: Maverick' and 'The Contractor'.
----------
-
-# HBO Scores Big With Muted Horror That’s Proven Divisive on Rotten Tomatoes
-
-Movie News, undertone
-
-Sun, 19 Jul 2026 16:22:07 GMT
-
-https://movieweb.com/undertone-2026-hbo-max/
-
-The A24 release has found success on streaming, climbing the ratings charts despite a split Rotten Tomatoes score.
----------
-
-# Star Trek's Stardates Explained: How They're Calculated & What They Mean
-
-Features, Star Trek
-
-Sun, 19 Jul 2026 16:00:12 GMT
-
-https://movieweb.com/star-trek-stardates-explained/
-
-Stardates are a cool part of Star Trek lore, but do they make sense? Read for more.
----------
-
-# Karl Urban And Val Kilmer Made An Incredible Western Nobody Talks About Now
-
-TV, Masked Recs
-
-Sun, 19 Jul 2026 15:55:11 GMT
-
-https://screenrant.com/comanche-moon-western-karl-urban-val-kilmer-forgotten/
-
-Nearly 20 years after it debuted, nobody is talking about this great Western that Karl Urban and Val Kilmer made together, but they should.
----------
-
-# The Odyssey Box Office Crushes All-Time Christopher Nolan Record
-
-Movies, The Odyssey, Box Office
-
-Sun, 19 Jul 2026 15:38:02 GMT
-
-https://screenrant.com/the-odyssey-2026-global-box-office-debut/
-
-During its first three days in global theaters, the new epic adventure movie The Odyssey breaks an all-time record for director Christopher Nolan.
----------
-
-# Dakota Fanning's 8-Part Psychological Thriller Is Gone Girl Meets Big Little Lies
-
-Streaming TV, Masked Recs, Dakota Fanning
-
-Sun, 19 Jul 2026 15:30:11 GMT
-
-https://screenrant.com/all-her-fault-psychological-thriller-gone-girl-big-little-lies/
-
-Dakota Fanning scored an Emmy nomination for Peacock's hit domestic thriller series that combines the best of Gone Girl and Big Little Lies.
----------
-
-# How Two Point Became One Of The Biggest Simulation Series In Existence
-
-Gaming, Two Point Museum, Two Point Campus
-
-Sun, 19 Jul 2026 15:30:11 GMT
-
-https://screenrant.com/two-point-studios-museum-hospital-campus-interview/
-
-Two Point Studios reflects on a decade of management sim games, discussing the future of Two Point Museum, upcoming DLC, and more in our interview.
----------
-
-# 8 Great Movie Epics That Are Filled With Historical Inaccuracies
-
-Movies, Gladiator, Braveheart, The Patriot, 300, U-571, The Last Samurai, Pearl Harbor, 10,000 BC
-
-Sun, 19 Jul 2026 15:30:11 GMT
-
-https://screenrant.com/great-movie-epics-historical-inaccuracies/
-
-These beloved historical epics thrilled audiences and won awards, but they're also packed with inaccuracies that left historians shaking their heads.
----------
-
-# Robert Downey Jr.'s Underrated Road Trip Comedy Is A Netflix Hit 16 Years Later
-
-Movies, Masked Recs
-
-Sun, 19 Jul 2026 15:22:29 GMT
-
-https://screenrant.com/robert-downey-jr-due-date-netflix-streaming-success-july-2026/
-
-16 years after its release in theaters, one underrated road trip comedy starring Robert Downey Jr. is now driving its way up Netflix’s top 10 chart.
----------
-
-# Ariana Grande's Next Movie Is Already Getting Hate, But Its 26-Year Legacy Makes It A Must-Watch
-
-Movies, Focker-In-Law
-
-Sun, 19 Jul 2026 15:00:12 GMT
-
-https://screenrant.com/focker-in-law-ariana-grande-must-watch/
-
-Ariana Grande is starring in a brand-new movie later this year, which marks the latest installment in a decades-old, beloved larger franchise.
----------
-
-# 5 Anime Tournament Arcs That Are Considered Masterpieces
-
-Anime
-
-Sun, 19 Jul 2026 15:00:12 GMT
-
-https://screenrant.com/anime-tournament-arcs-considered-masterpieces/
-
-The best tournament arcs in anime history.
----------
-
-# Disney Lorcana: Hyperia City - Release Date, Confirmed Cards, & Illumineer’s Trove Details
-
-Gaming, Disney Lorcana
-
-Sun, 19 Jul 2026 15:00:12 GMT
-
-https://screenrant.com/disney-lorcana-hyperia-city-release-date-cards-products-prerelease/
-
-Discover the release dates, confirmed cards, and product lineup for Disney Lorcana: Hyperia City, the 14th set bringing vibrant urban setting.
----------
-
-# HBO's New Fantasy Series Is More Expensive Than The Lord of the Rings: The Rings of Power
-
-TV, Harry Potter, The Lord of the Rings: The Rings of Power
-
-Sun, 19 Jul 2026 15:41:17 GMT
-
-https://www.cbr.com/hbo-harry-potter-more-expensive-the-lord-of-the-rings-the-rings-of-power/
-
-The series just broke a major record six months before release.
----------
-
-# 10 Strongest Mortals in Dragon Ball, Officially Ranked
-
-Anime, Dragon Ball, Dragon Ball Super
-
-Sun, 19 Jul 2026 15:15:15 GMT
-
-https://www.cbr.com/dragon-ball-super-strongest-mortals-officially-ranked/
-
-Dragon Ball has introduced Gods, Angels, and omnipotent deities, but it's also full of extremely powerful mortals who should not be underestimated.
----------
-
-# Hunter X Hunter Officially Brings Back Gon and Killua
-
-Anime, Hunter X Hunter
-
-Sun, 19 Jul 2026 15:00:15 GMT
-
-https://www.cbr.com/hunter-x-hunter-gon-killua-officially-return/
-
-12 years after their last appearance in the Hunter X Hunter manga, Gon and Killua are finally back.
----------
-
-# 10 Greatest Anime Villains Everyone Underestimated
-
-Anime, Hunter X Hunter, Attack On Titan
-
-Sun, 19 Jul 2026 15:00:15 GMT
-
-https://www.cbr.com/most-underestimated-anime-villains/
-
-Underestimation can easily becomes the sharpest tool in an anime villain's arsenal.
----------
-
-# Forget 'Game of Thrones,' the Best Fantasy Game Ever Deserves a Better Adaptation
-
-TV Features, The Elder Scrolls V: Skyrim, The Elder Scrolls, Fantasy, Game Of Thrones
-
-Sun, 19 Jul 2026 15:54:15 GMT
-
-https://collider.com/skyrim-adaptation-best-fantasy-video-game-of-all-time-game-of-thrones/
-
-Despite challenges, Skyrim stands out as a fantasy video game ripe for adaptation, primed to tell an epic story set in the Elder Scrolls world.
----------
-
-# Disney’s ‘Moana’ Remake Drowned Out by 'The Odyssey' at the Box Office
-
-Movie News, Moana, The Odyssey, Christopher Nolan, Box Office
-
-Sun, 19 Jul 2026 15:30:15 GMT
-
-https://collider.com/the-odyssey-overtakes-moana-box-office-178-million/
-
-Disney’s live-action Moana faces a steep second-weekend drop as Christopher Nolan’s The Odyssey takes over the box office.
----------
-
-# 4 Meg Ryan Movies That Are Perfect From Start to Finish
-
-Movie, Meg Ryan, When Harry Met Sally, Sleepless In Seattle, You’ve Got Mail
-
-Sun, 19 Jul 2026 15:04:14 GMT
-
-https://collider.com/meg-ryan-movies-are-masterpieces/
-
-Meg Ryan's greatest performances go far beyond rom-com nostalgia, from When Harry Met Sally... to deeper dramas.
----------
-
-# Before Netflix Remake, a Forgotten Fantasy Series Succeeded Where Disney Failed
-
-Features, Narnia: The Magician's Nephew, The Chronicles of Narnia, The Chronicles of Narnia: The Silver Chair, Netflix, Disney, Fantasy, Tom Baker, Greta Gerwig
-
-Sun, 19 Jul 2026 15:00:12 GMT
-
-https://movieweb.com/narnia-bbc-fantasy-series-netflix-remake-disney-failed/
-
-The Disney 'Narnia' franchise never managed to adapt 'The Silver Chair,' and if Netflix wants to avoid the same mistake, it should look at the BBC.
 ---------
