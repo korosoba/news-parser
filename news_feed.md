@@ -1,3 +1,256 @@
+# Spider-Man: Beyond The Spider-Verse’s New Animated Sequences Get Exciting Early Tease From Jake Johnson
+
+Movies, Spider-Man: Beyond the Spider-Verse, Spider-Verse
+
+Tue, 21 Jul 2026 21:45:58 GMT
+
+https://screenrant.com/spider-man-beyond-the-spider-verse-sequences-praise-jake-johnson/
+
+EXCLUSIVE: Spider-Verse star Jake Johnson teases more high-octane action sequences in the highly anticipated animated epic, coming next year.
+---------
+
+# AMC’s 3-Part British Gangster Thriller Makes MobLand Look Tame
+
+TV, Masked Recs
+
+Tue, 21 Jul 2026 21:45:11 GMT
+
+https://screenrant.com/gangs-of-london-makes-mobland-look-tame/
+
+Guy Ritchie's Paramount+ crime thriller MobLand is not for the faint-hearted, but this other British gangster show makes it look tame by comparison.
+---------
+
+# MJ’s Spider-Man: Brand New Day Story Replaces Peter Parker From OG Trilogy In 1 Key Way
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Tue, 21 Jul 2026 21:42:20 GMT
+
+https://screenrant.com/spider-man-brand-new-day-mj-peter-optimism-reversal-zendaya/
+
+Zendaya explains how 2026's Spider-Man: Brand New Day will see MJ replace a major Peter Parker story in the  Sony Pictures and Marvel Studios film.
+---------
+
+# 41 Years Later, The Last Starfighter Returns With New Spinoff Series
+
+Comics, The Last Starfighter
+
+Tue, 21 Jul 2026 21:37:19 GMT
+
+https://screenrant.com/last-star-fighter-new-spinoff-series-beta/
+
+After decades of mystery, Beta's fate in The Last Starfighter franchise finally comes to light in a new spinoff that fans will not want to miss.
+---------
+
+# By The Time Heroes Solved Its Peter Petrelli Problem, The Show Was Already Doomed
+
+Classic TV, Heroes
+
+Tue, 21 Jul 2026 21:30:11 GMT
+
+https://screenrant.com/heroes-solved-peter-petrelli-problem-show-already-doomed/
+
+Heroes quickly encountered a problem with its main character, Peter Petrelli, but by the time it found a proper solution, the show's doom was sealed.
+---------
+
+# Ben Stiller's New Apple TV Comedy Movie Debuts To Solid Rotten Tomatoes Score
+
+Movies, Masked Recs
+
+Tue, 21 Jul 2026 21:28:47 GMT
+
+https://screenrant.com/ben-stiller-the-dink-apple-tv-rotten-tomatoes-score/
+
+Along with executive producing Severance, Ben Still has another project at Apple TV, and the comedy film is getting solid reviews from critics.
+---------
+
+# Apple TV's Upcoming Sci-Fi Show Answers What If The Matrix Was Made In 2026
+
+TV, Masked Recs
+
+Tue, 21 Jul 2026 21:02:11 GMT
+
+https://screenrant.com/neuromancer-apple-tv-the-matrix-2026/
+
+Apple TV's upcoming cyberpunk adaptation, based on the book that inspired The Matrix movies, has the ingredients of an all-time great sci-fi show.
+---------
+
+# Zelda: Ocarina Of Time Remake Official New Teaser Just Debunked A Controversial Rumor
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Tue, 21 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-new-teaser-rumor-debunked/
+
+The Legend of Zelda: Ocarina of Time remake was previously rumored to be making a divisive gameplay change, but a new teaser suggests it is wrong.
+---------
+
+# Marvel Studios Has Finally Introduced The Real Wolverine
+
+Streaming TV, Masked Recs
+
+Tue, 21 Jul 2026 20:56:33 GMT
+
+https://screenrant.com/x-men-97-season-2-real-wolverine-character-flaws/
+
+Hugh Jackman's Wolverine has become the character's most popular version, but Marvel Studios has finally brought in the real Wolverine in 2026.
+---------
+
+# Jenna Ortega's 2-Part Fantasy Series Is So Good, We Forgive Its Biggest Flaw
+
+Streaming TV, Masked Recs
+
+Tue, 21 Jul 2026 20:45:11 GMT
+
+https://screenrant.com/wednesday-jenna-ortega-biggest-flaw-forgiven/
+
+Jenna Ortega stars in one of the best fantasy TV shows of the decade, and it's so good that it's very easy to forgive its biggest flaw.
+---------
+
+# Apple TV Quietly Drops New Pluribus Footage as Fans Await Season 2
+
+TV, Pluribus
+
+Tue, 21 Jul 2026 21:52:58 GMT
+
+https://www.cbr.com/apple-tv-pluribus-season-1-bloopers-footage/
+
+Apple TV gives Pluribus fans something new to watch ahead of Season 2.
+---------
+
+# Steam Users Have Until July 23 to Grab 9/10 RPG for Free
+
+Games, Steam
+
+Tue, 21 Jul 2026 21:16:34 GMT
+
+https://www.cbr.com/the-life-and-suffering-of-sir-brante-free-steam-july-2026/
+
+Gamers can save about $20 by picking up the acclaimed RPG now.
+---------
+
+# 4 Shonen Anime Series That Are 10/10 Masterpieces
+
+Anime, Shonen
+
+Tue, 21 Jul 2026 21:15:14 GMT
+
+https://www.cbr.com/shonen-anime-series-masterpieces/
+
+These shonen series have shaped the genre, consistently dazzling fans with their unforgettable characters and storylines.
+---------
+
+# 5 Biggest Reveals in the Avengers: Doomsday Trailer
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe, X-Men
+
+Tue, 21 Jul 2026 21:00:15 GMT
+
+https://www.cbr.com/biggest-reveals-avengers-doomsday-trailer-list/
+
+Avengers: Doomsday has finally released a full trailer and there are some big reveals for fans to examine.
+---------
+
+# HBO's Harry Potter Officially Confirms Surprise Rating
+
+TV, Harry Potter
+
+Tue, 21 Jul 2026 20:59:33 GMT
+
+https://www.cbr.com/hbo-harry-potter-season-1-rating/
+
+The series will premiere this year.
+---------
+
+# Pokémon Officially Reveals New 30th Anniversary Charizard Design
+
+Games, Pokemon, Nintendo
+
+Tue, 21 Jul 2026 20:56:15 GMT
+
+https://www.cbr.com/pokemon-official-reveal-new-charizard-design-30th-anniversary/
+
+Pokémon is celebrating its 30th anniversary in style, with a brand-new Charizard design that's sure to impress fans.
+---------
+
+# 10 Best Sci-Fi Books of the 1990s
+
+Books and Comics, Books, Sci-Fi, Michael Crichton, Lois Lowry
+
+Tue, 21 Jul 2026 21:55:14 GMT
+
+https://collider.com/best-sci-fi-books-1990s-ranked/
+
+The Giver by Lowis Lowry, Jurassic Park by Michael Crichton, and Ender's Shadow by Orson Scott Card are among the best sci-fi books of the 1990s.
+---------
+
+# 7 Contemporary Romance Books That Are Perfect From the First Page to Last
+
+Books and Comics, Romance, Books, Emily Henry
+
+Tue, 21 Jul 2026 21:44:14 GMT
+
+https://collider.com/contemporary-romance-books-perfect-first-page-to-last/
+
+From the Emily Henry favorite Book Lovers to the fake dating rom-com Boyfriend Material, these contemporary romance books are genuinely perfect.
+---------
+
+# This Henry Cavill Fantasy Film Brought the Gods to Life 15 Years Before 'The Odyssey'
+
+Movie Features, Immortals, Tarsem Singh, The Odyssey, Fantasy
+
+Tue, 21 Jul 2026 21:42:14 GMT
+
+https://collider.com/immortals-henry-cavill-the-odyssey/
+
+Tarsem Singh's Greek epic Immortals didn't win over critics, but its glorious visuals and star turn from Henry Cavill were a hit with audiences.
+---------
+
+# 10 Most Intense Books of All Time
+
+Books and Comics, Books, L.A. Confidential, And Then There Were None, Nineteen Eighty-Four
+
+Tue, 21 Jul 2026 21:23:14 GMT
+
+https://collider.com/most-intense-books-all-time-ranked/
+
+Classic books like Nineteen Eighty-Four, And Then There Were None, and Blood Meridian all rank among the most intense to ever be published.
+---------
+
+# Tom Holland's Spider-Man Starts 'Brand New Day' on the Punisher's Dark Path
+
+Movie News, Spider-Man: Brand New Day, Marvel Cinematic Universe, Tom Holland
+
+Tue, 21 Jul 2026 21:34:56 GMT
+
+https://movieweb.com/spider-man-brand-new-day-peter-parker-punisher/
+
+The actor spoke about how this new film explores Peter's identity crisis.
+---------
+
+# Barney Gets a Nightmarish Makeover in Eerie New Trailer for Upcoming Thriller
+
+Movie News, Buddy
+
+Tue, 21 Jul 2026 21:13:02 GMT
+
+https://movieweb.com/buddy-movie-trailer-cristin-milioti-topher-grace/
+
+This 'Barney & Friends' horror parody 'Buddy' is pure nightmare fuel.
+---------
+
+# Forget ‘Reacher,’ Prime’s New Action Thriller is a Perfect One-Night Binge
+
+Features, Ride or Die, Reacher
+
+Tue, 21 Jul 2026 21:00:12 GMT
+
+https://movieweb.com/ride-or-die-reacher-comparison/
+
+Amazon Prime Video has a new action thriller TV series that is as good as 'Reacher,' which stars Alan Ritchson as Jack Reacher.
+---------
+
 # NCIS Has Entered A New Era Unlike Anything In Franchise History
 
 Network TV, NCIS
@@ -5243,257 +5496,4 @@ Mon, 20 Jul 2026 11:38:14 GMT
 https://collider.com/best-thriller-movies-last-25-years-ranked/
 
 Oldboy, Parasite, and Shutter Island are among the best thriller movies of the last 25 years.
----------
-
-# 10 Heaviest Books of the 1990s
-
-Books and Comics, The Green Mile, American Psycho, Trainspotting, A Song of Ice and Fire
-
-Mon, 20 Jul 2026 11:32:14 GMT
-
-https://collider.com/heaviest-books-1990s-ranked/
-
-There were some downbeat books published in the 1990s, with the likes of Infinite Jest, The Green Mile, and Trainspotting being some of the heaviest.
----------
-
-# Robert Downey Jr.'s Forgotten Road Trip Adventure Is Officially a Global Streaming Hit
-
-Movie News, Robert Downey Jr, Zach Galifianakis, Due Date, Netflix
-
-Mon, 20 Jul 2026 11:30:14 GMT
-
-https://collider.com/robert-downey-jr-due-date-streaming-success-netflix-july-2026/
-
-Robert Downey Jr.'s Hangover replacement with Zach Galifianakis, released a decade ago, is making a comeback on Netflix's top 10 charts.
----------
-
-# 'Avengers: Doomsday' Trailer Unleashes Robert Downey Jr's Villain on the MCU
-
-Movie News, Avengers: Doomsday, Superhero, Marvel Cinematic Universe
-
-Mon, 20 Jul 2026 13:01:29 GMT
-
-https://movieweb.com/avengers-doomsday-trailer/
-
-'Avengers: Doomsday' hits theaters on December 18, 2026, and brings Robert Downey Jr. back to the MCU.
----------
-
-# Star Trek's 10 Best Non-Starfleet Crew Members, Ranked by Input
-
-TV Lists, Star Trek
-
-Mon, 20 Jul 2026 13:00:12 GMT
-
-https://movieweb.com/star-trek-non-starfleet-crew-members/
-
-Starfleet officers make up the bulk of Star Trek's best characters, but some aren't part of the organization. Read on for more.
----------
-
-# 'Shipwrecked: Nightmare at Sea' Nets "Terrifying" Streaming Hit for Netflix
-
-Movie News
-
-Mon, 20 Jul 2026 12:41:15 GMT
-
-https://movieweb.com/netflix-shipwrecked-disaster-at-sea-number-one/
-
-The 2026 documentary has joined Netflix's other productions about a maritime disaster.
----------
-
-# Every Christopher Nolan Opening Weekend Box Office, Ranked
-
-TV Lists, The Odyssey, Christopher Nolan, The Dark Knight Rises, Oppenheimer
-
-Mon, 20 Jul 2026 12:35:59 GMT
-
-https://movieweb.com/christopher-nolan-every-opening-weekend-box-office/
-
-Christopher Nolan's movies have grossed some impressive numbers at the box office, and this is how they all stack up, including 'The Odyssey.'
----------
-
-# Netflix Quietly Unleashes New Fantasy Action Series With 100% on Rotten Tomatoes
-
-TV News, Netflix, The East Palace, Action, Fantasy, Thriller
-
-Mon, 20 Jul 2026 11:50:41 GMT
-
-https://movieweb.com/netflix-east-palace-fantasy-action-100-rotten-tomatoes/
-
-Debuting just last week, the eight-episode series 'The East Palace' has already entered the global streaming top 10.
----------
-
-# Netflix Scores Big as Latest Sequel in Underrated Action Franchise Shoots to Success
-
-Movie News, Netflix, Sniper, Action, Thriller
-
-Mon, 20 Jul 2026 11:38:13 GMT
-
-https://movieweb.com/netflix-sniper-no-nation-stream-july-2026/
-
-The action thriller franchise first began 33 years ago, with the latest effort hitting the global Netflix charts with a bang.
----------
-
-# Pokémon Winds & Waves Leaked Map Confirms Exact Number Of Gyms
-
-Gaming, Pokemon Winds and Waves, Pokemon, Pokémon, PC
-
-Mon, 20 Jul 2026 11:08:46 GMT
-
-https://screenrant.com/pokemon-winds-waves-leaked-map-number-of-gyms/
-
-There's been yet another huge Pokémon Winds & Waves leak, this time confirming the total number of gyms we can expect when it launches next year.
----------
-
-# NCIS’s First-Ever Recast Character In 31 Years Revealed In New Set Video
-
-Network TV, NCIS, NCIS: New York
-
-Mon, 20 Jul 2026 11:05:11 GMT
-
-https://screenrant.com/ncis-new-york-scott-caan-recast-first-look/
-
-As the summer break ends, network TV shows is slowly starting production, including the NCIS franchise, which reveals its first ever recast character.
----------
-
-# Zelda: Ocarina Of Time Remake Gameplay Leak Surfaces Online
-
-Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
-
-Mon, 20 Jul 2026 11:00:12 GMT
-
-https://screenrant.com/zelda-ocarina-of-time-remake-gameplay-leaks-september-2026/
-
-The Zelda: Ocarina Of Time Remake has been subject to all sorts of rumors, but this latest leak does make a lot of sense.
----------
-
-# GTA 6 Official Release Date Update Shared In Wake Of Pre-Orders
-
-Gaming, Grand Theft Auto 6, Grand Theft Auto
-
-Mon, 20 Jul 2026 10:30:12 GMT
-
-https://screenrant.com/gta-6-official-release-date-update-july-2026/
-
-It's no secret that GTA VI has been through some ups and downs on the way towards release, but the latest update is a good one.
----------
-
-# Celebrate The Odyssey Release With Free Download Of Assassin's Creed Odyssey
-
-Gaming, Assassin's Creed Odyssey
-
-Mon, 20 Jul 2026 10:00:11 GMT
-
-https://screenrant.com/celebrate-the-odyssey-release-with-free-download-of-assassins-creed-odyssey/
-
-PlayStation Plus Extra subscribers can now download and play Assassin's Creed Odyssey for free.
----------
-
-# Hogwarts Legacy: Chamber Of Secrets Lets You Fight The Basilisk And Break Canon
-
-Gaming, Hogwarts Legacy
-
-Mon, 20 Jul 2026 09:48:03 GMT
-
-https://screenrant.com/hogwarts-legacy-chamber-of-secrets-canon-breaking/
-
-There's few more formidable enemies in Harry Potter than the basilisk, and now you can take it on for yourself in Hogwarts Legacy.
----------
-
-# Half-Life 3 Official Update Released By Valve
-
-Gaming, Valve
-
-Mon, 20 Jul 2026 09:26:17 GMT
-
-https://screenrant.com/half-life-3-official-statement-valve/
-
-Valve clarifies its stance on releasing exclusives for the Steam Machine, potentially putting an end to Half-Life 3 rumors.
----------
-
-# Fallout 5 Gets Official Update On Xbox Exclusivity
-
-Gaming, Fallout, Fallout 5
-
-Mon, 20 Jul 2026 09:25:04 GMT
-
-https://screenrant.com/fallout-5-official-update-xbox-exclusive/
-
-Fallout 5 hasn't been spoken about for years by Bethesda, but there is finally some movement on what's going on with the game.
----------
-
-# Magic: The Gathering's 10 Coolest Collaboration Sets Of All Time, Ranked
-
-Gaming, Magic: The Gathering
-
-Mon, 20 Jul 2026 09:04:22 GMT
-
-https://screenrant.com/magic-gathering-coolest-collabs-secret-lairs-mtg/
-
-Magic: The Gathering's universes beyond collaborations have been a huge success, but not every series is given the same quality treatment as the rest.
----------
-
-# 10 Cutest Far Side Comic Strips of All Time, Ranked
-
-Comics, The Far Side
-
-Mon, 20 Jul 2026 11:00:16 GMT
-
-https://www.cbr.com/cutest-far-side-comic-strips-ranked/
-
-For a comic that deeply enjoyed playing on darker themes, it's surprising how Gary Larson's The Far Side sometimes couldn't help but be plain cute.
----------
-
-# ‘Reacher’ Season 5 Gets First Look Before Season 4 Even Arrives
-
-TV News, Reacher, Jack Reacher, Alan Ritchson, Prime Video
-
-Mon, 20 Jul 2026 11:17:23 GMT
-
-https://collider.com/reacher-season-5-preview-alan-ritchson/
-
-Reacher's Alan Ritchson shares an early preview of Season 5 before Season 4 has even premiered.
----------
-
-# 6 Worst R-Rated Sci-Fi Movies of the 2000s
-
-Movie, Sci-Fi, Alone in the Dark, Dreamcatcher, Ghosts of Mars
-
-Mon, 20 Jul 2026 11:04:15 GMT
-
-https://collider.com/worst-r-rated-sci-fi-movies-2000s-ranked/
-
-From Doom to Aliens vs. Predator: Requiem, these disastrous 2000s sci-fi movies failed to deliver any scares or thrills despite being R-rated.
----------
-
-# Netflix Just Axed One of Horror's Biggest Franchises
-
-Movie News, Saw, Saw X, Horror, James Wan
-
-Mon, 20 Jul 2026 11:00:15 GMT
-
-https://collider.com/netflix-removing-saw-franchise-horror-july-2026/
-
-James Wan and Leigh Whannell's legendary and brutal Saw franchise lost its streaming home. Find out what's next for the horror IP.
----------
-
-# ‘Wonder Man’ Boss Offers First Update on Season 2 Production [Exclusive]
-
-Exclusives, Wonder Man, Spider-Man: Brand New Day, Destin Daniel Cretton, Yahya Abdul-Mateen II
-
-Mon, 20 Jul 2026 11:00:15 GMT
-
-https://collider.com/wonder-man-season-2-filming-window-update/
-
-Ahead of Spider-Man: Brand New Day, Destin Daniel Cretton tentatively teased when filming could begin on the second season of Wonder Man.
----------
-
-# 10 Greatest Low Fantasy Books of All Time
-
-Books and Comics, Books, Fantasy, The Odyssey, Harry Potter
-
-Mon, 20 Jul 2026 10:32:18 GMT
-
-https://collider.com/best-low-fantasy-books-all-time-ranked/
-
-From Charlie and the Chocolate Factory to Jonathan Strange & Mr Norrell, these are the best low fantasy books that bring magic into the real world.
 ---------
