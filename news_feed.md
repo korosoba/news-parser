@@ -1,3 +1,333 @@
+# Avengers: Doomsday Trailer Hides Doom’s Real Plan
+
+Movies, Originals
+
+Tue, 21 Jul 2026 17:30:11 GMT
+
+https://screenrant.com/video/avengers-doomsday-trailer-hides-doom-s-real-plan/
+
+Avengers: Doomsday Trailer Breakdown & Biggest Twist. Marvel Studios has finally released the first official trailer for Avengers: Doomsday, and while it's packed with incredible moments, it may also be hiding the movie's biggest reveal in plain sight.
+---------
+
+# The Rookie Issues New Cautionary Tale For Season 9
+
+Network TV, The Rookie
+
+Tue, 21 Jul 2026 17:30:11 GMT
+
+https://screenrant.com/the-rookie-season-8-extended-cut-cautionary-tale/
+
+Weeks after the 2025-2026 TV cycle ended, The Rookie season 8 releases a new version of an episode that functions as a cautionary tale for its future.
+---------
+
+# Ethan Hawke's The Magnificent Seven Replacement Finally Revealed For New Western Series
+
+TV, The Magnificent Seven
+
+Tue, 21 Jul 2026 17:27:28 GMT
+
+https://screenrant.com/the-magnificent-seven-remake-ethan-hawke-replacement-casting-details/
+
+MGM+’s remake of the classic Western The Magnificent Seven is currently filming in Calgary, Canada, and has just added four new cast members.
+---------
+
+# It's The End Of An Era For The Mandalorian After Making $344 Million
+
+Star Wars, The Mandalorian and Grogu, Box Office
+
+Tue, 21 Jul 2026 17:20:11 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-box-office-not-top-10/
+
+The Mandalorian has reached the end of an era after Lucasfilm and Disney brought the franchise to the big screen to disappointing results.
+---------
+
+# Breaking Bad Meets The Wire In FX's 7-Part Cop Show
+
+Classic TV, Masked Recs
+
+Tue, 21 Jul 2026 17:00:11 GMT
+
+https://screenrant.com/the-shield-breaking-bad-meets-the-wire/
+
+The Shield subverted the usual police procedural with a story about corrupt cops, and it deserves to be recognized as a TV masterpiece.
+---------
+
+# The Odyssey Box Office Dethrones Most Divisive Star Wars Movie For Major New Record
+
+Movies, The Odyssey
+
+Tue, 21 Jul 2026 16:55:08 GMT
+
+https://screenrant.com/the-odyssey-bfi-imax-opening-box-office-record-star-wars-last-jedi/
+
+Christopher Nolan has another hit on his hands after directing The Odyssey, which has just set a new record previously set by Star Wars.
+---------
+
+# Netflix's New R-Rated Dark Fantasy Series Debuts To Rare Rotten Tomatoes Score
+
+TV, Masked Recs
+
+Tue, 21 Jul 2026 16:53:08 GMT
+
+https://screenrant.com/netflix-the-east-palace-show-rotten-tomatoes-score/
+
+Netflix's new eight-episode fantasy series is a hit with critics, receiving praise for its fun pace and ability to fuse different genres.
+---------
+
+# Canceled TMNT Series Confirmed to Return in Two Months
+
+Comics, Teenage Mutant Ninja Turtles, Tales of the Teenage Mutant Ninja Turtles
+
+Tue, 21 Jul 2026 16:46:39 GMT
+
+https://screenrant.com/tales-of-the-teenage-mutant-ninja-turtles-return-details-coastal-chaos/
+
+After being canceled following two seasons, Tales of the Teenage Mutant Ninja Turtles is returning this September in an unexpected way.
+---------
+
+# Hello Kitty's Biggest Crossover Of All Time Is Coming To Disney+
+
+TV, Hello Kitty
+
+Tue, 21 Jul 2026 16:42:04 GMT
+
+https://screenrant.com/hello-kitty-cocomelon-crossover-disney-streaming/
+
+Hello Kitty's biggest TV series crossover of all time is making a huge comeback by coming to streaming on Disney+. Here is what you need to know.
+---------
+
+# 18 Years Later, Lost's Best Episode Is Still Peak Television
+
+Classic TV, Lost
+
+Tue, 21 Jul 2026 16:30:11 GMT
+
+https://screenrant.com/lost-best-episode-years-later-peak-television/
+
+Lost's best episode defied convention by not simplifying its complex sci-fi story, resulting in a groundbreaking outing for the seminal series.
+---------
+
+# Game of Thrones: Masters of Intrigue Officially Out Now
+
+Games, Game Of Thrones
+
+Tue, 21 Jul 2026 17:35:15 GMT
+
+https://www.cbr.com/game-of-thrones-masters-of-intrigue-game-official-release/
+
+Fans can officially return to the Game of Thrones universe in Masters of Intrigue, a new game out now.
+---------
+
+# Netflix's New 6-Part Creature Feature Is Replacing Widow's Bay as 2026's Best Horror Show
+
+TV, Below, Netflix, Horror
+
+Tue, 21 Jul 2026 17:30:15 GMT
+
+https://www.cbr.com/netflix-below-horror-series/
+
+Apple TV's Widow's Bay took the horror genre by storm in 2026, but Netflix will soon catch up with its own new horror series.
+---------
+
+# One Piece Officially Ends the Zoro vs. Sanji Debate
+
+Anime, One Piece, Roronoa Zoro, light novels
+
+Tue, 21 Jul 2026 17:21:15 GMT
+
+https://www.cbr.com/one-piece-novel-zoro-oricon-sales-ranking-july-2026/
+
+A new One Piece release that debuted in July has just ended the Zoro vs. Sanji debate for good.
+---------
+
+# The Lord Of The Rings Accidentally Shaped The Best Final Fantasy
+
+Games, The Lord of the Rings, Final Fantasy, Final Fantasy X|X-2 HD Remaster
+
+Tue, 21 Jul 2026 17:15:15 GMT
+
+https://www.cbr.com/lord-of-the-rings-accidentally-shaped-best-final-fantasy/
+
+The developers of Final Fantasy 10 have revealed how The Lord of the Rings changed the entire course of the game's production.
+---------
+
+# Spider-Man: Brand New Day Final Trailer Pays Off Peter Parker's 9-Year MCU Story
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Tue, 21 Jul 2026 17:10:07 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-final-trailer/
+
+Peter Parker's MCU journey culminates in the final Spider-Man: Brand New Day trailer.
+---------
+
+# Disney Cuts Hundreds of Jobs as Pixar Hit With New Layoffs Despite Toy Story 5 Success
+
+TV, Disney, Pixar
+
+Tue, 21 Jul 2026 17:03:08 GMT
+
+https://www.cbr.com/disney-new-layoffs-pixar-national-geographic/
+
+The House of Mouse is continuing a long list of firings.
+---------
+
+# After 3-Year Wait, Prime Video's RoboCop TV Series Is Officially Happening
+
+Movies, Robocop, Prime Video, Sci-Fi
+
+Tue, 21 Jul 2026 16:33:30 GMT
+
+https://www.cbr.com/robocop-reboot-series-amazon-prime-video/
+
+The RoboCop streaming TV reboot is officially happening.
+---------
+
+# Why Stuart Leads the Big Bang Theory Spinoff
+
+TV, Stuart Fails to Save the Universe
+
+Tue, 21 Jul 2026 16:30:14 GMT
+
+https://www.cbr.com/video/why-stuart-leads-the-big-bang-theory-spinoff/
+
+Why Stuart leads Stuart Fails to Save the Universe was an easy answer for Brian Posehn and John Ross Bowie. The duo explains why Stuart became the heart of The Big Bang Theory spinoff and how the familiar comic book store became the perfect launchpad for a multiverse adventure.
+---------
+
+# Legend of Zelda: Ocarina of Time Remake's New Tagline Officially Revealed By Nintendo
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Tue, 21 Jul 2026 16:28:14 GMT
+
+https://www.cbr.com/legend-of-zelda-ocarina-of-time-remake-tagline-revealed-nintendo/
+
+Nintendo has started promoting The Legend of Zelda: Ocarina of Time remake in Japan, which includes a brand-new slogan that hints at bigger things.
+---------
+
+# Netflix's R-Rated Action Thriller Is Officially One of the Year's Biggest Hits
+
+Movie News, Apex, Charlize Theron, Taron Egerton
+
+Tue, 21 Jul 2026 17:48:56 GMT
+
+https://collider.com/netflix-apex-streaming-biggest-action-thriller-july-2026/
+
+Netflix has officially crowned a new action thriller hit as one of the biggest streaming releases of 2026.
+---------
+
+# One ‘Odyssey’ Actor Actually Turned Down Christopher Nolan and Still Got the Part
+
+Exclusives, The Odyssey, Logan Marshall-Green, Christopher Nolan, Collider Forces
+
+Tue, 21 Jul 2026 17:10:11 GMT
+
+https://collider.com/the-odyssey-christopher-nolan-logan-marshall-green-audition/
+
+While on Collider Forces, The Odyssey's Logan Marshall-Green reveals why he originally turned down Christopher Nolan's offer to audition.
+---------
+
+# 'Rings of Power' Officially Reveals Gandalf in New Season 3 Image
+
+TV News, The Lord of the Rings: The Rings of Power, Prime Video, Daniel Weyman, Ian McKellen
+
+Tue, 21 Jul 2026 17:04:59 GMT
+
+https://collider.com/the-lord-of-the-rings-the-rings-of-power-season-3-gandalf-first-look/
+
+You shall not pass this post without getting your first look at Gandalf the Grey in The Lord of the Rings: The Rings of Power Season 3.
+---------
+
+# Marvel and Sony Bosses Cheered After Watching ‘Spider-Man: Brand New Day’ for the First Time
+
+Exclusives, Spider-Man: Brand New Day, Kevin Feige, Amy Pascal, Marvel
+
+Tue, 21 Jul 2026 16:53:20 GMT
+
+https://collider.com/spider-man-brand-new-day-reaction-kevin-feige-amy-pascal-interview/
+
+Marvel and Sony bosses Kevin Feige and Amy Pascal praise Spider-Man: Brand New Day director Destin Daniel Cretton and tease the future of Tom Holland.
+---------
+
+# All 13 Christopher Nolan Movies, Ranked
+
+Movie, The Odyssey, Christopher Nolan, The Dark Knight, Interstellar
+
+Tue, 21 Jul 2026 16:45:14 GMT
+
+https://collider.com/christopher-nolan-movies-ranked/
+
+Christopher Nolan has made some fantastic movies, including Oppenheimer and The Dark Knight... but which one of his stands as the best overall?
+---------
+
+# Gritty Navy SEAL Action Thriller Series Officially Sets Netflix Release
+
+TV News, SEAL Team, David Boreanaz, Netflix
+
+Tue, 21 Jul 2026 17:43:16 GMT
+
+https://movieweb.com/seal-team-netflix-release-date/
+
+It's one of several CBS/Paramount+ shows making their way to Netflix.
+---------
+
+# Liam Neeson's Long-Awaited Action Thriller Finally Releases Official Trailer
+
+Movie News, Liam Neeson, Zachary Levi
+
+Tue, 21 Jul 2026 17:12:00 GMT
+
+https://movieweb.com/liam-neeson-the-fix-trailer-zachary-levi-action-thriller/
+
+The first footage from 'The Fix' promises another adrenaline-fueled adventure starring Neeson.
+---------
+
+# New Look at 'Clayface' Officially Unleashes Terrifying DC Batman Villain
+
+Movie News, Clayface
+
+Tue, 21 Jul 2026 17:08:29 GMT
+
+https://movieweb.com/clayface-images-dc-villain-tom-rhys-harries/
+
+DC Studios shared a wild new look at the leading villain from the DCU's new Batman-adjacent solo movie, 'Clayface.'
+---------
+
+# 'Scrubs' Revival's Disappointing Character Exit Actually Makes Perfect Sense
+
+Features, Scrubs
+
+Tue, 21 Jul 2026 17:00:12 GMT
+
+https://movieweb.com/scrubs-revival-dr-park-exit/
+
+Joel Kim Booster isn't coming back for 'Scrubs' Season 2, but his exit leaves behind zero plot holes. Read on for more.
+---------
+
+# Taylor Sheridan Dominates as Action Thriller Officially Named Biggest Show on TV
+
+TV News, Taylor Sheridan, Marshals, Action, Thriller, Western, Yellowstone
+
+Tue, 21 Jul 2026 17:00:12 GMT
+
+https://movieweb.com/taylor-sheridan-marshals-biggest-show-july-2026/
+
+The 'Yellowstone' creator continues to find success with the latest franchise spin-offs.
+---------
+
+# Final 'Spider-Man: Brand New Day' Trailer Unleashes Strongest Hulk Yet Against MCU Hero
+
+Movie News, Spider-Man: Brand New Day
+
+Tue, 21 Jul 2026 16:21:42 GMT
+
+https://movieweb.com/final-spider-man-brand-new-day-trailer-hulk-scorpion/
+
+Spider-Man battles the Hulk, Scorpion, and the Hand in the final trailer for 'Brand New Day.'
+---------
+
 # Blade Runner's New Sequel Series Is Here, And It's 10/10 Perfect
 
 Comics, Blade Runner
@@ -5166,334 +5496,4 @@ Mon, 20 Jul 2026 00:15:15 GMT
 https://collider.com/a-quiet-place-replacement-dont-move-trailer/
 
 A new survival thriller pits stranded survivors against a terrifying predator that hunts by sound, and its first trailer is a chilling must-watch.
----------
-
-# 10 Perfect Apple TV Shows With 5 Seasons or Less
-
-TV, Apple TV, Ted Lasso, Severance, Bad Sisters
-
-Mon, 20 Jul 2026 00:02:15 GMT
-
-https://collider.com/perfect-apple-tv-shows-shorter-than-5-seasons/
-
-Dive into the top Apple TV original series with five seasons or fewer that deliver exceptional storytelling, including Severance, Pluribus, and Silo.
----------
-
-# Disney Officially Confirms the End of 'The Mandalorian'
-
-TV News, The Mandalorian, The Mandalorian and Grogu, Disney+
-
-Mon, 20 Jul 2026 00:00:15 GMT
-
-https://collider.com/the-mandalorian-ended-disney-star-wars-featurette/
-
-A new Star Wars featurette appears to confirm The Mandalorian ended in 2023, casting fresh doubt on Season 4.
----------
-
-# 'Mario Kart' Will No Longer Be Nintendo Exclusive Next Month
-
-Gaming News, Mario Kart, Nintendo, The Super Mario Bros. Movie, Nintendo Switch
-
-Sun, 19 Jul 2026 23:45:15 GMT
-
-https://collider.com/mario-kart-wii-pc-port-beta-august-2026/
-
-Mario Kart Wii is coming to PC through an unofficial fan-made recompilation entering beta in August 2026.
----------
-
-# ‘The Odyssey’ Surges on Streaming Before Its Theatrical Run Even Begins
-
-Movie News, The Odyssey, Christopher Nolan, Matt Damon, IMAX
-
-Sun, 19 Jul 2026 23:30:15 GMT
-
-https://collider.com/the-odyssey-making-of-an-epic-peacock-streaming-hit-july-2026/
-
-The Odyssey: The Making of an Epic is already a Peacock streaming hit as Christopher Nolan’s new film opens in theaters.
----------
-
-# Netflix's Best 2-Part Fantasy Adaptation Got Even Better When It Diverted From the Book
-
-TV Features, Shadow and Bone, Netflix, Fantasy, Books
-
-Sun, 19 Jul 2026 23:27:15 GMT
-
-https://collider.com/shadow-and-bone-netflix-adaptation-crows-book-change/
-
-Netflix's Shadow & Bone made a bold move by introducing the Crows early, expanding the story and giving fans a new perspective on the beloved series.
----------
-
-# Stephen King Admitted He Was Wrong About Kurt Russell's Hidden Gem Western
-
-Features, Bone Tomahawk, Stephen King
-
-Mon, 20 Jul 2026 01:00:12 GMT
-
-https://movieweb.com/stephen-king-review-bone-tomahawk/
-
-After initially dismissing it, Stephen King later admitted he hadn't given Kurt Russell's highly underrated Western horror epic enough credit.
----------
-
-# 10 Best Fantasy Books from the 2020s That Are Total Masterpieces
-
-TV Lists
-
-Mon, 20 Jul 2026 00:30:12 GMT
-
-https://movieweb.com/best-fantasy-books-2020s/
-
-Fantasy as a genre has gotten way more popular in the 2020s, and many incredible books have joined the genre in the last six years as well.
----------
-
-# Steven Spielberg & Tom Cruise's Sci-Fi Hit Was Almost an Arnold Schwarzenegger Sequel
-
-Features, Sci-Fi, Steven Spielberg, Minority Report, Tom Cruise, Arnold Schwarzenegger, Total Recall
-
-Sun, 19 Jul 2026 23:30:12 GMT
-
-https://movieweb.com/steven-spielberg-tom-cruise-minority-report-arnold-schwarzenegger-sequel/
-
-Steven Spielberg and Tom Cruise's sci-fi hit was almost a sequel to a classic movie starring Arnold Schwarzenegger. What happened?
----------
-
-# Apple TV's Hit 97% RT Comedy Is Quietly One Of Its Best Shows In Any Genre
-
-Streaming TV, Masked Recs
-
-Sun, 19 Jul 2026 23:15:11 GMT
-
-https://screenrant.com/trying-apple-tv-best-shows/
-
-One of Apple TV's oldest and most underrated comedies is also one of its best shows in any genre, and it deserves way more hype than it gets.
----------
-
-# The 7 Coolest Things Godzilla Has Done With His Atomic Breath
-
-Movies, Godzilla
-
-Sun, 19 Jul 2026 23:15:11 GMT
-
-https://screenrant.com/godzilla-coolest-atomic-breath-scenes/
-
-Over the course of his long movie history, Godzilla has accomplished some remarkable feats with his signature power, the atomic breath.
----------
-
-# 8 Funniest Sci-Fi Movies To Watch After Project Hail Mary
-
-Movies, Project Hail Mary, Sci-Fi
-
-Sun, 19 Jul 2026 23:15:11 GMT
-
-https://screenrant.com/funny-sci-fi-movies-like-project-hail-mary/
-
-One of the best things about Project Hail Mary is the film’s tremendous humor, and these eight excellent sci-fi hits are arguably even funnier.
----------
-
-# It's Time For Star Trek To Break A 31-Year Streak
-
-Star Trek
-
-Sun, 19 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/star-trek-break-format-streak-new-crew-timeline/
-
-Star Trek's universe is vast, and the series has expanded for decades. However, it is in the wrong direction, with Star Trek expanding outwards.
----------
-
-# Resident Evil 1 Remake Release Window Has Gamers Hyped
-
-Gaming, Resident Evil, Triple-A Games
-
-Sun, 19 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/resident-evil-remake-launch-timeline-leak/
-
-Resident Evil may have at least a couple of new remakes on the way quite soon, resulting in a steady stream of installments that players can expect.
----------
-
-# Beloved $5.6 Billion Animation Empire Is Making A Massive Comeback On Netflix U.S.
-
-Movies, Masked Recs
-
-Sun, 19 Jul 2026 22:48:45 GMT
-
-https://screenrant.com/minions-the-rise-of-gru-netflix-streaming-success-july-2026/
-
-An esteemed animated franchises that's made billions of dollars is experiencing a resurgence in popularity on Netflix in the United States.
----------
-
-# Netflix’s New 12-Part Ghost Romance Is A Murder Mystery With A Twist
-
-Streaming TV, Masked Recs
-
-Sun, 19 Jul 2026 22:47:12 GMT
-
-https://screenrant.com/netflix-spooky-in-love-k-drama-series-watch/
-
-Netflix's new 12-part K-drama ghost romance series is a thrilling murder mystery with a supernatural twist and is officially a must-watch this week.
----------
-
-# Deadwood Meets Reacher In Hulu's 6-Part Neo-Western Series
-
-Classic TV, Masked Recs
-
-Sun, 19 Jul 2026 22:30:11 GMT
-
-https://screenrant.com/justified-hulu-deadwood-meets-reacher-neo-western-series/
-
-A hit FX show now on Hulu brings the Western sensibilities of Deadwood to Reacher's gritty lone-wolf justice, and it's absolutely incredible.
----------
-
-# Star Trek Announces Captain Kirk's Final Villain in Franchise History
-
-Comics, Star Trek
-
-Sun, 19 Jul 2026 22:30:11 GMT
-
-https://screenrant.com/star-trek-captain-kirk-ending-final-villain/
-
-It's the perfect choice.
----------
-
-# 10 Greatest Greek Mythology Movies Including The Odyssey, Ranked
-
-Classic Movies, The Odyssey
-
-Sun, 19 Jul 2026 22:25:12 GMT
-
-https://screenrant.com/best-greek-mythology-movies/
-
-With The Odyssey hitting in 2026, how does it rank among the best Greek mythology movies ever released through the years in cinema history.
----------
-
-# 5 Masterpiece Supernatural Anime Better Than Jujutsu Kaisen
-
-Anime, Jujutsu Kaisen, Yu Yu Hakusho
-
-Sun, 19 Jul 2026 23:15:15 GMT
-
-https://www.cbr.com/masterpiece-supernatural-anime-better-than-jjk/
-
-For viewers seeking the very best supernatural anime has to offer, these exceptional supernatural series deserve to be at the top of the list.
----------
-
-# Outlander Officially Returns With New 2026 Release 4 Months After Season 8 Finale
-
-TV, Outlander
-
-Sun, 19 Jul 2026 23:00:15 GMT
-
-https://www.cbr.com/outlander-complete-series-dvd-collection/
-
-Outlander shaped the romance genre, and it's now heading for a final farewell.
----------
-
-# Spider-Man's Most Dangerous Villain Officially Returns With A Shocking, Upgraded Redesign
-
-Comics, Marvel, Marvel Comics, Spider-Man, Spider-Man: Brand New Day, Spider-Verse, MCU
-
-Sun, 19 Jul 2026 23:00:15 GMT
-
-https://www.cbr.com/spider-man-most-dangerous-villain-returns-with-shocking-redesign/
-
-How in the world is Spider-Man going to defeat what Marvel just unleashed?
----------
-
-# The 96% RT Sci-Fi Show George RR Martin Declared Was 'Doing Science Fiction Right'
-
-TV, Star Wars, Andor, george rr martin, Sci-Fi
-
-Sun, 19 Jul 2026 23:00:15 GMT
-
-https://www.cbr.com/george-rr-martin-star-wars-andor-high-praise/
-
-The creator of Game of Thrones had high praise for one of TV's recent sci-fi highlights.
----------
-
-# 10 Hardest Sega Saturn Games, Officially Ranked
-
-Games, Contra, sega, RPG, Video Games
-
-Sun, 19 Jul 2026 22:15:15 GMT
-
-https://www.cbr.com/hardest-sega-saturn-games-ranked/
-
-The Sega Saturn had its share of easy games to conquer in a weekend, but it also had plenty that tested the patience and durability of players.
----------
-
-# Netflix Just Landed One of the Biggest Sci-Fi Franchises of All Time
-
-Movie News, The Hunger Games, The Hunger Games: Sunrise on the Reaping, Netflix
-
-Sun, 19 Jul 2026 23:15:15 GMT
-
-https://collider.com/hunger-games-franchise-streaming-netflix-july-2026/
-
-Ahead of the franchise's next film and the upcoming theatrical event in September, Netflix adds all five Hunger Games films to its library.
----------
-
-# James Bond Is Officially Back From the Dead
-
-Movie News, No Time to Die, Daniel Craig, James Bond, 007
-
-Sun, 19 Jul 2026 23:00:15 GMT
-
-https://collider.com/james-bond-no-time-to-die-daniel-craig-streaming-success-prime-video-july-2026/
-
-No Time to Die, the final James Bond movie starring Daniel Craig, has been resurrected as one of the biggest streaming hits of 2026.
----------
-
-# Prime Video's 16-Episode Crime Thriller Is a Must-Watch for Fans of 'The Lincoln Lawyer'
-
-TV Features, The Lincoln Lawyer, Cross, Prime Video, Crime
-
-Sun, 19 Jul 2026 22:46:15 GMT
-
-https://collider.com/cross-prime-video-crime-thriller-lincoln-lawyer/
-
-If you're counting the days until The Lincoln Lawyer returns for Season 5, Prime Video's crime thriller series Cross will make the wait easier.
----------
-
-# 'Magic: The Gathering Officially Reveals Its Most Unexpected Crossover Yet
-
-Video Games, Stardew Valley, Magic: The Gathering, Video Game, Fantasy
-
-Sun, 19 Jul 2026 22:45:15 GMT
-
-https://collider.com/stardew-valley-exciting-crossover-with-mtg-magic-the-gathering/
-
-Magic: The Gathering reveals Stardew Valley crossover at MagicCon Amsterdam, with a superdrop called Superdrop of the Moonlight Jellies.
----------
-
-# Netflix's Biggest Sci-Fi Movie of 2026 Belongs to Alan Ritchson
-
-Movie News, War Machine, Alan Ritchson, Netflix, The Rip
-
-Sun, 19 Jul 2026 22:30:15 GMT
-
-https://collider.com/alan-ritchson-sci-fi-war-machine-netflix-most-watched-movie-2026/
-
-Netflix reveals Alan Ritchson's bonkers sci-fi action masterpiece, War Machine, as its most-watched film of the first half of 2026.
----------
-
-# Henry Cavill's New Detective Hit Officially Dethroned by Netflix's Must-See Crime Thriller
-
-Movie News, Henry Cavill, Enola Holmes 3, True Crime, Netflix
-
-Sun, 19 Jul 2026 22:15:15 GMT
-
-https://collider.com/enola-holmes-3-shipwrecked-nightmare-at-sea-streaming-success-netflix-july-2026/
-
-Henry Cavill's threequel with Millie Bobby Brown, Enola Holmes 3, is being beaten on streaming by a must-watch true crime movie.
----------
-
-# 7 Possibilities for Christopher Nolan's Next Movie, Based on His Interviews
-
-Features, Christopher Nolan
-
-Sun, 19 Jul 2026 23:00:12 GMT
-
-https://movieweb.com/christopher-nolan-next-movie-possibilities/
-
-Now that Christopher Nolan's long-awaited epic 'The Odyssey' has hit theaters cinema fans are naturally asking what's next for the legendary director.
 ---------
