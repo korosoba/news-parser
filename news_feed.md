@@ -1,3 +1,432 @@
+# Blade Runner's New Sequel Series Is Here, And It's 10/10 Perfect
+
+Comics, Blade Runner
+
+Tue, 21 Jul 2026 16:16:25 GMT
+
+https://screenrant.com/blade-runners-new-sequel-series-is-here-and-its-1010-perfect/
+
+Blade Runner is so back!
+---------
+
+# DC's R-Rated Body Horror Clayface Unveils Gruesome New Images
+
+Movies
+
+Tue, 21 Jul 2026 16:16:10 GMT
+
+https://screenrant.com/clayface-dc-new-images-horror/
+
+New images have been released of Tom Rhys Harries in the upcoming body horror Clayface from DC, as the gruesome horror awaits release.
+---------
+
+# Spider-Man: Brand New Day Unveils Final Trailer
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Tue, 21 Jul 2026 16:06:28 GMT
+
+https://screenrant.com/spider-man-brand-new-day-final-trailer/
+
+Tom Holland's return to the Marvel Cinematic Universe is getting closer, as a final trailer has been revealed for Sony's Spider-Man: Brand New Day.
+---------
+
+# Prime Video Officially Rebooting 39-Year-Old Sci-Fi Franchise RoboCop In New Series
+
+TV, Robocop
+
+Tue, 21 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/prime-video-robocop-tv-series-confirmed/
+
+Prime Video is officially rebooting a 39-year-old sci-fi franchise in a new TV series being developed by Blumhouse and Atomic Monster.
+---------
+
+# Bleach: Thousand-Year Blood War Part 4 Episode #1 Release Date And Time
+
+Anime, Bleach, Bleach: Thousand Year Blood War
+
+Tue, 21 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/bleach-thousand-year-blood-war-part-4-episode-1-release-date-time/
+
+Bleach: Thousand-Year Blood War is coming back soon.
+---------
+
+# The Dink Review: A Painfully Predictable Sports Comedy That Fails Its Stars
+
+Movies, The Dink
+
+Tue, 21 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/the-dink-movie-2026-review/
+
+Apple TV's new sports comedy has a cast that should dazzle, but at every turn, the movie falls just as flat as any other subpar sports story.
+---------
+
+# We're Not Joking, Timothy Olyphant's 10/10 Action Series Is Even Better Than Reacher
+
+Classic TV, Masked Recs
+
+Tue, 21 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/justified-tv-show-better-than-reacher/
+
+While waiting for Reacher season 4, check out Timothy Olyphant's 2010s FX action-thriller series that is arguably better than the Prime Video show.
+---------
+
+# Beast Of Reincarnation Trophy List - How To Get All Trophies And Achievements
+
+Gaming, Beast of Reincarnation
+
+Tue, 21 Jul 2026 15:56:59 GMT
+
+https://screenrant.com/beast-of-reincarnation-trophy-list-how-to-get-all-trophies-and-achievements/
+
+You'll need to beat Beast of Reincarnation twice if you want to get all of its trophies or achievements.
+---------
+
+# It's The Start Of An Era For Taylor Sheridan's Yellowstone
+
+TV, Yellowstone
+
+Tue, 21 Jul 2026 15:55:53 GMT
+
+https://screenrant.com/yellowstone-paramount-plus-streaming-charts-rise-july-2026/
+
+Taylor Sheridan's Yellowstone has just hit a major streaming mark, officially marking the start of a new era for the show that changed Westerns.
+---------
+
+# 10 Best Summer 2026 Anime Series, So Far
+
+Anime, Saga of Tanya the Evil, The Ghost in the Shell, Mushoku Tensei: Jobless Reincarnation
+
+Tue, 21 Jul 2026 16:15:15 GMT
+
+https://www.cbr.com/best-summer-2026-anime-series-so-far/
+
+The Summer 2026 lineup for anime doesn't feature any major new Shonen, but it does have these 10, consistently amazing series.
+---------
+
+# DC Studios’ R-Rated Batman: Knightfall Movie Gets New Trailer Revealing Release Date
+
+Movies, Batman: Knightfall Part 1: Knightfall, Batman, Animation
+
+Tue, 21 Jul 2026 16:09:46 GMT
+
+https://www.cbr.com/batman-knightfall-movie-trailer-release-date/
+
+DC Studios sets release date for its new R-rated Batman movie.
+---------
+
+# Sydney Sweeney's New Netflix Live-Action Movie Based on Hit Sci-Fi Franchise Officially Wraps Filming
+
+Movies, Gundam
+
+Tue, 21 Jul 2026 16:02:06 GMT
+
+https://www.cbr.com/sydney-sweeney-netflix-gundam-movie-wraps-filming/
+
+Another Sydney Sweeney movie is officially in the can.
+---------
+
+# It Star's 96-Minute Social Satire With 94% RT Starts a Revolution in New Clip Ahead of 1-Night Theatrical Return
+
+Movies, Our Hero, Balthazar
+
+Tue, 21 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/our-hero-balthazar-clip-theatrical-return/
+
+Exclusive: Ahead of its exciting return to theaters, CBR has a clip from the hit black comedy satire.
+---------
+
+# Avengers: Doomsday Officially Erased 1 Classic X-Men Character
+
+Movies, Avengers: Doomsday, X-Men, MCU
+
+Tue, 21 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/avengers-doomsday-erased-gambit-taylor-kitsch-channing-tatum-x-men/
+
+The X-Men officially return in Avengers: Doomsday, but one iconic character has been completely erased.
+---------
+
+# 28 Years Later, Deep Space Nine's Best Episode Still Has the Greatest Ending in Star Trek History
+
+TV, Star Trek, Star Trek: Deep Space Nine, Sci-Fi
+
+Tue, 21 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/star-trek-deep-space-nine-far-beyond-the-stars-ending/
+
+Star Trek: Deep Space Nine delivered some truly great episodes of television, but this one rises above the rest thanks to its pitch-perfect ending.
+---------
+
+# Mushoku Tensei Officially Loses the Crown to the Biggest Anime of Summer 2026
+
+Anime, Mushoku Tensei: Jobless Reincarnation
+
+Tue, 21 Jul 2026 15:36:15 GMT
+
+https://www.cbr.com/top-anime-summer-2026-niconico-chainsmoker-cat/
+
+Against all odds, Mushoku Tensei: Jobless Reincarnation fails to pull in as many viewers as a raunchy comedy about cat girls.
+---------
+
+# LEGO Officially Unveils The X-Files Set Ahead of Reboot
+
+TV, The X-Files, LEGOS
+
+Tue, 21 Jul 2026 15:33:46 GMT
+
+https://www.cbr.com/the-x-files-lego-set/
+
+Lego has unveiled a new X-Files Lego set, featuring 1,478 pieces, to be released this August.
+---------
+
+# Ravensburger Drops Gamers Into the Mists of Ravenloft In Horrified: Dungeons & Dragons
+
+CBR Exclusives, Tabletop, Dungeons and Dragons, Gaming
+
+Tue, 21 Jul 2026 15:30:15 GMT
+
+https://www.cbr.com/ravensburger-horrified-dnd-ravenloft-review/
+
+Ravensburger's Horrified D&amp;D game series is perfect for players looking to explore D&amp;D without all the trappings of a long campaign.
+---------
+
+# Stuart Fails to Save the Universe: Why Stuart Was the Perfect Choice
+
+TV, Stuart Fails to Save the Universe
+
+Tue, 21 Jul 2026 15:25:34 GMT
+
+https://www.cbr.com/video/stuart-fails-to-save-the-universe-why-stuart-was-the-perfect-choice/
+
+Kevin Sussman and Lauren Lapkus discuss Stuart Fails to Save the Universe, revealing why Stuart became the unlikely lead of The Big Bang Theory spinoff and how his relationship with Denise grows in surprising new ways.
+---------
+
+# The Book Behind Apple TV’s Biggest New Hit Is on Sale Right Now
+
+Books and Comics News, Margo's Got Money Troubles, Apple TV, Books, Elle Fanning
+
+Tue, 21 Jul 2026 16:04:12 GMT
+
+https://collider.com/margos-got-money-troubles-book-sale-apple-tv/
+
+Margo’s Got Money Troubles, the novel that inspired Apple TV’s hit Elle Fanning series, is currently on sale for a limited time.
+---------
+
+# Prime Video Is Already Replacing Its Cancelled 'Stargate' Reboot With Another Massive Sci-Fi Franchise
+
+TV News, Robocop, RoboCop, RoboCop: The Animated Series
+
+Tue, 21 Jul 2026 16:00:15 GMT
+
+https://collider.com/robocop-series-order-prime-video-james-wan/
+
+Prime Video has officially greenlit an eight-episode RoboCop series with James Wan, Peter Ocko and original co-creator Ed Neumeier.
+---------
+
+# ‘Super Troopers 3’ Is the R-Rated Release Fans Have Been Waiting For [Exclusive]
+
+Movie News, Super Troopers 3, Jay Chandrasekhar, Broken Lizard, Searchlight Pictures
+
+Tue, 21 Jul 2026 16:00:15 GMT
+
+https://collider.com/super-troopers-3-sneak-peek/
+
+Watch a new scene from Super Troopers 3, where the Vermont state troopers encounter a sticky situation while using a bomb-disposal robot.
+---------
+
+# ’Bosch’s Titus Welliver Returns in Pulse-Pounding First Trailer for New Liam Neeson CIA Thriller
+
+Movie News, Titus Welliver, Liam Neeson, Zachary Levi
+
+Tue, 21 Jul 2026 16:00:15 GMT
+
+https://collider.com/titus-welliver-new-action-movie-with-liam-neeson-the-fix-first-trailer/
+
+Bosch's Titus Welliver stars in the first trailer for the new action movie, The Fix, co-starring Liam Neeson and Zachary Levi.
+---------
+
+# Jake Johnson's New Apple TV Pickleball Comedy 'The Dink' Is Elevated by Its Performances | Review
+
+Reviews, The Dink, Jake Johnson, Ben Stiller, Mary Steenburgen
+
+Tue, 21 Jul 2026 16:00:15 GMT
+
+https://collider.com/the-dink-review-apple-tv-jake-johnson/
+
+Pickleball comedy The Dink may be formulaic, but a charming cast led by Jake Johnson, a lot of laughs, and a big heart make it into a champion.
+---------
+
+# ‘Killing Eve’ Meets ‘John Wick’ in Catherine Zeta-Jones’ New Thriller
+
+TV News, Catherine Zeta-Jones, Daniel Ings, Ron Perlman, AMC+
+
+Tue, 21 Jul 2026 15:33:15 GMT
+
+https://collider.com/catherine-zeta-jones-new-revenge-thriller-series-kill-jackie-streaming/
+
+Catherine Zeta-Jones’ 8-part revenge thriller Kill Jackie will premiere exclusively on AMC+ in the U.S. this fall alongside Ron Perlman.
+---------
+
+# Get Tickets to Our Early Screening of Netflix's 'The Last House' and Q&A With Louis Leterrier
+
+Movie News, The Last House, Screening, Netflix, Louis Leterrier
+
+Tue, 21 Jul 2026 15:31:25 GMT
+
+https://collider.com/the-last-house-netflix-screening-louis-leterrier-q-and-a/
+
+Details on how you can enter for your chance to win free tickets to our early screening of Netflix's The Last House and Q&amp;A with Louis Leterrier.
+---------
+
+# Gillian Anderson Officially Returns for New ‘X Files’ Release
+
+TV News, The X-Files, Gillian Anderson, Lego, Merchandise
+
+Tue, 21 Jul 2026 15:27:08 GMT
+
+https://collider.com/x-files-gillian-anderson-return-lego-set-ad/
+
+Gillian Anderson returns for a new X-Files LEGO ad promoting the brick-built set inspired by the beloved paranormal sci-fi series.
+---------
+
+# Steven Spielberg’s New Alien Thriller Officially Gets New Release
+
+Movie News, Disclosure Day, Steven Spielberg, Sci-Fi, Emily Blunt
+
+Tue, 21 Jul 2026 15:19:45 GMT
+
+https://collider.com/disclosure-day-digital-release-date-watch-at-home/
+
+Steven Spielberg’s Disclosure Day arrives on digital today, allowing audiences to rent or purchase the Emily Blunt sci-fi thriller at home.
+---------
+
+# Josh Duhamel’s Hit Netflix Western Returns in Less Than 48 Hours
+
+TV News, Ransom Canyon, Netflix, Western, Drama
+
+Tue, 21 Jul 2026 15:15:56 GMT
+
+https://collider.com/ransom-canyon-season-2-netflix-josh-duhamel-return/
+
+Josh Duhamel’s hit Netflix Western Ransom Canyon returns with Season 2 on July 23, continuing Staten and Quinn’s complicated romance.
+---------
+
+# Jessica Chastain Battles Jessica Chastain in First Trailer for New Supernatural Thriller
+
+Movie News, Other Mommy, Jessica Chastain
+
+Tue, 21 Jul 2026 16:10:51 GMT
+
+https://movieweb.com/jessica-chastain-other-mommy-first-trailer/
+
+Jessica Chastain has a horrifying new role in an upcoming horror flick, 'Other Mommy.'
+---------
+
+# When 'Star Trek: Strange New Worlds' Episodes Release & Full Season 4 Schedule
+
+Features, Star Trek: Strange New Worlds, Star Trek, star trek: strange new worlds
+
+Tue, 21 Jul 2026 16:01:12 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-season-4-release-schedule/
+
+It's almost time to boldly go back into the action.
+---------
+
+# Apple TV's New Streaming Movie Lacks Any Real Laughs or a Point | Review
+
+Movie Reviews, The Dink, Jake Johnson
+
+Tue, 21 Jul 2026 16:01:12 GMT
+
+https://movieweb.com/the-dink-review/
+
+The new Jake Johnson pickleball comedy is derivative of many more better sports comedies.
+---------
+
+# Best Movies for Slapstick Comedy Fans
+
+Movie Lists, Comedy
+
+Tue, 21 Jul 2026 16:01:12 GMT
+
+https://movieweb.com/best-movies-for-slapstick-comedy-fans/
+
+Slapstick is one of comedy's earliest types of humor, so it is no surprise that there have been great movies since the dawn of film itself.
+---------
+
+# Florence Pugh's Explosive Thriller Epic Dominates Charts 3 Years After Release
+
+Movie News, Oppenheimer, Florence Pugh
+
+Tue, 21 Jul 2026 15:45:07 GMT
+
+https://movieweb.com/oppenheimer-blu-ray-sales-chart-success/
+
+Christopher Nolan's 'Oppenheimer' is dominating Blu-ray sales charts three years after its release, showing the longevity of the biographical epic.
+---------
+
+# 25 Years Later, Long-Awaited Martial Arts Sequel Scores Big at the Box Office
+
+Movie News, Shaolin Soccer
+
+Tue, 21 Jul 2026 15:41:33 GMT
+
+https://movieweb.com/kung-fu-soccer-china-box-office/
+
+Stephen Chow's long-awaited martial arts comedy sequel, Kung Fu Soccer, surpasses expectations with record-breaking box office numbers in China, reviving the summer movie season.
+---------
+
+# Gillian Anderson Makes Surprise Return as Scully for New 'X-Files' Release
+
+TV News, The X-Files, LEGO, Gillian Anderson
+
+Tue, 21 Jul 2026 15:29:03 GMT
+
+https://movieweb.com/gillian-anderson-x-files-lego/
+
+The truth (and the merchandise) is out there.
+---------
+
+# 10 Most Brutal Revenge Movies of All Time
+
+Movie Lists
+
+Tue, 21 Jul 2026 15:11:59 GMT
+
+https://movieweb.com/most-brutal-revenge-movies/
+
+Revenge always gets messy, but these films push the boundries to create unforgettable thrillers.
+---------
+
+# Netflix's 95-Minute Action Thriller Crowned One of the Biggest Streaming Hits of 2026
+
+Movie News, Apex, Netflix, Action, Thriller
+
+Tue, 21 Jul 2026 15:00:12 GMT
+
+https://movieweb.com/netflix-apex-biggest-action-thriller-streaming-july-2026/
+
+Hunt... or be hunted.
+---------
+
+# Sydney Sweeney's Blockbuster Netflix Sci-Fi Action Adaptation Officially Crosses Major Milestone
+
+Movie News, Sydney Sweeney, Gundam, Mobile Suit Gundam
+
+Tue, 21 Jul 2026 14:43:28 GMT
+
+https://movieweb.com/sydney-sweeney-gundam-netflix-finished-production/
+
+Sydney Sweeney's blockbuster sci-fi action adaptation from Netflix just crossed a major milestone.
+---------
+
 # Supernatural's 2026 Return Already Looks Better Than Season 16
 
 Classic TV, Supernatural
@@ -5067,433 +5496,4 @@ Sun, 19 Jul 2026 23:00:12 GMT
 https://movieweb.com/christopher-nolan-next-movie-possibilities/
 
 Now that Christopher Nolan's long-awaited epic 'The Odyssey' has hit theaters cinema fans are naturally asking what's next for the legendary director.
----------
-
-# 10 Crunchyroll Action Thriller Anime That Are Better Than ‘Attack on Titan’
-
-TV Lists, Attack On Titan, Anime, Attack on Titan
-
-Sun, 19 Jul 2026 22:30:12 GMT
-
-https://movieweb.com/crunchyroll-action-thriller-anime-better-attack-on-titan/
-
-These action thriller anime outshine the beloved 'Attack on Titan' in at least one area, and they're all available to stream on Crunchyroll.
----------
-
-# Homelander's Best Line Is the Most Misunderstood Quote in The Boys History
-
-Comics, The Boys
-
-Sun, 19 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/boys-homelander-best-line-quote/
-
-"The only man in the sky is me."
----------
-
-# FX's 7-Part Crime Thriller Was So Good They Made The Same Story Again, Backwards
-
-Classic TV, Masked Recs
-
-Sun, 19 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/sons-of-anarchy-story-mayans-mc-backwards/
-
-FX's biker thriller Sons of Anarchy was such a success that the world was explored further, with a sequel that focused on the original antagonists.
----------
-
-# The Elder Scrolls: Elsweyr Officially Releases November 2026
-
-Gaming, The Elder Scrolls, The Elder Scrolls 6, The Elder Scrolls V: Skyrim, The Elder Scrolls IV: Oblivion Remastered, PC
-
-Sun, 19 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/elder-scrolls-elsweyr-heroes-of-tamriel-november-2026/
-
-The Elder Scrolls: Elsweyr is officially set to release in November 2026 as part of the massive Heroes of Tamriel expansion.
----------
-
-# I Finally Watched Avatar: Fire And Ash, And I'm More Confused By The Reviews Than Ever
-
-Movies, Avatar: Fire and Ash
-
-Sun, 19 Jul 2026 21:55:11 GMT
-
-https://screenrant.com/avatar-fire-and-ash-reviews-plot-female-characters/
-
-The reviews of the latest addition to James Cameron's award-winning franchise Avatar, Avatar: Fire and Ash, are missing some major details.
----------
-
-# very Marvel & DC Character Parodied In Amazon's Series
-
-Streaming TV, The Boys
-
-Sun, 19 Jul 2026 21:54:52 GMT
-
-https://screenrant.com/boys-amazon-marvel-dc-hero-character-parody/
-
-Prime Video’s The Boys is an often brutal parody of the superhero genre, and DC and Marvel's finest inspire some of its main superheroes.
----------
-
-# The Walking Dead’s Daryl Dixon Spinoff Is Built For A Netflix Binge
-
-Streaming TV, The Walking Dead: Daryl Dixon
-
-Sun, 19 Jul 2026 21:45:11 GMT
-
-https://screenrant.com/netflix-the-walking-dead-daryl-dixon-season-3-watch/
-
-The Walking Dead: Daryl Dixon is built for a Netflix weekend binge following the addition of its third season on July 19, months after its premiere.
----------
-
-# Hulu’s 5-Part Dark Fantasy Series Is As Close To Perfect As Spinoffs Get
-
-Classic TV, Masked Recs
-
-Sun, 19 Jul 2026 21:30:11 GMT
-
-https://screenrant.com/angel-buffy-spinoff-close-to-perfect/
-
-Many modern spin-offs can't escape the shadow of their parent shows, but one supernatural saga from the late 90s remains the blueprint for success.
----------
-
-# When Will The Odyssey Be Available On Streaming?
-
-New Movies, The Odyssey
-
-Sun, 19 Jul 2026 21:30:11 GMT
-
-https://screenrant.com/the-odyssey-streaming-release-home-video/
-
-The Odyssey is playing in theaters worldwide, but it will come to streaming, digital, and Blu-ray later. Here's what we know about each release.
----------
-
-# Spider-Man: Brand New Day's New Spider-Sense Details Reveal A Major Change
-
-Movies, Spider-Man: Brand New Day
-
-Sun, 19 Jul 2026 21:24:51 GMT
-
-https://screenrant.com/spider-man-brand-new-day-new-spider-sense-change/
-
-Spider-Man: Brand New Day's director revealed at an exclusive event that the upcoming film's spider-sense would be different from previous versions.
----------
-
-# Time Is Running Out to Watch Tobey Maguire's Spider-Man Trilogy as It's Losing Its Streaming Home Soon
-
-Movies, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man 2, Spider-Man 3, Spider-Man: Brand New Day, Spider-Man: No Way Home
-
-Sun, 19 Jul 2026 22:10:03 GMT
-
-https://www.cbr.com/time-is-running-out-to-watch-tobey-maguires-spider-man-trilogy-as-its-losing-its-streaming-home-soon/
-
-This is terrible news for fans of Tobey Maguire's iconic Spider-Man trilogy.
----------
-
-# The 10 Best Epic Movies of the 1980s, Ranked
-
-Movies
-
-Sun, 19 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/best-epic-movies-1980s-ranked-list/
-
-Following in the tradition of classics like Lawrence of Arabia, the 1980s unleashed some of the greatest epic movies audiences have ever seen.
----------
-
-# 5 Most Overrated Mecha Anime Not Worth the Hype
-
-Anime, Code Geass: Lelouch of the Rebellion, Mobile Suit Gundam SEED Destiny, mecha
-
-Sun, 19 Jul 2026 21:15:15 GMT
-
-https://www.cbr.com/overrated-mecha-anime-not-worth-hype/
-
-Anime is full of rich and rewarding mecha series, but some of the genre's most popular titles get a little more love than they actually deserve.
----------
-
-# Brandon Sanderson Officially Returns This Fall With Stormlight: War for Roshar
-
-Games, Brandon Sanderson, The Stormlight Archive
-
-Sun, 19 Jul 2026 21:13:14 GMT
-
-https://www.cbr.com/brandon-sanderson-official-new-release-fall-2026-stormlight/
-
-Brandon Sanderson's latest project, Stormlight: War for Roshar, will be shared with fans later this year.
----------
-
-# 8 Best Mystery Books Packed With Plot Twists
-
-TV, Mystery, The Hound Of The Baskervilles, Gone Girl, Shutter Island
-
-Sun, 19 Jul 2026 22:03:14 GMT
-
-https://collider.com/mystery-books-most-plot-twists/
-
-Gone Girl, Shutter Island, The Maltese Falcon, and more make up our list of the best mystery books that are packed with plot twists.
----------
-
-# Apple TV's New 10-Part Hit Is Officially One of Streaming's Biggest Success Stories
-
-TV News, Apple TV, Widow's Bay, Matthew Rhys, Horror
-
-Sun, 19 Jul 2026 22:00:15 GMT
-
-https://collider.com/widows-bay-apple-tv-streaming-success-nielsen-ratings-july-2026/
-
-Apple TV's breakout hit of 2026, the comedy horror series Widow's Bay, debuted on the Nielsen streaming chart in its finale week.
----------
-
-# 8 Best Steven Spielberg Movies of the 21st Century
-
-Movie, Catch Me If You Can, Steven Spielberg, West Side Story, Minority Report
-
-Sun, 19 Jul 2026 21:55:14 GMT
-
-https://collider.com/best-steven-spielberg-movies-21st-century-ranked/
-
-Minority Report, Munich, and Catch Me if You Can are all among the very best Steven Spielberg movies of the 21st century.
----------
-
-# ‘The Sopranos’ Never Topped This Masterpiece 60-Minute Episode
-
-TV Features, The Sopranos, James Gandolfini, HBO, Michael Imperioli
-
-Sun, 19 Jul 2026 21:32:14 GMT
-
-https://collider.com/the-sopranos-masterpiece-episode-pine-barrens/
-
-“Pine Barrens” remains the best episode of The Sopranos, combining unforgettable comedy, brilliant character work, and groundbreaking storytelling.
----------
-
-# Stephen King's New Masterpiece Is Officially One of HBO Max's Biggest Streaming Hits
-
-Movie News, HBO Max, Stephen King, Streaming, The Long Walk
-
-Sun, 19 Jul 2026 21:30:15 GMT
-
-https://collider.com/stephen-king-the-long-walk-streaming-hit-hbo-max-july-2026/
-
-A modern Stephen King masterpiece starring Mark Hamill is a huge hit on HBO Max. Here's everything you should know.
----------
-
-# 'Invincible' Creator's "Most Violent Superhero Series of the Year' Debuts in 3 Days
-
-Books and Comics, Robert Kirkman, Invincible, X-Men, Superhero
-
-Sun, 19 Jul 2026 21:15:15 GMT
-
-https://collider.com/terminal-robert-kirkman-new-comic-issue-one-release-date-july-22-2026/
-
-Robert Kirkman's new comic book series Terminal, described as Invincible meets X-Men, is about to debut next week.
----------
-
-# 'Reacher's Sloppiest Character Death Is the Biggest Mistake of the Prime Video Series
-
-TV Features, Reacher, Prime Video, Action, Crime
-
-Sun, 19 Jul 2026 21:14:15 GMT
-
-https://collider.com/reacher-season-3-agent-eliot-death-biggest-mistake/
-
-The death of Agent Eliot in Reacher Season 3 feels preventable, showcasing a major misstep that undermines the competence of the heroes.
----------
-
-# Prime’s Streaming Smash Series Has Been Trending For 2 Months
-
-Features, Off Campus, Prime Video
-
-Sun, 19 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/off-campus-prime-video-must-watch/
-
-Amazon Prime Video has a TV series that is perfect summer entertainment and that has been popular since it was released two months ago.
----------
-
-# Every Monster Odysseus Faces in 'The Odyssey' & How They Differ From the Book
-
-Movie Lists, The Odyssey
-
-Sun, 19 Jul 2026 21:30:12 GMT
-
-https://movieweb.com/monsters-trials-the-odyssey-book-differences/
-
-From the Cyclops to the Sirens, how does Christopher Nolan's vision line up with Odysseus's trials in Homer's epic poem?
----------
-
-# Charlie Hunnam's New Character Is The Anti Jax Teller
-
-Streaming TV, Masked Recs
-
-Sun, 19 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/charlie-hunnam-criminal-show-anti-jax-teller/
-
-Charlie Hunnam has appeared in some excellent crime dramas, with the most famous being Sons of Anarchy. Now, he will play a very different character.
----------
-
-# John Wayne's Remake Of The Odyssey Is His Greatest Western
-
-Movies, The Searchers, John Wayne
-
-Sun, 19 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/searchers-movie-odyssey-remake-greatest-western/
-
-John Wayne made a Western riff on The Odyssey during his heyday, and it resulted in not only his best movie, but the greatest Western ever made.
----------
-
-# All 12 Friday The 13th Movies, Ranked By Box Office
-
-Movies, Friday The 13th, Ranking
-
-Sun, 19 Jul 2026 20:45:11 GMT
-
-https://screenrant.com/friday-the-13th-movies-box-office-ranked/
-
-The Friday the 13th franchise is a horror juggernaut, but which of the 12 creepy slasher flicks made the most money at the box office?
----------
-
-# 13 Greatest Ubisoft Games Of All Time
-
-Gaming, Ubisoft, Far Cry, Assassin's Creed, Tom Clancy's Rainbow Six Siege, Triple-A Games
-
-Sun, 19 Jul 2026 20:30:12 GMT
-
-https://screenrant.com/best-ubisoft-games-all-time/
-
-Ubisoft has made a plethora of amazing games, but only a few stand out as the very best of its library, including iconic titles and hidden gems.
----------
-
-# Apple TV’s New 10-Part Emmy Favorite Is The Perfect Horror Binge
-
-TV, Masked Recs
-
-Sun, 19 Jul 2026 20:30:11 GMT
-
-https://screenrant.com/widows-bay-emmys-favorite-horror-binge/
-
-Apple TV has upped its horror game this year with an exceptional new release that blends classic genre tropes with brilliantly subversive comedy.
----------
-
-# James Gunn Confirms Why Reality TV Star Pulled Out of Superman Sequel
-
-Movies, Man of Tomorrow
-
-Sun, 19 Jul 2026 21:03:15 GMT
-
-https://www.cbr.com/james-gunn-man-of-tomorrow-reality-star-cameo/
-
-A big reality TV star was going to appear in the upcoming Superman sequel.
----------
-
-# Apple TV's 'Perfect Feel-Good Comedy' Is a Global Streaming Hit After Wonderful RT Score
-
-TV, Trying
-
-Sun, 19 Jul 2026 21:00:15 GMT
-
-https://www.cbr.com/trying-comedy-apple-tv-global-success-july-2026/
-
-The series largely flew under the radar, despite strong reviews.
----------
-
-# Absolute Batman Confirms Batman Will Face His Most Unbelievable Enemy Yet
-
-Comics, Batman
-
-Sun, 19 Jul 2026 21:00:15 GMT
-
-https://www.cbr.com/absolute-batman-23-batman-fighting-batman-confirmed/
-
-DC Comics' Absolute Batman is on track for his most brutal fight yet, and his next opponent has already proven to be absolutely unbeatable.
----------
-
-# Cowboy Bebop Creator Says There's Too Much Anime – And Most of It Looks the Same
-
-Anime, Cowboy Bebop, Lazarus
-
-Sun, 19 Jul 2026 21:00:15 GMT
-
-https://www.cbr.com/cowboy-bebop-creator-too-much-anime-looks-the-same/
-
-Cowboy Bebop creator Shinichiro Watanabe explains how the modern anime industry is failing to embrace original works with the enthusiasm they deserve.
----------
-
-# The Batman: Part II's Delay Is Bad News for James Gunn's DC Reboot
-
-Movies, The Batman Part II, DCU, The Brave and the Bold
-
-Sun, 19 Jul 2026 21:00:15 GMT
-
-https://www.cbr.com/the-batman-part-2-delay-brave-and-the-bold-dcu-james-gunn/
-
-The Batman: Part II has officially been delayed to 2028. This is bad news for Batman fans on two fronts.
----------
-
-# Newest Addition to Long-Running Sniper Franchise Fell Under The Radar, But Turned Into a Netflix Global Hit
-
-Movies, Netflix
-
-Sun, 19 Jul 2026 20:30:15 GMT
-
-https://www.cbr.com/sniper-no-nation-action-netflix-success-june-2026/
-
-The 33-year-old franchise returns with the latest installment finding streaming success on Netflix.
----------
-
-# 5 Strongest Deadite Variations in Evil Dead History, Ranked
-
-Movies, Evil Dead
-
-Sun, 19 Jul 2026 20:30:15 GMT
-
-https://www.cbr.com/strongest-deadites-in-evil-dead-list/
-
-The Evil Dead franchise contains many variations of the Deadites, so let's take a look at which ones are actually the strongest versions.
----------
-
-# 4 Action Anime Series That Are 10/10 Masterpieces
-
-Anime, Gurren Lagann, Fullmetal Alchemist
-
-Sun, 19 Jul 2026 20:15:15 GMT
-
-https://www.cbr.com/perfect-action-anime-series-masterpieces/
-
-Action anime like Gurren Lagann and Hunter x Hunter have virtually no flaws.
----------
-
-# Jason Statham Meets 'Jaws' in HBO Max's Latest Late-Night Favorite
-
-Movie News, Jason Statham, Jaws, The Meg, HBO Max
-
-Sun, 19 Jul 2026 21:00:15 GMT
-
-https://collider.com/jason-statham-shark-movie-the-meg-streaming-hit-hbo-max-july-2026/
-
-Jason Statham's Jaws replacement takes a bite out of the streaming competition in the lead-up to Shark Week. Here's everything you should know.
----------
-
-# Brian De Palma's Most Hitchcockian Thriller Is Hiding in Plain Sight
-
-Movie Features, Brian De Palma, John Travolta, Blow Out, Alfred Hitchcock
-
-Sun, 19 Jul 2026 20:56:14 GMT
-
-https://collider.com/blow-out-best-brian-de-palma-hitchcock-thriller/
-
-Brian De Palma's Blow Out blends Hitchcock-style suspense, John Travolta, and a chilling conspiracy into one of the greatest thrillers ever made.
----------
-
-# 3 Years Later, Netflix’s 8-Part Fantasy Book Adaptation Deserves a Second Chance
-
-TV Features, Fantasy, Lockwood & Co., Netflix, Thriller
-
-Sun, 19 Jul 2026 20:43:14 GMT
-
-https://collider.com/netflix-fantasy-series-lockwood-co-deserves-season-2/
-
-Three years later, Netflix’s 8-episode Lockwood & Co. adaptation still deserves a Season 2 to resolve its cliffhanger and explore more of the books.
 ---------
