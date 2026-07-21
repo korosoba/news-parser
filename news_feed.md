@@ -1,3 +1,14 @@
+# Wheel Of Time Getting The Finale It Deserves, 2 Years After The Show's Cancellation
+
+Gaming, The Wheel of Time
+
+Tue, 21 Jul 2026 05:30:11 GMT
+
+https://screenrant.com/wheel-of-time-real-finale-2027/
+
+Any time The Wheel of Time gets a new adaptation the world heals a little, and the latest is one of the most exciting in years.
+---------
+
 # Game Of Thrones: The Moonlit Stalker Officially Unveiled
 
 Gaming, Game of Thrones, Game Of Thrones, PC, House of the Dragon
@@ -5485,15 +5496,4 @@ Sun, 19 Jul 2026 16:10:55 GMT
 https://www.cbr.com/the-odyssey-box-office-christopher-nolan-biggest-debut/
 
 One of the most anticipated films of the year has officially delivered.
----------
-
-# Kenneth Branagh's $137M Agatha Christie Sequel Returns as a Netflix Global Sensation 4 Years Later
-
-Movies, Death on the Nile, Netflix, Mystery
-
-Sun, 19 Jul 2026 16:00:15 GMT
-
-https://www.cbr.com/agatha-christie-death-on-the-nile-mystery-netflix-success-july-2026/
-
-Kenneth Branagh's adaptation of one of Agatha Christie's most popular crime novels, Death on the Nile, is a global hit on Netflix 4 years later.
 ---------
