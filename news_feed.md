@@ -1,3 +1,366 @@
+# Quentin Tarantino Inspired Assassin Action Series Confirms US Release Window
+
+TV, Quentin Tarantino
+
+Wed, 22 Jul 2026 14:15:47 GMT
+
+https://screenrant.com/kill-jackie-show-release-window/
+
+A new, Quentin Tarantino inspired assassin action series confirms its US release window as new details about the riveting TV show are revealed.
+---------
+
+# Star Trek: Strange New Worlds Season 4 Rotten Tomatoes Score Debuts To New Series Record
+
+TV, Star Trek: Strange New Worlds, Star Trek: Strange New Worlds - Season 4, Star Trek
+
+Wed, 22 Jul 2026 14:10:42 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-rotten-tomatoes-score/
+
+Star Trek: Strange New Worlds is back for its fourth season, and the newest installment is setting a stunning record for the fan-favorite series.
+---------
+
+# The Perfect Movie To Watch After The Odyssey Is Finally Getting The Audience It Always Deserved
+
+Movies, Masked Recs
+
+Wed, 22 Jul 2026 14:05:23 GMT
+
+https://screenrant.com/perfect-movie-watch-after-the-odyssey-troy/
+
+Loved The Odyssey? Brad Pitt's Troy remains one of Hollywood's greatest ancient epics—and it's finally getting another moment to shine.
+---------
+
+# DC Unveils First Image Of Green Lantern's Armored Redesign
+
+DC Comics, Green Lantern
+
+Wed, 22 Jul 2026 14:00:11 GMT
+
+https://screenrant.com/new-green-lantern-costume-armor/
+
+DC's new Green Lantern design debuts heavy-duty armor and a space helmet that suggests one of the biggest battles a power ring wearer has ever seen.
+---------
+
+# 2026's Underrated $114 Million Sci-Fi Blockbuster Can Get Justice Starting Today
+
+Movies, Masked Recs
+
+Wed, 22 Jul 2026 14:00:11 GMT
+
+https://screenrant.com/masters-of-the-universe-prime-video-streaming-justice/
+
+One of the most underrated science fiction blockbusters of 2026 is now available on streaming, and it may finally get the attention it deserves.
+---------
+
+# Avatar Legends: The Fighting Game Review - Balance Between All Elements
+
+Gaming, Avatar: The Last Airbender, Indie Games
+
+Wed, 22 Jul 2026 14:00:11 GMT
+
+https://screenrant.com/avatar-legends-the-fighting-game-review/
+
+Existing as a love letter to each Avatar animated series and classic fighting games, Avatar Legends is a detailed bending experience crafted by fans.
+---------
+
+# The Walking Dead: Dead City Season 3 Review - Third Time Lucky For Maggie & Negan
+
+Streaming TV, The Walking Dead: Dead City
+
+Wed, 22 Jul 2026 13:45:11 GMT
+
+https://screenrant.com/the-walking-dead-dead-city-season-3-review/
+
+In season 3, AMC's The Walking Dead: Dead City performs a much-needed format break to deliver Maggie and Negan's best spinoff outing yet.
+---------
+
+# Pokémon Celebration Journey Officially Announced, Featuring All 9 Gens
+
+Gaming, Pokemon, tabletop games
+
+Wed, 22 Jul 2026 13:30:11 GMT
+
+https://screenrant.com/pokemon-celebration-journey-puzzle-release/
+
+A massive new Pokémon product called Celebration Journey, which celebrates the iconic franchise’s 30th anniversary, has just been announced.
+---------
+
+# Tiger King's Spiritual Successor Lands On HBO Max Next Month
+
+Streaming TV, Masked Recs
+
+Wed, 22 Jul 2026 13:30:11 GMT
+
+https://screenrant.com/monsters-of-god-hbo-max-august-2026-tiger-king-successor/
+
+The documentarian behind Tiger King and Chimp Crazy has another exploration of exotic pets with his upcoming series set to release on HBO in August.
+---------
+
+# Superman's New Era Officially Begins Today: All Details
+
+Comics, Superman
+
+Wed, 22 Jul 2026 13:20:11 GMT
+
+https://screenrant.com/superman-new-era-return-superboy/
+
+He's rocking that beard.
+---------
+
+# 5 Western Showdowns Better Than Doc Holliday's In Tombstone
+
+Movies, Tombstone
+
+Wed, 22 Jul 2026 14:31:14 GMT
+
+https://www.cbr.com/best-western-showdowns-not-doc-holliday-tombstone-list/
+
+As great as Doc Holliday's showdown with Johnny Ringo was, some movies have even better finales than the ending of Tombstone.
+---------
+
+# 4 Time Travel Shows Better Than Doctor Who
+
+TV, Doctor Who, Quantum Leap, Timeless, Travelers, 12 Monkeys
+
+Wed, 22 Jul 2026 14:31:14 GMT
+
+https://www.cbr.com/time-travel-shows-better-than-doctor-who-list/
+
+As fans of Doctor Who face a years-long wait for the adventure to continue, these other time travel series can make the wait more tolerable.
+---------
+
+# Only 4 Shojo Anime Are Objectively Better Than Fruits Basket
+
+Anime, Fruits Basket (2001), Nana, Revolutionary Girl Utena
+
+Wed, 22 Jul 2026 14:15:14 GMT
+
+https://www.cbr.com/shojo-anime-are-objectively-better-than-fruits-basket/
+
+Fruits Basket is a shojo masterpiece, but these four anime surpass it with even greater emotion, character depth, and lasting influence.
+---------
+
+# Kevin Feige Will Finally See an MCU Dream Of His Come True In Spider-Man: Brand New Day
+
+Movies, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man: Brand New Day
+
+Wed, 22 Jul 2026 14:02:38 GMT
+
+https://www.cbr.com/kevin-feige-finally-sees-mcu-dream-come-true-in-spider-man-brand-new-day/
+
+The Marvel boss has dreamt of this moment for ages, and it finally happens in Brand New Day.
+---------
+
+# Power Rangers Unlimited Puts The Team On A Heist
+
+Comics, Power Rangers
+
+Wed, 22 Jul 2026 14:00:14 GMT
+
+https://www.cbr.com/power-rangers-unlimited-3-heist/
+
+This new Power Rangers comic is sure to steal fans' attention.
+---------
+
+# 5 Strongest Weapons in Fantasy Anime
+
+Anime, Bleach, Inuyasha, Black Clover, Frieren: Beyond Journey's End
+
+Wed, 22 Jul 2026 13:15:14 GMT
+
+https://www.cbr.com/official-strongest-weapons-in-fantasy-anime/
+
+Fantasy anime boast plenty of powerful characters, and many of them rely on the use of an overpowered weapon to own the battlefield.
+---------
+
+# Avengers: Doomsday Officially Outsales Deadpool & Wolverine's Record-Breaking Pre-Sale in Just 24 Hours
+
+Movies, Marvel, Marvel Comics, MCU, Avengers: Doomsday, Avengers: Doomsday (2026), Deadpool & Wolverine, Deadpool & Wolverine (2024)
+
+Wed, 22 Jul 2026 13:10:59 GMT
+
+https://www.cbr.com/avengers-doomsday-officially-outsells-deadpool-wolverine-in-just-24-hours/
+
+Avengers: Doomsday just took Deadpool & Wolverine out back and dog-walked it.
+---------
+
+# Apple TV's New Fantasy Movie Combines the Best Parts of 'Harry Potter' and 'Ocean's Eleven'
+
+Movies, Mistborn, Ocean's Eleven, Harry Potter
+
+Wed, 22 Jul 2026 13:00:15 GMT
+
+https://www.cbr.com/apple-tv-mistborn-combines-harry-potter-oceans-eleven/
+
+Fantasy will get the twist it always needed when the highly anticipated movie airs on Apple TV.
+---------
+
+# The Legend Who Helped Inspire the Teenage Mutant Ninja Turtles Is Officially Part of Their Jam-Packed Anniversary Celebration
+
+Books and Comics News, Teenage Mutant Ninja Turtles, TMNT, IDW, comic books
+
+Wed, 22 Jul 2026 14:10:15 GMT
+
+https://collider.com/teenage-mutant-ninja-turtles-300-cover-frank-miller/
+
+Teenage Mutant Ninja Turtles #300 is here, and Frank Miller is part of the anniversary celebration. Read on for more.
+---------
+
+# 36 Years Later, Marvel Officially Reveals How Gambit First Joined the X-Men
+
+Books and Comics News, Gambit, Marvel Comics, X-Men, Marvel
+
+Wed, 22 Jul 2026 14:00:14 GMT
+
+https://collider.com/gambit-wanted-preview-chris-claremont-lost-x-men-story/
+
+Chris Claremont’s Gambit: Wanted reveals a lost chapter from Remy LeBeau’s past and the deadly trial behind his first time joining the X-Men.
+---------
+
+# This 25-Year-Old HBO Miniseries Is Still the Greatest WWII Drama Ever Made
+
+TV Features, Band of Brothers, HBO, Tom Hanks, Steven Spielberg
+
+Wed, 22 Jul 2026 13:53:14 GMT
+
+https://collider.com/hbo-greatest-wwii-miniseries-band-of-brothers/
+
+HBO’s Band of Brothers remains the definitive WWII drama thanks to its historical accuracy, extraordinary ensemble, and groundbreaking battle sequence
+---------
+
+# 'X-Men' Meets 'Alien' in New Official Marvel Release
+
+Books and Comics News, X-Men, Marvel Comics, Sci-Fi, Marvel
+
+Wed, 22 Jul 2026 13:50:15 GMT
+
+https://collider.com/uncanny-x-men-32-preview-new-team-roster-exterminators-alien-invasion/
+
+Marvel expands the X-Men roster in Uncanny X-Men #32 as Rogue’s team unites with more mutant heroes against the invading Exterminators.
+---------
+
+# Doctor Doom Officially Assembles Marvel’s Strangest Team for New 2026 Godzilla Crossover
+
+Books and Comics, Marvel Comics, Godzilla, Doctor Doom, Marvel
+
+Wed, 22 Jul 2026 13:40:14 GMT
+
+https://collider.com/doctor-doom-marvel-team-spider-man-punisher-kang-godzilla-conquers-the-multiverse/
+
+Godzilla Conquers the Multiverse #1 assembles an unlikely team of Marvel heroes and villains under Doctor Doom to stop the King of the Monsters.
+---------
+
+# 7 Years Later, Marvel Officially Brings Back Blade for New Midnight Sons Series
+
+Books and Comics News, Blade, Moon Knight, Marvel Comics, Marvel
+
+Wed, 22 Jul 2026 13:30:14 GMT
+
+https://collider.com/blade-midnight-sons-marvel-return-moon-knight-6-preview/
+
+Marc Spector: Moon Knight #6 puts Blade back at the center of Marvel's supernatural universe as the publisher begins teasing a new Midnight Sons team.
+---------
+
+# Apple TV's MI5-Approved Spy Thriller Returns in Less Than Two Months
+
+TV News, Apple TV, Slow Horses, Thriller, Streaming
+
+Wed, 22 Jul 2026 13:30:14 GMT
+
+https://collider.com/slow-horses-season-6-release-date-apple-tv-september-16-2026/
+
+Apple TV's long-running and MI5-approved spy thriller, Slow Horses, is officially returning sooner than some fans may expect.
+---------
+
+# Harry Potter Officially Sets Theatrical Return With Unseen Content Ahead of HBO Reboot
+
+Movie News, Harry Potter, Harry Potter and the Sorcerer's Stone, HBO Max
+
+Wed, 22 Jul 2026 13:22:44 GMT
+
+https://collider.com/harry-potter-sorcerers-stone-rerelease-unseen-footage-hbo-series/
+
+As Harry Potter and the Sorcerer’s Stone turns 25, WB sets the date for theatrical re-release with new series footage.
+---------
+
+# Marvel Officially Brings Hulk, Punisher, and Spider-Man Together Ahead of Schedule
+
+Books and Comics News, Spider-Man, Spider-Man: Brand New Day, Marvel Comics, The Punisher
+
+Wed, 22 Jul 2026 13:20:14 GMT
+
+https://collider.com/spider-man-long-way-home-issue-2-preview-images-marvel-comics-release/
+
+A new sneak peek at Marvel Comics' Spider-Man: Long Way Home reveals the Punisher is on the run, and the Hulk is in hot pursuit.
+---------
+
+# Marvel Officially Expands Spider-Man’s Family
+
+Books and Comics News, Marvel Comics, Spider-Man, Marvel, Action
+
+Wed, 22 Jul 2026 13:10:14 GMT
+
+https://collider.com/the-amazing-spider-man-volume-7-issue-33-preview-images-marvel-comics/
+
+A new preview of The Amazing Spider-Man #33 sees Peter and Aunt May getting to know a long-lost member of the family. Check it out here!
+---------
+
+# Marvel Studios Officially Confirms MCU Plans Up Until 2042
+
+Movie News, Avengers: Doomsday
+
+Wed, 22 Jul 2026 14:30:32 GMT
+
+https://movieweb.com/marvel-studios-confirms-mcu-plans-2042/
+
+The vast future of the MCU has been planned, according to studio president Kevin Feige.
+---------
+
+# Jennifer Garner's New 8-Part Series Crowned One of Streaming's Biggest Shows
+
+TV News, The Five-Star Weekend, Jennifer Garner, Hot on Streaming, Drama, Peacock
+
+Wed, 22 Jul 2026 14:00:12 GMT
+
+https://movieweb.com/five-star-weekend-jennifer-garner-streaming-hit-peacock-july-2026/
+
+Following its debut on July 9, Jennifer Garner's new five-star series shattered a massive streaming record for Peacock.
+---------
+
+# 20 Must-See Movies Releasing Exclusively in Theaters This Fall
+
+Movie Lists, Digger, The Hunger Games: Sunrise on the Reaping, Resident Evil, Godzilla Minus Zero
+
+Wed, 22 Jul 2026 14:00:12 GMT
+
+https://movieweb.com/movies-theaters-fall-2026/
+
+Fall 2026 has some exciting movies being released in theaters, from comedy to drama to some sequels to popular films.
+---------
+
+# NBC's Complete Fall 2026 Schedule - Every TV Series & When It Releases
+
+TV Lists, Dateline NBC, The Traitors, The Voice, Law and Order
+
+Wed, 22 Jul 2026 13:00:12 GMT
+
+https://movieweb.com/nbc-complete-fall-2026-schedule/
+
+NBC's upcoming fall 2026 schedule has a TV show for every fan, from sitcoms to reality TV and several popular returning long-running dramas.
+---------
+
+# Netflix Reboot of Fantasy Favorite Sees Original Stars Return in New Images
+
+Movie News, 13 Going on 30, Jennifer Garner, Judy Greer
+
+Wed, 22 Jul 2026 12:13:03 GMT
+
+https://movieweb.com/13-going-on-30-reboot-jennifer-garner-judy-greer/
+
+Set photos show Jennifer Garner and Judy Greer on the set of Netflix's '13 Going on 30' reboot, though the streamer won't confirm their roles.
+---------
+
 # Kevin Feige Just Gave Us The Biggest Clue To How Avengers: Secret Wars Ends
 
 Movies, Avengers: Secret Wars, Marvel Cinematic Universe
@@ -5133,367 +5496,4 @@ Mon, 20 Jul 2026 20:30:11 GMT
 https://screenrant.com/descendants-wicked-wonderland-disney-plus-movie/
 
 Disney's latest fantasy movie has quickly taken over Disney+ and with good reason, as it's basically Wicked meets Alice in Wonderland.
----------
-
-# Scrubs Season 2 Confirms Two Major Cast Exits
-
-TV, Scrubs
-
-Mon, 20 Jul 2026 20:16:32 GMT
-
-https://screenrant.com/scrubs-season-2-cast-exits-returns-promoted/
-
-Scrubs returned earlier this year and earned a renewal from ABC, but the medical comedy is undergoing a cast shakeup ahead of its second season.
----------
-
-# Every MCU Character Confirmed To Survive Avengers: Doomsday
-
-Movies, Avengers: Doomsday
-
-Mon, 20 Jul 2026 21:30:15 GMT
-
-https://www.cbr.com/mcu-characters-surviving-avengers-doomsday-list/
-
-Avengers: Doomsday will be a deadly time for many MCU heroes, but we know that these characters will live to fight another day.
----------
-
-# Square Enix Officially Celebrates Final Fantasy 10's 25th Anniversary
-
-Games, Final Fantasy, Square Enix
-
-Mon, 20 Jul 2026 21:20:15 GMT
-
-https://www.cbr.com/final-fantasy-x-25th-anniversary-official-new-release-square-enix/
-
-Square Enix has issued a new release for the 25th anniversary of Final Fantasy 10, making fans hopeful that a remake or new sequel is on the way.
----------
-
-# 10 Long Open World Games That Take Forever to Complete
-
-Games, Gaming, Xenoblade Chronicles, open world, Elden Ring
-
-Mon, 20 Jul 2026 21:15:14 GMT
-
-https://www.cbr.com/open-world-games-that-take-forever-to-complete/
-
-Some of the best Open-World Games are so intricate, it can take months or more to finish them.
----------
-
-# Matt Damon’s 142-Minute Sci-Fi Masterpiece With 91% RT Becomes a Streaming Hit 11 Years Later
-
-Movies, The Martian, Sci-Fi, Prime Video
-
-Mon, 20 Jul 2026 21:10:23 GMT
-
-https://www.cbr.com/the-martian-sci-fi-success-prime-video-july-2026/
-
-Over a decade later, The Odyssey star's sci-fi classic is back on the streaming chart.
----------
-
-# HBO’s Harry Potter Cinematographer Reveals 'Brutal' Conditions Working With the Young Stars
-
-TV, Harry Potter
-
-Mon, 20 Jul 2026 21:01:39 GMT
-
-https://www.cbr.com/hbo-harry-potter-cinematographer-young-stars-schedules/
-
-The series just received the biggest updates yet.
----------
-
-# The 5 Greatest Animated Movies of 2026 (So Far)
-
-Movies, Toy Story 5
-
-Mon, 20 Jul 2026 21:00:14 GMT
-
-https://www.cbr.com/best-animated-movies-2026-so-far-list/
-
-Animation is having a big year in 2026 and there have already been some truly spectacular animated movies for fans to enjoy.
----------
-
-# Pokémon Winds & Waves Is Finally Giving Onix and Houndour New Evolutions
-
-Games, Pokemon, Nintendo, Pokémon
-
-Mon, 20 Jul 2026 20:50:15 GMT
-
-https://www.cbr.com/pokemon-winds-waves-new-evolutions-onix-houndour/
-
-A new Pokémon Winds & Waves leak is claiming that Onix and Houndour are finally receiving new regional evolutions, though the types aren't known.
----------
-
-# One Piece: How Long it Would Take to Watch the Entire Anime Series
-
-Anime, One Piece
-
-Mon, 20 Jul 2026 20:35:15 GMT
-
-https://www.cbr.com/one-piece-how-long-watch-entire-anime-series/
-
-With over 1,100 episodes and counting, binge-watching One Piece is certainly an adventurous and time-consuming challenge.
----------
-
-# Netflix's 5-Season Sci-Fi Masterpiece Officially The Most-Watched Show of the Year
-
-TV, Stranger Things, Netflix, Sci-Fi
-
-Mon, 20 Jul 2026 20:31:10 GMT
-
-https://www.cbr.com/stranger-things-ratings-netflix-2025-2026/
-
-Netflix's sci-fi classic hits No. 2 in 2025-2026.
----------
-
-# Amazon's 4-Season Dieselpunk Show Based on a Philip K. Dick Book Is Dystopian Sci-Fi Perfection
-
-TV, The Man in the High Castle, Sci-Fi, Prime Video
-
-Mon, 20 Jul 2026 20:30:15 GMT
-
-https://www.cbr.com/prime-video-the-man-in-the-high-castle-perfect-dieselpunk-dystopian-sci-fi/
-
-Amazon Prime's Philip K. Dick TV adaptation is perfect dieselpunk for the 21st century.
----------
-
-# Christopher Nolan Officially Solved the Hardest Scene in ‘The Odyssey’
-
-Movie Features, The Odyssey, Christopher Nolan, Matt Damon, Books
-
-Mon, 20 Jul 2026 21:31:14 GMT
-
-https://collider.com/christopher-nolan-the-odyssey-sirens-song-explained/
-
-The Sirens have never worked this well on screen until The Odyssey thanks to Christopher Nolan.
----------
-
-# This 8-Part Masterpiece Is Destined to Become Your Next Sci-Fi Obsession
-
-Books and Comics, Dungeon Crawler Carl, Books, Peacock, Seth MacFarlane
-
-Mon, 20 Jul 2026 21:23:03 GMT
-
-https://collider.com/best-sci-fi-dungeon-crawler-carl-books-masterpiece-matt-dinniman/
-
-Eight novels in, Matt Dinniman's Dungeon Crawler Carl series is one of the biggest and best book series since The Hunger Games.
----------
-
-# Disney's Most Anticipated Princess Sequel Hit With Major Rewrites
-
-Movie News, The Princess Diaries, The Princess Diaries 2: Royal Engagement, The Princess Diaries 3, Anne Hathaway
-
-Mon, 20 Jul 2026 21:15:14 GMT
-
-https://collider.com/princess-diaries-3-anne-hathaway-script-update/
-
-Anne Hathaway reveals The Princess Diaries 3 has restarted its script despite a recent story breakthrough.
----------
-
-# 10 Best Stephen King Psychological Horror Books
-
-Books and Comics, Stephen King, Misery, The Shining, The Long Walk
-
-Mon, 20 Jul 2026 21:08:14 GMT
-
-https://collider.com/best-stephen-king-psychological-horror-books-ranked/
-
-Stephen King has written some incredible psychological horror books over the years, including classics like Misery, The Shining, and The Long Walk.
----------
-
-# ‘God of War’ Officially Brings Thor Back With a Massive New Release
-
-Gaming News, God of War, Ryan Hurst, Deborah Ann Woll
-
-Mon, 20 Jul 2026 20:58:59 GMT
-
-https://collider.com/god-of-war-ragnarok-thor-prime-1-studio-statue/
-
-God of War Ragnarök’s Thor returns as a massive 1/3-scale Prime 1 Studio statue costing up to $2k and expected to ship by early 2027.
----------
-
-# 7 Greatest Fantasy Movie Trilogies of All Time
-
-Movie, Fantasy, The Lord of the Rings, Star Wars, How to Train Your Dragon
-
-Mon, 20 Jul 2026 20:49:14 GMT
-
-https://collider.com/best-fantasy-movie-trilogies-all-time-ranked/
-
-From Peter Jackson's Lord of the Rings to George Lucas' original Star Wars saga, these are the greatest fantasy movie trilogies in cinematic history.
----------
-
-# 3 Stellar Shows to Binge on Netflix This Week (July 20-24)
-
-TV, The Walking Dead: Daryl Dixon, Sullivan's Crossing, The Kominsky Method, Netflix
-
-Mon, 20 Jul 2026 20:47:15 GMT
-
-https://collider.com/netflix-shows-binge-week-july-20-2026/
-
-The Walking Dead: Daryl Dixon, Sullivan's Crossing, and The Komisky Method make up our list of shows to binge the week of July 20th, 2026.
----------
-
-# HBO’s ‘Harry Potter’ Reboot Is Already Breaking Records
-
-TV News, Harry Potter, HBO, HBO Max
-
-Mon, 20 Jul 2026 20:45:14 GMT
-
-https://collider.com/harry-potter-hbo-series-biggest-streaming-budget/
-
-Harry Potter cinematographer Adriano Goldman says HBO’s remake has the largest production budget ever given to a streaming series.
----------
-
-# ‘Game of Thrones’ Officially Expands With a Brutal New Release
-
-Gaming News, Game Of Thrones, George R.R. Martin, A Knight Of The Seven Kingdoms, House of the Dragon
-
-Mon, 20 Jul 2026 20:16:14 GMT
-
-https://collider.com/game-of-thrones-kingsroad-north-bannerman-duel-festival/
-
-The Game of Thrones universe continues to expand, with new gaming experiences set in Westeros, including the upcoming North Bannerman Duel Festival.
----------
-
-# Robert Downey Jr.'s 'Avengers: Doomsday' Doctor Doom Reveal Quickly Divides Marvel Fans
-
-Movie News, Avengers: Doomsday, Robert Downey Jr.
-
-Mon, 20 Jul 2026 21:20:26 GMT
-
-https://movieweb.com/robert-downey-jr-doctor-doom-avengers-doomsday-reaction/
-
-'Avengers: Doomsday' offered audiences the first glimpse of Robert Downey Jr. as Doctor Doom, and fans are mixed.
----------
-
-# 'Avatar Aang: The Last Airbender' Rotten Tomatoes Score Revealed
-
-Movie News, Avatar Aang: The Last Airbender, Avatar: The Last Airbender
-
-Mon, 20 Jul 2026 21:19:50 GMT
-
-https://movieweb.com/avatar-aang-the-last-airbender-rotten-tomatoes-score/
-
-The first reviews are in for the long-awaited animated feature.
----------
-
-# 35 Years Later, Keanu Reeves' Explosive Action Classic Gets a New Release
-
-Movie News, Point Break, Keanu Reeves
-
-Mon, 20 Jul 2026 20:45:04 GMT
-
-https://movieweb.com/point-break-35th-anniversary-release/
-
-'Point Break,' the film that launched Reeves' action-star career, is not to be missed when it returns to the big screen.
----------
-
-# Top Choice for Next James Bond Officially Rules Himself Out of Amazon Reboot Race
-
-Movie News, James Bond
-
-Mon, 20 Jul 2026 20:19:34 GMT
-
-https://movieweb.com/james-bond-harris-dickinson-drops-out/
-
-Harris Dickinson, who was considered a top choice for James Bond, is reportedly out of the running.
----------
-
-# Netflix's Taylor Sheridan Replacement Officially Getting New Release This Fall
-
-TV News, Untamed, Sam Neill, Eric Bana, Netflix
-
-Mon, 20 Jul 2026 20:14:15 GMT
-
-https://movieweb.com/netflix-untamed-dvd-release-eric-bana/
-
-Season 1 of 'Untamed' is set to arrive on DVD in October.
----------
-
-# 5 Perfect Sci-Fi Shows You Can Binge In A Day
-
-Classic TV, Sci-Fi
-
-Mon, 20 Jul 2026 20:15:11 GMT
-
-https://screenrant.com/best-sci-fi-shows-binge-one-day/
-
-Many science fiction shows take multiple seasons to tell their story, but these five series aren't just great shows; they can be binged in a day.
----------
-
-# Prime Video's 3-Part Action Thriller Series With Near-Perfect RT Score Has One Of Its Best Casts
-
-TV, Masked Recs
-
-Mon, 20 Jul 2026 20:14:05 GMT
-
-https://screenrant.com/prime-video-reacher-thriller-series-cast-best/
-
-Prime Video's action series has become a global hit, and a lot of that is due to its talented ensemble, with a perfect cast despite a daunting task.
----------
-
-# Big Brother 28 Week 2 Power Of Veto Ceremony Results (SPOILERS)
-
-Reality TV, Big Brother
-
-Mon, 20 Jul 2026 20:04:18 GMT
-
-https://screenrant.com/big-brother-28-week-2-power-veto-ceremony-results-spoilers/
-
-After winning Head of Household and Power of Veto, Devens' strategic choices in the Big Brother 28 house shape the game with a replacement nominee.
----------
-
-# All 3 Anne Rice's Immortal Universe TV Shows Ranked
-
-Streaming TV, Immortal Universe
-
-Mon, 20 Jul 2026 20:00:11 GMT
-
-https://screenrant.com/anne-rice-immortal-universe-tv-shows-ranked/
-
-AMC's Immortal Universe offers 3 distinct shows based on Anne Rice's books, but only one can truly claim to live up to the source material.
----------
-
-# How CookieRun: Braverse Ran Head-First Into The World Of TCGs (Interview)
-
-Gaming, Cookie Run: Kingdom
-
-Mon, 20 Jul 2026 20:00:11 GMT
-
-https://screenrant.com/cookierun-braverse-interview/
-
-We spoke with Devsisters about how CookieRun: Braverse brings the franchise's beloved cookie characters to the physical TCG world and beyond.
----------
-
-# 5 Incredible Shows To Watch On Prime Video This Week (July 20–24)
-
-Streaming TV, Prime Video, What to Watch on Prime Video
-
-Mon, 20 Jul 2026 19:45:11 GMT
-
-https://screenrant.com/best-prime-video-shows-watch-week-july-20/
-
-These five incredible Prime Video original shows are worth watching for all subscribers, ranging from action thrillers to laugh-out-loud comedies.
----------
-
-# Spider-Man: How Yelena Changes Brand New Day
-
-Movies, Originals
-
-Mon, 20 Jul 2026 19:45:08 GMT
-
-https://screenrant.com/video/spider-man-how-yelena-changes-brand-new-day/
-
-Spider-Man: Brand New Day's Yelena Twist Explained. Kevin Feige may have just confirmed Florence Pugh's Yelena Belova is appearing before Avengers: Doomsday—and all signs point to Spider-Man: Brand New Day.
----------
-
-# Star Wars Is Bringing Back The Acolyte’s Divisive Lore Change
-
-Streaming TV, The Acolyte, Star Wars, Star Wars: Visions
-
-Mon, 20 Jul 2026 19:30:11 GMT
-
-https://screenrant.com/star-wars-acolyte-lightsaber-bleeding-ninth-jedi/
-
-The Acolyte's lightsaber bleeding scene was incredibly divisive, but the upcoming Star Wars show The Ninth Jedi is doubling down on the lore change.
 ---------
