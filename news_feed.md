@@ -1,3 +1,256 @@
+# Doctor Who Meets Severance In Disney+'s 2-Part Sci-Fi Series
+
+Streaming TV, Masked Recs
+
+Wed, 22 Jul 2026 21:45:11 GMT
+
+https://screenrant.com/loki-disney-plus-doctor-who-meets-severance/
+
+Disney+ is home to one of the best sci-fi TV shows of the decade, and it's a perfect combination of the best things about Doctor Who and Severance.
+---------
+
+# How Long Will Christopher Nolan's The Odyssey Play In IMAX 70MM As Tickets Sell Out Up To 7 Weeks
+
+Movies, The Odyssey, Christopher Nolan
+
+Wed, 22 Jul 2026 21:35:00 GMT
+
+https://screenrant.com/how-long-will-christopher-nolans-the-odyssey-play-in-imax-70mm-as-tickets-sell-out-up-to-7-weeks/
+
+Christopher Nolan's The Odyssey may be showing in IMAX 70mm for months, with tickets sold out weeks in advance in certain major cities.
+---------
+
+# Reacher Meets Law & Order In Prime Video's Best Detective Show
+
+TV, Masked Recs
+
+Wed, 22 Jul 2026 21:31:11 GMT
+
+https://screenrant.com/bosch-reacher-meets-law-order-prime-video/
+
+Prime Video's detective drama masterfully blended the grizzled antihero character study of Reacher with the police procedural format of Law & Order.
+---------
+
+# It's The End Of An Era For The MCU After 37 Movies
+
+Movies, Marvel Cinematic Universe, Avengers: Doomsday, Avengers: Secret Wars
+
+Wed, 22 Jul 2026 21:15:11 GMT
+
+https://screenrant.com/marvel-reboot-after-secret-wars-new-universe/
+
+The Marvel Cinematic Universe has been telling one connected story for 37 movies, but Kevin Feige just hinted that a new universe is coming.
+---------
+
+# Apple TV's New 10-Part Dystopian Sci-Fi Adventure Succeeds In Its Hardest Task
+
+Streaming TV, Masked Recs
+
+Wed, 22 Jul 2026 21:04:59 GMT
+
+https://screenrant.com/apple-tv-silo-season-3-juliette-memory-loss-hardest-task/
+
+Apple TV's new 10-episode dystopian sci-fi adventure had a hard task, and with multiple entries already released, it is clear that it has succeeded.
+---------
+
+# Paramount+ Finds Yellowstone Replacement With Scotland-Set Kenneth Branagh Series
+
+TV, Kenneth Branagh
+
+Wed, 22 Jul 2026 21:02:28 GMT
+
+https://screenrant.com/laird-show-paramount-plus-yellowstone-replacement-series-kenneth-branagh/
+
+Paramount+ has relied on Taylor Sheridan to create several shows, but now the streamer is working on a Scotland-set series similar to Yellowstone.
+---------
+
+# Brandon Sanderson's Stormlight Archive TV Series Already Has An Advantage Over Its Fantasy Rival
+
+TV, Masked Recs
+
+Wed, 22 Jul 2026 21:02:11 GMT
+
+https://screenrant.com/stormlight-archive-tv-show-brandon-sanderson-longer-season/
+
+Apple TV is set to adapt author Brandon Sanderson's Stormlight Archive as a fantasy series, and the show has one thing its biggest rival is missing.
+---------
+
+# Star Trek Confirms the Greatest Threat to the Federation
+
+Comics, Star Trek
+
+Wed, 22 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/star-trek-greatest-threat-federation/
+
+An old foe.
+---------
+
+# X-Men '97 Season 2: Over 20 Easter Eggs, References, & Marvel Cameos In Episode 6
+
+Superheroes, X-Men '97, Marvel Cinematic Universe
+
+Wed, 22 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/x-men-97-season-2-episode-6-easter-eggs-references-cameos/
+
+X-Men '97 season 2, episode 6 is full of exciting Easter eggs, references to the comics, and some fun cameos from the greater Marvel Universe.
+---------
+
+# 5 Square Enix Games That Are Completely Unplayable In 2026
+
+Gaming, Square Enix, Final Fantasy
+
+Wed, 22 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/5-square-enix-games-unplayable-2026/
+
+Not all games were built to last forever, apparently. These five Square Enix games are completely unplayable in 2026.
+---------
+
+# 5 Forgotten War Movies That Are Amazing From Start to Finish
+
+Movies, War
+
+Wed, 22 Jul 2026 21:30:14 GMT
+
+https://www.cbr.com/perfect-war-movies-no-one-remembers-list/
+
+Some of the greatest war movies in cinema history have been forgotten
+---------
+
+# Nintendo Confirms Zelda: Ocarina of Time for Switch 2 Isn't a 1:1 Remake
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Wed, 22 Jul 2026 21:15:15 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-switch-2-remake-slogan-analysis/
+
+A new ad for the Switch 2’s upcoming The Legend of Zelda: Ocarina of Time suggests this game is way bigger than just a remake with updated graphics.
+---------
+
+# Fox's 8-Season Medical Masterpiece Returns as a Streaming Sensation 14 Years Later
+
+TV, House
+
+Wed, 22 Jul 2026 21:00:15 GMT
+
+https://www.cbr.com/house-fox-medical-pvod-success-july-2026/
+
+House tops this week's streaming charts in the Apple TV store
+---------
+
+# The Flash Franchise Needs a Fresh Direction After Ongoing Struggles
+
+Comics, The Flash, comics, The CW
+
+Wed, 22 Jul 2026 21:00:15 GMT
+
+https://www.cbr.com/the-flash-franchise-needs-new-direction/
+
+The Scarlet Speedster is one of DC's greatest heroes with a legacy that endures, and the time is right to revisit The Flash with John Wesley Shipp.
+---------
+
+# 5 Genres We Need Christopher Nolan to Tackle After The Odyssey
+
+Movies, Christopher Nolan, The Odyssey, Horror
+
+Wed, 22 Jul 2026 21:00:15 GMT
+
+https://www.cbr.com/christopher-nolan-horror-mystery-genre-the-odyssey/
+
+Christopher Nolan has mastered sci-fi adventures, historical epics, and action-thrillers. We'd love to see him tackle these genres next.
+---------
+
+# Robert Englund's Gory New Horror Remake Debuts at 100% on Rotten Tomatoes
+
+Movies, Pinocchio: Unstrung, Rotten Tomatoes
+
+Wed, 22 Jul 2026 20:50:30 GMT
+
+https://www.cbr.com/pinocchio-unstrung-rotten-tomatoes-score/
+
+Horror icon Robert Englund's ultra-violent new movie has earned the rare, coveted score of 100% on Rotten Tomatoes.
+---------
+
+# 6 Best Blockbuster Movies Released Since 2010
+
+Movie, Dune: Part Two, Sinners, Inception, Blockbuster
+
+Wed, 22 Jul 2026 21:29:14 GMT
+
+https://collider.com/best-blockbuster-movies-since-2010-ranked/
+
+Dune: Part Two, Inception, and Avengers: Endgame are all among the best blockbuster movies released since the year 2010.
+---------
+
+# 10 Genuinely Perfect Animated Movies
+
+Movie, Animation, The Iron Giant, Up, The Prince of Egypt
+
+Wed, 22 Jul 2026 20:54:14 GMT
+
+https://collider.com/perfect-animated-movies/
+
+The Iron Giant, The Incredibles, and The Prince of Egypt are all among the best, truly perfect animated movies ever made.
+---------
+
+# ’Loki’s Tom Hiddleston Launches Ambitious New Historical Epic This Week on Disney+
+
+TV News, Pompeii: Out of Time with Tom Hiddleston, Tom Hiddleston, Loki, Avengers: Doomsday
+
+Wed, 22 Jul 2026 20:50:49 GMT
+
+https://collider.com/pompeii-out-of-time-with-tom-hiddleston-release-date-how-to-watch/
+
+Loki star Tom Hiddleston stars in and produces the new historical epic, Pompeii: Out of Time, which begins streaming this week.
+---------
+
+# 'Stuart Fails to Save the Universe' Rotten Tomatoes Score Officially Revealed
+
+TV News, Stuart Fails to Save the Universe, Rotten Tomatoes
+
+Wed, 22 Jul 2026 21:51:57 GMT
+
+https://movieweb.com/stuart-fails-to-save-the-universe-rotten-tomatoes/
+
+Kevin Sussman's new spin-off, 'Stuart Fails to Save the Universe,' officially earned its initial critics' score on Rotten Tomatoes.
+---------
+
+# First Trailer for Perfect New Supernatural Thriller Is a Never-Ending Nightmare
+
+Movie News, It Ends
+
+Wed, 22 Jul 2026 21:27:09 GMT
+
+https://movieweb.com/it-ends-official-trailer/
+
+'It Ends,' the highly anticipated liminal horror film, unveils its official trailer.
+---------
+
+# Taylor Sheridan Officially Proves He Doesn't Need 'Yellowstone'
+
+Features, Taylor Sheridan, Yellowstone
+
+Wed, 22 Jul 2026 21:00:12 GMT
+
+https://movieweb.com/taylor-sheridan-yellowstone-spin-off-viewership/
+
+Taylor Sheridan is known for creating the neo-Western TV series 'Yellowstone,' which starred Kevin Costner, Cole Hauser, and Kelly Reilly.
+---------
+
+# 36 Years Later, Tom Cruise's High-Octane Action Sequel Is Finally Moving Forward
+
+Movie News, Tom Cruise, Days of Thunder, Jerry Bruckheimer, Tony Scott
+
+Wed, 22 Jul 2026 20:39:26 GMT
+
+https://movieweb.com/tom-cruise-days-of-thunder-2-jonathan-levine-director/
+
+'Warm Bodies' director takes on Jerry Bruckheimer-produced legacy sequel to 'Days of Thunder.'
+---------
+
 # It’s Official, Taylor Sheridan Has Won Streaming
 
 Streaming TV, Taylor Sheridan
@@ -5243,257 +5496,4 @@ Tue, 21 Jul 2026 13:00:15 GMT
 https://www.cbr.com/fantasy-movies-with-the-best-lore-list/
 
 Lore is a key component to understanding and being able to enjoy fantasy movies, but these five masterful films do it better than any other.
----------
-
-# Jessica Chastain's New Maternal Nightmare Is Officially Here in Horrifying First Trailer
-
-Movie News, Other Mommy, Jessica Chastain, James Wan, Rob Savage
-
-Tue, 21 Jul 2026 13:00:55 GMT
-
-https://collider.com/other-mommy-trailer-horror-jessica-chastain-jay-duplass/
-
-The first trailer for Rob Savage's new horror movie Other Mommy casts Jessica Chastain as a maternal monster destroying a family's life.
----------
-
-# You Can Ride a Sandworm With This Incredible New 'Dune' Skate Deck [Exclusive]
-
-Movie News, Dune, Merchandise, Science Fiction, Dune: Part Three
-
-Tue, 21 Jul 2026 13:00:15 GMT
-
-https://collider.com/dune-sandworm-skate-deck/
-
-Collider Has an exclusive look at Dark Horse Direct's incredible new Dune-inspired sandworm skate deck. Read on for more.
----------
-
-# David Boreanaz's Reboot of a Classic NBC Detective Series Gets Official Episode Count
-
-TV News, The Rockford Files, David Boreanaz, NBC, Crime
-
-Tue, 21 Jul 2026 12:30:14 GMT
-
-https://collider.com/the-rockford-files-david-boreanaz-reboot-detective-series-season-1-update/
-
-David Boreanaz returns to TV as detective Jim Rockford in NBC's reboot of The Rockford Files. Here's how many episodes are in Season 1.
----------
-
-# 10 Dystopian Movies That Are Perfect From the First Scene to the Last
-
-Movie, Blade Runner, Children of Men, WALL-E, RoboCop
-
-Tue, 21 Jul 2026 12:27:14 GMT
-
-https://collider.com/dystopian-movies-perfect-first-scene-to-last/
-
-From Metropolis to Children of Men and Wall-E, the best dystopian movies might feature imperfect futures, but they are certainly perfect throughout.
----------
-
-# The 25 Best Sci-Fi Movies of the 1990s, Ranked
-
-TV, Sci-Fi, The Matrix, Terminator 2: Judgment Day, Jurassic Park
-
-Tue, 21 Jul 2026 12:14:14 GMT
-
-https://collider.com/best-90s-sci-fi-movies-ranked/
-
-We run down the best sci-fi movies of the '90s, an era that saw a boon of technology and gave birth to The Matrix, The Fifth Element, and much more.
----------
-
-# 'Spider-Man's Sadie Sink Finally Confirms 3 Things About Her Mystery Role
-
-Movie News, Spider-Man: Brand New Day, Sadie Sink
-
-Tue, 21 Jul 2026 14:11:10 GMT
-
-https://movieweb.com/sadie-sink-spider-man-mystery-role-theories/
-
-Sadie Sink has confirmed three things about her 'Spider-Man: Brand New Day' role, and pokes fun at the theories while we await the real answer.
----------
-
-# ABC's Cop Thriller Continues To Be One of the Biggest Network Shows of the Modern Era
-
-TV News, The Rookie
-
-Tue, 21 Jul 2026 14:06:44 GMT
-
-https://movieweb.com/abc-the-rookie-top-network-tv-show-2025-2026/
-
-A fan-favorite police procedural is one of the most-watched network TV shows of 2026.
----------
-
-# 12 Classic Sci-Fi Shows Where Every Episode is a Masterpiece
-
-TV Lists, Sci-Fi, The Outer Limits, Star Trek, Babylon 5
-
-Tue, 21 Jul 2026 14:00:12 GMT
-
-https://movieweb.com/classic-sci-fi-shows-masterpieces/
-
-These classic sci-fi shows from the past few decades don't have any poor episodes, and each one is impressive.
----------
-
-# 30 Years Later, Sequel to Fantasy Family Favorite Still "Possible," Says OG Star
-
-Movie News, Matilda, Mara Wilson, Fantasy, Family
-
-Tue, 21 Jul 2026 13:56:41 GMT
-
-https://movieweb.com/matila-sequel-possible-mara-wilson/
-
-The former child star addresses the chances of a sequel to one of the most cherished films of the nineties
----------
-
-# 'Supernatural' Confirms That Two New Spin-Offs Are Officially Arriving This Fall
-
-TV News, Supernatural
-
-Tue, 21 Jul 2026 13:40:27 GMT
-
-https://movieweb.com/supernatural-solo-spin-off-comic-series/
-
-'Supernatural' fans are really in for a treat this coming Halloween.
----------
-
-# The Most Confusing Sci-Fi Movie Ending Was Explained Only Once by Its Director
-
-Features, 2001: A Space Odyssey, Stanley Kubrick, Sci-Fi, Quote
-
-Tue, 21 Jul 2026 13:01:57 GMT
-
-https://movieweb.com/2001-a-space-odyssey-stanley-kubrick-ending-explanation/
-
-This popular sci-fi movie has a confusing ending that movie fans are still talking about, and the director explained it once.
----------
-
-# 'Reacher' Star Alan Ritchson's 94-Minute Action Movie Shoots up Streaming Charts
-
-Movie News, Reacher, Alan Ritchson, Playdate, Hot on Streaming, Action
-
-Tue, 21 Jul 2026 13:01:12 GMT
-
-https://movieweb.com/alan-ritchson-playdate-streaming-hit-july-2026/
-
-Less than a year after its premiere, the film has found itself among the most popular movies on streaming.
----------
-
-# 'Dutton Ranch' Star Felt "Misled" by Role in Taylor Sheridan's 'Yellowstone' Sequel
-
-TV News, Dutton Ranch, Yellowstone, Ed Harris
-
-Tue, 21 Jul 2026 12:44:09 GMT
-
-https://movieweb.com/dutton-ranch-ed-harris-misled-underused-role/
-
-Ed Harris says he was "misled" about the size of his 'Dutton Ranch' role and told his team to get him out midway through Season 1.
----------
-
-# The Shining Ending Explained: Why Jack Is In The Photo
-
-Movies, The Shining
-
-Tue, 21 Jul 2026 12:00:12 GMT
-
-https://screenrant.com/shining-movie-ending-meaning-photo-book-explained/
-
-One of the many mysteries of Stanley Kubrick's The Shining is why Jack appears in the photo at the end, and it actually has a semi-simple explanation.
----------
-
-# Fallout 5 Official Gameplay Teaser Is Exactly What We Hoped For
-
-Gaming, Fallout, Fallout 5
-
-Tue, 21 Jul 2026 12:00:11 GMT
-
-https://screenrant.com/fallout-5-official-gameplay-teaser-todd-howard/
-
-Fallout 5 might be a long way away, but the latest teaser is certainly enough to get the beleaguered fans excited.
----------
-
-# 12 Best American Crime Shows Of All Time
-
-Classic TV, Crime
-
-Tue, 21 Jul 2026 12:00:11 GMT
-
-https://screenrant.com/best-american-crime-gangster-shows/
-
-From The Sopranos to The Wire to Breaking Bad to True Detective, the lion's share of iconic American TV shows belong to the crime genre.
----------
-
-# The Witcher 3: Songs Of The Past Official Teaser Unveiled
-
-Gaming, The Witcher 3: Wild Hunt, The Witcher, PC
-
-Tue, 21 Jul 2026 11:51:04 GMT
-
-https://screenrant.com/witcher-3-songs-of-past-official-first-look-teaser/
-
-The Witcher 3's long-awaited DLC, Songs of the Past, just got an official new update, with a major new teaser fans won't want to miss.
----------
-
-# Steam Giving Away Over 40 Free Downloads In Massive Limited-Time Even
-
-Gaming, Steam, Valve
-
-Tue, 21 Jul 2026 11:30:11 GMT
-
-https://screenrant.com/steam-train-fest-free-demos-limited-time-july-2026/
-
-Steam is having yet another one of its exciting events, and there are plenty of free downloads for players to try out as a result.
----------
-
-# It's Confirmed: Constantine Is Finally Returning
-
-Gaming, Constantine, John Constantine, PC, DC
-
-Tue, 21 Jul 2026 11:21:01 GMT
-
-https://screenrant.com/constantine-official-return-dcko/
-
-Constantine is finally making a triumphant return to form in a brand-new release scheduled for next year, mark your calendars now.
----------
-
-# Fourth Wing: Rise of the Wingleader Begins An All-New Saga
-
-Gaming, Fourth Wing (2023)
-
-Tue, 21 Jul 2026 11:00:11 GMT
-
-https://screenrant.com/fourth-wing-rise-of-the-wingleader-new-game/
-
-Fourth Wing has been one of the more successful new fantasy entries of recent years, and it's back in a whole new medium.
----------
-
-# 7 Video Game Remakes That Are Better Than The Original
-
-Gaming, Triple-A Games, Resident Evil
-
-Tue, 21 Jul 2026 10:41:39 GMT
-
-https://screenrant.com/video-game-remakes-better-than-original/
-
-All video game remakes should strive to be as faithful as possible to the original they're inspired by, but only so many have been better than them.
----------
-
-# Star Wars' Live-Action Darth Revan Casting Splits Gamers
-
-Gaming, Star Wars, Star Wars: Knights of the Old Republic
-
-Tue, 21 Jul 2026 10:34:50 GMT
-
-https://screenrant.com/star-wars-darth-revan-unmasked-casting-keanu-reeves/
-
-Darth Revan is one of the coolest characters in the Star Wars canon, but fans can't decide who they want to play him.
----------
-
-# Zelda: Ocarina Of Time Remake Demo Offers You 5 Hours Of Gameplay
-
-Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
-
-Tue, 21 Jul 2026 10:24:43 GMT
-
-https://screenrant.com/zelda-ocarina-of-time-remake-5-hour-demo/
-
-Experience a 5-hour playable demo of the fan-made The Legend of Zelda: Ocarina of Time Remake, created over 10 years before Nintendo's official remake
 ---------
