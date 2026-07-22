@@ -1,3 +1,355 @@
+# Millie Bobby Brown Pays Tribute To Late Godzilla Vs. Kong Co-Star Kaylee Hottle
+
+Movies, Millie Bobby Brown, Kaylee Hottle, Godzilla vs. Kong
+
+Wed, 22 Jul 2026 01:35:17 GMT
+
+https://screenrant.com/kaylee-hottle-millie-bobby-brown-tribute/
+
+Following the death of actor Kaylee Hottle at the age of 18, Millie Bobby Brown has posted a touching message about her Godzilla vs. Kong co-star.
+---------
+
+# What Every Cobra Kai Cast Member Has Done Since The Netflix Series Ended
+
+Streaming TV, Cobra Kai
+
+Wed, 22 Jul 2026 01:30:11 GMT
+
+https://screenrant.com/cobra-kai-cast-where-are-they-now/
+
+Cobra Kai is one of the most successful Netflix shows with a huge cast: here is what each of the main actors has done since the show's conclusion.
+---------
+
+# Every Marvel Movie & Show You Need To Watch Before Avengers: Doomsday
+
+Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Wed, 22 Jul 2026 01:00:10 GMT
+
+https://screenrant.com/avengers-doomsday-marvel-movies-shows-watch-before/
+
+After Avengers: Doomsday's trailer, these are all the Marvel movies and TV shows needed to watch, or rewatch, to get ready for the MCU event.
+---------
+
+# Halo: Reach Remake Leaves Gamers Seriously Excited
+
+Gaming, Halo: Reach, Triple-A Games, PC
+
+Wed, 22 Jul 2026 01:00:11 GMT
+
+https://screenrant.com/halo-reach-remake-gamers-react/
+
+With the release of Campaign Evolved showing what a Halo remake is capable of, fans are unanimously hoping for a return to Halo: Reach once more.
+---------
+
+# 26 Years Later, Gil Grissom’s Best Line Is Still The Greatest Quote In CSI History
+
+TV, CSI, CSI: Crime Scene Investigation
+
+Wed, 22 Jul 2026 00:30:11 GMT
+
+https://screenrant.com/csi-best-quote-gil-grissom-lies/
+
+Gil Grissom is known for his brilliant one-liners, but he never topped this quote from the very first season of CSI: Crime Scene Investigation.
+---------
+
+# Felicia Day's The Guild Is Back In A Whole New Format
+
+Classic TV, The Guild
+
+Wed, 22 Jul 2026 00:15:11 GMT
+
+https://screenrant.com/felicia-day-the-guild-tv-show-movie-20th-anniversary/
+
+With the 20th anniversary coming upon us next year, Felicia Day is bringing back her hit 2007 to 2013 web series The Guild in a whole new format.
+---------
+
+# One Piece Just Teased Zoro's Next Major Power Up, And It's Massive
+
+Anime, One Piece
+
+Wed, 22 Jul 2026 00:00:11 GMT
+
+https://screenrant.com/one-piece-zoro-supreme-king-haki-massive-powerup/
+
+Zoro's about to become an even bigger monster.
+---------
+
+# Steve Rogers Is Coming Back In Avengers: Doomsday (But I Know There’s A Catch)
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe, Captain America
+
+Wed, 22 Jul 2026 00:00:11 GMT
+
+https://screenrant.com/steve-rogers-back-in-avengers-doomsday-twist-theory-mcu/
+
+As exciting as it is to see Chris Evans return in Avengers: Doomsday, I have doubts that he's playing the same Steve Rogers who retired in Endgame.
+---------
+
+# Netflix's 'Pirates Of The Caribbean Meets Harry Potter' Series Makes Lord Of The Rings Look Small
+
+Streaming TV, Masked Recs
+
+Wed, 22 Jul 2026 00:00:11 GMT
+
+https://screenrant.com/one-piece-live-action-pirates-caribbean-meets-harry-potter/
+
+One epic Netflix saga blends swashbuckling action with whimsical magic, and manages to make Middle-earth feel claustrophobic in the process.
+---------
+
+# 10 Best Horror Franchises That Desperately Need The Resident Evil Treatment
+
+Gaming, Resident Evil, Triple-A Games, PC
+
+Wed, 22 Jul 2026 00:00:11 GMT
+
+https://screenrant.com/horror-game-remakes-resident-evil-wishlist/
+
+Resident Evil fans have been absolutely blessed with the revival of the franchise, setting the stage for even more horror franchises to shine next.
+---------
+
+# 10 Classic NES Games That Are 10/10 Masterpieces
+
+Games, Nintendo, Video Games
+
+Wed, 22 Jul 2026 01:45:15 GMT
+
+https://www.cbr.com/greatest-nes-game-masterpieces/
+
+Classics like Final Fantasy and Kirby's Adventure are among the best NES games ever made.
+---------
+
+# Rick and Morty's New Spinoff Matches Season 9's Rare Rotten Tomatoes Score
+
+TV, President Curtis, Rick and Morty
+
+Wed, 22 Jul 2026 01:40:21 GMT
+
+https://www.cbr.com/president-curtis-rotten-tomatoes-score/
+
+Rick and Morty gets a rare Rotten Tomatoes score back to back with its latest season along with its new spinoff series.
+---------
+
+# 10 Greatest Anime Masterpieces of All Time, Officially Ranked
+
+Anime
+
+Wed, 22 Jul 2026 01:30:15 GMT
+
+https://www.cbr.com/best-anime-masterpieces-all-time-official-ranked-list/
+
+Anime like Fullmetal Alchemist: Brotherhood and Monster are the gold standard for the medium.
+---------
+
+# 5 Near-Perfect Psychological Thriller Anime Better Than Tokyo Ghoul
+
+Anime, Tokyo Ghoul, Death Note, Neon Genesis Evangelion
+
+Wed, 22 Jul 2026 01:25:15 GMT
+
+https://www.cbr.com/near-perfect-psychological-thriller-anime-better-than-tokyo-ghoul/
+
+While Tokyo Ghoul declined after its first season, these psychological anime never lost sight of their stories.
+---------
+
+# Neon's 95-Minute Horror Video Game Adaptation Is Officially a Streaming Hit After Near-Perfect Scores
+
+Movies, Exit 8
+
+Wed, 22 Jul 2026 01:00:15 GMT
+
+https://www.cbr.com/exit-8-horror-shudder-amc-plus-streaming-success-july-2026/
+
+Horror fans are sleeping on the film that holds the record as the highest-rated video game movie on Rotten Tomatoes.
+---------
+
+# 10 Best Action Games of the Last 10 Years, Ranked
+
+Games, Video Games, Teenage Mutant Ninja Turtles, Devil May Cry
+
+Wed, 22 Jul 2026 00:45:15 GMT
+
+https://www.cbr.com/best-action-games-last-10-years-ranked/
+
+Action games are the dominant genre in gaming, and these five games are the best of the last 10 years.
+---------
+
+# The Harry Potter Reboot Is Officially Abandoning a 28-Year-Old HBO Rule
+
+TV, Harry Potter, Fantasy, HBO Max
+
+Wed, 22 Jul 2026 00:30:15 GMT
+
+https://www.cbr.com/hbo-harry-potter-release-date-change-sunday-tradition/
+
+Harry Potter may be too big to fail, but the reboot is still playing fast and loose with a tried-and-true HBO method.
+---------
+
+# Alvin and the Chipmunks is the Perfect Live-Action/Animation Hybrid
+
+Movies, Sonic the Hedgehog
+
+Wed, 22 Jul 2026 00:30:15 GMT
+
+https://www.cbr.com/alvin-and-the-chipmunks-perfect-live-action-animation-hybrid/
+
+Sonic the Hedgehog represents the pinnacle of live-action/animated films, but another movie franchise was even better.
+---------
+
+# Transformers Gives Megatron and Grimlock Brutal New 40th Anniversary Designs
+
+Anime, Transformers, The Transformers: The Movie, merchandise, toys, action figures
+
+Wed, 22 Jul 2026 00:20:15 GMT
+
+https://www.cbr.com/transformers-studio-series-grimlock-megatron-battle-damage/
+
+The leader of the Dinobots and the leader of the Decepticons take heavy damage in the newest convention-exclusive Transformers action figures.
+---------
+
+# 10 Anime Tournament Arcs That Are 10/10, No Notes
+
+Anime, Dragon Ball, My Hero Academia, Naruto
+
+Wed, 22 Jul 2026 00:15:14 GMT
+
+https://www.cbr.com/best-anime-tournament-arcs-flawless-start-to-finish/
+
+Tournament arcs are one of the most classic forms of anime storytelling, and the best among them are flawless from start to finish.
+---------
+
+# FX’s ‘Far Cry’ Series Is Already Making a Confusing Creative Choice Ahead of Release
+
+TV Features, Far Cry, FX, The Last of Us, Fallout
+
+Wed, 22 Jul 2026 01:42:15 GMT
+
+https://collider.com/far-cry-anthology-fx-title-change-opinion/
+
+FX is working on its own video game adaptation with Far Cry, though a major change could alienate fans and potential viewers.
+---------
+
+# ABC’s ‘The Rookie’ Confirms 2027 Return With New Filming Update
+
+TV News, ABC, The Rookie, Nathan Fillion, Karen Fukuhara
+
+Wed, 22 Jul 2026 01:30:15 GMT
+
+https://collider.com/abc-the-rookie-filming-start-july-2026/
+
+ABC's The Rookie Season 9 officially begins production sooner than fans may be expecting ahead of its 2027 return.
+---------
+
+# ABC's 'Scrubs' Reboot Officially Begins a New Era With Major Season 2 Update
+
+TV News, Scrubs, Comedy, ABC, Zach Braff
+
+Wed, 22 Jul 2026 01:00:15 GMT
+
+https://collider.com/scrubs-season-2-cast-ava-bunn-series-regular/
+
+ABC's Scrubs reboot is officially returning for Season 2, and the medical sitcom is already making a major change to the cast.
+---------
+
+# 10 Best Film Noir Movies of the '80s, Ranked
+
+Movie, Noir, 1980s, Streets of Fire, Body Heat
+
+Wed, 22 Jul 2026 00:55:15 GMT
+
+https://collider.com/best-film-noir-masterpieces-1980s-ranked/
+
+Streets of Fire, Blood Simple, Body Heat, Blue Velvet, Blade Runner, and more make up our list of the best film noir movies of the 1980s.
+---------
+
+# 10 Most Influential Video Games of the 21st Century
+
+Gaming, Video Game, Batman: Arkham City, Grand Theft Auto V, Fortnite
+
+Wed, 22 Jul 2026 00:51:14 GMT
+
+https://collider.com/most-influential-video-games-21st-century-ranked/
+
+Batman: Arkham City, Grand Theft Auto V, and Minecraft are all among the most influential and consequential video games released in the 21st century.
+---------
+
+# 6 Movies That Are Unironically Better Than 'The Godfather'
+
+Movie, The Godfather, Parasite, 12 Angry Men, High And Low
+
+Wed, 22 Jul 2026 00:32:15 GMT
+
+https://collider.com/movies-unironically-better-than-the-godfather/
+
+The Godfather is often considered the absolute height of cinema, yet films like The Shawshank Redemption and Parasite are unironically better.
+---------
+
+# HBO Max's Newest Sci-Fi Spin-Off Officially Arrives This Week
+
+TV News, The Big Bang Theory, HBO Max, Sci-Fi, Stuart Fails to Save the Universe
+
+Wed, 22 Jul 2026 00:30:14 GMT
+
+https://collider.com/big-bang-theory-sci-fi-spin-off-stuart-fails-to-save-the-universe-release-date-hbo-max-july-2026/
+
+Seven years after The Big Bang Theory ended, the franchise expands with a new sci-fi spin-off this week. Get all the details here.
+---------
+
+# ‘Rogue One’ Meets ‘Cyberpunk 2077’ in Disney's 133-Minute Sci-Fi Epic That’s Dominating Netflix
+
+Movie News, Sci-Fi, The Creator, Netflix, Rogue One: A Star Wars Story
+
+Wed, 22 Jul 2026 00:00:14 GMT
+
+https://collider.com/the-creator-rogue-one-replacement-streaming-success-netflix-july-2026/
+
+A visually stunning sci-fi epic that struggled in theaters is finding a much bigger audience after its recent Netflix debut. Read on for more details.
+---------
+
+# R-Rated Batman Movie Officially Confirms 2026 Release Date in New Trailer
+
+Movie News, Batman: Knightfall Part 1: Knightfall
+
+Wed, 22 Jul 2026 00:28:15 GMT
+
+https://movieweb.com/batman-knightfall-part-1-trailer-release-date/
+
+'Batman: Knightfall' will debut at San Diego Comic-Con, followed by a digital release on August 25, 2026.
+---------
+
+# Next 'Lord of the Rings' Installment Officially Reveals Gandalf’s Return
+
+TV News, The Lord of the Rings: The Rings of Power, Prime Video
+
+Wed, 22 Jul 2026 00:09:01 GMT
+
+https://movieweb.com/rings-of-power-season-3-gandalf-new-image/
+
+One of the most popular characters in 'The Lord of the Rings,' Gandalf, is officially back on the small screen.
+---------
+
+# Sydney Sweeney's R-Rated 103-Minute Smash Hit Debuts All-New Release
+
+Movie News, Anyone But You, Sydney Sweeney
+
+Wed, 22 Jul 2026 00:06:53 GMT
+
+https://movieweb.com/sydney-sweeney-anyone-but-you-4k-upgrade/
+
+Sweeney's 'Anyone But You' arrives today on 4K Ultra HD Blu-ray, with an all-new commentary track.
+---------
+
+# 10 TV Procedural Crime Thrillers Better Than 'NCIS'
+
+TV Lists, NCIS
+
+Wed, 22 Jul 2026 00:00:12 GMT
+
+https://movieweb.com/procedural-crime-thrillers-better-than-ncis/
+
+'NCIS,' starring Mark Harmon as Gibbs, is one of the longest-running procedural TV shows, but there are better series
+---------
+
 # Jensen Ackles' Tracker Season 4 Return Is More Important Than Ever
 
 Network TV, Tracker
@@ -5144,356 +5496,4 @@ Mon, 20 Jul 2026 15:33:55 GMT
 https://www.cbr.com/video/sadie-sink-reveals-her-spider-man-origin-story/
 
 Spider-Man: Brand New Day actor Sadie Sink opens up about joining the Marvel Cinematic Universe, her first Spider-Man movie experience, and the online speculation surrounding her role.
----------
-
-# Hello Kitty, Cinnamoroll & More Are Finally Coming to Disney+ on August 4
-
-Anime, Hello Kitty, Disney+, Cocomelon, sanrio
-
-Mon, 20 Jul 2026 15:32:48 GMT
-
-https://www.cbr.com/cocomelon-playdates-with-sanrio-friends-disney-release-date/
-
-Hello Kitty and her fellow Sanrio mascot characters are officially making their way to Disney+ in one of the most unexpected crossover cartoons.
----------
-
-# Vin Diesel's $7 Billion Action Franchise Is Now the #1 Biggest Series on Streaming
-
-Movie News, Fast and Furious, Vin Diesel, HBO Max, Fast & Furious
-
-Mon, 20 Jul 2026 16:46:14 GMT
-
-https://collider.com/vin-diesel-fast-and-furious-franchise-streaming-success-hbo-max-july-2026/
-
-The adrenaline-fueled Fast and Furious franchise, starring Vin Diesel and Jason Statham, is enchanting global audiences on streaming.
----------
-
-# Netflix's Iconic '80s Sitcom Reboot Gets Official First Look
-
-TV News, a different world, Netflix, Sitcom, Maleah Joi Moon
-
-Mon, 20 Jul 2026 16:20:34 GMT
-
-https://collider.com/netflix-a-different-world-reboot-first-look-release-date/
-
-See the first images from Netflix’s A Different World revival, introducing Hillman’s new class before the 10-episode series premieres this fall.
----------
-
-# ‘Riverdale’ Meets ‘The Walking Dead’ in Disney+’s New Archie Series
-
-TV News, Archie Comics, Roberto Aguirre-Sacasa, Greg Berlanti, Disney+
-
-Mon, 20 Jul 2026 16:20:32 GMT
-
-https://collider.com/riverdale-afterlife-with-archie-disney-plus-series-halloween-2027/
-
-Afterlife With Archie is becoming a live-action Disney+ series from Riverdale's Roberto Aguirre-Sacasa and Greg Berlanti, debuting Halloween 2027.
----------
-
-# Forget Indiana Jones, Tom Hanks' Globe-Trotting Adventure Is Winning Over Global Audiences
-
-Movie News, Tom Hanks, The Da Vinci Code, Ron Howard, HBO Max
-
-Mon, 20 Jul 2026 16:16:14 GMT
-
-https://collider.com/tom-hanks-the-da-vinci-code-streaming-success-hbo-max-july-2026/
-
-The Da Vinci Code, starring Tom Hanks and Paul Bettany, is making a comeback on HBO Max's global top 10 list. Read on for more.
----------
-
-# 7 Comics To Read Before 'Spider-Man: Brand New Day'
-
-Books and Comics, Spider-Man: Brand New Day, Spider-Man, Marvel, MCU
-
-Mon, 20 Jul 2026 16:11:14 GMT
-
-https://collider.com/spider-man-brand-new-day-comics-to-read/
-
-Tom Holland's Peter Parker will be back in theaters soon, so you should definitely read these comics before Spider-Man: No Way Home releases.
----------
-
-# Rebel Wilson’s Directorial Debut Officially Sets U.S. Release Date With New Look [Exclusive]
-
-Movie News, Rebel Wilson, The Deb, Pitch Perfect, Comedy
-
-Mon, 20 Jul 2026 16:00:14 GMT
-
-https://collider.com/rebel-wilson-directorial-debut-the-deb-key-art-vod-release-date-august-2026/
-
-Vertigo Releasing has shared the first key art for Rebel Wilson's directorial debut, The Debt, confirming that the film will be released on August 25.
----------
-
-# 'Chronicles of Narnia' and 'Mortal Kombat' Stars Unite for Epic 19th-Century Historical Drama [Exclusive]
-
-Exclusives, Poppy Drayton, Ludi Lin, Drama, Rupert Graves
-
-Mon, 20 Jul 2026 16:00:14 GMT
-
-https://collider.com/hudson-and-maria-historical-drama-cast-william-moseley-poppy-drayton-ludi-lin/
-
-The inspirational biopic Hudson & Maria has unveiled its cast, with Chronicles of Narnia star William Moseley playing a legendary missionary.
----------
-
-# Prime Video Officially Returns to Middle-earth With ‘The Rings of Power’ Season 3 Reveal
-
-TV News, The Lord of the Rings: The Rings of Power, Prime Video, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum
-
-Mon, 20 Jul 2026 15:49:16 GMT
-
-https://collider.com/the-rings-of-power-season-3-new-images-sauron-gandalf/
-
-See the new images from The Rings of Power Season 3, teasing Sauron’s rise, Gandalf’s transformation and the coming war for Middle-earth.
----------
-
-# Jake Gyllenhaal's 2024 Action Smash Is One of Streaming's Best Late-Night Watches
-
-Movie News, Jake Gyllenhaal, Road House, Doug Liman, Prime Video
-
-Mon, 20 Jul 2026 15:45:05 GMT
-
-https://collider.com/jake-gyllenhaal-road-house-streaming-success-prime-video-july-2026/
-
-Jake Gyllenhaal stars in the high-octane remake of Road House, which has become a streaming hit with a sequel on the way. Find out more here.
----------
-
-# Avengers: Doomsday Is Already Off to a Bad Start With the X-Men
-
-Movie Features, Avengers: Doomsday, X-Men, Marvel, Robert Downey Jr
-
-Mon, 20 Jul 2026 15:42:39 GMT
-
-https://collider.com/avengers-doomsday-not-x-men-movie-fans-want/
-
-Avengers: Doomsday looks to be a solid Marvel venture, but fans are still waiting for the X-Men to return in their own franchise film.
----------
-
-# Marvel Studios Officially Addresses Fate of Long-Awaited 'Blade' Movie
-
-Movie News, Mahershala Ali, Blade
-
-Mon, 20 Jul 2026 16:20:54 GMT
-
-https://movieweb.com/marvel-studios-blade-movie-failure-kevin-feige/
-
-The 'Blade' film starring Mahershala Ali has suffered some repeated, prolonged delays.
----------
-
-# Marvel Officially Replaces Tony Stark After 7 Years
-
-Features, Avengers: Doomsday (2026), Marvel Cinematic Universe
-
-Mon, 20 Jul 2026 16:10:12 GMT
-
-https://movieweb.com/avengers-doomsday-trailer-thor-leader/
-
-The Avengers have lacked leadership since 'Endgame' in 2019, but 'Doomsday' is finally fixing that. Read on for more.
----------
-
-# Alan Ritchson Makes Major 'Reacher' Announcement as Series Officially Reaches Key Milestone
-
-TV News, Alan Ritchson, Reacher, Prime Video
-
-Mon, 20 Jul 2026 16:04:27 GMT
-
-https://movieweb.com/alan-ritchson-reacher-season-5-filming/
-
-This is good news for fans who want to see new episodes of 'Reacher' every year.
----------
-
-# Jason Statham's 103-Minute Brutal Action Hit Scores Big on Free Streaming
-
-Movie News, The Expendables
-
-Mon, 20 Jul 2026 16:00:12 GMT
-
-https://movieweb.com/the-expendables-jason-statham-action-stream-free-pluto-july-2026/
-
-Jason Statham's most iconic action hit, 'The Expendables,' is gaining a second life on free streaming.
----------
-
-# 'Avengers: Doomsday' Fixes Thor's Big 'Infinity War' Mistake
-
-Features, Avengers: Doomsday, Avengers: Infinity War, Marvel Cinematic Universe
-
-Mon, 20 Jul 2026 15:46:57 GMT
-
-https://movieweb.com/avengers-doomsday-fixes-thor-infinity-war-mistake/
-
-The new trailer for 'Avengers: Doomsday' pits Thor against Doctor Doom, and it sees him fixing an 'Infinity War' mistake too late.
----------
-
-# Christopher Nolan Confirms Long Wait for Next Movie After 'The Odyssey'
-
-Movie News, The Odyssey, Christopher Nolan
-
-Mon, 20 Jul 2026 15:38:17 GMT
-
-https://movieweb.com/christopher-nolan-the-odyssey-3-years-next-movie/
-
-The Oscar-winning director says making 'The Odyssey' pushed him and his crew to their limits.
----------
-
-# 27 Years Later, Johnny Depp's R-Rated Adaptation of Gothic Classic Sets New Release
-
-Movie News, Sleepy Hollow, Johnny Depp, Tim Burton, Horror
-
-Mon, 20 Jul 2026 15:35:43 GMT
-
-https://movieweb.com/johnny-depp-sleepy-hollow-4k-blu-ray-release/
-
-Tim Burton and Johnny Depp's cult gothic horror classic 'Sleepy Hollow' is getting a new 4K Blu-ray steelbook release.
----------
-
-# King Of The Hill Season 15 Debuts To Rare Rotten Tomatoes Score
-
-TV, King of the Hill, King of the Hill - Season 15
-
-Mon, 20 Jul 2026 15:20:06 GMT
-
-https://screenrant.com/king-of-the-hill-season-15-rotten-tomatoes-score/
-
-All 10 episodes of King of the Hill season 15 are now available on Hulu, and the show’s return is already earning stunning reviews from critics.
----------
-
-# Alan Ritchson Announces Major Reacher Season 5 News Ahead Of Season 4 Debut
-
-TV, Reacher
-
-Mon, 20 Jul 2026 15:13:14 GMT
-
-https://screenrant.com/reacher-season-5-filming-start-confirm-alan-ritchson/
-
-Before season 4 could even premiere on Prime Video, Alan Ritchson has already made an exciting announcement about the status of Reacher season 5.
----------
-
-# Kevin Feige Gets Brutally Honest About Marvel’s Failed Blade Reboot
-
-Movies, Blade
-
-Mon, 20 Jul 2026 15:13:06 GMT
-
-https://screenrant.com/blade-kevin-feige-marvel-failed-reboot/
-
-Marvel's Kevin Feige gets brutally honest about Mahershala Ali's Blade, as the MCU and Blade's futures remain in the balance ahead of Doomsday.
----------
-
-# 14 Years Later, Prometheus Will Age Better Than Alien: Romulus
-
-Movies, Alien, Alien: Romulus, Prometheus
-
-Mon, 20 Jul 2026 15:02:11 GMT
-
-https://screenrant.com/prometheus-aging-better-than-alien-romulus/
-
-Despite its flaws, the prequel Prometheus took the Alien franchise to daring new places, with ambitious visuals and a mysterious, otherworldly tone.
----------
-
-# Supernatural Is Giving Sam & Dean 2 Separate Spinoff Series
-
-Comics, Supernatural
-
-Mon, 20 Jul 2026 15:00:48 GMT
-
-https://screenrant.com/supernatural-sam-dean-two-spinoff-series/
-
-Supernatural is officially bringing Dean and Sam Winchester back this fall. AND the two brothers will each be getting their own series.
----------
-
-# Avatar Aang: The Last Airbender Review - ATLA Sequel Movie Fails To Live Up To Its Grand Legacy
-
-New Movies, Avatar Aang: The Last Airbender
-
-Mon, 20 Jul 2026 15:00:11 GMT
-
-https://screenrant.com/avatar-aang-the-last-airbender-movie-review/
-
-The new movie from original series creators returns to the beloved fantasy world, but Avatar Aang: The Last Airbender is a bit of a letdown.
----------
-
-# Point Break Returns to Theaters for 35th Anniversary
-
-Movies, Point Break
-
-Mon, 20 Jul 2026 14:56:30 GMT
-
-https://screenrant.com/point-break-35th-anniversary-theatrical-release/
-
-Exclusive: ScreenRant presents the trailer for Point Break’s 35th anniversary, as the summer classic returns to theaters on August 16 and 19!
----------
-
-# Christopher Nolan’s The Odyssey Shatters Yet Another Major Record
-
-Movies, The Odyssey
-
-Mon, 20 Jul 2026 14:33:07 GMT
-
-https://screenrant.com/the-odyssey-christopher-nolan-letterboxd-record/
-
-Christopher Nolan's The Odyssey continues on its path of global domination, with the fantasy epic now breaking a major all-time movie record.
----------
-
-# 10 TV Theme Songs That Perfectly Represent Their Show (#1 Is Still Iconic)
-
-Classic TV
-
-Mon, 20 Jul 2026 14:00:11 GMT
-
-https://screenrant.com/sopranos-theme-song-tv-perfect-representation/
-
-The very best TV theme songs are a perfect representation of the tone and feel of their series, like The Sopranos or Curb Your Enthusiasm.
----------
-
-# GTA Vice City: New Legacy Released While We Wait For GTA 6
-
-Gaming, Grand Theft Auto, Grand Theft Auto 6
-
-Mon, 20 Jul 2026 14:00:11 GMT
-
-https://screenrant.com/gta-vice-city-new-legacy-unofficial-expansion/
-
-We're about to head back to Vice City in a big way in GTA VI, but if you fancy returning before that, there is a fun way to do so.
----------
-
-# 10 Ways Boruto Has Actually Improved On Naruto's World-Building
-
-Anime, Boruto: Naruto Next Generations, Naruto, Naruto: Shippuden, shonen anime
-
-Mon, 20 Jul 2026 15:15:15 GMT
-
-https://www.cbr.com/how-boruto-improves-narutos-world-building/
-
-Masashi Kishimoto created one of shonen’s best settings in Naruto, and the sequel shows what happens when that world finally moves forward.
----------
-
-# Supernatural Officially Confirms the Winchesters Splitting Up
-
-Comics, Supernatural
-
-Mon, 20 Jul 2026 15:04:07 GMT
-
-https://www.cbr.com/supernatural-officially-confirms-the-winchesters-splitting-up/
-
-Dynamite Entertainment will be splitting its hit Supernatural comic book series into TWO books in October, as the WInchesters both go solo
----------
-
-# DC Comics Officially Reveals New Wonder Woman For A Bold New Era
-
-Comics, DC Comics, DCU, Wonder Woman, Justice League
-
-Mon, 20 Jul 2026 15:00:15 GMT
-
-https://www.cbr.com/dc-comics-officially-reveals-new-wonder-woman/
-
-The world has never, ever seen Wonder Woman like this before.
----------
-
-# Disney's New Sequel in 11-Year-Old Franchise Is Officially the Most Streamed Title in the World, Replacing Avatar: Fire & Ash
-
-Movies, Descendants: Wicked Wonderland
-
-Mon, 20 Jul 2026 15:00:15 GMT
-
-https://www.cbr.com/disney-descendants-wicked-wonderland-streaming-success-july-2026/
-
-James Cameron's latest Avatar movie falls under the weight of Disney's beloved musical fantasy franchise.
 ---------
