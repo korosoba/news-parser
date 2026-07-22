@@ -1,3 +1,388 @@
+# Harley Quinn's New Redesign Is a Gift to DC Cosplayers
+
+Comics, Harley Quinn
+
+Wed, 22 Jul 2026 17:44:29 GMT
+
+https://screenrant.com/harley-quinn-quinntellect-cosplay-inspiration-ideas/
+
+Harley Quinn cosplayers looking to upgrade their Comic-Con looks need to see DC’s latest redesign, which adds an epic new twist to the Siren's look.
+---------
+
+# Hulu Officially Releases Anthony Mackie's New 'Mad Max Meets Gladiator' Epic Next Month
+
+Movies, Masked Recs, Anthony Mackie
+
+Wed, 22 Jul 2026 17:43:44 GMT
+
+https://screenrant.com/desert-warrior-hulu-streaming-release-date/
+
+After opening in theaters earlier this year, Anthony Mackie's newest movie, which is like "Mad Max meets Gladiator" is heading to Hulu.
+---------
+
+# Alan Ritchson's #1 Netflix Movie Will Change How You See The Reacher Star
+
+Movies, Masked Recs
+
+Wed, 22 Jul 2026 17:43:29 GMT
+
+https://screenrant.com/alan-ritchson-ordinary-angels-movie-stream-netflix-july-2026/
+
+Alan Ritchson has a new No. 1 movie on Netflix in the United States for today, and it will completely change how you see the Reacher star.
+---------
+
+# Tom Holland’s Spider-Man Leading 2 New MCU Trilogies Teased By Kevin Feige
+
+Movies, Spider-Man, Marvel Cinematic Universe
+
+Wed, 22 Jul 2026 17:42:24 GMT
+
+https://screenrant.com/tom-holland-spider-man-new-mcu-movie-trilogies-tease/
+
+Ahead of Spider-Man: Brand New Day's release, a new MCU update teases that Tom Holland's Peter Parker future might include two trilogies
+---------
+
+# 42 Years Later, TMNT's Original Continuity Has An Important New Codename
+
+Comics, Teenage Mutant Ninja Turtles
+
+Wed, 22 Jul 2026 17:30:11 GMT
+
+https://screenrant.com/tmnt-new-codename-change/
+
+The Teenage Mutant Ninja Turtles have gone through a variety of colorful and distinctive eras, and its latest issue just laid down some major cleanup.
+---------
+
+# Star Wars Announces Official Dark Side Yoda
+
+Gaming, Star Wars, Mobile
+
+Wed, 22 Jul 2026 17:13:40 GMT
+
+https://screenrant.com/star-wars-dark-side-yoda-redesign/
+
+Star Wars' Jedi Master Yoda is as incorruptible as the best of the Jedi, but he's officially turned to the dark side of the Force in a new appearance.
+---------
+
+# Punisher's New Appearance Officially Introduces His Ultimate Weapon
+
+Marvel Comics, The Punisher
+
+Wed, 22 Jul 2026 17:04:53 GMT
+
+https://screenrant.com/punisher-fin-fang-foom-robot/
+
+The Punisher just became one of the universe's deadliest heroes with a mecha power-up that places on the same level as Doctor Doom and Godzilla.
+---------
+
+# The Wait Is Over, Avatar Has Finally Returned To Rave Reviews
+
+Gaming, Avatar: The Last Airbender, Triple-A Games, PC
+
+Wed, 22 Jul 2026 17:03:27 GMT
+
+https://screenrant.com/avatar-legends-fighting-game-review-roundup/
+
+Truly great adaptations of Avatar: The Last Airbender are few and far between, but Aang and his friends are finally back with a great new game.
+---------
+
+# Netflix's New R-Rated Sitcom Is The Office Meets Garfield
+
+TV, Masked Recs
+
+Wed, 22 Jul 2026 17:00:11 GMT
+
+https://screenrant.com/alley-cats-netflix-sitcom-like-the-office-garfield/
+
+A new sitcom arrives on Netflix this August, featuring comedic elements from both The Office and the legendary comic-book franchise Garfield.
+---------
+
+# 6 PlayStation 1 Games That Are Barely Playable In 2026
+
+Gaming, PlayStation (Original), PlayStation, Tekken, Tomb Raider, Mortal Kombat
+
+Wed, 22 Jul 2026 17:00:11 GMT
+
+https://screenrant.com/5-10-playstation-1-games-that-are-barely-playable-in-2026/
+
+While there are plenty of amazing PS1 games that have aged gracefully, there are several that are practically unplayable today.
+---------
+
+# The Legend of Zelda Officially Returns With New Release Spring 2027
+
+Games, The Legend of Zelda, The Legend of Zelda: Tears of the Kingdom, Nintendo
+
+Wed, 22 Jul 2026 17:40:14 GMT
+
+https://www.cbr.com/legend-of-zelda-official-return-new-release-spring-2027/
+
+Nintendo might be working hard on The Legend of Zelda: Ocarina of Time remake, but another new release has been announced for Spring 2027.
+---------
+
+# Harry Potter Confirms New Release 2 Months Ahead of Reboot
+
+Movies, Harry Potter
+
+Wed, 22 Jul 2026 17:31:36 GMT
+
+https://www.cbr.com/harry-potter-8-film-blu-ray-collectors-edition/
+
+The end of the year will conclude with a complete Harry Potter revival, but, until then, original fans are still getting spoiled.
+---------
+
+# 10 Retro TCGs from the '90s No One Remembers
+
+Games, Magic The Gathering, Dungeons and Dragons, Doctor Who, Star Trek
+
+Wed, 22 Jul 2026 17:30:15 GMT
+
+https://www.cbr.com/retro-tcgs-from-the-90s-no-one-remembers/
+
+From Star Trek to Dungeons and Dragons, the '90s were full of card games from famous IPs that no one remembers.
+---------
+
+# All 3 Universes in Avengers: Doomsday, Explained
+
+Movies, Avengers: Doomsday, MCU, X-Men
+
+Wed, 22 Jul 2026 17:30:15 GMT
+
+https://www.cbr.com/avengers-doomsday-parallel-universes-explained-list/
+
+Avengers: Doomsday officially reveals "three distinct universes" that will lead the charge against Doctor Doom. Here's what we know about each.
+---------
+
+# Naruto Finally Brings Its New Official Trading Card Game to the U.S.
+
+Anime, Naruto, TCG, San Diego Comic-Con
+
+Wed, 22 Jul 2026 17:20:14 GMT
+
+https://www.cbr.com/naruto-mythos-tcg-sdcc-2026/
+
+The acclaimed Naruto TCG is finally making its way stateside, and fans will be able to get their hands on some special cards to celebrate.
+---------
+
+# 4 RPGs Objectively Better Than Elden Ring
+
+Games, Role Playing Game
+
+Wed, 22 Jul 2026 17:01:14 GMT
+
+https://www.cbr.com/masterpiece-rpgs-better-than-elden-ring-list/
+
+Elden Ring is one of the best RPGs of all time, but there are a few masterpiece games that have it beat.
+---------
+
+# Marvel's 2-Season Masterpiece That Is Required Viewing for Avengers: Doomsday Returns as a Streaming Hit
+
+TV, Loki, Avengers: Doomsday, Disney+
+
+Wed, 22 Jul 2026 17:01:14 GMT
+
+https://www.cbr.com/marvel-loki-disney-plus-success-july-2026/
+
+Disney+'s hit show tops the streaming charts after the release of the Avengers: Doomsday trailer
+---------
+
+# Avatar Legends Is Officially the Best Avatar Video Game Ever Made
+
+Games, Avatar: The Last Airbender, Video Games
+
+Wed, 22 Jul 2026 17:01:14 GMT
+
+https://www.cbr.com/avatar-legends-the-fighting-game-review/
+
+Avatar Legends: The Fighting Game combines characters from The Last Airbender and The Legend of Korra in this stunning 1v11 fighting game.
+---------
+
+# Solo Leveling Unveils the Lost Story of Jinwoo's Shadow Army in New Manhwa Sequel
+
+Anime, Solo Leveling
+
+Wed, 22 Jul 2026 16:57:15 GMT
+
+https://www.cbr.com/solo-leveling-karma-moments-inbetween-shadow-soldiers/
+
+The latest chapter of Solo Leveling's new manhwa sequel series, Moments Inbetween, further delves into the humorous untold history of Igris and Beru.
+---------
+
+# FromSoftware's Next Game Is Officially Playable August 21
+
+Games, Nintendo, Elden Ring, Dark Souls
+
+Wed, 22 Jul 2026 16:30:15 GMT
+
+https://www.cbr.com/fromsoftware-duskbloods-officially-playable-august-21/
+
+The time has almost come for the next FromSoftware action RPG to be playable on Nintendo Switch 2, and fans can sign up for it right now.
+---------
+
+# Marvel Boss Officially Confirms Spider-Man's New Replacement
+
+Movie News, Spider-Man: Brand New Day, Miles Morales, Tom Holland, Spider-Man: Beyond the Spider-Verse
+
+Wed, 22 Jul 2026 17:44:53 GMT
+
+https://collider.com/spider-man-miles-morales-mcu-confirmed-kevin-feige/
+
+Marvel boss Kevin Feige has officially confirmed Miles Morales' MCU debut ahead of Spider-Man: Brand New Day. Read on for more.
+---------
+
+# 'MobLand' Team Officially Recruits a Christopher Nolan Favorite for New Paramount+ Crime Series
+
+TV News, MobLand, Laird, Jez Butterworth, Kenneth Branagh
+
+Wed, 22 Jul 2026 17:26:35 GMT
+
+https://collider.com/mobland-team-crime-series-the-laird-cast-kenneth-branagh/
+
+The team behind MobLand is joining forces with Kenneth Branagh for a new Paramount+ crime series, The Laird. Read on for more.
+---------
+
+# The Best Rock Album of Every Year of the 1970s
+
+Music Features, David Bowie, Pink Floyd, Fleetwood Mac, Queen
+
+Wed, 22 Jul 2026 17:25:14 GMT
+
+https://collider.com/best-rock-albums-1970s-every-year/
+
+When discussing the best rock albums of every year of the 1970s, bangers like Rumours, A Night at the Opera, and Hotel California make the cut.
+---------
+
+# Tom Cruise Officially Returns for Sequel to His Best Action Movie Since 'Top Gun'
+
+Movie News, Days of Thunder, Tom Cruise, Jonathan Levine, Paramount
+
+Wed, 22 Jul 2026 16:59:45 GMT
+
+https://collider.com/paramount-days-of-thunder-2-sequel-confirmed-tom-cruise-returning/
+
+Amid rumblings of an F1 crossover, Days of Thunder 2 is officially happening with Tom Cruise in talks to return.
+---------
+
+# 'Rings of Power' Season 3 Officially Confirms Galadriel's New Love Interest
+
+TV News, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Jamie Campbell Bower, Morfydd Clark
+
+Wed, 22 Jul 2026 16:54:20 GMT
+
+https://collider.com/rings-of-power-season-3-jamie-campbell-bower-galadriel-love-interest-image/
+
+Jamie Campbell Bower's mystery Rings of Power character has been revealed, and it's the one that fans have been waiting for.
+---------
+
+# 'Fourth Wing' Author Officially Returns With New Apple TV Series
+
+TV News, Fourth Wing, Apple TV, Romance, Apple Studios
+
+Wed, 22 Jul 2026 16:34:30 GMT
+
+https://collider.com/apple-tv-peculiar-stars-adaptation-fourth-wing-author-romance/
+
+Ahead of Prime Video's Fourth Wing series, Apple TV has picked up the adaptation rights for Rebecca Yarros' new romance novel.
+---------
+
+# 10 Most Universally Loved Fantasy Movies Based on Books
+
+Movie, Harry Potter and the Prisoner of Azkaban, Fantasy, The Lord of the Rings: The Return of the King, Howl's Moving Castle
+
+Wed, 22 Jul 2026 16:34:14 GMT
+
+https://collider.com/most-universally-loved-fantasy-movies-based-on-books-ranked/
+
+Mary Poppins, The Lord of the Rings: The Return of the King, and Harry Potter and the Prisoner of Azkaban are beloved fantasy movies based on books.
+---------
+
+# DC Officially Brings Back a Legendary Villain for New Horror Movie Trailer
+
+Movie News, Clayface, DC Comics, james watkins, Mike Flanagan
+
+Wed, 22 Jul 2026 16:16:48 GMT
+
+https://collider.com/new-clayface-trailer-dc-horror-movie/
+
+DC has unleashed a brand-new trailer for its new Batman horror spin-off movie, Clayface. See the terrifying footage here!
+---------
+
+# 'Spider-Man: Brand New Day' Gets Standing Ovation in First Reaction
+
+Movie News, Spider-Man: Brand New Day
+
+Wed, 22 Jul 2026 17:35:07 GMT
+
+https://movieweb.com/spider-man-brand-new-day-standing-ovation-kevin-feige/
+
+Spider-Man fans have one more reason to swarm the theaters when 'Brand New Day' releases this month.
+---------
+
+# Henry Cavill's 108-Minute Action Adventure Is One of the Biggest Movies on Streaming
+
+Movie News, Enola Holmes 3, Netflix, Hot on Streaming, Henry Cavill
+
+Wed, 22 Jul 2026 17:30:12 GMT
+
+https://movieweb.com/enola-holmes-3-henry-cavil-streaming-success-netflix-july-2026/
+
+Henry Cavill's newest Netflix movie, 'Enola Holmes 3,' makes up for his poor box office performance.
+---------
+
+# The 10 Wildest Episodes of Catfish, Ranked
+
+TV Lists, Catfish: The TV Show
+
+Wed, 22 Jul 2026 17:00:13 GMT
+
+https://movieweb.com/the-wildest-episodes-of-catfish-ranked/
+
+MTV's hit reality show Catfish has over 200 episodes investigating online relationships. Here are the 10 wildest episodes of Catfish, ranked.
+---------
+
+# 3-Part "Reacher-Esque" Thriller Is Officially One of the Biggest Shows on Streaming
+
+TV News, Tracker, Hot on Streaming, Reacher
+
+Wed, 22 Jul 2026 17:00:12 GMT
+
+https://movieweb.com/tracker-streaming-success-nielsen-2026/
+
+Forget 'Reacher,' CBS' 'Tracker' is officially one of the biggest shows on streaming in 2026.
+---------
+
+# September Will Be an Enormous Month for 'Reacher' Fans
+
+Features, Reacher, Neagley
+
+Wed, 22 Jul 2026 17:00:12 GMT
+
+https://movieweb.com/reacher-neagley-september-releases/
+
+'Reacher' fans who enjoy the Amazon Prime Video action thriller TV series starring Alan Ritchson as Jack Reacher will be excited about September 2026.
+---------
+
+# 'Clayface' Trailer Unleashes Terrifying Transformation of Classic DC Batman Villain
+
+Movie News, Clayface, DCU
+
+Wed, 22 Jul 2026 16:34:55 GMT
+
+https://movieweb.com/clayface-official-trailer-batman-dc-villain/
+
+The first full trailer for the new horror movie from DC Studios has finally released online.
+---------
+
+# Catherine Zeta-Jones' New John Wick-Esque Revenge Thriller Finally Lands Streaming Home
+
+Movie News, Catherine Zeta-Jones
+
+Wed, 22 Jul 2026 16:28:41 GMT
+
+https://movieweb.com/amc-catherine-zeta-jones-kill-jackie/
+
+AMC+ secures exclusive U.S. rights to 'Kill Jackie,' a revenge thriller starring Catherine Zeta-Jones. The eight-episode series premieres this fall on the streamer, following Zeta-Jones' character as she fights back against a group of assassins.
+---------
+
 # Dungeons & Dragons Officially Makes Jimothy The Raccoon A Playable Character
 
 Gaming, Dungeons & Dragons, tabletop games
@@ -5111,389 +5496,4 @@ Tue, 21 Jul 2026 03:14:15 GMT
 https://collider.com/clerks-2-kevin-smith-20th-anniversary/
 
 20 years ago, Kevin Smith released Clerks II, a sequel to his era-defining debut feature and his last great film.
----------
-
-# Forget 'Lioness': These 8 Action Thrillers Are 10/10
-
-TV Lists, Lioness, Reacher, Tom Clancy's Jack Ryan, Slow Horses
-
-Tue, 21 Jul 2026 02:00:22 GMT
-
-https://movieweb.com/action-thrillers-better-than-lioness/
-
-'Lioness,' the Taylor Sheridan action thriller series starring Zoe Salanda, is great, but these shows are even better.
----------
-
-# 10 Sci-Fi Ships With 10/10 Designs
-
-Movies, Sci-Fi
-
-Tue, 21 Jul 2026 01:30:11 GMT
-
-https://screenrant.com/best-sci-fi-ship-designs/
-
-Sci-fi cinema is filled with hundreds, even thousands, of perfect ship designs, but here are a handful of those that embody the genre perfectly.
----------
-
-# Christopher Nolan’s 20-Year-Old Thriller Gets Major Upgrade For Theatrical Re-Release
-
-Movies, The Prestige, Christopher Nolan
-
-Tue, 21 Jul 2026 00:17:39 GMT
-
-https://screenrant.com/the-prestige-theatrical-re-release-70-millimeter-christopher-nolan-explained/
-
-Christopher Nolan's thriller movie released 20 years ago is returning to theaters, and he confirms that the re-release is getting a major upgrade.
----------
-
-# Obsession Meets M3GAN In Blumhouse's Creepy New Horror Spinoff
-
-Movies, Masked Recs
-
-Tue, 21 Jul 2026 00:15:11 GMT
-
-https://screenrant.com/soulm8te-horror-movie-m3gan-meets-obsession/
-
-Blumhouse's newest franchise-expanding film is nearly here, and the erotic sci-fi thriller feels like the perfect mix of some of modern horror's best.
----------
-
-# Christopher Nolan Just Proved The Original Dark Knight Is 3,000 Years Old
-
-Superheroes, The Odyssey, The Dark Knight, Christopher Nolan
-
-Tue, 21 Jul 2026 00:04:28 GMT
-
-https://screenrant.com/christopher-nolan-the-odyssey-parallels-to-the-dark-knight-trilogy/
-
-Although it's been 14 years since the end of Christopher Nolan's Dark Knight trilogy, the director's latest film highlights a major Batman truth.
----------
-
-# X-Men Writer Reveals 11 Rules That Can Save the Franchise
-
-Comics, X-Men
-
-Tue, 21 Jul 2026 00:00:11 GMT
-
-https://screenrant.com/x-men-rules-gail-simone/
-
-Gail Simone's Uncanny X-Men run is guided by a set of 11 personal rules that could redefine Marvel's X-Men franchise, and here's what they are.
----------
-
-# A 1998 PlayStation Classic Is Finally Being Remade For A Modern Platform
-
-Gaming, PlayStation, PC, Triple-A Games
-
-Tue, 21 Jul 2026 00:00:11 GMT
-
-https://screenrant.com/playstation-1998-classic-remaster-modern-platform/
-
-A classic PlayStation title released back in 1998 is making an official comeback to a modern platform this week, but with tons of huge changes.
----------
-
-# The Vampire Lestat Stars Break Down the Louis Head Scene
-
-CBR Exclusives, The Vampire Lestat
-
-Tue, 21 Jul 2026 01:56:39 GMT
-
-https://www.cbr.com/the-vampire-lestat-louis-decapitated-head-scene/
-
-The Vampire Lestat stars explain Louis’ severed-head scene, Armand’s apology demand and the unusual logistics behind filming it.
----------
-
-# 5 Near-Perfect RPGs Ruined by One Terrible Mechanic
-
-Games, Video Games, Horizon Zero Dawn, RPG, Lies of P
-
-Tue, 21 Jul 2026 01:45:15 GMT
-
-https://www.cbr.com/near-perfect-rpgs-ruined-by-one-mechanic/
-
-RPGs like Lies of P and Demon's Souls are fantastic to play, but have one fatal flaw holding them back.
----------
-
-# 5 Weirdest Anime Superpowers
-
-Anime, One Piece, My Hero Academia, The Law of Ueki, Bobobo-bo Bo-bobo, Bungo Stray Dogs, superheroes
-
-Tue, 21 Jul 2026 01:25:15 GMT
-
-https://www.cbr.com/weirdest-anime-superpowers/
-
-Forget teleportation or super speed, these anime characters have way weirder powers that still make them formidable opponents in battle.
----------
-
-# Prime Video's New 91-Minute Horror Based on Acclaimed Novel Is Officially a Hit Despite Abysmal Reviews
-
-Movies, Do Not Enter
-
-Tue, 21 Jul 2026 01:00:15 GMT
-
-https://www.cbr.com/do-not-enter-horror-prime-video-success-july-2026/
-
-The underseen horror movie gets the last laugh by finding streaming success despite its harsh reviews.
----------
-
-# 10 Most Useful Non-Combat D&D Magic Items, Ranked
-
-Games, Dungeons and Dragons, Tabletop, Dungeons & Dragons
-
-Tue, 21 Jul 2026 00:45:15 GMT
-
-https://www.cbr.com/useful-non-combat-dnd-magic-items-ranked/
-
-Dungeons & Dragons players love using enchanted weapons and arcane wands to obliterate their foes, but the best magic items aren't used for combat.
----------
-
-# Every Silent Hill f Ending, Explained
-
-Games, Silent Hill f
-
-Tue, 21 Jul 2026 00:35:15 GMT
-
-https://www.cbr.com/silent-hill-f-endings-explained/
-
-All five of Silent Hill f's endings, including the first ending, bad ending, and true ending, are explained here.
----------
-
-# 32 Years Later, the Best Stephen King Show in TV History Remains 100% Untouchable
-
-TV, Stephen King, Horror, The Stand
-
-Tue, 21 Jul 2026 00:30:15 GMT
-
-https://www.cbr.com/best-stephen-king-miniseries-the-stand-1994/
-
-King's stories have always been told brilliantly through miniseries, and this 1994 massive TV event is one that still holds up today.
----------
-
-# 27 Years Later, Beast Wars Brings Back a Forgotten Power-Up in New Transformers Release
-
-Anime, Transformers, Beast Wars: Transformers, merchandise, action figures, toys
-
-Tue, 21 Jul 2026 00:20:15 GMT
-
-https://www.cbr.com/transformers-beast-wars-lio-convoy-legendary-green-lion-release/
-
-An illuminating new Takara toy for Lio Convoy represents one of his most overlooked forms, as seen in the Beast Wars II: Transformers anime.
----------
-
-# 5 Most Overpowered Manhwa Protagonists With Anime Adaptations, Ranked
-
-Anime, manhwa, Solo Leveling, The God of High School
-
-Tue, 21 Jul 2026 00:15:15 GMT
-
-https://www.cbr.com/overpowered-manhwa-protagonists-with-anime/
-
-Some of the most overpowered manhwa protagonists really get to show off once their series gets an anime adaptation.
----------
-
-# The Rookie Is Officially Fixing Season 8’s Biggest Fumble
-
-TV, The Rookie, Hulu, Crime
-
-Tue, 21 Jul 2026 00:02:36 GMT
-
-https://www.cbr.com/the-rookie-season-8-episode-10-extended-cut-hulu-fix/
-
-The Rookie's special Hulu release fixes Season 8's biggest miss.
----------
-
-# Marvel Just Teased a Major Replacement for Wolverine
-
-TV Features, X-Men '97, X-Men: The Animated Series, X-Men: Evolution, Disney+
-
-Tue, 21 Jul 2026 01:52:15 GMT
-
-https://collider.com/x-men-97-season-2-wolverine-laura-kinney-replacement-meaning/
-
-The latest episode of 'X-Men '97' just teased that a fan-favorite character could take up Wolverine's mantle in future seasons.
----------
-
-# 3 Excellent Shows You Need to Binge on Prime Video This Week (July 20-24)
-
-TV, Prime Video, Bates Motel, Butterfly, The Middle
-
-Tue, 21 Jul 2026 01:11:14 GMT
-
-https://collider.com/prime-video-shows-binge-july-20-2026/
-
-Butterfly, Bates Motel, and The Middle make up our list of the best shows to watch on Prime Video the week of July 20th, 2026.
----------
-
-# 10 Greatest Batman Games of All Time
-
-Gaming, Video Game, Batman: Arkham City, Lego Batman, Superhero
-
-Tue, 21 Jul 2026 00:09:14 GMT
-
-https://collider.com/best-batman-video-games-all-time-ranked/
-
-The Dark Knight has had a long career in video games, with titles like Batman: The Telltale Series and Batman: Arkham City ranking among his greatest.
----------
-
-# 'Big Bang Theory's Jim Parsons Officially Confirms Fate of a Sheldon Return
-
-TV News, Big Bang Theory, Jim Parsons
-
-Tue, 21 Jul 2026 00:25:34 GMT
-
-https://movieweb.com/big-bang-theory-jim-parsons-return-spin-off-reaction/
-
-The actor doesn't see himself returning to the franchise to reprise his role ever again.
----------
-
-# The Forsaken Saintess Is Resurrecting An Underrated Isekai Genre (Exclusive)
-
-Anime, Isekai, Anime Expo
-
-Mon, 20 Jul 2026 23:30:11 GMT
-
-https://screenrant.com/forsaken-saintess-foodie-road-trip-changing-isekai-anime-better/
-
-The Forsaken Saintess and Her Foodie Roadtrip in Another World is leading the charge in resurrecting the cozy slice-of-life anime subgenre.
----------
-
-# 22 Years Later, Tommy's Best Line Is Still One Of The Greatest Quotes In Power Rangers History
-
-Classic TV, Power Rangers
-
-Mon, 20 Jul 2026 23:30:11 GMT
-
-https://screenrant.com/tommy-best-quote-power-rangers/
-
-Jason David Frank had some of the best dialogue in Power Rangers, but for his greatest quote he wasn't wearing his iconic green spandex.
----------
-
-# David Boreanaz’s Upcoming Detective Drama Reboot Sets Up A New Franchise
-
-TV, The Rockford Files, David Boreanaz
-
-Mon, 20 Jul 2026 23:28:11 GMT
-
-https://screenrant.com/the-rockford-files-david-boreanaz-reboot-franchise/
-
-David Boreanaz is set to star in a reboot of NBC's classic cop show The Rockford Files, and this take on James Garner's series could spawn a spinoff.
----------
-
-# Zack Snyder & James Gunn's Supergirls Couldn't Be More Different
-
-Movies, Supergirl, Man of Steel, DC Universe
-
-Mon, 20 Jul 2026 23:15:11 GMT
-
-https://screenrant.com/zack-snyder-james-gunn-supergirl-differences/
-
-Zack Snyder and James Gunn both included Supergirl in the DCEU and DCU respectively, but they had very different takes on Kara Zor-El's character.
----------
-
-# President Curtis Season 2 Return Plans Addressed By Rick & Morty Spinoff Co-Creator
-
-TV, President Curtis, President Curtis - Season 1, Rick and Morty
-
-Mon, 20 Jul 2026 23:07:10 GMT
-
-https://screenrant.com/president-curtis-season-2-chances-james-siciliano/
-
-Exclusive: President Curtis co-creator James Siciliano addresses whether there are plans for the Rick and Morty spinoff to return for season 2.
----------
-
-# Christopher Nolan's The Odyssey Rotten Tomatoes Score Breaks Top 5 Box Office Record
-
-Movies, The Odyssey
-
-Mon, 20 Jul 2026 23:00:18 GMT
-
-https://screenrant.com/christopher-nolan-the-odyssey-rotten-tomatoes-score-box-office-record/
-
-Christopher Nolan's The Odyssey has earned rave reviews from critics and fans, and its Rotten Tomatoes score beats the epic's box office competition.
----------
-
-# Dragon Ball Z Officially Brings Back Piccolo's Greatest Namek Power-Up
-
-Anime, Dragon Ball, Dragon Ball Z, merchandise
-
-Mon, 20 Jul 2026 23:05:14 GMT
-
-https://www.cbr.com/dbz-piccolo-fusion-solid-edge-works-release/
-
-The new release recreates Piccolo's iconic moment as he swoops in to save Gohan from Frieza.
----------
-
-# Hulu's King of the Hill Revival Outshines First Season With Even Higher Rotten Tomatoes Score
-
-TV, King of the Hill
-
-Mon, 20 Jul 2026 23:00:25 GMT
-
-https://www.cbr.com/king-of-the-hill-season-15-rotten-tomatoes-score/
-
-King of the Hill is better than ever two seasons into its revival on Hulu.
----------
-
-# 5 Masterpiece Fantasy Book Series With the Best Battles
-
-Movies, Fantasy
-
-Mon, 20 Jul 2026 23:00:15 GMT
-
-https://www.cbr.com/fantasy-books-with-the-best-battles-list/
-
-Fantasy book series often thrive on world-building, but the best combine character development with engaging battles that keep readers hooked.
----------
-
-# Scrubs Revival Undergoes Cast Shakeup in Season 2
-
-TV, Scrubs, Comedy, ABC
-
-Mon, 20 Jul 2026 22:59:22 GMT
-
-https://www.cbr.com/scrubs-revival-season-2-cast-exit-x-mona-joel-kim-booster/
-
-Hulu's Scrubs revival officially says goodbye to two cast members ahead of Season 2.
----------
-
-# CBS' 'Tracker' Has Officially Reached the End of an Era
-
-TV Features, Tracker, Justin Hartley, Paramount, CBS
-
-Mon, 20 Jul 2026 23:39:14 GMT
-
-https://collider.com/cbs-tracker-season-3-ashton-shaw-mystery-resolved/
-
-As Tracker concludes its main narrative, Colter Shaw faces new challenges in Season 4 with a move to LA and the need for fresh mysteries to solve.
----------
-
-# ‘Harry Potter’ Reboot Has a Major Filming Problem the Movies Never Faced
-
-TV Features, Harry Potter, Daniel Radcliffe, Emma Watson, Rupert Grint
-
-Mon, 20 Jul 2026 23:23:14 GMT
-
-https://collider.com/harry-potter-reboot-brutal-filming-schedule/
-
-HBO's Harry Potter reboot is undergoing a brutal filming schedule because of the realities of filming with child actors.
----------
-
-# Every HBO Show of 2026 So Far, Ranked Worst to Best
-
-TV, HBO, A Knight Of The Seven Kingdoms, DTF St. Louis, Rooster
-
-Mon, 20 Jul 2026 23:14:14 GMT
-
-https://collider.com/hbo-shows-2026-so-far-ranked/
-
-From the Game of Thrones prequel A Knight of the Seven Kingdoms to the crime miniseries DTF St. Louis, which 2026 HBO show is the best of the year?
----------
-
-# 'The Rookie' Season 9 Officially Brings a Major Cast Shake-Up
-
-TV Features, The Rookie, ABC, Nathan Fillion, Alexi Hawley
-
-Mon, 20 Jul 2026 22:52:14 GMT
-
-https://collider.com/the-rookie-is-officially-changing-its-cast-in-season-9/
-
-The Rookie Season 9 will bring fresh energy and storylines to the series, as Miles graduates and a new recruit joins the LAPD.
 ---------
