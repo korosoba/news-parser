@@ -1,3 +1,267 @@
+# M3GAN's First Spinoff Movie Is Releasing 3 Months Too Late
+
+Movies, M3GAN, SOULM8TE
+
+Wed, 22 Jul 2026 23:03:11 GMT
+
+https://screenrant.com/soulm8te-m3gan-spinoff-release-too-late-obsession/
+
+The success of a massive 2026 horror is a crushing blow for M3GAN's first spinoff Soulm8te, which shares its plot with the year's breakout hit.
+---------
+
+# 6 Free Steam Games That Are Perfect 10/10s, No Notes
+
+Gaming, Steam
+
+Wed, 22 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/steam-6-free-games-overwhelmingly-positive-reviews-2026/
+
+Discover six free Steam games with overwhelmingly positive reviews, from hidden gems to unforgettable indie classics.
+---------
+
+# The Best Character In Every Spider-Man Movie Who Isn't Spider-Man
+
+Movies, Spider-Man
+
+Wed, 22 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/spider-man-movie-every-best-character-not-hero/
+
+Spider-Man is often joined by complex villains, compelling love interests and loyal allies on-screen, some of which are the highlights of their films.
+---------
+
+# Grey's Anatomy Season 23 Already Has Its Biggest Redemption Story
+
+Network TV, Grey's Anatomy
+
+Wed, 22 Jul 2026 22:45:11 GMT
+
+https://screenrant.com/greys-anatomy-season-23-benson-kwan-redemption/
+
+In the aftermath of the climactic Grey's Anatomy season 22 finale, one character already deserves a comeback in the ABC staple's upcoming season 23.
+---------
+
+# Star Trek's Newest Starfleet Branch Makes Section 31 Look Pathetic
+
+Comics, Star Trek
+
+Wed, 22 Jul 2026 22:30:11 GMT
+
+https://screenrant.com/star-trek-section-31-section-null/
+
+Really bad.
+---------
+
+# HBO's Masterpiece 8-Part Psychological Thriller Series Deserves Another Season
+
+TV, Masked Recs
+
+Wed, 22 Jul 2026 22:17:24 GMT
+
+https://screenrant.com/hbo-sharp-objects-thriller-series-deserves-new-season/
+
+One of HBO's best psychological thriller series deserves another season to explore the fallout of an impeccable and dark plot twist in detail.
+---------
+
+# Netflix's 'Stranger Things Meets Karate Kid' Series Makes Mortal Kombat Look Small
+
+Classic TV, Masked Recs
+
+Wed, 22 Jul 2026 22:15:11 GMT
+
+https://screenrant.com/cobra-kai-martial-arts-stranger-things-meets-karate-kid/
+
+There is a martial arts show on Netflix that is part Karate Kid and part Stranger Things, and it makes Mortal Kombat look quaint in comparison.
+---------
+
+# Apple TV Secures Rights To Next Novel From Fourth Wing Author For Major New Series
+
+TV, Fourth Wing
+
+Wed, 22 Jul 2026 22:15:03 GMT
+
+https://screenrant.com/apple-tv-secures-rights-to-next-novel-from-fourth-wing-author-for-major-new-series/
+
+Apple TV acquires rights to adapt bestselling author Rebecca Yarros' upcoming novel Peculiar Stars into a new drama series for the streaming platform.
+---------
+
+# 11 Years Later, Game Of Thrones Star Lena Headey "Shocked" By Reactions After Using Cersei Lannister Body Double For Walk Of Shame
+
+TV, Game Of Thrones, Game of Thrones, Lena Headey
+
+Wed, 22 Jul 2026 22:15:01 GMT
+
+https://screenrant.com/game-of-thrones-walk-of-shame-body-double-audience-reaction-lena-headey/
+
+The reaction to Lena Headey using a body double during Game of Thrones season 5's walk of shame scene still surprises the actor many years later.
+---------
+
+# Tom Hardy’s Scene-Stealing Anti-MobLand Role Releases On Netflix Next Week
+
+Movies, Tom Hardy, Masked Recs
+
+Wed, 22 Jul 2026 22:06:29 GMT
+
+https://screenrant.com/marie-antoinette-netflix-streaming-release-date-august-2026/
+
+One of Tom Hardy's forgotten roles from early in his career is coming to Netflix next week as fans await the return of his hit crime drama MobLand.
+---------
+
+# Dandadan Season 3 Premiere Date Officially Retracted After Accidental Reveal
+
+Anime, Dandadan
+
+Wed, 22 Jul 2026 23:05:14 GMT
+
+https://www.cbr.com/dandadan-season-3-release-date-adv-accidental-reveal/
+
+An apparent accidental leak of Dandadan Season 3's release date stated the anime returns in January 2027 before being quickly deleted.
+---------
+
+# Netflix’s New 8-Part Dark Fantasy With 100% RT Becomes 1 of the Most-Watched Shows in the World
+
+TV, The East Palace, Netflix, Fantasy
+
+Wed, 22 Jul 2026 23:00:14 GMT
+
+https://www.cbr.com/the-east-palace-netflix-dark-fantasy-success-july-2026/
+
+The new dark fantasy becomes Netflix's number 2 most-watched show in the United States.
+---------
+
+# 5 '70s Movie Masterpieces That Nobody Remembers Today
+
+Movies, Drama, The Conversation, Thriller
+
+Wed, 22 Jul 2026 23:00:14 GMT
+
+https://www.cbr.com/forgotten-1970s-movie-masterpieces-list/
+
+These 1970s movies are absolute all-timers, but they have unfortunately been forgotten by most audiences.
+---------
+
+# Inside the Big Bang Theory Spinoff: Stuart Fails to Save the Universe
+
+TV, Stuart Fails to Save the Universe
+
+Wed, 22 Jul 2026 22:32:45 GMT
+
+https://www.cbr.com/stuart-fails-to-save-the-universe-set-visit/
+
+Stuart Fails to Save the Universe, from the world of The Big Bang Theory, premieres on HBO on July 23. The set was chock full of fun easter eggs.
+---------
+
+# 4 Dark Shonen Anime That Are Just As Good As JJK
+
+Anime, Jujutsu Kaisen, Chainsaw Man, Yu Yu Hakusho, Hunter X Hunter, Fullmetal Alchemist: Brotherhood
+
+Wed, 22 Jul 2026 22:15:14 GMT
+
+https://www.cbr.com/dark-shonen-anime-as-good-as-jjk/
+
+Jujutsu Kaisen is an excellent dark shonen anime, but these series are just as good at exploring dark and mature themes.
+---------
+
+# 2026's Most Divisive Horror Release Blows Up on Streaming After Record-Setting Box Office
+
+Movies, Scary Movie
+
+Wed, 22 Jul 2026 22:00:14 GMT
+
+https://www.cbr.com/scary-movie-6-horror-comedy-pvod-success-july-2026/
+
+Critics might hate the film, but it's nevertheless a big success, both in theaters and at home.
+---------
+
+# George Lucas' 'Biggest Risk' Helped Create The Mandalorian and Grogu
+
+Movies, Star Wars, The Mandalorian and Grogu, Star Wars: Episode II - Attack of the Clones
+
+Wed, 22 Jul 2026 22:00:14 GMT
+
+https://www.cbr.com/star-wars-yoda-dooku-fight-inspired-mandalorian-and-grogu/
+
+Disney's latest Star Wars film would have been impossible if not for a major gamble that George Lucas took over two decades prior.
+---------
+
+# The 2026 Horror Hit Endorsed by Christopher Nolan Officially Overtakes 'The Exorcist'
+
+Movie News, Obsession, The Exorcist, Horror, Curry Barker
+
+Wed, 22 Jul 2026 23:00:14 GMT
+
+https://collider.com/obsession-overtakes-the-exorcist-global-box-office-442-million/
+
+Obsession has officially earned more than The Exorcist at the worldwide box office, becoming one of horror’s biggest hits ever.
+---------
+
+# Marvel Officially Confirms Which Disney+ Show Matters Most Before ‘Avengers: Doomsday’
+
+TV Features, Avengers: Doomsday, Loki, Tom Hiddleston, Chris Hemsworth
+
+Wed, 22 Jul 2026 22:57:14 GMT
+
+https://collider.com/loki-disney-plus-series-must-watch-before-avengers-doomsday/
+
+Disney+'s Loki gives the God of Mischief the character development he deserves, and Avengers: Doomsday may finally acknowledge that.
+---------
+
+# 'X-Men ‘97’s Most Shocking Resurrection Is Pulled Straight From the Comics
+
+TV Features, X-Men '97, X-Men: The Animated Series, Avengers: Doomsday, Disney Plus
+
+Wed, 22 Jul 2026 22:32:50 GMT
+
+https://collider.com/x-men-97-season-2-gambit-resurrection-horseman-of-death-comics-explanation/
+
+X-Men '97 has delivered the resurrection fans have been waiting for, and it has ties to a long-forgotten comic book storyline.
+---------
+
+# Guns N' Roses Took the World by Storm with This Game-Changing 1987 Classic
+
+Music Features, Guns N' Roses, Music
+
+Wed, 22 Jul 2026 22:11:14 GMT
+
+https://collider.com/guns-n-roses-welcome-to-the-jungle-1987-hit/
+
+Guns N' Roses' "Welcome to the Jungle" wasn't a hit out of the gate, but eventually put Axl, Slash, Duff, and Izzy on the map.
+---------
+
+# 9 Must-Watch Shows To Enjoy After You Finish Netflix's 'The Hawk'
+
+TV, The Hawk, Ted Lasso, Eastbound & Down, Chad Powers
+
+Wed, 22 Jul 2026 22:03:14 GMT
+
+https://collider.com/tv-shows-like-the-hawk-netflix/
+
+Ted Lasso, Eastbound & Down, and The Fall and Rise of Reggie Dinkins are perfect to watch after you finish watching Netflix's sports comedy The Hawk.
+---------
+
+# Paul Wesley Reveals Why Kirk Genuinely Loves Spock in 'Strange New Worlds' Season 4
+
+TV News, Star Trek: Strange New Worlds, Star Trek
+
+Wed, 22 Jul 2026 22:35:46 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-kirk-loves-spock/
+
+'Star Trek' fans can expect Kirk and Spock's friendship to deepen in 'Strange New Worlds' Season 4.
+---------
+
+# Netflix Scores Big With Will Ferrell's Divisive New Netflix Series
+
+TV News, The Hawk, Netflix
+
+Wed, 22 Jul 2026 22:00:12 GMT
+
+https://movieweb.com/the-hawk-will-ferrell-netflix-chart-july-2026/
+
+Will Ferrell takes the lead for the first time on TV.
+---------
+
 # Doctor Who Meets Severance In Disney+'s 2-Part Sci-Fi Series
 
 Streaming TV, Masked Recs
@@ -5232,268 +5496,4 @@ Tue, 21 Jul 2026 15:41:33 GMT
 https://movieweb.com/kung-fu-soccer-china-box-office/
 
 Stephen Chow's long-awaited martial arts comedy sequel, Kung Fu Soccer, surpasses expectations with record-breaking box office numbers in China, reviving the summer movie season.
----------
-
-# Gillian Anderson Makes Surprise Return as Scully for New 'X-Files' Release
-
-TV News, The X-Files, LEGO, Gillian Anderson
-
-Tue, 21 Jul 2026 15:29:03 GMT
-
-https://movieweb.com/gillian-anderson-x-files-lego/
-
-The truth (and the merchandise) is out there.
----------
-
-# 10 Most Brutal Revenge Movies of All Time
-
-Movie Lists
-
-Tue, 21 Jul 2026 15:11:59 GMT
-
-https://movieweb.com/most-brutal-revenge-movies/
-
-Revenge always gets messy, but these films push the boundries to create unforgettable thrillers.
----------
-
-# Netflix's 95-Minute Action Thriller Crowned One of the Biggest Streaming Hits of 2026
-
-Movie News, Apex, Netflix, Action, Thriller
-
-Tue, 21 Jul 2026 15:00:12 GMT
-
-https://movieweb.com/netflix-apex-biggest-action-thriller-streaming-july-2026/
-
-Hunt... or be hunted.
----------
-
-# Sydney Sweeney's Blockbuster Netflix Sci-Fi Action Adaptation Officially Crosses Major Milestone
-
-Movie News, Sydney Sweeney, Gundam, Mobile Suit Gundam
-
-Tue, 21 Jul 2026 14:43:28 GMT
-
-https://movieweb.com/sydney-sweeney-gundam-netflix-finished-production/
-
-Sydney Sweeney's blockbuster sci-fi action adaptation from Netflix just crossed a major milestone.
----------
-
-# Supernatural's 2026 Return Already Looks Better Than Season 16
-
-Classic TV, Supernatural
-
-Tue, 21 Jul 2026 14:30:11 GMT
-
-https://screenrant.com/supernatural-2026-return-comics-better-than-season-16/
-
-In this day and age, Supernatural's new upcoming Sam and Dean series is a safer return for the franchise than the highly anticipated 16th season.
----------
-
-# Avengers: Doomsday Just Debunked A Major Fan Theory, And Nobody Noticed
-
-Movies, Avengers: Doomsday
-
-Tue, 21 Jul 2026 14:30:11 GMT
-
-https://screenrant.com/avengers-doomsday-debunk-fan-theory-dr-doom-voice/
-
-One of the biggest Doomsday theories is finally dead.
----------
-
-# Sydney Sweeney’s 47-Year-Old Space Opera Adaptation Reportedly Gets Major Production Update
-
-Movies, Gundam
-
-Tue, 21 Jul 2026 14:29:15 GMT
-
-https://screenrant.com/sydney-sweeney-gundam-netflix-filming-update/
-
-Sydney Sweeney is heading to Netflix, as a 47-year-old star-studded live-action space opera has reportedly had a major production update.
----------
-
-# Batman Officially Returns For Brand-New Video Game
-
-Gaming, Batman, Triple-A Games
-
-Tue, 21 Jul 2026 14:24:08 GMT
-
-https://screenrant.com/batman-returns-new-video-game-dcko/
-
-The Arkham series helped put Batman back on the map, and now the Caped Crusader is returning for another game, which is out later this year.
----------
-
-# Steam Drops 3 Free Downloads You Have Until July 27 To Claim
-
-Gaming, Steam, Triple-A Games
-
-Tue, 21 Jul 2026 14:05:39 GMT
-
-https://screenrant.com/steam-3-free-stickers-train-fest-july-27/
-
-If you act before July 27 rolls around, you can grab three free downloads on Steam, but make sure that you mark your calendar before you miss it.
----------
-
-# Taylor Sheridan's Lead Dutton Ranch Star Signed For 2 Seasons After Filming Frustration: "Get Me The F--k Out Of Here"
-
-TV, Dutton Ranch, Yellowstone
-
-Tue, 21 Jul 2026 14:00:41 GMT
-
-https://screenrant.com/taylor-sheridan-dutton-ranch-season-2-plan-filming-issues-ed-harris/
-
-In a moment of candidness, a major Dutton Ranch lead star revealed his true feelings about Taylor Sheridan's Yellowstone sequel on Paramount+.
----------
-
-# 6 Fights Fans Need To See in Mortal Kombat III
-
-Movies, Mortal Kombat, Mortal Kombat III, Mortal Kombat II, Mortal Kombat: Annihilation
-
-Tue, 21 Jul 2026 14:00:11 GMT
-
-https://screenrant.com/mortal-kombat-3-movie-fights-we-want-to-see/
-
-There's all sorts of interesting matchups from the games that could get recreated in live-action if Mortal Kombat III does indeed happen.
----------
-
-# KPop Demon Hunters 2 Already Has The Perfect Jinu Replacement
-
-Movies, KPop Demon Hunters
-
-Tue, 21 Jul 2026 14:00:11 GMT
-
-https://screenrant.com/kpop-demon-hunters-2-jinu-replacement/
-
-KPop Demon Hunters had the perfect villain in Jinu and the Saja Boys, but the upcoming sequel needs to move past his story in order to be great.
----------
-
-# Panels To Look Forward To At SDCC 2026
-
-Comic-Con, San Diego Comic-Con
-
-Tue, 21 Jul 2026 13:57:25 GMT
-
-https://screenrant.com/san-diego-comic-con-2026-movie-tv-show-marvel-panels/
-
-San Diego Comic-Con 2026 is full of the biggest panels and announcements from Marvel, DC, and more and ScreenRant will be covering them all.
----------
-
-# Hit New Turn-Based RPG Is Final Fantasy With Pirates
-
-Gaming, RPG, Final Fantasy, Indie, PC
-
-Tue, 21 Jul 2026 13:55:24 GMT
-
-https://screenrant.com/dead-weight-final-fantasy-with-pirates/
-
-A new turn-based RPG that is inspired by Final Fantasy, sky pirates, and Cthulhu-related themes has just been released, and you should check it out.
----------
-
-# All 7 Types of Rings in The Lord of the Rings, Ranked by Power
-
-Movies, The Lord of the Rings
-
-Tue, 21 Jul 2026 14:30:15 GMT
-
-https://www.cbr.com/lord-of-the-rings-most-powerful-rings-of-power-list/
-
-The One Ring was far from the only magical ring in J. R. R. Tolkien's The Lord of the Rings, so which were the most powerful in Middle-earth?
----------
-
-# 5 Underrated Fantasy Shows Based on Books
-
-TV, Good Omens, Fantasy, Shadow and Bone
-
-Tue, 21 Jul 2026 14:30:15 GMT
-
-https://www.cbr.com/underrated-fantasy-shows-based-on-book-list/
-
-Book-to-television adaptations have gotten more popular, but these five fantasy shows remain woefully underrated.
----------
-
-# 10 Transformers Villains Who Deserved a Redemption Arc
-
-Anime, Transformers
-
-Tue, 21 Jul 2026 14:15:15 GMT
-
-https://www.cbr.com/transformers-villains-deserved-redemption-arcs/
-
-Transformers is based around a battle between good and evil, but many of its villains have long held the potential to be heroes.
----------
-
-# MTV's 5-Season Comedy Drama Is Officially Heading to Free Streaming Next Month
-
-TV, Awkward., Comedy
-
-Tue, 21 Jul 2026 14:00:15 GMT
-
-https://www.cbr.com/awkward-mtv-pluto-tv-streaming-free-august-2026/
-
-MTV's Awkward is heading to Pluto TV, available to stream for free beginning August 1.
----------
-
-# 10 Saddest Batman Moments in DC History
-
-Comics, Batman
-
-Tue, 21 Jul 2026 14:00:15 GMT
-
-https://www.cbr.com/saddest-batman-moments-in-dc-history/
-
-Even a hero as tough as Batman sheds a tear.
----------
-
-# One Spider-Man Star Thought They Were Done With The Franchise: ‘Things Don’t Get To Last Forever’
-
-CBR Exclusives, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man: Homecoming, Spider-Man: Far from Home, Spider-Man: No Way Home, Spider-Man: Brand New Day
-
-Tue, 21 Jul 2026 13:54:22 GMT
-
-https://www.cbr.com/spider-man-star-thought-they-were-done-with-the-franchise/
-
-A vital piece of the Spider-Man franchise never thought they'd make it this far.
----------
-
-# 5 Strongest Weapons in Anime History, Ranked
-
-Anime, Jujutsu Kaisen, Death Note, Berserk
-
-Tue, 21 Jul 2026 13:15:15 GMT
-
-https://www.cbr.com/strongest-weapons-in-anime-history-ranked/
-
-The anime medium is home to extremely powerful heroes and villains, and the strongest characters can thank these weapons for their success.
----------
-
-# 30 Isekai Manga Protagonists Reincarnated Into Nobility
-
-Anime, Isekai, Manga, manhwa, My Next Life as a Villainess: All Routes Lead to Doom!, Why Raeliana Ended up at the Duke's Mansion
-
-Tue, 21 Jul 2026 13:15:15 GMT
-
-https://www.cbr.com/isekai-manga-protagonists-reincarnated-as-nobles/
-
-Just because a protagonist is reincarnated into nobility it doesn't mean that the road ahead of them is going to be easy.
----------
-
-# Everything We Know About Ted Lasso Season 4
-
-TV, Ted Lasso, Apple TV
-
-Tue, 21 Jul 2026 13:00:15 GMT
-
-https://www.cbr.com/ted-lasso-season-4-release-date-cast/
-
-Ted Lasso is coming back for Season 4 soon, and from what we know so far, the shift will shine the spotlight on another topical issue in sports.
----------
-
-# 5 Masterpiece Fantasy Movies With the Best Lore
-
-Movies, Fantasy, The Lord of the Rings, Princess Mononoke
-
-Tue, 21 Jul 2026 13:00:15 GMT
-
-https://www.cbr.com/fantasy-movies-with-the-best-lore-list/
-
-Lore is a key component to understanding and being able to enjoy fantasy movies, but these five masterful films do it better than any other.
 ---------
