@@ -1,3 +1,410 @@
+# Dungeons & Dragons Officially Makes Jimothy The Raccoon A Playable Character
+
+Gaming, Dungeons & Dragons, tabletop games
+
+Wed, 22 Jul 2026 16:11:21 GMT
+
+https://screenrant.com/dungeons-and-dragons-jimothy-raccoon/
+
+Dungeons & Dragons has added a beloved cryptid with a full stat block on D&amp;D Beyond for the newest viral internet sensation, Jimothy the raccoon.
+---------
+
+# Godzilla Announces Major Crossover With an Award-Winning Sci-Fi Franchise
+
+Comics, Godzilla
+
+Wed, 22 Jul 2026 16:05:55 GMT
+
+https://screenrant.com/godzilla-the-war-of-worlds-crossover-details/
+
+Godzilla has had some wild crossovers, but his next battle may be his strangest yet as the King of the Monsters faces a legendary sci-fi threat.
+---------
+
+# DC's New Clayface Trailer Reveals Batman Villain's Body Horror Origin Story
+
+Movies, Clayface, DC Universe, Batman
+
+Wed, 22 Jul 2026 16:02:55 GMT
+
+https://screenrant.com/clayface-dc-trailer/
+
+The wait for the second Clayface movie trailer is over, as DC Studios has shared more footage for the R-rated Batman film in James Gunn's DCU.
+---------
+
+# Marvel Debuts The King In Black's Avengers Team. All Members And Powers
+
+Marvel Comics, The Avengers
+
+Wed, 22 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/king-black-knull-avengers/
+
+Knull, the God of Symbiotes, forms his own Avengers squad to defeat Doctor Doom's hero team and cement his victory over the entire Marvel Universe.
+---------
+
+# Bleach: Echoes In The Blue Hollow Officially Announced
+
+Gaming, Bleach, Triple-A Games
+
+Wed, 22 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/bleach-echoes-in-blue-hollow-crossover-event/
+
+Bleach has been around for over two decades in TV form, and after all this time, the sequel series is ending later this year.
+---------
+
+# Stuart Fails To Save The Universe Review: Boldest Big Bang Theory Spinoff Falls Flat In Execution
+
+Network TV, Stuart Fails to Save the Universe, The Big Bang Theory
+
+Wed, 22 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/stuart-fails-to-save-the-universe-review/
+
+The Big Bang Theory takes a bold risk with Stuart Fails to Save the Universe's sci-fi story, but it ultimately underwhelms after its story execution.
+---------
+
+# 10 Years Ago, J.J. Abrams Saved His Best Star Trek Movie For Last
+
+Classic Movies, Star Trek, Star Trek Beyond
+
+Wed, 22 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/star-trek-beyond-best-movie-10-years-wasted/
+
+Star Trek Beyond, the last J.J. Abrams-produced Star Trek movie, was the closest in spirit to The Original Series, and the cast was wasted ever since.
+---------
+
+# 6 Best Sci-Fi Audiobooks With Perfect Narration
+
+Books, Sci-Fi
+
+Wed, 22 Jul 2026 15:58:23 GMT
+
+https://screenrant.com/best-sci-fi-audiobooks-perfect-narration/
+
+Classic sci-fi audiobooks that are must-listens.
+---------
+
+# Westworld Writer Officially Developing Horror Comic Book Adaptation With Arrowverse Boss
+
+TV, Prime Video
+
+Wed, 22 Jul 2026 15:53:42 GMT
+
+https://screenrant.com/amazon-stillwater-series-series-order-update/
+
+Prime Video orders a mind-bending Skybound graphic novel adaptation from a writer of Westworld and an executive producer of the Arrowverse.
+---------
+
+# X-Men '97's New Episode Introduces an A-List Villain You Probably Missed
+
+Streaming TV, X-Men '97
+
+Wed, 22 Jul 2026 15:46:02 GMT
+
+https://screenrant.com/x-men-97-new-episode-polaris-mystique/
+
+X-Men '97 just cleverly reintroduced Mystique.
+---------
+
+# Tubi Previews Adults-Only Breaking Bad Parody Ahead of This Week's Premiere
+
+TV, Breaking Bear
+
+Wed, 22 Jul 2026 16:01:14 GMT
+
+https://www.cbr.com/tubi-breaking-bear-exclusive-clip/
+
+EXCLUSIVE: Cooking a certain substance in the back of an RV goes awry when the batch inadvertently gets a special ingredient.
+---------
+
+# It's Official, The Odyssey's Most Controversial Casting Choice Was Its Best
+
+Movies, The Odyssey
+
+Wed, 22 Jul 2026 16:01:14 GMT
+
+https://www.cbr.com/the-odyssey-most-controversial-casting-choice-lupita-nyongo/
+
+Despite all the outcry against The Odyssey's casting choices, this actor's dual performance proves all the naysayers wrong.
+---------
+
+# X-Men Writer Reveals What Marvel Must Do to Redeem Its Fan-Favorite Team
+
+Comics, X-Men, gail simone, Marvel Comics
+
+Wed, 22 Jul 2026 16:01:14 GMT
+
+https://www.cbr.com/x-men-gail-simone-rules-to-follow-save-franchise/
+
+Comics Legend and current Uncanny X-Men scribe Gail Simone reveals her secret ingredient to writing for Marvel's mightiest mutants, and fans agree.
+---------
+
+# Furious Review: Emmy Rossum Elevates Hulu’s Gripping Crime Thriller
+
+TV, Furious, Hulu, Crime
+
+Wed, 22 Jul 2026 16:01:14 GMT
+
+https://www.cbr.com/furious-show-review/
+
+Creator Elizabeth Meriwether knocks it out of the park again with a crime series that evaluates how the system fails women on both sides of the coin.
+---------
+
+# Say Goodbye to HBO as the King of Fantasy as Amazon's Next Hit Shows Game of Thrones How It's Done
+
+TV, Game Of Thrones, Prime Video, Fantasy
+
+Wed, 22 Jul 2026 16:01:14 GMT
+
+https://www.cbr.com/amazon-powerless-rivals-hbo-game-of-thrones/
+
+Amazon's upcoming fantasy adaptation has a captivating premise, strong source material, and could dethrone HBO as the king of fantasy TV.
+---------
+
+# Stuart Fails to Save the Universe Review: Big Bang Theory’s Best Spinoff Yet
+
+TV, Stuart Fails to Save the Universe, The Big Bang Theory, HBO Max
+
+Wed, 22 Jul 2026 16:01:14 GMT
+
+https://www.cbr.com/stuart-fails-to-save-the-universe-review/
+
+The Big Bang Theory expands its universe with a sci-fi inspired sitcom that follows the uproarious adventures of Stuart Bloom and his friends.
+---------
+
+# Apple TV Wins Rights for TV Series Based on Unpublished Novel by Fourth Wing Author
+
+TV, Fourth Wing, Apple TV
+
+Wed, 22 Jul 2026 16:01:00 GMT
+
+https://www.cbr.com/apple-tv-rebecca-yarros-peculiar-stars-tv-adaptation/
+
+Although Fourth Wing is in development, more streaming platforms want a piece of the excitement.
+---------
+
+# Japan Reveals Its Top 10 Isekai Series of 2026 in Official Ranking
+
+Anime, Isekai, That Time I Got Reincarnated as a Slime
+
+Wed, 22 Jul 2026 15:20:14 GMT
+
+https://www.cbr.com/japan-top-10-isekai-manga-2026-reincarnated-as-a-slime/
+
+New sales stats fresh from Japan reveal which isekai franchise has made the greatest headway with fans in the first half of 2026.
+---------
+
+# Batman Officially Returns in New Game Coming in 2027
+
+Games, Batman, DCU
+
+Wed, 22 Jul 2026 15:16:14 GMT
+
+https://www.cbr.com/batman-officially-returns-in-new-game-coming-2027/
+
+Batman finally has a new game coming out in 2027, and it isn't a new entry in the Arkham series.
+---------
+
+# 5 Classic Anime That Shaped Dandadan
+
+Anime, Dandadan, Dragon Ball, Chainsaw Man
+
+Wed, 22 Jul 2026 15:16:14 GMT
+
+https://www.cbr.com/classic-anime-that-shaped-dandadan/
+
+Dandadan is one of the 2020s' biggest anime, but it owes some of its success to classic titles like Dragon Ball, Ranma 1/2, and Evangelion.
+---------
+
+# Steven Spielberg's 'Disclosure Day' Officially Unveils Look at Massive Train Sequence [Exclusive]
+
+Movie News, Disclosure Day, Steven Spielberg, Josh O'Connor, Emily Blunt
+
+Wed, 22 Jul 2026 16:00:14 GMT
+
+https://collider.com/disclosure-day-musical-train-scene/
+
+Discover the making of Spielberg's latest alien adventure in 'Disclosure Day,' featuring an exclusive look at the massive train sequence.
+---------
+
+# Hulu's 'Furious' Is an Unflinchingly Raw Crime Thriller | Review
+
+TV Reviews, Furious, Emmy Rossum, Hulu, Crime
+
+Wed, 22 Jul 2026 16:00:14 GMT
+
+https://collider.com/furious-hulu-review-emmy-rossum-lola-petticrew/
+
+Hulu's crime thriller Furious is buoyed by two unflinchingly raw performances from Emmy Rossum and Lola Petticrew and a fearless supporting cast.
+---------
+
+# 'Stuart Fails To Save The Universe' Is a More Mind-Bending Sci-Fi Spin-Off Than We Expected | Review
+
+TV Reviews, Stuart Fails to Save the Universe, The Big Bang Theory, HBO Max, Comedy
+
+Wed, 22 Jul 2026 16:00:14 GMT
+
+https://collider.com/stuart-fails-to-save-the-universe-review-hbo-max/
+
+Stuart Fails to Save the Universe centers The Big Bang Theory's most overlooked characters in a mind-bending multiverse sci-fi saga.
+---------
+
+# ‘Spider-Man: Brand New Day’ Director Teases a Darker MCU Story Thanks to The Punisher
+
+Exclusives, Spider-Man: Brand New Day, Destin Daniel Cretton, Tom Holland, Marvel
+
+Wed, 22 Jul 2026 15:51:15 GMT
+
+https://collider.com/spider-man-brand-new-day-director-destin-daniel-cretton-interview/
+
+Spider-Man: Brand New Day director Destin Daniel Cretton breaks down the film's gorgeous cinematography and how The Punisher introduces a darker tone.
+---------
+
+# Netflix Confirms New Release for Its Best Western Series Ahead of Season 2
+
+TV News, Untamed, Netflix, Eric Bana, Warner Bros. Television
+
+Wed, 22 Jul 2026 15:30:15 GMT
+
+https://collider.com/netflix-best-western-series-2020s-untamed-dvd-physical-release-date-in-3-months/
+
+Untamed, Netflix's breakout Western crime drama, returns in three months with a physical release courtesy of Warner Bros. Television.
+---------
+
+# ‘Daredevil: Born Again’ Season 3’s Latest Update Points to a Major Marvel Reveal
+
+TV Features, Daredevil: Born Again, Disney Plus, New York Comic Con, Spider-Man: Brand New Day
+
+Wed, 22 Jul 2026 15:28:26 GMT
+
+https://collider.com/daredevil-born-again-season-3-update-new-york-comic-con-reveal/
+
+The next season of Daredevil: Born Again is done filming, and a reveal at New York Comic Con could build momentum.
+---------
+
+# 'The Mandalorian & Grogu' Officially Surges to No. 1 as Instant Digital Hit in Just 24 Hours
+
+Movie News, The Mandalorian and Grogu, Star Wars, Prime Video, Apple TV
+
+Wed, 22 Jul 2026 15:10:14 GMT
+
+https://collider.com/the-mandalorian-and-grogu-vod-streaming-success-prime-video-july-2026-how-to-watch/
+
+Only one day after its VOD debut, The Mandalorian and Grogu is already one of the most popular movies in the world to watch at home.
+---------
+
+# 'The Walking Dead: Dead City' Finally Justifies Its Existence With a Stellar Season 3 | Review
+
+TV Reviews, The Walking Dead: Dead City, AMC, Jeffrey Dean Morgan, Lauren Cohan
+
+Wed, 22 Jul 2026 15:00:15 GMT
+
+https://collider.com/the-walking-dead-dead-city-season-3-review/
+
+The Walking Dead: Dead City delivers a stellar Season 3 that moves away from tired formulas and focuses on the strengths of its leads.
+---------
+
+# Netflix Officially Confirms the Arrival of the Best SEAL Team Series
+
+TV News, SEAL Team, David Boreanaz, Max Thieriot, Action
+
+Wed, 22 Jul 2026 14:54:57 GMT
+
+https://collider.com/seal-team-netflix-release-date-august-2026/
+
+SEAL Team officially joins Netflix in August 2026, bringing multiple seasons of the David Boreanaz-led military thriller to the streamer.
+---------
+
+# Netflix Scores Big With New 8-Part Fantasy Action Series Taking Over Streaming
+
+TV News, The East Palace, Hot on Streaming, Action, Fantasy, Netflix
+
+Wed, 22 Jul 2026 16:01:12 GMT
+
+https://movieweb.com/the-east-palace-fantasy-action-netflix-streaming-july-2026/
+
+Netflix's newest streaming hit is the perfect blend of historical drama, supernatural horror, fantasy, and action.
+---------
+
+# One of the Best Action Thrillers of All Time Is Available on YouTube For Free
+
+Features, Face/Off, YouTube
+
+Wed, 22 Jul 2026 16:01:12 GMT
+
+https://movieweb.com/face-off-action-thriller-youtube-free/
+
+The action thriller has excellent performances from two big names in Hollywood and was made by a talented, beloved director.
+---------
+
+# 'The Big Bang Theory' Action Sci-Fi Spin-Off Is a Rewarding Genre Change | Review
+
+TV Reviews, Stuart Fails to Save the Universe, The Big Bang Theory, Comedy, Sci-Fi, HBO Max, Kevin Sussman
+
+Wed, 22 Jul 2026 16:01:12 GMT
+
+https://movieweb.com/stuart-fails-to-save-the-universe-review/
+
+Math, science, history, Stuart Bloom is unraveling multiverse mysteries in the new 'Big Bang Theory' spin-off, 'Stuart Fails to Save the Universe.'
+---------
+
+# Will Smith's New Amazon Action Thriller Recruits Rebellious Netflix Star
+
+Movie News, Will Smith, AnnaSophia Robb, David Gordon Green
+
+Wed, 22 Jul 2026 15:44:46 GMT
+
+https://movieweb.com/annasophia-robb-will-smith-supermax/
+
+AnnaSophia Robb has officially joined Will Smith in 'Supermax,' David Gordon Green's Amazon MGM thriller heading to Prime Video.
+---------
+
+# The Real Role Sadie Sink Plays in 'Spider-Man: Brand New Day' Revealed by Director
+
+Movie News, Spider-Man: Brand New Day
+
+Wed, 22 Jul 2026 15:42:44 GMT
+
+https://movieweb.com/spider-man-brand-new-day-sadie-sink-character-role/
+
+The director behind the film spoke in depth about how her character is crucial to the story.
+---------
+
+# One of the Most Underrated War Movies Is Now 25 Years Old — and It's Set for New Release
+
+Movie News, Enemy At The Gates, War
+
+Wed, 22 Jul 2026 15:20:24 GMT
+
+https://movieweb.com/enemy-at-the-gates-4k-blu-ray-release/
+
+Paramount is celebrating the 25th anniversary of Jean-Jacques Annaud's underrated World War II epic 'Enemy at the Gates' with a 4K Blu-ray release.
+---------
+
+# 10 Best '90s Sci-Fi Movies About Aliens
+
+Movie Lists, Science Fiction, 1990s
+
+Wed, 22 Jul 2026 15:00:12 GMT
+
+https://movieweb.com/best-90s-sci-fi-movies-alien/
+
+The '90s gave us many great alien movies, and among them, the following are the ones you should prioritize.
+---------
+
+# After Slamming Christopher Nolan, Elon Musk Is Making His Own 'Odyssey'
+
+Movie News, The Odyssey, Elon Musk, Christopher Nolan
+
+Wed, 22 Jul 2026 14:37:34 GMT
+
+https://movieweb.com/elon-musk-grok-ai-odyssey-nolan/
+
+Elon Musk says Grok will make a 'historically accurate' AI 'Odyssey' by year's end, after slamming Christopher Nolan's record-breaking film.
+---------
+
 # Quentin Tarantino Inspired Assassin Action Series Confirms US Release Window
 
 TV, Quentin Tarantino
@@ -5089,411 +5496,4 @@ Mon, 20 Jul 2026 22:52:14 GMT
 https://collider.com/the-rookie-is-officially-changing-its-cast-in-season-9/
 
 The Rookie Season 9 will bring fresh energy and storylines to the series, as Miles graduates and a new recruit joins the LAPD.
----------
-
-# 'Scrubs' Revival Casting Update Confirms Which Stars Won't Return for Season 2
-
-TV News, Scrubs
-
-Mon, 20 Jul 2026 23:25:20 GMT
-
-https://movieweb.com/scrubs-season-2-cast-update/
-
-X Mayo and Joel Kim Booster won't be returning for Season 2 of the revival series.
----------
-
-# Alan Ritchson's Blockbuster Netflix Action Sequel Officially Sets Perfect New Title
-
-Movie News, War Machine
-
-Mon, 20 Jul 2026 23:03:47 GMT
-
-https://movieweb.com/alan-ritchsons-blockbuster-netflix-action-sequel-sets-perfect-new-title/
-
-The sequel to the hit 'War Machine' scored the perfect title: 'War Machines.'
----------
-
-# 'The Odyssey' Has Already Dethroned a Long-Awaited Sci-Fi Comeback at the Box Office
-
-Movie News, The Odyssey, Disclosure Day
-
-Mon, 20 Jul 2026 23:00:13 GMT
-
-https://movieweb.com/the-odyssey-beats-disclosure-day-global-box-office/
-
-Christopher Nolan's 'The Odyssey' has beaten another auteur filmmaker's anticipated epic.
----------
-
-# 5 Movies Christopher Nolan Should Make After The Odyssey
-
-Movies, Masked Recs
-
-Mon, 20 Jul 2026 22:45:11 GMT
-
-https://screenrant.com/christopher-nolan-movies-after-the-odyssey/
-
-Christopher Nolan's The Odyssey has set the bar even higher for his next movie, and there are already some interesting options for that next project.
----------
-
-# 6 Most Banned YA Books Of All Time, Explained
-
-Books, The Perks of Being a Wallflower, Are You There God? It's Me, Margaret.
-
-Mon, 20 Jul 2026 22:35:11 GMT
-
-https://screenrant.com/banned-young-adult-fiction-explained/
-
-The most challenged Young Adult books ever.
----------
-
-# Every 90s Kid Needs to See What Sega Just Did With Sonic
-
-Comics, Sonic the Hedgehog
-
-Mon, 20 Jul 2026 22:30:11 GMT
-
-https://screenrant.com/sonic-hedgehog-godzilla-crossover-art-best/
-
-This Sonic vs Godzilla image is beyond cool.
----------
-
-# J. J. Abrams Is Switching Genres For His First Movie In 7 Years
-
-Movies, Masked Recs
-
-Mon, 20 Jul 2026 22:15:11 GMT
-
-https://screenrant.com/jj-abrams-new-movie-great-beyond-switch-genres/
-
-J. J. Abrams is best known for his science fiction movies, but after eight years away from the director's chair, he's dabbling in something new.
----------
-
-# It's Confirmed: Ash Returns With New Pokémon Anime Era In 2 Weeks
-
-Anime, Pokémon, Pokemon
-
-Mon, 20 Jul 2026 22:13:53 GMT
-
-https://screenrant.com/ash-return-pokemon-new-anime-era-disney-streaming-deal/
-
-After a long absence, Ash's original Pokémon era is finally returning to streaming in a big gift for every '90s kid.
----------
-
-# Prime Video's Upcoming Space Opera Will Be The Expanse With More Aliens
-
-Streaming TV, Masked Recs
-
-Mon, 20 Jul 2026 22:03:11 GMT
-
-https://screenrant.com/prime-video-mass-effect-series-the-expanse-with-aliens/
-
-Prime Video's ambitious upcoming sci-fi series has a lot in common with The Expanse, despite being adapted from a famous video game franchise.
----------
-
-# 37 Years Later, TNG's Best Episode Is Still Peak Star Trek
-
-TV, Star Trek: The Next Generation, Star Trek
-
-Mon, 20 Jul 2026 22:01:11 GMT
-
-https://screenrant.com/tng-best-episode-star-trek-greatest/
-
-In a groundbreaking episode, The Next Generation upended Star Trek tradition to grapple with the philosophical implications of AI and sentience.
----------
-
-# Final Fantasy Meets Star Trek In Perfect Square Enix JRPG Nobody Talks About
-
-Gaming, JRPG, RPG, Final Fantasy, PC, Triple-A Games
-
-Mon, 20 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/final-fantasy-meets-star-trek-perfect-square-enix-jrpg/
-
-There’s a remarkable JRPG released by Square Enix that nobody talks about, and it mixes elements from both Final Fantasy and Star Trek.
----------
-
-# 33 Years Later, Power Rangers Prepares to Change Genres in Its New Series
-
-Comics, Power Rangers
-
-Mon, 20 Jul 2026 21:56:11 GMT
-
-https://screenrant.com/power-rangers-unlimited-change-genre-heist-explained/
-
-Power Rangers is one of the most iconic action franchises ever, but now the series is taking a surprising step into a new genre.
----------
-
-# Robert Downey Jr.'s Most Important Marvel Chapter Begins Today
-
-Movies, Masked Recs
-
-Mon, 20 Jul 2026 21:45:11 GMT
-
-https://screenrant.com/robert-downey-jr-doomsday-marketing-begins/
-
-Robert Downey Jr. is an integral part of the fabric of the Marvel Cinematic Universe, and now the bell tolls for what will likely be his swansong.
----------
-
-# 10 Most Recognizable Anime Characters of All Time
-
-Anime, Pokemon, Dragon Ball, One Piece
-
-Mon, 20 Jul 2026 22:15:15 GMT
-
-https://www.cbr.com/most-recognizable-popular-anime-characters/
-
-Anime characters like Son Goku and Monkey D. Luffy are known and loved worldwide.
----------
-
-# Yellowstone's Divisive Spinoff Is Officially the Most-Watched Broadcast Show Despite 28% RT Audience Score
-
-TV, Marshals, Yellowstone, CBS
-
-Mon, 20 Jul 2026 22:00:14 GMT
-
-https://www.cbr.com/marshals-cbs-most-watched-broadcast-show/
-
-CBS's Yellowstone spinoff with divisive reviews, is the most-watched broadcast show, according to Nielsen ratings.
----------
-
-# Absolute Batman's Success Is Being Credited to a Surprising Gen Z Trend
-
-Comics, Absolute Batman
-
-Mon, 20 Jul 2026 22:00:14 GMT
-
-https://www.cbr.com/absolute-batman-scott-snyder-tiktok/
-
-Absolute Batman's meteoric rise to fame can be attributed to one major surprise.
----------
-
-# Prime Video's The Gatekeeper Is the Perfect Reacher Replacement
-
-Movies, Reacher, Prime Video
-
-Mon, 20 Jul 2026 22:00:14 GMT
-
-https://www.cbr.com/prime-video-the-gatekeeper-adaptation-perfect-reacher-replacement/
-
-If you're missing Alan Ritchson in Prime Video's Reacher, this upcoming action thriller adaptation is the perfect remedy.
----------
-
-# Netflix's Reboot of Beloved 39-Year-Old Sitcom Finally Unveils First Look Ahead of September Release
-
-TV, a different world, Netflix
-
-Mon, 20 Jul 2026 21:54:51 GMT
-
-https://www.cbr.com/netflix-first-look-a-different-world-trailer/
-
-After nearly four decades, a hit 1980s sitcom gets a modern reboot on Netflix.
----------
-
-# 'Big Bang Theory' Star Refuses to Return
-
-TV News, The Big Bang Theory, Jim Parsons, Sitcom, CBS
-
-Mon, 20 Jul 2026 22:45:14 GMT
-
-https://collider.com/the-big-bang-theory-spin-off-jim-parsons-sheldon-cooper-not-returning/
-
-Jim Parsons addresses whether he would return as Sheldon Cooper as The Big Bang Theory universe continues expanding with new spin-offs.
----------
-
-# Anya Taylor-Joy's New Apple TV Crime Thriller Is Completely Different From the Book It's Based On
-
-TV Features, Lucky, Apple TV, Anya Taylor-Joy, Annette Bening
-
-Mon, 20 Jul 2026 22:41:14 GMT
-
-https://collider.com/lucky-anya-taylor-joy-apple-tv-crime-thriller-book-differences/
-
-Anya Taylor-Joy's new Apple TV crime thriller Lucky diverges significantly from the original novel, but how do those changes impact the story?
----------
-
-# 3 Fantastic Movies You Need To Stream on Prime Video This Week (July 20-24)
-
-Movie, Prime Video, A Fistful of Dollars, How to Train Your Dragon, Weapons
-
-Mon, 20 Jul 2026 22:34:14 GMT
-
-https://collider.com/best-movies-prime-video-july-20-2026/
-
-How to Train Your Dragon, A Fistful of Dollars, and Weapons make up our list of the best movies to stream on Prime Video the week of July 20, 2026.
----------
-
-# ‘Supernatural’ Officially Returns With 2 New Spin-Offs for Sam & Dean
-
-Books and Comics News, Supernatural, Jared Padalecki, Jensen Ackles
-
-Mon, 20 Jul 2026 22:11:37 GMT
-
-https://collider.com/supernatural-dean-sam-winchester-spinoff-comics-october-2026/
-
-Supernatural launches separate Dean and Sam Winchester spin-offs this October, beginning an interconnected story that splits the brothers apart.
----------
-
-# Pokémon Officially Returns Next Month With Ash and Pikachu's New Adventure
-
-TV News, Pokémon, Pokémon 4Ever, Pokemon GO, Disney+
-
-Mon, 20 Jul 2026 22:09:05 GMT
-
-https://collider.com/pokemon-indigo-league-disney-plus-release-date/
-
-Pokémon: Indigo League comes to Disney+ next month, bringing all 52 episodes of Ash, Pikachu, Misty and Brock’s original Kanto adventure.
----------
-
-# NCIS Reveals First-Ever Recast Character in 31 Years in New Set Video
-
-TV News, NCIS, NCIS: New York, CBS, LL Cool J
-
-Mon, 20 Jul 2026 22:07:19 GMT
-
-https://collider.com/ncis-new-york-scott-caan-new-character-first-look/
-
-A familiar face returns to the NCIS universe as a new agent in the first look at CBS’ upcoming NCIS: New York spin-off.
----------
-
-# ‘Coyote vs. Acme’ Is Finally Getting the Premiere It Deserves [Exclusive]
-
-Movie News, Coyote Vs. Acme, Will Forte, Lana Condor, John Cena
-
-Mon, 20 Jul 2026 22:00:14 GMT
-
-https://collider.com/coyote-vs-acme-screening-san-diego-comic-con/
-
-Coyote vs. Acme is getting its first-ever public screening in San Diego this weekend. Here's how you can see it.
----------
-
-# 'Avengers: Doomsday' Is Officially Adapting the Greatest and Most Devastating Marvel Comics Storyline
-
-Movie Features, Avengers: Doomsday, Avengers: Infinity War, Avengers: Endgame, Avengers: Secret Wars
-
-Mon, 20 Jul 2026 21:53:14 GMT
-
-https://collider.com/avengers-doomsday-trailer-time-runs-out-comic-book-greatest-storyline/
-
-The official trailer for 'Avengers: Doomsday' confirms that it's heavily based on one comic book storyline that will shatter fans' hearts.
----------
-
-# Ryan Reynolds Confirms Deadpool’s Next Movie
-
-Movie News, Deadpool, Deadpool 2, Deadpool & Wolverine, Ryan Reynolds
-
-Mon, 20 Jul 2026 21:45:15 GMT
-
-https://collider.com/deadpool-4-ryan-reynolds-official-update/
-
-Ryan Reynolds confirms a fourth Deadpool film is in the works, hinting at exciting deep cuts from the character's history that could be featured.
----------
-
-# The Biggest Moment in the 'Avengers: Doomsday' Trailer is a Major Letdown
-
-Movie News, Avengers: Doomsday, Marvel Cinematic Universe
-
-Mon, 20 Jul 2026 22:11:44 GMT
-
-https://movieweb.com/avengers-doomsday-trailer-steve-rogers-return-disappointment/
-
-Although the ending of this first trailer is supposed to be exciting, reactions online have proven otherwise.
----------
-
-# Taylor Sheridan's 9-Part Western Spin-off Officially Becomes One of the Biggest Shows on Streaming
-
-TV News, Taylor Sheridan, Dutton Ranch, Yellowstone, Hot on Streaming
-
-Mon, 20 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/taylor-sheridan-dutton-ranch-streaming-hit-july-2026/
-
-The 'Yellowstone' franchise officially expands, and Taylor Sheridan continues to cement himself as the king of modern television.
----------
-
-# John Wayne's 54-Year-Old Western is the Most Accurate Wild West Film Ever
-
-Features, John Wayne, The Cowboys
-
-Mon, 20 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/cowboys-john-wayne-accurate-western/
-
-John Wayne's Western movie features a historically accurate yet controversial story that angered critics at the time
----------
-
-# Brie Larson & J.J. Abrams' New Monster Horror Movie Reveals Official Release Date
-
-Movies
-
-Mon, 20 Jul 2026 21:34:09 GMT
-
-https://screenrant.com/skeletons-brie-larson-jj-abrams-movie-release-date/
-
-A new monster horror movie starring the Academy Award-winning Brie Larson and produced by J.J. Abrams has revealed its official release date.
----------
-
-# 10 X-Men Characters X-Men '97 Finally Did Justice To
-
-Streaming TV, X-Men '97
-
-Mon, 20 Jul 2026 21:30:11 GMT
-
-https://screenrant.com/x-men-97-characters-finally-did-justice/
-
-Despite how popular the X-Men are, not everyone has received great mainstream showings, but X-Men '97 just changed that for these key characters.
----------
-
-# Marvel Confirms Avengers Team Rosters For Doomsday
-
-Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
-
-Mon, 20 Jul 2026 21:20:11 GMT
-
-https://screenrant.com/avengers-doomsday-team-rosters-characters-split/
-
-Avengers: Doomsday has multiple Avengers teams, and Marvel has confirmed the team rosters as the MCU crossover brings dozens of characters together.
----------
-
-# Netflix’s New 8-Part Dark Fantasy Thriller Is An Easy One-Night Binge
-
-Streaming TV, Masked Recs
-
-Mon, 20 Jul 2026 21:15:11 GMT
-
-https://screenrant.com/netflix-the-east-palace-series-must-watch/
-
-Netflix just dropped a new 8-part dark fantasy thriller series, and it's already becoming one of the best and easiest shows to binge-watch this week.
----------
-
-# John Wick Full Timeline Explained: When Each Movie & Spinoff Takes Place
-
-Movies, John Wick, Movie/TV Show Timelines
-
-Mon, 20 Jul 2026 21:00:12 GMT
-
-https://screenrant.com/john-wick-timeline-movies-spinoffs-explained/
-
-The John Wick films and spinoffs have been released over a span of ten years. The In-universe storyline has a surprisingly shorter timeline.
----------
-
-# HBO Has Found The Perfect Rings Of Power Rival
-
-TV, Masked Recs
-
-Mon, 20 Jul 2026 20:58:11 GMT
-
-https://screenrant.com/harry-potter-hbo-rings-of-power-rival/
-
-While HBO's upcoming show promises to be one of the biggest fantasy series ever, it may struggle to beat Prime Video's Rings of Power for one reason.
----------
-
-# Wicked Meets Alice In Wonderland In Disney's New Fantasy Movie Taking Over The U.S.
-
-Movies, Masked Recs
-
-Mon, 20 Jul 2026 20:30:11 GMT
-
-https://screenrant.com/descendants-wicked-wonderland-disney-plus-movie/
-
-Disney's latest fantasy movie has quickly taken over Disney+ and with good reason, as it's basically Wicked meets Alice in Wonderland.
 ---------
