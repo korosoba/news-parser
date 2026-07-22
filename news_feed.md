@@ -1,3 +1,322 @@
+# Kevin Feige Just Gave Us The Biggest Clue To How Avengers: Secret Wars Ends
+
+Movies, Avengers: Secret Wars, Marvel Cinematic Universe
+
+Wed, 22 Jul 2026 12:00:12 GMT
+
+https://screenrant.com/avengers-secret-wars-ending-kevin-feige-comment/
+
+Kevin Feige's comments about Avengers: Secret Wars and its story paints an interesting picture when it comes to the MCU movie's ending.
+---------
+
+# Rogue's 5 Greatest X-Men Designs That Are Basically Perfect
+
+Marvel Comics, X-Men
+
+Wed, 22 Jul 2026 12:00:12 GMT
+
+https://screenrant.com/rogue-greatest-designs-costumes-perfect/
+
+Rogue has changed styles drastically across her forty-five-year X-Men comic history, from her classic green-and-yellow suit to other bold redesigns.
+---------
+
+# Final Fantasy 10/10-2 HD Remaster Nintendo Switch 2 Impressions: Is It Worth Playing?
+
+Gaming, Final Fantasy X, Final Fantasy X-2, Final Fantasy
+
+Wed, 22 Jul 2026 12:00:12 GMT
+
+https://screenrant.com/final-fantasy-10-x2-remaster-switch-2-comparison/
+
+After various ports of Final Fantasy X/X-2 Remaster, the classic games have now arrived on Nintendo Switch 2, but is the latest version worth playing?
+---------
+
+# Pokémon Timeless Diamond & Spaceless Pearl Get Surprise Release
+
+Gaming, Pokemon, Pokemon Diamond and Pearl
+
+Wed, 22 Jul 2026 11:45:11 GMT
+
+https://screenrant.com/pokemon-timeless-diamond-spaceless-pearl-rom-hack/
+
+There are plenty of exciting Pokémon fan projects out there, but this could easily be one of the best of the bunch.
+---------
+
+# Children Of Time Adaptation Announced, 11 Years After The First Book
+
+Gaming, RPG, Sci-Fi, PC
+
+Wed, 22 Jul 2026 11:34:43 GMT
+
+https://screenrant.com/children-of-time-rpg-officially-announced/
+
+Children of Time officially returns with a new adaptation 11 years after the first book released, taking fans on an all-new adventure.
+---------
+
+# Final Fantasy 10 Free Download Released To Celebrate Game's 25th Anniversary
+
+Gaming, Final Fantasy X, Final Fantasy
+
+Wed, 22 Jul 2026 11:00:11 GMT
+
+https://screenrant.com/final-fantasy-10-25th-anniversary-album-download/
+
+Final Fantasy X is one of the more underrated entries in the series, and it's about to return with a very interesting new release.
+---------
+
+# Absolute Batman Reveals Most Unsettling Variant Cover Yet
+
+Comics, Absolute Batman, Batman
+
+Wed, 22 Jul 2026 12:01:15 GMT
+
+https://www.cbr.com/absolute-batman-23-clayface-variant-cover-unsettling/
+
+Even a hero as fearless as Absolute Batman would shudder at this variant cover.
+---------
+
+# Mitch Byrd, Guy Gardner Artist, Passes Away
+
+Comics, guy gardner
+
+Wed, 22 Jul 2026 11:37:02 GMT
+
+https://www.cbr.com/mitch-byrd-guy-gardner-artist-obituary/
+
+Mitch Byrd, who had a long career in comics, perhaps best known for his work on Guy Gardner: Warrior, has passed away
+---------
+
+# 6 Most Perfect TV Mysteries of All Time
+
+TV, Mystery, True Detective, Sherlock
+
+Wed, 22 Jul 2026 11:30:14 GMT
+
+https://www.cbr.com/best-tv-mystery-shows-all-time-list/
+
+These six shows stands as perfect TV mysteries of all time because they care way more about the "why" than the "who."
+---------
+
+# Apple TV's Godzilla Spinoff Officially Expands Its Cast With Ant-Man, Casual & The Fantastic Four Stars
+
+TV, Apple TV, Monarch: Legacy of Monsters, Godzilla
+
+Wed, 22 Jul 2026 11:00:15 GMT
+
+https://www.cbr.com/apple-tv-godzilla-legendary-monsterverse-spinoff-cast/
+
+Apple TV has big plans for its Legendary Monsterverse, and the new Godzilla spinoff adds some Hollywood heavyweights.
+---------
+
+# 10 Best Far Side Comics Featuring Amoebas, Ranked
+
+Comics, The Far Side
+
+Wed, 22 Jul 2026 11:00:15 GMT
+
+https://www.cbr.com/best-far-side-comics-featuring-amoebas/
+
+Amoebas take the spotlight in Gary Larson’s The Far Side, with hilarious panels turning single-celled organisms into comedic gold.
+---------
+
+# Forget John Wick, Keanu Reeves’ Best Action Hero Officially Returns After 35 Years
+
+Movie News, Keanu Reeves, Action, Point Break, Thriller
+
+Wed, 22 Jul 2026 12:01:15 GMT
+
+https://collider.com/keanu-reeves-point-break-theater-return-35th-anniversary/
+
+35 years later, Keanu Reeves and Patrick Swayze's legendary crime thriller Point Break is officially returning to theaters.
+---------
+
+# 10 Best Sci-Fi Thriller Books of All Time
+
+Books and Comics, Books, Sci-Fi, Thriller, Michael Crichton
+
+Wed, 22 Jul 2026 11:51:14 GMT
+
+https://collider.com/best-sci-fi-thriller-books-all-time-ranked/
+
+The Andromeda Strain, Neuromancer, and The Moon Is a Harsh Mistress are all among the best sci-fi thriller books ever written.
+---------
+
+# 'King of the Hill's Revival Just Made the Biggest Mistake With 2 Beloved Characters
+
+TV Features, King of the Hill, Mike Judge, Hulu, Animation
+
+Wed, 22 Jul 2026 11:49:14 GMT
+
+https://collider.com/king-of-the-hill-revival-dale-nancy-john-affair/
+
+King of the Hill Season 15 regrettably makes a bad decision, walking back decades of character development for Nancy and John.
+---------
+
+# 10 Greatest Sci-Fi Epic Movies of All Time
+
+Movie, Science Fiction, On the Silver Globe, 2001: A Space Odyssey, Terminator 2: Judgment Day
+
+Wed, 22 Jul 2026 11:36:14 GMT
+
+https://collider.com/best-sci-fi-epic-movies-all-time-ranked/
+
+Animated gems like Nausicaä of the Valley of the Wind and blockbuster masterpieces like Dune: Part Two are among the all-time best sci-fi epic movies.
+---------
+
+# Forget ‘Game of Thrones,’ One of the Best Fantasy Sagas Ever Told Officially Returns This Year
+
+TV News, Outlander, Sam Heughan, Caitriona Balfe, Fantasy
+
+Wed, 22 Jul 2026 11:30:14 GMT
+
+https://collider.com/outlander-complete-series-dvd-collection-release-date-september-24-2026/
+
+After eight seasons, Starz's hit time-travel romance series Outlander is officially returning this September with a groundbreaking new release.
+---------
+
+# The 25 Greatest Crime Movies of All Time, Ranked
+
+Movie, The Godfather, Goodfellas, Pulp Fiction
+
+Wed, 22 Jul 2026 11:16:14 GMT
+
+https://collider.com/best-crime-movies-of-all-time-ranked/
+
+From White Heat and The Godfather to Pulp Fiction and Uncut Gems, this is Collider's ranking of the best crime movies ever made.
+---------
+
+# 6 Most Thrilling Movies Released Since 2000, Ranked
+
+Movie, The Dark Knight, Sinners, Whiplash, Kill Bill: Vol. 1
+
+Wed, 22 Jul 2026 11:08:15 GMT
+
+https://collider.com/most-thrilling-movies-since-2000-ranked/
+
+Heart-pounding modern masterpieces like Sinners, Kill Bill Vol. 1, and Whiplash are all among the most thrilling movies released since 2000.
+---------
+
+# Alan Ritchson's Netflix Sci-Fi Sequel Officially Pulls a James Cameron Move
+
+Movie News, War Machine, Alan Ritchson, Netflix, Reacher
+
+Wed, 22 Jul 2026 11:00:15 GMT
+
+https://collider.com/alan-ritchson-netflix-sci-fi-war-machine-sequel-script-update-title-reveal/
+
+The sequel to Alan Ritchson's War Machine just got a massive update before he returns in Reacher Season 4 on August 12.
+---------
+
+# 8 Greatest Fantasy Book Trilogies of All Time
+
+Books and Comics, Books, Brandon Sanderson, Fantasy, His Dark Materials
+
+Wed, 22 Jul 2026 10:38:18 GMT
+
+https://collider.com/best-fantasy-book-trilogies-all-time-ranked/
+
+The best fantasy book trilogies include foundational, child-friendly efforts like His Dark Materials and mature, grimdark sagas like Broken Empire.
+---------
+
+# The Greatest Fantasy Franchise in Video Game History Officially Returns With New Release
+
+Gaming News, Final Fantasy, Square-Enix, PlayStation (Original), Nintendo Switch
+
+Wed, 22 Jul 2026 10:30:15 GMT
+
+https://collider.com/final-fantasy-x-25th-anniversary-new-release-playstation-nintendo-switch-2/
+
+Final Fantasy X, the groundbreaking 10th main entry in the series, celebrates its 25th anniversary with a new release courtesy of Square Enix.
+---------
+
+# Jason Statham's New Film From 'John Wick' Director Recruits Fellow Action Star
+
+Casting News, Jason Statham, Action, David Leitch
+
+Wed, 22 Jul 2026 12:02:24 GMT
+
+https://movieweb.com/jason-statham-stole-my-bike-cast-eddie-peng/
+
+The Stath's latest has also added a name from Guy Ritchie's 'The Gentlemen' to the fray.
+---------
+
+# Netflix’s Smash Hit Western Reboot Is So Good, You’ll Forget the Original
+
+Features, Little House on the Prairie, Netflix
+
+Wed, 22 Jul 2026 12:01:12 GMT
+
+https://movieweb.com/little-house-on-the-prairie-netflix-good-reboot/
+
+Netflix has a new Western reboot TV series that is much better than the original, which aired for several decades and was very popular.
+---------
+
+# Alan Ritchson Is Explosive in the Throwback '70s Revenge Thriller | Review
+
+Movie Reviews, Motor City, Alan Ritchson
+
+Wed, 22 Jul 2026 12:01:12 GMT
+
+https://movieweb.com/motor-city-review/
+
+Alan Ritchson takes vengeance in a late '70s action film 'Motor City' featuring minimal dialogue and a soundtrack of classic hits.
+---------
+
+# This Year's Biggest Surprise Hit Crowned #1 After Making 500X Its Budget at the Box Office
+
+Movie News, Obsession
+
+Wed, 22 Jul 2026 11:48:02 GMT
+
+https://movieweb.com/obsession-blu-ray-sales-chart-hit/
+
+Curry Barker's horror hit 'Obsession' is dominating the 4K UHD and Blu-ray sales rankings, holding the No. 1 and No. 2 spots on the bestseller chart.
+---------
+
+# Taylor Sheridan's 9-Part Western Sequel Crowned One of the Biggest Shows of 2026
+
+TV News, Dutton Ranch, Paramount Plus, Hot on Streaming, Taylor Sheridan, Yellowstone
+
+Wed, 22 Jul 2026 11:31:07 GMT
+
+https://movieweb.com/dutton-ranch-taylor-sheridan-streaming-success-nielsen-2026/
+
+Taylor Sheridan's fan-favorite new western series is one of the most-watched shows of the entire year.
+---------
+
+# Jackie Chan Is Back in First Look at Sequel to 40-Year-Old Classic Action Franchise
+
+Movie News, Jackie Chan, Action, Adventure, Martial Arts, Armour of God
+
+Wed, 22 Jul 2026 11:14:07 GMT
+
+https://movieweb.com/jackie-chan-first-look-armour-god-4-action/
+
+The action movie icon returns in new images and footage from his next death-defying martial arts adventure, 'Armour of God IV: Ultimatum.'
+---------
+
+# Jason Statham's 116-Minute Action Thriller Crowned One of Netflix’s Biggest Hits
+
+Movie News, Jason Statham, Action, Thriller, Sci-Fi, Netflix, Meg 2: The Trench
+
+Wed, 22 Jul 2026 11:00:12 GMT
+
+https://movieweb.com/jason-statham-netflix-meg-2-biggest-action-thriller-streaming-july-2026/
+
+The Stath faces the biggest threat of his hard-hitting action hero career.
+---------
+
+# Christopher Nolan Officially Changes the Real Meaning Of 'Dune 3'
+
+Features, Dune: Part Three, The Odyssey, Christopher Nolan
+
+Wed, 22 Jul 2026 11:00:12 GMT
+
+https://movieweb.com/dune-3-atreides-agamemnon-christopher-nolan/
+
+'Dune 3' is coming soon, and its story has been expanded upon by none other than Christopher Nolan.
+---------
+
 # PlayStation 6 Controller First Details Appear Online
 
 Gaming, PlayStation, PlayStation 6
@@ -5177,323 +5496,4 @@ Mon, 20 Jul 2026 19:30:11 GMT
 https://screenrant.com/star-wars-acolyte-lightsaber-bleeding-ninth-jedi/
 
 The Acolyte's lightsaber bleeding scene was incredibly divisive, but the upcoming Star Wars show The Ninth Jedi is doubling down on the lore change.
----------
-
-# Rick & Morty Officially Finds Its X-Files Spinoff Series
-
-TV, President Curtis, President Curtis - Season 1, Rick and Morty
-
-Mon, 20 Jul 2026 19:16:36 GMT
-
-https://screenrant.com/rick-morty-president-curtis-x-files-comparison-creator/
-
-EXCLUSIVE: Ryan Coogler may be working on an X-Files reboot, but Rick & Morty is about to debut its own version of the iconic sci-fi series.
----------
-
-# Avatar: The Last Airbender Sequel Makes Surprise Official Comeback in January 2027
-
-Anime, Avatar: The Last Airbender, The Legend of Korra
-
-Mon, 20 Jul 2026 20:05:15 GMT
-
-https://www.cbr.com/avatar-legend-of-korra-in-concert-global-release/
-
-One of the most beloved animated sequels of an entire generation is returning next year with a brand-new production that fans will absolutely adore.
----------
-
-# Marvel Officially Renames Doctor Doom Before Major MCU Debut
-
-Comics, Doctor Doom
-
-Mon, 20 Jul 2026 20:01:14 GMT
-
-https://www.cbr.com/doctor-doom-captain-latveria-godzilla-conquers-the-multiverse-1/
-
-Before the name "Doctor Doom" goes out of style...
----------
-
-# Marvel’s New Spider-Man Strategy Is 1 of the MCU's Most Historic Fumbles
-
-Movies, Spider-Man: Brand New Day, MCU, superheroes
-
-Mon, 20 Jul 2026 20:01:14 GMT
-
-https://www.cbr.com/spider-man-brand-new-day-peter-parker-college-mcu-mistake/
-
-Spider-Man: Brand New Day introduces a new strategy for the MCU's web-slinger that could doom the character forever.
----------
-
-# Untamed Is Finally Returning With New Release in 3 Months
-
-TV, Untamed
-
-Mon, 20 Jul 2026 19:32:45 GMT
-
-https://www.cbr.com/untamed-season-1-dvd-release/
-
-The series has been renewed for Season 2.
----------
-
-# Avengers: Doomsday Trailer Secretly Reveals How Steve Rogers Was Brought Back
-
-Movies, Marvel, Marvel Comics, MCU, Avengers: Doomsday, Avengers: Doomsday (2026), Loki
-
-Mon, 20 Jul 2026 19:09:36 GMT
-
-https://www.cbr.com/avengers-doomsday-steve-rogers-return-explained-trailer/
-
-The world finally knows how the MCU brought Steve Rogers back for Avengers: Doomsday.
----------
-
-# 5 Movies That Are Perfect for Fans of Dungeons & Dragons
-
-Movies, Dungeons and Dragons, Guardians of the Galaxy, Dungeons & Dragons: Honor Among Thieves, The Princess Bride
-
-Mon, 20 Jul 2026 19:00:15 GMT
-
-https://www.cbr.com/best-movies-for-dungeon-and-dragons-fans-list/
-
-Dungeons & Dragons remains as popular as ever and there are some movies that are perfect for fans of the TTRPG.
----------
-
-# Netflix’s Reboot of a Beloved 39-Year-Old Sitcom Is Already Getting Everything Right
-
-TV Features, a different world, Netflix, Sitcom, Series
-
-Mon, 20 Jul 2026 19:47:14 GMT
-
-https://collider.com/netflix-a-different-another-world-reboot-sequel-getting-everything-right/
-
-Netflix’s A Different World sequel is making all the right creative choices by continuing the story instead of remaking it.
----------
-
-# 'Assassin's Creed' Comes to Life in a Daring New World Record
-
-Gaming News, assassins creed, Assassin's Creed IV: Black Flag, Gaming, Video Game
-
-Mon, 20 Jul 2026 19:45:15 GMT
-
-https://collider.com/assassins-creed-leap-of-faith-world-record-lilou-ruel/
-
-Lilou Ruel recreates ‘Assassin’s Creed’s Leap of Faith with an 18.2-meter jump into hay, breaking a world record inspired by Black Flag Resynced.
----------
-
-# All 5 Bruce Willis and Samuel L. Jackson Movies, Ranked
-
-Movie, Die Hard: With a Vengeance, Pulp Fiction, Bruce Willis, Samuel L. Jackson
-
-Mon, 20 Jul 2026 19:41:14 GMT
-
-https://collider.com/bruce-willis-samuel-l-jackson-movies-ranked/
-
-There are five movies that both Bruce Willis and Samuel L. Jackson appeared in, including Unbreakable and Pulp Fiction, but which one is the best?
----------
-
-# 3 Fantastic Movies To Watch on Netflix This Week (July 20-24)
-
-Movie, Heartstopper Forever, Bugonia, American Graffiti, Netflix
-
-Mon, 20 Jul 2026 19:19:14 GMT
-
-https://collider.com/best-netflix-movies-watch-july-20-2026/
-
-Heartstopper Forever, Bugonia, and American Graffiti make up our list of the best Netflix movies to watch the week of July 20th, 2026.
----------
-
-# Prime Video’s ‘Bosch’ Replacement Officially Returns Without Titus Welliver
-
-TV News, Ballard, Bosch, Titus Welliver, Maggie Q
-
-Mon, 20 Jul 2026 19:16:15 GMT
-
-https://collider.com/ballard-season-2-sneak-peek-maggie-q-titus-welliver/
-
-Maggie Q shares an intense Ballard preview ahead of Season 2, though Titus Welliver is nowhere to be seen in the new footage.
----------
-
-# Netflix's 8-Part Harlan Coben Series Crowned One of the Biggest Thrillers of 2026
-
-TV News, I Will Find You, Hot on Streaming, Thriller, Netflix
-
-Mon, 20 Jul 2026 20:00:12 GMT
-
-https://movieweb.com/i-will-find-you-netflix-biggest-thriller-streaming-july-2026/
-
-The newest Harlan Coben adaptation has officially been crowned one of the biggest thrillers of 2026 in a new report released by Netflix.
----------
-
-# Disney+ Officially Moving Forward With Iconic Supernatural Adaptation for 2027 Release
-
-TV News, Afterlife With Archie, Disney+
-
-Mon, 20 Jul 2026 19:26:35 GMT
-
-https://movieweb.com/disney-plus-greenlights-afterlife-with-archie/
-
-Disney+ embraces the macabre with its upcoming adaptation of a horror graphic novel.
----------
-
-# 10 Netflix Original Anime That Are 10/10 Masterpieces
-
-TV Lists, Anime, Netflix
-
-Mon, 20 Jul 2026 19:00:12 GMT
-
-https://movieweb.com/netflix-anime-masterpieces/
-
-Netflix has many original anime TV series, and these are the best ones that every fan of the genre should watch.
----------
-
-# 'Scary Movie' Officially Confirms Digital Streaming Date
-
-Movie News, Scary Movie
-
-Mon, 20 Jul 2026 18:57:38 GMT
-
-https://movieweb.com/scary-movie-digital-release-date/
-
-The sixth instalment in the 'Scary Movie' franchise saw the Wayans brothers make a grand return.
----------
-
-# Game Of Thrones Meets Yellowstone In FX's 7-Part Crime Drama Series
-
-Classic TV, Masked Recs
-
-Mon, 20 Jul 2026 18:30:11 GMT
-
-https://screenrant.com/sons-of-anarchy-game-of-thrones-meets-yellowstone/
-
-FX's best crime drama series takes the best parts of Game of Thrones and Yellowstone, and like the latter, it also features Taylor Sheridan.
----------
-
-# 10 Movies To Watch If You Love Constantine
-
-Movies, Constantine, End of Days, Angel Heart, The Ninth Gate, Dogma, Legion, Stigmata, Blade, Van Helsing, The Devil's Advocate, The Prophecy
-
-Mon, 20 Jul 2026 18:30:11 GMT
-
-https://screenrant.com/movies-like-constantine-2005/
-
-There aren't many movies quite like Constantine, though some titles remain worthy watches if you're a fan of Keanu Reeves' iconic character.
----------
-
-# Avengers: Doomsday's Trailer Seemingly Confirms Biggest Loki Theory
-
-Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
-
-Mon, 20 Jul 2026 18:16:02 GMT
-
-https://screenrant.com/avengers-doomsday-loki-steve-rogers-theory-tease/
-
-Marvel's Avengers: Doomsday trailer brings back Tom Hiddleston's Loki, seemingly confirming the biggest theory related to the character's return.
----------
-
-# 5 Near-Perfect Shows To Watch On Netflix This Week (July 20–24)
-
-Streaming TV, Netflix, What to Watch on Netflix
-
-Mon, 20 Jul 2026 18:15:11 GMT
-
-https://screenrant.com/best-netflix-shows-watch-week-july-20/
-
-These 5 near-perfect Netflix shows are worth watching this week. They are all-time greats across various genres that all subscribers should check out.
----------
-
-# Timothy Olyphant’s Return In Netflix’s Adventures Of Cliff Booth Gets Disappointing New Update
-
-Movies, The Adventures of Cliff Booth, Once Upon a Time in Hollywood, Timothy Olyphant
-
-Mon, 20 Jul 2026 18:04:15 GMT
-
-https://screenrant.com/timothy-olyphant-adventures-of-cliff-booth-role-brief/
-
-Timothy Olyphant is reprising James Stacy in The Adventures of Cliff Booth, and he’s now revealing a disappointing update about his appearance.
----------
-
-# Spider-Man: Brand New Day Sets Peter Parker's Surrogate Brother After Iron Man's Death
-
-Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
-
-Mon, 20 Jul 2026 18:01:50 GMT
-
-https://screenrant.com/spider-man-brand-new-day-iron-man-replacement-punisher-jon-bernthal/
-
-EXCLUSIVE: Jon Bernthal, who is bringing the Punisher back to the MCU, shares how the Punisher replaces Iron Man in Spider-Man: Brand New Day.
----------
-
-# Buffy The Vampire Slayer’s Angel Spinoff Arrives in Just One Month
-
-Comics, Buffy the Vampire Slayer, Buffy The Vampire Slayer
-
-Mon, 20 Jul 2026 17:59:08 GMT
-
-https://screenrant.com/buffy-the-vampire-slayer-angel-spinoff-explained/
-
-Buffy the Vampire Slayer fans are in for a true treat as the countdown to Angel’s official spinoff begins, with the release now just one month away.
----------
-
-# Bleach Officially Returning With New Characters Designed By Tite Kubo
-
-Gaming, Mobile, Bleach
-
-Mon, 20 Jul 2026 17:58:51 GMT
-
-https://screenrant.com/bleach-mirrors-high-new-characters-tite-kubo/
-
-Bleach is following up on the Thousand-Year Blood War with a new series entry that is debuting a handful of new characters designed by Tite Kubo.
----------
-
-# Netflix’s Hit Series Untamed Officially Returns With Exciting New Release This October
-
-TV, Untamed
-
-Mon, 20 Jul 2026 17:55:08 GMT
-
-https://screenrant.com/untamed-season-1-dvd-release-date/
-
-Untamed's first season, featuring all six gripping episodes, is set to release on DVD this October, ahead of the highly anticipated second season.
----------
-
-# 20 Years Later, Kyle Chandler Is Revisiting His Friday Night Lights Role
-
-Streaming TV, Masked Recs
-
-Mon, 20 Jul 2026 17:30:11 GMT
-
-https://screenrant.com/friday-night-lights-kyle-chandler-hal-jordan-lanterns/
-
-Kyle Chandler is best known for playing Coach Taylor in Friday Night Lights, and now the superhero show Lanterns is letting him play a mentor again.
----------
-
-# Harlan Coben’s New Netflix Project Based on Hit Novel Series Gets Massive Cast Update
-
-TV, Untitled Myron Bolitar Series, Netflix
-
-Mon, 20 Jul 2026 18:29:15 GMT
-
-https://www.cbr.com/harlan-coben-netflix-myron-bolitar-cast-update/
-
-SNL, Bel-Air, Gotham, and Wednesday stars board Netflix's Harlan Coben series.
----------
-
-# 10 Perfect Gateway Anime for People Who Think They Hate Anime
-
-Anime, Fullmetal Alchemist: Brotherhood, Spy x Family, Odd Taxi
-
-Mon, 20 Jul 2026 18:16:14 GMT
-
-https://www.cbr.com/gateway-anime-for-people-who-hate-anime/
-
-People who think they hate anime all too often start off with the wrong anime, never realizing there are better options.
----------
-
-# Kevin Feige Admits The Tom Holland Movies 'Avoided' A Key Spider-Man Trait, But Brand New Day Leans Into It
-
-CBR Exclusives, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man: Brand New Day, tom holland
-
-Mon, 20 Jul 2026 18:06:35 GMT
-
-https://www.cbr.com/kevin-feige-admits-tom-holland-avoided-key-spider-man-trait-until-brand-new-day/
-
-One major piece of Spider-Man's canon ability is finally coming to Brand New Day, and it's not the one you think.
 ---------
