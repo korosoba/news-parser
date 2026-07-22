@@ -1,3 +1,135 @@
+# PlayStation 6 Controller First Details Appear Online
+
+Gaming, PlayStation, PlayStation 6
+
+Wed, 22 Jul 2026 09:33:49 GMT
+
+https://screenrant.com/playstation-6-controller-details-leaked-patent/
+
+Sony and PlayStation might be going through the ringer right now, but there's clearly still plenty going on behind the scenes.
+---------
+
+# Legend Of Zelda: Hero's Journey Teaser Officially Confirms 2027 Release
+
+Gaming, The Legend of Zelda
+
+Wed, 22 Jul 2026 09:05:24 GMT
+
+https://screenrant.com/legend-of-zelda-heros-journey-begins-2027/
+
+There are plenty of exciting releases going on around the 40th anniversary of The Legend of Zelda, and this is one of the coolest.
+---------
+
+# The 4-Season American Revolution Show Every History Buff Must Watch
+
+TV, TURN: Washington's Spies, AMC, History
+
+Wed, 22 Jul 2026 10:00:15 GMT
+
+https://www.cbr.com/amc-turn-must-watch-american-revolution-show/
+
+This unsung story of the American Revolution was ahead of its time and redefined historical dramas with its blend of espionage and family drama.
+---------
+
+# I'm Convinced 2 Iconic X-Men Die in Avengers: Doomsday
+
+Movies, Avengers: Doomsday, X-Men, MCU
+
+Wed, 22 Jul 2026 10:00:15 GMT
+
+https://www.cbr.com/avengers-doomsday-professor-x-magneto-death-x-men/
+
+Avengers: Doomsday may be gearing up to kill off two of the most iconic X-Men from the Fox Universe.
+---------
+
+# 5 Years Later, This Ridley Scott Crime Thriller Deserves a Second Chance
+
+Movie Features, Ridley Scott, Adam Driver, Lady Gaga, House of Gucci
+
+Wed, 22 Jul 2026 10:05:14 GMT
+
+https://collider.com/ridley-scott-house-of-gucci-second-chance/
+
+Ridley Scott's 2021 House of Gucci wasn't a hit, but its stylish design and great performances from Lady Gaga and Adam Driver deserve a second look.
+---------
+
+# Netflix Fast-Tracks New Harlan Coben Adaptation After 'I Will Find You's Success
+
+TV News, Untitled Myron Bolitar Series, Harlan Coben, I Will Find You, Netflix
+
+Wed, 22 Jul 2026 10:00:15 GMT
+
+https://collider.com/netflix-harlan-coben-adaptation-myron-bolitar-cast-chloe-fineman-ben-mackenzie/
+
+Netflix is moving full steam ahead with its next Harlan Coben adaptation of the author's long-running Myron Bolitar book series.
+---------
+
+# 7 Greatest Military Sci-Fi Movies of All Time
+
+Movie, Science Fiction, Edge of Tomorrow, Starship Troopers, Aliens
+
+Wed, 22 Jul 2026 09:39:14 GMT
+
+https://collider.com/best-military-sci-fi-movies-all-time-ranked/
+
+From the pure spectacle of Independence Day to the thrilling dread of Aliens, these wonderful movies feature the best militaristic sci-fi narratives.
+---------
+
+# 7 Greatest Adventure Movies of the Last 10 Years, Ranked
+
+Movie, Adventure, Project Hail Mary, Top Gun: Maverick, Everything Everywhere All at Once
+
+Wed, 22 Jul 2026 09:34:14 GMT
+
+https://collider.com/best-adventure-movies-last-10-years-ranked/
+
+Avengers: Endgame, Top Gun: Maverick, Project Hail Mary, Dune: Part Two, and more make up our list of the best adventure movies of the last 10 years.
+---------
+
+# Disney’s Biggest Sci-Fi Movie of 2026 Is Officially Just Months Away
+
+Movie News, Avengers: Doomsday, Superhero, Marvel, MCU
+
+Wed, 22 Jul 2026 09:30:14 GMT
+
+https://collider.com/avengers-doomsday-release-date-december-18-2026/
+
+Following its recently released trailer, Avengers: Doomsday is set to release in less than 200 days. Read on for more details.
+---------
+
+# The 15 Best Techno-Thriller Movies, Ranked
+
+Movie, Strange Days, Tenet, Source Code, Thriller
+
+Wed, 22 Jul 2026 09:24:14 GMT
+
+https://collider.com/techno-thriller-movies-best-ranked/
+
+The best techno-thriller movies blend technology and high-stakes drama to create gripping viewing experiences, as seen in Source Code and Breach.
+---------
+
+# The Best Sci-Fi Franchise of All Time Is Officially Getting a New Release
+
+Movie News, Terminator, Terminator 2: Judgment Day, The Terminator, Sci-Fi
+
+Wed, 22 Jul 2026 09:00:15 GMT
+
+https://collider.com/terminator-2-t800-optics-makinarium-studio-edition-collectible/
+
+Makinarium launches its first Studio Edition collectible with a hand-made T-800 Optics piece celebrating 35 years of Terminator 2.
+---------
+
+# Gerard Butler's Best Action Franchise Returns With Explosive First Trailer
+
+TV News, Has Fallen, Gerard Butler, Action, Thriller, Paris Has Fallen
+
+Wed, 22 Jul 2026 10:01:48 GMT
+
+https://movieweb.com/apollo-has-fallen-trailer/
+
+The action thriller spin-off series makes its streaming return.
+---------
+
 # Pokémon Officially Unveils Pikachu Redesign For Series' 30th Anniversary
 
 Gaming, Pokemon
@@ -5364,136 +5496,4 @@ Mon, 20 Jul 2026 18:06:35 GMT
 https://www.cbr.com/kevin-feige-admits-tom-holland-avoided-key-spider-man-trait-until-brand-new-day/
 
 One major piece of Spider-Man's canon ability is finally coming to Brand New Day, and it's not the one you think.
----------
-
-# Confirmed: DC Secretly Has Unreleased Batman Comics From Tony Daniel
-
-Comics, Batman
-
-Mon, 20 Jul 2026 18:00:15 GMT
-
-https://www.cbr.com/unreleased-dc-batman-comic-confirmed-tony-daniel/
-
-There is more Batman on the horizon than we expected.
----------
-
-# The Legend of Zelda Movie Just Got Its Biggest Sequel Tease Yet
-
-Movies, The Legend of Zelda, Nintendo, Video Games
-
-Mon, 20 Jul 2026 17:30:15 GMT
-
-https://www.cbr.com/the-legend-of-zelda-movie-sequel-tease-nintendo/
-
-A year before it hits theaters, Nintendo is already teasing a sequel to its live-action Legend of Zelda movie.
----------
-
-# 5 Detective Shows Smarter Than Sherlock
-
-TV, Sherlock, True Detective, Mystery
-
-Mon, 20 Jul 2026 17:30:15 GMT
-
-https://www.cbr.com/detective-shows-smarter-than-sherlock-list/
-
-While many consider the BBC's Sherlock to be the smartest show of its genre, plenty of detective series have a strong edge on it.
----------
-
-# Netflix's LEGO One Piece Finally Brings the Live-Action Cast Back in Its First Trailer
-
-Anime, One Piece, Netflix, LEGO
-
-Mon, 20 Jul 2026 17:24:13 GMT
-
-https://www.cbr.com/lego-one-piece-first-trailer-netflix/
-
-Netflix's live-action One Piece cast is back in the first trailer for a new LEGO animated special premiering Sept. 29.
----------
-
-# Paramount's Warner Bros. Takeover Officially Halted by Judge
-
-TV, paramount pictures
-
-Mon, 20 Jul 2026 17:22:06 GMT
-
-https://www.cbr.com/paramount-warner-bros-takeover-restriction-judge/
-
-After 12 states have officially filed a lawsuit against the merger, Paramount just got more bad news.
----------
-
-# Canon Events: Captain America Proved He Was Worthy While Standing Against His Government
-
-Comics, Canon Events, Captain America, Thor, Marvel
-
-Mon, 20 Jul 2026 17:15:15 GMT
-
-https://www.cbr.com/canon-events-steve-rogers-the-captain-weilds-thor-hammer-mjolnir-first-time/
-
-Steve Rogers' first time wielding Mjolnir was an incredibly iconic comic scene that remains linked to his rightful defiance against the US government.
----------
-
-# Lord of the Rings Meets Skyrim In New Open-World RPG
-
-Games, Role Playing Game, Video Games, The Elder Scrolls V: Skyrim, The Lord of the Rings
-
-Mon, 20 Jul 2026 17:15:15 GMT
-
-https://www.cbr.com/fatekeeper-lord-of-the-rings-skyrim-hybrid/
-
-A fascinating new open-world RPG is in early access on Steam, and it's got a lot in common with LotR and Skyrim.
----------
-
-# DC Has Crowned a New Box Office Disaster
-
-Movie News, Supergirl, Superman, DC
-
-Mon, 20 Jul 2026 18:45:14 GMT
-
-https://collider.com/supergirl-worst-dc-box-office-fourth-weekend/
-
-Supergirl has posted the worst fourth weekend in DC cinematic history as its worldwide box office stalls at $121 million.
----------
-
-# 9 Thrilling Shows To Watch if You Love Harlan Coben's 'I Will Find You'
-
-TV, I Will Find You, Harlan Coben, All Her Fault, His & Hers
-
-Mon, 20 Jul 2026 18:23:14 GMT
-
-https://collider.com/shows-like-harlan-coben-i-will-find-you/
-
-Peacock's All Her Fault, Netflix's The Beast in Me, and HBO's The Undoing are perfect to watch after you finish the Harlan Coben show I Will Find You.
----------
-
-# One of Netflix’s Best Teen Romances of All Time Ends With a Near-Perfect Movie
-
-Movie News, Heartstopper Forever, Netflix, Romance, Rotten Tomatoes
-
-Mon, 20 Jul 2026 18:16:14 GMT
-
-https://collider.com/netflix-heartstopper-forever-rotten-tomatoes-is-it-good/
-
-Heartstopper Forever, the final chapter of the beloved Netflix series, earns high praise from critics for its emotional, heartwarming conclusion.
----------
-
-# Minions & Monsters: The Hollywood Dream Turns Dark | Collider BTS
-
-Movie, Minions & Monsters
-
-Mon, 20 Jul 2026 18:16:14 GMT
-
-https://collider.com/video/minions-monsters-the-hollywood-dream-turns-dark-collider-bts/
-
-John Powell breaks down the music behind Minions & Monsters and reveals how he built one of his most intricate animated scores.
----------
-
-# Guillermo del Toro's 'Frankenstein' Is Returning With a Monster-Sized New Release
-
-Movie News, Guillermo del Toro, Jacob Elordi, Netflix, Frankenstein
-
-Mon, 20 Jul 2026 17:46:14 GMT
-
-https://collider.com/guillermo-del-toro-frankenstein-reborn-cut-blu-ray-4k-release-october-2026/
-
-Guillermo Del Toro's acclaimed horror adaptation Frankenstein is getting a 4K remastered director's cut with extended runtime and bonus content.
 ---------
