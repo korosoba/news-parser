@@ -1,3 +1,278 @@
+# Game Of Thrones: Rebellion Is The Beginning Of A Bold New Chapter
+
+Gaming, Game of Thrones, Game Of Thrones, House of the Dragon, PC
+
+Wed, 22 Jul 2026 05:00:11 GMT
+
+https://screenrant.com/game-of-thrones-conquest-rebellion-weekend/
+
+Game of Thrones: Rebellion will pit fans against each other in an epic final battle across Essos and kick off a bold new chapter for the franchise.
+---------
+
+# GTA 6 Official Story Length Is Dividing Fans
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Wed, 22 Jul 2026 05:00:11 GMT
+
+https://screenrant.com/gta-6-100-hours-leak-reaction/
+
+Grand Theft Auto 6 fans agree that the upcoming action-adventure game is unlikely to be short, but few are sure how they feel about its length.
+---------
+
+# Pokémon Fire Emerald Combines Kanto And Hoenn In One Game
+
+Gaming, Pokemon, Nintendo, Nintendo Switch 2, PC, Pokemon FireRed and LeafGreen
+
+Wed, 22 Jul 2026 04:30:11 GMT
+
+https://screenrant.com/pokemon-fire-emerald-kanto-hoenn-one-game/
+
+Pokémon Fire Emerald brings together the legendary regions of Kanto and Hoenn into one singular experience for fans to enjoy.
+---------
+
+# Steam Free Anime RPG Is A 220-Hour Monster Of A Game
+
+Gaming, Wuthering Waves, Steam, RPG
+
+Wed, 22 Jul 2026 04:00:15 GMT
+
+https://screenrant.com/steam-free-rpg-220-hour-wuthering-waves/
+
+This free anime RPG on Steam will give players 220-hours of content, making it the perfect game for those with plenty of time on their hands.
+---------
+
+# It's Time To Say Goodbye To Naruto's Newest Hokage
+
+Anime, Naruto, Boruto: Two Blue Vortex
+
+Wed, 22 Jul 2026 03:30:11 GMT
+
+https://screenrant.com/naruto-boruto-two-blue-vortex-shikamaru-hokage-no-more/
+
+One of the most tumultuous times in the Naruto franchise may just claim one of its most troubled Hokage ever.
+---------
+
+# Avengers: Doomsday Teased A Major Change For Loki's MCU Story
+
+Superheroes, Loki, Avengers: Doomsday, Marvel Cinematic Universe
+
+Wed, 22 Jul 2026 03:30:11 GMT
+
+https://screenrant.com/avengers-doomsday-major-loki-change-tva-mcu-story/
+
+Contrary to popular MCU theories, Avengers: Doomsday's first trailer reveals a surprising status quo change for Loki in the upcoming multiversal epic.
+---------
+
+# 5 Open-World Games That Are Better Than Skyrim
+
+Gaming, The Elder Scrolls V: Skyrim, Triple-A Games, PC
+
+Wed, 22 Jul 2026 03:00:11 GMT
+
+https://screenrant.com/5-open-world-games-better-than-skyrim/
+
+Skyrim has long since been the benchmark for great RPGs, but years after its release, several games have managed to surpass its iconic gameplay.
+---------
+
+# Netflix's New 12-Episode Horror Romance Is Already A Ratings Powerhouse
+
+TV, Netflix, Masked Recs
+
+Wed, 22 Jul 2026 02:30:11 GMT
+
+https://screenrant.com/netflix-spooky-in-love-horror-romance-ratings-streaming/
+
+July is a truly exciting month for Netflix subscribers, especially as this multifaceted hit is ready to keep audiences occupied through August.
+---------
+
+# The Next Chapter Of Avatar Is Only 4 Days Away, And It's A Big Missed Opportunity
+
+Movies, Avatar Aang: The Last Airbender, Avatar: The Last Airbender
+
+Wed, 22 Jul 2026 02:00:21 GMT
+
+https://screenrant.com/avatar-aang-last-airbender-missed-opportunity-theatrical-release/
+
+Avatar Aang: The Last Airbender is set for a limited theatrical release, but Paramount is missing out on a major opportunity with the franchise.
+---------
+
+# The Walking Dead: Dead City Season 3 Review: The Spinoff Finally Gets It Right
+
+TV, The Walking Dead: Dead City, The Walking Dead, AMC
+
+Wed, 22 Jul 2026 04:01:15 GMT
+
+https://www.cbr.com/the-walking-dead-dead-city-season-3-review/
+
+Dead City Season 3 gives Maggie and Negan a fresh mission, compelling new allies, and the spinoff’s strongest story yet.
+---------
+
+# Dragon Ball Confirms Gohan's Best Transformation Is No Longer Beast Gohan
+
+Anime, Dragon Ball, Dragon Ball Z, Dragon Ball Super
+
+Wed, 22 Jul 2026 03:59:14 GMT
+
+https://www.cbr.com/dragon-ball-gohan-greatest-form-poll-results/
+
+Gohan Beast may be the strongest form Goku's son achieves in Dragon Ball Super, but Dragon Ball just confirmed it's not his best in the eyes of fans.
+---------
+
+# The Vampire Lestat’s Sam Reid Explains His Connection to the Show’s Music
+
+CBR Exclusives, The Vampire Lestat
+
+Wed, 22 Jul 2026 03:58:29 GMT
+
+https://www.cbr.com/the-vampire-lestat-sam-reid-music-songs/
+
+Sam Reid discusses performing Lestat’s songs, their narrative arc and Daniel Hart’s work creating the show’s soundtrack.
+---------
+
+# Game of Thrones: The Moonlit Stalker Officially Revealed in New Update
+
+Games, Game Of Thrones, House of the Dragon
+
+Wed, 22 Jul 2026 03:55:28 GMT
+
+https://www.cbr.com/game-of-thrones-dragonfire-moonlit-stalker-update/
+
+A new dragon joins the fray in Game of Thrones: Dragonfire.
+---------
+
+# 10 Mecha Anime That Are Actually Horror Shows
+
+Anime, mecha, Neon Genesis Evangelion, Mobile Suit Gundam
+
+Wed, 22 Jul 2026 03:45:15 GMT
+
+https://www.cbr.com/mecha-anime-that-are-actually-horror-shows/
+
+Mecha anime are known for their intense drama, but some series veer directly into being horror shows.
+---------
+
+# 21 Years Later, Lex Luthor's Best Smallville Line Is Still the Greatest Supervillain Quote of All Time
+
+TV, Smallville, Lex Luthor, superheroes
+
+Wed, 22 Jul 2026 03:30:15 GMT
+
+https://www.cbr.com/best-lex-luthor-smallville-line-onyx/
+
+In a single line, Smallville conveys the nuances of a character-driven villain and the tragic inevitability of Lex Luthor's destiny.
+---------
+
+# The New DC Elseworlds Is Missing the Point of the Original
+
+Comics, DC Comics, DC Elseworlds, Batman
+
+Wed, 22 Jul 2026 03:30:15 GMT
+
+https://www.cbr.com/dcs-elseworlds-is-forgetting-what-made-the-original-so-great/
+
+Since DC released its Elseworlds imprint back in 1989, its out-of-continuity stories have grown too predictable, missing what made it great.
+---------
+
+# Hulu's King of the Hill Showrunner Addresses Future Plans for John Redcorn After Actor's Death
+
+TV, King of the Hill
+
+Wed, 22 Jul 2026 03:27:51 GMT
+
+https://www.cbr.com/hulu-king-of-the-hill-john-redcorn-future/
+
+King of the Hill's Showrunner clarifies the future of the John Redcorn character after the death of voice actor Jonathan Joss.
+---------
+
+# 5 Hardest Turn-Based RPGs of the 2020s
+
+Games, Wasteland, Darkest Dungeon, Shin Megami Tensei, Video Games
+
+Wed, 22 Jul 2026 03:15:15 GMT
+
+https://www.cbr.com/hardest-turn-based-rpgs-of-the-2020s/
+
+The 2020s ushered in a new era of great turn-based RPGs for gamers to enjoy, and these five titles proved that the genre is just as difficult as ever.
+---------
+
+# Man of War is John Wick Meets Saving Private Ryan
+
+Movies, Man of War, John Wick, Saving Private Ryan
+
+Wed, 22 Jul 2026 03:15:15 GMT
+
+https://www.cbr.com/man-of-war-is-john-wick-meets-saving-private-ryan/
+
+LaMonica Garrett, best known for his roles in 1883 and Special Ops: Lioness, lands his first major movie-star role in the VOD film Man of War.
+---------
+
+# 8 Most Unfairly Hated TV Characters of All Time, Ranked
+
+TV, Better Call Saul, Friends, How I Met Your Mother, Breaking Bad
+
+Wed, 22 Jul 2026 04:27:14 GMT
+
+https://collider.com/most-unfairly-hated-tv-characters-all-time-ranked/
+
+Skyler White, Elena Gilbert, Beth Dutton, Howard Hamlin, and more make up our list of the most unfairly hated TV characters of all time.
+---------
+
+# 10 Greatest Call of Duty Video Games
+
+Gaming, Video Game, Call of Duty: Modern Warfare, Call of Duty, Call of Duty: Black Ops
+
+Wed, 22 Jul 2026 04:14:14 GMT
+
+https://collider.com/best-call-of-duty-games-ranked/
+
+Call of Duty has produced 20 mainline titles throughout its history, but which games stand the test of time as being the absolute best in the saga?
+---------
+
+# This Forgotten Fantasy Book Masterpiece Will Hook You in Just 10 Pages
+
+Books and Comics, Books, Fantasy, Adventure, Action
+
+Wed, 22 Jul 2026 03:26:14 GMT
+
+https://collider.com/the-blade-itself-joe-abercrombie-forgotten-fantasy-book-first-law-trilogy/
+
+Joe Abercrombie's forgotten masterpiece, The Blade Itself—the first entry in the First Law trilogy—has 10 of the strongest opening pages in fantasy.
+---------
+
+# Netflix’s Gruesome New 8-Part Sci-Fi Thriller Just Hit 24.3M Hours Streamed
+
+TV Features, Human Vapor, Netflix, Series, Science Fiction
+
+Wed, 22 Jul 2026 03:11:15 GMT
+
+https://collider.com/netflix-human-vapor-24-million-hours-global-top-10-series/
+
+Netflix’s Human Vapor has reached 24.3 million viewing hours. Here’s why the Japanese sci-fi thriller is climbing Netflix’s charts.
+---------
+
+# Michael B. Jordan's 98-Minute Fantasy Adventure Movie Becomes One of Netflix's Biggest of All Time
+
+Movie News, Swapped, Michael B. Jordan, Netflix
+
+Wed, 22 Jul 2026 04:54:31 GMT
+
+https://movieweb.com/michael-b-jordan-swapped-netflix-top-10-all-time/
+
+And it could climb even higher on the charts.
+---------
+
+# 8 Perfect Thrillers With No Bad Seasons
+
+TV Lists, Thriller
+
+Wed, 22 Jul 2026 02:00:22 GMT
+
+https://movieweb.com/perfect-tv-thrillers-no-bad-seasons/
+
+These thriller TV shows, which streamed on platforms such as Netflix and Apple TV or aired on networks, have no bad seasons.
+---------
+
 # Millie Bobby Brown Pays Tribute To Late Godzilla Vs. Kong Co-Star Kaylee Hottle
 
 Movies, Millie Bobby Brown, Kaylee Hottle, Godzilla vs. Kong
@@ -5221,279 +5496,4 @@ Mon, 20 Jul 2026 18:10:32 GMT
 https://movieweb.com/megan-fox-jennifers-body-2-sequel-return/
 
 'Jennifer's Body 2' will reportedly film this fall and Fox is expected to return.
----------
-
-# Paramount Warner Bros. Merger Officially Paused in Latest Major Legal Hurdle
-
-Movie News, Paramount Plus
-
-Mon, 20 Jul 2026 18:05:22 GMT
-
-https://movieweb.com/paramount-warner-bros-merger-blocked/
-
-After a 12-state coalition argued the merger would violate antitrust laws, a judge granted a 14-day restraining order.
----------
-
-# Netflix's Remake of an Action Thriller Classic Is Officially One of the Biggest Streaming Hits
-
-TV News, Man on Fire, Netflix, Action, Thriller
-
-Mon, 20 Jul 2026 18:01:12 GMT
-
-https://movieweb.com/netflix-man-fire-most-watched-streaming-action/
-
-The series is now one of the biggest streaming smash hits of 2026.
----------
-
-# All Upcoming Vampire Movies To Sink Your Teeth Into in 2026 and Beyond
-
-Movie Lists, Horror
-
-Mon, 20 Jul 2026 18:01:12 GMT
-
-https://movieweb.com/vampire-movies-to-look-forward-to-in-2026/
-
-From tragic romantics to ruthless predators, there is plenty of vampire action on the way with new vampire movies in 2026 and beyond
----------
-
-# 'Rings of Power' Season 3 Officially Reveals First Look at Sauron in His Final Form
-
-TV News, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Fantasy
-
-Mon, 20 Jul 2026 17:25:37 GMT
-
-https://movieweb.com/lord-of-the-rings-of-power-season-3-sauron/
-
-Sauron (Charlie Vickers) finally assumes the mantle of the Dark Lord in 'The Lord of the Rings: The Rings of Power' Season 3.
----------
-
-# 'Avengers: Doomsday': 7 Easter Eggs & Hidden Details In Marvel's New Trailer
-
-Movie Lists, Avengers: Doomsday, MCU's Movie Order (2008 - 2019) - The Infinity Saga (Iron Man - Spider-Man: Far from Home)
-
-Mon, 20 Jul 2026 17:01:12 GMT
-
-https://movieweb.com/avengers-doomsday-trailer-easter-eggs-hidden-details/
-
-The trailer for 'Avengers: Doomsday' has finally be released online, and features plenty of reveals ahead of its December 18, 2026 releaase date.
----------
-
-# 10 Funniest Far Side Comics That Make Fun of Real People
-
-Movie Lists, The Far Side
-
-Mon, 20 Jul 2026 17:01:12 GMT
-
-https://movieweb.com/best-far-side-real-people/
-
-Gary Larson poked fun at plenty of different subjects, but these particular comic strips chose to target their humor at real people.
----------
-
-# Netflix Releases Next Trailer And Key Visual For One Piece's New 2-Part Series
-
-TV, Netflix, One Piece
-
-Mon, 20 Jul 2026 16:50:23 GMT
-
-https://screenrant.com/netflix-lego-one-piece-trailer-poster/
-
-One Piece's latest project is one of its most unusual yet exciting shows, and it just released a pair of thrilling teases ahead of a September debut.
----------
-
-# It's Official, Robert Downey Jr.'s Doctor Doom Is More Powerful Than Thanos
-
-Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
-
-Mon, 20 Jul 2026 16:45:11 GMT
-
-https://screenrant.com/avengers-doomsday-doctor-doom-more-powerful-thanos/
-
-Avengers: Doomsday has unveiled Robert Downey Jr.'s Doctor Doom, with Marvel confirming the villain is more powerful than Thanos in the process.
----------
-
-# Tangled Live-Action Set Photos Reveal First Look Inside Corona Castle As Filming Nears End
-
-Movies, Tangled
-
-Mon, 20 Jul 2026 16:41:27 GMT
-
-https://screenrant.com/tangled-live-action-set-photos-inside-corona-castle/
-
-Fans are getting an inside look at Tangled's remake, as new set photos display the controversial look at Corona Castle and its kingdom.
----------
-
-# Avengers: Doomsday Trailer Breakdown: 13 Major Moments And Exciting Reveals
-
-Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
-
-Mon, 20 Jul 2026 16:38:47 GMT
-
-https://screenrant.com/avengers-doomsday-trailer-breakdown-major-moments-and-exciting-reveals/
-
-Avengers: Doomsday's first full trailer has finally been released, featuring several major moments and reveals for the upcoming MCU crossover.
----------
-
-# 4 Years Later, This 3-Word Line Is Still The Most Devastating Quote In Star Wars History
-
-Streaming TV, Star Wars
-
-Mon, 20 Jul 2026 16:30:11 GMT
-
-https://screenrant.com/andor-kino-loy-cant-swim-devastating-star-wars-quote/
-
-In its nearly 50-year history, Star Wars has produced dozens of devastating quotes, but few have had as much of an impact as this recent one.
----------
-
-# Must-Play Soulslike May Release On Nintendo Hardware Sooner Than We Thought
-
-Gaming, Nintendo Switch 2, Stellar Blade, Triple-A Games
-
-Mon, 20 Jul 2026 16:19:22 GMT
-
-https://screenrant.com/stellar-blade-nintendo-switch-2-release-date-soon/
-
-2026 is an incredibly busy year for gaming, on Nintendo systems especially, and now a must-play soulslike is crowding into the lineup of releases.
----------
-
-# Avengers: Doomsday’s New Doctor Doom Scene Confirms A Surprising Design Choice
-
-Movies, Avengers: Doomsday, Marvel Cinematic Universe
-
-Mon, 20 Jul 2026 16:15:11 GMT
-
-https://screenrant.com/avengers-doomsday-new-doctor-doom-scene-design-choice/
-
-The new Avengers: Doomsday trailer weighs in on a fan argument that's been ongoing since Doctor Doom was first revealed for the MCU movie.
----------
-
-# New Free Steam Horror Is The Backrooms With Evil Teletubbies
-
-Gaming, Steam, Triple-A Games
-
-Mon, 20 Jul 2026 16:00:11 GMT
-
-https://screenrant.com/steam-free-horror-backrooms-meets-teletubbies/
-
-As fans wait for the avalanche of AAA games being released later in the year, you can pick something up now for free that will scratch a horror itch.
----------
-
-# Naruto Fans Won't Want To Miss July 30
-
-Movies, Masked Recs
-
-Mon, 20 Jul 2026 16:00:11 GMT
-
-https://screenrant.com/spider-man-brand-new-day-july-30-naruto-director/
-
-The Naruto franchise will have a lot to offer fans over the next few years, but for now, a July 30th theatrical release can show us what's to come.
----------
-
-# 7 Masterpiece Anime Fans Can Watch Completely For Free
-
-Anime
-
-Mon, 20 Jul 2026 16:00:11 GMT
-
-https://screenrant.com/masterpiece-anime-watch-free/
-
-The best anime for those on a budget.
----------
-
-# Kevin Feige Finally Addresses Adam Driver’s X-Men Villain Role
-
-Movies, Marvel, Marvel Comics, MCU, Avengers, Avengers: Doomsday, Avengers: Doomsday (2026), Avengers: Secret Wars
-
-Mon, 20 Jul 2026 16:39:01 GMT
-
-https://www.cbr.com/kevin-feige-marvel-finally-addresses-adam-drivers-x-men-villain-role/
-
-Marvel has finally broken their silence on the chaotic Adam Driver rumors.
----------
-
-# Riverdale Officially Returns With Horror Follow-Up on Disney+
-
-TV, Afterlife With Archie, Disney+, Archie Comics Publications
-
-Mon, 20 Jul 2026 16:29:55 GMT
-
-https://www.cbr.com/afterlife-with-archie-disney-plus-series-order/
-
-Riverdale is returning with an undead twist.
----------
-
-# Sauron Officially Returns in First Look at New Lord of the Rings 2026 Release
-
-TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Prime Video
-
-Mon, 20 Jul 2026 16:28:01 GMT
-
-https://www.cbr.com/the-lord-of-the-rings-the-rings-of-power-season-3-sauron-one-ring/
-
-The big bad of Middle-earth returns in 2026.
----------
-
-# Star Wars' 100% RT Anti-Boba Fett Show Beats Lucasfilm at Its Own Game
-
-TV, Star Wars, Star Wars: Maul - Shadow Lord, Sci-Fi, Disney+
-
-Mon, 20 Jul 2026 16:20:15 GMT
-
-https://www.cbr.com/star-wars-maul-shadow-lord-better-than-book-of-boba-fett/
-
-Lucasfilm has had its hits and misses in recent years, but its latest Star Wars show proves the franchise finally got this key story right.
----------
-
-# 10 Strongest Fusion Characters in Dragon Ball, Officially Ranked
-
-Anime, Dragon Ball, Akira Toriyama, shonen anime
-
-Mon, 20 Jul 2026 16:15:15 GMT
-
-https://www.cbr.com/strongest-dragon-ball-fusion-characters/
-
-Fusion is one of Dragon Ball's most powerful techniques, but some individuals are able to push it further than others and dominate on the battlefield.
----------
-
-# DCU Star's New 87-Minute Cyberpunk Sci-Fi Thriller Unveils New Explosive Clip Ahead of Release
-
-CBR Exclusives, frank grillo
-
-Mon, 20 Jul 2026 16:01:15 GMT
-
-https://www.cbr.com/frank-grillo-kill-code-clip-digital-release-july-2026/
-
-Exclusive: Ahead of Man of Tomorrow return, one DCU star has an action-packed cyberthriller on the way.
----------
-
-# 5 Greatest Sci-Fi Movie Trilogies Of All Time, Ranked
-
-Movies, Sci-Fi, Jurassic Park, Planet of the Apes, Back to the Future, Star Wars, Avatar
-
-Mon, 20 Jul 2026 16:01:15 GMT
-
-https://www.cbr.com/best-sci-fi-movie-trilogies-ranked-list/
-
-The sci-fi genre has included some of the most successful, acclaimed, and revolutionary movie trilogies in cinema history.
----------
-
-# After 7 Years, Kevin Feige Seals the Fate of Mahershala Ali's MCU Blade Reboot
-
-Movies, Blade, Marvel Cinematic Universe
-
-Mon, 20 Jul 2026 15:49:36 GMT
-
-https://www.cbr.com/mcu-blade-reboot-fate-kevin-feige/
-
-Marvel Studios president Kevin Feige addresses the fate of Mahershala Ali's Blade reboot seven years after its announcement.
----------
-
-# Sadie Sink Reveals Her Spider-Man Origin Story
-
-Movies, Spider-Man: Brand New Day
-
-Mon, 20 Jul 2026 15:33:55 GMT
-
-https://www.cbr.com/video/sadie-sink-reveals-her-spider-man-origin-story/
-
-Spider-Man: Brand New Day actor Sadie Sink opens up about joining the Marvel Cinematic Universe, her first Spider-Man movie experience, and the online speculation surrounding her role.
 ---------
