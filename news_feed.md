@@ -1,3 +1,344 @@
+# It’s Official, Taylor Sheridan Has Won Streaming
+
+Streaming TV, Taylor Sheridan
+
+Wed, 22 Jul 2026 20:30:11 GMT
+
+https://screenrant.com/taylor-sheridan-streaming-success-won/
+
+With hit series like Yellowstone and Landman, Taylor Sheridan is one of the biggest names in TV, and this week proves his streaming dominance.
+---------
+
+# Every MCU Movie & Show To Watch Before Spider-Man: Brand New Day
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Wed, 22 Jul 2026 20:30:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-marvel-movies-shows-watch-before/
+
+Spider-Man: Brand New Day is hitting theaters soon, and these are the MCU movies and shows that you should watch or rewatch before it does.
+---------
+
+# 5 Best Adaptations Of The Odyssey Not Made By Christopher Nolan
+
+Movies, The Odyssey
+
+Wed, 22 Jul 2026 20:30:11 GMT
+
+https://screenrant.com/the-odyssey-best-adaptations-not-christopher-nolan/
+
+Christopher Nolan is far from the first filmmaker to bring Homer's epic poem to the big screen. These are some of the best adaptations of The Odyssey.
+---------
+
+# Netflix's Chainsmoker Cat Is Ushering In A New Genre, And The Backlash Is Already Growing
+
+Anime, Netflix
+
+Wed, 22 Jul 2026 20:30:11 GMT
+
+https://screenrant.com/chainsmoker-cat-netflix-anime-new-genre/
+
+Netflix's new seinen slice-of-life anime is turning heads with only two episodes, but it also has fans completely divided.
+---------
+
+# The Odyssey Officially Crushes The Dark Knight To Break Major Christopher Nolan Record
+
+Movies, The Odyssey, The Dark Knight
+
+Wed, 22 Jul 2026 20:20:20 GMT
+
+https://screenrant.com/the-odyssey-crushes-dark-knight-break-christopher-nolan/
+
+The Odyssey has officially broken a major record for Christopher Nolan that was previously held by The Dark Knight in 2008.
+---------
+
+# Jurassic World Meets Lost In Apple TV's 2-Part Sci-Fi Series
+
+Streaming TV, Masked Recs
+
+Wed, 22 Jul 2026 20:15:11 GMT
+
+https://screenrant.com/monarch-legacy-of-monsters-jurassic-world-meets-lost/
+
+Apple TV's sci-fi series Monarch: Legacy of Monsters combines the massive monsters of Jurassic World with the compelling mystery box of Lost.
+---------
+
+# Inside Star Trek: Strange New Worlds Season 4: Cast & Showrunners Reveal New Details (Exclusive)
+
+Streaming TV, Cover Story, Star Trek, Star Trek: Strange New Worlds
+
+Wed, 22 Jul 2026 20:06:35 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-interview-cover-story/
+
+The cast and creators of Star Trek: Strange New Worlds reveal exclusive season 4 details, including Pike's future, Kirk, Spock, Scotty, and more.
+---------
+
+# John Wick Creator’s Gritty New Action Thriller Finally Releases On HBO Max Next Month
+
+Movies, Normal
+
+Wed, 22 Jul 2026 20:04:27 GMT
+
+https://screenrant.com/normal-hbo-max-streaming-release-date/
+
+The creator of John Wick directed an action thriller starring Bob Odenkirk that came out this year. Soon, it will be available to stream on HBO Max.
+---------
+
+# HBO Max's 3-Part Aquaman Series With Rare Perfect Rotten Tomatoes Score Is A Must-Watch
+
+TV, Masked Recs
+
+Wed, 22 Jul 2026 20:04:11 GMT
+
+https://screenrant.com/aquaman-hbo-max-dc-tv-show-must-watch/
+
+DC's Aquaman leads a three-part HBO Max series that has a rare perfect Rotten Tomatoes score, and it is a must-watch for fans of the superhero.
+---------
+
+# Pokémon Winds & Waves 13 New Regional Forms Ranked By Their Potential
+
+Gaming, Pokemon Winds and Waves, Pokemon, Triple-A Games
+
+Wed, 22 Jul 2026 20:00:11 GMT
+
+https://screenrant.com/pokemon-winds-waves-new-regional-forms-ranked/
+
+13 new regional variant forms for Pokémon in Winds and Waves have leaked, and based on that alone, some are already better than others.
+---------
+
+# Jude Law's 'Swashbuckling' 8-Episode Sci-Fi Show Is Already a Cult Classic
+
+TV, Star Wars, Star Wars: Skeleton Crew, Disney+, Sci-Fi
+
+Wed, 22 Jul 2026 20:30:14 GMT
+
+https://www.cbr.com/star-wars-skeleton-crew-modern-sci-fi-cult-classic/
+
+Jude Law has been in many great projects, but one of his best is a sci-fi series that's quickly become a cult classic.
+---------
+
+# 8 Greatest Fantasy Movie Battles of All Time
+
+Movies, Fantasy
+
+Wed, 22 Jul 2026 20:30:14 GMT
+
+https://www.cbr.com/best-fantasy-movie-battles-ever-list/
+
+Fantasy movies often have the best battles, but these sequences stand above all the rest.
+---------
+
+# 7 Classic Shonen Anime Every New Fan Needs to Watch at Least Once
+
+Anime, shonen anime, Yu Yu Hakusho, Dragon Ball Z, Naruto
+
+Wed, 22 Jul 2026 20:15:14 GMT
+
+https://www.cbr.com/classic-shonen-anime-every-new-fan-needs-to-watch/
+
+Classic shonen anime like Yu Yu Hakusho, Naruto, and Ranma 1/2 helped establish many tropes that now define this action-packed brand of storytelling.
+---------
+
+# Pokémon Leak Finally Reveals 100 Never-Before-Seen Designs After 20 Years
+
+Games, Pokemon, Pokemon Diamond and Pearl, Nintendo
+
+Wed, 22 Jul 2026 20:11:14 GMT
+
+https://www.cbr.com/pokemon-diamond-pearl-leak-documentary-cut-designs/
+
+A leaked documentary produced during the development of Pokémon Diamond & Pearl has surfaced online, revealing over 100 never-before-seen designs.
+---------
+
+# LEGO Officially Shuts Down 2 Avatar: The Last Airbender Sets
+
+Anime, Avatar: The Last Airbender, LEGO
+
+Wed, 22 Jul 2026 20:06:14 GMT
+
+https://www.cbr.com/lego-avatar-the-last-airbender-shut-down-july-2026/
+
+Two Avatar: The Last Airbender LEGO sets have officially been rejected despite achieving 10,000 supporters and reaching the Review stage.
+---------
+
+# The Rings of Power Season 3 Casts Galadriel's Missing Husband After 2 Seasons
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Prime Video
+
+Wed, 22 Jul 2026 20:00:36 GMT
+
+https://www.cbr.com/lotr-the-rings-of-power-celeborn-jamie-campbell-bower/
+
+A key figure from The Lord of the Rings finall arrive in The Rings of Power
+---------
+
+# In Just 1 Day, Universal's $533M Culmination to Hit Fantasy Franchise Turns Into Netflix Streaming Sensation
+
+Movies, Wicked: For Good, Wicked
+
+Wed, 22 Jul 2026 20:00:14 GMT
+
+https://www.cbr.com/wicked-for-good-fantasy-netflix-success-july-2026/
+
+The franchise grossed $1.2 billion and was a hit with audiences.
+---------
+
+# 5 Great Detective Shows Nobody's Talked About in Years
+
+TV, Crime, Dirk Gently's Holistic Detective Agency, The Chicago Code
+
+Wed, 22 Jul 2026 19:48:18 GMT
+
+https://www.cbr.com/best-forgotten-detective-shows-list/
+
+These exceptional detective shows have flown under the radar, but they offer gripping mysteries and compelling characters that deserve a second look.
+---------
+
+# Prime Video Orders New 8-Part Horror Series Based on Comic Book From Invincible's Publisher
+
+TV, Prime Video, Horror, Drama
+
+Wed, 22 Jul 2026 19:26:30 GMT
+
+https://www.cbr.com/prime-video-horror-series-comic-book-adaptation-stillwater/
+
+Prime Video has given the greenlight to Stillwater, a new horror series based on a comic book.
+---------
+
+# Chrono Trigger Meets Classic Final Fantasy in New RPG You Can Play for Free
+
+Games, Chrono Trigger, Final Fantasy, Dark Souls
+
+Wed, 22 Jul 2026 19:15:14 GMT
+
+https://www.cbr.com/chrono-trigger-meets-classic-final-fantasy-new-free-to-play-rpg/
+
+RPG fans who love Final Fantasy and Chrono Tigger absolutely must play the newest free entry into the genre.
+---------
+
+# 10 Heist Movies Worth Watching Over and Over
+
+Movie, Bullet Train, Inception, Ocean's Eleven, Inside Man
+
+Wed, 22 Jul 2026 20:28:14 GMT
+
+https://collider.com/heist-movies-worth-rewatching/
+
+Bullet Train, Ocean's Eleven, Thelma & Louise, Inception, and more make up our list of heist movies worth watching over and over.
+---------
+
+# Jake Johnson Reveals How He Inspired 'Drunk History' in Teaser for Mythical Kitchen's New Series [Exclusive]
+
+Exclusives, The Dink, Drunk History, Jake Johnson, YouTube
+
+Wed, 22 Jul 2026 20:15:03 GMT
+
+https://collider.com/jake-johnson-drunk-history-breaking-down-a-career-in-5-dishes-sneak-peek-mythical-kitchen/
+
+A new sneak peek from the latest episode of Mythical Kitchen's new series sees Jake Johnson reflecting on the origins of Drunk History. See it here!
+---------
+
+# 10 Greatest Gimmick Pokémon
+
+TV, Pokémon, Anime, Video Game, Adventure
+
+Wed, 22 Jul 2026 20:05:14 GMT
+
+https://collider.com/best-gimmick-pokemon-ranked/
+
+Great Pokémon like Shedinja, Mimikyu, and Eevee have unique gimmicks that separate them from all others, giving them a distinct edge in the franchise.
+---------
+
+# 'Incredibles 3' Officially Confirms Pixar Is Doubling Down on a Divisive Trend
+
+Movie News, Incredibles 3, Brad Bird, Animation, Pixar
+
+Wed, 22 Jul 2026 19:21:35 GMT
+
+https://collider.com/incredible-3-first-plot-details-no-time-jump-brad-bird/
+
+Incredibles creator Brad Bird officially confirms that the upcoming third movie will not age up its characters despite the long gap between movies.
+---------
+
+# 25 Years Later, ‘Harry Potter’ Is Heading Back to Hogwarts in a Major Way Ahead of HBO Reboot
+
+TV Features, Harry Potter, Harry Potter and the Sorcerer's Stone, HBO Max, Wizarding World
+
+Wed, 22 Jul 2026 19:08:14 GMT
+
+https://collider.com/harry-potter-hbo-reboot-sorcerers-stone-25-anniversary-celebration-details/
+
+Back to Hogwarts 2026 is more than a fan celebration — it’s Warner Bros.’ first major step toward relaunching Harry Potter ahead of HBO’s reboot.
+---------
+
+# Taylor Sheridan's Hit 'Yellowstone' Spin-Off Officially Sets New Release for August 25
+
+TV News, Marshals, Taylor Sheridan, Luke Grimes, CBS
+
+Wed, 22 Jul 2026 19:00:42 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-spin-off-marshals-blu-ray-release-date-august-25/
+
+Taylor Sheridan's mega-hit Yellowstone spin-off Marshals is officially returning this August with a brand-new release.
+---------
+
+# New 'Family Guy' Spin-Off Centered on Comedy Icon Officially Sets Voice Cast
+
+TV News, Family Guy, Kenan Thompson
+
+Wed, 22 Jul 2026 20:29:08 GMT
+
+https://movieweb.com/family-guy-stewie-spin-off-cast/
+
+The latest spin-off of 'Family Guy' now has an exciting list of cast members confirmed for voiceover roles.
+---------
+
+# Sacha Baron Cohen's New 'Ali G' Movie Officially Sets Release Date
+
+Movie News, Sacha Baron Cohen
+
+Wed, 22 Jul 2026 20:23:06 GMT
+
+https://movieweb.com/sacha-baron-cohen-new-ali-g-movie-release-date/
+
+The streetwear-clad character first debuted in British TV in 1998.
+---------
+
+# Forget 'Reacher,' This Bingeworthy 2-Season Crime Thriller Alternative Is a Global Streaming Hit
+
+TV News, Cross, Hot on Streaming, Crime, Thriller
+
+Wed, 22 Jul 2026 20:01:12 GMT
+
+https://movieweb.com/cross-global-streaming-hit-paramount-july-2026/
+
+It's not the first time you've seen this character brought to life, but it's certainly the best version yet.
+---------
+
+# Jason Statham Goes Full 'Die Hard' in New Look at Latest Action Thriller
+
+Movie News, Mutiny, Jason Statham
+
+Wed, 22 Jul 2026 19:57:26 GMT
+
+https://movieweb.com/jason-statham-die-hard-mutiny-poster/
+
+A new poster for 'Mutiny' parodies the iconic poster for 'Die Hard.'
+---------
+
+# Alan Ritchson's Unique New Action Thriller Releases With Solid Rotten Tomatoes Score
+
+Movie News, Motor City, Alan Ritchson
+
+Wed, 22 Jul 2026 19:50:40 GMT
+
+https://movieweb.com/motor-city-alan-ritchson-solid-rotten-tomatoes-score/
+
+The newest visceral action film starring the 'Reacher' actor has received a new batch of reviews.
+---------
+
 # Lucky: The Heist Hides Her Real Problem
 
 TV, Originals, Lucky
@@ -5155,345 +5496,4 @@ Tue, 21 Jul 2026 10:24:43 GMT
 https://screenrant.com/zelda-ocarina-of-time-remake-5-hour-demo/
 
 Experience a 5-hour playable demo of the fan-made The Legend of Zelda: Ocarina of Time Remake, created over 10 years before Nintendo's official remake
----------
-
-# Absolute Batman Art Sells For Ridiculous Price In Ludicrous Amount Of Time
-
-Comics, Absolute Batman, Batman
-
-Tue, 21 Jul 2026 12:01:14 GMT
-
-https://www.cbr.com/absolute-batman-23-variant-cover-art-sells-high-fast/
-
-Absolute Batman #23 Clayface Variant Cover Art Print For A Lot And Fast
----------
-
-# 10 DC Characters Who Could Solo the Entire Marvel Universe
-
-Comics, DC Comics
-
-Tue, 21 Jul 2026 12:01:14 GMT
-
-https://www.cbr.com/dc-characters-who-could-destroy-the-marvel-universe/
-
-Some of DC's most powerful characters may be able to sweep through the Marvel Universe and cause chaos in their wake.
----------
-
-# 10 Best Justice League Comics Ever Published
-
-Comics, Justice League, DC Comics, Superman
-
-Tue, 21 Jul 2026 11:45:15 GMT
-
-https://www.cbr.com/best-justice-league-comics-ever-published/
-
-Since 1960, the Justice League has served as DC Comics’ flagship superhero team, and has some near-flawless stories to prove it.
----------
-
-# David Boreanaz's 100% RT Crime Thriller Show Is Still Better Than Anything on Streaming
-
-TV, Bones, Crime, Thriller
-
-Tue, 21 Jul 2026 11:30:15 GMT
-
-https://www.cbr.com/bones-best-crime-thriller-show-streaming/
-
-David Boreanaz starred in one of the most celebrated crime thriller shows ever made, and it is still one of the best crime shows on streaming.
----------
-
-# The Vampire Lestat Boss Gives Thrilling Season 4 Update After Season 3 Finale
-
-TV, Interview with the Vampire, The Vampire Lestat
-
-Tue, 21 Jul 2026 11:01:14 GMT
-
-https://www.cbr.com/the-vampire-lestat-season-4-update-lestat-louis-future/
-
-The Vampire Lestat's third season ended with a massive cliffhanger, and the showrunner is ready to reveal what comes next.
----------
-
-# The Funniest Far Side Comics About Fashion, Ranked
-
-Comics, The Far Side
-
-Tue, 21 Jul 2026 11:01:14 GMT
-
-https://www.cbr.com/best-far-side-comics-about-fashion-ranked/
-
-Over the years, Gary Larson has toyed with the world of fashion on a few occasions, creating comical fashion puns or faux pas for The Far Side.
----------
-
-# 'The Odyssey's Spiritual Predecessor Surges to #1 on Streaming Despite Poor Reviews
-
-Movie News, Troy, The Odyssey, Christopher Nolan, Brad Pitt
-
-Tue, 21 Jul 2026 12:01:14 GMT
-
-https://collider.com/the-odyssey-spiritual-predecessor-troy-streaming-success-july-2026/
-
-Troy, the spiritual predecessor to The Odyssey starring Brad Pitt, is surging on streaming right now as Christopher Nolan's epic dominates theaters.
----------
-
-# 8 Forgotten Action Movies That Deserve to Be Rediscovered on Prime Video
-
-Movie, Action, Prime Video, The Jackal, Enemy of the State
-
-Tue, 21 Jul 2026 11:52:14 GMT
-
-https://collider.com/action-movies-prime-video-forgotten/
-
-From Red Sun to The Jackal, Spy Game to Enemy of the State, these forgotten action movies need to be rediscovered on Prime Video.
----------
-
-# All 15 Madonna Albums, Ranked
-
-Music Features, Madonna, Pop, Music, Madonna: Truth or Dare
-
-Tue, 21 Jul 2026 11:45:14 GMT
-
-https://collider.com/madonna-albums-ranked/
-
-With Madonna's Confessions II marking a significant comeback, we've marked every album by the Queen of Pop, from Like a Prayer to Ray of Light.
----------
-
-# Gerard Butler's Bloody 102-Minute Survival Thriller Is One of the Best on Prime Video
-
-Movie Features, Plane, Gerard Butler, Mike Colter, Prime Video
-
-Tue, 21 Jul 2026 11:31:14 GMT
-
-https://collider.com/gerard-butler-action-movie-streaming-prime-video-plane/
-
-Plane, starring Gerard Butler and Mike Colter, is the kind of throwback action-thriller that stands above most of what the genre has to offer.
----------
-
-# Fleetwood Mac's Most Beautiful Song Proved Christine McVie Was Their Greatest Songwriter
-
-Music Features, Fleetwood Mac, Music, Rock, Billboard Hot 100
-
-Tue, 21 Jul 2026 11:30:14 GMT
-
-https://collider.com/fleetwood-mac-christine-mcvie-greatest-songwriter-songbird/
-
-Christine McVie's heartfelt songwriting made her Fleetwood Mac's emotional core, reaching its peak with the timeless classic Songbird.
----------
-
-# ‘Red Dead Redemption 2’ Is Officially Getting the Expansion Fans Have Been Waiting For
-
-Gaming News, Red Dead Redemption 2, Rockstar Games, Western, Video Game
-
-Tue, 21 Jul 2026 11:30:14 GMT
-
-https://collider.com/red-dead-redemption-2-mexico-expansion-sadie-adler-new-story/
-
-Red Dead Redemption 2 is officially expanding into Mexico with a new release centered around Sadie Adler before GTA 6.
----------
-
-# Apple TV’s ‘Silo’ Season 3 Justified Its Most Controversial Twist in Only 3 Episodes
-
-TV Features, Silo, Apple TV, Rebecca Ferguson, Graham Yost
-
-Tue, 21 Jul 2026 11:18:14 GMT
-
-https://collider.com/apple-tv-silo-season-3-justified-controversial-twist-episodes/
-
-Apple TV's Silo Season 3 added an amnesia plotline that wasn't present in the books, but it's already proving to be a great change.
----------
-
-# 10 Greatest Video Game Masterpieces of the Last 50 Years
-
-Gaming, Video Game, Disco Elysium, The Elder Scrolls V: Skyrim, Elden Ring
-
-Tue, 21 Jul 2026 11:03:14 GMT
-
-https://collider.com/best-video-game-masterpieces-last-50-years-ranked/
-
-The video game medium has mainly taken shape in the last 50 years, thanks to triumphant masterpieces like Elden Ring, Super Mario World, and Skyrim.
----------
-
-# Jon Snow’s Official ‘Game of Thrones’ Return Delayed to 2027
-
-Gaming News, Game Of Thrones, Jon Snow, Kit Harington, House of the Dragon
-
-Tue, 21 Jul 2026 11:01:14 GMT
-
-https://collider.com/jon-snow-game-of-thrones-return-war-for-westeros-delayed-2027/
-
-Jon Snow's official Game of Thrones return in the new project War for Westeros has been delayed until 2027.
----------
-
-# 6 Best Vampire Movies Released Since 2020
-
-Movie, Sinners, Abigail, Nosferatu, Humanist Vampire Seeking Consenting Suicidal Person
-
-Tue, 21 Jul 2026 10:41:14 GMT
-
-https://collider.com/best-vampire-movies-since-2020-ranked/
-
-Sinners, Abigail, and Robert Eggers' Nosferatu remake are all among the best vampire movies released since the year 2020.
----------
-
-# CBS’ Near-Perfect Thriller Spin-Off Beats the Original at Its Own Game
-
-Features, NCIS
-
-Tue, 21 Jul 2026 12:00:12 GMT
-
-https://movieweb.com/ncis-origins-better-than-original/
-
-CBS has many popular dramas, action shows, and thrillers, and its best franchise has one perfect and memorable spin-off series.
----------
-
-# Amazon Scores Big as Jason Statham's New 107-Minute Action Thriller Shoots up Streaming Ranks
-
-Movie News, Shelter, Jason Statham, Hot on Streaming
-
-Tue, 21 Jul 2026 11:01:12 GMT
-
-https://movieweb.com/jason-statham-shelter-prime-video-global-streaming-july-2026/
-
-The white-knuckle thriller is one of two films Statham released in 2026.
----------
-
-# Robert De Niro's Underrated 28-Year-Old Action Thriller Still Holds Up
-
-Features, Robert De Niro
-
-Tue, 21 Jul 2026 11:01:12 GMT
-
-https://movieweb.com/robert-de-niro-underrated-classic-ronin/
-
-Robert De Niro's '90s action thriller, Ronin, is still as entertaining today as it was when it was first released.
----------
-
-# ABC's 'High Potential' Is Officially One of 2026's Most-Watched Shows
-
-TV News, High Potential, Kaitlin Olson
-
-Tue, 21 Jul 2026 10:58:53 GMT
-
-https://movieweb.com/high-potential-most-watched-broadcast-tv-2026/
-
-Nielsen's final 2025-26 figures confirm ABC's 'High Potential' as the third most-watched broadcast series, with 16 million viewers.
----------
-
-# All 13 Christopher Nolan Movies Ranked Worst To Best
-
-Movies, Christopher Nolan
-
-Tue, 21 Jul 2026 10:17:11 GMT
-
-https://screenrant.com/all-christopher-nolan-movies-ranked/
-
-Christopher Nolan is one of the most acclaimed, distinctive filmmakers of his generation. Here's our ranking of his films from worst to best.
----------
-
-# Mario Kart Double Dash Free Download Available To Grab Now
-
-Gaming, Mario Kart, Nintendo
-
-Tue, 21 Jul 2026 10:08:56 GMT
-
-https://screenrant.com/mario-kart-double-dash-nintendo-music-freebie/
-
-Nintendo has plenty going on that you could easily miss as a fan, including bringing Mario Kart to some important services.
----------
-
-# Witcher 4 Official Release Date Update Is Music To Our Ears
-
-Gaming, The Witcher, The Witcher 4
-
-Tue, 21 Jul 2026 09:39:54 GMT
-
-https://screenrant.com/witcher-4-release-date-development-updates/
-
-The Witcher 4 is on the way relatively soon, and the latest update on the development front is good news for fans.
----------
-
-# GTA 6 File Size Leaves Gamers Worried Following Official Update
-
-Gaming, Grand Theft Auto, Grand Theft Auto 6
-
-Tue, 21 Jul 2026 09:19:04 GMT
-
-https://screenrant.com/gta-6-file-size-official-rockstar-update/
-
-There's still a lot we don't know about GTA VI, but one confirmed piece of information has been more than enough to draw the ire of fans.
----------
-
-# Marvel’s Daredevil Is Finally Starring In His Own Game
-
-Gaming, tabletop games, Marvel
-
-Tue, 21 Jul 2026 08:00:11 GMT
-
-https://screenrant.com/marvel-champions-card-game-daredevil-echo-playable-expansion/
-
-While Spider-Man and the Avengers receive their epic blockbusters this year, the summer is starting with a new Daredevil and Echo adventure.
----------
-
-# 5 Sci-Fi Shows Better Than Battlestar Galactica
-
-TV, Battlestar Galactica, Star Trek: Deep Space Nine, The Expanse, 12 Monkeys, Person of Interest, Andor
-
-Tue, 21 Jul 2026 10:00:14 GMT
-
-https://www.cbr.com/sci-fi-shows-better-than-battlestar-galactica-list/
-
-The Battlestar Galactica reboot is one of the greatest series of all time, but in this golden age of sci-fi TV some shows better execute its concepts.
----------
-
-# Prime Video Is Officially Moving Away From Its Old Ad-Free Formula
-
-TV Features, Amazon, Prime Video, Amazon Studios, Amazon Freevee
-
-Tue, 21 Jul 2026 10:08:14 GMT
-
-https://collider.com/prime-video-ad-free-phaseout-ultra-new-plan/
-
-Prime Video is redefining its streaming tiers by offering ad-supported content as the baseline subscription and raising prices for ad-free viewing.
----------
-
-# 10 Comic Books Deaths That Changed the Medium Forever
-
-Books and Comics, comic books, Superhero, Marvel Comics, DC Comics
-
-Tue, 21 Jul 2026 10:06:14 GMT
-
-https://collider.com/comic-book-deaths-changed-medium-forever/
-
-The tragic deaths of characters like Gwen Stacy, Bruce and Martha Wayne, and even Superman marked a distinct before-and-after in comic book history.
----------
-
-# ‘Jurassic Park’ Meets ‘The Twilight Zone’ in Anne Hathaway’s Dinosaur Blockbuster Next Month
-
-Movie News, Anne Hathaway, The Odyssey, Sci-Fi, The End of Oak Street
-
-Tue, 21 Jul 2026 10:00:14 GMT
-
-https://collider.com/the-odyssey-anne-hathaway-end-of-oak-street-august-14/
-
-Anne Hathaway will return to theaters with a sci-fi movie next month, likely making a double feature with the actress possible with The Odyssey.
----------
-
-# It's Officially the End of an Era for John Wick on Streaming
-
-Movie Features, John Wick, Ballerina, Keanu Reeves, Chad Stahelski
-
-Tue, 21 Jul 2026 09:42:14 GMT
-
-https://collider.com/john-wick-leaving-hbo-july-31/
-
-John Wick is one of the most popular action franchises and will be leaving HBO at the end of July.
----------
-
-# 'The Odyssey' Has Demolished 2026's Biggest Flop in Just One Weekend
-
-Movie News, The Odyssey, Supergirl, Box Office, Christopher Nolan
-
-Tue, 21 Jul 2026 09:30:15 GMT
-
-https://collider.com/the-odyssey-box-office-264-million-supergirl-121-million/
-
-Christopher Nolan's The Odyssey has demolished box office records in just one weekend, more than doubling the total haul of 2026's biggest flop.
 ---------
