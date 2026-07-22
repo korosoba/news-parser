@@ -1,3 +1,69 @@
+# Pokémon Officially Unveils Pikachu Redesign For Series' 30th Anniversary
+
+Gaming, Pokemon
+
+Wed, 22 Jul 2026 07:25:07 GMT
+
+https://screenrant.com/pokemon-pikachu-30th-anniversary-world-championships-redesign/
+
+The Pokémon Company has unveiled two new redesigns for Pikachu, celebrating the franchise’s 30th anniversary, but access to them will be limited.
+---------
+
+# Star Trek: Strange New Worlds Season 4 Review - Get Ready For The Show's Most Adventurous Outing Yet
+
+Streaming TV, Star Trek: Strange New Worlds
+
+Wed, 22 Jul 2026 07:01:12 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-review/
+
+Star Trek: Strange New Worlds season 4 is the show's most episodic outing yet, as each new installment embraces an entirely new genre and setting.
+---------
+
+# Dungeons & Dragons Is Officially Getting A Brand-New Series
+
+Comics, Dungeons & Dragons
+
+Wed, 22 Jul 2026 07:00:11 GMT
+
+https://screenrant.com/dungeons-dragons-new-adventure-total-party-killers-comic/
+
+Dungeons & Dragons is receiving a brand-new series that sees adventurers all competing for a dead wizard's loot and contending with iconic monsters.
+---------
+
+# Star Trek: Strange New Worlds Season 4 Review: The Series Hits Its Peak
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Wed, 22 Jul 2026 07:00:15 GMT
+
+https://www.cbr.com/star-trek-strange-new-worlds-season-4-review/
+
+Strange New Worlds Season 4 blends classic Star Trek morality plays with horror, noir, and comedy in its penultimate season.
+---------
+
+# Star Trek’s Wildest Show Is Officially Its Most Frustrating | Review
+
+TV Reviews, Star Trek, Star Trek: Strange New Worlds, Paramount Plus, Sci-Fi
+
+Wed, 22 Jul 2026 07:00:14 GMT
+
+https://collider.com/star-trek-strange-new-worlds-season-4-review/
+
+Star Trek: Strange New Worlds Season 4 delivers big genre swings but falls short in terms of greater character development.
+---------
+
+# 'Dead City' Season 3 Is a Welcome Return to Form for the Zombie Thriller | Review
+
+TV Reviews, The Walking Dead: Dead City
+
+Wed, 22 Jul 2026 07:01:12 GMT
+
+https://movieweb.com/the-walking-dead-dead-city-season-3-review/
+
+The Walking Dead: Dead City Season 3 not also finally marks a truce between Maggie and Negan, but a redemption from the lackluster second season.
+---------
+
 # Game Of Thrones: Rebellion Is The Beginning Of A Bold New Chapter
 
 Gaming, Game of Thrones, Game Of Thrones, House of the Dragon, PC
@@ -5430,70 +5496,4 @@ Mon, 20 Jul 2026 17:46:14 GMT
 https://collider.com/guillermo-del-toro-frankenstein-reborn-cut-blu-ray-4k-release-october-2026/
 
 Guillermo Del Toro's acclaimed horror adaptation Frankenstein is getting a 4K remastered director's cut with extended runtime and bonus content.
----------
-
-# 'The Vampire Lestat's Delainey Hayles Reveals Which Scene Quietly Changes Everything on a Rewatch
-
-Exclusives, The Vampire Lestat, Interview with the Vampire, Delainey Hayles, AMC
-
-Mon, 20 Jul 2026 17:31:14 GMT
-
-https://collider.com/the-vampire-lestat-episode-7-finale-delainey-hayles-interview/
-
-Delainey Hayles discusses her pivotal scenes in The Vampire Lestat's finale, including which moment changes everything on a rewatch.
----------
-
-# Agatha Christie's 62% RT Whodunit Returns to Streaming Charts
-
-Movie News, Death on the Nile, Agatha Christie, Kenneth Branagh, Netflix
-
-Mon, 20 Jul 2026 17:15:15 GMT
-
-https://collider.com/agatha-christie-kenneth-branagh-death-on-the-nile-streaming-netflix-july-2026/
-
-Agatha Christie's mystery classic Death on the Nile, starring Kenneth Branagh and Gal Gadot, returns to streaming success on Netflix.
----------
-
-# 10 Horror Books That Are Perfectly Written
-
-Books and Comics, Horror, Stephen King, Clive Barker, Books
-
-Mon, 20 Jul 2026 17:14:14 GMT
-
-https://collider.com/horror-books-perfectly-written/
-
-The Hellbound Heart by Clive Barker, The Shining by Stephen King, and The Exorcist by William Peter Blatty are perfectly written horror books.
----------
-
-# The 10 Best Spin-Off Shows of All Time, Ranked
-
-TV, Spin-off, Better Call Saul, The Originals, Angel
-
-Mon, 20 Jul 2026 17:12:14 GMT
-
-https://collider.com/best-spin-off-shows-ranked/
-
-From Angel to The Simpsons, these are the best TV spin-offs that succeed by differentiating from and sometimes exceeding the original series.
----------
-
-# Gordon Ramsay Smells a Rat in the Midwest in 'Kitchen Nightmares' Season 10 Return [Exclusive]
-
-TV News, Kitchen Nightmares, Gordon Ramsay, Fox, Reality
-
-Mon, 20 Jul 2026 17:00:15 GMT
-
-https://collider.com/kitchen-nightmares-season-10-premiere-sneak-peek-gordon-ramsay/
-
-A new sneak peek at Season 10 of Kitchen Nightmares sees Gordon Ramsay confronting a serial liar with a kitchen that's never cleaned.
----------
-
-# Megan Fox Returning for Long-Awaited Sequel to Supernatural Cult Classic
-
-Movie News, Jennifer's Body, Megan Fox
-
-Mon, 20 Jul 2026 18:10:32 GMT
-
-https://movieweb.com/megan-fox-jennifers-body-2-sequel-return/
-
-'Jennifer's Body 2' will reportedly film this fall and Fox is expected to return.
 ---------
