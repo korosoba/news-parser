@@ -1,3 +1,322 @@
+# Lucky: The Heist Hides Her Real Problem
+
+TV, Originals, Lucky
+
+Wed, 22 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/video/lucky-the-heist-hides-her-real-problem/
+
+Lucky Review: Anya Taylor-Joy's Perfect Con Artist. Apple TV+'s Lucky drops Anya Taylor-Joy into the role she seems almost genetically engineered to play: a master manipulator who suddenly finds herself trapped inside someone else's game.
+---------
+
+# Netflix's New R-Rated Fantasy Series Deserves Its 100% Score On Rotten Tomatoes
+
+TV, Masked Recs
+
+Wed, 22 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/the-east-palace-netflix-fantasy-series-deserves-rotten-tomatoes-score/
+
+This unexpected choice sets Netflix's latest fantasy drama apart from other R-rated fantasy shows, making it a standout in a crowded genre landscape.
+---------
+
+# Warhorse's Lord Of The Rings RPG Perfect Setting Takes Us Beyond The War Of The Ring
+
+Gaming, The Lord of the Rings, Triple-A Games
+
+Wed, 22 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/warhorse-middle-earth-rpg-lotr-setting-third-age/
+
+Warhorse Studios has proven thorough in realizing the settings of its games, and it would be a waste to focus on The Lord of the Rings' same conflict.
+---------
+
+# 10 Best Superpowers In Invincible
+
+Streaming TV, Invincible
+
+Wed, 22 Jul 2026 18:30:11 GMT
+
+https://screenrant.com/invincible-best-powers/
+
+Invincible has several characters with extraordinary abilities, from flight to mind control. However, some superpowers are better than others.
+---------
+
+# Paramount+'s 13-Year Superhero Franchise Officially Sets 2026 Return With First Poster For New Movie
+
+Movies, The Thundermans, The Thundermans Return
+
+Wed, 22 Jul 2026 18:15:53 GMT
+
+https://screenrant.com/clash-of-the-thundermans-release-date-key-art/
+
+EXCLUSIVE: Paramount's hit superhero franchise is gearing up for an exciting return with an official release date confirmed for its new movie.
+---------
+
+# Tom Cruise’s New Sequel To 36-Year-Old Action Classic Days Of Thunder Gets Major Update
+
+Movies, Days of Thunder
+
+Wed, 22 Jul 2026 18:00:44 GMT
+
+https://screenrant.com/tom-cruise-days-of-thunder-2-jonathan-levine-director-talks/
+
+Tom Cruise's new sequel to his 36-year-old action classic, Days of Thunder, receives a major update with a second person in talks to join the project.
+---------
+
+# A Yoga Retreat Turns Bloody In Satirical Namaslay Trailer
+
+Exclusive, Horror
+
+Wed, 22 Jul 2026 18:00:11 GMT
+
+https://screenrant.com/video/namaslay-movie-yoga-retreat-satire-trailer/
+
+Exclusive: ScreenRant presents the trailer for Junghal Studios' Namaslay, which blends horror, satire, and the maximalist energy of masala cinema.
+---------
+
+# Zelda: Ocarina Of Time 3D Is Finally No Longer Trapped On The 3DS
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo 3DS, Nintendo
+
+Wed, 22 Jul 2026 18:00:11 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-3d-single-screen-mod/
+
+Finally, one of the very best Zelda games, Ocarina of Time 3D, has been set free and is available beyond the Nintendo 3DS.
+---------
+
+# Gerard Butler's Replacements In $523.5M Action Franchise Return In Official Trailer For Apollo Has Fallen
+
+TV, Has Fallen
+
+Wed, 22 Jul 2026 17:59:16 GMT
+
+https://screenrant.com/gerard-butler-apollo-has-fallen-show-trailer/
+
+StudioCanal is releasing a Has Fallen spinoff series called Apollo Has Fallen, and the just-released trailer teases Gerard Butler’s replacements.
+---------
+
+# Netflix's 6-Episode Crime Series With Hulk Star Is So Good, It's Getting A Surprise Season 2
+
+TV, Masked Recs
+
+Wed, 22 Jul 2026 17:58:11 GMT
+
+https://screenrant.com/untamed-netflix-crime-series-season-2-return/
+
+Sam Neill's final show is an acclaimed Netflix murder mystery originally intended to be a miniseries, whose its popularity led to a second season.
+---------
+
+# After Just 1 Day, Hulu's 2-Season Reboot of a Beloved Animated Series Is a Streaming Hit
+
+TV, King of the Hill, Hulu
+
+Wed, 22 Jul 2026 19:00:14 GMT
+
+https://www.cbr.com/king-of-the-hill-animated-hulu-disney-plus-success-july-2026/
+
+The second season of the King of the Hill reboot is rising up the charts just a day after it premiered, continuing the show's success.
+---------
+
+# 10 Greatest Climate Fiction Books Of All Time, Ranked
+
+Movies, Science Fiction, books
+
+Wed, 22 Jul 2026 19:00:14 GMT
+
+https://www.cbr.com/best-climate-fiction-books-list/
+
+Blending science fiction with the devastating ecological impacts of climate change, these books are the very best that climate fiction have to offer.
+---------
+
+# Family Guy's First Spinoff in 13 Years Reveals Complete Voice Cast
+
+TV, Family Guy
+
+Wed, 22 Jul 2026 18:48:38 GMT
+
+https://www.cbr.com/family-guy-stewie-spinoff-complete-voice-cast/
+
+SNL and The Rookie stars are among the voice cast members revealed for Family Guy's next spinoff.
+---------
+
+# 5 Anime Objectively Darker Than Death Note
+
+Anime, Monster, Psycho-Pass, Paranoia Agent, Attack On Titan, Death Parade, Death Note
+
+Wed, 22 Jul 2026 18:45:15 GMT
+
+https://www.cbr.com/anime-darker-than-death-note/
+
+Death Note is often regarded as a classic psychological thriller, but other anime are far darker and execute the themes better.
+---------
+
+# 5 Near-Perfect Shows Everyone Forgets Are Based on Books
+
+TV, The Haunting of Hill House, The Queen's Gambit, books
+
+Wed, 22 Jul 2026 18:15:14 GMT
+
+https://www.cbr.com/near-perfect-shows-forgotten-source-material-list/
+
+These five shows were incredibly popular upon release, but many don't realize that they're actually book-to-screen adaptations.
+---------
+
+# Kenneth Branagh in Talks for Perfect Outlander Replacement From MobLand Creatives
+
+TV, Paramount+ with Showtime
+
+Wed, 22 Jul 2026 18:10:59 GMT
+
+https://www.cbr.com/kenneth-branagh-laird-drama-series-paramount-plus/
+
+Paramount+ has found the perfect companion series for MobLand.
+---------
+
+# These 10/10 Anime Series All Have Perfect Scores on Rotten Tomatoes
+
+Anime, Rotten Tomatoes
+
+Wed, 22 Jul 2026 18:00:15 GMT
+
+https://www.cbr.com/masterpiece-anime-series-perfect-rotten-tomatoes-scores-list/
+
+Anime like Frieren and Solo Leveling are Certified Fresh on Rotten Tomatoes.
+---------
+
+# In Just 1 Day, Steven Spielberg's New Divisive Sci-Fi Becomes an Instant Digital Hit
+
+Movies, Disclosure Day, steven spielberg, Sci-Fi
+
+Wed, 22 Jul 2026 18:00:15 GMT
+
+https://www.cbr.com/steven-spielberg-disclosure-day-sci-fi-thriller-pvod-success-july-2026/
+
+Steven Spielberg's latest sci-fi thriller, Disclosure Day, is the most-watched movie on the Apple TV Store in the United States.
+---------
+
+# Punisher Showdowns Puts Frank Castle Against Marvel's Most Dangerous Heroes
+
+Comics, The Punisher
+
+Wed, 22 Jul 2026 18:00:15 GMT
+
+https://www.cbr.com/punisher-showdowns-marvel-comics-one-shots/
+
+Marvel's deadliest good guy is about to meet his matches.
+---------
+
+# Kevin Feige Confirms Marvel's MCU Reset With a New Single-Universe Strategy
+
+Movies, Avengers: Secret Wars, Marvel Cinematic Universe, Avengers
+
+Wed, 22 Jul 2026 17:49:30 GMT
+
+https://www.cbr.com/kevin-feige-marvel-mcu-reset-single-universe-avengers-secret-wars/
+
+Kevin Feige has confirmed big changes coming to the Marvel Universe after Avengers: Secret Wars.
+---------
+
+# Sydney Sweeney's New Sci-Fi Remake Officially Scores a Major Update at Netflix
+
+Movie News, Gundam, Netflix, Sydney Sweeney, Sci-Fi
+
+Wed, 22 Jul 2026 18:34:30 GMT
+
+https://collider.com/netflix-sydney-sweeney-gundam-adaptation-wraps-filming-july-2026/
+
+Netflix's live-action Gundam movie, starring Sydney Sweeney and Noah Centineo, has received a major production update.
+---------
+
+# Hulu’s Hit Sitcom Revival Is Officially a Masterpiece on Rotten Tomatoes
+
+TV News, King of the Hill, Hulu, Rotten Tomatoes, Animation
+
+Wed, 22 Jul 2026 18:25:44 GMT
+
+https://collider.com/hulu-king-of-the-hill-revival-rotten-tomatoes-score-is-it-good/
+
+Hulu’s acclaimed animated revival returns with another celebrated season, earning flawless early reviews from critics worldwide.
+---------
+
+# Alan Ritchson Finally Gets His John Wick Moment in 'Motor City' | Review
+
+Movie Reviews, Motor City, Alan Ritchson, Reacher, War Machine
+
+Wed, 22 Jul 2026 18:22:35 GMT
+
+https://collider.com/alan-ritchson-motor-city-review-john-wick/
+
+Reacher star Alan Ritchson's Motor City is a John Wick-esque thriller that tells a satisfying revenge story without dialogue.
+---------
+
+# Christopher Nolan Officially Reveals Next IMAX Release Following ‘The Odyssey’s Success
+
+Movie News, The Prestige, Christopher Nolan, IMAX, Science Fiction
+
+Wed, 22 Jul 2026 18:17:30 GMT
+
+https://collider.com/christopher-nolan-the-prestige-20th-anniversary-imax-release-2026/
+
+Christopher Nolan confirms The Prestige will be re-released in IMAX 70mm format to celebrate its 20th anniversary.
+---------
+
+# Tom Hiddleston: Pompeii Changed Him at 17 | Set Stories
+
+Movie, Pompeii: Out of Time with Tom Hiddleston
+
+Wed, 22 Jul 2026 18:15:14 GMT
+
+https://collider.com/video/tom-hiddleston-pompeii-changed-him-at-17-set-stories/
+
+Tom Hiddleston on Pompeii: Why the Past Still Matters. The actor discusses how a teenage trip to Pompeii inspired a lifelong fascination with the ancient world and ultimately led him to host Pompeii: Out of Time with Tom Hiddleston.
+---------
+
+# Netflix’s Best 5-Part Thriller Makes Every Harlan Coben Show Feel Small
+
+Features, You, Harlan Coben, Netflix
+
+Wed, 22 Jul 2026 19:00:12 GMT
+
+https://movieweb.com/you-harlan-coben-netflix-thriller-comparison/
+
+Netflix has many popular thriller TV series based on Harlan Coben novels, but there is one thriller that is even bigger in scale.
+---------
+
+# 'MobLand' Team Officially Confirms New Paramount+ Series Ahead of Season 2
+
+TV News, Paramount Plus, Kenneth Branagh, Jez Butterworth
+
+Wed, 22 Jul 2026 18:37:30 GMT
+
+https://movieweb.com/mobland-creator-new-series-laird-kenneth-branagh/
+
+The showrunner of the crime series is developing the new show 'Laird' with Kenneth Branagh.
+---------
+
+# 'Harry Potter' Sets New Extended Release Ahead of Streaming Reboot
+
+Movie News, Harry Potter
+
+Wed, 22 Jul 2026 18:34:04 GMT
+
+https://movieweb.com/harry-potter-sorcerers-stone-extended-theatrical-re-release/
+
+Fans can return to Hogwarts in an extended release of the 'Harry Potter' film franchise.
+---------
+
+# Marvel Boss Spoils 'Avengers: Secret Wars' Ending a Whole Year Before Release
+
+Movie News, Avengers: Secret Wars, Avengers: Doomsday
+
+Wed, 22 Jul 2026 18:12:45 GMT
+
+https://movieweb.com/marvel-avengers-secret-wars-ending-kevin-feige/
+
+Marvel Studios president Kevin Feige reveals plans for Avengers: Secret Wars to simplify the MCU, positioning X-Men as the franchise's new core, according to a teaser hinting at the film's direction.
+---------
+
 # Harley Quinn's New Redesign Is a Gift to DC Cosplayers
 
 Comics, Harley Quinn
@@ -5177,323 +5496,4 @@ Tue, 21 Jul 2026 09:30:15 GMT
 https://collider.com/the-odyssey-box-office-264-million-supergirl-121-million/
 
 Christopher Nolan's The Odyssey has demolished box office records in just one weekend, more than doubling the total haul of 2026's biggest flop.
----------
-
-# 10 Greatest High Fantasy Books of All Time
-
-Books and Comics, Books, Fantasy, The Lord of the Rings
-
-Tue, 21 Jul 2026 09:10:14 GMT
-
-https://collider.com/best-high-fantasy-books-all-time-ranked/
-
-From Midnight Over Sanctaphrax to The Lord of the Rings, these masterpieces represent the best and most fully realized high fantasy books of all time.
----------
-
-# Tom Hardy's 'Venom' Officially Returns Before ‘Spider-Man: Brand New Day’
-
-Movie News, Venom, Tom Hardy, Lego
-
-Tue, 21 Jul 2026 09:00:15 GMT
-
-https://collider.com/venom-lego-sony-spider-man-universe-first-set/
-
-LEGO has revealed its first-ever Sony’s Spider-Man Universe set, bringing Tom Hardy’s Venom back eight years later.
----------
-
-# 15 Best TV Shows Based on Video Games, Ranked
-
-TV, Video Game, The Last of Us, Pokémon, Fallout
-
-Tue, 21 Jul 2026 08:58:14 GMT
-
-https://collider.com/tv-series-based-on-video-games-ranked/
-
-From Pokémon to The Last of Us to Fallout, these TV shows stayed true to their video game counterparts.
----------
-
-# Kevin Feige Knows Where the MCU Is Going After 'Avengers: Doomsday'
-
-Movie News, Avengers: Doomsday, Avengers: Doomsday (2026), Kevin Feige
-
-Tue, 21 Jul 2026 09:52:24 GMT
-
-https://movieweb.com/avengers-doomsday-mcu-roadmap-kevin-feige/
-
-Marvel Studios President Kevin Feige has confirmed that the MCU will not undergo a hard reboot following 'Avengers: Doomsday' and 'Secret Wars.'
----------
-
-# Wheel Of Time Getting The Finale It Deserves, 2 Years After The Show's Cancellation
-
-Gaming, The Wheel of Time
-
-Tue, 21 Jul 2026 05:30:11 GMT
-
-https://screenrant.com/wheel-of-time-real-finale-2027/
-
-Any time The Wheel of Time gets a new adaptation the world heals a little, and the latest is one of the most exciting in years.
----------
-
-# Game Of Thrones: The Moonlit Stalker Officially Unveiled
-
-Gaming, Game of Thrones, Game Of Thrones, PC, House of the Dragon
-
-Tue, 21 Jul 2026 05:00:11 GMT
-
-https://screenrant.com/game-of-thrones-dragonfire-moonlit-stalker-update/
-
-Game of Thrones officially unveils The Moonlit Stalker, an incredible new dragon with unparalleled stealth and precision.
----------
-
-# It's Official, Gundam Returns October 2026
-
-Tabletop, Gundam, tabletop games
-
-Tue, 21 Jul 2026 04:30:11 GMT
-
-https://screenrant.com/gundam-assemble-october-2026-release-date/
-
-Gundam and its mobile suits are making a glorious comeback in October this year, and you may want to gear up for the official upcoming release.
----------
-
-# Steam Makes 9/10 RPG Completely Free To Keep, You Have 48 Hours To Claim
-
-Gaming, Steam
-
-Tue, 21 Jul 2026 04:00:14 GMT
-
-https://screenrant.com/steam-free-rpg-48-hours-july-2026/
-
-Steam gamers have one last chance to grab a great game before it's gone.
----------
-
-# 5 High Fantasy Shows That Would Make Tolkien Proud
-
-Streaming TV, Fantasy
-
-Tue, 21 Jul 2026 03:52:06 GMT
-
-https://screenrant.com/best-high-fantasy-shows-tolkien/
-
-J.R.R. Tolkien had very specific ideas about what made a good fantasy story, and these five high fantasy shows would make Tolkien proud.
----------
-
-# Reacher Season 5 Can Finally Abandon 1 Overused Story Formula
-
-Streaming TV, Reacher
-
-Tue, 21 Jul 2026 03:15:11 GMT
-
-https://screenrant.com/reacher-season-5-book-abandon-overused-story/
-
-Reacher has relied on redundant storytelling formulas across four seasons, but it looks like it finally has the opportunity to switch things a little.
----------
-
-# Final Fantasy Meets Chrono Trigger In New JRPG You Can Play Free Now
-
-Gaming, Final Fantasy, Chrono Trigger
-
-Tue, 21 Jul 2026 03:00:12 GMT
-
-https://screenrant.com/final-fantasy-chrono-trigger-forge-of-fae-play-free/
-
-Try Forge of the Fae's free Steam demo, a Celtic-inspired JRPG blending Final Fantasy, Zelda, and Stardew Valley.
----------
-
-# 5 The Rings Of Power Armor Designs That Are 10/10 Perfect
-
-Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
-
-Tue, 21 Jul 2026 02:45:11 GMT
-
-https://screenrant.com/best-rings-of-power-armor-designs/
-
-Prime Video's The Lord of the Rings: The Rings of Power sure knows how to make fantasy war and violence aesthetically pleasing with excellent armor.
----------
-
-# The 10 Best Tenth Doctor Quotes In Doctor Who History
-
-Streaming TV, Doctor Who
-
-Tue, 21 Jul 2026 02:15:11 GMT
-
-https://screenrant.com/best-tenth-doctor-quotes-doctor-who/
-
-David Tennant has long been a fan favorite version of the Doctor in Doctor Who, but some lines stand the test of time better than others.
----------
-
-# Gundam: The Witch From Mercury Finally Brings Its Exclusive High Grade Gunpla Back to the U.S.
-
-Anime, Mobile Suit Gundam, Mobile Suit Gundam: The Witch from Mercury, merchandise, toys, bandai
-
-Tue, 21 Jul 2026 03:59:15 GMT
-
-https://www.cbr.com/gundam-witch-from-mercury-lfrith-gunpla-bandai-america-re-release/
-
-Two years after it debuted, a unique model kit based on a spinoff of Mobile Suit Gundam: The Witch from Mercury is getting a re-release in the West.
----------
-
-# 5 Best Open-World RPGs of the 2010s
-
-Games, The Witcher 3: Wild Hunt, Fallout New Vegas, RPG
-
-Tue, 21 Jul 2026 03:45:15 GMT
-
-https://www.cbr.com/best-2010s-open-world-rpgs/
-
-The 2010s were an incredible decade for open-world role-playing games, so let's take a look at five of the best the decade has to offer.
----------
-
-# Star Trek Quietly Broke Gene Roddenberry’s Most Sacred Rule
-
-TV, Sci-Fi, Star Trek, Star Trek: Strange New Worlds
-
-Tue, 21 Jul 2026 03:30:15 GMT
-
-https://www.cbr.com/star-trek-strange-new-worlds-prayer-broke-gene-roddenberry-rule/
-
-In the Season 3 premiere of Star Trek: Strange New Worlds, Captain Christopher Pike does something surprising that Gene Roddenberry would dislike.
----------
-
-# 10 The Far Side Comics That Are Still Hilarious Today
-
-Comics, The Far Side
-
-Tue, 21 Jul 2026 03:30:15 GMT
-
-https://www.cbr.com/the-far-side-comics-still-hilarious-today/
-
-Many comic strips use referenced material for comedy, but the best in The Far Side need not be understood to be found hilarious.
----------
-
-# 10 Long PS5 Games That Take Forever to Complete
-
-Games, Baldur's Gate 3, Elden Ring, Final Fantasy VII Rebirth, PlayStation 5
-
-Tue, 21 Jul 2026 03:15:15 GMT
-
-https://www.cbr.com/longest-ps5-games-take-forever-to-beat-list/
-
-The PS5 catalog is home to some of the greatest games to ever hit a console, and these ten masterpieces hook players for long periods of time.
----------
-
-# Boruto Officially Goes on Hiatus, Confirms Return Date
-
-Anime, Boruto: Two Blue Vortex, Naruto
-
-Tue, 21 Jul 2026 03:05:16 GMT
-
-https://www.cbr.com/boruto-two-blue-vortex-return-date-september/
-
-One of the most beloved sequel manga of an entire generation has gone on hiatus, although fans won't have to wait too long for its return.
----------
-
-# Star Wars Quietly Confirms the End of The Mandalorian on Disney+
-
-TV, The Mandalorian
-
-Tue, 21 Jul 2026 02:58:54 GMT
-
-https://www.cbr.com/star-wars-quietly-confirms-end-the-mandalorian-disney-plus/
-
-Star Wars considers The Mandalorian to be finished.
----------
-
-# 5 Classic Adult Swim Anime Series That Are Unwatchable Today
-
-Anime, Blue Gender, Trinity Blood
-
-Tue, 21 Jul 2026 02:45:15 GMT
-
-https://www.cbr.com/classic-adult-swim-anime-series-that-aged-poorly-list/
-
-Adult Swim's anime lineup once revolutionized how a generation discovered the medium, but time hasn't been kind to some of the series.
----------
-
-# These 5 Ryan Gosling Movies Are True Masterpieces
-
-Movies, Project Hail Mary, Barbie, ryan gosling
-
-Tue, 21 Jul 2026 02:45:15 GMT
-
-https://www.cbr.com/perfect-ryan-gosling-movies-list/
-
-Having starred in everything from comedy to epic science fiction, Ryan Gosling has headlined some of the best masterpiece movies of the 21st century.
----------
-
-# 8 Games Every Cyberpunk Edgerunners Fan Should Play
-
-Games, Cyberpunk 2077, Cyberpunk: Edgerunners, Video Games
-
-Tue, 21 Jul 2026 02:30:15 GMT
-
-https://www.cbr.com/best-games-for-cyberpunk-edgerunners-fans-list/
-
-These games are the best to play after finishing the hit Cyberpunk 2077 anime to further explore the Cyberpunk genre and it's many themes.
----------
-
-# 10 Most Perfect Anime of the Last 20 Years
-
-TV, Anime, Vinland Saga, Attack On Titan, Mob Psycho 100
-
-Tue, 21 Jul 2026 04:18:14 GMT
-
-https://collider.com/most-perfect-anime-shows-last-20-years-ranked/
-
-Vinland Saga, Attack on Titan, Mob Psycho 100, and Steins;Gate are among the best anime of the last 20 years, but which series is the greatest?
----------
-
-# 20 Best Movie Soundtrack Songs of All Time
-
-Movie, The Wizard of Oz, Titanic, Breakfast at Tiffany's, Singin' in the Rain
-
-Tue, 21 Jul 2026 04:05:14 GMT
-
-https://collider.com/best-movie-soundtrack-songs-all-time-ranked/
-
-From Judy Garland to Celine Dion, these artists made movies even better through song.
----------
-
-# Prime Video’s Latest 8-Part Action Series Has Quietly Outperformed Its Biggest New Shows of 2026
-
-TV Features, Prime Video, Ride or Die, Hannah Waddingham, Octavia Spencer
-
-Tue, 21 Jul 2026 03:46:15 GMT
-
-https://collider.com/prime-video-action-series-ride-or-die-ratings-success/
-
-Days since its release, Prime Video’s new action series Ride Or Die is a hit with critics priaising the funny, action-packed series.
----------
-
-# Hulu's 4-Part Sci-Fi Epic Is One of the Best on Any Streaming Platform
-
-Movie Features, Rise of the Planet of the Apes, Dawn of the Planet of the Apes, War for the Planet of the Apes, Kingdom of the Planet of the Apes
-
-Tue, 21 Jul 2026 03:34:15 GMT
-
-https://collider.com/planet-of-the-apes-reboot-hulu-best-science-fiction-epic/
-
-Sci-fi fans looking for a film series worth their time should check out the Planet of the Apes reboot on Hulu.
----------
-
-# 'The Big Bang Theory's Worst Mistake Was How It Ended This Character's Story
-
-TV Features, Big Bang Theory, CBS, Sitcom, Chuck Lorre
-
-Tue, 21 Jul 2026 03:16:14 GMT
-
-https://collider.com/big-bang-theory-raj-deserved-a-better-ending/
-
-The Big Bang Theory concluded Raj Koothrappali's character arc, leaving some fans unsatisfied with the series finale's resolution.
----------
-
-# 20 Years Ago, Kevin Smith Made His Last Great Film
-
-Movie Features, Kevin Smith, Clerks 2, Clerks, Scott Mosier
-
-Tue, 21 Jul 2026 03:14:15 GMT
-
-https://collider.com/clerks-2-kevin-smith-20th-anniversary/
-
-20 years ago, Kevin Smith released Clerks II, a sequel to his era-defining debut feature and his last great film.
 ---------
