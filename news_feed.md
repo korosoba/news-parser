@@ -1,3 +1,256 @@
+# Devolver Digital GOTY Contender Returns, Now Totally Free To Keep
+
+Gaming, Devolver Digital, Poinpy, PC
+
+Thu, 23 Jul 2026 11:38:14 GMT
+
+https://screenrant.com/devolver-digital-free-game-poinpy/
+
+Devolver Digital's beloved 2022 Game of the Year contender is officially back and completely free to keep forever.
+---------
+
+# Brandon Sanderson's Mistborn: Legacy Arrives November 2026
+
+Gaming, Brandon Sanderson, Mistborn
+
+Thu, 23 Jul 2026 11:30:11 GMT
+
+https://screenrant.com/mistborn-legacy-november-2026-brandon-sanderson/
+
+The Mistborn series is arguably Brandon Sanderson's most beloved work, and a new adaptation is set to take full advantage of that.
+---------
+
+# Star Trek: Strange New Worlds EP Details Plan For Season 5’s Final 6 Episodes
+
+Exclusive, Star Trek, Star Trek: Strange New Worlds
+
+Thu, 23 Jul 2026 11:00:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-5-episodes-plan/
+
+Exclusive: Star Trek: Strange New Worlds executive producer and co-showrunner Akiva Goldsman explains the format for the 6-episode final season.
+---------
+
+# Pokémon Winds & Waves Elite Four Type Details Confirm You'll Need A Powerful Squad
+
+Gaming, Pokemon Winds and Waves, PC, Pokemon
+
+Thu, 23 Jul 2026 10:38:07 GMT
+
+https://screenrant.com/pokemon-winds-waves-elite-four-type-leaks/
+
+The most recent Pokémon Winds & Waves leak all but confirms the Elite Four types we can expect, and you'll need to be ready for a tough fight.
+---------
+
+# Pokémon: New Lapras Evolution Finally Surfaces After 30 Years
+
+Gaming, Pokemon
+
+Thu, 23 Jul 2026 10:12:47 GMT
+
+https://screenrant.com/pokemon-lapras-evolution-leak/
+
+Lapras is one of the few Pokémon who doesn't have any kind of evolutionary line, but that could easily have been very different.
+---------
+
+# Ransom Canyon Season 2 Review: Netflix's Western Romance Loses Its Spark In A Watered-Down Sophomore Effort
+
+Streaming TV, Ransom Canyon
+
+Thu, 23 Jul 2026 10:00:11 GMT
+
+https://screenrant.com/ransom-canyon-season-2-review/
+
+Between its tired love triangles, abandoned ranching narratives, and dissatisfying character developments, Ransom Canyon just doesn't have the legs.
+---------
+
+# Marvel's Official New Wolverine Is Dividing Fans
+
+Gaming, Marvel, Wolverine, Marvel's Wolverine
+
+Thu, 23 Jul 2026 09:44:36 GMT
+
+https://screenrant.com/marvel-new-wolverine-reveal-fans-react/
+
+Wolverine has become one of the most iconic comic book characters in history, but his latest appearance is dividing fans.
+---------
+
+# X-Men '97 Just Proved It's No Longer Limited by the '90s
+
+TV, X-Men '97, X-Men, Marvel
+
+Thu, 23 Jul 2026 11:30:14 GMT
+
+https://www.cbr.com/x-men-97-danger-adapt-modern-storylines/
+
+X-Men '97 has moved beyond its reliance on fans' nostalgia for the 1990s, and the latest episode is a perfect demonstration.
+---------
+
+# 10 Best Far Side Comics Featuring Wild Animals, Ranked
+
+Comics, The Far Side
+
+Thu, 23 Jul 2026 11:00:14 GMT
+
+https://www.cbr.com/funniest-far-side-comics-featuring-wild-animals-ranked/
+
+The secret life of animals is the most recurring themes in The Far Side that always highlights Gary Larson's commitment to saving the environment.
+---------
+
+# Brad Pitt's World War Z is the Scariest Zombie Movie
+
+Movies, World War Z, Brad Pitt, World War Z 2
+
+Thu, 23 Jul 2026 10:00:14 GMT
+
+https://www.cbr.com/scariest-zombie-movie-brad-pitt-world-war-z/
+
+It has been 13 years since Brad Pitt's epic zombie horror adventure, but it's still one of the scariest movies in its terrifying genre.
+---------
+
+# 3 '90s Sitcoms Better Than Seinfeld
+
+TV, Sitcoms, Seinfeld, Friends, The Nanny
+
+Thu, 23 Jul 2026 10:00:14 GMT
+
+https://www.cbr.com/90s-sitcoms-better-than-seinfeld-list/
+
+While Seinfeld changed sitcoms as we know them, some people prefer these 3 '90s sitcoms because of their character development and relatable moments.
+---------
+
+# 10 Greatest Action Video Games of All Time
+
+Gaming, Video Game, Ghost of Tsushima, Batman: Arkham City, Devil May Cry
+
+Thu, 23 Jul 2026 11:44:14 GMT
+
+https://collider.com/best-action-video-games-all-time-ranked/
+
+Video games like Ghosts of Tsushima and Devil May Cry 5 offer exhilarating plots that cement their place among the all-time best in the action genre.
+---------
+
+# 6 Best Epic Movies Released Since 2000
+
+Movie, The Odyssey, Avengers: Infinity War, Dune: Part Two, King of Boys: The Return of the King
+
+Thu, 23 Jul 2026 11:21:14 GMT
+
+https://collider.com/best-epic-movies-since-2000-ranked/
+
+The Odyssey, Dune: Part Two, and The Lord of the Rings: The Return of the King are all among the best epic movies released since 2000.
+---------
+
+# Marvel Is Officially Going All-In on Doctor Doom Ahead of 'Avengers: Doomsday'
+
+Books and Comics News, Marvel, Marvel Comics, Doctor Doom, Avengers: Doomsday
+
+Thu, 23 Jul 2026 11:00:14 GMT
+
+https://collider.com/marvel-doctor-doom-october-comic-covers-images-avengers-doomsday/
+
+Marvel's October solicitations put Doctor Doom at the center of multiple major comics ahead of Avengers: Doomsday.
+---------
+
+# 10 Perfect Fantasy Movies That Nobody Remembers
+
+Movie, Fantasy, The Green Knight, Pleasantville, The Dark Tower
+
+Thu, 23 Jul 2026 10:53:14 GMT
+
+https://collider.com/fantasy-movies-nobody-remembers/
+
+Pleasantville, The Dark Tower, Excalibur, The Green Knight, and more make up our list of perfect fantasy movies that nobody remembers.
+---------
+
+# 10 Fantasy Books That Are Perfect From the First Page to the Last
+
+Books and Comics, Books, The Little Prince, Fantasy, The Lord of the Rings
+
+Thu, 23 Jul 2026 10:42:14 GMT
+
+https://collider.com/fantasy-books-perfect-first-page-to-last/
+
+From The Little Prince to The Broken God, these fantasy books are genuine masterpieces of the medium that somehow manage to stay perfect throughout.
+---------
+
+# 10 Sci-Fi Movies That Looked So Good, But Were So Bad
+
+Movie, Sci-Fi
+
+Thu, 23 Jul 2026 10:36:18 GMT
+
+https://collider.com/bad-sci-fi-movies/
+
+These bad sci-fi movies had promising trailers but ultimately disappointed audiences, including films like Moonfall, Robocop 3, and Rollerball.
+---------
+
+# 15 Stupid Comedy Shows That Are Actually Ingenious
+
+TV, South Park, Seinfeld, Comedy, The Simpsons
+
+Thu, 23 Jul 2026 10:03:14 GMT
+
+https://collider.com/stupid-comedy-shows/
+
+From cartoon classics like The Simpsons to sitcom sensations like Seinfeld, these silly series have an air of genius to them that must be respected.
+---------
+
+# One of Pokémon’s Most Popular Games Is Getting a Surprising New Crossover
+
+TV News, Pokémon Horizons, Pokémon, Anime, Netflix
+
+Thu, 23 Jul 2026 10:00:14 GMT
+
+https://collider.com/pokemon-horizons-sleep-crossover-captain-pikachu/
+
+The anime series Pokémon Horizons is set to cross over with the mobile game Pokémon Sleep. Read on for more.
+---------
+
+# 17 Years Later, This Legendary Star's Final Film Is Officially Streaming Free
+
+Movie Features, Terry Gilliam, Heath Ledger, The Imaginarium of Doctor Parnassus, Johnny Depp
+
+Thu, 23 Jul 2026 09:51:14 GMT
+
+https://collider.com/heath-ledger-imaginarium-of-doctor-parnassus-streaming-free-tubi-july-2026/
+
+Heath Ledger's tragic death while making The Imaginarium of Doctor Parnassus completely changed the movie, which is now streaming for free on Tubi.
+---------
+
+# Star Trek's 10 Best Parallel Universes That Deserved More Screen Time
+
+TV Lists, Star Trek
+
+Thu, 23 Jul 2026 11:00:12 GMT
+
+https://movieweb.com/star-trek-best-parallel-universes/
+
+The Star Trek franchise is filled with alternate realities, but some only get brief moments of prominence. Read on for more.
+---------
+
+# $2 Billion Fantasy Franchise Scores Big on Streaming
+
+Movie News, Super Mario Bros., The Super Mario Bros. Movie, The Super Mario Galaxy Movie, Hot on Streaming
+
+Thu, 23 Jul 2026 11:00:12 GMT
+
+https://movieweb.com/super-mario-franchise-success-streaming-july-2026/
+
+The hugely successful franchise has star power on streaming after dominating the box office.
+---------
+
+# 'Law & Order' Veteran Officially Being Replaced by MCU Star for Season 26 on NBC
+
+TV News, Law & Order, James Badge Dale
+
+Thu, 23 Jul 2026 10:34:21 GMT
+
+https://movieweb.com/law-order-season-26-reid-scott-james-badge-dale/
+
+Reid Scott is leaving NBC's 'Law & Order' after three seasons as Detective Vincent Riley, with 'Iron Man 3' star James Badge Dale taking over.
+---------
+
 # Fallout Returns With Surprise New Mini-Season
 
 Gaming, Fallout, Fallout 76
@@ -5243,257 +5496,4 @@ Tue, 21 Jul 2026 18:46:20 GMT
 https://screenrant.com/lord-of-the-rings-hunt-for-gollum-shire-filming-set-photo/
 
 Production is now underway on The Lord of the Rings: The Hunt for Gollum, and a location from the original trilogy is making a comeback.
----------
-
-# Who Thor Was Talking About In The Avengers: Doomsday Trailer
-
-Movies, Marvel Cinematic Universe, Avengers: Doomsday
-
-Tue, 21 Jul 2026 18:35:32 GMT
-
-https://screenrant.com/avengers-doomsday-trailer-thor-talking-about-explained/
-
-Thor reminds the heroes in the Avengers: Doomsday trailer that countless of those he fought with have died battling villains, but who did he mean?
----------
-
-# The Odyssey’s Most Controversial Decision Was Also Made By Stanley Kubrick 66 Years Ago
-
-Movies, The Odyssey
-
-Tue, 21 Jul 2026 18:30:11 GMT
-
-https://screenrant.com/the-odyssey-american-accents-stanley-kubrick-spartacus/
-
-Christopher Nolan has caused controversy with one key aspect of The Odyssey, but he isn't the first director to have made this stylistic decision.
----------
-
-# The Hawk Interview with Jimmy Tatro, Fortune Feimster & Luke Wilson
-
-Interviews, The Hawk, Jimmy Tatro, Luke Wilson, Fortune Feimster
-
-Tue, 21 Jul 2026 18:12:06 GMT
-
-https://screenrant.com/video/the-hawk-jimmy-tatro-fortune-feimster-luke-wilson-interview/
-
-The Hawk stars Jimmy Tatro, Fortune Feimster & Luke Wilson break down the twisted father-son dynamic of the show and their own biggest career swings.
----------
-
-# Tangled Set Video Shows Flynn Ryder Star Preparing For Major Action Scene
-
-Movies, Tangled
-
-Tue, 21 Jul 2026 18:00:57 GMT
-
-https://screenrant.com/tangled-set-video-flynn-rider-milo-manheim-stunt/
-
-Tangled is getting dangerous, as Disney star Milo Manheim is shown preparing for an iconic stunt as Flynn Ryder for the upcoming remake.
----------
-
-# Solo Leveling's Crossover With Its Biggest Rival Is One Month Away
-
-Anime, Solo Leveling
-
-Tue, 21 Jul 2026 18:00:12 GMT
-
-https://screenrant.com/solo-leveling-omniscient-readers-viewpoint-crossover-system-sync/
-
-The first official crossover between Solo Leveling and Korea's other top system-based fantasy franchise takes place in Manhattan this August.
----------
-
-# 7 Anime Everyone Forgot Aired on Cartoon Network
-
-Anime, toonami
-
-Tue, 21 Jul 2026 19:00:20 GMT
-
-https://www.cbr.com/best-forgotten-cartoon-network-anime-list/
-
-Everyone's forgotten about Cartoon Network anime like Outlaw Star.
----------
-
-# 10 Best Sci-Fi Books With the Greatest Worlds
-
-Movies, Science Fiction, books
-
-Tue, 21 Jul 2026 19:00:20 GMT
-
-https://www.cbr.com/sci-fi-books-with-best-worlds-list/
-
-With deeply constructed and immersive worldbuilding, these sci-fi masterpieces span from sprawling interstellar empires to isolated, alien biospheres
----------
-
-# James Wan's New Horror Trailer Horrifies Filmgoers: 'Made My Entire Theater Jump'
-
-Movies, Horror, Other Mommy
-
-Tue, 21 Jul 2026 18:50:59 GMT
-
-https://www.cbr.com/other-mommy-official-trailer-james-wan-blumhouse/
-
-Horror fans are saying the trailer alone for James Wan's new horror movie is giving them scares.
----------
-
-# Euphoria Fan Favorite Reveals Going Method for Shocking Season 3 Scene
-
-TV, Euphoria, HBO Max, Jimmy Kimmel Live!
-
-Tue, 21 Jul 2026 18:43:11 GMT
-
-https://www.cbr.com/euphoria-jacob-elordi-final-scene-filming-torture/
-
-Jacob Elordi reveals the shocking and gruesome details of his final Euphoria scene.
----------
-
-# seeing The Hand, and introducing him to The Punisher, tells me he'll meet Daredevil soon enough.
-
-Comics, The Last Starfighter, Star Wars
-
-Tue, 21 Jul 2026 18:41:40 GMT
-
-https://www.cbr.com/the-last-starfighter-spinoff-finally-answers-lingering-question/
-
-A cliffhanger that's stood more than 40 years finally ends in 2026.
----------
-
-# The Big Bang Theory Spinoff's Biggest Creative Challenge
-
-TV, Stuart Fails to Save the Universe
-
-Tue, 21 Jul 2026 18:30:14 GMT
-
-https://www.cbr.com/video/the-big-bang-theory-spinoff-s-biggest-creative-challenge/
-
-Chuck Lorre, Bill Prady, and Zak Penn explain why Stuart Fails to Save the Universe puts the unlikeliest hero at the center of its biggest adventure. The creators reveal why Stuart was the perfect choice, how the beloved comic book shop was rebuilt multiple times for the new series, and why filming in Los Angeles made such a difference.
----------
-
-# Percy Jackson and the Olympians Boss Warns Season 3 Is the 'Darkest' Entry Yet: 'The Next Step Is Death'
-
-TV, Percy Jackson & the Olympians
-
-Tue, 21 Jul 2026 18:28:46 GMT
-
-https://www.cbr.com/percy-jackson-season-3-darkest-entry-yet/
-
-The popular fantasy show is maturing alongside its cast.
----------
-
-# Academy Award-Nominated Star Felt 'Misled' About 'Underused & Inconsequential' Dutton Ranch Role
-
-TV, Paramount+ with Showtime, Dutton Ranch, Yellowstone
-
-Tue, 21 Jul 2026 18:27:49 GMT
-
-https://www.cbr.com/dutton-ranch-yellowstone-ed-harris-misled/
-
-The actor will, however, return in Season 2.
----------
-
-# 10 Best Epic Anime Series of All Time, Ranked
-
-Anime, One Piece, Berserk
-
-Tue, 21 Jul 2026 18:15:14 GMT
-
-https://www.cbr.com/best-epic-anime-series-of-all-time/
-
-Anime series like One Piece and Legend of the Galactic Heroes are the best examples of epics in anime history.
----------
-
-# Disney+’s Fantasy Reboot With 95% RT Officially Confirms Return Date
-
-TV, Percy Jackson & the Olympians, Disney+
-
-Tue, 21 Jul 2026 18:04:09 GMT
-
-https://www.cbr.com/percy-jackson-season-3-disney-plus-premiere-date/
-
-Disney+ subscribers finally known when the streamer's popular fantasy series will return.
----------
-
-# Netflix Scores Big With New Western Series Officially Taking Over the World
-
-TV News, Little House on the Prairie, Netflix, Laura Ingalls Wilder: Prairie to Page, Luke Bracey
-
-Tue, 21 Jul 2026 19:01:10 GMT
-
-https://collider.com/little-house-on-the-prairie-netflix-number-one-streaming-9-million-views/
-
-Netflix’s remake of the Western classic Little House on the Prairie has quietly become the most watched show on the streamer.
----------
-
-# 'House of the Dragon' Just Spoiled the 'Game of Thrones' Prequel Movie’s Biggest Storyline
-
-TV Features, Game Of Thrones, House of the Dragon, HBO Max, A Song of Ice and Fire
-
-Tue, 21 Jul 2026 18:34:02 GMT
-
-https://collider.com/house-of-the-dragon-season-3-episode-5-aegons-conquest-prequel-movie-dorne/
-
-House of the Dragon reveals a pivotal moment in Aegon's Conquest, potentially spoiling Game of Thrones' upcoming prequel film.
----------
-
-# It’s Official, DC’s Constantine Is Finally Returning
-
-Gaming News, Constantine, Keanu Reeves, DC, Gaming
-
-Tue, 21 Jul 2026 18:27:38 GMT
-
-https://collider.com/constantine-dcko-new-dc-fighting-game-return/
-
-John Constantine joins Batman, Superman and Wonder Woman as a playable fighter in DCKO, DC’s new 2v2 mobile game arriving in 2027.
----------
-
-# Johnny Depp's R-Rated Gothic Cult Classic Gets New Release Ahead of Sydney Sweeney Remake
-
-Movie News, Sleepy Hollow, Johnny Depp, Tim Burton, Christina Ricci
-
-Tue, 21 Jul 2026 18:21:39 GMT
-
-https://collider.com/sleepy-hollow-johnny-depp-4k-steelbook-release/
-
-Johnny Depp’s Sleepy Hollow returns with a new 4K release ahead of Sydney Sweeney's newly announced remake.
----------
-
-# Jason Statham’s R-Rated Action Movie Is Officially One of Prime Video’s Biggest Hits
-
-Movie News, Jason Statham, Shelter, Prime Video, Action
-
-Tue, 21 Jul 2026 18:05:18 GMT
-
-https://collider.com/shelter-jason-statham-prime-video-global-streaming-hit-july-2026/
-
-The action movie is officially getting a second chance.
----------
-
-# 6 Best Action Thrillers Released Since 2000
-
-Movie, Action, Thriller, Casino Royale, One Battle After Another
-
-Tue, 21 Jul 2026 17:52:14 GMT
-
-https://collider.com/best-action-thrillers-since-2000/
-
-Casino Royale, The Dark Knight, and Oldboy are all among the very best action thriller movies released since the year 2000.
----------
-
-# Prime Video's Near-Perfect 8-Part Action Thriller Blasts Up the Streaming Charts
-
-TV News, Ride or Die, Prime Video, Hot on Streaming, Action
-
-Tue, 21 Jul 2026 19:00:17 GMT
-
-https://movieweb.com/ride-or-die-action-streaming-success-prime-july-2026/
-
-Prime Video's latest 'Reacher' replacement is a 97% rated action sensation.
----------
-
-# Join Us for an Exclusive Screening of 'Hot Spot' at AMC Century City
-
-Features, Hot Spot
-
-Tue, 21 Jul 2026 18:59:20 GMT
-
-https://movieweb.com/hot-spot-free-movieweb-screening/
-
-MovieWeb is hosting an advanced screening of 'Hot Spot' in LA. The tickets are free if you can get one in time. Read on for more.
 ---------
