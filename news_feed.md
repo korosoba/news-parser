@@ -1,3 +1,69 @@
+# Fallout Returns With Surprise New Mini-Season
+
+Gaming, Fallout, Fallout 76
+
+Thu, 23 Jul 2026 09:18:25 GMT
+
+https://screenrant.com/fallout-76-new-mini-season-confirmed/
+
+There's a lot going on around the Fallout franchise right now, including confirmation of a new mini-season in one of the more current adaptations.
+---------
+
+# Attack On Titan Officially Returns With A Brand-New Season
+
+Gaming, Attack on Titan
+
+Thu, 23 Jul 2026 09:14:04 GMT
+
+https://screenrant.com/attack-on-titan-new-season-deck-building-game/
+
+Discover the thrilling world of Attack on Titan in a cooperative deck-building game.
+---------
+
+# Star Wars Just Confirmed The Start Of A New Era: Myths & Legends
+
+Gaming, Star Wars
+
+Thu, 23 Jul 2026 08:54:42 GMT
+
+https://screenrant.com/star-wars-myths-and-legends-era-confirmed/
+
+There have been plenty of exciting new eras introduced to Star Wars over the years, but the latest might be one of the most out there.
+---------
+
+# Marvel October 2026 Solicitations
+
+Comics, Marvel Comics, solicitations
+
+Thu, 23 Jul 2026 07:11:40 GMT
+
+https://www.cbr.com/midnight-universe-begins-marvel-october-2026-solicitations/
+
+Marvel's much-anticipated Midnight line of comics make their debut in the October 2026 Marvel solicitations
+---------
+
+# 10 Greatest Sci-Fi Movie Trilogies of All Time
+
+Movie, Science Fiction, Bill & Ted's Excellent Adventure, Back to the Future, Star Wars
+
+Thu, 23 Jul 2026 09:04:14 GMT
+
+https://collider.com/best-sci-fi-movie-trilogies-all-time-ranked/
+
+From blockbuster icons like Star Wars to quirky gems like Bill & Ted, these trilogies mark the very best that sci-fi cinema has ever seen.
+---------
+
+# Russell Crowe’s Forgotten Marvel Misfire Is Rewriting History on Prime Video
+
+Movie News, Kraven the Hunter, Russell Crowe, Aaron Taylor-Johnson, Prime Video
+
+Thu, 23 Jul 2026 09:00:15 GMT
+
+https://collider.com/russell-crowe-sci-fi-kraven-the-hunter-streaming-success-prime-video-july-2026/
+
+Kraven the Hunter, the $110 million superhero bomb starring Russell Crowe and Aaron Taylor-Johnson, is a smash hit on Prime Video.
+---------
+
 # Star Wars Officially Confirms The Return Of Mara Jade Skywalker
 
 Gaming, Star Wars, Live Service Games, PC
@@ -5430,70 +5496,4 @@ Tue, 21 Jul 2026 18:59:20 GMT
 https://movieweb.com/hot-spot-free-movieweb-screening/
 
 MovieWeb is hosting an advanced screening of 'Hot Spot' in LA. The tickets are free if you can get one in time. Read on for more.
----------
-
-# 10 Years Later, One of Ryan Gosling's Best Movies Finally Fixes Its Biggest Mistake
-
-Movie News, La La Land, Ryan Gosling
-
-Tue, 21 Jul 2026 18:39:22 GMT
-
-https://movieweb.com/ryan-gosling-la-la-land-hand-fixed/
-
-Ryan Gosling can sleep better night knowing his biggest filming mistake has been fixed.
----------
-
-# 25 Years Later, Action Blockbuster That Sparked $7 Billion Franchise Sets New Release
-
-Movie News, The Fast and the Furious, Fast and Furious
-
-Tue, 21 Jul 2026 18:16:14 GMT
-
-https://movieweb.com/fast-and-the-furious-4k-blu-ray-release/
-
-Universal Pictures is celebrating the 25th anniversary of 'The Fast and the Furious' with a new 4K Ultra HD Blu-ray release.
----------
-
-# 'Godzilla vs. Kong' Star Kaylee Hottle Dies Aged 18
-
-Movie News, Godzilla vs. Kong
-
-Tue, 21 Jul 2026 18:12:50 GMT
-
-https://movieweb.com/godzilla-vs-kong-kaylee-hottle-dies-aged-18/
-
-Hottle's father confirmed the sad news today.
----------
-
-# When 'Stuart Fails to Save the Universe' Releases & Full Season Schedule
-
-Features, Stuart Fails to Save the Universe, The Big Bang Theory
-
-Tue, 21 Jul 2026 18:00:13 GMT
-
-https://movieweb.com/when-stuart-fails-save-universe-release-schedule/
-
-'Stuart Fails to Save the Universe,' 'The Big Bang Theory' spin-off series starring Kevin Sussman and Lauren Lapkus, releases soon on HBO Max.
----------
-
-# Avengers: Doomsday Trailer Hides Doom’s Real Plan
-
-Movies, Originals
-
-Tue, 21 Jul 2026 17:30:11 GMT
-
-https://screenrant.com/video/avengers-doomsday-trailer-hides-doom-s-real-plan/
-
-Avengers: Doomsday Trailer Breakdown & Biggest Twist. Marvel Studios has finally released the first official trailer for Avengers: Doomsday, and while it's packed with incredible moments, it may also be hiding the movie's biggest reveal in plain sight.
----------
-
-# The Rookie Issues New Cautionary Tale For Season 9
-
-Network TV, The Rookie
-
-Tue, 21 Jul 2026 17:30:11 GMT
-
-https://screenrant.com/the-rookie-season-8-extended-cut-cautionary-tale/
-
-Weeks after the 2025-2026 TV cycle ended, The Rookie season 8 releases a new version of an episode that functions as a cautionary tale for its future.
 ---------
