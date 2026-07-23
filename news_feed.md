@@ -1,3 +1,47 @@
+# Star Wars Officially Confirms The Return Of Mara Jade Skywalker
+
+Gaming, Star Wars, Live Service Games, PC
+
+Thu, 23 Jul 2026 06:00:11 GMT
+
+https://screenrant.com/star-wars-mara-jade-galaxy-of-heroes/
+
+After a 35-year wait, Disney is finally acknowledging the existence of one of its most iconic characters from the Star Wars expanded universe.
+---------
+
+# Final Fantasy 9: Not Alone Officially Arrives October 2026
+
+Gaming, Final Fantasy 9, Triple-A Games
+
+Thu, 23 Jul 2026 05:30:11 GMT
+
+https://screenrant.com/final-fantasy-9-not-alone-music-box-october-2026/
+
+Out of all the Final Fantasy entries, there's something special about Final Fantasy 9 in that it manages to capture people's hearts for this long.
+---------
+
+# Zelda: Oracle Of Ages & Seasons 25th Anniversary Remake Unites Gamers
+
+Gaming, The Legend of Zelda
+
+Thu, 23 Jul 2026 05:00:11 GMT
+
+https://screenrant.com/zelda-oracle-ages-seasons-25-anniversary-remake-hopes/
+
+As The Legend of Zelda: Oracle of Seasons and Ages mark their 25th anniversary, fans reminisce about the beloved Game Boy Color titles.
+---------
+
+# Mass Effect Meets Total War In New RPG You Can Play Free Now
+
+Gaming, Mass Effect, Mass Effect: Andromeda, Total War: Warhammer 40,000, Mass Effect Legendary Edition
+
+Thu, 23 Jul 2026 04:30:11 GMT
+
+https://screenrant.com/mass-effect-total-war-new-rpg-free-demo/
+
+Experience epic space battles and RTS gameplay in the free demo of Sanctuary: Shattered Sun, a spiritual successor to Mass Effect and Total War.
+---------
+
 # Stranger Things Official New Vecna Spinoff Isn’t What Fans Expected
 
 Gaming, Stranger Things
@@ -5452,48 +5496,4 @@ Tue, 21 Jul 2026 17:30:11 GMT
 https://screenrant.com/the-rookie-season-8-extended-cut-cautionary-tale/
 
 Weeks after the 2025-2026 TV cycle ended, The Rookie season 8 releases a new version of an episode that functions as a cautionary tale for its future.
----------
-
-# Ethan Hawke's The Magnificent Seven Replacement Finally Revealed For New Western Series
-
-TV, The Magnificent Seven
-
-Tue, 21 Jul 2026 17:27:28 GMT
-
-https://screenrant.com/the-magnificent-seven-remake-ethan-hawke-replacement-casting-details/
-
-MGM+’s remake of the classic Western The Magnificent Seven is currently filming in Calgary, Canada, and has just added four new cast members.
----------
-
-# It's The End Of An Era For The Mandalorian After Making $344 Million
-
-Star Wars, The Mandalorian and Grogu, Box Office
-
-Tue, 21 Jul 2026 17:20:11 GMT
-
-https://screenrant.com/the-mandalorian-and-grogu-box-office-not-top-10/
-
-The Mandalorian has reached the end of an era after Lucasfilm and Disney brought the franchise to the big screen to disappointing results.
----------
-
-# Breaking Bad Meets The Wire In FX's 7-Part Cop Show
-
-Classic TV, Masked Recs
-
-Tue, 21 Jul 2026 17:00:11 GMT
-
-https://screenrant.com/the-shield-breaking-bad-meets-the-wire/
-
-The Shield subverted the usual police procedural with a story about corrupt cops, and it deserves to be recognized as a TV masterpiece.
----------
-
-# The Odyssey Box Office Dethrones Most Divisive Star Wars Movie For Major New Record
-
-Movies, The Odyssey
-
-Tue, 21 Jul 2026 16:55:08 GMT
-
-https://screenrant.com/the-odyssey-bfi-imax-opening-box-office-record-star-wars-last-jedi/
-
-Christopher Nolan has another hit on his hands after directing The Odyssey, which has just set a new record previously set by Star Wars.
 ---------
