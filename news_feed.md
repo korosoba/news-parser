@@ -1,3 +1,377 @@
+# Netflix Lands Major Win With Chris Pratt’s Gritty War Thriller Releasing In Just A Few Days
+
+Movies, Masked Recs
+
+Thu, 23 Jul 2026 15:27:40 GMT
+
+https://screenrant.com/zero-dark-thirty-netflix-streaming-release-august-2026/
+
+Netflix will soon see the arrival of a Chris Pratt war thriller that promises to become one of the streaming service's trending movies.
+---------
+
+# 10 Harry Potter Details That Hit Completely Differently As An Adult
+
+Movies, Harry Potter
+
+Thu, 23 Jul 2026 15:23:24 GMT
+
+https://screenrant.com/harry-potter-details-different-adult/
+
+From Dumbledore's brutal choices to Lupin's isolation, these 10 Harry Potter details hit completely differently once you're an adult looking back.
+---------
+
+# PlayStation Plus Free Games Lineup For August 2026 Gets Official Update
+
+Gaming, PlayStation Plus, Indie, Triple-A Games
+
+Thu, 23 Jul 2026 15:20:07 GMT
+
+https://screenrant.com/playstation-plus-free-games-lineup-august-2026-update/
+
+There are several fantastic games being removed from the PlayStation Plus Extra and Premium catalogs in August, but you can still beat them.
+---------
+
+# After 10 Years, Crunchyroll Brings Back Legendary Shonen Jump Sci-Fi Action Anime With New Release
+
+Anime, Shonen Jump
+
+Thu, 23 Jul 2026 15:07:15 GMT
+
+https://screenrant.com/crunchyroll-assassination-classroom-anime-movie-return/
+
+One of Shonen Jump's best anime of recent years has confirmed that its new release celebrating its 10th anniversary is dropping on Crunchyroll today.
+---------
+
+# Exclusive: Hasbro Releases New G.I. Joe Inspired Music Video
+
+Exclusive, G.I. Joe, San Diego Comic-Con
+
+Thu, 23 Jul 2026 15:07:07 GMT
+
+https://screenrant.com/gi-joe-band-music-video-cobra-island-sdcc-2026/
+
+ScreenRant can exclusively reveal the new music video from the G.I. Joe inspired band Cold Slither, before their performance at San Diego Comic-Con.
+---------
+
+# Tom Holland Directly Addresses Jean Grey Rumors For Spider-Man: Brand New Day
+
+Movies, Spider-Man: Brand New Day
+
+Thu, 23 Jul 2026 15:05:25 GMT
+
+https://screenrant.com/spider-man-brand-new-day-tom-holland-jean-grey-rumors/
+
+Spider-Man: Brand New Day is introducing some new characters to the MCU, and Tom Holland has finally addressed the rumors of Jean Grey's introduction.
+---------
+
+# Halo: Campaign Evolved - How To Get The Game's Rarest Achievement
+
+Gaming, Halo: Campaign Evolved
+
+Thu, 23 Jul 2026 15:05:11 GMT
+
+https://screenrant.com/halo-campaign-evolved-this-is-my-ship-now-guide/
+
+If you're trying to figure out how to get this somewhat frustrating trophy or achievement, we've got you covered.
+---------
+
+# Tyrese Gibson & Harvey Keitel Face Off In Kill Code Clip
+
+Exclusive, Tyrese Gibson
+
+Thu, 23 Jul 2026 15:00:11 GMT
+
+https://screenrant.com/video/kill-code-movie-tyrese-gibson-harvey-keitel-clip/
+
+Exclusive: ScreenRant presents a clip from Kill Code, Justin Price's new action thriller starring Frank Grillo, Tyrese Gibson, and Harvey Keitel.
+---------
+
+# Halo: Campaign Evolved - Complete Weapons Guide
+
+Gaming, Halo: Campaign Evolved, Halo
+
+Thu, 23 Jul 2026 15:00:11 GMT
+
+https://screenrant.com/halo-campaign-evolved-complete-weapons-guide/
+
+There are more guns than ever before in Halo: Campaign Evolved, so we've broken down every one of them so you can choose your playstyle.
+---------
+
+# Star Trek: Lower Decks Returns in Less Than Two Months
+
+Comics, Star Trek, Star Trek Lower Decks
+
+Thu, 23 Jul 2026 15:00:11 GMT
+
+https://screenrant.com/star-trek-lower-decks-returns/
+
+They're back!
+---------
+
+# The Best PS2 Game Is a 10/10 Masterpiece 21 Years Later
+
+Games, PlayStation 2, God of War
+
+Thu, 23 Jul 2026 15:30:14 GMT
+
+https://www.cbr.com/best-ps2-game-perfect-masterpiece-god-of-war/
+
+The PS2's best game has only gotten better with age.
+---------
+
+# 5 Perfect 2020s Anime Series Everyone Already Forgot About
+
+Anime, Shojo, A Sign of Affection
+
+Thu, 23 Jul 2026 15:15:14 GMT
+
+https://www.cbr.com/perfect-forgotten-2020s-anime-series/
+
+Some of the best new-gen anime of the 2020s have already been forgotten by fans.
+---------
+
+# Criminal Minds Season 19 Finale Officially Confirms Major Character Exit
+
+TV, Criminal Minds, Crime, Paramount Plus
+
+Thu, 23 Jul 2026 15:12:21 GMT
+
+https://www.cbr.com/criminal-minds-season-19-finale-zack-gilford-voit-exit/
+
+It's time to say goodbye to a major Criminal Minds character.
+---------
+
+# Tag Returns as a Streaming Hit 8 Years Later
+
+Movies, Tag, Comedy, HBO Max
+
+Thu, 23 Jul 2026 15:00:15 GMT
+
+https://www.cbr.com/tag-comedy-streaming-success-hbo-max-july-2026/
+
+An underrated eight-year-old comedy starring Jeremy Renner and Jon Hamm is rising on the streaming charts once again.
+---------
+
+# 5 Ways Dragon Ball's Saiyans Are Different From Humans
+
+Anime, Dragon Ball, Super saiyan
+
+Thu, 23 Jul 2026 15:00:15 GMT
+
+https://www.cbr.com/dragon-ball-ways-saiyans-different-from-humans/
+
+Saiyans and humans represent many of Dragon Ball's most important characters, but there are some fundamental differences between these two groups.
+---------
+
+# The Big Bang Theory's New Spinoff Sets a New Rotten Tomatoes Record
+
+TV, Stuart Fails to Save the Universe, Rotten Tomatoes, The Big Bang Theory
+
+Thu, 23 Jul 2026 14:52:26 GMT
+
+https://www.cbr.com/stuart-fails-to-save-the-universe-rotten-tomatoes-score/
+
+The new spinoff is nothing unlike the franchise so far.
+---------
+
+# The Vampire Lestat Is A Horror Masterpiece That Just Set a New Standard for Vampire TV
+
+TV, The Vampire Lestat, Interview with the Vampire, Horror
+
+Thu, 23 Jul 2026 14:31:14 GMT
+
+https://www.cbr.com/the-vampire-lestat-new-vampire-tv-standard/
+
+Many television shows have included vampires in their episodes, but The Vampire Lestat sets a new standard for vampire representation in horror.
+---------
+
+# 10 Most Universally Beloved Western Movies Of All Time, Ranked
+
+Movies, Western
+
+Thu, 23 Jul 2026 14:30:15 GMT
+
+https://www.cbr.com/most-beloved-western-movies-list/
+
+The Western has a proud legacy in cinema, serving up a strong assortment of films praised by fans and critics alike.
+---------
+
+# 10 Near-Perfect Anime Turning 20 In 2026
+
+Anime, Code Geass: Lelouch of the Rebellion, Death Note, Gintama
+
+Thu, 23 Jul 2026 14:15:14 GMT
+
+https://www.cbr.com/near-perfect-anime-turning-20-in-2026/
+
+2006 was a magical time for the anime medium, and 20 years later, these ten series continue to capture the hearts of audiences globally.
+---------
+
+# Square Enix Officially Surprises Fans With New Final Fantasy Game on Switch 2Final Fantasy X/X-2 Receive New Edition To Celebrate 25th Anniversary
+
+Games, Final Fantasy, Final Fantasy X|X-2 HD Remaster, Nintendo
+
+Thu, 23 Jul 2026 14:06:14 GMT
+
+https://www.cbr.com/final-fantasy-10-new-edition-25th-anniversary-nintendo-switch-2/
+
+Final Fantasy X/X-2 is coming to a brand-new platform to celebrate its 25th anniversary, with a surprise drop for a Nintendo Switch 2 port.
+---------
+
+# Netflix Officially Debuts First Look at Adam Sandler's New Musical Dramedy
+
+Movie News, Adam Sandler, Melanie Lynskey, Netflix, Max Greenfield
+
+Thu, 23 Jul 2026 15:07:52 GMT
+
+https://collider.com/dont-say-good-luck-trailer-sunny-sandler-adam-sandler-producing-netflix/
+
+Netflix debuted the trailer for the Adam Sandler-produced Don't Say Good Luck, following Sunny Sandler as a teen torn between tragedy and the stage.
+---------
+
+# 'Supergirl' Flies Onto Digital With Epic New Behind the Scenes Look [Exclusive]
+
+Movie News, Supergirl, DC Comics, Milly Alcock, Craig Gillespie
+
+Thu, 23 Jul 2026 15:00:15 GMT
+
+https://collider.com/supergirl-digital-4k-release-date-behind-the-scenes-video/
+
+Supergirl hits home video next week, and Collider has a special sneak peek of its behind-the-scenes special features. Watch it now.
+---------
+
+# 'Half Man's Jamie Bell Officially Returns in First Look at Twisted New Satirical Comedy [Exclusive]
+
+Movie News, Rosebush Pruning, Jamie Bell, Riley Keough, Callum Turner
+
+Thu, 23 Jul 2026 15:00:15 GMT
+
+https://collider.com/rosebush-pruning-movie-first-look-jamie-bell/
+
+Collider has a sneak peek of the new satirical comedy Rosebush Pruning, with Jamie Bell and Callum Turner. Watch it now.
+---------
+
+# ‘Resident Evil’ Officially Returns With a Terrifying New Trailer
+
+Movie News, Resident Evil, Zach Cregger, Austin Abrams, Paul Walter Hauser
+
+Thu, 23 Jul 2026 14:59:07 GMT
+
+https://collider.com/resident-evil-zach-cregger-first-trailer-austin-abrams/
+
+Watch the first full trailer for Zach Cregger’s Resident Evil, starring Austin Abrams and arriving in theaters September 18, 2026.
+---------
+
+# 'Lanterns' Teaser Offers Action-Packed at DCU's Next Chapter
+
+TV News, Lanterns
+
+Thu, 23 Jul 2026 15:27:46 GMT
+
+https://movieweb.com/lanterns-teaser-hbo-max/
+
+DC Studis sets the stage for some exciting Green Lantern action in a new teaser for the upcoming 'Lanterns' series.
+---------
+
+# 30 Years Later, Adam Sandler's Criminally Underrated Action Caper Sets New Release
+
+Movie News, Bulletproof, Adam Sandler
+
+Thu, 23 Jul 2026 15:22:20 GMT
+
+https://movieweb.com/adam-sandler-bulletproof-4k-blu-ray-release/
+
+Kino Lorber are preparing a 4K Blu-ray and Blu-ray release of 'Bulletproof,' Adam Sandler's criminally underrated action-comedy with Damon Wayans.
+---------
+
+# Netflix's New 96-Minute Action Thriller Crowned One of the Biggest Hits on Streaming
+
+Movie News, Action, Thriller, Sniper, Sniper: The Last Stand, Netflix
+
+Thu, 23 Jul 2026 15:00:12 GMT
+
+https://movieweb.com/netflix-sniper-no-nation-biggest-action-thriller-streaming-july-2026/
+
+No flag, no backup, and no mercy.
+---------
+
+# The 10 Best Comic Strips From the '80s (Including The Far Side)
+
+Movie Lists, The Far Side
+
+Thu, 23 Jul 2026 15:00:12 GMT
+
+https://movieweb.com/the-far-side-best-strips-from-the-80s/
+
+The '80s saw the comic strip at its height of new and exciting series making a name for themselves; these ten strips prove it.
+---------
+
+# Alan Ritchson Hails His New Action Thriller as "Shakespearean" as It Tackles Today's Injustice
+
+Movie News, Motor City, Alan Ritchson
+
+Thu, 23 Jul 2026 14:41:26 GMT
+
+https://movieweb.com/alan-ritchson-motor-city-shakespearean-action/
+
+'Reacher' and 'Fast X' star Alan Ritchson shares his excitement to see a new story with similarities to today's world in his newest movie.
+---------
+
+# 5 Years Later, Tom Holland Confirms Long-Delayed Passion Project Is Next After 'Spider-Man'
+
+Movie News, Fred Astaire, Tom Holland
+
+Thu, 23 Jul 2026 14:22:10 GMT
+
+https://movieweb.com/tom-holland-fred-astaire-biopic-movie-update/
+
+Tom Holland says his long-delayed Fred Astaire biopic is next after 'Spider-Man: Brand New Day', with Paul King directing and rehearsals underway.
+---------
+
+# Classic Dracula Story Gets a Modern Reboot With Star-Studded Cast
+
+Movie News, Dracula
+
+Thu, 23 Jul 2026 14:18:57 GMT
+
+https://movieweb.com/dracula-reboot-audible-jonathan-bailey/
+
+Jonathan Bailey has been cast as the voice of Count Dracula.
+---------
+
+# 29 Years Later, Star Trek Finally Beats the Franchise's Best Movie
+
+Features, star trek: strange new worlds, Star Trek, Star Trek: First Contact
+
+Thu, 23 Jul 2026 14:01:12 GMT
+
+https://movieweb.com/star-trek-first-contact-beaten/
+
+'Star Trek: First Contact' changed the game for the franchise in 1996. Almost 30 years later, 'Strange New Worlds' has done it again. Read on.
+---------
+
+# 'Resident Evil' Trailer Brings the Video Game Survival Nightmare to Live-Action
+
+Movie News, Resident Evil
+
+Thu, 23 Jul 2026 13:44:04 GMT
+
+https://movieweb.com/resident-evil-zach-cregger-trailer/
+
+'Weapons' director Zack Cregger jumps into another addition to the hit video game movie franchise, 'Resident Evil,' with a new trailer.
+---------
+
+# Jason Statham's Next 95-Minute Action Thriller Hit Officially Releases in 1 Month
+
+Movie News, Jason Statham, Mutiny, Action, Thriller
+
+Thu, 23 Jul 2026 13:30:03 GMT
+
+https://movieweb.com/jason-statham-muntiny-trailer-release-action-thriller/
+
+Vengeance starts here.
+---------
+
 # Marvel Officially Announces New Codename for X-Men's Gambit
 
 Comics, X-Men
@@ -5122,378 +5496,4 @@ Tue, 21 Jul 2026 22:15:11 GMT
 https://screenrant.com/star-wars-ben-solo-movie-adam-driver-hunt-for-ben-solo-worse/
 
 It was already disappointing that Disney canceled Adam Driver's The Hunt for Ben Solo, but a new reveal about the MCU makes it even worse than before.
----------
-
-# 5 Square Enix RPGs That Are 10/10 Masterpieces, No Notes
-
-Gaming, Square Enix, Final Fantasy, Dragon Quest, Star Ocean, Chrono Trigger
-
-Tue, 21 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/square-enix-10-rated-rpgs-no-notes/
-
-Square Enix has been making incredible RPGs since before the two companies merged, but these are easily the five games that are perfect 10/10s.
----------
-
-# 8 Reasons It’s Tough to Watch Yu-Gi-Oh! Today
-
-Anime, Yu-Gi-Oh!
-
-Tue, 21 Jul 2026 22:15:15 GMT
-
-https://www.cbr.com/yugioh-reasons-its-tough-to-watch-today/
-
-Yu-Gi-Oh! is a classic 2000s kids anime that made millions want to play the TCG, but it can be tough to watch today.
----------
-
-# Netflix's New 8-Part Western Is Officially 1 of the Most-Watched Shows in the World
-
-TV, Little House on the Prairie, Netflix
-
-Tue, 21 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/little-house-on-the-prairie-western-netflix-global-success-july-2026/
-
-The show gathered steam in its second week, despite "woke" allegations.
----------
-
-# It's the End of an Era for the Mortal Kombat Movies After 5 Years
-
-Movies, Mortal Kombat, Mortal Kombat II
-
-Tue, 21 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/mortal-kombat-2-digital-release-ends-franchise-era/
-
-Mortal Kombat II's new release marks the end of an era for the franchise after only five years. What comes next?
----------
-
-# 'Avengers: Doomsday' Breaks New Record 6 Months Before It Hits Theaters
-
-Movie News, Avengers: Doomsday, Avengers: Doomsday (2026), MCU, Avengers: Secret Wars
-
-Tue, 21 Jul 2026 22:52:42 GMT
-
-https://collider.com/avengers-doomsday-trailer-most-viewed-disney-record-503-million-views/
-
-Avengers: Doomsday's recently released teaser is the second biggest trailer launch of all time, just behind Spider-Man: Brand New Day.
----------
-
-# Only 1 Superman Adaptation Has Outperformed Every Other Live-Action Version
-
-TV Features, Superman, Smallville, James Gunn, Hulu
-
-Tue, 21 Jul 2026 22:47:14 GMT
-
-https://collider.com/smallville-best-superman-adaptation-kent-parents/
-
-Smallville quietly outperformed every other live-action Superman adaptation by making Jonathan and Martha Kent essential to Clark’s heroic journey.
----------
-
-# 'Yesteryear’ Exposes the Horror Hiding Inside the Tradwife Fantasy
-
-Books and Comics, Thriller, The Stepford Wives, Anne Hathaway, Gone Girl
-
-Tue, 21 Jul 2026 22:43:14 GMT
-
-https://collider.com/yesteryear-tradwife-thriller-books/
-
-Yesteryear is the most popular and divisive installment of the tradwife thriller novel yet.
----------
-
-# The Greatest Sci-Fi Movie of the 2010s Is Streaming for Free, So Now You Have No Excuse Not to Watch
-
-Movie Features, Gravity, Alfonso Cuaron, Sandra Bullock, George Clooney
-
-Tue, 21 Jul 2026 22:21:14 GMT
-
-https://collider.com/gravity-movie-sandra-bullock-streaming-free-pluto-tv-july-2026/
-
-2013's Sandra Bullock sci-fi drama Gravity, which earned a best director Oscar for Alfonso Cuarón, is streaming free on Pluto TV.
----------
-
-# Marvel Officially Renames Doctor Doom Ahead of Major MCU Debut
-
-Books and Comics News, MCU, Godzilla, Marvel Comics, Doctor Doom
-
-Tue, 21 Jul 2026 22:00:14 GMT
-
-https://collider.com/doctor-doom-new-name-captain-latveria-godzilla-conquers-the-multiverse-1/
-
-Marvel gives Doctor Doom a new name in a bonkers new release ahead of the character’s MCU debut in Avengers: Doomsday.
----------
-
-# New Reimagining of 'Texas Chain Saw Massacre' Is Officially Underway
-
-Movie News, Texas Chain Saw Massacre, Texas Chainsaw Massacre
-
-Tue, 21 Jul 2026 22:28:14 GMT
-
-https://movieweb.com/texas-chainsaw-massacre-rotoscope-remake-leatherface/
-
-A rotocoped recreation of the 1974 classic is expected to be released in 2027.
----------
-
-# Netflix’s Most Binge-Worthy Neo-Western Series Returns in 2 Days
-
-Features, Ransom Canyon, Netflix
-
-Tue, 21 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/ransom-canyon-netflix-season-2/
-
-Netflix's popular Neo-Western TV series is coming back in July 2026, and fans will want to binge-watch it right away.
----------
-
-# Prime Video Scores New Streaming Hit With $540 Million Sci-Fi Action Hit
-
-Movie News, World War Z, Prime Video, Hot on Streaming, Action, Sci-Fi
-
-Tue, 21 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/world-war-z-scifi-action-stream-prime-july-2026/
-
-The sci-fi horror action hit 'World War Z' is a streaming success on Prime Video ahead of the upcoming sequel with Brad Pitt.
----------
-
-# Spider-Man: Beyond The Spider-Verse’s New Animated Sequences Get Exciting Early Tease From Jake Johnson
-
-Movies, Spider-Man: Beyond the Spider-Verse, Spider-Verse
-
-Tue, 21 Jul 2026 21:45:58 GMT
-
-https://screenrant.com/spider-man-beyond-the-spider-verse-sequences-praise-jake-johnson/
-
-EXCLUSIVE: Spider-Verse star Jake Johnson teases more high-octane action sequences in the highly anticipated animated epic, coming next year.
----------
-
-# AMC’s 3-Part British Gangster Thriller Makes MobLand Look Tame
-
-TV, Masked Recs
-
-Tue, 21 Jul 2026 21:45:11 GMT
-
-https://screenrant.com/gangs-of-london-makes-mobland-look-tame/
-
-Guy Ritchie's Paramount+ crime thriller MobLand is not for the faint-hearted, but this other British gangster show makes it look tame by comparison.
----------
-
-# MJ’s Spider-Man: Brand New Day Story Replaces Peter Parker From OG Trilogy In 1 Key Way
-
-Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
-
-Tue, 21 Jul 2026 21:42:20 GMT
-
-https://screenrant.com/spider-man-brand-new-day-mj-peter-optimism-reversal-zendaya/
-
-Zendaya explains how 2026's Spider-Man: Brand New Day will see MJ replace a major Peter Parker story in the  Sony Pictures and Marvel Studios film.
----------
-
-# 41 Years Later, The Last Starfighter Returns With New Spinoff Series
-
-Comics, The Last Starfighter
-
-Tue, 21 Jul 2026 21:37:19 GMT
-
-https://screenrant.com/last-star-fighter-new-spinoff-series-beta/
-
-After decades of mystery, Beta's fate in The Last Starfighter franchise finally comes to light in a new spinoff that fans will not want to miss.
----------
-
-# By The Time Heroes Solved Its Peter Petrelli Problem, The Show Was Already Doomed
-
-Classic TV, Heroes
-
-Tue, 21 Jul 2026 21:30:11 GMT
-
-https://screenrant.com/heroes-solved-peter-petrelli-problem-show-already-doomed/
-
-Heroes quickly encountered a problem with its main character, Peter Petrelli, but by the time it found a proper solution, the show's doom was sealed.
----------
-
-# Ben Stiller's New Apple TV Comedy Movie Debuts To Solid Rotten Tomatoes Score
-
-Movies, Masked Recs
-
-Tue, 21 Jul 2026 21:28:47 GMT
-
-https://screenrant.com/ben-stiller-the-dink-apple-tv-rotten-tomatoes-score/
-
-Along with executive producing Severance, Ben Still has another project at Apple TV, and the comedy film is getting solid reviews from critics.
----------
-
-# Apple TV's Upcoming Sci-Fi Show Answers What If The Matrix Was Made In 2026
-
-TV, Masked Recs
-
-Tue, 21 Jul 2026 21:02:11 GMT
-
-https://screenrant.com/neuromancer-apple-tv-the-matrix-2026/
-
-Apple TV's upcoming cyberpunk adaptation, based on the book that inspired The Matrix movies, has the ingredients of an all-time great sci-fi show.
----------
-
-# Zelda: Ocarina Of Time Remake Official New Teaser Just Debunked A Controversial Rumor
-
-Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
-
-Tue, 21 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/zelda-ocarina-of-time-remake-new-teaser-rumor-debunked/
-
-The Legend of Zelda: Ocarina of Time remake was previously rumored to be making a divisive gameplay change, but a new teaser suggests it is wrong.
----------
-
-# Marvel Studios Has Finally Introduced The Real Wolverine
-
-Streaming TV, Masked Recs
-
-Tue, 21 Jul 2026 20:56:33 GMT
-
-https://screenrant.com/x-men-97-season-2-real-wolverine-character-flaws/
-
-Hugh Jackman's Wolverine has become the character's most popular version, but Marvel Studios has finally brought in the real Wolverine in 2026.
----------
-
-# Jenna Ortega's 2-Part Fantasy Series Is So Good, We Forgive Its Biggest Flaw
-
-Streaming TV, Masked Recs
-
-Tue, 21 Jul 2026 20:45:11 GMT
-
-https://screenrant.com/wednesday-jenna-ortega-biggest-flaw-forgiven/
-
-Jenna Ortega stars in one of the best fantasy TV shows of the decade, and it's so good that it's very easy to forgive its biggest flaw.
----------
-
-# Apple TV Quietly Drops New Pluribus Footage as Fans Await Season 2
-
-TV, Pluribus
-
-Tue, 21 Jul 2026 21:52:58 GMT
-
-https://www.cbr.com/apple-tv-pluribus-season-1-bloopers-footage/
-
-Apple TV gives Pluribus fans something new to watch ahead of Season 2.
----------
-
-# Steam Users Have Until July 23 to Grab 9/10 RPG for Free
-
-Games, Steam
-
-Tue, 21 Jul 2026 21:16:34 GMT
-
-https://www.cbr.com/the-life-and-suffering-of-sir-brante-free-steam-july-2026/
-
-Gamers can save about $20 by picking up the acclaimed RPG now.
----------
-
-# 4 Shonen Anime Series That Are 10/10 Masterpieces
-
-Anime, Shonen
-
-Tue, 21 Jul 2026 21:15:14 GMT
-
-https://www.cbr.com/shonen-anime-series-masterpieces/
-
-These shonen series have shaped the genre, consistently dazzling fans with their unforgettable characters and storylines.
----------
-
-# 5 Biggest Reveals in the Avengers: Doomsday Trailer
-
-Movies, Avengers: Doomsday, Marvel Cinematic Universe, X-Men
-
-Tue, 21 Jul 2026 21:00:15 GMT
-
-https://www.cbr.com/biggest-reveals-avengers-doomsday-trailer-list/
-
-Avengers: Doomsday has finally released a full trailer and there are some big reveals for fans to examine.
----------
-
-# HBO's Harry Potter Officially Confirms Surprise Rating
-
-TV, Harry Potter
-
-Tue, 21 Jul 2026 20:59:33 GMT
-
-https://www.cbr.com/hbo-harry-potter-season-1-rating/
-
-The series will premiere this year.
----------
-
-# Pokémon Officially Reveals New 30th Anniversary Charizard Design
-
-Games, Pokemon, Nintendo
-
-Tue, 21 Jul 2026 20:56:15 GMT
-
-https://www.cbr.com/pokemon-official-reveal-new-charizard-design-30th-anniversary/
-
-Pokémon is celebrating its 30th anniversary in style, with a brand-new Charizard design that's sure to impress fans.
----------
-
-# 10 Best Sci-Fi Books of the 1990s
-
-Books and Comics, Books, Sci-Fi, Michael Crichton, Lois Lowry
-
-Tue, 21 Jul 2026 21:55:14 GMT
-
-https://collider.com/best-sci-fi-books-1990s-ranked/
-
-The Giver by Lowis Lowry, Jurassic Park by Michael Crichton, and Ender's Shadow by Orson Scott Card are among the best sci-fi books of the 1990s.
----------
-
-# 7 Contemporary Romance Books That Are Perfect From the First Page to Last
-
-Books and Comics, Romance, Books, Emily Henry
-
-Tue, 21 Jul 2026 21:44:14 GMT
-
-https://collider.com/contemporary-romance-books-perfect-first-page-to-last/
-
-From the Emily Henry favorite Book Lovers to the fake dating rom-com Boyfriend Material, these contemporary romance books are genuinely perfect.
----------
-
-# This Henry Cavill Fantasy Film Brought the Gods to Life 15 Years Before 'The Odyssey'
-
-Movie Features, Immortals, Tarsem Singh, The Odyssey, Fantasy
-
-Tue, 21 Jul 2026 21:42:14 GMT
-
-https://collider.com/immortals-henry-cavill-the-odyssey/
-
-Tarsem Singh's Greek epic Immortals didn't win over critics, but its glorious visuals and star turn from Henry Cavill were a hit with audiences.
----------
-
-# 10 Most Intense Books of All Time
-
-Books and Comics, Books, L.A. Confidential, And Then There Were None, Nineteen Eighty-Four
-
-Tue, 21 Jul 2026 21:23:14 GMT
-
-https://collider.com/most-intense-books-all-time-ranked/
-
-Classic books like Nineteen Eighty-Four, And Then There Were None, and Blood Meridian all rank among the most intense to ever be published.
----------
-
-# Tom Holland's Spider-Man Starts 'Brand New Day' on the Punisher's Dark Path
-
-Movie News, Spider-Man: Brand New Day, Marvel Cinematic Universe, Tom Holland
-
-Tue, 21 Jul 2026 21:34:56 GMT
-
-https://movieweb.com/spider-man-brand-new-day-peter-parker-punisher/
-
-The actor spoke about how this new film explores Peter's identity crisis.
----------
-
-# Barney Gets a Nightmarish Makeover in Eerie New Trailer for Upcoming Thriller
-
-Movie News, Buddy
-
-Tue, 21 Jul 2026 21:13:02 GMT
-
-https://movieweb.com/buddy-movie-trailer-cristin-milioti-topher-grace/
-
-This 'Barney & Friends' horror parody 'Buddy' is pure nightmare fuel.
 ---------
