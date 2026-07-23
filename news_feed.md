@@ -1,3 +1,333 @@
+# Stranger Things Official New Vecna Spinoff Isn’t What Fans Expected
+
+Gaming, Stranger Things
+
+Thu, 23 Jul 2026 04:00:15 GMT
+
+https://screenrant.com/stranger-things-vecna-arcade-spinoff-reactions/
+
+Stranger Things may be over, but the wider franchise is still going strong, even if the latest release hasn't gone down well with audiences.
+---------
+
+# Law & Order Season 26 Replaces Major Cast Member After Surprise Exit
+
+TV, Law & Order
+
+Thu, 23 Jul 2026 03:25:09 GMT
+
+https://screenrant.com/law-and-order-season-26-reid-scott-exit/
+
+One of Law & Order's biggest stars bids farewell to the series before season 26 as his successor is officially announced for the NBC drama.
+---------
+
+# 7 Greatest K-Drama Zombie Shows All Fans Must Watch, Ranked
+
+TV, K-Drama
+
+Thu, 23 Jul 2026 03:15:11 GMT
+
+https://screenrant.com/best-k-drama-zombie-shows/
+
+The zombie genre is one that is popular all over the world, from the United States to South Korea, and these are some of Korea’s best zombie k-dramas.
+---------
+
+# 5 Nintendo GameCube Games That Are 10/10 Masterpieces, No Notes
+
+Gaming, Nintendo GameCube
+
+Thu, 23 Jul 2026 03:00:11 GMT
+
+https://screenrant.com/nintendo-gamecube-10-rated-games-no-notes/
+
+The GameCube had plenty of great games, but only a more limited selection of classics would be truly hard to improve in any meaningful way.
+---------
+
+# The Lord Of The Rings Has Reached A Franchise First After More Than 70 Years
+
+Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings
+
+Thu, 23 Jul 2026 02:45:06 GMT
+
+https://screenrant.com/lord-of-the-rings-gandalf-two-actors-franchise-first/
+
+For the better part of the century, the on-screen Lord of the Rings franchise has been handled in a particular way. Now, everything is about to change
+---------
+
+# DC’s Answer To Game of Thrones Needs To Be Adapted Immediately
+
+Superheroes, DC Universe, Dark Knights of Steel: Allwinter, Absolute Batman
+
+Thu, 23 Jul 2026 02:30:11 GMT
+
+https://screenrant.com/dc-game-of-thrones-needs-an-adaptation-dark-knights-of-steel/
+
+As exciting as the upcoming Absolute Batman animated series is, DC Studios needs to seriously think about DC Comics' epic "Game of Thrones" story.
+---------
+
+# Every Historical Figure In Assassin's Creed Odyssey
+
+Game Features, Assassin's Creed, Assassin's Creed Odyssey
+
+Thu, 23 Jul 2026 02:00:21 GMT
+
+https://screenrant.com/assassins-creed-odyssey-all-historical-figures-real-people/
+
+Assassin’s Creed Odyssey gives players the opportunity to meet the historical and mythological figures who shaped the Ancient Greek world.
+---------
+
+# Davis's Ransom Canyon Season 2 Exit Detailed By Josh Duhamel
+
+TV, Ransom Canyon - Season 2
+
+Thu, 23 Jul 2026 02:00:06 GMT
+
+https://screenrant.com/ransom-canyon-season-2-davis-exit-josh-duhamel/
+
+EXCLUSIVE: Josh Duhamel teases a new chapter for Staten Kirkland in Ransom Canyon season 2, as Davis Collins' exit opens doors for new opportunities.
+---------
+
+# Pluribus Unveils New Release As Season 2 Wait Continues
+
+TV, Pluribus, Pluribus - Season 1, Pluribus - Season 2
+
+Thu, 23 Jul 2026 01:53:23 GMT
+
+https://screenrant.com/pluribus-season-1-apple-tv-bloopers-video/
+
+While the wait continues for Apple TV's Pluribus season 2, a new release has arrived to temporarily help tide fans over in the meantime.
+---------
+
+# Dragon Ball DAIMA's Super Saiyan 4 Goku Officially Returns August 15
+
+Anime, Dragon Ball, Dragon Ball DAIMA, merchandise, bandai, action figures
+
+Thu, 23 Jul 2026 03:59:14 GMT
+
+https://www.cbr.com/dragon-ball-daima-super-saiyan-4-goku-bandai-evolve-release/
+
+Super Saiyan 4 Goku broke the internet at the climax of Dragon Ball DAIMA, and now he's finally returning in less than 1 month for international fans.
+---------
+
+# 5 Classic PS1 Games That Are 100% Unplayable Today
+
+Games, PlayStation (Original), Video Games, Tomb Raider
+
+Thu, 23 Jul 2026 03:45:14 GMT
+
+https://www.cbr.com/unplayable-ps1-classics/
+
+Decades later, PS1 games like Tomb Raider and Gran Turismo are impossible to play.
+---------
+
+# 5 Stephen King Books Better Than Carrie
+
+TV, Stephen King, Carrie, Horror
+
+Thu, 23 Jul 2026 03:30:15 GMT
+
+https://www.cbr.com/stephen-king-books-better-than-carrie-list/
+
+Even though Carrie was Stephen King's first novel and definitely put him on the map as a horror author, it isn't among his best works.
+---------
+
+# The 15 Deepest Far Side Comics Ever Created
+
+Comics, The Far Side
+
+Thu, 23 Jul 2026 03:30:15 GMT
+
+https://www.cbr.com/the-far-sides-deepest-comics-ever/
+
+Gary Larson's The Far Side presents itself as a funny and absurd comic strip, but its ability to be deep and emotional is equally important to fans.
+---------
+
+# The Free-to-Play RPG With 21 Million Players and Very Positive Steam Reviews
+
+Games, Guild Wars 2
+
+Thu, 23 Jul 2026 03:15:14 GMT
+
+https://www.cbr.com/free-to-play-rpg-21-million-players-very-positive-steam-reviews-gw2/
+
+One of the best free games ever still has millions of players.
+---------
+
+# Disney's Tangled Live-Action Is Officially the Fantasy Event of the Decade
+
+Movies, Tangled, Disney, Fantasy
+
+Thu, 23 Jul 2026 03:15:14 GMT
+
+https://www.cbr.com/disney-tangled-live-action-remake-officially-fantasy-event-of-the-decade/
+
+Not every Disney live-action remake has been popular, but the Tangled live-action remake might become the fantasy event of the decade.
+---------
+
+# Fox's House Replacement Series Officially Comes to Netflix Next Month
+
+TV, Best Medicine
+
+Thu, 23 Jul 2026 03:11:56 GMT
+
+https://www.cbr.com/best-medicine-netflix-streaming-release-date/
+
+The medical drama series soon becomes available for Netflix subscribers.
+---------
+
+# Crunchyroll Adds Over 40 Anime Series in Major New Streaming Launch
+
+Anime, Crunchyroll
+
+Thu, 23 Jul 2026 03:05:15 GMT
+
+https://www.cbr.com/crunchyroll-taiwan-streaming-launch/
+
+Anime streaming giant Crunchyroll just gave one of the biggest demographics access to same-day simulcasts on top of a whole new interface.
+---------
+
+# 10 Beautifully-Written Anime Series You Must Watch At Least Once
+
+Anime, Frieren: Beyond Journey's End, Clannad
+
+Thu, 23 Jul 2026 02:45:15 GMT
+
+https://www.cbr.com/beautifully-written-anime-series-must-watch-at-least-once/
+
+For their beautiful writing alone, series like Clannad: After Story, Violet Evergarden, and Mushishi must be watched at least once.
+---------
+
+# 10 Games to Play If You Only Have 30 Minutes a Night
+
+Games, Video Games, Steam, Nintendo Switch
+
+Thu, 23 Jul 2026 02:30:15 GMT
+
+https://www.cbr.com/games-to-play-30-minutes-a-night/
+
+The curse of adulthood is not having the free time to play games, but some titles can be enjoyed by people who only have 30 minutes free a night.
+---------
+
+# 'The Odyssey' Is Actually the Most Christopher Nolan Film He's Ever Made
+
+Movie Features, Christopher Nolan, The Odyssey, Oppenheimer, Inception
+
+Thu, 23 Jul 2026 04:07:14 GMT
+
+https://collider.com/the-odyssey-christopher-nolan-filmography-themes/
+
+The Odyssey is more than just Christopher Nolan's adaptation of a great historical story; it's the culmination of themes that defined his career.
+---------
+
+# 'House of the Dragon' Just Exposed the Darkest Storyline in 'Game of Thrones' History
+
+TV Features, House of the Dragon, Game Of Thrones, HBO, HBO Max
+
+Thu, 23 Jul 2026 04:06:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-harrenhal-storyline-game-of-thrones-history/
+
+House of the Dragon reveals the darkest history of Harrenhal, leaning into the morbid details tied to its original construction.
+---------
+
+# HBO’s 8-Part Masterpiece Perfected the Slow-Burn Crime Thriller Better Than ‘True Detective’
+
+TV Features, HBO, The Night Of, Riz Ahmed, John Turturro
+
+Thu, 23 Jul 2026 03:09:14 GMT
+
+https://collider.com/hbo-best-slow-burn-crime-thriller-better-than-true-detective-the-night-of-series/
+
+The Night Of perfected the slow-burn crime thriller with Riz Ahmed’s unforgettable performance, gripping courtroom drama, and an unflinching look at t
+---------
+
+# 6 Comic Book Details in the 'Avengers: Doomsday' Trailer Most Fans Missed
+
+Movie, Avengers: Doomsday, MCU, Superhero, comic books
+
+Thu, 23 Jul 2026 03:03:14 GMT
+
+https://collider.com/avengers-doomsday-trailer-comic-book-details-most-fans-missed/
+
+Eagle-eyed comic book fans noticed a few details in the Avengers: Doomsday trailer, including the accurate-ish costumes and certain characters' fates.
+---------
+
+# 7 Forgotten 2000s Mystery Shows That Have Aged Like Fine Wine
+
+TV, Mystery, 2000s, MI-5, In Plain Sight
+
+Thu, 23 Jul 2026 03:01:14 GMT
+
+https://collider.com/forgotten-2000s-mystery-shows-aged-like-fine-wine/
+
+Time has been kind to forgotten 2000s mystery shows like MI-5, Wire in the Blood, and In Plain Sight, with their reputation improving with age.
+---------
+
+# Taylor Sheridan’s 2-Part ‘Yellowstone’ Spin-Off Is Officially CBS’ Newest Smash Hit
+
+TV News, Marshals, Yellowstone, Taylor Sheridan, CBS
+
+Thu, 23 Jul 2026 02:00:25 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-spin-off-marshals-cbs-success-july-2026/
+
+Taylor Sheridan’s Marshals became the most-watched broadcast series of the season despite earning the franchise’s worst Rotten Tomatoes scores.
+---------
+
+# 'Silence of the Lambs' Became a Completely Different Movie Because of This Change
+
+Movie Features, Silence of the Lambs, Jodie Foster, Michelle Pfeiffer, Anthony Hopkins
+
+Thu, 23 Jul 2026 01:03:14 GMT
+
+https://collider.com/silence-of-the-lambs-clarice-starling-jodie-foster-michelle-pfeiffer/
+
+Silence of the Lambs heroine Clarice Starling is one of Jodie Foster's most iconic roles, but director Jonathan Demme preferred Michelle Pfeiffer.
+---------
+
+# Supergirl Officially Returns With New Sci-Fi Epic in 2 Months
+
+Books and Comics News, Supergirl, DC, DCU
+
+Thu, 23 Jul 2026 01:00:15 GMT
+
+https://collider.com/supergirl-woman-of-tomorrow-full-cast-audiobook-release-date-september-1-2026/
+
+After Supergirl underperformed at the box office, the story that inspired the movie is getting a brand-new release by the end of the year.
+---------
+
+# The 7 Best Erotic Sci-Fi Movies of All Time, Ranked
+
+Movie Lists, Sci-Fi
+
+Thu, 23 Jul 2026 02:30:12 GMT
+
+https://movieweb.com/best-erotic-sci-fi-movies-ever/
+
+From cult classics to arthouse gems, explore the best of erotic science fiction to make it to the big screen.
+---------
+
+# 10 Greatest Fantasy Anime Masterpieces of All Time, Ranked
+
+TV Lists, Anime, Attack On Titan, Demon Slayer: Kimetsu no Yaiba
+
+Thu, 23 Jul 2026 02:00:22 GMT
+
+https://movieweb.com/greatest-fantasy-anime-masterpieces/
+
+These fantasy anime TV series are some of the best that were ever released, and every fan of the genre should watch them.
+---------
+
+# Netflix Just Proved It Doesn't Need 'Stranger Things' Anymore
+
+Features, Netflix, Stranger Things
+
+Thu, 23 Jul 2026 01:00:12 GMT
+
+https://movieweb.com/netflix-proved-stranger-things/
+
+Nielsen’s Top 25 rankings for 2025-26 prove that viewers aren't looking for big budget franchises on TV. They just want good storytelling.
+---------
+
 # What Is X-Corp? Marvel Studios' Newest X-Men Initiative Explained
 
 Superheroes, X-Men '97, Marvel Cinematic Universe
@@ -5166,334 +5496,4 @@ Tue, 21 Jul 2026 16:55:08 GMT
 https://screenrant.com/the-odyssey-bfi-imax-opening-box-office-record-star-wars-last-jedi/
 
 Christopher Nolan has another hit on his hands after directing The Odyssey, which has just set a new record previously set by Star Wars.
----------
-
-# Netflix's New R-Rated Dark Fantasy Series Debuts To Rare Rotten Tomatoes Score
-
-TV, Masked Recs
-
-Tue, 21 Jul 2026 16:53:08 GMT
-
-https://screenrant.com/netflix-the-east-palace-show-rotten-tomatoes-score/
-
-Netflix's new eight-episode fantasy series is a hit with critics, receiving praise for its fun pace and ability to fuse different genres.
----------
-
-# Canceled TMNT Series Confirmed to Return in Two Months
-
-Comics, Teenage Mutant Ninja Turtles, Tales of the Teenage Mutant Ninja Turtles
-
-Tue, 21 Jul 2026 16:46:39 GMT
-
-https://screenrant.com/tales-of-the-teenage-mutant-ninja-turtles-return-details-coastal-chaos/
-
-After being canceled following two seasons, Tales of the Teenage Mutant Ninja Turtles is returning this September in an unexpected way.
----------
-
-# Hello Kitty's Biggest Crossover Of All Time Is Coming To Disney+
-
-TV, Hello Kitty
-
-Tue, 21 Jul 2026 16:42:04 GMT
-
-https://screenrant.com/hello-kitty-cocomelon-crossover-disney-streaming/
-
-Hello Kitty's biggest TV series crossover of all time is making a huge comeback by coming to streaming on Disney+. Here is what you need to know.
----------
-
-# 18 Years Later, Lost's Best Episode Is Still Peak Television
-
-Classic TV, Lost
-
-Tue, 21 Jul 2026 16:30:11 GMT
-
-https://screenrant.com/lost-best-episode-years-later-peak-television/
-
-Lost's best episode defied convention by not simplifying its complex sci-fi story, resulting in a groundbreaking outing for the seminal series.
----------
-
-# Game of Thrones: Masters of Intrigue Officially Out Now
-
-Games, Game Of Thrones
-
-Tue, 21 Jul 2026 17:35:15 GMT
-
-https://www.cbr.com/game-of-thrones-masters-of-intrigue-game-official-release/
-
-Fans can officially return to the Game of Thrones universe in Masters of Intrigue, a new game out now.
----------
-
-# Netflix's New 6-Part Creature Feature Is Replacing Widow's Bay as 2026's Best Horror Show
-
-TV, Below, Netflix, Horror
-
-Tue, 21 Jul 2026 17:30:15 GMT
-
-https://www.cbr.com/netflix-below-horror-series/
-
-Apple TV's Widow's Bay took the horror genre by storm in 2026, but Netflix will soon catch up with its own new horror series.
----------
-
-# One Piece Officially Ends the Zoro vs. Sanji Debate
-
-Anime, One Piece, Roronoa Zoro, light novels
-
-Tue, 21 Jul 2026 17:21:15 GMT
-
-https://www.cbr.com/one-piece-novel-zoro-oricon-sales-ranking-july-2026/
-
-A new One Piece release that debuted in July has just ended the Zoro vs. Sanji debate for good.
----------
-
-# The Lord Of The Rings Accidentally Shaped The Best Final Fantasy
-
-Games, The Lord of the Rings, Final Fantasy, Final Fantasy X|X-2 HD Remaster
-
-Tue, 21 Jul 2026 17:15:15 GMT
-
-https://www.cbr.com/lord-of-the-rings-accidentally-shaped-best-final-fantasy/
-
-The developers of Final Fantasy 10 have revealed how The Lord of the Rings changed the entire course of the game's production.
----------
-
-# Spider-Man: Brand New Day Final Trailer Pays Off Peter Parker's 9-Year MCU Story
-
-Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
-
-Tue, 21 Jul 2026 17:10:07 GMT
-
-https://www.cbr.com/spider-man-brand-new-day-final-trailer/
-
-Peter Parker's MCU journey culminates in the final Spider-Man: Brand New Day trailer.
----------
-
-# Disney Cuts Hundreds of Jobs as Pixar Hit With New Layoffs Despite Toy Story 5 Success
-
-TV, Disney, Pixar
-
-Tue, 21 Jul 2026 17:03:08 GMT
-
-https://www.cbr.com/disney-new-layoffs-pixar-national-geographic/
-
-The House of Mouse is continuing a long list of firings.
----------
-
-# After 3-Year Wait, Prime Video's RoboCop TV Series Is Officially Happening
-
-Movies, Robocop, Prime Video, Sci-Fi
-
-Tue, 21 Jul 2026 16:33:30 GMT
-
-https://www.cbr.com/robocop-reboot-series-amazon-prime-video/
-
-The RoboCop streaming TV reboot is officially happening.
----------
-
-# Why Stuart Leads the Big Bang Theory Spinoff
-
-TV, Stuart Fails to Save the Universe
-
-Tue, 21 Jul 2026 16:30:14 GMT
-
-https://www.cbr.com/video/why-stuart-leads-the-big-bang-theory-spinoff/
-
-Why Stuart leads Stuart Fails to Save the Universe was an easy answer for Brian Posehn and John Ross Bowie. The duo explains why Stuart became the heart of The Big Bang Theory spinoff and how the familiar comic book store became the perfect launchpad for a multiverse adventure.
----------
-
-# Legend of Zelda: Ocarina of Time Remake's New Tagline Officially Revealed By Nintendo
-
-Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
-
-Tue, 21 Jul 2026 16:28:14 GMT
-
-https://www.cbr.com/legend-of-zelda-ocarina-of-time-remake-tagline-revealed-nintendo/
-
-Nintendo has started promoting The Legend of Zelda: Ocarina of Time remake in Japan, which includes a brand-new slogan that hints at bigger things.
----------
-
-# Netflix's R-Rated Action Thriller Is Officially One of the Year's Biggest Hits
-
-Movie News, Apex, Charlize Theron, Taron Egerton
-
-Tue, 21 Jul 2026 17:48:56 GMT
-
-https://collider.com/netflix-apex-streaming-biggest-action-thriller-july-2026/
-
-Netflix has officially crowned a new action thriller hit as one of the biggest streaming releases of 2026.
----------
-
-# One ‘Odyssey’ Actor Actually Turned Down Christopher Nolan and Still Got the Part
-
-Exclusives, The Odyssey, Logan Marshall-Green, Christopher Nolan, Collider Forces
-
-Tue, 21 Jul 2026 17:10:11 GMT
-
-https://collider.com/the-odyssey-christopher-nolan-logan-marshall-green-audition/
-
-While on Collider Forces, The Odyssey's Logan Marshall-Green reveals why he originally turned down Christopher Nolan's offer to audition.
----------
-
-# 'Rings of Power' Officially Reveals Gandalf in New Season 3 Image
-
-TV News, The Lord of the Rings: The Rings of Power, Prime Video, Daniel Weyman, Ian McKellen
-
-Tue, 21 Jul 2026 17:04:59 GMT
-
-https://collider.com/the-lord-of-the-rings-the-rings-of-power-season-3-gandalf-first-look/
-
-You shall not pass this post without getting your first look at Gandalf the Grey in The Lord of the Rings: The Rings of Power Season 3.
----------
-
-# Marvel and Sony Bosses Cheered After Watching ‘Spider-Man: Brand New Day’ for the First Time
-
-Exclusives, Spider-Man: Brand New Day, Kevin Feige, Amy Pascal, Marvel
-
-Tue, 21 Jul 2026 16:53:20 GMT
-
-https://collider.com/spider-man-brand-new-day-reaction-kevin-feige-amy-pascal-interview/
-
-Marvel and Sony bosses Kevin Feige and Amy Pascal praise Spider-Man: Brand New Day director Destin Daniel Cretton and tease the future of Tom Holland.
----------
-
-# All 13 Christopher Nolan Movies, Ranked
-
-Movie, The Odyssey, Christopher Nolan, The Dark Knight, Interstellar
-
-Tue, 21 Jul 2026 16:45:14 GMT
-
-https://collider.com/christopher-nolan-movies-ranked/
-
-Christopher Nolan has made some fantastic movies, including Oppenheimer and The Dark Knight... but which one of his stands as the best overall?
----------
-
-# Gritty Navy SEAL Action Thriller Series Officially Sets Netflix Release
-
-TV News, SEAL Team, David Boreanaz, Netflix
-
-Tue, 21 Jul 2026 17:43:16 GMT
-
-https://movieweb.com/seal-team-netflix-release-date/
-
-It's one of several CBS/Paramount+ shows making their way to Netflix.
----------
-
-# Liam Neeson's Long-Awaited Action Thriller Finally Releases Official Trailer
-
-Movie News, Liam Neeson, Zachary Levi
-
-Tue, 21 Jul 2026 17:12:00 GMT
-
-https://movieweb.com/liam-neeson-the-fix-trailer-zachary-levi-action-thriller/
-
-The first footage from 'The Fix' promises another adrenaline-fueled adventure starring Neeson.
----------
-
-# New Look at 'Clayface' Officially Unleashes Terrifying DC Batman Villain
-
-Movie News, Clayface
-
-Tue, 21 Jul 2026 17:08:29 GMT
-
-https://movieweb.com/clayface-images-dc-villain-tom-rhys-harries/
-
-DC Studios shared a wild new look at the leading villain from the DCU's new Batman-adjacent solo movie, 'Clayface.'
----------
-
-# 'Scrubs' Revival's Disappointing Character Exit Actually Makes Perfect Sense
-
-Features, Scrubs
-
-Tue, 21 Jul 2026 17:00:12 GMT
-
-https://movieweb.com/scrubs-revival-dr-park-exit/
-
-Joel Kim Booster isn't coming back for 'Scrubs' Season 2, but his exit leaves behind zero plot holes. Read on for more.
----------
-
-# Taylor Sheridan Dominates as Action Thriller Officially Named Biggest Show on TV
-
-TV News, Taylor Sheridan, Marshals, Action, Thriller, Western, Yellowstone
-
-Tue, 21 Jul 2026 17:00:12 GMT
-
-https://movieweb.com/taylor-sheridan-marshals-biggest-show-july-2026/
-
-The 'Yellowstone' creator continues to find success with the latest franchise spin-offs.
----------
-
-# Final 'Spider-Man: Brand New Day' Trailer Unleashes Strongest Hulk Yet Against MCU Hero
-
-Movie News, Spider-Man: Brand New Day
-
-Tue, 21 Jul 2026 16:21:42 GMT
-
-https://movieweb.com/final-spider-man-brand-new-day-trailer-hulk-scorpion/
-
-Spider-Man battles the Hulk, Scorpion, and the Hand in the final trailer for 'Brand New Day.'
----------
-
-# Blade Runner's New Sequel Series Is Here, And It's 10/10 Perfect
-
-Comics, Blade Runner
-
-Tue, 21 Jul 2026 16:16:25 GMT
-
-https://screenrant.com/blade-runners-new-sequel-series-is-here-and-its-1010-perfect/
-
-Blade Runner is so back!
----------
-
-# DC's R-Rated Body Horror Clayface Unveils Gruesome New Images
-
-Movies
-
-Tue, 21 Jul 2026 16:16:10 GMT
-
-https://screenrant.com/clayface-dc-new-images-horror/
-
-New images have been released of Tom Rhys Harries in the upcoming body horror Clayface from DC, as the gruesome horror awaits release.
----------
-
-# Spider-Man: Brand New Day Unveils Final Trailer
-
-Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
-
-Tue, 21 Jul 2026 16:06:28 GMT
-
-https://screenrant.com/spider-man-brand-new-day-final-trailer/
-
-Tom Holland's return to the Marvel Cinematic Universe is getting closer, as a final trailer has been revealed for Sony's Spider-Man: Brand New Day.
----------
-
-# Prime Video Officially Rebooting 39-Year-Old Sci-Fi Franchise RoboCop In New Series
-
-TV, Robocop
-
-Tue, 21 Jul 2026 16:00:11 GMT
-
-https://screenrant.com/prime-video-robocop-tv-series-confirmed/
-
-Prime Video is officially rebooting a 39-year-old sci-fi franchise in a new TV series being developed by Blumhouse and Atomic Monster.
----------
-
-# Bleach: Thousand-Year Blood War Part 4 Episode #1 Release Date And Time
-
-Anime, Bleach, Bleach: Thousand Year Blood War
-
-Tue, 21 Jul 2026 16:00:11 GMT
-
-https://screenrant.com/bleach-thousand-year-blood-war-part-4-episode-1-release-date-time/
-
-Bleach: Thousand-Year Blood War is coming back soon.
----------
-
-# The Dink Review: A Painfully Predictable Sports Comedy That Fails Its Stars
-
-Movies, The Dink
-
-Tue, 21 Jul 2026 16:00:11 GMT
-
-https://screenrant.com/the-dink-movie-2026-review/
-
-Apple TV's new sports comedy has a cast that should dazzle, but at every turn, the movie falls just as flat as any other subpar sports story.
 ---------
