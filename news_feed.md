@@ -1,3 +1,333 @@
+# Rhaenyra Targaryen’s Dragon From House Of The Dragon Spotted Flying Across The UK
+
+TV, House of the Dragon, Game of Thrones
+
+Thu, 23 Jul 2026 18:32:37 GMT
+
+https://screenrant.com/house-of-the-dragon-rhaenyra-real-dragon-flying-uk/
+
+Rhaenyra Targaryen's dragon from House of the Dragon has been seen flying across the UK as season 3 continues airing on HBO.
+---------
+
+# FX’s Upcoming Thriller Series Will Be Euphoria With A Serial Killer
+
+Streaming TV, Masked Recs
+
+Thu, 23 Jul 2026 18:30:11 GMT
+
+https://screenrant.com/fx-the-shards-series-euphoria-with-serial-killer/
+
+FX and Ryan Murphy's upcoming teen thriller series shares a lot of similarities with the controversial Euphoria... but with a serial killer twist.
+---------
+
+# Xbox Live Is Officially Down
+
+Gaming, Xbox, Live Service Games, PC
+
+Thu, 23 Jul 2026 18:29:27 GMT
+
+https://screenrant.com/xbox-live-outage-july-2026-servers/
+
+Xbox Live servers are having some serious problems right now, and for many fans, the issue couldn't have possibly come at a worse time.
+---------
+
+# Blade Runner 2099 First Look Officially Revealed
+
+TV, Blade Runner 2099
+
+Thu, 23 Jul 2026 18:20:13 GMT
+
+https://screenrant.com/blade-runner-2099-first-look-officially-revealed/
+
+Blade Runner 2099 has unveiled a whole new batch of images showing the upcoming sci-fi miniseries based on the iconic franchise.
+---------
+
+# Percy Jackson Bears The Titan's Curse In First Season 3 Trailer
+
+TV, Percy Jackson & the Olympians, Percy Jackson & The Olympians, San Diego Comic-Con
+
+Thu, 23 Jul 2026 18:11:51 GMT
+
+https://screenrant.com/percy-jackson-season-3-trailer-hercules-casting-sdcc-panel-reveals/
+
+There are four months until Percy Jackson and the Olympians season 3 premieres, and Disney+ has just shared the trailer for the fantasy show’s return.
+---------
+
+# A Knight Of The Seven Kingdoms Season 2's Release Timeline On HBO Clarified By Creator
+
+TV, A Knight Of The Seven Kingdoms, Game of Thrones
+
+Thu, 23 Jul 2026 18:01:05 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-early-2027-release-timeline-ira-parker/
+
+A Knight of the Seven Kingdoms season 2 will be released in 2027, and that release window for the Game of Thrones spinoff has just been narrowed down.
+---------
+
+# 5 Classic PlayStation 2 Games That Are Unplayable Today
+
+Gaming, PlayStation, PlayStation 2
+
+Thu, 23 Jul 2026 18:00:11 GMT
+
+https://screenrant.com/5-classic-playstation-2-games-unplayable-today/
+
+These classic PS2 titles, while perhaps considered great when they were first released, are practically unplayable today.
+---------
+
+# Everyone Forgets Sylar's Superpower In Heroes Is NOT Absorbing Other Powers
+
+Classic TV, Heroes
+
+Thu, 23 Jul 2026 18:00:11 GMT
+
+https://screenrant.com/heroes-sylar-power-not-absorbing-abilities/
+
+Sylar's true power in Heroes was far more unsettling than simply absorbing other powers, making made him one of the most dangerous villains ever.
+---------
+
+# A Knight Of The Seven Kingdoms Season 2 Episodes’ Runtimes Confirmed By Creator After Breaking GOT Tradition
+
+TV, A Knight Of The Seven Kingdoms
+
+Thu, 23 Jul 2026 18:00:05 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-season-2-episode-runtimes-ira-parker/
+
+A Knight of the Seven Kingdoms is breaking traditions, as creator Ira Parker reveals a Game of Thrones tradition that he definitely won't follow.
+---------
+
+# Gundam Unveils Title For Brand-New Anime In 2027
+
+Anime, San Diego Comic-Con, Gundam
+
+Thu, 23 Jul 2026 17:52:19 GMT
+
+https://screenrant.com/mobile-suit-gundam-xarx-zero-anime-2027/
+
+The next Gundam anime is coming soon.
+---------
+
+# Christina Ricci Teases Explosive Yellowjackets Finale: 'Went Out With a Bang'
+
+TV, Yellowjackets
+
+Thu, 23 Jul 2026 18:38:08 GMT
+
+https://www.cbr.com/christina-ricci-teases-yellowjackets-season-4-finale/
+
+The star of Showtime's most controversial survival drama just promised fans a finale that will see at least one character go "out with a bang."
+---------
+
+# The Best Anime With Peak Character Development
+
+Anime, Attack On Titan, Fullmetal Alchemist: Brotherhood
+
+Thu, 23 Jul 2026 18:15:15 GMT
+
+https://www.cbr.com/best-anime-with-peak-character-development/
+
+Great anime are built on memorable characters, and these series elevate them through exceptional development.
+---------
+
+# Anya Taylor-Joy & Timothy Olyphant's New Crime Thriller Is TV's No. 1 Title on Streaming
+
+TV, Lucky, Apple TV, Thriller
+
+Thu, 23 Jul 2026 18:00:15 GMT
+
+https://www.cbr.com/anya-taylor-joy-timothy-olyphant-lucky-crime-thriller-apple-tv-success-july-2026/
+
+Lucky is Apple TV's No. 1 most-watched show in the United States
+---------
+
+# Marvel Confirms Its Newest Hero Is More Powerful Than Every Other Fighter
+
+Comics, Avengers, Marvel Comics
+
+Thu, 23 Jul 2026 18:00:15 GMT
+
+https://www.cbr.com/marvel-avengers-armageddon-3-preview/
+
+The newest member of the Avengers proves to be more powerful than anyone could have imagined.
+---------
+
+# Spider-Man: Brand New Day's Tom Holland Has Undying Passion For Marvel Movie Role
+
+CBR Exclusives, Spider-Man: Brand New Day, tom holland, Spider-Man
+
+Thu, 23 Jul 2026 18:00:15 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-tom-holland-passionate/
+
+Seems like Tom Holland's Spider-Man era is not ending anytime soon.
+---------
+
+# Netflix Confirms New Spinoff of Hit Sci-Fi Horror Based on Bestselling Manga
+
+TV, Parasyte: The Grey, Parasyte The Maxim, Netflix
+
+Thu, 23 Jul 2026 17:52:38 GMT
+
+https://www.cbr.com/netflix-parasyte-tamiya-live-action-series/
+
+Netflix announced a new live-action spinoff series based on its key manga adaptation.
+---------
+
+# 8 Sitcoms To Watch If You Liked Parks & Recreation
+
+TV, Parks and Recreation, Sitcoms, The Office
+
+Thu, 23 Jul 2026 17:30:15 GMT
+
+https://www.cbr.com/sitcoms-like-parks-and-recreation/
+
+Parks and Recreation is easily one of the better sitcoms of recent years, although fans of the show can find plenty of other comedies to enjoy.
+---------
+
+# Law & Order Announces Major Cast Shakeup for Season 26
+
+TV, Law & Order, NBC, james badge dale
+
+Thu, 23 Jul 2026 17:25:17 GMT
+
+https://www.cbr.com/law-order-reid-scott-leaving-season-26/
+
+Changes are coming for the long-running procedural.
+---------
+
+# Sanrio Gives Hello Kitty, Kuromi & My Melody 3 Head-Turning New Designs
+
+Anime, sanrio, Hello Kitty, merchandise
+
+Thu, 23 Jul 2026 17:21:14 GMT
+
+https://www.cbr.com/hello-kitty-kuromi-my-melody-cloudheads-teeturtle/
+
+TeeTurtle releases a brand-new line of Sanrio-themed plushies, with the collection featuring Hello Kitty, My Melody and Kuromi.
+---------
+
+# 4 GameCube Games Better Than Super Smash Bros. Melee
+
+Games, The Legend of Zelda, Resident Evil, Nintendo, Super Smash Bros
+
+Thu, 23 Jul 2026 17:15:15 GMT
+
+https://www.cbr.com/gamecube-games-better-than-super-smash-bros-melee/
+
+Super Smash Bros. Melee provided thousands of hours of fun, but these four GameCube titles are objectively better experiences.
+---------
+
+# Wolverine Gets His Best Trailer Since 'Logan' In Stunning New Footage
+
+Gaming News, Marvel, Gaming, Insomniac Games, X-Men
+
+Thu, 23 Jul 2026 18:40:21 GMT
+
+https://collider.com/wolverine-game-trailer-jean-grey/
+
+Marvel's Wolverine game for the PlayStation 5 just got its best trailer yet. See the stunning new footage for the story teaser here!
+---------
+
+# Season 2 of George R.R. Martin’s Favorite ‘Game of Thrones’ Spin-Off Gets a Massive Filming Update
+
+TV News, Game Of Thrones, A Knight Of The Seven Kingdoms, House of the Dragon, George R.R. Martin
+
+Thu, 23 Jul 2026 18:34:31 GMT
+
+https://collider.com/george-r-r-martin-game-of-thrones-spin-off-a-knight-of-the-seven-kingdoms-season-2-filming-update/
+
+A Knight of the Seven Kingdoms creator Ira Parker has shared a major Season 2 update, including George R.R. Martin’s surprising new contributions.
+---------
+
+# 35 Years Later, These Are the Best Albums of 1991
+
+Music Features, Rock, Pop, Grunge, 1990s
+
+Thu, 23 Jul 2026 18:29:14 GMT
+
+https://collider.com/best-albums-1991/
+
+Nevermind by Nirvana, Blood Sugar Sex Magik by Red Hot Chili Peppers, and Achtung Baby by U2 are among the best albums of the year 1991.
+---------
+
+# Harry Potter Officially Returns to Theaters With Magical New Merch
+
+Movie News, Harry Potter, Harry Potter and the Sorcerer's Stone, Harry Potter and the Cursed Child
+
+Thu, 23 Jul 2026 18:10:42 GMT
+
+https://collider.com/harry-potter-25th-anniversary-popcorn-bucket-images-hogwarts-express/
+
+As the Harry Potter films celebrate their 25th anniversary, the fantasy franchise has debuted at SDCC with a magical new popcorn bucket. See it here!
+---------
+
+# Heroes From Across the Spider-Verse Unite in First Teaser for Marvel's Biggest Crossover Yet [Exclusive]
+
+Exclusives, Marvel, Spider-Man: Brand New Day, Spider-Verse, Spider-Man
+
+Thu, 23 Jul 2026 18:00:14 GMT
+
+https://collider.com/marvel-contest-of-champions-trailer-your-friendly-neighborhood-battlerealm-spider-man/
+
+Marvel Contest of Champions has released a new trailer teasing its wide roster of Spider-Man fighters from across the Spider-Verse. Check it out here.
+---------
+
+# First 'Percy Jackson' Season 3 Footage Brings "The Titan's Curse" to Life
+
+TV News, Percy Jackson & the Olympians, Percy Jackson & The Olympians, San Diego Comic-Con
+
+Thu, 23 Jul 2026 17:27:20 GMT
+
+https://collider.com/percy-jackson-and-the-olympians-season-3-first-footage-description/
+
+Percy Jackson and the Olympians has given fans their first official look at Season 3, which will adapt the fan-favorite novel, The Titan's Curse.
+---------
+
+# 8 TV Finales That Officially Marked the End of an Era
+
+TV, TV Series, The Sopranos, Friends, M*A*S*H
+
+Thu, 23 Jul 2026 17:18:14 GMT
+
+https://collider.com/tv-finales-end-of-era/
+
+The Sopranos, Friends, Six Feet Under, The Big Bang Theory, and more make up our list of TV finales that officially marked the end of an era.
+---------
+
+# 'Percy Jackson' Season 3 Unveils Action-Packed First Footage as Release Date Confirmed
+
+TV News, Percy Jackson & the Olympians, Disney+, Comic-Con
+
+Thu, 23 Jul 2026 18:04:53 GMT
+
+https://movieweb.com/percy-jackson-season-3-release-date-footage/
+
+'Percy Jackson and the Olympians' took San Diego Comic-Con (SDCC) by storm, with an exclusive first look at Season 3 of the Disney+ fantasy saga.
+---------
+
+# 8 Most Divisive Christopher Nolan Castings
+
+Movie Lists, Christopher Nolan
+
+Thu, 23 Jul 2026 18:00:12 GMT
+
+https://movieweb.com/christopher-nolan-divisive-movie-castings/
+
+Christoper Nolan's casting choices in his popular movies like 'The Odyssey' and 'The Prestige' caused division among cinephiles and critics.
+---------
+
+# ‘Reacher’ Star Alan Ritchson Confirms How Long He Wants to Play the Iconic Action Hero
+
+TV News, Reacher, Alan Ritchson, Prime Video
+
+Thu, 23 Jul 2026 17:53:50 GMT
+
+https://movieweb.com/alan-ritchson-reacher-more-seasons/
+
+Alan Ritchson has no plans to retire from playing Jack Reacher anytime soon.
+---------
+
 # Skyrim: Relics Of Hyrule Is A Huge New Zelda Crossover
 
 Gaming, The Elder Scrolls V: Skyrim, The Legend of Zelda, The Legend of Zelda: Breath of the Wild, Bethesda, Nintendo
@@ -5166,334 +5496,4 @@ Wed, 22 Jul 2026 03:30:15 GMT
 https://www.cbr.com/best-lex-luthor-smallville-line-onyx/
 
 In a single line, Smallville conveys the nuances of a character-driven villain and the tragic inevitability of Lex Luthor's destiny.
----------
-
-# The New DC Elseworlds Is Missing the Point of the Original
-
-Comics, DC Comics, DC Elseworlds, Batman
-
-Wed, 22 Jul 2026 03:30:15 GMT
-
-https://www.cbr.com/dcs-elseworlds-is-forgetting-what-made-the-original-so-great/
-
-Since DC released its Elseworlds imprint back in 1989, its out-of-continuity stories have grown too predictable, missing what made it great.
----------
-
-# Hulu's King of the Hill Showrunner Addresses Future Plans for John Redcorn After Actor's Death
-
-TV, King of the Hill
-
-Wed, 22 Jul 2026 03:27:51 GMT
-
-https://www.cbr.com/hulu-king-of-the-hill-john-redcorn-future/
-
-King of the Hill's Showrunner clarifies the future of the John Redcorn character after the death of voice actor Jonathan Joss.
----------
-
-# 5 Hardest Turn-Based RPGs of the 2020s
-
-Games, Wasteland, Darkest Dungeon, Shin Megami Tensei, Video Games
-
-Wed, 22 Jul 2026 03:15:15 GMT
-
-https://www.cbr.com/hardest-turn-based-rpgs-of-the-2020s/
-
-The 2020s ushered in a new era of great turn-based RPGs for gamers to enjoy, and these five titles proved that the genre is just as difficult as ever.
----------
-
-# Man of War is John Wick Meets Saving Private Ryan
-
-Movies, Man of War, John Wick, Saving Private Ryan
-
-Wed, 22 Jul 2026 03:15:15 GMT
-
-https://www.cbr.com/man-of-war-is-john-wick-meets-saving-private-ryan/
-
-LaMonica Garrett, best known for his roles in 1883 and Special Ops: Lioness, lands his first major movie-star role in the VOD film Man of War.
----------
-
-# 8 Most Unfairly Hated TV Characters of All Time, Ranked
-
-TV, Better Call Saul, Friends, How I Met Your Mother, Breaking Bad
-
-Wed, 22 Jul 2026 04:27:14 GMT
-
-https://collider.com/most-unfairly-hated-tv-characters-all-time-ranked/
-
-Skyler White, Elena Gilbert, Beth Dutton, Howard Hamlin, and more make up our list of the most unfairly hated TV characters of all time.
----------
-
-# 10 Greatest Call of Duty Video Games
-
-Gaming, Video Game, Call of Duty: Modern Warfare, Call of Duty, Call of Duty: Black Ops
-
-Wed, 22 Jul 2026 04:14:14 GMT
-
-https://collider.com/best-call-of-duty-games-ranked/
-
-Call of Duty has produced 20 mainline titles throughout its history, but which games stand the test of time as being the absolute best in the saga?
----------
-
-# This Forgotten Fantasy Book Masterpiece Will Hook You in Just 10 Pages
-
-Books and Comics, Books, Fantasy, Adventure, Action
-
-Wed, 22 Jul 2026 03:26:14 GMT
-
-https://collider.com/the-blade-itself-joe-abercrombie-forgotten-fantasy-book-first-law-trilogy/
-
-Joe Abercrombie's forgotten masterpiece, The Blade Itself—the first entry in the First Law trilogy—has 10 of the strongest opening pages in fantasy.
----------
-
-# Netflix’s Gruesome New 8-Part Sci-Fi Thriller Just Hit 24.3M Hours Streamed
-
-TV Features, Human Vapor, Netflix, Series, Science Fiction
-
-Wed, 22 Jul 2026 03:11:15 GMT
-
-https://collider.com/netflix-human-vapor-24-million-hours-global-top-10-series/
-
-Netflix’s Human Vapor has reached 24.3 million viewing hours. Here’s why the Japanese sci-fi thriller is climbing Netflix’s charts.
----------
-
-# Michael B. Jordan's 98-Minute Fantasy Adventure Movie Becomes One of Netflix's Biggest of All Time
-
-Movie News, Swapped, Michael B. Jordan, Netflix
-
-Wed, 22 Jul 2026 04:54:31 GMT
-
-https://movieweb.com/michael-b-jordan-swapped-netflix-top-10-all-time/
-
-And it could climb even higher on the charts.
----------
-
-# 8 Perfect Thrillers With No Bad Seasons
-
-TV Lists, Thriller
-
-Wed, 22 Jul 2026 02:00:22 GMT
-
-https://movieweb.com/perfect-tv-thrillers-no-bad-seasons/
-
-These thriller TV shows, which streamed on platforms such as Netflix and Apple TV or aired on networks, have no bad seasons.
----------
-
-# Millie Bobby Brown Pays Tribute To Late Godzilla Vs. Kong Co-Star Kaylee Hottle
-
-Movies, Millie Bobby Brown, Kaylee Hottle, Godzilla vs. Kong
-
-Wed, 22 Jul 2026 01:35:17 GMT
-
-https://screenrant.com/kaylee-hottle-millie-bobby-brown-tribute/
-
-Following the death of actor Kaylee Hottle at the age of 18, Millie Bobby Brown has posted a touching message about her Godzilla vs. Kong co-star.
----------
-
-# What Every Cobra Kai Cast Member Has Done Since The Netflix Series Ended
-
-Streaming TV, Cobra Kai
-
-Wed, 22 Jul 2026 01:30:11 GMT
-
-https://screenrant.com/cobra-kai-cast-where-are-they-now/
-
-Cobra Kai is one of the most successful Netflix shows with a huge cast: here is what each of the main actors has done since the show's conclusion.
----------
-
-# Every Marvel Movie & Show You Need To Watch Before Avengers: Doomsday
-
-Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
-
-Wed, 22 Jul 2026 01:00:10 GMT
-
-https://screenrant.com/avengers-doomsday-marvel-movies-shows-watch-before/
-
-After Avengers: Doomsday's trailer, these are all the Marvel movies and TV shows needed to watch, or rewatch, to get ready for the MCU event.
----------
-
-# Halo: Reach Remake Leaves Gamers Seriously Excited
-
-Gaming, Halo: Reach, Triple-A Games, PC
-
-Wed, 22 Jul 2026 01:00:11 GMT
-
-https://screenrant.com/halo-reach-remake-gamers-react/
-
-With the release of Campaign Evolved showing what a Halo remake is capable of, fans are unanimously hoping for a return to Halo: Reach once more.
----------
-
-# 26 Years Later, Gil Grissom’s Best Line Is Still The Greatest Quote In CSI History
-
-TV, CSI, CSI: Crime Scene Investigation
-
-Wed, 22 Jul 2026 00:30:11 GMT
-
-https://screenrant.com/csi-best-quote-gil-grissom-lies/
-
-Gil Grissom is known for his brilliant one-liners, but he never topped this quote from the very first season of CSI: Crime Scene Investigation.
----------
-
-# Felicia Day's The Guild Is Back In A Whole New Format
-
-Classic TV, The Guild
-
-Wed, 22 Jul 2026 00:15:11 GMT
-
-https://screenrant.com/felicia-day-the-guild-tv-show-movie-20th-anniversary/
-
-With the 20th anniversary coming upon us next year, Felicia Day is bringing back her hit 2007 to 2013 web series The Guild in a whole new format.
----------
-
-# One Piece Just Teased Zoro's Next Major Power Up, And It's Massive
-
-Anime, One Piece
-
-Wed, 22 Jul 2026 00:00:11 GMT
-
-https://screenrant.com/one-piece-zoro-supreme-king-haki-massive-powerup/
-
-Zoro's about to become an even bigger monster.
----------
-
-# Steve Rogers Is Coming Back In Avengers: Doomsday (But I Know There’s A Catch)
-
-Superheroes, Avengers: Doomsday, Marvel Cinematic Universe, Captain America
-
-Wed, 22 Jul 2026 00:00:11 GMT
-
-https://screenrant.com/steve-rogers-back-in-avengers-doomsday-twist-theory-mcu/
-
-As exciting as it is to see Chris Evans return in Avengers: Doomsday, I have doubts that he's playing the same Steve Rogers who retired in Endgame.
----------
-
-# Netflix's 'Pirates Of The Caribbean Meets Harry Potter' Series Makes Lord Of The Rings Look Small
-
-Streaming TV, Masked Recs
-
-Wed, 22 Jul 2026 00:00:11 GMT
-
-https://screenrant.com/one-piece-live-action-pirates-caribbean-meets-harry-potter/
-
-One epic Netflix saga blends swashbuckling action with whimsical magic, and manages to make Middle-earth feel claustrophobic in the process.
----------
-
-# 10 Best Horror Franchises That Desperately Need The Resident Evil Treatment
-
-Gaming, Resident Evil, Triple-A Games, PC
-
-Wed, 22 Jul 2026 00:00:11 GMT
-
-https://screenrant.com/horror-game-remakes-resident-evil-wishlist/
-
-Resident Evil fans have been absolutely blessed with the revival of the franchise, setting the stage for even more horror franchises to shine next.
----------
-
-# 10 Classic NES Games That Are 10/10 Masterpieces
-
-Games, Nintendo, Video Games
-
-Wed, 22 Jul 2026 01:45:15 GMT
-
-https://www.cbr.com/greatest-nes-game-masterpieces/
-
-Classics like Final Fantasy and Kirby's Adventure are among the best NES games ever made.
----------
-
-# Rick and Morty's New Spinoff Matches Season 9's Rare Rotten Tomatoes Score
-
-TV, President Curtis, Rick and Morty
-
-Wed, 22 Jul 2026 01:40:21 GMT
-
-https://www.cbr.com/president-curtis-rotten-tomatoes-score/
-
-Rick and Morty gets a rare Rotten Tomatoes score back to back with its latest season along with its new spinoff series.
----------
-
-# 10 Greatest Anime Masterpieces of All Time, Officially Ranked
-
-Anime
-
-Wed, 22 Jul 2026 01:30:15 GMT
-
-https://www.cbr.com/best-anime-masterpieces-all-time-official-ranked-list/
-
-Anime like Fullmetal Alchemist: Brotherhood and Monster are the gold standard for the medium.
----------
-
-# 5 Near-Perfect Psychological Thriller Anime Better Than Tokyo Ghoul
-
-Anime, Tokyo Ghoul, Death Note, Neon Genesis Evangelion
-
-Wed, 22 Jul 2026 01:25:15 GMT
-
-https://www.cbr.com/near-perfect-psychological-thriller-anime-better-than-tokyo-ghoul/
-
-While Tokyo Ghoul declined after its first season, these psychological anime never lost sight of their stories.
----------
-
-# Neon's 95-Minute Horror Video Game Adaptation Is Officially a Streaming Hit After Near-Perfect Scores
-
-Movies, Exit 8
-
-Wed, 22 Jul 2026 01:00:15 GMT
-
-https://www.cbr.com/exit-8-horror-shudder-amc-plus-streaming-success-july-2026/
-
-Horror fans are sleeping on the film that holds the record as the highest-rated video game movie on Rotten Tomatoes.
----------
-
-# 10 Best Action Games of the Last 10 Years, Ranked
-
-Games, Video Games, Teenage Mutant Ninja Turtles, Devil May Cry
-
-Wed, 22 Jul 2026 00:45:15 GMT
-
-https://www.cbr.com/best-action-games-last-10-years-ranked/
-
-Action games are the dominant genre in gaming, and these five games are the best of the last 10 years.
----------
-
-# The Harry Potter Reboot Is Officially Abandoning a 28-Year-Old HBO Rule
-
-TV, Harry Potter, Fantasy, HBO Max
-
-Wed, 22 Jul 2026 00:30:15 GMT
-
-https://www.cbr.com/hbo-harry-potter-release-date-change-sunday-tradition/
-
-Harry Potter may be too big to fail, but the reboot is still playing fast and loose with a tried-and-true HBO method.
----------
-
-# Alvin and the Chipmunks is the Perfect Live-Action/Animation Hybrid
-
-Movies, Sonic the Hedgehog
-
-Wed, 22 Jul 2026 00:30:15 GMT
-
-https://www.cbr.com/alvin-and-the-chipmunks-perfect-live-action-animation-hybrid/
-
-Sonic the Hedgehog represents the pinnacle of live-action/animated films, but another movie franchise was even better.
----------
-
-# Transformers Gives Megatron and Grimlock Brutal New 40th Anniversary Designs
-
-Anime, Transformers, The Transformers: The Movie, merchandise, toys, action figures
-
-Wed, 22 Jul 2026 00:20:15 GMT
-
-https://www.cbr.com/transformers-studio-series-grimlock-megatron-battle-damage/
-
-The leader of the Dinobots and the leader of the Decepticons take heavy damage in the newest convention-exclusive Transformers action figures.
----------
-
-# 10 Anime Tournament Arcs That Are 10/10, No Notes
-
-Anime, Dragon Ball, My Hero Academia, Naruto
-
-Wed, 22 Jul 2026 00:15:14 GMT
-
-https://www.cbr.com/best-anime-tournament-arcs-flawless-start-to-finish/
-
-Tournament arcs are one of the most classic forms of anime storytelling, and the best among them are flawless from start to finish.
 ---------
