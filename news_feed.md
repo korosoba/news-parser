@@ -1,3 +1,333 @@
+# Apple TV’s 9-Part Multiverse Thriller Gets Even Better Ahead Of Season 2
+
+TV, Masked Recs
+
+Thu, 23 Jul 2026 21:28:11 GMT
+
+https://screenrant.com/dark-matter-season-2-even-better/
+
+One of Apple TV's most ambitious sci-fi shows is a multiverse thriller that is set to break new ground with its upcoming second season in August.
+---------
+
+# Joe's Best Lioness Quote Proves She's One Of Taylor Sheridan's Most Powerful Characters
+
+TV, Lioness, Op-Ed
+
+Thu, 23 Jul 2026 21:20:11 GMT
+
+https://screenrant.com/lioness-joe-best-line-powerful-character-taylor-sheridan/
+
+Lioness' Joe is one of Taylor Sheridan's best heroines, and with one particular quote, she removed any doubt about who is in charge on the series.
+---------
+
+# Mondo Reveals New Real Ghostbusters Collectible at SDCC (Exclusive)
+
+Comic-Con, Ghostbusters, San Diego Comic-Con
+
+Thu, 23 Jul 2026 21:15:07 GMT
+
+https://screenrant.com/mondo-real-ghostbusters-ecto-1-collectible-sdcc-exclusive/
+
+ScreenRant can exclusively reveal Mondo's new Ecto-1 collectible from the animated series The Real Ghostbusters at San Diego Comic-Con.
+---------
+
+# 20 Best Star Wars Games Of All Time
+
+Gaming, Star Wars, PC
+
+Thu, 23 Jul 2026 21:00:13 GMT
+
+https://screenrant.com/star-wars-best-games-play/
+
+Star Wars has a long catalog of video games, but there are a handful of especially great titles that are still must-plays for fans.
+---------
+
+# 10 MCU Projects We Think Are Definitely In Kevin Feige's 2026-2042 Plan
+
+Movies, Marvel Cinematic Universe
+
+Thu, 23 Jul 2026 21:00:12 GMT
+
+https://screenrant.com/mcu-movies-in-kevin-feige-marvel-2042-plan/
+
+Kevin Feige has revealed that, all going well, the MCU will continue until 2042. Here are 10 future projects we think Marvel Studios has planned.
+---------
+
+# 21 Years Later, Star Wars Is Finally Returning To The Prequel Era
+
+Gaming, Star Wars, Star Wars Zero Company, Star Wars Outlaws
+
+Thu, 23 Jul 2026 21:00:12 GMT
+
+https://screenrant.com/star-wars-zero-company-new-details-prequel-era/
+
+Experience a darker, grittier Star Wars universe as you lead a team of misfits through the Clone Wars.
+---------
+
+# Netflix’s New R-Rated Dark Fantasy Earns Solid Rotten Tomatoes Audience Score
+
+TV, Masked Recs
+
+Thu, 23 Jul 2026 20:59:58 GMT
+
+https://screenrant.com/the-east-palace-rotten-tomatoes-audience-score/
+
+Netflix's eight-episode fantasy series is winning over audiences, with viewers sharing a variety of positive opinions on the genre-mashing drama.
+---------
+
+# Avatar: The Last Airbender Universe Introduces New Written Language In Upcoming Aang Movie
+
+Movies, Avatar Aang: The Last Airbender, Avatar: The Last Airbender, San Diego Comic-Con
+
+Thu, 23 Jul 2026 20:54:29 GMT
+
+https://screenrant.com/aang-the-last-airbender-new-written-language-photos/
+
+Several exciting details about Avatar Aang: The Last Airbender, including a new written language, are revealed at San Diego Comic-Con 2026.
+---------
+
+# Robert Pattinson's New A24 Thriller Based On Real-Life Reality Series Gets Official Release Date
+
+Movies, Robert Pattinson
+
+Thu, 23 Jul 2026 20:51:20 GMT
+
+https://screenrant.com/robert-pattinson-primetime-a24-release-date-confirmed/
+
+Robert Pattinson's latest role as Chris Hansen in the A24 thriller movie promises a gripping look into the rise of a controversial TV series.
+---------
+
+# Avatar's New Airbender Sequel Series Reveals Release Date For Korra's Successor
+
+TV, Avatar: Seven Havens, San Diego Comic-Con
+
+Thu, 23 Jul 2026 20:50:12 GMT
+
+https://screenrant.com/avatar-seven-havens-trailer-next-avatar-premiere-date/
+
+Paramount+ drops a first look at Avatar: Seven Havens and confirms the upcoming animated series' release date at San Diego Comic-Con.
+---------
+
+# Ex Machina Has the Darkest Ending in Sci-Fi Movie History
+
+Movies, Ex Machina
+
+Thu, 23 Jul 2026 21:30:14 GMT
+
+https://www.cbr.com/ex-machina-darkest-ending-sc-fi-history/
+
+Sci-fi movies are filled with grim and twisted endings but one of the best sci-fi movies also has a dark ending that is still overlooked.
+---------
+
+# Godzilla vs. Kong Director Gives Encouraging Return Update After Sitting Out Supernova
+
+CBR Exclusives, Godzilla, Godzilla vs. Kong, adam wingard, San Diego Comic-Con
+
+Thu, 23 Jul 2026 21:18:41 GMT
+
+https://www.cbr.com/adam-wingard-potential-godzilla-return/
+
+The MonsterVerse franchise keeps thriving, and it might bring back one key director.
+---------
+
+# 5 Turn-Based RPGs Objectively Better Than Persona 5 Royal
+
+Games, Persona 5 Royal, Final Fantasy X|X-2 HD Remaster, Paper Mario: The Thousand-Year Door, RPG, JRPG
+
+Thu, 23 Jul 2026 21:15:17 GMT
+
+https://www.cbr.com/turn-based-rpgs-better-than-persona-5-royal/
+
+While Persona 5 Royal offered a wonderful experience in turn-based play, there are far better games that are even more fulfilling.
+---------
+
+# Rachel Brosnahan's 124-Minute Spy Thriller Returns as a Prime Video Hit 1 Year Later
+
+Movies, The Amateur
+
+Thu, 23 Jul 2026 21:00:17 GMT
+
+https://www.cbr.com/the-amateur-spy-thriller-prime-video-success-july-2026/
+
+Most audiences are only now discovering Superman star Rachel Brosnahan's other 2025 movie.
+---------
+
+# Summer 2026's New Farming Sim Is The Perfect Stardew Valley Replacement
+
+CBR Exclusives, Stardew Valley, Video Games, review, Simulation
+
+Thu, 23 Jul 2026 21:00:17 GMT
+
+https://www.cbr.com/moonlight-peaks-life-sim-game-review/
+
+Almost nothing has been able to fill the life sim void since Stardew Valley, but Little Chicken Game Company's Moonlight Peaks comes awfully close.
+---------
+
+# 8 Sci-Fi Movie Endings That Are Genuine Masterpieces
+
+Movies, Sci-Fi
+
+Thu, 23 Jul 2026 21:00:17 GMT
+
+https://www.cbr.com/perfect-sci-fi-movie-endings-list/
+
+A film's ending can make or break a great movie, and these sci-fi movie masterpieces had near-perfect endings.
+---------
+
+# The Nazgul Officially Return in Lord of the Rings' 2026 Prequel Release
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Prime Video
+
+Thu, 23 Jul 2026 20:46:58 GMT
+
+https://www.cbr.com/nazgul-the-lord-of-the-rings-the-rings-of-power-season-3/
+
+The Ringwraiths are back in 2026's The Lord of the Rings prequel.
+---------
+
+# 30 Years Later, Jim Carrey's Most Underrated Film Is Being Rebooted by Hulu
+
+TV, The Cable Guy
+
+Thu, 23 Jul 2026 20:44:21 GMT
+
+https://www.cbr.com/hulu-the-cable-guy-reboot-casting-natasha-rothwell/
+
+Cast members have been revealed for the reimagined version of the polarizing Jim Carrey movie.
+---------
+
+# 4 Fantasy Book Magic Systems That Are Nearly Perfect
+
+Movies, Fantasy
+
+Thu, 23 Jul 2026 20:30:16 GMT
+
+https://www.cbr.com/perfect-magic-systems-in-fantasy-books-list/
+
+Fantasy books are one of the most popular fiction genres and a select few of these books have near-perfect magic systems.
+---------
+
+# The 59-Year-Old Star Trek Episode William Shatner & Leonard Nimoy Both Hailed as Their Favorite
+
+TV, Star Trek, Star Trek: The Original Series, Sci-Fi
+
+Thu, 23 Jul 2026 20:30:16 GMT
+
+https://www.cbr.com/star-trek-tos-the-devil-in-the-dark-cast-favorite-episode/
+
+Star Trek: The Original Series produced many classic episodes, but the show's stars, William Shatner and Leonard Nimoy, have a mutual favorite.
+---------
+
+# 7 Must-Watch Movies To Enjoy If You Love 'The Invite'
+
+Movie, The Invite, The Drama, Booksmart, Who's Afraid of Virginia Woolf?
+
+Thu, 23 Jul 2026 21:20:14 GMT
+
+https://collider.com/movies-like-the-invite/
+
+The Drama, Who's Afraid of Virginia Woolf?, and Booksmart are perfect films to watch if you love Olivia Wilde's new A24 comedy movie, The Invite.
+---------
+
+# 6 Best Family Movies Released Since 2000
+
+Movie, Family, Spirited Away, How to Train Your Dragon, Paddington 2
+
+Thu, 23 Jul 2026 21:09:17 GMT
+
+https://collider.com/best-family-movies-since-2000-ranked/
+
+Paddington 2, How to Train Your Dragon, and Toy Story 3 are all among the very best movies for kids and families released since 2000.
+---------
+
+# All 7 MCU Movies Starring Chris Evans, Ranked
+
+Movie, Avengers: Infinity War, Captain America: The Winter Soldier, Avengers: Endgame, Avengers: Doomsday
+
+Thu, 23 Jul 2026 20:57:16 GMT
+
+https://collider.com/chris-evans-mcu-movies-ranked/
+
+There are seven MCU movies where Chris Evans had a starring role, including The Avengers and Captain America: Civil War... but which one's the best?
+---------
+
+# A New Era for 'Avatar: The Last Airbender' Begins in First Trailer for Sequel Series
+
+TV News, Avatar: Seven Havens, Paramount, Avatar: The Last Airbender, Legend of Korra (TV Series)
+
+Thu, 23 Jul 2026 20:51:16 GMT
+
+https://collider.com/avatar-the-last-airbender-spin-off-seven-havens-release-date-october-9-2026/
+
+During a panel at San Diego Comic-Con, Paramount officially revealed the first trailer for Avatar: Seven Havens. See the sequel series' trailer here!
+---------
+
+# 'The Lord of the Rings' Will Finally Solve a 72-Year J.R.R. Tolkien Mystery
+
+Features, The Lord of the Rings: The Rings of Power, The Lord of the Rings, J.R.R. Tolkien
+
+Thu, 23 Jul 2026 21:31:03 GMT
+
+https://movieweb.com/lord-of-the-rings-rings-of-power-solve-tolkien-mystery-nazgul/
+
+'The Rings of Power' Season 3 will solve a very old 'Lord of the Rings' mystery, adding new layers to some of its most mysterious villains.
+---------
+
+# Taylor Sheridan's Near-Perfect 5-Part Western Is Making a Comeback in 2026
+
+TV News, Yellowstone, Paramount Plus, Hot on Streaming, Taylor Sheridan
+
+Thu, 23 Jul 2026 21:01:13 GMT
+
+https://movieweb.com/yellowstone-taylor-sheridan-streaming-success-paramount-july-2026/
+
+Taylor Sheridan's iconic western series, 'Yellowstone,' returns to the streaming charts on Paramount+ in 2026.
+---------
+
+# NBC's Longest-Running Series in History Sets Return With New Look at Upcoming Season
+
+TV News, Law & Order: Special Victims Unit
+
+Thu, 23 Jul 2026 21:00:19 GMT
+
+https://movieweb.com/svu-season-28-first-look/
+
+'Law & Order: SVU' has officially started filming Season 28, and Ice-T's first-day set photo offers a reassuring update for fans.
+---------
+
+# 3 Years After 'Fast X,' Alan Ritchson Offers Update on Long-Awaited Action Thriller Sequel
+
+Movie News, Fast and Furious, Fast Forever, Alan Ritchson
+
+Thu, 23 Jul 2026 20:44:29 GMT
+
+https://movieweb.com/alan-ritchson-fast-and-furious-update/
+
+The newcomer to the series admits how many challenges a movie like this faces, but teases it's just a matter of time.
+---------
+
+# First Look at Prime Video's Long-Awaited 'Blade Runner' Sequel Series Finally Revealed
+
+TV News, Blade Runner 2099, Blade Runner
+
+Thu, 23 Jul 2026 20:41:03 GMT
+
+https://movieweb.com/blade-runner-2099-first-look-images-prime-video/
+
+The sequel series, five years in the making, is nearly here.
+---------
+
+# Alan Ritchson Officially Confirms Talks to Star as a Major Character in James Gunn's DCU
+
+Movie News, Alan Ritchson
+
+Thu, 23 Jul 2026 20:11:08 GMT
+
+https://movieweb.com/alan-ritchson-james-gunn-dcu-batman/
+
+The 'Reacher' actor provided an update on the chances of him joining DC Studios.
+---------
+
 # David Tennant Officially Starring In New Adaptation Based On Scandalous 54-Year-Old Bestselling Novel
 
 Movies, David Tennant
@@ -5166,334 +5496,4 @@ Wed, 22 Jul 2026 13:10:14 GMT
 https://collider.com/the-amazing-spider-man-volume-7-issue-33-preview-images-marvel-comics/
 
 A new preview of The Amazing Spider-Man #33 sees Peter and Aunt May getting to know a long-lost member of the family. Check it out here!
----------
-
-# Marvel Studios Officially Confirms MCU Plans Up Until 2042
-
-Movie News, Avengers: Doomsday
-
-Wed, 22 Jul 2026 14:30:32 GMT
-
-https://movieweb.com/marvel-studios-confirms-mcu-plans-2042/
-
-The vast future of the MCU has been planned, according to studio president Kevin Feige.
----------
-
-# Jennifer Garner's New 8-Part Series Crowned One of Streaming's Biggest Shows
-
-TV News, The Five-Star Weekend, Jennifer Garner, Hot on Streaming, Drama, Peacock
-
-Wed, 22 Jul 2026 14:00:12 GMT
-
-https://movieweb.com/five-star-weekend-jennifer-garner-streaming-hit-peacock-july-2026/
-
-Following its debut on July 9, Jennifer Garner's new five-star series shattered a massive streaming record for Peacock.
----------
-
-# 20 Must-See Movies Releasing Exclusively in Theaters This Fall
-
-Movie Lists, Digger, The Hunger Games: Sunrise on the Reaping, Resident Evil, Godzilla Minus Zero
-
-Wed, 22 Jul 2026 14:00:12 GMT
-
-https://movieweb.com/movies-theaters-fall-2026/
-
-Fall 2026 has some exciting movies being released in theaters, from comedy to drama to some sequels to popular films.
----------
-
-# NBC's Complete Fall 2026 Schedule - Every TV Series & When It Releases
-
-TV Lists, Dateline NBC, The Traitors, The Voice, Law and Order
-
-Wed, 22 Jul 2026 13:00:12 GMT
-
-https://movieweb.com/nbc-complete-fall-2026-schedule/
-
-NBC's upcoming fall 2026 schedule has a TV show for every fan, from sitcoms to reality TV and several popular returning long-running dramas.
----------
-
-# Netflix Reboot of Fantasy Favorite Sees Original Stars Return in New Images
-
-Movie News, 13 Going on 30, Jennifer Garner, Judy Greer
-
-Wed, 22 Jul 2026 12:13:03 GMT
-
-https://movieweb.com/13-going-on-30-reboot-jennifer-garner-judy-greer/
-
-Set photos show Jennifer Garner and Judy Greer on the set of Netflix's '13 Going on 30' reboot, though the streamer won't confirm their roles.
----------
-
-# Kevin Feige Just Gave Us The Biggest Clue To How Avengers: Secret Wars Ends
-
-Movies, Avengers: Secret Wars, Marvel Cinematic Universe
-
-Wed, 22 Jul 2026 12:00:12 GMT
-
-https://screenrant.com/avengers-secret-wars-ending-kevin-feige-comment/
-
-Kevin Feige's comments about Avengers: Secret Wars and its story paints an interesting picture when it comes to the MCU movie's ending.
----------
-
-# Rogue's 5 Greatest X-Men Designs That Are Basically Perfect
-
-Marvel Comics, X-Men
-
-Wed, 22 Jul 2026 12:00:12 GMT
-
-https://screenrant.com/rogue-greatest-designs-costumes-perfect/
-
-Rogue has changed styles drastically across her forty-five-year X-Men comic history, from her classic green-and-yellow suit to other bold redesigns.
----------
-
-# Final Fantasy 10/10-2 HD Remaster Nintendo Switch 2 Impressions: Is It Worth Playing?
-
-Gaming, Final Fantasy X, Final Fantasy X-2, Final Fantasy
-
-Wed, 22 Jul 2026 12:00:12 GMT
-
-https://screenrant.com/final-fantasy-10-x2-remaster-switch-2-comparison/
-
-After various ports of Final Fantasy X/X-2 Remaster, the classic games have now arrived on Nintendo Switch 2, but is the latest version worth playing?
----------
-
-# Pokémon Timeless Diamond & Spaceless Pearl Get Surprise Release
-
-Gaming, Pokemon, Pokemon Diamond and Pearl
-
-Wed, 22 Jul 2026 11:45:11 GMT
-
-https://screenrant.com/pokemon-timeless-diamond-spaceless-pearl-rom-hack/
-
-There are plenty of exciting Pokémon fan projects out there, but this could easily be one of the best of the bunch.
----------
-
-# Children Of Time Adaptation Announced, 11 Years After The First Book
-
-Gaming, RPG, Sci-Fi, PC
-
-Wed, 22 Jul 2026 11:34:43 GMT
-
-https://screenrant.com/children-of-time-rpg-officially-announced/
-
-Children of Time officially returns with a new adaptation 11 years after the first book released, taking fans on an all-new adventure.
----------
-
-# Final Fantasy 10 Free Download Released To Celebrate Game's 25th Anniversary
-
-Gaming, Final Fantasy X, Final Fantasy
-
-Wed, 22 Jul 2026 11:00:11 GMT
-
-https://screenrant.com/final-fantasy-10-25th-anniversary-album-download/
-
-Final Fantasy X is one of the more underrated entries in the series, and it's about to return with a very interesting new release.
----------
-
-# Absolute Batman Reveals Most Unsettling Variant Cover Yet
-
-Comics, Absolute Batman, Batman
-
-Wed, 22 Jul 2026 12:01:15 GMT
-
-https://www.cbr.com/absolute-batman-23-clayface-variant-cover-unsettling/
-
-Even a hero as fearless as Absolute Batman would shudder at this variant cover.
----------
-
-# Mitch Byrd, Guy Gardner Artist, Passes Away
-
-Comics, guy gardner
-
-Wed, 22 Jul 2026 11:37:02 GMT
-
-https://www.cbr.com/mitch-byrd-guy-gardner-artist-obituary/
-
-Mitch Byrd, who had a long career in comics, perhaps best known for his work on Guy Gardner: Warrior, has passed away
----------
-
-# 6 Most Perfect TV Mysteries of All Time
-
-TV, Mystery, True Detective, Sherlock
-
-Wed, 22 Jul 2026 11:30:14 GMT
-
-https://www.cbr.com/best-tv-mystery-shows-all-time-list/
-
-These six shows stands as perfect TV mysteries of all time because they care way more about the "why" than the "who."
----------
-
-# Apple TV's Godzilla Spinoff Officially Expands Its Cast With Ant-Man, Casual & The Fantastic Four Stars
-
-TV, Apple TV, Monarch: Legacy of Monsters, Godzilla
-
-Wed, 22 Jul 2026 11:00:15 GMT
-
-https://www.cbr.com/apple-tv-godzilla-legendary-monsterverse-spinoff-cast/
-
-Apple TV has big plans for its Legendary Monsterverse, and the new Godzilla spinoff adds some Hollywood heavyweights.
----------
-
-# 10 Best Far Side Comics Featuring Amoebas, Ranked
-
-Comics, The Far Side
-
-Wed, 22 Jul 2026 11:00:15 GMT
-
-https://www.cbr.com/best-far-side-comics-featuring-amoebas/
-
-Amoebas take the spotlight in Gary Larson’s The Far Side, with hilarious panels turning single-celled organisms into comedic gold.
----------
-
-# Forget John Wick, Keanu Reeves’ Best Action Hero Officially Returns After 35 Years
-
-Movie News, Keanu Reeves, Action, Point Break, Thriller
-
-Wed, 22 Jul 2026 12:01:15 GMT
-
-https://collider.com/keanu-reeves-point-break-theater-return-35th-anniversary/
-
-35 years later, Keanu Reeves and Patrick Swayze's legendary crime thriller Point Break is officially returning to theaters.
----------
-
-# 10 Best Sci-Fi Thriller Books of All Time
-
-Books and Comics, Books, Sci-Fi, Thriller, Michael Crichton
-
-Wed, 22 Jul 2026 11:51:14 GMT
-
-https://collider.com/best-sci-fi-thriller-books-all-time-ranked/
-
-The Andromeda Strain, Neuromancer, and The Moon Is a Harsh Mistress are all among the best sci-fi thriller books ever written.
----------
-
-# 'King of the Hill's Revival Just Made the Biggest Mistake With 2 Beloved Characters
-
-TV Features, King of the Hill, Mike Judge, Hulu, Animation
-
-Wed, 22 Jul 2026 11:49:14 GMT
-
-https://collider.com/king-of-the-hill-revival-dale-nancy-john-affair/
-
-King of the Hill Season 15 regrettably makes a bad decision, walking back decades of character development for Nancy and John.
----------
-
-# 10 Greatest Sci-Fi Epic Movies of All Time
-
-Movie, Science Fiction, On the Silver Globe, 2001: A Space Odyssey, Terminator 2: Judgment Day
-
-Wed, 22 Jul 2026 11:36:14 GMT
-
-https://collider.com/best-sci-fi-epic-movies-all-time-ranked/
-
-Animated gems like Nausicaä of the Valley of the Wind and blockbuster masterpieces like Dune: Part Two are among the all-time best sci-fi epic movies.
----------
-
-# Forget ‘Game of Thrones,’ One of the Best Fantasy Sagas Ever Told Officially Returns This Year
-
-TV News, Outlander, Sam Heughan, Caitriona Balfe, Fantasy
-
-Wed, 22 Jul 2026 11:30:14 GMT
-
-https://collider.com/outlander-complete-series-dvd-collection-release-date-september-24-2026/
-
-After eight seasons, Starz's hit time-travel romance series Outlander is officially returning this September with a groundbreaking new release.
----------
-
-# The 25 Greatest Crime Movies of All Time, Ranked
-
-Movie, The Godfather, Goodfellas, Pulp Fiction
-
-Wed, 22 Jul 2026 11:16:14 GMT
-
-https://collider.com/best-crime-movies-of-all-time-ranked/
-
-From White Heat and The Godfather to Pulp Fiction and Uncut Gems, this is Collider's ranking of the best crime movies ever made.
----------
-
-# 6 Most Thrilling Movies Released Since 2000, Ranked
-
-Movie, The Dark Knight, Sinners, Whiplash, Kill Bill: Vol. 1
-
-Wed, 22 Jul 2026 11:08:15 GMT
-
-https://collider.com/most-thrilling-movies-since-2000-ranked/
-
-Heart-pounding modern masterpieces like Sinners, Kill Bill Vol. 1, and Whiplash are all among the most thrilling movies released since 2000.
----------
-
-# Alan Ritchson's Netflix Sci-Fi Sequel Officially Pulls a James Cameron Move
-
-Movie News, War Machine, Alan Ritchson, Netflix, Reacher
-
-Wed, 22 Jul 2026 11:00:15 GMT
-
-https://collider.com/alan-ritchson-netflix-sci-fi-war-machine-sequel-script-update-title-reveal/
-
-The sequel to Alan Ritchson's War Machine just got a massive update before he returns in Reacher Season 4 on August 12.
----------
-
-# 8 Greatest Fantasy Book Trilogies of All Time
-
-Books and Comics, Books, Brandon Sanderson, Fantasy, His Dark Materials
-
-Wed, 22 Jul 2026 10:38:18 GMT
-
-https://collider.com/best-fantasy-book-trilogies-all-time-ranked/
-
-The best fantasy book trilogies include foundational, child-friendly efforts like His Dark Materials and mature, grimdark sagas like Broken Empire.
----------
-
-# The Greatest Fantasy Franchise in Video Game History Officially Returns With New Release
-
-Gaming News, Final Fantasy, Square-Enix, PlayStation (Original), Nintendo Switch
-
-Wed, 22 Jul 2026 10:30:15 GMT
-
-https://collider.com/final-fantasy-x-25th-anniversary-new-release-playstation-nintendo-switch-2/
-
-Final Fantasy X, the groundbreaking 10th main entry in the series, celebrates its 25th anniversary with a new release courtesy of Square Enix.
----------
-
-# Jason Statham's New Film From 'John Wick' Director Recruits Fellow Action Star
-
-Casting News, Jason Statham, Action, David Leitch
-
-Wed, 22 Jul 2026 12:02:24 GMT
-
-https://movieweb.com/jason-statham-stole-my-bike-cast-eddie-peng/
-
-The Stath's latest has also added a name from Guy Ritchie's 'The Gentlemen' to the fray.
----------
-
-# Netflix’s Smash Hit Western Reboot Is So Good, You’ll Forget the Original
-
-Features, Little House on the Prairie, Netflix
-
-Wed, 22 Jul 2026 12:01:12 GMT
-
-https://movieweb.com/little-house-on-the-prairie-netflix-good-reboot/
-
-Netflix has a new Western reboot TV series that is much better than the original, which aired for several decades and was very popular.
----------
-
-# Alan Ritchson Is Explosive in the Throwback '70s Revenge Thriller | Review
-
-Movie Reviews, Motor City, Alan Ritchson
-
-Wed, 22 Jul 2026 12:01:12 GMT
-
-https://movieweb.com/motor-city-review/
-
-Alan Ritchson takes vengeance in a late '70s action film 'Motor City' featuring minimal dialogue and a soundtrack of classic hits.
----------
-
-# This Year's Biggest Surprise Hit Crowned #1 After Making 500X Its Budget at the Box Office
-
-Movie News, Obsession
-
-Wed, 22 Jul 2026 11:48:02 GMT
-
-https://movieweb.com/obsession-blu-ray-sales-chart-hit/
-
-Curry Barker's horror hit 'Obsession' is dominating the 4K UHD and Blu-ray sales rankings, holding the No. 1 and No. 2 spots on the bestseller chart.
 ---------
