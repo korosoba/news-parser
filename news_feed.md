@@ -1,3 +1,289 @@
+# Christopher Nolan's The Odyssey Star Breaks Silence On Original Character After Casting Backlash
+
+Movies, The Odyssey, Elliot Page
+
+Thu, 23 Jul 2026 22:46:44 GMT
+
+https://screenrant.com/christopher-nolan-the-odyssey-sinon-elliot-page-casting-backlash/
+
+Christopher Nolan came under fire for some of his casting choices in The Odyssey, and now one of those stars is opening up about the film.
+---------
+
+# 5 Greatest Captain Kirk Achievements That Changed Star Trek Lore Forever
+
+Star Trek, Star Trek: The Original Series
+
+Thu, 23 Jul 2026 22:30:11 GMT
+
+https://screenrant.com/star-trek-captain-kirk-achievements/
+
+Starfleet's greatest captain earned that title time and time again
+---------
+
+# John Wick Meets The Raid In Netflix's 2-Part Action Saga
+
+Movies, Masked Recs
+
+Thu, 23 Jul 2026 22:27:11 GMT
+
+https://screenrant.com/extraction-netflix-john-wick-meets-the-raid/
+
+Netflix's brutal R-rated action thriller franchise mixes the slick action of The Raid movies with the one-man army revenge story of John Wick.
+---------
+
+# Batman Villain Officially Crossing Over To New HBO Max Series
+
+TV, Stuart Fails to Save the Universe, The Big Bang Theory, DC, San Diego Comic-Con
+
+Thu, 23 Jul 2026 22:12:01 GMT
+
+https://screenrant.com/stuart-fails-to-save-the-universe-season-1-dc-characters-crossover/
+
+A Batman villain is officially crossing over into a new HBO Max series as information about the upcoming show debuts at San Diego Comic-Con.
+---------
+
+# 15 Best Sitcoms Of The '90s, Ranked
+
+Classic TV
+
+Thu, 23 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/best-1990s-sitcoms-ranked/
+
+Explore the top sitcoms of the 1990s, ranked by quality, cultural impact, and lasting legacy. Beyond Friends and Seinfeld, these shows defined an era.
+---------
+
+# Loved The Odyssey? There's Only 1 Game You Should Be Playing Next
+
+Gaming, The Odyssey, Masked Recs
+
+Thu, 23 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/games-like-odyssey-age-mythology/
+
+If you loved Nolan's latest film, The Odyssey, and are looking for more Greek mythology adventure, then there is only one game you need to play.
+---------
+
+# Disney+'s 3-Part Action Thriller Series With Near-Perfect Rotten Tomatoes Score Is One If Its Best
+
+TV, Masked Recs
+
+Thu, 23 Jul 2026 21:54:08 GMT
+
+https://screenrant.com/disney-plus-daredevil-marvel-series-best/
+
+Move aside, Reacher. Disney+'s action thriller series continues to be one of the genre's best, and it stands among the streamer's most impactful.
+---------
+
+# DC's Lanterns Unveils Hal Jordan's Green Lantern Costume & Sinestro
+
+TV, Lanterns
+
+Thu, 23 Jul 2026 21:36:31 GMT
+
+https://screenrant.com/dc-lanterns-hal-jordans-green-lantern-costume-sinestro/
+
+HBO's upcoming Green Lantern adaptation, Lanterns, just revealed a sneak peek at Hal Jordan's costume as well as a preview of Sinestro.
+---------
+
+# Stuart Fails to Save the Universe Creators Reveal Its Biggest Difference From Big Bang Theory
+
+TV, Stuart Fails to Save the Universe, The Big Bang Theory, San Diego Comic-Con
+
+Thu, 23 Jul 2026 22:36:24 GMT
+
+https://www.cbr.com/stuart-fails-to-save-the-universe-biggest-difference-big-bang-theory/
+
+Exclsuive: The Big Bang Theory spinoff's creators explain what makes the new show so far removed from the original series.
+---------
+
+# Blade Runner Officially Returns In First Look at New 2026 Streaming Release
+
+TV, Blade Runner 2099, Sci-Fi, Prime Video
+
+Thu, 23 Jul 2026 22:22:04 GMT
+
+https://www.cbr.com/blade-runner-2099-first-look/
+
+Prime Video's Blade Runner 2099 is expected to debut later this year.
+---------
+
+# 4 Anime Movies That Are 10/10 Masterpieces
+
+Anime, Spirited Away, Akira
+
+Thu, 23 Jul 2026 22:15:14 GMT
+
+https://www.cbr.com/perfect-anime-movies-masterpieces/
+
+It's rare for an anime to be a flawless masterpiece, but movies like Your Name, Perfect Blue, and Spirited Away make it look easy.
+---------
+
+# Jeph Loeb Confirms The Controversial Batman Story That DC Called ‘A Complete Waste Of Time’
+
+Comics, Batman, Batman: Hush, DC Comics
+
+Thu, 23 Jul 2026 22:08:01 GMT
+
+https://www.cbr.com/jeph-loeb-confirms-controversial-batman-story-dc-called-a-waste-of-time/
+
+The story behind this memorable Batman series has a wild backstory.
+---------
+
+# Avatar: Seven Havens Officially Reveals Korra's Earthbender Successor With October 9 Premiere
+
+Anime, Avatar: The Last Airbender, Avatar: Seven Havens, The Legend of Korra, San Diego Comic-Con
+
+Thu, 23 Jul 2026 22:06:36 GMT
+
+https://www.cbr.com/avatar-seven-havens-korra-successor/
+
+14 years after The Legend of Korra, fans will finally meet Korra's Earthbender successor when Avatar: Seven Havens premieres this fall on Paramount+.
+---------
+
+# Star Trek Just Introduced a Starfleet Branch More Powerful Than Section 31
+
+Comics, Star Trek
+
+Thu, 23 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/star-trek-red-shirts-ghost-of-the-21st-century-romulans-unmatched-power/
+
+The latest terrifying Star Trek series just introduced a whole new side of Starfleet that is even more powerful and controversial than Section 31.
+---------
+
+# After Project Hail Mary, Artemis Is the Perfect Hard Sci-Fi Adaptation
+
+Movies, Project Hail Mary, The Martian, Sci-Fi
+
+Thu, 23 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/artemis-perfect-hard-sci-fi-project-hail-mary-replacement/
+
+Project Hail Mary's success proves that another hard sci-fi book adaptation from Andy Weir needs to be developed next.
+---------
+
+# LEGO Officially Says Goodbye to 21 Video Game Sets July 31
+
+Games, LEGO, super mario bros, The Legend of Zelda, Sonic the Hedgehog
+
+Thu, 23 Jul 2026 21:45:14 GMT
+
+https://www.cbr.com/lego-legend-of-zelda-official-shutdown-july-31/
+
+Video game fans are losing a whopping 21 LEGO sets from a half-dozen of the most iconic titles, and there are only days left before they're gone.
+---------
+
+# Jason Sudeikis Explained Rejecting Ted Lasso Season 4 Despite $1M Paycheck
+
+TV, Ted Lasso, Apple TV, Jason Sudeikis
+
+Thu, 23 Jul 2026 21:35:22 GMT
+
+https://www.cbr.com/jason-sudeikis-rejecting-ted-lasso-season-4/
+
+Jason Sudeikis was finished with Ted Lasso after Season 3, but something changed.
+---------
+
+# 'Big Bang Theory' and DC Comics Crossover Officially Confirmed in New Sci-Fi Spin-Off
+
+TV News, Stuart Fails to Save the Universe, The Big Bang Theory, Kevin Sussman, DC
+
+Thu, 23 Jul 2026 22:33:47 GMT
+
+https://collider.com/the-big-bang-theory-sci-fi-spin-off-stuart-fails-to-save-the-universe-dc-comics-crossover/
+
+The Big Bang Theory's new sci-fi spin-off, Stuart Fails to Save the Universe, will have an official crossover with several DC characters.
+---------
+
+# 10 Greatest Batman Graphic Novels of All Time
+
+Books and Comics, Superhero, DC, Graphic Novel, Books
+
+Thu, 23 Jul 2026 22:09:14 GMT
+
+https://collider.com/best-batman-graphic-novels-ranked/
+
+Batman: The Long Halloween, The Dark Knight Returns, and Batman: Under the Red Hood are among the best graphic novels about the Caped Crusader.
+---------
+
+# Alan Ritchson's 'Reacher' Officially Returns With New Release Before Season 4
+
+TV News, Reacher, Jack Reacher, Alan Ritchson, Prime Video
+
+Thu, 23 Jul 2026 21:59:23 GMT
+
+https://collider.com/alan-ritchson-reacher-season-3-blu-ray-release-date-august-25/
+
+Alan Ritchson's Reacher is officially returning sooner than expected, with Prime Video announcing a brand-new release ahead of Season 4.
+---------
+
+# 7 Thriller Shows I Knew Would Be Masterpieces After the First 10 Minutes
+
+TV, Thriller, Breaking Bad, Reacher, Severance
+
+Thu, 23 Jul 2026 21:52:14 GMT
+
+https://collider.com/thriller-shows-masterpieces-first-10-minutes/
+
+Thriller series like AMC's Breaking Bad, Prime Video's Reacher, and Apple TV's Severance, kick off in amazing fashion and then never let up.
+---------
+
+# 10 Most Influential Fantasy Books of All Time
+
+Books and Comics, Fantasy, Books, The Lord of the Rings, Harry Potter
+
+Thu, 23 Jul 2026 21:45:14 GMT
+
+https://collider.com/most-influential-fantasy-books-all-time-ranked/
+
+Harry Potter and the Philosopher's Stone, The Lord of the Rings, and A Wizard of Earthsea are among the most influential fantasy books ever written.
+---------
+
+# Marvel Officially Renames Gambit Ahead of 'Avengers: Doomsday' Return
+
+Books and Comics News, Marvel Comics, X-Men
+
+Thu, 23 Jul 2026 21:40:10 GMT
+
+https://collider.com/gambit-new-name-wyvern-uncanny-x-men-32/
+
+Ahead of Channing Tatum's return in Avengers: Doomsday, Gambit just got a major upgrade from Marvel. Read on for more.
+---------
+
+# New George R.R. Martin Update Is the Best 'Winds of Winter' News in Years
+
+Features, Game Of Thrones, A Knight Of The Seven Kingdoms
+
+Thu, 23 Jul 2026 22:30:12 GMT
+
+https://movieweb.com/george-rr-martin-dunk-and-egg-4/
+
+Finally, something to celebrate! The Winds of Winter may not be done, but we've gotten an update on an important project in Westeros.
+---------
+
+# Amazon Scores Big on Streaming With 'James Bond' Star's Unique Action Thriller
+
+Movie News, The Amateur, Rami Malek
+
+Thu, 23 Jul 2026 22:00:12 GMT
+
+https://movieweb.com/the-amateur-on-prime-video-top-ten-streaming/
+
+'James Bond' star Rami Malek plays an unconventional hero in this gripping action thriller.
+---------
+
+# Star Trek Finds a Perfect Loophole in One of the Franchise's Oldest Rules
+
+Features, star trek: strange new worlds, Star Trek
+
+Thu, 23 Jul 2026 22:00:12 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-prime-directive-loophole/
+
+Starfleet's Prime Directive has been a core tenet of Star Trek lore for decades, but maybe it's time for a rewrite. Read on for more.
+---------
+
 # Apple TV’s 9-Part Multiverse Thriller Gets Even Better Ahead Of Season 2
 
 TV, Masked Recs
@@ -5210,290 +5496,4 @@ Wed, 22 Jul 2026 14:10:42 GMT
 https://screenrant.com/star-trek-strange-new-worlds-season-4-rotten-tomatoes-score/
 
 Star Trek: Strange New Worlds is back for its fourth season, and the newest installment is setting a stunning record for the fan-favorite series.
----------
-
-# The Perfect Movie To Watch After The Odyssey Is Finally Getting The Audience It Always Deserved
-
-Movies, Masked Recs
-
-Wed, 22 Jul 2026 14:05:23 GMT
-
-https://screenrant.com/perfect-movie-watch-after-the-odyssey-troy/
-
-Loved The Odyssey? Brad Pitt's Troy remains one of Hollywood's greatest ancient epics—and it's finally getting another moment to shine.
----------
-
-# DC Unveils First Image Of Green Lantern's Armored Redesign
-
-DC Comics, Green Lantern
-
-Wed, 22 Jul 2026 14:00:11 GMT
-
-https://screenrant.com/new-green-lantern-costume-armor/
-
-DC's new Green Lantern design debuts heavy-duty armor and a space helmet that suggests one of the biggest battles a power ring wearer has ever seen.
----------
-
-# 2026's Underrated $114 Million Sci-Fi Blockbuster Can Get Justice Starting Today
-
-Movies, Masked Recs
-
-Wed, 22 Jul 2026 14:00:11 GMT
-
-https://screenrant.com/masters-of-the-universe-prime-video-streaming-justice/
-
-One of the most underrated science fiction blockbusters of 2026 is now available on streaming, and it may finally get the attention it deserves.
----------
-
-# Avatar Legends: The Fighting Game Review - Balance Between All Elements
-
-Gaming, Avatar: The Last Airbender, Indie Games
-
-Wed, 22 Jul 2026 14:00:11 GMT
-
-https://screenrant.com/avatar-legends-the-fighting-game-review/
-
-Existing as a love letter to each Avatar animated series and classic fighting games, Avatar Legends is a detailed bending experience crafted by fans.
----------
-
-# The Walking Dead: Dead City Season 3 Review - Third Time Lucky For Maggie & Negan
-
-Streaming TV, The Walking Dead: Dead City
-
-Wed, 22 Jul 2026 13:45:11 GMT
-
-https://screenrant.com/the-walking-dead-dead-city-season-3-review/
-
-In season 3, AMC's The Walking Dead: Dead City performs a much-needed format break to deliver Maggie and Negan's best spinoff outing yet.
----------
-
-# Pokémon Celebration Journey Officially Announced, Featuring All 9 Gens
-
-Gaming, Pokemon, tabletop games
-
-Wed, 22 Jul 2026 13:30:11 GMT
-
-https://screenrant.com/pokemon-celebration-journey-puzzle-release/
-
-A massive new Pokémon product called Celebration Journey, which celebrates the iconic franchise’s 30th anniversary, has just been announced.
----------
-
-# Tiger King's Spiritual Successor Lands On HBO Max Next Month
-
-Streaming TV, Masked Recs
-
-Wed, 22 Jul 2026 13:30:11 GMT
-
-https://screenrant.com/monsters-of-god-hbo-max-august-2026-tiger-king-successor/
-
-The documentarian behind Tiger King and Chimp Crazy has another exploration of exotic pets with his upcoming series set to release on HBO in August.
----------
-
-# Superman's New Era Officially Begins Today: All Details
-
-Comics, Superman
-
-Wed, 22 Jul 2026 13:20:11 GMT
-
-https://screenrant.com/superman-new-era-return-superboy/
-
-He's rocking that beard.
----------
-
-# 5 Western Showdowns Better Than Doc Holliday's In Tombstone
-
-Movies, Tombstone
-
-Wed, 22 Jul 2026 14:31:14 GMT
-
-https://www.cbr.com/best-western-showdowns-not-doc-holliday-tombstone-list/
-
-As great as Doc Holliday's showdown with Johnny Ringo was, some movies have even better finales than the ending of Tombstone.
----------
-
-# 4 Time Travel Shows Better Than Doctor Who
-
-TV, Doctor Who, Quantum Leap, Timeless, Travelers, 12 Monkeys
-
-Wed, 22 Jul 2026 14:31:14 GMT
-
-https://www.cbr.com/time-travel-shows-better-than-doctor-who-list/
-
-As fans of Doctor Who face a years-long wait for the adventure to continue, these other time travel series can make the wait more tolerable.
----------
-
-# Only 4 Shojo Anime Are Objectively Better Than Fruits Basket
-
-Anime, Fruits Basket (2001), Nana, Revolutionary Girl Utena
-
-Wed, 22 Jul 2026 14:15:14 GMT
-
-https://www.cbr.com/shojo-anime-are-objectively-better-than-fruits-basket/
-
-Fruits Basket is a shojo masterpiece, but these four anime surpass it with even greater emotion, character depth, and lasting influence.
----------
-
-# Kevin Feige Will Finally See an MCU Dream Of His Come True In Spider-Man: Brand New Day
-
-Movies, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man: Brand New Day
-
-Wed, 22 Jul 2026 14:02:38 GMT
-
-https://www.cbr.com/kevin-feige-finally-sees-mcu-dream-come-true-in-spider-man-brand-new-day/
-
-The Marvel boss has dreamt of this moment for ages, and it finally happens in Brand New Day.
----------
-
-# Power Rangers Unlimited Puts The Team On A Heist
-
-Comics, Power Rangers
-
-Wed, 22 Jul 2026 14:00:14 GMT
-
-https://www.cbr.com/power-rangers-unlimited-3-heist/
-
-This new Power Rangers comic is sure to steal fans' attention.
----------
-
-# 5 Strongest Weapons in Fantasy Anime
-
-Anime, Bleach, Inuyasha, Black Clover, Frieren: Beyond Journey's End
-
-Wed, 22 Jul 2026 13:15:14 GMT
-
-https://www.cbr.com/official-strongest-weapons-in-fantasy-anime/
-
-Fantasy anime boast plenty of powerful characters, and many of them rely on the use of an overpowered weapon to own the battlefield.
----------
-
-# Avengers: Doomsday Officially Outsales Deadpool & Wolverine's Record-Breaking Pre-Sale in Just 24 Hours
-
-Movies, Marvel, Marvel Comics, MCU, Avengers: Doomsday, Avengers: Doomsday (2026), Deadpool & Wolverine, Deadpool & Wolverine (2024)
-
-Wed, 22 Jul 2026 13:10:59 GMT
-
-https://www.cbr.com/avengers-doomsday-officially-outsells-deadpool-wolverine-in-just-24-hours/
-
-Avengers: Doomsday just took Deadpool & Wolverine out back and dog-walked it.
----------
-
-# Apple TV's New Fantasy Movie Combines the Best Parts of 'Harry Potter' and 'Ocean's Eleven'
-
-Movies, Mistborn, Ocean's Eleven, Harry Potter
-
-Wed, 22 Jul 2026 13:00:15 GMT
-
-https://www.cbr.com/apple-tv-mistborn-combines-harry-potter-oceans-eleven/
-
-Fantasy will get the twist it always needed when the highly anticipated movie airs on Apple TV.
----------
-
-# The Legend Who Helped Inspire the Teenage Mutant Ninja Turtles Is Officially Part of Their Jam-Packed Anniversary Celebration
-
-Books and Comics News, Teenage Mutant Ninja Turtles, TMNT, IDW, comic books
-
-Wed, 22 Jul 2026 14:10:15 GMT
-
-https://collider.com/teenage-mutant-ninja-turtles-300-cover-frank-miller/
-
-Teenage Mutant Ninja Turtles #300 is here, and Frank Miller is part of the anniversary celebration. Read on for more.
----------
-
-# 36 Years Later, Marvel Officially Reveals How Gambit First Joined the X-Men
-
-Books and Comics News, Gambit, Marvel Comics, X-Men, Marvel
-
-Wed, 22 Jul 2026 14:00:14 GMT
-
-https://collider.com/gambit-wanted-preview-chris-claremont-lost-x-men-story/
-
-Chris Claremont’s Gambit: Wanted reveals a lost chapter from Remy LeBeau’s past and the deadly trial behind his first time joining the X-Men.
----------
-
-# This 25-Year-Old HBO Miniseries Is Still the Greatest WWII Drama Ever Made
-
-TV Features, Band of Brothers, HBO, Tom Hanks, Steven Spielberg
-
-Wed, 22 Jul 2026 13:53:14 GMT
-
-https://collider.com/hbo-greatest-wwii-miniseries-band-of-brothers/
-
-HBO’s Band of Brothers remains the definitive WWII drama thanks to its historical accuracy, extraordinary ensemble, and groundbreaking battle sequence
----------
-
-# 'X-Men' Meets 'Alien' in New Official Marvel Release
-
-Books and Comics News, X-Men, Marvel Comics, Sci-Fi, Marvel
-
-Wed, 22 Jul 2026 13:50:15 GMT
-
-https://collider.com/uncanny-x-men-32-preview-new-team-roster-exterminators-alien-invasion/
-
-Marvel expands the X-Men roster in Uncanny X-Men #32 as Rogue’s team unites with more mutant heroes against the invading Exterminators.
----------
-
-# Doctor Doom Officially Assembles Marvel’s Strangest Team for New 2026 Godzilla Crossover
-
-Books and Comics, Marvel Comics, Godzilla, Doctor Doom, Marvel
-
-Wed, 22 Jul 2026 13:40:14 GMT
-
-https://collider.com/doctor-doom-marvel-team-spider-man-punisher-kang-godzilla-conquers-the-multiverse/
-
-Godzilla Conquers the Multiverse #1 assembles an unlikely team of Marvel heroes and villains under Doctor Doom to stop the King of the Monsters.
----------
-
-# 7 Years Later, Marvel Officially Brings Back Blade for New Midnight Sons Series
-
-Books and Comics News, Blade, Moon Knight, Marvel Comics, Marvel
-
-Wed, 22 Jul 2026 13:30:14 GMT
-
-https://collider.com/blade-midnight-sons-marvel-return-moon-knight-6-preview/
-
-Marc Spector: Moon Knight #6 puts Blade back at the center of Marvel's supernatural universe as the publisher begins teasing a new Midnight Sons team.
----------
-
-# Apple TV's MI5-Approved Spy Thriller Returns in Less Than Two Months
-
-TV News, Apple TV, Slow Horses, Thriller, Streaming
-
-Wed, 22 Jul 2026 13:30:14 GMT
-
-https://collider.com/slow-horses-season-6-release-date-apple-tv-september-16-2026/
-
-Apple TV's long-running and MI5-approved spy thriller, Slow Horses, is officially returning sooner than some fans may expect.
----------
-
-# Harry Potter Officially Sets Theatrical Return With Unseen Content Ahead of HBO Reboot
-
-Movie News, Harry Potter, Harry Potter and the Sorcerer's Stone, HBO Max
-
-Wed, 22 Jul 2026 13:22:44 GMT
-
-https://collider.com/harry-potter-sorcerers-stone-rerelease-unseen-footage-hbo-series/
-
-As Harry Potter and the Sorcerer’s Stone turns 25, WB sets the date for theatrical re-release with new series footage.
----------
-
-# Marvel Officially Brings Hulk, Punisher, and Spider-Man Together Ahead of Schedule
-
-Books and Comics News, Spider-Man, Spider-Man: Brand New Day, Marvel Comics, The Punisher
-
-Wed, 22 Jul 2026 13:20:14 GMT
-
-https://collider.com/spider-man-long-way-home-issue-2-preview-images-marvel-comics-release/
-
-A new sneak peek at Marvel Comics' Spider-Man: Long Way Home reveals the Punisher is on the run, and the Hulk is in hot pursuit.
----------
-
-# Marvel Officially Expands Spider-Man’s Family
-
-Books and Comics News, Marvel Comics, Spider-Man, Marvel, Action
-
-Wed, 22 Jul 2026 13:10:14 GMT
-
-https://collider.com/the-amazing-spider-man-volume-7-issue-33-preview-images-marvel-comics/
-
-A new preview of The Amazing Spider-Man #33 sees Peter and Aunt May getting to know a long-lost member of the family. Check it out here!
 ---------
