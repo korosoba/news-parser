@@ -1,3 +1,322 @@
+# What Is X-Corp? Marvel Studios' Newest X-Men Initiative Explained
+
+Superheroes, X-Men '97, Marvel Cinematic Universe
+
+Thu, 23 Jul 2026 00:30:11 GMT
+
+https://screenrant.com/what-is-x-corp-marvel-studios-new-x-men-97-initiative-explained/
+
+Marvel Studios' latest X-Men project has debuted X-Corp, an ambitious undertaking from the comics serving as the next evolution of Xavier's dream.
+---------
+
+# Gambit & Reed Richards Return Right After Marvel's Avengers: Doomsday Trailer
+
+Streaming TV, Masked Recs
+
+Thu, 23 Jul 2026 00:28:10 GMT
+
+https://screenrant.com/x-men-97-season-2-gambit-reed-richards-appearance/
+
+After the Avengers: Doomsday trailer, Gambit and Reed Richards make surprising appearances in Marvel Studios' new releaase before the MCU movie.
+---------
+
+# Avengers: Doomsday's Trailer Has Marvel Fans Convinced The Ending Was Spoiled
+
+Movies, Avengers: Doomsday
+
+Thu, 23 Jul 2026 00:18:55 GMT
+
+https://screenrant.com/avengers-doomsday-new-trailer-ending-spoiled/
+
+Avengers: Doomsday's brand-new trailer has both excited and devastated fans of the Marvel Universe as they know it due to a potential spoiler.
+---------
+
+# LEGO Icons Star Trek U.S.S. Enterprise NCC-1701 Bridge Set Revealed (Exclusive)
+
+TV, Star Trek, LEGO, San Diego Comic-Con
+
+Thu, 23 Jul 2026 00:17:22 GMT
+
+https://screenrant.com/lego-star-trek-enterprise-bridge-set/
+
+LEGO has revealed its new Icons Star Trek U.S.S. Enterprise Bridge set based on the original series, with eight minifigures and tribbles.
+---------
+
+# The 1 MCU Show To Watch Before Avengers: Doomsday Is Taking Over Disney+ After New Trailer
+
+TV, Masked Recs
+
+Thu, 23 Jul 2026 00:15:53 GMT
+
+https://screenrant.com/loki-marvel-streaming-success-disney-plus-july-2026/
+
+Two days after the official Avengers: Doomsday trailer was released online, one Marvel Cinematic Universe show is now dominating Disney+.
+---------
+
+# The Expanse's 12-Part Sequel Set Up The Main Villain For Seasons 7, 8, And 9
+
+Streaming TV, The Expanse
+
+Thu, 23 Jul 2026 00:15:11 GMT
+
+https://screenrant.com/the-expanse-dragon-tooth-duarte-set-up/
+
+Prime Video's The Expanse has an underrated 12-part sequel that sets up the main villain if the show ever continues for seasons 7, 8, and 9.
+---------
+
+# After 34 Years, Daredevil Finally Joins This Classic Marvel Team
+
+Marvel Comics, Daredevil
+
+Thu, 23 Jul 2026 00:00:11 GMT
+
+https://screenrant.com/daredevil-midnight-sons-new-roster/
+
+Marvel's rarest team of street-level heroes finally reunites, and it marks the very first time Daredevil joins its roster, all thanks to Moon Knight.
+---------
+
+# NBC Is Building Its Primetime Around Dick Wolf Again
+
+TV, Masked Recs
+
+Thu, 23 Jul 2026 00:00:11 GMT
+
+https://screenrant.com/nbc-dick-wolf-primetime-law-order-one-chicago/
+
+NBC's entire Wednesday night lineup now centers on Dick Wolf's shows, raising questions about the network's reliance on the prolific producer.
+---------
+
+# Steven Soderbergh's Hit New Crime Movie Releases On Hulu Next Month
+
+Movies, The Christophers
+
+Thu, 23 Jul 2026 00:00:04 GMT
+
+https://screenrant.com/steven-soderbergh-the-christophers-hulu-streaming-release-date/
+
+Steven Soderbergh's newest movie, The Christophers, released in theaters earlier this year, and it's been announced when it will premiere on Hulu.
+---------
+
+# Star Trek’s Acclaimed Sci-Fi Series Is The Perfect Binge Before Season 4
+
+Streaming TV, Star Trek: Strange New Worlds
+
+Wed, 22 Jul 2026 23:55:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-watch/
+
+Star Trek's acclaimed sci-fi series on Paramount+ is the perfect show to binge-watch this week ahead of its highly anticipated season 4 premiere.
+---------
+
+# Xbox Game Pass Officially Adds 2 New Day One Releases, Available Now
+
+Games, Xbox Series X (1)
+
+Thu, 23 Jul 2026 00:48:42 GMT
+
+https://www.cbr.com/xbox-game-pass-day-one-release-july-22/
+
+Two new and very bloody games are now available to play for Xbox Game Pass subscribers.
+---------
+
+# 10 Forgotten NES Games That Have Aged Like Fine Wine
+
+Games, Metroid, The Goonies 2, Captain America, Nintendo
+
+Thu, 23 Jul 2026 00:45:15 GMT
+
+https://www.cbr.com/forgotten-nes-games-aged-like-fine-wine/
+
+The NES catalog contains some of the most foundational video games ever, but some of its best titles have become completely forgotten.
+---------
+
+# Star Trek's Banned Beverly Crusher Episode Is the Best Hidden Gem in Sci-Fi History
+
+TV, Star Trek: The Next Generation, Sci-Fi, Star Trek
+
+Thu, 23 Jul 2026 00:30:15 GMT
+
+https://www.cbr.com/star-trek-banned-beverly-crusher-episode-hidden-sci-fi-gem/
+
+This episode of Star Trek: The Next Generation was initially banned in the UK and is a rare spotlight entry for Dr. Beverly Crusher.
+---------
+
+# Demon Slayer: Infinity Castle Record Broken by New Anime Movie With 41 Screenings in 1 Day
+
+Anime, Demon Slayer: Kimetsu no Yaiba Infinity Castle
+
+Thu, 23 Jul 2026 00:20:15 GMT
+
+https://www.cbr.com/demon-slayer-infinity-castle-record-break-chiikawa/
+
+The Demon Slayer: Infinity Castle's single-day screening total has been surpassed, unexpectedly, by one of Japan's up-and-coming kawaii icons.
+---------
+
+# 10 Best Mindless Action Anime Series of All Time
+
+Anime, Kill la Kill, s-CRY-ed
+
+Thu, 23 Jul 2026 00:15:15 GMT
+
+https://www.cbr.com/best-mindless-action-anime/
+
+Fans openly celebrate anime that skip worldbuilding and just throw punches at the screen for twenty episodes straight.
+---------
+
+# Star Wars’ First Movie in 7 Years Becomes an Instant Global PVOD Hit After Box Office Struggles
+
+Movies, The Mandalorian and Grogu, Star Wars, Sci-Fi
+
+Thu, 23 Jul 2026 00:00:15 GMT
+
+https://www.cbr.com/the-mandalorian-and-grogu-sci-fi-success-pvod-apple-tv-store-july-2026/
+
+Star Wars finds redemption on streaming.
+---------
+
+# Canceled TMNT Series Is Officially Coming Back Sooner Than Fans Expected
+
+Comics, Teenage Mutant Ninja Turtles
+
+Thu, 23 Jul 2026 00:00:15 GMT
+
+https://www.cbr.com/tales-of-the-teenage-mutant-ninja-turtles-coastal-chaos-release-date-confirmed/
+
+After its sudden cancellation, this beloved Teenage Mutant Ninja Turtles project is receiving a surprising spin-off.
+---------
+
+# A Genre-Defining 90s Action Film is Officially Heading Back to Theaters
+
+Movies, Point Break, Keanu Reeves, Patrick swayze
+
+Thu, 23 Jul 2026 00:00:15 GMT
+
+https://www.cbr.com/point-break-definitive-action-movie-back-in-theaters/
+
+Every heist movie has to live up to the gold standard of one of the best action films of all time.
+---------
+
+# Johnny Depp's Forgotten Crime Series Returns as a Streaming Hit After New Reboot Announcement
+
+TV, 21 Jump Street, johnny depp
+
+Wed, 22 Jul 2026 23:30:14 GMT
+
+https://www.cbr.com/johnny-depp-21-jump-street-crime-streaming-hit-july-2026/
+
+Ahead of its new reboot, the crime series that turned Johnny Depp into a star becomes a streaming sensation.
+---------
+
+# 7 Soft Sci-Fi Shows Where Every Episode Is a Masterpiece
+
+TV, Sci-Fi, Science Fiction, The Twilight Zone, Battlestar Galactica
+
+Thu, 23 Jul 2026 00:06:14 GMT
+
+https://collider.com/soft-sci-fi-shows-every-episode-masterpiece/
+
+From the game-changing classic series The Twilight Zone to the forgotten gem Timeless, every episode of these soft sci-fi shows are masterpieces.
+---------
+
+# Christopher Nolan’s ‘The Odyssey’ Is Officially Too Popular
+
+Movie News, The Odyssey, IMAX, Christopher Nolan, Fantasy
+
+Thu, 23 Jul 2026 00:00:15 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-imax-70mm-projectors-demand/
+
+IMAX says demand for The Odyssey has overwhelmed its limited supply of 70mm film projectors, with some screenings sold out into week five.
+---------
+
+# 'House of the Dragon' Quietly Dropped a Daemon and Rhaenyra Twist We Never Saw Coming
+
+TV Features, House of the Dragon, Matt Smith, Emma D'Arcy, HBO Max
+
+Wed, 22 Jul 2026 23:54:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-episode-5-daemon-rhaenyra-conversation/
+
+Rhaenyra and Daemon have a surprising role reversal as she becomes impulsive while he remains a strategic advisor in the latest House of the Dragon.
+---------
+
+# 6 Best Vampire Movies Released Since 2000
+
+Movie, Sinners, Nosferatu, Let the Right One In, Vampire
+
+Wed, 22 Jul 2026 23:21:14 GMT
+
+https://collider.com/best-vampire-movies-since-2000-ranked/
+
+Horror landmarks like Let the Right One In, Sinners, and Underworld are among the best vampire movies released since the year 2000.
+---------
+
+# 8 Best Thriller Shows of 2026 (So Far), Ranked
+
+TV, Thriller, The Night Manager, Cape Fear, DTF St. Louis
+
+Wed, 22 Jul 2026 23:11:14 GMT
+
+https://collider.com/best-thriller-shows-2026-ranked/
+
+His & Hers, The Testaments, Cape Fear, The Night Manager, and more make up our list of the best thriller shows of 2026 so far.
+---------
+
+# Ridley Scott's Historical Epic Reboot With Hugh Jackman Officially Moving Forward
+
+Movies, Ridley Scott
+
+Thu, 23 Jul 2026 00:44:20 GMT
+
+https://movieweb.com/ridley-scott-treaure-island-hugh-jackman-reboot/
+
+Ridley Scott's is in talks with Sony Pictures for his adaptation of 'Treasure Island.'
+---------
+
+# Supernatural '80s Cult Classic Officially Gets New Release 38 Years Later
+
+Movie News, Lady in White
+
+Thu, 23 Jul 2026 00:17:06 GMT
+
+https://movieweb.com/lady-in-white-blu-ray-4k-release/
+
+1988's 'Lady in White' is coming to 4K with a massive amount of special features.
+---------
+
+# Cersei's Most Chilling 'Game of Thrones' Quote Predicted the Ending
+
+Features, Game Of Thrones
+
+Thu, 23 Jul 2026 00:00:12 GMT
+
+https://movieweb.com/game-of-thrones-cersei-chilling-quote-predicted-ending/
+
+Cersei Lannister's most chilling Game of Thrones quote told viewers exactly where the series' biggest players would end up in the end.
+---------
+
+# 12 Must-See Action Thriller Movies Releasing This Fall
+
+Movie Lists, Action, Thriller
+
+Thu, 23 Jul 2026 00:00:12 GMT
+
+https://movieweb.com/action-thrillers-must-see-fall-2026/
+
+This fall promises new action-thriller movies from lauded directors starring Alan Ritchson, Brad Pitt, and Liam Neeson.
+---------
+
+# Prime Video Confirms New 8-Part 'Walking Dead' Replacement Adaptation
+
+TV News, Prime Video, The Walking Dead
+
+Wed, 22 Jul 2026 23:55:32 GMT
+
+https://movieweb.com/stillwater-comic-adaptation-prime-video/
+
+Prime Video is bringing a new series to the small screen that is already drawing comparisons to 'The Walking Dead.'
+---------
+
 # M3GAN's First Spinoff Movie Is Releasing 3 Months Too Late
 
 Movies, M3GAN, SOULM8TE
@@ -5177,323 +5496,4 @@ Tue, 21 Jul 2026 16:00:11 GMT
 https://screenrant.com/the-dink-movie-2026-review/
 
 Apple TV's new sports comedy has a cast that should dazzle, but at every turn, the movie falls just as flat as any other subpar sports story.
----------
-
-# We're Not Joking, Timothy Olyphant's 10/10 Action Series Is Even Better Than Reacher
-
-Classic TV, Masked Recs
-
-Tue, 21 Jul 2026 16:00:11 GMT
-
-https://screenrant.com/justified-tv-show-better-than-reacher/
-
-While waiting for Reacher season 4, check out Timothy Olyphant's 2010s FX action-thriller series that is arguably better than the Prime Video show.
----------
-
-# Beast Of Reincarnation Trophy List - How To Get All Trophies And Achievements
-
-Gaming, Beast of Reincarnation
-
-Tue, 21 Jul 2026 15:56:59 GMT
-
-https://screenrant.com/beast-of-reincarnation-trophy-list-how-to-get-all-trophies-and-achievements/
-
-You'll need to beat Beast of Reincarnation twice if you want to get all of its trophies or achievements.
----------
-
-# It's The Start Of An Era For Taylor Sheridan's Yellowstone
-
-TV, Yellowstone
-
-Tue, 21 Jul 2026 15:55:53 GMT
-
-https://screenrant.com/yellowstone-paramount-plus-streaming-charts-rise-july-2026/
-
-Taylor Sheridan's Yellowstone has just hit a major streaming mark, officially marking the start of a new era for the show that changed Westerns.
----------
-
-# 10 Best Summer 2026 Anime Series, So Far
-
-Anime, Saga of Tanya the Evil, The Ghost in the Shell, Mushoku Tensei: Jobless Reincarnation
-
-Tue, 21 Jul 2026 16:15:15 GMT
-
-https://www.cbr.com/best-summer-2026-anime-series-so-far/
-
-The Summer 2026 lineup for anime doesn't feature any major new Shonen, but it does have these 10, consistently amazing series.
----------
-
-# DC Studios’ R-Rated Batman: Knightfall Movie Gets New Trailer Revealing Release Date
-
-Movies, Batman: Knightfall Part 1: Knightfall, Batman, Animation
-
-Tue, 21 Jul 2026 16:09:46 GMT
-
-https://www.cbr.com/batman-knightfall-movie-trailer-release-date/
-
-DC Studios sets release date for its new R-rated Batman movie.
----------
-
-# Sydney Sweeney's New Netflix Live-Action Movie Based on Hit Sci-Fi Franchise Officially Wraps Filming
-
-Movies, Gundam
-
-Tue, 21 Jul 2026 16:02:06 GMT
-
-https://www.cbr.com/sydney-sweeney-netflix-gundam-movie-wraps-filming/
-
-Another Sydney Sweeney movie is officially in the can.
----------
-
-# It Star's 96-Minute Social Satire With 94% RT Starts a Revolution in New Clip Ahead of 1-Night Theatrical Return
-
-Movies, Our Hero, Balthazar
-
-Tue, 21 Jul 2026 16:00:15 GMT
-
-https://www.cbr.com/our-hero-balthazar-clip-theatrical-return/
-
-Exclusive: Ahead of its exciting return to theaters, CBR has a clip from the hit black comedy satire.
----------
-
-# Avengers: Doomsday Officially Erased 1 Classic X-Men Character
-
-Movies, Avengers: Doomsday, X-Men, MCU
-
-Tue, 21 Jul 2026 16:00:15 GMT
-
-https://www.cbr.com/avengers-doomsday-erased-gambit-taylor-kitsch-channing-tatum-x-men/
-
-The X-Men officially return in Avengers: Doomsday, but one iconic character has been completely erased.
----------
-
-# 28 Years Later, Deep Space Nine's Best Episode Still Has the Greatest Ending in Star Trek History
-
-TV, Star Trek, Star Trek: Deep Space Nine, Sci-Fi
-
-Tue, 21 Jul 2026 16:00:15 GMT
-
-https://www.cbr.com/star-trek-deep-space-nine-far-beyond-the-stars-ending/
-
-Star Trek: Deep Space Nine delivered some truly great episodes of television, but this one rises above the rest thanks to its pitch-perfect ending.
----------
-
-# Mushoku Tensei Officially Loses the Crown to the Biggest Anime of Summer 2026
-
-Anime, Mushoku Tensei: Jobless Reincarnation
-
-Tue, 21 Jul 2026 15:36:15 GMT
-
-https://www.cbr.com/top-anime-summer-2026-niconico-chainsmoker-cat/
-
-Against all odds, Mushoku Tensei: Jobless Reincarnation fails to pull in as many viewers as a raunchy comedy about cat girls.
----------
-
-# LEGO Officially Unveils The X-Files Set Ahead of Reboot
-
-TV, The X-Files, LEGOS
-
-Tue, 21 Jul 2026 15:33:46 GMT
-
-https://www.cbr.com/the-x-files-lego-set/
-
-Lego has unveiled a new X-Files Lego set, featuring 1,478 pieces, to be released this August.
----------
-
-# Ravensburger Drops Gamers Into the Mists of Ravenloft In Horrified: Dungeons & Dragons
-
-CBR Exclusives, Tabletop, Dungeons and Dragons, Gaming
-
-Tue, 21 Jul 2026 15:30:15 GMT
-
-https://www.cbr.com/ravensburger-horrified-dnd-ravenloft-review/
-
-Ravensburger's Horrified D&amp;D game series is perfect for players looking to explore D&amp;D without all the trappings of a long campaign.
----------
-
-# Stuart Fails to Save the Universe: Why Stuart Was the Perfect Choice
-
-TV, Stuart Fails to Save the Universe
-
-Tue, 21 Jul 2026 15:25:34 GMT
-
-https://www.cbr.com/video/stuart-fails-to-save-the-universe-why-stuart-was-the-perfect-choice/
-
-Kevin Sussman and Lauren Lapkus discuss Stuart Fails to Save the Universe, revealing why Stuart became the unlikely lead of The Big Bang Theory spinoff and how his relationship with Denise grows in surprising new ways.
----------
-
-# The Book Behind Apple TV’s Biggest New Hit Is on Sale Right Now
-
-Books and Comics News, Margo's Got Money Troubles, Apple TV, Books, Elle Fanning
-
-Tue, 21 Jul 2026 16:04:12 GMT
-
-https://collider.com/margos-got-money-troubles-book-sale-apple-tv/
-
-Margo’s Got Money Troubles, the novel that inspired Apple TV’s hit Elle Fanning series, is currently on sale for a limited time.
----------
-
-# Prime Video Is Already Replacing Its Cancelled 'Stargate' Reboot With Another Massive Sci-Fi Franchise
-
-TV News, Robocop, RoboCop, RoboCop: The Animated Series
-
-Tue, 21 Jul 2026 16:00:15 GMT
-
-https://collider.com/robocop-series-order-prime-video-james-wan/
-
-Prime Video has officially greenlit an eight-episode RoboCop series with James Wan, Peter Ocko and original co-creator Ed Neumeier.
----------
-
-# ‘Super Troopers 3’ Is the R-Rated Release Fans Have Been Waiting For [Exclusive]
-
-Movie News, Super Troopers 3, Jay Chandrasekhar, Broken Lizard, Searchlight Pictures
-
-Tue, 21 Jul 2026 16:00:15 GMT
-
-https://collider.com/super-troopers-3-sneak-peek/
-
-Watch a new scene from Super Troopers 3, where the Vermont state troopers encounter a sticky situation while using a bomb-disposal robot.
----------
-
-# ’Bosch’s Titus Welliver Returns in Pulse-Pounding First Trailer for New Liam Neeson CIA Thriller
-
-Movie News, Titus Welliver, Liam Neeson, Zachary Levi
-
-Tue, 21 Jul 2026 16:00:15 GMT
-
-https://collider.com/titus-welliver-new-action-movie-with-liam-neeson-the-fix-first-trailer/
-
-Bosch's Titus Welliver stars in the first trailer for the new action movie, The Fix, co-starring Liam Neeson and Zachary Levi.
----------
-
-# Jake Johnson's New Apple TV Pickleball Comedy 'The Dink' Is Elevated by Its Performances | Review
-
-Reviews, The Dink, Jake Johnson, Ben Stiller, Mary Steenburgen
-
-Tue, 21 Jul 2026 16:00:15 GMT
-
-https://collider.com/the-dink-review-apple-tv-jake-johnson/
-
-Pickleball comedy The Dink may be formulaic, but a charming cast led by Jake Johnson, a lot of laughs, and a big heart make it into a champion.
----------
-
-# ‘Killing Eve’ Meets ‘John Wick’ in Catherine Zeta-Jones’ New Thriller
-
-TV News, Catherine Zeta-Jones, Daniel Ings, Ron Perlman, AMC+
-
-Tue, 21 Jul 2026 15:33:15 GMT
-
-https://collider.com/catherine-zeta-jones-new-revenge-thriller-series-kill-jackie-streaming/
-
-Catherine Zeta-Jones’ 8-part revenge thriller Kill Jackie will premiere exclusively on AMC+ in the U.S. this fall alongside Ron Perlman.
----------
-
-# Get Tickets to Our Early Screening of Netflix's 'The Last House' and Q&A With Louis Leterrier
-
-Movie News, The Last House, Screening, Netflix, Louis Leterrier
-
-Tue, 21 Jul 2026 15:31:25 GMT
-
-https://collider.com/the-last-house-netflix-screening-louis-leterrier-q-and-a/
-
-Details on how you can enter for your chance to win free tickets to our early screening of Netflix's The Last House and Q&amp;A with Louis Leterrier.
----------
-
-# Gillian Anderson Officially Returns for New ‘X Files’ Release
-
-TV News, The X-Files, Gillian Anderson, Lego, Merchandise
-
-Tue, 21 Jul 2026 15:27:08 GMT
-
-https://collider.com/x-files-gillian-anderson-return-lego-set-ad/
-
-Gillian Anderson returns for a new X-Files LEGO ad promoting the brick-built set inspired by the beloved paranormal sci-fi series.
----------
-
-# Steven Spielberg’s New Alien Thriller Officially Gets New Release
-
-Movie News, Disclosure Day, Steven Spielberg, Sci-Fi, Emily Blunt
-
-Tue, 21 Jul 2026 15:19:45 GMT
-
-https://collider.com/disclosure-day-digital-release-date-watch-at-home/
-
-Steven Spielberg’s Disclosure Day arrives on digital today, allowing audiences to rent or purchase the Emily Blunt sci-fi thriller at home.
----------
-
-# Josh Duhamel’s Hit Netflix Western Returns in Less Than 48 Hours
-
-TV News, Ransom Canyon, Netflix, Western, Drama
-
-Tue, 21 Jul 2026 15:15:56 GMT
-
-https://collider.com/ransom-canyon-season-2-netflix-josh-duhamel-return/
-
-Josh Duhamel’s hit Netflix Western Ransom Canyon returns with Season 2 on July 23, continuing Staten and Quinn’s complicated romance.
----------
-
-# Jessica Chastain Battles Jessica Chastain in First Trailer for New Supernatural Thriller
-
-Movie News, Other Mommy, Jessica Chastain
-
-Tue, 21 Jul 2026 16:10:51 GMT
-
-https://movieweb.com/jessica-chastain-other-mommy-first-trailer/
-
-Jessica Chastain has a horrifying new role in an upcoming horror flick, 'Other Mommy.'
----------
-
-# When 'Star Trek: Strange New Worlds' Episodes Release & Full Season 4 Schedule
-
-Features, Star Trek: Strange New Worlds, Star Trek, star trek: strange new worlds
-
-Tue, 21 Jul 2026 16:01:12 GMT
-
-https://movieweb.com/star-trek-strange-new-worlds-season-4-release-schedule/
-
-It's almost time to boldly go back into the action.
----------
-
-# Apple TV's New Streaming Movie Lacks Any Real Laughs or a Point | Review
-
-Movie Reviews, The Dink, Jake Johnson
-
-Tue, 21 Jul 2026 16:01:12 GMT
-
-https://movieweb.com/the-dink-review/
-
-The new Jake Johnson pickleball comedy is derivative of many more better sports comedies.
----------
-
-# Best Movies for Slapstick Comedy Fans
-
-Movie Lists, Comedy
-
-Tue, 21 Jul 2026 16:01:12 GMT
-
-https://movieweb.com/best-movies-for-slapstick-comedy-fans/
-
-Slapstick is one of comedy's earliest types of humor, so it is no surprise that there have been great movies since the dawn of film itself.
----------
-
-# Florence Pugh's Explosive Thriller Epic Dominates Charts 3 Years After Release
-
-Movie News, Oppenheimer, Florence Pugh
-
-Tue, 21 Jul 2026 15:45:07 GMT
-
-https://movieweb.com/oppenheimer-blu-ray-sales-chart-success/
-
-Christopher Nolan's 'Oppenheimer' is dominating Blu-ray sales charts three years after its release, showing the longevity of the biographical epic.
----------
-
-# 25 Years Later, Long-Awaited Martial Arts Sequel Scores Big at the Box Office
-
-Movie News, Shaolin Soccer
-
-Tue, 21 Jul 2026 15:41:33 GMT
-
-https://movieweb.com/kung-fu-soccer-china-box-office/
-
-Stephen Chow's long-awaited martial arts comedy sequel, Kung Fu Soccer, surpasses expectations with record-breaking box office numbers in China, reviving the summer movie season.
 ---------
