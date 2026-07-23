@@ -1,3 +1,432 @@
+# Skyrim: Relics Of Hyrule Is A Huge New Zelda Crossover
+
+Gaming, The Elder Scrolls V: Skyrim, The Legend of Zelda, The Legend of Zelda: Breath of the Wild, Bethesda, Nintendo
+
+Thu, 23 Jul 2026 17:00:12 GMT
+
+https://screenrant.com/skyrim-relics-of-hyrule-zelda-crossover/
+
+Relics of Hyrule, a massive mod, merges The Elder Scrolls V: Skyrim with The Legend of Zelda, adding new weapons, spells, dungeons, and lore for PC.
+---------
+
+# Mattel's Halo Warthog Brick Shop Set Revealed, Includes Buildable Gauss Hog (Exclusive)
+
+Exclusive, Halo, Mattel, San Diego Comic-Con
+
+Thu, 23 Jul 2026 17:00:12 GMT
+
+https://screenrant.com/halo-warthog-mattel-brick-shop-set/
+
+ScreenRant reveals Mattel's Halo Warthog Brick Shop set with working features, Gauss Hog conversion parts and exclusive images.
+---------
+
+# Hulu's New Crime Thriller Massively Improves 39-Year-Old Movie With Rare Rotten Tomatoes Score
+
+TV, Masked Recs, Hulu
+
+Thu, 23 Jul 2026 16:50:52 GMT
+
+https://screenrant.com/hulu-furious-rotten-tomatoes-score-black-widow-comparison/
+
+Hulu's new eight-part crime thriller is a massive improvement, garnering praise and continuing a quietly impressive streak for the streamer.
+---------
+
+# Russell Crowe & Christian Bale's Western Remake That "Improves On The Original" Cracks Netflix's Top 10
+
+Movies, Masked Recs, Christian Bale
+
+Thu, 23 Jul 2026 16:47:58 GMT
+
+https://screenrant.com/russell-crowe-christian-bale-310-to-yuma-netflix-stream/
+
+An acclaimed Western remake starring Christian Bale and Russell Crowe is currently enjoying a strong run on Netflix's streaming movies chart.
+---------
+
+# Criminal Minds' Worst Era Finally Ends Today (With 1 Caveat)
+
+Network TV, Criminal Minds
+
+Thu, 23 Jul 2026 16:45:11 GMT
+
+https://screenrant.com/criminal-minds-evolution-voit-era-end/
+
+Criminal Minds: Evolution concludes Voit's arc in the season 19 finale, potentially signaling a new chapter for the BAU or making his return tough.
+---------
+
+# Under The Dome's Spiritual Successor Arrives In Two Weeks
+
+Movies, Masked Recs
+
+Thu, 23 Jul 2026 16:30:11 GMT
+
+https://screenrant.com/the-last-house-under-the-dome-spiritual-successor/
+
+The spiritual successor to Under the Dome, the CBS series based on Stephen King's novel, will appear on Netflix at the beginning of August.
+---------
+
+# Star Wars Officially Recasts Anakin Skywalker
+
+Gaming, Star Wars, Star Wars Zero Company
+
+Thu, 23 Jul 2026 16:28:45 GMT
+
+https://screenrant.com/star-wars-anakin-skywalker-new-actor-zero-company/
+
+Anakin Skywalker is one of the most iconic characters in Star Wars history, and any time he returns, it's bound to draw attention from fans.
+---------
+
+# Johnny Depp Transforms Into Scrooge For The First Official Look At Ebenezer: A Christmas Carol
+
+Movies, Ebenezer: A Christmas Carol, A Christmas Carol
+
+Thu, 23 Jul 2026 16:17:53 GMT
+
+https://screenrant.com/ebenezer-a-christmas-carol-johnny-depp-first-look/
+
+Johnny Depp has officially been revealed as the classic Scrooge in a first official look for the upcoming adaptation Ebenezer: A Christmas Carol.
+---------
+
+# The Morning Show Season 6's Fate Officially Decided By Apple TV
+
+TV, The Morning Show
+
+Thu, 23 Jul 2026 16:15:40 GMT
+
+https://screenrant.com/the-morning-show-apple-tv-season-5-ending/
+
+The Morning Show season 5 will be released on Apple TV in 2027, but the show’s future beyond that has now been determined after debuting in 2019.
+---------
+
+# 5 Action Thriller Movies Better Than Sicario
+
+Movies, Sicario, Thriller
+
+Thu, 23 Jul 2026 16:15:11 GMT
+
+https://screenrant.com/action-thriller-movies-better-sicario/
+
+Sicario is seen as one of the best thrillers of the 21st Century, which it absolutely is; that said, there's a group of movies that beat it out.
+---------
+
+# It's Official, Your PS5 Physical Games Have an Expiration Date
+
+Games, PlayStation 5
+
+Thu, 23 Jul 2026 16:46:14 GMT
+
+https://www.cbr.com/ps5-physical-games-expiring-official-update/
+
+PlayStation 5 games and other forms of physical media might not last anywhere near as long as collectors would like to believe.
+---------
+
+# Game of Thrones: Conquest War for the Throne Launches This Weekend
+
+Games, Game Of Thrones
+
+Thu, 23 Jul 2026 16:35:14 GMT
+
+https://www.cbr.com/game-of-thrones-conquest-war-for-the-throne-launches-this-weekend/
+
+Game of Thrones fans have never experienced strategic warfare like in this brand-new release, coming this weekend.
+---------
+
+# Reacher's Alan Ritchson Breaks Silence on Becoming DCU's Batman
+
+Movies, Batman, Reacher, DCU
+
+Thu, 23 Jul 2026 16:29:43 GMT
+
+https://www.cbr.com/alan-ritchson-dcu-batman-rumors/
+
+The Reacher star is a major fan-favorite for the new DCU Batman, and he has campaigned for the role for years.
+---------
+
+# Apple TV Officially Seals the Fate of The Morning Show After 4 Seasons
+
+TV, The Morning Show
+
+Thu, 23 Jul 2026 16:24:10 GMT
+
+https://www.cbr.com/apple-tv-ending-the-morning-show-season-5/
+
+Reese Witherspoon and Jennifer Aniston confirm the fate of The Morning Show on Apple TV.
+---------
+
+# A24 & Robert Pattinson's Unsettling To Catch a Predator Thriller Sets Early Theatrical Release Date
+
+Movies, Primetime, A24
+
+Thu, 23 Jul 2026 16:19:08 GMT
+
+https://www.cbr.com/a24-robert-pattinson-primetime-theatrical-release-date/
+
+Audiences will see Robert Pattinson play To Catch a Predator host Chris Hansen
+---------
+
+# 5 Anime Heroes With Powers Stronger Than Sung Jinwoo
+
+Anime, Solo Leveling, My Hero Academia, Jujutsu Kaisen, Dragon Ball
+
+Thu, 23 Jul 2026 16:15:14 GMT
+
+https://www.cbr.com/solo-leveling-anime-heroes-stronger-than-sung-jinwoo/
+
+Sung Jinwoo may be Solo Leveling's strongest hero, but the Hunter does not stand a chance against other anime powerhouses.
+---------
+
+# DC Reveals How Fans Can Unlock Major Prizes at San Diego Comic-Con 2026
+
+Comics, DC Comics, San Diego Comic-Con
+
+Thu, 23 Jul 2026 16:02:00 GMT
+
+https://www.cbr.com/dc-comics-prize-giveaway-sdcc-2026/
+
+DC Comics is giving fans the chance to get their very own exclusive merchandise for free at San Diego Comic Con with a citywide scavenger hunt.
+---------
+
+# Stranger Things: The Other Side Spinoff Comic Returns As Webtoon
+
+Comics, Stranger Things
+
+Thu, 23 Jul 2026 16:01:14 GMT
+
+https://www.cbr.com/stranger-things-the-other-side-spinoff-comic-webtoon-reformat/
+
+The more of the Upside Down to explore.
+---------
+
+# Netflix's Risky Wednesday Season 3 Update Completely Rewrites Jenna Ortega's Show
+
+TV, Wednesday, Netflix
+
+Thu, 23 Jul 2026 16:01:14 GMT
+
+https://www.cbr.com/netflix-wednesday-season-3-changes-location/
+
+Wednesday is making a change to the core of the show in Season 3, and that's a risk.
+---------
+
+# It's Officially the End of an Era for Evil Dead's Chainsaw
+
+Movies, Evil Dead Burn, Evil Dead, The Evil Dead
+
+Thu, 23 Jul 2026 16:01:14 GMT
+
+https://www.cbr.com/evil-dead-burn-end-of-chainsaw-era/
+
+Evil Dead Burn, the sixth installment in Sam Raimi's enduring horror franchise, makes a notable change to the groovy formula.
+---------
+
+# 10 Mildest R-Rated Movies of All Time
+
+Movie, The Odyssey, The Matrix, The King's Speech, The Blues Brothers
+
+Thu, 23 Jul 2026 17:09:14 GMT
+
+https://collider.com/mildest-r-rated-movies-all-time-ranked/
+
+Some R-rated movies are pretty mild when it comes to the content they have, as shown by the likes of The King's Speech, The Odyssey, and The Matrix.
+---------
+
+# Sherlock Holmes Officially Begins a Brutal New Era With an Adults-Only TV Series
+
+TV Features, Sherlock, Rafe Spall, Sherlock Holmes, Benedict Cumberbatch
+
+Thu, 23 Jul 2026 16:58:14 GMT
+
+https://collider.com/death-of-sherlock-holmes-brand-new-series-sky-tv-2027/
+
+The Death of Sherlock Holmes finally explores the detective’s missing years after Reichenbach Falls, giving the iconic character a darker, more psycho
+---------
+
+# Looney Tunes Goes Full 'Lincoln Lawyer' in New Movie Trailer
+
+Movie News, Looney Tunes, Coyote Vs. Acme, John Cena, Will Forte
+
+Thu, 23 Jul 2026 16:28:59 GMT
+
+https://collider.com/coyote-vs-acme-final-trailer-john-cena/
+
+The final trailer for the long-awaited and originally cancelled Looney Tunes film, Coyote vs. Acme, has arrives. See it here!
+---------
+
+# These 4 Billy Crystal Movies Are Genuine Classics
+
+Movie, Billy Crystal, When Harry Met Sally, City Slickers, Monsters, Inc.
+
+Thu, 23 Jul 2026 16:22:15 GMT
+
+https://collider.com/billy-crystal-movies-best/
+
+From The Princess Bride, to When Harry Met Sally, to City Slickers, Billy Crystal's finest films perfectly combine comedy and heart.
+---------
+
+# Apple TV's First-Ever Hit Has Officially Been Cancelled
+
+TV News, The Morning Show, Apple TV, Reese Witherspoon, Jennifer Aniston
+
+Thu, 23 Jul 2026 16:16:09 GMT
+
+https://collider.com/apple-tv-the-morning-show-cancelled-final-season-5/
+
+The Morning Show, one of Apple TV's earliest hits, is officially coming to an end after it's upcoming fifth season. Read on for more.
+---------
+
+# If You Loved ‘The Odyssey,’ This Must-Watch Series Did Nolan’s Best Twist First
+
+TV Features, Primal, The Odyssey, HBO Max, Series
+
+Thu, 23 Jul 2026 16:11:14 GMT
+
+https://collider.com/the-odyssey-primal-series-people-from-the-sea/
+
+Loved The Odyssey? Primal explored the terrifying legend of the Sea People years earlier with stunning animation and brutal storytelling.
+---------
+
+# Jake Johnson Confirms His One Condition for a ‘New Girl’ Reboot [Exclusive]
+
+TV News, Jake Johnson, New Girl, Zooey Deschanel, Lamorne Morris
+
+Thu, 23 Jul 2026 16:10:14 GMT
+
+https://collider.com/new-girl-reboot-jake-johnson-nick-miller-return/
+
+Jake Johnson discusses being forever linked to Nick Miller and reveals whether he would return to his iconic New Girl role.
+---------
+
+# Apple TV Officially Has a New Comedy King, and His Name Is Jake Johnson
+
+Collider Signature, Jake Johnson, profile, Apple TV, The Dink, New Girl
+
+Thu, 23 Jul 2026 16:00:14 GMT
+
+https://collider.com/jake-johnson-apple-tv-movie-the-dink-new-girl-interview/
+
+The Dink star Jake Johnson talks Apple TV, New Girl, Maximum Pleasure Guaranteed, Spider-Verse, and the relationships that have defined his career.
+---------
+
+# Prime Video’s Newest Sci-Fi Reboot Is a Reminder of Its Worst Cancellation
+
+TV Features, Robocop, Stargate, Prime Video, Sci-Fi
+
+Thu, 23 Jul 2026 15:50:14 GMT
+
+https://collider.com/robocop-prime-video-reboot-stargate-cancellation/
+
+Prime Video's decision to reboot RoboCop following the cancellation of a new Stargate project raises questions about the platform's priorities.
+---------
+
+# 10 Prequel TV Shows That Are Actually Successful
+
+TV, Television, House of the Dragon, Young Sheldon, Better Call Saul
+
+Thu, 23 Jul 2026 15:36:14 GMT
+
+https://collider.com/most-successful-prequel-tv-shows/
+
+House of the Dragon, Young Sheldon, and Better Call Saul are proof that prequel series can succeed in keeping a franchise alive and interesting.
+---------
+
+# Margot Robbie's R-Rated Smash Surges on Streaming Ahead of 'Ocean's Prequel
+
+Movie News, Margot Robbie, The Wolf of Wall Street, Hot on Streaming, Hulu
+
+Thu, 23 Jul 2026 17:00:13 GMT
+
+https://movieweb.com/wolf-of-wall-street-margot-robbie-streaming-hit-july-2026/
+
+Ahead of the newly announced prequel to the 'Ocean's franchise, one of Margot Robbie's best movies is experiencing a massive surge on streaming.
+---------
+
+# First Look at 'Reacher' Season 4 Has Alan Ritchson's Hero Against the Odds
+
+TV News, Reacher
+
+Thu, 23 Jul 2026 16:57:35 GMT
+
+https://movieweb.com/reacher-season-4-first-look-images-alan-ritchson/
+
+'Reacher' Season 4 is officially here.
+---------
+
+# Johnny Depp Transforms Into Iconic Holiday Character in First Look at 'Ebenezer'
+
+Movie News, Ebenezer: A Christmas Carol, Johnny Depp
+
+Thu, 23 Jul 2026 16:48:02 GMT
+
+https://movieweb.com/ebenezer-scrooge-johnny-depp-poster/
+
+'Pirates of the Caribbean' star Johnny Depp will dive into one of the most iconic Christmas characters of all time in his new movie.
+---------
+
+# Final 'Coyote vs. Acme' Trailer Reveals Explosively Hilarious Take on Iconic Cartoon
+
+Movie News, Coyote Vs. Acme
+
+Thu, 23 Jul 2026 16:16:31 GMT
+
+https://movieweb.com/coyote-vs-acme-final-trailer/
+
+Ketchup Entertainment has released the final trailer for 'Coyote vs. Acme,' offering a hilarious look at the live-action/animated hybrid legal comedy.
+---------
+
+# How Daenerys Controls Three Dragons at Once in 'Game of Thrones'
+
+Features, Game Of Thrones
+
+Thu, 23 Jul 2026 16:00:12 GMT
+
+https://movieweb.com/daenerys-game-of-thrones-controls-three-dragons/
+
+Daenerys (Emilia Clarke) has the ability to influence her three dragons, Drogon, Rhaegal, and Viserion, on the HBO fantasy series 'Game of Thrones.'
+---------
+
+# The Best British Comedy Shows on BritBox, Ranked
+
+Movie Lists, Comedy
+
+Thu, 23 Jul 2026 16:00:12 GMT
+
+https://movieweb.com/best-comedy-shows-on-britbox-ranked/
+
+British comedy is hallmarked with an irony that transforms mundane situations into hilarious brilliance. We rank the best of them on BritBox.
+---------
+
+# 'The Odyssey's Deadline for Leaving IMAX Confirmed
+
+Movie News, The Odyssey, IMAX, Dune: Part Three
+
+Thu, 23 Jul 2026 15:57:50 GMT
+
+https://movieweb.com/the-odyssey-imax-dune/
+
+'The Odyssey' is the first movie shot entirely with 70mm IMAX cameras, but it can't occupy IMAX theaters forever.
+---------
+
+# 'Supergirl' Digital Streaming Date Officially Confirmed
+
+Movie News, Supergirl, DCU
+
+Thu, 23 Jul 2026 15:40:09 GMT
+
+https://movieweb.com/supergirl-digital-streaming-date-confirmed/
+
+'Supergirl' is officially coming home after a rocky run in theaters.
+---------
+
+# Robert Pattinson's New A24 Crime Thriller Just Got an Award-Worthy Release Date
+
+Movie News, Primetime, Robert Pattinson
+
+Thu, 23 Jul 2026 15:38:12 GMT
+
+https://movieweb.com/robert-pattinson-primetime-release-date/
+
+'Primetime', in which Pattinson plays 'To Catch a Predator' host Chris Hansen, will open in theaters on September 25, 2026.
+---------
+
 # Netflix Lands Major Win With Chris Pratt’s Gritty War Thriller Releasing In Just A Few Days
 
 Movies, Masked Recs
@@ -5067,433 +5496,4 @@ Wed, 22 Jul 2026 00:15:14 GMT
 https://www.cbr.com/best-anime-tournament-arcs-flawless-start-to-finish/
 
 Tournament arcs are one of the most classic forms of anime storytelling, and the best among them are flawless from start to finish.
----------
-
-# FX’s ‘Far Cry’ Series Is Already Making a Confusing Creative Choice Ahead of Release
-
-TV Features, Far Cry, FX, The Last of Us, Fallout
-
-Wed, 22 Jul 2026 01:42:15 GMT
-
-https://collider.com/far-cry-anthology-fx-title-change-opinion/
-
-FX is working on its own video game adaptation with Far Cry, though a major change could alienate fans and potential viewers.
----------
-
-# ABC’s ‘The Rookie’ Confirms 2027 Return With New Filming Update
-
-TV News, ABC, The Rookie, Nathan Fillion, Karen Fukuhara
-
-Wed, 22 Jul 2026 01:30:15 GMT
-
-https://collider.com/abc-the-rookie-filming-start-july-2026/
-
-ABC's The Rookie Season 9 officially begins production sooner than fans may be expecting ahead of its 2027 return.
----------
-
-# ABC's 'Scrubs' Reboot Officially Begins a New Era With Major Season 2 Update
-
-TV News, Scrubs, Comedy, ABC, Zach Braff
-
-Wed, 22 Jul 2026 01:00:15 GMT
-
-https://collider.com/scrubs-season-2-cast-ava-bunn-series-regular/
-
-ABC's Scrubs reboot is officially returning for Season 2, and the medical sitcom is already making a major change to the cast.
----------
-
-# 10 Best Film Noir Movies of the '80s, Ranked
-
-Movie, Noir, 1980s, Streets of Fire, Body Heat
-
-Wed, 22 Jul 2026 00:55:15 GMT
-
-https://collider.com/best-film-noir-masterpieces-1980s-ranked/
-
-Streets of Fire, Blood Simple, Body Heat, Blue Velvet, Blade Runner, and more make up our list of the best film noir movies of the 1980s.
----------
-
-# 10 Most Influential Video Games of the 21st Century
-
-Gaming, Video Game, Batman: Arkham City, Grand Theft Auto V, Fortnite
-
-Wed, 22 Jul 2026 00:51:14 GMT
-
-https://collider.com/most-influential-video-games-21st-century-ranked/
-
-Batman: Arkham City, Grand Theft Auto V, and Minecraft are all among the most influential and consequential video games released in the 21st century.
----------
-
-# 6 Movies That Are Unironically Better Than 'The Godfather'
-
-Movie, The Godfather, Parasite, 12 Angry Men, High And Low
-
-Wed, 22 Jul 2026 00:32:15 GMT
-
-https://collider.com/movies-unironically-better-than-the-godfather/
-
-The Godfather is often considered the absolute height of cinema, yet films like The Shawshank Redemption and Parasite are unironically better.
----------
-
-# HBO Max's Newest Sci-Fi Spin-Off Officially Arrives This Week
-
-TV News, The Big Bang Theory, HBO Max, Sci-Fi, Stuart Fails to Save the Universe
-
-Wed, 22 Jul 2026 00:30:14 GMT
-
-https://collider.com/big-bang-theory-sci-fi-spin-off-stuart-fails-to-save-the-universe-release-date-hbo-max-july-2026/
-
-Seven years after The Big Bang Theory ended, the franchise expands with a new sci-fi spin-off this week. Get all the details here.
----------
-
-# ‘Rogue One’ Meets ‘Cyberpunk 2077’ in Disney's 133-Minute Sci-Fi Epic That’s Dominating Netflix
-
-Movie News, Sci-Fi, The Creator, Netflix, Rogue One: A Star Wars Story
-
-Wed, 22 Jul 2026 00:00:14 GMT
-
-https://collider.com/the-creator-rogue-one-replacement-streaming-success-netflix-july-2026/
-
-A visually stunning sci-fi epic that struggled in theaters is finding a much bigger audience after its recent Netflix debut. Read on for more details.
----------
-
-# R-Rated Batman Movie Officially Confirms 2026 Release Date in New Trailer
-
-Movie News, Batman: Knightfall Part 1: Knightfall
-
-Wed, 22 Jul 2026 00:28:15 GMT
-
-https://movieweb.com/batman-knightfall-part-1-trailer-release-date/
-
-'Batman: Knightfall' will debut at San Diego Comic-Con, followed by a digital release on August 25, 2026.
----------
-
-# Next 'Lord of the Rings' Installment Officially Reveals Gandalf’s Return
-
-TV News, The Lord of the Rings: The Rings of Power, Prime Video
-
-Wed, 22 Jul 2026 00:09:01 GMT
-
-https://movieweb.com/rings-of-power-season-3-gandalf-new-image/
-
-One of the most popular characters in 'The Lord of the Rings,' Gandalf, is officially back on the small screen.
----------
-
-# Sydney Sweeney's R-Rated 103-Minute Smash Hit Debuts All-New Release
-
-Movie News, Anyone But You, Sydney Sweeney
-
-Wed, 22 Jul 2026 00:06:53 GMT
-
-https://movieweb.com/sydney-sweeney-anyone-but-you-4k-upgrade/
-
-Sweeney's 'Anyone But You' arrives today on 4K Ultra HD Blu-ray, with an all-new commentary track.
----------
-
-# 10 TV Procedural Crime Thrillers Better Than 'NCIS'
-
-TV Lists, NCIS
-
-Wed, 22 Jul 2026 00:00:12 GMT
-
-https://movieweb.com/procedural-crime-thrillers-better-than-ncis/
-
-'NCIS,' starring Mark Harmon as Gibbs, is one of the longest-running procedural TV shows, but there are better series
----------
-
-# Jensen Ackles' Tracker Season 4 Return Is More Important Than Ever
-
-Network TV, Tracker
-
-Tue, 21 Jul 2026 23:39:01 GMT
-
-https://screenrant.com/tracker-season-4-colter-backstory-jensen-ackles/
-
-As Tracker season 4 explores Colter Shaw's past, Jensen Ackles' return as Russell Shaw is more important than ever to uncover family mysteries.
----------
-
-# Netflix's Best Fantasy Series Only Needed 2 Seasons To Be A Masterpiece
-
-TV, Masked Recs
-
-Tue, 21 Jul 2026 23:31:11 GMT
-
-https://screenrant.com/arcane-netflix-two-seasons-masterpiece/
-
-Netflix's best fantasy show is an ambitious masterpiece that managed to redefine the genre in only two seasons after Game of Thrones' success.
----------
-
-# Why Disney+'s $1.5 Billion Space Opera Was Just Dethroned By A New Fantasy Global Hit
-
-Movies, Masked Recs
-
-Tue, 21 Jul 2026 23:25:57 GMT
-
-https://screenrant.com/disney-plus-avatar-fire-and-ash-descendants-wicked-wonderland-charts/
-
-Disney+'s new $1.5 billion space opera has finally been dethroned on the streaming service's charts by a major fantasy movie, and it makes sense.
----------
-
-# Rhaenyra Makes House Stark’s Deadliest Mistake In Game Of Thrones Even Worse
-
-Streaming TV, House of the Dragon, House of the Dragon - Season 3, Game of Thrones
-
-Tue, 21 Jul 2026 23:15:11 GMT
-
-https://screenrant.com/house-of-the-dragon-rhaenyra-freys-stark-mistake-repeat/
-
-Any good prequel series adds key context to events from the parent show, and House of the Dragon has just done it again with Game of Thrones.
----------
-
-# Jon Favreau’s New Lion Series Releases On Hulu Next Month After $1.6 Billion Lion King Remake
-
-TV, Jon Favreau, The Lion King
-
-Tue, 21 Jul 2026 23:08:39 GMT
-
-https://screenrant.com/lion-season-1-jon-favreau-hulu-release-date/
-
-Seven years after Jon Favreau's remake of The Lion King became a box office success, the filmmaker's Lion docuseries is premiering on Hulu soon.
----------
-
-# Steam’s Big New Free MMORPG Is Genshin Impact Meets Zelda
-
-Gaming, Steam
-
-Tue, 21 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/steam-free-mmorpg-like-zelda/
-
-This free game brings open-world exploration, classic MMORPG action, and Genshin-like charm to Steam for free.
----------
-
-# The Expanse Meets Battlestar Galactica In Apple TV's 5-Part Sci-Fi Series
-
-Streaming TV, Masked Recs
-
-Tue, 21 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/for-all-mankind-apple-tv-expanse-meets-battlestar-galactica/
-
-No modern space operas live up to The Expanse and Battlestar Galactica, but one notable exception is waiting to be discovered on AppleTV+.
----------
-
-# 6 Greatest Comebacks In Godzilla's Monster Fights
-
-Movies, Godzilla
-
-Tue, 21 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/6-greatest-comebacks-in-godzillas-monster-fights/
-
-Over the course of the franchise's long cinematic history, Godzilla has mounted some impressive comebacks against incredibly powerful enemies.
----------
-
-# Stuart Fails to Save the Universe Star Recalls Losing Major Big Bang Theory Role
-
-TV, Stuart Fails to Save the Universe, The Big Bang Theory
-
-Tue, 21 Jul 2026 23:08:08 GMT
-
-https://www.cbr.com/big-bang-theory-kevin-sussman-lost-howard-role/
-
-Before getting the role of Stuart Bloom, Kevin Sussman was originally cast as one of the main characters of The Big Bang Theory.
----------
-
-# Dragon Ball Z Fans Get First Look at 7 New Converse Sneakers for July 2026
-
-Anime, Dragon Ball, Dragon Ball Z, merchandise, Clothing
-
-Tue, 21 Jul 2026 23:05:15 GMT
-
-https://www.cbr.com/dbz-converse-sneaker-collection-july-2026/
-
-DBZ fans can rock the dragon in style this summer, with Converse revealing a new sneaker collection starring Goku, Cell and even an iconic fusion.
----------
-
-# 5 Best Performances in Nolan's The Odyssey, Ranked
-
-Movies, The Odyssey, Christopher Nolan
-
-Tue, 21 Jul 2026 23:00:14 GMT
-
-https://www.cbr.com/best-performances-in-the-odyssey-list/
-
-The Odyssey is the cinematic event of the year and the movie has some of the best performances out of all of Christopher Nolan's movies.
----------
-
-# This Forgotten 5-Part Spy Thriller Is Too Good To Miss for Fans of 'Slow Horses'
-
-TV Features, London Spy, Ben Whishaw, Jim Broadbent, Slow Horses
-
-Tue, 21 Jul 2026 23:42:14 GMT
-
-https://collider.com/london-spy-thriller-ben-whishaw-slow-horses/
-
-London Spy is a must-watch for fans of Slow Horses who crave an emotionally driven spy drama with a shocking twist.
----------
-
-# Ridley Scott Saves Matt Damon in the Sci-Fi Masterpiece Taking Over Prime Video
-
-Movie News, Matt Damon, Sci-Fi, Prime Video, The Martian
-
-Tue, 21 Jul 2026 23:30:14 GMT
-
-https://collider.com/ridley-scott-matt-damon-sci-fi-the-martian-streaming-success-prime-video-july-2026/
-
-Ridley Scott and Matt Damon’s acclaimed sci-fi adventure is climbing Prime Video’s charts again, proving its popularity hasn’t faded over time.
----------
-
-# ‘God of War’s Kratos Recasting Will Hurt Prime Video’s Series More Than Its Delay
-
-TV Features, God of War, Ryan Hurst, Ronald D. Moore, Prime Video
-
-Tue, 21 Jul 2026 23:29:14 GMT
-
-https://collider.com/god-of-war-recasting-ryan-hurst-kratos-problem/
-
-God of War is replacing Ryan Hurst as Kratos, even though multiple episodes have already been shot.
----------
-
-# 'House of the Dragon's Biggest Deviation From 'Fire & Blood' Is Saving the Show
-
-TV Features, House of the Dragon, HBO, HBO Max, George R.R. Martin
-
-Tue, 21 Jul 2026 23:18:14 GMT
-
-https://collider.com/house-of-the-dragon-season-3-helaena-pregnancy-fire-and-blood-deviation/
-
-Helaena's unexpected pregnancy revitalizes her character in House of the Dragon and complicates her and Alicent's storyline for the better.
----------
-
-# All 9 Mythological Figures in Christopher Nolan's 'The Odyssey'
-
-Movie, The Odyssey, Christopher Nolan, Fantasy, Zendaya
-
-Tue, 21 Jul 2026 23:15:14 GMT
-
-https://collider.com/the-odyssey-mythological-figures-ranked/
-
-Odysseus encountered many mythological figures on his journey home in Christopher Nolan's The Odyssey, like Polyphemus and the goddess Circe.
----------
-
-# The Sci-Fi Epic Quentin Tarantino Said Had the "Last Terrific Car Chase" Is Officially Free to Stream
-
-Movie News, James Cameron, Action, Sci-Fi, Terminator 2: Judgment Day
-
-Tue, 21 Jul 2026 23:00:14 GMT
-
-https://collider.com/james-cameron-sci-fi-terminator-2-judgement-day-free-streaming-youtube-july-2026/
-
-One of James Cameron’s greatest sci-fi blockbusters is now streaming free online for its 35th anniversary, with a theatrical comeback also on the way.
----------
-
-# 'Avengers: Doomsday' Trailer Debuts to Record-Setting Numbers in Just 24 Hours
-
-Movie News, Avengers: Doomsday
-
-Tue, 21 Jul 2026 23:36:52 GMT
-
-https://movieweb.com/avengers-doomsday-trailer-total-views-record/
-
-The highly anticipated trailer set the record for the biggest Disney trailer ever.
----------
-
-# Sam's Best Line Is Still the Greatest Quote in 'Lord of the Rings' History
-
-Features, The Lord of the Rings, The Lord of the Rings: The Two Towers
-
-Tue, 21 Jul 2026 23:00:12 GMT
-
-https://movieweb.com/lord-of-the-rings-samwise-best-quote/
-
-The best line in 'Lord of the Rings' history belongs to Samwise Gamgee, as it perfectly captures why people keep returning to this story.
----------
-
-# Hit "Wizard Of Oz Meets Texas Chainsaw Massacre" Thriller Releases On Hulu Next Week
-
-Movies, Masked Recs
-
-Tue, 21 Jul 2026 22:52:09 GMT
-
-https://screenrant.com/pearl-hulu-streaming-release-date-august-2026/
-
-A hit thriller, which has been described as "The Wizard of Oz meets Texas Chainsaw Massacre," is officially releasing on Hulu next week.
----------
-
-# 10 Animated Fantasy Shows With Flawless Worldbuilding
-
-Classic TV, Fantasy
-
-Tue, 21 Jul 2026 22:45:11 GMT
-
-https://screenrant.com/best-animated-fantasy-shows-worldbuilding/
-
-Every fantasy series takes the viewer on a whirlwind journey with its story, but the best create vivid worlds that are just as unforgettable.
----------
-
-# 10 Best Picard Quotes In Star Trek History
-
-Classic TV, Star Trek
-
-Tue, 21 Jul 2026 22:30:11 GMT
-
-https://screenrant.com/best-picard-quotes-star-trek/
-
-Few Star Trek characters are as wise, eloquent, or speak with the gravitas of Captain Jean-Luc Picard, and each of his greatest quotes proves it.
----------
-
-# 5 Far Side Insect Comics That Are 10/10 Perfect
-
-Comics, The Far Side
-
-Tue, 21 Jul 2026 22:30:11 GMT
-
-https://screenrant.com/far-side-insect-bugs-comics-gary-larson-best/
-
-Gary Larson's favorite subject?
----------
-
-# 10 Best Captain America Moments In The MCU (On The First Avenger's 15th Anniversary)
-
-Classic Movies, Captain America
-
-Tue, 21 Jul 2026 22:30:11 GMT
-
-https://screenrant.com/best-captain-america-mcu-moments-ranked/
-
-Captain America remains one of the best heroes to ever exist in the MCU, and here are his 10 best moments in the movies that prove this.
----------
-
-# Brandon Sanderson Announces Surprise Stormlight Release
-
-Books, The Stormlight Archive, Brandon Sanderson
-
-Tue, 21 Jul 2026 22:23:28 GMT
-
-https://screenrant.com/brandon-sanderson-stormlight-archive-elsecaller-king-lopen-ebook-release/
-
-As the wait continues for Apple TV's The Stormlight Archive series adaptation, Brandon Sanderson has announced a new surprise release.
----------
-
-# Avengers: Doomsday Trailer Shatters MCU Viewership Record In Just 1 Day
-
-Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
-
-Tue, 21 Jul 2026 22:15:26 GMT
-
-https://screenrant.com/avengers-doomsday-mcu-trailer-new-record/
-
-Following Marvel Studios' first official Avengers: Doomsday trailer being released, it has shattered a massive MCU viewership record in just 24 hours.
----------
-
-# Star Wars' Canceled Ben Solo Movie Is A Bigger Miss Than Ever
-
-Movies, Star Wars, Adam Driver, Ben Solo/Kylo Ren, Marvel Cinematic Universe
-
-Tue, 21 Jul 2026 22:15:11 GMT
-
-https://screenrant.com/star-wars-ben-solo-movie-adam-driver-hunt-for-ben-solo-worse/
-
-It was already disappointing that Disney canceled Adam Driver's The Hunt for Ben Solo, but a new reveal about the MCU makes it even worse than before.
 ---------
