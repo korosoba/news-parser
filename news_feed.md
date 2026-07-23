@@ -1,3 +1,344 @@
+# Marvel Officially Announces New Codename for X-Men's Gambit
+
+Comics, X-Men
+
+Thu, 23 Jul 2026 13:18:28 GMT
+
+https://screenrant.com/x-men-gambit-new-codename-wyvern/
+
+Here's why Marvel is making the change.
+---------
+
+# Superman Dying Request Proves He's the Greatest Superhero of All Time (Sorry, Batman)
+
+Comics, Superman
+
+Thu, 23 Jul 2026 13:15:11 GMT
+
+https://screenrant.com/superman-best-superhero-better-batman/
+
+A new development is giving Superman fans fresh ammunition in the ongoing argument over why the Man of Steel may ultimately be the better than Batman.
+---------
+
+# Pokémon Fans Are In Love With Piplup's Regal New Evolution
+
+Gaming, Pokemon, Pokemon Diamond and Pearl
+
+Thu, 23 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/pokemon-diamond-pearl-leaks-piplup-alternate-evolution/
+
+There's no doubt that Piplup is one of the most adorable Pokémon ever, and a new evolution has emerged that fans are delighted by.
+---------
+
+# Tyler Perry's Beauty In Black Officially Changes Its Ending Ahead Of Season 3
+
+TV, Tyler Perry’s Beauty in Black
+
+Thu, 23 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/tyler-perry-beauty-in-black-season-4-netflix-renewed/
+
+After being renewed for a third and final season, Tyler Perry's Beauty in Black is officially changing its plans for how it will conclude.
+---------
+
+# Spider-Man vs Hulk Will Hinge on Game-Changing Weapon, Marvel Confirms
+
+Comics, Spider-Man, Hulk
+
+Thu, 23 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/spider-man-vs-hulk-punisher-cosmic-cube-tesseract/
+
+It all comes down to the Tesseract.
+---------
+
+# Star Trek: Strange New Worlds Season 4 Episode 1 Ending Explained: Captain Pike Rewrites Canon
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Thu, 23 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-episode-1-ending-explained/
+
+History will never be the same after Captain Pike and the Starship Enterprise's time travel in Star Trek: Strange New Worlds season 4's premiere.
+---------
+
+# Why Prime Video's $113 Million Fantasy Epic Has Become A Global Streaming Hit
+
+Movies, Masked Recs
+
+Thu, 23 Jul 2026 12:41:23 GMT
+
+https://screenrant.com/prime-video-masters-of-the-universe-streaming-charts-rise-july-2026/
+
+Prime Video's new fantasy movie has become an instant global streaming hit, and it is easy to see why the genre release is attracting so many.
+---------
+
+# Transformers: More Than Meets The Eye Officially Unveiled
+
+Gaming, Transformers, Transformers: Animated, PC
+
+Thu, 23 Jul 2026 12:41:08 GMT
+
+https://screenrant.com/transformers-more-than-meets-the-eye-sdcc/
+
+Transformers is officially back with a brand-new release unveiled at SDCC this year called More Than Meets The Eye.
+---------
+
+# Legend Of Zelda: Tears Of The Kingdom Official 2027 Return Splits Gamers
+
+Gaming, The Legend of Zelda: Tears of the Kingdom, The Legend of Zelda
+
+Thu, 23 Jul 2026 12:30:11 GMT
+
+https://screenrant.com/zelda-tears-of-the-kingdom-2027-return-reactions/
+
+There's no doubt that Tears of the Kingdom was an enormously successful Zelda game, but not everyone is sold on its 2027 return.
+---------
+
+# Yoda's Best Line Is Still the Greatest Quote in Star Wars History, 9 Years Later
+
+Comics, Star Wars, Yoda
+
+Thu, 23 Jul 2026 12:30:11 GMT
+
+https://screenrant.com/yoda-greatest-star-wars/
+
+Master Yoda's unmatched wisdom has made him a Star Wars icon, and one of his most memorable quotes is also one of the franchise's greatest.
+---------
+
+# 5 Masterpiece Fantasy Anime With the Best Gods and Mythology
+
+Anime, Noragami, The Ancient Magus' Bride
+
+Thu, 23 Jul 2026 13:15:14 GMT
+
+https://www.cbr.com/masterpiece-fantasy-anime-with-best-gods-mythology/
+
+These anime prove that compelling gods and legends can elevate fantasy to another level.
+---------
+
+# Ridley Scott's 157-Minute Gangster Masterpiece Is Losing Its Streaming Home Soon
+
+Movies, American Gangster, ridley scott, Netflix
+
+Thu, 23 Jul 2026 13:00:15 GMT
+
+https://www.cbr.com/ridley-scott-american-gangster-losing-streaming-home-aug-2026/
+
+Fans don't have much time left to watch Ridley Scott's critically acclaimed crime film starring Denzel Washington and Russell Crowe.
+---------
+
+# Law & Order: SVU May Have Lost Its Best Chance to Finish Benson and Stabler’s Story
+
+TV, Law and Order: SVU, Law and Order
+
+Thu, 23 Jul 2026 13:00:15 GMT
+
+https://www.cbr.com/law-order-svu-benson-stabler-story-unfinished/
+
+Christopher Meloni’s latest comments could leave Law & Order: SVU’s longest-running duo with an uncertain future.
+---------
+
+# The Lord of the Rings' 5 Best Craftsmen, Ranked
+
+Movies, The Lord of the Rings, Fantasy
+
+Thu, 23 Jul 2026 13:00:15 GMT
+
+https://www.cbr.com/lord-of-the-rings-best-craftsmen-list/
+
+Middle-earth was home to many magical artifacts and weapons of great power, and J. R. R. Tolkien's novel detailed their mighty creators.
+---------
+
+# DCU's Supergirl Celebrates Early Streaming Release Date With New Lobo Clip
+
+Movies, Supergirl
+
+Thu, 23 Jul 2026 12:01:14 GMT
+
+https://www.cbr.com/supergirl-digital-release-date/
+
+Jason Momoa made his return to DC as a new character, and audiences will be able to watch his return soon on digital.
+---------
+
+# Doctor Doom Doesn't Need an MCU Origin Story—And Never Did
+
+Comics, Avengers: Doomsday
+
+Thu, 23 Jul 2026 12:01:14 GMT
+
+https://www.cbr.com/doctor-doom-doesnt-need-mcu-origin-story/
+
+In the era of the multiverse, MCU fans can be trusted to know the origins of Marvel's most popular characters at this point.
+---------
+
+# Tom Hiddleston Sets Official New Appearance on a Hidden Gem Series Tomorrow [Exclusive]
+
+TV News, Tom Hiddleston, National Geographic, Loki, Pompeii: Out of Time with Tom Hiddleston
+
+Thu, 23 Jul 2026 13:00:15 GMT
+
+https://collider.com/tom-hiddleston-national-geographic-geeking-out-podcast-appearance-july-24/
+
+Loki star Tom Hiddleston is set to appear on an episode of the National Geographic kids podcast, Geeking Out, this week before Avengers: Doomsday.
+---------
+
+# ‘Criminal Minds: Evolution’ Star Addresses Whether Voit Could Return After That Shocking Season 19 Finale
+
+Interviews, Criminal Minds, Zach Gilford, Justin Kirk, Friday Night Lights
+
+Thu, 23 Jul 2026 13:00:15 GMT
+
+https://collider.com/criminal-minds-evolution-season-19-finale-voit-zach-gilford-interview/
+
+Zach Gilford breaks down the Criminal Minds: Evolution Season 19 finale fight and whether Elias Voit could return in a future season.
+---------
+
+# Forget 'The Odyssey,' This Mythology-Inspired Fantasy Book Deserves an Adaptation
+
+TV Features, The Odyssey, Fantasy, Books, Myth
+
+Thu, 23 Jul 2026 12:46:14 GMT
+
+https://collider.com/song-of-achilles-madeline-miller-mythology-fantasy-deserves-adaptation/
+
+Despite years of development attempts, Madeline Miller's bestselling novel The Song of Achilles has yet to receive a screen adaptation.
+---------
+
+# The 10 Best Comedy TV Shows of the 2000s, Ranked
+
+TV, Comedy, The Office, It's Always Sunny in Philadelphia, Modern Family
+
+Thu, 23 Jul 2026 12:32:15 GMT
+
+https://collider.com/best-2000s-comedy-shows-ranked/
+
+Discover the most popular and critically acclaimed comedy TV shows from the 2000s, from It's Always Sunny in Philadelphia to The Office.
+---------
+
+# Woodstock 1969 Was Defined by This Surreal Performance From the Band You'd Least Expect
+
+Music Features, Rock, Music
+
+Thu, 23 Jul 2026 12:22:14 GMT
+
+https://collider.com/jefferson-airplane-woodstock-performance-1969/
+
+San Francisco-based Jefferson Airplane's delayed psychedelic rock music performance at Woodstock 1969 was the festival's most iconic moment
+---------
+
+# 9 Most Perfect Fantasy Shows of the Last 15 Years
+
+TV, Fantasy, House of the Dragon, Outlander, Interview with the Vampire
+
+Thu, 23 Jul 2026 12:08:14 GMT
+
+https://collider.com/most-perfect-fantasy-shows-last-15-years-ranked/
+
+House of the Dragon, Outlander, and Interview with the Vampire are among the best fantasy shows of the last 15 years, but which is the greatest?
+---------
+
+# Hulu Officially Recruits a ‘The Bear’ Favorite for New ‘Lincoln Lawyer’ Replacement
+
+TV News, Liza Colón-Zayas, The Bear, Hulu, The Lincoln Lawyer
+
+Thu, 23 Jul 2026 12:01:14 GMT
+
+https://collider.com/hulu-lincoln-lawyer-replacement-conviction-cast-the-bear-star-liza-colon-zayas/
+
+Hulu's upcoming legal thriller starring Elisabeth Moss has officially added a star from The Bear. Get all the details here.
+---------
+
+# 6 Greatest Best Picture Winners Since 2000
+
+Movie, The Lord of the Rings: The Return of the King, Parasite, No Country for Old Men, Academy Awards
+
+Thu, 23 Jul 2026 11:57:14 GMT
+
+https://collider.com/greatest-oscar-best-picture-winners-since-2000-ranked/
+
+Parasite, Oppenheimer, and The Lord of the Rings: The Return of the King are all among the greatest Oscar Best Picture winners since the year 2000.
+---------
+
+# Netflix’s New 6-Part Series Gives This Romantic 125-Year-Old Novel a Modern Makeover
+
+TV Features, My Brilliant Career, Netflix, Romance
+
+Thu, 23 Jul 2026 11:46:15 GMT
+
+https://collider.com/netflix-new-romance-series-my-brilliant-career/
+
+On August 13, Netflix will be releasing My Brilliant Career, a new adaptation of the 1901 romance classic by Miles Franklin.
+---------
+
+# Jason Statham's 105-Minute Action Thriller Crowned One of Streaming's Biggest Hits
+
+Movie News, Jason Statham, The Beekeeper, Hot on Streaming, Action, Prime Video
+
+Thu, 23 Jul 2026 13:00:12 GMT
+
+https://movieweb.com/the-beekeeper-jason-statham-action-stream-prime-video-july-2026/
+
+Before Jason Statham dishes out justice in 'Mutiny' next month, one of his best action thrillers has returned to take over streaming.
+---------
+
+# 'Doctor Who' Teases Comeback Way Sooner Than Anyone Expected
+
+Features, Doctor Who, star trek: strange new worlds, Star Trek
+
+Thu, 23 Jul 2026 13:00:12 GMT
+
+https://movieweb.com/star-trek-doctor-who-crossover-tease/
+
+The BBC hasn't announced when 'Doctor Who' will be back, but the Star Trek franchise doesn't seem willing to wait. Read on for more.
+---------
+
+# Marvel Confirms Plans for Major Spider-Man Change After 'Secret Wars'
+
+Movie News, Spider-Man, Kevin Feige
+
+Thu, 23 Jul 2026 12:58:48 GMT
+
+https://movieweb.com/kevin-feige-live-action-miles-morales-mcu-plans/
+
+Kevin Feige confirms Marvel Studios has plans for a live-action Miles Morales, arriving after 'Spider-Man: Beyond the Spider-Verse' in June 2027.
+---------
+
+# New 'End of Oak Street' Trailer Unleashes Dinosaur Chaos in the Sci-Fi Film
+
+Movie Trailers, The End of Oak Street, Ewan McGregor, Anne Hathaway, David Robert Mitchell, J.J. Abrams
+
+Thu, 23 Jul 2026 12:58:25 GMT
+
+https://movieweb.com/end-of-oak-street-trailer-dinosaurs/
+
+Ewan McGregor and Anne Hathaway fend off a monster in the latest trailer
+---------
+
+# Chris Hemsworth Confirms Start Date for Netflix Action Thriller 'Extraction 3'
+
+Movie News, Chris Hemsworth, Netflix, Extraction 3, Action, Thriller
+
+Thu, 23 Jul 2026 12:17:58 GMT
+
+https://movieweb.com/chris-hemsworth-extraction-3-netflix-filming/
+
+The 'Avengers' star confirmed that he'll begin filming very soon.
+---------
+
+# New Star Wars Spin-Off Finds Second Life as It Sweeps Charts Ahead of Release
+
+Movie News, The Mandalorian and Grogu, Star Wars
+
+Thu, 23 Jul 2026 12:02:34 GMT
+
+https://movieweb.com/star-wars-mandalorian-grogu-blu-ray-sales-chart/
+
+'Star Wars: The Mandalorian and Grogu' is currently dominating the 4K UHD and Blu-ray sales chart, claiming the Top 4 spots on the bestseller list.
+---------
+
 # Devolver Digital GOTY Contender Returns, Now Totally Free To Keep
 
 Gaming, Devolver Digital, Poinpy, PC
@@ -5155,345 +5496,4 @@ Tue, 21 Jul 2026 21:13:02 GMT
 https://movieweb.com/buddy-movie-trailer-cristin-milioti-topher-grace/
 
 This 'Barney & Friends' horror parody 'Buddy' is pure nightmare fuel.
----------
-
-# Forget ‘Reacher,’ Prime’s New Action Thriller is a Perfect One-Night Binge
-
-Features, Ride or Die, Reacher
-
-Tue, 21 Jul 2026 21:00:12 GMT
-
-https://movieweb.com/ride-or-die-reacher-comparison/
-
-Amazon Prime Video has a new action thriller TV series that is as good as 'Reacher,' which stars Alan Ritchson as Jack Reacher.
----------
-
-# NCIS Has Entered A New Era Unlike Anything In Franchise History
-
-Network TV, NCIS
-
-Tue, 21 Jul 2026 20:36:11 GMT
-
-https://screenrant.com/ncis-2026-2027-cbs-four-show-lineup/
-
-As the NCIS franchise enters a new era, all four current shows will air on CBS for the first time, offering viewers a chance to explore the universe.
----------
-
-# HBO's 3-Part Fantasy Series Is As Close To Perfect As Book Adaptations Get
-
-Classic TV, Masked Recs
-
-Tue, 21 Jul 2026 20:30:26 GMT
-
-https://screenrant.com/his-dark-materials-hbo-fantasy-series-near-perfect-book-adaptation/
-
-HBO has a three-season fantasy television show adapted from an incredible trilogy by Philip Pullman — and it’s perfect from start to finish.
----------
-
-# Avengers: Doomsday Doubles Previous MCU Presales In Just 24 Hours
-
-Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
-
-Tue, 21 Jul 2026 20:19:29 GMT
-
-https://screenrant.com/avengers-doomsday-advance-ticket-sales/
-
-A new report reveals the advance ticket sale figures for Marvel Studios' Avengers: Doomsday, following the release of the first official trailer.
----------
-
-# Liam Neeson & Zachary Levi's Tehran-Based Heist Goes Totally Wrong In Official Trailer For The Fix
-
-Movies, Liam Neeson
-
-Tue, 21 Jul 2026 20:17:18 GMT
-
-https://screenrant.com/liam-neeson-the-fix-movie-trailer-zachary-levi/
-
-Liam Neeson and Zachary Levi team up for a mission to Tehran in the new trailer for the action-thriller The Fix, also starring Titus Welliver.
----------
-
-# 10 K-Drama Couples With The Best Chemistry, Ranked
-
-Classic TV, K-Drama
-
-Tue, 21 Jul 2026 20:15:22 GMT
-
-https://screenrant.com/k-drama-couples-best-chemistry-ranked/
-
-There are countless romance K-dramas on the market, but the best love stories are sold by compatibility and chemistry between the lead actors.
----------
-
-# Alan Ritchson's $865M Dystopian Thriller Adaptation Is Burning Up Netflix's U.S. Streaming Ranks
-
-Movies, Masked Recs
-
-Tue, 21 Jul 2026 20:15:10 GMT
-
-https://screenrant.com/hunger-games-catching-fire-netflix-streaming-charts-july-2026/
-
-Alan Ritchson's dystopian thriller adaptation, which made $865 million at the box office, is burning up Netflix's streaming rankings in the U.S.
----------
-
-# Alan Ritchson's Record-Breaking Sci-Fi Netflix Thriller Gets Official Sequel Title In Major Writing Update
-
-Movies
-
-Tue, 21 Jul 2026 20:06:12 GMT
-
-https://screenrant.com/alan-ritchson-war-machines-sequel-netflix-title-confirmed/
-
-After breaking Netflix records, Alan Ritchson’s sci-fi thriller War Machine just got a major sequel update, with the film’s title now revealed.
----------
-
-# 40 Years Later, Ghostbusters' Upcoming Netflix Release Has A Lot To Live Up To
-
-Streaming TV, Ghostbusters
-
-Tue, 21 Jul 2026 20:00:17 GMT
-
-https://screenrant.com/the-real-ghostbusters-1986-set-standards-upcoming-netflix-show/
-
-Netflix will release a Ghostbusters TV show more than three decades after the original film premiered, and the new series has high standards to meet.
----------
-
-# The Batman 2 May Be Delayed, But Matt Reeves' Other Batman Returns In Less Than 2 Weeks
-
-Streaming TV, Batman: Caped Crusader, The Batman Part II
-
-Tue, 21 Jul 2026 19:30:27 GMT
-
-https://screenrant.com/batman-caped-crusader-season-2-matt-reeves-batman-returns/
-
-The Batman Part II was delayed to 2028, but Matt Reeves has another version of the Dark Knight in Batman: Caped Crusader, and it's about to return.
----------
-
-# Netflix's 8-Part Thriller Based on a Bestselling Novel Is Already a Modern Classic
-
-TV, The Hunting Wives, Thriller, Netflix
-
-Tue, 21 Jul 2026 20:30:29 GMT
-
-https://www.cbr.com/netflix-the-hunting-wives-thriller-drama-modern-classic/
-
-The Netflix thriller with an 81% RT score is a modern classic that brings back what made great thriller and drama TV series.
----------
-
-# 5 Classic Anime Series That Are 100% Unwatchable Today
-
-Anime
-
-Tue, 21 Jul 2026 20:16:24 GMT
-
-https://www.cbr.com/classic-anime-series-totally-unwatchable-today/
-
-Shifting storytelling standards and changing audience expectations have made these anime almost impossible to appreciate.
----------
-
-# Pokémon's Forgotten '90s Game Is Officially Back After 29 Years
-
-Anime, Pokemon, namco bandai, bandai
-
-Tue, 21 Jul 2026 20:05:21 GMT
-
-https://www.cbr.com/pokemon-plakoro-return-july-2026/
-
-One of the most unexpected returning Pokémon titles has officially arrived with a half-dozen of the most iconic Starters.
----------
-
-# Spawn Is Getting a Meme-Inspired New Name, Creator Confirms
-
-Comics, Spawn
-
-Tue, 21 Jul 2026 20:00:20 GMT
-
-https://www.cbr.com/spawn-new-name-meme-todd-mcfarlane/
-
-Todd McFarlane opens up about the future of the Spawn Universe, as well as how fans can help name its next infernal antihero when they arrive.
----------
-
-# Harrison Ford's Blade Runner 2049 Is The Greatest Sci-Fi Sequel of the 21st Century
-
-Movies, Blade Runner 2049, Sci-Fi
-
-Tue, 21 Jul 2026 20:00:20 GMT
-
-https://www.cbr.com/blade-runner-2049-harrison-ford-greatest-sci-fi-sequel/
-
-Denis Villeneuve's Blade Runner 2049 continues to dominate the conversation of being one of the greatest sci-fi sequels of the 21st century.
----------
-
-# 10 Hardest PS5 Games, Officially Ranked
-
-Games, PlayStation 5
-
-Tue, 21 Jul 2026 19:30:28 GMT
-
-https://www.cbr.com/hardest-ps5-games-ranked-by-difficulty-official/
-
-Some of the most difficult PS5 games, like Death Stranding 2 and Stellar Blade, challenge the player at every turn.
----------
-
-# Ryan Reynolds Reverses Course on Deadpool's MCU Future
-
-Movies, Deadpool, Marvel Cinematic Universe, X-Men
-
-Tue, 21 Jul 2026 19:23:49 GMT
-
-https://www.cbr.com/ryan-reynolds-new-deadpool-movie-marvel-mcu/
-
-It sounds like Ryan Reynolds has reconsidered his position on Deadpool's role in the Marvel Cinematic Universe.
----------
-
-# After 139 Million Views, It’s Officially the End of an Era for Ryan Gosling’s Action Thriller
-
-Movie News, Swapped, Netflix, The Gray Man, Action
-
-Tue, 21 Jul 2026 20:16:46 GMT
-
-https://collider.com/after-139-million-views-its-officially-the-end-of-an-era-for-ryan-goslings-action-thriller/
-
-Netflix officially marks the end of an era for its Ryan Gosling-led CIA action thriller The Gray Man as the film loses rank to a fantasy hit.
----------
-
-# 10 Greatest Thriller Books of the Last 10 Years, Ranked
-
-TV, Thriller, Books, Knives Out, Mystery
-
-Tue, 21 Jul 2026 19:44:16 GMT
-
-https://collider.com/best-thriller-books-last-10-years-ranked/
-
-The Silent Patient, The Guest List, The Chain, Razorblade Tears, and more make up our list of the best thriller books of the last 10 years.
----------
-
-# Marvel's Biggest Villain Officially Joins Apple TV's MonsterVerse Spin-Off
-
-TV News, Ralph Ineson, Corey Stoll, MonsterVerse, Monarch: Legacy of Monsters
-
-Tue, 21 Jul 2026 19:38:05 GMT
-
-https://collider.com/apple-tv-monarch-legacy-of-monsters-spin-off-cast-ralph-ineson-corey-stoll/
-
-Apple TV's Monarch: Legacy of Monsters' spin-off has added two Marvel veterans to the cast alongside Avengers: Doomsday's Wyatt Russell.
----------
-
-# 3 World War II Movies That Are Terrible
-
-Movie, Pearl Harbor, Midway, USS Indianapolis, War
-
-Tue, 21 Jul 2026 19:24:25 GMT
-
-https://collider.com/world-war-ii-movies-terrible-start-to-finish/
-
-Some World War II movies failed to hit the mark, including unfortunately flawed ones like Pearl Harbor and USS Indianapolis: Men of Courage.
----------
-
-# Titus Welliver's Detective Thriller Is One of the Most Rewatchable Shows on TV
-
-TV Features, Bosch, Titus Welliver, Lance Reddick, Prime Video
-
-Tue, 21 Jul 2026 19:21:25 GMT
-
-https://collider.com/bosch-titus-welliver-detective-thriller-rewatch/
-
-Bosch is a rewatch staple, full of complex cases and rich characters that keep viewers hooked season after season.
----------
-
-# Netflix's New 8-Part Western Officially Crowned the Biggest Show on Streaming
-
-TV News, Little House on the Prairie, Hot on Streaming, Western, Netflix
-
-Tue, 21 Jul 2026 20:12:27 GMT
-
-https://movieweb.com/little-house-on-the-prairie-netflix-western-hit-streaming-july-2026/
-
-Netflix's new Western series has officially dethroned one of the hottest streaming shows of the summer after just two weeks.
----------
-
-# Disney's Divisive Live-Action Remake Conquers 86-Year-Old Animated Classic at the Box Office
-
-Movie News, Moana, Disney's Pinocchio
-
-Tue, 21 Jul 2026 20:00:18 GMT
-
-https://movieweb.com/disney-live-action-moana-beats-pinocchio-box-office/
-
-Disney's live-action remakes prove nostalgia is still a huge draw at the box office.
----------
-
-# 10 Best Action Shows Streaming on Netflix
-
-TV Lists, Netflix
-
-Tue, 21 Jul 2026 20:00:18 GMT
-
-https://movieweb.com/best-action-shows-netflix/
-
-Netflix has a lot of memorable and fantastic action TV shows, and these are the ones most worth watching.
----------
-
-# Prime Video Officially Moving Forward With Classic '80s Action Thriller Reboot
-
-TV News, Robocop, Prime Video
-
-Tue, 21 Jul 2026 19:09:52 GMT
-
-https://movieweb.com/prime-video-robocop-series-greenlit/
-
-The upcoming series boasts an impressive creative team, led by the iconic filmmaker behind 'Aquaman' and 'Saw.'
----------
-
-# The Wait Is Over: Stranger Things Just Returned With A Will Spinoff Series, And It's Already #1
-
-Comics, Stranger Things, Webtoon
-
-Tue, 21 Jul 2026 19:00:16 GMT
-
-https://screenrant.com/stranger-things-webtoon-horror-will-spinoff/
-
-A look back at the earlier Stranger Things days appears to be bringing an avalanche of releases to its most accessible state ever thanks to Webtoon.
----------
-
-# Xbox Game Pass Just Made One Of 2026’s Best Reviewed Games Totally Free
-
-Gaming, Xbox Game Pass
-
-Tue, 21 Jul 2026 19:00:16 GMT
-
-https://screenrant.com/xbox-game-pass-2026-best-game/
-
-Xbox Game Pass subscribers can now play one of 2026's highest-rated indie games completely free.
----------
-
-# Mindhunter Meets Scarpetta In Netflix's Upcoming Psychological Thriller From The Russos
-
-TV, Masked Recs
-
-Tue, 21 Jul 2026 19:00:16 GMT
-
-https://screenrant.com/the-whisper-man-netflix-mindhunter-scarpetta/
-
-Adam Scott and Robert De Niro lead a star-studded cast in Netflix's upcoming psychological thriller, a daring blend of Mindhunter and Scarpetta.
----------
-
-# Netflix's New Fantasy Movie Officially Cracks Most-Viewed Elite List In Just 2 Months
-
-Movies, Masked Recs
-
-Tue, 21 Jul 2026 19:00:10 GMT
-
-https://screenrant.com/netflix-swapped-movie-top-10-most-popular-list/
-
-Netflix's new fantasy movie has officially become one of the streaming service's biggest releases of all time, doing so in just two months.
----------
-
-# Lord Of The Rings: The Hunt For Gollum Confirms Return Of Major OG Trilogy Location
-
-Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum
-
-Tue, 21 Jul 2026 18:46:20 GMT
-
-https://screenrant.com/lord-of-the-rings-hunt-for-gollum-shire-filming-set-photo/
-
-Production is now underway on The Lord of the Rings: The Hunt for Gollum, and a location from the original trilogy is making a comeback.
 ---------
