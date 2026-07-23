@@ -1,3 +1,278 @@
+# Joker Officially Cast In Prime Video’s Hit Batman Series
+
+TV, Masked Recs, Batman, San Diego Comic-Con, DC Universe
+
+Thu, 23 Jul 2026 23:30:11 GMT
+
+https://screenrant.com/batman-caped-crusader-season-2-matthew-needham-joker-casting/
+
+Prime Video's popular Batman TV show has officially cast its Joker, as the DC Studios series has revealed who will play the iconic DC villain.
+---------
+
+# New Batman Game Officially Confirmed
+
+Gaming
+
+Thu, 23 Jul 2026 23:30:11 GMT
+
+https://screenrant.com/batman-caped-crusader-chronicles-game-release/
+
+Batman has been in games since the '80s, and has made quite a name for himself with the Arkham series, amid many other great releases.
+---------
+
+# The Expanse Is Over, But Apple TV's 3-Part Space Opera Is Just As Good
+
+TV, Masked Recs
+
+Thu, 23 Jul 2026 23:29:11 GMT
+
+https://screenrant.com/foundation-apple-tv-the-expanse-replacement-space-opera/
+
+While Prime Video's sci-fi masterpiece The Expanse might be over, its best replacement is an ambitious three-part genre masterpiece from Apple TV.
+---------
+
+# 5 Best Moments Of The Odyssey, Ranked
+
+Movies, The Odyssey
+
+Thu, 23 Jul 2026 23:15:11 GMT
+
+https://screenrant.com/the-odyssey-best-moments-ranked/
+
+Christopher Nolan's The Odyssey is nearly three hours of epic, rousing moments, but there are a handful that stand out above the rest.
+---------
+
+# Halo: Campaign Evolved - Assault On The Control Room Skull Guide
+
+Gaming, Halo: Campaign Evolved, Halo: Combat Evolved, Halo, PC
+
+Thu, 23 Jul 2026 23:05:44 GMT
+
+https://screenrant.com/halo-campaign-evolved-assault-on-the-control-room-skull-guide/
+
+Halo: Campaign Evolved's Assault on the Control Room mission contains the IWHBYD, Angry, and Cowbell collectible Skulls.
+---------
+
+# True Detective Was The Undisputed King Of Crime TV Until Netflix's 2-Part Thriller
+
+TV, Masked Recs
+
+Thu, 23 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/mindhunter-true-detective-best-crime-show/
+
+The first season of HBO's True Detective changed TV crime, but the show's Netflix rival went even further with its cinematic innovations to the genre.
+---------
+
+# Dragon Ball: Limit Breaker Journey Officially Announced, And It's Coming Soon
+
+Gaming, Dragon Ball: Sparking! Zero, Dragon Ball, Triple-A Games, PC
+
+Thu, 23 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/dragon-ball-z-limit-breaker-journey-sparking-zero-update/
+
+As attention turns toward Dragon Ball Xenoverse 3, a brand-new single-player mode is being added to Sparking! Zero with its upcoming DLC.
+---------
+
+# Resident Evil's Zach Cregger Reveals On-Set Moment That Could Have "Killed" Star
+
+Movies, Resident Evil
+
+Thu, 23 Jul 2026 22:54:57 GMT
+
+https://screenrant.com/resident-evil-zach-cregger-on-set-accident-austin-abrams/
+
+The director and writer behind the upcoming Resident Evil reboot film, Zach Cregger, revealed that a stunt could have potentially killed its star.
+---------
+
+# New Star Trek Movie Timeline & Character Details Teased By Writers
+
+Movies, Star Trek, San Diego Comic-Con
+
+Thu, 23 Jul 2026 22:53:37 GMT
+
+https://screenrant.com/star-trek-movie-timeline-character-details-johnathan-goldstein-john-francis-daley/
+
+The timeline for the new Star Trek movie and character details have been teased by the film's writers at San Diego Comic-Con.
+---------
+
+# 10 Perfect Hard Sci-Fi Anime Series No One Remembers
+
+Anime, Sci-Fi
+
+Thu, 23 Jul 2026 23:15:14 GMT
+
+https://www.cbr.com/perfect-forgotten-hard-sci-fi-anime-series/
+
+Giant robots and galactic war sells better than orbital mechanics, fuel budgets and the slow grind of realistic engineering that drives hard sci-fi.
+---------
+
+# The Incredibles Director Brad Bird Sounds Off on AI Filmmaking and Sequel Obsession
+
+Movies, The Incredibles, Ray Gunn, San Diego Comic-Con
+
+Thu, 23 Jul 2026 23:06:25 GMT
+
+https://www.cbr.com/the-incredibles-brad-bird-ai-movies-sequels/
+
+The animation visionary had quite the comparison to make about the emerging tech.
+---------
+
+# 6 Classic Thrillers We Need a Remake Of
+
+Movies, Thriller, M, Wait Until Dark, The Conversation, The Stepford Wives, Vertigo, The Night of the Hunter
+
+Thu, 23 Jul 2026 23:00:14 GMT
+
+https://www.cbr.com/classic-thrillers-that-need-remake-list/
+
+We've seen some brilliant thriller movies released in recent years, but we'd love these classic thrillers to get remade in the modern day too.
+---------
+
+# Chris Hemsworth's Biggest Action Franchise Is Officially Returning to Netflix
+
+Movie News, Extraction, Extraction 2, Extraction 3, Chris Hemsworth
+
+Thu, 23 Jul 2026 23:52:20 GMT
+
+https://collider.com/netflix-chris-hemsworth-extraction-3-filming-start/
+
+Netflix's new action film Extraction 3 has officially begun filming, with Chris Hemsworth and Idris Elba set to return.
+---------
+
+# 4 Hugh Grant Movies That Are Perfect From Start to Finish
+
+Movie, Hugh Grant, Notting Hill, Four Weddings and a Funeral, Sense and Sensibility
+
+Thu, 23 Jul 2026 23:48:14 GMT
+
+https://collider.com/best-hugh-grant-movies-perfect/
+
+Four Weddings and a Funeral, Paddington 2, and Notting Hill are among the absolute best, truly perfect movies starring Hugh Grant.
+---------
+
+# Johnny Depp Officially Reveals His Iconic New Fantasy Character in Surprise SDCC Debut
+
+Movie News, Johnny Depp, A Christmas Carol, Ti West, Ebenezer
+
+Thu, 23 Jul 2026 23:33:16 GMT
+
+https://collider.com/johnny-depp-ebenezer-movie-trailer-debut/
+
+Johnny Depp made a surprise appearance at San Diego Comic-Con as Ebenezer Scrooge, unveiling the first trailer for Ebenezer.
+---------
+
+# ‘Yellowstone’ Fan-Favorite Officially Cast in Paramount+’s ‘Lincoln Lawyer’ Rival
+
+TV News, Yellowstone, Josh Lucas, Nicole Kidman, A24
+
+Thu, 23 Jul 2026 23:30:14 GMT
+
+https://collider.com/paramount-legal-thriller-discretion-cast-yellowstone-star-josh-lucas/
+
+Yellowstone favorite Josh Lucas has officially joined the cast of Paramount+'s upcoming legal thriller alongside a fellow Taylor Sheridan star.
+---------
+
+# Christopher Nolan Just Delivered 2026's Scariest Scene in ‘The Odyssey’
+
+Movie Features, The Odyssey, Christopher Nolan, Samantha Morton, Horror
+
+Thu, 23 Jul 2026 23:21:14 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-circe-pig-scene-practical-effects/
+
+Christopher Nolan’s terrifying Circe sequence in The Odyssey uses practical effects to create the scariest scene of 2026.
+---------
+
+# The 10 Best 'Star Wars' Video Games of All Time, Ranked
+
+TV, Video Game, Star Wars, Sci-Fi
+
+Thu, 23 Jul 2026 23:12:14 GMT
+
+https://collider.com/best-star-wars-games-ranked/
+
+Discover the top Star Wars video games of all time, ranked by gameplay, nostalgia, and impact on the franchise, from Tie Fighter to Republic Commando.
+---------
+
+# ‘Weapons’ Prequel Scores a Major Update From Zach Cregger [Exclusive]
+
+Movie News, Weapons, Zach Cregger, Amy Madigan, SDCC
+
+Thu, 23 Jul 2026 23:11:33 GMT
+
+https://collider.com/weapons-prequel-gladys-update-zach-cregger-amy-madigan/
+
+Zach Cregger has shared a massive update on his highly anticipated Weapons prequel, Gladys. Read on for more.
+---------
+
+# The Most Anticipated Sci-Fi Adaptation of the Decade Officially Casts Its First Major Star
+
+TV News, Dungeon Crawler Carl, Peacock, Seth MacFarlane, Sci-Fi
+
+Thu, 23 Jul 2026 23:00:37 GMT
+
+https://collider.com/dungeon-crawler-carl-series-cast-audiobook-narrator-jeff-hays/
+
+Seth McFarlane's live-action Dungeon Crawler Carl series has added its first cast member, and it's someone fans will instantly recognize.
+---------
+
+# 10 Years Later, Netflix’s Game-Changing Sci-Fi Hit Is Still Pulling in a Huge Audience
+
+TV News, Netflix, Stranger Things, Sci-Fi, Streaming
+
+Thu, 23 Jul 2026 23:00:14 GMT
+
+https://collider.com/netflix-stranger-things-32-million-viewers-35-days/
+
+7 months after the sci-fi series came to an end, Netflix's Stranger Things is still pulling in tens of millions of fans on streaming.
+---------
+
+# New Star Trek Movie Gets First Official Details From Writers [Exclusive]
+
+Movie News, San Diego Comic-Con, Star Trek, John Francis Daley, Jonathan Goldstein
+
+Thu, 23 Jul 2026 22:59:07 GMT
+
+https://collider.com/paramount-star-trek-reboot-plot-details-john-francis-daley-jonathan-goldstein/
+
+Paramount’s Star Trek reboot is officially moving forward, with the first plot details revealed in an exclusive conversation with Collider.
+---------
+
+# Arnold Schwarzenegger '80s Action Fantasy Classic Getting a New Release
+
+Movie News, Red Sonja, Arnold Schwarzenegger, Brigitte Nielsen, Conan the Barbarian
+
+Thu, 23 Jul 2026 23:41:23 GMT
+
+https://movieweb.com/red-sonja-arnold-schwarzenegger-4k-blu-ray/
+
+The actor played an unofficial version of Conan the Barbarian in 'Red Sonja,' which is getting a new 4k Ultra HD Blu-ray release.
+---------
+
+# 'Sugar' Season 2 Episode 6 Clip
+
+TV Shows, Sugar
+
+Thu, 23 Jul 2026 23:32:32 GMT
+
+https://movieweb.com/video/sugar-season-2-episode-6-clip/
+
+An exclusive clip from Apple TV's 'Sugar,' Season 2, Episode 6.
+---------
+
+# Matt Damon's Fantasy Action Epic Officially Topples His Own Underrated Sci-Fi Thriller in Just 3 Days
+
+Movie News, The Odyssey, Elysium
+
+Thu, 23 Jul 2026 23:00:12 GMT
+
+https://movieweb.com/matt-damon-the-odyssey-beats-elysium/
+
+It's a box office toe-to-toe between two Matt Damon movies.
+---------
+
 # Christopher Nolan's The Odyssey Star Breaks Silence On Original Character After Casting Backlash
 
 Movies, The Odyssey, Elliot Page
@@ -5221,279 +5496,4 @@ Wed, 22 Jul 2026 16:01:14 GMT
 https://www.cbr.com/furious-show-review/
 
 Creator Elizabeth Meriwether knocks it out of the park again with a crime series that evaluates how the system fails women on both sides of the coin.
----------
-
-# Say Goodbye to HBO as the King of Fantasy as Amazon's Next Hit Shows Game of Thrones How It's Done
-
-TV, Game Of Thrones, Prime Video, Fantasy
-
-Wed, 22 Jul 2026 16:01:14 GMT
-
-https://www.cbr.com/amazon-powerless-rivals-hbo-game-of-thrones/
-
-Amazon's upcoming fantasy adaptation has a captivating premise, strong source material, and could dethrone HBO as the king of fantasy TV.
----------
-
-# Stuart Fails to Save the Universe Review: Big Bang Theory’s Best Spinoff Yet
-
-TV, Stuart Fails to Save the Universe, The Big Bang Theory, HBO Max
-
-Wed, 22 Jul 2026 16:01:14 GMT
-
-https://www.cbr.com/stuart-fails-to-save-the-universe-review/
-
-The Big Bang Theory expands its universe with a sci-fi inspired sitcom that follows the uproarious adventures of Stuart Bloom and his friends.
----------
-
-# Apple TV Wins Rights for TV Series Based on Unpublished Novel by Fourth Wing Author
-
-TV, Fourth Wing, Apple TV
-
-Wed, 22 Jul 2026 16:01:00 GMT
-
-https://www.cbr.com/apple-tv-rebecca-yarros-peculiar-stars-tv-adaptation/
-
-Although Fourth Wing is in development, more streaming platforms want a piece of the excitement.
----------
-
-# Japan Reveals Its Top 10 Isekai Series of 2026 in Official Ranking
-
-Anime, Isekai, That Time I Got Reincarnated as a Slime
-
-Wed, 22 Jul 2026 15:20:14 GMT
-
-https://www.cbr.com/japan-top-10-isekai-manga-2026-reincarnated-as-a-slime/
-
-New sales stats fresh from Japan reveal which isekai franchise has made the greatest headway with fans in the first half of 2026.
----------
-
-# Batman Officially Returns in New Game Coming in 2027
-
-Games, Batman, DCU
-
-Wed, 22 Jul 2026 15:16:14 GMT
-
-https://www.cbr.com/batman-officially-returns-in-new-game-coming-2027/
-
-Batman finally has a new game coming out in 2027, and it isn't a new entry in the Arkham series.
----------
-
-# 5 Classic Anime That Shaped Dandadan
-
-Anime, Dandadan, Dragon Ball, Chainsaw Man
-
-Wed, 22 Jul 2026 15:16:14 GMT
-
-https://www.cbr.com/classic-anime-that-shaped-dandadan/
-
-Dandadan is one of the 2020s' biggest anime, but it owes some of its success to classic titles like Dragon Ball, Ranma 1/2, and Evangelion.
----------
-
-# Steven Spielberg's 'Disclosure Day' Officially Unveils Look at Massive Train Sequence [Exclusive]
-
-Movie News, Disclosure Day, Steven Spielberg, Josh O'Connor, Emily Blunt
-
-Wed, 22 Jul 2026 16:00:14 GMT
-
-https://collider.com/disclosure-day-musical-train-scene/
-
-Discover the making of Spielberg's latest alien adventure in 'Disclosure Day,' featuring an exclusive look at the massive train sequence.
----------
-
-# Hulu's 'Furious' Is an Unflinchingly Raw Crime Thriller | Review
-
-TV Reviews, Furious, Emmy Rossum, Hulu, Crime
-
-Wed, 22 Jul 2026 16:00:14 GMT
-
-https://collider.com/furious-hulu-review-emmy-rossum-lola-petticrew/
-
-Hulu's crime thriller Furious is buoyed by two unflinchingly raw performances from Emmy Rossum and Lola Petticrew and a fearless supporting cast.
----------
-
-# 'Stuart Fails To Save The Universe' Is a More Mind-Bending Sci-Fi Spin-Off Than We Expected | Review
-
-TV Reviews, Stuart Fails to Save the Universe, The Big Bang Theory, HBO Max, Comedy
-
-Wed, 22 Jul 2026 16:00:14 GMT
-
-https://collider.com/stuart-fails-to-save-the-universe-review-hbo-max/
-
-Stuart Fails to Save the Universe centers The Big Bang Theory's most overlooked characters in a mind-bending multiverse sci-fi saga.
----------
-
-# ‘Spider-Man: Brand New Day’ Director Teases a Darker MCU Story Thanks to The Punisher
-
-Exclusives, Spider-Man: Brand New Day, Destin Daniel Cretton, Tom Holland, Marvel
-
-Wed, 22 Jul 2026 15:51:15 GMT
-
-https://collider.com/spider-man-brand-new-day-director-destin-daniel-cretton-interview/
-
-Spider-Man: Brand New Day director Destin Daniel Cretton breaks down the film's gorgeous cinematography and how The Punisher introduces a darker tone.
----------
-
-# Netflix Confirms New Release for Its Best Western Series Ahead of Season 2
-
-TV News, Untamed, Netflix, Eric Bana, Warner Bros. Television
-
-Wed, 22 Jul 2026 15:30:15 GMT
-
-https://collider.com/netflix-best-western-series-2020s-untamed-dvd-physical-release-date-in-3-months/
-
-Untamed, Netflix's breakout Western crime drama, returns in three months with a physical release courtesy of Warner Bros. Television.
----------
-
-# ‘Daredevil: Born Again’ Season 3’s Latest Update Points to a Major Marvel Reveal
-
-TV Features, Daredevil: Born Again, Disney Plus, New York Comic Con, Spider-Man: Brand New Day
-
-Wed, 22 Jul 2026 15:28:26 GMT
-
-https://collider.com/daredevil-born-again-season-3-update-new-york-comic-con-reveal/
-
-The next season of Daredevil: Born Again is done filming, and a reveal at New York Comic Con could build momentum.
----------
-
-# 'The Mandalorian & Grogu' Officially Surges to No. 1 as Instant Digital Hit in Just 24 Hours
-
-Movie News, The Mandalorian and Grogu, Star Wars, Prime Video, Apple TV
-
-Wed, 22 Jul 2026 15:10:14 GMT
-
-https://collider.com/the-mandalorian-and-grogu-vod-streaming-success-prime-video-july-2026-how-to-watch/
-
-Only one day after its VOD debut, The Mandalorian and Grogu is already one of the most popular movies in the world to watch at home.
----------
-
-# 'The Walking Dead: Dead City' Finally Justifies Its Existence With a Stellar Season 3 | Review
-
-TV Reviews, The Walking Dead: Dead City, AMC, Jeffrey Dean Morgan, Lauren Cohan
-
-Wed, 22 Jul 2026 15:00:15 GMT
-
-https://collider.com/the-walking-dead-dead-city-season-3-review/
-
-The Walking Dead: Dead City delivers a stellar Season 3 that moves away from tired formulas and focuses on the strengths of its leads.
----------
-
-# Netflix Officially Confirms the Arrival of the Best SEAL Team Series
-
-TV News, SEAL Team, David Boreanaz, Max Thieriot, Action
-
-Wed, 22 Jul 2026 14:54:57 GMT
-
-https://collider.com/seal-team-netflix-release-date-august-2026/
-
-SEAL Team officially joins Netflix in August 2026, bringing multiple seasons of the David Boreanaz-led military thriller to the streamer.
----------
-
-# Netflix Scores Big With New 8-Part Fantasy Action Series Taking Over Streaming
-
-TV News, The East Palace, Hot on Streaming, Action, Fantasy, Netflix
-
-Wed, 22 Jul 2026 16:01:12 GMT
-
-https://movieweb.com/the-east-palace-fantasy-action-netflix-streaming-july-2026/
-
-Netflix's newest streaming hit is the perfect blend of historical drama, supernatural horror, fantasy, and action.
----------
-
-# One of the Best Action Thrillers of All Time Is Available on YouTube For Free
-
-Features, Face/Off, YouTube
-
-Wed, 22 Jul 2026 16:01:12 GMT
-
-https://movieweb.com/face-off-action-thriller-youtube-free/
-
-The action thriller has excellent performances from two big names in Hollywood and was made by a talented, beloved director.
----------
-
-# 'The Big Bang Theory' Action Sci-Fi Spin-Off Is a Rewarding Genre Change | Review
-
-TV Reviews, Stuart Fails to Save the Universe, The Big Bang Theory, Comedy, Sci-Fi, HBO Max, Kevin Sussman
-
-Wed, 22 Jul 2026 16:01:12 GMT
-
-https://movieweb.com/stuart-fails-to-save-the-universe-review/
-
-Math, science, history, Stuart Bloom is unraveling multiverse mysteries in the new 'Big Bang Theory' spin-off, 'Stuart Fails to Save the Universe.'
----------
-
-# Will Smith's New Amazon Action Thriller Recruits Rebellious Netflix Star
-
-Movie News, Will Smith, AnnaSophia Robb, David Gordon Green
-
-Wed, 22 Jul 2026 15:44:46 GMT
-
-https://movieweb.com/annasophia-robb-will-smith-supermax/
-
-AnnaSophia Robb has officially joined Will Smith in 'Supermax,' David Gordon Green's Amazon MGM thriller heading to Prime Video.
----------
-
-# The Real Role Sadie Sink Plays in 'Spider-Man: Brand New Day' Revealed by Director
-
-Movie News, Spider-Man: Brand New Day
-
-Wed, 22 Jul 2026 15:42:44 GMT
-
-https://movieweb.com/spider-man-brand-new-day-sadie-sink-character-role/
-
-The director behind the film spoke in depth about how her character is crucial to the story.
----------
-
-# One of the Most Underrated War Movies Is Now 25 Years Old — and It's Set for New Release
-
-Movie News, Enemy At The Gates, War
-
-Wed, 22 Jul 2026 15:20:24 GMT
-
-https://movieweb.com/enemy-at-the-gates-4k-blu-ray-release/
-
-Paramount is celebrating the 25th anniversary of Jean-Jacques Annaud's underrated World War II epic 'Enemy at the Gates' with a 4K Blu-ray release.
----------
-
-# 10 Best '90s Sci-Fi Movies About Aliens
-
-Movie Lists, Science Fiction, 1990s
-
-Wed, 22 Jul 2026 15:00:12 GMT
-
-https://movieweb.com/best-90s-sci-fi-movies-alien/
-
-The '90s gave us many great alien movies, and among them, the following are the ones you should prioritize.
----------
-
-# After Slamming Christopher Nolan, Elon Musk Is Making His Own 'Odyssey'
-
-Movie News, The Odyssey, Elon Musk, Christopher Nolan
-
-Wed, 22 Jul 2026 14:37:34 GMT
-
-https://movieweb.com/elon-musk-grok-ai-odyssey-nolan/
-
-Elon Musk says Grok will make a 'historically accurate' AI 'Odyssey' by year's end, after slamming Christopher Nolan's record-breaking film.
----------
-
-# Quentin Tarantino Inspired Assassin Action Series Confirms US Release Window
-
-TV, Quentin Tarantino
-
-Wed, 22 Jul 2026 14:15:47 GMT
-
-https://screenrant.com/kill-jackie-show-release-window/
-
-A new, Quentin Tarantino inspired assassin action series confirms its US release window as new details about the riveting TV show are revealed.
----------
-
-# Star Trek: Strange New Worlds Season 4 Rotten Tomatoes Score Debuts To New Series Record
-
-TV, Star Trek: Strange New Worlds, Star Trek: Strange New Worlds - Season 4, Star Trek
-
-Wed, 22 Jul 2026 14:10:42 GMT
-
-https://screenrant.com/star-trek-strange-new-worlds-season-4-rotten-tomatoes-score/
-
-Star Trek: Strange New Worlds is back for its fourth season, and the newest installment is setting a stunning record for the fan-favorite series.
 ---------
