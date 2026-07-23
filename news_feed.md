@@ -1,3 +1,410 @@
+# David Tennant Officially Starring In New Adaptation Based On Scandalous 54-Year-Old Bestselling Novel
+
+Movies, David Tennant
+
+Thu, 23 Jul 2026 20:02:27 GMT
+
+https://screenrant.com/joy-of-sex-movie-adaptation-colin-firth-david-tennant-casting/
+
+David Tennant is officially starring in a new movie adaptation based on a scandalous, 54-year-old bestselling novel, as new details are revealed.
+---------
+
+# 15 Years Later, Olivia Benson's Best SVU Line Is Still The Greatest Quote In Law & Order History
+
+TV, Law & Order: Special Victims Unit
+
+Thu, 23 Jul 2026 20:00:12 GMT
+
+https://screenrant.com/olivia-benson-best-svu-quote-law-order/
+
+If there's one thing that sets Law & Order: Special Victims Unit apart, it's Olivia Benson's tireless emotional commitment to the victims of crime.
+---------
+
+# 27 Years Later, Naruto Just Proved Why One Piece Is Still King
+
+Anime, Naruto, One Piece
+
+Thu, 23 Jul 2026 20:00:12 GMT
+
+https://screenrant.com/naruto-proves-one-piece-shonen-king-worldbuilding/
+
+Even though Naruto is a personal favorite, it's undeniable that One Piece has done some things better that have helped it last almost three decades.
+---------
+
+# Halo: Campaign Evolved - Truth And Reconciliation Skull Guide
+
+Gaming, Halo: Campaign Evolved, PC, Halo, Halo: Combat Evolved
+
+Thu, 23 Jul 2026 19:35:02 GMT
+
+https://screenrant.com/halo-campaign-evolved-truth-reconciliation-skull-guide/
+
+Halo: Campaign Evolved's third main mission is Truth and Reconciliation, where players will be able to track down three hidden Skulls.
+---------
+
+# Xena: Warrior Princess Movie & Plot Details Proposed By Lucy Lawless After Reflecting On Failed Reboot
+
+Movies, Xena: Warrior Princess, Lucy Lawless
+
+Thu, 23 Jul 2026 19:34:50 GMT
+
+https://screenrant.com/xena-warrior-princess-failed-reboot-movie-pitch-lucy-lawless/
+
+After a Xena: Warrior Princess reboot almost got made in 2015, actor Lucy Lawless reveals how she wanted to see the franchise get expanded.
+---------
+
+# 10 Fantasy TV Shows With The Greatest Lore
+
+TV, Fantasy
+
+Thu, 23 Jul 2026 19:30:11 GMT
+
+https://screenrant.com/fantasy-tv-shows-best-lore/
+
+Fantasy often contains the best worldbuilding and character development of any genre, and the best lore in fantasy can make the show a success.
+---------
+
+# Sherlock Holmes' Criminally Underseen 2018 Movie Officially Drops On Netflix Next Week
+
+Movies, Masked Recs
+
+Thu, 23 Jul 2026 19:19:56 GMT
+
+https://screenrant.com/holmes-watson-netflix-streaming-release-august-2026/
+
+A Sherlock Holmes movie from 2018 that remains criminally underseen officially drops on Netflix next week, eight years after its original release.
+---------
+
+# Star Wars' Expanded Universe Makes Its Disney-Era Return In New Series
+
+Streaming TV, Masked Recs, Star Wars
+
+Thu, 23 Jul 2026 19:15:11 GMT
+
+https://screenrant.com/star-wars-expanded-universe-returns-disney-the-ninth-jedi/
+
+Disney's next Star Wars series will offer a storytelling experience similar to the Star Wars Expanded Universe, now better known as Star Wars Legends.
+---------
+
+# Apple TV Ends 6-Year Drought To Challenge Netflix’s Supremacy With New Series
+
+TV, Apple TV
+
+Thu, 23 Jul 2026 19:00:23 GMT
+
+https://screenrant.com/apple-tv-last-person-on-earth-first-dating-series/
+
+Apple TV is poised to compete with some of its biggest streaming rivals, embracing a new genre for the first time in more than six years.
+---------
+
+# Diablo Meets Slay The Spire In New 9/10 Steam Freebie
+
+Gaming, Steam, PC, Diablo, Slay the Spire
+
+Thu, 23 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/steam-free-demo-diablo-meets-slay-spire/
+
+This new free Steam game that's getting rave reviews perfectly blends Diablo with the incredibly engrossing Slay the Spire.
+---------
+
+# Scott Pilgrim Return Officially Confirmed After 16 Years Of Waiting
+
+Comics, San Diego Comic-Con, Scott Pilgrim
+
+Thu, 23 Jul 2026 20:00:17 GMT
+
+https://www.cbr.com/scott-pilgrim-ex-dawn-of-metal-scott-return-after-15-years-confirmed/
+
+Canada's favorite unlikely hero is back.
+---------
+
+# The Odyssey Already Has an Unofficial Sequel, and It's Coming in 2026
+
+Movies, The Odyssey, Dune: Part Three
+
+Thu, 23 Jul 2026 20:00:17 GMT
+
+https://www.cbr.com/dune-part-3-sequel-to-the-odyssey-paul-atreides-agamemnon/
+
+One of the oldest stories in the world has a sequel and it's not anyone's first guess.
+---------
+
+# 15 Coolest Pokémon Based Around Music
+
+Lists, Pokemon, Video Games, musical
+
+Thu, 23 Jul 2026 19:45:16 GMT
+
+https://www.cbr.com/pokemon-based-on-music/
+
+Pokémon design inspiration can come from anywhere, and a ton of fan-favorite Pokémon over the years have their roots in the art of music.
+---------
+
+# The Vampire Diaries' Paul Wesley Takes Responsibility for Nina Dobrev Feud: 'I Was a Little Bit Intense'
+
+TV, The Vampire Diaries, The Vampire Diaries: A Darker Truth
+
+Thu, 23 Jul 2026 19:44:25 GMT
+
+https://www.cbr.com/the-vampire-diaries-paul-wesley-takes-responsibility-for-nina-dobrev-feud/
+
+It's the confession fans of The Vampire Diaries didn't know they needed until now.
+---------
+
+# Netflix's New Harlan Coben Series Officially Completes Cast With Supergirl Star & 9 More
+
+TV, Untitled Myron Bolitar Series, Netflix
+
+Thu, 23 Jul 2026 19:32:24 GMT
+
+https://www.cbr.com/netflix-myron-bolitar-full-cast/
+
+The series barely confirmed its lead star a few weeks ago.
+---------
+
+# After Nearly 50 Years, Gundam Officially Launches a Brand-New Universe With a New Anime
+
+Anime, Gundam, San Diego Comic-Con, Mobile Suit Gundam
+
+Thu, 23 Jul 2026 19:19:13 GMT
+
+https://www.cbr.com/gundam-new-universe-anime/
+
+Ahead of its 50th anniversary, Mobile Suit Gundam is launching a brand-new multimedia universe from the director of Ghost in the Shell.
+---------
+
+# 8 Fantasy RPGs With The Most Powerful Magic Systems
+
+Games, Elden Ring, Gaming, Fantasy, RPG
+
+Thu, 23 Jul 2026 19:15:14 GMT
+
+https://www.cbr.com/fantasy-rpgs-with-powerful-magic-systems/
+
+A carefully constructed magic system can easily make a fantasy RPG unforgettable.
+---------
+
+# 10 Anime Series from the Last 10 Years That Are Flawless From Beginning to End
+
+Anime
+
+Thu, 23 Jul 2026 19:00:15 GMT
+
+https://www.cbr.com/perfect-anime-series-since-2016/
+
+Anime like Solo Leveling and Frieren are the best series of the last decade.
+---------
+
+# Assorted Crisis Events Finally Returns With Another All-Timer Comic Issue
+
+Comics, image comics, indie comics
+
+Thu, 23 Jul 2026 19:00:15 GMT
+
+https://www.cbr.com/assorted-crisis-events-best-indie-comic-returns-with-new-masterpiece-issue/
+
+This game-changing sci-fi anthology comic returns with yet another masterpiece standalone story.
+---------
+
+# 5 Greatest R-Rated Neo-Noir Thrillers of the Last 30 Years
+
+Movies, Thriller, Crime, L.A. Confidential
+
+Thu, 23 Jul 2026 19:00:15 GMT
+
+https://www.cbr.com/best-r-rated-neo-noir-thrillers-last-30-years-list/
+
+Since the days of The Maltese Falcon, film noir has reigned supreme, and the last 30 years produced some of its best R-rated masterpieces.
+---------
+
+# This 6-Part Crime Drama Masterpiece Quietly Outperformed AMC’s ‘Breaking Bad’
+
+TV Features, AMC, Breaking Bad, Better Call Saul, Rotten Tomatoes
+
+Thu, 23 Jul 2026 20:07:16 GMT
+
+https://collider.com/better-call-saul-outperformed-rotten-tomatoes-breaking-bad/
+
+Better Call Saul quietly earned a higher Rotten Tomatoes score than Breaking Bad. Here’s why many critics consider the prequel even better.
+---------
+
+# 6 Greatest Horror Book Series of All Time, Ranked
+
+TV, Horror, Books, Thomas Harris, The Strain
+
+Thu, 23 Jul 2026 19:52:16 GMT
+
+https://collider.com/best-horror-book-series-all-time-ranked/
+
+From The Dark Tower to Fear Street, The Strain to Blackwater, these horror series prove the scariest nightmares often live between the pages.
+---------
+
+# Ridley Scott's Sci-Fi Saga Officially Returns in First Look at Prime Video Sequel
+
+TV News, Blade Runner 2099, Ridley Scott, Prime Video, Blade Runner 2049
+
+Thu, 23 Jul 2026 19:43:27 GMT
+
+https://collider.com/ridley-scott-sci-fi-blade-runner-2099-first-images-michelle-yeoh-hunter-schafer/
+
+At long last, Blade Runner is back in the first look at Prime Video's sci-fi sequel series. See Michelle Yeoh and Hunter Schafer's new characters here
+---------
+
+# Every Jon Bernthal "Let Me Tell You Something," Ranked
+
+Movie, Jon Bernthal, The Punisher, The Walking Dead, The Odyssey
+
+Thu, 23 Jul 2026 19:33:14 GMT
+
+https://collider.com/jon-bernthal-let-me-tell-you-something-ranked/
+
+From The Walking Dead to The Punisher and, most recently, The Odyssey, Jon Bernthal's signature catchphrase has followed him throughout his career.
+---------
+
+# 'Scott Pilgrim' Fans Just Got the News They've Waited 16 Years For
+
+Books and Comics News, Scott Pilgrim, Comics, Scott Pilgrim vs. the World, Scott Pilgrim Takes Off
+
+Thu, 23 Jul 2026 19:25:25 GMT
+
+https://collider.com/scott-pilgrim-ex-dawn-of-metal-scott-comic-announcement/
+
+Scott Pilgrim is officially returning with a brand-new release, bringing the cult-favorite character back for an original adventure. Read on for more.
+---------
+
+# Alan Ritchson’s R-Rated ‘War Machine’ Follow-Up Officially Premieres in 1 Day
+
+Movie News, Alan Ritchson, Thriller, Reacher, Motor City
+
+Thu, 23 Jul 2026 19:21:25 GMT
+
+https://collider.com/alan-ritchson-action-thriller-motor-city-release-date-july-24-2026/
+
+Alan Ritchson’s brutal new revenge thriller arrives tomorrow, but its almost dialogue-free approach is the real surprise. Read on for more.
+---------
+
+# ‘Reacher’ Star Alan Ritchson Confirms Batman Talks
+
+Movie News, The Batman, James Gunn, Reacher, DCU
+
+Thu, 23 Jul 2026 19:12:09 GMT
+
+https://collider.com/alan-ritchson-batman-dcu-conditions-james-gunn/
+
+Alan Ritchson reveals his strict conditions for joining James Gunn’s DCU and explains why he missed out on playing Thor.
+---------
+
+# Marvel Officially Confirms Return of Wolverine’s Best Villains
+
+Gaming News, The Wolverine, Liam McIntyre, Mystique, SDCC
+
+Thu, 23 Jul 2026 19:03:43 GMT
+
+https://collider.com/marvels-wolverine-villains-mystique-sabertooth-lady-deathstrike-plot-details/
+
+Marvel's Wolverine game has shined a spotlight on the villains Logan will face in the R-rated adventure, including Mystique, Sabertooth, and more.
+---------
+
+# Daniel Hart Drops His Liner Notes for 'The Vampire Lestat'
+
+Collider Signature, The Vampire Lestat, Interview with the Vampire, AMC, Music
+
+Thu, 23 Jul 2026 19:00:14 GMT
+
+https://collider.com/the-vampire-lestat-tv-show-music-composer-daniel-hart-breakdown/
+
+Daniel Hart reveals his process behind crafting the music of The Vampire Lestat, from collaborating with Sam Reid to drafting songs on the road.
+---------
+
+# Gerard Butler's $523.5M Action Franchise Returns in Official Trailer For 'Apollo Has Fallen'
+
+TV News, Paris Has Fallen, Has Fallen, Gerard Butler, Olympus Has Fallen
+
+Thu, 23 Jul 2026 18:57:20 GMT
+
+https://collider.com/gerard-butler-action-franchise-apollo-has-fallen-trailer/
+
+Gerard Butler’s Has Fallen franchise returns with the first Apollo Has Fallen trailer ahead of its streaming debut.
+---------
+
+# Where To Stream Every Christopher Nolan Movie
+
+Movie Lists, Christopher Nolan, The Odyssey, The Dark Knight
+
+Thu, 23 Jul 2026 20:00:14 GMT
+
+https://movieweb.com/christopher-nolan-movies-where-to-stream/
+
+From 'Following' to 'The Odyssey,' here's where you can watch all 13 Christopher Nolan movies right now.
+---------
+
+# Matt Damon's $775 Million Hard Sci-Fi Masterpiece Proves Essential as It Soars on Streaming
+
+Movie News, Interstellar, Matt Damon, Hot on Streaming
+
+Thu, 23 Jul 2026 20:00:14 GMT
+
+https://movieweb.com/matt-damon-interstellar-streaming-hit-hulu-july-2026/
+
+As the Oscar winner enters the spotlight again with 'The Odyssey,' another of his major blockbusters has resurfaced on streaming.
+---------
+
+# Tom Holland Debunks Biggest 'Spider-Man: Brand New Day' Theory
+
+Movie News, Spider-Man: Brand New Day, Tom Holland
+
+Thu, 23 Jul 2026 19:33:30 GMT
+
+https://movieweb.com/tom-holland-debunks-spider-man-brand-new-day-jean-grey/
+
+Tom Holland addresses the biggest mystery surrounding Sadie Sink's character in Marvel's upcoming 'Spider-Man: Brand New Day', debunking a popular theory just one week before the film's release.
+---------
+
+# Apple TV Confirms Its Long-Running Debut Series Finally Ending After 8 Years
+
+TV News, The Morning Show, Apple TV, Reese Witherspoon
+
+Thu, 23 Jul 2026 19:33:09 GMT
+
+https://movieweb.com/the-morning-show-ending-season-5-apple-tv/
+
+Season 5 of 'The Morning Show' will be the final batch of episodes for the show.
+---------
+
+# Jason Statham's Highly Anticipated Action Thriller Releases in One Month
+
+Features, Mutiny, Jason Statham
+
+Thu, 23 Jul 2026 19:00:12 GMT
+
+https://movieweb.com/jason-statham-mutiny-august-release/
+
+Due August 21, Jason Statham's new revenge action-thriller is the perfect summertime escape.
+---------
+
+# Ridley Scott's 85% Rated Historical Action Flop Is Finding Redemption on Streaming
+
+Movie News, The Last Duel, Paramount Plus, Hot on Streaming, Ridley Scott, Action
+
+Thu, 23 Jul 2026 19:00:12 GMT
+
+https://movieweb.com/the-last-duel-ridley-scott-stream-paramount-july-2026/
+
+Forget 'Gladiator,' Ridley Scott's underrated historical action epic 'The Last Duel,' is finally gettint he love it deserves on streaming.
+---------
+
+# Netflix Revives Canceled Series for Another Season After Massive Viewership Numbers
+
+TV News, Tyler Perry’s Beauty in Black, Netflix
+
+Thu, 23 Jul 2026 19:00:09 GMT
+
+https://movieweb.com/netflix-renews-beauty-in-black-canceled/
+
+One of Netflix's biggest recent hits will be back for a new season after the streamer initially decided to cancel it.
+---------
+
 # Rhaenyra Targaryen’s Dragon From House Of The Dragon Spotted Flying Across The UK
 
 TV, House of the Dragon, Game of Thrones
@@ -5089,411 +5496,4 @@ Wed, 22 Jul 2026 11:48:02 GMT
 https://movieweb.com/obsession-blu-ray-sales-chart-hit/
 
 Curry Barker's horror hit 'Obsession' is dominating the 4K UHD and Blu-ray sales rankings, holding the No. 1 and No. 2 spots on the bestseller chart.
----------
-
-# Taylor Sheridan's 9-Part Western Sequel Crowned One of the Biggest Shows of 2026
-
-TV News, Dutton Ranch, Paramount Plus, Hot on Streaming, Taylor Sheridan, Yellowstone
-
-Wed, 22 Jul 2026 11:31:07 GMT
-
-https://movieweb.com/dutton-ranch-taylor-sheridan-streaming-success-nielsen-2026/
-
-Taylor Sheridan's fan-favorite new western series is one of the most-watched shows of the entire year.
----------
-
-# Jackie Chan Is Back in First Look at Sequel to 40-Year-Old Classic Action Franchise
-
-Movie News, Jackie Chan, Action, Adventure, Martial Arts, Armour of God
-
-Wed, 22 Jul 2026 11:14:07 GMT
-
-https://movieweb.com/jackie-chan-first-look-armour-god-4-action/
-
-The action movie icon returns in new images and footage from his next death-defying martial arts adventure, 'Armour of God IV: Ultimatum.'
----------
-
-# Jason Statham's 116-Minute Action Thriller Crowned One of Netflix’s Biggest Hits
-
-Movie News, Jason Statham, Action, Thriller, Sci-Fi, Netflix, Meg 2: The Trench
-
-Wed, 22 Jul 2026 11:00:12 GMT
-
-https://movieweb.com/jason-statham-netflix-meg-2-biggest-action-thriller-streaming-july-2026/
-
-The Stath faces the biggest threat of his hard-hitting action hero career.
----------
-
-# Christopher Nolan Officially Changes the Real Meaning Of 'Dune 3'
-
-Features, Dune: Part Three, The Odyssey, Christopher Nolan
-
-Wed, 22 Jul 2026 11:00:12 GMT
-
-https://movieweb.com/dune-3-atreides-agamemnon-christopher-nolan/
-
-'Dune 3' is coming soon, and its story has been expanded upon by none other than Christopher Nolan.
----------
-
-# PlayStation 6 Controller First Details Appear Online
-
-Gaming, PlayStation, PlayStation 6
-
-Wed, 22 Jul 2026 09:33:49 GMT
-
-https://screenrant.com/playstation-6-controller-details-leaked-patent/
-
-Sony and PlayStation might be going through the ringer right now, but there's clearly still plenty going on behind the scenes.
----------
-
-# Legend Of Zelda: Hero's Journey Teaser Officially Confirms 2027 Release
-
-Gaming, The Legend of Zelda
-
-Wed, 22 Jul 2026 09:05:24 GMT
-
-https://screenrant.com/legend-of-zelda-heros-journey-begins-2027/
-
-There are plenty of exciting releases going on around the 40th anniversary of The Legend of Zelda, and this is one of the coolest.
----------
-
-# The 4-Season American Revolution Show Every History Buff Must Watch
-
-TV, TURN: Washington's Spies, AMC, History
-
-Wed, 22 Jul 2026 10:00:15 GMT
-
-https://www.cbr.com/amc-turn-must-watch-american-revolution-show/
-
-This unsung story of the American Revolution was ahead of its time and redefined historical dramas with its blend of espionage and family drama.
----------
-
-# I'm Convinced 2 Iconic X-Men Die in Avengers: Doomsday
-
-Movies, Avengers: Doomsday, X-Men, MCU
-
-Wed, 22 Jul 2026 10:00:15 GMT
-
-https://www.cbr.com/avengers-doomsday-professor-x-magneto-death-x-men/
-
-Avengers: Doomsday may be gearing up to kill off two of the most iconic X-Men from the Fox Universe.
----------
-
-# 5 Years Later, This Ridley Scott Crime Thriller Deserves a Second Chance
-
-Movie Features, Ridley Scott, Adam Driver, Lady Gaga, House of Gucci
-
-Wed, 22 Jul 2026 10:05:14 GMT
-
-https://collider.com/ridley-scott-house-of-gucci-second-chance/
-
-Ridley Scott's 2021 House of Gucci wasn't a hit, but its stylish design and great performances from Lady Gaga and Adam Driver deserve a second look.
----------
-
-# Netflix Fast-Tracks New Harlan Coben Adaptation After 'I Will Find You's Success
-
-TV News, Untitled Myron Bolitar Series, Harlan Coben, I Will Find You, Netflix
-
-Wed, 22 Jul 2026 10:00:15 GMT
-
-https://collider.com/netflix-harlan-coben-adaptation-myron-bolitar-cast-chloe-fineman-ben-mackenzie/
-
-Netflix is moving full steam ahead with its next Harlan Coben adaptation of the author's long-running Myron Bolitar book series.
----------
-
-# 7 Greatest Military Sci-Fi Movies of All Time
-
-Movie, Science Fiction, Edge of Tomorrow, Starship Troopers, Aliens
-
-Wed, 22 Jul 2026 09:39:14 GMT
-
-https://collider.com/best-military-sci-fi-movies-all-time-ranked/
-
-From the pure spectacle of Independence Day to the thrilling dread of Aliens, these wonderful movies feature the best militaristic sci-fi narratives.
----------
-
-# 7 Greatest Adventure Movies of the Last 10 Years, Ranked
-
-Movie, Adventure, Project Hail Mary, Top Gun: Maverick, Everything Everywhere All at Once
-
-Wed, 22 Jul 2026 09:34:14 GMT
-
-https://collider.com/best-adventure-movies-last-10-years-ranked/
-
-Avengers: Endgame, Top Gun: Maverick, Project Hail Mary, Dune: Part Two, and more make up our list of the best adventure movies of the last 10 years.
----------
-
-# Disney’s Biggest Sci-Fi Movie of 2026 Is Officially Just Months Away
-
-Movie News, Avengers: Doomsday, Superhero, Marvel, MCU
-
-Wed, 22 Jul 2026 09:30:14 GMT
-
-https://collider.com/avengers-doomsday-release-date-december-18-2026/
-
-Following its recently released trailer, Avengers: Doomsday is set to release in less than 200 days. Read on for more details.
----------
-
-# The 15 Best Techno-Thriller Movies, Ranked
-
-Movie, Strange Days, Tenet, Source Code, Thriller
-
-Wed, 22 Jul 2026 09:24:14 GMT
-
-https://collider.com/techno-thriller-movies-best-ranked/
-
-The best techno-thriller movies blend technology and high-stakes drama to create gripping viewing experiences, as seen in Source Code and Breach.
----------
-
-# The Best Sci-Fi Franchise of All Time Is Officially Getting a New Release
-
-Movie News, Terminator, Terminator 2: Judgment Day, The Terminator, Sci-Fi
-
-Wed, 22 Jul 2026 09:00:15 GMT
-
-https://collider.com/terminator-2-t800-optics-makinarium-studio-edition-collectible/
-
-Makinarium launches its first Studio Edition collectible with a hand-made T-800 Optics piece celebrating 35 years of Terminator 2.
----------
-
-# Gerard Butler's Best Action Franchise Returns With Explosive First Trailer
-
-TV News, Has Fallen, Gerard Butler, Action, Thriller, Paris Has Fallen
-
-Wed, 22 Jul 2026 10:01:48 GMT
-
-https://movieweb.com/apollo-has-fallen-trailer/
-
-The action thriller spin-off series makes its streaming return.
----------
-
-# Pokémon Officially Unveils Pikachu Redesign For Series' 30th Anniversary
-
-Gaming, Pokemon
-
-Wed, 22 Jul 2026 07:25:07 GMT
-
-https://screenrant.com/pokemon-pikachu-30th-anniversary-world-championships-redesign/
-
-The Pokémon Company has unveiled two new redesigns for Pikachu, celebrating the franchise’s 30th anniversary, but access to them will be limited.
----------
-
-# Star Trek: Strange New Worlds Season 4 Review - Get Ready For The Show's Most Adventurous Outing Yet
-
-Streaming TV, Star Trek: Strange New Worlds
-
-Wed, 22 Jul 2026 07:01:12 GMT
-
-https://screenrant.com/star-trek-strange-new-worlds-season-4-review/
-
-Star Trek: Strange New Worlds season 4 is the show's most episodic outing yet, as each new installment embraces an entirely new genre and setting.
----------
-
-# Dungeons & Dragons Is Officially Getting A Brand-New Series
-
-Comics, Dungeons & Dragons
-
-Wed, 22 Jul 2026 07:00:11 GMT
-
-https://screenrant.com/dungeons-dragons-new-adventure-total-party-killers-comic/
-
-Dungeons & Dragons is receiving a brand-new series that sees adventurers all competing for a dead wizard's loot and contending with iconic monsters.
----------
-
-# Star Trek: Strange New Worlds Season 4 Review: The Series Hits Its Peak
-
-TV, Star Trek, Star Trek: Strange New Worlds
-
-Wed, 22 Jul 2026 07:00:15 GMT
-
-https://www.cbr.com/star-trek-strange-new-worlds-season-4-review/
-
-Strange New Worlds Season 4 blends classic Star Trek morality plays with horror, noir, and comedy in its penultimate season.
----------
-
-# Star Trek’s Wildest Show Is Officially Its Most Frustrating | Review
-
-TV Reviews, Star Trek, Star Trek: Strange New Worlds, Paramount Plus, Sci-Fi
-
-Wed, 22 Jul 2026 07:00:14 GMT
-
-https://collider.com/star-trek-strange-new-worlds-season-4-review/
-
-Star Trek: Strange New Worlds Season 4 delivers big genre swings but falls short in terms of greater character development.
----------
-
-# 'Dead City' Season 3 Is a Welcome Return to Form for the Zombie Thriller | Review
-
-TV Reviews, The Walking Dead: Dead City
-
-Wed, 22 Jul 2026 07:01:12 GMT
-
-https://movieweb.com/the-walking-dead-dead-city-season-3-review/
-
-The Walking Dead: Dead City Season 3 not also finally marks a truce between Maggie and Negan, but a redemption from the lackluster second season.
----------
-
-# Game Of Thrones: Rebellion Is The Beginning Of A Bold New Chapter
-
-Gaming, Game of Thrones, Game Of Thrones, House of the Dragon, PC
-
-Wed, 22 Jul 2026 05:00:11 GMT
-
-https://screenrant.com/game-of-thrones-conquest-rebellion-weekend/
-
-Game of Thrones: Rebellion will pit fans against each other in an epic final battle across Essos and kick off a bold new chapter for the franchise.
----------
-
-# GTA 6 Official Story Length Is Dividing Fans
-
-Gaming, Grand Theft Auto 6, Triple-A Games
-
-Wed, 22 Jul 2026 05:00:11 GMT
-
-https://screenrant.com/gta-6-100-hours-leak-reaction/
-
-Grand Theft Auto 6 fans agree that the upcoming action-adventure game is unlikely to be short, but few are sure how they feel about its length.
----------
-
-# Pokémon Fire Emerald Combines Kanto And Hoenn In One Game
-
-Gaming, Pokemon, Nintendo, Nintendo Switch 2, PC, Pokemon FireRed and LeafGreen
-
-Wed, 22 Jul 2026 04:30:11 GMT
-
-https://screenrant.com/pokemon-fire-emerald-kanto-hoenn-one-game/
-
-Pokémon Fire Emerald brings together the legendary regions of Kanto and Hoenn into one singular experience for fans to enjoy.
----------
-
-# Steam Free Anime RPG Is A 220-Hour Monster Of A Game
-
-Gaming, Wuthering Waves, Steam, RPG
-
-Wed, 22 Jul 2026 04:00:15 GMT
-
-https://screenrant.com/steam-free-rpg-220-hour-wuthering-waves/
-
-This free anime RPG on Steam will give players 220-hours of content, making it the perfect game for those with plenty of time on their hands.
----------
-
-# It's Time To Say Goodbye To Naruto's Newest Hokage
-
-Anime, Naruto, Boruto: Two Blue Vortex
-
-Wed, 22 Jul 2026 03:30:11 GMT
-
-https://screenrant.com/naruto-boruto-two-blue-vortex-shikamaru-hokage-no-more/
-
-One of the most tumultuous times in the Naruto franchise may just claim one of its most troubled Hokage ever.
----------
-
-# Avengers: Doomsday Teased A Major Change For Loki's MCU Story
-
-Superheroes, Loki, Avengers: Doomsday, Marvel Cinematic Universe
-
-Wed, 22 Jul 2026 03:30:11 GMT
-
-https://screenrant.com/avengers-doomsday-major-loki-change-tva-mcu-story/
-
-Contrary to popular MCU theories, Avengers: Doomsday's first trailer reveals a surprising status quo change for Loki in the upcoming multiversal epic.
----------
-
-# 5 Open-World Games That Are Better Than Skyrim
-
-Gaming, The Elder Scrolls V: Skyrim, Triple-A Games, PC
-
-Wed, 22 Jul 2026 03:00:11 GMT
-
-https://screenrant.com/5-open-world-games-better-than-skyrim/
-
-Skyrim has long since been the benchmark for great RPGs, but years after its release, several games have managed to surpass its iconic gameplay.
----------
-
-# Netflix's New 12-Episode Horror Romance Is Already A Ratings Powerhouse
-
-TV, Netflix, Masked Recs
-
-Wed, 22 Jul 2026 02:30:11 GMT
-
-https://screenrant.com/netflix-spooky-in-love-horror-romance-ratings-streaming/
-
-July is a truly exciting month for Netflix subscribers, especially as this multifaceted hit is ready to keep audiences occupied through August.
----------
-
-# The Next Chapter Of Avatar Is Only 4 Days Away, And It's A Big Missed Opportunity
-
-Movies, Avatar Aang: The Last Airbender, Avatar: The Last Airbender
-
-Wed, 22 Jul 2026 02:00:21 GMT
-
-https://screenrant.com/avatar-aang-last-airbender-missed-opportunity-theatrical-release/
-
-Avatar Aang: The Last Airbender is set for a limited theatrical release, but Paramount is missing out on a major opportunity with the franchise.
----------
-
-# The Walking Dead: Dead City Season 3 Review: The Spinoff Finally Gets It Right
-
-TV, The Walking Dead: Dead City, The Walking Dead, AMC
-
-Wed, 22 Jul 2026 04:01:15 GMT
-
-https://www.cbr.com/the-walking-dead-dead-city-season-3-review/
-
-Dead City Season 3 gives Maggie and Negan a fresh mission, compelling new allies, and the spinoff’s strongest story yet.
----------
-
-# Dragon Ball Confirms Gohan's Best Transformation Is No Longer Beast Gohan
-
-Anime, Dragon Ball, Dragon Ball Z, Dragon Ball Super
-
-Wed, 22 Jul 2026 03:59:14 GMT
-
-https://www.cbr.com/dragon-ball-gohan-greatest-form-poll-results/
-
-Gohan Beast may be the strongest form Goku's son achieves in Dragon Ball Super, but Dragon Ball just confirmed it's not his best in the eyes of fans.
----------
-
-# The Vampire Lestat’s Sam Reid Explains His Connection to the Show’s Music
-
-CBR Exclusives, The Vampire Lestat
-
-Wed, 22 Jul 2026 03:58:29 GMT
-
-https://www.cbr.com/the-vampire-lestat-sam-reid-music-songs/
-
-Sam Reid discusses performing Lestat’s songs, their narrative arc and Daniel Hart’s work creating the show’s soundtrack.
----------
-
-# Game of Thrones: The Moonlit Stalker Officially Revealed in New Update
-
-Games, Game Of Thrones, House of the Dragon
-
-Wed, 22 Jul 2026 03:55:28 GMT
-
-https://www.cbr.com/game-of-thrones-dragonfire-moonlit-stalker-update/
-
-A new dragon joins the fray in Game of Thrones: Dragonfire.
----------
-
-# 10 Mecha Anime That Are Actually Horror Shows
-
-Anime, mecha, Neon Genesis Evangelion, Mobile Suit Gundam
-
-Wed, 22 Jul 2026 03:45:15 GMT
-
-https://www.cbr.com/mecha-anime-that-are-actually-horror-shows/
-
-Mecha anime are known for their intense drama, but some series veer directly into being horror shows.
----------
-
-# 21 Years Later, Lex Luthor's Best Smallville Line Is Still the Greatest Supervillain Quote of All Time
-
-TV, Smallville, Lex Luthor, superheroes
-
-Wed, 22 Jul 2026 03:30:15 GMT
-
-https://www.cbr.com/best-lex-luthor-smallville-line-onyx/
-
-In a single line, Smallville conveys the nuances of a character-driven villain and the tragic inevitability of Lex Luthor's destiny.
 ---------
