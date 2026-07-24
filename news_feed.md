@@ -1,3 +1,355 @@
+# It's The End Of An Era For Nintendo After 45 Years
+
+Gaming, Nintendo, Triple-A Games
+
+Fri, 24 Jul 2026 20:00:11 GMT
+
+https://screenrant.com/nintendo-shigeru-miyamoto-no-more-games/
+
+Nintendo has been around longer than most people have been alive, and after decades, it's going to be changing things up in the future.
+---------
+
+# Paul Wesley Explains Kirk's Son & Being A Father In Star Trek: Strange New Worlds Season 4
+
+Exclusive, Star Trek, Star Trek: Strange New Worlds
+
+Fri, 24 Jul 2026 20:00:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-kirk-son-paul-wesley/
+
+Exclusive: Paul Wesley delves into James T. Kirk's feelings about fatherhood as Star Trek: Strange New Worlds season 4 introduces his son, David.
+---------
+
+# Marvel's New Hulk Is The Most Twisted Version Of The Character Yet
+
+Marvel Comics, Hulk
+
+Fri, 24 Jul 2026 20:00:11 GMT
+
+https://screenrant.com/marvel-new-hulk-twisted/
+
+Spider-Man, the Punisher, and the Hulk's new crossover introduces a genuinely evil Bruce Banner who weaponizes his immense anger and strength.
+---------
+
+# 3 Best Movies To Watch On Disney+ This Weekend (July 25-26)
+
+Movies, Disney+, Recommendation
+
+Fri, 24 Jul 2026 19:53:53 GMT
+
+https://screenrant.com/best-disney-plus-movies-watch-weekend-july-25/
+
+The best movies on Disney+ this weekend include a new fantasy smash hit, a superhero event, and an animated adventure that tugs at the heartstrings.
+---------
+
+# The Mask Director Chuck Russell Dies At 74
+
+Movies, The Mask
+
+Fri, 24 Jul 2026 19:44:41 GMT
+
+https://screenrant.com/chuck-russell-the-mask-obituary/
+
+More than three decades after directing the hit film The Mask with comedian Jim Carrey, Chuck Russell has passed away at the age of 74.
+---------
+
+# The Walking Dead: Daryl Dixon Final Season Release Window Officially Confirmed
+
+TV, The Walking Dead: Daryl Dixon, The Walking Dead, San Diego Comic-Con
+
+Fri, 24 Jul 2026 19:39:10 GMT
+
+https://screenrant.com/the-walking-dead-daryl-dixon-season-4-release-window/
+
+The Walking Dead: Daryl Dixon season 4 marks the end of the show, and Norman Reedus has now revealed when the series' final episodes will release.
+---------
+
+# Dungeon Crawler Carl's Early Multiseason Potential & Future Addressed By Author
+
+TV, Dungeon Crawler Carl
+
+Fri, 24 Jul 2026 19:31:52 GMT
+
+https://screenrant.com/dungeon-crawler-carl-series-future-seasons-matt-dinnaman-response/
+
+EXCLUSIVE: Dungeon Crawler Carl author Matt Dinnaman explains the early, multiseason potential of the TV show and what its future might hold.
+---------
+
+# New Luke & Leia Prequel Announced For Star Wars’ 50th Anniversary
+
+Books, Star Wars, San Diego Comic-Con
+
+Fri, 24 Jul 2026 19:24:42 GMT
+
+https://screenrant.com/star-wars-twin-crossroads-luke-leia-novel-50th-anniversary/
+
+A new Luke and Leia story arrives in 2027 to help celebrate the 50th anniversary of the Star Wars while exploring a pivotal chapter in the franchise.
+---------
+
+# Marvel Officially Unveils New X-Men Replacement And Team Lineup
+
+Gaming, Marvel's Wolverine, Triple-A Games
+
+Fri, 24 Jul 2026 19:23:46 GMT
+
+https://screenrant.com/marvels-wolverine-x-men-replacement/
+
+The X-Men are not around in this Wolverine universe, and instead, the fate of mutantkind is in the hands of another striking and dynamic team.
+---------
+
+# Ghosts Companion Series Eternally Yours Sets Official Release Date
+
+TV, Eternally Yours, Ghosts, San Diego Comic-Con
+
+Fri, 24 Jul 2026 19:22:47 GMT
+
+https://screenrant.com/eternally-yours-cbs-release-date-confirmed-ghosts-companion/
+
+The wait for a new supernatural comedy is over, as the Ghosts companion show Eternally Yours gets ready to show its fangs on CBS very soon.
+---------
+
+# 45 Best Mecha Anime of All Time
+
+Anime, mecha, Gundam
+
+Fri, 24 Jul 2026 20:06:15 GMT
+
+https://www.cbr.com/best-mecha-anime-series-all-time/
+
+From Gundam to Evangelion, the best mecha anime series of all time finds clever ways to reinvent the genre.
+---------
+
+# 4 Years After Selling Out, Studio Ghibli Returns Its Howl's Moving Castle Date Stamp to Official Store
+
+Anime, Howl's Moving Castle, Spirited Away, Kiki's Delivery Service, merchandise, Studio Ghibli
+
+Fri, 24 Jul 2026 20:06:14 GMT
+
+https://www.cbr.com/studio-ghibli-howl-kiki-spirited-away-date-stamp-re-release/
+
+Studio Ghibli's official ink stamp collection is the perfect way for fans to share the magic of Totoro, Kiki, Howl and more.
+---------
+
+# Frieren: Beyond Journey's End Gets Official RHINOSHIELD Tech Accessories Featuring Frieren, Fern and Stark
+
+Anime, Frieren: Beyond Journey's End, merchandise
+
+Fri, 24 Jul 2026 20:00:14 GMT
+
+https://www.cbr.com/frieren-rhinoshield-tech-accessories-review/
+
+Ahead of Season 3, Frieren: Beyond Journey's End is getting an official RHINOSHIELD tech accessory collection featuring Frieren, Fern and Stark.
+---------
+
+# The Hilarious Story Behind How Batman’s Villain Hush Got His Name
+
+Comics, batman: hush, San Diego Comic-Con, Batman, Hush
+
+Fri, 24 Jul 2026 20:00:14 GMT
+
+https://www.cbr.com/batman-villain-hush-hilarious-name-origin/
+
+The secret behind this classic Batman foe's namesake is revealed.
+---------
+
+# Sydney Sweeney's Gundam Movie is Star Wars Meets Transformers
+
+Movies, Mobile Suit Gundam, Gundam, Transformers, Star Wars
+
+Fri, 24 Jul 2026 20:00:14 GMT
+
+https://www.cbr.com/sydney-sweeny-gundam-movie-star-wars-meets-transformers/
+
+Gundam is coming to Netflix with a live-action movie, and it could combine the best aspects of two other notable science fiction franchises.
+---------
+
+# The Free-to-Play JRPG With Over 1 Million Players and Very Positive Steam Reviews
+
+Games, JRPG
+
+Fri, 24 Jul 2026 19:46:15 GMT
+
+https://www.cbr.com/best-free-to-play-jrpg-very-positive-steam-reviews-reverse-1999/
+
+One of the best free-to-play JRPGs on Steam had over 1 million pre-registrations and has earned Very Positive reviews.
+---------
+
+# Chuck Russell, The Mask and A Nightmare on Elm Street 3 Director, Dies at 74
+
+Movies, The Mask, A Nightmare on Elm Street 3: Dream Warriors, obituary
+
+Fri, 24 Jul 2026 19:43:10 GMT
+
+https://www.cbr.com/chuck-russell-dead/
+
+Filmmaker Chuck Russell, also known for directing other movies like The Blob and The Scorpion King, has passed away.
+---------
+
+# The Walking Dead Spinoff Officially Brings Back 1 Beloved Character 12 Years Later
+
+TV, The Walking Dead, The Walking Dead: Dead City, San Diego Comic-Con
+
+Fri, 24 Jul 2026 19:36:19 GMT
+
+https://www.cbr.com/the-walking-dead-dead-city-season-3-alternate-episode-beth/
+
+The zombie franchise will return soon, and will bring a fan-favorite character.
+---------
+
+# You're Not a True Anime Fan Until You've Seen These 10/10 Series
+
+Anime
+
+Fri, 24 Jul 2026 19:30:15 GMT
+
+https://www.cbr.com/must-watch-anime-list/
+
+True fans need to watch anime like Death Note and Attack On Titan.
+---------
+
+# 5 Best Low-Fantasy Anime With Superb Magic Systems
+
+Anime, Noragami, Jujutsu Kaisen
+
+Fri, 24 Jul 2026 19:15:26 GMT
+
+https://www.cbr.com/best-low-fantasy-anime-with-great-magic-systems/
+
+These anime use magic to deepen their characters, conflicts, and settings instead of relying on spectacle alone.
+---------
+
+# Apple TV's 2026 Sci-Fi Masterpiece Just Quietly Outperformed 'Severance'
+
+TV Features, Star City, For All Mankind, Apple TV, Science Fiction
+
+Fri, 24 Jul 2026 20:08:14 GMT
+
+https://collider.com/apple-tv-best-sci-fi-star-city-severance-replacement/
+
+Star City earned even stronger reviews than Severance, proving Apple TV has another sci-fi masterpiece on its hands.
+---------
+
+# 'The Mask' and 'A Nightmare on Elm Street 3' Director Chuck Russell Dead at 74
+
+Movie News, Chuck Russell, The Mask, Eraser, A Nightmare on Elm Street 3: Dream Warriors
+
+Fri, 24 Jul 2026 19:57:23 GMT
+
+https://collider.com/the-mask-nightmare-on-elm-street-3-director-chuck-russell-dead-at-74/
+
+Chuck Russell, the visionary filmmaker behind The Mask, Eraser, Nightmare on Elm Street 3, and more has died at age 74.
+---------
+
+# First Look at 'The Walking Dead: Dead City' Season 3 Officially Reveals a 'Westworld' Star's Role
+
+TV News, The Walking Dead: Dead City, Jeffrey Dean Morgan, San Diego Comic-Con, Lauren Cohan
+
+Fri, 24 Jul 2026 19:54:20 GMT
+
+https://collider.com/the-walking-dead-dead-city-season-3-sneak-peek-jimmi-simpson/
+
+Negan and Maggie are back in a new sneak peek of The Walking Dead: Dead City, which also introduces a Westworld star to the cast.
+---------
+
+# CBS Officially Reveals 'What We Do in the Shadows' Replacement With New Vampire Sitcom
+
+TV News, Eternally Yours, What We Do in the Shadows, CBS, SDCC
+
+Fri, 24 Jul 2026 19:45:17 GMT
+
+https://collider.com/eternally-yours-new-sitcom-plot-details-what-we-do-in-the-shadows-replacement/
+
+Discover the new vampire sitcom Eternally Yours, CBS' new What We Do in the Shadows replacement, set to premiere this fall.
+---------
+
+# 10 Most Perfectly Cast Movie Roles of All Time
+
+Movie, The Lord of the Rings, Iron Man, Harry Potter and the Sorcerer's Stone, Actors
+
+Fri, 24 Jul 2026 19:44:14 GMT
+
+https://collider.com/most-perfectly-cast-movie-roles-all-time-ranked/
+
+Vivien Leigh as Scarlett O'Hara, Sean Connery as James Bond, and Kathy Bates as Annie Wilkes are among the most perfectly cast movie roles ever.
+---------
+
+# Ridley Scott’s Sci-Fi Masterpiece 'The Martian' Had a Scene He "Had No Interest" in Reshooting [Exclusive]
+
+Exclusives, The Martian, San Diego Comic-Con, Sci-Fi, Ridley Scott
+
+Fri, 24 Jul 2026 19:30:15 GMT
+
+https://collider.com/ridley-scott-the-martian-original-ending-reshoot/
+
+Simon Kinberg reveals Ridley Scott resisted filming The Martian’s ending before audience testing convinced the director to approve a reshoot.
+---------
+
+# The 10 Best 'Lost' Plot Twists, Ranked
+
+TV, Lost, Evangeline Lily, Matthew Fox, Sci-Fi
+
+Fri, 24 Jul 2026 19:08:24 GMT
+
+https://collider.com/best-lost-plot-twists-ranked/
+
+Explore the most shocking twists from the hit TV show Lost, ranked by impact and surprise factor, from the Swan button to the final flash-forward.
+---------
+
+# Jon Bernthal's 132-Minute Action Thriller Is Officially One of the Biggest Hits on Streaming
+
+Movie News, Jon Bernthal, Action, Thriller, The Accountant 2, Prime Video
+
+Fri, 24 Jul 2026 20:00:12 GMT
+
+https://movieweb.com/accountant-2-bernthal-biggest-action-stream-july-2026/
+
+'The Punisher' star's long-awaited action sequel shoots to success on streaming.
+---------
+
+# 3 Binge-Worthy Sci-Fi Miniseries You Can Watch This Weekend
+
+TV Lists, Sci-Fi, Cyberpunk: Edgerunners, Maniac, Devs
+
+Fri, 24 Jul 2026 20:00:12 GMT
+
+https://movieweb.com/binge-worthy-sci-fi-miniseries/
+
+Your next sci-fi obsession awaits, and we won't ask you to commit to a multi-season epic ordeal. Keep it short and sweet!
+---------
+
+# Simon Pegg Cast in 'Rings of Power' Season 3 in Major Shake Up to Iconic 'Lord of the Rings' Villain
+
+TV News, The Lord of the Rings: The Rings of Power, Simon Pegg
+
+Fri, 24 Jul 2026 19:13:19 GMT
+
+https://movieweb.com/the-rings-of-power-simon-pegg-balrog/
+
+Simon Pegg will join 'The Rings of Power,' playing one of the most iconic villains in franchise history.
+---------
+
+# 60 Years Later, 'Strange New Worlds' Solves a Major Issue With 'Star Trek: The Original Series'
+
+TV News, Star Trek: Strange New Worlds, Star Trek
+
+Fri, 24 Jul 2026 19:00:42 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-fixes-the-original-series/
+
+Here's why you should watch 'Strange New Worlds' before 'Star Trek: The Original Series.'
+---------
+
+# Amazon Scores Big as '80s Action Sci-Fi Reboot Hits #1 on Streaming After Disastrous Box Office
+
+Movie News, Masters of the Universe
+
+Fri, 24 Jul 2026 19:00:21 GMT
+
+https://movieweb.com/masters-of-the-universe-prime-video-stream-july-2026/
+
+The long-delayed reboot found redemption on streaming.
+---------
+
 # Ghosts Season 6's Special Episode Officially Introducing Hetty's Sister
 
 TV, Ghosts
@@ -5144,356 +5496,4 @@ Thu, 23 Jul 2026 10:12:47 GMT
 https://screenrant.com/pokemon-lapras-evolution-leak/
 
 Lapras is one of the few Pokémon who doesn't have any kind of evolutionary line, but that could easily have been very different.
----------
-
-# Ransom Canyon Season 2 Review: Netflix's Western Romance Loses Its Spark In A Watered-Down Sophomore Effort
-
-Streaming TV, Ransom Canyon
-
-Thu, 23 Jul 2026 10:00:11 GMT
-
-https://screenrant.com/ransom-canyon-season-2-review/
-
-Between its tired love triangles, abandoned ranching narratives, and dissatisfying character developments, Ransom Canyon just doesn't have the legs.
----------
-
-# Marvel's Official New Wolverine Is Dividing Fans
-
-Gaming, Marvel, Wolverine, Marvel's Wolverine
-
-Thu, 23 Jul 2026 09:44:36 GMT
-
-https://screenrant.com/marvel-new-wolverine-reveal-fans-react/
-
-Wolverine has become one of the most iconic comic book characters in history, but his latest appearance is dividing fans.
----------
-
-# X-Men '97 Just Proved It's No Longer Limited by the '90s
-
-TV, X-Men '97, X-Men, Marvel
-
-Thu, 23 Jul 2026 11:30:14 GMT
-
-https://www.cbr.com/x-men-97-danger-adapt-modern-storylines/
-
-X-Men '97 has moved beyond its reliance on fans' nostalgia for the 1990s, and the latest episode is a perfect demonstration.
----------
-
-# 10 Best Far Side Comics Featuring Wild Animals, Ranked
-
-Comics, The Far Side
-
-Thu, 23 Jul 2026 11:00:14 GMT
-
-https://www.cbr.com/funniest-far-side-comics-featuring-wild-animals-ranked/
-
-The secret life of animals is the most recurring themes in The Far Side that always highlights Gary Larson's commitment to saving the environment.
----------
-
-# Brad Pitt's World War Z is the Scariest Zombie Movie
-
-Movies, World War Z, Brad Pitt, World War Z 2
-
-Thu, 23 Jul 2026 10:00:14 GMT
-
-https://www.cbr.com/scariest-zombie-movie-brad-pitt-world-war-z/
-
-It has been 13 years since Brad Pitt's epic zombie horror adventure, but it's still one of the scariest movies in its terrifying genre.
----------
-
-# 3 '90s Sitcoms Better Than Seinfeld
-
-TV, Sitcoms, Seinfeld, Friends, The Nanny
-
-Thu, 23 Jul 2026 10:00:14 GMT
-
-https://www.cbr.com/90s-sitcoms-better-than-seinfeld-list/
-
-While Seinfeld changed sitcoms as we know them, some people prefer these 3 '90s sitcoms because of their character development and relatable moments.
----------
-
-# 10 Greatest Action Video Games of All Time
-
-Gaming, Video Game, Ghost of Tsushima, Batman: Arkham City, Devil May Cry
-
-Thu, 23 Jul 2026 11:44:14 GMT
-
-https://collider.com/best-action-video-games-all-time-ranked/
-
-Video games like Ghosts of Tsushima and Devil May Cry 5 offer exhilarating plots that cement their place among the all-time best in the action genre.
----------
-
-# 6 Best Epic Movies Released Since 2000
-
-Movie, The Odyssey, Avengers: Infinity War, Dune: Part Two, King of Boys: The Return of the King
-
-Thu, 23 Jul 2026 11:21:14 GMT
-
-https://collider.com/best-epic-movies-since-2000-ranked/
-
-The Odyssey, Dune: Part Two, and The Lord of the Rings: The Return of the King are all among the best epic movies released since 2000.
----------
-
-# Marvel Is Officially Going All-In on Doctor Doom Ahead of 'Avengers: Doomsday'
-
-Books and Comics News, Marvel, Marvel Comics, Doctor Doom, Avengers: Doomsday
-
-Thu, 23 Jul 2026 11:00:14 GMT
-
-https://collider.com/marvel-doctor-doom-october-comic-covers-images-avengers-doomsday/
-
-Marvel's October solicitations put Doctor Doom at the center of multiple major comics ahead of Avengers: Doomsday.
----------
-
-# 10 Perfect Fantasy Movies That Nobody Remembers
-
-Movie, Fantasy, The Green Knight, Pleasantville, The Dark Tower
-
-Thu, 23 Jul 2026 10:53:14 GMT
-
-https://collider.com/fantasy-movies-nobody-remembers/
-
-Pleasantville, The Dark Tower, Excalibur, The Green Knight, and more make up our list of perfect fantasy movies that nobody remembers.
----------
-
-# 10 Fantasy Books That Are Perfect From the First Page to the Last
-
-Books and Comics, Books, The Little Prince, Fantasy, The Lord of the Rings
-
-Thu, 23 Jul 2026 10:42:14 GMT
-
-https://collider.com/fantasy-books-perfect-first-page-to-last/
-
-From The Little Prince to The Broken God, these fantasy books are genuine masterpieces of the medium that somehow manage to stay perfect throughout.
----------
-
-# 10 Sci-Fi Movies That Looked So Good, But Were So Bad
-
-Movie, Sci-Fi
-
-Thu, 23 Jul 2026 10:36:18 GMT
-
-https://collider.com/bad-sci-fi-movies/
-
-These bad sci-fi movies had promising trailers but ultimately disappointed audiences, including films like Moonfall, Robocop 3, and Rollerball.
----------
-
-# 15 Stupid Comedy Shows That Are Actually Ingenious
-
-TV, South Park, Seinfeld, Comedy, The Simpsons
-
-Thu, 23 Jul 2026 10:03:14 GMT
-
-https://collider.com/stupid-comedy-shows/
-
-From cartoon classics like The Simpsons to sitcom sensations like Seinfeld, these silly series have an air of genius to them that must be respected.
----------
-
-# One of Pokémon’s Most Popular Games Is Getting a Surprising New Crossover
-
-TV News, Pokémon Horizons, Pokémon, Anime, Netflix
-
-Thu, 23 Jul 2026 10:00:14 GMT
-
-https://collider.com/pokemon-horizons-sleep-crossover-captain-pikachu/
-
-The anime series Pokémon Horizons is set to cross over with the mobile game Pokémon Sleep. Read on for more.
----------
-
-# 17 Years Later, This Legendary Star's Final Film Is Officially Streaming Free
-
-Movie Features, Terry Gilliam, Heath Ledger, The Imaginarium of Doctor Parnassus, Johnny Depp
-
-Thu, 23 Jul 2026 09:51:14 GMT
-
-https://collider.com/heath-ledger-imaginarium-of-doctor-parnassus-streaming-free-tubi-july-2026/
-
-Heath Ledger's tragic death while making The Imaginarium of Doctor Parnassus completely changed the movie, which is now streaming for free on Tubi.
----------
-
-# Star Trek's 10 Best Parallel Universes That Deserved More Screen Time
-
-TV Lists, Star Trek
-
-Thu, 23 Jul 2026 11:00:12 GMT
-
-https://movieweb.com/star-trek-best-parallel-universes/
-
-The Star Trek franchise is filled with alternate realities, but some only get brief moments of prominence. Read on for more.
----------
-
-# $2 Billion Fantasy Franchise Scores Big on Streaming
-
-Movie News, Super Mario Bros., The Super Mario Bros. Movie, The Super Mario Galaxy Movie, Hot on Streaming
-
-Thu, 23 Jul 2026 11:00:12 GMT
-
-https://movieweb.com/super-mario-franchise-success-streaming-july-2026/
-
-The hugely successful franchise has star power on streaming after dominating the box office.
----------
-
-# 'Law & Order' Veteran Officially Being Replaced by MCU Star for Season 26 on NBC
-
-TV News, Law & Order, James Badge Dale
-
-Thu, 23 Jul 2026 10:34:21 GMT
-
-https://movieweb.com/law-order-season-26-reid-scott-james-badge-dale/
-
-Reid Scott is leaving NBC's 'Law & Order' after three seasons as Detective Vincent Riley, with 'Iron Man 3' star James Badge Dale taking over.
----------
-
-# Fallout Returns With Surprise New Mini-Season
-
-Gaming, Fallout, Fallout 76
-
-Thu, 23 Jul 2026 09:18:25 GMT
-
-https://screenrant.com/fallout-76-new-mini-season-confirmed/
-
-There's a lot going on around the Fallout franchise right now, including confirmation of a new mini-season in one of the more current adaptations.
----------
-
-# Attack On Titan Officially Returns With A Brand-New Season
-
-Gaming, Attack on Titan
-
-Thu, 23 Jul 2026 09:14:04 GMT
-
-https://screenrant.com/attack-on-titan-new-season-deck-building-game/
-
-Discover the thrilling world of Attack on Titan in a cooperative deck-building game.
----------
-
-# Star Wars Just Confirmed The Start Of A New Era: Myths & Legends
-
-Gaming, Star Wars
-
-Thu, 23 Jul 2026 08:54:42 GMT
-
-https://screenrant.com/star-wars-myths-and-legends-era-confirmed/
-
-There have been plenty of exciting new eras introduced to Star Wars over the years, but the latest might be one of the most out there.
----------
-
-# Marvel October 2026 Solicitations
-
-Comics, Marvel Comics, solicitations
-
-Thu, 23 Jul 2026 07:11:40 GMT
-
-https://www.cbr.com/midnight-universe-begins-marvel-october-2026-solicitations/
-
-Marvel's much-anticipated Midnight line of comics make their debut in the October 2026 Marvel solicitations
----------
-
-# 10 Greatest Sci-Fi Movie Trilogies of All Time
-
-Movie, Science Fiction, Bill & Ted's Excellent Adventure, Back to the Future, Star Wars
-
-Thu, 23 Jul 2026 09:04:14 GMT
-
-https://collider.com/best-sci-fi-movie-trilogies-all-time-ranked/
-
-From blockbuster icons like Star Wars to quirky gems like Bill & Ted, these trilogies mark the very best that sci-fi cinema has ever seen.
----------
-
-# Russell Crowe’s Forgotten Marvel Misfire Is Rewriting History on Prime Video
-
-Movie News, Kraven the Hunter, Russell Crowe, Aaron Taylor-Johnson, Prime Video
-
-Thu, 23 Jul 2026 09:00:15 GMT
-
-https://collider.com/russell-crowe-sci-fi-kraven-the-hunter-streaming-success-prime-video-july-2026/
-
-Kraven the Hunter, the $110 million superhero bomb starring Russell Crowe and Aaron Taylor-Johnson, is a smash hit on Prime Video.
----------
-
-# Star Wars Officially Confirms The Return Of Mara Jade Skywalker
-
-Gaming, Star Wars, Live Service Games, PC
-
-Thu, 23 Jul 2026 06:00:11 GMT
-
-https://screenrant.com/star-wars-mara-jade-galaxy-of-heroes/
-
-After a 35-year wait, Disney is finally acknowledging the existence of one of its most iconic characters from the Star Wars expanded universe.
----------
-
-# Final Fantasy 9: Not Alone Officially Arrives October 2026
-
-Gaming, Final Fantasy 9, Triple-A Games
-
-Thu, 23 Jul 2026 05:30:11 GMT
-
-https://screenrant.com/final-fantasy-9-not-alone-music-box-october-2026/
-
-Out of all the Final Fantasy entries, there's something special about Final Fantasy 9 in that it manages to capture people's hearts for this long.
----------
-
-# Zelda: Oracle Of Ages & Seasons 25th Anniversary Remake Unites Gamers
-
-Gaming, The Legend of Zelda
-
-Thu, 23 Jul 2026 05:00:11 GMT
-
-https://screenrant.com/zelda-oracle-ages-seasons-25-anniversary-remake-hopes/
-
-As The Legend of Zelda: Oracle of Seasons and Ages mark their 25th anniversary, fans reminisce about the beloved Game Boy Color titles.
----------
-
-# Mass Effect Meets Total War In New RPG You Can Play Free Now
-
-Gaming, Mass Effect, Mass Effect: Andromeda, Total War: Warhammer 40,000, Mass Effect Legendary Edition
-
-Thu, 23 Jul 2026 04:30:11 GMT
-
-https://screenrant.com/mass-effect-total-war-new-rpg-free-demo/
-
-Experience epic space battles and RTS gameplay in the free demo of Sanctuary: Shattered Sun, a spiritual successor to Mass Effect and Total War.
----------
-
-# Stranger Things Official New Vecna Spinoff Isn’t What Fans Expected
-
-Gaming, Stranger Things
-
-Thu, 23 Jul 2026 04:00:15 GMT
-
-https://screenrant.com/stranger-things-vecna-arcade-spinoff-reactions/
-
-Stranger Things may be over, but the wider franchise is still going strong, even if the latest release hasn't gone down well with audiences.
----------
-
-# Law & Order Season 26 Replaces Major Cast Member After Surprise Exit
-
-TV, Law & Order
-
-Thu, 23 Jul 2026 03:25:09 GMT
-
-https://screenrant.com/law-and-order-season-26-reid-scott-exit/
-
-One of Law & Order's biggest stars bids farewell to the series before season 26 as his successor is officially announced for the NBC drama.
----------
-
-# 7 Greatest K-Drama Zombie Shows All Fans Must Watch, Ranked
-
-TV, K-Drama
-
-Thu, 23 Jul 2026 03:15:11 GMT
-
-https://screenrant.com/best-k-drama-zombie-shows/
-
-The zombie genre is one that is popular all over the world, from the United States to South Korea, and these are some of Korea’s best zombie k-dramas.
----------
-
-# 5 Nintendo GameCube Games That Are 10/10 Masterpieces, No Notes
-
-Gaming, Nintendo GameCube
-
-Thu, 23 Jul 2026 03:00:11 GMT
-
-https://screenrant.com/nintendo-gamecube-10-rated-games-no-notes/
-
-The GameCube had plenty of great games, but only a more limited selection of classics would be truly hard to improve in any meaningful way.
 ---------
