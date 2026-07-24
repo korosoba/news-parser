@@ -1,3 +1,366 @@
+# Blade Runner: Replicant Rebellion Is The Sequel We Never Expected
+
+Gaming, Blade Runner, tabletop games
+
+Fri, 24 Jul 2026 21:30:11 GMT
+
+https://screenrant.com/blade-runner-replicant-rebellion-sequel-feature/
+
+Blade Runner is about to enter a brand-new era for the series, but its latest sequel is one that sci-fi fans can already enjoy right now.
+---------
+
+# Taken Meets The Punisher In This Underrated 2018 Action Thriller
+
+Movies, Masked Recs
+
+Fri, 24 Jul 2026 21:30:11 GMT
+
+https://screenrant.com/peppermint-movie-female-punisher-taken-jennifer-garner-underrated/
+
+This underrated 2018 action thriller is an R-rated blend of The Punisher and Taken, and gave Jennifer Garner a rare solo action movie to shine in.
+---------
+
+# OG Big Bang Theory Character’s Death In New Spinoff Clarified By Creators & Star
+
+TV, Stuart Fails to Save the Universe, The Big Bang Theory
+
+Fri, 24 Jul 2026 21:28:15 GMT
+
+https://screenrant.com/stuart-fails-to-save-the-universe-raj-death-lorre-prady-penn-bowie-explained/
+
+Stuart Fails to Save the Universe's first episode killed off an OG Big Bang Theory character, and now their status going forward has been cleared up.
+---------
+
+# Diablo's Age of Hatred Saga Finally Ends Next Week With One Final Release
+
+Comics, Diablo
+
+Fri, 24 Jul 2026 21:07:12 GMT
+
+https://screenrant.com/diablo-age-of-hatred-saga-finale-details/
+
+Think the Age of Hatred Saga ended with Diablo IV: Lord of Hatred? One final chapter arrives next week before Blizzard's story truly ends.
+---------
+
+# Marvel Officially Unveils New Cyclops Design And Actor
+
+Gaming, Marvel, Marvel Tokon: Fighting Souls, Triple-A Games
+
+Fri, 24 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/marvel-new-cyclops-design-ray-chase/
+
+Marvel is tripling down on Cyclops lately after the X-Men character finally received the popularity he deserves, and this new design is quite bold.
+---------
+
+# Rick & Morty Spinoff President Curtis Season 2's Fate Quickly Decided By Adult Swim
+
+TV, President Curtis, San Diego Comic-Con
+
+Fri, 24 Jul 2026 20:57:38 GMT
+
+https://screenrant.com/president-curtis-season-2-renewal-rick-and-morty-universe/
+
+Rick and Morty spinoff, President Curtis, dropped some major news regarding season 2 during its panel at San Diego Comic-Con on Friday.
+---------
+
+# Carrie Season 2 Return Potential Addressed By Mike Flanagan
+
+TV, Carrie
+
+Fri, 24 Jul 2026 20:54:58 GMT
+
+https://screenrant.com/carrie-season-2-potential-mike-flanagan-response/
+
+EXCLUSIVE: Carrie creator Mike Flanagan addresses the show's season 2 potential, unpacking the possibility of even more episodes.
+---------
+
+# Lanterns Official Trailer Reveals Hal Jordan's Full Costume & Major Villains In James Gunn's DCU Era
+
+TV, Lanterns, San Diego Comic-Con, Green Lantern, DC Universe
+
+Fri, 24 Jul 2026 20:43:09 GMT
+
+https://screenrant.com/lanterns-hbo-trailer-sdcc-2026/
+
+DC Studios has released the final Lanterns trailer for the upcoming DC Universe TV show on HBO, featuring Hal Jordan and John Stewart.
+---------
+
+# 5 New Pokémon Types That Could Change The Franchise Forever
+
+Gaming, Pokemon, Triple-A Games
+
+Fri, 24 Jul 2026 20:30:11 GMT
+
+https://screenrant.com/pokemon-winds-waves-5-potential-new-types/
+
+It's about time for Pokémon to get a new Type, and these possible options have some serious potential to change Pokémon forever.
+---------
+
+# 10 Best NCIS Franchise Characters, Ranked
+
+Network TV, NCIS
+
+Fri, 24 Jul 2026 20:30:11 GMT
+
+https://screenrant.com/best-ncis-franchise-characters/
+
+The most memorable characters from the entire NCIS franchise, ranked based on their impact, growth, and contributions to the franchise as a whole.
+---------
+
+# 10 Harry Potter Characters Who Deserved Better Endings
+
+Movies, Harry Potter
+
+Fri, 24 Jul 2026 21:01:15 GMT
+
+https://www.cbr.com/harry-potter-characters-that-deserved-better-list/
+
+Harry Potter has a plethora of rich characters for fans to explore, but unfortunately some of those characters deserved a better ending than they got.
+---------
+
+# Spider-Man: Brand New Day Can Finally Deliver Marvel's Biggest Peter Parker Promise
+
+Comics, Spider-Man: Brand New Day
+
+Fri, 24 Jul 2026 21:01:15 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-peter-parker-promise-payoff/
+
+A certain expectation comes with how the MCU adapts their most popular heroes, and Brand New Day looks to finally make good on that for Spider-Man.
+---------
+
+# Pokémon Finally Gives Lapras an Evolution After 30 Years (But There's a Catch)
+
+Games, Pokemon
+
+Fri, 24 Jul 2026 20:50:15 GMT
+
+https://www.cbr.com/pokemon-new-lapras-evolution-after-30-years-scrapped/
+
+One of the most beloved Pokémon of all time finally has the evolution fans have been waiting three decades to see, albeit in an unexpected form.
+---------
+
+# DC Studios Finally Unveils the Official Trailer for the New DCU Series
+
+Movies, DC Comics, DCU, Lanterns
+
+Fri, 24 Jul 2026 20:45:02 GMT
+
+https://www.cbr.com/lanterns-official-trailer/
+
+The new DC Studios is closer than ever.
+---------
+
+# Paramount Officially Halts Warner Bros. Merger After Lawsuits
+
+Movies, paramount pictures, warner bros
+
+Fri, 24 Jul 2026 20:34:41 GMT
+
+https://www.cbr.com/paramount-warner-bros-merger-halted-antitrust-trial/
+
+Paramount Skydance's plan to merge with Warner Bros. Discovery gets put on pause.
+---------
+
+# 4 Fantasy Movies That Are 10/10 Masterpieces
+
+Movies, Fantasy, The Lord of the Rings, The Odyssey
+
+Fri, 24 Jul 2026 20:30:15 GMT
+
+https://www.cbr.com/perfect-fantasy-movie-masterpieces-list/
+
+These legendary fantasy masterpieces are easily the best movies in the genre's long history.
+---------
+
+# DC Writer Stephanie Williams Confirmed Vixen Series At SDCC
+
+CBR Exclusives, Vixen, DC Comics, San Diego Comic-Con
+
+Fri, 24 Jul 2026 20:30:15 GMT
+
+https://www.cbr.com/vixen-dc-stephanie-williams-sdcc-anouncement/
+
+This rumored DC project was just confirmed at San Diego Comic-Con 2026!
+---------
+
+# Prime Video's Cyberpunk Sleeper From the Creators of Westworld Is a Time Travel Masterpiece
+
+TV, Prime Video, The Peripheral, Sci-Fi
+
+Fri, 24 Jul 2026 20:30:15 GMT
+
+https://www.cbr.com/prime-video-the-peripheral-cyberpunk-time-travel/
+
+One Prime Video sci-fi series approached time travel in a unique way, making it a must-watch cyberpunk show.
+---------
+
+# Steam Makes 5 Games 100% Free Until July 27
+
+Games, Steam
+
+Fri, 24 Jul 2026 20:15:32 GMT
+
+https://www.cbr.com/steam-5-games-free-july-27-2026/
+
+Move quickly to check out these five games at no cost.
+---------
+
+# AMC Officially Seals The Vampire Lestat's Fate After Season 3 Rebranding
+
+TV, The Vampire Lestat
+
+Fri, 24 Jul 2026 20:15:14 GMT
+
+https://www.cbr.com/amc-the-vampire-lestat-season-4-fate/
+
+Less than a week since The Vampire Lestat ended, AMC has just revealed its future.
+---------
+
+# NBC Quietly Removed One of ‘Seinfeld’s Highest-Rated Episodes From Syndication
+
+TV Features, Seinfeld, Jerry Seinfeld, NBC, Peacock
+
+Fri, 24 Jul 2026 21:24:14 GMT
+
+https://collider.com/seinfeld-highest-rated-episode-puerto-rican-day-pulled-syndication/
+
+Seinfeld’s “The Puerto Rican Day” sparked major backlash after Kramer burned and stomped on a Puerto Rican flag, leading NBC to pull the episode from
+---------
+
+# 'Rick and Morty's New Sci-Fi Spin-Off Is Already Getting a Massive Expansion
+
+TV News, President Curtis, Rick and Morty, Adult Swim, Keith David
+
+Fri, 24 Jul 2026 21:06:13 GMT
+
+https://collider.com/rick-and-morty-sci-fi-spin-off-president-curtis-renewed-season-2/
+
+Rick and Morty's new spin-off series, President Curtis, has already scored a huge Season 2 update ahead of its premiere this weekend.
+---------
+
+# 10 Best Songs of the 1960s
+
+Music Features, Bob Dylan, David Bowie, The Beatles, The Beach Boys
+
+Fri, 24 Jul 2026 21:05:15 GMT
+
+https://collider.com/best-1960s-songs-ranked/
+
+The 1960s was a great time for music, with some of the best songs of the decade including "Space Oddity," "God Only Knows," and "Desolation Row."
+---------
+
+# The Beatles Song That Solved Paul McCartney's Biggest Songwriting Problem
+
+Music Features, The Beatles, Paul McCartney, John Lennon, Rock, Music
+
+Fri, 24 Jul 2026 21:03:09 GMT
+
+https://collider.com/the-beatles-paul-mccartney-all-my-loving-song/
+
+Paul McCartney challenged his songwriting habits defying his usual methods and paving the way for a Beatles classic with All My Loving.
+---------
+
+# 10 Greatest Soulslike Video Games of All Time
+
+Gaming, Video Game, Dark Souls, Star Wars Jedi: Survivor, Elden Ring
+
+Fri, 24 Jul 2026 20:50:14 GMT
+
+https://collider.com/best-soulslike-video-games-all-time-ranked/
+
+Soulslike games are all the rage right now, and the best include underrated gems like Lies of P, the masterful Elden Ring, and the seminal Dark Souls.
+---------
+
+# HBO Max's Sci-Fi Detective Series Drops Its Most Explosive Trailer Yet
+
+TV News, Lanterns, DC Comics, Aaron Pierre, Kyle Chandler
+
+Fri, 24 Jul 2026 20:41:02 GMT
+
+https://collider.com/hbo-max-sci-fi-detective-series-lanterns-trailer/
+
+A brand-new trailer for HBO Max's sci-fi detective series Lanterns has officially arrived, promising a unique take on the titular superheroes. See it
+---------
+
+# 8 Upcoming Comedy Shows, Ranked by Anticipation
+
+TV, It's Always Sunny in Philadelphia, Adults, Sitcom, Ted Lasso
+
+Fri, 24 Jul 2026 20:28:14 GMT
+
+https://collider.com/upcoming-comedy-shows-ranked-anticipation/
+
+New seasons of Ted Lasso, Adults, and It's Always Sunny in Philadelphia are among the most anticipated upcoming comedy on TV.
+---------
+
+# 'Interview with the Vampire's Future Has Been Officially Confirmed
+
+TV News, The Vampire Lestat, AMC, Jacob Anderson, San Diego Comic-Con
+
+Fri, 24 Jul 2026 20:15:14 GMT
+
+https://collider.com/interview-with-the-vampire-season-4-renewed-teaser-queen-of-the-damned/
+
+Following The Vampire Lestat's finale, the Interview with the Vampire team has confirmed that Season 4 is happening with a new teaser. Watch it here.
+---------
+
+# 'Lanterns' Finally Reveals Major DC Villains in Action-Packed Trailer for HBO Sci-Fi Series
+
+TV News, Lanterns
+
+Fri, 24 Jul 2026 21:02:11 GMT
+
+https://movieweb.com/lanterns-hbo-official-trailer-sdcc/
+
+The first full-length trailer for 'Lanterns' is finally here.
+---------
+
+# Original 'Star Wars' Officially Getting New Reimagining and Prequel From Lucasfilm
+
+Movie News, Star Wars, Star Wars: Episode IV - A New Hope
+
+Fri, 24 Jul 2026 21:01:36 GMT
+
+https://movieweb.com/star-wars-graphic-novel-luke-leia-prequel/
+
+A new comic will explore 'Star Wars: A New Hope' from new perspectives and a new novel, set before the prequel trilogy, explores Luke training Leia.
+---------
+
+# In Just 3 Days, Christopher Nolan's 'The Odyssey' Has Already Passed a Major Box Office Milestone
+
+Movie News, The Odyssey
+
+Fri, 24 Jul 2026 21:01:12 GMT
+
+https://movieweb.com/christopher-nolan-the-odyssey-300-million-3-days/
+
+'The Odyssey' crosses another milestone less than two weeks after launch.
+---------
+
+# The 8 Best Single-Shot Martial Arts Fights of All Time, Ranked
+
+Movie Lists, Action, Martial Arts
+
+Fri, 24 Jul 2026 21:01:12 GMT
+
+https://movieweb.com/best-single-shot-martial-arts-fights/
+
+From hand-to-hand combat to gun fu, these are the best single-take martial arts fights spanning an eclectic array of action movies.
+---------
+
+# Chuck Russell, Director of 'The Mask' and 'The Blob,' Dies at 74
+
+Movie News, Chuck Russell, The Mask, The Blob
+
+Fri, 24 Jul 2026 20:18:06 GMT
+
+https://movieweb.com/chuck-russell-director-dies-at-74/
+
+The director of 'The Mask' and 'The Blob' tragically passed away after working in Hollywood for over 45 years.
+---------
+
 # It's The End Of An Era For Nintendo After 45 Years
 
 Gaming, Nintendo, Triple-A Games
@@ -5133,367 +5496,4 @@ Thu, 23 Jul 2026 13:00:11 GMT
 https://screenrant.com/pokemon-diamond-pearl-leaks-piplup-alternate-evolution/
 
 There's no doubt that Piplup is one of the most adorable Pokémon ever, and a new evolution has emerged that fans are delighted by.
----------
-
-# Tyler Perry's Beauty In Black Officially Changes Its Ending Ahead Of Season 3
-
-TV, Tyler Perry’s Beauty in Black
-
-Thu, 23 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/tyler-perry-beauty-in-black-season-4-netflix-renewed/
-
-After being renewed for a third and final season, Tyler Perry's Beauty in Black is officially changing its plans for how it will conclude.
----------
-
-# Spider-Man vs Hulk Will Hinge on Game-Changing Weapon, Marvel Confirms
-
-Comics, Spider-Man, Hulk
-
-Thu, 23 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/spider-man-vs-hulk-punisher-cosmic-cube-tesseract/
-
-It all comes down to the Tesseract.
----------
-
-# Star Trek: Strange New Worlds Season 4 Episode 1 Ending Explained: Captain Pike Rewrites Canon
-
-TV, Star Trek, Star Trek: Strange New Worlds
-
-Thu, 23 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/star-trek-strange-new-worlds-season-4-episode-1-ending-explained/
-
-History will never be the same after Captain Pike and the Starship Enterprise's time travel in Star Trek: Strange New Worlds season 4's premiere.
----------
-
-# Why Prime Video's $113 Million Fantasy Epic Has Become A Global Streaming Hit
-
-Movies, Masked Recs
-
-Thu, 23 Jul 2026 12:41:23 GMT
-
-https://screenrant.com/prime-video-masters-of-the-universe-streaming-charts-rise-july-2026/
-
-Prime Video's new fantasy movie has become an instant global streaming hit, and it is easy to see why the genre release is attracting so many.
----------
-
-# Transformers: More Than Meets The Eye Officially Unveiled
-
-Gaming, Transformers, Transformers: Animated, PC
-
-Thu, 23 Jul 2026 12:41:08 GMT
-
-https://screenrant.com/transformers-more-than-meets-the-eye-sdcc/
-
-Transformers is officially back with a brand-new release unveiled at SDCC this year called More Than Meets The Eye.
----------
-
-# Legend Of Zelda: Tears Of The Kingdom Official 2027 Return Splits Gamers
-
-Gaming, The Legend of Zelda: Tears of the Kingdom, The Legend of Zelda
-
-Thu, 23 Jul 2026 12:30:11 GMT
-
-https://screenrant.com/zelda-tears-of-the-kingdom-2027-return-reactions/
-
-There's no doubt that Tears of the Kingdom was an enormously successful Zelda game, but not everyone is sold on its 2027 return.
----------
-
-# Yoda's Best Line Is Still the Greatest Quote in Star Wars History, 9 Years Later
-
-Comics, Star Wars, Yoda
-
-Thu, 23 Jul 2026 12:30:11 GMT
-
-https://screenrant.com/yoda-greatest-star-wars/
-
-Master Yoda's unmatched wisdom has made him a Star Wars icon, and one of his most memorable quotes is also one of the franchise's greatest.
----------
-
-# 5 Masterpiece Fantasy Anime With the Best Gods and Mythology
-
-Anime, Noragami, The Ancient Magus' Bride
-
-Thu, 23 Jul 2026 13:15:14 GMT
-
-https://www.cbr.com/masterpiece-fantasy-anime-with-best-gods-mythology/
-
-These anime prove that compelling gods and legends can elevate fantasy to another level.
----------
-
-# Ridley Scott's 157-Minute Gangster Masterpiece Is Losing Its Streaming Home Soon
-
-Movies, American Gangster, ridley scott, Netflix
-
-Thu, 23 Jul 2026 13:00:15 GMT
-
-https://www.cbr.com/ridley-scott-american-gangster-losing-streaming-home-aug-2026/
-
-Fans don't have much time left to watch Ridley Scott's critically acclaimed crime film starring Denzel Washington and Russell Crowe.
----------
-
-# Law & Order: SVU May Have Lost Its Best Chance to Finish Benson and Stabler’s Story
-
-TV, Law and Order: SVU, Law and Order
-
-Thu, 23 Jul 2026 13:00:15 GMT
-
-https://www.cbr.com/law-order-svu-benson-stabler-story-unfinished/
-
-Christopher Meloni’s latest comments could leave Law & Order: SVU’s longest-running duo with an uncertain future.
----------
-
-# The Lord of the Rings' 5 Best Craftsmen, Ranked
-
-Movies, The Lord of the Rings, Fantasy
-
-Thu, 23 Jul 2026 13:00:15 GMT
-
-https://www.cbr.com/lord-of-the-rings-best-craftsmen-list/
-
-Middle-earth was home to many magical artifacts and weapons of great power, and J. R. R. Tolkien's novel detailed their mighty creators.
----------
-
-# DCU's Supergirl Celebrates Early Streaming Release Date With New Lobo Clip
-
-Movies, Supergirl
-
-Thu, 23 Jul 2026 12:01:14 GMT
-
-https://www.cbr.com/supergirl-digital-release-date/
-
-Jason Momoa made his return to DC as a new character, and audiences will be able to watch his return soon on digital.
----------
-
-# Doctor Doom Doesn't Need an MCU Origin Story—And Never Did
-
-Comics, Avengers: Doomsday
-
-Thu, 23 Jul 2026 12:01:14 GMT
-
-https://www.cbr.com/doctor-doom-doesnt-need-mcu-origin-story/
-
-In the era of the multiverse, MCU fans can be trusted to know the origins of Marvel's most popular characters at this point.
----------
-
-# Tom Hiddleston Sets Official New Appearance on a Hidden Gem Series Tomorrow [Exclusive]
-
-TV News, Tom Hiddleston, National Geographic, Loki, Pompeii: Out of Time with Tom Hiddleston
-
-Thu, 23 Jul 2026 13:00:15 GMT
-
-https://collider.com/tom-hiddleston-national-geographic-geeking-out-podcast-appearance-july-24/
-
-Loki star Tom Hiddleston is set to appear on an episode of the National Geographic kids podcast, Geeking Out, this week before Avengers: Doomsday.
----------
-
-# ‘Criminal Minds: Evolution’ Star Addresses Whether Voit Could Return After That Shocking Season 19 Finale
-
-Interviews, Criminal Minds, Zach Gilford, Justin Kirk, Friday Night Lights
-
-Thu, 23 Jul 2026 13:00:15 GMT
-
-https://collider.com/criminal-minds-evolution-season-19-finale-voit-zach-gilford-interview/
-
-Zach Gilford breaks down the Criminal Minds: Evolution Season 19 finale fight and whether Elias Voit could return in a future season.
----------
-
-# Forget 'The Odyssey,' This Mythology-Inspired Fantasy Book Deserves an Adaptation
-
-TV Features, The Odyssey, Fantasy, Books, Myth
-
-Thu, 23 Jul 2026 12:46:14 GMT
-
-https://collider.com/song-of-achilles-madeline-miller-mythology-fantasy-deserves-adaptation/
-
-Despite years of development attempts, Madeline Miller's bestselling novel The Song of Achilles has yet to receive a screen adaptation.
----------
-
-# The 10 Best Comedy TV Shows of the 2000s, Ranked
-
-TV, Comedy, The Office, It's Always Sunny in Philadelphia, Modern Family
-
-Thu, 23 Jul 2026 12:32:15 GMT
-
-https://collider.com/best-2000s-comedy-shows-ranked/
-
-Discover the most popular and critically acclaimed comedy TV shows from the 2000s, from It's Always Sunny in Philadelphia to The Office.
----------
-
-# Woodstock 1969 Was Defined by This Surreal Performance From the Band You'd Least Expect
-
-Music Features, Rock, Music
-
-Thu, 23 Jul 2026 12:22:14 GMT
-
-https://collider.com/jefferson-airplane-woodstock-performance-1969/
-
-San Francisco-based Jefferson Airplane's delayed psychedelic rock music performance at Woodstock 1969 was the festival's most iconic moment
----------
-
-# 9 Most Perfect Fantasy Shows of the Last 15 Years
-
-TV, Fantasy, House of the Dragon, Outlander, Interview with the Vampire
-
-Thu, 23 Jul 2026 12:08:14 GMT
-
-https://collider.com/most-perfect-fantasy-shows-last-15-years-ranked/
-
-House of the Dragon, Outlander, and Interview with the Vampire are among the best fantasy shows of the last 15 years, but which is the greatest?
----------
-
-# Hulu Officially Recruits a ‘The Bear’ Favorite for New ‘Lincoln Lawyer’ Replacement
-
-TV News, Liza Colón-Zayas, The Bear, Hulu, The Lincoln Lawyer
-
-Thu, 23 Jul 2026 12:01:14 GMT
-
-https://collider.com/hulu-lincoln-lawyer-replacement-conviction-cast-the-bear-star-liza-colon-zayas/
-
-Hulu's upcoming legal thriller starring Elisabeth Moss has officially added a star from The Bear. Get all the details here.
----------
-
-# 6 Greatest Best Picture Winners Since 2000
-
-Movie, The Lord of the Rings: The Return of the King, Parasite, No Country for Old Men, Academy Awards
-
-Thu, 23 Jul 2026 11:57:14 GMT
-
-https://collider.com/greatest-oscar-best-picture-winners-since-2000-ranked/
-
-Parasite, Oppenheimer, and The Lord of the Rings: The Return of the King are all among the greatest Oscar Best Picture winners since the year 2000.
----------
-
-# Netflix’s New 6-Part Series Gives This Romantic 125-Year-Old Novel a Modern Makeover
-
-TV Features, My Brilliant Career, Netflix, Romance
-
-Thu, 23 Jul 2026 11:46:15 GMT
-
-https://collider.com/netflix-new-romance-series-my-brilliant-career/
-
-On August 13, Netflix will be releasing My Brilliant Career, a new adaptation of the 1901 romance classic by Miles Franklin.
----------
-
-# Jason Statham's 105-Minute Action Thriller Crowned One of Streaming's Biggest Hits
-
-Movie News, Jason Statham, The Beekeeper, Hot on Streaming, Action, Prime Video
-
-Thu, 23 Jul 2026 13:00:12 GMT
-
-https://movieweb.com/the-beekeeper-jason-statham-action-stream-prime-video-july-2026/
-
-Before Jason Statham dishes out justice in 'Mutiny' next month, one of his best action thrillers has returned to take over streaming.
----------
-
-# 'Doctor Who' Teases Comeback Way Sooner Than Anyone Expected
-
-Features, Doctor Who, star trek: strange new worlds, Star Trek
-
-Thu, 23 Jul 2026 13:00:12 GMT
-
-https://movieweb.com/star-trek-doctor-who-crossover-tease/
-
-The BBC hasn't announced when 'Doctor Who' will be back, but the Star Trek franchise doesn't seem willing to wait. Read on for more.
----------
-
-# Marvel Confirms Plans for Major Spider-Man Change After 'Secret Wars'
-
-Movie News, Spider-Man, Kevin Feige
-
-Thu, 23 Jul 2026 12:58:48 GMT
-
-https://movieweb.com/kevin-feige-live-action-miles-morales-mcu-plans/
-
-Kevin Feige confirms Marvel Studios has plans for a live-action Miles Morales, arriving after 'Spider-Man: Beyond the Spider-Verse' in June 2027.
----------
-
-# New 'End of Oak Street' Trailer Unleashes Dinosaur Chaos in the Sci-Fi Film
-
-Movie Trailers, The End of Oak Street, Ewan McGregor, Anne Hathaway, David Robert Mitchell, J.J. Abrams
-
-Thu, 23 Jul 2026 12:58:25 GMT
-
-https://movieweb.com/end-of-oak-street-trailer-dinosaurs/
-
-Ewan McGregor and Anne Hathaway fend off a monster in the latest trailer
----------
-
-# Chris Hemsworth Confirms Start Date for Netflix Action Thriller 'Extraction 3'
-
-Movie News, Chris Hemsworth, Netflix, Extraction 3, Action, Thriller
-
-Thu, 23 Jul 2026 12:17:58 GMT
-
-https://movieweb.com/chris-hemsworth-extraction-3-netflix-filming/
-
-The 'Avengers' star confirmed that he'll begin filming very soon.
----------
-
-# New Star Wars Spin-Off Finds Second Life as It Sweeps Charts Ahead of Release
-
-Movie News, The Mandalorian and Grogu, Star Wars
-
-Thu, 23 Jul 2026 12:02:34 GMT
-
-https://movieweb.com/star-wars-mandalorian-grogu-blu-ray-sales-chart/
-
-'Star Wars: The Mandalorian and Grogu' is currently dominating the 4K UHD and Blu-ray sales chart, claiming the Top 4 spots on the bestseller list.
----------
-
-# Devolver Digital GOTY Contender Returns, Now Totally Free To Keep
-
-Gaming, Devolver Digital, Poinpy, PC
-
-Thu, 23 Jul 2026 11:38:14 GMT
-
-https://screenrant.com/devolver-digital-free-game-poinpy/
-
-Devolver Digital's beloved 2022 Game of the Year contender is officially back and completely free to keep forever.
----------
-
-# Brandon Sanderson's Mistborn: Legacy Arrives November 2026
-
-Gaming, Brandon Sanderson, Mistborn
-
-Thu, 23 Jul 2026 11:30:11 GMT
-
-https://screenrant.com/mistborn-legacy-november-2026-brandon-sanderson/
-
-The Mistborn series is arguably Brandon Sanderson's most beloved work, and a new adaptation is set to take full advantage of that.
----------
-
-# Star Trek: Strange New Worlds EP Details Plan For Season 5’s Final 6 Episodes
-
-Exclusive, Star Trek, Star Trek: Strange New Worlds
-
-Thu, 23 Jul 2026 11:00:11 GMT
-
-https://screenrant.com/star-trek-strange-new-worlds-season-5-episodes-plan/
-
-Exclusive: Star Trek: Strange New Worlds executive producer and co-showrunner Akiva Goldsman explains the format for the 6-episode final season.
----------
-
-# Pokémon Winds & Waves Elite Four Type Details Confirm You'll Need A Powerful Squad
-
-Gaming, Pokemon Winds and Waves, PC, Pokemon
-
-Thu, 23 Jul 2026 10:38:07 GMT
-
-https://screenrant.com/pokemon-winds-waves-elite-four-type-leaks/
-
-The most recent Pokémon Winds & Waves leak all but confirms the Elite Four types we can expect, and you'll need to be ready for a tough fight.
----------
-
-# Pokémon: New Lapras Evolution Finally Surfaces After 30 Years
-
-Gaming, Pokemon
-
-Thu, 23 Jul 2026 10:12:47 GMT
-
-https://screenrant.com/pokemon-lapras-evolution-leak/
-
-Lapras is one of the few Pokémon who doesn't have any kind of evolutionary line, but that could easily have been very different.
 ---------
