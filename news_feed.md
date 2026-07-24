@@ -1,3 +1,168 @@
+# Big Brother 28: Week 3 Head of Household (HOH) Results (SPOILERS)
+
+Reality TV, Big Brother
+
+Fri, 24 Jul 2026 10:00:11 GMT
+
+https://screenrant.com/big-brother-28-week-3-head-of-household-spoilers/
+
+Discover who the new Head of Household in Big Brother 28's third week is as the game dynamic shifts with a fresh power player in charge of the game.
+---------
+
+# Cyberpunk 2077 Official New DLC Is Live Now
+
+Gaming, Cyberpunk 2077
+
+Fri, 24 Jul 2026 09:56:53 GMT
+
+https://screenrant.com/cyberpunk-2077-new-apex-legends-dlc-live-now/
+
+CD Projekt RED and Respawn Entertainment collaborate to bring Cyberpunk 2077 characters and a new map to Apex Legends.
+---------
+
+# Steam Makes 6 Games Completely Free Until July 27, No Strings Attached
+
+Gaming, Steam
+
+Fri, 24 Jul 2026 09:36:42 GMT
+
+https://screenrant.com/steam-6-free-games-july-27/
+
+Discover 6 incredible games available for free during Steam's Free Weekend, from July 23-27.
+---------
+
+# New Nintendo Hardware Design Surfaces Online Ahead Of Major Reveal
+
+Gaming, Nintendo
+
+Fri, 24 Jul 2026 09:25:53 GMT
+
+https://screenrant.com/nintendo-switch-2-new-zelda-hardware-40th-anniversary/
+
+Nintendo may release a special Zelda-themed pro controller alongside The Legend of Zelda: Ocarina of Time remake to celebrate the 40th anniversary.
+---------
+
+# New Baldur's Gate 3 Spinoff Officially Announced
+
+Gaming, Baldur's Gate 3, Baldur's Gate
+
+Fri, 24 Jul 2026 09:05:49 GMT
+
+https://screenrant.com/baldurs-gate-3-karlach-series/
+
+Baldur's Gate 3 is one of the best games of the decade so far, so it should come as little surprise that fans aren't done with it yet.
+---------
+
+# Steam As We Know It Has Just Changed Forever
+
+Gaming, Steam
+
+Fri, 24 Jul 2026 08:58:28 GMT
+
+https://screenrant.com/steam-update-account-changes/
+
+After a decade of frustration from gamers, Steam just proved why it will never lose its spot as the number one PC gaming platform.
+---------
+
+# Peacock’s 8-Episode Summer Drama Is the Perfect Big Little Lies Replacement
+
+TV, The Five-Star Weekend, Drama, Peacock
+
+Fri, 24 Jul 2026 10:00:15 GMT
+
+https://www.cbr.com/peacock-the-five-star-weekend-big-little-lies-replacement/
+
+Big Little Lies will be coming back for a third season, but until then, this new Peacock summer drama is a perfect comparable watch.
+---------
+
+# Tom Cruise's Edge of Tomorrow is Better Than Back to the Future
+
+Movies, Back to the Future, Edge of Tomorrow, tom cruise, Sci-Fi
+
+Fri, 24 Jul 2026 10:00:15 GMT
+
+https://www.cbr.com/tom-cruise-edge-of-tomorrow-better-than-back-to-the-future/
+
+Tom Cruise embarked on his own time travel adventure in this epic sci-fi action movie in 2014, better than even Back to the Future.
+---------
+
+# 10 Perfect Anime Series You Should Watch in 2026
+
+TV, Anime, Serial Experiments Lain, Dr. Stone, Witch Hat Atelier
+
+Fri, 24 Jul 2026 10:09:14 GMT
+
+https://collider.com/perfect-anime-shows-to-watch-2026/
+
+Discover the best anime series to watch in 2026, featuring critically acclaimed titles like Death Note, Frieren, and Serial Experiments Lain.
+---------
+
+# Andy Serkis’ 2026 War Epic Conquers the Box Office With Impressive New Milestone
+
+Movie News, Young Washington, Chris Pratt, Box Office, Andy Serkis
+
+Fri, 24 Jul 2026 09:30:14 GMT
+
+https://collider.com/andy-serkis-young-washington-war-epic-box-office-41-million/
+
+The historical biopic Young Washington has emerged as a minor blockbuster at the box office, even passing Prime Video's hit 2026 crime thriller.
+---------
+
+# 3 Movie Masterpieces Streaming on Netflix This Weekend (July 25-26)
+
+Movie, Scream, Wicked: For Good, The Wedding Planner, Netflix
+
+Fri, 24 Jul 2026 09:22:14 GMT
+
+https://collider.com/best-netflix-movies-watch-weekend-july-25/
+
+Scream, Wicked: For Good, and The Wedding Planner make up our list of movie masterpieces you should watch on Netflix the weekend of July 25, 2026.
+---------
+
+# 25 Years Ago, Quentin Tarantino Ruined the American Release of This Cult Classic
+
+Movie Features, Quentin Tarantino, Donnie Yen, Crouching Tiger, Hidden Dragon, Iron Monkey
+
+Fri, 24 Jul 2026 09:12:14 GMT
+
+https://collider.com/quentin-tarantino-iron-monkey-martial-arts-movie/
+
+Quentin Tarantino brought Hong Kong action hit Iron Monkey to U.S. viewers in 2001, but he made unnecessary changes that butchered the film.
+---------
+
+# ’The Walking Dead’s Co-Creator Officially Names the Franchise's No.1 Character to Get a Spin-Off [Exclusive]
+
+Gaming News, The Walking Dead, Robert Kirkman, SDCC, The Walking Dead: Daryl Dixon
+
+Fri, 24 Jul 2026 09:00:15 GMT
+
+https://collider.com/the-walking-dead-best-character-co-creator-robert-kirkman-wants-clementine-spin-off/
+
+The Walking Dead author Robert Kirman names Clementine as the character he'd like to see explored more in the franchise's future.
+---------
+
+# Alan Ritchson's New Action Thriller Officially Releases "The Scene Everyone Is Talking About"
+
+Movie News, Alan Ritchson, Motor City, Action, Thriller
+
+Fri, 24 Jul 2026 09:58:52 GMT
+
+https://movieweb.com/alan-ritchson-motor-city-elevator-fight-clip/
+
+The 103-minute action thriller 'Motor City' has been hailed as a solid 70s-set throwback.
+---------
+
+# 'Extraction 3' Unveils First Look at Chris Hemsworth Action Sequel as Filming Officially Begins
+
+Movie News, Extraction 3, Extraction, Extraction 2, Netflix, Chris Hemsworth
+
+Fri, 24 Jul 2026 09:33:18 GMT
+
+https://movieweb.com/chris-hemsworth-extraction-3-filming-begins-first-look/
+
+'Extraction 3' has officially began filming, as confirmed by a first-look image shared by Chris Hemsworth from the set of the Netflix action sequel.
+---------
+
 # Game Of Thrones Is Officially Switching Genres When It Returns In 2027
 
 Gaming, Game of Thrones, Game Of Thrones, Game of Thrones: War for Westeros, Game of Thrones: Kingsroad, PC
@@ -5331,169 +5496,4 @@ Wed, 22 Jul 2026 19:00:11 GMT
 https://screenrant.com/video/lucky-the-heist-hides-her-real-problem/
 
 Lucky Review: Anya Taylor-Joy's Perfect Con Artist. Apple TV+'s Lucky drops Anya Taylor-Joy into the role she seems almost genetically engineered to play: a master manipulator who suddenly finds herself trapped inside someone else's game.
----------
-
-# Netflix's New R-Rated Fantasy Series Deserves Its 100% Score On Rotten Tomatoes
-
-TV, Masked Recs
-
-Wed, 22 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/the-east-palace-netflix-fantasy-series-deserves-rotten-tomatoes-score/
-
-This unexpected choice sets Netflix's latest fantasy drama apart from other R-rated fantasy shows, making it a standout in a crowded genre landscape.
----------
-
-# Warhorse's Lord Of The Rings RPG Perfect Setting Takes Us Beyond The War Of The Ring
-
-Gaming, The Lord of the Rings, Triple-A Games
-
-Wed, 22 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/warhorse-middle-earth-rpg-lotr-setting-third-age/
-
-Warhorse Studios has proven thorough in realizing the settings of its games, and it would be a waste to focus on The Lord of the Rings' same conflict.
----------
-
-# 10 Best Superpowers In Invincible
-
-Streaming TV, Invincible
-
-Wed, 22 Jul 2026 18:30:11 GMT
-
-https://screenrant.com/invincible-best-powers/
-
-Invincible has several characters with extraordinary abilities, from flight to mind control. However, some superpowers are better than others.
----------
-
-# Paramount+'s 13-Year Superhero Franchise Officially Sets 2026 Return With First Poster For New Movie
-
-Movies, The Thundermans, The Thundermans Return
-
-Wed, 22 Jul 2026 18:15:53 GMT
-
-https://screenrant.com/clash-of-the-thundermans-release-date-key-art/
-
-EXCLUSIVE: Paramount's hit superhero franchise is gearing up for an exciting return with an official release date confirmed for its new movie.
----------
-
-# Tom Cruise’s New Sequel To 36-Year-Old Action Classic Days Of Thunder Gets Major Update
-
-Movies, Days of Thunder
-
-Wed, 22 Jul 2026 18:00:44 GMT
-
-https://screenrant.com/tom-cruise-days-of-thunder-2-jonathan-levine-director-talks/
-
-Tom Cruise's new sequel to his 36-year-old action classic, Days of Thunder, receives a major update with a second person in talks to join the project.
----------
-
-# A Yoga Retreat Turns Bloody In Satirical Namaslay Trailer
-
-Exclusive, Horror
-
-Wed, 22 Jul 2026 18:00:11 GMT
-
-https://screenrant.com/video/namaslay-movie-yoga-retreat-satire-trailer/
-
-Exclusive: ScreenRant presents the trailer for Junghal Studios' Namaslay, which blends horror, satire, and the maximalist energy of masala cinema.
----------
-
-# Zelda: Ocarina Of Time 3D Is Finally No Longer Trapped On The 3DS
-
-Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo 3DS, Nintendo
-
-Wed, 22 Jul 2026 18:00:11 GMT
-
-https://screenrant.com/zelda-ocarina-of-time-3d-single-screen-mod/
-
-Finally, one of the very best Zelda games, Ocarina of Time 3D, has been set free and is available beyond the Nintendo 3DS.
----------
-
-# Gerard Butler's Replacements In $523.5M Action Franchise Return In Official Trailer For Apollo Has Fallen
-
-TV, Has Fallen
-
-Wed, 22 Jul 2026 17:59:16 GMT
-
-https://screenrant.com/gerard-butler-apollo-has-fallen-show-trailer/
-
-StudioCanal is releasing a Has Fallen spinoff series called Apollo Has Fallen, and the just-released trailer teases Gerard Butler’s replacements.
----------
-
-# Netflix's 6-Episode Crime Series With Hulk Star Is So Good, It's Getting A Surprise Season 2
-
-TV, Masked Recs
-
-Wed, 22 Jul 2026 17:58:11 GMT
-
-https://screenrant.com/untamed-netflix-crime-series-season-2-return/
-
-Sam Neill's final show is an acclaimed Netflix murder mystery originally intended to be a miniseries, whose its popularity led to a second season.
----------
-
-# After Just 1 Day, Hulu's 2-Season Reboot of a Beloved Animated Series Is a Streaming Hit
-
-TV, King of the Hill, Hulu
-
-Wed, 22 Jul 2026 19:00:14 GMT
-
-https://www.cbr.com/king-of-the-hill-animated-hulu-disney-plus-success-july-2026/
-
-The second season of the King of the Hill reboot is rising up the charts just a day after it premiered, continuing the show's success.
----------
-
-# 10 Greatest Climate Fiction Books Of All Time, Ranked
-
-Movies, Science Fiction, books
-
-Wed, 22 Jul 2026 19:00:14 GMT
-
-https://www.cbr.com/best-climate-fiction-books-list/
-
-Blending science fiction with the devastating ecological impacts of climate change, these books are the very best that climate fiction have to offer.
----------
-
-# Family Guy's First Spinoff in 13 Years Reveals Complete Voice Cast
-
-TV, Family Guy
-
-Wed, 22 Jul 2026 18:48:38 GMT
-
-https://www.cbr.com/family-guy-stewie-spinoff-complete-voice-cast/
-
-SNL and The Rookie stars are among the voice cast members revealed for Family Guy's next spinoff.
----------
-
-# 5 Anime Objectively Darker Than Death Note
-
-Anime, Monster, Psycho-Pass, Paranoia Agent, Attack On Titan, Death Parade, Death Note
-
-Wed, 22 Jul 2026 18:45:15 GMT
-
-https://www.cbr.com/anime-darker-than-death-note/
-
-Death Note is often regarded as a classic psychological thriller, but other anime are far darker and execute the themes better.
----------
-
-# 5 Near-Perfect Shows Everyone Forgets Are Based on Books
-
-TV, The Haunting of Hill House, The Queen's Gambit, books
-
-Wed, 22 Jul 2026 18:15:14 GMT
-
-https://www.cbr.com/near-perfect-shows-forgotten-source-material-list/
-
-These five shows were incredibly popular upon release, but many don't realize that they're actually book-to-screen adaptations.
----------
-
-# Kenneth Branagh in Talks for Perfect Outlander Replacement From MobLand Creatives
-
-TV, Paramount+ with Showtime
-
-Wed, 22 Jul 2026 18:10:59 GMT
-
-https://www.cbr.com/kenneth-branagh-laird-drama-series-paramount-plus/
-
-Paramount+ has found the perfect companion series for MobLand.
 ---------
