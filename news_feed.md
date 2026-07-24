@@ -1,3 +1,245 @@
+# 3 Best Movies To Watch On Prime Video This Weekend (July 25-26)
+
+Movies, Prime Video, Recommendation
+
+Fri, 24 Jul 2026 23:43:37 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-july-25/
+
+Prime Video subscribers will find the best movies this weekend in the form of an action thriller, a sci-fi masterpiece, and a new fantasy epic.
+---------
+
+# A Classic Star Trek Alien Just Scored The Franchise's Most Brutal Kill
+
+Comics, Star Trek
+
+Fri, 24 Jul 2026 23:30:11 GMT
+
+https://screenrant.com/classic-star-trek-alien-mugato-brutal-kill/
+
+Good grief.
+---------
+
+# Mortal Kombat II Can Redeem Its $129M Box Office Starting Today
+
+Movies, Mortal Kombat, Mortal Kombat II, Mortal Kombat: Annihilation
+
+Fri, 24 Jul 2026 23:30:11 GMT
+
+https://screenrant.com/mortal-kombat-2-streaming-hbo-max/
+
+Mortal Kombat II may not have been a hit at the box office, but it now has a second chance to gain traction with audiences at home.
+---------
+
+# Margaret Qualley Runs For Her Life In First Set Photos For New Horror Remake Of '80s Classic
+
+Movies, Horror
+
+Fri, 24 Jul 2026 23:26:02 GMT
+
+https://screenrant.com/possession-movie-remake-set-photos-margaret-qualley/
+
+Margaret Qualley takes on a famously demanding role as new set photos tease Parker Finn’s remake of a chilling 1980s cult classic.
+---------
+
+# Brotherhood Of Mutants First Line-Up Confirmed In X-Men '97 Season 3
+
+TV, X-Men '97, San Diego Comic-Con
+
+Fri, 24 Jul 2026 23:19:29 GMT
+
+https://screenrant.com/xmen-season-3-brotherhood-of-mutants-confirmed/
+
+Marvel Studios confirms that the Brotherhood of the Mutants will have a major role in X-Men '97's upcoming third season at San Diego Comic-Con.
+---------
+
+# How To Read The Odyssey For Free
+
+Books, The Odyssey
+
+Fri, 24 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/how-read-the-odyssey-free/
+
+Anyone wanting to read The Odyssey after watching Christopher Nolan's blockbuster movie is in luck, as it's available for free in several places.
+---------
+
+# 7 Pokémon That Nearly Had Very Different Designs
+
+Gaming, Pokemon, Triple-A Games
+
+Fri, 24 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/pokemon-alternate-designs-ranked/
+
+A huge new leak shows what some Pokémon may have looked like, for a new glimpse at some very different designs for beloved characters.
+---------
+
+# Mindhunter Looks Small Next To The 'Se7en Meets True Detective' Series That Changed TV
+
+Streaming TV, Masked Recs
+
+Fri, 24 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/mindhunter-hannibal-tv-series-comparison/
+
+Mindhunter is one of the greatest true crime masterpiece TV shows of all time, but its legacy pales in comparison to a crime show with a great villain
+---------
+
+# Naruto's Next Anime Will Prove That The Fourth Hokage's True Heir Was Never Naruto
+
+Anime, Naruto, Boruto: Two Blue Vortex
+
+Fri, 24 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/naruto-next-anime-hokage-minato-true-heir/
+
+In setting up one of the most daring rescues possible in the latest sequel, Naruto's Fourth Hokage may have a proper successor at hand.
+---------
+
+# Every Main Star Wars Movie Hero, Ranked By Power Level
+
+Movies, Star Wars
+
+Fri, 24 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/every-main-star-wars-movie-hero-ranked-by-power-level/
+
+Star Wars has many powerful heroes, from Luke Skywalker to Anakin Skywalker, but one in particular stands out above the rest.
+---------
+
+# Paramount+ Pulls the Plug on Sitcom Spinoff With 100% RT Score After 1 Season
+
+TV, Crutch
+
+Fri, 24 Jul 2026 23:56:48 GMT
+
+https://www.cbr.com/paramount-plus-cancels-crutch-season-one/
+
+It's one and done for the acclaimed comedy series spinoff on Paramount+.
+---------
+
+# Marvel Confirms Major X-Men '97 Update Weeks Ahead of Season 2 Finale
+
+TV, X-Men '97, X-Men, Disney+
+
+Fri, 24 Jul 2026 23:55:58 GMT
+
+https://www.cbr.com/x-men-97-season-4-disney-update/
+
+Big news for X-Men fans coming out of the San Diego Comic-Con.
+---------
+
+# 8 Action Anime Just as Good as Solo Leveling
+
+Anime, Solo Leveling, Demon Slayer, shonen anime, Hunter X Hunter
+
+Fri, 24 Jul 2026 23:45:14 GMT
+
+https://www.cbr.com/action-anime-as-good-as-solo-leveling/
+
+Solo Leveling is not the only action anime series worthy of acclaim, and these eight titles prove it.
+---------
+
+# Tim Robbins Reveals the ‘Great Thing’ About Playing a Villain Like Silo’s Bernard Holland
+
+CBR Exclusives, Silo, Apple TV, Sci-Fi
+
+Fri, 24 Jul 2026 23:40:36 GMT
+
+https://www.cbr.com/silo-season-3-tim-robbins-bernard-villain-redemption/
+
+Tim Robbins explains Bernard Holland’s humanity, moral collapse and possible path to redemption following his return in Silo Season 3.
+---------
+
+# Marvel Confirms New Ongoing Venom Series With All-Star Creative Team
+
+Comics, Venom
+
+Fri, 24 Jul 2026 23:30:15 GMT
+
+https://www.cbr.com/charles-soule-tommaso-bianchi-venom-release-date-confirmed/
+
+Marvel Comics just revealed the next ongoing Venom series, and it has an all-star slate of creators leading Eddie Brock back to his rightful mantle.
+---------
+
+# 10 Forgotten '90s Anime Series That Have Aged Like Fine Wine
+
+Anime, Isekai
+
+Fri, 24 Jul 2026 23:15:15 GMT
+
+https://www.cbr.com/forgotten-90s-anime-series-that-aged-like-fine-wine/
+
+Many anime from the '90s are held up as all-time classics, but other masterpieces have sadly become forgotten.
+---------
+
+# 25 Years Later, Netflix Officially Crowns Its Biggest One Piece Anime Arc
+
+Anime, One Piece, Netflix
+
+Fri, 24 Jul 2026 23:06:14 GMT
+
+https://www.cbr.com/one-piece-east-blue-arc-most-watched-netflix-2026/
+
+Despite new releases, this classic One Piece arc has become the most-viewed chapter on the streaming platform.
+---------
+
+# Mike Flanagan's Carrie Officially Changes Iconic Prom Scene: 'Don't Think You Know What's Gonna Happen'
+
+TV, Mike Flanagan, Carrie, San Diego Comic-Con
+
+Fri, 24 Jul 2026 23:00:14 GMT
+
+https://www.cbr.com/mike-flanagan-carrie-limited-series-prom-scene-change/
+
+The critically acclaimed auteur and frequent Stephen King collaborator is rebooting the all-time classic.
+---------
+
+# 10 Greatest Fantasy Book Authors Of All Time, Ranked
+
+Movies, Fantasy, books, The Lord of the Rings
+
+Fri, 24 Jul 2026 23:00:14 GMT
+
+https://www.cbr.com/greatest-fantasy-book-authors-ever-list/
+
+Names that are completely synonymous with fantasy, these writers defined and shaped the literary genre with their enduring legacies & must-read books
+---------
+
+# 3 Stellar Shows to Binge-Watch on Prime Video This Weekend (July 25-26)
+
+TV, Spider-Noir, Little House on the Prairie, The Lake, Prime Video
+
+Fri, 24 Jul 2026 23:43:14 GMT
+
+https://collider.com/prime-video-shows-binge-weekend-july-25-2026/
+
+Little House on the Prairie, The Lake, and Spider-Noir make our list of the best shows to binge-watch on Prime Video the weekend of July 25th, 2026.
+---------
+
+# 10 Most Important Stephen King Books
+
+Books and Comics, The Stand, Stephen King, The Dark Tower, It
+
+Fri, 24 Jul 2026 23:05:14 GMT
+
+https://collider.com/most-important-stephen-king-books-ranked/
+
+The most important books Stephen King has written include classics like The Stand, Needful Things, and the novels in The Dark Tower series.
+---------
+
+# Disney’s Best Marvel Show Is a Forgotten 3-Part X-Men Series
+
+TV Features, Legion, Dan Stevens, Noah Hawley, Aubrey Plaza
+
+Fri, 24 Jul 2026 23:02:14 GMT
+
+https://collider.com/legion-fx-best-marvel-show-x-men/
+
+FX's Legion still stands out as Marvel's most unique and engaging superhero series, offering a fresh take on the genre.
+---------
+
 # The Witcher 3: Wild Hunt — 10 Strongest Armor Sets, Ranked
 
 Gaming, The Witcher 3: Wild Hunt, PC
@@ -5254,246 +5496,4 @@ Thu, 23 Jul 2026 17:09:14 GMT
 https://collider.com/mildest-r-rated-movies-all-time-ranked/
 
 Some R-rated movies are pretty mild when it comes to the content they have, as shown by the likes of The King's Speech, The Odyssey, and The Matrix.
----------
-
-# Sherlock Holmes Officially Begins a Brutal New Era With an Adults-Only TV Series
-
-TV Features, Sherlock, Rafe Spall, Sherlock Holmes, Benedict Cumberbatch
-
-Thu, 23 Jul 2026 16:58:14 GMT
-
-https://collider.com/death-of-sherlock-holmes-brand-new-series-sky-tv-2027/
-
-The Death of Sherlock Holmes finally explores the detective’s missing years after Reichenbach Falls, giving the iconic character a darker, more psycho
----------
-
-# Looney Tunes Goes Full 'Lincoln Lawyer' in New Movie Trailer
-
-Movie News, Looney Tunes, Coyote Vs. Acme, John Cena, Will Forte
-
-Thu, 23 Jul 2026 16:28:59 GMT
-
-https://collider.com/coyote-vs-acme-final-trailer-john-cena/
-
-The final trailer for the long-awaited and originally cancelled Looney Tunes film, Coyote vs. Acme, has arrives. See it here!
----------
-
-# These 4 Billy Crystal Movies Are Genuine Classics
-
-Movie, Billy Crystal, When Harry Met Sally, City Slickers, Monsters, Inc.
-
-Thu, 23 Jul 2026 16:22:15 GMT
-
-https://collider.com/billy-crystal-movies-best/
-
-From The Princess Bride, to When Harry Met Sally, to City Slickers, Billy Crystal's finest films perfectly combine comedy and heart.
----------
-
-# Apple TV's First-Ever Hit Has Officially Been Cancelled
-
-TV News, The Morning Show, Apple TV, Reese Witherspoon, Jennifer Aniston
-
-Thu, 23 Jul 2026 16:16:09 GMT
-
-https://collider.com/apple-tv-the-morning-show-cancelled-final-season-5/
-
-The Morning Show, one of Apple TV's earliest hits, is officially coming to an end after it's upcoming fifth season. Read on for more.
----------
-
-# If You Loved ‘The Odyssey,’ This Must-Watch Series Did Nolan’s Best Twist First
-
-TV Features, Primal, The Odyssey, HBO Max, Series
-
-Thu, 23 Jul 2026 16:11:14 GMT
-
-https://collider.com/the-odyssey-primal-series-people-from-the-sea/
-
-Loved The Odyssey? Primal explored the terrifying legend of the Sea People years earlier with stunning animation and brutal storytelling.
----------
-
-# Jake Johnson Confirms His One Condition for a ‘New Girl’ Reboot [Exclusive]
-
-TV News, Jake Johnson, New Girl, Zooey Deschanel, Lamorne Morris
-
-Thu, 23 Jul 2026 16:10:14 GMT
-
-https://collider.com/new-girl-reboot-jake-johnson-nick-miller-return/
-
-Jake Johnson discusses being forever linked to Nick Miller and reveals whether he would return to his iconic New Girl role.
----------
-
-# Apple TV Officially Has a New Comedy King, and His Name Is Jake Johnson
-
-Collider Signature, Jake Johnson, profile, Apple TV, The Dink, New Girl
-
-Thu, 23 Jul 2026 16:00:14 GMT
-
-https://collider.com/jake-johnson-apple-tv-movie-the-dink-new-girl-interview/
-
-The Dink star Jake Johnson talks Apple TV, New Girl, Maximum Pleasure Guaranteed, Spider-Verse, and the relationships that have defined his career.
----------
-
-# Prime Video’s Newest Sci-Fi Reboot Is a Reminder of Its Worst Cancellation
-
-TV Features, Robocop, Stargate, Prime Video, Sci-Fi
-
-Thu, 23 Jul 2026 15:50:14 GMT
-
-https://collider.com/robocop-prime-video-reboot-stargate-cancellation/
-
-Prime Video's decision to reboot RoboCop following the cancellation of a new Stargate project raises questions about the platform's priorities.
----------
-
-# 10 Prequel TV Shows That Are Actually Successful
-
-TV, Television, House of the Dragon, Young Sheldon, Better Call Saul
-
-Thu, 23 Jul 2026 15:36:14 GMT
-
-https://collider.com/most-successful-prequel-tv-shows/
-
-House of the Dragon, Young Sheldon, and Better Call Saul are proof that prequel series can succeed in keeping a franchise alive and interesting.
----------
-
-# Margot Robbie's R-Rated Smash Surges on Streaming Ahead of 'Ocean's Prequel
-
-Movie News, Margot Robbie, The Wolf of Wall Street, Hot on Streaming, Hulu
-
-Thu, 23 Jul 2026 17:00:13 GMT
-
-https://movieweb.com/wolf-of-wall-street-margot-robbie-streaming-hit-july-2026/
-
-Ahead of the newly announced prequel to the 'Ocean's franchise, one of Margot Robbie's best movies is experiencing a massive surge on streaming.
----------
-
-# First Look at 'Reacher' Season 4 Has Alan Ritchson's Hero Against the Odds
-
-TV News, Reacher
-
-Thu, 23 Jul 2026 16:57:35 GMT
-
-https://movieweb.com/reacher-season-4-first-look-images-alan-ritchson/
-
-'Reacher' Season 4 is officially here.
----------
-
-# Johnny Depp Transforms Into Iconic Holiday Character in First Look at 'Ebenezer'
-
-Movie News, Ebenezer: A Christmas Carol, Johnny Depp
-
-Thu, 23 Jul 2026 16:48:02 GMT
-
-https://movieweb.com/ebenezer-scrooge-johnny-depp-poster/
-
-'Pirates of the Caribbean' star Johnny Depp will dive into one of the most iconic Christmas characters of all time in his new movie.
----------
-
-# Final 'Coyote vs. Acme' Trailer Reveals Explosively Hilarious Take on Iconic Cartoon
-
-Movie News, Coyote Vs. Acme
-
-Thu, 23 Jul 2026 16:16:31 GMT
-
-https://movieweb.com/coyote-vs-acme-final-trailer/
-
-Ketchup Entertainment has released the final trailer for 'Coyote vs. Acme,' offering a hilarious look at the live-action/animated hybrid legal comedy.
----------
-
-# How Daenerys Controls Three Dragons at Once in 'Game of Thrones'
-
-Features, Game Of Thrones
-
-Thu, 23 Jul 2026 16:00:12 GMT
-
-https://movieweb.com/daenerys-game-of-thrones-controls-three-dragons/
-
-Daenerys (Emilia Clarke) has the ability to influence her three dragons, Drogon, Rhaegal, and Viserion, on the HBO fantasy series 'Game of Thrones.'
----------
-
-# The Best British Comedy Shows on BritBox, Ranked
-
-Movie Lists, Comedy
-
-Thu, 23 Jul 2026 16:00:12 GMT
-
-https://movieweb.com/best-comedy-shows-on-britbox-ranked/
-
-British comedy is hallmarked with an irony that transforms mundane situations into hilarious brilliance. We rank the best of them on BritBox.
----------
-
-# 'The Odyssey's Deadline for Leaving IMAX Confirmed
-
-Movie News, The Odyssey, IMAX, Dune: Part Three
-
-Thu, 23 Jul 2026 15:57:50 GMT
-
-https://movieweb.com/the-odyssey-imax-dune/
-
-'The Odyssey' is the first movie shot entirely with 70mm IMAX cameras, but it can't occupy IMAX theaters forever.
----------
-
-# 'Supergirl' Digital Streaming Date Officially Confirmed
-
-Movie News, Supergirl, DCU
-
-Thu, 23 Jul 2026 15:40:09 GMT
-
-https://movieweb.com/supergirl-digital-streaming-date-confirmed/
-
-'Supergirl' is officially coming home after a rocky run in theaters.
----------
-
-# Robert Pattinson's New A24 Crime Thriller Just Got an Award-Worthy Release Date
-
-Movie News, Primetime, Robert Pattinson
-
-Thu, 23 Jul 2026 15:38:12 GMT
-
-https://movieweb.com/robert-pattinson-primetime-release-date/
-
-'Primetime', in which Pattinson plays 'To Catch a Predator' host Chris Hansen, will open in theaters on September 25, 2026.
----------
-
-# Netflix Lands Major Win With Chris Pratt’s Gritty War Thriller Releasing In Just A Few Days
-
-Movies, Masked Recs
-
-Thu, 23 Jul 2026 15:27:40 GMT
-
-https://screenrant.com/zero-dark-thirty-netflix-streaming-release-august-2026/
-
-Netflix will soon see the arrival of a Chris Pratt war thriller that promises to become one of the streaming service's trending movies.
----------
-
-# 10 Harry Potter Details That Hit Completely Differently As An Adult
-
-Movies, Harry Potter
-
-Thu, 23 Jul 2026 15:23:24 GMT
-
-https://screenrant.com/harry-potter-details-different-adult/
-
-From Dumbledore's brutal choices to Lupin's isolation, these 10 Harry Potter details hit completely differently once you're an adult looking back.
----------
-
-# PlayStation Plus Free Games Lineup For August 2026 Gets Official Update
-
-Gaming, PlayStation Plus, Indie, Triple-A Games
-
-Thu, 23 Jul 2026 15:20:07 GMT
-
-https://screenrant.com/playstation-plus-free-games-lineup-august-2026-update/
-
-There are several fantastic games being removed from the PlayStation Plus Extra and Premium catalogs in August, but you can still beat them.
----------
-
-# After 10 Years, Crunchyroll Brings Back Legendary Shonen Jump Sci-Fi Action Anime With New Release
-
-Anime, Shonen Jump
-
-Thu, 23 Jul 2026 15:07:15 GMT
-
-https://screenrant.com/crunchyroll-assassination-classroom-anime-movie-return/
-
-One of Shonen Jump's best anime of recent years has confirmed that its new release celebrating its 10th anniversary is dropping on Crunchyroll today.
 ---------
