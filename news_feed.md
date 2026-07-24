@@ -1,3 +1,366 @@
+# The Witcher 3: Wild Hunt — 10 Strongest Armor Sets, Ranked
+
+Gaming, The Witcher 3: Wild Hunt, PC
+
+Fri, 24 Jul 2026 22:48:33 GMT
+
+https://screenrant.com/the-witcher-3-wild-hunt-strongest-armor-sets-ranked/
+
+The Witcher 3: Wild Hunt has a variety of armor sets, each with its own assets, but some are stronger than others and more worth players' time.
+---------
+
+# 3 Best Movies To Watch On Netflix This Weekend (#1 Is Alan Ritchson's $865 Million Dystopian Sci-Fi)
+
+Movies, Netflix, Recommendation
+
+Fri, 24 Jul 2026 22:42:41 GMT
+
+https://screenrant.com/best-netflix-movies-watch-weekend-july-25/
+
+The best movies on Netflix this weekend are a dark new crime thriller based on a true story, a compelling drama, and a Sci-Fi dystopian smash hit.
+---------
+
+# James Bond Meets Jack Ryan In Netflix's 6-Hour Espionage Thriller
+
+Classic TV, Masked Recs
+
+Fri, 24 Jul 2026 22:30:11 GMT
+
+https://screenrant.com/bodyguard-netflix-thriller-james-bond-meets-jack-ryan/
+
+James Bond and Jack Ryan are two of the biggest names in the spy thriller genre, and Netflix's British espionage show combines the best of both.
+---------
+
+# 5 Nintendo DS Turn-Based RPGs That Are 10/10 Masterpieces
+
+Gaming
+
+Fri, 24 Jul 2026 22:30:11 GMT
+
+https://screenrant.com/nintendo-ds-10-rated-turn-based-rpgs/
+
+The Nintendo DS has a wide library of turn-based RPGs, but these five gems are all masterpieces that are easily 10/10 games worth playing.
+---------
+
+# Lanterns Can Be The Secret Invasion Show Marvel Fans Wanted
+
+Streaming TV, San Diego Comic-Con, DC Universe, Secret Invasion, Masked Recs
+
+Fri, 24 Jul 2026 22:25:56 GMT
+
+https://screenrant.com/lanterns-dc-manhunters-shapeshifters-secret-invasion/
+
+Thanks to a brand-new trailer released at San Diego Comic-Con, DC Studios has officially revealed the Secret Invasion show fans wanted from the MCU.
+---------
+
+# Paramount Officially Cancels Comedy Series With 100% RT Score After One Season
+
+TV, Crutch
+
+Fri, 24 Jul 2026 22:18:44 GMT
+
+https://screenrant.com/crutch-season-2-cancelled-paramount-plus/
+
+After just one season, Paramount+ has canceled a comedy series with a perfect 100% Rotten Tomatoes score whose cast was led by Tracy Morgan.
+---------
+
+# Netflix’s Best 2026 Thriller Is An 8-Part Masterpiece With No Bad Episodes
+
+TV, Beef
+
+Fri, 24 Jul 2026 22:17:59 GMT
+
+https://screenrant.com/beef-season-2-netflix-best-thriller-2026-no-bad-episodes/
+
+Netflix's best psychological thriller/black comedy/relationship drama of 2026 had a massive bar to clear and did so with flying colors.
+---------
+
+# 7 Years Later, TMNT: The Last Ronin Will Finally End
+
+Comic-Con, San Diego Comic-Con, Teenage Mutant Ninja Turtles
+
+Fri, 24 Jul 2026 22:17:52 GMT
+
+https://screenrant.com/tmnt-finale-return-for-new-york-release-2027/
+
+One of the finest stories in the Ninja Turtles franchise is coming to a close.
+---------
+
+# Mike Flanagan Teases Reviving Major Haunting Of Hill House Detail For New Stephen King Carrie Adaptation
+
+TV, Carrie, San Diego Comic-Con
+
+Fri, 24 Jul 2026 22:05:27 GMT
+
+https://screenrant.com/mike-flanagan-carrie-hill-house-adaptation-strategy-comparison/
+
+EXCLUSIVE: Mike Flanagan opens up about how his work on Netflix’s The Haunting of Hill House is inspiring his upcoming TV remake of Carrie.
+---------
+
+# An Unplayable PlayStation 1 Game Has Finally Come To PS5 After 29 Years
+
+Gaming, PlayStation (Original), PlayStation, PlayStation 5, Triple-A Games
+
+Fri, 24 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/29-year-old-ps1-game-playstation-5-release/
+
+Plenty of early PlayStation games never made their way outside Japan, but one classic is getting its worldwide debut 29 years after launch.
+---------
+
+# Motor City Review: Alan Ritchson’s New Revenge Thriller Wastes Its Most Exciting Idea
+
+Movies, Motor City
+
+Fri, 24 Jul 2026 22:24:15 GMT
+
+https://www.cbr.com/motor-city-review/
+
+In Motor City, Alan Ritchson commands a stylish 1970s revenge movie whose ambitious silent approach never fully clicks.
+---------
+
+# 5 RPGs Where Side Quests Are Better Than the Main Story
+
+Games, Video Games, Cyberpunk 2077, Assassin's Creed, Harry Potter
+
+Fri, 24 Jul 2026 22:15:15 GMT
+
+https://www.cbr.com/rpgs-side-quests-better-than-main-story/
+
+RPGs like Cyberpunk 2077 and Hogwarts Legacy are much better when players don't follow the main story.
+---------
+
+# Zach Cregger Explains Chaotic Resident Evil Scene That Almost Killed Its Lead Star
+
+Movies, Resident Evil, San Diego Comic-Con
+
+Fri, 24 Jul 2026 22:13:00 GMT
+
+https://www.cbr.com/resident-evil-san-diego-comic-con-exclusive/
+
+EXCLUSIVE: Director Zach Cregger reveals how Austin Abrams nearly paid the price for Resident Evil ditching CGI for practical effects.
+---------
+
+# Absolute Superman Just Brought Doomsday to the Absolute Universe
+
+Comics, Superman
+
+Fri, 24 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/absolute-superman-absolute-doomsday-confirmed/
+
+The Absolute Universe has finally found its Doomsday, and there is far more to them than readers could have possibly imagined.
+---------
+
+# It's Official, The MCU Has a New Strongest Villain
+
+Movies, Doctor Doom, Avengers: Doomsday, Marvel Cinematic Universe
+
+Fri, 24 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/mcu-doctor-doom-stronger-than-thanos/
+
+Eight years after Thanos used the Infinity Stones in Avengers: Infinity War, Marvel has just introduced the MCU's new strongest supervillain.
+---------
+
+# Lanterns Officially Introduces Supervillain to the DCU & Hints at Major Superhero Reveal?
+
+TV, DCU, DC Comics, Lanterns
+
+Fri, 24 Jul 2026 21:47:07 GMT
+
+https://www.cbr.com/lanterns-introduces-supervillain-to-the-dcu-hints-at-martian-manhunter-reveal/
+
+Lanterns dropped a massive hint about a Justice League member's debut, and introduced an iconic supervillain.
+---------
+
+# Prime Video Is Changing Its Reacher Formula Without Alan Ritchson, Confirms Neagley Star
+
+CBR Exclusives, Reacher, Neagley, San Diego Comic-Con
+
+Fri, 24 Jul 2026 21:16:49 GMT
+
+https://www.cbr.com/prime-video-neagley-reacher-formula/
+
+The new Reacher spinoff will feature a key character from the series, but it will change its formula.
+---------
+
+# 10 Must-Watch Anime That Get Better Every Season
+
+Anime
+
+Fri, 24 Jul 2026 21:15:03 GMT
+
+https://www.cbr.com/must-watch-anime-better-every-season/
+
+Some of the most beloved anime carry their story successfully through multiple seasons, getting better with each new return to their world.
+---------
+
+# Marvel Officially Confirms 'X-Men '97's New Season 3 Villains
+
+TV News, X-Men '97, Marvel Animation, Disney+, SDCC
+
+Fri, 24 Jul 2026 22:51:14 GMT
+
+https://collider.com/x-men-97-season-3-brotherhood-of-mutants-footage-description/
+
+As the war against Apocalypse wages on, X-Men '97 has shared a first look at Season 3, which brings back some of the titular team's oldest enemies.
+---------
+
+# ‘Avengers: Doomsday’ Is Hiding the Scarlet Witch’s Return in Plain Sight
+
+Movie Features, Scarlet Witch, Elizabeth Olsen, Avengers: Doomsday, San Diego Comic-Con
+
+Fri, 24 Jul 2026 22:48:14 GMT
+
+https://collider.com/avengers-doomsday-latverian-witch-scarlet-witch-return-theory/
+
+Marvel’s mysterious Latverian Witch costume at San Diego Comic-Con could be the biggest clue yet that Scarlet Witch will return in Avengers: Doomsday.
+---------
+
+# 10 Perfect Sci-Fi Shows With 20 Episodes or Less
+
+TV, Sci-Fi, Battlestar Galactica, Arcane, Firefly
+
+Fri, 24 Jul 2026 22:44:15 GMT
+
+https://collider.com/perfect-sci-fi-shows-shorter-than-20-episodes/
+
+Discover the best short sci-fi shows with 20 episodes or fewer, including acclaimed series like Battlestar Galactica, Arcane, and Firefly.
+---------
+
+# 'X-Men '97' Season 4 Officially Confirmed
+
+TV News, X-Men '97, Marvel Animation, Disney Plus, SDCC
+
+Fri, 24 Jul 2026 22:36:11 GMT
+
+https://collider.com/x-men-97-season-4-renewed/
+
+With Season 3 already confirmed, Disney+ and Marvel have officially announced that a fourth season of X-Men '97 is officially in development.
+---------
+
+# ‘Star Trek: Strange New Worlds’ Almost Killed Off This Fan-Favorite Character
+
+TV Features, Star Trek: Strange New Worlds, Carol Kane, Akiva Goldsman, Paramount Plus
+
+Fri, 24 Jul 2026 22:34:14 GMT
+
+https://collider.com/star-trek-strange-new-worlds-almost-killed-fan-favorite-character-pelia/
+
+On a panel, Star Trek: Strange New Worlds co-showrunner Akiva Goldsman revealed a scrapped episode idea that would have killed Pelia (Carol Kane.)
+---------
+
+# 20 Years Later, This Remains the Most Perfect R-Rated Sci-Fi Movie of All Time
+
+Movie Features, Children of Men, Clive Owen, Julianne Moore, Alfonso Cuaron
+
+Fri, 24 Jul 2026 22:19:14 GMT
+
+https://collider.com/children-of-men-best-dystopian-sci-fi-movie/
+
+Children of Men envisions a dystopian future where infertility has brought the world to its knees in a story frighteningly close to reality.
+---------
+
+# 'The Mandalorian and Grogu' Gets Official New Bounty Hunter-Sized Release [Exclusive]
+
+Movie News, The Mandalorian and Grogu, Action Figures, Star Wars, Jeremy Allen White
+
+Fri, 24 Jul 2026 22:00:14 GMT
+
+https://collider.com/star-wars-the-mandalorian-and-grogu-rotta-the-hutt-action-figures/
+
+Hasbro's Vintage Collection features Rotta the Hutt and Imperial Remnant Warlord with INT-4 Interceptor, as seen in The Mandalorian and Grogu.
+---------
+
+# The Greatest Sci-Fi Masterpiece of All Time Is Free to Watch and Feels More Relevant Than Ever
+
+Movie Features, The Matrix, Keanu Reeves, Lawrence Fishburne, Sci-Fi
+
+Fri, 24 Jul 2026 21:59:14 GMT
+
+https://collider.com/the-matrix-sci-fi-masterpiece-ai-commentary/
+
+The Matrix is a classic sci-fi movie far ahead of its time about the dangers of being reliant on artificial intelligence.
+---------
+
+# Harry Potter Gets Name-Dropped in New Footage for HBO Max's 'Lanterns'
+
+TV News, Lanterns, DC Comics, Kyle Chandler, Aaron Pierre
+
+Fri, 24 Jul 2026 21:53:57 GMT
+
+https://collider.com/dc-lanterns-footage-description/
+
+Shortly after dropping the newest trailer, Lanterns has also debuted several new clips that tease what's to come in the HBO Max sci-fi series.
+---------
+
+# 3 Beloved Movies To Watch on Prime Video This Weekend (July 25-26)
+
+Movie, Bones and All, The Wolf of Wall Street, The Wild Robot, Prime Video
+
+Fri, 24 Jul 2026 21:48:14 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-july-25-2026/
+
+The Wolf of Wall Street, Bones and All, and The Wild Robot make up our list of the best Prime Video movies to watch the weekend of July 25th, 2026.
+---------
+
+# The Fate of 'Interview With the Vampire' Officially Confirmed After 3 Seasons
+
+TV News, The Vampire Lestat, Interview with the Vampire, AMC+, Queen of the Damned, Horror
+
+Fri, 24 Jul 2026 22:25:46 GMT
+
+https://movieweb.com/interview-with-the-vampire-season-4-renewal/
+
+We're getting another season of the series, though it's changing titles to 'Queen of the Damned.'
+---------
+
+# Final Season of Hit 'The Walking Dead' Spin-Off Sets Release Window
+
+TV News, The Walking Dead: Daryl Dixon, Norman Reedus
+
+Fri, 24 Jul 2026 22:12:31 GMT
+
+https://movieweb.com/the-walking-dead-daryl-dixon-season-4-release/
+
+One of the spin-off series from 'The Walking Dead' universe has set a release window for its final season.
+---------
+
+# Forget 'The Odyssey,' Zack Snyder's New #1 Smash Hit Fantasy Action Epic Dominates Streaming
+
+Movie News, 300, Hot on Streaming, Zack Snyder
+
+Fri, 24 Jul 2026 22:00:12 GMT
+
+https://movieweb.com/300-streaming-hit-vod-vudu-july-2026/
+
+Snyder vs. Nolan, who is your pick?
+---------
+
+# New 'Indiana Jones' Series Officially Announced After 'Dial of Destiny' Flopped
+
+Movie News, Indiana Jones, Indiana Jones and the Dial of Destiny
+
+Fri, 24 Jul 2026 21:54:44 GMT
+
+https://movieweb.com/indiana-jones-comic-series-raiders-of-the-lost-ark/
+
+Indiana Jones and the Sword of Pandemonium, a new comic series, will continue the archaeologist's adventures, set after 'Raiders of the Lost Ark.'
+---------
+
+# Paramount Drops Bombshell Decision as Warner Bros. Merger Faces Major Hurdle
+
+Movie News, Paramount Plus, HBO Max
+
+Fri, 24 Jul 2026 21:10:54 GMT
+
+https://movieweb.com/paramount-warner-bros-merger-delay-trial-antitrust/
+
+Paramount agrees to delay the merger until after an antitrust trial.
+---------
+
 # Blade Runner: Replicant Rebellion Is The Sequel We Never Expected
 
 Gaming, Blade Runner, tabletop games
@@ -5133,367 +5496,4 @@ Thu, 23 Jul 2026 15:07:15 GMT
 https://screenrant.com/crunchyroll-assassination-classroom-anime-movie-return/
 
 One of Shonen Jump's best anime of recent years has confirmed that its new release celebrating its 10th anniversary is dropping on Crunchyroll today.
----------
-
-# Exclusive: Hasbro Releases New G.I. Joe Inspired Music Video
-
-Exclusive, G.I. Joe, San Diego Comic-Con
-
-Thu, 23 Jul 2026 15:07:07 GMT
-
-https://screenrant.com/gi-joe-band-music-video-cobra-island-sdcc-2026/
-
-ScreenRant can exclusively reveal the new music video from the G.I. Joe inspired band Cold Slither, before their performance at San Diego Comic-Con.
----------
-
-# Tom Holland Directly Addresses Jean Grey Rumors For Spider-Man: Brand New Day
-
-Movies, Spider-Man: Brand New Day
-
-Thu, 23 Jul 2026 15:05:25 GMT
-
-https://screenrant.com/spider-man-brand-new-day-tom-holland-jean-grey-rumors/
-
-Spider-Man: Brand New Day is introducing some new characters to the MCU, and Tom Holland has finally addressed the rumors of Jean Grey's introduction.
----------
-
-# Halo: Campaign Evolved - How To Get The Game's Rarest Achievement
-
-Gaming, Halo: Campaign Evolved
-
-Thu, 23 Jul 2026 15:05:11 GMT
-
-https://screenrant.com/halo-campaign-evolved-this-is-my-ship-now-guide/
-
-If you're trying to figure out how to get this somewhat frustrating trophy or achievement, we've got you covered.
----------
-
-# Tyrese Gibson & Harvey Keitel Face Off In Kill Code Clip
-
-Exclusive, Tyrese Gibson
-
-Thu, 23 Jul 2026 15:00:11 GMT
-
-https://screenrant.com/video/kill-code-movie-tyrese-gibson-harvey-keitel-clip/
-
-Exclusive: ScreenRant presents a clip from Kill Code, Justin Price's new action thriller starring Frank Grillo, Tyrese Gibson, and Harvey Keitel.
----------
-
-# Halo: Campaign Evolved - Complete Weapons Guide
-
-Gaming, Halo: Campaign Evolved, Halo
-
-Thu, 23 Jul 2026 15:00:11 GMT
-
-https://screenrant.com/halo-campaign-evolved-complete-weapons-guide/
-
-There are more guns than ever before in Halo: Campaign Evolved, so we've broken down every one of them so you can choose your playstyle.
----------
-
-# Star Trek: Lower Decks Returns in Less Than Two Months
-
-Comics, Star Trek, Star Trek Lower Decks
-
-Thu, 23 Jul 2026 15:00:11 GMT
-
-https://screenrant.com/star-trek-lower-decks-returns/
-
-They're back!
----------
-
-# The Best PS2 Game Is a 10/10 Masterpiece 21 Years Later
-
-Games, PlayStation 2, God of War
-
-Thu, 23 Jul 2026 15:30:14 GMT
-
-https://www.cbr.com/best-ps2-game-perfect-masterpiece-god-of-war/
-
-The PS2's best game has only gotten better with age.
----------
-
-# 5 Perfect 2020s Anime Series Everyone Already Forgot About
-
-Anime, Shojo, A Sign of Affection
-
-Thu, 23 Jul 2026 15:15:14 GMT
-
-https://www.cbr.com/perfect-forgotten-2020s-anime-series/
-
-Some of the best new-gen anime of the 2020s have already been forgotten by fans.
----------
-
-# Criminal Minds Season 19 Finale Officially Confirms Major Character Exit
-
-TV, Criminal Minds, Crime, Paramount Plus
-
-Thu, 23 Jul 2026 15:12:21 GMT
-
-https://www.cbr.com/criminal-minds-season-19-finale-zack-gilford-voit-exit/
-
-It's time to say goodbye to a major Criminal Minds character.
----------
-
-# Tag Returns as a Streaming Hit 8 Years Later
-
-Movies, Tag, Comedy, HBO Max
-
-Thu, 23 Jul 2026 15:00:15 GMT
-
-https://www.cbr.com/tag-comedy-streaming-success-hbo-max-july-2026/
-
-An underrated eight-year-old comedy starring Jeremy Renner and Jon Hamm is rising on the streaming charts once again.
----------
-
-# 5 Ways Dragon Ball's Saiyans Are Different From Humans
-
-Anime, Dragon Ball, Super saiyan
-
-Thu, 23 Jul 2026 15:00:15 GMT
-
-https://www.cbr.com/dragon-ball-ways-saiyans-different-from-humans/
-
-Saiyans and humans represent many of Dragon Ball's most important characters, but there are some fundamental differences between these two groups.
----------
-
-# The Big Bang Theory's New Spinoff Sets a New Rotten Tomatoes Record
-
-TV, Stuart Fails to Save the Universe, Rotten Tomatoes, The Big Bang Theory
-
-Thu, 23 Jul 2026 14:52:26 GMT
-
-https://www.cbr.com/stuart-fails-to-save-the-universe-rotten-tomatoes-score/
-
-The new spinoff is nothing unlike the franchise so far.
----------
-
-# The Vampire Lestat Is A Horror Masterpiece That Just Set a New Standard for Vampire TV
-
-TV, The Vampire Lestat, Interview with the Vampire, Horror
-
-Thu, 23 Jul 2026 14:31:14 GMT
-
-https://www.cbr.com/the-vampire-lestat-new-vampire-tv-standard/
-
-Many television shows have included vampires in their episodes, but The Vampire Lestat sets a new standard for vampire representation in horror.
----------
-
-# 10 Most Universally Beloved Western Movies Of All Time, Ranked
-
-Movies, Western
-
-Thu, 23 Jul 2026 14:30:15 GMT
-
-https://www.cbr.com/most-beloved-western-movies-list/
-
-The Western has a proud legacy in cinema, serving up a strong assortment of films praised by fans and critics alike.
----------
-
-# 10 Near-Perfect Anime Turning 20 In 2026
-
-Anime, Code Geass: Lelouch of the Rebellion, Death Note, Gintama
-
-Thu, 23 Jul 2026 14:15:14 GMT
-
-https://www.cbr.com/near-perfect-anime-turning-20-in-2026/
-
-2006 was a magical time for the anime medium, and 20 years later, these ten series continue to capture the hearts of audiences globally.
----------
-
-# Square Enix Officially Surprises Fans With New Final Fantasy Game on Switch 2Final Fantasy X/X-2 Receive New Edition To Celebrate 25th Anniversary
-
-Games, Final Fantasy, Final Fantasy X|X-2 HD Remaster, Nintendo
-
-Thu, 23 Jul 2026 14:06:14 GMT
-
-https://www.cbr.com/final-fantasy-10-new-edition-25th-anniversary-nintendo-switch-2/
-
-Final Fantasy X/X-2 is coming to a brand-new platform to celebrate its 25th anniversary, with a surprise drop for a Nintendo Switch 2 port.
----------
-
-# Netflix Officially Debuts First Look at Adam Sandler's New Musical Dramedy
-
-Movie News, Adam Sandler, Melanie Lynskey, Netflix, Max Greenfield
-
-Thu, 23 Jul 2026 15:07:52 GMT
-
-https://collider.com/dont-say-good-luck-trailer-sunny-sandler-adam-sandler-producing-netflix/
-
-Netflix debuted the trailer for the Adam Sandler-produced Don't Say Good Luck, following Sunny Sandler as a teen torn between tragedy and the stage.
----------
-
-# 'Supergirl' Flies Onto Digital With Epic New Behind the Scenes Look [Exclusive]
-
-Movie News, Supergirl, DC Comics, Milly Alcock, Craig Gillespie
-
-Thu, 23 Jul 2026 15:00:15 GMT
-
-https://collider.com/supergirl-digital-4k-release-date-behind-the-scenes-video/
-
-Supergirl hits home video next week, and Collider has a special sneak peek of its behind-the-scenes special features. Watch it now.
----------
-
-# 'Half Man's Jamie Bell Officially Returns in First Look at Twisted New Satirical Comedy [Exclusive]
-
-Movie News, Rosebush Pruning, Jamie Bell, Riley Keough, Callum Turner
-
-Thu, 23 Jul 2026 15:00:15 GMT
-
-https://collider.com/rosebush-pruning-movie-first-look-jamie-bell/
-
-Collider has a sneak peek of the new satirical comedy Rosebush Pruning, with Jamie Bell and Callum Turner. Watch it now.
----------
-
-# ‘Resident Evil’ Officially Returns With a Terrifying New Trailer
-
-Movie News, Resident Evil, Zach Cregger, Austin Abrams, Paul Walter Hauser
-
-Thu, 23 Jul 2026 14:59:07 GMT
-
-https://collider.com/resident-evil-zach-cregger-first-trailer-austin-abrams/
-
-Watch the first full trailer for Zach Cregger’s Resident Evil, starring Austin Abrams and arriving in theaters September 18, 2026.
----------
-
-# 'Lanterns' Teaser Offers Action-Packed at DCU's Next Chapter
-
-TV News, Lanterns
-
-Thu, 23 Jul 2026 15:27:46 GMT
-
-https://movieweb.com/lanterns-teaser-hbo-max/
-
-DC Studis sets the stage for some exciting Green Lantern action in a new teaser for the upcoming 'Lanterns' series.
----------
-
-# 30 Years Later, Adam Sandler's Criminally Underrated Action Caper Sets New Release
-
-Movie News, Bulletproof, Adam Sandler
-
-Thu, 23 Jul 2026 15:22:20 GMT
-
-https://movieweb.com/adam-sandler-bulletproof-4k-blu-ray-release/
-
-Kino Lorber are preparing a 4K Blu-ray and Blu-ray release of 'Bulletproof,' Adam Sandler's criminally underrated action-comedy with Damon Wayans.
----------
-
-# Netflix's New 96-Minute Action Thriller Crowned One of the Biggest Hits on Streaming
-
-Movie News, Action, Thriller, Sniper, Sniper: The Last Stand, Netflix
-
-Thu, 23 Jul 2026 15:00:12 GMT
-
-https://movieweb.com/netflix-sniper-no-nation-biggest-action-thriller-streaming-july-2026/
-
-No flag, no backup, and no mercy.
----------
-
-# The 10 Best Comic Strips From the '80s (Including The Far Side)
-
-Movie Lists, The Far Side
-
-Thu, 23 Jul 2026 15:00:12 GMT
-
-https://movieweb.com/the-far-side-best-strips-from-the-80s/
-
-The '80s saw the comic strip at its height of new and exciting series making a name for themselves; these ten strips prove it.
----------
-
-# Alan Ritchson Hails His New Action Thriller as "Shakespearean" as It Tackles Today's Injustice
-
-Movie News, Motor City, Alan Ritchson
-
-Thu, 23 Jul 2026 14:41:26 GMT
-
-https://movieweb.com/alan-ritchson-motor-city-shakespearean-action/
-
-'Reacher' and 'Fast X' star Alan Ritchson shares his excitement to see a new story with similarities to today's world in his newest movie.
----------
-
-# 5 Years Later, Tom Holland Confirms Long-Delayed Passion Project Is Next After 'Spider-Man'
-
-Movie News, Fred Astaire, Tom Holland
-
-Thu, 23 Jul 2026 14:22:10 GMT
-
-https://movieweb.com/tom-holland-fred-astaire-biopic-movie-update/
-
-Tom Holland says his long-delayed Fred Astaire biopic is next after 'Spider-Man: Brand New Day', with Paul King directing and rehearsals underway.
----------
-
-# Classic Dracula Story Gets a Modern Reboot With Star-Studded Cast
-
-Movie News, Dracula
-
-Thu, 23 Jul 2026 14:18:57 GMT
-
-https://movieweb.com/dracula-reboot-audible-jonathan-bailey/
-
-Jonathan Bailey has been cast as the voice of Count Dracula.
----------
-
-# 29 Years Later, Star Trek Finally Beats the Franchise's Best Movie
-
-Features, star trek: strange new worlds, Star Trek, Star Trek: First Contact
-
-Thu, 23 Jul 2026 14:01:12 GMT
-
-https://movieweb.com/star-trek-first-contact-beaten/
-
-'Star Trek: First Contact' changed the game for the franchise in 1996. Almost 30 years later, 'Strange New Worlds' has done it again. Read on.
----------
-
-# 'Resident Evil' Trailer Brings the Video Game Survival Nightmare to Live-Action
-
-Movie News, Resident Evil
-
-Thu, 23 Jul 2026 13:44:04 GMT
-
-https://movieweb.com/resident-evil-zach-cregger-trailer/
-
-'Weapons' director Zack Cregger jumps into another addition to the hit video game movie franchise, 'Resident Evil,' with a new trailer.
----------
-
-# Jason Statham's Next 95-Minute Action Thriller Hit Officially Releases in 1 Month
-
-Movie News, Jason Statham, Mutiny, Action, Thriller
-
-Thu, 23 Jul 2026 13:30:03 GMT
-
-https://movieweb.com/jason-statham-muntiny-trailer-release-action-thriller/
-
-Vengeance starts here.
----------
-
-# Marvel Officially Announces New Codename for X-Men's Gambit
-
-Comics, X-Men
-
-Thu, 23 Jul 2026 13:18:28 GMT
-
-https://screenrant.com/x-men-gambit-new-codename-wyvern/
-
-Here's why Marvel is making the change.
----------
-
-# Superman Dying Request Proves He's the Greatest Superhero of All Time (Sorry, Batman)
-
-Comics, Superman
-
-Thu, 23 Jul 2026 13:15:11 GMT
-
-https://screenrant.com/superman-best-superhero-better-batman/
-
-A new development is giving Superman fans fresh ammunition in the ongoing argument over why the Man of Steel may ultimately be the better than Batman.
----------
-
-# Pokémon Fans Are In Love With Piplup's Regal New Evolution
-
-Gaming, Pokemon, Pokemon Diamond and Pearl
-
-Thu, 23 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/pokemon-diamond-pearl-leaks-piplup-alternate-evolution/
-
-There's no doubt that Piplup is one of the most adorable Pokémon ever, and a new evolution has emerged that fans are delighted by.
 ---------
