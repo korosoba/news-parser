@@ -1,3 +1,223 @@
+# Legend Of Zelda's First Original Switch 2 Game Officially Teased
+
+Gaming, The Legend of Zelda, Nintendo Switch 2
+
+Fri, 24 Jul 2026 11:30:11 GMT
+
+https://screenrant.com/legend-of-zelda-switch-2-totk-successor-updates/
+
+The Switch 2 is yet to get a dedicated Legend of Zelda game that tests the hardware, but that will change at some point.
+---------
+
+# 24 Years Later, Nathan Fillion Is Playing The Opposite Of His Firefly Role
+
+Streaming TV, Masked Recs
+
+Fri, 24 Jul 2026 11:30:11 GMT
+
+https://screenrant.com/24-years-later-nathan-fillion-is-flipping-his-firefly-role-on-its-head/
+
+Nathan Fillion rose to fame by playing Mal on Firefly, and over two decades later, he's playing an entirely different kind of sci-fi hero in Lanterns.
+---------
+
+# Criminal Minds Star Officially Leaving After 4 Seasons
+
+TV, Criminal Minds
+
+Fri, 24 Jul 2026 11:15:11 GMT
+
+https://screenrant.com/criminal-minds-elias-voit-zach-gilford-exit/
+
+After a twist-laden season, an original cast member of Criminal Minds: Evolution is officially leaving the hit Paramount+ thriller series.
+---------
+
+# Bloodborne PS5 Remaster And Sequel Get Long-Awaited Update
+
+Gaming, Bloodborne
+
+Fri, 24 Jul 2026 11:00:11 GMT
+
+https://screenrant.com/bloodborne-ps5-remaster-sequel-shuhei-yoshida/
+
+Former Sony President Shuhei Yoshida expresses confusion over the lack of Bloodborne remaster or PC port.
+---------
+
+# Star Trek EPs "Stand At The Ready” For Strange New Worlds Captain Kirk Spinoff
+
+Exclusive, Star Trek, Star Trek: Strange New Worlds
+
+Fri, 24 Jul 2026 11:00:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-kirk-spinoff-showrunners-ready/
+
+Exclusive: Star Trek: Strange New Worlds' executive producers say they are ready to start work on the Star Trek: Year One spinoff if Paramount+ calls.
+---------
+
+# Who is THAT In Silo Season 3 Episode 4’s Ending?
+
+Streaming TV, Silo, Silo - Season 3
+
+Fri, 24 Jul 2026 10:33:35 GMT
+
+https://screenrant.com/silo-season-3-episode-4-ending-bernard-alive/
+
+Silo season 3’s episode 4 ends with a shocking revelation that reveals the fate of one of the most crucial characters in the Apple TV sci-fi series.
+---------
+
+# 15 Funniest Far Side Comics Featuring Chickens, Ranked
+
+Comics, The Far Side
+
+Fri, 24 Jul 2026 11:00:15 GMT
+
+https://www.cbr.com/funniest-far-side-comics-with-chickens-ranked/
+
+Creator Gary Larson has used all kinds of animals to make fans laugh in the usually hilarious one-panel comics, with quite a few starring chickens.
+---------
+
+# The Best Rock Music Video of the ‘90s
+
+Music Features, Rock, Music
+
+Fri, 24 Jul 2026 11:58:14 GMT
+
+https://collider.com/the-cranberries-zombie-music-video-90s-rock/
+
+Irish alternative rock band The Cranberries had the best music video of the '90s with protest anthem "Zombie", reaching a billion views
+---------
+
+# 6 Most Universally Loved Romance Movies Based on Books, Ranked
+
+Movie, Pride and Prejudice, Crazy Rich Asians, The Princess Bride, Romance
+
+Fri, 24 Jul 2026 11:58:14 GMT
+
+https://collider.com/most-universally-loved-romance-movies-based-on-books-ranked/
+
+The Princess Bride, The Notebook, and Pride & Prejudice are among the most universally loved romantic movies based on books.
+---------
+
+# 10 Greatest Psychological Thrillers of the Last 99 Years
+
+Movie, Psychological Thriller, Oldboy, The Silence of the Lambs, Rear Window
+
+Fri, 24 Jul 2026 11:45:14 GMT
+
+https://collider.com/best-psychological-thrillers-last-99-years-ranked/
+
+Oldboy, The Silence of the Lambs, and The Woman in the Dunes are all among the best psychological thriller movies of the last 99 years.
+---------
+
+# All 8 David Fincher Thrillers, Ranked
+
+Movie, Thriller, The Girl With the Dragon Tattoo, David Fincher, Se7en
+
+Fri, 24 Jul 2026 11:36:14 GMT
+
+https://collider.com/david-fincher-thriller-movies-ranked/
+
+David Fincher has made many exceptional thrillers throughout his career, including Fight Club, Gone Girl, and Se7en, but which is the absolute best?
+---------
+
+# Francis Ford Coppola’s 176-Minute 'The Odyssey' Dominates the Digital Charts
+
+Movie News, The Odyssey, Francis Ford Coppola, Christopher Nolan
+
+Fri, 24 Jul 2026 11:30:15 GMT
+
+https://collider.com/francis-ford-coppola-the-odyssey-1997-streaming-success-itunes-july-2026/
+
+A 1997 adaptation of Homer's The Odyssey, produced by Francis Ford Coppola, is having a resurgence following the release of Christopher Nolan's film.
+---------
+
+# 10 Greatest HBO TV Masterpieces of the 21st Century, Ranked
+
+TV, HBO, Game Of Thrones, The Pitt, Succession
+
+Fri, 24 Jul 2026 11:22:14 GMT
+
+https://collider.com/best-hbo-shows-modern-masterpieces-ranked/
+
+Explore the greatest HBO TV masterpieces of the 21st century that have redefined television drama, from Game of Thrones to The Wire.
+---------
+
+# 6 Forgotten R-Rated War Movies That Are Amazing From Start to Finish
+
+Movie, War, A Midnight Clear, Cross of Iron, Hamburger Hill
+
+Fri, 24 Jul 2026 11:21:14 GMT
+
+https://collider.com/forgotten-r-rated-war-movies-amazing/
+
+From Cross of Iron to Hamburger Hill, these overlooked war films deliver brutal combat and unforgettable stories.
+---------
+
+# 10 Most Subversive Action Movies of All Time
+
+Movie, Action, Terminator 2: Judgment Day, The Dark Knight, Kill Bill: Vol. 1
+
+Fri, 24 Jul 2026 11:07:14 GMT
+
+https://collider.com/most-subversive-action-movies-ranked/
+
+From The Matrix' to The Dark Knight, these action films shattered expectations and rewrote what the genre could achieve.
+---------
+
+# Robert Kirkman Reveals Massive Long-Term Future for the Energon Universe [Exclusive]
+
+Books and Comics News, Robert Kirkman, Transformers, G.I. Joe, SDCC
+
+Fri, 24 Jul 2026 11:00:15 GMT
+
+https://collider.com/robert-kirkman-energon-universe-plans/
+
+Robert Kirkman reveals his hopes for the Energon Universe, likening his plans for the Transformers multi-media story to Marvel and DC.
+---------
+
+# 7 Forgotten '80s Sitcoms That Have Aged Like Milk
+
+TV, Sitcom, 1980s, Married... With Children, Mama's Family
+
+Fri, 24 Jul 2026 10:47:15 GMT
+
+https://collider.com/forgotten-80s-sitcoms-aged-like-milk/
+
+Time hasn't been so kind to forgotten '80s sitcoms like Married... with Children, with their reputation growing worse with each passing year.
+---------
+
+# Anne Hathaway's 112-Minute R-Rated Thriller Smashes Onto Streaming Next Month
+
+Movie News, Anne Hathaway, Mother Mary, Coming/Leaving Streaming, Thriller
+
+Fri, 24 Jul 2026 11:00:12 GMT
+
+https://movieweb.com/mother-mary-anne-hathaway-thriller-streaming-hbo-max-august-2026/
+
+As everyone gears up for the premiere of 'The End of Oak Street,' one of Hathaway's earlier 2026 releases finally has a streaming date.
+---------
+
+# Apple TV's Best Hard Sci-Fi Series Delivers the Plot Twist Everyone Wanted
+
+Features, Silo
+
+Fri, 24 Jul 2026 11:00:12 GMT
+
+https://movieweb.com/silo-season-3-plot-twist-bernard/
+
+Apple TV has released some incredible sci-fi series, and the best sci-fi show just delivered a plot twist fans were hoping for.
+---------
+
+# 'The Lord of the Rings' Nazgul Retcon Explained by 'Rings of Power' Showrunner
+
+TV News, The Lord of the Rings: The Rings of Power, Prime Video
+
+Fri, 24 Jul 2026 10:56:12 GMT
+
+https://movieweb.com/lord-of-the-rings-rings-of-power-nazgul-retcon-explained/
+
+'The Rings of Power' Season 3 will feature a proto-Nazgul.
+---------
+
 # Big Brother 28: Week 3 Head of Household (HOH) Results (SPOILERS)
 
 Reality TV, Big Brother
@@ -5276,224 +5496,4 @@ Wed, 22 Jul 2026 20:30:14 GMT
 https://www.cbr.com/best-fantasy-movie-battles-ever-list/
 
 Fantasy movies often have the best battles, but these sequences stand above all the rest.
----------
-
-# 7 Classic Shonen Anime Every New Fan Needs to Watch at Least Once
-
-Anime, shonen anime, Yu Yu Hakusho, Dragon Ball Z, Naruto
-
-Wed, 22 Jul 2026 20:15:14 GMT
-
-https://www.cbr.com/classic-shonen-anime-every-new-fan-needs-to-watch/
-
-Classic shonen anime like Yu Yu Hakusho, Naruto, and Ranma 1/2 helped establish many tropes that now define this action-packed brand of storytelling.
----------
-
-# Pokémon Leak Finally Reveals 100 Never-Before-Seen Designs After 20 Years
-
-Games, Pokemon, Pokemon Diamond and Pearl, Nintendo
-
-Wed, 22 Jul 2026 20:11:14 GMT
-
-https://www.cbr.com/pokemon-diamond-pearl-leak-documentary-cut-designs/
-
-A leaked documentary produced during the development of Pokémon Diamond & Pearl has surfaced online, revealing over 100 never-before-seen designs.
----------
-
-# LEGO Officially Shuts Down 2 Avatar: The Last Airbender Sets
-
-Anime, Avatar: The Last Airbender, LEGO
-
-Wed, 22 Jul 2026 20:06:14 GMT
-
-https://www.cbr.com/lego-avatar-the-last-airbender-shut-down-july-2026/
-
-Two Avatar: The Last Airbender LEGO sets have officially been rejected despite achieving 10,000 supporters and reaching the Review stage.
----------
-
-# The Rings of Power Season 3 Casts Galadriel's Missing Husband After 2 Seasons
-
-TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Prime Video
-
-Wed, 22 Jul 2026 20:00:36 GMT
-
-https://www.cbr.com/lotr-the-rings-of-power-celeborn-jamie-campbell-bower/
-
-A key figure from The Lord of the Rings finall arrive in The Rings of Power
----------
-
-# In Just 1 Day, Universal's $533M Culmination to Hit Fantasy Franchise Turns Into Netflix Streaming Sensation
-
-Movies, Wicked: For Good, Wicked
-
-Wed, 22 Jul 2026 20:00:14 GMT
-
-https://www.cbr.com/wicked-for-good-fantasy-netflix-success-july-2026/
-
-The franchise grossed $1.2 billion and was a hit with audiences.
----------
-
-# 5 Great Detective Shows Nobody's Talked About in Years
-
-TV, Crime, Dirk Gently's Holistic Detective Agency, The Chicago Code
-
-Wed, 22 Jul 2026 19:48:18 GMT
-
-https://www.cbr.com/best-forgotten-detective-shows-list/
-
-These exceptional detective shows have flown under the radar, but they offer gripping mysteries and compelling characters that deserve a second look.
----------
-
-# Prime Video Orders New 8-Part Horror Series Based on Comic Book From Invincible's Publisher
-
-TV, Prime Video, Horror, Drama
-
-Wed, 22 Jul 2026 19:26:30 GMT
-
-https://www.cbr.com/prime-video-horror-series-comic-book-adaptation-stillwater/
-
-Prime Video has given the greenlight to Stillwater, a new horror series based on a comic book.
----------
-
-# Chrono Trigger Meets Classic Final Fantasy in New RPG You Can Play for Free
-
-Games, Chrono Trigger, Final Fantasy, Dark Souls
-
-Wed, 22 Jul 2026 19:15:14 GMT
-
-https://www.cbr.com/chrono-trigger-meets-classic-final-fantasy-new-free-to-play-rpg/
-
-RPG fans who love Final Fantasy and Chrono Tigger absolutely must play the newest free entry into the genre.
----------
-
-# 10 Heist Movies Worth Watching Over and Over
-
-Movie, Bullet Train, Inception, Ocean's Eleven, Inside Man
-
-Wed, 22 Jul 2026 20:28:14 GMT
-
-https://collider.com/heist-movies-worth-rewatching/
-
-Bullet Train, Ocean's Eleven, Thelma & Louise, Inception, and more make up our list of heist movies worth watching over and over.
----------
-
-# Jake Johnson Reveals How He Inspired 'Drunk History' in Teaser for Mythical Kitchen's New Series [Exclusive]
-
-Exclusives, The Dink, Drunk History, Jake Johnson, YouTube
-
-Wed, 22 Jul 2026 20:15:03 GMT
-
-https://collider.com/jake-johnson-drunk-history-breaking-down-a-career-in-5-dishes-sneak-peek-mythical-kitchen/
-
-A new sneak peek from the latest episode of Mythical Kitchen's new series sees Jake Johnson reflecting on the origins of Drunk History. See it here!
----------
-
-# 10 Greatest Gimmick Pokémon
-
-TV, Pokémon, Anime, Video Game, Adventure
-
-Wed, 22 Jul 2026 20:05:14 GMT
-
-https://collider.com/best-gimmick-pokemon-ranked/
-
-Great Pokémon like Shedinja, Mimikyu, and Eevee have unique gimmicks that separate them from all others, giving them a distinct edge in the franchise.
----------
-
-# 'Incredibles 3' Officially Confirms Pixar Is Doubling Down on a Divisive Trend
-
-Movie News, Incredibles 3, Brad Bird, Animation, Pixar
-
-Wed, 22 Jul 2026 19:21:35 GMT
-
-https://collider.com/incredible-3-first-plot-details-no-time-jump-brad-bird/
-
-Incredibles creator Brad Bird officially confirms that the upcoming third movie will not age up its characters despite the long gap between movies.
----------
-
-# 25 Years Later, ‘Harry Potter’ Is Heading Back to Hogwarts in a Major Way Ahead of HBO Reboot
-
-TV Features, Harry Potter, Harry Potter and the Sorcerer's Stone, HBO Max, Wizarding World
-
-Wed, 22 Jul 2026 19:08:14 GMT
-
-https://collider.com/harry-potter-hbo-reboot-sorcerers-stone-25-anniversary-celebration-details/
-
-Back to Hogwarts 2026 is more than a fan celebration — it’s Warner Bros.’ first major step toward relaunching Harry Potter ahead of HBO’s reboot.
----------
-
-# Taylor Sheridan's Hit 'Yellowstone' Spin-Off Officially Sets New Release for August 25
-
-TV News, Marshals, Taylor Sheridan, Luke Grimes, CBS
-
-Wed, 22 Jul 2026 19:00:42 GMT
-
-https://collider.com/taylor-sheridan-yellowstone-spin-off-marshals-blu-ray-release-date-august-25/
-
-Taylor Sheridan's mega-hit Yellowstone spin-off Marshals is officially returning this August with a brand-new release.
----------
-
-# New 'Family Guy' Spin-Off Centered on Comedy Icon Officially Sets Voice Cast
-
-TV News, Family Guy, Kenan Thompson
-
-Wed, 22 Jul 2026 20:29:08 GMT
-
-https://movieweb.com/family-guy-stewie-spin-off-cast/
-
-The latest spin-off of 'Family Guy' now has an exciting list of cast members confirmed for voiceover roles.
----------
-
-# Sacha Baron Cohen's New 'Ali G' Movie Officially Sets Release Date
-
-Movie News, Sacha Baron Cohen
-
-Wed, 22 Jul 2026 20:23:06 GMT
-
-https://movieweb.com/sacha-baron-cohen-new-ali-g-movie-release-date/
-
-The streetwear-clad character first debuted in British TV in 1998.
----------
-
-# Forget 'Reacher,' This Bingeworthy 2-Season Crime Thriller Alternative Is a Global Streaming Hit
-
-TV News, Cross, Hot on Streaming, Crime, Thriller
-
-Wed, 22 Jul 2026 20:01:12 GMT
-
-https://movieweb.com/cross-global-streaming-hit-paramount-july-2026/
-
-It's not the first time you've seen this character brought to life, but it's certainly the best version yet.
----------
-
-# Jason Statham Goes Full 'Die Hard' in New Look at Latest Action Thriller
-
-Movie News, Mutiny, Jason Statham
-
-Wed, 22 Jul 2026 19:57:26 GMT
-
-https://movieweb.com/jason-statham-die-hard-mutiny-poster/
-
-A new poster for 'Mutiny' parodies the iconic poster for 'Die Hard.'
----------
-
-# Alan Ritchson's Unique New Action Thriller Releases With Solid Rotten Tomatoes Score
-
-Movie News, Motor City, Alan Ritchson
-
-Wed, 22 Jul 2026 19:50:40 GMT
-
-https://movieweb.com/motor-city-alan-ritchson-solid-rotten-tomatoes-score/
-
-The newest visceral action film starring the 'Reacher' actor has received a new batch of reviews.
----------
-
-# Lucky: The Heist Hides Her Real Problem
-
-TV, Originals, Lucky
-
-Wed, 22 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/video/lucky-the-heist-hides-her-real-problem/
-
-Lucky Review: Anya Taylor-Joy's Perfect Con Artist. Apple TV+'s Lucky drops Anya Taylor-Joy into the role she seems almost genetically engineered to play: a master manipulator who suddenly finds herself trapped inside someone else's game.
 ---------
