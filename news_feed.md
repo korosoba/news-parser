@@ -1,3 +1,388 @@
+# Netflix Just Found Its Next Stranger Things In Unexpected New Dark Fantasy Series
+
+TV, Netflix, Stranger Things, Masked Recs
+
+Fri, 24 Jul 2026 01:30:11 GMT
+
+https://screenrant.com/netflix-the-east-palace-dark-fantasy-next-stranger-things/
+
+One may not expect a period dark fantasy series to hit similar notes as Netflix's Stranger Things, but this new show makes a strong case for itself.
+---------
+
+# Star Trek’s Next Movie Reveals New Timeline: What This Means
+
+Comic-Con, Star Trek, Op-Ed
+
+Fri, 24 Jul 2026 01:30:11 GMT
+
+https://screenrant.com/star-trek-new-movie-timeline-when-questions/
+
+Jonathan Goldstein and John Francis Daley, the writers of the next Star Trek movie, drop a hint about its timeline that raises new questions.
+---------
+
+# First Ebenezer Trailer Reveals Johnny Depp's Haunting, Yet Comedic Take On Scrooge
+
+Movies, Ebenezer, Johnny Depp
+
+Fri, 24 Jul 2026 01:25:39 GMT
+
+https://screenrant.com/ebenezer-trailer-johnny-depp-paramount-pictures/
+
+The first trailer for Paramount Pictures' adaptation of A Christmas Carol Ebenezer spotlights Johnny Depp's unique portrayal of Scrooge.
+---------
+
+# Chris Hemsworth's Extraction 3 Officially Begins Filming With First Look Revealed
+
+Movies, Extraction 3
+
+Fri, 24 Jul 2026 01:04:53 GMT
+
+https://screenrant.com/cextraction-3-filming-begins-set-photo-chris-hemsworth/
+
+Chris Hemsworth confirms that his upcoming film, Extraction 3, has officially started filming after he posted a first look photo on social media.
+---------
+
+# The Horror Intensity In James Gunn's New R-Rated DC Movie With Batman Villain Revealed By Director
+
+Movies, Clayface, San Diego Comic-Con
+
+Fri, 24 Jul 2026 01:00:16 GMT
+
+https://screenrant.com/james-gunn-clayface-movie-horror-intensity-james-watkins-sdcc-2026/
+
+Exclusive: Clayface director James Watkins clarified just how intense the horror elements in the upcoming R-rated DC Universe movie will be.
+---------
+
+# 22 Years Later, Scrubs' Best Episode Is Still Peak TV
+
+Classic TV, Scrubs
+
+Fri, 24 Jul 2026 01:00:11 GMT
+
+https://screenrant.com/scrubs-best-episode-peak-sitcom/
+
+It's hard to pick just one Scrubs episode, but we can't deny that this specific installment completely changed the standards for sitcoms.
+---------
+
+# 5 Great Batman Games Nobody Remembers
+
+Gaming, Batman, Triple-A Games
+
+Fri, 24 Jul 2026 01:00:11 GMT
+
+https://screenrant.com/best-batman-games-nobody-remembers/
+
+There is no shortage of phenomenal Batman video games, and it wouldn't be surprising in the slightest if fans haven't heard or played many of them.
+---------
+
+# Stuart Fails To Save The Universe's Title Sequence Explained: How It Connects To TBBT
+
+Network TV, Stuart Fails to Save the Universe
+
+Fri, 24 Jul 2026 01:00:11 GMT
+
+https://screenrant.com/stuart-fails-to-save-the-universe-title-sequence-explained/
+
+Stuart Fails to Save the Universe's unique title sequence connects to its predecessor, The Big Bang Theory, & the meta humor it brings to the HBO Max.
+---------
+
+# 72 Hours Review: Forgettable Kevin Hart Comedy Wastes Its Cast
+
+New Movies, 72 Hours
+
+Fri, 24 Jul 2026 01:00:11 GMT
+
+https://screenrant.com/72-hours-movie-2026-review/
+
+Though it has some good jokes, especially when letting its stars riff, 72 Hours is poisoned by an uncomfortably bad premise and never recovers.
+---------
+
+# Secret Avatar: The Last Airbender Project Teased By Studio
+
+TV, Avatar: The Last Airbender, San Diego Comic-Con
+
+Fri, 24 Jul 2026 00:12:59 GMT
+
+https://screenrant.com/avatar-the-last-airbender-secret-tv-movie-future-projects/
+
+A secret Avatar: The Last Airbender project has been teased at San Diego Comic-Con, the studio offering details about the series' next chapter.
+---------
+
+# DC Studios' New Joker Actor Confirms What Makes His Batman Villain Different
+
+TV, Batman: Caped Crusader, Joker, San Diego Comic-Con
+
+Fri, 24 Jul 2026 01:48:01 GMT
+
+https://www.cbr.com/batman-caped-crusader-season-2-matthew-needham-new-joker/
+
+Exclusive: The Caped Crusader meets a wildly different Clown Prince of Crime in the hit Batman series.
+---------
+
+# 5 Most Disappointing Time Travel Anime Of All Time
+
+Anime, Amatsuki, 16bit Sensation: Another Layer, Punch Line, Sci-Fi
+
+Fri, 24 Jul 2026 01:45:15 GMT
+
+https://www.cbr.com/worst-time-travel-anime-all-time/
+
+Time travel can be an anime's greatest asset or biggest curse, with some series completely confusing the point.
+---------
+
+# Sauron's 5 Strongest Allies in The Lord of the Rings Trilogy, Ranked
+
+Movies, The Lord of the Rings
+
+Fri, 24 Jul 2026 01:30:15 GMT
+
+https://www.cbr.com/lord-of-the-rings-sauron-strongest-allies-list/
+
+The Dark Lord Sauron commanded Middle-earth's mightiest army in The Lord of the Rings, but some of his minions were more powerful than others.
+---------
+
+# 5 Classic Video Game Franchises Where Every Game Is a Masterpiece
+
+Games, Mass Effect, The Legend of Zelda, BioShock Infinite, Video Games
+
+Fri, 24 Jul 2026 01:30:15 GMT
+
+https://www.cbr.com/masterpiece-classic-video-game-franchises-collections/
+
+It's almost impossible for a multi-entry game franchise to hit a homerun every time, but  franchises like Bioshock & Mass Effect do it effortlessly.
+---------
+
+# 7 Anime Villains Stronger Than Superman
+
+Anime, Bleach, Dragon Ball, Sailor Moon
+
+Fri, 24 Jul 2026 01:00:15 GMT
+
+https://www.cbr.com/anime-villains-stronger-than-superman/
+
+Superman is the Man of Steel, but several anime villains would consider that a challenge
+---------
+
+# Dungeon Crawler Carl Live-Action Series Officially Casts Jeff Hays in New Role
+
+TV, Dungeon Crawler Carl, San Diego Comic-Con
+
+Fri, 24 Jul 2026 00:39:54 GMT
+
+https://www.cbr.com/dungeon-crawler-carl-live-action-jeff-hays-princess-donut/
+
+Dungeon Crawler Carl's critically acclaimed narrator joins Peacock's live-action adaptation in an exciting role.
+---------
+
+# 5 Great Cyberpunk Shows Nobody Remembers
+
+TV, Cyberpunk, Altered Carbon, Blade Runner: Black Lotus, Almost Human
+
+Fri, 24 Jul 2026 00:30:15 GMT
+
+https://www.cbr.com/best-forgotten-cyberpunk-shows-list/
+
+An iconic sci-fi subgenre, cyberpunk stories are hard to adapt, but some forgotten television series made very worthy attempts.
+---------
+
+# Naruto Finally Brings Back Minato With First Look at His New Design
+
+Anime, Naruto
+
+Fri, 24 Jul 2026 00:20:15 GMT
+
+https://www.cbr.com/naruto-mobile-minato-namikaze-jianghu-legend/
+
+Minato Namikaze is reimagined as a wandering ninja in a feuding martial arts world in Naruto's latest official release.
+---------
+
+# 5 American Anime That Were Ahead of Their Time
+
+Anime, Teen Titans, Avatar: The Last Airbender, Sym-Bionic Titan, Samurai Jack, The Boondocks
+
+Fri, 24 Jul 2026 00:15:15 GMT
+
+https://www.cbr.com/american-anime-ahead-of-their-time/
+
+These American animated series took cues from anime years before it became mainstream, proving just how far ahead of the curve they were.
+---------
+
+# The Big Bang Theory Spinoff’s Scrapped Season 1 Storyline Revealed by Creator
+
+TV, Stuart Fails to Save the Universe, San Diego Comic-Con
+
+Fri, 24 Jul 2026 00:00:14 GMT
+
+https://www.cbr.com/the-big-bang-theory-spinoffs-scrapped-season-1-storyline/
+
+The new spinoff features a much bigger scale than The Big Bang Theory, but there were some storylines that made it even crazier.
+---------
+
+# Timothy Olyphant's 6-Season Neo-Western Got Even Better When It Moved Beyond the Book
+
+TV Features, Justified, Timothy Olyphant, Western, FX
+
+Fri, 24 Jul 2026 01:36:14 GMT
+
+https://collider.com/timothy-olyphant-justified-neo-western-better-beyond-the-book/
+
+Timothy Olyphant's Justified evolved from a direct adaptation of Elmore Leonard's Fire in the Hole into a captivating six-season neo-Western.
+---------
+
+# 'Fast and Furious' Icon Admits the Saga Has Officially "Lost Our Way" [Exclusive]
+
+Exclusives, Sung Kang, Fast and Furious, The Fast and the Furious: Tokyo Drift, Fast Forever
+
+Fri, 24 Jul 2026 01:00:15 GMT
+
+https://collider.com/sung-kang-fast-and-furious-lost-our-way-drifter-sdcc/
+
+Sung Kang says Fast & Furious may have “lost our way” and hopes to bring lessons from Drifter back to the final movie.
+---------
+
+# Adria Arjona Reveals James Gunn "Made Me Earn" Her 'Man of Tomorrow' Role [Exclusive]
+
+Exclusives, Adria Arjona, The Belko Experiment, Man of Tomorrow, James Gunn
+
+Fri, 24 Jul 2026 01:00:15 GMT
+
+https://collider.com/adria-arjona-man-of-tomorrow-audition/
+
+Adria Arjona discusses joining James Gunn’s Man of Tomorrow and reuniting with the filmmakers who gave her first movie role.
+---------
+
+# Christopher Nolan’s 'The Odyssey' Drowns Ridley Scott’s Biblical Epic in Just 4 Days at the Box Office
+
+Movie News, Christopher Nolan, The Odyssey, Box Office, Exodus: Gods and Kings
+
+Fri, 24 Jul 2026 01:00:15 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-overtakes-ridley-scott-exodus-gods-and-kings-box-office-264-million/
+
+Christopher Nolan's The Odyssey has overtaken Ridley Scott's Exodus: Gods and Kings in just four days at the box office.
+---------
+
+# 2026’s Record-Breaking Horror Sensation Is Already a Streaming Sleeper Hit
+
+Movie News, Backrooms, A24, Horror, Kane Parsons
+
+Fri, 24 Jul 2026 00:30:15 GMT
+
+https://collider.com/a24-horror-backrooms-streaming-success-vudu-july-2026/
+
+A24's psychological horror film Backrooms, based on the viral YouTube series, is already a streaming sleeper hit after its incredible box office run.
+---------
+
+# HBO Is Officially Fixing One of 'Game of Thrones' Biggest Problems
+
+TV Features, House of the Dragon, Game Of Thrones, A Knight Of The Seven Kingdoms, A Song of Ice and Fire
+
+Fri, 24 Jul 2026 00:13:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-high-valyrian-game-of-thrones/
+
+High Valyrian is more than just a language for the Targaryens in House of the Dragon, symbolizing their exceptionalism and their powerful past.
+---------
+
+# 'House of the Dragon' Star Is Officially the Next Joker
+
+TV News, Batman: Caped Crusader, Matt Reeves, House of the Dragon, The Batman
+
+Fri, 24 Jul 2026 00:11:36 GMT
+
+https://collider.com/batman-caped-crusader-season-2-joker-cast-house-of-the-dragon-star-matthew-needham/
+
+Batman: Caped Crusader Season 2 has officially found its new Joker in a House of the Dragon star. Read on for all the details.
+---------
+
+# Ridley Scott's Forgotten 116-Minute Heist Thriller Resurfaces on Streaming
+
+Movie Features, Ridley Scott, Nicolas Cage, Sam Rockwell, Matchstick Men
+
+Fri, 24 Jul 2026 00:11:14 GMT
+
+https://collider.com/ridley-scott-matchstick-men-streaming-free-tubi-july-2026/
+
+Ridley Scott's 2003 Nicolas Cage heist film Matchstick Men often gets overlooked in the director's filmography, but it shows him at his loosest.
+---------
+
+# Prime Video's 2026 'Reacher' Replacement Quietly Becomes a Late-Night Favorite
+
+Movie News, Prime Video, Reacher, Tom Clancy's Jack Ryan: Ghost War, Streaming
+
+Fri, 24 Jul 2026 00:00:14 GMT
+
+https://collider.com/prime-video-spy-thriller-tom-clancys-jack-ryan-ghost-war-streaming-success-july-2026/
+
+Despite poor reviews from critics and fans, Prime Video's Jack Ryan movie is a streaming juggernaut. Read on for all the details.
+---------
+
+# 'TBBT's Funniest Character Officially Returns in New HBO Spin-Off
+
+Features, Kunal Nayyar, Stuart Fails to Save the Universe, Comedy, Kevin Sussman, The Big Bang Theory, HBO Max
+
+Fri, 24 Jul 2026 01:30:12 GMT
+
+https://movieweb.com/tbbt-stuart-spin-off-raj-returns/
+
+'Stuart Fails to Save the Universe' features the unexpected return of 'TBBT's funniest main character, making the new spin-off even more exciting.
+---------
+
+# In Just 3 Minutes, HBO Completely Changed 'The Big Bang Theory' Forever
+
+Features, Stuart Fails to Save the Universe, The Big Bang Theory, HBO Max, Sci-Fi, Comedy, Kevin Sussman
+
+Fri, 24 Jul 2026 01:00:12 GMT
+
+https://movieweb.com/tbbt-stuart-spin-off-completely-changed-forever/
+
+'Stuart Fails to Save the Universe' has flipped 'The Big Bang Theory' franchise on its head with some interesting format and tonal changes.
+---------
+
+# First 'Ebenezer' Trailer Reveals Johnny Depp's Reboot of Iconic Character
+
+Movie News, Ebenezer, Johnny Depp
+
+Fri, 24 Jul 2026 00:18:53 GMT
+
+https://movieweb.com/ebenezer-trailer-official-johnny-depp-reboot/
+
+The first footage of Depp as Ebenezer Scrooge has been released.
+---------
+
+# Batman Officially Casts New Joker With 'House of the Dragon' Favorite
+
+TV News, Batman: Caped Crusader, House of the Dragon
+
+Fri, 24 Jul 2026 00:17:21 GMT
+
+https://movieweb.com/batman-caped-crusader-joker-matthew-needham/
+
+A fan-favorite star from 'House of the Dragon' now gets to join the Batman world with a new role as the Joker.
+---------
+
+# 'Spider-Man: Brand New Day' Director Reveals the Song That Sets the Whole Movie's Tone
+
+Movie News, Spider-Man: Brand New Day
+
+Fri, 24 Jul 2026 00:03:55 GMT
+
+https://movieweb.com/spider-man-brand-new-day-wolf-like-me/
+
+'Spider-Man: Brand New Day's confirmed TV on the Radio needle drop perfectly captures the sequel's rebirth theme.
+---------
+
+# New 'Star Trek' Movie Team Officially Confirms Franchise Is Changing Direction
+
+Movie News, Star Trek 4, Star Trek
+
+Thu, 23 Jul 2026 23:53:51 GMT
+
+https://movieweb.com/star-trek-4-update-comic-con/
+
+Jonathan Goldstein and John Francis Daley confirmed 'Star Trek 4' will feature characters we've never seen before.
+---------
+
 # Joker Officially Cast In Prime Video’s Hit Batman Series
 
 TV, Masked Recs, Batman, San Diego Comic-Con, DC Universe
@@ -5111,389 +5496,4 @@ Wed, 22 Jul 2026 17:30:15 GMT
 https://www.cbr.com/avengers-doomsday-parallel-universes-explained-list/
 
 Avengers: Doomsday officially reveals "three distinct universes" that will lead the charge against Doctor Doom. Here's what we know about each.
----------
-
-# Naruto Finally Brings Its New Official Trading Card Game to the U.S.
-
-Anime, Naruto, TCG, San Diego Comic-Con
-
-Wed, 22 Jul 2026 17:20:14 GMT
-
-https://www.cbr.com/naruto-mythos-tcg-sdcc-2026/
-
-The acclaimed Naruto TCG is finally making its way stateside, and fans will be able to get their hands on some special cards to celebrate.
----------
-
-# 4 RPGs Objectively Better Than Elden Ring
-
-Games, Role Playing Game
-
-Wed, 22 Jul 2026 17:01:14 GMT
-
-https://www.cbr.com/masterpiece-rpgs-better-than-elden-ring-list/
-
-Elden Ring is one of the best RPGs of all time, but there are a few masterpiece games that have it beat.
----------
-
-# Marvel's 2-Season Masterpiece That Is Required Viewing for Avengers: Doomsday Returns as a Streaming Hit
-
-TV, Loki, Avengers: Doomsday, Disney+
-
-Wed, 22 Jul 2026 17:01:14 GMT
-
-https://www.cbr.com/marvel-loki-disney-plus-success-july-2026/
-
-Disney+'s hit show tops the streaming charts after the release of the Avengers: Doomsday trailer
----------
-
-# Avatar Legends Is Officially the Best Avatar Video Game Ever Made
-
-Games, Avatar: The Last Airbender, Video Games
-
-Wed, 22 Jul 2026 17:01:14 GMT
-
-https://www.cbr.com/avatar-legends-the-fighting-game-review/
-
-Avatar Legends: The Fighting Game combines characters from The Last Airbender and The Legend of Korra in this stunning 1v11 fighting game.
----------
-
-# Solo Leveling Unveils the Lost Story of Jinwoo's Shadow Army in New Manhwa Sequel
-
-Anime, Solo Leveling
-
-Wed, 22 Jul 2026 16:57:15 GMT
-
-https://www.cbr.com/solo-leveling-karma-moments-inbetween-shadow-soldiers/
-
-The latest chapter of Solo Leveling's new manhwa sequel series, Moments Inbetween, further delves into the humorous untold history of Igris and Beru.
----------
-
-# FromSoftware's Next Game Is Officially Playable August 21
-
-Games, Nintendo, Elden Ring, Dark Souls
-
-Wed, 22 Jul 2026 16:30:15 GMT
-
-https://www.cbr.com/fromsoftware-duskbloods-officially-playable-august-21/
-
-The time has almost come for the next FromSoftware action RPG to be playable on Nintendo Switch 2, and fans can sign up for it right now.
----------
-
-# Marvel Boss Officially Confirms Spider-Man's New Replacement
-
-Movie News, Spider-Man: Brand New Day, Miles Morales, Tom Holland, Spider-Man: Beyond the Spider-Verse
-
-Wed, 22 Jul 2026 17:44:53 GMT
-
-https://collider.com/spider-man-miles-morales-mcu-confirmed-kevin-feige/
-
-Marvel boss Kevin Feige has officially confirmed Miles Morales' MCU debut ahead of Spider-Man: Brand New Day. Read on for more.
----------
-
-# 'MobLand' Team Officially Recruits a Christopher Nolan Favorite for New Paramount+ Crime Series
-
-TV News, MobLand, Laird, Jez Butterworth, Kenneth Branagh
-
-Wed, 22 Jul 2026 17:26:35 GMT
-
-https://collider.com/mobland-team-crime-series-the-laird-cast-kenneth-branagh/
-
-The team behind MobLand is joining forces with Kenneth Branagh for a new Paramount+ crime series, The Laird. Read on for more.
----------
-
-# The Best Rock Album of Every Year of the 1970s
-
-Music Features, David Bowie, Pink Floyd, Fleetwood Mac, Queen
-
-Wed, 22 Jul 2026 17:25:14 GMT
-
-https://collider.com/best-rock-albums-1970s-every-year/
-
-When discussing the best rock albums of every year of the 1970s, bangers like Rumours, A Night at the Opera, and Hotel California make the cut.
----------
-
-# Tom Cruise Officially Returns for Sequel to His Best Action Movie Since 'Top Gun'
-
-Movie News, Days of Thunder, Tom Cruise, Jonathan Levine, Paramount
-
-Wed, 22 Jul 2026 16:59:45 GMT
-
-https://collider.com/paramount-days-of-thunder-2-sequel-confirmed-tom-cruise-returning/
-
-Amid rumblings of an F1 crossover, Days of Thunder 2 is officially happening with Tom Cruise in talks to return.
----------
-
-# 'Rings of Power' Season 3 Officially Confirms Galadriel's New Love Interest
-
-TV News, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Jamie Campbell Bower, Morfydd Clark
-
-Wed, 22 Jul 2026 16:54:20 GMT
-
-https://collider.com/rings-of-power-season-3-jamie-campbell-bower-galadriel-love-interest-image/
-
-Jamie Campbell Bower's mystery Rings of Power character has been revealed, and it's the one that fans have been waiting for.
----------
-
-# 'Fourth Wing' Author Officially Returns With New Apple TV Series
-
-TV News, Fourth Wing, Apple TV, Romance, Apple Studios
-
-Wed, 22 Jul 2026 16:34:30 GMT
-
-https://collider.com/apple-tv-peculiar-stars-adaptation-fourth-wing-author-romance/
-
-Ahead of Prime Video's Fourth Wing series, Apple TV has picked up the adaptation rights for Rebecca Yarros' new romance novel.
----------
-
-# 10 Most Universally Loved Fantasy Movies Based on Books
-
-Movie, Harry Potter and the Prisoner of Azkaban, Fantasy, The Lord of the Rings: The Return of the King, Howl's Moving Castle
-
-Wed, 22 Jul 2026 16:34:14 GMT
-
-https://collider.com/most-universally-loved-fantasy-movies-based-on-books-ranked/
-
-Mary Poppins, The Lord of the Rings: The Return of the King, and Harry Potter and the Prisoner of Azkaban are beloved fantasy movies based on books.
----------
-
-# DC Officially Brings Back a Legendary Villain for New Horror Movie Trailer
-
-Movie News, Clayface, DC Comics, james watkins, Mike Flanagan
-
-Wed, 22 Jul 2026 16:16:48 GMT
-
-https://collider.com/new-clayface-trailer-dc-horror-movie/
-
-DC has unleashed a brand-new trailer for its new Batman horror spin-off movie, Clayface. See the terrifying footage here!
----------
-
-# 'Spider-Man: Brand New Day' Gets Standing Ovation in First Reaction
-
-Movie News, Spider-Man: Brand New Day
-
-Wed, 22 Jul 2026 17:35:07 GMT
-
-https://movieweb.com/spider-man-brand-new-day-standing-ovation-kevin-feige/
-
-Spider-Man fans have one more reason to swarm the theaters when 'Brand New Day' releases this month.
----------
-
-# Henry Cavill's 108-Minute Action Adventure Is One of the Biggest Movies on Streaming
-
-Movie News, Enola Holmes 3, Netflix, Hot on Streaming, Henry Cavill
-
-Wed, 22 Jul 2026 17:30:12 GMT
-
-https://movieweb.com/enola-holmes-3-henry-cavil-streaming-success-netflix-july-2026/
-
-Henry Cavill's newest Netflix movie, 'Enola Holmes 3,' makes up for his poor box office performance.
----------
-
-# The 10 Wildest Episodes of Catfish, Ranked
-
-TV Lists, Catfish: The TV Show
-
-Wed, 22 Jul 2026 17:00:13 GMT
-
-https://movieweb.com/the-wildest-episodes-of-catfish-ranked/
-
-MTV's hit reality show Catfish has over 200 episodes investigating online relationships. Here are the 10 wildest episodes of Catfish, ranked.
----------
-
-# 3-Part "Reacher-Esque" Thriller Is Officially One of the Biggest Shows on Streaming
-
-TV News, Tracker, Hot on Streaming, Reacher
-
-Wed, 22 Jul 2026 17:00:12 GMT
-
-https://movieweb.com/tracker-streaming-success-nielsen-2026/
-
-Forget 'Reacher,' CBS' 'Tracker' is officially one of the biggest shows on streaming in 2026.
----------
-
-# September Will Be an Enormous Month for 'Reacher' Fans
-
-Features, Reacher, Neagley
-
-Wed, 22 Jul 2026 17:00:12 GMT
-
-https://movieweb.com/reacher-neagley-september-releases/
-
-'Reacher' fans who enjoy the Amazon Prime Video action thriller TV series starring Alan Ritchson as Jack Reacher will be excited about September 2026.
----------
-
-# 'Clayface' Trailer Unleashes Terrifying Transformation of Classic DC Batman Villain
-
-Movie News, Clayface, DCU
-
-Wed, 22 Jul 2026 16:34:55 GMT
-
-https://movieweb.com/clayface-official-trailer-batman-dc-villain/
-
-The first full trailer for the new horror movie from DC Studios has finally released online.
----------
-
-# Catherine Zeta-Jones' New John Wick-Esque Revenge Thriller Finally Lands Streaming Home
-
-Movie News, Catherine Zeta-Jones
-
-Wed, 22 Jul 2026 16:28:41 GMT
-
-https://movieweb.com/amc-catherine-zeta-jones-kill-jackie/
-
-AMC+ secures exclusive U.S. rights to 'Kill Jackie,' a revenge thriller starring Catherine Zeta-Jones. The eight-episode series premieres this fall on the streamer, following Zeta-Jones' character as she fights back against a group of assassins.
----------
-
-# Dungeons & Dragons Officially Makes Jimothy The Raccoon A Playable Character
-
-Gaming, Dungeons & Dragons, tabletop games
-
-Wed, 22 Jul 2026 16:11:21 GMT
-
-https://screenrant.com/dungeons-and-dragons-jimothy-raccoon/
-
-Dungeons & Dragons has added a beloved cryptid with a full stat block on D&amp;D Beyond for the newest viral internet sensation, Jimothy the raccoon.
----------
-
-# Godzilla Announces Major Crossover With an Award-Winning Sci-Fi Franchise
-
-Comics, Godzilla
-
-Wed, 22 Jul 2026 16:05:55 GMT
-
-https://screenrant.com/godzilla-the-war-of-worlds-crossover-details/
-
-Godzilla has had some wild crossovers, but his next battle may be his strangest yet as the King of the Monsters faces a legendary sci-fi threat.
----------
-
-# DC's New Clayface Trailer Reveals Batman Villain's Body Horror Origin Story
-
-Movies, Clayface, DC Universe, Batman
-
-Wed, 22 Jul 2026 16:02:55 GMT
-
-https://screenrant.com/clayface-dc-trailer/
-
-The wait for the second Clayface movie trailer is over, as DC Studios has shared more footage for the R-rated Batman film in James Gunn's DCU.
----------
-
-# Marvel Debuts The King In Black's Avengers Team. All Members And Powers
-
-Marvel Comics, The Avengers
-
-Wed, 22 Jul 2026 16:00:11 GMT
-
-https://screenrant.com/king-black-knull-avengers/
-
-Knull, the God of Symbiotes, forms his own Avengers squad to defeat Doctor Doom's hero team and cement his victory over the entire Marvel Universe.
----------
-
-# Bleach: Echoes In The Blue Hollow Officially Announced
-
-Gaming, Bleach, Triple-A Games
-
-Wed, 22 Jul 2026 16:00:11 GMT
-
-https://screenrant.com/bleach-echoes-in-blue-hollow-crossover-event/
-
-Bleach has been around for over two decades in TV form, and after all this time, the sequel series is ending later this year.
----------
-
-# Stuart Fails To Save The Universe Review: Boldest Big Bang Theory Spinoff Falls Flat In Execution
-
-Network TV, Stuart Fails to Save the Universe, The Big Bang Theory
-
-Wed, 22 Jul 2026 16:00:11 GMT
-
-https://screenrant.com/stuart-fails-to-save-the-universe-review/
-
-The Big Bang Theory takes a bold risk with Stuart Fails to Save the Universe's sci-fi story, but it ultimately underwhelms after its story execution.
----------
-
-# 10 Years Ago, J.J. Abrams Saved His Best Star Trek Movie For Last
-
-Classic Movies, Star Trek, Star Trek Beyond
-
-Wed, 22 Jul 2026 16:00:11 GMT
-
-https://screenrant.com/star-trek-beyond-best-movie-10-years-wasted/
-
-Star Trek Beyond, the last J.J. Abrams-produced Star Trek movie, was the closest in spirit to The Original Series, and the cast was wasted ever since.
----------
-
-# 6 Best Sci-Fi Audiobooks With Perfect Narration
-
-Books, Sci-Fi
-
-Wed, 22 Jul 2026 15:58:23 GMT
-
-https://screenrant.com/best-sci-fi-audiobooks-perfect-narration/
-
-Classic sci-fi audiobooks that are must-listens.
----------
-
-# Westworld Writer Officially Developing Horror Comic Book Adaptation With Arrowverse Boss
-
-TV, Prime Video
-
-Wed, 22 Jul 2026 15:53:42 GMT
-
-https://screenrant.com/amazon-stillwater-series-series-order-update/
-
-Prime Video orders a mind-bending Skybound graphic novel adaptation from a writer of Westworld and an executive producer of the Arrowverse.
----------
-
-# X-Men '97's New Episode Introduces an A-List Villain You Probably Missed
-
-Streaming TV, X-Men '97
-
-Wed, 22 Jul 2026 15:46:02 GMT
-
-https://screenrant.com/x-men-97-new-episode-polaris-mystique/
-
-X-Men '97 just cleverly reintroduced Mystique.
----------
-
-# Tubi Previews Adults-Only Breaking Bad Parody Ahead of This Week's Premiere
-
-TV, Breaking Bear
-
-Wed, 22 Jul 2026 16:01:14 GMT
-
-https://www.cbr.com/tubi-breaking-bear-exclusive-clip/
-
-EXCLUSIVE: Cooking a certain substance in the back of an RV goes awry when the batch inadvertently gets a special ingredient.
----------
-
-# It's Official, The Odyssey's Most Controversial Casting Choice Was Its Best
-
-Movies, The Odyssey
-
-Wed, 22 Jul 2026 16:01:14 GMT
-
-https://www.cbr.com/the-odyssey-most-controversial-casting-choice-lupita-nyongo/
-
-Despite all the outcry against The Odyssey's casting choices, this actor's dual performance proves all the naysayers wrong.
----------
-
-# X-Men Writer Reveals What Marvel Must Do to Redeem Its Fan-Favorite Team
-
-Comics, X-Men, gail simone, Marvel Comics
-
-Wed, 22 Jul 2026 16:01:14 GMT
-
-https://www.cbr.com/x-men-gail-simone-rules-to-follow-save-franchise/
-
-Comics Legend and current Uncanny X-Men scribe Gail Simone reveals her secret ingredient to writing for Marvel's mightiest mutants, and fans agree.
----------
-
-# Furious Review: Emmy Rossum Elevates Hulu’s Gripping Crime Thriller
-
-TV, Furious, Hulu, Crime
-
-Wed, 22 Jul 2026 16:01:14 GMT
-
-https://www.cbr.com/furious-show-review/
-
-Creator Elizabeth Meriwether knocks it out of the park again with a crime series that evaluates how the system fails women on both sides of the coin.
 ---------
