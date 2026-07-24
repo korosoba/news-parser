@@ -1,3 +1,289 @@
+# Lord Of The Rings: The Hobbit Treasure Trove Officially Announced
+
+Gaming, The Lord of the Rings, The Hobbit, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings: The Return of the King, The Lord of the Rings: The Two Towers, PC, Magic: The Gathering
+
+Fri, 24 Jul 2026 05:00:11 GMT
+
+https://screenrant.com/lord-of-the-rings-magic-treasure-trove-release/
+
+The Lord of the Rings is getting a brand-new release titled The Hobbit Treasure Trove, expected to arrive in August 2026.
+---------
+
+# Brandon Sanderson's Mistborn Returns As A New Era Begins
+
+Gaming, Brandon Sanderson, The Stormlight Archive, Mistborn, The Cosmere, PC, RPG
+
+Fri, 24 Jul 2026 04:30:11 GMT
+
+https://screenrant.com/brandon-sanderson-stormlight-mistborn-legacy-rpg/
+
+Brandon Sanderson's Cosmere is officially returning with a 2026 Mistborn release in a completely fresh adventure kicking off a bold new era.
+---------
+
+# Star Wars Unveils Luke Skywalker Redesign With A Major Twist
+
+Gaming, Star Wars, PC, Luke Skywalker
+
+Fri, 24 Jul 2026 04:00:14 GMT
+
+https://screenrant.com/star-wars-luke-starkiller-galaxy-of-heroes/
+
+Luke Skywalker has had a huge new redesign in Star Wars, only this time it comes with one specific major twist.
+---------
+
+# Reacher's Alan Ritchson Reveals "Good Number" For How Long Hit Prime Video Series Can Last
+
+TV, Reacher
+
+Fri, 24 Jul 2026 03:58:24 GMT
+
+https://screenrant.com/reacher-series-how-long-alan-ritchson/
+
+With season 5 of Reacher already in production, star Alan Ritchson has shared his ambitious goal for the show's longevity on the streaming platform.
+---------
+
+# Netflix's Ransom Canyon Season 3 Timeline Teased By Showrunner
+
+TV, Ransom Canyon
+
+Fri, 24 Jul 2026 03:43:01 GMT
+
+https://screenrant.com/netflix-ransom-canyon-season-3-timeline-april-blair/
+
+The showrunner behind Netflix's Western drama series, Ransom Canyon, reveals what a third season could look if the streamer decides to move forward.
+---------
+
+# "We're Just Getting Started": TMNT Confirms More Last Ronin Stories Are On The Way
+
+Comics, Teenage Mutant Ninja Turtles
+
+Fri, 24 Jul 2026 03:30:11 GMT
+
+https://screenrant.com/teenage-mutant-ninja-turtles-last-ronin-return/
+
+The Teenage Mutant Ninja Turtles franchise set up a key tease for The Last Ronin in its latest special story.
+---------
+
+# 10 Most Important Odyssey Characters, Ranked
+
+Movies, The Odyssey, Christopher Nolan
+
+Fri, 24 Jul 2026 03:30:11 GMT
+
+https://screenrant.com/10-most-important-odyssey-characters-ranked/
+
+Christopher Nolan's The Odyssey features several fascinating characters (with some being more important than they were in Homer's original poem).
+---------
+
+# Apple TV’s Neuromancer Show Will Avoid A Fatal Mistake
+
+Streaming TV, Neuromancer
+
+Fri, 24 Jul 2026 03:00:11 GMT
+
+https://screenrant.com/apple-tv-neuromancer-book-adaptation-changes-fatal-mistake/
+
+Apple TV's finally revealing snippets of the upcoming Neuromancer TV show, and the teasers prove that the show has avoided a fatal mistake.
+---------
+
+# Final Fantasy's Biggest Romances, Ranked From Most Forgettable To Most Iconic
+
+Gaming, Final Fantasy, Ranking
+
+Fri, 24 Jul 2026 02:00:21 GMT
+
+https://screenrant.com/every-major-final-fantasy-romance/
+
+Not all Final Fantasy games feature romances involving their main characters, and some of those that do are much more exciting than others.
+---------
+
+# Demon Slayer Officially Beaten by the Biggest Returning Anime of 2026
+
+Anime, Jujutsu Kaisen, Netflix, Demon Slayer: Kimetsu no Yaiba
+
+Fri, 24 Jul 2026 03:59:15 GMT
+
+https://www.cbr.com/demon-slayer-vs-jujutsu-kaisen-netflix-streaming-2026/
+
+Netflix’s latest official streaming data reveals the Demon Slayer franchise's surprisingly lackluster performance in 2026.
+---------
+
+# 5 Classic 2000s Shonen Anime Series Every Fan Needs to Watch At Least Once
+
+Anime, Shonen, Naruto, Bleach, Fullmetal Alchemist
+
+Fri, 24 Jul 2026 03:45:15 GMT
+
+https://www.cbr.com/classic-2000s-shonen-anime-series-every-fan-needs-to-watch/
+
+The 2000s arguably represent the peak of shonen anime, the decade being filled with series that every fan must watch at least once.
+---------
+
+# It's Officially the End of an Era for Wolverine After 52 Years
+
+Games, Wolverine, X-Men, Marvel's Wolverine
+
+Fri, 24 Jul 2026 03:23:52 GMT
+
+https://www.cbr.com/marvels-wolverine-end-era-after-52-years/
+
+It's a new era for Marvel's Wolverine.
+---------
+
+# 5 Open-World Games That Are 10/10 Masterpieces
+
+Games, The Elder Scrolls V: Skyrim, Red Dead Redemption 2, Spider-Man
+
+Fri, 24 Jul 2026 03:15:01 GMT
+
+https://www.cbr.com/open-world-games-that-are-flawless-masterpieces/
+
+Flawless titles like Skyrim and Marvel's Spider-Man have set an impossibly high bar for the open-world genre of games.
+---------
+
+# Transformers Officially Brings Optimus Prime Back to Life With Peter Cullen
+
+Anime, Transformers, merchandise, optimus prime, toys, hasbro
+
+Fri, 24 Jul 2026 03:05:15 GMT
+
+https://www.cbr.com/transformers-stern-pinball-update-peter-cullen/
+
+Stern adds more Generation 1 excitement with new accessories for its Transformers pinball machines, including the visage and voice of Optimus Prime.
+---------
+
+# The 4 Greatest Fantasy Movies of 2026 (So Far)
+
+Movies, Fantasy
+
+Fri, 24 Jul 2026 02:45:15 GMT
+
+https://www.cbr.com/best-fantasy-movies-so-far-2026-list/
+
+Fantasy movies are having another huge year, with the first half of 2026 already delivering adventures that showcase the genre at its very best
+---------
+
+# 10 Masterpiece Action Anime With The Best Fight Scenes
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Jujutsu Kaisen, Cowboy Bebop
+
+Fri, 24 Jul 2026 02:45:15 GMT
+
+https://www.cbr.com/masterpiece-action-anime-with-best-fight-scenes/
+
+Action anime can offer compelling writing, but it's the explosive fight scenes that set the best of the best apart.
+---------
+
+# Star Trek's First Theatrical Movie in Over 10 Years Confirms Character and Timeline Details
+
+TV, Star Trek 4, Star Trek
+
+Fri, 24 Jul 2026 02:43:12 GMT
+
+https://www.cbr.com/star-trek-4-update-new-characters-timeline/
+
+Star Trek is finally beaming back up to the big screen with a surprising update revealed for the franchise's next feature film.
+---------
+
+# Zelda Series Creator Teases Next Switch 2 Game After Ocarina of Time
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Fri, 24 Jul 2026 02:15:15 GMT
+
+https://www.cbr.com/zelda-next-game-ocarina-of-time-inspiration-miyamoto-interview/
+
+In a new interview, Zelda creator Shigeru Miyamoto drops interesting hints at Zelda's future and how it'll be effected by the Ocarina of Time remake.
+---------
+
+# 5 Adventure Movies Better Than The Mummy
+
+Movies, The Mummy
+
+Fri, 24 Jul 2026 02:00:25 GMT
+
+https://www.cbr.com/best-adventure-movies-better-than-the-mummy-list/
+
+The Mummy is always a blast to rewatch, but several other classic adventure movies capture that identical feeling of a high-stakes treasure hunt.
+---------
+
+# Say Goodbye to These 6 Movie Franchises That Are Officially Ending
+
+Movie, Dune: Part Three, The Strangers - Chapter 3, The Hunger Games: Sunrise on the Reaping, Jackass: Best and Last
+
+Fri, 24 Jul 2026 04:51:14 GMT
+
+https://collider.com/best-movie-franchises-officially-ending/
+
+From Dune to The Hunger Games, Fast & Furious to Jumanji, these beloved movie franchises are saying goodbye soon.
+---------
+
+# 7 Books You Need To Read Before Their TV Adaptations Premiere
+
+TV, Books, Harry Potter, Pride and Prejudice, Carrie
+
+Fri, 24 Jul 2026 04:07:14 GMT
+
+https://collider.com/books-to-read-before-tv-adaptations/
+
+From Jane Austen's Pride and Prejudice to the beloved fantasy world of Harry Potter, these are the books you must read before their TV adaptations.
+---------
+
+# 6 Best Crime Movies Released Since 2000
+
+Movie, Johnny Depp, Blow, Crime, Denzel Washington
+
+Fri, 24 Jul 2026 04:05:14 GMT
+
+https://collider.com/best-crime-movies-since-2000-ranked/
+
+Prisoners, No Country for Old Men, and The Wolf of Wall Street are all among the best crime movies released since the year 2000.
+---------
+
+# Netflix's '3 Body Problem' Is Facing Its Biggest Obstacle Before Season 2 Even Begins
+
+TV Features, 3 Body Problem, David Benioff, D.B. Weiss, Netflix
+
+Fri, 24 Jul 2026 03:04:14 GMT
+
+https://collider.com/netflix-3-body-problem-biggest-problem-long-gap-before-season-2/
+
+3 Body Problem faces challenges retaining audience attention with complex storytelling and long gaps between seasons.
+---------
+
+# 'The Sopranos' Meets Wes Anderson in This Twisted Dark Academia Book
+
+Books and Comics, Books, Crime, Mystery, Comedy
+
+Fri, 24 Jul 2026 03:03:14 GMT
+
+https://collider.com/the-mortons-book-mystery-thriller-black-comedy/
+
+The Mortons is a twisted book thriller set in the world of dark academia that filters the criminal underworld through a quirky and humorous lens.
+---------
+
+# 20 Years Later, This ‘Doctor Who’ Two-Part Story Has Never Been Topped
+
+TV Features, Doctor Who, David Tennant, BBC, Science Fiction, Billie Piper
+
+Fri, 24 Jul 2026 02:10:15 GMT
+
+https://collider.com/doctor-who-best-episode-army-of-ghosts-doomsday-rose-ten/
+
+Doctor Who may be on hiatus, but the Tenth Doctor's two-part 'Army of Ghosts' and 'Doomsday' finale remains the greatest in the show's history.
+---------
+
+# Top 10 Streaming TV Shows of the 2025-2026 Season To Watch This Weekend
+
+TV Lists, Taylor Sheridan, Dutton Ranch
+
+Fri, 24 Jul 2026 02:00:22 GMT
+
+https://movieweb.com/streaming-tv-shows-2025-2026-most-watched/
+
+The 2025-2026 streaming TV season has been great, and these TV shows, from spin-offs to sci-fi to dramas, are some of the most watched.
+---------
+
 # Netflix Just Found Its Next Stranger Things In Unexpected New Dark Fantasy Series
 
 TV, Netflix, Stranger Things, Masked Recs
@@ -5210,290 +5496,4 @@ Wed, 22 Jul 2026 18:00:15 GMT
 https://www.cbr.com/masterpiece-anime-series-perfect-rotten-tomatoes-scores-list/
 
 Anime like Frieren and Solo Leveling are Certified Fresh on Rotten Tomatoes.
----------
-
-# In Just 1 Day, Steven Spielberg's New Divisive Sci-Fi Becomes an Instant Digital Hit
-
-Movies, Disclosure Day, steven spielberg, Sci-Fi
-
-Wed, 22 Jul 2026 18:00:15 GMT
-
-https://www.cbr.com/steven-spielberg-disclosure-day-sci-fi-thriller-pvod-success-july-2026/
-
-Steven Spielberg's latest sci-fi thriller, Disclosure Day, is the most-watched movie on the Apple TV Store in the United States.
----------
-
-# Punisher Showdowns Puts Frank Castle Against Marvel's Most Dangerous Heroes
-
-Comics, The Punisher
-
-Wed, 22 Jul 2026 18:00:15 GMT
-
-https://www.cbr.com/punisher-showdowns-marvel-comics-one-shots/
-
-Marvel's deadliest good guy is about to meet his matches.
----------
-
-# Kevin Feige Confirms Marvel's MCU Reset With a New Single-Universe Strategy
-
-Movies, Avengers: Secret Wars, Marvel Cinematic Universe, Avengers
-
-Wed, 22 Jul 2026 17:49:30 GMT
-
-https://www.cbr.com/kevin-feige-marvel-mcu-reset-single-universe-avengers-secret-wars/
-
-Kevin Feige has confirmed big changes coming to the Marvel Universe after Avengers: Secret Wars.
----------
-
-# Sydney Sweeney's New Sci-Fi Remake Officially Scores a Major Update at Netflix
-
-Movie News, Gundam, Netflix, Sydney Sweeney, Sci-Fi
-
-Wed, 22 Jul 2026 18:34:30 GMT
-
-https://collider.com/netflix-sydney-sweeney-gundam-adaptation-wraps-filming-july-2026/
-
-Netflix's live-action Gundam movie, starring Sydney Sweeney and Noah Centineo, has received a major production update.
----------
-
-# Hulu’s Hit Sitcom Revival Is Officially a Masterpiece on Rotten Tomatoes
-
-TV News, King of the Hill, Hulu, Rotten Tomatoes, Animation
-
-Wed, 22 Jul 2026 18:25:44 GMT
-
-https://collider.com/hulu-king-of-the-hill-revival-rotten-tomatoes-score-is-it-good/
-
-Hulu’s acclaimed animated revival returns with another celebrated season, earning flawless early reviews from critics worldwide.
----------
-
-# Alan Ritchson Finally Gets His John Wick Moment in 'Motor City' | Review
-
-Movie Reviews, Motor City, Alan Ritchson, Reacher, War Machine
-
-Wed, 22 Jul 2026 18:22:35 GMT
-
-https://collider.com/alan-ritchson-motor-city-review-john-wick/
-
-Reacher star Alan Ritchson's Motor City is a John Wick-esque thriller that tells a satisfying revenge story without dialogue.
----------
-
-# Christopher Nolan Officially Reveals Next IMAX Release Following ‘The Odyssey’s Success
-
-Movie News, The Prestige, Christopher Nolan, IMAX, Science Fiction
-
-Wed, 22 Jul 2026 18:17:30 GMT
-
-https://collider.com/christopher-nolan-the-prestige-20th-anniversary-imax-release-2026/
-
-Christopher Nolan confirms The Prestige will be re-released in IMAX 70mm format to celebrate its 20th anniversary.
----------
-
-# Tom Hiddleston: Pompeii Changed Him at 17 | Set Stories
-
-Movie, Pompeii: Out of Time with Tom Hiddleston
-
-Wed, 22 Jul 2026 18:15:14 GMT
-
-https://collider.com/video/tom-hiddleston-pompeii-changed-him-at-17-set-stories/
-
-Tom Hiddleston on Pompeii: Why the Past Still Matters. The actor discusses how a teenage trip to Pompeii inspired a lifelong fascination with the ancient world and ultimately led him to host Pompeii: Out of Time with Tom Hiddleston.
----------
-
-# Netflix’s Best 5-Part Thriller Makes Every Harlan Coben Show Feel Small
-
-Features, You, Harlan Coben, Netflix
-
-Wed, 22 Jul 2026 19:00:12 GMT
-
-https://movieweb.com/you-harlan-coben-netflix-thriller-comparison/
-
-Netflix has many popular thriller TV series based on Harlan Coben novels, but there is one thriller that is even bigger in scale.
----------
-
-# 'MobLand' Team Officially Confirms New Paramount+ Series Ahead of Season 2
-
-TV News, Paramount Plus, Kenneth Branagh, Jez Butterworth
-
-Wed, 22 Jul 2026 18:37:30 GMT
-
-https://movieweb.com/mobland-creator-new-series-laird-kenneth-branagh/
-
-The showrunner of the crime series is developing the new show 'Laird' with Kenneth Branagh.
----------
-
-# 'Harry Potter' Sets New Extended Release Ahead of Streaming Reboot
-
-Movie News, Harry Potter
-
-Wed, 22 Jul 2026 18:34:04 GMT
-
-https://movieweb.com/harry-potter-sorcerers-stone-extended-theatrical-re-release/
-
-Fans can return to Hogwarts in an extended release of the 'Harry Potter' film franchise.
----------
-
-# Marvel Boss Spoils 'Avengers: Secret Wars' Ending a Whole Year Before Release
-
-Movie News, Avengers: Secret Wars, Avengers: Doomsday
-
-Wed, 22 Jul 2026 18:12:45 GMT
-
-https://movieweb.com/marvel-avengers-secret-wars-ending-kevin-feige/
-
-Marvel Studios president Kevin Feige reveals plans for Avengers: Secret Wars to simplify the MCU, positioning X-Men as the franchise's new core, according to a teaser hinting at the film's direction.
----------
-
-# Harley Quinn's New Redesign Is a Gift to DC Cosplayers
-
-Comics, Harley Quinn
-
-Wed, 22 Jul 2026 17:44:29 GMT
-
-https://screenrant.com/harley-quinn-quinntellect-cosplay-inspiration-ideas/
-
-Harley Quinn cosplayers looking to upgrade their Comic-Con looks need to see DC’s latest redesign, which adds an epic new twist to the Siren's look.
----------
-
-# Hulu Officially Releases Anthony Mackie's New 'Mad Max Meets Gladiator' Epic Next Month
-
-Movies, Masked Recs, Anthony Mackie
-
-Wed, 22 Jul 2026 17:43:44 GMT
-
-https://screenrant.com/desert-warrior-hulu-streaming-release-date/
-
-After opening in theaters earlier this year, Anthony Mackie's newest movie, which is like "Mad Max meets Gladiator" is heading to Hulu.
----------
-
-# Alan Ritchson's #1 Netflix Movie Will Change How You See The Reacher Star
-
-Movies, Masked Recs
-
-Wed, 22 Jul 2026 17:43:29 GMT
-
-https://screenrant.com/alan-ritchson-ordinary-angels-movie-stream-netflix-july-2026/
-
-Alan Ritchson has a new No. 1 movie on Netflix in the United States for today, and it will completely change how you see the Reacher star.
----------
-
-# Tom Holland’s Spider-Man Leading 2 New MCU Trilogies Teased By Kevin Feige
-
-Movies, Spider-Man, Marvel Cinematic Universe
-
-Wed, 22 Jul 2026 17:42:24 GMT
-
-https://screenrant.com/tom-holland-spider-man-new-mcu-movie-trilogies-tease/
-
-Ahead of Spider-Man: Brand New Day's release, a new MCU update teases that Tom Holland's Peter Parker future might include two trilogies
----------
-
-# 42 Years Later, TMNT's Original Continuity Has An Important New Codename
-
-Comics, Teenage Mutant Ninja Turtles
-
-Wed, 22 Jul 2026 17:30:11 GMT
-
-https://screenrant.com/tmnt-new-codename-change/
-
-The Teenage Mutant Ninja Turtles have gone through a variety of colorful and distinctive eras, and its latest issue just laid down some major cleanup.
----------
-
-# Star Wars Announces Official Dark Side Yoda
-
-Gaming, Star Wars, Mobile
-
-Wed, 22 Jul 2026 17:13:40 GMT
-
-https://screenrant.com/star-wars-dark-side-yoda-redesign/
-
-Star Wars' Jedi Master Yoda is as incorruptible as the best of the Jedi, but he's officially turned to the dark side of the Force in a new appearance.
----------
-
-# Punisher's New Appearance Officially Introduces His Ultimate Weapon
-
-Marvel Comics, The Punisher
-
-Wed, 22 Jul 2026 17:04:53 GMT
-
-https://screenrant.com/punisher-fin-fang-foom-robot/
-
-The Punisher just became one of the universe's deadliest heroes with a mecha power-up that places on the same level as Doctor Doom and Godzilla.
----------
-
-# The Wait Is Over, Avatar Has Finally Returned To Rave Reviews
-
-Gaming, Avatar: The Last Airbender, Triple-A Games, PC
-
-Wed, 22 Jul 2026 17:03:27 GMT
-
-https://screenrant.com/avatar-legends-fighting-game-review-roundup/
-
-Truly great adaptations of Avatar: The Last Airbender are few and far between, but Aang and his friends are finally back with a great new game.
----------
-
-# Netflix's New R-Rated Sitcom Is The Office Meets Garfield
-
-TV, Masked Recs
-
-Wed, 22 Jul 2026 17:00:11 GMT
-
-https://screenrant.com/alley-cats-netflix-sitcom-like-the-office-garfield/
-
-A new sitcom arrives on Netflix this August, featuring comedic elements from both The Office and the legendary comic-book franchise Garfield.
----------
-
-# 6 PlayStation 1 Games That Are Barely Playable In 2026
-
-Gaming, PlayStation (Original), PlayStation, Tekken, Tomb Raider, Mortal Kombat
-
-Wed, 22 Jul 2026 17:00:11 GMT
-
-https://screenrant.com/5-10-playstation-1-games-that-are-barely-playable-in-2026/
-
-While there are plenty of amazing PS1 games that have aged gracefully, there are several that are practically unplayable today.
----------
-
-# The Legend of Zelda Officially Returns With New Release Spring 2027
-
-Games, The Legend of Zelda, The Legend of Zelda: Tears of the Kingdom, Nintendo
-
-Wed, 22 Jul 2026 17:40:14 GMT
-
-https://www.cbr.com/legend-of-zelda-official-return-new-release-spring-2027/
-
-Nintendo might be working hard on The Legend of Zelda: Ocarina of Time remake, but another new release has been announced for Spring 2027.
----------
-
-# Harry Potter Confirms New Release 2 Months Ahead of Reboot
-
-Movies, Harry Potter
-
-Wed, 22 Jul 2026 17:31:36 GMT
-
-https://www.cbr.com/harry-potter-8-film-blu-ray-collectors-edition/
-
-The end of the year will conclude with a complete Harry Potter revival, but, until then, original fans are still getting spoiled.
----------
-
-# 10 Retro TCGs from the '90s No One Remembers
-
-Games, Magic The Gathering, Dungeons and Dragons, Doctor Who, Star Trek
-
-Wed, 22 Jul 2026 17:30:15 GMT
-
-https://www.cbr.com/retro-tcgs-from-the-90s-no-one-remembers/
-
-From Star Trek to Dungeons and Dragons, the '90s were full of card games from famous IPs that no one remembers.
----------
-
-# All 3 Universes in Avengers: Doomsday, Explained
-
-Movies, Avengers: Doomsday, MCU, X-Men
-
-Wed, 22 Jul 2026 17:30:15 GMT
-
-https://www.cbr.com/avengers-doomsday-parallel-universes-explained-list/
-
-Avengers: Doomsday officially reveals "three distinct universes" that will lead the charge against Doctor Doom. Here's what we know about each.
 ---------
