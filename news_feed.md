@@ -1,3 +1,14 @@
+# Game Of Thrones Is Officially Switching Genres When It Returns In 2027
+
+Gaming, Game of Thrones, Game Of Thrones, Game of Thrones: War for Westeros, Game of Thrones: Kingsroad, PC
+
+Fri, 24 Jul 2026 06:00:11 GMT
+
+https://screenrant.com/game-of-thrones-2027-return-new-genre/
+
+Game of Thrones is completely switching genres in 2027 when it makes its official return, and fans may finally get the ending they deserve.
+---------
+
 # Lord Of The Rings: The Hobbit Treasure Trove Officially Announced
 
 Gaming, The Lord of the Rings, The Hobbit, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings: The Return of the King, The Lord of the Rings: The Two Towers, PC, Magic: The Gathering
@@ -5485,15 +5496,4 @@ Wed, 22 Jul 2026 18:10:59 GMT
 https://www.cbr.com/kenneth-branagh-laird-drama-series-paramount-plus/
 
 Paramount+ has found the perfect companion series for MobLand.
----------
-
-# These 10/10 Anime Series All Have Perfect Scores on Rotten Tomatoes
-
-Anime, Rotten Tomatoes
-
-Wed, 22 Jul 2026 18:00:15 GMT
-
-https://www.cbr.com/masterpiece-anime-series-perfect-rotten-tomatoes-scores-list/
-
-Anime like Frieren and Solo Leveling are Certified Fresh on Rotten Tomatoes.
 ---------
