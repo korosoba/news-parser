@@ -1,3 +1,289 @@
+# Alan Ritchson Gives Definitive Blue Mountain State Season 4 Update
+
+TV, Blue Mountain State
+
+Fri, 24 Jul 2026 15:20:28 GMT
+
+https://screenrant.com/alan-ritchson-blue-mountain-state-season-4-update/
+
+More than a year after the project was reportedly on the fast track, Alan Ritchson shares a candid and unexpected Blue Mountain State update.
+---------
+
+# 3 Best Movies To Watch On HBO Max This Weekend (July 25-26)
+
+Movies, HBO Max, Recommendation
+
+Fri, 24 Jul 2026 15:20:11 GMT
+
+https://screenrant.com/best-hbo-max-movies-watch-weekend-july-25/
+
+There are so many great movies streaming on HBO Max right now, but this trio of excellent flicks can't be missed this weekend.
+---------
+
+# Avatar Aang: The Last Airbender Doesn't Have A Post-Credits Scene, But You're Missing Out If You Don't Watch
+
+Movies, Avatar Aang: The Last Airbender, Avatar: The Last Airbender
+
+Fri, 24 Jul 2026 15:16:18 GMT
+
+https://screenrant.com/avatar-aang-last-airbender-movie-post-credits-scene/
+
+Avatar Aang: The Last Airbender might not have a post-credits scene, but there is still an exciting reason for fans to sit through the credits.
+---------
+
+# Blade Runner 2049 Is Finally Getting A Follow-Up
+
+Streaming TV, Masked Recs, Blade Runner
+
+Fri, 24 Jul 2026 15:15:11 GMT
+
+https://screenrant.com/blade-runner-2099-sequel-2049-timeline-future/
+
+One of the most influential sci-fi franchises of all time is making the jump from the big screen to the small screen with a new sequel series.
+---------
+
+# Solo Leveling's Next Series Will Run Circles Around The Anime In A Major Way
+
+Anime, Solo Leveling
+
+Fri, 24 Jul 2026 15:00:11 GMT
+
+https://screenrant.com/solo-leveling-live-action-jinwoo-emotions-better-than-anime/
+
+Solo Leveling's live-action just started filming, but it's so good that it's already brought its main star to tears.
+---------
+
+# Dutton Ranch Is Repeating Yellowstone’s Biggest Mistake
+
+Streaming TV, Dutton Ranch
+
+Fri, 24 Jul 2026 15:00:11 GMT
+
+https://screenrant.com/dutton-ranch-ed-harris-yellowstone-kevin-costner-mistake/
+
+A recent report reveals that a veteran actor in the Dutton Ranch cast is unhappy with his role, which echoes Kevin Costner's Yellowstone fallout.
+---------
+
+# Kingdom Come Salvation Appears Online Ahead Of Official Reveal
+
+Gaming, Kingdom Come: Deliverance
+
+Fri, 24 Jul 2026 14:47:49 GMT
+
+https://screenrant.com/kingdom-come-salvation-appears-online/
+
+Details of the next Kingdom Come game may have been leaked online following an EU trademark filing, providing the title and some gameplay info.
+---------
+
+# Halo: Campaign Evolved - All Terminal Locations Guide
+
+Gaming, Halo: Campaign Evolved, Halo
+
+Fri, 24 Jul 2026 14:33:04 GMT
+
+https://screenrant.com/halo-campaign-evolved-all-terminal-locations-guide/
+
+Halo: Campaign Evolved is finally here, and we've got the lowdown on the location of every Terminal you can find in the game.
+---------
+
+# Ariana Grande & Ben Stiller Were Co-Stars 10 Years Before Focker-in-Law, But Everyone Forgot
+
+Movies, Focker-In-Law, Zoolander 2
+
+Fri, 24 Jul 2026 14:30:11 GMT
+
+https://screenrant.com/ben-stiller-ariana-grande-before-focker-in-law-zoolander-2/
+
+Ben Stiller and Ariana Grande are about to share the screen in Focker-in-Law, but this won't be the first time they've co-starred in a movie.
+---------
+
+# Avatar: Seven Havens Teases The Return Of Korra's Most Controversial Villain
+
+TV, Avatar: Seven Havens, The Legend of Korra
+
+Fri, 24 Jul 2026 14:30:11 GMT
+
+https://screenrant.com/avatar-seven-havens-teases-the-return-of-korras-most-controversial-villain/
+
+A major Korra villain might be back.
+---------
+
+# KFC Serves Up an Evangelion Unit-01 Purple Burger With Maximum Impact
+
+Anime, Neon Genesis Evangelion, merchandise, kfc, food
+
+Fri, 24 Jul 2026 15:20:15 GMT
+
+https://www.cbr.com/kfc-evangelion-unit-01-purple-burger/
+
+Neon Genesis Evangelion is still celebrating 30 years of success, with its latest collaboration giving KFC Hong Kong a purple zinger of a makeover.
+---------
+
+# Pikachu's Classic Design Officially Returns in Pokémon 30th Anniversary Release
+
+Games, Pokemon, Pokémon, Pokemon TCG
+
+Fri, 24 Jul 2026 15:18:15 GMT
+
+https://www.cbr.com/chubby-pikachu-official-return-pokemon-30th-anniversary-release/
+
+Pikachu's original chunkier design from Pokémon Red & Blue has returned, as part of the franchise's ongoing 30th anniversary celebrations.
+---------
+
+# 7 Greatest Cartoon Network Anime Series of the 2000s
+
+Anime, Shonen, Dragon Ball Z, Naruto, Cartoon Network, Yu Yu Hakusho
+
+Fri, 24 Jul 2026 15:15:15 GMT
+
+https://www.cbr.com/greatest-2000s-cartoon-network-anime/
+
+Thanks to some of the best anime ever, Cartoon Network helped create a massive fanbase of anime fans during the 2000s.
+---------
+
+# Marvel Confirms What Would Have Happened Had Kraven Become a Superior Spider-Man
+
+Comics, Spider-Man, What If...?
+
+Fri, 24 Jul 2026 15:06:35 GMT
+
+https://www.cbr.com/marvel-what-if-kraven-spider-man-preview/
+
+In a CBR preview of next week's What If...? Spider-Man #1, see what would have happened had Kraven remained as Spider-Man after his Last Hunt
+---------
+
+# 10 Most Universally Beloved Movie Masterpieces of the Last 6 Years, Ranked
+
+Movies
+
+Fri, 24 Jul 2026 15:00:15 GMT
+
+https://www.cbr.com/beloved-perfect-movies-list/
+
+The 2020s have been one of the most hit or miss decades for mainstream moviegoers, but some movies stand out as undeniable masterpieces.
+---------
+
+# In Just 2 Days, Amazon's Reboot of '80s Fantasy Cult Classic Is Officially the No. 1 Movie in the World
+
+Movies, Masters of the Universe
+
+Fri, 24 Jul 2026 15:00:15 GMT
+
+https://www.cbr.com/masters-of-the-universe-reboot-prime-video-success-july-2026/
+
+The fantasy movie bombed in theaters but it's not catching up on streaming after an early release.
+---------
+
+# 7 Fantasy Romance Anime Objectively Better Than Yona of the Dawn
+
+Anime, Yona of the Dawn, Romance, Fruits Basket, My Happy Marriage
+
+Fri, 24 Jul 2026 15:00:15 GMT
+
+https://www.cbr.com/fantasy-romance-anime-better-than-yona-of-the-dawn/
+
+Yona of the Dawn's fantasy romance elements unfold at a grueling pace, with the political conflict consistently delaying emotional payoff.
+---------
+
+# Star Trek: Strange New Worlds’ Season 4 Premiere Makes Its Ending Impossible to Ignore
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Fri, 24 Jul 2026 14:31:15 GMT
+
+https://www.cbr.com/star-trek-strange-new-worlds-season-4-premiere-sets-up-ending/
+
+Star Trek: Strange New Worlds Season 4 is the beginning of the end of the series, and that actually enhances the drama in a unique way.
+---------
+
+# Silo's Tim Robbins Breaks Down Bernard's Emotional Journey
+
+TV, Silo
+
+Fri, 24 Jul 2026 14:16:14 GMT
+
+https://www.cbr.com/video/silo-s-tim-robbins-breaks-down-bernard-s-emotional-journey/
+
+SPOILER WARNING: This interview discusses major events from Silo Season 3Silo Season 3 takes Bernard in a direction few fans expected, and Tim Robbins explains how that transformation was built from the very beginning.
+---------
+
+# 5 South Korean Anime Everyone Should Watch Right Now
+
+Anime, Solo Leveling, Tower of God
+
+Fri, 24 Jul 2026 14:16:14 GMT
+
+https://www.cbr.com/best-south-korean-anime-must-watch/
+
+These series showcase the incredible range and ambition of contemporary South Korean animation.
+---------
+
+# The 9 Best Free Rom-Coms on YouTube
+
+Movie Lists, Romance, YouTube
+
+Fri, 24 Jul 2026 15:00:13 GMT
+
+https://movieweb.com/free-rom-coms-on-youtube/
+
+Need a quick laugh without spending any money? Check out the best free romantic comedies that you can watch on YouTube.
+---------
+
+# Chris Hemsworth's Streaming Smash Action Thriller Saga Just Got Even Better
+
+Features, Chris Hemsworth
+
+Fri, 24 Jul 2026 15:00:12 GMT
+
+https://movieweb.com/chris-hemsworth-extraction-series-expanding/
+
+This Chris Hemsworth-led action film series is expanding again. A third movie is currently filming, with two spin-offs in development.
+---------
+
+# Netflix's New 93-Minute Real-Life Crime Thriller Crowned One of Streaming's Biggest Hits
+
+Movie News, Netflix, True Crime, Crime, Thriller
+
+Fri, 24 Jul 2026 15:00:12 GMT
+
+https://movieweb.com/netflix-elize-shadows-woman-streaming-hit-july-2026/
+
+The film is based on one the most notorious crimes in modern history.
+---------
+
+# 'The Big Bang Theory' Officially Rewrites Season 12's Moving Character Ending
+
+Features, Stuart Fails to Save the Universe, The Big Bang Theory, Comedy, Kevin Sussman, HBO Max
+
+Fri, 24 Jul 2026 14:30:12 GMT
+
+https://movieweb.com/tbbt-stuart-denise-rewrites-season-12-ending/
+
+'Stuart Fails to Save the Universe' sadly changes this character's 'The Big Bang Theory' Season 12 fate, rewriting their well-deserved happy ending.
+---------
+
+# 'Star Wars' Series Shelved for Over a Decade Is Finally Being Released
+
+TV News, Star Wars, Star Wars: Detours
+
+Fri, 24 Jul 2026 14:27:38 GMT
+
+https://movieweb.com/star-wars-detours-series-lucas-museum/
+
+The completed Star Wars: Detours animated comedy series, shelved for over a decade, will be exhibited at the Lucas Museum. Created by George Lucas and the Robot Chicken team, Detours focuses on everyday absurdities in the Star Wars galaxy.
+---------
+
+# Taron Egerton's "Unforgettable" R-Rated Action Thriller Sets New Release
+
+Movie News, She Rides Shotgun, Taron Egerton
+
+Fri, 24 Jul 2026 13:52:11 GMT
+
+https://movieweb.com/she-rides-shotgun-4k-blu-ray-release/
+
+Lionsgate Home Entertainment is preparing a 4K Blu-ray release of Taron Egerton's "unforgettable" R-rated action thriller 'She Rides Shotgun.'
+---------
+
 # Halo: Campaign Evolved - The Library Skull Guide
 
 Gaming, Halo: Campaign Evolved, Halo: Combat Evolved, Halo, PC
@@ -5210,290 +5496,4 @@ Wed, 22 Jul 2026 22:15:11 GMT
 https://screenrant.com/cobra-kai-martial-arts-stranger-things-meets-karate-kid/
 
 There is a martial arts show on Netflix that is part Karate Kid and part Stranger Things, and it makes Mortal Kombat look quaint in comparison.
----------
-
-# Apple TV Secures Rights To Next Novel From Fourth Wing Author For Major New Series
-
-TV, Fourth Wing
-
-Wed, 22 Jul 2026 22:15:03 GMT
-
-https://screenrant.com/apple-tv-secures-rights-to-next-novel-from-fourth-wing-author-for-major-new-series/
-
-Apple TV acquires rights to adapt bestselling author Rebecca Yarros' upcoming novel Peculiar Stars into a new drama series for the streaming platform.
----------
-
-# 11 Years Later, Game Of Thrones Star Lena Headey "Shocked" By Reactions After Using Cersei Lannister Body Double For Walk Of Shame
-
-TV, Game Of Thrones, Game of Thrones, Lena Headey
-
-Wed, 22 Jul 2026 22:15:01 GMT
-
-https://screenrant.com/game-of-thrones-walk-of-shame-body-double-audience-reaction-lena-headey/
-
-The reaction to Lena Headey using a body double during Game of Thrones season 5's walk of shame scene still surprises the actor many years later.
----------
-
-# Tom Hardy’s Scene-Stealing Anti-MobLand Role Releases On Netflix Next Week
-
-Movies, Tom Hardy, Masked Recs
-
-Wed, 22 Jul 2026 22:06:29 GMT
-
-https://screenrant.com/marie-antoinette-netflix-streaming-release-date-august-2026/
-
-One of Tom Hardy's forgotten roles from early in his career is coming to Netflix next week as fans await the return of his hit crime drama MobLand.
----------
-
-# Dandadan Season 3 Premiere Date Officially Retracted After Accidental Reveal
-
-Anime, Dandadan
-
-Wed, 22 Jul 2026 23:05:14 GMT
-
-https://www.cbr.com/dandadan-season-3-release-date-adv-accidental-reveal/
-
-An apparent accidental leak of Dandadan Season 3's release date stated the anime returns in January 2027 before being quickly deleted.
----------
-
-# Netflix’s New 8-Part Dark Fantasy With 100% RT Becomes 1 of the Most-Watched Shows in the World
-
-TV, The East Palace, Netflix, Fantasy
-
-Wed, 22 Jul 2026 23:00:14 GMT
-
-https://www.cbr.com/the-east-palace-netflix-dark-fantasy-success-july-2026/
-
-The new dark fantasy becomes Netflix's number 2 most-watched show in the United States.
----------
-
-# 5 '70s Movie Masterpieces That Nobody Remembers Today
-
-Movies, Drama, The Conversation, Thriller
-
-Wed, 22 Jul 2026 23:00:14 GMT
-
-https://www.cbr.com/forgotten-1970s-movie-masterpieces-list/
-
-These 1970s movies are absolute all-timers, but they have unfortunately been forgotten by most audiences.
----------
-
-# Inside the Big Bang Theory Spinoff: Stuart Fails to Save the Universe
-
-TV, Stuart Fails to Save the Universe
-
-Wed, 22 Jul 2026 22:32:45 GMT
-
-https://www.cbr.com/stuart-fails-to-save-the-universe-set-visit/
-
-Stuart Fails to Save the Universe, from the world of The Big Bang Theory, premieres on HBO on July 23. The set was chock full of fun easter eggs.
----------
-
-# 4 Dark Shonen Anime That Are Just As Good As JJK
-
-Anime, Jujutsu Kaisen, Chainsaw Man, Yu Yu Hakusho, Hunter X Hunter, Fullmetal Alchemist: Brotherhood
-
-Wed, 22 Jul 2026 22:15:14 GMT
-
-https://www.cbr.com/dark-shonen-anime-as-good-as-jjk/
-
-Jujutsu Kaisen is an excellent dark shonen anime, but these series are just as good at exploring dark and mature themes.
----------
-
-# 2026's Most Divisive Horror Release Blows Up on Streaming After Record-Setting Box Office
-
-Movies, Scary Movie
-
-Wed, 22 Jul 2026 22:00:14 GMT
-
-https://www.cbr.com/scary-movie-6-horror-comedy-pvod-success-july-2026/
-
-Critics might hate the film, but it's nevertheless a big success, both in theaters and at home.
----------
-
-# George Lucas' 'Biggest Risk' Helped Create The Mandalorian and Grogu
-
-Movies, Star Wars, The Mandalorian and Grogu, Star Wars: Episode II - Attack of the Clones
-
-Wed, 22 Jul 2026 22:00:14 GMT
-
-https://www.cbr.com/star-wars-yoda-dooku-fight-inspired-mandalorian-and-grogu/
-
-Disney's latest Star Wars film would have been impossible if not for a major gamble that George Lucas took over two decades prior.
----------
-
-# The 2026 Horror Hit Endorsed by Christopher Nolan Officially Overtakes 'The Exorcist'
-
-Movie News, Obsession, The Exorcist, Horror, Curry Barker
-
-Wed, 22 Jul 2026 23:00:14 GMT
-
-https://collider.com/obsession-overtakes-the-exorcist-global-box-office-442-million/
-
-Obsession has officially earned more than The Exorcist at the worldwide box office, becoming one of horror’s biggest hits ever.
----------
-
-# Marvel Officially Confirms Which Disney+ Show Matters Most Before ‘Avengers: Doomsday’
-
-TV Features, Avengers: Doomsday, Loki, Tom Hiddleston, Chris Hemsworth
-
-Wed, 22 Jul 2026 22:57:14 GMT
-
-https://collider.com/loki-disney-plus-series-must-watch-before-avengers-doomsday/
-
-Disney+'s Loki gives the God of Mischief the character development he deserves, and Avengers: Doomsday may finally acknowledge that.
----------
-
-# 'X-Men ‘97’s Most Shocking Resurrection Is Pulled Straight From the Comics
-
-TV Features, X-Men '97, X-Men: The Animated Series, Avengers: Doomsday, Disney Plus
-
-Wed, 22 Jul 2026 22:32:50 GMT
-
-https://collider.com/x-men-97-season-2-gambit-resurrection-horseman-of-death-comics-explanation/
-
-X-Men '97 has delivered the resurrection fans have been waiting for, and it has ties to a long-forgotten comic book storyline.
----------
-
-# Guns N' Roses Took the World by Storm with This Game-Changing 1987 Classic
-
-Music Features, Guns N' Roses, Music
-
-Wed, 22 Jul 2026 22:11:14 GMT
-
-https://collider.com/guns-n-roses-welcome-to-the-jungle-1987-hit/
-
-Guns N' Roses' "Welcome to the Jungle" wasn't a hit out of the gate, but eventually put Axl, Slash, Duff, and Izzy on the map.
----------
-
-# 9 Must-Watch Shows To Enjoy After You Finish Netflix's 'The Hawk'
-
-TV, The Hawk, Ted Lasso, Eastbound & Down, Chad Powers
-
-Wed, 22 Jul 2026 22:03:14 GMT
-
-https://collider.com/tv-shows-like-the-hawk-netflix/
-
-Ted Lasso, Eastbound & Down, and The Fall and Rise of Reggie Dinkins are perfect to watch after you finish watching Netflix's sports comedy The Hawk.
----------
-
-# Paul Wesley Reveals Why Kirk Genuinely Loves Spock in 'Strange New Worlds' Season 4
-
-TV News, Star Trek: Strange New Worlds, Star Trek
-
-Wed, 22 Jul 2026 22:35:46 GMT
-
-https://movieweb.com/star-trek-strange-new-worlds-kirk-loves-spock/
-
-'Star Trek' fans can expect Kirk and Spock's friendship to deepen in 'Strange New Worlds' Season 4.
----------
-
-# Netflix Scores Big With Will Ferrell's Divisive New Netflix Series
-
-TV News, The Hawk, Netflix
-
-Wed, 22 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/the-hawk-will-ferrell-netflix-chart-july-2026/
-
-Will Ferrell takes the lead for the first time on TV.
----------
-
-# Doctor Who Meets Severance In Disney+'s 2-Part Sci-Fi Series
-
-Streaming TV, Masked Recs
-
-Wed, 22 Jul 2026 21:45:11 GMT
-
-https://screenrant.com/loki-disney-plus-doctor-who-meets-severance/
-
-Disney+ is home to one of the best sci-fi TV shows of the decade, and it's a perfect combination of the best things about Doctor Who and Severance.
----------
-
-# How Long Will Christopher Nolan's The Odyssey Play In IMAX 70MM As Tickets Sell Out Up To 7 Weeks
-
-Movies, The Odyssey, Christopher Nolan
-
-Wed, 22 Jul 2026 21:35:00 GMT
-
-https://screenrant.com/how-long-will-christopher-nolans-the-odyssey-play-in-imax-70mm-as-tickets-sell-out-up-to-7-weeks/
-
-Christopher Nolan's The Odyssey may be showing in IMAX 70mm for months, with tickets sold out weeks in advance in certain major cities.
----------
-
-# Reacher Meets Law & Order In Prime Video's Best Detective Show
-
-TV, Masked Recs
-
-Wed, 22 Jul 2026 21:31:11 GMT
-
-https://screenrant.com/bosch-reacher-meets-law-order-prime-video/
-
-Prime Video's detective drama masterfully blended the grizzled antihero character study of Reacher with the police procedural format of Law & Order.
----------
-
-# It's The End Of An Era For The MCU After 37 Movies
-
-Movies, Marvel Cinematic Universe, Avengers: Doomsday, Avengers: Secret Wars
-
-Wed, 22 Jul 2026 21:15:11 GMT
-
-https://screenrant.com/marvel-reboot-after-secret-wars-new-universe/
-
-The Marvel Cinematic Universe has been telling one connected story for 37 movies, but Kevin Feige just hinted that a new universe is coming.
----------
-
-# Apple TV's New 10-Part Dystopian Sci-Fi Adventure Succeeds In Its Hardest Task
-
-Streaming TV, Masked Recs
-
-Wed, 22 Jul 2026 21:04:59 GMT
-
-https://screenrant.com/apple-tv-silo-season-3-juliette-memory-loss-hardest-task/
-
-Apple TV's new 10-episode dystopian sci-fi adventure had a hard task, and with multiple entries already released, it is clear that it has succeeded.
----------
-
-# Paramount+ Finds Yellowstone Replacement With Scotland-Set Kenneth Branagh Series
-
-TV, Kenneth Branagh
-
-Wed, 22 Jul 2026 21:02:28 GMT
-
-https://screenrant.com/laird-show-paramount-plus-yellowstone-replacement-series-kenneth-branagh/
-
-Paramount+ has relied on Taylor Sheridan to create several shows, but now the streamer is working on a Scotland-set series similar to Yellowstone.
----------
-
-# Brandon Sanderson's Stormlight Archive TV Series Already Has An Advantage Over Its Fantasy Rival
-
-TV, Masked Recs
-
-Wed, 22 Jul 2026 21:02:11 GMT
-
-https://screenrant.com/stormlight-archive-tv-show-brandon-sanderson-longer-season/
-
-Apple TV is set to adapt author Brandon Sanderson's Stormlight Archive as a fantasy series, and the show has one thing its biggest rival is missing.
----------
-
-# Star Trek Confirms the Greatest Threat to the Federation
-
-Comics, Star Trek
-
-Wed, 22 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/star-trek-greatest-threat-federation/
-
-An old foe.
----------
-
-# X-Men '97 Season 2: Over 20 Easter Eggs, References, & Marvel Cameos In Episode 6
-
-Superheroes, X-Men '97, Marvel Cinematic Universe
-
-Wed, 22 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/x-men-97-season-2-episode-6-easter-eggs-references-cameos/
-
-X-Men '97 season 2, episode 6 is full of exciting Easter eggs, references to the comics, and some fun cameos from the greater Marvel Universe.
 ---------
