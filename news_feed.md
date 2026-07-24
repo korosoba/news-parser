@@ -1,3 +1,377 @@
+# Ghosts Season 6's Special Episode Officially Introducing Hetty's Sister
+
+TV, Ghosts
+
+Fri, 24 Jul 2026 18:52:50 GMT
+
+https://screenrant.com/ghosts-season-6-christmas-special-episodes-plot-details-hetty-sister/
+
+Ghosts season 6 won't premiere until 2027, but there's already news on what to expect from the CBS sitcom's upcoming special holiday episodes.
+---------
+
+# Disney Officially Confirms Next Indiana Jones Sequel
+
+Marvel Comics, Indiana Jones, San Diego Comic-Con
+
+Fri, 24 Jul 2026 18:51:22 GMT
+
+https://screenrant.com/indiana-jones-sword-of-pandemonium-marvel/
+
+Disney unveils the next installment in the Indiana Jones franchise, Indiana Jones and the Sword of Pandemonium, which returns to Indy's prime years.
+---------
+
+# Ghosts Season 5 Officially Confirms Exciting New Casting Change
+
+Network TV, Ghosts
+
+Fri, 24 Jul 2026 18:50:57 GMT
+
+https://screenrant.com/ghosts-season-6-ben-feldman-series-regular-update/
+
+Ghosts season 6 confirms exciting casting change, with Ben Feldman's character Kyle becoming a series regular, as Sam's counterpart takes on new role.
+---------
+
+# DC Officially Announces Batman's Next Game-Changing Series
+
+Comic-Con, San Diego Comic-Con
+
+Fri, 24 Jul 2026 18:40:42 GMT
+
+https://screenrant.com/batman-of-two-worlds-series-details/
+
+DC Comics has officially announced its next Batman series, its most ambitious project in years and one that could change the Dark Knight forever.
+---------
+
+# George R. R. Martin's Hit Crime Series Returns With "Career Performance High" In Season 5
+
+TV, Dark Winds, San Diego Comic-Con
+
+Fri, 24 Jul 2026 18:37:10 GMT
+
+https://screenrant.com/dark-winds-season-5-career-high-performance-jessica-matten-sdcc-2026/
+
+Exclusive: The star of Season 5 of executive producer George R.R. Martin's acclaimed crime series hypes their "career performance high."
+---------
+
+# Netflix Is Officially Adapting 44-Year-Old Bestselling Memoir Into Major Series
+
+TV, Netflix
+
+Fri, 24 Jul 2026 18:36:56 GMT
+
+https://screenrant.com/netflix-happy-old-year-movie-adaptation-development/
+
+Netflix is adapting a 44-year-old bestselling memoir into a major series shortly after the author's work formed the basis for an Oscar-winning film.
+---------
+
+# Leroy Jethro Gibbs' 10 Best NCIS Quotes, Ranked
+
+Network TV, NCIS
+
+Fri, 24 Jul 2026 18:30:11 GMT
+
+https://screenrant.com/best-leroy-jethro-gibbs-quotes-ncis/
+
+Ranking the best NCIS quotes from Leroy Jethro Gibbs, the former MCRT leader, showcasing his wisdom, humor, and leadership throughout the series.
+---------
+
+# Sauron Forges The One Ring & Battles The Elves In The Rings Of Power Season 3 Trailer
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, San Diego Comic-Con
+
+Fri, 24 Jul 2026 18:30:11 GMT
+
+https://screenrant.com/lord-of-the-rings-of-power-season-3-trailer/
+
+Prime Video has unveiled the first The Lord Of The Rings: The Rings of Power season 3 trailer, teasing what is next for Sauron, Galadriel, and more.
+---------
+
+# Star Wars' Sith Lord Manny Jacinto Is Officially Playing A Demon In New Fantasy Movie
+
+Movies, Forgotten Island, Manny Jacinto, San Diego Comic-Con
+
+Fri, 24 Jul 2026 18:22:40 GMT
+
+https://screenrant.com/forgotten-island-movie-manny-jacinto-demon-role-sdcc-2026/
+
+After making his Star Wars debut in 2024, Manny Jacinto is heading to the big screen next year, and his character has now been revealed.
+---------
+
+# Jason Bourne 6 Script Gets First Reaction From Matt Damon
+
+Movies, Jason Bourne 6, Jason Bourne
+
+Fri, 24 Jul 2026 18:20:14 GMT
+
+https://screenrant.com/jason-bourne-6-script-reaction-update-matt-damon/
+
+Matt Damon reveals that he has read some of the script for Jason Bourne 6, and his reaction is a promising sign for the espionage franchise’s future.
+---------
+
+# Netflix's Sleeper Hit Summer 2026 Anime Keeps Getting Better Every Episode
+
+Anime, Sparks of Tomorrow, Netflix
+
+Fri, 24 Jul 2026 18:15:15 GMT
+
+https://www.cbr.com/netflix-anime-sparks-of-tomorrow-sleeper-hit-summer-2026/
+
+Netflix's Sparks of Tomorrow is breaking barriers through its unique blend of revisionist steampunk history and star-crossed romance.
+---------
+
+# Raiders Of The Lost Ark Sequel Just Got Confirmed
+
+Comics, Indiana Jones, Raiders of the Lost Ark, San Diego Comic-Con
+
+Fri, 24 Jul 2026 18:00:58 GMT
+
+https://www.cbr.com/indiana-jones-sword-pandemonium-marvel-comic-confirmed/
+
+Indiana Jones is back in a new comic book series!
+---------
+
+# 10 X-Men Characters Who Deserve Their Own Solo MCU Movie or Disney+ Series
+
+Comics, X-Men
+
+Fri, 24 Jul 2026 18:00:15 GMT
+
+https://www.cbr.com/x-men-characters-who-need-solo-mcu-projects/
+
+The X-Men will be arriving in the MCU and with a reboot on the horizon, multiple characters deserve their own spinoff.
+---------
+
+# Blade Runner 2099 Gets First Trailer Confirming 2026 Release
+
+TV, Blade Runner 2099, Sci-Fi, Prime Video
+
+Fri, 24 Jul 2026 17:32:33 GMT
+
+https://www.cbr.com/blade-runner-2099-trailer/
+
+Michelle Yeoh and Hunter Schafer lead the new Blade Runner streaming series.
+---------
+
+# The 10 Best Optimus Prime Quotes From Transformers
+
+TV, optimus prime, Transformers, Sci-Fi
+
+Fri, 24 Jul 2026 17:30:15 GMT
+
+https://www.cbr.com/transformers-optimus-prime-iconic-lines-autobots/
+
+Whether challenging Megatron's schemes or rallying his Autobot troops, Optimus Prime has an impressive statement for nearly every situation.
+---------
+
+# Hello Kitty Island Adventure Adds Over 300 New Designs in Major Update
+
+Anime, Hello Kitty Island Adventure, sanrio, Hello Kitty
+
+Fri, 24 Jul 2026 17:20:15 GMT
+
+https://www.cbr.com/hello-kitty-island-adventure-tea-garden-dlc-update/
+
+Sanrio confirms a major expansion for the cozy Hello Kitty Island Adventure game coming August 6.
+---------
+
+# Every Upper Moon In Demon Slayer, Ranked By Tragic Backstory
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Demon Slayer: Kimetsu no Yaiba Infinity Castle, shonen anime
+
+Fri, 24 Jul 2026 17:16:14 GMT
+
+https://www.cbr.com/demon-slayer-upper-moon-tragic-backstory-ranked/
+
+The Upper Moon of the Twelve Demons in Demon Slayer might be the villains, but some of their pasts are truly tragic or disturbing.
+---------
+
+# Marvel Officially Launches a Special 'Light' and 'Dark' Superhero Team
+
+Comics, Venom
+
+Fri, 24 Jul 2026 17:06:45 GMT
+
+https://www.cbr.com/marvel-officially-launches-special-light-dark-superhero-team/
+
+In a CBR preview of Queen in Black: Defenders of Light and Dark #1, see how Marvel debuts a new superhero team with special "light" and "dark" heroes
+---------
+
+# It's Officially the End of an Era for One Major 'Ghosts' Rule
+
+TV News, Ghosts, SDCC, Román Zaragoza, Asher Grodman
+
+Fri, 24 Jul 2026 18:47:29 GMT
+
+https://collider.com/ghosts-season-6-100th-episode-halloween-christmas-special-details/
+
+The cast of Ghosts reveals new details about Season 6's Halloween and Christmas specials, the 100th episode, Sas' death and more!
+---------
+
+# Prime Video Officially Reveals 'Rings of Power' Season 3 Is Giving the Balrog a Voice
+
+TV News, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Simon Pegg, San Diego Comic-Con
+
+Fri, 24 Jul 2026 18:32:27 GMT
+
+https://collider.com/rings-of-power-season-3-balrog-speaking-simon-pegg-cast/
+
+Prime Video has confirmed that not only will the Balrog speak in Rings of Power Season 3, but he'll be voiced by a legendary Star Trek icon.
+---------
+
+# Prime Video's 'Rings of Power' Season 3 Officially Debuts Action-Packed First Trailer
+
+TV News, The Lord of the Rings: The Rings of Power, Prime Video, Fantasy, The Lord of the Rings
+
+Fri, 24 Jul 2026 18:31:40 GMT
+
+https://collider.com/rings-of-power-season-3-trailer-prime-video/
+
+Prime Video has debuted the first trailer for The Lord of the Rings: The Rings of Power Season 3 ahead of its 2026 premiere. See it here!
+---------
+
+# Marvel Just Officially Reopened One of the X-Men's Most Controversial Debates
+
+Books and Comics News, Marvel, Comics, X-Men, San Diego Comic-Con
+
+Fri, 24 Jul 2026 18:30:14 GMT
+
+https://collider.com/marvel-x-men-controversial-debate-reopened-psylocke-betsy-kwannon/
+
+Marvel's Maximum X-Men series, set to launch in December, reignites the Psylocke identity debate by featuring Betsy Braddock as the iconic character.
+---------
+
+# The Odyssey: Nolan Pushed Practical Filmmaking to Extremes
+
+Movie, Originals
+
+Fri, 24 Jul 2026 18:15:15 GMT
+
+https://collider.com/video/the-odyssey-nolan-pushed-practical-filmmaking-to-extremes/
+
+Christopher Nolan's The Odyssey pushed practical filmmaking further than ever, with real ships, brutal locations, groundbreaking IMAX technology, and a production that demanded everything from its cast and crew.
+---------
+
+# Star Wars Confirms New Luke and Leia Release for 2027
+
+Books and Comics News, Star Wars, luke skywalker, Princess Leia, SDCC
+
+Fri, 24 Jul 2026 18:05:14 GMT
+
+https://collider.com/star-wars-twin-crossroads-luke-leia-book/
+
+Lucasfilm has announced Twin Crossroads, a new Star Wars novel following Luke Skywalker and Leia Organa after Return of the Jedi.
+---------
+
+# Star Wars Is Officially Getting a New Horror Project
+
+Books and Comics News, Star Wars, Horror, Comic Book, SDCC
+
+Fri, 24 Jul 2026 18:05:14 GMT
+
+https://collider.com/star-wars-horror-comic-galactic-tales-of-terror/
+
+A terrifying new tome of Star Wars horror comics is hitting shelves this fall. Read on for more.
+---------
+
+# 5 Years Later, ‘The Book of Boba Fett’ Is Officially Getting a Sequel Series
+
+Books and Comics News, The Book of Boba Fett, The Mandalorian, Star Wars, SDCC
+
+Fri, 24 Jul 2026 18:05:14 GMT
+
+https://collider.com/the-book-of-boba-fett-sequel-comic-book-series/
+
+This weekend at San Diego Comic-Con, Star Wars announced an official sequel series to The Book of Boba Fett coming this August.
+---------
+
+# Indiana Jones Is Officially Getting a New Spin-Off Series
+
+Books and Comics News, Harrison Ford, Indiana Jones, Lucasfilm, SDCC
+
+Fri, 24 Jul 2026 18:05:14 GMT
+
+https://collider.com/indiana-jones-new-spin-off-comic-book-series/
+
+Indiana Jones is back with a new comic to excite fans.
+---------
+
+# Star Wars Confirms New 'Rogue One' Spin-Off Project
+
+Books and Comics, Star Wars, Rogue One, Andor, SDCC
+
+Fri, 24 Jul 2026 18:05:14 GMT
+
+https://collider.com/star-wars-confirms-new-rogue-one-spin-off-project/
+
+Star Wars is expanding the time of the Galactic Empire set around its more beloved stand alone film.
+---------
+
+# 'The Lord of the Rings: The Rings of Power' Season 3 Trailer Officially Unleashes Sauron at His Peak
+
+TV News, The Lord of the Rings: The Rings of Power
+
+Fri, 24 Jul 2026 18:34:10 GMT
+
+https://movieweb.com/lord-of-the-rings-rings-of-power-season-3-teaser-trailer/
+
+Sauron reaches the peak of his power in 'The Rings of Power' Season 3.
+---------
+
+# This Fall Finally Delivers Long-Awaited Spin-Off to Action Thriller Cult Classic
+
+Movie News, Onslaught, The Guest, Adam Wingard
+
+Fri, 24 Jul 2026 18:30:53 GMT
+
+https://movieweb.com/onslaught-movie-the-guest-spin-off-action-thriller/
+
+Adam Wingard confirms 'Onslaught' is set in the same universe as 'The Guest.'
+---------
+
+# Star Trek's Big-Screen Comeback Sounds Worryingly Similar to 'Starfleet Academy'
+
+Features, Star Trek, Star Trek: Starfleet Academy
+
+Fri, 24 Jul 2026 18:00:12 GMT
+
+https://movieweb.com/star-trek-new-movie-plans/
+
+There have finally been some details released about the upcoming Star Trek movie, but they seem concerning. Read on for more.
+---------
+
+# 10 Camping Horror Movies That Will Keep You Out of the Woods
+
+Movie Lists, Horror
+
+Fri, 24 Jul 2026 18:00:12 GMT
+
+https://movieweb.com/camping-horror-movies-keep-you-out-of-the-woods/
+
+Oftentimes, horror works as a cautionary tale. In the case of the following movies, they will be scary enough to cancel that camping trip.
+---------
+
+# Alan Ritchson Returns In R-Rated Action Thriller Before 'Reacher' Season 4
+
+Features, Alan Ritchson, Motor City, Action, Reacher
+
+Fri, 24 Jul 2026 17:57:57 GMT
+
+https://movieweb.com/motor-city-alan-ritchson-action-thriller/
+
+Alan Ritchson is starring in an action thriller movie two weeks before the Season 4 premiere of the Amazon Prime Video series 'Reacher.'
+---------
+
+# 'Blade Runner 2099' Trailer Unveils Bold New Era for Sci-Fi Saga as Release Date Confirmed
+
+TV News, Blade Runner 2099, Blade Runner 2049, Blade Runner, Prime Video, Comic-Con
+
+Fri, 24 Jul 2026 17:25:45 GMT
+
+https://movieweb.com/blade-runner-2099-trailer-release-date/
+
+The first trailer for Prime Video's 'Blade Runner 2099' debuted at San Diego Comic-Con (SDCC), giving fans a glimpse of the sci-fi sequel series.
+---------
+
 # Tom Holland Makes Spider-Man History With Marvel Milestone
 
 Movies, Spider-Man
@@ -5122,378 +5496,4 @@ Thu, 23 Jul 2026 03:00:11 GMT
 https://screenrant.com/nintendo-gamecube-10-rated-games-no-notes/
 
 The GameCube had plenty of great games, but only a more limited selection of classics would be truly hard to improve in any meaningful way.
----------
-
-# The Lord Of The Rings Has Reached A Franchise First After More Than 70 Years
-
-Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings
-
-Thu, 23 Jul 2026 02:45:06 GMT
-
-https://screenrant.com/lord-of-the-rings-gandalf-two-actors-franchise-first/
-
-For the better part of the century, the on-screen Lord of the Rings franchise has been handled in a particular way. Now, everything is about to change
----------
-
-# DC’s Answer To Game of Thrones Needs To Be Adapted Immediately
-
-Superheroes, DC Universe, Dark Knights of Steel: Allwinter, Absolute Batman
-
-Thu, 23 Jul 2026 02:30:11 GMT
-
-https://screenrant.com/dc-game-of-thrones-needs-an-adaptation-dark-knights-of-steel/
-
-As exciting as the upcoming Absolute Batman animated series is, DC Studios needs to seriously think about DC Comics' epic "Game of Thrones" story.
----------
-
-# Every Historical Figure In Assassin's Creed Odyssey
-
-Game Features, Assassin's Creed, Assassin's Creed Odyssey
-
-Thu, 23 Jul 2026 02:00:21 GMT
-
-https://screenrant.com/assassins-creed-odyssey-all-historical-figures-real-people/
-
-Assassin’s Creed Odyssey gives players the opportunity to meet the historical and mythological figures who shaped the Ancient Greek world.
----------
-
-# Davis's Ransom Canyon Season 2 Exit Detailed By Josh Duhamel
-
-TV, Ransom Canyon - Season 2
-
-Thu, 23 Jul 2026 02:00:06 GMT
-
-https://screenrant.com/ransom-canyon-season-2-davis-exit-josh-duhamel/
-
-EXCLUSIVE: Josh Duhamel teases a new chapter for Staten Kirkland in Ransom Canyon season 2, as Davis Collins' exit opens doors for new opportunities.
----------
-
-# Pluribus Unveils New Release As Season 2 Wait Continues
-
-TV, Pluribus, Pluribus - Season 1, Pluribus - Season 2
-
-Thu, 23 Jul 2026 01:53:23 GMT
-
-https://screenrant.com/pluribus-season-1-apple-tv-bloopers-video/
-
-While the wait continues for Apple TV's Pluribus season 2, a new release has arrived to temporarily help tide fans over in the meantime.
----------
-
-# Dragon Ball DAIMA's Super Saiyan 4 Goku Officially Returns August 15
-
-Anime, Dragon Ball, Dragon Ball DAIMA, merchandise, bandai, action figures
-
-Thu, 23 Jul 2026 03:59:14 GMT
-
-https://www.cbr.com/dragon-ball-daima-super-saiyan-4-goku-bandai-evolve-release/
-
-Super Saiyan 4 Goku broke the internet at the climax of Dragon Ball DAIMA, and now he's finally returning in less than 1 month for international fans.
----------
-
-# 5 Classic PS1 Games That Are 100% Unplayable Today
-
-Games, PlayStation (Original), Video Games, Tomb Raider
-
-Thu, 23 Jul 2026 03:45:14 GMT
-
-https://www.cbr.com/unplayable-ps1-classics/
-
-Decades later, PS1 games like Tomb Raider and Gran Turismo are impossible to play.
----------
-
-# 5 Stephen King Books Better Than Carrie
-
-TV, Stephen King, Carrie, Horror
-
-Thu, 23 Jul 2026 03:30:15 GMT
-
-https://www.cbr.com/stephen-king-books-better-than-carrie-list/
-
-Even though Carrie was Stephen King's first novel and definitely put him on the map as a horror author, it isn't among his best works.
----------
-
-# The 15 Deepest Far Side Comics Ever Created
-
-Comics, The Far Side
-
-Thu, 23 Jul 2026 03:30:15 GMT
-
-https://www.cbr.com/the-far-sides-deepest-comics-ever/
-
-Gary Larson's The Far Side presents itself as a funny and absurd comic strip, but its ability to be deep and emotional is equally important to fans.
----------
-
-# The Free-to-Play RPG With 21 Million Players and Very Positive Steam Reviews
-
-Games, Guild Wars 2
-
-Thu, 23 Jul 2026 03:15:14 GMT
-
-https://www.cbr.com/free-to-play-rpg-21-million-players-very-positive-steam-reviews-gw2/
-
-One of the best free games ever still has millions of players.
----------
-
-# Disney's Tangled Live-Action Is Officially the Fantasy Event of the Decade
-
-Movies, Tangled, Disney, Fantasy
-
-Thu, 23 Jul 2026 03:15:14 GMT
-
-https://www.cbr.com/disney-tangled-live-action-remake-officially-fantasy-event-of-the-decade/
-
-Not every Disney live-action remake has been popular, but the Tangled live-action remake might become the fantasy event of the decade.
----------
-
-# Fox's House Replacement Series Officially Comes to Netflix Next Month
-
-TV, Best Medicine
-
-Thu, 23 Jul 2026 03:11:56 GMT
-
-https://www.cbr.com/best-medicine-netflix-streaming-release-date/
-
-The medical drama series soon becomes available for Netflix subscribers.
----------
-
-# Crunchyroll Adds Over 40 Anime Series in Major New Streaming Launch
-
-Anime, Crunchyroll
-
-Thu, 23 Jul 2026 03:05:15 GMT
-
-https://www.cbr.com/crunchyroll-taiwan-streaming-launch/
-
-Anime streaming giant Crunchyroll just gave one of the biggest demographics access to same-day simulcasts on top of a whole new interface.
----------
-
-# 10 Beautifully-Written Anime Series You Must Watch At Least Once
-
-Anime, Frieren: Beyond Journey's End, Clannad
-
-Thu, 23 Jul 2026 02:45:15 GMT
-
-https://www.cbr.com/beautifully-written-anime-series-must-watch-at-least-once/
-
-For their beautiful writing alone, series like Clannad: After Story, Violet Evergarden, and Mushishi must be watched at least once.
----------
-
-# 10 Games to Play If You Only Have 30 Minutes a Night
-
-Games, Video Games, Steam, Nintendo Switch
-
-Thu, 23 Jul 2026 02:30:15 GMT
-
-https://www.cbr.com/games-to-play-30-minutes-a-night/
-
-The curse of adulthood is not having the free time to play games, but some titles can be enjoyed by people who only have 30 minutes free a night.
----------
-
-# 'The Odyssey' Is Actually the Most Christopher Nolan Film He's Ever Made
-
-Movie Features, Christopher Nolan, The Odyssey, Oppenheimer, Inception
-
-Thu, 23 Jul 2026 04:07:14 GMT
-
-https://collider.com/the-odyssey-christopher-nolan-filmography-themes/
-
-The Odyssey is more than just Christopher Nolan's adaptation of a great historical story; it's the culmination of themes that defined his career.
----------
-
-# 'House of the Dragon' Just Exposed the Darkest Storyline in 'Game of Thrones' History
-
-TV Features, House of the Dragon, Game Of Thrones, HBO, HBO Max
-
-Thu, 23 Jul 2026 04:06:14 GMT
-
-https://collider.com/house-of-the-dragon-season-3-harrenhal-storyline-game-of-thrones-history/
-
-House of the Dragon reveals the darkest history of Harrenhal, leaning into the morbid details tied to its original construction.
----------
-
-# HBO’s 8-Part Masterpiece Perfected the Slow-Burn Crime Thriller Better Than ‘True Detective’
-
-TV Features, HBO, The Night Of, Riz Ahmed, John Turturro
-
-Thu, 23 Jul 2026 03:09:14 GMT
-
-https://collider.com/hbo-best-slow-burn-crime-thriller-better-than-true-detective-the-night-of-series/
-
-The Night Of perfected the slow-burn crime thriller with Riz Ahmed’s unforgettable performance, gripping courtroom drama, and an unflinching look at t
----------
-
-# 6 Comic Book Details in the 'Avengers: Doomsday' Trailer Most Fans Missed
-
-Movie, Avengers: Doomsday, MCU, Superhero, comic books
-
-Thu, 23 Jul 2026 03:03:14 GMT
-
-https://collider.com/avengers-doomsday-trailer-comic-book-details-most-fans-missed/
-
-Eagle-eyed comic book fans noticed a few details in the Avengers: Doomsday trailer, including the accurate-ish costumes and certain characters' fates.
----------
-
-# 7 Forgotten 2000s Mystery Shows That Have Aged Like Fine Wine
-
-TV, Mystery, 2000s, MI-5, In Plain Sight
-
-Thu, 23 Jul 2026 03:01:14 GMT
-
-https://collider.com/forgotten-2000s-mystery-shows-aged-like-fine-wine/
-
-Time has been kind to forgotten 2000s mystery shows like MI-5, Wire in the Blood, and In Plain Sight, with their reputation improving with age.
----------
-
-# Taylor Sheridan’s 2-Part ‘Yellowstone’ Spin-Off Is Officially CBS’ Newest Smash Hit
-
-TV News, Marshals, Yellowstone, Taylor Sheridan, CBS
-
-Thu, 23 Jul 2026 02:00:25 GMT
-
-https://collider.com/taylor-sheridan-yellowstone-spin-off-marshals-cbs-success-july-2026/
-
-Taylor Sheridan’s Marshals became the most-watched broadcast series of the season despite earning the franchise’s worst Rotten Tomatoes scores.
----------
-
-# 'Silence of the Lambs' Became a Completely Different Movie Because of This Change
-
-Movie Features, Silence of the Lambs, Jodie Foster, Michelle Pfeiffer, Anthony Hopkins
-
-Thu, 23 Jul 2026 01:03:14 GMT
-
-https://collider.com/silence-of-the-lambs-clarice-starling-jodie-foster-michelle-pfeiffer/
-
-Silence of the Lambs heroine Clarice Starling is one of Jodie Foster's most iconic roles, but director Jonathan Demme preferred Michelle Pfeiffer.
----------
-
-# Supergirl Officially Returns With New Sci-Fi Epic in 2 Months
-
-Books and Comics News, Supergirl, DC, DCU
-
-Thu, 23 Jul 2026 01:00:15 GMT
-
-https://collider.com/supergirl-woman-of-tomorrow-full-cast-audiobook-release-date-september-1-2026/
-
-After Supergirl underperformed at the box office, the story that inspired the movie is getting a brand-new release by the end of the year.
----------
-
-# The 7 Best Erotic Sci-Fi Movies of All Time, Ranked
-
-Movie Lists, Sci-Fi
-
-Thu, 23 Jul 2026 02:30:12 GMT
-
-https://movieweb.com/best-erotic-sci-fi-movies-ever/
-
-From cult classics to arthouse gems, explore the best of erotic science fiction to make it to the big screen.
----------
-
-# 10 Greatest Fantasy Anime Masterpieces of All Time, Ranked
-
-TV Lists, Anime, Attack On Titan, Demon Slayer: Kimetsu no Yaiba
-
-Thu, 23 Jul 2026 02:00:22 GMT
-
-https://movieweb.com/greatest-fantasy-anime-masterpieces/
-
-These fantasy anime TV series are some of the best that were ever released, and every fan of the genre should watch them.
----------
-
-# Netflix Just Proved It Doesn't Need 'Stranger Things' Anymore
-
-Features, Netflix, Stranger Things
-
-Thu, 23 Jul 2026 01:00:12 GMT
-
-https://movieweb.com/netflix-proved-stranger-things/
-
-Nielsen’s Top 25 rankings for 2025-26 prove that viewers aren't looking for big budget franchises on TV. They just want good storytelling.
----------
-
-# What Is X-Corp? Marvel Studios' Newest X-Men Initiative Explained
-
-Superheroes, X-Men '97, Marvel Cinematic Universe
-
-Thu, 23 Jul 2026 00:30:11 GMT
-
-https://screenrant.com/what-is-x-corp-marvel-studios-new-x-men-97-initiative-explained/
-
-Marvel Studios' latest X-Men project has debuted X-Corp, an ambitious undertaking from the comics serving as the next evolution of Xavier's dream.
----------
-
-# Gambit & Reed Richards Return Right After Marvel's Avengers: Doomsday Trailer
-
-Streaming TV, Masked Recs
-
-Thu, 23 Jul 2026 00:28:10 GMT
-
-https://screenrant.com/x-men-97-season-2-gambit-reed-richards-appearance/
-
-After the Avengers: Doomsday trailer, Gambit and Reed Richards make surprising appearances in Marvel Studios' new releaase before the MCU movie.
----------
-
-# Avengers: Doomsday's Trailer Has Marvel Fans Convinced The Ending Was Spoiled
-
-Movies, Avengers: Doomsday
-
-Thu, 23 Jul 2026 00:18:55 GMT
-
-https://screenrant.com/avengers-doomsday-new-trailer-ending-spoiled/
-
-Avengers: Doomsday's brand-new trailer has both excited and devastated fans of the Marvel Universe as they know it due to a potential spoiler.
----------
-
-# LEGO Icons Star Trek U.S.S. Enterprise NCC-1701 Bridge Set Revealed (Exclusive)
-
-TV, Star Trek, LEGO, San Diego Comic-Con
-
-Thu, 23 Jul 2026 00:17:22 GMT
-
-https://screenrant.com/lego-star-trek-enterprise-bridge-set/
-
-LEGO has revealed its new Icons Star Trek U.S.S. Enterprise Bridge set based on the original series, with eight minifigures and tribbles.
----------
-
-# The 1 MCU Show To Watch Before Avengers: Doomsday Is Taking Over Disney+ After New Trailer
-
-TV, Masked Recs
-
-Thu, 23 Jul 2026 00:15:53 GMT
-
-https://screenrant.com/loki-marvel-streaming-success-disney-plus-july-2026/
-
-Two days after the official Avengers: Doomsday trailer was released online, one Marvel Cinematic Universe show is now dominating Disney+.
----------
-
-# The Expanse's 12-Part Sequel Set Up The Main Villain For Seasons 7, 8, And 9
-
-Streaming TV, The Expanse
-
-Thu, 23 Jul 2026 00:15:11 GMT
-
-https://screenrant.com/the-expanse-dragon-tooth-duarte-set-up/
-
-Prime Video's The Expanse has an underrated 12-part sequel that sets up the main villain if the show ever continues for seasons 7, 8, and 9.
----------
-
-# After 34 Years, Daredevil Finally Joins This Classic Marvel Team
-
-Marvel Comics, Daredevil
-
-Thu, 23 Jul 2026 00:00:11 GMT
-
-https://screenrant.com/daredevil-midnight-sons-new-roster/
-
-Marvel's rarest team of street-level heroes finally reunites, and it marks the very first time Daredevil joins its roster, all thanks to Moon Knight.
----------
-
-# NBC Is Building Its Primetime Around Dick Wolf Again
-
-TV, Masked Recs
-
-Thu, 23 Jul 2026 00:00:11 GMT
-
-https://screenrant.com/nbc-dick-wolf-primetime-law-order-one-chicago/
-
-NBC's entire Wednesday night lineup now centers on Dick Wolf's shows, raising questions about the network's reliance on the prolific producer.
 ---------
