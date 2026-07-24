@@ -1,3 +1,311 @@
+# Tom Holland Makes Spider-Man History With Marvel Milestone
+
+Movies, Spider-Man
+
+Fri, 24 Jul 2026 17:00:11 GMT
+
+https://screenrant.com/tom-holland-spider-man-history-brand-new-day-record/
+
+With the long-anticipated release of Spider-Man: Brand New Day, Tom Holland will officially become the first Spidey actor to star in four solo movies.
+---------
+
+# Zelda: Skyward Sword Officially Returns In Limited-Time DLC Event
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Skyward Sword
+
+Fri, 24 Jul 2026 17:00:11 GMT
+
+https://screenrant.com/zelda-skyward-sword-tetris-99-crossover-discounts/
+
+Skyward Sword is one of the most underrated games in Zelda history, and its return is one of the best things we could hope for as fans.
+---------
+
+# DC's Big Aquaman Reboot Is Here, And It Just Revealed 2 New Villain Redesigns
+
+DC Comics, Aquaman
+
+Fri, 24 Jul 2026 17:00:11 GMT
+
+https://screenrant.com/dc-aquaman-reboot-villain-designs-black-manta-king-shark/
+
+DC's new Aquaman origin story reveals its new redesigns for two of his biggest villains, Black Manta and King Shark, who look terrifyingly real.
+---------
+
+# Doctor Doom & Iron Man's MCU Connection Was Revealed 7 Years Before Avengers: Doomsday (Theory)
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
+
+Fri, 24 Jul 2026 16:55:11 GMT
+
+https://screenrant.com/doctor-doom-iron-man-mcu-connection-avengers-endgame-theory/
+
+Doctor Doom and Iron Man's connection in the MCU will be addressed in Avengers: Doomsday, but a Marvel theory suggests it was revealed 7 years before.
+---------
+
+# How I Met Your Mother's Spiritual Successor Returns In 1 Week
+
+Streaming TV, Masked Recs
+
+Fri, 24 Jul 2026 16:30:11 GMT
+
+https://screenrant.com/himym-spiritual-successor-adults-special-episode-july-31/
+
+The best spiritual successor to How I Met Your Mother is officially coming back in one week with a surprise that will be key to its next season.
+---------
+
+# Why The Rings Of Power Has Changed The Nazgûl's Name
+
+Streaming TV, The Lord of the Rings: The Rings of Power
+
+Fri, 24 Jul 2026 16:23:37 GMT
+
+https://screenrant.com/the-rings-of-power-nazgul-name-change-explained/
+
+The Nazgûl will officially appear in The Rings of Power season 3, but under a new name. Fortunately, there's a good reason for the change of canon.
+---------
+
+# Marvel Officially Announces Name Of Avengers' New Era
+
+Marvel Comics, The Avengers, San Diego Comic-Con
+
+Fri, 24 Jul 2026 16:16:28 GMT
+
+https://screenrant.com/avengers-iron-man-new-era-armageddon/
+
+After the Avengers survive their biggest 2026 crossover event, a new era will begin for Earth's Mightiest Heroes, led by one of their iconic members.
+---------
+
+# Marvel Studios' Spider-Man Show Gives Tom Holland's Peter Parker An Origin Story
+
+Streaming TV, Masked Recs, Spider-Man
+
+Fri, 24 Jul 2026 16:15:11 GMT
+
+https://screenrant.com/your-friendly-neighborhood-spider-man-tom-holland-origin-story/
+
+Marvel Studios has finally begun to explore the origin story of Spider-Man, which manages to really capture the best of old and new Spidey stories.
+---------
+
+# DC’s New Official Joker Casting Continues A Vital Batman Tradition
+
+TV, DC Universe, The Joker, Batman: Caped Crusader
+
+Fri, 24 Jul 2026 16:15:11 GMT
+
+https://screenrant.com/dc-new-joker-casting-batman-caped-crusader-tradition/
+
+The newest actor set to play the Joker has been officially confirmed, continuing one key tradition for actors who have taken on the DC role.
+---------
+
+# Halo: Campaign Evolved - Two Betrayals Skull Guide
+
+Gaming, Halo: Campaign Evolved, PC, Halo, Halo: Combat Evolved
+
+Fri, 24 Jul 2026 16:06:18 GMT
+
+https://screenrant.com/halo-campaign-evolved-two-betrayals-skull-guide/
+
+Halo: Campaign Evolved's Two Betrayals mission features the Tough Luck, Black Eye, and Mythic Skulls, one of the hardest Skulls to get in the game.
+---------
+
+# Netflix's New 6-Part Action Thriller Is the Most-Streamed Show in the World
+
+TV, Netflix
+
+Fri, 24 Jul 2026 17:00:15 GMT
+
+https://www.cbr.com/elite-force-action-netflix-global-success-july-2026/
+
+The latest hit action series is taking over the Netflix charts across the entire globe just days after making its way on the platform.
+---------
+
+# Reacher's Future Sounds Even Better With Alan Ritchson's 10-Season Plan
+
+TV, Reacher, Prime Video, Action
+
+Fri, 24 Jul 2026 16:54:44 GMT
+
+https://www.cbr.com/reacher-future-prime-video-alan-ritchson/
+
+Reacher star Alan Ritchson hopes to do 10 seasons of the hit Prime Video action series.
+---------
+
+# Game of Thrones: The Mad King Confirms Premiere Date After Canceling Previews
+
+TV, Game Of Thrones, Fantasy
+
+Fri, 24 Jul 2026 16:17:53 GMT
+
+https://www.cbr.com/game-of-thrones-the-mad-king-premiere-date-previews-cancelled/
+
+The Game of Thrones prequel is moving forward despite concerns.
+---------
+
+# 10 Near-Perfect Short Form Anime Series You Should Watch
+
+Anime, Hetalia: Axis Powers, The Way of the Househusband
+
+Fri, 24 Jul 2026 16:15:15 GMT
+
+https://www.cbr.com/near-perfect-short-form-anime-short-episodes/
+
+Anime like The Disastrous Life of Saiki K. and Detroit Metal City might have short episodes, yet they certainly pack a punch.
+---------
+
+# Godzilla War of the Worlds Crossover Comic Confirmed
+
+Comics, Godzilla, War of The Worlds
+
+Fri, 24 Jul 2026 16:00:14 GMT
+
+https://www.cbr.com/roar-of-the-worlds-godzilla-war-of-the-worlds-crossover/
+
+Godzilla was the one thing missing from this sci-fi classic after all.
+---------
+
+# Brendan Fraser's The Mummy 4 is the Adventure Movie Event of the Decade
+
+Movies, The Mummy 4, The Mummy
+
+Fri, 24 Jul 2026 16:00:14 GMT
+
+https://www.cbr.com/brendan-fraser-the-mummy-4-adventure-movie-event-of-decade/
+
+Brendan Fraser is an adventure genre icon, and his return to his most famous franchise will be a massive cinematic event.
+---------
+
+# Stephen King Hailed This 2020s Horror Masterpiece as 'the Best Modern Vampire Story Ever'
+
+TV, Stephen King, Horror
+
+Fri, 24 Jul 2026 16:00:14 GMT
+
+https://www.cbr.com/stephen-king-coffin-moon-keith-rosson-horror-book-recommendation/
+
+Stephen King is never shy about praising the horror books, movies, and TV shows he loves, but this 2025 novel might be his most glowing.
+---------
+
+# After 13-Year Wait, Star Wars' Shelved Animated Series Confirms Release Date
+
+TV, Star Wars: Detours, Star Wars, Animation
+
+Fri, 24 Jul 2026 15:54:12 GMT
+
+https://www.cbr.com/star-wars-detours-release-date-seth-green/
+
+A lost and forgotten Star Wars series will finally be released.
+---------
+
+# Apple TV's The Studio Season 2 Gets Official Filming Update From Seth Rogen
+
+TV, The Studio, Apple TV, Seth Rogen
+
+Fri, 24 Jul 2026 15:53:23 GMT
+
+https://www.cbr.com/the-studio-apple-tv-season-2-filming-wrap/
+
+Season 2 of The Studio, from Apple TV, has finally received the update everyone was waiting for.
+---------
+
+# 'The Incredibles' Almost Killed Off a Major Character in the Opening Scene [Exclusive]
+
+Movie News, The Incredibles, Brad Bird, Pixar, San Diego Comic-Con
+
+Fri, 24 Jul 2026 16:48:44 GMT
+
+https://collider.com/the-incredibles-original-opening-syndrome-death-brad-bird/
+
+Brad Bird reveals The Incredibles originally opened with a major character dying in a scrapped scene before becoming a crucial part of the film.
+---------
+
+# Netflix’s 'Stranger Things' Officially Returns With Surprise New Release
+
+Books and Comics News, Stranger Things: The First Shadow, Netflix, Stranger Things, Sci-Fi
+
+Fri, 24 Jul 2026 16:22:45 GMT
+
+https://collider.com/netflix-stranger-things-the-first-shadow-graphic-novel-release-date-january-2027/
+
+Stranger Things is officially back with a brand-new release that will expand on one of the franchise's most important characters.
+---------
+
+# George R.R. Martin's New 'Game of Thrones' Project Officially Hit With Cancellation
+
+TV News, Game Of Thrones, George R.R. Martin, A Knight Of The Seven Kingdoms, House of the Dragon
+
+Fri, 24 Jul 2026 16:06:31 GMT
+
+https://collider.com/george-rr-martin-game-of-thrones-spin-off-the-mad-king-preview-cancellations/
+
+George R.R. Martin's newest Game of Thrones spin-off debuts in 1 month, but the project has been hit with some shock cancellations. Read on for more.
+---------
+
+# 10 Greatest Tom Holland Movies That Aren't Spider-Man
+
+Movie, Tom Holland, The Odyssey, The Impossible, Spider-Man
+
+Fri, 24 Jul 2026 16:06:14 GMT
+
+https://collider.com/best-tom-holland-movies-not-spider-man-ranked/
+
+Although he is best known as the MCU's Spider-Man, Tom Holland has starred in a number of great movies, including The Odyssey and The Impossible.
+---------
+
+# 'Reacher' Star Alan Ritchson's Near-Perfect 118-Minute Hit Soars to #1 on Netflix
+
+Movie News, Alan Ritchson, Ordinary Angels, Hot on Streaming, Netflix
+
+Fri, 24 Jul 2026 17:00:12 GMT
+
+https://movieweb.com/ordinary-angels-alan-ritchson-streaming-hit-netflix-july-2026/
+
+As 'Motor City' hits theaters this weekend, another of Ritchson's movies has found tremendous success on streaming.
+---------
+
+# 'Doctor Who's Divisive Hard Reboot Idea Comes With an Unexpected Advantage
+
+Features, Doctor Who
+
+Fri, 24 Jul 2026 17:00:12 GMT
+
+https://movieweb.com/doctor-who-steven-moffat-reboot-comments/
+
+Chris Chibnall divided Whovians with the Timeless Child storyline, but Steven Moffat has indirectly provided a solution. Read on for more.
+---------
+
+# Matt Damon's New Sci-Fi Action Epic Is an 'Inception'-Style Twist on '80s Classic
+
+Movies, Matt Damon
+
+Fri, 24 Jul 2026 16:20:45 GMT
+
+https://movieweb.com/matt-damon-daniels-sci-fi-action-inception/
+
+Matt Damon will next star in a high-stakes project blending elements of 'The Breakfast Club,' 'Inception,' and anime, set to release in 2027.
+---------
+
+# Natalie Portman Finally Finds the Perfect 'Annihilation' Follow-Up in New Sci-Fi Thriller
+
+Movie News, Natalie Portman, Annihilation
+
+Fri, 24 Jul 2026 16:01:55 GMT
+
+https://movieweb.com/natalie-portman-constellations-film-adaptation-jeff-vandermeer/
+
+8 years later, Natalie Portman is adapting a new sci-fi survival story from 'Annihilation' author.
+---------
+
+# 'Lord of the Rings' Confirms the Fate of Forgotten Movie Character
+
+Features, The Lord of the Rings: The Rings of Power, The Lord of the Rings, J.R.R. Tolkien
+
+Fri, 24 Jul 2026 16:00:12 GMT
+
+https://movieweb.com/lord-of-the-rings-rings-of-power-confirms-celeborn-fate/
+
+'The Lord of the Rings: The Rings of Power' finally revealed if one forgotten movie character is alive, and the answer fits with Tolkien's lore.
+---------
+
 # Alan Ritchson Gives Definitive Blue Mountain State Season 4 Update
 
 TV, Blue Mountain State
@@ -5188,312 +5496,4 @@ Thu, 23 Jul 2026 00:00:11 GMT
 https://screenrant.com/nbc-dick-wolf-primetime-law-order-one-chicago/
 
 NBC's entire Wednesday night lineup now centers on Dick Wolf's shows, raising questions about the network's reliance on the prolific producer.
----------
-
-# Steven Soderbergh's Hit New Crime Movie Releases On Hulu Next Month
-
-Movies, The Christophers
-
-Thu, 23 Jul 2026 00:00:04 GMT
-
-https://screenrant.com/steven-soderbergh-the-christophers-hulu-streaming-release-date/
-
-Steven Soderbergh's newest movie, The Christophers, released in theaters earlier this year, and it's been announced when it will premiere on Hulu.
----------
-
-# Star Trek’s Acclaimed Sci-Fi Series Is The Perfect Binge Before Season 4
-
-Streaming TV, Star Trek: Strange New Worlds
-
-Wed, 22 Jul 2026 23:55:11 GMT
-
-https://screenrant.com/star-trek-strange-new-worlds-season-4-watch/
-
-Star Trek's acclaimed sci-fi series on Paramount+ is the perfect show to binge-watch this week ahead of its highly anticipated season 4 premiere.
----------
-
-# Xbox Game Pass Officially Adds 2 New Day One Releases, Available Now
-
-Games, Xbox Series X (1)
-
-Thu, 23 Jul 2026 00:48:42 GMT
-
-https://www.cbr.com/xbox-game-pass-day-one-release-july-22/
-
-Two new and very bloody games are now available to play for Xbox Game Pass subscribers.
----------
-
-# 10 Forgotten NES Games That Have Aged Like Fine Wine
-
-Games, Metroid, The Goonies 2, Captain America, Nintendo
-
-Thu, 23 Jul 2026 00:45:15 GMT
-
-https://www.cbr.com/forgotten-nes-games-aged-like-fine-wine/
-
-The NES catalog contains some of the most foundational video games ever, but some of its best titles have become completely forgotten.
----------
-
-# Star Trek's Banned Beverly Crusher Episode Is the Best Hidden Gem in Sci-Fi History
-
-TV, Star Trek: The Next Generation, Sci-Fi, Star Trek
-
-Thu, 23 Jul 2026 00:30:15 GMT
-
-https://www.cbr.com/star-trek-banned-beverly-crusher-episode-hidden-sci-fi-gem/
-
-This episode of Star Trek: The Next Generation was initially banned in the UK and is a rare spotlight entry for Dr. Beverly Crusher.
----------
-
-# Demon Slayer: Infinity Castle Record Broken by New Anime Movie With 41 Screenings in 1 Day
-
-Anime, Demon Slayer: Kimetsu no Yaiba Infinity Castle
-
-Thu, 23 Jul 2026 00:20:15 GMT
-
-https://www.cbr.com/demon-slayer-infinity-castle-record-break-chiikawa/
-
-The Demon Slayer: Infinity Castle's single-day screening total has been surpassed, unexpectedly, by one of Japan's up-and-coming kawaii icons.
----------
-
-# 10 Best Mindless Action Anime Series of All Time
-
-Anime, Kill la Kill, s-CRY-ed
-
-Thu, 23 Jul 2026 00:15:15 GMT
-
-https://www.cbr.com/best-mindless-action-anime/
-
-Fans openly celebrate anime that skip worldbuilding and just throw punches at the screen for twenty episodes straight.
----------
-
-# Star Wars’ First Movie in 7 Years Becomes an Instant Global PVOD Hit After Box Office Struggles
-
-Movies, The Mandalorian and Grogu, Star Wars, Sci-Fi
-
-Thu, 23 Jul 2026 00:00:15 GMT
-
-https://www.cbr.com/the-mandalorian-and-grogu-sci-fi-success-pvod-apple-tv-store-july-2026/
-
-Star Wars finds redemption on streaming.
----------
-
-# Canceled TMNT Series Is Officially Coming Back Sooner Than Fans Expected
-
-Comics, Teenage Mutant Ninja Turtles
-
-Thu, 23 Jul 2026 00:00:15 GMT
-
-https://www.cbr.com/tales-of-the-teenage-mutant-ninja-turtles-coastal-chaos-release-date-confirmed/
-
-After its sudden cancellation, this beloved Teenage Mutant Ninja Turtles project is receiving a surprising spin-off.
----------
-
-# A Genre-Defining 90s Action Film is Officially Heading Back to Theaters
-
-Movies, Point Break, Keanu Reeves, Patrick swayze
-
-Thu, 23 Jul 2026 00:00:15 GMT
-
-https://www.cbr.com/point-break-definitive-action-movie-back-in-theaters/
-
-Every heist movie has to live up to the gold standard of one of the best action films of all time.
----------
-
-# Johnny Depp's Forgotten Crime Series Returns as a Streaming Hit After New Reboot Announcement
-
-TV, 21 Jump Street, johnny depp
-
-Wed, 22 Jul 2026 23:30:14 GMT
-
-https://www.cbr.com/johnny-depp-21-jump-street-crime-streaming-hit-july-2026/
-
-Ahead of its new reboot, the crime series that turned Johnny Depp into a star becomes a streaming sensation.
----------
-
-# 7 Soft Sci-Fi Shows Where Every Episode Is a Masterpiece
-
-TV, Sci-Fi, Science Fiction, The Twilight Zone, Battlestar Galactica
-
-Thu, 23 Jul 2026 00:06:14 GMT
-
-https://collider.com/soft-sci-fi-shows-every-episode-masterpiece/
-
-From the game-changing classic series The Twilight Zone to the forgotten gem Timeless, every episode of these soft sci-fi shows are masterpieces.
----------
-
-# Christopher Nolan’s ‘The Odyssey’ Is Officially Too Popular
-
-Movie News, The Odyssey, IMAX, Christopher Nolan, Fantasy
-
-Thu, 23 Jul 2026 00:00:15 GMT
-
-https://collider.com/christopher-nolan-the-odyssey-imax-70mm-projectors-demand/
-
-IMAX says demand for The Odyssey has overwhelmed its limited supply of 70mm film projectors, with some screenings sold out into week five.
----------
-
-# 'House of the Dragon' Quietly Dropped a Daemon and Rhaenyra Twist We Never Saw Coming
-
-TV Features, House of the Dragon, Matt Smith, Emma D'Arcy, HBO Max
-
-Wed, 22 Jul 2026 23:54:14 GMT
-
-https://collider.com/house-of-the-dragon-season-3-episode-5-daemon-rhaenyra-conversation/
-
-Rhaenyra and Daemon have a surprising role reversal as she becomes impulsive while he remains a strategic advisor in the latest House of the Dragon.
----------
-
-# 6 Best Vampire Movies Released Since 2000
-
-Movie, Sinners, Nosferatu, Let the Right One In, Vampire
-
-Wed, 22 Jul 2026 23:21:14 GMT
-
-https://collider.com/best-vampire-movies-since-2000-ranked/
-
-Horror landmarks like Let the Right One In, Sinners, and Underworld are among the best vampire movies released since the year 2000.
----------
-
-# 8 Best Thriller Shows of 2026 (So Far), Ranked
-
-TV, Thriller, The Night Manager, Cape Fear, DTF St. Louis
-
-Wed, 22 Jul 2026 23:11:14 GMT
-
-https://collider.com/best-thriller-shows-2026-ranked/
-
-His & Hers, The Testaments, Cape Fear, The Night Manager, and more make up our list of the best thriller shows of 2026 so far.
----------
-
-# Ridley Scott's Historical Epic Reboot With Hugh Jackman Officially Moving Forward
-
-Movies, Ridley Scott
-
-Thu, 23 Jul 2026 00:44:20 GMT
-
-https://movieweb.com/ridley-scott-treaure-island-hugh-jackman-reboot/
-
-Ridley Scott's is in talks with Sony Pictures for his adaptation of 'Treasure Island.'
----------
-
-# Supernatural '80s Cult Classic Officially Gets New Release 38 Years Later
-
-Movie News, Lady in White
-
-Thu, 23 Jul 2026 00:17:06 GMT
-
-https://movieweb.com/lady-in-white-blu-ray-4k-release/
-
-1988's 'Lady in White' is coming to 4K with a massive amount of special features.
----------
-
-# Cersei's Most Chilling 'Game of Thrones' Quote Predicted the Ending
-
-Features, Game Of Thrones
-
-Thu, 23 Jul 2026 00:00:12 GMT
-
-https://movieweb.com/game-of-thrones-cersei-chilling-quote-predicted-ending/
-
-Cersei Lannister's most chilling Game of Thrones quote told viewers exactly where the series' biggest players would end up in the end.
----------
-
-# 12 Must-See Action Thriller Movies Releasing This Fall
-
-Movie Lists, Action, Thriller
-
-Thu, 23 Jul 2026 00:00:12 GMT
-
-https://movieweb.com/action-thrillers-must-see-fall-2026/
-
-This fall promises new action-thriller movies from lauded directors starring Alan Ritchson, Brad Pitt, and Liam Neeson.
----------
-
-# Prime Video Confirms New 8-Part 'Walking Dead' Replacement Adaptation
-
-TV News, Prime Video, The Walking Dead
-
-Wed, 22 Jul 2026 23:55:32 GMT
-
-https://movieweb.com/stillwater-comic-adaptation-prime-video/
-
-Prime Video is bringing a new series to the small screen that is already drawing comparisons to 'The Walking Dead.'
----------
-
-# M3GAN's First Spinoff Movie Is Releasing 3 Months Too Late
-
-Movies, M3GAN, SOULM8TE
-
-Wed, 22 Jul 2026 23:03:11 GMT
-
-https://screenrant.com/soulm8te-m3gan-spinoff-release-too-late-obsession/
-
-The success of a massive 2026 horror is a crushing blow for M3GAN's first spinoff Soulm8te, which shares its plot with the year's breakout hit.
----------
-
-# 6 Free Steam Games That Are Perfect 10/10s, No Notes
-
-Gaming, Steam
-
-Wed, 22 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/steam-6-free-games-overwhelmingly-positive-reviews-2026/
-
-Discover six free Steam games with overwhelmingly positive reviews, from hidden gems to unforgettable indie classics.
----------
-
-# The Best Character In Every Spider-Man Movie Who Isn't Spider-Man
-
-Movies, Spider-Man
-
-Wed, 22 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/spider-man-movie-every-best-character-not-hero/
-
-Spider-Man is often joined by complex villains, compelling love interests and loyal allies on-screen, some of which are the highlights of their films.
----------
-
-# Grey's Anatomy Season 23 Already Has Its Biggest Redemption Story
-
-Network TV, Grey's Anatomy
-
-Wed, 22 Jul 2026 22:45:11 GMT
-
-https://screenrant.com/greys-anatomy-season-23-benson-kwan-redemption/
-
-In the aftermath of the climactic Grey's Anatomy season 22 finale, one character already deserves a comeback in the ABC staple's upcoming season 23.
----------
-
-# Star Trek's Newest Starfleet Branch Makes Section 31 Look Pathetic
-
-Comics, Star Trek
-
-Wed, 22 Jul 2026 22:30:11 GMT
-
-https://screenrant.com/star-trek-section-31-section-null/
-
-Really bad.
----------
-
-# HBO's Masterpiece 8-Part Psychological Thriller Series Deserves Another Season
-
-TV, Masked Recs
-
-Wed, 22 Jul 2026 22:17:24 GMT
-
-https://screenrant.com/hbo-sharp-objects-thriller-series-deserves-new-season/
-
-One of HBO's best psychological thriller series deserves another season to explore the fallout of an impeccable and dark plot twist in detail.
----------
-
-# Netflix's 'Stranger Things Meets Karate Kid' Series Makes Mortal Kombat Look Small
-
-Classic TV, Masked Recs
-
-Wed, 22 Jul 2026 22:15:11 GMT
-
-https://screenrant.com/cobra-kai-martial-arts-stranger-things-meets-karate-kid/
-
-There is a martial arts show on Netflix that is part Karate Kid and part Stranger Things, and it makes Mortal Kombat look quaint in comparison.
 ---------
