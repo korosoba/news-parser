@@ -1,3 +1,289 @@
+# Halo: Campaign Evolved - The Library Skull Guide
+
+Gaming, Halo: Campaign Evolved, Halo: Combat Evolved, Halo, PC
+
+Fri, 24 Jul 2026 13:38:30 GMT
+
+https://screenrant.com/halo-campaign-evolved-library-skull-guide/
+
+Halo: Campaign Evolved's infamous Library mission gets players up close with the Flood and  includes three unique Skulls: Tilt, Pop, and Famine.
+---------
+
+# 3 Best Movies To Watch On Hulu This Weekend (July 25-26)
+
+Movies, Hulu, Recommendation
+
+Fri, 24 Jul 2026 13:30:11 GMT
+
+https://screenrant.com/best-hulu-movies-watch-weekend-july-25/
+
+It's the final weekend in July, and we're serving up a trio of movies streaming on Hulu that are guaranteed to please even the pickiest film fan.
+---------
+
+# 10 DC Shows To Watch Before HBO’s Lanterns
+
+Classic TV, Lanterns
+
+Fri, 24 Jul 2026 13:30:11 GMT
+
+https://screenrant.com/lanterns-hbo-dc-similar-tv-shows/
+
+HBO Max's Lanterns is set to premiere in August 2026, and in anticipation of the Damon Lindelof series, here are some shows worth checking out.
+---------
+
+# Superman Makes DC History With A Major First
+
+DC Comics, Superman
+
+Fri, 24 Jul 2026 13:30:11 GMT
+
+https://screenrant.com/superman-strength-first-time-record/
+
+DC rewrites Superman's early days and origins as the Man of Steel fights a powerful villain much earlier than canon traditionally dictates.
+---------
+
+# Unreleased Star Wars Series Is Officially Dropping Episodes For The First Time After 13 Years
+
+TV, San Diego Comic-Con, Star Wars
+
+Fri, 24 Jul 2026 13:27:23 GMT
+
+https://screenrant.com/star-wars-detours-episode-curation-lucas-museum/
+
+13 years after the show was created with George Lucas, an unaired Star Wars series is now preparing to release episodes in a unique format.
+---------
+
+# Marvel Confirms It's Officially Replacing The Avengers With The X-Men
+
+Marvel Comics, X-Men, The Avengers, San Diego Comic-Con
+
+Fri, 24 Jul 2026 13:04:27 GMT
+
+https://screenrant.com/maximum-x-men-series-replace-avengers/
+
+This December, the X-Men replace the Avengers as the world's crisis response team after Earth's Mightiest Heroes disband following a major defeat.
+---------
+
+# Marvel Announces Iron Man’s New Era Is Coming In 2027
+
+Comics, Iron Man, Marvel
+
+Fri, 24 Jul 2026 13:03:17 GMT
+
+https://screenrant.com/marvel-iron-man-incarcerated-war-machines/
+
+2027 is going to be a hard time for Tony Stark.
+---------
+
+# New Zelda 40th Anniversary Release Appears Online
+
+Gaming, The Legend of Zelda, Nintendo Switch 2
+
+Fri, 24 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/legend-of-zelda-new-40th-anniversary-release-leaks/
+
+The Legend of Zelda is having a big year as a franchise in 2026, and more exciting announcements could well be on the way soon.
+---------
+
+# Alan Ritchson’s New DCU Casting Theory Might Be The Only One Better Than Batman
+
+Movies, DC Universe, Alan Ritchson
+
+Fri, 24 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/alan-ritchson-dc-universe-orion-casting-theory/
+
+Alan Ritchson may actually be a better prospect for one other DC Universe character than Batman, given the reaction to the concept thus far.
+---------
+
+# 3 Best New Shows To Watch On Netflix This Weekend (July 24–26)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Fri, 24 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/best-new-netflix-shows-watch-weekend-july-24/
+
+The three best new shows to watch on Netflix this weekend, July 24–26, 2026, include an epic K-drama, a Western romance, and the #1 series worldwide.
+---------
+
+# Clayface Star Confirms Whether His Batman Character Is a Hero or Villain in New DCU Movie
+
+Movies, Batman, DCU, San Diego Comic-Con, Clayface
+
+Fri, 24 Jul 2026 13:30:14 GMT
+
+https://www.cbr.com/tom-rhys-harries-clayface-hero-villain/
+
+The Batman character takes center stage, but will he be an ally or enemy?
+---------
+
+# 5 Ways Haki Is Diminishing Devil Fruit Powers In One Piece's Final Saga
+
+Anime, One Piece
+
+Fri, 24 Jul 2026 13:16:14 GMT
+
+https://www.cbr.com/one-piece-haki-stronger-than-devil-fruits-final-saga/
+
+One Piece initially introduced Haki as an alternative form of power, but it's slowly replacing the importance of Devil Fruits in the Final Saga.
+---------
+
+# Star Trek: Strange New Worlds’ Wild Season 4 Premiere Revives a Forgotten Scientific Theory
+
+TV, Star Trek, Star Trek: Strange New Worlds, Sci-Fi
+
+Fri, 24 Jul 2026 13:00:15 GMT
+
+https://www.cbr.com/star-trek-strange-new-worlds-season-4-recap/
+
+The Season 4 premiere of Star Trek: Strange New Worlds may seem like pure fantasy, but it's rooted in some real, forgotten scientific ideas.
+---------
+
+# 5 Greatest Psychological Thrillers Of The 2020s, Ranked
+
+Movies, Thriller, The Invisible Man, Eddington
+
+Fri, 24 Jul 2026 13:00:15 GMT
+
+https://www.cbr.com/best-psychological-thrillers-2020s-ranked-list/
+
+The 2020s have given psychological thriller fans some of the best gems of the 21st century, and five stand out from the rest as near-perfect.
+---------
+
+# Beloved Marvel Artist Breaks Silence on The X-Men Movie Franchise's Biggest Failure
+
+Movies, San Diego Comic-Con, X-Men, The New Mutants
+
+Fri, 24 Jul 2026 12:00:15 GMT
+
+https://www.cbr.com/bill-sienkiewicz-new-mutants-xmen-biggest-failure/
+
+Exclusive: Marvel artist Bill Sienkiewicz opens up on the X-Men movie franchise ending on a sour note.
+---------
+
+# Jeph Loeb Teases The Second Half Of Hush 2 Having ‘A Major, Major Implication on Batman’
+
+Comics, San Diego Comic-Con, batman: hush, Batman
+
+Fri, 24 Jul 2026 12:00:15 GMT
+
+https://www.cbr.com/batman-hush-2-sdcc-jeph-loeb-tease/
+
+What is Batman's fate in Hush 2?
+---------
+
+# Scott Snyder Reveals How New 52's Greatest Weakness Impacted The Absolute Universe
+
+Comics, DC Comics, The New 52, scott snyder
+
+Fri, 24 Jul 2026 12:00:15 GMT
+
+https://www.cbr.com/scott-snyder-reveals-dc-absolute-universe-strength-new-52-weakness/
+
+The most important distinction between DC's Absolute Universe and The New 52.
+---------
+
+# 3 Fantastic Netflix Shows to Binge This Weekend (July 25-26)
+
+TV, Ransom Canyon, Netflix, The Decameron, The Sinner
+
+Fri, 24 Jul 2026 12:41:14 GMT
+
+https://collider.com/best-netflix-shows-binge-july-25/
+
+The Decameron, Ransom Canyon, and The Sinner make up our list of the best Netflix shows to binge the weekend of July 25th, 2026.
+---------
+
+# 10 Most Ambitious TV Shows of All Time
+
+TV, The Sopranos, Lost, Game Of Thrones, The Wire
+
+Fri, 24 Jul 2026 12:23:14 GMT
+
+https://collider.com/most-ambitious-tv-shows-all-time-ranked/
+
+The most ambitious and groundbreaking TV shows of all time include masterpieces like Twin Peaks, The Sopranos, and Buffy the Vampire Slayer.
+---------
+
+# A New Post-Apocalyptic Gundam Anime Series Blasts Into SDCC
+
+TV News, Mobile Suit Gundam, Anime, San Diego Comic-Con, SDCC
+
+Fri, 24 Jul 2026 12:15:14 GMT
+
+https://collider.com/mobile-suit-gundam-rg-xarx-zero-series/
+
+Mobile Suit Gundam RG XARX-ZERO is the newest Gundam series, and is helmed by an acclaimed anime director. Read on for more.
+---------
+
+# The Sci-Fi Spectacle That Sank a Franchise Is a Sudden Hit on HBO Max
+
+Movie News, Pacific Rim: Uprising, Sci-Fi, Pacific Rim, HBO Max
+
+Fri, 24 Jul 2026 12:00:15 GMT
+
+https://collider.com/pacific-rim-uprising-sci-fi-franchise-killer-hbo-max-streaming-success/
+
+The ill-fated sci-fi movie Pacific Rim: Uprising is one of the most-watched titles on HBO Max right now. Find out more.
+---------
+
+# Jason Statham's 116-Minute "John Wick Meets Taken" Action Thriller Continues to Dominate Streaming
+
+Movie News, Jason Statham, A Working Man, Hot on Streaming, Action, Thriller, Prime Video
+
+Fri, 24 Jul 2026 13:30:12 GMT
+
+https://movieweb.com/jason-statham-working-man-streaming-hit-july-2026/
+
+The 2025 revenge thriller has now appeared on the charts on yet another platform, and Statham remains the king of streaming.
+---------
+
+# New 'Avatar: The Last Airbender' Sequel Series Drops First Trailer & Confirms Streaming Release
+
+TV News, Avatar: Seven Havens
+
+Fri, 24 Jul 2026 13:22:21 GMT
+
+https://movieweb.com/avatar-seven-havens-first-trailer-streaming-date/
+
+'Avatar: The Last Airbender' is getting a brand new sequel series and the first trailer just dropped.
+---------
+
+# Netflix's New 6-Part Action Thriller Is Already One of the Biggest Shows on Streaming
+
+TV News, Netflix, Hot on Streaming, Action
+
+Fri, 24 Jul 2026 13:00:12 GMT
+
+https://movieweb.com/elite-force-action-stream-netflix-july-2026/
+
+There's a new action-packed series taking Netflix by storm.
+---------
+
+# When 'The Walking Dead: Dead City' Releases & Full Season 3 Schedule
+
+Features, The Walking Dead, The Walking Dead: Dead City
+
+Fri, 24 Jul 2026 13:00:12 GMT
+
+https://movieweb.com/the-walking-dead-dead-city-season-3-release-schedule/
+
+Season 3 of 'TWD: Dead City' debuts in July — will it be the show's farewell season?
+---------
+
+# Netflix's Psychological Thriller Is So Good, You'll Watch It in One Weekend
+
+Features, The Beast in Me, Netflix, Thriller
+
+Fri, 24 Jul 2026 12:00:12 GMT
+
+https://movieweb.com/the-beast-in-me-netflix-binge/
+
+It's so addictive, it's absolutely beastly.
+---------
+
 # Legend Of Zelda's First Original Switch 2 Game Officially Teased
 
 Gaming, The Legend of Zelda, Nintendo Switch 2
@@ -5210,290 +5496,4 @@ Wed, 22 Jul 2026 21:00:11 GMT
 https://screenrant.com/x-men-97-season-2-episode-6-easter-eggs-references-cameos/
 
 X-Men '97 season 2, episode 6 is full of exciting Easter eggs, references to the comics, and some fun cameos from the greater Marvel Universe.
----------
-
-# 5 Square Enix Games That Are Completely Unplayable In 2026
-
-Gaming, Square Enix, Final Fantasy
-
-Wed, 22 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/5-square-enix-games-unplayable-2026/
-
-Not all games were built to last forever, apparently. These five Square Enix games are completely unplayable in 2026.
----------
-
-# 5 Forgotten War Movies That Are Amazing From Start to Finish
-
-Movies, War
-
-Wed, 22 Jul 2026 21:30:14 GMT
-
-https://www.cbr.com/perfect-war-movies-no-one-remembers-list/
-
-Some of the greatest war movies in cinema history have been forgotten
----------
-
-# Nintendo Confirms Zelda: Ocarina of Time for Switch 2 Isn't a 1:1 Remake
-
-Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
-
-Wed, 22 Jul 2026 21:15:15 GMT
-
-https://www.cbr.com/zelda-ocarina-of-time-switch-2-remake-slogan-analysis/
-
-A new ad for the Switch 2’s upcoming The Legend of Zelda: Ocarina of Time suggests this game is way bigger than just a remake with updated graphics.
----------
-
-# Fox's 8-Season Medical Masterpiece Returns as a Streaming Sensation 14 Years Later
-
-TV, House
-
-Wed, 22 Jul 2026 21:00:15 GMT
-
-https://www.cbr.com/house-fox-medical-pvod-success-july-2026/
-
-House tops this week's streaming charts in the Apple TV store
----------
-
-# The Flash Franchise Needs a Fresh Direction After Ongoing Struggles
-
-Comics, The Flash, comics, The CW
-
-Wed, 22 Jul 2026 21:00:15 GMT
-
-https://www.cbr.com/the-flash-franchise-needs-new-direction/
-
-The Scarlet Speedster is one of DC's greatest heroes with a legacy that endures, and the time is right to revisit The Flash with John Wesley Shipp.
----------
-
-# 5 Genres We Need Christopher Nolan to Tackle After The Odyssey
-
-Movies, Christopher Nolan, The Odyssey, Horror
-
-Wed, 22 Jul 2026 21:00:15 GMT
-
-https://www.cbr.com/christopher-nolan-horror-mystery-genre-the-odyssey/
-
-Christopher Nolan has mastered sci-fi adventures, historical epics, and action-thrillers. We'd love to see him tackle these genres next.
----------
-
-# Robert Englund's Gory New Horror Remake Debuts at 100% on Rotten Tomatoes
-
-Movies, Pinocchio: Unstrung, Rotten Tomatoes
-
-Wed, 22 Jul 2026 20:50:30 GMT
-
-https://www.cbr.com/pinocchio-unstrung-rotten-tomatoes-score/
-
-Horror icon Robert Englund's ultra-violent new movie has earned the rare, coveted score of 100% on Rotten Tomatoes.
----------
-
-# 6 Best Blockbuster Movies Released Since 2010
-
-Movie, Dune: Part Two, Sinners, Inception, Blockbuster
-
-Wed, 22 Jul 2026 21:29:14 GMT
-
-https://collider.com/best-blockbuster-movies-since-2010-ranked/
-
-Dune: Part Two, Inception, and Avengers: Endgame are all among the best blockbuster movies released since the year 2010.
----------
-
-# 10 Genuinely Perfect Animated Movies
-
-Movie, Animation, The Iron Giant, Up, The Prince of Egypt
-
-Wed, 22 Jul 2026 20:54:14 GMT
-
-https://collider.com/perfect-animated-movies/
-
-The Iron Giant, The Incredibles, and The Prince of Egypt are all among the best, truly perfect animated movies ever made.
----------
-
-# ’Loki’s Tom Hiddleston Launches Ambitious New Historical Epic This Week on Disney+
-
-TV News, Pompeii: Out of Time with Tom Hiddleston, Tom Hiddleston, Loki, Avengers: Doomsday
-
-Wed, 22 Jul 2026 20:50:49 GMT
-
-https://collider.com/pompeii-out-of-time-with-tom-hiddleston-release-date-how-to-watch/
-
-Loki star Tom Hiddleston stars in and produces the new historical epic, Pompeii: Out of Time, which begins streaming this week.
----------
-
-# 'Stuart Fails to Save the Universe' Rotten Tomatoes Score Officially Revealed
-
-TV News, Stuart Fails to Save the Universe, Rotten Tomatoes
-
-Wed, 22 Jul 2026 21:51:57 GMT
-
-https://movieweb.com/stuart-fails-to-save-the-universe-rotten-tomatoes/
-
-Kevin Sussman's new spin-off, 'Stuart Fails to Save the Universe,' officially earned its initial critics' score on Rotten Tomatoes.
----------
-
-# First Trailer for Perfect New Supernatural Thriller Is a Never-Ending Nightmare
-
-Movie News, It Ends
-
-Wed, 22 Jul 2026 21:27:09 GMT
-
-https://movieweb.com/it-ends-official-trailer/
-
-'It Ends,' the highly anticipated liminal horror film, unveils its official trailer.
----------
-
-# Taylor Sheridan Officially Proves He Doesn't Need 'Yellowstone'
-
-Features, Taylor Sheridan, Yellowstone
-
-Wed, 22 Jul 2026 21:00:12 GMT
-
-https://movieweb.com/taylor-sheridan-yellowstone-spin-off-viewership/
-
-Taylor Sheridan is known for creating the neo-Western TV series 'Yellowstone,' which starred Kevin Costner, Cole Hauser, and Kelly Reilly.
----------
-
-# 36 Years Later, Tom Cruise's High-Octane Action Sequel Is Finally Moving Forward
-
-Movie News, Tom Cruise, Days of Thunder, Jerry Bruckheimer, Tony Scott
-
-Wed, 22 Jul 2026 20:39:26 GMT
-
-https://movieweb.com/tom-cruise-days-of-thunder-2-jonathan-levine-director/
-
-'Warm Bodies' director takes on Jerry Bruckheimer-produced legacy sequel to 'Days of Thunder.'
----------
-
-# It’s Official, Taylor Sheridan Has Won Streaming
-
-Streaming TV, Taylor Sheridan
-
-Wed, 22 Jul 2026 20:30:11 GMT
-
-https://screenrant.com/taylor-sheridan-streaming-success-won/
-
-With hit series like Yellowstone and Landman, Taylor Sheridan is one of the biggest names in TV, and this week proves his streaming dominance.
----------
-
-# Every MCU Movie & Show To Watch Before Spider-Man: Brand New Day
-
-Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
-
-Wed, 22 Jul 2026 20:30:11 GMT
-
-https://screenrant.com/spider-man-brand-new-day-marvel-movies-shows-watch-before/
-
-Spider-Man: Brand New Day is hitting theaters soon, and these are the MCU movies and shows that you should watch or rewatch before it does.
----------
-
-# 5 Best Adaptations Of The Odyssey Not Made By Christopher Nolan
-
-Movies, The Odyssey
-
-Wed, 22 Jul 2026 20:30:11 GMT
-
-https://screenrant.com/the-odyssey-best-adaptations-not-christopher-nolan/
-
-Christopher Nolan is far from the first filmmaker to bring Homer's epic poem to the big screen. These are some of the best adaptations of The Odyssey.
----------
-
-# Netflix's Chainsmoker Cat Is Ushering In A New Genre, And The Backlash Is Already Growing
-
-Anime, Netflix
-
-Wed, 22 Jul 2026 20:30:11 GMT
-
-https://screenrant.com/chainsmoker-cat-netflix-anime-new-genre/
-
-Netflix's new seinen slice-of-life anime is turning heads with only two episodes, but it also has fans completely divided.
----------
-
-# The Odyssey Officially Crushes The Dark Knight To Break Major Christopher Nolan Record
-
-Movies, The Odyssey, The Dark Knight
-
-Wed, 22 Jul 2026 20:20:20 GMT
-
-https://screenrant.com/the-odyssey-crushes-dark-knight-break-christopher-nolan/
-
-The Odyssey has officially broken a major record for Christopher Nolan that was previously held by The Dark Knight in 2008.
----------
-
-# Jurassic World Meets Lost In Apple TV's 2-Part Sci-Fi Series
-
-Streaming TV, Masked Recs
-
-Wed, 22 Jul 2026 20:15:11 GMT
-
-https://screenrant.com/monarch-legacy-of-monsters-jurassic-world-meets-lost/
-
-Apple TV's sci-fi series Monarch: Legacy of Monsters combines the massive monsters of Jurassic World with the compelling mystery box of Lost.
----------
-
-# Inside Star Trek: Strange New Worlds Season 4: Cast & Showrunners Reveal New Details (Exclusive)
-
-Streaming TV, Cover Story, Star Trek, Star Trek: Strange New Worlds
-
-Wed, 22 Jul 2026 20:06:35 GMT
-
-https://screenrant.com/star-trek-strange-new-worlds-season-4-interview-cover-story/
-
-The cast and creators of Star Trek: Strange New Worlds reveal exclusive season 4 details, including Pike's future, Kirk, Spock, Scotty, and more.
----------
-
-# John Wick Creator’s Gritty New Action Thriller Finally Releases On HBO Max Next Month
-
-Movies, Normal
-
-Wed, 22 Jul 2026 20:04:27 GMT
-
-https://screenrant.com/normal-hbo-max-streaming-release-date/
-
-The creator of John Wick directed an action thriller starring Bob Odenkirk that came out this year. Soon, it will be available to stream on HBO Max.
----------
-
-# HBO Max's 3-Part Aquaman Series With Rare Perfect Rotten Tomatoes Score Is A Must-Watch
-
-TV, Masked Recs
-
-Wed, 22 Jul 2026 20:04:11 GMT
-
-https://screenrant.com/aquaman-hbo-max-dc-tv-show-must-watch/
-
-DC's Aquaman leads a three-part HBO Max series that has a rare perfect Rotten Tomatoes score, and it is a must-watch for fans of the superhero.
----------
-
-# Pokémon Winds & Waves 13 New Regional Forms Ranked By Their Potential
-
-Gaming, Pokemon Winds and Waves, Pokemon, Triple-A Games
-
-Wed, 22 Jul 2026 20:00:11 GMT
-
-https://screenrant.com/pokemon-winds-waves-new-regional-forms-ranked/
-
-13 new regional variant forms for Pokémon in Winds and Waves have leaked, and based on that alone, some are already better than others.
----------
-
-# Jude Law's 'Swashbuckling' 8-Episode Sci-Fi Show Is Already a Cult Classic
-
-TV, Star Wars, Star Wars: Skeleton Crew, Disney+, Sci-Fi
-
-Wed, 22 Jul 2026 20:30:14 GMT
-
-https://www.cbr.com/star-wars-skeleton-crew-modern-sci-fi-cult-classic/
-
-Jude Law has been in many great projects, but one of his best is a sci-fi series that's quickly become a cult classic.
----------
-
-# 8 Greatest Fantasy Movie Battles of All Time
-
-Movies, Fantasy
-
-Wed, 22 Jul 2026 20:30:14 GMT
-
-https://www.cbr.com/best-fantasy-movie-battles-ever-list/
-
-Fantasy movies often have the best battles, but these sequences stand above all the rest.
 ---------
