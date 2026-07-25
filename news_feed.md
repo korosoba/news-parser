@@ -1,3 +1,234 @@
+# It's Official, Baldur's Gate 3 Will Return In 2027
+
+Gaming, Baldur's Gate 3, PC, Baldur's Gate
+
+Sat, 25 Jul 2026 05:30:11 GMT
+
+https://screenrant.com/baldurs-gate-3-2027-return-shadowheart-statue/
+
+After an extremely long wait, fans of Baldur's Gate 3 can finally look forward to a brand-new release for the game.
+---------
+
+# House Of The Dragon's Sunfyre Makes Official Return
+
+Gaming, House of the Dragon, Game Of Thrones, Game of Thrones, PC
+
+Sat, 25 Jul 2026 05:00:11 GMT
+
+https://screenrant.com/house-of-the-dragon-sunfyre-dragonfire-return/
+
+After the controversial demise of Sunfyre in House of the Dragon, fans have been waiting to see if Aegon's dragon is really gone.
+---------
+
+# Steam Makes 3 Exclusive Downloads Completely Free For 48 Hours
+
+Gaming, Steam, PC
+
+Sat, 25 Jul 2026 04:30:11 GMT
+
+https://screenrant.com/steam-3-free-downloads-48-hours-train-fest/
+
+Users on Steam can get three exclusive downloads completely for free, but they'll have to be quick, as they're only available for 48 hours.
+---------
+
+# God Of War Officially Returns 2027 With New Release Starring Thor
+
+Gaming, God of War
+
+Sat, 25 Jul 2026 04:00:14 GMT
+
+https://screenrant.com/god-of-war-thor-january-2027-spotlight/
+
+God Of War will be back in 2027 and Thor will be the star of the show.
+---------
+
+# Ransom Canyon Season 2's Biggest Cast Changes Explained
+
+Streaming TV, Ransom Canyon
+
+Sat, 25 Jul 2026 03:59:11 GMT
+
+https://screenrant.com/ransom-canyon-season-2-cast-exits-additions-explained/
+
+Ransom Canyon returned to Netflix for season 2, but there were several cast exits and cast arrivals to set it apart from the first season.
+---------
+
+# Halo: Campaign Evolved - Keyes Skull Guide
+
+Gaming, Halo: Campaign Evolved, Halo, Halo: Combat Evolved, PC
+
+Sat, 25 Jul 2026 03:19:43 GMT
+
+https://screenrant.com/halo-campaign-evolved-keyes-skull-guide/
+
+Halo: Campaign Evolved's Keyes Mission contains three hidden Skulls that you'll have to find for the Headhunter trophy: Piñata, Blind, and Catch.
+---------
+
+# Odyssey’s Hidden Dune Connection Makes 2026’s “Best Movie” Rivalry Even Better
+
+Movies, The Odyssey, Dune, Dune: Part Three
+
+Sat, 25 Jul 2026 03:16:18 GMT
+
+https://screenrant.com/dune-odyssey-paul-agamemnon-connection/
+
+The Odyssey and Dune: Part Three are set to become two of the best movies of 2026, and, surprisingly, they also have a hidden narrative connection.
+---------
+
+# 5 Months Before Avengers: Doomsday, Marvel Studios Hints Mystique Has Been Hiding In Plain Sight
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe, Masked Recs
+
+Sat, 25 Jul 2026 03:10:42 GMT
+
+https://screenrant.com/x-men-97-season-2-mystique-cooper-theory/
+
+Before her confirmed appearance in Avengers: Doomsday, Marvel Studios is hinting that another version of Raven may have been hiding in plain sight.
+---------
+
+# Devon Sawa Set To Host Fangoria Chainsaw Awards After A Remarkable Year For Horror
+
+Exclusive, Devon Sawa, San Diego Comic-Con
+
+Sat, 25 Jul 2026 03:00:12 GMT
+
+https://screenrant.com/devon-sawa-fangoria-chainsaw-awards-sdcc-2026/
+
+ScreenRant can exclusively announce Devon Sawa as the host for 2026's Fangoria Chainsaw Awards, featuring nominees like Obsession's Inde Navarette.
+---------
+
+# Dragon Ball Unearths Akira Toriyama's Very First Gogeta Design
+
+Anime, Dragon Ball, Dragon Ball Z: Fusion Reborn, Akira Toriyama
+
+Sat, 25 Jul 2026 03:59:15 GMT
+
+https://www.cbr.com/dragon-ball-gogeta-akira-toriyama-first-design/
+
+Dragon Ball fans just got a glimpse at the late, great Akira Toriyama's original design for one of the franchise's most iconic fusions.
+---------
+
+# 5 Classic Manga That Are 100% Unreadable Today
+
+Anime, Manga, Astro Boy, Devilman Crybaby
+
+Sat, 25 Jul 2026 03:46:14 GMT
+
+https://www.cbr.com/unreadable-classic-manga-astro-boy/
+
+Manga history rewards pioneers, but foundational work rarely ages gracefully, including historically monumental series like Astro Boy and Devilman.
+---------
+
+# 4 Near-Perfect GTA Games Ruined By the Main Character
+
+Games, Grand Theft Auto, Grand Theft Auto 5, Video Games
+
+Sat, 25 Jul 2026 03:15:15 GMT
+
+https://www.cbr.com/gta-controversial-main-characters-grand-theft-auto/
+
+These GTA protagonists are not exactly Niko Bellic or Trevor Philips.
+---------
+
+# Crunchyroll Is Quietly Erasing Funimation Anime From Store Shelves
+
+Anime, Crunchyroll, Funimation
+
+Sat, 25 Jul 2026 03:05:14 GMT
+
+https://www.cbr.com/crunchyroll-funimation-anime-exit/
+
+Many Funimation-licensed anime titles are slowly vanishing from Crunchyroll, leaving fans little choice but to hunt for rare physical releases.
+---------
+
+# The Transformers: The Movie Gets a New Scene for 40th Anniversary Release
+
+Movies, The Transformers: The Movie
+
+Sat, 25 Jul 2026 03:04:41 GMT
+
+https://www.cbr.com/the-transformers-the-movie-40th-anniversary-new-scene/
+
+Watch the iconic Transformers movie in a way never seen before with an all-new scene on the big screen.
+---------
+
+# Kevin Feige Just Confirmed the Next Marvel Saga And It Changes Everything
+
+Movies, MCU, X-Men, Avengers
+
+Sat, 25 Jul 2026 02:45:15 GMT
+
+https://www.cbr.com/kevin-feige-confirms-mutant-saga-mcu-x-men/
+
+Kevin Feige has revealed the name of Marvel's next saga after the Multiverse Saga--and it will change the MCU as we know it.
+---------
+
+# 4 Hard Sci-Fi Anime Series That Are 10/10 Masterpieces
+
+Anime, Ghost in the Shell: Stand Alone Complex, Planetes
+
+Sat, 25 Jul 2026 02:45:15 GMT
+
+https://www.cbr.com/hard-sci-fi-anime-perfect-masterpieces/
+
+These hard sci-fi anime combine scientific realism with extraordinary storytelling to create unforgettable experiences.
+---------
+
+# 8 High Fantasy Books With the Greatest Magic Systems
+
+Books and Comics, Books, The Wheel of Time, Fantasy
+
+Sat, 25 Jul 2026 04:08:14 GMT
+
+https://collider.com/high-fantasy-books-best-magic-systems/
+
+From Shadow and Bone to The Eye of the World, these high fantasy book masterpieces have the most compelling and complex magic systems in literature.
+---------
+
+# After 'The Odyssey,' 1 Award-Winning Video Game Franchise Deserves a TV Adaptation
+
+TV Features, Hades, Video Game, The Odyssey, Fantasy
+
+Sat, 25 Jul 2026 03:41:15 GMT
+
+https://collider.com/hades-video-game-tv-adaptation-the-odyssey/
+
+The Odyssey's success signals that Hollywood is ready to adapt Hades into a thrilling TV series that embraces Greek mythology and unique characters.
+---------
+
+# George Lucas’ Final Star Wars Project Is Officially Getting a Release 14 Years Later
+
+TV Features, Star Wars: Detours, Star Wars, George Lucas, Seth Green
+
+Sat, 25 Jul 2026 03:14:15 GMT
+
+https://collider.com/star-wars-detours-george-lucas-final-project-release-september-2026/
+
+After being shelved by Disney, George Lucas' final Star Wars project is officially getting a new release 13 years later.
+---------
+
+# 10 Greatest YA Books of All Time
+
+Books and Comics, Books, The Perks of Being a Wallflower, Are You There God? It's Me, Margaret., Lord of the Flies
+
+Sat, 25 Jul 2026 03:09:14 GMT
+
+https://collider.com/best-ya-books-all-time-ranked/
+
+From profound classics like The Catcher in the Rye to 21st-century gems like The Knife of Never Letting Go, these are the best YA books ever written.
+---------
+
+# ‘Twin Peaks’ Quietly Inspired One of Nintendo’s Weirdest Video Games of All Time
+
+TV Features, Video Game, Twin Peaks, Nintendo, The Legend of Zelda
+
+Sat, 25 Jul 2026 02:44:15 GMT
+
+https://collider.com/twin-peaks-inspired-legend-of-zelda-links-awakening-video-game/
+
+The Legend of Zelda: Link’s Awakening was quietly inspired by Twin Peaks, resulting in one of Nintendo’s most surreal and impressive video games.
+---------
+
 # 5 Batman: The Animated Series Episodes To Watch Before Clayface
 
 Classic TV, Batman: The Animated Series, The New Batman Adventures, Clayface
@@ -5265,235 +5496,4 @@ Thu, 23 Jul 2026 20:00:14 GMT
 https://movieweb.com/matt-damon-interstellar-streaming-hit-hulu-july-2026/
 
 As the Oscar winner enters the spotlight again with 'The Odyssey,' another of his major blockbusters has resurfaced on streaming.
----------
-
-# Tom Holland Debunks Biggest 'Spider-Man: Brand New Day' Theory
-
-Movie News, Spider-Man: Brand New Day, Tom Holland
-
-Thu, 23 Jul 2026 19:33:30 GMT
-
-https://movieweb.com/tom-holland-debunks-spider-man-brand-new-day-jean-grey/
-
-Tom Holland addresses the biggest mystery surrounding Sadie Sink's character in Marvel's upcoming 'Spider-Man: Brand New Day', debunking a popular theory just one week before the film's release.
----------
-
-# Apple TV Confirms Its Long-Running Debut Series Finally Ending After 8 Years
-
-TV News, The Morning Show, Apple TV, Reese Witherspoon
-
-Thu, 23 Jul 2026 19:33:09 GMT
-
-https://movieweb.com/the-morning-show-ending-season-5-apple-tv/
-
-Season 5 of 'The Morning Show' will be the final batch of episodes for the show.
----------
-
-# Jason Statham's Highly Anticipated Action Thriller Releases in One Month
-
-Features, Mutiny, Jason Statham
-
-Thu, 23 Jul 2026 19:00:12 GMT
-
-https://movieweb.com/jason-statham-mutiny-august-release/
-
-Due August 21, Jason Statham's new revenge action-thriller is the perfect summertime escape.
----------
-
-# Ridley Scott's 85% Rated Historical Action Flop Is Finding Redemption on Streaming
-
-Movie News, The Last Duel, Paramount Plus, Hot on Streaming, Ridley Scott, Action
-
-Thu, 23 Jul 2026 19:00:12 GMT
-
-https://movieweb.com/the-last-duel-ridley-scott-stream-paramount-july-2026/
-
-Forget 'Gladiator,' Ridley Scott's underrated historical action epic 'The Last Duel,' is finally gettint he love it deserves on streaming.
----------
-
-# Netflix Revives Canceled Series for Another Season After Massive Viewership Numbers
-
-TV News, Tyler Perry’s Beauty in Black, Netflix
-
-Thu, 23 Jul 2026 19:00:09 GMT
-
-https://movieweb.com/netflix-renews-beauty-in-black-canceled/
-
-One of Netflix's biggest recent hits will be back for a new season after the streamer initially decided to cancel it.
----------
-
-# Rhaenyra Targaryen’s Dragon From House Of The Dragon Spotted Flying Across The UK
-
-TV, House of the Dragon, Game of Thrones
-
-Thu, 23 Jul 2026 18:32:37 GMT
-
-https://screenrant.com/house-of-the-dragon-rhaenyra-real-dragon-flying-uk/
-
-Rhaenyra Targaryen's dragon from House of the Dragon has been seen flying across the UK as season 3 continues airing on HBO.
----------
-
-# FX’s Upcoming Thriller Series Will Be Euphoria With A Serial Killer
-
-Streaming TV, Masked Recs
-
-Thu, 23 Jul 2026 18:30:11 GMT
-
-https://screenrant.com/fx-the-shards-series-euphoria-with-serial-killer/
-
-FX and Ryan Murphy's upcoming teen thriller series shares a lot of similarities with the controversial Euphoria... but with a serial killer twist.
----------
-
-# Xbox Live Is Officially Down
-
-Gaming, Xbox, Live Service Games, PC
-
-Thu, 23 Jul 2026 18:29:27 GMT
-
-https://screenrant.com/xbox-live-outage-july-2026-servers/
-
-Xbox Live servers are having some serious problems right now, and for many fans, the issue couldn't have possibly come at a worse time.
----------
-
-# Blade Runner 2099 First Look Officially Revealed
-
-TV, Blade Runner 2099
-
-Thu, 23 Jul 2026 18:20:13 GMT
-
-https://screenrant.com/blade-runner-2099-first-look-officially-revealed/
-
-Blade Runner 2099 has unveiled a whole new batch of images showing the upcoming sci-fi miniseries based on the iconic franchise.
----------
-
-# Percy Jackson Bears The Titan's Curse In First Season 3 Trailer
-
-TV, Percy Jackson & the Olympians, Percy Jackson & The Olympians, San Diego Comic-Con
-
-Thu, 23 Jul 2026 18:11:51 GMT
-
-https://screenrant.com/percy-jackson-season-3-trailer-hercules-casting-sdcc-panel-reveals/
-
-There are four months until Percy Jackson and the Olympians season 3 premieres, and Disney+ has just shared the trailer for the fantasy show’s return.
----------
-
-# A Knight Of The Seven Kingdoms Season 2's Release Timeline On HBO Clarified By Creator
-
-TV, A Knight Of The Seven Kingdoms, Game of Thrones
-
-Thu, 23 Jul 2026 18:01:05 GMT
-
-https://screenrant.com/a-knight-of-the-seven-kingdoms-early-2027-release-timeline-ira-parker/
-
-A Knight of the Seven Kingdoms season 2 will be released in 2027, and that release window for the Game of Thrones spinoff has just been narrowed down.
----------
-
-# 5 Classic PlayStation 2 Games That Are Unplayable Today
-
-Gaming, PlayStation, PlayStation 2
-
-Thu, 23 Jul 2026 18:00:11 GMT
-
-https://screenrant.com/5-classic-playstation-2-games-unplayable-today/
-
-These classic PS2 titles, while perhaps considered great when they were first released, are practically unplayable today.
----------
-
-# Everyone Forgets Sylar's Superpower In Heroes Is NOT Absorbing Other Powers
-
-Classic TV, Heroes
-
-Thu, 23 Jul 2026 18:00:11 GMT
-
-https://screenrant.com/heroes-sylar-power-not-absorbing-abilities/
-
-Sylar's true power in Heroes was far more unsettling than simply absorbing other powers, making made him one of the most dangerous villains ever.
----------
-
-# A Knight Of The Seven Kingdoms Season 2 Episodes’ Runtimes Confirmed By Creator After Breaking GOT Tradition
-
-TV, A Knight Of The Seven Kingdoms
-
-Thu, 23 Jul 2026 18:00:05 GMT
-
-https://screenrant.com/a-knight-of-the-seven-kingdoms-season-2-episode-runtimes-ira-parker/
-
-A Knight of the Seven Kingdoms is breaking traditions, as creator Ira Parker reveals a Game of Thrones tradition that he definitely won't follow.
----------
-
-# Gundam Unveils Title For Brand-New Anime In 2027
-
-Anime, San Diego Comic-Con, Gundam
-
-Thu, 23 Jul 2026 17:52:19 GMT
-
-https://screenrant.com/mobile-suit-gundam-xarx-zero-anime-2027/
-
-The next Gundam anime is coming soon.
----------
-
-# Christina Ricci Teases Explosive Yellowjackets Finale: 'Went Out With a Bang'
-
-TV, Yellowjackets
-
-Thu, 23 Jul 2026 18:38:08 GMT
-
-https://www.cbr.com/christina-ricci-teases-yellowjackets-season-4-finale/
-
-The star of Showtime's most controversial survival drama just promised fans a finale that will see at least one character go "out with a bang."
----------
-
-# The Best Anime With Peak Character Development
-
-Anime, Attack On Titan, Fullmetal Alchemist: Brotherhood
-
-Thu, 23 Jul 2026 18:15:15 GMT
-
-https://www.cbr.com/best-anime-with-peak-character-development/
-
-Great anime are built on memorable characters, and these series elevate them through exceptional development.
----------
-
-# Anya Taylor-Joy & Timothy Olyphant's New Crime Thriller Is TV's No. 1 Title on Streaming
-
-TV, Lucky, Apple TV, Thriller
-
-Thu, 23 Jul 2026 18:00:15 GMT
-
-https://www.cbr.com/anya-taylor-joy-timothy-olyphant-lucky-crime-thriller-apple-tv-success-july-2026/
-
-Lucky is Apple TV's No. 1 most-watched show in the United States
----------
-
-# Marvel Confirms Its Newest Hero Is More Powerful Than Every Other Fighter
-
-Comics, Avengers, Marvel Comics
-
-Thu, 23 Jul 2026 18:00:15 GMT
-
-https://www.cbr.com/marvel-avengers-armageddon-3-preview/
-
-The newest member of the Avengers proves to be more powerful than anyone could have imagined.
----------
-
-# Spider-Man: Brand New Day's Tom Holland Has Undying Passion For Marvel Movie Role
-
-CBR Exclusives, Spider-Man: Brand New Day, tom holland, Spider-Man
-
-Thu, 23 Jul 2026 18:00:15 GMT
-
-https://www.cbr.com/spider-man-brand-new-day-tom-holland-passionate/
-
-Seems like Tom Holland's Spider-Man era is not ending anytime soon.
----------
-
-# Netflix Confirms New Spinoff of Hit Sci-Fi Horror Based on Bestselling Manga
-
-TV, Parasyte: The Grey, Parasyte The Maxim, Netflix
-
-Thu, 23 Jul 2026 17:52:38 GMT
-
-https://www.cbr.com/netflix-parasyte-tamiya-live-action-series/
-
-Netflix announced a new live-action spinoff series based on its key manga adaptation.
 ---------
