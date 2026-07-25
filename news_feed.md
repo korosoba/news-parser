@@ -1,3 +1,300 @@
+# We’re Not Joking, Netflix’s 10/10 Teen Mystery Series Is Even Better Than Stranger Things
+
+Streaming TV, Masked Recs
+
+Sat, 25 Jul 2026 14:00:11 GMT
+
+https://screenrant.com/outer-banks-netflix-show-better-than-stranger-things/
+
+Stranger Things may be Netflix's biggest show, but the streaming platform has another even better teen series, which is going into its final season.
+---------
+
+# Final Fantasy: Blackmoon Prophecy Is Available Right Now
+
+Gaming, Final Fantasy
+
+Sat, 25 Jul 2026 14:00:11 GMT
+
+https://screenrant.com/final-fantasy-blackmoon-prophecy-rpg-remake/
+
+Discover the stunning fan-made Final Fantasy game Blackmoon Prophecy Remake, now available to download for free on PC.
+---------
+
+# 5 Greatest Sith Luke Skywalker Ever Fought
+
+Comics, Star Wars
+
+Sat, 25 Jul 2026 14:00:11 GMT
+
+https://screenrant.com/star-wars-greatest-sith-fought-luke-skywalker/
+
+Luke Skywalker faced many Sith Lords throughout the Star Wars franchise, but these are the 5 greatest Sith that Luke ever fought and how they ended.
+---------
+
+# Inside Man Ending Explained (In Detail)
+
+Streaming TV, Inside Man
+
+Sat, 25 Jul 2026 13:45:13 GMT
+
+https://screenrant.com/inside-man-ending-explained-in-detail/
+
+Steven Moffat's twisty thriller Inside Man ends with some loose ends left to tie up, suggesting another outing for Stanley Tucci's death row Sherlock.
+---------
+
+# Netflix's New R-Rated Dark Fantasy Is Officially Dominating Streaming With Debut At 4.9M Views
+
+TV, Masked Recs, Netflix
+
+Sat, 25 Jul 2026 13:45:11 GMT
+
+https://screenrant.com/netflix-the-east-palace-july-2026-streaming-charts-debut-report/
+
+Netflix's new dark fantasy series is officially dominating streaming charts, debuting at just 4.9 million viewers on its first two days.
+---------
+
+# 10 Greatest One-Person Army Action Movies To Watch If You Love John Wick
+
+Movies, John Wick, Taken, The Equalizer, Monkey Man, Commando, Kill Bill: Vol. 1, Atomic Blonde, Nobody, Dredd, The Raid: Redemption, The Transporter
+
+Sat, 25 Jul 2026 13:45:11 GMT
+
+https://screenrant.com/best-one-man-army-action-movies-john-wick/
+
+John Wick is arguably one of Keanu Reeves' greatest characters, and some other titles sharing the same one-person army formula are worth your time.
+---------
+
+# James Gunn's New HBO Series In DCU Era Is Officially Rated R
+
+TV, Masked Recs, DC Universe
+
+Sat, 25 Jul 2026 13:30:46 GMT
+
+https://screenrant.com/lanterns-hbo-dc-rating-confirmed/
+
+The TV rating for DC Studios' most highly anticipated TV show in the DC Universe franchise has finally been officially revealed by HBO and WB.
+---------
+
+# Superman Just Spoke the Saddest Sentence in His Entire History
+
+Comics, Superman
+
+Sat, 25 Jul 2026 13:30:11 GMT
+
+https://screenrant.com/superman-saddest-quote-lex-luthor/
+
+Superman's life just got a lot sadder.
+---------
+
+# Netflix's Masterpiece 36-Episode Fantasy Series Deserved One More Season
+
+Classic TV, Masked Recs
+
+Sat, 25 Jul 2026 13:30:11 GMT
+
+https://screenrant.com/the-umbrella-academy-netflix-deserve-one-more-season/
+
+Netflix is home to one of the best fantasy TV shows of the decade, which deserved one more season, but instead, it got something different.
+---------
+
+# 10 Free Steam Games With 100+ Hours Of Gameplay
+
+Gaming, Steam
+
+Sat, 25 Jul 2026 13:30:11 GMT
+
+https://screenrant.com/10-free-steam-games-100-plus-hours-gameplay/
+
+Discover 10 free Steam games offering over 100 hours of gameplay, including RPGs, shooters, and MMORPGs, perfect for your weekend gaming sessions.
+---------
+
+# DC Confirms Absolute Batman/Main Timeline Batman Crossover Comic
+
+Comics, Absolute Batman, Batman, San Diego Comic-Con
+
+Sat, 25 Jul 2026 14:00:14 GMT
+
+https://www.cbr.com/dc-confirms-batman-of-two-world-one-shot-sdcc/
+
+Absolute Batman is about to meet his perfect companion.
+---------
+
+# What's Coming to HBO Max in August 2026? Everything Arriving Next Month
+
+Movies, HBO Max
+
+Sat, 25 Jul 2026 14:00:14 GMT
+
+https://www.cbr.com/what-coming-hbo-max-august-2026-full-list/
+
+HBO Max has plenty more surprises in August, including a new DC Studios series, several documentaries, and exclusive films.
+---------
+
+# The Hunt for Gollum Confirmed 4 Lord of the Rings Characters' Return
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, Fantasy
+
+Sat, 25 Jul 2026 14:00:14 GMT
+
+https://www.cbr.com/the-lord-of-the-rings-the-hunt-for-gollum-confirm-hobbits-return/
+
+The upcoming Lord of the Rings spin-off, The Hunt for Gollum, may be bringing back these iconic characters from the original trilogy.
+---------
+
+# Transformers Gives Optimus Prime's Best Movie Design a Transparent New Upgrade
+
+Anime, Transformers, optimus prime, Bumblebee, merchandise
+
+Sat, 25 Jul 2026 14:00:14 GMT
+
+https://www.cbr.com/transformers-bumblebee-optimus-prime-transparent-upgrade-yolopark/
+
+An add-on for one of Yolopark's best Optimus Prime kits gives a transparent makeover to a design from the best live-action Transformers movie.
+---------
+
+# 10 Spider-Man Villains Who Deserve an MCU Debut in Spider-Man: Brand New Day
+
+Comics, Spider-Man: Brand New Day
+
+Sat, 25 Jul 2026 14:00:14 GMT
+
+https://www.cbr.com/spider-man-villains-who-deserve-their-mcu-debut-in-brand-new-day/
+
+Spider-Man: Brand New Day hosts a massive ensemble of villains but these additional foes may also appear.
+---------
+
+# Outer Banks Star Teases How Season 5 Compares to Early Seasons
+
+TV, Outer Banks, San Diego Comic-Con
+
+Sat, 25 Jul 2026 13:30:41 GMT
+
+https://www.cbr.com/outer-banks-drew-starkey-season-5-early-seasons/
+
+Exclusive: Outer Banks star Drew Starkey offers his take on how the show's upcoming fifth and final season stacks up compared to where it all started.
+---------
+
+# 59 Years Later, Star Trek's First Horror Episode Is Still the Scariest Hour in Sci-Fi TV History
+
+TV, Star Trek, Star Trek: The Original Series, Sci-Fi
+
+Sat, 25 Jul 2026 13:30:15 GMT
+
+https://www.cbr.com/star-trek-wolf-in-the-fold-scariest-episode-sci-fi/
+
+Bringing universal fears to the forefront, one Star Trek: TOS episode is among the franchise's scariest.
+---------
+
+# 7 Short Anime Series That Don’t Waste a Single Episode
+
+Anime, Puella Magi Madoka Magica, Serial Experiments Lain
+
+Sat, 25 Jul 2026 13:15:14 GMT
+
+https://www.cbr.com/short-anime-series-all-episodes-perfect/
+
+These short anime make every episode count, delivering unforgettable stories without unnecessary detours.
+---------
+
+# 'Dark Winds' Season 5 Officially Sets Up Jessica Matten’s "Career-High Performance" [Exclusive]
+
+TV News, Dark Winds, AMC, San Diego Comic-Con, Avatar Aang: The Last Airbender
+
+Sat, 25 Jul 2026 14:00:14 GMT
+
+https://collider.com/dark-winds-season-5-jessica-matten/
+
+Jessica Matten reveals her career-high performance in Dark Winds Season 5, as she reflects on the show's impact on Indigenous storytelling.
+---------
+
+# 10 Movies That Clearly Influenced Christopher Nolan's 'The Odyssey'
+
+Movie, The Odyssey, Troy, Gladiator, Interstellar
+
+Sat, 25 Jul 2026 13:41:14 GMT
+
+https://collider.com/the-odyssey-christopher-nolan-movie-influences/
+
+The cinematic influence of movies like Gladiator and The Last Temptation of Christ are found in the DNA of Christopher Nolan's epic, The Odyssey.
+---------
+
+# 32 Years Later, Quentin Tarantino's Bloody Road Trip Thriller Is Aging Like Fine Wine
+
+Movie Features, Natural Born Killers, Quentin Tarantino, Oliver Stone, Robert Downey Jr
+
+Sat, 25 Jul 2026 13:24:14 GMT
+
+https://collider.com/quentin-tarantino-natural-born-killers-streaming/
+
+Natural Born Killers was one of Quentin Tarantino's first produced screenplays, and though he's distanced himself from the film, it remains a classic.
+---------
+
+# 'Dungeon Crawler Carl' Author and Star Reveal How They Cast the Perfect Princess Donut [Exclusive]
+
+Exclusives, Dungeon Crawler Carl, San Diego Comic-Con, Seth MacFarlane, SDCC
+
+Sat, 25 Jul 2026 13:00:15 GMT
+
+https://collider.com/dungeon-crawler-carl-princess-donut-casting-matt-dinniman-jeff-hays/
+
+Matt Dinniman and Jeff Hays share how Peacock's Dungeon Crawler Carl went about casting the ideal star for Princess Donut.
+---------
+
+# 10 Forgotten Bob Dylan Songs That Are Masterpieces, Ranked
+
+Music Features, Bob Dylan, Rock, Music, Billboard Hot 100
+
+Sat, 25 Jul 2026 13:00:15 GMT
+
+https://collider.com/forgotten-bob-dylan-songs-masterpieces-ranked/
+
+Bob Dylan's most forgotten songs reveal heartbreak, faith, and artistic growth, showcasing a deeper side of the legendary songwriter.
+---------
+
+# 10 Most Subversive Animated Movies of All Time
+
+Movie, Animation, Shrek, Watership Down, Princess Mononoke
+
+Sat, 25 Jul 2026 12:46:14 GMT
+
+https://collider.com/most-subversive-animated-movies-all-time-ranked/
+
+From Princess Mononoke to Coraline, these animated classics challenged norms and proved cartoons can be radical.
+---------
+
+# Ridley Scott's $269 Million Action Epic Seeks Redemption on New Streaming Home
+
+Movie News, Ridley Scott, Exodus: Gods and Kings, Coming/Leaving Streaming, Action
+
+Sat, 25 Jul 2026 14:00:12 GMT
+
+https://movieweb.com/ridley-scott-exodus-gods-and-kings-action-stream-peacock-august-2026/
+
+Ahead of Ridley Scott's return to sci-fi with 'The Dog Stars,' his 2014 action epic that flopped at the box office is seeking new life on streaming.
+---------
+
+# Jack Nicholson Made Two of the Best Westerns of All Time in the Same Year
+
+Features, Jack Nicholson
+
+Sat, 25 Jul 2026 14:00:12 GMT
+
+https://movieweb.com/jack-nicholson-the-shooting-ride-in-the-whirlwind-story/
+
+In 1966, Jack Nicholson starred in two acclaimed Western movies, one of which he wrote.
+---------
+
+# Jon Bernthal Reveals Why the Punisher Is Key to 'Spider-Man: Brand New Day'
+
+Movie News, Spider-Man: Brand New Day, Jon Bernthal, Destin Cretton
+
+Sat, 25 Jul 2026 13:41:57 GMT
+
+https://movieweb.com/spider-man-brand-new-day-jon-bernthal-punisher-exclusive/
+
+The actor spoke to MovieWeb about how his character impacts the wall-crawler in 'Brand New Day.'
+---------
+
 # Netflix's 8-Part Supernatural Fantasy With Rare 100% RT Score Is The Ultimate Weekend Binge
 
 Streaming TV, Masked Recs
@@ -5199,301 +5496,4 @@ Thu, 23 Jul 2026 21:35:22 GMT
 https://www.cbr.com/jason-sudeikis-rejecting-ted-lasso-season-4/
 
 Jason Sudeikis was finished with Ted Lasso after Season 3, but something changed.
----------
-
-# 'Big Bang Theory' and DC Comics Crossover Officially Confirmed in New Sci-Fi Spin-Off
-
-TV News, Stuart Fails to Save the Universe, The Big Bang Theory, Kevin Sussman, DC
-
-Thu, 23 Jul 2026 22:33:47 GMT
-
-https://collider.com/the-big-bang-theory-sci-fi-spin-off-stuart-fails-to-save-the-universe-dc-comics-crossover/
-
-The Big Bang Theory's new sci-fi spin-off, Stuart Fails to Save the Universe, will have an official crossover with several DC characters.
----------
-
-# 10 Greatest Batman Graphic Novels of All Time
-
-Books and Comics, Superhero, DC, Graphic Novel, Books
-
-Thu, 23 Jul 2026 22:09:14 GMT
-
-https://collider.com/best-batman-graphic-novels-ranked/
-
-Batman: The Long Halloween, The Dark Knight Returns, and Batman: Under the Red Hood are among the best graphic novels about the Caped Crusader.
----------
-
-# Alan Ritchson's 'Reacher' Officially Returns With New Release Before Season 4
-
-TV News, Reacher, Jack Reacher, Alan Ritchson, Prime Video
-
-Thu, 23 Jul 2026 21:59:23 GMT
-
-https://collider.com/alan-ritchson-reacher-season-3-blu-ray-release-date-august-25/
-
-Alan Ritchson's Reacher is officially returning sooner than expected, with Prime Video announcing a brand-new release ahead of Season 4.
----------
-
-# 7 Thriller Shows I Knew Would Be Masterpieces After the First 10 Minutes
-
-TV, Thriller, Breaking Bad, Reacher, Severance
-
-Thu, 23 Jul 2026 21:52:14 GMT
-
-https://collider.com/thriller-shows-masterpieces-first-10-minutes/
-
-Thriller series like AMC's Breaking Bad, Prime Video's Reacher, and Apple TV's Severance, kick off in amazing fashion and then never let up.
----------
-
-# 10 Most Influential Fantasy Books of All Time
-
-Books and Comics, Fantasy, Books, The Lord of the Rings, Harry Potter
-
-Thu, 23 Jul 2026 21:45:14 GMT
-
-https://collider.com/most-influential-fantasy-books-all-time-ranked/
-
-Harry Potter and the Philosopher's Stone, The Lord of the Rings, and A Wizard of Earthsea are among the most influential fantasy books ever written.
----------
-
-# Marvel Officially Renames Gambit Ahead of 'Avengers: Doomsday' Return
-
-Books and Comics News, Marvel Comics, X-Men
-
-Thu, 23 Jul 2026 21:40:10 GMT
-
-https://collider.com/gambit-new-name-wyvern-uncanny-x-men-32/
-
-Ahead of Channing Tatum's return in Avengers: Doomsday, Gambit just got a major upgrade from Marvel. Read on for more.
----------
-
-# New George R.R. Martin Update Is the Best 'Winds of Winter' News in Years
-
-Features, Game Of Thrones, A Knight Of The Seven Kingdoms
-
-Thu, 23 Jul 2026 22:30:12 GMT
-
-https://movieweb.com/george-rr-martin-dunk-and-egg-4/
-
-Finally, something to celebrate! The Winds of Winter may not be done, but we've gotten an update on an important project in Westeros.
----------
-
-# Amazon Scores Big on Streaming With 'James Bond' Star's Unique Action Thriller
-
-Movie News, The Amateur, Rami Malek
-
-Thu, 23 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/the-amateur-on-prime-video-top-ten-streaming/
-
-'James Bond' star Rami Malek plays an unconventional hero in this gripping action thriller.
----------
-
-# Star Trek Finds a Perfect Loophole in One of the Franchise's Oldest Rules
-
-Features, star trek: strange new worlds, Star Trek
-
-Thu, 23 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/star-trek-strange-new-worlds-prime-directive-loophole/
-
-Starfleet's Prime Directive has been a core tenet of Star Trek lore for decades, but maybe it's time for a rewrite. Read on for more.
----------
-
-# Apple TV’s 9-Part Multiverse Thriller Gets Even Better Ahead Of Season 2
-
-TV, Masked Recs
-
-Thu, 23 Jul 2026 21:28:11 GMT
-
-https://screenrant.com/dark-matter-season-2-even-better/
-
-One of Apple TV's most ambitious sci-fi shows is a multiverse thriller that is set to break new ground with its upcoming second season in August.
----------
-
-# Joe's Best Lioness Quote Proves She's One Of Taylor Sheridan's Most Powerful Characters
-
-TV, Lioness, Op-Ed
-
-Thu, 23 Jul 2026 21:20:11 GMT
-
-https://screenrant.com/lioness-joe-best-line-powerful-character-taylor-sheridan/
-
-Lioness' Joe is one of Taylor Sheridan's best heroines, and with one particular quote, she removed any doubt about who is in charge on the series.
----------
-
-# Mondo Reveals New Real Ghostbusters Collectible at SDCC (Exclusive)
-
-Comic-Con, Ghostbusters, San Diego Comic-Con
-
-Thu, 23 Jul 2026 21:15:07 GMT
-
-https://screenrant.com/mondo-real-ghostbusters-ecto-1-collectible-sdcc-exclusive/
-
-ScreenRant can exclusively reveal Mondo's new Ecto-1 collectible from the animated series The Real Ghostbusters at San Diego Comic-Con.
----------
-
-# 20 Best Star Wars Games Of All Time
-
-Gaming, Star Wars, PC
-
-Thu, 23 Jul 2026 21:00:13 GMT
-
-https://screenrant.com/star-wars-best-games-play/
-
-Star Wars has a long catalog of video games, but there are a handful of especially great titles that are still must-plays for fans.
----------
-
-# 10 MCU Projects We Think Are Definitely In Kevin Feige's 2026-2042 Plan
-
-Movies, Marvel Cinematic Universe
-
-Thu, 23 Jul 2026 21:00:12 GMT
-
-https://screenrant.com/mcu-movies-in-kevin-feige-marvel-2042-plan/
-
-Kevin Feige has revealed that, all going well, the MCU will continue until 2042. Here are 10 future projects we think Marvel Studios has planned.
----------
-
-# 21 Years Later, Star Wars Is Finally Returning To The Prequel Era
-
-Gaming, Star Wars, Star Wars Zero Company, Star Wars Outlaws
-
-Thu, 23 Jul 2026 21:00:12 GMT
-
-https://screenrant.com/star-wars-zero-company-new-details-prequel-era/
-
-Experience a darker, grittier Star Wars universe as you lead a team of misfits through the Clone Wars.
----------
-
-# Netflix’s New R-Rated Dark Fantasy Earns Solid Rotten Tomatoes Audience Score
-
-TV, Masked Recs
-
-Thu, 23 Jul 2026 20:59:58 GMT
-
-https://screenrant.com/the-east-palace-rotten-tomatoes-audience-score/
-
-Netflix's eight-episode fantasy series is winning over audiences, with viewers sharing a variety of positive opinions on the genre-mashing drama.
----------
-
-# Avatar: The Last Airbender Universe Introduces New Written Language In Upcoming Aang Movie
-
-Movies, Avatar Aang: The Last Airbender, Avatar: The Last Airbender, San Diego Comic-Con
-
-Thu, 23 Jul 2026 20:54:29 GMT
-
-https://screenrant.com/aang-the-last-airbender-new-written-language-photos/
-
-Several exciting details about Avatar Aang: The Last Airbender, including a new written language, are revealed at San Diego Comic-Con 2026.
----------
-
-# Robert Pattinson's New A24 Thriller Based On Real-Life Reality Series Gets Official Release Date
-
-Movies, Robert Pattinson
-
-Thu, 23 Jul 2026 20:51:20 GMT
-
-https://screenrant.com/robert-pattinson-primetime-a24-release-date-confirmed/
-
-Robert Pattinson's latest role as Chris Hansen in the A24 thriller movie promises a gripping look into the rise of a controversial TV series.
----------
-
-# Avatar's New Airbender Sequel Series Reveals Release Date For Korra's Successor
-
-TV, Avatar: Seven Havens, San Diego Comic-Con
-
-Thu, 23 Jul 2026 20:50:12 GMT
-
-https://screenrant.com/avatar-seven-havens-trailer-next-avatar-premiere-date/
-
-Paramount+ drops a first look at Avatar: Seven Havens and confirms the upcoming animated series' release date at San Diego Comic-Con.
----------
-
-# Ex Machina Has the Darkest Ending in Sci-Fi Movie History
-
-Movies, Ex Machina
-
-Thu, 23 Jul 2026 21:30:14 GMT
-
-https://www.cbr.com/ex-machina-darkest-ending-sc-fi-history/
-
-Sci-fi movies are filled with grim and twisted endings but one of the best sci-fi movies also has a dark ending that is still overlooked.
----------
-
-# Godzilla vs. Kong Director Gives Encouraging Return Update After Sitting Out Supernova
-
-CBR Exclusives, Godzilla, Godzilla vs. Kong, adam wingard, San Diego Comic-Con
-
-Thu, 23 Jul 2026 21:18:41 GMT
-
-https://www.cbr.com/adam-wingard-potential-godzilla-return/
-
-The MonsterVerse franchise keeps thriving, and it might bring back one key director.
----------
-
-# 5 Turn-Based RPGs Objectively Better Than Persona 5 Royal
-
-Games, Persona 5 Royal, Final Fantasy X|X-2 HD Remaster, Paper Mario: The Thousand-Year Door, RPG, JRPG
-
-Thu, 23 Jul 2026 21:15:17 GMT
-
-https://www.cbr.com/turn-based-rpgs-better-than-persona-5-royal/
-
-While Persona 5 Royal offered a wonderful experience in turn-based play, there are far better games that are even more fulfilling.
----------
-
-# Rachel Brosnahan's 124-Minute Spy Thriller Returns as a Prime Video Hit 1 Year Later
-
-Movies, The Amateur
-
-Thu, 23 Jul 2026 21:00:17 GMT
-
-https://www.cbr.com/the-amateur-spy-thriller-prime-video-success-july-2026/
-
-Most audiences are only now discovering Superman star Rachel Brosnahan's other 2025 movie.
----------
-
-# Summer 2026's New Farming Sim Is The Perfect Stardew Valley Replacement
-
-CBR Exclusives, Stardew Valley, Video Games, review, Simulation
-
-Thu, 23 Jul 2026 21:00:17 GMT
-
-https://www.cbr.com/moonlight-peaks-life-sim-game-review/
-
-Almost nothing has been able to fill the life sim void since Stardew Valley, but Little Chicken Game Company's Moonlight Peaks comes awfully close.
----------
-
-# 8 Sci-Fi Movie Endings That Are Genuine Masterpieces
-
-Movies, Sci-Fi
-
-Thu, 23 Jul 2026 21:00:17 GMT
-
-https://www.cbr.com/perfect-sci-fi-movie-endings-list/
-
-A film's ending can make or break a great movie, and these sci-fi movie masterpieces had near-perfect endings.
----------
-
-# The Nazgul Officially Return in Lord of the Rings' 2026 Prequel Release
-
-TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Prime Video
-
-Thu, 23 Jul 2026 20:46:58 GMT
-
-https://www.cbr.com/nazgul-the-lord-of-the-rings-the-rings-of-power-season-3/
-
-The Ringwraiths are back in 2026's The Lord of the Rings prequel.
----------
-
-# 30 Years Later, Jim Carrey's Most Underrated Film Is Being Rebooted by Hulu
-
-TV, The Cable Guy
-
-Thu, 23 Jul 2026 20:44:21 GMT
-
-https://www.cbr.com/hulu-the-cable-guy-reboot-casting-natasha-rothwell/
-
-Cast members have been revealed for the reimagined version of the polarizing Jim Carrey movie.
 ---------
