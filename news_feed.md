@@ -1,3 +1,388 @@
+# 5 Batman: The Animated Series Episodes To Watch Before Clayface
+
+Classic TV, Batman: The Animated Series, The New Batman Adventures, Clayface
+
+Sat, 25 Jul 2026 02:30:11 GMT
+
+https://screenrant.com/batman-animated-series-clayface-episodes-watch-before/
+
+Before seeing Clayface in theaters this October, it's worth watching these five Batman: The Animated Series episodes that showcase the villain.
+---------
+
+# 5 Shonen Anime Remakes That Are Considered Absolute Masterpieces
+
+Anime
+
+Sat, 25 Jul 2026 02:30:11 GMT
+
+https://screenrant.com/shonen-anime-remakes-masterpieces/
+
+Shonen anime have been around for a long time, and several classic series have received modern reimagining's that are nothing short of incredible.
+---------
+
+# Bleach: Thousand-Year Blood War Drops Disappointing Update About Its Final Season
+
+Anime, Bleach, Bleach: Thousand Year Blood War
+
+Sat, 25 Jul 2026 02:03:11 GMT
+
+https://screenrant.com/bleach-thousand-year-blood-war-final-season-disappointing-update/
+
+Bad news for Bleach's final season.
+---------
+
+# Reacher Changes Forever In Less Than 2 Months
+
+Streaming TV, Masked Recs
+
+Sat, 25 Jul 2026 02:00:21 GMT
+
+https://screenrant.com/reacher-neagley-spinoff-change-forever/
+
+Prime Video's Reacher franchise expands with spinoff series Neagley, departing from source material and paving the way for future adaptations.
+---------
+
+# 7 Underrated Superhero Powers in DC Lore
+
+Comics, DC Comics
+
+Sat, 25 Jul 2026 02:00:21 GMT
+
+https://screenrant.com/most-underrated-dc-superpowers/
+
+The most unassuming superhero powers in DC Comics are often the most unique and helpful in certain circumstances.
+---------
+
+# James Gunn's DCU Just Introduced A Villain Far More Dangerous Than Lex Luthor
+
+Streaming TV, Masked Recs, San Diego Comic-Con
+
+Sat, 25 Jul 2026 01:47:54 GMT
+
+https://screenrant.com/lanterns-sinestro-dcu-villain-debut/
+
+James Gunn's DC Universe set up Lex Luthor as a threat to multiple dimensions, but the DCU has now introduced a villain that is easily more dangerous.
+---------
+
+# 5 Near-Perfect Netflix K-Dramas To Binge This Summer
+
+TV, K-Drama, Netflix
+
+Sat, 25 Jul 2026 01:30:11 GMT
+
+https://screenrant.com/perfect-netflix-k-dramas-binge-summer-2026/
+
+From revenge thrillers to hilarious office romances, these completed Korean dramas on Netflix stand out as the absolute best.
+---------
+
+# Lanterns Trailer: Sinestro, Manhunters & 10 Other DCU Reveals
+
+Streaming TV, Lanterns, DC Universe, San Diego Comic-Con
+
+Sat, 25 Jul 2026 01:16:22 GMT
+
+https://screenrant.com/lanterns-trailer-breakdown-dcu-reveals/
+
+DC Studios has just revealed an all-new trailer for Lanterns, featuring all kinds of exciting reveals and major moments from the upcoming DCU series.
+---------
+
+# One Year Later: What Happened With Suits' Canceled Spinoff Series?
+
+Streaming TV, Suits LA
+
+Sat, 25 Jul 2026 01:15:11 GMT
+
+https://screenrant.com/suits-la-spinoff-cancel-one-year-later/
+
+Despite a star-studded cast and the success of the original series, the spinoff Suits LA failed to capture' attention, leaving fans confused & bitter.
+---------
+
+# 8 Sci-Fi RPGs To Scratch Your Mass Effect Itch
+
+Gaming, Mass Effect, RPG, Triple-A Games, PC
+
+Sat, 25 Jul 2026 01:00:11 GMT
+
+https://screenrant.com/best-rpgs-like-mass-effect/
+
+It can be hard to find anything that delivers a comparable experience to the Mass Effect trilogy, but some sci-fi RPGs come surprisingly close.
+---------
+
+# Dungeons & Dragons Sequel Script Is Finished, but There's 1 Major Problem
+
+Movies, Dungeons & Dragons: Honor Among Thieves, San Diego Comic-Con
+
+Sat, 25 Jul 2026 02:19:41 GMT
+
+https://www.cbr.com/dungeons-dragons-honor-among-thieves-2-script-written/
+
+An update on the Dungeons & Dragons: Honor Among Thieves sequel reveals good news and bad news.
+---------
+
+# 5 Classic Sega Genesis Games That Are 10/10 Masterpieces
+
+Games, Sega Genesis, Video Games, Sonic the Hedgehog
+
+Sat, 25 Jul 2026 02:15:15 GMT
+
+https://www.cbr.com/best-classic-sega-genesis-masterpieces/
+
+The Sega Genesis had a library packed with games the blew everyone away in the '90s, and are still perfect today.
+---------
+
+# Sung Jinwoo Gets Perfect New Redesign Ahead of Solo Leveling Season 3
+
+Anime, Solo Leveling
+
+Sat, 25 Jul 2026 02:00:24 GMT
+
+https://www.cbr.com/solo-leveling-jinwoo-omniscient-readers-viewpoint-art/
+
+Amid the Solo Leveling: Ragnarok manhwa's ongoing hiatus, Jinwoo has received a new art redesign from the artist behind Omniscient Reader's Viewpoint.
+---------
+
+# The 8 Strongest Deadites In Evil Dead Burn, Ranked by Power
+
+Movies, Evil Dead Burn
+
+Sat, 25 Jul 2026 02:00:24 GMT
+
+https://www.cbr.com/every-evil-dead-burn-deadite-ranked-by-power-list/
+
+Every Deadite that appears in Evil Dead Burn (2026) plays an important role, but let's take a look at how strong they actually are.
+---------
+
+# Alan Ritchson's New Dialogue-Free Action Movie Splits the Critics
+
+Movies, Motor City
+
+Sat, 25 Jul 2026 01:45:49 GMT
+
+https://www.cbr.com/motor-city-rotten-tomatoes-score/
+
+Actions speak louder than words in the newest movie featuring Reacher star Alan Ritchson.
+---------
+
+# 5 Most Powerful Monsters In Yu-Gi-Oh!, Ranked
+
+Anime, Yu-Gi-Oh!
+
+Sat, 25 Jul 2026 01:45:15 GMT
+
+https://www.cbr.com/yugioh-most-powerful-monsters-ranked/
+
+There are thousands of Yu-Gi-Oh! monsters, and a small handful stand out as the most powerful of all time.
+---------
+
+# Thranduil's Return Proves LOTR Is Avoiding a Major Star Wars Mistake
+
+Movies, The Lord of the Rings: The Hunt for Gollum
+
+Sat, 25 Jul 2026 01:30:15 GMT
+
+https://www.cbr.com/lotr-hunt-for-gollum-avoid-star-wars-legacy-casting-mistake/
+
+The Lord of the Rings: The Hunt for Gollum's casting announcement is proof that the film will do something Star Wars' sequel trilogy failed to.
+---------
+
+# Spaceballs Sequel Serves as a 'Love Letter' to John Candy
+
+Movies, Spaceballs: The New One, Spaceballs, San Diego Comic-Con
+
+Sat, 25 Jul 2026 00:54:28 GMT
+
+https://www.cbr.com/spaceballs-2-the-new-one-love-letter-john-candy/
+
+The Spaceballs: The New One team addresses honoring John Candy with the upcoming sequel.
+---------
+
+# Big Bang Theory Creators Reveal Stuart's Wildest Ideas | SDCC 2026
+
+TV, Stuart Fails to Save the Universe
+
+Sat, 25 Jul 2026 00:47:35 GMT
+
+https://www.cbr.com/video/big-bang-theory-creators-reveal-stuart-s-wildest-ideas-sdcc-2026/
+
+Stuart Fails to Save the Universe stars Kevin Sussman, Lauren Lapkus, John Ross Bowie, Brian Posehn, and creators Chuck Lorre, Bill Prady, and Zak Penn reveal the funniest behind-the-scenes stories from the new Big Bang Theory spin-off at SDCC 2026.
+---------
+
+# 8 Reasons It’s Hard to Watch Gundam Wing Today
+
+Anime, Mobile Suit Gundam Wing, Mobile Suit Gundam
+
+Sat, 25 Jul 2026 00:45:14 GMT
+
+https://www.cbr.com/gundam-wing-reasons-hard-to-watch-today/
+
+Mobile Suit Gundam Wing is a formative, fan-favorite entry in the long-running mecha franchise, but it's not without its share of frustrating flaws.
+---------
+
+# 5 'Game of Thrones' References You May Have Missed in 'House of the Dragon' Season 3
+
+TV, House of the Dragon, Game Of Thrones, HBO, A Song of Ice and Fire
+
+Sat, 25 Jul 2026 02:02:14 GMT
+
+https://collider.com/5-game-of-thrones-references-missed-house-of-the-dragon-season-3/
+
+House of the Dragon is full of small, subtle references to Game of Thrones that deepen the immersion for viewers.
+---------
+
+# Russell Crowe's 122-Minute Western Masterpiece Is Officially Netflix's Newest Streaming Smash
+
+Movie News, 3:10 to Yuma, Quentin Tarantino, Christian Bale, Russell Crowe
+
+Sat, 25 Jul 2026 02:00:24 GMT
+
+https://collider.com/3-10-to-yuma-quentin-tarantino-favorite-western-author-streaming-success-netflix-july-2026/
+
+The 3:10 to Yuma remake, based on a story by Quentin Tarantino's favorite Western author Elmore Leonard, is having a resurgence on streaming.
+---------
+
+# 'The Simpsons' Officially Reaches the End of an Era
+
+TV Features, The Simpsons, Disney+, The Simpsons Movie, The Simpsons 2
+
+Sat, 25 Jul 2026 01:55:15 GMT
+
+https://collider.com/the-simpsons-season-new-disney-plus-exclusive-episodes/
+
+The Simpsons is going through a format change with new exclusive Disney+ episodes debuting in the summer instead of the regular TV season.
+---------
+
+# 'God of War Laufey' Officially Confirms Early Release Date
+
+Gaming News, God of War, Deborah Ann Woll, SDCC
+
+Sat, 25 Jul 2026 01:51:21 GMT
+
+https://collider.com/god-of-war-laufey-release-date-february-16-2027/
+
+The release date for God of War: Laufey has been revealed, and it's much sooner than expected. Read on for all the details!
+---------
+
+# Christopher Nolan’s ‘The Odyssey’ Slays Ridley Scott’s 10/10 Sci-Fi Sequel at the Box Office
+
+Movie News, The Odyssey, Blade Runner 2049, Ridley Scott, Denis Villeneuve
+
+Sat, 25 Jul 2026 01:45:14 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-overtakes-blade-runner-2049-box-office-306-million/
+
+Christopher Nolan's The Odyssey has overtaken the sci-fi masterpiece Blade Runner 2049 in just four days at the box office.
+---------
+
+# 20 Greatest Video Games of the 21st Century
+
+Video Games, Video Game, The Witcher 3: Wild Hunt, Resident Evil 4, Super Smash Bros. Ultimate
+
+Sat, 25 Jul 2026 01:41:14 GMT
+
+https://collider.com/best-video-games-21st-century-ranked/
+
+Modern masterpieces like The Witcher 3: Wild Hunt, Resident Evil 4, and Red Dead Redemption are all among the best video games of the 21st century.
+---------
+
+# ‘Avengers: Doomsday’ Is Already a Box Office Hit
+
+Movie News, Avengers: Doomsday, Robert Downey Jr, Chris Evans, Chris Hemsworth
+
+Sat, 25 Jul 2026 01:30:14 GMT
+
+https://collider.com/avengers-doomsday-box-office-advance-ticket-sales-16-million/
+
+Tickets for Avengers: Doomsday are already on sale, and the hotly anticipated MCU movie has earned millions of dollars five months ahead of release.
+---------
+
+# Prime Video’s First-Ever ‘Reacher’ Spin-Off Gets an Early Sneak Peek
+
+TV News, Reacher, Alan Ritchson, Prime Video, Neagley
+
+Sat, 25 Jul 2026 01:15:15 GMT
+
+https://collider.com/prime-video-reacher-spin-off-neagley-first-look-maria-sten-images/
+
+Prime Video unveils the first look at Neagley, the Reacher spin-off starring Maria Sten, ahead of its September premiere.
+---------
+
+# Annette Bening Is Great in Everything, but These 4 Movies Are Her Masterpieces
+
+Movie, Annette Bening, American Beauty, The Grifters, The Kids Are All Right
+
+Sat, 25 Jul 2026 01:14:15 GMT
+
+https://collider.com/best-annette-bening-movies-masterpieces/
+
+From The Kids Are All Right to American Beauty, these performances show why Annette Bening remains a screen legend.
+---------
+
+# Matt Damon and Ben Affleck’s Forgotten Sci-Fi Thriller Series Is the Perfect Weekend Binge
+
+TV Features, Matt Damon, Ben Affleck, Sci-Fi, Incorporated
+
+Sat, 25 Jul 2026 01:02:14 GMT
+
+https://collider.com/matt-damon-ben-affleck-incorporated-sci-fi-thriller-series/
+
+Matt Damon and Ben Affleck’s overlooked sci-fi thriller Incorporated deserves another look as The Odyssey dominates the box office.
+---------
+
+# 8 Masterpiece War Movies That Are Directed Perfectly
+
+Movie Lists, War, Dunkirk, Saving Private Ryan
+
+Sat, 25 Jul 2026 02:00:22 GMT
+
+https://movieweb.com/war-movies-perfect-direction/
+
+There are so many war movies, but not all of them are made by great directors. Every movie lover should experience these at least once.
+---------
+
+# The Fate of Marvel's 'X-Men '97' Officially Confirmed Ahead of MCU Reboot
+
+TV News, X-Men '97
+
+Sat, 25 Jul 2026 01:35:53 GMT
+
+https://movieweb.com/x-men-97-renewed-season-4/
+
+Marvel Animation confirmed what the future holds for 'X-Men '97,' one of its most successful Disney+ shows in recent memory.
+---------
+
+# 'Game of Thrones': The 10 Best Franchise Villains, Ranked
+
+TV Lists, Game of Thrones, Game Of Thrones, House of the Dragon, A Knight Of The Seven Kingdoms
+
+Sat, 25 Jul 2026 01:33:33 GMT
+
+https://movieweb.com/game-of-thrones-best-franchise-villains/
+
+There are many memorable villains in the 'Game of Thrones' universe, but the best ones are terrifying, entertaining, and believable.
+---------
+
+# 'The Walking Dead: Dead City' Season 3 Officially Debuts Rotten Tomatoes Score
+
+TV News, The Walking Dead: Dead City, The Walking Dead
+
+Sat, 25 Jul 2026 00:12:15 GMT
+
+https://movieweb.com/the-walking-dead-dead-city-season-3-rotten-tomatoes-score/
+
+The new season is already at 100% positive reviews.
+---------
+
+# 6 Great Movies You Never Realized Were Secret 'The Odyssey' Adaptations
+
+Movie Lists, Finding Nemo, The Hobbit, The Odyssey
+
+Sat, 25 Jul 2026 00:00:12 GMT
+
+https://movieweb.com/the-odyssey-secret-movie-adaptations/
+
+Filmmakers have borrowed major parts of Homer’s structure for centuries. Here are 6 great movies secretly inspired by 'The Odyssey.'
+---------
+
 # 3 Best Movies To Watch On Prime Video This Weekend (July 25-26)
 
 Movies, Prime Video, Recommendation
@@ -5111,389 +5496,4 @@ Thu, 23 Jul 2026 17:52:38 GMT
 https://www.cbr.com/netflix-parasyte-tamiya-live-action-series/
 
 Netflix announced a new live-action spinoff series based on its key manga adaptation.
----------
-
-# 8 Sitcoms To Watch If You Liked Parks & Recreation
-
-TV, Parks and Recreation, Sitcoms, The Office
-
-Thu, 23 Jul 2026 17:30:15 GMT
-
-https://www.cbr.com/sitcoms-like-parks-and-recreation/
-
-Parks and Recreation is easily one of the better sitcoms of recent years, although fans of the show can find plenty of other comedies to enjoy.
----------
-
-# Law & Order Announces Major Cast Shakeup for Season 26
-
-TV, Law & Order, NBC, james badge dale
-
-Thu, 23 Jul 2026 17:25:17 GMT
-
-https://www.cbr.com/law-order-reid-scott-leaving-season-26/
-
-Changes are coming for the long-running procedural.
----------
-
-# Sanrio Gives Hello Kitty, Kuromi & My Melody 3 Head-Turning New Designs
-
-Anime, sanrio, Hello Kitty, merchandise
-
-Thu, 23 Jul 2026 17:21:14 GMT
-
-https://www.cbr.com/hello-kitty-kuromi-my-melody-cloudheads-teeturtle/
-
-TeeTurtle releases a brand-new line of Sanrio-themed plushies, with the collection featuring Hello Kitty, My Melody and Kuromi.
----------
-
-# 4 GameCube Games Better Than Super Smash Bros. Melee
-
-Games, The Legend of Zelda, Resident Evil, Nintendo, Super Smash Bros
-
-Thu, 23 Jul 2026 17:15:15 GMT
-
-https://www.cbr.com/gamecube-games-better-than-super-smash-bros-melee/
-
-Super Smash Bros. Melee provided thousands of hours of fun, but these four GameCube titles are objectively better experiences.
----------
-
-# Wolverine Gets His Best Trailer Since 'Logan' In Stunning New Footage
-
-Gaming News, Marvel, Gaming, Insomniac Games, X-Men
-
-Thu, 23 Jul 2026 18:40:21 GMT
-
-https://collider.com/wolverine-game-trailer-jean-grey/
-
-Marvel's Wolverine game for the PlayStation 5 just got its best trailer yet. See the stunning new footage for the story teaser here!
----------
-
-# Season 2 of George R.R. Martin’s Favorite ‘Game of Thrones’ Spin-Off Gets a Massive Filming Update
-
-TV News, Game Of Thrones, A Knight Of The Seven Kingdoms, House of the Dragon, George R.R. Martin
-
-Thu, 23 Jul 2026 18:34:31 GMT
-
-https://collider.com/george-r-r-martin-game-of-thrones-spin-off-a-knight-of-the-seven-kingdoms-season-2-filming-update/
-
-A Knight of the Seven Kingdoms creator Ira Parker has shared a major Season 2 update, including George R.R. Martin’s surprising new contributions.
----------
-
-# 35 Years Later, These Are the Best Albums of 1991
-
-Music Features, Rock, Pop, Grunge, 1990s
-
-Thu, 23 Jul 2026 18:29:14 GMT
-
-https://collider.com/best-albums-1991/
-
-Nevermind by Nirvana, Blood Sugar Sex Magik by Red Hot Chili Peppers, and Achtung Baby by U2 are among the best albums of the year 1991.
----------
-
-# Harry Potter Officially Returns to Theaters With Magical New Merch
-
-Movie News, Harry Potter, Harry Potter and the Sorcerer's Stone, Harry Potter and the Cursed Child
-
-Thu, 23 Jul 2026 18:10:42 GMT
-
-https://collider.com/harry-potter-25th-anniversary-popcorn-bucket-images-hogwarts-express/
-
-As the Harry Potter films celebrate their 25th anniversary, the fantasy franchise has debuted at SDCC with a magical new popcorn bucket. See it here!
----------
-
-# Heroes From Across the Spider-Verse Unite in First Teaser for Marvel's Biggest Crossover Yet [Exclusive]
-
-Exclusives, Marvel, Spider-Man: Brand New Day, Spider-Verse, Spider-Man
-
-Thu, 23 Jul 2026 18:00:14 GMT
-
-https://collider.com/marvel-contest-of-champions-trailer-your-friendly-neighborhood-battlerealm-spider-man/
-
-Marvel Contest of Champions has released a new trailer teasing its wide roster of Spider-Man fighters from across the Spider-Verse. Check it out here.
----------
-
-# First 'Percy Jackson' Season 3 Footage Brings "The Titan's Curse" to Life
-
-TV News, Percy Jackson & the Olympians, Percy Jackson & The Olympians, San Diego Comic-Con
-
-Thu, 23 Jul 2026 17:27:20 GMT
-
-https://collider.com/percy-jackson-and-the-olympians-season-3-first-footage-description/
-
-Percy Jackson and the Olympians has given fans their first official look at Season 3, which will adapt the fan-favorite novel, The Titan's Curse.
----------
-
-# 8 TV Finales That Officially Marked the End of an Era
-
-TV, TV Series, The Sopranos, Friends, M*A*S*H
-
-Thu, 23 Jul 2026 17:18:14 GMT
-
-https://collider.com/tv-finales-end-of-era/
-
-The Sopranos, Friends, Six Feet Under, The Big Bang Theory, and more make up our list of TV finales that officially marked the end of an era.
----------
-
-# 'Percy Jackson' Season 3 Unveils Action-Packed First Footage as Release Date Confirmed
-
-TV News, Percy Jackson & the Olympians, Disney+, Comic-Con
-
-Thu, 23 Jul 2026 18:04:53 GMT
-
-https://movieweb.com/percy-jackson-season-3-release-date-footage/
-
-'Percy Jackson and the Olympians' took San Diego Comic-Con (SDCC) by storm, with an exclusive first look at Season 3 of the Disney+ fantasy saga.
----------
-
-# 8 Most Divisive Christopher Nolan Castings
-
-Movie Lists, Christopher Nolan
-
-Thu, 23 Jul 2026 18:00:12 GMT
-
-https://movieweb.com/christopher-nolan-divisive-movie-castings/
-
-Christoper Nolan's casting choices in his popular movies like 'The Odyssey' and 'The Prestige' caused division among cinephiles and critics.
----------
-
-# ‘Reacher’ Star Alan Ritchson Confirms How Long He Wants to Play the Iconic Action Hero
-
-TV News, Reacher, Alan Ritchson, Prime Video
-
-Thu, 23 Jul 2026 17:53:50 GMT
-
-https://movieweb.com/alan-ritchson-reacher-more-seasons/
-
-Alan Ritchson has no plans to retire from playing Jack Reacher anytime soon.
----------
-
-# Skyrim: Relics Of Hyrule Is A Huge New Zelda Crossover
-
-Gaming, The Elder Scrolls V: Skyrim, The Legend of Zelda, The Legend of Zelda: Breath of the Wild, Bethesda, Nintendo
-
-Thu, 23 Jul 2026 17:00:12 GMT
-
-https://screenrant.com/skyrim-relics-of-hyrule-zelda-crossover/
-
-Relics of Hyrule, a massive mod, merges The Elder Scrolls V: Skyrim with The Legend of Zelda, adding new weapons, spells, dungeons, and lore for PC.
----------
-
-# Mattel's Halo Warthog Brick Shop Set Revealed, Includes Buildable Gauss Hog (Exclusive)
-
-Exclusive, Halo, Mattel, San Diego Comic-Con
-
-Thu, 23 Jul 2026 17:00:12 GMT
-
-https://screenrant.com/halo-warthog-mattel-brick-shop-set/
-
-ScreenRant reveals Mattel's Halo Warthog Brick Shop set with working features, Gauss Hog conversion parts and exclusive images.
----------
-
-# Hulu's New Crime Thriller Massively Improves 39-Year-Old Movie With Rare Rotten Tomatoes Score
-
-TV, Masked Recs, Hulu
-
-Thu, 23 Jul 2026 16:50:52 GMT
-
-https://screenrant.com/hulu-furious-rotten-tomatoes-score-black-widow-comparison/
-
-Hulu's new eight-part crime thriller is a massive improvement, garnering praise and continuing a quietly impressive streak for the streamer.
----------
-
-# Russell Crowe & Christian Bale's Western Remake That "Improves On The Original" Cracks Netflix's Top 10
-
-Movies, Masked Recs, Christian Bale
-
-Thu, 23 Jul 2026 16:47:58 GMT
-
-https://screenrant.com/russell-crowe-christian-bale-310-to-yuma-netflix-stream/
-
-An acclaimed Western remake starring Christian Bale and Russell Crowe is currently enjoying a strong run on Netflix's streaming movies chart.
----------
-
-# Criminal Minds' Worst Era Finally Ends Today (With 1 Caveat)
-
-Network TV, Criminal Minds
-
-Thu, 23 Jul 2026 16:45:11 GMT
-
-https://screenrant.com/criminal-minds-evolution-voit-era-end/
-
-Criminal Minds: Evolution concludes Voit's arc in the season 19 finale, potentially signaling a new chapter for the BAU or making his return tough.
----------
-
-# Under The Dome's Spiritual Successor Arrives In Two Weeks
-
-Movies, Masked Recs
-
-Thu, 23 Jul 2026 16:30:11 GMT
-
-https://screenrant.com/the-last-house-under-the-dome-spiritual-successor/
-
-The spiritual successor to Under the Dome, the CBS series based on Stephen King's novel, will appear on Netflix at the beginning of August.
----------
-
-# Star Wars Officially Recasts Anakin Skywalker
-
-Gaming, Star Wars, Star Wars Zero Company
-
-Thu, 23 Jul 2026 16:28:45 GMT
-
-https://screenrant.com/star-wars-anakin-skywalker-new-actor-zero-company/
-
-Anakin Skywalker is one of the most iconic characters in Star Wars history, and any time he returns, it's bound to draw attention from fans.
----------
-
-# Johnny Depp Transforms Into Scrooge For The First Official Look At Ebenezer: A Christmas Carol
-
-Movies, Ebenezer: A Christmas Carol, A Christmas Carol
-
-Thu, 23 Jul 2026 16:17:53 GMT
-
-https://screenrant.com/ebenezer-a-christmas-carol-johnny-depp-first-look/
-
-Johnny Depp has officially been revealed as the classic Scrooge in a first official look for the upcoming adaptation Ebenezer: A Christmas Carol.
----------
-
-# The Morning Show Season 6's Fate Officially Decided By Apple TV
-
-TV, The Morning Show
-
-Thu, 23 Jul 2026 16:15:40 GMT
-
-https://screenrant.com/the-morning-show-apple-tv-season-5-ending/
-
-The Morning Show season 5 will be released on Apple TV in 2027, but the show’s future beyond that has now been determined after debuting in 2019.
----------
-
-# 5 Action Thriller Movies Better Than Sicario
-
-Movies, Sicario, Thriller
-
-Thu, 23 Jul 2026 16:15:11 GMT
-
-https://screenrant.com/action-thriller-movies-better-sicario/
-
-Sicario is seen as one of the best thrillers of the 21st Century, which it absolutely is; that said, there's a group of movies that beat it out.
----------
-
-# It's Official, Your PS5 Physical Games Have an Expiration Date
-
-Games, PlayStation 5
-
-Thu, 23 Jul 2026 16:46:14 GMT
-
-https://www.cbr.com/ps5-physical-games-expiring-official-update/
-
-PlayStation 5 games and other forms of physical media might not last anywhere near as long as collectors would like to believe.
----------
-
-# Game of Thrones: Conquest War for the Throne Launches This Weekend
-
-Games, Game Of Thrones
-
-Thu, 23 Jul 2026 16:35:14 GMT
-
-https://www.cbr.com/game-of-thrones-conquest-war-for-the-throne-launches-this-weekend/
-
-Game of Thrones fans have never experienced strategic warfare like in this brand-new release, coming this weekend.
----------
-
-# Reacher's Alan Ritchson Breaks Silence on Becoming DCU's Batman
-
-Movies, Batman, Reacher, DCU
-
-Thu, 23 Jul 2026 16:29:43 GMT
-
-https://www.cbr.com/alan-ritchson-dcu-batman-rumors/
-
-The Reacher star is a major fan-favorite for the new DCU Batman, and he has campaigned for the role for years.
----------
-
-# Apple TV Officially Seals the Fate of The Morning Show After 4 Seasons
-
-TV, The Morning Show
-
-Thu, 23 Jul 2026 16:24:10 GMT
-
-https://www.cbr.com/apple-tv-ending-the-morning-show-season-5/
-
-Reese Witherspoon and Jennifer Aniston confirm the fate of The Morning Show on Apple TV.
----------
-
-# A24 & Robert Pattinson's Unsettling To Catch a Predator Thriller Sets Early Theatrical Release Date
-
-Movies, Primetime, A24
-
-Thu, 23 Jul 2026 16:19:08 GMT
-
-https://www.cbr.com/a24-robert-pattinson-primetime-theatrical-release-date/
-
-Audiences will see Robert Pattinson play To Catch a Predator host Chris Hansen
----------
-
-# 5 Anime Heroes With Powers Stronger Than Sung Jinwoo
-
-Anime, Solo Leveling, My Hero Academia, Jujutsu Kaisen, Dragon Ball
-
-Thu, 23 Jul 2026 16:15:14 GMT
-
-https://www.cbr.com/solo-leveling-anime-heroes-stronger-than-sung-jinwoo/
-
-Sung Jinwoo may be Solo Leveling's strongest hero, but the Hunter does not stand a chance against other anime powerhouses.
----------
-
-# DC Reveals How Fans Can Unlock Major Prizes at San Diego Comic-Con 2026
-
-Comics, DC Comics, San Diego Comic-Con
-
-Thu, 23 Jul 2026 16:02:00 GMT
-
-https://www.cbr.com/dc-comics-prize-giveaway-sdcc-2026/
-
-DC Comics is giving fans the chance to get their very own exclusive merchandise for free at San Diego Comic Con with a citywide scavenger hunt.
----------
-
-# Stranger Things: The Other Side Spinoff Comic Returns As Webtoon
-
-Comics, Stranger Things
-
-Thu, 23 Jul 2026 16:01:14 GMT
-
-https://www.cbr.com/stranger-things-the-other-side-spinoff-comic-webtoon-reformat/
-
-The more of the Upside Down to explore.
----------
-
-# Netflix's Risky Wednesday Season 3 Update Completely Rewrites Jenna Ortega's Show
-
-TV, Wednesday, Netflix
-
-Thu, 23 Jul 2026 16:01:14 GMT
-
-https://www.cbr.com/netflix-wednesday-season-3-changes-location/
-
-Wednesday is making a change to the core of the show in Season 3, and that's a risk.
----------
-
-# It's Officially the End of an Era for Evil Dead's Chainsaw
-
-Movies, Evil Dead Burn, Evil Dead, The Evil Dead
-
-Thu, 23 Jul 2026 16:01:14 GMT
-
-https://www.cbr.com/evil-dead-burn-end-of-chainsaw-era/
-
-Evil Dead Burn, the sixth installment in Sam Raimi's enduring horror franchise, makes a notable change to the groovy formula.
----------
-
-# 10 Mildest R-Rated Movies of All Time
-
-Movie, The Odyssey, The Matrix, The King's Speech, The Blues Brothers
-
-Thu, 23 Jul 2026 17:09:14 GMT
-
-https://collider.com/mildest-r-rated-movies-all-time-ranked/
-
-Some R-rated movies are pretty mild when it comes to the content they have, as shown by the likes of The King's Speech, The Odyssey, and The Matrix.
 ---------
