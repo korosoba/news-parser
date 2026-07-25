@@ -1,3 +1,25 @@
+# GTA 6 Official Gameplay Look Leaves Gamers Concerned Over Player Customization
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Sat, 25 Jul 2026 07:30:11 GMT
+
+https://screenrant.com/gta-6-ultimate-edition-cosmetic-quality-reaction/
+
+Grand Theft Auto 6's Ultimate edition offers exclusive cosmetics, but not everyone finds them to be worth the price of the more expensive option.
+---------
+
+# James Bond Gets Official New Look In Surprise Update
+
+Gaming, 007 First Light, Triple-A Games, PC
+
+Sat, 25 Jul 2026 06:00:11 GMT
+
+https://screenrant.com/007-first-light-surprise-content-update/
+
+007 Just got a surprise new release to help satisfy fans of the series while we wait for bigger projects, and we couldn't be happier about it.
+---------
+
 # It's Official, Baldur's Gate 3 Will Return In 2027
 
 Gaming, Baldur's Gate 3, PC, Baldur's Gate
@@ -5474,26 +5496,4 @@ Thu, 23 Jul 2026 18:57:20 GMT
 https://collider.com/gerard-butler-action-franchise-apollo-has-fallen-trailer/
 
 Gerard Butler’s Has Fallen franchise returns with the first Apollo Has Fallen trailer ahead of its streaming debut.
----------
-
-# Where To Stream Every Christopher Nolan Movie
-
-Movie Lists, Christopher Nolan, The Odyssey, The Dark Knight
-
-Thu, 23 Jul 2026 20:00:14 GMT
-
-https://movieweb.com/christopher-nolan-movies-where-to-stream/
-
-From 'Following' to 'The Odyssey,' here's where you can watch all 13 Christopher Nolan movies right now.
----------
-
-# Matt Damon's $775 Million Hard Sci-Fi Masterpiece Proves Essential as It Soars on Streaming
-
-Movie News, Interstellar, Matt Damon, Hot on Streaming
-
-Thu, 23 Jul 2026 20:00:14 GMT
-
-https://movieweb.com/matt-damon-interstellar-streaming-hit-hulu-july-2026/
-
-As the Oscar winner enters the spotlight again with 'The Odyssey,' another of his major blockbusters has resurfaced on streaming.
 ---------
