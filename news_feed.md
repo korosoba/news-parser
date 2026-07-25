@@ -1,3 +1,190 @@
+# One Piece Officially Returns This Month As A New Chapter Begins
+
+Gaming, One Piece
+
+Sat, 25 Jul 2026 11:00:12 GMT
+
+https://screenrant.com/one-piece-new-chapter-july-2026/
+
+Discover the latest addition to the One Piece Card Game, featuring a premium collection of cards with new illustrations.
+---------
+
+# Pokémon Fans In Love With Ghost-Type Eeveelution
+
+Gaming, Pokemon
+
+Sat, 25 Jul 2026 10:30:11 GMT
+
+https://screenrant.com/pokemon-ghost-type-eeveelution-fan-hopes/
+
+Pokémon enthusiasts dream of a Ghost-type Eeveelution as they eagerly await the release of Generation 10.
+---------
+
+# Avatar Aang: The Last Airbender Interview with Stars at SDCC 2026
+
+TV, Avatar Aang: The Last Airbender, San Diego Comic-Con
+
+Sat, 25 Jul 2026 10:00:11 GMT
+
+https://screenrant.com/video/avatar-aang-last-airbender-eric-nam-jessica-matten-cast-sdcc-2026-interview/
+
+Avatar Aang: The Last Airbender stars Eric Nam, Román Zaragoza, Jessica Matten, and Dionne Quan trade casting stories, share their own kinship with their ATLA characters, and get excited about the possibility of telling more stories in the Airbender universe.
+---------
+
+# It's Official, Game Of Thrones Has Finally Returned And It's Already A Big Hit
+
+Gaming, Game of Thrones
+
+Sat, 25 Jul 2026 10:00:11 GMT
+
+https://screenrant.com/game-of-thrones-2026-return-reactions/
+
+Game of Thrones: Dragonfire is a hit Android strategy game where players command dragons, forge alliances, and conquer the Seven Kingdoms.
+---------
+
+# Lanterns Showrunner Reveals the "Ticking Time Bomb" at the Heart of the DCU Series
+
+TV, Lanterns, San Diego Comic-Con
+
+Sat, 25 Jul 2026 11:00:16 GMT
+
+https://www.cbr.com/hbo-lanterns-showrunner-ticking-time-bomb-dcu-series/
+
+One of the showrunners of HBO's upcoming Lanterns series reveals some of the incredible tension fans can expect between Hal Jordan and John Stewart.
+---------
+
+# The Mandalorian and Grogu Is Officially the End of an Era for Disney+
+
+Movies, The Mandalorian and Grogu, Disney+, The Mandalorian
+
+Sat, 25 Jul 2026 11:00:16 GMT
+
+https://www.cbr.com/mandalorian-and-grogu-disney-plus-end-of-era/
+
+A new blockbuster movie represents the end of a long-running era for Disney+.
+---------
+
+# The Far Side's 10 Best Dinosaur Comics, Ranked
+
+Comics, The Far Side
+
+Sat, 25 Jul 2026 11:00:16 GMT
+
+https://www.cbr.com/the-far-side-best-dinosaur-comics-ranked/
+
+Dinosaurs were a prevalent species in Gary Larson's The Far Side. Many panels were hilarious or sad, but, mostly, they were all iconic.
+---------
+
+# Final Fantasy 7 x 14 Crossover Confirmed With Beyond The Lifestream Raid
+
+Games, Final Fantasy, Final Fantasy 7 Remake, final fantasy xiv
+
+Sat, 25 Jul 2026 10:20:39 GMT
+
+https://www.cbr.com/final-fantasy-7-14-crossover-confirmed-beyond-the-lifestream-raid/
+
+Sephiroth is coming to Final Fantasy 14, as Square Enix has confirmed a Final Fantasy 7 Remake Raid series, called Beyond the Lifestream.
+---------
+
+# 5 Stephen King Books Better Than The Stand
+
+TV, Stephen King, The Stand, Horror
+
+Sat, 25 Jul 2026 10:00:14 GMT
+
+https://www.cbr.com/stephen-king-books-better-than-the-stand-list/
+
+The Stand is considered Stephen King's magnum opus, but five of his books are even more noteworthy.
+---------
+
+# The 5 Oldest X-Men Missing From the Movies
+
+Movies, X-Men, MCU, X-Men (2000)
+
+Sat, 25 Jul 2026 10:00:14 GMT
+
+https://www.cbr.com/x-men-movies-oldest-missing-characters-list/
+
+Stretching back to the 1960s, some of the X-Men's most long-standing members have yet to debut in a live-action film, but the MCU can change that.
+---------
+
+# 7 Detective Shows Where Every Episode Is a Masterpiece
+
+TV, Mystery, Brooklyn Nine-Nine, Hannibal, Mare of Easttown
+
+Sat, 25 Jul 2026 10:52:14 GMT
+
+https://collider.com/detective-shows-every-episode-masterpiece/
+
+From the modern sitcom Brooklyn Nine-Nine to the psychological thriller Hannibal, every episode of these detective TV shows are masterpieces.
+---------
+
+# 6 Best Fantasy Shows of 2026 (So Far), Ranked
+
+TV, Fantasy, One Piece, House of the Dragon, Daemons of the Shadow Realm
+
+Sat, 25 Jul 2026 10:05:14 GMT
+
+https://collider.com/best-fantasy-shows-2026-ranked/
+
+From A Knight of the Seven Kingdoms to The Vampire Lestat to House of the Dragon, 2026 is proving that fantasy TV remains richer than ever.
+---------
+
+# 10 Greatest DC Video Games of All Time
+
+Gaming, Video Game, DC Comics, Gotham Knights
+
+Sat, 25 Jul 2026 10:03:14 GMT
+
+https://collider.com/best-dc-video-games-all-time-ranked/
+
+From recent efforts like Gotham Knights to acclaimed gems like Batman: Arkham City, these are the all-time best video games produced by DC Comics.
+---------
+
+# The 10 Best Short Video Games of All Time, Ranked
+
+TV, Video Game, Metal Gear Solid, Exit 8, Iron Lung
+
+Sat, 25 Jul 2026 10:02:14 GMT
+
+https://collider.com/best-short-video-games-ranked/
+
+Discover great short video games perfect for busy players seeking immersive experiences, including Journey, Inside, and What Remains of Edith Finch.
+---------
+
+# '300' Meets 'The Odyssey' in This Mythological Epic Finally Coming to Streaming
+
+Movie News, Clash of the Titans, Peacock, Sam Worthington, Gemma Arterton
+
+Sat, 25 Jul 2026 10:00:14 GMT
+
+https://collider.com/clash-of-the-titans-odyssey-meets-300-greek-epic-streaming-peacock-august-2026/
+
+The critically panned Greek mythological epic, Clash of the Titans, is coming to streaming amid The Odyssey's box-office success. Find out when.
+---------
+
+# This Paramount+ Classic Sitcom Is Quietly Better Than ‘Cheers’
+
+TV Features, Cheers, Frasier, Kelsey Grammar, Paramount Plus
+
+Sat, 25 Jul 2026 09:57:14 GMT
+
+https://collider.com/paramount-plus-frasier-better-than-cheers-classic-sitcom/
+
+Fraiser remains one of the few spinoffs that exceeds its parent show, Cheers, in popularity thanks to some smart storytelling choices.
+---------
+
+# Matt Damon's 142-Minute Sci-Fi Masterpiece Is Soaring on Prime Video
+
+Movie News, Sci-Fi, The Martian, Prime Video, Matt Damon
+
+Sat, 25 Jul 2026 09:40:14 GMT
+
+https://collider.com/the-martian-streaming-success-prime-video-july-2026/
+
+Project Hail Mary fans have sent another sci-fi masterpiece based on an Andy Weir novel up the streaming charts. Here's everything you should know.
+---------
+
 # 12 Harsh Realities of Replaying Animal Crossing: New Horizons
 
 Gaming, Animal Crossing New Horizons, Animal Crossing
@@ -5309,191 +5496,4 @@ Thu, 23 Jul 2026 19:35:02 GMT
 https://screenrant.com/halo-campaign-evolved-truth-reconciliation-skull-guide/
 
 Halo: Campaign Evolved's third main mission is Truth and Reconciliation, where players will be able to track down three hidden Skulls.
----------
-
-# Xena: Warrior Princess Movie & Plot Details Proposed By Lucy Lawless After Reflecting On Failed Reboot
-
-Movies, Xena: Warrior Princess, Lucy Lawless
-
-Thu, 23 Jul 2026 19:34:50 GMT
-
-https://screenrant.com/xena-warrior-princess-failed-reboot-movie-pitch-lucy-lawless/
-
-After a Xena: Warrior Princess reboot almost got made in 2015, actor Lucy Lawless reveals how she wanted to see the franchise get expanded.
----------
-
-# 10 Fantasy TV Shows With The Greatest Lore
-
-TV, Fantasy
-
-Thu, 23 Jul 2026 19:30:11 GMT
-
-https://screenrant.com/fantasy-tv-shows-best-lore/
-
-Fantasy often contains the best worldbuilding and character development of any genre, and the best lore in fantasy can make the show a success.
----------
-
-# Sherlock Holmes' Criminally Underseen 2018 Movie Officially Drops On Netflix Next Week
-
-Movies, Masked Recs
-
-Thu, 23 Jul 2026 19:19:56 GMT
-
-https://screenrant.com/holmes-watson-netflix-streaming-release-august-2026/
-
-A Sherlock Holmes movie from 2018 that remains criminally underseen officially drops on Netflix next week, eight years after its original release.
----------
-
-# Star Wars' Expanded Universe Makes Its Disney-Era Return In New Series
-
-Streaming TV, Masked Recs, Star Wars
-
-Thu, 23 Jul 2026 19:15:11 GMT
-
-https://screenrant.com/star-wars-expanded-universe-returns-disney-the-ninth-jedi/
-
-Disney's next Star Wars series will offer a storytelling experience similar to the Star Wars Expanded Universe, now better known as Star Wars Legends.
----------
-
-# Apple TV Ends 6-Year Drought To Challenge Netflix’s Supremacy With New Series
-
-TV, Apple TV
-
-Thu, 23 Jul 2026 19:00:23 GMT
-
-https://screenrant.com/apple-tv-last-person-on-earth-first-dating-series/
-
-Apple TV is poised to compete with some of its biggest streaming rivals, embracing a new genre for the first time in more than six years.
----------
-
-# Diablo Meets Slay The Spire In New 9/10 Steam Freebie
-
-Gaming, Steam, PC, Diablo, Slay the Spire
-
-Thu, 23 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/steam-free-demo-diablo-meets-slay-spire/
-
-This new free Steam game that's getting rave reviews perfectly blends Diablo with the incredibly engrossing Slay the Spire.
----------
-
-# Scott Pilgrim Return Officially Confirmed After 16 Years Of Waiting
-
-Comics, San Diego Comic-Con, Scott Pilgrim
-
-Thu, 23 Jul 2026 20:00:17 GMT
-
-https://www.cbr.com/scott-pilgrim-ex-dawn-of-metal-scott-return-after-15-years-confirmed/
-
-Canada's favorite unlikely hero is back.
----------
-
-# The Odyssey Already Has an Unofficial Sequel, and It's Coming in 2026
-
-Movies, The Odyssey, Dune: Part Three
-
-Thu, 23 Jul 2026 20:00:17 GMT
-
-https://www.cbr.com/dune-part-3-sequel-to-the-odyssey-paul-atreides-agamemnon/
-
-One of the oldest stories in the world has a sequel and it's not anyone's first guess.
----------
-
-# 15 Coolest Pokémon Based Around Music
-
-Lists, Pokemon, Video Games, musical
-
-Thu, 23 Jul 2026 19:45:16 GMT
-
-https://www.cbr.com/pokemon-based-on-music/
-
-Pokémon design inspiration can come from anywhere, and a ton of fan-favorite Pokémon over the years have their roots in the art of music.
----------
-
-# The Vampire Diaries' Paul Wesley Takes Responsibility for Nina Dobrev Feud: 'I Was a Little Bit Intense'
-
-TV, The Vampire Diaries, The Vampire Diaries: A Darker Truth
-
-Thu, 23 Jul 2026 19:44:25 GMT
-
-https://www.cbr.com/the-vampire-diaries-paul-wesley-takes-responsibility-for-nina-dobrev-feud/
-
-It's the confession fans of The Vampire Diaries didn't know they needed until now.
----------
-
-# Netflix's New Harlan Coben Series Officially Completes Cast With Supergirl Star & 9 More
-
-TV, Untitled Myron Bolitar Series, Netflix
-
-Thu, 23 Jul 2026 19:32:24 GMT
-
-https://www.cbr.com/netflix-myron-bolitar-full-cast/
-
-The series barely confirmed its lead star a few weeks ago.
----------
-
-# After Nearly 50 Years, Gundam Officially Launches a Brand-New Universe With a New Anime
-
-Anime, Gundam, San Diego Comic-Con, Mobile Suit Gundam
-
-Thu, 23 Jul 2026 19:19:13 GMT
-
-https://www.cbr.com/gundam-new-universe-anime/
-
-Ahead of its 50th anniversary, Mobile Suit Gundam is launching a brand-new multimedia universe from the director of Ghost in the Shell.
----------
-
-# 8 Fantasy RPGs With The Most Powerful Magic Systems
-
-Games, Elden Ring, Gaming, Fantasy, RPG
-
-Thu, 23 Jul 2026 19:15:14 GMT
-
-https://www.cbr.com/fantasy-rpgs-with-powerful-magic-systems/
-
-A carefully constructed magic system can easily make a fantasy RPG unforgettable.
----------
-
-# 10 Anime Series from the Last 10 Years That Are Flawless From Beginning to End
-
-Anime
-
-Thu, 23 Jul 2026 19:00:15 GMT
-
-https://www.cbr.com/perfect-anime-series-since-2016/
-
-Anime like Solo Leveling and Frieren are the best series of the last decade.
----------
-
-# Assorted Crisis Events Finally Returns With Another All-Timer Comic Issue
-
-Comics, image comics, indie comics
-
-Thu, 23 Jul 2026 19:00:15 GMT
-
-https://www.cbr.com/assorted-crisis-events-best-indie-comic-returns-with-new-masterpiece-issue/
-
-This game-changing sci-fi anthology comic returns with yet another masterpiece standalone story.
----------
-
-# 5 Greatest R-Rated Neo-Noir Thrillers of the Last 30 Years
-
-Movies, Thriller, Crime, L.A. Confidential
-
-Thu, 23 Jul 2026 19:00:15 GMT
-
-https://www.cbr.com/best-r-rated-neo-noir-thrillers-last-30-years-list/
-
-Since the days of The Maltese Falcon, film noir has reigned supreme, and the last 30 years produced some of its best R-rated masterpieces.
----------
-
-# This 6-Part Crime Drama Masterpiece Quietly Outperformed AMC’s ‘Breaking Bad’
-
-TV Features, AMC, Breaking Bad, Better Call Saul, Rotten Tomatoes
-
-Thu, 23 Jul 2026 20:07:16 GMT
-
-https://collider.com/better-call-saul-outperformed-rotten-tomatoes-breaking-bad/
-
-Better Call Saul quietly earned a higher Rotten Tomatoes score than Breaking Bad. Here’s why many critics consider the prequel even better.
 ---------
