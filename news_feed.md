@@ -1,3 +1,322 @@
+# Big Brother 28: Week 3 Power of Veto Results (SPOILERS)
+
+Reality TV, Big Brother
+
+Sat, 25 Jul 2026 22:17:47 GMT
+
+https://screenrant.com/big-brother-28-week-3-power-of-veto-results-spoilers/
+
+The Power of Veto competition in Big Brother 28's third week has massive implications for the Toolshed alliance, with a possible backdoor in place.
+---------
+
+# Lucy Chen's 10 Best Quotes In The Rookie, Ranked
+
+Network TV, The Rookie
+
+Sat, 25 Jul 2026 22:15:11 GMT
+
+https://screenrant.com/the-rookie-lucy-chen-best-quotes/
+
+Ranking the best quotes from Lucy Chen, a standout character on The Rookie, showcasing her growth, strength, and adaptability.
+---------
+
+# Netflix Just Released K-Drama’s Answer To The Witcher
+
+Streaming TV, Masked Recs
+
+Sat, 25 Jul 2026 22:10:11 GMT
+
+https://screenrant.com/the-east-palace-netflix-k-drama-like-the-witcher/
+
+For years, The Witcher has been one of Netflix's biggest fantasy shows, but the best K-drama of 2026 thus far is giving Geralt a run for his money.
+---------
+
+# Why Star Trek: The Original Series' Worst Episode Is Credited To A Fake Writer
+
+Star Trek
+
+Sat, 25 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/star-trek-the-original-series-spocks-brain-fake-writer-lee-cronin/
+
+Star Trek: The Original Series was experimental, pushing boundaries with casting, theme, and even directing. However, one episode was not a success.
+---------
+
+# 35 Years Later, Cyclops' Greatest Redesign Is Still 10/10 Perfection
+
+Comics, X-Men
+
+Sat, 25 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/x-men-cyclops-best-redesign-perfect/
+
+Still the best after three decades.
+---------
+
+# All 6 Buffy The Vampire Slayer Games, Ranked
+
+Gaming, Buffy The Vampire Slayer, Triple-A Games
+
+Sat, 25 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/buffy-vampire-slayer-all-6-games-ranked/
+
+Buffy the Vampire slayer has a surprising number of games you have probably never heard of before, and several are still worth checking out.
+---------
+
+# Apple TV's "Unfilmable" Cyberpunk Sci-Fi Series Neuromancer Gets Official Release Date & Trailer
+
+TV, Neuromancer, San Diego Comic-Con
+
+Sat, 25 Jul 2026 21:57:16 GMT
+
+https://screenrant.com/neuromancer-release-date-trailer-apple-tv/
+
+The release date and trailer for Apple TV's Neuromancer series have been revealed, and this Sci-Fi cyberpunk looks gritty and grand in live-action.
+---------
+
+# Dark Matter Season 2 Trailer: Apple TV's Multiversal Sci-Fi Series Goes Beyond The Book In Action-Packed New Episodes
+
+TV, Dark Matter, Dark Matter - Season 2, San Diego Comic-Con
+
+Sat, 25 Jul 2026 21:50:59 GMT
+
+https://screenrant.com/dark-matter-season-2-trailer/
+
+Apple TV's underrated science-fiction series Dark Matter returns to the multiverse in the season 2 trailer released at San Diego Comic-Con.
+---------
+
+# John Cena Thought His New Apple TV Action Movie Was Destined To Fail Until He Read The Script
+
+Movies, Matchbox the Movie, John Cena
+
+Sat, 25 Jul 2026 21:44:26 GMT
+
+https://screenrant.com/john-cena-matchbox-movie-fail-script-read/
+
+EXCLUSIVE: John Cena thought his new Apple TV action movie arriving later this year was destined to fail, until reading the script changed his mind.
+---------
+
+# Apple TV & John Cena's Matchbox Trailer Is Like "Game Night Meets Mission: Impossible"
+
+Movies, Matchbox the Movie, San Diego Comic-Con
+
+Sat, 25 Jul 2026 21:31:17 GMT
+
+https://screenrant.com/matchbox-movie-trailer-apple-tv/
+
+Mattel’s iconic Matchbox toy brand is coming to life in an upcoming live-action film with John Cena, and Apple TV has just revealed the trailer.
+---------
+
+# Legendary Marvel Creator Reveals the One X-Men He Wants To See in the MCU
+
+Movies, X-Men, The New Mutants, Marvel Cinematic Universe
+
+Sat, 25 Jul 2026 22:20:46 GMT
+
+https://www.cbr.com/bill-sienkiewicz-x-men-wants-in-the-mcu/
+
+The iconic character was once planned for the big screen, and its creator still wants to see it happen.
+---------
+
+# Only 2 Disney Lorcana Cards Have Been Officially Banned, So Far
+
+Games, Disney Lorcana, trading cards, TCG
+
+Sat, 25 Jul 2026 22:15:15 GMT
+
+https://www.cbr.com/banned-disney-lorcana-cards/
+
+Disney Lorcana has only banned two cards from play in three years, which may not seem like much when compared to other TCGs.
+---------
+
+# The 5-Season Neo-Western Masterpiece That Revived the Genre Is Dominating Paramount+ Streaming Charts
+
+TV, Yellowstone, Western, Paramount Plus
+
+Sat, 25 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/taylor-sheridan-yellowstone-neo-western-paramount-success-july-2026/
+
+The neo-Western series that revived the genre and spawned a franchise, Yellowstone, is the most-watched show on Paramount+ worldwide.
+---------
+
+# DC's Absolute Universe Sweeps The 2026 Eisner Awards
+
+Comics, Absolute Universe, DC Comics, Eisner Awards, San Diego Comic-Con
+
+Sat, 25 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/dc-absolute-universe-2026-eisner-awards/
+
+The Absolute Universe is the absolute winner.
+---------
+
+# Event Horizon Officially Ending, And The Details Are Wild
+
+Comics, Event Horizon
+
+Sat, 25 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/event-horizon-officially-ending-pandemonium/
+
+The Event Horizon universe is going to get a good deal crazier as Christian Ward tells CBR about the finale of his Event Horizon trilogy, Pandemonium
+---------
+
+# Loki is Avengers: Doomsday's Most Important Hero
+
+Movies, Avengers: Doomsday, Loki, MCU, Avengers: Endgame
+
+Sat, 25 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/mcu-confirmed-loki-most-important-hero/
+
+Fans think everyone from Doctor Doom to Steve Rogers is Avengers: Doomsday's focal figure, but there's only one choice for the Multiverse Saga.
+---------
+
+# 10 Best DC Comics Villain Miniseries of All Time
+
+Comics, DC Comics, Joker, Batman
+
+Sat, 25 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/best-dc-comics-villain-miniseries-of-all-time/
+
+DC’s villains are some of its most iconic characters, so it makes sense their own miniseries stories would be among the company’s best stories.
+---------
+
+# Family Guy Introduces Kieran Culkin as the Devil in First Look at Halloween Special
+
+TV, Family Guy
+
+Sat, 25 Jul 2026 21:44:49 GMT
+
+https://www.cbr.com/family-guy-halloween-special-kieran-culkin-first-look/
+
+Stewie and Brian meet the Devil in the first official look at Family Guy's new Halloween special.
+---------
+
+# John Cena Finds His Fast & Furious Replacement in Mattel's New Live-Action Movie
+
+Movies, San Diego Comic-Con, Matchbox the Movie
+
+Sat, 25 Jul 2026 21:31:45 GMT
+
+https://www.cbr.com/apple-tv-matchbox-the-movie-trailer-release-date/
+
+Audiences just got their first look at all the pulse-pounding action to come in Matchbox: The Movie courtesy of San Diego Comic-Con.
+---------
+
+# Avatar: The Last Airbender's New Aang Movie Sparks AI Backlash After SDCC Reveal
+
+Anime, Avatar: The Last Airbender, Avatar Aang: The Last Airbender, San Diego Comic-Con
+
+Sat, 25 Jul 2026 21:30:14 GMT
+
+https://www.cbr.com/avatar-aang-movie-chatgpt-backlash/
+
+Avatar: Aang: The Last Airbender faces backlash after a San Diego Comic-Con panel revealed ChatGPT was used for research.
+---------
+
+# A 42-Year Old Cyberpunk Masterpiece Gets Its First Official Look From Apple TV
+
+TV News, Neuromancer, Apple TV, Sci-Fi, Cyberpunk 2077
+
+Sat, 25 Jul 2026 22:09:33 GMT
+
+https://collider.com/a-42-year-old-cyberpunk-masterpiece-gets-its-first-official-look-from-apple-tv/
+
+42 years later, Apple TV is finally bringing William Gibson's Neuromancer to life with a first official look at the new sci-fi cyberpunk series.
+---------
+
+# 10 Most Subversive Adventure Movies of All Time
+
+Movie, Adventure, The Wages of Fear, Mad Max: Fury Road, Fitzcarraldo
+
+Sat, 25 Jul 2026 22:05:14 GMT
+
+https://collider.com/most-subversive-adventure-movies-ranked/
+
+From The Secret Life of Walter Mitty to Mad Max: Fury Road, these adventure films completely rewrite the genre's rules.
+---------
+
+# AMC’s 3-Part Vampire Thriller Taking Over Streaming Is the Perfect Binge
+
+TV Features, Interview with the Vampire, The Vampire Lestat, AMC, Rolin Jones
+
+Sat, 25 Jul 2026 21:47:14 GMT
+
+https://collider.com/interview-with-the-vampire-amc-thriller-streaming-perfect-binge/
+
+AMC's Interview with the Vampire, which just wrapped up its third season, makes the perfect binge with its thrilling story and compelling characters.
+---------
+
+# Apple TV's Best Sci-Fi Series Officially Returns in First Season 2 Trailer
+
+TV News, Apple TV, Dark Matter, Joel Edgerton, Sci-Fi
+
+Sat, 25 Jul 2026 21:47:10 GMT
+
+https://collider.com/apple-tv-sci-fi-dark-matter-season-2-trailer/
+
+After a long 2-year wait, Apple TV's Dark Matter has finally returned in a first look at Season 2 of Joel Edgerton's beloved series.
+---------
+
+# The 10 Best PlayStation Games of All Time, Ranked
+
+TV, Video Game, Bloodborne, God of War, The Last of Us
+
+Sat, 25 Jul 2026 21:41:14 GMT
+
+https://collider.com/best-playstation-games-ranked/
+
+Discover the best PlayStation games of all time, ranked by gameplay, legacy, and impact on the gaming industry, from The Last of Us to God of War.
+---------
+
+# John Cena’s Action-Packed Answer to ‘Barbie’ Officially Reveals First Trailer
+
+Movie News, Matchbox the Movie, Sam Hargrave, John Cena, Apple TV
+
+Sat, 25 Jul 2026 21:40:27 GMT
+
+https://collider.com/john-cena-matchbox-movie-trailer-apple-tv/
+
+Apple TV has unveiled the first trailer for Matchbox, starring John Cena and directed by Extraction filmmaker Sam Hargrave. See it here!
+---------
+
+# Marvel Officially Cut Rosario Dawson’s 'Daredevil' Crossover Cameo From 'Spider-Man: Brand New Day'
+
+Movie News, Rosario Dawson, Spider-Man: Brand New Day, Marvel Studios, Daredevil
+
+Sat, 25 Jul 2026 21:29:21 GMT
+
+https://collider.com/spider-man-brand-new-day-daredevil-star-rosario-dawson-return-cut/
+
+Rosario Dawson has confirmed she returned to her fan-favorite Daredevil role in Spider-Man: Brand New Day before her character was cut.
+---------
+
+# Paul Newman's Second Greatest Western Masterpiece Gets Even Better With New 4k Release
+
+Features, Hud, Paul Newman
+
+Sat, 25 Jul 2026 22:00:12 GMT
+
+https://movieweb.com/hud-paul-newman-western-criterion-4k-release/
+
+Paul Newman's Western masterpiece has a clear influence on 'Yellowstone' and 'Dutton Ranch.'
+---------
+
+# John Cena's 'Matchbox' Movie Officially Releases First Trailer
+
+Movie News, Matchbox the Movie, John Cena
+
+Sat, 25 Jul 2026 21:58:11 GMT
+
+https://movieweb.com/matchbox-the-movie-trailer/
+
+John Cena joins another fast-racing franchise in the first trailer for 'Matchbox: The Movie," which was released at San Diego Comic-Con.
+---------
+
 # Nathan Fillion's Green Lantern Is Officially Making History For DC
 
 TV, Lanterns, San Diego Comic-Con
@@ -5177,323 +5496,4 @@ Fri, 24 Jul 2026 15:00:12 GMT
 https://movieweb.com/chris-hemsworth-extraction-series-expanding/
 
 This Chris Hemsworth-led action film series is expanding again. A third movie is currently filming, with two spin-offs in development.
----------
-
-# Netflix's New 93-Minute Real-Life Crime Thriller Crowned One of Streaming's Biggest Hits
-
-Movie News, Netflix, True Crime, Crime, Thriller
-
-Fri, 24 Jul 2026 15:00:12 GMT
-
-https://movieweb.com/netflix-elize-shadows-woman-streaming-hit-july-2026/
-
-The film is based on one the most notorious crimes in modern history.
----------
-
-# 'The Big Bang Theory' Officially Rewrites Season 12's Moving Character Ending
-
-Features, Stuart Fails to Save the Universe, The Big Bang Theory, Comedy, Kevin Sussman, HBO Max
-
-Fri, 24 Jul 2026 14:30:12 GMT
-
-https://movieweb.com/tbbt-stuart-denise-rewrites-season-12-ending/
-
-'Stuart Fails to Save the Universe' sadly changes this character's 'The Big Bang Theory' Season 12 fate, rewriting their well-deserved happy ending.
----------
-
-# 'Star Wars' Series Shelved for Over a Decade Is Finally Being Released
-
-TV News, Star Wars, Star Wars: Detours
-
-Fri, 24 Jul 2026 14:27:38 GMT
-
-https://movieweb.com/star-wars-detours-series-lucas-museum/
-
-The completed Star Wars: Detours animated comedy series, shelved for over a decade, will be exhibited at the Lucas Museum. Created by George Lucas and the Robot Chicken team, Detours focuses on everyday absurdities in the Star Wars galaxy.
----------
-
-# Taron Egerton's "Unforgettable" R-Rated Action Thriller Sets New Release
-
-Movie News, She Rides Shotgun, Taron Egerton
-
-Fri, 24 Jul 2026 13:52:11 GMT
-
-https://movieweb.com/she-rides-shotgun-4k-blu-ray-release/
-
-Lionsgate Home Entertainment is preparing a 4K Blu-ray release of Taron Egerton's "unforgettable" R-rated action thriller 'She Rides Shotgun.'
----------
-
-# Halo: Campaign Evolved - The Library Skull Guide
-
-Gaming, Halo: Campaign Evolved, Halo: Combat Evolved, Halo, PC
-
-Fri, 24 Jul 2026 13:38:30 GMT
-
-https://screenrant.com/halo-campaign-evolved-library-skull-guide/
-
-Halo: Campaign Evolved's infamous Library mission gets players up close with the Flood and  includes three unique Skulls: Tilt, Pop, and Famine.
----------
-
-# 3 Best Movies To Watch On Hulu This Weekend (July 25-26)
-
-Movies, Hulu, Recommendation
-
-Fri, 24 Jul 2026 13:30:11 GMT
-
-https://screenrant.com/best-hulu-movies-watch-weekend-july-25/
-
-It's the final weekend in July, and we're serving up a trio of movies streaming on Hulu that are guaranteed to please even the pickiest film fan.
----------
-
-# 10 DC Shows To Watch Before HBO’s Lanterns
-
-Classic TV, Lanterns
-
-Fri, 24 Jul 2026 13:30:11 GMT
-
-https://screenrant.com/lanterns-hbo-dc-similar-tv-shows/
-
-HBO Max's Lanterns is set to premiere in August 2026, and in anticipation of the Damon Lindelof series, here are some shows worth checking out.
----------
-
-# Superman Makes DC History With A Major First
-
-DC Comics, Superman
-
-Fri, 24 Jul 2026 13:30:11 GMT
-
-https://screenrant.com/superman-strength-first-time-record/
-
-DC rewrites Superman's early days and origins as the Man of Steel fights a powerful villain much earlier than canon traditionally dictates.
----------
-
-# Unreleased Star Wars Series Is Officially Dropping Episodes For The First Time After 13 Years
-
-TV, San Diego Comic-Con, Star Wars
-
-Fri, 24 Jul 2026 13:27:23 GMT
-
-https://screenrant.com/star-wars-detours-episode-curation-lucas-museum/
-
-13 years after the show was created with George Lucas, an unaired Star Wars series is now preparing to release episodes in a unique format.
----------
-
-# Marvel Confirms It's Officially Replacing The Avengers With The X-Men
-
-Marvel Comics, X-Men, The Avengers, San Diego Comic-Con
-
-Fri, 24 Jul 2026 13:04:27 GMT
-
-https://screenrant.com/maximum-x-men-series-replace-avengers/
-
-This December, the X-Men replace the Avengers as the world's crisis response team after Earth's Mightiest Heroes disband following a major defeat.
----------
-
-# Marvel Announces Iron Man’s New Era Is Coming In 2027
-
-Comics, Iron Man, Marvel
-
-Fri, 24 Jul 2026 13:03:17 GMT
-
-https://screenrant.com/marvel-iron-man-incarcerated-war-machines/
-
-2027 is going to be a hard time for Tony Stark.
----------
-
-# New Zelda 40th Anniversary Release Appears Online
-
-Gaming, The Legend of Zelda, Nintendo Switch 2
-
-Fri, 24 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/legend-of-zelda-new-40th-anniversary-release-leaks/
-
-The Legend of Zelda is having a big year as a franchise in 2026, and more exciting announcements could well be on the way soon.
----------
-
-# Alan Ritchson’s New DCU Casting Theory Might Be The Only One Better Than Batman
-
-Movies, DC Universe, Alan Ritchson
-
-Fri, 24 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/alan-ritchson-dc-universe-orion-casting-theory/
-
-Alan Ritchson may actually be a better prospect for one other DC Universe character than Batman, given the reaction to the concept thus far.
----------
-
-# 3 Best New Shows To Watch On Netflix This Weekend (July 24–26)
-
-Streaming TV, Netflix, What to Watch on Netflix
-
-Fri, 24 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/best-new-netflix-shows-watch-weekend-july-24/
-
-The three best new shows to watch on Netflix this weekend, July 24–26, 2026, include an epic K-drama, a Western romance, and the #1 series worldwide.
----------
-
-# Clayface Star Confirms Whether His Batman Character Is a Hero or Villain in New DCU Movie
-
-Movies, Batman, DCU, San Diego Comic-Con, Clayface
-
-Fri, 24 Jul 2026 13:30:14 GMT
-
-https://www.cbr.com/tom-rhys-harries-clayface-hero-villain/
-
-The Batman character takes center stage, but will he be an ally or enemy?
----------
-
-# 5 Ways Haki Is Diminishing Devil Fruit Powers In One Piece's Final Saga
-
-Anime, One Piece
-
-Fri, 24 Jul 2026 13:16:14 GMT
-
-https://www.cbr.com/one-piece-haki-stronger-than-devil-fruits-final-saga/
-
-One Piece initially introduced Haki as an alternative form of power, but it's slowly replacing the importance of Devil Fruits in the Final Saga.
----------
-
-# Star Trek: Strange New Worlds’ Wild Season 4 Premiere Revives a Forgotten Scientific Theory
-
-TV, Star Trek, Star Trek: Strange New Worlds, Sci-Fi
-
-Fri, 24 Jul 2026 13:00:15 GMT
-
-https://www.cbr.com/star-trek-strange-new-worlds-season-4-recap/
-
-The Season 4 premiere of Star Trek: Strange New Worlds may seem like pure fantasy, but it's rooted in some real, forgotten scientific ideas.
----------
-
-# 5 Greatest Psychological Thrillers Of The 2020s, Ranked
-
-Movies, Thriller, The Invisible Man, Eddington
-
-Fri, 24 Jul 2026 13:00:15 GMT
-
-https://www.cbr.com/best-psychological-thrillers-2020s-ranked-list/
-
-The 2020s have given psychological thriller fans some of the best gems of the 21st century, and five stand out from the rest as near-perfect.
----------
-
-# Beloved Marvel Artist Breaks Silence on The X-Men Movie Franchise's Biggest Failure
-
-Movies, San Diego Comic-Con, X-Men, The New Mutants
-
-Fri, 24 Jul 2026 12:00:15 GMT
-
-https://www.cbr.com/bill-sienkiewicz-new-mutants-xmen-biggest-failure/
-
-Exclusive: Marvel artist Bill Sienkiewicz opens up on the X-Men movie franchise ending on a sour note.
----------
-
-# Jeph Loeb Teases The Second Half Of Hush 2 Having ‘A Major, Major Implication on Batman’
-
-Comics, San Diego Comic-Con, batman: hush, Batman
-
-Fri, 24 Jul 2026 12:00:15 GMT
-
-https://www.cbr.com/batman-hush-2-sdcc-jeph-loeb-tease/
-
-What is Batman's fate in Hush 2?
----------
-
-# Scott Snyder Reveals How New 52's Greatest Weakness Impacted The Absolute Universe
-
-Comics, DC Comics, The New 52, scott snyder
-
-Fri, 24 Jul 2026 12:00:15 GMT
-
-https://www.cbr.com/scott-snyder-reveals-dc-absolute-universe-strength-new-52-weakness/
-
-The most important distinction between DC's Absolute Universe and The New 52.
----------
-
-# 3 Fantastic Netflix Shows to Binge This Weekend (July 25-26)
-
-TV, Ransom Canyon, Netflix, The Decameron, The Sinner
-
-Fri, 24 Jul 2026 12:41:14 GMT
-
-https://collider.com/best-netflix-shows-binge-july-25/
-
-The Decameron, Ransom Canyon, and The Sinner make up our list of the best Netflix shows to binge the weekend of July 25th, 2026.
----------
-
-# 10 Most Ambitious TV Shows of All Time
-
-TV, The Sopranos, Lost, Game Of Thrones, The Wire
-
-Fri, 24 Jul 2026 12:23:14 GMT
-
-https://collider.com/most-ambitious-tv-shows-all-time-ranked/
-
-The most ambitious and groundbreaking TV shows of all time include masterpieces like Twin Peaks, The Sopranos, and Buffy the Vampire Slayer.
----------
-
-# A New Post-Apocalyptic Gundam Anime Series Blasts Into SDCC
-
-TV News, Mobile Suit Gundam, Anime, San Diego Comic-Con, SDCC
-
-Fri, 24 Jul 2026 12:15:14 GMT
-
-https://collider.com/mobile-suit-gundam-rg-xarx-zero-series/
-
-Mobile Suit Gundam RG XARX-ZERO is the newest Gundam series, and is helmed by an acclaimed anime director. Read on for more.
----------
-
-# The Sci-Fi Spectacle That Sank a Franchise Is a Sudden Hit on HBO Max
-
-Movie News, Pacific Rim: Uprising, Sci-Fi, Pacific Rim, HBO Max
-
-Fri, 24 Jul 2026 12:00:15 GMT
-
-https://collider.com/pacific-rim-uprising-sci-fi-franchise-killer-hbo-max-streaming-success/
-
-The ill-fated sci-fi movie Pacific Rim: Uprising is one of the most-watched titles on HBO Max right now. Find out more.
----------
-
-# Jason Statham's 116-Minute "John Wick Meets Taken" Action Thriller Continues to Dominate Streaming
-
-Movie News, Jason Statham, A Working Man, Hot on Streaming, Action, Thriller, Prime Video
-
-Fri, 24 Jul 2026 13:30:12 GMT
-
-https://movieweb.com/jason-statham-working-man-streaming-hit-july-2026/
-
-The 2025 revenge thriller has now appeared on the charts on yet another platform, and Statham remains the king of streaming.
----------
-
-# New 'Avatar: The Last Airbender' Sequel Series Drops First Trailer & Confirms Streaming Release
-
-TV News, Avatar: Seven Havens
-
-Fri, 24 Jul 2026 13:22:21 GMT
-
-https://movieweb.com/avatar-seven-havens-first-trailer-streaming-date/
-
-'Avatar: The Last Airbender' is getting a brand new sequel series and the first trailer just dropped.
----------
-
-# Netflix's New 6-Part Action Thriller Is Already One of the Biggest Shows on Streaming
-
-TV News, Netflix, Hot on Streaming, Action
-
-Fri, 24 Jul 2026 13:00:12 GMT
-
-https://movieweb.com/elite-force-action-stream-netflix-july-2026/
-
-There's a new action-packed series taking Netflix by storm.
----------
-
-# When 'The Walking Dead: Dead City' Releases & Full Season 3 Schedule
-
-Features, The Walking Dead, The Walking Dead: Dead City
-
-Fri, 24 Jul 2026 13:00:12 GMT
-
-https://movieweb.com/the-walking-dead-dead-city-season-3-release-schedule/
-
-Season 3 of 'TWD: Dead City' debuts in July — will it be the show's farewell season?
 ---------
