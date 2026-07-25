@@ -1,3 +1,179 @@
+# Netflix's 8-Part Supernatural Fantasy With Rare 100% RT Score Is The Ultimate Weekend Binge
+
+Streaming TV, Masked Recs
+
+Sat, 25 Jul 2026 12:00:12 GMT
+
+https://screenrant.com/lockwood-co-netflix-weekend-binge/
+
+Netflix's eight-part supernatural detective show is the perfect weekend binge. It's one of the streamer's best book adaptations and a blast to watch.
+---------
+
+# Mayday Interview with John Fracis Daley & Jonathan Goldstein at SDCC 2026
+
+Exclusive, Mayday, San Diego Comic-Con
+
+Sat, 25 Jul 2026 12:00:12 GMT
+
+https://screenrant.com/video/mayday-john-fracis-daley-jonathan-goldstein-sdcc-2026-interview/
+
+Mayday filmmakers John Francis Daley and Jonathan Goldstein explain why they cast Ryan Reynolds and Kenneth Branagh, and how their new Apple TV comedy resembles Misery.
+---------
+
+# Marvel Unveils New Spider-Team Ahead Of Peter Parker's Next Appearance
+
+Marvel Comics, Spider-Man
+
+Sat, 25 Jul 2026 12:00:12 GMT
+
+https://screenrant.com/new-spider-man-team-venom-black-cat/
+
+Marvel introduces a brand-new Spider-Man team led by Peter Parker himself, set to appear in the hero's next universe-wide crossover event.
+---------
+
+# The Batman DCU Batsuit We’ve All Wanted Is Set Up By Gotham’s Film Debut
+
+Movies, DC Universe, Clayface, Batman
+
+Sat, 25 Jul 2026 12:00:12 GMT
+
+https://screenrant.com/batman-dc-universe-batsuit-clayface-gotham-setup/
+
+The DC Universe's movie debut of Gotham is already setting up Batman's story in a way that means one type of batsuit looks to be best for the hero.
+---------
+
+# The Batman 2 Might Finally Fix This Underwhelming Arkham Villain
+
+Gaming, Batman: Arkham, The Batman Part II, Triple-A Games
+
+Sat, 25 Jul 2026 12:00:12 GMT
+
+https://screenrant.com/the-batman-2-zsasz-arkham-city/
+
+The Batman Part II has a rare chance to make up for an oversight on the Batman: Arkham franchise's part, assuming its casting rumors are right.
+---------
+
+# Pokémon Legends: Z-A Sequel Has The Perfect Setting And Era
+
+Gaming, Pokemon Legends Z-A, Pokemon
+
+Sat, 25 Jul 2026 11:45:11 GMT
+
+https://screenrant.com/pokemon-legends-za-sequel-setting-era/
+
+CentroLeaks reveals potential details about Pokémon Legends 3, set in the Galar region 1000 years ago.
+---------
+
+# Avengers/Punisher Crossover Confirmed by Marvel
+
+Comic-Con, The Avengers, San Diego Comic-Con, The Punisher
+
+Sat, 25 Jul 2026 11:40:11 GMT
+
+https://screenrant.com/avengerspunisher-crossover-confirmed-by-marvel/
+
+What goes hand-in-hand with vengeance? Punishment.
+---------
+
+# It's Confirmed: Bloodborne Will Finally Return Next Month
+
+Gaming, Bloodborne
+
+Sat, 25 Jul 2026 11:30:11 GMT
+
+https://screenrant.com/bloodborne-ring-of-madmans-knowledge-august-release-date/
+
+FromSoftware fans can now show their love for Bloodborne by adorning themselves with a stunning silver ring.
+---------
+
+# Inglorious X-Force Unleashes Rivalry Between X-Men Hellverine And Archangle
+
+Comics, X-Men
+
+Sat, 25 Jul 2026 12:00:15 GMT
+
+https://www.cbr.com/x-men-inglorious-x-force-7-archangel-hellverine-rivalry/
+
+Mutant vs. mutant action between these two is imminent.
+---------
+
+# Why Disney's Star Wars Galactic Starcruiser Hotel Failed in Canon
+
+Movies, Star Wars, Disney, Disney Parks
+
+Sat, 25 Jul 2026 12:00:15 GMT
+
+https://www.cbr.com/disney-star-wars-galactic-starcruiser-failure-canon-explained/
+
+Disney's biggest Star Wars failure has finally been officially explained.
+---------
+
+# HBO’s Lanterns Could Take the Superhero TV Crown From The Boys
+
+TV, Lanterns, The Boys, hbo
+
+Sat, 25 Jul 2026 11:30:15 GMT
+
+https://www.cbr.com/hbo-lanterns-take-superhero-tv-crown-from-the-boys/
+
+HBO is set to become the new king of superhero TV with their upcoming DC series.
+---------
+
+# 'Smallville's Best Villain Was Never Lex Luthor
+
+TV Features, Smallville, DC Comics, The CW, Michael Rosenbaum
+
+Sat, 25 Jul 2026 12:03:14 GMT
+
+https://collider.com/smallville-best-villain-zod/
+
+Smallville focused on Tom Welling’s Superman and Michael Rosenbaum’s Lex Luthor, but a different DC villain was the best.
+---------
+
+# 10 Dark Fantasy Video Games That Are Perfect From Start to Finish
+
+Video Games, Fantasy, Video Game, Gaming, The Legend of Zelda
+
+Sat, 25 Jul 2026 12:02:14 GMT
+
+https://collider.com/dark-fantasy-video-games-perfect-start-to-finish/
+
+Shadow of the Collosus, Bloodborne, and The Legend of Zelda: Majora's Mask are all among the best dark fantasy video games ever made.
+---------
+
+# Colin Farrell’s Chilling 5-Part Miniseries Is the Perfect Weekend Binge for Fans of ‘The Terror’
+
+TV Features, The North Water, Colin Farrell, Jack O'Connell, Stephen Graham
+
+Sat, 25 Jul 2026 11:47:14 GMT
+
+https://collider.com/the-north-water-colin-farrell-miniseries-perfect-binge/
+
+Colin Farrell and Jack O'Connell lead a chilling voyage into the heart of darkness in the overlooked miniseries The North Water.
+---------
+
+# One of DC’s Greatest Villains Was Perfected on This Binge-Worthy 8-Part TV Series
+
+TV Features, Arrow, DC Comics, Deathstroke, The CW
+
+Sat, 25 Jul 2026 11:23:14 GMT
+
+https://collider.com/greatest-dc-tv-villain-on-tv-deathstroke-arrow-series/
+
+Ruthless, brilliant and deeply personal, this legendary assassin remains the greatest villain DC television has ever produced.
+---------
+
+# Jason Statham's 95-Minute Non-Stop Action Thriller Shoots Onto New Streaming Home
+
+Movie News, Jason Statham, Safe, Coming/Leaving Streaming, Action
+
+Sat, 25 Jul 2026 11:30:12 GMT
+
+https://movieweb.com/jason-statham-safe-action-thriller-streaming-free-plex-august-2026/
+
+Ahead of the release of 'Mutiny' next month, one of Jason Statham's most underrated action thrillers has found a home outside of Prime Video.
+---------
+
 # One Piece Officially Returns This Month As A New Chapter Begins
 
 Gaming, One Piece
@@ -5320,180 +5496,4 @@ Thu, 23 Jul 2026 20:44:21 GMT
 https://www.cbr.com/hulu-the-cable-guy-reboot-casting-natasha-rothwell/
 
 Cast members have been revealed for the reimagined version of the polarizing Jim Carrey movie.
----------
-
-# 4 Fantasy Book Magic Systems That Are Nearly Perfect
-
-Movies, Fantasy
-
-Thu, 23 Jul 2026 20:30:16 GMT
-
-https://www.cbr.com/perfect-magic-systems-in-fantasy-books-list/
-
-Fantasy books are one of the most popular fiction genres and a select few of these books have near-perfect magic systems.
----------
-
-# The 59-Year-Old Star Trek Episode William Shatner & Leonard Nimoy Both Hailed as Their Favorite
-
-TV, Star Trek, Star Trek: The Original Series, Sci-Fi
-
-Thu, 23 Jul 2026 20:30:16 GMT
-
-https://www.cbr.com/star-trek-tos-the-devil-in-the-dark-cast-favorite-episode/
-
-Star Trek: The Original Series produced many classic episodes, but the show's stars, William Shatner and Leonard Nimoy, have a mutual favorite.
----------
-
-# 7 Must-Watch Movies To Enjoy If You Love 'The Invite'
-
-Movie, The Invite, The Drama, Booksmart, Who's Afraid of Virginia Woolf?
-
-Thu, 23 Jul 2026 21:20:14 GMT
-
-https://collider.com/movies-like-the-invite/
-
-The Drama, Who's Afraid of Virginia Woolf?, and Booksmart are perfect films to watch if you love Olivia Wilde's new A24 comedy movie, The Invite.
----------
-
-# 6 Best Family Movies Released Since 2000
-
-Movie, Family, Spirited Away, How to Train Your Dragon, Paddington 2
-
-Thu, 23 Jul 2026 21:09:17 GMT
-
-https://collider.com/best-family-movies-since-2000-ranked/
-
-Paddington 2, How to Train Your Dragon, and Toy Story 3 are all among the very best movies for kids and families released since 2000.
----------
-
-# All 7 MCU Movies Starring Chris Evans, Ranked
-
-Movie, Avengers: Infinity War, Captain America: The Winter Soldier, Avengers: Endgame, Avengers: Doomsday
-
-Thu, 23 Jul 2026 20:57:16 GMT
-
-https://collider.com/chris-evans-mcu-movies-ranked/
-
-There are seven MCU movies where Chris Evans had a starring role, including The Avengers and Captain America: Civil War... but which one's the best?
----------
-
-# A New Era for 'Avatar: The Last Airbender' Begins in First Trailer for Sequel Series
-
-TV News, Avatar: Seven Havens, Paramount, Avatar: The Last Airbender, Legend of Korra (TV Series)
-
-Thu, 23 Jul 2026 20:51:16 GMT
-
-https://collider.com/avatar-the-last-airbender-spin-off-seven-havens-release-date-october-9-2026/
-
-During a panel at San Diego Comic-Con, Paramount officially revealed the first trailer for Avatar: Seven Havens. See the sequel series' trailer here!
----------
-
-# 'The Lord of the Rings' Will Finally Solve a 72-Year J.R.R. Tolkien Mystery
-
-Features, The Lord of the Rings: The Rings of Power, The Lord of the Rings, J.R.R. Tolkien
-
-Thu, 23 Jul 2026 21:31:03 GMT
-
-https://movieweb.com/lord-of-the-rings-rings-of-power-solve-tolkien-mystery-nazgul/
-
-'The Rings of Power' Season 3 will solve a very old 'Lord of the Rings' mystery, adding new layers to some of its most mysterious villains.
----------
-
-# Taylor Sheridan's Near-Perfect 5-Part Western Is Making a Comeback in 2026
-
-TV News, Yellowstone, Paramount Plus, Hot on Streaming, Taylor Sheridan
-
-Thu, 23 Jul 2026 21:01:13 GMT
-
-https://movieweb.com/yellowstone-taylor-sheridan-streaming-success-paramount-july-2026/
-
-Taylor Sheridan's iconic western series, 'Yellowstone,' returns to the streaming charts on Paramount+ in 2026.
----------
-
-# NBC's Longest-Running Series in History Sets Return With New Look at Upcoming Season
-
-TV News, Law & Order: Special Victims Unit
-
-Thu, 23 Jul 2026 21:00:19 GMT
-
-https://movieweb.com/svu-season-28-first-look/
-
-'Law & Order: SVU' has officially started filming Season 28, and Ice-T's first-day set photo offers a reassuring update for fans.
----------
-
-# 3 Years After 'Fast X,' Alan Ritchson Offers Update on Long-Awaited Action Thriller Sequel
-
-Movie News, Fast and Furious, Fast Forever, Alan Ritchson
-
-Thu, 23 Jul 2026 20:44:29 GMT
-
-https://movieweb.com/alan-ritchson-fast-and-furious-update/
-
-The newcomer to the series admits how many challenges a movie like this faces, but teases it's just a matter of time.
----------
-
-# First Look at Prime Video's Long-Awaited 'Blade Runner' Sequel Series Finally Revealed
-
-TV News, Blade Runner 2099, Blade Runner
-
-Thu, 23 Jul 2026 20:41:03 GMT
-
-https://movieweb.com/blade-runner-2099-first-look-images-prime-video/
-
-The sequel series, five years in the making, is nearly here.
----------
-
-# Alan Ritchson Officially Confirms Talks to Star as a Major Character in James Gunn's DCU
-
-Movie News, Alan Ritchson
-
-Thu, 23 Jul 2026 20:11:08 GMT
-
-https://movieweb.com/alan-ritchson-james-gunn-dcu-batman/
-
-The 'Reacher' actor provided an update on the chances of him joining DC Studios.
----------
-
-# David Tennant Officially Starring In New Adaptation Based On Scandalous 54-Year-Old Bestselling Novel
-
-Movies, David Tennant
-
-Thu, 23 Jul 2026 20:02:27 GMT
-
-https://screenrant.com/joy-of-sex-movie-adaptation-colin-firth-david-tennant-casting/
-
-David Tennant is officially starring in a new movie adaptation based on a scandalous, 54-year-old bestselling novel, as new details are revealed.
----------
-
-# 15 Years Later, Olivia Benson's Best SVU Line Is Still The Greatest Quote In Law & Order History
-
-TV, Law & Order: Special Victims Unit
-
-Thu, 23 Jul 2026 20:00:12 GMT
-
-https://screenrant.com/olivia-benson-best-svu-quote-law-order/
-
-If there's one thing that sets Law & Order: Special Victims Unit apart, it's Olivia Benson's tireless emotional commitment to the victims of crime.
----------
-
-# 27 Years Later, Naruto Just Proved Why One Piece Is Still King
-
-Anime, Naruto, One Piece
-
-Thu, 23 Jul 2026 20:00:12 GMT
-
-https://screenrant.com/naruto-proves-one-piece-shonen-king-worldbuilding/
-
-Even though Naruto is a personal favorite, it's undeniable that One Piece has done some things better that have helped it last almost three decades.
----------
-
-# Halo: Campaign Evolved - Truth And Reconciliation Skull Guide
-
-Gaming, Halo: Campaign Evolved, PC, Halo, Halo: Combat Evolved
-
-Thu, 23 Jul 2026 19:35:02 GMT
-
-https://screenrant.com/halo-campaign-evolved-truth-reconciliation-skull-guide/
-
-Halo: Campaign Evolved's third main mission is Truth and Reconciliation, where players will be able to track down three hidden Skulls.
 ---------
