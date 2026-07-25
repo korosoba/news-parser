@@ -1,3 +1,443 @@
+# The Rings Of Power's Jamie Campbell Bower Reveals Why Joining The Series Was So Meaningful
+
+TV, The Lord of the Rings
+
+Sat, 25 Jul 2026 20:05:30 GMT
+
+https://screenrant.com/lord-of-the-rings-rings-of-power-season-3-jamie-campbell-bower-casting/
+
+Jamie Campbell Bower reveals the full-circle personal connection to Tolkien’s world that followed him into The Rings of Power season 3.
+---------
+
+# The Rings Of Power's Love Triangle Officially Becomes A Square In Season 3
+
+Streaming TV, The Lord of the Rings: The Rings of Power
+
+Sat, 25 Jul 2026 20:00:11 GMT
+
+https://screenrant.com/the-rings-of-power-galadriel-love-triangle-celeborn-season-3/
+
+The Rings of Power has steadily built a love triangle around Galadriel over the past two seasons, but season 3 will turn it into a square.
+---------
+
+# Pokémon Officially Returns November 2026 With A Game Fans Have Begged For
+
+Gaming, Pokemon
+
+Sat, 25 Jul 2026 20:00:11 GMT
+
+https://screenrant.com/pokemon-team-rocket-card-game-november-2026/
+
+Pokémon's new game is one of the most enigmatic that fans have received in a while, and it's anyone's guess what style of gameplay it'll entail.
+---------
+
+# Taylor Sheridan Has Found His Raylan Givens
+
+TV, Masked Recs
+
+Sat, 25 Jul 2026 19:45:11 GMT
+
+https://screenrant.com/taylor-sheridan-mayor-of-kingstown-david-morse-lawman/
+
+Taylor Sheridan's TV shows have brought almost every classic Western trope into the modern day, apart from the archetypal lawman. Until now, that is.
+---------
+
+# 25 Years Later, Star Trek Is Launching The Perfect Series For Voyager Fans, And It's Coming Tomorrow
+
+Comics, Star Trek, Star Trek: The Next Generation, Star Trek: Voyager, San Diego Comic-Con
+
+Sat, 25 Jul 2026 19:35:25 GMT
+
+https://screenrant.com/paramount-star-trek-voyager-tng-recollection-sdcc/
+
+Another thrilling announcement out of San Diego Comic-Con, the latest new Star Trek series comes from an acclaimed author and longtime Voyager fan.
+---------
+
+# 42 Years Later, Frasier’s Introduction In Cheers Has Aged Like Milk
+
+Classic TV, Cheers
+
+Sat, 25 Jul 2026 19:30:11 GMT
+
+https://screenrant.com/frasier-introduction-cheers-aged-poorly/
+
+Explore the controversial introduction of Frasier Crane on Cheers and how he evolved into one of television's most beloved sitcom characters.
+---------
+
+# Netflix's New R-Rated Fantasy Series With Rare Rotten Tomatoes Score Is Already One Of Its Best
+
+TV, Masked Recs
+
+Sat, 25 Jul 2026 19:03:17 GMT
+
+https://screenrant.com/netflix-the-east-palace-fantasy-series-best/
+
+Netflix's new R-rated fantasy series is trending worldwide, and for good reason, as the masterpiece genre show is already one of the streamer's best.
+---------
+
+# 10 Fantasy Books With The Best Lore (That You Have Never Heard Of)
+
+Books, Fantasy
+
+Sat, 25 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/obscure-fantasy-books-with-best-lore/
+
+Conversations about great fantasy book settings may dominated by the same few series, but there are some hidden worldbuilding gems in their shadow.
+---------
+
+# Is Christopher Nolan The Greatest Of All Time?
+
+Movies, Originals, Christopher Nolan
+
+Sat, 25 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/video/is-christopher-nolan-the-greatest-of-all-time/
+
+The Odyssey Is The Final Proof Christopher Nolan Is The GOAT. Christopher Nolan has now directed ten feature films without a Rotten score, and The Odyssey is already being hailed as one of the greatest achievements of his career. But this isn't just about one movie.
+---------
+
+# One Of The Godfather's Most Quotable Lines Was In The Trilogy's Worst Movie
+
+Movies, Masked Recs
+
+Sat, 25 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/the-godfather-michael-corleone-quotable-line-part-3/
+
+The Godfather is one of the best film masterpieces of all time, and remains quotable today. However one of the best lines is not in the original movie
+---------
+
+# HBO's The Big Bang Theory Sci-Fi Spinoff Becomes an Instant Streaming Hit
+
+TV, Stuart Fails to Save the Universe, The Big Bang Theory, Sci-Fi
+
+Sat, 25 Jul 2026 20:00:14 GMT
+
+https://www.cbr.com/stuart-fails-to-save-the-universe-sci-fi-comedy-hbo-success-july-2026/
+
+HBO's sci-fi spinoff series of the beloved sitcom The Big Bang Theory, Stuart Fails to Save the Universe, becomes an instant streaming hit.
+---------
+
+# Batman’s Best Ally Finally Gets the Upgrade Fans Have Been Waiting For
+
+Comics, Dark Knights of Steel, Batman, Batgirl
+
+Sat, 25 Jul 2026 20:00:14 GMT
+
+https://www.cbr.com/dark-knights-of-steel-ii-barbara-gordon/
+
+One of Batman's most beloved allies has just taken their code name to a whole new level in DC's hotly-anticipated high fantasy sequel series.
+---------
+
+# 4 Classic Sci-Fi Books That Are 10/10 Masterpieces
+
+Movies, Dune
+
+Sat, 25 Jul 2026 20:00:14 GMT
+
+https://www.cbr.com/best-classic-sci-fi-books-list/
+
+The greatest works of science fiction have reached the pinnacles of literature
+---------
+
+# The Walking Dead: Dead City Boss Confirms If Glenn Returns in Season 3 Alternate Universe Episode
+
+CBR Exclusives, The Walking Dead: Dead City, San Diego Comic-Con
+
+Sat, 25 Jul 2026 19:50:02 GMT
+
+https://www.cbr.com/the-walking-dead-dead-city-glenn-return-status-alternate-universe-episode/
+
+The character was killed off in the Season 7 finale, and hasn't returned since.
+---------
+
+# Rick and Morty Spinoff's Fate Already Sealed Ahead of Adult Swim Premiere
+
+TV, President Curtis, Rick and Morty, San Diego Comic-Con
+
+Sat, 25 Jul 2026 19:42:00 GMT
+
+https://www.cbr.com/president-curtis-renewed-season-2-adult-swim/
+
+The future of the animated series is confirmed just ahead of its official debut on Adult Swim.
+---------
+
+# Star Trek Finally Returns With First Look at New 40-Episode Series
+
+Anime, Star Trek, webtoon, San Diego Comic-Con
+
+Sat, 25 Jul 2026 19:39:34 GMT
+
+https://www.cbr.com/star-trek-recollection-webtoon-first-look-release-date/
+
+WEBTOON is giving Star Trek fans another brand-new Star Trek story unlike anything the franchise has seen before, and it looks incredible.
+---------
+
+# Jamie Foxx's Spawn Reboot Finally Gets Positive Update After 9-Year Wait
+
+Movies, Spawn, Spawn (Reboot)
+
+Sat, 25 Jul 2026 19:09:29 GMT
+
+https://www.cbr.com/king-spawn-movie-update-obsession-backrooms/
+
+King Spawn may finally be making his way out of development hell.
+---------
+
+# In Just 1 Day, Netflix's Easy-to-Binge Yellowstone Replacement Is the Most-Watched Show in the U.S.
+
+TV, Ransom Canyon, Netflix, Western
+
+Sat, 25 Jul 2026 19:00:15 GMT
+
+https://www.cbr.com/ransom-canyon-neo-western-romance-netflix-success-july-2026/
+
+Netflix's latest neo-Western based on a popular book series, Ransom Canyon, is the most-watched show in the United States.
+---------
+
+# It's Officially the End of an Era for Marvel's Blade Movie
+
+Movies, Blade, Marvel Cinematic Universe
+
+Sat, 25 Jul 2026 19:00:15 GMT
+
+https://www.cbr.com/end-for-marvel-mcu-blade-movie-confirmed/
+
+It now seems we might never see Mahershala Ali's Blade on-screen in the MCU, seven years after he was first announced.
+---------
+
+# Every New Character Confirmed for The Rings of Power Season 3
+
+TV, The Lord of the Rings, The Lord of the Rings: The Rings of Power, San Diego Comic-Con
+
+Sat, 25 Jul 2026 18:36:22 GMT
+
+https://www.cbr.com/lord-of-the-rings-the-rings-of-power-new-characters-list/
+
+The upcoming season of The Lord of the Rings: The Rings of Power will feature some fan-favorites from the novel as well as a few original characters.
+---------
+
+# 10 Most Haunting Thrillers of All Time
+
+Movie, Thriller, Don't Look Now, Rebecca, Eyes Without a Face
+
+Sat, 25 Jul 2026 20:04:14 GMT
+
+https://collider.com/most-haunting-thrillers-all-time-ranked/
+
+Cinema's most haunting thrillers creep under your skin and never leave, from the gothic uncertainty of Rebecca to the oppressive bleakness of Se7en.
+---------
+
+# 10 Most Influential Horror Books of All Time
+
+Books and Comics, Books, Horror, Stephen King, The Exorcist
+
+Sat, 25 Jul 2026 19:49:14 GMT
+
+https://collider.com/most-influential-horror-books-all-time-ranked/
+
+Dracula, Tales of Mystery and Imagination, and The Exorcist are all among the most influential and impactful horror books ever written.
+---------
+
+# All 7 Mainline GTA Games, Ranked
+
+Gaming, Grand Theft Auto V, Rockstar Games, Video Game
+
+Sat, 25 Jul 2026 19:36:14 GMT
+
+https://collider.com/gta-games-ranked/
+
+From Vice City to San Andreas, we've ranked every mainline Grand Theft Auto game according to impact, innovation, chaos, and lasting gaming legacy.
+---------
+
+# Ridley Scott's Terrifying Sci-Fi Sequel Is Being Wiped From Streaming
+
+Movie, Alien: Covenant, Ridley Scott, Alien, Sci-Fi
+
+Sat, 25 Jul 2026 18:53:14 GMT
+
+https://collider.com/alien-covenant-ridley-scott-alien-sci-fi-sequel-wiped-from-streaming-hbo/
+
+Alien: Covenant is one of the scarier entries to the Alien series, but it's going to become a little harder to watch once it's taken off HBO Max.
+---------
+
+# 'Futurama' Season 14 Blasts Off With a New Trailer and a Massive Expansion
+
+TV News, Futurama, Hulu, San Diego Comic-Con, SDCC
+
+Sat, 25 Jul 2026 18:45:14 GMT
+
+https://collider.com/futurama-season-14-trailer-xxxl-specials-announcement-hulu-2027/
+
+Hulu unveiled a zany, high-stakes trailer for Futurama Season 14 at SDCC and confirmed that the series is expanding with three new specials.
+---------
+
+# Stephen King's 'Dark Tower' TV Series Could Be the Next Great Franchise
+
+TV Features, The Dark Tower, Stephen King, Mike Flanagan, Prime Video
+
+Sat, 25 Jul 2026 18:38:14 GMT
+
+https://collider.com/the-dark-tower-tv-adaptation-mike-flanagan-stephen-king/
+
+Television is the one medium that The Dark Tower is perfectly fit for, and Mike Flanagan is the best one for the job.
+---------
+
+# 10 Best Thriller Movies in Film History
+
+Movie, The Silence of the Lambs, Thriller, Memento, Alfred Hitchcock
+
+Sat, 25 Jul 2026 18:28:14 GMT
+
+https://collider.com/best-thriller-movies-film-history/
+
+Suspenseful masterpieces like The Silence of the Lambs, Memento, and Alfred Hitchcock's Psycho are all among the best thriller movies of all time.
+---------
+
+# Forget 'Fourth Wing,' This Flawless Fantasy Masterpiece Deserves a Streaming TV Adaptation
+
+TV Features, Fantasy, Fourth Wing, Books, Television
+
+Sat, 25 Jul 2026 18:27:14 GMT
+
+https://collider.com/folk-of-the-air-holly-black-fantasy-series-deserves-streaming-tv-adaptation/
+
+Holly Black's The Folk of the Air series is a masterful fantasy that deserves a streaming TV adaptation just like Fourth Wing.
+---------
+
+# The Westies: Bridget Is Trapped Between Two Lives | Set Stories
+
+TV
+
+Sat, 25 Jul 2026 18:15:14 GMT
+
+https://collider.com/video/the-westies-bridget-is-trapped-between-two-lives-set-stories/
+
+What does it take to bring Bridget Walsh to life in The Westies? Sarah Bolger reveals the thoughtful character work behind one of the series' most compelling performances.
+---------
+
+# 'The Rookie' Officially Gives Us a New Chenford Scene Before Season 9
+
+TV Features, The Rookie, ABC, Nathan Fillion, Alexi Hawley
+
+Sat, 25 Jul 2026 18:10:14 GMT
+
+https://collider.com/the-rookie-season-8-chenford-extended-episode-10/
+
+The Rookie reveals a new Season 8 Chenford scene and extra insight into Lucy and Tim's relationship before Season 9.
+---------
+
+# John Wick Legend's  91-Minute Non-Stop Action Thriller Explodes Onto Free Streaming
+
+Movie News, Diablo, Tubi, Coming/Leaving Streaming, John Wick, Action
+
+Sat, 25 Jul 2026 20:00:12 GMT
+
+https://movieweb.com/diablo-action-stream-free-tubi-august-2026/
+
+John Wick star's "action film of the year, 'Diablo,' will stream for free on Tubi in August 2026.
+---------
+
+# Netflix's Criminally Underrated New Thriller Is a Perfect One-Night Binge
+
+Features, Netflix
+
+Sat, 25 Jul 2026 20:00:12 GMT
+
+https://movieweb.com/i-am-afraid-netflix-thriller-binge/
+
+Netflix has released several popular thriller TV series in 2026, including this one which is a great one-night binge-watch.
+---------
+
+# 18 Unpredictable Horror Movies to Watch If You Loved 'The Cabin in the Woods'
+
+Movie Lists, Horror
+
+Sat, 25 Jul 2026 20:00:12 GMT
+
+https://movieweb.com/movies-like-the-cabin-in-the-woods/
+
+For those thrilled by seriously unpredictable plot twists in horror, like those in 'The Cabin in the Woods,' these movies are sure to shock.
+---------
+
+# There's a 'Dungeons & Dragons' Sequel Ready to Go, But We May Never See It
+
+Movie News, Dungeons & Dragons: Honor Among Thieves
+
+Sat, 25 Jul 2026 19:45:17 GMT
+
+https://movieweb.com/dungeons-dragons-sequel-screenplay/
+
+The Dungeons & Dragons movie sequel has a finished script, but financial challenges and high production costs may prevent the film from being made.
+---------
+
+# 8 Netflix Thrillers With No Bad Episodes
+
+TV Lists, Netflix
+
+Sat, 25 Jul 2026 19:00:12 GMT
+
+https://movieweb.com/netflix-thrillers-no-bad-episodes/
+
+Netflix has produced many thriller TV series over the past few decades, including these standout shows that don't have any bad episodes.
+---------
+
+# 'Star Trek: Strange New Worlds' Solves 29-Year-Old 'Voyager' Mystery
+
+Features, star trek: strange new worlds, Star Trek, Star Trek: Voyager
+
+Sat, 25 Jul 2026 18:45:12 GMT
+
+https://movieweb.com/strange-new-worlds-voyager-voth-mystery/
+
+The Star Trek franchise posed a very interesting question in a 'Voyager' episode almost three decades ago. There's now an answer. Read on for more.
+---------
+
+# 'Reacher' Spin-Off Confirmed to Make Big Change to Action Thriller Format
+
+TV News, Reacher, Neagley
+
+Sat, 25 Jul 2026 18:37:09 GMT
+
+https://movieweb.com/reacher-neagley-change-location-explained/
+
+The upcoming 'Reacher' spin-off will do things a little differently than its predecessor in one specific department.
+---------
+
+# The 2020s' Best True Crime Thriller Miniseries Has Already Aged Like Wine
+
+Features, The Dropout, Thriller, Hulu
+
+Sat, 25 Jul 2026 18:30:12 GMT
+
+https://movieweb.com/the-dropout-hulu-aged-well/
+
+It's rare that a TV series captures the cultural zeitgeist as well as this one, and it holds up perfectly after four years.
+---------
+
+# Netflix's New 2-Part 'Yellowstone' Replacement Is One of the Biggest Shows on Streaming
+
+TV News, Ransom Canyon, Netflix, Hot on Streaming, Yellowstone
+
+Sat, 25 Jul 2026 18:00:12 GMT
+
+https://movieweb.com/ransom-canyon-western-yellowstone-stream-netflix-july-2026/
+
+Forget Taylor Sheridan; Netflix has its own 'Yellowstone' series, and it's a global hit.
+---------
+
+# 'The Walking Dead' Can Officially Rewrite Jeffrey Dean Morgan's Favorite Episode
+
+Features, The Walking Dead: Dead City
+
+Sat, 25 Jul 2026 18:00:12 GMT
+
+https://movieweb.com/the-walking-dead-jeffrey-dean-morgan-rewrite-heres-negan/
+
+Jeffrey Dean Morgan has confirmed his favorite episode, and 'The Walking Dead' franchise is finally going deeper into the story.
+---------
+
 # Lord Of The Rings: Rings Of Power Season 3 Full Episode Schedule Revealed By Prime Video
 
 TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Rings of Power - Season 3, The Lord of the Rings
@@ -5056,444 +5496,4 @@ Fri, 24 Jul 2026 10:00:15 GMT
 https://www.cbr.com/tom-cruise-edge-of-tomorrow-better-than-back-to-the-future/
 
 Tom Cruise embarked on his own time travel adventure in this epic sci-fi action movie in 2014, better than even Back to the Future.
----------
-
-# 10 Perfect Anime Series You Should Watch in 2026
-
-TV, Anime, Serial Experiments Lain, Dr. Stone, Witch Hat Atelier
-
-Fri, 24 Jul 2026 10:09:14 GMT
-
-https://collider.com/perfect-anime-shows-to-watch-2026/
-
-Discover the best anime series to watch in 2026, featuring critically acclaimed titles like Death Note, Frieren, and Serial Experiments Lain.
----------
-
-# Andy Serkis’ 2026 War Epic Conquers the Box Office With Impressive New Milestone
-
-Movie News, Young Washington, Chris Pratt, Box Office, Andy Serkis
-
-Fri, 24 Jul 2026 09:30:14 GMT
-
-https://collider.com/andy-serkis-young-washington-war-epic-box-office-41-million/
-
-The historical biopic Young Washington has emerged as a minor blockbuster at the box office, even passing Prime Video's hit 2026 crime thriller.
----------
-
-# 3 Movie Masterpieces Streaming on Netflix This Weekend (July 25-26)
-
-Movie, Scream, Wicked: For Good, The Wedding Planner, Netflix
-
-Fri, 24 Jul 2026 09:22:14 GMT
-
-https://collider.com/best-netflix-movies-watch-weekend-july-25/
-
-Scream, Wicked: For Good, and The Wedding Planner make up our list of movie masterpieces you should watch on Netflix the weekend of July 25, 2026.
----------
-
-# 25 Years Ago, Quentin Tarantino Ruined the American Release of This Cult Classic
-
-Movie Features, Quentin Tarantino, Donnie Yen, Crouching Tiger, Hidden Dragon, Iron Monkey
-
-Fri, 24 Jul 2026 09:12:14 GMT
-
-https://collider.com/quentin-tarantino-iron-monkey-martial-arts-movie/
-
-Quentin Tarantino brought Hong Kong action hit Iron Monkey to U.S. viewers in 2001, but he made unnecessary changes that butchered the film.
----------
-
-# ’The Walking Dead’s Co-Creator Officially Names the Franchise's No.1 Character to Get a Spin-Off [Exclusive]
-
-Gaming News, The Walking Dead, Robert Kirkman, SDCC, The Walking Dead: Daryl Dixon
-
-Fri, 24 Jul 2026 09:00:15 GMT
-
-https://collider.com/the-walking-dead-best-character-co-creator-robert-kirkman-wants-clementine-spin-off/
-
-The Walking Dead author Robert Kirman names Clementine as the character he'd like to see explored more in the franchise's future.
----------
-
-# Alan Ritchson's New Action Thriller Officially Releases "The Scene Everyone Is Talking About"
-
-Movie News, Alan Ritchson, Motor City, Action, Thriller
-
-Fri, 24 Jul 2026 09:58:52 GMT
-
-https://movieweb.com/alan-ritchson-motor-city-elevator-fight-clip/
-
-The 103-minute action thriller 'Motor City' has been hailed as a solid 70s-set throwback.
----------
-
-# 'Extraction 3' Unveils First Look at Chris Hemsworth Action Sequel as Filming Officially Begins
-
-Movie News, Extraction 3, Extraction, Extraction 2, Netflix, Chris Hemsworth
-
-Fri, 24 Jul 2026 09:33:18 GMT
-
-https://movieweb.com/chris-hemsworth-extraction-3-filming-begins-first-look/
-
-'Extraction 3' has officially began filming, as confirmed by a first-look image shared by Chris Hemsworth from the set of the Netflix action sequel.
----------
-
-# Game Of Thrones Is Officially Switching Genres When It Returns In 2027
-
-Gaming, Game of Thrones, Game Of Thrones, Game of Thrones: War for Westeros, Game of Thrones: Kingsroad, PC
-
-Fri, 24 Jul 2026 06:00:11 GMT
-
-https://screenrant.com/game-of-thrones-2027-return-new-genre/
-
-Game of Thrones is completely switching genres in 2027 when it makes its official return, and fans may finally get the ending they deserve.
----------
-
-# Lord Of The Rings: The Hobbit Treasure Trove Officially Announced
-
-Gaming, The Lord of the Rings, The Hobbit, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings: The Return of the King, The Lord of the Rings: The Two Towers, PC, Magic: The Gathering
-
-Fri, 24 Jul 2026 05:00:11 GMT
-
-https://screenrant.com/lord-of-the-rings-magic-treasure-trove-release/
-
-The Lord of the Rings is getting a brand-new release titled The Hobbit Treasure Trove, expected to arrive in August 2026.
----------
-
-# Brandon Sanderson's Mistborn Returns As A New Era Begins
-
-Gaming, Brandon Sanderson, The Stormlight Archive, Mistborn, The Cosmere, PC, RPG
-
-Fri, 24 Jul 2026 04:30:11 GMT
-
-https://screenrant.com/brandon-sanderson-stormlight-mistborn-legacy-rpg/
-
-Brandon Sanderson's Cosmere is officially returning with a 2026 Mistborn release in a completely fresh adventure kicking off a bold new era.
----------
-
-# Star Wars Unveils Luke Skywalker Redesign With A Major Twist
-
-Gaming, Star Wars, PC, Luke Skywalker
-
-Fri, 24 Jul 2026 04:00:14 GMT
-
-https://screenrant.com/star-wars-luke-starkiller-galaxy-of-heroes/
-
-Luke Skywalker has had a huge new redesign in Star Wars, only this time it comes with one specific major twist.
----------
-
-# Reacher's Alan Ritchson Reveals "Good Number" For How Long Hit Prime Video Series Can Last
-
-TV, Reacher
-
-Fri, 24 Jul 2026 03:58:24 GMT
-
-https://screenrant.com/reacher-series-how-long-alan-ritchson/
-
-With season 5 of Reacher already in production, star Alan Ritchson has shared his ambitious goal for the show's longevity on the streaming platform.
----------
-
-# Netflix's Ransom Canyon Season 3 Timeline Teased By Showrunner
-
-TV, Ransom Canyon
-
-Fri, 24 Jul 2026 03:43:01 GMT
-
-https://screenrant.com/netflix-ransom-canyon-season-3-timeline-april-blair/
-
-The showrunner behind Netflix's Western drama series, Ransom Canyon, reveals what a third season could look if the streamer decides to move forward.
----------
-
-# "We're Just Getting Started": TMNT Confirms More Last Ronin Stories Are On The Way
-
-Comics, Teenage Mutant Ninja Turtles
-
-Fri, 24 Jul 2026 03:30:11 GMT
-
-https://screenrant.com/teenage-mutant-ninja-turtles-last-ronin-return/
-
-The Teenage Mutant Ninja Turtles franchise set up a key tease for The Last Ronin in its latest special story.
----------
-
-# 10 Most Important Odyssey Characters, Ranked
-
-Movies, The Odyssey, Christopher Nolan
-
-Fri, 24 Jul 2026 03:30:11 GMT
-
-https://screenrant.com/10-most-important-odyssey-characters-ranked/
-
-Christopher Nolan's The Odyssey features several fascinating characters (with some being more important than they were in Homer's original poem).
----------
-
-# Apple TV’s Neuromancer Show Will Avoid A Fatal Mistake
-
-Streaming TV, Neuromancer
-
-Fri, 24 Jul 2026 03:00:11 GMT
-
-https://screenrant.com/apple-tv-neuromancer-book-adaptation-changes-fatal-mistake/
-
-Apple TV's finally revealing snippets of the upcoming Neuromancer TV show, and the teasers prove that the show has avoided a fatal mistake.
----------
-
-# Final Fantasy's Biggest Romances, Ranked From Most Forgettable To Most Iconic
-
-Gaming, Final Fantasy, Ranking
-
-Fri, 24 Jul 2026 02:00:21 GMT
-
-https://screenrant.com/every-major-final-fantasy-romance/
-
-Not all Final Fantasy games feature romances involving their main characters, and some of those that do are much more exciting than others.
----------
-
-# Demon Slayer Officially Beaten by the Biggest Returning Anime of 2026
-
-Anime, Jujutsu Kaisen, Netflix, Demon Slayer: Kimetsu no Yaiba
-
-Fri, 24 Jul 2026 03:59:15 GMT
-
-https://www.cbr.com/demon-slayer-vs-jujutsu-kaisen-netflix-streaming-2026/
-
-Netflix’s latest official streaming data reveals the Demon Slayer franchise's surprisingly lackluster performance in 2026.
----------
-
-# 5 Classic 2000s Shonen Anime Series Every Fan Needs to Watch At Least Once
-
-Anime, Shonen, Naruto, Bleach, Fullmetal Alchemist
-
-Fri, 24 Jul 2026 03:45:15 GMT
-
-https://www.cbr.com/classic-2000s-shonen-anime-series-every-fan-needs-to-watch/
-
-The 2000s arguably represent the peak of shonen anime, the decade being filled with series that every fan must watch at least once.
----------
-
-# It's Officially the End of an Era for Wolverine After 52 Years
-
-Games, Wolverine, X-Men, Marvel's Wolverine
-
-Fri, 24 Jul 2026 03:23:52 GMT
-
-https://www.cbr.com/marvels-wolverine-end-era-after-52-years/
-
-It's a new era for Marvel's Wolverine.
----------
-
-# 5 Open-World Games That Are 10/10 Masterpieces
-
-Games, The Elder Scrolls V: Skyrim, Red Dead Redemption 2, Spider-Man
-
-Fri, 24 Jul 2026 03:15:01 GMT
-
-https://www.cbr.com/open-world-games-that-are-flawless-masterpieces/
-
-Flawless titles like Skyrim and Marvel's Spider-Man have set an impossibly high bar for the open-world genre of games.
----------
-
-# Transformers Officially Brings Optimus Prime Back to Life With Peter Cullen
-
-Anime, Transformers, merchandise, optimus prime, toys, hasbro
-
-Fri, 24 Jul 2026 03:05:15 GMT
-
-https://www.cbr.com/transformers-stern-pinball-update-peter-cullen/
-
-Stern adds more Generation 1 excitement with new accessories for its Transformers pinball machines, including the visage and voice of Optimus Prime.
----------
-
-# The 4 Greatest Fantasy Movies of 2026 (So Far)
-
-Movies, Fantasy
-
-Fri, 24 Jul 2026 02:45:15 GMT
-
-https://www.cbr.com/best-fantasy-movies-so-far-2026-list/
-
-Fantasy movies are having another huge year, with the first half of 2026 already delivering adventures that showcase the genre at its very best
----------
-
-# 10 Masterpiece Action Anime With The Best Fight Scenes
-
-Anime, Demon Slayer: Kimetsu no Yaiba, Jujutsu Kaisen, Cowboy Bebop
-
-Fri, 24 Jul 2026 02:45:15 GMT
-
-https://www.cbr.com/masterpiece-action-anime-with-best-fight-scenes/
-
-Action anime can offer compelling writing, but it's the explosive fight scenes that set the best of the best apart.
----------
-
-# Star Trek's First Theatrical Movie in Over 10 Years Confirms Character and Timeline Details
-
-TV, Star Trek 4, Star Trek
-
-Fri, 24 Jul 2026 02:43:12 GMT
-
-https://www.cbr.com/star-trek-4-update-new-characters-timeline/
-
-Star Trek is finally beaming back up to the big screen with a surprising update revealed for the franchise's next feature film.
----------
-
-# Zelda Series Creator Teases Next Switch 2 Game After Ocarina of Time
-
-Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
-
-Fri, 24 Jul 2026 02:15:15 GMT
-
-https://www.cbr.com/zelda-next-game-ocarina-of-time-inspiration-miyamoto-interview/
-
-In a new interview, Zelda creator Shigeru Miyamoto drops interesting hints at Zelda's future and how it'll be effected by the Ocarina of Time remake.
----------
-
-# 5 Adventure Movies Better Than The Mummy
-
-Movies, The Mummy
-
-Fri, 24 Jul 2026 02:00:25 GMT
-
-https://www.cbr.com/best-adventure-movies-better-than-the-mummy-list/
-
-The Mummy is always a blast to rewatch, but several other classic adventure movies capture that identical feeling of a high-stakes treasure hunt.
----------
-
-# Say Goodbye to These 6 Movie Franchises That Are Officially Ending
-
-Movie, Dune: Part Three, The Strangers - Chapter 3, The Hunger Games: Sunrise on the Reaping, Jackass: Best and Last
-
-Fri, 24 Jul 2026 04:51:14 GMT
-
-https://collider.com/best-movie-franchises-officially-ending/
-
-From Dune to The Hunger Games, Fast & Furious to Jumanji, these beloved movie franchises are saying goodbye soon.
----------
-
-# 7 Books You Need To Read Before Their TV Adaptations Premiere
-
-TV, Books, Harry Potter, Pride and Prejudice, Carrie
-
-Fri, 24 Jul 2026 04:07:14 GMT
-
-https://collider.com/books-to-read-before-tv-adaptations/
-
-From Jane Austen's Pride and Prejudice to the beloved fantasy world of Harry Potter, these are the books you must read before their TV adaptations.
----------
-
-# 6 Best Crime Movies Released Since 2000
-
-Movie, Johnny Depp, Blow, Crime, Denzel Washington
-
-Fri, 24 Jul 2026 04:05:14 GMT
-
-https://collider.com/best-crime-movies-since-2000-ranked/
-
-Prisoners, No Country for Old Men, and The Wolf of Wall Street are all among the best crime movies released since the year 2000.
----------
-
-# Netflix's '3 Body Problem' Is Facing Its Biggest Obstacle Before Season 2 Even Begins
-
-TV Features, 3 Body Problem, David Benioff, D.B. Weiss, Netflix
-
-Fri, 24 Jul 2026 03:04:14 GMT
-
-https://collider.com/netflix-3-body-problem-biggest-problem-long-gap-before-season-2/
-
-3 Body Problem faces challenges retaining audience attention with complex storytelling and long gaps between seasons.
----------
-
-# 'The Sopranos' Meets Wes Anderson in This Twisted Dark Academia Book
-
-Books and Comics, Books, Crime, Mystery, Comedy
-
-Fri, 24 Jul 2026 03:03:14 GMT
-
-https://collider.com/the-mortons-book-mystery-thriller-black-comedy/
-
-The Mortons is a twisted book thriller set in the world of dark academia that filters the criminal underworld through a quirky and humorous lens.
----------
-
-# 20 Years Later, This ‘Doctor Who’ Two-Part Story Has Never Been Topped
-
-TV Features, Doctor Who, David Tennant, BBC, Science Fiction, Billie Piper
-
-Fri, 24 Jul 2026 02:10:15 GMT
-
-https://collider.com/doctor-who-best-episode-army-of-ghosts-doomsday-rose-ten/
-
-Doctor Who may be on hiatus, but the Tenth Doctor's two-part 'Army of Ghosts' and 'Doomsday' finale remains the greatest in the show's history.
----------
-
-# Top 10 Streaming TV Shows of the 2025-2026 Season To Watch This Weekend
-
-TV Lists, Taylor Sheridan, Dutton Ranch
-
-Fri, 24 Jul 2026 02:00:22 GMT
-
-https://movieweb.com/streaming-tv-shows-2025-2026-most-watched/
-
-The 2025-2026 streaming TV season has been great, and these TV shows, from spin-offs to sci-fi to dramas, are some of the most watched.
----------
-
-# Netflix Just Found Its Next Stranger Things In Unexpected New Dark Fantasy Series
-
-TV, Netflix, Stranger Things, Masked Recs
-
-Fri, 24 Jul 2026 01:30:11 GMT
-
-https://screenrant.com/netflix-the-east-palace-dark-fantasy-next-stranger-things/
-
-One may not expect a period dark fantasy series to hit similar notes as Netflix's Stranger Things, but this new show makes a strong case for itself.
----------
-
-# Star Trek’s Next Movie Reveals New Timeline: What This Means
-
-Comic-Con, Star Trek, Op-Ed
-
-Fri, 24 Jul 2026 01:30:11 GMT
-
-https://screenrant.com/star-trek-new-movie-timeline-when-questions/
-
-Jonathan Goldstein and John Francis Daley, the writers of the next Star Trek movie, drop a hint about its timeline that raises new questions.
----------
-
-# First Ebenezer Trailer Reveals Johnny Depp's Haunting, Yet Comedic Take On Scrooge
-
-Movies, Ebenezer, Johnny Depp
-
-Fri, 24 Jul 2026 01:25:39 GMT
-
-https://screenrant.com/ebenezer-trailer-johnny-depp-paramount-pictures/
-
-The first trailer for Paramount Pictures' adaptation of A Christmas Carol Ebenezer spotlights Johnny Depp's unique portrayal of Scrooge.
----------
-
-# Chris Hemsworth's Extraction 3 Officially Begins Filming With First Look Revealed
-
-Movies, Extraction 3
-
-Fri, 24 Jul 2026 01:04:53 GMT
-
-https://screenrant.com/cextraction-3-filming-begins-set-photo-chris-hemsworth/
-
-Chris Hemsworth confirms that his upcoming film, Extraction 3, has officially started filming after he posted a first look photo on social media.
----------
-
-# The Horror Intensity In James Gunn's New R-Rated DC Movie With Batman Villain Revealed By Director
-
-Movies, Clayface, San Diego Comic-Con
-
-Fri, 24 Jul 2026 01:00:16 GMT
-
-https://screenrant.com/james-gunn-clayface-movie-horror-intensity-james-watkins-sdcc-2026/
-
-Exclusive: Clayface director James Watkins clarified just how intense the horror elements in the upcoming R-rated DC Universe movie will be.
----------
-
-# 22 Years Later, Scrubs' Best Episode Is Still Peak TV
-
-Classic TV, Scrubs
-
-Fri, 24 Jul 2026 01:00:11 GMT
-
-https://screenrant.com/scrubs-best-episode-peak-sitcom/
-
-It's hard to pick just one Scrubs episode, but we can't deny that this specific installment completely changed the standards for sitcoms.
 ---------
