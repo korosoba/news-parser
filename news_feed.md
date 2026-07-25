@@ -1,3 +1,102 @@
+# 12 Harsh Realities of Replaying Animal Crossing: New Horizons
+
+Gaming, Animal Crossing New Horizons, Animal Crossing
+
+Sat, 25 Jul 2026 09:00:11 GMT
+
+https://screenrant.com/replaying-animal-crossing-new-horizons-harsh-realities/
+
+While starting a replay of Animal Crossing: New Horizons can reignite their love for the game, starting over has some definite drawbacks.
+---------
+
+# July 31 Is A Massive Day For MCU Fans In More Ways Than One
+
+Gaming, Marvel Rivals, Marvel Cinematic Universe
+
+Sat, 25 Jul 2026 08:00:11 GMT
+
+https://screenrant.com/mcu-marvel-rivals-path-to-doom-event-july-31/
+
+Marvel and MCU fans have a lot to celebrate at the end of July, with Spider-Man: Brand New Day's release bearing many fun goodies for the occasion.
+---------
+
+# Final Fantasy 14’s First New Evercold Job Has Been Revealed
+
+Games, Final Fantasy, final fantasy xiv, Square Enix
+
+Sat, 25 Jul 2026 08:47:39 GMT
+
+https://www.cbr.com/final-fantasy-14-first-new-evercold-job-revealed/
+
+Square Enix has revealed the first new job for Final Fantasy 14's Evercold expansion: the Bastion, a powerful new Tank that fights with two shields.
+---------
+
+# Paramount's Cancelled 'Dexter' Spin-Off Is Officially Making a Comeback
+
+TV News, Dexter: Original Sin, Patrick Gibson, Paramount Plus, 007 First Light
+
+Sat, 25 Jul 2026 09:21:14 GMT
+
+https://collider.com/paramount-cancelled-dexter-original-sin-streaming-success-july-2026/
+
+Paramount's canceled Dexter show starring Patrick Gibson is staging a comeback on global streaming charts.
+---------
+
+# 10 Great Five-Season TV Shows Without a Single Flaw
+
+TV, Breaking Bad, Boardwalk Empire, Prison Break, The Last Kingdom
+
+Sat, 25 Jul 2026 09:18:14 GMT
+
+https://collider.com/best-shows-five-seasons-perfect/
+
+Dive into exceptional TV shows that masterfully complete their narratives in just five seasons, from Breaking Bad to Six Feet Under.
+---------
+
+# Ryan Murphy Officially Returns With New Crime Series in 11 Days
+
+TV News, The Shards, Ryan Murphy, FX, Horror
+
+Sat, 25 Jul 2026 09:00:15 GMT
+
+https://collider.com/the-shards-ryan-murphy-crime-series-release-date-august-5-2026/
+
+Ryan Murphy's latest dark series about serial killers arrives next week. Here is everything you need to know.
+---------
+
+# 22 Years Later, the Greek Epic Christopher Nolan Almost Directed Is Finally Coming to Streaming
+
+Movie News, Troy, Christopher Nolan, Peacock, Brad Pitt
+
+Sat, 25 Jul 2026 08:40:14 GMT
+
+https://collider.com/troy-greek-epic-streaming-peacock-august-2026/
+
+Christopher Nolan nearly directed the 2004 epic Troy before The Odyssey. You can watch the movie on Peacock soon. Find out when.
+---------
+
+# 5 Months Later, the Best Sci-Fi Movie You've Never Watched Is Taking Over Hulu
+
+Movie News, Sci-Fi, Hulu, Good Luck, Have Fun, Don't Die, Streaming
+
+Sat, 25 Jul 2026 08:20:14 GMT
+
+https://collider.com/sam-rockwell-sci-fi-good-luck-have-fun-dont-die-streaming-success-hulu-july-2026/
+
+The most underrated sci-fi movie of the year, starring Sam Rockwell and Zazie Beetz, is a streaming hit. Here's everything you should know.
+---------
+
+# Taylor Sheridan's Western Masterpiece on Paramount+ Ahead of New Season
+
+TV News, Landman, Taylor Sheridan, Billy Bob Thornton, Paramount Plus
+
+Sat, 25 Jul 2026 08:00:14 GMT
+
+https://collider.com/taylor-sheridan-western-landman-streaming-success-paramount-plus-july-2026/
+
+Landman, the fiery neo-Western written by Taylor Sheridan, is surging on Paramount Plus right now before the Season 3 premiere.
+---------
+
 # GTA 6 Official Gameplay Look Leaves Gamers Concerned Over Player Customization
 
 Gaming, Grand Theft Auto 6, Triple-A Games
@@ -5397,103 +5496,4 @@ Thu, 23 Jul 2026 20:07:16 GMT
 https://collider.com/better-call-saul-outperformed-rotten-tomatoes-breaking-bad/
 
 Better Call Saul quietly earned a higher Rotten Tomatoes score than Breaking Bad. Here’s why many critics consider the prequel even better.
----------
-
-# 6 Greatest Horror Book Series of All Time, Ranked
-
-TV, Horror, Books, Thomas Harris, The Strain
-
-Thu, 23 Jul 2026 19:52:16 GMT
-
-https://collider.com/best-horror-book-series-all-time-ranked/
-
-From The Dark Tower to Fear Street, The Strain to Blackwater, these horror series prove the scariest nightmares often live between the pages.
----------
-
-# Ridley Scott's Sci-Fi Saga Officially Returns in First Look at Prime Video Sequel
-
-TV News, Blade Runner 2099, Ridley Scott, Prime Video, Blade Runner 2049
-
-Thu, 23 Jul 2026 19:43:27 GMT
-
-https://collider.com/ridley-scott-sci-fi-blade-runner-2099-first-images-michelle-yeoh-hunter-schafer/
-
-At long last, Blade Runner is back in the first look at Prime Video's sci-fi sequel series. See Michelle Yeoh and Hunter Schafer's new characters here
----------
-
-# Every Jon Bernthal "Let Me Tell You Something," Ranked
-
-Movie, Jon Bernthal, The Punisher, The Walking Dead, The Odyssey
-
-Thu, 23 Jul 2026 19:33:14 GMT
-
-https://collider.com/jon-bernthal-let-me-tell-you-something-ranked/
-
-From The Walking Dead to The Punisher and, most recently, The Odyssey, Jon Bernthal's signature catchphrase has followed him throughout his career.
----------
-
-# 'Scott Pilgrim' Fans Just Got the News They've Waited 16 Years For
-
-Books and Comics News, Scott Pilgrim, Comics, Scott Pilgrim vs. the World, Scott Pilgrim Takes Off
-
-Thu, 23 Jul 2026 19:25:25 GMT
-
-https://collider.com/scott-pilgrim-ex-dawn-of-metal-scott-comic-announcement/
-
-Scott Pilgrim is officially returning with a brand-new release, bringing the cult-favorite character back for an original adventure. Read on for more.
----------
-
-# Alan Ritchson’s R-Rated ‘War Machine’ Follow-Up Officially Premieres in 1 Day
-
-Movie News, Alan Ritchson, Thriller, Reacher, Motor City
-
-Thu, 23 Jul 2026 19:21:25 GMT
-
-https://collider.com/alan-ritchson-action-thriller-motor-city-release-date-july-24-2026/
-
-Alan Ritchson’s brutal new revenge thriller arrives tomorrow, but its almost dialogue-free approach is the real surprise. Read on for more.
----------
-
-# ‘Reacher’ Star Alan Ritchson Confirms Batman Talks
-
-Movie News, The Batman, James Gunn, Reacher, DCU
-
-Thu, 23 Jul 2026 19:12:09 GMT
-
-https://collider.com/alan-ritchson-batman-dcu-conditions-james-gunn/
-
-Alan Ritchson reveals his strict conditions for joining James Gunn’s DCU and explains why he missed out on playing Thor.
----------
-
-# Marvel Officially Confirms Return of Wolverine’s Best Villains
-
-Gaming News, The Wolverine, Liam McIntyre, Mystique, SDCC
-
-Thu, 23 Jul 2026 19:03:43 GMT
-
-https://collider.com/marvels-wolverine-villains-mystique-sabertooth-lady-deathstrike-plot-details/
-
-Marvel's Wolverine game has shined a spotlight on the villains Logan will face in the R-rated adventure, including Mystique, Sabertooth, and more.
----------
-
-# Daniel Hart Drops His Liner Notes for 'The Vampire Lestat'
-
-Collider Signature, The Vampire Lestat, Interview with the Vampire, AMC, Music
-
-Thu, 23 Jul 2026 19:00:14 GMT
-
-https://collider.com/the-vampire-lestat-tv-show-music-composer-daniel-hart-breakdown/
-
-Daniel Hart reveals his process behind crafting the music of The Vampire Lestat, from collaborating with Sam Reid to drafting songs on the road.
----------
-
-# Gerard Butler's $523.5M Action Franchise Returns in Official Trailer For 'Apollo Has Fallen'
-
-TV News, Paris Has Fallen, Has Fallen, Gerard Butler, Olympus Has Fallen
-
-Thu, 23 Jul 2026 18:57:20 GMT
-
-https://collider.com/gerard-butler-action-franchise-apollo-has-fallen-trailer/
-
-Gerard Butler’s Has Fallen franchise returns with the first Apollo Has Fallen trailer ahead of its streaming debut.
 ---------
