@@ -1,3 +1,322 @@
+# Nathan Fillion's Green Lantern Is Officially Making History For DC
+
+TV, Lanterns, San Diego Comic-Con
+
+Sat, 25 Jul 2026 21:10:17 GMT
+
+https://screenrant.com/lanterns-nathan-fillion-green-lantern-guy-gardner-breaks-dc-record/
+
+EXCLUSIVE: Nathan Fillion, who played Guy Gardner's Green Lantern in 2025's Superman, has officially helped DC break an unexpected record.
+---------
+
+# The Only Band Of Brothers Episode Directed By Tom Hanks Features A Very Random Cameo
+
+Classic TV, Band of Brothers
+
+Sat, 25 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/band-of-brothers-crossroads-episode-tom-hanks-direct-cameo/
+
+Tom Hanks directed one of the best episodes of Band of Brothers, and he didn't just have a cameo in it; he got another celebrity to appear, too.
+---------
+
+# 5 Landmark Series That Changed Anime Forever
+
+Anime
+
+Sat, 25 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/most-important-anime-series-changed-medium/
+
+Explore how these groundbreaking anime series forever changed the landscape of popular anime, from Astro Boy to Dragon Ball Z.
+---------
+
+# Burt Reynolds’ Forgotten 1970s Action Movie Duology Predates Smokey And The Bandit
+
+Movies, Burt Reynolds
+
+Sat, 25 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/burt-reynolds-action-franchise-gator-mcklusky/
+
+Burt Reynolds was one of the biggest stars of the 1970s, and his forgotten action movie series helped define the cinema of the decade.
+---------
+
+# Resident Evil's Leon & Ada Finally Reunite In New Release You Can Play Now
+
+Gaming, Resident Evil, Live Service Games, PC
+
+Sat, 25 Jul 2026 20:55:00 GMT
+
+https://screenrant.com/resident-evil-leon-ada-arena-breakout-update/
+
+If you've been waiting to see Ada Wong finally return to the Resident Evil series, you'll be happy to check out this latest official release.
+---------
+
+# Star Trek: Strange New Worlds Season 4 Comic-Con Teaser Reveals Future Uhura & Captain Kirk
+
+Comic-Con, San Diego Comic-Con, Star Trek, Star Trek: Strange New Worlds
+
+Sat, 25 Jul 2026 20:46:13 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-sdcc-teaser/
+
+Star Trek: Strange New Worlds season 4 just premiered, and a new sizzle reel debuted at San Diego Comic-Con shows more of the Enterprise's voyages.
+---------
+
+# A Centuries Old Horror Story Is Reborn In Yaga Trailer Starring Hudson Williams
+
+TV, Yaga, San Diego Comic-Con
+
+Sat, 25 Jul 2026 20:36:21 GMT
+
+https://screenrant.com/yaga-show-trailer-hudson-williams/
+
+A star-studded supernatural mystery that includes Hudson Williams and Carrie-Anne Moss gets its first trailer and an official release window.
+---------
+
+# Marvel Studios Finally Sets Up Magneto's Perfect Replacement
+
+Streaming TV, Masked Recs
+
+Sat, 25 Jul 2026 20:32:37 GMT
+
+https://screenrant.com/x-men-97-season-2-magneto-replacement-polaris/
+
+Ahead of the MCU's X-Men movie reboot, Marvel Studios has brought in the perfect Magneto replacement, and the mutant is incredibly powerful.
+---------
+
+# Trust Ending Explained: Does Lauren Survive?
+
+Streaming TV, Sophie Turner
+
+Sat, 25 Jul 2026 20:30:11 GMT
+
+https://screenrant.com/trust-2025-ending-explained/
+
+Lauren gets into a life-or-death situation in Trust, leading up to a climactic ending that answers the question of whether Lauren survives.
+---------
+
+# 18 Essential Items For Barbarians In Baldur's Gate 3 (& Where To Find Them)
+
+Gaming, Baldur's Gate 3, Baldur's Gate, PC
+
+Sat, 25 Jul 2026 20:30:11 GMT
+
+https://screenrant.com/baldurs-gate-3-best-items-barbarians-locations/
+
+Whether choosing to play as Karlach or a custom barbarian in Baldur's Gate 3, these items will help bring out the best in any powerful warrior.
+---------
+
+# Rosario Dawson Officially Confirms Spider-Man: Brand New Day Role Was Cut
+
+Movies, San Diego Comic-Con 2022, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man: Brand New Day
+
+Sat, 25 Jul 2026 21:22:04 GMT
+
+https://www.cbr.com/rosario-dawson-confirms-spider-man-brand-new-day-role-was-cut/
+
+The award-winning actress gave disappointing news about Spider-Man: Brand New Day.
+---------
+
+# Star Trek's Canceled Series Unveils First Look at Final Season's New Star
+
+TV, Star Trek: Starfleet Academy
+
+Sat, 25 Jul 2026 21:16:49 GMT
+
+https://www.cbr.com/star-trek-starfleet-academy-season-2-ruaridh-aldington/
+
+A new main character is introduced in the first official look at the ill-fated show's final season.
+---------
+
+# DC Comics' October 2026 Solicitations
+
+Comics, DC Comics, solicitations
+
+Sat, 25 Jul 2026 21:15:14 GMT
+
+https://www.cbr.com/absolute-wonder-woman-25-darkseid-dc-october-2026-solicitations/
+
+Absolute Wonder Woman hits #25, and the next step of the All In Saga hits in DC's October 2026 solicitations
+---------
+
+# 5 One Piece Character Designs That Are 10/10 Perfect
+
+Anime, One Piece, shonen anime
+
+Sat, 25 Jul 2026 21:15:14 GMT
+
+https://www.cbr.com/perfect-one-piece-character-designs/
+
+One Piece features some of the best character designs in anime, offering a variety, but these five are considered perfect.
+---------
+
+# Time Is Running Out to Watch Tom Hanks' Cult Classic Fantasy Comedy With 91%
+
+Movies, Splash, Netflix, Disney+
+
+Sat, 25 Jul 2026 21:00:14 GMT
+
+https://www.cbr.com/tom-hanks-splash-fantasy-comedy-leaving-netflix-august-2026/
+
+The romantic comedy with a fantasy twist is leaving Netflix this month.
+---------
+
+# Futurama Officially Confirms Major Crossover With Netflix Animated Series
+
+TV, Futurama
+
+Sat, 25 Jul 2026 20:52:26 GMT
+
+https://www.cbr.com/futurama-disenchantment-crossover-confirmed/
+
+Futurama fans get exciting news about the animated show's future.
+---------
+
+# Resident Evil: Zach Cregger Explains His Horror Vision | SDCC 2026
+
+Movies, Resident Evil
+
+Sat, 25 Jul 2026 20:50:49 GMT
+
+https://www.cbr.com/video/resident-evil-zach-cregger-explains-his-horror-vision-sdcc-2026/
+
+Resident Evil director Zach Cregger reveals the terrifying practical stunt that nearly went disastrously wrong while Austin Abrahms explains what it was like surviving the film's brutal action sequences.
+---------
+
+# Obi-Wan Kenobi's Single Greatest Star Wars Line Hits Harder Than Any Sci-Fi Quote Since
+
+Movies, Return of the Jedi, Star Wars, Sci-Fi
+
+Sat, 25 Jul 2026 20:30:14 GMT
+
+https://www.cbr.com/obi-wan-kenobi-return-of-the-jedi-greatest-star-wars-line/
+
+Obi-Wan Kenobi is one of Star Wars' most important characters, and his best quote in Return of the Jedi is still impactful today.
+---------
+
+# James Cameron & Jensen Ackles' 10/10 Cyberpunk Show Is a 2-Part Sci-Fi Masterpiece
+
+TV, Dark Angel, Sci-Fi, james cameron
+
+Sat, 25 Jul 2026 20:30:14 GMT
+
+https://www.cbr.com/james-cameron-jensen-ackles-dark-angel-cyberpunk-sci-fi-masterpiece/
+
+James Camerons early 2000s sci-fi series faced extensive studio interference in its second season, but it still remains a worthwhile watch today.
+---------
+
+# 5 Most Useless Dragon Ball Techniques, Ranked
+
+Anime, Dragon Ball, Akira Toriyama, shonen anime, Shonen
+
+Sat, 25 Jul 2026 20:15:15 GMT
+
+https://www.cbr.com/most-useless-dragon-ball-techniques-ranked/
+
+Dragon Ball is known for its intimidating transformations and techniques, but it also features its share of abilities that are weak and pointless.
+---------
+
+# ‘Succession’ Fan-Favorite Officially Joins the Cast of ‘Family Guy’
+
+TV News, San Diego Comic-Con, Family Guy, Kieran Culkin, Succession
+
+Sat, 25 Jul 2026 21:15:14 GMT
+
+https://collider.com/family-guy-halloween-special-cast-kieran-culkin-the-devil-image/
+
+Ahead of his Hunger Games debut, Succession star Kienan Culkin is joining the cast of Family Guy as a major character in the new Halloween special.
+---------
+
+# 6 Best Vampire Movies Released Since 2010
+
+Movie, Sinners, Let Me In, Byzantium, What We Do in the Shadows
+
+Sat, 25 Jul 2026 21:14:14 GMT
+
+https://collider.com/best-vampire-movies-since-2010-ranked/
+
+Horror bangers like Let Me In, A Girl Walks Home Alone at Night, and Sinners are all among the best vampire movies released since the year 2010.
+---------
+
+# New 'Star Trek: Strange New Worlds' Season 4 Trailer Officially Marks the Beginning of the End
+
+TV News, San Diego Comic-Con, Star Trek: Strange New Worlds, Star Trek, Akiva Goldsman
+
+Sat, 25 Jul 2026 20:45:14 GMT
+
+https://collider.com/star-trek-strange-new-worlds-season-4-midseason-trailer/
+
+Star Trek: Strange New Worlds showed off a new Season 4 trailer teasing what's in store for the show's penultimate season. Watch it here!
+---------
+
+# Forgotten Star Trek Series Officially Scores 30 New Episodes This Year
+
+TV News, Star Trek, YouTube, San Diego Comic-Con, Sci-Fi
+
+Sat, 25 Jul 2026 20:20:08 GMT
+
+https://collider.com/star-trek-scouts-season-2-renewed-release-date-september-8-2026/
+
+One of Star Trek's newest series has officially been renewed for Season 2 and will return in just 2 months. Read on for more.
+---------
+
+# ‘Star Trek: Starfleet Academy’ Season 2 Officially Recruits a New Cadet
+
+TV News, Star Trek: Starfleet Academy, Star Trek, San Diego Comic-Con, Paramount Plus
+
+Sat, 25 Jul 2026 20:17:36 GMT
+
+https://collider.com/star-trek-starfleet-academy-season-2-cast-ruaridh-aldington/
+
+Star Trek: Starfleet Academy's newest student was revealed at SDCC this afternoon ahead of the second and final season. Read on for more.
+---------
+
+# 8 Worst Finales to Amazing TV Shows
+
+TV, Game Of Thrones, How I Met Your Mother, Stranger Things, Series Finale
+
+Sat, 25 Jul 2026 20:17:14 GMT
+
+https://collider.com/worst-finales-amazing-tv-shows/
+
+Genuinely great TV shows like Game of Thrones, How I Met Your Mother, and Dexter were spoiled by shockingly poor series finales.
+---------
+
+# 19 Years Later, Ridley Scott and Denzel Washington's Epic Crime Thriller Is Already a Classic
+
+Movie Features, American Gangster, Russell Crowe, Denzel Washington, Ridley Scott
+
+Sat, 25 Jul 2026 20:11:14 GMT
+
+https://collider.com/ridley-scott-denzel-washington-american-gangster-streaming-netflix-july-2026/
+
+Oscar winners Denzel Washington and Russell Crowe teamed up with Ridley Scott to make 2007's crime epic American Gangster.
+---------
+
+# Timothy Olyphant’s Forgotten Netflix Series Is a Perfect Binge-Watch
+
+Features, Santa Clarita Diet, Netflix, Timothy Olyphant
+
+Sat, 25 Jul 2026 21:00:12 GMT
+
+https://movieweb.com/santa-clarita-diet-netflix-binge-watch/
+
+Timothy Olyphant has a fantastic movie and TV acting career, having recently starred in the Apple TV action thriller series 'Lucky.'
+---------
+
+# Robert Downey Jr.'s 'Avengers: Doomsday' Return Secretly Sets Up the Real Villain
+
+Features, Avengers: Doomsday, Avengers: Secret Wars, Marvel Cinematic Universe
+
+Sat, 25 Jul 2026 21:00:12 GMT
+
+https://movieweb.com/robert-downey-jr-avengers-doomsday-beyonder-secret-wars/
+
+'Avengers: Doomsday' may be setting up our heroes and villains for an even greater threat beyond Robert Downey Jr.'s Doom.
+---------
+
 # The Rings Of Power's Jamie Campbell Bower Reveals Why Joining The Series Was So Meaningful
 
 TV, The Lord of the Rings
@@ -5177,323 +5496,4 @@ Fri, 24 Jul 2026 13:00:12 GMT
 https://movieweb.com/the-walking-dead-dead-city-season-3-release-schedule/
 
 Season 3 of 'TWD: Dead City' debuts in July — will it be the show's farewell season?
----------
-
-# Netflix's Psychological Thriller Is So Good, You'll Watch It in One Weekend
-
-Features, The Beast in Me, Netflix, Thriller
-
-Fri, 24 Jul 2026 12:00:12 GMT
-
-https://movieweb.com/the-beast-in-me-netflix-binge/
-
-It's so addictive, it's absolutely beastly.
----------
-
-# Legend Of Zelda's First Original Switch 2 Game Officially Teased
-
-Gaming, The Legend of Zelda, Nintendo Switch 2
-
-Fri, 24 Jul 2026 11:30:11 GMT
-
-https://screenrant.com/legend-of-zelda-switch-2-totk-successor-updates/
-
-The Switch 2 is yet to get a dedicated Legend of Zelda game that tests the hardware, but that will change at some point.
----------
-
-# 24 Years Later, Nathan Fillion Is Playing The Opposite Of His Firefly Role
-
-Streaming TV, Masked Recs
-
-Fri, 24 Jul 2026 11:30:11 GMT
-
-https://screenrant.com/24-years-later-nathan-fillion-is-flipping-his-firefly-role-on-its-head/
-
-Nathan Fillion rose to fame by playing Mal on Firefly, and over two decades later, he's playing an entirely different kind of sci-fi hero in Lanterns.
----------
-
-# Criminal Minds Star Officially Leaving After 4 Seasons
-
-TV, Criminal Minds
-
-Fri, 24 Jul 2026 11:15:11 GMT
-
-https://screenrant.com/criminal-minds-elias-voit-zach-gilford-exit/
-
-After a twist-laden season, an original cast member of Criminal Minds: Evolution is officially leaving the hit Paramount+ thriller series.
----------
-
-# Bloodborne PS5 Remaster And Sequel Get Long-Awaited Update
-
-Gaming, Bloodborne
-
-Fri, 24 Jul 2026 11:00:11 GMT
-
-https://screenrant.com/bloodborne-ps5-remaster-sequel-shuhei-yoshida/
-
-Former Sony President Shuhei Yoshida expresses confusion over the lack of Bloodborne remaster or PC port.
----------
-
-# Star Trek EPs "Stand At The Ready” For Strange New Worlds Captain Kirk Spinoff
-
-Exclusive, Star Trek, Star Trek: Strange New Worlds
-
-Fri, 24 Jul 2026 11:00:11 GMT
-
-https://screenrant.com/star-trek-strange-new-worlds-kirk-spinoff-showrunners-ready/
-
-Exclusive: Star Trek: Strange New Worlds' executive producers say they are ready to start work on the Star Trek: Year One spinoff if Paramount+ calls.
----------
-
-# Who is THAT In Silo Season 3 Episode 4’s Ending?
-
-Streaming TV, Silo, Silo - Season 3
-
-Fri, 24 Jul 2026 10:33:35 GMT
-
-https://screenrant.com/silo-season-3-episode-4-ending-bernard-alive/
-
-Silo season 3’s episode 4 ends with a shocking revelation that reveals the fate of one of the most crucial characters in the Apple TV sci-fi series.
----------
-
-# 15 Funniest Far Side Comics Featuring Chickens, Ranked
-
-Comics, The Far Side
-
-Fri, 24 Jul 2026 11:00:15 GMT
-
-https://www.cbr.com/funniest-far-side-comics-with-chickens-ranked/
-
-Creator Gary Larson has used all kinds of animals to make fans laugh in the usually hilarious one-panel comics, with quite a few starring chickens.
----------
-
-# The Best Rock Music Video of the ‘90s
-
-Music Features, Rock, Music
-
-Fri, 24 Jul 2026 11:58:14 GMT
-
-https://collider.com/the-cranberries-zombie-music-video-90s-rock/
-
-Irish alternative rock band The Cranberries had the best music video of the '90s with protest anthem "Zombie", reaching a billion views
----------
-
-# 6 Most Universally Loved Romance Movies Based on Books, Ranked
-
-Movie, Pride and Prejudice, Crazy Rich Asians, The Princess Bride, Romance
-
-Fri, 24 Jul 2026 11:58:14 GMT
-
-https://collider.com/most-universally-loved-romance-movies-based-on-books-ranked/
-
-The Princess Bride, The Notebook, and Pride & Prejudice are among the most universally loved romantic movies based on books.
----------
-
-# 10 Greatest Psychological Thrillers of the Last 99 Years
-
-Movie, Psychological Thriller, Oldboy, The Silence of the Lambs, Rear Window
-
-Fri, 24 Jul 2026 11:45:14 GMT
-
-https://collider.com/best-psychological-thrillers-last-99-years-ranked/
-
-Oldboy, The Silence of the Lambs, and The Woman in the Dunes are all among the best psychological thriller movies of the last 99 years.
----------
-
-# All 8 David Fincher Thrillers, Ranked
-
-Movie, Thriller, The Girl With the Dragon Tattoo, David Fincher, Se7en
-
-Fri, 24 Jul 2026 11:36:14 GMT
-
-https://collider.com/david-fincher-thriller-movies-ranked/
-
-David Fincher has made many exceptional thrillers throughout his career, including Fight Club, Gone Girl, and Se7en, but which is the absolute best?
----------
-
-# Francis Ford Coppola’s 176-Minute 'The Odyssey' Dominates the Digital Charts
-
-Movie News, The Odyssey, Francis Ford Coppola, Christopher Nolan
-
-Fri, 24 Jul 2026 11:30:15 GMT
-
-https://collider.com/francis-ford-coppola-the-odyssey-1997-streaming-success-itunes-july-2026/
-
-A 1997 adaptation of Homer's The Odyssey, produced by Francis Ford Coppola, is having a resurgence following the release of Christopher Nolan's film.
----------
-
-# 10 Greatest HBO TV Masterpieces of the 21st Century, Ranked
-
-TV, HBO, Game Of Thrones, The Pitt, Succession
-
-Fri, 24 Jul 2026 11:22:14 GMT
-
-https://collider.com/best-hbo-shows-modern-masterpieces-ranked/
-
-Explore the greatest HBO TV masterpieces of the 21st century that have redefined television drama, from Game of Thrones to The Wire.
----------
-
-# 6 Forgotten R-Rated War Movies That Are Amazing From Start to Finish
-
-Movie, War, A Midnight Clear, Cross of Iron, Hamburger Hill
-
-Fri, 24 Jul 2026 11:21:14 GMT
-
-https://collider.com/forgotten-r-rated-war-movies-amazing/
-
-From Cross of Iron to Hamburger Hill, these overlooked war films deliver brutal combat and unforgettable stories.
----------
-
-# 10 Most Subversive Action Movies of All Time
-
-Movie, Action, Terminator 2: Judgment Day, The Dark Knight, Kill Bill: Vol. 1
-
-Fri, 24 Jul 2026 11:07:14 GMT
-
-https://collider.com/most-subversive-action-movies-ranked/
-
-From The Matrix' to The Dark Knight, these action films shattered expectations and rewrote what the genre could achieve.
----------
-
-# Robert Kirkman Reveals Massive Long-Term Future for the Energon Universe [Exclusive]
-
-Books and Comics News, Robert Kirkman, Transformers, G.I. Joe, SDCC
-
-Fri, 24 Jul 2026 11:00:15 GMT
-
-https://collider.com/robert-kirkman-energon-universe-plans/
-
-Robert Kirkman reveals his hopes for the Energon Universe, likening his plans for the Transformers multi-media story to Marvel and DC.
----------
-
-# 7 Forgotten '80s Sitcoms That Have Aged Like Milk
-
-TV, Sitcom, 1980s, Married... With Children, Mama's Family
-
-Fri, 24 Jul 2026 10:47:15 GMT
-
-https://collider.com/forgotten-80s-sitcoms-aged-like-milk/
-
-Time hasn't been so kind to forgotten '80s sitcoms like Married... with Children, with their reputation growing worse with each passing year.
----------
-
-# Anne Hathaway's 112-Minute R-Rated Thriller Smashes Onto Streaming Next Month
-
-Movie News, Anne Hathaway, Mother Mary, Coming/Leaving Streaming, Thriller
-
-Fri, 24 Jul 2026 11:00:12 GMT
-
-https://movieweb.com/mother-mary-anne-hathaway-thriller-streaming-hbo-max-august-2026/
-
-As everyone gears up for the premiere of 'The End of Oak Street,' one of Hathaway's earlier 2026 releases finally has a streaming date.
----------
-
-# Apple TV's Best Hard Sci-Fi Series Delivers the Plot Twist Everyone Wanted
-
-Features, Silo
-
-Fri, 24 Jul 2026 11:00:12 GMT
-
-https://movieweb.com/silo-season-3-plot-twist-bernard/
-
-Apple TV has released some incredible sci-fi series, and the best sci-fi show just delivered a plot twist fans were hoping for.
----------
-
-# 'The Lord of the Rings' Nazgul Retcon Explained by 'Rings of Power' Showrunner
-
-TV News, The Lord of the Rings: The Rings of Power, Prime Video
-
-Fri, 24 Jul 2026 10:56:12 GMT
-
-https://movieweb.com/lord-of-the-rings-rings-of-power-nazgul-retcon-explained/
-
-'The Rings of Power' Season 3 will feature a proto-Nazgul.
----------
-
-# Big Brother 28: Week 3 Head of Household (HOH) Results (SPOILERS)
-
-Reality TV, Big Brother
-
-Fri, 24 Jul 2026 10:00:11 GMT
-
-https://screenrant.com/big-brother-28-week-3-head-of-household-spoilers/
-
-Discover who the new Head of Household in Big Brother 28's third week is as the game dynamic shifts with a fresh power player in charge of the game.
----------
-
-# Cyberpunk 2077 Official New DLC Is Live Now
-
-Gaming, Cyberpunk 2077
-
-Fri, 24 Jul 2026 09:56:53 GMT
-
-https://screenrant.com/cyberpunk-2077-new-apex-legends-dlc-live-now/
-
-CD Projekt RED and Respawn Entertainment collaborate to bring Cyberpunk 2077 characters and a new map to Apex Legends.
----------
-
-# Steam Makes 6 Games Completely Free Until July 27, No Strings Attached
-
-Gaming, Steam
-
-Fri, 24 Jul 2026 09:36:42 GMT
-
-https://screenrant.com/steam-6-free-games-july-27/
-
-Discover 6 incredible games available for free during Steam's Free Weekend, from July 23-27.
----------
-
-# New Nintendo Hardware Design Surfaces Online Ahead Of Major Reveal
-
-Gaming, Nintendo
-
-Fri, 24 Jul 2026 09:25:53 GMT
-
-https://screenrant.com/nintendo-switch-2-new-zelda-hardware-40th-anniversary/
-
-Nintendo may release a special Zelda-themed pro controller alongside The Legend of Zelda: Ocarina of Time remake to celebrate the 40th anniversary.
----------
-
-# New Baldur's Gate 3 Spinoff Officially Announced
-
-Gaming, Baldur's Gate 3, Baldur's Gate
-
-Fri, 24 Jul 2026 09:05:49 GMT
-
-https://screenrant.com/baldurs-gate-3-karlach-series/
-
-Baldur's Gate 3 is one of the best games of the decade so far, so it should come as little surprise that fans aren't done with it yet.
----------
-
-# Steam As We Know It Has Just Changed Forever
-
-Gaming, Steam
-
-Fri, 24 Jul 2026 08:58:28 GMT
-
-https://screenrant.com/steam-update-account-changes/
-
-After a decade of frustration from gamers, Steam just proved why it will never lose its spot as the number one PC gaming platform.
----------
-
-# Peacock’s 8-Episode Summer Drama Is the Perfect Big Little Lies Replacement
-
-TV, The Five-Star Weekend, Drama, Peacock
-
-Fri, 24 Jul 2026 10:00:15 GMT
-
-https://www.cbr.com/peacock-the-five-star-weekend-big-little-lies-replacement/
-
-Big Little Lies will be coming back for a third season, but until then, this new Peacock summer drama is a perfect comparable watch.
----------
-
-# Tom Cruise's Edge of Tomorrow is Better Than Back to the Future
-
-Movies, Back to the Future, Edge of Tomorrow, tom cruise, Sci-Fi
-
-Fri, 24 Jul 2026 10:00:15 GMT
-
-https://www.cbr.com/tom-cruise-edge-of-tomorrow-better-than-back-to-the-future/
-
-Tom Cruise embarked on his own time travel adventure in this epic sci-fi action movie in 2014, better than even Back to the Future.
 ---------
