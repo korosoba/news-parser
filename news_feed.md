@@ -1,3 +1,245 @@
+# 6 Mortal Kombat Characters Most Likely To Be Mortal Kombat 3's Main Villain
+
+Movies, Mortal Kombat, Mortal Kombat II, Mortal Kombat: Annihilation
+
+Sat, 25 Jul 2026 23:15:11 GMT
+
+https://screenrant.com/mortal-kombat-3-villain-characters-most-likely/
+
+Mortal Kombat III is yet to be confirmed, but the 2026 movie hinted at a sequel, and some established characters could take over as a main villain.
+---------
+
+# Say Goodbye To Thanos As Marvel Studios Introduces 2 Villains Stronger Than The Mad Titan
+
+Streaming TV, Masked Recs
+
+Sat, 25 Jul 2026 23:15:11 GMT
+
+https://screenrant.com/doctor-doom-apocalypse-stronger-than-thanos/
+
+Marvel needs to move on from their original big bad, and looking at how 2026 is shaping up for villains, it's well on the way to doing just that.
+---------
+
+# Silo Season 4 Release Window On Apple TV Confirmed By Showrunner
+
+TV, Silo, San Diego Comic-Con
+
+Sat, 25 Jul 2026 23:07:18 GMT
+
+https://screenrant.com/silo-season-4-release-window-graham-yost/
+
+Ahead of the upcoming season 3 finale, Silo season 4's release window on Apple TV has now been officially revealed by showrunner Graham Yost.
+---------
+
+# Alan Ritchson's Reacher Becomes America's Most Wanted & CIA's Public Enemy In Official Season 4 Trailer
+
+TV, Reacher, San Diego Comic-Con
+
+Sat, 25 Jul 2026 23:06:34 GMT
+
+https://screenrant.com/reacher-season-4-trailer/
+
+Prime Video has finally released the first Reacher season 4 trailer, and it teases what to expect from Alan Ritchson's returning action hero.
+---------
+
+# Reacher Spinoff Neagley Gets Guns Blazing, Action-Packed Official Trailer
+
+TV, Neagley, Reacher, San Diego Comic-Con
+
+Sat, 25 Jul 2026 23:05:24 GMT
+
+https://screenrant.com/neagley-trailer-prime-video/
+
+Neagley, the first Reacher spinoff at Prime Video, has received its first trailer, featuring both its title hero and Alan Ritchson's Jack Reacher.
+---------
+
+# Every Hunter x Hunter Kakin Prince & Their Nen Beast Powers, Explained
+
+Anime, Hunter X Hunter
+
+Sat, 25 Jul 2026 23:00:12 GMT
+
+https://screenrant.com/hunter-x-hunter-kakin-princes-nen-beast-powers-explained/
+
+The Nen Beasts are one of the most interesting additions to Hunter x Hunter, and here is each of the 14 Kakin Princes different powers explained.
+---------
+
+# 10 Open-World Games That’ll Take You Forever To 100% Complete
+
+Gaming, open world, Elden Ring
+
+Sat, 25 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/open-world-games-that-take-forever-to-beat/
+
+If gamers want an experience that they'll be able to commit 100s of hours toward in multiple playthroughs, there's no better genre than an open world.
+---------
+
+# DC's Arrowverse Has 6 Shows, But Only One Keeps Getting Better With Time
+
+TV, Masked Recs, Arrowverse, Legends of Tomorrow
+
+Sat, 25 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/arrowverse-legends-of-tomorrow-age-better-dc-show/
+
+DC's Arrowverse, which aired on The CW, spanned for six shows at its peak, but only one spinoff is continuing to age well in the years since ending.
+---------
+
+# American Dad Season 22 Is Officially Reaching A Rare Episode Milestone Ahead Of 2027 Release
+
+TV, American Dad!, San Diego Comic-Con
+
+Sat, 25 Jul 2026 22:55:35 GMT
+
+https://screenrant.com/american-dad-season-22-400th-episode-milestone-release/
+
+American Dad season 22 will reach a rare and major milestone for the long-running animated comedy series ahead of its season 27 premiere.
+---------
+
+# Grimm Continuation Hopes & 10-Year Gap Elaborated By Cast
+
+TV, Grimm, San Diego Comic-Con
+
+Sat, 25 Jul 2026 22:32:58 GMT
+
+https://screenrant.com/grimm-continuation-release-hopes-bree-turner-bitsie-tulloch/
+
+EXCLUSIVE: The cast of Grimm elaborates on hopes of a continuation of the horror fantasy procedural, while also addressing its 10-year time gap.
+---------
+
+# The Reacher Universe Officially Returns With First Look at New Episodes
+
+TV, Reacher, Neagley
+
+Sat, 25 Jul 2026 23:22:44 GMT
+
+https://www.cbr.com/reacher-season-4-neagley-spinoff-trailers/
+
+Prime Video officially reveals the first look at Reacher Season 4 and the show's new spinoff.
+---------
+
+# 5 Modern Shonen Anime With Nearly Perfect Power Systems
+
+Anime, Jujutsu Kaisen, My Hero Academia, Shonen, Black Clover, shonen anime
+
+Sat, 25 Jul 2026 23:15:15 GMT
+
+https://www.cbr.com/modern-shonen-anime-perfect-power-systems/
+
+Modern shonen anime have introduced some of the most creative and well-balanced power systems in the genre's history.
+---------
+
+# Apple TV Officially Seals Silo's Fate Halfway Through Season 3
+
+TV, Silo
+
+Sat, 25 Jul 2026 23:12:24 GMT
+
+https://www.cbr.com/apple-tv-silo-season-4-release-window/
+
+The show is currently releasing new episodes, and Apple TV confirmed what's next.
+---------
+
+# The Mummy Still has the Greatest Quote in Adventure Movie History
+
+Movies, The Mummy
+
+Sat, 25 Jul 2026 23:00:15 GMT
+
+https://www.cbr.com/the-mummy-evelyn-oconnell-greatest-adventure-movie-quote/
+
+The Mummy (1999) is still one of the greatest action-adventure movies ever made, and it also happens to contain one of the genre's best quotes.
+---------
+
+# DreamWorks' $145M Superhero Spinoff Is Heading to Peacock in Just 4 Days
+
+Movies, Dog Man
+
+Sat, 25 Jul 2026 23:00:15 GMT
+
+https://www.cbr.com/dog-man-animated-superhero-peacock-release-date-july-2026/
+
+One of the biggest animated features of the past year is currently just days away from having a new streaming home on a major platform.
+---------
+
+# Apple TV's Cyberpunk Series Based on 'Unfilmable' 42-Year-Old Novel Finally Sets Release Date
+
+TV, Neuromancer, San Diego Comic-Con
+
+Sat, 25 Jul 2026 22:42:20 GMT
+
+https://www.cbr.com/neuromancer-apple-tv-release-date/
+
+Apple TV drops a first-look trailer after setting a premiere date for the new cyberpunk action series that was previously declared "unfilmable."
+---------
+
+# Alan Ritchson Officially Returns in First 'Reacher' Season 4 Trailer
+
+TV News, Reacher, SDCC, Alan Ritchson, Prime Video
+
+Sat, 25 Jul 2026 23:18:30 GMT
+
+https://collider.com/reacher-season-4-trailer-alan-ritchson/
+
+The first trailer for Alan Ritchson's Reacher Season 4 has officially debuted, promising the Prime Video series' biggest season yet. See it here!
+---------
+
+# Apple TV's 'Silo' Season 4 Officially Confirms Release Date
+
+TV News, Silo, Apple TV, Sci-Fi, Rebecca Ferguson
+
+Sat, 25 Jul 2026 23:02:37 GMT
+
+https://collider.com/silo-season-4-release-date/
+
+Apple TV has officially revealed the release date for the final season of Rebecca Ferguson's Silo. Read on for all the details.
+---------
+
+# All 7 Movies Where Matt Damon Tries To Get Home, Ranked
+
+Movie, The Odyssey, Matt Damon, Interstellar, Saving Private Ryan
+
+Sat, 25 Jul 2026 22:51:14 GMT
+
+https://collider.com/matt-damon-going-home-movies-ranked/
+
+Matt Damon trying to get home has become an odd sort of sub-genre, and includes movies like The Odyssey, Saving Private Ryan, and The Martian.
+---------
+
+# Kenneth Branagh Enters His Jason Statham Era in New Footage From Cold War Action Movie
+
+Movie News, Mayday, Ryan Reynolds, Kenneth Branagh, Apple TV
+
+Sat, 25 Jul 2026 22:28:53 GMT
+
+https://collider.com/apple-tv-mayday-footage-description-kenneth-branagh/
+
+Apple TV's Mayday has debuted some brand new footage that puts Kenneth Branagh in his Jason Statham era. Read on for more details.
+---------
+
+# Alan Ritchson's Favorite Action Movie Sets a New Goal For 'Reacher' Season 4
+
+Features, Reacher, Alan Ritchson
+
+Sat, 25 Jul 2026 23:00:12 GMT
+
+https://movieweb.com/alan-ritchson-the-raid-reacher-season-4/
+
+Alan Ritchson recently revealed his favorite action movie, and it provides new framing for what season 4 of 'Reacher' can accomplish for Ritchson.
+---------
+
+# 9 Great TV Series on BritBox Everyone Should Be Binge-Watching
+
+TV Lists
+
+Sat, 25 Jul 2026 22:30:12 GMT
+
+https://movieweb.com/britbox-great-tv-series-binge-watch/
+
+There are amazing TV shows that don't get traction outside the UK, and MovieWeb is here to ensure everyone knows where to look.
+---------
+
 # Big Brother 28: Week 3 Power of Veto Results (SPOILERS)
 
 Reality TV, Big Brother
@@ -5254,246 +5496,4 @@ Fri, 24 Jul 2026 16:00:12 GMT
 https://movieweb.com/lord-of-the-rings-rings-of-power-confirms-celeborn-fate/
 
 'The Lord of the Rings: The Rings of Power' finally revealed if one forgotten movie character is alive, and the answer fits with Tolkien's lore.
----------
-
-# Alan Ritchson Gives Definitive Blue Mountain State Season 4 Update
-
-TV, Blue Mountain State
-
-Fri, 24 Jul 2026 15:20:28 GMT
-
-https://screenrant.com/alan-ritchson-blue-mountain-state-season-4-update/
-
-More than a year after the project was reportedly on the fast track, Alan Ritchson shares a candid and unexpected Blue Mountain State update.
----------
-
-# 3 Best Movies To Watch On HBO Max This Weekend (July 25-26)
-
-Movies, HBO Max, Recommendation
-
-Fri, 24 Jul 2026 15:20:11 GMT
-
-https://screenrant.com/best-hbo-max-movies-watch-weekend-july-25/
-
-There are so many great movies streaming on HBO Max right now, but this trio of excellent flicks can't be missed this weekend.
----------
-
-# Avatar Aang: The Last Airbender Doesn't Have A Post-Credits Scene, But You're Missing Out If You Don't Watch
-
-Movies, Avatar Aang: The Last Airbender, Avatar: The Last Airbender
-
-Fri, 24 Jul 2026 15:16:18 GMT
-
-https://screenrant.com/avatar-aang-last-airbender-movie-post-credits-scene/
-
-Avatar Aang: The Last Airbender might not have a post-credits scene, but there is still an exciting reason for fans to sit through the credits.
----------
-
-# Blade Runner 2049 Is Finally Getting A Follow-Up
-
-Streaming TV, Masked Recs, Blade Runner
-
-Fri, 24 Jul 2026 15:15:11 GMT
-
-https://screenrant.com/blade-runner-2099-sequel-2049-timeline-future/
-
-One of the most influential sci-fi franchises of all time is making the jump from the big screen to the small screen with a new sequel series.
----------
-
-# Solo Leveling's Next Series Will Run Circles Around The Anime In A Major Way
-
-Anime, Solo Leveling
-
-Fri, 24 Jul 2026 15:00:11 GMT
-
-https://screenrant.com/solo-leveling-live-action-jinwoo-emotions-better-than-anime/
-
-Solo Leveling's live-action just started filming, but it's so good that it's already brought its main star to tears.
----------
-
-# Dutton Ranch Is Repeating Yellowstone’s Biggest Mistake
-
-Streaming TV, Dutton Ranch
-
-Fri, 24 Jul 2026 15:00:11 GMT
-
-https://screenrant.com/dutton-ranch-ed-harris-yellowstone-kevin-costner-mistake/
-
-A recent report reveals that a veteran actor in the Dutton Ranch cast is unhappy with his role, which echoes Kevin Costner's Yellowstone fallout.
----------
-
-# Kingdom Come Salvation Appears Online Ahead Of Official Reveal
-
-Gaming, Kingdom Come: Deliverance
-
-Fri, 24 Jul 2026 14:47:49 GMT
-
-https://screenrant.com/kingdom-come-salvation-appears-online/
-
-Details of the next Kingdom Come game may have been leaked online following an EU trademark filing, providing the title and some gameplay info.
----------
-
-# Halo: Campaign Evolved - All Terminal Locations Guide
-
-Gaming, Halo: Campaign Evolved, Halo
-
-Fri, 24 Jul 2026 14:33:04 GMT
-
-https://screenrant.com/halo-campaign-evolved-all-terminal-locations-guide/
-
-Halo: Campaign Evolved is finally here, and we've got the lowdown on the location of every Terminal you can find in the game.
----------
-
-# Ariana Grande & Ben Stiller Were Co-Stars 10 Years Before Focker-in-Law, But Everyone Forgot
-
-Movies, Focker-In-Law, Zoolander 2
-
-Fri, 24 Jul 2026 14:30:11 GMT
-
-https://screenrant.com/ben-stiller-ariana-grande-before-focker-in-law-zoolander-2/
-
-Ben Stiller and Ariana Grande are about to share the screen in Focker-in-Law, but this won't be the first time they've co-starred in a movie.
----------
-
-# Avatar: Seven Havens Teases The Return Of Korra's Most Controversial Villain
-
-TV, Avatar: Seven Havens, The Legend of Korra
-
-Fri, 24 Jul 2026 14:30:11 GMT
-
-https://screenrant.com/avatar-seven-havens-teases-the-return-of-korras-most-controversial-villain/
-
-A major Korra villain might be back.
----------
-
-# KFC Serves Up an Evangelion Unit-01 Purple Burger With Maximum Impact
-
-Anime, Neon Genesis Evangelion, merchandise, kfc, food
-
-Fri, 24 Jul 2026 15:20:15 GMT
-
-https://www.cbr.com/kfc-evangelion-unit-01-purple-burger/
-
-Neon Genesis Evangelion is still celebrating 30 years of success, with its latest collaboration giving KFC Hong Kong a purple zinger of a makeover.
----------
-
-# Pikachu's Classic Design Officially Returns in Pokémon 30th Anniversary Release
-
-Games, Pokemon, Pokémon, Pokemon TCG
-
-Fri, 24 Jul 2026 15:18:15 GMT
-
-https://www.cbr.com/chubby-pikachu-official-return-pokemon-30th-anniversary-release/
-
-Pikachu's original chunkier design from Pokémon Red & Blue has returned, as part of the franchise's ongoing 30th anniversary celebrations.
----------
-
-# 7 Greatest Cartoon Network Anime Series of the 2000s
-
-Anime, Shonen, Dragon Ball Z, Naruto, Cartoon Network, Yu Yu Hakusho
-
-Fri, 24 Jul 2026 15:15:15 GMT
-
-https://www.cbr.com/greatest-2000s-cartoon-network-anime/
-
-Thanks to some of the best anime ever, Cartoon Network helped create a massive fanbase of anime fans during the 2000s.
----------
-
-# Marvel Confirms What Would Have Happened Had Kraven Become a Superior Spider-Man
-
-Comics, Spider-Man, What If...?
-
-Fri, 24 Jul 2026 15:06:35 GMT
-
-https://www.cbr.com/marvel-what-if-kraven-spider-man-preview/
-
-In a CBR preview of next week's What If...? Spider-Man #1, see what would have happened had Kraven remained as Spider-Man after his Last Hunt
----------
-
-# 10 Most Universally Beloved Movie Masterpieces of the Last 6 Years, Ranked
-
-Movies
-
-Fri, 24 Jul 2026 15:00:15 GMT
-
-https://www.cbr.com/beloved-perfect-movies-list/
-
-The 2020s have been one of the most hit or miss decades for mainstream moviegoers, but some movies stand out as undeniable masterpieces.
----------
-
-# In Just 2 Days, Amazon's Reboot of '80s Fantasy Cult Classic Is Officially the No. 1 Movie in the World
-
-Movies, Masters of the Universe
-
-Fri, 24 Jul 2026 15:00:15 GMT
-
-https://www.cbr.com/masters-of-the-universe-reboot-prime-video-success-july-2026/
-
-The fantasy movie bombed in theaters but it's not catching up on streaming after an early release.
----------
-
-# 7 Fantasy Romance Anime Objectively Better Than Yona of the Dawn
-
-Anime, Yona of the Dawn, Romance, Fruits Basket, My Happy Marriage
-
-Fri, 24 Jul 2026 15:00:15 GMT
-
-https://www.cbr.com/fantasy-romance-anime-better-than-yona-of-the-dawn/
-
-Yona of the Dawn's fantasy romance elements unfold at a grueling pace, with the political conflict consistently delaying emotional payoff.
----------
-
-# Star Trek: Strange New Worlds’ Season 4 Premiere Makes Its Ending Impossible to Ignore
-
-TV, Star Trek, Star Trek: Strange New Worlds
-
-Fri, 24 Jul 2026 14:31:15 GMT
-
-https://www.cbr.com/star-trek-strange-new-worlds-season-4-premiere-sets-up-ending/
-
-Star Trek: Strange New Worlds Season 4 is the beginning of the end of the series, and that actually enhances the drama in a unique way.
----------
-
-# Silo's Tim Robbins Breaks Down Bernard's Emotional Journey
-
-TV, Silo
-
-Fri, 24 Jul 2026 14:16:14 GMT
-
-https://www.cbr.com/video/silo-s-tim-robbins-breaks-down-bernard-s-emotional-journey/
-
-SPOILER WARNING: This interview discusses major events from Silo Season 3Silo Season 3 takes Bernard in a direction few fans expected, and Tim Robbins explains how that transformation was built from the very beginning.
----------
-
-# 5 South Korean Anime Everyone Should Watch Right Now
-
-Anime, Solo Leveling, Tower of God
-
-Fri, 24 Jul 2026 14:16:14 GMT
-
-https://www.cbr.com/best-south-korean-anime-must-watch/
-
-These series showcase the incredible range and ambition of contemporary South Korean animation.
----------
-
-# The 9 Best Free Rom-Coms on YouTube
-
-Movie Lists, Romance, YouTube
-
-Fri, 24 Jul 2026 15:00:13 GMT
-
-https://movieweb.com/free-rom-coms-on-youtube/
-
-Need a quick laugh without spending any money? Check out the best free romantic comedies that you can watch on YouTube.
----------
-
-# Chris Hemsworth's Streaming Smash Action Thriller Saga Just Got Even Better
-
-Features, Chris Hemsworth
-
-Fri, 24 Jul 2026 15:00:12 GMT
-
-https://movieweb.com/chris-hemsworth-extraction-series-expanding/
-
-This Chris Hemsworth-led action film series is expanding again. A third movie is currently filming, with two spin-offs in development.
 ---------
