@@ -1,3 +1,256 @@
+# Lord Of The Rings: Rings Of Power Season 3 Full Episode Schedule Revealed By Prime Video
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Rings of Power - Season 3, The Lord of the Rings
+
+Sat, 25 Jul 2026 17:31:22 GMT
+
+https://screenrant.com/rings-of-power-season-3-prime-video-release-schedule/
+
+After a two-year hiatus between seasons, Prime Video has unveiled the release schedule for The Lord of the Rings: The Rings of Power season 3.
+---------
+
+# 7 Years Later, Things Just Got Worse For The Big Bang Theory’s Most Disappointing Character
+
+Streaming TV, Masked Recs, The Big Bang Theory
+
+Sat, 25 Jul 2026 17:30:11 GMT
+
+https://screenrant.com/the-big-bang-theory-raj-stuart-fails-save-universe-death/
+
+Explore the unsatisfying conclusion for this Big Bang Theory character’s surprising cameo in the spinoff series Stuart Fails to Save the Universe.
+---------
+
+# 10 Super Nintendo Games That Remain 10/10 Masterpieces In 2026
+
+Gaming, SNES, Triple-A Games
+
+Sat, 25 Jul 2026 17:30:11 GMT
+
+https://screenrant.com/10-super-nintendo-games-still-masterpieces-2026/
+
+Nostalgia for the 90s is back in vogue, but the masterpieces of the Super Nintendo era never went out of style, and are still incredible decades on.
+---------
+
+# The Firefly RPG Nobody Remembers Is Still Worth Playing
+
+Gaming, Firefly, tabletop games
+
+Sat, 25 Jul 2026 17:30:11 GMT
+
+https://screenrant.com/firefly-rpg-worth-playing-game/
+
+We're still awaiting for Firefly's long-awaited return, but revisiting this painfully overlooked game is the perfect way to pass the time.
+---------
+
+# Netflix's Stranger Things Recast Begins A New Era
+
+Streaming TV, Stranger Things
+
+Sat, 25 Jul 2026 17:15:11 GMT
+
+https://screenrant.com/stranger-things-cast-replacement-new-era/
+
+There are still plenty of stories left to tell in the world of Stranger Things, but when audiences finally return there'll be a key element missing.
+---------
+
+# Halo: Campaign Evolved - How To Unlock LASO Difficulty Guide
+
+Gaming, Halo: Campaign Evolved, Halo, Halo: Combat Evolved, PC
+
+Sat, 25 Jul 2026 17:02:28 GMT
+
+https://screenrant.com/halo-campaign-evolved-laso-difficulty-guide/
+
+To unlock LASO difficulty in Halo: Campaign Evolved, you'll need to track down a ton of different skulls across the game.
+---------
+
+# Surprise Hero Joins The Avengers For First Time Ever This October
+
+Marvel Comics, The Avengers
+
+Sat, 25 Jul 2026 17:00:11 GMT
+
+https://screenrant.com/avengers-new-member-jose-andres/
+
+A world-renowned celebrity joins the Avengers in their new fight against Ultron, using his professional skills to battle alongside Earth's Mightiest.
+---------
+
+# 5 Free Games To Play While You Wait For GTA 6
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6, PC
+
+Sat, 25 Jul 2026 17:00:11 GMT
+
+https://screenrant.com/gta-6-free-games-play-while-you-wait/
+
+These free games will help tide you over as you wait for the upcoming Grand Theft Auto 6 to finally release.
+---------
+
+# The Terminal List Meets Jack Ryan In Gerard Butler's Returning Action Franchise
+
+TV, Masked Recs
+
+Sat, 25 Jul 2026 16:55:11 GMT
+
+https://screenrant.com/apollo-has-fallen-terminal-list-meets-jack-ryan/
+
+Gerard Butler's biggest action franchise is returning soon, and the latest outing is a cross between Tom Clancy's Jack Ryan and The Terminal List.
+---------
+
+# Lanterns: The Cast Teases DC's Biggest Mystery | SDCC 2026
+
+TV, Lanterns
+
+Sat, 25 Jul 2026 17:45:14 GMT
+
+https://www.cbr.com/video/lanterns-the-cast-teases-dc-s-biggest-mystery-sdcc-2026/
+
+Lanterns stars Kyle Chandler and Aaron Pierre reveal what makes Hal Jordan and John Stewart such compelling Green Lanterns in HBO Max's highly anticipated DC series. Chris Mundy, Tom King, Poorna Jagannathan, and Garret Dillahunt also share new insights into the show's mystery, mythology, and unforgettable characters.
+---------
+
+# 10 Shows to Watch If You Like The Rookie
+
+TV, The Rookie, Drama, Tracker, NCIS
+
+Sat, 25 Jul 2026 17:30:15 GMT
+
+https://www.cbr.com/shows-like-rookie-recommendations/
+
+The Rookie is an effortless blend of police procedural and human drama, and shows such as Tracker and NCIS: Origins are perfect for fans.
+---------
+
+# White House Reacts to Reacher Star Alan Ritchson’s Rant Over the Epstein Files
+
+TV, Reacher
+
+Sat, 25 Jul 2026 17:26:19 GMT
+
+https://www.cbr.com/reacher-alan-ritchsons-the-epstein-files-white-house-reacts/
+
+The actor publicly called for the release of the Epstein files, which received a response from the White House.
+---------
+
+# Bill Sienkiewicz Wants Warlock in the MCU | SDCC 2026
+
+Movies, bill sienkiewicz
+
+Sat, 25 Jul 2026 17:25:59 GMT
+
+https://www.cbr.com/video/bill-sienkiewicz-wants-warlock-in-the-mcu-sdcc-2026/
+
+Bill Sienkiewicz talks The New Mutants, Warlock, and That Polish Guy documentary at SDCC 2026. Comic book legend Bill Sienkiewicz reflects on why he initially questioned making a documentary about his life before realizing it celebrates storytelling more than himself.
+---------
+
+# 5 Greatest Transformers Games, Officially Ranked
+
+Games, Transformers, Video Games
+
+Sat, 25 Jul 2026 17:15:15 GMT
+
+https://www.cbr.com/greatest-transformers-games-ranked/
+
+The best Transformers games put fans right into the action that has fueled the Robots In Disguise's popularity for decades.
+---------
+
+# What Tim Robbins Found So ‘Challenging’ About His Return to Silo Season 3
+
+CBR Exclusives, Silo, Apple TV, Sci-Fi
+
+Sat, 25 Jul 2026 16:56:39 GMT
+
+https://www.cbr.com/silo-season-3-tim-robbins-bernard-return-challenge/
+
+Bernard Holland is a different man in Silo Season 3, but that doesn't mean his return was easy for actor Tim Robbins.
+---------
+
+# 'Bob's Burgers' Officially Unveils Early Holiday Surprise With First Look at New Release
+
+TV News, Bob's Burgers, San Diego Comic-Con, Fox, SDCC
+
+Sat, 25 Jul 2026 17:45:14 GMT
+
+https://collider.com/bobs-burgers-holiday-short-first-image-release-date-hulu/
+
+Bob's Burgers came to SDCC with the first look at an all-new holiday short, On the Fort Day of Christmas, coming to Hulu later this year. See it here!
+---------
+
+# 10 Classic Thrillers You Must Watch in 2026
+
+Movie, Thriller, The French Connection, Vertigo, Chinatown
+
+Sat, 25 Jul 2026 17:28:15 GMT
+
+https://collider.com/classic-thriller-movies-must-watch-2026/
+
+Hitchcock masterpieces like Rear Window and foundational efforts like Peeping Tom are just some of the classic thrillers audiences must watch in 2026.
+---------
+
+# HBO's Biggest Fantasy Hit Since 'Game of Thrones' Is Dominating Streaming
+
+TV News, House of the Dragon, HBO Max, HBO, Fantasy
+
+Sat, 25 Jul 2026 17:21:00 GMT
+
+https://collider.com/hbo-max-house-of-the-dragon-streaming-success-july-2026/
+
+HBO's top-rated fantasy series is officially the number one show globally. Here's everything you should know.
+---------
+
+# The 10 Best Xbox Games of All Time, Ranked
+
+TV, Video Game, Gears of War, Mass Effect, Star Wars: Knights of the Old Republic
+
+Sat, 25 Jul 2026 17:04:15 GMT
+
+https://collider.com/best-xbox-games-ranked/
+
+These are the best Xbox games of all time based on gameplay, design, narrative, visuals, and overall quality, from Halo: Combat Evolved to BioShock.
+---------
+
+# Maggie Is Tempted With a Fresh Start in New 'The Walking Dead: Dead City' Season 3 Sneak Peek [Exclusive]
+
+Exclusives, The Walking Dead: Dead City, Lauren Cohan, Aimee Garcia, AMC
+
+Sat, 25 Jul 2026 17:00:15 GMT
+
+https://collider.com/the-walking-dead-dead-city-season-3-premiere-sneak-peek/
+
+A new sneak peek at The Walking Dead: Dead City Season 3 premiere sees Aimee Garcia trying to convince Lauren Cohan to make a fresh start.
+---------
+
+# 7 Binge-Worthy New Action Thrillers To Watch While Waiting For 'Reacher' Season 4
+
+TV Lists, Reacher, Thriller
+
+Sat, 25 Jul 2026 17:31:12 GMT
+
+https://movieweb.com/reacher-season-4-binge-worthy-action-thrillers/
+
+Until 'Reacher' returns for Season 4 on August 12, 2026, these hit action thrillers are perfect to keep you busy/
+---------
+
+# Amazon's Steamy R-Rated Smash Topples Prime Video's New Near-Perfect 8-Part Action Series
+
+TV News, Off Campus, Ride or Die
+
+Sat, 25 Jul 2026 17:23:27 GMT
+
+https://movieweb.com/off-campus-ride-or-die-amazon-streaming-charts/
+
+After dominating Prime Video for a week, 'Ride or Die' has lost its top spot to the popular romance 'Off Campus.'
+---------
+
+# Ridley Scott's Best Sci-Fi Epic in 14 Years Is a 2-Season HBO Series
+
+Features, Ridley Scott, Raised by Wolves
+
+Sat, 25 Jul 2026 17:00:12 GMT
+
+https://movieweb.com/raised-by-wolves-best-ridley-scott-sci-fi/
+
+Ridley Scott's hardest sci-fi project since 'Prometheus' is the 2-part HBO epic 'Raised By Wolves,' which is still clinging to life for Season 3.
+---------
+
 # 10 Best Book Adaptations Of The 2020s So Far
 
 Streaming TV
@@ -5243,257 +5496,4 @@ Fri, 24 Jul 2026 01:00:11 GMT
 https://screenrant.com/scrubs-best-episode-peak-sitcom/
 
 It's hard to pick just one Scrubs episode, but we can't deny that this specific installment completely changed the standards for sitcoms.
----------
-
-# 5 Great Batman Games Nobody Remembers
-
-Gaming, Batman, Triple-A Games
-
-Fri, 24 Jul 2026 01:00:11 GMT
-
-https://screenrant.com/best-batman-games-nobody-remembers/
-
-There is no shortage of phenomenal Batman video games, and it wouldn't be surprising in the slightest if fans haven't heard or played many of them.
----------
-
-# Stuart Fails To Save The Universe's Title Sequence Explained: How It Connects To TBBT
-
-Network TV, Stuart Fails to Save the Universe
-
-Fri, 24 Jul 2026 01:00:11 GMT
-
-https://screenrant.com/stuart-fails-to-save-the-universe-title-sequence-explained/
-
-Stuart Fails to Save the Universe's unique title sequence connects to its predecessor, The Big Bang Theory, & the meta humor it brings to the HBO Max.
----------
-
-# 72 Hours Review: Forgettable Kevin Hart Comedy Wastes Its Cast
-
-New Movies, 72 Hours
-
-Fri, 24 Jul 2026 01:00:11 GMT
-
-https://screenrant.com/72-hours-movie-2026-review/
-
-Though it has some good jokes, especially when letting its stars riff, 72 Hours is poisoned by an uncomfortably bad premise and never recovers.
----------
-
-# Secret Avatar: The Last Airbender Project Teased By Studio
-
-TV, Avatar: The Last Airbender, San Diego Comic-Con
-
-Fri, 24 Jul 2026 00:12:59 GMT
-
-https://screenrant.com/avatar-the-last-airbender-secret-tv-movie-future-projects/
-
-A secret Avatar: The Last Airbender project has been teased at San Diego Comic-Con, the studio offering details about the series' next chapter.
----------
-
-# DC Studios' New Joker Actor Confirms What Makes His Batman Villain Different
-
-TV, Batman: Caped Crusader, Joker, San Diego Comic-Con
-
-Fri, 24 Jul 2026 01:48:01 GMT
-
-https://www.cbr.com/batman-caped-crusader-season-2-matthew-needham-new-joker/
-
-Exclusive: The Caped Crusader meets a wildly different Clown Prince of Crime in the hit Batman series.
----------
-
-# 5 Most Disappointing Time Travel Anime Of All Time
-
-Anime, Amatsuki, 16bit Sensation: Another Layer, Punch Line, Sci-Fi
-
-Fri, 24 Jul 2026 01:45:15 GMT
-
-https://www.cbr.com/worst-time-travel-anime-all-time/
-
-Time travel can be an anime's greatest asset or biggest curse, with some series completely confusing the point.
----------
-
-# Sauron's 5 Strongest Allies in The Lord of the Rings Trilogy, Ranked
-
-Movies, The Lord of the Rings
-
-Fri, 24 Jul 2026 01:30:15 GMT
-
-https://www.cbr.com/lord-of-the-rings-sauron-strongest-allies-list/
-
-The Dark Lord Sauron commanded Middle-earth's mightiest army in The Lord of the Rings, but some of his minions were more powerful than others.
----------
-
-# 5 Classic Video Game Franchises Where Every Game Is a Masterpiece
-
-Games, Mass Effect, The Legend of Zelda, BioShock Infinite, Video Games
-
-Fri, 24 Jul 2026 01:30:15 GMT
-
-https://www.cbr.com/masterpiece-classic-video-game-franchises-collections/
-
-It's almost impossible for a multi-entry game franchise to hit a homerun every time, but  franchises like Bioshock & Mass Effect do it effortlessly.
----------
-
-# 7 Anime Villains Stronger Than Superman
-
-Anime, Bleach, Dragon Ball, Sailor Moon
-
-Fri, 24 Jul 2026 01:00:15 GMT
-
-https://www.cbr.com/anime-villains-stronger-than-superman/
-
-Superman is the Man of Steel, but several anime villains would consider that a challenge
----------
-
-# Dungeon Crawler Carl Live-Action Series Officially Casts Jeff Hays in New Role
-
-TV, Dungeon Crawler Carl, San Diego Comic-Con
-
-Fri, 24 Jul 2026 00:39:54 GMT
-
-https://www.cbr.com/dungeon-crawler-carl-live-action-jeff-hays-princess-donut/
-
-Dungeon Crawler Carl's critically acclaimed narrator joins Peacock's live-action adaptation in an exciting role.
----------
-
-# 5 Great Cyberpunk Shows Nobody Remembers
-
-TV, Cyberpunk, Altered Carbon, Blade Runner: Black Lotus, Almost Human
-
-Fri, 24 Jul 2026 00:30:15 GMT
-
-https://www.cbr.com/best-forgotten-cyberpunk-shows-list/
-
-An iconic sci-fi subgenre, cyberpunk stories are hard to adapt, but some forgotten television series made very worthy attempts.
----------
-
-# Naruto Finally Brings Back Minato With First Look at His New Design
-
-Anime, Naruto
-
-Fri, 24 Jul 2026 00:20:15 GMT
-
-https://www.cbr.com/naruto-mobile-minato-namikaze-jianghu-legend/
-
-Minato Namikaze is reimagined as a wandering ninja in a feuding martial arts world in Naruto's latest official release.
----------
-
-# 5 American Anime That Were Ahead of Their Time
-
-Anime, Teen Titans, Avatar: The Last Airbender, Sym-Bionic Titan, Samurai Jack, The Boondocks
-
-Fri, 24 Jul 2026 00:15:15 GMT
-
-https://www.cbr.com/american-anime-ahead-of-their-time/
-
-These American animated series took cues from anime years before it became mainstream, proving just how far ahead of the curve they were.
----------
-
-# The Big Bang Theory Spinoff’s Scrapped Season 1 Storyline Revealed by Creator
-
-TV, Stuart Fails to Save the Universe, San Diego Comic-Con
-
-Fri, 24 Jul 2026 00:00:14 GMT
-
-https://www.cbr.com/the-big-bang-theory-spinoffs-scrapped-season-1-storyline/
-
-The new spinoff features a much bigger scale than The Big Bang Theory, but there were some storylines that made it even crazier.
----------
-
-# Timothy Olyphant's 6-Season Neo-Western Got Even Better When It Moved Beyond the Book
-
-TV Features, Justified, Timothy Olyphant, Western, FX
-
-Fri, 24 Jul 2026 01:36:14 GMT
-
-https://collider.com/timothy-olyphant-justified-neo-western-better-beyond-the-book/
-
-Timothy Olyphant's Justified evolved from a direct adaptation of Elmore Leonard's Fire in the Hole into a captivating six-season neo-Western.
----------
-
-# 'Fast and Furious' Icon Admits the Saga Has Officially "Lost Our Way" [Exclusive]
-
-Exclusives, Sung Kang, Fast and Furious, The Fast and the Furious: Tokyo Drift, Fast Forever
-
-Fri, 24 Jul 2026 01:00:15 GMT
-
-https://collider.com/sung-kang-fast-and-furious-lost-our-way-drifter-sdcc/
-
-Sung Kang says Fast & Furious may have “lost our way” and hopes to bring lessons from Drifter back to the final movie.
----------
-
-# Adria Arjona Reveals James Gunn "Made Me Earn" Her 'Man of Tomorrow' Role [Exclusive]
-
-Exclusives, Adria Arjona, The Belko Experiment, Man of Tomorrow, James Gunn
-
-Fri, 24 Jul 2026 01:00:15 GMT
-
-https://collider.com/adria-arjona-man-of-tomorrow-audition/
-
-Adria Arjona discusses joining James Gunn’s Man of Tomorrow and reuniting with the filmmakers who gave her first movie role.
----------
-
-# Christopher Nolan’s 'The Odyssey' Drowns Ridley Scott’s Biblical Epic in Just 4 Days at the Box Office
-
-Movie News, Christopher Nolan, The Odyssey, Box Office, Exodus: Gods and Kings
-
-Fri, 24 Jul 2026 01:00:15 GMT
-
-https://collider.com/christopher-nolan-the-odyssey-overtakes-ridley-scott-exodus-gods-and-kings-box-office-264-million/
-
-Christopher Nolan's The Odyssey has overtaken Ridley Scott's Exodus: Gods and Kings in just four days at the box office.
----------
-
-# 2026’s Record-Breaking Horror Sensation Is Already a Streaming Sleeper Hit
-
-Movie News, Backrooms, A24, Horror, Kane Parsons
-
-Fri, 24 Jul 2026 00:30:15 GMT
-
-https://collider.com/a24-horror-backrooms-streaming-success-vudu-july-2026/
-
-A24's psychological horror film Backrooms, based on the viral YouTube series, is already a streaming sleeper hit after its incredible box office run.
----------
-
-# HBO Is Officially Fixing One of 'Game of Thrones' Biggest Problems
-
-TV Features, House of the Dragon, Game Of Thrones, A Knight Of The Seven Kingdoms, A Song of Ice and Fire
-
-Fri, 24 Jul 2026 00:13:14 GMT
-
-https://collider.com/house-of-the-dragon-season-3-high-valyrian-game-of-thrones/
-
-High Valyrian is more than just a language for the Targaryens in House of the Dragon, symbolizing their exceptionalism and their powerful past.
----------
-
-# 'House of the Dragon' Star Is Officially the Next Joker
-
-TV News, Batman: Caped Crusader, Matt Reeves, House of the Dragon, The Batman
-
-Fri, 24 Jul 2026 00:11:36 GMT
-
-https://collider.com/batman-caped-crusader-season-2-joker-cast-house-of-the-dragon-star-matthew-needham/
-
-Batman: Caped Crusader Season 2 has officially found its new Joker in a House of the Dragon star. Read on for all the details.
----------
-
-# Ridley Scott's Forgotten 116-Minute Heist Thriller Resurfaces on Streaming
-
-Movie Features, Ridley Scott, Nicolas Cage, Sam Rockwell, Matchstick Men
-
-Fri, 24 Jul 2026 00:11:14 GMT
-
-https://collider.com/ridley-scott-matchstick-men-streaming-free-tubi-july-2026/
-
-Ridley Scott's 2003 Nicolas Cage heist film Matchstick Men often gets overlooked in the director's filmography, but it shows him at his loosest.
----------
-
-# Prime Video's 2026 'Reacher' Replacement Quietly Becomes a Late-Night Favorite
-
-Movie News, Prime Video, Reacher, Tom Clancy's Jack Ryan: Ghost War, Streaming
-
-Fri, 24 Jul 2026 00:00:14 GMT
-
-https://collider.com/prime-video-spy-thriller-tom-clancys-jack-ryan-ghost-war-streaming-success-july-2026/
-
-Despite poor reviews from critics and fans, Prime Video's Jack Ryan movie is a streaming juggernaut. Read on for all the details.
 ---------
