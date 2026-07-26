@@ -1,3 +1,388 @@
+# Game Of Thrones: Children Of The Forest Officially Releases July 29
+
+Gaming, Game of Thrones, Game Of Thrones, PC
+
+Sun, 26 Jul 2026 04:30:12 GMT
+
+https://screenrant.com/game-of-thrones-conquest-children-of-the-forest-july-29/
+
+Game of Thrones is back with Children of the Forest, a special release that officially launches this week on July 29.
+---------
+
+# Red Dead Redemption 2 Free Download Yours To Claim For Next 24 Hours
+
+Gaming, Red Dead Redemption 2
+
+Sun, 26 Jul 2026 04:15:11 GMT
+
+https://screenrant.com/red-dead-redemption-2-free-download-24-hours-july-27/
+
+Earn 3X RDO$, XP, and Gold on Bounty Hunter Free Roam Events and claim free emotes and cosmetics in Red Dead Online.
+---------
+
+# Steam Gamers Can Grab Over 48 Free Downloads For Next 24 Hours
+
+Gaming, Steam, PC
+
+Sun, 26 Jul 2026 04:00:14 GMT
+
+https://screenrant.com/steam-48-free-downloads-24-hours/
+
+Steam has made a staggering 48 downloads available completely for free, but users only have 24 hours to grab them.
+---------
+
+# 8 Sci-Fi Shows With The Best Space Battles
+
+Streaming TV, Sci-Fi
+
+Sun, 26 Jul 2026 03:54:23 GMT
+
+https://screenrant.com/sci-fi-shows-best-space-battles/
+
+If you're looking for entertaining sci-fi shows filled with well-choreographed and engaging space battles, these 8 TV shows are the way to go.
+---------
+
+# How Lanterns' Hal Jordan & John Stewart Honor The OG Comic Characters Detailed By DCU Series Creator
+
+TV, Lanterns, San Diego Comic-Con
+
+Sun, 26 Jul 2026 03:36:38 GMT
+
+https://screenrant.com/lanterns-kyle-chandler-aaron-pierre-embody-green-lantern-comics-tom-king/
+
+EXCLUSIVE: According to the co-creator of HBO's comic book adaptation, Lanterns, Aaron Pierre and Kyle Chandler were perfectly cast.
+---------
+
+# A Knight Of The Seven Kingdoms Season 2 Is Keeping The Show's Winning Formula Alive
+
+Streaming TV, A Knight Of The Seven Kingdoms, Game of Thrones
+
+Sun, 26 Jul 2026 03:30:12 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-season-2-short-episodes-trend-continue/
+
+After the success of A Knight of the Seven Kingdoms' debut season, HBO might have been tempted to make some changes. Thankfully, that's not the case.
+---------
+
+# Naruto's Live-Action Movie Can Only Succeed After Dodging Dragon Ball's Biggest Pitfall
+
+Anime, Naruto, Naruto - Live Action
+
+Sun, 26 Jul 2026 03:30:12 GMT
+
+https://screenrant.com/naruto-live-action-movie-dragon-ball-failure/
+
+To succeed where past Hollywood adaptations failed, the highly anticipated live-action Naruto must fix Dragon Ball's biggest mistake.
+---------
+
+# Brandon Sanderson’s “Top Gun Meets Ender’s Game” Adaptation Is TV’s Next Big Sci-Fi Epic
+
+Streaming TV, Masked Recs
+
+Sun, 26 Jul 2026 03:15:12 GMT
+
+https://screenrant.com/brandson-sanderson-top-gun-enders-game-skyward-adaptation/
+
+An upcoming adaptation of a Brandon Sanderson book series seems like the perfect combination of the best story beats from Top Gun and Ender’s Game.
+---------
+
+# 5 One Piece Characters Who Can Easily Defeat Luffy
+
+Anime, One Piece
+
+Sun, 26 Jul 2026 03:00:12 GMT
+
+https://screenrant.com/one-piece-characters-defeat-luffy/
+
+Despite mastering Gear 5 and defeating Kaido, the Straw Hat captain still faces five figures who hold a clear advantage over him.
+---------
+
+# Prime Video’s Adaptation Of Bestselling Crime Comics Can Be As Big As Sons Of Anarchy
+
+Streaming TV, Masked Recs
+
+Sun, 26 Jul 2026 03:00:12 GMT
+
+https://screenrant.com/prime-video-criminal-comics-adaptation-sons-of-anarchy/
+
+Prime Video is adapting a highly acclaimed bestselling crime comic book series, which has the potential to be as big as shows like Sons of Anarchy.
+---------
+
+# 10 Classic 2000s Anime Series That Are Perfect From the First Scene
+
+Anime, Fullmetal Alchemist: Brotherhood, Code Geass: Lelouch of the Rebellion
+
+Sun, 26 Jul 2026 03:46:15 GMT
+
+https://www.cbr.com/classic-2000s-anime-perfect-from-the-first-scene-list/
+
+2000s anime classics like Fullmetal Alchemist, Monster, and Code Geass became timeless masterpieces and are still considered the gold standard today.
+---------
+
+# 5 Years Later, Gundam Finally Brings Back Zeon's Weirdest Mobile Suit
+
+Anime, Mobile Suit Gundam, merchandise, bandai, toys
+
+Sun, 26 Jul 2026 03:30:15 GMT
+
+https://www.cbr.com/gundam-zgok-real-grade-gunpla-bandai-re-release/
+
+A mass-produced and unusual Mobile Suit Gundam design used by the Principality of Zeon is once again available to order as a Real Grade model kit.
+---------
+
+# CBS Is Derailing Jared Padalecki's Next Supernatural Replacement Show
+
+TV, Fire Country, Supernatural, CBS
+
+Sun, 26 Jul 2026 03:30:15 GMT
+
+https://www.cbr.com/cbs-fire-country-jared-padalecki-spinoff-in-doubt/
+
+After Supernatural and Walker, Jared Padalecki's future with CBS and his potential spin-off might not be looking as bright.
+---------
+
+# 10 Forgotten PS1 Games That Have Aged Like Fine Wine
+
+Games, Alien, Sony, PlayStation (Original)
+
+Sun, 26 Jul 2026 03:15:16 GMT
+
+https://www.cbr.com/forgotten-playstation-games-aged-like-fine-wine-list/
+
+The PS1 library was dominated by some of the greatest JRPG titles to hit consoles, and these hits aged like fine wine even if they were forgotten.
+---------
+
+# Marvel Studios Officially Confirms Black Panther To Become a Trilogy
+
+Movies, Black Panther, Marvel Cinematic Universe, San Diego Comic-Con
+
+Sun, 26 Jul 2026 03:07:32 GMT
+
+https://www.cbr.com/marvel-studios-sdcc-black-panther-3-trilogy-announcement/
+
+The announcement came during the studio's San Diego Comic Con panel.
+---------
+
+# 5 Perfect PS3 Games No One Actually Remembers
+
+Games, Video Games, PlayStation (Original)
+
+Sun, 26 Jul 2026 02:45:15 GMT
+
+https://www.cbr.com/perfect-but-forgotten-ps3-games-list/
+
+Not every game from the PlayStation 3 era, like ModNation Racers of Enslaved, is destined for long term success.
+---------
+
+# Amazon's Carrie Reboot Reveals First Look at New Take on Iconic Prom Scene
+
+TV, Carrie, San Diego Comic-Con
+
+Sun, 26 Jul 2026 02:41:45 GMT
+
+https://www.cbr.com/carrie-prime-video-teaser-trailer-release-date/
+
+The new series based on the iconic Stephen King story has also just been given its Prime Video premiere date.
+---------
+
+# 4 Mystery Anime That Are 10/10 Masterpieces
+
+Anime, Odd Taxi, Bungo Stray Dogs
+
+Sun, 26 Jul 2026 02:30:15 GMT
+
+https://www.cbr.com/mystery-anime-perfect-masterpieces-list/
+
+It's not easy to craft a compelling mystery, but anime like Odd Taxi, Mononoke, and Detective Conan excel with their hard-boiled detective work.
+---------
+
+# Avengers: Doomsday Can Deliver the Most Comic-Accurate Doctor Doom Yet
+
+Comics, Avengers: Doomsday
+
+Sun, 26 Jul 2026 02:30:15 GMT
+
+https://www.cbr.com/avengers-doomsday-can-build-comic-accurate-doctor-doom/
+
+Avengers: Doomsday is about to adapt an iconic villain for the big screen, and there's a chance to finally go comic-accurate.
+---------
+
+# 10 Classic Fantasy Books That Are Still Perfect Today
+
+Movies, Fantasy, books, The Lord of the Rings
+
+Sun, 26 Jul 2026 02:20:15 GMT
+
+https://www.cbr.com/classic-fantasy-books-still-perfect-list/
+
+While some fantasy books have aged like milk over time, there are some classics that are as perfect today as the day they were published.
+---------
+
+# 'Transformers’ Meets ‘Godzilla’ in John Boyega’s Sci-Fi Sequel Resurfacing on HBO Max 8 Years Later
+
+Movie News, John Boyega, Pacific Rim: Uprising, Scott Eastwood, HBO Max
+
+Sun, 26 Jul 2026 03:55:15 GMT
+
+https://collider.com/john-boyega-sci-fi-sequel-pacific-rim-uprising-hbo-max-streaming-success-july-2026/
+
+An overlooked sci-fi sequel is storming the HBO Max charts years later proving giant robot action still has loyal fans.
+---------
+
+# Sam Raimi's Near-Perfect Horror Series Is Taking Over the World 8 Years Later
+
+TV News, Sam Raimi, Horror, Rotten Tomatoes, Ash vs Evil Dead
+
+Sun, 26 Jul 2026 03:45:15 GMT
+
+https://collider.com/sam-raimi-horror-series-ash-vs-evil-dead-streaming-success-apple-tv-store-july-2026/
+
+Sam Raimi's beloved horror series with a near-perfect Rotten Tomatoes score is climbing streaming charts and deserves a full binge.
+---------
+
+# Christopher Nolan’s 'The Odyssey' Officially Surges Past 2 of His Blockbusters in Just 1 Week
+
+Movie News, The Odyssey, Tenet, Batman Begins, Christopher Nolan
+
+Sun, 26 Jul 2026 03:32:09 GMT
+
+https://collider.com/the-odyssey-box-office-tenet-batman-begins-christopher-nolan/
+
+The Odyssey races past two Christopher Nolan classics at the worldwide box office after just over one week in theaters.
+---------
+
+# ‘Fallout 5’ Officially Confirms Gameplay Update Ahead of Season 3
+
+Gaming News, Fallout, Prime Video, Bethesda, Fallout 76
+
+Sun, 26 Jul 2026 03:30:15 GMT
+
+https://collider.com/fallout-5-development-update-todd-howard-before-season-3/
+
+Bethesda boss Todd Howard issues an official update on Fallout 5 while Season 3 of the Prime Video series continues filming.
+---------
+
+# Christopher Nolan's 'The Odyssey' Is Sending Zack Snyder's Greek Epic Soaring on Streaming
+
+Movie News, 300, Zack Snyder, Christopher Nolan, The Odyssey
+
+Sun, 26 Jul 2026 03:15:16 GMT
+
+https://collider.com/zack-snyder-300-greek-myth-vudu-streaming-success-july-2026/
+
+Director Zack Snyder's big breakout movie, 300, is having a streaming resurgence amid the box-office domination of The Odyssey.
+---------
+
+# ‘Star Trek’s Best Series Has Quietly Outdone ‘The Next Generation’
+
+TV Features, Star Trek, Star Trek: Strange New Worlds, Star Trek: The Next Generation, Star Trek: The Original Series
+
+Sun, 26 Jul 2026 03:07:15 GMT
+
+https://collider.com/star-trek-strange-new-worlds-better-than-the-next-generation/
+
+For years, The Next Generation defined Star Trek, but Strange New Worlds could now be considered the franchise's gold standard.
+---------
+
+# 10 Years Later, Matt Damon’s Underrated Fantasy Epic Is Free to Watch
+
+TV Features, Matt Damon, Pedro Pascal, The Great Wall, Tubi
+
+Sun, 26 Jul 2026 03:07:15 GMT
+
+https://collider.com/matt-damon-the-great-wall-underrated-fantasy-epic-watch-on-tubi/
+
+A decade after its release, 'The Great Wall' remains both an oddity in Matt Damon's filmography and a solid fantasy film.
+---------
+
+# The Lord of the Rings Officially Returns With New Release on November 10
+
+Books and Comics News, The Lord of the Rings, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Hunt for Gollum, J.R.R. Tolkien
+
+Sun, 26 Jul 2026 03:00:15 GMT
+
+https://collider.com/the-lord-of-the-rings-the-fall-of-numenor-special-edition-release-date-november-10/
+
+The Lord of the Rings is getting a brand-new, 352-page special edition release for The Fall of Númenor on November 10.
+---------
+
+# 2 Legendary Stars Officially Reunite for Netflix's Reboot of their Cult Classic Rom-Com
+
+Movie News, Netflix, 13 Going on 30, Jennifer Garner, Judy Greer
+
+Sun, 26 Jul 2026 02:45:15 GMT
+
+https://collider.com/13-going-on-30-stars-jennifer-garner-judy-greer-netflix-return/
+
+Two stars of the original 13 Going on 30 are set to reunite in Netflix's remake of the iconic rom-com. Here's everything you should know.
+---------
+
+# 2026’s Horror Hit Is Taking Over the Streaming Charts
+
+Movie News, Obsession, Peacock, Horror, Curry Barker
+
+Sun, 26 Jul 2026 02:31:45 GMT
+
+https://collider.com/2026s-horror-hit-is-taking-over-the-streaming-charts/
+
+Discover how Obsession, a low-budget horror film directed by Curry Barker, has become a box office success and is now dominating streaming charts.
+---------
+
+# 8 Biggest Reveals From Marvel at Comic Con 2026
+
+Movie News, MCU's Movie Order (2008 - 2019) - The Infinity Saga (Iron Man - Spider-Man: Far from Home), Avengers: Doomsday
+
+Sun, 26 Jul 2026 04:05:46 GMT
+
+https://movieweb.com/marvel-studios-comic-con-reveals-2026/
+
+From Doomsday to Ghost Rider to Black Panther, here are the biggest reveals from the Marvel Studios San Diego Comic-Con panel.
+---------
+
+# What Happens to the Hightowers by the Time of 'Game of Thrones'
+
+Features, Game of Thrones, Game Of Thrones, House of the Dragon
+
+Sun, 26 Jul 2026 02:30:12 GMT
+
+https://movieweb.com/what-happens-hightowers-game-of-thrones/
+
+The Hightowers are mostly missing from the timeline of 'Game of Thrones,' but it's not for the reason 'House of the Dragon' fans might think.
+---------
+
+# 9 Gangster Movies That Are So Close to Being Perfect
+
+Movie Lists, Crime
+
+Sun, 26 Jul 2026 02:00:22 GMT
+
+https://movieweb.com/gangster-movies-almost-perfect/
+
+Making a flawless gangster movie isn't so easy. These aren't at the level of 'Goodfellas' and 'The Godfather', but they're close!
+---------
+
+# New 'Black Panther' Actor Officially Announced as MCU Sequel Receives Release Date
+
+Movie News, Black Panther, Black Panther Wakanda Forever, Ryan Coogler
+
+Sun, 26 Jul 2026 01:43:31 GMT
+
+https://movieweb.com/black-panther-3-release-date-david-jonsson/
+
+Marvel Studios confirmed exciting new casting and release information for Ryan Coogler's 'Black Panther 3.'
+---------
+
+# Ryan Gosling Officially Lands Major MCU Superhero Role After Years of Rumors
+
+Movie News, Ryan Gosling, Ghost Rider
+
+Sun, 26 Jul 2026 01:08:48 GMT
+
+https://movieweb.com/ryan-gosling-ghost-rider-mcu-cast-sdcc/
+
+It's official: Ryan Gosling has joined the MCU as an iconic superhero.
+---------
+
 # I'm Rewatching Full House, And I Forgot The Weirdest Thing About The Pilot
 
 Movies, Full House (US)
@@ -5111,389 +5496,4 @@ Fri, 24 Jul 2026 20:00:12 GMT
 https://movieweb.com/binge-worthy-sci-fi-miniseries/
 
 Your next sci-fi obsession awaits, and we won't ask you to commit to a multi-season epic ordeal. Keep it short and sweet!
----------
-
-# Simon Pegg Cast in 'Rings of Power' Season 3 in Major Shake Up to Iconic 'Lord of the Rings' Villain
-
-TV News, The Lord of the Rings: The Rings of Power, Simon Pegg
-
-Fri, 24 Jul 2026 19:13:19 GMT
-
-https://movieweb.com/the-rings-of-power-simon-pegg-balrog/
-
-Simon Pegg will join 'The Rings of Power,' playing one of the most iconic villains in franchise history.
----------
-
-# 60 Years Later, 'Strange New Worlds' Solves a Major Issue With 'Star Trek: The Original Series'
-
-TV News, Star Trek: Strange New Worlds, Star Trek
-
-Fri, 24 Jul 2026 19:00:42 GMT
-
-https://movieweb.com/star-trek-strange-new-worlds-fixes-the-original-series/
-
-Here's why you should watch 'Strange New Worlds' before 'Star Trek: The Original Series.'
----------
-
-# Amazon Scores Big as '80s Action Sci-Fi Reboot Hits #1 on Streaming After Disastrous Box Office
-
-Movie News, Masters of the Universe
-
-Fri, 24 Jul 2026 19:00:21 GMT
-
-https://movieweb.com/masters-of-the-universe-prime-video-stream-july-2026/
-
-The long-delayed reboot found redemption on streaming.
----------
-
-# Ghosts Season 6's Special Episode Officially Introducing Hetty's Sister
-
-TV, Ghosts
-
-Fri, 24 Jul 2026 18:52:50 GMT
-
-https://screenrant.com/ghosts-season-6-christmas-special-episodes-plot-details-hetty-sister/
-
-Ghosts season 6 won't premiere until 2027, but there's already news on what to expect from the CBS sitcom's upcoming special holiday episodes.
----------
-
-# Disney Officially Confirms Next Indiana Jones Sequel
-
-Marvel Comics, Indiana Jones, San Diego Comic-Con
-
-Fri, 24 Jul 2026 18:51:22 GMT
-
-https://screenrant.com/indiana-jones-sword-of-pandemonium-marvel/
-
-Disney unveils the next installment in the Indiana Jones franchise, Indiana Jones and the Sword of Pandemonium, which returns to Indy's prime years.
----------
-
-# Ghosts Season 5 Officially Confirms Exciting New Casting Change
-
-Network TV, Ghosts
-
-Fri, 24 Jul 2026 18:50:57 GMT
-
-https://screenrant.com/ghosts-season-6-ben-feldman-series-regular-update/
-
-Ghosts season 6 confirms exciting casting change, with Ben Feldman's character Kyle becoming a series regular, as Sam's counterpart takes on new role.
----------
-
-# DC Officially Announces Batman's Next Game-Changing Series
-
-Comic-Con, San Diego Comic-Con
-
-Fri, 24 Jul 2026 18:40:42 GMT
-
-https://screenrant.com/batman-of-two-worlds-series-details/
-
-DC Comics has officially announced its next Batman series, its most ambitious project in years and one that could change the Dark Knight forever.
----------
-
-# George R. R. Martin's Hit Crime Series Returns With "Career Performance High" In Season 5
-
-TV, Dark Winds, San Diego Comic-Con
-
-Fri, 24 Jul 2026 18:37:10 GMT
-
-https://screenrant.com/dark-winds-season-5-career-high-performance-jessica-matten-sdcc-2026/
-
-Exclusive: The star of Season 5 of executive producer George R.R. Martin's acclaimed crime series hypes their "career performance high."
----------
-
-# Netflix Is Officially Adapting 44-Year-Old Bestselling Memoir Into Major Series
-
-TV, Netflix
-
-Fri, 24 Jul 2026 18:36:56 GMT
-
-https://screenrant.com/netflix-happy-old-year-movie-adaptation-development/
-
-Netflix is adapting a 44-year-old bestselling memoir into a major series shortly after the author's work formed the basis for an Oscar-winning film.
----------
-
-# Leroy Jethro Gibbs' 10 Best NCIS Quotes, Ranked
-
-Network TV, NCIS
-
-Fri, 24 Jul 2026 18:30:11 GMT
-
-https://screenrant.com/best-leroy-jethro-gibbs-quotes-ncis/
-
-Ranking the best NCIS quotes from Leroy Jethro Gibbs, the former MCRT leader, showcasing his wisdom, humor, and leadership throughout the series.
----------
-
-# Sauron Forges The One Ring & Battles The Elves In The Rings Of Power Season 3 Trailer
-
-TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, San Diego Comic-Con
-
-Fri, 24 Jul 2026 18:30:11 GMT
-
-https://screenrant.com/lord-of-the-rings-of-power-season-3-trailer/
-
-Prime Video has unveiled the first The Lord Of The Rings: The Rings of Power season 3 trailer, teasing what is next for Sauron, Galadriel, and more.
----------
-
-# Star Wars' Sith Lord Manny Jacinto Is Officially Playing A Demon In New Fantasy Movie
-
-Movies, Forgotten Island, Manny Jacinto, San Diego Comic-Con
-
-Fri, 24 Jul 2026 18:22:40 GMT
-
-https://screenrant.com/forgotten-island-movie-manny-jacinto-demon-role-sdcc-2026/
-
-After making his Star Wars debut in 2024, Manny Jacinto is heading to the big screen next year, and his character has now been revealed.
----------
-
-# Jason Bourne 6 Script Gets First Reaction From Matt Damon
-
-Movies, Jason Bourne 6, Jason Bourne
-
-Fri, 24 Jul 2026 18:20:14 GMT
-
-https://screenrant.com/jason-bourne-6-script-reaction-update-matt-damon/
-
-Matt Damon reveals that he has read some of the script for Jason Bourne 6, and his reaction is a promising sign for the espionage franchise’s future.
----------
-
-# Netflix's Sleeper Hit Summer 2026 Anime Keeps Getting Better Every Episode
-
-Anime, Sparks of Tomorrow, Netflix
-
-Fri, 24 Jul 2026 18:15:15 GMT
-
-https://www.cbr.com/netflix-anime-sparks-of-tomorrow-sleeper-hit-summer-2026/
-
-Netflix's Sparks of Tomorrow is breaking barriers through its unique blend of revisionist steampunk history and star-crossed romance.
----------
-
-# Raiders Of The Lost Ark Sequel Just Got Confirmed
-
-Comics, Indiana Jones, Raiders of the Lost Ark, San Diego Comic-Con
-
-Fri, 24 Jul 2026 18:00:58 GMT
-
-https://www.cbr.com/indiana-jones-sword-pandemonium-marvel-comic-confirmed/
-
-Indiana Jones is back in a new comic book series!
----------
-
-# 10 X-Men Characters Who Deserve Their Own Solo MCU Movie or Disney+ Series
-
-Comics, X-Men
-
-Fri, 24 Jul 2026 18:00:15 GMT
-
-https://www.cbr.com/x-men-characters-who-need-solo-mcu-projects/
-
-The X-Men will be arriving in the MCU and with a reboot on the horizon, multiple characters deserve their own spinoff.
----------
-
-# Blade Runner 2099 Gets First Trailer Confirming 2026 Release
-
-TV, Blade Runner 2099, Sci-Fi, Prime Video
-
-Fri, 24 Jul 2026 17:32:33 GMT
-
-https://www.cbr.com/blade-runner-2099-trailer/
-
-Michelle Yeoh and Hunter Schafer lead the new Blade Runner streaming series.
----------
-
-# The 10 Best Optimus Prime Quotes From Transformers
-
-TV, optimus prime, Transformers, Sci-Fi
-
-Fri, 24 Jul 2026 17:30:15 GMT
-
-https://www.cbr.com/transformers-optimus-prime-iconic-lines-autobots/
-
-Whether challenging Megatron's schemes or rallying his Autobot troops, Optimus Prime has an impressive statement for nearly every situation.
----------
-
-# Hello Kitty Island Adventure Adds Over 300 New Designs in Major Update
-
-Anime, Hello Kitty Island Adventure, sanrio, Hello Kitty
-
-Fri, 24 Jul 2026 17:20:15 GMT
-
-https://www.cbr.com/hello-kitty-island-adventure-tea-garden-dlc-update/
-
-Sanrio confirms a major expansion for the cozy Hello Kitty Island Adventure game coming August 6.
----------
-
-# Every Upper Moon In Demon Slayer, Ranked By Tragic Backstory
-
-Anime, Demon Slayer: Kimetsu no Yaiba, Demon Slayer: Kimetsu no Yaiba Infinity Castle, shonen anime
-
-Fri, 24 Jul 2026 17:16:14 GMT
-
-https://www.cbr.com/demon-slayer-upper-moon-tragic-backstory-ranked/
-
-The Upper Moon of the Twelve Demons in Demon Slayer might be the villains, but some of their pasts are truly tragic or disturbing.
----------
-
-# Marvel Officially Launches a Special 'Light' and 'Dark' Superhero Team
-
-Comics, Venom
-
-Fri, 24 Jul 2026 17:06:45 GMT
-
-https://www.cbr.com/marvel-officially-launches-special-light-dark-superhero-team/
-
-In a CBR preview of Queen in Black: Defenders of Light and Dark #1, see how Marvel debuts a new superhero team with special "light" and "dark" heroes
----------
-
-# It's Officially the End of an Era for One Major 'Ghosts' Rule
-
-TV News, Ghosts, SDCC, Román Zaragoza, Asher Grodman
-
-Fri, 24 Jul 2026 18:47:29 GMT
-
-https://collider.com/ghosts-season-6-100th-episode-halloween-christmas-special-details/
-
-The cast of Ghosts reveals new details about Season 6's Halloween and Christmas specials, the 100th episode, Sas' death and more!
----------
-
-# Prime Video Officially Reveals 'Rings of Power' Season 3 Is Giving the Balrog a Voice
-
-TV News, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Simon Pegg, San Diego Comic-Con
-
-Fri, 24 Jul 2026 18:32:27 GMT
-
-https://collider.com/rings-of-power-season-3-balrog-speaking-simon-pegg-cast/
-
-Prime Video has confirmed that not only will the Balrog speak in Rings of Power Season 3, but he'll be voiced by a legendary Star Trek icon.
----------
-
-# Prime Video's 'Rings of Power' Season 3 Officially Debuts Action-Packed First Trailer
-
-TV News, The Lord of the Rings: The Rings of Power, Prime Video, Fantasy, The Lord of the Rings
-
-Fri, 24 Jul 2026 18:31:40 GMT
-
-https://collider.com/rings-of-power-season-3-trailer-prime-video/
-
-Prime Video has debuted the first trailer for The Lord of the Rings: The Rings of Power Season 3 ahead of its 2026 premiere. See it here!
----------
-
-# Marvel Just Officially Reopened One of the X-Men's Most Controversial Debates
-
-Books and Comics News, Marvel, Comics, X-Men, San Diego Comic-Con
-
-Fri, 24 Jul 2026 18:30:14 GMT
-
-https://collider.com/marvel-x-men-controversial-debate-reopened-psylocke-betsy-kwannon/
-
-Marvel's Maximum X-Men series, set to launch in December, reignites the Psylocke identity debate by featuring Betsy Braddock as the iconic character.
----------
-
-# The Odyssey: Nolan Pushed Practical Filmmaking to Extremes
-
-Movie, Originals
-
-Fri, 24 Jul 2026 18:15:15 GMT
-
-https://collider.com/video/the-odyssey-nolan-pushed-practical-filmmaking-to-extremes/
-
-Christopher Nolan's The Odyssey pushed practical filmmaking further than ever, with real ships, brutal locations, groundbreaking IMAX technology, and a production that demanded everything from its cast and crew.
----------
-
-# Star Wars Confirms New Luke and Leia Release for 2027
-
-Books and Comics News, Star Wars, luke skywalker, Princess Leia, SDCC
-
-Fri, 24 Jul 2026 18:05:14 GMT
-
-https://collider.com/star-wars-twin-crossroads-luke-leia-book/
-
-Lucasfilm has announced Twin Crossroads, a new Star Wars novel following Luke Skywalker and Leia Organa after Return of the Jedi.
----------
-
-# Star Wars Is Officially Getting a New Horror Project
-
-Books and Comics News, Star Wars, Horror, Comic Book, SDCC
-
-Fri, 24 Jul 2026 18:05:14 GMT
-
-https://collider.com/star-wars-horror-comic-galactic-tales-of-terror/
-
-A terrifying new tome of Star Wars horror comics is hitting shelves this fall. Read on for more.
----------
-
-# 5 Years Later, ‘The Book of Boba Fett’ Is Officially Getting a Sequel Series
-
-Books and Comics News, The Book of Boba Fett, The Mandalorian, Star Wars, SDCC
-
-Fri, 24 Jul 2026 18:05:14 GMT
-
-https://collider.com/the-book-of-boba-fett-sequel-comic-book-series/
-
-This weekend at San Diego Comic-Con, Star Wars announced an official sequel series to The Book of Boba Fett coming this August.
----------
-
-# Indiana Jones Is Officially Getting a New Spin-Off Series
-
-Books and Comics News, Harrison Ford, Indiana Jones, Lucasfilm, SDCC
-
-Fri, 24 Jul 2026 18:05:14 GMT
-
-https://collider.com/indiana-jones-new-spin-off-comic-book-series/
-
-Indiana Jones is back with a new comic to excite fans.
----------
-
-# Star Wars Confirms New 'Rogue One' Spin-Off Project
-
-Books and Comics, Star Wars, Rogue One, Andor, SDCC
-
-Fri, 24 Jul 2026 18:05:14 GMT
-
-https://collider.com/star-wars-confirms-new-rogue-one-spin-off-project/
-
-Star Wars is expanding the time of the Galactic Empire set around its more beloved stand alone film.
----------
-
-# 'The Lord of the Rings: The Rings of Power' Season 3 Trailer Officially Unleashes Sauron at His Peak
-
-TV News, The Lord of the Rings: The Rings of Power
-
-Fri, 24 Jul 2026 18:34:10 GMT
-
-https://movieweb.com/lord-of-the-rings-rings-of-power-season-3-teaser-trailer/
-
-Sauron reaches the peak of his power in 'The Rings of Power' Season 3.
----------
-
-# This Fall Finally Delivers Long-Awaited Spin-Off to Action Thriller Cult Classic
-
-Movie News, Onslaught, The Guest, Adam Wingard
-
-Fri, 24 Jul 2026 18:30:53 GMT
-
-https://movieweb.com/onslaught-movie-the-guest-spin-off-action-thriller/
-
-Adam Wingard confirms 'Onslaught' is set in the same universe as 'The Guest.'
----------
-
-# Star Trek's Big-Screen Comeback Sounds Worryingly Similar to 'Starfleet Academy'
-
-Features, Star Trek, Star Trek: Starfleet Academy
-
-Fri, 24 Jul 2026 18:00:12 GMT
-
-https://movieweb.com/star-trek-new-movie-plans/
-
-There have finally been some details released about the upcoming Star Trek movie, but they seem concerning. Read on for more.
----------
-
-# 10 Camping Horror Movies That Will Keep You Out of the Woods
-
-Movie Lists, Horror
-
-Fri, 24 Jul 2026 18:00:12 GMT
-
-https://movieweb.com/camping-horror-movies-keep-you-out-of-the-woods/
-
-Oftentimes, horror works as a cautionary tale. In the case of the following movies, they will be scary enough to cancel that camping trip.
 ---------
