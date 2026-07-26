@@ -1,3 +1,102 @@
+# Steam Drops 6 Free Games You Have Just 24 Hours To Grab
+
+Gaming, Steam, PC
+
+Sun, 26 Jul 2026 09:00:11 GMT
+
+https://screenrant.com/steam-6-free-games-24-hours-july-giveaway/
+
+Steam users can pick up these six games completely for free, so long as they are fast enough, as there's only 24 hours left to get them.
+---------
+
+# Tom Hardy and Ridley Scott's 8-Part Mystery Is a Streaming Smash Hit
+
+TV News, Taboo, Tom Hardy, Ridley Scott, Oona Chaplin
+
+Sun, 26 Jul 2026 09:40:15 GMT
+
+https://collider.com/tom-hardy-british-mystery-series-taboo-streaming-success-july-2026/
+
+Taboo, the Tom Hardy crime thriller produced by Ridley Scott, is still one of the most popular shows in the world despite no Season 2 news.
+---------
+
+# 10 Perfect Netflix Shows With 20 Episodes or Less
+
+TV, Netflix, One Day, The Queen's Gambit, Arcane
+
+Sun, 26 Jul 2026 09:26:15 GMT
+
+https://collider.com/perfect-netflix-shows-shorter-than-20-episodes/
+
+Dive into the top Netflix shows that pack a punch in a concise format, delivering complete stories in 20 episodes or fewer, from Arcane to One Day.
+---------
+
+# 'Suits' Revival Gets a Promising Update From a Taylor Sheridan Star
+
+TV News, Suits, Suits LA, Netflix, Gina Torres
+
+Sun, 26 Jul 2026 09:20:15 GMT
+
+https://collider.com/suits-revival-update-patrick-j-adams-idea/
+
+Patrick J. Adams, known for his role as Mike Ross in Suits, shares a potential revival idea for the popular legal drama series.
+---------
+
+# Prime Video’s New Crime Drama Adaptation Features "Captivating" Turn From 'Game of Thrones' Star [Exclusive]
+
+Exclusives, Criminal, Chris Diamantopoulos, Ed Brubaker, Breaking Bear
+
+Sun, 26 Jul 2026 09:00:15 GMT
+
+https://collider.com/prime-video-criminal-adaptation-accuracy-emilia-clarke-performance/
+
+Chris Diamantopoulos opened up about the upcoming adaptation of Ed Brubaker's Criminal and the captivating performance of Emilia Clarke.
+---------
+
+# Simon Pegg's Criminally Overlooked Thriller Is Officially Moving Forward With Season 3
+
+TV News, Simon Pegg, The Undeclared War, Thriller, Channel 4
+
+Sun, 26 Jul 2026 09:00:15 GMT
+
+https://collider.com/simon-pegg-cyber-thriller-the-undeclared-war-season-3-update/
+
+Simon Pegg's criminally underrated cyber-thriller, The Undeclared War, scores a huge Season 3 update. Read on for more details.
+---------
+
+# Christopher Nolan's 'The Odyssey' Officially Breaks 'The Dark Knight's Box-Office Record
+
+Movie News, The Odyssey, The Dark Knight, Christopher Nolan, Box Office
+
+Sun, 26 Jul 2026 08:40:15 GMT
+
+https://collider.com/the-odyssey-overtakes-the-dark-knight-box-office-record-christopher-nolan/
+
+Christopher Nolan just delivered the biggest Tuesday haul of his career, with The Odyssey breaking The Dark Knight's record.
+---------
+
+# HBO’s 2-Part Sci-Fi Epic Surges Into Top 10 Before New Release
+
+TV News, Dune: Prophecy, HBO Max, Dune: Part Three, HBO
+
+Sun, 26 Jul 2026 08:20:15 GMT
+
+https://collider.com/hbo-sci-fi-series-dune-prophecy-streaming-success-july-2026/
+
+HBO's two-season sci-fi powerhouse is surging on streaming right now before the franchise's new release this year.
+---------
+
+# Henry Cavill’s New Detective Movie Keeps Plummeting on the Netflix Charts
+
+Movie News, Enola Holmes 3, Millie Bobby Brown, Henry Cavill, Netflix
+
+Sun, 26 Jul 2026 08:00:15 GMT
+
+https://collider.com/henry-cavill-enola-holmes-3-netflix-viewership-drop-july-2026/
+
+Enola Holmes 3, starring Millie Bobby Brown and Henry Cavill, continues to plummet on the Netflix viewership charts. Find out where it stands.
+---------
+
 # New Mistborn Handbook Is A Must-Have For Brandon Sanderson Fans
 
 Tabletop, Mistborn, Brandon Sanderson, tabletop games
@@ -5397,103 +5496,4 @@ Fri, 24 Jul 2026 19:46:15 GMT
 https://www.cbr.com/best-free-to-play-jrpg-very-positive-steam-reviews-reverse-1999/
 
 One of the best free-to-play JRPGs on Steam had over 1 million pre-registrations and has earned Very Positive reviews.
----------
-
-# Chuck Russell, The Mask and A Nightmare on Elm Street 3 Director, Dies at 74
-
-Movies, The Mask, A Nightmare on Elm Street 3: Dream Warriors, obituary
-
-Fri, 24 Jul 2026 19:43:10 GMT
-
-https://www.cbr.com/chuck-russell-dead/
-
-Filmmaker Chuck Russell, also known for directing other movies like The Blob and The Scorpion King, has passed away.
----------
-
-# The Walking Dead Spinoff Officially Brings Back 1 Beloved Character 12 Years Later
-
-TV, The Walking Dead, The Walking Dead: Dead City, San Diego Comic-Con
-
-Fri, 24 Jul 2026 19:36:19 GMT
-
-https://www.cbr.com/the-walking-dead-dead-city-season-3-alternate-episode-beth/
-
-The zombie franchise will return soon, and will bring a fan-favorite character.
----------
-
-# You're Not a True Anime Fan Until You've Seen These 10/10 Series
-
-Anime
-
-Fri, 24 Jul 2026 19:30:15 GMT
-
-https://www.cbr.com/must-watch-anime-list/
-
-True fans need to watch anime like Death Note and Attack On Titan.
----------
-
-# 5 Best Low-Fantasy Anime With Superb Magic Systems
-
-Anime, Noragami, Jujutsu Kaisen
-
-Fri, 24 Jul 2026 19:15:26 GMT
-
-https://www.cbr.com/best-low-fantasy-anime-with-great-magic-systems/
-
-These anime use magic to deepen their characters, conflicts, and settings instead of relying on spectacle alone.
----------
-
-# Apple TV's 2026 Sci-Fi Masterpiece Just Quietly Outperformed 'Severance'
-
-TV Features, Star City, For All Mankind, Apple TV, Science Fiction
-
-Fri, 24 Jul 2026 20:08:14 GMT
-
-https://collider.com/apple-tv-best-sci-fi-star-city-severance-replacement/
-
-Star City earned even stronger reviews than Severance, proving Apple TV has another sci-fi masterpiece on its hands.
----------
-
-# 'The Mask' and 'A Nightmare on Elm Street 3' Director Chuck Russell Dead at 74
-
-Movie News, Chuck Russell, The Mask, Eraser, A Nightmare on Elm Street 3: Dream Warriors
-
-Fri, 24 Jul 2026 19:57:23 GMT
-
-https://collider.com/the-mask-nightmare-on-elm-street-3-director-chuck-russell-dead-at-74/
-
-Chuck Russell, the visionary filmmaker behind The Mask, Eraser, Nightmare on Elm Street 3, and more has died at age 74.
----------
-
-# First Look at 'The Walking Dead: Dead City' Season 3 Officially Reveals a 'Westworld' Star's Role
-
-TV News, The Walking Dead: Dead City, Jeffrey Dean Morgan, San Diego Comic-Con, Lauren Cohan
-
-Fri, 24 Jul 2026 19:54:20 GMT
-
-https://collider.com/the-walking-dead-dead-city-season-3-sneak-peek-jimmi-simpson/
-
-Negan and Maggie are back in a new sneak peek of The Walking Dead: Dead City, which also introduces a Westworld star to the cast.
----------
-
-# CBS Officially Reveals 'What We Do in the Shadows' Replacement With New Vampire Sitcom
-
-TV News, Eternally Yours, What We Do in the Shadows, CBS, SDCC
-
-Fri, 24 Jul 2026 19:45:17 GMT
-
-https://collider.com/eternally-yours-new-sitcom-plot-details-what-we-do-in-the-shadows-replacement/
-
-Discover the new vampire sitcom Eternally Yours, CBS' new What We Do in the Shadows replacement, set to premiere this fall.
----------
-
-# 10 Most Perfectly Cast Movie Roles of All Time
-
-Movie, The Lord of the Rings, Iron Man, Harry Potter and the Sorcerer's Stone, Actors
-
-Fri, 24 Jul 2026 19:44:14 GMT
-
-https://collider.com/most-perfectly-cast-movie-roles-all-time-ranked/
-
-Vivien Leigh as Scarlett O'Hara, Sean Connery as James Bond, and Kathy Bates as Annie Wilkes are among the most perfectly cast movie roles ever.
 ---------
