@@ -1,3 +1,267 @@
+# Pamela Anderson Addresses Potential Baywatch Reboot Return In Fox's New Series
+
+TV, Baywatch
+
+Sun, 26 Jul 2026 16:42:00 GMT
+
+https://screenrant.com/baywatch-reboot-series-pamela-anderson-return-potential-response/
+
+Pamela Anderson confirms she has no plans to return for Fox's upcoming Baywatch reboot, stating she's focused on new creative opportunities.
+---------
+
+# The MCU's Newest Movie Is The Perfect Place For Mahershala Ali's Blade To Appear
+
+Superheroes, Ghost Rider, Marvel Cinematic Universe, Blade
+
+Sun, 26 Jul 2026 16:40:11 GMT
+
+https://screenrant.com/blade-mahershala-ali-ghost-rider-movie/
+
+Mahershala Ali's Blade has waited seven years to appear in an MCU movie, and a newly announced film immediately becomes the perfect spot.
+---------
+
+# Upcoming Marvel Movies: MCU Phase 6 and Beyond - Full List
+
+Superheroes, Marvel Cinematic Universe
+
+Sun, 26 Jul 2026 16:32:47 GMT
+
+https://screenrant.com/marvel-movie-mcu-upcoming-release-date-list-order/
+
+With Marvel Studios' MCU now dominating the upcoming release slate for Marvel movies, here's what to expect in the coming years and beyond.
+---------
+
+# 20-Part Fantasy Series That's Lord Of The Rings Meets The Witcher Launched An Oscar Nominee's Career
+
+Classic TV, Masked Recs
+
+Sun, 26 Jul 2026 16:30:11 GMT
+
+https://screenrant.com/the-shannara-chronicles-launch-austin-butler-career-lotr-witcher/
+
+A 10-year-old 20-episode fantasy series that launched this actor’s career is the perfect combination of The Lord of the Rings and The Witcher.
+---------
+
+# 2026’s New Sci-Fi Comedy Ann Droid Is Black Mirror Meets Ted Lasso
+
+TV, Black Mirror, Sci-Fi
+
+Sun, 26 Jul 2026 16:20:11 GMT
+
+https://screenrant.com/ann-droid-sci-fi-comedy-show-2026/
+
+2026's newest sci-fi comedy has garnered some strong review results thanks to its ability to make a dystopian concept into a source of comedy.
+---------
+
+# The Odyssey High-Quality Bootleg Leaks Online As Box Office Records Rise
+
+Movies, The Odyssey
+
+Sun, 26 Jul 2026 16:19:27 GMT
+
+https://screenrant.com/the-odyssey-bootleg-leak-box-office-success/
+
+The Odyssey crash-landed on X, as millions watched a high-quality bootleg of Christopher Nolan's epic while box office records continue to rise.
+---------
+
+# Hulu's 16-Part Sci-Fi Series Renewed For Season 3 Is A Dystopian Masterpiece
+
+TV, Masked Recs
+
+Sun, 26 Jul 2026 16:01:11 GMT
+
+https://screenrant.com/paradise-hulu-tv-show-dystopian-masterpiece/
+
+Hulu's latest sci-fi masterpiece has been renewed for a third season, promising more mind-bending dystopian thrills from the acclaimed thriller.
+---------
+
+# Pokémon Fans Split Over New Chimchar Evolution
+
+Gaming, Pokemon, Nintendo, Pokemon Diamond and Pearl, Nintendo Switch
+
+Sun, 26 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/pokemon-new-chimchar-evolution-leaked/
+
+There's a new Chimchar Pokémon evolution, and fans cannot make up their mind about whether they like it or not.
+---------
+
+# Yellowstone: A Dutton Crossover Is Hiding in Plain Sight
+
+TV, Originals
+
+Sun, 26 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/video/yellowstone-a-dutton-crossover-is-hiding-in-plain-sight/
+
+Yellowstone's next crossover may already be closer than fans realize. Dutton Ranch and Marshalls ended their first seasons with remarkably similar finales, and that may not be a coincidence.
+---------
+
+# 6 Years Ago, Demon Slayer Changed The Anime Industry For The Worse
+
+Anime, Demon Slayer
+
+Sun, 26 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/demon-slayer-killed-standalone-anime-movies/
+
+The anime industry traded creative freedom for box-office certainty some six years ago, and the architect of that trade was Demon Slayer.
+---------
+
+# 15 Strongest To Be Hero X Characters, Ranked
+
+Anime, To Be Hero X
+
+Sun, 26 Jul 2026 16:33:36 GMT
+
+https://www.cbr.com/to-be-hero-x-strongest-heroes-anime/
+
+To Be Hero X focuses on hero rankings in a futuristic world built on Trust, and there are plenty of powerful heroes in that world.
+---------
+
+# Prime Video's 4-Season Sci-Fi Sleeper Hit Is the Perfect Altered Carbon Replacement
+
+TV, Prime Video, Upload, Sci-Fi
+
+Sun, 26 Jul 2026 16:31:15 GMT
+
+https://www.cbr.com/prime-video-upload-altered-carbon-sci-fi-replacement/
+
+Prime Video’s series turns digital immortality into dark comedy, blending smart sci-fi, relatable characters, and satire for Altered Carbon fans.
+---------
+
+# Taylor Sheridan's Hit 3-Part Spy Series Is CIA Yellowstone (& It's Perfect)
+
+TV, Yellowstone
+
+Sun, 26 Jul 2026 16:30:34 GMT
+
+https://www.cbr.com/taylor-sheridan-lioness-season-3-cia-yellowstone/
+
+Taylor Sheridan's three-part CIA thriller on Paramount+ is a great watch for Yellowstone fans looking for even more star power and high-stakes action.
+---------
+
+# 10 Greatest Action Anime Series From 2011 to 2020
+
+Anime, Attack on Titan, Hunter X Hunter, One-Punch Man
+
+Sun, 26 Jul 2026 16:16:14 GMT
+
+https://www.cbr.com/best-action-anime-2010s/
+
+Anime like Hunter x Hunter and Attack on Titan defined the action genre in the 2010s.
+---------
+
+# One Piece Chapter 1189 Drops Void Century Combat Lore
+
+Anime, One Piece
+
+Sun, 26 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/one-piece-chapter-1189-review-imu-first-twenty-void-century/
+
+One Piece Chapter 1189 doesn't really further the story, but the lore drops are incredible
+---------
+
+# Kenneth Branagh's $353M Agatha Christie Mystery Heading to a New Streaming Home in Just 5 Days
+
+Movies, Murder on the Orient Express, Mystery, HBO Max
+
+Sun, 26 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/murder-on-the-orient-express-poirot-mystery-streaming-hbo-august-2026/
+
+Kenneth Branagh's adaptation of Agatha Christie's classic Hercule Poirot mystery, Murder on the Orient Express, is heading to a new streaming home.
+---------
+
+# 8 Greatest Horror Movie Performances of the 21st Century, Ranked
+
+Movies, Horror, Obsession, It
+
+Sun, 26 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/best-horror-movie-performances-21st-century-list/
+
+These show-stopping horror performances are the absolute best of the 21st century.
+---------
+
+# Pokémon Finally Brings Captain Pikachu to Its Most Underrated Video Game
+
+Anime, Pokemon, Pokémon Horizons
+
+Sun, 26 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/pokemon-sleep-captain-pikachu-crossover/
+
+Pokémon Horizons' adorable mascot, Captain Pikachu, makes his grand debut in a game frequently overlooked by even the most die-hard Pokémon fans.
+---------
+
+# Star Trek Cast Tease Unannounced Movie Ahead of Franchise Reboot
+
+TV, Star Trek, Star Trek: Strange New Worlds, San Diego Comic-Con
+
+Sun, 26 Jul 2026 15:40:15 GMT
+
+https://www.cbr.com/star-trek-cast-tease-strange-new-worlds-christmas-movie/
+
+The cast of one of the most critically acclaimed Star Trek series of all time tease an unannounced movie ahead of the next feature film reboot.
+---------
+
+# 7 Forgotten Netflix Thriller Movies That Are Perfect From Start to Finish
+
+Movie, Netflix, Thriller, The Killer, The Platform
+
+Sun, 26 Jul 2026 16:06:15 GMT
+
+https://collider.com/forgotten-netflix-thriller-movies-perfect-start-to-finish/
+
+From the David Fincher film The Killer to Chloe Domont's feature debut Fair Play, these forgotten Netflix thriller movies are practically flawless.
+---------
+
+# The Sci-Fi Trilogy That Changed Hollywood Forever Is Finally Coming to Streaming
+
+Movie News, The Matrix, The Matrix Reloaded, The Matrix Revolutions, Peacock
+
+Sun, 26 Jul 2026 16:00:15 GMT
+
+https://collider.com/keanu-reeves-the-matrix-sci-fi-trilogy-streaming-peacock/
+
+The Wachowskis' The Matrix trilogy is coming to Peacock soon. Find out when you can watch the greatest sci-fi series of all time.
+---------
+
+# 'Lost' Showrunner Carlton Cuse Exposes the Real Problem With Streaming TV
+
+Exclusives, Carlton Cuse, Lost, ABC, Damon Lindelof
+
+Sun, 26 Jul 2026 15:54:14 GMT
+
+https://collider.com/lost-showrunner-carlton-cuse-streaming-tv-interview/
+
+Lost showrunner Carlton Cuse on the challenges of making network TV, the evolution of streaming TV, and where the future will lead.
+---------
+
+# "Saving Private Ryan Meets Resident Evil" Action War Movie Sets New Release
+
+Movie News, Overlord, Horror, War
+
+Sun, 26 Jul 2026 16:44:04 GMT
+
+https://movieweb.com/overlord-blu-ray-steelbook-release-date/
+
+A new premium release of this World War II zombie thriller is on its way.
+---------
+
+# The Most Confusing TV Ending of All Time Was Explained Perfectly by the Show's Creator
+
+Features, The Sopranos
+
+Sun, 26 Jul 2026 16:00:12 GMT
+
+https://movieweb.com/the-sopranos-tony-ending-explained-david-chase/
+
+'The Sopranos' had a polarizing ending, but series creator David Chase has a simple explanation that's really quite fascinating.
+---------
+
 # 10 Absolute Worst Devil Fruits In One Piece
 
 Streaming TV, One Piece
@@ -5232,268 +5496,4 @@ Sat, 25 Jul 2026 02:19:41 GMT
 https://www.cbr.com/dungeons-dragons-honor-among-thieves-2-script-written/
 
 An update on the Dungeons & Dragons: Honor Among Thieves sequel reveals good news and bad news.
----------
-
-# 5 Classic Sega Genesis Games That Are 10/10 Masterpieces
-
-Games, Sega Genesis, Video Games, Sonic the Hedgehog
-
-Sat, 25 Jul 2026 02:15:15 GMT
-
-https://www.cbr.com/best-classic-sega-genesis-masterpieces/
-
-The Sega Genesis had a library packed with games the blew everyone away in the '90s, and are still perfect today.
----------
-
-# Sung Jinwoo Gets Perfect New Redesign Ahead of Solo Leveling Season 3
-
-Anime, Solo Leveling
-
-Sat, 25 Jul 2026 02:00:24 GMT
-
-https://www.cbr.com/solo-leveling-jinwoo-omniscient-readers-viewpoint-art/
-
-Amid the Solo Leveling: Ragnarok manhwa's ongoing hiatus, Jinwoo has received a new art redesign from the artist behind Omniscient Reader's Viewpoint.
----------
-
-# The 8 Strongest Deadites In Evil Dead Burn, Ranked by Power
-
-Movies, Evil Dead Burn
-
-Sat, 25 Jul 2026 02:00:24 GMT
-
-https://www.cbr.com/every-evil-dead-burn-deadite-ranked-by-power-list/
-
-Every Deadite that appears in Evil Dead Burn (2026) plays an important role, but let's take a look at how strong they actually are.
----------
-
-# Alan Ritchson's New Dialogue-Free Action Movie Splits the Critics
-
-Movies, Motor City
-
-Sat, 25 Jul 2026 01:45:49 GMT
-
-https://www.cbr.com/motor-city-rotten-tomatoes-score/
-
-Actions speak louder than words in the newest movie featuring Reacher star Alan Ritchson.
----------
-
-# 5 Most Powerful Monsters In Yu-Gi-Oh!, Ranked
-
-Anime, Yu-Gi-Oh!
-
-Sat, 25 Jul 2026 01:45:15 GMT
-
-https://www.cbr.com/yugioh-most-powerful-monsters-ranked/
-
-There are thousands of Yu-Gi-Oh! monsters, and a small handful stand out as the most powerful of all time.
----------
-
-# Thranduil's Return Proves LOTR Is Avoiding a Major Star Wars Mistake
-
-Movies, The Lord of the Rings: The Hunt for Gollum
-
-Sat, 25 Jul 2026 01:30:15 GMT
-
-https://www.cbr.com/lotr-hunt-for-gollum-avoid-star-wars-legacy-casting-mistake/
-
-The Lord of the Rings: The Hunt for Gollum's casting announcement is proof that the film will do something Star Wars' sequel trilogy failed to.
----------
-
-# Spaceballs Sequel Serves as a 'Love Letter' to John Candy
-
-Movies, Spaceballs: The New One, Spaceballs, San Diego Comic-Con
-
-Sat, 25 Jul 2026 00:54:28 GMT
-
-https://www.cbr.com/spaceballs-2-the-new-one-love-letter-john-candy/
-
-The Spaceballs: The New One team addresses honoring John Candy with the upcoming sequel.
----------
-
-# Big Bang Theory Creators Reveal Stuart's Wildest Ideas | SDCC 2026
-
-TV, Stuart Fails to Save the Universe
-
-Sat, 25 Jul 2026 00:47:35 GMT
-
-https://www.cbr.com/video/big-bang-theory-creators-reveal-stuart-s-wildest-ideas-sdcc-2026/
-
-Stuart Fails to Save the Universe stars Kevin Sussman, Lauren Lapkus, John Ross Bowie, Brian Posehn, and creators Chuck Lorre, Bill Prady, and Zak Penn reveal the funniest behind-the-scenes stories from the new Big Bang Theory spin-off at SDCC 2026.
----------
-
-# 8 Reasons It’s Hard to Watch Gundam Wing Today
-
-Anime, Mobile Suit Gundam Wing, Mobile Suit Gundam
-
-Sat, 25 Jul 2026 00:45:14 GMT
-
-https://www.cbr.com/gundam-wing-reasons-hard-to-watch-today/
-
-Mobile Suit Gundam Wing is a formative, fan-favorite entry in the long-running mecha franchise, but it's not without its share of frustrating flaws.
----------
-
-# 5 'Game of Thrones' References You May Have Missed in 'House of the Dragon' Season 3
-
-TV, House of the Dragon, Game Of Thrones, HBO, A Song of Ice and Fire
-
-Sat, 25 Jul 2026 02:02:14 GMT
-
-https://collider.com/5-game-of-thrones-references-missed-house-of-the-dragon-season-3/
-
-House of the Dragon is full of small, subtle references to Game of Thrones that deepen the immersion for viewers.
----------
-
-# Russell Crowe's 122-Minute Western Masterpiece Is Officially Netflix's Newest Streaming Smash
-
-Movie News, 3:10 to Yuma, Quentin Tarantino, Christian Bale, Russell Crowe
-
-Sat, 25 Jul 2026 02:00:24 GMT
-
-https://collider.com/3-10-to-yuma-quentin-tarantino-favorite-western-author-streaming-success-netflix-july-2026/
-
-The 3:10 to Yuma remake, based on a story by Quentin Tarantino's favorite Western author Elmore Leonard, is having a resurgence on streaming.
----------
-
-# 'The Simpsons' Officially Reaches the End of an Era
-
-TV Features, The Simpsons, Disney+, The Simpsons Movie, The Simpsons 2
-
-Sat, 25 Jul 2026 01:55:15 GMT
-
-https://collider.com/the-simpsons-season-new-disney-plus-exclusive-episodes/
-
-The Simpsons is going through a format change with new exclusive Disney+ episodes debuting in the summer instead of the regular TV season.
----------
-
-# 'God of War Laufey' Officially Confirms Early Release Date
-
-Gaming News, God of War, Deborah Ann Woll, SDCC
-
-Sat, 25 Jul 2026 01:51:21 GMT
-
-https://collider.com/god-of-war-laufey-release-date-february-16-2027/
-
-The release date for God of War: Laufey has been revealed, and it's much sooner than expected. Read on for all the details!
----------
-
-# Christopher Nolan’s ‘The Odyssey’ Slays Ridley Scott’s 10/10 Sci-Fi Sequel at the Box Office
-
-Movie News, The Odyssey, Blade Runner 2049, Ridley Scott, Denis Villeneuve
-
-Sat, 25 Jul 2026 01:45:14 GMT
-
-https://collider.com/christopher-nolan-the-odyssey-overtakes-blade-runner-2049-box-office-306-million/
-
-Christopher Nolan's The Odyssey has overtaken the sci-fi masterpiece Blade Runner 2049 in just four days at the box office.
----------
-
-# 20 Greatest Video Games of the 21st Century
-
-Video Games, Video Game, The Witcher 3: Wild Hunt, Resident Evil 4, Super Smash Bros. Ultimate
-
-Sat, 25 Jul 2026 01:41:14 GMT
-
-https://collider.com/best-video-games-21st-century-ranked/
-
-Modern masterpieces like The Witcher 3: Wild Hunt, Resident Evil 4, and Red Dead Redemption are all among the best video games of the 21st century.
----------
-
-# ‘Avengers: Doomsday’ Is Already a Box Office Hit
-
-Movie News, Avengers: Doomsday, Robert Downey Jr, Chris Evans, Chris Hemsworth
-
-Sat, 25 Jul 2026 01:30:14 GMT
-
-https://collider.com/avengers-doomsday-box-office-advance-ticket-sales-16-million/
-
-Tickets for Avengers: Doomsday are already on sale, and the hotly anticipated MCU movie has earned millions of dollars five months ahead of release.
----------
-
-# Prime Video’s First-Ever ‘Reacher’ Spin-Off Gets an Early Sneak Peek
-
-TV News, Reacher, Alan Ritchson, Prime Video, Neagley
-
-Sat, 25 Jul 2026 01:15:15 GMT
-
-https://collider.com/prime-video-reacher-spin-off-neagley-first-look-maria-sten-images/
-
-Prime Video unveils the first look at Neagley, the Reacher spin-off starring Maria Sten, ahead of its September premiere.
----------
-
-# Annette Bening Is Great in Everything, but These 4 Movies Are Her Masterpieces
-
-Movie, Annette Bening, American Beauty, The Grifters, The Kids Are All Right
-
-Sat, 25 Jul 2026 01:14:15 GMT
-
-https://collider.com/best-annette-bening-movies-masterpieces/
-
-From The Kids Are All Right to American Beauty, these performances show why Annette Bening remains a screen legend.
----------
-
-# Matt Damon and Ben Affleck’s Forgotten Sci-Fi Thriller Series Is the Perfect Weekend Binge
-
-TV Features, Matt Damon, Ben Affleck, Sci-Fi, Incorporated
-
-Sat, 25 Jul 2026 01:02:14 GMT
-
-https://collider.com/matt-damon-ben-affleck-incorporated-sci-fi-thriller-series/
-
-Matt Damon and Ben Affleck’s overlooked sci-fi thriller Incorporated deserves another look as The Odyssey dominates the box office.
----------
-
-# 8 Masterpiece War Movies That Are Directed Perfectly
-
-Movie Lists, War, Dunkirk, Saving Private Ryan
-
-Sat, 25 Jul 2026 02:00:22 GMT
-
-https://movieweb.com/war-movies-perfect-direction/
-
-There are so many war movies, but not all of them are made by great directors. Every movie lover should experience these at least once.
----------
-
-# The Fate of Marvel's 'X-Men '97' Officially Confirmed Ahead of MCU Reboot
-
-TV News, X-Men '97
-
-Sat, 25 Jul 2026 01:35:53 GMT
-
-https://movieweb.com/x-men-97-renewed-season-4/
-
-Marvel Animation confirmed what the future holds for 'X-Men '97,' one of its most successful Disney+ shows in recent memory.
----------
-
-# 'Game of Thrones': The 10 Best Franchise Villains, Ranked
-
-TV Lists, Game of Thrones, Game Of Thrones, House of the Dragon, A Knight Of The Seven Kingdoms
-
-Sat, 25 Jul 2026 01:33:33 GMT
-
-https://movieweb.com/game-of-thrones-best-franchise-villains/
-
-There are many memorable villains in the 'Game of Thrones' universe, but the best ones are terrifying, entertaining, and believable.
----------
-
-# 'The Walking Dead: Dead City' Season 3 Officially Debuts Rotten Tomatoes Score
-
-TV News, The Walking Dead: Dead City, The Walking Dead
-
-Sat, 25 Jul 2026 00:12:15 GMT
-
-https://movieweb.com/the-walking-dead-dead-city-season-3-rotten-tomatoes-score/
-
-The new season is already at 100% positive reviews.
----------
-
-# 6 Great Movies You Never Realized Were Secret 'The Odyssey' Adaptations
-
-Movie Lists, Finding Nemo, The Hobbit, The Odyssey
-
-Sat, 25 Jul 2026 00:00:12 GMT
-
-https://movieweb.com/the-odyssey-secret-movie-adaptations/
-
-Filmmakers have borrowed major parts of Homer’s structure for centuries. Here are 6 great movies secretly inspired by 'The Odyssey.'
 ---------
