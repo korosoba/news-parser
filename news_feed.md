@@ -1,3 +1,311 @@
+# 8 Gangster Shows Better Than Peaky Blinders
+
+Classic TV, Peaky Blinders
+
+Sun, 26 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/gangster-mob-shows-better-than-peaky-blinders/
+
+Peaky Blinders made seedy British gangster culture into a cinematic historical masterpiece, but it is not the greatest gangster TV show of all time.
+---------
+
+# Attack On Titan's New Season Is The Start Of A New Era
+
+Gaming, Attack on Titan
+
+Sun, 26 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/attack-on-titan-new-season-new-era/
+
+Experience the world of Attack on Titan with a new cooperative deck-building game.
+---------
+
+# Brendan Fraser’s Hit 2026 WWII Thriller Officially Dominates Peacock After 1 Day
+
+Movies, Masked Recs
+
+Sun, 26 Jul 2026 18:42:11 GMT
+
+https://screenrant.com/brendan-fraser-pressure-movie-peacock-july-2026-streaming-charts/
+
+Ahead of The Mummy 4, Brendan Fraser's new World War II thriller movie released earlier this year is dominating Peacock after just one day.
+---------
+
+# DC Debuts an Iconic Hero's Best Redesign of All Time, Bar None
+
+Comics, DC Comics, Masked Recs
+
+Sun, 26 Jul 2026 18:31:47 GMT
+
+https://screenrant.com/absolute-cyborg-redesign-titans/
+
+Among DC's Comic Con reveals is the unveiling of an iconic Justice League hero's new redesign, and it truly may be his best look of all time.
+---------
+
+# One More Xbox Studio Managed To Go Independent After Layoff Wave
+
+Gaming, Xbox, Triple-A Games
+
+Sun, 26 Jul 2026 18:30:11 GMT
+
+https://screenrant.com/alpha-dog-indie-no-more-xbox-ownership/
+
+Xbox's workforce is getting decimated with ongoing layoffs, but another studio managing to become independent is a small win among the huge losses.
+---------
+
+# Star Trek’s Next Great Villain Has Been Hiding In Plain Sight All Along
+
+TV, Star Trek: Strange New Worlds, Star Trek
+
+Sun, 26 Jul 2026 18:30:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-laan-villain/
+
+Star Trek: Strange New Worlds season 4 reveals Lt. La'an Noonien-Singh's fears that she's changing, and she has already shown ther villainous side.
+---------
+
+# Avengers: Doomsday’s Newest Confirmed Star Teases “Existential Epic” Story
+
+Movies, San Diego Comic-Con, Avengers: Doomsday
+
+Sun, 26 Jul 2026 18:30:08 GMT
+
+https://screenrant.com/avengers-doomsday-peggy-return-hayley-atwell-response/
+
+EXCLUSIVE: Avengers: Doomsday has added another star to its roster, and its "existential epic" story is revealed ahead of the anticipated release.
+---------
+
+# Inside ScreenRant's SDCC 2026 Talent Suite: The Entertainment Earth Collection on Display
+
+Comic-Con, San Diego Comic-Con
+
+Sun, 26 Jul 2026 18:25:45 GMT
+
+https://screenrant.com/entertainment-earth-collectibles-screenrant-sdcc-2026-talent-suite/
+
+If you liked what you saw in our SDCC 2026 talent suite interviews, you're in luck — a lot of it is available to add to your own collection.
+---------
+
+# Avengers: Doomsday Reveals New Look At Doom's Throne In SDCC Merch (Exclusive)
+
+Exclusive, Avengers: Doomsday, San Diego Comic-Con
+
+Sun, 26 Jul 2026 18:00:34 GMT
+
+https://screenrant.com/avengers-doomsday-collectibles-merch-sdcc-2026/
+
+San Diego Comic-Con unveils a whole new look at Avengers: Doomsday, with exclusive merch and collectibles from Iron Studios, Mattel, and Bandai.
+---------
+
+# 10 Most Difficult PlayStation 2 Games Ever Made
+
+Gaming, PlayStation 2, Triple-A Games
+
+Sun, 26 Jul 2026 18:00:11 GMT
+
+https://screenrant.com/hardest-playstation-2-games-ranked/
+
+The massive PlayStation 2 library has a few truly tough games in the mix, and conquering its greatest challenges will require both skill and patience.
+---------
+
+# 8 Greatest Action Thrillers Worth Watching Again and Again, Ranked
+
+Movies, Action, Thriller, Die Hard
+
+Sun, 26 Jul 2026 19:00:15 GMT
+
+https://www.cbr.com/best-rewatchable-action-thrillers-ranked-list/
+
+Action-thrillers have been keeping audiences hooked on cinema since the '60s, but these masterpieces are worth watching again and again.
+---------
+
+# The CW's 4-Season Historical Drama With 86% Is Heading to Free Streaming in August
+
+TV, Reign, The CW, Drama
+
+Sun, 26 Jul 2026 19:00:15 GMT
+
+https://www.cbr.com/reign-the-cw-historical-drama-pluto-tv-free-streaming/
+
+The CW's historical drama is coming to Pluto TV on Aug. 1, available to stream for free.
+---------
+
+# Prime Video's New Sci-Fi Reboot Is Bringing Cyberpunk Back to TV
+
+TV, Robocop, Prime Video
+
+Sun, 26 Jul 2026 18:30:15 GMT
+
+https://www.cbr.com/prime-video-robocop-reboot-embracing-cyberpunk/
+
+An action icon is headed back to TV, and this time, a new Prime Video streaming show has the chance to be his best adaptation by embracing cyberpunk.
+---------
+
+# Apple TV's Underrated Sci-Fi Thriller Series Returns With New Episodes Next Month
+
+TV, Dark Matter, San Diego Comic-Con
+
+Sun, 26 Jul 2026 18:17:53 GMT
+
+https://www.cbr.com/apple-tv-dark-matter-season-2-trailer/
+
+The latest hit sci-fi thriller from Apple TV is officially coming back with brand new episodes, and fans don't have to wait long.
+---------
+
+# 10 Classic Anime Series Where Every Episode Is a Masterpiece
+
+Anime, Cowboy Bebop, Samurai Champloo, Monster, Death Note
+
+Sun, 26 Jul 2026 18:15:15 GMT
+
+https://www.cbr.com/classic-anime-every-episode-masterpiece/
+
+The strongest anime classics never rely on filler, repetitive conflicts, or uneven pacing because every episode expands the strengthens the story.
+---------
+
+# New Official One Piece Special Gives the Straw Hats Their Biggest Transformation in 29 Years
+
+Anime, One Piece
+
+Sun, 26 Jul 2026 18:00:15 GMT
+
+https://www.cbr.com/one-piece-straw-hats-marionette-special/
+
+One Piece fans just got what might be the most unexpected franchise entry of all time, and it is absolutely the wildest adaptation yet.
+---------
+
+# Absolute Batman Introduces a Terrifying New Version of Bruce Wayne's Darkest Fear
+
+Comics, Absolute Batman
+
+Sun, 26 Jul 2026 18:00:15 GMT
+
+https://www.cbr.com/absolute-batman-bruce-wayne-darkest-fear/
+
+Things are beginning to look awfully scary for Batman's crusade to save Gotham.
+---------
+
+# Pixar's Sequel in $3.2B Franchise Is Officially the Highest-Grossing Movie of 2026 In Just 5 Weeks
+
+Movies, Toy Story 5, box office
+
+Sun, 26 Jul 2026 17:59:57 GMT
+
+https://www.cbr.com/pixar-toy-story-5-billion-dollar-milestone/
+
+The franchise has been a resounding success and the new milestone proves that.
+---------
+
+# Jason Statham's #1 Box Office Hit Officially Finds a New Streaming Home
+
+Movie News, Jason Statham, Fast & Furious Presents: Hobbs & Shaw, Dwayne Johnson, Peacock
+
+Sun, 26 Jul 2026 19:00:15 GMT
+
+https://collider.com/jason-statham-fast-and-furious-hobbs-and-shaw-streaming-peacock-august-2026/
+
+Jason Statham's biggest hit as a leading man, Hobbs and Shaw, is coming to Peacock soon. Find out when you can watch it.
+---------
+
+# 10 Things 'Spider-Man: Brand New Day' Absolutely Must Deliver
+
+Movie, Spider-Man: Brand New Day, Marvel, Tom Holland, Zendaya
+
+Sun, 26 Jul 2026 18:49:15 GMT
+
+https://collider.com/spider-man-brand-new-day-essential-must-haves/
+
+From epic moments with the Punisher and the Hulk to Jean Grey, here are the things Spider-Man: Brand New Day absolutely needs to deliver.
+---------
+
+# Rick and Morty S9: The Episode That Seemed Impossible | Collider BTS
+
+TV, Rick and Morty
+
+Sun, 26 Jul 2026 18:15:15 GMT
+
+https://collider.com/video/rick-and-morty-s9-the-episode-that-seemed-impossible-collider-bts/
+
+Dan Harmon and Scott Marder break down Rick and Morty Season 9 and reveal how the creative team continues pushing the animated series in unexpected directions.
+---------
+
+# Henry Cavill and Alan Ritchson's WWII Thriller Storms to #1 on Prime Video
+
+Movie News, The Ministry of Ungentlemanly Warfare, Henry Cavill, Alan Ritchson, Guy Ritchie
+
+Sun, 26 Jul 2026 18:00:15 GMT
+
+https://collider.com/henry-cavill-alan-ritchson-ww2-movie-the-ministry-of-ungentlemanly-warfare-streaming-success-prime-video-july-2026/
+
+Henry Cavill's WW2 action thriller with Alan Ritchson, The Ministry of Ungentlemanly Warfare, has stormed to #1 on global streaming charts.
+---------
+
+# This Forgotten 5-Season Western Series Still Makes 'Yellowstone' Look Tame
+
+TV Features, Hell on Wheels, AMC, Anson Mount, Common
+
+Sun, 26 Jul 2026 17:58:14 GMT
+
+https://collider.com/hell-on-wheels-amc-forgotten-western-makes-yellowstone-look-tame/
+
+AMC's forgotten Western Hell on Wheels outshines Yellowstone with its gritty realism and compelling characters, making it a must-watch.
+---------
+
+# 19 Years Later, ‘The Big Bang Theory’s Most Memorable Quote Hits Harder Than Ever
+
+Features, The Big Bang Theory, Great Line
+
+Sun, 26 Jul 2026 19:00:12 GMT
+
+https://movieweb.com/big-bang-theory-sheldon-pilot-quote/
+
+'The Big Bang Theory,' the sitcom that aired for 12 seasons and stars Jim Parsons and Kaley Cuoco, has one particularly memorable quote.
+---------
+
+# 2026 Gets Its Third Billion-Dollar Movie
+
+Movie News, Toy Story 5, The Odyssey, Michael, The Super Mario Galaxy Movie, Box Office
+
+Sun, 26 Jul 2026 18:32:15 GMT
+
+https://movieweb.com/2026-billion-toy-story-5/
+
+And it could just be the beginning.
+---------
+
+# I Rewatched 'The Odyssey's Prequel After Christopher Nolan's New Movie
+
+Features, The Odyssey, Troy
+
+Sun, 26 Jul 2026 18:30:12 GMT
+
+https://movieweb.com/the-odyssey-troy-rewatch/
+
+Here's the biggest thing Christopher Nolan changed in his version of 'The Odyssey', based on its predecessor.
+---------
+
+# 10 Classic Fantasy TV Shows No One Talks About Anymore
+
+TV Lists, The Odyssey, Highlander, Beauty and the Beast
+
+Sun, 26 Jul 2026 18:00:12 GMT
+
+https://movieweb.com/classic-fantasy-tv-shows-forgotten/
+
+Fantasy is a popular genre, and there are many classic TV shows that are underrated and should be talked about more.
+---------
+
+# 8 Shows to Watch If You Miss 'Anne with an E'
+
+TV Lists, Anne With an E
+
+Sun, 26 Jul 2026 18:00:12 GMT
+
+https://movieweb.com/anne-with-an-e-shows-to-watch/
+
+Netflix’s 'Anne with an E' might be over, but there are still plenty of great series fans can find on streaming to fill that void.
+---------
+
 # Avatar 4 Has To Make This Villain Change To Fix The Franchise
 
 Movies, Avatar 4, Avatar
@@ -5188,312 +5496,4 @@ Sat, 25 Jul 2026 10:00:14 GMT
 https://collider.com/clash-of-the-titans-odyssey-meets-300-greek-epic-streaming-peacock-august-2026/
 
 The critically panned Greek mythological epic, Clash of the Titans, is coming to streaming amid The Odyssey's box-office success. Find out when.
----------
-
-# This Paramount+ Classic Sitcom Is Quietly Better Than ‘Cheers’
-
-TV Features, Cheers, Frasier, Kelsey Grammar, Paramount Plus
-
-Sat, 25 Jul 2026 09:57:14 GMT
-
-https://collider.com/paramount-plus-frasier-better-than-cheers-classic-sitcom/
-
-Fraiser remains one of the few spinoffs that exceeds its parent show, Cheers, in popularity thanks to some smart storytelling choices.
----------
-
-# Matt Damon's 142-Minute Sci-Fi Masterpiece Is Soaring on Prime Video
-
-Movie News, Sci-Fi, The Martian, Prime Video, Matt Damon
-
-Sat, 25 Jul 2026 09:40:14 GMT
-
-https://collider.com/the-martian-streaming-success-prime-video-july-2026/
-
-Project Hail Mary fans have sent another sci-fi masterpiece based on an Andy Weir novel up the streaming charts. Here's everything you should know.
----------
-
-# 12 Harsh Realities of Replaying Animal Crossing: New Horizons
-
-Gaming, Animal Crossing New Horizons, Animal Crossing
-
-Sat, 25 Jul 2026 09:00:11 GMT
-
-https://screenrant.com/replaying-animal-crossing-new-horizons-harsh-realities/
-
-While starting a replay of Animal Crossing: New Horizons can reignite their love for the game, starting over has some definite drawbacks.
----------
-
-# July 31 Is A Massive Day For MCU Fans In More Ways Than One
-
-Gaming, Marvel Rivals, Marvel Cinematic Universe
-
-Sat, 25 Jul 2026 08:00:11 GMT
-
-https://screenrant.com/mcu-marvel-rivals-path-to-doom-event-july-31/
-
-Marvel and MCU fans have a lot to celebrate at the end of July, with Spider-Man: Brand New Day's release bearing many fun goodies for the occasion.
----------
-
-# Final Fantasy 14’s First New Evercold Job Has Been Revealed
-
-Games, Final Fantasy, final fantasy xiv, Square Enix
-
-Sat, 25 Jul 2026 08:47:39 GMT
-
-https://www.cbr.com/final-fantasy-14-first-new-evercold-job-revealed/
-
-Square Enix has revealed the first new job for Final Fantasy 14's Evercold expansion: the Bastion, a powerful new Tank that fights with two shields.
----------
-
-# Paramount's Cancelled 'Dexter' Spin-Off Is Officially Making a Comeback
-
-TV News, Dexter: Original Sin, Patrick Gibson, Paramount Plus, 007 First Light
-
-Sat, 25 Jul 2026 09:21:14 GMT
-
-https://collider.com/paramount-cancelled-dexter-original-sin-streaming-success-july-2026/
-
-Paramount's canceled Dexter show starring Patrick Gibson is staging a comeback on global streaming charts.
----------
-
-# 10 Great Five-Season TV Shows Without a Single Flaw
-
-TV, Breaking Bad, Boardwalk Empire, Prison Break, The Last Kingdom
-
-Sat, 25 Jul 2026 09:18:14 GMT
-
-https://collider.com/best-shows-five-seasons-perfect/
-
-Dive into exceptional TV shows that masterfully complete their narratives in just five seasons, from Breaking Bad to Six Feet Under.
----------
-
-# Ryan Murphy Officially Returns With New Crime Series in 11 Days
-
-TV News, The Shards, Ryan Murphy, FX, Horror
-
-Sat, 25 Jul 2026 09:00:15 GMT
-
-https://collider.com/the-shards-ryan-murphy-crime-series-release-date-august-5-2026/
-
-Ryan Murphy's latest dark series about serial killers arrives next week. Here is everything you need to know.
----------
-
-# 22 Years Later, the Greek Epic Christopher Nolan Almost Directed Is Finally Coming to Streaming
-
-Movie News, Troy, Christopher Nolan, Peacock, Brad Pitt
-
-Sat, 25 Jul 2026 08:40:14 GMT
-
-https://collider.com/troy-greek-epic-streaming-peacock-august-2026/
-
-Christopher Nolan nearly directed the 2004 epic Troy before The Odyssey. You can watch the movie on Peacock soon. Find out when.
----------
-
-# 5 Months Later, the Best Sci-Fi Movie You've Never Watched Is Taking Over Hulu
-
-Movie News, Sci-Fi, Hulu, Good Luck, Have Fun, Don't Die, Streaming
-
-Sat, 25 Jul 2026 08:20:14 GMT
-
-https://collider.com/sam-rockwell-sci-fi-good-luck-have-fun-dont-die-streaming-success-hulu-july-2026/
-
-The most underrated sci-fi movie of the year, starring Sam Rockwell and Zazie Beetz, is a streaming hit. Here's everything you should know.
----------
-
-# Taylor Sheridan's Western Masterpiece on Paramount+ Ahead of New Season
-
-TV News, Landman, Taylor Sheridan, Billy Bob Thornton, Paramount Plus
-
-Sat, 25 Jul 2026 08:00:14 GMT
-
-https://collider.com/taylor-sheridan-western-landman-streaming-success-paramount-plus-july-2026/
-
-Landman, the fiery neo-Western written by Taylor Sheridan, is surging on Paramount Plus right now before the Season 3 premiere.
----------
-
-# GTA 6 Official Gameplay Look Leaves Gamers Concerned Over Player Customization
-
-Gaming, Grand Theft Auto 6, Triple-A Games
-
-Sat, 25 Jul 2026 07:30:11 GMT
-
-https://screenrant.com/gta-6-ultimate-edition-cosmetic-quality-reaction/
-
-Grand Theft Auto 6's Ultimate edition offers exclusive cosmetics, but not everyone finds them to be worth the price of the more expensive option.
----------
-
-# James Bond Gets Official New Look In Surprise Update
-
-Gaming, 007 First Light, Triple-A Games, PC
-
-Sat, 25 Jul 2026 06:00:11 GMT
-
-https://screenrant.com/007-first-light-surprise-content-update/
-
-007 Just got a surprise new release to help satisfy fans of the series while we wait for bigger projects, and we couldn't be happier about it.
----------
-
-# It's Official, Baldur's Gate 3 Will Return In 2027
-
-Gaming, Baldur's Gate 3, PC, Baldur's Gate
-
-Sat, 25 Jul 2026 05:30:11 GMT
-
-https://screenrant.com/baldurs-gate-3-2027-return-shadowheart-statue/
-
-After an extremely long wait, fans of Baldur's Gate 3 can finally look forward to a brand-new release for the game.
----------
-
-# House Of The Dragon's Sunfyre Makes Official Return
-
-Gaming, House of the Dragon, Game Of Thrones, Game of Thrones, PC
-
-Sat, 25 Jul 2026 05:00:11 GMT
-
-https://screenrant.com/house-of-the-dragon-sunfyre-dragonfire-return/
-
-After the controversial demise of Sunfyre in House of the Dragon, fans have been waiting to see if Aegon's dragon is really gone.
----------
-
-# Steam Makes 3 Exclusive Downloads Completely Free For 48 Hours
-
-Gaming, Steam, PC
-
-Sat, 25 Jul 2026 04:30:11 GMT
-
-https://screenrant.com/steam-3-free-downloads-48-hours-train-fest/
-
-Users on Steam can get three exclusive downloads completely for free, but they'll have to be quick, as they're only available for 48 hours.
----------
-
-# God Of War Officially Returns 2027 With New Release Starring Thor
-
-Gaming, God of War
-
-Sat, 25 Jul 2026 04:00:14 GMT
-
-https://screenrant.com/god-of-war-thor-january-2027-spotlight/
-
-God Of War will be back in 2027 and Thor will be the star of the show.
----------
-
-# Ransom Canyon Season 2's Biggest Cast Changes Explained
-
-Streaming TV, Ransom Canyon
-
-Sat, 25 Jul 2026 03:59:11 GMT
-
-https://screenrant.com/ransom-canyon-season-2-cast-exits-additions-explained/
-
-Ransom Canyon returned to Netflix for season 2, but there were several cast exits and cast arrivals to set it apart from the first season.
----------
-
-# Halo: Campaign Evolved - Keyes Skull Guide
-
-Gaming, Halo: Campaign Evolved, Halo, Halo: Combat Evolved, PC
-
-Sat, 25 Jul 2026 03:19:43 GMT
-
-https://screenrant.com/halo-campaign-evolved-keyes-skull-guide/
-
-Halo: Campaign Evolved's Keyes Mission contains three hidden Skulls that you'll have to find for the Headhunter trophy: Piñata, Blind, and Catch.
----------
-
-# Odyssey’s Hidden Dune Connection Makes 2026’s “Best Movie” Rivalry Even Better
-
-Movies, The Odyssey, Dune, Dune: Part Three
-
-Sat, 25 Jul 2026 03:16:18 GMT
-
-https://screenrant.com/dune-odyssey-paul-agamemnon-connection/
-
-The Odyssey and Dune: Part Three are set to become two of the best movies of 2026, and, surprisingly, they also have a hidden narrative connection.
----------
-
-# 5 Months Before Avengers: Doomsday, Marvel Studios Hints Mystique Has Been Hiding In Plain Sight
-
-Superheroes, Avengers: Doomsday, Marvel Cinematic Universe, Masked Recs
-
-Sat, 25 Jul 2026 03:10:42 GMT
-
-https://screenrant.com/x-men-97-season-2-mystique-cooper-theory/
-
-Before her confirmed appearance in Avengers: Doomsday, Marvel Studios is hinting that another version of Raven may have been hiding in plain sight.
----------
-
-# Devon Sawa Set To Host Fangoria Chainsaw Awards After A Remarkable Year For Horror
-
-Exclusive, Devon Sawa, San Diego Comic-Con
-
-Sat, 25 Jul 2026 03:00:12 GMT
-
-https://screenrant.com/devon-sawa-fangoria-chainsaw-awards-sdcc-2026/
-
-ScreenRant can exclusively announce Devon Sawa as the host for 2026's Fangoria Chainsaw Awards, featuring nominees like Obsession's Inde Navarette.
----------
-
-# Dragon Ball Unearths Akira Toriyama's Very First Gogeta Design
-
-Anime, Dragon Ball, Dragon Ball Z: Fusion Reborn, Akira Toriyama
-
-Sat, 25 Jul 2026 03:59:15 GMT
-
-https://www.cbr.com/dragon-ball-gogeta-akira-toriyama-first-design/
-
-Dragon Ball fans just got a glimpse at the late, great Akira Toriyama's original design for one of the franchise's most iconic fusions.
----------
-
-# 5 Classic Manga That Are 100% Unreadable Today
-
-Anime, Manga, Astro Boy, Devilman Crybaby
-
-Sat, 25 Jul 2026 03:46:14 GMT
-
-https://www.cbr.com/unreadable-classic-manga-astro-boy/
-
-Manga history rewards pioneers, but foundational work rarely ages gracefully, including historically monumental series like Astro Boy and Devilman.
----------
-
-# 4 Near-Perfect GTA Games Ruined By the Main Character
-
-Games, Grand Theft Auto, Grand Theft Auto 5, Video Games
-
-Sat, 25 Jul 2026 03:15:15 GMT
-
-https://www.cbr.com/gta-controversial-main-characters-grand-theft-auto/
-
-These GTA protagonists are not exactly Niko Bellic or Trevor Philips.
----------
-
-# Crunchyroll Is Quietly Erasing Funimation Anime From Store Shelves
-
-Anime, Crunchyroll, Funimation
-
-Sat, 25 Jul 2026 03:05:14 GMT
-
-https://www.cbr.com/crunchyroll-funimation-anime-exit/
-
-Many Funimation-licensed anime titles are slowly vanishing from Crunchyroll, leaving fans little choice but to hunt for rare physical releases.
----------
-
-# The Transformers: The Movie Gets a New Scene for 40th Anniversary Release
-
-Movies, The Transformers: The Movie
-
-Sat, 25 Jul 2026 03:04:41 GMT
-
-https://www.cbr.com/the-transformers-the-movie-40th-anniversary-new-scene/
-
-Watch the iconic Transformers movie in a way never seen before with an all-new scene on the big screen.
----------
-
-# Kevin Feige Just Confirmed the Next Marvel Saga And It Changes Everything
-
-Movies, MCU, X-Men, Avengers
-
-Sat, 25 Jul 2026 02:45:15 GMT
-
-https://www.cbr.com/kevin-feige-confirms-mutant-saga-mcu-x-men/
-
-Kevin Feige has revealed the name of Marvel's next saga after the Multiverse Saga--and it will change the MCU as we know it.
 ---------
