@@ -1,3 +1,333 @@
+# I'm Rewatching Full House, And I Forgot The Weirdest Thing About The Pilot
+
+Movies, Full House (US)
+
+Sun, 26 Jul 2026 01:00:11 GMT
+
+https://screenrant.com/full-house-pilot-mom-death-weird/
+
+Full House is a cult classic TV show, which is what makes it so surprising to go back to the beginning and realize this weird detail about the pilot.
+---------
+
+# Why Oliver Doesn't Exist In Invincible's Other Universes
+
+Streaming TV, Invincible
+
+Sun, 26 Jul 2026 01:00:11 GMT
+
+https://screenrant.com/invincible-oliver-not-exist-other-universes-reason/
+
+In Invincible season 2, Omni-Man’s other son, Oliver Grayson, is nowhere to be seen in Angstrom Levy’s alternate dimensions for an intriguing reason.
+---------
+
+# 10 Most Worthy Marvel Characters Who Have Wielded Mjolnir
+
+Comics, Marvel
+
+Sun, 26 Jul 2026 01:00:11 GMT
+
+https://screenrant.com/most-worthy-marvel-characters-wield-mjolnir/
+
+Mjolnir stands apart in Marvel lore as a very unique weapon due to a severe heroic assessment ability that only a select few heroes have ever matched.
+---------
+
+# Star Wars: KOTOR Has Another Sequel Nobody Remembers
+
+Gaming, Star Wars: Knights of the Old Republic, Triple-A Games, PC
+
+Sun, 26 Jul 2026 01:00:11 GMT
+
+https://screenrant.com/star-wars-knights-old-republic-sequel-books-revan/
+
+With KOTOR's spinoff and remake release dates nowhere in sight, there's one official sequel you can enjoy right now that nobody talks about enough.
+---------
+
+# Carrie White's New Prom Massacre Revealed In Mike Flanagan's Carrie TV Series Trailer
+
+TV, Carrie, Stephen King, San Diego Comic-Con
+
+Sun, 26 Jul 2026 00:50:12 GMT
+
+https://screenrant.com/carrie-tv-series-trailer-release-date-prime-video/
+
+Prime Video has now unveiled the first official trailer for Carrie, Mike Flanagan's new eight-episode adaptation of Stephen King's classic novel.
+---------
+
+# The Coldest Quote In Star Trek’s Most Divisive Show Is Proven True In Its Final Season
+
+TV, Op-Ed, Star Trek, Star Trek: Starfleet Academy
+
+Sun, 26 Jul 2026 00:30:11 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-coldest-quote-true-new-cadet/
+
+Star Trek: Starfleet Academy is introducing a new rebellious cadet in season 2, and it proves Tarima Sadal's assessment about Caleb Mir was right.
+---------
+
+# 20 Years Later, Nico Robin's Best One Piece Line Is Still One Of The Greatest Quotes In Anime History
+
+Streaming TV, One Piece
+
+Sun, 26 Jul 2026 00:30:11 GMT
+
+https://screenrant.com/nico-robin-i-want-to-live-best-quote-one-piece-anime/
+
+There's hundreds of unforgettable lines of dialogue One Piece, but none are as resonant as four simple words from one of the series' greatest eras.
+---------
+
+# The Modern Era's Greatest Comedy Director Is Also The Most Underrated
+
+Movies, Wet Hot American Summer, Gail Daughtry and the Celebrity Sex Pass, Role Models, Comedy
+
+Sun, 26 Jul 2026 00:30:11 GMT
+
+https://screenrant.com/david-wain-greatest-comedy-director-underrated/
+
+The man who made "Hey... thanks" one of the funniest jokes in a movie deserves more attention
+---------
+
+# Marvel Studios’ 2026 SDCC Panel: Every Announcement & Reveal [UPDATING LIVE]
+
+Comic-Con, San Diego Comic-Con, Marvel Cinematic Universe
+
+Sun, 26 Jul 2026 00:30:02 GMT
+
+https://screenrant.com/marvel-studios-2026-sdcc-panel-announcement-reveals/
+
+Marvel Studios is at San Diego Comic-Con 2026 with a Hall H panel, and here's every announcement and reveal Kevin Feige has made about the MCU.
+---------
+
+# Christopher Nolan's The Odyssey Has A Wild 22-Year-Old Parallel
+
+Movies, The Odyssey, Christopher Nolan, Troy
+
+Sun, 26 Jul 2026 00:10:12 GMT
+
+https://screenrant.com/christopher-nolan-the-odyssey-parallel-with-2004-troy-statue/
+
+The Odyssey continues to take the world by storm, though some may have missed a key parallel to the Greek epic Nolan nearly directed 22 years earlier.
+---------
+
+# Another Taylor Sheridan Show Has Quietly Joined the Yellowstone Universe
+
+TV, Yellowstone, The Madison, 1883
+
+Sun, 26 Jul 2026 01:05:55 GMT
+
+https://www.cbr.com/the-madison-stacy-clyburn-yellowstone-1883-elsa-dutton-quote/
+
+A stand-alone entry in Taylor Sheridan's television collection for Paramount+ quietly aligns with the Yellowstone creator's Dutton universe.
+---------
+
+# Dungeon Crawler Carl Has 1 Character Peacock Absolutely Has to Nail
+
+TV, Dungeon Crawler Carl, Peacock, Peacock Premium
+
+Sun, 26 Jul 2026 01:00:15 GMT
+
+https://www.cbr.com/peacock-dungeon-crawler-carl-princess-donut-importantcharacter/
+
+Bringing Dungeon Crawler Carl into live-action will take some doing, but Princess Donut is perhaps the most challenging part of this equation.
+---------
+
+# Dragon Ball Super Manga Returns to the Beerus Saga After 11 Years
+
+Anime, Dragon Ball, Dragon Ball Super, Dragon Ball Super: Beerus
+
+Sun, 26 Jul 2026 00:45:15 GMT
+
+https://www.cbr.com/dragon-ball-super-toyotarou-beerus-art/
+
+Dragon Ball Super mangaka Toyotarou celebrates the anime's upcoming remake with the most realistic rendition of Universe 7's God of Destruction yet.
+---------
+
+# 10 Long Sega Dreamcast Games That Take Forever to Complete
+
+Games, Shenmue, Record Of Lodoss War, dreamcast
+
+Sun, 26 Jul 2026 00:30:15 GMT
+
+https://www.cbr.com/long-sega-dreamcast-games-take-forever-to-complete/
+
+The Sega Dreamcast boasts a vast library of exceptional games, and these ten titles kept players invested for more hours than any others.
+---------
+
+# The 5 Biggest MK Characters Still Missing After Mortal Kombat 2
+
+Movies, Mortal Kombat II, Mortal Kombat, karl urban
+
+Sun, 26 Jul 2026 00:20:15 GMT
+
+https://www.cbr.com/mortal-kombat-2-movie-biggest-missing-characters-list/
+
+Mortal Kombat II introduced several fan-favorite characters from the video games, but a few iconic fighters have yet to appear on the big screen.
+---------
+
+# 10 Near-Perfect '90s Manga That Aged Like Fine Wine
+
+Anime, Manga, Yu Yu Hakusho, Rurouni Kenshin
+
+Sun, 26 Jul 2026 00:15:15 GMT
+
+https://www.cbr.com/near-perfect-90s-manga-aged-like-fine-wine/
+
+The manga of the '90s are what made countless 2000s kids into the fans they are today.
+---------
+
+# Danny Trejo Confirms Absolute Batman's Dan Quintana Designed Year Of The Devil Cover
+
+CBR Exclusives, San Diego Comic-Con, danny trejo, Absolute Batman
+
+Sun, 26 Jul 2026 00:00:15 GMT
+
+https://www.cbr.com/danny-trejo-year-of-the-devil-absolute-batman-dan-quintana/
+
+Danny Trejo nabbed an absolute talent for his debut graphic novel.
+---------
+
+# The 5 Steamiest Movies of All Time
+
+Movies, The Handmaiden, In the Realm of the Senses, Blue is the Warmest Color
+
+Sun, 26 Jul 2026 00:00:15 GMT
+
+https://www.cbr.com/steamiest-movies-of-all-time-list/
+
+Some movies may have a steamy scene or two, but these five movies rank among the most sensual of all time.
+---------
+
+# Critical Role Officially Returns With New Adventure August 4
+
+Games, Critical Role, San Diego Comic-Con
+
+Sat, 25 Jul 2026 23:50:15 GMT
+
+https://www.cbr.com/critical-role-official-webtoon-august-2026/
+
+WEBTOON is about to give readers access to one of the most incredible and wildly underrated Critical Role stories of all time.
+---------
+
+# 5 Anime That Are Perfect For RPG Fans
+
+Anime, Shangri-La Frontier, Record Of Lodoss War, RPG
+
+Sat, 25 Jul 2026 23:45:15 GMT
+
+https://www.cbr.com/anime-perfect-for-rpg-fans/
+
+Sword and sorcery fantasy anime like Record of Lodoss War and Shangri-La Frontier are perfect for hardcore D&amp;D and RPG fans.
+---------
+
+# Christopher Nolan Abandoned Remaking This Spy Thriller Officially Streaming for Free
+
+TV Features, The Prisoner, Christopher Nolan, Prime Video, Thriller
+
+Sun, 26 Jul 2026 01:01:15 GMT
+
+https://collider.com/christopher-nolan-the-prisoner-spy-thriller-streaming-free/
+
+The Prisoner is a classic spy thriller with complex philosophy and experimental narratives that Christopher Nolan has tried twice to remake.
+---------
+
+# Stephen King’s ‘Carrie’ Is Reborn in Terrifying First Trailer for Prime Video Series
+
+TV News, Carrie, Stephen King, Mike Flanagan, San Diego Comic-Con
+
+Sun, 26 Jul 2026 00:46:29 GMT
+
+https://collider.com/prime-video-carrie-series-trailer-stephen-king-mike-flanagan/
+
+The first trailer for Prime Video's Carrie is finally here, officially reuniting horror icons Stephen King and Mike Flanagan. See it here!
+---------
+
+# 10 Superhero Shows That Are Definitely Not for Kids
+
+TV, Superhero, The Boys, The Punisher, Peacemaker
+
+Sun, 26 Jul 2026 00:34:15 GMT
+
+https://collider.com/superhero-tv-shows-not-for-kids/
+
+Netflix's The Punisher, Prime Video's The Boys, and HBO Max's Peacemaker are dark, violent superhero shows that are intended for adults, not kids.
+---------
+
+# 18 Years Later, HBO’s Crime Drama Masterpiece Is Still Essential Viewing
+
+TV Features, The Wire, David Simon, Idris Elba, Dominic West
+
+Sat, 25 Jul 2026 23:52:14 GMT
+
+https://collider.com/the-wire-hbo-greatest-crime-drama-essential-television/
+
+HBO's The Wire revolutionized television with its complex storytelling and realistic portrayal of society, making it a timeless masterpiece.
+---------
+
+# 44 Years Later, Spock's Best Star Trek Quote Hits Harder Than Ever
+
+TV Features, Star Trek: The Original Series, Star Trek 2: The Wrath of Khan, Star Trek, Paramount+ with Showtime
+
+Sat, 25 Jul 2026 23:36:14 GMT
+
+https://collider.com/star-trek-the-original-series-spock-wrath-of-khan/
+
+Spock's final words to Kirk in Star Trek II: The Wrath of Khan is a poignant reflection of their friendship and the film's central themes.
+---------
+
+# Nathan Fillion Confirms 'The Rookie' Season 9 Filming Start Date [Exclusive]
+
+TV News, The Rookie, SDCC, Nathan Fillion, ABC
+
+Sat, 25 Jul 2026 23:35:15 GMT
+
+https://collider.com/the-rookie-season-9-filming-start-date-nathan-fillion/
+
+Nathan Fillion reveals when filming for The Rookie Season 9 begins, as the long-running ABC series heads into a seasom with a reduced episode count.
+---------
+
+# 'Reacher' Spin-Off Scores First Official Trailer From Prime Video
+
+TV News, Neagley, Reacher, Maria Sten, Alan Ritchson
+
+Sat, 25 Jul 2026 23:29:05 GMT
+
+https://collider.com/reacher-spin-off-neagley-trailer-alan-ritchson/
+
+The first trailer for Alan Ritchson's Reacher spin-off Neagley has been revealed, with the legendary hero helping out his titular companion.
+---------
+
+# Why 'The Odyssey's Controversial Boycott Attempts Failed
+
+Features, The Odyssey
+
+Sun, 26 Jul 2026 00:00:12 GMT
+
+https://movieweb.com/the-odyssey-boycott-failure/
+
+Leading up to the release of 'The Odyssey', a silly and vocal wing of the internet attempted to take the wind out of Odysseus' sails to no avail.
+---------
+
+# 'Reacher' Franchise Expands in First Trailer for New Streaming Spin-Off
+
+TV News, Neagley, Reacher, Prime Video
+
+Sat, 25 Jul 2026 23:40:06 GMT
+
+https://movieweb.com/neagley-first-trailer-prime-video/
+
+Prime Video pushed the boundaries of the 'Reacher' story with the first official trailer for the show's new spin-off series.
+---------
+
+# 'Reacher' Season 4 Trailer Brings Alan Ritchson's Action Hero Back to Prime Video
+
+TV News, Reacher
+
+Sat, 25 Jul 2026 23:27:58 GMT
+
+https://movieweb.com/reacher-season-4-trailer-prime-video/
+
+Prime Video officially released the first trailer for 'Reacher' Season 4 after a presentation at San Diego Comic-Con.
+---------
+
 # 6 Mortal Kombat Characters Most Likely To Be Mortal Kombat 3's Main Villain
 
 Movies, Mortal Kombat, Mortal Kombat II, Mortal Kombat: Annihilation
@@ -5166,334 +5496,4 @@ Fri, 24 Jul 2026 18:00:12 GMT
 https://movieweb.com/camping-horror-movies-keep-you-out-of-the-woods/
 
 Oftentimes, horror works as a cautionary tale. In the case of the following movies, they will be scary enough to cancel that camping trip.
----------
-
-# Alan Ritchson Returns In R-Rated Action Thriller Before 'Reacher' Season 4
-
-Features, Alan Ritchson, Motor City, Action, Reacher
-
-Fri, 24 Jul 2026 17:57:57 GMT
-
-https://movieweb.com/motor-city-alan-ritchson-action-thriller/
-
-Alan Ritchson is starring in an action thriller movie two weeks before the Season 4 premiere of the Amazon Prime Video series 'Reacher.'
----------
-
-# 'Blade Runner 2099' Trailer Unveils Bold New Era for Sci-Fi Saga as Release Date Confirmed
-
-TV News, Blade Runner 2099, Blade Runner 2049, Blade Runner, Prime Video, Comic-Con
-
-Fri, 24 Jul 2026 17:25:45 GMT
-
-https://movieweb.com/blade-runner-2099-trailer-release-date/
-
-The first trailer for Prime Video's 'Blade Runner 2099' debuted at San Diego Comic-Con (SDCC), giving fans a glimpse of the sci-fi sequel series.
----------
-
-# Tom Holland Makes Spider-Man History With Marvel Milestone
-
-Movies, Spider-Man
-
-Fri, 24 Jul 2026 17:00:11 GMT
-
-https://screenrant.com/tom-holland-spider-man-history-brand-new-day-record/
-
-With the long-anticipated release of Spider-Man: Brand New Day, Tom Holland will officially become the first Spidey actor to star in four solo movies.
----------
-
-# Zelda: Skyward Sword Officially Returns In Limited-Time DLC Event
-
-Gaming, The Legend of Zelda, The Legend of Zelda: Skyward Sword
-
-Fri, 24 Jul 2026 17:00:11 GMT
-
-https://screenrant.com/zelda-skyward-sword-tetris-99-crossover-discounts/
-
-Skyward Sword is one of the most underrated games in Zelda history, and its return is one of the best things we could hope for as fans.
----------
-
-# DC's Big Aquaman Reboot Is Here, And It Just Revealed 2 New Villain Redesigns
-
-DC Comics, Aquaman
-
-Fri, 24 Jul 2026 17:00:11 GMT
-
-https://screenrant.com/dc-aquaman-reboot-villain-designs-black-manta-king-shark/
-
-DC's new Aquaman origin story reveals its new redesigns for two of his biggest villains, Black Manta and King Shark, who look terrifyingly real.
----------
-
-# Doctor Doom & Iron Man's MCU Connection Was Revealed 7 Years Before Avengers: Doomsday (Theory)
-
-Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
-
-Fri, 24 Jul 2026 16:55:11 GMT
-
-https://screenrant.com/doctor-doom-iron-man-mcu-connection-avengers-endgame-theory/
-
-Doctor Doom and Iron Man's connection in the MCU will be addressed in Avengers: Doomsday, but a Marvel theory suggests it was revealed 7 years before.
----------
-
-# How I Met Your Mother's Spiritual Successor Returns In 1 Week
-
-Streaming TV, Masked Recs
-
-Fri, 24 Jul 2026 16:30:11 GMT
-
-https://screenrant.com/himym-spiritual-successor-adults-special-episode-july-31/
-
-The best spiritual successor to How I Met Your Mother is officially coming back in one week with a surprise that will be key to its next season.
----------
-
-# Why The Rings Of Power Has Changed The Nazgûl's Name
-
-Streaming TV, The Lord of the Rings: The Rings of Power
-
-Fri, 24 Jul 2026 16:23:37 GMT
-
-https://screenrant.com/the-rings-of-power-nazgul-name-change-explained/
-
-The Nazgûl will officially appear in The Rings of Power season 3, but under a new name. Fortunately, there's a good reason for the change of canon.
----------
-
-# Marvel Officially Announces Name Of Avengers' New Era
-
-Marvel Comics, The Avengers, San Diego Comic-Con
-
-Fri, 24 Jul 2026 16:16:28 GMT
-
-https://screenrant.com/avengers-iron-man-new-era-armageddon/
-
-After the Avengers survive their biggest 2026 crossover event, a new era will begin for Earth's Mightiest Heroes, led by one of their iconic members.
----------
-
-# Marvel Studios' Spider-Man Show Gives Tom Holland's Peter Parker An Origin Story
-
-Streaming TV, Masked Recs, Spider-Man
-
-Fri, 24 Jul 2026 16:15:11 GMT
-
-https://screenrant.com/your-friendly-neighborhood-spider-man-tom-holland-origin-story/
-
-Marvel Studios has finally begun to explore the origin story of Spider-Man, which manages to really capture the best of old and new Spidey stories.
----------
-
-# DC’s New Official Joker Casting Continues A Vital Batman Tradition
-
-TV, DC Universe, The Joker, Batman: Caped Crusader
-
-Fri, 24 Jul 2026 16:15:11 GMT
-
-https://screenrant.com/dc-new-joker-casting-batman-caped-crusader-tradition/
-
-The newest actor set to play the Joker has been officially confirmed, continuing one key tradition for actors who have taken on the DC role.
----------
-
-# Halo: Campaign Evolved - Two Betrayals Skull Guide
-
-Gaming, Halo: Campaign Evolved, PC, Halo, Halo: Combat Evolved
-
-Fri, 24 Jul 2026 16:06:18 GMT
-
-https://screenrant.com/halo-campaign-evolved-two-betrayals-skull-guide/
-
-Halo: Campaign Evolved's Two Betrayals mission features the Tough Luck, Black Eye, and Mythic Skulls, one of the hardest Skulls to get in the game.
----------
-
-# Netflix's New 6-Part Action Thriller Is the Most-Streamed Show in the World
-
-TV, Netflix
-
-Fri, 24 Jul 2026 17:00:15 GMT
-
-https://www.cbr.com/elite-force-action-netflix-global-success-july-2026/
-
-The latest hit action series is taking over the Netflix charts across the entire globe just days after making its way on the platform.
----------
-
-# Reacher's Future Sounds Even Better With Alan Ritchson's 10-Season Plan
-
-TV, Reacher, Prime Video, Action
-
-Fri, 24 Jul 2026 16:54:44 GMT
-
-https://www.cbr.com/reacher-future-prime-video-alan-ritchson/
-
-Reacher star Alan Ritchson hopes to do 10 seasons of the hit Prime Video action series.
----------
-
-# Game of Thrones: The Mad King Confirms Premiere Date After Canceling Previews
-
-TV, Game Of Thrones, Fantasy
-
-Fri, 24 Jul 2026 16:17:53 GMT
-
-https://www.cbr.com/game-of-thrones-the-mad-king-premiere-date-previews-cancelled/
-
-The Game of Thrones prequel is moving forward despite concerns.
----------
-
-# 10 Near-Perfect Short Form Anime Series You Should Watch
-
-Anime, Hetalia: Axis Powers, The Way of the Househusband
-
-Fri, 24 Jul 2026 16:15:15 GMT
-
-https://www.cbr.com/near-perfect-short-form-anime-short-episodes/
-
-Anime like The Disastrous Life of Saiki K. and Detroit Metal City might have short episodes, yet they certainly pack a punch.
----------
-
-# Godzilla War of the Worlds Crossover Comic Confirmed
-
-Comics, Godzilla, War of The Worlds
-
-Fri, 24 Jul 2026 16:00:14 GMT
-
-https://www.cbr.com/roar-of-the-worlds-godzilla-war-of-the-worlds-crossover/
-
-Godzilla was the one thing missing from this sci-fi classic after all.
----------
-
-# Brendan Fraser's The Mummy 4 is the Adventure Movie Event of the Decade
-
-Movies, The Mummy 4, The Mummy
-
-Fri, 24 Jul 2026 16:00:14 GMT
-
-https://www.cbr.com/brendan-fraser-the-mummy-4-adventure-movie-event-of-decade/
-
-Brendan Fraser is an adventure genre icon, and his return to his most famous franchise will be a massive cinematic event.
----------
-
-# Stephen King Hailed This 2020s Horror Masterpiece as 'the Best Modern Vampire Story Ever'
-
-TV, Stephen King, Horror
-
-Fri, 24 Jul 2026 16:00:14 GMT
-
-https://www.cbr.com/stephen-king-coffin-moon-keith-rosson-horror-book-recommendation/
-
-Stephen King is never shy about praising the horror books, movies, and TV shows he loves, but this 2025 novel might be his most glowing.
----------
-
-# After 13-Year Wait, Star Wars' Shelved Animated Series Confirms Release Date
-
-TV, Star Wars: Detours, Star Wars, Animation
-
-Fri, 24 Jul 2026 15:54:12 GMT
-
-https://www.cbr.com/star-wars-detours-release-date-seth-green/
-
-A lost and forgotten Star Wars series will finally be released.
----------
-
-# Apple TV's The Studio Season 2 Gets Official Filming Update From Seth Rogen
-
-TV, The Studio, Apple TV, Seth Rogen
-
-Fri, 24 Jul 2026 15:53:23 GMT
-
-https://www.cbr.com/the-studio-apple-tv-season-2-filming-wrap/
-
-Season 2 of The Studio, from Apple TV, has finally received the update everyone was waiting for.
----------
-
-# 'The Incredibles' Almost Killed Off a Major Character in the Opening Scene [Exclusive]
-
-Movie News, The Incredibles, Brad Bird, Pixar, San Diego Comic-Con
-
-Fri, 24 Jul 2026 16:48:44 GMT
-
-https://collider.com/the-incredibles-original-opening-syndrome-death-brad-bird/
-
-Brad Bird reveals The Incredibles originally opened with a major character dying in a scrapped scene before becoming a crucial part of the film.
----------
-
-# Netflix’s 'Stranger Things' Officially Returns With Surprise New Release
-
-Books and Comics News, Stranger Things: The First Shadow, Netflix, Stranger Things, Sci-Fi
-
-Fri, 24 Jul 2026 16:22:45 GMT
-
-https://collider.com/netflix-stranger-things-the-first-shadow-graphic-novel-release-date-january-2027/
-
-Stranger Things is officially back with a brand-new release that will expand on one of the franchise's most important characters.
----------
-
-# George R.R. Martin's New 'Game of Thrones' Project Officially Hit With Cancellation
-
-TV News, Game Of Thrones, George R.R. Martin, A Knight Of The Seven Kingdoms, House of the Dragon
-
-Fri, 24 Jul 2026 16:06:31 GMT
-
-https://collider.com/george-rr-martin-game-of-thrones-spin-off-the-mad-king-preview-cancellations/
-
-George R.R. Martin's newest Game of Thrones spin-off debuts in 1 month, but the project has been hit with some shock cancellations. Read on for more.
----------
-
-# 10 Greatest Tom Holland Movies That Aren't Spider-Man
-
-Movie, Tom Holland, The Odyssey, The Impossible, Spider-Man
-
-Fri, 24 Jul 2026 16:06:14 GMT
-
-https://collider.com/best-tom-holland-movies-not-spider-man-ranked/
-
-Although he is best known as the MCU's Spider-Man, Tom Holland has starred in a number of great movies, including The Odyssey and The Impossible.
----------
-
-# 'Reacher' Star Alan Ritchson's Near-Perfect 118-Minute Hit Soars to #1 on Netflix
-
-Movie News, Alan Ritchson, Ordinary Angels, Hot on Streaming, Netflix
-
-Fri, 24 Jul 2026 17:00:12 GMT
-
-https://movieweb.com/ordinary-angels-alan-ritchson-streaming-hit-netflix-july-2026/
-
-As 'Motor City' hits theaters this weekend, another of Ritchson's movies has found tremendous success on streaming.
----------
-
-# 'Doctor Who's Divisive Hard Reboot Idea Comes With an Unexpected Advantage
-
-Features, Doctor Who
-
-Fri, 24 Jul 2026 17:00:12 GMT
-
-https://movieweb.com/doctor-who-steven-moffat-reboot-comments/
-
-Chris Chibnall divided Whovians with the Timeless Child storyline, but Steven Moffat has indirectly provided a solution. Read on for more.
----------
-
-# Matt Damon's New Sci-Fi Action Epic Is an 'Inception'-Style Twist on '80s Classic
-
-Movies, Matt Damon
-
-Fri, 24 Jul 2026 16:20:45 GMT
-
-https://movieweb.com/matt-damon-daniels-sci-fi-action-inception/
-
-Matt Damon will next star in a high-stakes project blending elements of 'The Breakfast Club,' 'Inception,' and anime, set to release in 2027.
----------
-
-# Natalie Portman Finally Finds the Perfect 'Annihilation' Follow-Up in New Sci-Fi Thriller
-
-Movie News, Natalie Portman, Annihilation
-
-Fri, 24 Jul 2026 16:01:55 GMT
-
-https://movieweb.com/natalie-portman-constellations-film-adaptation-jeff-vandermeer/
-
-8 years later, Natalie Portman is adapting a new sci-fi survival story from 'Annihilation' author.
----------
-
-# 'Lord of the Rings' Confirms the Fate of Forgotten Movie Character
-
-Features, The Lord of the Rings: The Rings of Power, The Lord of the Rings, J.R.R. Tolkien
-
-Fri, 24 Jul 2026 16:00:12 GMT
-
-https://movieweb.com/lord-of-the-rings-rings-of-power-confirms-celeborn-fate/
-
-'The Lord of the Rings: The Rings of Power' finally revealed if one forgotten movie character is alive, and the answer fits with Tolkien's lore.
 ---------
