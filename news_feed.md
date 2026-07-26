@@ -1,3 +1,256 @@
+# 10 Most Powerful Magical Objects In Harry Potter, Ranked
+
+Classic Movies, Harry Potter
+
+Sun, 26 Jul 2026 22:25:11 GMT
+
+https://screenrant.com/most-powerful-harry-potter-magical-objects/
+
+Harry Potter has a lot of incredibly powerful magical objects in the wizarding world, and here are the most powerful of the objects in existence.
+---------
+
+# Apple TV's Biggest Upcoming Sci-Fi Series Is Only 6 Months Away
+
+Streaming TV, Masked Recs, San Diego Comic-Con
+
+Sun, 26 Jul 2026 22:15:11 GMT
+
+https://screenrant.com/neuromancer-apple-tv-sci-fi-show-january-2027/
+
+Apple TV’s science fiction offerings are about to become even more impressive with the release of its biggest sci-fi show, set to arrive in 6 months.
+---------
+
+# Ransom Canyon’s Family Tree Explained: How Each Character Connects In Netflix’s Western Series
+
+Streaming TV, Ransom Canyon
+
+Sun, 26 Jul 2026 22:00:12 GMT
+
+https://screenrant.com/ransom-canyon-family-tree-explained/
+
+All of the characters in Netflix's Western drama series Ransom Canyon connect in various ways, through blood, romance, and everything in between.
+---------
+
+# All 11 Known Avatars In The Last Airbender Universe (Before & After Aang)
+
+Streaming TV, Avatar: The Last Airbender, Avatar Aang: The Last Airbender
+
+Sun, 26 Jul 2026 22:00:12 GMT
+
+https://screenrant.com/all-avatars-last-airbender-universe-before-after-aang-cycle/
+
+Avatar: The Last Airbender has a vast mythology, including the many generations of Avatars who have been reincarnated before and after Aang himself.
+---------
+
+# Marvel’s Daredevil Game Getting MCU Fans Hyped After Disney+ Show
+
+Gaming, Daredevil, Triple-A Games
+
+Sun, 26 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/marvel-daredevil-game-mcu-fans/
+
+Marvel is sleeping on Daredevil, an iconic character whose popularity is through the roof and who would adapt well to an action-adventure video game.
+---------
+
+# The Complete Evolution Of Captain America's On-Screen Live-Action Appearances
+
+Superheroes, Marvel Cinematic Universe, Captain America
+
+Sun, 26 Jul 2026 21:55:11 GMT
+
+https://screenrant.com/captain-america-live-action-appearances-evolution/
+
+Captain America, in numerous guises, has appeared in movies and television for over 80 years, evolving significantly throughout the decades.
+---------
+
+# The Rings Of Power Season 3 Canon Change Connects The One Ring To The Silmarils
+
+Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, San Diego Comic-Con
+
+Sun, 26 Jul 2026 21:45:11 GMT
+
+https://screenrant.com/the-rings-of-power-feanor-hammer-silmarils/
+
+The SDCC teaser trailer for The Rings of Power season 3 reveals that Sauron's One Ring to Rule Them All is intriguingly linked to Feanor's Silmarils.
+---------
+
+# How To Watch Ben 10 In Order — By Release Date & Chronologically For All Shows, Movies & Specials
+
+Classic TV, Ben 10
+
+Sun, 26 Jul 2026 21:30:11 GMT
+
+https://screenrant.com/how-to-watch-ben-10-in-order/
+
+There are a significant number of titles in the Ben 10 franchise, making how to watch Ben 10 in order a tricky question with a simple solution.
+---------
+
+# 10 Most Powerful Pokémon TCG Cards That Haven't Been Banned
+
+Games, Pokemon, Pokemon Trading Card Game, Pokemon TCG, Tabletop, TCG
+
+Sun, 26 Jul 2026 22:15:15 GMT
+
+https://www.cbr.com/most-powerful-pokemon-tcg-cards-not-banned/
+
+TCGs ban cards all the time, and Pokémon is no exception to that rule, but there are some incredibly powerful cards that have yet to be banned.
+---------
+
+# 4 Years Later, Gundam Finally Brings Back Char's Counterattack's Blue Zeon Mecha
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam: Char's Counterattack, merchandise, toys, bandai
+
+Sun, 26 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/gundam-chars-counterattack-geara-doga-re-release/
+
+A Master Grade kit based on a mech design from the first original Mobile Suit Gundam movie is once again available for pre-order for fans in the West.
+---------
+
+# 8 Perfect Fantasy Movies Nobody Remembers Today
+
+Movies, Fantasy
+
+Sun, 26 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/best-fantasy-movies-no-one-remembers-list/
+
+A list of eight amazing fantasy movies everyone should see at least once that have, sadly, been forgotten over time.
+---------
+
+# Top 10 DC Elseworlds Comics That Outshine the Originals
+
+Comics, DC Comics, DC Elseworlds, Batman
+
+Sun, 26 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/dc-elseworlds-comics-better-than-originals/
+
+From Elseworlds to Black Label, DC continues to release variations of their world and heroes that outshine the originals, winning the respect of fans.
+---------
+
+# Apple TV's Widow's Bay Season 2 Filming Timeline Unveiled by Showrunner
+
+TV, Widow's Bay
+
+Sun, 26 Jul 2026 21:56:04 GMT
+
+https://www.cbr.com/apple-tv-widows-bay-season-2-filming-timeline/
+
+The show was an unexpected hit and fans want more as soon as possible.
+---------
+
+# CBS’ Risky New NCIS Strategy Is a Historic Franchise First
+
+TV, NCIS: New York, NCIS, CBS, Hawaii Five-0
+
+Sun, 26 Jul 2026 21:37:42 GMT
+
+https://www.cbr.com/cbs-hawaii-five-0-scott-caan-ncis-new-york-franchise-first/
+
+CBS will officially make history with its Navy procedural in the upcoming television schedule, taking a calculated risk with longtime NCIS fans.
+---------
+
+# Timothy Olyphant's New 8-Part Series Returns to No. 1 After Record-Breaking Debut
+
+TV, The Five-Star Weekend
+
+Sun, 26 Jul 2026 21:30:15 GMT
+
+https://www.cbr.com/timothy-olyphant-the-five-star-weekend-peacock-no-1-july-2026/
+
+Timothy Olyphant's shows are making a splash on streaming.
+---------
+
+# 8 TV Shows That Changed Their Formula for the Worse
+
+TV, Television, The Walking Dead, Euphoria, How I Met Your Mother
+
+Sun, 26 Jul 2026 22:21:15 GMT
+
+https://collider.com/tv-shows-worst-formula-change/
+
+AMC's The Walking Dead and HBO's Euphoria are proof that when a TV show changes course, it can actually create more damage, making the series worse.
+---------
+
+# 6 Best Thriller Movies of 2026 (So Far), Ranked
+
+Movie, Thriller, Obsession, Backrooms, Send Help
+
+Sun, 26 Jul 2026 22:03:14 GMT
+
+https://collider.com/best-thriller-movies-2026-ranked/
+
+From Dead Man’s Wire to Crime 101 to Send Help, 2026’s best thrillers prove suspense works best when every choice has consequences.
+---------
+
+# Prime Video's 3-Part 'Silo' Replacement Is Still a Streaming Sensation
+
+TV News, Fallout, Prime Video, Silo, Walton Goggins
+
+Sun, 26 Jul 2026 22:00:14 GMT
+
+https://collider.com/prime-video-sci-fi-fallout-streaming-success-july-2026/
+
+Fallout, which has been widely hailed as Prime Video's answer to Silo, is surging on streaming right now before the arrival of Season 3.
+---------
+
+# These 8 Olivia Colman Movies Are Masterpieces
+
+Movie, Olivia Colman, The Favourite, Hot Fuzz, The Lost Daughter
+
+Sun, 26 Jul 2026 21:55:15 GMT
+
+https://collider.com/best-olivia-colman-movies-masterpieces/
+
+Oscar winner Olivia Colman is great in everything, but films like The Father, The Favourite, and The Lost Daughter stand out as her true masterpieces.
+---------
+
+# A 73-Year-Old Western Featuring Quentin Tarantino’s Favorite Movie Star Is Leaving Paramount+
+
+Movie News, Hondo, John Wayne, John Ford, Quentin Tarantino
+
+Sun, 26 Jul 2026 21:30:15 GMT
+
+https://collider.com/john-wayne-western-hondo-leaving-paramount-plus-august-2026/
+
+The 1953 Western Hondo, starring John Wayne, is about to leave Paramount+ soon. Find out how long you have left to watch it.
+---------
+
+# Henry Cavill's Unofficial James Bond Prequel Sets Free Streaming Release Date
+
+Movie News, The Ministry of Ungentlemanly Warfare, Tubi, Hot on Streaming, James Bond, Henry Cavill
+
+Sun, 26 Jul 2026 22:00:12 GMT
+
+https://movieweb.com/ministry-of-ungentlemanly-warfare-henry-cavill-james-bond-stream-free-tubi-august-2026/
+
+Henry Cavill's unofficial James Bond prequel, 'The Ministry of Ungentlemanly Warfare,' streams for free on Tubi in August 2026.
+---------
+
+# The 10 Greatest Death Scenes in Movie History, Ranked
+
+Movie Lists, Action, Drama, Sci-Fi, War, Fantasy, Horror
+
+Sun, 26 Jul 2026 22:00:12 GMT
+
+https://movieweb.com/greatest-death-scenes-movie-history/
+
+An impactful demise can haunt audiences long after a movie ends, but what sets the greatest death scenes of all time apart from the rest?
+---------
+
+# Syrio Dropped the Most Unforgettable 'Game of Thrones' Quote in Just 3 Episodes
+
+Features, Game Of Thrones, Game of Thrones
+
+Sun, 26 Jul 2026 21:30:12 GMT
+
+https://movieweb.com/game-of-thrones-unforgettable-quote-syrio-forel/
+
+The most unforgettable 'Game of Thrones' quote arrived as early as Season 1, and it had a long-lasting impact on HBO's hit fantasy series.
+---------
+
 # Thanks To Ryan Gosling's Ghost Rider, We're One Step Closer To The MCU's Midnight Sons
 
 Superheroes, Ghost Rider, Marvel Cinematic Universe, San Diego Comic-Con, Ryan Gosling
@@ -5243,257 +5496,4 @@ Sat, 25 Jul 2026 14:15:29 GMT
 https://www.cbr.com/hugh-jackman-the-death-of-robin-hood-digital-release-date/
 
 The movie flopped in theaters but it has the potential to become a true cult classic.
----------
-
-# Showtime’s Longest-Running Drama of All Time Is Actually a Remake of Another Series
-
-TV Features, Showtime, William H. Macy, Shameless
-
-Sat, 25 Jul 2026 15:23:14 GMT
-
-https://collider.com/shameless-showtime-longest-running-drama-british-remake/
-
-Showtime's Shameless ran for 11 seasons, but the British series it's based on was just as successful.
----------
-
-# Matthew Lillard Officially Reveals His Biggest Inspiration for 'Carrie' Wasn't Stephen King's Book [Exclusive]
-
-TV News, Carrie, Matthew Lillard, Mike Flanagan, San Diego Comic-Con, SDCC
-
-Sat, 25 Jul 2026 15:00:15 GMT
-
-https://collider.com/matthew-lillard-role-mike-flanagan-carrie-inspiration/
-
-Matthew Lillard reveals the inspiration for his role in Mike Flanagan's Carrie adaptation, which was not Stephen King's novel, but something darker.
----------
-
-# 10 Classic Movies That Are Good, Not Great
-
-Movie, Rear Window, The Man Who Shot Liberty Valance, The Leopard, All About Eve
-
-Sat, 25 Jul 2026 14:28:14 GMT
-
-https://collider.com/classic-movies-good-not-great/
-
-It might be a hot take to say classics like Jeanne Dielman, 23, quai du Commerce, 1080 Bruxelles and Rear Window are good, not great, but here we are.
----------
-
-# A 111-Minute Streaming Hidden Gem Is Quietly Leaving Netflix After 10 Years
-
-Movies, Tallulah
-
-Sat, 25 Jul 2026 15:05:07 GMT
-
-https://movieweb.com/tallulah-elliot-page-allison-janney-leaving-netflix/
-
-After a 10-year run on Netflix, the streaming platform's original film 'Tallulah' starring Elliot Page and Allison Janney, is set to leave. Directed by Sian Heder, the film explores themes of care and responsibility.
----------
-
-# Steven Spielberg's Most Underrated Sci-Fi Movie Streams Free on YouTube
-
-Features, Steven Spielberg, A.I. Artificial Intelligence, Sci-Fi
-
-Sat, 25 Jul 2026 15:00:12 GMT
-
-https://movieweb.com/ai-artificial-intelligence-steven-spielberg-streaming-free/
-
-Developed with Stanley Kubrick, Steven Spielberg's most timely sci-fi movie has never been better.
----------
-
-# 'Alone': The Best, Most Resilient Contestants, Ranked
-
-TV Lists, Alone
-
-Sat, 25 Jul 2026 15:00:12 GMT
-
-https://movieweb.com/alone-best-contestants-most-resilient-ranked/
-
-Do you think you have what it takes to survive in the wild? Take a look at this list of the most resilient contestants of 'Alone.'
----------
-
-# Prime Video Finally Streaming 2024's "Instant Classic" Sci-Fi Masterpiece
-
-Movie News, The Wild Robot
-
-Sat, 25 Jul 2026 14:50:24 GMT
-
-https://movieweb.com/the-wild-robot-prime-video/
-
-Prime Video has added 'The Wild Robot,' DreamWorks' acclaimed 2024 animated sci-fi hit.
----------
-
-# 'Strange New Worlds' Star Confirms Key Connection to Iconic 'Trek' Villain
-
-TV News, Star Trek: Strange New Worlds
-
-Sat, 25 Jul 2026 14:22:10 GMT
-
-https://movieweb.com/star-trek-strange-new-worlds-laan-khan-connection/
-
-Is 'Strange New Worlds' setting up a tragic plot twist?
----------
-
-# Mark Wahlberg's $329M Real-Life Disaster Thriller Officially Makes a Streaming Comeback
-
-Movie News, Mark Wahlberg, The Perfect Storm, Hot on Streaming
-
-Sat, 25 Jul 2026 14:11:21 GMT
-
-https://movieweb.com/mark-wahlberg-perfect-storm-hbo-max-july-2026/
-
-This movie contains some of Wahlberg's finest dramatic acting.
----------
-
-# We’re Not Joking, Netflix’s 10/10 Teen Mystery Series Is Even Better Than Stranger Things
-
-Streaming TV, Masked Recs
-
-Sat, 25 Jul 2026 14:00:11 GMT
-
-https://screenrant.com/outer-banks-netflix-show-better-than-stranger-things/
-
-Stranger Things may be Netflix's biggest show, but the streaming platform has another even better teen series, which is going into its final season.
----------
-
-# Final Fantasy: Blackmoon Prophecy Is Available Right Now
-
-Gaming, Final Fantasy
-
-Sat, 25 Jul 2026 14:00:11 GMT
-
-https://screenrant.com/final-fantasy-blackmoon-prophecy-rpg-remake/
-
-Discover the stunning fan-made Final Fantasy game Blackmoon Prophecy Remake, now available to download for free on PC.
----------
-
-# 5 Greatest Sith Luke Skywalker Ever Fought
-
-Comics, Star Wars
-
-Sat, 25 Jul 2026 14:00:11 GMT
-
-https://screenrant.com/star-wars-greatest-sith-fought-luke-skywalker/
-
-Luke Skywalker faced many Sith Lords throughout the Star Wars franchise, but these are the 5 greatest Sith that Luke ever fought and how they ended.
----------
-
-# Inside Man Ending Explained (In Detail)
-
-Streaming TV, Inside Man
-
-Sat, 25 Jul 2026 13:45:13 GMT
-
-https://screenrant.com/inside-man-ending-explained-in-detail/
-
-Steven Moffat's twisty thriller Inside Man ends with some loose ends left to tie up, suggesting another outing for Stanley Tucci's death row Sherlock.
----------
-
-# Netflix's New R-Rated Dark Fantasy Is Officially Dominating Streaming With Debut At 4.9M Views
-
-TV, Masked Recs, Netflix
-
-Sat, 25 Jul 2026 13:45:11 GMT
-
-https://screenrant.com/netflix-the-east-palace-july-2026-streaming-charts-debut-report/
-
-Netflix's new dark fantasy series is officially dominating streaming charts, debuting at just 4.9 million viewers on its first two days.
----------
-
-# 10 Greatest One-Person Army Action Movies To Watch If You Love John Wick
-
-Movies, John Wick, Taken, The Equalizer, Monkey Man, Commando, Kill Bill: Vol. 1, Atomic Blonde, Nobody, Dredd, The Raid: Redemption, The Transporter
-
-Sat, 25 Jul 2026 13:45:11 GMT
-
-https://screenrant.com/best-one-man-army-action-movies-john-wick/
-
-John Wick is arguably one of Keanu Reeves' greatest characters, and some other titles sharing the same one-person army formula are worth your time.
----------
-
-# James Gunn's New HBO Series In DCU Era Is Officially Rated R
-
-TV, Masked Recs, DC Universe
-
-Sat, 25 Jul 2026 13:30:46 GMT
-
-https://screenrant.com/lanterns-hbo-dc-rating-confirmed/
-
-The TV rating for DC Studios' most highly anticipated TV show in the DC Universe franchise has finally been officially revealed by HBO and WB.
----------
-
-# Superman Just Spoke the Saddest Sentence in His Entire History
-
-Comics, Superman
-
-Sat, 25 Jul 2026 13:30:11 GMT
-
-https://screenrant.com/superman-saddest-quote-lex-luthor/
-
-Superman's life just got a lot sadder.
----------
-
-# Netflix's Masterpiece 36-Episode Fantasy Series Deserved One More Season
-
-Classic TV, Masked Recs
-
-Sat, 25 Jul 2026 13:30:11 GMT
-
-https://screenrant.com/the-umbrella-academy-netflix-deserve-one-more-season/
-
-Netflix is home to one of the best fantasy TV shows of the decade, which deserved one more season, but instead, it got something different.
----------
-
-# 10 Free Steam Games With 100+ Hours Of Gameplay
-
-Gaming, Steam
-
-Sat, 25 Jul 2026 13:30:11 GMT
-
-https://screenrant.com/10-free-steam-games-100-plus-hours-gameplay/
-
-Discover 10 free Steam games offering over 100 hours of gameplay, including RPGs, shooters, and MMORPGs, perfect for your weekend gaming sessions.
----------
-
-# DC Confirms Absolute Batman/Main Timeline Batman Crossover Comic
-
-Comics, Absolute Batman, Batman, San Diego Comic-Con
-
-Sat, 25 Jul 2026 14:00:14 GMT
-
-https://www.cbr.com/dc-confirms-batman-of-two-world-one-shot-sdcc/
-
-Absolute Batman is about to meet his perfect companion.
----------
-
-# What's Coming to HBO Max in August 2026? Everything Arriving Next Month
-
-Movies, HBO Max
-
-Sat, 25 Jul 2026 14:00:14 GMT
-
-https://www.cbr.com/what-coming-hbo-max-august-2026-full-list/
-
-HBO Max has plenty more surprises in August, including a new DC Studios series, several documentaries, and exclusive films.
----------
-
-# The Hunt for Gollum Confirmed 4 Lord of the Rings Characters' Return
-
-Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, Fantasy
-
-Sat, 25 Jul 2026 14:00:14 GMT
-
-https://www.cbr.com/the-lord-of-the-rings-the-hunt-for-gollum-confirm-hobbits-return/
-
-The upcoming Lord of the Rings spin-off, The Hunt for Gollum, may be bringing back these iconic characters from the original trilogy.
----------
-
-# Transformers Gives Optimus Prime's Best Movie Design a Transparent New Upgrade
-
-Anime, Transformers, optimus prime, Bumblebee, merchandise
-
-Sat, 25 Jul 2026 14:00:14 GMT
-
-https://www.cbr.com/transformers-bumblebee-optimus-prime-transparent-upgrade-yolopark/
-
-An add-on for one of Yolopark's best Optimus Prime kits gives a transparent makeover to a design from the best live-action Transformers movie.
 ---------
