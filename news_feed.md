@@ -1,3 +1,289 @@
+# 35 Years Later, Dragon Ball Finally Resurrects A Forgotten Goku Form, And It's Epic
+
+Gaming, Dragon Ball, Dragon Ball: Sparking! Zero
+
+Sun, 26 Jul 2026 20:00:11 GMT
+
+https://screenrant.com/dragon-ball-goku-false-super-saiyan-return/
+
+Dragon Ball: Sparking! Zero's upcoming DLC introduces Goku's long-forgotten False Super Saiyan transformation, signaling a change in its games.
+---------
+
+# 10 Best Vita Games To Download Before The Store Is Gone Forever
+
+Gaming, PlayStation
+
+Sun, 26 Jul 2026 20:00:11 GMT
+
+https://screenrant.com/playstation-vita-games-download-store-closure-psvita/
+
+Discover the best PlayStation Vita exclusive games to download before the store closes, including must-play titles you have to see.
+---------
+
+# Star Trek's 3 Versions Of James T. Kirk Ranked
+
+Streaming TV, Star Trek
+
+Sun, 26 Jul 2026 20:00:11 GMT
+
+https://screenrant.com/star-trek-kirk-versions-ranked/
+
+Multiple actors have donned the uniform of the most iconic Enterprise captain, but only one can truly be considered the definitive James T. Kirk.
+---------
+
+# Game Of Thrones' Ramsay Bolton Star Reviews Spinoff Series House Of The Dragon
+
+TV, House of the Dragon, Game Of Thrones, Game of Thrones
+
+Sun, 26 Jul 2026 19:45:15 GMT
+
+https://screenrant.com/house-of-the-dragon-review-iwan-rheon/
+
+10 years after his last Game of Thrones appearance, Ramsay Bolton actor Iwan Rheon shares his review for the House of the Dragon spinoff series.
+---------
+
+# What's Coming To Netflix In August 2026: Full List Of TV Shows & Movies
+
+Streaming TV, Netflix
+
+Sun, 26 Jul 2026 19:45:11 GMT
+
+https://screenrant.com/everything-coming-to-netflix-2026/
+
+The exciting lineup of new TV shows and movies coming to Netflix in August 2026, including original series, acquisitions, and a mix of genres overall.
+---------
+
+# Something Very Bad Is Going To Happen Theory Suggests A Very Different Ending For Nicky
+
+Streaming TV, Something Very Bad Is Going to Happen
+
+Sun, 26 Jul 2026 19:30:12 GMT
+
+https://screenrant.com/why-nicky-not-die-something-very-bad-is-going-to-happen-theory/
+
+As the curtain falls on Netflix's Something Very Bad Is Going To Happen, a shocking twist involving Nicky leads to an interesting theory.
+---------
+
+# All 18 Nintendo Games Directed By Shigeru Miyamoto, Ranked
+
+Gaming, Nintendo, Triple-A Games
+
+Sun, 26 Jul 2026 19:30:11 GMT
+
+https://screenrant.com/all-18-nintendo-games-directed-by-shigeru-miyamoto-ranked/
+
+Shigeru Miyamoto created many iconic titles but directed only 18 — we've ranked them by importance to the industry and fun factor.
+---------
+
+# There's One Reason Why Neagley's Spinoff Is More Exciting Than Reacher Season 4
+
+TV, Neagley, Reacher
+
+Sun, 26 Jul 2026 19:25:11 GMT
+
+https://screenrant.com/neagley-spinoff-reacher-season-4-exciting-why/
+
+Neagley and Reacher season four both arrive in 2026, but there's a key reason the Maria Sten-led spinoff is the more exciting show of the two.
+---------
+
+# Netflix Is Joining A Fantasy Franchise With 50 Million Fans
+
+Streaming TV, Masked Recs
+
+Sun, 26 Jul 2026 19:14:26 GMT
+
+https://screenrant.com/netflix-dungeons-and-dragons-prime-video-vox-machina/
+
+Netflix is no stranger to adapting successful franchises into hit TV shows, but one upcoming project taps into an unfathomably massive fanbase.
+---------
+
+# Reacher's New Spinoff Is Officially Honoring Series-Long Tradition With Neagley & More Returning Characters
+
+TV, Reacher, Neagley, San Diego Comic-Con
+
+Sun, 26 Jul 2026 19:14:19 GMT
+
+https://screenrant.com/neagley-reacher-cold-open-tradition-returning-characters-tease-maria-sten/
+
+EXCLUSIVE: Maria Sten reveals that Neagley, the upcoming Reacher spinoff, will maintain one longstanding tradition from the flagship series.
+---------
+
+# 5 Anime With Plot Twists That Make Them Better on a Rewatch
+
+Anime, Attack On Titan, Puella Magi Madoka Magica, Code Geass: Lelouch of the Rebellion
+
+Sun, 26 Jul 2026 20:15:15 GMT
+
+https://www.cbr.com/anime-plot-twists-better-on-rewatch/
+
+Most anime use plot twists to keep the audience engaged, but these shocking turns actually go so far as to make a rewatch of the series even better.
+---------
+
+# In Just 1 Day, Kevin Hart's New 105-Minute Netflix Movie Is Officially the Most-Watched Title in the World
+
+Movies, 72 Hours, Kevin Hart
+
+Sun, 26 Jul 2026 20:00:15 GMT
+
+https://www.cbr.com/kevin-hart-72-hours-comedy-netflix-global-success-july-2026/
+
+Kevin Hart is no stranger to Netflix success, and his film became a hit despite abysmal reviews.
+---------
+
+# 10 Greatest Sci-Fi Thrillers of the Last 30 Years, Ranked
+
+Movies, Sci-Fi
+
+Sun, 26 Jul 2026 20:00:15 GMT
+
+https://www.cbr.com/10-best-sci-fi-thriller-movies-list/
+
+Whether they're about alien encounters, alternate realities, or collapsing societies, these are the sci-fi thrillers that got everything right.
+---------
+
+# Solo Leveling Finally Reunites Sung Jinwoo and Igris in First-Look Reveal
+
+Anime, Solo Leveling, merchandise, collectibles
+
+Sun, 26 Jul 2026 20:00:15 GMT
+
+https://www.cbr.com/solo-leveling-sung-jinwoo-igris-ikigai-limited-edition-statue/
+
+Sung Jinwoo and Igris are back together for a new limited-edition Solo Leveling release for true collectors.
+---------
+
+# HBO Max’s 10/10 3-Season Dramedy Finds New Streaming Home After Cancellation
+
+TV, The Sex Lives of College Girls, HBO Max, Netflix
+
+Sun, 26 Jul 2026 19:30:15 GMT
+
+https://www.cbr.com/the-sex-life-of-college-girls-drama-netflix-release-date-august-2026/
+
+The fan-favorite series has found new streaming home.
+---------
+
+# Star of DC's New Batman Trilogy Reveals Unique Take on Iconic Gotham Villain Scene
+
+CBR Exclusives, Batman, Batman: Knightfall Part 1: Knightfall, San Diego Comic-Con
+
+Sun, 26 Jul 2026 19:15:15 GMT
+
+https://www.cbr.com/batman-knightfall-michael-mando-bane-motivation/
+
+Batman fans just learned why Bane breaking the Bat will be so much different in Knightfall: Part 1 compared to how they've seen it play out before.
+---------
+
+# 10 Most Disturbing Anime of All Time, Ranked
+
+Anime, Perfect Blue, Made in Abyss
+
+Sun, 26 Jul 2026 19:15:15 GMT
+
+https://www.cbr.com/most-disturbing-anime-of-all-time-ranked/
+
+These anime leave a lasting impression by confronting viewers with deeply unsettling stories.
+---------
+
+# This '60s Western Masterpiece Is Perfect from Start to Finish
+
+Movie Features, The Man Who Shot Liberty Valance, John Wayne, James Stewart, Western
+
+Sun, 26 Jul 2026 20:11:14 GMT
+
+https://collider.com/man-who-shot-liberty-valance-john-wayne-streaming-free-july-2026/
+
+The Man Who Shot Liberty Valance, starring John Wayne and James Stewart, changed Westerns forever when it was released in 1963.
+---------
+
+# The 6 Worst R-Rated Comedies of the 1990s
+
+Movie, Comedy, Vampire in Brooklyn, Exit to Eden, The Real Blonde
+
+Sun, 26 Jul 2026 20:03:14 GMT
+
+https://collider.com/worst-r-rated-comedy-movies-90s/
+
+From Loose Cannons to Exit to Eden, these disastrous R-rated '90s movies prove bad comedy ages worse than any other genre.
+---------
+
+# Netflix Officially Says Goodbye to a Legendary Sci-Fi Trilogy
+
+Movie News, Spider-Man, Sam Raimi, Tobey Maguire, Netflix
+
+Sun, 26 Jul 2026 20:00:15 GMT
+
+https://collider.com/netflix-removing-sam-raimi-spider-man-trilogy-july-31/
+
+Netflix has announced that the final day to watch all three of Tobey Maguire's Spider-Man movies will be on July 31.
+---------
+
+# 5 Beloved Book-to-TV Adaptations That Deserve Another Chance
+
+Books and Comics, Books, Series, Streaming, Netflix
+
+Sun, 26 Jul 2026 19:55:15 GMT
+
+https://collider.com/book-to-tv-adaptations-that-deserve-redo-netflix-mtv-streaming/
+
+These five beloved book adaptations deserve another chance on TV, whether through full reboots or long-overdue continuations.
+---------
+
+# Prime Video’s 2-Part Superhero Series Is So Good, It Officially Went Beyond the Comics
+
+TV Features, Gen V, The Boys, Prime Video, Superhero
+
+Sun, 26 Jul 2026 19:41:14 GMT
+
+https://collider.com/gen-v-prime-video-superhero-series-beyond-comics/
+
+Gen V surpasses both The Boys and the original comics it's based on, exploring the darker side of superpowers through a relatable story.
+---------
+
+# 8 Greatest Modern Rom-Coms Based on Books
+
+Movie, Romance, Books, Crazy Rich Asians, To All the Boys I've Loved Before
+
+Sun, 26 Jul 2026 19:20:14 GMT
+
+https://collider.com/best-modern-rom-coms-based-on-books-ranked/
+
+Crazy Rich Asians, Love, Simon, and To All the Boys I've Loved Before are among the best modern rom-com movies that have been adapted from books.
+---------
+
+# 'Westworld' Is Still a Masterpiece, but It Should Have Been Cancelled Sooner
+
+TV Features, Westworld, Jonathan Nolan, Lisa Joy, HBO
+
+Sun, 26 Jul 2026 19:14:15 GMT
+
+https://collider.com/westworld-season-1-still-a-masterpiece/
+
+Westworld Season 1 remains the pinnacle of the series, despite later seasons struggling with a confusing plot and loss of the original setting's charm.
+---------
+
+# Sydney Sweeney's $400 Million R-Rated Thriller Is Officially a Global Sensation on Streaming
+
+Movie News, The Housemaid, Prime Video, Hot on Streaming, Sydney Sweeney
+
+Sun, 26 Jul 2026 20:15:12 GMT
+
+https://movieweb.com/the-housemaid-prime-video-global-chart/
+
+Sydney Sweeney's 2025 erotic thriller 'The Housemaid' is a global streaming success on Prime Video.
+---------
+
+# Stephen King’s First TV Series Adaptation Remains a 10/10 One-Night Binge
+
+Features, Stephen King
+
+Sun, 26 Jul 2026 20:00:12 GMT
+
+https://movieweb.com/salems-lot-stephen-king-binge-watch/
+
+Stephen King's beloved horror novels have been adapted into many TV shows and movies, and this one might be the best.
+---------
+
 # 8 Gangster Shows Better Than Peaky Blinders
 
 Classic TV, Peaky Blinders
@@ -5210,290 +5496,4 @@ Sat, 25 Jul 2026 12:00:12 GMT
 https://screenrant.com/the-batman-2-zsasz-arkham-city/
 
 The Batman Part II has a rare chance to make up for an oversight on the Batman: Arkham franchise's part, assuming its casting rumors are right.
----------
-
-# Pokémon Legends: Z-A Sequel Has The Perfect Setting And Era
-
-Gaming, Pokemon Legends Z-A, Pokemon
-
-Sat, 25 Jul 2026 11:45:11 GMT
-
-https://screenrant.com/pokemon-legends-za-sequel-setting-era/
-
-CentroLeaks reveals potential details about Pokémon Legends 3, set in the Galar region 1000 years ago.
----------
-
-# Avengers/Punisher Crossover Confirmed by Marvel
-
-Comic-Con, The Avengers, San Diego Comic-Con, The Punisher
-
-Sat, 25 Jul 2026 11:40:11 GMT
-
-https://screenrant.com/avengerspunisher-crossover-confirmed-by-marvel/
-
-What goes hand-in-hand with vengeance? Punishment.
----------
-
-# It's Confirmed: Bloodborne Will Finally Return Next Month
-
-Gaming, Bloodborne
-
-Sat, 25 Jul 2026 11:30:11 GMT
-
-https://screenrant.com/bloodborne-ring-of-madmans-knowledge-august-release-date/
-
-FromSoftware fans can now show their love for Bloodborne by adorning themselves with a stunning silver ring.
----------
-
-# Inglorious X-Force Unleashes Rivalry Between X-Men Hellverine And Archangle
-
-Comics, X-Men
-
-Sat, 25 Jul 2026 12:00:15 GMT
-
-https://www.cbr.com/x-men-inglorious-x-force-7-archangel-hellverine-rivalry/
-
-Mutant vs. mutant action between these two is imminent.
----------
-
-# Why Disney's Star Wars Galactic Starcruiser Hotel Failed in Canon
-
-Movies, Star Wars, Disney, Disney Parks
-
-Sat, 25 Jul 2026 12:00:15 GMT
-
-https://www.cbr.com/disney-star-wars-galactic-starcruiser-failure-canon-explained/
-
-Disney's biggest Star Wars failure has finally been officially explained.
----------
-
-# HBO’s Lanterns Could Take the Superhero TV Crown From The Boys
-
-TV, Lanterns, The Boys, hbo
-
-Sat, 25 Jul 2026 11:30:15 GMT
-
-https://www.cbr.com/hbo-lanterns-take-superhero-tv-crown-from-the-boys/
-
-HBO is set to become the new king of superhero TV with their upcoming DC series.
----------
-
-# 'Smallville's Best Villain Was Never Lex Luthor
-
-TV Features, Smallville, DC Comics, The CW, Michael Rosenbaum
-
-Sat, 25 Jul 2026 12:03:14 GMT
-
-https://collider.com/smallville-best-villain-zod/
-
-Smallville focused on Tom Welling’s Superman and Michael Rosenbaum’s Lex Luthor, but a different DC villain was the best.
----------
-
-# 10 Dark Fantasy Video Games That Are Perfect From Start to Finish
-
-Video Games, Fantasy, Video Game, Gaming, The Legend of Zelda
-
-Sat, 25 Jul 2026 12:02:14 GMT
-
-https://collider.com/dark-fantasy-video-games-perfect-start-to-finish/
-
-Shadow of the Collosus, Bloodborne, and The Legend of Zelda: Majora's Mask are all among the best dark fantasy video games ever made.
----------
-
-# Colin Farrell’s Chilling 5-Part Miniseries Is the Perfect Weekend Binge for Fans of ‘The Terror’
-
-TV Features, The North Water, Colin Farrell, Jack O'Connell, Stephen Graham
-
-Sat, 25 Jul 2026 11:47:14 GMT
-
-https://collider.com/the-north-water-colin-farrell-miniseries-perfect-binge/
-
-Colin Farrell and Jack O'Connell lead a chilling voyage into the heart of darkness in the overlooked miniseries The North Water.
----------
-
-# One of DC’s Greatest Villains Was Perfected on This Binge-Worthy 8-Part TV Series
-
-TV Features, Arrow, DC Comics, Deathstroke, The CW
-
-Sat, 25 Jul 2026 11:23:14 GMT
-
-https://collider.com/greatest-dc-tv-villain-on-tv-deathstroke-arrow-series/
-
-Ruthless, brilliant and deeply personal, this legendary assassin remains the greatest villain DC television has ever produced.
----------
-
-# Jason Statham's 95-Minute Non-Stop Action Thriller Shoots Onto New Streaming Home
-
-Movie News, Jason Statham, Safe, Coming/Leaving Streaming, Action
-
-Sat, 25 Jul 2026 11:30:12 GMT
-
-https://movieweb.com/jason-statham-safe-action-thriller-streaming-free-plex-august-2026/
-
-Ahead of the release of 'Mutiny' next month, one of Jason Statham's most underrated action thrillers has found a home outside of Prime Video.
----------
-
-# One Piece Officially Returns This Month As A New Chapter Begins
-
-Gaming, One Piece
-
-Sat, 25 Jul 2026 11:00:12 GMT
-
-https://screenrant.com/one-piece-new-chapter-july-2026/
-
-Discover the latest addition to the One Piece Card Game, featuring a premium collection of cards with new illustrations.
----------
-
-# Pokémon Fans In Love With Ghost-Type Eeveelution
-
-Gaming, Pokemon
-
-Sat, 25 Jul 2026 10:30:11 GMT
-
-https://screenrant.com/pokemon-ghost-type-eeveelution-fan-hopes/
-
-Pokémon enthusiasts dream of a Ghost-type Eeveelution as they eagerly await the release of Generation 10.
----------
-
-# Avatar Aang: The Last Airbender Interview with Stars at SDCC 2026
-
-TV, Avatar Aang: The Last Airbender, San Diego Comic-Con
-
-Sat, 25 Jul 2026 10:00:11 GMT
-
-https://screenrant.com/video/avatar-aang-last-airbender-eric-nam-jessica-matten-cast-sdcc-2026-interview/
-
-Avatar Aang: The Last Airbender stars Eric Nam, Román Zaragoza, Jessica Matten, and Dionne Quan trade casting stories, share their own kinship with their ATLA characters, and get excited about the possibility of telling more stories in the Airbender universe.
----------
-
-# It's Official, Game Of Thrones Has Finally Returned And It's Already A Big Hit
-
-Gaming, Game of Thrones
-
-Sat, 25 Jul 2026 10:00:11 GMT
-
-https://screenrant.com/game-of-thrones-2026-return-reactions/
-
-Game of Thrones: Dragonfire is a hit Android strategy game where players command dragons, forge alliances, and conquer the Seven Kingdoms.
----------
-
-# Lanterns Showrunner Reveals the "Ticking Time Bomb" at the Heart of the DCU Series
-
-TV, Lanterns, San Diego Comic-Con
-
-Sat, 25 Jul 2026 11:00:16 GMT
-
-https://www.cbr.com/hbo-lanterns-showrunner-ticking-time-bomb-dcu-series/
-
-One of the showrunners of HBO's upcoming Lanterns series reveals some of the incredible tension fans can expect between Hal Jordan and John Stewart.
----------
-
-# The Mandalorian and Grogu Is Officially the End of an Era for Disney+
-
-Movies, The Mandalorian and Grogu, Disney+, The Mandalorian
-
-Sat, 25 Jul 2026 11:00:16 GMT
-
-https://www.cbr.com/mandalorian-and-grogu-disney-plus-end-of-era/
-
-A new blockbuster movie represents the end of a long-running era for Disney+.
----------
-
-# The Far Side's 10 Best Dinosaur Comics, Ranked
-
-Comics, The Far Side
-
-Sat, 25 Jul 2026 11:00:16 GMT
-
-https://www.cbr.com/the-far-side-best-dinosaur-comics-ranked/
-
-Dinosaurs were a prevalent species in Gary Larson's The Far Side. Many panels were hilarious or sad, but, mostly, they were all iconic.
----------
-
-# Final Fantasy 7 x 14 Crossover Confirmed With Beyond The Lifestream Raid
-
-Games, Final Fantasy, Final Fantasy 7 Remake, final fantasy xiv
-
-Sat, 25 Jul 2026 10:20:39 GMT
-
-https://www.cbr.com/final-fantasy-7-14-crossover-confirmed-beyond-the-lifestream-raid/
-
-Sephiroth is coming to Final Fantasy 14, as Square Enix has confirmed a Final Fantasy 7 Remake Raid series, called Beyond the Lifestream.
----------
-
-# 5 Stephen King Books Better Than The Stand
-
-TV, Stephen King, The Stand, Horror
-
-Sat, 25 Jul 2026 10:00:14 GMT
-
-https://www.cbr.com/stephen-king-books-better-than-the-stand-list/
-
-The Stand is considered Stephen King's magnum opus, but five of his books are even more noteworthy.
----------
-
-# The 5 Oldest X-Men Missing From the Movies
-
-Movies, X-Men, MCU, X-Men (2000)
-
-Sat, 25 Jul 2026 10:00:14 GMT
-
-https://www.cbr.com/x-men-movies-oldest-missing-characters-list/
-
-Stretching back to the 1960s, some of the X-Men's most long-standing members have yet to debut in a live-action film, but the MCU can change that.
----------
-
-# 7 Detective Shows Where Every Episode Is a Masterpiece
-
-TV, Mystery, Brooklyn Nine-Nine, Hannibal, Mare of Easttown
-
-Sat, 25 Jul 2026 10:52:14 GMT
-
-https://collider.com/detective-shows-every-episode-masterpiece/
-
-From the modern sitcom Brooklyn Nine-Nine to the psychological thriller Hannibal, every episode of these detective TV shows are masterpieces.
----------
-
-# 6 Best Fantasy Shows of 2026 (So Far), Ranked
-
-TV, Fantasy, One Piece, House of the Dragon, Daemons of the Shadow Realm
-
-Sat, 25 Jul 2026 10:05:14 GMT
-
-https://collider.com/best-fantasy-shows-2026-ranked/
-
-From A Knight of the Seven Kingdoms to The Vampire Lestat to House of the Dragon, 2026 is proving that fantasy TV remains richer than ever.
----------
-
-# 10 Greatest DC Video Games of All Time
-
-Gaming, Video Game, DC Comics, Gotham Knights
-
-Sat, 25 Jul 2026 10:03:14 GMT
-
-https://collider.com/best-dc-video-games-all-time-ranked/
-
-From recent efforts like Gotham Knights to acclaimed gems like Batman: Arkham City, these are the all-time best video games produced by DC Comics.
----------
-
-# The 10 Best Short Video Games of All Time, Ranked
-
-TV, Video Game, Metal Gear Solid, Exit 8, Iron Lung
-
-Sat, 25 Jul 2026 10:02:14 GMT
-
-https://collider.com/best-short-video-games-ranked/
-
-Discover great short video games perfect for busy players seeking immersive experiences, including Journey, Inside, and What Remains of Edith Finch.
----------
-
-# '300' Meets 'The Odyssey' in This Mythological Epic Finally Coming to Streaming
-
-Movie News, Clash of the Titans, Peacock, Sam Worthington, Gemma Arterton
-
-Sat, 25 Jul 2026 10:00:14 GMT
-
-https://collider.com/clash-of-the-titans-odyssey-meets-300-greek-epic-streaming-peacock-august-2026/
-
-The critically panned Greek mythological epic, Clash of the Titans, is coming to streaming amid The Odyssey's box-office success. Find out when.
 ---------
