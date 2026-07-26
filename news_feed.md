@@ -1,3 +1,245 @@
+# DC Debuts General Zod Redesign & Codename Change Ahead of Superman's Next Appearance
+
+DC Comics, Superman
+
+Sun, 26 Jul 2026 12:30:11 GMT
+
+https://screenrant.com/superman-general-zod-new-codename-costume/
+
+General Zod debuts both a new codename and a new look to kick off Superman’s next crossover event that DC Comics fans won't want to miss.
+---------
+
+# 10 Turn-Based RPGs You Can Play For 100 Hours Or More
+
+Gaming, RPG, Triple-A Games, PC
+
+Sun, 26 Jul 2026 12:30:11 GMT
+
+https://screenrant.com/10-turn-based-rpgs-100-hours-gameplay/
+
+If you like to immerse yourself for hundreds of hours, especially in turn-based RPGs, know that there are several different choices at your disposal.
+---------
+
+# 5 DC Weapons More Powerful Than Mother Boxes
+
+TV, DC Universe
+
+Sun, 26 Jul 2026 12:30:11 GMT
+
+https://screenrant.com/dc-weapons-more-powerful-motherboxes/
+
+The Mother Boxes are notorious in DC movies and series, but there are still some weapons that are even more powerful and deadly than the Mother Boxes.
+---------
+
+# 9 Most Exciting British TV Shows Still To Come In 2026
+
+Streaming TV
+
+Sun, 26 Jul 2026 12:30:11 GMT
+
+https://screenrant.com/new-british-tv-shows-2026-upcoming/
+
+There are a lot of excellent British TV shows still to come this year, from returning hits to brand-new book adaptations and much, much more.
+---------
+
+# 7 Best Historical Fiction Books You Have To Read This Year
+
+Books, Alias Grace, The Underground Railroad
+
+Sun, 26 Jul 2026 12:17:11 GMT
+
+https://screenrant.com/7-best-historical-fiction-books-you-have-to-read-this-year/
+
+Historical fiction for your '26 reading list.
+---------
+
+# Namor's Avengers: Doomsday Role Could Mark A Major Shift For The MCU Antihero
+
+Movies, Avengers: Doomsday, San Diego Comic-Con, Marvel Cinematic Universe, Tenoch Huerta
+
+Sun, 26 Jul 2026 12:14:50 GMT
+
+https://screenrant.com/avengers-doomsday-namor-team-player-tenoch-huerta/
+
+Exclusive: Namor actor Tenoch Huerta discussed how the events of Avengers: Doomsday may end up changing his antihero character in the MCU.
+---------
+
+# Speed Racer Is Returning This September With Its Biggest Release Yet
+
+Comics, Speed Racer
+
+Sun, 26 Jul 2026 12:04:11 GMT
+
+https://screenrant.com/speed-racer-tales-from-the-road-details/
+
+Speed Racer fans, start your engines. The countdown has begun for an epic new release in the franchise that is, frankly, best described as HUGE.
+---------
+
+# Ryan Gosling's MCU Ghost Rider Casting Was Manifested By The Internet
+
+Movies, San Diego Comic-Con, Ryan Gosling, Ghost Rider, Marvel Cinematic Universe
+
+Sun, 26 Jul 2026 12:00:11 GMT
+
+https://screenrant.com/ryan-gosling-ghost-rider-marvel-casting-kevin-feige/
+
+Exclusive: Marvel Studios president Kevin Feige opened up about the internet helped get Ryan Gosling cast as the lead of 2028's Ghost Rider.
+---------
+
+# Gundam Returns With A Second New Adventure In 2027
+
+Gaming, Gundam Rogue Orbit, Triple-A Games, PC
+
+Sun, 26 Jul 2026 12:00:11 GMT
+
+https://screenrant.com/gundam-rogue-orbit-2027-release-date/
+
+The Gundam franchise has been on a legendary run these past few years, but its next major project is shaping up to be the most promising yet.
+---------
+
+# Star Trek Has Officially Replaced Captains Kirk & Picard
+
+TV, Star Trek, Sci-Fi, Paramount
+
+Sun, 26 Jul 2026 12:30:15 GMT
+
+https://www.cbr.com/star-trek-strange-new-worlds-kirk-picard-replacement-captain-pike/
+
+Captains Kirk and Picard are arguably the most famous captains in Star Trek, but it seems like someone else may replace them.
+---------
+
+# Marvel Reinvents the X-Men’s Most Infamous Villain Team in Shocking New Twist
+
+Comics, X-Men, Marvel Comics, Wolverine
+
+Sun, 26 Jul 2026 12:00:15 GMT
+
+https://www.cbr.com/x-men-hellfire-murder-brotherhood-reveal/
+
+They've challenged the X-Men since day one, and now the latest version of the Brotherhood is preparing to set the world on fire.
+---------
+
+# 5 New Steamy TV Shows You Should Be Streaming Right Now
+
+TV, Heated Rivalry, Romance, Drama, The Hunting Wives
+
+Sun, 26 Jul 2026 11:30:15 GMT
+
+https://www.cbr.com/best-new-steamy-tv-shows-list/
+
+There are plenty of steamy shows to binge, but some of the newest on streaming shouldn't be missed.
+---------
+
+# Former 'Doctor Who' Showrunner Breaks Silence on the Show's Future
+
+TV News, Doctor Who, BBC, Chris Chibnall, Sci-Fi
+
+Sun, 26 Jul 2026 12:30:15 GMT
+
+https://collider.com/doctor-who-chris-chibnall-cancellation-response/
+
+One of Doctor Who's divisive showrunners opens up about the cancellation of the beloved sci-fi fantasy series. Read on for more details.
+---------
+
+# The 10 Best Thriller Books of All Time, Ranked
+
+TV, Thriller, Books, Agatha Christie, Thomas Harris
+
+Sun, 26 Jul 2026 12:21:14 GMT
+
+https://collider.com/best-thriller-books-all-time-ranked/
+
+Explore the best thriller novels of all time, ranked by their impact on the genre and overall suspense, from Red Dragon to Gone Girl.
+---------
+
+# 10 Best World War II Video Games
+
+Gaming, Video Game, War, Company of Heroes, Call of Duty
+
+Sun, 26 Jul 2026 12:18:14 GMT
+
+https://collider.com/best-world-war-2-video-games-ranked/
+
+The best video games about World War II cover many genres and stories, from strategy-based efforts like Company of Heroes to FPS like Call of Duty 2.
+---------
+
+# Prime Video’s 'Blade Runner 2099' Is Officially Not Returning for Season 2 [Exclusive]
+
+Exclusives, Blade Runner, Blade Runner 2049, Blade Runner 2099, Sci-Fi
+
+Sun, 26 Jul 2026 12:00:15 GMT
+
+https://collider.com/blade-runner-2099-limited-series-no-season-2/
+
+Blade Runner 2099, starring Michelle Yeoh and Hunter Schafer, is set to be a limited, eight-episode series and will not receive a Season 2.
+---------
+
+# In Just 1 Day, Steven Spielberg's New Sci-Fi Movie Shoots to Global Streaming Success
+
+Movie News, Disclosure Day, Sci-Fi, Steven Spielberg, Emily Blunt
+
+Sun, 26 Jul 2026 12:00:15 GMT
+
+https://collider.com/disclosure-day-apple-tv-store-number-one-pvod-hit-july-2026/
+
+Steven Spielberg’s Disclosure Day becomes an instant PVOD hit, reaching No. 1 on the Apple TV Store in the U.S. and Canada.
+---------
+
+# ‘Supernatural’ Never Topped the Sheer Horror of Its Most Chilling Moment Over 15 Seasons
+
+TV Features, Supernatural, Jeffrey Dean Morgan, Jensen Ackles, Jared Padalecki
+
+Sun, 26 Jul 2026 11:57:14 GMT
+
+https://collider.com/supernatural-pilot-mary-winchester-death-yellow-eyed-demon/
+
+Supernatural's opening pilot episode set the horror tone for the series with its most chilling and disturbing moment in the show.
+---------
+
+# Ridley Scott's Underrated Bloody Thriller Is Officially Getting Its Due 25 Years Later
+
+Movie Features, Hannibal, Ridley Scott, Horror, Anthony Hopkins
+
+Sun, 26 Jul 2026 11:57:14 GMT
+
+https://collider.com/ridley-scott-hannibal-silence-of-the-lambs-streaming-free-tubi-july-2026/
+
+Ridley Scott's Hannibal is very different from The Silence of the Lambs, but it's still a bloody thrill ride 25 years later.
+---------
+
+# 'Halo’ Remake Officially Launches Early With One Big Condition
+
+Gaming News, Halo, Xbox Series X/S, Paramount Plus
+
+Sun, 26 Jul 2026 11:45:14 GMT
+
+https://collider.com/halo-campaign-evolved-early-access-premium-collectors-edition-july-23-2026/
+
+Halo: Campaign Evolved, celebrating the franchise's 25th anniversary, offers Early Access to players, but requires a catch. Learn more here.
+---------
+
+# Netflix's ‘Solo Leveling’ Star Hints at His Jinwoo Look Ahead of Live-Action Debut
+
+TV News, Solo Leveling, South Korea, Netflix, Fantasy
+
+Sun, 26 Jul 2026 11:30:15 GMT
+
+https://collider.com/netflix-solo-leveling-live-action-star-e-rank-jinwoo-look-reveal/
+
+Byeon Woo-seok hints at his live-action Sung Jinwoo look as Netflix's Solo Leveling adaptation continues production.
+---------
+
+# Sydney Sweeney's Brilliant & Bloody 89-Minute R-Rated Smash Arrives on Netflix
+
+Movie News, Sydney Sweeney, Immaculate, Coming/Leaving Streaming, Horror, Netflix
+
+Sun, 26 Jul 2026 12:00:13 GMT
+
+https://movieweb.com/sydney-sweeney-immaculate-horror-streaming-netflix-august-2026/
+
+Sydney Sweeney's stand-out performance in a 2024 gem is finally leaving the confines of Hulu and Disney+ in America.
+---------
+
 # Marvel Studios' Best 2026 SDCC Reveal Is Undoubtedly This Marvel Hero's Return After 14 Years
 
 Movies, Marvel Cinematic Universe, San Diego Comic-Con
@@ -5254,246 +5496,4 @@ Fri, 24 Jul 2026 20:57:38 GMT
 https://screenrant.com/president-curtis-season-2-renewal-rick-and-morty-universe/
 
 Rick and Morty spinoff, President Curtis, dropped some major news regarding season 2 during its panel at San Diego Comic-Con on Friday.
----------
-
-# Carrie Season 2 Return Potential Addressed By Mike Flanagan
-
-TV, Carrie
-
-Fri, 24 Jul 2026 20:54:58 GMT
-
-https://screenrant.com/carrie-season-2-potential-mike-flanagan-response/
-
-EXCLUSIVE: Carrie creator Mike Flanagan addresses the show's season 2 potential, unpacking the possibility of even more episodes.
----------
-
-# Lanterns Official Trailer Reveals Hal Jordan's Full Costume & Major Villains In James Gunn's DCU Era
-
-TV, Lanterns, San Diego Comic-Con, Green Lantern, DC Universe
-
-Fri, 24 Jul 2026 20:43:09 GMT
-
-https://screenrant.com/lanterns-hbo-trailer-sdcc-2026/
-
-DC Studios has released the final Lanterns trailer for the upcoming DC Universe TV show on HBO, featuring Hal Jordan and John Stewart.
----------
-
-# 5 New Pokémon Types That Could Change The Franchise Forever
-
-Gaming, Pokemon, Triple-A Games
-
-Fri, 24 Jul 2026 20:30:11 GMT
-
-https://screenrant.com/pokemon-winds-waves-5-potential-new-types/
-
-It's about time for Pokémon to get a new Type, and these possible options have some serious potential to change Pokémon forever.
----------
-
-# 10 Best NCIS Franchise Characters, Ranked
-
-Network TV, NCIS
-
-Fri, 24 Jul 2026 20:30:11 GMT
-
-https://screenrant.com/best-ncis-franchise-characters/
-
-The most memorable characters from the entire NCIS franchise, ranked based on their impact, growth, and contributions to the franchise as a whole.
----------
-
-# 10 Harry Potter Characters Who Deserved Better Endings
-
-Movies, Harry Potter
-
-Fri, 24 Jul 2026 21:01:15 GMT
-
-https://www.cbr.com/harry-potter-characters-that-deserved-better-list/
-
-Harry Potter has a plethora of rich characters for fans to explore, but unfortunately some of those characters deserved a better ending than they got.
----------
-
-# Spider-Man: Brand New Day Can Finally Deliver Marvel's Biggest Peter Parker Promise
-
-Comics, Spider-Man: Brand New Day
-
-Fri, 24 Jul 2026 21:01:15 GMT
-
-https://www.cbr.com/spider-man-brand-new-day-peter-parker-promise-payoff/
-
-A certain expectation comes with how the MCU adapts their most popular heroes, and Brand New Day looks to finally make good on that for Spider-Man.
----------
-
-# Pokémon Finally Gives Lapras an Evolution After 30 Years (But There's a Catch)
-
-Games, Pokemon
-
-Fri, 24 Jul 2026 20:50:15 GMT
-
-https://www.cbr.com/pokemon-new-lapras-evolution-after-30-years-scrapped/
-
-One of the most beloved Pokémon of all time finally has the evolution fans have been waiting three decades to see, albeit in an unexpected form.
----------
-
-# DC Studios Finally Unveils the Official Trailer for the New DCU Series
-
-Movies, DC Comics, DCU, Lanterns
-
-Fri, 24 Jul 2026 20:45:02 GMT
-
-https://www.cbr.com/lanterns-official-trailer/
-
-The new DC Studios is closer than ever.
----------
-
-# Paramount Officially Halts Warner Bros. Merger After Lawsuits
-
-Movies, paramount pictures, warner bros
-
-Fri, 24 Jul 2026 20:34:41 GMT
-
-https://www.cbr.com/paramount-warner-bros-merger-halted-antitrust-trial/
-
-Paramount Skydance's plan to merge with Warner Bros. Discovery gets put on pause.
----------
-
-# 4 Fantasy Movies That Are 10/10 Masterpieces
-
-Movies, Fantasy, The Lord of the Rings, The Odyssey
-
-Fri, 24 Jul 2026 20:30:15 GMT
-
-https://www.cbr.com/perfect-fantasy-movie-masterpieces-list/
-
-These legendary fantasy masterpieces are easily the best movies in the genre's long history.
----------
-
-# DC Writer Stephanie Williams Confirmed Vixen Series At SDCC
-
-CBR Exclusives, Vixen, DC Comics, San Diego Comic-Con
-
-Fri, 24 Jul 2026 20:30:15 GMT
-
-https://www.cbr.com/vixen-dc-stephanie-williams-sdcc-anouncement/
-
-This rumored DC project was just confirmed at San Diego Comic-Con 2026!
----------
-
-# Prime Video's Cyberpunk Sleeper From the Creators of Westworld Is a Time Travel Masterpiece
-
-TV, Prime Video, The Peripheral, Sci-Fi
-
-Fri, 24 Jul 2026 20:30:15 GMT
-
-https://www.cbr.com/prime-video-the-peripheral-cyberpunk-time-travel/
-
-One Prime Video sci-fi series approached time travel in a unique way, making it a must-watch cyberpunk show.
----------
-
-# Steam Makes 5 Games 100% Free Until July 27
-
-Games, Steam
-
-Fri, 24 Jul 2026 20:15:32 GMT
-
-https://www.cbr.com/steam-5-games-free-july-27-2026/
-
-Move quickly to check out these five games at no cost.
----------
-
-# AMC Officially Seals The Vampire Lestat's Fate After Season 3 Rebranding
-
-TV, The Vampire Lestat
-
-Fri, 24 Jul 2026 20:15:14 GMT
-
-https://www.cbr.com/amc-the-vampire-lestat-season-4-fate/
-
-Less than a week since The Vampire Lestat ended, AMC has just revealed its future.
----------
-
-# NBC Quietly Removed One of ‘Seinfeld’s Highest-Rated Episodes From Syndication
-
-TV Features, Seinfeld, Jerry Seinfeld, NBC, Peacock
-
-Fri, 24 Jul 2026 21:24:14 GMT
-
-https://collider.com/seinfeld-highest-rated-episode-puerto-rican-day-pulled-syndication/
-
-Seinfeld’s “The Puerto Rican Day” sparked major backlash after Kramer burned and stomped on a Puerto Rican flag, leading NBC to pull the episode from
----------
-
-# 'Rick and Morty's New Sci-Fi Spin-Off Is Already Getting a Massive Expansion
-
-TV News, President Curtis, Rick and Morty, Adult Swim, Keith David
-
-Fri, 24 Jul 2026 21:06:13 GMT
-
-https://collider.com/rick-and-morty-sci-fi-spin-off-president-curtis-renewed-season-2/
-
-Rick and Morty's new spin-off series, President Curtis, has already scored a huge Season 2 update ahead of its premiere this weekend.
----------
-
-# 10 Best Songs of the 1960s
-
-Music Features, Bob Dylan, David Bowie, The Beatles, The Beach Boys
-
-Fri, 24 Jul 2026 21:05:15 GMT
-
-https://collider.com/best-1960s-songs-ranked/
-
-The 1960s was a great time for music, with some of the best songs of the decade including "Space Oddity," "God Only Knows," and "Desolation Row."
----------
-
-# The Beatles Song That Solved Paul McCartney's Biggest Songwriting Problem
-
-Music Features, The Beatles, Paul McCartney, John Lennon, Rock, Music
-
-Fri, 24 Jul 2026 21:03:09 GMT
-
-https://collider.com/the-beatles-paul-mccartney-all-my-loving-song/
-
-Paul McCartney challenged his songwriting habits defying his usual methods and paving the way for a Beatles classic with All My Loving.
----------
-
-# 10 Greatest Soulslike Video Games of All Time
-
-Gaming, Video Game, Dark Souls, Star Wars Jedi: Survivor, Elden Ring
-
-Fri, 24 Jul 2026 20:50:14 GMT
-
-https://collider.com/best-soulslike-video-games-all-time-ranked/
-
-Soulslike games are all the rage right now, and the best include underrated gems like Lies of P, the masterful Elden Ring, and the seminal Dark Souls.
----------
-
-# HBO Max's Sci-Fi Detective Series Drops Its Most Explosive Trailer Yet
-
-TV News, Lanterns, DC Comics, Aaron Pierre, Kyle Chandler
-
-Fri, 24 Jul 2026 20:41:02 GMT
-
-https://collider.com/hbo-max-sci-fi-detective-series-lanterns-trailer/
-
-A brand-new trailer for HBO Max's sci-fi detective series Lanterns has officially arrived, promising a unique take on the titular superheroes. See it
----------
-
-# 8 Upcoming Comedy Shows, Ranked by Anticipation
-
-TV, It's Always Sunny in Philadelphia, Adults, Sitcom, Ted Lasso
-
-Fri, 24 Jul 2026 20:28:14 GMT
-
-https://collider.com/upcoming-comedy-shows-ranked-anticipation/
-
-New seasons of Ted Lasso, Adults, and It's Always Sunny in Philadelphia are among the most anticipated upcoming comedy on TV.
----------
-
-# 'Interview with the Vampire's Future Has Been Officially Confirmed
-
-TV News, The Vampire Lestat, AMC, Jacob Anderson, San Diego Comic-Con
-
-Fri, 24 Jul 2026 20:15:14 GMT
-
-https://collider.com/interview-with-the-vampire-season-4-renewed-teaser-queen-of-the-damned/
-
-Following The Vampire Lestat's finale, the Interview with the Vampire team has confirmed that Season 4 is happening with a new teaser. Watch it here.
 ---------
