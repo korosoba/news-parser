@@ -1,3 +1,190 @@
+# Avatar 4 Has To Make This Villain Change To Fix The Franchise
+
+Movies, Avatar 4, Avatar
+
+Sun, 26 Jul 2026 17:45:11 GMT
+
+https://screenrant.com/avatar-4-varang-villain-not-colonel-miles-quaritch/
+
+Avatar 4 is currently in the works, and it desperately needs to make this villain change to restore the franchise to how good it once was.
+---------
+
+# Simu Liu Addresses Shang-Chi 2 Not Being Announced At SDCC
+
+Movies, Shang-Chi 2, Marvel Cinematic Universe, San Diego Comic-Con
+
+Sun, 26 Jul 2026 17:40:43 GMT
+
+https://screenrant.com/shang-chi-2-status-avengers-doomsday-role-simu-liu-response/
+
+EXCLUSIVE: With Shang-Chi 2 not announced at San Diego Comic-Con this year, Simu Liu addresses the sequel's status and his role in Avengers: Doomsday.
+---------
+
+# Marvel Is Rebooting Venom; Here’s What We Know
+
+Marvel Comics, Venom
+
+Sun, 26 Jul 2026 17:30:11 GMT
+
+https://screenrant.com/venom-reboot-eddie-brock-mary-jane/
+
+Marvel announces a fresh start for Venom and Eddie Brock, who return to their traditional dynamics as their universe's most famous symbiote-human duo.
+---------
+
+# Supernatural's Secret Sequel Proves Season 16 Should Wait
+
+Classic TV, Supernatural, Masked Recs
+
+Sun, 26 Jul 2026 17:30:11 GMT
+
+https://screenrant.com/supernatural-winchesters-sequel-season-16-should-wait/
+
+As the entertainment landscape is overrun with revivals, Supernatural's secret sequel proves the show should wait to bring back Sam and Dean.
+---------
+
+# GTA 6 Gamers Fiercely Debate Trailer 3 Official Date
+
+Gaming, Grand Theft Auto 6
+
+Sun, 26 Jul 2026 17:30:11 GMT
+
+https://screenrant.com/gta-6-trailer-3-timeline-reaction/
+
+Grand Theft Auto 6 could bury its head in the sand until November if it wanted, but fans expect a lot more marketing in the months ahead of launch.
+---------
+
+# FX's 7-Part Action Drama Is The Sopranos On Wheels
+
+Classic TV, Masked Recs
+
+Sun, 26 Jul 2026 17:22:11 GMT
+
+https://screenrant.com/sons-of-anarchy-tv-series-sopranos-on-wheels/
+
+FX's action-packed drama Sons of Anarchy takes everything that makes The Sopranos so compelling and puts it on the back of a speeding motorcycle.
+---------
+
+# DC Announces First-of-Its-Kind Darkseid Project Coming in October
+
+DC Comics, Darkseid
+
+Sun, 26 Jul 2026 17:17:53 GMT
+
+https://screenrant.com/darkseid-vs-the-world-release-details/
+
+DC has announced a new Darkseid-centric project coming this fall that promises to present the legendary villain as fans have "never seen him before."
+---------
+
+# The Biggest Complaint About Steve Rogers' Doomsday Role Is Impossible To Ignore
+
+Movies, Avengers: Doomsday, Steve Rogers
+
+Sun, 26 Jul 2026 17:15:11 GMT
+
+https://screenrant.com/avengers-doomsday-heroes-return-not-women/
+
+Avengers: Doomsday has sparked conversations for myriad reasons, and one major debate is regarding the return of Steve Rogers (and its implications).
+---------
+
+# The Batman Part II Already Has One Big Advantage Over Nolan's The Dark Knight
+
+Movies, The Batman Part II
+
+Sun, 26 Jul 2026 17:06:11 GMT
+
+https://screenrant.com/the-batman-2-timeline-advantage-the-dark-knight/
+
+For many people, The Dark Knight remains the greatest superhero movie ever made, but The Batman Part II could be even better thanks to this advantage.
+---------
+
+# The Big Lebowski Meets Blade Runner In Scarlett Johansson's New Netflix Sci-Fi Ray Gunn
+
+Movies, Ray Gunn, San Diego Comic-Con
+
+Sun, 26 Jul 2026 17:02:41 GMT
+
+https://screenrant.com/netflix-ray-gunn-blade-runner-big-lebowski-influences-brad-bird/
+
+Exclusive: Brad Bird teases the many influences that informed his upcoming Netflix animated sci-fi movie Ray Gunn, starring Scarlett Johansson.
+---------
+
+# Star Trek’s Captain Kirk Replacement Became the Character TNG Actually Needed
+
+TV, Star Trek, Star Trek: The Next Generation, Star Trek: Picard
+
+Sun, 26 Jul 2026 17:30:15 GMT
+
+https://www.cbr.com/star-trek-tng-will-riker-best-captain-kirk-replacement/
+
+When Star Trek sought a then-unprecedented second-life on TV, one character proved to be both a needed utility player and fan-favorite hero.,
+---------
+
+# 35 Isekai Manga That Are Better Than You'd Expect
+
+Anime, Manga, Isekai
+
+Sun, 26 Jul 2026 17:30:15 GMT
+
+https://www.cbr.com/isekai-manga-hidden-gems/
+
+There are a lot of Isekai stories out there, but these 15 manga are some of the best (if underrated) ones that fans should read now.
+---------
+
+# 5 Masterpiece GameCube Games No One Remembers
+
+Games, Nintendo, Hello Kitty, sanrio
+
+Sun, 26 Jul 2026 17:15:15 GMT
+
+https://www.cbr.com/masterpiece-gamecube-games-no-one-remembers/
+
+Everyone remembers perfect GameCube classics like Twilight Princess and Mario Kart Double Dash, but there are other masterpieces no one remembers.
+---------
+
+# What's Coming to Paramount+ in August 2026? Everything Arriving Next Month
+
+TV, Paramount Plus
+
+Sun, 26 Jul 2026 17:00:15 GMT
+
+https://www.cbr.com/what-coming-paramount-august-2026-full-list/
+
+The streamer will add bring back a hit Taylor Sheridan series, among several exciting sports events.
+---------
+
+# 6 Worst R-Rated Sci-Fi Movies of the 1990s
+
+Movie, Sci-Fi, Virus, Split Second, Judge Dredd
+
+Sun, 26 Jul 2026 17:03:14 GMT
+
+https://collider.com/worst-r-rated-sci-fi-movies-90s/
+
+From Johnny Mnemonic to Alien: Resurrection, these infamous '90s sci-fi flops wasted decent ideas with baffling execution.
+---------
+
+# Everyone Was Wrong About Tom Holland's 'The Odyssey' Performance
+
+Features, The Odyssey, Tom Holland
+
+Sun, 26 Jul 2026 17:30:12 GMT
+
+https://movieweb.com/tom-holland-odyssey-performance/
+
+Across the brilliant and talented cast of Christopher Nolan's 'The Odyssey' Tom Holland seemed to get the most criticism, and it's totally undeserved.
+---------
+
+# Netflix’s Best 10-Part Thriller Is So Good, They Made 4 More Just Like It
+
+Features, The Haunting of Hill House, Netflix, Mike Flanagan
+
+Sun, 26 Jul 2026 17:00:12 GMT
+
+https://movieweb.com/haunting-of-hill-house-mike-flanagan-netflix-thrillers/
+
+Netflix has more than a few fantastic thriller TV series, including this popular one that was followed by four memorable shows.
+---------
+
 # Pamela Anderson Addresses Potential Baywatch Reboot Return In Fox's New Series
 
 TV, Baywatch
@@ -5309,191 +5496,4 @@ Sat, 25 Jul 2026 02:45:15 GMT
 https://www.cbr.com/kevin-feige-confirms-mutant-saga-mcu-x-men/
 
 Kevin Feige has revealed the name of Marvel's next saga after the Multiverse Saga--and it will change the MCU as we know it.
----------
-
-# 4 Hard Sci-Fi Anime Series That Are 10/10 Masterpieces
-
-Anime, Ghost in the Shell: Stand Alone Complex, Planetes
-
-Sat, 25 Jul 2026 02:45:15 GMT
-
-https://www.cbr.com/hard-sci-fi-anime-perfect-masterpieces/
-
-These hard sci-fi anime combine scientific realism with extraordinary storytelling to create unforgettable experiences.
----------
-
-# 8 High Fantasy Books With the Greatest Magic Systems
-
-Books and Comics, Books, The Wheel of Time, Fantasy
-
-Sat, 25 Jul 2026 04:08:14 GMT
-
-https://collider.com/high-fantasy-books-best-magic-systems/
-
-From Shadow and Bone to The Eye of the World, these high fantasy book masterpieces have the most compelling and complex magic systems in literature.
----------
-
-# After 'The Odyssey,' 1 Award-Winning Video Game Franchise Deserves a TV Adaptation
-
-TV Features, Hades, Video Game, The Odyssey, Fantasy
-
-Sat, 25 Jul 2026 03:41:15 GMT
-
-https://collider.com/hades-video-game-tv-adaptation-the-odyssey/
-
-The Odyssey's success signals that Hollywood is ready to adapt Hades into a thrilling TV series that embraces Greek mythology and unique characters.
----------
-
-# George Lucas’ Final Star Wars Project Is Officially Getting a Release 14 Years Later
-
-TV Features, Star Wars: Detours, Star Wars, George Lucas, Seth Green
-
-Sat, 25 Jul 2026 03:14:15 GMT
-
-https://collider.com/star-wars-detours-george-lucas-final-project-release-september-2026/
-
-After being shelved by Disney, George Lucas' final Star Wars project is officially getting a new release 13 years later.
----------
-
-# 10 Greatest YA Books of All Time
-
-Books and Comics, Books, The Perks of Being a Wallflower, Are You There God? It's Me, Margaret., Lord of the Flies
-
-Sat, 25 Jul 2026 03:09:14 GMT
-
-https://collider.com/best-ya-books-all-time-ranked/
-
-From profound classics like The Catcher in the Rye to 21st-century gems like The Knife of Never Letting Go, these are the best YA books ever written.
----------
-
-# ‘Twin Peaks’ Quietly Inspired One of Nintendo’s Weirdest Video Games of All Time
-
-TV Features, Video Game, Twin Peaks, Nintendo, The Legend of Zelda
-
-Sat, 25 Jul 2026 02:44:15 GMT
-
-https://collider.com/twin-peaks-inspired-legend-of-zelda-links-awakening-video-game/
-
-The Legend of Zelda: Link’s Awakening was quietly inspired by Twin Peaks, resulting in one of Nintendo’s most surreal and impressive video games.
----------
-
-# 5 Batman: The Animated Series Episodes To Watch Before Clayface
-
-Classic TV, Batman: The Animated Series, The New Batman Adventures, Clayface
-
-Sat, 25 Jul 2026 02:30:11 GMT
-
-https://screenrant.com/batman-animated-series-clayface-episodes-watch-before/
-
-Before seeing Clayface in theaters this October, it's worth watching these five Batman: The Animated Series episodes that showcase the villain.
----------
-
-# 5 Shonen Anime Remakes That Are Considered Absolute Masterpieces
-
-Anime
-
-Sat, 25 Jul 2026 02:30:11 GMT
-
-https://screenrant.com/shonen-anime-remakes-masterpieces/
-
-Shonen anime have been around for a long time, and several classic series have received modern reimagining's that are nothing short of incredible.
----------
-
-# Bleach: Thousand-Year Blood War Drops Disappointing Update About Its Final Season
-
-Anime, Bleach, Bleach: Thousand Year Blood War
-
-Sat, 25 Jul 2026 02:03:11 GMT
-
-https://screenrant.com/bleach-thousand-year-blood-war-final-season-disappointing-update/
-
-Bad news for Bleach's final season.
----------
-
-# Reacher Changes Forever In Less Than 2 Months
-
-Streaming TV, Masked Recs
-
-Sat, 25 Jul 2026 02:00:21 GMT
-
-https://screenrant.com/reacher-neagley-spinoff-change-forever/
-
-Prime Video's Reacher franchise expands with spinoff series Neagley, departing from source material and paving the way for future adaptations.
----------
-
-# 7 Underrated Superhero Powers in DC Lore
-
-Comics, DC Comics
-
-Sat, 25 Jul 2026 02:00:21 GMT
-
-https://screenrant.com/most-underrated-dc-superpowers/
-
-The most unassuming superhero powers in DC Comics are often the most unique and helpful in certain circumstances.
----------
-
-# James Gunn's DCU Just Introduced A Villain Far More Dangerous Than Lex Luthor
-
-Streaming TV, Masked Recs, San Diego Comic-Con
-
-Sat, 25 Jul 2026 01:47:54 GMT
-
-https://screenrant.com/lanterns-sinestro-dcu-villain-debut/
-
-James Gunn's DC Universe set up Lex Luthor as a threat to multiple dimensions, but the DCU has now introduced a villain that is easily more dangerous.
----------
-
-# 5 Near-Perfect Netflix K-Dramas To Binge This Summer
-
-TV, K-Drama, Netflix
-
-Sat, 25 Jul 2026 01:30:11 GMT
-
-https://screenrant.com/perfect-netflix-k-dramas-binge-summer-2026/
-
-From revenge thrillers to hilarious office romances, these completed Korean dramas on Netflix stand out as the absolute best.
----------
-
-# Lanterns Trailer: Sinestro, Manhunters & 10 Other DCU Reveals
-
-Streaming TV, Lanterns, DC Universe, San Diego Comic-Con
-
-Sat, 25 Jul 2026 01:16:22 GMT
-
-https://screenrant.com/lanterns-trailer-breakdown-dcu-reveals/
-
-DC Studios has just revealed an all-new trailer for Lanterns, featuring all kinds of exciting reveals and major moments from the upcoming DCU series.
----------
-
-# One Year Later: What Happened With Suits' Canceled Spinoff Series?
-
-Streaming TV, Suits LA
-
-Sat, 25 Jul 2026 01:15:11 GMT
-
-https://screenrant.com/suits-la-spinoff-cancel-one-year-later/
-
-Despite a star-studded cast and the success of the original series, the spinoff Suits LA failed to capture' attention, leaving fans confused & bitter.
----------
-
-# 8 Sci-Fi RPGs To Scratch Your Mass Effect Itch
-
-Gaming, Mass Effect, RPG, Triple-A Games, PC
-
-Sat, 25 Jul 2026 01:00:11 GMT
-
-https://screenrant.com/best-rpgs-like-mass-effect/
-
-It can be hard to find anything that delivers a comparable experience to the Mass Effect trilogy, but some sci-fi RPGs come surprisingly close.
----------
-
-# Dungeons & Dragons Sequel Script Is Finished, but There's 1 Major Problem
-
-Movies, Dungeons & Dragons: Honor Among Thieves, San Diego Comic-Con
-
-Sat, 25 Jul 2026 02:19:41 GMT
-
-https://www.cbr.com/dungeons-dragons-honor-among-thieves-2-script-written/
-
-An update on the Dungeons & Dragons: Honor Among Thieves sequel reveals good news and bad news.
 ---------
