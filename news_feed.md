@@ -1,3 +1,201 @@
+# Thanks To Ryan Gosling's Ghost Rider, We're One Step Closer To The MCU's Midnight Sons
+
+Superheroes, Ghost Rider, Marvel Cinematic Universe, San Diego Comic-Con, Ryan Gosling
+
+Sun, 26 Jul 2026 21:15:11 GMT
+
+https://screenrant.com/ryan-gosling-ghost-rider-closer-to-mcu-midnight-sons/
+
+Marvel Studios has finally cast Ryan Gosling as the next Ghost Rider, and I couldn't be more excited about what it might mean for The Midnight Sons.
+---------
+
+# X-Men Star James Marsden Reveals How Joining Avengers: Doomsday Changes Cyclops
+
+Movies, Avengers: Doomsday, San Diego Comic-Con
+
+Sun, 26 Jul 2026 21:13:04 GMT
+
+https://screenrant.com/x-men-james-marsden-joining-mcu-avengers-doomsday-changes-cyclops/
+
+Original X-Men star James Marsden discusses what it's like to reprise his role as Cyclops in the upcoming MCU film Avengers: Doomsday.
+---------
+
+# Yellowstone Is Back As One Of Streaming's Biggest Shows
+
+Streaming TV, Yellowstone
+
+Sun, 26 Jul 2026 21:12:11 GMT
+
+https://screenrant.com/yellowstone-number-one-show-paramount-plus-worldwide/
+
+As new Yellowstone spinoffs continue to launch, the original series sees a resurgence in popularity, creating a feedback loop that secures its legacy.
+---------
+
+# The Bear's Berzatto Family Tree Explained: All Characters & How They're Related
+
+TV, The Bear
+
+Sun, 26 Jul 2026 21:00:12 GMT
+
+https://screenrant.com/the-bear-berzatto-family-tree/
+
+The Bear consistently delves into Carmen "Carmy" Berzatto's family dynamics, even elaborating on what the extended Berzatto family tree looks like.
+---------
+
+# New Silent Hill Game’s Setting Is Already Dividing Fans
+
+Gaming, Silent Hill, Silent Hill: Townfall, Triple-A Games
+
+Sun, 26 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/silent-hill-townfall-setting-fan-reaction/
+
+Silent Hill's newest game makes the bold choice to once again leave the actual town of Silent Hill, and fans aren't all pleased with that decision.
+---------
+
+# It's Official, The Walking Dead Is Bringing Back Emily Kinney's Beth
+
+Comic-Con, San Diego Comic-Con, The Walking Dead
+
+Sun, 26 Jul 2026 20:59:12 GMT
+
+https://screenrant.com/the-walking-dead-spinoff-dead-city-season-3-beth-emily-kinney/
+
+The Walking Dead has an infamously high death toll, killing many fan favorite characters. Now, The Walking Dead Universe is bringing one of these back
+---------
+
+# Kumail Nanjiani's 10 Best TV Shows & Movies, Ranked
+
+Streaming TV, Kumail Nanjiani
+
+Sun, 26 Jul 2026 20:30:11 GMT
+
+https://screenrant.com/kumail-nanjiani-best-shows-movies-ranked/
+
+Discover Kumail Nanjiani's best roles, ranked from his breakout in television to his action-comedy movies and even work behind the camera.
+---------
+
+# Forgotten 12-Part Sci-Fi Series Is Futurama Meets Doctor Who Via Shaun Of The Dead
+
+TV, Masked Recs
+
+Sun, 26 Jul 2026 20:28:11 GMT
+
+https://screenrant.com/hyperdrive-sci-fi-tv-show-forgotten/
+
+A cult sci-fi comedy series that blended Doctor Who and Futurama's ideas remains criminally underrated decades later, despite its fun premise.
+---------
+
+# 7 Shonen Anime That Are Just as Good as JJK
+
+Anime, Jujutsu Kaisen, Chainsaw Man, shonen anime
+
+Sun, 26 Jul 2026 21:15:15 GMT
+
+https://www.cbr.com/shonen-anime-as-good-as-jjk-jujutsu-kaisen/
+
+Shonen series like Attack on Titan and Chainsaw Man are undeniably on par with Jujutsu Kaisen.
+---------
+
+# What's Coming to Pluto TV in August 2026? Everything Arriving for Free
+
+TV
+
+Sun, 26 Jul 2026 21:00:15 GMT
+
+https://www.cbr.com/what-coming-pluto-tv-august-2026-full-list/
+
+Paramount's free streaming platform will add a mix of The CW and MTV fan-favorite series.
+---------
+
+# Reacher Announces New Spinoff Release in 2027
+
+TV, Reacher, Neagley, San Diego Comic-Con
+
+Sun, 26 Jul 2026 20:59:10 GMT
+
+https://www.cbr.com/reacher-spinoff-neagley-novel-2027/
+
+The Reacher franchise continues to expand.
+---------
+
+# Bob's Burgers Announces New Hulu Special Episode in 5 Months
+
+TV, Bob's Burgers, San Diego Comic-Con
+
+Sun, 26 Jul 2026 20:55:41 GMT
+
+https://www.cbr.com/bobs-burgers-hulu-christmas-episode-2026/
+
+Audiences can officially look forward to a brand-new Bob's Burgers special, and it might just be the next animated Holiday classic.
+---------
+
+# Prime Video's 2-Part Crime Thriller Breaks Detective TV's Most Overused Tradition
+
+TV, Cross
+
+Sun, 26 Jul 2026 20:30:15 GMT
+
+https://www.cbr.com/prime-video-cross-breaks-most-overused-detective-tradition/
+
+Detective TV shows often focus on lonely protagonists, or ones who are disconnected from their families, but this Prime Video show bucks that trend.
+---------
+
+# Ridley Scott's Biblical Epic Finds a New Streaming Home
+
+Movie News, Ridley Scott, Christopher Nolan, The Odyssey, Exodus: Gods and Kings
+
+Sun, 26 Jul 2026 21:00:15 GMT
+
+https://collider.com/ridley-scott-biblical-epic-exodus-gods-and-kings-streaming-peacock-july-2026/
+
+Ridley Scott's Exodus: Gods and Kings is coming to a new streaming home amid The Odyssey's box-office success. Find out where and when.
+---------
+
+# ‘Black Mirror’s Greatest Episode Nearly Became a Robert Downey Jr. Movie
+
+TV Features, Robert Downey Jr, Black Mirror, George Clooney, Netflix
+
+Sun, 26 Jul 2026 20:43:14 GMT
+
+https://collider.com/black-mirror-entire-history-of-you-robert-downey-jr-movie/
+
+Robert Downey Jr. once planned a movie adaptation of Black Mirror’s “The Entire History of You,” but the project never made it to the screen.
+---------
+
+# Henry Cavill's Upcoming Sci-Fi Space Opera Will Finally Beat Star Wars at Its Own Game
+
+Features, Henry Cavill, Warhammer 40k, Star Wars, Sci-Fi
+
+Sun, 26 Jul 2026 21:00:12 GMT
+
+https://movieweb.com/henry-cavill-warhammer-40k-space-opera-star-wars/
+
+Henry Cavill is embracing a franchise with mythology so rich that it rivals even the likes of Star Wars and Star Trek.
+---------
+
+# Avatar Aang: The Last Airbender Fixes the Netflix Show's Balance Problem
+
+Features, Avatar Aang: The Last Airbender, Avatar: The Last Airbender
+
+Sun, 26 Jul 2026 20:45:12 GMT
+
+https://movieweb.com/avatar-aang-last-airbender-fixes-problem-netflix-live-action/
+
+Avatar Aang: The Last Airbender fixes the live-action show's biggest problem, proving it's possible to achieve the balance it tries to.
+---------
+
+# Gary Larson's 10 Most Underrated 'The Far Side 'Comics
+
+Movie Lists, The Far Side
+
+Sun, 26 Jul 2026 20:30:12 GMT
+
+https://movieweb.com/far-side-most-underrated/
+
+Everyone knows The Far Side’s cows, cavemen, and aliens, but these underrated Gary Larson comics from the other side are just as hilarious.
+---------
+
 # 35 Years Later, Dragon Ball Finally Resurrects A Forgotten Goku Form, And It's Epic
 
 Gaming, Dragon Ball, Dragon Ball: Sparking! Zero
@@ -5298,202 +5496,4 @@ Sat, 25 Jul 2026 14:00:14 GMT
 https://www.cbr.com/transformers-bumblebee-optimus-prime-transparent-upgrade-yolopark/
 
 An add-on for one of Yolopark's best Optimus Prime kits gives a transparent makeover to a design from the best live-action Transformers movie.
----------
-
-# 10 Spider-Man Villains Who Deserve an MCU Debut in Spider-Man: Brand New Day
-
-Comics, Spider-Man: Brand New Day
-
-Sat, 25 Jul 2026 14:00:14 GMT
-
-https://www.cbr.com/spider-man-villains-who-deserve-their-mcu-debut-in-brand-new-day/
-
-Spider-Man: Brand New Day hosts a massive ensemble of villains but these additional foes may also appear.
----------
-
-# Outer Banks Star Teases How Season 5 Compares to Early Seasons
-
-TV, Outer Banks, San Diego Comic-Con
-
-Sat, 25 Jul 2026 13:30:41 GMT
-
-https://www.cbr.com/outer-banks-drew-starkey-season-5-early-seasons/
-
-Exclusive: Outer Banks star Drew Starkey offers his take on how the show's upcoming fifth and final season stacks up compared to where it all started.
----------
-
-# 59 Years Later, Star Trek's First Horror Episode Is Still the Scariest Hour in Sci-Fi TV History
-
-TV, Star Trek, Star Trek: The Original Series, Sci-Fi
-
-Sat, 25 Jul 2026 13:30:15 GMT
-
-https://www.cbr.com/star-trek-wolf-in-the-fold-scariest-episode-sci-fi/
-
-Bringing universal fears to the forefront, one Star Trek: TOS episode is among the franchise's scariest.
----------
-
-# 7 Short Anime Series That Don’t Waste a Single Episode
-
-Anime, Puella Magi Madoka Magica, Serial Experiments Lain
-
-Sat, 25 Jul 2026 13:15:14 GMT
-
-https://www.cbr.com/short-anime-series-all-episodes-perfect/
-
-These short anime make every episode count, delivering unforgettable stories without unnecessary detours.
----------
-
-# 'Dark Winds' Season 5 Officially Sets Up Jessica Matten’s "Career-High Performance" [Exclusive]
-
-TV News, Dark Winds, AMC, San Diego Comic-Con, Avatar Aang: The Last Airbender
-
-Sat, 25 Jul 2026 14:00:14 GMT
-
-https://collider.com/dark-winds-season-5-jessica-matten/
-
-Jessica Matten reveals her career-high performance in Dark Winds Season 5, as she reflects on the show's impact on Indigenous storytelling.
----------
-
-# 10 Movies That Clearly Influenced Christopher Nolan's 'The Odyssey'
-
-Movie, The Odyssey, Troy, Gladiator, Interstellar
-
-Sat, 25 Jul 2026 13:41:14 GMT
-
-https://collider.com/the-odyssey-christopher-nolan-movie-influences/
-
-The cinematic influence of movies like Gladiator and The Last Temptation of Christ are found in the DNA of Christopher Nolan's epic, The Odyssey.
----------
-
-# 32 Years Later, Quentin Tarantino's Bloody Road Trip Thriller Is Aging Like Fine Wine
-
-Movie Features, Natural Born Killers, Quentin Tarantino, Oliver Stone, Robert Downey Jr
-
-Sat, 25 Jul 2026 13:24:14 GMT
-
-https://collider.com/quentin-tarantino-natural-born-killers-streaming/
-
-Natural Born Killers was one of Quentin Tarantino's first produced screenplays, and though he's distanced himself from the film, it remains a classic.
----------
-
-# 'Dungeon Crawler Carl' Author and Star Reveal How They Cast the Perfect Princess Donut [Exclusive]
-
-Exclusives, Dungeon Crawler Carl, San Diego Comic-Con, Seth MacFarlane, SDCC
-
-Sat, 25 Jul 2026 13:00:15 GMT
-
-https://collider.com/dungeon-crawler-carl-princess-donut-casting-matt-dinniman-jeff-hays/
-
-Matt Dinniman and Jeff Hays share how Peacock's Dungeon Crawler Carl went about casting the ideal star for Princess Donut.
----------
-
-# 10 Forgotten Bob Dylan Songs That Are Masterpieces, Ranked
-
-Music Features, Bob Dylan, Rock, Music, Billboard Hot 100
-
-Sat, 25 Jul 2026 13:00:15 GMT
-
-https://collider.com/forgotten-bob-dylan-songs-masterpieces-ranked/
-
-Bob Dylan's most forgotten songs reveal heartbreak, faith, and artistic growth, showcasing a deeper side of the legendary songwriter.
----------
-
-# 10 Most Subversive Animated Movies of All Time
-
-Movie, Animation, Shrek, Watership Down, Princess Mononoke
-
-Sat, 25 Jul 2026 12:46:14 GMT
-
-https://collider.com/most-subversive-animated-movies-all-time-ranked/
-
-From Princess Mononoke to Coraline, these animated classics challenged norms and proved cartoons can be radical.
----------
-
-# Ridley Scott's $269 Million Action Epic Seeks Redemption on New Streaming Home
-
-Movie News, Ridley Scott, Exodus: Gods and Kings, Coming/Leaving Streaming, Action
-
-Sat, 25 Jul 2026 14:00:12 GMT
-
-https://movieweb.com/ridley-scott-exodus-gods-and-kings-action-stream-peacock-august-2026/
-
-Ahead of Ridley Scott's return to sci-fi with 'The Dog Stars,' his 2014 action epic that flopped at the box office is seeking new life on streaming.
----------
-
-# Jack Nicholson Made Two of the Best Westerns of All Time in the Same Year
-
-Features, Jack Nicholson
-
-Sat, 25 Jul 2026 14:00:12 GMT
-
-https://movieweb.com/jack-nicholson-the-shooting-ride-in-the-whirlwind-story/
-
-In 1966, Jack Nicholson starred in two acclaimed Western movies, one of which he wrote.
----------
-
-# Jon Bernthal Reveals Why the Punisher Is Key to 'Spider-Man: Brand New Day'
-
-Movie News, Spider-Man: Brand New Day, Jon Bernthal, Destin Cretton
-
-Sat, 25 Jul 2026 13:41:57 GMT
-
-https://movieweb.com/spider-man-brand-new-day-jon-bernthal-punisher-exclusive/
-
-The actor spoke to MovieWeb about how his character impacts the wall-crawler in 'Brand New Day.'
----------
-
-# Netflix's 8-Part Supernatural Fantasy With Rare 100% RT Score Is The Ultimate Weekend Binge
-
-Streaming TV, Masked Recs
-
-Sat, 25 Jul 2026 12:00:12 GMT
-
-https://screenrant.com/lockwood-co-netflix-weekend-binge/
-
-Netflix's eight-part supernatural detective show is the perfect weekend binge. It's one of the streamer's best book adaptations and a blast to watch.
----------
-
-# Mayday Interview with John Fracis Daley & Jonathan Goldstein at SDCC 2026
-
-Exclusive, Mayday, San Diego Comic-Con
-
-Sat, 25 Jul 2026 12:00:12 GMT
-
-https://screenrant.com/video/mayday-john-fracis-daley-jonathan-goldstein-sdcc-2026-interview/
-
-Mayday filmmakers John Francis Daley and Jonathan Goldstein explain why they cast Ryan Reynolds and Kenneth Branagh, and how their new Apple TV comedy resembles Misery.
----------
-
-# Marvel Unveils New Spider-Team Ahead Of Peter Parker's Next Appearance
-
-Marvel Comics, Spider-Man
-
-Sat, 25 Jul 2026 12:00:12 GMT
-
-https://screenrant.com/new-spider-man-team-venom-black-cat/
-
-Marvel introduces a brand-new Spider-Man team led by Peter Parker himself, set to appear in the hero's next universe-wide crossover event.
----------
-
-# The Batman DCU Batsuit We’ve All Wanted Is Set Up By Gotham’s Film Debut
-
-Movies, DC Universe, Clayface, Batman
-
-Sat, 25 Jul 2026 12:00:12 GMT
-
-https://screenrant.com/batman-dc-universe-batsuit-clayface-gotham-setup/
-
-The DC Universe's movie debut of Gotham is already setting up Batman's story in a way that means one type of batsuit looks to be best for the hero.
----------
-
-# The Batman 2 Might Finally Fix This Underwhelming Arkham Villain
-
-Gaming, Batman: Arkham, The Batman Part II, Triple-A Games
-
-Sat, 25 Jul 2026 12:00:12 GMT
-
-https://screenrant.com/the-batman-2-zsasz-arkham-city/
-
-The Batman Part II has a rare chance to make up for an oversight on the Batman: Arkham franchise's part, assuming its casting rumors are right.
 ---------
