@@ -1,3 +1,234 @@
+# Marvel Studios' Best 2026 SDCC Reveal Is Undoubtedly This Marvel Hero's Return After 14 Years
+
+Movies, Marvel Cinematic Universe, San Diego Comic-Con
+
+Sun, 26 Jul 2026 11:00:12 GMT
+
+https://screenrant.com/ryan-gosling-ghost-rider-reveal-best-marvel-studios-sdcc-2026-moment/
+
+Marvel Studios has announced that a hero that has long been missing from the big screen will join the MCU soon, and it was 2026 SDCC's best moment.
+---------
+
+# Disney's 2-Season Sci-Fi Series With Near-Perfect RT Score Succeeds At Its Hardest Task
+
+Classic TV, Masked Recs
+
+Sun, 26 Jul 2026 11:00:12 GMT
+
+https://screenrant.com/andor-sci-fi-series-succeed-star-wars-task/
+
+The Star Wars series Andor is a nearly perfect sci-fi show, and it absolutely nails a challenge that should have been impossible to accomplish.
+---------
+
+# GTA 6's Latest Delay Is The Least Surprising Of All
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Sun, 26 Jul 2026 11:00:12 GMT
+
+https://screenrant.com/gta-6-online-delay-november-2026/
+
+While fans are anxiously awaiting Grand Theft Auto 6's release in November, one aspect of the game doesn't seem ready for primetime.
+---------
+
+# Marvel's Spider-Man Remastered Is Free To Download Ahead Of Brand-New Day
+
+Gaming, Marvel's Spider-Man
+
+Sun, 26 Jul 2026 10:30:12 GMT
+
+https://screenrant.com/marvels-spider-man-remastered-ps-plus-free-brand-new-day-psa/
+
+Experience the critically acclaimed Spider-Man game for free with your PlayStation Plus Extra subscription.
+---------
+
+# Where Is Dani In For All Mankind Season 5? What Happened To Krys Marshall's Character
+
+Streaming TV, For All Mankind
+
+Sun, 26 Jul 2026 10:30:12 GMT
+
+https://screenrant.com/for-all-mankind-season-5-danielle-poole-krys-marshall-character-return/
+
+Danielle Poole has been one of the most important characters in For All Mankind since season 1, but she has yet to be seen in the show's latest outing
+---------
+
+# 25 Best TV Shows About Greek Mythology
+
+Classic TV, Drama
+
+Sun, 26 Jul 2026 10:00:12 GMT
+
+https://screenrant.com/best-tv-shows-greek-mythology/
+
+From Hercules and The Odyssey to Xena and Wonder Woman, these are the best Greek mythology shows.
+---------
+
+# Final Fantasy 9: Integrity Arrives September 2026
+
+Gaming, Final Fantasy 9
+
+Sun, 26 Jul 2026 10:00:11 GMT
+
+https://screenrant.com/final-fantasy-9-integrity-september-2026-release/
+
+Final Fantasy IX fans can pre-order the Integrity 1000-piece jigsaw puzzle, featuring an iconic scene from the game.
+---------
+
+# Silo Creator Breaks Down Season 3's Big Shift From the Books
+
+TV, Silo, San Diego Comic-Con
+
+Sun, 26 Jul 2026 11:01:14 GMT
+
+https://www.cbr.com/apple-tv-silo-season-3-shift-from-books-explained/
+
+New episodes of Silo look noticeably different to fans of Hugh Howey's books, and the creator reveals one major reason for the change.
+---------
+
+# 20 Funniest Far Side Comics Featuring Aliens
+
+Comics, The Far Side
+
+Sun, 26 Jul 2026 11:01:14 GMT
+
+https://www.cbr.com/20-hilarious-the-far-side-comics-featuring-aliens/
+
+The comic strip The Far Side has sometimes featured takes on alien life forms to hilarious effect, and these are some of the best examples.
+---------
+
+# David Boreanaz & Emily Deschanel's Bones Revival Just Became More Possible
+
+TV, Bones, Crime, Thriller
+
+Sun, 26 Jul 2026 10:00:15 GMT
+
+https://www.cbr.com/bones-david-boreanaz-emily-deschanel-revival/
+
+Bones is one of the greatest crime thriller TV shows ever made, and fans might finally be getting a long-awaited revival.
+---------
+
+# 4 Space Operas That Are 10/10 Masterpieces
+
+Movies, Sci-Fi, Star Wars, Avatar
+
+Sun, 26 Jul 2026 10:00:15 GMT
+
+https://www.cbr.com/perfect-space-opera-movies-list/
+
+These space opera movie masterpieces are absolutely perfect.
+---------
+
+# Apple's Most Underrated Hard Sci-Fi Is Officially Ending With Season 3 [Exclusive]
+
+Exclusives, Dark Matter, Sci-Fi, Apple TV, Blake Crouch, SDCC
+
+Sun, 26 Jul 2026 11:01:14 GMT
+
+https://collider.com/dark-matter-season-3-ending-plan/
+
+Dark Matter creators Blake Crouch and Jacquelyn Ben-Zekry reveal they envisioned the Apple TV+ sci-fi series as a three-season story.
+---------
+
+# Netflix’s Monumental Western Woos Taylor Sheridan's Audience with 100 Million Hours Viewed
+
+TV News, Netflix, Little House on the Prairie, Western, Luke Bracey
+
+Sun, 26 Jul 2026 11:01:14 GMT
+
+https://collider.com/little-house-on-the-prairie-netflix-western-viewership-100-million-hours-viewed/
+
+Netflix's The Little House on the Prairie adaptation is going from strength to strength on the streamer's viewership charts. Find out more.
+---------
+
+# What Your Favorite Video Game Genre Says About You
+
+TV, Video Game, Grand Theft Auto V, Alien: Isolation, Red Dead Redemption 2
+
+Sun, 26 Jul 2026 10:59:15 GMT
+
+https://collider.com/what-your-favorite-game-genre-says-about-you/
+
+Discover how your favorite video game genre reflects your personality, from RPGs embracing curiosity to FPS games rewarding skill and strategy.
+---------
+
+# Graham Norton’s Gritty Crime Novel Turned Into a 100% RT Miniseries You Can Finish in One Weekend
+
+TV Features, Graham Norton, Holding, Crime
+
+Sun, 26 Jul 2026 10:51:14 GMT
+
+https://collider.com/graham-norton-crime-novel-holding-miniseries/
+
+In 2016, Graham Norton released his first-ever novel, and it’s now been adapted into a 100% RT miniseries that’s charming as it is intriguing.
+---------
+
+# Prime Video’s Most Expensive Fantasy Gamble Is Officially Adapting the Best Part of the Books
+
+TV Features, The Lord of the Rings: The Rings of Power, Charlie Vickers, Daniel Weyman, Prime Video
+
+Sun, 26 Jul 2026 10:44:15 GMT
+
+https://collider.com/rings-of-power-season-3-prime-video-best-storyline-gandalf-sauron/
+
+As Prime Video's The Rings of Power enters Season 3, Sauron and Gandalf take center stage, raising the stakes and darkening the tone.
+---------
+
+# John Boyega's 111-Minute Sci-Fi Sequel Is Officially HBO Max's Newest Streaming Smash
+
+Movie News, Sci-Fi, Pacific Rim: Uprising, HBO Max, Streaming
+
+Sun, 26 Jul 2026 10:30:15 GMT
+
+https://collider.com/pacific-rim-uprising-streaming-success-hbo-max-july-2026/
+
+A franchise-killing sci-fi flop starring Scott Eastwood alongside a Star Wars icon has found unlikely streaming success.
+---------
+
+# 10 Greatest Domestic Thrillers of All Time
+
+Movie, Thriller, Funny Games, Gone Girl, The Housemaid
+
+Sun, 26 Jul 2026 10:22:15 GMT
+
+https://collider.com/best-domestic-thrillers-all-time-ranked/
+
+From outright horror stories like The Invisible Man to complex, psychological studies like Gone Girl, these are the best domestic thrillers ever made.
+---------
+
+# 7 Most Unfairly Hated Movie Characters of All Time, Ranked
+
+Movie, The Shining, Star Wars: Episode I - The Phantom Menace, Star Wars: Episode VIII - The Last Jedi, 500 Days of Summer
+
+Sun, 26 Jul 2026 10:01:14 GMT
+
+https://collider.com/most-unfairly-hated-movie-characters-all-time-ranked/
+
+Rose Tico, Jar Jar Binks, Wendy Torrance, Cho Chang, and more make up our list of the most unfairly hated movie characters of all time.
+---------
+
+# New 'Street Fighter' Movie Officially Unveils a Completely Unexpected Take on M. Bison From David Dastmalchian [Exclusive]
+
+Movie News, San Diego Comic-Con, David Dastmalchian, Street Fighter
+
+Sun, 26 Jul 2026 10:00:15 GMT
+
+https://collider.com/street-fighter-movie-m-bison-character-details-david-dastmalchian/
+
+Discover how the new Street Fighter movie is taking an unexpected approach to M. Bison's character, focusing on his origins and psychological details.
+---------
+
+# Jason Statham's Forgotten Action Thriller Gets a Second Chance on Free Streaming
+
+Movie News, Wild Card, Jason Statham, Stanley Tucci, Simon West
+
+Sun, 26 Jul 2026 10:00:15 GMT
+
+https://collider.com/jason-statham-wild-card-free-streaming-home-roku-channel-july-2026/
+
+Jason Statham's long-forgotten $30 million action thriller officially finds a brand-new free streaming home with no strings attached.
+---------
+
 # Steam Drops 6 Free Games You Have Just 24 Hours To Grab
 
 Gaming, Steam, PC
@@ -5265,235 +5496,4 @@ Fri, 24 Jul 2026 20:15:14 GMT
 https://collider.com/interview-with-the-vampire-season-4-renewed-teaser-queen-of-the-damned/
 
 Following The Vampire Lestat's finale, the Interview with the Vampire team has confirmed that Season 4 is happening with a new teaser. Watch it here.
----------
-
-# 'Lanterns' Finally Reveals Major DC Villains in Action-Packed Trailer for HBO Sci-Fi Series
-
-TV News, Lanterns
-
-Fri, 24 Jul 2026 21:02:11 GMT
-
-https://movieweb.com/lanterns-hbo-official-trailer-sdcc/
-
-The first full-length trailer for 'Lanterns' is finally here.
----------
-
-# Original 'Star Wars' Officially Getting New Reimagining and Prequel From Lucasfilm
-
-Movie News, Star Wars, Star Wars: Episode IV - A New Hope
-
-Fri, 24 Jul 2026 21:01:36 GMT
-
-https://movieweb.com/star-wars-graphic-novel-luke-leia-prequel/
-
-A new comic will explore 'Star Wars: A New Hope' from new perspectives and a new novel, set before the prequel trilogy, explores Luke training Leia.
----------
-
-# In Just 3 Days, Christopher Nolan's 'The Odyssey' Has Already Passed a Major Box Office Milestone
-
-Movie News, The Odyssey
-
-Fri, 24 Jul 2026 21:01:12 GMT
-
-https://movieweb.com/christopher-nolan-the-odyssey-300-million-3-days/
-
-'The Odyssey' crosses another milestone less than two weeks after launch.
----------
-
-# The 8 Best Single-Shot Martial Arts Fights of All Time, Ranked
-
-Movie Lists, Action, Martial Arts
-
-Fri, 24 Jul 2026 21:01:12 GMT
-
-https://movieweb.com/best-single-shot-martial-arts-fights/
-
-From hand-to-hand combat to gun fu, these are the best single-take martial arts fights spanning an eclectic array of action movies.
----------
-
-# Chuck Russell, Director of 'The Mask' and 'The Blob,' Dies at 74
-
-Movie News, Chuck Russell, The Mask, The Blob
-
-Fri, 24 Jul 2026 20:18:06 GMT
-
-https://movieweb.com/chuck-russell-director-dies-at-74/
-
-The director of 'The Mask' and 'The Blob' tragically passed away after working in Hollywood for over 45 years.
----------
-
-# It's The End Of An Era For Nintendo After 45 Years
-
-Gaming, Nintendo, Triple-A Games
-
-Fri, 24 Jul 2026 20:00:11 GMT
-
-https://screenrant.com/nintendo-shigeru-miyamoto-no-more-games/
-
-Nintendo has been around longer than most people have been alive, and after decades, it's going to be changing things up in the future.
----------
-
-# Paul Wesley Explains Kirk's Son & Being A Father In Star Trek: Strange New Worlds Season 4
-
-Exclusive, Star Trek, Star Trek: Strange New Worlds
-
-Fri, 24 Jul 2026 20:00:11 GMT
-
-https://screenrant.com/star-trek-strange-new-worlds-season-4-kirk-son-paul-wesley/
-
-Exclusive: Paul Wesley delves into James T. Kirk's feelings about fatherhood as Star Trek: Strange New Worlds season 4 introduces his son, David.
----------
-
-# Marvel's New Hulk Is The Most Twisted Version Of The Character Yet
-
-Marvel Comics, Hulk
-
-Fri, 24 Jul 2026 20:00:11 GMT
-
-https://screenrant.com/marvel-new-hulk-twisted/
-
-Spider-Man, the Punisher, and the Hulk's new crossover introduces a genuinely evil Bruce Banner who weaponizes his immense anger and strength.
----------
-
-# 3 Best Movies To Watch On Disney+ This Weekend (July 25-26)
-
-Movies, Disney+, Recommendation
-
-Fri, 24 Jul 2026 19:53:53 GMT
-
-https://screenrant.com/best-disney-plus-movies-watch-weekend-july-25/
-
-The best movies on Disney+ this weekend include a new fantasy smash hit, a superhero event, and an animated adventure that tugs at the heartstrings.
----------
-
-# The Mask Director Chuck Russell Dies At 74
-
-Movies, The Mask
-
-Fri, 24 Jul 2026 19:44:41 GMT
-
-https://screenrant.com/chuck-russell-the-mask-obituary/
-
-More than three decades after directing the hit film The Mask with comedian Jim Carrey, Chuck Russell has passed away at the age of 74.
----------
-
-# The Walking Dead: Daryl Dixon Final Season Release Window Officially Confirmed
-
-TV, The Walking Dead: Daryl Dixon, The Walking Dead, San Diego Comic-Con
-
-Fri, 24 Jul 2026 19:39:10 GMT
-
-https://screenrant.com/the-walking-dead-daryl-dixon-season-4-release-window/
-
-The Walking Dead: Daryl Dixon season 4 marks the end of the show, and Norman Reedus has now revealed when the series' final episodes will release.
----------
-
-# Dungeon Crawler Carl's Early Multiseason Potential & Future Addressed By Author
-
-TV, Dungeon Crawler Carl
-
-Fri, 24 Jul 2026 19:31:52 GMT
-
-https://screenrant.com/dungeon-crawler-carl-series-future-seasons-matt-dinnaman-response/
-
-EXCLUSIVE: Dungeon Crawler Carl author Matt Dinnaman explains the early, multiseason potential of the TV show and what its future might hold.
----------
-
-# New Luke & Leia Prequel Announced For Star Wars’ 50th Anniversary
-
-Books, Star Wars, San Diego Comic-Con
-
-Fri, 24 Jul 2026 19:24:42 GMT
-
-https://screenrant.com/star-wars-twin-crossroads-luke-leia-novel-50th-anniversary/
-
-A new Luke and Leia story arrives in 2027 to help celebrate the 50th anniversary of the Star Wars while exploring a pivotal chapter in the franchise.
----------
-
-# Marvel Officially Unveils New X-Men Replacement And Team Lineup
-
-Gaming, Marvel's Wolverine, Triple-A Games
-
-Fri, 24 Jul 2026 19:23:46 GMT
-
-https://screenrant.com/marvels-wolverine-x-men-replacement/
-
-The X-Men are not around in this Wolverine universe, and instead, the fate of mutantkind is in the hands of another striking and dynamic team.
----------
-
-# Ghosts Companion Series Eternally Yours Sets Official Release Date
-
-TV, Eternally Yours, Ghosts, San Diego Comic-Con
-
-Fri, 24 Jul 2026 19:22:47 GMT
-
-https://screenrant.com/eternally-yours-cbs-release-date-confirmed-ghosts-companion/
-
-The wait for a new supernatural comedy is over, as the Ghosts companion show Eternally Yours gets ready to show its fangs on CBS very soon.
----------
-
-# 45 Best Mecha Anime of All Time
-
-Anime, mecha, Gundam
-
-Fri, 24 Jul 2026 20:06:15 GMT
-
-https://www.cbr.com/best-mecha-anime-series-all-time/
-
-From Gundam to Evangelion, the best mecha anime series of all time finds clever ways to reinvent the genre.
----------
-
-# 4 Years After Selling Out, Studio Ghibli Returns Its Howl's Moving Castle Date Stamp to Official Store
-
-Anime, Howl's Moving Castle, Spirited Away, Kiki's Delivery Service, merchandise, Studio Ghibli
-
-Fri, 24 Jul 2026 20:06:14 GMT
-
-https://www.cbr.com/studio-ghibli-howl-kiki-spirited-away-date-stamp-re-release/
-
-Studio Ghibli's official ink stamp collection is the perfect way for fans to share the magic of Totoro, Kiki, Howl and more.
----------
-
-# Frieren: Beyond Journey's End Gets Official RHINOSHIELD Tech Accessories Featuring Frieren, Fern and Stark
-
-Anime, Frieren: Beyond Journey's End, merchandise
-
-Fri, 24 Jul 2026 20:00:14 GMT
-
-https://www.cbr.com/frieren-rhinoshield-tech-accessories-review/
-
-Ahead of Season 3, Frieren: Beyond Journey's End is getting an official RHINOSHIELD tech accessory collection featuring Frieren, Fern and Stark.
----------
-
-# The Hilarious Story Behind How Batman’s Villain Hush Got His Name
-
-Comics, batman: hush, San Diego Comic-Con, Batman, Hush
-
-Fri, 24 Jul 2026 20:00:14 GMT
-
-https://www.cbr.com/batman-villain-hush-hilarious-name-origin/
-
-The secret behind this classic Batman foe's namesake is revealed.
----------
-
-# Sydney Sweeney's Gundam Movie is Star Wars Meets Transformers
-
-Movies, Mobile Suit Gundam, Gundam, Transformers, Star Wars
-
-Fri, 24 Jul 2026 20:00:14 GMT
-
-https://www.cbr.com/sydney-sweeny-gundam-movie-star-wars-meets-transformers/
-
-Gundam is coming to Netflix with a live-action movie, and it could combine the best aspects of two other notable science fiction franchises.
----------
-
-# The Free-to-Play JRPG With Over 1 Million Players and Very Positive Steam Reviews
-
-Games, JRPG
-
-Fri, 24 Jul 2026 19:46:15 GMT
-
-https://www.cbr.com/best-free-to-play-jrpg-very-positive-steam-reviews-reverse-1999/
-
-One of the best free-to-play JRPGs on Steam had over 1 million pre-registrations and has earned Very Positive reviews.
 ---------
