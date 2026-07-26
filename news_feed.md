@@ -1,3 +1,355 @@
+# Stephen King-Approved Apple TV Series Gets Exciting Season 2 Filming Timeline
+
+TV, Widow's Bay, San Diego Comic-Con
+
+Sun, 26 Jul 2026 14:19:22 GMT
+
+https://screenrant.com/apple-tv-widows-bay-season-2-filming-timeline-katie-dippold/
+
+King of Horror Stephen King is tuning in for this Apple TV series, with his seal of approval and the backing of critics, season 2 is on its way.
+---------
+
+# Will Ryan Gosling's Ghost Rider Be In Avengers: Doomsday Or Secret Wars?
+
+Superheroes, Avengers: Doomsday, Avengers: Secret Wars, Ghost Rider, Marvel Cinematic Universe
+
+Sun, 26 Jul 2026 14:15:11 GMT
+
+https://screenrant.com/ryan-gosling-ghost-rider-avengers-doomsday-secret-wars/
+
+Ryan Gosling has officially joined the MCU as Ghost Rider, and while a solo movie is coming in 2028, will he be in Avengers: Doomsday or Secret Wars?
+---------
+
+# Marvel Studios Reveals How The MCU Changes After Secret Wars
+
+Movies, Marvel Cinematic Universe
+
+Sun, 26 Jul 2026 14:11:15 GMT
+
+https://screenrant.com/marvel-studios-mcu-soft-reboot-secret-wars/
+
+Marvel Studios' latest announcements at Comic-Con have officially confirmed that the MCU is getting a soft reboot after Avengers: Secret Wars.
+---------
+
+# Hugh Jackman's New R-Rated Thriller With A 21st-Century Record Is Officially Streaming This Month
+
+Movies, Masked Recs, Hugh Jackman
+
+Sun, 26 Jul 2026 14:00:11 GMT
+
+https://screenrant.com/hugh-jackman-the-death-of-robin-hood-digital-release-date/
+
+Hugh Jackman's new gritty thriller is officially reaching viewers at home at the end of the month, following a major record in the 21st century.
+---------
+
+# It's Official, We Have a New Current James Bond To Replace Daniel Craig
+
+Gaming, James Bond, 007 First Light
+
+Sun, 26 Jul 2026 14:00:11 GMT
+
+https://screenrant.com/new-james-bond-first-light-daniel-craig-replaced/
+
+Irish actor Patrick Gibson, known for his role in Dexter: Original Sin, has captivated fans with his portrayal of a younger James Bond.
+---------
+
+# 10 Most Popular Cartoons From The '90s
+
+Classic TV
+
+Sun, 26 Jul 2026 14:00:11 GMT
+
+https://screenrant.com/most-popular-90s-cartoons/
+
+The 1990s saw the debut and peak of some of the best cartoon shows of all time, and some of them continue to be quite popular after all these years.
+---------
+
+# 10 Thriller Movies Where the Villain Wins
+
+Movies, Thriller
+
+Sun, 26 Jul 2026 13:45:11 GMT
+
+https://screenrant.com/10-thriller-movies-where-the-villain-wins/
+
+One of the most unsettling ways to end a movie is by allowing its villain to ultimately prevail, and these ten films handle that twist masterfully.
+---------
+
+# Silo’s Shocking Character Return Explained By Actor After Massive Book Change
+
+TV, Silo, Silo - Season 3
+
+Sun, 26 Jul 2026 13:36:55 GMT
+
+https://screenrant.com/silo-season-3-bernard-return-tim-robbins-explained/
+
+After a Silo character's shocking return that is a divergence from the source material, the actor explains what it means and teases what lies ahead.
+---------
+
+# Who Is John Rod? JoJo's Bizarre Adventures' Viral New Stand Explained
+
+Anime, Jojo's Bizarre Adventure
+
+Sun, 26 Jul 2026 13:30:11 GMT
+
+https://screenrant.com/jojos-bizarre-adventure-john-rod-explained/
+
+The biggest character in JoJo.
+---------
+
+# Warhammer 40,000’s Only Movie Explains Why We Haven’t Gotten Another In 16 Years
+
+Movies
+
+Sun, 26 Jul 2026 13:15:11 GMT
+
+https://screenrant.com/warhammer-40000-ultramarines-a-movie-reviews-franchise/
+
+Warhammer 40,000's 2010 movie is oft forgotten even by fans, though its release does appear to have prevented the unveiling of further films.
+---------
+
+# The Greatest Fantasy Anime Series of the 21st Century, Ranked
+
+Anime, Fullmetal Alchemist: Brotherhood, Frieren: Beyond Journey's End
+
+Sun, 26 Jul 2026 14:15:15 GMT
+
+https://www.cbr.com/best-fantasy-anime-21st-century-ranked/
+
+Modern fantasy anime have reached incredible heights, and these landmark series are the best of the lot.
+---------
+
+# Star Trek Confirms Deep Space Nine's Spiritual Successor With a Surprising Twist
+
+Comics, Star Trek, Star Trek: Deep Space Nine
+
+Sun, 26 Jul 2026 14:01:15 GMT
+
+https://www.cbr.com/star-trek-deep-space-nine-replacement-red-shirts-ghost-of-21st-century-series/
+
+Star Trek confirms Deep Space Nine's spiritual successor, and it's gearing up to be even more dangerous thanks to one major twist.
+---------
+
+# Hello Kitty's Darkest Official Design Ever Is Finally Coming to the U.S.
+
+Anime, sanrio, Hello Kitty, Tomie, Junji Ito, merchandise, collectibles, Good Smile Company
+
+Sun, 26 Jul 2026 14:01:15 GMT
+
+https://www.cbr.com/hello-kitty-junji-ito-gyaru-tomie-figure-us-release/
+
+Good Smile reveals the US release window for its collaborative tribute to Junji Ito's Tomie and Sanrio's iconic "kawaii kitten."
+---------
+
+# Sam's Best Lord of the Rings Line Hits Hard 25 Years Later
+
+Movies, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings, Fantasy
+
+Sun, 26 Jul 2026 13:30:15 GMT
+
+https://www.cbr.com/lord-of-the-rings-fellowship-of-the-ring-sam-gamgee-best-quote-fantasy/
+
+A quarter of a decade after The Lord of the Rings: The Fellowship of the Ring, Sam Gamgee's best line still hits hard.
+---------
+
+# ABC Is Changing How The Rookie Spinoffs Work After Feds Failed
+
+TV, The Rookie, The Rookie: Feds
+
+Sun, 26 Jul 2026 13:30:15 GMT
+
+https://www.cbr.com/the-roookie-spinoff-changing-after-feds-failed/
+
+After ABC unceremoniously canceled The Rookie: Feds, the newest spinoff of the hit Nathan Fillion series is taking a different approach.
+---------
+
+# 10 Classic '80s Anime That Aren't As Good As You Remember
+
+Anime, Dragon Ball
+
+Sun, 26 Jul 2026 13:15:15 GMT
+
+https://www.cbr.com/classic-80s-anime-arent-as-good-as-you-remember/
+
+The '80s were a formative decade for anime, but dated storytelling and poor animation make its series tough to go back to in 2026.
+---------
+
+# Final Fantasy 14 Director Reveals How FF7 Remake Crossover Came About
+
+Games, Final Fantasy, final fantasy xiv, Final Fantasy 7 Remake
+
+Sun, 26 Jul 2026 13:01:07 GMT
+
+https://www.cbr.com/final-fantasy-14-director-reveals-7-remake-crossover-happened/
+
+Final Fantasy 14 Director Naoki Yoshia revealed how the highly-anticipated crossover with Final Fantasy 7 Remake in the Evercold DLC came about.
+---------
+
+# Only 5 Old-School Westerns Are Better Than Tombstone
+
+Movies, Western, Tombstone, The Good, the Bad and the Ugly
+
+Sun, 26 Jul 2026 13:00:15 GMT
+
+https://www.cbr.com/perfect-classic-westerns-better-than-tombstone-list/
+
+Tombstone might have raised the bar for the action side of Westerns, but some old-school classics are so good not even Kurt Russell can beat them.
+---------
+
+# World Of Warcraft's Housing System Is So Good It's Influencing FF 14
+
+Games, Final Fantasy, final fantasy xiv, world of warcraft
+
+Sun, 26 Jul 2026 13:00:11 GMT
+
+https://www.cbr.com/world-of-warcraft-housing-system-is-influencing-final-fantasy-14/
+
+Final Fantasy 14 Director Naoki Yoshida has revealed how World of Warcraft's new housing system will influence the one in his game going forward.
+---------
+
+# 2026's New Horror Hit Surges on Prime Video
+
+Movie News, Prime Video, Horror, Do Not Enter, Streaming
+
+Sun, 26 Jul 2026 14:00:15 GMT
+
+https://collider.com/do-not-enter-prime-video-streaming-success-july-2026/
+
+The latest Gen Z horror hit is here. Here's everything you should know about Do Not Enter.
+---------
+
+# 6 Worst Slasher Movies That Are Truly 0/10
+
+Movie, Slasher, Horror, Black Christmas, I'll Always Know What You Did Last Summer
+
+Sun, 26 Jul 2026 13:55:15 GMT
+
+https://collider.com/worst-slasher-movies/
+
+From Halloween: Resurrection to I'll Always Know What You Did Last Summer, these movies have put a stain on the slasher genre for years.
+---------
+
+# Don't Expect DC's 'Lanterns' To Just Be Another 'True Detective'-Style Series [Exclusive]
+
+TV News, Lanterns, DCU, HBO, San Diego Comic-Con, SDCC
+
+Sun, 26 Jul 2026 13:00:15 GMT
+
+https://collider.com/lanterns-dcu-true-detective-comparison-sci-fi-cosmic-tone/
+
+Co-creator Tom King reveals HBO's Lanterns evolved into a more cosmic series than initially planned, diving deeper into Green Lantern mythology.
+---------
+
+# Say Goodbye to Mel Gibson's Oscar-Winning WWII Masterpiece
+
+Movie News, Hacksaw Ridge, Mel Gibson, Netflix, Andrew Garfield
+
+Sun, 26 Jul 2026 13:00:15 GMT
+
+https://collider.com/mel-gibson-ww2-movie-hacksaw-ridge-leaving-netflix-july-31-2026/
+
+Netflix has officially announced that the last day to watch Mel Gibson's Oscar-winning war epic, Hacksaw Ridge, will be on July 31.
+---------
+
+# Gerard Butler's Forgotten Crime Thriller Gets a Second Chance on Streaming
+
+Movie News, Copshop, Gerard Butler, Joe Carnahan, Quentin Tarantino
+
+Sun, 26 Jul 2026 12:45:15 GMT
+
+https://collider.com/gerard-butler-crime-copshop-streaming-peacock-august-2026/
+
+The overlooked Quentin Tarantino-inspired movie Copshop, starring Gerard Butler, is coming to streaming soon. Find out when you can watch it.
+---------
+
+# Paramount+'s 99-Minute Action Fantasy Sequel Is Finally Streaming After Pivoting From Cinemas
+
+Movies, Avatar Aang: The Last Airbender
+
+Sun, 26 Jul 2026 14:04:39 GMT
+
+https://movieweb.com/avatar-aang-the-last-airbender-streaming-now/
+
+Avatar Aang: The Last Airbender, the first completed project from Avatar Studios, premieres on Paramount+ after a brief theatrical run. The film picks up years after the original series, exploring the possibility of restoring the Air Nomads. With a strong critic score, the franchise is in an unusually busy moment.
+---------
+
+# Star Trek's 9 Best Alien Hybrid Characters, Ranked
+
+TV Lists, Star Trek
+
+Sun, 26 Jul 2026 14:00:12 GMT
+
+https://movieweb.com/star-trek-alien-hybrids-ranked/
+
+The Star Trek franchise often hybridizes various species to create compelling new characters. Read on for more.
+---------
+
+# 35 Years Later, Kevin Costner’s Thriller Masterpiece Sets New Release
+
+Movies, JFK, Kevin Costner
+
+Sun, 26 Jul 2026 13:55:28 GMT
+
+https://movieweb.com/kevin-costner-jfk-4k-blu-ray-release/
+
+Shout! Studios announces an August 11, 2026 release for a standalone 4K Ultra HD edition of Oliver Stone's JFK, focusing on the 189-minute theatrical version. This release aims to offer audiences the original cut of the film in native 4K with Dolby Vision and HDR10.
+---------
+
+# Forgotten Sean Penn Thriller Hits Netflix Soon — and Deserves a Rewatch
+
+Streaming, Sean Penn, Asphalt City
+
+Sun, 26 Jul 2026 13:46:07 GMT
+
+https://movieweb.com/sean-penn-asphalt-city-netflix/
+
+It's time to give this grim 2024 release a fresh shot at finding the audience it missed in theaters.
+---------
+
+# Paramount+ Officially Cancels 'SNL' Star's 100%-Rated Series After 1 Season
+
+Streaming, Crutch
+
+Sun, 26 Jul 2026 13:32:26 GMT
+
+https://movieweb.com/tracy-morgan-crutch-canceled-paramount-plus/
+
+Paramount+ has canceled the Tracy Morgan-led sitcom 'Crutch' after one season, despite its 100% Rotten Tomatoes score. The streamer's shift in focus and leadership changes are cited as reasons behind the decision.
+---------
+
+# Guy Ritchie & Jason Statham's Forgotten Crime Action Thriller Is About to Leave Free Streaming
+
+Movie News, Revolver, Jason Statham, Guy Ritchie, Coming/Leaving Streaming
+
+Sun, 26 Jul 2026 13:22:38 GMT
+
+https://movieweb.com/revolver-leaving-free-streaming-pluto-august-2026/
+
+This one's definitely on the list of action movies that deserve to be reevaluated.
+---------
+
+# Tiffany Haddish Officially Rebooting Beloved 11-Part Family Series
+
+TV News, Tiffany Haddish
+
+Sun, 26 Jul 2026 13:06:55 GMT
+
+https://movieweb.com/backyard-baseball-animated-series-tiffany-haddish/
+
+Comedian Tiffany Haddish lends her voice to a character in the upcoming 20-episode Backyard Sports: The Animated Series, a revival of the beloved 11-part family franchise.
+---------
+
+# One of 2024’s Best-Reviewed Crime Shows Is Finally Back on Paramount+
+
+TV News, Diarra From Detroit
+
+Sun, 26 Jul 2026 13:00:42 GMT
+
+https://movieweb.com/diarra-from-detroit-season-2-release/
+
+'Diarra From Detroit,' a critically acclaimed crime comedy series starring Diarra Kilpatrick, returns for Season 2 on Paramount+ July 29.
+---------
+
 # DC Debuts General Zod Redesign & Codename Change Ahead of Superman's Next Appearance
 
 DC Comics, Superman
@@ -5144,356 +5496,4 @@ Fri, 24 Jul 2026 22:17:59 GMT
 https://screenrant.com/beef-season-2-netflix-best-thriller-2026-no-bad-episodes/
 
 Netflix's best psychological thriller/black comedy/relationship drama of 2026 had a massive bar to clear and did so with flying colors.
----------
-
-# 7 Years Later, TMNT: The Last Ronin Will Finally End
-
-Comic-Con, San Diego Comic-Con, Teenage Mutant Ninja Turtles
-
-Fri, 24 Jul 2026 22:17:52 GMT
-
-https://screenrant.com/tmnt-finale-return-for-new-york-release-2027/
-
-One of the finest stories in the Ninja Turtles franchise is coming to a close.
----------
-
-# Mike Flanagan Teases Reviving Major Haunting Of Hill House Detail For New Stephen King Carrie Adaptation
-
-TV, Carrie, San Diego Comic-Con
-
-Fri, 24 Jul 2026 22:05:27 GMT
-
-https://screenrant.com/mike-flanagan-carrie-hill-house-adaptation-strategy-comparison/
-
-EXCLUSIVE: Mike Flanagan opens up about how his work on Netflix’s The Haunting of Hill House is inspiring his upcoming TV remake of Carrie.
----------
-
-# An Unplayable PlayStation 1 Game Has Finally Come To PS5 After 29 Years
-
-Gaming, PlayStation (Original), PlayStation, PlayStation 5, Triple-A Games
-
-Fri, 24 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/29-year-old-ps1-game-playstation-5-release/
-
-Plenty of early PlayStation games never made their way outside Japan, but one classic is getting its worldwide debut 29 years after launch.
----------
-
-# Motor City Review: Alan Ritchson’s New Revenge Thriller Wastes Its Most Exciting Idea
-
-Movies, Motor City
-
-Fri, 24 Jul 2026 22:24:15 GMT
-
-https://www.cbr.com/motor-city-review/
-
-In Motor City, Alan Ritchson commands a stylish 1970s revenge movie whose ambitious silent approach never fully clicks.
----------
-
-# 5 RPGs Where Side Quests Are Better Than the Main Story
-
-Games, Video Games, Cyberpunk 2077, Assassin's Creed, Harry Potter
-
-Fri, 24 Jul 2026 22:15:15 GMT
-
-https://www.cbr.com/rpgs-side-quests-better-than-main-story/
-
-RPGs like Cyberpunk 2077 and Hogwarts Legacy are much better when players don't follow the main story.
----------
-
-# Zach Cregger Explains Chaotic Resident Evil Scene That Almost Killed Its Lead Star
-
-Movies, Resident Evil, San Diego Comic-Con
-
-Fri, 24 Jul 2026 22:13:00 GMT
-
-https://www.cbr.com/resident-evil-san-diego-comic-con-exclusive/
-
-EXCLUSIVE: Director Zach Cregger reveals how Austin Abrams nearly paid the price for Resident Evil ditching CGI for practical effects.
----------
-
-# Absolute Superman Just Brought Doomsday to the Absolute Universe
-
-Comics, Superman
-
-Fri, 24 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/absolute-superman-absolute-doomsday-confirmed/
-
-The Absolute Universe has finally found its Doomsday, and there is far more to them than readers could have possibly imagined.
----------
-
-# It's Official, The MCU Has a New Strongest Villain
-
-Movies, Doctor Doom, Avengers: Doomsday, Marvel Cinematic Universe
-
-Fri, 24 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/mcu-doctor-doom-stronger-than-thanos/
-
-Eight years after Thanos used the Infinity Stones in Avengers: Infinity War, Marvel has just introduced the MCU's new strongest supervillain.
----------
-
-# Lanterns Officially Introduces Supervillain to the DCU & Hints at Major Superhero Reveal?
-
-TV, DCU, DC Comics, Lanterns
-
-Fri, 24 Jul 2026 21:47:07 GMT
-
-https://www.cbr.com/lanterns-introduces-supervillain-to-the-dcu-hints-at-martian-manhunter-reveal/
-
-Lanterns dropped a massive hint about a Justice League member's debut, and introduced an iconic supervillain.
----------
-
-# Prime Video Is Changing Its Reacher Formula Without Alan Ritchson, Confirms Neagley Star
-
-CBR Exclusives, Reacher, Neagley, San Diego Comic-Con
-
-Fri, 24 Jul 2026 21:16:49 GMT
-
-https://www.cbr.com/prime-video-neagley-reacher-formula/
-
-The new Reacher spinoff will feature a key character from the series, but it will change its formula.
----------
-
-# 10 Must-Watch Anime That Get Better Every Season
-
-Anime
-
-Fri, 24 Jul 2026 21:15:03 GMT
-
-https://www.cbr.com/must-watch-anime-better-every-season/
-
-Some of the most beloved anime carry their story successfully through multiple seasons, getting better with each new return to their world.
----------
-
-# Marvel Officially Confirms 'X-Men '97's New Season 3 Villains
-
-TV News, X-Men '97, Marvel Animation, Disney+, SDCC
-
-Fri, 24 Jul 2026 22:51:14 GMT
-
-https://collider.com/x-men-97-season-3-brotherhood-of-mutants-footage-description/
-
-As the war against Apocalypse wages on, X-Men '97 has shared a first look at Season 3, which brings back some of the titular team's oldest enemies.
----------
-
-# ‘Avengers: Doomsday’ Is Hiding the Scarlet Witch’s Return in Plain Sight
-
-Movie Features, Scarlet Witch, Elizabeth Olsen, Avengers: Doomsday, San Diego Comic-Con
-
-Fri, 24 Jul 2026 22:48:14 GMT
-
-https://collider.com/avengers-doomsday-latverian-witch-scarlet-witch-return-theory/
-
-Marvel’s mysterious Latverian Witch costume at San Diego Comic-Con could be the biggest clue yet that Scarlet Witch will return in Avengers: Doomsday.
----------
-
-# 10 Perfect Sci-Fi Shows With 20 Episodes or Less
-
-TV, Sci-Fi, Battlestar Galactica, Arcane, Firefly
-
-Fri, 24 Jul 2026 22:44:15 GMT
-
-https://collider.com/perfect-sci-fi-shows-shorter-than-20-episodes/
-
-Discover the best short sci-fi shows with 20 episodes or fewer, including acclaimed series like Battlestar Galactica, Arcane, and Firefly.
----------
-
-# 'X-Men '97' Season 4 Officially Confirmed
-
-TV News, X-Men '97, Marvel Animation, Disney Plus, SDCC
-
-Fri, 24 Jul 2026 22:36:11 GMT
-
-https://collider.com/x-men-97-season-4-renewed/
-
-With Season 3 already confirmed, Disney+ and Marvel have officially announced that a fourth season of X-Men '97 is officially in development.
----------
-
-# ‘Star Trek: Strange New Worlds’ Almost Killed Off This Fan-Favorite Character
-
-TV Features, Star Trek: Strange New Worlds, Carol Kane, Akiva Goldsman, Paramount Plus
-
-Fri, 24 Jul 2026 22:34:14 GMT
-
-https://collider.com/star-trek-strange-new-worlds-almost-killed-fan-favorite-character-pelia/
-
-On a panel, Star Trek: Strange New Worlds co-showrunner Akiva Goldsman revealed a scrapped episode idea that would have killed Pelia (Carol Kane.)
----------
-
-# 20 Years Later, This Remains the Most Perfect R-Rated Sci-Fi Movie of All Time
-
-Movie Features, Children of Men, Clive Owen, Julianne Moore, Alfonso Cuaron
-
-Fri, 24 Jul 2026 22:19:14 GMT
-
-https://collider.com/children-of-men-best-dystopian-sci-fi-movie/
-
-Children of Men envisions a dystopian future where infertility has brought the world to its knees in a story frighteningly close to reality.
----------
-
-# 'The Mandalorian and Grogu' Gets Official New Bounty Hunter-Sized Release [Exclusive]
-
-Movie News, The Mandalorian and Grogu, Action Figures, Star Wars, Jeremy Allen White
-
-Fri, 24 Jul 2026 22:00:14 GMT
-
-https://collider.com/star-wars-the-mandalorian-and-grogu-rotta-the-hutt-action-figures/
-
-Hasbro's Vintage Collection features Rotta the Hutt and Imperial Remnant Warlord with INT-4 Interceptor, as seen in The Mandalorian and Grogu.
----------
-
-# The Greatest Sci-Fi Masterpiece of All Time Is Free to Watch and Feels More Relevant Than Ever
-
-Movie Features, The Matrix, Keanu Reeves, Lawrence Fishburne, Sci-Fi
-
-Fri, 24 Jul 2026 21:59:14 GMT
-
-https://collider.com/the-matrix-sci-fi-masterpiece-ai-commentary/
-
-The Matrix is a classic sci-fi movie far ahead of its time about the dangers of being reliant on artificial intelligence.
----------
-
-# Harry Potter Gets Name-Dropped in New Footage for HBO Max's 'Lanterns'
-
-TV News, Lanterns, DC Comics, Kyle Chandler, Aaron Pierre
-
-Fri, 24 Jul 2026 21:53:57 GMT
-
-https://collider.com/dc-lanterns-footage-description/
-
-Shortly after dropping the newest trailer, Lanterns has also debuted several new clips that tease what's to come in the HBO Max sci-fi series.
----------
-
-# 3 Beloved Movies To Watch on Prime Video This Weekend (July 25-26)
-
-Movie, Bones and All, The Wolf of Wall Street, The Wild Robot, Prime Video
-
-Fri, 24 Jul 2026 21:48:14 GMT
-
-https://collider.com/best-prime-video-movies-watch-weekend-july-25-2026/
-
-The Wolf of Wall Street, Bones and All, and The Wild Robot make up our list of the best Prime Video movies to watch the weekend of July 25th, 2026.
----------
-
-# The Fate of 'Interview With the Vampire' Officially Confirmed After 3 Seasons
-
-TV News, The Vampire Lestat, Interview with the Vampire, AMC+, Queen of the Damned, Horror
-
-Fri, 24 Jul 2026 22:25:46 GMT
-
-https://movieweb.com/interview-with-the-vampire-season-4-renewal/
-
-We're getting another season of the series, though it's changing titles to 'Queen of the Damned.'
----------
-
-# Final Season of Hit 'The Walking Dead' Spin-Off Sets Release Window
-
-TV News, The Walking Dead: Daryl Dixon, Norman Reedus
-
-Fri, 24 Jul 2026 22:12:31 GMT
-
-https://movieweb.com/the-walking-dead-daryl-dixon-season-4-release/
-
-One of the spin-off series from 'The Walking Dead' universe has set a release window for its final season.
----------
-
-# Forget 'The Odyssey,' Zack Snyder's New #1 Smash Hit Fantasy Action Epic Dominates Streaming
-
-Movie News, 300, Hot on Streaming, Zack Snyder
-
-Fri, 24 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/300-streaming-hit-vod-vudu-july-2026/
-
-Snyder vs. Nolan, who is your pick?
----------
-
-# New 'Indiana Jones' Series Officially Announced After 'Dial of Destiny' Flopped
-
-Movie News, Indiana Jones, Indiana Jones and the Dial of Destiny
-
-Fri, 24 Jul 2026 21:54:44 GMT
-
-https://movieweb.com/indiana-jones-comic-series-raiders-of-the-lost-ark/
-
-Indiana Jones and the Sword of Pandemonium, a new comic series, will continue the archaeologist's adventures, set after 'Raiders of the Lost Ark.'
----------
-
-# Paramount Drops Bombshell Decision as Warner Bros. Merger Faces Major Hurdle
-
-Movie News, Paramount Plus, HBO Max
-
-Fri, 24 Jul 2026 21:10:54 GMT
-
-https://movieweb.com/paramount-warner-bros-merger-delay-trial-antitrust/
-
-Paramount agrees to delay the merger until after an antitrust trial.
----------
-
-# Blade Runner: Replicant Rebellion Is The Sequel We Never Expected
-
-Gaming, Blade Runner, tabletop games
-
-Fri, 24 Jul 2026 21:30:11 GMT
-
-https://screenrant.com/blade-runner-replicant-rebellion-sequel-feature/
-
-Blade Runner is about to enter a brand-new era for the series, but its latest sequel is one that sci-fi fans can already enjoy right now.
----------
-
-# Taken Meets The Punisher In This Underrated 2018 Action Thriller
-
-Movies, Masked Recs
-
-Fri, 24 Jul 2026 21:30:11 GMT
-
-https://screenrant.com/peppermint-movie-female-punisher-taken-jennifer-garner-underrated/
-
-This underrated 2018 action thriller is an R-rated blend of The Punisher and Taken, and gave Jennifer Garner a rare solo action movie to shine in.
----------
-
-# OG Big Bang Theory Character’s Death In New Spinoff Clarified By Creators & Star
-
-TV, Stuart Fails to Save the Universe, The Big Bang Theory
-
-Fri, 24 Jul 2026 21:28:15 GMT
-
-https://screenrant.com/stuart-fails-to-save-the-universe-raj-death-lorre-prady-penn-bowie-explained/
-
-Stuart Fails to Save the Universe's first episode killed off an OG Big Bang Theory character, and now their status going forward has been cleared up.
----------
-
-# Diablo's Age of Hatred Saga Finally Ends Next Week With One Final Release
-
-Comics, Diablo
-
-Fri, 24 Jul 2026 21:07:12 GMT
-
-https://screenrant.com/diablo-age-of-hatred-saga-finale-details/
-
-Think the Age of Hatred Saga ended with Diablo IV: Lord of Hatred? One final chapter arrives next week before Blizzard's story truly ends.
----------
-
-# Marvel Officially Unveils New Cyclops Design And Actor
-
-Gaming, Marvel, Marvel Tokon: Fighting Souls, Triple-A Games
-
-Fri, 24 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/marvel-new-cyclops-design-ray-chase/
-
-Marvel is tripling down on Cyclops lately after the X-Men character finally received the popularity he deserves, and this new design is quite bold.
----------
-
-# Rick & Morty Spinoff President Curtis Season 2's Fate Quickly Decided By Adult Swim
-
-TV, President Curtis, San Diego Comic-Con
-
-Fri, 24 Jul 2026 20:57:38 GMT
-
-https://screenrant.com/president-curtis-season-2-renewal-rick-and-morty-universe/
-
-Rick and Morty spinoff, President Curtis, dropped some major news regarding season 2 during its panel at San Diego Comic-Con on Friday.
 ---------
