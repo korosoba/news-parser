@@ -1,3 +1,47 @@
+# New Mistborn Handbook Is A Must-Have For Brandon Sanderson Fans
+
+Tabletop, Mistborn, Brandon Sanderson, tabletop games
+
+Sun, 26 Jul 2026 07:00:11 GMT
+
+https://screenrant.com/mistborn-handbook-brandon-sanderson-release-2026/
+
+A new Mistborn book release is already proving to be an absolute necessity for any fan of Brandon Sanderson, as it details special magical systems.
+---------
+
+# Pokémon Winds & Waves New Regional Variant Officially Teased
+
+Gaming, Pokemon Winds and Waves, Pokemon, Triple-A Games
+
+Sun, 26 Jul 2026 06:00:11 GMT
+
+https://screenrant.com/pokemon-winds-waves-new-regional-variant-tease/
+
+A bunch of new, unused Pokémon designs were recently found, and they support the idea that a new regional variant was teased in another Pokémon game.
+---------
+
+# Batman: Arkham Officially Has One Joker Story Left To Tell
+
+Gaming, Batman: Arkham, Batman, Triple-A Games
+
+Sun, 26 Jul 2026 05:00:12 GMT
+
+https://screenrant.com/batman-arkham-joker-origin-prequel/
+
+If the Batman: Arkham franchise is going to revisit more prequel stories, as it arguably should, there is one Joker story that it should rush to tell.
+---------
+
+# Why Marvel Studios Didn’t Reveal The New X-Men Cast At SDCC
+
+Superheroes, X-Men, Marvel Cinematic Universe, San Diego Comic-Con
+
+Sun, 26 Jul 2026 04:53:55 GMT
+
+https://screenrant.com/why-marvel-studios-didnt-reveal-new-x-men-cast-sdcc/
+
+As exciting as Marvel Studios' SDCC panel was, some reveals were definitely held back, including the upcoming cast for 2028's X-Men movie.
+---------
+
 # Game Of Thrones: Children Of The Forest Officially Releases July 29
 
 Gaming, Game of Thrones, Game Of Thrones, PC
@@ -5452,48 +5496,4 @@ Fri, 24 Jul 2026 19:44:14 GMT
 https://collider.com/most-perfectly-cast-movie-roles-all-time-ranked/
 
 Vivien Leigh as Scarlett O'Hara, Sean Connery as James Bond, and Kathy Bates as Annie Wilkes are among the most perfectly cast movie roles ever.
----------
-
-# Ridley Scott’s Sci-Fi Masterpiece 'The Martian' Had a Scene He "Had No Interest" in Reshooting [Exclusive]
-
-Exclusives, The Martian, San Diego Comic-Con, Sci-Fi, Ridley Scott
-
-Fri, 24 Jul 2026 19:30:15 GMT
-
-https://collider.com/ridley-scott-the-martian-original-ending-reshoot/
-
-Simon Kinberg reveals Ridley Scott resisted filming The Martian’s ending before audience testing convinced the director to approve a reshoot.
----------
-
-# The 10 Best 'Lost' Plot Twists, Ranked
-
-TV, Lost, Evangeline Lily, Matthew Fox, Sci-Fi
-
-Fri, 24 Jul 2026 19:08:24 GMT
-
-https://collider.com/best-lost-plot-twists-ranked/
-
-Explore the most shocking twists from the hit TV show Lost, ranked by impact and surprise factor, from the Swan button to the final flash-forward.
----------
-
-# Jon Bernthal's 132-Minute Action Thriller Is Officially One of the Biggest Hits on Streaming
-
-Movie News, Jon Bernthal, Action, Thriller, The Accountant 2, Prime Video
-
-Fri, 24 Jul 2026 20:00:12 GMT
-
-https://movieweb.com/accountant-2-bernthal-biggest-action-stream-july-2026/
-
-'The Punisher' star's long-awaited action sequel shoots to success on streaming.
----------
-
-# 3 Binge-Worthy Sci-Fi Miniseries You Can Watch This Weekend
-
-TV Lists, Sci-Fi, Cyberpunk: Edgerunners, Maniac, Devs
-
-Fri, 24 Jul 2026 20:00:12 GMT
-
-https://movieweb.com/binge-worthy-sci-fi-miniseries/
-
-Your next sci-fi obsession awaits, and we won't ask you to commit to a multi-season epic ordeal. Keep it short and sweet!
 ---------
