@@ -1,3 +1,322 @@
+# 10 Absolute Worst Devil Fruits In One Piece
+
+Streaming TV, One Piece
+
+Sun, 26 Jul 2026 15:30:11 GMT
+
+https://screenrant.com/one-piece-worst-devil-fruits/
+
+The One Piece universe is filled with many Devil Fruits that grant amazing special abilities. These 10 Devil Fruits, however, are just awful.
+---------
+
+# Metal Gear Solid 4 Remaster Showcases Major Graphical Improvements
+
+Gaming, Metal Gear Solid 4: Guns of the Patriots, Triple-A Games
+
+Sun, 26 Jul 2026 15:30:11 GMT
+
+https://screenrant.com/metal-gear-solid-4-remaster-graphics-showcase/
+
+As we wait for the release of the Metal Gear Solid 4 remaster, we're treated to footage of the collection, which is looking great.
+---------
+
+# The DCU Just Introduced Its Own Doctor Doom
+
+Movies, DC Universe, Clayface, Doctor Doom
+
+Sun, 26 Jul 2026 15:30:11 GMT
+
+https://screenrant.com/dc-universe-doctor-doom-clayface-movie-paralells/
+
+The DC Universe has provided a update that has established who its own version of Doctor Doom is thanks to some parallels between two characters.
+---------
+
+# How Marvel Cast The MCU's New Black Panther Explained By Kevin Feige
+
+Exclusive, Black Panther, Marvel Cinematic Universe, San Diego Comic-Con
+
+Sun, 26 Jul 2026 15:13:08 GMT
+
+https://screenrant.com/ryan-coogler-black-panther-marvel-casting-kevin-feige-explained/
+
+EXCLUSIVE: MCU mastermind Kevin Feige explains how Marvel landed on the decision for David Jonsson to take up the mantle of Black Panther.
+---------
+
+# Toy Story 5 Becomes 2026's First Movie To Hit Major Box Office Milestone
+
+Movies, Toy Story 5, Toy Story
+
+Sun, 26 Jul 2026 15:12:29 GMT
+
+https://screenrant.com/toy-story-5-box-office-1-billion-2026-highest-grossing-movie/
+
+A little over a month after debuting in years, Toy Story 5 has achieved a major box office milestone and surpassed all other 2026 movies.
+---------
+
+# It's Been 12 Years, But One Piece Is Finally Reviving A Forgotten Straw Hat Power
+
+Anime, One Piece
+
+Sun, 26 Jul 2026 15:02:51 GMT
+
+https://screenrant.com/one-piece-usopp-observation-haki-return/
+
+One Straw Hat is finally getting some respect.
+---------
+
+# Coyote Vs. Acme First Reactions Are In
+
+Movies, Coyote Vs. Acme
+
+Sun, 26 Jul 2026 15:01:20 GMT
+
+https://screenrant.com/coyote-vs-acme-first-reactions/
+
+After previously being shelved by Warner Bros., first reactions to the long-awaited Looney Tunes movie Coyote vs. Acme are officially here.
+---------
+
+# 12 Things In Marvel's Spider-Man 2 Most Players Never Discover
+
+Gaming, Marvel's Spider-Man 2, Insomniac's Marvel Universe
+
+Sun, 26 Jul 2026 15:00:13 GMT
+
+https://screenrant.com/marvels-spiderman-2-secrets-easter-eggs/
+
+Marvel’s Spider-Man 2 isn’t an exceptionally large open-world game, but its New York City is still filled with plenty of hard-to-find secrets.
+---------
+
+# 5 Reasons It's Hard To Watch Scarface Today
+
+Classic Movies, Scarface
+
+Sun, 26 Jul 2026 15:00:11 GMT
+
+https://screenrant.com/scarface-movie-hard-to-watch-today/
+
+Scarface is considered one of the best crime movies of all time, btu watching it today shows that it has not always stood the test of time.
+---------
+
+# Battlestar Galactica Was Right To Drop A Fan-Favorite Character From The 1978 Series
+
+TV, Battlestar Galactica
+
+Sun, 26 Jul 2026 15:00:11 GMT
+
+https://screenrant.com/battlestar-galactica-muffit-not-return-right-decision/
+
+Many characters from the original Battlestar Galactica from 1978 were adapted for the 2004 reboot, but Muffit being left out was the right choice.
+---------
+
+# Mike Flanagan's Carrie Will Finally Fix the Story's Biggest Adaptation Problem
+
+TV, Carrie, Mike Flanagan, Horror
+
+Sun, 26 Jul 2026 15:30:15 GMT
+
+https://www.cbr.com/mike-flanagan-carrie-fix-biggest-adaptation-problem/
+
+Mike Flanagan's Carrie will soon bring Stephen King's classic novel to television, creating more room for the characters' emotional story to unfold.
+---------
+
+# Marvel Shang-Chi Star Delivers Mic Drop Update About Sequel Chances
+
+Movies, Marvel, Marvel Comics, MCU, Shang-Chi, Shang-Chi 2, Avengers: Doomsday, Avengers: Doomsday (2026), San Diego Comic-Con
+
+Sun, 26 Jul 2026 15:26:55 GMT
+
+https://www.cbr.com/shang-chi-2-simu-liu-update-avengers-doomsday/
+
+There is no way Marvel can ignore Shang-Chi's mic drop comment — can they?
+---------
+
+# 10 Sci-Fi Anime Series That Are 10/10 Masterpieces
+
+Anime, Cowboy Bebop, Neon Genesis Evangelion, Ghost in the Shell
+
+Sun, 26 Jul 2026 15:15:15 GMT
+
+https://www.cbr.com/sci-fi-anime-series-flawless-masterpieces/
+
+The sci-fi genre in anime contains some of the greatest works in the medium, including absolute masterpieces that are undoubtedly 10/10 watches.
+---------
+
+# MTV's 3-Season Timely Comedy Is the Perfect Watch When It Hits Pluto TV Next Month
+
+TV, Faking It
+
+Sun, 26 Jul 2026 15:04:30 GMT
+
+https://www.cbr.com/faking-it-mtv-pluto-tv-streaming-august-2026/
+
+MTV's show is coming to Pluto TV next month. The romantic comedy will be available to stream for free.
+---------
+
+# 10 Most Underrated Lightsaber Designs in Star Wars
+
+Movies, Star Wars
+
+Sun, 26 Jul 2026 15:00:15 GMT
+
+https://www.cbr.com/star-wars-underrated-lightsaber-designs-list/
+
+Some lightsabers in Star Wars get all the credit, but these superb designs all deserve more attention.
+---------
+
+# 10 Forgotten '80s Action Anime That Have Aged Like Fine Wine
+
+Anime, shonen anime, Action, City Hunter
+
+Sun, 26 Jul 2026 15:00:15 GMT
+
+https://www.cbr.com/forgotten-80s-action-anime-that-aged-like-fine-wine/
+
+The ‘80s laid the foundation for modern action anime, producing countless series that crossed genres while embarking into new territory.
+---------
+
+# Anthony Mackie Unexpectedly Spills Steve Rogers' New Avengers: Doomsday Role
+
+Movies, San Diego Comic-Con, Marvel, Marvel Comics, MCU, Avengers: Doomsday, Avengers: Doomsday (2026), Captain America
+
+Sun, 26 Jul 2026 14:52:03 GMT
+
+https://www.cbr.com/anthony-mackie-steve-rogers-avengers-doomsday-role/
+
+The world finally knows who Steve Rogers will when he returns in Avengers: Doomsday.
+---------
+
+# Spectacular Spider-Man's Best Quote Reinvented Peter Parker's Greatest Lesson
+
+TV, Spider-Man, Marvel, The Spectacular Spider-Man
+
+Sun, 26 Jul 2026 14:30:15 GMT
+
+https://www.cbr.com/spectacular-spider-man-best-quote/
+
+Voice actor Josh Keaton revealed his favorite quote from the 2008 animated series The Spectacular Spider-Man, which defined the hero for a generation.
+---------
+
+# New 'Reacher' Spin-Off Officially Announced
+
+TV News, Reacher, Neagley, Alan Ritchson, Maria Sten
+
+Sun, 26 Jul 2026 15:00:15 GMT
+
+https://collider.com/reacher-spin-off-neagley-book-lee-child/
+
+As the Reacher universe continues to expand with Neagley, Reacher author Lee Child has announced a brand-new spin-off. Read on for more.
+---------
+
+# Iron Studios Officially Reveals 'Avengers: Doomsday' Figures With First Look at Doctor Doom, Professor X, and Magneto [Exclusive]
+
+Exclusives, Avengers: Doomsday, Robert Downey Jr, Ian McKellen, Patrick Stewart, SDCC
+
+Sun, 26 Jul 2026 15:00:15 GMT
+
+https://collider.com/avengers-doomsday-iron-studios-doctor-doom-professor-xavier-magneto-images/
+
+Iron Studios debuts new figures of Doctor Doom, Professor Xavier, and Magneto from the upcoming film Avengers: Doomsday. See the exclusive images now.
+---------
+
+# It's the End of an Era for Scarlett Johansson's Sci-Fi Sleeper Hit on Netflix
+
+Movie News, Lucy, Scarlett Johansson, Netflix, Sci-Fi
+
+Sun, 26 Jul 2026 15:00:15 GMT
+
+https://collider.com/scarlett-johansson-sci-fi-lucy-leaving-netflix-july-31-2026/
+
+Netflix has announced that the last day to watch Scarlett Johansson's forgotten sci-fi thriller, Lucy, will be on July 31.
+---------
+
+# 'The Odyssey' Officially Slays Ridley Scott’s Historical Epics at the Box Office in Just 10 Days
+
+Movie News, The Odyssey, Christopher Nolan, Ridley Scott, Gladiator
+
+Sun, 26 Jul 2026 14:57:48 GMT
+
+https://collider.com/the-odyssey-box-office-overtakes-gladiator-2-ridley-scott/
+
+The Odyssey officially outgrosses both Ridley Scott Gladiator movies at the worldwide box office after just 10 days in theaters.
+---------
+
+# Glen Powell’s Underseen 5-Part Sci-Fi Masterpiece Has Aged Like Fine Wine
+
+TV Features, Glen Powell, Jenna Ortega, Jurassic World: Camp Cretaceous, Netflix
+
+Sun, 26 Jul 2026 14:35:45 GMT
+
+https://collider.com/glen-powell-jurassic-world-camp-cretaceous-sci-fi-masterpiece/
+
+Powell joined a surprisingly stacked cast that included Jenna Ortega.
+---------
+
+# First 'Reacher' Season 5 Plot Details Officially Revealed
+
+TV News, Reacher, Jack Reacher, Prime Video, Alan Ritchson
+
+Sun, 26 Jul 2026 14:30:15 GMT
+
+https://collider.com/reacher-season-5-plot-details-lee-child-book-make-me-alan-ritchson/
+
+The first plot details for Reacher Season 5 have been revealed before Season 4 even debuts. Find out which Lee Child book the show will adapt next.
+---------
+
+# Only Alan Ritchson Can Take on Odysseus at the Box Office
+
+Movie News, Motor City, The Odyssey, Alan Ritchson, Box Office
+
+Sun, 26 Jul 2026 14:29:47 GMT
+
+https://collider.com/motor-city-alan-ritchson-the-odyssey-box-office/
+
+Alan Ritchson’s R-rated action thriller Motor City challenges Christopher Nolan’s The Odyssey at the weekend box office.
+---------
+
+# New 'Neuromancer' Trailer Promises Cyberpunk Thrills in Apple TV Adaptation
+
+TV Trailers, Neuromancer, Apple TV, Sci-Fi
+
+Sun, 26 Jul 2026 15:21:28 GMT
+
+https://movieweb.com/neuromancer-trailer-apple-tv/
+
+The book that invented the cyberpunk genre is finally getting the live-action adaptation it deserves.
+---------
+
+# 20 TV Shows Like 'New Girl' to Watch Next
+
+TV Lists, New Girl
+
+Sun, 26 Jul 2026 15:00:13 GMT
+
+https://movieweb.com/shows-like-new-girl/
+
+If you find yourself missing New Girl's quirky characters and colorful storylines, check out these 20 equally amusing TV shows.
+---------
+
+# Jason Statham & Mark Wahlberg's Heist Thriller Remake Couldn't Beat the Original
+
+Features, Jason Statham
+
+Sun, 26 Jul 2026 15:00:12 GMT
+
+https://movieweb.com/italian-job-remake-jason-statham-mark-wahlberg-failed/
+
+This early 2000s remake starring Jason Statham and Mark Wahlberg is great, but it doesn't beat the original.
+---------
+
+# Prime Video Unleashes First Trailer for Mike Flanagan's Stephen King Reboot
+
+TV News, Mike Flanagan, Stephen King, Carrie
+
+Sun, 26 Jul 2026 14:27:02 GMT
+
+https://movieweb.com/prime-video-first-trailer-carrie-mike-flanagan/
+
+The filmmaker behind 'Doctor Sleep' and 'The Life Of Chuck' brings a modern twist to one of King's most beloved works.
+---------
+
 # Stephen King-Approved Apple TV Series Gets Exciting Season 2 Filming Timeline
 
 TV, Widow's Bay, San Diego Comic-Con
@@ -5177,323 +5496,4 @@ Sat, 25 Jul 2026 00:00:12 GMT
 https://movieweb.com/the-odyssey-secret-movie-adaptations/
 
 Filmmakers have borrowed major parts of Homer’s structure for centuries. Here are 6 great movies secretly inspired by 'The Odyssey.'
----------
-
-# 3 Best Movies To Watch On Prime Video This Weekend (July 25-26)
-
-Movies, Prime Video, Recommendation
-
-Fri, 24 Jul 2026 23:43:37 GMT
-
-https://screenrant.com/best-prime-video-movies-watch-weekend-july-25/
-
-Prime Video subscribers will find the best movies this weekend in the form of an action thriller, a sci-fi masterpiece, and a new fantasy epic.
----------
-
-# A Classic Star Trek Alien Just Scored The Franchise's Most Brutal Kill
-
-Comics, Star Trek
-
-Fri, 24 Jul 2026 23:30:11 GMT
-
-https://screenrant.com/classic-star-trek-alien-mugato-brutal-kill/
-
-Good grief.
----------
-
-# Mortal Kombat II Can Redeem Its $129M Box Office Starting Today
-
-Movies, Mortal Kombat, Mortal Kombat II, Mortal Kombat: Annihilation
-
-Fri, 24 Jul 2026 23:30:11 GMT
-
-https://screenrant.com/mortal-kombat-2-streaming-hbo-max/
-
-Mortal Kombat II may not have been a hit at the box office, but it now has a second chance to gain traction with audiences at home.
----------
-
-# Margaret Qualley Runs For Her Life In First Set Photos For New Horror Remake Of '80s Classic
-
-Movies, Horror
-
-Fri, 24 Jul 2026 23:26:02 GMT
-
-https://screenrant.com/possession-movie-remake-set-photos-margaret-qualley/
-
-Margaret Qualley takes on a famously demanding role as new set photos tease Parker Finn’s remake of a chilling 1980s cult classic.
----------
-
-# Brotherhood Of Mutants First Line-Up Confirmed In X-Men '97 Season 3
-
-TV, X-Men '97, San Diego Comic-Con
-
-Fri, 24 Jul 2026 23:19:29 GMT
-
-https://screenrant.com/xmen-season-3-brotherhood-of-mutants-confirmed/
-
-Marvel Studios confirms that the Brotherhood of the Mutants will have a major role in X-Men '97's upcoming third season at San Diego Comic-Con.
----------
-
-# How To Read The Odyssey For Free
-
-Books, The Odyssey
-
-Fri, 24 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/how-read-the-odyssey-free/
-
-Anyone wanting to read The Odyssey after watching Christopher Nolan's blockbuster movie is in luck, as it's available for free in several places.
----------
-
-# 7 Pokémon That Nearly Had Very Different Designs
-
-Gaming, Pokemon, Triple-A Games
-
-Fri, 24 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/pokemon-alternate-designs-ranked/
-
-A huge new leak shows what some Pokémon may have looked like, for a new glimpse at some very different designs for beloved characters.
----------
-
-# Mindhunter Looks Small Next To The 'Se7en Meets True Detective' Series That Changed TV
-
-Streaming TV, Masked Recs
-
-Fri, 24 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/mindhunter-hannibal-tv-series-comparison/
-
-Mindhunter is one of the greatest true crime masterpiece TV shows of all time, but its legacy pales in comparison to a crime show with a great villain
----------
-
-# Naruto's Next Anime Will Prove That The Fourth Hokage's True Heir Was Never Naruto
-
-Anime, Naruto, Boruto: Two Blue Vortex
-
-Fri, 24 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/naruto-next-anime-hokage-minato-true-heir/
-
-In setting up one of the most daring rescues possible in the latest sequel, Naruto's Fourth Hokage may have a proper successor at hand.
----------
-
-# Every Main Star Wars Movie Hero, Ranked By Power Level
-
-Movies, Star Wars
-
-Fri, 24 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/every-main-star-wars-movie-hero-ranked-by-power-level/
-
-Star Wars has many powerful heroes, from Luke Skywalker to Anakin Skywalker, but one in particular stands out above the rest.
----------
-
-# Paramount+ Pulls the Plug on Sitcom Spinoff With 100% RT Score After 1 Season
-
-TV, Crutch
-
-Fri, 24 Jul 2026 23:56:48 GMT
-
-https://www.cbr.com/paramount-plus-cancels-crutch-season-one/
-
-It's one and done for the acclaimed comedy series spinoff on Paramount+.
----------
-
-# Marvel Confirms Major X-Men '97 Update Weeks Ahead of Season 2 Finale
-
-TV, X-Men '97, X-Men, Disney+
-
-Fri, 24 Jul 2026 23:55:58 GMT
-
-https://www.cbr.com/x-men-97-season-4-disney-update/
-
-Big news for X-Men fans coming out of the San Diego Comic-Con.
----------
-
-# 8 Action Anime Just as Good as Solo Leveling
-
-Anime, Solo Leveling, Demon Slayer, shonen anime, Hunter X Hunter
-
-Fri, 24 Jul 2026 23:45:14 GMT
-
-https://www.cbr.com/action-anime-as-good-as-solo-leveling/
-
-Solo Leveling is not the only action anime series worthy of acclaim, and these eight titles prove it.
----------
-
-# Tim Robbins Reveals the ‘Great Thing’ About Playing a Villain Like Silo’s Bernard Holland
-
-CBR Exclusives, Silo, Apple TV, Sci-Fi
-
-Fri, 24 Jul 2026 23:40:36 GMT
-
-https://www.cbr.com/silo-season-3-tim-robbins-bernard-villain-redemption/
-
-Tim Robbins explains Bernard Holland’s humanity, moral collapse and possible path to redemption following his return in Silo Season 3.
----------
-
-# Marvel Confirms New Ongoing Venom Series With All-Star Creative Team
-
-Comics, Venom
-
-Fri, 24 Jul 2026 23:30:15 GMT
-
-https://www.cbr.com/charles-soule-tommaso-bianchi-venom-release-date-confirmed/
-
-Marvel Comics just revealed the next ongoing Venom series, and it has an all-star slate of creators leading Eddie Brock back to his rightful mantle.
----------
-
-# 10 Forgotten '90s Anime Series That Have Aged Like Fine Wine
-
-Anime, Isekai
-
-Fri, 24 Jul 2026 23:15:15 GMT
-
-https://www.cbr.com/forgotten-90s-anime-series-that-aged-like-fine-wine/
-
-Many anime from the '90s are held up as all-time classics, but other masterpieces have sadly become forgotten.
----------
-
-# 25 Years Later, Netflix Officially Crowns Its Biggest One Piece Anime Arc
-
-Anime, One Piece, Netflix
-
-Fri, 24 Jul 2026 23:06:14 GMT
-
-https://www.cbr.com/one-piece-east-blue-arc-most-watched-netflix-2026/
-
-Despite new releases, this classic One Piece arc has become the most-viewed chapter on the streaming platform.
----------
-
-# Mike Flanagan's Carrie Officially Changes Iconic Prom Scene: 'Don't Think You Know What's Gonna Happen'
-
-TV, Mike Flanagan, Carrie, San Diego Comic-Con
-
-Fri, 24 Jul 2026 23:00:14 GMT
-
-https://www.cbr.com/mike-flanagan-carrie-limited-series-prom-scene-change/
-
-The critically acclaimed auteur and frequent Stephen King collaborator is rebooting the all-time classic.
----------
-
-# 10 Greatest Fantasy Book Authors Of All Time, Ranked
-
-Movies, Fantasy, books, The Lord of the Rings
-
-Fri, 24 Jul 2026 23:00:14 GMT
-
-https://www.cbr.com/greatest-fantasy-book-authors-ever-list/
-
-Names that are completely synonymous with fantasy, these writers defined and shaped the literary genre with their enduring legacies & must-read books
----------
-
-# 3 Stellar Shows to Binge-Watch on Prime Video This Weekend (July 25-26)
-
-TV, Spider-Noir, Little House on the Prairie, The Lake, Prime Video
-
-Fri, 24 Jul 2026 23:43:14 GMT
-
-https://collider.com/prime-video-shows-binge-weekend-july-25-2026/
-
-Little House on the Prairie, The Lake, and Spider-Noir make our list of the best shows to binge-watch on Prime Video the weekend of July 25th, 2026.
----------
-
-# 10 Most Important Stephen King Books
-
-Books and Comics, The Stand, Stephen King, The Dark Tower, It
-
-Fri, 24 Jul 2026 23:05:14 GMT
-
-https://collider.com/most-important-stephen-king-books-ranked/
-
-The most important books Stephen King has written include classics like The Stand, Needful Things, and the novels in The Dark Tower series.
----------
-
-# Disney’s Best Marvel Show Is a Forgotten 3-Part X-Men Series
-
-TV Features, Legion, Dan Stevens, Noah Hawley, Aubrey Plaza
-
-Fri, 24 Jul 2026 23:02:14 GMT
-
-https://collider.com/legion-fx-best-marvel-show-x-men/
-
-FX's Legion still stands out as Marvel's most unique and engaging superhero series, offering a fresh take on the genre.
----------
-
-# The Witcher 3: Wild Hunt — 10 Strongest Armor Sets, Ranked
-
-Gaming, The Witcher 3: Wild Hunt, PC
-
-Fri, 24 Jul 2026 22:48:33 GMT
-
-https://screenrant.com/the-witcher-3-wild-hunt-strongest-armor-sets-ranked/
-
-The Witcher 3: Wild Hunt has a variety of armor sets, each with its own assets, but some are stronger than others and more worth players' time.
----------
-
-# 3 Best Movies To Watch On Netflix This Weekend (#1 Is Alan Ritchson's $865 Million Dystopian Sci-Fi)
-
-Movies, Netflix, Recommendation
-
-Fri, 24 Jul 2026 22:42:41 GMT
-
-https://screenrant.com/best-netflix-movies-watch-weekend-july-25/
-
-The best movies on Netflix this weekend are a dark new crime thriller based on a true story, a compelling drama, and a Sci-Fi dystopian smash hit.
----------
-
-# James Bond Meets Jack Ryan In Netflix's 6-Hour Espionage Thriller
-
-Classic TV, Masked Recs
-
-Fri, 24 Jul 2026 22:30:11 GMT
-
-https://screenrant.com/bodyguard-netflix-thriller-james-bond-meets-jack-ryan/
-
-James Bond and Jack Ryan are two of the biggest names in the spy thriller genre, and Netflix's British espionage show combines the best of both.
----------
-
-# 5 Nintendo DS Turn-Based RPGs That Are 10/10 Masterpieces
-
-Gaming
-
-Fri, 24 Jul 2026 22:30:11 GMT
-
-https://screenrant.com/nintendo-ds-10-rated-turn-based-rpgs/
-
-The Nintendo DS has a wide library of turn-based RPGs, but these five gems are all masterpieces that are easily 10/10 games worth playing.
----------
-
-# Lanterns Can Be The Secret Invasion Show Marvel Fans Wanted
-
-Streaming TV, San Diego Comic-Con, DC Universe, Secret Invasion, Masked Recs
-
-Fri, 24 Jul 2026 22:25:56 GMT
-
-https://screenrant.com/lanterns-dc-manhunters-shapeshifters-secret-invasion/
-
-Thanks to a brand-new trailer released at San Diego Comic-Con, DC Studios has officially revealed the Secret Invasion show fans wanted from the MCU.
----------
-
-# Paramount Officially Cancels Comedy Series With 100% RT Score After One Season
-
-TV, Crutch
-
-Fri, 24 Jul 2026 22:18:44 GMT
-
-https://screenrant.com/crutch-season-2-cancelled-paramount-plus/
-
-After just one season, Paramount+ has canceled a comedy series with a perfect 100% Rotten Tomatoes score whose cast was led by Tracy Morgan.
----------
-
-# Netflix’s Best 2026 Thriller Is An 8-Part Masterpiece With No Bad Episodes
-
-TV, Beef
-
-Fri, 24 Jul 2026 22:17:59 GMT
-
-https://screenrant.com/beef-season-2-netflix-best-thriller-2026-no-bad-episodes/
-
-Netflix's best psychological thriller/black comedy/relationship drama of 2026 had a massive bar to clear and did so with flying colors.
 ---------
