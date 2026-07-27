@@ -1,3 +1,344 @@
+# One Piece Suffers Crushing Defeat As Japan Crowns New #1 Shonen
+
+Anime
+
+Mon, 27 Jul 2026 18:53:42 GMT
+
+https://screenrant.com/one-piece-loses-top-shonen-manga-kingdom/
+
+Japan released the data for 2026 so far, and One Piece did not win the number one shonen manga spot. Here is everything you need to know.
+---------
+
+# 5 Best Shows To Watch On Netflix This Week (#1 Is A Brilliant 3-Season Psychological Thriller)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Mon, 27 Jul 2026 18:42:11 GMT
+
+https://screenrant.com/best-netflix-shows-watch-week-july-27/
+
+Netflix's top five shows to watch this week, July 27–31, include a brand new 8-part action thriller and two original hit series with upcoming seasons.
+---------
+
+# Blade Runner Officially Reveals What Happened After Blade Runner 2049
+
+TV, Masked Recs
+
+Mon, 27 Jul 2026 18:28:11 GMT
+
+https://screenrant.com/blade-runner-what-happened-after-2049-reveal-2099/
+
+Prime Video's upcoming cyberpunk series just changed the Blade Runner franchise forever, shifting the balance of power in the sci-fi series.
+---------
+
+# Why HBO Max' New $129 Million Fantasy Has Become A Global Streaming Sensation
+
+Movies, Masked Recs
+
+Mon, 27 Jul 2026 18:16:05 GMT
+
+https://screenrant.com/hbo-max-mortal-kombat-2-streaming-charts-rise-july-2026/
+
+HBO Max's new fantasy movie continues a successful franchise, and its global streaming hit status is par for the course with such a cast and action.
+---------
+
+# Christopher Nolan's The Odyssey Script Slammed By Homer Translator: "I Would Be Ashamed"
+
+Movies, The Odyssey
+
+Mon, 27 Jul 2026 18:05:00 GMT
+
+https://screenrant.com/the-odyssey-movie-christopher-nolan-emily-wilson-review-criticism/
+
+Christopher Nolan's The Odyssey has been slammed by a prominent Homer translator, who says, "I would be ashamed to have written any part of this."
+---------
+
+# Star Wars Officially Gives Darth Vader An Incredible Redesign
+
+Gaming, Star Wars, Anakin Skywalker/Darth Vader, PC
+
+Mon, 27 Jul 2026 18:00:12 GMT
+
+https://screenrant.com/star-wars-darth-vader-mythos-new-look/
+
+Star Wars has unveiled a stunning new official Darth Vader Mythos redesign that's unlike anything we've seen before.
+---------
+
+# Marvel Crowns Thor's Replacement With Armored Redesign
+
+Marvel Comics, Thor
+
+Mon, 27 Jul 2026 18:00:12 GMT
+
+https://screenrant.com/thor-son-new-costume-replacement-magni/
+
+Marvel crowns the next Asgardian ruler in Thor's absence, with a treacherous advisor that may doom Odinson's home and the rest of the Nine Realms.
+---------
+
+# Gerard Butler's Epic Action Adaptation Dethrones 2026's First Billion-Dollar Movie On Streaming
+
+Movies, Masked Recs
+
+Mon, 27 Jul 2026 17:47:05 GMT
+
+https://screenrant.com/gerard-butler-300-movie-vudu-streaming-success-july-2026-super-mario-galaxy-dethroned/
+
+Gerard Butler's epic action adaptation officially dethrones 2026's first billion-dollar movie on streaming, taking over the No. 1 spot.
+---------
+
+# The Conjuring Meets Stranger Things In Netflix's 8-Part Fantasy Series
+
+TV, Masked Recs
+
+Mon, 27 Jul 2026 17:31:11 GMT
+
+https://screenrant.com/the-east-palace-netflix-conjuring-meets-stranger-things/
+
+Netflix's new fantasy horror series with a perfect 100% RT score blends The Conjuring's supernatural elements with Stranger Things' mirror world.
+---------
+
+# Game of Thrones Is Finally Bringing Back The Children of the Forest July 29
+
+Games, Game Of Thrones
+
+Mon, 27 Jul 2026 18:50:15 GMT
+
+https://www.cbr.com/game-of-thrones-the-children-of-the-forest-return-july-29/
+
+Game of Thrones is bringing back George R. R. Martin's oldest idea with the Children of the Forest making their grand return.
+---------
+
+# The Best Anime of the 2000s Is a 10/10 Masterpiece 20 Years Later
+
+Anime, Mushishi
+
+Mon, 27 Jul 2026 18:16:15 GMT
+
+https://www.cbr.com/best-anime-of-the-2000s-that-holds-mushi-shi/
+
+One of the most stunning anime of the 2000s is still an absolute masterpiece, even over 20 years after it initially aired.
+---------
+
+# Final Fantasy 9 Remake Gets Official Update From Square Enix
+
+Games, Final Fantasy
+
+Mon, 27 Jul 2026 18:05:16 GMT
+
+https://www.cbr.com/final-fantasy-9-remake-official-update-square-enix/
+
+Square Enix just gave fans a major update on the status of the hotly-anticipated Final Fantasy IX remake, although it probably isn't coming soon.
+---------
+
+# Tom King Reveals The Green Lantern Comics You Should Read Before Lanterns
+
+CBR Exclusives, Lanterns, San Diego Comic-Con
+
+Mon, 27 Jul 2026 18:00:16 GMT
+
+https://www.cbr.com/lanterns-tom-king-reveals-must-read-green-lantern-comics-sdcc/
+
+Every comic book TV show comes with homework, including Lanterns.
+---------
+
+# The 10 Most Important X-Men Relationships the MCU Needs to Get Right
+
+Comics, X-Men
+
+Mon, 27 Jul 2026 18:00:16 GMT
+
+https://www.cbr.com/x-men-relationships-the-mcu-needs-to-get-right/
+
+Some relationships in X-Men comics are too iconic to get wasted in live action.
+---------
+
+# Michael Finally Sets Streaming Release Date After Breaking Records
+
+Movies, Michael
+
+Mon, 27 Jul 2026 17:57:10 GMT
+
+https://www.cbr.com/michael-starz-release-date-august-2026/
+
+One of the highest-grossing films of the year is heading to streaming.
+---------
+
+# Halo: Campaign Evolved Is a New Era for the Franchise After 25 Years
+
+Games, Halo
+
+Mon, 27 Jul 2026 17:45:15 GMT
+
+https://www.cbr.com/halo-campaign-evolved-review-new-era/
+
+Halo celebrates its 25th anniversary with a faithful and gorgeous remake of its first game that heads Master Chief’s biggest rival: PlayStation.
+---------
+
+# The Odyssey Expert Who Inspired Christopher Nolan Blasts Movie: ‘I’d Be Ashamed’
+
+Movies, The Odyssey, Fantasy
+
+Mon, 27 Jul 2026 17:38:35 GMT
+
+https://www.cbr.com/the-odyssey-emily-wilson-blasts-christopher-nolan-movie-ashamed/
+
+Emily Wilson, whose 2017 translation of The Odyssey inspired Chrsitopher Nolan's blockbuster, has some harsh things to say about the movie.
+---------
+
+# 34 Years Later, Superman’s Most Famous Death Story Got a Brilliant New Twist
+
+TV, My Adventures With Superman, Superman, Adult Swim, DC Comics
+
+Mon, 27 Jul 2026 17:30:16 GMT
+
+https://www.cbr.com/my-adventures-with-superman-death-of-superman-twist/
+
+My Adventures With Superman explores a cultural milestone that has been adapted many times, yet the show remixed it brilliantly.
+---------
+
+# Fourth Wing Officially Returns This July With Rise of the Wingleader
+
+Games, Fourth Wing
+
+Mon, 27 Jul 2026 17:22:49 GMT
+
+https://www.cbr.com/fourth-wing-rise-of-the-wingleader-game/
+
+The newest Fourth Wing release is now available for fans of the hit Rebecca Yarros story.
+---------
+
+# 9 Greatest Prime Video Shows of 2026 So Far
+
+TV, Prime Video, Ride or Die, Off Campus, Elle
+
+Mon, 27 Jul 2026 18:23:15 GMT
+
+https://collider.com/best-prime-video-shows-2026-ranked/
+
+From the romance adaptation Off Campus to the action buddy comedy adventure Ride or Die, which 2026 Prime Video show is the best of the year?
+---------
+
+# Forget ‘Avatar,’ This 8-Part Netflix Drama Is Zoe Saldaña’s Best Performance
+
+TV Features, From Scratch, Avatar, Zoe Saldana, Netflix
+
+Mon, 27 Jul 2026 18:18:15 GMT
+
+https://collider.com/zoe-saldana-best-performance-from-scratch-netflix-series/
+
+Zoe Saldaña delivers one of her most emotional performances in Netflix’s From Scratch, a moving drama about love, family, and grief.
+---------
+
+# Ransom Canyon S2: Josh Duhamel Faced His Horse Fear | Set Stories
+
+TV, Ransom Canyon
+
+Mon, 27 Jul 2026 18:16:15 GMT
+
+https://collider.com/video/ransom-canyon-s2-josh-duhamel-faced-his-horse-fear-set-stories/
+
+Go behind the scenes of Ransom Canyon as Josh Duhamel and Minka Kelly share the preparation, routines, and unexpected discoveries that made filming Netflix's romantic Western such a memorable experience.
+---------
+
+# Nathan Fillion Reveals His All-Time Favorite Sci-Fi Franchise — and It Isn't 'Firefly' [Exclusive]
+
+TV News, Nathan Fillion, The Rookie, Star Trek: The Next Generation, San Diego Comic-Con
+
+Mon, 27 Jul 2026 18:00:16 GMT
+
+https://collider.com/nathan-fillion-favorite-sci-fi-franchise-star-trek/
+
+The Rookie star Nathan Fillion officially reveals his favorite sci-fi universe, and it's not the one you think it is.
+---------
+
+# 'Tracker' Officially Returns in 3 Months
+
+TV News, Tracker, Justin Hartley, CBS, Jensen Ackles
+
+Mon, 27 Jul 2026 17:41:59 GMT
+
+https://collider.com/tracker-season-4-release-date-cbs/
+
+Tracker Season 4 officially returns to CBS in October , bringing Justin Hartley back as reward seeker Colter Shaw.
+---------
+
+# Taylor Sheridan's Hit 'Yellowstone' Spin-Off Is Officially Returning for Season 2 This Fall
+
+TV News, Marshals, Taylor Sheridan, CBS, Luke Grimes
+
+Mon, 27 Jul 2026 17:29:57 GMT
+
+https://collider.com/marshals-season-2-release-date-cbs/
+
+CBS has officially set a release date for Season 2 of Taylor Sheridan’s hit Yellowstone spin-off, Marshals.
+---------
+
+# Harlan Coben's Hit CBS Crime Series Officially Returns in 3 Months
+
+TV News, Harlan Coben's Final Twist, Harlan Coben, CBS, Documentary
+
+Mon, 27 Jul 2026 17:26:13 GMT
+
+https://collider.com/harlan-cobens-final-twist-season-2-release-date-cbs/
+
+Harlan Coben’s Final Twist Season 2 officially lands its CBS premiere date, confirming when the hit true-crime series will return.
+---------
+
+# Taylor Sheridan's Best Action Thriller Series Officially Returns in Less Than a Week
+
+TV News, Lioness, Taylor Sheridan
+
+Mon, 27 Jul 2026 18:07:49 GMT
+
+https://movieweb.com/lioness-season-3-final-trailer-paramount/
+
+One of the best action thrillers on streaming is officially back.
+---------
+
+# Star Trek's 'Original Series' Prequel Catches up to the Classic Show Sooner Than Expected
+
+Features, star trek: strange new worlds, Star Trek: The Original Series, Star Trek
+
+Mon, 27 Jul 2026 18:00:13 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-captain-kirk-reveal/
+
+Captain Kirk is obviously going to end 'Strange New Worlds' in the big chair, but is that happening sooner rather than later? Read on for more.
+---------
+
+# Taylor Sheridan's 3-Part Crime Thriller Is Officially One of the Biggest Shows in the World
+
+TV News, Tulsa King, Paramount Plus, Hot on Streaming, Taylor Sheridan
+
+Mon, 27 Jul 2026 18:00:13 GMT
+
+https://movieweb.com/tulsa-king-taylor-sheridan-stream-paramount-july-2026/
+
+Before its new spin-off, 'Frisco King,' Taylor Sheridan's crime thriller 'Tulsa King' is a global streaming success on Paramount+.
+---------
+
+# 28 Years Later, Supernatural Fantasy Cult Classic Sets New Release Ahead of 2026 Sequel
+
+Movie News, Practical Magic, Practical Magic 2
+
+Mon, 27 Jul 2026 17:54:21 GMT
+
+https://movieweb.com/practical-magic-4k-blu-ray-release/
+
+Warner Bros. Home Entertainment is preparing a 4K Blu-ray release of the 1998 fantasy classic 'Practical Magic' before the sequel arrives in theaters.
+---------
+
+# Idris Elba's Long-Awaited Action Fantasy Epic Is Unleashed in Stunning First Teaser
+
+Movie News, Children of Blood and Bone
+
+Mon, 27 Jul 2026 17:46:19 GMT
+
+https://movieweb.com/children-of-blood-and-bone-first-teaser/
+
+Idris Elba stars in the long-awaited big-screen adaptation of Tomi Adeyemi's bestselling fantasy novel 'Children of Blood and Bone,' set in a world where magic has been outlawed.
+---------
+
 # Destin Daniel Cretton On Spider-Man: Brand New Day, Shang-Chi 2, Avengers 5 & Marvel
 
 New Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man, Cover Story, Shang-Chi 2, Shang-Chi and the Legend of the Ten Rings
@@ -5155,345 +5496,4 @@ Sun, 26 Jul 2026 01:08:48 GMT
 https://movieweb.com/ryan-gosling-ghost-rider-mcu-cast-sdcc/
 
 It's official: Ryan Gosling has joined the MCU as an iconic superhero.
----------
-
-# I'm Rewatching Full House, And I Forgot The Weirdest Thing About The Pilot
-
-Movies, Full House (US)
-
-Sun, 26 Jul 2026 01:00:11 GMT
-
-https://screenrant.com/full-house-pilot-mom-death-weird/
-
-Full House is a cult classic TV show, which is what makes it so surprising to go back to the beginning and realize this weird detail about the pilot.
----------
-
-# Why Oliver Doesn't Exist In Invincible's Other Universes
-
-Streaming TV, Invincible
-
-Sun, 26 Jul 2026 01:00:11 GMT
-
-https://screenrant.com/invincible-oliver-not-exist-other-universes-reason/
-
-In Invincible season 2, Omni-Man’s other son, Oliver Grayson, is nowhere to be seen in Angstrom Levy’s alternate dimensions for an intriguing reason.
----------
-
-# 10 Most Worthy Marvel Characters Who Have Wielded Mjolnir
-
-Comics, Marvel
-
-Sun, 26 Jul 2026 01:00:11 GMT
-
-https://screenrant.com/most-worthy-marvel-characters-wield-mjolnir/
-
-Mjolnir stands apart in Marvel lore as a very unique weapon due to a severe heroic assessment ability that only a select few heroes have ever matched.
----------
-
-# Star Wars: KOTOR Has Another Sequel Nobody Remembers
-
-Gaming, Star Wars: Knights of the Old Republic, Triple-A Games, PC
-
-Sun, 26 Jul 2026 01:00:11 GMT
-
-https://screenrant.com/star-wars-knights-old-republic-sequel-books-revan/
-
-With KOTOR's spinoff and remake release dates nowhere in sight, there's one official sequel you can enjoy right now that nobody talks about enough.
----------
-
-# Carrie White's New Prom Massacre Revealed In Mike Flanagan's Carrie TV Series Trailer
-
-TV, Carrie, Stephen King, San Diego Comic-Con
-
-Sun, 26 Jul 2026 00:50:12 GMT
-
-https://screenrant.com/carrie-tv-series-trailer-release-date-prime-video/
-
-Prime Video has now unveiled the first official trailer for Carrie, Mike Flanagan's new eight-episode adaptation of Stephen King's classic novel.
----------
-
-# The Coldest Quote In Star Trek’s Most Divisive Show Is Proven True In Its Final Season
-
-TV, Op-Ed, Star Trek, Star Trek: Starfleet Academy
-
-Sun, 26 Jul 2026 00:30:11 GMT
-
-https://screenrant.com/star-trek-starfleet-academy-coldest-quote-true-new-cadet/
-
-Star Trek: Starfleet Academy is introducing a new rebellious cadet in season 2, and it proves Tarima Sadal's assessment about Caleb Mir was right.
----------
-
-# 20 Years Later, Nico Robin's Best One Piece Line Is Still One Of The Greatest Quotes In Anime History
-
-Streaming TV, One Piece
-
-Sun, 26 Jul 2026 00:30:11 GMT
-
-https://screenrant.com/nico-robin-i-want-to-live-best-quote-one-piece-anime/
-
-There's hundreds of unforgettable lines of dialogue One Piece, but none are as resonant as four simple words from one of the series' greatest eras.
----------
-
-# The Modern Era's Greatest Comedy Director Is Also The Most Underrated
-
-Movies, Wet Hot American Summer, Gail Daughtry and the Celebrity Sex Pass, Role Models, Comedy
-
-Sun, 26 Jul 2026 00:30:11 GMT
-
-https://screenrant.com/david-wain-greatest-comedy-director-underrated/
-
-The man who made "Hey... thanks" one of the funniest jokes in a movie deserves more attention
----------
-
-# Marvel Studios’ 2026 SDCC Panel: Every Announcement & Reveal [UPDATING LIVE]
-
-Comic-Con, San Diego Comic-Con, Marvel Cinematic Universe
-
-Sun, 26 Jul 2026 00:30:02 GMT
-
-https://screenrant.com/marvel-studios-2026-sdcc-panel-announcement-reveals/
-
-Marvel Studios is at San Diego Comic-Con 2026 with a Hall H panel, and here's every announcement and reveal Kevin Feige has made about the MCU.
----------
-
-# Christopher Nolan's The Odyssey Has A Wild 22-Year-Old Parallel
-
-Movies, The Odyssey, Christopher Nolan, Troy
-
-Sun, 26 Jul 2026 00:10:12 GMT
-
-https://screenrant.com/christopher-nolan-the-odyssey-parallel-with-2004-troy-statue/
-
-The Odyssey continues to take the world by storm, though some may have missed a key parallel to the Greek epic Nolan nearly directed 22 years earlier.
----------
-
-# Another Taylor Sheridan Show Has Quietly Joined the Yellowstone Universe
-
-TV, Yellowstone, The Madison, 1883
-
-Sun, 26 Jul 2026 01:05:55 GMT
-
-https://www.cbr.com/the-madison-stacy-clyburn-yellowstone-1883-elsa-dutton-quote/
-
-A stand-alone entry in Taylor Sheridan's television collection for Paramount+ quietly aligns with the Yellowstone creator's Dutton universe.
----------
-
-# Dungeon Crawler Carl Has 1 Character Peacock Absolutely Has to Nail
-
-TV, Dungeon Crawler Carl, Peacock, Peacock Premium
-
-Sun, 26 Jul 2026 01:00:15 GMT
-
-https://www.cbr.com/peacock-dungeon-crawler-carl-princess-donut-importantcharacter/
-
-Bringing Dungeon Crawler Carl into live-action will take some doing, but Princess Donut is perhaps the most challenging part of this equation.
----------
-
-# Dragon Ball Super Manga Returns to the Beerus Saga After 11 Years
-
-Anime, Dragon Ball, Dragon Ball Super, Dragon Ball Super: Beerus
-
-Sun, 26 Jul 2026 00:45:15 GMT
-
-https://www.cbr.com/dragon-ball-super-toyotarou-beerus-art/
-
-Dragon Ball Super mangaka Toyotarou celebrates the anime's upcoming remake with the most realistic rendition of Universe 7's God of Destruction yet.
----------
-
-# 10 Long Sega Dreamcast Games That Take Forever to Complete
-
-Games, Shenmue, Record Of Lodoss War, dreamcast
-
-Sun, 26 Jul 2026 00:30:15 GMT
-
-https://www.cbr.com/long-sega-dreamcast-games-take-forever-to-complete/
-
-The Sega Dreamcast boasts a vast library of exceptional games, and these ten titles kept players invested for more hours than any others.
----------
-
-# The 5 Biggest MK Characters Still Missing After Mortal Kombat 2
-
-Movies, Mortal Kombat II, Mortal Kombat, karl urban
-
-Sun, 26 Jul 2026 00:20:15 GMT
-
-https://www.cbr.com/mortal-kombat-2-movie-biggest-missing-characters-list/
-
-Mortal Kombat II introduced several fan-favorite characters from the video games, but a few iconic fighters have yet to appear on the big screen.
----------
-
-# 10 Near-Perfect '90s Manga That Aged Like Fine Wine
-
-Anime, Manga, Yu Yu Hakusho, Rurouni Kenshin
-
-Sun, 26 Jul 2026 00:15:15 GMT
-
-https://www.cbr.com/near-perfect-90s-manga-aged-like-fine-wine/
-
-The manga of the '90s are what made countless 2000s kids into the fans they are today.
----------
-
-# Danny Trejo Confirms Absolute Batman's Dan Quintana Designed Year Of The Devil Cover
-
-CBR Exclusives, San Diego Comic-Con, danny trejo, Absolute Batman
-
-Sun, 26 Jul 2026 00:00:15 GMT
-
-https://www.cbr.com/danny-trejo-year-of-the-devil-absolute-batman-dan-quintana/
-
-Danny Trejo nabbed an absolute talent for his debut graphic novel.
----------
-
-# The 5 Steamiest Movies of All Time
-
-Movies, The Handmaiden, In the Realm of the Senses, Blue is the Warmest Color
-
-Sun, 26 Jul 2026 00:00:15 GMT
-
-https://www.cbr.com/steamiest-movies-of-all-time-list/
-
-Some movies may have a steamy scene or two, but these five movies rank among the most sensual of all time.
----------
-
-# Critical Role Officially Returns With New Adventure August 4
-
-Games, Critical Role, San Diego Comic-Con
-
-Sat, 25 Jul 2026 23:50:15 GMT
-
-https://www.cbr.com/critical-role-official-webtoon-august-2026/
-
-WEBTOON is about to give readers access to one of the most incredible and wildly underrated Critical Role stories of all time.
----------
-
-# 5 Anime That Are Perfect For RPG Fans
-
-Anime, Shangri-La Frontier, Record Of Lodoss War, RPG
-
-Sat, 25 Jul 2026 23:45:15 GMT
-
-https://www.cbr.com/anime-perfect-for-rpg-fans/
-
-Sword and sorcery fantasy anime like Record of Lodoss War and Shangri-La Frontier are perfect for hardcore D&amp;D and RPG fans.
----------
-
-# Christopher Nolan Abandoned Remaking This Spy Thriller Officially Streaming for Free
-
-TV Features, The Prisoner, Christopher Nolan, Prime Video, Thriller
-
-Sun, 26 Jul 2026 01:01:15 GMT
-
-https://collider.com/christopher-nolan-the-prisoner-spy-thriller-streaming-free/
-
-The Prisoner is a classic spy thriller with complex philosophy and experimental narratives that Christopher Nolan has tried twice to remake.
----------
-
-# Stephen King’s ‘Carrie’ Is Reborn in Terrifying First Trailer for Prime Video Series
-
-TV News, Carrie, Stephen King, Mike Flanagan, San Diego Comic-Con
-
-Sun, 26 Jul 2026 00:46:29 GMT
-
-https://collider.com/prime-video-carrie-series-trailer-stephen-king-mike-flanagan/
-
-The first trailer for Prime Video's Carrie is finally here, officially reuniting horror icons Stephen King and Mike Flanagan. See it here!
----------
-
-# 10 Superhero Shows That Are Definitely Not for Kids
-
-TV, Superhero, The Boys, The Punisher, Peacemaker
-
-Sun, 26 Jul 2026 00:34:15 GMT
-
-https://collider.com/superhero-tv-shows-not-for-kids/
-
-Netflix's The Punisher, Prime Video's The Boys, and HBO Max's Peacemaker are dark, violent superhero shows that are intended for adults, not kids.
----------
-
-# 18 Years Later, HBO’s Crime Drama Masterpiece Is Still Essential Viewing
-
-TV Features, The Wire, David Simon, Idris Elba, Dominic West
-
-Sat, 25 Jul 2026 23:52:14 GMT
-
-https://collider.com/the-wire-hbo-greatest-crime-drama-essential-television/
-
-HBO's The Wire revolutionized television with its complex storytelling and realistic portrayal of society, making it a timeless masterpiece.
----------
-
-# 44 Years Later, Spock's Best Star Trek Quote Hits Harder Than Ever
-
-TV Features, Star Trek: The Original Series, Star Trek 2: The Wrath of Khan, Star Trek, Paramount+ with Showtime
-
-Sat, 25 Jul 2026 23:36:14 GMT
-
-https://collider.com/star-trek-the-original-series-spock-wrath-of-khan/
-
-Spock's final words to Kirk in Star Trek II: The Wrath of Khan is a poignant reflection of their friendship and the film's central themes.
----------
-
-# Nathan Fillion Confirms 'The Rookie' Season 9 Filming Start Date [Exclusive]
-
-TV News, The Rookie, SDCC, Nathan Fillion, ABC
-
-Sat, 25 Jul 2026 23:35:15 GMT
-
-https://collider.com/the-rookie-season-9-filming-start-date-nathan-fillion/
-
-Nathan Fillion reveals when filming for The Rookie Season 9 begins, as the long-running ABC series heads into a seasom with a reduced episode count.
----------
-
-# 'Reacher' Spin-Off Scores First Official Trailer From Prime Video
-
-TV News, Neagley, Reacher, Maria Sten, Alan Ritchson
-
-Sat, 25 Jul 2026 23:29:05 GMT
-
-https://collider.com/reacher-spin-off-neagley-trailer-alan-ritchson/
-
-The first trailer for Alan Ritchson's Reacher spin-off Neagley has been revealed, with the legendary hero helping out his titular companion.
----------
-
-# Why 'The Odyssey's Controversial Boycott Attempts Failed
-
-Features, The Odyssey
-
-Sun, 26 Jul 2026 00:00:12 GMT
-
-https://movieweb.com/the-odyssey-boycott-failure/
-
-Leading up to the release of 'The Odyssey', a silly and vocal wing of the internet attempted to take the wind out of Odysseus' sails to no avail.
----------
-
-# 'Reacher' Franchise Expands in First Trailer for New Streaming Spin-Off
-
-TV News, Neagley, Reacher, Prime Video
-
-Sat, 25 Jul 2026 23:40:06 GMT
-
-https://movieweb.com/neagley-first-trailer-prime-video/
-
-Prime Video pushed the boundaries of the 'Reacher' story with the first official trailer for the show's new spin-off series.
----------
-
-# 'Reacher' Season 4 Trailer Brings Alan Ritchson's Action Hero Back to Prime Video
-
-TV News, Reacher
-
-Sat, 25 Jul 2026 23:27:58 GMT
-
-https://movieweb.com/reacher-season-4-trailer-prime-video/
-
-Prime Video officially released the first trailer for 'Reacher' Season 4 after a presentation at San Diego Comic-Con.
----------
-
-# 6 Mortal Kombat Characters Most Likely To Be Mortal Kombat 3's Main Villain
-
-Movies, Mortal Kombat, Mortal Kombat II, Mortal Kombat: Annihilation
-
-Sat, 25 Jul 2026 23:15:11 GMT
-
-https://screenrant.com/mortal-kombat-3-villain-characters-most-likely/
-
-Mortal Kombat III is yet to be confirmed, but the 2026 movie hinted at a sequel, and some established characters could take over as a main villain.
 ---------
