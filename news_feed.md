@@ -1,3 +1,223 @@
+# 17 Best Seeds For Speedruns In Minecraft 1.21
+
+Gaming, Minecraft, PC, Triple-A Games
+
+Mon, 27 Jul 2026 23:30:12 GMT
+
+https://screenrant.com/best-speedrun-seeds-minecraft/
+
+The best seeds in Minecraft for speedruns generate worlds that have resources right away and are near important locations to help reach the End.
+---------
+
+# George R.R. Martin Meets Tolkien In Netflix's 4-Part Fantasy Series
+
+Streaming TV, Masked Recs
+
+Mon, 27 Jul 2026 23:30:11 GMT
+
+https://screenrant.com/the-witcher-netflix-game-of-thrones-meets-lord-of-the-rings/
+
+No fantasy franchises can match The Lord of the Rings and Game of Thrones iconic statuses, but one Netflix show perfectly blends their unique tones.
+---------
+
+# Todd McFarlane Reveals Epic New Spawn Movie With Returning Star As Live-Action Reboot Remains Stalled
+
+Movies, Spawn, Todd McFarlane
+
+Mon, 27 Jul 2026 23:25:00 GMT
+
+https://screenrant.com/spawn-movie-animated-keith-david-mark-hamill-cast-return-todd-mcfarlane/
+
+Todd McFarlane's Spawn secretly has an epic new movie on the way as the creator reveals two major stars are in amid the reboot's struggles.
+---------
+
+# 6 Netflix Sci-Fi Shows Better Than Stranger Things
+
+Streaming TV
+
+Mon, 27 Jul 2026 23:15:11 GMT
+
+https://screenrant.com/netflix-sci-fi-shows-better-than-stranger-things/
+
+Stranger Things is one of Netflix's best sci-fi TV shows, and while that's undeniable, there are other sci-fi shows on Netflix that are better.
+---------
+
+# Deadpool's Next MCU Movie Might Have Just Been Revealed By Marvel Studios
+
+Movies, Deadpool, Marvel Cinematic Universe
+
+Mon, 27 Jul 2026 23:14:55 GMT
+
+https://screenrant.com/ryan-reynolds-deadpool-movie-x-force-tease/
+
+Ryan Reynolds' Deadpool will return to the MCU, and his next Marvel movie might have just been revealed by the Wade Wilson actor through a tease.
+---------
+
+# 9-1-1 Franchise’s 2026 Return Dates Confirmed At ABC
+
+TV, 9-1-1, 9-1-1: Nashville - Season 1
+
+Mon, 27 Jul 2026 23:06:14 GMT
+
+https://screenrant.com/911-season-10-911-nashville-season-2-abc-release-dates/
+
+After both 9-1-1 and its spinoff 9-1-1: Nashville were renewed, ABC has revealed when each of the new seasons in the hit franchise will premiere.
+---------
+
+# Crunchyroll Is Missing Anime's Rarest Classics, And This Free Streaming Service Is Here To Help
+
+Anime
+
+Mon, 27 Jul 2026 23:00:12 GMT
+
+https://screenrant.com/darkroom-new-anime-streaming-service-challenge-crunchyroll/
+
+With both free and affordable subscription options, this new streaming service is offering anime fans something that Crunchyroll chooses not to.
+---------
+
+# Resident Evil Requiem "Major" Story DLC Appears Online
+
+Gaming, Resident Evil, Triple-A Games, PC
+
+Mon, 27 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/resident-evil-requiem-major-story-dlc/
+
+The Resident Evil franchise has been on a roll these past few years, but the future of the franchise looks even brighter if these leaks are true.
+---------
+
+# Brendan Fraser's The Mummy 4 Eyeing First New Actor With 2026 Horror Breakout
+
+Movies, The Mummy 4, The Mummy
+
+Mon, 27 Jul 2026 22:59:56 GMT
+
+https://screenrant.com/the-mummy-4-michael-johnston-cast-talks/
+
+Brendan Fraser and Rachel Weisz's The Mummy 4 is eyeing its first new actor with the star of one of 2026's biggest horror breakouts in talks.
+---------
+
+# It's Time to Say Goodbye to Goku's Orange Gi in Dragon Ball Super
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Mon, 27 Jul 2026 23:45:15 GMT
+
+https://www.cbr.com/dragon-ball-super-change-goku-orange-gi/
+
+Dragon Ball Super’s Toyotarou already introduced the perfect replacement for Goku’s iconic orange gi as the series starts a new era without Toriyama.
+---------
+
+# Carrie Cast: The Stephen King Story Gets Reimagined | SDCC 2026
+
+TV, Carrie
+
+Mon, 27 Jul 2026 23:32:44 GMT
+
+https://www.cbr.com/video/carrie-cast-the-stephen-king-story-gets-reimagined-sdcc-2026/
+
+Mike Flanagan's Carrie is far more than another adaptation of Stephen King's classic. At SDCC 2026, the cast and creative team explain why this Prime Video series tells a version of the story fans have never seen before while staying true to the novel's emotional core.
+---------
+
+# Ocarina of Time Switch 2 Trailer Confirms 3-Year-Old Zelda Fan Theory
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Mon, 27 Jul 2026 23:19:15 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-switch-2-trailer-timeline-lore-analysis/
+
+Every Zelda fan seems to have missed the most crucial detail in Ocarina of Time's new trailer that could change everything about the series' timeline.
+---------
+
+# Fullmetal Alchemist: Brotherhood Finally Gets 3 New Official Dubs After 17 Years
+
+Anime, Fullmetal Alchemist, Fullmetal Alchemist: Brotherhood, Crunchyroll
+
+Mon, 27 Jul 2026 23:05:15 GMT
+
+https://www.cbr.com/fmab-crunchyroll-new-dubs-india/
+
+Nearly two decades after its release, fans in India can finally look forward to watching FMAB in their regional languages.
+---------
+
+# 5 Neo-Western Thrillers That Are 10/10 Masterpieces
+
+Movies, Western, Thriller, Sicario
+
+Mon, 27 Jul 2026 23:00:15 GMT
+
+https://www.cbr.com/perfect-neo-western-thrillers-list/
+
+The combination of contemporary Western and crime thriller has given audiences some of the best-written movie masterpieces ever made.
+---------
+
+# The Newest ‘Avengers: Doomsday’ Star Confirms Scenes With Robert Downey Jr.’s Doctor Doom [Exclusive]
+
+Exclusives, Hayley Atwell, Avengers: Doomsday, Robert Downey Jr, SDCC
+
+Mon, 27 Jul 2026 23:30:15 GMT
+
+https://collider.com/avengers-doomsday-hayley-atwell-robert-downey-jr-doctor-doom-darkness/
+
+Avengers: Doomsday star Hayley Atwell shares exclusive insights into working with Robert Downey Jr.'s enigmatic and intimidating Doctor Doom.
+---------
+
+# 8 Superhero Show Endings That Are Genuine Masterpieces
+
+TV, Superhero, Loki, Daredevil, Teen Titans
+
+Mon, 27 Jul 2026 23:14:15 GMT
+
+https://collider.com/superhero-show-endings-masterpieces/
+
+It's an achievement to end a series well, but superhero shows Loki, Daredevil, and Agents of S.H.I.E.L.D. have endings that are true masterpieces.
+---------
+
+# ‘The Odyssey’ Is More Than Just Christopher Nolan's Newest Epic — It's A Secret Sequel to This Hit
+
+Movie Features, The Odyssey, Oppenheimer, Christopher Nolan, Matt Damon
+
+Mon, 27 Jul 2026 23:11:08 GMT
+
+https://collider.com/the-odyssey-christopher-nolan-oppenheimer-sequel/
+
+The Odyssey's epic style feels like a major change for Christopher Nolan, but actually, it touches on the same issues as his grounded hit Oppenheimer.
+---------
+
+# Alan Ritchson Confirms 'Reacher' Season 5 Is Officially Ahead of Schedule [Exclusive]
+
+Exclusives, Reacher, Prime Video, Alan Ritchson, SDCC
+
+Mon, 27 Jul 2026 23:00:15 GMT
+
+https://collider.com/reacher-season-5-filming-schedule-alan-ritchson/
+
+Alan Ritchson reveals Reacher Season 5 is already filming and says the hit Prime Video series is ahead of schedule.
+---------
+
+# The Two Greatest Sci-Fi Movie Franchises Have Major New Releases in 2026
+
+Features, Dune: Part Three, Blade Runner 2099
+
+Mon, 27 Jul 2026 23:00:12 GMT
+
+https://movieweb.com/blade-runner-2099-dune-part-three-2026-releases/
+
+Two of the most beloved sci-fi movie franchises have new projects being released later in 2026, and fans of the genre should be excited.
+---------
+
+# Netflix Scores Big as Raunchy New Movie Is Crowned #1 on Streaming Worldwide
+
+Movie News, 72 Hours, Netflix
+
+Mon, 27 Jul 2026 23:00:12 GMT
+
+https://movieweb.com/72-hours-netflix-stream-july-2026/
+
+Netflix's new raunchy comedy is dominating the top ten charts.
+---------
+
 # 18 Years Ago, Band Of Brothers' True Sequel Aired On HBO
 
 Classic TV, Masked Recs
@@ -5276,224 +5496,4 @@ Sun, 26 Jul 2026 14:01:15 GMT
 https://www.cbr.com/hello-kitty-junji-ito-gyaru-tomie-figure-us-release/
 
 Good Smile reveals the US release window for its collaborative tribute to Junji Ito's Tomie and Sanrio's iconic "kawaii kitten."
----------
-
-# Sam's Best Lord of the Rings Line Hits Hard 25 Years Later
-
-Movies, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings, Fantasy
-
-Sun, 26 Jul 2026 13:30:15 GMT
-
-https://www.cbr.com/lord-of-the-rings-fellowship-of-the-ring-sam-gamgee-best-quote-fantasy/
-
-A quarter of a decade after The Lord of the Rings: The Fellowship of the Ring, Sam Gamgee's best line still hits hard.
----------
-
-# ABC Is Changing How The Rookie Spinoffs Work After Feds Failed
-
-TV, The Rookie, The Rookie: Feds
-
-Sun, 26 Jul 2026 13:30:15 GMT
-
-https://www.cbr.com/the-roookie-spinoff-changing-after-feds-failed/
-
-After ABC unceremoniously canceled The Rookie: Feds, the newest spinoff of the hit Nathan Fillion series is taking a different approach.
----------
-
-# 10 Classic '80s Anime That Aren't As Good As You Remember
-
-Anime, Dragon Ball
-
-Sun, 26 Jul 2026 13:15:15 GMT
-
-https://www.cbr.com/classic-80s-anime-arent-as-good-as-you-remember/
-
-The '80s were a formative decade for anime, but dated storytelling and poor animation make its series tough to go back to in 2026.
----------
-
-# Final Fantasy 14 Director Reveals How FF7 Remake Crossover Came About
-
-Games, Final Fantasy, final fantasy xiv, Final Fantasy 7 Remake
-
-Sun, 26 Jul 2026 13:01:07 GMT
-
-https://www.cbr.com/final-fantasy-14-director-reveals-7-remake-crossover-happened/
-
-Final Fantasy 14 Director Naoki Yoshia revealed how the highly-anticipated crossover with Final Fantasy 7 Remake in the Evercold DLC came about.
----------
-
-# Only 5 Old-School Westerns Are Better Than Tombstone
-
-Movies, Western, Tombstone, The Good, the Bad and the Ugly
-
-Sun, 26 Jul 2026 13:00:15 GMT
-
-https://www.cbr.com/perfect-classic-westerns-better-than-tombstone-list/
-
-Tombstone might have raised the bar for the action side of Westerns, but some old-school classics are so good not even Kurt Russell can beat them.
----------
-
-# World Of Warcraft's Housing System Is So Good It's Influencing FF 14
-
-Games, Final Fantasy, final fantasy xiv, world of warcraft
-
-Sun, 26 Jul 2026 13:00:11 GMT
-
-https://www.cbr.com/world-of-warcraft-housing-system-is-influencing-final-fantasy-14/
-
-Final Fantasy 14 Director Naoki Yoshida has revealed how World of Warcraft's new housing system will influence the one in his game going forward.
----------
-
-# 2026's New Horror Hit Surges on Prime Video
-
-Movie News, Prime Video, Horror, Do Not Enter, Streaming
-
-Sun, 26 Jul 2026 14:00:15 GMT
-
-https://collider.com/do-not-enter-prime-video-streaming-success-july-2026/
-
-The latest Gen Z horror hit is here. Here's everything you should know about Do Not Enter.
----------
-
-# 6 Worst Slasher Movies That Are Truly 0/10
-
-Movie, Slasher, Horror, Black Christmas, I'll Always Know What You Did Last Summer
-
-Sun, 26 Jul 2026 13:55:15 GMT
-
-https://collider.com/worst-slasher-movies/
-
-From Halloween: Resurrection to I'll Always Know What You Did Last Summer, these movies have put a stain on the slasher genre for years.
----------
-
-# Don't Expect DC's 'Lanterns' To Just Be Another 'True Detective'-Style Series [Exclusive]
-
-TV News, Lanterns, DCU, HBO, San Diego Comic-Con, SDCC
-
-Sun, 26 Jul 2026 13:00:15 GMT
-
-https://collider.com/lanterns-dcu-true-detective-comparison-sci-fi-cosmic-tone/
-
-Co-creator Tom King reveals HBO's Lanterns evolved into a more cosmic series than initially planned, diving deeper into Green Lantern mythology.
----------
-
-# Say Goodbye to Mel Gibson's Oscar-Winning WWII Masterpiece
-
-Movie News, Hacksaw Ridge, Mel Gibson, Netflix, Andrew Garfield
-
-Sun, 26 Jul 2026 13:00:15 GMT
-
-https://collider.com/mel-gibson-ww2-movie-hacksaw-ridge-leaving-netflix-july-31-2026/
-
-Netflix has officially announced that the last day to watch Mel Gibson's Oscar-winning war epic, Hacksaw Ridge, will be on July 31.
----------
-
-# Gerard Butler's Forgotten Crime Thriller Gets a Second Chance on Streaming
-
-Movie News, Copshop, Gerard Butler, Joe Carnahan, Quentin Tarantino
-
-Sun, 26 Jul 2026 12:45:15 GMT
-
-https://collider.com/gerard-butler-crime-copshop-streaming-peacock-august-2026/
-
-The overlooked Quentin Tarantino-inspired movie Copshop, starring Gerard Butler, is coming to streaming soon. Find out when you can watch it.
----------
-
-# Paramount+'s 99-Minute Action Fantasy Sequel Is Finally Streaming After Pivoting From Cinemas
-
-Movies, Avatar Aang: The Last Airbender
-
-Sun, 26 Jul 2026 14:04:39 GMT
-
-https://movieweb.com/avatar-aang-the-last-airbender-streaming-now/
-
-Avatar Aang: The Last Airbender, the first completed project from Avatar Studios, premieres on Paramount+ after a brief theatrical run. The film picks up years after the original series, exploring the possibility of restoring the Air Nomads. With a strong critic score, the franchise is in an unusually busy moment.
----------
-
-# Star Trek's 9 Best Alien Hybrid Characters, Ranked
-
-TV Lists, Star Trek
-
-Sun, 26 Jul 2026 14:00:12 GMT
-
-https://movieweb.com/star-trek-alien-hybrids-ranked/
-
-The Star Trek franchise often hybridizes various species to create compelling new characters. Read on for more.
----------
-
-# 35 Years Later, Kevin Costner’s Thriller Masterpiece Sets New Release
-
-Movies, JFK, Kevin Costner
-
-Sun, 26 Jul 2026 13:55:28 GMT
-
-https://movieweb.com/kevin-costner-jfk-4k-blu-ray-release/
-
-Shout! Studios announces an August 11, 2026 release for a standalone 4K Ultra HD edition of Oliver Stone's JFK, focusing on the 189-minute theatrical version. This release aims to offer audiences the original cut of the film in native 4K with Dolby Vision and HDR10.
----------
-
-# Forgotten Sean Penn Thriller Hits Netflix Soon — and Deserves a Rewatch
-
-Streaming, Sean Penn, Asphalt City
-
-Sun, 26 Jul 2026 13:46:07 GMT
-
-https://movieweb.com/sean-penn-asphalt-city-netflix/
-
-It's time to give this grim 2024 release a fresh shot at finding the audience it missed in theaters.
----------
-
-# Paramount+ Officially Cancels 'SNL' Star's 100%-Rated Series After 1 Season
-
-Streaming, Crutch
-
-Sun, 26 Jul 2026 13:32:26 GMT
-
-https://movieweb.com/tracy-morgan-crutch-canceled-paramount-plus/
-
-Paramount+ has canceled the Tracy Morgan-led sitcom 'Crutch' after one season, despite its 100% Rotten Tomatoes score. The streamer's shift in focus and leadership changes are cited as reasons behind the decision.
----------
-
-# Guy Ritchie & Jason Statham's Forgotten Crime Action Thriller Is About to Leave Free Streaming
-
-Movie News, Revolver, Jason Statham, Guy Ritchie, Coming/Leaving Streaming
-
-Sun, 26 Jul 2026 13:22:38 GMT
-
-https://movieweb.com/revolver-leaving-free-streaming-pluto-august-2026/
-
-This one's definitely on the list of action movies that deserve to be reevaluated.
----------
-
-# Tiffany Haddish Officially Rebooting Beloved 11-Part Family Series
-
-TV News, Tiffany Haddish
-
-Sun, 26 Jul 2026 13:06:55 GMT
-
-https://movieweb.com/backyard-baseball-animated-series-tiffany-haddish/
-
-Comedian Tiffany Haddish lends her voice to a character in the upcoming 20-episode Backyard Sports: The Animated Series, a revival of the beloved 11-part family franchise.
----------
-
-# One of 2024’s Best-Reviewed Crime Shows Is Finally Back on Paramount+
-
-TV News, Diarra From Detroit
-
-Sun, 26 Jul 2026 13:00:42 GMT
-
-https://movieweb.com/diarra-from-detroit-season-2-release/
-
-'Diarra From Detroit,' a critically acclaimed crime comedy series starring Diarra Kilpatrick, returns for Season 2 on Paramount+ July 29.
----------
-
-# DC Debuts General Zod Redesign & Codename Change Ahead of Superman's Next Appearance
-
-DC Comics, Superman
-
-Sun, 26 Jul 2026 12:30:11 GMT
-
-https://screenrant.com/superman-general-zod-new-codename-costume/
-
-General Zod debuts both a new codename and a new look to kick off Superman’s next crossover event that DC Comics fans won't want to miss.
 ---------
