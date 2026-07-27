@@ -1,3 +1,344 @@
+# It's Official, We Got Avengers: Doomsday All Wrong
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
+
+Mon, 27 Jul 2026 21:30:11 GMT
+
+https://screenrant.com/its-official-we-got-avengers-doomsday-all-wrong/
+
+An argument about Avengers: Doomsday compared to Avengers: Infinity War has been raised lately; we have got the criticisms of the former all wrong.
+---------
+
+# Pokémon’s Facial Recognition Requirements Take Scalper Fight Too Far
+
+Gaming, Pokemon Trading Card Game, Pokemon, tabletop games
+
+Mon, 27 Jul 2026 21:24:45 GMT
+
+https://screenrant.com/pokemon-tcg-facial-recognition-scalpers/
+
+New stores require customers to agree to facial recognition scans in order to buy Pokémon TCG products, an egregious step in anti-scalping policy.
+---------
+
+# Disney+'s Loki Returns As Worldwide Sensation At The Perfect Time For Tom Hiddleston
+
+TV, Loki, Marvel Cinematic Universe
+
+Mon, 27 Jul 2026 21:24:07 GMT
+
+https://screenrant.com/disney-plus-loki-series-return-pompeii-tom-hiddleston-streaming-charts/
+
+Tom Hiddleston's Loki returns as a global streaming sensation, and it could not come at a better time for the Marvel cinematic Universe actor.
+---------
+
+# R.J. Decker Season 2's Release Date Revealed At ABC
+
+TV, RJ Decker
+
+Mon, 27 Jul 2026 21:21:44 GMT
+
+https://screenrant.com/rj-decker-season-2-abc-release-date/
+
+R.J. Decker season 2's release date has officially been revealed at ABC shortly after the crime drama was renewed for a second season in May.
+---------
+
+# Scrubs Season 2 Release Date Revealed After Record-Setting Revival Return
+
+TV, Scrubs
+
+Mon, 27 Jul 2026 21:20:47 GMT
+
+https://screenrant.com/scrubs-revival-abc-season-2-release-date/
+
+After a record-setting return for the revival of the beloved comedy series, ABC has revealed the official release date for Scrubs season 2.
+---------
+
+# Grey’s Anatomy Season 23 Release Date Revealed After Cast Shakeups
+
+TV, Grey's Anatomy
+
+Mon, 27 Jul 2026 21:20:16 GMT
+
+https://screenrant.com/greys-anatomy-season-23-abc-release-date/
+
+Despite some major shakeups in the cast, Grey’s Anatomy is returning for its 23rd season, as ABC announces its fall 2026 premiere dates.
+---------
+
+# Nathan Fillion's Returning Sci-Fi Series Is A Rare Show That Deserves Its Revival
+
+Streaming TV, Masked Recs
+
+Mon, 27 Jul 2026 21:15:11 GMT
+
+https://screenrant.com/firefly-deserves-revival-nathan-fillion-sci-fi-series/
+
+This cult classic space Western is getting a revival series 24 years after its original run, and it has the rare makings of a reboot done right.
+---------
+
+# Batman: Caped Crusader Season 2 Interview with Cast & EPs at SDCC 2026
+
+Videos, Batman: Caped Crusader, Batman: Caped Crusader - Season 2, San Diego Comic-Con
+
+Mon, 27 Jul 2026 21:13:06 GMT
+
+https://screenrant.com/video/batman-caped-crusader-season-2-hamish-linklater-matthew-needham-interview-sdcc-2026/
+
+Batman: Caped Crusader stars Hamish Linklater and Matthew Needham break down what season 2 has in store for Bruce Wayne and his nemesis, the Joker.
+---------
+
+# 10 Marvel Characters Who Can Return In MCU's Ghost Rider Movie
+
+Superheroes, Ghost Rider, Marvel Cinematic Universe
+
+Mon, 27 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/ghost-rider-movie-mcu-characters-return/
+
+Ryan Gosling's Ghost Rider movie in the MCU holds the potential to bring back various Marvel characters, including some major heroes and villains.
+---------
+
+# David Boreanaz's 5 Greatest TV Roles, Ranked
+
+Streaming TV, David Boreanaz
+
+Mon, 27 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/david-boreanaz-tv-roles-ranked/
+
+He may have been a phenomenal lead in Angel, Bones, and SEAL Team, but only one role can be the best David Boreanaz TV show performance.
+---------
+
+# Amazon’s 140-Minute Fantasy Reboot Is Officially the No. 1 Movie in the World on Prime Video
+
+Movies, Masters of the Universe, Prime Video
+
+Mon, 27 Jul 2026 21:20:10 GMT
+
+https://www.cbr.com/masters-of-the-universe-fantasy-success-prime-video-july-2026/
+
+Amazon MGM Studios' new fantasy reboot is officially a streaming hit.
+---------
+
+# The Perfect Open-World Game Everyone Forgot About 9 Years Later
+
+Games, open world, The Lord of the Rings
+
+Mon, 27 Jul 2026 21:15:15 GMT
+
+https://www.cbr.com/masterpiece-open-world-game-forgotten-middle-earth-shadow-of-war/
+
+One of the best open-world games of the modern era has been completely forgotten, even though it's connected to a major fantasy franchise.
+---------
+
+# Tom Ellis' Troubled FBI Offshoot Is Finally Returning With New Episodes
+
+TV, CIA, tom ellis, CBS
+
+Mon, 27 Jul 2026 21:12:08 GMT
+
+https://www.cbr.com/tom-ellis-cia-season-2-release-date/
+
+CBS has announced that the second season of Tom Ellis' FBI offshoot, CIA, will premiere in October.
+---------
+
+# Air Bud Officially Returns With Trailer for First Theatrical Release in 28 Years
+
+Movies, Air Bud Returns, Drama
+
+Mon, 27 Jul 2026 21:04:14 GMT
+
+https://www.cbr.com/air-bud-officially-returns-with-trailer-for-first-theatrical-release-in-28-years/
+
+Air Bud is heading back to theaters for the first time in nearly three decades with a brand-new movie that audiences had no idea they needed to see.
+---------
+
+# Silo Season 3 Cast Reveals What Changed Everything | SDCC 2026
+
+TV, Silo
+
+Mon, 27 Jul 2026 21:02:22 GMT
+
+https://www.cbr.com/video/silo-season-3-cast-reveals-what-changed-everything-sdcc-2026/
+
+The Silo Season 3 cast shares new behind-the-scenes stories from Apple TV+'s hit sci-fi series at SDCC 2026. From returning characters and impossible secrets to adapting Hugh Howey's novels, the conversation explores what makes the next chapter so different.
+---------
+
+# 8 Greatest Fantasy Books Worth Reading Again and Again, Ranked
+
+Movies, books, Fantasy, neil gaiman
+
+Mon, 27 Jul 2026 21:00:15 GMT
+
+https://www.cbr.com/most-rereadable-fantasy-books-ranked-list/
+
+Some fantasy books are incredible to read once or twice, but these eight books are continually amazing and worth reading over and over again.
+---------
+
+# Netflix’s New Harlan Coben Project Based on 12-Book Series Confirms Filming Start
+
+TV, Netflix, Untitled Myron Bolitar Series
+
+Mon, 27 Jul 2026 20:38:52 GMT
+
+https://www.cbr.com/netflix-myron-bolitar-filming-start/
+
+The show recently unveiled its full cast.
+---------
+
+# CBS Announces Release Date for Ghosts' Die Hard-Themed Christmas Episode
+
+TV, Ghosts
+
+Mon, 27 Jul 2026 20:35:27 GMT
+
+https://www.cbr.com/ghosts-die-hard-christmas-episode-release-date-cbs/
+
+New details and premiere dates for the two themed hour-long episodes of Ghosts have been shared by CBS.
+---------
+
+# Netflix's 8-Part Horror Series With 93% RT Is Already the Perfect Mike Flanagan Replacement
+
+TV, Guillermo del Toro's Cabinet of Curiosities, Horror, Netflix
+
+Mon, 27 Jul 2026 20:30:16 GMT
+
+https://www.cbr.com/netflix-cabinet-of-curiosities-original-horror-series/
+
+With Mike Flanagan departing Netflix, fans are seeking more original horror content, and one show is the answer.
+---------
+
+# 5 Darkest Movie Trilogies of All Time
+
+Movie, The Human Condition I: No Greater Love, The Dark Knight Trilogy, The Godfather, Lady Vengeance
+
+Mon, 27 Jul 2026 21:31:15 GMT
+
+https://collider.com/darkest-movie-trilogies-ranked/
+
+From The Godfather, to The Dark Knight, to The Human Condition, these devastating trilogies explore power, trauma, loss, and despair.
+---------
+
+# The 10 Greatest Protest Songs in Classic Rock, Ranked
+
+Music Features, Rock, Classics, Music, Bob Dylan
+
+Mon, 27 Jul 2026 21:30:15 GMT
+
+https://collider.com/greatest-protest-songs-in-classic-rock-ranked/
+
+From Masters of War to Ohio, these classic rock protest songs challenged power, fueled movements, and still hit hard today.
+---------
+
+# Disney+'s Best Sci-Fi Series Is Officially Dominating Streaming Charts 3 Years Later
+
+TV News, Loki, MCU, Marvel Studios, Avengers: Doomsday
+
+Mon, 27 Jul 2026 21:30:15 GMT
+
+https://collider.com/loki-the-mcu-series-that-changed-marvel-forever-streaming-success-disney-plus-july-2026/
+
+Loki, the critically acclaimed Marvel series set after Endgame, is topping the Disney+ rankings again as fans revisit it ahead of Avengers: Doomsday.
+---------
+
+# ABC's 'High Potential' Replacement Officially Sets Release Date
+
+TV News, RJ Decker, ABC, Scott Speedman
+
+Mon, 27 Jul 2026 21:24:51 GMT
+
+https://collider.com/rj-decker-season-2-fall-release-date-abc/
+
+ABC has officially set a release date for Season 2 best new crime thriller series, RJ Decker.
+---------
+
+# ‘Grey’s Anatomy’ Officially Returns in 3 Months
+
+TV News, Grey's Anatomy, ABC, Hulu, Ellen Pompeo
+
+Mon, 27 Jul 2026 21:24:34 GMT
+
+https://collider.com/greys-anatomy-season-23-fall-release-date-abc/
+
+Grey’s Anatomy Season 23 is officially returning to ABC this fall as part of the network’s Thursday night schedule.
+---------
+
+# 10 Horror Movies That Are Perfect From Beginning to End
+
+Movie, Horror, Obsession, The Silence of the Lambs, Psycho
+
+Mon, 27 Jul 2026 21:08:15 GMT
+
+https://collider.com/horror-movies-perfect-beginning-to-end/
+
+From The Shining, to The Thing, to Obsession, horror doesn't get much more perfect than these incredible masterpieces.
+---------
+
+# 10 Best Psychological Action Movies of All Time
+
+Movie, Inception, The Matrix, Total Recall, The Sword of Doom
+
+Mon, 27 Jul 2026 20:48:15 GMT
+
+https://collider.com/best-psychological-action-movies-all-time-ranked/
+
+Some action movies also happen to feel like psychological dramas or thrillers at the same time, like Total Recall, The Sword of Doom, and Inception.
+---------
+
+# 3 Stellar Shows to Binge on Netflix Before July Is Over
+
+TV, The Bombing of Pan Am 103, Survival of the Thickest, Vikings, Netflix
+
+Mon, 27 Jul 2026 20:47:15 GMT
+
+https://collider.com/netflix-shows-binge-week-july-27-2026/
+
+Survivial of the Thickest, Vikings, and The Bombing of Pan Am 103 make up our list of the best Netflix shows to binge before July 2026 is over.
+---------
+
+# Christopher Nolan’s Warner Bros. Partnership Betrayal Was a Big Mistake
+
+Features, Christopher Nolan, The Odyssey
+
+Mon, 27 Jul 2026 21:00:12 GMT
+
+https://movieweb.com/christopher-nolan-the-odyssey-box-office-beats-warner-bros/
+
+Christopher Nolan's latest movie, 'The Odyssey,' adapted from Homer's famous poem, stars Tom Holland, Robert Pattinson, Anne Hathaway, and Zendaya.
+---------
+
+# HBO Max's New 10-Part Sci-Fi Sequel Is Already a Global Streaming Sensation
+
+TV News, Stuart Fails to Save the Universe, HBO Max, Hot on Streaming, The Big Bang Theory, Sci-Fi
+
+Mon, 27 Jul 2026 21:00:12 GMT
+
+https://movieweb.com/stuart-fails-to-save-the-universe-big-bang-theory-stream-hbo-july-2026/
+
+HBO Max's new 'The Big Bang Theory' sci-fi spin-off, 'Stuart Fails to Save the Universe,' is a global success on streaming.
+---------
+
+# Taylor Sheridan's Action Thriller 'Yellowstone' Spin-Off Confirms Its CBS Return
+
+TV News, Marshals, Taylor Sheridan
+
+Mon, 27 Jul 2026 20:34:05 GMT
+
+https://movieweb.com/marshals-season-2-premiere-date-cbs/
+
+Season 2 of 'Marshals' gets a premiere date, which is in October.
+---------
+
+# 'Strange New Worlds' Star Confirms Change in Important Spock Relationship Heading Into Season 4
+
+TV News, Star Trek: Strange New Worlds
+
+Mon, 27 Jul 2026 20:32:00 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-la-an-spock-breakup/
+
+Was that relationship doomed from the start?
+---------
+
 # Every Avatar: The Last Airbender Show And Movie, Ranked
 
 Classic TV, Avatar: The Last Airbender, Avatar Aang: The Last Airbender, The Last Airbender, The Legend of Korra
@@ -5155,345 +5496,4 @@ Sun, 26 Jul 2026 11:01:14 GMT
 https://www.cbr.com/apple-tv-silo-season-3-shift-from-books-explained/
 
 New episodes of Silo look noticeably different to fans of Hugh Howey's books, and the creator reveals one major reason for the change.
----------
-
-# 20 Funniest Far Side Comics Featuring Aliens
-
-Comics, The Far Side
-
-Sun, 26 Jul 2026 11:01:14 GMT
-
-https://www.cbr.com/20-hilarious-the-far-side-comics-featuring-aliens/
-
-The comic strip The Far Side has sometimes featured takes on alien life forms to hilarious effect, and these are some of the best examples.
----------
-
-# David Boreanaz & Emily Deschanel's Bones Revival Just Became More Possible
-
-TV, Bones, Crime, Thriller
-
-Sun, 26 Jul 2026 10:00:15 GMT
-
-https://www.cbr.com/bones-david-boreanaz-emily-deschanel-revival/
-
-Bones is one of the greatest crime thriller TV shows ever made, and fans might finally be getting a long-awaited revival.
----------
-
-# 4 Space Operas That Are 10/10 Masterpieces
-
-Movies, Sci-Fi, Star Wars, Avatar
-
-Sun, 26 Jul 2026 10:00:15 GMT
-
-https://www.cbr.com/perfect-space-opera-movies-list/
-
-These space opera movie masterpieces are absolutely perfect.
----------
-
-# Apple's Most Underrated Hard Sci-Fi Is Officially Ending With Season 3 [Exclusive]
-
-Exclusives, Dark Matter, Sci-Fi, Apple TV, Blake Crouch, SDCC
-
-Sun, 26 Jul 2026 11:01:14 GMT
-
-https://collider.com/dark-matter-season-3-ending-plan/
-
-Dark Matter creators Blake Crouch and Jacquelyn Ben-Zekry reveal they envisioned the Apple TV+ sci-fi series as a three-season story.
----------
-
-# Netflix’s Monumental Western Woos Taylor Sheridan's Audience with 100 Million Hours Viewed
-
-TV News, Netflix, Little House on the Prairie, Western, Luke Bracey
-
-Sun, 26 Jul 2026 11:01:14 GMT
-
-https://collider.com/little-house-on-the-prairie-netflix-western-viewership-100-million-hours-viewed/
-
-Netflix's The Little House on the Prairie adaptation is going from strength to strength on the streamer's viewership charts. Find out more.
----------
-
-# What Your Favorite Video Game Genre Says About You
-
-TV, Video Game, Grand Theft Auto V, Alien: Isolation, Red Dead Redemption 2
-
-Sun, 26 Jul 2026 10:59:15 GMT
-
-https://collider.com/what-your-favorite-game-genre-says-about-you/
-
-Discover how your favorite video game genre reflects your personality, from RPGs embracing curiosity to FPS games rewarding skill and strategy.
----------
-
-# Graham Norton’s Gritty Crime Novel Turned Into a 100% RT Miniseries You Can Finish in One Weekend
-
-TV Features, Graham Norton, Holding, Crime
-
-Sun, 26 Jul 2026 10:51:14 GMT
-
-https://collider.com/graham-norton-crime-novel-holding-miniseries/
-
-In 2016, Graham Norton released his first-ever novel, and it’s now been adapted into a 100% RT miniseries that’s charming as it is intriguing.
----------
-
-# Prime Video’s Most Expensive Fantasy Gamble Is Officially Adapting the Best Part of the Books
-
-TV Features, The Lord of the Rings: The Rings of Power, Charlie Vickers, Daniel Weyman, Prime Video
-
-Sun, 26 Jul 2026 10:44:15 GMT
-
-https://collider.com/rings-of-power-season-3-prime-video-best-storyline-gandalf-sauron/
-
-As Prime Video's The Rings of Power enters Season 3, Sauron and Gandalf take center stage, raising the stakes and darkening the tone.
----------
-
-# John Boyega's 111-Minute Sci-Fi Sequel Is Officially HBO Max's Newest Streaming Smash
-
-Movie News, Sci-Fi, Pacific Rim: Uprising, HBO Max, Streaming
-
-Sun, 26 Jul 2026 10:30:15 GMT
-
-https://collider.com/pacific-rim-uprising-streaming-success-hbo-max-july-2026/
-
-A franchise-killing sci-fi flop starring Scott Eastwood alongside a Star Wars icon has found unlikely streaming success.
----------
-
-# 10 Greatest Domestic Thrillers of All Time
-
-Movie, Thriller, Funny Games, Gone Girl, The Housemaid
-
-Sun, 26 Jul 2026 10:22:15 GMT
-
-https://collider.com/best-domestic-thrillers-all-time-ranked/
-
-From outright horror stories like The Invisible Man to complex, psychological studies like Gone Girl, these are the best domestic thrillers ever made.
----------
-
-# 7 Most Unfairly Hated Movie Characters of All Time, Ranked
-
-Movie, The Shining, Star Wars: Episode I - The Phantom Menace, Star Wars: Episode VIII - The Last Jedi, 500 Days of Summer
-
-Sun, 26 Jul 2026 10:01:14 GMT
-
-https://collider.com/most-unfairly-hated-movie-characters-all-time-ranked/
-
-Rose Tico, Jar Jar Binks, Wendy Torrance, Cho Chang, and more make up our list of the most unfairly hated movie characters of all time.
----------
-
-# New 'Street Fighter' Movie Officially Unveils a Completely Unexpected Take on M. Bison From David Dastmalchian [Exclusive]
-
-Movie News, San Diego Comic-Con, David Dastmalchian, Street Fighter
-
-Sun, 26 Jul 2026 10:00:15 GMT
-
-https://collider.com/street-fighter-movie-m-bison-character-details-david-dastmalchian/
-
-Discover how the new Street Fighter movie is taking an unexpected approach to M. Bison's character, focusing on his origins and psychological details.
----------
-
-# Jason Statham's Forgotten Action Thriller Gets a Second Chance on Free Streaming
-
-Movie News, Wild Card, Jason Statham, Stanley Tucci, Simon West
-
-Sun, 26 Jul 2026 10:00:15 GMT
-
-https://collider.com/jason-statham-wild-card-free-streaming-home-roku-channel-july-2026/
-
-Jason Statham's long-forgotten $30 million action thriller officially finds a brand-new free streaming home with no strings attached.
----------
-
-# Steam Drops 6 Free Games You Have Just 24 Hours To Grab
-
-Gaming, Steam, PC
-
-Sun, 26 Jul 2026 09:00:11 GMT
-
-https://screenrant.com/steam-6-free-games-24-hours-july-giveaway/
-
-Steam users can pick up these six games completely for free, so long as they are fast enough, as there's only 24 hours left to get them.
----------
-
-# Tom Hardy and Ridley Scott's 8-Part Mystery Is a Streaming Smash Hit
-
-TV News, Taboo, Tom Hardy, Ridley Scott, Oona Chaplin
-
-Sun, 26 Jul 2026 09:40:15 GMT
-
-https://collider.com/tom-hardy-british-mystery-series-taboo-streaming-success-july-2026/
-
-Taboo, the Tom Hardy crime thriller produced by Ridley Scott, is still one of the most popular shows in the world despite no Season 2 news.
----------
-
-# 10 Perfect Netflix Shows With 20 Episodes or Less
-
-TV, Netflix, One Day, The Queen's Gambit, Arcane
-
-Sun, 26 Jul 2026 09:26:15 GMT
-
-https://collider.com/perfect-netflix-shows-shorter-than-20-episodes/
-
-Dive into the top Netflix shows that pack a punch in a concise format, delivering complete stories in 20 episodes or fewer, from Arcane to One Day.
----------
-
-# 'Suits' Revival Gets a Promising Update From a Taylor Sheridan Star
-
-TV News, Suits, Suits LA, Netflix, Gina Torres
-
-Sun, 26 Jul 2026 09:20:15 GMT
-
-https://collider.com/suits-revival-update-patrick-j-adams-idea/
-
-Patrick J. Adams, known for his role as Mike Ross in Suits, shares a potential revival idea for the popular legal drama series.
----------
-
-# Prime Video’s New Crime Drama Adaptation Features "Captivating" Turn From 'Game of Thrones' Star [Exclusive]
-
-Exclusives, Criminal, Chris Diamantopoulos, Ed Brubaker, Breaking Bear
-
-Sun, 26 Jul 2026 09:00:15 GMT
-
-https://collider.com/prime-video-criminal-adaptation-accuracy-emilia-clarke-performance/
-
-Chris Diamantopoulos opened up about the upcoming adaptation of Ed Brubaker's Criminal and the captivating performance of Emilia Clarke.
----------
-
-# Simon Pegg's Criminally Overlooked Thriller Is Officially Moving Forward With Season 3
-
-TV News, Simon Pegg, The Undeclared War, Thriller, Channel 4
-
-Sun, 26 Jul 2026 09:00:15 GMT
-
-https://collider.com/simon-pegg-cyber-thriller-the-undeclared-war-season-3-update/
-
-Simon Pegg's criminally underrated cyber-thriller, The Undeclared War, scores a huge Season 3 update. Read on for more details.
----------
-
-# Christopher Nolan's 'The Odyssey' Officially Breaks 'The Dark Knight's Box-Office Record
-
-Movie News, The Odyssey, The Dark Knight, Christopher Nolan, Box Office
-
-Sun, 26 Jul 2026 08:40:15 GMT
-
-https://collider.com/the-odyssey-overtakes-the-dark-knight-box-office-record-christopher-nolan/
-
-Christopher Nolan just delivered the biggest Tuesday haul of his career, with The Odyssey breaking The Dark Knight's record.
----------
-
-# HBO’s 2-Part Sci-Fi Epic Surges Into Top 10 Before New Release
-
-TV News, Dune: Prophecy, HBO Max, Dune: Part Three, HBO
-
-Sun, 26 Jul 2026 08:20:15 GMT
-
-https://collider.com/hbo-sci-fi-series-dune-prophecy-streaming-success-july-2026/
-
-HBO's two-season sci-fi powerhouse is surging on streaming right now before the franchise's new release this year.
----------
-
-# Henry Cavill’s New Detective Movie Keeps Plummeting on the Netflix Charts
-
-Movie News, Enola Holmes 3, Millie Bobby Brown, Henry Cavill, Netflix
-
-Sun, 26 Jul 2026 08:00:15 GMT
-
-https://collider.com/henry-cavill-enola-holmes-3-netflix-viewership-drop-july-2026/
-
-Enola Holmes 3, starring Millie Bobby Brown and Henry Cavill, continues to plummet on the Netflix viewership charts. Find out where it stands.
----------
-
-# New Mistborn Handbook Is A Must-Have For Brandon Sanderson Fans
-
-Tabletop, Mistborn, Brandon Sanderson, tabletop games
-
-Sun, 26 Jul 2026 07:00:11 GMT
-
-https://screenrant.com/mistborn-handbook-brandon-sanderson-release-2026/
-
-A new Mistborn book release is already proving to be an absolute necessity for any fan of Brandon Sanderson, as it details special magical systems.
----------
-
-# Pokémon Winds & Waves New Regional Variant Officially Teased
-
-Gaming, Pokemon Winds and Waves, Pokemon, Triple-A Games
-
-Sun, 26 Jul 2026 06:00:11 GMT
-
-https://screenrant.com/pokemon-winds-waves-new-regional-variant-tease/
-
-A bunch of new, unused Pokémon designs were recently found, and they support the idea that a new regional variant was teased in another Pokémon game.
----------
-
-# Batman: Arkham Officially Has One Joker Story Left To Tell
-
-Gaming, Batman: Arkham, Batman, Triple-A Games
-
-Sun, 26 Jul 2026 05:00:12 GMT
-
-https://screenrant.com/batman-arkham-joker-origin-prequel/
-
-If the Batman: Arkham franchise is going to revisit more prequel stories, as it arguably should, there is one Joker story that it should rush to tell.
----------
-
-# Why Marvel Studios Didn’t Reveal The New X-Men Cast At SDCC
-
-Superheroes, X-Men, Marvel Cinematic Universe, San Diego Comic-Con
-
-Sun, 26 Jul 2026 04:53:55 GMT
-
-https://screenrant.com/why-marvel-studios-didnt-reveal-new-x-men-cast-sdcc/
-
-As exciting as Marvel Studios' SDCC panel was, some reveals were definitely held back, including the upcoming cast for 2028's X-Men movie.
----------
-
-# Game Of Thrones: Children Of The Forest Officially Releases July 29
-
-Gaming, Game of Thrones, Game Of Thrones, PC
-
-Sun, 26 Jul 2026 04:30:12 GMT
-
-https://screenrant.com/game-of-thrones-conquest-children-of-the-forest-july-29/
-
-Game of Thrones is back with Children of the Forest, a special release that officially launches this week on July 29.
----------
-
-# Red Dead Redemption 2 Free Download Yours To Claim For Next 24 Hours
-
-Gaming, Red Dead Redemption 2
-
-Sun, 26 Jul 2026 04:15:11 GMT
-
-https://screenrant.com/red-dead-redemption-2-free-download-24-hours-july-27/
-
-Earn 3X RDO$, XP, and Gold on Bounty Hunter Free Roam Events and claim free emotes and cosmetics in Red Dead Online.
----------
-
-# Steam Gamers Can Grab Over 48 Free Downloads For Next 24 Hours
-
-Gaming, Steam, PC
-
-Sun, 26 Jul 2026 04:00:14 GMT
-
-https://screenrant.com/steam-48-free-downloads-24-hours/
-
-Steam has made a staggering 48 downloads available completely for free, but users only have 24 hours to grab them.
----------
-
-# 8 Sci-Fi Shows With The Best Space Battles
-
-Streaming TV, Sci-Fi
-
-Sun, 26 Jul 2026 03:54:23 GMT
-
-https://screenrant.com/sci-fi-shows-best-space-battles/
-
-If you're looking for entertaining sci-fi shows filled with well-choreographed and engaging space battles, these 8 TV shows are the way to go.
----------
-
-# How Lanterns' Hal Jordan & John Stewart Honor The OG Comic Characters Detailed By DCU Series Creator
-
-TV, Lanterns, San Diego Comic-Con
-
-Sun, 26 Jul 2026 03:36:38 GMT
-
-https://screenrant.com/lanterns-kyle-chandler-aaron-pierre-embody-green-lantern-comics-tom-king/
-
-EXCLUSIVE: According to the co-creator of HBO's comic book adaptation, Lanterns, Aaron Pierre and Kyle Chandler were perfectly cast.
 ---------
