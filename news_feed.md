@@ -1,3 +1,333 @@
+# Every Avatar: The Last Airbender Show And Movie, Ranked
+
+Classic TV, Avatar: The Last Airbender, Avatar Aang: The Last Airbender, The Last Airbender, The Legend of Korra
+
+Mon, 27 Jul 2026 20:15:11 GMT
+
+https://screenrant.com/avatar-last-airbender-shows-movies-ranked/
+
+Avatar: The Last Airbender has blossomed into a franchise in recent years, and here's how every show and movie compares to the acclaimed original.
+---------
+
+# New Alice In Wonderland Spinoff In Development From Director Of $553M Fantasy Remake
+
+Movies, Alice in Wonderland
+
+Mon, 27 Jul 2026 20:07:51 GMT
+
+https://screenrant.com/the-mad-hatter-animated-movie-development-chris-mosier/
+
+Alice in Wonderland is getting another spinoff, with this one being helmed by the director of a fantasy remake that made $553 million.
+---------
+
+# New PlayStation Plus Free Open-World Game Hailed As Best Looking Of This Console Generation
+
+Gaming, PlayStation Plus, Avatar: Frontiers Of Pandora, Triple-A Games
+
+Mon, 27 Jul 2026 20:00:11 GMT
+
+https://screenrant.com/playstation-plus-free-open-world-best-looking-avatar/
+
+PlayStation Plus' new batch of Game Catalog games includes one that some fans are declaring to be one of the best-looking of this generation.
+---------
+
+# DC's New Joker Actor Shows James Gunn's DCU What It's Missing
+
+Streaming TV, Masked Recs
+
+Mon, 27 Jul 2026 20:00:11 GMT
+
+https://screenrant.com/dc-joker-actor-matthew-needham-perfect/
+
+The latest confirmed Joker actor is a perfect pick for the iconic villain, and he's about to prove exactly what James Gunn's DCU is missing out on.
+---------
+
+# Netflix's 6-Part Action Series Is Officially One Of The Biggest Streaming Shows In The World
+
+TV, Masked Recs
+
+Mon, 27 Jul 2026 19:59:42 GMT
+
+https://screenrant.com/netflix-elite-force-action-show-biggest-show-world-stream/
+
+Netflix's latest action series is a worldwide hit, dominating the Top 10 charts in nearly 100 countries mere days after a quiet binge drop.
+---------
+
+# Invincible Interview with Robert Kirkman at SDCC 2026
+
+TV, Invincible, Robert Kirkman, San Diego Comic-Con
+
+Mon, 27 Jul 2026 19:57:09 GMT
+
+https://screenrant.com/video/invincible-season-5-robert-kirkman-interview-sdcc-2026/
+
+Invincible's Robert Kirkman discusses what Jack Quaid brings to season 5, how far along production is on season 6, and what awaits the series beyond.
+---------
+
+# Apple TV's 9-Part Sci-Fi Series With Rare Rotten Tomatoes Score Is Already One Of Its Best
+
+TV, Masked Recs
+
+Mon, 27 Jul 2026 19:29:11 GMT
+
+https://screenrant.com/pluribus-apple-tv-best-sci-fi-series-rotten-tomatoes/
+
+A darkly comedic character study, Apple TV's sci-fi series with a near perfect 99% Rotten Tomatoes rating is a dystopian show with a difference.
+---------
+
+# Noah Wyle’s Flynn Carsen “Face-Off” & More OG Librarians Returns Teased Ahead Of The Next Chapter Season 2 Premiere
+
+TV, The Librarians: The Next Chapter, The Librarians, Noah Wyle, TNT
+
+Mon, 27 Jul 2026 19:23:25 GMT
+
+https://screenrant.com/noah-wyle-flynn-carsen-returning-librarians-face-off-next-chapter-season-2-tease/
+
+Exclusive: Franchise boss Dean Devlin and his Librarians: The Next Chapter cast tease more original returning characters and Noah Wyle's Flynn Carsen.
+---------
+
+# Predicting The MCU's 4 Mystery Movies Until 2029 After Slate Updates
+
+Superheroes, Marvel Cinematic Universe
+
+Mon, 27 Jul 2026 19:20:11 GMT
+
+https://screenrant.com/mcu-movies-2028-2029-releases-slate-prediction/
+
+Black Panther 3 has officially been added to the MCU's slate, but four release dates remain unclaimed until 2029. Here's what movies could come out.
+---------
+
+# Sean Bean’s Dark New Western Thriller Officially Getting Major Release Next Week
+
+Movies, The Isolate Thief, Sean Bean
+
+Mon, 27 Jul 2026 19:14:29 GMT
+
+https://screenrant.com/sean-bean-the-isolate-thief-digital-release-date-august-2026/
+
+After starring on the big and small screens, Sean Bean has a new Western film that’s being released again very soon after its theatrical debut.
+---------
+
+# 5 Masterpiece Action Anime That Beat Solo Leveling At Its Own Game
+
+Anime, Solo Leveling, Demon Slayer: Kimetsu no Yaiba
+
+Mon, 27 Jul 2026 20:15:15 GMT
+
+https://www.cbr.com/masterpiece-action-anime-beat-solo-leveling/
+
+These action masterpieces excel in the same areas that made Solo Leveling such a phenomenon while offering even more to admire.
+---------
+
+# Marvel Transforms Spider-Man, Daredevil and the Punisher With Bold New Redesigns
+
+Anime, Marvel, San Diego Comic-Con, Kadokawa, Spider-Man, Daredevil, The Punisher
+
+Mon, 27 Jul 2026 20:06:15 GMT
+
+https://www.cbr.com/marvel-spider-man-daredevil-punisher-kadokawa/
+
+Some of the most iconic heroes in the entire Marvel Universe are getting some surprise redesigns courtesy of another brand-new manga initiative.
+---------
+
+# CBS' Harlan Coben Docuseries Officially Returns for Season 2
+
+TV, Harlan Coben's Final Twist, CBS
+
+Mon, 27 Jul 2026 20:03:15 GMT
+
+https://www.cbr.com/cbs-harlan-coben-final-twist-season-2-release-date/
+
+CBS has announced that Season 2 of Harlan Coben's Final Twist will premiere in October.
+---------
+
+# Masters of the Universe is The Lord of the Rings Meets Star Wars
+
+Movies, Masters of the Universe, The Lord of the Rings, Star Wars
+
+Mon, 27 Jul 2026 20:00:15 GMT
+
+https://www.cbr.com/masters-of-the-universe-is-lotr-meets-star-wars/
+
+The newest version of Masters of the Universe is on Prime Video, and fans of two fantasy and science fiction giants might want to check it out.
+---------
+
+# Mighty Morphin Power Rangers #2 Enter Uncomfortable New Territory
+
+Comics, Power Rangers, Mighty Morphin Power Rangers
+
+Mon, 27 Jul 2026 20:00:15 GMT
+
+https://www.cbr.com/review-boom-studios-mighty-morphin-power-rangers-2/
+
+The latest issue of BOOM! Studios' new ongoing Mighty Morphin Power Rangers series takes things in a decidedly dark direction.
+---------
+
+# NCIS's Slate Return Officially Confirmed by CBS
+
+TV, NCIS, NCIS: New York
+
+Mon, 27 Jul 2026 19:39:25 GMT
+
+https://www.cbr.com/ncis-slate-cbs-fall-premiere-dates/
+
+The NCISverse will make a splash on CBS this fall.
+---------
+
+# CBS Officially Confirms Tracker's Season 4 Return
+
+TV, Tracker
+
+Mon, 27 Jul 2026 19:38:30 GMT
+
+https://www.cbr.com/tracker-season-4-premiere-date-cbs/
+
+Colter Shaw's return to CBS has officially been dated.
+---------
+
+# YouTube Confirms Major Streaming Platform to Its Premium Tier
+
+TV, YouTube Premium, YouTube, Peacock
+
+Mon, 27 Jul 2026 19:36:13 GMT
+
+https://www.cbr.com/youtube-peacock-bundle-premium-tier/
+
+The video streaming platform has announced a major bundle.
+---------
+
+# The Rings of Power Cast Teases Epic Season 3 | SDCC 2026
+
+TV, The Lord of the Rings: The Rings of Power
+
+Mon, 27 Jul 2026 19:20:32 GMT
+
+https://www.cbr.com/video/the-rings-of-power-cast-teases-epic-season-3-sdcc-2026/
+
+The Lord of the Rings: The Rings of Power Season 3 is bringing bigger battles, tougher choices, and major character growth across Middle-earth. The cast and creative team share new details about where the story is headed following the dramatic events of Season 2.
+---------
+
+# Star Trek: Strange New Worlds Cast Reacts to the Viral Hot Spock Memes
+
+TV, Star Trek: Strange New Worlds, Star Trek, San Diego Comic-Con
+
+Mon, 27 Jul 2026 19:13:22 GMT
+
+https://www.cbr.com/star-trek-strange-new-worlds-cast-reacts-to-hot-spock-meme/
+
+The stars of Star Trek: Strange New Worlds respond to the current wave of Hot Spock memes that have been going viral ahead of the release of Season 5.
+---------
+
+# Hadestown: Patrick Page’s Injury Changed Hades | Set Stories
+
+Interviews, Hadestown: The Musical
+
+Mon, 27 Jul 2026 20:15:15 GMT
+
+https://collider.com/video/hadestown-patrick-page-s-injury-changed-hades-set-stories/
+
+Reeve Carney and Eva Noblezada take us inside the making of the Hadestown musical film, explaining why this isn't just a filmed stage production—it truly feels like a feature film set on a stage.
+---------
+
+# Hasbro Officially Reveals 'Avengers: Doomsday' Figures With First Look at X-Men and Fantastic Four
+
+Movie News, Avengers: Doomsday, Hasbro, Marvel Studios, Robert Downey Jr
+
+Mon, 27 Jul 2026 20:03:22 GMT
+
+https://collider.com/marvel-hasbro-figures-avengers-doomsday-doctor-doom-thor-captain-america-images/
+
+Hasbro has released a lineup of Avengers: Doomsday figures for Doctor Doom, The Fantastic Four, Thor, Captain America, and others.
+---------
+
+# The 10 Most Essential Miles Davis Albums
+
+Music Features, Jazz, Miles Davis, Music, Lists
+
+Mon, 27 Jul 2026 20:00:15 GMT
+
+https://collider.com/the-10-most-essential-miles-davis-albums/
+
+From Kind of Blue to Sketches of Spain to Bitches Brew, Miles Davis' 10 Most Essential Albums.
+---------
+
+# 10 Greatest Monsters in The Lord of the Rings
+
+Movie, Fantasy, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King, The Lord of the Rings: The Fellowship of the Ring
+
+Mon, 27 Jul 2026 19:41:14 GMT
+
+https://collider.com/best-monsters-lord-of-the-rings-ranked/
+
+The best monsters in The Lord of the Rings include several memorable creations, from twisted versions of real animals to horrors of divine origin.
+---------
+
+# 3 Best Movies To Watch on Netflix Before the End of July
+
+Movie, Tar, Ordinary Angels, Wind River, Netflix
+
+Mon, 27 Jul 2026 19:20:15 GMT
+
+https://collider.com/best-netflix-movies-watch-july-27-2026/
+
+Tár, Ordinary Angels, and Wind River make up our list of the best Netflix movies to watch before July 2026 is over.
+---------
+
+# Alan Ritchson Officially Reveals Jack Reacher’s Real Superpower [Exclusive]
+
+Exclusives, Reacher, Alan Ritchson, Prime Video, Jack Reacher
+
+Mon, 27 Jul 2026 19:00:15 GMT
+
+https://collider.com/alan-ritchson-jack-reacher-superpower/
+
+Alan Ritchson reveals the subtle character trait he considers Jack Reacher’s real “superpower” ahead of Reacher Season 4.
+---------
+
+# Jason Statham's Blockbuster Action Thriller Loses to New 87% Rated Martial Arts Epic on Streaming
+
+Movie News, Mortal Kombat II, The Meg, Jason Statham, Hot on Streaming
+
+Mon, 27 Jul 2026 20:00:12 GMT
+
+https://movieweb.com/jason-statham-meg-loses-streaming-mortal-kombat-2/
+
+As rare as it is to see Jason Statham lose a fight, sometimes it does happen.
+---------
+
+# 10 Most Powerful Spider-Man Villains That Have Appeared in Movies
+
+Movie Lists, Spider-Man
+
+Mon, 27 Jul 2026 20:00:12 GMT
+
+https://movieweb.com/spider-man-most-powerful-movie-villains/
+
+Spider-Man has some of the most famous villains in comics and on film, but who is the most powerful?
+---------
+
+# Netflix's Best 10-Part Gothic Thriller Officially Getting New Remake
+
+TV News, The Haunting of Hill House, Netflix, Shirley Jackson
+
+Mon, 27 Jul 2026 19:38:39 GMT
+
+https://movieweb.com/haunting-of-hill-house-stage-play-adaptation/
+
+A new adaptation of Shirley Jackson's 'The Haunting of Hill House' is on the way, this time as a theatrical production.
+---------
+
+# The Greatest Action Thriller Series of the 2020s Just Keeps Getting Better
+
+Features, Reacher
+
+Mon, 27 Jul 2026 19:01:12 GMT
+
+https://movieweb.com/reacher-great-series-gets-better/
+
+One action thriller TV show is not only popular but is also so high-quality that it's likely to continue for a long time.
+---------
+
 # One Piece Suffers Crushing Defeat As Japan Crowns New #1 Shonen
 
 Anime
@@ -5166,334 +5496,4 @@ Sun, 26 Jul 2026 03:36:38 GMT
 https://screenrant.com/lanterns-kyle-chandler-aaron-pierre-embody-green-lantern-comics-tom-king/
 
 EXCLUSIVE: According to the co-creator of HBO's comic book adaptation, Lanterns, Aaron Pierre and Kyle Chandler were perfectly cast.
----------
-
-# A Knight Of The Seven Kingdoms Season 2 Is Keeping The Show's Winning Formula Alive
-
-Streaming TV, A Knight Of The Seven Kingdoms, Game of Thrones
-
-Sun, 26 Jul 2026 03:30:12 GMT
-
-https://screenrant.com/a-knight-of-the-seven-kingdoms-season-2-short-episodes-trend-continue/
-
-After the success of A Knight of the Seven Kingdoms' debut season, HBO might have been tempted to make some changes. Thankfully, that's not the case.
----------
-
-# Naruto's Live-Action Movie Can Only Succeed After Dodging Dragon Ball's Biggest Pitfall
-
-Anime, Naruto, Naruto - Live Action
-
-Sun, 26 Jul 2026 03:30:12 GMT
-
-https://screenrant.com/naruto-live-action-movie-dragon-ball-failure/
-
-To succeed where past Hollywood adaptations failed, the highly anticipated live-action Naruto must fix Dragon Ball's biggest mistake.
----------
-
-# Brandon Sanderson’s “Top Gun Meets Ender’s Game” Adaptation Is TV’s Next Big Sci-Fi Epic
-
-Streaming TV, Masked Recs
-
-Sun, 26 Jul 2026 03:15:12 GMT
-
-https://screenrant.com/brandson-sanderson-top-gun-enders-game-skyward-adaptation/
-
-An upcoming adaptation of a Brandon Sanderson book series seems like the perfect combination of the best story beats from Top Gun and Ender’s Game.
----------
-
-# 5 One Piece Characters Who Can Easily Defeat Luffy
-
-Anime, One Piece
-
-Sun, 26 Jul 2026 03:00:12 GMT
-
-https://screenrant.com/one-piece-characters-defeat-luffy/
-
-Despite mastering Gear 5 and defeating Kaido, the Straw Hat captain still faces five figures who hold a clear advantage over him.
----------
-
-# Prime Video’s Adaptation Of Bestselling Crime Comics Can Be As Big As Sons Of Anarchy
-
-Streaming TV, Masked Recs
-
-Sun, 26 Jul 2026 03:00:12 GMT
-
-https://screenrant.com/prime-video-criminal-comics-adaptation-sons-of-anarchy/
-
-Prime Video is adapting a highly acclaimed bestselling crime comic book series, which has the potential to be as big as shows like Sons of Anarchy.
----------
-
-# 10 Classic 2000s Anime Series That Are Perfect From the First Scene
-
-Anime, Fullmetal Alchemist: Brotherhood, Code Geass: Lelouch of the Rebellion
-
-Sun, 26 Jul 2026 03:46:15 GMT
-
-https://www.cbr.com/classic-2000s-anime-perfect-from-the-first-scene-list/
-
-2000s anime classics like Fullmetal Alchemist, Monster, and Code Geass became timeless masterpieces and are still considered the gold standard today.
----------
-
-# 5 Years Later, Gundam Finally Brings Back Zeon's Weirdest Mobile Suit
-
-Anime, Mobile Suit Gundam, merchandise, bandai, toys
-
-Sun, 26 Jul 2026 03:30:15 GMT
-
-https://www.cbr.com/gundam-zgok-real-grade-gunpla-bandai-re-release/
-
-A mass-produced and unusual Mobile Suit Gundam design used by the Principality of Zeon is once again available to order as a Real Grade model kit.
----------
-
-# CBS Is Derailing Jared Padalecki's Next Supernatural Replacement Show
-
-TV, Fire Country, Supernatural, CBS
-
-Sun, 26 Jul 2026 03:30:15 GMT
-
-https://www.cbr.com/cbs-fire-country-jared-padalecki-spinoff-in-doubt/
-
-After Supernatural and Walker, Jared Padalecki's future with CBS and his potential spin-off might not be looking as bright.
----------
-
-# 10 Forgotten PS1 Games That Have Aged Like Fine Wine
-
-Games, Alien, Sony, PlayStation (Original)
-
-Sun, 26 Jul 2026 03:15:16 GMT
-
-https://www.cbr.com/forgotten-playstation-games-aged-like-fine-wine-list/
-
-The PS1 library was dominated by some of the greatest JRPG titles to hit consoles, and these hits aged like fine wine even if they were forgotten.
----------
-
-# Marvel Studios Officially Confirms Black Panther To Become a Trilogy
-
-Movies, Black Panther, Marvel Cinematic Universe, San Diego Comic-Con
-
-Sun, 26 Jul 2026 03:07:32 GMT
-
-https://www.cbr.com/marvel-studios-sdcc-black-panther-3-trilogy-announcement/
-
-The announcement came during the studio's San Diego Comic Con panel.
----------
-
-# 5 Perfect PS3 Games No One Actually Remembers
-
-Games, Video Games, PlayStation (Original)
-
-Sun, 26 Jul 2026 02:45:15 GMT
-
-https://www.cbr.com/perfect-but-forgotten-ps3-games-list/
-
-Not every game from the PlayStation 3 era, like ModNation Racers of Enslaved, is destined for long term success.
----------
-
-# Amazon's Carrie Reboot Reveals First Look at New Take on Iconic Prom Scene
-
-TV, Carrie, San Diego Comic-Con
-
-Sun, 26 Jul 2026 02:41:45 GMT
-
-https://www.cbr.com/carrie-prime-video-teaser-trailer-release-date/
-
-The new series based on the iconic Stephen King story has also just been given its Prime Video premiere date.
----------
-
-# 4 Mystery Anime That Are 10/10 Masterpieces
-
-Anime, Odd Taxi, Bungo Stray Dogs
-
-Sun, 26 Jul 2026 02:30:15 GMT
-
-https://www.cbr.com/mystery-anime-perfect-masterpieces-list/
-
-It's not easy to craft a compelling mystery, but anime like Odd Taxi, Mononoke, and Detective Conan excel with their hard-boiled detective work.
----------
-
-# Avengers: Doomsday Can Deliver the Most Comic-Accurate Doctor Doom Yet
-
-Comics, Avengers: Doomsday
-
-Sun, 26 Jul 2026 02:30:15 GMT
-
-https://www.cbr.com/avengers-doomsday-can-build-comic-accurate-doctor-doom/
-
-Avengers: Doomsday is about to adapt an iconic villain for the big screen, and there's a chance to finally go comic-accurate.
----------
-
-# 10 Classic Fantasy Books That Are Still Perfect Today
-
-Movies, Fantasy, books, The Lord of the Rings
-
-Sun, 26 Jul 2026 02:20:15 GMT
-
-https://www.cbr.com/classic-fantasy-books-still-perfect-list/
-
-While some fantasy books have aged like milk over time, there are some classics that are as perfect today as the day they were published.
----------
-
-# 'Transformers’ Meets ‘Godzilla’ in John Boyega’s Sci-Fi Sequel Resurfacing on HBO Max 8 Years Later
-
-Movie News, John Boyega, Pacific Rim: Uprising, Scott Eastwood, HBO Max
-
-Sun, 26 Jul 2026 03:55:15 GMT
-
-https://collider.com/john-boyega-sci-fi-sequel-pacific-rim-uprising-hbo-max-streaming-success-july-2026/
-
-An overlooked sci-fi sequel is storming the HBO Max charts years later proving giant robot action still has loyal fans.
----------
-
-# Sam Raimi's Near-Perfect Horror Series Is Taking Over the World 8 Years Later
-
-TV News, Sam Raimi, Horror, Rotten Tomatoes, Ash vs Evil Dead
-
-Sun, 26 Jul 2026 03:45:15 GMT
-
-https://collider.com/sam-raimi-horror-series-ash-vs-evil-dead-streaming-success-apple-tv-store-july-2026/
-
-Sam Raimi's beloved horror series with a near-perfect Rotten Tomatoes score is climbing streaming charts and deserves a full binge.
----------
-
-# Christopher Nolan’s 'The Odyssey' Officially Surges Past 2 of His Blockbusters in Just 1 Week
-
-Movie News, The Odyssey, Tenet, Batman Begins, Christopher Nolan
-
-Sun, 26 Jul 2026 03:32:09 GMT
-
-https://collider.com/the-odyssey-box-office-tenet-batman-begins-christopher-nolan/
-
-The Odyssey races past two Christopher Nolan classics at the worldwide box office after just over one week in theaters.
----------
-
-# ‘Fallout 5’ Officially Confirms Gameplay Update Ahead of Season 3
-
-Gaming News, Fallout, Prime Video, Bethesda, Fallout 76
-
-Sun, 26 Jul 2026 03:30:15 GMT
-
-https://collider.com/fallout-5-development-update-todd-howard-before-season-3/
-
-Bethesda boss Todd Howard issues an official update on Fallout 5 while Season 3 of the Prime Video series continues filming.
----------
-
-# Christopher Nolan's 'The Odyssey' Is Sending Zack Snyder's Greek Epic Soaring on Streaming
-
-Movie News, 300, Zack Snyder, Christopher Nolan, The Odyssey
-
-Sun, 26 Jul 2026 03:15:16 GMT
-
-https://collider.com/zack-snyder-300-greek-myth-vudu-streaming-success-july-2026/
-
-Director Zack Snyder's big breakout movie, 300, is having a streaming resurgence amid the box-office domination of The Odyssey.
----------
-
-# ‘Star Trek’s Best Series Has Quietly Outdone ‘The Next Generation’
-
-TV Features, Star Trek, Star Trek: Strange New Worlds, Star Trek: The Next Generation, Star Trek: The Original Series
-
-Sun, 26 Jul 2026 03:07:15 GMT
-
-https://collider.com/star-trek-strange-new-worlds-better-than-the-next-generation/
-
-For years, The Next Generation defined Star Trek, but Strange New Worlds could now be considered the franchise's gold standard.
----------
-
-# 10 Years Later, Matt Damon’s Underrated Fantasy Epic Is Free to Watch
-
-TV Features, Matt Damon, Pedro Pascal, The Great Wall, Tubi
-
-Sun, 26 Jul 2026 03:07:15 GMT
-
-https://collider.com/matt-damon-the-great-wall-underrated-fantasy-epic-watch-on-tubi/
-
-A decade after its release, 'The Great Wall' remains both an oddity in Matt Damon's filmography and a solid fantasy film.
----------
-
-# The Lord of the Rings Officially Returns With New Release on November 10
-
-Books and Comics News, The Lord of the Rings, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Hunt for Gollum, J.R.R. Tolkien
-
-Sun, 26 Jul 2026 03:00:15 GMT
-
-https://collider.com/the-lord-of-the-rings-the-fall-of-numenor-special-edition-release-date-november-10/
-
-The Lord of the Rings is getting a brand-new, 352-page special edition release for The Fall of Númenor on November 10.
----------
-
-# 2 Legendary Stars Officially Reunite for Netflix's Reboot of their Cult Classic Rom-Com
-
-Movie News, Netflix, 13 Going on 30, Jennifer Garner, Judy Greer
-
-Sun, 26 Jul 2026 02:45:15 GMT
-
-https://collider.com/13-going-on-30-stars-jennifer-garner-judy-greer-netflix-return/
-
-Two stars of the original 13 Going on 30 are set to reunite in Netflix's remake of the iconic rom-com. Here's everything you should know.
----------
-
-# 2026’s Horror Hit Is Taking Over the Streaming Charts
-
-Movie News, Obsession, Peacock, Horror, Curry Barker
-
-Sun, 26 Jul 2026 02:31:45 GMT
-
-https://collider.com/2026s-horror-hit-is-taking-over-the-streaming-charts/
-
-Discover how Obsession, a low-budget horror film directed by Curry Barker, has become a box office success and is now dominating streaming charts.
----------
-
-# 8 Biggest Reveals From Marvel at Comic Con 2026
-
-Movie News, MCU's Movie Order (2008 - 2019) - The Infinity Saga (Iron Man - Spider-Man: Far from Home), Avengers: Doomsday
-
-Sun, 26 Jul 2026 04:05:46 GMT
-
-https://movieweb.com/marvel-studios-comic-con-reveals-2026/
-
-From Doomsday to Ghost Rider to Black Panther, here are the biggest reveals from the Marvel Studios San Diego Comic-Con panel.
----------
-
-# What Happens to the Hightowers by the Time of 'Game of Thrones'
-
-Features, Game of Thrones, Game Of Thrones, House of the Dragon
-
-Sun, 26 Jul 2026 02:30:12 GMT
-
-https://movieweb.com/what-happens-hightowers-game-of-thrones/
-
-The Hightowers are mostly missing from the timeline of 'Game of Thrones,' but it's not for the reason 'House of the Dragon' fans might think.
----------
-
-# 9 Gangster Movies That Are So Close to Being Perfect
-
-Movie Lists, Crime
-
-Sun, 26 Jul 2026 02:00:22 GMT
-
-https://movieweb.com/gangster-movies-almost-perfect/
-
-Making a flawless gangster movie isn't so easy. These aren't at the level of 'Goodfellas' and 'The Godfather', but they're close!
----------
-
-# New 'Black Panther' Actor Officially Announced as MCU Sequel Receives Release Date
-
-Movie News, Black Panther, Black Panther Wakanda Forever, Ryan Coogler
-
-Sun, 26 Jul 2026 01:43:31 GMT
-
-https://movieweb.com/black-panther-3-release-date-david-jonsson/
-
-Marvel Studios confirmed exciting new casting and release information for Ryan Coogler's 'Black Panther 3.'
----------
-
-# Ryan Gosling Officially Lands Major MCU Superhero Role After Years of Rumors
-
-Movie News, Ryan Gosling, Ghost Rider
-
-Sun, 26 Jul 2026 01:08:48 GMT
-
-https://movieweb.com/ryan-gosling-ghost-rider-mcu-cast-sdcc/
-
-It's official: Ryan Gosling has joined the MCU as an iconic superhero.
 ---------
