@@ -1,3 +1,289 @@
+# 8 Visually Stunning Sci-Fi Shows That Set New Standards With Storytelling
+
+TV, Sci-Fi
+
+Mon, 27 Jul 2026 01:00:12 GMT
+
+https://screenrant.com/best-sci-fi-shows-stunning-visuals/
+
+The sci-fi genre is made for innovation, and many excellent sci-fi TV shows have pushed the boundaries of both aesthetic style and storytelling.
+---------
+
+# Peaky Blinders Meets Bosch In The Best New Gangster Show
+
+Streaming TV, Masked Recs
+
+Mon, 27 Jul 2026 00:45:11 GMT
+
+https://screenrant.com/peaky-blinders-bosch-mgm-the-westies-gangster-tv-show/
+
+The best new gangster show, featuring actor Titus Welliver, carries the narrative DNA of Peaky Blinders and Bosch, making it an entertaining watch.
+---------
+
+# Robert Downey Jr. Reveals the OG X-Men He "Nerded Out" Over On Avengers: Doomsday Set
+
+Movies, Avengers: Doomsday
+
+Mon, 27 Jul 2026 00:30:54 GMT
+
+https://screenrant.com/robert-downey-jr-og-x-men-nerded-out-avengers-doomsday-set/
+
+Marvel star Robert Downey Jr. reveals which two original X-Men made him "nerd out" while filming on the set of Avengers: Doomsday.
+---------
+
+# 7 Ocarina Of Time Mysteries The Remake Needs To Expand On
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda, Triple-A Games
+
+Mon, 27 Jul 2026 00:30:12 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-mysteries-lore/
+
+Ocarina of Time's upcoming remake is an opportunity to elucidate some of the game's lingering mysteries and make Hyrule feel more cohesive.
+---------
+
+# Modern Family's 15 Highest-Rated Episodes
+
+Classic TV, Modern Family
+
+Mon, 27 Jul 2026 00:30:12 GMT
+
+https://screenrant.com/modern-family-best-episodes-highest-rated-imdb/
+
+Modern Family produced 250 episodes during its Emmy-winning, 11-season run. These 15 memorable episodes have the highest audience rating on IMDb.
+---------
+
+# 10 Greatest Western Movie Showdowns & Gunfights Of All Time, Ranked
+
+Classic Movies, Western
+
+Mon, 27 Jul 2026 00:10:11 GMT
+
+https://screenrant.com/greatest-western-movie-showdown-gunfights/
+
+Western movies live and die by the final battles, and since most end with showdowns and gunfights, here are the best moments in the genre's history.
+---------
+
+# Marvel Makes Hardcore Design Change To Founding X-Men Hero
+
+Marvel Comics, X-Men
+
+Mon, 27 Jul 2026 00:00:11 GMT
+
+https://screenrant.com/x-men-xforce-redesign-angel/
+
+Marvel's new X-Men team receives a futuristic upgrade that grants one of mutantkind's first superheroes a weapon they rarely get to use.
+---------
+
+# New Lord Of The Rings RPG Can’t Ignore A Legendary Piece Of Tolkien Lore
+
+Gaming, The Lord of the Rings, Triple-A Games
+
+Mon, 27 Jul 2026 00:00:11 GMT
+
+https://screenrant.com/lord-of-the-rings-rpg-weapon-names-lore/
+
+The upcoming Lord of the Rings/Middle-earth RPG could be a bounteous feast of rich open-world features, and weapons have a chance to be iconic.
+---------
+
+# The Best American Sports Series Of All Time Has Nothing To Do With American Sports
+
+Streaming TV, Masked Recs
+
+Sun, 26 Jul 2026 23:45:11 GMT
+
+https://screenrant.com/ted-lasso-best-american-sports-tv-show/
+
+The greatest American sports series of all time has nothing to do with American sports and still continues to deliver one epic seasons after another.
+---------
+
+# Amy Adams' 10-Part Thriller Is Rising on Streaming Ahead of Season Finale
+
+TV, Cape Fear, Thriller, Apple TV
+
+Mon, 27 Jul 2026 01:00:16 GMT
+
+https://www.cbr.com/amy-adams-cape-fear-thriller-apple-tv-success-july-2026/
+
+Amy Adams' latest thriller series based on a best-selling novel, Cape Fear, is rising on streaming ahead of finale.
+---------
+
+# 4 American Anime Series That Are 10/10 Masterpieces
+
+Anime, Arcane, Avatar: The Last Airbender
+
+Mon, 27 Jul 2026 00:45:15 GMT
+
+https://www.cbr.com/american-anime-series-flawless-masterpieces-list/
+
+Proper anime come from Japan, but there are some impressive American animated series like Arcane and Megas XLR that capture the same magic and energy.
+---------
+
+# 10 Long RPGs That Take Forever to Complete
+
+Games, RPG, JRPG, Steam, Baldur's Gate 3, Persona 5 Royal
+
+Mon, 27 Jul 2026 00:30:16 GMT
+
+https://www.cbr.com/long-rpgs-that-take-forever-to-complete/
+
+RPGs are generally known for being long and in-depth affairs, but some are notoriously brutal when it comes to their lengthy completion times.
+---------
+
+# The Best John Wick Line is Still the Greatest Quote in Action Movie History
+
+Movies, John Wick, Keanu Reeves
+
+Mon, 27 Jul 2026 00:30:16 GMT
+
+https://www.cbr.com/john-wick-best-line-in-action-movie-history/
+
+John Wick may not be very verbose, but he still delivers one of the best lines in action movie history.
+---------
+
+# 5 Cartoon Network Anime Every New Fan Needs to Watch Once
+
+Anime, Dragon Ball Z, Sailor Moon
+
+Mon, 27 Jul 2026 00:15:15 GMT
+
+https://www.cbr.com/classic-cartoon-network-anime-for-new-fans/
+
+A handful of anime that aired on Cartoon Network remain essential viewing for anyone exploring the medium.
+---------
+
+# Dynamite Entertainment's October 2026 Solicitations
+
+Comics, dynamite entertainment
+
+Mon, 27 Jul 2026 00:04:19 GMT
+
+https://www.cbr.com/supernatural-archie-terminator-dynamite-october-2026-solicitations/
+
+The Winchester brothers go their separate ways in a new Supernatural era, and Archie meets the Terminator in Dynamite's October 2026 solicitations
+---------
+
+# The $497M Epic Masterpiece That Christopher Nolan Lost Before The Odyssey Is Getting A New Streaming Home
+
+Movies, Troy, The Odyssey, Christopher Nolan
+
+Mon, 27 Jul 2026 00:00:15 GMT
+
+https://www.cbr.com/troy-historical-epic-peacock-august-2026/
+
+As The Odyssey soars, the film that could've been Christopher Nolan's first historical epic is changing streaming homes.
+---------
+
+# Netflix Finally Reverses Course on Major Anime Problem With 25-Episode Update
+
+Anime, Netflix, Gintama
+
+Mon, 27 Jul 2026 00:00:15 GMT
+
+https://www.cbr.com/netflix-gintama-english-subtitles-fixed-season-2/
+
+The screwball comedy anime, Gintama, receives a much-needed update, allowing fans to enjoy even more wacky adventures with Gintoki and company.
+---------
+
+# 5 Hard-Sci Fi Anime That Were Ahead of Their Time
+
+Anime, Ghost in the Shell, Serial Experiments Lain, Planetes, Sci-Fi
+
+Sun, 26 Jul 2026 23:45:15 GMT
+
+https://www.cbr.com/hard-sci-fi-anime-ahead-of-their-time/
+
+Hard sci-fi anime's thoughtful approach to making the seemingly impossible possible often puts it way ahead of its time.
+---------
+
+# Avengers: Doomsday Must Explain This Plot Hole From Avengers: Endgame
+
+Movies, Avengers: Doomsday
+
+Sun, 26 Jul 2026 23:45:15 GMT
+
+https://www.cbr.com/avengers-endgame-time-travel-plot-hole-ruined-doomsday/
+
+The Marvel Cinematic Universe's next Avengers film will need to finally explain this canon-breaking scene from the end of Avengers: Endgame.
+---------
+
+# Netflix Officially Sets Release Date for New 6-Part British Crime Miniseries
+
+TV News, Netflix, Crime, Drama, The Bombing of Pan Am 103
+
+Mon, 27 Jul 2026 01:00:16 GMT
+
+https://collider.com/netflix-the-bombing-of-pan-am-103-release-date-july-30-2026/
+
+Netflix's chilling 6-part miniseries arrives at the end of the month. Get all the details here about the true-story drama.
+---------
+
+# 'Avatar' Star's Failed Fantasy Sequel Is a Sudden Streaming Hit 15 Years Later
+
+Movie News, Wrath of the Titans, The Odyssey, Clash of the Titans, Sam Worthington
+
+Mon, 27 Jul 2026 00:30:16 GMT
+
+https://collider.com/wrath-of-the-titans-worst-greek-mythology-movie-coming-to-peacock/
+
+The critically panned Greek mythology epic, Wrath of the Titans, is coming to Peacock soon. Find out when you can watch the film.
+---------
+
+# The 10 Darkest Video Games of All Time, Ranked
+
+TV, Video Game, Silent Hill, Horror, Rockstar Games
+
+Mon, 27 Jul 2026 00:02:15 GMT
+
+https://collider.com/darkest-video-games-ranked/
+
+Discover the darkest video games of all time, ranked by their dark themes, mature content, and emotional impact, from Silent Hill 2 to Manhunt.
+---------
+
+# 5 Years Later, Tom Hanks' Sci-Fi Gem Is Officially a Global Streaming Smash
+
+Movie News, Finch, Tom Hanks, Apple TV, Sci-Fi
+
+Mon, 27 Jul 2026 00:00:15 GMT
+
+https://collider.com/tom-hanks-sci-fi-gem-finch-streaming-success-apple-tv-july-2026/
+
+After five years, Tom Hanks forgotten sci-fi gem on Apple TV has been resurrected as a global streaming success.
+---------
+
+# Taylor Sheridan's Streaming Streak Is Over Thanks to Prime Video's Crime Hit
+
+TV News, Prime Video, Crime, Taylor Sheridan, Cross
+
+Sun, 26 Jul 2026 23:30:15 GMT
+
+https://collider.com/cross-streaming-hit-paramount-plus-july-2026/
+
+Prime Video's best crime adaptation has become an unlikely Paramount+ hit. Here's everything you should know about Aldis Hodge's Cross.
+---------
+
+# What Is the Handkerchief Criston Cole Carries In 'House of the Dragon'?
+
+Features, House of the Dragon, HBO Max, Fantasy
+
+Mon, 27 Jul 2026 01:05:12 GMT
+
+https://movieweb.com/handkerchief-criston-cole-alicent-house-of-the-dragon/
+
+Criston Cole holds a particular handkerchief tightly, leading to some questions. But don't worry, you're not the only one who forgot about this.
+---------
+
+# 'Black Panther 3': Cast, Story, Release Date, & Everything We Know
+
+Features, Black Panther, Black Panther: Wakanda Forever, MCU's Movie Order (2008 - 2019) - The Infinity Saga (Iron Man - Spider-Man: Far from Home)
+
+Mon, 27 Jul 2026 00:30:13 GMT
+
+https://movieweb.com/black-panther-3-everything-we-know/
+
+'Black Panther III' is set for release after 'Avengers: Secret Wars' and will debut a new Black Panther to the MCU.
+---------
+
 # 10 Most Ambitious Movies Of All Time, Ranked
 
 Movies
@@ -5210,290 +5496,4 @@ Sat, 25 Jul 2026 17:25:59 GMT
 https://www.cbr.com/video/bill-sienkiewicz-wants-warlock-in-the-mcu-sdcc-2026/
 
 Bill Sienkiewicz talks The New Mutants, Warlock, and That Polish Guy documentary at SDCC 2026. Comic book legend Bill Sienkiewicz reflects on why he initially questioned making a documentary about his life before realizing it celebrates storytelling more than himself.
----------
-
-# 5 Greatest Transformers Games, Officially Ranked
-
-Games, Transformers, Video Games
-
-Sat, 25 Jul 2026 17:15:15 GMT
-
-https://www.cbr.com/greatest-transformers-games-ranked/
-
-The best Transformers games put fans right into the action that has fueled the Robots In Disguise's popularity for decades.
----------
-
-# What Tim Robbins Found So ‘Challenging’ About His Return to Silo Season 3
-
-CBR Exclusives, Silo, Apple TV, Sci-Fi
-
-Sat, 25 Jul 2026 16:56:39 GMT
-
-https://www.cbr.com/silo-season-3-tim-robbins-bernard-return-challenge/
-
-Bernard Holland is a different man in Silo Season 3, but that doesn't mean his return was easy for actor Tim Robbins.
----------
-
-# 'Bob's Burgers' Officially Unveils Early Holiday Surprise With First Look at New Release
-
-TV News, Bob's Burgers, San Diego Comic-Con, Fox, SDCC
-
-Sat, 25 Jul 2026 17:45:14 GMT
-
-https://collider.com/bobs-burgers-holiday-short-first-image-release-date-hulu/
-
-Bob's Burgers came to SDCC with the first look at an all-new holiday short, On the Fort Day of Christmas, coming to Hulu later this year. See it here!
----------
-
-# 10 Classic Thrillers You Must Watch in 2026
-
-Movie, Thriller, The French Connection, Vertigo, Chinatown
-
-Sat, 25 Jul 2026 17:28:15 GMT
-
-https://collider.com/classic-thriller-movies-must-watch-2026/
-
-Hitchcock masterpieces like Rear Window and foundational efforts like Peeping Tom are just some of the classic thrillers audiences must watch in 2026.
----------
-
-# HBO's Biggest Fantasy Hit Since 'Game of Thrones' Is Dominating Streaming
-
-TV News, House of the Dragon, HBO Max, HBO, Fantasy
-
-Sat, 25 Jul 2026 17:21:00 GMT
-
-https://collider.com/hbo-max-house-of-the-dragon-streaming-success-july-2026/
-
-HBO's top-rated fantasy series is officially the number one show globally. Here's everything you should know.
----------
-
-# The 10 Best Xbox Games of All Time, Ranked
-
-TV, Video Game, Gears of War, Mass Effect, Star Wars: Knights of the Old Republic
-
-Sat, 25 Jul 2026 17:04:15 GMT
-
-https://collider.com/best-xbox-games-ranked/
-
-These are the best Xbox games of all time based on gameplay, design, narrative, visuals, and overall quality, from Halo: Combat Evolved to BioShock.
----------
-
-# Maggie Is Tempted With a Fresh Start in New 'The Walking Dead: Dead City' Season 3 Sneak Peek [Exclusive]
-
-Exclusives, The Walking Dead: Dead City, Lauren Cohan, Aimee Garcia, AMC
-
-Sat, 25 Jul 2026 17:00:15 GMT
-
-https://collider.com/the-walking-dead-dead-city-season-3-premiere-sneak-peek/
-
-A new sneak peek at The Walking Dead: Dead City Season 3 premiere sees Aimee Garcia trying to convince Lauren Cohan to make a fresh start.
----------
-
-# 7 Binge-Worthy New Action Thrillers To Watch While Waiting For 'Reacher' Season 4
-
-TV Lists, Reacher, Thriller
-
-Sat, 25 Jul 2026 17:31:12 GMT
-
-https://movieweb.com/reacher-season-4-binge-worthy-action-thrillers/
-
-Until 'Reacher' returns for Season 4 on August 12, 2026, these hit action thrillers are perfect to keep you busy/
----------
-
-# Amazon's Steamy R-Rated Smash Topples Prime Video's New Near-Perfect 8-Part Action Series
-
-TV News, Off Campus, Ride or Die
-
-Sat, 25 Jul 2026 17:23:27 GMT
-
-https://movieweb.com/off-campus-ride-or-die-amazon-streaming-charts/
-
-After dominating Prime Video for a week, 'Ride or Die' has lost its top spot to the popular romance 'Off Campus.'
----------
-
-# Ridley Scott's Best Sci-Fi Epic in 14 Years Is a 2-Season HBO Series
-
-Features, Ridley Scott, Raised by Wolves
-
-Sat, 25 Jul 2026 17:00:12 GMT
-
-https://movieweb.com/raised-by-wolves-best-ridley-scott-sci-fi/
-
-Ridley Scott's hardest sci-fi project since 'Prometheus' is the 2-part HBO epic 'Raised By Wolves,' which is still clinging to life for Season 3.
----------
-
-# 10 Best Book Adaptations Of The 2020s So Far
-
-Streaming TV
-
-Sat, 25 Jul 2026 16:45:11 GMT
-
-https://screenrant.com/best-books-adapted-tv-shows-2020s/
-
-Explore the best book adaptations of the 2020s, featuring successful TV shows based on beloved novels that have captivated audiences worldwide.
----------
-
-# Rings Of Power Season 3's Time Jump Will Reset The Story In A Major Way, Says Showrunner
-
-TV, San Diego Comic-Con, The Lord of the Rings: The Rings of Power, The Lord of the Rings
-
-Sat, 25 Jul 2026 16:33:32 GMT
-
-https://screenrant.com/lord-of-the-rings-rings-of-power-season-3-time-jump-jd-payne/
-
-EXCLUSIVE: Showrunner J.D. Payne teases that The Lord of the Rings: The Rings of Power season 3’s five-year time jump brings with it great changes.
----------
-
-# Alan Ritchson Has Already Been Playing Batman For 4 Years
-
-Streaming TV, Masked Recs
-
-Sat, 25 Jul 2026 16:30:11 GMT
-
-https://screenrant.com/reacher-alan-ritchson-batman-without-mask/
-
-Alan Ritchson is a popular fan casting for Batman, but he's already been playing the Dark Knight (albeit without a mask) for four years on Reacher.
----------
-
-# Halo: Campaign Evolved - The Maw Skull Guide
-
-Gaming, Halo: Campaign Evolved, PC, Halo: Combat Evolved, Halo
-
-Sat, 25 Jul 2026 16:20:32 GMT
-
-https://screenrant.com/halo-campaign-evolved-maw-skull-guide/
-
-Halo: Campaign Evolved's final mission, The Maw, includes three relatively simple Skulls to find: Stowed Reload, Boom, and Thunderstorm.
----------
-
-# The DCU Is Already Setting Up One Green Lantern Becoming A Villain
-
-Movies, DC Universe, Lanterns, Green Lantern
-
-Sat, 25 Jul 2026 16:20:11 GMT
-
-https://screenrant.com/dc-universe-green-lantern-hal-jordan-parallax-theory-setup/
-
-The DC Universe's current path with the Green Lanterns sets up a villain twist that remains a major part of the group's comic legacy to this day.
----------
-
-# Apple TV's Dark Matter Story Plan For 3 Seasons Unveiled By Producer
-
-TV, San Diego Comic-Con, Dark Matter
-
-Sat, 25 Jul 2026 16:17:32 GMT
-
-https://screenrant.com/apple-tv-dark-matter-season-3-plan-jacquelyn-ben-zekry/
-
-EXCLUSIVE: Ahead of Dark Matter season 2, producer Jacquelyn Ben-Zekry reveals that there is already a plan for a third and final season as well.
----------
-
-# Why HBO Max's $261 Million Sci-Fi Horror Has Become A Global Streaming Sensation
-
-Movies, Masked Recs
-
-Sat, 25 Jul 2026 16:10:50 GMT
-
-https://screenrant.com/hbo-max-a-quiet-place-day-one-streaming-charts-rise-july-2026/
-
-HBO Max's Sci-Fi horror has turned into one of the biggest movies in the world, and with terrifying monsters and high stakes, it is a blast.
----------
-
-# The Odyssey Box Office Sets All-Time Christopher Nolan Record With Week 2 Drop
-
-Movies, The Odyssey, Box Office
-
-Sat, 25 Jul 2026 16:06:56 GMT
-
-https://screenrant.com/the-odyssey-box-office-week-2-christopher-nolan-record/
-
-The Odyssey is sailing strong in its second week at the box office, as new numbers indicate a major record for filmmaker Christopher Nolan.
----------
-
-# Danny Trejo Unleashes His First Original Graphic Novel at Comic-Con (Exclusive)
-
-Comics, Danny Trejo, San Diego Comic-Con
-
-Sat, 25 Jul 2026 16:00:11 GMT
-
-https://screenrant.com/danny-trejo-year-of-the-devil-action-horror-comic/
-
-Danny Trejo takes an unexpected foray into the world of comics, as he reveals a supernatural action-horror graphic novel at San Diego Comic-Con.
----------
-
-# Star Wars Is Switching Genres When The Movies Return In 2027
-
-Movies, Masked Recs
-
-Sat, 25 Jul 2026 16:00:11 GMT
-
-https://screenrant.com/star-wars-starfighter-change-genre/
-
-Star Wars is one of the most iconic sci-fi franchises in history, but has always incorporated new genres. 2027's movie release is no different.
----------
-
-# All 18 Pokémon Types, Ranked By Total Number
-
-Games, Pokemon, Pokemon Scarlet and Violet
-
-Sat, 25 Jul 2026 16:31:15 GMT
-
-https://www.cbr.com/every-pokemon-type-ranked-by-total-number-of-pokemon/
-
-Pokémon typings are essential for Trainers to battle effectively, but some types are represented in Pokémon species far more than others.
----------
-
-# Steven Spielberg's 4-Part Jurassic World Netflix Show Is Better Than the Movies in Every Way
-
-TV, Jurassic World: Chaos Theory, Jurassic World: Camp Cretaceous, Jurassic Park, Netflix
-
-Sat, 25 Jul 2026 16:31:14 GMT
-
-https://www.cbr.com/netflix-jurassic-world-chaos-theory-better-than-movies/
-
-Since the first Jurassic Park movie, the franchise has struggled to deliver memorable, resonant stories, but this Netflix series changed that.
----------
-
-# The 5 Greatest Fantasy Movies Epics of the 21st Century, Ranked
-
-Movies, The Lord of the Rings: The Return of the King, The Odyssey, Pirates of the Caribbean: The Curse of the Black Pearl
-
-Sat, 25 Jul 2026 16:31:14 GMT
-
-https://www.cbr.com/best-fantasy-movies-epics-21st-century-ranked-list/
-
-Some of the best fantasy epics of cinema were created this century
----------
-
-# Stardew Valley Officially Returns With New Release January 2026
-
-Games, Stardew Valley
-
-Sat, 25 Jul 2026 16:21:14 GMT
-
-https://www.cbr.com/stardew-valley-official-return-new-release-january-2027/
-
-Stardew Valley fans are getting another brand-new title next year, and it might just be perfect for gamers looking for the ultimate cozy experience.
----------
-
-# 5 Naruto Character Designs That Are 10/10 Perfect
-
-Anime, Naruto, Naruto: Shippuden
-
-Sat, 25 Jul 2026 16:15:14 GMT
-
-https://www.cbr.com/naruto-perfect-character-designs/
-
-Great character design tells a story on its own, and these Naruto characters are perfect examples.
----------
-
-# Sega Officially Sentences Frieren to 300 Years in the Mines This November
-
-Anime, Frieren: Beyond Journey's End, merchandise
-
-Sat, 25 Jul 2026 16:00:14 GMT
-
-https://www.cbr.com/sega-frieren-to-300-years-mines-november-release/
-
-This November, SEGA treats Frieren fans to an official figure that pays tribute to one of the character's most pitiful predicaments.
 ---------
