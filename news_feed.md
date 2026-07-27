@@ -1,3 +1,366 @@
+# 10 Best Crime Thrillers Of All Time
+
+Books, Thriller, Crime
+
+Mon, 27 Jul 2026 15:05:00 GMT
+
+https://screenrant.com/best-crime-thriller-novels-must-read/
+
+Classic and contemporary masterpiece crime thrillers.
+---------
+
+# It's Official, Resident Evil's 2026 Return Just Got Even More Exciting
+
+Movies, Resident Evil
+
+Mon, 27 Jul 2026 15:02:11 GMT
+
+https://screenrant.com/resident-evil-zach-cregger-runtime-shorter/
+
+The announcement of Resident Evil's surprising franchise change has made the arrival of director Zach Cregger's reboot even more hotly anticipated.
+---------
+
+# PlayStation Just Confirmed Our First Major PS6 Game
+
+Gaming, PlayStation 6, PlayStation, God of War
+
+Mon, 27 Jul 2026 15:00:11 GMT
+
+https://screenrant.com/playstation-first-ps6-game-confirmed-god-of-war/
+
+We finally know what the very first PlayStation 6 game will be, and it is a huge new title that dedicated fans will absolutely love.
+---------
+
+# My Hero Academia Kicks Off A New Season July 29
+
+Gaming, My Hero Academia, PC
+
+Mon, 27 Jul 2026 14:56:05 GMT
+
+https://screenrant.com/my-hero-academia-ultra-rumble-season-18-july-2026/
+
+My Hero Academia is finally getting a brand-new season, and it's releasing far sooner than fans may have initially expected.
+---------
+
+# Blade Runner 2099 Season 2's Fate Clarified By Prime Video Series Creator
+
+TV, Blade Runner, Blade Runner 2099
+
+Mon, 27 Jul 2026 14:52:17 GMT
+
+https://screenrant.com/blade-runner-2099-season-2-fate-prime-video-silka-luisa/
+
+Showrunner Silka Luisa confirms the status of Blade Runner 2099 season 2 following the release of the first trailer for the Prime Video show.
+---------
+
+# Pokémon GO Players Vow To Quit Over Major Possible Change
+
+Gaming, Pokemon GO
+
+Mon, 27 Jul 2026 14:35:40 GMT
+
+https://screenrant.com/pokemon-go-gym-changes-reaction/
+
+Pokémon Go players are furious over a leak suggesting Scopely may remove the game's only free way to earn PokéCoins.
+---------
+
+# Nintendo Fans Are Freaking Out About New Acquisition
+
+Gaming, Nintendo
+
+Mon, 27 Jul 2026 14:31:40 GMT
+
+https://screenrant.com/nintendo-xenosaga-ownership-fan-reaction/
+
+Nintendo fans are convinced a tiny trailer detail could hint at a major acquisition.
+---------
+
+# GTA 6's Theme Song Has Appeared Online Ahead Of Trailer 3
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto
+
+Mon, 27 Jul 2026 14:28:34 GMT
+
+https://screenrant.com/gta-6-theme-song-spotted-online/
+
+Fans seem to think they’ve discovered one of GTA 6’s main theme songs online ahead of release, but you can’t hear it yourself just yet.
+---------
+
+# The Walking Dead’s Risky New “Reset” Gamble Pays Off With #1 Streaming Smash In America
+
+TV, The Walking Dead: Dead City, The Walking Dead
+
+Mon, 27 Jul 2026 14:21:53 GMT
+
+https://screenrant.com/the-walking-dead-dead-city-season-3-streaming-success-july-2026/
+
+The Walking Dead's risky new "reset" is a gamble that's paid off, the franchise's newest entry becoming a Number 1 streaming hit in the US.
+---------
+
+# Horror Icon Zach Cregger Confirms End Of An Era With His Next Movie
+
+Movies, San Diego Comic-Con, Zach Cregger
+
+Mon, 27 Jul 2026 14:21:50 GMT
+
+https://screenrant.com/zach-cregger-the-flood-last-movie-chapter-comment/
+
+Resident Evil and Weapons director Zach Cregger reveals that his next feature film, The Flood, will mark the end of a filmmaking era for him.
+---------
+
+# Pokémon Is Coming to Krispy Kreme U.S. With First Look at 4 New Donut Designs
+
+Anime, Pokemon, food
+
+Mon, 27 Jul 2026 15:20:15 GMT
+
+https://www.cbr.com/pokemon-krispy-kreme-us-first-look/
+
+Pokémon is sending some of its most iconic characters to Krispy Kreme for a collaboration that fans absolutely needed, even if they didn't know it.
+---------
+
+# 5 Fantasy Manga That Are Perfectly Written
+
+Anime, Manga, Berserk, Witch Hat Atelier, Fantasy
+
+Mon, 27 Jul 2026 15:15:15 GMT
+
+https://www.cbr.com/fantasy-manga-perfectly-written/
+
+Manga like Berserk and Pandora Hearts have the best writing in the fantasy genre.
+---------
+
+# 5 Strongest Swords in Anime History, Ranked
+
+Anime, Shonen, Bleach, Inuyasha
+
+Mon, 27 Jul 2026 15:01:15 GMT
+
+https://www.cbr.com/strongest-swords-in-anime-history-ranked/
+
+Some of anime's most powerful swords hold abilities that make even the strongest characters look weak by comparison.
+---------
+
+# 6 Martial Arts Shows That Are 10/10 Masterpieces
+
+TV, Bloodhounds, Cobra Kai, Avatar: The Last Airbender, Action
+
+Mon, 27 Jul 2026 15:01:15 GMT
+
+https://www.cbr.com/best-martial-arts-shows-list/
+
+Martial arts achieved global dominance through cinema, but some of the genre's greatest creations are on TV
+---------
+
+# Tom Cruise Best Quote is in Top Gun: Maverick
+
+Movies, Top Gun: Maverick
+
+Mon, 27 Jul 2026 14:31:15 GMT
+
+https://www.cbr.com/tom-cruise-best-action-quote-top-gun-maverick/
+
+Tom Cruise is an icon of the action genre and one movie has the best quote of all his incredible movies.
+---------
+
+# Netflix's Sci-Fi Mystery Show Bodies Is the Perfect Travelers Replacement
+
+TV, Bodies, Sci-Fi, Travelers
+
+Mon, 27 Jul 2026 14:31:15 GMT
+
+https://www.cbr.com/netflix-bodies-travelers-replacement/
+
+Netflix's gripping, eight-episode British limited series tells one complete, mind-bending story and is perfect for fans of Travelers.
+---------
+
+# The Rings of Power Season 3 Adds a Cruel New Twist to the One Ring's Creation
+
+TV, The Lord of the Rings, The Lord of the Rings: The Rings of Power
+
+Mon, 27 Jul 2026 14:16:16 GMT
+
+https://www.cbr.com/lotr-rings-of-power-sauron-feanor-hammer-one-ring/
+
+The trailer for the upcoming third season of The Lord of the Rings: The Rings of Power revealed a dark addition to the lore of the One Ring.
+---------
+
+# 10 Must-Watch Action Anime Series That Have Zero Bad Arcs
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Attack On Titan, Action, Mob Psycho 100
+
+Mon, 27 Jul 2026 14:15:15 GMT
+
+https://www.cbr.com/action-anime-with-no-bad-arcs/
+
+Action anime like Attack on Titan and Fullmetal Alchemist: Brotherhood manage a high-octane, compelling story from start to finish.
+---------
+
+# Avengers: Secret Wars' Most Important Hero Teased by Kevin Feige and The Russo Brothers
+
+CBR Exclusives, Avengers: Doomsday, Marvel Cinematic Universe, Fantastic Four
+
+Mon, 27 Jul 2026 14:00:16 GMT
+
+https://www.cbr.com/kevin-feige-russo-brothers-franklin-avengers-secret-wars/
+
+Kevin Feige and Anthony and Joe Russo give fans an idea of what's coming for the Marvel Cinematic Universe's next pint-sized powerhouse.
+---------
+
+# ThunderCats Officially Returns With a Reboot That Begins a New Era
+
+Comics, Thundercats
+
+Mon, 27 Jul 2026 14:00:16 GMT
+
+https://www.cbr.com/dynamite-entertainment-thundercats-release-date-confirmed/
+
+ThunderCats fans are getting another brand-new series for a brand-new era ahead of the next animated feature film reboot of the franchise.
+---------
+
+# Benny Safdie Is Officially the Highest-Grossing Actor of 2026
+
+Movie News, Benny Safdie, The Odyssey, Christopher Nolan, The Super Mario Galaxy Movie
+
+Mon, 27 Jul 2026 14:49:19 GMT
+
+https://collider.com/benny-safdie-highest-grossing-actor-2026-the-odyssey-super-mario-galaxy/
+
+Benny Safdie has quietly become the highest-grossing actor of 2026 with his performances in The Odyssey and The Super Mario Galaxy Movie.
+---------
+
+# 'Dutton Ranch' Officially Expands Ed Harris' Role for Season 2 After Actor Felt "Underused"
+
+TV News, Dutton Ranch, Ed Harris, Paramount Plus, Taylor Sheridan
+
+Mon, 27 Jul 2026 14:45:58 GMT
+
+https://collider.com/dutton-ranch-season-2-ed-harris-expanded-role/
+
+Ed Harris, star of Dutton Ranch, criticizes the series' storyline and his character's limited screen time in Season 1, expressing frustration.
+---------
+
+# Taylor Sheridan's Modern Western Masterpiece Is Officially Streaming's #1 Show Again
+
+TV News, Yellowstone, Taylor Sheridan, Paramount Plus, Western
+
+Mon, 27 Jul 2026 12:30:15 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-streaming-success-paramount-plus-july-2026/
+
+Taylor Sheridan reins supreme on Paramount+ with his hit show becoming the #1 show globally. Get all the details here.
+---------
+
+# Universal Responds to Major 'The Odyssey' Leak
+
+Movie News, The Odyssey, History, Action
+
+Mon, 27 Jul 2026 15:07:36 GMT
+
+https://movieweb.com/universal-the-odyssey-leak/
+
+Pirates versions of 'The Odyssey' have appeared on X.
+---------
+
+# 'House of the Dragon' Officially Changes the Fates of Two Main Characters
+
+Features, House of the Dragon, HBO Max, Fantasy
+
+Mon, 27 Jul 2026 15:00:12 GMT
+
+https://movieweb.com/house-of-the-dragon-alicent-corlys-changes/
+
+'House of the Dragon' veers off-book in the latest episode of Season 3, and the ripple effect will be enormous.
+---------
+
+# Why 'Gladiator II' Never Filmed a Single Scene in Rome
+
+Features, Gladiator II, Anthony Hopkins
+
+Mon, 27 Jul 2026 15:00:12 GMT
+
+https://movieweb.com/gladiator-ii-never-filmed-in-rome/
+
+Most of 'Gladiator II's proceedings happen in Rome. However, the sequel was never filmed in Rome, and there's a reason why.
+---------
+
+# "One of the Best Action Movies of the Year" Sets New Release
+
+Movie News, Man of War, Action, Thriller
+
+Mon, 27 Jul 2026 14:09:49 GMT
+
+https://movieweb.com/man-of-war-blu-ray-release-action-thriller/
+
+The Taylor Sheridan favorite and 'Terminal List' star finally gets the spotlight in this "Rambo meets Taken" action movie.
+---------
+
+# 'Reacher' Season 5 Confirms Big Change for Alan Ritchson as Plot Details Officially Revealed
+
+Movie News, Reacher, Prime Video
+
+Mon, 27 Jul 2026 14:05:01 GMT
+
+https://movieweb.com/reacher-season-5-book-make-me/
+
+Prime Video officially nailed down which 'Reacher' book and story will be adapted in the show's fifth season, which is currently filming.
+---------
+
+# Now's the Best Time to Binge ABC's Near-Perfect 'Sherlock' Replacement
+
+Features, High Potential, Sherlock
+
+Mon, 27 Jul 2026 14:00:13 GMT
+
+https://movieweb.com/high-potential-binge-watch-before-season-3/
+
+'Sherlock' ended almost a decade ago, and it's the perfect time to watch another excellent TV show that fans of the BBC series will appreciate.
+---------
+
+# Before 'Reacher' Season 4, This Underrated 118-Minute Action Thriller Is a Streaming Must-See
+
+Movie News, Jack Reacher: Never Go Back, Reacher, Coming/Leaving Streaming
+
+Mon, 27 Jul 2026 14:00:13 GMT
+
+https://movieweb.com/jack-reacher-never-go-back-streaming-paramount-august-2026/
+
+The film is one of the newest additions to streaming in August.
+---------
+
+# A24 Unleashes Explosive New Trailer for Long-Awaited Sequel To Cult Classic Action Thriller
+
+Movie News, Onslaught
+
+Mon, 27 Jul 2026 13:30:39 GMT
+
+https://movieweb.com/a24-onslaught-new-trailer-the-guest-sequel/
+
+The long-awaited sequel to the action thriller cult classic just got an explosive new trailer.
+---------
+
+# 'House of the Dragon' Just Introduced a Crucial Character in GOT History
+
+Features, House of the Dragon, Game Of Thrones
+
+Mon, 27 Jul 2026 12:56:33 GMT
+
+https://movieweb.com/daenys-the-dreamer-targaryen-game-of-thrones/
+
+This person is pretty important in the grand scheme of things.
+---------
+
+# Marvel Can Finally Resolve a 10-Year-Old Ghost Rider Plot Hole
+
+Features, Ryan Gosling, Ghost Rider, Agents of S.H.I.E.L.D.
+
+Mon, 27 Jul 2026 12:46:20 GMT
+
+https://movieweb.com/ghost-rider-agents-of-shield-ryan-gosling/
+
+With news of the MCU's Ghost Rider project, Marvel Studios has the chance to tie up a loose plot thread.
+---------
+
 # DC Reveals Wonder Woman & Supergirl’s Gorgeous New Anime Designs
 
 DC Comics, Wonder Woman, Supergirl
@@ -5133,367 +5496,4 @@ Sat, 25 Jul 2026 22:00:15 GMT
 https://www.cbr.com/mcu-confirmed-loki-most-important-hero/
 
 Fans think everyone from Doctor Doom to Steve Rogers is Avengers: Doomsday's focal figure, but there's only one choice for the Multiverse Saga.
----------
-
-# 10 Best DC Comics Villain Miniseries of All Time
-
-Comics, DC Comics, Joker, Batman
-
-Sat, 25 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/best-dc-comics-villain-miniseries-of-all-time/
-
-DC’s villains are some of its most iconic characters, so it makes sense their own miniseries stories would be among the company’s best stories.
----------
-
-# Family Guy Introduces Kieran Culkin as the Devil in First Look at Halloween Special
-
-TV, Family Guy
-
-Sat, 25 Jul 2026 21:44:49 GMT
-
-https://www.cbr.com/family-guy-halloween-special-kieran-culkin-first-look/
-
-Stewie and Brian meet the Devil in the first official look at Family Guy's new Halloween special.
----------
-
-# John Cena Finds His Fast & Furious Replacement in Mattel's New Live-Action Movie
-
-Movies, San Diego Comic-Con, Matchbox the Movie
-
-Sat, 25 Jul 2026 21:31:45 GMT
-
-https://www.cbr.com/apple-tv-matchbox-the-movie-trailer-release-date/
-
-Audiences just got their first look at all the pulse-pounding action to come in Matchbox: The Movie courtesy of San Diego Comic-Con.
----------
-
-# Avatar: The Last Airbender's New Aang Movie Sparks AI Backlash After SDCC Reveal
-
-Anime, Avatar: The Last Airbender, Avatar Aang: The Last Airbender, San Diego Comic-Con
-
-Sat, 25 Jul 2026 21:30:14 GMT
-
-https://www.cbr.com/avatar-aang-movie-chatgpt-backlash/
-
-Avatar: Aang: The Last Airbender faces backlash after a San Diego Comic-Con panel revealed ChatGPT was used for research.
----------
-
-# A 42-Year Old Cyberpunk Masterpiece Gets Its First Official Look From Apple TV
-
-TV News, Neuromancer, Apple TV, Sci-Fi, Cyberpunk 2077
-
-Sat, 25 Jul 2026 22:09:33 GMT
-
-https://collider.com/a-42-year-old-cyberpunk-masterpiece-gets-its-first-official-look-from-apple-tv/
-
-42 years later, Apple TV is finally bringing William Gibson's Neuromancer to life with a first official look at the new sci-fi cyberpunk series.
----------
-
-# 10 Most Subversive Adventure Movies of All Time
-
-Movie, Adventure, The Wages of Fear, Mad Max: Fury Road, Fitzcarraldo
-
-Sat, 25 Jul 2026 22:05:14 GMT
-
-https://collider.com/most-subversive-adventure-movies-ranked/
-
-From The Secret Life of Walter Mitty to Mad Max: Fury Road, these adventure films completely rewrite the genre's rules.
----------
-
-# AMC’s 3-Part Vampire Thriller Taking Over Streaming Is the Perfect Binge
-
-TV Features, Interview with the Vampire, The Vampire Lestat, AMC, Rolin Jones
-
-Sat, 25 Jul 2026 21:47:14 GMT
-
-https://collider.com/interview-with-the-vampire-amc-thriller-streaming-perfect-binge/
-
-AMC's Interview with the Vampire, which just wrapped up its third season, makes the perfect binge with its thrilling story and compelling characters.
----------
-
-# Apple TV's Best Sci-Fi Series Officially Returns in First Season 2 Trailer
-
-TV News, Apple TV, Dark Matter, Joel Edgerton, Sci-Fi
-
-Sat, 25 Jul 2026 21:47:10 GMT
-
-https://collider.com/apple-tv-sci-fi-dark-matter-season-2-trailer/
-
-After a long 2-year wait, Apple TV's Dark Matter has finally returned in a first look at Season 2 of Joel Edgerton's beloved series.
----------
-
-# The 10 Best PlayStation Games of All Time, Ranked
-
-TV, Video Game, Bloodborne, God of War, The Last of Us
-
-Sat, 25 Jul 2026 21:41:14 GMT
-
-https://collider.com/best-playstation-games-ranked/
-
-Discover the best PlayStation games of all time, ranked by gameplay, legacy, and impact on the gaming industry, from The Last of Us to God of War.
----------
-
-# John Cena’s Action-Packed Answer to ‘Barbie’ Officially Reveals First Trailer
-
-Movie News, Matchbox the Movie, Sam Hargrave, John Cena, Apple TV
-
-Sat, 25 Jul 2026 21:40:27 GMT
-
-https://collider.com/john-cena-matchbox-movie-trailer-apple-tv/
-
-Apple TV has unveiled the first trailer for Matchbox, starring John Cena and directed by Extraction filmmaker Sam Hargrave. See it here!
----------
-
-# Marvel Officially Cut Rosario Dawson’s 'Daredevil' Crossover Cameo From 'Spider-Man: Brand New Day'
-
-Movie News, Rosario Dawson, Spider-Man: Brand New Day, Marvel Studios, Daredevil
-
-Sat, 25 Jul 2026 21:29:21 GMT
-
-https://collider.com/spider-man-brand-new-day-daredevil-star-rosario-dawson-return-cut/
-
-Rosario Dawson has confirmed she returned to her fan-favorite Daredevil role in Spider-Man: Brand New Day before her character was cut.
----------
-
-# Paul Newman's Second Greatest Western Masterpiece Gets Even Better With New 4k Release
-
-Features, Hud, Paul Newman
-
-Sat, 25 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/hud-paul-newman-western-criterion-4k-release/
-
-Paul Newman's Western masterpiece has a clear influence on 'Yellowstone' and 'Dutton Ranch.'
----------
-
-# John Cena's 'Matchbox' Movie Officially Releases First Trailer
-
-Movie News, Matchbox the Movie, John Cena
-
-Sat, 25 Jul 2026 21:58:11 GMT
-
-https://movieweb.com/matchbox-the-movie-trailer/
-
-John Cena joins another fast-racing franchise in the first trailer for 'Matchbox: The Movie," which was released at San Diego Comic-Con.
----------
-
-# Nathan Fillion's Green Lantern Is Officially Making History For DC
-
-TV, Lanterns, San Diego Comic-Con
-
-Sat, 25 Jul 2026 21:10:17 GMT
-
-https://screenrant.com/lanterns-nathan-fillion-green-lantern-guy-gardner-breaks-dc-record/
-
-EXCLUSIVE: Nathan Fillion, who played Guy Gardner's Green Lantern in 2025's Superman, has officially helped DC break an unexpected record.
----------
-
-# The Only Band Of Brothers Episode Directed By Tom Hanks Features A Very Random Cameo
-
-Classic TV, Band of Brothers
-
-Sat, 25 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/band-of-brothers-crossroads-episode-tom-hanks-direct-cameo/
-
-Tom Hanks directed one of the best episodes of Band of Brothers, and he didn't just have a cameo in it; he got another celebrity to appear, too.
----------
-
-# 5 Landmark Series That Changed Anime Forever
-
-Anime
-
-Sat, 25 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/most-important-anime-series-changed-medium/
-
-Explore how these groundbreaking anime series forever changed the landscape of popular anime, from Astro Boy to Dragon Ball Z.
----------
-
-# Burt Reynolds’ Forgotten 1970s Action Movie Duology Predates Smokey And The Bandit
-
-Movies, Burt Reynolds
-
-Sat, 25 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/burt-reynolds-action-franchise-gator-mcklusky/
-
-Burt Reynolds was one of the biggest stars of the 1970s, and his forgotten action movie series helped define the cinema of the decade.
----------
-
-# Resident Evil's Leon & Ada Finally Reunite In New Release You Can Play Now
-
-Gaming, Resident Evil, Live Service Games, PC
-
-Sat, 25 Jul 2026 20:55:00 GMT
-
-https://screenrant.com/resident-evil-leon-ada-arena-breakout-update/
-
-If you've been waiting to see Ada Wong finally return to the Resident Evil series, you'll be happy to check out this latest official release.
----------
-
-# Star Trek: Strange New Worlds Season 4 Comic-Con Teaser Reveals Future Uhura & Captain Kirk
-
-Comic-Con, San Diego Comic-Con, Star Trek, Star Trek: Strange New Worlds
-
-Sat, 25 Jul 2026 20:46:13 GMT
-
-https://screenrant.com/star-trek-strange-new-worlds-season-4-sdcc-teaser/
-
-Star Trek: Strange New Worlds season 4 just premiered, and a new sizzle reel debuted at San Diego Comic-Con shows more of the Enterprise's voyages.
----------
-
-# A Centuries Old Horror Story Is Reborn In Yaga Trailer Starring Hudson Williams
-
-TV, Yaga, San Diego Comic-Con
-
-Sat, 25 Jul 2026 20:36:21 GMT
-
-https://screenrant.com/yaga-show-trailer-hudson-williams/
-
-A star-studded supernatural mystery that includes Hudson Williams and Carrie-Anne Moss gets its first trailer and an official release window.
----------
-
-# Marvel Studios Finally Sets Up Magneto's Perfect Replacement
-
-Streaming TV, Masked Recs
-
-Sat, 25 Jul 2026 20:32:37 GMT
-
-https://screenrant.com/x-men-97-season-2-magneto-replacement-polaris/
-
-Ahead of the MCU's X-Men movie reboot, Marvel Studios has brought in the perfect Magneto replacement, and the mutant is incredibly powerful.
----------
-
-# Trust Ending Explained: Does Lauren Survive?
-
-Streaming TV, Sophie Turner
-
-Sat, 25 Jul 2026 20:30:11 GMT
-
-https://screenrant.com/trust-2025-ending-explained/
-
-Lauren gets into a life-or-death situation in Trust, leading up to a climactic ending that answers the question of whether Lauren survives.
----------
-
-# 18 Essential Items For Barbarians In Baldur's Gate 3 (& Where To Find Them)
-
-Gaming, Baldur's Gate 3, Baldur's Gate, PC
-
-Sat, 25 Jul 2026 20:30:11 GMT
-
-https://screenrant.com/baldurs-gate-3-best-items-barbarians-locations/
-
-Whether choosing to play as Karlach or a custom barbarian in Baldur's Gate 3, these items will help bring out the best in any powerful warrior.
----------
-
-# Rosario Dawson Officially Confirms Spider-Man: Brand New Day Role Was Cut
-
-Movies, San Diego Comic-Con 2022, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man: Brand New Day
-
-Sat, 25 Jul 2026 21:22:04 GMT
-
-https://www.cbr.com/rosario-dawson-confirms-spider-man-brand-new-day-role-was-cut/
-
-The award-winning actress gave disappointing news about Spider-Man: Brand New Day.
----------
-
-# Star Trek's Canceled Series Unveils First Look at Final Season's New Star
-
-TV, Star Trek: Starfleet Academy
-
-Sat, 25 Jul 2026 21:16:49 GMT
-
-https://www.cbr.com/star-trek-starfleet-academy-season-2-ruaridh-aldington/
-
-A new main character is introduced in the first official look at the ill-fated show's final season.
----------
-
-# DC Comics' October 2026 Solicitations
-
-Comics, DC Comics, solicitations
-
-Sat, 25 Jul 2026 21:15:14 GMT
-
-https://www.cbr.com/absolute-wonder-woman-25-darkseid-dc-october-2026-solicitations/
-
-Absolute Wonder Woman hits #25, and the next step of the All In Saga hits in DC's October 2026 solicitations
----------
-
-# 5 One Piece Character Designs That Are 10/10 Perfect
-
-Anime, One Piece, shonen anime
-
-Sat, 25 Jul 2026 21:15:14 GMT
-
-https://www.cbr.com/perfect-one-piece-character-designs/
-
-One Piece features some of the best character designs in anime, offering a variety, but these five are considered perfect.
----------
-
-# Time Is Running Out to Watch Tom Hanks' Cult Classic Fantasy Comedy With 91%
-
-Movies, Splash, Netflix, Disney+
-
-Sat, 25 Jul 2026 21:00:14 GMT
-
-https://www.cbr.com/tom-hanks-splash-fantasy-comedy-leaving-netflix-august-2026/
-
-The romantic comedy with a fantasy twist is leaving Netflix this month.
----------
-
-# Futurama Officially Confirms Major Crossover With Netflix Animated Series
-
-TV, Futurama
-
-Sat, 25 Jul 2026 20:52:26 GMT
-
-https://www.cbr.com/futurama-disenchantment-crossover-confirmed/
-
-Futurama fans get exciting news about the animated show's future.
----------
-
-# Resident Evil: Zach Cregger Explains His Horror Vision | SDCC 2026
-
-Movies, Resident Evil
-
-Sat, 25 Jul 2026 20:50:49 GMT
-
-https://www.cbr.com/video/resident-evil-zach-cregger-explains-his-horror-vision-sdcc-2026/
-
-Resident Evil director Zach Cregger reveals the terrifying practical stunt that nearly went disastrously wrong while Austin Abrahms explains what it was like surviving the film's brutal action sequences.
----------
-
-# Obi-Wan Kenobi's Single Greatest Star Wars Line Hits Harder Than Any Sci-Fi Quote Since
-
-Movies, Return of the Jedi, Star Wars, Sci-Fi
-
-Sat, 25 Jul 2026 20:30:14 GMT
-
-https://www.cbr.com/obi-wan-kenobi-return-of-the-jedi-greatest-star-wars-line/
-
-Obi-Wan Kenobi is one of Star Wars' most important characters, and his best quote in Return of the Jedi is still impactful today.
----------
-
-# James Cameron & Jensen Ackles' 10/10 Cyberpunk Show Is a 2-Part Sci-Fi Masterpiece
-
-TV, Dark Angel, Sci-Fi, james cameron
-
-Sat, 25 Jul 2026 20:30:14 GMT
-
-https://www.cbr.com/james-cameron-jensen-ackles-dark-angel-cyberpunk-sci-fi-masterpiece/
-
-James Camerons early 2000s sci-fi series faced extensive studio interference in its second season, but it still remains a worthwhile watch today.
----------
-
-# 5 Most Useless Dragon Ball Techniques, Ranked
-
-Anime, Dragon Ball, Akira Toriyama, shonen anime, Shonen
-
-Sat, 25 Jul 2026 20:15:15 GMT
-
-https://www.cbr.com/most-useless-dragon-ball-techniques-ranked/
-
-Dragon Ball is known for its intimidating transformations and techniques, but it also features its share of abilities that are weak and pointless.
 ---------
