@@ -1,3 +1,322 @@
+# DC Reveals Wonder Woman & Supergirl’s Gorgeous New Anime Designs
+
+DC Comics, Wonder Woman, Supergirl
+
+Mon, 27 Jul 2026 12:04:11 GMT
+
+https://screenrant.com/wonder-woman-supergirl-new-anime-design-image/
+
+Wonder Woman and Supergirl unveil stunning anime-inspired redesigns that channel Sailor Moon, giving the iconic DC heroes gorgeous new looks.
+---------
+
+# Despicable Me Is Getting A New Netflix Update In 5 Days
+
+Movies, Netflix, Minions, Despicable Me
+
+Mon, 27 Jul 2026 12:00:11 GMT
+
+https://screenrant.com/despicable-me-minions-movie-netflix-release-august-2026/
+
+One of the biggest movie franchises in history is scheduled to have another interesting release update in the next few days thanks to Netflix.
+---------
+
+# Strange New Worlds Will Officially Show Everyone What Captain Kirk's Star Trek Spinoff Will Look Like
+
+TV, Op-Ed, Star Trek, Star Trek: Strange New Worlds
+
+Mon, 27 Jul 2026 12:00:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-kirk-year-one-spinoff-tomorrows-enterprise-preview/
+
+Star Trek: Strange New Worlds is making a big pitch for the proposed Captain Kirk spinoff, Star Trek: Year One, by showing it in season 4.
+---------
+
+# Red Dead Redemption 2 Just Got Its Biggest Upgrade Since Launching In 2018
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2
+
+Mon, 27 Jul 2026 11:30:11 GMT
+
+https://screenrant.com/red-dead-redemption-2-reality-redemption-mod/
+
+Red Dead Redemption 2 is still going strong thanks to the dedicated work of fans, and the latest update is one of the biggest ever.
+---------
+
+# Lord Of The Rings Beloved PS2 Games Just Got Gorgeous Remasters
+
+Gaming, The Lord of the Rings, PlayStation 2, PC
+
+Mon, 27 Jul 2026 11:21:28 GMT
+
+https://screenrant.com/lord-of-the-rings-ps2-games-remastered-fans/
+
+The beloved and iconic PlayStation 2 Lord of the Rings games have finally gotten gorgeous new remasters that are sure to delight fans.
+---------
+
+# 6 Free Steam RPGs You Can Play Right Now, No Catch
+
+Gaming, Steam, Valve
+
+Mon, 27 Jul 2026 10:30:11 GMT
+
+https://screenrant.com/6-free-steam-rpgs-top-rated-2026/
+
+Steam is obviously the best place to go gaming on PC these days, and that's probably the most true if you're an RPG fan.
+---------
+
+# All 8 Seasons Of Rick & Morty, Ranked
+
+Streaming TV, Rick and Morty, Ranking
+
+Mon, 27 Jul 2026 10:00:13 GMT
+
+https://screenrant.com/rick-morty-seasons-ranked/
+
+Rick and Morty just wrapped up its eighth season with another banger, but where does it rank among the hit animated show's other seasons?
+---------
+
+# GTA 6 Officially Has An Expiration Date
+
+Gaming, Grand Theft Auto 6, Rockstar Games, PC, PlayStation 5, Xbox Series X/S
+
+Mon, 27 Jul 2026 10:00:11 GMT
+
+https://screenrant.com/gta-6-download-codes-expiration-date/
+
+Grand Theft Auto 6 will officially expire after a surprisingly short time, completely locking players out of the entire experience.
+---------
+
+# Fightland Review: Starz & 50 Cent Reunite For An Entertaining Power-Esque Crime Thriller
+
+Streaming TV, Fightland
+
+Mon, 27 Jul 2026 10:00:11 GMT
+
+https://screenrant.com/fightland-tv-review/
+
+The new Starz crime thriller series Fightland a far cry from prestige television but is destined to appeal to fans of the Power universe.
+---------
+
+# Game Of Thrones Returns With A New Season, But Fans Are Split
+
+Gaming, Game of Thrones
+
+Mon, 27 Jul 2026 09:48:39 GMT
+
+https://screenrant.com/game-of-thrones-kingsroad-new-season-opinions/
+
+Discover a new adventure in the world of Game of Thrones with Kingsroad, a story-driven action RPG.
+---------
+
+# Adam Wingard Officially Confirms Onslaught & The Guest Connection
+
+Movies, Onslaught, The Guest, San Diego Comic-Con
+
+Mon, 27 Jul 2026 12:00:15 GMT
+
+https://www.cbr.com/onslaught-the-guest-sequel-trilogy-adam-wingard-confirms/
+
+Adam Wingard reveals the surprising connection between his new sci-fi film Onslaught and his beloved action thriller The Guest.
+---------
+
+# Star Trek Officially Reveals the Federation's Greatest Threat
+
+Comics, Star Trek
+
+Mon, 27 Jul 2026 12:00:15 GMT
+
+https://www.cbr.com/star-trek-reds-shirts-ghost-of-the-21st-century-federation-enemy/
+
+The latest entry in a fan-favorite horror-fueled Star Trek series just introduced a threat that cuts to the very heart of the Federation itself.
+---------
+
+# 10 Best Far Side Comics Where Characters Are Lost At Sea
+
+Comics, The Far Side
+
+Mon, 27 Jul 2026 11:00:15 GMT
+
+https://www.cbr.com/best-far-side-lost-at-sea-comics/
+
+The Far Side comics often create darker styles of comedy by finding humor in typically tragic events, one of the best being characters lost at sea.
+---------
+
+# Classic Cartoons Head to 1997 Like X-Men '97
+
+Comics, X-Men '97, CSBG, The Line It Is Drawn
+
+Mon, 27 Jul 2026 09:43:56 GMT
+
+https://www.cbr.com/classic-cartoons-x-men-97/
+
+In a brand-new Line it is Drawn, our artists drew your suggestions for classic cartoons heading to the year 1997 like X-Men '97
+---------
+
+# Star Trek Officially Celebrates Its 60th Anniversary With a Delightful Collection of All Star Creators
+
+Comics, Star Trek
+
+Mon, 27 Jul 2026 03:54:58 GMT
+
+https://www.cbr.com/star-trek-60th-anniversary-special-advance-review/
+
+In a CBR advance review of Star Trek's 60th Anniversary Special, see how an all-star group of creators celebrate the franchise's anniversary
+---------
+
+# 'House of the Dragon' Officially Takes Its Biggest Risk With a Major 'Fire & Blood' Book Change
+
+TV Features, House of the Dragon, HBO, HBO Max, Steve Toussaint
+
+Mon, 27 Jul 2026 12:01:15 GMT
+
+https://collider.com/house-of-the-dragon-season-3-episode-6-corlys-captured-ormund/
+
+House of the Dragon diverges from George R.R. Martin's Fire & Blood with a major change to Corlys' story, resulting in his capture by the Greens.
+---------
+
+# Forget 'Obsession,' A24's New Horror Phenomenon Is the Biggest Hit on Streaming
+
+Movie News, Horror, Backrooms, Obsession, Streaming
+
+Mon, 27 Jul 2026 12:01:15 GMT
+
+https://collider.com/obsession-versus-backrooms-streaming-success-itunes-july-2026/
+
+The battle of the best 2026 horror movie just transitioned to streaming. Find out more about Obsession's head-to-head with Backrooms here.
+---------
+
+# The 10 Best Films of the 1990s, Ranked
+
+Movie, 1990s, Titanic, Jurassic Park, Toy Story
+
+Mon, 27 Jul 2026 11:51:15 GMT
+
+https://collider.com/best-films-1990s-ranked/
+
+From Toy Story to Jurassic Park, these films defined the 1990s.
+---------
+
+# 10 Modern Sci-Fi Movies That Will Be Classics
+
+Movie, Science Fiction, Everything Everywhere All at Once, Project Hail Mary, Nope
+
+Mon, 27 Jul 2026 11:38:15 GMT
+
+https://collider.com/modern-sci-fi-movies-that-will-be-classics/
+
+Sci-fi movies from Everything Everywhere All at Once to Nope will be held up as genre classics in the years to come.
+---------
+
+# 25 Best Books of the 21st Century
+
+Books and Comics, The Electric State, The Dark Tower, Stephen King, A Song of Ice and Fire
+
+Mon, 27 Jul 2026 11:31:15 GMT
+
+https://collider.com/best-books-21st-century-ranked/
+
+There have been some amazing books published in the 21st century so far, including modern classics like 11/22/63, The Road, and A Little Life.
+---------
+
+# Alan Ritchson's World War II Blockbuster Is Leaving Streaming in Less Than 1 Month
+
+Movie News, Guy Ritchie, The Ministry of Ungentlemanly Warfare, Henry Cavill, Alan Ritchson
+
+Mon, 27 Jul 2026 11:30:14 GMT
+
+https://collider.com/guy-ritchie-ww2-ministry-of-ungentlemanly-warfare-leaving-peacock-august-18-2026/
+
+Guy Ritchie's The Ministry of Ungentlemanly Warfare, starring Henry Cavill and Alan Ritchson, is about to be removed from Peacock. Find out when.
+---------
+
+# 10 Greatest 2000s One-Hit Wonders
+
+Music Features, Music, 2000s, Pop, Rock
+
+Mon, 27 Jul 2026 11:25:15 GMT
+
+https://collider.com/best-one-hit-wonders-2000s/
+
+From "Who Let the Dogs Out" to "Bad Day," these one-hit wonders dominated the aughts.
+---------
+
+# 10 Most Subversive Fantasy Movies
+
+Movie, Fantasy, Shrek, Princess Mononoke, Spirited Away
+
+Mon, 27 Jul 2026 11:04:15 GMT
+
+https://collider.com/most-subversive-fantasy-movies-ranked/
+
+From Pan's Labyrinth to Princess Mononoke, these subversive fantasy films shatter expectations and redefine magical storytelling.
+---------
+
+# The World War II Sleeper Hit Everyone Missed Is Finally Available to Watch on Streaming
+
+Movie News, Pressure, Brendan Fraser, Andrew Scott, Peacock
+
+Mon, 27 Jul 2026 11:00:15 GMT
+
+https://collider.com/brendan-fraser-ww2-movie-pressure-streaming-peacock-july-2026/
+
+The WW2 sleeper hit Pressure, starring Brendan Fraser and Andrew Scott, is now available on streaming. Find out where to watch it here.
+---------
+
+# Apple TV's Keanu Reeves Crime Flick Dominates Streaming Charts for 100 Days
+
+Movie News, Keanu Reeves, Apple TV, Outcome, Jonah Hill
+
+Mon, 27 Jul 2026 10:30:15 GMT
+
+https://collider.com/keanu-reeves-outcome-streaming-success-apple-tv-july-2026/
+
+A critically-panned Keanu Reeves movie, directed by Jonah Hill, is one of the most-watched on Apple TV. Here's everything you should know.
+---------
+
+# Netflix's New 2-Part Western Takes Down the Biggest Thriller on Streaming
+
+TV News, Ransom Canyon, I Will Find You, Hot on Streaming, Western, Netflix
+
+Mon, 27 Jul 2026 12:11:29 GMT
+
+https://movieweb.com/ransom-canyon-western-i-will-find-you-streaming-netflix-july-2026/
+
+Netflix's 'Yellowstone' replacement has officially dethroned the hottest thriller of the summer on streaming.
+---------
+
+# Alan Ritchson's New Action Thriller Lands Solid Rotten Tomatoes Audience Score
+
+Movie News, Motor City, Alan Ritchson, Action, Thriller
+
+Mon, 27 Jul 2026 12:04:27 GMT
+
+https://movieweb.com/motor-city-audience-rotten-tomatoes-score/
+
+Moviegoers have finally weighed in on Alan Ritchson's new Action Thriller
+---------
+
+# Jason Statham's New 107-Minute Action Thriller Beats Amazon's $100M Spy Sequel on Streaming
+
+Movie News, Jason Statham, Shelter, Action, Thriller, Tom Clancy's Jack Ryan: Ghost War
+
+Mon, 27 Jul 2026 11:46:43 GMT
+
+https://movieweb.com/statham-shelter-beats-jack-ryan-ghost-war-streaming-july-2026/
+
+The Stath proves too much for this iconic spy.
+---------
+
+# Tom Holland Gets Candid About Some of His 'S***' Movies
+
+Movie News, Tom Holland
+
+Mon, 27 Jul 2026 10:30:55 GMT
+
+https://movieweb.com/tom-holland-candid-bad-movies-podcast/
+
+Tom Holland says press tours for 'The Odyssey' and 'Spider-Man: Brand New Day' are easy because he actually likes them. That wasn't always true.
+---------
+
 # 7 Worst Zelda: Ocarina Of Time Remake Redesigns
 
 Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda, Triple-A Games
@@ -5177,323 +5496,4 @@ Sat, 25 Jul 2026 20:15:15 GMT
 https://www.cbr.com/most-useless-dragon-ball-techniques-ranked/
 
 Dragon Ball is known for its intimidating transformations and techniques, but it also features its share of abilities that are weak and pointless.
----------
-
-# ‘Succession’ Fan-Favorite Officially Joins the Cast of ‘Family Guy’
-
-TV News, San Diego Comic-Con, Family Guy, Kieran Culkin, Succession
-
-Sat, 25 Jul 2026 21:15:14 GMT
-
-https://collider.com/family-guy-halloween-special-cast-kieran-culkin-the-devil-image/
-
-Ahead of his Hunger Games debut, Succession star Kienan Culkin is joining the cast of Family Guy as a major character in the new Halloween special.
----------
-
-# 6 Best Vampire Movies Released Since 2010
-
-Movie, Sinners, Let Me In, Byzantium, What We Do in the Shadows
-
-Sat, 25 Jul 2026 21:14:14 GMT
-
-https://collider.com/best-vampire-movies-since-2010-ranked/
-
-Horror bangers like Let Me In, A Girl Walks Home Alone at Night, and Sinners are all among the best vampire movies released since the year 2010.
----------
-
-# New 'Star Trek: Strange New Worlds' Season 4 Trailer Officially Marks the Beginning of the End
-
-TV News, San Diego Comic-Con, Star Trek: Strange New Worlds, Star Trek, Akiva Goldsman
-
-Sat, 25 Jul 2026 20:45:14 GMT
-
-https://collider.com/star-trek-strange-new-worlds-season-4-midseason-trailer/
-
-Star Trek: Strange New Worlds showed off a new Season 4 trailer teasing what's in store for the show's penultimate season. Watch it here!
----------
-
-# Forgotten Star Trek Series Officially Scores 30 New Episodes This Year
-
-TV News, Star Trek, YouTube, San Diego Comic-Con, Sci-Fi
-
-Sat, 25 Jul 2026 20:20:08 GMT
-
-https://collider.com/star-trek-scouts-season-2-renewed-release-date-september-8-2026/
-
-One of Star Trek's newest series has officially been renewed for Season 2 and will return in just 2 months. Read on for more.
----------
-
-# ‘Star Trek: Starfleet Academy’ Season 2 Officially Recruits a New Cadet
-
-TV News, Star Trek: Starfleet Academy, Star Trek, San Diego Comic-Con, Paramount Plus
-
-Sat, 25 Jul 2026 20:17:36 GMT
-
-https://collider.com/star-trek-starfleet-academy-season-2-cast-ruaridh-aldington/
-
-Star Trek: Starfleet Academy's newest student was revealed at SDCC this afternoon ahead of the second and final season. Read on for more.
----------
-
-# 8 Worst Finales to Amazing TV Shows
-
-TV, Game Of Thrones, How I Met Your Mother, Stranger Things, Series Finale
-
-Sat, 25 Jul 2026 20:17:14 GMT
-
-https://collider.com/worst-finales-amazing-tv-shows/
-
-Genuinely great TV shows like Game of Thrones, How I Met Your Mother, and Dexter were spoiled by shockingly poor series finales.
----------
-
-# 19 Years Later, Ridley Scott and Denzel Washington's Epic Crime Thriller Is Already a Classic
-
-Movie Features, American Gangster, Russell Crowe, Denzel Washington, Ridley Scott
-
-Sat, 25 Jul 2026 20:11:14 GMT
-
-https://collider.com/ridley-scott-denzel-washington-american-gangster-streaming-netflix-july-2026/
-
-Oscar winners Denzel Washington and Russell Crowe teamed up with Ridley Scott to make 2007's crime epic American Gangster.
----------
-
-# Timothy Olyphant’s Forgotten Netflix Series Is a Perfect Binge-Watch
-
-Features, Santa Clarita Diet, Netflix, Timothy Olyphant
-
-Sat, 25 Jul 2026 21:00:12 GMT
-
-https://movieweb.com/santa-clarita-diet-netflix-binge-watch/
-
-Timothy Olyphant has a fantastic movie and TV acting career, having recently starred in the Apple TV action thriller series 'Lucky.'
----------
-
-# Robert Downey Jr.'s 'Avengers: Doomsday' Return Secretly Sets Up the Real Villain
-
-Features, Avengers: Doomsday, Avengers: Secret Wars, Marvel Cinematic Universe
-
-Sat, 25 Jul 2026 21:00:12 GMT
-
-https://movieweb.com/robert-downey-jr-avengers-doomsday-beyonder-secret-wars/
-
-'Avengers: Doomsday' may be setting up our heroes and villains for an even greater threat beyond Robert Downey Jr.'s Doom.
----------
-
-# The Rings Of Power's Jamie Campbell Bower Reveals Why Joining The Series Was So Meaningful
-
-TV, The Lord of the Rings
-
-Sat, 25 Jul 2026 20:05:30 GMT
-
-https://screenrant.com/lord-of-the-rings-rings-of-power-season-3-jamie-campbell-bower-casting/
-
-Jamie Campbell Bower reveals the full-circle personal connection to Tolkien’s world that followed him into The Rings of Power season 3.
----------
-
-# The Rings Of Power's Love Triangle Officially Becomes A Square In Season 3
-
-Streaming TV, The Lord of the Rings: The Rings of Power
-
-Sat, 25 Jul 2026 20:00:11 GMT
-
-https://screenrant.com/the-rings-of-power-galadriel-love-triangle-celeborn-season-3/
-
-The Rings of Power has steadily built a love triangle around Galadriel over the past two seasons, but season 3 will turn it into a square.
----------
-
-# Pokémon Officially Returns November 2026 With A Game Fans Have Begged For
-
-Gaming, Pokemon
-
-Sat, 25 Jul 2026 20:00:11 GMT
-
-https://screenrant.com/pokemon-team-rocket-card-game-november-2026/
-
-Pokémon's new game is one of the most enigmatic that fans have received in a while, and it's anyone's guess what style of gameplay it'll entail.
----------
-
-# Taylor Sheridan Has Found His Raylan Givens
-
-TV, Masked Recs
-
-Sat, 25 Jul 2026 19:45:11 GMT
-
-https://screenrant.com/taylor-sheridan-mayor-of-kingstown-david-morse-lawman/
-
-Taylor Sheridan's TV shows have brought almost every classic Western trope into the modern day, apart from the archetypal lawman. Until now, that is.
----------
-
-# 25 Years Later, Star Trek Is Launching The Perfect Series For Voyager Fans, And It's Coming Tomorrow
-
-Comics, Star Trek, Star Trek: The Next Generation, Star Trek: Voyager, San Diego Comic-Con
-
-Sat, 25 Jul 2026 19:35:25 GMT
-
-https://screenrant.com/paramount-star-trek-voyager-tng-recollection-sdcc/
-
-Another thrilling announcement out of San Diego Comic-Con, the latest new Star Trek series comes from an acclaimed author and longtime Voyager fan.
----------
-
-# 42 Years Later, Frasier’s Introduction In Cheers Has Aged Like Milk
-
-Classic TV, Cheers
-
-Sat, 25 Jul 2026 19:30:11 GMT
-
-https://screenrant.com/frasier-introduction-cheers-aged-poorly/
-
-Explore the controversial introduction of Frasier Crane on Cheers and how he evolved into one of television's most beloved sitcom characters.
----------
-
-# Netflix's New R-Rated Fantasy Series With Rare Rotten Tomatoes Score Is Already One Of Its Best
-
-TV, Masked Recs
-
-Sat, 25 Jul 2026 19:03:17 GMT
-
-https://screenrant.com/netflix-the-east-palace-fantasy-series-best/
-
-Netflix's new R-rated fantasy series is trending worldwide, and for good reason, as the masterpiece genre show is already one of the streamer's best.
----------
-
-# 10 Fantasy Books With The Best Lore (That You Have Never Heard Of)
-
-Books, Fantasy
-
-Sat, 25 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/obscure-fantasy-books-with-best-lore/
-
-Conversations about great fantasy book settings may dominated by the same few series, but there are some hidden worldbuilding gems in their shadow.
----------
-
-# Is Christopher Nolan The Greatest Of All Time?
-
-Movies, Originals, Christopher Nolan
-
-Sat, 25 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/video/is-christopher-nolan-the-greatest-of-all-time/
-
-The Odyssey Is The Final Proof Christopher Nolan Is The GOAT. Christopher Nolan has now directed ten feature films without a Rotten score, and The Odyssey is already being hailed as one of the greatest achievements of his career. But this isn't just about one movie.
----------
-
-# One Of The Godfather's Most Quotable Lines Was In The Trilogy's Worst Movie
-
-Movies, Masked Recs
-
-Sat, 25 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/the-godfather-michael-corleone-quotable-line-part-3/
-
-The Godfather is one of the best film masterpieces of all time, and remains quotable today. However one of the best lines is not in the original movie
----------
-
-# HBO's The Big Bang Theory Sci-Fi Spinoff Becomes an Instant Streaming Hit
-
-TV, Stuart Fails to Save the Universe, The Big Bang Theory, Sci-Fi
-
-Sat, 25 Jul 2026 20:00:14 GMT
-
-https://www.cbr.com/stuart-fails-to-save-the-universe-sci-fi-comedy-hbo-success-july-2026/
-
-HBO's sci-fi spinoff series of the beloved sitcom The Big Bang Theory, Stuart Fails to Save the Universe, becomes an instant streaming hit.
----------
-
-# Batman’s Best Ally Finally Gets the Upgrade Fans Have Been Waiting For
-
-Comics, Dark Knights of Steel, Batman, Batgirl
-
-Sat, 25 Jul 2026 20:00:14 GMT
-
-https://www.cbr.com/dark-knights-of-steel-ii-barbara-gordon/
-
-One of Batman's most beloved allies has just taken their code name to a whole new level in DC's hotly-anticipated high fantasy sequel series.
----------
-
-# 4 Classic Sci-Fi Books That Are 10/10 Masterpieces
-
-Movies, Dune
-
-Sat, 25 Jul 2026 20:00:14 GMT
-
-https://www.cbr.com/best-classic-sci-fi-books-list/
-
-The greatest works of science fiction have reached the pinnacles of literature
----------
-
-# The Walking Dead: Dead City Boss Confirms If Glenn Returns in Season 3 Alternate Universe Episode
-
-CBR Exclusives, The Walking Dead: Dead City, San Diego Comic-Con
-
-Sat, 25 Jul 2026 19:50:02 GMT
-
-https://www.cbr.com/the-walking-dead-dead-city-glenn-return-status-alternate-universe-episode/
-
-The character was killed off in the Season 7 finale, and hasn't returned since.
----------
-
-# Rick and Morty Spinoff's Fate Already Sealed Ahead of Adult Swim Premiere
-
-TV, President Curtis, Rick and Morty, San Diego Comic-Con
-
-Sat, 25 Jul 2026 19:42:00 GMT
-
-https://www.cbr.com/president-curtis-renewed-season-2-adult-swim/
-
-The future of the animated series is confirmed just ahead of its official debut on Adult Swim.
----------
-
-# Star Trek Finally Returns With First Look at New 40-Episode Series
-
-Anime, Star Trek, webtoon, San Diego Comic-Con
-
-Sat, 25 Jul 2026 19:39:34 GMT
-
-https://www.cbr.com/star-trek-recollection-webtoon-first-look-release-date/
-
-WEBTOON is giving Star Trek fans another brand-new Star Trek story unlike anything the franchise has seen before, and it looks incredible.
----------
-
-# Jamie Foxx's Spawn Reboot Finally Gets Positive Update After 9-Year Wait
-
-Movies, Spawn, Spawn (Reboot)
-
-Sat, 25 Jul 2026 19:09:29 GMT
-
-https://www.cbr.com/king-spawn-movie-update-obsession-backrooms/
-
-King Spawn may finally be making his way out of development hell.
----------
-
-# In Just 1 Day, Netflix's Easy-to-Binge Yellowstone Replacement Is the Most-Watched Show in the U.S.
-
-TV, Ransom Canyon, Netflix, Western
-
-Sat, 25 Jul 2026 19:00:15 GMT
-
-https://www.cbr.com/ransom-canyon-neo-western-romance-netflix-success-july-2026/
-
-Netflix's latest neo-Western based on a popular book series, Ransom Canyon, is the most-watched show in the United States.
----------
-
-# It's Officially the End of an Era for Marvel's Blade Movie
-
-Movies, Blade, Marvel Cinematic Universe
-
-Sat, 25 Jul 2026 19:00:15 GMT
-
-https://www.cbr.com/end-for-marvel-mcu-blade-movie-confirmed/
-
-It now seems we might never see Mahershala Ali's Blade on-screen in the MCU, seven years after he was first announced.
----------
-
-# Every New Character Confirmed for The Rings of Power Season 3
-
-TV, The Lord of the Rings, The Lord of the Rings: The Rings of Power, San Diego Comic-Con
-
-Sat, 25 Jul 2026 18:36:22 GMT
-
-https://www.cbr.com/lord-of-the-rings-the-rings-of-power-new-characters-list/
-
-The upcoming season of The Lord of the Rings: The Rings of Power will feature some fan-favorites from the novel as well as a few original characters.
 ---------
