@@ -1,3 +1,410 @@
+# Destin Daniel Cretton On Spider-Man: Brand New Day, Shang-Chi 2, Avengers 5 & Marvel
+
+New Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man, Cover Story, Shang-Chi 2, Shang-Chi and the Legend of the Ten Rings
+
+Mon, 27 Jul 2026 17:02:06 GMT
+
+https://screenrant.com/destin-daniel-cretton-interview-spider-man-brand-new-day/
+
+Spider-Man: Brand New Day’s Destin Daniel Cretton used to think superhero movies weren’t for him. Now, he’s one of Marvel’s most trusted filmmakers.
+---------
+
+# Attack Of The Killer Tomatoes Sequel Trailer Weaponizes Organic Intelligence
+
+Videos, San Diego Comic-Con, Attack of the Killer Tomatoes, Horror
+
+Mon, 27 Jul 2026 17:00:11 GMT
+
+https://screenrant.com/video/attack-of-the-killer-tomatoes-organic-intelligence-trailer/
+
+Exclusive: ScreenRant presents a post-SDCC look at the trailer for Attack of the Killer Tomatoes: Organic Intelligence, invading theaters this August.
+---------
+
+# YouTube Officially Adds Streaming Platform With 44+ Million Subscribers To Premium Tier
+
+TV, YouTube, Peacock
+
+Mon, 27 Jul 2026 16:53:11 GMT
+
+https://screenrant.com/youtube-peacock-premium-partnership-subscription-deal-details/
+
+As subscription bundles become more common, YouTube is getting in on the action with a major announcement as it partners with a streaming service.
+---------
+
+# 10 Greatest Sci-Fi Space Opera Movies Of All Time, Ranked
+
+Movies, Sci-Fi, Ranking
+
+Mon, 27 Jul 2026 16:45:11 GMT
+
+https://screenrant.com/best-sci-fi-space-opera-movies-all-time-ranked/
+
+With their larger-than-life stories set in the far reaches of outer space, the best space opera movies of all time add a touch of theatrics to sci-fi.
+---------
+
+# Predator Announces Crossover With $4 Billion Mega-Franchise, And It's Only 4 Months Away
+
+Marvel Comics, Predator, San Diego Comic-Con
+
+Mon, 27 Jul 2026 16:30:11 GMT
+
+https://screenrant.com/predator-next-marvel-crossover-punisher-details/
+
+The next Predator crossover has been announced at San Diego Comic-Con 2026, with a Yautja warrior coming to New York in search for his greatest prize.
+---------
+
+# Prime Video's 10/10 Fantasy Universe With 56 Episodes Deserves Its Masterpiece Status
+
+Streaming TV, Masked Recs
+
+Mon, 27 Jul 2026 16:30:11 GMT
+
+https://screenrant.com/vox-machina-mighty-nein-prime-video-fantasy-universe/
+
+An unexpected pair of fantasy shows on Prime Video have mastered balancing comedy, tragedy, and action so well they're now the genre's best.
+---------
+
+# 5 N64 Games That Are 10/10 Masterpieces, No Notes
+
+Gaming, Nintendo
+
+Mon, 27 Jul 2026 16:30:11 GMT
+
+https://screenrant.com/5-n64-games-10-rated-masterpieces/
+
+Discover the 5 greatest Nintendo 64 games, including Super Mario 64, Star Fox 64, Banjo-Kazooie, Goldeneye 007, and Zelda Ocarina of Time.
+---------
+
+# Spider-Man Has Taken Over Disney+ In America At The Ideal Time
+
+Superheroes, Spider-Man, Marvel Cinematic Universe
+
+Mon, 27 Jul 2026 16:15:11 GMT
+
+https://screenrant.com/spider-man-movies-disney-plus-takeover-july-2026/
+
+Disney+ has been completely overtaken by a single character, who has half of the top trending movies, and the timing couldn't be more perfect.
+---------
+
+# All 5 Avatar: The Last Airbender Movies & TV Shows, Ranked
+
+Movies, Avatar, pregnant, The Legend of Korra
+
+Mon, 27 Jul 2026 16:05:35 GMT
+
+https://screenrant.com/avatar-last-airbender-movies-tv-shows-ranked/
+
+Discover the ultimate ranking of all Avatar: The Last Airbender movies and TV shows, from live-action remakes to original animated masterpieces.
+---------
+
+# See More Of Kara & Ruthye's Shopping Trip In New Supergirl Clip
+
+Exclusive, Supergirl, DC Universe
+
+Mon, 27 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/video/supergirl-kara-ruthye-shopping-trip-digital-release-clip/
+
+Exclusive: ScreenRant presents a Supergirl extended scene, featuring more of Kara & Ruthye's galactic shopping trip, to celebrate the digital release.
+---------
+
+# 20 Years Later, This Ghost Rider Story Too Dark for the MCU Is a Comic You Should Be Reading
+
+Comics, Ghost Rider, Comics You Should Be Reading, Marvel
+
+Mon, 27 Jul 2026 17:00:15 GMT
+
+https://www.cbr.com/ghost-rider-road-to-damnation-comics-you-should-be-reading/
+
+Garth Ennis and Clayton Crain's hauntingly gruesome Ghost Rider may be too dark for the MCU, but it's a must-read for fans of the Spirit of Vengeance.
+---------
+
+# Sean Astin's Lord of the Rings Paycheck Was So Low He Had to Sell His House
+
+Movies, The Lord of the Rings, Fantasy, Beyond the Movie: The Fellowship of the Ring
+
+Mon, 27 Jul 2026 16:54:00 GMT
+
+https://www.cbr.com/sean-astin-lord-of-the-rings-pay-sold-house/
+
+Sean Astin's role in the blockbuster Lord of the Rings trilogy didn't pay the way some might expect.
+---------
+
+# Final Fantasy 6 Remake Could Be Even Bigger Than FF7 Remake (But There's a Catch)
+
+Games, Final Fantasy, Final Fantasy 7 Remake, Final Fantasy I-VI Pixel Remaster
+
+Mon, 27 Jul 2026 16:51:15 GMT
+
+https://www.cbr.com/final-fantasy-6-remake-bigger-than-ff7-remake/
+
+The director of Final Fantasy 14 and Evercold has confirmed how big a Final Fantasy 6 Remake would be, but there's a huge catch to his analysis.
+---------
+
+# Blade Runner 2099: Why This Isn't Just More Blade Runner | SDCC 2026
+
+TV, Blade Runner 2099
+
+Mon, 27 Jul 2026 16:51:07 GMT
+
+https://www.cbr.com/video/blade-runner-2099-why-this-isn-t-just-more-blade-runner-sdcc-2026/
+
+Blade Runner 2099 expands the iconic sci-fi universe in a bold new direction, and the cast explains why this story feels both familiar and completely fresh. Michelle Yeoh, Hunter Schafer, and creator Silka Luisa discuss the complicated relationship between Olwen and Cora, what makes replicants different from AI, and how the series builds on the themes that have defined Blade Runner for decades.
+---------
+
+# DC Officially Confirms Why Its Next Batman Movie Had to Be a Trilogy
+
+Movies, Batman: Knightfall Part 1: Knightfall, San Diego Comic-Con
+
+Mon, 27 Jul 2026 16:48:36 GMT
+
+https://www.cbr.com/batman-knightfall-trilogy-explained/
+
+Exclusive: The all-new Batman movie trilogy's origins are explained by DC.
+---------
+
+# 10 Saddest Anime Deaths of All Time, Ranked
+
+Anime, Naruto: Shippuden, Jojo’s Bizarre Adventure: Diamond Is Unbreakable - Chapter 1, shonen anime
+
+Mon, 27 Jul 2026 16:15:15 GMT
+
+https://www.cbr.com/saddest-anime-deaths-all-time-ranked/
+
+Death is easily one of anime's most powerful storytelling tools, but not all endings are created equally.
+---------
+
+# Severance Season 3 Filming Start Confirmed by Ben Stiller
+
+TV, Severance
+
+Mon, 27 Jul 2026 16:05:09 GMT
+
+https://www.cbr.com/severance-season-3-filming-confirmed-ben-stiller/
+
+Severance executive producer and director Ben Stiller confirms the start of production on the third season.
+---------
+
+# The 100% Rotten Tomatoes Action Masterpiece That Beat Jurassic Park at Its Own Game
+
+TV, Jurassic Park, animated, Primal
+
+Mon, 27 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/adult-swim-primal-the-lost-world-jurassic-park-inspiration/
+
+One TV show has been the best dinosaur-themed media since the release of Steven Spielberg's Jurassic Park films, and it has subtly shown its love.
+---------
+
+# 5 Most Underrated R-Rated Westerns of the 21st Century
+
+Movies, Western, Open Range, In a Valley of Violence
+
+Mon, 27 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/perfect-underrated-r-rated-westerns-list/
+
+The darker side of the Western has given audiences some of the best gunslinger movies ever made, and the 21st century boasts a wealth of hidden gems.
+---------
+
+# Paramount CEO Addresses Lawsuit Halting the $110B Warner Bros. Merger: 'Facts and Law Are on Our Side'
+
+Movies, Paramount, warner bros
+
+Mon, 27 Jul 2026 15:40:10 GMT
+
+https://www.cbr.com/paramount-david-ellison-warner-bros-merger-lawsuit/
+
+Following the successful hostile bid, Paramount experienced some setbacks with several state attorneys general.
+---------
+
+# 10 Classic Sci-Fi Movies You Must Watch in 2026
+
+Movie, Science Fiction, Godzilla, 2001: A Space Odyssey, Forbidden Planet
+
+Mon, 27 Jul 2026 17:14:15 GMT
+
+https://collider.com/classic-sci-fi-movies-must-watch-2026/
+
+From groundbreaking creature features like Godzilla to B-classics like Forbidden Planet, these sci-fi classic masterpieces are must-watches in 2026.
+---------
+
+# 20 Best Netflix Original Shows of All Time, Ranked
+
+TV, Netflix, Stranger Things, Bridgerton, Mindhunter
+
+Mon, 27 Jul 2026 17:12:15 GMT
+
+https://collider.com/best-netflix-original-shows-ranked/
+
+Netflix set the standard for streaming, as proven by its biggest and most critically acclaimed hits, from BoJack Horseman to Stranger Things.
+---------
+
+# Tom Hanks Officially Replaced in Netflix's New Dan Brown Series
+
+TV News, Netflix, Morgan Spector, The Da Vinci Code, Angels & Demons
+
+Mon, 27 Jul 2026 16:13:24 GMT
+
+https://collider.com/netflix-secret-of-secrets-series-morgan-spector-robert-langdon-tom-hanks/
+
+Morgan Spector officially replaces Tom Hanks in Netflix’s untitled series adaptation of Dan Brown’s bestselling mystery novel The Secret of Secrets.
+---------
+
+# Every R-Rated Christopher Nolan Movie, Ranked
+
+Movie, Christopher Nolan, MPAA Ratings, Memento, The Odyssey
+
+Mon, 27 Jul 2026 16:11:15 GMT
+
+https://collider.com/christopher-nolan-movies-r-rated-ranked/
+
+While Nolan is more primarily known for his various PG-13 films, the director's first three films and his 2 most recent films are actually R-rated.
+---------
+
+# Star Wars' Newest Spin-Off Series Blasts Off With a Huge Season 2 Update [Exclusive]
+
+TV News, Star Wars: Visions, Star Wars, Disney+, Sci-Fi
+
+Mon, 27 Jul 2026 16:00:15 GMT
+
+https://collider.com/star-wars-visions-the-ninth-jedi-season-2-update/
+
+Ahead of the debut of the Star Wars franchise's newest spin-off series, the show's creative team already have ideas for a second season.
+---------
+
+# Disney+’s New 8-Episode Star Wars Series Officially Brings Back Prequel-Era Duels [Exclusive]
+
+TV News, Star Wars: Visions, Star Wars, Star Wars: Episode III - Revenge of the Sith, Disney+
+
+Mon, 27 Jul 2026 16:00:15 GMT
+
+https://collider.com/star-wars-visions-the-ninth-jedi-prequel-trilogy-duel-influences/
+
+The team behind Star Wars: Visions' first-ever spin-off breaks down the prequel trilogy's influence on the new anime series.
+---------
+
+# Rebecca Ferguson Confirms Her Dune Return Comes With a Major Catch
+
+Movie News, Rebecca Ferguson, Dune: Part Three, Denis Villeneuve, Sci-Fi
+
+Mon, 27 Jul 2026 15:46:04 GMT
+
+https://collider.com/dune-part-3-rebecca-ferguson-lady-jessica-update/
+
+Rebecca Ferguson reveals she only has one scene in Dune: Part Three, confirming Lady Jessica’s reduced role in Denis Villeneuve’s final film.
+---------
+
+# Taylor Sheridan's Explosive Spy Series Returns This Week
+
+TV News, Taylor Sheridan, Lioness, Paramount Plus, Thriller
+
+Mon, 27 Jul 2026 15:42:58 GMT
+
+https://collider.com/taylor-sheridan-lioness-season-3-release-date-august-2/
+
+Taylor Sheridan’s grittiest spy thriller series is officially returning on Paramount+ this week. Here’s what you need to know.
+---------
+
+# ‘Game of Thrones’ Gets Official New Release in Just 48 Hours — But It Won't Last Long
+
+Gaming News, Game Of Thrones, George R.R. Martin, A Knight Of The Seven Kingdoms, House of the Dragon
+
+Mon, 27 Jul 2026 15:41:03 GMT
+
+https://collider.com/game-of-thrones-conquest-children-of-the-forest-event-release-date-july-29/
+
+Game of Thrones is officially bringing back the Children of the Forest for a new release dropping this Wednesday.
+---------
+
+# ‘The Odyssey’ Isn’t the Only Greek Epic Making Box Office History
+
+Movie News, The Odyssey, Hadestown: The Musical, Box Office, Musical
+
+Mon, 27 Jul 2026 15:27:17 GMT
+
+https://collider.com/hadestown-the-musical-9-million-box-office-second-biggest-broadway-live-capture/
+
+The Odyssey isn’t the only Greek epic making history at the box office as Bleeker Street’s official release of Hadestown takes over.
+---------
+
+# Chiranjeevi: The Story Behind the "Indian Thriller" Meme
+
+Features
+
+Mon, 27 Jul 2026 17:01:12 GMT
+
+https://movieweb.com/chiranjeevi-indian-thriller-meme/
+
+Combining the various personas of performers like Gene Kelly, Arnold Schwarzenegger, and Tom Cruise, Chiranjeevi is Indian cinema's Swiss-army knife.
+---------
+
+# Two of the Biggest Streaming Platforms Join Forces in Landmark Cost-Saving Move
+
+TV News, Peacock, YouTube, Streaming
+
+Mon, 27 Jul 2026 16:58:34 GMT
+
+https://movieweb.com/nbcuniversal-peacock-youtube-streaming-deal/
+
+Peacock and YouTube are teaming up.
+---------
+
+# MCU Star Leads Brutal First Trailer for Supernatural Thriller 'The Cycle'
+
+Movie News, Thriller, Horror, Shudder
+
+Mon, 27 Jul 2026 16:25:43 GMT
+
+https://movieweb.com/the-cycle-teaser-trailer/
+
+Her father has been missing for 36 years, and his body was just found at a mysterious crime scene, sparking a grim mystery.
+---------
+
+# First Look at Marvel's Next Streaming Series Confirms Return of Avengers-Level Threat
+
+Movie News, VisionQuest, MCU's Movie Order (2008 - 2019) - The Infinity Saga (Iron Man - Spider-Man: Far from Home)
+
+Mon, 27 Jul 2026 16:06:00 GMT
+
+https://movieweb.com/vision-quest-ultron-funk-pop-first-look/
+
+Ahead of the 'VisionQuest' first trailer, a new Funko Pop reveals the best look at Ultron's new appearance.
+---------
+
+# Star Trek: Strange New Worlds Season 4 Teases Another Franchise Legend Comeback
+
+Features, star trek: strange new worlds, Star Trek
+
+Mon, 27 Jul 2026 16:00:12 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-q-comeback/
+
+The Q Continuum hasn't been especially prominent in Star Trek's modern era, but there have been flashes of it. Read on for more.
+---------
+
+# Netflix's New 6-Part Action Thriller Series Is Officially a Global Smash
+
+TV News, Action, Hot on Streaming, Netflix
+
+Mon, 27 Jul 2026 16:00:12 GMT
+
+https://movieweb.com/elite-force-action-streaming-hit-netflix-july-2026/
+
+Netflix's has found its newest global hit by way of a six-episode action thriller that's dominating the charts.
+---------
+
+# '80s Fantasy Action Reboot Blasts Past 'Star Wars' Straight to Number One on Charts
+
+Movie News, Masters of the Universe
+
+Mon, 27 Jul 2026 15:44:05 GMT
+
+https://movieweb.com/masters-of-the-universe-blu-ray-sales-chart/
+
+'Masters of the Universe' has dethroned 'Star Wars: The Mandalorian and Grogu' to claim the coveted number one spot on the Blu-ray top sellers chart.
+---------
+
 # 10 Best Crime Thrillers Of All Time
 
 Books, Thriller, Crime
@@ -5089,411 +5496,4 @@ Sat, 25 Jul 2026 23:15:11 GMT
 https://screenrant.com/mortal-kombat-3-villain-characters-most-likely/
 
 Mortal Kombat III is yet to be confirmed, but the 2026 movie hinted at a sequel, and some established characters could take over as a main villain.
----------
-
-# Say Goodbye To Thanos As Marvel Studios Introduces 2 Villains Stronger Than The Mad Titan
-
-Streaming TV, Masked Recs
-
-Sat, 25 Jul 2026 23:15:11 GMT
-
-https://screenrant.com/doctor-doom-apocalypse-stronger-than-thanos/
-
-Marvel needs to move on from their original big bad, and looking at how 2026 is shaping up for villains, it's well on the way to doing just that.
----------
-
-# Silo Season 4 Release Window On Apple TV Confirmed By Showrunner
-
-TV, Silo, San Diego Comic-Con
-
-Sat, 25 Jul 2026 23:07:18 GMT
-
-https://screenrant.com/silo-season-4-release-window-graham-yost/
-
-Ahead of the upcoming season 3 finale, Silo season 4's release window on Apple TV has now been officially revealed by showrunner Graham Yost.
----------
-
-# Alan Ritchson's Reacher Becomes America's Most Wanted & CIA's Public Enemy In Official Season 4 Trailer
-
-TV, Reacher, San Diego Comic-Con
-
-Sat, 25 Jul 2026 23:06:34 GMT
-
-https://screenrant.com/reacher-season-4-trailer/
-
-Prime Video has finally released the first Reacher season 4 trailer, and it teases what to expect from Alan Ritchson's returning action hero.
----------
-
-# Reacher Spinoff Neagley Gets Guns Blazing, Action-Packed Official Trailer
-
-TV, Neagley, Reacher, San Diego Comic-Con
-
-Sat, 25 Jul 2026 23:05:24 GMT
-
-https://screenrant.com/neagley-trailer-prime-video/
-
-Neagley, the first Reacher spinoff at Prime Video, has received its first trailer, featuring both its title hero and Alan Ritchson's Jack Reacher.
----------
-
-# Every Hunter x Hunter Kakin Prince & Their Nen Beast Powers, Explained
-
-Anime, Hunter X Hunter
-
-Sat, 25 Jul 2026 23:00:12 GMT
-
-https://screenrant.com/hunter-x-hunter-kakin-princes-nen-beast-powers-explained/
-
-The Nen Beasts are one of the most interesting additions to Hunter x Hunter, and here is each of the 14 Kakin Princes different powers explained.
----------
-
-# 10 Open-World Games That’ll Take You Forever To 100% Complete
-
-Gaming, open world, Elden Ring
-
-Sat, 25 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/open-world-games-that-take-forever-to-beat/
-
-If gamers want an experience that they'll be able to commit 100s of hours toward in multiple playthroughs, there's no better genre than an open world.
----------
-
-# DC's Arrowverse Has 6 Shows, But Only One Keeps Getting Better With Time
-
-TV, Masked Recs, Arrowverse, Legends of Tomorrow
-
-Sat, 25 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/arrowverse-legends-of-tomorrow-age-better-dc-show/
-
-DC's Arrowverse, which aired on The CW, spanned for six shows at its peak, but only one spinoff is continuing to age well in the years since ending.
----------
-
-# American Dad Season 22 Is Officially Reaching A Rare Episode Milestone Ahead Of 2027 Release
-
-TV, American Dad!, San Diego Comic-Con
-
-Sat, 25 Jul 2026 22:55:35 GMT
-
-https://screenrant.com/american-dad-season-22-400th-episode-milestone-release/
-
-American Dad season 22 will reach a rare and major milestone for the long-running animated comedy series ahead of its season 27 premiere.
----------
-
-# Grimm Continuation Hopes & 10-Year Gap Elaborated By Cast
-
-TV, Grimm, San Diego Comic-Con
-
-Sat, 25 Jul 2026 22:32:58 GMT
-
-https://screenrant.com/grimm-continuation-release-hopes-bree-turner-bitsie-tulloch/
-
-EXCLUSIVE: The cast of Grimm elaborates on hopes of a continuation of the horror fantasy procedural, while also addressing its 10-year time gap.
----------
-
-# The Reacher Universe Officially Returns With First Look at New Episodes
-
-TV, Reacher, Neagley
-
-Sat, 25 Jul 2026 23:22:44 GMT
-
-https://www.cbr.com/reacher-season-4-neagley-spinoff-trailers/
-
-Prime Video officially reveals the first look at Reacher Season 4 and the show's new spinoff.
----------
-
-# 5 Modern Shonen Anime With Nearly Perfect Power Systems
-
-Anime, Jujutsu Kaisen, My Hero Academia, Shonen, Black Clover, shonen anime
-
-Sat, 25 Jul 2026 23:15:15 GMT
-
-https://www.cbr.com/modern-shonen-anime-perfect-power-systems/
-
-Modern shonen anime have introduced some of the most creative and well-balanced power systems in the genre's history.
----------
-
-# Apple TV Officially Seals Silo's Fate Halfway Through Season 3
-
-TV, Silo
-
-Sat, 25 Jul 2026 23:12:24 GMT
-
-https://www.cbr.com/apple-tv-silo-season-4-release-window/
-
-The show is currently releasing new episodes, and Apple TV confirmed what's next.
----------
-
-# The Mummy Still has the Greatest Quote in Adventure Movie History
-
-Movies, The Mummy
-
-Sat, 25 Jul 2026 23:00:15 GMT
-
-https://www.cbr.com/the-mummy-evelyn-oconnell-greatest-adventure-movie-quote/
-
-The Mummy (1999) is still one of the greatest action-adventure movies ever made, and it also happens to contain one of the genre's best quotes.
----------
-
-# DreamWorks' $145M Superhero Spinoff Is Heading to Peacock in Just 4 Days
-
-Movies, Dog Man
-
-Sat, 25 Jul 2026 23:00:15 GMT
-
-https://www.cbr.com/dog-man-animated-superhero-peacock-release-date-july-2026/
-
-One of the biggest animated features of the past year is currently just days away from having a new streaming home on a major platform.
----------
-
-# Apple TV's Cyberpunk Series Based on 'Unfilmable' 42-Year-Old Novel Finally Sets Release Date
-
-TV, Neuromancer, San Diego Comic-Con
-
-Sat, 25 Jul 2026 22:42:20 GMT
-
-https://www.cbr.com/neuromancer-apple-tv-release-date/
-
-Apple TV drops a first-look trailer after setting a premiere date for the new cyberpunk action series that was previously declared "unfilmable."
----------
-
-# Alan Ritchson Officially Returns in First 'Reacher' Season 4 Trailer
-
-TV News, Reacher, SDCC, Alan Ritchson, Prime Video
-
-Sat, 25 Jul 2026 23:18:30 GMT
-
-https://collider.com/reacher-season-4-trailer-alan-ritchson/
-
-The first trailer for Alan Ritchson's Reacher Season 4 has officially debuted, promising the Prime Video series' biggest season yet. See it here!
----------
-
-# Apple TV's 'Silo' Season 4 Officially Confirms Release Date
-
-TV News, Silo, Apple TV, Sci-Fi, Rebecca Ferguson
-
-Sat, 25 Jul 2026 23:02:37 GMT
-
-https://collider.com/silo-season-4-release-date/
-
-Apple TV has officially revealed the release date for the final season of Rebecca Ferguson's Silo. Read on for all the details.
----------
-
-# All 7 Movies Where Matt Damon Tries To Get Home, Ranked
-
-Movie, The Odyssey, Matt Damon, Interstellar, Saving Private Ryan
-
-Sat, 25 Jul 2026 22:51:14 GMT
-
-https://collider.com/matt-damon-going-home-movies-ranked/
-
-Matt Damon trying to get home has become an odd sort of sub-genre, and includes movies like The Odyssey, Saving Private Ryan, and The Martian.
----------
-
-# Kenneth Branagh Enters His Jason Statham Era in New Footage From Cold War Action Movie
-
-Movie News, Mayday, Ryan Reynolds, Kenneth Branagh, Apple TV
-
-Sat, 25 Jul 2026 22:28:53 GMT
-
-https://collider.com/apple-tv-mayday-footage-description-kenneth-branagh/
-
-Apple TV's Mayday has debuted some brand new footage that puts Kenneth Branagh in his Jason Statham era. Read on for more details.
----------
-
-# Alan Ritchson's Favorite Action Movie Sets a New Goal For 'Reacher' Season 4
-
-Features, Reacher, Alan Ritchson
-
-Sat, 25 Jul 2026 23:00:12 GMT
-
-https://movieweb.com/alan-ritchson-the-raid-reacher-season-4/
-
-Alan Ritchson recently revealed his favorite action movie, and it provides new framing for what season 4 of 'Reacher' can accomplish for Ritchson.
----------
-
-# 9 Great TV Series on BritBox Everyone Should Be Binge-Watching
-
-TV Lists
-
-Sat, 25 Jul 2026 22:30:12 GMT
-
-https://movieweb.com/britbox-great-tv-series-binge-watch/
-
-There are amazing TV shows that don't get traction outside the UK, and MovieWeb is here to ensure everyone knows where to look.
----------
-
-# Big Brother 28: Week 3 Power of Veto Results (SPOILERS)
-
-Reality TV, Big Brother
-
-Sat, 25 Jul 2026 22:17:47 GMT
-
-https://screenrant.com/big-brother-28-week-3-power-of-veto-results-spoilers/
-
-The Power of Veto competition in Big Brother 28's third week has massive implications for the Toolshed alliance, with a possible backdoor in place.
----------
-
-# Lucy Chen's 10 Best Quotes In The Rookie, Ranked
-
-Network TV, The Rookie
-
-Sat, 25 Jul 2026 22:15:11 GMT
-
-https://screenrant.com/the-rookie-lucy-chen-best-quotes/
-
-Ranking the best quotes from Lucy Chen, a standout character on The Rookie, showcasing her growth, strength, and adaptability.
----------
-
-# Netflix Just Released K-Drama’s Answer To The Witcher
-
-Streaming TV, Masked Recs
-
-Sat, 25 Jul 2026 22:10:11 GMT
-
-https://screenrant.com/the-east-palace-netflix-k-drama-like-the-witcher/
-
-For years, The Witcher has been one of Netflix's biggest fantasy shows, but the best K-drama of 2026 thus far is giving Geralt a run for his money.
----------
-
-# Why Star Trek: The Original Series' Worst Episode Is Credited To A Fake Writer
-
-Star Trek
-
-Sat, 25 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/star-trek-the-original-series-spocks-brain-fake-writer-lee-cronin/
-
-Star Trek: The Original Series was experimental, pushing boundaries with casting, theme, and even directing. However, one episode was not a success.
----------
-
-# 35 Years Later, Cyclops' Greatest Redesign Is Still 10/10 Perfection
-
-Comics, X-Men
-
-Sat, 25 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/x-men-cyclops-best-redesign-perfect/
-
-Still the best after three decades.
----------
-
-# All 6 Buffy The Vampire Slayer Games, Ranked
-
-Gaming, Buffy The Vampire Slayer, Triple-A Games
-
-Sat, 25 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/buffy-vampire-slayer-all-6-games-ranked/
-
-Buffy the Vampire slayer has a surprising number of games you have probably never heard of before, and several are still worth checking out.
----------
-
-# Apple TV's "Unfilmable" Cyberpunk Sci-Fi Series Neuromancer Gets Official Release Date & Trailer
-
-TV, Neuromancer, San Diego Comic-Con
-
-Sat, 25 Jul 2026 21:57:16 GMT
-
-https://screenrant.com/neuromancer-release-date-trailer-apple-tv/
-
-The release date and trailer for Apple TV's Neuromancer series have been revealed, and this Sci-Fi cyberpunk looks gritty and grand in live-action.
----------
-
-# Dark Matter Season 2 Trailer: Apple TV's Multiversal Sci-Fi Series Goes Beyond The Book In Action-Packed New Episodes
-
-TV, Dark Matter, Dark Matter - Season 2, San Diego Comic-Con
-
-Sat, 25 Jul 2026 21:50:59 GMT
-
-https://screenrant.com/dark-matter-season-2-trailer/
-
-Apple TV's underrated science-fiction series Dark Matter returns to the multiverse in the season 2 trailer released at San Diego Comic-Con.
----------
-
-# John Cena Thought His New Apple TV Action Movie Was Destined To Fail Until He Read The Script
-
-Movies, Matchbox the Movie, John Cena
-
-Sat, 25 Jul 2026 21:44:26 GMT
-
-https://screenrant.com/john-cena-matchbox-movie-fail-script-read/
-
-EXCLUSIVE: John Cena thought his new Apple TV action movie arriving later this year was destined to fail, until reading the script changed his mind.
----------
-
-# Apple TV & John Cena's Matchbox Trailer Is Like "Game Night Meets Mission: Impossible"
-
-Movies, Matchbox the Movie, San Diego Comic-Con
-
-Sat, 25 Jul 2026 21:31:17 GMT
-
-https://screenrant.com/matchbox-movie-trailer-apple-tv/
-
-Mattel’s iconic Matchbox toy brand is coming to life in an upcoming live-action film with John Cena, and Apple TV has just revealed the trailer.
----------
-
-# Legendary Marvel Creator Reveals the One X-Men He Wants To See in the MCU
-
-Movies, X-Men, The New Mutants, Marvel Cinematic Universe
-
-Sat, 25 Jul 2026 22:20:46 GMT
-
-https://www.cbr.com/bill-sienkiewicz-x-men-wants-in-the-mcu/
-
-The iconic character was once planned for the big screen, and its creator still wants to see it happen.
----------
-
-# Only 2 Disney Lorcana Cards Have Been Officially Banned, So Far
-
-Games, Disney Lorcana, trading cards, TCG
-
-Sat, 25 Jul 2026 22:15:15 GMT
-
-https://www.cbr.com/banned-disney-lorcana-cards/
-
-Disney Lorcana has only banned two cards from play in three years, which may not seem like much when compared to other TCGs.
----------
-
-# The 5-Season Neo-Western Masterpiece That Revived the Genre Is Dominating Paramount+ Streaming Charts
-
-TV, Yellowstone, Western, Paramount Plus
-
-Sat, 25 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/taylor-sheridan-yellowstone-neo-western-paramount-success-july-2026/
-
-The neo-Western series that revived the genre and spawned a franchise, Yellowstone, is the most-watched show on Paramount+ worldwide.
----------
-
-# DC's Absolute Universe Sweeps The 2026 Eisner Awards
-
-Comics, Absolute Universe, DC Comics, Eisner Awards, San Diego Comic-Con
-
-Sat, 25 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/dc-absolute-universe-2026-eisner-awards/
-
-The Absolute Universe is the absolute winner.
----------
-
-# Event Horizon Officially Ending, And The Details Are Wild
-
-Comics, Event Horizon
-
-Sat, 25 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/event-horizon-officially-ending-pandemonium/
-
-The Event Horizon universe is going to get a good deal crazier as Christian Ward tells CBR about the finale of his Event Horizon trilogy, Pandemonium
----------
-
-# Loki is Avengers: Doomsday's Most Important Hero
-
-Movies, Avengers: Doomsday, Loki, MCU, Avengers: Endgame
-
-Sat, 25 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/mcu-confirmed-loki-most-important-hero/
-
-Fans think everyone from Doctor Doom to Steve Rogers is Avengers: Doomsday's focal figure, but there's only one choice for the Multiverse Saga.
 ---------
