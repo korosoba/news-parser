@@ -1,3 +1,311 @@
+# Red Dead Redemption 2 St Denis Expansion Adds 4 New Missions
+
+Gaming, Red Dead Redemption 2, Red Dead Redemption
+
+Mon, 27 Jul 2026 05:00:11 GMT
+
+https://screenrant.com/red-dead-redemption-2-st-denis-fan-expansion/
+
+Explore Saint Denis like never before with the Saint Denis Mini Missions Pack mod for Red Dead Redemption 2.
+---------
+
+# The Last Of Us Part 3 Official Teaser Has Huge Implications For The Series
+
+Gaming, The Last of Us
+
+Mon, 27 Jul 2026 04:30:11 GMT
+
+https://screenrant.com/last-of-us-part-3-teaser-series-future/
+
+Neil Druckmann's recent Instagram post has fans speculating about the possibility of a third installment in the beloved The Last of Us franchise.
+---------
+
+# It's Official: Halo Returns In 2027 With Halo: Fireteam Noble
+
+Gaming, Halo
+
+Mon, 27 Jul 2026 04:00:14 GMT
+
+https://screenrant.com/halo-fireteam-noble-2027-release/
+
+Fans of the Halo franchise can look forward to the upcoming release of Halo: Fireteam Noble in 2027.
+---------
+
+# Netflix's #1 K-Drama Of 2026 Is So Popular It's Beating One Piece
+
+TV, One Piece, Netflix, Masked Recs
+
+Mon, 27 Jul 2026 03:59:11 GMT
+
+https://screenrant.com/netflix-teach-you-a-lesson-beating-one-piece/
+
+While easily the most impressive live-action manga and anime adaptation ever, One Piece got narrowly outshined in the first half of 2026.
+---------
+
+# 8 Essential Marvel Comics To Read Before Avengers: Doomsday
+
+Marvel Comics, Avengers: Doomsday
+
+Mon, 27 Jul 2026 03:57:22 GMT
+
+https://screenrant.com/essential-marvel-comics-read-before-doomsday/
+
+Avengers: Doomsday draws inspiration from various comic book runs and crossovers that provide unique insights into the Marvel multiverse.
+---------
+
+# Alien: Earth Season 2’s Xenomorphs Come To Life In New First Look
+
+TV, Alien: Earth
+
+Mon, 27 Jul 2026 03:37:42 GMT
+
+https://screenrant.com/alien-earth-season-2-xenomorphs-first-look/
+
+The terrifying Xenomorphs of Alien: Earth arrive in the form of an unexpected sneak peek before the hit FX show's upcoming second season.
+---------
+
+# 6 Best Action Series Released In 2026 (So Far)
+
+Streaming TV, The Night Agent, Bloodhounds, The Night Agent - Season 3, Bloodhounds - Season 2, The Terminal List: Dark Wolf, The Boys
+
+Mon, 27 Jul 2026 03:15:42 GMT
+
+https://screenrant.com/best-action-series-2026/
+
+Quiet a few action packed thrillers have premiered on the small screen in 2026, but only a handful of these shows have managed to leave their mark.
+---------
+
+# Every Baldur’s Gate 3 Romance Option, Ranked Worst To Best
+
+Gaming, Baldur's Gate 3, Baldur's Gate
+
+Mon, 27 Jul 2026 03:00:13 GMT
+
+https://screenrant.com/baldurs-gate-3-romance-options-bg3-worst-best/
+
+Players in Baldur's Gate 3 can choose any of their traveling companions to begin a romance with. However which ones are worth the time to woo?
+---------
+
+# 7 Anime Episodes That Broke The Internet
+
+Anime, Dragon Ball Super
+
+Mon, 27 Jul 2026 03:00:11 GMT
+
+https://screenrant.com/anime-episodes-broke-internet/
+
+From shocking reveals to iconic transformations, these legendary anime episodes took over the internet and made history.
+---------
+
+# God Of War Laufey Avoided GTA 6, But There's Still A Major Problem
+
+Gaming, God of War Laufey, God of War, Triple-A Games
+
+Mon, 27 Jul 2026 03:00:11 GMT
+
+https://screenrant.com/god-of-war-laufey-release-date-february-2027/
+
+God of War Laufey has dodged the proverbial release date bullet by avoiding Grand Theft Auto 6, but is February really better than November?
+---------
+
+# Everything We Know About American Horror Story Season 13
+
+TV, American Horror Story
+
+Mon, 27 Jul 2026 04:50:52 GMT
+
+https://www.cbr.com/american-horror-story-season-13-release-date-cast-plot/
+
+American Horror Story Season 13 returns in 2026. Get the premiere date, confirmed cast, Coven connections and latest plot details.
+---------
+
+# Tracker’s Season 4 Strategy Makes CBS History for Justin Hartley’s Show
+
+TV, Tracker, CBS
+
+Mon, 27 Jul 2026 04:26:04 GMT
+
+https://www.cbr.com/cbs-justin-hartely-tracker-season-4-historic-los-angeles-location-change/
+
+Tracker Season 4's new strategy will officially make history for Justin Hartley's CBS show, which he executive produces and leads as Colter Shaw.
+---------
+
+# Beth Dutton’s Best Yellowstone Line Quietly Set Up Dutton Ranch Better Than the Finale
+
+TV, Yellowstone, Dutton Ranch
+
+Mon, 27 Jul 2026 04:00:20 GMT
+
+https://www.cbr.com/beth-dutton-yellowstone-season-5-quote-predict-dutton-ranch/
+
+An outstanding Beth Dutton quote in Yellowstone Season 5 acts as a prophecy for her and Rip's sequel, Dutton Ranch, making it one of her best.
+---------
+
+# 5 Near-Perfect One-Season Anime That Never Got Renewed
+
+Anime, Ouran High School Host Club, Stars Align
+
+Mon, 27 Jul 2026 03:46:15 GMT
+
+https://www.cbr.com/near-perfect-one-season-anime-never-got-renewed-list/
+
+Anime like Death Parade and Ouran High School Host Club are single-season masterpieces that weren't renewed, leaving a legacy of unfinished potential.
+---------
+
+# It's Officially The End of an Era For The Punisher After 37 Years
+
+Movies, The Punisher, Spider-Man: Brand New Day, Marvel
+
+Mon, 27 Jul 2026 03:40:15 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-punisher-end-of-r-rated-era/
+
+The Punisher's next live-action appearance will officially break a 37-year-old rule for the character.
+---------
+
+# 6 Years Later, Hatsune Miku's Discontinued Video Game Series Is Finally Coming Back
+
+Anime, Hatsune Miku
+
+Mon, 27 Jul 2026 03:30:15 GMT
+
+https://www.cbr.com/hatsune-miku-graphy-collection-return/
+
+Hatsune Miku fans can begin celebrating the return of one of the most unexpected genre titles of the past decade, and it's coming soon.
+---------
+
+# HBO's New Fantasy Series Is a Better Game of Thrones Replacement Than House of the Dragon
+
+TV, HBO Max, Harry Potter, Game Of Thrones
+
+Mon, 27 Jul 2026 03:30:15 GMT
+
+https://www.cbr.com/hbo-harry-potter-reboot-fantasy-got-house-of-the-dragon-replacement/
+
+HBO's next era-defining fantasy hit promises to magically captivate an all-new generation of fans, even more than the House of the Dragon franchise.
+---------
+
+# 10 Best Tactical RPGs of All Time, Ranked
+
+Games, Fire Emblem, Final Fantasy, Marvel
+
+Mon, 27 Jul 2026 03:15:16 GMT
+
+https://www.cbr.com/best-tactical-rpgs-of-all-time-ranked/
+
+The best tactical RPGs bring together incredible stories, beautiful presentation, and highly strategic gameplay.
+---------
+
+# Netflix’s Best Fantasy Series Officially Beats Game of Thrones at Its Own Game
+
+Anime, One Piece, Netflix, Game Of Thrones
+
+Mon, 27 Jul 2026 03:10:15 GMT
+
+https://www.cbr.com/netflix-one-piece-game-of-thrones-successor-new-season/
+
+Game of Thrones proved fantasy TV shows could find a massive audience, but one Netflix adaptation beats it at its own game.
+---------
+
+# 5 Greatest RPGs You Can Beat in 20 Hours or Less
+
+Games, Video Games, Super Mario RPG: Legend of the Seven Stars, Final Fantasy
+
+Mon, 27 Jul 2026 02:45:15 GMT
+
+https://www.cbr.com/greatest-rpgs-can-beat-20-hours-or-less/
+
+Not everyone has all day to play RPGs or JRPGs, so it's fortunate that some of the best can be finished in under twenty hours of play time.
+---------
+
+# The Streaming Era’s Biggest Mistake Is Officially Impossible To Ignore
+
+TV Features, Apple TV, Prime Video, Netflix, Streaming Services
+
+Mon, 27 Jul 2026 03:02:15 GMT
+
+https://collider.com/streaming-services-physical-media-blu-ray-mistake/
+
+Netflix, Apple TV+, Disney+, Prime Video, and other streamers need to embrace Blu-ray and 4K releases to protect shows from disappearing.
+---------
+
+# The Targaryen Family Tree From 'House of the Dragon' to 'Game of Thrones'
+
+TV Features, House of the Dragon, Game Of Thrones, A Song of Ice and Fire, A Knight Of The Seven Kingdoms
+
+Mon, 27 Jul 2026 02:05:15 GMT
+
+https://collider.com/targaryen-family-tree-game-of-thrones-house-of-the-dragon/
+
+Explaining the complex Targaryen family tree from House of the Dragon, A Knight of the Seven Kingdoms, and Game of Thrones.
+---------
+
+# 'House of the Dragon' Finally Delivers the Moment Fans Have Been Waiting For | Review
+
+TV Reviews, House of the Dragon, Game Of Thrones, HBO Max, Fabien Frankel
+
+Mon, 27 Jul 2026 02:00:25 GMT
+
+https://collider.com/house-of-the-dragon-season-3-episode-6-review/
+
+The moment that many House of the Dragon fans have been waiting for has finally arrived in Season 3's latest episode.
+---------
+
+# 'House of the Dragon' and 'The Legend of Zelda' Share Another Link Besides Benjamin Evan Ainsworth
+
+Exclusives, House of the Dragon, Benjamin Evan Ainsworth, HBO, The Legend of Zelda
+
+Mon, 27 Jul 2026 02:00:25 GMT
+
+https://collider.com/house-of-the-dragon-season-3-episode-6-daeron-benjamin-evan-ainsworth/
+
+Benjamin Evan Ainsworth discusses House of the Dragon's surprising link to the Legend of Zelda movie and his "most Game of Thrones day ever" on set.
+---------
+
+# 10 Perfect HBO Shows With 5 Seasons or Less
+
+TV, HBO, The Wire, Succession, Westworld
+
+Mon, 27 Jul 2026 01:22:16 GMT
+
+https://collider.com/perfect-hbo-shows-shorter-than-5-seasons/
+
+Explore the best HBO series that concluded within five seasons, including acclaimed shows like The Wire, Succession, and Westworld.
+---------
+
+# 'House of the Dragon' Just Confirmed Its Arya Stark Replacement
+
+Features, House of the Dragon, Game Of Thrones
+
+Mon, 27 Jul 2026 02:05:12 GMT
+
+https://movieweb.com/house-of-the-dragon-alysanne-blackwood-arya-replacement/
+
+A major book change just gave this character the Arya Stark treatment at a pivotal moment in Season 3, Episode 6.
+---------
+
+# 16 Biggest Questions After 'House of the Dragon' Season 3, Episode 6
+
+TV Lists, House of the Dragon
+
+Mon, 27 Jul 2026 02:00:22 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-episode-6-big-questions/
+
+'House of the Dragon' is a complicated show, so here are all of your questions in one place, without any book spoilers.
+---------
+
+# 'House of the Dragon' S3E6 Review: Another Bold Step Towards an Epic Battle
+
+TV Reviews, House of the Dragon
+
+Mon, 27 Jul 2026 02:00:22 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-episode-6-review-recap/
+
+The tide is turning in 'House of the Dragon' Season 3, Episode 6, taking us to fascinating places.
+---------
+
 # 8 Visually Stunning Sci-Fi Shows That Set New Standards With Storytelling
 
 TV, Sci-Fi
@@ -5188,312 +5496,4 @@ Sat, 25 Jul 2026 18:45:14 GMT
 https://collider.com/futurama-season-14-trailer-xxxl-specials-announcement-hulu-2027/
 
 Hulu unveiled a zany, high-stakes trailer for Futurama Season 14 at SDCC and confirmed that the series is expanding with three new specials.
----------
-
-# Stephen King's 'Dark Tower' TV Series Could Be the Next Great Franchise
-
-TV Features, The Dark Tower, Stephen King, Mike Flanagan, Prime Video
-
-Sat, 25 Jul 2026 18:38:14 GMT
-
-https://collider.com/the-dark-tower-tv-adaptation-mike-flanagan-stephen-king/
-
-Television is the one medium that The Dark Tower is perfectly fit for, and Mike Flanagan is the best one for the job.
----------
-
-# 10 Best Thriller Movies in Film History
-
-Movie, The Silence of the Lambs, Thriller, Memento, Alfred Hitchcock
-
-Sat, 25 Jul 2026 18:28:14 GMT
-
-https://collider.com/best-thriller-movies-film-history/
-
-Suspenseful masterpieces like The Silence of the Lambs, Memento, and Alfred Hitchcock's Psycho are all among the best thriller movies of all time.
----------
-
-# Forget 'Fourth Wing,' This Flawless Fantasy Masterpiece Deserves a Streaming TV Adaptation
-
-TV Features, Fantasy, Fourth Wing, Books, Television
-
-Sat, 25 Jul 2026 18:27:14 GMT
-
-https://collider.com/folk-of-the-air-holly-black-fantasy-series-deserves-streaming-tv-adaptation/
-
-Holly Black's The Folk of the Air series is a masterful fantasy that deserves a streaming TV adaptation just like Fourth Wing.
----------
-
-# The Westies: Bridget Is Trapped Between Two Lives | Set Stories
-
-TV
-
-Sat, 25 Jul 2026 18:15:14 GMT
-
-https://collider.com/video/the-westies-bridget-is-trapped-between-two-lives-set-stories/
-
-What does it take to bring Bridget Walsh to life in The Westies? Sarah Bolger reveals the thoughtful character work behind one of the series' most compelling performances.
----------
-
-# 'The Rookie' Officially Gives Us a New Chenford Scene Before Season 9
-
-TV Features, The Rookie, ABC, Nathan Fillion, Alexi Hawley
-
-Sat, 25 Jul 2026 18:10:14 GMT
-
-https://collider.com/the-rookie-season-8-chenford-extended-episode-10/
-
-The Rookie reveals a new Season 8 Chenford scene and extra insight into Lucy and Tim's relationship before Season 9.
----------
-
-# John Wick Legend's  91-Minute Non-Stop Action Thriller Explodes Onto Free Streaming
-
-Movie News, Diablo, Tubi, Coming/Leaving Streaming, John Wick, Action
-
-Sat, 25 Jul 2026 20:00:12 GMT
-
-https://movieweb.com/diablo-action-stream-free-tubi-august-2026/
-
-John Wick star's "action film of the year, 'Diablo,' will stream for free on Tubi in August 2026.
----------
-
-# Netflix's Criminally Underrated New Thriller Is a Perfect One-Night Binge
-
-Features, Netflix
-
-Sat, 25 Jul 2026 20:00:12 GMT
-
-https://movieweb.com/i-am-afraid-netflix-thriller-binge/
-
-Netflix has released several popular thriller TV series in 2026, including this one which is a great one-night binge-watch.
----------
-
-# 18 Unpredictable Horror Movies to Watch If You Loved 'The Cabin in the Woods'
-
-Movie Lists, Horror
-
-Sat, 25 Jul 2026 20:00:12 GMT
-
-https://movieweb.com/movies-like-the-cabin-in-the-woods/
-
-For those thrilled by seriously unpredictable plot twists in horror, like those in 'The Cabin in the Woods,' these movies are sure to shock.
----------
-
-# There's a 'Dungeons & Dragons' Sequel Ready to Go, But We May Never See It
-
-Movie News, Dungeons & Dragons: Honor Among Thieves
-
-Sat, 25 Jul 2026 19:45:17 GMT
-
-https://movieweb.com/dungeons-dragons-sequel-screenplay/
-
-The Dungeons & Dragons movie sequel has a finished script, but financial challenges and high production costs may prevent the film from being made.
----------
-
-# 8 Netflix Thrillers With No Bad Episodes
-
-TV Lists, Netflix
-
-Sat, 25 Jul 2026 19:00:12 GMT
-
-https://movieweb.com/netflix-thrillers-no-bad-episodes/
-
-Netflix has produced many thriller TV series over the past few decades, including these standout shows that don't have any bad episodes.
----------
-
-# 'Star Trek: Strange New Worlds' Solves 29-Year-Old 'Voyager' Mystery
-
-Features, star trek: strange new worlds, Star Trek, Star Trek: Voyager
-
-Sat, 25 Jul 2026 18:45:12 GMT
-
-https://movieweb.com/strange-new-worlds-voyager-voth-mystery/
-
-The Star Trek franchise posed a very interesting question in a 'Voyager' episode almost three decades ago. There's now an answer. Read on for more.
----------
-
-# 'Reacher' Spin-Off Confirmed to Make Big Change to Action Thriller Format
-
-TV News, Reacher, Neagley
-
-Sat, 25 Jul 2026 18:37:09 GMT
-
-https://movieweb.com/reacher-neagley-change-location-explained/
-
-The upcoming 'Reacher' spin-off will do things a little differently than its predecessor in one specific department.
----------
-
-# The 2020s' Best True Crime Thriller Miniseries Has Already Aged Like Wine
-
-Features, The Dropout, Thriller, Hulu
-
-Sat, 25 Jul 2026 18:30:12 GMT
-
-https://movieweb.com/the-dropout-hulu-aged-well/
-
-It's rare that a TV series captures the cultural zeitgeist as well as this one, and it holds up perfectly after four years.
----------
-
-# Netflix's New 2-Part 'Yellowstone' Replacement Is One of the Biggest Shows on Streaming
-
-TV News, Ransom Canyon, Netflix, Hot on Streaming, Yellowstone
-
-Sat, 25 Jul 2026 18:00:12 GMT
-
-https://movieweb.com/ransom-canyon-western-yellowstone-stream-netflix-july-2026/
-
-Forget Taylor Sheridan; Netflix has its own 'Yellowstone' series, and it's a global hit.
----------
-
-# 'The Walking Dead' Can Officially Rewrite Jeffrey Dean Morgan's Favorite Episode
-
-Features, The Walking Dead: Dead City
-
-Sat, 25 Jul 2026 18:00:12 GMT
-
-https://movieweb.com/the-walking-dead-jeffrey-dean-morgan-rewrite-heres-negan/
-
-Jeffrey Dean Morgan has confirmed his favorite episode, and 'The Walking Dead' franchise is finally going deeper into the story.
----------
-
-# Lord Of The Rings: Rings Of Power Season 3 Full Episode Schedule Revealed By Prime Video
-
-TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Rings of Power - Season 3, The Lord of the Rings
-
-Sat, 25 Jul 2026 17:31:22 GMT
-
-https://screenrant.com/rings-of-power-season-3-prime-video-release-schedule/
-
-After a two-year hiatus between seasons, Prime Video has unveiled the release schedule for The Lord of the Rings: The Rings of Power season 3.
----------
-
-# 7 Years Later, Things Just Got Worse For The Big Bang Theory’s Most Disappointing Character
-
-Streaming TV, Masked Recs, The Big Bang Theory
-
-Sat, 25 Jul 2026 17:30:11 GMT
-
-https://screenrant.com/the-big-bang-theory-raj-stuart-fails-save-universe-death/
-
-Explore the unsatisfying conclusion for this Big Bang Theory character’s surprising cameo in the spinoff series Stuart Fails to Save the Universe.
----------
-
-# 10 Super Nintendo Games That Remain 10/10 Masterpieces In 2026
-
-Gaming, SNES, Triple-A Games
-
-Sat, 25 Jul 2026 17:30:11 GMT
-
-https://screenrant.com/10-super-nintendo-games-still-masterpieces-2026/
-
-Nostalgia for the 90s is back in vogue, but the masterpieces of the Super Nintendo era never went out of style, and are still incredible decades on.
----------
-
-# The Firefly RPG Nobody Remembers Is Still Worth Playing
-
-Gaming, Firefly, tabletop games
-
-Sat, 25 Jul 2026 17:30:11 GMT
-
-https://screenrant.com/firefly-rpg-worth-playing-game/
-
-We're still awaiting for Firefly's long-awaited return, but revisiting this painfully overlooked game is the perfect way to pass the time.
----------
-
-# Netflix's Stranger Things Recast Begins A New Era
-
-Streaming TV, Stranger Things
-
-Sat, 25 Jul 2026 17:15:11 GMT
-
-https://screenrant.com/stranger-things-cast-replacement-new-era/
-
-There are still plenty of stories left to tell in the world of Stranger Things, but when audiences finally return there'll be a key element missing.
----------
-
-# Halo: Campaign Evolved - How To Unlock LASO Difficulty Guide
-
-Gaming, Halo: Campaign Evolved, Halo, Halo: Combat Evolved, PC
-
-Sat, 25 Jul 2026 17:02:28 GMT
-
-https://screenrant.com/halo-campaign-evolved-laso-difficulty-guide/
-
-To unlock LASO difficulty in Halo: Campaign Evolved, you'll need to track down a ton of different skulls across the game.
----------
-
-# Surprise Hero Joins The Avengers For First Time Ever This October
-
-Marvel Comics, The Avengers
-
-Sat, 25 Jul 2026 17:00:11 GMT
-
-https://screenrant.com/avengers-new-member-jose-andres/
-
-A world-renowned celebrity joins the Avengers in their new fight against Ultron, using his professional skills to battle alongside Earth's Mightiest.
----------
-
-# 5 Free Games To Play While You Wait For GTA 6
-
-Gaming, Grand Theft Auto, Grand Theft Auto 6, PC
-
-Sat, 25 Jul 2026 17:00:11 GMT
-
-https://screenrant.com/gta-6-free-games-play-while-you-wait/
-
-These free games will help tide you over as you wait for the upcoming Grand Theft Auto 6 to finally release.
----------
-
-# The Terminal List Meets Jack Ryan In Gerard Butler's Returning Action Franchise
-
-TV, Masked Recs
-
-Sat, 25 Jul 2026 16:55:11 GMT
-
-https://screenrant.com/apollo-has-fallen-terminal-list-meets-jack-ryan/
-
-Gerard Butler's biggest action franchise is returning soon, and the latest outing is a cross between Tom Clancy's Jack Ryan and The Terminal List.
----------
-
-# Lanterns: The Cast Teases DC's Biggest Mystery | SDCC 2026
-
-TV, Lanterns
-
-Sat, 25 Jul 2026 17:45:14 GMT
-
-https://www.cbr.com/video/lanterns-the-cast-teases-dc-s-biggest-mystery-sdcc-2026/
-
-Lanterns stars Kyle Chandler and Aaron Pierre reveal what makes Hal Jordan and John Stewart such compelling Green Lanterns in HBO Max's highly anticipated DC series. Chris Mundy, Tom King, Poorna Jagannathan, and Garret Dillahunt also share new insights into the show's mystery, mythology, and unforgettable characters.
----------
-
-# 10 Shows to Watch If You Like The Rookie
-
-TV, The Rookie, Drama, Tracker, NCIS
-
-Sat, 25 Jul 2026 17:30:15 GMT
-
-https://www.cbr.com/shows-like-rookie-recommendations/
-
-The Rookie is an effortless blend of police procedural and human drama, and shows such as Tracker and NCIS: Origins are perfect for fans.
----------
-
-# White House Reacts to Reacher Star Alan Ritchson’s Rant Over the Epstein Files
-
-TV, Reacher
-
-Sat, 25 Jul 2026 17:26:19 GMT
-
-https://www.cbr.com/reacher-alan-ritchsons-the-epstein-files-white-house-reacts/
-
-The actor publicly called for the release of the Epstein files, which received a response from the White House.
----------
-
-# Bill Sienkiewicz Wants Warlock in the MCU | SDCC 2026
-
-Movies, bill sienkiewicz
-
-Sat, 25 Jul 2026 17:25:59 GMT
-
-https://www.cbr.com/video/bill-sienkiewicz-wants-warlock-in-the-mcu-sdcc-2026/
-
-Bill Sienkiewicz talks The New Mutants, Warlock, and That Polish Guy documentary at SDCC 2026. Comic book legend Bill Sienkiewicz reflects on why he initially questioned making a documentary about his life before realizing it celebrates storytelling more than himself.
 ---------
