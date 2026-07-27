@@ -1,3 +1,58 @@
+# 7 Worst Zelda: Ocarina Of Time Remake Redesigns
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda, Triple-A Games
+
+Mon, 27 Jul 2026 07:00:12 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-changes-3d-reversal/
+
+Ocarina of Time already got one remake 15 years ago on the 3DS, but it made some questionable design choices that should be reverted on Switch 2.
+---------
+
+# Invincible RPG Review - Brutally Fun Superhero Roleplaying
+
+Gaming, Invincible
+
+Mon, 27 Jul 2026 06:00:11 GMT
+
+https://screenrant.com/invincible-rpg-superhero-roleplaying-review/
+
+Invincible - Superhero Roleplaying is a new tabletop RPG based on the comics, and it's as perfectly fast-paced and brutal as you'd expect.
+---------
+
+# PlayStation Drops 5 New Freebies You Can Grab Now Without PS Plus
+
+Gaming, PlayStation
+
+Mon, 27 Jul 2026 05:30:11 GMT
+
+https://screenrant.com/playstation-5-new-free-demos-july-2026/
+
+Discover 5 new PlayStation demos available for free, allowing PS4 and PS5 users to try out upcoming titles.
+---------
+
+# Maximum Pleasure Guaranteed’s Creator Breaks Down Tatiana Maslany’s Emotional Courtroom Scene & the Importance of the Season’s Final Shot
+
+TV, Maximum Pleasure Guaranteed, Apple TV
+
+Mon, 27 Jul 2026 06:31:55 GMT
+
+https://www.cbr.com/maximum-pleasure-guaranteed-finale-tatiana-maslany-courtroom-scene/
+
+Spoiler: you'll need tissues.
+---------
+
+# Mortal Kombat 2 Director Reveals The Character That ‘Worried’ Him The Most: ‘What Was I Thinking?’
+
+CBR Exclusives, Mortal Kombat II
+
+Mon, 27 Jul 2026 05:47:21 GMT
+
+https://www.cbr.com/mortal-kombat-2-simon-mcquoid-baraka-character-design/
+
+Mortal Kombat II director Simon McQuoid discusses designing Baraka, CJ Bloomfield’s performance, and the sequel’s practical effects.
+---------
+
 # Red Dead Redemption 2 St Denis Expansion Adds 4 New Missions
 
 Gaming, Red Dead Redemption 2, Red Dead Redemption
@@ -5441,59 +5496,4 @@ Sat, 25 Jul 2026 18:36:22 GMT
 https://www.cbr.com/lord-of-the-rings-the-rings-of-power-new-characters-list/
 
 The upcoming season of The Lord of the Rings: The Rings of Power will feature some fan-favorites from the novel as well as a few original characters.
----------
-
-# 10 Most Haunting Thrillers of All Time
-
-Movie, Thriller, Don't Look Now, Rebecca, Eyes Without a Face
-
-Sat, 25 Jul 2026 20:04:14 GMT
-
-https://collider.com/most-haunting-thrillers-all-time-ranked/
-
-Cinema's most haunting thrillers creep under your skin and never leave, from the gothic uncertainty of Rebecca to the oppressive bleakness of Se7en.
----------
-
-# 10 Most Influential Horror Books of All Time
-
-Books and Comics, Books, Horror, Stephen King, The Exorcist
-
-Sat, 25 Jul 2026 19:49:14 GMT
-
-https://collider.com/most-influential-horror-books-all-time-ranked/
-
-Dracula, Tales of Mystery and Imagination, and The Exorcist are all among the most influential and impactful horror books ever written.
----------
-
-# All 7 Mainline GTA Games, Ranked
-
-Gaming, Grand Theft Auto V, Rockstar Games, Video Game
-
-Sat, 25 Jul 2026 19:36:14 GMT
-
-https://collider.com/gta-games-ranked/
-
-From Vice City to San Andreas, we've ranked every mainline Grand Theft Auto game according to impact, innovation, chaos, and lasting gaming legacy.
----------
-
-# Ridley Scott's Terrifying Sci-Fi Sequel Is Being Wiped From Streaming
-
-Movie, Alien: Covenant, Ridley Scott, Alien, Sci-Fi
-
-Sat, 25 Jul 2026 18:53:14 GMT
-
-https://collider.com/alien-covenant-ridley-scott-alien-sci-fi-sequel-wiped-from-streaming-hbo/
-
-Alien: Covenant is one of the scarier entries to the Alien series, but it's going to become a little harder to watch once it's taken off HBO Max.
----------
-
-# 'Futurama' Season 14 Blasts Off With a New Trailer and a Massive Expansion
-
-TV News, Futurama, Hulu, San Diego Comic-Con, SDCC
-
-Sat, 25 Jul 2026 18:45:14 GMT
-
-https://collider.com/futurama-season-14-trailer-xxxl-specials-announcement-hulu-2027/
-
-Hulu unveiled a zany, high-stakes trailer for Futurama Season 14 at SDCC and confirmed that the series is expanding with three new specials.
 ---------
