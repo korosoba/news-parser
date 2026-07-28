@@ -1,3 +1,58 @@
+# Baldur's Gate 3 Over-The-Shoulder Camera Mode Adds New Level Of Immersion
+
+Gaming, Baldur's Gate 3, Triple-A Games
+
+Tue, 28 Jul 2026 07:00:11 GMT
+
+https://screenrant.com/baldurs-gate-3-over-the-shoulder-camera-mod/
+
+If you're looking for an excuse to play Baldur's Gate 3 again, this new gameplay element makes it the perfect time to boot it up.
+---------
+
+# The Last Of Us: Joel Miller Officially Returns In 2027
+
+Gaming, The Last of Us, The Last of Us: Part 1, The Last of Us Part 2, The Last of Us Part 2 Remastered, The Last of Us 3, PC
+
+Tue, 28 Jul 2026 06:00:11 GMT
+
+https://screenrant.com/last-of-us-joel-miller-statue-2027/
+
+The Last of Us fan-favorite character Joel Miller officially returns in November 2027 with a new release honoring the legend that started it all.
+---------
+
+# Game Of Thrones: Jorah The Andal Officially Available Now
+
+Gaming, Game of Thrones, Game Of Thrones, Game Of Thrones - Season 1, PC
+
+Tue, 28 Jul 2026 05:30:11 GMT
+
+https://screenrant.com/game-of-thrones-legends-jorah-the-andal/
+
+Jorah the Andal is officially making an epic return in a new Game of Thrones release that's available to check out now.
+---------
+
+# What Emmy Rossum Learned From Law Enforcement That Inspired Her Furious Performance
+
+TV, Furious, Hulu, Crime
+
+Tue, 28 Jul 2026 06:11:29 GMT
+
+https://www.cbr.com/emmy-rossum-furious-fbi-training/
+
+Emmy Rossum and Liz Meriwether reveal how FBI and NYPD research shaped Alice Black and Hulu’s crime drama Furious.
+---------
+
+# Hulu’s Furious Avoids the Biggest Crime Drama Trap, According To The Cast
+
+TV, Furious, Hulu, Crime
+
+Tue, 28 Jul 2026 06:05:00 GMT
+
+https://www.cbr.com/furious-hulu-cast-crime-drama-sensationalism/
+
+Furious stars Scoot McNairy, Quincy Tyler Bernstine, and Jake Lacy discuss Hulu’s nuanced serial-killer drama in a CBR interview.
+---------
+
 # Spider-Man: Brand New Day First Reactions Are Officially In
 
 Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
@@ -5441,59 +5496,4 @@ Sun, 26 Jul 2026 16:40:11 GMT
 https://screenrant.com/blade-mahershala-ali-ghost-rider-movie/
 
 Mahershala Ali's Blade has waited seven years to appear in an MCU movie, and a newly announced film immediately becomes the perfect spot.
----------
-
-# Upcoming Marvel Movies: MCU Phase 6 and Beyond - Full List
-
-Superheroes, Marvel Cinematic Universe
-
-Sun, 26 Jul 2026 16:32:47 GMT
-
-https://screenrant.com/marvel-movie-mcu-upcoming-release-date-list-order/
-
-With Marvel Studios' MCU now dominating the upcoming release slate for Marvel movies, here's what to expect in the coming years and beyond.
----------
-
-# 20-Part Fantasy Series That's Lord Of The Rings Meets The Witcher Launched An Oscar Nominee's Career
-
-Classic TV, Masked Recs
-
-Sun, 26 Jul 2026 16:30:11 GMT
-
-https://screenrant.com/the-shannara-chronicles-launch-austin-butler-career-lotr-witcher/
-
-A 10-year-old 20-episode fantasy series that launched this actor’s career is the perfect combination of The Lord of the Rings and The Witcher.
----------
-
-# 2026’s New Sci-Fi Comedy Ann Droid Is Black Mirror Meets Ted Lasso
-
-TV, Black Mirror, Sci-Fi
-
-Sun, 26 Jul 2026 16:20:11 GMT
-
-https://screenrant.com/ann-droid-sci-fi-comedy-show-2026/
-
-2026's newest sci-fi comedy has garnered some strong review results thanks to its ability to make a dystopian concept into a source of comedy.
----------
-
-# The Odyssey High-Quality Bootleg Leaks Online As Box Office Records Rise
-
-Movies, The Odyssey
-
-Sun, 26 Jul 2026 16:19:27 GMT
-
-https://screenrant.com/the-odyssey-bootleg-leak-box-office-success/
-
-The Odyssey crash-landed on X, as millions watched a high-quality bootleg of Christopher Nolan's epic while box office records continue to rise.
----------
-
-# Hulu's 16-Part Sci-Fi Series Renewed For Season 3 Is A Dystopian Masterpiece
-
-TV, Masked Recs
-
-Sun, 26 Jul 2026 16:01:11 GMT
-
-https://screenrant.com/paradise-hulu-tv-show-dystopian-masterpiece/
-
-Hulu's latest sci-fi masterpiece has been renewed for a third season, promising more mind-bending dystopian thrills from the acclaimed thriller.
 ---------
