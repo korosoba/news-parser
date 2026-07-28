@@ -1,3 +1,399 @@
+# Spider-Man: Brand New Day Is Officially Eyeing Record-Breaking Opening Box Office Weekend
+
+Movies, Spider-Man: Brand New Day
+
+Tue, 28 Jul 2026 19:48:01 GMT
+
+https://screenrant.com/spider-man-brand-new-day-box-office-preview-report/
+
+Spider-Man: Brand New Day is already breaking records, swinging into action, and destroying superhero fatigue as box office numbers have arrived.
+---------
+
+# Scott Eastwood's Can't-Miss WWII Thriller, Lucky Strike, Gets Streaming Release Date
+
+Movies, Lucky Strike, Scott Eastwood
+
+Tue, 28 Jul 2026 19:35:09 GMT
+
+https://screenrant.com/scott-eastwood-lucky-strike-wwii-movie-digital-release-date/
+
+Regretting You and Suicide Squad’s Scott Eastwood has a new WWI thriller that came out in June, but will soon be available to watch at home.
+---------
+
+# Spider-Man: Brand New Day Review: Holland’s Best Yet
+
+Movies, Spider-Man: Brand New Day, Originals
+
+Tue, 28 Jul 2026 19:30:31 GMT
+
+https://screenrant.com/video/spider-man-brand-new-day-review-holland-s-best-yet/
+
+Marvel has spent years building Spider-Man into the center of the MCU, but Spider-Man: Brand New Day succeeds by stripping everything back and focusing on Peter Parker himself. It's a smaller, more personal story that still carries major weight for the future of the franchise.
+---------
+
+# How Beth Is Returning To The Walking Dead (After Dying In Season 5)
+
+Streaming TV, The Walking Dead: Dead City, The Walking Dead
+
+Tue, 28 Jul 2026 19:30:11 GMT
+
+https://screenrant.com/the-walking-dead-beth-return-explained/
+
+Beth suffered one of the most tragic deaths in all of The Walking Dead back in season 5, yet almost 12 years later, she's making a surprise return.
+---------
+
+# Christopher Nolan Is More Popular Than James Bond & It's Not Up For Debate
+
+New Movies, Christopher Nolan, James Bond, The Odyssey
+
+Tue, 28 Jul 2026 19:20:11 GMT
+
+https://screenrant.com/christopher-nolan-more-popular-james-bond/
+
+Christopher Nolan and James Bond have been linked for years, but the director has definitively become more popular than 007's movie franchise.
+---------
+
+# King Of The Hill Season 15 Interview With Cast at SDCC 2026
+
+Exclusive, King of the Hill, San Diego Comic-Con
+
+Tue, 28 Jul 2026 19:08:21 GMT
+
+https://screenrant.com/video/king-of-the-hill-season-15-stephen-root-lauren-tom-ashley-gardner-toby-huss-sdcc-2026/
+
+King Of The Hill stars Lauren Tom, Stephen Root, Toby Huss, and Ashley Gardner reflect on how it feels to be gifted so many new seasons, and where the story is taking their characters.
+---------
+
+# Spider-Man & Punisher Remaking Iconic Civil War Panel Teased By Tom Holland
+
+Exclusive, Marvel
+
+Tue, 28 Jul 2026 19:07:56 GMT
+
+https://screenrant.com/spiderman-punisher-civil-war-panel-mcu-recreation-tease-tom-holland/
+
+Tom Holland's secretive response to whether Spider-Man: Brand New Day will recreate a iconic Civil War panel keeps fans with high anticipation.
+---------
+
+# FX's 'Westworld Meets The Odyssey' Series Will Be Worth The Wait Ahead Of Season 2
+
+Streaming TV, Masked Recs
+
+Tue, 28 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/shogun-season-2-worth-the-wait/
+
+FX's epic historical miniseries was a masterpiece so good that the story is being revisited, but fans might have a long wait before seeing the result.
+---------
+
+# 10 Years Later, Crunchyroll's Best Romance Anime Is Finally Complete
+
+Anime, Crunchyroll
+
+Tue, 28 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/crunchyroll-kamisama-kiss-complete-series-release/
+
+After nearly a decade, Crunchyroll's most underrated romance anime can finally be streamed in its entirety, including its grand finale.
+---------
+
+# HBO Max Just Won the Streaming Wars as Warner Bros. Officially Buries Prime Video
+
+TV, HBO Max
+
+Tue, 28 Jul 2026 19:55:05 GMT
+
+https://www.cbr.com/hbo-max-shorts-new-search-engine/
+
+At this point, the streaming wars are no longer all about content.
+---------
+
+# 10 Darkest Quotes in Star Wars Movie History
+
+Movies, Star Wars
+
+Tue, 28 Jul 2026 19:30:15 GMT
+
+https://www.cbr.com/darkest-quotes-in-star-wars-list/
+
+Take a trip to the Dark Side with some of the grittiest and most terrifying quotes from the Star Wars franchise.
+---------
+
+# Tom Holland Finally Confirms His Spider-Man Future After Brand New Day
+
+Movies, Marvel Cinematic Universe, Spider-Man: Brand New Day
+
+Tue, 28 Jul 2026 19:19:43 GMT
+
+https://www.cbr.com/tom-holland-confirms-mcu-spider-man-future/
+
+Will Spider-Man: Brand New Day be Tom Holland's last bat as the superhero?
+---------
+
+# 10 Strongest Old Men in All of Shonen Anime
+
+Anime, Shonen
+
+Tue, 28 Jul 2026 19:16:15 GMT
+
+https://www.cbr.com/shonen-anime-strongest-old-men-list/
+
+Anime like Bleach and Naruto have some of the most powerful old men in shonen history.
+---------
+
+# The Rookie Star Nathan Fillion Teases North Crossover With a Twist
+
+TV, The Rookie
+
+Tue, 28 Jul 2026 19:09:41 GMT
+
+https://www.cbr.com/the-rookie-nathan-fillion-teases-north-crossover/
+
+Nathan Fillion explains why crossovers between The Rookie and the upcoming The Rookie: North spinoff won't be what fans are expecting.
+---------
+
+# Percy Jackson Season 3 Is Entering Uncharted Territory for the Franchise
+
+TV, Percy Jackson & the Olympians, Percy Jackson & The Olympians, Fantasy, Disney+
+
+Tue, 28 Jul 2026 19:01:14 GMT
+
+https://www.cbr.com/percy-jackson-and-the-olympians-season-3-new-era/
+
+Percy Jackson & the Olympians Season 3 premieres later this year, and it marks the beginning of a new era for the beloved franchise.
+---------
+
+# The 5 Greatest Thriller Movies of 2026 (So Far)
+
+Movies, Thriller
+
+Tue, 28 Jul 2026 19:01:14 GMT
+
+https://www.cbr.com/best-thriller-movies-2026-so-far-list/
+
+The thriller genre is alive and well with filmmakers and audiences and 2026 has delivered some exceptional films in the genre.
+---------
+
+# 10 Underrated Marvel Friendships You Totally Forgot About
+
+Comics, Marvel, superheroes
+
+Tue, 28 Jul 2026 19:01:14 GMT
+
+https://www.cbr.com/underrated-forgotten-marvel-friendships-list/
+
+Surprising Marvel characters, from Hercules and Amadeus Cho to Squirrel Girl and Kraven the Hunter, formed unique bonds that deserve more attention.
+---------
+
+# Disney Erases a 73-Year-Old Character After Announcing of Spinoff
+
+TV, Disneyland, Disney, Tinker Bell
+
+Tue, 28 Jul 2026 18:54:11 GMT
+
+https://www.cbr.com/disneyland-tinker-bell-pixie-hollow-closes/
+
+A beloved Disney character is disappearing for an undisclosed amount of time, even though she has a new TV show on the way.
+---------
+
+# Mike Flanagan Officially Boards Henry Cavill's Iconic Space Opera Adaptation
+
+TV, Warhammer 40k, Mike Flanagan
+
+Tue, 28 Jul 2026 18:25:01 GMT
+
+https://www.cbr.com/mike-flanagan-joins-henry-cavill-warhammer-40000-show/
+
+Mike Flanagan has found his next project after Prime Video's Carrie.
+---------
+
+# The Perfect 'Friends' Cast if the Sitcom Were Made in 2026
+
+TV, Friends, Sydney Sweeney, Daniel Radcliffe, Dave Franco
+
+Tue, 28 Jul 2026 19:44:15 GMT
+
+https://collider.com/friends-cast-made-today-2026/
+
+Sydney Sweeney as Rachel Green? Daniel Radcliffe as Chandler Bing? Let's unpack who'd play the iconic Friends characters if the show got made today.
+---------
+
+# CBS Is Doubling Down on ‘FBI’ and ‘CIA’ This Fall
+
+TV News, FBI, CIA, Tom Ellis
+
+Tue, 28 Jul 2026 19:41:14 GMT
+
+https://collider.com/cia-season-2-release-date-tom-ellis-fbi-cbs-october-2026/
+
+Tom Ellis’ CIA officially sets its Season 2 return alongside FBI Season 9 as CBS locks down its fall 2026 premiere schedule.
+---------
+
+# Quentin Tarantino Star's Cult Classic Crime Movie Is Leaving HBO Max
+
+Movie News, Dillinger, Quentin Tarantino, Reservoir Dogs, HBO Max
+
+Tue, 28 Jul 2026 19:26:15 GMT
+
+https://collider.com/quentin-tarantino-lawrence-tierney-dillinger-leaving-hbo-max-august-2026/
+
+Quentin Tarantino regretted casting Lawrence Tierney in Reservoir Dogs; Tierney's most popular movie, Dillinger, is currently streaming on HBO Max.
+---------
+
+# 10 Perfect Books You Can Read in a Day
+
+Books and Comics, Books, Sci-Fi, Graphic Novel, Young Adult
+
+Tue, 28 Jul 2026 19:24:15 GMT
+
+https://collider.com/perfect-books-read-in-one-day/
+
+We Are Okay by Nina LaCour and Never Let Me Go by Kazuo Ishiguro are genuinely perfect books you can read from cover to cover in one day.
+---------
+
+# 'Ghosts' Still Needs To Address This Glaring Plot Hole Immediately
+
+TV Features, Ghosts, CBS, Comedy, Rose McIver
+
+Tue, 28 Jul 2026 19:21:14 GMT
+
+https://collider.com/ghosts-woodstone-boundary-plot-hole/
+
+In CBS’ Ghosts, there are inconsistencies and glaring plot holes surrounding the boundaries and the Woodstone Mansion.
+---------
+
+# 'Breaking Bad' Star's John Wick Replacement Crushes the Competition on Streaming
+
+Movie News, Nobody, Nobody 2, Bob Odenkirk, Action
+
+Tue, 28 Jul 2026 19:16:15 GMT
+
+https://collider.com/bob-odenkirk-action-thriller-nobody-streaming-success-peacock-july-2026/
+
+Bob Odenkirk’s $57 million action thriller Nobody is finding another huge audience on streaming five years after its release.
+---------
+
+# ‘Fire Country’ Season 5 Leads CBS’ Massive October 9 Premiere Night
+
+TV News, CBS, Sheriff Country, Fire Country, Boston Blue
+
+Tue, 28 Jul 2026 19:00:15 GMT
+
+https://collider.com/cbs-new-seasons-sheriff-country-fire-country-boston-blue-release-date-october-2026/
+
+CBS officially announces that new seasons of Sheriff Country, Fire Country, and Boston Blue are all returning on Friday, October 9.
+---------
+
+# ‘Stargate’ Creator’s New Sci-Fi Series Returns for Season 3 Tomorrow
+
+TV News, Stargate, Dean Devlin, The Ark, Stargate SG-1
+
+Tue, 28 Jul 2026 18:40:14 GMT
+
+https://collider.com/stargate-dean-devlin-underrated-sci-fi-experiment-the-ark-season-3-release-date/
+
+As fans await news on the cancelled Stargate revival, The Ark returns for its third and best season yet on Syfy in 24 hours.
+---------
+
+# A Cult-Classic '70s Sci-Fi Officially Returns With New Sequel Trailer 45+ Years Later
+
+Movie News, Attack of the Killer Tomatoes!, Return of the Killer Tomatoes!, Comedy, Horror
+
+Tue, 28 Jul 2026 18:25:52 GMT
+
+https://collider.com/attack-of-the-killer-tomatoes-organic-intelligence-sequel-trailer/
+
+Watch the ‘Attack of the Killer Tomatoes: Organic Intelligence trailer ahead of the long-awaited sequel’s theatrical release this August.
+---------
+
+# 15 Years Later, Titus Welliver's Acclaimed Crime Thriller Is a Netflix Streaming Hit
+
+Movie News, The Town, Titus Welliver, Action, Ben Affleck
+
+Tue, 28 Jul 2026 18:25:14 GMT
+
+https://collider.com/titus-welliver-the-town-streaming-success-netflix-july-2026/
+
+Titus Welliver's Oscar-nominated crime thriller The Town is quietly climbing Netflix’s charts more than 15 years later. Find out more here.
+---------
+
+# Evan Peters' Hit Thriller Series Takes a Page Out of the MCU for Upcoming Season
+
+TV News, American Horror Story, Evan Peters
+
+Tue, 28 Jul 2026 19:55:57 GMT
+
+https://movieweb.com/american-horror-story-evan-peters-season-13-crossover/
+
+Season 13 of 'American Horror Story' is confirmed to bring in beloved characters from all corners of the franchise.
+---------
+
+# 'Resident Evil' Director Reveals the '80s Action Classic That Inspired the Long-Awaited Survival Thriller Reboot
+
+Movie News, Resident Evil, Zach Cregger
+
+Tue, 28 Jul 2026 19:53:30 GMT
+
+https://movieweb.com/zach-cregger-resident-evil-movie-die-hard/
+
+The director behind 'Barbarian' and 'Weapons' looked to the classics for shaping his horror action film.
+---------
+
+# Netflix's New 8-Part Western Remains One of the Biggest Shows on Streaming
+
+TV News, Little House on the Prairie, Hot on Streaming, Western, Netflix
+
+Tue, 28 Jul 2026 19:10:30 GMT
+
+https://movieweb.com/little-house-on-the-prairie-netflix-hit-western-streaming-july-2026/
+
+Nearly three weeks after its release, Netflix's hot new Western continues to prove why it's a force to be reckoned with on streaming.
+---------
+
+# Gerard Butler's 109-Minute Sci-Fi Action Flop Crashes Onto Free Streaming
+
+Movie News, Gerard Butler, Geostorm, Coming/Leaving Streaming
+
+Tue, 28 Jul 2026 19:00:12 GMT
+
+https://movieweb.com/gerard-butler-geostorm-free-streaming-tubi-august-2026/
+
+There's just something about Gerard Butler saving the world.
+---------
+
+# Apple TV's Long-Awaited Epic Fantasy Adaptation Crosses Major Milestone
+
+Movie News, Mistborn, Brandon Sanderson, Apple TV, Fantasy
+
+Tue, 28 Jul 2026 18:28:12 GMT
+
+https://movieweb.com/apple-tv-mistborn-movie-script-complete/
+
+Apple could finally have its answer to 'Game of Thrones.'
+---------
+
+# Near-Perfect $800M Action Fantasy Epic Officially Makes Streaming Debut 11 Months Later
+
+Movie News, Demon Slayer: Kimetsu no Yaiba Infinity Castle
+
+Tue, 28 Jul 2026 18:23:25 GMT
+
+https://movieweb.com/demon-slayer-infinity-castle-streaming-july-crunchyroll/
+
+The action-packed fantasy epic is finally available to watch at home.
+---------
+
+# Dexter Is Officially Back in First Look at 'Resurrection' Season 2
+
+TV News, Dexter: Resurrection
+
+Tue, 28 Jul 2026 18:09:55 GMT
+
+https://movieweb.com/dexter-resurrection-season-2-first-look-images/
+
+Paramount+ releases first-look images from Dexter: Resurrection season 2, showcasing Dexter and Charley Brown's unexpected friendship and hinting at a new villain. The show returns with a focus on Dexter's mid-life crisis and Harrison's pursuit of justice.
+---------
+
 # Netflix's 5-Season Sci-Fi Series Quietly Passes 1.2 Billion Minutes Viewed
 
 TV, Masked Recs
@@ -5100,400 +5496,4 @@ Mon, 27 Jul 2026 03:15:42 GMT
 https://screenrant.com/best-action-series-2026/
 
 Quiet a few action packed thrillers have premiered on the small screen in 2026, but only a handful of these shows have managed to leave their mark.
----------
-
-# Every Baldur’s Gate 3 Romance Option, Ranked Worst To Best
-
-Gaming, Baldur's Gate 3, Baldur's Gate
-
-Mon, 27 Jul 2026 03:00:13 GMT
-
-https://screenrant.com/baldurs-gate-3-romance-options-bg3-worst-best/
-
-Players in Baldur's Gate 3 can choose any of their traveling companions to begin a romance with. However which ones are worth the time to woo?
----------
-
-# 7 Anime Episodes That Broke The Internet
-
-Anime, Dragon Ball Super
-
-Mon, 27 Jul 2026 03:00:11 GMT
-
-https://screenrant.com/anime-episodes-broke-internet/
-
-From shocking reveals to iconic transformations, these legendary anime episodes took over the internet and made history.
----------
-
-# God Of War Laufey Avoided GTA 6, But There's Still A Major Problem
-
-Gaming, God of War Laufey, God of War, Triple-A Games
-
-Mon, 27 Jul 2026 03:00:11 GMT
-
-https://screenrant.com/god-of-war-laufey-release-date-february-2027/
-
-God of War Laufey has dodged the proverbial release date bullet by avoiding Grand Theft Auto 6, but is February really better than November?
----------
-
-# Everything We Know About American Horror Story Season 13
-
-TV, American Horror Story
-
-Mon, 27 Jul 2026 04:50:52 GMT
-
-https://www.cbr.com/american-horror-story-season-13-release-date-cast-plot/
-
-American Horror Story Season 13 returns in 2026. Get the premiere date, confirmed cast, Coven connections and latest plot details.
----------
-
-# Tracker’s Season 4 Strategy Makes CBS History for Justin Hartley’s Show
-
-TV, Tracker, CBS
-
-Mon, 27 Jul 2026 04:26:04 GMT
-
-https://www.cbr.com/cbs-justin-hartely-tracker-season-4-historic-los-angeles-location-change/
-
-Tracker Season 4's new strategy will officially make history for Justin Hartley's CBS show, which he executive produces and leads as Colter Shaw.
----------
-
-# Beth Dutton’s Best Yellowstone Line Quietly Set Up Dutton Ranch Better Than the Finale
-
-TV, Yellowstone, Dutton Ranch
-
-Mon, 27 Jul 2026 04:00:20 GMT
-
-https://www.cbr.com/beth-dutton-yellowstone-season-5-quote-predict-dutton-ranch/
-
-An outstanding Beth Dutton quote in Yellowstone Season 5 acts as a prophecy for her and Rip's sequel, Dutton Ranch, making it one of her best.
----------
-
-# 5 Near-Perfect One-Season Anime That Never Got Renewed
-
-Anime, Ouran High School Host Club, Stars Align
-
-Mon, 27 Jul 2026 03:46:15 GMT
-
-https://www.cbr.com/near-perfect-one-season-anime-never-got-renewed-list/
-
-Anime like Death Parade and Ouran High School Host Club are single-season masterpieces that weren't renewed, leaving a legacy of unfinished potential.
----------
-
-# It's Officially The End of an Era For The Punisher After 37 Years
-
-Movies, The Punisher, Spider-Man: Brand New Day, Marvel
-
-Mon, 27 Jul 2026 03:40:15 GMT
-
-https://www.cbr.com/spider-man-brand-new-day-punisher-end-of-r-rated-era/
-
-The Punisher's next live-action appearance will officially break a 37-year-old rule for the character.
----------
-
-# 6 Years Later, Hatsune Miku's Discontinued Video Game Series Is Finally Coming Back
-
-Anime, Hatsune Miku
-
-Mon, 27 Jul 2026 03:30:15 GMT
-
-https://www.cbr.com/hatsune-miku-graphy-collection-return/
-
-Hatsune Miku fans can begin celebrating the return of one of the most unexpected genre titles of the past decade, and it's coming soon.
----------
-
-# HBO's New Fantasy Series Is a Better Game of Thrones Replacement Than House of the Dragon
-
-TV, HBO Max, Harry Potter, Game Of Thrones
-
-Mon, 27 Jul 2026 03:30:15 GMT
-
-https://www.cbr.com/hbo-harry-potter-reboot-fantasy-got-house-of-the-dragon-replacement/
-
-HBO's next era-defining fantasy hit promises to magically captivate an all-new generation of fans, even more than the House of the Dragon franchise.
----------
-
-# 10 Best Tactical RPGs of All Time, Ranked
-
-Games, Fire Emblem, Final Fantasy, Marvel
-
-Mon, 27 Jul 2026 03:15:16 GMT
-
-https://www.cbr.com/best-tactical-rpgs-of-all-time-ranked/
-
-The best tactical RPGs bring together incredible stories, beautiful presentation, and highly strategic gameplay.
----------
-
-# Netflix’s Best Fantasy Series Officially Beats Game of Thrones at Its Own Game
-
-Anime, One Piece, Netflix, Game Of Thrones
-
-Mon, 27 Jul 2026 03:10:15 GMT
-
-https://www.cbr.com/netflix-one-piece-game-of-thrones-successor-new-season/
-
-Game of Thrones proved fantasy TV shows could find a massive audience, but one Netflix adaptation beats it at its own game.
----------
-
-# 5 Greatest RPGs You Can Beat in 20 Hours or Less
-
-Games, Video Games, Super Mario RPG: Legend of the Seven Stars, Final Fantasy
-
-Mon, 27 Jul 2026 02:45:15 GMT
-
-https://www.cbr.com/greatest-rpgs-can-beat-20-hours-or-less/
-
-Not everyone has all day to play RPGs or JRPGs, so it's fortunate that some of the best can be finished in under twenty hours of play time.
----------
-
-# The Streaming Era’s Biggest Mistake Is Officially Impossible To Ignore
-
-TV Features, Apple TV, Prime Video, Netflix, Streaming Services
-
-Mon, 27 Jul 2026 03:02:15 GMT
-
-https://collider.com/streaming-services-physical-media-blu-ray-mistake/
-
-Netflix, Apple TV+, Disney+, Prime Video, and other streamers need to embrace Blu-ray and 4K releases to protect shows from disappearing.
----------
-
-# The Targaryen Family Tree From 'House of the Dragon' to 'Game of Thrones'
-
-TV Features, House of the Dragon, Game Of Thrones, A Song of Ice and Fire, A Knight Of The Seven Kingdoms
-
-Mon, 27 Jul 2026 02:05:15 GMT
-
-https://collider.com/targaryen-family-tree-game-of-thrones-house-of-the-dragon/
-
-Explaining the complex Targaryen family tree from House of the Dragon, A Knight of the Seven Kingdoms, and Game of Thrones.
----------
-
-# 'House of the Dragon' Finally Delivers the Moment Fans Have Been Waiting For | Review
-
-TV Reviews, House of the Dragon, Game Of Thrones, HBO Max, Fabien Frankel
-
-Mon, 27 Jul 2026 02:00:25 GMT
-
-https://collider.com/house-of-the-dragon-season-3-episode-6-review/
-
-The moment that many House of the Dragon fans have been waiting for has finally arrived in Season 3's latest episode.
----------
-
-# 'House of the Dragon' and 'The Legend of Zelda' Share Another Link Besides Benjamin Evan Ainsworth
-
-Exclusives, House of the Dragon, Benjamin Evan Ainsworth, HBO, The Legend of Zelda
-
-Mon, 27 Jul 2026 02:00:25 GMT
-
-https://collider.com/house-of-the-dragon-season-3-episode-6-daeron-benjamin-evan-ainsworth/
-
-Benjamin Evan Ainsworth discusses House of the Dragon's surprising link to the Legend of Zelda movie and his "most Game of Thrones day ever" on set.
----------
-
-# 10 Perfect HBO Shows With 5 Seasons or Less
-
-TV, HBO, The Wire, Succession, Westworld
-
-Mon, 27 Jul 2026 01:22:16 GMT
-
-https://collider.com/perfect-hbo-shows-shorter-than-5-seasons/
-
-Explore the best HBO series that concluded within five seasons, including acclaimed shows like The Wire, Succession, and Westworld.
----------
-
-# 'House of the Dragon' Just Confirmed Its Arya Stark Replacement
-
-Features, House of the Dragon, Game Of Thrones
-
-Mon, 27 Jul 2026 02:05:12 GMT
-
-https://movieweb.com/house-of-the-dragon-alysanne-blackwood-arya-replacement/
-
-A major book change just gave this character the Arya Stark treatment at a pivotal moment in Season 3, Episode 6.
----------
-
-# 16 Biggest Questions After 'House of the Dragon' Season 3, Episode 6
-
-TV Lists, House of the Dragon
-
-Mon, 27 Jul 2026 02:00:22 GMT
-
-https://movieweb.com/house-of-the-dragon-season-3-episode-6-big-questions/
-
-'House of the Dragon' is a complicated show, so here are all of your questions in one place, without any book spoilers.
----------
-
-# 'House of the Dragon' S3E6 Review: Another Bold Step Towards an Epic Battle
-
-TV Reviews, House of the Dragon
-
-Mon, 27 Jul 2026 02:00:22 GMT
-
-https://movieweb.com/house-of-the-dragon-season-3-episode-6-review-recap/
-
-The tide is turning in 'House of the Dragon' Season 3, Episode 6, taking us to fascinating places.
----------
-
-# 8 Visually Stunning Sci-Fi Shows That Set New Standards With Storytelling
-
-TV, Sci-Fi
-
-Mon, 27 Jul 2026 01:00:12 GMT
-
-https://screenrant.com/best-sci-fi-shows-stunning-visuals/
-
-The sci-fi genre is made for innovation, and many excellent sci-fi TV shows have pushed the boundaries of both aesthetic style and storytelling.
----------
-
-# Peaky Blinders Meets Bosch In The Best New Gangster Show
-
-Streaming TV, Masked Recs
-
-Mon, 27 Jul 2026 00:45:11 GMT
-
-https://screenrant.com/peaky-blinders-bosch-mgm-the-westies-gangster-tv-show/
-
-The best new gangster show, featuring actor Titus Welliver, carries the narrative DNA of Peaky Blinders and Bosch, making it an entertaining watch.
----------
-
-# Robert Downey Jr. Reveals the OG X-Men He "Nerded Out" Over On Avengers: Doomsday Set
-
-Movies, Avengers: Doomsday
-
-Mon, 27 Jul 2026 00:30:54 GMT
-
-https://screenrant.com/robert-downey-jr-og-x-men-nerded-out-avengers-doomsday-set/
-
-Marvel star Robert Downey Jr. reveals which two original X-Men made him "nerd out" while filming on the set of Avengers: Doomsday.
----------
-
-# 7 Ocarina Of Time Mysteries The Remake Needs To Expand On
-
-Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda, Triple-A Games
-
-Mon, 27 Jul 2026 00:30:12 GMT
-
-https://screenrant.com/zelda-ocarina-of-time-remake-mysteries-lore/
-
-Ocarina of Time's upcoming remake is an opportunity to elucidate some of the game's lingering mysteries and make Hyrule feel more cohesive.
----------
-
-# Modern Family's 15 Highest-Rated Episodes
-
-Classic TV, Modern Family
-
-Mon, 27 Jul 2026 00:30:12 GMT
-
-https://screenrant.com/modern-family-best-episodes-highest-rated-imdb/
-
-Modern Family produced 250 episodes during its Emmy-winning, 11-season run. These 15 memorable episodes have the highest audience rating on IMDb.
----------
-
-# 10 Greatest Western Movie Showdowns & Gunfights Of All Time, Ranked
-
-Classic Movies, Western
-
-Mon, 27 Jul 2026 00:10:11 GMT
-
-https://screenrant.com/greatest-western-movie-showdown-gunfights/
-
-Western movies live and die by the final battles, and since most end with showdowns and gunfights, here are the best moments in the genre's history.
----------
-
-# Marvel Makes Hardcore Design Change To Founding X-Men Hero
-
-Marvel Comics, X-Men
-
-Mon, 27 Jul 2026 00:00:11 GMT
-
-https://screenrant.com/x-men-xforce-redesign-angel/
-
-Marvel's new X-Men team receives a futuristic upgrade that grants one of mutantkind's first superheroes a weapon they rarely get to use.
----------
-
-# New Lord Of The Rings RPG Can’t Ignore A Legendary Piece Of Tolkien Lore
-
-Gaming, The Lord of the Rings, Triple-A Games
-
-Mon, 27 Jul 2026 00:00:11 GMT
-
-https://screenrant.com/lord-of-the-rings-rpg-weapon-names-lore/
-
-The upcoming Lord of the Rings/Middle-earth RPG could be a bounteous feast of rich open-world features, and weapons have a chance to be iconic.
----------
-
-# The Best American Sports Series Of All Time Has Nothing To Do With American Sports
-
-Streaming TV, Masked Recs
-
-Sun, 26 Jul 2026 23:45:11 GMT
-
-https://screenrant.com/ted-lasso-best-american-sports-tv-show/
-
-The greatest American sports series of all time has nothing to do with American sports and still continues to deliver one epic seasons after another.
----------
-
-# Amy Adams' 10-Part Thriller Is Rising on Streaming Ahead of Season Finale
-
-TV, Cape Fear, Thriller, Apple TV
-
-Mon, 27 Jul 2026 01:00:16 GMT
-
-https://www.cbr.com/amy-adams-cape-fear-thriller-apple-tv-success-july-2026/
-
-Amy Adams' latest thriller series based on a best-selling novel, Cape Fear, is rising on streaming ahead of finale.
----------
-
-# 4 American Anime Series That Are 10/10 Masterpieces
-
-Anime, Arcane, Avatar: The Last Airbender
-
-Mon, 27 Jul 2026 00:45:15 GMT
-
-https://www.cbr.com/american-anime-series-flawless-masterpieces-list/
-
-Proper anime come from Japan, but there are some impressive American animated series like Arcane and Megas XLR that capture the same magic and energy.
----------
-
-# 10 Long RPGs That Take Forever to Complete
-
-Games, RPG, JRPG, Steam, Baldur's Gate 3, Persona 5 Royal
-
-Mon, 27 Jul 2026 00:30:16 GMT
-
-https://www.cbr.com/long-rpgs-that-take-forever-to-complete/
-
-RPGs are generally known for being long and in-depth affairs, but some are notoriously brutal when it comes to their lengthy completion times.
----------
-
-# The Best John Wick Line is Still the Greatest Quote in Action Movie History
-
-Movies, John Wick, Keanu Reeves
-
-Mon, 27 Jul 2026 00:30:16 GMT
-
-https://www.cbr.com/john-wick-best-line-in-action-movie-history/
-
-John Wick may not be very verbose, but he still delivers one of the best lines in action movie history.
----------
-
-# 5 Cartoon Network Anime Every New Fan Needs to Watch Once
-
-Anime, Dragon Ball Z, Sailor Moon
-
-Mon, 27 Jul 2026 00:15:15 GMT
-
-https://www.cbr.com/classic-cartoon-network-anime-for-new-fans/
-
-A handful of anime that aired on Cartoon Network remain essential viewing for anyone exploring the medium.
----------
-
-# Dynamite Entertainment's October 2026 Solicitations
-
-Comics, dynamite entertainment
-
-Mon, 27 Jul 2026 00:04:19 GMT
-
-https://www.cbr.com/supernatural-archie-terminator-dynamite-october-2026-solicitations/
-
-The Winchester brothers go their separate ways in a new Supernatural era, and Archie meets the Terminator in Dynamite's October 2026 solicitations
 ---------
