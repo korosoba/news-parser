@@ -1,3 +1,355 @@
+# Netflix's 5-Season Sci-Fi Series Quietly Passes 1.2 Billion Minutes Viewed
+
+TV, Masked Recs
+
+Tue, 28 Jul 2026 18:04:47 GMT
+
+https://screenrant.com/netflix-the-last-ship-billion-minutes-viewed-july-2026/
+
+Netflix's five-season sci-fi series quietly sails past over 1.2 billion minutes viewed shortly after its release on the streaming service.
+---------
+
+# The Office's Sequel Reveals What Went Wrong With 2020s Sitcoms
+
+TV, Masked Recs
+
+Tue, 28 Jul 2026 18:01:11 GMT
+
+https://screenrant.com/the-paper-office-sequel-2020s-sitcoms-problem/
+
+The Paper's failure to replicate The Office's success highlights a bigger issue with 2020s sitcoms, leading to the genre's slow death on streaming.
+---------
+
+# 6 Movie Tie-In Games Of The PS2 Era That Were Actually Amazing
+
+Gaming, PlayStation 2
+
+Tue, 28 Jul 2026 18:00:11 GMT
+
+https://screenrant.com/6-movie-tie-in-games-that-are-amazing/
+
+The PlayStation 2 actually had several really great movie tie-in games that did a great job of adapting the big screen experience to our TVs.
+---------
+
+# Jujutsu Kaisen Interview with Adam McArthur at SDCC 2026
+
+Anime, Jujutsu Kaisen, San Diego Comic-Con
+
+Tue, 28 Jul 2026 17:57:35 GMT
+
+https://screenrant.com/video/jujutsu-kaisen-season-3-adam-mcarthur-interview-sdcc-2026/
+
+Voice actor Adam McArthur discusses how he views Yuji Itadori's story in Jujutsu Kaisen, and how his own love of martial arts influences his acting work.
+---------
+
+# Who Is Alysanne Blackwood? Criston Cole's Executioner & House Of The Dragon Changes Explained
+
+Streaming TV, House of the Dragon, Game of Thrones, House of the Dragon - Season 3
+
+Tue, 28 Jul 2026 17:30:11 GMT
+
+https://screenrant.com/house-of-the-dragon-alysanne-blackwood-explained/
+
+Alysanne Blackwood - AKA Black Aly - got the best kill of House of the Dragon season 3 so far, though that's not quite what happened in canon.
+---------
+
+# Werewolf By Night 2 Return Gets New Status Update From MCU Director
+
+Movies, Marvel's Werewolf By Night, Marvel Cinematic Universe, Horror
+
+Tue, 28 Jul 2026 17:27:36 GMT
+
+https://screenrant.com/werewolf-by-night-2-mcu-status-update-michael-giacchino/
+
+Exclusive: Director Michael Giacchino offers an exciting new status update on Werewolf by Night 2 and his potential return to helm the MCU sequel.
+---------
+
+# James Cameron's Cyberpunk Action Epic Is About To Lose Major Streaming Home
+
+Movies, Masked Recs
+
+Tue, 28 Jul 2026 17:25:04 GMT
+
+https://screenrant.com/james-cameron-alita-battle-angel-leaving-streaming-july-2026/
+
+One of James Cameron’s most passionately defended cyberpunk action movies is about to become harder to watch, as it’s slated to its main streamer.
+---------
+
+# Spider-Man: Brand New Day Interview with Tom Holland, Jacob Batalon & Jon Bernthal
+
+Videos, Spider-Man: Brand New Day, Spider-Man, Tom Holland
+
+Tue, 28 Jul 2026 17:17:28 GMT
+
+https://screenrant.com/video/spider-man-brand-new-day-tom-holland-jacob-batalon-jon-bernthal-interview/
+
+Spider-Man: Brand New Day stars Tom Holland, Jacob Batalon, and Jon Bernthal discuss Peter Parker's role in the Avengers moving forward and dynamic with the Punisher.
+---------
+
+# George R.R. Martin’s Long-Awaited A Song Of Ice & Fire Spinoff Book Gets Exciting New Update
+
+Books, A Song of Ice and Fire, George R.R. Martin
+
+Tue, 28 Jul 2026 17:10:47 GMT
+
+https://screenrant.com/george-r-r-martin-new-game-thrones-book-confirmed-dunk-egg-4/
+
+George R.R. Martin's long-awaited spinoff book for A Song of Ice and Fire gets an exciting new update as the world of Westeros keeps expanding.
+---------
+
+# 15 Best Spider-Man and Wolverine Team-Ups, Ranked
+
+Comics, Spider-Man, Wolverine
+
+Tue, 28 Jul 2026 18:01:15 GMT
+
+https://www.cbr.com/best-spider-man-and-wolverine-team-ups/
+
+Among the many superhero team-ups in comics, few are as satisfying as when Spider-Man and Wolverine meet each other for another amazing adventure.
+---------
+
+# Absolute Batman's Ark-M Special Officially Confirmed by DC
+
+Comics, Batman, San Diego Comic-Con
+
+Tue, 28 Jul 2026 18:01:15 GMT
+
+https://www.cbr.com/dc-absolute-batman-ark-m-special-2026/
+
+DC Comics just gave Absolute Batman fans their first look at all the horror to come in the next Ark-M special, and it is even worse than last time.
+---------
+
+# Netflix's New 6-Part Creature Feature Unveils Dread-Filled Trailer
+
+TV, Below, Netflix, Thriller
+
+Tue, 28 Jul 2026 17:48:33 GMT
+
+https://www.cbr.com/below-josh-hartnett-netflix-trailer/
+
+Netflix released an eerie new trailer for Below, a thriller starring Josh Hartnett
+---------
+
+# Spider-Man: Brand New Day Continues MCU Rotten Tomatoes Trend
+
+Movies, Marvel Cinematic Universe, Spider-Man: Brand New Day
+
+Tue, 28 Jul 2026 17:30:15 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-certified-fresh-mcu-trend/
+
+Only days before Spider-Man: Brand New Day hits theaters, a new reveals confirms it's continuing an incredible MCU trend for the wall-crawler.
+---------
+
+# X-Men ’97 Needs to Let Its Most Important Death Stay Permanent
+
+TV, X-Men '97, X-Men, Magneto
+
+Tue, 28 Jul 2026 17:30:15 GMT
+
+https://www.cbr.com/x-men-97-season-2-magneto-death/
+
+Marvel's hit animated series X-Men '97 brought life and death stakes to its Mutant Saga, and its most painful one for fans can't be undone.
+---------
+
+# 17 Years Later, Evangelion Brings Back Unit-01's Strongest Transformation
+
+Anime, Neon Genesis Evangelion, Rebuild of Evangelion, merchandise, Evangelion: 2.0 You Can (Not) Advance, action figures
+
+Tue, 28 Jul 2026 17:20:15 GMT
+
+https://www.cbr.com/evangelion-eva-test-type-01-threezero-robo-dou/
+
+A new Evangelion figure from threezero is set to recreate a pivotal scene from the Rebuild of Evangelion movies, complete with UV-reactive armor.
+---------
+
+# 5 Greatest Open-World RPGs of the 2020s, Ranked
+
+Games, Elden Ring, Baldur's Gate 3, The Legend of Zelda: Tears of the Kingdom
+
+Tue, 28 Jul 2026 17:15:15 GMT
+
+https://www.cbr.com/greatest-open-world-rpgs-2020s-ranked/
+
+Open-world RPGs have taken a step forward in immersive experiences in the 2020s, and these five titles stand as the undisputed best of them all.
+---------
+
+# Apple TV's Highly-Anticipated Revival Series Officially Returns in 1 Week
+
+TV, Ted Lasso, Apple TV, Comedy
+
+Tue, 28 Jul 2026 17:05:22 GMT
+
+https://www.cbr.com/ted-lasso-season-4-trailer-apple-tv/
+
+Ted Lasso returns to Apple TV in the new trailer for Season 4
+---------
+
+# Fallout Officially Celebrates 40th Anniversary With 2 Releases On July 30
+
+Games, Fallout, Bethesda Softworks, Fallout New Vegas
+
+Tue, 28 Jul 2026 17:05:15 GMT
+
+https://www.cbr.com/fallout-official-new-release-40th-anniversary-july-30/
+
+Bethesda has announced new Fallout releases to celebrate its 40th anniversary, giving players the chance to rock the Vault Dweller aesthetic.
+---------
+
+# 10 Perfect Horror Movies Based on Books
+
+Movie, Horror, The Exorcist, The Haunting, Ringu
+
+Tue, 28 Jul 2026 17:52:14 GMT
+
+https://collider.com/perfect-horror-movies-based-on-books-ranked/
+
+The Silence of the Lambs, Ringu, and Rosemary's Baby are among the greatest, truly perfect horror movies that were adapted from great books.
+---------
+
+# Peacock Will Officially Be Free in 2027
+
+TV News, Peacock, youtube premium, YouTube, NBCUniversal
+
+Tue, 28 Jul 2026 17:40:15 GMT
+
+https://collider.com/youtube-premium-adding-peacock-free-early-2027/
+
+NBCUniversal and YouTube are teaming up to make Peacock a free addition to YouTube Premium starting in early 2027.
+---------
+
+# Vin Diesel and Jason Statham's Action Masterpieces Soar Onto Streaming Charts
+
+Movie News, Vin Diesel, Fast Five, Furious 7, Peacock
+
+Tue, 28 Jul 2026 17:25:14 GMT
+
+https://collider.com/vin-diesel-fast-five-furious-7-streaming-success-peacock-july-2026/
+
+A pair of Vin Diesel and Jason Statham action blockbusters are proving a popular double feature on Peacock. Get all the details here.
+---------
+
+# 'Firefly’s Long-Awaited Return Officially Hits a Major Roadblock
+
+TV News, Firefly, Nathan Fillion, Alan Tudyk, Joss Whedon
+
+Tue, 28 Jul 2026 17:19:50 GMT
+
+https://collider.com/firefly-animated-series-network-streaming-update/
+
+Nathan Fillion shares an update on the animated Firefly revival, which remains in development but has not yet found a network or streamer.
+---------
+
+# Forget 'Obsession,' This Sleeper Horror Hit Is Quietly Becoming a Cult Classic
+
+Movie News, Forbidden Fruits, Horror, Lola Tung, AMC+
+
+Tue, 28 Jul 2026 17:15:15 GMT
+
+https://collider.com/forbidden-fruits-streaming-success-amc-plus-july-2026/
+
+A sleeper 2026 horror gem is heading into cult classic territory thanks to continued streaming success. Here's everything you should know.
+---------
+
+# CBS Officially Confirms Early Return for Revamped NCIS Slate
+
+TV News, NCIS, NCIS: New York, CBS, NCIS: Origins
+
+Tue, 28 Jul 2026 17:04:18 GMT
+
+https://collider.com/ncis-new-york-origins-cbs-fall-release-date-tuesday-october-6/
+
+CBS has set a release date for NCIS: New York, NCIS: Origins Season 3, and NCIS Season 24.
+---------
+
+# 'The Wheel of Time' Author's Apple TV Fantasy Epic Gets Its Biggest Update Yet
+
+Movie News, Mistborn, Brandon Sanderson, Apple TV, Fantasy
+
+Tue, 28 Jul 2026 16:59:02 GMT
+
+https://collider.com/brandon-sanderson-mistborn-movie-script-update/
+
+Brandon Sanderson's Mistborn movie at Apple TV has taken its biggest step forward yet with a huge update from the legendary fantasy author.
+---------
+
+# Jason Statham Officially Crowned the King of Streaming With 2 Chart-Topping Action Hits
+
+Movie News, Jason Statham, A Working Man, Shelter, Prime Video
+
+Tue, 28 Jul 2026 16:58:21 GMT
+
+https://collider.com/jason-statham-shelter-a-working-man-streaming-success-prime-video-july-2026/
+
+Ahead of The Beekeeper 2, Jason Statham fans are flocking to check out two of his most recent movies on Prime Video.
+---------
+
+# 8 Best Starship Pilots in Star Trek Canon, Ranked
+
+TV Lists, Star Trek
+
+Tue, 28 Jul 2026 18:01:12 GMT
+
+https://movieweb.com/star-trek-best-starship-pilots/
+
+Star Trek is filled with characters who are very trustworthy at the helm, but there's only one who can get the top spot. Read on for more.
+---------
+
+# 'Evil Dead Burn' Officially Lands Digital Streaming Release Date
+
+Movie News, Evil Dead Burn
+
+Tue, 28 Jul 2026 17:08:14 GMT
+
+https://movieweb.com/evil-dead-burn-digital-streaming-date/
+
+Warner Bros. has announced 'Evil Dead Burn' will be available for digital purchase and rental after less than a month in theaters.
+---------
+
+# Apple TV's Hit Sci-Fi Adaptation Officially Replaces Its Best Original Character
+
+Features, Dark Matter
+
+Tue, 28 Jul 2026 17:00:12 GMT
+
+https://movieweb.com/dark-matter-season-2-detective-mason-replaced/
+
+Blake Crouch's 'Dark Matter' book didn't have enough characters to be adapted, so more were created. Season 2 is doing it again. Read on for more.
+---------
+
+# Master of the House Ending, Explained
+
+Features, Netflix, Drama, Mystery
+
+Tue, 28 Jul 2026 17:00:12 GMT
+
+https://movieweb.com/master-of-the-house-ending-explained/
+
+'Master of the House' was an international sensation, but fans still had questions about the ending: here is the ending explained.
+---------
+
+# 'Children of Blood and Bone' Trailer Brings Epic Fantasy Bestseller to Live-Action
+
+Movie News, Children of Blood and Bone
+
+Tue, 28 Jul 2026 16:59:56 GMT
+
+https://movieweb.com/children-of-blood-and-bone-trailer/
+
+The first teaser for Children of Blood and Bone has arrived, offering a proper look at the live-action adaptation of Tomi Adeyemi's bestselling novel.
+---------
+
+# Netflix Officially Confirms Tom Hanks' Replacement in Dan Brown Reboot
+
+Movie News, Netflix, The Da Vinci Code, Tom Hanks
+
+Tue, 28 Jul 2026 16:55:51 GMT
+
+https://movieweb.com/netflix-dan-brown-series-morgan-spector-robert-langdon/
+
+Netflix has confirmed that Morgan Spector is replacing Tom Hanks as Robert Langdon in the series adaptation of Dan Brown's 'The Secret of Secrets.'
+---------
+
 # Supergirl's Second Chance At Success Begins Today
 
 Superheroes, Supergirl, DC Universe
@@ -5144,356 +5496,4 @@ Mon, 27 Jul 2026 00:04:19 GMT
 https://www.cbr.com/supernatural-archie-terminator-dynamite-october-2026-solicitations/
 
 The Winchester brothers go their separate ways in a new Supernatural era, and Archie meets the Terminator in Dynamite's October 2026 solicitations
----------
-
-# The $497M Epic Masterpiece That Christopher Nolan Lost Before The Odyssey Is Getting A New Streaming Home
-
-Movies, Troy, The Odyssey, Christopher Nolan
-
-Mon, 27 Jul 2026 00:00:15 GMT
-
-https://www.cbr.com/troy-historical-epic-peacock-august-2026/
-
-As The Odyssey soars, the film that could've been Christopher Nolan's first historical epic is changing streaming homes.
----------
-
-# Netflix Finally Reverses Course on Major Anime Problem With 25-Episode Update
-
-Anime, Netflix, Gintama
-
-Mon, 27 Jul 2026 00:00:15 GMT
-
-https://www.cbr.com/netflix-gintama-english-subtitles-fixed-season-2/
-
-The screwball comedy anime, Gintama, receives a much-needed update, allowing fans to enjoy even more wacky adventures with Gintoki and company.
----------
-
-# 5 Hard-Sci Fi Anime That Were Ahead of Their Time
-
-Anime, Ghost in the Shell, Serial Experiments Lain, Planetes, Sci-Fi
-
-Sun, 26 Jul 2026 23:45:15 GMT
-
-https://www.cbr.com/hard-sci-fi-anime-ahead-of-their-time/
-
-Hard sci-fi anime's thoughtful approach to making the seemingly impossible possible often puts it way ahead of its time.
----------
-
-# Avengers: Doomsday Must Explain This Plot Hole From Avengers: Endgame
-
-Movies, Avengers: Doomsday
-
-Sun, 26 Jul 2026 23:45:15 GMT
-
-https://www.cbr.com/avengers-endgame-time-travel-plot-hole-ruined-doomsday/
-
-The Marvel Cinematic Universe's next Avengers film will need to finally explain this canon-breaking scene from the end of Avengers: Endgame.
----------
-
-# Netflix Officially Sets Release Date for New 6-Part British Crime Miniseries
-
-TV News, Netflix, Crime, Drama, The Bombing of Pan Am 103
-
-Mon, 27 Jul 2026 01:00:16 GMT
-
-https://collider.com/netflix-the-bombing-of-pan-am-103-release-date-july-30-2026/
-
-Netflix's chilling 6-part miniseries arrives at the end of the month. Get all the details here about the true-story drama.
----------
-
-# 'Avatar' Star's Failed Fantasy Sequel Is a Sudden Streaming Hit 15 Years Later
-
-Movie News, Wrath of the Titans, The Odyssey, Clash of the Titans, Sam Worthington
-
-Mon, 27 Jul 2026 00:30:16 GMT
-
-https://collider.com/wrath-of-the-titans-worst-greek-mythology-movie-coming-to-peacock/
-
-The critically panned Greek mythology epic, Wrath of the Titans, is coming to Peacock soon. Find out when you can watch the film.
----------
-
-# The 10 Darkest Video Games of All Time, Ranked
-
-TV, Video Game, Silent Hill, Horror, Rockstar Games
-
-Mon, 27 Jul 2026 00:02:15 GMT
-
-https://collider.com/darkest-video-games-ranked/
-
-Discover the darkest video games of all time, ranked by their dark themes, mature content, and emotional impact, from Silent Hill 2 to Manhunt.
----------
-
-# 5 Years Later, Tom Hanks' Sci-Fi Gem Is Officially a Global Streaming Smash
-
-Movie News, Finch, Tom Hanks, Apple TV, Sci-Fi
-
-Mon, 27 Jul 2026 00:00:15 GMT
-
-https://collider.com/tom-hanks-sci-fi-gem-finch-streaming-success-apple-tv-july-2026/
-
-After five years, Tom Hanks forgotten sci-fi gem on Apple TV has been resurrected as a global streaming success.
----------
-
-# Taylor Sheridan's Streaming Streak Is Over Thanks to Prime Video's Crime Hit
-
-TV News, Prime Video, Crime, Taylor Sheridan, Cross
-
-Sun, 26 Jul 2026 23:30:15 GMT
-
-https://collider.com/cross-streaming-hit-paramount-plus-july-2026/
-
-Prime Video's best crime adaptation has become an unlikely Paramount+ hit. Here's everything you should know about Aldis Hodge's Cross.
----------
-
-# What Is the Handkerchief Criston Cole Carries In 'House of the Dragon'?
-
-Features, House of the Dragon, HBO Max, Fantasy
-
-Mon, 27 Jul 2026 01:05:12 GMT
-
-https://movieweb.com/handkerchief-criston-cole-alicent-house-of-the-dragon/
-
-Criston Cole holds a particular handkerchief tightly, leading to some questions. But don't worry, you're not the only one who forgot about this.
----------
-
-# 'Black Panther 3': Cast, Story, Release Date, & Everything We Know
-
-Features, Black Panther, Black Panther: Wakanda Forever, MCU's Movie Order (2008 - 2019) - The Infinity Saga (Iron Man - Spider-Man: Far from Home)
-
-Mon, 27 Jul 2026 00:30:13 GMT
-
-https://movieweb.com/black-panther-3-everything-we-know/
-
-'Black Panther III' is set for release after 'Avengers: Secret Wars' and will debut a new Black Panther to the MCU.
----------
-
-# 10 Most Ambitious Movies Of All Time, Ranked
-
-Movies
-
-Sun, 26 Jul 2026 23:15:11 GMT
-
-https://screenrant.com/most-ambitious-movies-all-time-ranked/
-
-Many of the biggest and most creative movies ever made were tackled with an incredible sense of ambition, culminating in these iconic projects.
----------
-
-# The Shining Meets Twin Peaks In Prime Video's 2-Part Thriller
-
-Streaming TV, Masked Recs
-
-Sun, 26 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/the-devils-hour-prime-video-the-shining-meets-twin-peaks/
-
-Few supernatural thrillers are as iconic as Twin Peaks and The Shining, and one Prime Video show has emerged as a worthy spiritual successor.
----------
-
-# 5 Reasons The Brave Little Toaster Is One Of The Most Terrifying Kids Movies Ever Made
-
-Movies, The Brave Little Toaster
-
-Sun, 26 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/why-the-brave-little-toaster-terrifying-kids-movie/
-
-With surprisingly terrifying action and imagery, The Brave Little Toaster is more of a horror movie than an animated kids’ adventure film.
----------
-
-# Fallout New Vegas Remaster Has A Heartbreaking Downside
-
-Gaming, Fallout: New Vegas, Triple-A Games, PC
-
-Sun, 26 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/fallout-new-vegas-remaster-downside-fan-projects/
-
-The Fallout franchise is about to enter a new golden age of gaming, but it has one major caveat for fans of the original Fallout: New Vegas.
----------
-
-# 5 Iconic Anime Characters With Powerful Beings Sealed Inside Them
-
-Anime
-
-Sun, 26 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/iconic-anime-characters-powerful-beings-sealed-away/
-
-The trope of powerful entities residing within regular characters is done to great effect in anime, and these are some of the most iconic examples.
----------
-
-# Alan Ritchson Confirms He’s In Talks With DC About Playing A Mystery Character Who Isn’t Batman
-
-Movies, Alan Ritchson, DC Universe
-
-Sun, 26 Jul 2026 22:52:55 GMT
-
-https://screenrant.com/alan-ritchson-talks-dc-character-not-batman/
-
-Alan Ritchson has confirmed that he will not be the DCU's Batman, but he is in talks with DC Studios about playing another character.
----------
-
-# X-Men Officially Reboots a Classic Team with New Matching Costumes
-
-Comics, X-Men
-
-Sun, 26 Jul 2026 22:30:11 GMT
-
-https://screenrant.com/x-men-outliers-new-mutants-matching-costumes/
-
-Meet the (new) New Mutants.
----------
-
-# Ewan McGregor And Hayden Christensen's Clone Wars Reunion Has Never Been Closer
-
-Streaming TV, Star Wars: The Clone Wars
-
-Sun, 26 Jul 2026 22:30:11 GMT
-
-https://screenrant.com/ahsoka-season-2-ewan-mcgregor-hayden-christensen-clone-wars/
-
-For years now, Star Wars fans have desired a Clone Wars reunion between Hayden Christensen and Ewan McGregor, which is now more likely than ever.
----------
-
-# 4 Years Later, Netflix's 10-Part Legal Drama Is Still the Perfect Binge for Crime Fans
-
-TV, Netflix, Masked Recs
-
-Sun, 26 Jul 2026 22:30:11 GMT
-
-https://screenrant.com/netflix-legal-drama-juvenile-justice-perfect-binge/
-
-One of Netflix's best modern legal dramas reveals a different side of those who wear the judicial robe with the elements of a dark, gritty thriller.
----------
-
-# Star Wars Jedi Officially Returns With New Sequel December 1
-
-Games, Star Wars Jedi: Fallen Order, Star Wars
-
-Sun, 26 Jul 2026 23:25:15 GMT
-
-https://www.cbr.com/star-wars-jedi-official-return-new-sequel-december-1/
-
-The latest Star Wars Jedi: Fallen Order saga is about to come to a close with a brand-new title, and it's only a few months away.
----------
-
-# 10 Most Overpowered Anti-Heroes In Anime, Ranked
-
-Anime, Isekai, Naruto, Dragon Ball
-
-Sun, 26 Jul 2026 23:15:15 GMT
-
-https://www.cbr.com/most-overpowered-anti-heroes-in-anime-ranked/
-
-Anti-heroes often steal the show from extremely strong anime heroes, and they wouldn't be able to do this if they weren't overpowered themselves.
----------
-
-# In Just 1 Day, Karl Urban's $129M Sequel Based on Hit Video Game Is the Most-Watched Movie on HBO Max Globally
-
-Movies, Mortal Kombat II, Mortal Kombat
-
-Sun, 26 Jul 2026 23:00:15 GMT
-
-https://www.cbr.com/karl-urban-mortal-kombat-ii-hbo-max-global-success-july-2026/
-
-The biggest R-rated video game sequel of the year just claimed its spot at the top of the streaming charts, and its predecessor isn't far behind.
----------
-
-# 10 Most Unexpected Sci-Fi Movie Ending Plot Twists
-
-Movies, Sci-Fi, Arrival, The Prestige, Invasion of the Body Snatchers, Ex Machina, Moon, Soylent Green, The Mist, Life, The Empire Strikes Back, Planet of the Apes
-
-Sun, 26 Jul 2026 23:00:15 GMT
-
-https://www.cbr.com/most-shocking-sci-fi-movie-plot-twists-list/
-
-Many incredible sci-fi movies end with a shocking plot twists that recontextualize the entire story and keep us guessing till the very end.
----------
-
-# David Boreanaz’s 7-Season Military Drama Sets Netflix Release
-
-TV, SEAL Team, Paramount Plus, Netflix
-
-Sun, 26 Jul 2026 23:00:15 GMT
-
-https://www.cbr.com/david-boreanaz-seal-team-netflix-release-august-2026/
-
-All seven seasons of the David Boreanaz-led military drama SEAL Team will be coming to Netflix in August.
----------
-
-# The Lord of the Rings: The Rings of Power Stars Reveal What They’d Write in the Red Book
-
-CBR Exclusives, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Fantasy, San Diego Comic-Con
-
-Sun, 26 Jul 2026 22:30:15 GMT
-
-https://www.cbr.com/the-lord-of-the-rings-the-rings-of-power-cast-red-book-westmarch/
-
-The Lord of the Rings: The Rings of Power Season 3 cast opens up about what they would write in Bilbo's Red Book of Westmarch.
----------
-
-# James Norton’s Netflix Crime Thriller Is So Good, It's Already Been Renewed for Season 2
-
-TV Features, House of Guinness, Steven Knight, Anthony Boyle, James Norton
-
-Sun, 26 Jul 2026 23:27:14 GMT
-
-https://collider.com/house-of-guinness-netflix-crime-thriller-james-norton-renewed-season-2/
-
-Netflix's House of Guinness is a thrilling must-watch historical crime drama, and it's already been renewed for Season 2.
----------
-
-# You Can't Call Yourself a Sci-Fi Fan Unless You've Seen These 7 Shows
-
-TV, Sci-Fi, Science Fiction, Black Mirror, The Twilight Zone
-
-Sun, 26 Jul 2026 23:21:14 GMT
-
-https://collider.com/sci-fi-shows-every-fan-should-watch/
-
-Anyone can watch these series, but true sci-fi fans have watched shows like HBO's Westworld, Netflix's Black Mirror, and CBS' The Twilight Zone.
----------
-
-# Forget 'Heat,' Michael Bay's High-Octane Heist Thriller Is Quietly Crushing the Competition on Netflix
-
-Movie News, Ambulance, Michael Bay, Netflix, Jake Gyllenhaal
-
-Sun, 26 Jul 2026 23:00:15 GMT
-
-https://collider.com/michael-bay-heist-thriller-ambulance-streaming-success-netflix-july-2026/
-
-Ambulance, the heist-gone-wrong thriller directed by Michael Bay, is finally getting the love it deserves streaming on Netflix.
----------
-
-# ABC’s Cancelled Sci-Fi Show Packed More Ideas Into 5 Episodes Than Most Series Do
-
-TV Features, The Phoenix, ABC, Stargate SG-1
-
-Sun, 26 Jul 2026 22:49:14 GMT
-
-https://collider.com/the-phoenix-1982-cancelled-sci-fi-show-packed-more-ideas-into-five-episodes/
-
-With only five episodes, The Phoenix is the forgotten 1982 sci-fi classic that delivered more ambitious ideas than many long-running shows.
----------
-
-# Before 'Widow's Bay,' Matthew Rhys' Most Career-Defining Role Remains FX's 96% Spy Thriller
-
-TV Features, The Americans, Matthew Rhys, Thriller, FX
-
-Sun, 26 Jul 2026 22:46:14 GMT
-
-https://collider.com/matthew-rhys-the-americans-fx-widows-bay/
-
-Matthew Rhys' portrayal of Philip Jennings in The Americans remains his most career-defining role, showcasing extraordinary range and emotional depth.
----------
-
-# Forget 'Bridgerton,' Netflix's New Period Romance Officially Arrives This Fall
-
-TV News, My Brilliant Career, Bridgerton, Romance, Netflix
-
-Sun, 26 Jul 2026 22:30:15 GMT
-
-https://collider.com/my-brilliant-career-netflix-premiere-date-august-13/
-
-Discover the captivating new period drama from Netflix that is poised to be the new Bridgerton. Here are all the details.
 ---------
