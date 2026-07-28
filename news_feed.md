@@ -1,3 +1,168 @@
+# Every DC Character Confirmed For Superman Sequel Man Of Tomorrow (So Far)
+
+Superheroes, Man of Tomorrow, DC Universe
+
+Tue, 28 Jul 2026 23:40:11 GMT
+
+https://screenrant.com/every-dc-character-confirmed-for-superman-sequel-man-of-tomorrow/
+
+DC Studios' Man of Tomorrow may still be a year away, but the Superman sequel already has an impressive cast of confirmed characters.
+---------
+
+# 9 Action Anime That Will Hook Fans From The Very First Fight
+
+Anime
+
+Tue, 28 Jul 2026 23:30:11 GMT
+
+https://screenrant.com/action-anime-hook-fans-first-fight/
+
+While some great action anime might take a while to get going, these standout series feature riveting battles from the start.
+---------
+
+# One Of The Best Sci-Fi Movies Of All Time Leaves Netflix In 4 Days
+
+Movies, Masked Recs
+
+Tue, 28 Jul 2026 23:23:56 GMT
+
+https://screenrant.com/netflix-ex-machina-sci-fi-movie-leaving-august-2026/
+
+Netflix subscribers have one last chance to watch what is one of the best Sci-Fi movies of all time before it leaves the streaming service this week.
+---------
+
+# How Little Free Libraries Are Proving There Is Hope For Humanity
+
+Books
+
+Tue, 28 Jul 2026 23:13:38 GMT
+
+https://screenrant.com/little-free-library-book-trend-hope-literacy-community-expained/
+
+Things might not be great right now, but one popular worldwide book trend is quietly providing that there's still hope for humanity.
+---------
+
+# Silent Hill Meets Stranger Things In This New First-Person Horror
+
+Gaming, Silent Hill, Indie Games, PC
+
+Tue, 28 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/black-lake-silent-hill-meets-stranger-things/
+
+Horror fans have been feasting in recent years, but this upcoming release is the perfect dessert to satisfy your cosmic horror cravings.
+---------
+
+# Netflix's New Fantasy Movie With 13.6B Minutes Viewed Hits Another Massive Streaming Milestone
+
+Movies, Masked Recs
+
+Tue, 28 Jul 2026 22:59:06 GMT
+
+https://screenrant.com/netflix-swapped-movie-no-8-all-time-top-10/
+
+Netflix's new fantasy movie, with 13.6 billion minutes viewed, hits another massive streaming milestone following its release this past May.
+---------
+
+# Crunchyroll Drops 20 Exclusive Demon Slayer: Infinity Castle Designs for Fans to Unlock
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Demon Slayer: Kimetsu no Yaiba Infinity Castle, Crunchyroll
+
+Tue, 28 Jul 2026 23:05:14 GMT
+
+https://www.cbr.com/demon-slayer-infinity-castle-crunchyroll-new-profile-avatar-release/
+
+Demon Slayer: Infinity Castle finally arrives on streaming a year after its theatrical debut, and Crunchyroll is celebrating with its own new release.
+---------
+
+# 5 Most Ambitious Movies Of the 21st Century, Ranked
+
+Movies, Sci-Fi, Megalopolis
+
+Tue, 28 Jul 2026 23:01:14 GMT
+
+https://www.cbr.com/most-ambitious-movies-21st-century-list/
+
+The 21st century has seen some of Hollywood’s strongest directors turn in one visionary and ambitious movie after another, all to varying outcomes.
+---------
+
+# 'House of the Dragon' Officially Confirms a Major 'Game of Thrones' Daenerys Theory
+
+TV Features, House of the Dragon, Game Of Thrones, HBO Max, A Song of Ice and Fire
+
+Tue, 28 Jul 2026 23:48:28 GMT
+
+https://collider.com/house-of-the-dragon-game-of-thrones-daenerys-harrenhal-egg/
+
+House of the Dragon reveals the surprising origin of Daenerys' dragon eggs, confirming a Game of Thrones theory.
+---------
+
+# Apple TV's 'Silo' Just Proved Every Streamer Has Been Doing This Wrong
+
+TV Features, Silo, Apple TV, Rebecca Ferguson, Graham Yost
+
+Tue, 28 Jul 2026 23:29:14 GMT
+
+https://collider.com/apple-tv-silo-season-4-time-between-seasons-opinion/
+
+Apple TV renewed Silo early, leaving less time between seasons. This is an underrated way streamers can make better shows and retain subscribers.
+---------
+
+# Prime Video’s New #1 Action Thriller Series Is Too Good To Miss for ‘Reacher’ Fans
+
+TV Features, Prime Video, Octavia Spencer, Hannah Waddingham, Ride or Die
+
+Tue, 28 Jul 2026 23:18:14 GMT
+
+https://collider.com/ride-or-die-prime-video-action-thriller-perfect-for-reacher-fans/
+
+Prime Video's new #1 series, Ride or Die, features Hannah Waddingham and Octavia Spencer as an unlikely action duo.
+---------
+
+# Forget ‘Blade Runner,’ Netflix’s 2-Season Sci-Fi Masterpiece Changed the Genre Forever
+
+TV Features, Netflix, Altered Carbon, Anthony Mackie, Sci-Fi
+
+Tue, 28 Jul 2026 22:46:14 GMT
+
+https://collider.com/netflix-blade-runner-best-sci-fi-replacement-series-altered-carbon/
+
+Netflix’s Altered Carbon pushed cyberpunk further than Blade Runner across two ambitious seasons.
+---------
+
+# Anna Kendrick's New Action Thriller Officially Sets Streaming Premiere Date
+
+TV News, Anna Kendrick
+
+Tue, 28 Jul 2026 23:51:49 GMT
+
+https://movieweb.com/anna-kendrick-embassy-mgm-release-date/
+
+The actor's new six-part series 'Embassy' has been picked up by MGM+.
+---------
+
+# Michael B. Jordan's Crime Thriller Remake First Look Officially Debuts
+
+Movie News, The Thomas Crown Affair, Michael B. Jordan
+
+Tue, 28 Jul 2026 23:31:06 GMT
+
+https://movieweb.com/michael-b-jordan-thomas-crown-affair-remake-poster/
+
+The first official look at 'The Thomas Crown Affair' dropped on social media.
+---------
+
+# Henry Cavill's New 98-Minute Action Thriller Debuts With New Release
+
+Movie News, In the Grey, Henry Cavill, Guy Ritchie, Jake Gyllenhaal
+
+Tue, 28 Jul 2026 23:25:11 GMT
+
+https://movieweb.com/henry-cavill-in-the-grey-guy-ritchie-blu-ray-release/
+
+'In the Grey' is out now on Blu-ray, allowing even more opportunities to catch up on the picture.
+---------
+
 # 5 Times Star Wars Went Full Cosmic Horror
 
 Comics, Star Wars
@@ -5331,169 +5496,4 @@ Mon, 27 Jul 2026 14:52:17 GMT
 https://screenrant.com/blade-runner-2099-season-2-fate-prime-video-silka-luisa/
 
 Showrunner Silka Luisa confirms the status of Blade Runner 2099 season 2 following the release of the first trailer for the Prime Video show.
----------
-
-# Pokémon GO Players Vow To Quit Over Major Possible Change
-
-Gaming, Pokemon GO
-
-Mon, 27 Jul 2026 14:35:40 GMT
-
-https://screenrant.com/pokemon-go-gym-changes-reaction/
-
-Pokémon Go players are furious over a leak suggesting Scopely may remove the game's only free way to earn PokéCoins.
----------
-
-# Nintendo Fans Are Freaking Out About New Acquisition
-
-Gaming, Nintendo
-
-Mon, 27 Jul 2026 14:31:40 GMT
-
-https://screenrant.com/nintendo-xenosaga-ownership-fan-reaction/
-
-Nintendo fans are convinced a tiny trailer detail could hint at a major acquisition.
----------
-
-# GTA 6's Theme Song Has Appeared Online Ahead Of Trailer 3
-
-Gaming, Grand Theft Auto 6, Grand Theft Auto
-
-Mon, 27 Jul 2026 14:28:34 GMT
-
-https://screenrant.com/gta-6-theme-song-spotted-online/
-
-Fans seem to think they’ve discovered one of GTA 6’s main theme songs online ahead of release, but you can’t hear it yourself just yet.
----------
-
-# The Walking Dead’s Risky New “Reset” Gamble Pays Off With #1 Streaming Smash In America
-
-TV, The Walking Dead: Dead City, The Walking Dead
-
-Mon, 27 Jul 2026 14:21:53 GMT
-
-https://screenrant.com/the-walking-dead-dead-city-season-3-streaming-success-july-2026/
-
-The Walking Dead's risky new "reset" is a gamble that's paid off, the franchise's newest entry becoming a Number 1 streaming hit in the US.
----------
-
-# Horror Icon Zach Cregger Confirms End Of An Era With His Next Movie
-
-Movies, San Diego Comic-Con, Zach Cregger
-
-Mon, 27 Jul 2026 14:21:50 GMT
-
-https://screenrant.com/zach-cregger-the-flood-last-movie-chapter-comment/
-
-Resident Evil and Weapons director Zach Cregger reveals that his next feature film, The Flood, will mark the end of a filmmaking era for him.
----------
-
-# Pokémon Is Coming to Krispy Kreme U.S. With First Look at 4 New Donut Designs
-
-Anime, Pokemon, food
-
-Mon, 27 Jul 2026 15:20:15 GMT
-
-https://www.cbr.com/pokemon-krispy-kreme-us-first-look/
-
-Pokémon is sending some of its most iconic characters to Krispy Kreme for a collaboration that fans absolutely needed, even if they didn't know it.
----------
-
-# 5 Fantasy Manga That Are Perfectly Written
-
-Anime, Manga, Berserk, Witch Hat Atelier, Fantasy
-
-Mon, 27 Jul 2026 15:15:15 GMT
-
-https://www.cbr.com/fantasy-manga-perfectly-written/
-
-Manga like Berserk and Pandora Hearts have the best writing in the fantasy genre.
----------
-
-# 5 Strongest Swords in Anime History, Ranked
-
-Anime, Shonen, Bleach, Inuyasha
-
-Mon, 27 Jul 2026 15:01:15 GMT
-
-https://www.cbr.com/strongest-swords-in-anime-history-ranked/
-
-Some of anime's most powerful swords hold abilities that make even the strongest characters look weak by comparison.
----------
-
-# 6 Martial Arts Shows That Are 10/10 Masterpieces
-
-TV, Bloodhounds, Cobra Kai, Avatar: The Last Airbender, Action
-
-Mon, 27 Jul 2026 15:01:15 GMT
-
-https://www.cbr.com/best-martial-arts-shows-list/
-
-Martial arts achieved global dominance through cinema, but some of the genre's greatest creations are on TV
----------
-
-# Tom Cruise Best Quote is in Top Gun: Maverick
-
-Movies, Top Gun: Maverick
-
-Mon, 27 Jul 2026 14:31:15 GMT
-
-https://www.cbr.com/tom-cruise-best-action-quote-top-gun-maverick/
-
-Tom Cruise is an icon of the action genre and one movie has the best quote of all his incredible movies.
----------
-
-# Netflix's Sci-Fi Mystery Show Bodies Is the Perfect Travelers Replacement
-
-TV, Bodies, Sci-Fi, Travelers
-
-Mon, 27 Jul 2026 14:31:15 GMT
-
-https://www.cbr.com/netflix-bodies-travelers-replacement/
-
-Netflix's gripping, eight-episode British limited series tells one complete, mind-bending story and is perfect for fans of Travelers.
----------
-
-# The Rings of Power Season 3 Adds a Cruel New Twist to the One Ring's Creation
-
-TV, The Lord of the Rings, The Lord of the Rings: The Rings of Power
-
-Mon, 27 Jul 2026 14:16:16 GMT
-
-https://www.cbr.com/lotr-rings-of-power-sauron-feanor-hammer-one-ring/
-
-The trailer for the upcoming third season of The Lord of the Rings: The Rings of Power revealed a dark addition to the lore of the One Ring.
----------
-
-# 10 Must-Watch Action Anime Series That Have Zero Bad Arcs
-
-Anime, Demon Slayer: Kimetsu no Yaiba, Attack On Titan, Action, Mob Psycho 100
-
-Mon, 27 Jul 2026 14:15:15 GMT
-
-https://www.cbr.com/action-anime-with-no-bad-arcs/
-
-Action anime like Attack on Titan and Fullmetal Alchemist: Brotherhood manage a high-octane, compelling story from start to finish.
----------
-
-# Avengers: Secret Wars' Most Important Hero Teased by Kevin Feige and The Russo Brothers
-
-CBR Exclusives, Avengers: Doomsday, Marvel Cinematic Universe, Fantastic Four
-
-Mon, 27 Jul 2026 14:00:16 GMT
-
-https://www.cbr.com/kevin-feige-russo-brothers-franklin-avengers-secret-wars/
-
-Kevin Feige and Anthony and Joe Russo give fans an idea of what's coming for the Marvel Cinematic Universe's next pint-sized powerhouse.
----------
-
-# ThunderCats Officially Returns With a Reboot That Begins a New Era
-
-Comics, Thundercats
-
-Mon, 27 Jul 2026 14:00:16 GMT
-
-https://www.cbr.com/dynamite-entertainment-thundercats-release-date-confirmed/
-
-ThunderCats fans are getting another brand-new series for a brand-new era ahead of the next animated feature film reboot of the franchise.
 ---------
