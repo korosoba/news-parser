@@ -1,3 +1,399 @@
+# Hit Dexter Series Officially Returns With New Episodes Next Week
+
+TV, Dexter
+
+Tue, 28 Jul 2026 15:10:11 GMT
+
+https://screenrant.com/dexters-kill-room-season-3-release-date/
+
+Paramount has announced that a popular Dexter franchise series will officially return with new episodes for its third season in August 2026.
+---------
+
+# Major Dexter Villain’s Resurrection Season 2 Return Revealed First Official Images
+
+TV, Dexter: Resurrection
+
+Tue, 28 Jul 2026 15:00:11 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-first-look-images/
+
+Dexter: Resurrection is resurrecting some familiar faces in season 2, as the first official images for the second season have arrived from Paramount.
+---------
+
+# Prime Video's 3-Hour Series With No Weak Episodes Is 2026's Best Comedy
+
+Streaming TV, Masked Recs, Prime Video
+
+Tue, 28 Jul 2026 15:00:11 GMT
+
+https://screenrant.com/bait-prime-video-2026-best-comedy-no-bad-episodes/
+
+So far, 2026 has been an excellent year for comedy television, including an underseen Prime Video series that hilariously spoofs James  Bond.
+---------
+
+# Ahsoka Season 2's Explosive New Story Teased By Returning Star Wars Actor
+
+TV, Ahsoka, Star Wars
+
+Tue, 28 Jul 2026 14:55:35 GMT
+
+https://screenrant.com/star-wars-ahsoka-season-2-explosive-story-eman-esfandi/
+
+EXCLUSIVE: Ahsoka actor Eman Esfandi teases season 2's explosive new story as the Star Wars TV show prepares for its return.
+---------
+
+# Only 7 Western Movies From The 90s Are As Great As Tombstone
+
+Movies, Tombstone, The Quick and the Dead, Maverick, Unforgiven, Ride with the Devil, Wyatt Earp, Dead Man, Dances With Wolves
+
+Tue, 28 Jul 2026 14:45:11 GMT
+
+https://screenrant.com/western-movies-90s-as-good-as-tombstone/
+
+Tombstone is a timeless classic and a beloved Western. It also released alongside other heavy hitters during the 90s you won't want to miss.
+---------
+
+# Star Trek's 6 Greatest Borg Moment of All Time
+
+TV, Star Trek
+
+Tue, 28 Jul 2026 14:30:11 GMT
+
+https://screenrant.com/star-trek-borg-best-moments/
+
+The scariest moments.
+---------
+
+# 14 Years Later, HBO's Controversial 3-Part Series Still Has One Of TV's Best Opening Scenes
+
+Classic TV, Masked Recs
+
+Tue, 28 Jul 2026 14:30:11 GMT
+
+https://screenrant.com/the-newsroom-hbo-series-best-opening-scenes/
+
+Over the course of its run, HBO's historical fiction series proved to be divisive, but its viral opening monologue remains an instant classic.
+---------
+
+# Mass Effect 5 Setting Officially Confirmed
+
+Gaming, Mass Effect
+
+Tue, 28 Jul 2026 14:22:44 GMT
+
+https://screenrant.com/mass-effect-5-setting-confirmed/
+
+The setting of Mass Effect 5 may have already been revealed without us noticing — but could this fan theory have survived BioWare’s recent troubles?
+---------
+
+# Ryan Gosling Transforms Into The MCU’s Ghost Rider With Fiery Comic Cover Fan Art Recreation
+
+Movies, Ghost Rider, Marvel Cinematic Universe
+
+Tue, 28 Jul 2026 14:21:29 GMT
+
+https://screenrant.com/ryan-gosling-ghost-rider-mcu-transformation-comic-cover-recreation-fan-art/
+
+Ryan Gosling transforms into the next Ghost Rider for the MCU with a fiery comic cover recreated through fan art of his upcoming role.
+---------
+
+# Macaulay Culkin Reportedly Eyeing Home Alone Return For New Movie After 34 Years
+
+Movies, Home Alone
+
+Tue, 28 Jul 2026 14:15:17 GMT
+
+https://screenrant.com/home-alone-reboot-macaulay-culkin-disney-return/
+
+After 34 years, Macaulay Culkin is reportedly looking to return in a new Home Alone movie, and this is the perfect path forward for the hit franchise.
+---------
+
+# Dexter: Resurrection Season 2 First Look Photos Reveal New and Returning Stars
+
+TV, Dexter: Resurrection
+
+Tue, 28 Jul 2026 15:00:15 GMT
+
+https://www.cbr.com/dexter-resurrection-season-2-first-look-official/
+
+The first official look at Dexter: Resurrection Season 2 has been unveiled, showcasing the new and returning stars.
+---------
+
+# 5 Classic Anime That Will Never Fall Out of Fashion
+
+Anime, Dragon Ball Z, Neon Genesis Evangelion
+
+Tue, 28 Jul 2026 15:00:15 GMT
+
+https://www.cbr.com/classic-anime-never-fall-out-of-fashion/
+
+Not every influential series ages gracefully, but these anime continue to win over new generations of fans.
+---------
+
+# The Walking Dead Cast Roasts Jeffrey Dean Morgan | SDCC 2026
+
+TV, The Walking Dead: Dead City
+
+Tue, 28 Jul 2026 14:38:49 GMT
+
+https://www.cbr.com/video/the-walking-dead-cast-roasts-jeffrey-dean-morgan-sdcc-2026/
+
+Jeffrey Dean Morgan's unexpected obsession with babies became one of the funniest running jokes behind the scenes of The Walking Dead: Dead City at SDCC 2026.
+---------
+
+# Tauriel's Storyline in The Hobbit Was Almost Complete Different
+
+Movies, The Hobbit, The Lord of the Rings
+
+Tue, 28 Jul 2026 14:30:15 GMT
+
+https://www.cbr.com/the-hobbit-tauriel-romance-almost-didnt-happen/
+
+One of the most controversial aspects of Peter Jackson's The Hobbit trilogy was missing from early drafts, but the director was wise to change it.
+---------
+
+# 10 Funniest Apple TV Shows With Zero Bad Episodes
+
+TV, Comedy, Apple TV, Your Friends and Neighbors, Widow's Bay, Platonic
+
+Tue, 28 Jul 2026 14:30:15 GMT
+
+https://www.cbr.com/funniest-apple-tv-shows-list/
+
+Apple TV has produced some of the most critically-acclaimed comedy series in recent memory, keeping us laughing from start to finish.
+---------
+
+# 5 Greatest Anime With The Most Shocking Opening Scene
+
+Anime, Puella Magi Madoka Magica, Attack on Titan
+
+Tue, 28 Jul 2026 14:15:15 GMT
+
+https://www.cbr.com/greatest-anime-most-shocking-opening-scenes/
+
+Often, a truly great anime can be identified immediately by their shocking first scenes.
+---------
+
+# Alice in Wonderland Officially Returns With an Unexpected New Spinoff Movie
+
+Movies, Alice in Wonderland
+
+Tue, 28 Jul 2026 14:12:36 GMT
+
+https://www.cbr.com/mad-hatter-animated-spinoff-amazon-mgm-studios/
+
+Alice in Wonderland fans are about to get an unexpected spinoff about one of the story's most iconic characters from a surprising creative team.
+---------
+
+# Harry Potter Officially Returns With New Adventure On July 29
+
+Games, Harry Potter
+
+Tue, 28 Jul 2026 14:10:15 GMT
+
+https://www.cbr.com/harry-potter-hogwarts-mystery-norberts-transport-adventure/
+
+Harry Potter fans will get to experience an all new adventure that pays tribute to one of the series' most memorable early moments.
+---------
+
+# Paramount's 'Unfilmable' Fantasy Movie Unveils First Trailer After Author Backlash
+
+Movies, Children of Blood and Bone
+
+Tue, 28 Jul 2026 14:09:58 GMT
+
+https://www.cbr.com/paramount-children-blood-bone-official-trailer/
+
+The new film stars Chiwetel Ejiofor, Idris Elba, Viola Davis and Cynthia Erivo, but despite its star power, the author still condemns it.
+---------
+
+# Classic Star Trek Alien Delivers the Franchise's Most Brutal Kill
+
+Comics, Star Trek
+
+Tue, 28 Jul 2026 14:00:15 GMT
+
+https://www.cbr.com/star-trek-red-shirts-mugato-return-confirmed/
+
+One of the most criminally underrated aliens from the entire Stark Trek franchise is back in action and tearing its way through Starfleet — Literally.
+---------
+
+# 1 Year Later, the Fate of 'True Blood' Star's Cozy British Mystery Series Is Officially Confirmed
+
+TV News, Art Detectives, Acorn TV, Stephen Moyer, AMC
+
+Tue, 28 Jul 2026 14:30:15 GMT
+
+https://collider.com/art-detectives-season-2-renewal-stephen-moyer-acorn-tv/
+
+Acorn TV has finally renewed Stephen Moyer's British mystery hit Art Detectives for a second season, and filming begins soon. Here's what we know.
+---------
+
+# ‘Spider-Man: Brand New Day’ Secures Epic Rotten Tomatoes Score Ahead of Box Office Debut
+
+Movie News, Spider-Man: Brand New Day, MCU, Marvel, Tom Holland
+
+Tue, 28 Jul 2026 14:25:32 GMT
+
+https://collider.com/spider-man-brand-new-day-rotten-tomatoes-score-reactions-is-it-good/
+
+The reviews are officially in for Spider-Man: Brand New Day as critics call it Tom Holland’s best spider-movie yet. See the Rotten Tomatoes Score.
+---------
+
+# ‘The Acolyte’ Star’s New Fantasy Epic Officially Unleashes First Trailer
+
+Movie News, Children of Blood and Bone, Amandla Stenberg, Idris Elba, Viola Davis
+
+Tue, 28 Jul 2026 13:10:47 GMT
+
+https://collider.com/children-of-blood-and-bone-first-trailer-amandla-stenberg-release-date-january-2027/
+
+The Acolyte star Amandla Stenberg headlines the first trailer for Children of Blood and Bone, which is coming to theaters on January 15, 2027.
+---------
+
+# The Best Revenge Thriller Trilogy Since John Wick Is About to End With a Bang [Exclusive]
+
+Movie News, Becky, The Wrath of Becky, Thriller, John Wick
+
+Tue, 28 Jul 2026 13:09:49 GMT
+
+https://collider.com/the-last-temptation-of-becky-lulu-wilson-answers-explained/
+
+The Becky trilogy is about to conclude with The Last Temptation of Becky, and it's set to answer every question the fans have.
+---------
+
+# ‘Ted Lasso’ Is Officially Back to Make Us Believe Again in First Season 4 Trailer
+
+TV News, Ted Lasso, Hannah Waddingham, Brett Goldstein, Jason Sudeikis
+
+Tue, 28 Jul 2026 13:00:15 GMT
+
+https://collider.com/ted-lasso-season-4-trailer/
+
+Jason Sudeikis is finally back as Ted Lasso in the first Season 4 trailer, revealing his new challenge ahead of the show’s August return.
+---------
+
+# Tom Holland's 'Spider-Man: Brand New Day' Is the Best Spidey Adventure in 20 Years | Review
+
+Movie Reviews, Spider-Man: Brand New Day, MCU, Tom Holland, Zendaya
+
+Tue, 28 Jul 2026 13:00:15 GMT
+
+https://collider.com/spider-man-brand-new-day-review-marvel-tom-holland/
+
+A more mature Peter Parker is the heart of Spider-Man: Brand New Day, the best Spider-Man film in 20 years.
+---------
+
+# Tom Hardy & Guy Ritchie's Action Thriller 'MobLand' Just Got A Perfect Replacement
+
+Features, MobLand, Guy Ritchie
+
+Tue, 28 Jul 2026 15:00:12 GMT
+
+https://movieweb.com/guy-ritchie-mobland-replacement-series-laird/
+
+'MobLand' was a runaway hit for Paramount+ in 2025, and as the second season approaches, the streaming giant just greenlit a fascinating replacement.
+---------
+
+# Tom Holland Confirms His Spider-Man Future After 'Brand New Day'
+
+Movie News, Spider-Man: Brand New Day
+
+Tue, 28 Jul 2026 14:38:08 GMT
+
+https://movieweb.com/tom-holland-future-spider-man-brand-new-day/
+
+Is 'Brand New Day' Tom Holland's final 'Spider-Man' film?
+---------
+
+# 8 Scariest Vampire Horror Movies of All Time
+
+Movie Lists, Horror
+
+Tue, 28 Jul 2026 14:30:12 GMT
+
+https://movieweb.com/scariest-vampire-horror-movies/
+
+Vampires can be some of the scariest monsters in horror, and audiences just can’t get enough of them.
+---------
+
+# Jake Gyllenhaal's 109-Minute Action Crime Thriller Debuts New Release
+
+Movie News, End of Watch, Jake Gyllenhaal, David Ayer
+
+Tue, 28 Jul 2026 14:08:49 GMT
+
+https://movieweb.com/end-of-watch-4k-blu-ray-release/
+
+David Ayer's gritty action thriller 'End of Watch,' starring Jake Gyllenhaal and Michael Peña, has received a new 4K Blu-ray release.
+---------
+
+# Aragorn's 'Lord of the Rings' Line Is the Greatest Quote in Fantasy Movies
+
+Features, The Lord of the Rings, The Lord of the Rings: The Return of the King
+
+Tue, 28 Jul 2026 14:00:12 GMT
+
+https://movieweb.com/lord-of-the-rings-aragorn-best-fantasy-quote/
+
+Peter Jackson's 'The Lord of the Rings' trilogy is loaded with memorable quotes, but one line in particular will forever echo across fantasy cinema.
+---------
+
+# 'Ted Lasso' Season 4 Trailer Brings Jason Sudeikis & His Team Back to Apple TV
+
+TV News, Ted Lasso, Jason Sudeikis
+
+Tue, 28 Jul 2026 13:58:34 GMT
+
+https://movieweb.com/ted-lasso-season-4-trailer-jason-sudeikis/
+
+Apple TV delivered a new look at 'Ted Lasso' Season 4, confirming multiple returning characters from the show's original run.
+---------
+
+# 'Spider-Man: Brand New Day' Rotten Tomatoes Score Officially Revealed
+
+Movie News, Spider-Man: Brand New Day, Spider-Man
+
+Tue, 28 Jul 2026 13:25:24 GMT
+
+https://movieweb.com/spider-man-brand-new-day-rotten-tomatoes-score/
+
+The latest 'Spider-Man' film has landed a spectacular score on Rotten Tomatoes.
+---------
+
+# Netflix's New Sleeper Hit Action Thriller Series Is Already Planning a Return
+
+TV News, Netflix, Action, Thriller
+
+Tue, 28 Jul 2026 13:01:51 GMT
+
+https://movieweb.com/netflix-elite-force-season-2-plan/
+
+The action thriller show 'Elite Force' is now dominating streaming worldwide.
+---------
+
+# Mark Wahlberg's Crime Thriller Flop Is Finding Redemption on Streaming
+
+Movie News, The Gambler, Paramount Plus, Hot on Streaming, Mark Wahlberg
+
+Tue, 28 Jul 2026 13:00:13 GMT
+
+https://movieweb.com/the-gambler-mark-wahlberg-stream-paramount-july-2026/
+
+Mark Wahlberg's forgotten 2014 crime thriller flop, 'The Gambler' remake, is a streaming success in the US on Paramount+.
+---------
+
+# 'Spider-Man: Brand New Day' Review: A Spectacular Sequel on All Fronts
+
+Movie Reviews, Spider-Man: Brand New Day, Marvel Cinematic Universe, Tom Holland, Zendaya Coleman, Spider-Man
+
+Tue, 28 Jul 2026 13:00:13 GMT
+
+https://movieweb.com/spider-man-brand-new-day-review/
+
+With stunning visuals, heartwarming connections, and mind-blowing action, this sequel will leave you on the edge of your seat.
+---------
+
 # Everyone Who Voiced Meg Griffin In Family Guy
 
 Network TV, Family Guy
@@ -5100,400 +5496,4 @@ Sun, 26 Jul 2026 21:15:15 GMT
 https://www.cbr.com/shonen-anime-as-good-as-jjk-jujutsu-kaisen/
 
 Shonen series like Attack on Titan and Chainsaw Man are undeniably on par with Jujutsu Kaisen.
----------
-
-# What's Coming to Pluto TV in August 2026? Everything Arriving for Free
-
-TV
-
-Sun, 26 Jul 2026 21:00:15 GMT
-
-https://www.cbr.com/what-coming-pluto-tv-august-2026-full-list/
-
-Paramount's free streaming platform will add a mix of The CW and MTV fan-favorite series.
----------
-
-# Reacher Announces New Spinoff Release in 2027
-
-TV, Reacher, Neagley, San Diego Comic-Con
-
-Sun, 26 Jul 2026 20:59:10 GMT
-
-https://www.cbr.com/reacher-spinoff-neagley-novel-2027/
-
-The Reacher franchise continues to expand.
----------
-
-# Bob's Burgers Announces New Hulu Special Episode in 5 Months
-
-TV, Bob's Burgers, San Diego Comic-Con
-
-Sun, 26 Jul 2026 20:55:41 GMT
-
-https://www.cbr.com/bobs-burgers-hulu-christmas-episode-2026/
-
-Audiences can officially look forward to a brand-new Bob's Burgers special, and it might just be the next animated Holiday classic.
----------
-
-# Prime Video's 2-Part Crime Thriller Breaks Detective TV's Most Overused Tradition
-
-TV, Cross
-
-Sun, 26 Jul 2026 20:30:15 GMT
-
-https://www.cbr.com/prime-video-cross-breaks-most-overused-detective-tradition/
-
-Detective TV shows often focus on lonely protagonists, or ones who are disconnected from their families, but this Prime Video show bucks that trend.
----------
-
-# Ridley Scott's Biblical Epic Finds a New Streaming Home
-
-Movie News, Ridley Scott, Christopher Nolan, The Odyssey, Exodus: Gods and Kings
-
-Sun, 26 Jul 2026 21:00:15 GMT
-
-https://collider.com/ridley-scott-biblical-epic-exodus-gods-and-kings-streaming-peacock-july-2026/
-
-Ridley Scott's Exodus: Gods and Kings is coming to a new streaming home amid The Odyssey's box-office success. Find out where and when.
----------
-
-# ‘Black Mirror’s Greatest Episode Nearly Became a Robert Downey Jr. Movie
-
-TV Features, Robert Downey Jr, Black Mirror, George Clooney, Netflix
-
-Sun, 26 Jul 2026 20:43:14 GMT
-
-https://collider.com/black-mirror-entire-history-of-you-robert-downey-jr-movie/
-
-Robert Downey Jr. once planned a movie adaptation of Black Mirror’s “The Entire History of You,” but the project never made it to the screen.
----------
-
-# Henry Cavill's Upcoming Sci-Fi Space Opera Will Finally Beat Star Wars at Its Own Game
-
-Features, Henry Cavill, Warhammer 40k, Star Wars, Sci-Fi
-
-Sun, 26 Jul 2026 21:00:12 GMT
-
-https://movieweb.com/henry-cavill-warhammer-40k-space-opera-star-wars/
-
-Henry Cavill is embracing a franchise with mythology so rich that it rivals even the likes of Star Wars and Star Trek.
----------
-
-# Avatar Aang: The Last Airbender Fixes the Netflix Show's Balance Problem
-
-Features, Avatar Aang: The Last Airbender, Avatar: The Last Airbender
-
-Sun, 26 Jul 2026 20:45:12 GMT
-
-https://movieweb.com/avatar-aang-last-airbender-fixes-problem-netflix-live-action/
-
-Avatar Aang: The Last Airbender fixes the live-action show's biggest problem, proving it's possible to achieve the balance it tries to.
----------
-
-# Gary Larson's 10 Most Underrated 'The Far Side 'Comics
-
-Movie Lists, The Far Side
-
-Sun, 26 Jul 2026 20:30:12 GMT
-
-https://movieweb.com/far-side-most-underrated/
-
-Everyone knows The Far Side’s cows, cavemen, and aliens, but these underrated Gary Larson comics from the other side are just as hilarious.
----------
-
-# 35 Years Later, Dragon Ball Finally Resurrects A Forgotten Goku Form, And It's Epic
-
-Gaming, Dragon Ball, Dragon Ball: Sparking! Zero
-
-Sun, 26 Jul 2026 20:00:11 GMT
-
-https://screenrant.com/dragon-ball-goku-false-super-saiyan-return/
-
-Dragon Ball: Sparking! Zero's upcoming DLC introduces Goku's long-forgotten False Super Saiyan transformation, signaling a change in its games.
----------
-
-# 10 Best Vita Games To Download Before The Store Is Gone Forever
-
-Gaming, PlayStation
-
-Sun, 26 Jul 2026 20:00:11 GMT
-
-https://screenrant.com/playstation-vita-games-download-store-closure-psvita/
-
-Discover the best PlayStation Vita exclusive games to download before the store closes, including must-play titles you have to see.
----------
-
-# Star Trek's 3 Versions Of James T. Kirk Ranked
-
-Streaming TV, Star Trek
-
-Sun, 26 Jul 2026 20:00:11 GMT
-
-https://screenrant.com/star-trek-kirk-versions-ranked/
-
-Multiple actors have donned the uniform of the most iconic Enterprise captain, but only one can truly be considered the definitive James T. Kirk.
----------
-
-# Game Of Thrones' Ramsay Bolton Star Reviews Spinoff Series House Of The Dragon
-
-TV, House of the Dragon, Game Of Thrones, Game of Thrones
-
-Sun, 26 Jul 2026 19:45:15 GMT
-
-https://screenrant.com/house-of-the-dragon-review-iwan-rheon/
-
-10 years after his last Game of Thrones appearance, Ramsay Bolton actor Iwan Rheon shares his review for the House of the Dragon spinoff series.
----------
-
-# What's Coming To Netflix In August 2026: Full List Of TV Shows & Movies
-
-Streaming TV, Netflix
-
-Sun, 26 Jul 2026 19:45:11 GMT
-
-https://screenrant.com/everything-coming-to-netflix-2026/
-
-The exciting lineup of new TV shows and movies coming to Netflix in August 2026, including original series, acquisitions, and a mix of genres overall.
----------
-
-# Something Very Bad Is Going To Happen Theory Suggests A Very Different Ending For Nicky
-
-Streaming TV, Something Very Bad Is Going to Happen
-
-Sun, 26 Jul 2026 19:30:12 GMT
-
-https://screenrant.com/why-nicky-not-die-something-very-bad-is-going-to-happen-theory/
-
-As the curtain falls on Netflix's Something Very Bad Is Going To Happen, a shocking twist involving Nicky leads to an interesting theory.
----------
-
-# All 18 Nintendo Games Directed By Shigeru Miyamoto, Ranked
-
-Gaming, Nintendo, Triple-A Games
-
-Sun, 26 Jul 2026 19:30:11 GMT
-
-https://screenrant.com/all-18-nintendo-games-directed-by-shigeru-miyamoto-ranked/
-
-Shigeru Miyamoto created many iconic titles but directed only 18 — we've ranked them by importance to the industry and fun factor.
----------
-
-# There's One Reason Why Neagley's Spinoff Is More Exciting Than Reacher Season 4
-
-TV, Neagley, Reacher
-
-Sun, 26 Jul 2026 19:25:11 GMT
-
-https://screenrant.com/neagley-spinoff-reacher-season-4-exciting-why/
-
-Neagley and Reacher season four both arrive in 2026, but there's a key reason the Maria Sten-led spinoff is the more exciting show of the two.
----------
-
-# Netflix Is Joining A Fantasy Franchise With 50 Million Fans
-
-Streaming TV, Masked Recs
-
-Sun, 26 Jul 2026 19:14:26 GMT
-
-https://screenrant.com/netflix-dungeons-and-dragons-prime-video-vox-machina/
-
-Netflix is no stranger to adapting successful franchises into hit TV shows, but one upcoming project taps into an unfathomably massive fanbase.
----------
-
-# Reacher's New Spinoff Is Officially Honoring Series-Long Tradition With Neagley & More Returning Characters
-
-TV, Reacher, Neagley, San Diego Comic-Con
-
-Sun, 26 Jul 2026 19:14:19 GMT
-
-https://screenrant.com/neagley-reacher-cold-open-tradition-returning-characters-tease-maria-sten/
-
-EXCLUSIVE: Maria Sten reveals that Neagley, the upcoming Reacher spinoff, will maintain one longstanding tradition from the flagship series.
----------
-
-# 5 Anime With Plot Twists That Make Them Better on a Rewatch
-
-Anime, Attack On Titan, Puella Magi Madoka Magica, Code Geass: Lelouch of the Rebellion
-
-Sun, 26 Jul 2026 20:15:15 GMT
-
-https://www.cbr.com/anime-plot-twists-better-on-rewatch/
-
-Most anime use plot twists to keep the audience engaged, but these shocking turns actually go so far as to make a rewatch of the series even better.
----------
-
-# In Just 1 Day, Kevin Hart's New 105-Minute Netflix Movie Is Officially the Most-Watched Title in the World
-
-Movies, 72 Hours, Kevin Hart
-
-Sun, 26 Jul 2026 20:00:15 GMT
-
-https://www.cbr.com/kevin-hart-72-hours-comedy-netflix-global-success-july-2026/
-
-Kevin Hart is no stranger to Netflix success, and his film became a hit despite abysmal reviews.
----------
-
-# 10 Greatest Sci-Fi Thrillers of the Last 30 Years, Ranked
-
-Movies, Sci-Fi
-
-Sun, 26 Jul 2026 20:00:15 GMT
-
-https://www.cbr.com/10-best-sci-fi-thriller-movies-list/
-
-Whether they're about alien encounters, alternate realities, or collapsing societies, these are the sci-fi thrillers that got everything right.
----------
-
-# Solo Leveling Finally Reunites Sung Jinwoo and Igris in First-Look Reveal
-
-Anime, Solo Leveling, merchandise, collectibles
-
-Sun, 26 Jul 2026 20:00:15 GMT
-
-https://www.cbr.com/solo-leveling-sung-jinwoo-igris-ikigai-limited-edition-statue/
-
-Sung Jinwoo and Igris are back together for a new limited-edition Solo Leveling release for true collectors.
----------
-
-# HBO Max’s 10/10 3-Season Dramedy Finds New Streaming Home After Cancellation
-
-TV, The Sex Lives of College Girls, HBO Max, Netflix
-
-Sun, 26 Jul 2026 19:30:15 GMT
-
-https://www.cbr.com/the-sex-life-of-college-girls-drama-netflix-release-date-august-2026/
-
-The fan-favorite series has found new streaming home.
----------
-
-# Star of DC's New Batman Trilogy Reveals Unique Take on Iconic Gotham Villain Scene
-
-CBR Exclusives, Batman, Batman: Knightfall Part 1: Knightfall, San Diego Comic-Con
-
-Sun, 26 Jul 2026 19:15:15 GMT
-
-https://www.cbr.com/batman-knightfall-michael-mando-bane-motivation/
-
-Batman fans just learned why Bane breaking the Bat will be so much different in Knightfall: Part 1 compared to how they've seen it play out before.
----------
-
-# 10 Most Disturbing Anime of All Time, Ranked
-
-Anime, Perfect Blue, Made in Abyss
-
-Sun, 26 Jul 2026 19:15:15 GMT
-
-https://www.cbr.com/most-disturbing-anime-of-all-time-ranked/
-
-These anime leave a lasting impression by confronting viewers with deeply unsettling stories.
----------
-
-# This '60s Western Masterpiece Is Perfect from Start to Finish
-
-Movie Features, The Man Who Shot Liberty Valance, John Wayne, James Stewart, Western
-
-Sun, 26 Jul 2026 20:11:14 GMT
-
-https://collider.com/man-who-shot-liberty-valance-john-wayne-streaming-free-july-2026/
-
-The Man Who Shot Liberty Valance, starring John Wayne and James Stewart, changed Westerns forever when it was released in 1963.
----------
-
-# The 6 Worst R-Rated Comedies of the 1990s
-
-Movie, Comedy, Vampire in Brooklyn, Exit to Eden, The Real Blonde
-
-Sun, 26 Jul 2026 20:03:14 GMT
-
-https://collider.com/worst-r-rated-comedy-movies-90s/
-
-From Loose Cannons to Exit to Eden, these disastrous R-rated '90s movies prove bad comedy ages worse than any other genre.
----------
-
-# Netflix Officially Says Goodbye to a Legendary Sci-Fi Trilogy
-
-Movie News, Spider-Man, Sam Raimi, Tobey Maguire, Netflix
-
-Sun, 26 Jul 2026 20:00:15 GMT
-
-https://collider.com/netflix-removing-sam-raimi-spider-man-trilogy-july-31/
-
-Netflix has announced that the final day to watch all three of Tobey Maguire's Spider-Man movies will be on July 31.
----------
-
-# 5 Beloved Book-to-TV Adaptations That Deserve Another Chance
-
-Books and Comics, Books, Series, Streaming, Netflix
-
-Sun, 26 Jul 2026 19:55:15 GMT
-
-https://collider.com/book-to-tv-adaptations-that-deserve-redo-netflix-mtv-streaming/
-
-These five beloved book adaptations deserve another chance on TV, whether through full reboots or long-overdue continuations.
----------
-
-# Prime Video’s 2-Part Superhero Series Is So Good, It Officially Went Beyond the Comics
-
-TV Features, Gen V, The Boys, Prime Video, Superhero
-
-Sun, 26 Jul 2026 19:41:14 GMT
-
-https://collider.com/gen-v-prime-video-superhero-series-beyond-comics/
-
-Gen V surpasses both The Boys and the original comics it's based on, exploring the darker side of superpowers through a relatable story.
----------
-
-# 8 Greatest Modern Rom-Coms Based on Books
-
-Movie, Romance, Books, Crazy Rich Asians, To All the Boys I've Loved Before
-
-Sun, 26 Jul 2026 19:20:14 GMT
-
-https://collider.com/best-modern-rom-coms-based-on-books-ranked/
-
-Crazy Rich Asians, Love, Simon, and To All the Boys I've Loved Before are among the best modern rom-com movies that have been adapted from books.
----------
-
-# 'Westworld' Is Still a Masterpiece, but It Should Have Been Cancelled Sooner
-
-TV Features, Westworld, Jonathan Nolan, Lisa Joy, HBO
-
-Sun, 26 Jul 2026 19:14:15 GMT
-
-https://collider.com/westworld-season-1-still-a-masterpiece/
-
-Westworld Season 1 remains the pinnacle of the series, despite later seasons struggling with a confusing plot and loss of the original setting's charm.
----------
-
-# Sydney Sweeney's $400 Million R-Rated Thriller Is Officially a Global Sensation on Streaming
-
-Movie News, The Housemaid, Prime Video, Hot on Streaming, Sydney Sweeney
-
-Sun, 26 Jul 2026 20:15:12 GMT
-
-https://movieweb.com/the-housemaid-prime-video-global-chart/
-
-Sydney Sweeney's 2025 erotic thriller 'The Housemaid' is a global streaming success on Prime Video.
----------
-
-# Stephen King’s First TV Series Adaptation Remains a 10/10 One-Night Binge
-
-Features, Stephen King
-
-Sun, 26 Jul 2026 20:00:12 GMT
-
-https://movieweb.com/salems-lot-stephen-king-binge-watch/
-
-Stephen King's beloved horror novels have been adapted into many TV shows and movies, and this one might be the best.
----------
-
-# 8 Gangster Shows Better Than Peaky Blinders
-
-Classic TV, Peaky Blinders
-
-Sun, 26 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/gangster-mob-shows-better-than-peaky-blinders/
-
-Peaky Blinders made seedy British gangster culture into a cinematic historical masterpiece, but it is not the greatest gangster TV show of all time.
 ---------
