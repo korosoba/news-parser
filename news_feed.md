@@ -1,3 +1,212 @@
+# Xbox Just Dropped 13 Ubisoft Freebies You Can Grab Now
+
+Gaming, Xbox
+
+Tue, 28 Jul 2026 10:30:08 GMT
+
+https://screenrant.com/xbox-ubisoft-13-free-games-including-assassins-creed/
+
+Xbox users can now access 13 Ubisoft titles, including Assassin's Creed Mirage and Valhalla, on both PC and console.
+---------
+
+# 5 Reasons The Simpsons Hit & Run Remake Could Dethrone GTA 6
+
+Gaming, The Simpsons, Grand Theft Auto
+
+Tue, 28 Jul 2026 10:18:51 GMT
+
+https://screenrant.com/simpsons-hit-and-run-remake-goty-potential/
+
+The Simpsons Hit & Run is rightfully one of the most beloved games of all time, and a return could threaten the biggest players around.
+---------
+
+# Fallout 5 Official Announcement Unveils The Start Of A New Era
+
+Gaming, Fallout, Fallout 5
+
+Tue, 28 Jul 2026 09:47:33 GMT
+
+https://screenrant.com/fallout-5-official-announcement-new-era-confirmed/
+
+Fallout 5 is officially on the way, and Bethesda is changing a lot about the way they communicate now it is confirmed.
+---------
+
+# PlayStation Plus First Free Game For August Officially Announced
+
+Gaming, PlayStation Plus
+
+Tue, 28 Jul 2026 09:45:40 GMT
+
+https://screenrant.com/playstation-plus-first-free-august-2026-game-confirmed/
+
+Big Walk, a co-op multiplayer adventure game from House House and Panic, has been leaked.
+---------
+
+# GTA 6 Official Release Date Update Shared Ahead Of Third Trailer
+
+Gaming, Rockstar Games, Take-Two Interactive, Grand Theft Auto, Grand Theft Auto 6
+
+Tue, 28 Jul 2026 09:44:49 GMT
+
+https://screenrant.com/gta-6-official-release-date-update-july-28/
+
+CEO Strauss Zelnick reaffirms the Grand Theft Auto VI release date of November 19, 2026, amidst growing anticipation for the third gameplay trailer.
+---------
+
+# Marvel's Spider-Man 2 Free DLC Officially Available Now, Includes 2 New Suits
+
+Gaming, Marvel's Spider-Man 2, Marvel's Spider-Man
+
+Tue, 28 Jul 2026 09:31:41 GMT
+
+https://screenrant.com/marvels-spider-man-2-brand-new-day-update/
+
+Marvel's Spider-Man 2 is undoubtedly a ton of fun, so any new content is always worth thinking about as a player.
+---------
+
+# Final Fantasy 17 Officially Confirmed By Square Enix
+
+Gaming, Final Fantasy
+
+Tue, 28 Jul 2026 09:26:05 GMT
+
+https://screenrant.com/final-fantasy-17-confirmed-square-enix/
+
+During a Q&amp;A session, Final Fantasy 7 Rebirth director Naoki Hamaguchi's reaction to being mentioned for Final Fantasy 17 development has fans curious
+---------
+
+# Marvel Teased Scarlet Witch's MCU Return in Avengers: Doomsday
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe, Scarlet Witch
+
+Tue, 28 Jul 2026 10:00:14 GMT
+
+https://www.cbr.com/scarlet-witch-mcu-return-avengers-doomsday/
+
+We can't wait to see the Scarlet Witch return to the MCU, and Marvel might have just teased her resurrection in Avengers: Doomsday.
+---------
+
+# HBO's Harry Potter Has More Riding on It Than Any Fantasy Series Ever
+
+TV, Harry Potter, HBO Max, Fantasy
+
+Tue, 28 Jul 2026 10:00:14 GMT
+
+https://www.cbr.com/hbo-harry-potter-most-expensive-fantasy-series/
+
+Harry Potter isn't just being compared to itself, but to every other fantasy series on television.
+---------
+
+# Dwayne Johnson's $335 Million Adventure Is Getting a Second Chance on Netflix
+
+Movie News, Journey to the Center of the Earth, journey 2: the mysterious island, Dwayne Johnson, Sci-Fi
+
+Tue, 28 Jul 2026 10:30:14 GMT
+
+https://collider.com/dwayne-johnson-journey-2-mysterious-island-streaming-success-netflix-july-2026/
+
+Dwayne Johnson’s $335 million fantasy adventure Journey 2 has unexpectedly returned to Netflix’s international movie charts.
+---------
+
+# 8 Mystery Thrillers That Are Perfect From the First Scene to the Last
+
+Movie, Thriller, Rear Window, Mystery
+
+Tue, 28 Jul 2026 10:24:14 GMT
+
+https://collider.com/mystery-thriller-movies-perfect-first-scene-to-last/
+
+Movie masterpieces like Mulholland Drive, Memento, and Zodiac offer the perfect mix of mystery and thrills, remaining virtually flawless throughout.
+---------
+
+# HBO's Scathing 8-Part Superhero Movie Satire Is Aging Like Fine Wine
+
+TV Features, The Franchise, Himesh Patel, Daniel Brühl, HBO
+
+Tue, 28 Jul 2026 10:08:14 GMT
+
+https://collider.com/the-franchise-hbo-superhero-satire-aged-well/
+
+HBO's The Franchise offers a scathing yet witty look at the world of superhero filmmaking, becoming increasingly relevant since its release.
+---------
+
+# The Horror Movie Everyone's Talking About Is Officially One of Streaming's Biggest Hits
+
+Movie News, Obsession, Horror, Peacock, Streaming
+
+Tue, 28 Jul 2026 10:00:14 GMT
+
+https://collider.com/obsession-streaming-success-peacock-july-2026/
+
+Peacock subscribers are obsessed with this 2026 horror masterpiece by YouTuber Curry Barker. Here's everything you should know about Obsession.
+---------
+
+# It's the End of an Era for Anne Hathaway's Cult Classic Sci-Fi Movie
+
+Movie News, Anne Hathaway, Jason Sudeikis, Colossal, Netflix
+
+Tue, 28 Jul 2026 09:30:14 GMT
+
+https://collider.com/anne-hathaway-sci-fi-movie-colossal-leaving-netflix-august-10-2026/
+
+The Odyssey star Anne Hathaway's underrated sci-fi fantasy film Colossal is about to be removed from Netflix. Here's how long you have left.
+---------
+
+# 10 Greatest Historical Fiction Books of All Time
+
+Books and Comics, Books, The Count of Monte Cristo, History
+
+Tue, 28 Jul 2026 09:10:14 GMT
+
+https://collider.com/best-historical-fiction-books-all-time-ranked/
+
+From foundational classics like War and Peace to modern masterpieces of the genre like The Nightingale, these are the best historical fiction books.
+---------
+
+# 2 James Bond Stars Officially Reunite in the Sleeper Hit Western Leaving Paramount+
+
+Movie News, Mads Mikkelsen, The Salvation, Eva Green, Paramount Plus
+
+Tue, 28 Jul 2026 09:00:15 GMT
+
+https://collider.com/mads-mikkelsen-western-the-salvation-leaving-paramount-august-31-2026/
+
+Mads Mikkelsen and Eva Green reunited after Casino Royale in the underrated Western The Salvation, which is leaving Paramount+ soon.
+---------
+
+# The 10 Best Sci-Fi Movies of the Last 10 Years, Ranked
+
+Movie, Sci-Fi, Dune: Part Two, Everything Everywhere All at Once, Blade Runner 2049
+
+Tue, 28 Jul 2026 08:58:14 GMT
+
+https://collider.com/best-sci-fi-movies-last-10-years-ranked/
+
+Science fiction has grown a lot over the past few years, featuring groundbreaking stories and visuals in films like Dune and Arrival.
+---------
+
+# 'Spider-Man: Brand New Day' First Reactions Confirm if Tom Holland Saves MCU
+
+Movie News, Spider-Man, Spider-Man: Brand New Day
+
+Tue, 28 Jul 2026 10:06:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-first-reactions-premiere/
+
+The first reactions to 'Spider-Man: Brand New Day' are in, and Tom Holland's fourth MCU solo movie is being called the best of the franchise.
+---------
+
+# 'Tracker' Officially Confirms Its Long-Awaited Return to CBS
+
+TV News, Tracker, Justin Hartley
+
+Tue, 28 Jul 2026 09:42:04 GMT
+
+https://movieweb.com/tracker-season-4-premiere-date-cbs/
+
+CBS has set a premiere date for 'Tracker' Season 4, and Justin Hartley's drama is back on Oct. 4 in a Sunday slot it no longer leads.
+---------
+
 # Baldur's Gate 3 Over-The-Shoulder Camera Mode Adds New Level Of Immersion
 
 Gaming, Baldur's Gate 3, Triple-A Games
@@ -5287,213 +5496,4 @@ Sun, 26 Jul 2026 18:00:12 GMT
 https://movieweb.com/anne-with-an-e-shows-to-watch/
 
 Netflix’s 'Anne with an E' might be over, but there are still plenty of great series fans can find on streaming to fill that void.
----------
-
-# Avatar 4 Has To Make This Villain Change To Fix The Franchise
-
-Movies, Avatar 4, Avatar
-
-Sun, 26 Jul 2026 17:45:11 GMT
-
-https://screenrant.com/avatar-4-varang-villain-not-colonel-miles-quaritch/
-
-Avatar 4 is currently in the works, and it desperately needs to make this villain change to restore the franchise to how good it once was.
----------
-
-# Simu Liu Addresses Shang-Chi 2 Not Being Announced At SDCC
-
-Movies, Shang-Chi 2, Marvel Cinematic Universe, San Diego Comic-Con
-
-Sun, 26 Jul 2026 17:40:43 GMT
-
-https://screenrant.com/shang-chi-2-status-avengers-doomsday-role-simu-liu-response/
-
-EXCLUSIVE: With Shang-Chi 2 not announced at San Diego Comic-Con this year, Simu Liu addresses the sequel's status and his role in Avengers: Doomsday.
----------
-
-# Marvel Is Rebooting Venom; Here’s What We Know
-
-Marvel Comics, Venom
-
-Sun, 26 Jul 2026 17:30:11 GMT
-
-https://screenrant.com/venom-reboot-eddie-brock-mary-jane/
-
-Marvel announces a fresh start for Venom and Eddie Brock, who return to their traditional dynamics as their universe's most famous symbiote-human duo.
----------
-
-# Supernatural's Secret Sequel Proves Season 16 Should Wait
-
-Classic TV, Supernatural, Masked Recs
-
-Sun, 26 Jul 2026 17:30:11 GMT
-
-https://screenrant.com/supernatural-winchesters-sequel-season-16-should-wait/
-
-As the entertainment landscape is overrun with revivals, Supernatural's secret sequel proves the show should wait to bring back Sam and Dean.
----------
-
-# GTA 6 Gamers Fiercely Debate Trailer 3 Official Date
-
-Gaming, Grand Theft Auto 6
-
-Sun, 26 Jul 2026 17:30:11 GMT
-
-https://screenrant.com/gta-6-trailer-3-timeline-reaction/
-
-Grand Theft Auto 6 could bury its head in the sand until November if it wanted, but fans expect a lot more marketing in the months ahead of launch.
----------
-
-# FX's 7-Part Action Drama Is The Sopranos On Wheels
-
-Classic TV, Masked Recs
-
-Sun, 26 Jul 2026 17:22:11 GMT
-
-https://screenrant.com/sons-of-anarchy-tv-series-sopranos-on-wheels/
-
-FX's action-packed drama Sons of Anarchy takes everything that makes The Sopranos so compelling and puts it on the back of a speeding motorcycle.
----------
-
-# DC Announces First-of-Its-Kind Darkseid Project Coming in October
-
-DC Comics, Darkseid
-
-Sun, 26 Jul 2026 17:17:53 GMT
-
-https://screenrant.com/darkseid-vs-the-world-release-details/
-
-DC has announced a new Darkseid-centric project coming this fall that promises to present the legendary villain as fans have "never seen him before."
----------
-
-# The Biggest Complaint About Steve Rogers' Doomsday Role Is Impossible To Ignore
-
-Movies, Avengers: Doomsday, Steve Rogers
-
-Sun, 26 Jul 2026 17:15:11 GMT
-
-https://screenrant.com/avengers-doomsday-heroes-return-not-women/
-
-Avengers: Doomsday has sparked conversations for myriad reasons, and one major debate is regarding the return of Steve Rogers (and its implications).
----------
-
-# The Batman Part II Already Has One Big Advantage Over Nolan's The Dark Knight
-
-Movies, The Batman Part II
-
-Sun, 26 Jul 2026 17:06:11 GMT
-
-https://screenrant.com/the-batman-2-timeline-advantage-the-dark-knight/
-
-For many people, The Dark Knight remains the greatest superhero movie ever made, but The Batman Part II could be even better thanks to this advantage.
----------
-
-# The Big Lebowski Meets Blade Runner In Scarlett Johansson's New Netflix Sci-Fi Ray Gunn
-
-Movies, Ray Gunn, San Diego Comic-Con
-
-Sun, 26 Jul 2026 17:02:41 GMT
-
-https://screenrant.com/netflix-ray-gunn-blade-runner-big-lebowski-influences-brad-bird/
-
-Exclusive: Brad Bird teases the many influences that informed his upcoming Netflix animated sci-fi movie Ray Gunn, starring Scarlett Johansson.
----------
-
-# Star Trek’s Captain Kirk Replacement Became the Character TNG Actually Needed
-
-TV, Star Trek, Star Trek: The Next Generation, Star Trek: Picard
-
-Sun, 26 Jul 2026 17:30:15 GMT
-
-https://www.cbr.com/star-trek-tng-will-riker-best-captain-kirk-replacement/
-
-When Star Trek sought a then-unprecedented second-life on TV, one character proved to be both a needed utility player and fan-favorite hero.,
----------
-
-# 35 Isekai Manga That Are Better Than You'd Expect
-
-Anime, Manga, Isekai
-
-Sun, 26 Jul 2026 17:30:15 GMT
-
-https://www.cbr.com/isekai-manga-hidden-gems/
-
-There are a lot of Isekai stories out there, but these 15 manga are some of the best (if underrated) ones that fans should read now.
----------
-
-# 5 Masterpiece GameCube Games No One Remembers
-
-Games, Nintendo, Hello Kitty, sanrio
-
-Sun, 26 Jul 2026 17:15:15 GMT
-
-https://www.cbr.com/masterpiece-gamecube-games-no-one-remembers/
-
-Everyone remembers perfect GameCube classics like Twilight Princess and Mario Kart Double Dash, but there are other masterpieces no one remembers.
----------
-
-# What's Coming to Paramount+ in August 2026? Everything Arriving Next Month
-
-TV, Paramount Plus
-
-Sun, 26 Jul 2026 17:00:15 GMT
-
-https://www.cbr.com/what-coming-paramount-august-2026-full-list/
-
-The streamer will add bring back a hit Taylor Sheridan series, among several exciting sports events.
----------
-
-# 6 Worst R-Rated Sci-Fi Movies of the 1990s
-
-Movie, Sci-Fi, Virus, Split Second, Judge Dredd
-
-Sun, 26 Jul 2026 17:03:14 GMT
-
-https://collider.com/worst-r-rated-sci-fi-movies-90s/
-
-From Johnny Mnemonic to Alien: Resurrection, these infamous '90s sci-fi flops wasted decent ideas with baffling execution.
----------
-
-# Everyone Was Wrong About Tom Holland's 'The Odyssey' Performance
-
-Features, The Odyssey, Tom Holland
-
-Sun, 26 Jul 2026 17:30:12 GMT
-
-https://movieweb.com/tom-holland-odyssey-performance/
-
-Across the brilliant and talented cast of Christopher Nolan's 'The Odyssey' Tom Holland seemed to get the most criticism, and it's totally undeserved.
----------
-
-# Netflix’s Best 10-Part Thriller Is So Good, They Made 4 More Just Like It
-
-Features, The Haunting of Hill House, Netflix, Mike Flanagan
-
-Sun, 26 Jul 2026 17:00:12 GMT
-
-https://movieweb.com/haunting-of-hill-house-mike-flanagan-netflix-thrillers/
-
-Netflix has more than a few fantastic thriller TV series, including this popular one that was followed by four memorable shows.
----------
-
-# Pamela Anderson Addresses Potential Baywatch Reboot Return In Fox's New Series
-
-TV, Baywatch
-
-Sun, 26 Jul 2026 16:42:00 GMT
-
-https://screenrant.com/baywatch-reboot-series-pamela-anderson-return-potential-response/
-
-Pamela Anderson confirms she has no plans to return for Fox's upcoming Baywatch reboot, stating she's focused on new creative opportunities.
----------
-
-# The MCU's Newest Movie Is The Perfect Place For Mahershala Ali's Blade To Appear
-
-Superheroes, Ghost Rider, Marvel Cinematic Universe, Blade
-
-Sun, 26 Jul 2026 16:40:11 GMT
-
-https://screenrant.com/blade-mahershala-ali-ghost-rider-movie/
-
-Mahershala Ali's Blade has waited seven years to appear in an MCU movie, and a newly announced film immediately becomes the perfect spot.
 ---------
