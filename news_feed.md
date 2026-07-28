@@ -1,3 +1,377 @@
+# Supergirl's Second Chance At Success Begins Today
+
+Superheroes, Supergirl, DC Universe
+
+Tue, 28 Jul 2026 16:45:11 GMT
+
+https://screenrant.com/supergirl-digital-release-second-chance/
+
+DC's Supergirl movie didn't perform well at the box office, but it now has a second chance to become a success that could change the narrative.
+---------
+
+# Live-Action Ezra Bridger Star Wars Spinoff Series Potential Addressed By Ahsoka Actor
+
+TV, Ahsoka, Star Wars
+
+Tue, 28 Jul 2026 16:42:56 GMT
+
+https://screenrant.com/star-wars-rebels-ezra-live-action-spinoff-chances-eman-esfandi/
+
+EXCLUSIVE: Eman Esfandi reveals if he would ever want to reprise the role of Ezra Bridger in his own spinoff series after starring on Ahsoka.
+---------
+
+# Why Spider-Man: Brand New Day’s Rotten Tomatoes Score Is The Lowest Of Tom Holland’s Marvel Movies
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Tue, 28 Jul 2026 16:41:32 GMT
+
+https://screenrant.com/spider-man-brand-new-day-reviews-explained/
+
+The first Spider-Man: Brand New Day reviews are in, and the MCU movie surprisingly ranks lower than Tom Holland's other films for a few reasons.
+---------
+
+# 7 Free Steam Games That You'll Struggle To Put Down
+
+Gaming, Steam, PC, The Finals
+
+Tue, 28 Jul 2026 16:30:11 GMT
+
+https://screenrant.com/7-free-steam-games-hard-to-put-down/
+
+These completely free Steam games are the perfect experience for those looking for truly engrossing experiences you'll never be able to put down.
+---------
+
+# The Rings Of Power Season 3's Huge Balrog Change Is NOT Breaking Tolkien Canon
+
+Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Tue, 28 Jul 2026 16:30:11 GMT
+
+https://screenrant.com/the-rings-of-power-talking-balrog-not-break-tolkien-lore/
+
+Rings of Power is doing something with Balrogs that's never been done before, and while it's unique, the choice doesn't technically contradict canon.
+---------
+
+# 007 First Light Switch 2 Release Date Leaked By Retailer
+
+Gaming, 007 First Light, James Bond, Nintendo Switch 2, Triple-A Games
+
+Tue, 28 Jul 2026 16:24:40 GMT
+
+https://screenrant.com/007-first-light-switch-2-release-date-leak/
+
+007 First Light has yet to arrive on the Nintendo Switch 2, likely due to hardware constraints, but a leaked release date indicates a short wait.
+---------
+
+# The Batman 2 Return Gets Encouraging Update From Key DC Creative After 2028 Delay
+
+Movies, The Batman Part II, Batman, DC
+
+Tue, 28 Jul 2026 16:17:58 GMT
+
+https://screenrant.com/the-batman-2-return-2028-delay-michael-giacchino/
+
+EXCLUSIVE: After The Batman: Part II was delayed to 2028, one key creative who isn’t yet confirmed to return addresses whether he’ll be back.
+---------
+
+# Why Netflix's Masterpiece New R-Rated Fantasy Series Has Become A Global Streaming Hit
+
+TV, Masked Recs
+
+Tue, 28 Jul 2026 16:15:11 GMT
+
+https://screenrant.com/netflix-the-east-palace-streaming-charts-rise-july-2026/
+
+Netflix's new R-rated fantasy series with a rare Rotten Tomatoes score has become a global streaming hit, and its success comes from a creative story.
+---------
+
+# What's Coming To Prime Video In August 2026: Full List Of TV Shows & Movies
+
+Streaming TV, Prime Video
+
+Tue, 28 Jul 2026 16:15:11 GMT
+
+https://screenrant.com/everything-coming-to-prime-video-august-2026/
+
+The exciting lineup of new TV shows, movies, and live sports events coming to Prime Video in August 2026, from original series to blockbuster films.
+---------
+
+# 5 Biggest Stories X-Men '97 Can Adapt for Seasons 3 and 4
+
+Comics, X-Men, X-Men '97
+
+Tue, 28 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/x-men-97-arcs-adapt/
+
+The X-Men stories we need to see in animation.
+---------
+
+# Prime Video & HBO Max Team Up for 'Gonzo' Revenge Thriller Starring Catherine Zeta-Jones
+
+TV, Prime Video, HBO Max, Thriller
+
+Tue, 28 Jul 2026 16:39:00 GMT
+
+https://www.cbr.com/prime-video-hbo-max-kill-jackie-revenge-thriller-catherine-zeta-jones/
+
+A new Catherine Zeta-Jones revenge thriller is coming to Prime Video and HBO Max
+---------
+
+# 5 Classic Cartoon Network Anime That Aren't As Good As You Remember
+
+Anime, toonami, Mobile Suit Gundam Wing
+
+Tue, 28 Jul 2026 16:15:15 GMT
+
+https://www.cbr.com/classic-cartoon-network-anime-arent-as-good-as-you-remember/
+
+Cartoon Network's Toonami programming block was full of formative anime, but also messier misfires like Samurai 7, Tenchi Muyo! GXP, and Gundam Wing.
+---------
+
+# Apple TV's 'Perfect Feel-Good Comedy' Fuels Fan-Favorite Death Theories With New Clip
+
+CBR Exclusives, Trying
+
+Tue, 28 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/apple-tv-trying-scott-new-clip/
+
+Exclusive: While the show has been a largely wholesome series, it doesn't lack heartbreak.
+---------
+
+# 4 Years Later, Emily Blunt's 6-Episode Western on Prime Video Still Outshines Yellowstone
+
+TV, Prime Video, The English, Western
+
+Tue, 28 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/prime-video-the-english-better-than-yellowstone/
+
+One Prime Video series outshines most Westerns with its compact story, authentic cinematography, and fresh take on overdone genre tropes.
+---------
+
+# DC Reveals Exciting New Anime Designs for Wonder Woman & Supergirl
+
+Comics, Wonder Woman, Supergirl, Justice League
+
+Tue, 28 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/justice-league-unlimited-24-variant-wonder-woman-supergirl-anime-designs/
+
+These Wonder Woman and Supergirl redesigns send up over the Moon.
+---------
+
+# Eternity Combines the Best Parts of 'The Good Place' and 'The Notebook'
+
+Movies, Eternity, Apple TV, The Good Place, The Notebook
+
+Tue, 28 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/apple-tv-eternity-combines-good-place-notebook/
+
+One of Apple's best original movies gives us the best of both worlds by blending elements of fantasy with deep romance and compelling comedy.
+---------
+
+# Batman: Caped Crusader Season 2 Review: Batman’s Best Animated Show in Years
+
+Movies, Batman: Caped Crusader
+
+Tue, 28 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/batman-caped-crusader-season-2-review/
+
+Batman: Caped Crusader Season 2 builds on its debut with a darker Gotham, memorable villains, and one of TV’s best Jokers.
+---------
+
+# Japan Ranks the Top 10 Horror Anime of All Time
+
+Anime, Horror, GeGeGe no Kitarō
+
+Tue, 28 Jul 2026 15:20:15 GMT
+
+https://www.cbr.com/top-horror-anime-all-time-japan-ranking-2026/
+
+Japan reveals which 10 anime horror titles are the medium's best when it comes to ghosts, demons and things that go bump in the night.
+---------
+
+# New Home Alone Sequel Gets Encouraging Update With Macaulay Culkin
+
+Movies, Home Alone
+
+Tue, 28 Jul 2026 15:15:25 GMT
+
+https://www.cbr.com/home-alone-sequel-update-macalaulay-culkin/
+
+A Home Alone sequel with Macaulay Culkin may finally be happening.
+---------
+
+# 10 Must-Watch Action Anime With No Weak Seasons
+
+Anime
+
+Tue, 28 Jul 2026 15:15:15 GMT
+
+https://www.cbr.com/must-watch-action-anime-no-weak-seasons/
+
+The nature of action anime can make consistency difficult, but shows like Demon Slayer and Gintama never falter.
+---------
+
+# 6 Best Crime Movies Released Since 2010
+
+Movie, Crime, One Battle After Another, The Wolf of Wall Street, No Other Choice
+
+Tue, 28 Jul 2026 16:45:15 GMT
+
+https://collider.com/best-crime-movies-since-2010/
+
+Since 2010, there have been a multitude of notable crime movies that have pushed the genre forward, such as Prisoners and Killers of the Flower Moon.
+---------
+
+# 'Ghosts' Officially Sets Return Date After Surprise Schedule Shake-Up
+
+TV News, Ghosts, CBS, Sitcom, Rose McIver
+
+Tue, 28 Jul 2026 16:21:14 GMT
+
+https://collider.com/ghosts-season-6-halloween-christmas-special-release-date-cbs/
+
+Ghosts has officially set release dates for Season 6’s Halloween and Christmas specials after a major schedule shake-up ahead of 2027.
+---------
+
+# Former ‘Doctor Who’ Showrunner Warns Reboot Would Create One Huge Problem
+
+TV Features, Doctor Who, BBC, Steven Moffat, Prime Video
+
+Tue, 28 Jul 2026 16:11:15 GMT
+
+https://collider.com/doctor-who-steven-moffat-reboot-problem-opinion/
+
+Steven Moffat, who previously wrote for Doctor Who, says the series shouldn't undergo a full reboot.
+---------
+
+# HBO Max Is Officially Making a Major Change to Streaming
+
+TV News, HBO, HBO Max, House of the Dragon, Mortal Kombat II
+
+Tue, 28 Jul 2026 16:05:58 GMT
+
+https://collider.com/hbo-max-new-mobile-features-shorts-ai-conversational-search/
+
+HBO Max is testing HBO Max Shorts and conversational search, two new AI-powered mobile features designed to improve content discovery.
+---------
+
+# 1 Year Later, 'Dexter: Resurrection' Season 2 Officially Confirms Michael C. Hall’s Killer Comeback
+
+TV News, Dexter, Dexter: Resurrection, Michael C. Hall
+
+Tue, 28 Jul 2026 16:01:50 GMT
+
+https://collider.com/dexter-resurrection-season-2-first-look-images-michael-c-hall/
+
+See Michael C. Hall’s return in the first Dexter: Resurrection Season 2 images ahead of the show’s Paramount+ premiere.
+---------
+
+# Josh Hartnett’s New Netflix Sea-Monster Thriller Officially Debuts First Trailer
+
+TV News, Below, Charlie Heaton, Josh Hartnett, Netflix
+
+Tue, 28 Jul 2026 16:00:15 GMT
+
+https://collider.com/josh-hartnett-below-trailer-netflix/
+
+The first trailer for Netflix's new thriller series Below casts Josh Hartnett as a Newfoundland fisherman whose community faces a threat from the sea.
+---------
+
+# Christopher Nolan’s ‘The Odyssey’ Overtakes Ridley Scott’s Biggest Sci-Fi Hit
+
+Movie News, The Odyssey, The Martian, Ridley Scott, Matt Damon
+
+Tue, 28 Jul 2026 15:41:15 GMT
+
+https://collider.com/the-odyssey-overtakes-the-martian-global-box-office-652-million/
+
+The Odyssey has already earned more than Ridley Scott's highest-grossing movie at the box office in less than two weeks.
+---------
+
+# Michael B. Jordan Officially Reacts to Marvel's Black Panther Replacement
+
+Movie News, Michael B. Jordan, Black Panther, Black Panther 3, David Jonsson
+
+Tue, 28 Jul 2026 15:20:05 GMT
+
+https://collider.com/michael-b-jordan-broken-silence-black-panther-casting/
+
+Michael B. Jordan officially reacts to Marvel's new Black Panther 3 announcement as David Johnsson prepares to step into the role in 2028.
+---------
+
+# Netflix Unleashes "Jaws Meets Stephen King" in First Trailer for New Thriller Miniseries
+
+TV Trailers, Netflix, Thriller, Josh Hartnett
+
+Tue, 28 Jul 2026 16:41:35 GMT
+
+https://movieweb.com/below-teaser-trailer/
+
+Josh Hartnett tackles a bold accent in the trailer for Netflix's latest monster-fueled mystery, where he protects his family from an unknown creature.
+---------
+
+# 'The Odyssey' Slammed by the One Person Christopher Nolan Was Hoping Would Love It
+
+Movie News, The Odyssey, Christopher Nolan, Matt Damon
+
+Tue, 28 Jul 2026 16:39:08 GMT
+
+https://movieweb.com/the-odyssey-emily-wilson-christopher-nolan/
+
+Christopher Nolan slammed by academic who inspired 'The Odyssey' adaptation.
+---------
+
+# Netflix Scores Big Thanks to New 90-Minute Crime Thriller With Jaw-Dropping Twist
+
+Movie News, Netflix, Hot on Streaming, Crime, Thriller
+
+Tue, 28 Jul 2026 16:30:12 GMT
+
+https://movieweb.com/netflix-toxic-love-story-streaming-hit-july-2026/
+
+The latest addition to Netflix's true crime lineup is mind-blowing, to say the least.
+---------
+
+# Nathan Fillion Confirms Current Status of Long-Awaited 'Firefly' Reboot
+
+TV News, Firefly
+
+Tue, 28 Jul 2026 16:12:59 GMT
+
+https://movieweb.com/nathan-fillion-firefly-animated-reboot/
+
+This cult space Western is getting rebooted 23 years after the original series released.
+---------
+
+# 'Widow's Bay' Season 2: Everything We Know About the Hit Apple TV Thriller
+
+Features, Widow's Bay, Everything We Know
+
+Tue, 28 Jul 2026 16:00:12 GMT
+
+https://movieweb.com/widows-bay-season-2-everything-we-know/
+
+'Widows Bay,' the thriller series starring Matthew Rhys on Apple TV, became a big hit, and here is everything we know about Season 2.
+---------
+
+# ABC Sets Fall Premiere Dates for 'Grey's Anatomy,' 'Scrubs' & More
+
+TV News, Scrubs, Grey's Anatomy
+
+Tue, 28 Jul 2026 15:51:38 GMT
+
+https://movieweb.com/abc-fall-premiere-schedule-2026/
+
+ABC is ready to bring back some of its biggest shows, as the network's Fall 2026 TV schedule is approaching its start date.
+---------
+
 # Hit Dexter Series Officially Returns With New Episodes Next Week
 
 TV, Dexter
@@ -5122,378 +5496,4 @@ Sun, 26 Jul 2026 22:30:15 GMT
 https://collider.com/my-brilliant-career-netflix-premiere-date-august-13/
 
 Discover the captivating new period drama from Netflix that is poised to be the new Bridgerton. Here are all the details.
----------
-
-# 10 Great Quotes From 'The Odyssey' That Are Already Modern Classics
-
-Features, The Odyssey, Christopher Nolan
-
-Sun, 26 Jul 2026 23:00:12 GMT
-
-https://movieweb.com/the-odyssey-quotes-modern-classics/
-
-Christopher Nolan's 'The Odyssey' is a global phenomenon, and some of the most memorable lines from the star-studded epic are already classics.
----------
-
-# Mike Flanagan's 'Carrie' Adaptation Takes Notes From His Best Netflix Show
-
-Features, Carrie, Mike Flanagan, Stephen King, The Haunting of Hill House
-
-Sun, 26 Jul 2026 22:30:12 GMT
-
-https://movieweb.com/mike-flanagan-carrie-learn-best-netflix-show/
-
-Mike Flanagan's upcoming Stephen King adaptation may not go over well with book purists, but it's taking promising notes from his best show.
----------
-
-# 10 Most Powerful Magical Objects In Harry Potter, Ranked
-
-Classic Movies, Harry Potter
-
-Sun, 26 Jul 2026 22:25:11 GMT
-
-https://screenrant.com/most-powerful-harry-potter-magical-objects/
-
-Harry Potter has a lot of incredibly powerful magical objects in the wizarding world, and here are the most powerful of the objects in existence.
----------
-
-# Apple TV's Biggest Upcoming Sci-Fi Series Is Only 6 Months Away
-
-Streaming TV, Masked Recs, San Diego Comic-Con
-
-Sun, 26 Jul 2026 22:15:11 GMT
-
-https://screenrant.com/neuromancer-apple-tv-sci-fi-show-january-2027/
-
-Apple TV’s science fiction offerings are about to become even more impressive with the release of its biggest sci-fi show, set to arrive in 6 months.
----------
-
-# Ransom Canyon’s Family Tree Explained: How Each Character Connects In Netflix’s Western Series
-
-Streaming TV, Ransom Canyon
-
-Sun, 26 Jul 2026 22:00:12 GMT
-
-https://screenrant.com/ransom-canyon-family-tree-explained/
-
-All of the characters in Netflix's Western drama series Ransom Canyon connect in various ways, through blood, romance, and everything in between.
----------
-
-# All 11 Known Avatars In The Last Airbender Universe (Before & After Aang)
-
-Streaming TV, Avatar: The Last Airbender, Avatar Aang: The Last Airbender
-
-Sun, 26 Jul 2026 22:00:12 GMT
-
-https://screenrant.com/all-avatars-last-airbender-universe-before-after-aang-cycle/
-
-Avatar: The Last Airbender has a vast mythology, including the many generations of Avatars who have been reincarnated before and after Aang himself.
----------
-
-# Marvel’s Daredevil Game Getting MCU Fans Hyped After Disney+ Show
-
-Gaming, Daredevil, Triple-A Games
-
-Sun, 26 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/marvel-daredevil-game-mcu-fans/
-
-Marvel is sleeping on Daredevil, an iconic character whose popularity is through the roof and who would adapt well to an action-adventure video game.
----------
-
-# The Complete Evolution Of Captain America's On-Screen Live-Action Appearances
-
-Superheroes, Marvel Cinematic Universe, Captain America
-
-Sun, 26 Jul 2026 21:55:11 GMT
-
-https://screenrant.com/captain-america-live-action-appearances-evolution/
-
-Captain America, in numerous guises, has appeared in movies and television for over 80 years, evolving significantly throughout the decades.
----------
-
-# The Rings Of Power Season 3 Canon Change Connects The One Ring To The Silmarils
-
-Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, San Diego Comic-Con
-
-Sun, 26 Jul 2026 21:45:11 GMT
-
-https://screenrant.com/the-rings-of-power-feanor-hammer-silmarils/
-
-The SDCC teaser trailer for The Rings of Power season 3 reveals that Sauron's One Ring to Rule Them All is intriguingly linked to Feanor's Silmarils.
----------
-
-# How To Watch Ben 10 In Order — By Release Date & Chronologically For All Shows, Movies & Specials
-
-Classic TV, Ben 10
-
-Sun, 26 Jul 2026 21:30:11 GMT
-
-https://screenrant.com/how-to-watch-ben-10-in-order/
-
-There are a significant number of titles in the Ben 10 franchise, making how to watch Ben 10 in order a tricky question with a simple solution.
----------
-
-# 10 Most Powerful Pokémon TCG Cards That Haven't Been Banned
-
-Games, Pokemon, Pokemon Trading Card Game, Pokemon TCG, Tabletop, TCG
-
-Sun, 26 Jul 2026 22:15:15 GMT
-
-https://www.cbr.com/most-powerful-pokemon-tcg-cards-not-banned/
-
-TCGs ban cards all the time, and Pokémon is no exception to that rule, but there are some incredibly powerful cards that have yet to be banned.
----------
-
-# 4 Years Later, Gundam Finally Brings Back Char's Counterattack's Blue Zeon Mecha
-
-Anime, Mobile Suit Gundam, Mobile Suit Gundam: Char's Counterattack, merchandise, toys, bandai
-
-Sun, 26 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/gundam-chars-counterattack-geara-doga-re-release/
-
-A Master Grade kit based on a mech design from the first original Mobile Suit Gundam movie is once again available for pre-order for fans in the West.
----------
-
-# 8 Perfect Fantasy Movies Nobody Remembers Today
-
-Movies, Fantasy
-
-Sun, 26 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/best-fantasy-movies-no-one-remembers-list/
-
-A list of eight amazing fantasy movies everyone should see at least once that have, sadly, been forgotten over time.
----------
-
-# Top 10 DC Elseworlds Comics That Outshine the Originals
-
-Comics, DC Comics, DC Elseworlds, Batman
-
-Sun, 26 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/dc-elseworlds-comics-better-than-originals/
-
-From Elseworlds to Black Label, DC continues to release variations of their world and heroes that outshine the originals, winning the respect of fans.
----------
-
-# Apple TV's Widow's Bay Season 2 Filming Timeline Unveiled by Showrunner
-
-TV, Widow's Bay
-
-Sun, 26 Jul 2026 21:56:04 GMT
-
-https://www.cbr.com/apple-tv-widows-bay-season-2-filming-timeline/
-
-The show was an unexpected hit and fans want more as soon as possible.
----------
-
-# CBS’ Risky New NCIS Strategy Is a Historic Franchise First
-
-TV, NCIS: New York, NCIS, CBS, Hawaii Five-0
-
-Sun, 26 Jul 2026 21:37:42 GMT
-
-https://www.cbr.com/cbs-hawaii-five-0-scott-caan-ncis-new-york-franchise-first/
-
-CBS will officially make history with its Navy procedural in the upcoming television schedule, taking a calculated risk with longtime NCIS fans.
----------
-
-# Timothy Olyphant's New 8-Part Series Returns to No. 1 After Record-Breaking Debut
-
-TV, The Five-Star Weekend
-
-Sun, 26 Jul 2026 21:30:15 GMT
-
-https://www.cbr.com/timothy-olyphant-the-five-star-weekend-peacock-no-1-july-2026/
-
-Timothy Olyphant's shows are making a splash on streaming.
----------
-
-# 8 TV Shows That Changed Their Formula for the Worse
-
-TV, Television, The Walking Dead, Euphoria, How I Met Your Mother
-
-Sun, 26 Jul 2026 22:21:15 GMT
-
-https://collider.com/tv-shows-worst-formula-change/
-
-AMC's The Walking Dead and HBO's Euphoria are proof that when a TV show changes course, it can actually create more damage, making the series worse.
----------
-
-# 6 Best Thriller Movies of 2026 (So Far), Ranked
-
-Movie, Thriller, Obsession, Backrooms, Send Help
-
-Sun, 26 Jul 2026 22:03:14 GMT
-
-https://collider.com/best-thriller-movies-2026-ranked/
-
-From Dead Man’s Wire to Crime 101 to Send Help, 2026’s best thrillers prove suspense works best when every choice has consequences.
----------
-
-# Prime Video's 3-Part 'Silo' Replacement Is Still a Streaming Sensation
-
-TV News, Fallout, Prime Video, Silo, Walton Goggins
-
-Sun, 26 Jul 2026 22:00:14 GMT
-
-https://collider.com/prime-video-sci-fi-fallout-streaming-success-july-2026/
-
-Fallout, which has been widely hailed as Prime Video's answer to Silo, is surging on streaming right now before the arrival of Season 3.
----------
-
-# These 8 Olivia Colman Movies Are Masterpieces
-
-Movie, Olivia Colman, The Favourite, Hot Fuzz, The Lost Daughter
-
-Sun, 26 Jul 2026 21:55:15 GMT
-
-https://collider.com/best-olivia-colman-movies-masterpieces/
-
-Oscar winner Olivia Colman is great in everything, but films like The Father, The Favourite, and The Lost Daughter stand out as her true masterpieces.
----------
-
-# A 73-Year-Old Western Featuring Quentin Tarantino’s Favorite Movie Star Is Leaving Paramount+
-
-Movie News, Hondo, John Wayne, John Ford, Quentin Tarantino
-
-Sun, 26 Jul 2026 21:30:15 GMT
-
-https://collider.com/john-wayne-western-hondo-leaving-paramount-plus-august-2026/
-
-The 1953 Western Hondo, starring John Wayne, is about to leave Paramount+ soon. Find out how long you have left to watch it.
----------
-
-# Henry Cavill's Unofficial James Bond Prequel Sets Free Streaming Release Date
-
-Movie News, The Ministry of Ungentlemanly Warfare, Tubi, Hot on Streaming, James Bond, Henry Cavill
-
-Sun, 26 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/ministry-of-ungentlemanly-warfare-henry-cavill-james-bond-stream-free-tubi-august-2026/
-
-Henry Cavill's unofficial James Bond prequel, 'The Ministry of Ungentlemanly Warfare,' streams for free on Tubi in August 2026.
----------
-
-# The 10 Greatest Death Scenes in Movie History, Ranked
-
-Movie Lists, Action, Drama, Sci-Fi, War, Fantasy, Horror
-
-Sun, 26 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/greatest-death-scenes-movie-history/
-
-An impactful demise can haunt audiences long after a movie ends, but what sets the greatest death scenes of all time apart from the rest?
----------
-
-# Syrio Dropped the Most Unforgettable 'Game of Thrones' Quote in Just 3 Episodes
-
-Features, Game Of Thrones, Game of Thrones
-
-Sun, 26 Jul 2026 21:30:12 GMT
-
-https://movieweb.com/game-of-thrones-unforgettable-quote-syrio-forel/
-
-The most unforgettable 'Game of Thrones' quote arrived as early as Season 1, and it had a long-lasting impact on HBO's hit fantasy series.
----------
-
-# Thanks To Ryan Gosling's Ghost Rider, We're One Step Closer To The MCU's Midnight Sons
-
-Superheroes, Ghost Rider, Marvel Cinematic Universe, San Diego Comic-Con, Ryan Gosling
-
-Sun, 26 Jul 2026 21:15:11 GMT
-
-https://screenrant.com/ryan-gosling-ghost-rider-closer-to-mcu-midnight-sons/
-
-Marvel Studios has finally cast Ryan Gosling as the next Ghost Rider, and I couldn't be more excited about what it might mean for The Midnight Sons.
----------
-
-# X-Men Star James Marsden Reveals How Joining Avengers: Doomsday Changes Cyclops
-
-Movies, Avengers: Doomsday, San Diego Comic-Con
-
-Sun, 26 Jul 2026 21:13:04 GMT
-
-https://screenrant.com/x-men-james-marsden-joining-mcu-avengers-doomsday-changes-cyclops/
-
-Original X-Men star James Marsden discusses what it's like to reprise his role as Cyclops in the upcoming MCU film Avengers: Doomsday.
----------
-
-# Yellowstone Is Back As One Of Streaming's Biggest Shows
-
-Streaming TV, Yellowstone
-
-Sun, 26 Jul 2026 21:12:11 GMT
-
-https://screenrant.com/yellowstone-number-one-show-paramount-plus-worldwide/
-
-As new Yellowstone spinoffs continue to launch, the original series sees a resurgence in popularity, creating a feedback loop that secures its legacy.
----------
-
-# The Bear's Berzatto Family Tree Explained: All Characters & How They're Related
-
-TV, The Bear
-
-Sun, 26 Jul 2026 21:00:12 GMT
-
-https://screenrant.com/the-bear-berzatto-family-tree/
-
-The Bear consistently delves into Carmen "Carmy" Berzatto's family dynamics, even elaborating on what the extended Berzatto family tree looks like.
----------
-
-# New Silent Hill Game’s Setting Is Already Dividing Fans
-
-Gaming, Silent Hill, Silent Hill: Townfall, Triple-A Games
-
-Sun, 26 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/silent-hill-townfall-setting-fan-reaction/
-
-Silent Hill's newest game makes the bold choice to once again leave the actual town of Silent Hill, and fans aren't all pleased with that decision.
----------
-
-# It's Official, The Walking Dead Is Bringing Back Emily Kinney's Beth
-
-Comic-Con, San Diego Comic-Con, The Walking Dead
-
-Sun, 26 Jul 2026 20:59:12 GMT
-
-https://screenrant.com/the-walking-dead-spinoff-dead-city-season-3-beth-emily-kinney/
-
-The Walking Dead has an infamously high death toll, killing many fan favorite characters. Now, The Walking Dead Universe is bringing one of these back
----------
-
-# Kumail Nanjiani's 10 Best TV Shows & Movies, Ranked
-
-Streaming TV, Kumail Nanjiani
-
-Sun, 26 Jul 2026 20:30:11 GMT
-
-https://screenrant.com/kumail-nanjiani-best-shows-movies-ranked/
-
-Discover Kumail Nanjiani's best roles, ranked from his breakout in television to his action-comedy movies and even work behind the camera.
----------
-
-# Forgotten 12-Part Sci-Fi Series Is Futurama Meets Doctor Who Via Shaun Of The Dead
-
-TV, Masked Recs
-
-Sun, 26 Jul 2026 20:28:11 GMT
-
-https://screenrant.com/hyperdrive-sci-fi-tv-show-forgotten/
-
-A cult sci-fi comedy series that blended Doctor Who and Futurama's ideas remains criminally underrated decades later, despite its fun premise.
----------
-
-# 7 Shonen Anime That Are Just as Good as JJK
-
-Anime, Jujutsu Kaisen, Chainsaw Man, shonen anime
-
-Sun, 26 Jul 2026 21:15:15 GMT
-
-https://www.cbr.com/shonen-anime-as-good-as-jjk-jujutsu-kaisen/
-
-Shonen series like Attack on Titan and Chainsaw Man are undeniably on par with Jujutsu Kaisen.
 ---------
