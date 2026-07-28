@@ -1,3 +1,289 @@
+# Spider-Man: Brand New Day First Reactions Are Officially In
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Tue, 28 Jul 2026 05:08:02 GMT
+
+https://screenrant.com/spider-man-brand-new-day-reactions-marvel/
+
+The first official reactions to Tom Holland's highly anticipated Spider-Man: Brand New Day movie have finally arrived ahead of the film's release.
+---------
+
+# Star Wars Legend Qui-Gon Jinn Celebrated With New 2027 Release
+
+Gaming
+
+Tue, 28 Jul 2026 05:00:11 GMT
+
+https://screenrant.com/star-wars-qui-gon-jinn-2027-statue-release/
+
+Although they only had one film to really show off their chops, Liam Neeson's memorable turn as Qui-Gon Jinn has captivated fans for years.
+---------
+
+# Dungeons & Dragons Is Getting Its Biggest Crossover Ever
+
+Gaming, World of Warcraft, Dungeons and Dragons, PC, Dungeons & Dragons
+
+Tue, 28 Jul 2026 04:30:11 GMT
+
+https://screenrant.com/dungeons-dragons-world-of-warcraft-crossover-leak/
+
+After decades of excellent releases, exciting collaborations, and major events, Dungeons & Dragons is finally getting its biggest crossover yet.
+---------
+
+# Cyberpunk 2077: The Heist Officially Announced
+
+Gaming, Cyberpunk 2077, PC
+
+Tue, 28 Jul 2026 04:00:15 GMT
+
+https://screenrant.com/cyberpunk-2077-the-heist-annoucned/
+
+A brand-new Cyberpunk 2077 release titled The Heist has been officially announced and is set to release sooner than you think.
+---------
+
+# Netflix's New Supernatural Drama Is Now #1 For 2 Weeks In A Row
+
+TV, Netflix, Masked Recs
+
+Tue, 28 Jul 2026 03:50:11 GMT
+
+https://screenrant.com/netflix-spooky-in-love-fantasy-series-best-korea/
+
+One of the spookiest and most heartfelt dramas around right now is climbing the worldwide charts, and making a massive splash at home.
+---------
+
+# Which Ghost Rider Will Ryan Gosling Be Playing In The MCU?
+
+Superheroes, Ghost Rider, Marvel Cinematic Universe
+
+Tue, 28 Jul 2026 03:47:49 GMT
+
+https://screenrant.com/which-ghost-rider-is-ryan-gosling-playing-in-the-mcu/
+
+Actor Ryan Gosling has officially been cast as Ghost Rider in an upcoming MCU movie, but which version of the Spirit of Vengeance will he be?
+---------
+
+# 7 Hidden Gem Fantasy TV Shows With Just 1 Season
+
+Streaming TV, Fantasy
+
+Tue, 28 Jul 2026 03:42:16 GMT
+
+https://screenrant.com/fantasy-tv-hidden-gems-one-season/
+
+If you're looking for a quick bingewatch, these seven fantasy TV shows are hidden gems that only last one season.
+---------
+
+# Netflix’s 100% RT Time Travel Gem Deserved To Be As Big As Dark
+
+Classic TV, Masked Recs
+
+Tue, 28 Jul 2026 03:15:11 GMT
+
+https://screenrant.com/travelers-netflix-sci-fi-as-big-as-dark/
+
+Netflix is the streaming home of an incredible time travel TV series that, despite being cancelled too soon, deserved the same treatment as Dark.
+---------
+
+# 5 10/10 RPGs You Can Beat In 15 Hours Or Less
+
+Gaming, RPG, Triple-A Games
+
+Tue, 28 Jul 2026 03:00:12 GMT
+
+https://screenrant.com/5-10-rated-rpgs-15-hours-or-less/
+
+RPGs are well-known for their depth and complexity, and the majority of them can last dozens of hours, but there are some short-winded gems to play.
+---------
+
+# How Doctor Doom Lifted Mjolnir in Marvel Comics, Explained
+
+Comics, Doctor Doom
+
+Tue, 28 Jul 2026 03:00:12 GMT
+
+https://screenrant.com/doctor-doom-worthy-mjolnir-answer/
+
+With Doom stopping Mjolnir in the latest Avengers trailer, the curiosity surrounding his worthiness of Thor's hammer deserves to be sated.
+---------
+
+# Dragon Ball Z's Strongest Movie Villain Returns After 31 Years
+
+Anime, Dragon Ball, Dragon Ball Z: Fusion Reborn, San Diego Comic-Con, merchandise
+
+Tue, 28 Jul 2026 03:59:15 GMT
+
+https://www.cbr.com/dragon-ball-z-janemba-figure-release-announcement/
+
+DBZ's Janemba gets a new release that brings him one step closer to following Broly's footsteps in overcoming his status as a non-canon movie villain.
+---------
+
+# The MCU's Upcoming Nova Movie Is Guardians of the Galaxy Meets Superman
+
+Movies, MCU, Guardians of the Galaxy, Superman
+
+Tue, 28 Jul 2026 03:45:15 GMT
+
+https://www.cbr.com/marvel-nova-combines-guardians-of-the-galaxy-superman/
+
+The Marvel Cinematic Universe's upcoming science fiction adventure will be perfect for fans of James Gunn's superhero filmography.
+---------
+
+# 4 PS1 RPGs That Are 10/10 Masterpieces
+
+Games, PlayStation (Original), RPG, Final Fantasy VII
+
+Tue, 28 Jul 2026 03:45:15 GMT
+
+https://www.cbr.com/best-ps1-rpgs-of-all-time/
+
+A brief trip back in time explores the best role-playing games the original PlayStation had to offer.
+---------
+
+# The 2-Season HBO Crime Drama Stephen King Called a 10/10 Masterpiece
+
+TV, Stephen King, Perry Mason, Crime
+
+Tue, 28 Jul 2026 03:30:15 GMT
+
+https://www.cbr.com/hbo-perry-mason-stephen-king-masterpiece/
+
+Stephen King praised this short-lived neo-noir crime drama, which remains one of HBO's hidden gems among mystery fans.
+---------
+
+# 5 Fantasy RPGs Where Diplomacy Is Your Most Powerful Weapon
+
+Games, Gaming, Dragon Age, Video Games
+
+Tue, 28 Jul 2026 03:15:15 GMT
+
+https://www.cbr.com/fantasy-rpgs-diplomacy-most-powerful-weapon/
+
+These 5 fantasy RPGs make it where talking is the player's most powerful weapon.
+---------
+
+# 40 Years Later, Transformers Brings Fallen Optimus Prime Back to Life
+
+Anime, Transformers, The Transformers: The Movie, optimus prime, merchandise
+
+Tue, 28 Jul 2026 03:05:15 GMT
+
+https://www.cbr.com/transformers-robosen-fallen-leader-optimus-prime/
+
+Commemorating 40 years of The Transformers: The Movie, the newest Robosen Transformers animatronic toy honors the most tragic part of that film.
+---------
+
+# 10 Most Universally Beloved Sci-Fi Movies Of All Time, Ranked
+
+Movies, Sci-Fi
+
+Tue, 28 Jul 2026 02:45:15 GMT
+
+https://www.cbr.com/most-beloved-sci-fi-movies-list/
+
+From timeless classics to modern masterpieces, these are the 10 most universally beloved sci-fi movies ever made.
+---------
+
+# 4 Dark Fantasy Anime Series That Are 10/10 Masterpieces
+
+Anime, Attack On Titan, Berserk
+
+Tue, 28 Jul 2026 02:45:15 GMT
+
+https://www.cbr.com/dark-fantasy-anime-series-perfect-masterpieces/
+
+These series combine mature themes, unforgettable characters, and immersive worlds into remarkable viewing experiences.
+---------
+
+# 5 Classic PS1 Games Every Gamer Needs to Play Once
+
+Games, PlayStation (Original), Video Games, Square Enix
+
+Tue, 28 Jul 2026 02:30:15 GMT
+
+https://www.cbr.com/classic-ps1-games-everyone-should-play-once/
+
+The original PlayStation marked a huge shift for the video game industry, hosting some all-time classic titles that everyone needs to play.
+---------
+
+# 7 Romance Books That Are Perfect From the First Page to the Last
+
+Books and Comics, Romance, Books, Jane Austen, Call Me by Your Name
+
+Tue, 28 Jul 2026 04:18:14 GMT
+
+https://collider.com/romance-books-perfect-first-page-to-last/
+
+From Jane Austen's classic Pride and Prejudice to André Aciman's coming-of-age story Call Me by Your Name, these romance books are flawless.
+---------
+
+# 26 Years Later, This Odyssey Adaptation Is Still Perfect From Start to Finish
+
+Movie Features, O Brother, Where Art Thou?, The Odyssey, The Coen Brothers, Christopher Nolan
+
+Tue, 28 Jul 2026 04:05:15 GMT
+
+https://collider.com/the-odyssey-christopher-nolan-o-brother-where-art-thou/
+
+The Coen Brothers's O Brother, Where Art Thou? is one of the best adaptations of The Odyssey, and can provide a fresh perspective on Nolan's version.
+---------
+
+# Prime Video Quietly Delivered One of TV’s Best Stephen King-Style Thrillers in Just 2 Seasons
+
+TV Features, Prime Video, Stephen King, The Devil's Hour, Phil Dunster
+
+Tue, 28 Jul 2026 03:57:15 GMT
+
+https://collider.com/prime-video-thriller-stephen-king-replacement-series-the-devils-hour/
+
+In 2022, Prime Video released one of its best crime thrillers to date in The Devil’s Hour, and it’s the perfect Stephen King replacement.
+---------
+
+# 10 Best '90s Anime That Are Worth Revisiting
+
+TV, Anime, 90s, Sailor Moon, Pokémon
+
+Tue, 28 Jul 2026 03:55:15 GMT
+
+https://collider.com/best-90s-anime-series-worth-revisiting/
+
+Pokémon, Sailor Moon, Neon Genesis Evangelion, Digimon Adventure, and Cowboy Bebop are among the best anime from the '90s that are worth revisiting.
+---------
+
+# Guillermo del Toro's 4-Part Vampire Thriller Is the Perfect Horror Series To Binge
+
+TV Features, the strain, Guillermo del Toro, Corey Stoll, Kevin Durand
+
+Tue, 28 Jul 2026 03:16:14 GMT
+
+https://collider.com/guillermo-del-toro-the-strain-vampire-thriller-perfect-binge/
+
+Guillermo del Toro's The Strain is a perfect horror binge that follows a CDC doctor battling an ancient, deadly outbreak in NYC.
+---------
+
+# 'The Odyssey's Best Character Is Also the Star of This 2018 Book Masterpiece
+
+Books and Comics, Books, Fantasy, History, The Odyssey
+
+Tue, 28 Jul 2026 03:11:14 GMT
+
+https://collider.com/circe-book-2018-madeline-miller-the-odyssey/
+
+Circe is both the best character in Christopher Nolan's The Odyssey and the protagonist of Madeline Miller's 2018 mythic fantasy book masterpiece.
+---------
+
+# Michael Bay’s 5-Season Sci-Fi Series Officially Witnesses “The Netflix Effect” With 1.2 Billion Minutes Watched
+
+TV News, Netflix, The Last Ship, Eric Dane, Michael Bay
+
+Tue, 28 Jul 2026 02:15:15 GMT
+
+https://collider.com/the-last-ship-michael-bay-sci-fi-nielsen-streaming-report-netflix-success/
+
+The sci-fi series The Last Ship, starring Eric Dane, is benefiting from a Netflix release after drawing more than 1.2 billion minutes watched.
+---------
+
 # Netflix’s $160M Gamble On Returning Book Adaptation Proves It’s Levelling Up Its Sci-Fi Game
 
 Streaming TV, Masked Recs
@@ -5210,290 +5496,4 @@ Sun, 26 Jul 2026 16:01:11 GMT
 https://screenrant.com/paradise-hulu-tv-show-dystopian-masterpiece/
 
 Hulu's latest sci-fi masterpiece has been renewed for a third season, promising more mind-bending dystopian thrills from the acclaimed thriller.
----------
-
-# Pokémon Fans Split Over New Chimchar Evolution
-
-Gaming, Pokemon, Nintendo, Pokemon Diamond and Pearl, Nintendo Switch
-
-Sun, 26 Jul 2026 16:00:11 GMT
-
-https://screenrant.com/pokemon-new-chimchar-evolution-leaked/
-
-There's a new Chimchar Pokémon evolution, and fans cannot make up their mind about whether they like it or not.
----------
-
-# Yellowstone: A Dutton Crossover Is Hiding in Plain Sight
-
-TV, Originals
-
-Sun, 26 Jul 2026 16:00:11 GMT
-
-https://screenrant.com/video/yellowstone-a-dutton-crossover-is-hiding-in-plain-sight/
-
-Yellowstone's next crossover may already be closer than fans realize. Dutton Ranch and Marshalls ended their first seasons with remarkably similar finales, and that may not be a coincidence.
----------
-
-# 6 Years Ago, Demon Slayer Changed The Anime Industry For The Worse
-
-Anime, Demon Slayer
-
-Sun, 26 Jul 2026 16:00:11 GMT
-
-https://screenrant.com/demon-slayer-killed-standalone-anime-movies/
-
-The anime industry traded creative freedom for box-office certainty some six years ago, and the architect of that trade was Demon Slayer.
----------
-
-# 15 Strongest To Be Hero X Characters, Ranked
-
-Anime, To Be Hero X
-
-Sun, 26 Jul 2026 16:33:36 GMT
-
-https://www.cbr.com/to-be-hero-x-strongest-heroes-anime/
-
-To Be Hero X focuses on hero rankings in a futuristic world built on Trust, and there are plenty of powerful heroes in that world.
----------
-
-# Prime Video's 4-Season Sci-Fi Sleeper Hit Is the Perfect Altered Carbon Replacement
-
-TV, Prime Video, Upload, Sci-Fi
-
-Sun, 26 Jul 2026 16:31:15 GMT
-
-https://www.cbr.com/prime-video-upload-altered-carbon-sci-fi-replacement/
-
-Prime Video’s series turns digital immortality into dark comedy, blending smart sci-fi, relatable characters, and satire for Altered Carbon fans.
----------
-
-# Taylor Sheridan's Hit 3-Part Spy Series Is CIA Yellowstone (& It's Perfect)
-
-TV, Yellowstone
-
-Sun, 26 Jul 2026 16:30:34 GMT
-
-https://www.cbr.com/taylor-sheridan-lioness-season-3-cia-yellowstone/
-
-Taylor Sheridan's three-part CIA thriller on Paramount+ is a great watch for Yellowstone fans looking for even more star power and high-stakes action.
----------
-
-# 10 Greatest Action Anime Series From 2011 to 2020
-
-Anime, Attack on Titan, Hunter X Hunter, One-Punch Man
-
-Sun, 26 Jul 2026 16:16:14 GMT
-
-https://www.cbr.com/best-action-anime-2010s/
-
-Anime like Hunter x Hunter and Attack on Titan defined the action genre in the 2010s.
----------
-
-# One Piece Chapter 1189 Drops Void Century Combat Lore
-
-Anime, One Piece
-
-Sun, 26 Jul 2026 16:00:15 GMT
-
-https://www.cbr.com/one-piece-chapter-1189-review-imu-first-twenty-void-century/
-
-One Piece Chapter 1189 doesn't really further the story, but the lore drops are incredible
----------
-
-# Kenneth Branagh's $353M Agatha Christie Mystery Heading to a New Streaming Home in Just 5 Days
-
-Movies, Murder on the Orient Express, Mystery, HBO Max
-
-Sun, 26 Jul 2026 16:00:15 GMT
-
-https://www.cbr.com/murder-on-the-orient-express-poirot-mystery-streaming-hbo-august-2026/
-
-Kenneth Branagh's adaptation of Agatha Christie's classic Hercule Poirot mystery, Murder on the Orient Express, is heading to a new streaming home.
----------
-
-# 8 Greatest Horror Movie Performances of the 21st Century, Ranked
-
-Movies, Horror, Obsession, It
-
-Sun, 26 Jul 2026 16:00:15 GMT
-
-https://www.cbr.com/best-horror-movie-performances-21st-century-list/
-
-These show-stopping horror performances are the absolute best of the 21st century.
----------
-
-# Pokémon Finally Brings Captain Pikachu to Its Most Underrated Video Game
-
-Anime, Pokemon, Pokémon Horizons
-
-Sun, 26 Jul 2026 16:00:15 GMT
-
-https://www.cbr.com/pokemon-sleep-captain-pikachu-crossover/
-
-Pokémon Horizons' adorable mascot, Captain Pikachu, makes his grand debut in a game frequently overlooked by even the most die-hard Pokémon fans.
----------
-
-# Star Trek Cast Tease Unannounced Movie Ahead of Franchise Reboot
-
-TV, Star Trek, Star Trek: Strange New Worlds, San Diego Comic-Con
-
-Sun, 26 Jul 2026 15:40:15 GMT
-
-https://www.cbr.com/star-trek-cast-tease-strange-new-worlds-christmas-movie/
-
-The cast of one of the most critically acclaimed Star Trek series of all time tease an unannounced movie ahead of the next feature film reboot.
----------
-
-# 7 Forgotten Netflix Thriller Movies That Are Perfect From Start to Finish
-
-Movie, Netflix, Thriller, The Killer, The Platform
-
-Sun, 26 Jul 2026 16:06:15 GMT
-
-https://collider.com/forgotten-netflix-thriller-movies-perfect-start-to-finish/
-
-From the David Fincher film The Killer to Chloe Domont's feature debut Fair Play, these forgotten Netflix thriller movies are practically flawless.
----------
-
-# The Sci-Fi Trilogy That Changed Hollywood Forever Is Finally Coming to Streaming
-
-Movie News, The Matrix, The Matrix Reloaded, The Matrix Revolutions, Peacock
-
-Sun, 26 Jul 2026 16:00:15 GMT
-
-https://collider.com/keanu-reeves-the-matrix-sci-fi-trilogy-streaming-peacock/
-
-The Wachowskis' The Matrix trilogy is coming to Peacock soon. Find out when you can watch the greatest sci-fi series of all time.
----------
-
-# 'Lost' Showrunner Carlton Cuse Exposes the Real Problem With Streaming TV
-
-Exclusives, Carlton Cuse, Lost, ABC, Damon Lindelof
-
-Sun, 26 Jul 2026 15:54:14 GMT
-
-https://collider.com/lost-showrunner-carlton-cuse-streaming-tv-interview/
-
-Lost showrunner Carlton Cuse on the challenges of making network TV, the evolution of streaming TV, and where the future will lead.
----------
-
-# "Saving Private Ryan Meets Resident Evil" Action War Movie Sets New Release
-
-Movie News, Overlord, Horror, War
-
-Sun, 26 Jul 2026 16:44:04 GMT
-
-https://movieweb.com/overlord-blu-ray-steelbook-release-date/
-
-A new premium release of this World War II zombie thriller is on its way.
----------
-
-# The Most Confusing TV Ending of All Time Was Explained Perfectly by the Show's Creator
-
-Features, The Sopranos
-
-Sun, 26 Jul 2026 16:00:12 GMT
-
-https://movieweb.com/the-sopranos-tony-ending-explained-david-chase/
-
-'The Sopranos' had a polarizing ending, but series creator David Chase has a simple explanation that's really quite fascinating.
----------
-
-# 10 Absolute Worst Devil Fruits In One Piece
-
-Streaming TV, One Piece
-
-Sun, 26 Jul 2026 15:30:11 GMT
-
-https://screenrant.com/one-piece-worst-devil-fruits/
-
-The One Piece universe is filled with many Devil Fruits that grant amazing special abilities. These 10 Devil Fruits, however, are just awful.
----------
-
-# Metal Gear Solid 4 Remaster Showcases Major Graphical Improvements
-
-Gaming, Metal Gear Solid 4: Guns of the Patriots, Triple-A Games
-
-Sun, 26 Jul 2026 15:30:11 GMT
-
-https://screenrant.com/metal-gear-solid-4-remaster-graphics-showcase/
-
-As we wait for the release of the Metal Gear Solid 4 remaster, we're treated to footage of the collection, which is looking great.
----------
-
-# The DCU Just Introduced Its Own Doctor Doom
-
-Movies, DC Universe, Clayface, Doctor Doom
-
-Sun, 26 Jul 2026 15:30:11 GMT
-
-https://screenrant.com/dc-universe-doctor-doom-clayface-movie-paralells/
-
-The DC Universe has provided a update that has established who its own version of Doctor Doom is thanks to some parallels between two characters.
----------
-
-# How Marvel Cast The MCU's New Black Panther Explained By Kevin Feige
-
-Exclusive, Black Panther, Marvel Cinematic Universe, San Diego Comic-Con
-
-Sun, 26 Jul 2026 15:13:08 GMT
-
-https://screenrant.com/ryan-coogler-black-panther-marvel-casting-kevin-feige-explained/
-
-EXCLUSIVE: MCU mastermind Kevin Feige explains how Marvel landed on the decision for David Jonsson to take up the mantle of Black Panther.
----------
-
-# Toy Story 5 Becomes 2026's First Movie To Hit Major Box Office Milestone
-
-Movies, Toy Story 5, Toy Story
-
-Sun, 26 Jul 2026 15:12:29 GMT
-
-https://screenrant.com/toy-story-5-box-office-1-billion-2026-highest-grossing-movie/
-
-A little over a month after debuting in years, Toy Story 5 has achieved a major box office milestone and surpassed all other 2026 movies.
----------
-
-# It's Been 12 Years, But One Piece Is Finally Reviving A Forgotten Straw Hat Power
-
-Anime, One Piece
-
-Sun, 26 Jul 2026 15:02:51 GMT
-
-https://screenrant.com/one-piece-usopp-observation-haki-return/
-
-One Straw Hat is finally getting some respect.
----------
-
-# Coyote Vs. Acme First Reactions Are In
-
-Movies, Coyote Vs. Acme
-
-Sun, 26 Jul 2026 15:01:20 GMT
-
-https://screenrant.com/coyote-vs-acme-first-reactions/
-
-After previously being shelved by Warner Bros., first reactions to the long-awaited Looney Tunes movie Coyote vs. Acme are officially here.
----------
-
-# 12 Things In Marvel's Spider-Man 2 Most Players Never Discover
-
-Gaming, Marvel's Spider-Man 2, Insomniac's Marvel Universe
-
-Sun, 26 Jul 2026 15:00:13 GMT
-
-https://screenrant.com/marvels-spiderman-2-secrets-easter-eggs/
-
-Marvel’s Spider-Man 2 isn’t an exceptionally large open-world game, but its New York City is still filled with plenty of hard-to-find secrets.
----------
-
-# 5 Reasons It's Hard To Watch Scarface Today
-
-Classic Movies, Scarface
-
-Sun, 26 Jul 2026 15:00:11 GMT
-
-https://screenrant.com/scarface-movie-hard-to-watch-today/
-
-Scarface is considered one of the best crime movies of all time, btu watching it today shows that it has not always stood the test of time.
 ---------
