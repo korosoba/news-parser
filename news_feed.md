@@ -1,3 +1,311 @@
+# 5 Times Star Wars Went Full Cosmic Horror
+
+Comics, Star Wars
+
+Tue, 28 Jul 2026 22:30:12 GMT
+
+https://screenrant.com/star-wars-best-villains-cosmic-horror/
+
+Star Wars has been a staple of the sci-fi genre since its debut, but sometimes the space adventures pale in comparison to its gore.
+---------
+
+# Every Halo Game, Ranked Worst To Best
+
+Game Features, PC, Xbox Series X/S, Halo
+
+Tue, 28 Jul 2026 22:30:12 GMT
+
+https://screenrant.com/halo-all-games-ranked-worst-best/
+
+The Halo series has been an Xbox mainstay since 2001, but which of Master Chief's adventures are the best and which ones can be skipped?
+---------
+
+# 6 Iconic PS2 Games That Changed Gaming Forever
+
+Gaming, PlayStation 2, PlayStation, Sony, PC
+
+Tue, 28 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/6-iconic-ps2-games-changed-gaming-forever/
+
+The PlayStation 2 easily had the most influential and iconic titles of all time, with some changing the gaming landscape forever.
+---------
+
+# Jack Ryan Meets Jason Bourne In Netflix's 3-Part Espionage Thriller
+
+TV, Masked Recs
+
+Tue, 28 Jul 2026 21:59:11 GMT
+
+https://screenrant.com/the-night-agent-netflix-jack-ryan-meets-jason-bourne/
+
+Blending Jack Ryan's everyman hero with the urgency and brutality of the Jason Bourne movies, this Netflix spy series is an unmissable action hit.
+---------
+
+# What TARDIS Stands For In Doctor Who
+
+Classic TV, Doctor Who
+
+Tue, 28 Jul 2026 21:45:11 GMT
+
+https://screenrant.com/doctor-who-tardis-meaning-explained/
+
+One of the most famous elements of Doctor Who is the iconic TARDIS, which is much more than the Doctor's trusted time-and-space transport.
+---------
+
+# Dora The Explorer Inspired Sick & Sadistic New Horror Movie From Underrated Director
+
+Movies, Buddy, Horror, San Diego Comic-Con
+
+Tue, 28 Jul 2026 21:37:19 GMT
+
+https://screenrant.com/buddy-2026-movie-dora-the-explorer-inspirations/
+
+Exclusive: Underrated writer/director Casper Kelly explains how Dora the Explorer and another classic series inspired his sadistic new horror movie.
+---------
+
+# Harry Potter Meets Shadowhunters In Syfy's 5-Part Fantasy Series
+
+Classic TV, Masked Recs
+
+Tue, 28 Jul 2026 21:30:11 GMT
+
+https://screenrant.com/the-magicians-syfy-harry-potter-meets-shadowhunters/
+
+One hidden gem of a Syfy show is the perfect blend of Harry Potter's magical schooling and Shadowhunter's gritty hidden supernatural world.
+---------
+
+# Mary’s Return In Georgie & Mandy’s First Marriage Season 3 Gets Clarification In New TBBT Report
+
+TV, Georgie & Mandy's First Marriage, Georgie & Mandy's First Marriage - Season 3, The Big Bang Theory
+
+Tue, 28 Jul 2026 21:23:56 GMT
+
+https://screenrant.com/mary-georgie-mandy-first-marriage-bigger-role-clarified-tbbt-report/
+
+Mary Cooper's future in The Big Bang Theory spinoff Georgie & Mandy's First Marriage remains uncertain as Zoe Perry's character status is updated.
+---------
+
+# Another Ex-Xbox Studio Hit With Layoffs Following Exit From Microsoft
+
+Gaming, Xbox, Triple-A Games
+
+Tue, 28 Jul 2026 21:16:31 GMT
+
+https://screenrant.com/double-fine-layoffs-xbox-independence/
+
+Just when we thought Microsoft's layoffs couldn't get any worse, its ripple effect is endangering the jobs of even more developers than ever.
+---------
+
+# The Walking Dead: Dead City Interview with Jeffrey Dean Morgan, Lauren Cohan & More at SDCC 2026
+
+Videos, The Walking Dead, The Walking Dead: Dead City, San Diego Comic-Con
+
+Tue, 28 Jul 2026 21:12:04 GMT
+
+https://screenrant.com/video/the-walking-dead-city-season-3-jeffrey-dean-morgan-lauren-cohan-cast-sdcc-2026/
+
+The Walking Dead: Dead City stars Jeffrey Dean Morgan, Lauren Cohan, and EPs Scott Gimple and Seth Hoffman explain how Aimee Garcia and Raúl Castillo's characters fit into the world of season 3. The cast also reacts to the question of Maggie and Negan's romantic (or not) tension.
+---------
+
+# In Just 1 Week, Taylor Sheridan’s Hit Action Thriller Finally Returns With New Episodes
+
+TV, Lioness, Paramount Plus
+
+Tue, 28 Jul 2026 22:30:15 GMT
+
+https://www.cbr.com/taylor-sheridan-lioness-season-3-return-august-2026/
+
+Season 3 of Taylor Sheridan's Lioness will be premiering in less than one week, on Aug. 2, on Paramount+.
+---------
+
+# 5 Greatest Action Anime Series of the 2020s, Ranked
+
+Anime, Jujutsu Kaisen, Chainsaw Man
+
+Tue, 28 Jul 2026 22:15:15 GMT
+
+https://www.cbr.com/greatest-2020s-action-anime-series/
+
+Anime series like Cyberpunk: Edgerunners and Jujutsu Kaisen rank among this decade's best action masterpieces.
+---------
+
+# Star Wars' Qui Gon Jinn Officially Returns in 2027
+
+Games, Star Wars
+
+Tue, 28 Jul 2026 22:05:14 GMT
+
+https://www.cbr.com/star-wars-qui-gon-jinn-official-return-2027/
+
+Qui-Gon Jinn became a forever important part of Star Wars history as Obi-Wan's master in The Phantom Menace, and now he finally returns in 2027.
+---------
+
+# In Just 1 Day, Hulu's New 8-Episode Crime Drama Is the Most-Watched Show in the World
+
+TV, Furious
+
+Tue, 28 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/furious-crime-series-hulu-disney-plus-global-success-july-2026/
+
+The show debuted to perfect scores from critics.
+---------
+
+# Marvel Reveals Which X-Men Will Replace the Avengers
+
+Comics, X-Men, Marvel Comics
+
+Tue, 28 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/marvel-maximum-x-men-armageddon-announcement/
+
+At this year's San Diego Comic-Con, Marvel finally confirmed which members of the X-Men are set to replace the Avengers later this year.
+---------
+
+# Michael B. Jordan Reacts to New Black Panther After Marvel Casts David Jonsson
+
+Movies, Marvel, Marvel Comics, MCU, Black Panther, Black Panther Wakanda Forever, Black Panther: Wakanda Forever, Black Panther 3
+
+Tue, 28 Jul 2026 21:59:37 GMT
+
+https://www.cbr.com/michael-b-jordan-reacts-to-black-panther-actor-reveal-by-marvel/
+
+Killmonger has officially weighed in on the blockbuster Black Panther news.
+---------
+
+# Matt Reeves Officially Confirms Another Major Return for The Batman 2
+
+Movies, The Batman Part II, Batman
+
+Tue, 28 Jul 2026 21:59:34 GMT
+
+https://www.cbr.com/the-batman-2-composer-michael-giacchino/
+
+Matt Reeves has confirmed that a key member of The Batman's creative team will return for the sequel.
+---------
+
+# Spider-Man: Brand New Day's Number of Post-Credits Scenes Confirmed
+
+Movies, Spider-Man: Brand New Day
+
+Tue, 28 Jul 2026 21:55:55 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-post-credit-scene-count/
+
+Fans have been wondering how to long stick around for after the end of Spider-Man: Brand New Day.
+---------
+
+# Nathan Fillion & Alan Tudyk Finally Have a Firefly Revival Update After 4 Months
+
+TV, Firefly, Sci-Fi
+
+Tue, 28 Jul 2026 21:43:46 GMT
+
+https://www.cbr.com/firefly-animated-series-update-nathan-fillion-alan-tudyk/
+
+Nathan Fillion finally has an update for all the browncoats waiting on the Firefly revival.
+---------
+
+# 8 Reasons It's Tough To Watch The Matrix Today
+
+Movies, The Matrix
+
+Tue, 28 Jul 2026 21:31:15 GMT
+
+https://www.cbr.com/reasons-why-tough-to-watch-the-matrix-list/
+
+The Matrix changed cinema forever, but reappraising the franchise in the 2020s reveals a few issues
+---------
+
+# New Star Trek Directors Officially Reveal Plan to "Subvert With Respect" [Exclusive]
+
+Movie News, Star Trek, John Francis Daley, Jonathan Goldstein, SDCC
+
+Tue, 28 Jul 2026 22:30:15 GMT
+
+https://collider.com/new-star-trek-movie-subvert-expectations-jonathan-goldstein-jon-francis-daley/
+
+Jonathan Goldstein and John Francis Daley discuss their plans for a new Star Trek movie that will subvert expectations & respect the franchise's DNA.
+---------
+
+# Die-Hard Harry Potter Fan Alan Ritchson Questions Timing of HBO’s Reboot Series [Exclusive]
+
+Exclusives, Harry Potter, Alan Ritchson, Reacher, SDCC
+
+Tue, 28 Jul 2026 22:00:14 GMT
+
+https://collider.com/reacher-alan-ritchson-harry-potter-series-fan-reaction/
+
+Alan Ritchson says HBO’s Harry Potter reboot is “too soon,” despite admitting he’s a lifelong fan of the Wizarding World.
+---------
+
+# 10 Greatest Sci-Fi Movies of the Last Decade
+
+Movie, Sci-Fi, Science Fiction, The Vast of Night, Arrival
+
+Tue, 28 Jul 2026 21:55:15 GMT
+
+https://collider.com/best-sci-fi-movies-last-decade-ranked/
+
+Arrival, Everything Everywhere All At Once, and Project Hail Mary are all among the best science fiction movies of the last 10 years.
+---------
+
+# 6 Best Psychological Thrillers Released Since 2000
+
+Movie, Psychological Thriller, Gone Girl, David Lynch, Black Swan
+
+Tue, 28 Jul 2026 21:23:14 GMT
+
+https://collider.com/best-psychological-thrillers-since-2000-ranked/
+
+Gone Girl, Black Swan, and The Prestige are all among the best psychological thriller movies released since the year 2000.
+---------
+
+# Prime Video’s Streaming Sensation Action Thriller Could Run For Years
+
+Features, Ride or Die, Prime Video
+
+Tue, 28 Jul 2026 22:00:12 GMT
+
+https://movieweb.com/ride-or-die-prime-video-multiple-seasons/
+
+Amazon Prime Video has a new action thriller series that is doing well on the streaming charts and has a premise that could work for more seasons.
+---------
+
+# The 116-Minute Sci-Fi Action Epic That's Currently Making a Comeback on Streaming
+
+Movie News, Battle: Los Angeles, Hot on Streaming, Sci-Fi, Action
+
+Tue, 28 Jul 2026 22:00:12 GMT
+
+https://movieweb.com/battle-los-angeles-scifi-action-stream-sony-july-2026/
+
+The sci-fi action flop 'Battle: Los Angeles' is a streaming success on Sony Pictures Core.
+---------
+
+# Review | Olivia Wilde Wants Gen Z to Have More Sex in Her Steamy, R-Rated Movie
+
+Movie Reviews, I Want Your Sex, Olivia Wilde, Cooper Hoffman
+
+Tue, 28 Jul 2026 22:00:12 GMT
+
+https://movieweb.com/i-want-your-sex-review-july-2026/
+
+In New Queer Cinema pioneer Gregg Araki's latest film, Cooper Hoffman co-stars as Wilde's subordinate, both in the office and in the bedroom.
+---------
+
+# Jennifer Aniston to Lead 'Naughty' New Christmas Film From Olivia Wilde
+
+Movie News, Jennifer Aniston, Olivia Wilde, Peter Dinklage
+
+Tue, 28 Jul 2026 21:16:22 GMT
+
+https://movieweb.com/jennifer-aniston-olivia-wilde-peter-dinklage-naughty/
+
+Jennifer Aniston and Peter Dinklage will star in the holiday comedy, Naughty', set to open in theaters on November 5, 2026.
+---------
+
 # Futurama Season 14 Brings Back An Iconic Supporting Star After 3 Years
 
 TV, Futurama
@@ -5188,312 +5496,4 @@ Mon, 27 Jul 2026 14:00:16 GMT
 https://www.cbr.com/dynamite-entertainment-thundercats-release-date-confirmed/
 
 ThunderCats fans are getting another brand-new series for a brand-new era ahead of the next animated feature film reboot of the franchise.
----------
-
-# Benny Safdie Is Officially the Highest-Grossing Actor of 2026
-
-Movie News, Benny Safdie, The Odyssey, Christopher Nolan, The Super Mario Galaxy Movie
-
-Mon, 27 Jul 2026 14:49:19 GMT
-
-https://collider.com/benny-safdie-highest-grossing-actor-2026-the-odyssey-super-mario-galaxy/
-
-Benny Safdie has quietly become the highest-grossing actor of 2026 with his performances in The Odyssey and The Super Mario Galaxy Movie.
----------
-
-# 'Dutton Ranch' Officially Expands Ed Harris' Role for Season 2 After Actor Felt "Underused"
-
-TV News, Dutton Ranch, Ed Harris, Paramount Plus, Taylor Sheridan
-
-Mon, 27 Jul 2026 14:45:58 GMT
-
-https://collider.com/dutton-ranch-season-2-ed-harris-expanded-role/
-
-Ed Harris, star of Dutton Ranch, criticizes the series' storyline and his character's limited screen time in Season 1, expressing frustration.
----------
-
-# Taylor Sheridan's Modern Western Masterpiece Is Officially Streaming's #1 Show Again
-
-TV News, Yellowstone, Taylor Sheridan, Paramount Plus, Western
-
-Mon, 27 Jul 2026 12:30:15 GMT
-
-https://collider.com/taylor-sheridan-yellowstone-streaming-success-paramount-plus-july-2026/
-
-Taylor Sheridan reins supreme on Paramount+ with his hit show becoming the #1 show globally. Get all the details here.
----------
-
-# Universal Responds to Major 'The Odyssey' Leak
-
-Movie News, The Odyssey, History, Action
-
-Mon, 27 Jul 2026 15:07:36 GMT
-
-https://movieweb.com/universal-the-odyssey-leak/
-
-Pirates versions of 'The Odyssey' have appeared on X.
----------
-
-# 'House of the Dragon' Officially Changes the Fates of Two Main Characters
-
-Features, House of the Dragon, HBO Max, Fantasy
-
-Mon, 27 Jul 2026 15:00:12 GMT
-
-https://movieweb.com/house-of-the-dragon-alicent-corlys-changes/
-
-'House of the Dragon' veers off-book in the latest episode of Season 3, and the ripple effect will be enormous.
----------
-
-# Why 'Gladiator II' Never Filmed a Single Scene in Rome
-
-Features, Gladiator II, Anthony Hopkins
-
-Mon, 27 Jul 2026 15:00:12 GMT
-
-https://movieweb.com/gladiator-ii-never-filmed-in-rome/
-
-Most of 'Gladiator II's proceedings happen in Rome. However, the sequel was never filmed in Rome, and there's a reason why.
----------
-
-# "One of the Best Action Movies of the Year" Sets New Release
-
-Movie News, Man of War, Action, Thriller
-
-Mon, 27 Jul 2026 14:09:49 GMT
-
-https://movieweb.com/man-of-war-blu-ray-release-action-thriller/
-
-The Taylor Sheridan favorite and 'Terminal List' star finally gets the spotlight in this "Rambo meets Taken" action movie.
----------
-
-# 'Reacher' Season 5 Confirms Big Change for Alan Ritchson as Plot Details Officially Revealed
-
-Movie News, Reacher, Prime Video
-
-Mon, 27 Jul 2026 14:05:01 GMT
-
-https://movieweb.com/reacher-season-5-book-make-me/
-
-Prime Video officially nailed down which 'Reacher' book and story will be adapted in the show's fifth season, which is currently filming.
----------
-
-# Now's the Best Time to Binge ABC's Near-Perfect 'Sherlock' Replacement
-
-Features, High Potential, Sherlock
-
-Mon, 27 Jul 2026 14:00:13 GMT
-
-https://movieweb.com/high-potential-binge-watch-before-season-3/
-
-'Sherlock' ended almost a decade ago, and it's the perfect time to watch another excellent TV show that fans of the BBC series will appreciate.
----------
-
-# Before 'Reacher' Season 4, This Underrated 118-Minute Action Thriller Is a Streaming Must-See
-
-Movie News, Jack Reacher: Never Go Back, Reacher, Coming/Leaving Streaming
-
-Mon, 27 Jul 2026 14:00:13 GMT
-
-https://movieweb.com/jack-reacher-never-go-back-streaming-paramount-august-2026/
-
-The film is one of the newest additions to streaming in August.
----------
-
-# A24 Unleashes Explosive New Trailer for Long-Awaited Sequel To Cult Classic Action Thriller
-
-Movie News, Onslaught
-
-Mon, 27 Jul 2026 13:30:39 GMT
-
-https://movieweb.com/a24-onslaught-new-trailer-the-guest-sequel/
-
-The long-awaited sequel to the action thriller cult classic just got an explosive new trailer.
----------
-
-# 'House of the Dragon' Just Introduced a Crucial Character in GOT History
-
-Features, House of the Dragon, Game Of Thrones
-
-Mon, 27 Jul 2026 12:56:33 GMT
-
-https://movieweb.com/daenys-the-dreamer-targaryen-game-of-thrones/
-
-This person is pretty important in the grand scheme of things.
----------
-
-# Marvel Can Finally Resolve a 10-Year-Old Ghost Rider Plot Hole
-
-Features, Ryan Gosling, Ghost Rider, Agents of S.H.I.E.L.D.
-
-Mon, 27 Jul 2026 12:46:20 GMT
-
-https://movieweb.com/ghost-rider-agents-of-shield-ryan-gosling/
-
-With news of the MCU's Ghost Rider project, Marvel Studios has the chance to tie up a loose plot thread.
----------
-
-# DC Reveals Wonder Woman & Supergirl’s Gorgeous New Anime Designs
-
-DC Comics, Wonder Woman, Supergirl
-
-Mon, 27 Jul 2026 12:04:11 GMT
-
-https://screenrant.com/wonder-woman-supergirl-new-anime-design-image/
-
-Wonder Woman and Supergirl unveil stunning anime-inspired redesigns that channel Sailor Moon, giving the iconic DC heroes gorgeous new looks.
----------
-
-# Despicable Me Is Getting A New Netflix Update In 5 Days
-
-Movies, Netflix, Minions, Despicable Me
-
-Mon, 27 Jul 2026 12:00:11 GMT
-
-https://screenrant.com/despicable-me-minions-movie-netflix-release-august-2026/
-
-One of the biggest movie franchises in history is scheduled to have another interesting release update in the next few days thanks to Netflix.
----------
-
-# Strange New Worlds Will Officially Show Everyone What Captain Kirk's Star Trek Spinoff Will Look Like
-
-TV, Op-Ed, Star Trek, Star Trek: Strange New Worlds
-
-Mon, 27 Jul 2026 12:00:11 GMT
-
-https://screenrant.com/star-trek-strange-new-worlds-kirk-year-one-spinoff-tomorrows-enterprise-preview/
-
-Star Trek: Strange New Worlds is making a big pitch for the proposed Captain Kirk spinoff, Star Trek: Year One, by showing it in season 4.
----------
-
-# Red Dead Redemption 2 Just Got Its Biggest Upgrade Since Launching In 2018
-
-Gaming, Red Dead Redemption, Red Dead Redemption 2
-
-Mon, 27 Jul 2026 11:30:11 GMT
-
-https://screenrant.com/red-dead-redemption-2-reality-redemption-mod/
-
-Red Dead Redemption 2 is still going strong thanks to the dedicated work of fans, and the latest update is one of the biggest ever.
----------
-
-# Lord Of The Rings Beloved PS2 Games Just Got Gorgeous Remasters
-
-Gaming, The Lord of the Rings, PlayStation 2, PC
-
-Mon, 27 Jul 2026 11:21:28 GMT
-
-https://screenrant.com/lord-of-the-rings-ps2-games-remastered-fans/
-
-The beloved and iconic PlayStation 2 Lord of the Rings games have finally gotten gorgeous new remasters that are sure to delight fans.
----------
-
-# 6 Free Steam RPGs You Can Play Right Now, No Catch
-
-Gaming, Steam, Valve
-
-Mon, 27 Jul 2026 10:30:11 GMT
-
-https://screenrant.com/6-free-steam-rpgs-top-rated-2026/
-
-Steam is obviously the best place to go gaming on PC these days, and that's probably the most true if you're an RPG fan.
----------
-
-# All 8 Seasons Of Rick & Morty, Ranked
-
-Streaming TV, Rick and Morty, Ranking
-
-Mon, 27 Jul 2026 10:00:13 GMT
-
-https://screenrant.com/rick-morty-seasons-ranked/
-
-Rick and Morty just wrapped up its eighth season with another banger, but where does it rank among the hit animated show's other seasons?
----------
-
-# GTA 6 Officially Has An Expiration Date
-
-Gaming, Grand Theft Auto 6, Rockstar Games, PC, PlayStation 5, Xbox Series X/S
-
-Mon, 27 Jul 2026 10:00:11 GMT
-
-https://screenrant.com/gta-6-download-codes-expiration-date/
-
-Grand Theft Auto 6 will officially expire after a surprisingly short time, completely locking players out of the entire experience.
----------
-
-# Fightland Review: Starz & 50 Cent Reunite For An Entertaining Power-Esque Crime Thriller
-
-Streaming TV, Fightland
-
-Mon, 27 Jul 2026 10:00:11 GMT
-
-https://screenrant.com/fightland-tv-review/
-
-The new Starz crime thriller series Fightland a far cry from prestige television but is destined to appeal to fans of the Power universe.
----------
-
-# Game Of Thrones Returns With A New Season, But Fans Are Split
-
-Gaming, Game of Thrones
-
-Mon, 27 Jul 2026 09:48:39 GMT
-
-https://screenrant.com/game-of-thrones-kingsroad-new-season-opinions/
-
-Discover a new adventure in the world of Game of Thrones with Kingsroad, a story-driven action RPG.
----------
-
-# Adam Wingard Officially Confirms Onslaught & The Guest Connection
-
-Movies, Onslaught, The Guest, San Diego Comic-Con
-
-Mon, 27 Jul 2026 12:00:15 GMT
-
-https://www.cbr.com/onslaught-the-guest-sequel-trilogy-adam-wingard-confirms/
-
-Adam Wingard reveals the surprising connection between his new sci-fi film Onslaught and his beloved action thriller The Guest.
----------
-
-# Star Trek Officially Reveals the Federation's Greatest Threat
-
-Comics, Star Trek
-
-Mon, 27 Jul 2026 12:00:15 GMT
-
-https://www.cbr.com/star-trek-reds-shirts-ghost-of-the-21st-century-federation-enemy/
-
-The latest entry in a fan-favorite horror-fueled Star Trek series just introduced a threat that cuts to the very heart of the Federation itself.
----------
-
-# 10 Best Far Side Comics Where Characters Are Lost At Sea
-
-Comics, The Far Side
-
-Mon, 27 Jul 2026 11:00:15 GMT
-
-https://www.cbr.com/best-far-side-lost-at-sea-comics/
-
-The Far Side comics often create darker styles of comedy by finding humor in typically tragic events, one of the best being characters lost at sea.
----------
-
-# Classic Cartoons Head to 1997 Like X-Men '97
-
-Comics, X-Men '97, CSBG, The Line It Is Drawn
-
-Mon, 27 Jul 2026 09:43:56 GMT
-
-https://www.cbr.com/classic-cartoons-x-men-97/
-
-In a brand-new Line it is Drawn, our artists drew your suggestions for classic cartoons heading to the year 1997 like X-Men '97
----------
-
-# Star Trek Officially Celebrates Its 60th Anniversary With a Delightful Collection of All Star Creators
-
-Comics, Star Trek
-
-Mon, 27 Jul 2026 03:54:58 GMT
-
-https://www.cbr.com/star-trek-60th-anniversary-special-advance-review/
-
-In a CBR advance review of Star Trek's 60th Anniversary Special, see how an all-star group of creators celebrate the franchise's anniversary
 ---------
