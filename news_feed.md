@@ -1,3 +1,289 @@
+# Futurama Season 14 Brings Back An Iconic Supporting Star After 3 Years
+
+TV, Futurama
+
+Tue, 28 Jul 2026 21:02:11 GMT
+
+https://screenrant.com/futurama-season-14-nibbler-return/
+
+Fans of Futurama are in for a treat as the show's latest outing on Hulu brings back an iconic fan-favorite character after a three-year absence.
+---------
+
+# 5 Ways The MCU's Ghost Rider Will Improve on Nicolas Cage's Movies
+
+Movies, Ghost Rider
+
+Tue, 28 Jul 2026 21:00:12 GMT
+
+https://screenrant.com/mcu-ghost-rider-improve-on-nicolas-cage-movies/
+
+The news that Ryan Gosling will star in a Ghost Rider movie for the MCU has fans excited that this could improve on the last Ghost Rider movies.
+---------
+
+# It’s Officially The End Of An Era For Baldur’s Gate
+
+Gaming, Baldur's Gate 3, Triple-A Games, PC
+
+Tue, 28 Jul 2026 21:00:12 GMT
+
+https://screenrant.com/baldurs-gate-end-of-era-larian-involvement/
+
+The critically acclaimed release of Baldur's Gate 3 had an absolutely legendary run, but all good things must come to an end eventually.
+---------
+
+# Steven Spielberg's 13-Part 'Jurassic Park Meets Westworld' Was Almost The New Lost
+
+Classic TV, Masked Recs
+
+Tue, 28 Jul 2026 20:30:11 GMT
+
+https://screenrant.com/terra-nova-steven-spielberg-almost-the-new-lost/
+
+A short-lived 2010s sci-fi brings the intrigue of Westworld to the dinosaur-flavoured action of Jurassic Park, and was truly ahead of its time.
+---------
+
+# Harlan Coben’s New Netflix Thriller Series Is Officially One Of The Biggest Shows Of All-Time
+
+TV, I Will Find You, I Will Find You - Season 1
+
+Tue, 28 Jul 2026 20:28:55 GMT
+
+https://screenrant.com/harlan-coben-i-will-find-you-netflix-top-10-all-time-spot/
+
+Harlan Coben’s newest series was only just released in mid-June, but it’s already proven to be one of the most popular Netflix shows ever.
+---------
+
+# The Librarians: The Next Chapter Season 2 Interview with Dean Devlin & Cast at SDCC 2026
+
+Videos, The Librarians: The Next Chapter, San Diego Comic-Con
+
+Tue, 28 Jul 2026 20:28:25 GMT
+
+https://screenrant.com/video/the-librarians-the-next-chapter-season-2-dean-devlin-cast-interview-sdcc-2026/
+
+Callum McGowan, Jessica Green, Olivia Morris, Bluey Robinson, Christian Kane, Lindy Booth & Librarians creator Dean Devlin tease character returns.
+---------
+
+# It’s Officially The End Of An Era For The Best Modern Murder Mystery Franchise
+
+Movies, Masked Recs
+
+Tue, 28 Jul 2026 20:27:03 GMT
+
+https://screenrant.com/knives-out-leaving-peacock-august-2026-era-ending/
+
+August is bringing about the end of an era for the best modern murder mystery franchise as it prepares to make a change in streaming availability.
+---------
+
+# Amazon's New Sci-Fi Fantasy Reboot Gets Massive Streaming Redemption After $170M Box Office Failure
+
+Movies, Masked Recs
+
+Tue, 28 Jul 2026 20:22:58 GMT
+
+https://screenrant.com/masters-of-the-universe-amazon-streaming-success-july-2026/
+
+Amazon's new sci-fi fantasy reboot receives a massive streaming redemption after bombing at the box office on a big $170 million budget.
+---------
+
+# 5 Criminally Underrated Starter Pokémon Only True Trainers Appreciate
+
+Gaming, Pokemon, Triple-A Games
+
+Tue, 28 Jul 2026 20:00:11 GMT
+
+https://screenrant.com/5-criminally-underrated-starter-pokemon/
+
+There are tons of starters to pick from in every Pokémon game, also known as first partners, but some of the creatures are criminally underrated.
+---------
+
+# Mistborn Officially Returns With 405-Page Handbook Out November 4
+
+Games, Mistborn
+
+Tue, 28 Jul 2026 21:00:15 GMT
+
+https://www.cbr.com/mistborn-officially-returns-new-handbook-november-2026/
+
+The Mistborn tabletop RPG is finally coming back with a new handbook this November.
+---------
+
+# 4 Greatest Sci-Fi Adventure Movies From the Last 10 Years
+
+Movies, Sci-Fi, Adventure, Project Hail Mary
+
+Tue, 28 Jul 2026 21:00:15 GMT
+
+https://www.cbr.com/best-sci-fi-adventure-movies-last-10-years-list/
+
+The combination of sci-fi and adventure continues to be a box office powerhouse, and these modern classics prove audiences love it.
+---------
+
+# Brandon Sanderson’s Mistborn Movie Officially Hits First Major Milestone After 7 Months
+
+Movies, Mistborn, Apple TV, The Cosmere
+
+Tue, 28 Jul 2026 20:44:21 GMT
+
+https://www.cbr.com/brandon-sanderson-mistborn-movie-script-complete/
+
+Brandon Sanderson shares a major update on Apple TV's upcoming Mistborn movie.
+---------
+
+# This 88% RT Detective Show With 5 Seasons Is Better Than Sherlock in Every Way
+
+TV, Luther, Crime
+
+Tue, 28 Jul 2026 20:30:15 GMT
+
+https://www.cbr.com/bbc-luther-rivals-sherlock/
+
+Sherlock remains a major hit for detective shows, but there's another that runs even longer and is even better.
+---------
+
+# 10 Greek Mythology Books That Are As Good As The Odyssey
+
+Movies, The Odyssey, books, Fantasy
+
+Tue, 28 Jul 2026 20:30:15 GMT
+
+https://www.cbr.com/greek-mythology-books-like-christopher-nolan-odyssey-list/
+
+For anyone missing the thrills of Christopher Nolan's 2026 historical fantasy epic, these modern myth retellings are the cure to Greek mythology fever
+---------
+
+# Ghost Rider Star Eva Mendes Reacts Perfectly to Husband Ryan Gosling’s MCU Johnny Blaze Casting
+
+Movies, Ghost Rider, The Place Beyond the Pines, Marvel Cinematic Universe
+
+Tue, 28 Jul 2026 20:25:31 GMT
+
+https://www.cbr.com/eva-mendes-ryan-gosling-mcu-ghost-rider-casting/
+
+The two met on the set of the best possible precursor to Ghost Rider.
+---------
+
+# 7 Anime That Are 10/10 Masterpieces But Haven't Finished Yet
+
+Anime, Frieren: Beyond Journey's End, Chainsaw Man, Re: Zero
+
+Tue, 28 Jul 2026 20:16:15 GMT
+
+https://www.cbr.com/masterpiece-anime-still-ongoing-not-finished/
+
+Unfinished anime like Frieren and Re: Zero have already reached a level of quality that places them among the medium's all-time classics.
+---------
+
+# Baskin-Robbins Celebrates 30 Years of Pokémon With Sweet Ice Cream Lineup This August
+
+Anime, Pokemon, food
+
+Tue, 28 Jul 2026 20:06:14 GMT
+
+https://www.cbr.com/baskin-robbins-pokemon-anniversary-ice-cream/
+
+Pokémon fans have yet another surprisingly sweet way to celebrate their favorite franchise's 30th anniversary this Summer courtesy of Basin-Robbins.
+---------
+
+# 10 Far Side Comics That Celebrate Absurd Humor
+
+Comics, The Far Side
+
+Tue, 28 Jul 2026 20:01:14 GMT
+
+https://www.cbr.com/the-far-side-best-absurd-humor-comics/
+
+The Far Side embraced the absurd at every turn, and these 10 classic comics are the ultimate celebrations of that fact.
+---------
+
+# Netflix’s 'Gundam' Star Officially Reveals How Sydney Sweeney Changed a Scene in Just "5 Seconds" [Exclusive]
+
+Movie News, Gundam, Sydney Sweeney, Michael Mando, SDCC
+
+Tue, 28 Jul 2026 21:00:15 GMT
+
+https://collider.com/sydney-sweeney-netflix-gundam-movie-update-michael-mando/
+
+Michael Mando drops a glowing update on working with Sydney Sweeney in the upcoming Gundam movie currently in the works at Netflix.
+---------
+
+# 'Silo' Is Officially Changing Its Most Ruthless Character [Exclusive]
+
+Exclusives, Silo, Tim Robbins, Rebecca Ferguson, SDCC
+
+Tue, 28 Jul 2026 20:30:15 GMT
+
+https://collider.com/silo-season-3-bernard-character-changes/
+
+Tim Robbins teases a radically different Bernard in Silo Season 3, saying “everything changes” following the character’s shocking return.
+---------
+
+# The Best Rock Album of Every Year of the 1980s
+
+Music Features, Music, Rock, 1980s, Van Halen
+
+Tue, 28 Jul 2026 20:27:15 GMT
+
+https://collider.com/best-rock-albums-1980s-every-year/
+
+When discussing the best rock albums from every year of the 1980s, Synchronicity by The Police and Back in Black by AC/DC make the cut.
+---------
+
+# CBS Officially Confirms the Premiere of 'Elsbeth' and 'Ghosts' Creators' New Series
+
+TV News, CBS, Eternally Yours, Elsbeth, Georgie & Mandy's First Marriage
+
+Tue, 28 Jul 2026 20:00:14 GMT
+
+https://collider.com/eternally-yours-cupertino-elsbeth-georgie-and-mandys-first-marriage-release-date-cbs-october-2026/
+
+CBS reveals its fall schedule and confirms when its Thursday night shows, including new titles from the creators of Ghosts and Elsbeth, premiere.
+---------
+
+# 2026's $1 Billion Fantasy Adventure Dethroned at the Box Office by the Biggest Biopic of All Time
+
+Movie News, Michael, The Super Mario Galaxy Movie
+
+Tue, 28 Jul 2026 21:00:12 GMT
+
+https://movieweb.com/michael-the-super-mario-galaxy-movie-box-office/
+
+The worldwide box office chart shuffled its top three highest-grossing films this week.
+---------
+
+# 8 Ways That 'Spaceballs 2' Can Make Fun of 'Star Wars' After 40 Years
+
+Movie Lists, Spaceballs: The New One, Spaceballs, Star Wars
+
+Tue, 28 Jul 2026 21:00:12 GMT
+
+https://movieweb.com/spaceballs-2-parody-star-wars/
+
+'Spaceballs: The New One,' the sequel to the popular comedy space opera movie, will star Rick Moranis, Keke Palmer, Bill Pullman, and Mel Brooks.
+---------
+
+# New 'Home Alone' With Macaulay Culkin in the Works After He Pitches Perfect Sequel Idea
+
+Movie News, Home Alone, Home Alone 2: Lost in New York, Macaulay Culkin
+
+Tue, 28 Jul 2026 20:38:39 GMT
+
+https://movieweb.com/home-alone-sequel-macaulay-culkin-disney/
+
+Macauley Culkin is finally ready for another 'Home Alone' movie, with Disney eyeing another sequel after 34 years.
+---------
+
+# Tom Holland's Biggest Ever Action Movie Dominates Streaming Ahead of Spider-Man Return
+
+Movie News, Spider-Man: No Way Home, Spider-Man: Brand New Day
+
+Tue, 28 Jul 2026 20:00:12 GMT
+
+https://movieweb.com/spider-man-no-way-home-disney-plus-stream-july-2026/
+
+Spider-Man fans are catching up on homework.
+---------
+
 # Spider-Man: Brand New Day Is Officially Eyeing Record-Breaking Opening Box Office Weekend
 
 Movies, Spider-Man: Brand New Day
@@ -5210,290 +5496,4 @@ Mon, 27 Jul 2026 03:54:58 GMT
 https://www.cbr.com/star-trek-60th-anniversary-special-advance-review/
 
 In a CBR advance review of Star Trek's 60th Anniversary Special, see how an all-star group of creators celebrate the franchise's anniversary
----------
-
-# 'House of the Dragon' Officially Takes Its Biggest Risk With a Major 'Fire & Blood' Book Change
-
-TV Features, House of the Dragon, HBO, HBO Max, Steve Toussaint
-
-Mon, 27 Jul 2026 12:01:15 GMT
-
-https://collider.com/house-of-the-dragon-season-3-episode-6-corlys-captured-ormund/
-
-House of the Dragon diverges from George R.R. Martin's Fire & Blood with a major change to Corlys' story, resulting in his capture by the Greens.
----------
-
-# Forget 'Obsession,' A24's New Horror Phenomenon Is the Biggest Hit on Streaming
-
-Movie News, Horror, Backrooms, Obsession, Streaming
-
-Mon, 27 Jul 2026 12:01:15 GMT
-
-https://collider.com/obsession-versus-backrooms-streaming-success-itunes-july-2026/
-
-The battle of the best 2026 horror movie just transitioned to streaming. Find out more about Obsession's head-to-head with Backrooms here.
----------
-
-# The 10 Best Films of the 1990s, Ranked
-
-Movie, 1990s, Titanic, Jurassic Park, Toy Story
-
-Mon, 27 Jul 2026 11:51:15 GMT
-
-https://collider.com/best-films-1990s-ranked/
-
-From Toy Story to Jurassic Park, these films defined the 1990s.
----------
-
-# 10 Modern Sci-Fi Movies That Will Be Classics
-
-Movie, Science Fiction, Everything Everywhere All at Once, Project Hail Mary, Nope
-
-Mon, 27 Jul 2026 11:38:15 GMT
-
-https://collider.com/modern-sci-fi-movies-that-will-be-classics/
-
-Sci-fi movies from Everything Everywhere All at Once to Nope will be held up as genre classics in the years to come.
----------
-
-# 25 Best Books of the 21st Century
-
-Books and Comics, The Electric State, The Dark Tower, Stephen King, A Song of Ice and Fire
-
-Mon, 27 Jul 2026 11:31:15 GMT
-
-https://collider.com/best-books-21st-century-ranked/
-
-There have been some amazing books published in the 21st century so far, including modern classics like 11/22/63, The Road, and A Little Life.
----------
-
-# Alan Ritchson's World War II Blockbuster Is Leaving Streaming in Less Than 1 Month
-
-Movie News, Guy Ritchie, The Ministry of Ungentlemanly Warfare, Henry Cavill, Alan Ritchson
-
-Mon, 27 Jul 2026 11:30:14 GMT
-
-https://collider.com/guy-ritchie-ww2-ministry-of-ungentlemanly-warfare-leaving-peacock-august-18-2026/
-
-Guy Ritchie's The Ministry of Ungentlemanly Warfare, starring Henry Cavill and Alan Ritchson, is about to be removed from Peacock. Find out when.
----------
-
-# 10 Greatest 2000s One-Hit Wonders
-
-Music Features, Music, 2000s, Pop, Rock
-
-Mon, 27 Jul 2026 11:25:15 GMT
-
-https://collider.com/best-one-hit-wonders-2000s/
-
-From "Who Let the Dogs Out" to "Bad Day," these one-hit wonders dominated the aughts.
----------
-
-# 10 Most Subversive Fantasy Movies
-
-Movie, Fantasy, Shrek, Princess Mononoke, Spirited Away
-
-Mon, 27 Jul 2026 11:04:15 GMT
-
-https://collider.com/most-subversive-fantasy-movies-ranked/
-
-From Pan's Labyrinth to Princess Mononoke, these subversive fantasy films shatter expectations and redefine magical storytelling.
----------
-
-# The World War II Sleeper Hit Everyone Missed Is Finally Available to Watch on Streaming
-
-Movie News, Pressure, Brendan Fraser, Andrew Scott, Peacock
-
-Mon, 27 Jul 2026 11:00:15 GMT
-
-https://collider.com/brendan-fraser-ww2-movie-pressure-streaming-peacock-july-2026/
-
-The WW2 sleeper hit Pressure, starring Brendan Fraser and Andrew Scott, is now available on streaming. Find out where to watch it here.
----------
-
-# Apple TV's Keanu Reeves Crime Flick Dominates Streaming Charts for 100 Days
-
-Movie News, Keanu Reeves, Apple TV, Outcome, Jonah Hill
-
-Mon, 27 Jul 2026 10:30:15 GMT
-
-https://collider.com/keanu-reeves-outcome-streaming-success-apple-tv-july-2026/
-
-A critically-panned Keanu Reeves movie, directed by Jonah Hill, is one of the most-watched on Apple TV. Here's everything you should know.
----------
-
-# Netflix's New 2-Part Western Takes Down the Biggest Thriller on Streaming
-
-TV News, Ransom Canyon, I Will Find You, Hot on Streaming, Western, Netflix
-
-Mon, 27 Jul 2026 12:11:29 GMT
-
-https://movieweb.com/ransom-canyon-western-i-will-find-you-streaming-netflix-july-2026/
-
-Netflix's 'Yellowstone' replacement has officially dethroned the hottest thriller of the summer on streaming.
----------
-
-# Alan Ritchson's New Action Thriller Lands Solid Rotten Tomatoes Audience Score
-
-Movie News, Motor City, Alan Ritchson, Action, Thriller
-
-Mon, 27 Jul 2026 12:04:27 GMT
-
-https://movieweb.com/motor-city-audience-rotten-tomatoes-score/
-
-Moviegoers have finally weighed in on Alan Ritchson's new Action Thriller
----------
-
-# Jason Statham's New 107-Minute Action Thriller Beats Amazon's $100M Spy Sequel on Streaming
-
-Movie News, Jason Statham, Shelter, Action, Thriller, Tom Clancy's Jack Ryan: Ghost War
-
-Mon, 27 Jul 2026 11:46:43 GMT
-
-https://movieweb.com/statham-shelter-beats-jack-ryan-ghost-war-streaming-july-2026/
-
-The Stath proves too much for this iconic spy.
----------
-
-# Tom Holland Gets Candid About Some of His 'S***' Movies
-
-Movie News, Tom Holland
-
-Mon, 27 Jul 2026 10:30:55 GMT
-
-https://movieweb.com/tom-holland-candid-bad-movies-podcast/
-
-Tom Holland says press tours for 'The Odyssey' and 'Spider-Man: Brand New Day' are easy because he actually likes them. That wasn't always true.
----------
-
-# 7 Worst Zelda: Ocarina Of Time Remake Redesigns
-
-Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda, Triple-A Games
-
-Mon, 27 Jul 2026 07:00:12 GMT
-
-https://screenrant.com/zelda-ocarina-of-time-remake-changes-3d-reversal/
-
-Ocarina of Time already got one remake 15 years ago on the 3DS, but it made some questionable design choices that should be reverted on Switch 2.
----------
-
-# Invincible RPG Review - Brutally Fun Superhero Roleplaying
-
-Gaming, Invincible
-
-Mon, 27 Jul 2026 06:00:11 GMT
-
-https://screenrant.com/invincible-rpg-superhero-roleplaying-review/
-
-Invincible - Superhero Roleplaying is a new tabletop RPG based on the comics, and it's as perfectly fast-paced and brutal as you'd expect.
----------
-
-# PlayStation Drops 5 New Freebies You Can Grab Now Without PS Plus
-
-Gaming, PlayStation
-
-Mon, 27 Jul 2026 05:30:11 GMT
-
-https://screenrant.com/playstation-5-new-free-demos-july-2026/
-
-Discover 5 new PlayStation demos available for free, allowing PS4 and PS5 users to try out upcoming titles.
----------
-
-# Maximum Pleasure Guaranteed’s Creator Breaks Down Tatiana Maslany’s Emotional Courtroom Scene & the Importance of the Season’s Final Shot
-
-TV, Maximum Pleasure Guaranteed, Apple TV
-
-Mon, 27 Jul 2026 06:31:55 GMT
-
-https://www.cbr.com/maximum-pleasure-guaranteed-finale-tatiana-maslany-courtroom-scene/
-
-Spoiler: you'll need tissues.
----------
-
-# Mortal Kombat 2 Director Reveals The Character That ‘Worried’ Him The Most: ‘What Was I Thinking?’
-
-CBR Exclusives, Mortal Kombat II
-
-Mon, 27 Jul 2026 05:47:21 GMT
-
-https://www.cbr.com/mortal-kombat-2-simon-mcquoid-baraka-character-design/
-
-Mortal Kombat II director Simon McQuoid discusses designing Baraka, CJ Bloomfield’s performance, and the sequel’s practical effects.
----------
-
-# Red Dead Redemption 2 St Denis Expansion Adds 4 New Missions
-
-Gaming, Red Dead Redemption 2, Red Dead Redemption
-
-Mon, 27 Jul 2026 05:00:11 GMT
-
-https://screenrant.com/red-dead-redemption-2-st-denis-fan-expansion/
-
-Explore Saint Denis like never before with the Saint Denis Mini Missions Pack mod for Red Dead Redemption 2.
----------
-
-# The Last Of Us Part 3 Official Teaser Has Huge Implications For The Series
-
-Gaming, The Last of Us
-
-Mon, 27 Jul 2026 04:30:11 GMT
-
-https://screenrant.com/last-of-us-part-3-teaser-series-future/
-
-Neil Druckmann's recent Instagram post has fans speculating about the possibility of a third installment in the beloved The Last of Us franchise.
----------
-
-# It's Official: Halo Returns In 2027 With Halo: Fireteam Noble
-
-Gaming, Halo
-
-Mon, 27 Jul 2026 04:00:14 GMT
-
-https://screenrant.com/halo-fireteam-noble-2027-release/
-
-Fans of the Halo franchise can look forward to the upcoming release of Halo: Fireteam Noble in 2027.
----------
-
-# Netflix's #1 K-Drama Of 2026 Is So Popular It's Beating One Piece
-
-TV, One Piece, Netflix, Masked Recs
-
-Mon, 27 Jul 2026 03:59:11 GMT
-
-https://screenrant.com/netflix-teach-you-a-lesson-beating-one-piece/
-
-While easily the most impressive live-action manga and anime adaptation ever, One Piece got narrowly outshined in the first half of 2026.
----------
-
-# 8 Essential Marvel Comics To Read Before Avengers: Doomsday
-
-Marvel Comics, Avengers: Doomsday
-
-Mon, 27 Jul 2026 03:57:22 GMT
-
-https://screenrant.com/essential-marvel-comics-read-before-doomsday/
-
-Avengers: Doomsday draws inspiration from various comic book runs and crossovers that provide unique insights into the Marvel multiverse.
----------
-
-# Alien: Earth Season 2’s Xenomorphs Come To Life In New First Look
-
-TV, Alien: Earth
-
-Mon, 27 Jul 2026 03:37:42 GMT
-
-https://screenrant.com/alien-earth-season-2-xenomorphs-first-look/
-
-The terrifying Xenomorphs of Alien: Earth arrive in the form of an unexpected sneak peek before the hit FX show's upcoming second season.
----------
-
-# 6 Best Action Series Released In 2026 (So Far)
-
-Streaming TV, The Night Agent, Bloodhounds, The Night Agent - Season 3, Bloodhounds - Season 2, The Terminal List: Dark Wolf, The Boys
-
-Mon, 27 Jul 2026 03:15:42 GMT
-
-https://screenrant.com/best-action-series-2026/
-
-Quiet a few action packed thrillers have premiered on the small screen in 2026, but only a handful of these shows have managed to leave their mark.
 ---------
