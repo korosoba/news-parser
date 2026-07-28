@@ -1,3 +1,300 @@
+# Everyone Who Voiced Meg Griffin In Family Guy
+
+Network TV, Family Guy
+
+Tue, 28 Jul 2026 12:30:11 GMT
+
+https://screenrant.com/family-guy-meg-griffin-voice-actors/
+
+Being the voice of Meg Griffin made Mila Kunis a star, but four other voice actors have played Family Guy's resident punching bag over the years.
+---------
+
+# The Elder Scrolls 6 Official Release Date Update Shared By Bethesda
+
+Gaming, The Elder Scrolls, The Elder Scrolls 6, Bethesda, PC
+
+Tue, 28 Jul 2026 12:28:56 GMT
+
+https://screenrant.com/elder-scrolls-6-official-release-date-update-bethesda-latest/
+
+After major concerns over troubling goings-on at XBOX and Bethesda, the studio just shared an official update for The Elder Scrolls 6 release.
+---------
+
+# Batman's Creepiest New Look Yet Will Test Even Expert Cosplayers
+
+Comics, Batman
+
+Tue, 28 Jul 2026 12:04:11 GMT
+
+https://screenrant.com/batman-bad-seeds-redesign/
+
+DC unveils Batman’s latest redesign inspired by Bad Seeds, delivering one of the Dark Knight’s creepiest and most unique looks in his 87-year history.
+---------
+
+# Disney’s New Must-Watch Movie Combines The MCU, Star Wars, & Its Animated Classics
+
+Movies, Disney
+
+Tue, 28 Jul 2026 12:00:11 GMT
+
+https://screenrant.com/disney-worldbuilders-trailer-franchise-teases/
+
+Disney's new movie is set to provide some unique insights into some of its biggest franchises, including the MCU, Star Wars, and many more.
+---------
+
+# After 60 Years, Star Trek Completely Retconned Spock & USS Enterprise’s Time Travel History
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Tue, 28 Jul 2026 12:00:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-spock-enterprise-time-travel-retcon/
+
+Star Trek: Strange New Worlds season 4's premiere rewrote the book on when and how far back Spock and the Starship Enterprise have time traveled.
+---------
+
+# All 3 Upcoming Star Wars Shows, Ranked By Hype
+
+Streaming TV, Star Wars, Star Wars: Visions, Ahsoka, Star Wars: Maul - Shadow Lord
+
+Tue, 28 Jul 2026 11:30:11 GMT
+
+https://screenrant.com/upcoming-star-wars-shows-ranked-hype/
+
+Star Wars has just three upcoming shows: The Ninth Jedi, Ahsoka season 2, and Maul - Shadow Lord season 2. Here's which ones to look out for.
+---------
+
+# Left 4 Dead 2 Just Got A Stunning Next-Gen Remake
+
+Gaming, Left 4 Dead 2, Left 4 Dead
+
+Tue, 28 Jul 2026 11:05:15 GMT
+
+https://screenrant.com/left-4-dead-2-next-gen-remake-rtx/
+
+Left 4 Dead 2 is one of the best zombie games of all time, and a remake really does feel long overdue at this point.
+---------
+
+# Dakota Johnson Is Marilyn Monroe in First Look at Alternate Reality Film
+
+Movies, Marilyn Monroe
+
+Tue, 28 Jul 2026 12:00:15 GMT
+
+https://www.cbr.com/flesh-impact-first-look-dakota-johnson-ellen-burstyn-marilyn-monroe/
+
+Dakota Johnson and Ellen Burstyn both portray Hollywood icon Marilyn Monroe in the alternate reality story from Maggie Gyllenhaal.
+---------
+
+# The Predator and The Punisher Officially Face Off In Most Brutal Showdown Yet
+
+Comics, Predator, The Punisher, San Diego Comic-Con
+
+Tue, 28 Jul 2026 12:00:15 GMT
+
+https://www.cbr.com/predator-versus-punisher-marvel-sdcc/
+
+The two deadliest Marvel properties finally cross paths.
+---------
+
+# Stephen King Praised Netflix’s Best Crime Thriller for the Last Reason You’d Expect
+
+TV, Mindhunter, Stephen King, Netflix
+
+Tue, 28 Jul 2026 11:30:15 GMT
+
+https://www.cbr.com/stephen-king-netflix-mindhunter-praise/
+
+Earning praise from Stephen King, Mindhunter leaves much to the imagination with its stomach-churning retellings of America's most notorious crimes.
+---------
+
+# 15 Far Side Comics That Showcase Gary Larson's Darkest Humor
+
+Comics, The Far Side
+
+Tue, 28 Jul 2026 11:01:14 GMT
+
+https://www.cbr.com/the-far-side-comics-with-darkest-humor-ranked/
+
+Gary Larson's The Far Side comic strip has entertained fans for years with his unique take on the world, often featuring hilariously dark comedy.
+---------
+
+# The Greatest Supernatural Spin-Off of All Time Is Officially Streaming for Free
+
+TV Features, Angel, David Boreanaz, Charisma Carpenter, James Marsters
+
+Tue, 28 Jul 2026 12:37:14 GMT
+
+https://collider.com/angel-greatest-supernatural-spin-off-of-all-time/
+
+Angel takes a darker and more complex approach to the supernatural genre established by Buffy the Vampire Slayer.
+---------
+
+# After ‘Fallout,’ Prime Video’s ‘Wolfenstein’ Video Game Series Faces a Bigger Challenge
+
+TV Features, Fallout, Wolfenstein II: The New Colossus, Jonathan Nolan, Video Game
+
+Tue, 28 Jul 2026 12:31:14 GMT
+
+https://collider.com/jonathan-nolan-adapting-wolfenstein-fallout-differences/
+
+Jonathan Nolan's next project is adapting Wolfenstein, an alternate post-World War II game which is slightly more restrictive than Fallout.
+---------
+
+# Say Goodbye to One of the Greatest Murder Mysteries of the 21st Century
+
+Movie News, Knives Out, Daniel Craig, Rian Johnson, Peacock
+
+Tue, 28 Jul 2026 12:30:14 GMT
+
+https://collider.com/knives-out-leaving-peacock-august-2026/
+
+One of the greatest murder mysteries of the last two decades, Knives Out, is about to leave the Peacock streaming service. Find out when.
+---------
+
+# 10 Greatest Epic Movies of the Last 80 Years
+
+Movie, Lawrence of Arabia, Seven Samurai, The Godfather Part II, War and Peace
+
+Tue, 28 Jul 2026 12:27:14 GMT
+
+https://collider.com/best-epic-movies-last-80-years-ranked/
+
+From foundational classics like Seven Samurai to 21st-century masterpieces like There Will Be Blood, these are the best epics of the last 80 years.
+---------
+
+# The 15 Most Cinematic Video Games, Ranked
+
+TV, Death Stranding, The Last of Us, Final Fantasy XV, Until Dawn
+
+Tue, 28 Jul 2026 12:14:15 GMT
+
+https://collider.com/cinematic-video-games-ranked/
+
+Video games like Until Dawn and Horizon Zero Dawn are among the most cinematic and visually jaw-dropping in the current and ever-expanding industry.
+---------
+
+# Netflix Have Found Their 'Ted Lasso' Replacement With This Unstoppable Streaming Hit
+
+TV News, Netflix, Ted Lasso, The Hawk, Will Ferrell
+
+Tue, 28 Jul 2026 12:00:15 GMT
+
+https://collider.com/will-ferrell-the-hawk-streaming-success-netflix-july-2026/
+
+Netflix's new Ted Lasso replacement, starring Will Ferrell and Luke Wilson, is scoring big on streaming. Find out more here.
+---------
+
+# Only 8 Fantasy Franchises Are Objectively Better Than Lord of the Rings
+
+Movie, The Lord of the Rings, Fantasy, Star Wars, Wizarding World
+
+Tue, 28 Jul 2026 11:52:15 GMT
+
+https://collider.com/fantasy-franchises-better-than-lord-of-the-rings/
+
+The Chronicles of Narnia, Pirates of the Caribbean, Harry Potter, and more make up our list of fantasy franchises better than Lord of the Rings.
+---------
+
+# 10 Most Visually Stunning Video Games of All Time
+
+Gaming, Video Game, Cyberpunk 2077, Cuphead, The Legend of Zelda
+
+Tue, 28 Jul 2026 11:31:14 GMT
+
+https://collider.com/most-visually-stunning-video-games-all-time/
+
+Video games like Hollow Knight and BioShock are legendary because of their stunning visuals, showcasing the medium's best, most fully realized worlds.
+---------
+
+# Liam Neeson's New Sci-Fi Thriller Is Officially One of 2026's Biggest Streaming Sleeper Hits
+
+Movie News, Liam Neeson, Sci-Fi, Cold Storage, MGM
+
+Tue, 28 Jul 2026 11:30:14 GMT
+
+https://collider.com/cold-storage-streaming-success-mgm-plus-july-2026/
+
+An underrated sci-fi horror-comedy starring Liam Neeson and a Stranger Things icon is a sleeper streaming gem. Find out more about Cold Storage here.
+---------
+
+# 7 Must-Watch Movies Leaving Netflix in August
+
+Movie, Netflix, Spider-Man, Pretty Woman, Borat
+
+Tue, 28 Jul 2026 11:03:14 GMT
+
+https://collider.com/movies-leaving-netflix-august-2026/
+
+Say goodbye to beloved rom-coms like Pretty Woman and Tobey Maguire's first Spider-Man film, as these movies are set to leave Netflix in August.
+---------
+
+# The Action Thriller Everyone's Been Waiting For Returns This Week
+
+Features, Reacher, Lioness, Taylor Sheridan
+
+Tue, 28 Jul 2026 12:00:12 GMT
+
+https://movieweb.com/lioness-reacher-action-thriller-competition/
+
+2026 has seen the release of some memorable and entertaining action thriller TV shows, and a new one is coming back in August 2026.
+---------
+
+# Apple TV Just Confirmed the Sci-Fi Event of 2027
+
+Features, Neuromancer, Apple TV
+
+Tue, 28 Jul 2026 12:00:12 GMT
+
+https://movieweb.com/neuromancer-apple-tv-january-2027/
+
+Apple TV is known for its impressive sci-fi TV shows, and a new series is premiering in 2027.
+---------
+
+# Henry Cavill's Long-Awaited Sci-Fi Action Series Finally Takes Major Step Forward at Amazon
+
+TV News, Henry Cavill, Warhammer 40k, Action, Sci-Fi, Mike Flanagan
+
+Tue, 28 Jul 2026 11:31:39 GMT
+
+https://movieweb.com/henry-cavill-warhammer-series-mike-flanagan-direct/
+
+After 4 years, Amazon's 'Warhammer 40k' adaptation has finally tapped a surprising horror master to help Cavill bring the project to life.
+---------
+
+# Forget John Wick, Netflix's New 132-Minute Action Thriller Quickly Crowned a Streaming Smash Hit
+
+Movie News, Netflix, Action, Thriller
+
+Tue, 28 Jul 2026 11:10:46 GMT
+
+https://movieweb.com/netflix-debt-collector-stream-hit-action-july-2026/
+
+Can a person ever truly repay the debts of their past?
+---------
+
+# Game of Thrones Addressed the Biggest Dragon Mystery Twice in 5 Years
+
+Features, Game of Thrones, Game Of Thrones, House of the Dragon
+
+Tue, 28 Jul 2026 11:00:12 GMT
+
+https://movieweb.com/game-of-thrones-dragonrider-mystery/
+
+Targaryens are generally assumed to be the only family capable of riding dragons, but are they? Read on for more.
+---------
+
+# Taylor Sheridan Ditches Western for Hard Sci-Fi as He Returns to Movies for First Time in 5 Years
+
+Movie News, Taylor Sheridan, Yellowstone
+
+Tue, 28 Jul 2026 10:48:47 GMT
+
+https://movieweb.com/taylor-sheridan-new-movies-visalia-capture-the-flag/
+
+'Yellowstone' creator Taylor Sheridan has announced two new movies that he is writing and producing, 'Visalia' and 'Capture the Flag.'
+---------
+
 # Xbox Just Dropped 13 Ubisoft Freebies You Can Grab Now
 
 Gaming, Xbox
@@ -5199,301 +5496,4 @@ Sun, 26 Jul 2026 19:00:11 GMT
 https://screenrant.com/gangster-mob-shows-better-than-peaky-blinders/
 
 Peaky Blinders made seedy British gangster culture into a cinematic historical masterpiece, but it is not the greatest gangster TV show of all time.
----------
-
-# Attack On Titan's New Season Is The Start Of A New Era
-
-Gaming, Attack on Titan
-
-Sun, 26 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/attack-on-titan-new-season-new-era/
-
-Experience the world of Attack on Titan with a new cooperative deck-building game.
----------
-
-# Brendan Fraser’s Hit 2026 WWII Thriller Officially Dominates Peacock After 1 Day
-
-Movies, Masked Recs
-
-Sun, 26 Jul 2026 18:42:11 GMT
-
-https://screenrant.com/brendan-fraser-pressure-movie-peacock-july-2026-streaming-charts/
-
-Ahead of The Mummy 4, Brendan Fraser's new World War II thriller movie released earlier this year is dominating Peacock after just one day.
----------
-
-# DC Debuts an Iconic Hero's Best Redesign of All Time, Bar None
-
-Comics, DC Comics, Masked Recs
-
-Sun, 26 Jul 2026 18:31:47 GMT
-
-https://screenrant.com/absolute-cyborg-redesign-titans/
-
-Among DC's Comic Con reveals is the unveiling of an iconic Justice League hero's new redesign, and it truly may be his best look of all time.
----------
-
-# One More Xbox Studio Managed To Go Independent After Layoff Wave
-
-Gaming, Xbox, Triple-A Games
-
-Sun, 26 Jul 2026 18:30:11 GMT
-
-https://screenrant.com/alpha-dog-indie-no-more-xbox-ownership/
-
-Xbox's workforce is getting decimated with ongoing layoffs, but another studio managing to become independent is a small win among the huge losses.
----------
-
-# Star Trek’s Next Great Villain Has Been Hiding In Plain Sight All Along
-
-TV, Star Trek: Strange New Worlds, Star Trek
-
-Sun, 26 Jul 2026 18:30:11 GMT
-
-https://screenrant.com/star-trek-strange-new-worlds-laan-villain/
-
-Star Trek: Strange New Worlds season 4 reveals Lt. La'an Noonien-Singh's fears that she's changing, and she has already shown ther villainous side.
----------
-
-# Avengers: Doomsday’s Newest Confirmed Star Teases “Existential Epic” Story
-
-Movies, San Diego Comic-Con, Avengers: Doomsday
-
-Sun, 26 Jul 2026 18:30:08 GMT
-
-https://screenrant.com/avengers-doomsday-peggy-return-hayley-atwell-response/
-
-EXCLUSIVE: Avengers: Doomsday has added another star to its roster, and its "existential epic" story is revealed ahead of the anticipated release.
----------
-
-# Inside ScreenRant's SDCC 2026 Talent Suite: The Entertainment Earth Collection on Display
-
-Comic-Con, San Diego Comic-Con
-
-Sun, 26 Jul 2026 18:25:45 GMT
-
-https://screenrant.com/entertainment-earth-collectibles-screenrant-sdcc-2026-talent-suite/
-
-If you liked what you saw in our SDCC 2026 talent suite interviews, you're in luck — a lot of it is available to add to your own collection.
----------
-
-# Avengers: Doomsday Reveals New Look At Doom's Throne In SDCC Merch (Exclusive)
-
-Exclusive, Avengers: Doomsday, San Diego Comic-Con
-
-Sun, 26 Jul 2026 18:00:34 GMT
-
-https://screenrant.com/avengers-doomsday-collectibles-merch-sdcc-2026/
-
-San Diego Comic-Con unveils a whole new look at Avengers: Doomsday, with exclusive merch and collectibles from Iron Studios, Mattel, and Bandai.
----------
-
-# 10 Most Difficult PlayStation 2 Games Ever Made
-
-Gaming, PlayStation 2, Triple-A Games
-
-Sun, 26 Jul 2026 18:00:11 GMT
-
-https://screenrant.com/hardest-playstation-2-games-ranked/
-
-The massive PlayStation 2 library has a few truly tough games in the mix, and conquering its greatest challenges will require both skill and patience.
----------
-
-# 8 Greatest Action Thrillers Worth Watching Again and Again, Ranked
-
-Movies, Action, Thriller, Die Hard
-
-Sun, 26 Jul 2026 19:00:15 GMT
-
-https://www.cbr.com/best-rewatchable-action-thrillers-ranked-list/
-
-Action-thrillers have been keeping audiences hooked on cinema since the '60s, but these masterpieces are worth watching again and again.
----------
-
-# The CW's 4-Season Historical Drama With 86% Is Heading to Free Streaming in August
-
-TV, Reign, The CW, Drama
-
-Sun, 26 Jul 2026 19:00:15 GMT
-
-https://www.cbr.com/reign-the-cw-historical-drama-pluto-tv-free-streaming/
-
-The CW's historical drama is coming to Pluto TV on Aug. 1, available to stream for free.
----------
-
-# Prime Video's New Sci-Fi Reboot Is Bringing Cyberpunk Back to TV
-
-TV, Robocop, Prime Video
-
-Sun, 26 Jul 2026 18:30:15 GMT
-
-https://www.cbr.com/prime-video-robocop-reboot-embracing-cyberpunk/
-
-An action icon is headed back to TV, and this time, a new Prime Video streaming show has the chance to be his best adaptation by embracing cyberpunk.
----------
-
-# Apple TV's Underrated Sci-Fi Thriller Series Returns With New Episodes Next Month
-
-TV, Dark Matter, San Diego Comic-Con
-
-Sun, 26 Jul 2026 18:17:53 GMT
-
-https://www.cbr.com/apple-tv-dark-matter-season-2-trailer/
-
-The latest hit sci-fi thriller from Apple TV is officially coming back with brand new episodes, and fans don't have to wait long.
----------
-
-# 10 Classic Anime Series Where Every Episode Is a Masterpiece
-
-Anime, Cowboy Bebop, Samurai Champloo, Monster, Death Note
-
-Sun, 26 Jul 2026 18:15:15 GMT
-
-https://www.cbr.com/classic-anime-every-episode-masterpiece/
-
-The strongest anime classics never rely on filler, repetitive conflicts, or uneven pacing because every episode expands the strengthens the story.
----------
-
-# New Official One Piece Special Gives the Straw Hats Their Biggest Transformation in 29 Years
-
-Anime, One Piece
-
-Sun, 26 Jul 2026 18:00:15 GMT
-
-https://www.cbr.com/one-piece-straw-hats-marionette-special/
-
-One Piece fans just got what might be the most unexpected franchise entry of all time, and it is absolutely the wildest adaptation yet.
----------
-
-# Absolute Batman Introduces a Terrifying New Version of Bruce Wayne's Darkest Fear
-
-Comics, Absolute Batman
-
-Sun, 26 Jul 2026 18:00:15 GMT
-
-https://www.cbr.com/absolute-batman-bruce-wayne-darkest-fear/
-
-Things are beginning to look awfully scary for Batman's crusade to save Gotham.
----------
-
-# Pixar's Sequel in $3.2B Franchise Is Officially the Highest-Grossing Movie of 2026 In Just 5 Weeks
-
-Movies, Toy Story 5, box office
-
-Sun, 26 Jul 2026 17:59:57 GMT
-
-https://www.cbr.com/pixar-toy-story-5-billion-dollar-milestone/
-
-The franchise has been a resounding success and the new milestone proves that.
----------
-
-# Jason Statham's #1 Box Office Hit Officially Finds a New Streaming Home
-
-Movie News, Jason Statham, Fast & Furious Presents: Hobbs & Shaw, Dwayne Johnson, Peacock
-
-Sun, 26 Jul 2026 19:00:15 GMT
-
-https://collider.com/jason-statham-fast-and-furious-hobbs-and-shaw-streaming-peacock-august-2026/
-
-Jason Statham's biggest hit as a leading man, Hobbs and Shaw, is coming to Peacock soon. Find out when you can watch it.
----------
-
-# 10 Things 'Spider-Man: Brand New Day' Absolutely Must Deliver
-
-Movie, Spider-Man: Brand New Day, Marvel, Tom Holland, Zendaya
-
-Sun, 26 Jul 2026 18:49:15 GMT
-
-https://collider.com/spider-man-brand-new-day-essential-must-haves/
-
-From epic moments with the Punisher and the Hulk to Jean Grey, here are the things Spider-Man: Brand New Day absolutely needs to deliver.
----------
-
-# Rick and Morty S9: The Episode That Seemed Impossible | Collider BTS
-
-TV, Rick and Morty
-
-Sun, 26 Jul 2026 18:15:15 GMT
-
-https://collider.com/video/rick-and-morty-s9-the-episode-that-seemed-impossible-collider-bts/
-
-Dan Harmon and Scott Marder break down Rick and Morty Season 9 and reveal how the creative team continues pushing the animated series in unexpected directions.
----------
-
-# Henry Cavill and Alan Ritchson's WWII Thriller Storms to #1 on Prime Video
-
-Movie News, The Ministry of Ungentlemanly Warfare, Henry Cavill, Alan Ritchson, Guy Ritchie
-
-Sun, 26 Jul 2026 18:00:15 GMT
-
-https://collider.com/henry-cavill-alan-ritchson-ww2-movie-the-ministry-of-ungentlemanly-warfare-streaming-success-prime-video-july-2026/
-
-Henry Cavill's WW2 action thriller with Alan Ritchson, The Ministry of Ungentlemanly Warfare, has stormed to #1 on global streaming charts.
----------
-
-# This Forgotten 5-Season Western Series Still Makes 'Yellowstone' Look Tame
-
-TV Features, Hell on Wheels, AMC, Anson Mount, Common
-
-Sun, 26 Jul 2026 17:58:14 GMT
-
-https://collider.com/hell-on-wheels-amc-forgotten-western-makes-yellowstone-look-tame/
-
-AMC's forgotten Western Hell on Wheels outshines Yellowstone with its gritty realism and compelling characters, making it a must-watch.
----------
-
-# 19 Years Later, ‘The Big Bang Theory’s Most Memorable Quote Hits Harder Than Ever
-
-Features, The Big Bang Theory, Great Line
-
-Sun, 26 Jul 2026 19:00:12 GMT
-
-https://movieweb.com/big-bang-theory-sheldon-pilot-quote/
-
-'The Big Bang Theory,' the sitcom that aired for 12 seasons and stars Jim Parsons and Kaley Cuoco, has one particularly memorable quote.
----------
-
-# 2026 Gets Its Third Billion-Dollar Movie
-
-Movie News, Toy Story 5, The Odyssey, Michael, The Super Mario Galaxy Movie, Box Office
-
-Sun, 26 Jul 2026 18:32:15 GMT
-
-https://movieweb.com/2026-billion-toy-story-5/
-
-And it could just be the beginning.
----------
-
-# I Rewatched 'The Odyssey's Prequel After Christopher Nolan's New Movie
-
-Features, The Odyssey, Troy
-
-Sun, 26 Jul 2026 18:30:12 GMT
-
-https://movieweb.com/the-odyssey-troy-rewatch/
-
-Here's the biggest thing Christopher Nolan changed in his version of 'The Odyssey', based on its predecessor.
----------
-
-# 10 Classic Fantasy TV Shows No One Talks About Anymore
-
-TV Lists, The Odyssey, Highlander, Beauty and the Beast
-
-Sun, 26 Jul 2026 18:00:12 GMT
-
-https://movieweb.com/classic-fantasy-tv-shows-forgotten/
-
-Fantasy is a popular genre, and there are many classic TV shows that are underrated and should be talked about more.
----------
-
-# 8 Shows to Watch If You Miss 'Anne with an E'
-
-TV Lists, Anne With an E
-
-Sun, 26 Jul 2026 18:00:12 GMT
-
-https://movieweb.com/anne-with-an-e-shows-to-watch/
-
-Netflix’s 'Anne with an E' might be over, but there are still plenty of great series fans can find on streaming to fill that void.
 ---------
