@@ -1,3 +1,322 @@
+# Dungeons & Dragons Meets Stardew Valley In New RPG You Can Play Free Now
+
+Gaming, Dungeons & Dragons, Stardew Valley, PC, PlayStation 5
+
+Wed, 29 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/flamecraft-dungeons-dragons-meets-stardew-valley-free-demo/
+
+Dungeons & Dragons fans looking for a cozy break should absolutely try this free D&amp;D meets Stardew Valley RPG.
+---------
+
+# Every Movie Releasing In Theaters In August 2026
+
+Movies
+
+Wed, 29 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/august-2026-movies-theaters-release-dates/
+
+August 2026 is bringing a variety of movies to theaters, such as Eli Roth's latest horror movie, a long-awaited comedy, a biographical drama, & more.
+---------
+
+# A Walking Dead Character Only Exists In Negan's Mind, According To This Theory
+
+Streaming TV, Masked Recs
+
+Wed, 29 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/the-walking-dead-city-negan-dillard-not-real/
+
+Negan immediately hit it off with The Walking Dead's strange new survivor, but one theory suggests this character may be a figment of his imagination.
+---------
+
+# HBO Max Quietly Launches 2 Major New Streaming Changes Today
+
+TV, HBO Max
+
+Wed, 29 Jul 2026 12:41:54 GMT
+
+https://screenrant.com/hbo-max-new-mobile-features-shorts-search/
+
+HBO Max quietly launches two major new streaming changes today, with intent on making it easier for audiences to find something to watch.
+---------
+
+# The DCU's New Set Photos Prove It Nailed Its Hardest Castings
+
+Movies, DC Universe
+
+Wed, 29 Jul 2026 12:30:11 GMT
+
+https://screenrant.com/dc-universe-supergirl-digital-release-set-photos-superman-casting/
+
+The DCU's latest set photos and the reactions to them confirm the franchise's trickiest castings have been done justice in this cinematic world.
+---------
+
+# Every Hero In Avengers: Doomsday, Ranked By Power
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Wed, 29 Jul 2026 12:30:11 GMT
+
+https://screenrant.com/avengers-doomsday-heroes-ranked-by-power/
+
+There are 29 confirmed heroes in Avengers: Doomsday, but not all of them will put up as much of a fight against Doctor Doom as the others.
+---------
+
+# Brandon Sanderson’s New Stormlight Release Gets Surprise Update
+
+Gaming, Brandon Sanderson, The Stormlight Archive, Mistborn, PC
+
+Wed, 29 Jul 2026 12:11:45 GMT
+
+https://screenrant.com/stormlight-war-for-roshar-update-july-27/
+
+Brandon Sanderson's newest upcoming Stormlight project just got a major update with new details on what fans can expect when it arrives this fall.
+---------
+
+# After 65 Years, One Justice League Hero Just Got Their Greatest Redesign Yet
+
+DC Comics, Justice League
+
+Wed, 29 Jul 2026 12:07:11 GMT
+
+https://screenrant.com/absolute-atom-ray-palmer-reveal-image/
+
+DC’s Absolute Universe has delivered stunning hero redesigns since 2024, and now fans get their first look at another Justice League icon’s makeover.
+---------
+
+# 6 Iconic N64 Games That Changed Gaming Forever
+
+Gaming, Nintendo
+
+Wed, 29 Jul 2026 12:02:04 GMT
+
+https://screenrant.com/iconic-nintendo-64-games-changed-gaming/
+
+These groundbreaking N64 games transformed the gaming industry with innovative features and mechanics that continue to influence modern day gaming.
+---------
+
+# Star Wars Just Changed the Most Rise of Skywalker Controversial Moment
+
+Movies, Star Wars: Episode IX - The Rise of Skywalker, Star Wars, Sci-Fi
+
+Wed, 29 Jul 2026 13:00:15 GMT
+
+https://www.cbr.com/star-wars-changes-rise-of-skywalker-rey-ending/
+
+Seven years after Star Wars: Episode IX -- The Rise of Skywalker, Lucasfilm officially changes its most divisive moment.
+---------
+
+# 5 Perfect Netflix Miniseries the Algorithm Buried
+
+TV, Brand New Cherry Flavor, Godless, Alias Grace, Maniac, Collateral, Netflix
+
+Wed, 29 Jul 2026 13:00:15 GMT
+
+https://www.cbr.com/perfect-netflix-miniseries-hidden-gems/
+
+These underrated Netflix miniseries deserve another look, from Godless and Maniac to Alias Grace and Brand New Cherry Flavor.
+---------
+
+# 25 Years Later, Star Trek Finally Gives Voyager Fans the Series They've Been Waiting For
+
+Comics, Star Trek, Star Trek: Voyager, San Diego Comic-Con
+
+Wed, 29 Jul 2026 12:00:15 GMT
+
+https://www.cbr.com/webtoon-recollection-a-star-trek-story-confirmed/
+
+The next genre-centric Star Trek series might just be exactly what fans of Star Trek: Voyager have been waiting nearly three decades to see.
+---------
+
+# The MCU's New Agents of SHIELD Replacement Pulls the Plug on Marvel TV
+
+TV, Agents of S.H.I.E.L.D., Marvel Cinematic Universe
+
+Wed, 29 Jul 2026 11:30:15 GMT
+
+https://www.cbr.com/mcu-agents-of-shield-ghost-rider-replaced/
+
+Marvel Studios is officially replacing one of Agents of SHIELD's most beloved characters in the MCU and ending Marvel TV in the process.
+---------
+
+# The 10 Funniest The Far Side Comics About War, Ranked
+
+Comics, The Far Side
+
+Wed, 29 Jul 2026 11:01:14 GMT
+
+https://www.cbr.com/funniest-far-side-comics-about-war/
+
+Gary Larson, creator of The Far Side, knew how to create hilarious comic strips no matter the topic - even when it came to war.
+---------
+
+# Marvel Officially Introduces Thor's Replacement
+
+Books and Comics News, Marvel Comics, Thor, Marvel, Thor: Love and Thunder
+
+Wed, 29 Jul 2026 13:00:15 GMT
+
+https://collider.com/the-mortal-thor-issue-13-thors-replacement-preview-images-marvel-comics-release/
+
+New preview images from the latest issue of Marvel Comics' The Mortal Thor shows the Asgardian's successor taking the throne.
+---------
+
+# Season 2 of TNT's Best Series Will Be Your Next Fantasy Obsession | Review
+
+TV Reviews, The Librarians: The Next Chapter, The Librarians, Dean Devlin, John Rogers
+
+Wed, 29 Jul 2026 13:00:15 GMT
+
+https://collider.com/the-librarians-the-next-chapter-season-2-review/
+
+The Librarians: The Next Chapter Season 2 is a must-watch fantasy series that offers a lighter tone and wholesome fun.
+---------
+
+# 14 Years Later, Ridley Scott’s $403 Million Sci-Fi Epic Is a Global Streaming Hit
+
+Movie News, Alien, Prometheus, Ridley Scott, Sci-Fi
+
+Wed, 29 Jul 2026 12:30:14 GMT
+
+https://collider.com/ridley-scott-prometheus-streaming-success-hbo-max-july-2026/
+
+Ridley Scott’s divisive $403 million sci-fi epic Prometheus has become a worldwide streaming hit 14 years after its release.
+---------
+
+# 7 Years Later, This 10/10 Sci-Fi Series Officially Deserves a Reboot
+
+TV Features, Killjoys, SyFy, Hannah John-Kamen, Firefly
+
+Wed, 29 Jul 2026 12:24:34 GMT
+
+https://collider.com/killjoys-sci-fi-masterpiece-deserves-reboot-opinion/
+
+The SyFy Channel had a true masterpiece on its hands with Killjoys, and it deserves to make a comeback.
+---------
+
+# 8 Best Comedy Movies of 2026 So Far
+
+Movie, The Drama, Comedy, Hoppers, Nirvanna the Band the Show the Movie
+
+Wed, 29 Jul 2026 12:20:15 GMT
+
+https://collider.com/best-comedy-movies-2026/
+
+There have been many great comedy movies released so far in 2026, from blockbusters like Hoppers to indie darlings like I Love Boosters.
+---------
+
+# If You Love Queen, Listen to These 10 Rock Artists
+
+Music Features, Queen, Rock, Lady Gaga, David Bowie
+
+Wed, 29 Jul 2026 12:10:14 GMT
+
+https://collider.com/rock-artists-like-queen/
+
+From Lady Gaga to My Chemical Romance, if you love Queen, you must add these artists to your playlist.
+---------
+
+# ABC's 9-Part Crime Series Is Officially Dominating Hulu
+
+TV News, The Rookie, Procedural, ABC, Drama
+
+Wed, 29 Jul 2026 12:00:15 GMT
+
+https://collider.com/the-rookie-abc-procedural-streaming-success-hulu-july-2026/
+
+One of ABC's longest-running procedurals is seeing major streaming interest ahead of a new season. Get all the details here.
+---------
+
+# 8 Worst Movies That Won Multiple Oscars
+
+Movie, Academy Awards, Emilia Perez, The Iron Lady, Crash
+
+Wed, 29 Jul 2026 11:51:14 GMT
+
+https://collider.com/worst-movies-won-multiple-oscars/
+
+Emilia Pérez, Cimarron, and Crash are shockingly bad movie misfires that somehow won multiple Oscars, proving the Academy is often wrong.
+---------
+
+# 7 Must-Watch Shows Coming to Netflix in August
+
+TV, Netflix, Outer Banks, My Life with the Walter Boys, Alley Cats
+
+Wed, 29 Jul 2026 11:41:14 GMT
+
+https://collider.com/tv-shows-netflix-august-2026/
+
+From the new animated series Alley Cats to the highly anticipated final season of Outer Banks, these are the best shows coming to Netflix this August.
+---------
+
+# 10 Greatest Fantasy Epic Movies of the Last 50 Years
+
+Movie, Fantasy, The Odyssey, The Lord of the Rings: The Return of the King, Crouching Tiger, Hidden Dragon
+
+Wed, 29 Jul 2026 11:36:14 GMT
+
+https://collider.com/best-fantasy-epic-movies-last-50-years-ranked/
+
+From animated triumphs like Princess Mononoke to the recently released masterpiece The Odyssey, these are the best epic movies of the last 50 years.
+---------
+
+# Netflix's New 8-Part Action Thriller Officially Crowned One of the Biggest Shows on Streaming
+
+TV News, Netflix, Hot on Streaming, Action
+
+Wed, 29 Jul 2026 13:00:12 GMT
+
+https://movieweb.com/elite-force-action-netflix-tudum-stream/
+
+Netflix's new original action thriller is already one of the biggest series on streaming.
+---------
+
+# 12 Years In, 'Rick & Morty' Finally Gets Its Big 'Back to the Future' Moment
+
+TV Shows, Rick and Morty, Back to the Future
+
+Wed, 29 Jul 2026 13:00:12 GMT
+
+https://movieweb.com/rick-and-morty-back-to-the-future-homage/
+
+'Rick & Morty' began as a vulgar 'Back to the Future' homage, and the Season 9 finale just returned the show to its roots. Read on for more.
+---------
+
+# Stephen King's Small-Town Supernatural Series Is Completely Free on YouTube
+
+Features, Stephen King, Haven
+
+Wed, 29 Jul 2026 12:00:12 GMT
+
+https://movieweb.com/haven-stephen-king-youtube-free-streaming/
+
+Stephen King's beloved novels have been adapted into many movies and TV shows, and one of his best TV shows is free on YouTube.
+---------
+
+# Netflix's New 96-Minute Action Thriller Officially Crowned One of Streaming's Biggest Hits
+
+Movie News, Netflix, Action, Thriller, Sniper, Sniper: The Last Stand
+
+Wed, 29 Jul 2026 11:30:12 GMT
+
+https://movieweb.com/netflix-sniper-no-nation-biggest-action-stream-july-2026/
+
+No flag. No backup. No mercy.
+---------
+
+# Tom Holland and Daisy Ridley's Sci-Fi Thriller Is Streaming Free on YouTube
+
+Features, Chaos Walking, Tom Holland, Daisy Ridley
+
+Wed, 29 Jul 2026 11:01:12 GMT
+
+https://movieweb.com/chaos-walking-tom-holland-streaming-free/
+
+Tom Holland, whose recent movie 'The Odyssey' is in theaters now, and Daisy Ridley starred in a sci-fi thriller movie that is now free on YouTube.
+---------
+
 # Dragon Ball New Opening Movie And Theme Song Released As New Era Begins
 
 Gaming, Dragon Ball, Dragon Ball: Sparking! Zero
@@ -5177,323 +5496,4 @@ Mon, 27 Jul 2026 21:30:15 GMT
 https://collider.com/loki-the-mcu-series-that-changed-marvel-forever-streaming-success-disney-plus-july-2026/
 
 Loki, the critically acclaimed Marvel series set after Endgame, is topping the Disney+ rankings again as fans revisit it ahead of Avengers: Doomsday.
----------
-
-# ABC's 'High Potential' Replacement Officially Sets Release Date
-
-TV News, RJ Decker, ABC, Scott Speedman
-
-Mon, 27 Jul 2026 21:24:51 GMT
-
-https://collider.com/rj-decker-season-2-fall-release-date-abc/
-
-ABC has officially set a release date for Season 2 best new crime thriller series, RJ Decker.
----------
-
-# ‘Grey’s Anatomy’ Officially Returns in 3 Months
-
-TV News, Grey's Anatomy, ABC, Hulu, Ellen Pompeo
-
-Mon, 27 Jul 2026 21:24:34 GMT
-
-https://collider.com/greys-anatomy-season-23-fall-release-date-abc/
-
-Grey’s Anatomy Season 23 is officially returning to ABC this fall as part of the network’s Thursday night schedule.
----------
-
-# 10 Horror Movies That Are Perfect From Beginning to End
-
-Movie, Horror, Obsession, The Silence of the Lambs, Psycho
-
-Mon, 27 Jul 2026 21:08:15 GMT
-
-https://collider.com/horror-movies-perfect-beginning-to-end/
-
-From The Shining, to The Thing, to Obsession, horror doesn't get much more perfect than these incredible masterpieces.
----------
-
-# 10 Best Psychological Action Movies of All Time
-
-Movie, Inception, The Matrix, Total Recall, The Sword of Doom
-
-Mon, 27 Jul 2026 20:48:15 GMT
-
-https://collider.com/best-psychological-action-movies-all-time-ranked/
-
-Some action movies also happen to feel like psychological dramas or thrillers at the same time, like Total Recall, The Sword of Doom, and Inception.
----------
-
-# 3 Stellar Shows to Binge on Netflix Before July Is Over
-
-TV, The Bombing of Pan Am 103, Survival of the Thickest, Vikings, Netflix
-
-Mon, 27 Jul 2026 20:47:15 GMT
-
-https://collider.com/netflix-shows-binge-week-july-27-2026/
-
-Survivial of the Thickest, Vikings, and The Bombing of Pan Am 103 make up our list of the best Netflix shows to binge before July 2026 is over.
----------
-
-# Christopher Nolan’s Warner Bros. Partnership Betrayal Was a Big Mistake
-
-Features, Christopher Nolan, The Odyssey
-
-Mon, 27 Jul 2026 21:00:12 GMT
-
-https://movieweb.com/christopher-nolan-the-odyssey-box-office-beats-warner-bros/
-
-Christopher Nolan's latest movie, 'The Odyssey,' adapted from Homer's famous poem, stars Tom Holland, Robert Pattinson, Anne Hathaway, and Zendaya.
----------
-
-# HBO Max's New 10-Part Sci-Fi Sequel Is Already a Global Streaming Sensation
-
-TV News, Stuart Fails to Save the Universe, HBO Max, Hot on Streaming, The Big Bang Theory, Sci-Fi
-
-Mon, 27 Jul 2026 21:00:12 GMT
-
-https://movieweb.com/stuart-fails-to-save-the-universe-big-bang-theory-stream-hbo-july-2026/
-
-HBO Max's new 'The Big Bang Theory' sci-fi spin-off, 'Stuart Fails to Save the Universe,' is a global success on streaming.
----------
-
-# Taylor Sheridan's Action Thriller 'Yellowstone' Spin-Off Confirms Its CBS Return
-
-TV News, Marshals, Taylor Sheridan
-
-Mon, 27 Jul 2026 20:34:05 GMT
-
-https://movieweb.com/marshals-season-2-premiere-date-cbs/
-
-Season 2 of 'Marshals' gets a premiere date, which is in October.
----------
-
-# 'Strange New Worlds' Star Confirms Change in Important Spock Relationship Heading Into Season 4
-
-TV News, Star Trek: Strange New Worlds
-
-Mon, 27 Jul 2026 20:32:00 GMT
-
-https://movieweb.com/star-trek-strange-new-worlds-la-an-spock-breakup/
-
-Was that relationship doomed from the start?
----------
-
-# Every Avatar: The Last Airbender Show And Movie, Ranked
-
-Classic TV, Avatar: The Last Airbender, Avatar Aang: The Last Airbender, The Last Airbender, The Legend of Korra
-
-Mon, 27 Jul 2026 20:15:11 GMT
-
-https://screenrant.com/avatar-last-airbender-shows-movies-ranked/
-
-Avatar: The Last Airbender has blossomed into a franchise in recent years, and here's how every show and movie compares to the acclaimed original.
----------
-
-# New Alice In Wonderland Spinoff In Development From Director Of $553M Fantasy Remake
-
-Movies, Alice in Wonderland
-
-Mon, 27 Jul 2026 20:07:51 GMT
-
-https://screenrant.com/the-mad-hatter-animated-movie-development-chris-mosier/
-
-Alice in Wonderland is getting another spinoff, with this one being helmed by the director of a fantasy remake that made $553 million.
----------
-
-# New PlayStation Plus Free Open-World Game Hailed As Best Looking Of This Console Generation
-
-Gaming, PlayStation Plus, Avatar: Frontiers Of Pandora, Triple-A Games
-
-Mon, 27 Jul 2026 20:00:11 GMT
-
-https://screenrant.com/playstation-plus-free-open-world-best-looking-avatar/
-
-PlayStation Plus' new batch of Game Catalog games includes one that some fans are declaring to be one of the best-looking of this generation.
----------
-
-# DC's New Joker Actor Shows James Gunn's DCU What It's Missing
-
-Streaming TV, Masked Recs
-
-Mon, 27 Jul 2026 20:00:11 GMT
-
-https://screenrant.com/dc-joker-actor-matthew-needham-perfect/
-
-The latest confirmed Joker actor is a perfect pick for the iconic villain, and he's about to prove exactly what James Gunn's DCU is missing out on.
----------
-
-# Netflix's 6-Part Action Series Is Officially One Of The Biggest Streaming Shows In The World
-
-TV, Masked Recs
-
-Mon, 27 Jul 2026 19:59:42 GMT
-
-https://screenrant.com/netflix-elite-force-action-show-biggest-show-world-stream/
-
-Netflix's latest action series is a worldwide hit, dominating the Top 10 charts in nearly 100 countries mere days after a quiet binge drop.
----------
-
-# Invincible Interview with Robert Kirkman at SDCC 2026
-
-TV, Invincible, Robert Kirkman, San Diego Comic-Con
-
-Mon, 27 Jul 2026 19:57:09 GMT
-
-https://screenrant.com/video/invincible-season-5-robert-kirkman-interview-sdcc-2026/
-
-Invincible's Robert Kirkman discusses what Jack Quaid brings to season 5, how far along production is on season 6, and what awaits the series beyond.
----------
-
-# Apple TV's 9-Part Sci-Fi Series With Rare Rotten Tomatoes Score Is Already One Of Its Best
-
-TV, Masked Recs
-
-Mon, 27 Jul 2026 19:29:11 GMT
-
-https://screenrant.com/pluribus-apple-tv-best-sci-fi-series-rotten-tomatoes/
-
-A darkly comedic character study, Apple TV's sci-fi series with a near perfect 99% Rotten Tomatoes rating is a dystopian show with a difference.
----------
-
-# Noah Wyle’s Flynn Carsen “Face-Off” & More OG Librarians Returns Teased Ahead Of The Next Chapter Season 2 Premiere
-
-TV, The Librarians: The Next Chapter, The Librarians, Noah Wyle, TNT
-
-Mon, 27 Jul 2026 19:23:25 GMT
-
-https://screenrant.com/noah-wyle-flynn-carsen-returning-librarians-face-off-next-chapter-season-2-tease/
-
-Exclusive: Franchise boss Dean Devlin and his Librarians: The Next Chapter cast tease more original returning characters and Noah Wyle's Flynn Carsen.
----------
-
-# Predicting The MCU's 4 Mystery Movies Until 2029 After Slate Updates
-
-Superheroes, Marvel Cinematic Universe
-
-Mon, 27 Jul 2026 19:20:11 GMT
-
-https://screenrant.com/mcu-movies-2028-2029-releases-slate-prediction/
-
-Black Panther 3 has officially been added to the MCU's slate, but four release dates remain unclaimed until 2029. Here's what movies could come out.
----------
-
-# Sean Bean’s Dark New Western Thriller Officially Getting Major Release Next Week
-
-Movies, The Isolate Thief, Sean Bean
-
-Mon, 27 Jul 2026 19:14:29 GMT
-
-https://screenrant.com/sean-bean-the-isolate-thief-digital-release-date-august-2026/
-
-After starring on the big and small screens, Sean Bean has a new Western film that’s being released again very soon after its theatrical debut.
----------
-
-# 5 Masterpiece Action Anime That Beat Solo Leveling At Its Own Game
-
-Anime, Solo Leveling, Demon Slayer: Kimetsu no Yaiba
-
-Mon, 27 Jul 2026 20:15:15 GMT
-
-https://www.cbr.com/masterpiece-action-anime-beat-solo-leveling/
-
-These action masterpieces excel in the same areas that made Solo Leveling such a phenomenon while offering even more to admire.
----------
-
-# Marvel Transforms Spider-Man, Daredevil and the Punisher With Bold New Redesigns
-
-Anime, Marvel, San Diego Comic-Con, Kadokawa, Spider-Man, Daredevil, The Punisher
-
-Mon, 27 Jul 2026 20:06:15 GMT
-
-https://www.cbr.com/marvel-spider-man-daredevil-punisher-kadokawa/
-
-Some of the most iconic heroes in the entire Marvel Universe are getting some surprise redesigns courtesy of another brand-new manga initiative.
----------
-
-# CBS' Harlan Coben Docuseries Officially Returns for Season 2
-
-TV, Harlan Coben's Final Twist, CBS
-
-Mon, 27 Jul 2026 20:03:15 GMT
-
-https://www.cbr.com/cbs-harlan-coben-final-twist-season-2-release-date/
-
-CBS has announced that Season 2 of Harlan Coben's Final Twist will premiere in October.
----------
-
-# Masters of the Universe is The Lord of the Rings Meets Star Wars
-
-Movies, Masters of the Universe, The Lord of the Rings, Star Wars
-
-Mon, 27 Jul 2026 20:00:15 GMT
-
-https://www.cbr.com/masters-of-the-universe-is-lotr-meets-star-wars/
-
-The newest version of Masters of the Universe is on Prime Video, and fans of two fantasy and science fiction giants might want to check it out.
----------
-
-# Mighty Morphin Power Rangers #2 Enter Uncomfortable New Territory
-
-Comics, Power Rangers, Mighty Morphin Power Rangers
-
-Mon, 27 Jul 2026 20:00:15 GMT
-
-https://www.cbr.com/review-boom-studios-mighty-morphin-power-rangers-2/
-
-The latest issue of BOOM! Studios' new ongoing Mighty Morphin Power Rangers series takes things in a decidedly dark direction.
----------
-
-# NCIS's Slate Return Officially Confirmed by CBS
-
-TV, NCIS, NCIS: New York
-
-Mon, 27 Jul 2026 19:39:25 GMT
-
-https://www.cbr.com/ncis-slate-cbs-fall-premiere-dates/
-
-The NCISverse will make a splash on CBS this fall.
----------
-
-# CBS Officially Confirms Tracker's Season 4 Return
-
-TV, Tracker
-
-Mon, 27 Jul 2026 19:38:30 GMT
-
-https://www.cbr.com/tracker-season-4-premiere-date-cbs/
-
-Colter Shaw's return to CBS has officially been dated.
----------
-
-# YouTube Confirms Major Streaming Platform to Its Premium Tier
-
-TV, YouTube Premium, YouTube, Peacock
-
-Mon, 27 Jul 2026 19:36:13 GMT
-
-https://www.cbr.com/youtube-peacock-bundle-premium-tier/
-
-The video streaming platform has announced a major bundle.
----------
-
-# The Rings of Power Cast Teases Epic Season 3 | SDCC 2026
-
-TV, The Lord of the Rings: The Rings of Power
-
-Mon, 27 Jul 2026 19:20:32 GMT
-
-https://www.cbr.com/video/the-rings-of-power-cast-teases-epic-season-3-sdcc-2026/
-
-The Lord of the Rings: The Rings of Power Season 3 is bringing bigger battles, tougher choices, and major character growth across Middle-earth. The cast and creative team share new details about where the story is headed following the dramatic events of Season 2.
----------
-
-# Star Trek: Strange New Worlds Cast Reacts to the Viral Hot Spock Memes
-
-TV, Star Trek: Strange New Worlds, Star Trek, San Diego Comic-Con
-
-Mon, 27 Jul 2026 19:13:22 GMT
-
-https://www.cbr.com/star-trek-strange-new-worlds-cast-reacts-to-hot-spock-meme/
-
-The stars of Star Trek: Strange New Worlds respond to the current wave of Hot Spock memes that have been going viral ahead of the release of Season 5.
 ---------
