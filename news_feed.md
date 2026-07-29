@@ -1,3 +1,223 @@
+# Dragon Ball New Opening Movie And Theme Song Released As New Era Begins
+
+Gaming, Dragon Ball, Dragon Ball: Sparking! Zero
+
+Wed, 29 Jul 2026 10:34:54 GMT
+
+https://screenrant.com/dragon-ball-sparking-zero-new-theme-song/
+
+As a franchise, Dragon Ball has always had iconic musical scores and opening animations, and the latest is no exception.
+---------
+
+# Game Of Thrones: War For Westeros Is Coming
+
+Gaming, Game of Thrones, Game of Thrones: War for Westeros
+
+Wed, 29 Jul 2026 10:30:11 GMT
+
+https://screenrant.com/game-of-thrones-night-king-return-all-out-war-2027/
+
+Game Of Thrones: War For Westeros is one of the more exciting upcoming franchise releases, and it releases very soon indeed.
+---------
+
+# 5 PlayStation 2 Games That Have Aged Horribly (But We Still Love)
+
+Gaming, PlayStation 2
+
+Wed, 29 Jul 2026 10:16:06 GMT
+
+https://screenrant.com/playstation-2-games-aged-badly/
+
+The PlayStation 2 is home to so many classics that have aged perfectly, but a few hits struggle on the platform in particularly frustrating ways.
+---------
+
+# Justin Roiland’s Infamous Rick And Morty Firing Candidly Reflected On By Dan Harmon 3 Years Later
+
+TV, Rick and Morty
+
+Wed, 29 Jul 2026 10:12:40 GMT
+
+https://screenrant.com/rick-morty-justin-roiland-firing-dan-harmon-reflection/
+
+Rick & Morty's Dan Harmon reflected on when Justin Roiland, who co-created the Adult Swim series and voiced the title characters, was fired in 2023.
+---------
+
+# Harry Potter Officially Returns With Surprise 25th Anniversary Special
+
+Gaming, Harry Potter
+
+Wed, 29 Jul 2026 10:01:03 GMT
+
+https://screenrant.com/harry-potter-official-return-25th-anniversary-july-29/
+
+As part of the 25 Years of Magic celebration, Harry Potter: Hogwarts Mystery introduces a special preview featuring Hagrid and Norbert.
+---------
+
+# 6 Strongest Dragon Ball Characters Defeated By Goku
+
+Streaming TV, Dragon Ball
+
+Wed, 29 Jul 2026 10:00:11 GMT
+
+https://screenrant.com/dragon-ball-goku-strongest-characters-defeated/
+
+Goku has gone toe-to-toe with some truly powerful villains, but there are only a select handful of foes that he beat in a one-on-one fight.
+---------
+
+# Pokémon Officially Reveals Exciting New Eeveelution Designs
+
+Gaming, Pokemon
+
+Wed, 29 Jul 2026 09:37:13 GMT
+
+https://screenrant.com/pokemon-eevelutions-designs-tcg-figurine-set/
+
+Pokémon China announces new TCG figures featuring Eevee and its evolutions, teasing must-have collector's items for fans.
+---------
+
+# It's Official, Spider-Man: Brand New Day Isn't The Only MCU Spidey Crossover This Year
+
+Gaming, Spider-Man, Spider-Man: Brand New Day
+
+Wed, 29 Jul 2026 09:34:48 GMT
+
+https://screenrant.com/spider-man-new-mcu-crossover-fortnite/
+
+Spider-Man: Brand New Day is on the way very soon, but it turns out that all of those crossovers aren't the only ones fans can expect this year.
+---------
+
+# GTA 6 Long-Awaited Gameplay Trailer Leaks Ahead Of Impending Reveal
+
+Gaming, Grand Theft Auto 6
+
+Wed, 29 Jul 2026 09:21:09 GMT
+
+https://screenrant.com/gta-6-gameplay-trailer-august/
+
+Gaming insider NateTheHate predicts Grand Theft Auto VI's highly anticipated gameplay trailer will release in August.
+---------
+
+# 10 Movies To Watch If You Love Back to the Future
+
+Movies, Back to the Future, Sci-Fi, Comedy
+
+Wed, 29 Jul 2026 10:00:15 GMT
+
+https://www.cbr.com/best-movies-to-watch-like-back-to-the-future/
+
+Emerging as one of the crown jewel franchises of '80s pop culture, Back to the Future pairs well with some of Hollywood's greatest adventures.
+---------
+
+# Lord of the Rings’ Most Terrifying Villains Are Finally Getting Their Origin Story
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Fantasy, Prime Video
+
+Wed, 29 Jul 2026 10:00:15 GMT
+
+https://www.cbr.com/lord-of-the-rings-ring-of-power-nazgul-ringwraiths-origin-story/
+
+The Lord of the Rings: The Rings of Power Season 3 will finally tell the origin story of the franchise's most terrifying villains.
+---------
+
+# 10 Video Game Masterpieces With the Best Worldbuilding
+
+Gaming, Video Game, Horizon Zero Dawn, Metroid, Mass Effect
+
+Wed, 29 Jul 2026 10:38:16 GMT
+
+https://collider.com/video-game-masterpieces-best-worldbuilding/
+
+Sci-fi masterpieces like Mass Effect and fantasy hidden gems like Pillars of Eternity are some of the video games with the greatest worldbuilding.
+---------
+
+# Jason Statham's Biggest Sci-Fi Movie Is Officially a Streaming Smash Again
+
+Movie News, The Meg, Meg 2: The Trench, Jason Statham, Sci-Fi
+
+Wed, 29 Jul 2026 10:30:14 GMT
+
+https://collider.com/jason-statham-meg-2-the-trench-netflix-streaming-success-july-2026/
+
+Jason Statham goes back under the sea to take on a giant shark in Meg 2: The Trench, which remains a streaming hit.
+---------
+
+# This 91% Rotten Tomatoes Sci-Fi Epic Is Apple TV’s Answer to ‘Battlestar Galactica’
+
+TV Features, For All Mankind, Battlestar Galactica, Rotten Tomatoes, Apple TV
+
+Wed, 29 Jul 2026 10:07:14 GMT
+
+https://collider.com/battlestar-galactica-replacement-series-apple-tv-for-all-mankind-series/
+
+Apple TV’s For All Mankind is the perfect follow-up to Battlestar Galactica, mixing alternate history with epic space opera.
+---------
+
+# 6 New Thriller Movies That Are Perfect From Start to Finish
+
+Movie, Thriller, Disclosure Day, 28 Years Later: The Bone Temple, Send Help
+
+Wed, 29 Jul 2026 10:05:14 GMT
+
+https://collider.com/new-thriller-movies-perfect-start-to-finish/
+
+From Drop, to Black Bag, to Disclosure Day, these modern thrillers deliver relentless suspense, sharp twists, and flawless execution.
+---------
+
+# 5 Years Later, One of the Best Westerns You’ve Never Seen Is Quietly Dominating Netflix
+
+Movie News, Tim Blake Nelson, Old Henry, Western, Netflix
+
+Wed, 29 Jul 2026 10:00:14 GMT
+
+https://collider.com/tim-blake-nelson-western-old-henry-streaming-success-netflix-july-2026/
+
+Tim Blake Nelson’s acclaimed Western, Old Henry, is dominating Netflix five years after barely registering at the box office.
+---------
+
+# 10 Sci-Fi Book Masterpieces That Are Perfectly Written
+
+Books and Comics, Books, Project Hail Mary, Science Fiction, Dune
+
+Wed, 29 Jul 2026 09:39:14 GMT
+
+https://collider.com/sci-fi-book-masterpieces-perfectly-written/
+
+From The Dyspossessed to Hyperion, these beloved books are genuine masterpieces of the sci-fi genre that somehow remain virtually flawless throughout.
+---------
+
+# 8 Perfect Sci-Fi Books That Nobody Remembers
+
+Books and Comics, Sci-Fi, Princess of Mars, Millennium, H.G. Wells' War of the Worlds
+
+Wed, 29 Jul 2026 09:34:14 GMT
+
+https://collider.com/perfect-sci-fi-books-nobody-remembers/
+
+Rogue Moon, The Inheritors, Star-Begotten, The Manhattan Projects, Millennium, and more make our list of perfect sci-fi books that nobody remembers.
+---------
+
+# 5 Years Later, John Cena's Biggest Action Hit Is Officially Taking Off on Netflix Again
+
+Movie News, F9, Fast and Furious, The Fast and the Furious, John Cena
+
+Wed, 29 Jul 2026 09:30:15 GMT
+
+https://collider.com/john-cena-f9-fast-saga-streaming-success-netflix-july-2026/
+
+John Cena's divisive $726 million blockbuster F9 has raced back into Netflix’s international Top 10 charts.
+---------
+
+# 6 Best Zombie Movies Released Since 2010
+
+Movie, Anna and the Apocalypse, Train to Busan, 28 Years Later, Blood Quantum
+
+Wed, 29 Jul 2026 09:08:14 GMT
+
+https://collider.com/best-zombie-movies-released-since-2010-ranked/
+
+Train to Busan, 28 Years Later, and Warm Bodies are all among the best zombie movies released since the year 2010.
+---------
+
 # 15 Years Later, This Iconic Zombie Horror Franchise Is Finally Coming Back From The Dead
 
 Gaming, Upcoming Games, Indie Games
@@ -5276,224 +5496,4 @@ Mon, 27 Jul 2026 19:13:22 GMT
 https://www.cbr.com/star-trek-strange-new-worlds-cast-reacts-to-hot-spock-meme/
 
 The stars of Star Trek: Strange New Worlds respond to the current wave of Hot Spock memes that have been going viral ahead of the release of Season 5.
----------
-
-# Hadestown: Patrick Page’s Injury Changed Hades | Set Stories
-
-Interviews, Hadestown: The Musical
-
-Mon, 27 Jul 2026 20:15:15 GMT
-
-https://collider.com/video/hadestown-patrick-page-s-injury-changed-hades-set-stories/
-
-Reeve Carney and Eva Noblezada take us inside the making of the Hadestown musical film, explaining why this isn't just a filmed stage production—it truly feels like a feature film set on a stage.
----------
-
-# Hasbro Officially Reveals 'Avengers: Doomsday' Figures With First Look at X-Men and Fantastic Four
-
-Movie News, Avengers: Doomsday, Hasbro, Marvel Studios, Robert Downey Jr
-
-Mon, 27 Jul 2026 20:03:22 GMT
-
-https://collider.com/marvel-hasbro-figures-avengers-doomsday-doctor-doom-thor-captain-america-images/
-
-Hasbro has released a lineup of Avengers: Doomsday figures for Doctor Doom, The Fantastic Four, Thor, Captain America, and others.
----------
-
-# The 10 Most Essential Miles Davis Albums
-
-Music Features, Jazz, Miles Davis, Music, Lists
-
-Mon, 27 Jul 2026 20:00:15 GMT
-
-https://collider.com/the-10-most-essential-miles-davis-albums/
-
-From Kind of Blue to Sketches of Spain to Bitches Brew, Miles Davis' 10 Most Essential Albums.
----------
-
-# 10 Greatest Monsters in The Lord of the Rings
-
-Movie, Fantasy, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King, The Lord of the Rings: The Fellowship of the Ring
-
-Mon, 27 Jul 2026 19:41:14 GMT
-
-https://collider.com/best-monsters-lord-of-the-rings-ranked/
-
-The best monsters in The Lord of the Rings include several memorable creations, from twisted versions of real animals to horrors of divine origin.
----------
-
-# 3 Best Movies To Watch on Netflix Before the End of July
-
-Movie, Tar, Ordinary Angels, Wind River, Netflix
-
-Mon, 27 Jul 2026 19:20:15 GMT
-
-https://collider.com/best-netflix-movies-watch-july-27-2026/
-
-Tár, Ordinary Angels, and Wind River make up our list of the best Netflix movies to watch before July 2026 is over.
----------
-
-# Alan Ritchson Officially Reveals Jack Reacher’s Real Superpower [Exclusive]
-
-Exclusives, Reacher, Alan Ritchson, Prime Video, Jack Reacher
-
-Mon, 27 Jul 2026 19:00:15 GMT
-
-https://collider.com/alan-ritchson-jack-reacher-superpower/
-
-Alan Ritchson reveals the subtle character trait he considers Jack Reacher’s real “superpower” ahead of Reacher Season 4.
----------
-
-# Jason Statham's Blockbuster Action Thriller Loses to New 87% Rated Martial Arts Epic on Streaming
-
-Movie News, Mortal Kombat II, The Meg, Jason Statham, Hot on Streaming
-
-Mon, 27 Jul 2026 20:00:12 GMT
-
-https://movieweb.com/jason-statham-meg-loses-streaming-mortal-kombat-2/
-
-As rare as it is to see Jason Statham lose a fight, sometimes it does happen.
----------
-
-# 10 Most Powerful Spider-Man Villains That Have Appeared in Movies
-
-Movie Lists, Spider-Man
-
-Mon, 27 Jul 2026 20:00:12 GMT
-
-https://movieweb.com/spider-man-most-powerful-movie-villains/
-
-Spider-Man has some of the most famous villains in comics and on film, but who is the most powerful?
----------
-
-# Netflix's Best 10-Part Gothic Thriller Officially Getting New Remake
-
-TV News, The Haunting of Hill House, Netflix, Shirley Jackson
-
-Mon, 27 Jul 2026 19:38:39 GMT
-
-https://movieweb.com/haunting-of-hill-house-stage-play-adaptation/
-
-A new adaptation of Shirley Jackson's 'The Haunting of Hill House' is on the way, this time as a theatrical production.
----------
-
-# The Greatest Action Thriller Series of the 2020s Just Keeps Getting Better
-
-Features, Reacher
-
-Mon, 27 Jul 2026 19:01:12 GMT
-
-https://movieweb.com/reacher-great-series-gets-better/
-
-One action thriller TV show is not only popular but is also so high-quality that it's likely to continue for a long time.
----------
-
-# One Piece Suffers Crushing Defeat As Japan Crowns New #1 Shonen
-
-Anime
-
-Mon, 27 Jul 2026 18:53:42 GMT
-
-https://screenrant.com/one-piece-loses-top-shonen-manga-kingdom/
-
-Japan released the data for 2026 so far, and One Piece did not win the number one shonen manga spot. Here is everything you need to know.
----------
-
-# 5 Best Shows To Watch On Netflix This Week (#1 Is A Brilliant 3-Season Psychological Thriller)
-
-Streaming TV, Netflix, What to Watch on Netflix
-
-Mon, 27 Jul 2026 18:42:11 GMT
-
-https://screenrant.com/best-netflix-shows-watch-week-july-27/
-
-Netflix's top five shows to watch this week, July 27–31, include a brand new 8-part action thriller and two original hit series with upcoming seasons.
----------
-
-# Blade Runner Officially Reveals What Happened After Blade Runner 2049
-
-TV, Masked Recs
-
-Mon, 27 Jul 2026 18:28:11 GMT
-
-https://screenrant.com/blade-runner-what-happened-after-2049-reveal-2099/
-
-Prime Video's upcoming cyberpunk series just changed the Blade Runner franchise forever, shifting the balance of power in the sci-fi series.
----------
-
-# Why HBO Max' New $129 Million Fantasy Has Become A Global Streaming Sensation
-
-Movies, Masked Recs
-
-Mon, 27 Jul 2026 18:16:05 GMT
-
-https://screenrant.com/hbo-max-mortal-kombat-2-streaming-charts-rise-july-2026/
-
-HBO Max's new fantasy movie continues a successful franchise, and its global streaming hit status is par for the course with such a cast and action.
----------
-
-# Christopher Nolan's The Odyssey Script Slammed By Homer Translator: "I Would Be Ashamed"
-
-Movies, The Odyssey
-
-Mon, 27 Jul 2026 18:05:00 GMT
-
-https://screenrant.com/the-odyssey-movie-christopher-nolan-emily-wilson-review-criticism/
-
-Christopher Nolan's The Odyssey has been slammed by a prominent Homer translator, who says, "I would be ashamed to have written any part of this."
----------
-
-# Star Wars Officially Gives Darth Vader An Incredible Redesign
-
-Gaming, Star Wars, Anakin Skywalker/Darth Vader, PC
-
-Mon, 27 Jul 2026 18:00:12 GMT
-
-https://screenrant.com/star-wars-darth-vader-mythos-new-look/
-
-Star Wars has unveiled a stunning new official Darth Vader Mythos redesign that's unlike anything we've seen before.
----------
-
-# Marvel Crowns Thor's Replacement With Armored Redesign
-
-Marvel Comics, Thor
-
-Mon, 27 Jul 2026 18:00:12 GMT
-
-https://screenrant.com/thor-son-new-costume-replacement-magni/
-
-Marvel crowns the next Asgardian ruler in Thor's absence, with a treacherous advisor that may doom Odinson's home and the rest of the Nine Realms.
----------
-
-# Gerard Butler's Epic Action Adaptation Dethrones 2026's First Billion-Dollar Movie On Streaming
-
-Movies, Masked Recs
-
-Mon, 27 Jul 2026 17:47:05 GMT
-
-https://screenrant.com/gerard-butler-300-movie-vudu-streaming-success-july-2026-super-mario-galaxy-dethroned/
-
-Gerard Butler's epic action adaptation officially dethrones 2026's first billion-dollar movie on streaming, taking over the No. 1 spot.
----------
-
-# The Conjuring Meets Stranger Things In Netflix's 8-Part Fantasy Series
-
-TV, Masked Recs
-
-Mon, 27 Jul 2026 17:31:11 GMT
-
-https://screenrant.com/the-east-palace-netflix-conjuring-meets-stranger-things/
-
-Netflix's new fantasy horror series with a perfect 100% RT score blends The Conjuring's supernatural elements with Stranger Things' mirror world.
----------
-
-# Game of Thrones Is Finally Bringing Back The Children of the Forest July 29
-
-Games, Game Of Thrones
-
-Mon, 27 Jul 2026 18:50:15 GMT
-
-https://www.cbr.com/game-of-thrones-the-children-of-the-forest-return-july-29/
-
-Game of Thrones is bringing back George R. R. Martin's oldest idea with the Children of the Forest making their grand return.
 ---------
