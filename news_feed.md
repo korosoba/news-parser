@@ -1,3 +1,432 @@
+# Robin's New Costume Is Officially The Most Unexpected Of The Year
+
+DC Comics, Robin
+
+Wed, 29 Jul 2026 15:23:23 GMT
+
+https://screenrant.com/robin-new-costume-beach/
+
+DC's new superhero crossover reveals a new look for Robin, as Tim Drake showcases a departure from his traditional battle-ready attire.
+---------
+
+# Guy Ritchie’s Young Sherlock Season 2 Reveals Massive New Casting Changes With Multiple Exits
+
+TV, Young Sherlock, Prime Video, Guy Ritchie
+
+Wed, 29 Jul 2026 15:16:24 GMT
+
+https://screenrant.com/young-sherlock-season-2-cast-changes-zine-tseng-joseph-fiennes-numan-acar-exit-new-additions/
+
+Guy Ritchie's Young Sherlock season 2 is shaking up its cast in a major way with four new additions, as well as multiple exits from the hit series.
+---------
+
+# One Of 2025's Best RPGs Is Officially Getting A Sequel
+
+Gaming, Wuchang: Fallen Feathers, Triple-A Games, PC
+
+Wed, 29 Jul 2026 15:13:42 GMT
+
+https://screenrant.com/wuchang-fallen-feathers-sequel-announcement-2025-rpg/
+
+Months after a report suggested that the team behind one of 2025's best games disbanded, a sequel from the original creator has been announced.
+---------
+
+# 8-Part Crime Series With Rare 100% RT Score Is One Of Streaming's Biggest Shows In Just 2 Days
+
+TV, Masked Recs
+
+Wed, 29 Jul 2026 15:08:28 GMT
+
+https://screenrant.com/crime-series-furious-hulu-stream-biggest-perfect-rotten-tomatoes-hulu/
+
+Crime dramas are very popular with TV audiences, and a brand-new series on Hulu is a huge hit, even though it only just came out on July 27.
+---------
+
+# The Walking Dead: Dead City Season 3 Sets Rotten Tomatoes Audience Score Record For Franchise’s New Era
+
+TV, The Walking Dead: Dead City, The Walking Dead
+
+Wed, 29 Jul 2026 15:00:46 GMT
+
+https://screenrant.com/the-walking-dead-dead-city-season-3-rotten-tomatoes-audience-score-debut/
+
+The Walking Dead: Dead City season 3 sets a Rotten Tomatoes audience score record for the zombie franchise's newest era of spinoffs.
+---------
+
+# New Open-World Survival RPG Is Basically Project Zomboid In Space
+
+Gaming, Project Zomboid, RPG, PC, Steam
+
+Wed, 29 Jul 2026 15:00:12 GMT
+
+https://screenrant.com/dandelion-void-project-zomboid-in-space/
+
+This brand-new open-world survival RPG brings the very best elements of the legendary Project Zomboid to outer space.
+---------
+
+# The Horror of Godzilla #1 Is the Most Terrifying Godzilla Media of All Time, Bar None
+
+Comics, Godzilla
+
+Wed, 29 Jul 2026 14:56:37 GMT
+
+https://screenrant.com/horror-godzilla-1-review/
+
+The best Godzilla has ever looked.
+---------
+
+# DC Confirms an R-Rated Redesign for an Iconic Wonder Woman Villain
+
+Comics, Wonder Woman
+
+Wed, 29 Jul 2026 14:56:11 GMT
+
+https://screenrant.com/new-absolute-wonder-woman-cheetah-design-image/
+
+Ahead of Wonder Woman's next appearance, DC has unveiled a new image showcasing a horror-centric redesign for one of her most infamous villains.
+---------
+
+# X-Men Reveals the Secret To An Iconic Villain's Redemption
+
+Comics, X-Men
+
+Wed, 29 Jul 2026 14:55:24 GMT
+
+https://screenrant.com/x-men-juggernaut-redemption-secret-cyclops/
+
+A redeemed X-Man reveals what keeps him good.
+---------
+
+# What To Expect From Disney's D23 2026 Event: Panels, Predictions & More
+
+Movies, D23
+
+Wed, 29 Jul 2026 14:45:11 GMT
+
+https://screenrant.com/what-to-expect-from-disneys-d23-2026-event-panels-predictions-more/
+
+D23 is the ultimate Disney fan event, offering exclusive first looks and announcements at upcoming projects, including Star Wars, Marvel and Pixar.
+---------
+
+# Minecraft Gets a Hello Kitty Makeover With Over 20 New Craftable Designs
+
+Anime, sanrio, Hello Kitty, Minecraft
+
+Wed, 29 Jul 2026 15:20:15 GMT
+
+https://www.cbr.com/sanrio-hello-kitty-minecraft-furniture-pack/
+
+A new official Minecraft modpack adds over 20 adorable new furniture items inspired by Hello Kitty, Kuromi and other Sanrio icons.
+---------
+
+# 10 Perfect Action Anime Series Nobody Remembers
+
+Anime, Action, Katanagatari, Shonen
+
+Wed, 29 Jul 2026 15:15:15 GMT
+
+https://www.cbr.com/forgotten-perfect-action-anime/
+
+Action anime deserves evaluation on craft, innovation, and thematic depth rather than airtime or fan count.
+---------
+
+# 5 Forgotten Samurai Movies That Are Amazing From Start to Finish
+
+Movies
+
+Wed, 29 Jul 2026 15:00:16 GMT
+
+https://www.cbr.com/best-samurai-movies-no-one-remembers-list/
+
+Samurai movies are some of the best examples of moviemaking, but there are many films that deserve praise that modern audiences have forgotten.
+---------
+
+# Star Trek: Strange New Worlds Meets Supernatural Horror in Exclusive Season 4 Clip
+
+TV, Star Trek: Strange New Worlds, Star Trek, Paramount Plus
+
+Wed, 29 Jul 2026 15:00:16 GMT
+
+https://www.cbr.com/star-trek-strange-new-worlds-season-4-episode-2-one-of-us-clip/
+
+In an exclusive clip from "The Griffin Incident," Star Trek: Strange New Worlds takes a spooky turn.
+---------
+
+# 5 Anime Heroes With Powers Stronger Than Gojo Satoru
+
+Anime, Dragon Ball, One Punch Man, The Misfit of Demon Academy, Jujutsu Kaisen
+
+Wed, 29 Jul 2026 15:00:16 GMT
+
+https://www.cbr.com/anime-heroes-more-powerful-gojo-satoru/
+
+Gojo Satoru is the world's strongest sorcerer in Jujutsu Kaisen, but not even he could stand up to these five anime heroes and their tremendous power.
+---------
+
+# New 106-Minute 'Jaws Meets Snakes on a Plane' Shark Horror Movie Starts Streaming Next Month
+
+Movies, MGM+, Deep Water
+
+Wed, 29 Jul 2026 15:00:16 GMT
+
+https://www.cbr.com/deep-water-shark-horror-mgm-plus-release-date/
+
+Deep Blue Sea director Renny Harlin's return to shark horror starts streaming this summer.
+---------
+
+# Ramayana: Why This Epic Took Years to Make | SDCC 2026
+
+Movies, Ramayana
+
+Wed, 29 Jul 2026 14:56:00 GMT
+
+https://www.cbr.com/video/ramayana-why-this-epic-took-years-to-make-sdcc-2026/
+
+Ramayana is more than a blockbuster adaptation—it's a deeply personal journey for the filmmakers bringing one of the world's greatest epics to a new generation. At San Diego Comic-Con, they discuss the pressure of honoring a story cherished by billions while creating a cinematic experience for audiences everywhere.
+---------
+
+# Jared Leto Accused of Criminal Sexual Misconduct by 4 Women as More Allegations Surface
+
+Movies, jared leto
+
+Wed, 29 Jul 2026 14:55:48 GMT
+
+https://www.cbr.com/jared-leto-accused-of-criminal-sexual-misconduct/
+
+Singer and actor Jared Leto has been hit with new allegations after years of rumors.
+---------
+
+# Brandon Sanderson Officially Returns This Fall With Stormlight: War for Roshar
+
+Games, The Stormlight Archive, Brandon Sanderson
+
+Wed, 29 Jul 2026 14:50:15 GMT
+
+https://www.cbr.com/brandon-sanderson-official-new-release-stormlight-fall-2026/
+
+The next new release from Brandon Sanderson expands the Stormlight universe and will arrive this fall.
+---------
+
+# 8 Greatest Fantasy TV Battles of All Time
+
+TV, Game Of Thrones, The Witcher, House of the Dragon, The Lord of the Rings: The Rings of Power
+
+Wed, 29 Jul 2026 14:31:14 GMT
+
+https://www.cbr.com/greatest-fantasy-tv-battles-list/
+
+Modern television has produced some of the most cinematic fantasy combat in shows like The Rings of Power and Game of Thrones.
+---------
+
+# George R.R. Martin's New 'Game of Thrones' Prequel Debuts to Critical Acclaim
+
+TV News, Game Of Thrones, George R.R. Martin, House of the Dragon, A Knight Of The Seven Kingdoms
+
+Wed, 29 Jul 2026 15:19:57 GMT
+
+https://collider.com/george-rr-martin-game-of-thrones-the-mad-king-audience-reviews/
+
+George R.R. Martin's newest Game of Thrones prequel, The Mad King, has earned stellar reactions from audiences despite the recent cancellations.
+---------
+
+# 'Batman: Caped Crusader' Season 2 Is a Gripping, More Experimental Deep Dive Into the Dark Knight | Review
+
+TV Reviews, Batman: Caped Crusader, Hamish Linklater, Bruce Timm, Prime Video
+
+Wed, 29 Jul 2026 15:00:15 GMT
+
+https://collider.com/batman-caped-crusader-season-2-review-prime-video/
+
+Batman: Caped Crusader Season 2 is a bold reinvention that retains the Dark Knight's iconic essence despite occasionally uneven storytelling.
+---------
+
+# 2022 Survival Thriller That Made 7X Its Budget Returns With Vertigo-Inducing Sequel Trailer
+
+Movie News, Fall 2: Deadpoint, Fall, Thriller
+
+Wed, 29 Jul 2026 15:00:15 GMT
+
+https://collider.com/fall-2-deadpoint-trailer/
+
+Fall 2: Deadpoint unveils its vertigo-inducing first trailer as the survival thriller sequel sets a September 2026 theatrical release.
+---------
+
+# Antonio Banderas’ New Shark-Infested Crime Thriller Movie Officially Releases New Look [Exclusive]
+
+Exclusives, Thriller, Antonio Banderas, Horror, Laura Marano
+
+Wed, 29 Jul 2026 15:00:15 GMT
+
+https://collider.com/antonio-banderas-shark-thriller-above-and-below-sneak-peek/
+
+A new sneak peek at the shark horror-thriller Above & Below features Antonio Banderas as a cartel kingpin preparing to kill vacationers.
+---------
+
+# Marvel Officially Rewrites the Ending of Spider-Man's Greatest Story
+
+Books and Comics News, Spider-Man, Marvel Comics, Marvel
+
+Wed, 29 Jul 2026 14:00:15 GMT
+
+https://collider.com/marvel-rewrites-kravens-last-hunt-ending-spider-man/
+
+J.M. DeMatteis just rewrote the ending of Kraven's Last Hunt, and Marvel's latest What If...? is a must-read.
+---------
+
+# Michael B. Jordan’s Remake of 58-Year-Old Classic Crime Thriller Officially Debuts First Trailer
+
+Movie News, The Thomas Crown Affair
+
+Wed, 29 Jul 2026 13:46:05 GMT
+
+https://collider.com/michael-b-jordan-the-thomas-crown-affair-trailer/
+
+Michael B. Jordan’s remake of the 58-year-old crime classic The Thomas Crown Affair debuts its first trailer.
+---------
+
+# Marvel Brings Back James Gunn's Favorite 'Guardians of the Galaxy' Member for New Solo Adventures
+
+Books and Comics News, Guardians of the Galaxy, Marvel Comics, Rocket Raccoon, Action
+
+Wed, 29 Jul 2026 13:20:15 GMT
+
+https://collider.com/rocket-raccoon-rocket-rewind-issue-1-preview-images-marvel-comics-release/
+
+Marvel Comics has released the first issue of Rocket Raccoon: Rocket Rewind, shining the spotlight on James Gunn's favorite Guardian of the Galaxy.
+---------
+
+# Russell Crowe's New Netflix True Crime Thriller Officially Debuts First Images
+
+Movie News, Russell Crowe, Shailene Woodley, Annabelle Wallis, Netflix
+
+Wed, 29 Jul 2026 13:15:30 GMT
+
+https://collider.com/russell-crowe-unabomber-images-netflix/
+
+Russell Crowe and Jacob Tremblay's new Netflix true crime thriller Unabomber debuts first images.
+---------
+
+# Marvel Officially Reveals the Future of Symbiotes
+
+Books and Comics News, Venom, Spider-Man, Marvel, Tom Hardy
+
+Wed, 29 Jul 2026 13:15:14 GMT
+
+https://collider.com/marvel-venom-future-of-symbiotes/
+
+Marvel's Queen in Black #1 unveils the Symbiote Intelligence, a groundbreaking new symbiote entity
+---------
+
+# Marvel Officially Reveals the Punisher’s Sinister New Villain Look
+
+Books and Comics News, Marvel Comics, Spider-Man: Brand New Day, The Punisher, Spider-Man
+
+Wed, 29 Jul 2026 13:10:15 GMT
+
+https://collider.com/spectacular-spider-man-brand-new-day-issue-3-the-punisher-preview-images-marvel-comics-release/
+
+Preview pages from the latest issue of Spectacular Spider-Man: Brand New Day see The Punisher turn to full-on villainy against Peter Parker.
+---------
+
+# Robert Eggers' Next Nightmare Unveiled in Monstrous First Poster for 'Werwulf'
+
+Movie News, Werwulf, Robert Eggers, Horror
+
+Wed, 29 Jul 2026 15:20:47 GMT
+
+https://movieweb.com/robert-eggers-werwulf-poster/
+
+Focus Features has released the official teaser poster for Robert Eggers' upcoming gothic horror film 'Werwulf.'
+---------
+
+# Netflix's Hit Action Adventure Series Officially Returns for One Final Season
+
+TV News, Outer Banks
+
+Wed, 29 Jul 2026 15:10:50 GMT
+
+https://movieweb.com/netflix-outer-banks-season-5-trailer/
+
+The official trailer for the final season of one of Netflix's most popular shows has arrived.
+---------
+
+# 'Fall 2: Deadpoint' Unleashes Next-Level Terror in New Trailer for Survival Thriller Sequel
+
+Movie News, Fall 2: Deadpoint, Fall
+
+Wed, 29 Jul 2026 15:00:13 GMT
+
+https://movieweb.com/fall-2-deadpoint-trailer-poster/
+
+Lionsgate has released a new trailer for 'Fall 2: Deadpoint,' teasing next-level terror in the survival thriller sequel.
+---------
+
+# Statham, Wahlberg, & Gibson Each Failed To Adapt the Same Character
+
+Features, Jason Statham, Mark Wahlberg, Mel Gibson
+
+Wed, 29 Jul 2026 15:00:13 GMT
+
+https://movieweb.com/jason-statham-mark-wahlberg-mel-gibson-failed-adaption/
+
+With numerous adaptations and talented actors on board, why does the character keep missing with audiences?
+---------
+
+# Oscar-Winning Singer-Songwriter & 'Once' Star Glen Hansard Dies Aged 56
+
+Movie News, Once, The Commitments
+
+Wed, 29 Jul 2026 14:34:33 GMT
+
+https://movieweb.com/once-star-glen-hansard-dies-aged-56/
+
+The Dublin-born musician turned 'Once' into an Oscar-winning phenomenon.
+---------
+
+# Nathan Fillion's 'The Rookie' Update Could Confirm a Major Franchise Crossover
+
+TV News, The Rookie
+
+Wed, 29 Jul 2026 14:10:08 GMT
+
+https://movieweb.com/the-rookie-north-spin-off-nathan-fillion-crossover/
+
+2027 is shaping up to be another great year for 'The Rookie' fans.
+---------
+
+# 'Lord of the Rings': 8 Gandalf Quotes That Still Live Rent-Free in Our Heads
+
+Movie Lists, The Lord of the Rings: The Fellowship of the Ring, Ian McKellen
+
+Wed, 29 Jul 2026 14:00:12 GMT
+
+https://movieweb.com/lord-of-the-rings-best-gandalf-quotes/
+
+Ian McKellan's 'Lord of the Rings' character, Gandalf, is so wise and intelligent that his best quotes are still remembered.
+---------
+
+# Netflix Scores Big With 100% Rated Dark Fantasy Action Masterpiece
+
+TV News, The East Palace, Netflix, Hot on Streaming, Action
+
+Wed, 29 Jul 2026 14:00:12 GMT
+
+https://movieweb.com/the-east-palace-action-netflix-tudum-stream/
+
+Netflix's new fantasy hit is even darker (and better) than 'The Witcher.'
+---------
+
+# Michael B. Jordan's Slick Action Thriller Remake Officially Unleashes Its First Trailer
+
+Movie News, The Thomas Crown Affair
+
+Wed, 29 Jul 2026 13:19:39 GMT
+
+https://movieweb.com/the-thomas-crown-affair-remake-trailer/
+
+The first trailer for Amazon MGM's 'The Thomas Crown Affair' remake has been released, offering a look at Michael B. Jordan's slick heist thriller.
+---------
+
 # Dungeons & Dragons Meets Stardew Valley In New RPG You Can Play Free Now
 
 Gaming, Dungeons & Dragons, Stardew Valley, PC, PlayStation 5
@@ -5067,433 +5496,4 @@ Mon, 27 Jul 2026 22:00:15 GMT
 https://www.cbr.com/agatha-christie-poirot-mystery-streaming-free-pbs-prime-july-august-2026/
 
 Agatha Christie's best adaptation, Agatha Christie's Poirot, will have a free 3-day streaming marathon in the United States.
----------
-
-# Speed Racer Officially Returns This September With Its Biggest Release Yet
-
-Comics, Speed Racer
-
-Mon, 27 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/speed-racer-tales-from-the-road-release-confirmed/
-
-Start your engines for a new Speed Racer adventure.
----------
-
-# Clayface Is Already Making a Major Batman Mistake
-
-Movies, Clayface, Batman, DCU
-
-Mon, 27 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/clayface-batman-spinoff-mistake-dcu/
-
-DC Studios' new R-rated Batman movie is already making a major mistake with the Caped Crusader.
----------
-
-# ABC Officially Sets 9-1-1 Return Date for First Season Since Replacing Bobby Nash
-
-TV, 9-1-1, ABC
-
-Mon, 27 Jul 2026 21:38:40 GMT
-
-https://www.cbr.com/abc-9-1-1-season-10-release-date/
-
-ABC has announced that 9-1-1 Season 10 will premiere in October, after the series finally named a new captain for the 118.
----------
-
-# 'Longmire' Star's Surprising Update Confirms It's Officially Time for a Revival
-
-TV Features, Longmire, Western, Katee Sackhoff, A&E
-
-Mon, 27 Jul 2026 22:52:14 GMT
-
-https://collider.com/longmire-revival-robert-taylor-panel-comments/
-
-Longmire fans at Buffalo's annual celebration got an update on the return of the show from Robert Taylor, hinting at a revival to come.
----------
-
-# 10 Most Fun Horror Movies of All Time
-
-Movie, Gremlins, An American Werewolf In London, Jaws, Army of Darkness
-
-Mon, 27 Jul 2026 22:42:14 GMT
-
-https://collider.com/most-fun-horror-movies-all-time-ranked/
-
-Classic horror movies like An American Werewolf in London, Shaun of the Dead, and Little Shop of Horrors all rank among the most fun of all time.
----------
-
-# Netflix Is Quietly Abandoning the Strategy That Made It a Giant
-
-TV Features, Netflix, Streaming, Television, Streaming Services
-
-Mon, 27 Jul 2026 22:41:14 GMT
-
-https://collider.com/netflix-live-television-podcasts-streaming-strategy-changes/
-
-Netflix, once a disruptor in the television industry, is now adopting traditional TV strategies like live channels to maintain subscriber engagement.
----------
-
-# 3 Beloved Movies You Need To Stream on Prime Video This Week
-
-Movie, Prime Video, The Sheep Detectives, Masters of the Universe, The Accountant 2
-
-Mon, 27 Jul 2026 22:34:14 GMT
-
-https://collider.com/best-movies-prime-video-july-27-2026/
-
-The Sheep Detectives, Masters of the Universe, and The Accountant 2 make up our list of the best movies to stream on Prime Video the week of July 27.
----------
-
-# 'Avengers: Secret Wars' Filming Timeline Officially Confirmed by the Russo Brothers [Exclusive]
-
-Movie News, Marvel Studios, Russo Brothers, Avengers: Secret Wars, SDCC
-
-Mon, 27 Jul 2026 22:30:15 GMT
-
-https://collider.com/avengers-secret-wars-filming-start-russo-brothers/
-
-The Russo brothers reveal that Avengers: Secret Wars will begin filming very soon as they finish post-production on Avengers: Doomsday.
----------
-
-# Rebecca Ferguson Knew How Her Sci-Fi Series Would End Years in Advance [Exclusive]
-
-Exclusives, Silo, Rebecca Ferguson, Sci-Fi, Apple TV
-
-Mon, 27 Jul 2026 22:00:15 GMT
-
-https://collider.com/silo-series-ending-plan/
-
-Graham Yost reveals just how far ahead Silo is planned, explaining why he shares future storylines with the cast.
----------
-
-# HBO’s ‘Lanterns’ Is Officially Bringing These Iconic DC Supervillains to Life
-
-TV Features, Lanterns, Aaron Pierre, Kyle Chandler, HBO Max
-
-Mon, 27 Jul 2026 21:56:14 GMT
-
-https://collider.com/lanterns-trailer-sdcc-manhunters-comic-history-meaning/
-
-Lanterns wowed fans with a new trailer at San Diego Comic-Con, which revealed the Manhunters as the main antagonists.
----------
-
-# ABC Officially Locks in ‘9-1-1’s Back-to-Back Fall Return
-
-TV News, 9-1-1, 9-1-1: Nashville, ABC
-
-Mon, 27 Jul 2026 21:44:12 GMT
-
-https://collider.com/911-season-10-nashville-season-2-fall-release-date-abc/
-
-9-1-1 Season 10 and 9-1-1: Nashville Season 2 will return to ABC as part of the network’s Thursday-night lineup this October.
----------
-
-# 'House of the Dragon' Complicates 'Game of Thrones' Dragon Egg Debate
-
-Features, Game of Thrones, Game Of Thrones, House of the Dragon
-
-Mon, 27 Jul 2026 22:30:45 GMT
-
-https://movieweb.com/game-of-thrones-complicated-daenerys-dragon-egg-debate/
-
-'House of the Dragon' Season 3, Episode 6 complicates the biggest 'Game of Thrones' debate surrounding Daenerys and her dragons.
----------
-
-# Amazon Officially Rebooting One of Johnny Depp's Most Iconic Characters
-
-Movie News, Alice in Wonderland
-
-Mon, 27 Jul 2026 22:21:56 GMT
-
-https://movieweb.com/amazon-mgm-mad-hatter-animated-film/
-
-A new movie will focus on 'Alice in Wonderland's Mad Hatter.
----------
-
-# Long-Awaited Sequel to Cult-Classic '70s Sci-Fi Finally Debuts Trailer
-
-Movie News, Attack of the Killer Tomatoes!
-
-Mon, 27 Jul 2026 22:07:30 GMT
-
-https://movieweb.com/attack-of-the-killers-tomatoes-sequel-organic-intelligence-trailer/
-
-A new trailer for 'Attack of the Killer Tomatoes: Organic Intelligence' has been released.
----------
-
-# 10 Thriller Books That Are 10/10 Masterpieces
-
-Movie Lists, Gone Girl, Hannibal
-
-Mon, 27 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/masterpiece-thriller-books/
-
-These thriller books are impressive examples of this popular genre, and every reader who enjoys thrillers should read them.
----------
-
-# 2026 Officially Finds Its Biggest Movie as Long-Awaited Adventure Sequel Hits $1 Billion Box Office
-
-Movie News, Toy Story 5, The Super Mario Galaxy Movie
-
-Mon, 27 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/toy-story-5-the-super-mario-galaxy-movie-box-office/
-
-A long-anticipated sequel has now toppled the toppled the highest-grossing movie of 2026.
----------
-
-# 'Michael' Officially Sets New Streaming Release Date After $1B Box Office
-
-Movie News, Michael
-
-Mon, 27 Jul 2026 21:39:23 GMT
-
-https://movieweb.com/michael-streaming-date-starz/
-
-After conquering the box office, the Michael Jackson biopic is landing on Starz on Aug. 10.
----------
-
-# It's Official, We Got Avengers: Doomsday All Wrong
-
-Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
-
-Mon, 27 Jul 2026 21:30:11 GMT
-
-https://screenrant.com/its-official-we-got-avengers-doomsday-all-wrong/
-
-An argument about Avengers: Doomsday compared to Avengers: Infinity War has been raised lately; we have got the criticisms of the former all wrong.
----------
-
-# Pokémon’s Facial Recognition Requirements Take Scalper Fight Too Far
-
-Gaming, Pokemon Trading Card Game, Pokemon, tabletop games
-
-Mon, 27 Jul 2026 21:24:45 GMT
-
-https://screenrant.com/pokemon-tcg-facial-recognition-scalpers/
-
-New stores require customers to agree to facial recognition scans in order to buy Pokémon TCG products, an egregious step in anti-scalping policy.
----------
-
-# Disney+'s Loki Returns As Worldwide Sensation At The Perfect Time For Tom Hiddleston
-
-TV, Loki, Marvel Cinematic Universe
-
-Mon, 27 Jul 2026 21:24:07 GMT
-
-https://screenrant.com/disney-plus-loki-series-return-pompeii-tom-hiddleston-streaming-charts/
-
-Tom Hiddleston's Loki returns as a global streaming sensation, and it could not come at a better time for the Marvel cinematic Universe actor.
----------
-
-# R.J. Decker Season 2's Release Date Revealed At ABC
-
-TV, RJ Decker
-
-Mon, 27 Jul 2026 21:21:44 GMT
-
-https://screenrant.com/rj-decker-season-2-abc-release-date/
-
-R.J. Decker season 2's release date has officially been revealed at ABC shortly after the crime drama was renewed for a second season in May.
----------
-
-# Scrubs Season 2 Release Date Revealed After Record-Setting Revival Return
-
-TV, Scrubs
-
-Mon, 27 Jul 2026 21:20:47 GMT
-
-https://screenrant.com/scrubs-revival-abc-season-2-release-date/
-
-After a record-setting return for the revival of the beloved comedy series, ABC has revealed the official release date for Scrubs season 2.
----------
-
-# Grey’s Anatomy Season 23 Release Date Revealed After Cast Shakeups
-
-TV, Grey's Anatomy
-
-Mon, 27 Jul 2026 21:20:16 GMT
-
-https://screenrant.com/greys-anatomy-season-23-abc-release-date/
-
-Despite some major shakeups in the cast, Grey’s Anatomy is returning for its 23rd season, as ABC announces its fall 2026 premiere dates.
----------
-
-# Nathan Fillion's Returning Sci-Fi Series Is A Rare Show That Deserves Its Revival
-
-Streaming TV, Masked Recs
-
-Mon, 27 Jul 2026 21:15:11 GMT
-
-https://screenrant.com/firefly-deserves-revival-nathan-fillion-sci-fi-series/
-
-This cult classic space Western is getting a revival series 24 years after its original run, and it has the rare makings of a reboot done right.
----------
-
-# Batman: Caped Crusader Season 2 Interview with Cast & EPs at SDCC 2026
-
-Videos, Batman: Caped Crusader, Batman: Caped Crusader - Season 2, San Diego Comic-Con
-
-Mon, 27 Jul 2026 21:13:06 GMT
-
-https://screenrant.com/video/batman-caped-crusader-season-2-hamish-linklater-matthew-needham-interview-sdcc-2026/
-
-Batman: Caped Crusader stars Hamish Linklater and Matthew Needham break down what season 2 has in store for Bruce Wayne and his nemesis, the Joker.
----------
-
-# 10 Marvel Characters Who Can Return In MCU's Ghost Rider Movie
-
-Superheroes, Ghost Rider, Marvel Cinematic Universe
-
-Mon, 27 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/ghost-rider-movie-mcu-characters-return/
-
-Ryan Gosling's Ghost Rider movie in the MCU holds the potential to bring back various Marvel characters, including some major heroes and villains.
----------
-
-# David Boreanaz's 5 Greatest TV Roles, Ranked
-
-Streaming TV, David Boreanaz
-
-Mon, 27 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/david-boreanaz-tv-roles-ranked/
-
-He may have been a phenomenal lead in Angel, Bones, and SEAL Team, but only one role can be the best David Boreanaz TV show performance.
----------
-
-# Amazon’s 140-Minute Fantasy Reboot Is Officially the No. 1 Movie in the World on Prime Video
-
-Movies, Masters of the Universe, Prime Video
-
-Mon, 27 Jul 2026 21:20:10 GMT
-
-https://www.cbr.com/masters-of-the-universe-fantasy-success-prime-video-july-2026/
-
-Amazon MGM Studios' new fantasy reboot is officially a streaming hit.
----------
-
-# The Perfect Open-World Game Everyone Forgot About 9 Years Later
-
-Games, open world, The Lord of the Rings
-
-Mon, 27 Jul 2026 21:15:15 GMT
-
-https://www.cbr.com/masterpiece-open-world-game-forgotten-middle-earth-shadow-of-war/
-
-One of the best open-world games of the modern era has been completely forgotten, even though it's connected to a major fantasy franchise.
----------
-
-# Tom Ellis' Troubled FBI Offshoot Is Finally Returning With New Episodes
-
-TV, CIA, tom ellis, CBS
-
-Mon, 27 Jul 2026 21:12:08 GMT
-
-https://www.cbr.com/tom-ellis-cia-season-2-release-date/
-
-CBS has announced that the second season of Tom Ellis' FBI offshoot, CIA, will premiere in October.
----------
-
-# Air Bud Officially Returns With Trailer for First Theatrical Release in 28 Years
-
-Movies, Air Bud Returns, Drama
-
-Mon, 27 Jul 2026 21:04:14 GMT
-
-https://www.cbr.com/air-bud-officially-returns-with-trailer-for-first-theatrical-release-in-28-years/
-
-Air Bud is heading back to theaters for the first time in nearly three decades with a brand-new movie that audiences had no idea they needed to see.
----------
-
-# Silo Season 3 Cast Reveals What Changed Everything | SDCC 2026
-
-TV, Silo
-
-Mon, 27 Jul 2026 21:02:22 GMT
-
-https://www.cbr.com/video/silo-season-3-cast-reveals-what-changed-everything-sdcc-2026/
-
-The Silo Season 3 cast shares new behind-the-scenes stories from Apple TV+'s hit sci-fi series at SDCC 2026. From returning characters and impossible secrets to adapting Hugh Howey's novels, the conversation explores what makes the next chapter so different.
----------
-
-# 8 Greatest Fantasy Books Worth Reading Again and Again, Ranked
-
-Movies, books, Fantasy, neil gaiman
-
-Mon, 27 Jul 2026 21:00:15 GMT
-
-https://www.cbr.com/most-rereadable-fantasy-books-ranked-list/
-
-Some fantasy books are incredible to read once or twice, but these eight books are continually amazing and worth reading over and over again.
----------
-
-# Netflix’s New Harlan Coben Project Based on 12-Book Series Confirms Filming Start
-
-TV, Netflix, Untitled Myron Bolitar Series
-
-Mon, 27 Jul 2026 20:38:52 GMT
-
-https://www.cbr.com/netflix-myron-bolitar-filming-start/
-
-The show recently unveiled its full cast.
----------
-
-# CBS Announces Release Date for Ghosts' Die Hard-Themed Christmas Episode
-
-TV, Ghosts
-
-Mon, 27 Jul 2026 20:35:27 GMT
-
-https://www.cbr.com/ghosts-die-hard-christmas-episode-release-date-cbs/
-
-New details and premiere dates for the two themed hour-long episodes of Ghosts have been shared by CBS.
----------
-
-# Netflix's 8-Part Horror Series With 93% RT Is Already the Perfect Mike Flanagan Replacement
-
-TV, Guillermo del Toro's Cabinet of Curiosities, Horror, Netflix
-
-Mon, 27 Jul 2026 20:30:16 GMT
-
-https://www.cbr.com/netflix-cabinet-of-curiosities-original-horror-series/
-
-With Mike Flanagan departing Netflix, fans are seeking more original horror content, and one show is the answer.
----------
-
-# 5 Darkest Movie Trilogies of All Time
-
-Movie, The Human Condition I: No Greater Love, The Dark Knight Trilogy, The Godfather, Lady Vengeance
-
-Mon, 27 Jul 2026 21:31:15 GMT
-
-https://collider.com/darkest-movie-trilogies-ranked/
-
-From The Godfather, to The Dark Knight, to The Human Condition, these devastating trilogies explore power, trauma, loss, and despair.
----------
-
-# The 10 Greatest Protest Songs in Classic Rock, Ranked
-
-Music Features, Rock, Classics, Music, Bob Dylan
-
-Mon, 27 Jul 2026 21:30:15 GMT
-
-https://collider.com/greatest-protest-songs-in-classic-rock-ranked/
-
-From Masters of War to Ohio, these classic rock protest songs challenged power, fueled movements, and still hit hard today.
----------
-
-# Disney+'s Best Sci-Fi Series Is Officially Dominating Streaming Charts 3 Years Later
-
-TV News, Loki, MCU, Marvel Studios, Avengers: Doomsday
-
-Mon, 27 Jul 2026 21:30:15 GMT
-
-https://collider.com/loki-the-mcu-series-that-changed-marvel-forever-streaming-success-disney-plus-july-2026/
-
-Loki, the critically acclaimed Marvel series set after Endgame, is topping the Disney+ rankings again as fans revisit it ahead of Avengers: Doomsday.
 ---------
