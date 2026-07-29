@@ -1,3 +1,344 @@
+# The Office: Jim & Pam's Relationship Timeline, Season By Season
+
+Classic TV, The Office, Movie/TV Show Timelines
+
+Wed, 29 Jul 2026 01:45:11 GMT
+
+https://screenrant.com/the-office-jim-pam-relationship-timeline/
+
+Jim and Pam had a great love story on The Office. They may have started off as friends, but fans were delighted to see them eventually tie the knot.
+---------
+
+# Game Of Thrones: How Old Each Character Is Supposed To Be
+
+Classic TV, Game Of Thrones
+
+Wed, 29 Jul 2026 01:30:11 GMT
+
+https://screenrant.com/game-thrones-characters-ages-how-old/
+
+Game of Thrones character ages are rarely, if ever, stated outright. Here's how old the Game of Thrones characters based on the books and show.
+---------
+
+# Paramount Has Found Its Next Yellowstone, And The 'New John Dutton' Is An Acting Legend
+
+Streaming TV, Masked Recs
+
+Wed, 29 Jul 2026 01:15:11 GMT
+
+https://screenrant.com/laird-new-yellowstone-kenneth-branagh-paramount/
+
+Paramount+'s next big quasi-western series is Laird, starring acting legend Kenneth Branagh, and could easily be the next Yellowstone-style hit.
+---------
+
+# The Dangers Of Jumanji Enter The Real World In Action-Packed First 2026 Sequel Trailer
+
+Movies, Jumanji: Open World, Jumanji
+
+Wed, 29 Jul 2026 01:01:06 GMT
+
+https://screenrant.com/jumanji-4-open-world-movie-trailer/
+
+Sony unveils the official Jumanji: Open World trailer, seeing the dangers of the jungle and its game characters making their way into the real world.
+---------
+
+# 4 Years Later, Netflix's New 10/10 Series Just Took The Horror Throne
+
+TV, Netflix, Masked Recs
+
+Wed, 29 Jul 2026 01:00:11 GMT
+
+https://screenrant.com/netflix-the-east-palace-best-horror-drama/
+
+Blending dark historical politics with terrifying supernatural horror, Netflix's latest international original is a massive global hit.
+---------
+
+# Tim Bradford's 10 Best Quotes In The Rookie, Ranked
+
+Network TV, The Rookie
+
+Wed, 29 Jul 2026 01:00:11 GMT
+
+https://screenrant.com/the-rookie-tim-bradford-best-quotes/
+
+Ranking the best quotes from Tim Bradford in The Rookie TV show, including moments that highlight his growth and insights throughout the series' run.
+---------
+
+# Prime Video's Spider-Noir Replacement Officially Releases This Week
+
+Streaming TV, Spider-Noir, Batman: Caped Crusader
+
+Wed, 29 Jul 2026 00:31:58 GMT
+
+https://screenrant.com/batman-caped-crusader-spider-noir-prime-video-series-replacement/
+
+Nicolas Cage's Spider-Noir is making way for its perfect replacement at Prime Video, and the superhero series releases new episodes this week.
+---------
+
+# Christopher Nolan Has Created The Second Best Film Based On The Odyssey: Here's The First
+
+Movies, The Odyssey
+
+Wed, 29 Jul 2026 00:30:11 GMT
+
+https://screenrant.com/christopher-nolan-odyssey-coens-o-brother/
+
+Twenty-six years before Christopher Nolan's 2026 adaptation of Homer's classic, a musical comedy cemented itself as the perfect Odyssey adaptation.
+---------
+
+# The Power Universe's Unofficial 5th Series Begins This Week
+
+TV, Masked Recs
+
+Wed, 29 Jul 2026 00:15:11 GMT
+
+https://screenrant.com/fightland-release-date-power-unofficial-series/
+
+Produced by the Power franchise's 50 Cent, this British boxing drama/crime thriller looks like a perfect UK-based replacement for the gangster epic.
+---------
+
+# Iconic Kaiju Officially Confirmed for Godzilla's New Appearance
+
+Comics, Godzilla
+
+Wed, 29 Jul 2026 00:13:32 GMT
+
+https://screenrant.com/godzilla-mothra-appearance-announced/
+
+We're getting Mothra y'all.
+---------
+
+# It's Officially a New Era for God of War on February 16
+
+Games, God of War, San Diego Comic-Con
+
+Wed, 29 Jul 2026 01:45:14 GMT
+
+https://www.cbr.com/god-of-war-laufey-releasing-february-2027/
+
+God of War Laufey is officially one of the most anticipated video games of 2027, and it will change the franchise forever.
+---------
+
+# 10 Strongest Gods of Destruction in Dragon Ball, Officially Ranked
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Wed, 29 Jul 2026 01:25:14 GMT
+
+https://www.cbr.com/dragon-ball-strongest-gods-of-destruction-officially-ranked/
+
+Dragon Ball's multiverse is watched over by incredibly powerful Gods of Destruction, and some of these deadly deities are stronger than the rest.
+---------
+
+# The 5 Greatest Netflix Movies of 2026 (So Far)
+
+Movies, Netflix, The Rip, War Machine
+
+Wed, 29 Jul 2026 01:00:15 GMT
+
+https://www.cbr.com/best-netflix-movies-of-2026-so-far-list/
+
+From modern action classics to heartwarming book adaptations, these are the best Netflix movies of 2026 so far.
+---------
+
+# Final Fantasy 7 Crossover Is Final Fantasy 14's Most Important Moment
+
+Games, Final Fantasy, final fantasy xiv, Final Fantasy 7 Remake
+
+Wed, 29 Jul 2026 00:45:15 GMT
+
+https://www.cbr.com/final-fantasy-7-14-crossover-most-important-moment/
+
+Final Fantasy 14 has finally broken the seal on the long-awaited Final Fantasy 7 Remake crossover, but it has to nail the landing.
+---------
+
+# Transformers Reveals 2 New Dinobots With Extinction-Level Combining Power
+
+Anime, Transformers, merchandise, toys, action figures
+
+Wed, 29 Jul 2026 00:35:14 GMT
+
+https://www.cbr.com/transformers-dinobots-cang-toys-grandspino-trusaurus-prototype/
+
+Cang Toys has revealed its newest Transformers figures, which round out its take on the Dinobots with entirely new prehistoric forces  Combiners.
+---------
+
+# Denzel Washington's Ricochet is a Perfect Die Hard Replacement
+
+Movies, Ricochet
+
+Wed, 29 Jul 2026 00:30:15 GMT
+
+https://www.cbr.com/denzel-washington-ricochet-perfect-die-hard-replacement/
+
+This forgotten Denzel Washington thriller shares a number of connections with Die Hard, and it might just be the perfect spiritual sequel.
+---------
+
+# 28 Years Later, Avery Brooks' Favorite Star Trek: DS9 Episode Is Still 100% Untouchable
+
+TV, Star Trek: Deep Space Nine, Sci-Fi, Paramount
+
+Wed, 29 Jul 2026 00:30:15 GMT
+
+https://www.cbr.com/star-trek-ds9-avery-brooks-favorite-episode-far-beyond-the-stars/
+
+This episode of Star Trek: Deep Space Nine is one of the franchise's most powerful episodes, thanks to Avery Brooks’ unforgettable performance.
+---------
+
+# 5 Classic Anime That Perfected Tournament Arcs
+
+Anime, Shonen
+
+Wed, 29 Jul 2026 00:15:14 GMT
+
+https://www.cbr.com/classic-anime-perfect-tournament-arcs/
+
+While tournament arcs in anime have been around for decades, these action series refined the concept to perfection.
+---------
+
+# Harlan Coben’s 8-Part Crime Drama Is 1 of Netflix's Most-Watched Shows Ever
+
+TV, I Will Find You
+
+Wed, 29 Jul 2026 00:00:15 GMT
+
+https://www.cbr.com/harlan-coben-i-will-find-you-netflix-most-popular-tv/
+
+The series was a tremendous success and it has just added another huge title.
+---------
+
+# Marvel Just Announced Its Most Important Recast Of All Time
+
+Movies, Black Panther 3, MCU, superheroes
+
+Wed, 29 Jul 2026 00:00:15 GMT
+
+https://www.cbr.com/black-panther-david-jonsson-recast-change-mcu/
+
+At San Diego Comic Con, Marvel Studios announced a recast that will officially change the MCU forever.
+---------
+
+# 8 Fantasy Books That Can Be Called Masterpieces
+
+Books and Comics, Fantasy, Books, The Lord of the Rings, J.R.R. Tolkien
+
+Wed, 29 Jul 2026 01:43:14 GMT
+
+https://collider.com/best-fantasy-books-masterpieces/
+
+Why do A Game of Thrones and The Name of the Wind still define fantasy? These book masterpieces prove greatness never ages.
+---------
+
+# 'The Odyssey's Most Chilling Scene Proves Christopher Nolan Is Ready to Make a Horror Movie
+
+Movie Features, The Odyssey, Christopher Nolan, Horror, Matt Damon
+
+Wed, 29 Jul 2026 01:43:09 GMT
+
+https://collider.com/the-odyssey-circe-christopher-nolan-horror-movie/
+
+Christopher Nolan has repeatedly mentioned an interest in someday directing horror, but several moments in The Odyssey show he's already there.
+---------
+
+# 10 HBO Shows That Are 10/10, No Notes
+
+TV, HBO, Band of Brothers, Angels in America, Generation Kill
+
+Wed, 29 Jul 2026 01:22:14 GMT
+
+https://collider.com/hbo-shows-perfect-no-notes/
+
+Discover HBO's most acclaimed series that have redefined television and left a lasting impact on the medium, from The Sopranos to Succession.
+---------
+
+# This Sci-Fi Author is Making the Best 'Star Trek' Content (That isn't 'Star Trek')
+
+Movie Features, The Martian, Project Hail Mary, Andy Weir, Star Trek
+
+Wed, 29 Jul 2026 01:12:14 GMT
+
+https://collider.com/andy-weir-project-hail-mary-author-books-star-trek/
+
+Project Hail Mary author Andy Weir's books aren't connected to the Star Trek franchise, but they hold the values and vision of the classic series.
+---------
+
+# Jumanji Officially Returns to the Real World in First Trailer for Final Movie
+
+Movie News, Jumanji: Open World, Jumanji, Dwayne Johnson, Karen Gillan
+
+Wed, 29 Jul 2026 01:00:36 GMT
+
+https://collider.com/jumanji-open-world-trailer-dwayne-johnson/
+
+Dwayne Johnson's Jumanji franchise returns for the reportedly final time in the first official trailer for Open World. See it here!
+---------
+
+# 7 Greatest Miniseries of 2026 So Far, Ranked
+
+TV, TV Miniseries, Bait, The Boroughs, Spider-Noir
+
+Wed, 29 Jul 2026 00:55:14 GMT
+
+https://collider.com/best-miniseries-2026-ranked/
+
+From Half Man to DTF St. Louis, Lord of the Flies to Spider-Noir, here are the best miniseries of 2026 so far.
+---------
+
+# 20 Greatest Video Games of the 20th Century
+
+Gaming, Video Game, GoldenEye 007 Remake, The Legend of Zelda, Super Mario Bros.
+
+Wed, 29 Jul 2026 00:32:14 GMT
+
+https://collider.com/best-video-games-20th-century-ranked/
+
+GoldenEye 007, Pokémon Red and Blue, and The Legend of Zelda: Ocarina of Time are among the greatest video games released in the 20th century.
+---------
+
+# 10 Animated Shows Without a Single Flaw
+
+TV, Animation, Avatar: The Last Airbender, Adventure Time, Gravity Falls
+
+Wed, 29 Jul 2026 00:11:14 GMT
+
+https://collider.com/animated-shows-without-flaws/
+
+There are precious few animated shows that we can confidently say have absolutely no flaws, from Avatar: The Last Airbender to Adventure Time.
+---------
+
+# 'Jumanji' Officially Returns in Action-Packed Trailer for Final Adventure
+
+Movie News, Jumanji: Open World
+
+Wed, 29 Jul 2026 01:08:41 GMT
+
+https://movieweb.com/jumanji-open-world-first-trailer/
+
+Sony Pictures released the first official trailer for the final movie in the 'Jumanji' franchise, 'Jumanji: Open World.'
+---------
+
+# Netflix's Smash-Hit 'Ransom Canyon' Is a 10/10 Binge-Watch
+
+Features, Ransom Canyon
+
+Wed, 29 Jul 2026 01:00:26 GMT
+
+https://movieweb.com/netflix-ransom-canyon-binge-watch/
+
+While Taylor Sheridan might still be the king of the neo-Western, Netflix brought a challenger to life with a smash-hit show made for binge-watching.
+---------
+
+# Netflix's 8-Part Harlan Coben Thriller Officially Crosses a Streaming Milestone
+
+TV News, I Will Find You, Netflix
+
+Wed, 29 Jul 2026 00:43:02 GMT
+
+https://movieweb.com/i-will-find-you-netflix-all-time-top-10-streaming/
+
+'I Will Find You' has cracked the all-time top 10 of English-language series on the streamer in only six weeks.
+---------
+
 # Every DC Character Confirmed For Superman Sequel Man Of Tomorrow (So Far)
 
 Superheroes, Man of Tomorrow, DC Universe
@@ -5155,345 +5496,4 @@ Mon, 27 Jul 2026 17:00:15 GMT
 https://www.cbr.com/ghost-rider-road-to-damnation-comics-you-should-be-reading/
 
 Garth Ennis and Clayton Crain's hauntingly gruesome Ghost Rider may be too dark for the MCU, but it's a must-read for fans of the Spirit of Vengeance.
----------
-
-# Sean Astin's Lord of the Rings Paycheck Was So Low He Had to Sell His House
-
-Movies, The Lord of the Rings, Fantasy, Beyond the Movie: The Fellowship of the Ring
-
-Mon, 27 Jul 2026 16:54:00 GMT
-
-https://www.cbr.com/sean-astin-lord-of-the-rings-pay-sold-house/
-
-Sean Astin's role in the blockbuster Lord of the Rings trilogy didn't pay the way some might expect.
----------
-
-# Final Fantasy 6 Remake Could Be Even Bigger Than FF7 Remake (But There's a Catch)
-
-Games, Final Fantasy, Final Fantasy 7 Remake, Final Fantasy I-VI Pixel Remaster
-
-Mon, 27 Jul 2026 16:51:15 GMT
-
-https://www.cbr.com/final-fantasy-6-remake-bigger-than-ff7-remake/
-
-The director of Final Fantasy 14 and Evercold has confirmed how big a Final Fantasy 6 Remake would be, but there's a huge catch to his analysis.
----------
-
-# Blade Runner 2099: Why This Isn't Just More Blade Runner | SDCC 2026
-
-TV, Blade Runner 2099
-
-Mon, 27 Jul 2026 16:51:07 GMT
-
-https://www.cbr.com/video/blade-runner-2099-why-this-isn-t-just-more-blade-runner-sdcc-2026/
-
-Blade Runner 2099 expands the iconic sci-fi universe in a bold new direction, and the cast explains why this story feels both familiar and completely fresh. Michelle Yeoh, Hunter Schafer, and creator Silka Luisa discuss the complicated relationship between Olwen and Cora, what makes replicants different from AI, and how the series builds on the themes that have defined Blade Runner for decades.
----------
-
-# DC Officially Confirms Why Its Next Batman Movie Had to Be a Trilogy
-
-Movies, Batman: Knightfall Part 1: Knightfall, San Diego Comic-Con
-
-Mon, 27 Jul 2026 16:48:36 GMT
-
-https://www.cbr.com/batman-knightfall-trilogy-explained/
-
-Exclusive: The all-new Batman movie trilogy's origins are explained by DC.
----------
-
-# 10 Saddest Anime Deaths of All Time, Ranked
-
-Anime, Naruto: Shippuden, Jojo’s Bizarre Adventure: Diamond Is Unbreakable - Chapter 1, shonen anime
-
-Mon, 27 Jul 2026 16:15:15 GMT
-
-https://www.cbr.com/saddest-anime-deaths-all-time-ranked/
-
-Death is easily one of anime's most powerful storytelling tools, but not all endings are created equally.
----------
-
-# Severance Season 3 Filming Start Confirmed by Ben Stiller
-
-TV, Severance
-
-Mon, 27 Jul 2026 16:05:09 GMT
-
-https://www.cbr.com/severance-season-3-filming-confirmed-ben-stiller/
-
-Severance executive producer and director Ben Stiller confirms the start of production on the third season.
----------
-
-# The 100% Rotten Tomatoes Action Masterpiece That Beat Jurassic Park at Its Own Game
-
-TV, Jurassic Park, animated, Primal
-
-Mon, 27 Jul 2026 16:00:15 GMT
-
-https://www.cbr.com/adult-swim-primal-the-lost-world-jurassic-park-inspiration/
-
-One TV show has been the best dinosaur-themed media since the release of Steven Spielberg's Jurassic Park films, and it has subtly shown its love.
----------
-
-# 5 Most Underrated R-Rated Westerns of the 21st Century
-
-Movies, Western, Open Range, In a Valley of Violence
-
-Mon, 27 Jul 2026 16:00:15 GMT
-
-https://www.cbr.com/perfect-underrated-r-rated-westerns-list/
-
-The darker side of the Western has given audiences some of the best gunslinger movies ever made, and the 21st century boasts a wealth of hidden gems.
----------
-
-# Paramount CEO Addresses Lawsuit Halting the $110B Warner Bros. Merger: 'Facts and Law Are on Our Side'
-
-Movies, Paramount, warner bros
-
-Mon, 27 Jul 2026 15:40:10 GMT
-
-https://www.cbr.com/paramount-david-ellison-warner-bros-merger-lawsuit/
-
-Following the successful hostile bid, Paramount experienced some setbacks with several state attorneys general.
----------
-
-# 10 Classic Sci-Fi Movies You Must Watch in 2026
-
-Movie, Science Fiction, Godzilla, 2001: A Space Odyssey, Forbidden Planet
-
-Mon, 27 Jul 2026 17:14:15 GMT
-
-https://collider.com/classic-sci-fi-movies-must-watch-2026/
-
-From groundbreaking creature features like Godzilla to B-classics like Forbidden Planet, these sci-fi classic masterpieces are must-watches in 2026.
----------
-
-# 20 Best Netflix Original Shows of All Time, Ranked
-
-TV, Netflix, Stranger Things, Bridgerton, Mindhunter
-
-Mon, 27 Jul 2026 17:12:15 GMT
-
-https://collider.com/best-netflix-original-shows-ranked/
-
-Netflix set the standard for streaming, as proven by its biggest and most critically acclaimed hits, from BoJack Horseman to Stranger Things.
----------
-
-# Tom Hanks Officially Replaced in Netflix's New Dan Brown Series
-
-TV News, Netflix, Morgan Spector, The Da Vinci Code, Angels & Demons
-
-Mon, 27 Jul 2026 16:13:24 GMT
-
-https://collider.com/netflix-secret-of-secrets-series-morgan-spector-robert-langdon-tom-hanks/
-
-Morgan Spector officially replaces Tom Hanks in Netflix’s untitled series adaptation of Dan Brown’s bestselling mystery novel The Secret of Secrets.
----------
-
-# Every R-Rated Christopher Nolan Movie, Ranked
-
-Movie, Christopher Nolan, MPAA Ratings, Memento, The Odyssey
-
-Mon, 27 Jul 2026 16:11:15 GMT
-
-https://collider.com/christopher-nolan-movies-r-rated-ranked/
-
-While Nolan is more primarily known for his various PG-13 films, the director's first three films and his 2 most recent films are actually R-rated.
----------
-
-# Star Wars' Newest Spin-Off Series Blasts Off With a Huge Season 2 Update [Exclusive]
-
-TV News, Star Wars: Visions, Star Wars, Disney+, Sci-Fi
-
-Mon, 27 Jul 2026 16:00:15 GMT
-
-https://collider.com/star-wars-visions-the-ninth-jedi-season-2-update/
-
-Ahead of the debut of the Star Wars franchise's newest spin-off series, the show's creative team already have ideas for a second season.
----------
-
-# Disney+’s New 8-Episode Star Wars Series Officially Brings Back Prequel-Era Duels [Exclusive]
-
-TV News, Star Wars: Visions, Star Wars, Star Wars: Episode III - Revenge of the Sith, Disney+
-
-Mon, 27 Jul 2026 16:00:15 GMT
-
-https://collider.com/star-wars-visions-the-ninth-jedi-prequel-trilogy-duel-influences/
-
-The team behind Star Wars: Visions' first-ever spin-off breaks down the prequel trilogy's influence on the new anime series.
----------
-
-# Rebecca Ferguson Confirms Her Dune Return Comes With a Major Catch
-
-Movie News, Rebecca Ferguson, Dune: Part Three, Denis Villeneuve, Sci-Fi
-
-Mon, 27 Jul 2026 15:46:04 GMT
-
-https://collider.com/dune-part-3-rebecca-ferguson-lady-jessica-update/
-
-Rebecca Ferguson reveals she only has one scene in Dune: Part Three, confirming Lady Jessica’s reduced role in Denis Villeneuve’s final film.
----------
-
-# Taylor Sheridan's Explosive Spy Series Returns This Week
-
-TV News, Taylor Sheridan, Lioness, Paramount Plus, Thriller
-
-Mon, 27 Jul 2026 15:42:58 GMT
-
-https://collider.com/taylor-sheridan-lioness-season-3-release-date-august-2/
-
-Taylor Sheridan’s grittiest spy thriller series is officially returning on Paramount+ this week. Here’s what you need to know.
----------
-
-# ‘Game of Thrones’ Gets Official New Release in Just 48 Hours — But It Won't Last Long
-
-Gaming News, Game Of Thrones, George R.R. Martin, A Knight Of The Seven Kingdoms, House of the Dragon
-
-Mon, 27 Jul 2026 15:41:03 GMT
-
-https://collider.com/game-of-thrones-conquest-children-of-the-forest-event-release-date-july-29/
-
-Game of Thrones is officially bringing back the Children of the Forest for a new release dropping this Wednesday.
----------
-
-# ‘The Odyssey’ Isn’t the Only Greek Epic Making Box Office History
-
-Movie News, The Odyssey, Hadestown: The Musical, Box Office, Musical
-
-Mon, 27 Jul 2026 15:27:17 GMT
-
-https://collider.com/hadestown-the-musical-9-million-box-office-second-biggest-broadway-live-capture/
-
-The Odyssey isn’t the only Greek epic making history at the box office as Bleeker Street’s official release of Hadestown takes over.
----------
-
-# Chiranjeevi: The Story Behind the "Indian Thriller" Meme
-
-Features
-
-Mon, 27 Jul 2026 17:01:12 GMT
-
-https://movieweb.com/chiranjeevi-indian-thriller-meme/
-
-Combining the various personas of performers like Gene Kelly, Arnold Schwarzenegger, and Tom Cruise, Chiranjeevi is Indian cinema's Swiss-army knife.
----------
-
-# Two of the Biggest Streaming Platforms Join Forces in Landmark Cost-Saving Move
-
-TV News, Peacock, YouTube, Streaming
-
-Mon, 27 Jul 2026 16:58:34 GMT
-
-https://movieweb.com/nbcuniversal-peacock-youtube-streaming-deal/
-
-Peacock and YouTube are teaming up.
----------
-
-# MCU Star Leads Brutal First Trailer for Supernatural Thriller 'The Cycle'
-
-Movie News, Thriller, Horror, Shudder
-
-Mon, 27 Jul 2026 16:25:43 GMT
-
-https://movieweb.com/the-cycle-teaser-trailer/
-
-Her father has been missing for 36 years, and his body was just found at a mysterious crime scene, sparking a grim mystery.
----------
-
-# First Look at Marvel's Next Streaming Series Confirms Return of Avengers-Level Threat
-
-Movie News, VisionQuest, MCU's Movie Order (2008 - 2019) - The Infinity Saga (Iron Man - Spider-Man: Far from Home)
-
-Mon, 27 Jul 2026 16:06:00 GMT
-
-https://movieweb.com/vision-quest-ultron-funk-pop-first-look/
-
-Ahead of the 'VisionQuest' first trailer, a new Funko Pop reveals the best look at Ultron's new appearance.
----------
-
-# Star Trek: Strange New Worlds Season 4 Teases Another Franchise Legend Comeback
-
-Features, star trek: strange new worlds, Star Trek
-
-Mon, 27 Jul 2026 16:00:12 GMT
-
-https://movieweb.com/star-trek-strange-new-worlds-q-comeback/
-
-The Q Continuum hasn't been especially prominent in Star Trek's modern era, but there have been flashes of it. Read on for more.
----------
-
-# Netflix's New 6-Part Action Thriller Series Is Officially a Global Smash
-
-TV News, Action, Hot on Streaming, Netflix
-
-Mon, 27 Jul 2026 16:00:12 GMT
-
-https://movieweb.com/elite-force-action-streaming-hit-netflix-july-2026/
-
-Netflix's has found its newest global hit by way of a six-episode action thriller that's dominating the charts.
----------
-
-# '80s Fantasy Action Reboot Blasts Past 'Star Wars' Straight to Number One on Charts
-
-Movie News, Masters of the Universe
-
-Mon, 27 Jul 2026 15:44:05 GMT
-
-https://movieweb.com/masters-of-the-universe-blu-ray-sales-chart/
-
-'Masters of the Universe' has dethroned 'Star Wars: The Mandalorian and Grogu' to claim the coveted number one spot on the Blu-ray top sellers chart.
----------
-
-# 10 Best Crime Thrillers Of All Time
-
-Books, Thriller, Crime
-
-Mon, 27 Jul 2026 15:05:00 GMT
-
-https://screenrant.com/best-crime-thriller-novels-must-read/
-
-Classic and contemporary masterpiece crime thrillers.
----------
-
-# It's Official, Resident Evil's 2026 Return Just Got Even More Exciting
-
-Movies, Resident Evil
-
-Mon, 27 Jul 2026 15:02:11 GMT
-
-https://screenrant.com/resident-evil-zach-cregger-runtime-shorter/
-
-The announcement of Resident Evil's surprising franchise change has made the arrival of director Zach Cregger's reboot even more hotly anticipated.
----------
-
-# PlayStation Just Confirmed Our First Major PS6 Game
-
-Gaming, PlayStation 6, PlayStation, God of War
-
-Mon, 27 Jul 2026 15:00:11 GMT
-
-https://screenrant.com/playstation-first-ps6-game-confirmed-god-of-war/
-
-We finally know what the very first PlayStation 6 game will be, and it is a huge new title that dedicated fans will absolutely love.
----------
-
-# My Hero Academia Kicks Off A New Season July 29
-
-Gaming, My Hero Academia, PC
-
-Mon, 27 Jul 2026 14:56:05 GMT
-
-https://screenrant.com/my-hero-academia-ultra-rumble-season-18-july-2026/
-
-My Hero Academia is finally getting a brand-new season, and it's releasing far sooner than fans may have initially expected.
----------
-
-# Blade Runner 2099 Season 2's Fate Clarified By Prime Video Series Creator
-
-TV, Blade Runner, Blade Runner 2099
-
-Mon, 27 Jul 2026 14:52:17 GMT
-
-https://screenrant.com/blade-runner-2099-season-2-fate-prime-video-silka-luisa/
-
-Showrunner Silka Luisa confirms the status of Blade Runner 2099 season 2 following the release of the first trailer for the Prime Video show.
 ---------
