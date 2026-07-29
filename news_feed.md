@@ -1,3 +1,201 @@
+# Eli Roth's "No Limits" New Horror Movie Sprung To Life After 20 Years Thanks To 2024 Record-Breaking Hit
+
+Movies, Ice Cream Man, Eli Roth, Terrifier 3, San Diego Comic-Con
+
+Wed, 29 Jul 2026 23:36:44 GMT
+
+https://screenrant.com/eli-roth-ice-cream-man-20-years-development-terrifier-3-support/
+
+Exclusive: Eli Roth revealed that he was finally able to make Ice Cream Man after 20 years thanks to the success of another horror movie.
+---------
+
+# 6 Strongest Avatars In Last Airbender History
+
+TV, The Last Airbender
+
+Wed, 29 Jul 2026 23:30:11 GMT
+
+https://screenrant.com/strongest-avatars-last-airbender-history/
+
+The Avatar cycle remains one of animation's best-ever power systems, and these Avatars are its most powerful representatives.
+---------
+
+# X-Men '97 Season 2: Over 20 Easter Eggs, References, & Marvel Cameos In Episode 7
+
+Superheroes, X-Men '97, Marvel Cinematic Universe
+
+Wed, 29 Jul 2026 23:10:11 GMT
+
+https://screenrant.com/x-men-97-season-2-episode-7-easter-eggs-references-marvel-cameos/
+
+X-Men '97 season 2 episode 7 continues the show's trend of featuring some of the very best comic book references, Easter eggs, and surprise cameos.
+---------
+
+# Game Of Thrones: Mother Of Dragons Officially Returns
+
+Gaming, Game of Thrones
+
+Wed, 29 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/game-of-thrones-mother-of-dragons-back-orders/
+
+After blowing up in popularity and disappearing completely, Game of Thrones: Mother of Dragons is finally making a huge return.
+---------
+
+# Netflix's New 10/10 Action Series With 90% RT Is Officially 1 of the World's Most-Watched Shows
+
+TV, Agent Kim Reactivated, Netflix, Thriller
+
+Wed, 29 Jul 2026 23:25:42 GMT
+
+https://www.cbr.com/agent-kim-reactivated-netflix-success-july-2026/
+
+Netflix's Korean revenge thriller, Agent Kim Reactivated, is one of the most-watched shows worldwide
+---------
+
+# The Boys Gets Bad News at Prime Video Ahead of New Jensen Ackles Spinoff
+
+TV, The Boys, Prime Video, superheroes
+
+Wed, 29 Jul 2026 23:20:22 GMT
+
+https://www.cbr.com/the-boys-bad-news-prime-video-vaught-rising/
+
+The Boys is dangerously close to falling out of the Top 10 most watched shows, ahead of Vought Rising's release
+---------
+
+# Taylor Sheridan's New John Dutton Replacement Leaves Kevin Costner in the Shadows
+
+TV, Dutton Ranch, Western, Paramount Plus
+
+Wed, 29 Jul 2026 23:13:40 GMT
+
+https://www.cbr.com/dutton-ranch-western-streaming-success-paramount-plus-july-2026/
+
+One of the latest Yellowstone spinoff series has officially staked its claim across multiple streaming charts, and the original can't keep up.
+---------
+
+# The Rookie Cast Confirms Season 8’s Alternate Ending Was Shot for 1 Reason
+
+TV, The Rookie, ABC, Crime
+
+Wed, 29 Jul 2026 23:05:36 GMT
+
+https://www.cbr.com/the-rookie-season-8-alternate-ending/
+
+The Rookie star Eric Winter revealed that the Season 8 finale had two different endings depending on the show's future.
+---------
+
+# The World's Biggest Anime Torrent Site Faces a Landmark New Crackdown
+
+Anime, piracy
+
+Wed, 29 Jul 2026 23:05:15 GMT
+
+https://www.cbr.com/nyaa-torrent-uploader-arrest-coda-crackdown/
+
+Japanese police have arrested a primary uploader of content on Nyaa, opening the door for broader crackdowns on the site.
+---------
+
+# 6 Marvel Villains Better For the MCU’s X-Men Than Magneto
+
+Movies, X-Men, Marvel Cinematic Universe, Magneto
+
+Wed, 29 Jul 2026 23:00:15 GMT
+
+https://www.cbr.com/best-mcu-x-men-villains-not-magneto-list/
+
+A new team of X-Men is on the way in the MCU, but rather than facing Magneto yet again, there are many other incredible villains we want to see.
+---------
+
+# Ryan Murphy Is Bringing "The Avengers of Horror" to FX in Just 2 Months
+
+TV, American Horror Story, FX, Horror
+
+Wed, 29 Jul 2026 22:59:49 GMT
+
+https://www.cbr.com/ryan-murphy-american-horror-story-season-13-avengeres-of-horror/
+
+American Horror Story creator Ryan Murphy promises "The Avengers of Horror" will take center stage in the acclaimed anthology's thirteenth season.
+---------
+
+# Cartoon Network’s Most Iconic Shows Officially Find a New Free Streaming Home After HBO Max Exit
+
+TV News, Cartoon Network, Tubi, The Grim Adventures of Billy & Mandy, Freakazoid!
+
+Wed, 29 Jul 2026 23:52:09 GMT
+
+https://collider.com/cartoon-network-grim-adventures-of-billy-and-mandy-freakazoid-green-lantern-animated-series-free-streaming-tubi-august-2026/
+
+The Grim Adventures of Billy & Mandy, Freakazoid, Green Lantern: The Animated Series, and more Cartoon Network classics are coming to free streaming.
+---------
+
+# Forget Going to Space, '9-1-1' Gave Us Athena's Best Moments in This Masterpiece Episode
+
+TV Features, 9-1-1, Angela Bassett, ABC, Procedural
+
+Wed, 29 Jul 2026 23:24:15 GMT
+
+https://collider.com/9-1-1-season-8-beenado-athena-flying-plane/
+
+During Bee-Nado, 9-1-1 gave us one of Athena Grant's best moments in the show's history that it still hasn't topped.
+---------
+
+# 8 Action Movies That Are Perfectly Directed, Ranked
+
+Movie, Action, Mad Max: Fury Road, Speed, The Matrix
+
+Wed, 29 Jul 2026 23:11:15 GMT
+
+https://collider.com/action-movies-perfectly-directed-ranked/
+
+Mad Max: Fury Road, Speed, The Matrix, Raiders of the Lost Ark, and more make up our list of action movies that are perfectly directed.
+---------
+
+# The Horror Masterpiece That Christopher Nolan Adored Takes Over Global Streaming
+
+Movie News, Obsession, Christopher Nolan, Horror, The Odyssey
+
+Wed, 29 Jul 2026 23:00:14 GMT
+
+https://collider.com/obsession-christopher-nolan-favorite-horror-movie-streaming-success-peacock-july-2026/
+
+The horror masterpiece that received abundant praise from Christopher Nolan is taking over streaming after dominating theaters.
+---------
+
+# ’X-Men ‘97’ Just Set Up Its Most Shocking Character Death With One Huge Twist
+
+TV Features, X-Men '97, X-Men: The Animated Series, Disney Plus, X-Men: Evolution
+
+Wed, 29 Jul 2026 22:57:14 GMT
+
+https://collider.com/x-men-97-season-2-apocalypse-death-comics-history/
+
+X-Men ‘97 ended its latest episode by seemingly killing off its Big Bad, though the comics prove that isn't so easy.
+---------
+
+# 'Resident Evil' Movie Won't Adapt the Most Iconic Character for One Reason [Exclusive]
+
+Exclusives, Resident Evil, Zach Cregger
+
+Wed, 29 Jul 2026 23:06:00 GMT
+
+https://movieweb.com/resident-evil-movie-leon-kennedy/
+
+Director Zach Cregger reveals why a beloved video game character won't be appearing in his new 'Resident Evil' movie adaptation.
+---------
+
+# Every Taylor Sheridan TV Show Released in 2026 (So Far), Ranked
+
+TV Lists, Taylor Sheridan, Marshals, The Madison, Dutton Ranch
+
+Wed, 29 Jul 2026 23:00:12 GMT
+
+https://movieweb.com/taylor-sheridan-every-tv-show-2026-ranked/
+
+Between the three TV series released so far, which Taylor Sheridan show comes out on top?
+---------
+
 # Netflix’s Best 2026 Thriller Is An 8-Part Series Based On A Hit Novel
 
 TV, Masked Recs
@@ -5298,202 +5496,4 @@ Tue, 28 Jul 2026 16:00:12 GMT
 https://movieweb.com/widows-bay-season-2-everything-we-know/
 
 'Widows Bay,' the thriller series starring Matthew Rhys on Apple TV, became a big hit, and here is everything we know about Season 2.
----------
-
-# ABC Sets Fall Premiere Dates for 'Grey's Anatomy,' 'Scrubs' & More
-
-TV News, Scrubs, Grey's Anatomy
-
-Tue, 28 Jul 2026 15:51:38 GMT
-
-https://movieweb.com/abc-fall-premiere-schedule-2026/
-
-ABC is ready to bring back some of its biggest shows, as the network's Fall 2026 TV schedule is approaching its start date.
----------
-
-# Hit Dexter Series Officially Returns With New Episodes Next Week
-
-TV, Dexter
-
-Tue, 28 Jul 2026 15:10:11 GMT
-
-https://screenrant.com/dexters-kill-room-season-3-release-date/
-
-Paramount has announced that a popular Dexter franchise series will officially return with new episodes for its third season in August 2026.
----------
-
-# Major Dexter Villain’s Resurrection Season 2 Return Revealed First Official Images
-
-TV, Dexter: Resurrection
-
-Tue, 28 Jul 2026 15:00:11 GMT
-
-https://screenrant.com/dexter-resurrection-season-2-first-look-images/
-
-Dexter: Resurrection is resurrecting some familiar faces in season 2, as the first official images for the second season have arrived from Paramount.
----------
-
-# Prime Video's 3-Hour Series With No Weak Episodes Is 2026's Best Comedy
-
-Streaming TV, Masked Recs, Prime Video
-
-Tue, 28 Jul 2026 15:00:11 GMT
-
-https://screenrant.com/bait-prime-video-2026-best-comedy-no-bad-episodes/
-
-So far, 2026 has been an excellent year for comedy television, including an underseen Prime Video series that hilariously spoofs James  Bond.
----------
-
-# Ahsoka Season 2's Explosive New Story Teased By Returning Star Wars Actor
-
-TV, Ahsoka, Star Wars
-
-Tue, 28 Jul 2026 14:55:35 GMT
-
-https://screenrant.com/star-wars-ahsoka-season-2-explosive-story-eman-esfandi/
-
-EXCLUSIVE: Ahsoka actor Eman Esfandi teases season 2's explosive new story as the Star Wars TV show prepares for its return.
----------
-
-# Only 7 Western Movies From The 90s Are As Great As Tombstone
-
-Movies, Tombstone, The Quick and the Dead, Maverick, Unforgiven, Ride with the Devil, Wyatt Earp, Dead Man, Dances With Wolves
-
-Tue, 28 Jul 2026 14:45:11 GMT
-
-https://screenrant.com/western-movies-90s-as-good-as-tombstone/
-
-Tombstone is a timeless classic and a beloved Western. It also released alongside other heavy hitters during the 90s you won't want to miss.
----------
-
-# Star Trek's 6 Greatest Borg Moment of All Time
-
-TV, Star Trek
-
-Tue, 28 Jul 2026 14:30:11 GMT
-
-https://screenrant.com/star-trek-borg-best-moments/
-
-The scariest moments.
----------
-
-# 14 Years Later, HBO's Controversial 3-Part Series Still Has One Of TV's Best Opening Scenes
-
-Classic TV, Masked Recs
-
-Tue, 28 Jul 2026 14:30:11 GMT
-
-https://screenrant.com/the-newsroom-hbo-series-best-opening-scenes/
-
-Over the course of its run, HBO's historical fiction series proved to be divisive, but its viral opening monologue remains an instant classic.
----------
-
-# Mass Effect 5 Setting Officially Confirmed
-
-Gaming, Mass Effect
-
-Tue, 28 Jul 2026 14:22:44 GMT
-
-https://screenrant.com/mass-effect-5-setting-confirmed/
-
-The setting of Mass Effect 5 may have already been revealed without us noticing — but could this fan theory have survived BioWare’s recent troubles?
----------
-
-# Ryan Gosling Transforms Into The MCU’s Ghost Rider With Fiery Comic Cover Fan Art Recreation
-
-Movies, Ghost Rider, Marvel Cinematic Universe
-
-Tue, 28 Jul 2026 14:21:29 GMT
-
-https://screenrant.com/ryan-gosling-ghost-rider-mcu-transformation-comic-cover-recreation-fan-art/
-
-Ryan Gosling transforms into the next Ghost Rider for the MCU with a fiery comic cover recreated through fan art of his upcoming role.
----------
-
-# Macaulay Culkin Reportedly Eyeing Home Alone Return For New Movie After 34 Years
-
-Movies, Home Alone
-
-Tue, 28 Jul 2026 14:15:17 GMT
-
-https://screenrant.com/home-alone-reboot-macaulay-culkin-disney-return/
-
-After 34 years, Macaulay Culkin is reportedly looking to return in a new Home Alone movie, and this is the perfect path forward for the hit franchise.
----------
-
-# Dexter: Resurrection Season 2 First Look Photos Reveal New and Returning Stars
-
-TV, Dexter: Resurrection
-
-Tue, 28 Jul 2026 15:00:15 GMT
-
-https://www.cbr.com/dexter-resurrection-season-2-first-look-official/
-
-The first official look at Dexter: Resurrection Season 2 has been unveiled, showcasing the new and returning stars.
----------
-
-# 5 Classic Anime That Will Never Fall Out of Fashion
-
-Anime, Dragon Ball Z, Neon Genesis Evangelion
-
-Tue, 28 Jul 2026 15:00:15 GMT
-
-https://www.cbr.com/classic-anime-never-fall-out-of-fashion/
-
-Not every influential series ages gracefully, but these anime continue to win over new generations of fans.
----------
-
-# The Walking Dead Cast Roasts Jeffrey Dean Morgan | SDCC 2026
-
-TV, The Walking Dead: Dead City
-
-Tue, 28 Jul 2026 14:38:49 GMT
-
-https://www.cbr.com/video/the-walking-dead-cast-roasts-jeffrey-dean-morgan-sdcc-2026/
-
-Jeffrey Dean Morgan's unexpected obsession with babies became one of the funniest running jokes behind the scenes of The Walking Dead: Dead City at SDCC 2026.
----------
-
-# Tauriel's Storyline in The Hobbit Was Almost Complete Different
-
-Movies, The Hobbit, The Lord of the Rings
-
-Tue, 28 Jul 2026 14:30:15 GMT
-
-https://www.cbr.com/the-hobbit-tauriel-romance-almost-didnt-happen/
-
-One of the most controversial aspects of Peter Jackson's The Hobbit trilogy was missing from early drafts, but the director was wise to change it.
----------
-
-# 10 Funniest Apple TV Shows With Zero Bad Episodes
-
-TV, Comedy, Apple TV, Your Friends and Neighbors, Widow's Bay, Platonic
-
-Tue, 28 Jul 2026 14:30:15 GMT
-
-https://www.cbr.com/funniest-apple-tv-shows-list/
-
-Apple TV has produced some of the most critically-acclaimed comedy series in recent memory, keeping us laughing from start to finish.
----------
-
-# 5 Greatest Anime With The Most Shocking Opening Scene
-
-Anime, Puella Magi Madoka Magica, Attack on Titan
-
-Tue, 28 Jul 2026 14:15:15 GMT
-
-https://www.cbr.com/greatest-anime-most-shocking-opening-scenes/
-
-Often, a truly great anime can be identified immediately by their shocking first scenes.
----------
-
-# Alice in Wonderland Officially Returns With an Unexpected New Spinoff Movie
-
-Movies, Alice in Wonderland
-
-Tue, 28 Jul 2026 14:12:36 GMT
-
-https://www.cbr.com/mad-hatter-animated-spinoff-amazon-mgm-studios/
-
-Alice in Wonderland fans are about to get an unexpected spinoff about one of the story's most iconic characters from a surprising creative team.
 ---------
