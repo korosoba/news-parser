@@ -1,3 +1,300 @@
+# Pirates Of The Caribbean: Davy Jones Officially Arrives 2027
+
+Gaming, Pirates of the Caribbean, Pirates of the Caribbean: Dead Man's Chest, Pirates of the Caribbean: At World's End, Pirates of the Caribbean: On Stranger Tides, Pirates of the Caribbean: Dead Men Tell No Tales, PC
+
+Wed, 29 Jul 2026 05:00:11 GMT
+
+https://screenrant.com/pirates-of-the-caribbean-davy-jones-2027-statue/
+
+Pirates of the Caribbean is officially celebrating Davy Jones in a stunning new release that's slated to drop in 2027.
+---------
+
+# Far Cry 3: Project Medusa Is Coming
+
+Gaming, Far Cry, Ubisoft, PC
+
+Wed, 29 Jul 2026 04:00:15 GMT
+
+https://screenrant.com/far-cry-3-project-medusa-cut-content/
+
+Far Cry 3: Project Medusa is on the way, and it is vastly improving the original game with a lot of brand-new content.
+---------
+
+# Stranger Things Returns To Hawkins For 6 Episode Spinoff, And It's Not Releasing On Netflix
+
+Comics, Stranger Things, Webtoon
+
+Wed, 29 Jul 2026 03:50:11 GMT
+
+https://screenrant.com/stranger-things-webtoon-hawkins-six-spinoff/
+
+The next major spinoff, as teased by its host platform, returns to Hawkins Lab with a different take on an older test subject.
+---------
+
+# What About The MCU’s Other Ghost Riders?
+
+Superheroes, Ghost Rider, Marvel Cinematic Universe, Agents of S.H.I.E.L.D.
+
+Wed, 29 Jul 2026 03:30:11 GMT
+
+https://screenrant.com/what-about-the-mcus-other-ghost-riders/
+
+Ryan Gosling being cast as a new Ghost Rider is very exciting, though we should ask what this might mean for the MCU's past Ghost Riders.
+---------
+
+# Apple TV’s Mind-Bending Multiversal Sci-Fi Officially Returns In Just 1 Month
+
+Streaming TV, Masked Recs
+
+Wed, 29 Jul 2026 03:16:33 GMT
+
+https://screenrant.com/apple-tv-dark-matter-season-2-return-august/
+
+Apple TV+ is the ultimate sci-fi streamer, and their mind-bending, multiversal sci-fi series is officially returning in just one month.
+---------
+
+# 2026's Biggest Isekai Powerhouse Is Returning, And It's Only 2 Weeks Away
+
+Anime, Re:Zero -Starting Life in Another World-
+
+Wed, 29 Jul 2026 03:00:11 GMT
+
+https://screenrant.com/re-zero-best-isekai-2026-part-2-return/
+
+Returning this August, the biggest isekai story is bringing one of the dark fantasy genre's most acclaimed storylines to life.
+---------
+
+# Valheim Meets The Odyssey In This Huge New Open-World Survival RPG
+
+Gaming, Valheim, The Odyssey, PC, Steam
+
+Wed, 29 Jul 2026 03:00:11 GMT
+
+https://screenrant.com/valheim-meets-odyssey-open-world-survival-rpg/
+
+Fans of The Odyssey and Valheim enthusiasts will absolutely want to try out this brand-new massive open-world survival RPG.
+---------
+
+# Silo Season 4’s Confirmed 2027 Release Fixes An Annoying Apple TV Streaming Trend
+
+Streaming TV, Silo
+
+Wed, 29 Jul 2026 03:00:11 GMT
+
+https://screenrant.com/silo-season-4-2027-release-apple-tv-streaming-issue/
+
+Silo season 4 has been scheduled to premiere in Summer 2027, which seems to finally bring an end to an annoying sci-fi streaming trend on Apple TV.
+---------
+
+# Running Point Season 3’s First Story Details Revealed
+
+TV, Running Point
+
+Wed, 29 Jul 2026 02:46:23 GMT
+
+https://screenrant.com/running-point-season-3-story-details-mindy-kaling/
+
+Netflix's sports comedy series Running Point, which stars Kate Hudson, gets its first season 3 story details revealed by co-creator Mindy Kaling.
+---------
+
+# 10 Smartest Characters In Star Trek History, Ranked
+
+Classic TV, Star Trek
+
+Wed, 29 Jul 2026 02:30:11 GMT
+
+https://screenrant.com/smartest-star-trek-characters-ranked/
+
+The Star Trek franchise has featured many intelligent characters over its 60+-year history, and these 10 rank as the smartest of this large group.
+---------
+
+# Gundam Wing Debuts Bandai's Most Advanced Gunpla Technology Ever
+
+Anime, Mobile Suit Gundam, merchandise, Gundam Wing: Endless Waltz, bandai, toys
+
+Wed, 29 Jul 2026 03:59:14 GMT
+
+https://www.cbr.com/gundam-wing-zero-structural-coating-black-bandai-release/
+
+As super-deformed version of one of the most iconic Gundam is being reimagined with a new coat of paint, courtesy of Bandai's latest innovation.
+---------
+
+# 6 Horror Movies With Perfect Third Acts
+
+Movies, Horror
+
+Wed, 29 Jul 2026 03:45:15 GMT
+
+https://www.cbr.com/horror-movies-with-perfect-third-acts-list/
+
+These six horror films delivered finales so intense and unforgettable that fans are still obsessing over them years later.
+---------
+
+# Timothy Olyphant's Gritty Anti-Yellowstone Series Is HBO's Only Perfect Western
+
+TV, hbo, Deadwood, Western
+
+Wed, 29 Jul 2026 03:30:15 GMT
+
+https://www.cbr.com/hbo-deadwood-perfect-anti-yellowstone-western-series/
+
+Yellowstone revitalized the love for Westerns, but HBO was on the cutting edge when it delivered the best two decades ago.
+---------
+
+# Hunter x Hunter Officially Crowns Its No. 1 Character (And It's Not Gon or Killua)
+
+Anime, Hunter X Hunter
+
+Wed, 29 Jul 2026 03:05:14 GMT
+
+https://www.cbr.com/hunter-x-hunter-character-popularity-poll-animate-times/
+
+A new Hunter x Hunter popularity poll has revealed the top 20 characters from the series.
+---------
+
+# JUMANJI: OPEN WORLD - Official Trailer
+
+Movies, Jumanji: Open World
+
+Wed, 29 Jul 2026 02:58:27 GMT
+
+https://www.cbr.com/video/jumanji-open-world-official-trailer/
+
+One. Last. Game.The final countdown begins. Watch the new trailer for #Jumanji: Open World - exclusively in theatres Christmas Day.
+---------
+
+# The Best Sega Genesis Game Is a 10/10 Masterpiece 32 Years Later
+
+Games, Sega Genesis, Sonic the Hedgehog, sega
+
+Wed, 29 Jul 2026 02:45:15 GMT
+
+https://www.cbr.com/sonic-3-best-sega-genesis-game/
+
+Sonic 3 & Knuckles has never been more clearly the greatest Sega Genesis masterpiece of all time.
+---------
+
+# The Rock's Beloved Adventure Franchise Officially Returns After 7 Years
+
+Movies, Jumanji: Open World
+
+Wed, 29 Jul 2026 02:32:58 GMT
+
+https://www.cbr.com/the-rock-jumanji-open-world-official-trailer/
+
+The Rock's iconic adventure franchise is coming to a close with one final installment, and a new trailer teases the hilarious action that's on the way
+---------
+
+# 4 10/10 Masterpiece Anime Even Better Than JJK
+
+Anime, Jujutsu Kaisen, Hunter X Hunter, Neon Genesis Evangelion
+
+Wed, 29 Jul 2026 02:30:15 GMT
+
+https://www.cbr.com/masterpiece-anime-better-than-jujutsu-kaisen/
+
+Jujutsu Kaisen is one of the best anime, but these four series might just be even better.
+---------
+
+# HBO Finally Changes Game of Thrones' 15-Year-Old Rule for Character Deaths
+
+TV, House of the Dragon, Game Of Thrones, HBO Max
+
+Wed, 29 Jul 2026 02:00:25 GMT
+
+https://www.cbr.com/hbo-house-of-the-dragon-criston-cole-death/
+
+The Game of Thrones universe is known for climactic character deaths, but finally, one HBO show rebels against tradition.
+---------
+
+# 5 Fantasy Books That Are Perfectly Written
+
+Movies, books, Fantasy, The Last Unicorn
+
+Wed, 29 Jul 2026 02:00:25 GMT
+
+https://www.cbr.com/perfect-fantasy-books-list/
+
+Some fantasy books are thought to be excellently crafted or even masterpieces, but there are fewer that are considered to be perfectly written.
+---------
+
+# Apple TV’s Forgotten 7-Episode True Crime Miniseries Is Too Good To Miss for ‘Mare of Easttown’ Fans
+
+TV Features, Lady in the Lake, Natalie Portman, Apple TV, Moses Ingram
+
+Wed, 29 Jul 2026 04:45:14 GMT
+
+https://collider.com/lady-in-the-lake-apple-tv-forgotten-true-crime-miniseries/
+
+Apple TV's Lady in the Lake is a captivating mystery series similar to Mare of Easttown, with its dark themes and intense performances.
+---------
+
+# Say Goodbye to These 8 Netflix Shows Before They Officially Leave Streaming
+
+TV, Netflix, Fear the Walking Dead, A Discovery of Witches, Home Improvement
+
+Wed, 29 Jul 2026 04:27:14 GMT
+
+https://collider.com/netflix-shows-leaving-streaming-august-2026/
+
+Shows come and go on Netflix, with even some originals leaving the streamer. Make sure to watch these series before they're gone.
+---------
+
+# This 2017 Dark Fantasy Book Has the Best Opening Line of the Last 10 Years
+
+Books and Comics, Books, Fantasy, Science Fiction, Adventure
+
+Wed, 29 Jul 2026 03:26:14 GMT
+
+https://collider.com/red-sister-mark-lawrence-fantasy-book-best-opening-line-last-10-years/
+
+Mark Lawrence's 2017 fantasy book Red Sister features a killer opening line to introduce its powerful story of sisterhood, fate, agency, and magic.
+---------
+
+# 8 Most Perfect Movies of the Past 6 Years, Ranked
+
+Movie, Asteroid City, Sinners, Flow, One Battle After Another
+
+Wed, 29 Jul 2026 03:18:14 GMT
+
+https://collider.com/most-perfect-movies-past-6-years-ranked/
+
+Asteroid City, Babylon, Poor Things, One Battle After Another, Sinners, and more make up our list of the most perfect movies of the last six years.
+---------
+
+# Apple TV’s ‘Ted Lasso’ Is Entering a Whole New Era With a Major Team Shake-Up
+
+TV, Ted Lasso, Jason Sudeikis, Brett Goldstein, Hannah Waddingham
+
+Wed, 29 Jul 2026 03:02:14 GMT
+
+https://collider.com/ted-lasso-season-4-lady-greyhound-new-cast-list-guide/
+
+Ted Lasso returns for Season 4 with a whole new cast of players.
+---------
+
+# Netflix's 10 Biggest Fall 2026 Releases We Can't Wait For
+
+TV Lists, Netflix
+
+Wed, 29 Jul 2026 02:38:24 GMT
+
+https://movieweb.com/netflix-biggest-fall-2026-releases/
+
+Netflix has a lot of exciting movies and shows planned for the fall, and many of the biggest releases continue already beloved stories.
+---------
+
+# 10 Dark Fantasy TV Shows Made For Adults
+
+TV Lists, Fantasy, Game Of Thrones, The Witcher
+
+Wed, 29 Jul 2026 02:00:22 GMT
+
+https://movieweb.com/dark-fantasy-tv-shows-adults/
+
+These dark fantasy TV shows are aimed at adult audiences and have some fantastic world-building.
+---------
+
 # The Office: Jim & Pam's Relationship Timeline, Season By Season
 
 Classic TV, The Office, Movie/TV Show Timelines
@@ -5199,301 +5496,4 @@ Mon, 27 Jul 2026 17:57:10 GMT
 https://www.cbr.com/michael-starz-release-date-august-2026/
 
 One of the highest-grossing films of the year is heading to streaming.
----------
-
-# Halo: Campaign Evolved Is a New Era for the Franchise After 25 Years
-
-Games, Halo
-
-Mon, 27 Jul 2026 17:45:15 GMT
-
-https://www.cbr.com/halo-campaign-evolved-review-new-era/
-
-Halo celebrates its 25th anniversary with a faithful and gorgeous remake of its first game that heads Master Chief’s biggest rival: PlayStation.
----------
-
-# The Odyssey Expert Who Inspired Christopher Nolan Blasts Movie: ‘I’d Be Ashamed’
-
-Movies, The Odyssey, Fantasy
-
-Mon, 27 Jul 2026 17:38:35 GMT
-
-https://www.cbr.com/the-odyssey-emily-wilson-blasts-christopher-nolan-movie-ashamed/
-
-Emily Wilson, whose 2017 translation of The Odyssey inspired Chrsitopher Nolan's blockbuster, has some harsh things to say about the movie.
----------
-
-# 34 Years Later, Superman’s Most Famous Death Story Got a Brilliant New Twist
-
-TV, My Adventures With Superman, Superman, Adult Swim, DC Comics
-
-Mon, 27 Jul 2026 17:30:16 GMT
-
-https://www.cbr.com/my-adventures-with-superman-death-of-superman-twist/
-
-My Adventures With Superman explores a cultural milestone that has been adapted many times, yet the show remixed it brilliantly.
----------
-
-# Fourth Wing Officially Returns This July With Rise of the Wingleader
-
-Games, Fourth Wing
-
-Mon, 27 Jul 2026 17:22:49 GMT
-
-https://www.cbr.com/fourth-wing-rise-of-the-wingleader-game/
-
-The newest Fourth Wing release is now available for fans of the hit Rebecca Yarros story.
----------
-
-# 9 Greatest Prime Video Shows of 2026 So Far
-
-TV, Prime Video, Ride or Die, Off Campus, Elle
-
-Mon, 27 Jul 2026 18:23:15 GMT
-
-https://collider.com/best-prime-video-shows-2026-ranked/
-
-From the romance adaptation Off Campus to the action buddy comedy adventure Ride or Die, which 2026 Prime Video show is the best of the year?
----------
-
-# Forget ‘Avatar,’ This 8-Part Netflix Drama Is Zoe Saldaña’s Best Performance
-
-TV Features, From Scratch, Avatar, Zoe Saldana, Netflix
-
-Mon, 27 Jul 2026 18:18:15 GMT
-
-https://collider.com/zoe-saldana-best-performance-from-scratch-netflix-series/
-
-Zoe Saldaña delivers one of her most emotional performances in Netflix’s From Scratch, a moving drama about love, family, and grief.
----------
-
-# Ransom Canyon S2: Josh Duhamel Faced His Horse Fear | Set Stories
-
-TV, Ransom Canyon
-
-Mon, 27 Jul 2026 18:16:15 GMT
-
-https://collider.com/video/ransom-canyon-s2-josh-duhamel-faced-his-horse-fear-set-stories/
-
-Go behind the scenes of Ransom Canyon as Josh Duhamel and Minka Kelly share the preparation, routines, and unexpected discoveries that made filming Netflix's romantic Western such a memorable experience.
----------
-
-# Nathan Fillion Reveals His All-Time Favorite Sci-Fi Franchise — and It Isn't 'Firefly' [Exclusive]
-
-TV News, Nathan Fillion, The Rookie, Star Trek: The Next Generation, San Diego Comic-Con
-
-Mon, 27 Jul 2026 18:00:16 GMT
-
-https://collider.com/nathan-fillion-favorite-sci-fi-franchise-star-trek/
-
-The Rookie star Nathan Fillion officially reveals his favorite sci-fi universe, and it's not the one you think it is.
----------
-
-# 'Tracker' Officially Returns in 3 Months
-
-TV News, Tracker, Justin Hartley, CBS, Jensen Ackles
-
-Mon, 27 Jul 2026 17:41:59 GMT
-
-https://collider.com/tracker-season-4-release-date-cbs/
-
-Tracker Season 4 officially returns to CBS in October , bringing Justin Hartley back as reward seeker Colter Shaw.
----------
-
-# Taylor Sheridan's Hit 'Yellowstone' Spin-Off Is Officially Returning for Season 2 This Fall
-
-TV News, Marshals, Taylor Sheridan, CBS, Luke Grimes
-
-Mon, 27 Jul 2026 17:29:57 GMT
-
-https://collider.com/marshals-season-2-release-date-cbs/
-
-CBS has officially set a release date for Season 2 of Taylor Sheridan’s hit Yellowstone spin-off, Marshals.
----------
-
-# Harlan Coben's Hit CBS Crime Series Officially Returns in 3 Months
-
-TV News, Harlan Coben's Final Twist, Harlan Coben, CBS, Documentary
-
-Mon, 27 Jul 2026 17:26:13 GMT
-
-https://collider.com/harlan-cobens-final-twist-season-2-release-date-cbs/
-
-Harlan Coben’s Final Twist Season 2 officially lands its CBS premiere date, confirming when the hit true-crime series will return.
----------
-
-# Taylor Sheridan's Best Action Thriller Series Officially Returns in Less Than a Week
-
-TV News, Lioness, Taylor Sheridan
-
-Mon, 27 Jul 2026 18:07:49 GMT
-
-https://movieweb.com/lioness-season-3-final-trailer-paramount/
-
-One of the best action thrillers on streaming is officially back.
----------
-
-# Star Trek's 'Original Series' Prequel Catches up to the Classic Show Sooner Than Expected
-
-Features, star trek: strange new worlds, Star Trek: The Original Series, Star Trek
-
-Mon, 27 Jul 2026 18:00:13 GMT
-
-https://movieweb.com/star-trek-strange-new-worlds-captain-kirk-reveal/
-
-Captain Kirk is obviously going to end 'Strange New Worlds' in the big chair, but is that happening sooner rather than later? Read on for more.
----------
-
-# Taylor Sheridan's 3-Part Crime Thriller Is Officially One of the Biggest Shows in the World
-
-TV News, Tulsa King, Paramount Plus, Hot on Streaming, Taylor Sheridan
-
-Mon, 27 Jul 2026 18:00:13 GMT
-
-https://movieweb.com/tulsa-king-taylor-sheridan-stream-paramount-july-2026/
-
-Before its new spin-off, 'Frisco King,' Taylor Sheridan's crime thriller 'Tulsa King' is a global streaming success on Paramount+.
----------
-
-# 28 Years Later, Supernatural Fantasy Cult Classic Sets New Release Ahead of 2026 Sequel
-
-Movie News, Practical Magic, Practical Magic 2
-
-Mon, 27 Jul 2026 17:54:21 GMT
-
-https://movieweb.com/practical-magic-4k-blu-ray-release/
-
-Warner Bros. Home Entertainment is preparing a 4K Blu-ray release of the 1998 fantasy classic 'Practical Magic' before the sequel arrives in theaters.
----------
-
-# Idris Elba's Long-Awaited Action Fantasy Epic Is Unleashed in Stunning First Teaser
-
-Movie News, Children of Blood and Bone
-
-Mon, 27 Jul 2026 17:46:19 GMT
-
-https://movieweb.com/children-of-blood-and-bone-first-teaser/
-
-Idris Elba stars in the long-awaited big-screen adaptation of Tomi Adeyemi's bestselling fantasy novel 'Children of Blood and Bone,' set in a world where magic has been outlawed.
----------
-
-# Destin Daniel Cretton On Spider-Man: Brand New Day, Shang-Chi 2, Avengers 5 & Marvel
-
-New Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man, Cover Story, Shang-Chi 2, Shang-Chi and the Legend of the Ten Rings
-
-Mon, 27 Jul 2026 17:02:06 GMT
-
-https://screenrant.com/destin-daniel-cretton-interview-spider-man-brand-new-day/
-
-Spider-Man: Brand New Day’s Destin Daniel Cretton used to think superhero movies weren’t for him. Now, he’s one of Marvel’s most trusted filmmakers.
----------
-
-# Attack Of The Killer Tomatoes Sequel Trailer Weaponizes Organic Intelligence
-
-Videos, San Diego Comic-Con, Attack of the Killer Tomatoes, Horror
-
-Mon, 27 Jul 2026 17:00:11 GMT
-
-https://screenrant.com/video/attack-of-the-killer-tomatoes-organic-intelligence-trailer/
-
-Exclusive: ScreenRant presents a post-SDCC look at the trailer for Attack of the Killer Tomatoes: Organic Intelligence, invading theaters this August.
----------
-
-# YouTube Officially Adds Streaming Platform With 44+ Million Subscribers To Premium Tier
-
-TV, YouTube, Peacock
-
-Mon, 27 Jul 2026 16:53:11 GMT
-
-https://screenrant.com/youtube-peacock-premium-partnership-subscription-deal-details/
-
-As subscription bundles become more common, YouTube is getting in on the action with a major announcement as it partners with a streaming service.
----------
-
-# 10 Greatest Sci-Fi Space Opera Movies Of All Time, Ranked
-
-Movies, Sci-Fi, Ranking
-
-Mon, 27 Jul 2026 16:45:11 GMT
-
-https://screenrant.com/best-sci-fi-space-opera-movies-all-time-ranked/
-
-With their larger-than-life stories set in the far reaches of outer space, the best space opera movies of all time add a touch of theatrics to sci-fi.
----------
-
-# Predator Announces Crossover With $4 Billion Mega-Franchise, And It's Only 4 Months Away
-
-Marvel Comics, Predator, San Diego Comic-Con
-
-Mon, 27 Jul 2026 16:30:11 GMT
-
-https://screenrant.com/predator-next-marvel-crossover-punisher-details/
-
-The next Predator crossover has been announced at San Diego Comic-Con 2026, with a Yautja warrior coming to New York in search for his greatest prize.
----------
-
-# Prime Video's 10/10 Fantasy Universe With 56 Episodes Deserves Its Masterpiece Status
-
-Streaming TV, Masked Recs
-
-Mon, 27 Jul 2026 16:30:11 GMT
-
-https://screenrant.com/vox-machina-mighty-nein-prime-video-fantasy-universe/
-
-An unexpected pair of fantasy shows on Prime Video have mastered balancing comedy, tragedy, and action so well they're now the genre's best.
----------
-
-# 5 N64 Games That Are 10/10 Masterpieces, No Notes
-
-Gaming, Nintendo
-
-Mon, 27 Jul 2026 16:30:11 GMT
-
-https://screenrant.com/5-n64-games-10-rated-masterpieces/
-
-Discover the 5 greatest Nintendo 64 games, including Super Mario 64, Star Fox 64, Banjo-Kazooie, Goldeneye 007, and Zelda Ocarina of Time.
----------
-
-# Spider-Man Has Taken Over Disney+ In America At The Ideal Time
-
-Superheroes, Spider-Man, Marvel Cinematic Universe
-
-Mon, 27 Jul 2026 16:15:11 GMT
-
-https://screenrant.com/spider-man-movies-disney-plus-takeover-july-2026/
-
-Disney+ has been completely overtaken by a single character, who has half of the top trending movies, and the timing couldn't be more perfect.
----------
-
-# All 5 Avatar: The Last Airbender Movies & TV Shows, Ranked
-
-Movies, Avatar, pregnant, The Legend of Korra
-
-Mon, 27 Jul 2026 16:05:35 GMT
-
-https://screenrant.com/avatar-last-airbender-movies-tv-shows-ranked/
-
-Discover the ultimate ranking of all Avatar: The Last Airbender movies and TV shows, from live-action remakes to original animated masterpieces.
----------
-
-# See More Of Kara & Ruthye's Shopping Trip In New Supergirl Clip
-
-Exclusive, Supergirl, DC Universe
-
-Mon, 27 Jul 2026 16:00:11 GMT
-
-https://screenrant.com/video/supergirl-kara-ruthye-shopping-trip-digital-release-clip/
-
-Exclusive: ScreenRant presents a Supergirl extended scene, featuring more of Kara & Ruthye's galactic shopping trip, to celebrate the digital release.
----------
-
-# 20 Years Later, This Ghost Rider Story Too Dark for the MCU Is a Comic You Should Be Reading
-
-Comics, Ghost Rider, Comics You Should Be Reading, Marvel
-
-Mon, 27 Jul 2026 17:00:15 GMT
-
-https://www.cbr.com/ghost-rider-road-to-damnation-comics-you-should-be-reading/
-
-Garth Ennis and Clayton Crain's hauntingly gruesome Ghost Rider may be too dark for the MCU, but it's a must-read for fans of the Spirit of Vengeance.
 ---------
