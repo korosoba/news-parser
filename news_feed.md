@@ -1,3 +1,58 @@
+# 15 Years Later, This Iconic Zombie Horror Franchise Is Finally Coming Back From The Dead
+
+Gaming, Upcoming Games, Indie Games
+
+Wed, 29 Jul 2026 06:19:04 GMT
+
+https://screenrant.com/no-more-room-in-hell-2-2026-release/
+
+After well over a decade, this acclaimed zombie series is finally returning with a brand-new sequel you can experience for yourself soon.
+---------
+
+# The Walking Dead Fan-Favorite Character Officially Returns In New Season
+
+Gaming, The Walking Dead, The Walking Dead: Dead City, PC
+
+Wed, 29 Jul 2026 06:00:11 GMT
+
+https://screenrant.com/the-walking-dead-no-mans-land-dead-city-season-3/
+
+One of The Walking Dead's fan-favorite characters is making an official return in a brand-new season, available to check out now.
+---------
+
+# Justice League: Darkseid Officially Arrives 2027
+
+Gaming, Justice League, Zack Snyder's Justice League, Darkseid, PC
+
+Wed, 29 Jul 2026 05:30:11 GMT
+
+https://screenrant.com/justice-league-darkseid-2027-statue/
+
+Justice League: Darkseid is getting an official 2027 release featuring the return of one of DC's most iconic and foreboding villains.
+---------
+
+# ‘Silent Hill: Townfall’ Officially Confirms 5 Different Endings, But There's a Catch
+
+Exclusives, Silent Hill: Townfall, Silent Hill, Video Game, Horror
+
+Wed, 29 Jul 2026 07:00:15 GMT
+
+https://collider.com/silent-hill-townfall-five-endings-non-canon/
+
+Silent Hill: Townfall features five endings influenced by player choices and behavior, with no single canon conclusion, according to developers.
+---------
+
+# Three Hours of 'Silent Hill: Townfall' Left Me With More Questions Than Answers | Preview
+
+Gaming, Silent Hill, Games, Konami
+
+Wed, 29 Jul 2026 07:00:15 GMT
+
+https://collider.com/silent-hill-townfall-hands-on-preview-first-impressions-positive/
+
+Collider's Silent Hill: Townfall preview explores the game's first-person horror, CRTV mechanic, combat, and why its mystery left us wanting more.
+---------
+
 # Pirates Of The Caribbean: Davy Jones Officially Arrives 2027
 
 Gaming, Pirates of the Caribbean, Pirates of the Caribbean: Dead Man's Chest, Pirates of the Caribbean: At World's End, Pirates of the Caribbean: On Stranger Tides, Pirates of the Caribbean: Dead Men Tell No Tales, PC
@@ -5441,59 +5496,4 @@ Mon, 27 Jul 2026 18:50:15 GMT
 https://www.cbr.com/game-of-thrones-the-children-of-the-forest-return-july-29/
 
 Game of Thrones is bringing back George R. R. Martin's oldest idea with the Children of the Forest making their grand return.
----------
-
-# The Best Anime of the 2000s Is a 10/10 Masterpiece 20 Years Later
-
-Anime, Mushishi
-
-Mon, 27 Jul 2026 18:16:15 GMT
-
-https://www.cbr.com/best-anime-of-the-2000s-that-holds-mushi-shi/
-
-One of the most stunning anime of the 2000s is still an absolute masterpiece, even over 20 years after it initially aired.
----------
-
-# Final Fantasy 9 Remake Gets Official Update From Square Enix
-
-Games, Final Fantasy
-
-Mon, 27 Jul 2026 18:05:16 GMT
-
-https://www.cbr.com/final-fantasy-9-remake-official-update-square-enix/
-
-Square Enix just gave fans a major update on the status of the hotly-anticipated Final Fantasy IX remake, although it probably isn't coming soon.
----------
-
-# Tom King Reveals The Green Lantern Comics You Should Read Before Lanterns
-
-CBR Exclusives, Lanterns, San Diego Comic-Con
-
-Mon, 27 Jul 2026 18:00:16 GMT
-
-https://www.cbr.com/lanterns-tom-king-reveals-must-read-green-lantern-comics-sdcc/
-
-Every comic book TV show comes with homework, including Lanterns.
----------
-
-# The 10 Most Important X-Men Relationships the MCU Needs to Get Right
-
-Comics, X-Men
-
-Mon, 27 Jul 2026 18:00:16 GMT
-
-https://www.cbr.com/x-men-relationships-the-mcu-needs-to-get-right/
-
-Some relationships in X-Men comics are too iconic to get wasted in live action.
----------
-
-# Michael Finally Sets Streaming Release Date After Breaking Records
-
-Movies, Michael
-
-Mon, 27 Jul 2026 17:57:10 GMT
-
-https://www.cbr.com/michael-starz-release-date-august-2026/
-
-One of the highest-grossing films of the year is heading to streaming.
 ---------
