@@ -1,3 +1,399 @@
+# The 25 Best Medieval TV Shows, Ranked
+
+Classic TV, History
+
+Wed, 29 Jul 2026 18:00:12 GMT
+
+https://screenrant.com/best-medieval-history-shows-ranked/
+
+Medieval settings can make for interesting stories whether it's Viking Europe or Kublai Khan's Asia. Here are the best medieval TV shows available.
+---------
+
+# New 9/10 Open-World RPG Is Like Crimson Desert Meets Zelda: Breath Of The Wild
+
+Gaming, RPG, PC, Triple-A Games
+
+Wed, 29 Jul 2026 18:00:11 GMT
+
+https://screenrant.com/crimson-desert-meets-zelda-open-world-rpg/
+
+A new open-world RPG with 9/10 review scores has just been released, and it may be a great successor to Crimson Desert and Zelda games.
+---------
+
+# 16 Years Later, Disney Finally Drops The Official Tangled Sequel Fans Have Waited For
+
+Books, Disney, Tangled
+
+Wed, 29 Jul 2026 17:34:03 GMT
+
+https://screenrant.com/tangled-sequel-rootbound-disney/
+
+Sixteen years after the original film's theatrical debut, Disney has finally released an official sequel to Tangled, but it's not what you may expect.
+---------
+
+# One Of The MCU's Best Trilogies Returns In Less Than 3 Months
+
+Streaming TV, Masked Recs, Marvel Cinematic Universe
+
+Wed, 29 Jul 2026 17:30:11 GMT
+
+https://screenrant.com/wandavision-mcu-best-trilogy-returns-visionquest/
+
+As the MCU moves towards the end of the Multiverse Saga, one of the franchise's best trilogies will finally conclude in less than three months.
+---------
+
+# The Best Comic Issue Of The Year Hits Shelves Today
+
+Marvel Comics, Marvel
+
+Wed, 29 Jul 2026 17:27:09 GMT
+
+https://screenrant.com/mortal-thor-best-comic/
+
+The best comic of 2026 so far presents a single-issue tragedy that completely changes how readers will see an underrated mythical hero.
+---------
+
+# Netflix’s R-Rated Dark Fantasy Streaming Sensation Deserves A Second Season
+
+TV, Masked Recs
+
+Wed, 29 Jul 2026 17:16:22 GMT
+
+https://screenrant.com/the-east-palace-netflix-deserves-season-2/
+
+A new dark fantasy series has become one of Netflix's biggest international hits of 2026 so far, and deserves to continue into season 2.
+---------
+
+# Reacher Season 5 Confirms Return Of Major Star After Season 4 Recasting
+
+TV, Reacher, Jack Reacher
+
+Wed, 29 Jul 2026 17:13:03 GMT
+
+https://screenrant.com/reacher-season-5-cast-jay-baruchel-return-season-4-recast/
+
+Reacher season 5 is adding multiple new stars to its cast, including one major star who was previously recast during production of season 4.
+---------
+
+# New Version Of Original IT Movie Being Released Next Month Ahead Of Welcome To Derry S2
+
+Movies, It, IT
+
+Wed, 29 Jul 2026 17:11:29 GMT
+
+https://screenrant.com/it-movie-cosm-shared-reality-experience-release-date/
+
+Almost a decade after being released in theaters, the big screen adaptation of Stephen King’s IT is getting a unique new release this summer.
+---------
+
+# Christopher Nolan's The Odyssey Hits Massive Box Office Milestone Quicker Than His All-Time Highest-Grossing Film
+
+Movies, The Odyssey, Box Office
+
+Wed, 29 Jul 2026 17:11:07 GMT
+
+https://screenrant.com/the-odyssey-2026-christopher-nolan-320m-domestic-box-office-milestone-career-comparison/
+
+Christopher Nolan's The Odyssey surpasses a massive box-office milestone faster than the director's highest-grossing movie of all time.
+---------
+
+# House of The Dragon's Alyn Of Hull Plays Game Of Thrones: Dragonfire Prior To His Debut
+
+Gaming, House of the Dragon, Game of Thrones
+
+Wed, 29 Jul 2026 17:00:11 GMT
+
+https://screenrant.com/video/game-of-thrones-dragonfire-house-of-the-dragon-alyn-hull-reaction/
+
+Exclusive: ScreenRant presents a clip of House of the Dragon's Abubakar Salim playing Game of Thrones: Dragonfire, the newly launched mobile game.
+---------
+
+# Prime Video's New 8-Part Detective Show With 92% RT Explodes on Streaming at the Perfect Time
+
+TV, Spider-Noir, Spider-Man: Brand New Day, Prime Video
+
+Wed, 29 Jul 2026 18:01:14 GMT
+
+https://www.cbr.com/spider-noir-prime-video-detective-show-success-july-2026/
+
+Prime Video's detective series is one of the most-watched shows on TV
+---------
+
+# 10 Batman Comics That Forever Changed Bruce Wayne
+
+Comics, Batman, DC Comics, Absolute Batman
+
+Wed, 29 Jul 2026 18:01:14 GMT
+
+https://www.cbr.com/batman-comics-that-changed-bruce-wayne-forever/
+
+Since his creation back in 1939, Batman has earned his spot at the top of DC's universe, and some stories changed Bruce Wayne's story forever.
+---------
+
+# Solo Leveling Confirms Manhwa Return With New Sung Jinwoo Transformation
+
+Anime, Solo Leveling:ARISE, Solo Leveling
+
+Wed, 29 Jul 2026 17:50:15 GMT
+
+https://www.cbr.com/solo-leveling-arise-jinwoo-shadow-monarch-ragnarok-manhwa-connection/
+
+Fans waiting for the Solo Leveling: Ragnarok manhwa’s comeback just got a solid update by way of the Shadow Monarch’s Successor being added to Arise.
+---------
+
+# Paramount+'s New Avatar Show Continues Nickelodeon's Oldest Last Airbender Trend
+
+TV, Avatar: The Last Airbender, Avatar: Seven Havens
+
+Wed, 29 Jul 2026 17:30:15 GMT
+
+https://www.cbr.com/avatar-seven-havens-the-last-airbender-trend/
+
+Avatar: Seven Havens is the latest in the franchise to tackle a timeless topic that explains its apocalypse.
+---------
+
+# 5 Most Expensive Ghost-Type Pokemon Cards, Ranked by Price
+
+Games, Pokemon, Pokemon TCG, Tabletop, TCG
+
+Wed, 29 Jul 2026 17:30:15 GMT
+
+https://www.cbr.com/most-expensive-ghost-type-pokemon-cards-ranked/
+
+Ghost-type cards in the Pokemon TCG can command tens of thousands of dollars, often due to their spooky aesthetic.
+---------
+
+# 5 R-Rated 2000s Westerns Worth Watching Again and Again, Ranked
+
+Movies, Western, 3:10 to Yuma, The Proposition
+
+Wed, 29 Jul 2026 17:30:15 GMT
+
+https://www.cbr.com/most-rewatchable-r-rated-westerns-2000s-list/
+
+The 2000s served up some of the best Western movies ever made, finding strength in the R-rated dark side of the genre through a variety of gems.
+---------
+
+# Amazon Unveils Michael B. Jordan’s Remake of Pierce Brosnan’s Beloved 27-Year-Old Crime Classic
+
+Movies, The Thomas Crown Affair
+
+Wed, 29 Jul 2026 17:28:50 GMT
+
+https://www.cbr.com/michael-b-jordan-thomas-crown-affair-trailer/
+
+Michael B. Jordan's first live-action movie since winning an Oscar is almost here.
+---------
+
+# Naruto Brings Team 7 Back Together in New First-Look Trailer
+
+Anime, Naruto
+
+Wed, 29 Jul 2026 17:26:24 GMT
+
+https://www.cbr.com/naruto-tcg-first-look-trailer/
+
+The ninjas of Team 7 have reunited in a first look at a highly anticipated Naruto game that features characters from the entire franchise.
+---------
+
+# The Thomas Crown Affair (2027) Official Teaser Trailer
+
+Movies, The Thomas Crown Affair
+
+Wed, 29 Jul 2026 17:22:23 GMT
+
+https://www.cbr.com/video/the-thomas-crown-affair-2027-official-teaser-trailer/
+
+Amazon MGM Studios debuts the teaser trailer for Michael B. Jordan's remake of The Thomas Crown Affair.
+---------
+
+# The Rings of Power Had to Invent a New Camera System to Capture Its Elven Action
+
+TV, The Lord of the Rings, The Lord of the Rings: The Rings of Power, Fantasy, San Diego Comic-Con
+
+Wed, 29 Jul 2026 17:00:15 GMT
+
+https://www.cbr.com/the-lord-of-the-rings-the-rings-of-power-season-3-elf-action-sequences/
+
+The Lord of the Rings: The Rings of Power Season 3 is leaning into its Elven action, with showrunners giving a sneak peek at what to expect.
+---------
+
+# 'Spider-Man: Brand New Day' Eyes $1 Billion in Phenomenal Global Box-Office Debut
+
+Movie News, Spider-Man: Brand New Day, Box Office, Tom Holland, Zendaya
+
+Wed, 29 Jul 2026 17:59:29 GMT
+
+https://collider.com/spider-man-brand-new-day-box-office-opening-projection-1-billion/
+
+Spider-Man: Brand New Day is projected to deliver the second-biggest worldwide box office debut of all time, behind only Avengers: Endgame.
+---------
+
+# ‘John Wick’ Meets Jason Statham's ‘Crank’ in Netflix’s Newest Action Blockbuster
+
+Movie News, John Wick, The Furious, Action, Netflix
+
+Wed, 29 Jul 2026 17:56:10 GMT
+
+https://collider.com/the-debt-collector-netflix-action-movie-streaming-success-july-2026/
+
+Netflix's newest action hit, The Debt Collector, is like a cross between Keanu Reeves' John Wick and Jason Statham's Crank movies. Find out more.
+---------
+
+# Marvel’s Biggest Superhero Officially Returns in 2 Days Amid 'The Odyssey' Onslaught
+
+Movie News, Spider-Man: Brand New Day, Tom Holland, Zendaya, The Odyssey
+
+Wed, 29 Jul 2026 17:47:33 GMT
+
+https://collider.com/spider-man-brand-new-day-release-date-amid-the-odyssey-box-office-success/
+
+Spider-Man: Brand New Day is finally swinging into theaters soon. Find out when Tom Holland's Peter Parker officially returns here.
+---------
+
+# 10 Greatest Historical Video Games of All Time
+
+Gaming, Video Game, Ghost of Tsushima, History, Assassin's Creed IV: Black Flag
+
+Wed, 29 Jul 2026 17:41:14 GMT
+
+https://collider.com/best-historical-video-games-all-time-ranked/
+
+Great video games like Age of Empires and Assassin's Creed immerse us in detailed, vivid depictions of history, blending facts with engaging fiction.
+---------
+
+# Netflix’s Hit ‘Yellowstone’ Replacement Series Is Officially Taking Over Streaming
+
+TV News, Ransom Canyon, Yellowstone, Netflix, I Will Find You
+
+Wed, 29 Jul 2026 17:38:12 GMT
+
+https://collider.com/netflix-yellowstone-replacement-ransom-canyon-season-2-streaming-success-july-2026/
+
+Netflix's Yellowstone replacement, Ransom Canyon, has made a splashy return to the viewership charts in its second season. Find out more.
+---------
+
+# Guy Ritchie’s 'Young Sherlock' Is Officially Still a #1 Fan-Favorite on Prime Video
+
+TV News, Young Sherlock, Guy Ritchie, Prime Video, Hero Fiennes Tiffin
+
+Wed, 29 Jul 2026 17:26:14 GMT
+
+https://collider.com/guy-ritchie-young-sherlock-streaming-success-prime-video-july-2026/
+
+Guy Ritchie's near-perfect Prime Video crime thriller, Young Sherlock, is still the perfect weekend binge before Season 2.
+---------
+
+# Alan Ritchson's 'Reacher' Season 5 Officially Recruits a 'Cross' Star
+
+TV News, Reacher, Alan Ritchson, Prime Video, Jay Baruchel
+
+Wed, 29 Jul 2026 17:22:23 GMT
+
+https://collider.com/alan-ritchson-reacher-season-5-cast-jay-baruchel-kevin-durand-amanda-ip/
+
+Before Season 4 even debuts, Alan Ritchson's Reacher has recruited a quartet of big names for Season 5, including an alum of Prime Video's Cross.
+---------
+
+# Guillermo del Toro Officially Returns to 'It's Always Sunny in Philadelphia' in First Season 18 Trailer
+
+TV News, It's Always Sunny in Philadelphia, FX, Danny Devito, Kaitlin Olson
+
+Wed, 29 Jul 2026 17:20:54 GMT
+
+https://collider.com/its-always-sunny-in-philadelphia-season-18-trailer-guillermo-del-toro/
+
+The first trailer for It's Always Sunny in Philadelphia Season 18 has arrived, confirming the return of Guillermo del Toro's fan-favorite character. S
+---------
+
+# Karl Urban's Action Blockbuster Is a Must-Watch Streaming Hit for 'The Boys' Fans
+
+Movie News, Karl Urban, The Boys, Red, Peacock
+
+Wed, 29 Jul 2026 17:15:14 GMT
+
+https://collider.com/karl-urban-red-streaming-success-peacock-july-2026/
+
+Karl Urban's $200 million actioner with Bruce Willis and Helen Mirren is a streaming hit right now. Here's what you should know.
+---------
+
+# 'Star Trek': 10 Spock Quotes That Still Live Rent-Free in Our Heads
+
+TV Lists, Star Trek
+
+Wed, 29 Jul 2026 18:00:12 GMT
+
+https://movieweb.com/star-trek-spock-best-quotes/
+
+Spock, played by Leonard Nimoy, along with Ethan Peck and Zachary Qunto, is one of the most beloved 'Star Trek' characters with many memorable quotes.
+---------
+
+# Brooklyn Nine-Nine: The Funniest Episodes, Ranked
+
+TV Lists, Brooklyn Nine-Nine
+
+Wed, 29 Jul 2026 18:00:12 GMT
+
+https://movieweb.com/brooklyn-nine-nine-funniest-episodes-ranked/
+
+Brooklyn Nine-Nine had many hilarious episodes that highlighted its strong cast. Here are the funniest episodes, ranked.
+---------
+
+# Anthony Bourdain Biopic Lands Perfect Rotten Tomatoes Debut
+
+Movie News, Tony, Anthony Bourdain
+
+Wed, 29 Jul 2026 17:31:28 GMT
+
+https://movieweb.com/tony-rotten-tomatoes-score/
+
+'Tony', director Matt Johnson's second film of 2026 after 'Nirvanna the Band the Show the Movie' is a hit with critics.
+---------
+
+# Legendary Director Announces Final Film After 55 Years
+
+Movie News, Mike Leigh, Tender Loving Care, Mr. Turner, Naked, Hard Truths
+
+Wed, 29 Jul 2026 17:00:21 GMT
+
+https://movieweb.com/mike-leigh-tender-loving-care-final-film/
+
+The acclaimed British filmmaker behind 'Secrets & Lies,' 'Vera Drake' and 'Mr Turner' shares update on the future of his career.
+---------
+
+# Netflix's 107-Minute Sci-Fi Action Thriller Remains a Global Smash on Streaming
+
+Movie News, War Machine, Hot on Streaming, Action, Sci-Fi, Netflix
+
+Wed, 29 Jul 2026 17:00:12 GMT
+
+https://movieweb.com/war-machine-sci-fi-action-netflix-streaming-hit-july-2026/
+
+Netflix's military sci-fi action thriller led by Alan Ritchson has definitively proven that its success was no fluke.
+---------
+
+# The Perfect 'True Detective' Replacement Is a Masterpiece No One Remembers
+
+Features, Red Riding, Thriller, True Detective
+
+Wed, 29 Jul 2026 17:00:12 GMT
+
+https://movieweb.com/red-riding-true-detective-replacement/
+
+Love 'True Detective'? Love 'Mindhunter'? This is one of the few shows that can go toe-to-toe with the greats.
+---------
+
+# Prime Video Sets New Streaming Bundle That Will Benefit Millions of Users
+
+TV News, Prime Video, Crunchyroll
+
+Wed, 29 Jul 2026 16:52:19 GMT
+
+https://movieweb.com/prime-video-starz-crunchyroll-bundle-price/
+
+Prime Video has launched a new Starz and Crunchyroll bundle in the U.S. at $16.99 a month, a saving of more than 23% on both.
+---------
+
 # Marshals Season 2 Confirms Major Release Strategy Change
 
 TV, Marshals, Marshals - Season 2
@@ -5100,400 +5496,4 @@ Tue, 28 Jul 2026 03:11:14 GMT
 https://collider.com/circe-book-2018-madeline-miller-the-odyssey/
 
 Circe is both the best character in Christopher Nolan's The Odyssey and the protagonist of Madeline Miller's 2018 mythic fantasy book masterpiece.
----------
-
-# Michael Bay’s 5-Season Sci-Fi Series Officially Witnesses “The Netflix Effect” With 1.2 Billion Minutes Watched
-
-TV News, Netflix, The Last Ship, Eric Dane, Michael Bay
-
-Tue, 28 Jul 2026 02:15:15 GMT
-
-https://collider.com/the-last-ship-michael-bay-sci-fi-nielsen-streaming-report-netflix-success/
-
-The sci-fi series The Last Ship, starring Eric Dane, is benefiting from a Netflix release after drawing more than 1.2 billion minutes watched.
----------
-
-# Netflix’s $160M Gamble On Returning Book Adaptation Proves It’s Levelling Up Its Sci-Fi Game
-
-Streaming TV, Masked Recs
-
-Tue, 28 Jul 2026 02:00:21 GMT
-
-https://screenrant.com/netflix-3-body-problem-risky-leveling-up-sci-fi/
-
-Netflix made a massive $160 million gamble with its upcoming book adaptation, which has already established that it is levelling up its sci-fi game.
----------
-
-# Assassin's Creed Legend Ezio Auditore Officially Returns This Year
-
-Gaming, Assassin's Creed
-
-Tue, 28 Jul 2026 02:00:21 GMT
-
-https://screenrant.com/assassins-creed-ezio-auditore-statue-2026-release/
-
-Ezio Auditore is officially back in a stunning new release that gives the iconic Assassin's Creed legend the return he deserves.
----------
-
-# Every NCIS Franchise Team Leader, Ranked
-
-Network TV, NCIS
-
-Tue, 28 Jul 2026 01:45:11 GMT
-
-https://screenrant.com/ncis-franchises-team-leaders-ranked/
-
-The NCIS franchise's team leaders ranked in leadership effectiveness, from Gibbs to Hetty Lange, with analysis on their styles & impact on the teams.
----------
-
-# Taylor Sheridan Announces 2 New Movies
-
-Movies, Taylor Sheridan
-
-Tue, 28 Jul 2026 01:38:06 GMT
-
-https://screenrant.com/taylor-sheridan-visalia-capture-the-flag-new-movies/
-
-As new seasons of Taylor Sheridan shows continue to be released on Paramount+, he has now returned to movies after writing two feature films.
----------
-
-# The Boys Franchise Quietly Gets Better After Switching Main Characters
-
-Streaming TV, The Boys, Vought Rising, Vought Rising - Season 1
-
-Tue, 28 Jul 2026 01:30:11 GMT
-
-https://screenrant.com/vought-rising-the-boys-main-characters-switch/
-
-The Boys franchise is all set to switch its main characters in its upcoming installment, and it is hard not to see how this shift makes it better.
----------
-
-# 10 Movies To Watch If You Love Enter The Dragon
-
-Movies, Enter the Dragon, The Way of the Dragon, The Quest, Bloodsport, Fist Of Legend, Blood and Bone, Police Story, The Raid: Redemption, Mortal Kombat, Undisputed III: Redemption, Ong Bak: The Thai Warrior
-
-Tue, 28 Jul 2026 01:30:11 GMT
-
-https://screenrant.com/movies-like-enter-the-dragon/
-
-Enter the Dragon is a legendary martial arts movie that transcends genres. It's a tough act to follow, but these movies are up to the challenge.
----------
-
-# Emilia Clarke's New Sci-Fi Movie Debuts To Solid Rotten Tomatoes Score
-
-Movies, Masked Recs
-
-Tue, 28 Jul 2026 01:11:12 GMT
-
-https://screenrant.com/next-life-emilia-clarke-movie-rotten-tomatoes-score-debut/
-
-Emilia Clarke follows up her spy thriller series Ponies with a new science-fiction movies that has debuted to a solid Rotten Tomatoes score.
----------
-
-# 5 Resident Evil Games That Are 10/10 Masterpieces
-
-Gaming, Resident Evil, Triple-A Games, PC
-
-Tue, 28 Jul 2026 01:00:12 GMT
-
-https://screenrant.com/5-resident-evil-games-10-rated-masterpieces/
-
-The Resident Evil franchise stands at the top of the survival horror genre, but these entries are the best of the best that Capcom has to offer.
----------
-
-# Disney Just Declared Star Wars Is Officially Back
-
-Movies, Star Wars, Star Wars: Starfighter, Ghost Rider, Marvel Cinematic Universe
-
-Tue, 28 Jul 2026 00:30:11 GMT
-
-https://screenrant.com/disney-declares-star-wars-is-back-starfighter-ghost-rider-mcu/
-
-The future of Star Wars just got incredibly exciting, and Disney just proved it with a very exciting announcement (from an unlikely place).
----------
-
-# 4 One Piece Pirate Crews Stronger Than The Straw Hats
-
-Anime, One Piece
-
-Tue, 28 Jul 2026 00:30:11 GMT
-
-https://screenrant.com/one-piece-pirate-crews-stronger-straw-hats/
-
-The oceans of One Piece are filled with super powered pirates, but only a few crews are still capable of challenging Luffy's Straw Hats.
----------
-
-# Apple TV Overlooked Sci-Fi Thriller Dark Matter Must-Watch Before Season 2
-
-TV, Dark Matter, Apple TV, Sci-Fi
-
-Tue, 28 Jul 2026 02:00:24 GMT
-
-https://www.cbr.com/apple-tv-dark-matter-season-1/
-
-Apple TV has had many hit TV series, but Dark Matter is an overlooked sci-fi thriller that is now required viewing before Season 2 debuts.
----------
-
-# 5 Dark Fantasy TV Series That Would Have Been Better As Anime
-
-Anime, The Witcher, The Sandman, Fantasy
-
-Tue, 28 Jul 2026 02:00:24 GMT
-
-https://www.cbr.com/dark-fantasy-tv-series-better-as-anime/
-
-The dark fantasy genre was effectively built for anime, and there are plenty of live-action series that would have been better off animated.
----------
-
-# Children of Blood and Bone Combines Black Panther and Lord of the Rings
-
-Movies, Children of Blood and Bone, The Lord of the Rings, Black Panther
-
-Tue, 28 Jul 2026 02:00:24 GMT
-
-https://www.cbr.com/children-of-blood-and-bone-combines-black-panther-and-lord-of-the-rings/
-
-Based on the best-selling novel of the same name, Children of Blood and Bone is the latest film from director Gina Prince-Bythewood (The Woman King).
----------
-
-# 7 Spider-Man Video Games That Are 10/10 Masterpieces
-
-Games, Spider-Man, Marvel's Spider-Man 2, Marvel's Spider-Man, Spider-Man: Miles Morales, Video Games, superheroes
-
-Tue, 28 Jul 2026 01:45:15 GMT
-
-https://www.cbr.com/spider-man-video-game-masterpieces/
-
-These 7 Spider-Man games aren't just great superhero games, but spectacular masterpieces that everyone needs to play.
----------
-
-# 9 Most Powerful Anime Ninjas Who Aren't Naruto
-
-Anime, Naruto, Hell's Paradise: Jigokuraku, Gintama, Bleach
-
-Tue, 28 Jul 2026 01:25:15 GMT
-
-https://www.cbr.com/most-powerful-anime-ninjas-not-naruto/
-
-Naruto is the undisputed winner of the anime ninja culture, but plenty of other powerful ninjas dominate the anime landscape.
----------
-
-# Jujutsu Kaisen Returns in November 2026 With Official First Look at New Production
-
-Anime, Jujutsu Kaisen
-
-Tue, 28 Jul 2026 00:48:43 GMT
-
-https://www.cbr.com/jujutsu-kaisen-shibuya-arc-stage-play-first-look/
-
-A new key visual and other details have been revealed for Jujutsu Kaisen’s new adaptation of the Shibuya Incident arc.
----------
-
-# 5 Iconic PS1 Games That Aren't As Good As You Remember
-
-Games, Video Games, PlayStation (Original), Tomb Raider, Tekken
-
-Tue, 28 Jul 2026 00:45:15 GMT
-
-https://www.cbr.com/iconic-ps1-games-not-as-good-remembered/
-
-Tomb Raider and Resident Evil felt like revolutionary games at the time they released, but they haven't aged very well.
----------
-
-# JK Simmons' Forgotten Sci-Fi Thriller With 2 100% RT Seasons Still Hits Hard 7 Years Later
-
-TV, Counterpart, Sci-Fi, jk simmons
-
-Tue, 28 Jul 2026 00:30:15 GMT
-
-https://www.cbr.com/jk-simmons-counterpart-best-underrated-sci-fi-thriller-series/
-
-Counterpart is an ingenious sci-fi thriller that expertly pulls off its parallel worlds concept, supported by JK Simmons' exceptional dual performance
----------
-
-# 5 Anime Mentors Who Changed the Hero's Life Forever
-
-Anime, Demon Slayer: Kimetsu no Yaiba, One Piece, Naruto: Shippuden, My Hero Academia, Assassination Classroom
-
-Tue, 28 Jul 2026 00:15:15 GMT
-
-https://www.cbr.com/anime-mentors-who-changed-heroes-forever/
-
-Whether it was a tragic sacrifice or a harsh lesson, these anime mentors changed their students' lives.
----------
-
-# Marvel Confirms Iron Man's New Era Will Begin Sooner Than Fans Expected
-
-Comics, Iron Man, Avengers, Marvel Comics
-
-Tue, 28 Jul 2026 00:00:15 GMT
-
-https://www.cbr.com/marvel-incarcarated-iron-man-war-machines-confirmed/
-
-The Avengers are facing some life-altering changes in Marvel Comics, as Iron Man faces serious consequences to the hero's enduring legacy.
----------
-
-# Before Its Apple TV Debut, Brandon Sanderson’s Fantasy Universe Gets Even Bigger
-
-TV Features
-
-Tue, 28 Jul 2026 01:48:14 GMT
-
-https://collider.com/stormlight-war-for-roshar-board-game-cosmere-apple-tv/
-
-Stormlight: War for Roshar expands Brandon Sanderson’s Cosmere before Apple’s TV adaptation arrives.
----------
-
-# Netflix’s Hit Harlan Coben Series Is Officially 3 Million Views From Making All-Time History
-
-TV News, Netflix, I Will Find You, Sam Worthington, Britt Lower
-
-Tue, 28 Jul 2026 01:45:14 GMT
-
-https://collider.com/i-will-find-you-harlan-coben-netflix-mystery-95-million-views/
-
-Harlan Coben's I Will Find You, starring Britt Lower and Sam Worthington, is on the cusp of Netflix greatness. Find out more.
----------
-
-# 'The Chosen' Officially Returns With Surprise Prime Video Release
-
-TV News, The Chosen, Prime Video, Dallas Jenkins, Bear Grylls
-
-Tue, 28 Jul 2026 01:15:15 GMT
-
-https://collider.com/the-chosen-in-the-wild-with-bear-grylls-release-date-august-9-prime-video/
-
-The Chosen officially returns to Prime Video on August 9 with a new reality series, In The Wild With Bear Grylls.
----------
-
-# 3 Prime Video Shows You Need To Binge Before the End of July
-
-TV, Prime Video, Grimm, 10 Things I Hate About You, Hanna
-
-Tue, 28 Jul 2026 01:11:14 GMT
-
-https://collider.com/prime-video-shows-binge-july-27-2026/
-
-Grimm, Hanna, and 10 Things I Hate About You make up our list of the best Prime Video shows to binge before the end of July 2026.
----------
-
-# Tenoch Huerta Drops Bombshell About Namor and Doctor Doom in 'Avengers: Doomsday' [Exclusive]
-
-Movie News, Avengers: Doomsday, Robert Downey Jr, MCU, SDCC
-
-Tue, 28 Jul 2026 01:00:16 GMT
-
-https://collider.com/avengers-doomsday-doctor-doom-namor-no-scenes-confirmed-tenoch-huerta/
-
-Avengers: Doomsday star Tenoch Huerta has confirmed that Namor will have no scenes with Robert Downey Jr's Doctor Doom in the film.
----------
-
-# George R.R. Martin's Most Underrated Villains, Ranked
-
-TV, Game Of Thrones, George R.R. Martin, House of the Dragon, A Knight Of The Seven Kingdoms
-
-Tue, 28 Jul 2026 00:52:15 GMT
-
-https://collider.com/george-rr-martin-a-song-of-fire-and-ice-villains-ranked/
-
-George R.R. Martin's works feature many villains, but some of his characters are more subtly evil than others.
----------
-
-# Rick Moranis’ ‘Spaceballs’ Return Gets an Emotional Behind-the-Scenes Update [Exclusive]
-
-Movie News, Spaceballs: The New One, Josh Greenbaum, The Dink, Comedy
-
-Tue, 28 Jul 2026 00:45:15 GMT
-
-https://collider.com/spaceballs-2-update-rick-moranis-return-josh-greenbaum/
-
-Director Josh Greenbaum reveals the most challenging aspect of making the long-awaited Spaceballs sequel, which will be released in 2027.
----------
-
-# The Russo Brothers Officially Address 'Avengers: Doomsday' Final Edit Status With Less Than 150 Days Until Release [Exclusive]
-
-Movie News, Avengers: Doomsday, Anthony Russo, MCU, Marvel
-
-Tue, 28 Jul 2026 00:30:14 GMT
-
-https://collider.com/avengers-doomsday-final-edit-not-complete-anthony-russo/
-
-Anthony Russo reveals the editing progress and runtime expectations for Marvel's upcoming Avengers: Doomsday film, set to release on December 18.
----------
-
-# Kevin Feige Officially Shares His Verdict After Seeing Ryan Gosling’s 'Star Wars: Starfighter' [Exclusive]
-
-Movie News, Star Wars: Starfighter, Kevin Feige, SDCC, Ryan Gosling
-
-Tue, 28 Jul 2026 00:00:15 GMT
-
-https://collider.com/kevin-feige-seal-of-approval-star-wars-starfighter/
-
-Marvel Studios announces Avengers: Doomsday and confirms Ryan Gosling as Ghost Rider. Star Wars: Starfighter gets Kevin Feige's approval at SDCC.
----------
-
-# 10 Best Erotic Movies of the 2000s
-
-Movie Lists, Unfaithful, Secretary
-
-Tue, 28 Jul 2026 02:00:22 GMT
-
-https://movieweb.com/best-erotic-movies-2000s/
-
-These erotic movies from the 2000s are some of the most memorable from the film genre.
----------
-
-# Apple TV's Near-Perfect Sci-Fi Series Officially Crosses Major Milestone
-
-TV News, Severance, Ben Stiller, Apple TV
-
-Tue, 28 Jul 2026 00:55:51 GMT
-
-https://movieweb.com/severance-season-3-production-start-ben-stiller/
-
-Director Ben Stiller shared a cryptic quote alongside a photo from the series, implying Season 3 has begun filming.
----------
-
-# 'Spider-Man: Brand New Day' on Track for a Record-Shattering Opening Weekend
-
-Movie News, Spider-Man: Brand New Day, Box Office
-
-Tue, 28 Jul 2026 00:46:47 GMT
-
-https://movieweb.com/spider-man-brand-new-day-opening-weekend-box-office/
-
-The MCU's fourth Spider-Man movie might become one of the biggest box office phenomena of the year in its opening weekend.
----------
-
-# Apple TV's Most Underrated Sci-Fi Thriller Debuts New Season 2 Trailer
-
-TV News, Dark Matter, Joel Edgerton, Jennifer Connelly, Apple TV
-
-Tue, 28 Jul 2026 00:13:41 GMT
-
-https://movieweb.com/dark-matter-season-2-trailer/
-
-Joel Edgerton and Jennifer Connelly return in Season 2 of 'Dark Matter.'
----------
-
-# 17 Best Seeds For Speedruns In Minecraft 1.21
-
-Gaming, Minecraft, PC, Triple-A Games
-
-Mon, 27 Jul 2026 23:30:12 GMT
-
-https://screenrant.com/best-speedrun-seeds-minecraft/
-
-The best seeds in Minecraft for speedruns generate worlds that have resources right away and are near important locations to help reach the End.
----------
-
-# George R.R. Martin Meets Tolkien In Netflix's 4-Part Fantasy Series
-
-Streaming TV, Masked Recs
-
-Mon, 27 Jul 2026 23:30:11 GMT
-
-https://screenrant.com/the-witcher-netflix-game-of-thrones-meets-lord-of-the-rings/
-
-No fantasy franchises can match The Lord of the Rings and Game of Thrones iconic statuses, but one Netflix show perfectly blends their unique tones.
 ---------
