@@ -1,3 +1,267 @@
+# Suits: Every Name The Firm Goes By Across 9 Seasons
+
+Classic TV, Suits
+
+Wed, 29 Jul 2026 20:30:29 GMT
+
+https://screenrant.com/suits-firm-name-changes-pearson-spector-litt/
+
+Suits has a compelling narrative about struggles for power, but the firm where the lawyer's practice goes through an unruly number of changes.
+---------
+
+# Foundation Meets Blade Runner In Apple TV's 10-Part Sci-Fi Show
+
+Streaming TV, Masked Recs
+
+Wed, 29 Jul 2026 20:30:26 GMT
+
+https://screenrant.com/neuromancer-foundation-meets-blade-runner-apple-tv/
+
+Apple TV+ is bringing one of the most influential cyberpunk novels to the screen, proving once again that nothing is unadaptable.
+---------
+
+# 10 Movies To Watch If You Love Heat (1995)
+
+Movies, Heat, Dog Day Afternoon, Collateral, The Departed, Thief, To Live and Die in L.A., Drive, Hell or High Water, The Usual Suspects, Once Upon a Time in America, The Town
+
+Wed, 29 Jul 2026 20:30:26 GMT
+
+https://screenrant.com/movies-like-heat-1995/
+
+While Michael Mann’s Heat is one of a kind, there are several other masterful crime-thrillers and neo-noirs that Heat fans should check out.
+---------
+
+# 2026 TV Show Renewals: Every Show Confirmed To Return This Year & Beyond
+
+Streaming TV
+
+Wed, 29 Jul 2026 20:15:25 GMT
+
+https://screenrant.com/tv-shows-renewed-2026/
+
+All the latest updates on the 2026-2027 TV season, including renewed shows and their premiere dates across various networks and streaming platforms.
+---------
+
+# Glen Powell’s Hit R-Rated Series Officially Returns To Hulu In 1 Month With First Images & Release Date
+
+TV, Chad Powers, Chad Powers - Season 2
+
+Wed, 29 Jul 2026 20:13:14 GMT
+
+https://screenrant.com/glen-powell-chad-powers-season-2-premiere-date-first-images/
+
+Hulu announces the season 2 premiere date for Golden Globe nominee Glen Powell’s hit sports comedy TV show, which first launched in fall 2025.
+---------
+
+# Robert De Niro's 111-Minute Mafia Crime Thriller Is Running Out Of Time To Stream
+
+Movies, Masked Recs
+
+Wed, 29 Jul 2026 20:07:40 GMT
+
+https://screenrant.com/robert-de-niro-the-family-movie-leaving-stream-august-2026/
+
+Robert De Niro has starred in some of cinema's greatest Mafia movies, but one of his more overlooked crime thrillers is about to leave HBO Max.
+---------
+
+# 10 Greatest RPGs On Game Boy Advance (& How To Play Them Now)
+
+Gaming
+
+Wed, 29 Jul 2026 20:00:19 GMT
+
+https://screenrant.com/greatest-rpgs-game-boy-advance-how-play-now/
+
+The Nintendo Game Boy Advance era was truly the golden age for RPGs, and these 10 are among the best role-playing games the GBA had to offer.
+---------
+
+# 8 Best Star Trek Doctors, Ranked
+
+Streaming TV, Star Trek
+
+Wed, 29 Jul 2026 20:00:19 GMT
+
+https://screenrant.com/best-star-trek-doctors-ranked/
+
+No locations in Star Trek tie the wide variety of starships together like their sickbay, and so medical officers have become a franchise staple.
+---------
+
+# Steve Rogers' Possible New MCU Codename Would Completely Change The Meaning Of A Classic Superhero Alter Ego
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Wed, 29 Jul 2026 19:55:15 GMT
+
+https://screenrant.com/steve-rogers-possible-new-mcu-codename-would-bring-a-new-meaning-to-a-classic-superhero-alter-ego/
+
+A new codename for Avengers: Doomsday's Steve Rogers was hinted at during SDCC. It would potentially bring a new meaning to the superhero alter ego.
+---------
+
+# Tom DeLonge on Breaking Bear's Chaos | SDCC 2026
+
+TV, Breaking Bear
+
+Wed, 29 Jul 2026 20:32:50 GMT
+
+https://www.cbr.com/video/tom-delonge-on-breaking-bear-s-chaos-sdcc-2026/
+
+Breaking Bear is an adult animated comedy that refuses to play it safe, and its cast says that's exactly what makes it work. At SDCC 2026, Tom DeLonge and Chris Diamantopoulos break down the show's outrageous humor and how the creative team kept pushing every joke further.
+---------
+
+# ABC Is Quietly Stealing Justin Hartley's Tracker Formula From CBS
+
+TV, Tracker
+
+Wed, 29 Jul 2026 20:30:30 GMT
+
+https://www.cbr.com/abc-tracker-formula-a-forgotten-kill/
+
+It's official: ABC is quietly stealing CBS's successful formula in Tracker as Justin Hartley helps develop a rival series for the 2026-2027 TV cycle.
+---------
+
+# 5 Greatest Agatha Christie Movies of the 21st Century, Ranked
+
+Movies, A Haunting in Venice, Murder on the Orient Express
+
+Wed, 29 Jul 2026 20:30:30 GMT
+
+https://www.cbr.com/best-agatha-christie-movies-21st-century-list/
+
+Agatha Christie is one of the greatest mystery authors of all time and her novels have been adapted into countless memorable and wonderful films.
+---------
+
+# 5 Hard Sci-Fi Anime Series That Are Perfectly Written
+
+Anime, Sci-Fi, Serial Experiments Lain, Steins;Gate
+
+Wed, 29 Jul 2026 20:15:24 GMT
+
+https://www.cbr.com/perfectly-written-hard-sci-fi-anime/
+
+Hard sci-fi anime stands apart by exploring futuristic technology, scientific theory and the consequences of human innovation with remarkable depth.
+---------
+
+# Gundam's Most Monstrous Final Boss Gets a Massive LEGO Transformation
+
+Anime, Mobile Suit Gundam, Mobile Fighter G Gundam, LEGO
+
+Wed, 29 Jul 2026 20:05:22 GMT
+
+https://www.cbr.com/g-gundam-devil-mecha-lego-build/
+
+One of the most monstrous and impressive villain mecha designs from Mobile Fighter G Gundam has been recreated by a master LEGO set builder.
+---------
+
+# Apple's 10/10 Sci-Fi Series Is 1 of the Most-Watched Shows in the US After Prime Video Takeover
+
+TV, Silo, Apple TV, Prime Video
+
+Wed, 29 Jul 2026 20:00:21 GMT
+
+https://www.cbr.com/silo-apple-tv-prime-video-success-july-2026/
+
+Apple TV's sci-fi show is currently one of the Top 10 TV Shows on Prime Video
+---------
+
+# 10 Best Far Side Comics That Never Stop Being Funny
+
+Comics, The Far Side
+
+Wed, 29 Jul 2026 20:00:21 GMT
+
+https://www.cbr.com/best-timeless-far-side-comics-always-funny/
+
+These 10 masterpieces from the legendary Gary Larson are absolutely timeless pieces of comic comedy, and they've never stopped making us laugh.
+---------
+
+# 34 Years Later, Peter Gabriel's Most Heartbreaking Song Still Captures the End of an Era
+
+Music Features, Peter Gabriel: Growing Up Live, Music
+
+Wed, 29 Jul 2026 20:41:15 GMT
+
+https://collider.com/peter-gabriel-come-talk-to-me-heartbreaking-song/
+
+Peter Gabriel's hit ballad from his 1992 album Us is a vulnerable and heartfelt plea to his daughter during a difficult time in his life.
+---------
+
+# George R.R. Martin’s Favorite Cancelled Sci-Fi Series Officially Dominates Streaming Charts
+
+TV News, The Expanse, George R.R. Martin, Prime Video, SyFy
+
+Wed, 29 Jul 2026 20:30:29 GMT
+
+https://collider.com/the-expanse-george-rr-martin-favorite-sci-fi-epic-global-streaming-success-july-2026/
+
+The critically acclaimed sci-fi epic that George R.R. Martin compared to Firefly and Battlestar Galactica is taking over global streaming
+---------
+
+# 10 Greatest Thriller Book Series of All Time
+
+Books and Comics, Books, Thriller, Agatha Christie, Stieg Larsson
+
+Wed, 29 Jul 2026 20:28:28 GMT
+
+https://collider.com/best-thriller-book-series-all-time/
+
+From Jack Reacher to Miss Marple, Harry Bosch to Hannibal Lecter, these thriller book series are the best of the best.
+---------
+
+# All 20 Paradox Pokémon, Ranked
+
+Gaming, Pokémon, Anime, Video Game, Adventure
+
+Wed, 29 Jul 2026 20:05:22 GMT
+
+https://collider.com/paradox-pokemon-ranked/
+
+Paradox Pokémon are among the most interesting additions to the franchise in recent years, but which of these past and future creatures is the best?
+---------
+
+# Kevin Costner’s Prime Video 8-Part Civil War Series Officially Gets Season 2 Update
+
+TV News, Kevin Costner, Prime Video, The Gray House, Mary-Louise Parker
+
+Wed, 29 Jul 2026 20:00:21 GMT
+
+https://collider.com/the-gray-house-season-2-update/
+
+The Gray House star Keith David expresses hope for a Season 2, citing the wealth of untold American history that could fuel new stories
+---------
+
+# Beloved Fantasy Series Adaptation Reportedly to Become a Trilogy
+
+Movie News, Magic: The Gathering
+
+Wed, 29 Jul 2026 20:02:28 GMT
+
+https://movieweb.com/magic-the-gathering-movie-trilogy-plans-matt-johnson/
+
+The announced Magic: The Gathering adaptation might be three movies instead of just one.
+---------
+
+# 10 Crunchyroll Action Thriller Anime That Are Better Than 'Demon Slayer'
+
+TV Lists, Demon Slayer, Anime, Action
+
+Wed, 29 Jul 2026 20:00:19 GMT
+
+https://movieweb.com/crunchyroll-action-thriller-anime-better-demon-slayer/
+
+'Demon Slayer' is often hailed as one of the best modern anime, but there are numerous series that have it beat — just not visually.
+---------
+
+# The Best Batman Series in Years Officially Returns With Bold Rotten Tomatoes Score
+
+TV News, Batman: Caped Crusader
+
+Wed, 29 Jul 2026 19:53:15 GMT
+
+https://movieweb.com/batman-caped-crusader-season-2-rotten-tomatoes-score/
+
+The second season of the acclaimed DC superhero series from Prime Video is almost here.
+---------
+
 # Children Of Blood & Bone Author Doubles Down On Movie Denouncement As “Worst Thing” Of Her Life
 
 Movies, Children of Blood and Bone
@@ -5232,268 +5496,4 @@ Tue, 28 Jul 2026 11:30:14 GMT
 https://collider.com/cold-storage-streaming-success-mgm-plus-july-2026/
 
 An underrated sci-fi horror-comedy starring Liam Neeson and a Stranger Things icon is a sleeper streaming gem. Find out more about Cold Storage here.
----------
-
-# 7 Must-Watch Movies Leaving Netflix in August
-
-Movie, Netflix, Spider-Man, Pretty Woman, Borat
-
-Tue, 28 Jul 2026 11:03:14 GMT
-
-https://collider.com/movies-leaving-netflix-august-2026/
-
-Say goodbye to beloved rom-coms like Pretty Woman and Tobey Maguire's first Spider-Man film, as these movies are set to leave Netflix in August.
----------
-
-# The Action Thriller Everyone's Been Waiting For Returns This Week
-
-Features, Reacher, Lioness, Taylor Sheridan
-
-Tue, 28 Jul 2026 12:00:12 GMT
-
-https://movieweb.com/lioness-reacher-action-thriller-competition/
-
-2026 has seen the release of some memorable and entertaining action thriller TV shows, and a new one is coming back in August 2026.
----------
-
-# Apple TV Just Confirmed the Sci-Fi Event of 2027
-
-Features, Neuromancer, Apple TV
-
-Tue, 28 Jul 2026 12:00:12 GMT
-
-https://movieweb.com/neuromancer-apple-tv-january-2027/
-
-Apple TV is known for its impressive sci-fi TV shows, and a new series is premiering in 2027.
----------
-
-# Henry Cavill's Long-Awaited Sci-Fi Action Series Finally Takes Major Step Forward at Amazon
-
-TV News, Henry Cavill, Warhammer 40k, Action, Sci-Fi, Mike Flanagan
-
-Tue, 28 Jul 2026 11:31:39 GMT
-
-https://movieweb.com/henry-cavill-warhammer-series-mike-flanagan-direct/
-
-After 4 years, Amazon's 'Warhammer 40k' adaptation has finally tapped a surprising horror master to help Cavill bring the project to life.
----------
-
-# Forget John Wick, Netflix's New 132-Minute Action Thriller Quickly Crowned a Streaming Smash Hit
-
-Movie News, Netflix, Action, Thriller
-
-Tue, 28 Jul 2026 11:10:46 GMT
-
-https://movieweb.com/netflix-debt-collector-stream-hit-action-july-2026/
-
-Can a person ever truly repay the debts of their past?
----------
-
-# Game of Thrones Addressed the Biggest Dragon Mystery Twice in 5 Years
-
-Features, Game of Thrones, Game Of Thrones, House of the Dragon
-
-Tue, 28 Jul 2026 11:00:12 GMT
-
-https://movieweb.com/game-of-thrones-dragonrider-mystery/
-
-Targaryens are generally assumed to be the only family capable of riding dragons, but are they? Read on for more.
----------
-
-# Taylor Sheridan Ditches Western for Hard Sci-Fi as He Returns to Movies for First Time in 5 Years
-
-Movie News, Taylor Sheridan, Yellowstone
-
-Tue, 28 Jul 2026 10:48:47 GMT
-
-https://movieweb.com/taylor-sheridan-new-movies-visalia-capture-the-flag/
-
-'Yellowstone' creator Taylor Sheridan has announced two new movies that he is writing and producing, 'Visalia' and 'Capture the Flag.'
----------
-
-# Xbox Just Dropped 13 Ubisoft Freebies You Can Grab Now
-
-Gaming, Xbox
-
-Tue, 28 Jul 2026 10:30:08 GMT
-
-https://screenrant.com/xbox-ubisoft-13-free-games-including-assassins-creed/
-
-Xbox users can now access 13 Ubisoft titles, including Assassin's Creed Mirage and Valhalla, on both PC and console.
----------
-
-# 5 Reasons The Simpsons Hit & Run Remake Could Dethrone GTA 6
-
-Gaming, The Simpsons, Grand Theft Auto
-
-Tue, 28 Jul 2026 10:18:51 GMT
-
-https://screenrant.com/simpsons-hit-and-run-remake-goty-potential/
-
-The Simpsons Hit & Run is rightfully one of the most beloved games of all time, and a return could threaten the biggest players around.
----------
-
-# Fallout 5 Official Announcement Unveils The Start Of A New Era
-
-Gaming, Fallout, Fallout 5
-
-Tue, 28 Jul 2026 09:47:33 GMT
-
-https://screenrant.com/fallout-5-official-announcement-new-era-confirmed/
-
-Fallout 5 is officially on the way, and Bethesda is changing a lot about the way they communicate now it is confirmed.
----------
-
-# PlayStation Plus First Free Game For August Officially Announced
-
-Gaming, PlayStation Plus
-
-Tue, 28 Jul 2026 09:45:40 GMT
-
-https://screenrant.com/playstation-plus-first-free-august-2026-game-confirmed/
-
-Big Walk, a co-op multiplayer adventure game from House House and Panic, has been leaked.
----------
-
-# GTA 6 Official Release Date Update Shared Ahead Of Third Trailer
-
-Gaming, Rockstar Games, Take-Two Interactive, Grand Theft Auto, Grand Theft Auto 6
-
-Tue, 28 Jul 2026 09:44:49 GMT
-
-https://screenrant.com/gta-6-official-release-date-update-july-28/
-
-CEO Strauss Zelnick reaffirms the Grand Theft Auto VI release date of November 19, 2026, amidst growing anticipation for the third gameplay trailer.
----------
-
-# Marvel's Spider-Man 2 Free DLC Officially Available Now, Includes 2 New Suits
-
-Gaming, Marvel's Spider-Man 2, Marvel's Spider-Man
-
-Tue, 28 Jul 2026 09:31:41 GMT
-
-https://screenrant.com/marvels-spider-man-2-brand-new-day-update/
-
-Marvel's Spider-Man 2 is undoubtedly a ton of fun, so any new content is always worth thinking about as a player.
----------
-
-# Final Fantasy 17 Officially Confirmed By Square Enix
-
-Gaming, Final Fantasy
-
-Tue, 28 Jul 2026 09:26:05 GMT
-
-https://screenrant.com/final-fantasy-17-confirmed-square-enix/
-
-During a Q&amp;A session, Final Fantasy 7 Rebirth director Naoki Hamaguchi's reaction to being mentioned for Final Fantasy 17 development has fans curious
----------
-
-# Marvel Teased Scarlet Witch's MCU Return in Avengers: Doomsday
-
-Movies, Avengers: Doomsday, Marvel Cinematic Universe, Scarlet Witch
-
-Tue, 28 Jul 2026 10:00:14 GMT
-
-https://www.cbr.com/scarlet-witch-mcu-return-avengers-doomsday/
-
-We can't wait to see the Scarlet Witch return to the MCU, and Marvel might have just teased her resurrection in Avengers: Doomsday.
----------
-
-# HBO's Harry Potter Has More Riding on It Than Any Fantasy Series Ever
-
-TV, Harry Potter, HBO Max, Fantasy
-
-Tue, 28 Jul 2026 10:00:14 GMT
-
-https://www.cbr.com/hbo-harry-potter-most-expensive-fantasy-series/
-
-Harry Potter isn't just being compared to itself, but to every other fantasy series on television.
----------
-
-# Dwayne Johnson's $335 Million Adventure Is Getting a Second Chance on Netflix
-
-Movie News, Journey to the Center of the Earth, journey 2: the mysterious island, Dwayne Johnson, Sci-Fi
-
-Tue, 28 Jul 2026 10:30:14 GMT
-
-https://collider.com/dwayne-johnson-journey-2-mysterious-island-streaming-success-netflix-july-2026/
-
-Dwayne Johnson’s $335 million fantasy adventure Journey 2 has unexpectedly returned to Netflix’s international movie charts.
----------
-
-# 8 Mystery Thrillers That Are Perfect From the First Scene to the Last
-
-Movie, Thriller, Rear Window, Mystery
-
-Tue, 28 Jul 2026 10:24:14 GMT
-
-https://collider.com/mystery-thriller-movies-perfect-first-scene-to-last/
-
-Movie masterpieces like Mulholland Drive, Memento, and Zodiac offer the perfect mix of mystery and thrills, remaining virtually flawless throughout.
----------
-
-# HBO's Scathing 8-Part Superhero Movie Satire Is Aging Like Fine Wine
-
-TV Features, The Franchise, Himesh Patel, Daniel Brühl, HBO
-
-Tue, 28 Jul 2026 10:08:14 GMT
-
-https://collider.com/the-franchise-hbo-superhero-satire-aged-well/
-
-HBO's The Franchise offers a scathing yet witty look at the world of superhero filmmaking, becoming increasingly relevant since its release.
----------
-
-# The Horror Movie Everyone's Talking About Is Officially One of Streaming's Biggest Hits
-
-Movie News, Obsession, Horror, Peacock, Streaming
-
-Tue, 28 Jul 2026 10:00:14 GMT
-
-https://collider.com/obsession-streaming-success-peacock-july-2026/
-
-Peacock subscribers are obsessed with this 2026 horror masterpiece by YouTuber Curry Barker. Here's everything you should know about Obsession.
----------
-
-# It's the End of an Era for Anne Hathaway's Cult Classic Sci-Fi Movie
-
-Movie News, Anne Hathaway, Jason Sudeikis, Colossal, Netflix
-
-Tue, 28 Jul 2026 09:30:14 GMT
-
-https://collider.com/anne-hathaway-sci-fi-movie-colossal-leaving-netflix-august-10-2026/
-
-The Odyssey star Anne Hathaway's underrated sci-fi fantasy film Colossal is about to be removed from Netflix. Here's how long you have left.
----------
-
-# 10 Greatest Historical Fiction Books of All Time
-
-Books and Comics, Books, The Count of Monte Cristo, History
-
-Tue, 28 Jul 2026 09:10:14 GMT
-
-https://collider.com/best-historical-fiction-books-all-time-ranked/
-
-From foundational classics like War and Peace to modern masterpieces of the genre like The Nightingale, these are the best historical fiction books.
----------
-
-# 2 James Bond Stars Officially Reunite in the Sleeper Hit Western Leaving Paramount+
-
-Movie News, Mads Mikkelsen, The Salvation, Eva Green, Paramount Plus
-
-Tue, 28 Jul 2026 09:00:15 GMT
-
-https://collider.com/mads-mikkelsen-western-the-salvation-leaving-paramount-august-31-2026/
-
-Mads Mikkelsen and Eva Green reunited after Casino Royale in the underrated Western The Salvation, which is leaving Paramount+ soon.
----------
-
-# The 10 Best Sci-Fi Movies of the Last 10 Years, Ranked
-
-Movie, Sci-Fi, Dune: Part Two, Everything Everywhere All at Once, Blade Runner 2049
-
-Tue, 28 Jul 2026 08:58:14 GMT
-
-https://collider.com/best-sci-fi-movies-last-10-years-ranked/
-
-Science fiction has grown a lot over the past few years, featuring groundbreaking stories and visuals in films like Dune and Arrival.
 ---------
