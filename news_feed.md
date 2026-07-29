@@ -1,3 +1,201 @@
+# Netflix’s Best 2026 Thriller Is An 8-Part Series Based On A Hit Novel
+
+TV, Masked Recs
+
+Wed, 29 Jul 2026 22:50:12 GMT
+
+https://screenrant.com/i-will-find-you-netflix-best-thriller-series-2026/
+
+The best Netflix thriller series of 2026 has now been made clear, and it beats every other exciting genre release from the streamer for one reason.
+---------
+
+# Even Superman Admits His Permanent New Superpower Is Terrifying
+
+DC Comics, Superman
+
+Wed, 29 Jul 2026 22:41:34 GMT
+
+https://screenrant.com/superman-new-superpower-immortal/
+
+Superman's most powerful Kryptonian ability will only make itself known in a long time, but Clark Kent already starts to feel its side effects.
+---------
+
+# The Devil's Mouth Traumatic Ending & Final Shark Victim Broken Down By Prime Video Movie Stars
+
+Movies, Horror, The Devil's Mouth
+
+Wed, 29 Jul 2026 22:39:15 GMT
+
+https://screenrant.com/the-devils-mouth-ending-final-shark-victim-explained-newton-condor/
+
+EXCLUSIVE: The Devil’s Mouth stars Kathryn Newton and Lana Candor explain the ending and the heartbreaking meaning behind the final shark victim.
+---------
+
+# Ant-Man 4 Chances Addressed By MCU Star After Quantumania’s $476M Box Office Failure
+
+Movies, Ant-Man & the Wasp: Quantumania
+
+Wed, 29 Jul 2026 22:11:30 GMT
+
+https://screenrant.com/ant-man-4-mcu-chances-after-quantumanias-fail-kathryn-newton/
+
+Ant-Man and the Wasp: Quantumania star reveals whether there is a chance for the MCU franchise to make a comeback with a fourth film.
+---------
+
+# Breaking Bear Clip Finds Sarah Michelle Gellar In A Wolf-ish Confrontation
+
+Exclusive, Breaking Bear
+
+Wed, 29 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/video/breaking-bear-sarah-michelle-gellar-elizabeth-hurley-clip/
+
+Exclusive: ScreenRant presents an exclusive clip from Breaking Bear, a wacky new animated series starring Brendan Fraser and Sarah Michelle Gellar.
+---------
+
+# Doctor Who's Hiatus Is A Golden Opportunity For The BBC To Revive Its 5-Season Cult Fantasy Hit
+
+Streaming TV, Masked Recs
+
+Wed, 29 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/bbc-revive-merlin-during-doctor-who-hiatus/
+
+Now that Doctor Who has entered an indefinite hiatus, it's the perfect time for the BBC to revisit one of its other iconic fantasy franchises.
+---------
+
+# 7 Fantasy Books Perfect For Fans Of Dungeons & Dragons
+
+Books, Dungeons & Dragons
+
+Wed, 29 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/fantasy-books-every-dungeons-dragons-fan-should-read/
+
+Looking for more books to read between your Dungeons & Dragons sessions? These seven fantasy books are the perfect next-reads for fans of D&amp;D!
+---------
+
+# Guy Ritchie’s Sherlock Series Says Goodbye as Star Exits Series Ahead of New Episodes
+
+Movies, Young Sherlock
+
+Wed, 29 Jul 2026 22:25:13 GMT
+
+https://www.cbr.com/young-sherlock-season-2-cast-shakeup/
+
+New cast members have been revealed along with the confirmation of one star's exit.
+---------
+
+# 5 Anime Villains With Powers Even Stronger Than Yhwach
+
+Anime, Dragon Ball, My Hero Academia, Fullmetal Alchemist, Bleach: Thousand-Year Blood War, Bleach
+
+Wed, 29 Jul 2026 22:16:15 GMT
+
+https://www.cbr.com/anime-villains-with-stronger-power-than-yhwach/
+
+Yhwach may be Bleach's most overpowered villains, but not even his time manipulation could stand a chance against these five undisputed villains.
+---------
+
+# Brendan Fraser’s 100-Minute War Movie That Quietly Became a Hit Is Finally Streaming
+
+Movies, Pressure
+
+Wed, 29 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/brendan-fraser-pressure-war-streaming-on-peacock-july-2026/
+
+A critically-acclaimed yet wildly underseen war drama starring Brendan Fraser and Andrew Scott finally has a new streaming home.
+---------
+
+# Marvel Officially Updates Variant Cover Policy, Catching Fans Off Guard
+
+Comics, Marvel
+
+Wed, 29 Jul 2026 22:00:15 GMT
+
+https://www.cbr.com/marvel-midnight-universe-variant-cover-program/
+
+Marvel has simplified their approach to variant covers, and it seems like it will be far less complicated for readers.
+---------
+
+# Apple TV Officially Reveals Plans for More 'Ted Lasso' Beyond Season 4
+
+TV News, Ted Lasso, Apple TV, Jason Sudeikis, Hannah Waddingham
+
+Wed, 29 Jul 2026 22:30:15 GMT
+
+https://collider.com/ted-lasso-new-3-season-arc-apple-tv/
+
+Apple TV's hit comedy series, Ted Lasso, has revealed its plans for more seasons ahead of Season 4 anticipated return.
+---------
+
+# ‘Harry Potter’ Meets ‘Twilight’ in This 3-Season Fantasy Series That Deserved Better
+
+TV Features, Twilight, Harry Potter, Fantasy, Shadowhunters
+
+Wed, 29 Jul 2026 22:29:15 GMT
+
+https://collider.com/harry-potter-twilight-replacement-series-mortal-instruments-shadowhunters/
+
+Shadowhunters blends the romance of Twilight with the magical world of Harry Potter while succeeding where The Mortal Instruments movie failed.
+---------
+
+# Forget 'Jumanji,' This Is Officially the Best Game-Based Film Ever Made
+
+Movie Features, Dungeons and Dragons: Honor among Thieves, Dungeons and Dragons, Fantasy, Pluto TV
+
+Wed, 29 Jul 2026 22:22:15 GMT
+
+https://collider.com/dungeons-and-dragons-honor-among-thieves-streaming-free-pluto-tv-july-2026/
+
+2023's Dungeons & Dragons: Honor Among Thieves, the fantasy film that finally does the tabletop game justice, is streaming free on Pluto TV.
+---------
+
+# 10 Biggest TV Reveals From SDCC 2026, Ranked
+
+TV, SDCC, Lanterns, Percy Jackson & the Olympians, Interview with the Vampire
+
+Wed, 29 Jul 2026 22:03:14 GMT
+
+https://collider.com/sdcc-2026-tv-news-ranked/
+
+From Percy Jackson and the Olympians to Interview with the Vampire and Blade Runner 2099, these are the biggest TV stories from SDCC this year.
+---------
+
+# Netflix Declares Raunchy New R-Rated Movie the Official Worldwide #1 on Streaming
+
+Movie News, 72 Hours, Netflix
+
+Wed, 29 Jul 2026 22:00:12 GMT
+
+https://movieweb.com/72-hours-netflix-biggest-stream-july-2026/
+
+Watch this if you loved 'The Hangover.'
+---------
+
+# Forget Taylor Sheridan, Netflix's 2-Part Western Series Is One of the Biggest Shows on Global Streaming
+
+TV News, Ransom Canyon, Netflix, Hot on Streaming
+
+Wed, 29 Jul 2026 22:00:12 GMT
+
+https://movieweb.com/netflix-ransom-canyon-streaming-global-success-july-2026/
+
+The Western drama returned with Season 2, and has instantly become a hit for Netflix.
+---------
+
+# The 6 Greatest Episodes of 'The Twilight Zone'
+
+TV Lists, The Twilight Zone, Rod Serling
+
+Wed, 29 Jul 2026 22:00:12 GMT
+
+https://movieweb.com/greatest-twilight-zone-episodes/
+
+'The Twilight Zone' was prolific for its time, and these hard-hitting episodes prove the series it remains so today.
+---------
+
 # Young Avengers' MCU Future After Doomsday Return Addressed By Star
 
 Movies, Young Avengers, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
@@ -5298,202 +5496,4 @@ Tue, 28 Jul 2026 14:12:36 GMT
 https://www.cbr.com/mad-hatter-animated-spinoff-amazon-mgm-studios/
 
 Alice in Wonderland fans are about to get an unexpected spinoff about one of the story's most iconic characters from a surprising creative team.
----------
-
-# Harry Potter Officially Returns With New Adventure On July 29
-
-Games, Harry Potter
-
-Tue, 28 Jul 2026 14:10:15 GMT
-
-https://www.cbr.com/harry-potter-hogwarts-mystery-norberts-transport-adventure/
-
-Harry Potter fans will get to experience an all new adventure that pays tribute to one of the series' most memorable early moments.
----------
-
-# Paramount's 'Unfilmable' Fantasy Movie Unveils First Trailer After Author Backlash
-
-Movies, Children of Blood and Bone
-
-Tue, 28 Jul 2026 14:09:58 GMT
-
-https://www.cbr.com/paramount-children-blood-bone-official-trailer/
-
-The new film stars Chiwetel Ejiofor, Idris Elba, Viola Davis and Cynthia Erivo, but despite its star power, the author still condemns it.
----------
-
-# Classic Star Trek Alien Delivers the Franchise's Most Brutal Kill
-
-Comics, Star Trek
-
-Tue, 28 Jul 2026 14:00:15 GMT
-
-https://www.cbr.com/star-trek-red-shirts-mugato-return-confirmed/
-
-One of the most criminally underrated aliens from the entire Stark Trek franchise is back in action and tearing its way through Starfleet — Literally.
----------
-
-# 1 Year Later, the Fate of 'True Blood' Star's Cozy British Mystery Series Is Officially Confirmed
-
-TV News, Art Detectives, Acorn TV, Stephen Moyer, AMC
-
-Tue, 28 Jul 2026 14:30:15 GMT
-
-https://collider.com/art-detectives-season-2-renewal-stephen-moyer-acorn-tv/
-
-Acorn TV has finally renewed Stephen Moyer's British mystery hit Art Detectives for a second season, and filming begins soon. Here's what we know.
----------
-
-# ‘Spider-Man: Brand New Day’ Secures Epic Rotten Tomatoes Score Ahead of Box Office Debut
-
-Movie News, Spider-Man: Brand New Day, MCU, Marvel, Tom Holland
-
-Tue, 28 Jul 2026 14:25:32 GMT
-
-https://collider.com/spider-man-brand-new-day-rotten-tomatoes-score-reactions-is-it-good/
-
-The reviews are officially in for Spider-Man: Brand New Day as critics call it Tom Holland’s best spider-movie yet. See the Rotten Tomatoes Score.
----------
-
-# ‘The Acolyte’ Star’s New Fantasy Epic Officially Unleashes First Trailer
-
-Movie News, Children of Blood and Bone, Amandla Stenberg, Idris Elba, Viola Davis
-
-Tue, 28 Jul 2026 13:10:47 GMT
-
-https://collider.com/children-of-blood-and-bone-first-trailer-amandla-stenberg-release-date-january-2027/
-
-The Acolyte star Amandla Stenberg headlines the first trailer for Children of Blood and Bone, which is coming to theaters on January 15, 2027.
----------
-
-# The Best Revenge Thriller Trilogy Since John Wick Is About to End With a Bang [Exclusive]
-
-Movie News, Becky, The Wrath of Becky, Thriller, John Wick
-
-Tue, 28 Jul 2026 13:09:49 GMT
-
-https://collider.com/the-last-temptation-of-becky-lulu-wilson-answers-explained/
-
-The Becky trilogy is about to conclude with The Last Temptation of Becky, and it's set to answer every question the fans have.
----------
-
-# ‘Ted Lasso’ Is Officially Back to Make Us Believe Again in First Season 4 Trailer
-
-TV News, Ted Lasso, Hannah Waddingham, Brett Goldstein, Jason Sudeikis
-
-Tue, 28 Jul 2026 13:00:15 GMT
-
-https://collider.com/ted-lasso-season-4-trailer/
-
-Jason Sudeikis is finally back as Ted Lasso in the first Season 4 trailer, revealing his new challenge ahead of the show’s August return.
----------
-
-# Tom Holland's 'Spider-Man: Brand New Day' Is the Best Spidey Adventure in 20 Years | Review
-
-Movie Reviews, Spider-Man: Brand New Day, MCU, Tom Holland, Zendaya
-
-Tue, 28 Jul 2026 13:00:15 GMT
-
-https://collider.com/spider-man-brand-new-day-review-marvel-tom-holland/
-
-A more mature Peter Parker is the heart of Spider-Man: Brand New Day, the best Spider-Man film in 20 years.
----------
-
-# Tom Hardy & Guy Ritchie's Action Thriller 'MobLand' Just Got A Perfect Replacement
-
-Features, MobLand, Guy Ritchie
-
-Tue, 28 Jul 2026 15:00:12 GMT
-
-https://movieweb.com/guy-ritchie-mobland-replacement-series-laird/
-
-'MobLand' was a runaway hit for Paramount+ in 2025, and as the second season approaches, the streaming giant just greenlit a fascinating replacement.
----------
-
-# Tom Holland Confirms His Spider-Man Future After 'Brand New Day'
-
-Movie News, Spider-Man: Brand New Day
-
-Tue, 28 Jul 2026 14:38:08 GMT
-
-https://movieweb.com/tom-holland-future-spider-man-brand-new-day/
-
-Is 'Brand New Day' Tom Holland's final 'Spider-Man' film?
----------
-
-# 8 Scariest Vampire Horror Movies of All Time
-
-Movie Lists, Horror
-
-Tue, 28 Jul 2026 14:30:12 GMT
-
-https://movieweb.com/scariest-vampire-horror-movies/
-
-Vampires can be some of the scariest monsters in horror, and audiences just can’t get enough of them.
----------
-
-# Jake Gyllenhaal's 109-Minute Action Crime Thriller Debuts New Release
-
-Movie News, End of Watch, Jake Gyllenhaal, David Ayer
-
-Tue, 28 Jul 2026 14:08:49 GMT
-
-https://movieweb.com/end-of-watch-4k-blu-ray-release/
-
-David Ayer's gritty action thriller 'End of Watch,' starring Jake Gyllenhaal and Michael Peña, has received a new 4K Blu-ray release.
----------
-
-# Aragorn's 'Lord of the Rings' Line Is the Greatest Quote in Fantasy Movies
-
-Features, The Lord of the Rings, The Lord of the Rings: The Return of the King
-
-Tue, 28 Jul 2026 14:00:12 GMT
-
-https://movieweb.com/lord-of-the-rings-aragorn-best-fantasy-quote/
-
-Peter Jackson's 'The Lord of the Rings' trilogy is loaded with memorable quotes, but one line in particular will forever echo across fantasy cinema.
----------
-
-# 'Ted Lasso' Season 4 Trailer Brings Jason Sudeikis & His Team Back to Apple TV
-
-TV News, Ted Lasso, Jason Sudeikis
-
-Tue, 28 Jul 2026 13:58:34 GMT
-
-https://movieweb.com/ted-lasso-season-4-trailer-jason-sudeikis/
-
-Apple TV delivered a new look at 'Ted Lasso' Season 4, confirming multiple returning characters from the show's original run.
----------
-
-# 'Spider-Man: Brand New Day' Rotten Tomatoes Score Officially Revealed
-
-Movie News, Spider-Man: Brand New Day, Spider-Man
-
-Tue, 28 Jul 2026 13:25:24 GMT
-
-https://movieweb.com/spider-man-brand-new-day-rotten-tomatoes-score/
-
-The latest 'Spider-Man' film has landed a spectacular score on Rotten Tomatoes.
----------
-
-# Netflix's New Sleeper Hit Action Thriller Series Is Already Planning a Return
-
-TV News, Netflix, Action, Thriller
-
-Tue, 28 Jul 2026 13:01:51 GMT
-
-https://movieweb.com/netflix-elite-force-season-2-plan/
-
-The action thriller show 'Elite Force' is now dominating streaming worldwide.
----------
-
-# Mark Wahlberg's Crime Thriller Flop Is Finding Redemption on Streaming
-
-Movie News, The Gambler, Paramount Plus, Hot on Streaming, Mark Wahlberg
-
-Tue, 28 Jul 2026 13:00:13 GMT
-
-https://movieweb.com/the-gambler-mark-wahlberg-stream-paramount-july-2026/
-
-Mark Wahlberg's forgotten 2014 crime thriller flop, 'The Gambler' remake, is a streaming success in the US on Paramount+.
 ---------
