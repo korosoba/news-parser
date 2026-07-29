@@ -1,3 +1,333 @@
+# Marshals Season 2 Confirms Major Release Strategy Change
+
+TV, Marshals, Marshals - Season 2
+
+Wed, 29 Jul 2026 16:38:52 GMT
+
+https://screenrant.com/yellowstone-marshals-season-2-release-change-cbs/
+
+Yellowstone spinoff Marshals, starring Luke Grimes, is coming back this fall for a second season but with a notable change for its premiere episode.
+---------
+
+# Game Of Thrones' Targaryen Family Tree Explained
+
+Streaming TV, Game Of Thrones, House of the Dragon, A Knight Of The Seven Kingdoms
+
+Wed, 29 Jul 2026 16:30:11 GMT
+
+https://screenrant.com/game-thrones-targaryen-family-tree-explained/
+
+Game of Thrones, House of the Dragon, and A Knight of the Seven Kingdoms have given us a look at different stages within the Targaryen dynasty.
+---------
+
+# What's Coming To HBO Max In August 2026: Full List Of TV Shows & Movies
+
+Streaming TV, HBO Max
+
+Wed, 29 Jul 2026 16:15:11 GMT
+
+https://screenrant.com/everything-coming-to-hbo-max-august-2026/
+
+A list of the latest TV shows and movies joining HBO Max in August 2026, including original series, documentaries, and films from the portfolio.
+---------
+
+# 7 Things To Know From Previous Marvel Movies & Shows Before Spider-Man: Brand New Day
+
+Movies, Spider-Man: Brand New Day, Marvel, Marvel Cinematic Universe
+
+Wed, 29 Jul 2026 16:11:11 GMT
+
+https://screenrant.com/spiderman-brand-new-day-marvel-movie-show-recap/
+
+Prepare for Spider-Man: Brand New Day with this recap of essential MCU events, returning villains, and street-level storylines.
+---------
+
+# A 1998 N64 Classic Just Got A Gorgeous Unreal Engine Remake
+
+Gaming, Nintendo, Banjo-Kazooie, Nintendo Switch, PC
+
+Wed, 29 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/banjo-kazooie-n64-classic-unreal-engine-fan-remake/
+
+One of the best Nintendo 64 games has just gotten a full-blown Unreal Engine remake, and it is a truly staggering work of art that fans can't miss.
+---------
+
+# The BBC's 6-Part 'Sherlock Meets Agatha Christie' Detective Series Is Already Renewed For 2 More Seasons
+
+Streaming TV, Masked Recs
+
+Wed, 29 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/ludwig-bbc-detective-series-renewed-2-more-seasons/
+
+One of the best new detective series in recent memory has been renewed for two further seasons by the BBC after a stellar 6-episode debut.
+---------
+
+# Tony Review: Why Can't All Biopics Be As Good As This Anthony Bourdain Movie?
+
+New Movies, Tony
+
+Wed, 29 Jul 2026 16:00:11 GMT
+
+https://screenrant.com/tony-movie-2026-review/
+
+A24’s new film about a young Anthony Bourdain is the rare biopic that works on its own terms. It’s one of my best theater experiences of 2026 so far.
+---------
+
+# Anne Hathaway's $1 Billion Franchise Officially Has A New Release Today
+
+New Movies, The Devil Wears Prada 2
+
+Wed, 29 Jul 2026 15:50:11 GMT
+
+https://screenrant.com/devil-wears-prada-2-streaming-release-disney-plus-hulu-today/
+
+A movie from Anne Hathaway's $1 billion franchise has officially received a new release, setting it up to experience even more success.
+---------
+
+# Avengers: Doomsday Runtime Gets Major New Update From Anthony Russo
+
+Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Wed, 29 Jul 2026 15:48:58 GMT
+
+https://screenrant.com/avengers-doomsday-runtime-clarification-anthony-russo/
+
+Following reports about what Avengers: Doomsday's runtime would be, director Anthony Russo addresses how long the Marvel Studios movie will be.
+---------
+
+# Tom Hardy’s Venom & Tom Holland’s Spider-Man Crossover Chances Get First New Update From Kevin Feige
+
+Movies, Spider-Man, Marvel Cinematic Universe
+
+Wed, 29 Jul 2026 15:42:25 GMT
+
+https://screenrant.com/tom-hardy-venom-tom-holland-spiderman-crossover-chances-update-kevin-feige-amy-pascal/
+
+The chances of Tom Hardy's Venom and Tom Holland's Spider-Man finally meeting after Spider-Man: Brand New Day just got an exciting MCU update.
+---------
+
+# Watch Reeve Carney and Eva Noblezada Answer the Most Personal Questions | We're Not Really Strangers
+
+Movies, Hadestown: The Musical, broadway
+
+Wed, 29 Jul 2026 16:22:02 GMT
+
+https://www.cbr.com/video/watch-reeve-carney-and-eva-noblezada-answer-the-most-personal-questions-we-re-not-really-strangers/
+
+Get personal with real life couple and Hadestown co-stars Eva Noblezada (Eurydice) and Reeve Carney (Orpheus) while they play We're Not Really Strangers.Both Eva and Reeve admit to being intimidated by each other when they first met (they're kind of a big deal!), Eva confesses to seeing ghosts, Reeve gets a hype man and they both show us what ~Relationship Goals~ really means.Can you guess Eva's karaoke song? Their happiest memory from this year? What do they consider each others' super power?Let's dig deeper.Anaïs Mitchell's Hadestown pro-shot is in theatres for a limited 5 night engagement, starting July 24th.
+---------
+
+# Neagley Cast Wants Maria Sten as Batman | SDCC 2026
+
+TV, Neagley
+
+Wed, 29 Jul 2026 16:18:01 GMT
+
+https://www.cbr.com/video/neagley-cast-wants-maria-sten-as-batman-sdcc-2026/
+
+The Neagley cast shares why Maria Sten might actually make a convincing Batman while diving into everything that makes the Reacher spin-off stand apart. From hilarious behind-the-scenes stories to the emotional core of Neagley's journey, this SDCC 2026 interview covers plenty of ground.
+---------
+
+# 5 2026 Anime Series Already Considered Masterpieces
+
+Anime, Witch Hat Atelier, Fullmetal Alchemist
+
+Wed, 29 Jul 2026 16:15:15 GMT
+
+https://www.cbr.com/2026-anime-series-must-watch-masterpieces/
+
+2026's best anime series are already gearing up to be future classics.
+---------
+
+# Apple TV's New Snoopy Special Comes With a Major Twist in New Clip
+
+TV, snoopy, Apple TV, Peanuts, Snoopy Presents: There's No Place Like Home, Snoopy
+
+Wed, 29 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/theres-no-place-like-home-snoopy-special-apple-tv-clip/
+
+Apple TV has a brand-new Snoopy special, and it might just be the most unexpected Peanuts story that the franchise has ever seen.
+---------
+
+# 10 Greatest Spider-Man Comic Arcs Fans Want To See In The Movies
+
+Comics, Spider-Man
+
+Wed, 29 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/10-greatest-spider-man-comics-brand-new-day/
+
+Fans are hyped for Spider-Man: Brand New Day, but there are plenty more Spider-Man stories Hollywood could adapt.
+---------
+
+# John Wick Meets Taken in Jason Statham's A Working Man
+
+Movies, A Working Man
+
+Wed, 29 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/jason-stathams-a-working-man-streaming-now/
+
+A Working Man (2025) has seen continued streaming success as it pays homage to two incredible action thriller films.
+---------
+
+# Batman's Creepiest Redesign Yet Gives the Dark Knight a Terrifying New Look
+
+Comics, Batman
+
+Wed, 29 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/batman-14-terrifying-variant-cover/
+
+Batman just struck fear into the hearts of... everyone.
+---------
+
+# Boy Meets World's Danielle Fisher Reveals Her Love For The X-Files
+
+TV, Boy Meets World, The X-Files, San Diego Comic-Con
+
+Wed, 29 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/boy-meets-world-danielle-fishel-x-files-dugout-dads/
+
+What TV show had this Boy Meets World star glued to the screen?
+---------
+
+# Anthony Hopkins' HBO Classic Is TV's Only Perfect Sci-Fi Western
+
+TV, Westworld, HBO Max, Sci-Fi, Western
+
+Wed, 29 Jul 2026 16:00:15 GMT
+
+https://www.cbr.com/hbo-westworld-perfect-tv-sci-fi-western/
+
+Many TV shows have tried to blend the sci-fi and Western genres, but only one HBO hit is considered to have mastered the craft.
+---------
+
+# Kevin Hart, Marcello Hernández & the 72 Hours Cast Hand Out Superlatives
+
+Movie, Originals, 72 Hours, Kevin Hart
+
+Wed, 29 Jul 2026 16:40:34 GMT
+
+https://collider.com/video/kevin-hart-marcello-hernndez-the-72-hours-cast-hand-out-superlatives/
+
+Kevin Hart and the 72 Hours cast put each other on the spot in Collider's Superlatives, and nobody is safe. Kevin Hart, Marcello Hernández, Ben Marshall, Kam Patterson, and Mason Gooding hand out awards for best dressed, biggest prankster, most affectionate, and more while roasting each other's style, habits, and on-set personalities.
+---------
+
+# 10 Greatest Sci-Fi Books That Won Both the Hugo and Nebula Awards
+
+Books and Comics, Books, Sci-Fi, Dune, Neuromancer
+
+Wed, 29 Jul 2026 16:34:15 GMT
+
+https://collider.com/sci-fi-books-hugo-nebula-award-winners/
+
+Dune, Rendezvous With Rama, and Neuromancer are all among the very best science fiction books that won both the Hugo and Nebula Awards.
+---------
+
+# Loungefly Is Officially Bringing Back the Disney Classics for D23 [Exclusive]
+
+Collectibles, D23, The Fox and the Hound, Beauty and the Beast, Winnie the Pooh
+
+Wed, 29 Jul 2026 16:01:15 GMT
+
+https://collider.com/loungefly-disney-collection-d23-release-images/
+
+Discover Loungefly's D23 exclusive Disney collection featuring themed backpacks and bags inspired by classic movies.
+---------
+
+# Marvel Is Officially Rewriting Thor's Story Ahead of His MCU Return
+
+Books and Comics News, Thor, Marvel, Avengers: Doomsday, Chris Hemsworth
+
+Wed, 29 Jul 2026 16:01:15 GMT
+
+https://collider.com/marvel-rewrites-thor-story-queen-in-black-1/
+
+In Queen in Black #1, Beta Ray Bill becomes the lone guardian of a history no one else believes ever happened.
+---------
+
+# Netflix’s Brilliant 16-Episode ‘Witcher’ Replacement Is the Perfect Fantasy Binge
+
+TV Features, The Haunted Palace, Netflix, The Witcher, Fantasy
+
+Wed, 29 Jul 2026 15:52:14 GMT
+
+https://collider.com/netflix-best-the-witcher-replacement-haunted-palace-series/
+
+The Haunted Palace became one of Netflix's biggest fantasy successes, racking up 84.4 million viewing hours with its supernatural story, standout cast
+---------
+
+# Guy Ritchie's Biggest Crime Series Since 'MobLand' Adds 2 'Game of Thrones' Favorites
+
+TV News, Young Sherlock, Guy Ritchie, Indira Varma, Aidan Gillen
+
+Wed, 29 Jul 2026 15:32:52 GMT
+
+https://collider.com/guy-ritchie-young-sherlock-season-2-cast-indira-varma-aidan-gillen/
+
+Guy Ritchie's hit Sherlock Holmes prequel series has added stars from Game of Thrones, Dune: Prophecy, and Outlander for Season 2. Read on for more.
+---------
+
+# Guy Ritchie's Smash Hit Amazon Reboot Adds 'Game of Thrones' Icon & More to Season 2
+
+TV News, Guy Ritchie, Young Sherlock
+
+Wed, 29 Jul 2026 16:29:08 GMT
+
+https://movieweb.com/young-sherlock-season-2-cast-exits/
+
+'Young Sherlock' Season 2 adds Indira Varma, Aidan Gillen, Sophie Skelton, and Olivia Williams as Prime Video's Guy Ritchie hit loses three regulars.
+---------
+
+# In Just 1 Day, 'Spider-Man: Brand New Day' Is Already Smashing Box Office Records
+
+Movie News, Spider-Man: Brand New Day, Box Office
+
+Wed, 29 Jul 2026 16:13:59 GMT
+
+https://movieweb.com/spider-man-brand-new-day-box-office-opening-china/
+
+Marvel and Sony's 'Spider-Man: Brand New Day' could be one of the biggest box office hits of the year after a new update.
+---------
+
+# Netflix's New Action Thriller Is Officially a Streaming Smash After Hitting 7.6M Views in 1 Week
+
+Movie News, Netflix, Action, Thriller
+
+Wed, 29 Jul 2026 16:00:12 GMT
+
+https://movieweb.com/netflix-debt-collector-action-thriller-biggest-stream-july-2026/
+
+The no-nonsense revenge thriller has quickly become a big hit with audiences at home.
+---------
+
+# Jared Leto Accused of Criminal Sexual Conduct by Four Women in New Documentary
+
+Movie News, Jared Leto, Masters of the Universe, Documentary
+
+Wed, 29 Jul 2026 15:54:07 GMT
+
+https://movieweb.com/jared-leto-criminal-sexual-conduct-documentary/
+
+'Jared Leto: Hollywood’s Dark Secret' brings new allegations to light.
+---------
+
+# 'It's Always Sunny in Philadelphia' Finally Returns in First Season 18 Trailer
+
+TV News, It's Always Sunny in Philadelphia
+
+Wed, 29 Jul 2026 15:26:12 GMT
+
+https://movieweb.com/its-always-sunny-in-philadelphia-season-18-trailer/
+
+FX shared the first look at the newest season of 'It's Always Sunny in Philadelphia' in a hilarious new trailer.
+---------
+
 # Robin's New Costume Is Officially The Most Unexpected Of The Year
 
 DC Comics, Robin
@@ -5166,334 +5496,4 @@ Mon, 27 Jul 2026 23:30:11 GMT
 https://screenrant.com/the-witcher-netflix-game-of-thrones-meets-lord-of-the-rings/
 
 No fantasy franchises can match The Lord of the Rings and Game of Thrones iconic statuses, but one Netflix show perfectly blends their unique tones.
----------
-
-# Todd McFarlane Reveals Epic New Spawn Movie With Returning Star As Live-Action Reboot Remains Stalled
-
-Movies, Spawn, Todd McFarlane
-
-Mon, 27 Jul 2026 23:25:00 GMT
-
-https://screenrant.com/spawn-movie-animated-keith-david-mark-hamill-cast-return-todd-mcfarlane/
-
-Todd McFarlane's Spawn secretly has an epic new movie on the way as the creator reveals two major stars are in amid the reboot's struggles.
----------
-
-# 6 Netflix Sci-Fi Shows Better Than Stranger Things
-
-Streaming TV
-
-Mon, 27 Jul 2026 23:15:11 GMT
-
-https://screenrant.com/netflix-sci-fi-shows-better-than-stranger-things/
-
-Stranger Things is one of Netflix's best sci-fi TV shows, and while that's undeniable, there are other sci-fi shows on Netflix that are better.
----------
-
-# Deadpool's Next MCU Movie Might Have Just Been Revealed By Marvel Studios
-
-Movies, Deadpool, Marvel Cinematic Universe
-
-Mon, 27 Jul 2026 23:14:55 GMT
-
-https://screenrant.com/ryan-reynolds-deadpool-movie-x-force-tease/
-
-Ryan Reynolds' Deadpool will return to the MCU, and his next Marvel movie might have just been revealed by the Wade Wilson actor through a tease.
----------
-
-# 9-1-1 Franchise’s 2026 Return Dates Confirmed At ABC
-
-TV, 9-1-1, 9-1-1: Nashville - Season 1
-
-Mon, 27 Jul 2026 23:06:14 GMT
-
-https://screenrant.com/911-season-10-911-nashville-season-2-abc-release-dates/
-
-After both 9-1-1 and its spinoff 9-1-1: Nashville were renewed, ABC has revealed when each of the new seasons in the hit franchise will premiere.
----------
-
-# Crunchyroll Is Missing Anime's Rarest Classics, And This Free Streaming Service Is Here To Help
-
-Anime
-
-Mon, 27 Jul 2026 23:00:12 GMT
-
-https://screenrant.com/darkroom-new-anime-streaming-service-challenge-crunchyroll/
-
-With both free and affordable subscription options, this new streaming service is offering anime fans something that Crunchyroll chooses not to.
----------
-
-# Resident Evil Requiem "Major" Story DLC Appears Online
-
-Gaming, Resident Evil, Triple-A Games, PC
-
-Mon, 27 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/resident-evil-requiem-major-story-dlc/
-
-The Resident Evil franchise has been on a roll these past few years, but the future of the franchise looks even brighter if these leaks are true.
----------
-
-# Brendan Fraser's The Mummy 4 Eyeing First New Actor With 2026 Horror Breakout
-
-Movies, The Mummy 4, The Mummy
-
-Mon, 27 Jul 2026 22:59:56 GMT
-
-https://screenrant.com/the-mummy-4-michael-johnston-cast-talks/
-
-Brendan Fraser and Rachel Weisz's The Mummy 4 is eyeing its first new actor with the star of one of 2026's biggest horror breakouts in talks.
----------
-
-# It's Time to Say Goodbye to Goku's Orange Gi in Dragon Ball Super
-
-Anime, Dragon Ball, Dragon Ball Super
-
-Mon, 27 Jul 2026 23:45:15 GMT
-
-https://www.cbr.com/dragon-ball-super-change-goku-orange-gi/
-
-Dragon Ball Super’s Toyotarou already introduced the perfect replacement for Goku’s iconic orange gi as the series starts a new era without Toriyama.
----------
-
-# Carrie Cast: The Stephen King Story Gets Reimagined | SDCC 2026
-
-TV, Carrie
-
-Mon, 27 Jul 2026 23:32:44 GMT
-
-https://www.cbr.com/video/carrie-cast-the-stephen-king-story-gets-reimagined-sdcc-2026/
-
-Mike Flanagan's Carrie is far more than another adaptation of Stephen King's classic. At SDCC 2026, the cast and creative team explain why this Prime Video series tells a version of the story fans have never seen before while staying true to the novel's emotional core.
----------
-
-# Ocarina of Time Switch 2 Trailer Confirms 3-Year-Old Zelda Fan Theory
-
-Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
-
-Mon, 27 Jul 2026 23:19:15 GMT
-
-https://www.cbr.com/zelda-ocarina-of-time-switch-2-trailer-timeline-lore-analysis/
-
-Every Zelda fan seems to have missed the most crucial detail in Ocarina of Time's new trailer that could change everything about the series' timeline.
----------
-
-# Fullmetal Alchemist: Brotherhood Finally Gets 3 New Official Dubs After 17 Years
-
-Anime, Fullmetal Alchemist, Fullmetal Alchemist: Brotherhood, Crunchyroll
-
-Mon, 27 Jul 2026 23:05:15 GMT
-
-https://www.cbr.com/fmab-crunchyroll-new-dubs-india/
-
-Nearly two decades after its release, fans in India can finally look forward to watching FMAB in their regional languages.
----------
-
-# 5 Neo-Western Thrillers That Are 10/10 Masterpieces
-
-Movies, Western, Thriller, Sicario
-
-Mon, 27 Jul 2026 23:00:15 GMT
-
-https://www.cbr.com/perfect-neo-western-thrillers-list/
-
-The combination of contemporary Western and crime thriller has given audiences some of the best-written movie masterpieces ever made.
----------
-
-# The Newest ‘Avengers: Doomsday’ Star Confirms Scenes With Robert Downey Jr.’s Doctor Doom [Exclusive]
-
-Exclusives, Hayley Atwell, Avengers: Doomsday, Robert Downey Jr, SDCC
-
-Mon, 27 Jul 2026 23:30:15 GMT
-
-https://collider.com/avengers-doomsday-hayley-atwell-robert-downey-jr-doctor-doom-darkness/
-
-Avengers: Doomsday star Hayley Atwell shares exclusive insights into working with Robert Downey Jr.'s enigmatic and intimidating Doctor Doom.
----------
-
-# 8 Superhero Show Endings That Are Genuine Masterpieces
-
-TV, Superhero, Loki, Daredevil, Teen Titans
-
-Mon, 27 Jul 2026 23:14:15 GMT
-
-https://collider.com/superhero-show-endings-masterpieces/
-
-It's an achievement to end a series well, but superhero shows Loki, Daredevil, and Agents of S.H.I.E.L.D. have endings that are true masterpieces.
----------
-
-# ‘The Odyssey’ Is More Than Just Christopher Nolan's Newest Epic — It's A Secret Sequel to This Hit
-
-Movie Features, The Odyssey, Oppenheimer, Christopher Nolan, Matt Damon
-
-Mon, 27 Jul 2026 23:11:08 GMT
-
-https://collider.com/the-odyssey-christopher-nolan-oppenheimer-sequel/
-
-The Odyssey's epic style feels like a major change for Christopher Nolan, but actually, it touches on the same issues as his grounded hit Oppenheimer.
----------
-
-# Alan Ritchson Confirms 'Reacher' Season 5 Is Officially Ahead of Schedule [Exclusive]
-
-Exclusives, Reacher, Prime Video, Alan Ritchson, SDCC
-
-Mon, 27 Jul 2026 23:00:15 GMT
-
-https://collider.com/reacher-season-5-filming-schedule-alan-ritchson/
-
-Alan Ritchson reveals Reacher Season 5 is already filming and says the hit Prime Video series is ahead of schedule.
----------
-
-# The Two Greatest Sci-Fi Movie Franchises Have Major New Releases in 2026
-
-Features, Dune: Part Three, Blade Runner 2099
-
-Mon, 27 Jul 2026 23:00:12 GMT
-
-https://movieweb.com/blade-runner-2099-dune-part-three-2026-releases/
-
-Two of the most beloved sci-fi movie franchises have new projects being released later in 2026, and fans of the genre should be excited.
----------
-
-# Netflix Scores Big as Raunchy New Movie Is Crowned #1 on Streaming Worldwide
-
-Movie News, 72 Hours, Netflix
-
-Mon, 27 Jul 2026 23:00:12 GMT
-
-https://movieweb.com/72-hours-netflix-stream-july-2026/
-
-Netflix's new raunchy comedy is dominating the top ten charts.
----------
-
-# 18 Years Ago, Band Of Brothers' True Sequel Aired On HBO
-
-Classic TV, Masked Recs
-
-Mon, 27 Jul 2026 22:45:11 GMT
-
-https://screenrant.com/generation-kill-hbo-band-of-brothers-spiritual-successor/
-
-18 years ago, a war drama series premiered on HBO and proved that it was the real television sequel to Band of Brothers, despite other claimants.
----------
-
-# DC Unveils an 80s Icon's Best Redesign of All Time, Bar None
-
-Comics, DC, Masked Recs
-
-Mon, 27 Jul 2026 22:30:12 GMT
-
-https://screenrant.com/swamp-thing-redesign-deadman/
-
-Techno Thing?
----------
-
-# Jon Bernthal's 124-Minute Gritty Spy Thriller Is One Of Prime's Biggest Action Movies
-
-Movies, Masked Recs
-
-Mon, 27 Jul 2026 22:18:03 GMT
-
-https://screenrant.com/jon-bernthal-the-amateur-movie-prime-video-streaming-success-july-2026/
-
-Jon Bernthal's gritty new spy thriller movie is officially one of Prime Video's biggest action movies as it enters the streamer's Top 10.
----------
-
-# Ryan Gosling's Ghost Rider Movie Announcement Confirms An MCU Dream Role
-
-Movies, Ghost Rider, Marvel Cinematic Universe
-
-Mon, 27 Jul 2026 22:11:46 GMT
-
-https://screenrant.com/ryan-gosling-ghost-rider-mcu-movie-dream-role-confirmed/
-
-Ryan Gosling will lead 2028's Ghost Rider movie, and the upcoming MCU project's announcement confirms that a Marvel dream role is coming to life.
----------
-
-# Ridley Scott's 4-Hour Sci-Fi Series Is 'Prometheus Meets The Expanse'
-
-Classic TV, Masked Recs
-
-Mon, 27 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/the-andromeda-strain-ridley-scott-prometheus-expanse/
-
-Ridley Scott produced a four-episode miniseries that has echoes of his 2012 sci-fi horror, Prometheus, as well as similarities to The Expanse.
----------
-
-# 5 Perfect PlayStation 3 RPGs (And How To Play Them In 2026)
-
-Gaming, RPG, PlayStation 3, Triple-A Games
-
-Mon, 27 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/5-perfect-playstation-3-rpgs-how-to-play-in-2026/
-
-PlayStation 3 served as a stage for many remarkable RPGs, and several of the releases are still playable nowadays, even if on different platforms.
----------
-
-# Batman Officially Debuts New Logo, Permanently Rewriting DC Lore
-
-Comics, Batman
-
-Mon, 27 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/batman-new-logo-secret-team-prion/
-
-Batman reveals his secret team.
----------
-
-# KPop Demon Hunters 2's Perfect Sequel Title Has Already Been Revealed
-
-Movies, KPop Demon Hunters
-
-Mon, 27 Jul 2026 21:45:11 GMT
-
-https://screenrant.com/kpop-demon-hunters-2-perfect-sequel-title/
-
-While KPop Demon Hunters 2 is in development, the perfect title for it is ready to go, and it fits its biggest influence from the real world.
----------
-
-# Hulu's New 8-Episode Crime Drama Debuts to Perfect Rotten Tomatoes Score
-
-TV, Furious
-
-Mon, 27 Jul 2026 22:29:15 GMT
-
-https://www.cbr.com/hulu-furious-rotten-tomatoes-score/
-
-The series is based on a 39-year-old thriller.
----------
-
-# 10 Best Shonen Jump Manga Ever Published
-
-Anime, Manga, Shonen Jump
-
-Mon, 27 Jul 2026 22:15:15 GMT
-
-https://www.cbr.com/best-shonen-jump-manga-ever-published/
-
-Weekly Shonen Jump has shaped the anime and manga industry for decades, publishing countless series that have gone on to become global phenomena.
----------
-
-# Marvel Quietly Reveals the Only MCU Hero Powerful Enough to Stop the Avengers: Doomsday Threat
-
-Movies, Avengers: Doomsday, Marvel Cinematic Universe, Avengers
-
-Mon, 27 Jul 2026 22:07:15 GMT
-
-https://www.cbr.com/marvel-mcu-avengers-doomsday-shang-chi-powerful-doctor-doom/
-
-This MCU character may be the Avengers' secret weapon in the fight against Doctor Doom.
----------
-
-# Agatha Christie's Fan-Favorite 13-Part Series Will Be Streaming for Free for a Limited Time
-
-TV, Poirot, Mystery, Crime
-
-Mon, 27 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/agatha-christie-poirot-mystery-streaming-free-pbs-prime-july-august-2026/
-
-Agatha Christie's best adaptation, Agatha Christie's Poirot, will have a free 3-day streaming marathon in the United States.
 ---------
