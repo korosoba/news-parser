@@ -1,3 +1,234 @@
+# Young Avengers' MCU Future After Doomsday Return Addressed By Star
+
+Movies, Young Avengers, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Wed, 29 Jul 2026 21:48:53 GMT
+
+https://screenrant.com/young-avengers-mcu-future-avengers-doomsday-return-kathryn-newton/
+
+EXCLUSIVE: The future for the Young Avengers group finally gets a big MCU update from one of the members who will be back in Avengers: Doomsday.
+---------
+
+# Titus Welliver Has Found His Harry Bosch Replacement
+
+TV, Masked Recs
+
+Wed, 29 Jul 2026 21:30:11 GMT
+
+https://screenrant.com/the-westies-titus-welliver-glenn-keenan-harry-bosch-replacement/
+
+Although Prime Video's Bosch franchise is using Titus Welliver less and less, he's found another character in uniform who's just as compelling.
+---------
+
+# Disney+'s New Space Opera Passes 1 Billion Minutes Watched To Succeed In Hard Task
+
+Movies, Masked Recs
+
+Wed, 29 Jul 2026 21:20:30 GMT
+
+https://screenrant.com/disney-plus-avatar-fire-and-ash-billion-minutes-watched-july-2026/
+
+Disney+'s new space opera has become one of the biggest releases in the world, and it is racking up streaming numbers to succeed in a daunting task.
+---------
+
+# Stranger Things Returns To Netflix In An Unexpected Way
+
+Gaming, Stranger Things, Live Service Games, PC
+
+Wed, 29 Jul 2026 21:15:59 GMT
+
+https://screenrant.com/netflix-stranger-things-game-return-2026/
+
+Netflix clearly isn't giving up on Stranger Things any time soon, and subscribers now have a surprising new adventure in Hawkins to enjoy.
+---------
+
+# 71 Years & 17 Oscars Later, Gandalf's Best Line Is The One That Didn't Make It Into The LotR Movies
+
+Books, The Lord of the Rings
+
+Wed, 29 Jul 2026 21:05:11 GMT
+
+https://screenrant.com/best-gandalf-quote-not-in-lotr-movies/
+
+Peter Jackson's LotR trilogy is a cinematic masterpiece, but one of Gandalf's most profound quotes from the novels never made it to the screen.
+---------
+
+# Hit New Survival Horror Franchise Officially Getting Movie & TV Adaptations
+
+Movies, Horror
+
+Wed, 29 Jul 2026 21:03:21 GMT
+
+https://screenrant.com/tormented-souls-movie-tv-adaptations-development/
+
+Five years after the first Tormented Souls came out, it's been announced that the horror video game franchise is being developed for film and TV.
+---------
+
+# The Rings Of Power Officially Casts An Underrated Middle-earth Hero
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Wed, 29 Jul 2026 21:02:11 GMT
+
+https://screenrant.com/the-rings-of-power-anarion-casting-underrated-character/
+
+The Rings of Power season 3 has cast an underrated figure from Tolkien's lore who played a pivotal role in the formation of Gondor and the Alliance.
+---------
+
+# It's The End Of An Era For Alan Ritchson's Netflix Sci-Fi Movie With 15.2B Minutes Viewed
+
+New Movies, War Machine, Netflix
+
+Wed, 29 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/alan-ritchson-war-machine-movie-netflix-end-era/
+
+Alan Ritchson and Netflix delivered a global hit with a sci-fi movie, but after earning 15.2 billion minutes viewed, its reached the end of an era.
+---------
+
+# 5 10/10 N64 RPGs That Nobody Talks About
+
+Gaming, Nintendo
+
+Wed, 29 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/perfect-n64-rpgs-nobody-talks-about/
+
+The Nintendo 64 wasn't known for its RPGs, but there are still a few great examples from the console's RPG roster that no one ever talks about.
+---------
+
+# Doctor Doom's 'War Machine' Armor Debuts Ahead Of Avengers: Doomsday
+
+Marvel Comics, Doctor Doom
+
+Wed, 29 Jul 2026 20:57:23 GMT
+
+https://screenrant.com/doctor-doom-iron-man-armor/
+
+Doctor Doom designs a War Machine-like suit of armor inspired by Tony Stark's first suit of armor to build the empire of Greater Latveria.
+---------
+
+# 5 Perfect Open-World Games No One Remembers Today
+
+Games, Gaming, RPG, open world
+
+Wed, 29 Jul 2026 21:16:15 GMT
+
+https://www.cbr.com/forgotten-perfect-open-world-games/
+
+With so much focus on all the obvious open-world classics, there are some incredible open-world titles being forgotten.
+---------
+
+# 5 Harry Potter Characters Who Are Far More Powerful In The Books
+
+Movies, Harry Potter, Fantasy, books
+
+Wed, 29 Jul 2026 21:00:15 GMT
+
+https://www.cbr.com/harry-potter-characters-more-powerful-in-books-list/
+
+From book to screen, the Harry Potter movies changed many things, but these five characters were significantly more powerful in the books.
+---------
+
+# Jorah Mormont Officially Returns in New Game of Thrones Release Out Now
+
+Games, Game Of Thrones
+
+Wed, 29 Jul 2026 20:50:34 GMT
+
+https://www.cbr.com/game-of-thrones-jorah-mormont-officially-returns/
+
+Ser Jorah Mormont may have died in Game of Thrones Season 8, but now he's finally returning in a new release.
+---------
+
+# 25 Best Psychological Thrillers of the 21st Century
+
+Movie, Nightcrawler, Mulholland Drive, Gone Girl, Inception
+
+Wed, 29 Jul 2026 21:51:14 GMT
+
+https://collider.com/best-psychological-thrillers-21st-century-ranked/
+
+The very best psychological thrillers of the 21st century so far include modern classics like Nightcrawler, The Prestige, and I Saw the Devil.
+---------
+
+# The Ultimate Supergroup Was Accidentally Formed in Bob Dylan’s Garage
+
+Music Features, Music, Rock
+
+Wed, 29 Jul 2026 21:38:14 GMT
+
+https://collider.com/traveling-wilburys-rock-supergroup-bob-dylan/
+
+Bob Dylan, George Harrison, Tom Petty, Roy Orbison, and Jeff Lynne formed folk rock supergroup the Traveling Wilburys in 1988
+---------
+
+# 10 Great Books Stephen King Fans Should Read
+
+Books and Comics
+
+Wed, 29 Jul 2026 21:29:15 GMT
+
+https://collider.com/great-books-stephen-king-fans-should-read/
+
+There are plenty of books that scratch the same itch as some of Stephen King's best works, including King Sorrow, The Terror, and House of Leaves.
+---------
+
+# Christopher Nolan’s ‘The Odyssey’ Officially Sets New Release Amid Box Office Success
+
+Movie News, The Odyssey, Christopher Nolan, Fantasy, Matt Damon
+
+Wed, 29 Jul 2026 21:00:15 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-screenplay-book-release-date-august-2026/
+
+As Christopher Nolan's The Odyssey breaks new ground at the box office, the movie is getting a brand-new expansion this August.
+---------
+
+# 6 Years Later, These Are the 8 Best Movies of 2020
+
+Movie, The Father, Another Round, Sound of Metal, Minari
+
+Wed, 29 Jul 2026 20:54:15 GMT
+
+https://collider.com/best-movies-2020-ranked/
+
+From Palm Springs to Another Round, these 2020 films aged beautifully, proving great cinema can outlast even chaotic years.
+---------
+
+# Paramount's Upcoming Fantasy Adaptation Called "Worst Thing" Author Lived Through
+
+Movie News, Children of Blood and Bone, Fantasy, Gina Prince-Bythewood
+
+Wed, 29 Jul 2026 21:51:06 GMT
+
+https://movieweb.com/paramount-children-of-blood-and-bone-tomi-adeyemi-reaction/
+
+There's a lot of controversy swirling around this upcoming fantasy film.
+---------
+
+# Mike Flanagan Is Now Making Two Great TV Series Inspired by 'The Lord of the Rings'
+
+Features, The Lord of the Rings, Mike Flanagan, The Dark Tower, Warhammer 40k
+
+Wed, 29 Jul 2026 21:00:12 GMT
+
+https://movieweb.com/mike-flanagan-tv-series-lord-of-the-rings/
+
+Mike Flanagan just added a shocking new 'Lord of the Rings'-inspired series that will take his already busy schedule in a bold direction.
+---------
+
+# After Beating '70s Classic at the Box Office, 2026's Thriller Hit Is Now the #1 Biggest Film on Streaming
+
+Movie News, Obsession, The Exorcist, Hot on Streaming, Box Office Milestones
+
+Wed, 29 Jul 2026 21:00:12 GMT
+
+https://movieweb.com/obsession-beats-exorcist-streaming-hit-july-2026/
+
+The year's biggest theatrical hit is now an unstoppable streaming force.
+---------
+
 # Suits: Every Name The Firm Goes By Across 9 Seasons
 
 Classic TV, Suits
@@ -5265,235 +5496,4 @@ Tue, 28 Jul 2026 13:00:13 GMT
 https://movieweb.com/the-gambler-mark-wahlberg-stream-paramount-july-2026/
 
 Mark Wahlberg's forgotten 2014 crime thriller flop, 'The Gambler' remake, is a streaming success in the US on Paramount+.
----------
-
-# 'Spider-Man: Brand New Day' Review: A Spectacular Sequel on All Fronts
-
-Movie Reviews, Spider-Man: Brand New Day, Marvel Cinematic Universe, Tom Holland, Zendaya Coleman, Spider-Man
-
-Tue, 28 Jul 2026 13:00:13 GMT
-
-https://movieweb.com/spider-man-brand-new-day-review/
-
-With stunning visuals, heartwarming connections, and mind-blowing action, this sequel will leave you on the edge of your seat.
----------
-
-# Everyone Who Voiced Meg Griffin In Family Guy
-
-Network TV, Family Guy
-
-Tue, 28 Jul 2026 12:30:11 GMT
-
-https://screenrant.com/family-guy-meg-griffin-voice-actors/
-
-Being the voice of Meg Griffin made Mila Kunis a star, but four other voice actors have played Family Guy's resident punching bag over the years.
----------
-
-# The Elder Scrolls 6 Official Release Date Update Shared By Bethesda
-
-Gaming, The Elder Scrolls, The Elder Scrolls 6, Bethesda, PC
-
-Tue, 28 Jul 2026 12:28:56 GMT
-
-https://screenrant.com/elder-scrolls-6-official-release-date-update-bethesda-latest/
-
-After major concerns over troubling goings-on at XBOX and Bethesda, the studio just shared an official update for The Elder Scrolls 6 release.
----------
-
-# Batman's Creepiest New Look Yet Will Test Even Expert Cosplayers
-
-Comics, Batman
-
-Tue, 28 Jul 2026 12:04:11 GMT
-
-https://screenrant.com/batman-bad-seeds-redesign/
-
-DC unveils Batman’s latest redesign inspired by Bad Seeds, delivering one of the Dark Knight’s creepiest and most unique looks in his 87-year history.
----------
-
-# Disney’s New Must-Watch Movie Combines The MCU, Star Wars, & Its Animated Classics
-
-Movies, Disney
-
-Tue, 28 Jul 2026 12:00:11 GMT
-
-https://screenrant.com/disney-worldbuilders-trailer-franchise-teases/
-
-Disney's new movie is set to provide some unique insights into some of its biggest franchises, including the MCU, Star Wars, and many more.
----------
-
-# After 60 Years, Star Trek Completely Retconned Spock & USS Enterprise’s Time Travel History
-
-TV, Star Trek, Star Trek: Strange New Worlds
-
-Tue, 28 Jul 2026 12:00:11 GMT
-
-https://screenrant.com/star-trek-strange-new-worlds-spock-enterprise-time-travel-retcon/
-
-Star Trek: Strange New Worlds season 4's premiere rewrote the book on when and how far back Spock and the Starship Enterprise have time traveled.
----------
-
-# All 3 Upcoming Star Wars Shows, Ranked By Hype
-
-Streaming TV, Star Wars, Star Wars: Visions, Ahsoka, Star Wars: Maul - Shadow Lord
-
-Tue, 28 Jul 2026 11:30:11 GMT
-
-https://screenrant.com/upcoming-star-wars-shows-ranked-hype/
-
-Star Wars has just three upcoming shows: The Ninth Jedi, Ahsoka season 2, and Maul - Shadow Lord season 2. Here's which ones to look out for.
----------
-
-# Left 4 Dead 2 Just Got A Stunning Next-Gen Remake
-
-Gaming, Left 4 Dead 2, Left 4 Dead
-
-Tue, 28 Jul 2026 11:05:15 GMT
-
-https://screenrant.com/left-4-dead-2-next-gen-remake-rtx/
-
-Left 4 Dead 2 is one of the best zombie games of all time, and a remake really does feel long overdue at this point.
----------
-
-# Dakota Johnson Is Marilyn Monroe in First Look at Alternate Reality Film
-
-Movies, Marilyn Monroe
-
-Tue, 28 Jul 2026 12:00:15 GMT
-
-https://www.cbr.com/flesh-impact-first-look-dakota-johnson-ellen-burstyn-marilyn-monroe/
-
-Dakota Johnson and Ellen Burstyn both portray Hollywood icon Marilyn Monroe in the alternate reality story from Maggie Gyllenhaal.
----------
-
-# The Predator and The Punisher Officially Face Off In Most Brutal Showdown Yet
-
-Comics, Predator, The Punisher, San Diego Comic-Con
-
-Tue, 28 Jul 2026 12:00:15 GMT
-
-https://www.cbr.com/predator-versus-punisher-marvel-sdcc/
-
-The two deadliest Marvel properties finally cross paths.
----------
-
-# Stephen King Praised Netflix’s Best Crime Thriller for the Last Reason You’d Expect
-
-TV, Mindhunter, Stephen King, Netflix
-
-Tue, 28 Jul 2026 11:30:15 GMT
-
-https://www.cbr.com/stephen-king-netflix-mindhunter-praise/
-
-Earning praise from Stephen King, Mindhunter leaves much to the imagination with its stomach-churning retellings of America's most notorious crimes.
----------
-
-# 15 Far Side Comics That Showcase Gary Larson's Darkest Humor
-
-Comics, The Far Side
-
-Tue, 28 Jul 2026 11:01:14 GMT
-
-https://www.cbr.com/the-far-side-comics-with-darkest-humor-ranked/
-
-Gary Larson's The Far Side comic strip has entertained fans for years with his unique take on the world, often featuring hilariously dark comedy.
----------
-
-# The Greatest Supernatural Spin-Off of All Time Is Officially Streaming for Free
-
-TV Features, Angel, David Boreanaz, Charisma Carpenter, James Marsters
-
-Tue, 28 Jul 2026 12:37:14 GMT
-
-https://collider.com/angel-greatest-supernatural-spin-off-of-all-time/
-
-Angel takes a darker and more complex approach to the supernatural genre established by Buffy the Vampire Slayer.
----------
-
-# After ‘Fallout,’ Prime Video’s ‘Wolfenstein’ Video Game Series Faces a Bigger Challenge
-
-TV Features, Fallout, Wolfenstein II: The New Colossus, Jonathan Nolan, Video Game
-
-Tue, 28 Jul 2026 12:31:14 GMT
-
-https://collider.com/jonathan-nolan-adapting-wolfenstein-fallout-differences/
-
-Jonathan Nolan's next project is adapting Wolfenstein, an alternate post-World War II game which is slightly more restrictive than Fallout.
----------
-
-# Say Goodbye to One of the Greatest Murder Mysteries of the 21st Century
-
-Movie News, Knives Out, Daniel Craig, Rian Johnson, Peacock
-
-Tue, 28 Jul 2026 12:30:14 GMT
-
-https://collider.com/knives-out-leaving-peacock-august-2026/
-
-One of the greatest murder mysteries of the last two decades, Knives Out, is about to leave the Peacock streaming service. Find out when.
----------
-
-# 10 Greatest Epic Movies of the Last 80 Years
-
-Movie, Lawrence of Arabia, Seven Samurai, The Godfather Part II, War and Peace
-
-Tue, 28 Jul 2026 12:27:14 GMT
-
-https://collider.com/best-epic-movies-last-80-years-ranked/
-
-From foundational classics like Seven Samurai to 21st-century masterpieces like There Will Be Blood, these are the best epics of the last 80 years.
----------
-
-# The 15 Most Cinematic Video Games, Ranked
-
-TV, Death Stranding, The Last of Us, Final Fantasy XV, Until Dawn
-
-Tue, 28 Jul 2026 12:14:15 GMT
-
-https://collider.com/cinematic-video-games-ranked/
-
-Video games like Until Dawn and Horizon Zero Dawn are among the most cinematic and visually jaw-dropping in the current and ever-expanding industry.
----------
-
-# Netflix Have Found Their 'Ted Lasso' Replacement With This Unstoppable Streaming Hit
-
-TV News, Netflix, Ted Lasso, The Hawk, Will Ferrell
-
-Tue, 28 Jul 2026 12:00:15 GMT
-
-https://collider.com/will-ferrell-the-hawk-streaming-success-netflix-july-2026/
-
-Netflix's new Ted Lasso replacement, starring Will Ferrell and Luke Wilson, is scoring big on streaming. Find out more here.
----------
-
-# Only 8 Fantasy Franchises Are Objectively Better Than Lord of the Rings
-
-Movie, The Lord of the Rings, Fantasy, Star Wars, Wizarding World
-
-Tue, 28 Jul 2026 11:52:15 GMT
-
-https://collider.com/fantasy-franchises-better-than-lord-of-the-rings/
-
-The Chronicles of Narnia, Pirates of the Caribbean, Harry Potter, and more make up our list of fantasy franchises better than Lord of the Rings.
----------
-
-# 10 Most Visually Stunning Video Games of All Time
-
-Gaming, Video Game, Cyberpunk 2077, Cuphead, The Legend of Zelda
-
-Tue, 28 Jul 2026 11:31:14 GMT
-
-https://collider.com/most-visually-stunning-video-games-all-time/
-
-Video games like Hollow Knight and BioShock are legendary because of their stunning visuals, showcasing the medium's best, most fully realized worlds.
----------
-
-# Liam Neeson's New Sci-Fi Thriller Is Officially One of 2026's Biggest Streaming Sleeper Hits
-
-Movie News, Liam Neeson, Sci-Fi, Cold Storage, MGM
-
-Tue, 28 Jul 2026 11:30:14 GMT
-
-https://collider.com/cold-storage-streaming-success-mgm-plus-july-2026/
-
-An underrated sci-fi horror-comedy starring Liam Neeson and a Stranger Things icon is a sleeper streaming gem. Find out more about Cold Storage here.
 ---------
