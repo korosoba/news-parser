@@ -1,3 +1,355 @@
+# Children Of Blood & Bone Author Doubles Down On Movie Denouncement As “Worst Thing” Of Her Life
+
+Movies, Children of Blood and Bone
+
+Wed, 29 Jul 2026 19:49:45 GMT
+
+https://screenrant.com/children-blood-bone-movie-denouncement-tomi-adeyimi-double-down/
+
+Author Tomi Adeyimi doubles down on her denouncement of the Children of Blood & Bone movie as she calls the experience the "worst thing" of her life.
+---------
+
+# It's The Start Of A New Star Wars Era After $32.4 Billion Move
+
+Movies, Star Wars
+
+Wed, 29 Jul 2026 19:43:37 GMT
+
+https://screenrant.com/star-wars-movies-box-office-starfighter-ghost-rider-update/
+
+Star Wars will begin a new era in theaters, as a new movie just had a massive win after The Mandalorian and Grogu underperformed at the box office.
+---------
+
+# Iconic Spider-Man Villain Is Officially Marvel's New Venom
+
+Marvel Comics, Venom, Spider-Man
+
+Wed, 29 Jul 2026 19:30:27 GMT
+
+https://screenrant.com/spider-man-kraven-new-venom/
+
+Venom chooses a different host from Spider-Man and Eddie Brock, bonding to a Marvel villain who had never had the chance to control the alien being.
+---------
+
+# HBO’s Task Confirms 2 More Returning Stars For Crossover Season 2
+
+TV, Task
+
+Wed, 29 Jul 2026 19:27:31 GMT
+
+https://screenrant.com/task-season-2-hbo-cast-martha-plimpton-silvia-dionicio-returning/
+
+A new update has arrived for Task season 2, which crosses over with Mare of Easttown, revealing that more familiar faces will be returning.
+---------
+
+# 15 Years After Coming To Theaters, Beginners Is Still One Of The Century's Best Dramedies
+
+Movies, Beginners
+
+Wed, 29 Jul 2026 19:20:11 GMT
+
+https://screenrant.com/beginners-criterion-op-ed/
+
+One part of the Mike Mills "I'll Remind You Of Everything" trilogy is the Oscar-winning Beginners, one of modern cinema's most effective dramedies.
+---------
+
+# The Hunger Games Owes Its Best Recast To Paul Thomas Anderson
+
+Movies, The Hunger Games, The Hunger Games: Sunrise on the Reaping
+
+Wed, 29 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/the-hunger-games-plutarch-heavensbee-recast-jesse-plemons-the-master/
+
+The upcoming prequel movie Sunrise on the Reaping sees various Hunger Games characters recast, but one casting choice stands out from the rest.
+---------
+
+# How To Train Your Dragon Meets Zelda In New Fantasy RPG
+
+Gaming, How to Train Your Dragon, The Legend of Zelda, PC, Steam, RPG
+
+Wed, 29 Jul 2026 19:00:11 GMT
+
+https://screenrant.com/sagas-of-lumin-zelda-meets-how-to-train-your-dragon/
+
+Fans of the legendarily good How to Train Your Dragon absolutely need to check out this new Zelda-esque fantasy RPG.
+---------
+
+# Chicago Fire Season 15 Confirms Major OG Cast Exit
+
+TV, Chicago Fire, Chicago Fire - Season 15
+
+Wed, 29 Jul 2026 18:59:53 GMT
+
+https://screenrant.com/chicago-fire-season-15-joe-minoso-exit/
+
+Chicago Fire confirms that a major original cast member will be leaving the show after appearing in nearly every episode for 15 seasons.
+---------
+
+# How To Watch Spider-Man Movies In Order (Chronologically & By Release Date)
+
+Movies, Spider-Man, Marvel Cinematic Universe, Movie/TV Show Timelines
+
+Wed, 29 Jul 2026 18:55:07 GMT
+
+https://screenrant.com/spider-man-movies-in-order/
+
+The live-action Spider-Man series is one of the more successful superhero movie franchises, and here is how to watch every installment in order.
+---------
+
+# Prime Video’s New Shark Horror Movie Continues Disappointing 21-Year Rotten Tomatoes Trend
+
+Movies, The Devil's Mouth, Horror, Prime Video
+
+Wed, 29 Jul 2026 18:35:40 GMT
+
+https://screenrant.com/the-devils-mouth-prime-video-rotten-tomatoes-score-jeff-wadlow-trend/
+
+Reviews are rolling out for Prime Video's new shark horror movie and its Rotten Tomatoes debut continues a disappointing 21-year trend.
+---------
+
+# Pokémon Red & Blue Returns As a 3D Game 30 Years Later
+
+Games, Pokemon
+
+Wed, 29 Jul 2026 19:50:17 GMT
+
+https://www.cbr.com/pokemon-red-blue-returns-3d-game-remake/
+
+Pokémon Red and Blue, two of the most iconic RPGs ever, are finally being remade in 3D, 30 years after they first released.
+---------
+
+# Reacher Actor Who Quit In Season 4 Officially Returns In New Role
+
+TV, Reacher
+
+Wed, 29 Jul 2026 19:49:46 GMT
+
+https://www.cbr.com/reacher-season-5-casting-jay-baruchel-new-role/
+
+The Reacher Season 5 cast includes an actor who almost appeared on the upcoming fourth season of the Prime Video show.
+---------
+
+# James Gunn Officially Responds to DCU Batman Casting Rumor
+
+Movies, The Brave and the Bold, DCU, Batman
+
+Wed, 29 Jul 2026 19:35:52 GMT
+
+https://www.cbr.com/james-gunn-debunks-dcu-batman-casting-rumor/
+
+James Gunn officially weighs in on a major DCU casting rumor.
+---------
+
+# Bethesda Game Officially Shuts Down Forever in 24 Hours
+
+Games, The Elder Scrolls, Bethesda Softworks
+
+Wed, 29 Jul 2026 19:22:15 GMT
+
+https://www.cbr.com/bethesda-game-elder-scrolls-official-shutdown-24-hours/
+
+An Elder Scrolls game will officially be gone forever in just 24 hours.
+---------
+
+# Kevin Feige Officially Teases Venom’s MCU Future
+
+Movies, Venom, Marvel Cinematic Universe
+
+Wed, 29 Jul 2026 19:20:28 GMT
+
+https://www.cbr.com/kevin-feige-venom-mcu-future/
+
+Marvel Studios president Kevin Feige addresses when Venom could join the Marvel Cinematic Universe.
+---------
+
+# 5 Essential Cyberpunk TV Shows to Watch Before Apple TV's Neuromancer
+
+TV, Neuromancer, Love, Death & Robots, Altered Carbon, Sci-Fi
+
+Wed, 29 Jul 2026 19:00:15 GMT
+
+https://www.cbr.com/essential-cyberpunk-tv-shows-list/
+
+From cyberspace adventures to post-apocalyptic survival, here are the essential shows to watch before Apple TV’s Neuromancer.
+---------
+
+# 5 Fantasy Books That Are 10/10, No Notes
+
+Movies, Fantasy
+
+Wed, 29 Jul 2026 19:00:15 GMT
+
+https://www.cbr.com/near-perfect-fantasy-books-list/
+
+In the world of fantasy fiction, it is notoriously difficult to be considered absolutely perfect but these five books come exceptionally close.
+---------
+
+# 7 Greatest Anime With 4 Episodes or Less
+
+Anime, Pet Shop of Horrors, Puni Puni Poemy
+
+Wed, 29 Jul 2026 18:45:16 GMT
+
+https://www.cbr.com/greatest-anime-4-episodes-or-less/
+
+Some anime require serious time commitments, but titles like Puni Puni Poemy and Petshop of Horrors can be finished in a single sitting.
+---------
+
+# Chicago Fire Says Goodbye as Original Star Exits After 15 Seasons
+
+TV, Chicago Fire, NBC, Drama
+
+Wed, 29 Jul 2026 18:43:07 GMT
+
+https://www.cbr.com/chicago-fire-joe-minoso-exit/
+
+An original Chicago Fire cast member is leaving the series.
+---------
+
+# Stranger Things Four-Episode Spin-Off Confirmed, But It Won't Release on Netflix
+
+Comics, Stranger Things, webtoon
+
+Wed, 29 Jul 2026 18:36:12 GMT
+
+https://www.cbr.com/webtoon-stranger-things-six-confirmed/
+
+One of Stranger Things fans' favorite stories is set to continue on courtesy of a major digital platform, and it isn't Netflix.
+---------
+
+# 'Tony's Coming-of-Age Kitchen Dramedy Beats 'The Bear' At Its Own Game | Review
+
+Movie Reviews, Tony, A24, Dominic Sessa, Antonio Banderas
+
+Wed, 29 Jul 2026 19:50:03 GMT
+
+https://collider.com/tony-movie-review-anthony-bourdain-dominic-sessa-antonio-banderas/
+
+A24's Anthony Bourdain biopic Tony is a gripping look into the life of one of the cooking world's best and brightest minds.
+---------
+
+# Christopher Nolan’s 'The Odyssey' Officially Closes In on 2026’s Biggest Sci-Fi Box Office Milestone
+
+Movie News, The Odyssey, Project Hail Mary, Christopher Nolan, Box Office
+
+Wed, 29 Jul 2026 19:25:15 GMT
+
+https://collider.com/the-odyssey-project-hail-mary-box-office-700-million/
+
+Christopher Nolan's The Odyssey has taken another huge step on its road to $1 billion, with the film about to surpass 2026's best sci-fi epic.
+---------
+
+# 10 Best Films of the 2000s, Ranked
+
+Movie, 2000s, The Dark Knight, Brokeback Mountain, Memento
+
+Wed, 29 Jul 2026 19:20:14 GMT
+
+https://collider.com/best-films-2000s-ranked/
+
+From The Dark Knight to Brokeback Mountain, these were the best films of the 2000s.
+---------
+
+# 'Chicago Fire' Officially Losing Original Cast Member After 15 Seasons
+
+TV News, Chicago Fire, NBC, Peacock, Derek Haas
+
+Wed, 29 Jul 2026 18:57:23 GMT
+
+https://collider.com/chicago-fire-season-15-joe-minoso-leaving/
+
+Chicago Fire is officially losing a key player, as a cast member who has been with the show since Season 15 is departing the hit NBC series.
+---------
+
+# Xbox Officially Launches PC Mode for 4 Classic Childhood Games
+
+Gaming News, Xbox 360, Xbox One, Xbox Series X/S, Microsoft
+
+Wed, 29 Jul 2026 18:25:14 GMT
+
+https://collider.com/xbox-pc-backward-compatibility-conker-crimson-skies/
+
+Xbox launches backward compatibility on PC with Conker, Crimson Skies, Blinx and Fusion Frenzy available through the Xbox app.
+---------
+
+# Hulu's 'Ted Lasso' Replacement Officially Sets 2026 Release Date
+
+TV News, Chad Powers, Hulu, Glen Powell, Michael Waldron
+
+Wed, 29 Jul 2026 18:08:27 GMT
+
+https://collider.com/glen-powell-chad-powers-season-2-release-date-hulu-september-3-2026/
+
+Hulu and Glen Powell's hit sports series Chad Powers has officially set a release date for Season 2, and it's much sooner than fans expect.
+---------
+
+# 'Chicago Fire' Is Officially Losing One of Its Original Stars After 14 Seasons
+
+TV News, Chicago Fire
+
+Wed, 29 Jul 2026 19:24:44 GMT
+
+https://movieweb.com/chicago-fire-joe-minoso-exit-season-15/
+
+One of the core members of the 'Chicago Fire' cast is seemingly about to fight their last fires as Season 15 approaches.
+---------
+
+# Tom Holland's 116-Minute Action Smash Is One of the Biggest Movies on Streaming
+
+Movie News, Tom Holland, Uncharted, Hot on Streaming, Action
+
+Wed, 29 Jul 2026 19:00:12 GMT
+
+https://movieweb.com/tom-holland-uncharted-action-streaming-prime-video-july-2026/
+
+Ahead of 'Spider-Man: Brand New Day,' Holland's divisive 2022 action movie has returned to prove itself on streaming.
+---------
+
+# The Mother of All Modern Horror Hits Finally Sets New Release
+
+Movie News, Barbarian, Zach Cregger, Horror
+
+Wed, 29 Jul 2026 18:20:19 GMT
+
+https://movieweb.com/barbarian-4k-blu-ray-release/
+
+Zach Cregger's acclaimed 2022 horror hit 'Barbarian' is finally receiving a long-awaited physical media debut with a 4K Ultra HD Blu-ray steelbook.
+---------
+
+# Alan Ritchson's 'Reacher' Season 5 Officially Confirms New Cast
+
+TV News, Reacher
+
+Wed, 29 Jul 2026 18:18:00 GMT
+
+https://movieweb.com/reacher-season-5-cast-announcement/
+
+Jay Baruchel, Kevin Durand, Amanda Ip, and Ciara Bravo join the hit Amazon Prime Video series upcoming season.
+---------
+
+# Netflix Unveils First Look at Upcoming Russell Crowe-Led True-Crime Thriller
+
+Movie News, Russell Crowe, Unabomber, Netflix, Jacob Tremblay
+
+Wed, 29 Jul 2026 18:17:35 GMT
+
+https://movieweb.com/russell-crowe-unabomber-movie-netflix-first-look/
+
+The first look at Crowe and Jacob Tremblay in Netflix's 'Unabomber' has been released.
+---------
+
+# New 'Venom' Movie Is Officially Happening
+
+Movie News, Venom
+
+Wed, 29 Jul 2026 18:08:53 GMT
+
+https://movieweb.com/venom-animated-movie-confirmed/
+
+A new 'Venom' animated film has been confirmed by producer Amy Pascal.
+---------
+
 # The 25 Best Medieval TV Shows, Ranked
 
 Classic TV, History
@@ -5144,356 +5496,4 @@ Tue, 28 Jul 2026 08:58:14 GMT
 https://collider.com/best-sci-fi-movies-last-10-years-ranked/
 
 Science fiction has grown a lot over the past few years, featuring groundbreaking stories and visuals in films like Dune and Arrival.
----------
-
-# 'Spider-Man: Brand New Day' First Reactions Confirm if Tom Holland Saves MCU
-
-Movie News, Spider-Man, Spider-Man: Brand New Day
-
-Tue, 28 Jul 2026 10:06:12 GMT
-
-https://movieweb.com/spider-man-brand-new-day-first-reactions-premiere/
-
-The first reactions to 'Spider-Man: Brand New Day' are in, and Tom Holland's fourth MCU solo movie is being called the best of the franchise.
----------
-
-# 'Tracker' Officially Confirms Its Long-Awaited Return to CBS
-
-TV News, Tracker, Justin Hartley
-
-Tue, 28 Jul 2026 09:42:04 GMT
-
-https://movieweb.com/tracker-season-4-premiere-date-cbs/
-
-CBS has set a premiere date for 'Tracker' Season 4, and Justin Hartley's drama is back on Oct. 4 in a Sunday slot it no longer leads.
----------
-
-# Baldur's Gate 3 Over-The-Shoulder Camera Mode Adds New Level Of Immersion
-
-Gaming, Baldur's Gate 3, Triple-A Games
-
-Tue, 28 Jul 2026 07:00:11 GMT
-
-https://screenrant.com/baldurs-gate-3-over-the-shoulder-camera-mod/
-
-If you're looking for an excuse to play Baldur's Gate 3 again, this new gameplay element makes it the perfect time to boot it up.
----------
-
-# The Last Of Us: Joel Miller Officially Returns In 2027
-
-Gaming, The Last of Us, The Last of Us: Part 1, The Last of Us Part 2, The Last of Us Part 2 Remastered, The Last of Us 3, PC
-
-Tue, 28 Jul 2026 06:00:11 GMT
-
-https://screenrant.com/last-of-us-joel-miller-statue-2027/
-
-The Last of Us fan-favorite character Joel Miller officially returns in November 2027 with a new release honoring the legend that started it all.
----------
-
-# Game Of Thrones: Jorah The Andal Officially Available Now
-
-Gaming, Game of Thrones, Game Of Thrones, Game Of Thrones - Season 1, PC
-
-Tue, 28 Jul 2026 05:30:11 GMT
-
-https://screenrant.com/game-of-thrones-legends-jorah-the-andal/
-
-Jorah the Andal is officially making an epic return in a new Game of Thrones release that's available to check out now.
----------
-
-# What Emmy Rossum Learned From Law Enforcement That Inspired Her Furious Performance
-
-TV, Furious, Hulu, Crime
-
-Tue, 28 Jul 2026 06:11:29 GMT
-
-https://www.cbr.com/emmy-rossum-furious-fbi-training/
-
-Emmy Rossum and Liz Meriwether reveal how FBI and NYPD research shaped Alice Black and Hulu’s crime drama Furious.
----------
-
-# Hulu’s Furious Avoids the Biggest Crime Drama Trap, According To The Cast
-
-TV, Furious, Hulu, Crime
-
-Tue, 28 Jul 2026 06:05:00 GMT
-
-https://www.cbr.com/furious-hulu-cast-crime-drama-sensationalism/
-
-Furious stars Scoot McNairy, Quincy Tyler Bernstine, and Jake Lacy discuss Hulu’s nuanced serial-killer drama in a CBR interview.
----------
-
-# Spider-Man: Brand New Day First Reactions Are Officially In
-
-Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
-
-Tue, 28 Jul 2026 05:08:02 GMT
-
-https://screenrant.com/spider-man-brand-new-day-reactions-marvel/
-
-The first official reactions to Tom Holland's highly anticipated Spider-Man: Brand New Day movie have finally arrived ahead of the film's release.
----------
-
-# Star Wars Legend Qui-Gon Jinn Celebrated With New 2027 Release
-
-Gaming
-
-Tue, 28 Jul 2026 05:00:11 GMT
-
-https://screenrant.com/star-wars-qui-gon-jinn-2027-statue-release/
-
-Although they only had one film to really show off their chops, Liam Neeson's memorable turn as Qui-Gon Jinn has captivated fans for years.
----------
-
-# Dungeons & Dragons Is Getting Its Biggest Crossover Ever
-
-Gaming, World of Warcraft, Dungeons and Dragons, PC, Dungeons & Dragons
-
-Tue, 28 Jul 2026 04:30:11 GMT
-
-https://screenrant.com/dungeons-dragons-world-of-warcraft-crossover-leak/
-
-After decades of excellent releases, exciting collaborations, and major events, Dungeons & Dragons is finally getting its biggest crossover yet.
----------
-
-# Cyberpunk 2077: The Heist Officially Announced
-
-Gaming, Cyberpunk 2077, PC
-
-Tue, 28 Jul 2026 04:00:15 GMT
-
-https://screenrant.com/cyberpunk-2077-the-heist-annoucned/
-
-A brand-new Cyberpunk 2077 release titled The Heist has been officially announced and is set to release sooner than you think.
----------
-
-# Netflix's New Supernatural Drama Is Now #1 For 2 Weeks In A Row
-
-TV, Netflix, Masked Recs
-
-Tue, 28 Jul 2026 03:50:11 GMT
-
-https://screenrant.com/netflix-spooky-in-love-fantasy-series-best-korea/
-
-One of the spookiest and most heartfelt dramas around right now is climbing the worldwide charts, and making a massive splash at home.
----------
-
-# Which Ghost Rider Will Ryan Gosling Be Playing In The MCU?
-
-Superheroes, Ghost Rider, Marvel Cinematic Universe
-
-Tue, 28 Jul 2026 03:47:49 GMT
-
-https://screenrant.com/which-ghost-rider-is-ryan-gosling-playing-in-the-mcu/
-
-Actor Ryan Gosling has officially been cast as Ghost Rider in an upcoming MCU movie, but which version of the Spirit of Vengeance will he be?
----------
-
-# 7 Hidden Gem Fantasy TV Shows With Just 1 Season
-
-Streaming TV, Fantasy
-
-Tue, 28 Jul 2026 03:42:16 GMT
-
-https://screenrant.com/fantasy-tv-hidden-gems-one-season/
-
-If you're looking for a quick bingewatch, these seven fantasy TV shows are hidden gems that only last one season.
----------
-
-# Netflix’s 100% RT Time Travel Gem Deserved To Be As Big As Dark
-
-Classic TV, Masked Recs
-
-Tue, 28 Jul 2026 03:15:11 GMT
-
-https://screenrant.com/travelers-netflix-sci-fi-as-big-as-dark/
-
-Netflix is the streaming home of an incredible time travel TV series that, despite being cancelled too soon, deserved the same treatment as Dark.
----------
-
-# 5 10/10 RPGs You Can Beat In 15 Hours Or Less
-
-Gaming, RPG, Triple-A Games
-
-Tue, 28 Jul 2026 03:00:12 GMT
-
-https://screenrant.com/5-10-rated-rpgs-15-hours-or-less/
-
-RPGs are well-known for their depth and complexity, and the majority of them can last dozens of hours, but there are some short-winded gems to play.
----------
-
-# How Doctor Doom Lifted Mjolnir in Marvel Comics, Explained
-
-Comics, Doctor Doom
-
-Tue, 28 Jul 2026 03:00:12 GMT
-
-https://screenrant.com/doctor-doom-worthy-mjolnir-answer/
-
-With Doom stopping Mjolnir in the latest Avengers trailer, the curiosity surrounding his worthiness of Thor's hammer deserves to be sated.
----------
-
-# Dragon Ball Z's Strongest Movie Villain Returns After 31 Years
-
-Anime, Dragon Ball, Dragon Ball Z: Fusion Reborn, San Diego Comic-Con, merchandise
-
-Tue, 28 Jul 2026 03:59:15 GMT
-
-https://www.cbr.com/dragon-ball-z-janemba-figure-release-announcement/
-
-DBZ's Janemba gets a new release that brings him one step closer to following Broly's footsteps in overcoming his status as a non-canon movie villain.
----------
-
-# The MCU's Upcoming Nova Movie Is Guardians of the Galaxy Meets Superman
-
-Movies, MCU, Guardians of the Galaxy, Superman
-
-Tue, 28 Jul 2026 03:45:15 GMT
-
-https://www.cbr.com/marvel-nova-combines-guardians-of-the-galaxy-superman/
-
-The Marvel Cinematic Universe's upcoming science fiction adventure will be perfect for fans of James Gunn's superhero filmography.
----------
-
-# 4 PS1 RPGs That Are 10/10 Masterpieces
-
-Games, PlayStation (Original), RPG, Final Fantasy VII
-
-Tue, 28 Jul 2026 03:45:15 GMT
-
-https://www.cbr.com/best-ps1-rpgs-of-all-time/
-
-A brief trip back in time explores the best role-playing games the original PlayStation had to offer.
----------
-
-# The 2-Season HBO Crime Drama Stephen King Called a 10/10 Masterpiece
-
-TV, Stephen King, Perry Mason, Crime
-
-Tue, 28 Jul 2026 03:30:15 GMT
-
-https://www.cbr.com/hbo-perry-mason-stephen-king-masterpiece/
-
-Stephen King praised this short-lived neo-noir crime drama, which remains one of HBO's hidden gems among mystery fans.
----------
-
-# 5 Fantasy RPGs Where Diplomacy Is Your Most Powerful Weapon
-
-Games, Gaming, Dragon Age, Video Games
-
-Tue, 28 Jul 2026 03:15:15 GMT
-
-https://www.cbr.com/fantasy-rpgs-diplomacy-most-powerful-weapon/
-
-These 5 fantasy RPGs make it where talking is the player's most powerful weapon.
----------
-
-# 40 Years Later, Transformers Brings Fallen Optimus Prime Back to Life
-
-Anime, Transformers, The Transformers: The Movie, optimus prime, merchandise
-
-Tue, 28 Jul 2026 03:05:15 GMT
-
-https://www.cbr.com/transformers-robosen-fallen-leader-optimus-prime/
-
-Commemorating 40 years of The Transformers: The Movie, the newest Robosen Transformers animatronic toy honors the most tragic part of that film.
----------
-
-# 10 Most Universally Beloved Sci-Fi Movies Of All Time, Ranked
-
-Movies, Sci-Fi
-
-Tue, 28 Jul 2026 02:45:15 GMT
-
-https://www.cbr.com/most-beloved-sci-fi-movies-list/
-
-From timeless classics to modern masterpieces, these are the 10 most universally beloved sci-fi movies ever made.
----------
-
-# 4 Dark Fantasy Anime Series That Are 10/10 Masterpieces
-
-Anime, Attack On Titan, Berserk
-
-Tue, 28 Jul 2026 02:45:15 GMT
-
-https://www.cbr.com/dark-fantasy-anime-series-perfect-masterpieces/
-
-These series combine mature themes, unforgettable characters, and immersive worlds into remarkable viewing experiences.
----------
-
-# 5 Classic PS1 Games Every Gamer Needs to Play Once
-
-Games, PlayStation (Original), Video Games, Square Enix
-
-Tue, 28 Jul 2026 02:30:15 GMT
-
-https://www.cbr.com/classic-ps1-games-everyone-should-play-once/
-
-The original PlayStation marked a huge shift for the video game industry, hosting some all-time classic titles that everyone needs to play.
----------
-
-# 7 Romance Books That Are Perfect From the First Page to the Last
-
-Books and Comics, Romance, Books, Jane Austen, Call Me by Your Name
-
-Tue, 28 Jul 2026 04:18:14 GMT
-
-https://collider.com/romance-books-perfect-first-page-to-last/
-
-From Jane Austen's classic Pride and Prejudice to André Aciman's coming-of-age story Call Me by Your Name, these romance books are flawless.
----------
-
-# 26 Years Later, This Odyssey Adaptation Is Still Perfect From Start to Finish
-
-Movie Features, O Brother, Where Art Thou?, The Odyssey, The Coen Brothers, Christopher Nolan
-
-Tue, 28 Jul 2026 04:05:15 GMT
-
-https://collider.com/the-odyssey-christopher-nolan-o-brother-where-art-thou/
-
-The Coen Brothers's O Brother, Where Art Thou? is one of the best adaptations of The Odyssey, and can provide a fresh perspective on Nolan's version.
----------
-
-# Prime Video Quietly Delivered One of TV’s Best Stephen King-Style Thrillers in Just 2 Seasons
-
-TV Features, Prime Video, Stephen King, The Devil's Hour, Phil Dunster
-
-Tue, 28 Jul 2026 03:57:15 GMT
-
-https://collider.com/prime-video-thriller-stephen-king-replacement-series-the-devils-hour/
-
-In 2022, Prime Video released one of its best crime thrillers to date in The Devil’s Hour, and it’s the perfect Stephen King replacement.
----------
-
-# 10 Best '90s Anime That Are Worth Revisiting
-
-TV, Anime, 90s, Sailor Moon, Pokémon
-
-Tue, 28 Jul 2026 03:55:15 GMT
-
-https://collider.com/best-90s-anime-series-worth-revisiting/
-
-Pokémon, Sailor Moon, Neon Genesis Evangelion, Digimon Adventure, and Cowboy Bebop are among the best anime from the '90s that are worth revisiting.
----------
-
-# Guillermo del Toro's 4-Part Vampire Thriller Is the Perfect Horror Series To Binge
-
-TV Features, the strain, Guillermo del Toro, Corey Stoll, Kevin Durand
-
-Tue, 28 Jul 2026 03:16:14 GMT
-
-https://collider.com/guillermo-del-toro-the-strain-vampire-thriller-perfect-binge/
-
-Guillermo del Toro's The Strain is a perfect horror binge that follows a CDC doctor battling an ancient, deadly outbreak in NYC.
----------
-
-# 'The Odyssey's Best Character Is Also the Star of This 2018 Book Masterpiece
-
-Books and Comics, Books, Fantasy, History, The Odyssey
-
-Tue, 28 Jul 2026 03:11:14 GMT
-
-https://collider.com/circe-book-2018-madeline-miller-the-odyssey/
-
-Circe is both the best character in Christopher Nolan's The Odyssey and the protagonist of Madeline Miller's 2018 mythic fantasy book masterpiece.
 ---------
