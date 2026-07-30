@@ -1,3 +1,289 @@
+# 2001's Best Drama Is Streaming On YouTube For Free, And It's Aging Like Fine-Wine
+
+Anime, YouTube, Masked Recs
+
+Thu, 30 Jul 2026 01:37:42 GMT
+
+https://screenrant.com/millenium-actress-2001-best-drama-youtube-streaming/
+
+Satoshi Kon's acclaimed 2001 animated film 'Millennium Actress' is now available to watch for free on YouTube in the United States for a limited time.
+---------
+
+# Godzilla Officially Returns This Year With 11 Iconic Kaiju In Their Biggest Battle Yet
+
+Gaming, Godzilla, tabletop games
+
+Thu, 30 Jul 2026 01:00:11 GMT
+
+https://screenrant.com/godzilla-2026-return-massive-kaiju-crossover/
+
+Godzilla has been a mainstay for nearly three-quarters of a century, and now a dozen legendary kaiju are all making an appearance together this year.
+---------
+
+# 10 Greatest Sci-Fi Space Opera Video Games Of All-Time, Ranked
+
+Gaming, Sci-Fi, Triple-A Games, PC
+
+Thu, 30 Jul 2026 01:00:11 GMT
+
+https://screenrant.com/greatest-sci-fi-space-opera-games-ranked/
+
+The Space Opera genre is surprisingly rare in the gaming world, but there are still plenty of excellent options that fill the unique sci-fi niche.
+---------
+
+# The Batman 2 Set Video Hints At Devastating Fate For A Major Character
+
+Movies, The Batman Part II
+
+Thu, 30 Jul 2026 00:55:58 GMT
+
+https://screenrant.com/the-batman-2-set-video-james-gordon-fate/
+
+New footage from the production of The Batman: Part II reveals that a major character could suffer a horrible fate in the upcoming sequel.
+---------
+
+# Gilmore Girls: Luke and Lorelai's Relationship Timeline, Season By Season
+
+Classic TV, Gilmore Girls
+
+Thu, 30 Jul 2026 00:45:11 GMT
+
+https://screenrant.com/gilmore-girls-luke-and-lorelai-relationship-development-friends-love/
+
+Luke and Lorelai always had chemistry on Gilmore Girls, but it took the two Stars Hollow residents a long time to act on their love for each other.
+---------
+
+# Marvel Officially Names Thor's Replacement As New Ruler Of Asgard
+
+Marvel Comics, Thor
+
+Thu, 30 Jul 2026 00:30:11 GMT
+
+https://screenrant.com/thor-replace-enchantress-queen-asgard/
+
+One of Thor's most dangerous enemies officially seizes power in Asgard, declaring herself the new All-Mother after assassinating her predecessor.
+---------
+
+# Hulu’s ‘The Godfather Meets American Gangster’ Series Makes Tony Soprano Look Weak
+
+TV, Masked Recs
+
+Thu, 30 Jul 2026 00:30:11 GMT
+
+https://screenrant.com/godfather-of-harlem-like-godfather-american-gangster-bumpy-johnson-tony-soprano/
+
+An underappreciated mobster masterpiece streaming on Hulu features a protagonist who would run rings around Tony Soprano if the two of them met.
+---------
+
+# Avatar's New Aang Movie Just Completely Redeemed Korra, And No One Noticed
+
+Movies, Avatar Aang: The Last Airbender, The Legend of Korra, Avatar: The Last Airbender
+
+Thu, 30 Jul 2026 00:30:11 GMT
+
+https://screenrant.com/avatar-aang-last-airbender-redeems-korra/
+
+The new Avatar Aang: The Last Airbender movie proves the glaring double standard between how fans treat Avatar Korra versus Avatar Aang.
+---------
+
+# Ryan Gosling's Ghost Rider & Shang-Chi Clash In Fiery MCU Art
+
+Movies, Marvel Cinematic Universe, Ghost Rider, Shang-Chi
+
+Thu, 30 Jul 2026 00:25:04 GMT
+
+https://screenrant.com/ryan-gosling-ghost-rider-shang-chi-marvel-fan-art/
+
+The MCU's Ghost Rider movie announcement and Ryan Gosling's casting is followed by epic fan art of the character fighting against Shang-Chi.
+---------
+
+# Game Of Thrones Finally Confirms 2 Major House Stark Theories After 26 Years
+
+Streaming TV, Game of Thrones
+
+Thu, 30 Jul 2026 00:15:11 GMT
+
+https://screenrant.com/game-of-thrones-mad-king-play-house-stark-theories-confirmed/
+
+It's been nearly three decades of theorizing, but the Game of Thrones franchise has officially come forward with some brand new answers.
+---------
+
+# 4 Classic PS2 Games That Are 10/10 Masterpiece
+
+Games, Video Games, PlayStation 2
+
+Thu, 30 Jul 2026 01:45:15 GMT
+
+https://www.cbr.com/classic-ps2-games-masterpieces/
+
+PlayStation 2 exceeded gamer expectations, delivering an even more refined home gaming experience and plenty of masterpiece games.
+---------
+
+# 5 Classic Action Anime Series That Aren't As Good As You Remember
+
+Anime, Inuyasha, One-Punch Man
+
+Thu, 30 Jul 2026 01:25:15 GMT
+
+https://www.cbr.com/classic-action-anime-series-not-as-good-as-you-remember/
+
+There are some extremely popular action anime out there, but some of these former classics, like Soul Eater and InuYasha, have not aged well.
+---------
+
+# 5 Things We Learned From Playing Silent HIll: Townfall
+
+Games, Silent Hill, Video Games, Silent Hill: Townfall
+
+Thu, 30 Jul 2026 00:45:15 GMT
+
+https://www.cbr.com/silent-hill-townfall-early-preview/
+
+After playing Silent Hill: Townfall early, it clearly has the potential to become 2026's best horror game.
+---------
+
+# Anime Fans Get Instant Access to Dragon Ball, Naruto & More in Surprise New Crunchyroll Bundle
+
+Anime, Crunchyroll, Prime Video, Starz, Streaming
+
+Thu, 30 Jul 2026 00:35:15 GMT
+
+https://www.cbr.com/crunchyroll-starz-prime-video-new-streaming-bundle/
+
+Anime fans just got access to some of the hottest series of all time on one of the biggest platforms, thanks to a major new Crunchyroll partnership.
+---------
+
+# Chris Pine's Dungeons & Dragons Movie is the Best Game Adaptation Ever
+
+Movies, Dungeons & Dragons: Honor Among Thieves
+
+Thu, 30 Jul 2026 00:30:15 GMT
+
+https://www.cbr.com/dungeons-and-dragons-honor-among-thieves-best-fantasy-adaptation/
+
+One of the most infamous box office flops of Chris Pine's career deserves more credit as one of the best game adaptations of all time.
+---------
+
+# Netflix's 7-Episode Peak Western Still Outshines Taylor Sheridan's Yellowstone Universe
+
+TV, Godless, Yellowstone, Western
+
+Thu, 30 Jul 2026 00:30:15 GMT
+
+https://www.cbr.com/netflix-godless-better-than-yellowstone/
+
+Taylor Sheridan's Yellowstone universe has become a benchmark for the Western genre, but Netflix's miniseries is arguably better.
+---------
+
+# Alicia Vikander's 108-Minute M3GAN Replacement Is Losing Its Streaming Home in Just 3 Days
+
+Movies, Ex Machina
+
+Thu, 30 Jul 2026 00:30:15 GMT
+
+https://www.cbr.com/alicia-vikander-ex-machina-leaving-netflix-august-2026/
+
+One of the best sentient android thrillers of the past decade is officially set to lose its biggest streaming home, and it's going away soon.
+---------
+
+# 10 Classic 2000s Anime That Are 10/10 Masterpieces
+
+Anime
+
+Thu, 30 Jul 2026 00:15:14 GMT
+
+https://www.cbr.com/classic-2000s-anime-flawles-masterpieces/
+
+The 2000s were the decade where anime blew up in the west, and this was thanks to the release of one amazing series after another.
+---------
+
+# Netflix’s 132-Minute Action Thriller Quietly Becomes 1 of the Most Streamed Movies in the World
+
+Movies, Netflix, Action, Thriller
+
+Thu, 30 Jul 2026 00:00:15 GMT
+
+https://www.cbr.com/the-debt-collector-action-netflix-success-july-2026/
+
+This Thai film proves the market for global action remains untapped.
+---------
+
+# Marvel's Brand-New Spider-Team Debuts Before Peter Parker's Return
+
+Comics, Spider-Man, Marvel
+
+Thu, 30 Jul 2026 00:00:15 GMT
+
+https://www.cbr.com/marvel-zero-1-spider-man-new-team-confirmed/
+
+The latest symbiote invasion of the Marvel Universe just gave rise to a brand-new team of Spider heroes ahead of Peter Parker's next MCU outing.
+---------
+
+# 19 Years Later, One of the Best Crime Movies of All Time Is Officially Streaming for Free
+
+Movie Features, Zodiac, David Fincher, Mark Ruffalo, Robert Downey Jr, Jake Gyllenhaal
+
+Thu, 30 Jul 2026 00:35:24 GMT
+
+https://collider.com/zodiac-david-fincher-best-crime-movie-streaming-free-pluto-july-2026/
+
+David Fincher's 2007 Zodiac, an acclaimed crime drama starring Jake Gyllenhaal, is streaming free on Pluto TV.
+---------
+
+# 8 Thriller Books That Can Be Called Masterpieces
+
+Books and Comics, Thriller, Books, Thomas Harris, Gillian Flynn
+
+Thu, 30 Jul 2026 00:17:14 GMT
+
+https://collider.com/best-thriller-books-masterpieces/
+
+Gone Girl, The Silence of the Lambs, and The Talented Mr. Ripley stand among thriller fiction’s finest in this ranking of all-time masterpieces.
+---------
+
+# 'TBBT's Long-Awaited Second Character Return Is Even Better Than the First
+
+Features, Stuart Fails to Save the Universe, The Big Bang Theory, Comedy, Kaley Cuoco, Kevin Sussman, Kunal Nayyar, HBO Max
+
+Thu, 30 Jul 2026 01:30:12 GMT
+
+https://movieweb.com/tbbt-stuart-spin-off-episode-2-penny-return/
+
+'Stuart Fails to Save the Universe' sees the return of yet another iconic main character from 'TBBT,' nine years after it came to an end.
+---------
+
+# Tom Holland Admits He "Hated" an Early Cut of 'Spider-Man: Brand New Day'
+
+Movie News, Spider-Man: Brand New Day
+
+Thu, 30 Jul 2026 00:02:15 GMT
+
+https://movieweb.com/tom-holland-hated-spider-man-brand-new-day-test-screening/
+
+The Spider-Man actor reveals one cut of the film tried to incorporate all the studio notes.
+---------
+
+# Dwayne Johnson's Divisive Fantasy Adventure Topples Disney Classic Live-Action Remake at the Box Office
+
+Movies, Moana, Snow White
+
+Thu, 30 Jul 2026 00:00:12 GMT
+
+https://movieweb.com/moana-2026-beats-snow-white-remake-box-office/
+
+Dwayne Johnson's modern classic remake scored a win at the global box office.
+---------
+
+# One of the Most Disturbing Movies of All Time Getting a New Release
+
+Movie News, Martyrs
+
+Wed, 29 Jul 2026 23:59:55 GMT
+
+https://movieweb.com/martyrs-4k-blu-ray-release/
+
+The 2008 French film 'Martyrs' is coming to 4K Ultra HD Blu-ray.
+---------
+
 # Eli Roth's "No Limits" New Horror Movie Sprung To Life After 20 Years Thanks To 2024 Record-Breaking Hit
 
 Movies, Ice Cream Man, Eli Roth, Terrifier 3, San Diego Comic-Con
@@ -5210,290 +5496,4 @@ Tue, 28 Jul 2026 16:17:58 GMT
 https://screenrant.com/the-batman-2-return-2028-delay-michael-giacchino/
 
 EXCLUSIVE: After The Batman: Part II was delayed to 2028, one key creative who isn’t yet confirmed to return addresses whether he’ll be back.
----------
-
-# Why Netflix's Masterpiece New R-Rated Fantasy Series Has Become A Global Streaming Hit
-
-TV, Masked Recs
-
-Tue, 28 Jul 2026 16:15:11 GMT
-
-https://screenrant.com/netflix-the-east-palace-streaming-charts-rise-july-2026/
-
-Netflix's new R-rated fantasy series with a rare Rotten Tomatoes score has become a global streaming hit, and its success comes from a creative story.
----------
-
-# What's Coming To Prime Video In August 2026: Full List Of TV Shows & Movies
-
-Streaming TV, Prime Video
-
-Tue, 28 Jul 2026 16:15:11 GMT
-
-https://screenrant.com/everything-coming-to-prime-video-august-2026/
-
-The exciting lineup of new TV shows, movies, and live sports events coming to Prime Video in August 2026, from original series to blockbuster films.
----------
-
-# 5 Biggest Stories X-Men '97 Can Adapt for Seasons 3 and 4
-
-Comics, X-Men, X-Men '97
-
-Tue, 28 Jul 2026 16:00:11 GMT
-
-https://screenrant.com/x-men-97-arcs-adapt/
-
-The X-Men stories we need to see in animation.
----------
-
-# Prime Video & HBO Max Team Up for 'Gonzo' Revenge Thriller Starring Catherine Zeta-Jones
-
-TV, Prime Video, HBO Max, Thriller
-
-Tue, 28 Jul 2026 16:39:00 GMT
-
-https://www.cbr.com/prime-video-hbo-max-kill-jackie-revenge-thriller-catherine-zeta-jones/
-
-A new Catherine Zeta-Jones revenge thriller is coming to Prime Video and HBO Max
----------
-
-# 5 Classic Cartoon Network Anime That Aren't As Good As You Remember
-
-Anime, toonami, Mobile Suit Gundam Wing
-
-Tue, 28 Jul 2026 16:15:15 GMT
-
-https://www.cbr.com/classic-cartoon-network-anime-arent-as-good-as-you-remember/
-
-Cartoon Network's Toonami programming block was full of formative anime, but also messier misfires like Samurai 7, Tenchi Muyo! GXP, and Gundam Wing.
----------
-
-# Apple TV's 'Perfect Feel-Good Comedy' Fuels Fan-Favorite Death Theories With New Clip
-
-CBR Exclusives, Trying
-
-Tue, 28 Jul 2026 16:00:15 GMT
-
-https://www.cbr.com/apple-tv-trying-scott-new-clip/
-
-Exclusive: While the show has been a largely wholesome series, it doesn't lack heartbreak.
----------
-
-# 4 Years Later, Emily Blunt's 6-Episode Western on Prime Video Still Outshines Yellowstone
-
-TV, Prime Video, The English, Western
-
-Tue, 28 Jul 2026 16:00:15 GMT
-
-https://www.cbr.com/prime-video-the-english-better-than-yellowstone/
-
-One Prime Video series outshines most Westerns with its compact story, authentic cinematography, and fresh take on overdone genre tropes.
----------
-
-# DC Reveals Exciting New Anime Designs for Wonder Woman & Supergirl
-
-Comics, Wonder Woman, Supergirl, Justice League
-
-Tue, 28 Jul 2026 16:00:15 GMT
-
-https://www.cbr.com/justice-league-unlimited-24-variant-wonder-woman-supergirl-anime-designs/
-
-These Wonder Woman and Supergirl redesigns send up over the Moon.
----------
-
-# Eternity Combines the Best Parts of 'The Good Place' and 'The Notebook'
-
-Movies, Eternity, Apple TV, The Good Place, The Notebook
-
-Tue, 28 Jul 2026 16:00:15 GMT
-
-https://www.cbr.com/apple-tv-eternity-combines-good-place-notebook/
-
-One of Apple's best original movies gives us the best of both worlds by blending elements of fantasy with deep romance and compelling comedy.
----------
-
-# Batman: Caped Crusader Season 2 Review: Batman’s Best Animated Show in Years
-
-Movies, Batman: Caped Crusader
-
-Tue, 28 Jul 2026 16:00:15 GMT
-
-https://www.cbr.com/batman-caped-crusader-season-2-review/
-
-Batman: Caped Crusader Season 2 builds on its debut with a darker Gotham, memorable villains, and one of TV’s best Jokers.
----------
-
-# Japan Ranks the Top 10 Horror Anime of All Time
-
-Anime, Horror, GeGeGe no Kitarō
-
-Tue, 28 Jul 2026 15:20:15 GMT
-
-https://www.cbr.com/top-horror-anime-all-time-japan-ranking-2026/
-
-Japan reveals which 10 anime horror titles are the medium's best when it comes to ghosts, demons and things that go bump in the night.
----------
-
-# New Home Alone Sequel Gets Encouraging Update With Macaulay Culkin
-
-Movies, Home Alone
-
-Tue, 28 Jul 2026 15:15:25 GMT
-
-https://www.cbr.com/home-alone-sequel-update-macalaulay-culkin/
-
-A Home Alone sequel with Macaulay Culkin may finally be happening.
----------
-
-# 10 Must-Watch Action Anime With No Weak Seasons
-
-Anime
-
-Tue, 28 Jul 2026 15:15:15 GMT
-
-https://www.cbr.com/must-watch-action-anime-no-weak-seasons/
-
-The nature of action anime can make consistency difficult, but shows like Demon Slayer and Gintama never falter.
----------
-
-# 6 Best Crime Movies Released Since 2010
-
-Movie, Crime, One Battle After Another, The Wolf of Wall Street, No Other Choice
-
-Tue, 28 Jul 2026 16:45:15 GMT
-
-https://collider.com/best-crime-movies-since-2010/
-
-Since 2010, there have been a multitude of notable crime movies that have pushed the genre forward, such as Prisoners and Killers of the Flower Moon.
----------
-
-# 'Ghosts' Officially Sets Return Date After Surprise Schedule Shake-Up
-
-TV News, Ghosts, CBS, Sitcom, Rose McIver
-
-Tue, 28 Jul 2026 16:21:14 GMT
-
-https://collider.com/ghosts-season-6-halloween-christmas-special-release-date-cbs/
-
-Ghosts has officially set release dates for Season 6’s Halloween and Christmas specials after a major schedule shake-up ahead of 2027.
----------
-
-# Former ‘Doctor Who’ Showrunner Warns Reboot Would Create One Huge Problem
-
-TV Features, Doctor Who, BBC, Steven Moffat, Prime Video
-
-Tue, 28 Jul 2026 16:11:15 GMT
-
-https://collider.com/doctor-who-steven-moffat-reboot-problem-opinion/
-
-Steven Moffat, who previously wrote for Doctor Who, says the series shouldn't undergo a full reboot.
----------
-
-# HBO Max Is Officially Making a Major Change to Streaming
-
-TV News, HBO, HBO Max, House of the Dragon, Mortal Kombat II
-
-Tue, 28 Jul 2026 16:05:58 GMT
-
-https://collider.com/hbo-max-new-mobile-features-shorts-ai-conversational-search/
-
-HBO Max is testing HBO Max Shorts and conversational search, two new AI-powered mobile features designed to improve content discovery.
----------
-
-# 1 Year Later, 'Dexter: Resurrection' Season 2 Officially Confirms Michael C. Hall’s Killer Comeback
-
-TV News, Dexter, Dexter: Resurrection, Michael C. Hall
-
-Tue, 28 Jul 2026 16:01:50 GMT
-
-https://collider.com/dexter-resurrection-season-2-first-look-images-michael-c-hall/
-
-See Michael C. Hall’s return in the first Dexter: Resurrection Season 2 images ahead of the show’s Paramount+ premiere.
----------
-
-# Josh Hartnett’s New Netflix Sea-Monster Thriller Officially Debuts First Trailer
-
-TV News, Below, Charlie Heaton, Josh Hartnett, Netflix
-
-Tue, 28 Jul 2026 16:00:15 GMT
-
-https://collider.com/josh-hartnett-below-trailer-netflix/
-
-The first trailer for Netflix's new thriller series Below casts Josh Hartnett as a Newfoundland fisherman whose community faces a threat from the sea.
----------
-
-# Christopher Nolan’s ‘The Odyssey’ Overtakes Ridley Scott’s Biggest Sci-Fi Hit
-
-Movie News, The Odyssey, The Martian, Ridley Scott, Matt Damon
-
-Tue, 28 Jul 2026 15:41:15 GMT
-
-https://collider.com/the-odyssey-overtakes-the-martian-global-box-office-652-million/
-
-The Odyssey has already earned more than Ridley Scott's highest-grossing movie at the box office in less than two weeks.
----------
-
-# Michael B. Jordan Officially Reacts to Marvel's Black Panther Replacement
-
-Movie News, Michael B. Jordan, Black Panther, Black Panther 3, David Jonsson
-
-Tue, 28 Jul 2026 15:20:05 GMT
-
-https://collider.com/michael-b-jordan-broken-silence-black-panther-casting/
-
-Michael B. Jordan officially reacts to Marvel's new Black Panther 3 announcement as David Johnsson prepares to step into the role in 2028.
----------
-
-# Netflix Unleashes "Jaws Meets Stephen King" in First Trailer for New Thriller Miniseries
-
-TV Trailers, Netflix, Thriller, Josh Hartnett
-
-Tue, 28 Jul 2026 16:41:35 GMT
-
-https://movieweb.com/below-teaser-trailer/
-
-Josh Hartnett tackles a bold accent in the trailer for Netflix's latest monster-fueled mystery, where he protects his family from an unknown creature.
----------
-
-# 'The Odyssey' Slammed by the One Person Christopher Nolan Was Hoping Would Love It
-
-Movie News, The Odyssey, Christopher Nolan, Matt Damon
-
-Tue, 28 Jul 2026 16:39:08 GMT
-
-https://movieweb.com/the-odyssey-emily-wilson-christopher-nolan/
-
-Christopher Nolan slammed by academic who inspired 'The Odyssey' adaptation.
----------
-
-# Netflix Scores Big Thanks to New 90-Minute Crime Thriller With Jaw-Dropping Twist
-
-Movie News, Netflix, Hot on Streaming, Crime, Thriller
-
-Tue, 28 Jul 2026 16:30:12 GMT
-
-https://movieweb.com/netflix-toxic-love-story-streaming-hit-july-2026/
-
-The latest addition to Netflix's true crime lineup is mind-blowing, to say the least.
----------
-
-# Nathan Fillion Confirms Current Status of Long-Awaited 'Firefly' Reboot
-
-TV News, Firefly
-
-Tue, 28 Jul 2026 16:12:59 GMT
-
-https://movieweb.com/nathan-fillion-firefly-animated-reboot/
-
-This cult space Western is getting rebooted 23 years after the original series released.
----------
-
-# 'Widow's Bay' Season 2: Everything We Know About the Hit Apple TV Thriller
-
-Features, Widow's Bay, Everything We Know
-
-Tue, 28 Jul 2026 16:00:12 GMT
-
-https://movieweb.com/widows-bay-season-2-everything-we-know/
-
-'Widows Bay,' the thriller series starring Matthew Rhys on Apple TV, became a big hit, and here is everything we know about Season 2.
 ---------
