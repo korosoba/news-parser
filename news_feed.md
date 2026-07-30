@@ -1,3 +1,333 @@
+# Netflix & The Walking Dead Set Huge New $500M Deal
+
+TV, The Walking Dead
+
+Thu, 30 Jul 2026 13:34:05 GMT
+
+https://screenrant.com/the-walking-dead-netflix-amc-plus-5-year-deal/
+
+Netflix and The Walking Dead have signed a multi-year licensing deal worth $500 million, a big move for the successful AMC zombie franchise.
+---------
+
+# Warhammer 40k: The Best Horus Heresy Novel For Each Loyalist Primarch
+
+Books, Warhammer 40K
+
+Thu, 30 Jul 2026 13:30:11 GMT
+
+https://screenrant.com/best-horus-heresy-novel-for-each-loyalist-primarch/
+
+Few sci-fi heroes are as distinctive as the Loyalist Primarchs in the Horus Heresy novels, and each has one book in the series that's essential.
+---------
+
+# Xbox Project Helix Official Price Update Is Bad News
+
+Gaming, Xbox, Xbox Series X/S
+
+Thu, 30 Jul 2026 13:30:11 GMT
+
+https://screenrant.com/xbox-project-helix-price-updates/
+
+We've know Xbox's next console, Project Helix, wouldn't be a cheap piece of hardware, but now its certainly going to be extremely expensive
+---------
+
+# Prime Video's 22-Episode Superhero Series Walked So The Boys Could Run
+
+Classic TV, Masked Recs
+
+Thu, 30 Jul 2026 13:30:11 GMT
+
+https://screenrant.com/the-tick-walk-boys-run-prime-video-superhero-series/
+
+Amazon Prime Video has a two-season, 22-episode superhero show that paved the way for shows like The Boys and Gen Z to become pop culture standards.
+---------
+
+# One Of DC's Best Joker Actors First Appeared In Superboy 30 Years Before
+
+Movies, Joker, DC Universe
+
+Thu, 30 Jul 2026 13:30:11 GMT
+
+https://screenrant.com/dc-joker-actor-superboy-joaquin-phoenix/
+
+The actor who played one of DC's most praised depictions of the Joker actually debuted in the franchise's live-action worlds 30 years prior.
+---------
+
+# Cristina Yang's 10 Best Grey's Anatomy Quotes
+
+Network TV, Grey's Anatomy
+
+Thu, 30 Jul 2026 13:15:11 GMT
+
+https://screenrant.com/cristina-yang-best-greys-anatomy-quotes/
+
+Years after her departure, Cristina Yang remains one of the most iconic Grey's Anatomy characters ever— and she has some of the show's best lines.
+---------
+
+# The Last Of Us Meets Fallout In New RPG You Can Play Free
+
+Gaming, The Last of Us, Fallout, RPG, PC, Steam
+
+Thu, 30 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/last-of-us-meets-fallout-free-rpg/
+
+The Last of Us and Fallout make for a great pairing, and, luckily, they've been mashed together in this new RPG that's free to play.
+---------
+
+# One Of The Greatest Batman Movies Ever Was Released 60 Years Ago And It Still Holds Up Today
+
+Movies, DC Universe, Batman: The Movie, Batman
+
+Thu, 30 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/batman-movie-1966-best-still-holds-up/
+
+60 years later, one Batman movie remains one of the Caped Crusader's most entertaining and distinctive adventures ever depicted on film.
+---------
+
+# Friday The 13th's Jason Voorhees Is Officially Back From The Dead
+
+Gaming, Friday The 13th
+
+Thu, 30 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/hellbreak-tcg-jason-voorhees-exclusive-card-reveal/
+
+Jason Voorhees is joining the horror-themed Hellbreak Trading Card Game, and we've got an exclusive first look.
+---------
+
+# Star Trek: Strange New Worlds Season 4 Episode 2 Ending Explained
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Thu, 30 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-episode-2-ending-explained/
+
+Star Trek: Strange New Worlds season 4 delves into horror as Spock, La'an, and James T. Kirk face their personal demons on a derelict Starfleet ship.
+---------
+
+# 10 Perfect Anime With No Bad Seasons
+
+Anime, Attack On Titan, Vinland Saga
+
+Thu, 30 Jul 2026 13:16:15 GMT
+
+https://www.cbr.com/perfect-anime-without-bad-seasons/
+
+These anime reward fans by maintaining the same level of excellence throughout their runs.
+---------
+
+# Steam’s Next Free-to-Keep Game for August 2026 Officially Revealed
+
+Games, Steam
+
+Thu, 30 Jul 2026 13:10:15 GMT
+
+https://www.cbr.com/steam-next-free-game-august-2026-official-reveal-moonlighter/
+
+The next hit free-to-keep Steam title for August has finally been revealed, and it is already a massively underrated indie fan-favorite.
+---------
+
+# Prime Video's New 8-Part Spy Show With 96% RT Is Amazon's New King of Global Streaming
+
+TV, Ride or Die
+
+Thu, 30 Jul 2026 13:01:15 GMT
+
+https://www.cbr.com/prime-video-ride-or-die-spy-comedy-global-success-july-2026/
+
+Prime Video's new action/adventure comedy series is dominating the global charts for a good reason - audiences are absolutely loving the new show.
+---------
+
+# Ryan Reynolds' Forgotten '90s Fantasy Series Was Lord of the Flies for Kids
+
+TV, The Odyssey, ryan reynolds, Fantasy
+
+Thu, 30 Jul 2026 13:01:15 GMT
+
+https://www.cbr.com/ryan-reynolds-forgotten-90s-fantasy-series-the-odyssey/
+
+Ryan Reynolds got an early start in a dark, philosophical but forgotten 1990s fantasy series that tackled grief, authoritarianism, and identity.
+---------
+
+# The 5 Greatest Steamy Fantasy Books of All Time, Ranked
+
+Movies, Fantasy, books
+
+Thu, 30 Jul 2026 13:01:15 GMT
+
+https://www.cbr.com/greatest-steamy-fantasy-books-of-all-time-ranked/
+
+Spicy fantasy literature is only gaining in popularity, but these five books rank among the best steamy fantasy books of all time.
+---------
+
+# Batman: Shadow of the Bat Details Unveiled By Deniz Camp
+
+Comics, Batman
+
+Thu, 30 Jul 2026 12:00:15 GMT
+
+https://www.cbr.com/batman-shadow-of-the-bat-deniz-camp-unveils-crucial-details/
+
+Batman's worst fear comes dangerously close to reality in upcoming comic.
+---------
+
+# Marvel Revives a Horrifying Legacy Villain in a Shocking New Twist
+
+Comics, Spider-Man, Horror, Marvel Comics
+
+Thu, 30 Jul 2026 12:00:15 GMT
+
+https://www.cbr.com/spider-man-midnight-doctor-octopus-reveal/
+
+Spider-Man's most diabolical villain, Doctor Octopus, gets a menacingly disturbing makeover in the Marvel Comic horror title Midnight Spider-Man.
+---------
+
+# Tom Holland Officially Confirms Why His Spider-Man Never Appeared in Tom Hardy's 'Venom'
+
+Movie News, Spider-Man: Brand New Day, Spider-Man, Tom Holland, Venom
+
+Thu, 30 Jul 2026 13:12:25 GMT
+
+https://collider.com/tom-holland-spider-man-venom-crossover-never-happened/
+
+Tom Holland is officially addressing why his Spider-Man never made an appearance in Tom Hardy's Venom trilogy.
+---------
+
+# Lord of the Rings Director Peter Jackson Officially Returns to Direct Long-Awaited Sequel
+
+Movie News, The Lord of the Rings, Peter Jackson, The Adventures of Tintin, Steven Spielberg
+
+Thu, 30 Jul 2026 13:00:15 GMT
+
+https://collider.com/peter-jackson-the-adventures-of-tintin-sequel-confirmed/
+
+After a 3-year absence from the director's chair, Peter Jackson reveals plans to helm a sequel to his 2011 film, The Adventures of Tintin.
+---------
+
+# Prime Video's 'The Wheel of Time' Has Quietly Mastered What Every Other Fantasy Show Gets Wrong
+
+TV Features, The Wheel of Time, Prime Video, Fantasy, Rosamund Pike
+
+Thu, 30 Jul 2026 12:46:15 GMT
+
+https://collider.com/the-wheel-of-time-prime-video-female-characters-fantasy/
+
+Women wield power through magic, politics, and physical prowess in Prime Video's The Wheel of Time, surpassing other fantasy shows.
+---------
+
+# ‘Broadchurch’ Fans Need To Watch The New York Times’ Best TV Pick
+
+TV Features, Unforgotten, Broadchurch, Crime, ITV
+
+Thu, 30 Jul 2026 12:39:15 GMT
+
+https://collider.com/broadchurch-fans-new-york-times-best-tv-pick-unforgotten/
+
+Loved Broadchurch? Unforgotten delivers compelling cold cases, emotional storytelling, and one of TV’s best detective duos.
+---------
+
+# The 10 Most Disturbing Crime Movies of All Time, Ranked
+
+Movie, Crime, Funny Games, Se7en, Oldboy
+
+Thu, 30 Jul 2026 12:33:15 GMT
+
+https://collider.com/disturbing-crime-movies-ranked/
+
+Man Bites Dog, American History X, and Funny Games are all among the most disturbing and violent crime movies ever made.
+---------
+
+# New 2-Part British Crime Series Officially Emerges as a Major Streaming Sleeper Hit
+
+TV News, Inspector Ellis, Line of Duty, Acorn TV, Broadchurch
+
+Thu, 30 Jul 2026 12:31:15 GMT
+
+https://collider.com/inspector-ellis-streaming-success-acorn-tv-july-2026/
+
+Inspector Ellis, a British detective drama starring Sharon D. Clarke, has quietly become one of the top streaming sleeper hits of 2026.
+---------
+
+# 'The Walking Dead’ Officially Returns to Netflix
+
+TV News, The Walking Dead, Fear the Walking Dead, AMC, Netflix
+
+Thu, 30 Jul 2026 12:22:07 GMT
+
+https://collider.com/the-walking-dead-netflix-streaming/
+
+The Walking Dead is expanding on Netflix as a new AMC deal brings all 371 episodes from the zombie franchise to the streamer.
+---------
+
+# All 13 Christopher Nolan Movies, Ranked According to Letterboxd
+
+Movie, Christopher Nolan, Letterboxd, The Odyssey, Interstellar
+
+Thu, 30 Jul 2026 12:18:14 GMT
+
+https://collider.com/christopher-nolan-movies-letterboxd-ranked/
+
+Find out how The Odyssey compares to Christopher Nolan's other movies, like Interstellar and Oppenheimer, according the Letterboxd community.
+---------
+
+# 'Obsession' Star Michael Johnston Officially Addresses 'The Mummy 4' Casting Rumors [Exclusive]
+
+Movie News, The Mummy 4, Obsession, Brendan Fraser, Rachel Weisz, Collider Forces
+
+Thu, 30 Jul 2026 12:00:15 GMT
+
+https://collider.com/brendan-fraser-mummy-4-michael-johnston-cast/
+
+Obsession star Michael Johnston has officially responded to reports he has joined the cast of Brendan Fraser's The Mummy 4.
+---------
+
+# The 10 Greatest Live Cover Performances in Rock History, Ranked
+
+Music Features, The Beatles, Queen, David Bowie, Rock, Music
+
+Thu, 30 Jul 2026 12:00:15 GMT
+
+https://collider.com/greatest-live-cover-performances-rock-history-ranked/
+
+From AC/DC to The Beatles, these legendary rock bands have been reimagined through unforgettable live covers. But which rendition takes the top spot?
+---------
+
+# Prime Video's New Action Thriller Officially Crowned One of the Biggest Shows on Streaming
+
+TV News, Ride or Die, Prime Video, Hot on Streaming, Action
+
+Thu, 30 Jul 2026 13:00:12 GMT
+
+https://movieweb.com/ride-or-die-action-streaming-success-prime-video-july-2026/
+
+Forget 'Reacher,' there's a new action hero on Prime Video.
+---------
+
+# 'Star Trek: Strange New Worlds' Clearly Has a New Spin-off in Mind That Isn't 'Year One'
+
+Features, star trek: strange new worlds, Star Trek
+
+Thu, 30 Jul 2026 13:00:12 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-division-12-spin-off/
+
+"The Griffin Incident" is an instant Star Trek classic in its own right, but can it pay off that spin-off tease? Read on for more.
+---------
+
+# 'Ted Lasso' Season 4's Missing Character Reignites 5-Year-Old Storyline
+
+Features, Ted Lasso, Brett Goldstein, Juno Temple, Comedy, Apple TV, Hannah Waddingham
+
+Thu, 30 Jul 2026 12:00:12 GMT
+
+https://movieweb.com/ted-lasso-season-4-missing-jamie-roy-keeley/
+
+Will 'Ted Lasso' Season 4 finally give us answers after the way things were left at the end of Season 3? Well, the new trailer suggests so.
+---------
+
 # Assassin's Creed Hexe Release Window Leak Confirms We're In For A Wait
 
 Gaming, Assassin's Creed, Ubisoft
@@ -5166,334 +5496,4 @@ Tue, 28 Jul 2026 20:00:11 GMT
 https://screenrant.com/5-criminally-underrated-starter-pokemon/
 
 There are tons of starters to pick from in every Pokémon game, also known as first partners, but some of the creatures are criminally underrated.
----------
-
-# Mistborn Officially Returns With 405-Page Handbook Out November 4
-
-Games, Mistborn
-
-Tue, 28 Jul 2026 21:00:15 GMT
-
-https://www.cbr.com/mistborn-officially-returns-new-handbook-november-2026/
-
-The Mistborn tabletop RPG is finally coming back with a new handbook this November.
----------
-
-# 4 Greatest Sci-Fi Adventure Movies From the Last 10 Years
-
-Movies, Sci-Fi, Adventure, Project Hail Mary
-
-Tue, 28 Jul 2026 21:00:15 GMT
-
-https://www.cbr.com/best-sci-fi-adventure-movies-last-10-years-list/
-
-The combination of sci-fi and adventure continues to be a box office powerhouse, and these modern classics prove audiences love it.
----------
-
-# Brandon Sanderson’s Mistborn Movie Officially Hits First Major Milestone After 7 Months
-
-Movies, Mistborn, Apple TV, The Cosmere
-
-Tue, 28 Jul 2026 20:44:21 GMT
-
-https://www.cbr.com/brandon-sanderson-mistborn-movie-script-complete/
-
-Brandon Sanderson shares a major update on Apple TV's upcoming Mistborn movie.
----------
-
-# This 88% RT Detective Show With 5 Seasons Is Better Than Sherlock in Every Way
-
-TV, Luther, Crime
-
-Tue, 28 Jul 2026 20:30:15 GMT
-
-https://www.cbr.com/bbc-luther-rivals-sherlock/
-
-Sherlock remains a major hit for detective shows, but there's another that runs even longer and is even better.
----------
-
-# 10 Greek Mythology Books That Are As Good As The Odyssey
-
-Movies, The Odyssey, books, Fantasy
-
-Tue, 28 Jul 2026 20:30:15 GMT
-
-https://www.cbr.com/greek-mythology-books-like-christopher-nolan-odyssey-list/
-
-For anyone missing the thrills of Christopher Nolan's 2026 historical fantasy epic, these modern myth retellings are the cure to Greek mythology fever
----------
-
-# Ghost Rider Star Eva Mendes Reacts Perfectly to Husband Ryan Gosling’s MCU Johnny Blaze Casting
-
-Movies, Ghost Rider, The Place Beyond the Pines, Marvel Cinematic Universe
-
-Tue, 28 Jul 2026 20:25:31 GMT
-
-https://www.cbr.com/eva-mendes-ryan-gosling-mcu-ghost-rider-casting/
-
-The two met on the set of the best possible precursor to Ghost Rider.
----------
-
-# 7 Anime That Are 10/10 Masterpieces But Haven't Finished Yet
-
-Anime, Frieren: Beyond Journey's End, Chainsaw Man, Re: Zero
-
-Tue, 28 Jul 2026 20:16:15 GMT
-
-https://www.cbr.com/masterpiece-anime-still-ongoing-not-finished/
-
-Unfinished anime like Frieren and Re: Zero have already reached a level of quality that places them among the medium's all-time classics.
----------
-
-# Baskin-Robbins Celebrates 30 Years of Pokémon With Sweet Ice Cream Lineup This August
-
-Anime, Pokemon, food
-
-Tue, 28 Jul 2026 20:06:14 GMT
-
-https://www.cbr.com/baskin-robbins-pokemon-anniversary-ice-cream/
-
-Pokémon fans have yet another surprisingly sweet way to celebrate their favorite franchise's 30th anniversary this Summer courtesy of Basin-Robbins.
----------
-
-# 10 Far Side Comics That Celebrate Absurd Humor
-
-Comics, The Far Side
-
-Tue, 28 Jul 2026 20:01:14 GMT
-
-https://www.cbr.com/the-far-side-best-absurd-humor-comics/
-
-The Far Side embraced the absurd at every turn, and these 10 classic comics are the ultimate celebrations of that fact.
----------
-
-# Netflix’s 'Gundam' Star Officially Reveals How Sydney Sweeney Changed a Scene in Just "5 Seconds" [Exclusive]
-
-Movie News, Gundam, Sydney Sweeney, Michael Mando, SDCC
-
-Tue, 28 Jul 2026 21:00:15 GMT
-
-https://collider.com/sydney-sweeney-netflix-gundam-movie-update-michael-mando/
-
-Michael Mando drops a glowing update on working with Sydney Sweeney in the upcoming Gundam movie currently in the works at Netflix.
----------
-
-# 'Silo' Is Officially Changing Its Most Ruthless Character [Exclusive]
-
-Exclusives, Silo, Tim Robbins, Rebecca Ferguson, SDCC
-
-Tue, 28 Jul 2026 20:30:15 GMT
-
-https://collider.com/silo-season-3-bernard-character-changes/
-
-Tim Robbins teases a radically different Bernard in Silo Season 3, saying “everything changes” following the character’s shocking return.
----------
-
-# The Best Rock Album of Every Year of the 1980s
-
-Music Features, Music, Rock, 1980s, Van Halen
-
-Tue, 28 Jul 2026 20:27:15 GMT
-
-https://collider.com/best-rock-albums-1980s-every-year/
-
-When discussing the best rock albums from every year of the 1980s, Synchronicity by The Police and Back in Black by AC/DC make the cut.
----------
-
-# CBS Officially Confirms the Premiere of 'Elsbeth' and 'Ghosts' Creators' New Series
-
-TV News, CBS, Eternally Yours, Elsbeth, Georgie & Mandy's First Marriage
-
-Tue, 28 Jul 2026 20:00:14 GMT
-
-https://collider.com/eternally-yours-cupertino-elsbeth-georgie-and-mandys-first-marriage-release-date-cbs-october-2026/
-
-CBS reveals its fall schedule and confirms when its Thursday night shows, including new titles from the creators of Ghosts and Elsbeth, premiere.
----------
-
-# 2026's $1 Billion Fantasy Adventure Dethroned at the Box Office by the Biggest Biopic of All Time
-
-Movie News, Michael, The Super Mario Galaxy Movie
-
-Tue, 28 Jul 2026 21:00:12 GMT
-
-https://movieweb.com/michael-the-super-mario-galaxy-movie-box-office/
-
-The worldwide box office chart shuffled its top three highest-grossing films this week.
----------
-
-# 8 Ways That 'Spaceballs 2' Can Make Fun of 'Star Wars' After 40 Years
-
-Movie Lists, Spaceballs: The New One, Spaceballs, Star Wars
-
-Tue, 28 Jul 2026 21:00:12 GMT
-
-https://movieweb.com/spaceballs-2-parody-star-wars/
-
-'Spaceballs: The New One,' the sequel to the popular comedy space opera movie, will star Rick Moranis, Keke Palmer, Bill Pullman, and Mel Brooks.
----------
-
-# New 'Home Alone' With Macaulay Culkin in the Works After He Pitches Perfect Sequel Idea
-
-Movie News, Home Alone, Home Alone 2: Lost in New York, Macaulay Culkin
-
-Tue, 28 Jul 2026 20:38:39 GMT
-
-https://movieweb.com/home-alone-sequel-macaulay-culkin-disney/
-
-Macauley Culkin is finally ready for another 'Home Alone' movie, with Disney eyeing another sequel after 34 years.
----------
-
-# Tom Holland's Biggest Ever Action Movie Dominates Streaming Ahead of Spider-Man Return
-
-Movie News, Spider-Man: No Way Home, Spider-Man: Brand New Day
-
-Tue, 28 Jul 2026 20:00:12 GMT
-
-https://movieweb.com/spider-man-no-way-home-disney-plus-stream-july-2026/
-
-Spider-Man fans are catching up on homework.
----------
-
-# Spider-Man: Brand New Day Is Officially Eyeing Record-Breaking Opening Box Office Weekend
-
-Movies, Spider-Man: Brand New Day
-
-Tue, 28 Jul 2026 19:48:01 GMT
-
-https://screenrant.com/spider-man-brand-new-day-box-office-preview-report/
-
-Spider-Man: Brand New Day is already breaking records, swinging into action, and destroying superhero fatigue as box office numbers have arrived.
----------
-
-# Scott Eastwood's Can't-Miss WWII Thriller, Lucky Strike, Gets Streaming Release Date
-
-Movies, Lucky Strike, Scott Eastwood
-
-Tue, 28 Jul 2026 19:35:09 GMT
-
-https://screenrant.com/scott-eastwood-lucky-strike-wwii-movie-digital-release-date/
-
-Regretting You and Suicide Squad’s Scott Eastwood has a new WWI thriller that came out in June, but will soon be available to watch at home.
----------
-
-# Spider-Man: Brand New Day Review: Holland’s Best Yet
-
-Movies, Spider-Man: Brand New Day, Originals
-
-Tue, 28 Jul 2026 19:30:31 GMT
-
-https://screenrant.com/video/spider-man-brand-new-day-review-holland-s-best-yet/
-
-Marvel has spent years building Spider-Man into the center of the MCU, but Spider-Man: Brand New Day succeeds by stripping everything back and focusing on Peter Parker himself. It's a smaller, more personal story that still carries major weight for the future of the franchise.
----------
-
-# How Beth Is Returning To The Walking Dead (After Dying In Season 5)
-
-Streaming TV, The Walking Dead: Dead City, The Walking Dead
-
-Tue, 28 Jul 2026 19:30:11 GMT
-
-https://screenrant.com/the-walking-dead-beth-return-explained/
-
-Beth suffered one of the most tragic deaths in all of The Walking Dead back in season 5, yet almost 12 years later, she's making a surprise return.
----------
-
-# Christopher Nolan Is More Popular Than James Bond & It's Not Up For Debate
-
-New Movies, Christopher Nolan, James Bond, The Odyssey
-
-Tue, 28 Jul 2026 19:20:11 GMT
-
-https://screenrant.com/christopher-nolan-more-popular-james-bond/
-
-Christopher Nolan and James Bond have been linked for years, but the director has definitively become more popular than 007's movie franchise.
----------
-
-# King Of The Hill Season 15 Interview With Cast at SDCC 2026
-
-Exclusive, King of the Hill, San Diego Comic-Con
-
-Tue, 28 Jul 2026 19:08:21 GMT
-
-https://screenrant.com/video/king-of-the-hill-season-15-stephen-root-lauren-tom-ashley-gardner-toby-huss-sdcc-2026/
-
-King Of The Hill stars Lauren Tom, Stephen Root, Toby Huss, and Ashley Gardner reflect on how it feels to be gifted so many new seasons, and where the story is taking their characters.
----------
-
-# Spider-Man & Punisher Remaking Iconic Civil War Panel Teased By Tom Holland
-
-Exclusive, Marvel
-
-Tue, 28 Jul 2026 19:07:56 GMT
-
-https://screenrant.com/spiderman-punisher-civil-war-panel-mcu-recreation-tease-tom-holland/
-
-Tom Holland's secretive response to whether Spider-Man: Brand New Day will recreate a iconic Civil War panel keeps fans with high anticipation.
----------
-
-# FX's 'Westworld Meets The Odyssey' Series Will Be Worth The Wait Ahead Of Season 2
-
-Streaming TV, Masked Recs
-
-Tue, 28 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/shogun-season-2-worth-the-wait/
-
-FX's epic historical miniseries was a masterpiece so good that the story is being revisited, but fans might have a long wait before seeing the result.
----------
-
-# 10 Years Later, Crunchyroll's Best Romance Anime Is Finally Complete
-
-Anime, Crunchyroll
-
-Tue, 28 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/crunchyroll-kamisama-kiss-complete-series-release/
-
-After nearly a decade, Crunchyroll's most underrated romance anime can finally be streamed in its entirety, including its grand finale.
----------
-
-# HBO Max Just Won the Streaming Wars as Warner Bros. Officially Buries Prime Video
-
-TV, HBO Max
-
-Tue, 28 Jul 2026 19:55:05 GMT
-
-https://www.cbr.com/hbo-max-shorts-new-search-engine/
-
-At this point, the streaming wars are no longer all about content.
----------
-
-# 10 Darkest Quotes in Star Wars Movie History
-
-Movies, Star Wars
-
-Tue, 28 Jul 2026 19:30:15 GMT
-
-https://www.cbr.com/darkest-quotes-in-star-wars-list/
-
-Take a trip to the Dark Side with some of the grittiest and most terrifying quotes from the Star Wars franchise.
----------
-
-# Tom Holland Finally Confirms His Spider-Man Future After Brand New Day
-
-Movies, Marvel Cinematic Universe, Spider-Man: Brand New Day
-
-Tue, 28 Jul 2026 19:19:43 GMT
-
-https://www.cbr.com/tom-holland-confirms-mcu-spider-man-future/
-
-Will Spider-Man: Brand New Day be Tom Holland's last bat as the superhero?
----------
-
-# 10 Strongest Old Men in All of Shonen Anime
-
-Anime, Shonen
-
-Tue, 28 Jul 2026 19:16:15 GMT
-
-https://www.cbr.com/shonen-anime-strongest-old-men-list/
-
-Anime like Bleach and Naruto have some of the most powerful old men in shonen history.
 ---------
