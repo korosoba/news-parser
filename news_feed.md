@@ -1,3 +1,333 @@
+# JRR Tolkien Expert Unpacks What Went Into Making The Lord of the Rings' Most Outrageous Characters
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Rings of Power, The Hobbit
+
+Thu, 30 Jul 2026 21:39:00 GMT
+
+https://screenrant.com/jrr-tolkien-expert-explains-making-the-lord-of-the-rings-gollum-tom-bombadil/
+
+Exclusive: J. R. R. Tolkien had a unique approach to creating the characters in his books, as is revealed in his wider writings on Middle-earth.
+---------
+
+# 5 Xbox Series X/S Games You Can Play Completely Free Without Game Pass
+
+Gaming, Xbox Series X/S
+
+Thu, 30 Jul 2026 21:30:11 GMT
+
+https://screenrant.com/xbox-series-x-s-free-games-no-game-pass-needed/
+
+From Zenless Zone Zero to Palia, discover five unique free Xbox Series X|S games you can play without Game Pass.
+---------
+
+# 8 Things That Happen After The Expanse (According To Its Sequel)
+
+Streaming TV, The Expanse
+
+Thu, 30 Jul 2026 21:30:11 GMT
+
+https://screenrant.com/the-expanse-dragon-tooth-sequel-biggest-reveals/
+
+The Expanse left a 30-year gap in its story, but the official sequel to the hit sci-fi show fills in the missing pieces of the novel's time skip.
+---------
+
+# $55 Billion EA Deal Clears Final Hurdle, Expected To Close Next Week
+
+Gaming, EA, Triple-A Games
+
+Thu, 30 Jul 2026 21:26:55 GMT
+
+https://screenrant.com/ea-buyout-deal-closes-electronic-arts/
+
+Electronic Arts' long-scheduled buyout by the Saudi Arabian Public Investment Fund and affiliated partners is finally happening next week.
+---------
+
+# Spider-Man Brand New Day Ending Explained: Do MJ & Ned Remember Peter Parker?
+
+Movies, Spider-Man: Brand New Day
+
+Thu, 30 Jul 2026 21:20:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-ending-explained/
+
+Spider-Man: Brand New Day sees Peter Parker trying to balance his heroic duties with his longing to be reunited with his best friends MJ and Ned.
+---------
+
+# Ryan Gosling Suits Up As Ghost Rider In New Marvel Art Ahead Of Avengers: Doomsday
+
+Movies, Ghost Rider
+
+Thu, 30 Jul 2026 21:03:19 GMT
+
+https://screenrant.com/ryan-gosling-ghost-rider-mcu-movie-art-avengers-doomsday/
+
+Ryan Gosling suits up as the new Ghost Rider with a burning skull in exciting new Marvel Cinematic Universe art ahead of Avengers: Doomsday.
+---------
+
+# Married At First Sight Season 1: Who Is Still Together (And Who's Not)
+
+Reality TV, Married At First Sight
+
+Thu, 30 Jul 2026 21:00:13 GMT
+
+https://screenrant.com/married-at-first-sight-season-1-who-is-still-together-and-whos-not/
+
+Married at First Sight viewers may want an update on how the show's inaugural pairs are doing these days, and whether they're still together at all.
+---------
+
+# 60 Years Later, Adam West’s Batman: The Movie Still Defines Comic Book Fun
+
+Classic Movies, Batman: The Movie
+
+Thu, 30 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/batman-movie-adam-west-60-year-anniversary/
+
+It has been 60 years since Adam West brought his Batman character to a movie, and here is what that film did for the comic book movie genre.
+---------
+
+# Stardew Valley Meets Slice Of Life Anime In New Farming RPG You Can Try Free Now
+
+Gaming, Stardew Valley, Steam
+
+Thu, 30 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/stardew-valley-farming-camp-new-game-try-free/
+
+Experience a fresh take on the farming sim genre with this adventure where you compete to become the best farmer in the Evertree Farming Camp.
+---------
+
+# The Walking Dead Replaces Hilltop For The 2nd Time In 3 Years
+
+Streaming TV, Masked Recs
+
+Thu, 30 Jul 2026 21:00:11 GMT
+
+https://screenrant.com/the-walking-dead-replace-hilltop-hospital-maggie/
+
+The Walking Dead replaced Hilltop three years ago, but now the replacement has also been replaced thanks to Maggie's Dead City season 3 storyline.
+---------
+
+# Every Rumor and Leak About Pokémon Winds and Waves So Far
+
+Games, Pokemon, Video Games
+
+Thu, 30 Jul 2026 21:15:15 GMT
+
+https://www.cbr.com/every-rumor-leak-pokemon-winds-waves-so-far/
+
+Pokémon Winds & Waves have been the source of many leaks and rumors, even before they were first announced, with many details making their way online.
+---------
+
+# Wonder Man Showrunner Responds After Marvel Cancels Series Following Season 2 Renewal
+
+TV, Wonder Man
+
+Thu, 30 Jul 2026 21:15:08 GMT
+
+https://www.cbr.com/wonder-man-showrunner-reacts-disney-plus-fate/
+
+Wonder Man's showrunner reacts to Disney+ reversing course on the future of the MCU series.
+---------
+
+# 5 Greatest Space Opera Movies Of All Time, Ranked
+
+Movies, Sci-Fi
+
+Thu, 30 Jul 2026 21:01:15 GMT
+
+https://www.cbr.com/best-space-opera-movies-of-all-time-list/
+
+Space opera films have become a major part of sci-fi history, giving fans stories that combine futuristic ideas with relatable human struggles.
+---------
+
+# Lord of the Rings: The White Tower and the Hall of Gold Officially Announced for September 2026
+
+Games, The Lord of the Rings, Tabletop, The Lord of the Rings: The Rings of Power
+
+Thu, 30 Jul 2026 20:58:15 GMT
+
+https://www.cbr.com/lotr-official-new-release-white-tower-hall-of-gold-september-2026/
+
+Free League has announced The White Tower and the Hall of Gold, a new Lord of the Rings release that takes players to Gondor and Rohan.
+---------
+
+# Game of Thrones: The Mad King First Reactions Finally Arrive After Canceled Previews
+
+TV, Game Of Thrones, Fantasy
+
+Thu, 30 Jul 2026 20:57:04 GMT
+
+https://www.cbr.com/game-of-thrones-the-mad-king-first-reactions/
+
+Fans share strong reactions to the first-ever performance of the Game of Thrones prequel.
+---------
+
+# Star Trek: Strange New Worlds: Bruce Campbell as Santa? | SDCC 2026
+
+TV, Star Trek: Strange New Worlds
+
+Thu, 30 Jul 2026 20:43:59 GMT
+
+https://www.cbr.com/video/star-trek-strange-new-worlds-bruce-campbell-as-santa-sdcc-2026/
+
+Star Trek: Strange New Worlds stars Anson Mount, Ethan Peck, and Celia Rose Gooding reflect on the franchise's 60th anniversary while revealing one of the funniest behind-the-scenes ideas yet.The cast discusses Pike's evolving legacy, Ethan Peck reacts to fans embracing "Hot Spock," and Celia Rose Gooding shares why meeting neurodivergent and multi-generational Trek fans has become one of the most meaningful parts of the job. They also revisit one of Season 3's darkest storylines before Anson Mount reveals the hilarious pitch for a Star Trek: Strange New Worlds Christmas special—complete with Bruce Campbell as Santa Claus.
+---------
+
+# Star Trek: Strange New Worlds: The Kirk Story Fans Needed | SDCC 2026
+
+TV, Star Trek: Strange New Worlds
+
+Thu, 30 Jul 2026 20:36:54 GMT
+
+https://www.cbr.com/video/star-trek-strange-new-worlds-the-kirk-story-fans-needed-sdcc-2026/
+
+Star Trek: Strange New Worlds stars Paul Wesley, Christina Chong, Melissa Navia, Akiva Goldsman, and Henry Alonso Myers break down Season 4, Kirk's evolution, Ortegas' emotional journey, and the future of the franchise at SDCC 2026.
+---------
+
+# Mark Wahlberg's Forgotten 119-Minute Action Thriller Is Officially a Global Smash on Streaming
+
+Movies, The Gambler, Paramount+ with Showtime
+
+Thu, 30 Jul 2026 20:30:22 GMT
+
+https://www.cbr.com/the-gambler-action-thriller-streaming-success-july-2026/
+
+Mark Wahlberg's forgotten action thriller makes a surprise comeback on streaming over a decade later.
+---------
+
+# 16 Years Later, Sam Winchester's Greatest Supernatural Quote Remains 100% Undisputed
+
+TV, Supernatural
+
+Thu, 30 Jul 2026 20:30:15 GMT
+
+https://www.cbr.com/supernatural-best-sam-winchester-quote/
+
+The emotional weight of Supernatural has always lain on the shoulders of the youngest Winchester brother.
+---------
+
+# 10 Harry Potter Book Moments the Movies Could Never Do Justice
+
+Movies, Harry Potter
+
+Thu, 30 Jul 2026 20:30:15 GMT
+
+https://www.cbr.com/harry-potter-book-moments-the-movies-failed-list/
+
+For as beloved as the Harry Potter movies are, there is no doubt that the movies failed to adapt some of the best book moments.
+---------
+
+# Ryan Condal's Biggest Gamble Could Ruin 'House of the Dragon's Most Anticipated Battle
+
+TV Features, House of the Dragon, Olivia Cooke, Ewan Mitchell, HBO Max
+
+Thu, 30 Jul 2026 21:27:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-alicent-aemond-harrenhal-gods-eye/
+
+House of the Dragon's Season 3 takes a significant risk that could impact the highly anticipated Battle Above the Gods Eye.
+---------
+
+# 25 Best Rock Albums of All Time
+
+Music Features, Music, Rock, The Beatles, The Rolling Stones
+
+Thu, 30 Jul 2026 21:27:14 GMT
+
+https://collider.com/best-rock-albums-all-time-ranked/
+
+Abbey Road by The Beatles, American Idiot by Green Day, and Rumours by Fleetwood Mac are among the best rock albums in music history.
+---------
+
+# 10 Best-Selling Video Games of All Time
+
+Gaming, Video Game, PUBG, Mario Kart, Tetris
+
+Thu, 30 Jul 2026 21:19:15 GMT
+
+https://collider.com/best-selling-video-games-all-time-ranked/
+
+Grand Theft Auto V, Tetris, and Minecraft are all among the best-selling titles in the history of gaming.
+---------
+
+# 10 Perfect Movies Based on Books, Ranked
+
+Movie, Howl's Moving Castle, Legally Blonde, Books, Pride & Prejudice
+
+Thu, 30 Jul 2026 21:09:14 GMT
+
+https://collider.com/perfect-movies-based-on-books-ranked/
+
+Project Hail Mary, The Devil Wears Prada, and Pride & Prejudice are some of the best, genuinely perfect movies based on books.
+---------
+
+# 15 Movies From the 2020s That Deserve a Larger Audience
+
+Movie, American Fiction, Pig, Judas and the Black Messiah, Steve
+
+Thu, 30 Jul 2026 20:57:15 GMT
+
+https://collider.com/15-movies-2020s-deserve-larger-audience/
+
+While quality movies have come more accessible due to the streamers, more & more are getting buried and lost as well.
+---------
+
+# Prime Video Scores Big as 3-Part Steamy Spin on 'Fast & Furious' Franchise Dominates Streaming
+
+Movie News, My Fault
+
+Thu, 30 Jul 2026 21:00:12 GMT
+
+https://movieweb.com/culpa-mia-tuya-nuestra-prime-video-stream-july-2026/
+
+Mercedes Ron's romance trilogy surged up Prime Video's top ten last week.
+---------
+
+# The Best Line in 'The Exorcist' Is Still the Greatest Horror Movie Quote
+
+Features, The Exorcist, Great Line
+
+Thu, 30 Jul 2026 21:00:12 GMT
+
+https://movieweb.com/the-exorcist-great-horror-quote/
+
+'The Exorcist,' the horror movie starring Linda Blair as Regan MacNeil, was released in 1973 and has many memorable quotes.
+---------
+
+# Ridley Scott Making Real-Life Epic Survival Adaptation From 'The Revenant' Scribe
+
+Movie News, The Revenant
+
+Thu, 30 Jul 2026 20:41:38 GMT
+
+https://movieweb.com/ridley-scott-ernest-shackleton-movie-netflix/
+
+Scott is producing the movie based on Ernest Shackleton, which is set to head to Netflix.
+---------
+
+# A '90s Cult Classic Is Officially Getting a Sequel Series With Original Star Returning
+
+TV News, Clueless
+
+Thu, 30 Jul 2026 20:33:46 GMT
+
+https://movieweb.com/clueless-sequel-series-alicia-silverstone/
+
+A 'Clueless' sequel series is officially moving forward at Paramount+, with Alicia Silverstone returning as Cher.
+---------
+
+# New 'Exorcist' Release Debuts Trailer Ahead of Mike Flanagan Reboot
+
+Movie News, The Exorcist
+
+Thu, 30 Jul 2026 20:24:40 GMT
+
+https://movieweb.com/boorman-and-the-devil-exorcist-2-documentary-trailer/
+
+The documentary 'Boorman and the Devil' chronicles the troubled production of 'Exorcist II: The Heretic.'
+---------
+
 # Skyrim's Massive 700-Player Mod Is Breathtaking And Ridiculous
 
 Gaming, The Elder Scrolls V: Skyrim, PC, The Elder Scrolls
@@ -5166,334 +5496,4 @@ Wed, 29 Jul 2026 13:00:11 GMT
 https://screenrant.com/the-walking-dead-city-negan-dillard-not-real/
 
 Negan immediately hit it off with The Walking Dead's strange new survivor, but one theory suggests this character may be a figment of his imagination.
----------
-
-# HBO Max Quietly Launches 2 Major New Streaming Changes Today
-
-TV, HBO Max
-
-Wed, 29 Jul 2026 12:41:54 GMT
-
-https://screenrant.com/hbo-max-new-mobile-features-shorts-search/
-
-HBO Max quietly launches two major new streaming changes today, with intent on making it easier for audiences to find something to watch.
----------
-
-# The DCU's New Set Photos Prove It Nailed Its Hardest Castings
-
-Movies, DC Universe
-
-Wed, 29 Jul 2026 12:30:11 GMT
-
-https://screenrant.com/dc-universe-supergirl-digital-release-set-photos-superman-casting/
-
-The DCU's latest set photos and the reactions to them confirm the franchise's trickiest castings have been done justice in this cinematic world.
----------
-
-# Every Hero In Avengers: Doomsday, Ranked By Power
-
-Movies, Avengers: Doomsday, Marvel Cinematic Universe
-
-Wed, 29 Jul 2026 12:30:11 GMT
-
-https://screenrant.com/avengers-doomsday-heroes-ranked-by-power/
-
-There are 29 confirmed heroes in Avengers: Doomsday, but not all of them will put up as much of a fight against Doctor Doom as the others.
----------
-
-# Brandon Sanderson’s New Stormlight Release Gets Surprise Update
-
-Gaming, Brandon Sanderson, The Stormlight Archive, Mistborn, PC
-
-Wed, 29 Jul 2026 12:11:45 GMT
-
-https://screenrant.com/stormlight-war-for-roshar-update-july-27/
-
-Brandon Sanderson's newest upcoming Stormlight project just got a major update with new details on what fans can expect when it arrives this fall.
----------
-
-# After 65 Years, One Justice League Hero Just Got Their Greatest Redesign Yet
-
-DC Comics, Justice League
-
-Wed, 29 Jul 2026 12:07:11 GMT
-
-https://screenrant.com/absolute-atom-ray-palmer-reveal-image/
-
-DC’s Absolute Universe has delivered stunning hero redesigns since 2024, and now fans get their first look at another Justice League icon’s makeover.
----------
-
-# 6 Iconic N64 Games That Changed Gaming Forever
-
-Gaming, Nintendo
-
-Wed, 29 Jul 2026 12:02:04 GMT
-
-https://screenrant.com/iconic-nintendo-64-games-changed-gaming/
-
-These groundbreaking N64 games transformed the gaming industry with innovative features and mechanics that continue to influence modern day gaming.
----------
-
-# Star Wars Just Changed the Most Rise of Skywalker Controversial Moment
-
-Movies, Star Wars: Episode IX - The Rise of Skywalker, Star Wars, Sci-Fi
-
-Wed, 29 Jul 2026 13:00:15 GMT
-
-https://www.cbr.com/star-wars-changes-rise-of-skywalker-rey-ending/
-
-Seven years after Star Wars: Episode IX -- The Rise of Skywalker, Lucasfilm officially changes its most divisive moment.
----------
-
-# 5 Perfect Netflix Miniseries the Algorithm Buried
-
-TV, Brand New Cherry Flavor, Godless, Alias Grace, Maniac, Collateral, Netflix
-
-Wed, 29 Jul 2026 13:00:15 GMT
-
-https://www.cbr.com/perfect-netflix-miniseries-hidden-gems/
-
-These underrated Netflix miniseries deserve another look, from Godless and Maniac to Alias Grace and Brand New Cherry Flavor.
----------
-
-# 25 Years Later, Star Trek Finally Gives Voyager Fans the Series They've Been Waiting For
-
-Comics, Star Trek, Star Trek: Voyager, San Diego Comic-Con
-
-Wed, 29 Jul 2026 12:00:15 GMT
-
-https://www.cbr.com/webtoon-recollection-a-star-trek-story-confirmed/
-
-The next genre-centric Star Trek series might just be exactly what fans of Star Trek: Voyager have been waiting nearly three decades to see.
----------
-
-# The MCU's New Agents of SHIELD Replacement Pulls the Plug on Marvel TV
-
-TV, Agents of S.H.I.E.L.D., Marvel Cinematic Universe
-
-Wed, 29 Jul 2026 11:30:15 GMT
-
-https://www.cbr.com/mcu-agents-of-shield-ghost-rider-replaced/
-
-Marvel Studios is officially replacing one of Agents of SHIELD's most beloved characters in the MCU and ending Marvel TV in the process.
----------
-
-# The 10 Funniest The Far Side Comics About War, Ranked
-
-Comics, The Far Side
-
-Wed, 29 Jul 2026 11:01:14 GMT
-
-https://www.cbr.com/funniest-far-side-comics-about-war/
-
-Gary Larson, creator of The Far Side, knew how to create hilarious comic strips no matter the topic - even when it came to war.
----------
-
-# Marvel Officially Introduces Thor's Replacement
-
-Books and Comics News, Marvel Comics, Thor, Marvel, Thor: Love and Thunder
-
-Wed, 29 Jul 2026 13:00:15 GMT
-
-https://collider.com/the-mortal-thor-issue-13-thors-replacement-preview-images-marvel-comics-release/
-
-New preview images from the latest issue of Marvel Comics' The Mortal Thor shows the Asgardian's successor taking the throne.
----------
-
-# Season 2 of TNT's Best Series Will Be Your Next Fantasy Obsession | Review
-
-TV Reviews, The Librarians: The Next Chapter, The Librarians, Dean Devlin, John Rogers
-
-Wed, 29 Jul 2026 13:00:15 GMT
-
-https://collider.com/the-librarians-the-next-chapter-season-2-review/
-
-The Librarians: The Next Chapter Season 2 is a must-watch fantasy series that offers a lighter tone and wholesome fun.
----------
-
-# 14 Years Later, Ridley Scott’s $403 Million Sci-Fi Epic Is a Global Streaming Hit
-
-Movie News, Alien, Prometheus, Ridley Scott, Sci-Fi
-
-Wed, 29 Jul 2026 12:30:14 GMT
-
-https://collider.com/ridley-scott-prometheus-streaming-success-hbo-max-july-2026/
-
-Ridley Scott’s divisive $403 million sci-fi epic Prometheus has become a worldwide streaming hit 14 years after its release.
----------
-
-# 7 Years Later, This 10/10 Sci-Fi Series Officially Deserves a Reboot
-
-TV Features, Killjoys, SyFy, Hannah John-Kamen, Firefly
-
-Wed, 29 Jul 2026 12:24:34 GMT
-
-https://collider.com/killjoys-sci-fi-masterpiece-deserves-reboot-opinion/
-
-The SyFy Channel had a true masterpiece on its hands with Killjoys, and it deserves to make a comeback.
----------
-
-# 8 Best Comedy Movies of 2026 So Far
-
-Movie, The Drama, Comedy, Hoppers, Nirvanna the Band the Show the Movie
-
-Wed, 29 Jul 2026 12:20:15 GMT
-
-https://collider.com/best-comedy-movies-2026/
-
-There have been many great comedy movies released so far in 2026, from blockbusters like Hoppers to indie darlings like I Love Boosters.
----------
-
-# If You Love Queen, Listen to These 10 Rock Artists
-
-Music Features, Queen, Rock, Lady Gaga, David Bowie
-
-Wed, 29 Jul 2026 12:10:14 GMT
-
-https://collider.com/rock-artists-like-queen/
-
-From Lady Gaga to My Chemical Romance, if you love Queen, you must add these artists to your playlist.
----------
-
-# ABC's 9-Part Crime Series Is Officially Dominating Hulu
-
-TV News, The Rookie, Procedural, ABC, Drama
-
-Wed, 29 Jul 2026 12:00:15 GMT
-
-https://collider.com/the-rookie-abc-procedural-streaming-success-hulu-july-2026/
-
-One of ABC's longest-running procedurals is seeing major streaming interest ahead of a new season. Get all the details here.
----------
-
-# 8 Worst Movies That Won Multiple Oscars
-
-Movie, Academy Awards, Emilia Perez, The Iron Lady, Crash
-
-Wed, 29 Jul 2026 11:51:14 GMT
-
-https://collider.com/worst-movies-won-multiple-oscars/
-
-Emilia Pérez, Cimarron, and Crash are shockingly bad movie misfires that somehow won multiple Oscars, proving the Academy is often wrong.
----------
-
-# 7 Must-Watch Shows Coming to Netflix in August
-
-TV, Netflix, Outer Banks, My Life with the Walter Boys, Alley Cats
-
-Wed, 29 Jul 2026 11:41:14 GMT
-
-https://collider.com/tv-shows-netflix-august-2026/
-
-From the new animated series Alley Cats to the highly anticipated final season of Outer Banks, these are the best shows coming to Netflix this August.
----------
-
-# 10 Greatest Fantasy Epic Movies of the Last 50 Years
-
-Movie, Fantasy, The Odyssey, The Lord of the Rings: The Return of the King, Crouching Tiger, Hidden Dragon
-
-Wed, 29 Jul 2026 11:36:14 GMT
-
-https://collider.com/best-fantasy-epic-movies-last-50-years-ranked/
-
-From animated triumphs like Princess Mononoke to the recently released masterpiece The Odyssey, these are the best epic movies of the last 50 years.
----------
-
-# Netflix's New 8-Part Action Thriller Officially Crowned One of the Biggest Shows on Streaming
-
-TV News, Netflix, Hot on Streaming, Action
-
-Wed, 29 Jul 2026 13:00:12 GMT
-
-https://movieweb.com/elite-force-action-netflix-tudum-stream/
-
-Netflix's new original action thriller is already one of the biggest series on streaming.
----------
-
-# 12 Years In, 'Rick & Morty' Finally Gets Its Big 'Back to the Future' Moment
-
-TV Shows, Rick and Morty, Back to the Future
-
-Wed, 29 Jul 2026 13:00:12 GMT
-
-https://movieweb.com/rick-and-morty-back-to-the-future-homage/
-
-'Rick & Morty' began as a vulgar 'Back to the Future' homage, and the Season 9 finale just returned the show to its roots. Read on for more.
----------
-
-# Stephen King's Small-Town Supernatural Series Is Completely Free on YouTube
-
-Features, Stephen King, Haven
-
-Wed, 29 Jul 2026 12:00:12 GMT
-
-https://movieweb.com/haven-stephen-king-youtube-free-streaming/
-
-Stephen King's beloved novels have been adapted into many movies and TV shows, and one of his best TV shows is free on YouTube.
----------
-
-# Netflix's New 96-Minute Action Thriller Officially Crowned One of Streaming's Biggest Hits
-
-Movie News, Netflix, Action, Thriller, Sniper, Sniper: The Last Stand
-
-Wed, 29 Jul 2026 11:30:12 GMT
-
-https://movieweb.com/netflix-sniper-no-nation-biggest-action-stream-july-2026/
-
-No flag. No backup. No mercy.
----------
-
-# Tom Holland and Daisy Ridley's Sci-Fi Thriller Is Streaming Free on YouTube
-
-Features, Chaos Walking, Tom Holland, Daisy Ridley
-
-Wed, 29 Jul 2026 11:01:12 GMT
-
-https://movieweb.com/chaos-walking-tom-holland-streaming-free/
-
-Tom Holland, whose recent movie 'The Odyssey' is in theaters now, and Daisy Ridley starred in a sci-fi thriller movie that is now free on YouTube.
----------
-
-# Dragon Ball New Opening Movie And Theme Song Released As New Era Begins
-
-Gaming, Dragon Ball, Dragon Ball: Sparking! Zero
-
-Wed, 29 Jul 2026 10:34:54 GMT
-
-https://screenrant.com/dragon-ball-sparking-zero-new-theme-song/
-
-As a franchise, Dragon Ball has always had iconic musical scores and opening animations, and the latest is no exception.
----------
-
-# Game Of Thrones: War For Westeros Is Coming
-
-Gaming, Game of Thrones, Game of Thrones: War for Westeros
-
-Wed, 29 Jul 2026 10:30:11 GMT
-
-https://screenrant.com/game-of-thrones-night-king-return-all-out-war-2027/
-
-Game Of Thrones: War For Westeros is one of the more exciting upcoming franchise releases, and it releases very soon indeed.
----------
-
-# 5 PlayStation 2 Games That Have Aged Horribly (But We Still Love)
-
-Gaming, PlayStation 2
-
-Wed, 29 Jul 2026 10:16:06 GMT
-
-https://screenrant.com/playstation-2-games-aged-badly/
-
-The PlayStation 2 is home to so many classics that have aged perfectly, but a few hits struggle on the platform in particularly frustrating ways.
----------
-
-# Justin Roiland’s Infamous Rick And Morty Firing Candidly Reflected On By Dan Harmon 3 Years Later
-
-TV, Rick and Morty
-
-Wed, 29 Jul 2026 10:12:40 GMT
-
-https://screenrant.com/rick-morty-justin-roiland-firing-dan-harmon-reflection/
-
-Rick & Morty's Dan Harmon reflected on when Justin Roiland, who co-created the Adult Swim series and voiced the title characters, was fired in 2023.
 ---------
