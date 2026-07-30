@@ -1,3 +1,377 @@
+# Marvel Cancels Wonder Man Season 2 Renewal
+
+TV, Wonder Man, Marvel Cinematic Universe
+
+Thu, 30 Jul 2026 18:40:16 GMT
+
+https://screenrant.com/wonder-man-season-2-renewal-cancelled-reversed/
+
+Despite having renewed Wonder Man for season 2, Marvel Studios has now gone on to cancel one of the MCU's most popular TV shows in shocking fashion.
+---------
+
+# Disney Star Wars' Most Epic Lightsaber Duel Was Worth The 6-Year Wait
+
+Streaming TV, Star Wars, Star Wars: The Clone Wars
+
+Thu, 30 Jul 2026 18:30:11 GMT
+
+https://screenrant.com/maul-ahsoka-star-wars-clone-wars-epic-lightsaber-duel/
+
+It took six years for Disney to bring us this epic Star Wars lightsaber duel, but it was undeniably worth the wait. This was the ultimate matchup.
+---------
+
+# Spider-Man: Brand New Day's Rotten Tomatoes Score Continues A Major 3-Movie MCU Streak
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Thu, 30 Jul 2026 18:25:19 GMT
+
+https://screenrant.com/spider-man-brand-new-day-rotten-tomatoes-score-mcu-streak/
+
+Spider-Man: Brand New Day's Rotten Tomatoes score is impressive, and it confirms a perfect three-movie streak for the MCU after divisive releases.
+---------
+
+# The Exorcist Getting Exciting New Release Next Month Ahead Of Mike Flanagan’s 2027 Reboot
+
+Horror, The Exorcist
+
+Thu, 30 Jul 2026 18:21:25 GMT
+
+https://screenrant.com/the-exorcist-boorman-and-the-devil-documentary-trailer-release-date/
+
+An exciting new release in the long line of Exorcist movies is coming next month, even as Mike Flanagan continues preparing a new reboot.
+---------
+
+# Why Scarlett Johansson's New Netflix Sci-Fi Movie Took 30 Years To Make
+
+Movies, Ray Gunn
+
+Thu, 30 Jul 2026 18:13:44 GMT
+
+https://screenrant.com/ray-gunn-movie-scarlett-johansson-30-year-development-changes/
+
+The director of Scarlett Johansson's upcoming Netflix sci-fi film explains why it took three decades to make their passion project happen.
+---------
+
+# 4 Things We Know For Sure About Fallout 5's Setting
+
+Gaming, Fallout, Fallout 5
+
+Thu, 30 Jul 2026 18:00:11 GMT
+
+https://screenrant.com/fallout-5-official-setting-4-things-we-know/
+
+Fallout 5 has officially been confirmed, and though it is undoubtedly a long way away from release, we already know a few things about it.
+---------
+
+# 29 Years Later, The 1990s Most Important Star Trek Character Is Aging Like Fine-Wine
+
+TV, Star Trek, Star Trek: Voyager
+
+Thu, 30 Jul 2026 18:00:11 GMT
+
+https://screenrant.com/star-trek-most-important-1990s-character-seven-of-nine/
+
+During the franchise's peak, one Star Trek character allowed the series to reach its full potential for excitement & audience connection.
+---------
+
+# The Boys' 2027 Return Will Reinvent Soldier Boy
+
+Streaming TV, Masked Recs
+
+Thu, 30 Jul 2026 18:00:11 GMT
+
+https://screenrant.com/the-boys-2027-vought-rising-reinvent-soldier-boy/
+
+The Boys will return in 2027 with Vought Rising, a spinoff starring Jensen Ackles' Soldier Boy, but viewers shouldn't expect the character they know.
+---------
+
+# New George R.R. Martin GOT Spinoff's A Song Of Ice & Fire Canon Status Clarified By Franchise Author
+
+TV, Game of Thrones
+
+Thu, 30 Jul 2026 17:56:26 GMT
+
+https://screenrant.com/the-mad-king-play-got-canon-status-george-rr-martin-team/
+
+A new Game of Thrones story just premiered this week, but the big question has been whether it’s considered canon. Fans now have their answer.
+---------
+
+# Rings Of Power Season 3 Confirms New Character With Major Aragorn Connection
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Thu, 30 Jul 2026 17:39:51 GMT
+
+https://screenrant.com/rings-of-power-season-3-numenor-elros-introduction-casting-confirmed/
+
+An update has arrived for The Lord of the Rings: The Rings of Power season 3, confirming the arrival of a new character with a connection to Aragorn.
+---------
+
+# Marvel Suddenly Cancels Its Best Show in Years After Renewing It for Season 2
+
+Movies, Wonder Man, Marvel Cinematic Universe, Disney+
+
+Thu, 30 Jul 2026 18:38:28 GMT
+
+https://www.cbr.com/wonder-man-season-2-canceled-marvel-disney-plus/
+
+Marvel has suddenly reversed course a previous decision to renew the Disney+ series for a second season.
+---------
+
+# 5 Classic '90s Anime That Are 10/10 Masterpieces
+
+Anime, Revolutionary Girl Utena, Cowboy Bebop
+
+Thu, 30 Jul 2026 18:15:14 GMT
+
+https://www.cbr.com/classic-90s-anime-perfect-masterpieces/
+
+The '90s were full of impressive and innovative anime, but only titles like Serial Experiments Lain and Revolutionary Girl Utena are truly flawless.
+---------
+
+# Iconic Spider-Man Villain Officially Becomes Marvel's New Venom
+
+Comics, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man: Brand New Day
+
+Thu, 30 Jul 2026 18:00:15 GMT
+
+https://www.cbr.com/iconic-marvel-spider-man-villain-officially-becomes-new-venom/
+
+Marvel Comics just unleashed one of the most dangerous Spider-Man villain combos ever.
+---------
+
+# 5 Forgotten Jedi Who Deserve Their Own Star Wars Movie
+
+Movies, Star Wars
+
+Thu, 30 Jul 2026 18:00:15 GMT
+
+https://www.cbr.com/jedi-who-deserve-solo-star-wars-movie-list/
+
+Star Wars has many great Jedi, but some of the most forgotten are also the most worthy of their own spinoff movie.
+---------
+
+# 10 Spider-Man Stories That Are Perfect From Start to Finish
+
+Comics, Spider-Man
+
+Thu, 30 Jul 2026 18:00:15 GMT
+
+https://www.cbr.com/spider-man-comics-perfect-from-start-to-finish/
+
+Unforgettable series like Spider-Men, Spider-Island and Life Story gripped Spider-Man fans from the very first pages and held them until the very end.
+---------
+
+# 10 Must-Read Spider-Man Comics Before Seeing Spider-Man: Brand New Day
+
+Comics, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man
+
+Thu, 30 Jul 2026 18:00:15 GMT
+
+https://www.cbr.com/spider-man-comics-read-before-watching-brand-new-day/
+
+Ready for the next Spider-Man movie? You should read these comics first before following Peter Parker's latest adventure.
+---------
+
+# Tom Holland Confirms Marvel's Plan for 'Passing the Baton' of MCU's Spider-Man
+
+Movies, Marvel Cinematic Universe, Spider-Man, Spider-Man: Brand New Day
+
+Thu, 30 Jul 2026 17:51:42 GMT
+
+https://www.cbr.com/tom-holland-passing-the-baton-spider-man/
+
+Tom Holland's days as the MCU's Spider-Man are numbered.
+---------
+
+# Batman: Caped Crusader Cast Tease Joker's Plan | SDCC 2026
+
+TV, Batman: Caped Crusader
+
+Thu, 30 Jul 2026 17:30:16 GMT
+
+https://www.cbr.com/video/batman-caped-crusader-cast-tease-joker-s-plan-sdcc-2026/
+
+Batman: Caped Crusader Season 2 brings Batman and Joker together for a psychological showdown unlike any previous animated adaptation. At SDCC 2026, Hamish Linklater, Matthew Needham, James Tucker, and Geoffrey Thorne reveal how Season 2 builds toward Joker's long game while expanding the Riddler's story.
+---------
+
+# The Institute Season 2 Is Taking Stephen King's Story Beyond the Book
+
+TV, Stephen King, The Institute
+
+Thu, 30 Jul 2026 17:30:16 GMT
+
+https://www.cbr.com/the-institute-season-2-stephen-king-book-changes/
+
+Having exhausted the plot of Stephen King's 2019 novel The Institute, the second season will take a fresh direction to build on its ambiguous ending.
+---------
+
+# 10 Best American Classic Rock Albums of All Time
+
+Music Features, Guns N' Roses, Bob Dylan, Talking Heads, The Velvet Underground
+
+Thu, 30 Jul 2026 18:45:15 GMT
+
+https://collider.com/best-american-classic-rock-albums-all-time-ranked/
+
+If you're after great American classic rock albums, it's worth listening to masterpieces like Doolittle, The Doors, and Appetite for Destruction.
+---------
+
+# Marvel Officially Cancels 'Wonder Man' Despite Season 2 Renewal
+
+TV News, Wonder Man, Marvel Studios, Yahya Abdul-Mateen II, Ben Kingsley
+
+Thu, 30 Jul 2026 18:41:24 GMT
+
+https://collider.com/wonder-man-season-2-cancelled-disney-plus/
+
+Despite a Season 2 renewal, Wonder Man Season 2 is no longer moving forward at Disney+. Read on for all the details.
+---------
+
+# The Devil’s Mouth: Real Sharks Were Only the Start | Set Stories
+
+Movie, The Devil's Mouth
+
+Thu, 30 Jul 2026 18:15:14 GMT
+
+https://collider.com/video/the-devil-s-mouth-real-sharks-were-only-the-start-set-stories/
+
+Tommi Rose, Nico Hiraga, Gavin Casalegno, and Lana Condor take Collider behind the scenes of The Devil's Mouth, revealing what it was really like filming the Amazon Prime thriller in Thailand. From spotting real shark fins on the way to set to spending months soaked in massive water tanks and cave sets, the cast shares the challenges that made this production unlike anything they'd done before.
+---------
+
+# Cole Hauser Officially Addresses Taylor Sheridan's Exit From 'Dutton Ranch'
+
+TV News, Yellowstone, Taylor Sheridan, Dutton Ranch, Cole Hauser
+
+Thu, 30 Jul 2026 18:15:14 GMT
+
+https://collider.com/dutton-ranch-star-cole-hauser-taylor-sheridan-exit/
+
+Taylor Sheridan's lack of involvement with Dutton Ranch has finally been addressed by Yellowstone icon Cole Hauser.
+---------
+
+# ‘Star Wars’ Brings Back Carl Weathers 2 Years After His Death
+
+Books and Comics News, Carl Weathers, The Mandalorian, The Mandalorian and Grogu, Star Wars
+
+Thu, 30 Jul 2026 17:56:57 GMT
+
+https://collider.com/star-wars-carl-weathers-return-mandalorian-and-grogu-prequel-comic/
+
+Star Wars has officially brought back Carl Weathers’ Greef Karga two years after the actor’s death in a new Mandalorian story.
+---------
+
+# Anya Taylor-Joy’s ‘Lord of the Rings’ Debut Gets Key Endorsement
+
+Movie News, Anya Taylor-Joy, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings: The Rings of Power
+
+Thu, 30 Jul 2026 17:52:22 GMT
+
+https://collider.com/anya-taylor-joy-lord-of-the-rings-hunt-for-gollum-rings-of-power-star-advice/
+
+Anya Taylor-Joy gets some advice about playing an Elf in The Lord of the Rings: The Hunt for Gollum from a Rings of Power star.
+---------
+
+# ‘Reacher’s Alan Ritchson Officially Breaks His Silence on ‘Fast and Furious 11’ Delays
+
+Movie News, Fast X, Jason Statham, Alan Ritchson, Fast and Furious
+
+Thu, 30 Jul 2026 17:44:29 GMT
+
+https://collider.com/alan-ritchson-fast-and-furious-11-return-explained/
+
+Alan Ritchson explains why Fast XI is taking so long, revealing the franchise must solve some “big problems” before its 2028 return.
+---------
+
+# 10 Greatest Books of the Last 100 Years
+
+Books and Comics, Pachinko, The Handmaid's Tale, The Sympathizer, Books
+
+Thu, 30 Jul 2026 17:18:16 GMT
+
+https://collider.com/best-books-last-100-years/
+
+The Color Purple, To Kill a Mockingbird, The Handmaid's Tale, and more make up our list of the best books of the last 100 years.
+---------
+
+# Marvel Studios Shockingly Cancels Best MCU Series Despite Renewal Announcement
+
+TV News, Wonder Man, Disney+
+
+Thu, 30 Jul 2026 18:47:25 GMT
+
+https://movieweb.com/wonder-man-disney-plus-canceled-season-2/
+
+In a shocking development, Marvel Studios pulled the plug on a second season for one of its most successful Disney+ shows.
+---------
+
+# Throwback Gothic Thriller With Solid Rotten Tomatoes Score Debuts New Trailer
+
+Movie News, Victorian Psycho, Maika Monroe
+
+Thu, 30 Jul 2026 18:11:36 GMT
+
+https://movieweb.com/maika-monroe-victorian-psycho-official-trailer/
+
+Maika Monroe stars in the new thriller 'Victorian Psycho,' which hits theaters in September.
+---------
+
+# Leonardo DiCaprio's Long-Awaited Action Thriller Sequel Already Heating Up Trilogy
+
+Movie News, Heat 2, Leonardo DiCaprio
+
+Thu, 30 Jul 2026 18:02:07 GMT
+
+https://movieweb.com/leonardo-dicaprio-heat-3-early-talks/
+
+The studio is so confident in the long-awaited action thriller sequel that a third film is in the works.
+---------
+
+# Apple TV's Sci-Fi Masterpiece Sets up Perfect Ending After Just 2 Seasons
+
+Features, Dark Matter
+
+Thu, 30 Jul 2026 18:00:12 GMT
+
+https://movieweb.com/dark-matter-season-2-possible-final-season/
+
+Blake Crouch's 'Dark Matter' has been great so far, but that doesn't mean it will run forever. Season 2 looks like the end. Read on for more.
+---------
+
+# Tom Holland Confirms 'Spider-Man: Brand New Day' Cut Major Villain Fans Were Convinced Would Make Live-Action Debut
+
+Movie News, Spider-Man: Brand New Day, Tom Holland
+
+Thu, 30 Jul 2026 17:42:58 GMT
+
+https://movieweb.com/spider-man-tom-holland-mcu-man-spider-villain/
+
+According to Tom Holland, one major plot point originally developed for 'Spider-Man: Brand New Day' was nixed for being too scary.
+---------
+
+# Alexander Skarsgård Transforms Into a 'Wicker' Husband in Trailer for Raunchy New Fantasy Movie
+
+Movie News, Wicker, Alexander Skarsgard, Olivia Colman
+
+Thu, 30 Jul 2026 17:40:54 GMT
+
+https://movieweb.com/alexander-skarsgard-wicker-trailer/
+
+'Wicker' is a fantasy romantic comedy that sees Alexander Skarsgard play a man made out of wicker.
+---------
+
+# Jared Leto Offers Statement After Sexual Assault Allegations
+
+Movie News, Jared Leto
+
+Thu, 30 Jul 2026 17:36:37 GMT
+
+https://movieweb.com/jared-leto-statement-misconduct-allegations/
+
+Jared Leto addresses accusations of sexual misconduct and assault made by four women, including allegations involving teenagers.
+---------
+
 # Taylor Sheridan's Lioness Season 4 Fate Seemingly Confirmed Ahead Of 2026 Return
 
 TV, Lioness, Taylor Sheridan, Paramount Plus
@@ -5122,378 +5496,4 @@ Wed, 29 Jul 2026 03:05:14 GMT
 https://www.cbr.com/hunter-x-hunter-character-popularity-poll-animate-times/
 
 A new Hunter x Hunter popularity poll has revealed the top 20 characters from the series.
----------
-
-# JUMANJI: OPEN WORLD - Official Trailer
-
-Movies, Jumanji: Open World
-
-Wed, 29 Jul 2026 02:58:27 GMT
-
-https://www.cbr.com/video/jumanji-open-world-official-trailer/
-
-One. Last. Game.The final countdown begins. Watch the new trailer for #Jumanji: Open World - exclusively in theatres Christmas Day.
----------
-
-# The Best Sega Genesis Game Is a 10/10 Masterpiece 32 Years Later
-
-Games, Sega Genesis, Sonic the Hedgehog, sega
-
-Wed, 29 Jul 2026 02:45:15 GMT
-
-https://www.cbr.com/sonic-3-best-sega-genesis-game/
-
-Sonic 3 & Knuckles has never been more clearly the greatest Sega Genesis masterpiece of all time.
----------
-
-# The Rock's Beloved Adventure Franchise Officially Returns After 7 Years
-
-Movies, Jumanji: Open World
-
-Wed, 29 Jul 2026 02:32:58 GMT
-
-https://www.cbr.com/the-rock-jumanji-open-world-official-trailer/
-
-The Rock's iconic adventure franchise is coming to a close with one final installment, and a new trailer teases the hilarious action that's on the way
----------
-
-# 4 10/10 Masterpiece Anime Even Better Than JJK
-
-Anime, Jujutsu Kaisen, Hunter X Hunter, Neon Genesis Evangelion
-
-Wed, 29 Jul 2026 02:30:15 GMT
-
-https://www.cbr.com/masterpiece-anime-better-than-jujutsu-kaisen/
-
-Jujutsu Kaisen is one of the best anime, but these four series might just be even better.
----------
-
-# HBO Finally Changes Game of Thrones' 15-Year-Old Rule for Character Deaths
-
-TV, House of the Dragon, Game Of Thrones, HBO Max
-
-Wed, 29 Jul 2026 02:00:25 GMT
-
-https://www.cbr.com/hbo-house-of-the-dragon-criston-cole-death/
-
-The Game of Thrones universe is known for climactic character deaths, but finally, one HBO show rebels against tradition.
----------
-
-# 5 Fantasy Books That Are Perfectly Written
-
-Movies, books, Fantasy, The Last Unicorn
-
-Wed, 29 Jul 2026 02:00:25 GMT
-
-https://www.cbr.com/perfect-fantasy-books-list/
-
-Some fantasy books are thought to be excellently crafted or even masterpieces, but there are fewer that are considered to be perfectly written.
----------
-
-# Apple TV’s Forgotten 7-Episode True Crime Miniseries Is Too Good To Miss for ‘Mare of Easttown’ Fans
-
-TV Features, Lady in the Lake, Natalie Portman, Apple TV, Moses Ingram
-
-Wed, 29 Jul 2026 04:45:14 GMT
-
-https://collider.com/lady-in-the-lake-apple-tv-forgotten-true-crime-miniseries/
-
-Apple TV's Lady in the Lake is a captivating mystery series similar to Mare of Easttown, with its dark themes and intense performances.
----------
-
-# Say Goodbye to These 8 Netflix Shows Before They Officially Leave Streaming
-
-TV, Netflix, Fear the Walking Dead, A Discovery of Witches, Home Improvement
-
-Wed, 29 Jul 2026 04:27:14 GMT
-
-https://collider.com/netflix-shows-leaving-streaming-august-2026/
-
-Shows come and go on Netflix, with even some originals leaving the streamer. Make sure to watch these series before they're gone.
----------
-
-# This 2017 Dark Fantasy Book Has the Best Opening Line of the Last 10 Years
-
-Books and Comics, Books, Fantasy, Science Fiction, Adventure
-
-Wed, 29 Jul 2026 03:26:14 GMT
-
-https://collider.com/red-sister-mark-lawrence-fantasy-book-best-opening-line-last-10-years/
-
-Mark Lawrence's 2017 fantasy book Red Sister features a killer opening line to introduce its powerful story of sisterhood, fate, agency, and magic.
----------
-
-# 8 Most Perfect Movies of the Past 6 Years, Ranked
-
-Movie, Asteroid City, Sinners, Flow, One Battle After Another
-
-Wed, 29 Jul 2026 03:18:14 GMT
-
-https://collider.com/most-perfect-movies-past-6-years-ranked/
-
-Asteroid City, Babylon, Poor Things, One Battle After Another, Sinners, and more make up our list of the most perfect movies of the last six years.
----------
-
-# Apple TV’s ‘Ted Lasso’ Is Entering a Whole New Era With a Major Team Shake-Up
-
-TV, Ted Lasso, Jason Sudeikis, Brett Goldstein, Hannah Waddingham
-
-Wed, 29 Jul 2026 03:02:14 GMT
-
-https://collider.com/ted-lasso-season-4-lady-greyhound-new-cast-list-guide/
-
-Ted Lasso returns for Season 4 with a whole new cast of players.
----------
-
-# Netflix's 10 Biggest Fall 2026 Releases We Can't Wait For
-
-TV Lists, Netflix
-
-Wed, 29 Jul 2026 02:38:24 GMT
-
-https://movieweb.com/netflix-biggest-fall-2026-releases/
-
-Netflix has a lot of exciting movies and shows planned for the fall, and many of the biggest releases continue already beloved stories.
----------
-
-# 10 Dark Fantasy TV Shows Made For Adults
-
-TV Lists, Fantasy, Game Of Thrones, The Witcher
-
-Wed, 29 Jul 2026 02:00:22 GMT
-
-https://movieweb.com/dark-fantasy-tv-shows-adults/
-
-These dark fantasy TV shows are aimed at adult audiences and have some fantastic world-building.
----------
-
-# The Office: Jim & Pam's Relationship Timeline, Season By Season
-
-Classic TV, The Office, Movie/TV Show Timelines
-
-Wed, 29 Jul 2026 01:45:11 GMT
-
-https://screenrant.com/the-office-jim-pam-relationship-timeline/
-
-Jim and Pam had a great love story on The Office. They may have started off as friends, but fans were delighted to see them eventually tie the knot.
----------
-
-# Game Of Thrones: How Old Each Character Is Supposed To Be
-
-Classic TV, Game Of Thrones
-
-Wed, 29 Jul 2026 01:30:11 GMT
-
-https://screenrant.com/game-thrones-characters-ages-how-old/
-
-Game of Thrones character ages are rarely, if ever, stated outright. Here's how old the Game of Thrones characters based on the books and show.
----------
-
-# Paramount Has Found Its Next Yellowstone, And The 'New John Dutton' Is An Acting Legend
-
-Streaming TV, Masked Recs
-
-Wed, 29 Jul 2026 01:15:11 GMT
-
-https://screenrant.com/laird-new-yellowstone-kenneth-branagh-paramount/
-
-Paramount+'s next big quasi-western series is Laird, starring acting legend Kenneth Branagh, and could easily be the next Yellowstone-style hit.
----------
-
-# The Dangers Of Jumanji Enter The Real World In Action-Packed First 2026 Sequel Trailer
-
-Movies, Jumanji: Open World, Jumanji
-
-Wed, 29 Jul 2026 01:01:06 GMT
-
-https://screenrant.com/jumanji-4-open-world-movie-trailer/
-
-Sony unveils the official Jumanji: Open World trailer, seeing the dangers of the jungle and its game characters making their way into the real world.
----------
-
-# 4 Years Later, Netflix's New 10/10 Series Just Took The Horror Throne
-
-TV, Netflix, Masked Recs
-
-Wed, 29 Jul 2026 01:00:11 GMT
-
-https://screenrant.com/netflix-the-east-palace-best-horror-drama/
-
-Blending dark historical politics with terrifying supernatural horror, Netflix's latest international original is a massive global hit.
----------
-
-# Tim Bradford's 10 Best Quotes In The Rookie, Ranked
-
-Network TV, The Rookie
-
-Wed, 29 Jul 2026 01:00:11 GMT
-
-https://screenrant.com/the-rookie-tim-bradford-best-quotes/
-
-Ranking the best quotes from Tim Bradford in The Rookie TV show, including moments that highlight his growth and insights throughout the series' run.
----------
-
-# Prime Video's Spider-Noir Replacement Officially Releases This Week
-
-Streaming TV, Spider-Noir, Batman: Caped Crusader
-
-Wed, 29 Jul 2026 00:31:58 GMT
-
-https://screenrant.com/batman-caped-crusader-spider-noir-prime-video-series-replacement/
-
-Nicolas Cage's Spider-Noir is making way for its perfect replacement at Prime Video, and the superhero series releases new episodes this week.
----------
-
-# Christopher Nolan Has Created The Second Best Film Based On The Odyssey: Here's The First
-
-Movies, The Odyssey
-
-Wed, 29 Jul 2026 00:30:11 GMT
-
-https://screenrant.com/christopher-nolan-odyssey-coens-o-brother/
-
-Twenty-six years before Christopher Nolan's 2026 adaptation of Homer's classic, a musical comedy cemented itself as the perfect Odyssey adaptation.
----------
-
-# The Power Universe's Unofficial 5th Series Begins This Week
-
-TV, Masked Recs
-
-Wed, 29 Jul 2026 00:15:11 GMT
-
-https://screenrant.com/fightland-release-date-power-unofficial-series/
-
-Produced by the Power franchise's 50 Cent, this British boxing drama/crime thriller looks like a perfect UK-based replacement for the gangster epic.
----------
-
-# Iconic Kaiju Officially Confirmed for Godzilla's New Appearance
-
-Comics, Godzilla
-
-Wed, 29 Jul 2026 00:13:32 GMT
-
-https://screenrant.com/godzilla-mothra-appearance-announced/
-
-We're getting Mothra y'all.
----------
-
-# It's Officially a New Era for God of War on February 16
-
-Games, God of War, San Diego Comic-Con
-
-Wed, 29 Jul 2026 01:45:14 GMT
-
-https://www.cbr.com/god-of-war-laufey-releasing-february-2027/
-
-God of War Laufey is officially one of the most anticipated video games of 2027, and it will change the franchise forever.
----------
-
-# 10 Strongest Gods of Destruction in Dragon Ball, Officially Ranked
-
-Anime, Dragon Ball, Dragon Ball Super
-
-Wed, 29 Jul 2026 01:25:14 GMT
-
-https://www.cbr.com/dragon-ball-strongest-gods-of-destruction-officially-ranked/
-
-Dragon Ball's multiverse is watched over by incredibly powerful Gods of Destruction, and some of these deadly deities are stronger than the rest.
----------
-
-# The 5 Greatest Netflix Movies of 2026 (So Far)
-
-Movies, Netflix, The Rip, War Machine
-
-Wed, 29 Jul 2026 01:00:15 GMT
-
-https://www.cbr.com/best-netflix-movies-of-2026-so-far-list/
-
-From modern action classics to heartwarming book adaptations, these are the best Netflix movies of 2026 so far.
----------
-
-# Final Fantasy 7 Crossover Is Final Fantasy 14's Most Important Moment
-
-Games, Final Fantasy, final fantasy xiv, Final Fantasy 7 Remake
-
-Wed, 29 Jul 2026 00:45:15 GMT
-
-https://www.cbr.com/final-fantasy-7-14-crossover-most-important-moment/
-
-Final Fantasy 14 has finally broken the seal on the long-awaited Final Fantasy 7 Remake crossover, but it has to nail the landing.
----------
-
-# Transformers Reveals 2 New Dinobots With Extinction-Level Combining Power
-
-Anime, Transformers, merchandise, toys, action figures
-
-Wed, 29 Jul 2026 00:35:14 GMT
-
-https://www.cbr.com/transformers-dinobots-cang-toys-grandspino-trusaurus-prototype/
-
-Cang Toys has revealed its newest Transformers figures, which round out its take on the Dinobots with entirely new prehistoric forces  Combiners.
----------
-
-# Denzel Washington's Ricochet is a Perfect Die Hard Replacement
-
-Movies, Ricochet
-
-Wed, 29 Jul 2026 00:30:15 GMT
-
-https://www.cbr.com/denzel-washington-ricochet-perfect-die-hard-replacement/
-
-This forgotten Denzel Washington thriller shares a number of connections with Die Hard, and it might just be the perfect spiritual sequel.
----------
-
-# 28 Years Later, Avery Brooks' Favorite Star Trek: DS9 Episode Is Still 100% Untouchable
-
-TV, Star Trek: Deep Space Nine, Sci-Fi, Paramount
-
-Wed, 29 Jul 2026 00:30:15 GMT
-
-https://www.cbr.com/star-trek-ds9-avery-brooks-favorite-episode-far-beyond-the-stars/
-
-This episode of Star Trek: Deep Space Nine is one of the franchise's most powerful episodes, thanks to Avery Brooks’ unforgettable performance.
----------
-
-# 5 Classic Anime That Perfected Tournament Arcs
-
-Anime, Shonen
-
-Wed, 29 Jul 2026 00:15:14 GMT
-
-https://www.cbr.com/classic-anime-perfect-tournament-arcs/
-
-While tournament arcs in anime have been around for decades, these action series refined the concept to perfection.
----------
-
-# Harlan Coben’s 8-Part Crime Drama Is 1 of Netflix's Most-Watched Shows Ever
-
-TV, I Will Find You
-
-Wed, 29 Jul 2026 00:00:15 GMT
-
-https://www.cbr.com/harlan-coben-i-will-find-you-netflix-most-popular-tv/
-
-The series was a tremendous success and it has just added another huge title.
----------
-
-# Marvel Just Announced Its Most Important Recast Of All Time
-
-Movies, Black Panther 3, MCU, superheroes
-
-Wed, 29 Jul 2026 00:00:15 GMT
-
-https://www.cbr.com/black-panther-david-jonsson-recast-change-mcu/
-
-At San Diego Comic Con, Marvel Studios announced a recast that will officially change the MCU forever.
----------
-
-# 8 Fantasy Books That Can Be Called Masterpieces
-
-Books and Comics, Fantasy, Books, The Lord of the Rings, J.R.R. Tolkien
-
-Wed, 29 Jul 2026 01:43:14 GMT
-
-https://collider.com/best-fantasy-books-masterpieces/
-
-Why do A Game of Thrones and The Name of the Wind still define fantasy? These book masterpieces prove greatness never ages.
 ---------
