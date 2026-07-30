@@ -1,3 +1,69 @@
+# Legend Of Zelda: Ocarina Of Time Remake Gameplay Teaser And Release Date Update Surface Online
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Thu, 30 Jul 2026 09:44:09 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-rating-updated/
+
+The Legend of Zelda: Ocarina of Time Remake is on the way but we don't know too much about it, though some information is starting to emerge.
+---------
+
+# 6 Most Perfect Western Movies Released Since 2000
+
+Movie, Western, Brokeback Mountain, True Grit, Django Unchained
+
+Thu, 30 Jul 2026 09:51:14 GMT
+
+https://collider.com/most-perfect-western-movies-since-2000-ranked/
+
+From True Grit to No Country for Old Men, these six Westerns defined the 21st century.
+---------
+
+# 2026’s Sci-Fi Fantasy Masterpiece Surges to #1 on Prime Video
+
+Movie News, Masters of the Universe, Prime Video, Fantasy, Mattel
+
+Thu, 30 Jul 2026 09:30:15 GMT
+
+https://collider.com/masters-of-the-universe-prime-video-streaming-success-july-2026/
+
+Despite underperforming at the box office, Masters of the Universe has found a second life on streaming platforms.
+---------
+
+# 10 Things To Know About Jean Grey (for No Reason Whatsoever)
+
+Books and Comics, Comic Book, Marvel Comics, Superhero, Spider-Man: Brand New Day
+
+Thu, 30 Jul 2026 09:04:14 GMT
+
+https://collider.com/jean-grey-marvel-comics-things-to-know/
+
+Jean Grey is one of the most popular and powerful characters in Marvel Comics, and she has a long and complicated history you might not know about.
+---------
+
+# Say Goodbye to Spider-Man on Netflix as ‘Brand New Day’ Swings Into Theaters
+
+Movie News, Netflix, Spider-Man, Spider-Man 2, Spider-Man 3
+
+Thu, 30 Jul 2026 09:00:15 GMT
+
+https://collider.com/sam-raimi-spider-man-trilogy-leaving-netflix-june-2027/
+
+Sam Raimi's Spider-Man trilogy is losing its streaming home as Brand New Day prepares for a historic box office run.
+---------
+
+# Jackie Chan Officially Returning for Sequel to His Best Action Thriller in Years
+
+Movie News, Jackie Chan, The Shadow's Edge, Action, Thriller
+
+Thu, 30 Jul 2026 09:48:21 GMT
+
+https://movieweb.com/jackie-chan-shadows-edge-2-production/
+
+Released just last year, the martial arts crime thriller was hailed as an "action-packed masterpiece."
+---------
+
 # Game Of Thrones' Rhaegal Is Officially Back With A Vengeance
 
 Gaming, Game of Thrones, Game Of Thrones, PC, House of the Dragon
@@ -5430,70 +5496,4 @@ Tue, 28 Jul 2026 18:01:11 GMT
 https://screenrant.com/the-paper-office-sequel-2020s-sitcoms-problem/
 
 The Paper's failure to replicate The Office's success highlights a bigger issue with 2020s sitcoms, leading to the genre's slow death on streaming.
----------
-
-# 6 Movie Tie-In Games Of The PS2 Era That Were Actually Amazing
-
-Gaming, PlayStation 2
-
-Tue, 28 Jul 2026 18:00:11 GMT
-
-https://screenrant.com/6-movie-tie-in-games-that-are-amazing/
-
-The PlayStation 2 actually had several really great movie tie-in games that did a great job of adapting the big screen experience to our TVs.
----------
-
-# Jujutsu Kaisen Interview with Adam McArthur at SDCC 2026
-
-Anime, Jujutsu Kaisen, San Diego Comic-Con
-
-Tue, 28 Jul 2026 17:57:35 GMT
-
-https://screenrant.com/video/jujutsu-kaisen-season-3-adam-mcarthur-interview-sdcc-2026/
-
-Voice actor Adam McArthur discusses how he views Yuji Itadori's story in Jujutsu Kaisen, and how his own love of martial arts influences his acting work.
----------
-
-# Who Is Alysanne Blackwood? Criston Cole's Executioner & House Of The Dragon Changes Explained
-
-Streaming TV, House of the Dragon, Game of Thrones, House of the Dragon - Season 3
-
-Tue, 28 Jul 2026 17:30:11 GMT
-
-https://screenrant.com/house-of-the-dragon-alysanne-blackwood-explained/
-
-Alysanne Blackwood - AKA Black Aly - got the best kill of House of the Dragon season 3 so far, though that's not quite what happened in canon.
----------
-
-# Werewolf By Night 2 Return Gets New Status Update From MCU Director
-
-Movies, Marvel's Werewolf By Night, Marvel Cinematic Universe, Horror
-
-Tue, 28 Jul 2026 17:27:36 GMT
-
-https://screenrant.com/werewolf-by-night-2-mcu-status-update-michael-giacchino/
-
-Exclusive: Director Michael Giacchino offers an exciting new status update on Werewolf by Night 2 and his potential return to helm the MCU sequel.
----------
-
-# James Cameron's Cyberpunk Action Epic Is About To Lose Major Streaming Home
-
-Movies, Masked Recs
-
-Tue, 28 Jul 2026 17:25:04 GMT
-
-https://screenrant.com/james-cameron-alita-battle-angel-leaving-streaming-july-2026/
-
-One of James Cameron’s most passionately defended cyberpunk action movies is about to become harder to watch, as it’s slated to its main streamer.
----------
-
-# Spider-Man: Brand New Day Interview with Tom Holland, Jacob Batalon & Jon Bernthal
-
-Videos, Spider-Man: Brand New Day, Spider-Man, Tom Holland
-
-Tue, 28 Jul 2026 17:17:28 GMT
-
-https://screenrant.com/video/spider-man-brand-new-day-tom-holland-jacob-batalon-jon-bernthal-interview/
-
-Spider-Man: Brand New Day stars Tom Holland, Jacob Batalon, and Jon Bernthal discuss Peter Parker's role in the Avengers moving forward and dynamic with the Punisher.
 ---------
