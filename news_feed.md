@@ -1,3 +1,333 @@
+# We're Officially 1 Year Away From A Quiet Place 3
+
+Movies, A Quiet Place Part III, A Quiet Place
+
+Thu, 30 Jul 2026 15:30:11 GMT
+
+https://screenrant.com/quiet-place-3-return-one-year-franchise/
+
+Mark your calendar now, as we're one year away from the return of the A Quiet Place franchise, which has grossed $900 million thus far.
+---------
+
+# A24's New Anti-Terminator Thriller Brings Back The Original Terminator Hero
+
+Movies, Masked Recs
+
+Thu, 30 Jul 2026 15:30:11 GMT
+
+https://screenrant.com/onslaught-movie-michael-biehn-terminator/
+
+A24 has a science fiction action thriller coming to theaters soon, and it's bringing back a Terminator actor for a Terminator-like story.
+---------
+
+# Tom Holland Addresses Spider-Man's Symbiote Rumors In Avengers: Secret Wars
+
+Movies, Avengers: Secret Wars
+
+Thu, 30 Jul 2026 15:28:39 GMT
+
+https://screenrant.com/avengers-secret-wars-spider-man-symbiote-tom-holland-response/
+
+Tom Holland finally opens up about the major Avengers: Secret Wars rumors surrounding his Spider-Man, and whether or not he'll wear the Symbiote suit.
+---------
+
+# Civilization Meets Pirates Of The Caribbean In New Pirate RPG You Can Play Free Now
+
+Gaming, Civilization, Pirates of the Caribbean, RPG, PC, Steam
+
+Thu, 30 Jul 2026 15:21:17 GMT
+
+https://screenrant.com/corsair-cove-free-download-pirates-of-the-caribbean-inspired/
+
+Fans of Pirates of the Caribbean may want to check out this brand-new RPG that blends elements of Civilization with a swashbuckling adventure.
+---------
+
+# The Rings Of Power Begins A New Era In 4 Months
+
+Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, The Lord of the Rings: The Rings of Power - Season 3
+
+Thu, 30 Jul 2026 15:15:12 GMT
+
+https://screenrant.com/rings-of-power-season-3-new-era-time-jump/
+
+In November 2026, Rings of Power will enter its third season, and after four years, this is when the true heat of the story begins.
+---------
+
+# What's Leaving Netflix In August 2026: All TV Shows & Movies
+
+Streaming TV, Netflix
+
+Thu, 30 Jul 2026 15:13:25 GMT
+
+https://screenrant.com/everything-leaving-netflix-august-2026/
+
+The complete list of TV shows and movies set to leave Netflix in August 2026, including popular titles like 27 Dresses, American Gangster, and more.
+---------
+
+# Mike Flanagan’s Carrie First Reactions Are Officially In
+
+TV, Carrie, Horror, Mike Flanagan, Stephen King
+
+Thu, 30 Jul 2026 15:08:39 GMT
+
+https://screenrant.com/carrie-show-mike-flanagan-first-reactions/
+
+The first reactions are officially in for Mike Flanagan's Carrie and the verdict is looking great for the upcoming Stephen King adaptation.
+---------
+
+# The Samurai And The Prisoner Review: Period Mystery Is Intriguing, Thoughtful & Cold
+
+New Movies, The Samurai and the Prisoner
+
+Thu, 30 Jul 2026 15:08:37 GMT
+
+https://screenrant.com/the-samurai-and-the-prisoner-movie-review/
+
+Kiyoshi Kurasawa’s new samurai mystery is handsomely mounted and intellectually compelling, though not as emotionally involving as it could’ve been.
+---------
+
+# Forza Horizon 6: Italian Exotics - Hokubu Region Treasure Hunt Location
+
+Gaming, Forza Horizon 6
+
+Thu, 30 Jul 2026 15:03:17 GMT
+
+https://screenrant.com/forza-horizon-6-italian-exotics-hokubu-region-treasure-hunt-location/
+
+Here's where to find the treasure chest for the Italian Exotics' Hokubu Region challenge.
+---------
+
+# Netflix's 4-Hour High Fantasy Series Started The Downfall Of A Franchise
+
+Classic TV, Masked Recs
+
+Thu, 30 Jul 2026 15:00:11 GMT
+
+https://screenrant.com/the-witcher-blood-origin-fantasy-series-netflix-franchise-downfall/
+
+There is a four-hour limited series on Netflix that signaled the beginning of the end for one of the streamer's premiere fantasy franchises.
+---------
+
+# Netflix Lands TV's Biggest Horror Franchise in $500M Deal
+
+TV, The Walking Dead, Netflix, Horror
+
+Thu, 30 Jul 2026 15:24:00 GMT
+
+https://www.cbr.com/the-walking-dead-streaming-netflix-amc-2027-500-million-deal/
+
+The Walking Dead is shambling onto Netflix.
+---------
+
+# Transformers Officially Turns Megatron Into the Most Decepticon Toy of All Time
+
+Anime, Transformers, merchandise, toys, action figures, hasbro
+
+Thu, 30 Jul 2026 15:23:24 GMT
+
+https://www.cbr.com/transformers-hasbro-megatron-icons-release/
+
+A truly 'iconic' version of Megatron has been revealed by Hasbro, along with two new Transformers action figures to usher in the Age of the Primes.
+---------
+
+# Super Troopers 3 Cast Can't Stay Serious | SDCC 2026
+
+Movies, Super Troopers 3
+
+Thu, 30 Jul 2026 15:20:55 GMT
+
+https://www.cbr.com/video/super-troopers-3-cast-can-t-stay-serious-sdcc-2026/
+
+Super Troopers 3 is bringing Broken Lizard back with another outrageous comedy, and the cast shares plenty of hilarious behind-the-scenes stories from SDCC 2026.
+---------
+
+# Amazon Is Rewriting Peter Jackson's Lord of the Rings Trilogy in Rings of Power Season 3
+
+TV, The Lord of the Rings, The Lord of the Rings: The Rings of Power, Prime Video
+
+Thu, 30 Jul 2026 15:15:15 GMT
+
+https://www.cbr.com/rings-of-power-adapt-peter-jackson-one-ring-scene/
+
+Starting with its upcoming third season, The Rings of Power faces the difficult task of directly competing with The Lord of the Rings film trilogy.
+---------
+
+# 10 Short Anime That Tell a Complete Story in 12 Episodes
+
+Anime, Erased, Yuri!!! On Ice: The Complete Series, Zom 100: Bucket List of the Dead
+
+Thu, 30 Jul 2026 15:15:15 GMT
+
+https://www.cbr.com/short-anime-complete-stories-12-episodes/
+
+These masterpiece anime told complete, compelling stories in only twelve episodes.
+---------
+
+# Dark Souls Meets Jurassic Park in New Action RPG Available Now
+
+Games, Steam
+
+Thu, 30 Jul 2026 15:05:15 GMT
+
+https://www.cbr.com/dark-souls-meets-jurassic-park-new-action-rpg-dinoblade/
+
+One of the most unexpected video games of all time is taking over Steam, and it might just be exactly what Dark Souls fans didn't know they needed.
+---------
+
+# It's Officially Time for Luffy To Say Goodbye to Gear 5
+
+Anime, One Piece
+
+Thu, 30 Jul 2026 15:00:16 GMT
+
+https://www.cbr.com/luffy-gear-6-upgrade-imu-battle/
+
+Gear 5 has proven useless against Imu, suggesting that Luffy might soon get an upgrade in One Piece
+---------
+
+# 5 Spy Movie Heroes More Capable Than James Bond
+
+Movies, James Bond
+
+Thu, 30 Jul 2026 14:30:15 GMT
+
+https://www.cbr.com/spies-better-than-james-bond-list/
+
+James Bond is cinema's most famous spy, but when it comes to who is more capable, there are others who surpass him.
+---------
+
+# 5 The CW Shows You Completely Forgot Existed
+
+TV, The CW, Reign, Hellcats, Life Unexpected
+
+Thu, 30 Jul 2026 14:30:15 GMT
+
+https://www.cbr.com/forgotten-the-cw-shows-list/
+
+While shows like Gilmore Girls and Smallville dominated The CW, other shows fell off everyone's radar.
+---------
+
+# 10 Strongest Characters in Anime History, Officially Ranked
+
+Anime, Dragon Ball, Jujutsu Kaisen, Naruto
+
+Thu, 30 Jul 2026 14:15:15 GMT
+
+https://www.cbr.com/official-strongest-characters-in-anime-history-ranked/
+
+Among all the powerful characters to grace the history of anime, the likes of Son Goku and Madoka Kaname stand out among the strongest of them all.
+---------
+
+# 'Ted Lasso' Season 4 Needs To Answer These 6 Questions (or Else)
+
+TV, Ted Lasso, Apple TV, Jason Sudeikis, Comedy
+
+Thu, 30 Jul 2026 15:36:15 GMT
+
+https://collider.com/ted-lasso-season-4-questions-need-answers/
+
+Ted Lasso Season 4 is almost here, and before the Apple TV sports comedy series returns, there are some pressing issues that need to be addressed.
+---------
+
+# Adaption of One of the Decade's Best Horror Thriller Novels Officially Drops First Grisly Trailer
+
+Movie News, Victorian Psycho, Maika Monroe, It Follows, Longlegs
+
+Thu, 30 Jul 2026 14:15:15 GMT
+
+https://collider.com/victorian-psycho-trailer/
+
+Discover the dark and twisted world of Victorian Psycho, where Maika Monroe plays an eccentric governess with a sinister secret. Watch the trailer.
+---------
+
+# Olivia Colman & Alexander Skarsgård’s Weirdest Movie Yet Officially Debuts First Trailer
+
+Movie News, Wicker, Olivia Colman, Peter Dinklage, Alexander Skarsgard
+
+Thu, 30 Jul 2026 14:01:15 GMT
+
+https://collider.com/olivia-colman-alexander-skarsgard-wicker-trailer/
+
+Olivia Colman, Alexander Skarsgård, and Peter Dinklage star in the new trailer for the fantasy romance Wicker. Watch it now.
+---------
+
+# Amazon's Newest R-Rated Sensation Is Officially One of the Biggest Shows on Streaming
+
+TV News, Off Campus, Prime Video, Hot on Streaming
+
+Thu, 30 Jul 2026 15:00:12 GMT
+
+https://movieweb.com/off-campus-rrated-streaming-success-prime-july-2026/
+
+Prime Video's raunchiest show in years is a streaming phenomenon.
+---------
+
+# Cryptic 'Spider-Man: Brand New Day' Clip Offers Final Clues About Sadie Sink's Mysterious Role
+
+Movie News, Spider-Man: Brand New Day, Sadie Sink
+
+Thu, 30 Jul 2026 14:34:30 GMT
+
+https://movieweb.com/spider-man-brand-new-day-sadie-sink-clip/
+
+Marvel and Sony gave fans their first glimpse at Sadie Sink in 'Spider-Man: Brand New Day,' as questions linger about her role.
+---------
+
+# Jason Momoa Hulks Out in Action-Packed New 'Street Fighter' Footage
+
+Movie News, Street Fighter
+
+Thu, 30 Jul 2026 14:26:34 GMT
+
+https://movieweb.com/street-fighter-clip-blanka-vs-ryu/
+
+Ryu unleashes his ultimate power move in the action-packed look at 'Street Fighter.'
+---------
+
+# Tom Selleck Finally Reveals the Truth Behind 'Blue Bloods' Cancellation
+
+TV News, Blue Bloods
+
+Thu, 30 Jul 2026 14:10:10 GMT
+
+https://movieweb.com/blue-bloods-tom-selleck-canceled-explained/
+
+They did everything they could to keep the show going.
+---------
+
+# 'Star Trek Strange New Worlds' Officially Changes Genre in Season 4
+
+Features, star trek: strange new worlds, Star Trek
+
+Thu, 30 Jul 2026 14:00:12 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-horror-episode/
+
+Star Trek shows are traditionally sci-fi, but 'Strange New Worlds' breaks the mold with a terrifying horror installment. Read on for more.
+---------
+
+# Tom Holland Confirms Plan For 'Passing the Baton' as Spider-Man in the MCU
+
+Movie News, Spider-Man, Spider-Man: Brand New Day, Tom Holland
+
+Thu, 30 Jul 2026 13:54:22 GMT
+
+https://movieweb.com/spider-man-tom-holland-mcu-baton-miles-morales/
+
+MCU Spider-Man star Tom Holland is already working on a plan to pass the massive torch of playing Spider-Man to another star.
+---------
+
+# 'The Rookie' Already Filmed a Series Finale To Prepare For Its Cancellation
+
+TV News, The Rookie
+
+Thu, 30 Jul 2026 13:49:47 GMT
+
+https://movieweb.com/the-rookie-season-8-finale-alternate-ending/
+
+The stars of the show talked about its longevity and how it almost had an entirely different Season 8 finale.
+---------
+
 # Netflix & The Walking Dead Set Huge New $500M Deal
 
 TV, The Walking Dead
@@ -5166,334 +5496,4 @@ Tue, 28 Jul 2026 21:30:11 GMT
 https://screenrant.com/the-magicians-syfy-harry-potter-meets-shadowhunters/
 
 One hidden gem of a Syfy show is the perfect blend of Harry Potter's magical schooling and Shadowhunter's gritty hidden supernatural world.
----------
-
-# Mary’s Return In Georgie & Mandy’s First Marriage Season 3 Gets Clarification In New TBBT Report
-
-TV, Georgie & Mandy's First Marriage, Georgie & Mandy's First Marriage - Season 3, The Big Bang Theory
-
-Tue, 28 Jul 2026 21:23:56 GMT
-
-https://screenrant.com/mary-georgie-mandy-first-marriage-bigger-role-clarified-tbbt-report/
-
-Mary Cooper's future in The Big Bang Theory spinoff Georgie & Mandy's First Marriage remains uncertain as Zoe Perry's character status is updated.
----------
-
-# Another Ex-Xbox Studio Hit With Layoffs Following Exit From Microsoft
-
-Gaming, Xbox, Triple-A Games
-
-Tue, 28 Jul 2026 21:16:31 GMT
-
-https://screenrant.com/double-fine-layoffs-xbox-independence/
-
-Just when we thought Microsoft's layoffs couldn't get any worse, its ripple effect is endangering the jobs of even more developers than ever.
----------
-
-# The Walking Dead: Dead City Interview with Jeffrey Dean Morgan, Lauren Cohan & More at SDCC 2026
-
-Videos, The Walking Dead, The Walking Dead: Dead City, San Diego Comic-Con
-
-Tue, 28 Jul 2026 21:12:04 GMT
-
-https://screenrant.com/video/the-walking-dead-city-season-3-jeffrey-dean-morgan-lauren-cohan-cast-sdcc-2026/
-
-The Walking Dead: Dead City stars Jeffrey Dean Morgan, Lauren Cohan, and EPs Scott Gimple and Seth Hoffman explain how Aimee Garcia and Raúl Castillo's characters fit into the world of season 3. The cast also reacts to the question of Maggie and Negan's romantic (or not) tension.
----------
-
-# In Just 1 Week, Taylor Sheridan’s Hit Action Thriller Finally Returns With New Episodes
-
-TV, Lioness, Paramount Plus
-
-Tue, 28 Jul 2026 22:30:15 GMT
-
-https://www.cbr.com/taylor-sheridan-lioness-season-3-return-august-2026/
-
-Season 3 of Taylor Sheridan's Lioness will be premiering in less than one week, on Aug. 2, on Paramount+.
----------
-
-# 5 Greatest Action Anime Series of the 2020s, Ranked
-
-Anime, Jujutsu Kaisen, Chainsaw Man
-
-Tue, 28 Jul 2026 22:15:15 GMT
-
-https://www.cbr.com/greatest-2020s-action-anime-series/
-
-Anime series like Cyberpunk: Edgerunners and Jujutsu Kaisen rank among this decade's best action masterpieces.
----------
-
-# Star Wars' Qui Gon Jinn Officially Returns in 2027
-
-Games, Star Wars
-
-Tue, 28 Jul 2026 22:05:14 GMT
-
-https://www.cbr.com/star-wars-qui-gon-jinn-official-return-2027/
-
-Qui-Gon Jinn became a forever important part of Star Wars history as Obi-Wan's master in The Phantom Menace, and now he finally returns in 2027.
----------
-
-# In Just 1 Day, Hulu's New 8-Episode Crime Drama Is the Most-Watched Show in the World
-
-TV, Furious
-
-Tue, 28 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/furious-crime-series-hulu-disney-plus-global-success-july-2026/
-
-The show debuted to perfect scores from critics.
----------
-
-# Marvel Reveals Which X-Men Will Replace the Avengers
-
-Comics, X-Men, Marvel Comics
-
-Tue, 28 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/marvel-maximum-x-men-armageddon-announcement/
-
-At this year's San Diego Comic-Con, Marvel finally confirmed which members of the X-Men are set to replace the Avengers later this year.
----------
-
-# Michael B. Jordan Reacts to New Black Panther After Marvel Casts David Jonsson
-
-Movies, Marvel, Marvel Comics, MCU, Black Panther, Black Panther Wakanda Forever, Black Panther: Wakanda Forever, Black Panther 3
-
-Tue, 28 Jul 2026 21:59:37 GMT
-
-https://www.cbr.com/michael-b-jordan-reacts-to-black-panther-actor-reveal-by-marvel/
-
-Killmonger has officially weighed in on the blockbuster Black Panther news.
----------
-
-# Matt Reeves Officially Confirms Another Major Return for The Batman 2
-
-Movies, The Batman Part II, Batman
-
-Tue, 28 Jul 2026 21:59:34 GMT
-
-https://www.cbr.com/the-batman-2-composer-michael-giacchino/
-
-Matt Reeves has confirmed that a key member of The Batman's creative team will return for the sequel.
----------
-
-# Spider-Man: Brand New Day's Number of Post-Credits Scenes Confirmed
-
-Movies, Spider-Man: Brand New Day
-
-Tue, 28 Jul 2026 21:55:55 GMT
-
-https://www.cbr.com/spider-man-brand-new-day-post-credit-scene-count/
-
-Fans have been wondering how to long stick around for after the end of Spider-Man: Brand New Day.
----------
-
-# Nathan Fillion & Alan Tudyk Finally Have a Firefly Revival Update After 4 Months
-
-TV, Firefly, Sci-Fi
-
-Tue, 28 Jul 2026 21:43:46 GMT
-
-https://www.cbr.com/firefly-animated-series-update-nathan-fillion-alan-tudyk/
-
-Nathan Fillion finally has an update for all the browncoats waiting on the Firefly revival.
----------
-
-# 8 Reasons It's Tough To Watch The Matrix Today
-
-Movies, The Matrix
-
-Tue, 28 Jul 2026 21:31:15 GMT
-
-https://www.cbr.com/reasons-why-tough-to-watch-the-matrix-list/
-
-The Matrix changed cinema forever, but reappraising the franchise in the 2020s reveals a few issues
----------
-
-# New Star Trek Directors Officially Reveal Plan to "Subvert With Respect" [Exclusive]
-
-Movie News, Star Trek, John Francis Daley, Jonathan Goldstein, SDCC
-
-Tue, 28 Jul 2026 22:30:15 GMT
-
-https://collider.com/new-star-trek-movie-subvert-expectations-jonathan-goldstein-jon-francis-daley/
-
-Jonathan Goldstein and John Francis Daley discuss their plans for a new Star Trek movie that will subvert expectations & respect the franchise's DNA.
----------
-
-# Die-Hard Harry Potter Fan Alan Ritchson Questions Timing of HBO’s Reboot Series [Exclusive]
-
-Exclusives, Harry Potter, Alan Ritchson, Reacher, SDCC
-
-Tue, 28 Jul 2026 22:00:14 GMT
-
-https://collider.com/reacher-alan-ritchson-harry-potter-series-fan-reaction/
-
-Alan Ritchson says HBO’s Harry Potter reboot is “too soon,” despite admitting he’s a lifelong fan of the Wizarding World.
----------
-
-# 10 Greatest Sci-Fi Movies of the Last Decade
-
-Movie, Sci-Fi, Science Fiction, The Vast of Night, Arrival
-
-Tue, 28 Jul 2026 21:55:15 GMT
-
-https://collider.com/best-sci-fi-movies-last-decade-ranked/
-
-Arrival, Everything Everywhere All At Once, and Project Hail Mary are all among the best science fiction movies of the last 10 years.
----------
-
-# 6 Best Psychological Thrillers Released Since 2000
-
-Movie, Psychological Thriller, Gone Girl, David Lynch, Black Swan
-
-Tue, 28 Jul 2026 21:23:14 GMT
-
-https://collider.com/best-psychological-thrillers-since-2000-ranked/
-
-Gone Girl, Black Swan, and The Prestige are all among the best psychological thriller movies released since the year 2000.
----------
-
-# Prime Video’s Streaming Sensation Action Thriller Could Run For Years
-
-Features, Ride or Die, Prime Video
-
-Tue, 28 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/ride-or-die-prime-video-multiple-seasons/
-
-Amazon Prime Video has a new action thriller series that is doing well on the streaming charts and has a premise that could work for more seasons.
----------
-
-# The 116-Minute Sci-Fi Action Epic That's Currently Making a Comeback on Streaming
-
-Movie News, Battle: Los Angeles, Hot on Streaming, Sci-Fi, Action
-
-Tue, 28 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/battle-los-angeles-scifi-action-stream-sony-july-2026/
-
-The sci-fi action flop 'Battle: Los Angeles' is a streaming success on Sony Pictures Core.
----------
-
-# Review | Olivia Wilde Wants Gen Z to Have More Sex in Her Steamy, R-Rated Movie
-
-Movie Reviews, I Want Your Sex, Olivia Wilde, Cooper Hoffman
-
-Tue, 28 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/i-want-your-sex-review-july-2026/
-
-In New Queer Cinema pioneer Gregg Araki's latest film, Cooper Hoffman co-stars as Wilde's subordinate, both in the office and in the bedroom.
----------
-
-# Jennifer Aniston to Lead 'Naughty' New Christmas Film From Olivia Wilde
-
-Movie News, Jennifer Aniston, Olivia Wilde, Peter Dinklage
-
-Tue, 28 Jul 2026 21:16:22 GMT
-
-https://movieweb.com/jennifer-aniston-olivia-wilde-peter-dinklage-naughty/
-
-Jennifer Aniston and Peter Dinklage will star in the holiday comedy, Naughty', set to open in theaters on November 5, 2026.
----------
-
-# Futurama Season 14 Brings Back An Iconic Supporting Star After 3 Years
-
-TV, Futurama
-
-Tue, 28 Jul 2026 21:02:11 GMT
-
-https://screenrant.com/futurama-season-14-nibbler-return/
-
-Fans of Futurama are in for a treat as the show's latest outing on Hulu brings back an iconic fan-favorite character after a three-year absence.
----------
-
-# 5 Ways The MCU's Ghost Rider Will Improve on Nicolas Cage's Movies
-
-Movies, Ghost Rider
-
-Tue, 28 Jul 2026 21:00:12 GMT
-
-https://screenrant.com/mcu-ghost-rider-improve-on-nicolas-cage-movies/
-
-The news that Ryan Gosling will star in a Ghost Rider movie for the MCU has fans excited that this could improve on the last Ghost Rider movies.
----------
-
-# It’s Officially The End Of An Era For Baldur’s Gate
-
-Gaming, Baldur's Gate 3, Triple-A Games, PC
-
-Tue, 28 Jul 2026 21:00:12 GMT
-
-https://screenrant.com/baldurs-gate-end-of-era-larian-involvement/
-
-The critically acclaimed release of Baldur's Gate 3 had an absolutely legendary run, but all good things must come to an end eventually.
----------
-
-# Steven Spielberg's 13-Part 'Jurassic Park Meets Westworld' Was Almost The New Lost
-
-Classic TV, Masked Recs
-
-Tue, 28 Jul 2026 20:30:11 GMT
-
-https://screenrant.com/terra-nova-steven-spielberg-almost-the-new-lost/
-
-A short-lived 2010s sci-fi brings the intrigue of Westworld to the dinosaur-flavoured action of Jurassic Park, and was truly ahead of its time.
----------
-
-# Harlan Coben’s New Netflix Thriller Series Is Officially One Of The Biggest Shows Of All-Time
-
-TV, I Will Find You, I Will Find You - Season 1
-
-Tue, 28 Jul 2026 20:28:55 GMT
-
-https://screenrant.com/harlan-coben-i-will-find-you-netflix-top-10-all-time-spot/
-
-Harlan Coben’s newest series was only just released in mid-June, but it’s already proven to be one of the most popular Netflix shows ever.
----------
-
-# The Librarians: The Next Chapter Season 2 Interview with Dean Devlin & Cast at SDCC 2026
-
-Videos, The Librarians: The Next Chapter, San Diego Comic-Con
-
-Tue, 28 Jul 2026 20:28:25 GMT
-
-https://screenrant.com/video/the-librarians-the-next-chapter-season-2-dean-devlin-cast-interview-sdcc-2026/
-
-Callum McGowan, Jessica Green, Olivia Morris, Bluey Robinson, Christian Kane, Lindy Booth & Librarians creator Dean Devlin tease character returns.
----------
-
-# It’s Officially The End Of An Era For The Best Modern Murder Mystery Franchise
-
-Movies, Masked Recs
-
-Tue, 28 Jul 2026 20:27:03 GMT
-
-https://screenrant.com/knives-out-leaving-peacock-august-2026-era-ending/
-
-August is bringing about the end of an era for the best modern murder mystery franchise as it prepares to make a change in streaming availability.
----------
-
-# Amazon's New Sci-Fi Fantasy Reboot Gets Massive Streaming Redemption After $170M Box Office Failure
-
-Movies, Masked Recs
-
-Tue, 28 Jul 2026 20:22:58 GMT
-
-https://screenrant.com/masters-of-the-universe-amazon-streaming-success-july-2026/
-
-Amazon's new sci-fi fantasy reboot receives a massive streaming redemption after bombing at the box office on a big $170 million budget.
----------
-
-# 5 Criminally Underrated Starter Pokémon Only True Trainers Appreciate
-
-Gaming, Pokemon, Triple-A Games
-
-Tue, 28 Jul 2026 20:00:11 GMT
-
-https://screenrant.com/5-criminally-underrated-starter-pokemon/
-
-There are tons of starters to pick from in every Pokémon game, also known as first partners, but some of the creatures are criminally underrated.
 ---------
