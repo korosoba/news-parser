@@ -1,3 +1,322 @@
+# It's Confirmed: Luke And Leia Are Returning For Epic New Star Wars Story In 2027
+
+Star Wars
+
+Thu, 30 Jul 2026 22:45:12 GMT
+
+https://screenrant.com/star-wars-luke-leia-return-twin-crossroads-2027/
+
+Luke and Leia officially return in 2027's next Star Wars installment, which will explore an untold chapter in the Skywalker family's history.
+---------
+
+# 6 Game Of Thrones Characters Who Get Worse & Worse
+
+Streaming TV, Game of Thrones, Game Of Thrones
+
+Thu, 30 Jul 2026 22:30:11 GMT
+
+https://screenrant.com/game-of-thrones-characters-get-worse/
+
+Game of Thrones is notorious for its rocky narrative trajectory, but no arcs feel as downhill as those of these formerly great characters.
+---------
+
+# 3 Batman Villains Who Got More Terrifying Over Time & 3 Who Mellowed
+
+Comics, Batman
+
+Thu, 30 Jul 2026 22:30:11 GMT
+
+https://screenrant.com/batman-best-villains-who-got-scarier/
+
+Batman's foes are iconic, but not static.
+---------
+
+# A24's New Biopic Movie Debuts With Near-Perfect Rotten Tomatoes Score
+
+Movies, Tony
+
+Thu, 30 Jul 2026 22:08:18 GMT
+
+https://screenrant.com/a24-tony-movie-rotten-tomatoes-score-near-perfect/
+
+A24 has seen major box office and awards show success over the years, and now the production company is set to release a critically acclaimed biopic.
+---------
+
+# Netflix's 12-Part Zombie Series With High Rotten Tomatoes Score Is The Perfect Weekend Binge
+
+TV, Masked Recs
+
+Thu, 30 Jul 2026 22:04:58 GMT
+
+https://screenrant.com/all-of-us-are-dead-netflix-series-must-watch/
+
+Netflix's 12-part zombie series that has already been renewed for season 2 is intense, dark, and gruesome, making for an epic weekend binge.
+---------
+
+# Casting Meryl For A Live-Action Metal Gear Solid Movie: 7 Perfect Actors
+
+Movies, Metal Gear
+
+Thu, 30 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/metal-gear-solid-movie-meryl-casting-actors/
+
+The live-action Metal Gear movie is back on, and assuming it actually makes it to wider casting this time, we will need to find a Meryl Silverburgh.
+---------
+
+# 10 Biggest Marvel Villains Who Can Fill The Void Left By Thanos
+
+Comics, Marvel, Thanos
+
+Thu, 30 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/marvel-villains-replace-thanos/
+
+Thanos had an amazing run, but the franchise needs a new villain just as capable, and these formidable antagonists definitely have what it takes.
+---------
+
+# 10 Episodes Of Law & Order: SVU That Aged Like Fine Wine
+
+Network TV, Law & Order: Special Victims Unit
+
+Thu, 30 Jul 2026 21:45:11 GMT
+
+https://screenrant.com/law-order-svu-episodes-aged-like-fine-wine/
+
+Revisit these classic Law & Order: SVU episodes that have stood the test of time, offering gripping narratives and exceptional guest performances.
+---------
+
+# Taylor Sheridan's Lioness Stars Address Show's Fate Ahead of Season 3
+
+TV, Lioness
+
+Thu, 30 Jul 2026 22:43:29 GMT
+
+https://www.cbr.com/taylor-sheridan-lioness-season-4-plans-confirmed/
+
+The future of Lioness on Paramount+ gets a big update from the show's stars just days ahead of its Season 3 premiere.
+---------
+
+# Anne Hathaway's 119-Minute Disney Sequel Audiences Loved Hits No. 1 on Hulu After Just 1 Day
+
+Movies, The Devil Wears Prada 2
+
+Thu, 30 Jul 2026 22:30:14 GMT
+
+https://www.cbr.com/the-devil-wears-prada-2-comedy-success-hulu-july-2026/
+
+One of the hottest sequels of the year is officially a streaming sensation just one day after making its way onto the platform.
+---------
+
+# Netflix's Hit 5-Season Adventure Says Goodbye in Final Season Trailer 1 Month Ahead of Return
+
+TV, Outer Banks, Netflix, Adventure
+
+Thu, 30 Jul 2026 22:17:33 GMT
+
+https://www.cbr.com/outer-banks-season-5-traier/
+
+The final trailer for the final season of Netflix's hit adventure drama series has arrived, and the end of Outer Banks promises to be unforgettable.
+---------
+
+# 10 Greatest Anime Glow Ups Of All Time
+
+Anime, Solo Leveling, One Piece, Horimiya
+
+Thu, 30 Jul 2026 22:15:15 GMT
+
+https://www.cbr.com/greatest-anime-glow-ups-all-time/
+
+Physical glow-ups carry so much importance in anime spaces because they signal power, confidence or maturity in an instantly readable way.
+---------
+
+# Glen Powell's Audience-Loved 6-Part Hulu Series Returns With New Episodes in Just 1 Month
+
+TV, Chad Powers, Hulu, Glen Powell
+
+Thu, 30 Jul 2026 22:10:38 GMT
+
+https://www.cbr.com/chad-powers-glen-powell-hulu-season-2-premiere-date/
+
+Chad Powers, Hulu's sports comedy starring Glen Powell, returns on Sep. 3
+---------
+
+# Spider-Man Writer J. Michael Straczynski Praises Brand New Day's 'Authentic' Feel
+
+Comics, Spider-Man, marvel studios, Marvel Comics
+
+Thu, 30 Jul 2026 22:00:14 GMT
+
+https://www.cbr.com/j-michael-straczynski-praises-spider-man-brand-new-day/
+
+The writer weighs in via his socials and gives the new feature, Spider-Man: Brand New Day, his full support.
+---------
+
+# Rick & Morty Makes a Big HBO Comeback 2 Months After Ending
+
+TV, Rick and Morty, HBO Max
+
+Thu, 30 Jul 2026 22:00:14 GMT
+
+https://www.cbr.com/rick-and-morty-sci-fi-scucesss-hbo-max-july-2026/
+
+The biggest animated sitcom sensation of the century is taking over the streaming charts just  months after its latest finale.
+---------
+
+# The MCU Phase 6 Breaks the Marvel Formula
+
+Movies, Marvel Cinematic Universe, marvel studios
+
+Thu, 30 Jul 2026 22:00:14 GMT
+
+https://www.cbr.com/mcu-phase-6-breaks-marvel-formula/
+
+Marvel Studios has announced new movies for the MCU's future, and their expected release dates confirm important lessons have been learned.
+---------
+
+# After 1 Week, Big Bang Theory’s New Sci-Fi Spinoff Is 1 of the Most Streamed Shows in the World
+
+TV, Stuart Fails to Save the Universe, HBO Max, The Big Bang Theory
+
+Thu, 30 Jul 2026 21:45:21 GMT
+
+https://www.cbr.com/stuart-fails-to-save-the-universe-sci-fi-success-hbo-max-july-2026/
+
+Just a week after premiering, Stuart Fails to Save the Universe is topping the streaming charts across the globe.
+---------
+
+# Jackie Chan Officially Returns for Sequel to His Best Action Movie of the Decade
+
+Movies, Jackie Chan, Action
+
+Thu, 30 Jul 2026 21:40:30 GMT
+
+https://www.cbr.com/jackie-chan-the-shadows-edge-2/
+
+One of the best action movies of the decade is officially getting the pulse-pounding follow-up it deserves, and Jackie Chan is returning for the ride.
+---------
+
+# 7 Years Later, ‘Game of Thrones’ Officially Revives an Overlooked Character for 2026 Return
+
+Movie News, Game Of Thrones, House of the Dragon, A Knight Of The Seven Kingdoms, George R.R. Martin
+
+Thu, 30 Jul 2026 22:55:40 GMT
+
+https://collider.com/game-of-thrones-legends-new-season-jorah-mormont-return/
+
+A surprise Game of Thrones project that's out now officially resurrects Jorah Mormont, one of the most beloved Westerosi knights.
+---------
+
+# Forget 'Masters of the Universe,' This James Cameron Thriller Has the Best Action on Streaming
+
+Movie Features, Alita: Battle Angel, James Cameron, Sci-Fi, Christoph Waltz
+
+Thu, 30 Jul 2026 22:34:14 GMT
+
+https://collider.com/alita-battle-angel-james-cameron-action-streaming-masters-of-universe/
+
+2019's James Cameron-produced, Robert Rodriguez-directed Alita: Battle Angel may have been overlooked in theaters, but its dynamic action holds up.
+---------
+
+# Christopher Nolan Officially Beats His Own Box Office Record With ‘The Odyssey’
+
+Movie News, Oppenheimer, The Odyssey, Christopher Nolan, Box Office
+
+Thu, 30 Jul 2026 22:28:35 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-overtakes-oppenheimer-box-office-727-million/
+
+Christopher Nolan's The Odyssey has overtaken his Best Picture-winning epic, Oppenheimer, in just 13 days at the domestic box office.
+---------
+
+# ‘The Witcher’ Officially Brings Back Geralt for New 2026 Release
+
+Books and Comics News, The Witcher, Netflix, Henry Cavill, Liam Hemsworth
+
+Thu, 30 Jul 2026 22:16:25 GMT
+
+https://collider.com/netflix-the-witcher-the-last-wish-complete-collection-release-date-december-2026/
+
+Ahead of Season 5 of the hit Netflix fantasy series, The Witcher is officially returning in 2026 with a brand-new release.
+---------
+
+# 10 Underrated Comedy Movies That Can Be Called Masterpieces
+
+Movie, Comedy, Broadcast News, Defending Your Life, What We Do in the Shadows
+
+Thu, 30 Jul 2026 22:08:14 GMT
+
+https://collider.com/underrated-comedy-movies-masterpieces/
+
+Underrated movies like The Nice Guys, What We Do in the Shadows, and Broadcast News deserve to rank among the comedy genre's finest.
+---------
+
+# Taylor Sheridan Sets 2 New Movies After Leaving ‘Yellowstone’ Franchise
+
+Movie News, Taylor Sheridan, Yellowstone, Marshals, Dutton Ranch
+
+Thu, 30 Jul 2026 22:00:26 GMT
+
+https://collider.com/taylor-sheridan-movies-visalia-capture-the-flag/
+
+Yellowstone creator Taylor Sheridan returns to film writing with 2 gripping stories, Visalia and Capture the Flag, collaborating with Andrew Lauren.
+---------
+
+# Apple TV’s Best Sci-Fi Masterpiece Officially Starts Filming Season 3
+
+TV News, Severance, Ben Stiller, Apple TV, Adam Scott
+
+Thu, 30 Jul 2026 21:46:56 GMT
+
+https://collider.com/apple-tv-sci-fi-severance-season-3-filming-start-ben-stiller/
+
+Apple TV's 10/10 sci-fi secret weapon has finally begun production on Season 3, as confirmed by director Ben Stiller.
+---------
+
+# 10 Best Psychological Thriller Books of the 20th Century
+
+Books and Comics, Books, Psychological Thriller, The Silence of the Lambs, American Psycho
+
+Thu, 30 Jul 2026 21:45:14 GMT
+
+https://collider.com/best-psychological-thriller-books-20th-century-ranked/
+
+American Psycho, Strangers on a Train, and The Silence of the Lambs are all among the best psychological thriller books of the 20th century.
+---------
+
+# Netflix Sued for $105M Over Stolen Unreleased Nicolas Cage World War II Thriller
+
+Movie News, Nicolas Cage, Netflix
+
+Thu, 30 Jul 2026 22:28:52 GMT
+
+https://movieweb.com/netflix-sued-stolen-nicolas-cage-thriller/
+
+Netflix is facing a $105 million lawsuit after the alleged theft of an unreleased Nicolas Cage thriller from its Los Angeles office.
+---------
+
+# Johnny Depp's Action-Adventure Classic Dethroned by New Fantasy Epic in Just 10 Days
+
+Movie News, The Odyssey, Pirates of the Caribbean: The Curse of the Black Pearl
+
+Thu, 30 Jul 2026 22:00:12 GMT
+
+https://movieweb.com/the-odyssey-beats-pirates-of-the-caribbean-box-office/
+
+Star power is still a huge draw at the box office.
+---------
+
+# Harlan Coben's 8-Part Netflix Thriller Is Still a Perfect Weekend Binge
+
+Features, Stay Close, Harlan Coben, Netflix
+
+Thu, 30 Jul 2026 22:00:12 GMT
+
+https://movieweb.com/stay-close-netflix-thriller-binge/
+
+Harlan Coben's thriller novels have been adapted into many Netflix thrillers, and there is one TV series that is a great weekend binge.
+---------
+
 # JRR Tolkien Expert Unpacks What Went Into Making The Lord of the Rings' Most Outrageous Characters
 
 Movies, The Lord of the Rings, The Lord of the Rings: The Rings of Power, The Hobbit
@@ -5177,323 +5496,4 @@ Wed, 29 Jul 2026 15:00:16 GMT
 https://www.cbr.com/best-samurai-movies-no-one-remembers-list/
 
 Samurai movies are some of the best examples of moviemaking, but there are many films that deserve praise that modern audiences have forgotten.
----------
-
-# Star Trek: Strange New Worlds Meets Supernatural Horror in Exclusive Season 4 Clip
-
-TV, Star Trek: Strange New Worlds, Star Trek, Paramount Plus
-
-Wed, 29 Jul 2026 15:00:16 GMT
-
-https://www.cbr.com/star-trek-strange-new-worlds-season-4-episode-2-one-of-us-clip/
-
-In an exclusive clip from "The Griffin Incident," Star Trek: Strange New Worlds takes a spooky turn.
----------
-
-# 5 Anime Heroes With Powers Stronger Than Gojo Satoru
-
-Anime, Dragon Ball, One Punch Man, The Misfit of Demon Academy, Jujutsu Kaisen
-
-Wed, 29 Jul 2026 15:00:16 GMT
-
-https://www.cbr.com/anime-heroes-more-powerful-gojo-satoru/
-
-Gojo Satoru is the world's strongest sorcerer in Jujutsu Kaisen, but not even he could stand up to these five anime heroes and their tremendous power.
----------
-
-# New 106-Minute 'Jaws Meets Snakes on a Plane' Shark Horror Movie Starts Streaming Next Month
-
-Movies, MGM+, Deep Water
-
-Wed, 29 Jul 2026 15:00:16 GMT
-
-https://www.cbr.com/deep-water-shark-horror-mgm-plus-release-date/
-
-Deep Blue Sea director Renny Harlin's return to shark horror starts streaming this summer.
----------
-
-# Ramayana: Why This Epic Took Years to Make | SDCC 2026
-
-Movies, Ramayana
-
-Wed, 29 Jul 2026 14:56:00 GMT
-
-https://www.cbr.com/video/ramayana-why-this-epic-took-years-to-make-sdcc-2026/
-
-Ramayana is more than a blockbuster adaptation—it's a deeply personal journey for the filmmakers bringing one of the world's greatest epics to a new generation. At San Diego Comic-Con, they discuss the pressure of honoring a story cherished by billions while creating a cinematic experience for audiences everywhere.
----------
-
-# Jared Leto Accused of Criminal Sexual Misconduct by 4 Women as More Allegations Surface
-
-Movies, jared leto
-
-Wed, 29 Jul 2026 14:55:48 GMT
-
-https://www.cbr.com/jared-leto-accused-of-criminal-sexual-misconduct/
-
-Singer and actor Jared Leto has been hit with new allegations after years of rumors.
----------
-
-# Brandon Sanderson Officially Returns This Fall With Stormlight: War for Roshar
-
-Games, The Stormlight Archive, Brandon Sanderson
-
-Wed, 29 Jul 2026 14:50:15 GMT
-
-https://www.cbr.com/brandon-sanderson-official-new-release-stormlight-fall-2026/
-
-The next new release from Brandon Sanderson expands the Stormlight universe and will arrive this fall.
----------
-
-# 8 Greatest Fantasy TV Battles of All Time
-
-TV, Game Of Thrones, The Witcher, House of the Dragon, The Lord of the Rings: The Rings of Power
-
-Wed, 29 Jul 2026 14:31:14 GMT
-
-https://www.cbr.com/greatest-fantasy-tv-battles-list/
-
-Modern television has produced some of the most cinematic fantasy combat in shows like The Rings of Power and Game of Thrones.
----------
-
-# George R.R. Martin's New 'Game of Thrones' Prequel Debuts to Critical Acclaim
-
-TV News, Game Of Thrones, George R.R. Martin, House of the Dragon, A Knight Of The Seven Kingdoms
-
-Wed, 29 Jul 2026 15:19:57 GMT
-
-https://collider.com/george-rr-martin-game-of-thrones-the-mad-king-audience-reviews/
-
-George R.R. Martin's newest Game of Thrones prequel, The Mad King, has earned stellar reactions from audiences despite the recent cancellations.
----------
-
-# 'Batman: Caped Crusader' Season 2 Is a Gripping, More Experimental Deep Dive Into the Dark Knight | Review
-
-TV Reviews, Batman: Caped Crusader, Hamish Linklater, Bruce Timm, Prime Video
-
-Wed, 29 Jul 2026 15:00:15 GMT
-
-https://collider.com/batman-caped-crusader-season-2-review-prime-video/
-
-Batman: Caped Crusader Season 2 is a bold reinvention that retains the Dark Knight's iconic essence despite occasionally uneven storytelling.
----------
-
-# 2022 Survival Thriller That Made 7X Its Budget Returns With Vertigo-Inducing Sequel Trailer
-
-Movie News, Fall 2: Deadpoint, Fall, Thriller
-
-Wed, 29 Jul 2026 15:00:15 GMT
-
-https://collider.com/fall-2-deadpoint-trailer/
-
-Fall 2: Deadpoint unveils its vertigo-inducing first trailer as the survival thriller sequel sets a September 2026 theatrical release.
----------
-
-# Antonio Banderas’ New Shark-Infested Crime Thriller Movie Officially Releases New Look [Exclusive]
-
-Exclusives, Thriller, Antonio Banderas, Horror, Laura Marano
-
-Wed, 29 Jul 2026 15:00:15 GMT
-
-https://collider.com/antonio-banderas-shark-thriller-above-and-below-sneak-peek/
-
-A new sneak peek at the shark horror-thriller Above & Below features Antonio Banderas as a cartel kingpin preparing to kill vacationers.
----------
-
-# Marvel Officially Rewrites the Ending of Spider-Man's Greatest Story
-
-Books and Comics News, Spider-Man, Marvel Comics, Marvel
-
-Wed, 29 Jul 2026 14:00:15 GMT
-
-https://collider.com/marvel-rewrites-kravens-last-hunt-ending-spider-man/
-
-J.M. DeMatteis just rewrote the ending of Kraven's Last Hunt, and Marvel's latest What If...? is a must-read.
----------
-
-# Michael B. Jordan’s Remake of 58-Year-Old Classic Crime Thriller Officially Debuts First Trailer
-
-Movie News, The Thomas Crown Affair
-
-Wed, 29 Jul 2026 13:46:05 GMT
-
-https://collider.com/michael-b-jordan-the-thomas-crown-affair-trailer/
-
-Michael B. Jordan’s remake of the 58-year-old crime classic The Thomas Crown Affair debuts its first trailer.
----------
-
-# Marvel Brings Back James Gunn's Favorite 'Guardians of the Galaxy' Member for New Solo Adventures
-
-Books and Comics News, Guardians of the Galaxy, Marvel Comics, Rocket Raccoon, Action
-
-Wed, 29 Jul 2026 13:20:15 GMT
-
-https://collider.com/rocket-raccoon-rocket-rewind-issue-1-preview-images-marvel-comics-release/
-
-Marvel Comics has released the first issue of Rocket Raccoon: Rocket Rewind, shining the spotlight on James Gunn's favorite Guardian of the Galaxy.
----------
-
-# Russell Crowe's New Netflix True Crime Thriller Officially Debuts First Images
-
-Movie News, Russell Crowe, Shailene Woodley, Annabelle Wallis, Netflix
-
-Wed, 29 Jul 2026 13:15:30 GMT
-
-https://collider.com/russell-crowe-unabomber-images-netflix/
-
-Russell Crowe and Jacob Tremblay's new Netflix true crime thriller Unabomber debuts first images.
----------
-
-# Marvel Officially Reveals the Future of Symbiotes
-
-Books and Comics News, Venom, Spider-Man, Marvel, Tom Hardy
-
-Wed, 29 Jul 2026 13:15:14 GMT
-
-https://collider.com/marvel-venom-future-of-symbiotes/
-
-Marvel's Queen in Black #1 unveils the Symbiote Intelligence, a groundbreaking new symbiote entity
----------
-
-# Marvel Officially Reveals the Punisher’s Sinister New Villain Look
-
-Books and Comics News, Marvel Comics, Spider-Man: Brand New Day, The Punisher, Spider-Man
-
-Wed, 29 Jul 2026 13:10:15 GMT
-
-https://collider.com/spectacular-spider-man-brand-new-day-issue-3-the-punisher-preview-images-marvel-comics-release/
-
-Preview pages from the latest issue of Spectacular Spider-Man: Brand New Day see The Punisher turn to full-on villainy against Peter Parker.
----------
-
-# Robert Eggers' Next Nightmare Unveiled in Monstrous First Poster for 'Werwulf'
-
-Movie News, Werwulf, Robert Eggers, Horror
-
-Wed, 29 Jul 2026 15:20:47 GMT
-
-https://movieweb.com/robert-eggers-werwulf-poster/
-
-Focus Features has released the official teaser poster for Robert Eggers' upcoming gothic horror film 'Werwulf.'
----------
-
-# Netflix's Hit Action Adventure Series Officially Returns for One Final Season
-
-TV News, Outer Banks
-
-Wed, 29 Jul 2026 15:10:50 GMT
-
-https://movieweb.com/netflix-outer-banks-season-5-trailer/
-
-The official trailer for the final season of one of Netflix's most popular shows has arrived.
----------
-
-# 'Fall 2: Deadpoint' Unleashes Next-Level Terror in New Trailer for Survival Thriller Sequel
-
-Movie News, Fall 2: Deadpoint, Fall
-
-Wed, 29 Jul 2026 15:00:13 GMT
-
-https://movieweb.com/fall-2-deadpoint-trailer-poster/
-
-Lionsgate has released a new trailer for 'Fall 2: Deadpoint,' teasing next-level terror in the survival thriller sequel.
----------
-
-# Statham, Wahlberg, & Gibson Each Failed To Adapt the Same Character
-
-Features, Jason Statham, Mark Wahlberg, Mel Gibson
-
-Wed, 29 Jul 2026 15:00:13 GMT
-
-https://movieweb.com/jason-statham-mark-wahlberg-mel-gibson-failed-adaption/
-
-With numerous adaptations and talented actors on board, why does the character keep missing with audiences?
----------
-
-# Oscar-Winning Singer-Songwriter & 'Once' Star Glen Hansard Dies Aged 56
-
-Movie News, Once, The Commitments
-
-Wed, 29 Jul 2026 14:34:33 GMT
-
-https://movieweb.com/once-star-glen-hansard-dies-aged-56/
-
-The Dublin-born musician turned 'Once' into an Oscar-winning phenomenon.
----------
-
-# Nathan Fillion's 'The Rookie' Update Could Confirm a Major Franchise Crossover
-
-TV News, The Rookie
-
-Wed, 29 Jul 2026 14:10:08 GMT
-
-https://movieweb.com/the-rookie-north-spin-off-nathan-fillion-crossover/
-
-2027 is shaping up to be another great year for 'The Rookie' fans.
----------
-
-# 'Lord of the Rings': 8 Gandalf Quotes That Still Live Rent-Free in Our Heads
-
-Movie Lists, The Lord of the Rings: The Fellowship of the Ring, Ian McKellen
-
-Wed, 29 Jul 2026 14:00:12 GMT
-
-https://movieweb.com/lord-of-the-rings-best-gandalf-quotes/
-
-Ian McKellan's 'Lord of the Rings' character, Gandalf, is so wise and intelligent that his best quotes are still remembered.
----------
-
-# Netflix Scores Big With 100% Rated Dark Fantasy Action Masterpiece
-
-TV News, The East Palace, Netflix, Hot on Streaming, Action
-
-Wed, 29 Jul 2026 14:00:12 GMT
-
-https://movieweb.com/the-east-palace-action-netflix-tudum-stream/
-
-Netflix's new fantasy hit is even darker (and better) than 'The Witcher.'
----------
-
-# Michael B. Jordan's Slick Action Thriller Remake Officially Unleashes Its First Trailer
-
-Movie News, The Thomas Crown Affair
-
-Wed, 29 Jul 2026 13:19:39 GMT
-
-https://movieweb.com/the-thomas-crown-affair-remake-trailer/
-
-The first trailer for Amazon MGM's 'The Thomas Crown Affair' remake has been released, offering a look at Michael B. Jordan's slick heist thriller.
----------
-
-# Dungeons & Dragons Meets Stardew Valley In New RPG You Can Play Free Now
-
-Gaming, Dungeons & Dragons, Stardew Valley, PC, PlayStation 5
-
-Wed, 29 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/flamecraft-dungeons-dragons-meets-stardew-valley-free-demo/
-
-Dungeons & Dragons fans looking for a cozy break should absolutely try this free D&amp;D meets Stardew Valley RPG.
----------
-
-# Every Movie Releasing In Theaters In August 2026
-
-Movies
-
-Wed, 29 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/august-2026-movies-theaters-release-dates/
-
-August 2026 is bringing a variety of movies to theaters, such as Eli Roth's latest horror movie, a long-awaited comedy, a biographical drama, & more.
----------
-
-# A Walking Dead Character Only Exists In Negan's Mind, According To This Theory
-
-Streaming TV, Masked Recs
-
-Wed, 29 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/the-walking-dead-city-negan-dillard-not-real/
-
-Negan immediately hit it off with The Walking Dead's strange new survivor, but one theory suggests this character may be a figment of his imagination.
 ---------
