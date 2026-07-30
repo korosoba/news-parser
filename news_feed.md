@@ -1,3 +1,355 @@
+# Taylor Sheridan's Lioness Season 4 Fate Seemingly Confirmed Ahead Of 2026 Return
+
+TV, Lioness, Taylor Sheridan, Paramount Plus
+
+Thu, 30 Jul 2026 17:11:30 GMT
+
+https://screenrant.com/taylor-sheridan-lioness-season-4-fate-update-de-oliveira-wagner/
+
+Exclusive: The fate of Taylor Sheridan's Lioness season 4 has seemingly been confirmed by two stars ahead of the show's return in August.
+---------
+
+# DC Studios' First Bane Gets New Details From Star
+
+Movies, Masked Recs, Batman, DC Universe
+
+Thu, 30 Jul 2026 17:04:55 GMT
+
+https://screenrant.com/batman-knightfall-bane-first-details-michael-mando/
+
+DC Studios is set to bring Bane into one of its highly anticipated Batman projects, as the actor finally shares new details on the villain's 2026 arc.
+---------
+
+# YouTube's Biggest Failure Gave Netflix One Of Its Greatest Shows Ever
+
+Classic TV, Masked Recs
+
+Thu, 30 Jul 2026 17:00:11 GMT
+
+https://screenrant.com/cobra-kai-youtube-failure-netflix-success/
+
+YouTube had a great franchise in its hands but gave it up to Netflix, ensuring that the series would become one of the streamer's greatest franchises.
+---------
+
+# 10 Harsh Realities Of Playing Zelda: Ocarina Of Time In 2026
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda, Triple-A Games
+
+Thu, 30 Jul 2026 17:00:11 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-harsh-realities/
+
+The Legend of Zelda: Ocarina of Time is undoubtedly one of the best games ever made, but well after its debut in 1998, it's starting to show its age.
+---------
+
+# 10 Best New Movies Coming To Netflix In August 2026
+
+Movies, Netflix
+
+Thu, 30 Jul 2026 16:45:12 GMT
+
+https://screenrant.com/netflix-best-new-movies-august-2026/
+
+It's a new month and that means a fresh batch of movies are coming to Netflix in the coming weeks. These are the flicks you can't miss this August.
+---------
+
+# Mike Flanagan Gives Glowing Review To AMC's Hit Horror Series Already Renewed For Season 4
+
+TV, Interview with the Vampire, Mike Flanagan
+
+Thu, 30 Jul 2026 16:38:48 GMT
+
+https://screenrant.com/mike-flanagan-interview-with-the-vampire-praise/
+
+A hit horror series recently ended its third season on AMC, and Mike Flanagan can’t wait to see what happens next following its season 4 renewal.
+---------
+
+# Hugh Jackman's New Record-Breaking R-Rated Thriller Is Conquering Streaming After Just 2 Days
+
+Movies, Masked Recs
+
+Thu, 30 Jul 2026 16:30:10 GMT
+
+https://screenrant.com/hugh-jackman-death-of-robin-hood-pvod-streaming-success-july-2026/
+
+Hugh Jackman's new R-rated thriller is officially one of the biggest movies in the world, conquering streaming thanks to its mature story.
+---------
+
+# Apple TV’s Trending New Crime Thriller Series Is One Of Its Most Ambitious
+
+Streaming TV, Masked Recs
+
+Thu, 30 Jul 2026 16:30:11 GMT
+
+https://screenrant.com/lucky-apple-tv-most-ambitious-crime-thriller/
+
+Apple TV's new crime thriller series is an awe-inspiring, cinematic spectacle — and the star-studded, trending show is just three episodes in.
+---------
+
+# Pokémon Legends: Z-A: Best Team Comps For Every Starter
+
+Gaming, Pokemon Legends Z-A, Pokemon, Triple-A Games
+
+Thu, 30 Jul 2026 16:21:51 GMT
+
+https://screenrant.com/pokmon-legends-z-a-best-team-comps-for-every-starter/
+
+As battles get harder and harder in Pokémon Legends: Z-A, you'll want the right team with your starter to overcome tough match-ups from strong rivals.
+---------
+
+# Matthew Lillard’s New 104-Minute Supernatural Adaptation Releases On Netflix Next Week
+
+Movies, Masked Recs, Netflix
+
+Thu, 30 Jul 2026 16:18:04 GMT
+
+https://screenrant.com/five-nights-at-freddys-2-netflix-streaming-release-date/
+
+Twin Peaks: The Return star Matthew Lillard's new supernatural horror film based on popular IP is getting a new streaming home on Netflix.
+---------
+
+# Breath of the Wild Meets Genshin Impact in New Open-World RPG
+
+Games, Genshin Impact, The Legend of Zelda, RPG, Video Games
+
+Thu, 30 Jul 2026 17:15:15 GMT
+
+https://www.cbr.com/breath-of-the-wild-meets-genshin-impact-dragonsword-awakening/
+
+Hound13 Inc.'s DragonSword: Awakening is the hottest new action role-playing and open-world game of the year.
+---------
+
+# The Original Masters of the Universe Movie Officially Returns to Streaming After Reboot Bombs
+
+Movies, Masters of the Universe, MGM+
+
+Thu, 30 Jul 2026 17:01:15 GMT
+
+https://www.cbr.com/masters-of-the-universe-1987-movie-streaming-mgm-plus-august-2026/
+
+The original Masters of the Universe movie is back on streaming.
+---------
+
+# Eternally Yours Stars Pick Team Edward | SDCC 2026
+
+Movies, Eternally Yours
+
+Thu, 30 Jul 2026 16:30:17 GMT
+
+https://www.cbr.com/video/eternally-yours-stars-pick-team-edward-sdcc-2026/
+
+Eternally Yours stars Ed Weeks, Allegra Edwards, Jaren Lewison, Helen J Shen, and Parker Young break down CBS' hilarious new vampire sitcom at SDCC 2026.The cast discusses what inspired the show's unique blend of supernatural comedy and classic sitcom vibes, why Rose Abdoo steals every scene, and how Eternally Yours puts a fresh spin on vampire lore. They also debate Team Edward vs. Team Jacob, imagine which characters would become social media influencers, share behind-the-scenes audition stories, and reveal what fake blood actually tastes like. If you're looking for a new vampire comedy with heart, this cast interview has plenty to sink your teeth into.
+---------
+
+# Paramount+ Revives 1 of the Best '90s Cult Comedy Classics Ever With New Event Series
+
+TV, Clueless, Paramount Plus, Comedy
+
+Thu, 30 Jul 2026 16:25:35 GMT
+
+https://www.cbr.com/clueless-sequel-series-paramount-plus-alicia-silverstone/
+
+Alicia Silverstone is returning for a new Clueless sequel, but there's a catch.
+---------
+
+# 5 Anime Transformations Way Stronger Than Ultra Instinct
+
+Anime, Dragon Ball
+
+Thu, 30 Jul 2026 16:15:15 GMT
+
+https://www.cbr.com/anime-transformations-stronger-than-ultra-instinct/
+
+Dragon Ball's Ultra Instinct lets a fighter's body move and counter without any thought, reacting to danger faster than the mind can even register it.
+---------
+
+# Marvel Officially Confirms Deadpool Webtoon With An Isekai Title
+
+Comics, Deadpool, webtoon
+
+Thu, 30 Jul 2026 16:00:16 GMT
+
+https://www.cbr.com/marvel-that-time-deadpool-fell-into-webtoon-confirmed/
+
+The title of this Deadpool WEBTOON is perfectly on brand.
+---------
+
+# It's Official: Luke and Leia Return to Star Wars In 2027
+
+Movies, Star Wars, Sci-Fi
+
+Thu, 30 Jul 2026 16:00:16 GMT
+
+https://www.cbr.com/star-wars-twin-crossroads-luke-leia/
+
+A new Star Wars story will explore a previously overlooked chapter in Luke and Leia's lives.
+---------
+
+# Overhated & Underrated: Werewolf by Night Deserves More Love from Fans
+
+Movies, Werewolf by Night
+
+Thu, 30 Jul 2026 16:00:16 GMT
+
+https://www.cbr.com/overhated-underrated-mcu-werewolf-by-night/
+
+An MCU Ghost Rider movie was announced at SDCC, but this underrated Marvel project deserves more love first.
+---------
+
+# Everything We Know About Widow's Bay Season 2
+
+TV, Widow's Bay, Apple TV, Horror
+
+Thu, 30 Jul 2026 16:00:16 GMT
+
+https://www.cbr.com/widows-bay-season-2-release-date-cast/
+
+Widow's Bay is one of the biggest shows of 2026, and it's coming back for a second Season 2 so much more of the story to explore.
+---------
+
+# Christopher Nolan Admits He's "Terrified" of Rom-Coms
+
+Movie News, The Odyssey, Christopher Nolan, romcom, romantic comedies
+
+Thu, 30 Jul 2026 17:15:15 GMT
+
+https://collider.com/christopher-nolan-romantic-comedy-comments/
+
+As The Odyssey proves itself as one of 2026's biggest hits, director Christopher Nolan reveals the one film genre he's absolutely "terrified" of.
+---------
+
+# Prime Video’s 'Batman: Caped Crusader' Officially Reveals New Look at Batman and Harley Quinn’s Team-Up [Exclusive]
+
+TV News, Batman: Caped Crusader, Prime Video, Jamie Chung, Hamish Linklater
+
+Thu, 30 Jul 2026 17:01:15 GMT
+
+https://collider.com/batman-caped-crusader-season-2-images-harley-quinn/
+
+New images from Batman: Caped Crusader Season 2 tease a potential team-up between Bruce Wayne and Harley Quinn. Check them out here.
+---------
+
+# ‘Super Troopers 3’ Is Officially Broken Lizard’s Most Ambitious Project in 37 Years
+
+Exclusives, Super Troopers 3, Super Troopers, Comic-Con, SDCC
+
+Thu, 30 Jul 2026 16:47:06 GMT
+
+https://collider.com/super-troopers-3-cast-most-ambitious-r-rated-movie-broken-lizard/
+
+Broken Lizard explains why Super Troopers 3 pushed into new territory for the comedy troupe and why it deserves to be seen on the big screen.
+---------
+
+# Paramount+ Officially Saves Cancelled ‘90s Reboot Series
+
+TV News, Clueless, Alicia Silverstone, Paramount Plus, Josh Schwartz
+
+Thu, 30 Jul 2026 16:27:23 GMT
+
+https://collider.com/clueless-sequel-series-saved-paramount-plus-alicia-silverstone-returning/
+
+After Peacock said "As if" to Alicia Silverstone's cancelled Clueless reboot, the sequel series has been saved and is making a move to Paramount+.
+---------
+
+# 10 Most Subversive Sci-Fi Movies of All Time
+
+Movie, Sci-Fi, Starship Troopers, A Clockwork Orange, The Matrix
+
+Thu, 30 Jul 2026 16:21:15 GMT
+
+https://collider.com/most-subversive-sci-fi-movies-ranked/
+
+A Clockwork Orange, Starship Troopers, and The Matrix are all among the most subversive movies ever in the science fiction genre.
+---------
+
+# 15 Years Later, Ryan Gosling’s Most Underrated Crime Thriller Gets Official New Anniversary Release [Exclusive]
+
+Movie News, Drive, Ryan Gosling, Nicolas Winding Refn, Bryan Cranston
+
+Thu, 30 Jul 2026 16:00:16 GMT
+
+https://collider.com/ryan-gosling-drive-15th-anniversary-vinyl-release/
+
+Lakeshore Records has announced a new anniversary record release to celebrate 15 years of Ryan Gosling's crime thriller, Drive.
+---------
+
+# Ridley Scott's Blade Runner Series Is Already Doing What the Franchise Needs Most
+
+TV Features, Blade Runner 2099, Ridley Scott, Hunter Schafer, Michelle Yeoh
+
+Thu, 30 Jul 2026 15:49:15 GMT
+
+https://collider.com/blade-runner-2099-miniseries-franchise-ridley-scott-prime-video/
+
+Blade Runner 2099's miniseries structure is the best decision for the beloved sci-fi franchise, ensuring a satisfying conclusion.
+---------
+
+# Jason Statham's 116-Minute Action Thriller Remains a Global Hit on Streaming
+
+Movie News, Jason Statham, A Working Man, Hot on Streaming, Action, Prime Video
+
+Thu, 30 Jul 2026 17:00:12 GMT
+
+https://movieweb.com/jason-statham-a-working-man-action-streaming-prime-video-july-2026/
+
+Ahead of Jason Statham's 'Mutiny,' one of his best action thrillers continues to be a force to be reckoned with on streaming.
+---------
+
+# 10 Best Wordless 'The Far Side' Comics
+
+Movie Lists, The Far Side
+
+Thu, 30 Jul 2026 17:00:12 GMT
+
+https://movieweb.com/far-side-best-wordless/
+
+Larson could make his readers laugh without using a single word: these ten strips prove just that.
+---------
+
+# 'The Odyssey' Sparks War Between Experts as Acclaimed Writer Slams Recent Criticism of Nolan's Epic
+
+Movie News, The Odyssey, Christopher Nolan, Joyce Carol Oates: A Body in the Service of Mind, Matt Damon
+
+Thu, 30 Jul 2026 16:26:45 GMT
+
+https://movieweb.com/joyce-carol-oates-slams-the-odyssey-criticism/
+
+The author takes aim at Emily Wilson's scathing review of Nolan's adaptation.
+---------
+
+# This Georgie & Mandy Episode Finally Put the Age Gap Issue to Bed
+
+Features, Georgie & Mandy's First Marriage
+
+Thu, 30 Jul 2026 16:02:50 GMT
+
+https://movieweb.com/georgie-mandy-age-gap-solved/
+
+Georgie is more than a decade younger than Mandy in Georgie & Mandy's First Marriage, and still a teen. But this episode proves it doesn't matter.
+---------
+
+# Netflix Locks in $500M 'Walking Dead' Streaming Future Until 2032
+
+TV News, The Walking Dead
+
+Thu, 30 Jul 2026 16:00:19 GMT
+
+https://movieweb.com/netflix-walking-dead-streaming-deal/
+
+Starting in 2027, Netflix will be the home to The Walking Dead and its six spin-off series.
+---------
+
+# 7 Mind-Blowing Thriller Movies You Can Stream on Netflix This Weekend
+
+Movie Lists, Netflix, Thriller
+
+Thu, 30 Jul 2026 16:00:13 GMT
+
+https://movieweb.com/thriller-movies-netflix-weekend/
+
+Netflix has many entertaining thriller movies, and these are the best ones that you can watch this weekend.
+---------
+
 # We're Officially 1 Year Away From A Quiet Place 3
 
 Movies, A Quiet Place Part III, A Quiet Place
@@ -5144,356 +5496,4 @@ Wed, 29 Jul 2026 01:43:14 GMT
 https://collider.com/best-fantasy-books-masterpieces/
 
 Why do A Game of Thrones and The Name of the Wind still define fantasy? These book masterpieces prove greatness never ages.
----------
-
-# 'The Odyssey's Most Chilling Scene Proves Christopher Nolan Is Ready to Make a Horror Movie
-
-Movie Features, The Odyssey, Christopher Nolan, Horror, Matt Damon
-
-Wed, 29 Jul 2026 01:43:09 GMT
-
-https://collider.com/the-odyssey-circe-christopher-nolan-horror-movie/
-
-Christopher Nolan has repeatedly mentioned an interest in someday directing horror, but several moments in The Odyssey show he's already there.
----------
-
-# 10 HBO Shows That Are 10/10, No Notes
-
-TV, HBO, Band of Brothers, Angels in America, Generation Kill
-
-Wed, 29 Jul 2026 01:22:14 GMT
-
-https://collider.com/hbo-shows-perfect-no-notes/
-
-Discover HBO's most acclaimed series that have redefined television and left a lasting impact on the medium, from The Sopranos to Succession.
----------
-
-# This Sci-Fi Author is Making the Best 'Star Trek' Content (That isn't 'Star Trek')
-
-Movie Features, The Martian, Project Hail Mary, Andy Weir, Star Trek
-
-Wed, 29 Jul 2026 01:12:14 GMT
-
-https://collider.com/andy-weir-project-hail-mary-author-books-star-trek/
-
-Project Hail Mary author Andy Weir's books aren't connected to the Star Trek franchise, but they hold the values and vision of the classic series.
----------
-
-# Jumanji Officially Returns to the Real World in First Trailer for Final Movie
-
-Movie News, Jumanji: Open World, Jumanji, Dwayne Johnson, Karen Gillan
-
-Wed, 29 Jul 2026 01:00:36 GMT
-
-https://collider.com/jumanji-open-world-trailer-dwayne-johnson/
-
-Dwayne Johnson's Jumanji franchise returns for the reportedly final time in the first official trailer for Open World. See it here!
----------
-
-# 7 Greatest Miniseries of 2026 So Far, Ranked
-
-TV, TV Miniseries, Bait, The Boroughs, Spider-Noir
-
-Wed, 29 Jul 2026 00:55:14 GMT
-
-https://collider.com/best-miniseries-2026-ranked/
-
-From Half Man to DTF St. Louis, Lord of the Flies to Spider-Noir, here are the best miniseries of 2026 so far.
----------
-
-# 20 Greatest Video Games of the 20th Century
-
-Gaming, Video Game, GoldenEye 007 Remake, The Legend of Zelda, Super Mario Bros.
-
-Wed, 29 Jul 2026 00:32:14 GMT
-
-https://collider.com/best-video-games-20th-century-ranked/
-
-GoldenEye 007, Pokémon Red and Blue, and The Legend of Zelda: Ocarina of Time are among the greatest video games released in the 20th century.
----------
-
-# 10 Animated Shows Without a Single Flaw
-
-TV, Animation, Avatar: The Last Airbender, Adventure Time, Gravity Falls
-
-Wed, 29 Jul 2026 00:11:14 GMT
-
-https://collider.com/animated-shows-without-flaws/
-
-There are precious few animated shows that we can confidently say have absolutely no flaws, from Avatar: The Last Airbender to Adventure Time.
----------
-
-# 'Jumanji' Officially Returns in Action-Packed Trailer for Final Adventure
-
-Movie News, Jumanji: Open World
-
-Wed, 29 Jul 2026 01:08:41 GMT
-
-https://movieweb.com/jumanji-open-world-first-trailer/
-
-Sony Pictures released the first official trailer for the final movie in the 'Jumanji' franchise, 'Jumanji: Open World.'
----------
-
-# Netflix's Smash-Hit 'Ransom Canyon' Is a 10/10 Binge-Watch
-
-Features, Ransom Canyon
-
-Wed, 29 Jul 2026 01:00:26 GMT
-
-https://movieweb.com/netflix-ransom-canyon-binge-watch/
-
-While Taylor Sheridan might still be the king of the neo-Western, Netflix brought a challenger to life with a smash-hit show made for binge-watching.
----------
-
-# Netflix's 8-Part Harlan Coben Thriller Officially Crosses a Streaming Milestone
-
-TV News, I Will Find You, Netflix
-
-Wed, 29 Jul 2026 00:43:02 GMT
-
-https://movieweb.com/i-will-find-you-netflix-all-time-top-10-streaming/
-
-'I Will Find You' has cracked the all-time top 10 of English-language series on the streamer in only six weeks.
----------
-
-# Every DC Character Confirmed For Superman Sequel Man Of Tomorrow (So Far)
-
-Superheroes, Man of Tomorrow, DC Universe
-
-Tue, 28 Jul 2026 23:40:11 GMT
-
-https://screenrant.com/every-dc-character-confirmed-for-superman-sequel-man-of-tomorrow/
-
-DC Studios' Man of Tomorrow may still be a year away, but the Superman sequel already has an impressive cast of confirmed characters.
----------
-
-# 9 Action Anime That Will Hook Fans From The Very First Fight
-
-Anime
-
-Tue, 28 Jul 2026 23:30:11 GMT
-
-https://screenrant.com/action-anime-hook-fans-first-fight/
-
-While some great action anime might take a while to get going, these standout series feature riveting battles from the start.
----------
-
-# One Of The Best Sci-Fi Movies Of All Time Leaves Netflix In 4 Days
-
-Movies, Masked Recs
-
-Tue, 28 Jul 2026 23:23:56 GMT
-
-https://screenrant.com/netflix-ex-machina-sci-fi-movie-leaving-august-2026/
-
-Netflix subscribers have one last chance to watch what is one of the best Sci-Fi movies of all time before it leaves the streaming service this week.
----------
-
-# How Little Free Libraries Are Proving There Is Hope For Humanity
-
-Books
-
-Tue, 28 Jul 2026 23:13:38 GMT
-
-https://screenrant.com/little-free-library-book-trend-hope-literacy-community-expained/
-
-Things might not be great right now, but one popular worldwide book trend is quietly providing that there's still hope for humanity.
----------
-
-# Silent Hill Meets Stranger Things In This New First-Person Horror
-
-Gaming, Silent Hill, Indie Games, PC
-
-Tue, 28 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/black-lake-silent-hill-meets-stranger-things/
-
-Horror fans have been feasting in recent years, but this upcoming release is the perfect dessert to satisfy your cosmic horror cravings.
----------
-
-# Netflix's New Fantasy Movie With 13.6B Minutes Viewed Hits Another Massive Streaming Milestone
-
-Movies, Masked Recs
-
-Tue, 28 Jul 2026 22:59:06 GMT
-
-https://screenrant.com/netflix-swapped-movie-no-8-all-time-top-10/
-
-Netflix's new fantasy movie, with 13.6 billion minutes viewed, hits another massive streaming milestone following its release this past May.
----------
-
-# Crunchyroll Drops 20 Exclusive Demon Slayer: Infinity Castle Designs for Fans to Unlock
-
-Anime, Demon Slayer: Kimetsu no Yaiba, Demon Slayer: Kimetsu no Yaiba Infinity Castle, Crunchyroll
-
-Tue, 28 Jul 2026 23:05:14 GMT
-
-https://www.cbr.com/demon-slayer-infinity-castle-crunchyroll-new-profile-avatar-release/
-
-Demon Slayer: Infinity Castle finally arrives on streaming a year after its theatrical debut, and Crunchyroll is celebrating with its own new release.
----------
-
-# 5 Most Ambitious Movies Of the 21st Century, Ranked
-
-Movies, Sci-Fi, Megalopolis
-
-Tue, 28 Jul 2026 23:01:14 GMT
-
-https://www.cbr.com/most-ambitious-movies-21st-century-list/
-
-The 21st century has seen some of Hollywood’s strongest directors turn in one visionary and ambitious movie after another, all to varying outcomes.
----------
-
-# 'House of the Dragon' Officially Confirms a Major 'Game of Thrones' Daenerys Theory
-
-TV Features, House of the Dragon, Game Of Thrones, HBO Max, A Song of Ice and Fire
-
-Tue, 28 Jul 2026 23:48:28 GMT
-
-https://collider.com/house-of-the-dragon-game-of-thrones-daenerys-harrenhal-egg/
-
-House of the Dragon reveals the surprising origin of Daenerys' dragon eggs, confirming a Game of Thrones theory.
----------
-
-# Apple TV's 'Silo' Just Proved Every Streamer Has Been Doing This Wrong
-
-TV Features, Silo, Apple TV, Rebecca Ferguson, Graham Yost
-
-Tue, 28 Jul 2026 23:29:14 GMT
-
-https://collider.com/apple-tv-silo-season-4-time-between-seasons-opinion/
-
-Apple TV renewed Silo early, leaving less time between seasons. This is an underrated way streamers can make better shows and retain subscribers.
----------
-
-# Prime Video’s New #1 Action Thriller Series Is Too Good To Miss for ‘Reacher’ Fans
-
-TV Features, Prime Video, Octavia Spencer, Hannah Waddingham, Ride or Die
-
-Tue, 28 Jul 2026 23:18:14 GMT
-
-https://collider.com/ride-or-die-prime-video-action-thriller-perfect-for-reacher-fans/
-
-Prime Video's new #1 series, Ride or Die, features Hannah Waddingham and Octavia Spencer as an unlikely action duo.
----------
-
-# Forget ‘Blade Runner,’ Netflix’s 2-Season Sci-Fi Masterpiece Changed the Genre Forever
-
-TV Features, Netflix, Altered Carbon, Anthony Mackie, Sci-Fi
-
-Tue, 28 Jul 2026 22:46:14 GMT
-
-https://collider.com/netflix-blade-runner-best-sci-fi-replacement-series-altered-carbon/
-
-Netflix’s Altered Carbon pushed cyberpunk further than Blade Runner across two ambitious seasons.
----------
-
-# Anna Kendrick's New Action Thriller Officially Sets Streaming Premiere Date
-
-TV News, Anna Kendrick
-
-Tue, 28 Jul 2026 23:51:49 GMT
-
-https://movieweb.com/anna-kendrick-embassy-mgm-release-date/
-
-The actor's new six-part series 'Embassy' has been picked up by MGM+.
----------
-
-# Michael B. Jordan's Crime Thriller Remake First Look Officially Debuts
-
-Movie News, The Thomas Crown Affair, Michael B. Jordan
-
-Tue, 28 Jul 2026 23:31:06 GMT
-
-https://movieweb.com/michael-b-jordan-thomas-crown-affair-remake-poster/
-
-The first official look at 'The Thomas Crown Affair' dropped on social media.
----------
-
-# Henry Cavill's New 98-Minute Action Thriller Debuts With New Release
-
-Movie News, In the Grey, Henry Cavill, Guy Ritchie, Jake Gyllenhaal
-
-Tue, 28 Jul 2026 23:25:11 GMT
-
-https://movieweb.com/henry-cavill-in-the-grey-guy-ritchie-blu-ray-release/
-
-'In the Grey' is out now on Blu-ray, allowing even more opportunities to catch up on the picture.
----------
-
-# 5 Times Star Wars Went Full Cosmic Horror
-
-Comics, Star Wars
-
-Tue, 28 Jul 2026 22:30:12 GMT
-
-https://screenrant.com/star-wars-best-villains-cosmic-horror/
-
-Star Wars has been a staple of the sci-fi genre since its debut, but sometimes the space adventures pale in comparison to its gore.
----------
-
-# Every Halo Game, Ranked Worst To Best
-
-Game Features, PC, Xbox Series X/S, Halo
-
-Tue, 28 Jul 2026 22:30:12 GMT
-
-https://screenrant.com/halo-all-games-ranked-worst-best/
-
-The Halo series has been an Xbox mainstay since 2001, but which of Master Chief's adventures are the best and which ones can be skipped?
----------
-
-# 6 Iconic PS2 Games That Changed Gaming Forever
-
-Gaming, PlayStation 2, PlayStation, Sony, PC
-
-Tue, 28 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/6-iconic-ps2-games-changed-gaming-forever/
-
-The PlayStation 2 easily had the most influential and iconic titles of all time, with some changing the gaming landscape forever.
----------
-
-# Jack Ryan Meets Jason Bourne In Netflix's 3-Part Espionage Thriller
-
-TV, Masked Recs
-
-Tue, 28 Jul 2026 21:59:11 GMT
-
-https://screenrant.com/the-night-agent-netflix-jack-ryan-meets-jason-bourne/
-
-Blending Jack Ryan's everyman hero with the urgency and brutality of the Jason Bourne movies, this Netflix spy series is an unmissable action hit.
----------
-
-# What TARDIS Stands For In Doctor Who
-
-Classic TV, Doctor Who
-
-Tue, 28 Jul 2026 21:45:11 GMT
-
-https://screenrant.com/doctor-who-tardis-meaning-explained/
-
-One of the most famous elements of Doctor Who is the iconic TARDIS, which is much more than the Doctor's trusted time-and-space transport.
----------
-
-# Dora The Explorer Inspired Sick & Sadistic New Horror Movie From Underrated Director
-
-Movies, Buddy, Horror, San Diego Comic-Con
-
-Tue, 28 Jul 2026 21:37:19 GMT
-
-https://screenrant.com/buddy-2026-movie-dora-the-explorer-inspirations/
-
-Exclusive: Underrated writer/director Casper Kelly explains how Dora the Explorer and another classic series inspired his sadistic new horror movie.
----------
-
-# Harry Potter Meets Shadowhunters In Syfy's 5-Part Fantasy Series
-
-Classic TV, Masked Recs
-
-Tue, 28 Jul 2026 21:30:11 GMT
-
-https://screenrant.com/the-magicians-syfy-harry-potter-meets-shadowhunters/
-
-One hidden gem of a Syfy show is the perfect blend of Harry Potter's magical schooling and Shadowhunter's gritty hidden supernatural world.
 ---------
