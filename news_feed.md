@@ -1,3 +1,278 @@
+# Assassin's Creed Hexe Release Window Leak Confirms We're In For A Wait
+
+Gaming, Assassin's Creed, Ubisoft
+
+Thu, 30 Jul 2026 11:30:11 GMT
+
+https://screenrant.com/assassins-creed-hexe-release-window-leaks-2027/
+
+Leak reveals Assassin's Creed Hexe may not launch until late 2027, leaving fans waiting for the witch-themed installment in Ubisoft's franchise.
+---------
+
+# Stranger Things Officially Changes Genre For New Spinoff
+
+Gaming, Stranger Things, PC, Netflix
+
+Thu, 30 Jul 2026 11:29:12 GMT
+
+https://screenrant.com/stranger-things-netflix-golf-genre-change/
+
+Stranger Things has ditched its horror roots in favor of something a little different for its next major spin-off that fans are sure to love.
+---------
+
+# Dark Souls Meets The Witcher In Stunning New Fantasy RPG
+
+Gaming, Dark Souls, The Witcher
+
+Thu, 30 Jul 2026 11:00:12 GMT
+
+https://screenrant.com/relic-first-guardian-witcher-meets-dark-souls/
+
+Discover the dark fantasy world of The Relic: First Guardian, an upcoming Korean-inspired action RPG.
+---------
+
+# Divisive Star Trek Series' Season 2 Return Includes Major Genre Change
+
+Classic TV, Star Trek, Star Trek: Starfleet Academy, San Diego Comic-Con
+
+Thu, 30 Jul 2026 11:00:12 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-season-2-genre-change-robert-picardo/
+
+Exclusive: Robert Picardo reveals an upcoming episode of Star Trek: Starfleet Academy season 2 will have a crisis the series hasn't seen before.
+---------
+
+# Pokémon Heart & Soul Is The Perfect Pokémon Game
+
+Gaming, Pokemon
+
+Thu, 30 Jul 2026 10:30:11 GMT
+
+https://screenrant.com/pokemon-heart-soul-gen-2-love-letter/
+
+Discover the captivating Pokémon Heart & Soul ROM hack, blending iconic Johto region with features from Gen 2 and 4.
+---------
+
+# Indiana Jones Officially Returns In 2027
+
+Gaming, Indiana Jones
+
+Thu, 30 Jul 2026 10:11:14 GMT
+
+https://screenrant.com/indiana-jones-2027-new-statue-release/
+
+Indiana Jones is one of the most iconic characters in history, and any time he returns it deserves to be celebrated.
+---------
+
+# Syfy's Misunderstood The Expanse Copycat Is a Cult Sci-Fi Classic in the Making
+
+TV, Sci-Fi, The Expanse, The Ark
+
+Thu, 30 Jul 2026 11:30:15 GMT
+
+https://www.cbr.com/syfy-the-expanse-copycat-the-ark-cult-sci-fi-classic/
+
+The Expanse is one of the best sci-fi programs of the last few decades. But a Syfy copycat series is about to become a cult classic in its own way.
+---------
+
+# Netflix Officially Says Goodbye to Hunter x Hunter in 48 Hours
+
+Anime, Hunter X Hunter, Netflix, Hunter x Hunter
+
+Thu, 30 Jul 2026 11:05:15 GMT
+
+https://www.cbr.com/netflix-hunter-x-hunter-anime-leave/
+
+One of the most beloved anime epics of all time is about to lose one of its biggest streaming home, and there are just a matter of hours left.
+---------
+
+# After 13 Days, The Odyssey Has Beaten Christopher Nolan’s Oscar-Winning Thriller at Box Office
+
+Movies, The Odyssey, Oppenheimer
+
+Thu, 30 Jul 2026 11:01:15 GMT
+
+https://www.cbr.com/christopher-nolan-the-odyssey-beats-oppenheimer-box-office-report/
+
+The Odyssey continues its epic box office run by smashing another impressive record for Christopher Nolan.
+---------
+
+# 10 Best Non-Superhero Comics That Need Live-Action Adaptations
+
+Comics, image comics, DC Comics
+
+Thu, 30 Jul 2026 11:01:15 GMT
+
+https://www.cbr.com/10-best-non-superhero-comics-that-need-live-action-adaptations/
+
+Superhero comics are the most common sources for live-action adaptations, but these 10 non-superhero comics deserve to be on the big screen even more.
+---------
+
+# Paramount Just Confirmed the Star Trek Reboot Will Jump Into A Never-Before-Seen Future
+
+Movies, Star Trek, Sci-Fi
+
+Thu, 30 Jul 2026 10:00:14 GMT
+
+https://www.cbr.com/paramount-star-trek-movie-reboot-time-jump/
+
+The upcoming Star Trek reboot will officially take the franchise where no one has gone before.
+---------
+
+# 10 Best Far Side Comics From 1986 That Prove Gary Larson Was a Genius
+
+Comics, The Far Side
+
+Thu, 30 Jul 2026 10:00:14 GMT
+
+https://www.cbr.com/the-far-side-comics-from-1986-gary-larson-genius/
+
+Each year of The Far Side has a collection of comics that prove Gary Larson is a genius, with 1986 focusing on his ability to craft visual comedy.
+---------
+
+# The 10-Part HBO Thriller With the Only Stephen King Monster Scarier Than Pennywise
+
+TV, The Outsider, Stephen King, Horror
+
+Thu, 30 Jul 2026 10:00:14 GMT
+
+https://www.cbr.com/stephen-king-the-outsider-scarier-monster-than-pennywise/
+
+Pennywise feeds on the fear of children, but as it turns out, Stephen King came up with something far more disturbing.
+---------
+
+# HBO’s Forgotten 12-Episode Sci-Fi Thriller Is One of Television’s Most Unsettling
+
+TV Features, HBO, Sci-Fi, Beforeigners, Thriller
+
+Thu, 30 Jul 2026 11:46:16 GMT
+
+https://collider.com/hbo-sci-fi-thriller-beforeigners/
+
+In 2019, HBO released one of its best sci-fi thrillers to date in Beforeigners, HBO’s first original series that reached an impressive 100% RT.
+---------
+
+# 10 Greatest World War I Video Games
+
+Gaming, Video Game, Battlefield, Amnesia, War
+
+Thu, 30 Jul 2026 11:44:15 GMT
+
+https://collider.com/best-world-war-1-video-games-ranked/
+
+From Conscript to Battlefield 1, these are the all-time greatest video games that explore the complex intricacies and violent trenches of World War I.
+---------
+
+# Alan Ritchson Is Officially Crowned Netflix's Streaming King
+
+Movie, Alan Ritchson, Ordinary Angels, Hilary Swank, Netflix
+
+Thu, 30 Jul 2026 11:30:15 GMT
+
+https://collider.com/alan-ritchson-ordinary-angels-streaming-success-netflix-july-2026/
+
+Alan Ritchson's heartwarming dramatic movie, Ordinary Angels, has emerged as a number-one title on Netflix. Find out more.
+---------
+
+# 10 Most Influential Video Games of the 20th Century
+
+Gaming, Video Game, Half-Life, Super Mario 64
+
+Thu, 30 Jul 2026 11:04:15 GMT
+
+https://collider.com/most-influential-video-games-20th-century-ranked/
+
+Super Mario 64, Tetris, and The Legend of Zelda: Ocarina of Time are all among the most influential video games of the 21st century.
+---------
+
+# The Biggest Sci-Fi Movie of the Decade Passes 1 Billion Minutes Watched in Scorching Streaming Debut
+
+Movie News, Avatar: Fire and Ash, James Cameron, Sci-Fi, Disney+
+
+Thu, 30 Jul 2026 11:01:15 GMT
+
+https://collider.com/avatar-fire-and-ash-1-billion-minutes-streaming-success-disney-plus-july-2026/
+
+James Cameron's Avatar: Fire and Ash drew 1 billion minutes watched in its streaming debut, according to the Nielsen report.
+---------
+
+# 7 Greatest HBO Series With 4 Episodes or Less
+
+TV, HBO, HBO Max, Catherine the Great, Landscapers
+
+Thu, 30 Jul 2026 10:53:15 GMT
+
+https://collider.com/best-hbo-series-4-episodes-or-less/
+
+Landscapers, Gunpowder, Elizabeth I, Catherine the Great, and more make up our list of the best HBO series with four episodes or less.
+---------
+
+# 10 Movie Masterpieces That Were Ahead of Their Time
+
+Movie, Fight Club, The Thing, Citizen Kane, Death Becomes Her
+
+Thu, 30 Jul 2026 10:42:18 GMT
+
+https://collider.com/movie-masterpieces-ahead-of-their-time/
+
+Movies like The Thing and Citizen Kane were ahead of their time and unlike anything audiences had seen, even predicting future trends and behaviors.
+---------
+
+# 20 Sci-Fi Movies That Will Give You An Existential Crisis
+
+Movie, Sci-Fi, 2001: A Space Odyssey, Everything Everywhere All at Once, Inception
+
+Thu, 30 Jul 2026 10:36:15 GMT
+
+https://collider.com/sci-fi-movies-existential-crisis/
+
+From Ad Astra to Annihilation, these sci-fi movies will make you question reality!
+---------
+
+# Denzel Washington's Most Brutal Thriller Officially Crowned HBO Max's New Streaming Hit
+
+Movie News, Denzel Washington, The Equalizer 3, HBO Max, Antoine Fuqua
+
+Thu, 30 Jul 2026 10:30:14 GMT
+
+https://collider.com/denzel-washington-the-equalizer-3-streaming-success-hbo-max-july-2026/
+
+Denzel Washington's critically acclaimed 109-minute thriller, The Equalizer 3, has become HBO Max's newest streaming sensation.
+---------
+
+# 21 Years Later, Denzel Washington's Neo-Noir Detective Thriller Is Already a Classic
+
+Movie Features, Devil in a Blue Dress, Denzel Washington, Carl Franklin, Don Cheadle
+
+Thu, 30 Jul 2026 10:17:14 GMT
+
+https://collider.com/denzel-washington-devil-in-a-blue-dress-streaming-prime-video-july-2026/
+
+Denzel Washington's Devil in a Blue Dress, a critically beloved 1995 neo-noir thriller, is streaming on Prime Video.
+---------
+
+# The Absolute Greatest ‘Seinfeld’ Quote Still Lives Rent-Free In Our Heads
+
+Features, Seinfeld, Great Line
+
+Thu, 30 Jul 2026 11:00:12 GMT
+
+https://movieweb.com/seinfeld-george-memorable-quote/
+
+'Seinfeld,' the NBC sitcom that aired from 1989 to 1998 and starred Jason Alexander and Julia Louis-Dreyfus, has many memorable quotes.
+---------
+
+# 'John Wick' Meets 'Yellowstone' in Underrated 96-Minute Action Thriller Conquering Streaming
+
+Movie News, Hot on Streaming, Lin Shaye, Paramount Plus, Western, Action, Thriller
+
+Thu, 30 Jul 2026 11:00:12 GMT
+
+https://movieweb.com/last-stand-ellen-cole-streaming-hit-paramount-july-2026/
+
+Move over, Liam Neeson — there's another highly skilled aged vigilante, and she means business.
+---------
+
 # Legend Of Zelda: Ocarina Of Time Remake Gameplay Teaser And Release Date Update Surface Online
 
 Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
@@ -5221,279 +5496,4 @@ Tue, 28 Jul 2026 19:16:15 GMT
 https://www.cbr.com/shonen-anime-strongest-old-men-list/
 
 Anime like Bleach and Naruto have some of the most powerful old men in shonen history.
----------
-
-# The Rookie Star Nathan Fillion Teases North Crossover With a Twist
-
-TV, The Rookie
-
-Tue, 28 Jul 2026 19:09:41 GMT
-
-https://www.cbr.com/the-rookie-nathan-fillion-teases-north-crossover/
-
-Nathan Fillion explains why crossovers between The Rookie and the upcoming The Rookie: North spinoff won't be what fans are expecting.
----------
-
-# Percy Jackson Season 3 Is Entering Uncharted Territory for the Franchise
-
-TV, Percy Jackson & the Olympians, Percy Jackson & The Olympians, Fantasy, Disney+
-
-Tue, 28 Jul 2026 19:01:14 GMT
-
-https://www.cbr.com/percy-jackson-and-the-olympians-season-3-new-era/
-
-Percy Jackson & the Olympians Season 3 premieres later this year, and it marks the beginning of a new era for the beloved franchise.
----------
-
-# The 5 Greatest Thriller Movies of 2026 (So Far)
-
-Movies, Thriller
-
-Tue, 28 Jul 2026 19:01:14 GMT
-
-https://www.cbr.com/best-thriller-movies-2026-so-far-list/
-
-The thriller genre is alive and well with filmmakers and audiences and 2026 has delivered some exceptional films in the genre.
----------
-
-# 10 Underrated Marvel Friendships You Totally Forgot About
-
-Comics, Marvel, superheroes
-
-Tue, 28 Jul 2026 19:01:14 GMT
-
-https://www.cbr.com/underrated-forgotten-marvel-friendships-list/
-
-Surprising Marvel characters, from Hercules and Amadeus Cho to Squirrel Girl and Kraven the Hunter, formed unique bonds that deserve more attention.
----------
-
-# Disney Erases a 73-Year-Old Character After Announcing of Spinoff
-
-TV, Disneyland, Disney, Tinker Bell
-
-Tue, 28 Jul 2026 18:54:11 GMT
-
-https://www.cbr.com/disneyland-tinker-bell-pixie-hollow-closes/
-
-A beloved Disney character is disappearing for an undisclosed amount of time, even though she has a new TV show on the way.
----------
-
-# Mike Flanagan Officially Boards Henry Cavill's Iconic Space Opera Adaptation
-
-TV, Warhammer 40k, Mike Flanagan
-
-Tue, 28 Jul 2026 18:25:01 GMT
-
-https://www.cbr.com/mike-flanagan-joins-henry-cavill-warhammer-40000-show/
-
-Mike Flanagan has found his next project after Prime Video's Carrie.
----------
-
-# The Perfect 'Friends' Cast if the Sitcom Were Made in 2026
-
-TV, Friends, Sydney Sweeney, Daniel Radcliffe, Dave Franco
-
-Tue, 28 Jul 2026 19:44:15 GMT
-
-https://collider.com/friends-cast-made-today-2026/
-
-Sydney Sweeney as Rachel Green? Daniel Radcliffe as Chandler Bing? Let's unpack who'd play the iconic Friends characters if the show got made today.
----------
-
-# CBS Is Doubling Down on ‘FBI’ and ‘CIA’ This Fall
-
-TV News, FBI, CIA, Tom Ellis
-
-Tue, 28 Jul 2026 19:41:14 GMT
-
-https://collider.com/cia-season-2-release-date-tom-ellis-fbi-cbs-october-2026/
-
-Tom Ellis’ CIA officially sets its Season 2 return alongside FBI Season 9 as CBS locks down its fall 2026 premiere schedule.
----------
-
-# Quentin Tarantino Star's Cult Classic Crime Movie Is Leaving HBO Max
-
-Movie News, Dillinger, Quentin Tarantino, Reservoir Dogs, HBO Max
-
-Tue, 28 Jul 2026 19:26:15 GMT
-
-https://collider.com/quentin-tarantino-lawrence-tierney-dillinger-leaving-hbo-max-august-2026/
-
-Quentin Tarantino regretted casting Lawrence Tierney in Reservoir Dogs; Tierney's most popular movie, Dillinger, is currently streaming on HBO Max.
----------
-
-# 10 Perfect Books You Can Read in a Day
-
-Books and Comics, Books, Sci-Fi, Graphic Novel, Young Adult
-
-Tue, 28 Jul 2026 19:24:15 GMT
-
-https://collider.com/perfect-books-read-in-one-day/
-
-We Are Okay by Nina LaCour and Never Let Me Go by Kazuo Ishiguro are genuinely perfect books you can read from cover to cover in one day.
----------
-
-# 'Ghosts' Still Needs To Address This Glaring Plot Hole Immediately
-
-TV Features, Ghosts, CBS, Comedy, Rose McIver
-
-Tue, 28 Jul 2026 19:21:14 GMT
-
-https://collider.com/ghosts-woodstone-boundary-plot-hole/
-
-In CBS’ Ghosts, there are inconsistencies and glaring plot holes surrounding the boundaries and the Woodstone Mansion.
----------
-
-# 'Breaking Bad' Star's John Wick Replacement Crushes the Competition on Streaming
-
-Movie News, Nobody, Nobody 2, Bob Odenkirk, Action
-
-Tue, 28 Jul 2026 19:16:15 GMT
-
-https://collider.com/bob-odenkirk-action-thriller-nobody-streaming-success-peacock-july-2026/
-
-Bob Odenkirk’s $57 million action thriller Nobody is finding another huge audience on streaming five years after its release.
----------
-
-# ‘Fire Country’ Season 5 Leads CBS’ Massive October 9 Premiere Night
-
-TV News, CBS, Sheriff Country, Fire Country, Boston Blue
-
-Tue, 28 Jul 2026 19:00:15 GMT
-
-https://collider.com/cbs-new-seasons-sheriff-country-fire-country-boston-blue-release-date-october-2026/
-
-CBS officially announces that new seasons of Sheriff Country, Fire Country, and Boston Blue are all returning on Friday, October 9.
----------
-
-# ‘Stargate’ Creator’s New Sci-Fi Series Returns for Season 3 Tomorrow
-
-TV News, Stargate, Dean Devlin, The Ark, Stargate SG-1
-
-Tue, 28 Jul 2026 18:40:14 GMT
-
-https://collider.com/stargate-dean-devlin-underrated-sci-fi-experiment-the-ark-season-3-release-date/
-
-As fans await news on the cancelled Stargate revival, The Ark returns for its third and best season yet on Syfy in 24 hours.
----------
-
-# A Cult-Classic '70s Sci-Fi Officially Returns With New Sequel Trailer 45+ Years Later
-
-Movie News, Attack of the Killer Tomatoes!, Return of the Killer Tomatoes!, Comedy, Horror
-
-Tue, 28 Jul 2026 18:25:52 GMT
-
-https://collider.com/attack-of-the-killer-tomatoes-organic-intelligence-sequel-trailer/
-
-Watch the ‘Attack of the Killer Tomatoes: Organic Intelligence trailer ahead of the long-awaited sequel’s theatrical release this August.
----------
-
-# 15 Years Later, Titus Welliver's Acclaimed Crime Thriller Is a Netflix Streaming Hit
-
-Movie News, The Town, Titus Welliver, Action, Ben Affleck
-
-Tue, 28 Jul 2026 18:25:14 GMT
-
-https://collider.com/titus-welliver-the-town-streaming-success-netflix-july-2026/
-
-Titus Welliver's Oscar-nominated crime thriller The Town is quietly climbing Netflix’s charts more than 15 years later. Find out more here.
----------
-
-# Evan Peters' Hit Thriller Series Takes a Page Out of the MCU for Upcoming Season
-
-TV News, American Horror Story, Evan Peters
-
-Tue, 28 Jul 2026 19:55:57 GMT
-
-https://movieweb.com/american-horror-story-evan-peters-season-13-crossover/
-
-Season 13 of 'American Horror Story' is confirmed to bring in beloved characters from all corners of the franchise.
----------
-
-# 'Resident Evil' Director Reveals the '80s Action Classic That Inspired the Long-Awaited Survival Thriller Reboot
-
-Movie News, Resident Evil, Zach Cregger
-
-Tue, 28 Jul 2026 19:53:30 GMT
-
-https://movieweb.com/zach-cregger-resident-evil-movie-die-hard/
-
-The director behind 'Barbarian' and 'Weapons' looked to the classics for shaping his horror action film.
----------
-
-# Netflix's New 8-Part Western Remains One of the Biggest Shows on Streaming
-
-TV News, Little House on the Prairie, Hot on Streaming, Western, Netflix
-
-Tue, 28 Jul 2026 19:10:30 GMT
-
-https://movieweb.com/little-house-on-the-prairie-netflix-hit-western-streaming-july-2026/
-
-Nearly three weeks after its release, Netflix's hot new Western continues to prove why it's a force to be reckoned with on streaming.
----------
-
-# Gerard Butler's 109-Minute Sci-Fi Action Flop Crashes Onto Free Streaming
-
-Movie News, Gerard Butler, Geostorm, Coming/Leaving Streaming
-
-Tue, 28 Jul 2026 19:00:12 GMT
-
-https://movieweb.com/gerard-butler-geostorm-free-streaming-tubi-august-2026/
-
-There's just something about Gerard Butler saving the world.
----------
-
-# Apple TV's Long-Awaited Epic Fantasy Adaptation Crosses Major Milestone
-
-Movie News, Mistborn, Brandon Sanderson, Apple TV, Fantasy
-
-Tue, 28 Jul 2026 18:28:12 GMT
-
-https://movieweb.com/apple-tv-mistborn-movie-script-complete/
-
-Apple could finally have its answer to 'Game of Thrones.'
----------
-
-# Near-Perfect $800M Action Fantasy Epic Officially Makes Streaming Debut 11 Months Later
-
-Movie News, Demon Slayer: Kimetsu no Yaiba Infinity Castle
-
-Tue, 28 Jul 2026 18:23:25 GMT
-
-https://movieweb.com/demon-slayer-infinity-castle-streaming-july-crunchyroll/
-
-The action-packed fantasy epic is finally available to watch at home.
----------
-
-# Dexter Is Officially Back in First Look at 'Resurrection' Season 2
-
-TV News, Dexter: Resurrection
-
-Tue, 28 Jul 2026 18:09:55 GMT
-
-https://movieweb.com/dexter-resurrection-season-2-first-look-images/
-
-Paramount+ releases first-look images from Dexter: Resurrection season 2, showcasing Dexter and Charley Brown's unexpected friendship and hinting at a new villain. The show returns with a focus on Dexter's mid-life crisis and Harrison's pursuit of justice.
----------
-
-# Netflix's 5-Season Sci-Fi Series Quietly Passes 1.2 Billion Minutes Viewed
-
-TV, Masked Recs
-
-Tue, 28 Jul 2026 18:04:47 GMT
-
-https://screenrant.com/netflix-the-last-ship-billion-minutes-viewed-july-2026/
-
-Netflix's five-season sci-fi series quietly sails past over 1.2 billion minutes viewed shortly after its release on the streaming service.
----------
-
-# The Office's Sequel Reveals What Went Wrong With 2020s Sitcoms
-
-TV, Masked Recs
-
-Tue, 28 Jul 2026 18:01:11 GMT
-
-https://screenrant.com/the-paper-office-sequel-2020s-sitcoms-problem/
-
-The Paper's failure to replicate The Office's success highlights a bigger issue with 2020s sitcoms, leading to the genre's slow death on streaming.
 ---------
