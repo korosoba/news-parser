@@ -1,3 +1,58 @@
+# Game Of Thrones' Rhaegal Is Officially Back With A Vengeance
+
+Gaming, Game of Thrones, Game Of Thrones, PC, House of the Dragon
+
+Thu, 30 Jul 2026 07:00:11 GMT
+
+https://screenrant.com/game-of-thrones-legends-rhaegal-update-july-2026/
+
+Dany's iconic dragon Rhaegal from Game of Thrones is making an official return in a new release, and the fan-favorite is back with a vengeance.
+---------
+
+# Brandon Sanderson's Stormlight: Champions Officially Announced
+
+Gaming, The Stormlight Archive, Brandon Sanderson, Mistborn, The Cosmere, PC
+
+Thu, 30 Jul 2026 06:00:12 GMT
+
+https://screenrant.com/brandon-sanderson-stormlight-champions-announcement/
+
+Brandon Sanderson's epic Stormlight Archive saga is getting a major new release later this Fall with the official announcement of Champions.
+---------
+
+# Blade Runner Officially Returns In 2027 With A Brand-New Story
+
+Gaming, Blade Runner, PC
+
+Thu, 30 Jul 2026 05:30:11 GMT
+
+https://screenrant.com/blade-runner-2027-return-immersive-experience/
+
+Blade Runner is back in a big way, with a brand-new story scheduled to release in 2027 that fans will absolutely want to check out.
+---------
+
+# Scott Bakula Gives Disappointing Update About His Star Trek Comeback
+
+TV, Star Trek, Star Trek: Enterprise
+
+Thu, 30 Jul 2026 05:00:39 GMT
+
+https://screenrant.com/star-trek-scott-bakula-comeback-update-disappointing/
+
+Scott Bakula's Star Trek comeback as President Jonathan Archer is a project fans want to see, but the Emmy nominee has some unfortunate news.
+---------
+
+# Resident Evil's Grace & Leon Will Officially Return This Halloween
+
+Gaming, Resident Evil, Resident Evil 9, PC
+
+Thu, 30 Jul 2026 05:00:12 GMT
+
+https://screenrant.com/resident-evil-halloween-horror-nights-grace-leon-return/
+
+Grace and Leon, the legendary protagonists of some of Resident Evil's best games, are officially returning this Halloween.
+---------
+
 # Metal Gear Solid 6 Leaves Fans Split, And We Can See Why
 
 Gaming, Metal Gear, Metal Gear Solid
@@ -5441,59 +5496,4 @@ Tue, 28 Jul 2026 17:17:28 GMT
 https://screenrant.com/video/spider-man-brand-new-day-tom-holland-jacob-batalon-jon-bernthal-interview/
 
 Spider-Man: Brand New Day stars Tom Holland, Jacob Batalon, and Jon Bernthal discuss Peter Parker's role in the Avengers moving forward and dynamic with the Punisher.
----------
-
-# George R.R. Martin’s Long-Awaited A Song Of Ice & Fire Spinoff Book Gets Exciting New Update
-
-Books, A Song of Ice and Fire, George R.R. Martin
-
-Tue, 28 Jul 2026 17:10:47 GMT
-
-https://screenrant.com/george-r-r-martin-new-game-thrones-book-confirmed-dunk-egg-4/
-
-George R.R. Martin's long-awaited spinoff book for A Song of Ice and Fire gets an exciting new update as the world of Westeros keeps expanding.
----------
-
-# 15 Best Spider-Man and Wolverine Team-Ups, Ranked
-
-Comics, Spider-Man, Wolverine
-
-Tue, 28 Jul 2026 18:01:15 GMT
-
-https://www.cbr.com/best-spider-man-and-wolverine-team-ups/
-
-Among the many superhero team-ups in comics, few are as satisfying as when Spider-Man and Wolverine meet each other for another amazing adventure.
----------
-
-# Absolute Batman's Ark-M Special Officially Confirmed by DC
-
-Comics, Batman, San Diego Comic-Con
-
-Tue, 28 Jul 2026 18:01:15 GMT
-
-https://www.cbr.com/dc-absolute-batman-ark-m-special-2026/
-
-DC Comics just gave Absolute Batman fans their first look at all the horror to come in the next Ark-M special, and it is even worse than last time.
----------
-
-# Netflix's New 6-Part Creature Feature Unveils Dread-Filled Trailer
-
-TV, Below, Netflix, Thriller
-
-Tue, 28 Jul 2026 17:48:33 GMT
-
-https://www.cbr.com/below-josh-hartnett-netflix-trailer/
-
-Netflix released an eerie new trailer for Below, a thriller starring Josh Hartnett
----------
-
-# Spider-Man: Brand New Day Continues MCU Rotten Tomatoes Trend
-
-Movies, Marvel Cinematic Universe, Spider-Man: Brand New Day
-
-Tue, 28 Jul 2026 17:30:15 GMT
-
-https://www.cbr.com/spider-man-brand-new-day-certified-fresh-mcu-trend/
-
-Only days before Spider-Man: Brand New Day hits theaters, a new reveals confirms it's continuing an incredible MCU trend for the wall-crawler.
 ---------
