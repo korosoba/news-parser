@@ -1,3 +1,289 @@
+# Metal Gear Solid 6 Leaves Fans Split, And We Can See Why
+
+Gaming, Metal Gear, Metal Gear Solid
+
+Thu, 30 Jul 2026 04:45:11 GMT
+
+https://screenrant.com/metal-gear-solid-6-fan-speculations-reactions/
+
+Metal Gear Solid 6 might never see the light of day, and fans can't quite decide on the best course of action for the series.
+---------
+
+# 10 Best PlayStation 2 Games With Open-World Sandboxes
+
+Gaming, PlayStation 2, Triple-A Games
+
+Thu, 30 Jul 2026 04:30:11 GMT
+
+https://screenrant.com/playstation-2-best-open-world-sandboxes/
+
+Several unforgettable games marked the PlayStation 2 era, and a whole lot of them were huge open-world sandboxes that you could explore freely.
+---------
+
+# The Wait Is Over: K-Pop Demon Hunters Officially Returns Tomorrow
+
+Gaming, KPop Demon Hunters
+
+Thu, 30 Jul 2026 04:15:11 GMT
+
+https://screenrant.com/kpop-demon-hunters-official-return-july-31/
+
+K-Pop Demon Hunters took the world by storm when it debuted on to Netflix last year, and it's officially returning tomorrow.
+---------
+
+# Steam Drops 6 New Free Games, Yours To Keep Forever
+
+Gaming, Steam, Triple-A Games
+
+Thu, 30 Jul 2026 04:01:12 GMT
+
+https://screenrant.com/steam-6-free-games-july-2026-keep-forever/
+
+You can grab six games from Steam right now that just dropped, and they're yours to keep, with a few hidden gems for good measure.
+---------
+
+# Netflix's New #1 2026 Action Thriller Just Ended Its 10-Episode Run, And It's A Massive Success
+
+Streaming TV, Netflix, Masked Recs
+
+Thu, 30 Jul 2026 03:30:11 GMT
+
+https://screenrant.com/netflix-agent-kim-reactivated-action-thriller-near-perfect/
+
+A positively exhilarating spin on a popular revenge webtoon has made a splash since June, dominating domestic airwaves and Netflix charts alike.
+---------
+
+# 46 Years Later, This Iconic Wolverine Moments Changes Forever
+
+Marvel Comics, Wolverine
+
+Thu, 30 Jul 2026 03:11:16 GMT
+
+https://screenrant.com/wolverine-new-villain-godshredder/
+
+Wolverine faces a long-forgotten X-Men villain who returns half a century later with an upgrade that almost destroys Logan and his fellow mutants.
+---------
+
+# 5 Cyberpunk Sci-Fi Books Apple TV Must Adapt After Neuromancer
+
+Streaming TV, Neuromancer, Neuromancer - Season 1, Ghost in the Shell
+
+Thu, 30 Jul 2026 03:00:11 GMT
+
+https://screenrant.com/apple-tv-cyberpunk-adaptations-after-neuromancer/
+
+Apple TV’s Neuromancer adaptation seems to have the potential to pave the way for the streamer to adapt more acclaimed cyberpunk books in the future.
+---------
+
+# 1 Casting Choice That Marvel's Ghost Rider Reboot Should Copy From Nicolas Cage's Movie
+
+Movies, Ghost Rider
+
+Thu, 30 Jul 2026 02:30:11 GMT
+
+https://screenrant.com/ghost-rider-movie-sam-elliot-casting-choice-keep/
+
+The original Ghost Rider movie made a clever casting choice (and change to the source material) that should be carried over to the MCU reboot.
+---------
+
+# Reacher Season 5 Is Switching To A Brand-New Genre
+
+Streaming TV, Reacher, San Diego Comic-Con
+
+Thu, 30 Jul 2026 02:00:21 GMT
+
+https://screenrant.com/reacher-season-5-switch-genre-horror/
+
+Reacher is Prime Video's flagship action thriller series, and the formula has worked well. However, season 5 is set to change genre to horror.
+---------
+
+# Zelda: Ocarina of Time's Official ESRB Rating Isn't as Bad as It Looks
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Thu, 30 Jul 2026 04:51:15 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-switch-2-remake-esrb-rating/
+
+Zelda: Ocarina of Time has been rated E, for everyone, but that doesn't mean the Bottom of the Well can't still traumatize a new generation of gamers.
+---------
+
+# Dragon Ball Super's Toyotarou Revives a Forgotten Beerus Villain
+
+Anime, Dragon Ball Super, Dragon Ball, Dragon Ball Super: Beerus
+
+Thu, 30 Jul 2026 03:59:15 GMT
+
+https://www.cbr.com/dragon-ball-super-toyotarou-mogina-art-beerus-anime/
+
+Toyotarou just paid his last respects to one of Beerus' earliest victims in Dragon Ball Super who was the lone warrior of a now-extinct alien race.
+---------
+
+# 5 Fantasy RPGs With the Deepest Character Customization Systems
+
+Games, Dragon's Dogma 2, Gaming, Role Playing Game
+
+Thu, 30 Jul 2026 03:45:14 GMT
+
+https://www.cbr.com/fantasy-rpgs-best-character-customization/
+
+These fantasy RPGs feature the deepest character customization systems with the most freedom in all of gaming.
+---------
+
+# George Clooney Said 'Every Episode Was Like The Godfather' While Hailing This 89% RT Netflix Crime Show
+
+TV, george clooney, Narcos, The Godfather
+
+Thu, 30 Jul 2026 03:30:14 GMT
+
+https://www.cbr.com/george-clooney-compares-narcos-the-godfather/
+
+George Clooney compared this hard-hitting Netflix show to a classic film epic, and for good reason.
+---------
+
+# Ghost Rider Is the MCU's Replacement for Blade
+
+Movies, Ghost Rider, Blade, MCU
+
+Thu, 30 Jul 2026 03:15:15 GMT
+
+https://www.cbr.com/ghost-rider-mcu-blade-reboot-replacement-movie/
+
+Marvel's Blade reboot may never see the light of day, but a newly announced project can take its place.
+---------
+
+# 10 Best Epic Open-World Games of All Time
+
+Games, Video Games, Elden Ring, Final Fantasy, The Elder Scrolls
+
+Thu, 30 Jul 2026 03:15:15 GMT
+
+https://www.cbr.com/best-epic-open-world-games-of-all-time/
+
+Open-world games like Skyrim and Elden Ring personify the word "epic" better than any others.
+---------
+
+# Sailor Moon Debuts Ultra-Rare New Manga Design Limited to Just 80 Worldwide
+
+Anime, Sailor Moon, merchandise, collectibles
+
+Thu, 30 Jul 2026 03:05:15 GMT
+
+https://www.cbr.com/sailor-moon-kaiju-one-wonder-festival-2026/
+
+Sailor Moon fans just got a peek at one of the most exclusive pieces of merchandise the franchise has ever seen.
+---------
+
+# Every One Piece Emperor, Ranked By Strength
+
+Anime, One Piece
+
+Thu, 30 Jul 2026 03:00:15 GMT
+
+https://www.cbr.com/one-piece-emperor-ranked-by-strength-list/
+
+The most powerful One Piece characters are Emperors, but some are stronger than others.
+---------
+
+# The 5 Most Influential Films of the 21st Century, Ranked
+
+Movies, MCU, The Lord of the Rings, Disney
+
+Thu, 30 Jul 2026 02:45:15 GMT
+
+https://www.cbr.com/most-influential-movies-21st-century-list/
+
+From trendsetters within their genre to technological innovators, these five films from the year 2000 onward changed the movie industry.
+---------
+
+# 4 Netflix Anime Series That Are 10/10 Masterpieces
+
+Anime, Cyberpunk: Edgerunners, Pluto, Delicious in Dungeon
+
+Thu, 30 Jul 2026 02:45:15 GMT
+
+https://www.cbr.com/neflix-anime-series-masterpieces/
+
+Of all the Netflix original anime series, these select few are considered the greatest masterpieces with brilliant writing and animation.
+---------
+
+# 'Game of Thrones' Was at Its Best When It Finally Left the Books Behind
+
+TV Features, Game Of Thrones, George R.R. Martin, A Song of Ice and Fire, Fantasy
+
+Thu, 30 Jul 2026 04:30:14 GMT
+
+https://collider.com/game-of-thrones-season-6-book-difference/
+
+Even though Game of Thrones left the books behind in Season 6, the show still delivered one of its best installments.
+---------
+
+# 6 Best Adventure Movies Released Since 2000
+
+Movie, Interstellar, The Odyssey, Adventure, The Lord of the Rings: The Return of the King
+
+Thu, 30 Jul 2026 04:07:14 GMT
+
+https://collider.com/best-adventure-movies-since-2000-ranked/
+
+The Odyssey, Mad Max: Fury Road, and The Lord of the Rings: The Return of the King are among the best adventure movies released since the year 2000.
+---------
+
+# 'Band of Brothers' Most Brutal WWII Episode Is the Moment the Show Becomes a Masterpiece
+
+TV Features, Band of Brothers, HBO, Neal McDonough, Drama
+
+Thu, 30 Jul 2026 03:15:15 GMT
+
+https://collider.com/band-of-brothers-most-brutal-wwii-episode-breaking-point-masterpiece/
+
+Band of Brothers' most brutal episode is both a turning point for the WWII series and its characters.
+---------
+
+# Forget 'Game of Thrones,' These Beloved Books Have the Best Dragons in Fantasy
+
+Books and Comics, Books, Game Of Thrones, Fantasy, House of the Dragon
+
+Thu, 30 Jul 2026 03:03:15 GMT
+
+https://collider.com/deltora-quest-emily-rodda-fantasy-books-best-dragons/
+
+Emily Rodda's Deltora Quest is a beloved fantasy series that features what are arguably the most creative and fully realized dragons in literature.
+---------
+
+# 10 Most Perfect Sci-Fi Shows of the Last 10 Years
+
+TV, Sci-Fi, Severance, Silo, Stranger Things
+
+Thu, 30 Jul 2026 03:01:14 GMT
+
+https://collider.com/most-perfect-sci-fi-shows-last-10-years-ranked/
+
+Silo, Stranger Things, Dark Matter, and For All Mankind are among the best sci-fi shows of the last decade, but which series is the greatest?
+---------
+
+# Apple TV’s Twisted 10-Part Book Adaptation Is Rising on Streaming Ahead of the Finale
+
+TV Features, Apple TV, Cape Fear, Amy Adams, Javier Bardem
+
+Thu, 30 Jul 2026 02:56:14 GMT
+
+https://collider.com/apple-tv-book-adaptation-cape-fear-streaming-success/
+
+On June 5, 2026, Apple TV premiered its latest thriller, the new remake and book adaptation of Cape Fear, and it’s rapidly winning over fans.
+---------
+
+# 10 Great Hard Sci-Fi TV Shows Everyone Forgot About
+
+TV Lists, Wayward Pines
+
+Thu, 30 Jul 2026 02:00:22 GMT
+
+https://movieweb.com/best-hard-sci-fi-tv-shows-forgotten/
+
+These hard sci-fi TV shows are underrated, and even the biggest fans of the genre might have missed out on them.
+---------
+
 # 2001's Best Drama Is Streaming On YouTube For Free, And It's Aging Like Fine-Wine
 
 Anime, YouTube, Masked Recs
@@ -5210,290 +5496,4 @@ Tue, 28 Jul 2026 17:30:15 GMT
 https://www.cbr.com/spider-man-brand-new-day-certified-fresh-mcu-trend/
 
 Only days before Spider-Man: Brand New Day hits theaters, a new reveals confirms it's continuing an incredible MCU trend for the wall-crawler.
----------
-
-# X-Men ’97 Needs to Let Its Most Important Death Stay Permanent
-
-TV, X-Men '97, X-Men, Magneto
-
-Tue, 28 Jul 2026 17:30:15 GMT
-
-https://www.cbr.com/x-men-97-season-2-magneto-death/
-
-Marvel's hit animated series X-Men '97 brought life and death stakes to its Mutant Saga, and its most painful one for fans can't be undone.
----------
-
-# 17 Years Later, Evangelion Brings Back Unit-01's Strongest Transformation
-
-Anime, Neon Genesis Evangelion, Rebuild of Evangelion, merchandise, Evangelion: 2.0 You Can (Not) Advance, action figures
-
-Tue, 28 Jul 2026 17:20:15 GMT
-
-https://www.cbr.com/evangelion-eva-test-type-01-threezero-robo-dou/
-
-A new Evangelion figure from threezero is set to recreate a pivotal scene from the Rebuild of Evangelion movies, complete with UV-reactive armor.
----------
-
-# 5 Greatest Open-World RPGs of the 2020s, Ranked
-
-Games, Elden Ring, Baldur's Gate 3, The Legend of Zelda: Tears of the Kingdom
-
-Tue, 28 Jul 2026 17:15:15 GMT
-
-https://www.cbr.com/greatest-open-world-rpgs-2020s-ranked/
-
-Open-world RPGs have taken a step forward in immersive experiences in the 2020s, and these five titles stand as the undisputed best of them all.
----------
-
-# Apple TV's Highly-Anticipated Revival Series Officially Returns in 1 Week
-
-TV, Ted Lasso, Apple TV, Comedy
-
-Tue, 28 Jul 2026 17:05:22 GMT
-
-https://www.cbr.com/ted-lasso-season-4-trailer-apple-tv/
-
-Ted Lasso returns to Apple TV in the new trailer for Season 4
----------
-
-# Fallout Officially Celebrates 40th Anniversary With 2 Releases On July 30
-
-Games, Fallout, Bethesda Softworks, Fallout New Vegas
-
-Tue, 28 Jul 2026 17:05:15 GMT
-
-https://www.cbr.com/fallout-official-new-release-40th-anniversary-july-30/
-
-Bethesda has announced new Fallout releases to celebrate its 40th anniversary, giving players the chance to rock the Vault Dweller aesthetic.
----------
-
-# 10 Perfect Horror Movies Based on Books
-
-Movie, Horror, The Exorcist, The Haunting, Ringu
-
-Tue, 28 Jul 2026 17:52:14 GMT
-
-https://collider.com/perfect-horror-movies-based-on-books-ranked/
-
-The Silence of the Lambs, Ringu, and Rosemary's Baby are among the greatest, truly perfect horror movies that were adapted from great books.
----------
-
-# Peacock Will Officially Be Free in 2027
-
-TV News, Peacock, youtube premium, YouTube, NBCUniversal
-
-Tue, 28 Jul 2026 17:40:15 GMT
-
-https://collider.com/youtube-premium-adding-peacock-free-early-2027/
-
-NBCUniversal and YouTube are teaming up to make Peacock a free addition to YouTube Premium starting in early 2027.
----------
-
-# Vin Diesel and Jason Statham's Action Masterpieces Soar Onto Streaming Charts
-
-Movie News, Vin Diesel, Fast Five, Furious 7, Peacock
-
-Tue, 28 Jul 2026 17:25:14 GMT
-
-https://collider.com/vin-diesel-fast-five-furious-7-streaming-success-peacock-july-2026/
-
-A pair of Vin Diesel and Jason Statham action blockbusters are proving a popular double feature on Peacock. Get all the details here.
----------
-
-# 'Firefly’s Long-Awaited Return Officially Hits a Major Roadblock
-
-TV News, Firefly, Nathan Fillion, Alan Tudyk, Joss Whedon
-
-Tue, 28 Jul 2026 17:19:50 GMT
-
-https://collider.com/firefly-animated-series-network-streaming-update/
-
-Nathan Fillion shares an update on the animated Firefly revival, which remains in development but has not yet found a network or streamer.
----------
-
-# Forget 'Obsession,' This Sleeper Horror Hit Is Quietly Becoming a Cult Classic
-
-Movie News, Forbidden Fruits, Horror, Lola Tung, AMC+
-
-Tue, 28 Jul 2026 17:15:15 GMT
-
-https://collider.com/forbidden-fruits-streaming-success-amc-plus-july-2026/
-
-A sleeper 2026 horror gem is heading into cult classic territory thanks to continued streaming success. Here's everything you should know.
----------
-
-# CBS Officially Confirms Early Return for Revamped NCIS Slate
-
-TV News, NCIS, NCIS: New York, CBS, NCIS: Origins
-
-Tue, 28 Jul 2026 17:04:18 GMT
-
-https://collider.com/ncis-new-york-origins-cbs-fall-release-date-tuesday-october-6/
-
-CBS has set a release date for NCIS: New York, NCIS: Origins Season 3, and NCIS Season 24.
----------
-
-# 'The Wheel of Time' Author's Apple TV Fantasy Epic Gets Its Biggest Update Yet
-
-Movie News, Mistborn, Brandon Sanderson, Apple TV, Fantasy
-
-Tue, 28 Jul 2026 16:59:02 GMT
-
-https://collider.com/brandon-sanderson-mistborn-movie-script-update/
-
-Brandon Sanderson's Mistborn movie at Apple TV has taken its biggest step forward yet with a huge update from the legendary fantasy author.
----------
-
-# Jason Statham Officially Crowned the King of Streaming With 2 Chart-Topping Action Hits
-
-Movie News, Jason Statham, A Working Man, Shelter, Prime Video
-
-Tue, 28 Jul 2026 16:58:21 GMT
-
-https://collider.com/jason-statham-shelter-a-working-man-streaming-success-prime-video-july-2026/
-
-Ahead of The Beekeeper 2, Jason Statham fans are flocking to check out two of his most recent movies on Prime Video.
----------
-
-# 8 Best Starship Pilots in Star Trek Canon, Ranked
-
-TV Lists, Star Trek
-
-Tue, 28 Jul 2026 18:01:12 GMT
-
-https://movieweb.com/star-trek-best-starship-pilots/
-
-Star Trek is filled with characters who are very trustworthy at the helm, but there's only one who can get the top spot. Read on for more.
----------
-
-# 'Evil Dead Burn' Officially Lands Digital Streaming Release Date
-
-Movie News, Evil Dead Burn
-
-Tue, 28 Jul 2026 17:08:14 GMT
-
-https://movieweb.com/evil-dead-burn-digital-streaming-date/
-
-Warner Bros. has announced 'Evil Dead Burn' will be available for digital purchase and rental after less than a month in theaters.
----------
-
-# Apple TV's Hit Sci-Fi Adaptation Officially Replaces Its Best Original Character
-
-Features, Dark Matter
-
-Tue, 28 Jul 2026 17:00:12 GMT
-
-https://movieweb.com/dark-matter-season-2-detective-mason-replaced/
-
-Blake Crouch's 'Dark Matter' book didn't have enough characters to be adapted, so more were created. Season 2 is doing it again. Read on for more.
----------
-
-# Master of the House Ending, Explained
-
-Features, Netflix, Drama, Mystery
-
-Tue, 28 Jul 2026 17:00:12 GMT
-
-https://movieweb.com/master-of-the-house-ending-explained/
-
-'Master of the House' was an international sensation, but fans still had questions about the ending: here is the ending explained.
----------
-
-# 'Children of Blood and Bone' Trailer Brings Epic Fantasy Bestseller to Live-Action
-
-Movie News, Children of Blood and Bone
-
-Tue, 28 Jul 2026 16:59:56 GMT
-
-https://movieweb.com/children-of-blood-and-bone-trailer/
-
-The first teaser for Children of Blood and Bone has arrived, offering a proper look at the live-action adaptation of Tomi Adeyemi's bestselling novel.
----------
-
-# Netflix Officially Confirms Tom Hanks' Replacement in Dan Brown Reboot
-
-Movie News, Netflix, The Da Vinci Code, Tom Hanks
-
-Tue, 28 Jul 2026 16:55:51 GMT
-
-https://movieweb.com/netflix-dan-brown-series-morgan-spector-robert-langdon/
-
-Netflix has confirmed that Morgan Spector is replacing Tom Hanks as Robert Langdon in the series adaptation of Dan Brown's 'The Secret of Secrets.'
----------
-
-# Supergirl's Second Chance At Success Begins Today
-
-Superheroes, Supergirl, DC Universe
-
-Tue, 28 Jul 2026 16:45:11 GMT
-
-https://screenrant.com/supergirl-digital-release-second-chance/
-
-DC's Supergirl movie didn't perform well at the box office, but it now has a second chance to become a success that could change the narrative.
----------
-
-# Live-Action Ezra Bridger Star Wars Spinoff Series Potential Addressed By Ahsoka Actor
-
-TV, Ahsoka, Star Wars
-
-Tue, 28 Jul 2026 16:42:56 GMT
-
-https://screenrant.com/star-wars-rebels-ezra-live-action-spinoff-chances-eman-esfandi/
-
-EXCLUSIVE: Eman Esfandi reveals if he would ever want to reprise the role of Ezra Bridger in his own spinoff series after starring on Ahsoka.
----------
-
-# Why Spider-Man: Brand New Day’s Rotten Tomatoes Score Is The Lowest Of Tom Holland’s Marvel Movies
-
-Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
-
-Tue, 28 Jul 2026 16:41:32 GMT
-
-https://screenrant.com/spider-man-brand-new-day-reviews-explained/
-
-The first Spider-Man: Brand New Day reviews are in, and the MCU movie surprisingly ranks lower than Tom Holland's other films for a few reasons.
----------
-
-# 7 Free Steam Games That You'll Struggle To Put Down
-
-Gaming, Steam, PC, The Finals
-
-Tue, 28 Jul 2026 16:30:11 GMT
-
-https://screenrant.com/7-free-steam-games-hard-to-put-down/
-
-These completely free Steam games are the perfect experience for those looking for truly engrossing experiences you'll never be able to put down.
----------
-
-# The Rings Of Power Season 3's Huge Balrog Change Is NOT Breaking Tolkien Canon
-
-Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
-
-Tue, 28 Jul 2026 16:30:11 GMT
-
-https://screenrant.com/the-rings-of-power-talking-balrog-not-break-tolkien-lore/
-
-Rings of Power is doing something with Balrogs that's never been done before, and while it's unique, the choice doesn't technically contradict canon.
----------
-
-# 007 First Light Switch 2 Release Date Leaked By Retailer
-
-Gaming, 007 First Light, James Bond, Nintendo Switch 2, Triple-A Games
-
-Tue, 28 Jul 2026 16:24:40 GMT
-
-https://screenrant.com/007-first-light-switch-2-release-date-leak/
-
-007 First Light has yet to arrive on the Nintendo Switch 2, likely due to hardware constraints, but a leaked release date indicates a short wait.
----------
-
-# The Batman 2 Return Gets Encouraging Update From Key DC Creative After 2028 Delay
-
-Movies, The Batman Part II, Batman, DC
-
-Tue, 28 Jul 2026 16:17:58 GMT
-
-https://screenrant.com/the-batman-2-return-2028-delay-michael-giacchino/
-
-EXCLUSIVE: After The Batman: Part II was delayed to 2028, one key creative who isn’t yet confirmed to return addresses whether he’ll be back.
 ---------
