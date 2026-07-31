@@ -1,3 +1,311 @@
+# Best Steampunk Fantasy Books Of All Time
+
+Books, Fantasy
+
+Fri, 31 Jul 2026 13:35:11 GMT
+
+https://screenrant.com/best-steampunk-fantasy-books/
+
+Few corners of fantasy have exploded in popularity like steampunk, and the best novels in the genre make it easy to see why it's so beloved.
+---------
+
+# Disney’s Tangled Remake Set Photos Reveal First Look At Kathryn Hahn’s Live-Action Mother Gothel
+
+Movies, Tangled
+
+Fri, 31 Jul 2026 13:33:49 GMT
+
+https://screenrant.com/tangled-disney-kathryn-hahn-mother-gothel-set-photos/
+
+Tangled is coming back with more action and mayhem, as new and exciting set photos officially unveil Kathryn Hahn as the villainous Mother Gothel.
+---------
+
+# Eternally Yours Interview with Ed Weeks, Allegra Edwards, Jaren Lewison & Helen J. Shen at SDCC 2026
+
+Videos, Eternally Yours, San Diego Comic-Con
+
+Fri, 31 Jul 2026 13:30:11 GMT
+
+https://screenrant.com/video/eternally-yours-ed-weeks-allegra-edwards-jaren-lewison-helen-shen-interview-sdcc-2026/
+
+Eternally Yours stars Ed Weeks, Allegra Edwards, Jaren Lewison, and Helen J Shen break down their vampire coven, explain how humans factor into the picture, and tease the rules of their mythology.
+---------
+
+# Terminator Meets True Detective In Netflix's 8-Part Sci-Fi Thriller
+
+Classic TV, Masked Recs
+
+Fri, 31 Jul 2026 13:30:11 GMT
+
+https://screenrant.com/terminator-meets-true-detective-netflix-sci-fi-thriller/
+
+There is an eight-episode science fiction thriller series on Netflix that is part Terminator, part True Detective, and well worth the investment.
+---------
+
+# Netflix's New 3-Part Crime Series On Idaho Murders Is An Instant #1 Hit For The Streamer
+
+TV, Netflix
+
+Fri, 31 Jul 2026 13:27:03 GMT
+
+https://screenrant.com/netflix-crime-series-idaho-murders-stream-hit-july-2026/
+
+Netflix's new, three-part crime series has officially become an instant, Number 1 hit for the streamer just days after premiering on the platform.
+---------
+
+# Matt Reeves' Batman Officially Returns In New 10-Part Series
+
+Streaming TV, Masked Recs
+
+Fri, 31 Jul 2026 13:00:54 GMT
+
+https://screenrant.com/matt-reeves-batman-caped-crusader-season-2-return/
+
+Ahead of The Batman - Part II, Matt Reeves' Batman is back in a DC series on Prime Video, and the Dark Knight fights the Joker, Poison Ivy, and more.
+---------
+
+# Superman's Official Venom Form Ranks Among DC's Strongest Kryptonians Ever
+
+Marvel Comics, Spider-Man, Superman, Venom
+
+Fri, 31 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/superman-venom-form-strongest-kryptonian-ever/
+
+In a rare 2026 Marvel and DC crossover, Superman became the most powerful host in symbiote history when he bonded with Venom to fight Spider-Man.
+---------
+
+# Spider-Man: Brand New Day's Post-Credits Confirms Tom Holland's MCU Future
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Fri, 31 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-post-credits-scene/
+
+At the end of the film, Spider-Man: Brand New Day has a post-credits tease that confirms Tom Holland's Spider-Man will return and hints at when.
+---------
+
+# 22 Years Later, The Sopranos' Best Line Is Still Absolutely Devastating
+
+Classic TV, The Sopranos
+
+Fri, 31 Jul 2026 13:00:11 GMT
+
+https://screenrant.com/the-sopranos-best-line-tony-wheres-johnny/
+
+The Sopranos is chock-full of memorable one-liners from TV's most well-written gangsters, but one line in particular captures the show's true purpose.
+---------
+
+# Ghosts Stars Tease Season 6’s Halloween Special & Eternally Yours Crossover Potential
+
+Interviews, Ghosts, Ghosts - Season 6, San Diego Comic-Con
+
+Fri, 31 Jul 2026 12:30:11 GMT
+
+https://screenrant.com/video/ghosts-season-6-halloween-special-eternally-yours-crossover-interview-sdcc-2026/
+
+Ghosts stars Utkarsh Ambudkar, Asher Grodman, and Román Zaragoza pal around with our host while debating the upcoming specials before season 6, the brewing sibling rivalry with Eternally Yours, Die Hard’s Christmas movie credentials, and ScreenRant’s penchant for top 10 lists.
+---------
+
+# Netflix Users Are Running Out of Time to Watch the Spider-Man Movies as Brand New Day Premieres
+
+Movies, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man 2, Spider-Man 3, Spider-Man: Brand New Day
+
+Fri, 31 Jul 2026 13:40:29 GMT
+
+https://www.cbr.com/netflix-will-lose-iconic-spider-man-movies-before-brand-new-day/
+
+Speaking for Spider-Man fans everywhere: say it isn't so, Netflix.
+---------
+
+# Ant-Man Star Reveals What It Would Take for Marvel to Make Ant-Man 4 After Quantumania Failed
+
+Movies, Ant-Man & the Wasp: Quantumania, MCU, Ant-Man
+
+Fri, 31 Jul 2026 13:37:01 GMT
+
+https://www.cbr.com/ant-man-kathryn-newton-ant-man-4-condition/
+
+The third film in the series was both a critical and commercial letdown for the MCU.
+---------
+
+# 35 Years Later, Netflix's Hit Action Series Still Follows One Unbreakable Rule
+
+Anime, Baki The Grappler, Baki-Dou: The Invincible Samurai, Netflix
+
+Fri, 31 Jul 2026 13:15:15 GMT
+
+https://www.cbr.com/netflix-hit-action-series-baki-dou-unbreakable-rule-35-years-later/
+
+Baki-Dou shows why Netflix's hit action anime remains so compelling 35 years later by never breaking its core formula.
+---------
+
+# Ray Wise's Forgotten Supernatural Series Gave TV Its Greatest Devil
+
+TV, Comedy, Reaper, ABC
+
+Fri, 31 Jul 2026 13:00:15 GMT
+
+https://www.cbr.com/forgotten-supernatural-series-reaper-ray-wise-tv-greatest-devil/
+
+There have been plenty of memorable performances as Satan in film and television, but Ray Wise's Devil may still sit atop the infernal throne.
+---------
+
+# 5 Greatest Fantasy Book Trilogies Of The Last 50 Years, Ranked
+
+Movies, Fantasy
+
+Fri, 31 Jul 2026 13:00:15 GMT
+
+https://www.cbr.com/greatest-fantasy-book-trilogies-last-50-years-list/
+
+In the last 50 years, the fantasy genre has evolved from its origins, with these groundbreaking trilogies pushing the boundaries of storytelling.
+---------
+
+# Marvel Officially Confirms X-Men Korea WEBTOON That Changes Everything
+
+Comics, X-Men, webtoon
+
+Fri, 31 Jul 2026 12:00:16 GMT
+
+https://www.cbr.com/marvel-confirms-x-men-korea-webtoon/
+
+WEBTOON is delivering the X-Men like you've never seen them before.
+---------
+
+# 10 Darkest Joker Stories Ever Published
+
+Comics, Joker
+
+Fri, 31 Jul 2026 12:00:16 GMT
+
+https://www.cbr.com/darkest-joker-stories-ever-published/
+
+These tales of the Clown Prince of Crime are no laughing matter.
+---------
+
+# Hadestown's Eva Noblezada and Reeve Carney Spill On All the "Behind the Curtain" Stories
+
+Movie, Hadestown: The Musical, Originals
+
+Fri, 31 Jul 2026 12:45:15 GMT
+
+https://collider.com/video/hadestown-s-eva-noblezada-and-reeve-carney-spill-on-all-the-behind-the-curtain-stories/
+
+Who's the best duo in Hadestown? Take a guess! Eva Noblezada (Eurydice) and Reeve Carney (Orpheus) are real life husband and wife who star in an epic romance based on the greek myth.
+---------
+
+# 3 Netflix Masterpieces to Binge This Weekend (Aug 1-2)
+
+TV, The Crown, Hannibal, Solar Opposites, Netflix
+
+Fri, 31 Jul 2026 12:41:15 GMT
+
+https://collider.com/best-netflix-shows-binge-august-1/
+
+The Crown, Hannibal, and Solar Opposites make up our list of the best Netflix shows to binge the weekend of August 1st, 2026.
+---------
+
+# 61 Years Ago, the Kinks Were Banned From the U.S. After a Catastrophic Tour
+
+Music Features, The Kinks, Music, Rock, Billboard Hot 100
+
+Fri, 31 Jul 2026 12:30:14 GMT
+
+https://collider.com/the-kinks-1965-us-tour/
+
+The Kinks' tumultuous 1965 US tour led to a ban in America, impacting their career, but ultimately propelling them to create their iconic album, The Village Green Preservation Society.
+---------
+
+# 20 Years Later, Zack Snyder’s Greek Epic Is Officially Taking the Streaming Crown
+
+Movie News, Zack Snyder, 300, Gerard Butler, The Odyssey
+
+Fri, 31 Jul 2026 12:30:14 GMT
+
+https://collider.com/zack-snyder-300-streaming-success-vudu-july-2026/
+
+Zack Snyder's historical fantasy movie 300 has risen to the top of the streaming charts after being overtaken at the box office by The Odyssey.
+---------
+
+# 10 Slowest Movies of All Time
+
+Movie, 2001: A Space Odyssey, Sátántangó, Memoria, Jeanne Dielman, 23, quai du Commerce, 1080 Bruxelles
+
+Fri, 31 Jul 2026 12:24:15 GMT
+
+https://collider.com/slowest-movies-all-time-ranked/
+
+The slowest-paced movies of all time include the likes of 2001: A Space Odyssey, An Elephant Sitting Still, and Songs from the Second Floor.
+---------
+
+# 26 Years Later, George Clooney’s ‘The Odyssey’ Adaptation Is Making a Comeback
+
+Movie News, O Brother, Where Art Thou?, George Clooney, Coen Brothers, John Turturro
+
+Fri, 31 Jul 2026 12:00:16 GMT
+
+https://collider.com/george-clooney-o-brother-where-art-thou-streaming-success-itunes-july-2026/
+
+The Coen Brothers' screwball musical comedy O Brother, Where Art Thou? has been resurrected on iTunes following the success of The Odyssey.
+---------
+
+# 'The Rings of Power's New Orc Could Officially Turn the Tide Against Sauron
+
+Exclusives, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Prime Video, SDCC
+
+Fri, 31 Jul 2026 12:00:16 GMT
+
+https://collider.com/rings-of-power-season-3-sauron-marnukh-the-orc/
+
+The cast and creators for Prime Video's The Rings of Power tease character arcs, brand-new faces, and what fans can expect from Season 3.
+---------
+
+# Forget 'The Odyssey,' Matt Damon's Crime Thriller Sets New Netflix Record
+
+Movie Features, The Rip, Joe Carnahan, Matt Damon, Ben Affleck
+
+Fri, 31 Jul 2026 11:57:15 GMT
+
+https://collider.com/matt-damon-thriller-sets-netflix-record/
+
+Joe Carnahan's 'The Rip,' starring Matt Damon and Ben Affleck, is one of Netflix's most-watched films of 2026 so far.
+---------
+
+# Prime Video's 94-Minute Alan Ritchson Action Hit Is Once Again a Streaming Smash
+
+Movie News, Alan Ritchson, Playdate, Hot on Streaming, Action, Prime Video
+
+Fri, 31 Jul 2026 13:08:22 GMT
+
+https://movieweb.com/playdate-prime-video-action-streaming-july-2026/
+
+Ahead of 'Reacher' Season 4, Alan Ritchson's 2025 action hit is once again a streaming smash on Prime Video.
+---------
+
+# Original 'X-Files' Icon Delivers Glowing Verdict on Ryan Coogler's Reboot
+
+TV News, The X-Files, Ryan Coogler, Gillian Anderson
+
+Fri, 31 Jul 2026 13:05:38 GMT
+
+https://movieweb.com/x-files-reboot-gillian-anderson-reaction/
+
+Dana Scully actress Gillian Anderson has praised Ryan Coogler's 'The X-Files' reboot but has not yet confirmed an official return.
+---------
+
+# When 'Lioness' Season 3 Releases & Full Schedule
+
+Features, Lioness, Taylor Sheridan
+
+Fri, 31 Jul 2026 12:00:13 GMT
+
+https://movieweb.com/lioness-season-3-release-schedule/
+
+'Lioness' is a Paramount+ action series created by Taylor Sheridan, starring Laysla De Oliveira and Zoe Saldaña.
+---------
+
 # Half-Life 3 Can Wait, Half-Life: Alyx Is Now Playable Without VR
 
 Gaming, Half-Life, Half-Life 2, Valve, Virtual Reality, Half-Life: Alyx
@@ -5188,312 +5496,4 @@ Wed, 29 Jul 2026 21:29:15 GMT
 https://collider.com/great-books-stephen-king-fans-should-read/
 
 There are plenty of books that scratch the same itch as some of Stephen King's best works, including King Sorrow, The Terror, and House of Leaves.
----------
-
-# Christopher Nolan’s ‘The Odyssey’ Officially Sets New Release Amid Box Office Success
-
-Movie News, The Odyssey, Christopher Nolan, Fantasy, Matt Damon
-
-Wed, 29 Jul 2026 21:00:15 GMT
-
-https://collider.com/christopher-nolan-the-odyssey-screenplay-book-release-date-august-2026/
-
-As Christopher Nolan's The Odyssey breaks new ground at the box office, the movie is getting a brand-new expansion this August.
----------
-
-# 6 Years Later, These Are the 8 Best Movies of 2020
-
-Movie, The Father, Another Round, Sound of Metal, Minari
-
-Wed, 29 Jul 2026 20:54:15 GMT
-
-https://collider.com/best-movies-2020-ranked/
-
-From Palm Springs to Another Round, these 2020 films aged beautifully, proving great cinema can outlast even chaotic years.
----------
-
-# Paramount's Upcoming Fantasy Adaptation Called "Worst Thing" Author Lived Through
-
-Movie News, Children of Blood and Bone, Fantasy, Gina Prince-Bythewood
-
-Wed, 29 Jul 2026 21:51:06 GMT
-
-https://movieweb.com/paramount-children-of-blood-and-bone-tomi-adeyemi-reaction/
-
-There's a lot of controversy swirling around this upcoming fantasy film.
----------
-
-# Mike Flanagan Is Now Making Two Great TV Series Inspired by 'The Lord of the Rings'
-
-Features, The Lord of the Rings, Mike Flanagan, The Dark Tower, Warhammer 40k
-
-Wed, 29 Jul 2026 21:00:12 GMT
-
-https://movieweb.com/mike-flanagan-tv-series-lord-of-the-rings/
-
-Mike Flanagan just added a shocking new 'Lord of the Rings'-inspired series that will take his already busy schedule in a bold direction.
----------
-
-# After Beating '70s Classic at the Box Office, 2026's Thriller Hit Is Now the #1 Biggest Film on Streaming
-
-Movie News, Obsession, The Exorcist, Hot on Streaming, Box Office Milestones
-
-Wed, 29 Jul 2026 21:00:12 GMT
-
-https://movieweb.com/obsession-beats-exorcist-streaming-hit-july-2026/
-
-The year's biggest theatrical hit is now an unstoppable streaming force.
----------
-
-# Suits: Every Name The Firm Goes By Across 9 Seasons
-
-Classic TV, Suits
-
-Wed, 29 Jul 2026 20:30:29 GMT
-
-https://screenrant.com/suits-firm-name-changes-pearson-spector-litt/
-
-Suits has a compelling narrative about struggles for power, but the firm where the lawyer's practice goes through an unruly number of changes.
----------
-
-# Foundation Meets Blade Runner In Apple TV's 10-Part Sci-Fi Show
-
-Streaming TV, Masked Recs
-
-Wed, 29 Jul 2026 20:30:26 GMT
-
-https://screenrant.com/neuromancer-foundation-meets-blade-runner-apple-tv/
-
-Apple TV+ is bringing one of the most influential cyberpunk novels to the screen, proving once again that nothing is unadaptable.
----------
-
-# 10 Movies To Watch If You Love Heat (1995)
-
-Movies, Heat, Dog Day Afternoon, Collateral, The Departed, Thief, To Live and Die in L.A., Drive, Hell or High Water, The Usual Suspects, Once Upon a Time in America, The Town
-
-Wed, 29 Jul 2026 20:30:26 GMT
-
-https://screenrant.com/movies-like-heat-1995/
-
-While Michael Mann’s Heat is one of a kind, there are several other masterful crime-thrillers and neo-noirs that Heat fans should check out.
----------
-
-# 2026 TV Show Renewals: Every Show Confirmed To Return This Year & Beyond
-
-Streaming TV
-
-Wed, 29 Jul 2026 20:15:25 GMT
-
-https://screenrant.com/tv-shows-renewed-2026/
-
-All the latest updates on the 2026-2027 TV season, including renewed shows and their premiere dates across various networks and streaming platforms.
----------
-
-# Glen Powell’s Hit R-Rated Series Officially Returns To Hulu In 1 Month With First Images & Release Date
-
-TV, Chad Powers, Chad Powers - Season 2
-
-Wed, 29 Jul 2026 20:13:14 GMT
-
-https://screenrant.com/glen-powell-chad-powers-season-2-premiere-date-first-images/
-
-Hulu announces the season 2 premiere date for Golden Globe nominee Glen Powell’s hit sports comedy TV show, which first launched in fall 2025.
----------
-
-# Robert De Niro's 111-Minute Mafia Crime Thriller Is Running Out Of Time To Stream
-
-Movies, Masked Recs
-
-Wed, 29 Jul 2026 20:07:40 GMT
-
-https://screenrant.com/robert-de-niro-the-family-movie-leaving-stream-august-2026/
-
-Robert De Niro has starred in some of cinema's greatest Mafia movies, but one of his more overlooked crime thrillers is about to leave HBO Max.
----------
-
-# 10 Greatest RPGs On Game Boy Advance (& How To Play Them Now)
-
-Gaming
-
-Wed, 29 Jul 2026 20:00:19 GMT
-
-https://screenrant.com/greatest-rpgs-game-boy-advance-how-play-now/
-
-The Nintendo Game Boy Advance era was truly the golden age for RPGs, and these 10 are among the best role-playing games the GBA had to offer.
----------
-
-# 8 Best Star Trek Doctors, Ranked
-
-Streaming TV, Star Trek
-
-Wed, 29 Jul 2026 20:00:19 GMT
-
-https://screenrant.com/best-star-trek-doctors-ranked/
-
-No locations in Star Trek tie the wide variety of starships together like their sickbay, and so medical officers have become a franchise staple.
----------
-
-# Steve Rogers' Possible New MCU Codename Would Completely Change The Meaning Of A Classic Superhero Alter Ego
-
-Movies, Avengers: Doomsday, Marvel Cinematic Universe
-
-Wed, 29 Jul 2026 19:55:15 GMT
-
-https://screenrant.com/steve-rogers-possible-new-mcu-codename-would-bring-a-new-meaning-to-a-classic-superhero-alter-ego/
-
-A new codename for Avengers: Doomsday's Steve Rogers was hinted at during SDCC. It would potentially bring a new meaning to the superhero alter ego.
----------
-
-# Tom DeLonge on Breaking Bear's Chaos | SDCC 2026
-
-TV, Breaking Bear
-
-Wed, 29 Jul 2026 20:32:50 GMT
-
-https://www.cbr.com/video/tom-delonge-on-breaking-bear-s-chaos-sdcc-2026/
-
-Breaking Bear is an adult animated comedy that refuses to play it safe, and its cast says that's exactly what makes it work. At SDCC 2026, Tom DeLonge and Chris Diamantopoulos break down the show's outrageous humor and how the creative team kept pushing every joke further.
----------
-
-# ABC Is Quietly Stealing Justin Hartley's Tracker Formula From CBS
-
-TV, Tracker
-
-Wed, 29 Jul 2026 20:30:30 GMT
-
-https://www.cbr.com/abc-tracker-formula-a-forgotten-kill/
-
-It's official: ABC is quietly stealing CBS's successful formula in Tracker as Justin Hartley helps develop a rival series for the 2026-2027 TV cycle.
----------
-
-# 5 Greatest Agatha Christie Movies of the 21st Century, Ranked
-
-Movies, A Haunting in Venice, Murder on the Orient Express
-
-Wed, 29 Jul 2026 20:30:30 GMT
-
-https://www.cbr.com/best-agatha-christie-movies-21st-century-list/
-
-Agatha Christie is one of the greatest mystery authors of all time and her novels have been adapted into countless memorable and wonderful films.
----------
-
-# 5 Hard Sci-Fi Anime Series That Are Perfectly Written
-
-Anime, Sci-Fi, Serial Experiments Lain, Steins;Gate
-
-Wed, 29 Jul 2026 20:15:24 GMT
-
-https://www.cbr.com/perfectly-written-hard-sci-fi-anime/
-
-Hard sci-fi anime stands apart by exploring futuristic technology, scientific theory and the consequences of human innovation with remarkable depth.
----------
-
-# Gundam's Most Monstrous Final Boss Gets a Massive LEGO Transformation
-
-Anime, Mobile Suit Gundam, Mobile Fighter G Gundam, LEGO
-
-Wed, 29 Jul 2026 20:05:22 GMT
-
-https://www.cbr.com/g-gundam-devil-mecha-lego-build/
-
-One of the most monstrous and impressive villain mecha designs from Mobile Fighter G Gundam has been recreated by a master LEGO set builder.
----------
-
-# Apple's 10/10 Sci-Fi Series Is 1 of the Most-Watched Shows in the US After Prime Video Takeover
-
-TV, Silo, Apple TV, Prime Video
-
-Wed, 29 Jul 2026 20:00:21 GMT
-
-https://www.cbr.com/silo-apple-tv-prime-video-success-july-2026/
-
-Apple TV's sci-fi show is currently one of the Top 10 TV Shows on Prime Video
----------
-
-# 10 Best Far Side Comics That Never Stop Being Funny
-
-Comics, The Far Side
-
-Wed, 29 Jul 2026 20:00:21 GMT
-
-https://www.cbr.com/best-timeless-far-side-comics-always-funny/
-
-These 10 masterpieces from the legendary Gary Larson are absolutely timeless pieces of comic comedy, and they've never stopped making us laugh.
----------
-
-# 34 Years Later, Peter Gabriel's Most Heartbreaking Song Still Captures the End of an Era
-
-Music Features, Peter Gabriel: Growing Up Live, Music
-
-Wed, 29 Jul 2026 20:41:15 GMT
-
-https://collider.com/peter-gabriel-come-talk-to-me-heartbreaking-song/
-
-Peter Gabriel's hit ballad from his 1992 album Us is a vulnerable and heartfelt plea to his daughter during a difficult time in his life.
----------
-
-# George R.R. Martin’s Favorite Cancelled Sci-Fi Series Officially Dominates Streaming Charts
-
-TV News, The Expanse, George R.R. Martin, Prime Video, SyFy
-
-Wed, 29 Jul 2026 20:30:29 GMT
-
-https://collider.com/the-expanse-george-rr-martin-favorite-sci-fi-epic-global-streaming-success-july-2026/
-
-The critically acclaimed sci-fi epic that George R.R. Martin compared to Firefly and Battlestar Galactica is taking over global streaming
----------
-
-# 10 Greatest Thriller Book Series of All Time
-
-Books and Comics, Books, Thriller, Agatha Christie, Stieg Larsson
-
-Wed, 29 Jul 2026 20:28:28 GMT
-
-https://collider.com/best-thriller-book-series-all-time/
-
-From Jack Reacher to Miss Marple, Harry Bosch to Hannibal Lecter, these thriller book series are the best of the best.
----------
-
-# All 20 Paradox Pokémon, Ranked
-
-Gaming, Pokémon, Anime, Video Game, Adventure
-
-Wed, 29 Jul 2026 20:05:22 GMT
-
-https://collider.com/paradox-pokemon-ranked/
-
-Paradox Pokémon are among the most interesting additions to the franchise in recent years, but which of these past and future creatures is the best?
----------
-
-# Kevin Costner’s Prime Video 8-Part Civil War Series Officially Gets Season 2 Update
-
-TV News, Kevin Costner, Prime Video, The Gray House, Mary-Louise Parker
-
-Wed, 29 Jul 2026 20:00:21 GMT
-
-https://collider.com/the-gray-house-season-2-update/
-
-The Gray House star Keith David expresses hope for a Season 2, citing the wealth of untold American history that could fuel new stories
----------
-
-# Beloved Fantasy Series Adaptation Reportedly to Become a Trilogy
-
-Movie News, Magic: The Gathering
-
-Wed, 29 Jul 2026 20:02:28 GMT
-
-https://movieweb.com/magic-the-gathering-movie-trilogy-plans-matt-johnson/
-
-The announced Magic: The Gathering adaptation might be three movies instead of just one.
----------
-
-# 10 Crunchyroll Action Thriller Anime That Are Better Than 'Demon Slayer'
-
-TV Lists, Demon Slayer, Anime, Action
-
-Wed, 29 Jul 2026 20:00:19 GMT
-
-https://movieweb.com/crunchyroll-action-thriller-anime-better-demon-slayer/
-
-'Demon Slayer' is often hailed as one of the best modern anime, but there are numerous series that have it beat — just not visually.
 ---------
