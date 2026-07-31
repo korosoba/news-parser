@@ -1,3 +1,190 @@
+# Game Of Thrones: The Peaceful King Officially Available Now
+
+Gaming, Game of Thrones, Game Of Thrones, House of the Dragon, House of the Dragon - Season 1, PC
+
+Fri, 31 Jul 2026 06:00:11 GMT
+
+https://screenrant.com/game-of-thrones-legends-peaceful-king-proving-ground-update/
+
+Game of Thrones: The Peaceful King is a brand-new release that completely revives House of the Dragon's most beloved character.
+---------
+
+# The Witcher Remake's Open-World Size And Scope Has Split Gamers
+
+Gaming, The Witcher, Triple-A Games
+
+Fri, 31 Jul 2026 05:45:11 GMT
+
+https://screenrant.com/witcher-remake-open-world-size-gamers-react/
+
+The original Witcher had its own unique structure that worked for it in 2007, but with a remake on the way, fans are undecided on how it'll work out.
+---------
+
+# Zelda: Majora's Mask Switch 2 Remake Highlights A Very Real Problem
+
+Gaming, The Legend of Zelda: Majora's Mask, Nintendo, Nintendo Switch 2, The Legend of Zelda: Ocarina of Time
+
+Fri, 31 Jul 2026 05:30:11 GMT
+
+https://screenrant.com/zelda-majoras-mask-remake-hopes-problems/
+
+A Nintendo Switch 2 remake of The Legend of Zelda: Majora's Mask reveals a huge problem that fans simply cannot ignore any more.
+---------
+
+# Iron Lung Meets Stranger Things In Twisted New Horror
+
+Gaming, Stranger Things, Steam, PC, Iron Lung
+
+Fri, 31 Jul 2026 05:00:11 GMT
+
+https://screenrant.com/iron-lung-meets-stranger-things-new-horror/
+
+This absurdly scary new horror game is like stepping into the Upside Down after The Quiet Rapture, and it's available to play on Steam now.
+---------
+
+# George R.R. Martin-Approved Cancelled Sci-Fi Show Is Getting A Mass Effect-Style Video Game
+
+Gaming, George R.R. Martin, The Expanse, Mass Effect, Sci-Fi, PC
+
+Fri, 31 Jul 2026 04:45:11 GMT
+
+https://screenrant.com/expanse-osiris-reborn-george-rr-martin-favorite-show/
+
+George R.R. Martin's favorite cancelled sci-fi show will make an official return in 2027 with a Mass Effect-style video game adaptation.
+---------
+
+# The Owl House Meets Stardew Valley In 2026 GOTY Contender
+
+Gaming, Stardew Valley, Indie Games, PC
+
+Fri, 31 Jul 2026 04:15:11 GMT
+
+https://screenrant.com/owl-house-meets-stardew-valley-witchbrook/
+
+This upcoming game combines elements of Stardew Valley and The Owl House for a delightfully cozy and magical pixel adventure, and we can't wait.
+---------
+
+# Obi-Wan Kenobi Fans Should Keep An Eye On September 2026
+
+Gaming, Star Wars, Triple-A Games
+
+Fri, 31 Jul 2026 04:00:14 GMT
+
+https://screenrant.com/obi-wan-kenobi-september-2026-statue/
+
+Star Wars fans have been following the character of Obi-Wan Kenobi for decades, and now he's making a triumphant return in September.
+---------
+
+# Spider-Man’s 10 Most Horrifying Mutations In Marvel History
+
+Comics, Spider-Man, Marvel
+
+Fri, 31 Jul 2026 03:53:14 GMT
+
+https://screenrant.com/spider-man-most-horrific-transformations-marvel/
+
+Spider-Man's great power has almost always meant much heavier personal sacrifices on top of heroic responsibilities and these are the worst yet.
+---------
+
+# Anthropic Destroys Rare And Valuable Books To Feed The Machine - The Latest AI Controversy Explained
+
+Books
+
+Fri, 31 Jul 2026 03:45:42 GMT
+
+https://screenrant.com/anthropic-ai-rare-valuable-books-destroyed-controversy-explained/
+
+Anthropic has come under public scrutiny for destroying rare and valuable books to train its AI bot. Here's what's happening and whether it's legal.
+---------
+
+# Exactly 32 Years Later, One Of X-Men's Most Powerful Heroes Is Their Newest Leader
+
+Marvel Comics, X-Men
+
+Fri, 31 Jul 2026 03:41:33 GMT
+
+https://screenrant.com/x-men-monet-anniversary-leader/
+
+A powerful X-Men mutant officially rises to co-leader of the Uncanny X-Men just in time to celebrate thirty-two years of comic history.
+---------
+
+# Pokémon Card Collection Worth $250,000 Found in Grandma’s House 20 Years Later
+
+Games, Pokemon TCG, Pokemon
+
+Fri, 31 Jul 2026 05:00:15 GMT
+
+https://www.cbr.com/pokemon-card-collection-found-20-years-later-250000/
+
+A veritable treasure trove of classic Pokémon merchandise has been uncovered in one lucky grandmother's home, including $250,00 worth of vintage cards
+---------
+
+# New Girl Creator Reveals the ‘Odd’ Way She’d Relax While Working On the Hit Comedy
+
+TV, New Girl, Furious, Hulu
+
+Fri, 31 Jul 2026 04:31:33 GMT
+
+https://www.cbr.com/new-girl-creator-elizabeth-meriwether-furious-crime-thrillers/
+
+New Girl creator Elizabeth Meriwether reveals why crime thrillers helped her unwind and inspired her Hulu series Furious.
+---------
+
+# Pokémon Releases Massive New 3-Hour Special Starring 4 Fan-Favorite Pokémon
+
+Anime, Pokemon Trading Card Game Pocket, Pokemon
+
+Fri, 31 Jul 2026 03:59:15 GMT
+
+https://www.cbr.com/pokemon-tcg-pocket-puppy-livestream/
+
+Pokémon TCG Pocket celebrates the release of its latest expansion with a delightfully cozy livestream starring pups like Yamper, Growlithe and more.
+---------
+
+# 5 10/10 Anime Movies With Perfect Scores on Rotten Tomatoes
+
+Anime, A Silent Voice, Your Name, Spirited Away
+
+Fri, 31 Jul 2026 03:45:15 GMT
+
+https://www.cbr.com/anime-movies-perfect-scores-rotten-tomatoes/
+
+These anime movies have perfect scores on Rotten Tomatoes because of their flawless narratives and gorgeous animation.
+---------
+
+# 8 Most Suspenseful Thriller Movies of All Time, Ranked
+
+Movie, Thriller, Anatomy of a Fall, The Game, Rear Window
+
+Fri, 31 Jul 2026 04:51:14 GMT
+
+https://collider.com/most-suspenseful-thriller-movies-ever-ranked/
+
+Anatomy of a Fall, The Game, Rear Window, Zodiac, and more make up our list of the most suspenseful thriller movies of all time.
+---------
+
+# 10 Book Masterpieces That Are Perfectly Written
+
+Books and Comics, Books, The Great Gatsby, One Hundred Years of Solitude, East of Eden
+
+Fri, 31 Jul 2026 04:15:14 GMT
+
+https://collider.com/book-masterpieces-perfectly-written/
+
+From The Great Gatsby to East of Eden, these classic books are masterpieces of literature with vivid, richly detailed, and unforgettable writing.
+---------
+
+# 9 Most Perfect Anime of the Last 25 Years
+
+TV, Anime, Fullmetal Alchemist: Brotherhood, Hunter x Hunter, Attack On Titan
+
+Fri, 31 Jul 2026 04:07:14 GMT
+
+https://collider.com/most-perfect-anime-last-25-years-ranked/
+
+Hunter x Hunter, My Hero Academia, and Attack on Titan are among the best anime of the last 25 years, but which series is considered the greatest?
+---------
+
 # 4-Part Mystery Series With Near-Perfect RT Score Shows Under The Dome How It's Done
 
 Streaming TV, Masked Recs
@@ -5309,191 +5496,4 @@ Wed, 29 Jul 2026 18:00:12 GMT
 https://screenrant.com/best-medieval-history-shows-ranked/
 
 Medieval settings can make for interesting stories whether it's Viking Europe or Kublai Khan's Asia. Here are the best medieval TV shows available.
----------
-
-# New 9/10 Open-World RPG Is Like Crimson Desert Meets Zelda: Breath Of The Wild
-
-Gaming, RPG, PC, Triple-A Games
-
-Wed, 29 Jul 2026 18:00:11 GMT
-
-https://screenrant.com/crimson-desert-meets-zelda-open-world-rpg/
-
-A new open-world RPG with 9/10 review scores has just been released, and it may be a great successor to Crimson Desert and Zelda games.
----------
-
-# 16 Years Later, Disney Finally Drops The Official Tangled Sequel Fans Have Waited For
-
-Books, Disney, Tangled
-
-Wed, 29 Jul 2026 17:34:03 GMT
-
-https://screenrant.com/tangled-sequel-rootbound-disney/
-
-Sixteen years after the original film's theatrical debut, Disney has finally released an official sequel to Tangled, but it's not what you may expect.
----------
-
-# One Of The MCU's Best Trilogies Returns In Less Than 3 Months
-
-Streaming TV, Masked Recs, Marvel Cinematic Universe
-
-Wed, 29 Jul 2026 17:30:11 GMT
-
-https://screenrant.com/wandavision-mcu-best-trilogy-returns-visionquest/
-
-As the MCU moves towards the end of the Multiverse Saga, one of the franchise's best trilogies will finally conclude in less than three months.
----------
-
-# The Best Comic Issue Of The Year Hits Shelves Today
-
-Marvel Comics, Marvel
-
-Wed, 29 Jul 2026 17:27:09 GMT
-
-https://screenrant.com/mortal-thor-best-comic/
-
-The best comic of 2026 so far presents a single-issue tragedy that completely changes how readers will see an underrated mythical hero.
----------
-
-# Netflix’s R-Rated Dark Fantasy Streaming Sensation Deserves A Second Season
-
-TV, Masked Recs
-
-Wed, 29 Jul 2026 17:16:22 GMT
-
-https://screenrant.com/the-east-palace-netflix-deserves-season-2/
-
-A new dark fantasy series has become one of Netflix's biggest international hits of 2026 so far, and deserves to continue into season 2.
----------
-
-# Reacher Season 5 Confirms Return Of Major Star After Season 4 Recasting
-
-TV, Reacher, Jack Reacher
-
-Wed, 29 Jul 2026 17:13:03 GMT
-
-https://screenrant.com/reacher-season-5-cast-jay-baruchel-return-season-4-recast/
-
-Reacher season 5 is adding multiple new stars to its cast, including one major star who was previously recast during production of season 4.
----------
-
-# New Version Of Original IT Movie Being Released Next Month Ahead Of Welcome To Derry S2
-
-Movies, It, IT
-
-Wed, 29 Jul 2026 17:11:29 GMT
-
-https://screenrant.com/it-movie-cosm-shared-reality-experience-release-date/
-
-Almost a decade after being released in theaters, the big screen adaptation of Stephen King’s IT is getting a unique new release this summer.
----------
-
-# Christopher Nolan's The Odyssey Hits Massive Box Office Milestone Quicker Than His All-Time Highest-Grossing Film
-
-Movies, The Odyssey, Box Office
-
-Wed, 29 Jul 2026 17:11:07 GMT
-
-https://screenrant.com/the-odyssey-2026-christopher-nolan-320m-domestic-box-office-milestone-career-comparison/
-
-Christopher Nolan's The Odyssey surpasses a massive box-office milestone faster than the director's highest-grossing movie of all time.
----------
-
-# House of The Dragon's Alyn Of Hull Plays Game Of Thrones: Dragonfire Prior To His Debut
-
-Gaming, House of the Dragon, Game of Thrones
-
-Wed, 29 Jul 2026 17:00:11 GMT
-
-https://screenrant.com/video/game-of-thrones-dragonfire-house-of-the-dragon-alyn-hull-reaction/
-
-Exclusive: ScreenRant presents a clip of House of the Dragon's Abubakar Salim playing Game of Thrones: Dragonfire, the newly launched mobile game.
----------
-
-# Prime Video's New 8-Part Detective Show With 92% RT Explodes on Streaming at the Perfect Time
-
-TV, Spider-Noir, Spider-Man: Brand New Day, Prime Video
-
-Wed, 29 Jul 2026 18:01:14 GMT
-
-https://www.cbr.com/spider-noir-prime-video-detective-show-success-july-2026/
-
-Prime Video's detective series is one of the most-watched shows on TV
----------
-
-# 10 Batman Comics That Forever Changed Bruce Wayne
-
-Comics, Batman, DC Comics, Absolute Batman
-
-Wed, 29 Jul 2026 18:01:14 GMT
-
-https://www.cbr.com/batman-comics-that-changed-bruce-wayne-forever/
-
-Since his creation back in 1939, Batman has earned his spot at the top of DC's universe, and some stories changed Bruce Wayne's story forever.
----------
-
-# Solo Leveling Confirms Manhwa Return With New Sung Jinwoo Transformation
-
-Anime, Solo Leveling:ARISE, Solo Leveling
-
-Wed, 29 Jul 2026 17:50:15 GMT
-
-https://www.cbr.com/solo-leveling-arise-jinwoo-shadow-monarch-ragnarok-manhwa-connection/
-
-Fans waiting for the Solo Leveling: Ragnarok manhwa’s comeback just got a solid update by way of the Shadow Monarch’s Successor being added to Arise.
----------
-
-# Paramount+'s New Avatar Show Continues Nickelodeon's Oldest Last Airbender Trend
-
-TV, Avatar: The Last Airbender, Avatar: Seven Havens
-
-Wed, 29 Jul 2026 17:30:15 GMT
-
-https://www.cbr.com/avatar-seven-havens-the-last-airbender-trend/
-
-Avatar: Seven Havens is the latest in the franchise to tackle a timeless topic that explains its apocalypse.
----------
-
-# 5 Most Expensive Ghost-Type Pokemon Cards, Ranked by Price
-
-Games, Pokemon, Pokemon TCG, Tabletop, TCG
-
-Wed, 29 Jul 2026 17:30:15 GMT
-
-https://www.cbr.com/most-expensive-ghost-type-pokemon-cards-ranked/
-
-Ghost-type cards in the Pokemon TCG can command tens of thousands of dollars, often due to their spooky aesthetic.
----------
-
-# 5 R-Rated 2000s Westerns Worth Watching Again and Again, Ranked
-
-Movies, Western, 3:10 to Yuma, The Proposition
-
-Wed, 29 Jul 2026 17:30:15 GMT
-
-https://www.cbr.com/most-rewatchable-r-rated-westerns-2000s-list/
-
-The 2000s served up some of the best Western movies ever made, finding strength in the R-rated dark side of the genre through a variety of gems.
----------
-
-# Amazon Unveils Michael B. Jordan’s Remake of Pierce Brosnan’s Beloved 27-Year-Old Crime Classic
-
-Movies, The Thomas Crown Affair
-
-Wed, 29 Jul 2026 17:28:50 GMT
-
-https://www.cbr.com/michael-b-jordan-thomas-crown-affair-trailer/
-
-Michael B. Jordan's first live-action movie since winning an Oscar is almost here.
----------
-
-# Naruto Brings Team 7 Back Together in New First-Look Trailer
-
-Anime, Naruto
-
-Wed, 29 Jul 2026 17:26:24 GMT
-
-https://www.cbr.com/naruto-tcg-first-look-trailer/
-
-The ninjas of Team 7 have reunited in a first look at a highly anticipated Naruto game that features characters from the entire franchise.
 ---------
