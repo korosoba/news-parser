@@ -1,3 +1,289 @@
+# All 21 Batman TV Shows, Ranked Worst To Best
+
+Superheroes, Batman, DC Universe
+
+Fri, 31 Jul 2026 22:45:11 GMT
+
+https://screenrant.com/batman-tv-shows-ranked/
+
+There have been quite a few Batman shows over the years, both animated and live-action (and some are much better than others). Here's our ranking.
+---------
+
+# 8 Best David Jonsson Roles, Ranked
+
+Movies, Black Panther, David Jonsson
+
+Fri, 31 Jul 2026 22:30:11 GMT
+
+https://screenrant.com/best-david-jonsson-roles-hype-black-panther-3/
+
+The MCU's latest Black Panther has more experience, range and filmography than many give him credit for.
+---------
+
+# It: Welcome To Derry Season 2 Is Set Up To Be A Masterclass In Stephen King Storytelling
+
+Streaming TV, Stephen King, It: Welcome to Derry, IT: Welcome to Derry - Season 1
+
+Fri, 31 Jul 2026 22:15:11 GMT
+
+https://screenrant.com/it-welcome-to-derry-season-2-prequel-story-stephen-king-storytelling/
+
+All the reveals and details surrounding It: Welcome to Derry season 2 seem to suggest that it is set to be a masterclass in Stephen King storytelling.
+---------
+
+# New Avengers: Doomsday Preview Reveals Best Look Yet At The X-Men’s Costumes
+
+Movies, Avengers: Doomsday
+
+Fri, 31 Jul 2026 22:14:08 GMT
+
+https://screenrant.com/avengers-doomsday-preview-new-xmen-costumes/
+
+A new preview of Avengers: Doomsday offers an up-close and very detailed look at the X-Men's costumes in Marvel Studios' upcoming film.
+---------
+
+# Spider-Man's Darkest Venom Variant Makes Peter Parker Absolute Nightmare Fuel
+
+Comics, Spider-Man
+
+Fri, 31 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/spider-man-peter-parker-poison-venom-variant/
+
+The Venom symbiote has limitless potential thanks to a legion of available hosts, but this appearance from nearly 20 years ago may take the cake.
+---------
+
+# Zelda Meets The Owl House In New Open-World Game You Can Play Free Now
+
+Gaming, The Legend of Zelda, Triple-A Games
+
+Fri, 31 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/zelda-meets-owl-house-free-open-world-demo/
+
+The Owl House and Zelda are good company - now you can play an open-world game that marries the two right now, and the best part is that it's free.
+---------
+
+# Prime Video's Reacher Will Never Be The Same
+
+Streaming TV, Reacher
+
+Fri, 31 Jul 2026 22:00:11 GMT
+
+https://screenrant.com/reacher-prime-video-series-change-season-5/
+
+Reacher might be Prime Video's flagship action series, but it is about to take a dark turn, with season 5 adapting Lee Child's most disturbing book.
+---------
+
+# Spider-Man: Brand New Day Passes Supergirl's Entire Box Office In 1 Day & Confirms A Harsh DC Truth
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Supergirl, Marvel Cinematic Universe, DC Universe
+
+Fri, 31 Jul 2026 21:46:09 GMT
+
+https://screenrant.com/spider-man-brand-new-day-box-office-supergirl-dc-truth/
+
+Tom Holland's Spider-Man: Brand New Day only needed a day to pass Supergirl's entire box office run, and it confirms a harsh DC Universe truth.
+---------
+
+# Daniel Warren Johnson: The Story He Almost Abandoned | SDCC 2026
+
+Comics, image comics
+
+Fri, 31 Jul 2026 22:25:37 GMT
+
+https://www.cbr.com/video/daniel-warren-johnson-the-story-he-almost-abandoned-sdcc-2026/
+
+Daniel Warren Johnson explains why Chain Cat almost never happened and how Dune helped bring the series back to life. At SDCC 2026, the acclaimed creator discusses the eight-year journey behind his new Image Comics series, balancing creator-owned projects with hits like Transformers and Absolute Batman, and why world-building proved to be his biggest challenge.
+---------
+
+# 5 Most Anticipated Games Releasing in August 2026, Ranked
+
+Games, Video Games, Marvel, Gaming
+
+Fri, 31 Jul 2026 22:15:14 GMT
+
+https://www.cbr.com/most-anticipated-games-releasing-august-2026/
+
+August is jam packed with so many games from blockbusters to indie releases, but only six of them stand out as the most-anticipated releases.
+---------
+
+# Syfy's The Walking Dead Replacement With 90% RT Is Finally Heading to Netflix as Fans Await Season 2
+
+TV, Revival
+
+Fri, 31 Jul 2026 22:14:24 GMT
+
+https://www.cbr.com/revival-season-2-update-netflix-august-2026/
+
+Catch up on the first season of the acclaimed horror series on Netflix to help get the series an official renewal.
+---------
+
+# DC Comics Officially Gives Superman His Own Venom Symbiote
+
+Comics, Marvel, Marvel Comics, MCU, DC Comics, Spider-Man, Superman
+
+Fri, 31 Jul 2026 22:00:14 GMT
+
+https://www.cbr.com/dc-comics-officially-gives-superman-venom-symbiote/
+
+The most powerful Venom host ever, Superman, was just revealed by DC Comics.
+---------
+
+# Netflix Says Goodbye to the War Movie That Remains the Last Great Masterpiece of Its Kind
+
+Movies, Hacksaw Ridge
+
+Fri, 31 Jul 2026 22:00:14 GMT
+
+https://www.cbr.com/hacksaw-ridge-war-leaving-netflix-august-2026/
+
+Audiences only have a few days left to watch one of the greatest war films of all time before it leaves one of the biggest streaming platforms.
+---------
+
+# Any Given Smile: Stephanie Williams on Horror & Football | SDCC 2026
+
+Comics, comics
+
+Fri, 31 Jul 2026 21:49:17 GMT
+
+https://www.cbr.com/video/any-given-smile-stephanie-williams-on-horror-football-sdcc-2026/
+
+Any Given Smile writer Stephanie Williams explains how football, sports gambling, and mental health became the foundation for her terrifying new story set in the Smile universe. Speaking at SDCC 2026, Williams also reflects on her Eisner Award nomination and the inspiration behind bringing horror to the gridiron.
+---------
+
+# 10 Perfect Sci-Fi Shows With 5 Seasons or Less
+
+TV, Sci-Fi, Andor, Dark, The Twilight Zone
+
+Fri, 31 Jul 2026 22:44:14 GMT
+
+https://collider.com/perfect-sci-fi-shows-shorter-than-5-seasons/
+
+Explore great sci-fi shows that masterfully tell their stories in five seasons or fewer, proving that sometimes less is more, from Dark to Andor.
+---------
+
+# Netflix’s Biggest Sci-Fi Creature Feature Could Succeed Where Apple TV+’s ‘Monarch’ Fell Short
+
+TV Features, Netflix, Below, Josh Hartnett, Monarch: Legacy of Monsters
+
+Fri, 31 Jul 2026 22:34:14 GMT
+
+https://collider.com/netflix-sci-fi-series-below-monarch-replacement/
+
+On October 8, Netflix is premiering Below, a sci-fi series with Josh Hartnett that could be the perfect Monarch: Legacy of Monsters replacement.
+---------
+
+# 3 Spider-Man Movie Deaths That Don't Make Any Sense
+
+Movie, Spider-Man, Spider-Man: No Way Home, Amazing Spider-Man, Spider-Man 3
+
+Fri, 31 Jul 2026 22:19:14 GMT
+
+https://collider.com/spider-man-movie-deaths-dont-make-sense/
+
+The character of Peter Parker is largely defined by loss and grief, but some of the major Spider-Man movie deaths don't make sense under scrutiny.
+---------
+
+# Spider-Man: Brand New Day' Just Dropped the First Major 'Avengers: Secret Wars' Clue
+
+Movie Features, Spider-Man: Brand New Day, Venom, Avengers: Doomsday, Avengers: Secret Wars
+
+Fri, 31 Jul 2026 22:07:57 GMT
+
+https://collider.com/spider-man-brand-new-day-post-credits-avengers-secret-wars/
+
+The post credits scene for Spider-Man: Brand New Day just hinted at the web-slinger's next appearance - and it's not the movie fans might expect.
+---------
+
+# 10 Genuinely Perfect Heist Movies, Ranked
+
+Movie, Snatch, Ocean's Eleven, Heat, Dog Day Afternoon
+
+Fri, 31 Jul 2026 21:59:14 GMT
+
+https://collider.com/perfect-heist-movies/
+
+Snatch, Heat, and Ocean's Eleven are some of the best, genuinely perfect heist thriller movies of all time.
+---------
+
+# 3 Beloved Movies To Watch on Prime Video This Weekend (Aug 1-2)
+
+Movie, Primate, Ruthless, How to Lose A Guy In 10 Days, Prime Video
+
+Fri, 31 Jul 2026 21:49:14 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-august-1-2026/
+
+Primate, Ruthless, and How to Lose a Guy in 10 Days make up our list of the best movies to stream on Prime Video the weekend of August 1st, 2026.
+---------
+
+# 21 ‘Spider-Man: Brand New Day’ Moments With Bigger Marvel Connections
+
+Movie, Spider-Man: Brand New Day, Spider-Man, MCU, Spider-Man 4
+
+Fri, 31 Jul 2026 21:40:33 GMT
+
+https://collider.com/spider-man-brand-new-day-easter-eggs-references-list/
+
+Did you catch these Spider-Man: Brand New Day Easter eggs, references, and callbacks?
+---------
+
+# 'New Girl' Star Officially Confirms a Reboot Is Happening
+
+TV News, New Girl, Max Greenfield, Fox, Running Point
+
+Fri, 31 Jul 2026 21:37:12 GMT
+
+https://collider.com/new-girl-reboot-confirmed-max-greenfield/
+
+After years of rumors, New Girl star Max Greenfield has confirmed that a reboot of the hit sitcom is not only in the works, it already has a script.
+---------
+
+# 10 Books That Are Perfect From Cover to Cover
+
+Books and Comics, Books, Heated Rivalry, Romance, Thriller
+
+Fri, 31 Jul 2026 21:35:14 GMT
+
+https://collider.com/books-perfect-cover-to-cover/
+
+Heated Rivalry by Rachel Reid, House of Leaves by Mark Z. Danielewski, and The Vanishing Half by Brit Bennett are genuinely perfect books.
+---------
+
+# Stephen King's Upcoming Team-up With Sam Raimi Is 42 Years in the Making
+
+Features, Stephen King, Sam Raimi
+
+Fri, 31 Jul 2026 22:00:12 GMT
+
+https://movieweb.com/stephen-king-desperation-sam-raimi/
+
+Two of horror's most recognizable creators are finally coming together on a project for the first time after a near-miss more than 40 years ago.
+---------
+
+# 'The Mandalorian' Star Has Official Response to 'Star Wars' Return After Movie Flop
+
+TV News, The Mandalorian, The Mandalorian and Grogu
+
+Fri, 31 Jul 2026 21:55:10 GMT
+
+https://movieweb.com/star-wars-the-mandalorian-timothy-olyphant-return/
+
+Timothy Olyphant played coy about whether we'll see him in the galaxy far, far away again anytime soon.
+---------
+
+# Apple TV Officially Sets Gritty New Crime Thriller Series From Oscar-Winning Filmmaker
+
+TV News, Apple TV, Barry Jenkins, Graham Yost
+
+Fri, 31 Jul 2026 21:46:02 GMT
+
+https://movieweb.com/harlem-trilogy-colson-whitehead-apple-tv-adaptation-series/
+
+'Moonlight' director Barry Jenkins is producing an adaptation of Colson Whitehead's 'Harlem' trilogy.
+---------
+
 # Original Avengers 5 Director Recalls “Really Fun” Scrapped Kang Plans & MCU Movie Exit
 
 Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe, Destin Daniel Cretton
@@ -5210,290 +5496,4 @@ Thu, 30 Jul 2026 15:36:15 GMT
 https://collider.com/ted-lasso-season-4-questions-need-answers/
 
 Ted Lasso Season 4 is almost here, and before the Apple TV sports comedy series returns, there are some pressing issues that need to be addressed.
----------
-
-# Adaption of One of the Decade's Best Horror Thriller Novels Officially Drops First Grisly Trailer
-
-Movie News, Victorian Psycho, Maika Monroe, It Follows, Longlegs
-
-Thu, 30 Jul 2026 14:15:15 GMT
-
-https://collider.com/victorian-psycho-trailer/
-
-Discover the dark and twisted world of Victorian Psycho, where Maika Monroe plays an eccentric governess with a sinister secret. Watch the trailer.
----------
-
-# Olivia Colman & Alexander Skarsgård’s Weirdest Movie Yet Officially Debuts First Trailer
-
-Movie News, Wicker, Olivia Colman, Peter Dinklage, Alexander Skarsgard
-
-Thu, 30 Jul 2026 14:01:15 GMT
-
-https://collider.com/olivia-colman-alexander-skarsgard-wicker-trailer/
-
-Olivia Colman, Alexander Skarsgård, and Peter Dinklage star in the new trailer for the fantasy romance Wicker. Watch it now.
----------
-
-# Amazon's Newest R-Rated Sensation Is Officially One of the Biggest Shows on Streaming
-
-TV News, Off Campus, Prime Video, Hot on Streaming
-
-Thu, 30 Jul 2026 15:00:12 GMT
-
-https://movieweb.com/off-campus-rrated-streaming-success-prime-july-2026/
-
-Prime Video's raunchiest show in years is a streaming phenomenon.
----------
-
-# Cryptic 'Spider-Man: Brand New Day' Clip Offers Final Clues About Sadie Sink's Mysterious Role
-
-Movie News, Spider-Man: Brand New Day, Sadie Sink
-
-Thu, 30 Jul 2026 14:34:30 GMT
-
-https://movieweb.com/spider-man-brand-new-day-sadie-sink-clip/
-
-Marvel and Sony gave fans their first glimpse at Sadie Sink in 'Spider-Man: Brand New Day,' as questions linger about her role.
----------
-
-# Jason Momoa Hulks Out in Action-Packed New 'Street Fighter' Footage
-
-Movie News, Street Fighter
-
-Thu, 30 Jul 2026 14:26:34 GMT
-
-https://movieweb.com/street-fighter-clip-blanka-vs-ryu/
-
-Ryu unleashes his ultimate power move in the action-packed look at 'Street Fighter.'
----------
-
-# Tom Selleck Finally Reveals the Truth Behind 'Blue Bloods' Cancellation
-
-TV News, Blue Bloods
-
-Thu, 30 Jul 2026 14:10:10 GMT
-
-https://movieweb.com/blue-bloods-tom-selleck-canceled-explained/
-
-They did everything they could to keep the show going.
----------
-
-# 'Star Trek Strange New Worlds' Officially Changes Genre in Season 4
-
-Features, star trek: strange new worlds, Star Trek
-
-Thu, 30 Jul 2026 14:00:12 GMT
-
-https://movieweb.com/star-trek-strange-new-worlds-horror-episode/
-
-Star Trek shows are traditionally sci-fi, but 'Strange New Worlds' breaks the mold with a terrifying horror installment. Read on for more.
----------
-
-# Tom Holland Confirms Plan For 'Passing the Baton' as Spider-Man in the MCU
-
-Movie News, Spider-Man, Spider-Man: Brand New Day, Tom Holland
-
-Thu, 30 Jul 2026 13:54:22 GMT
-
-https://movieweb.com/spider-man-tom-holland-mcu-baton-miles-morales/
-
-MCU Spider-Man star Tom Holland is already working on a plan to pass the massive torch of playing Spider-Man to another star.
----------
-
-# 'The Rookie' Already Filmed a Series Finale To Prepare For Its Cancellation
-
-TV News, The Rookie
-
-Thu, 30 Jul 2026 13:49:47 GMT
-
-https://movieweb.com/the-rookie-season-8-finale-alternate-ending/
-
-The stars of the show talked about its longevity and how it almost had an entirely different Season 8 finale.
----------
-
-# Netflix & The Walking Dead Set Huge New $500M Deal
-
-TV, The Walking Dead
-
-Thu, 30 Jul 2026 13:34:05 GMT
-
-https://screenrant.com/the-walking-dead-netflix-amc-plus-5-year-deal/
-
-Netflix and The Walking Dead have signed a multi-year licensing deal worth $500 million, a big move for the successful AMC zombie franchise.
----------
-
-# Warhammer 40k: The Best Horus Heresy Novel For Each Loyalist Primarch
-
-Books, Warhammer 40K
-
-Thu, 30 Jul 2026 13:30:11 GMT
-
-https://screenrant.com/best-horus-heresy-novel-for-each-loyalist-primarch/
-
-Few sci-fi heroes are as distinctive as the Loyalist Primarchs in the Horus Heresy novels, and each has one book in the series that's essential.
----------
-
-# Xbox Project Helix Official Price Update Is Bad News
-
-Gaming, Xbox, Xbox Series X/S
-
-Thu, 30 Jul 2026 13:30:11 GMT
-
-https://screenrant.com/xbox-project-helix-price-updates/
-
-We've know Xbox's next console, Project Helix, wouldn't be a cheap piece of hardware, but now its certainly going to be extremely expensive
----------
-
-# Prime Video's 22-Episode Superhero Series Walked So The Boys Could Run
-
-Classic TV, Masked Recs
-
-Thu, 30 Jul 2026 13:30:11 GMT
-
-https://screenrant.com/the-tick-walk-boys-run-prime-video-superhero-series/
-
-Amazon Prime Video has a two-season, 22-episode superhero show that paved the way for shows like The Boys and Gen Z to become pop culture standards.
----------
-
-# One Of DC's Best Joker Actors First Appeared In Superboy 30 Years Before
-
-Movies, Joker, DC Universe
-
-Thu, 30 Jul 2026 13:30:11 GMT
-
-https://screenrant.com/dc-joker-actor-superboy-joaquin-phoenix/
-
-The actor who played one of DC's most praised depictions of the Joker actually debuted in the franchise's live-action worlds 30 years prior.
----------
-
-# Cristina Yang's 10 Best Grey's Anatomy Quotes
-
-Network TV, Grey's Anatomy
-
-Thu, 30 Jul 2026 13:15:11 GMT
-
-https://screenrant.com/cristina-yang-best-greys-anatomy-quotes/
-
-Years after her departure, Cristina Yang remains one of the most iconic Grey's Anatomy characters ever— and she has some of the show's best lines.
----------
-
-# The Last Of Us Meets Fallout In New RPG You Can Play Free
-
-Gaming, The Last of Us, Fallout, RPG, PC, Steam
-
-Thu, 30 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/last-of-us-meets-fallout-free-rpg/
-
-The Last of Us and Fallout make for a great pairing, and, luckily, they've been mashed together in this new RPG that's free to play.
----------
-
-# One Of The Greatest Batman Movies Ever Was Released 60 Years Ago And It Still Holds Up Today
-
-Movies, DC Universe, Batman: The Movie, Batman
-
-Thu, 30 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/batman-movie-1966-best-still-holds-up/
-
-60 years later, one Batman movie remains one of the Caped Crusader's most entertaining and distinctive adventures ever depicted on film.
----------
-
-# Friday The 13th's Jason Voorhees Is Officially Back From The Dead
-
-Gaming, Friday The 13th
-
-Thu, 30 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/hellbreak-tcg-jason-voorhees-exclusive-card-reveal/
-
-Jason Voorhees is joining the horror-themed Hellbreak Trading Card Game, and we've got an exclusive first look.
----------
-
-# Star Trek: Strange New Worlds Season 4 Episode 2 Ending Explained
-
-TV, Star Trek, Star Trek: Strange New Worlds
-
-Thu, 30 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/star-trek-strange-new-worlds-season-4-episode-2-ending-explained/
-
-Star Trek: Strange New Worlds season 4 delves into horror as Spock, La'an, and James T. Kirk face their personal demons on a derelict Starfleet ship.
----------
-
-# 10 Perfect Anime With No Bad Seasons
-
-Anime, Attack On Titan, Vinland Saga
-
-Thu, 30 Jul 2026 13:16:15 GMT
-
-https://www.cbr.com/perfect-anime-without-bad-seasons/
-
-These anime reward fans by maintaining the same level of excellence throughout their runs.
----------
-
-# Steam’s Next Free-to-Keep Game for August 2026 Officially Revealed
-
-Games, Steam
-
-Thu, 30 Jul 2026 13:10:15 GMT
-
-https://www.cbr.com/steam-next-free-game-august-2026-official-reveal-moonlighter/
-
-The next hit free-to-keep Steam title for August has finally been revealed, and it is already a massively underrated indie fan-favorite.
----------
-
-# Prime Video's New 8-Part Spy Show With 96% RT Is Amazon's New King of Global Streaming
-
-TV, Ride or Die
-
-Thu, 30 Jul 2026 13:01:15 GMT
-
-https://www.cbr.com/prime-video-ride-or-die-spy-comedy-global-success-july-2026/
-
-Prime Video's new action/adventure comedy series is dominating the global charts for a good reason - audiences are absolutely loving the new show.
----------
-
-# Ryan Reynolds' Forgotten '90s Fantasy Series Was Lord of the Flies for Kids
-
-TV, The Odyssey, ryan reynolds, Fantasy
-
-Thu, 30 Jul 2026 13:01:15 GMT
-
-https://www.cbr.com/ryan-reynolds-forgotten-90s-fantasy-series-the-odyssey/
-
-Ryan Reynolds got an early start in a dark, philosophical but forgotten 1990s fantasy series that tackled grief, authoritarianism, and identity.
----------
-
-# The 5 Greatest Steamy Fantasy Books of All Time, Ranked
-
-Movies, Fantasy, books
-
-Thu, 30 Jul 2026 13:01:15 GMT
-
-https://www.cbr.com/greatest-steamy-fantasy-books-of-all-time-ranked/
-
-Spicy fantasy literature is only gaining in popularity, but these five books rank among the best steamy fantasy books of all time.
----------
-
-# Batman: Shadow of the Bat Details Unveiled By Deniz Camp
-
-Comics, Batman
-
-Thu, 30 Jul 2026 12:00:15 GMT
-
-https://www.cbr.com/batman-shadow-of-the-bat-deniz-camp-unveils-crucial-details/
-
-Batman's worst fear comes dangerously close to reality in upcoming comic.
----------
-
-# Marvel Revives a Horrifying Legacy Villain in a Shocking New Twist
-
-Comics, Spider-Man, Horror, Marvel Comics
-
-Thu, 30 Jul 2026 12:00:15 GMT
-
-https://www.cbr.com/spider-man-midnight-doctor-octopus-reveal/
-
-Spider-Man's most diabolical villain, Doctor Octopus, gets a menacingly disturbing makeover in the Marvel Comic horror title Midnight Spider-Man.
 ---------
