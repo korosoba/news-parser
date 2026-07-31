@@ -1,3 +1,333 @@
+# Original Avengers 5 Director Recalls “Really Fun” Scrapped Kang Plans & MCU Movie Exit
+
+Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe, Destin Daniel Cretton
+
+Fri, 31 Jul 2026 21:13:19 GMT
+
+https://screenrant.com/avengers-5-kang-dynasty-fun-plans-scrapped-exit-destin-daniel-cretton/
+
+Former Avengers 5 director Destin Daniel Cretton reflects on having left the major MCU movie and the "really fun" plans he had for The Kang Dynasty.
+---------
+
+# 3 Best Movies To Watch On Disney+ This Weekend (August 1-2)
+
+Movies, Disney+, Recommendation
+
+Fri, 31 Jul 2026 21:01:28 GMT
+
+https://screenrant.com/best-disney-plus-movies-watch-weekend-august-1/
+
+Disney+'s best movies to watch this weekend include the return of a massive franchise, a dark superhero team movie, and a sci-fi adventure film.
+---------
+
+# New Gundam Release Officially Confirmed For September 25
+
+Gaming, Gundam, tabletop games
+
+Fri, 31 Jul 2026 20:55:58 GMT
+
+https://screenrant.com/gundam-card-game-starter-deck-release/
+
+Iconic anime franchise Gundam is coming back in just a couple of months, with a new release that has just been revealed at Gen Con 2026.
+---------
+
+# Every Emma Frost Actress In Live-Action X-Men Movies
+
+Superheroes, X-Men, Marvel Cinematic Universe
+
+Fri, 31 Jul 2026 20:45:11 GMT
+
+https://screenrant.com/emma-frost-actress-x-men-movies-live-action/
+
+Emma Frost has been in multiple live-action X-Men movies, allowing several actresses to play the mutant, including in the MCU's upcoming reboot.
+---------
+
+# New Girl Revival Gets Surprising Writing Update From Original Star 8 Years Later
+
+TV, New Girl
+
+Fri, 31 Jul 2026 20:40:19 GMT
+
+https://screenrant.com/new-girl-revival-writing-update-scripts-max-greenfield/
+
+New Girl has finally got a hopeful update, as one of the main stars has finally given a serious writing update following years of endless banter.
+---------
+
+# In The Wake Of Doomsday, Marvel Announces New Universe
+
+Marvel Comics, Marvel
+
+Fri, 31 Jul 2026 20:30:11 GMT
+
+https://screenrant.com/marvel-new-universe-webtoon-deadpool-xmen-iron-man/
+
+Marvel announces three projects that kick off a new era and promise to launch an entirely new universe, with different takes on familiar characters.
+---------
+
+# The Gilded Age Meets Downton Abbey In Apple TV's Lavish 3-Part Period Drama
+
+Streaming TV, Masked Recs
+
+Fri, 31 Jul 2026 20:30:11 GMT
+
+https://screenrant.com/the-buccaneers-apple-tv-gilded-age-downton-abbey-comparison/
+
+The Americans and the Brits collide in Apple TV's stunning three-season period drama, perfect for fans of The Gilded Age and Downton Abbey.
+---------
+
+# New X-Files Meets Rick & Morty Sci-Fi Series Is Conquering HBO Max
+
+TV, President Curtis
+
+Fri, 31 Jul 2026 20:18:06 GMT
+
+https://screenrant.com/president-curtis-rick-morty-spinoff-hbo-max-streaming-success-july-2026/
+
+The new Rick and Morty spinoff President Curtis, which also blends in elements of The X-Files, is already a massive success on HBO Max.
+---------
+
+# Disney+'s New Space Opera Officially Crowned One of Streaming's Biggest Hits
+
+Movies, Avatar: Fire and Ash, Avatar, Disney+
+
+Fri, 31 Jul 2026 21:33:03 GMT
+
+https://www.cbr.com/avatar-fire-and-ash-sci-fi-disney-plus-billion-minutes-watched-july-2026/
+
+The epic sci-fi movie is a big hit on Disney+.
+---------
+
+# Batman: Under the Red Hood Has the Greatest Bruce Wayne Quote
+
+Movies, Batman: Under the Red Hood
+
+Fri, 31 Jul 2026 21:30:14 GMT
+
+https://www.cbr.com/batman-under-the-red-hood-movie-best-bruce-wayne-quote/
+
+Jensen Ackles delivers a powerful line that challenges Batman's no-kill rule, further showcasing the Dark Knight's unwavering commitment to his code.
+---------
+
+# USA Network's 7-Season Spy Masterpiece Is Heading to Free Streaming Next Month
+
+TV, Burn Notice
+
+Fri, 31 Jul 2026 21:30:14 GMT
+
+https://www.cbr.com/burn-notice-pluto-tv-free-august-2026/
+
+One of the most beloved spy dramas of the past two decades is about to have a new streaming home while fans wait for a reunion series.
+---------
+
+# 7 Most Useless Bankai in Bleach
+
+Anime, Bleach
+
+Fri, 31 Jul 2026 21:16:14 GMT
+
+https://www.cbr.com/bleach-most-useless-bankai/
+
+Every Zanpakuto has a Shikai release, but its true potential is unlocked through Bankai, the weapon's final and most powerful form.
+---------
+
+# Sam Raimi Finally Teams Up With Stephen King for Adaptation of 30-Year-Old Novel
+
+Movies, Stephen King
+
+Fri, 31 Jul 2026 21:10:16 GMT
+
+https://www.cbr.com/stephen-king-sam-raimi-desperation-movie/
+
+Horror legends Sam Raimi and Stephen King are finally joining forces for the very first time.
+---------
+
+# Taylor Sheridan's Hit Spy Series Finally Returns With Strong Rotten Tomatoes Score
+
+TV, Lioness
+
+Fri, 31 Jul 2026 21:05:34 GMT
+
+https://www.cbr.com/taylor-sheridan-lioness-season-3-rotten-tomatoes-score/
+
+After a two-year wait, the show has impressed critics.
+---------
+
+# Star Trek Officially Returns With 30 New Episodes on YouTube This Year
+
+TV, Star Trek, YouTube, Sci-Fi
+
+Fri, 31 Jul 2026 21:05:15 GMT
+
+https://www.cbr.com/star-trek-scouts-season-2-youtube/
+
+Star Trek is back on YouTube.
+---------
+
+# 10 Greatest Psychological Thrillers of the Last 50 Years, Ranked
+
+Movies, Thriller, Fight Club, Gone Girl
+
+Fri, 31 Jul 2026 21:00:15 GMT
+
+https://www.cbr.com/best-psychological-thrillers-last-50-years-list/
+
+The last 50 years saw Hollywood turn in one brilliant psychological thriller after another, from surreal mysteries to masterpieces of paranoia.
+---------
+
+# Steam Officially Makes 4 Games 100% Free Until August 3, Available Now
+
+Games, Steam, WWE
+
+Fri, 31 Jul 2026 20:45:14 GMT
+
+https://www.cbr.com/steam-4-games-free-until-august-3-official-available-now/
+
+Three underrated indie titles and one hit wrestling game are all officially free on Steam, although they won't be for much longer.
+---------
+
+# 10 Marvel Easter Eggs You Missed in Spider-Man: Brand New Day
+
+Movies, Spider-Man: Brand New Day, MCU, Spider-Man
+
+Fri, 31 Jul 2026 20:30:14 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-marvel-easter-eggs-references-list-ranked/
+
+Spider-Man: Brand New Day is finally in theaters. Here are all the easter eggs, references, and details you missed.
+---------
+
+# Netflix Scores a Global Hit With Twisty New 90-Minute True-Crime Nightmare
+
+Movie News, Netflix, Crime, The Tinder Swindler, American Nightmare
+
+Fri, 31 Jul 2026 21:30:14 GMT
+
+https://collider.com/netflix-true-crime-a-toxic-love-story-streaming-success-july-2026/
+
+A shocking new true-crime documentary is dominating Netflix charts worldwide, turning one real case into a chilling obsession.
+---------
+
+# 'G.I. Joe' Replacement Movie Officially in the Works From 'X-Men '97' Writer
+
+Movie News, Hasbro, Action Man
+
+Fri, 31 Jul 2026 21:25:36 GMT
+
+https://collider.com/gi-joe-replacement-action-man-movie/
+
+As Danny McBride's G.I. Joe movie moves forward, the cult classic figure Action Man is getting his very own film. Read on for more details.
+---------
+
+# One ‘Breaking Bad’ Character Proved He Was Better Than Walter White
+
+TV Features, Breaking Bad, Better Call Saul, Bob Odenkirk, Bryan Cranston
+
+Fri, 31 Jul 2026 21:24:14 GMT
+
+https://collider.com/breaking-bad-best-character-saul-goodman-more-redeemable-than-walter-white/
+
+Better Call Saul proves Jimmy McGill is more redeemable than Walter White through the choices that ultimately define both men.
+---------
+
+# 6 Best Thriller Movies Released Since 1990
+
+Movie, The Usual Suspects, Thriller, Memento, Se7en
+
+Fri, 31 Jul 2026 21:05:14 GMT
+
+https://collider.com/best-thriller-movies-since-1990-ranked/
+
+Memento, The Silence of the Lambs, and Oldboy are all among the best thriller movies released since the year 1990.
+---------
+
+# Netflix’s 10/10 Harlan Coben Adaptation Surges Into Elite Top 10 List
+
+TV News, Harlan Coben, I Will Find You, Sam Worthington, Netflix
+
+Fri, 31 Jul 2026 21:00:14 GMT
+
+https://collider.com/harlan-coben-i-will-find-you-netflix-all-time-top-10-most-watched/
+
+Harlan Coben's I Will Find You, starring Sam Worthington and Britt Lower, has broken into Netflix's all-time top 10 list of most-watched shows.
+---------
+
+# 8 Essential Naughty Dog Games, Ranked
+
+Video Games, Video Game, Gaming, Naughty Dog, PlayStation (Original)
+
+Fri, 31 Jul 2026 20:50:14 GMT
+
+https://collider.com/naughty-dog-games-essential-ranked/
+
+Naughty Dog has been celebrated as one of the best video game developers, creating games like Uncharted, Crash Bandicoot, and The Last of Us.
+---------
+
+# Mark Ruffalo's Apple TV Movie Scores a Rare 2026 Theatrical Release
+
+Movie News, Sian Heder, Apple TV, Drama, Mark Ruffalo
+
+Fri, 31 Jul 2026 20:30:14 GMT
+
+https://collider.com/being-heumann-apple-tv-release-date-plot-details-mark-ruffalo/
+
+Academy Award winner Siân Heder returns to Apple TV for another heartfelt story. Get all the details here.
+---------
+
+# Nicolas Cage's British WWII Thriller Lands Netflix $105 Million Lawsuit
+
+Movie News, Nicolas Cage, War, Netflix, Thriller
+
+Fri, 31 Jul 2026 20:27:50 GMT
+
+https://collider.com/nicolas-cage-fortitude-netflix-105-million-lawsuit/
+
+Netflix has been officially hit with a $105 million lawsuit after Nicolas Cage's new WWII thriller was stolen. Read on for more.
+---------
+
+# 10 HBO Shows That Are Still the Gold Standard
+
+TV, HBO, Game Of Thrones, The Sopranos, The Wire
+
+Fri, 31 Jul 2026 20:22:14 GMT
+
+https://collider.com/hbo-shows-gold-standard/
+
+Explore HBO's best shows that set the gold standard for prestige entertainment, featuring series like The Sopranos, Game of Thrones, and The Wire.
+---------
+
+# Taylor Sheridan's 'Tulsa King' Crime Thriller Expansion Crosses Major Milestone
+
+TV News, Frisco King
+
+Fri, 31 Jul 2026 21:22:41 GMT
+
+https://movieweb.com/taylor-sheridan-frisco-king-production-wrapped/
+
+Taylor Sheridan's upcoming crime thriller 'Frisco King' appears to be nearing the end of production.
+---------
+
+# Disney's Live-Action 'Tangled' Movie Images Debut First Look at Kathryn Hahn's Beloved Villain
+
+Movie News, Tangled
+
+Fri, 31 Jul 2026 21:00:54 GMT
+
+https://movieweb.com/disney-tangled-set-photos-kathryn-hahn-mother-gothel/
+
+'Tangled' brings the iconic villain to life in the latest images from the live-action Disney adaptation.
+---------
+
+# 8 Near-Perfect Modern HBO Shows You Have to Binge-Watch This Weekend
+
+TV Lists, HBO Max
+
+Fri, 31 Jul 2026 21:00:12 GMT
+
+https://movieweb.com/hbo-shows-2020s-binge-watch/
+
+HBO has released many memorable TV shows during the 2020s, including these thriller, comedy, drama, and horror series for a great weekend binge.
+---------
+
 # Harrison Ford’s 163-Minute Sci-Fi Masterpiece Is Getting New Streaming Home At The Perfect Time
 
 Movies, Blade Runner 2049
@@ -5166,334 +5496,4 @@ Thu, 30 Jul 2026 12:00:15 GMT
 https://www.cbr.com/spider-man-midnight-doctor-octopus-reveal/
 
 Spider-Man's most diabolical villain, Doctor Octopus, gets a menacingly disturbing makeover in the Marvel Comic horror title Midnight Spider-Man.
----------
-
-# Tom Holland Officially Confirms Why His Spider-Man Never Appeared in Tom Hardy's 'Venom'
-
-Movie News, Spider-Man: Brand New Day, Spider-Man, Tom Holland, Venom
-
-Thu, 30 Jul 2026 13:12:25 GMT
-
-https://collider.com/tom-holland-spider-man-venom-crossover-never-happened/
-
-Tom Holland is officially addressing why his Spider-Man never made an appearance in Tom Hardy's Venom trilogy.
----------
-
-# Lord of the Rings Director Peter Jackson Officially Returns to Direct Long-Awaited Sequel
-
-Movie News, The Lord of the Rings, Peter Jackson, The Adventures of Tintin, Steven Spielberg
-
-Thu, 30 Jul 2026 13:00:15 GMT
-
-https://collider.com/peter-jackson-the-adventures-of-tintin-sequel-confirmed/
-
-After a 3-year absence from the director's chair, Peter Jackson reveals plans to helm a sequel to his 2011 film, The Adventures of Tintin.
----------
-
-# Prime Video's 'The Wheel of Time' Has Quietly Mastered What Every Other Fantasy Show Gets Wrong
-
-TV Features, The Wheel of Time, Prime Video, Fantasy, Rosamund Pike
-
-Thu, 30 Jul 2026 12:46:15 GMT
-
-https://collider.com/the-wheel-of-time-prime-video-female-characters-fantasy/
-
-Women wield power through magic, politics, and physical prowess in Prime Video's The Wheel of Time, surpassing other fantasy shows.
----------
-
-# ‘Broadchurch’ Fans Need To Watch The New York Times’ Best TV Pick
-
-TV Features, Unforgotten, Broadchurch, Crime, ITV
-
-Thu, 30 Jul 2026 12:39:15 GMT
-
-https://collider.com/broadchurch-fans-new-york-times-best-tv-pick-unforgotten/
-
-Loved Broadchurch? Unforgotten delivers compelling cold cases, emotional storytelling, and one of TV’s best detective duos.
----------
-
-# The 10 Most Disturbing Crime Movies of All Time, Ranked
-
-Movie, Crime, Funny Games, Se7en, Oldboy
-
-Thu, 30 Jul 2026 12:33:15 GMT
-
-https://collider.com/disturbing-crime-movies-ranked/
-
-Man Bites Dog, American History X, and Funny Games are all among the most disturbing and violent crime movies ever made.
----------
-
-# New 2-Part British Crime Series Officially Emerges as a Major Streaming Sleeper Hit
-
-TV News, Inspector Ellis, Line of Duty, Acorn TV, Broadchurch
-
-Thu, 30 Jul 2026 12:31:15 GMT
-
-https://collider.com/inspector-ellis-streaming-success-acorn-tv-july-2026/
-
-Inspector Ellis, a British detective drama starring Sharon D. Clarke, has quietly become one of the top streaming sleeper hits of 2026.
----------
-
-# 'The Walking Dead’ Officially Returns to Netflix
-
-TV News, The Walking Dead, Fear the Walking Dead, AMC, Netflix
-
-Thu, 30 Jul 2026 12:22:07 GMT
-
-https://collider.com/the-walking-dead-netflix-streaming/
-
-The Walking Dead is expanding on Netflix as a new AMC deal brings all 371 episodes from the zombie franchise to the streamer.
----------
-
-# All 13 Christopher Nolan Movies, Ranked According to Letterboxd
-
-Movie, Christopher Nolan, Letterboxd, The Odyssey, Interstellar
-
-Thu, 30 Jul 2026 12:18:14 GMT
-
-https://collider.com/christopher-nolan-movies-letterboxd-ranked/
-
-Find out how The Odyssey compares to Christopher Nolan's other movies, like Interstellar and Oppenheimer, according the Letterboxd community.
----------
-
-# 'Obsession' Star Michael Johnston Officially Addresses 'The Mummy 4' Casting Rumors [Exclusive]
-
-Movie News, The Mummy 4, Obsession, Brendan Fraser, Rachel Weisz, Collider Forces
-
-Thu, 30 Jul 2026 12:00:15 GMT
-
-https://collider.com/brendan-fraser-mummy-4-michael-johnston-cast/
-
-Obsession star Michael Johnston has officially responded to reports he has joined the cast of Brendan Fraser's The Mummy 4.
----------
-
-# The 10 Greatest Live Cover Performances in Rock History, Ranked
-
-Music Features, The Beatles, Queen, David Bowie, Rock, Music
-
-Thu, 30 Jul 2026 12:00:15 GMT
-
-https://collider.com/greatest-live-cover-performances-rock-history-ranked/
-
-From AC/DC to The Beatles, these legendary rock bands have been reimagined through unforgettable live covers. But which rendition takes the top spot?
----------
-
-# Prime Video's New Action Thriller Officially Crowned One of the Biggest Shows on Streaming
-
-TV News, Ride or Die, Prime Video, Hot on Streaming, Action
-
-Thu, 30 Jul 2026 13:00:12 GMT
-
-https://movieweb.com/ride-or-die-action-streaming-success-prime-video-july-2026/
-
-Forget 'Reacher,' there's a new action hero on Prime Video.
----------
-
-# 'Star Trek: Strange New Worlds' Clearly Has a New Spin-off in Mind That Isn't 'Year One'
-
-Features, star trek: strange new worlds, Star Trek
-
-Thu, 30 Jul 2026 13:00:12 GMT
-
-https://movieweb.com/star-trek-strange-new-worlds-division-12-spin-off/
-
-"The Griffin Incident" is an instant Star Trek classic in its own right, but can it pay off that spin-off tease? Read on for more.
----------
-
-# 'Ted Lasso' Season 4's Missing Character Reignites 5-Year-Old Storyline
-
-Features, Ted Lasso, Brett Goldstein, Juno Temple, Comedy, Apple TV, Hannah Waddingham
-
-Thu, 30 Jul 2026 12:00:12 GMT
-
-https://movieweb.com/ted-lasso-season-4-missing-jamie-roy-keeley/
-
-Will 'Ted Lasso' Season 4 finally give us answers after the way things were left at the end of Season 3? Well, the new trailer suggests so.
----------
-
-# Assassin's Creed Hexe Release Window Leak Confirms We're In For A Wait
-
-Gaming, Assassin's Creed, Ubisoft
-
-Thu, 30 Jul 2026 11:30:11 GMT
-
-https://screenrant.com/assassins-creed-hexe-release-window-leaks-2027/
-
-Leak reveals Assassin's Creed Hexe may not launch until late 2027, leaving fans waiting for the witch-themed installment in Ubisoft's franchise.
----------
-
-# Stranger Things Officially Changes Genre For New Spinoff
-
-Gaming, Stranger Things, PC, Netflix
-
-Thu, 30 Jul 2026 11:29:12 GMT
-
-https://screenrant.com/stranger-things-netflix-golf-genre-change/
-
-Stranger Things has ditched its horror roots in favor of something a little different for its next major spin-off that fans are sure to love.
----------
-
-# Dark Souls Meets The Witcher In Stunning New Fantasy RPG
-
-Gaming, Dark Souls, The Witcher
-
-Thu, 30 Jul 2026 11:00:12 GMT
-
-https://screenrant.com/relic-first-guardian-witcher-meets-dark-souls/
-
-Discover the dark fantasy world of The Relic: First Guardian, an upcoming Korean-inspired action RPG.
----------
-
-# Divisive Star Trek Series' Season 2 Return Includes Major Genre Change
-
-Classic TV, Star Trek, Star Trek: Starfleet Academy, San Diego Comic-Con
-
-Thu, 30 Jul 2026 11:00:12 GMT
-
-https://screenrant.com/star-trek-starfleet-academy-season-2-genre-change-robert-picardo/
-
-Exclusive: Robert Picardo reveals an upcoming episode of Star Trek: Starfleet Academy season 2 will have a crisis the series hasn't seen before.
----------
-
-# Pokémon Heart & Soul Is The Perfect Pokémon Game
-
-Gaming, Pokemon
-
-Thu, 30 Jul 2026 10:30:11 GMT
-
-https://screenrant.com/pokemon-heart-soul-gen-2-love-letter/
-
-Discover the captivating Pokémon Heart & Soul ROM hack, blending iconic Johto region with features from Gen 2 and 4.
----------
-
-# Indiana Jones Officially Returns In 2027
-
-Gaming, Indiana Jones
-
-Thu, 30 Jul 2026 10:11:14 GMT
-
-https://screenrant.com/indiana-jones-2027-new-statue-release/
-
-Indiana Jones is one of the most iconic characters in history, and any time he returns it deserves to be celebrated.
----------
-
-# Syfy's Misunderstood The Expanse Copycat Is a Cult Sci-Fi Classic in the Making
-
-TV, Sci-Fi, The Expanse, The Ark
-
-Thu, 30 Jul 2026 11:30:15 GMT
-
-https://www.cbr.com/syfy-the-expanse-copycat-the-ark-cult-sci-fi-classic/
-
-The Expanse is one of the best sci-fi programs of the last few decades. But a Syfy copycat series is about to become a cult classic in its own way.
----------
-
-# Netflix Officially Says Goodbye to Hunter x Hunter in 48 Hours
-
-Anime, Hunter X Hunter, Netflix, Hunter x Hunter
-
-Thu, 30 Jul 2026 11:05:15 GMT
-
-https://www.cbr.com/netflix-hunter-x-hunter-anime-leave/
-
-One of the most beloved anime epics of all time is about to lose one of its biggest streaming home, and there are just a matter of hours left.
----------
-
-# After 13 Days, The Odyssey Has Beaten Christopher Nolan’s Oscar-Winning Thriller at Box Office
-
-Movies, The Odyssey, Oppenheimer
-
-Thu, 30 Jul 2026 11:01:15 GMT
-
-https://www.cbr.com/christopher-nolan-the-odyssey-beats-oppenheimer-box-office-report/
-
-The Odyssey continues its epic box office run by smashing another impressive record for Christopher Nolan.
----------
-
-# 10 Best Non-Superhero Comics That Need Live-Action Adaptations
-
-Comics, image comics, DC Comics
-
-Thu, 30 Jul 2026 11:01:15 GMT
-
-https://www.cbr.com/10-best-non-superhero-comics-that-need-live-action-adaptations/
-
-Superhero comics are the most common sources for live-action adaptations, but these 10 non-superhero comics deserve to be on the big screen even more.
----------
-
-# Paramount Just Confirmed the Star Trek Reboot Will Jump Into A Never-Before-Seen Future
-
-Movies, Star Trek, Sci-Fi
-
-Thu, 30 Jul 2026 10:00:14 GMT
-
-https://www.cbr.com/paramount-star-trek-movie-reboot-time-jump/
-
-The upcoming Star Trek reboot will officially take the franchise where no one has gone before.
----------
-
-# 10 Best Far Side Comics From 1986 That Prove Gary Larson Was a Genius
-
-Comics, The Far Side
-
-Thu, 30 Jul 2026 10:00:14 GMT
-
-https://www.cbr.com/the-far-side-comics-from-1986-gary-larson-genius/
-
-Each year of The Far Side has a collection of comics that prove Gary Larson is a genius, with 1986 focusing on his ability to craft visual comedy.
----------
-
-# The 10-Part HBO Thriller With the Only Stephen King Monster Scarier Than Pennywise
-
-TV, The Outsider, Stephen King, Horror
-
-Thu, 30 Jul 2026 10:00:14 GMT
-
-https://www.cbr.com/stephen-king-the-outsider-scarier-monster-than-pennywise/
-
-Pennywise feeds on the fear of children, but as it turns out, Stephen King came up with something far more disturbing.
----------
-
-# HBO’s Forgotten 12-Episode Sci-Fi Thriller Is One of Television’s Most Unsettling
-
-TV Features, HBO, Sci-Fi, Beforeigners, Thriller
-
-Thu, 30 Jul 2026 11:46:16 GMT
-
-https://collider.com/hbo-sci-fi-thriller-beforeigners/
-
-In 2019, HBO released one of its best sci-fi thrillers to date in Beforeigners, HBO’s first original series that reached an impressive 100% RT.
----------
-
-# 10 Greatest World War I Video Games
-
-Gaming, Video Game, Battlefield, Amnesia, War
-
-Thu, 30 Jul 2026 11:44:15 GMT
-
-https://collider.com/best-world-war-1-video-games-ranked/
-
-From Conscript to Battlefield 1, these are the all-time greatest video games that explore the complex intricacies and violent trenches of World War I.
----------
-
-# Alan Ritchson Is Officially Crowned Netflix's Streaming King
-
-Movie, Alan Ritchson, Ordinary Angels, Hilary Swank, Netflix
-
-Thu, 30 Jul 2026 11:30:15 GMT
-
-https://collider.com/alan-ritchson-ordinary-angels-streaming-success-netflix-july-2026/
-
-Alan Ritchson's heartwarming dramatic movie, Ordinary Angels, has emerged as a number-one title on Netflix. Find out more.
----------
-
-# 10 Most Influential Video Games of the 20th Century
-
-Gaming, Video Game, Half-Life, Super Mario 64
-
-Thu, 30 Jul 2026 11:04:15 GMT
-
-https://collider.com/most-influential-video-games-20th-century-ranked/
-
-Super Mario 64, Tetris, and The Legend of Zelda: Ocarina of Time are all among the most influential video games of the 21st century.
 ---------
