@@ -1,3 +1,300 @@
+# Taylor Sheridan’s Lioness Season 3 Debuts To Major Rotten Tomatoes Record
+
+TV, Lioness, Lioness - Season 3, Taylor Sheridan, Paramount Plus
+
+Fri, 31 Jul 2026 15:49:27 GMT
+
+https://screenrant.com/taylor-sheridan-lioness-season-3-rotten-tomatoes-score-record/
+
+Reviews are rolling out for Taylor Sheridan's Lioness season 3 and the spy action thriller has officially set a major Rotten Tomatoes record.
+---------
+
+# Where Are The New Avengers During Spider-Man: Brand New Day?
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Fri, 31 Jul 2026 15:45:20 GMT
+
+https://screenrant.com/spiderman-brand-new-day-new-avengers-where/
+
+Spider-Man: Brand New Day brings a major new threat to New York after the New Avengers formed in Thunderbolts, and their absence is quite peculiar.
+---------
+
+# Chris Pratt’s New $1 Billion Fantasy Is Now #1 On Streaming After Just 1 Day
+
+Movies, Masked Recs
+
+Fri, 31 Jul 2026 15:43:43 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-peacock-streaming-success-july-2026/
+
+After only one day of availability on streaming, Chris Pratt’s fantasy movie that grossed over $1 billion has become a massive hit with viewers.
+---------
+
+# Timothy Olyphant Teases New Star Wars Return Potential After Cobb Vanth's Fate Twist
+
+Star Wars
+
+Fri, 31 Jul 2026 15:36:34 GMT
+
+https://screenrant.com/timothy-olyphant-mandalorian-star-wars-return-response/
+
+Timothy Olyphant addresses his possible future in the Star Wars franchise after his character Cobb Vanth's big Book of Boba Fett twist.
+---------
+
+# Reacher Season 4 Interview with Alan Ritchson, Anggun & Agnez Mo at SDCC 2026
+
+Comic-Con, Reacher, Reacher - Season 4, San Diego Comic-Con
+
+Fri, 31 Jul 2026 15:30:12 GMT
+
+https://screenrant.com/video/reacher-season-4-alan-ritchson-anggun-agnez-mo-interview-sdcc-2026/
+
+Reacher stars Alan Ritchson, Anggun, and Agnez Mo dodge season 4 spoilers like pros while hyping up the new season.
+---------
+
+# 10 Essential Netflix K-Dramas Everyone Should Watch
+
+Classic TV, K-Drama, Netflix
+
+Fri, 31 Jul 2026 15:30:12 GMT
+
+https://screenrant.com/netflix-k-dramas-everyone-should-watch/
+
+Netflix is one of the most prominent streaming services in the world, and its original contributions to the K-drama industry cannot be overstated.
+---------
+
+# All 3 Marvel Releases In 2026 After Spider-Man: Brand New Day
+
+Movies, Marvel Cinematic Universe, Spider-Man: Brand New Day
+
+Fri, 31 Jul 2026 15:23:35 GMT
+
+https://screenrant.com/marvel-movies-shows-2026-spider-man-brand-new-day/
+
+Now that Spider-Man: Brand New Day is out, Marvel Studios still has another three exciting movies and TV shows to release before 2026 comes to an end.
+---------
+
+# George Lucas' Most Controversial Return of the Jedi Decision Was Disney Star Wars' Greatest Gift
+
+Movies, Star Wars: Episode VI - Return of the Jedi, Star Wars
+
+Fri, 31 Jul 2026 15:20:12 GMT
+
+https://screenrant.com/star-wars-return-of-the-jedi-anakin-skywalker-force-ghost/
+
+This George Lucas change was heavily criticized by fans, and it remains controversial today, yet it has been pivotal for Disney Star Wars.
+---------
+
+# Nathan Fillion’s 9-Season Crime Thriller Crossover Plans Officially Confirmed By Creator As Filming Starts
+
+TV, The Rookie
+
+Fri, 31 Jul 2026 15:18:28 GMT
+
+https://screenrant.com/the-rookie-north-season-9-crossover-plans-confirmed-hawley/
+
+Nathan Fillion’s hit crime drama, which debuted in 2018, might air a crossover with its upcoming spinoff. Both shows premiere midseason on ABC.
+---------
+
+# K-Pop Demon Hunters Officially Returns Today With New Release
+
+Games, KPop Demon Hunters
+
+Fri, 31 Jul 2026 15:55:26 GMT
+
+https://www.cbr.com/k-pop-demon-hunters-official-return-today-new-release/
+
+KPop Demon Hunters is finally back, with a brand new 2026 release every fan of Rumi, Mira, and Zoey needs.
+---------
+
+# Lord of the Rings: The Fall of Numenor Special Edition Officially Announced for November 2026
+
+TV, The Lord of the Rings, The Lord of the Rings: The Rings of Power, Fantasy
+
+Fri, 31 Jul 2026 15:51:42 GMT
+
+https://www.cbr.com/lotr-fall-of-numenor-and-other-tales-from-the-second-age-of-middle-earth/
+
+The collection of J.R.R. Tolkien's Second Age stories, occurring in the era before The Lord of the Rings, is back in a new form.
+---------
+
+# Former Sandlot Star Shares Brutally Honest Advice For Child Actors Today
+
+Movies, The Sandlot
+
+Fri, 31 Jul 2026 15:20:26 GMT
+
+https://www.cbr.com/former-sandlot-star-shares-brutally-honest-advice-for-child-actors/
+
+This is hands-down one of the most important pieces of advice The Sandlot star could provide.
+---------
+
+# Evangelion Revives Unit-01's Original '90s TV Design in New High-End Release
+
+Anime, Neon Genesis Evangelion, merchandise, toys
+
+Fri, 31 Jul 2026 15:20:16 GMT
+
+https://www.cbr.com/evangelion-original-series-unit-01-blokees-model-kit/
+
+The original EVA Unit-01 mech design from Neon Genesis Evangelion is brought back to life through one of the brand's best Blokees model kits.
+---------
+
+# 5 Classic Manga That Are 10/10 Masterpieces
+
+Anime, Manga, Shonen, seinen, Shojo, One Piece, Yona Of The Dawn
+
+Fri, 31 Jul 2026 15:15:15 GMT
+
+https://www.cbr.com/masterpiece-classic-manga-10-10/
+
+Manga like One Piece and Akatsuki no Yona are classics that every manga fan can appreciate.
+---------
+
+# Only 3 Sci-Fi Movies in the 2020s Can Be Considered True Masterpieces
+
+Movies, Sci-Fi
+
+Fri, 31 Jul 2026 15:00:16 GMT
+
+https://www.cbr.com/perfect-sci-fi-movies-2020s/
+
+The 2020s haven't delivered sci-fi fans as many masterpieces as they'd like, but a few have distinguished themselves among the genre's finest.
+---------
+
+# Godzilla Meets Transformers in 119-Minute Sci-Fi Gem That's Conquering Streaming
+
+Movies, Pacific Rim: Uprising, Pacific Rim
+
+Fri, 31 Jul 2026 15:00:16 GMT
+
+https://www.cbr.com/pacific-rim-uprising-hbo-max-success-july-2026/
+
+One of the best kaiju sequels of an entire generation is making its way to the top of the streaming charts a decade after its unforgettable debut.
+---------
+
+# 10 Best Cyclops Costumes, Ranked
+
+Comics, X-Men, Cyclops, Marvel
+
+Fri, 31 Jul 2026 15:00:16 GMT
+
+https://www.cbr.com/cyclops-best-costumes-ranked-list/
+
+The evolution of Cyclops' iconic costumes, from his New X-Men leathers to his beloved X-Men '97 look, highlights the character's growth with the team.
+---------
+
+# 10 Action Anime That Were Perfect From the First Scene to Last
+
+Anime, Action, Attack On Titan, JoJo's Bizarre Adventure
+
+Fri, 31 Jul 2026 15:00:16 GMT
+
+https://www.cbr.com/action-anime-perfect-from-start-to-finish/
+
+It's a rare feat for an anime series to maintain perfect action from start to finish, but some anime prove it effortlessly with every scene.
+---------
+
+# Wonder Man Star Reacts to Disney+'s Shocking Cancellation After Season 2 Renewal: 'Now Ya Knoww!'
+
+TV, Wonder Man, Disney+, Marvel
+
+Fri, 31 Jul 2026 14:42:09 GMT
+
+https://www.cbr.com/wonder-man-yahya-abdul-mateen-reacts-cancellation/
+
+Yahya Abdul-Mateen II thanked fans on Instagram after Wonder Man's cancelation
+---------
+
+# Mahershala Ali Officially Moves on From ‘Blade’ After Marvel Cancellation
+
+Movie News, Blade, Mahershala Ali, MCU, Kevin Feige
+
+Fri, 31 Jul 2026 15:46:25 GMT
+
+https://collider.com/blade-cancelled-mahershala-ali-calls-out-marvel/
+
+Mahershala Ali officially calls out Marvel for their handling of Blade, confirming that the film is cancelled.
+---------
+
+# ‘Spider-Man: Brand New Day’ Officially Defeats ‘Avengers: Endgame’ as Marvel’s Largest Opening Weekend Ever
+
+Movie News, Spider-Man: Brand New Day, Avengers: Endgame, Marvel, Marvel Studios
+
+Fri, 31 Jul 2026 14:40:49 GMT
+
+https://collider.com/spider-man-brand-new-day-marvels-largest-opening-weekend-ever/
+
+Spider-Man: Brand New Day officially defeats Avengers: Endgame as Marvel’s largest opening weekend ever.
+---------
+
+# Taylor Sheridan Returns to His 'Sicario' Roots in a Messy and Chaotic 'Lioness' Season 3 | Review
+
+TV Reviews, Lioness, Paramount Plus, Taylor Sheridan, Zoe Saldana
+
+Fri, 31 Jul 2026 14:01:15 GMT
+
+https://collider.com/lioness-season-3-review-taylor-sheridan-zoe-saldana/
+
+Taylor Sheridan takes Lioness in a new direction in Season 3, resulting in a confusing narrative and a series that feels like any old spy thriller.
+---------
+
+# 'Spider-Man: Brand New Day' Breaks All-Time Box Office Record Set by 'Avengers: Endgame' in 1 Day
+
+Movie News, Spider-Man: Brand New Day, Avengers: Endgame, box office
+
+Fri, 31 Jul 2026 15:11:41 GMT
+
+https://movieweb.com/spider-man-brand-new-day-box-office-avengers-endgame-preview/
+
+MCU box office records are already falling, only one day into the theatrical run for 'Spider-Man: Brand New Day.'
+---------
+
+# Hulu's New 100% Rated Crime Thriller Is Already One of the Biggest Shows on Streaming
+
+TV News, Furious, Hulu, Hot on Streaming
+
+Fri, 31 Jul 2026 15:01:12 GMT
+
+https://movieweb.com/furious-streaming-success-hulu-july-2026/
+
+The darkest crime thriller of the year is now streaming on Hulu.
+---------
+
+# 10 Movies From the ‘90s Roger Ebert Couldn’t Stand
+
+Movie Lists, Roger Ebert
+
+Fri, 31 Jul 2026 14:30:12 GMT
+
+https://movieweb.com/90s-movies-ebert-couldnt-stand/
+
+Roger Ebert wasn't always kind when he hated something. Here are some '90s movies that he disliked immensely.
+---------
+
+# Marvel Star & Creator Officially Address Shocking Series Cancellation
+
+TV News, Wonder Man, Disney+
+
+Fri, 31 Jul 2026 14:06:32 GMT
+
+https://movieweb.com/wonder-man-canceled-yahya-abdul-mateen-response/
+
+Marvel Studios canceled one of its best-reviewed series, promping heartfelt responses from the cast and crew.
+---------
+
+# When Will 'Spider-Man: Brand New Day' Be Released on Streaming?
+
+Features, Spider-Man: Brand New Day, Spider-Man, Tom Holland
+
+Fri, 31 Jul 2026 14:01:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-streaming-release/
+
+Previous Spidey films have taken years to appear on Disney+. Will this one be the same? Here's everything we know.
+---------
+
 # Best Steampunk Fantasy Books Of All Time
 
 Books, Fantasy
@@ -5199,301 +5496,4 @@ Wed, 29 Jul 2026 22:00:11 GMT
 https://screenrant.com/fantasy-books-every-dungeons-dragons-fan-should-read/
 
 Looking for more books to read between your Dungeons & Dragons sessions? These seven fantasy books are the perfect next-reads for fans of D&amp;D!
----------
-
-# Guy Ritchie’s Sherlock Series Says Goodbye as Star Exits Series Ahead of New Episodes
-
-Movies, Young Sherlock
-
-Wed, 29 Jul 2026 22:25:13 GMT
-
-https://www.cbr.com/young-sherlock-season-2-cast-shakeup/
-
-New cast members have been revealed along with the confirmation of one star's exit.
----------
-
-# 5 Anime Villains With Powers Even Stronger Than Yhwach
-
-Anime, Dragon Ball, My Hero Academia, Fullmetal Alchemist, Bleach: Thousand-Year Blood War, Bleach
-
-Wed, 29 Jul 2026 22:16:15 GMT
-
-https://www.cbr.com/anime-villains-with-stronger-power-than-yhwach/
-
-Yhwach may be Bleach's most overpowered villains, but not even his time manipulation could stand a chance against these five undisputed villains.
----------
-
-# Brendan Fraser’s 100-Minute War Movie That Quietly Became a Hit Is Finally Streaming
-
-Movies, Pressure
-
-Wed, 29 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/brendan-fraser-pressure-war-streaming-on-peacock-july-2026/
-
-A critically-acclaimed yet wildly underseen war drama starring Brendan Fraser and Andrew Scott finally has a new streaming home.
----------
-
-# Marvel Officially Updates Variant Cover Policy, Catching Fans Off Guard
-
-Comics, Marvel
-
-Wed, 29 Jul 2026 22:00:15 GMT
-
-https://www.cbr.com/marvel-midnight-universe-variant-cover-program/
-
-Marvel has simplified their approach to variant covers, and it seems like it will be far less complicated for readers.
----------
-
-# Apple TV Officially Reveals Plans for More 'Ted Lasso' Beyond Season 4
-
-TV News, Ted Lasso, Apple TV, Jason Sudeikis, Hannah Waddingham
-
-Wed, 29 Jul 2026 22:30:15 GMT
-
-https://collider.com/ted-lasso-new-3-season-arc-apple-tv/
-
-Apple TV's hit comedy series, Ted Lasso, has revealed its plans for more seasons ahead of Season 4 anticipated return.
----------
-
-# ‘Harry Potter’ Meets ‘Twilight’ in This 3-Season Fantasy Series That Deserved Better
-
-TV Features, Twilight, Harry Potter, Fantasy, Shadowhunters
-
-Wed, 29 Jul 2026 22:29:15 GMT
-
-https://collider.com/harry-potter-twilight-replacement-series-mortal-instruments-shadowhunters/
-
-Shadowhunters blends the romance of Twilight with the magical world of Harry Potter while succeeding where The Mortal Instruments movie failed.
----------
-
-# Forget 'Jumanji,' This Is Officially the Best Game-Based Film Ever Made
-
-Movie Features, Dungeons and Dragons: Honor among Thieves, Dungeons and Dragons, Fantasy, Pluto TV
-
-Wed, 29 Jul 2026 22:22:15 GMT
-
-https://collider.com/dungeons-and-dragons-honor-among-thieves-streaming-free-pluto-tv-july-2026/
-
-2023's Dungeons & Dragons: Honor Among Thieves, the fantasy film that finally does the tabletop game justice, is streaming free on Pluto TV.
----------
-
-# 10 Biggest TV Reveals From SDCC 2026, Ranked
-
-TV, SDCC, Lanterns, Percy Jackson & the Olympians, Interview with the Vampire
-
-Wed, 29 Jul 2026 22:03:14 GMT
-
-https://collider.com/sdcc-2026-tv-news-ranked/
-
-From Percy Jackson and the Olympians to Interview with the Vampire and Blade Runner 2099, these are the biggest TV stories from SDCC this year.
----------
-
-# Netflix Declares Raunchy New R-Rated Movie the Official Worldwide #1 on Streaming
-
-Movie News, 72 Hours, Netflix
-
-Wed, 29 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/72-hours-netflix-biggest-stream-july-2026/
-
-Watch this if you loved 'The Hangover.'
----------
-
-# Forget Taylor Sheridan, Netflix's 2-Part Western Series Is One of the Biggest Shows on Global Streaming
-
-TV News, Ransom Canyon, Netflix, Hot on Streaming
-
-Wed, 29 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/netflix-ransom-canyon-streaming-global-success-july-2026/
-
-The Western drama returned with Season 2, and has instantly become a hit for Netflix.
----------
-
-# The 6 Greatest Episodes of 'The Twilight Zone'
-
-TV Lists, The Twilight Zone, Rod Serling
-
-Wed, 29 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/greatest-twilight-zone-episodes/
-
-'The Twilight Zone' was prolific for its time, and these hard-hitting episodes prove the series it remains so today.
----------
-
-# Young Avengers' MCU Future After Doomsday Return Addressed By Star
-
-Movies, Young Avengers, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
-
-Wed, 29 Jul 2026 21:48:53 GMT
-
-https://screenrant.com/young-avengers-mcu-future-avengers-doomsday-return-kathryn-newton/
-
-EXCLUSIVE: The future for the Young Avengers group finally gets a big MCU update from one of the members who will be back in Avengers: Doomsday.
----------
-
-# Titus Welliver Has Found His Harry Bosch Replacement
-
-TV, Masked Recs
-
-Wed, 29 Jul 2026 21:30:11 GMT
-
-https://screenrant.com/the-westies-titus-welliver-glenn-keenan-harry-bosch-replacement/
-
-Although Prime Video's Bosch franchise is using Titus Welliver less and less, he's found another character in uniform who's just as compelling.
----------
-
-# Disney+'s New Space Opera Passes 1 Billion Minutes Watched To Succeed In Hard Task
-
-Movies, Masked Recs
-
-Wed, 29 Jul 2026 21:20:30 GMT
-
-https://screenrant.com/disney-plus-avatar-fire-and-ash-billion-minutes-watched-july-2026/
-
-Disney+'s new space opera has become one of the biggest releases in the world, and it is racking up streaming numbers to succeed in a daunting task.
----------
-
-# Stranger Things Returns To Netflix In An Unexpected Way
-
-Gaming, Stranger Things, Live Service Games, PC
-
-Wed, 29 Jul 2026 21:15:59 GMT
-
-https://screenrant.com/netflix-stranger-things-game-return-2026/
-
-Netflix clearly isn't giving up on Stranger Things any time soon, and subscribers now have a surprising new adventure in Hawkins to enjoy.
----------
-
-# 71 Years & 17 Oscars Later, Gandalf's Best Line Is The One That Didn't Make It Into The LotR Movies
-
-Books, The Lord of the Rings
-
-Wed, 29 Jul 2026 21:05:11 GMT
-
-https://screenrant.com/best-gandalf-quote-not-in-lotr-movies/
-
-Peter Jackson's LotR trilogy is a cinematic masterpiece, but one of Gandalf's most profound quotes from the novels never made it to the screen.
----------
-
-# Hit New Survival Horror Franchise Officially Getting Movie & TV Adaptations
-
-Movies, Horror
-
-Wed, 29 Jul 2026 21:03:21 GMT
-
-https://screenrant.com/tormented-souls-movie-tv-adaptations-development/
-
-Five years after the first Tormented Souls came out, it's been announced that the horror video game franchise is being developed for film and TV.
----------
-
-# The Rings Of Power Officially Casts An Underrated Middle-earth Hero
-
-TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
-
-Wed, 29 Jul 2026 21:02:11 GMT
-
-https://screenrant.com/the-rings-of-power-anarion-casting-underrated-character/
-
-The Rings of Power season 3 has cast an underrated figure from Tolkien's lore who played a pivotal role in the formation of Gondor and the Alliance.
----------
-
-# It's The End Of An Era For Alan Ritchson's Netflix Sci-Fi Movie With 15.2B Minutes Viewed
-
-New Movies, War Machine, Netflix
-
-Wed, 29 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/alan-ritchson-war-machine-movie-netflix-end-era/
-
-Alan Ritchson and Netflix delivered a global hit with a sci-fi movie, but after earning 15.2 billion minutes viewed, its reached the end of an era.
----------
-
-# 5 10/10 N64 RPGs That Nobody Talks About
-
-Gaming, Nintendo
-
-Wed, 29 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/perfect-n64-rpgs-nobody-talks-about/
-
-The Nintendo 64 wasn't known for its RPGs, but there are still a few great examples from the console's RPG roster that no one ever talks about.
----------
-
-# Doctor Doom's 'War Machine' Armor Debuts Ahead Of Avengers: Doomsday
-
-Marvel Comics, Doctor Doom
-
-Wed, 29 Jul 2026 20:57:23 GMT
-
-https://screenrant.com/doctor-doom-iron-man-armor/
-
-Doctor Doom designs a War Machine-like suit of armor inspired by Tony Stark's first suit of armor to build the empire of Greater Latveria.
----------
-
-# 5 Perfect Open-World Games No One Remembers Today
-
-Games, Gaming, RPG, open world
-
-Wed, 29 Jul 2026 21:16:15 GMT
-
-https://www.cbr.com/forgotten-perfect-open-world-games/
-
-With so much focus on all the obvious open-world classics, there are some incredible open-world titles being forgotten.
----------
-
-# 5 Harry Potter Characters Who Are Far More Powerful In The Books
-
-Movies, Harry Potter, Fantasy, books
-
-Wed, 29 Jul 2026 21:00:15 GMT
-
-https://www.cbr.com/harry-potter-characters-more-powerful-in-books-list/
-
-From book to screen, the Harry Potter movies changed many things, but these five characters were significantly more powerful in the books.
----------
-
-# Jorah Mormont Officially Returns in New Game of Thrones Release Out Now
-
-Games, Game Of Thrones
-
-Wed, 29 Jul 2026 20:50:34 GMT
-
-https://www.cbr.com/game-of-thrones-jorah-mormont-officially-returns/
-
-Ser Jorah Mormont may have died in Game of Thrones Season 8, but now he's finally returning in a new release.
----------
-
-# 25 Best Psychological Thrillers of the 21st Century
-
-Movie, Nightcrawler, Mulholland Drive, Gone Girl, Inception
-
-Wed, 29 Jul 2026 21:51:14 GMT
-
-https://collider.com/best-psychological-thrillers-21st-century-ranked/
-
-The very best psychological thrillers of the 21st century so far include modern classics like Nightcrawler, The Prestige, and I Saw the Devil.
----------
-
-# The Ultimate Supergroup Was Accidentally Formed in Bob Dylan’s Garage
-
-Music Features, Music, Rock
-
-Wed, 29 Jul 2026 21:38:14 GMT
-
-https://collider.com/traveling-wilburys-rock-supergroup-bob-dylan/
-
-Bob Dylan, George Harrison, Tom Petty, Roy Orbison, and Jeff Lynne formed folk rock supergroup the Traveling Wilburys in 1988
----------
-
-# 10 Great Books Stephen King Fans Should Read
-
-Books and Comics
-
-Wed, 29 Jul 2026 21:29:15 GMT
-
-https://collider.com/great-books-stephen-king-fans-should-read/
-
-There are plenty of books that scratch the same itch as some of Stephen King's best works, including King Sorrow, The Terror, and House of Leaves.
 ---------
