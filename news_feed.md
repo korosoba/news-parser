@@ -1,3 +1,278 @@
+# Lady Gaga’s Record-Setting $690M Hit Is Dominating Multiple Streaming Platforms
+
+Movies, Masked Recs
+
+Fri, 31 Jul 2026 18:48:09 GMT
+
+https://screenrant.com/lady-gaga-devil-wears-prada-2-hulu-disney-plus-streaming-success-july-2026/
+
+After grossing $690 million at the box office, a new movie featuring a surprise Lady Gaga appearance has become a major hit on streaming.
+---------
+
+# Dermot Mulroney Officially Sets Chicago Fire Series Exit
+
+TV, Chicago Fire, One Chicago
+
+Fri, 31 Jul 2026 18:41:40 GMT
+
+https://screenrant.com/chicago-fire-season-15-dermot-mulroney-exit/
+
+Chicago Fire season 15 is saying goodbye to a familiar face, as veteran actor Dermot Mulroney is preparing to exit the long-running procedural.
+---------
+
+# Supergirl’s Streaming Redemption Has Begun In A Massive Way After $186M Bombing
+
+Movies, Supergirl, DC Universe
+
+Fri, 31 Jul 2026 18:39:45 GMT
+
+https://screenrant.com/supergirl-movie-streaming-success-fandango-july-2026/
+
+While it struggled at the box office, DC Studios' Supergirl movie with Milly Alcock as Kara Zor-El is finding new success in the world of streaming.
+---------
+
+# Andrew Garfield Responds To Brand New Day Post-Credits, Addresses Spider-Man Secret Wars Return
+
+Exclusive, Spider-Man: Brand New Day
+
+Fri, 31 Jul 2026 18:38:54 GMT
+
+https://screenrant.com/spiderman-brand-new-day-post-credits-andrew-garfield-return-future/
+
+EXCLUSIVE: Spider-Man: Brand New Day is opening up a whole new world, as Andrew Garfield responds to that post-credit scene and Secret Wars return.
+---------
+
+# Ziva David's 15 Best NCIS Quotes
+
+Network TV, NCIS
+
+Fri, 31 Jul 2026 18:30:11 GMT
+
+https://screenrant.com/ziva-david-best-ncis-quotes/
+
+Dive into the best lines from Ziva David on NCIS, featuring her iconic mix of humor, heart, and toughness as she moved through her work with the MCRT.
+---------
+
+# 23 Years Later, Omar Little’s Best Line In The Wire Is Still The Greatest Quote In TV Crime History
+
+TV, The Wire
+
+Fri, 31 Jul 2026 18:30:11 GMT
+
+https://screenrant.com/the-wire-omar-little-best-crime-tv-quote-all-time/
+
+The Wire gave us many of TV crime's greatest moments, but one particular is still the single best line of dialogue in the genre's history.
+---------
+
+# Apple TV & Silo Creator Adapting Hit Crime Novel Trilogy Praised By Barack Obama
+
+TV, Silo, Apple TV
+
+Fri, 31 Jul 2026 18:01:17 GMT
+
+https://screenrant.com/apple-tv-harlem-trilogy-series-colson-whitehead-development/
+
+After bring Hugh Howey’s Silo trilogy to life on the small screen, Graham Yost is set to do it all over again, this time for a series of crime novels.
+---------
+
+# Avatar's New Movie Was Great, But It Basically Ruined A Fan-Favorite Character
+
+Movies, Avatar Aang: The Last Airbender, Avatar: The Last Airbender
+
+Fri, 31 Jul 2026 18:00:11 GMT
+
+https://screenrant.com/avatar-movie-suki-wasted/
+
+Avatar's biggest mistake continues.
+---------
+
+# Dakota Fanning's 6-Part Netflix Psychological Thriller Series Has One Of Its Best Casts
+
+TV, Masked Recs
+
+Fri, 31 Jul 2026 18:00:11 GMT
+
+https://screenrant.com/netflix-the-perfect-couple-thriller-series-cast-best/
+
+Dakota Fanning stars in one of Netflix's most mysterious thriller series, and it boasts one of the best casts on the streaming service.
+---------
+
+# A Forgotten Pokémon Game Thought To Be Lost Forever Has Been Found After 20 Years
+
+Gaming, Pokemon, Nintendo, Nintendo DS
+
+Fri, 31 Jul 2026 18:00:11 GMT
+
+https://screenrant.com/pokemon-lost-fishing-game-found/
+
+After 20 years, a piece of Pokémon lost media that barely anyone remembers has finally been recovered and could finally be preserved.
+---------
+
+# Scott Snyder And Jock's Acclaimed Series Confirmed to Expand This Fall
+
+Comics, wytches
+
+Fri, 31 Jul 2026 18:49:19 GMT
+
+https://www.cbr.com/scott-snyder-jock-wytches-vol-1-pledge-edition-release-date-confirmed/
+
+This legendary comic book team's scariest book yet is making its way back into the hands of readers.
+---------
+
+# 10 Most Obscure Anime No One's Ever Heard Of
+
+Anime
+
+Fri, 31 Jul 2026 18:15:15 GMT
+
+https://www.cbr.com/most-obscure-anime-no-ones-ever-heard-of/
+
+Everyone has seen Dragon Ball, Naruto, and Sailor Moon, but no one has even heard of these obscure anime series.
+---------
+
+# In Just 1 Day, JJ Abrams' Cult Spy Classic Will Be Available to Stream for Free
+
+TV, Alias
+
+Fri, 31 Jul 2026 18:01:14 GMT
+
+https://www.cbr.com/jj-abrams-alis-spy-thriller-streaming-free-pluto-aug-2026/
+
+J.J. Abrams helmed this legendary spy thriller TV show, and it'll soon be available to stream for absolutely free.
+---------
+
+# Archie Comics Reveals New Variant Cover—But There’s One Big Catch
+
+Comics, Archie Comics
+
+Fri, 31 Jul 2026 18:01:14 GMT
+
+https://www.cbr.com/archie-rose-city-comic-con-variant-cover-revealed/
+
+A brand-new variant cover for the next ongoing Archie comic book series has been unveiled, and it might be the most exclusive of them all.
+---------
+
+# X-Men ’97 Star Explains What Polaris Needs for Her Next Marvel Story
+
+CBR Exclusives, X-Men '97
+
+Fri, 31 Jul 2026 17:57:54 GMT
+
+https://www.cbr.com/x-men-97-carolina-ravassa-polaris-future-ideas/
+
+The X-Men '97 actress dreams of a future that Polaris is more than worthy of.
+---------
+
+# 10 Coolest Anime Characters of the Last 10 Years, Ranked
+
+Anime, Jujutsu Kaisen, Frieren: Beyond Journey's End, Witch Hat Atelier
+
+Fri, 31 Jul 2026 17:50:15 GMT
+
+https://www.cbr.com/coolest-new-gen-anime-characters-2020s/
+
+New-Gen anime characters like Satoru Gojo and Jolyne Kujoh have redefined "Cool" in anime.
+---------
+
+# Breath of the Wild Meets Pirates of the Caribbean in New Game You Can Play for Free Right Now
+
+Games, pirates, The Legend of Zelda, Pirates of the Caribbean, Steam
+
+Fri, 31 Jul 2026 17:40:15 GMT
+
+https://www.cbr.com/breath-of-the-wild-meets-pirates-of-the-caribbean-corsair-cove-free/
+
+Pirates of the Carribbean meets Breath of the Wild in a massive new pirate game with a free demo on Steam.
+---------
+
+# Netflix's Ginny & Georgia Needs to Break Its Biggest Formula in Season 4
+
+TV, Ginny & Georgia, Netflix
+
+Fri, 31 Jul 2026 17:30:15 GMT
+
+https://www.cbr.com/netflix-ginny-and-georgia-renewal-future/
+
+With Ginny & Georgia's future uncertain, Season 4 needs to finally answer these long-standing questions to officially close its biggest mystery.
+---------
+
+# Heartstopper Forever Had to Make Fans Cry | Collider BTS
+
+TV, Heartstopper Forever
+
+Fri, 31 Jul 2026 18:15:15 GMT
+
+https://collider.com/video/heartstopper-forever-had-to-make-fans-cry-collider-bts/
+
+Heartstopper Forever: Editing the Emotional Finale brings editor Todd Downing behind the scenes of Netflix's highly anticipated conclusion to Nick and Charlie's story.
+---------
+
+# Mel Gibson’s Most Divisive Movie Officially Returns With New 2026 Release
+
+Movie News, Mel Gibson, The Passion of the Christ, The Resurrection of the Christ Part 1, Box Office
+
+Fri, 31 Jul 2026 18:15:15 GMT
+
+https://collider.com/mel-gibson-passion-of-the-christ-theater-return-tickets-on-sale-september-2026/
+
+Mel Gibson's most controversial movie, The Passion of the Christ, is officially returning to theaters this year ahead of the 2-part sequel.
+---------
+
+# Zendaya Officially Crowned Queen of the Box Office With ‘The Odyssey’s Latest Milestone
+
+Movie News, The Odyssey, Dune: Part Two, Christopher Nolan, Zendaya
+
+Fri, 31 Jul 2026 17:50:50 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-overtakes-dune-part-2-box-office-714-million/
+
+Christopher Nolan's The Odyssey has overtaken one of the greatest sci-fi movies of the decade at the worldwide box office in just two weeks.
+---------
+
+# Hulu’s New Twisted 8-Part Crime Drama Is Quietly Becoming One of 2026’s Best
+
+TV Features, Furious, Emmy Rossum, Scoot McNairy, Hulu
+
+Fri, 31 Jul 2026 17:28:15 GMT
+
+https://collider.com/hulu-best-crime-drama-2026-furious-series/
+
+Furious is the next great crime series about a damaged rookie FBI agent who tries to catch a female serial killer against all odds.
+---------
+
+# Long-Awaited DCU Superhero Series No Longer Moving Forward After 3 Years
+
+TV News, DCU
+
+Fri, 31 Jul 2026 18:30:31 GMT
+
+https://movieweb.com/dcu-hbo-booster-gold-not-moving-forward/
+
+David Jenkins confirmed his in-development Booster Gold series has been canceled.
+---------
+
+# Major 'Game of Thrones' Mysteries Solved With First Lore Update in 4 Years
+
+Features, Game Of Thrones
+
+Fri, 31 Jul 2026 18:00:12 GMT
+
+https://movieweb.com/george-rr-martin-mad-king-game-of-thrones-lore-update/
+
+A new 'Game of Thrones' adaptation is satisfying readers' desires for answers with some major reveals.
+---------
+
+# Frank Reynolds' 10 Funniest Quotes from It's Always Sunny in Philadelphia
+
+TV Lists, It's Always Sunny in Philadelphia, Danny DeVito
+
+Fri, 31 Jul 2026 18:00:12 GMT
+
+https://movieweb.com/its-always-sunny-in-philadelphia-frank-reynolds-funniest-quotes/
+
+He may have been a late addition, but fans can't envision Sunny without Frank Reynolds. Let's take a look at his most defining moments in the show.
+---------
+
 # ABC's High Potential Replacement Series Continues Streaming Domination Ahead Of Return
 
 TV, Masked Recs
@@ -5221,279 +5496,4 @@ Thu, 30 Jul 2026 02:45:15 GMT
 https://www.cbr.com/most-influential-movies-21st-century-list/
 
 From trendsetters within their genre to technological innovators, these five films from the year 2000 onward changed the movie industry.
----------
-
-# 4 Netflix Anime Series That Are 10/10 Masterpieces
-
-Anime, Cyberpunk: Edgerunners, Pluto, Delicious in Dungeon
-
-Thu, 30 Jul 2026 02:45:15 GMT
-
-https://www.cbr.com/neflix-anime-series-masterpieces/
-
-Of all the Netflix original anime series, these select few are considered the greatest masterpieces with brilliant writing and animation.
----------
-
-# 'Game of Thrones' Was at Its Best When It Finally Left the Books Behind
-
-TV Features, Game Of Thrones, George R.R. Martin, A Song of Ice and Fire, Fantasy
-
-Thu, 30 Jul 2026 04:30:14 GMT
-
-https://collider.com/game-of-thrones-season-6-book-difference/
-
-Even though Game of Thrones left the books behind in Season 6, the show still delivered one of its best installments.
----------
-
-# 6 Best Adventure Movies Released Since 2000
-
-Movie, Interstellar, The Odyssey, Adventure, The Lord of the Rings: The Return of the King
-
-Thu, 30 Jul 2026 04:07:14 GMT
-
-https://collider.com/best-adventure-movies-since-2000-ranked/
-
-The Odyssey, Mad Max: Fury Road, and The Lord of the Rings: The Return of the King are among the best adventure movies released since the year 2000.
----------
-
-# 'Band of Brothers' Most Brutal WWII Episode Is the Moment the Show Becomes a Masterpiece
-
-TV Features, Band of Brothers, HBO, Neal McDonough, Drama
-
-Thu, 30 Jul 2026 03:15:15 GMT
-
-https://collider.com/band-of-brothers-most-brutal-wwii-episode-breaking-point-masterpiece/
-
-Band of Brothers' most brutal episode is both a turning point for the WWII series and its characters.
----------
-
-# Forget 'Game of Thrones,' These Beloved Books Have the Best Dragons in Fantasy
-
-Books and Comics, Books, Game Of Thrones, Fantasy, House of the Dragon
-
-Thu, 30 Jul 2026 03:03:15 GMT
-
-https://collider.com/deltora-quest-emily-rodda-fantasy-books-best-dragons/
-
-Emily Rodda's Deltora Quest is a beloved fantasy series that features what are arguably the most creative and fully realized dragons in literature.
----------
-
-# 10 Most Perfect Sci-Fi Shows of the Last 10 Years
-
-TV, Sci-Fi, Severance, Silo, Stranger Things
-
-Thu, 30 Jul 2026 03:01:14 GMT
-
-https://collider.com/most-perfect-sci-fi-shows-last-10-years-ranked/
-
-Silo, Stranger Things, Dark Matter, and For All Mankind are among the best sci-fi shows of the last decade, but which series is the greatest?
----------
-
-# Apple TV’s Twisted 10-Part Book Adaptation Is Rising on Streaming Ahead of the Finale
-
-TV Features, Apple TV, Cape Fear, Amy Adams, Javier Bardem
-
-Thu, 30 Jul 2026 02:56:14 GMT
-
-https://collider.com/apple-tv-book-adaptation-cape-fear-streaming-success/
-
-On June 5, 2026, Apple TV premiered its latest thriller, the new remake and book adaptation of Cape Fear, and it’s rapidly winning over fans.
----------
-
-# 10 Great Hard Sci-Fi TV Shows Everyone Forgot About
-
-TV Lists, Wayward Pines
-
-Thu, 30 Jul 2026 02:00:22 GMT
-
-https://movieweb.com/best-hard-sci-fi-tv-shows-forgotten/
-
-These hard sci-fi TV shows are underrated, and even the biggest fans of the genre might have missed out on them.
----------
-
-# 2001's Best Drama Is Streaming On YouTube For Free, And It's Aging Like Fine-Wine
-
-Anime, YouTube, Masked Recs
-
-Thu, 30 Jul 2026 01:37:42 GMT
-
-https://screenrant.com/millenium-actress-2001-best-drama-youtube-streaming/
-
-Satoshi Kon's acclaimed 2001 animated film 'Millennium Actress' is now available to watch for free on YouTube in the United States for a limited time.
----------
-
-# Godzilla Officially Returns This Year With 11 Iconic Kaiju In Their Biggest Battle Yet
-
-Gaming, Godzilla, tabletop games
-
-Thu, 30 Jul 2026 01:00:11 GMT
-
-https://screenrant.com/godzilla-2026-return-massive-kaiju-crossover/
-
-Godzilla has been a mainstay for nearly three-quarters of a century, and now a dozen legendary kaiju are all making an appearance together this year.
----------
-
-# 10 Greatest Sci-Fi Space Opera Video Games Of All-Time, Ranked
-
-Gaming, Sci-Fi, Triple-A Games, PC
-
-Thu, 30 Jul 2026 01:00:11 GMT
-
-https://screenrant.com/greatest-sci-fi-space-opera-games-ranked/
-
-The Space Opera genre is surprisingly rare in the gaming world, but there are still plenty of excellent options that fill the unique sci-fi niche.
----------
-
-# The Batman 2 Set Video Hints At Devastating Fate For A Major Character
-
-Movies, The Batman Part II
-
-Thu, 30 Jul 2026 00:55:58 GMT
-
-https://screenrant.com/the-batman-2-set-video-james-gordon-fate/
-
-New footage from the production of The Batman: Part II reveals that a major character could suffer a horrible fate in the upcoming sequel.
----------
-
-# Gilmore Girls: Luke and Lorelai's Relationship Timeline, Season By Season
-
-Classic TV, Gilmore Girls
-
-Thu, 30 Jul 2026 00:45:11 GMT
-
-https://screenrant.com/gilmore-girls-luke-and-lorelai-relationship-development-friends-love/
-
-Luke and Lorelai always had chemistry on Gilmore Girls, but it took the two Stars Hollow residents a long time to act on their love for each other.
----------
-
-# Marvel Officially Names Thor's Replacement As New Ruler Of Asgard
-
-Marvel Comics, Thor
-
-Thu, 30 Jul 2026 00:30:11 GMT
-
-https://screenrant.com/thor-replace-enchantress-queen-asgard/
-
-One of Thor's most dangerous enemies officially seizes power in Asgard, declaring herself the new All-Mother after assassinating her predecessor.
----------
-
-# Hulu’s ‘The Godfather Meets American Gangster’ Series Makes Tony Soprano Look Weak
-
-TV, Masked Recs
-
-Thu, 30 Jul 2026 00:30:11 GMT
-
-https://screenrant.com/godfather-of-harlem-like-godfather-american-gangster-bumpy-johnson-tony-soprano/
-
-An underappreciated mobster masterpiece streaming on Hulu features a protagonist who would run rings around Tony Soprano if the two of them met.
----------
-
-# Avatar's New Aang Movie Just Completely Redeemed Korra, And No One Noticed
-
-Movies, Avatar Aang: The Last Airbender, The Legend of Korra, Avatar: The Last Airbender
-
-Thu, 30 Jul 2026 00:30:11 GMT
-
-https://screenrant.com/avatar-aang-last-airbender-redeems-korra/
-
-The new Avatar Aang: The Last Airbender movie proves the glaring double standard between how fans treat Avatar Korra versus Avatar Aang.
----------
-
-# Ryan Gosling's Ghost Rider & Shang-Chi Clash In Fiery MCU Art
-
-Movies, Marvel Cinematic Universe, Ghost Rider, Shang-Chi
-
-Thu, 30 Jul 2026 00:25:04 GMT
-
-https://screenrant.com/ryan-gosling-ghost-rider-shang-chi-marvel-fan-art/
-
-The MCU's Ghost Rider movie announcement and Ryan Gosling's casting is followed by epic fan art of the character fighting against Shang-Chi.
----------
-
-# Game Of Thrones Finally Confirms 2 Major House Stark Theories After 26 Years
-
-Streaming TV, Game of Thrones
-
-Thu, 30 Jul 2026 00:15:11 GMT
-
-https://screenrant.com/game-of-thrones-mad-king-play-house-stark-theories-confirmed/
-
-It's been nearly three decades of theorizing, but the Game of Thrones franchise has officially come forward with some brand new answers.
----------
-
-# 4 Classic PS2 Games That Are 10/10 Masterpiece
-
-Games, Video Games, PlayStation 2
-
-Thu, 30 Jul 2026 01:45:15 GMT
-
-https://www.cbr.com/classic-ps2-games-masterpieces/
-
-PlayStation 2 exceeded gamer expectations, delivering an even more refined home gaming experience and plenty of masterpiece games.
----------
-
-# 5 Classic Action Anime Series That Aren't As Good As You Remember
-
-Anime, Inuyasha, One-Punch Man
-
-Thu, 30 Jul 2026 01:25:15 GMT
-
-https://www.cbr.com/classic-action-anime-series-not-as-good-as-you-remember/
-
-There are some extremely popular action anime out there, but some of these former classics, like Soul Eater and InuYasha, have not aged well.
----------
-
-# 5 Things We Learned From Playing Silent HIll: Townfall
-
-Games, Silent Hill, Video Games, Silent Hill: Townfall
-
-Thu, 30 Jul 2026 00:45:15 GMT
-
-https://www.cbr.com/silent-hill-townfall-early-preview/
-
-After playing Silent Hill: Townfall early, it clearly has the potential to become 2026's best horror game.
----------
-
-# Anime Fans Get Instant Access to Dragon Ball, Naruto & More in Surprise New Crunchyroll Bundle
-
-Anime, Crunchyroll, Prime Video, Starz, Streaming
-
-Thu, 30 Jul 2026 00:35:15 GMT
-
-https://www.cbr.com/crunchyroll-starz-prime-video-new-streaming-bundle/
-
-Anime fans just got access to some of the hottest series of all time on one of the biggest platforms, thanks to a major new Crunchyroll partnership.
----------
-
-# Chris Pine's Dungeons & Dragons Movie is the Best Game Adaptation Ever
-
-Movies, Dungeons & Dragons: Honor Among Thieves
-
-Thu, 30 Jul 2026 00:30:15 GMT
-
-https://www.cbr.com/dungeons-and-dragons-honor-among-thieves-best-fantasy-adaptation/
-
-One of the most infamous box office flops of Chris Pine's career deserves more credit as one of the best game adaptations of all time.
----------
-
-# Netflix's 7-Episode Peak Western Still Outshines Taylor Sheridan's Yellowstone Universe
-
-TV, Godless, Yellowstone, Western
-
-Thu, 30 Jul 2026 00:30:15 GMT
-
-https://www.cbr.com/netflix-godless-better-than-yellowstone/
-
-Taylor Sheridan's Yellowstone universe has become a benchmark for the Western genre, but Netflix's miniseries is arguably better.
----------
-
-# Alicia Vikander's 108-Minute M3GAN Replacement Is Losing Its Streaming Home in Just 3 Days
-
-Movies, Ex Machina
-
-Thu, 30 Jul 2026 00:30:15 GMT
-
-https://www.cbr.com/alicia-vikander-ex-machina-leaving-netflix-august-2026/
-
-One of the best sentient android thrillers of the past decade is officially set to lose its biggest streaming home, and it's going away soon.
 ---------
