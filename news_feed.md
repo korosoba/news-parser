@@ -1,3 +1,410 @@
+# Harrison Ford’s 163-Minute Sci-Fi Masterpiece Is Getting New Streaming Home At The Perfect Time
+
+Movies, Blade Runner 2049
+
+Fri, 31 Jul 2026 20:04:05 GMT
+
+https://screenrant.com/harrison-ford-blade-runner-2049-paramount-plus-streaming-release-august-2026/
+
+Harrison Ford's acclaimed sci-fi sequel Blade Runner 2049 is set to stream on Paramount+, as anticipation builds for the upcoming Amazon series.
+---------
+
+# New Critical Role Campaign Revealed, Led By D&D Legend
+
+Gaming, Critical Role, Dungeons and Dragons, tabletop games
+
+Fri, 31 Jul 2026 20:02:54 GMT
+
+https://screenrant.com/new-critical-role-campaign-reign-weredragon-chris-perkins/
+
+Critical Role is unleashing yet another campaign this year, and this one will be helmed by one of the most influential figures of modern D&amp;D.
+---------
+
+# 10 Best Characters In Power Rangers' Entire Franchise
+
+Streaming TV, Power Rangers
+
+Fri, 31 Jul 2026 20:00:13 GMT
+
+https://screenrant.com/power-rangers-franchise-best-characters/
+
+There have been literally dozens of characters across the franchise's 30+ year run, but only a handful can be considered the best in Power Rangers.
+---------
+
+# Jujutsu Kaisen's True Successor Just Dropped, And Nobody's Talking About It
+
+Anime, Webtoon, Masked Recs
+
+Fri, 31 Jul 2026 20:00:13 GMT
+
+https://screenrant.com/jujutsu-kaisen-successor-webtoon-infinite-awakening/
+
+Jujutsu Kaisen may have a new successor in this recent release on Webtoon, and it's already looking promising only 25 chapters in.
+---------
+
+# Pokémon TCG Pocket: 10 Best Cards In Ruler of the Skies
+
+Gaming, Pokemon Trading Card Game Pocket, Triple-A Games
+
+Fri, 31 Jul 2026 20:00:13 GMT
+
+https://screenrant.com/pokemon-tcg-pocket-best-cards-ruler-of-the-skies/
+
+Ruler of the Skies ushers in more new Pokémon to Pokémon TCG Pocket, including Mega Rayquaza, the actual ruler of the skies in the Pokémon universe.
+---------
+
+# 3 New Shows To Watch On Netflix This Weekend (July 31-Aug 2)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Fri, 31 Jul 2026 19:57:12 GMT
+
+https://screenrant.com/best-new-netflix-shows-watch-weekend-july-31/
+
+Netflix has several new shows worth checking out this weekend, July 31–August 2, 2026, but these three popular series stand out above the rest.
+---------
+
+# Prime Video's New Shark Thriller Takes A Massive Bite Out Of Global Streaming Charts
+
+Movies, Masked Recs, Horror
+
+Fri, 31 Jul 2026 19:47:08 GMT
+
+https://screenrant.com/the-devils-mouth-movie-prime-video-streaming-success-july-2026/
+
+Prime Video's new shark thriller takes a massive bite out of the global streaming charts shortly after its release, making waves worldwide.
+---------
+
+# DC Officially Confirms Poison Ivy's New Design For Batman's Return
+
+Streaming TV, Masked Recs
+
+Fri, 31 Jul 2026 19:37:58 GMT
+
+https://screenrant.com/batman-caped-crusader-season-2-prime-video-dc-poison-ivy-reveal/
+
+Poison Ivy sports a different design and comes with a tragic backstory in Batman's return, with the DC release also featuring many other villains.
+---------
+
+# Cyberpunk 2077's Johnny Silverhand Officially Returns In New Game Reveal
+
+Gaming, Cyberpunk 2077, Gen Con
+
+Fri, 31 Jul 2026 19:36:19 GMT
+
+https://screenrant.com/cyberpunk-2077-johnny-silverhand-trading-card-game-tcg-reveal/
+
+Discover the latest expansion in the Cyberpunk universe, featuring the iconic Johnny Silverhand.
+---------
+
+# Stephen King’s 30-Year-Old Novel Getting New Adaptation From Sam Raimi
+
+Movies, Desperation, Stephen King, Sam Raimi, Horror
+
+Fri, 31 Jul 2026 19:30:26 GMT
+
+https://screenrant.com/stephen-king-desperation-movie-development-sam-raimi-producing/
+
+Sam Raimi is officially teaming up with Stephen King and directing duo Zach Lipovsky and Adam B. Stein for a new adaptation of his 1996 novel.
+---------
+
+# One Piece Officially Loses the Crown to the Biggest Series Finale of 2026
+
+Anime, One Piece, Space Brothers
+
+Fri, 31 Jul 2026 20:05:14 GMT
+
+https://www.cbr.com/one-piece-vs-space-brothers-oricon-manga-ranking/
+
+After three weeks at no. 1, One Piece has been knocked from the top of Oricon's manga sales chart by the long-awaited return of Space Brothers.
+---------
+
+# Chicago Fire Season 15 Loses Another Series Regular in Major Cast Shakeup
+
+TV, Chicago Fire
+
+Fri, 31 Jul 2026 20:04:46 GMT
+
+https://www.cbr.com/chicago-fire-officially-loses-dermot-mulroney/
+
+Multiple main characters are leaving Chicago Fire in Season 15.
+---------
+
+# Igloo Debuts New Peanuts Collection With Surprisingly Affordable Prices
+
+Comics, Peanuts
+
+Fri, 31 Jul 2026 20:00:17 GMT
+
+https://www.cbr.com/igloo-peanuts-snoopy-merchandise/
+
+Peanuts fans have a whole new line of Snoopy merchandise to pick up before the summer is over, and it's all courtesy of another fan-favorite brand.
+---------
+
+# Spider-Man Fans Are Running Out of Time to Watch This Disney+ Exclusive Before It Disappears
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe, Disney+
+
+Fri, 31 Jul 2026 20:00:17 GMT
+
+https://www.cbr.com/generations-the-evolution-of-spider-man-leaving-disney-plus-october-2026/
+
+Fans only have a few months left to watch one of the most unexpected yet highly appreciated pieces of Spider-Man media, and it may not be coming back.
+---------
+
+# Andrew Garfield Credits Paddington for the 'Best Night of My Life' After Getting Way Too High
+
+CBR Exclusives, The Magic Faraway Tree
+
+Fri, 31 Jul 2026 19:35:12 GMT
+
+https://www.cbr.com/andrew-garfield-paddington-comfort-movie-story/
+
+Thank you, Paddington Bear.
+---------
+
+# Spider-Man Film Book Captures Webslinger's Complete Hollywood History, And CBR Has An Excerpt
+
+Movies, Spider-Man 4
+
+Fri, 31 Jul 2026 19:31:21 GMT
+
+https://www.cbr.com/spider-man-film-book-hollywood-history-excerpt/
+
+CBR Deputy Editor Sean O'Connell has an updated edition of his book about Spider-Man's history in film, and CBR has an exclusive excerpt
+---------
+
+# Netflix's The Da Vinci Code Follow-Up Casts Godzilla Star as Lead
+
+TV, The Da Vinci Code, The Beauty, Godzilla x Kong: The New Empire
+
+Fri, 31 Jul 2026 19:26:10 GMT
+
+https://www.cbr.com/the-secret-of-secrets-netflix-casts-rebecca-hall/
+
+Netflix has officially signed on the star of Godzilla and The Beauty for a leading role in its The Da Vinci Code sequel series.
+---------
+
+# HBO Officially Pulls the Plug on DCU Sci-Fi Series After a 3-Year Wait
+
+TV, DCU, HBO Max, Sci-Fi
+
+Fri, 31 Jul 2026 19:16:31 GMT
+
+https://www.cbr.com/booster-gold-tv-show-canceled-hbo-dcu-dc-studios/
+
+After 3 years of waiting, the highly anticipated DC sci-fi show isn't happening after all.
+---------
+
+# 5 Greatest Short Anime Series of the 21st Century
+
+Anime
+
+Fri, 31 Jul 2026 19:15:14 GMT
+
+https://www.cbr.com/greatest-short-anime-series-of-the-21st-century/
+
+The 21st century has brought fans some of the greatest anime of all time, including ones that can be watched in a single day.
+---------
+
+# Strange New Worlds May Be Setting Its Best Original Character Up for a Tragic Ending
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Fri, 31 Jul 2026 19:00:15 GMT
+
+https://www.cbr.com/strange-new-worlds-setting-up-laan-noonien-singh-tragic-ending/
+
+One of the best original characters in Strange New Worlds isn't in Star Trek: The Original Series, and it may be because she met a tragic fate.
+---------
+
+# HBO Max’s Latest Updates Could Mark the End of an Era for the Streamer
+
+TV Features, HBO Max, Warner Bros., HBO, Discovery
+
+Fri, 31 Jul 2026 20:08:14 GMT
+
+https://collider.com/hbo-max-latest-update-end-era-for-streamer-ai-mobile/
+
+HBO Max's new "Enhanced Content Discovery" features will push users towards its mobile app and curate homogenized content for them.
+---------
+
+# Before Ryan Gosling's 'Ghost Rider,' Nicolas Cage's Marvel Movies Find a New Streaming Home
+
+Movie News, Ghost Rider, Ghost Rider: Spirit of Vengeance, Tubi, Nicolas Cage
+
+Fri, 31 Jul 2026 20:00:17 GMT
+
+https://collider.com/nicolas-cage-ghost-rider-franchise-free-streaming-tubi-august-2026/
+
+Before Ryan Gosling's Ghost Rider joins the MCU, Nicolas Cage's 2007 and 2012 films find a new free streaming home.
+---------
+
+# The Lord of the Rings Officially Brings Back The One Ring for New 2026 Release
+
+Gaming News, The Lord of the Rings, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Fellowship of the Ring, Prime Video
+
+Fri, 31 Jul 2026 19:59:53 GMT
+
+https://collider.com/lord-of-the-rings-the-one-ring-rpg-release-date-september-2026/
+
+Ahead of Rings of Power Season 3 and The Hunt for Gollum, The Lord of the Rings universe is expanding with a new 2026 release.
+---------
+
+# Sam Raimi Officially Teams Up With Stephen King for First Time on '90s Horror Adaptation
+
+Movie News, Stephen King, Sam Raimi, Zach Lipovsky, Horror
+
+Fri, 31 Jul 2026 19:59:12 GMT
+
+https://collider.com/sam-raimi-stephen-king-desperation-movie-adaptation/
+
+Evil Dead icon Sam Raimi is finally making a Stephen King adaptation, with the duo behind Final Destination: Bloodlines attached to direct.
+---------
+
+# ‘The Witcher’ Officially Sets Massive Franchise Return for 2027
+
+Gaming News, The Witcher 3: Wild Hunt, The Witcher, Henry Cavill, Liam Hemsworth
+
+Fri, 31 Jul 2026 19:51:46 GMT
+
+https://collider.com/the-witcher-legacy-old-world-release-date-summer-2027/
+
+The next official release from The Witcher franchise is officially confirmed to take more than 50 hours to complete when it launches in 2027.
+---------
+
+# 10 Most Intense Horror Books of All Time
+
+Books and Comics, Horror, Pet Sematary, It, The Long Walk
+
+Fri, 31 Jul 2026 19:29:14 GMT
+
+https://collider.com/most-intense-horror-books-all-time-ranked/
+
+If you're after particularly intense horror books, it's worth reading masterpieces like House of Leaves, American Psycho, and The Metamorphosis.
+---------
+
+# Tom Holland's Divisive Video Game Adaptation Sees a 'Brand New Day' on Streaming
+
+Movie News, Tom Holland, The Odyssey, Spider-Man: Brand New Day, Uncharted
+
+Fri, 31 Jul 2026 19:26:14 GMT
+
+https://collider.com/tom-holland-uncharted-streaming-success-prime-video-july-2026/
+
+As Tom Holland promotes his latest Spider-Man installment, his video game adaptation Uncharted sees a resurgence on streaming charts.
+---------
+
+# Steven Spielberg’s New Sci-Fi Hit Officially Overtakes the 2026 Horror Movie He “Loved”
+
+Movie News, Disclosure Day, Obsession, Sci-Fi, Steven Spielberg
+
+Fri, 31 Jul 2026 19:15:14 GMT
+
+https://collider.com/steven-spielberg-disclosure-day-streaming-success-prime-video-july-2026/
+
+Steven Spielberg's acclaimed sci-fi movie Disclosure Day has officially soared past Obsession on the streaming charts.
+---------
+
+# Netflix Officially Finds Its Next Perfect Thriller Adaptation After Its $2.2B Film Franchise Ended
+
+TV Features, Robert Langdon, Carlton Cuse, Morgan Spector, Netflix
+
+Fri, 31 Jul 2026 19:14:15 GMT
+
+https://collider.com/secret-of-secrets-netflix-dan-brown-adaptation-robert-langdon-franchise/
+
+Netflix has announced a new series in the Robert Langdon franchise, The Secret of Secrets, 10 years after the film trilogy ended.
+---------
+
+# The 12 Best Video Games of the 2010s, Ranked
+
+TV, Video Game, Best of the 2010s, Dark Souls, God of War
+
+Fri, 31 Jul 2026 19:08:14 GMT
+
+https://collider.com/best-2010s-video-games-ranked/
+
+Explore the top video games that defined the 2010s, showcasing innovation, creativity, and impact across genres, from Dark Souls to Minecraft.
+---------
+
+# The Best '80s Supernatural Thriller Reboot Plans Expand to 2 New Movies
+
+Movie News, A Nightmare on Elm Street, Freddy Krueger
+
+Fri, 31 Jul 2026 20:03:29 GMT
+
+https://movieweb.com/a-nightmare-on-elm-street-reboot-two-movies-freddy-krueger/
+
+Both Paramount and Warner Bros. are reportedly pursuing their own 'A Nightmare on Elm Street' reboots.
+---------
+
+# 'Spider-Man: Brand New Day' Ending, Explained – Do MJ & Ned Remember Peter?
+
+Features, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Fri, 31 Jul 2026 20:00:14 GMT
+
+https://movieweb.com/spider-man-brand-new-day-ending-explained/
+
+Even though Tom Holland's fourth Spider-Man movie has a satisfying ending, certain things are left ambiguous. Read on for more.
+---------
+
+# This Essential 91-Minute Hard Sci-Fi Thriller Just Landed a New Streaming Home
+
+Movie News, Gravity, Coming/Leaving Streaming
+
+Fri, 31 Jul 2026 20:00:14 GMT
+
+https://movieweb.com/gravity-streaming-paramount-plus-august-2026/
+
+When it comes to sci-fi feeling like a desolate and hostile realm, it doesn't really get any better than this movie.
+---------
+
+# Star of the Year's Biggest Thriller Eyeing Iconic 'X-Men' Role in MCU Reboot
+
+Movie News, Obsession, X-Men
+
+Fri, 31 Jul 2026 19:30:24 GMT
+
+https://movieweb.com/inde-navarrette-marvel-x-men-reboot-rogue-rumors/
+
+Inde Navarrette's latest comments are reigniting fan theories that she could be in the mix for Marvel's X-Men reboot.
+---------
+
+# Sam Raimi Joins Forces With Stephen King in New Supernatural Thriller Adaptation
+
+Movie News, Sam Raimi, Stephen King
+
+Fri, 31 Jul 2026 19:07:08 GMT
+
+https://movieweb.com/sam-raimi-stephen-king-desperation-adaptation/
+
+'Evil Dead' director Sam Raimi is producing an adaptation of one of Stephen King's novels.
+---------
+
+# New 97-Minute Horror Reimagining Is Officially a Smash Hit on Streaming
+
+Movie News, Faces of Death, Horror, Hot on Streaming
+
+Fri, 31 Jul 2026 19:00:12 GMT
+
+https://movieweb.com/faces-of-death-horror-streaming-hit-amc-shudder-july-2026/
+
+An updated version of a 1978 horror cult classic has become a streaming smash after failing miserably at the box office.
+---------
+
+# The 8 Best Martial Arts Sci-Fi Movies, Ranked
+
+Movie Lists, Martial Arts, Action, Sci-Fi, Science Fiction
+
+Fri, 31 Jul 2026 19:00:12 GMT
+
+https://movieweb.com/martial-arts-sci-fi-movies/
+
+From computer simulations to enhanced fighters, these movies prove sci-fi thrills and martial arts action make for an inspired mash-up.
+---------
+
 # Lady Gaga’s Record-Setting $690M Hit Is Dominating Multiple Streaming Platforms
 
 Movies, Masked Recs
@@ -5089,411 +5496,4 @@ Thu, 30 Jul 2026 11:04:15 GMT
 https://collider.com/most-influential-video-games-20th-century-ranked/
 
 Super Mario 64, Tetris, and The Legend of Zelda: Ocarina of Time are all among the most influential video games of the 21st century.
----------
-
-# The Biggest Sci-Fi Movie of the Decade Passes 1 Billion Minutes Watched in Scorching Streaming Debut
-
-Movie News, Avatar: Fire and Ash, James Cameron, Sci-Fi, Disney+
-
-Thu, 30 Jul 2026 11:01:15 GMT
-
-https://collider.com/avatar-fire-and-ash-1-billion-minutes-streaming-success-disney-plus-july-2026/
-
-James Cameron's Avatar: Fire and Ash drew 1 billion minutes watched in its streaming debut, according to the Nielsen report.
----------
-
-# 7 Greatest HBO Series With 4 Episodes or Less
-
-TV, HBO, HBO Max, Catherine the Great, Landscapers
-
-Thu, 30 Jul 2026 10:53:15 GMT
-
-https://collider.com/best-hbo-series-4-episodes-or-less/
-
-Landscapers, Gunpowder, Elizabeth I, Catherine the Great, and more make up our list of the best HBO series with four episodes or less.
----------
-
-# 10 Movie Masterpieces That Were Ahead of Their Time
-
-Movie, Fight Club, The Thing, Citizen Kane, Death Becomes Her
-
-Thu, 30 Jul 2026 10:42:18 GMT
-
-https://collider.com/movie-masterpieces-ahead-of-their-time/
-
-Movies like The Thing and Citizen Kane were ahead of their time and unlike anything audiences had seen, even predicting future trends and behaviors.
----------
-
-# 20 Sci-Fi Movies That Will Give You An Existential Crisis
-
-Movie, Sci-Fi, 2001: A Space Odyssey, Everything Everywhere All at Once, Inception
-
-Thu, 30 Jul 2026 10:36:15 GMT
-
-https://collider.com/sci-fi-movies-existential-crisis/
-
-From Ad Astra to Annihilation, these sci-fi movies will make you question reality!
----------
-
-# Denzel Washington's Most Brutal Thriller Officially Crowned HBO Max's New Streaming Hit
-
-Movie News, Denzel Washington, The Equalizer 3, HBO Max, Antoine Fuqua
-
-Thu, 30 Jul 2026 10:30:14 GMT
-
-https://collider.com/denzel-washington-the-equalizer-3-streaming-success-hbo-max-july-2026/
-
-Denzel Washington's critically acclaimed 109-minute thriller, The Equalizer 3, has become HBO Max's newest streaming sensation.
----------
-
-# 21 Years Later, Denzel Washington's Neo-Noir Detective Thriller Is Already a Classic
-
-Movie Features, Devil in a Blue Dress, Denzel Washington, Carl Franklin, Don Cheadle
-
-Thu, 30 Jul 2026 10:17:14 GMT
-
-https://collider.com/denzel-washington-devil-in-a-blue-dress-streaming-prime-video-july-2026/
-
-Denzel Washington's Devil in a Blue Dress, a critically beloved 1995 neo-noir thriller, is streaming on Prime Video.
----------
-
-# The Absolute Greatest ‘Seinfeld’ Quote Still Lives Rent-Free In Our Heads
-
-Features, Seinfeld, Great Line
-
-Thu, 30 Jul 2026 11:00:12 GMT
-
-https://movieweb.com/seinfeld-george-memorable-quote/
-
-'Seinfeld,' the NBC sitcom that aired from 1989 to 1998 and starred Jason Alexander and Julia Louis-Dreyfus, has many memorable quotes.
----------
-
-# 'John Wick' Meets 'Yellowstone' in Underrated 96-Minute Action Thriller Conquering Streaming
-
-Movie News, Hot on Streaming, Lin Shaye, Paramount Plus, Western, Action, Thriller
-
-Thu, 30 Jul 2026 11:00:12 GMT
-
-https://movieweb.com/last-stand-ellen-cole-streaming-hit-paramount-july-2026/
-
-Move over, Liam Neeson — there's another highly skilled aged vigilante, and she means business.
----------
-
-# Legend Of Zelda: Ocarina Of Time Remake Gameplay Teaser And Release Date Update Surface Online
-
-Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
-
-Thu, 30 Jul 2026 09:44:09 GMT
-
-https://screenrant.com/zelda-ocarina-of-time-remake-rating-updated/
-
-The Legend of Zelda: Ocarina of Time Remake is on the way but we don't know too much about it, though some information is starting to emerge.
----------
-
-# 6 Most Perfect Western Movies Released Since 2000
-
-Movie, Western, Brokeback Mountain, True Grit, Django Unchained
-
-Thu, 30 Jul 2026 09:51:14 GMT
-
-https://collider.com/most-perfect-western-movies-since-2000-ranked/
-
-From True Grit to No Country for Old Men, these six Westerns defined the 21st century.
----------
-
-# 2026’s Sci-Fi Fantasy Masterpiece Surges to #1 on Prime Video
-
-Movie News, Masters of the Universe, Prime Video, Fantasy, Mattel
-
-Thu, 30 Jul 2026 09:30:15 GMT
-
-https://collider.com/masters-of-the-universe-prime-video-streaming-success-july-2026/
-
-Despite underperforming at the box office, Masters of the Universe has found a second life on streaming platforms.
----------
-
-# 10 Things To Know About Jean Grey (for No Reason Whatsoever)
-
-Books and Comics, Comic Book, Marvel Comics, Superhero, Spider-Man: Brand New Day
-
-Thu, 30 Jul 2026 09:04:14 GMT
-
-https://collider.com/jean-grey-marvel-comics-things-to-know/
-
-Jean Grey is one of the most popular and powerful characters in Marvel Comics, and she has a long and complicated history you might not know about.
----------
-
-# Say Goodbye to Spider-Man on Netflix as ‘Brand New Day’ Swings Into Theaters
-
-Movie News, Netflix, Spider-Man, Spider-Man 2, Spider-Man 3
-
-Thu, 30 Jul 2026 09:00:15 GMT
-
-https://collider.com/sam-raimi-spider-man-trilogy-leaving-netflix-june-2027/
-
-Sam Raimi's Spider-Man trilogy is losing its streaming home as Brand New Day prepares for a historic box office run.
----------
-
-# Jackie Chan Officially Returning for Sequel to His Best Action Thriller in Years
-
-Movie News, Jackie Chan, The Shadow's Edge, Action, Thriller
-
-Thu, 30 Jul 2026 09:48:21 GMT
-
-https://movieweb.com/jackie-chan-shadows-edge-2-production/
-
-Released just last year, the martial arts crime thriller was hailed as an "action-packed masterpiece."
----------
-
-# Game Of Thrones' Rhaegal Is Officially Back With A Vengeance
-
-Gaming, Game of Thrones, Game Of Thrones, PC, House of the Dragon
-
-Thu, 30 Jul 2026 07:00:11 GMT
-
-https://screenrant.com/game-of-thrones-legends-rhaegal-update-july-2026/
-
-Dany's iconic dragon Rhaegal from Game of Thrones is making an official return in a new release, and the fan-favorite is back with a vengeance.
----------
-
-# Brandon Sanderson's Stormlight: Champions Officially Announced
-
-Gaming, The Stormlight Archive, Brandon Sanderson, Mistborn, The Cosmere, PC
-
-Thu, 30 Jul 2026 06:00:12 GMT
-
-https://screenrant.com/brandon-sanderson-stormlight-champions-announcement/
-
-Brandon Sanderson's epic Stormlight Archive saga is getting a major new release later this Fall with the official announcement of Champions.
----------
-
-# Blade Runner Officially Returns In 2027 With A Brand-New Story
-
-Gaming, Blade Runner, PC
-
-Thu, 30 Jul 2026 05:30:11 GMT
-
-https://screenrant.com/blade-runner-2027-return-immersive-experience/
-
-Blade Runner is back in a big way, with a brand-new story scheduled to release in 2027 that fans will absolutely want to check out.
----------
-
-# Scott Bakula Gives Disappointing Update About His Star Trek Comeback
-
-TV, Star Trek, Star Trek: Enterprise
-
-Thu, 30 Jul 2026 05:00:39 GMT
-
-https://screenrant.com/star-trek-scott-bakula-comeback-update-disappointing/
-
-Scott Bakula's Star Trek comeback as President Jonathan Archer is a project fans want to see, but the Emmy nominee has some unfortunate news.
----------
-
-# Resident Evil's Grace & Leon Will Officially Return This Halloween
-
-Gaming, Resident Evil, Resident Evil 9, PC
-
-Thu, 30 Jul 2026 05:00:12 GMT
-
-https://screenrant.com/resident-evil-halloween-horror-nights-grace-leon-return/
-
-Grace and Leon, the legendary protagonists of some of Resident Evil's best games, are officially returning this Halloween.
----------
-
-# Metal Gear Solid 6 Leaves Fans Split, And We Can See Why
-
-Gaming, Metal Gear, Metal Gear Solid
-
-Thu, 30 Jul 2026 04:45:11 GMT
-
-https://screenrant.com/metal-gear-solid-6-fan-speculations-reactions/
-
-Metal Gear Solid 6 might never see the light of day, and fans can't quite decide on the best course of action for the series.
----------
-
-# 10 Best PlayStation 2 Games With Open-World Sandboxes
-
-Gaming, PlayStation 2, Triple-A Games
-
-Thu, 30 Jul 2026 04:30:11 GMT
-
-https://screenrant.com/playstation-2-best-open-world-sandboxes/
-
-Several unforgettable games marked the PlayStation 2 era, and a whole lot of them were huge open-world sandboxes that you could explore freely.
----------
-
-# The Wait Is Over: K-Pop Demon Hunters Officially Returns Tomorrow
-
-Gaming, KPop Demon Hunters
-
-Thu, 30 Jul 2026 04:15:11 GMT
-
-https://screenrant.com/kpop-demon-hunters-official-return-july-31/
-
-K-Pop Demon Hunters took the world by storm when it debuted on to Netflix last year, and it's officially returning tomorrow.
----------
-
-# Steam Drops 6 New Free Games, Yours To Keep Forever
-
-Gaming, Steam, Triple-A Games
-
-Thu, 30 Jul 2026 04:01:12 GMT
-
-https://screenrant.com/steam-6-free-games-july-2026-keep-forever/
-
-You can grab six games from Steam right now that just dropped, and they're yours to keep, with a few hidden gems for good measure.
----------
-
-# Netflix's New #1 2026 Action Thriller Just Ended Its 10-Episode Run, And It's A Massive Success
-
-Streaming TV, Netflix, Masked Recs
-
-Thu, 30 Jul 2026 03:30:11 GMT
-
-https://screenrant.com/netflix-agent-kim-reactivated-action-thriller-near-perfect/
-
-A positively exhilarating spin on a popular revenge webtoon has made a splash since June, dominating domestic airwaves and Netflix charts alike.
----------
-
-# 46 Years Later, This Iconic Wolverine Moments Changes Forever
-
-Marvel Comics, Wolverine
-
-Thu, 30 Jul 2026 03:11:16 GMT
-
-https://screenrant.com/wolverine-new-villain-godshredder/
-
-Wolverine faces a long-forgotten X-Men villain who returns half a century later with an upgrade that almost destroys Logan and his fellow mutants.
----------
-
-# 5 Cyberpunk Sci-Fi Books Apple TV Must Adapt After Neuromancer
-
-Streaming TV, Neuromancer, Neuromancer - Season 1, Ghost in the Shell
-
-Thu, 30 Jul 2026 03:00:11 GMT
-
-https://screenrant.com/apple-tv-cyberpunk-adaptations-after-neuromancer/
-
-Apple TV’s Neuromancer adaptation seems to have the potential to pave the way for the streamer to adapt more acclaimed cyberpunk books in the future.
----------
-
-# 1 Casting Choice That Marvel's Ghost Rider Reboot Should Copy From Nicolas Cage's Movie
-
-Movies, Ghost Rider
-
-Thu, 30 Jul 2026 02:30:11 GMT
-
-https://screenrant.com/ghost-rider-movie-sam-elliot-casting-choice-keep/
-
-The original Ghost Rider movie made a clever casting choice (and change to the source material) that should be carried over to the MCU reboot.
----------
-
-# Reacher Season 5 Is Switching To A Brand-New Genre
-
-Streaming TV, Reacher, San Diego Comic-Con
-
-Thu, 30 Jul 2026 02:00:21 GMT
-
-https://screenrant.com/reacher-season-5-switch-genre-horror/
-
-Reacher is Prime Video's flagship action thriller series, and the formula has worked well. However, season 5 is set to change genre to horror.
----------
-
-# Zelda: Ocarina of Time's Official ESRB Rating Isn't as Bad as It Looks
-
-Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
-
-Thu, 30 Jul 2026 04:51:15 GMT
-
-https://www.cbr.com/zelda-ocarina-of-time-switch-2-remake-esrb-rating/
-
-Zelda: Ocarina of Time has been rated E, for everyone, but that doesn't mean the Bottom of the Well can't still traumatize a new generation of gamers.
----------
-
-# Dragon Ball Super's Toyotarou Revives a Forgotten Beerus Villain
-
-Anime, Dragon Ball Super, Dragon Ball, Dragon Ball Super: Beerus
-
-Thu, 30 Jul 2026 03:59:15 GMT
-
-https://www.cbr.com/dragon-ball-super-toyotarou-mogina-art-beerus-anime/
-
-Toyotarou just paid his last respects to one of Beerus' earliest victims in Dragon Ball Super who was the lone warrior of a now-extinct alien race.
----------
-
-# 5 Fantasy RPGs With the Deepest Character Customization Systems
-
-Games, Dragon's Dogma 2, Gaming, Role Playing Game
-
-Thu, 30 Jul 2026 03:45:14 GMT
-
-https://www.cbr.com/fantasy-rpgs-best-character-customization/
-
-These fantasy RPGs feature the deepest character customization systems with the most freedom in all of gaming.
----------
-
-# George Clooney Said 'Every Episode Was Like The Godfather' While Hailing This 89% RT Netflix Crime Show
-
-TV, george clooney, Narcos, The Godfather
-
-Thu, 30 Jul 2026 03:30:14 GMT
-
-https://www.cbr.com/george-clooney-compares-narcos-the-godfather/
-
-George Clooney compared this hard-hitting Netflix show to a classic film epic, and for good reason.
----------
-
-# Ghost Rider Is the MCU's Replacement for Blade
-
-Movies, Ghost Rider, Blade, MCU
-
-Thu, 30 Jul 2026 03:15:15 GMT
-
-https://www.cbr.com/ghost-rider-mcu-blade-reboot-replacement-movie/
-
-Marvel's Blade reboot may never see the light of day, but a newly announced project can take its place.
----------
-
-# 10 Best Epic Open-World Games of All Time
-
-Games, Video Games, Elden Ring, Final Fantasy, The Elder Scrolls
-
-Thu, 30 Jul 2026 03:15:15 GMT
-
-https://www.cbr.com/best-epic-open-world-games-of-all-time/
-
-Open-world games like Skyrim and Elden Ring personify the word "epic" better than any others.
----------
-
-# Sailor Moon Debuts Ultra-Rare New Manga Design Limited to Just 80 Worldwide
-
-Anime, Sailor Moon, merchandise, collectibles
-
-Thu, 30 Jul 2026 03:05:15 GMT
-
-https://www.cbr.com/sailor-moon-kaiju-one-wonder-festival-2026/
-
-Sailor Moon fans just got a peek at one of the most exclusive pieces of merchandise the franchise has ever seen.
----------
-
-# Every One Piece Emperor, Ranked By Strength
-
-Anime, One Piece
-
-Thu, 30 Jul 2026 03:00:15 GMT
-
-https://www.cbr.com/one-piece-emperor-ranked-by-strength-list/
-
-The most powerful One Piece characters are Emperors, but some are stronger than others.
----------
-
-# The 5 Most Influential Films of the 21st Century, Ranked
-
-Movies, MCU, The Lord of the Rings, Disney
-
-Thu, 30 Jul 2026 02:45:15 GMT
-
-https://www.cbr.com/most-influential-movies-21st-century-list/
-
-From trendsetters within their genre to technological innovators, these five films from the year 2000 onward changed the movie industry.
 ---------
