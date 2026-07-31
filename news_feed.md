@@ -1,3 +1,377 @@
+# ABC's High Potential Replacement Series Continues Streaming Domination Ahead Of Return
+
+TV, Masked Recs
+
+Fri, 31 Jul 2026 17:24:23 GMT
+
+https://screenrant.com/rj-decker-show-high-potential-replacement-streaming-success-july-2026/
+
+ABC's High Potential replacement is building momentum before its return, climbing the streaming charts just weeks ahead of its season 2 premiere.
+---------
+
+# Mortal Shell 2 Beta Free For Millions More After Massive Steam Success
+
+Gaming, Mortal Shell, Triple-A Games, PC
+
+Fri, 31 Jul 2026 17:22:44 GMT
+
+https://screenrant.com/mortal-shell-2-beta-ps5-xbox-free/
+
+Mortal Shell 2 made a huge splash with its free beta on PC, and now the popular new soulslike is letting console players in on the action.
+---------
+
+# Spider-Man: Brand New Day Soundtrack Guide - Every Song & When They Play
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Fri, 31 Jul 2026 17:15:11 GMT
+
+https://screenrant.com/spiderman-brand-new-day-movie-soundtrack-song-guide/
+
+Spider-Man: Brand New Day includes several songs at key moments in the movie that all add up to a great soundtrack. Here's when each song plays.
+---------
+
+# Olivia Wilde's Hit New 90-Minute Thriller Sets Digital Release Date
+
+Movies, I Want Your Sex
+
+Fri, 31 Jul 2026 17:10:59 GMT
+
+https://screenrant.com/i-want-your-sex-2026-movie-digital-release-date/
+
+Olivia Wilde's latest thriller, 'I Want Your Sex,' is set to release on digital platforms just weeks after its theatrical debut.
+---------
+
+# Tom Holland's Spider-Man: Brand New Day Rotten Tomatoes Score Gets Official Audience Verdict
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Tom Holland, Marvel Cinematic Universe
+
+Fri, 31 Jul 2026 17:04:53 GMT
+
+https://screenrant.com/spider-man-brand-new-day-rotten-tomatoes-audience-score-mcu/
+
+As Spider-Man: Brand New Day is playing in theaters, the audience score for Tom Holland's new MCU film has officially debuted on Rotten Tomatoes.
+---------
+
+# Taylor Sheridan's New Crime Thriller Series Frisco King Officially Wraps Filming Ahead Of Franchise Return
+
+TV, Frisco King, Frisco King - Season 1, Tulsa King
+
+Fri, 31 Jul 2026 17:03:21 GMT
+
+https://screenrant.com/taylor-sheridan-frisco-king-season-1-filming-wrap/
+
+Taylor Sheridan's new crime thriller series, Frisco King (a spinoff of Tulsa King), officially wraps filming ahead of the franchise's return.
+---------
+
+# The Bear's Fak Family Tree Explained
+
+Streaming TV, The Bear
+
+Fri, 31 Jul 2026 17:00:12 GMT
+
+https://screenrant.com/the-bear-fak-family-tree-explained/
+
+Throughout The Bear, a new member of the Fak family tree seemed to join Neil Fak onscreen every few episodes, making for a crowded field of Faks.
+---------
+
+# 5 Games That Make Dark Souls Look Easy
+
+Gaming, Dark Souls
+
+Fri, 31 Jul 2026 17:00:11 GMT
+
+https://screenrant.com/games-that-make-dark-souls-look-easy/
+
+Dark Souls used to be a pinnacle of video game difficulty 15 years ago, but many games that have come out since make it look easy in comparison.
+---------
+
+# Landmark Latinx Novel Cemetery Boys Releases a Sequel (Exclusive)
+
+Books, Masked Recs
+
+Fri, 31 Jul 2026 17:00:11 GMT
+
+https://screenrant.com/cemetery-boys-espiritu-aiden-thomas-exclusive/
+
+An innovative sequel.
+---------
+
+# 10 Best New Movies Coming To HBO Max In August 2026
+
+Movies, HBO Max, Recommendation
+
+Fri, 31 Jul 2026 16:55:11 GMT
+
+https://screenrant.com/hbo-max-best-new-movies-august-2026/
+
+It's a new month and that means a ton of new movies are coming to HBO Max in the coming weeks. These are the ones you don't want to miss this August.
+---------
+
+# Tom Selleck Breaks Down Blue Bloods' 'Frustrating' Cancellation After Boston Blue Season 2 Release Date
+
+TV, Blue Bloods, Boston Blue, CBS
+
+Fri, 31 Jul 2026 17:23:07 GMT
+
+https://www.cbr.com/tom-selleck-blue-blood-frustrating-cancellation/
+
+On the heels of CBS announcing a premiere date for Boston Blue Season 2, Tom Selleck is opening up about Blue Bloods' cancellation.
+---------
+
+# Hello Kitty Gets a Giant Robot Makeover With New Mecha Transformation
+
+Anime, sanrio, Hello Kitty, merchandise
+
+Fri, 31 Jul 2026 17:20:15 GMT
+
+https://www.cbr.com/sanrio-hello-kitty-jobraver-transforming-robot-truck/
+
+Hello Kitty gets a mecha makeover with Takara Tomy's new Jobraver transforming robot toy and anime crossover.
+---------
+
+# 5 Modern Anime Series Already Considered Masterpieces
+
+Anime, Frieren: Beyond Journey's End, The Apothecary Diaries
+
+Fri, 31 Jul 2026 17:15:15 GMT
+
+https://www.cbr.com/modern-anime-already-considered-masterpieces/
+
+The modern era has produced anime that are already being discussed alongside the medium's greatest classics.
+---------
+
+# Starz's New 8-Episode Crime Drama Debuts to Perfect Rotten Tomatoes Score
+
+TV, Fightland
+
+Fri, 31 Jul 2026 17:14:49 GMT
+
+https://www.cbr.com/starz-fightland-season-1-rotten-tomatoes-score/
+
+It's a great time for crime dramas.
+---------
+
+# Dexter: Resurrection Season 2 Confirms New Michael C. Hall Replacement
+
+TV, Dexter, Dexter: Resurrection
+
+Fri, 31 Jul 2026 17:02:27 GMT
+
+https://www.cbr.com/dexter-resurrection-season-2-confirms-new-michael-c-hall-replacement/
+
+Dexter: Resurrection Season 2 sets up Michael C. Hall's successor.
+---------
+
+# Mahershala Ali Officially Seals Blade's Fate After 7 Years
+
+Movies, Marvel, Marvel Comics, MCU, Blade, Blade II, Blade Trinity
+
+Fri, 31 Jul 2026 16:58:13 GMT
+
+https://www.cbr.com/mahershala-ali-officially-seals-fate-for-marvel-blade/
+
+The would-be Blade actor had a whole lot to say about Marvel's comments.
+---------
+
+# The Dink Stars Play We're Not Really Strangers | Jake Johnson & Mary Steenburgen
+
+Movies, The Dink
+
+Fri, 31 Jul 2026 16:24:15 GMT
+
+https://www.cbr.com/video/the-dink-stars-play-we-re-not-really-strangers-jake-johnson-mary-steenburgen/
+
+Jake Johnson and Mary Steenburgen understand the urge to roast and hype up your friends within the same sentence. In The Dink edition of We're Not Really Strangers, we get to the heart of the matter, with the cast.
+---------
+
+# 10 Best-Written Anime Anti-Heroes, Ranked
+
+Anime, Attack on Titan, Death Note, Dragon Ball, Naruto
+
+Fri, 31 Jul 2026 16:15:29 GMT
+
+https://www.cbr.com/best-written-anime-anti-heroes-ranked/
+
+Anti-heroes like Vegeta and Sasuke are some of the most popular characters in anime history, and that's in part thanks to their fantastic writing.
+---------
+
+# Marvel's X-Men Movie Officially Casts Emma Frost
+
+Movies, X-Men, Marvel Cinematic Universe, superheroes
+
+Fri, 31 Jul 2026 16:11:35 GMT
+
+https://www.cbr.com/x-men-movie-samara-weaving-emma-frost-mcu/
+
+The MCU just added a major mutant antihero in the X-Men movie's first official casting move.
+---------
+
+# In Just 1 Day, Anya Taylor-Joy's $1B Adventure Sequel Is Already the Most-Watched Film on Streaming
+
+Movies, The Super Mario Galaxy Movie
+
+Fri, 31 Jul 2026 16:00:28 GMT
+
+https://www.cbr.com/anya-taylor-joy-super-mario-galaxy-peacock-success-july-2026/
+
+It didn't take long for Anya Taylor-Joy's box office smash hit sequel to topple the horror breakout Obsession on the streaming charts.
+---------
+
+# Harlan Coben’s Most Popular Character Finally Comes to Netflix in New Update
+
+TV News, Harlan Coben, Colin Woodell, Netflix, Untitled Myron Bolitar Series
+
+Fri, 31 Jul 2026 17:15:14 GMT
+
+https://collider.com/harlan-coben-myron-bolitar-netflix-filming-start-july-2026/
+
+Netflix's latest Harlan Coben adaptation has taken a huge step forward. Get all the details on the new mystery project here.
+---------
+
+# Tom Holland Officially Confirms Spider-Man Replacement
+
+Movie News, Spider-Man, Spider-Man: Brand New Day, Tom Holland, Marvel
+
+Fri, 31 Jul 2026 17:12:33 GMT
+
+https://collider.com/tom-holland-spider-man-future-successor-confirmed/
+
+Despite a record-breaking box office debut for Brand New Day, Tom Holland confirms plans for his Spider-Man replacement are in place.
+---------
+
+# Prime Video Officially Doubles Down on Anime With Historic Streaming Change
+
+TV News, Crunchyroll, STARZ, Prime Video, Amazon
+
+Fri, 31 Jul 2026 17:07:08 GMT
+
+https://collider.com/prime-video-crunchyroll-starz-bundle/
+
+Prime Video now offers a bundle that includes both STARZ and Crunchyroll streaming services for a staggeringly low price. Read on for more.
+---------
+
+# 6 Best Blockbuster Movies Released Since 2000
+
+Movie, Avatar, Johnny Depp, Christopher Nolan, The Lord of the Rings: Return of the King
+
+Fri, 31 Jul 2026 17:05:14 GMT
+
+https://collider.com/best-blockbuster-movies-since-2000-ranked/
+
+Avengers: Endgame, The Dark Knight, and Avatar are all among the best blockbuster movies released since the year 2000.
+---------
+
+# The Sci-Fi Masterpiece Ridley Scott Called “Too Long” Is Coming to Paramount+
+
+Movie News, Blade Runner 2049, Denis Villeneuve, Ridley Scott, Ryan Gosling
+
+Fri, 31 Jul 2026 17:00:07 GMT
+
+https://collider.com/ridley-scott-blade-runner-2049-streaming-paramount-plus-august-2026/
+
+Ridley Scott's sci-fi legacy sequel Blade Runner 2049, directed by Denis Villeneuve and headlined by Ryan Gosling, is coming to Paramount+.
+---------
+
+# Prime Video Officially Says Goodbye to Chris Hemsworth’s Best Action Thriller This Weekend
+
+Movie News, Rush, Chris Hemsworth, Prime Video, Daniel Brühl
+
+Fri, 31 Jul 2026 16:54:43 GMT
+
+https://collider.com/chris-hemsworth-rush-leaving-prime-video-july-31/
+
+Prime Video has officially announced that it's removing Chris Hemsworth's beloved action thriller, Rush. Read on for more.
+---------
+
+# Marvel's 'X-Men' Reboot Officially Casts Emma Frost
+
+Movie News, Samara Weaving, X-Men, Spider-Man: Brand New Day, MCU
+
+Fri, 31 Jul 2026 16:09:22 GMT
+
+https://collider.com/marvel-x-men-reboot-cast-samara-weaving-emma-frost/
+
+Marvel's X-Men reboot has officially cast Emma Frost, and the fan-favorite mutant will be played by a legendary horror icon. Read on for more.
+---------
+
+# 9 Years Later, These Are the 10 Best Movies of 2017
+
+Movie, Lady Bird, Get Out, Star Wars: Episode VIII - The Last Jedi, Dunkirk
+
+Fri, 31 Jul 2026 16:06:27 GMT
+
+https://collider.com/best-movies-2017-ranked/
+
+Modern masterpieces like Dunkirk, The Florida Project, and Good Time are among the very best movies released in the year 2017.
+---------
+
+# 2026's Biggest Sci-Fi Movie Sets New Release After Its Stratospheric Success
+
+Movie News, Project Hail Mary, Sci-Fi
+
+Fri, 31 Jul 2026 17:22:23 GMT
+
+https://movieweb.com/project-hail-mary-4k-blu-ray-release/
+
+The sci-fi adaptation of 'Project Hail Mary,' starring Ryan Gosling, is coming to 4K Blu-ray following its record-breaking theatrical run.
+---------
+
+# New $800 Million Near-Perfect Action Fantasy Epic Is Already a Streaming Sensation
+
+Movie News, Demon Slayer: Kimetsu no Yaiba Infinity Castle, Crunchyroll, Hot on Streaming, Action, Fantasy
+
+Fri, 31 Jul 2026 17:00:12 GMT
+
+https://movieweb.com/demon-slayer-infinity-castle-action-streaming-success-crunchyroll-july-2026/
+
+The biggest action fantasy movie in years is slaying the competition on streaming.
+---------
+
+# Taylor Sheridan's Best Action Thriller Officially Returns With Explosive Rotten Tomatoes Debut
+
+TV News, Lioness
+
+Fri, 31 Jul 2026 16:35:40 GMT
+
+https://movieweb.com/lioness-season-3-rotten-tomatoes-score/
+
+Taylor Sheridan's Lioness is back, and the Paramount+ thriller has opened to a strong Rotten Tomatoes score ahead of its latest return.
+---------
+
+# Marvel Studios Officially Casts First 'X-Men' Actor for Upcoming MCU Film
+
+Movie News, X-Men, Samara Weaving
+
+Fri, 31 Jul 2026 16:18:15 GMT
+
+https://movieweb.com/x-men-marvel-studios-samara-weaving-emma-frost/
+
+Marvel Studios has locked in its first new mutant actor for the MCU's long-awaited first 'X-Men' solo movie.
+---------
+
+# 'Spider-Man: Brand New Day's Mind-Blowing After-Credits Scene, Explained
+
+Features, Spider-Man: Brand New Day
+
+Fri, 31 Jul 2026 16:05:29 GMT
+
+https://movieweb.com/spider-man-brand-new-day-after-credit-scene/
+
+The latest Spider-Man film's final moments have massive implications, but what do they actually mean?
+---------
+
+# Mahershala Ali Finally Addresses Whether He's Still Blade After Canceled MCU Movie
+
+Movie News, Blade, MCU's Movie Order (2008 - 2019) - The Infinity Saga (Iron Man - Spider-Man: Far from Home), Mahershala Ali
+
+Fri, 31 Jul 2026 16:01:39 GMT
+
+https://movieweb.com/mahershala-ali-mcu-blade-status/
+
+Seven years after being announced at San Diego Comic Con, Mahershala Ali puts the final nail in the coffin for the MCU's Blade reboot.
+---------
+
 # Taylor Sheridan’s Lioness Season 3 Debuts To Major Rotten Tomatoes Record
 
 TV, Lioness, Lioness - Season 3, Taylor Sheridan, Paramount Plus
@@ -5122,378 +5496,4 @@ Thu, 30 Jul 2026 00:30:15 GMT
 https://www.cbr.com/alicia-vikander-ex-machina-leaving-netflix-august-2026/
 
 One of the best sentient android thrillers of the past decade is officially set to lose its biggest streaming home, and it's going away soon.
----------
-
-# 10 Classic 2000s Anime That Are 10/10 Masterpieces
-
-Anime
-
-Thu, 30 Jul 2026 00:15:14 GMT
-
-https://www.cbr.com/classic-2000s-anime-flawles-masterpieces/
-
-The 2000s were the decade where anime blew up in the west, and this was thanks to the release of one amazing series after another.
----------
-
-# Netflix’s 132-Minute Action Thriller Quietly Becomes 1 of the Most Streamed Movies in the World
-
-Movies, Netflix, Action, Thriller
-
-Thu, 30 Jul 2026 00:00:15 GMT
-
-https://www.cbr.com/the-debt-collector-action-netflix-success-july-2026/
-
-This Thai film proves the market for global action remains untapped.
----------
-
-# Marvel's Brand-New Spider-Team Debuts Before Peter Parker's Return
-
-Comics, Spider-Man, Marvel
-
-Thu, 30 Jul 2026 00:00:15 GMT
-
-https://www.cbr.com/marvel-zero-1-spider-man-new-team-confirmed/
-
-The latest symbiote invasion of the Marvel Universe just gave rise to a brand-new team of Spider heroes ahead of Peter Parker's next MCU outing.
----------
-
-# 19 Years Later, One of the Best Crime Movies of All Time Is Officially Streaming for Free
-
-Movie Features, Zodiac, David Fincher, Mark Ruffalo, Robert Downey Jr, Jake Gyllenhaal
-
-Thu, 30 Jul 2026 00:35:24 GMT
-
-https://collider.com/zodiac-david-fincher-best-crime-movie-streaming-free-pluto-july-2026/
-
-David Fincher's 2007 Zodiac, an acclaimed crime drama starring Jake Gyllenhaal, is streaming free on Pluto TV.
----------
-
-# 8 Thriller Books That Can Be Called Masterpieces
-
-Books and Comics, Thriller, Books, Thomas Harris, Gillian Flynn
-
-Thu, 30 Jul 2026 00:17:14 GMT
-
-https://collider.com/best-thriller-books-masterpieces/
-
-Gone Girl, The Silence of the Lambs, and The Talented Mr. Ripley stand among thriller fiction’s finest in this ranking of all-time masterpieces.
----------
-
-# 'TBBT's Long-Awaited Second Character Return Is Even Better Than the First
-
-Features, Stuart Fails to Save the Universe, The Big Bang Theory, Comedy, Kaley Cuoco, Kevin Sussman, Kunal Nayyar, HBO Max
-
-Thu, 30 Jul 2026 01:30:12 GMT
-
-https://movieweb.com/tbbt-stuart-spin-off-episode-2-penny-return/
-
-'Stuart Fails to Save the Universe' sees the return of yet another iconic main character from 'TBBT,' nine years after it came to an end.
----------
-
-# Tom Holland Admits He "Hated" an Early Cut of 'Spider-Man: Brand New Day'
-
-Movie News, Spider-Man: Brand New Day
-
-Thu, 30 Jul 2026 00:02:15 GMT
-
-https://movieweb.com/tom-holland-hated-spider-man-brand-new-day-test-screening/
-
-The Spider-Man actor reveals one cut of the film tried to incorporate all the studio notes.
----------
-
-# Dwayne Johnson's Divisive Fantasy Adventure Topples Disney Classic Live-Action Remake at the Box Office
-
-Movies, Moana, Snow White
-
-Thu, 30 Jul 2026 00:00:12 GMT
-
-https://movieweb.com/moana-2026-beats-snow-white-remake-box-office/
-
-Dwayne Johnson's modern classic remake scored a win at the global box office.
----------
-
-# One of the Most Disturbing Movies of All Time Getting a New Release
-
-Movie News, Martyrs
-
-Wed, 29 Jul 2026 23:59:55 GMT
-
-https://movieweb.com/martyrs-4k-blu-ray-release/
-
-The 2008 French film 'Martyrs' is coming to 4K Ultra HD Blu-ray.
----------
-
-# Eli Roth's "No Limits" New Horror Movie Sprung To Life After 20 Years Thanks To 2024 Record-Breaking Hit
-
-Movies, Ice Cream Man, Eli Roth, Terrifier 3, San Diego Comic-Con
-
-Wed, 29 Jul 2026 23:36:44 GMT
-
-https://screenrant.com/eli-roth-ice-cream-man-20-years-development-terrifier-3-support/
-
-Exclusive: Eli Roth revealed that he was finally able to make Ice Cream Man after 20 years thanks to the success of another horror movie.
----------
-
-# 6 Strongest Avatars In Last Airbender History
-
-TV, The Last Airbender
-
-Wed, 29 Jul 2026 23:30:11 GMT
-
-https://screenrant.com/strongest-avatars-last-airbender-history/
-
-The Avatar cycle remains one of animation's best-ever power systems, and these Avatars are its most powerful representatives.
----------
-
-# X-Men '97 Season 2: Over 20 Easter Eggs, References, & Marvel Cameos In Episode 7
-
-Superheroes, X-Men '97, Marvel Cinematic Universe
-
-Wed, 29 Jul 2026 23:10:11 GMT
-
-https://screenrant.com/x-men-97-season-2-episode-7-easter-eggs-references-marvel-cameos/
-
-X-Men '97 season 2 episode 7 continues the show's trend of featuring some of the very best comic book references, Easter eggs, and surprise cameos.
----------
-
-# Game Of Thrones: Mother Of Dragons Officially Returns
-
-Gaming, Game of Thrones
-
-Wed, 29 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/game-of-thrones-mother-of-dragons-back-orders/
-
-After blowing up in popularity and disappearing completely, Game of Thrones: Mother of Dragons is finally making a huge return.
----------
-
-# Netflix's New 10/10 Action Series With 90% RT Is Officially 1 of the World's Most-Watched Shows
-
-TV, Agent Kim Reactivated, Netflix, Thriller
-
-Wed, 29 Jul 2026 23:25:42 GMT
-
-https://www.cbr.com/agent-kim-reactivated-netflix-success-july-2026/
-
-Netflix's Korean revenge thriller, Agent Kim Reactivated, is one of the most-watched shows worldwide
----------
-
-# The Boys Gets Bad News at Prime Video Ahead of New Jensen Ackles Spinoff
-
-TV, The Boys, Prime Video, superheroes
-
-Wed, 29 Jul 2026 23:20:22 GMT
-
-https://www.cbr.com/the-boys-bad-news-prime-video-vaught-rising/
-
-The Boys is dangerously close to falling out of the Top 10 most watched shows, ahead of Vought Rising's release
----------
-
-# Taylor Sheridan's New John Dutton Replacement Leaves Kevin Costner in the Shadows
-
-TV, Dutton Ranch, Western, Paramount Plus
-
-Wed, 29 Jul 2026 23:13:40 GMT
-
-https://www.cbr.com/dutton-ranch-western-streaming-success-paramount-plus-july-2026/
-
-One of the latest Yellowstone spinoff series has officially staked its claim across multiple streaming charts, and the original can't keep up.
----------
-
-# The Rookie Cast Confirms Season 8’s Alternate Ending Was Shot for 1 Reason
-
-TV, The Rookie, ABC, Crime
-
-Wed, 29 Jul 2026 23:05:36 GMT
-
-https://www.cbr.com/the-rookie-season-8-alternate-ending/
-
-The Rookie star Eric Winter revealed that the Season 8 finale had two different endings depending on the show's future.
----------
-
-# The World's Biggest Anime Torrent Site Faces a Landmark New Crackdown
-
-Anime, piracy
-
-Wed, 29 Jul 2026 23:05:15 GMT
-
-https://www.cbr.com/nyaa-torrent-uploader-arrest-coda-crackdown/
-
-Japanese police have arrested a primary uploader of content on Nyaa, opening the door for broader crackdowns on the site.
----------
-
-# 6 Marvel Villains Better For the MCU’s X-Men Than Magneto
-
-Movies, X-Men, Marvel Cinematic Universe, Magneto
-
-Wed, 29 Jul 2026 23:00:15 GMT
-
-https://www.cbr.com/best-mcu-x-men-villains-not-magneto-list/
-
-A new team of X-Men is on the way in the MCU, but rather than facing Magneto yet again, there are many other incredible villains we want to see.
----------
-
-# Ryan Murphy Is Bringing "The Avengers of Horror" to FX in Just 2 Months
-
-TV, American Horror Story, FX, Horror
-
-Wed, 29 Jul 2026 22:59:49 GMT
-
-https://www.cbr.com/ryan-murphy-american-horror-story-season-13-avengeres-of-horror/
-
-American Horror Story creator Ryan Murphy promises "The Avengers of Horror" will take center stage in the acclaimed anthology's thirteenth season.
----------
-
-# Cartoon Network’s Most Iconic Shows Officially Find a New Free Streaming Home After HBO Max Exit
-
-TV News, Cartoon Network, Tubi, The Grim Adventures of Billy & Mandy, Freakazoid!
-
-Wed, 29 Jul 2026 23:52:09 GMT
-
-https://collider.com/cartoon-network-grim-adventures-of-billy-and-mandy-freakazoid-green-lantern-animated-series-free-streaming-tubi-august-2026/
-
-The Grim Adventures of Billy & Mandy, Freakazoid, Green Lantern: The Animated Series, and more Cartoon Network classics are coming to free streaming.
----------
-
-# Forget Going to Space, '9-1-1' Gave Us Athena's Best Moments in This Masterpiece Episode
-
-TV Features, 9-1-1, Angela Bassett, ABC, Procedural
-
-Wed, 29 Jul 2026 23:24:15 GMT
-
-https://collider.com/9-1-1-season-8-beenado-athena-flying-plane/
-
-During Bee-Nado, 9-1-1 gave us one of Athena Grant's best moments in the show's history that it still hasn't topped.
----------
-
-# 8 Action Movies That Are Perfectly Directed, Ranked
-
-Movie, Action, Mad Max: Fury Road, Speed, The Matrix
-
-Wed, 29 Jul 2026 23:11:15 GMT
-
-https://collider.com/action-movies-perfectly-directed-ranked/
-
-Mad Max: Fury Road, Speed, The Matrix, Raiders of the Lost Ark, and more make up our list of action movies that are perfectly directed.
----------
-
-# The Horror Masterpiece That Christopher Nolan Adored Takes Over Global Streaming
-
-Movie News, Obsession, Christopher Nolan, Horror, The Odyssey
-
-Wed, 29 Jul 2026 23:00:14 GMT
-
-https://collider.com/obsession-christopher-nolan-favorite-horror-movie-streaming-success-peacock-july-2026/
-
-The horror masterpiece that received abundant praise from Christopher Nolan is taking over streaming after dominating theaters.
----------
-
-# ’X-Men ‘97’ Just Set Up Its Most Shocking Character Death With One Huge Twist
-
-TV Features, X-Men '97, X-Men: The Animated Series, Disney Plus, X-Men: Evolution
-
-Wed, 29 Jul 2026 22:57:14 GMT
-
-https://collider.com/x-men-97-season-2-apocalypse-death-comics-history/
-
-X-Men ‘97 ended its latest episode by seemingly killing off its Big Bad, though the comics prove that isn't so easy.
----------
-
-# 'Resident Evil' Movie Won't Adapt the Most Iconic Character for One Reason [Exclusive]
-
-Exclusives, Resident Evil, Zach Cregger
-
-Wed, 29 Jul 2026 23:06:00 GMT
-
-https://movieweb.com/resident-evil-movie-leon-kennedy/
-
-Director Zach Cregger reveals why a beloved video game character won't be appearing in his new 'Resident Evil' movie adaptation.
----------
-
-# Every Taylor Sheridan TV Show Released in 2026 (So Far), Ranked
-
-TV Lists, Taylor Sheridan, Marshals, The Madison, Dutton Ranch
-
-Wed, 29 Jul 2026 23:00:12 GMT
-
-https://movieweb.com/taylor-sheridan-every-tv-show-2026-ranked/
-
-Between the three TV series released so far, which Taylor Sheridan show comes out on top?
----------
-
-# Netflix’s Best 2026 Thriller Is An 8-Part Series Based On A Hit Novel
-
-TV, Masked Recs
-
-Wed, 29 Jul 2026 22:50:12 GMT
-
-https://screenrant.com/i-will-find-you-netflix-best-thriller-series-2026/
-
-The best Netflix thriller series of 2026 has now been made clear, and it beats every other exciting genre release from the streamer for one reason.
----------
-
-# Even Superman Admits His Permanent New Superpower Is Terrifying
-
-DC Comics, Superman
-
-Wed, 29 Jul 2026 22:41:34 GMT
-
-https://screenrant.com/superman-new-superpower-immortal/
-
-Superman's most powerful Kryptonian ability will only make itself known in a long time, but Clark Kent already starts to feel its side effects.
----------
-
-# The Devil's Mouth Traumatic Ending & Final Shark Victim Broken Down By Prime Video Movie Stars
-
-Movies, Horror, The Devil's Mouth
-
-Wed, 29 Jul 2026 22:39:15 GMT
-
-https://screenrant.com/the-devils-mouth-ending-final-shark-victim-explained-newton-condor/
-
-EXCLUSIVE: The Devil’s Mouth stars Kathryn Newton and Lana Candor explain the ending and the heartbreaking meaning behind the final shark victim.
----------
-
-# Ant-Man 4 Chances Addressed By MCU Star After Quantumania’s $476M Box Office Failure
-
-Movies, Ant-Man & the Wasp: Quantumania
-
-Wed, 29 Jul 2026 22:11:30 GMT
-
-https://screenrant.com/ant-man-4-mcu-chances-after-quantumanias-fail-kathryn-newton/
-
-Ant-Man and the Wasp: Quantumania star reveals whether there is a chance for the MCU franchise to make a comeback with a fourth film.
----------
-
-# Breaking Bear Clip Finds Sarah Michelle Gellar In A Wolf-ish Confrontation
-
-Exclusive, Breaking Bear
-
-Wed, 29 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/video/breaking-bear-sarah-michelle-gellar-elizabeth-hurley-clip/
-
-Exclusive: ScreenRant presents an exclusive clip from Breaking Bear, a wacky new animated series starring Brendan Fraser and Sarah Michelle Gellar.
----------
-
-# Doctor Who's Hiatus Is A Golden Opportunity For The BBC To Revive Its 5-Season Cult Fantasy Hit
-
-Streaming TV, Masked Recs
-
-Wed, 29 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/bbc-revive-merlin-during-doctor-who-hiatus/
-
-Now that Doctor Who has entered an indefinite hiatus, it's the perfect time for the BBC to revisit one of its other iconic fantasy franchises.
----------
-
-# 7 Fantasy Books Perfect For Fans Of Dungeons & Dragons
-
-Books, Dungeons & Dragons
-
-Wed, 29 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/fantasy-books-every-dungeons-dragons-fan-should-read/
-
-Looking for more books to read between your Dungeons & Dragons sessions? These seven fantasy books are the perfect next-reads for fans of D&amp;D!
 ---------
