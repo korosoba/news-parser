@@ -1,3 +1,91 @@
+# Steam Makes 4 Hit Games Absolutely Free Until August 3
+
+Gaming, Steam
+
+Fri, 31 Jul 2026 09:33:39 GMT
+
+https://screenrant.com/steam-4-free-games-august-2026/
+
+Steam offers four hit games for free from July 28 to August 3.
+---------
+
+# Halo: Campaign Evolved Free Download  Officially Available Now
+
+Gaming, Halo, Halo: Campaign Evolved
+
+Fri, 31 Jul 2026 09:25:02 GMT
+
+https://screenrant.com/halo-campaign-evolved-free-download-codes-july-2026/
+
+Halo: Campaign Evolved is officially here, and doing quite well so far, but if you are playing, there is a free download you might want to grab.
+---------
+
+# Lord Of The Rings: The White Tower & Hall Of Gold Officially Announced
+
+Gaming, The Lord of the Rings, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King, The Lord of the Rings: The Fellowship of the Ring, PC
+
+Fri, 31 Jul 2026 08:00:11 GMT
+
+https://screenrant.com/lord-rings-white-tower-hall-gold-announcement-reveal/
+
+Lord of the Rings: The White Tower & Hall of Gold has officially been announced as a brand-new release taking fans to the lands of Rohan and Gondor.
+---------
+
+# Guillermo Del Toro Is Officially Calling For More Games "For The Elderly"
+
+Gaming, Guillermo del Toro, Indie Games
+
+Fri, 31 Jul 2026 07:00:12 GMT
+
+https://screenrant.com/guillermo-del-toro-favorite-games-dead-cells/
+
+The visionary filmmaker has impeccable taste in video games, but he also has a specific criticism about games not catering to older folks.
+---------
+
+# Sylvester Stallone’s 0% Rotten Tomatoes Action Thriller Is a Free Streaming Hit
+
+Movie News, Armor, Sylvester Stallone, Tulsa King, Alarum
+
+Fri, 31 Jul 2026 09:30:14 GMT
+
+https://collider.com/sylvester-stallone-armor-streaming-success-tubi-july-2026/
+
+Sylvester Stallone's maligned action movie with a 0% on Rotten Tomatoes has defied unthinkable odds to become a streaming success.
+---------
+
+# 3 Perfect Movie Masterpieces Streaming on Netflix This Weekend (Aug 1-2)
+
+Movie, One of Them Days, A Private Life, The Hunger Games, Netflix
+
+Fri, 31 Jul 2026 09:22:14 GMT
+
+https://collider.com/best-netflix-movies-watch-weekend-august-1/
+
+One of Them Days, The Hunger Games, A Private Life, and more make up our list of the best movies to stream on Netflix the weekend of August 1st, 2026.
+---------
+
+# These 4 Zoë Kravitz Movies Are Masterpieces
+
+Movie, Zoë Kravitz, The Batman, Spider-Man: Into The Spider-Verse, Mad Max: Fury Road
+
+Fri, 31 Jul 2026 09:13:14 GMT
+
+https://collider.com/best-zoe-kravitz-movies-masterpieces/
+
+Zoë Kravitz is great in everything, but modern movie classics like Mad Max: Fury Road and The Batman stand out as her very best movies.
+---------
+
+# Anya Taylor-Joy's Billion Dollar Sci-Fi Sequel Officially Hits Streaming This Week
+
+Movie News, The Super Mario Galaxy Movie, Anya Taylor-Joy, Chris Pratt, Peacock
+
+Fri, 31 Jul 2026 09:00:15 GMT
+
+https://collider.com/the-super-mario-galaxy-movie-streaming-peacock-release-date-july-30-2026/
+
+The first movie of 2026 to earn $1 billion at the global box office is officially set to begin streaming on Peacock this week.
+---------
+
 # Game Of Thrones: The Peaceful King Officially Available Now
 
 Gaming, Game of Thrones, Game Of Thrones, House of the Dragon, House of the Dragon - Season 1, PC
@@ -5408,92 +5496,4 @@ Wed, 29 Jul 2026 18:25:14 GMT
 https://collider.com/xbox-pc-backward-compatibility-conker-crimson-skies/
 
 Xbox launches backward compatibility on PC with Conker, Crimson Skies, Blinx and Fusion Frenzy available through the Xbox app.
----------
-
-# Hulu's 'Ted Lasso' Replacement Officially Sets 2026 Release Date
-
-TV News, Chad Powers, Hulu, Glen Powell, Michael Waldron
-
-Wed, 29 Jul 2026 18:08:27 GMT
-
-https://collider.com/glen-powell-chad-powers-season-2-release-date-hulu-september-3-2026/
-
-Hulu and Glen Powell's hit sports series Chad Powers has officially set a release date for Season 2, and it's much sooner than fans expect.
----------
-
-# 'Chicago Fire' Is Officially Losing One of Its Original Stars After 14 Seasons
-
-TV News, Chicago Fire
-
-Wed, 29 Jul 2026 19:24:44 GMT
-
-https://movieweb.com/chicago-fire-joe-minoso-exit-season-15/
-
-One of the core members of the 'Chicago Fire' cast is seemingly about to fight their last fires as Season 15 approaches.
----------
-
-# Tom Holland's 116-Minute Action Smash Is One of the Biggest Movies on Streaming
-
-Movie News, Tom Holland, Uncharted, Hot on Streaming, Action
-
-Wed, 29 Jul 2026 19:00:12 GMT
-
-https://movieweb.com/tom-holland-uncharted-action-streaming-prime-video-july-2026/
-
-Ahead of 'Spider-Man: Brand New Day,' Holland's divisive 2022 action movie has returned to prove itself on streaming.
----------
-
-# The Mother of All Modern Horror Hits Finally Sets New Release
-
-Movie News, Barbarian, Zach Cregger, Horror
-
-Wed, 29 Jul 2026 18:20:19 GMT
-
-https://movieweb.com/barbarian-4k-blu-ray-release/
-
-Zach Cregger's acclaimed 2022 horror hit 'Barbarian' is finally receiving a long-awaited physical media debut with a 4K Ultra HD Blu-ray steelbook.
----------
-
-# Alan Ritchson's 'Reacher' Season 5 Officially Confirms New Cast
-
-TV News, Reacher
-
-Wed, 29 Jul 2026 18:18:00 GMT
-
-https://movieweb.com/reacher-season-5-cast-announcement/
-
-Jay Baruchel, Kevin Durand, Amanda Ip, and Ciara Bravo join the hit Amazon Prime Video series upcoming season.
----------
-
-# Netflix Unveils First Look at Upcoming Russell Crowe-Led True-Crime Thriller
-
-Movie News, Russell Crowe, Unabomber, Netflix, Jacob Tremblay
-
-Wed, 29 Jul 2026 18:17:35 GMT
-
-https://movieweb.com/russell-crowe-unabomber-movie-netflix-first-look/
-
-The first look at Crowe and Jacob Tremblay in Netflix's 'Unabomber' has been released.
----------
-
-# New 'Venom' Movie Is Officially Happening
-
-Movie News, Venom
-
-Wed, 29 Jul 2026 18:08:53 GMT
-
-https://movieweb.com/venom-animated-movie-confirmed/
-
-A new 'Venom' animated film has been confirmed by producer Amy Pascal.
----------
-
-# The 25 Best Medieval TV Shows, Ranked
-
-Classic TV, History
-
-Wed, 29 Jul 2026 18:00:12 GMT
-
-https://screenrant.com/best-medieval-history-shows-ranked/
-
-Medieval settings can make for interesting stories whether it's Viking Europe or Kublai Khan's Asia. Here are the best medieval TV shows available.
 ---------
