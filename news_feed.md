@@ -1,3 +1,289 @@
+# Half-Life 3 Can Wait, Half-Life: Alyx Is Now Playable Without VR
+
+Gaming, Half-Life, Half-Life 2, Valve, Virtual Reality, Half-Life: Alyx
+
+Fri, 31 Jul 2026 11:35:53 GMT
+
+https://screenrant.com/half-life-alyx-no-vr-mode/
+
+Half-Life: Alyx is now playable without VR, opening up the acclaimed VR exclusive to a wider audience on PC with mouse and keyboard controls.
+---------
+
+# Fallout 5 Can Wait, Fallout: New California Just Got An Official Release
+
+Gaming, Fallout, Fallout: New Vegas
+
+Fri, 31 Jul 2026 11:30:11 GMT
+
+https://screenrant.com/fallout-new-california-gog-release/
+
+Fallout: New California is one of the coolest New Vegas mods around, and you can now play it more easily than ever.
+---------
+
+# Star Trek Foreshadowed Kirk’s Greatest Tragedy That Happens Over 20 Years Later
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Fri, 31 Jul 2026 11:30:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-kirk-son-david-death-set-up/
+
+Star Trek: Strange New Worlds season 4, episode 2 delves into James T. Kirk's feelings about fatherhood and set up what happens in Star Trek III.
+---------
+
+# Pokémon Officially Unveils New Look At Alternate Forms For Classic 'Mon
+
+Gaming, Pokemon
+
+Fri, 31 Jul 2026 11:00:11 GMT
+
+https://screenrant.com/pokemon-alternate-forms-new-look-logos/
+
+Nintendo celebrates 30 years of Pokémon with official alternate logos for iconic Pokémon, including Bulbasaur, Squirtle, and Charmander.
+---------
+
+# A 1999 PS1 Classic Is Finally Being Revived For Modern Consoles
+
+Gaming, PlayStation (Original), PlayStation, Nintendo Switch
+
+Fri, 31 Jul 2026 10:51:04 GMT
+
+https://screenrant.com/croc-2-1999-playstation-remaster-confirmed/
+
+This PlayStation 1 classic is being freed from its shackles and finally brought over to modern consoles, giving fans new ways of playing it in 2026.
+---------
+
+# Star Wars Announces Major Crossover With Award-Winning Fantasy Franchise
+
+Gaming, Star Wars, Dungeons & Dragons
+
+Fri, 31 Jul 2026 10:30:11 GMT
+
+https://screenrant.com/star-wars-dungeons-dragons-crossover-announced/
+
+Dungeons & Dragons and Star Wars are set to collaborate in a new tabletop RPG experience coming in 2027.
+---------
+
+# Hayley Atwell's 2-Part Fantasy Epic Is One Of Netflix's Most Underrated Shows
+
+Streaming TV, Masked Recs
+
+Fri, 31 Jul 2026 10:30:11 GMT
+
+https://screenrant.com/hayley-atwell-tomb-raider-underrated-netflix-show/
+
+One of the most underrated Netflix shows is a pitch-perfect fantasy adventure that brings a gaming icon to life successfully for the first time.
+---------
+
+# Shadow Of The Colossus Officially Returns This Year
+
+Gaming, Shadow of the Colossus
+
+Fri, 31 Jul 2026 10:17:25 GMT
+
+https://screenrant.com/shadow-of-the-colossus-vinyl-release-date/
+
+The legendary cult classic Shadow of the Colossus is finally back in 2026 with a brand-new collector's release fans will want to check out.
+---------
+
+# Metal Gear Solid: The Snakes Saga Officially Unveiled In New Trailer
+
+Gaming, Metal Gear Solid, Metal Gear Solid: Master Collection Vol. 1, Metal Gear Solid: Master Collection Vol. 2
+
+Fri, 31 Jul 2026 10:00:11 GMT
+
+https://screenrant.com/metal-gear-solid-snakes-saga-remastered-collection-trailer/
+
+The Metal Gear Solid franchise might not be getting any new games in the series, but it is about to return with a fresh release regardless.
+---------
+
+# Big Brother 28: Week 4 Head of Household (HOH) Results (SPOILERS)
+
+Reality TV, Big Brother
+
+Fri, 31 Jul 2026 10:00:11 GMT
+
+https://screenrant.com/big-brother-28-week-4-head-of-household-spoilers/
+
+After Jason's unanimous eviction, [Name] won the Big Brother 28 Week 4 Head of Household competition, shifting the power dynamics in the house.
+---------
+
+# For All Mankind Season 6 Must Finally Answer the Series' Biggest Question
+
+TV, For All Mankind, Apple TV
+
+Fri, 31 Jul 2026 11:31:15 GMT
+
+https://www.cbr.com/apple-tv-for-all-mankind-season-6-must-answer-biggest-space-race-question/
+
+One of the Apple TV's flagship shows, For All Mankind, will conclude with its next season, leaving one last chance to answer a massive question.
+---------
+
+# The 20 Most Confusing Far Side Comic Strips Ever
+
+Comics, The Far Side
+
+Fri, 31 Jul 2026 11:00:15 GMT
+
+https://www.cbr.com/the-far-sides-comic-strips-that-barely-make-any-sense/
+
+Gary Larson often uses The Far Side comic to subtly comment on society and explore the absurd, but even these strips were too confusing for fans.
+---------
+
+# Young Sherlock Revives the Smartest Detective TV Strategy for Amazon
+
+TV, Young Sherlock, Sherlock Holmes, Prime Video
+
+Fri, 31 Jul 2026 10:00:14 GMT
+
+https://www.cbr.com/young-sherlock-revives-new-cast-tv-strategy/
+
+Young Sherlock diverged from usual detective TV methods, but its Season 2 cast shakeup confirms it's reinstating this winning strategy.
+---------
+
+# Kenneth Branagh's Agatha Christie Franchise Has the Perfect Sequel Lined Up
+
+Movies, Mystery, A Haunting in Venice, Agatha Christie's Seven Dials
+
+Fri, 31 Jul 2026 10:00:14 GMT
+
+https://www.cbr.com/kenneth-branagh-agatha-christie-cards-on-the-table-perfect-sequel/
+
+Kenneth Branagh's Poirot franchise should bring this Agatha Christie novel to the screen next.
+---------
+
+# 6 Best Action Movies Released Since 2000,
+
+Movie, Action, Ridley Scott, Quentin Tarantino, Kill Bill: Vol. 1
+
+Fri, 31 Jul 2026 11:45:14 GMT
+
+https://collider.com/best-action-movies-since-2000-ranked/
+
+Mission: Impossible - Fallout, Man on Fire, and Casino Royale are among the best action movies released since the year 2000.
+---------
+
+# 10 Bleakest Movies of the 1970s
+
+Movie, Chinatown, The Conversation, The Texas Chain Saw Massacre, Deliverance
+
+Fri, 31 Jul 2026 11:36:16 GMT
+
+https://collider.com/bleakest-movies-70s-ranked/
+
+From The Panic in Needle Park to The Texas Chain Saw Massacre, these are the most relentlessly grim and pessimistic movie masterpieces of the 1970s.
+---------
+
+# The Best Crime Franchise on TV Is Officially Coming to Netflix for the First Time
+
+TV News, Power, Netflix, Lionsgate Entertainment, Crime
+
+Fri, 31 Jul 2026 11:31:15 GMT
+
+https://collider.com/power-starz-franchise-streaming-netflix-november-2026/
+
+Starz's hit crime franchise is expanding its streaming footprint this fall. Get all the details about its Netflix deal.
+---------
+
+# 10 Perfect Fantasy Shows With 20 Episodes or Less
+
+TV, Fantasy, Percy Jackson & the Olympians, Arcane, A Knight Of The Seven Kingdoms
+
+Fri, 31 Jul 2026 11:22:15 GMT
+
+https://collider.com/perfect-fantasy-shows-shorter-than-20-episodes/
+
+These are the best fantasy shows with fewer than 20 episodes, offering captivating stories and iconic characters, from Shadow and Bone to Arcane.
+---------
+
+# All 7 Tom Holland MCU Movies, Ranked
+
+Movie, Tom Holland, MCU, Spider-Man: Brand New Day, Spider-Man
+
+Fri, 31 Jul 2026 11:21:15 GMT
+
+https://collider.com/tom-holland-movies-mcu-ranked/
+
+From Captain America: Civil War to Spider-Man: Brand New Day, Tom Holland has appeared in seven MCU movies, and we determine which film is his best.
+---------
+
+# Apple TV’s ‘Neuromancer’ Has To Preserve This Part of What Made the Novel Matter
+
+TV Features, Neuromancer, Apple TV, William Gibson, Callum Turner
+
+Fri, 31 Jul 2026 11:19:15 GMT
+
+https://collider.com/apple-tv-neuromancer-preserve-what-made-novel-matter-dystopia-corporations-ai/
+
+Apple TV's Neuromancer trailer looks fun and action-packed, but the show also needs the bleak dystopian themes of the book.
+---------
+
+# 8 Most Exciting Movies Based on Great Books
+
+Movie, No Country for Old Men, Misery, Goodfellas, The Lord of the Rings
+
+Fri, 31 Jul 2026 11:08:15 GMT
+
+https://collider.com/exciting-movies-based-on-great-books-ranked/
+
+Exciting movies that were based on great books include masterpieces like L.A. Confidential, The Lord of the Rings, and No Country for Old Men.
+---------
+
+# Will Smith’s Sci-Fi Western Misfire Is Making a Streaming Comeback on Paramount+
+
+Movie News, Will Smith, Western, Paramount Plus, Wild Wild West
+
+Fri, 31 Jul 2026 11:01:15 GMT
+
+https://collider.com/will-smith-wild-wild-west-streaming-paramount-plus-august-2026/
+
+Will Smith and Kevin Kline teamed up against a giant robot spider in this much-maligned sci-fi-Western heading to streaming.
+---------
+
+# 7 Thriller Shows Without a Single Flaw
+
+TV, Thriller, Severance, The Leftovers, Paradise
+
+Fri, 31 Jul 2026 10:47:15 GMT
+
+https://collider.com/thriller-shows-without-flaws/
+
+There are precious few thriller shows that we can confidently say have absolutely no flaws, like Hulu's Paradise and Netflix's Midnight Mass.
+---------
+
+# 10 Most Subversive Musical Movies of All Time
+
+Movie, Musical, The Rocky Horror Picture Show, Repo! The Genetic Opera, Hedwig and the Angry Inch
+
+Fri, 31 Jul 2026 10:39:16 GMT
+
+https://collider.com/most-subversive-musical-movies-ranked/
+
+From Cabaret to The Umbrellas of Cherbourg, these movie musicals challenged genre rules and transformed song into storytelling.
+---------
+
+# Long-Awaited Epic Fantasy Adaptation Finally Crosses Major Milestone
+
+Movie News, Elden Ring, Alex Garland, A24
+
+Fri, 31 Jul 2026 11:14:30 GMT
+
+https://movieweb.com/elden-ring-wraps-filming-production/
+
+Alex Garland's 'Elden Ring' movie has wrapped filming for A24, with the video game adaptation still set for a March 3, 2028 theatrical release.
+---------
+
+# 'Cape Fear' Ending, Explained: What's Next for Max Cady?
+
+Features, Cape Fear
+
+Fri, 31 Jul 2026 11:00:12 GMT
+
+https://movieweb.com/cape-fear-ending-explained/
+
+'Cape Fear' is an Apple TV thriller series starring Javier Bardem, Amy Adams, and Patrick Wilson.
+---------
+
 # Steam Makes 4 Hit Games Absolutely Free Until August 3
 
 Gaming, Steam
@@ -5210,290 +5496,4 @@ Wed, 29 Jul 2026 20:00:19 GMT
 https://movieweb.com/crunchyroll-action-thriller-anime-better-demon-slayer/
 
 'Demon Slayer' is often hailed as one of the best modern anime, but there are numerous series that have it beat — just not visually.
----------
-
-# The Best Batman Series in Years Officially Returns With Bold Rotten Tomatoes Score
-
-TV News, Batman: Caped Crusader
-
-Wed, 29 Jul 2026 19:53:15 GMT
-
-https://movieweb.com/batman-caped-crusader-season-2-rotten-tomatoes-score/
-
-The second season of the acclaimed DC superhero series from Prime Video is almost here.
----------
-
-# Children Of Blood & Bone Author Doubles Down On Movie Denouncement As “Worst Thing” Of Her Life
-
-Movies, Children of Blood and Bone
-
-Wed, 29 Jul 2026 19:49:45 GMT
-
-https://screenrant.com/children-blood-bone-movie-denouncement-tomi-adeyimi-double-down/
-
-Author Tomi Adeyimi doubles down on her denouncement of the Children of Blood & Bone movie as she calls the experience the "worst thing" of her life.
----------
-
-# It's The Start Of A New Star Wars Era After $32.4 Billion Move
-
-Movies, Star Wars
-
-Wed, 29 Jul 2026 19:43:37 GMT
-
-https://screenrant.com/star-wars-movies-box-office-starfighter-ghost-rider-update/
-
-Star Wars will begin a new era in theaters, as a new movie just had a massive win after The Mandalorian and Grogu underperformed at the box office.
----------
-
-# Iconic Spider-Man Villain Is Officially Marvel's New Venom
-
-Marvel Comics, Venom, Spider-Man
-
-Wed, 29 Jul 2026 19:30:27 GMT
-
-https://screenrant.com/spider-man-kraven-new-venom/
-
-Venom chooses a different host from Spider-Man and Eddie Brock, bonding to a Marvel villain who had never had the chance to control the alien being.
----------
-
-# HBO’s Task Confirms 2 More Returning Stars For Crossover Season 2
-
-TV, Task
-
-Wed, 29 Jul 2026 19:27:31 GMT
-
-https://screenrant.com/task-season-2-hbo-cast-martha-plimpton-silvia-dionicio-returning/
-
-A new update has arrived for Task season 2, which crosses over with Mare of Easttown, revealing that more familiar faces will be returning.
----------
-
-# 15 Years After Coming To Theaters, Beginners Is Still One Of The Century's Best Dramedies
-
-Movies, Beginners
-
-Wed, 29 Jul 2026 19:20:11 GMT
-
-https://screenrant.com/beginners-criterion-op-ed/
-
-One part of the Mike Mills "I'll Remind You Of Everything" trilogy is the Oscar-winning Beginners, one of modern cinema's most effective dramedies.
----------
-
-# The Hunger Games Owes Its Best Recast To Paul Thomas Anderson
-
-Movies, The Hunger Games, The Hunger Games: Sunrise on the Reaping
-
-Wed, 29 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/the-hunger-games-plutarch-heavensbee-recast-jesse-plemons-the-master/
-
-The upcoming prequel movie Sunrise on the Reaping sees various Hunger Games characters recast, but one casting choice stands out from the rest.
----------
-
-# How To Train Your Dragon Meets Zelda In New Fantasy RPG
-
-Gaming, How to Train Your Dragon, The Legend of Zelda, PC, Steam, RPG
-
-Wed, 29 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/sagas-of-lumin-zelda-meets-how-to-train-your-dragon/
-
-Fans of the legendarily good How to Train Your Dragon absolutely need to check out this new Zelda-esque fantasy RPG.
----------
-
-# Chicago Fire Season 15 Confirms Major OG Cast Exit
-
-TV, Chicago Fire, Chicago Fire - Season 15
-
-Wed, 29 Jul 2026 18:59:53 GMT
-
-https://screenrant.com/chicago-fire-season-15-joe-minoso-exit/
-
-Chicago Fire confirms that a major original cast member will be leaving the show after appearing in nearly every episode for 15 seasons.
----------
-
-# How To Watch Spider-Man Movies In Order (Chronologically & By Release Date)
-
-Movies, Spider-Man, Marvel Cinematic Universe, Movie/TV Show Timelines
-
-Wed, 29 Jul 2026 18:55:07 GMT
-
-https://screenrant.com/spider-man-movies-in-order/
-
-The live-action Spider-Man series is one of the more successful superhero movie franchises, and here is how to watch every installment in order.
----------
-
-# Prime Video’s New Shark Horror Movie Continues Disappointing 21-Year Rotten Tomatoes Trend
-
-Movies, The Devil's Mouth, Horror, Prime Video
-
-Wed, 29 Jul 2026 18:35:40 GMT
-
-https://screenrant.com/the-devils-mouth-prime-video-rotten-tomatoes-score-jeff-wadlow-trend/
-
-Reviews are rolling out for Prime Video's new shark horror movie and its Rotten Tomatoes debut continues a disappointing 21-year trend.
----------
-
-# Pokémon Red & Blue Returns As a 3D Game 30 Years Later
-
-Games, Pokemon
-
-Wed, 29 Jul 2026 19:50:17 GMT
-
-https://www.cbr.com/pokemon-red-blue-returns-3d-game-remake/
-
-Pokémon Red and Blue, two of the most iconic RPGs ever, are finally being remade in 3D, 30 years after they first released.
----------
-
-# Reacher Actor Who Quit In Season 4 Officially Returns In New Role
-
-TV, Reacher
-
-Wed, 29 Jul 2026 19:49:46 GMT
-
-https://www.cbr.com/reacher-season-5-casting-jay-baruchel-new-role/
-
-The Reacher Season 5 cast includes an actor who almost appeared on the upcoming fourth season of the Prime Video show.
----------
-
-# James Gunn Officially Responds to DCU Batman Casting Rumor
-
-Movies, The Brave and the Bold, DCU, Batman
-
-Wed, 29 Jul 2026 19:35:52 GMT
-
-https://www.cbr.com/james-gunn-debunks-dcu-batman-casting-rumor/
-
-James Gunn officially weighs in on a major DCU casting rumor.
----------
-
-# Bethesda Game Officially Shuts Down Forever in 24 Hours
-
-Games, The Elder Scrolls, Bethesda Softworks
-
-Wed, 29 Jul 2026 19:22:15 GMT
-
-https://www.cbr.com/bethesda-game-elder-scrolls-official-shutdown-24-hours/
-
-An Elder Scrolls game will officially be gone forever in just 24 hours.
----------
-
-# Kevin Feige Officially Teases Venom’s MCU Future
-
-Movies, Venom, Marvel Cinematic Universe
-
-Wed, 29 Jul 2026 19:20:28 GMT
-
-https://www.cbr.com/kevin-feige-venom-mcu-future/
-
-Marvel Studios president Kevin Feige addresses when Venom could join the Marvel Cinematic Universe.
----------
-
-# 5 Essential Cyberpunk TV Shows to Watch Before Apple TV's Neuromancer
-
-TV, Neuromancer, Love, Death & Robots, Altered Carbon, Sci-Fi
-
-Wed, 29 Jul 2026 19:00:15 GMT
-
-https://www.cbr.com/essential-cyberpunk-tv-shows-list/
-
-From cyberspace adventures to post-apocalyptic survival, here are the essential shows to watch before Apple TV’s Neuromancer.
----------
-
-# 5 Fantasy Books That Are 10/10, No Notes
-
-Movies, Fantasy
-
-Wed, 29 Jul 2026 19:00:15 GMT
-
-https://www.cbr.com/near-perfect-fantasy-books-list/
-
-In the world of fantasy fiction, it is notoriously difficult to be considered absolutely perfect but these five books come exceptionally close.
----------
-
-# 7 Greatest Anime With 4 Episodes or Less
-
-Anime, Pet Shop of Horrors, Puni Puni Poemy
-
-Wed, 29 Jul 2026 18:45:16 GMT
-
-https://www.cbr.com/greatest-anime-4-episodes-or-less/
-
-Some anime require serious time commitments, but titles like Puni Puni Poemy and Petshop of Horrors can be finished in a single sitting.
----------
-
-# Chicago Fire Says Goodbye as Original Star Exits After 15 Seasons
-
-TV, Chicago Fire, NBC, Drama
-
-Wed, 29 Jul 2026 18:43:07 GMT
-
-https://www.cbr.com/chicago-fire-joe-minoso-exit/
-
-An original Chicago Fire cast member is leaving the series.
----------
-
-# Stranger Things Four-Episode Spin-Off Confirmed, But It Won't Release on Netflix
-
-Comics, Stranger Things, webtoon
-
-Wed, 29 Jul 2026 18:36:12 GMT
-
-https://www.cbr.com/webtoon-stranger-things-six-confirmed/
-
-One of Stranger Things fans' favorite stories is set to continue on courtesy of a major digital platform, and it isn't Netflix.
----------
-
-# 'Tony's Coming-of-Age Kitchen Dramedy Beats 'The Bear' At Its Own Game | Review
-
-Movie Reviews, Tony, A24, Dominic Sessa, Antonio Banderas
-
-Wed, 29 Jul 2026 19:50:03 GMT
-
-https://collider.com/tony-movie-review-anthony-bourdain-dominic-sessa-antonio-banderas/
-
-A24's Anthony Bourdain biopic Tony is a gripping look into the life of one of the cooking world's best and brightest minds.
----------
-
-# Christopher Nolan’s 'The Odyssey' Officially Closes In on 2026’s Biggest Sci-Fi Box Office Milestone
-
-Movie News, The Odyssey, Project Hail Mary, Christopher Nolan, Box Office
-
-Wed, 29 Jul 2026 19:25:15 GMT
-
-https://collider.com/the-odyssey-project-hail-mary-box-office-700-million/
-
-Christopher Nolan's The Odyssey has taken another huge step on its road to $1 billion, with the film about to surpass 2026's best sci-fi epic.
----------
-
-# 10 Best Films of the 2000s, Ranked
-
-Movie, 2000s, The Dark Knight, Brokeback Mountain, Memento
-
-Wed, 29 Jul 2026 19:20:14 GMT
-
-https://collider.com/best-films-2000s-ranked/
-
-From The Dark Knight to Brokeback Mountain, these were the best films of the 2000s.
----------
-
-# 'Chicago Fire' Officially Losing Original Cast Member After 15 Seasons
-
-TV News, Chicago Fire, NBC, Peacock, Derek Haas
-
-Wed, 29 Jul 2026 18:57:23 GMT
-
-https://collider.com/chicago-fire-season-15-joe-minoso-leaving/
-
-Chicago Fire is officially losing a key player, as a cast member who has been with the show since Season 15 is departing the hit NBC series.
----------
-
-# Xbox Officially Launches PC Mode for 4 Classic Childhood Games
-
-Gaming News, Xbox 360, Xbox One, Xbox Series X/S, Microsoft
-
-Wed, 29 Jul 2026 18:25:14 GMT
-
-https://collider.com/xbox-pc-backward-compatibility-conker-crimson-skies/
-
-Xbox launches backward compatibility on PC with Conker, Crimson Skies, Blinx and Fusion Frenzy available through the Xbox app.
 ---------
