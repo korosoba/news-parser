@@ -1,3 +1,311 @@
+# 9 Years Later, Laurence Fishburne’s Canceled Star Trek Klingon Look Revealed
+
+Classic TV, Star Trek, Star Trek: Discovery
+
+Thu, 30 Jul 2026 23:53:29 GMT
+
+https://screenrant.com/star-trek-discovery-laurence-fishburne-bryan-fuller-klingon/
+
+On Laurence Fishburne's birthday, Star Trek: Discovery's original creator Bryan Fuller reveals what Fishburne would've looked like as a Klingon.
+---------
+
+# HBO Max's Space Opera With Near-Perfect Rotten Tomatoes Audience Score Sets Up Sci-Fi Franchise's Hardest Task
+
+Movies, Masked Recs
+
+Thu, 30 Jul 2026 23:38:15 GMT
+
+https://screenrant.com/hbo-max-dune-part-two-sci-fi-franchise-hard-task/
+
+HBO Max's global hit space opera is one of the genre's best ever, and it sets up a daunting task for the sci-fi franchise's next release.
+---------
+
+# Christian Bale’s Sequel To Robert De Niro’s Classic 31-Year-Old Crime Thriller On Track For Record-Setting Budget
+
+Movies, Heat, Christian Bale, Robert De Niro, Heat 2
+
+Thu, 30 Jul 2026 23:35:12 GMT
+
+https://screenrant.com/heat-2-budget-report-michael-mann-record/
+
+Christian Bale is confirmed to be one of the lead actors on Heat 2, which is now reported to have a record-breaking budget ahead of production.
+---------
+
+# After 11 Years, Black Clover Finally Reveals Asta's Epic Final Look
+
+Anime, Black Clover
+
+Thu, 30 Jul 2026 23:30:11 GMT
+
+https://screenrant.com/black-clover-asta-final-look/
+
+After an incredible 11-year run, the Volume 38 epilogue finally reveals Asta's final look as the series officially ends.
+---------
+
+# NCIS Meets Reacher In Network TV’s Most Popular Action Series
+
+TV, Masked Recs
+
+Thu, 30 Jul 2026 23:30:11 GMT
+
+https://screenrant.com/tracker-action-series-like-ncis-reacher/
+
+The action genre has experienced a surge in popularity on network TV recently, with its most successful exponent a cross between NCIS and Reacher.
+---------
+
+# Dungeons & Dragons Is Getting Its First M-Rated Setting Next Year
+
+Gaming, Dungeons and Dragons
+
+Thu, 30 Jul 2026 23:15:11 GMT
+
+https://screenrant.com/dungeons-dragons-dark-sun-setting-returns-2027/
+
+Dungeons & Dragons is bringing back one of its classic worlds in 2027, and this new iteration will be D&amp;D's first M-rated setting ever.
+---------
+
+# Batman: Caped Crusader Season 2 Debuts To Stellar Rotten Tomatoes Score
+
+TV, Batman: Caped Crusader, Batman, DC Universe
+
+Thu, 30 Jul 2026 23:12:30 GMT
+
+https://screenrant.com/batman-caped-crusader-season-2-rotten-tomatoes-score-debut/
+
+Prime Video's Batman: Caped Crusader season 2 is set to arrive this week, and the show's Rotten Tomatoes score for the new season has finally debuted.
+---------
+
+# Dungeons & Dragons 2027 Roadmap Revealed
+
+Gaming, Dungeons and Dragons
+
+Thu, 30 Jul 2026 23:02:11 GMT
+
+https://screenrant.com/dungeons-dragons-2027-roadmap-releases/
+
+Dungeons & Dragons has officially revealed its 2027 Roadmap, which includes the return of two iconic D&amp;D settings for next year's new releases.
+---------
+
+# 10 Anime Heroes That Could Easily Destroy Gojo
+
+Anime, Jujutsu Kaisen, The Disastrous Life of Saiki K., Demon Slayer, Dragon Ball, Jojo's Bizarre Adventure, Death Note, Naruto, Mob Psycho 100, One Piece, Solo Leveling, One Punch Man - Season 1
+
+Thu, 30 Jul 2026 23:00:13 GMT
+
+https://screenrant.com/anime-characters-defeat-gojo/
+
+Few characters stand a chance against a sorcerer like Jujutsu Kaisen's Gojo Satoru, but these ten actually have a chance of winning against him.
+---------
+
+# Chicago Fire Original Character Exit Spoils Season 15’s Tragedy Twist
+
+Network TV, Chicago Fire
+
+Thu, 30 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/chicago-fire-season-15-joe-cruz-exit-spoil-death-twist/
+
+Chicago Fire is losing one of its original character when it returns for season 15, and the news takes Cruz out of contention for a cliffhanger death.
+---------
+
+# An Iconic '80s Sci-Fi Show Just Became an Overnight Hit Decades After Cult Classic Status
+
+TV, Knight Rider, Apple TV
+
+Thu, 30 Jul 2026 23:30:15 GMT
+
+https://www.cbr.com/knight-rider-80s-sci-fi-show-apple-tv-hit-cult-classic/
+
+The cult classic 1980s TV show Knight Rider, starring David Hasselhoff, is the No. 2 top show on Apple TV
+---------
+
+# 5 Masterpiece Action Anime Series That Don't Waste a Single Episode
+
+Anime, Gurren Lagann, Vivy: Fluorite Eye's Song
+
+Thu, 30 Jul 2026 23:15:15 GMT
+
+https://www.cbr.com/masterpiece-action-anime-all-episodes-perfect/
+
+These action anime maintain relentless momentum from beginning to end without a single unnecessary detour.
+---------
+
+# Dungeons & Dragons Officially Crossing Over With World of Warcraft in 2026
+
+Games, Dungeons and Dragons
+
+Thu, 30 Jul 2026 23:10:15 GMT
+
+https://www.cbr.com/dnd-wow-official-2026-crossover-confirmed/
+
+Azeroth will soon be home to new kinds of adventuring parties, as Dungeons & Dragons is officially crossing over with World of Warcraft in 2026.
+---------
+
+# Dragon Ball Officially Makes Super Saiyan 5, 6 and 7 Canon
+
+Anime, Dragon Ball, Dragon Ball Super, Dragon Ball: Sparking! Zero
+
+Thu, 30 Jul 2026 23:06:14 GMT
+
+https://www.cbr.com/dragon-ball-sparking-zero-super-saiyan-67-canon/
+
+In Dragon Ball's latest release, Vegeta vows to surpass Kakarot once and for all, even if that means reaching a form even greater than Super Saiyan 5.
+---------
+
+# Game of Thrones' Jon Snow Officially Returns in War for Westeros
+
+Games, Game Of Thrones
+
+Thu, 30 Jul 2026 23:05:14 GMT
+
+https://www.cbr.com/game-of-thrones-jon-snow-official-return-war-for-westeros/
+
+Jon Snow is one of the most popular Game of Thrones characters, and he's officially confirmed to return in War for Westeros.
+---------
+
+# NBC's Canceled 3-Season Horror Series Is Now Streaming on Netflix
+
+TV, Hannibal, Netflix, Horror
+
+Thu, 30 Jul 2026 23:00:14 GMT
+
+https://www.cbr.com/hannibal-nbc-horror-series-streaming-on-netflix/
+
+All three seasons of Hannibal are available on Netflix
+---------
+
+# Dungeons & Dragons Officially Adding Brand-New Character Class in 2027
+
+Games, Dungeons and Dragons, Tabletop
+
+Thu, 30 Jul 2026 23:00:14 GMT
+
+https://www.cbr.com/dnd-new-character-class-official-2027-psion/
+
+Dungeons & Dragons 5e is adding a brand-new class in 2027, with the Psion making its return in the upcoming Dark Sun campaign setting book.
+---------
+
+# 5 2000s Psychological Thrillers Nobody Talks About Anymore
+
+Movies, Thriller, Frailty, Insomnia
+
+Thu, 30 Jul 2026 23:00:14 GMT
+
+https://www.cbr.com/2000s-psychological-thrillers-no-one-remembers-list/
+
+Psychological thrillers have produced plenty of well-known masterpieces, but the 2000s is a haven for forgotten gems nobody talks about anymore.
+---------
+
+# The Greatest Action Drama Ever and Its Sequel Are the Perfect Free Binge on Streaming
+
+Movie Features, Top Gun, Tom Cruise, Action, Tony Scott
+
+Thu, 30 Jul 2026 23:48:14 GMT
+
+https://collider.com/top-gun-maverick-streaming-free-pluto-july-2026/
+
+Tom Cruise redefined action films and his own career with 1986's Top Gun, which is streaming for free on Pluto TV along with 2022's Top Gun: Maverick.
+---------
+
+# 7 Essential Stephen King Books You Must Read at Least Once
+
+Books and Comics, Stephen King, The Stand, It, Carrie
+
+Thu, 30 Jul 2026 23:39:14 GMT
+
+https://collider.com/stephen-king-essential-books/
+
+From his debut horror novel Carrie to the quintessential coming-of-age story It, these Stephen King books are essential and are worth reading once.
+---------
+
+# One of the Best Horror Book of the Decade Is Becoming a Feature Film 5 Years Later
+
+Movie News, Horror, Christopher Landon, Paramount Pictures, Paramount
+
+Thu, 30 Jul 2026 23:31:13 GMT
+
+https://collider.com/the-final-girl-support-group-horror-adaptation-confirmed-chrisopher-landon/
+
+Legendary horror filmmaker Christopher Landon is officially bringing a beloved horror novel to the big screen. Read on for more.
+---------
+
+# The 10 Best Fantasy Shows of the 21st Century, Ranked
+
+TV, Fantasy, House of the Dragon, Game Of Thrones, The Witcher
+
+Thu, 30 Jul 2026 23:12:14 GMT
+
+https://collider.com/best-fantasy-tv-shows-21st-century-ranked/
+
+From Merlin to Game of Thrones, these best fantasy shows of the 21st century so far will go down in history as genre-defining modern classics.
+---------
+
+# 'GTA 6’s Latest Controversy Enrages PlayStation Fans
+
+Gaming News, GTA V, Grand Theft Auto, Sony PlayStation, PS5
+
+Thu, 30 Jul 2026 23:06:35 GMT
+
+https://collider.com/gta-6-controversy-ps5-download-code-restrictions/
+
+GTA 6 continues to spark controversy ahead of its November release, and this latest wrinkle affects PlayStation users the most.
+---------
+
+# Tom Hiddleston’s 3-Part Disney+ Series Makes This Historical Disaster More Relevant
+
+TV Features, Tom Hiddleston, Pompeii: Out of Time with Tom Hiddleston, Disney+, Documentary
+
+Thu, 30 Jul 2026 23:04:15 GMT
+
+https://collider.com/tom-hiddleston-disney-series-pompeii-out-of-time/
+
+On July 23, Hulu and Disney+ premiered Pompeii: Out of Time, a new docuseries featuring Tom Hiddleston as he redefines the tragic eruption of Mount Ve
+---------
+
+# Disney’s Twisted Anime Officially Returns With 2026 Release Date
+
+TV News, Disney Twisted-Wonderland the Animation, Disney+, Fantasy, Anime
+
+Thu, 30 Jul 2026 22:59:33 GMT
+
+https://collider.com/disney-twisted-wonderland-season-2-release-date-december-2026/
+
+Disney's anime series Twisted-Wonderland reveals that Season 2, titled "Episode of Savanaclaw," is set for December 2026.
+---------
+
+# 'Severance' Season 3's Official Filming Announcement Is the Best News for Even the Most Impatient Fans
+
+TV Features, Severance, Apple TV, Adam Scott, Ben Stiller
+
+Thu, 30 Jul 2026 22:58:14 GMT
+
+https://collider.com/severance-season-3-filming-announcement-good-news-for-fans/
+
+Severance's Dan Erickson confirms that Season 3 filming has begun, possibly promising a quicker return than the 3-year gap between Seasons 1 and 2.
+---------
+
+# Stephen King's Supernatural '80s Masterpiece Gets New Release
+
+Movie News, Stephen King, Pet Sematary
+
+Thu, 30 Jul 2026 23:43:32 GMT
+
+https://movieweb.com/stephen-king-pet-sematary-4k-blu-ray-steelbook/
+
+'Pet Sematary' is getting an all-new limited-edition 4K Ultra HD Blu-ray SteelBook release in October.
+---------
+
+# 'Tombstone' Meets 'House of the Dragon' 8-Part Sci-Fi Western Adds 'Cobra Kai' Star
+
+TV News, Sci-Fi, Western, Luke Sparke
+
+Thu, 30 Jul 2026 23:00:42 GMT
+
+https://movieweb.com/dinosaurs-of-the-wild-west-martin-kove-cast/
+
+The epic sci-fi Western series from the director of 'Primitive War' is officially building a star-studded cast, including a Cobra Kai alum.
+---------
+
 # It's Confirmed: Luke And Leia Are Returning For Epic New Star Wars Story In 2027
 
 Star Wars
@@ -5188,312 +5496,4 @@ Wed, 29 Jul 2026 16:00:15 GMT
 https://www.cbr.com/10-greatest-spider-man-comics-brand-new-day/
 
 Fans are hyped for Spider-Man: Brand New Day, but there are plenty more Spider-Man stories Hollywood could adapt.
----------
-
-# John Wick Meets Taken in Jason Statham's A Working Man
-
-Movies, A Working Man
-
-Wed, 29 Jul 2026 16:00:15 GMT
-
-https://www.cbr.com/jason-stathams-a-working-man-streaming-now/
-
-A Working Man (2025) has seen continued streaming success as it pays homage to two incredible action thriller films.
----------
-
-# Batman's Creepiest Redesign Yet Gives the Dark Knight a Terrifying New Look
-
-Comics, Batman
-
-Wed, 29 Jul 2026 16:00:15 GMT
-
-https://www.cbr.com/batman-14-terrifying-variant-cover/
-
-Batman just struck fear into the hearts of... everyone.
----------
-
-# Boy Meets World's Danielle Fisher Reveals Her Love For The X-Files
-
-TV, Boy Meets World, The X-Files, San Diego Comic-Con
-
-Wed, 29 Jul 2026 16:00:15 GMT
-
-https://www.cbr.com/boy-meets-world-danielle-fishel-x-files-dugout-dads/
-
-What TV show had this Boy Meets World star glued to the screen?
----------
-
-# Anthony Hopkins' HBO Classic Is TV's Only Perfect Sci-Fi Western
-
-TV, Westworld, HBO Max, Sci-Fi, Western
-
-Wed, 29 Jul 2026 16:00:15 GMT
-
-https://www.cbr.com/hbo-westworld-perfect-tv-sci-fi-western/
-
-Many TV shows have tried to blend the sci-fi and Western genres, but only one HBO hit is considered to have mastered the craft.
----------
-
-# Kevin Hart, Marcello Hernández & the 72 Hours Cast Hand Out Superlatives
-
-Movie, Originals, 72 Hours, Kevin Hart
-
-Wed, 29 Jul 2026 16:40:34 GMT
-
-https://collider.com/video/kevin-hart-marcello-hernndez-the-72-hours-cast-hand-out-superlatives/
-
-Kevin Hart and the 72 Hours cast put each other on the spot in Collider's Superlatives, and nobody is safe. Kevin Hart, Marcello Hernández, Ben Marshall, Kam Patterson, and Mason Gooding hand out awards for best dressed, biggest prankster, most affectionate, and more while roasting each other's style, habits, and on-set personalities.
----------
-
-# 10 Greatest Sci-Fi Books That Won Both the Hugo and Nebula Awards
-
-Books and Comics, Books, Sci-Fi, Dune, Neuromancer
-
-Wed, 29 Jul 2026 16:34:15 GMT
-
-https://collider.com/sci-fi-books-hugo-nebula-award-winners/
-
-Dune, Rendezvous With Rama, and Neuromancer are all among the very best science fiction books that won both the Hugo and Nebula Awards.
----------
-
-# Loungefly Is Officially Bringing Back the Disney Classics for D23 [Exclusive]
-
-Collectibles, D23, The Fox and the Hound, Beauty and the Beast, Winnie the Pooh
-
-Wed, 29 Jul 2026 16:01:15 GMT
-
-https://collider.com/loungefly-disney-collection-d23-release-images/
-
-Discover Loungefly's D23 exclusive Disney collection featuring themed backpacks and bags inspired by classic movies.
----------
-
-# Marvel Is Officially Rewriting Thor's Story Ahead of His MCU Return
-
-Books and Comics News, Thor, Marvel, Avengers: Doomsday, Chris Hemsworth
-
-Wed, 29 Jul 2026 16:01:15 GMT
-
-https://collider.com/marvel-rewrites-thor-story-queen-in-black-1/
-
-In Queen in Black #1, Beta Ray Bill becomes the lone guardian of a history no one else believes ever happened.
----------
-
-# Netflix’s Brilliant 16-Episode ‘Witcher’ Replacement Is the Perfect Fantasy Binge
-
-TV Features, The Haunted Palace, Netflix, The Witcher, Fantasy
-
-Wed, 29 Jul 2026 15:52:14 GMT
-
-https://collider.com/netflix-best-the-witcher-replacement-haunted-palace-series/
-
-The Haunted Palace became one of Netflix's biggest fantasy successes, racking up 84.4 million viewing hours with its supernatural story, standout cast
----------
-
-# Guy Ritchie's Biggest Crime Series Since 'MobLand' Adds 2 'Game of Thrones' Favorites
-
-TV News, Young Sherlock, Guy Ritchie, Indira Varma, Aidan Gillen
-
-Wed, 29 Jul 2026 15:32:52 GMT
-
-https://collider.com/guy-ritchie-young-sherlock-season-2-cast-indira-varma-aidan-gillen/
-
-Guy Ritchie's hit Sherlock Holmes prequel series has added stars from Game of Thrones, Dune: Prophecy, and Outlander for Season 2. Read on for more.
----------
-
-# Guy Ritchie's Smash Hit Amazon Reboot Adds 'Game of Thrones' Icon & More to Season 2
-
-TV News, Guy Ritchie, Young Sherlock
-
-Wed, 29 Jul 2026 16:29:08 GMT
-
-https://movieweb.com/young-sherlock-season-2-cast-exits/
-
-'Young Sherlock' Season 2 adds Indira Varma, Aidan Gillen, Sophie Skelton, and Olivia Williams as Prime Video's Guy Ritchie hit loses three regulars.
----------
-
-# In Just 1 Day, 'Spider-Man: Brand New Day' Is Already Smashing Box Office Records
-
-Movie News, Spider-Man: Brand New Day, Box Office
-
-Wed, 29 Jul 2026 16:13:59 GMT
-
-https://movieweb.com/spider-man-brand-new-day-box-office-opening-china/
-
-Marvel and Sony's 'Spider-Man: Brand New Day' could be one of the biggest box office hits of the year after a new update.
----------
-
-# Netflix's New Action Thriller Is Officially a Streaming Smash After Hitting 7.6M Views in 1 Week
-
-Movie News, Netflix, Action, Thriller
-
-Wed, 29 Jul 2026 16:00:12 GMT
-
-https://movieweb.com/netflix-debt-collector-action-thriller-biggest-stream-july-2026/
-
-The no-nonsense revenge thriller has quickly become a big hit with audiences at home.
----------
-
-# Jared Leto Accused of Criminal Sexual Conduct by Four Women in New Documentary
-
-Movie News, Jared Leto, Masters of the Universe, Documentary
-
-Wed, 29 Jul 2026 15:54:07 GMT
-
-https://movieweb.com/jared-leto-criminal-sexual-conduct-documentary/
-
-'Jared Leto: Hollywood’s Dark Secret' brings new allegations to light.
----------
-
-# 'It's Always Sunny in Philadelphia' Finally Returns in First Season 18 Trailer
-
-TV News, It's Always Sunny in Philadelphia
-
-Wed, 29 Jul 2026 15:26:12 GMT
-
-https://movieweb.com/its-always-sunny-in-philadelphia-season-18-trailer/
-
-FX shared the first look at the newest season of 'It's Always Sunny in Philadelphia' in a hilarious new trailer.
----------
-
-# Robin's New Costume Is Officially The Most Unexpected Of The Year
-
-DC Comics, Robin
-
-Wed, 29 Jul 2026 15:23:23 GMT
-
-https://screenrant.com/robin-new-costume-beach/
-
-DC's new superhero crossover reveals a new look for Robin, as Tim Drake showcases a departure from his traditional battle-ready attire.
----------
-
-# Guy Ritchie’s Young Sherlock Season 2 Reveals Massive New Casting Changes With Multiple Exits
-
-TV, Young Sherlock, Prime Video, Guy Ritchie
-
-Wed, 29 Jul 2026 15:16:24 GMT
-
-https://screenrant.com/young-sherlock-season-2-cast-changes-zine-tseng-joseph-fiennes-numan-acar-exit-new-additions/
-
-Guy Ritchie's Young Sherlock season 2 is shaking up its cast in a major way with four new additions, as well as multiple exits from the hit series.
----------
-
-# One Of 2025's Best RPGs Is Officially Getting A Sequel
-
-Gaming, Wuchang: Fallen Feathers, Triple-A Games, PC
-
-Wed, 29 Jul 2026 15:13:42 GMT
-
-https://screenrant.com/wuchang-fallen-feathers-sequel-announcement-2025-rpg/
-
-Months after a report suggested that the team behind one of 2025's best games disbanded, a sequel from the original creator has been announced.
----------
-
-# 8-Part Crime Series With Rare 100% RT Score Is One Of Streaming's Biggest Shows In Just 2 Days
-
-TV, Masked Recs
-
-Wed, 29 Jul 2026 15:08:28 GMT
-
-https://screenrant.com/crime-series-furious-hulu-stream-biggest-perfect-rotten-tomatoes-hulu/
-
-Crime dramas are very popular with TV audiences, and a brand-new series on Hulu is a huge hit, even though it only just came out on July 27.
----------
-
-# The Walking Dead: Dead City Season 3 Sets Rotten Tomatoes Audience Score Record For Franchise’s New Era
-
-TV, The Walking Dead: Dead City, The Walking Dead
-
-Wed, 29 Jul 2026 15:00:46 GMT
-
-https://screenrant.com/the-walking-dead-dead-city-season-3-rotten-tomatoes-audience-score-debut/
-
-The Walking Dead: Dead City season 3 sets a Rotten Tomatoes audience score record for the zombie franchise's newest era of spinoffs.
----------
-
-# New Open-World Survival RPG Is Basically Project Zomboid In Space
-
-Gaming, Project Zomboid, RPG, PC, Steam
-
-Wed, 29 Jul 2026 15:00:12 GMT
-
-https://screenrant.com/dandelion-void-project-zomboid-in-space/
-
-This brand-new open-world survival RPG brings the very best elements of the legendary Project Zomboid to outer space.
----------
-
-# The Horror of Godzilla #1 Is the Most Terrifying Godzilla Media of All Time, Bar None
-
-Comics, Godzilla
-
-Wed, 29 Jul 2026 14:56:37 GMT
-
-https://screenrant.com/horror-godzilla-1-review/
-
-The best Godzilla has ever looked.
----------
-
-# DC Confirms an R-Rated Redesign for an Iconic Wonder Woman Villain
-
-Comics, Wonder Woman
-
-Wed, 29 Jul 2026 14:56:11 GMT
-
-https://screenrant.com/new-absolute-wonder-woman-cheetah-design-image/
-
-Ahead of Wonder Woman's next appearance, DC has unveiled a new image showcasing a horror-centric redesign for one of her most infamous villains.
----------
-
-# X-Men Reveals the Secret To An Iconic Villain's Redemption
-
-Comics, X-Men
-
-Wed, 29 Jul 2026 14:55:24 GMT
-
-https://screenrant.com/x-men-juggernaut-redemption-secret-cyclops/
-
-A redeemed X-Man reveals what keeps him good.
----------
-
-# What To Expect From Disney's D23 2026 Event: Panels, Predictions & More
-
-Movies, D23
-
-Wed, 29 Jul 2026 14:45:11 GMT
-
-https://screenrant.com/what-to-expect-from-disneys-d23-2026-event-panels-predictions-more/
-
-D23 is the ultimate Disney fan event, offering exclusive first looks and announcements at upcoming projects, including Star Wars, Marvel and Pixar.
----------
-
-# Minecraft Gets a Hello Kitty Makeover With Over 20 New Craftable Designs
-
-Anime, sanrio, Hello Kitty, Minecraft
-
-Wed, 29 Jul 2026 15:20:15 GMT
-
-https://www.cbr.com/sanrio-hello-kitty-minecraft-furniture-pack/
-
-A new official Minecraft modpack adds over 20 adorable new furniture items inspired by Hello Kitty, Kuromi and other Sanrio icons.
----------
-
-# 10 Perfect Action Anime Series Nobody Remembers
-
-Anime, Action, Katanagatari, Shonen
-
-Wed, 29 Jul 2026 15:15:15 GMT
-
-https://www.cbr.com/forgotten-perfect-action-anime/
-
-Action anime deserves evaluation on craft, innovation, and thematic depth rather than airtime or fan count.
----------
-
-# 5 Forgotten Samurai Movies That Are Amazing From Start to Finish
-
-Movies
-
-Wed, 29 Jul 2026 15:00:16 GMT
-
-https://www.cbr.com/best-samurai-movies-no-one-remembers-list/
-
-Samurai movies are some of the best examples of moviemaking, but there are many films that deserve praise that modern audiences have forgotten.
 ---------
