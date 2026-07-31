@@ -1,3 +1,245 @@
+# Warner Bros. Running Out Of Time Over Barbie 2 Negotiations In New Report
+
+Movies, Barbie
+
+Fri, 31 Jul 2026 23:51:36 GMT
+
+https://screenrant.com/warner-bros-barbie-2-negotiations/
+
+Warner Bros. is cutting it close as the studio races to secure a sequel to the hit film Barbie before its deal with Mattel expires this December.
+---------
+
+# 17 Years Later, Titus Welliver's Lost Role Is Hard To Forgive
+
+Classic TV, Lost
+
+Fri, 31 Jul 2026 23:30:11 GMT
+
+https://screenrant.com/lost-titus-welliver-role-aged-badly/
+
+Titus Welliver played one of Lost's best and most compelling villains, but he did not get the screentime or character development that he deserved.
+---------
+
+# 7 Most Iconic Anime Swordswomen
+
+Anime
+
+Fri, 31 Jul 2026 23:30:11 GMT
+
+https://screenrant.com/most-iconic-anime-swordswomen/
+
+More often than not, male swordsmen take the spotlight in anime, but many of their female counterparts are just as popular, if not more so.
+---------
+
+# Lovecraftian Horror Meets Jaws In Josh Hartnett’s New Netflix Thriller
+
+Streaming TV, Masked Recs
+
+Fri, 31 Jul 2026 23:15:11 GMT
+
+https://screenrant.com/josh-hartnett-netflix-below-lovecraft-jaws/
+
+An upcoming Netflix thriller show, which stars Josh Hartnett as its lead, seems to combine Lovecraftian horror with some of the best beats from Jaws.
+---------
+
+# 3 Best Movies To Watch On Netflix This Weekend (August 1-2)
+
+Movies, Netflix, Recommendation
+
+Fri, 31 Jul 2026 23:07:03 GMT
+
+https://screenrant.com/best-netflix-movies-watch-weekend-august-1/
+
+The best movies to watch on Netflix this weekend are a sci-fi horror, a new comedy, and a fantasy masterpiece that became a box office phenomenon.
+---------
+
+# 20 Years Later, Battlestar Galactica's Best Line Still Lives Rent-Free In Our Heads
+
+Classic TV, Battlestar Galactica
+
+Fri, 31 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/battlestar-galactica-greatest-line-quote-remember/
+
+Some quotes just never stop being relevant, and that's even more true for one from Battlestar Galactica that's all about endless cycles.
+---------
+
+# 5 Free PlayStation 5 Games You Can Play This Weekend, No PS Plus Needed
+
+Gaming, PlayStation 5
+
+Fri, 31 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/playstation-5-free-games-august-1-weekend/
+
+Discover 5 free PlayStation 5 games to enjoy this weekend without needing a PS Plus subscription, including casual adventures, roguelites, and more.
+---------
+
+# 5 MCU Heroes Who Should Team Up With Ryan Gosling's Ghost Rider
+
+Movies, Ghost Rider, Marvel Cinematic Universe
+
+Fri, 31 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/ghost-rider-mcu-heroes-team-up-candidates/
+
+Several existing superheroes in the MCU deserve opportunities to join forces with Ryan Gosling's Ghost Rider on the big screen.
+---------
+
+# Every Lantern Corp and Their Powers in DC Canon Explained
+
+Comics, Green Lantern, DC Comics
+
+Fri, 31 Jul 2026 23:00:11 GMT
+
+https://screenrant.com/every-lantern-corp-dc-comics-ranked-weakest-strongest/
+
+Other Lantern Corps, stronger than the Greens, roam the DC universe, some fueled by the very emotions the Guardians sought to suppress.
+---------
+
+# 5 Greatest Hard Sci-Fi Anime of the 2020s, Ranked
+
+Anime, 86: EIGHTY-SIX, Dr. Stone, Sci-Fi
+
+Fri, 31 Jul 2026 23:45:14 GMT
+
+https://www.cbr.com/greatest-hard-sci-fi-anime-of-the-2020s-ranked/
+
+The 2020s were full of groundbreaking hard sci-fi anime, like Dr. Stone, that add realism and authenticity to complex technology and science.
+---------
+
+# 15 Greatest Endgame Bosses For Your Next D&D Campaign
+
+Games, Tabletop, Dungeons and Dragons, Gaming
+
+Fri, 31 Jul 2026 23:30:15 GMT
+
+https://www.cbr.com/dnd-endgame-campaign-bosses/
+
+Choosing a great end boss is key when designing a D&amp;D campaign. Luckily, 5e has no shortage of great monsters to choose from.
+---------
+
+# 5 Masterpiece War Anime Better Than Attack on Titan
+
+Anime, Attack on Titan, Legend Of The Galactic Heroes
+
+Fri, 31 Jul 2026 23:15:14 GMT
+
+https://www.cbr.com/masterpiece-war-anime-better-than-attack-on-titan/
+
+Attack on Titan is a war anime masterpiece, but shows like Legend of the Galactic Heroes handle the theme much better.
+---------
+
+# Sega Officially Unleashes Jujutsu Kaisen's Queen of Curses This November
+
+Anime, Jujutsu Kaisen, merchandise
+
+Fri, 31 Jul 2026 23:05:15 GMT
+
+https://www.cbr.com/sega-jujutsu-kaisen-rika-figure-november-release/
+
+SEGA releases the Queen of Curses in a terrifying new Jujutsu Kaisen figurine featuring Fully Manifested Rika.
+---------
+
+# AMC's 10/10 Fantasy Masterpiece Replaces The Walking Dead: Dead City as the Most-Watched TV Show on Streaming
+
+TV, The Vampire Lestat, AMC, The Walking Dead: Dead City
+
+Fri, 31 Jul 2026 23:00:14 GMT
+
+https://www.cbr.com/the-vampire-lestat-surpasses-the-walking-dead-dead-city-amc-july-2026/
+
+AMC's The Vampire Lestat is officially the No. 1 most watched AMC show in the United States
+---------
+
+# 10 Greatest Erotic Thrillers of All Time, Ranked
+
+Movies, Thriller, Gone Girl, The Handmaiden
+
+Fri, 31 Jul 2026 23:00:14 GMT
+
+https://www.cbr.com/best-erotic-thrillers-of-all-time-list/
+
+From Hitchcock classics to modern masterpieces, these are the 10 films that perfected the balance between romance, mystery, and suspense.
+---------
+
+# 3 Stellar Shows to Binge-Watch on Prime Video This Weekend (August 1-2)
+
+TV, Fallout, The Marvelous Mrs. Maisel, Batman: Caped Crusader, Prime Video
+
+Fri, 31 Jul 2026 23:43:14 GMT
+
+https://collider.com/prime-video-shows-binge-weekend-august-1-2026/
+
+Batman: Caped Crusader, Marvelous Mrs. Maisel, and Fallout make our list of the best Prime Video shows to binge-watch the weekend of August 1, 2026.
+---------
+
+# 7 Years Later, Kylo Ren Officially Returns to Star Wars With New 2026 Release
+
+Books and Comics, Kylo Ren, Star Wars, Adam Driver, Comics
+
+Fri, 31 Jul 2026 23:30:14 GMT
+
+https://collider.com/star-wars-the-fall-of-kylo-ren-release-date-august-2026/
+
+Star Wars fans should be excited: Kylo Ren's story is continuing in just a few weeks! Read on for all the details.
+---------
+
+# 5 Scariest Movies Released Since 2010
+
+Movie, The Dark and the Wicked, Hereditary, Smile, It Follows
+
+Fri, 31 Jul 2026 23:25:14 GMT
+
+https://collider.com/scariest-movies-since-2010-ranked/
+
+It Follows, The Dark and the Wicked, and Hereditary are among the absolute most terrifying horror movies released since the year 2010.
+---------
+
+# This 140-Minute Action Fantasy Is Suddenly Dominating the Streaming Charts
+
+Movie Features, Prime Video, Masters of the Universe, Nicholas Galitzine, Camila Mendes
+
+Fri, 31 Jul 2026 23:05:14 GMT
+
+https://collider.com/masters-of-the-universe-action-fantasy-prime-video-streaming-charts/
+
+2026's Masters of the Universe struggled in theaters, but the winning action-fantasy is now topping Prime Video's streaming charts.
+---------
+
+# 7 Best Anime Series Coming to Netflix and Crunchyroll in August
+
+TV, Anime, Netflix, Crunchyroll, The Ribbon Hero
+
+Fri, 31 Jul 2026 23:05:14 GMT
+
+https://collider.com/best-anime-series-coming-netflix-crunchyroll-august-2026/
+
+August brings many great anime to Netflix and Crunchyroll, from new arrivals like The Ribbon Hero to new seasons of shows like Jobless Reincarnation.
+---------
+
+# Stephen King 1989 Classic Rises From the Dead With a Brand-New Release
+
+Movie News, Stephen King, Pet Sematary, Blu-ray, SteelBook
+
+Fri, 31 Jul 2026 23:00:14 GMT
+
+https://collider.com/stephen-king-pet-sematary-4k-blu-ray-release-date-october-2026/
+
+We all love a Stephen King adaptation, and one of the best is getting a new 4K Ultra Blu-Ray release! Read on for more.
+---------
+
+# R-Rated Reboot of '70s Cult Classic Getting New Release
+
+Movie News, Faces of Death, Dacre Montgomery, Barbie Ferreira
+
+Fri, 31 Jul 2026 23:24:01 GMT
+
+https://movieweb.com/faces-of-death-reboot-blu-ray-release/
+
+The new take on the original 'Faces of Death' is coming to Blu-ray in September.
+---------
+
 # All 21 Batman TV Shows, Ranked Worst To Best
 
 Superheroes, Batman, DC Universe
@@ -5254,246 +5496,4 @@ Thu, 30 Jul 2026 16:00:19 GMT
 https://movieweb.com/netflix-walking-dead-streaming-deal/
 
 Starting in 2027, Netflix will be the home to The Walking Dead and its six spin-off series.
----------
-
-# 7 Mind-Blowing Thriller Movies You Can Stream on Netflix This Weekend
-
-Movie Lists, Netflix, Thriller
-
-Thu, 30 Jul 2026 16:00:13 GMT
-
-https://movieweb.com/thriller-movies-netflix-weekend/
-
-Netflix has many entertaining thriller movies, and these are the best ones that you can watch this weekend.
----------
-
-# We're Officially 1 Year Away From A Quiet Place 3
-
-Movies, A Quiet Place Part III, A Quiet Place
-
-Thu, 30 Jul 2026 15:30:11 GMT
-
-https://screenrant.com/quiet-place-3-return-one-year-franchise/
-
-Mark your calendar now, as we're one year away from the return of the A Quiet Place franchise, which has grossed $900 million thus far.
----------
-
-# A24's New Anti-Terminator Thriller Brings Back The Original Terminator Hero
-
-Movies, Masked Recs
-
-Thu, 30 Jul 2026 15:30:11 GMT
-
-https://screenrant.com/onslaught-movie-michael-biehn-terminator/
-
-A24 has a science fiction action thriller coming to theaters soon, and it's bringing back a Terminator actor for a Terminator-like story.
----------
-
-# Tom Holland Addresses Spider-Man's Symbiote Rumors In Avengers: Secret Wars
-
-Movies, Avengers: Secret Wars
-
-Thu, 30 Jul 2026 15:28:39 GMT
-
-https://screenrant.com/avengers-secret-wars-spider-man-symbiote-tom-holland-response/
-
-Tom Holland finally opens up about the major Avengers: Secret Wars rumors surrounding his Spider-Man, and whether or not he'll wear the Symbiote suit.
----------
-
-# Civilization Meets Pirates Of The Caribbean In New Pirate RPG You Can Play Free Now
-
-Gaming, Civilization, Pirates of the Caribbean, RPG, PC, Steam
-
-Thu, 30 Jul 2026 15:21:17 GMT
-
-https://screenrant.com/corsair-cove-free-download-pirates-of-the-caribbean-inspired/
-
-Fans of Pirates of the Caribbean may want to check out this brand-new RPG that blends elements of Civilization with a swashbuckling adventure.
----------
-
-# The Rings Of Power Begins A New Era In 4 Months
-
-Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, The Lord of the Rings: The Rings of Power - Season 3
-
-Thu, 30 Jul 2026 15:15:12 GMT
-
-https://screenrant.com/rings-of-power-season-3-new-era-time-jump/
-
-In November 2026, Rings of Power will enter its third season, and after four years, this is when the true heat of the story begins.
----------
-
-# What's Leaving Netflix In August 2026: All TV Shows & Movies
-
-Streaming TV, Netflix
-
-Thu, 30 Jul 2026 15:13:25 GMT
-
-https://screenrant.com/everything-leaving-netflix-august-2026/
-
-The complete list of TV shows and movies set to leave Netflix in August 2026, including popular titles like 27 Dresses, American Gangster, and more.
----------
-
-# Mike Flanagan’s Carrie First Reactions Are Officially In
-
-TV, Carrie, Horror, Mike Flanagan, Stephen King
-
-Thu, 30 Jul 2026 15:08:39 GMT
-
-https://screenrant.com/carrie-show-mike-flanagan-first-reactions/
-
-The first reactions are officially in for Mike Flanagan's Carrie and the verdict is looking great for the upcoming Stephen King adaptation.
----------
-
-# The Samurai And The Prisoner Review: Period Mystery Is Intriguing, Thoughtful & Cold
-
-New Movies, The Samurai and the Prisoner
-
-Thu, 30 Jul 2026 15:08:37 GMT
-
-https://screenrant.com/the-samurai-and-the-prisoner-movie-review/
-
-Kiyoshi Kurasawa’s new samurai mystery is handsomely mounted and intellectually compelling, though not as emotionally involving as it could’ve been.
----------
-
-# Forza Horizon 6: Italian Exotics - Hokubu Region Treasure Hunt Location
-
-Gaming, Forza Horizon 6
-
-Thu, 30 Jul 2026 15:03:17 GMT
-
-https://screenrant.com/forza-horizon-6-italian-exotics-hokubu-region-treasure-hunt-location/
-
-Here's where to find the treasure chest for the Italian Exotics' Hokubu Region challenge.
----------
-
-# Netflix's 4-Hour High Fantasy Series Started The Downfall Of A Franchise
-
-Classic TV, Masked Recs
-
-Thu, 30 Jul 2026 15:00:11 GMT
-
-https://screenrant.com/the-witcher-blood-origin-fantasy-series-netflix-franchise-downfall/
-
-There is a four-hour limited series on Netflix that signaled the beginning of the end for one of the streamer's premiere fantasy franchises.
----------
-
-# Netflix Lands TV's Biggest Horror Franchise in $500M Deal
-
-TV, The Walking Dead, Netflix, Horror
-
-Thu, 30 Jul 2026 15:24:00 GMT
-
-https://www.cbr.com/the-walking-dead-streaming-netflix-amc-2027-500-million-deal/
-
-The Walking Dead is shambling onto Netflix.
----------
-
-# Transformers Officially Turns Megatron Into the Most Decepticon Toy of All Time
-
-Anime, Transformers, merchandise, toys, action figures, hasbro
-
-Thu, 30 Jul 2026 15:23:24 GMT
-
-https://www.cbr.com/transformers-hasbro-megatron-icons-release/
-
-A truly 'iconic' version of Megatron has been revealed by Hasbro, along with two new Transformers action figures to usher in the Age of the Primes.
----------
-
-# Super Troopers 3 Cast Can't Stay Serious | SDCC 2026
-
-Movies, Super Troopers 3
-
-Thu, 30 Jul 2026 15:20:55 GMT
-
-https://www.cbr.com/video/super-troopers-3-cast-can-t-stay-serious-sdcc-2026/
-
-Super Troopers 3 is bringing Broken Lizard back with another outrageous comedy, and the cast shares plenty of hilarious behind-the-scenes stories from SDCC 2026.
----------
-
-# Amazon Is Rewriting Peter Jackson's Lord of the Rings Trilogy in Rings of Power Season 3
-
-TV, The Lord of the Rings, The Lord of the Rings: The Rings of Power, Prime Video
-
-Thu, 30 Jul 2026 15:15:15 GMT
-
-https://www.cbr.com/rings-of-power-adapt-peter-jackson-one-ring-scene/
-
-Starting with its upcoming third season, The Rings of Power faces the difficult task of directly competing with The Lord of the Rings film trilogy.
----------
-
-# 10 Short Anime That Tell a Complete Story in 12 Episodes
-
-Anime, Erased, Yuri!!! On Ice: The Complete Series, Zom 100: Bucket List of the Dead
-
-Thu, 30 Jul 2026 15:15:15 GMT
-
-https://www.cbr.com/short-anime-complete-stories-12-episodes/
-
-These masterpiece anime told complete, compelling stories in only twelve episodes.
----------
-
-# Dark Souls Meets Jurassic Park in New Action RPG Available Now
-
-Games, Steam
-
-Thu, 30 Jul 2026 15:05:15 GMT
-
-https://www.cbr.com/dark-souls-meets-jurassic-park-new-action-rpg-dinoblade/
-
-One of the most unexpected video games of all time is taking over Steam, and it might just be exactly what Dark Souls fans didn't know they needed.
----------
-
-# It's Officially Time for Luffy To Say Goodbye to Gear 5
-
-Anime, One Piece
-
-Thu, 30 Jul 2026 15:00:16 GMT
-
-https://www.cbr.com/luffy-gear-6-upgrade-imu-battle/
-
-Gear 5 has proven useless against Imu, suggesting that Luffy might soon get an upgrade in One Piece
----------
-
-# 5 Spy Movie Heroes More Capable Than James Bond
-
-Movies, James Bond
-
-Thu, 30 Jul 2026 14:30:15 GMT
-
-https://www.cbr.com/spies-better-than-james-bond-list/
-
-James Bond is cinema's most famous spy, but when it comes to who is more capable, there are others who surpass him.
----------
-
-# 5 The CW Shows You Completely Forgot Existed
-
-TV, The CW, Reign, Hellcats, Life Unexpected
-
-Thu, 30 Jul 2026 14:30:15 GMT
-
-https://www.cbr.com/forgotten-the-cw-shows-list/
-
-While shows like Gilmore Girls and Smallville dominated The CW, other shows fell off everyone's radar.
----------
-
-# 10 Strongest Characters in Anime History, Officially Ranked
-
-Anime, Dragon Ball, Jujutsu Kaisen, Naruto
-
-Thu, 30 Jul 2026 14:15:15 GMT
-
-https://www.cbr.com/official-strongest-characters-in-anime-history-ranked/
-
-Among all the powerful characters to grace the history of anime, the likes of Son Goku and Madoka Kaname stand out among the strongest of them all.
----------
-
-# 'Ted Lasso' Season 4 Needs To Answer These 6 Questions (or Else)
-
-TV, Ted Lasso, Apple TV, Jason Sudeikis, Comedy
-
-Thu, 30 Jul 2026 15:36:15 GMT
-
-https://collider.com/ted-lasso-season-4-questions-need-answers/
-
-Ted Lasso Season 4 is almost here, and before the Apple TV sports comedy series returns, there are some pressing issues that need to be addressed.
 ---------
