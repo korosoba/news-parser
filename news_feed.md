@@ -1,3 +1,300 @@
+# 10 Most Powerful Characters In James Gunn's DCU So Far
+
+Movies, DC Universe
+
+Sat, 01 Aug 2026 20:03:11 GMT
+
+https://screenrant.com/most-powerful-james-gunn-dcu-characters-ranked/
+
+James Gunn's DCU is in full swing. From Supergirl to Superman to Mister Terrific, this universe is already populated with powerful characters.
+---------
+
+# Nicolas Cage's 27-Year-Old Detective Thriller Makes Se7en and Mindhunter Look Tame
+
+Movies, Masked Recs
+
+Sat, 01 Aug 2026 20:01:11 GMT
+
+https://screenrant.com/nicolas-cage-8mm-detective-thriller-movie-se7en-mindhunter-tame/
+
+Nicolas Cage's gritty, brutal serial killer thriller is rarely named as a detective drama masterpiece, despite being penned by Se7en's screenwriter.
+---------
+
+# One Piece Just Debuted 19 New Contenders For Strongest Anime Sword
+
+Anime, One Piece
+
+Sat, 01 Aug 2026 20:00:11 GMT
+
+https://screenrant.com/one-piece-new-strongest-anime-sword/
+
+The most powerful foes Luffy and his crew have faced yet in One Piece have unleashed weapons that once destroyed the strongest pirate in history.
+---------
+
+# Square Enix Fans Split Over Our Next Final Fantasy Remake
+
+Gaming, Final Fantasy, Triple-A Games
+
+Sat, 01 Aug 2026 20:00:11 GMT
+
+https://screenrant.com/final-fantasy-next-remake-square-enix-fans-hope/
+
+The massive RPG publisher has tipped its hat to what remakes could be next, but fans are split over what the company will do.
+---------
+
+# 5 Biggest MCU Moments That Set Up Avengers: Doomsday
+
+New Movies, Avengers: Doomsday
+
+Sat, 01 Aug 2026 19:55:11 GMT
+
+https://screenrant.com/mcu-moments-set-up-avengers-doomsday/
+
+Avengers: Doomsday is coming, and while many people seem to think it has no setup, there are several MCU moments that led to this big movie.
+---------
+
+# House Of The Dragon Makes Way For Prime Video's Returning Fantasy Series
+
+Streaming TV, Masked Recs
+
+Sat, 01 Aug 2026 19:45:11 GMT
+
+https://screenrant.com/house-of-the-dragon-replaced-rings-of-power-season-3/
+
+After House of the Dragon season 3 ends, the next big fantasy event on TV will be The Lord of the Rings: The Rings of Power's own third season.
+---------
+
+# Taylor Sheridan’s Lioness Season 3 Confirms Quiet Return Of Major Character
+
+TV, Lioness, Lioness - Season 3, Taylor Sheridan
+
+Sat, 01 Aug 2026 19:31:12 GMT
+
+https://screenrant.com/lioness-season-3-taylor-sheridan-acting-role-confirmed/
+
+In Taylor Sheridan's Lioness season 3, Zoe Saldaña, Nicole Kidman, and Morgan Freeman will be joined by an actor quietly reprising a key role.
+---------
+
+# Hulu’s 8-Time Emmy-Winning Sports Series Is About To Get Even Better
+
+TV, Masked Recs
+
+Sat, 01 Aug 2026 19:30:11 GMT
+
+https://screenrant.com/welcome-to-wrexham-season-6-premier-league-challenge/
+
+Hulu plays host to one of the most celebrated and acclaimed sports series in TV history, about a real-life underdog that might be about to win big.
+---------
+
+# 6 PS3 Masterpieces That Nobody Remembers (And How To Play Them Now)
+
+Gaming, PlayStation 3, PlayStation
+
+Sat, 01 Aug 2026 19:30:11 GMT
+
+https://screenrant.com/6-ps3-masterpieces-nobody-remembers/
+
+These legendarily good PlayStation 3 games have been forgotten by the masses, and it is time they finally get the appreciation they deserve.
+---------
+
+# Matt Reeves' Batman Series Sets Up Bruce Wayne's First Robin
+
+Streaming TV, Masked Recs
+
+Sat, 01 Aug 2026 19:21:34 GMT
+
+https://screenrant.com/batman-caped-crusader-season-2-carrie-kelley-robin/
+
+Matt Reeves' returning Batman series sets up the debut of its first Robin, and it will be one of the most iconic bearers of the DC mantle.
+---------
+
+# Naruto Officially Turns Sasuke and Kakashi Into Rubber Ducks
+
+Anime, Naruto, merchandise
+
+Sat, 01 Aug 2026 20:00:14 GMT
+
+https://www.cbr.com/naruto-shippuden-sasuke-kakashi-rubber-duck-tubbz/
+
+Kakashi and Sasuke have just revealed a brand-new ability that they never had in the Naruto anime or manga: Rubber Duck Jutsu.
+---------
+
+# 5 Adventure Movie Sequel Gems That Are Must-Watch
+
+Movies, Adventure, Indiana Jones
+
+Sat, 01 Aug 2026 20:00:14 GMT
+
+https://www.cbr.com/must-watch-adventure-movie-sequels-list/
+
+The adventure genre doesn't land sequels nearly as often as it should, but when it does it makes for some of the best gems in cinema.
+---------
+
+# 5 10/10 2020s Anime Series That Prove Solo Leveling Is Mid
+
+Anime, Solo Leveling, Chainsaw Man, Dandadan
+
+Sat, 01 Aug 2026 19:15:15 GMT
+
+https://www.cbr.com/2020s-anime-series-prove-solo-leveling-is-mid/
+
+Solo Leveling might not be the worst anime, but it's far from being the best series of the 2020s.
+---------
+
+# Game of Thrones Prequel Unveils First Look at Ned Stark, Robert Baratheon & More
+
+TV, Game Of Thrones
+
+Sat, 01 Aug 2026 19:04:27 GMT
+
+https://www.cbr.com/game-of-thrones-the-mad-king-first-look-character-portrait/
+
+The upcoming prequel story introduces familiar Game of Thrones characters, including several Starks and Targaryens.
+---------
+
+# Prime Video’s New 104-Minute Jaws Replacement Is Officially a Streaming Hit After Just 1 Day
+
+Movies, The Devil's Mouth, Prime Video, Horror
+
+Sat, 01 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/the-devils-mouth-shark-horror-prime-video-success-august-2026/
+
+This creature feature proves gateway horror is alive and well.
+---------
+
+# Raiders of the Lost Ark Has the Best Indiana Jones Quote
+
+Movies, Raiders of the Lost Ark, Indiana Jones, Adventure
+
+Sat, 01 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/indiana-jones-raiders-of-the-lost-ark-line-greatest-adventure-quote/
+
+Indiana Jones’ best Raiders of the Lost Ark line perfectly sums up his character, going on to inspire a new generation of nontraditional heroes.
+---------
+
+# Netflix's New Quentin Tarantino Movie Officially Scores Rare IMAX Release
+
+Movie News, The Adventures of Cliff Booth, Once Upon a Time in Hollywood, Quentin Tarantino, Netflix
+
+Sat, 01 Aug 2026 20:00:14 GMT
+
+https://collider.com/quentin-tarantino-the-adventures-of-cliff-booth-imax-release-date-details/
+
+The Adventures of Cliff Booth, Quentin Tarantino's first movie since 2019, is officially coming to IMAX in less than four months.
+---------
+
+# All 9 Live-Action Spider-Man Movies, Ranked
+
+Movie, Spider-Man: Brand New Day, Spider-Man, Spider-Man 2, Spider-Man: No Way Home
+
+Sat, 01 Aug 2026 19:49:15 GMT
+
+https://collider.com/spider-man-movies-live-action-ranked/
+
+There are nine live-action Spider-Man movies, including three starring Tobey Maguire and four with Tom Holland at the center... but which is the best?
+---------
+
+# 10 Forgotten Epic Movies That Are Perfect From Start to Finish
+
+Movie, War and Peace, The Leopard, The Emigrants, The Last of the Mohicans
+
+Sat, 01 Aug 2026 19:36:14 GMT
+
+https://collider.com/forgotten-epic-movies-perfect-start-to-finish/
+
+From '90s gems like The Last of the Mohicans to silent-era masterpieces like Die Nibelungen, these forgotten epics are astonishing cinematic triumphs.
+---------
+
+# 9 Forgotten Netflix Action Movies That Are Flawless From Start to Finish
+
+Movie, Netflix, Action, The Gray Man, Enola Holmes
+
+Sat, 01 Aug 2026 19:17:14 GMT
+
+https://collider.com/forgotten-netflix-action-movies-flawless-start-to-finish/
+
+From the Ryan Gosling film The Gray Man to the underrated sequel Enola Holmes 2, these forgotten Netflix action movies are practically flawless.
+---------
+
+# Chris Pratt's 157-Minute War Masterpiece Is Coming to Netflix 13 Years Later
+
+Movie News, Zero Dark Thirty, Kathryn Bigelow, Netflix, Chris Pratt
+
+Sat, 01 Aug 2026 19:00:15 GMT
+
+https://collider.com/chris-pratt-war-movie-zero-dark-thirty-coming-to-netflix-august-2026/
+
+The epic political thriller Zero Dark Thirty, starring Chris Pratt and directed by Kathryn Bigelow, is coming to Netflix. Find out when.
+---------
+
+# Every Major Returning MCU Character in 'Spider-Man: Brand New Day'
+
+Movie Lists, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Sat, 01 Aug 2026 20:00:12 GMT
+
+https://movieweb.com/every-mcu-character-spider-man-brand-new-day/
+
+From The Punisher to Hulk, 'Spider-Man: Brand New Day' is packed with MCU characters beyond what trailers have shown.
+---------
+
+# Gerard Butler's 129-Minute Real-Life Action Thriller Flop Seeks Redemption on Streaming
+
+Movie News, Gerard Butler, Machine Gun Preacher, Coming/Leaving Streaming
+
+Sat, 01 Aug 2026 20:00:12 GMT
+
+https://movieweb.com/machine-gun-preacher-paramount-plus-august-2026/
+
+It's astonishing that this one failed to captivate audiences. But now's the time to remedy that.
+---------
+
+# The 'Mistborn' Movie Can Fix an Original Book Mistake Brandon Sanderson Admitted
+
+Features, Mistborn, Apple TV, Brandon Sanderson, Fantasy
+
+Sat, 01 Aug 2026 19:30:12 GMT
+
+https://movieweb.com/mistborn-fix-female-characters-mistake/
+
+Brandon Sanderson has admitted he made a mistake when writing the original 'Mistborn' trilogy. Now he has a chance to correct it.
+---------
+
+# In 3 Days, Armie Hammer's "Banned" Action Thriller Gets Exciting Brand-New Limited Release
+
+Movie News, Citizen Vigilante
+
+Sat, 01 Aug 2026 19:22:57 GMT
+
+https://movieweb.com/citizen-vigilante-armie-hammer-blu-ray-limited/
+
+Armie Hammer's 'Citizen Vigilante' will get a limited Blu-ray release next week.
+---------
+
+# 'Spider-Man: Brand New Day's 20 Biggest Marvel Cinematic Universe References & Easter Eggs
+
+Movie Lists, Spider-Man: Brand New Day, MCU's Movie Order (2008 - 2019) - The Infinity Saga (Iron Man - Spider-Man: Far from Home)
+
+Sat, 01 Aug 2026 19:00:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-easter-eggs/
+
+The latest MCU film from Tom Holland features references to Spider-Man video games, comics, and a popular FX series.
+---------
+
+# Parks and Recreation: The Funniest Episodes, Ranked
+
+TV Lists, Parks and Recreation
+
+Sat, 01 Aug 2026 19:00:12 GMT
+
+https://movieweb.com/parks-and-recreation-funniest-episodes-ranked/
+
+Parks and Recreation aired for seven seasons and had more than 120 episodes. Here's a list of the funniest episodes, ranked.
+---------
+
 # Jon Bernthal Teases The Punisher’s MCU Future After Spider-Man: Brand New Day
 
 Movies, The Punisher, Spider-Man: Brand New Day, Marvel Cinematic Universe
@@ -5199,301 +5496,4 @@ Fri, 31 Jul 2026 11:00:11 GMT
 https://screenrant.com/pokemon-alternate-forms-new-look-logos/
 
 Nintendo celebrates 30 years of Pokémon with official alternate logos for iconic Pokémon, including Bulbasaur, Squirtle, and Charmander.
----------
-
-# A 1999 PS1 Classic Is Finally Being Revived For Modern Consoles
-
-Gaming, PlayStation (Original), PlayStation, Nintendo Switch
-
-Fri, 31 Jul 2026 10:51:04 GMT
-
-https://screenrant.com/croc-2-1999-playstation-remaster-confirmed/
-
-This PlayStation 1 classic is being freed from its shackles and finally brought over to modern consoles, giving fans new ways of playing it in 2026.
----------
-
-# Star Wars Announces Major Crossover With Award-Winning Fantasy Franchise
-
-Gaming, Star Wars, Dungeons & Dragons
-
-Fri, 31 Jul 2026 10:30:11 GMT
-
-https://screenrant.com/star-wars-dungeons-dragons-crossover-announced/
-
-Dungeons & Dragons and Star Wars are set to collaborate in a new tabletop RPG experience coming in 2027.
----------
-
-# Hayley Atwell's 2-Part Fantasy Epic Is One Of Netflix's Most Underrated Shows
-
-Streaming TV, Masked Recs
-
-Fri, 31 Jul 2026 10:30:11 GMT
-
-https://screenrant.com/hayley-atwell-tomb-raider-underrated-netflix-show/
-
-One of the most underrated Netflix shows is a pitch-perfect fantasy adventure that brings a gaming icon to life successfully for the first time.
----------
-
-# Shadow Of The Colossus Officially Returns This Year
-
-Gaming, Shadow of the Colossus
-
-Fri, 31 Jul 2026 10:17:25 GMT
-
-https://screenrant.com/shadow-of-the-colossus-vinyl-release-date/
-
-The legendary cult classic Shadow of the Colossus is finally back in 2026 with a brand-new collector's release fans will want to check out.
----------
-
-# Metal Gear Solid: The Snakes Saga Officially Unveiled In New Trailer
-
-Gaming, Metal Gear Solid, Metal Gear Solid: Master Collection Vol. 1, Metal Gear Solid: Master Collection Vol. 2
-
-Fri, 31 Jul 2026 10:00:11 GMT
-
-https://screenrant.com/metal-gear-solid-snakes-saga-remastered-collection-trailer/
-
-The Metal Gear Solid franchise might not be getting any new games in the series, but it is about to return with a fresh release regardless.
----------
-
-# Big Brother 28: Week 4 Head of Household (HOH) Results (SPOILERS)
-
-Reality TV, Big Brother
-
-Fri, 31 Jul 2026 10:00:11 GMT
-
-https://screenrant.com/big-brother-28-week-4-head-of-household-spoilers/
-
-After Jason's unanimous eviction, [Name] won the Big Brother 28 Week 4 Head of Household competition, shifting the power dynamics in the house.
----------
-
-# For All Mankind Season 6 Must Finally Answer the Series' Biggest Question
-
-TV, For All Mankind, Apple TV
-
-Fri, 31 Jul 2026 11:31:15 GMT
-
-https://www.cbr.com/apple-tv-for-all-mankind-season-6-must-answer-biggest-space-race-question/
-
-One of the Apple TV's flagship shows, For All Mankind, will conclude with its next season, leaving one last chance to answer a massive question.
----------
-
-# The 20 Most Confusing Far Side Comic Strips Ever
-
-Comics, The Far Side
-
-Fri, 31 Jul 2026 11:00:15 GMT
-
-https://www.cbr.com/the-far-sides-comic-strips-that-barely-make-any-sense/
-
-Gary Larson often uses The Far Side comic to subtly comment on society and explore the absurd, but even these strips were too confusing for fans.
----------
-
-# Young Sherlock Revives the Smartest Detective TV Strategy for Amazon
-
-TV, Young Sherlock, Sherlock Holmes, Prime Video
-
-Fri, 31 Jul 2026 10:00:14 GMT
-
-https://www.cbr.com/young-sherlock-revives-new-cast-tv-strategy/
-
-Young Sherlock diverged from usual detective TV methods, but its Season 2 cast shakeup confirms it's reinstating this winning strategy.
----------
-
-# Kenneth Branagh's Agatha Christie Franchise Has the Perfect Sequel Lined Up
-
-Movies, Mystery, A Haunting in Venice, Agatha Christie's Seven Dials
-
-Fri, 31 Jul 2026 10:00:14 GMT
-
-https://www.cbr.com/kenneth-branagh-agatha-christie-cards-on-the-table-perfect-sequel/
-
-Kenneth Branagh's Poirot franchise should bring this Agatha Christie novel to the screen next.
----------
-
-# 6 Best Action Movies Released Since 2000,
-
-Movie, Action, Ridley Scott, Quentin Tarantino, Kill Bill: Vol. 1
-
-Fri, 31 Jul 2026 11:45:14 GMT
-
-https://collider.com/best-action-movies-since-2000-ranked/
-
-Mission: Impossible - Fallout, Man on Fire, and Casino Royale are among the best action movies released since the year 2000.
----------
-
-# 10 Bleakest Movies of the 1970s
-
-Movie, Chinatown, The Conversation, The Texas Chain Saw Massacre, Deliverance
-
-Fri, 31 Jul 2026 11:36:16 GMT
-
-https://collider.com/bleakest-movies-70s-ranked/
-
-From The Panic in Needle Park to The Texas Chain Saw Massacre, these are the most relentlessly grim and pessimistic movie masterpieces of the 1970s.
----------
-
-# The Best Crime Franchise on TV Is Officially Coming to Netflix for the First Time
-
-TV News, Power, Netflix, Lionsgate Entertainment, Crime
-
-Fri, 31 Jul 2026 11:31:15 GMT
-
-https://collider.com/power-starz-franchise-streaming-netflix-november-2026/
-
-Starz's hit crime franchise is expanding its streaming footprint this fall. Get all the details about its Netflix deal.
----------
-
-# 10 Perfect Fantasy Shows With 20 Episodes or Less
-
-TV, Fantasy, Percy Jackson & the Olympians, Arcane, A Knight Of The Seven Kingdoms
-
-Fri, 31 Jul 2026 11:22:15 GMT
-
-https://collider.com/perfect-fantasy-shows-shorter-than-20-episodes/
-
-These are the best fantasy shows with fewer than 20 episodes, offering captivating stories and iconic characters, from Shadow and Bone to Arcane.
----------
-
-# All 7 Tom Holland MCU Movies, Ranked
-
-Movie, Tom Holland, MCU, Spider-Man: Brand New Day, Spider-Man
-
-Fri, 31 Jul 2026 11:21:15 GMT
-
-https://collider.com/tom-holland-movies-mcu-ranked/
-
-From Captain America: Civil War to Spider-Man: Brand New Day, Tom Holland has appeared in seven MCU movies, and we determine which film is his best.
----------
-
-# Apple TV’s ‘Neuromancer’ Has To Preserve This Part of What Made the Novel Matter
-
-TV Features, Neuromancer, Apple TV, William Gibson, Callum Turner
-
-Fri, 31 Jul 2026 11:19:15 GMT
-
-https://collider.com/apple-tv-neuromancer-preserve-what-made-novel-matter-dystopia-corporations-ai/
-
-Apple TV's Neuromancer trailer looks fun and action-packed, but the show also needs the bleak dystopian themes of the book.
----------
-
-# 8 Most Exciting Movies Based on Great Books
-
-Movie, No Country for Old Men, Misery, Goodfellas, The Lord of the Rings
-
-Fri, 31 Jul 2026 11:08:15 GMT
-
-https://collider.com/exciting-movies-based-on-great-books-ranked/
-
-Exciting movies that were based on great books include masterpieces like L.A. Confidential, The Lord of the Rings, and No Country for Old Men.
----------
-
-# Will Smith’s Sci-Fi Western Misfire Is Making a Streaming Comeback on Paramount+
-
-Movie News, Will Smith, Western, Paramount Plus, Wild Wild West
-
-Fri, 31 Jul 2026 11:01:15 GMT
-
-https://collider.com/will-smith-wild-wild-west-streaming-paramount-plus-august-2026/
-
-Will Smith and Kevin Kline teamed up against a giant robot spider in this much-maligned sci-fi-Western heading to streaming.
----------
-
-# 7 Thriller Shows Without a Single Flaw
-
-TV, Thriller, Severance, The Leftovers, Paradise
-
-Fri, 31 Jul 2026 10:47:15 GMT
-
-https://collider.com/thriller-shows-without-flaws/
-
-There are precious few thriller shows that we can confidently say have absolutely no flaws, like Hulu's Paradise and Netflix's Midnight Mass.
----------
-
-# 10 Most Subversive Musical Movies of All Time
-
-Movie, Musical, The Rocky Horror Picture Show, Repo! The Genetic Opera, Hedwig and the Angry Inch
-
-Fri, 31 Jul 2026 10:39:16 GMT
-
-https://collider.com/most-subversive-musical-movies-ranked/
-
-From Cabaret to The Umbrellas of Cherbourg, these movie musicals challenged genre rules and transformed song into storytelling.
----------
-
-# Long-Awaited Epic Fantasy Adaptation Finally Crosses Major Milestone
-
-Movie News, Elden Ring, Alex Garland, A24
-
-Fri, 31 Jul 2026 11:14:30 GMT
-
-https://movieweb.com/elden-ring-wraps-filming-production/
-
-Alex Garland's 'Elden Ring' movie has wrapped filming for A24, with the video game adaptation still set for a March 3, 2028 theatrical release.
----------
-
-# 'Cape Fear' Ending, Explained: What's Next for Max Cady?
-
-Features, Cape Fear
-
-Fri, 31 Jul 2026 11:00:12 GMT
-
-https://movieweb.com/cape-fear-ending-explained/
-
-'Cape Fear' is an Apple TV thriller series starring Javier Bardem, Amy Adams, and Patrick Wilson.
----------
-
-# Steam Makes 4 Hit Games Absolutely Free Until August 3
-
-Gaming, Steam
-
-Fri, 31 Jul 2026 09:33:39 GMT
-
-https://screenrant.com/steam-4-free-games-august-2026/
-
-Steam offers four hit games for free from July 28 to August 3.
----------
-
-# Halo: Campaign Evolved Free Download  Officially Available Now
-
-Gaming, Halo, Halo: Campaign Evolved
-
-Fri, 31 Jul 2026 09:25:02 GMT
-
-https://screenrant.com/halo-campaign-evolved-free-download-codes-july-2026/
-
-Halo: Campaign Evolved is officially here, and doing quite well so far, but if you are playing, there is a free download you might want to grab.
----------
-
-# Lord Of The Rings: The White Tower & Hall Of Gold Officially Announced
-
-Gaming, The Lord of the Rings, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King, The Lord of the Rings: The Fellowship of the Ring, PC
-
-Fri, 31 Jul 2026 08:00:11 GMT
-
-https://screenrant.com/lord-rings-white-tower-hall-gold-announcement-reveal/
-
-Lord of the Rings: The White Tower & Hall of Gold has officially been announced as a brand-new release taking fans to the lands of Rohan and Gondor.
----------
-
-# Guillermo Del Toro Is Officially Calling For More Games "For The Elderly"
-
-Gaming, Guillermo del Toro, Indie Games
-
-Fri, 31 Jul 2026 07:00:12 GMT
-
-https://screenrant.com/guillermo-del-toro-favorite-games-dead-cells/
-
-The visionary filmmaker has impeccable taste in video games, but he also has a specific criticism about games not catering to older folks.
----------
-
-# Sylvester Stallone’s 0% Rotten Tomatoes Action Thriller Is a Free Streaming Hit
-
-Movie News, Armor, Sylvester Stallone, Tulsa King, Alarum
-
-Fri, 31 Jul 2026 09:30:14 GMT
-
-https://collider.com/sylvester-stallone-armor-streaming-success-tubi-july-2026/
-
-Sylvester Stallone's maligned action movie with a 0% on Rotten Tomatoes has defied unthinkable odds to become a streaming success.
 ---------
