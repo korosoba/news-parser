@@ -1,3 +1,300 @@
+# 10 Movies To Watch If You Love Back To The Future
+
+Movies, Back to the Future, Pleasantville, Bill and Ted, Timecop, The Adam Project, Flight of the Navigator, The Last Starfighter, Peggy Sue Got Married, Blast from the Past, The Goonies, Time Bandits
+
+Sat, 01 Aug 2026 14:40:11 GMT
+
+https://screenrant.com/10-movies-to-watch-if-you-love-back-to-the-future/
+
+Back to the Future is a timeless 80s masterpiece. It's a tough act to follow, but fans may enjoy these movies for their similarities to the classic.
+---------
+
+# Lord Of The Rings Official Game Announcement Leaked
+
+Gaming, The Lord of the Rings, Triple-A Games
+
+Sat, 01 Aug 2026 14:35:45 GMT
+
+https://screenrant.com/lord-of-the-rings-war-in-the-north-2026-update/
+
+The Lord of the Rings is potentially back in a big way after one of the franchise's most nostalgic games gets a leaked remaster.
+---------
+
+# What's Going On With Yellowstone's 1944 Prequel?
+
+Streaming TV, Yellowstone
+
+Sat, 01 Aug 2026 14:30:11 GMT
+
+https://screenrant.com/yellowstone-prequel-1944-status-delay-in-development/
+
+Fans of Taylor Sheridan's Yellowstone universe may be surprised to learn the fate of the original show's planned prequel, 1944, at Paramount.
+---------
+
+# 10 Fantasy Movie Heroes Even More Likable Than Harry Potter, Ranked
+
+Movies, Harry Potter
+
+Sat, 01 Aug 2026 14:15:11 GMT
+
+https://screenrant.com/fantasy-movie-heroes-more-likable-harry-potter-ranked/
+
+Harry Potter is one of the most popular fictional characters, but there are plenty of fantasy heroes of all shapes and sizes that are more likable.
+---------
+
+# After 7 Years, Mahershala Ali’s Blade Only Appeared Once In 4-Part R-Rated Series Before His MCU Exit
+
+Movies, Blade, Marvel Zombies, Marvel Cinematic Universe
+
+Sat, 01 Aug 2026 14:12:55 GMT
+
+https://screenrant.com/mahershala-ali-blade-mcu-exit-marvel-zombies-appearance/
+
+Mahershala Ali's Blade movie is dead as he officially leaves the MCU, and the character only appeared onscreen once in Marvel's R-rated series.
+---------
+
+# Storage Wars: What Happened To Jarrod Schulz & Brandi Passante's Relationship
+
+Reality TV, Storage Wars
+
+Sat, 01 Aug 2026 14:00:13 GMT
+
+https://screenrant.com/storage-wars-jarrod-schulz-brandi-passante-relationship-divorce/
+
+Storage Wars Brandi Passante and Jarrod Schulz called it quits, despite having a business and children together. How did it all go down?
+---------
+
+# 7 Classic Snoopy Peanuts Strips That Are Still 10/10 Perfect
+
+Comics, Peanuts
+
+Sat, 01 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/perfect-classic-snoopy-peanuts-strips/
+
+The Peanuts have many classic comics that are amazing, but here are seven comic strips related to Snoopy that are genuine 10/10 masterpieces.
+---------
+
+# 10 Movie Trailers That Gave Away Huge Spoilers
+
+Movies
+
+Sat, 01 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/movie-trailers-that-gave-away-huge-spoilers/
+
+Trailers have a habit of giving away too much, because they're desperate to generate hype, but spoilers can ruin the experience of the movie itself.
+---------
+
+# It's Official, Final Fantasy 6 Returns October 2026
+
+Gaming, Final Fantasy, Final Fantasy Resonance
+
+Sat, 01 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/final-fantasy-6-resonance-official-return/
+
+Final Fantasy 6 is one of the most beloved games in the series, so it's bound to draw attention from fans any time it crops up.
+---------
+
+# Netflix Just Added One Of The Greatest Thriller Shows Ever Made
+
+Streaming TV, Masked Recs
+
+Sat, 01 Aug 2026 13:47:11 GMT
+
+https://screenrant.com/netflix-hannibal-thriller-series-watch/
+
+Netflix just added Hannibal, one of the greatest thriller shows of all time, making it one of the best series to watch on the platform right now.
+---------
+
+# 4 Apple TV Shows Better Than Severance
+
+TV, Apple TV, Severance, Foundation
+
+Sat, 01 Aug 2026 14:30:16 GMT
+
+https://www.cbr.com/apple-tv-series-better-than-severance-list/
+
+Apple TV has a few TV masterpieces, like Slow Horses and The Studio, that challenge fan-favorite Severance for the streamer's top spot.
+---------
+
+# 10 Most Epic Anime Series of the 21st Century
+
+Anime, Fullmetal Alchemist: Brotherhood, Attack On Titan, Jujutsu Kaisen, shonen anime
+
+Sat, 01 Aug 2026 14:15:15 GMT
+
+https://www.cbr.com/most-epic-anime-series-21st-century/
+
+Epic anime transcends great fight scenes and a high episode count, becoming something so much more than what it began as before all is said and done.
+---------
+
+# Spider-Man: Brand New Day is the End of an Era for Peter and MJ
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man
+
+Sat, 01 Aug 2026 14:00:15 GMT
+
+https://www.cbr.com/mcu-spider-man-end-of-mj-love-interest-era/
+
+Spider-Man: Brand New Day is finally here and it closes the door on one of the MCU's biggest chapters.
+---------
+
+# Hatsune Miku's Original Design Finally Returns Ahead of Her 20th Anniversary
+
+Anime, Hatsune Miku, merchandise, toys, Good Smile Company
+
+Sat, 01 Aug 2026 14:00:15 GMT
+
+https://www.cbr.com/hatsune-miku-first-design-model-kit/
+
+Hatsune Miku has been around for nearly 20 years, and fans can celebrate this milestone with a new model kit based on the Vocaloid's first design.
+---------
+
+# Disney Quietly Seals Alien: Romulus' Sequel Fate After Director Drops Out
+
+Movies, Alien: Romulus
+
+Sat, 01 Aug 2026 13:51:28 GMT
+
+https://www.cbr.com/alien-romulus-sequel-fate-revealed-fede-alvarez-exit/
+
+The Alien: Romulus sequel gets a surprising update revealing what's been stopping the film from moving forward.
+---------
+
+# Obsession's Breakout Star Names Her Desired X-Men Role After Marvel Talks
+
+Movies, X-Men
+
+Sat, 01 Aug 2026 13:31:15 GMT
+
+https://www.cbr.com/inde-navarrette-preferred-marvel-x-men-role/
+
+Inde Navarrette has confirmed having talks with Marvel and reveals the X-Men character she's set her sights on.
+---------
+
+# After Just 2 Seasons, HBO's 97% RT Drama Masterpiece Deserves to Be Called a Modern Classic
+
+TV, The Pitt, HBO Max
+
+Sat, 01 Aug 2026 13:31:15 GMT
+
+https://www.cbr.com/hbo-the-pitt-modern-classic-masterpiece-status/
+
+One HBO drama is a modern masterpiece that will undoubtedly go down as one of the platform's best.
+---------
+
+# Spider-Man: Brand New Day Goes Back to Basics
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Heroes Journey Podcast
+
+Sat, 01 Aug 2026 13:15:15 GMT
+
+https://www.cbr.com/video/spider-man-brand-new-day-goes-back-to-basics/
+
+Spider-Man: Brand New Day director Destin Daniel Cretton joins Sean O’Connell on Heroes Journey to reveal how Peter Parker’s new MCU chapter was built.
+---------
+
+# 5 Greatest Action Anime Series Worth Watching Again and Again
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Hunter x Hunter, Black Lagoon
+
+Sat, 01 Aug 2026 13:15:15 GMT
+
+https://www.cbr.com/best-action-anime-worth-multiple-rewatches/
+
+These action anime become even more rewarding with every rewatch, revealing new details and unforgettable moments.
+---------
+
+# Jason Statham Officially Returns With His Biggest Action Movie Yet
+
+Movie News, Jason Statham, Fast & Furious Presents: Hobbs & Shaw, Action, David Leitch
+
+Sat, 01 Aug 2026 14:29:11 GMT
+
+https://collider.com/jason-statham-stole-my-bike-filming-wrap-david-leitch/
+
+Jason Statham's new meta action comedy with John Wick co-director David Leitch has scored its biggest update yet. Read on for more.
+---------
+
+# 10 Most Perfect Movie Endings of the 1990s
+
+Movie, Ending, 1990s, The Truman Show, Pulp Fiction
+
+Sat, 01 Aug 2026 14:04:14 GMT
+
+https://collider.com/most-perfect-movie-endings-1990s-ranked/
+
+The Shawshank Redemption, The Lion King, and Pulp Fiction have some of the greatest, genuinely perfect movie endings of the 1990s.
+---------
+
+# Chris Pine’s Answer to ‘Reacher’ Surges to #1 on Paramount+
+
+Movie News, Chris Pine, The Contractor, Paramount Plus, Reacher
+
+Sat, 01 Aug 2026 14:00:15 GMT
+
+https://collider.com/chris-pine-reacher-replacement-the-contractor-streaming-success-paramount-plus-august-2026/
+
+Chris Pine’s answer to Reacher, The Contractor, is seeing a major streaming resurgence on Paramount+. Read on for more.
+---------
+
+# Anya Taylor-Joy Is the Official Queen of Streaming With 3 Concurrent Hits
+
+Movie News, Anya Taylor-Joy, The Gorge, The Super Mario Galaxy Movie, Lucky
+
+Sat, 01 Aug 2026 13:15:15 GMT
+
+https://collider.com/anya-taylor-joy-lucky-the-gorge-super-mario-galaxy-movie-streaming-success-apple-tv-august-2026/
+
+Anya Taylor-Joy is the queen of streaming, with one series and two movies currently topping overall charts. Read on for more.
+---------
+
+# Iconic Horror Series Starring Brad Pitt & Tom Hanks Is Now Streaming Free
+
+TV News, Tales From the Crypt, Coming/Leaving Streaming, Horror, Brad Pitt, Tom Hanks
+
+Sat, 01 Aug 2026 14:00:12 GMT
+
+https://movieweb.com/tales-from-the-crypt-horror-streaming-free-tubi-august-2026/
+
+The legendary horror series featuring a who's who of A-list talent is now streaming free for the first time ever.
+---------
+
+# 12 Seriously Smart Movies That Trick You With Two Mind-Blowing Twists
+
+Movie Lists, Thriller, Sci-Fi, Mystery
+
+Sat, 01 Aug 2026 14:00:12 GMT
+
+https://movieweb.com/smart-movies-two-twists/
+
+These clever films are packed with multiple shocking twists and turns that can surprise even hardened cinephiles.
+---------
+
+# Ahead of Season 4, Prime Video's Best Action Thriller Officially Becomes a Streaming Smash Hit
+
+TV News, Reacher, Hot on Streaming
+
+Sat, 01 Aug 2026 13:43:42 GMT
+
+https://movieweb.com/reacher-hit-prime-video-streaming-july-2026/
+
+Is there a better action TV series currently streaming? Didn't think so.
+---------
+
+# Michael B. Jordan's 'Thomas Crown Affair' Sparks James Bond Comparisons
+
+Movie News, The Thomas Crown Affair
+
+Sat, 01 Aug 2026 13:30:55 GMT
+
+https://movieweb.com/thomas-crown-affair-michael-b-jordan-james-bond/
+
+Michael B. Jordan channels 007 in the first trailer for his new action thriller.
+---------
+
 # Marvel's New Thor Is Officially Working For Mephisto
 
 Marvel Comics, Thor
@@ -5199,301 +5496,4 @@ Thu, 30 Jul 2026 22:00:14 GMT
 https://www.cbr.com/mcu-phase-6-breaks-marvel-formula/
 
 Marvel Studios has announced new movies for the MCU's future, and their expected release dates confirm important lessons have been learned.
----------
-
-# After 1 Week, Big Bang Theory’s New Sci-Fi Spinoff Is 1 of the Most Streamed Shows in the World
-
-TV, Stuart Fails to Save the Universe, HBO Max, The Big Bang Theory
-
-Thu, 30 Jul 2026 21:45:21 GMT
-
-https://www.cbr.com/stuart-fails-to-save-the-universe-sci-fi-success-hbo-max-july-2026/
-
-Just a week after premiering, Stuart Fails to Save the Universe is topping the streaming charts across the globe.
----------
-
-# Jackie Chan Officially Returns for Sequel to His Best Action Movie of the Decade
-
-Movies, Jackie Chan, Action
-
-Thu, 30 Jul 2026 21:40:30 GMT
-
-https://www.cbr.com/jackie-chan-the-shadows-edge-2/
-
-One of the best action movies of the decade is officially getting the pulse-pounding follow-up it deserves, and Jackie Chan is returning for the ride.
----------
-
-# 7 Years Later, ‘Game of Thrones’ Officially Revives an Overlooked Character for 2026 Return
-
-Movie News, Game Of Thrones, House of the Dragon, A Knight Of The Seven Kingdoms, George R.R. Martin
-
-Thu, 30 Jul 2026 22:55:40 GMT
-
-https://collider.com/game-of-thrones-legends-new-season-jorah-mormont-return/
-
-A surprise Game of Thrones project that's out now officially resurrects Jorah Mormont, one of the most beloved Westerosi knights.
----------
-
-# Forget 'Masters of the Universe,' This James Cameron Thriller Has the Best Action on Streaming
-
-Movie Features, Alita: Battle Angel, James Cameron, Sci-Fi, Christoph Waltz
-
-Thu, 30 Jul 2026 22:34:14 GMT
-
-https://collider.com/alita-battle-angel-james-cameron-action-streaming-masters-of-universe/
-
-2019's James Cameron-produced, Robert Rodriguez-directed Alita: Battle Angel may have been overlooked in theaters, but its dynamic action holds up.
----------
-
-# Christopher Nolan Officially Beats His Own Box Office Record With ‘The Odyssey’
-
-Movie News, Oppenheimer, The Odyssey, Christopher Nolan, Box Office
-
-Thu, 30 Jul 2026 22:28:35 GMT
-
-https://collider.com/christopher-nolan-the-odyssey-overtakes-oppenheimer-box-office-727-million/
-
-Christopher Nolan's The Odyssey has overtaken his Best Picture-winning epic, Oppenheimer, in just 13 days at the domestic box office.
----------
-
-# ‘The Witcher’ Officially Brings Back Geralt for New 2026 Release
-
-Books and Comics News, The Witcher, Netflix, Henry Cavill, Liam Hemsworth
-
-Thu, 30 Jul 2026 22:16:25 GMT
-
-https://collider.com/netflix-the-witcher-the-last-wish-complete-collection-release-date-december-2026/
-
-Ahead of Season 5 of the hit Netflix fantasy series, The Witcher is officially returning in 2026 with a brand-new release.
----------
-
-# 10 Underrated Comedy Movies That Can Be Called Masterpieces
-
-Movie, Comedy, Broadcast News, Defending Your Life, What We Do in the Shadows
-
-Thu, 30 Jul 2026 22:08:14 GMT
-
-https://collider.com/underrated-comedy-movies-masterpieces/
-
-Underrated movies like The Nice Guys, What We Do in the Shadows, and Broadcast News deserve to rank among the comedy genre's finest.
----------
-
-# Taylor Sheridan Sets 2 New Movies After Leaving ‘Yellowstone’ Franchise
-
-Movie News, Taylor Sheridan, Yellowstone, Marshals, Dutton Ranch
-
-Thu, 30 Jul 2026 22:00:26 GMT
-
-https://collider.com/taylor-sheridan-movies-visalia-capture-the-flag/
-
-Yellowstone creator Taylor Sheridan returns to film writing with 2 gripping stories, Visalia and Capture the Flag, collaborating with Andrew Lauren.
----------
-
-# Apple TV’s Best Sci-Fi Masterpiece Officially Starts Filming Season 3
-
-TV News, Severance, Ben Stiller, Apple TV, Adam Scott
-
-Thu, 30 Jul 2026 21:46:56 GMT
-
-https://collider.com/apple-tv-sci-fi-severance-season-3-filming-start-ben-stiller/
-
-Apple TV's 10/10 sci-fi secret weapon has finally begun production on Season 3, as confirmed by director Ben Stiller.
----------
-
-# 10 Best Psychological Thriller Books of the 20th Century
-
-Books and Comics, Books, Psychological Thriller, The Silence of the Lambs, American Psycho
-
-Thu, 30 Jul 2026 21:45:14 GMT
-
-https://collider.com/best-psychological-thriller-books-20th-century-ranked/
-
-American Psycho, Strangers on a Train, and The Silence of the Lambs are all among the best psychological thriller books of the 20th century.
----------
-
-# Netflix Sued for $105M Over Stolen Unreleased Nicolas Cage World War II Thriller
-
-Movie News, Nicolas Cage, Netflix
-
-Thu, 30 Jul 2026 22:28:52 GMT
-
-https://movieweb.com/netflix-sued-stolen-nicolas-cage-thriller/
-
-Netflix is facing a $105 million lawsuit after the alleged theft of an unreleased Nicolas Cage thriller from its Los Angeles office.
----------
-
-# Johnny Depp's Action-Adventure Classic Dethroned by New Fantasy Epic in Just 10 Days
-
-Movie News, The Odyssey, Pirates of the Caribbean: The Curse of the Black Pearl
-
-Thu, 30 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/the-odyssey-beats-pirates-of-the-caribbean-box-office/
-
-Star power is still a huge draw at the box office.
----------
-
-# Harlan Coben's 8-Part Netflix Thriller Is Still a Perfect Weekend Binge
-
-Features, Stay Close, Harlan Coben, Netflix
-
-Thu, 30 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/stay-close-netflix-thriller-binge/
-
-Harlan Coben's thriller novels have been adapted into many Netflix thrillers, and there is one TV series that is a great weekend binge.
----------
-
-# JRR Tolkien Expert Unpacks What Went Into Making The Lord of the Rings' Most Outrageous Characters
-
-Movies, The Lord of the Rings, The Lord of the Rings: The Rings of Power, The Hobbit
-
-Thu, 30 Jul 2026 21:39:00 GMT
-
-https://screenrant.com/jrr-tolkien-expert-explains-making-the-lord-of-the-rings-gollum-tom-bombadil/
-
-Exclusive: J. R. R. Tolkien had a unique approach to creating the characters in his books, as is revealed in his wider writings on Middle-earth.
----------
-
-# 5 Xbox Series X/S Games You Can Play Completely Free Without Game Pass
-
-Gaming, Xbox Series X/S
-
-Thu, 30 Jul 2026 21:30:11 GMT
-
-https://screenrant.com/xbox-series-x-s-free-games-no-game-pass-needed/
-
-From Zenless Zone Zero to Palia, discover five unique free Xbox Series X|S games you can play without Game Pass.
----------
-
-# 8 Things That Happen After The Expanse (According To Its Sequel)
-
-Streaming TV, The Expanse
-
-Thu, 30 Jul 2026 21:30:11 GMT
-
-https://screenrant.com/the-expanse-dragon-tooth-sequel-biggest-reveals/
-
-The Expanse left a 30-year gap in its story, but the official sequel to the hit sci-fi show fills in the missing pieces of the novel's time skip.
----------
-
-# $55 Billion EA Deal Clears Final Hurdle, Expected To Close Next Week
-
-Gaming, EA, Triple-A Games
-
-Thu, 30 Jul 2026 21:26:55 GMT
-
-https://screenrant.com/ea-buyout-deal-closes-electronic-arts/
-
-Electronic Arts' long-scheduled buyout by the Saudi Arabian Public Investment Fund and affiliated partners is finally happening next week.
----------
-
-# Spider-Man Brand New Day Ending Explained: Do MJ & Ned Remember Peter Parker?
-
-Movies, Spider-Man: Brand New Day
-
-Thu, 30 Jul 2026 21:20:11 GMT
-
-https://screenrant.com/spider-man-brand-new-day-ending-explained/
-
-Spider-Man: Brand New Day sees Peter Parker trying to balance his heroic duties with his longing to be reunited with his best friends MJ and Ned.
----------
-
-# Ryan Gosling Suits Up As Ghost Rider In New Marvel Art Ahead Of Avengers: Doomsday
-
-Movies, Ghost Rider
-
-Thu, 30 Jul 2026 21:03:19 GMT
-
-https://screenrant.com/ryan-gosling-ghost-rider-mcu-movie-art-avengers-doomsday/
-
-Ryan Gosling suits up as the new Ghost Rider with a burning skull in exciting new Marvel Cinematic Universe art ahead of Avengers: Doomsday.
----------
-
-# Married At First Sight Season 1: Who Is Still Together (And Who's Not)
-
-Reality TV, Married At First Sight
-
-Thu, 30 Jul 2026 21:00:13 GMT
-
-https://screenrant.com/married-at-first-sight-season-1-who-is-still-together-and-whos-not/
-
-Married at First Sight viewers may want an update on how the show's inaugural pairs are doing these days, and whether they're still together at all.
----------
-
-# 60 Years Later, Adam West’s Batman: The Movie Still Defines Comic Book Fun
-
-Classic Movies, Batman: The Movie
-
-Thu, 30 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/batman-movie-adam-west-60-year-anniversary/
-
-It has been 60 years since Adam West brought his Batman character to a movie, and here is what that film did for the comic book movie genre.
----------
-
-# Stardew Valley Meets Slice Of Life Anime In New Farming RPG You Can Try Free Now
-
-Gaming, Stardew Valley, Steam
-
-Thu, 30 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/stardew-valley-farming-camp-new-game-try-free/
-
-Experience a fresh take on the farming sim genre with this adventure where you compete to become the best farmer in the Evertree Farming Camp.
----------
-
-# The Walking Dead Replaces Hilltop For The 2nd Time In 3 Years
-
-Streaming TV, Masked Recs
-
-Thu, 30 Jul 2026 21:00:11 GMT
-
-https://screenrant.com/the-walking-dead-replace-hilltop-hospital-maggie/
-
-The Walking Dead replaced Hilltop three years ago, but now the replacement has also been replaced thanks to Maggie's Dead City season 3 storyline.
----------
-
-# Every Rumor and Leak About Pokémon Winds and Waves So Far
-
-Games, Pokemon, Video Games
-
-Thu, 30 Jul 2026 21:15:15 GMT
-
-https://www.cbr.com/every-rumor-leak-pokemon-winds-waves-so-far/
-
-Pokémon Winds & Waves have been the source of many leaks and rumors, even before they were first announced, with many details making their way online.
----------
-
-# Wonder Man Showrunner Responds After Marvel Cancels Series Following Season 2 Renewal
-
-TV, Wonder Man
-
-Thu, 30 Jul 2026 21:15:08 GMT
-
-https://www.cbr.com/wonder-man-showrunner-reacts-disney-plus-fate/
-
-Wonder Man's showrunner reacts to Disney+ reversing course on the future of the MCU series.
----------
-
-# 5 Greatest Space Opera Movies Of All Time, Ranked
-
-Movies, Sci-Fi
-
-Thu, 30 Jul 2026 21:01:15 GMT
-
-https://www.cbr.com/best-space-opera-movies-of-all-time-list/
-
-Space opera films have become a major part of sci-fi history, giving fans stories that combine futuristic ideas with relatable human struggles.
----------
-
-# Lord of the Rings: The White Tower and the Hall of Gold Officially Announced for September 2026
-
-Games, The Lord of the Rings, Tabletop, The Lord of the Rings: The Rings of Power
-
-Thu, 30 Jul 2026 20:58:15 GMT
-
-https://www.cbr.com/lotr-official-new-release-white-tower-hall-of-gold-september-2026/
-
-Free League has announced The White Tower and the Hall of Gold, a new Lord of the Rings release that takes players to Gondor and Rohan.
 ---------
