@@ -1,3 +1,322 @@
+# Spider-Man: Brand New Day’s Controversial Ending Is Already Splitting Marvel Fans
+
+Movies, Spider-Man: Brand New Day
+
+Sat, 01 Aug 2026 22:20:04 GMT
+
+https://screenrant.com/spider-man-brand-new-day-controversial-ending-splitting-marvel-fans/
+
+Although Spider-Man: Brand New Day was incredibly well-received and broke record just days after its release, many fans are unhappy with the ending.
+---------
+
+# It Took Star Trek 61 Episodes To Drop One Of Its First Major Tropes
+
+TV, Star Trek, Star Trek: The Original Series
+
+Sat, 01 Aug 2026 22:01:11 GMT
+
+https://screenrant.com/star-trek-original-series-ending-trope-drop/
+
+The Original Series broke with its usual formula in a big way with one season 3 episode that changed the franchise forever with its innovations.
+---------
+
+# 10 Turn-Based RPGs That Changed Video Games Forever
+
+Gaming, RPG, Triple-A Games, PC
+
+Sat, 01 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/10-turn-based-rpgs-that-changed-gaming-forever/
+
+While we already know the best RPGs of all time, the most influential in the industry rarely get the credit they so desperately deserve.
+---------
+
+# 10 Classic Western Movies No One Remembers Today
+
+Movies, Western
+
+Sat, 01 Aug 2026 21:55:11 GMT
+
+https://screenrant.com/classic-western-movies-nobody-remembers/
+
+It's impossible to remember every single classic western, but these shining examples of the genre are all but forgotten today.
+---------
+
+# Star Trek's New 12-Part Captain Kirk Series Is Here, And It Unlocks The Franchise's Future
+
+Star Trek
+
+Sat, 01 Aug 2026 21:30:11 GMT
+
+https://screenrant.com/star-trek-last-star-ship-new-captain-kirk-series-franchise-future/
+
+Star Trek's latest Kirk series delves into the aftermath of one of the biggest events in the franchise's history, opening the door to similar stories.
+---------
+
+# Every Unused Eeveelution In Pokémon, Ranked By Their Potential
+
+Gaming, Pokemon
+
+Sat, 01 Aug 2026 21:30:11 GMT
+
+https://screenrant.com/pokemon-every-unused-eeveelution-ranked/
+
+Uncover the potential of unused Eeveelutions in Pokémon, as we rank their possibilities and speculate on their impact.
+---------
+
+# Blade Runner's Upcoming Sequel Will Avoid A Major Streaming Concern
+
+Streaming TV, Blade Runner 2099
+
+Sat, 01 Aug 2026 21:30:11 GMT
+
+https://screenrant.com/blade-runner-2099-limited-series-avoid-streaming-concern/
+
+Blade Runner 2099 is confirmed to be a limited series, so we won't be left on a cliffhanger after one season like most streaming shows.
+---------
+
+# Iconic Spider-Man Villain Officially Confirmed For Peter Parker's Next Appearance
+
+Marvel Comics, Spider-Man
+
+Sat, 01 Aug 2026 21:21:37 GMT
+
+https://screenrant.com/spider-man-chameleon-mj/
+
+A classic Spider-Man villain is confirmed to become the next major antagonist Peter Parker's closest ally will have to face off against.
+---------
+
+# 5 RPGs With Job Systems That Are 10/10 Masterpieces
+
+Games, RPG, Final Fantasy, Video Games, Like a Dragon 8
+
+Sat, 01 Aug 2026 22:15:15 GMT
+
+https://www.cbr.com/rpgs-with-flawless-job-systems/
+
+Some of the best RPGs introduce variety in their gameplay through well-defined job systems.
+---------
+
+# What's Coming to Tubi in August 2026? Full List
+
+TV, Tubi
+
+Sat, 01 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/what-coming-tubi-august-2026-full-list/
+
+The full list of streaming additions for Tubi in August 2026 has been unveiled.
+---------
+
+# Michael Bay's 5-Season Sci-Fi Series Finds Redemption With 942M Views on Netflix
+
+TV, The Last Ship
+
+Sat, 01 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/michael-bay-the-last-ship-netflix-redemption-august-2026/
+
+Michael Bay's post-apocalyptic sci-fi series resurfaces as a streaming sensation on Netflix.
+---------
+
+# DC Just Confirmed Batman and Lobo's Biggest Crossover Yet
+
+Comics, Batman, Lobo
+
+Sat, 01 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/detective-comics-2026-annual-1-lobo-batman-crossover-confirmed/
+
+The latest unexpected DC Comics crossover just paired the Dark Knight up with the Main Man himself, and it couldn't be a more explosive affair.
+---------
+
+# The Star Trek Reboot Is Officially Replacing Captain Kirk With A Brand-New Captain
+
+Movies, Star Trek, Sci-Fi, Paramount
+
+Sat, 01 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/star-trek-reboot-replacing-captain-kirk-movie/
+
+The future of the Star Trek franchise will not be led by the legendary Captain James T. Kirk.
+---------
+
+# One Piece Unveils Trafalgar Law's New Golden State Warriors Design in Official NBA Crossover
+
+Anime, One Piece, NBA, merchandise
+
+Sat, 01 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/one-piece-trafalgar-law-nba-golden-state-warriors-figure-release/
+
+One Piece has unveiled a new Trafalgar Law figure donning the Golden State Warriors jersey.
+---------
+
+# James Bond Meets Ocean's Eleven in Michael B. Jordan's New Thriller Reboot
+
+Movies, The Thomas Crown Affair
+
+Sat, 01 Aug 2026 21:30:15 GMT
+
+https://www.cbr.com/michael-b-jordan-thomas-crown-affair-oceans-eleven-meets-james-bond/
+
+Thomas Crown was always a thief who stole for the thrill, not the money, and Jordan's version seems to be doubling down on that idea.
+---------
+
+# The Office: Every Main Character's Age
+
+TV, The Office
+
+Sat, 01 Aug 2026 21:30:15 GMT
+
+https://www.cbr.com/the-office-main-character-age/
+
+The Office lasted almost a decade, with its characters growing up with the viewers. How old were Michael, Pam, Dwight, and the whole gang?
+---------
+
+# Taylor Sheridan’s Neo-Western Masterpiece Is Officially a Must-Watch on HBO Max
+
+Movie News, Hell or High Water, Taylor Sheridan, Western, Chris Pine
+
+Sat, 01 Aug 2026 22:15:15 GMT
+
+https://collider.com/taylor-sheridan-western-hell-or-high-water-streaming-success-hbo-max-august-2026/
+
+Taylor Sheridan’s Oscar-nominated neo-Western Hell or High Water, starring Chris Pine and Jeff Bridges, remains an essential streaming watch.
+---------
+
+# James Bond's Biggest Book Change Completely Transforms the Story
+
+Movie Features, James Bond, The Spy Who Loved Me, Roger Moore, Ian Fleming
+
+Sat, 01 Aug 2026 22:05:14 GMT
+
+https://collider.com/james-bond-the-spy-who-loved-me-book-to-movie-change-details-ian-fleming/
+
+Ian Fleming's 1962 book The Spy Who Loved Me was so hated, the author made James Bond's producers promise to change the story for the film.
+---------
+
+# 5 Fantasy Shows That Rival 'House of the Dragon'
+
+TV, House of the Dragon, The Wheel of Time, A Knight Of The Seven Kingdoms, Game Of Thrones
+
+Sat, 01 Aug 2026 22:04:14 GMT
+
+https://collider.com/fantasy-shows-like-house-of-the-dragon/
+
+Dive into fantasy series that rival House of the Dragon in epic battles and memorable characters, offering alternative worlds to immerse yourself in.
+---------
+
+# Ridley Scott's First Sci-Fi Masterpiece Is Taking Over Streaming
+
+Movie News, Alien, Ridley Scott, Alien: Earth, The Dog Stars
+
+Sat, 01 Aug 2026 22:00:14 GMT
+
+https://collider.com/ridley-scott-sci-fi-masterpiece-alien-streaming-success-prime-video-apple-tv-august-2026/
+
+Ridley Scott's timeless sci-fi movie, Alien, has become the defining streaming hit of an entire generation of classics.
+---------
+
+# HBO’s All-Time Greatest Detective Series Was Originally Meant To Be a Book Sequel
+
+TV Features, Nic Pizzolatto, True Detective, HBO, Books
+
+Sat, 01 Aug 2026 21:47:14 GMT
+
+https://collider.com/true-detective-hbo-nic-pizzolatto-book-sequel/
+
+Nic Pizzolatto's 2010 crime novel Galveston influenced the creation of HBO's acclaimed anthology series True Detective.
+---------
+
+# The 10 Best Video Game Worlds of All Time, Ranked
+
+TV, Video Game, The Legend of Zelda, Mass Effect, Grand Theft Auto
+
+Sat, 01 Aug 2026 21:41:14 GMT
+
+https://collider.com/best-video-game-worlds-ranked/
+
+Explore the best video game worlds of all time, ranked by design, storytelling, and quality, from Zelda's Hyrule to Cyberpunk 2077's Night City.
+---------
+
+# Alan Ritchson Is Dominating the Netflix Charts With 2 Hits and 7 Million Views
+
+Movie News, Alan Ritchson, Netflix, Ordinary Angels, War Machine
+
+Sat, 01 Aug 2026 21:30:14 GMT
+
+https://collider.com/alan-ritchson-netflix-viewership-charts-war-machine-ordinary-angels-july-2026/
+
+Two vastly different movies starring Alan Ritchson — Ordinary Angels and War Machine — found spots on Netflix's weekly viewership roundup.
+---------
+
+# 8 Sci-Fi Books That Can Be Called Masterpieces
+
+Books and Comics, Sci-Fi, Books, Frank Herbert, William Gibson
+
+Sat, 01 Aug 2026 21:30:14 GMT
+
+https://collider.com/best-sci-fi-books-masterpieces/
+
+From The Left Hand of Darkness to Neuromancer, these sci-fi book masterpieces reshaped the genre and still feel visionary.
+---------
+
+# George R.R. Martin's New 'Game of Thrones' Spin-Off Reveals First Official Image
+
+TV News, Game Of Thrones, House of the Dragon, George R.R. Martin, A Knight Of The Seven Kingdoms
+
+Sat, 01 Aug 2026 21:21:26 GMT
+
+https://collider.com/george-rr-martin-game-of-thrones-the-mad-king-cast-image/
+
+George R.R. Martin's newest Game of Thrones spin-off has dropped its first official image, bringing back one of the franchise's most infamous players.
+---------
+
+# Forget Miles Morales, 'Spider-Man: Brand New Day' Teases Another Peter Parker Replacement
+
+Features, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 01 Aug 2026 22:00:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-cindy-moon-cameo/
+
+Tom Holland can't play Spider-Man forever, and 'Brand New Day' may have just reminded everyone who will replace him. Read on for more.
+---------
+
+# Sharon Stone’s R-Rated Box Office Hit Finds a New Home on Paramount+
+
+Movie News, Sharon Stone, Basic Instinct
+
+Sat, 01 Aug 2026 22:00:12 GMT
+
+https://movieweb.com/sharon-stone-basic-instinct-paramount/
+
+Sharon Stone's iconic thriller 'Basic Instinct' is set to premiere on Paramount+, offering a chance to revisit the film.
+---------
+
+# 10 Masterpiece High Fantasy Books With Great Magic Systems
+
+TV Lists, Fantasy
+
+Sat, 01 Aug 2026 21:48:19 GMT
+
+https://movieweb.com/high-fantasy-books-great-magic-systems/
+
+Few things are cooler than magic.
+---------
+
+# 6 Brandon Sanderson Books Apple TV Needs to Adapt After 'Mistborn'
+
+Movie Lists, Brandon Sanderson, Mistborn, Apple TV
+
+Sat, 01 Aug 2026 21:30:12 GMT
+
+https://movieweb.com/brandon-sanderson-books-adapt-after-mistborn/
+
+The Mistborn movie is Apple TV's first priority when adapting Brandon Sanderson's Cosmere, but it should look at adapting these stories next.
+---------
+
 # Netflix's New 'Stranger Things Meets KPop Demon Hunters' Series Is Already The Fantasy Event Of The Summer
 
 Streaming TV, Masked Recs
@@ -5177,323 +5496,4 @@ Fri, 31 Jul 2026 15:36:34 GMT
 https://screenrant.com/timothy-olyphant-mandalorian-star-wars-return-response/
 
 Timothy Olyphant addresses his possible future in the Star Wars franchise after his character Cobb Vanth's big Book of Boba Fett twist.
----------
-
-# Reacher Season 4 Interview with Alan Ritchson, Anggun & Agnez Mo at SDCC 2026
-
-Comic-Con, Reacher, Reacher - Season 4, San Diego Comic-Con
-
-Fri, 31 Jul 2026 15:30:12 GMT
-
-https://screenrant.com/video/reacher-season-4-alan-ritchson-anggun-agnez-mo-interview-sdcc-2026/
-
-Reacher stars Alan Ritchson, Anggun, and Agnez Mo dodge season 4 spoilers like pros while hyping up the new season.
----------
-
-# 10 Essential Netflix K-Dramas Everyone Should Watch
-
-Classic TV, K-Drama, Netflix
-
-Fri, 31 Jul 2026 15:30:12 GMT
-
-https://screenrant.com/netflix-k-dramas-everyone-should-watch/
-
-Netflix is one of the most prominent streaming services in the world, and its original contributions to the K-drama industry cannot be overstated.
----------
-
-# All 3 Marvel Releases In 2026 After Spider-Man: Brand New Day
-
-Movies, Marvel Cinematic Universe, Spider-Man: Brand New Day
-
-Fri, 31 Jul 2026 15:23:35 GMT
-
-https://screenrant.com/marvel-movies-shows-2026-spider-man-brand-new-day/
-
-Now that Spider-Man: Brand New Day is out, Marvel Studios still has another three exciting movies and TV shows to release before 2026 comes to an end.
----------
-
-# George Lucas' Most Controversial Return of the Jedi Decision Was Disney Star Wars' Greatest Gift
-
-Movies, Star Wars: Episode VI - Return of the Jedi, Star Wars
-
-Fri, 31 Jul 2026 15:20:12 GMT
-
-https://screenrant.com/star-wars-return-of-the-jedi-anakin-skywalker-force-ghost/
-
-This George Lucas change was heavily criticized by fans, and it remains controversial today, yet it has been pivotal for Disney Star Wars.
----------
-
-# Nathan Fillion’s 9-Season Crime Thriller Crossover Plans Officially Confirmed By Creator As Filming Starts
-
-TV, The Rookie
-
-Fri, 31 Jul 2026 15:18:28 GMT
-
-https://screenrant.com/the-rookie-north-season-9-crossover-plans-confirmed-hawley/
-
-Nathan Fillion’s hit crime drama, which debuted in 2018, might air a crossover with its upcoming spinoff. Both shows premiere midseason on ABC.
----------
-
-# K-Pop Demon Hunters Officially Returns Today With New Release
-
-Games, KPop Demon Hunters
-
-Fri, 31 Jul 2026 15:55:26 GMT
-
-https://www.cbr.com/k-pop-demon-hunters-official-return-today-new-release/
-
-KPop Demon Hunters is finally back, with a brand new 2026 release every fan of Rumi, Mira, and Zoey needs.
----------
-
-# Lord of the Rings: The Fall of Numenor Special Edition Officially Announced for November 2026
-
-TV, The Lord of the Rings, The Lord of the Rings: The Rings of Power, Fantasy
-
-Fri, 31 Jul 2026 15:51:42 GMT
-
-https://www.cbr.com/lotr-fall-of-numenor-and-other-tales-from-the-second-age-of-middle-earth/
-
-The collection of J.R.R. Tolkien's Second Age stories, occurring in the era before The Lord of the Rings, is back in a new form.
----------
-
-# Former Sandlot Star Shares Brutally Honest Advice For Child Actors Today
-
-Movies, The Sandlot
-
-Fri, 31 Jul 2026 15:20:26 GMT
-
-https://www.cbr.com/former-sandlot-star-shares-brutally-honest-advice-for-child-actors/
-
-This is hands-down one of the most important pieces of advice The Sandlot star could provide.
----------
-
-# Evangelion Revives Unit-01's Original '90s TV Design in New High-End Release
-
-Anime, Neon Genesis Evangelion, merchandise, toys
-
-Fri, 31 Jul 2026 15:20:16 GMT
-
-https://www.cbr.com/evangelion-original-series-unit-01-blokees-model-kit/
-
-The original EVA Unit-01 mech design from Neon Genesis Evangelion is brought back to life through one of the brand's best Blokees model kits.
----------
-
-# 5 Classic Manga That Are 10/10 Masterpieces
-
-Anime, Manga, Shonen, seinen, Shojo, One Piece, Yona Of The Dawn
-
-Fri, 31 Jul 2026 15:15:15 GMT
-
-https://www.cbr.com/masterpiece-classic-manga-10-10/
-
-Manga like One Piece and Akatsuki no Yona are classics that every manga fan can appreciate.
----------
-
-# Only 3 Sci-Fi Movies in the 2020s Can Be Considered True Masterpieces
-
-Movies, Sci-Fi
-
-Fri, 31 Jul 2026 15:00:16 GMT
-
-https://www.cbr.com/perfect-sci-fi-movies-2020s/
-
-The 2020s haven't delivered sci-fi fans as many masterpieces as they'd like, but a few have distinguished themselves among the genre's finest.
----------
-
-# Godzilla Meets Transformers in 119-Minute Sci-Fi Gem That's Conquering Streaming
-
-Movies, Pacific Rim: Uprising, Pacific Rim
-
-Fri, 31 Jul 2026 15:00:16 GMT
-
-https://www.cbr.com/pacific-rim-uprising-hbo-max-success-july-2026/
-
-One of the best kaiju sequels of an entire generation is making its way to the top of the streaming charts a decade after its unforgettable debut.
----------
-
-# 10 Best Cyclops Costumes, Ranked
-
-Comics, X-Men, Cyclops, Marvel
-
-Fri, 31 Jul 2026 15:00:16 GMT
-
-https://www.cbr.com/cyclops-best-costumes-ranked-list/
-
-The evolution of Cyclops' iconic costumes, from his New X-Men leathers to his beloved X-Men '97 look, highlights the character's growth with the team.
----------
-
-# 10 Action Anime That Were Perfect From the First Scene to Last
-
-Anime, Action, Attack On Titan, JoJo's Bizarre Adventure
-
-Fri, 31 Jul 2026 15:00:16 GMT
-
-https://www.cbr.com/action-anime-perfect-from-start-to-finish/
-
-It's a rare feat for an anime series to maintain perfect action from start to finish, but some anime prove it effortlessly with every scene.
----------
-
-# Wonder Man Star Reacts to Disney+'s Shocking Cancellation After Season 2 Renewal: 'Now Ya Knoww!'
-
-TV, Wonder Man, Disney+, Marvel
-
-Fri, 31 Jul 2026 14:42:09 GMT
-
-https://www.cbr.com/wonder-man-yahya-abdul-mateen-reacts-cancellation/
-
-Yahya Abdul-Mateen II thanked fans on Instagram after Wonder Man's cancelation
----------
-
-# Mahershala Ali Officially Moves on From ‘Blade’ After Marvel Cancellation
-
-Movie News, Blade, Mahershala Ali, MCU, Kevin Feige
-
-Fri, 31 Jul 2026 15:46:25 GMT
-
-https://collider.com/blade-cancelled-mahershala-ali-calls-out-marvel/
-
-Mahershala Ali officially calls out Marvel for their handling of Blade, confirming that the film is cancelled.
----------
-
-# ‘Spider-Man: Brand New Day’ Officially Defeats ‘Avengers: Endgame’ as Marvel’s Largest Opening Weekend Ever
-
-Movie News, Spider-Man: Brand New Day, Avengers: Endgame, Marvel, Marvel Studios
-
-Fri, 31 Jul 2026 14:40:49 GMT
-
-https://collider.com/spider-man-brand-new-day-marvels-largest-opening-weekend-ever/
-
-Spider-Man: Brand New Day officially defeats Avengers: Endgame as Marvel’s largest opening weekend ever.
----------
-
-# Taylor Sheridan Returns to His 'Sicario' Roots in a Messy and Chaotic 'Lioness' Season 3 | Review
-
-TV Reviews, Lioness, Paramount Plus, Taylor Sheridan, Zoe Saldana
-
-Fri, 31 Jul 2026 14:01:15 GMT
-
-https://collider.com/lioness-season-3-review-taylor-sheridan-zoe-saldana/
-
-Taylor Sheridan takes Lioness in a new direction in Season 3, resulting in a confusing narrative and a series that feels like any old spy thriller.
----------
-
-# 'Spider-Man: Brand New Day' Breaks All-Time Box Office Record Set by 'Avengers: Endgame' in 1 Day
-
-Movie News, Spider-Man: Brand New Day, Avengers: Endgame, box office
-
-Fri, 31 Jul 2026 15:11:41 GMT
-
-https://movieweb.com/spider-man-brand-new-day-box-office-avengers-endgame-preview/
-
-MCU box office records are already falling, only one day into the theatrical run for 'Spider-Man: Brand New Day.'
----------
-
-# Hulu's New 100% Rated Crime Thriller Is Already One of the Biggest Shows on Streaming
-
-TV News, Furious, Hulu, Hot on Streaming
-
-Fri, 31 Jul 2026 15:01:12 GMT
-
-https://movieweb.com/furious-streaming-success-hulu-july-2026/
-
-The darkest crime thriller of the year is now streaming on Hulu.
----------
-
-# 10 Movies From the ‘90s Roger Ebert Couldn’t Stand
-
-Movie Lists, Roger Ebert
-
-Fri, 31 Jul 2026 14:30:12 GMT
-
-https://movieweb.com/90s-movies-ebert-couldnt-stand/
-
-Roger Ebert wasn't always kind when he hated something. Here are some '90s movies that he disliked immensely.
----------
-
-# Marvel Star & Creator Officially Address Shocking Series Cancellation
-
-TV News, Wonder Man, Disney+
-
-Fri, 31 Jul 2026 14:06:32 GMT
-
-https://movieweb.com/wonder-man-canceled-yahya-abdul-mateen-response/
-
-Marvel Studios canceled one of its best-reviewed series, promping heartfelt responses from the cast and crew.
----------
-
-# When Will 'Spider-Man: Brand New Day' Be Released on Streaming?
-
-Features, Spider-Man: Brand New Day, Spider-Man, Tom Holland
-
-Fri, 31 Jul 2026 14:01:12 GMT
-
-https://movieweb.com/spider-man-brand-new-day-streaming-release/
-
-Previous Spidey films have taken years to appear on Disney+. Will this one be the same? Here's everything we know.
----------
-
-# Best Steampunk Fantasy Books Of All Time
-
-Books, Fantasy
-
-Fri, 31 Jul 2026 13:35:11 GMT
-
-https://screenrant.com/best-steampunk-fantasy-books/
-
-Few corners of fantasy have exploded in popularity like steampunk, and the best novels in the genre make it easy to see why it's so beloved.
----------
-
-# Disney’s Tangled Remake Set Photos Reveal First Look At Kathryn Hahn’s Live-Action Mother Gothel
-
-Movies, Tangled
-
-Fri, 31 Jul 2026 13:33:49 GMT
-
-https://screenrant.com/tangled-disney-kathryn-hahn-mother-gothel-set-photos/
-
-Tangled is coming back with more action and mayhem, as new and exciting set photos officially unveil Kathryn Hahn as the villainous Mother Gothel.
----------
-
-# Eternally Yours Interview with Ed Weeks, Allegra Edwards, Jaren Lewison & Helen J. Shen at SDCC 2026
-
-Videos, Eternally Yours, San Diego Comic-Con
-
-Fri, 31 Jul 2026 13:30:11 GMT
-
-https://screenrant.com/video/eternally-yours-ed-weeks-allegra-edwards-jaren-lewison-helen-shen-interview-sdcc-2026/
-
-Eternally Yours stars Ed Weeks, Allegra Edwards, Jaren Lewison, and Helen J Shen break down their vampire coven, explain how humans factor into the picture, and tease the rules of their mythology.
----------
-
-# Terminator Meets True Detective In Netflix's 8-Part Sci-Fi Thriller
-
-Classic TV, Masked Recs
-
-Fri, 31 Jul 2026 13:30:11 GMT
-
-https://screenrant.com/terminator-meets-true-detective-netflix-sci-fi-thriller/
-
-There is an eight-episode science fiction thriller series on Netflix that is part Terminator, part True Detective, and well worth the investment.
----------
-
-# Netflix's New 3-Part Crime Series On Idaho Murders Is An Instant #1 Hit For The Streamer
-
-TV, Netflix
-
-Fri, 31 Jul 2026 13:27:03 GMT
-
-https://screenrant.com/netflix-crime-series-idaho-murders-stream-hit-july-2026/
-
-Netflix's new, three-part crime series has officially become an instant, Number 1 hit for the streamer just days after premiering on the platform.
----------
-
-# Matt Reeves' Batman Officially Returns In New 10-Part Series
-
-Streaming TV, Masked Recs
-
-Fri, 31 Jul 2026 13:00:54 GMT
-
-https://screenrant.com/matt-reeves-batman-caped-crusader-season-2-return/
-
-Ahead of The Batman - Part II, Matt Reeves' Batman is back in a DC series on Prime Video, and the Dark Knight fights the Joker, Poison Ivy, and more.
 ---------
