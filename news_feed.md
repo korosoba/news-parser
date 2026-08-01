@@ -1,3 +1,201 @@
+# 10 Greatest Thriller Movies That Unfold Over A Single Night, Ranked
+
+Classic Movies, Thriller
+
+Sat, 01 Aug 2026 23:15:11 GMT
+
+https://screenrant.com/thriller-movies-take-place-one-night/
+
+Some of the best thriller movies have a condensed timeline and offer non stop tension, and some of the best take place in one single night.
+---------
+
+# 11 Biggest Unanswered Questions From Spider-Man: Brand New Day
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 01 Aug 2026 23:15:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-movie-unanswered-questions/
+
+Spider-Man: Brand New Day leaves plenty unresolved. Here are the biggest mysteries and unanswered questions after the MCU's latest adventure.
+---------
+
+# DC Debuts Batman's New Identity Ahead Of The Batman 2
+
+Streaming TV, Masked Recs
+
+Sat, 01 Aug 2026 23:08:03 GMT
+
+https://screenrant.com/batman-caped-crusader-season-2-new-identity-matches-malone/
+
+DC's new release debuts a popular new identity for Batman, and it would be the perfect fit for Robert Pattinson's The Batman - Part II.
+---------
+
+# Invincible Season 4's Ending Set Up The Controversial Comic Story Prime Video Shouldn't Adapt
+
+Streaming TV, Invincible
+
+Sat, 01 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/invincible-season-4-ending-anissa-comic-storyline/
+
+Invincible season 4 left off in an intriguing place, teasing the comic books' most controversial story that may be better off absent from the show.
+---------
+
+# Lord Of The Rings: Nazgul King Officially Releases In 2027
+
+Gaming, The Lord of the Rings, The Lord of the Rings: The Fellowship of the Ring
+
+Sat, 01 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/lord-of-the-rings-nazgul-king-mask/
+
+The Nazgul are some of the most intimidating enemies in The Lord of the Rings, and a new statue only drives that point home further.
+---------
+
+# 5 Far Side Dinosaur Comics That Are 10/10 Perfect
+
+Comics, The Far Side
+
+Sat, 01 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/far-side-best-comics-dinosaurs/
+
+The best of Gary Larson's dinosaur comics.
+---------
+
+# It’s Official, YouTube Is The Future Of Television
+
+TV, YouTube
+
+Sat, 01 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/youtube-future-of-tv-after-peacock-deal/
+
+YouTube's latest move to consolidate its position in the TV industry points the way forward for the next decade of entertainment on the small screen.
+---------
+
+# Every Peter Jackson Horror Movie, Ranked
+
+Movies, Peter Jackson, Ranking
+
+Sat, 01 Aug 2026 22:25:11 GMT
+
+https://screenrant.com/peter-jackson-horror-movies-ranked/
+
+Before he brought Middle-earth to life on the big screen, Peter Jackson directed a handful of truly frightening horror flicks.
+---------
+
+# 10 Brilliant Webtoons That Deserve An Anime Adaptation
+
+Anime, webtoons, webtoon
+
+Sat, 01 Aug 2026 23:15:14 GMT
+
+https://www.cbr.com/brilliant-webtoons-that-deserve-anime-adaptation/
+
+Webtoons have become one of the most creative storytelling mediums of the past decade, and there are plenty of them that deserve an anime of their own
+---------
+
+# Prime Video's 8-Part Fan-Favorite Series Based on Bestselling Novel Returns as No. 1 as Fans Await New Episodes
+
+TV, Off Campus
+
+Sat, 01 Aug 2026 22:30:15 GMT
+
+https://www.cbr.com/off-campus-prime-video-climb-august-2026/
+
+The show is already in production for Season 2.
+---------
+
+# 5 Smartest Star Trek Villains, Ranked
+
+TV, Star Trek, Sci-Fi
+
+Sat, 01 Aug 2026 22:30:15 GMT
+
+https://www.cbr.com/smartest-star-trek-villains-ranked-list/
+
+Star Trek is full of powerful enemies, but the best villains in the franchise stand out for how they used intelligence to outmaneuver Starfleet.
+---------
+
+# 5 Masterpiece Fantasy Book Series With the Best Lore
+
+Movies, Fantasy, books
+
+Sat, 01 Aug 2026 22:30:15 GMT
+
+https://www.cbr.com/perfect-fantasy-books-with-best-lore-list/
+
+These fantasy book series are absolute masterpieces with their intricate world-building and in-depth histories, mythologies, cultures and magical lore
+---------
+
+# Quentin Tarantino's Wildest Movie of the '90s Is Finally Getting a Second Chance on Streaming
+
+Movie News, Quentin Tarantino, From Dusk Till Dawn, Western, Paramount Plus
+
+Sat, 01 Aug 2026 23:15:14 GMT
+
+https://collider.com/quentin-tarantino-from-dusk-till-dawn-streaming-paramount-plus-august-2026/
+
+Quentin Tarantino's cult classic Western horror movie with George Clooney and Salma Hayek is coming to a new streamer. Find out more here.
+---------
+
+# Paramount+ Officially Revives Clint Eastwood's Gritty Tearjerker
+
+Movie News, Million Dollar Baby, Clint Eastwood, Paramount Plus, Streaming
+
+Sat, 01 Aug 2026 23:00:14 GMT
+
+https://collider.com/clint-eastwood-million-dollar-baby-streaming-paramount-plus-august-2026/
+
+Million Dollar Baby, Clint Eastwood's Oscar-winning masterpiece and tearjerker, is back streaming this month. Here's everything you should know.
+---------
+
+# This 110-Minute WWII Sci-Fi Thriller Is Finally Getting a Second Chance on Streaming
+
+Movie News, Overlord, J.J. Abrams, Saving Private Ryan, 28 Days Later
+
+Sat, 01 Aug 2026 22:45:14 GMT
+
+https://collider.com/overlord-ww2-sci-fi-thriller-streaming-paramount-plus-august-2026/
+
+The overlooked WW2 horror movie Overlord, starring Wyatt Russell, is coming to Paramount+. Here's everything you should know.
+---------
+
+# 'Project Hail Mary' Fans Shouldn't Miss This $723 Million Sci-Fi Masterpiece Next Month
+
+Movie News, Project Hail Mary, Gravity, Sci-Fi, Paramount Plus
+
+Sat, 01 Aug 2026 22:30:14 GMT
+
+https://collider.com/sandra-bullock-sci-fi-gravity-streaming-paramount-plus-august-2026/
+
+A $723 million sci-fi favorite starring Sandra Bullock and George Clooney is heading to a new streaming site next month. Here's everything to know.
+---------
+
+# Matt Damon's 109-Minute Hard Sci-Fi Action Thriller Explodes Onto Streaming
+
+Movie News, Elysium, Peacock, Coming/Leaving Streaming, Sci-Fi
+
+Sat, 01 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/elysium-scifi-stream-peacock-august-2026/
+
+Forget 'The Odyssey,' Matt Damon's underrated sci-fi epic is the film to watch on streaming.
+---------
+
+# It Only Took Henry Cavill 5 Years To Find His Perfect Superman Replacement
+
+Features, Voltron, Henry Cavill, Superman, Highlander
+
+Sat, 01 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/henry-cavill-voltron-superman-replacement/
+
+Henry Cavill will star in the 'Voltron' live-action movie on Prime Video, and his role is the perfect spiritual successor to Superman. Read on.
+---------
+
 # Spider-Man: Brand New Day’s Controversial Ending Is Already Splitting Marvel Fans
 
 Movies, Spider-Man: Brand New Day
@@ -5298,202 +5496,4 @@ Fri, 31 Jul 2026 16:00:28 GMT
 https://www.cbr.com/anya-taylor-joy-super-mario-galaxy-peacock-success-july-2026/
 
 It didn't take long for Anya Taylor-Joy's box office smash hit sequel to topple the horror breakout Obsession on the streaming charts.
----------
-
-# Harlan Coben’s Most Popular Character Finally Comes to Netflix in New Update
-
-TV News, Harlan Coben, Colin Woodell, Netflix, Untitled Myron Bolitar Series
-
-Fri, 31 Jul 2026 17:15:14 GMT
-
-https://collider.com/harlan-coben-myron-bolitar-netflix-filming-start-july-2026/
-
-Netflix's latest Harlan Coben adaptation has taken a huge step forward. Get all the details on the new mystery project here.
----------
-
-# Tom Holland Officially Confirms Spider-Man Replacement
-
-Movie News, Spider-Man, Spider-Man: Brand New Day, Tom Holland, Marvel
-
-Fri, 31 Jul 2026 17:12:33 GMT
-
-https://collider.com/tom-holland-spider-man-future-successor-confirmed/
-
-Despite a record-breaking box office debut for Brand New Day, Tom Holland confirms plans for his Spider-Man replacement are in place.
----------
-
-# Prime Video Officially Doubles Down on Anime With Historic Streaming Change
-
-TV News, Crunchyroll, STARZ, Prime Video, Amazon
-
-Fri, 31 Jul 2026 17:07:08 GMT
-
-https://collider.com/prime-video-crunchyroll-starz-bundle/
-
-Prime Video now offers a bundle that includes both STARZ and Crunchyroll streaming services for a staggeringly low price. Read on for more.
----------
-
-# 6 Best Blockbuster Movies Released Since 2000
-
-Movie, Avatar, Johnny Depp, Christopher Nolan, The Lord of the Rings: Return of the King
-
-Fri, 31 Jul 2026 17:05:14 GMT
-
-https://collider.com/best-blockbuster-movies-since-2000-ranked/
-
-Avengers: Endgame, The Dark Knight, and Avatar are all among the best blockbuster movies released since the year 2000.
----------
-
-# The Sci-Fi Masterpiece Ridley Scott Called “Too Long” Is Coming to Paramount+
-
-Movie News, Blade Runner 2049, Denis Villeneuve, Ridley Scott, Ryan Gosling
-
-Fri, 31 Jul 2026 17:00:07 GMT
-
-https://collider.com/ridley-scott-blade-runner-2049-streaming-paramount-plus-august-2026/
-
-Ridley Scott's sci-fi legacy sequel Blade Runner 2049, directed by Denis Villeneuve and headlined by Ryan Gosling, is coming to Paramount+.
----------
-
-# Prime Video Officially Says Goodbye to Chris Hemsworth’s Best Action Thriller This Weekend
-
-Movie News, Rush, Chris Hemsworth, Prime Video, Daniel Brühl
-
-Fri, 31 Jul 2026 16:54:43 GMT
-
-https://collider.com/chris-hemsworth-rush-leaving-prime-video-july-31/
-
-Prime Video has officially announced that it's removing Chris Hemsworth's beloved action thriller, Rush. Read on for more.
----------
-
-# Marvel's 'X-Men' Reboot Officially Casts Emma Frost
-
-Movie News, Samara Weaving, X-Men, Spider-Man: Brand New Day, MCU
-
-Fri, 31 Jul 2026 16:09:22 GMT
-
-https://collider.com/marvel-x-men-reboot-cast-samara-weaving-emma-frost/
-
-Marvel's X-Men reboot has officially cast Emma Frost, and the fan-favorite mutant will be played by a legendary horror icon. Read on for more.
----------
-
-# 9 Years Later, These Are the 10 Best Movies of 2017
-
-Movie, Lady Bird, Get Out, Star Wars: Episode VIII - The Last Jedi, Dunkirk
-
-Fri, 31 Jul 2026 16:06:27 GMT
-
-https://collider.com/best-movies-2017-ranked/
-
-Modern masterpieces like Dunkirk, The Florida Project, and Good Time are among the very best movies released in the year 2017.
----------
-
-# 2026's Biggest Sci-Fi Movie Sets New Release After Its Stratospheric Success
-
-Movie News, Project Hail Mary, Sci-Fi
-
-Fri, 31 Jul 2026 17:22:23 GMT
-
-https://movieweb.com/project-hail-mary-4k-blu-ray-release/
-
-The sci-fi adaptation of 'Project Hail Mary,' starring Ryan Gosling, is coming to 4K Blu-ray following its record-breaking theatrical run.
----------
-
-# New $800 Million Near-Perfect Action Fantasy Epic Is Already a Streaming Sensation
-
-Movie News, Demon Slayer: Kimetsu no Yaiba Infinity Castle, Crunchyroll, Hot on Streaming, Action, Fantasy
-
-Fri, 31 Jul 2026 17:00:12 GMT
-
-https://movieweb.com/demon-slayer-infinity-castle-action-streaming-success-crunchyroll-july-2026/
-
-The biggest action fantasy movie in years is slaying the competition on streaming.
----------
-
-# Taylor Sheridan's Best Action Thriller Officially Returns With Explosive Rotten Tomatoes Debut
-
-TV News, Lioness
-
-Fri, 31 Jul 2026 16:35:40 GMT
-
-https://movieweb.com/lioness-season-3-rotten-tomatoes-score/
-
-Taylor Sheridan's Lioness is back, and the Paramount+ thriller has opened to a strong Rotten Tomatoes score ahead of its latest return.
----------
-
-# Marvel Studios Officially Casts First 'X-Men' Actor for Upcoming MCU Film
-
-Movie News, X-Men, Samara Weaving
-
-Fri, 31 Jul 2026 16:18:15 GMT
-
-https://movieweb.com/x-men-marvel-studios-samara-weaving-emma-frost/
-
-Marvel Studios has locked in its first new mutant actor for the MCU's long-awaited first 'X-Men' solo movie.
----------
-
-# 'Spider-Man: Brand New Day's Mind-Blowing After-Credits Scene, Explained
-
-Features, Spider-Man: Brand New Day
-
-Fri, 31 Jul 2026 16:05:29 GMT
-
-https://movieweb.com/spider-man-brand-new-day-after-credit-scene/
-
-The latest Spider-Man film's final moments have massive implications, but what do they actually mean?
----------
-
-# Mahershala Ali Finally Addresses Whether He's Still Blade After Canceled MCU Movie
-
-Movie News, Blade, MCU's Movie Order (2008 - 2019) - The Infinity Saga (Iron Man - Spider-Man: Far from Home), Mahershala Ali
-
-Fri, 31 Jul 2026 16:01:39 GMT
-
-https://movieweb.com/mahershala-ali-mcu-blade-status/
-
-Seven years after being announced at San Diego Comic Con, Mahershala Ali puts the final nail in the coffin for the MCU's Blade reboot.
----------
-
-# Taylor Sheridan’s Lioness Season 3 Debuts To Major Rotten Tomatoes Record
-
-TV, Lioness, Lioness - Season 3, Taylor Sheridan, Paramount Plus
-
-Fri, 31 Jul 2026 15:49:27 GMT
-
-https://screenrant.com/taylor-sheridan-lioness-season-3-rotten-tomatoes-score-record/
-
-Reviews are rolling out for Taylor Sheridan's Lioness season 3 and the spy action thriller has officially set a major Rotten Tomatoes record.
----------
-
-# Where Are The New Avengers During Spider-Man: Brand New Day?
-
-Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
-
-Fri, 31 Jul 2026 15:45:20 GMT
-
-https://screenrant.com/spiderman-brand-new-day-new-avengers-where/
-
-Spider-Man: Brand New Day brings a major new threat to New York after the New Avengers formed in Thunderbolts, and their absence is quite peculiar.
----------
-
-# Chris Pratt’s New $1 Billion Fantasy Is Now #1 On Streaming After Just 1 Day
-
-Movies, Masked Recs
-
-Fri, 31 Jul 2026 15:43:43 GMT
-
-https://screenrant.com/super-mario-galaxy-movie-peacock-streaming-success-july-2026/
-
-After only one day of availability on streaming, Chris Pratt’s fantasy movie that grossed over $1 billion has become a massive hit with viewers.
----------
-
-# Timothy Olyphant Teases New Star Wars Return Potential After Cobb Vanth's Fate Twist
-
-Star Wars
-
-Fri, 31 Jul 2026 15:36:34 GMT
-
-https://screenrant.com/timothy-olyphant-mandalorian-star-wars-return-response/
-
-Timothy Olyphant addresses his possible future in the Star Wars franchise after his character Cobb Vanth's big Book of Boba Fett twist.
 ---------
