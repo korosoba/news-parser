@@ -1,3 +1,311 @@
+# August 2026 Video Game Releases: Full List And Highlights
+
+Gaming, Upcoming Games, Triple-A Games, Indie Games, PC
+
+Sat, 01 Aug 2026 05:00:12 GMT
+
+https://screenrant.com/august-2026-video-games-releases-schedule-lineup/
+
+2026 has been an excellent year for gaming so far, but there are still more than a few surprises in store for gamers coming this summer.
+---------
+
+# Fallout: NCR Officially Launches 2027
+
+Gaming, Fallout, Fallout: New Vegas
+
+Sat, 01 Aug 2026 04:30:11 GMT
+
+https://screenrant.com/fallout-ncr-power-armor-2027-release-date/
+
+The Fallout franchise is set to continue for a long time to come yet, and there's a cool release if you're looking to expand your physical collection.
+---------
+
+# Avatar's Mad King Bumi Officially Returns In New Release
+
+Gaming, Avatar: The Last Airbender, Avatar: Seven Havens, Avatar Aang: The Last Airbender, The Legend of Korra, PC, Legends
+
+Sat, 01 Aug 2026 04:00:15 GMT
+
+https://screenrant.com/avatar-realms-collide-mad-king-bumi-update/
+
+Mad King Bumi The Greatest Leader officially returns in a brand-new Avatar: The Last Airbender release that you can check out for free now.
+---------
+
+# Something Very Bad Is Going To Happen's Sorry Man Myth Explained
+
+Streaming TV, Something Very Bad Is Going to Happen
+
+Sat, 01 Aug 2026 03:57:11 GMT
+
+https://screenrant.com/something-very-bad-is-going-to-happen-sorry-man-myth-explained/
+
+The Sorry Man myth looms large over the first half of Something Very Bad Is Going to Happen. Here's everything you need to know about him.
+---------
+
+# Every K-Drama Coming To Netflix, Hulu, And Viki In August 2026
+
+TV, K-Drama
+
+Sat, 01 Aug 2026 03:56:32 GMT
+
+https://screenrant.com/every-k-drama-netflix-hulu-viki-streaming-august-2026/
+
+August continues the Summer 2026 trend of plentiful K-dramas ahead as big stars headline projects across Netflix, Hulu, Viki, and more.
+---------
+
+# 14 Years Later, Tom Holland Reunites With One Of His First Co-Stars In Spider-Man: Brand New Day
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 01 Aug 2026 03:55:36 GMT
+
+https://screenrant.com/tom-holland-reunites-with-first-co-star-in-spider-man-brand-new-day-naomi-watts/
+
+14 years after his breakout role, Tom Holland reunites with one of his very first co-stars in Spider-Man: Brand New Day with a fun surprise character.
+---------
+
+# Crunchyroll's Top Solo Leveling Replacement Is A Misunderstood Gem
+
+Anime, Crunchyroll, Masked Recs
+
+Sat, 01 Aug 2026 03:55:12 GMT
+
+https://screenrant.com/tomb-raider-king-top-solo-leveling-replacement-crunchyroll/
+
+Solo Leveling's perfect replacement is on Crunchyroll, and the misunderstood anime completely flips the hit manhwa on its head.
+---------
+
+# Mortal Kombat’s Liu Kang Actor Wants Street Fighter Star To Settle Franchise Rivalry Once And For All
+
+Movies, Mortal Kombat II, Street Fighter
+
+Sat, 01 Aug 2026 03:32:30 GMT
+
+https://screenrant.com/mortal-kombats-street-fighter-franchise-rivalry-cody-rhodes/
+
+The actor behind Liu Kang addresses the rivalry between Mortal Kombat and Street Fighter, challenging the upcoming movie's star to settle the debate.
+---------
+
+# 10 Strongest DC Heroes In Smallville, Ranked
+
+Classic TV, Smallville, DC
+
+Sat, 01 Aug 2026 03:30:11 GMT
+
+https://screenrant.com/strongest-smallville-dc-heroes-ranked/
+
+Smallville was an exemplary superhero TV show that introduced a whole host of powerful heroes long before the DCEU or DCU ever took shape.
+---------
+
+# What Happened With Spider-Man And The Punisher On Staten Island?
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe, The Punisher
+
+Sat, 01 Aug 2026 03:28:35 GMT
+
+https://screenrant.com/what-happened-with-spider-man-and-punisher-on-staten-island-brand-new-day/
+
+While Spider-Man and The Punisher are uneasy allies in Spider-Man: Brand New Day, it's not the first time the New York heroes have met in the MCU.
+---------
+
+# Gundam Officially Triples Its U.S. Presence With 2 New Stores
+
+Anime, Mobile Suit Gundam, merchandise, toys, collectibles
+
+Sat, 01 Aug 2026 03:59:15 GMT
+
+https://www.cbr.com/bandai-gundam-base-seattle-minnesota-new-stores/
+
+Bandai is mobilizing two new Gundam Base Stores later this year, bolstering the number of US locations not long after the launch of the Chicago store.
+---------
+
+# 5 Greatest Action Thriller Anime, Ranked
+
+Anime, Attack on Titan, Ghost in the Shell
+
+Sat, 01 Aug 2026 03:45:14 GMT
+
+https://www.cbr.com/greatest-action-thriller-anime/
+
+Anime like Ghost in the Shell and Attack on Titan are the pinnacle of the action thriller genre.
+---------
+
+# The 5 Oldest Justice League Members Missing From the Movies
+
+Movies, DCU, DC Extended Universe, Justice League
+
+Sat, 01 Aug 2026 03:45:14 GMT
+
+https://www.cbr.com/justice-league-movies-oldest-missing-characters-list/
+
+Since the Justice League's debut in 1960, the team has recruited several superheroes who have yet to appear in any live-action films.
+---------
+
+# The Avengers' Biggest Problem Has Nothing to Do With Their Enemies
+
+Comics, The Avengers
+
+Sat, 01 Aug 2026 03:30:14 GMT
+
+https://www.cbr.com/avengers-needs-bigger-character-moments-not-bigger-threats/
+
+Marvel's most famous hero team wasn't built off the threats they faced, but the character development that made their plights worth it.
+---------
+
+# 6 Near-Perfect Hard Horror Shows Nobody Remembers
+
+TV, Horror, The Exorcist, The Mist
+
+Sat, 01 Aug 2026 03:30:14 GMT
+
+https://www.cbr.com/near-flawless-forgotten-hard-horror-shows-list/
+
+Exceptional hard horror shows like The Exorcist and The Order may have been overshadowed or forgotten, but still offer unforgettable stories.
+---------
+
+# 5 PS5 Games That Are Brutally Difficult
+
+Games, Lists, Video Games, PlayStation 5, The Last of Us
+
+Sat, 01 Aug 2026 03:15:15 GMT
+
+https://www.cbr.com/ps5-games-that-are-brutally-difficult/
+
+Games like Ghostrunner and Sifu are some of the toughest on the console.
+---------
+
+# The Matrix's Best Line Is Still the Greatest Quote in Sci-Fi History
+
+Movies, The Matrix, Sci-Fi
+
+Sat, 01 Aug 2026 03:15:15 GMT
+
+https://www.cbr.com/the-matrix-greatest-quote-in-sci-fi-history/
+
+Fans continue to quote, and reinterpret this line because it quietly explains everything the movie is trying to say about reality, belief, and Neo.
+---------
+
+# Star Wars Officially Returns With Its New 8-Episode Jedi Series on August 5
+
+Anime, Star Wars: Visions Presents - The Ninth Jedi, Star Wars: Visions, Star Wars
+
+Sat, 01 Aug 2026 03:05:15 GMT
+
+https://www.cbr.com/star-wars-visions-ninth-jedi-disney-release-date/
+
+A brand-new Star Wars anime series is about to make its debut, and fans only have a few days left to wait before it arrives on Disney+.
+---------
+
+# 10 Greatest Survival Thriller Anime of All Time
+
+Anime, Thriller, survival, Parasyte The Maxim, Attack On Titan
+
+Sat, 01 Aug 2026 02:45:14 GMT
+
+https://www.cbr.com/greatest-survival-thriller-anime-of-all-time/
+
+Survival horror anime works best when the threat reaches past claws and bullets into trust, identity and the systems meant to protect.
+---------
+
+# 10 Classic SEGA Genesis Games That Haven't Aged Well
+
+Games, Sega Genesis, sega, Video Games, Sonic the Hedgehog
+
+Sat, 01 Aug 2026 02:15:15 GMT
+
+https://www.cbr.com/sega-genesis-classic-games-aged-poorly/
+
+Sega Genesis games like Sonic 3D Blast and Virtual Racing haven't stood the test of time.
+---------
+
+# The Supernatural Horror Movie Stephen King Called the Best of All Time Is Officially Streaming for Free
+
+Movie Features, Horror, The Changeling, George C. Scott, Stephen King
+
+Sat, 01 Aug 2026 04:08:14 GMT
+
+https://collider.com/stephen-king-the-changeling-streaming-free-tubi-july-2026/
+
+1980's The Changeling, which Stephen King called the best supernatural horror film of all time, is streaming for free on Tubi.
+---------
+
+# FX's 9-Episode Crime Thriller Masterpiece Is Based on a True Story
+
+TV Features, Say Nothing, Anthony Boyle, Rory Kinnear, FX
+
+Sat, 01 Aug 2026 03:59:15 GMT
+
+https://collider.com/say-nothing-fx-crime-thriller-true-story/
+
+FX's Say Nothing delves into the complex history of The Troubles, offering a nuanced and emotionally impactful exploration of the conflict's impact.
+---------
+
+# Forget 'Game of Thrones,' Netflix's Near-Perfect 5-Season Epic Is the Ultimate Weekend Binge
+
+TV Features, The Last Kingdom, The Last Kingdom: Seven Kings Must Die, Netflix, Game Of Thrones
+
+Sat, 01 Aug 2026 03:41:14 GMT
+
+https://collider.com/the-last-kingdom-netflix-weekend-binge/
+
+The Last Kingdom is the ultimate Game of Thrones replacement with its near-perfect 5-season epic adaptation of Bernard Cornwell's historical fiction series.
+---------
+
+# The 10 Greatest Movies That Never Take Themselves Too Seriously
+
+Movie, In Bruges, Burn After Reading, Back to the Future, The Big Lebowski
+
+Sat, 01 Aug 2026 03:09:14 GMT
+
+https://collider.com/best-movies-never-take-themselves-too-seriously/
+
+From Guardians of the Galaxy to Burn After Reading, these movies never feel like they're trying to prove anything, remaining enjoyable throughout.
+---------
+
+# 10 Greatest Action Comedy Shows of All Time
+
+TV, Action, Comedy, The Boys, Cobra Kai
+
+Sat, 01 Aug 2026 03:02:14 GMT
+
+https://collider.com/best-action-comedy-shows-all-time-ranked/
+
+Prime Video's The Boys, Netflix's Cobra Kai, and HBO Max's Peacemaker are among the best action comedy shows, but which series is the greatest?
+---------
+
+# FX’s 2-Part Series Is the Perfect Modern Binge After Christopher Nolan’s ‘The Odyssey’
+
+TV Features, Jeff Bridges, Christopher Nolan, The Old Man, The Odyssey
+
+Sat, 01 Aug 2026 02:44:14 GMT
+
+https://collider.com/fx-hulu-the-old-man-series-modern-odyssey-christopher-nolan/
+
+Christopher Nolan’s The Odyssey shares surprising parallels with FX’s The Old Man, making Jeff Bridges’ thriller the perfect follow-up.
+---------
+
+# Jason Statham and Guy Ritchie’s Biggest Action Misfire Finds a Free Streaming Home
+
+Movie News, Revolver, Jason Statham, Guy Ritchie, Pluto TV
+
+Sat, 01 Aug 2026 02:30:14 GMT
+
+https://collider.com/jason-statham-guy-ritchie-revolver-streaming-free-pluto-tv-july-2026/
+
+The historically bad action misfire that brought Guy Ritchie and Jason Statham together back in 2005 is now streaming for free.
+---------
+
+# 8 Perfect 1990s TV Shows I Knew Were Masterpieces From The First Scene
+
+TV Lists, Seinfeld
+
+Sat, 01 Aug 2026 02:30:12 GMT
+
+https://movieweb.com/1990s-tv-shows-perfect-first-scenes/
+
+These 1990s TV shows, ranging from dramas to comedies to what has become a sci-fi classic, have memorable first scenes.
+---------
+
 # Emilia Clarke’s New Crime Thriller Can Be Her Best Show Since Game Of Thrones
 
 Streaming TV, Masked Recs
@@ -5188,312 +5496,4 @@ Thu, 30 Jul 2026 18:30:11 GMT
 https://screenrant.com/maul-ahsoka-star-wars-clone-wars-epic-lightsaber-duel/
 
 It took six years for Disney to bring us this epic Star Wars lightsaber duel, but it was undeniably worth the wait. This was the ultimate matchup.
----------
-
-# Spider-Man: Brand New Day's Rotten Tomatoes Score Continues A Major 3-Movie MCU Streak
-
-Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
-
-Thu, 30 Jul 2026 18:25:19 GMT
-
-https://screenrant.com/spider-man-brand-new-day-rotten-tomatoes-score-mcu-streak/
-
-Spider-Man: Brand New Day's Rotten Tomatoes score is impressive, and it confirms a perfect three-movie streak for the MCU after divisive releases.
----------
-
-# The Exorcist Getting Exciting New Release Next Month Ahead Of Mike Flanagan’s 2027 Reboot
-
-Horror, The Exorcist
-
-Thu, 30 Jul 2026 18:21:25 GMT
-
-https://screenrant.com/the-exorcist-boorman-and-the-devil-documentary-trailer-release-date/
-
-An exciting new release in the long line of Exorcist movies is coming next month, even as Mike Flanagan continues preparing a new reboot.
----------
-
-# Why Scarlett Johansson's New Netflix Sci-Fi Movie Took 30 Years To Make
-
-Movies, Ray Gunn
-
-Thu, 30 Jul 2026 18:13:44 GMT
-
-https://screenrant.com/ray-gunn-movie-scarlett-johansson-30-year-development-changes/
-
-The director of Scarlett Johansson's upcoming Netflix sci-fi film explains why it took three decades to make their passion project happen.
----------
-
-# 4 Things We Know For Sure About Fallout 5's Setting
-
-Gaming, Fallout, Fallout 5
-
-Thu, 30 Jul 2026 18:00:11 GMT
-
-https://screenrant.com/fallout-5-official-setting-4-things-we-know/
-
-Fallout 5 has officially been confirmed, and though it is undoubtedly a long way away from release, we already know a few things about it.
----------
-
-# 29 Years Later, The 1990s Most Important Star Trek Character Is Aging Like Fine-Wine
-
-TV, Star Trek, Star Trek: Voyager
-
-Thu, 30 Jul 2026 18:00:11 GMT
-
-https://screenrant.com/star-trek-most-important-1990s-character-seven-of-nine/
-
-During the franchise's peak, one Star Trek character allowed the series to reach its full potential for excitement & audience connection.
----------
-
-# The Boys' 2027 Return Will Reinvent Soldier Boy
-
-Streaming TV, Masked Recs
-
-Thu, 30 Jul 2026 18:00:11 GMT
-
-https://screenrant.com/the-boys-2027-vought-rising-reinvent-soldier-boy/
-
-The Boys will return in 2027 with Vought Rising, a spinoff starring Jensen Ackles' Soldier Boy, but viewers shouldn't expect the character they know.
----------
-
-# New George R.R. Martin GOT Spinoff's A Song Of Ice & Fire Canon Status Clarified By Franchise Author
-
-TV, Game of Thrones
-
-Thu, 30 Jul 2026 17:56:26 GMT
-
-https://screenrant.com/the-mad-king-play-got-canon-status-george-rr-martin-team/
-
-A new Game of Thrones story just premiered this week, but the big question has been whether it’s considered canon. Fans now have their answer.
----------
-
-# Rings Of Power Season 3 Confirms New Character With Major Aragorn Connection
-
-TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
-
-Thu, 30 Jul 2026 17:39:51 GMT
-
-https://screenrant.com/rings-of-power-season-3-numenor-elros-introduction-casting-confirmed/
-
-An update has arrived for The Lord of the Rings: The Rings of Power season 3, confirming the arrival of a new character with a connection to Aragorn.
----------
-
-# Marvel Suddenly Cancels Its Best Show in Years After Renewing It for Season 2
-
-Movies, Wonder Man, Marvel Cinematic Universe, Disney+
-
-Thu, 30 Jul 2026 18:38:28 GMT
-
-https://www.cbr.com/wonder-man-season-2-canceled-marvel-disney-plus/
-
-Marvel has suddenly reversed course a previous decision to renew the Disney+ series for a second season.
----------
-
-# 5 Classic '90s Anime That Are 10/10 Masterpieces
-
-Anime, Revolutionary Girl Utena, Cowboy Bebop
-
-Thu, 30 Jul 2026 18:15:14 GMT
-
-https://www.cbr.com/classic-90s-anime-perfect-masterpieces/
-
-The '90s were full of impressive and innovative anime, but only titles like Serial Experiments Lain and Revolutionary Girl Utena are truly flawless.
----------
-
-# Iconic Spider-Man Villain Officially Becomes Marvel's New Venom
-
-Comics, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man: Brand New Day
-
-Thu, 30 Jul 2026 18:00:15 GMT
-
-https://www.cbr.com/iconic-marvel-spider-man-villain-officially-becomes-new-venom/
-
-Marvel Comics just unleashed one of the most dangerous Spider-Man villain combos ever.
----------
-
-# 5 Forgotten Jedi Who Deserve Their Own Star Wars Movie
-
-Movies, Star Wars
-
-Thu, 30 Jul 2026 18:00:15 GMT
-
-https://www.cbr.com/jedi-who-deserve-solo-star-wars-movie-list/
-
-Star Wars has many great Jedi, but some of the most forgotten are also the most worthy of their own spinoff movie.
----------
-
-# 10 Spider-Man Stories That Are Perfect From Start to Finish
-
-Comics, Spider-Man
-
-Thu, 30 Jul 2026 18:00:15 GMT
-
-https://www.cbr.com/spider-man-comics-perfect-from-start-to-finish/
-
-Unforgettable series like Spider-Men, Spider-Island and Life Story gripped Spider-Man fans from the very first pages and held them until the very end.
----------
-
-# 10 Must-Read Spider-Man Comics Before Seeing Spider-Man: Brand New Day
-
-Comics, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man
-
-Thu, 30 Jul 2026 18:00:15 GMT
-
-https://www.cbr.com/spider-man-comics-read-before-watching-brand-new-day/
-
-Ready for the next Spider-Man movie? You should read these comics first before following Peter Parker's latest adventure.
----------
-
-# Tom Holland Confirms Marvel's Plan for 'Passing the Baton' of MCU's Spider-Man
-
-Movies, Marvel Cinematic Universe, Spider-Man, Spider-Man: Brand New Day
-
-Thu, 30 Jul 2026 17:51:42 GMT
-
-https://www.cbr.com/tom-holland-passing-the-baton-spider-man/
-
-Tom Holland's days as the MCU's Spider-Man are numbered.
----------
-
-# Batman: Caped Crusader Cast Tease Joker's Plan | SDCC 2026
-
-TV, Batman: Caped Crusader
-
-Thu, 30 Jul 2026 17:30:16 GMT
-
-https://www.cbr.com/video/batman-caped-crusader-cast-tease-joker-s-plan-sdcc-2026/
-
-Batman: Caped Crusader Season 2 brings Batman and Joker together for a psychological showdown unlike any previous animated adaptation. At SDCC 2026, Hamish Linklater, Matthew Needham, James Tucker, and Geoffrey Thorne reveal how Season 2 builds toward Joker's long game while expanding the Riddler's story.
----------
-
-# The Institute Season 2 Is Taking Stephen King's Story Beyond the Book
-
-TV, Stephen King, The Institute
-
-Thu, 30 Jul 2026 17:30:16 GMT
-
-https://www.cbr.com/the-institute-season-2-stephen-king-book-changes/
-
-Having exhausted the plot of Stephen King's 2019 novel The Institute, the second season will take a fresh direction to build on its ambiguous ending.
----------
-
-# 10 Best American Classic Rock Albums of All Time
-
-Music Features, Guns N' Roses, Bob Dylan, Talking Heads, The Velvet Underground
-
-Thu, 30 Jul 2026 18:45:15 GMT
-
-https://collider.com/best-american-classic-rock-albums-all-time-ranked/
-
-If you're after great American classic rock albums, it's worth listening to masterpieces like Doolittle, The Doors, and Appetite for Destruction.
----------
-
-# Marvel Officially Cancels 'Wonder Man' Despite Season 2 Renewal
-
-TV News, Wonder Man, Marvel Studios, Yahya Abdul-Mateen II, Ben Kingsley
-
-Thu, 30 Jul 2026 18:41:24 GMT
-
-https://collider.com/wonder-man-season-2-cancelled-disney-plus/
-
-Despite a Season 2 renewal, Wonder Man Season 2 is no longer moving forward at Disney+. Read on for all the details.
----------
-
-# The Devil’s Mouth: Real Sharks Were Only the Start | Set Stories
-
-Movie, The Devil's Mouth
-
-Thu, 30 Jul 2026 18:15:14 GMT
-
-https://collider.com/video/the-devil-s-mouth-real-sharks-were-only-the-start-set-stories/
-
-Tommi Rose, Nico Hiraga, Gavin Casalegno, and Lana Condor take Collider behind the scenes of The Devil's Mouth, revealing what it was really like filming the Amazon Prime thriller in Thailand. From spotting real shark fins on the way to set to spending months soaked in massive water tanks and cave sets, the cast shares the challenges that made this production unlike anything they'd done before.
----------
-
-# Cole Hauser Officially Addresses Taylor Sheridan's Exit From 'Dutton Ranch'
-
-TV News, Yellowstone, Taylor Sheridan, Dutton Ranch, Cole Hauser
-
-Thu, 30 Jul 2026 18:15:14 GMT
-
-https://collider.com/dutton-ranch-star-cole-hauser-taylor-sheridan-exit/
-
-Taylor Sheridan's lack of involvement with Dutton Ranch has finally been addressed by Yellowstone icon Cole Hauser.
----------
-
-# ‘Star Wars’ Brings Back Carl Weathers 2 Years After His Death
-
-Books and Comics News, Carl Weathers, The Mandalorian, The Mandalorian and Grogu, Star Wars
-
-Thu, 30 Jul 2026 17:56:57 GMT
-
-https://collider.com/star-wars-carl-weathers-return-mandalorian-and-grogu-prequel-comic/
-
-Star Wars has officially brought back Carl Weathers’ Greef Karga two years after the actor’s death in a new Mandalorian story.
----------
-
-# Anya Taylor-Joy’s ‘Lord of the Rings’ Debut Gets Key Endorsement
-
-Movie News, Anya Taylor-Joy, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings: The Rings of Power
-
-Thu, 30 Jul 2026 17:52:22 GMT
-
-https://collider.com/anya-taylor-joy-lord-of-the-rings-hunt-for-gollum-rings-of-power-star-advice/
-
-Anya Taylor-Joy gets some advice about playing an Elf in The Lord of the Rings: The Hunt for Gollum from a Rings of Power star.
----------
-
-# ‘Reacher’s Alan Ritchson Officially Breaks His Silence on ‘Fast and Furious 11’ Delays
-
-Movie News, Fast X, Jason Statham, Alan Ritchson, Fast and Furious
-
-Thu, 30 Jul 2026 17:44:29 GMT
-
-https://collider.com/alan-ritchson-fast-and-furious-11-return-explained/
-
-Alan Ritchson explains why Fast XI is taking so long, revealing the franchise must solve some “big problems” before its 2028 return.
----------
-
-# 10 Greatest Books of the Last 100 Years
-
-Books and Comics, Pachinko, The Handmaid's Tale, The Sympathizer, Books
-
-Thu, 30 Jul 2026 17:18:16 GMT
-
-https://collider.com/best-books-last-100-years/
-
-The Color Purple, To Kill a Mockingbird, The Handmaid's Tale, and more make up our list of the best books of the last 100 years.
----------
-
-# Marvel Studios Shockingly Cancels Best MCU Series Despite Renewal Announcement
-
-TV News, Wonder Man, Disney+
-
-Thu, 30 Jul 2026 18:47:25 GMT
-
-https://movieweb.com/wonder-man-disney-plus-canceled-season-2/
-
-In a shocking development, Marvel Studios pulled the plug on a second season for one of its most successful Disney+ shows.
----------
-
-# Throwback Gothic Thriller With Solid Rotten Tomatoes Score Debuts New Trailer
-
-Movie News, Victorian Psycho, Maika Monroe
-
-Thu, 30 Jul 2026 18:11:36 GMT
-
-https://movieweb.com/maika-monroe-victorian-psycho-official-trailer/
-
-Maika Monroe stars in the new thriller 'Victorian Psycho,' which hits theaters in September.
----------
-
-# Leonardo DiCaprio's Long-Awaited Action Thriller Sequel Already Heating Up Trilogy
-
-Movie News, Heat 2, Leonardo DiCaprio
-
-Thu, 30 Jul 2026 18:02:07 GMT
-
-https://movieweb.com/leonardo-dicaprio-heat-3-early-talks/
-
-The studio is so confident in the long-awaited action thriller sequel that a third film is in the works.
 ---------
