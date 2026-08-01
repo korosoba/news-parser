@@ -1,3 +1,289 @@
+# Marvel's New Thor Is Officially Working For Mephisto
+
+Marvel Comics, Thor
+
+Sat, 01 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/thor-mephisto-red-norvell/
+
+Thor's mortal copycat meets a tragic fate as Mephisto claims him as his very own God of Thunder, possibly leading to the birth of a new villain.
+---------
+
+# 5 Lord Of The Rings Games That Are Genuinely Worth Your Time
+
+Gaming, The Lord of the Rings
+
+Sat, 01 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/5-lord-of-the-rings-games-genuinely-worthwhile/
+
+The Lord of the Rings is the most beloved fantasy franchise in history, and it's had some pretty awesome games to suit that status.
+---------
+
+# Apple TV's 30-Episode Masterpiece Is The Best Espionage Series Of All Time
+
+TV, Masked Recs
+
+Sat, 01 Aug 2026 12:59:11 GMT
+
+https://screenrant.com/slow-horses-apple-best-espionage-tv-series/
+
+Apple TV's spy drama masterpiece broke all the rules of the genre, offering viewers a fresh, original, and unpredictable look at espionage.
+---------
+
+# Mark Ruffalo Breaks Silence About Spider-Man: Brand New Day After Hulk’s Return
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 01 Aug 2026 12:55:18 GMT
+
+https://screenrant.com/spider-man-brand-new-day-hulk-return-success-mark-ruffalo-comment/
+
+On the heels of his return as the Hulk in Spider-Man: Brand New Day, Mark Ruffalo breaks his silence about the success of the Tom Holland's film.
+---------
+
+# Spider-Man: Brand New Day Bootleg Leak Watched By Millions
+
+Movies, Spider-Man: Brand New Day
+
+Sat, 01 Aug 2026 12:43:47 GMT
+
+https://screenrant.com/spider-man-brand-new-day-bootleg-leak/
+
+Spider-Man: Brand New Day wasn't watched the way Marvel Studios and Sony intended, as another bootleg leak circulated online reaching millions.
+---------
+
+# Resident Evil’s Zach Cregger & Austin Abrams Balance Fidelity To The Games With A New Story
+
+Videos, Resident Evil, San Diego Comic-Con, Zach Cregger
+
+Sat, 01 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/video/resident-evil-zach-cregger-austin-abrams-interview-sdcc-2026/
+
+Resident Evil director Zach Cregger and star Austin Abrams reflect on their journey from Weapons to the present day and share how the movie stays true to the spirit of the games without reusing its iconic lead character.
+---------
+
+# The Big Bang Theory Finally Explains Its First-Ever Recast After 20 Years
+
+Network TV, The Big Bang Theory, Stuart Fails to Save the Universe
+
+Sat, 01 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/stuart-fails-to-save-the-universe-penny-kaley-cuoco-the-big-bang-theory-recast-explain/
+
+A decade since the recast happened, Chuck Lorre and Bill Prady effectively explains  why The Big Bang Theory's first-ever recast had to happen.
+---------
+
+# 5 DC Heroes So Hardcore, They Got Fired from the Justice League
+
+Comics, Justice League, DC
+
+Sat, 01 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/justice-league-heroes-fired/
+
+These heroes didn't have what it takes to be part of DC's premier team super team
+---------
+
+# Henry Cavill's Warhammer 40k Series Writer Makes One Story Adaptation Way More Likely
+
+Movies, Warhammer 40K, Warhammer 40k
+
+Sat, 01 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/warhammer-40k-series-mike-flanagan-eisenhorn-adaptation/
+
+The new writer who is part of the upcoming Prime Video Warhammer 40k adaptation primes the series to be a perfect fit for one major 40k book story.
+---------
+
+# All Spider-Man Comic References In Brand New Day, Explained
+
+Comics, Spider-Man: Brand New Day, Spider-Man, Marvel
+
+Sat, 01 Aug 2026 13:00:15 GMT
+
+https://www.cbr.com/every-spider-man-comic-reference-in-brand-new-day-list/
+
+Spider-Man: Brand New Day is packed with easter eggs and nods to the comics that even some of the most die-hard fans might have missed.
+---------
+
+# 10 Best Thriller Books Recommended by Stephen King
+
+Movies, Stephen King, Thriller
+
+Sat, 01 Aug 2026 13:00:15 GMT
+
+https://www.cbr.com/best-thriller-books-recommended-by-stephen-king-list/
+
+From classics to modern hidden gems, these are the best thriller books recommended by Stephen King.
+---------
+
+# Justin Long's 101-Minute A24 Body Horror Is Now Streaming on HBO Max
+
+Movies, Tusk
+
+Sat, 01 Aug 2026 13:00:15 GMT
+
+https://www.cbr.com/justin-long-tusk-body-horror-streaming-hbo-max-august-2026/
+
+The movie flopped in theaters and had mixed reviews, but it can be discovered by a new audience on its new streaming home.
+---------
+
+# 3 Taylor Sheridan Shows Better Than Landman
+
+TV, Landman, Mayor of Kingstown, 1923, Tulsa King
+
+Sat, 01 Aug 2026 12:30:15 GMT
+
+https://www.cbr.com/taylor-sheridan-shows-better-than-landman-list/
+
+Paramount+'s Landman is a fan-favorite series, but a few other Taylor Sheridan shows are even better.
+---------
+
+# Absolute Batman Japanese Release Confirms Use of the Series' Best Cover
+
+Comics, Absolute Batman, Batman
+
+Sat, 01 Aug 2026 12:01:14 GMT
+
+https://www.cbr.com/absolute-batman-japanese-release-mark-brooks-cover/
+
+Japan is getting a great look at Absolute Batman.
+---------
+
+# Peter Jackson's Canceled Halo Movie Deserves a Second Chance
+
+Movies, Halo, Sci-Fi, peter jackson
+
+Sat, 01 Aug 2026 12:01:14 GMT
+
+https://www.cbr.com/peter-jackson-canceled-halo-movie-deserves-revival/
+
+Now is the perfect time to revive Peter Jackson's plans for his scrapped film adaptation of the Halo video game series.
+---------
+
+# 8 Disney Movie Endings That Are Genuine Masterpieces
+
+Movie, Disney, Tangled, Beauty and the Beast, Pirates of the Caribbean: Dead Man's Chest
+
+Sat, 01 Aug 2026 12:46:14 GMT
+
+https://collider.com/disney-movie-endings-masterpieces/
+
+From the animated classic The Lion King to the action sequel Pirates of the Caribbean: Dead Man's Chest, these Disney movie endings are masterpieces.
+---------
+
+# Gerard Butler's 129-Minute Action Biopic Makes a Streaming Comeback
+
+Movie News, Gerard Butler, Action, Machine Gun Preacher, Paramount Plus
+
+Sat, 01 Aug 2026 12:45:15 GMT
+
+https://collider.com/gerard-butler-machine-gun-preacher-streaming-paramount-plus-august-2026/
+
+Machine Gun Preacher, Gerard Butler's 129-minute action biopic bomb, is back on streaming. Here's everything you should know.
+---------
+
+# Guy Ritchie's Definitive Crime Movie Is Taking Over Streaming Before the Spin-Off Returns
+
+Movie News, Guy Ritchie, Netflix, The Gentlemen
+
+Sat, 01 Aug 2026 12:30:15 GMT
+
+https://collider.com/guy-ritchie-the-gentlemen-movie-streaming-success-netflix-august-2026/
+
+Guy Ritchie’s The Gentlemen is back on the streaming charts ahead of the Netflix spin-off’s Season 2 return in September.
+---------
+
+# Marvel's X-Men Casting Just Set Up the Perfect Rivalry After 'Spider-Man: Brand New Day'
+
+Movie Features, Spider-Man: Brand New Day, MCU, X-Men, Samara Weaving
+
+Sat, 01 Aug 2026 12:20:15 GMT
+
+https://collider.com/x-men-emma-frost-casting-samara-weaving-emma-scott-jean-love-triangle/
+
+Samara Weaving has just been cast as Emma Frost, which may lead to the underrepresented love triangle featuring the psychic, Cyclops, and Jean Grey.
+---------
+
+# ‘The Pitt’ Fans Shouldn’t Miss This Forgotten Medical Drama
+
+TV Features, Red Band Society, The Pitt, Fox, Series
+
+Sat, 01 Aug 2026 12:17:15 GMT
+
+https://collider.com/the-pitt-red-band-society-series-medical-drama/
+
+The Pitt fans looking for another emotional hospital drama should rediscover Fox’s overlooked Red Band Society.
+---------
+
+# The Greatest Guy Ritchie Movie of All Time Is Officially Streaming for Free
+
+Movie Features, Snatch, Guy Ritchie, Brad Pitt, Jason Statham
+
+Sat, 01 Aug 2026 12:14:15 GMT
+
+https://collider.com/guy-ritchie-jason-statham-snatch-streaming-free-pluto-tv-august-2026/
+
+Guy Ritchie's 2000 gangster comedy Snatch, the director's best film that also gave Jason Statham his big break, is streaming free on Pluto TV.
+---------
+
+# ‘Spider-Man: Brand New Day’ Officially Uses the MCU Better Than Any Marvel Movie Before It
+
+Movie Features, Tom Holland, Spider-Man: Brand New Day, MCU, Spider-Man
+
+Sat, 01 Aug 2026 12:03:14 GMT
+
+https://collider.com/spider-man-brand-new-day-best-mcu-shared-universe/
+
+Spider-Man: Brand New Day succeeds by treating the MCU like a living world around Peter Parker, not the focus of his story.
+---------
+
+# This 'Simpsons' Marvel Parody Is Still Funnier Than the Actual Movies
+
+TV Features, The Simpsons, Fox, Marvel, Venom
+
+Sat, 01 Aug 2026 12:03:14 GMT
+
+https://collider.com/the-simpsons-venom-parody-treehouse-of-horror/
+
+The Treehouse of Horror episodes are a Halloween tradition, and this episode focused on a specific pair-up between Homer Simpson and denim.
+---------
+
+# 10 Greatest Novellas of All Time
+
+Books and Comics, Books, Animal Farm, Of Mice and Men, The Metamorphosis
+
+Sat, 01 Aug 2026 12:03:14 GMT
+
+https://collider.com/best-novellas-all-time-ranked/
+
+Shorter than a normal book but no less complex, the novella has a unique place in literature, producing classics like Animal Farm and Of Mice and Men.
+---------
+
+# 13 Years Later, Guillermo del Toro’s Sci-Fi Powerhouse Is a Global Streaming Sleeper Hit
+
+Movie News, Pacific Rim, Guillermo del Toro, Idris Elba, Charlie Hunnam
+
+Sat, 01 Aug 2026 12:01:14 GMT
+
+https://collider.com/guillermo-del-toro-sci-fi-pacific-rim-streaming-success-prime-video-apple-tv-july-2026/
+
+Guillermo del Toro's overlooked sci-fi thriller has become a global streaming success less than one year after Frankenstein.
+---------
+
+# Liam Neeson's $795 Million Action Epic Storms Onto New Streaming Home
+
+Movie News, Liam Neeson, Clash of the Titans, Wrath of the Titans, Coming/Leaving Streaming, Action
+
+Sat, 01 Aug 2026 12:00:12 GMT
+
+https://movieweb.com/liam-neeson-clash-of-the-titans-action-streaming-peacock-august-2026/
+
+Ahead of his new action thrillers, 'The Fix' and 'The Mongoose,' Neeson's blockbuster action epic is set to finally return to streaming.
+---------
+
 # Star Wars: Queen Amidala Officially Returns In 2027
 
 Gaming, Star Wars
@@ -5210,290 +5496,4 @@ Thu, 30 Jul 2026 20:58:15 GMT
 https://www.cbr.com/lotr-official-new-release-white-tower-hall-of-gold-september-2026/
 
 Free League has announced The White Tower and the Hall of Gold, a new Lord of the Rings release that takes players to Gondor and Rohan.
----------
-
-# Game of Thrones: The Mad King First Reactions Finally Arrive After Canceled Previews
-
-TV, Game Of Thrones, Fantasy
-
-Thu, 30 Jul 2026 20:57:04 GMT
-
-https://www.cbr.com/game-of-thrones-the-mad-king-first-reactions/
-
-Fans share strong reactions to the first-ever performance of the Game of Thrones prequel.
----------
-
-# Star Trek: Strange New Worlds: Bruce Campbell as Santa? | SDCC 2026
-
-TV, Star Trek: Strange New Worlds
-
-Thu, 30 Jul 2026 20:43:59 GMT
-
-https://www.cbr.com/video/star-trek-strange-new-worlds-bruce-campbell-as-santa-sdcc-2026/
-
-Star Trek: Strange New Worlds stars Anson Mount, Ethan Peck, and Celia Rose Gooding reflect on the franchise's 60th anniversary while revealing one of the funniest behind-the-scenes ideas yet.The cast discusses Pike's evolving legacy, Ethan Peck reacts to fans embracing "Hot Spock," and Celia Rose Gooding shares why meeting neurodivergent and multi-generational Trek fans has become one of the most meaningful parts of the job. They also revisit one of Season 3's darkest storylines before Anson Mount reveals the hilarious pitch for a Star Trek: Strange New Worlds Christmas special—complete with Bruce Campbell as Santa Claus.
----------
-
-# Star Trek: Strange New Worlds: The Kirk Story Fans Needed | SDCC 2026
-
-TV, Star Trek: Strange New Worlds
-
-Thu, 30 Jul 2026 20:36:54 GMT
-
-https://www.cbr.com/video/star-trek-strange-new-worlds-the-kirk-story-fans-needed-sdcc-2026/
-
-Star Trek: Strange New Worlds stars Paul Wesley, Christina Chong, Melissa Navia, Akiva Goldsman, and Henry Alonso Myers break down Season 4, Kirk's evolution, Ortegas' emotional journey, and the future of the franchise at SDCC 2026.
----------
-
-# Mark Wahlberg's Forgotten 119-Minute Action Thriller Is Officially a Global Smash on Streaming
-
-Movies, The Gambler, Paramount+ with Showtime
-
-Thu, 30 Jul 2026 20:30:22 GMT
-
-https://www.cbr.com/the-gambler-action-thriller-streaming-success-july-2026/
-
-Mark Wahlberg's forgotten action thriller makes a surprise comeback on streaming over a decade later.
----------
-
-# 16 Years Later, Sam Winchester's Greatest Supernatural Quote Remains 100% Undisputed
-
-TV, Supernatural
-
-Thu, 30 Jul 2026 20:30:15 GMT
-
-https://www.cbr.com/supernatural-best-sam-winchester-quote/
-
-The emotional weight of Supernatural has always lain on the shoulders of the youngest Winchester brother.
----------
-
-# 10 Harry Potter Book Moments the Movies Could Never Do Justice
-
-Movies, Harry Potter
-
-Thu, 30 Jul 2026 20:30:15 GMT
-
-https://www.cbr.com/harry-potter-book-moments-the-movies-failed-list/
-
-For as beloved as the Harry Potter movies are, there is no doubt that the movies failed to adapt some of the best book moments.
----------
-
-# Ryan Condal's Biggest Gamble Could Ruin 'House of the Dragon's Most Anticipated Battle
-
-TV Features, House of the Dragon, Olivia Cooke, Ewan Mitchell, HBO Max
-
-Thu, 30 Jul 2026 21:27:14 GMT
-
-https://collider.com/house-of-the-dragon-season-3-alicent-aemond-harrenhal-gods-eye/
-
-House of the Dragon's Season 3 takes a significant risk that could impact the highly anticipated Battle Above the Gods Eye.
----------
-
-# 25 Best Rock Albums of All Time
-
-Music Features, Music, Rock, The Beatles, The Rolling Stones
-
-Thu, 30 Jul 2026 21:27:14 GMT
-
-https://collider.com/best-rock-albums-all-time-ranked/
-
-Abbey Road by The Beatles, American Idiot by Green Day, and Rumours by Fleetwood Mac are among the best rock albums in music history.
----------
-
-# 10 Best-Selling Video Games of All Time
-
-Gaming, Video Game, PUBG, Mario Kart, Tetris
-
-Thu, 30 Jul 2026 21:19:15 GMT
-
-https://collider.com/best-selling-video-games-all-time-ranked/
-
-Grand Theft Auto V, Tetris, and Minecraft are all among the best-selling titles in the history of gaming.
----------
-
-# 10 Perfect Movies Based on Books, Ranked
-
-Movie, Howl's Moving Castle, Legally Blonde, Books, Pride & Prejudice
-
-Thu, 30 Jul 2026 21:09:14 GMT
-
-https://collider.com/perfect-movies-based-on-books-ranked/
-
-Project Hail Mary, The Devil Wears Prada, and Pride & Prejudice are some of the best, genuinely perfect movies based on books.
----------
-
-# 15 Movies From the 2020s That Deserve a Larger Audience
-
-Movie, American Fiction, Pig, Judas and the Black Messiah, Steve
-
-Thu, 30 Jul 2026 20:57:15 GMT
-
-https://collider.com/15-movies-2020s-deserve-larger-audience/
-
-While quality movies have come more accessible due to the streamers, more & more are getting buried and lost as well.
----------
-
-# Prime Video Scores Big as 3-Part Steamy Spin on 'Fast & Furious' Franchise Dominates Streaming
-
-Movie News, My Fault
-
-Thu, 30 Jul 2026 21:00:12 GMT
-
-https://movieweb.com/culpa-mia-tuya-nuestra-prime-video-stream-july-2026/
-
-Mercedes Ron's romance trilogy surged up Prime Video's top ten last week.
----------
-
-# The Best Line in 'The Exorcist' Is Still the Greatest Horror Movie Quote
-
-Features, The Exorcist, Great Line
-
-Thu, 30 Jul 2026 21:00:12 GMT
-
-https://movieweb.com/the-exorcist-great-horror-quote/
-
-'The Exorcist,' the horror movie starring Linda Blair as Regan MacNeil, was released in 1973 and has many memorable quotes.
----------
-
-# Ridley Scott Making Real-Life Epic Survival Adaptation From 'The Revenant' Scribe
-
-Movie News, The Revenant
-
-Thu, 30 Jul 2026 20:41:38 GMT
-
-https://movieweb.com/ridley-scott-ernest-shackleton-movie-netflix/
-
-Scott is producing the movie based on Ernest Shackleton, which is set to head to Netflix.
----------
-
-# A '90s Cult Classic Is Officially Getting a Sequel Series With Original Star Returning
-
-TV News, Clueless
-
-Thu, 30 Jul 2026 20:33:46 GMT
-
-https://movieweb.com/clueless-sequel-series-alicia-silverstone/
-
-A 'Clueless' sequel series is officially moving forward at Paramount+, with Alicia Silverstone returning as Cher.
----------
-
-# New 'Exorcist' Release Debuts Trailer Ahead of Mike Flanagan Reboot
-
-Movie News, The Exorcist
-
-Thu, 30 Jul 2026 20:24:40 GMT
-
-https://movieweb.com/boorman-and-the-devil-exorcist-2-documentary-trailer/
-
-The documentary 'Boorman and the Devil' chronicles the troubled production of 'Exorcist II: The Heretic.'
----------
-
-# Skyrim's Massive 700-Player Mod Is Breathtaking And Ridiculous
-
-Gaming, The Elder Scrolls V: Skyrim, PC, The Elder Scrolls
-
-Thu, 30 Jul 2026 20:00:11 GMT
-
-https://screenrant.com/skyrim-700-player-multiplayer-mod/
-
-This brand-new Skyrim mod has to be seen to be believed, as it allows up to 700 people to game's huge open-world together.
----------
-
-# What's Coming To Disney+ & Hulu In August 2026: Full List Of TV Shows & Movies
-
-Streaming TV, Hulu, Disney+
-
-Thu, 30 Jul 2026 20:00:11 GMT
-
-https://screenrant.com/everything-coming-to-disney-plus-hulu-august-2026/
-
-All the latest additions to Disney+ & Hulu in August 2026, including new TV shows, movies, and live sports events. Find the full list of titles here.
----------
-
-# Celebrate Polynesian Culture With Moana: Voices Across The Ocean Album Track Snippet
-
-Exclusive, Moana, Dwayne Johnson
-
-Thu, 30 Jul 2026 19:53:17 GMT
-
-https://screenrant.com/moana-voices-across-the-ocean-album-track-dwayne-johnson-produced/
-
-Exclusive: ScreenRant presents a preview of "In the Waves" by Iam Tongi & Paula Fuga, from Moana: Voices Across The Ocean, produced by Dwayne Johnson.
----------
-
-# HBO Sets New Series Adaptation From Ted Lasso Creator
-
-TV, Bill Lawrence, Ted Lasso
-
-Thu, 30 Jul 2026 19:49:39 GMT
-
-https://screenrant.com/hbo-alan-opts-out-bill-lawrence-series-adaptation/
-
-After creating shows like Scrubs, Ted Lasso, Shrinking and Rooster, Bill Lawrence has a new comedy in the works at HBO that’s based on a novel.
----------
-
-# 7 TV Shows To Watch If You Love Jumanji
-
-Classic TV, Jumanji
-
-Thu, 30 Jul 2026 19:30:11 GMT
-
-https://screenrant.com/tv-shows-like-jumanji-to-watch/
-
-If you enjoy the whimsy, adventure, danger, and tropical, gorgeous locations of the Jumanji franchise, then these seven shows will be up your alley.
----------
-
-# Interview With The Vampire Sets Exciting New Release In September
-
-Movies, Interview with the Vampire
-
-Thu, 30 Jul 2026 19:08:05 GMT
-
-https://screenrant.com/interview-with-the-vampire-movie-4k-bluray-release-date/
-
-Following the recent finale of Interview with the Vampire season 3, Anne Rice’s hit franchise is getting a new release in less than two months.
----------
-
-# The Expert Take on Lord of the Rings, Rings of Power and The Tolkien Oeuvre
-
-Movies, The Lord of the Rings, The Lord of the Rings: The Rings of Power, Originals
-
-Thu, 30 Jul 2026 19:04:21 GMT
-
-https://screenrant.com/video/the-expert-take-on-lord-of-the-rings-rings-of-power-and-the-tolkien-oeuvre/
-
-With Rings of Power on the horizon, along with a Gollum prequel and Stephen Colbert's rumored Shadow of the Past, we sat down with Lord of the Rings expert, Dr. Gerry Canavan.Dr. Canavan reacts to iconic scenes from the films and show, contextualizing them within their source material and delving into the deeper meanings behind Tolkien's themes.Let's dive in...
----------
-
-# Ghost Rider: Ryan Gosling Fits Better Than It Seems
-
-Movies, Originals
-
-Thu, 30 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/video/ghost-rider-ryan-gosling-fits-better-than-it-seems/
-
-Ryan Gosling's Ghost Rider Is Marvel's Biggest Gamble. Marvel has officially cast Ryan Gosling as Johnny Blaze, finally bringing Ghost Rider back to the MCU after years of fan speculation. But this isn't just another exciting casting announcement—it could become one of the most important movies Marvel Studios has ever made.
----------
-
-# Star Trek Has Its Own X-Files (Too Bad It Can't Be A Show)
-
-TV, Star Trek, Star Trek: Strange New Worlds
-
-Thu, 30 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/star-trek-strange-new-worlds-division-12-starfleet-x-files/
-
-Star Trek: Strange New Worlds season 4 reveals that Starfleet has its own version of The X-Files investigating the weirdest phenomena in the galaxy.
----------
-
-# 5 Amazing Spider-Man Games Nobody Remembers
-
-Gaming, Spider-Man
-
-Thu, 30 Jul 2026 19:00:11 GMT
-
-https://screenrant.com/spider-man-games-nobody-remembers/
-
-Some of the best Spider-Man games ever have eclipsed others that are arguably better, resulting in them being forgotten or overlooked for decades.
 ---------
