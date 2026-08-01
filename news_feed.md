@@ -1,3 +1,25 @@
+# Game Of Thrones: Starshower Officially Unveiled
+
+Gaming, Game of Thrones, Game Of Thrones, House of the Dragon, PC
+
+Sat, 01 Aug 2026 06:00:11 GMT
+
+https://screenrant.com/game-of-thrones-dragonfire-starshower-wishkeeper-reveal/
+
+Game of Thrones: Starshower - The Wishkeeper is an exciting new release that introduces a beautiful new dragon to the iconic fantasy universe.
+---------
+
+# Rebecca Ferguson’s Bonkers ‘Alien’ Replacement Is Officially the Perfect Sci-Fi Sleeper Hit
+
+Movie News, Life, Rebecca Ferguson, Alien, Ryan Reynolds
+
+Sat, 01 Aug 2026 08:00:14 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-horror-life-streaming-success-prime-video-apple-tv-july-2026/
+
+Rebecca Ferguson's sci-fi movie with Ryan Reynolds and Jake Gyllenhaal has become the perfect sleeper hit on streaming.
+---------
+
 # August 2026 Video Game Releases: Full List And Highlights
 
 Gaming, Upcoming Games, Triple-A Games, Indie Games, PC
@@ -5474,26 +5496,4 @@ Thu, 30 Jul 2026 19:00:12 GMT
 https://movieweb.com/masters-of-the-universe-action-prime-video-streaming-july-2026/
 
 It might have flopped in theaters, but Amazon has found the power with its newest global sensation that remakes an '80s cult classic.
----------
-
-# Marvel Cancels Wonder Man Season 2 Renewal
-
-TV, Wonder Man, Marvel Cinematic Universe
-
-Thu, 30 Jul 2026 18:40:16 GMT
-
-https://screenrant.com/wonder-man-season-2-renewal-cancelled-reversed/
-
-Despite having renewed Wonder Man for season 2, Marvel Studios has now gone on to cancel one of the MCU's most popular TV shows in shocking fashion.
----------
-
-# Disney Star Wars' Most Epic Lightsaber Duel Was Worth The 6-Year Wait
-
-Streaming TV, Star Wars, Star Wars: The Clone Wars
-
-Thu, 30 Jul 2026 18:30:11 GMT
-
-https://screenrant.com/maul-ahsoka-star-wars-clone-wars-epic-lightsaber-duel/
-
-It took six years for Disney to bring us this epic Star Wars lightsaber duel, but it was undeniably worth the wait. This was the ultimate matchup.
 ---------
