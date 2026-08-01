@@ -1,3 +1,388 @@
+# Emilia Clarke’s New Crime Thriller Can Be Her Best Show Since Game Of Thrones
+
+Streaming TV, Masked Recs
+
+Sat, 01 Aug 2026 02:00:21 GMT
+
+https://screenrant.com/emilia-clarke-prime-video-criminal-adaptation/
+
+Emilia Clarke’s upcoming crime thriller on Prime Video seems to have incredible potential and can become her best TV show since HBO’s Game of Thrones.
+---------
+
+# Harley Quinn Is Back In 2026 With The Perfect Role For James Gunn's DC Universe
+
+Streaming TV, Masked Recs
+
+Sat, 01 Aug 2026 01:43:49 GMT
+
+https://screenrant.com/harley-quinn-batman-caped-crusader-james-gunn-dc-universe-role/
+
+Harley Quinn is back in Batman's exciting new release, and the 2026 project shows what is her perfect role for James Gunn's DC Universe.
+---------
+
+# Forgotten Fantasy TV Masterpiece Can Be Binged In Just 1 Week
+
+Streaming TV, Masked Recs
+
+Sat, 01 Aug 2026 01:15:11 GMT
+
+https://screenrant.com/dead-like-me-forgotten-fantasy-masterpiece-bingeable/
+
+A fantasy from the 2000s is truly a masterpiece in entertainment and dark comedy, but it has been forgotten over time. But it's now free to watch.
+---------
+
+# 3 Years Later, Stranger Things' Crossover With A $17 Billion '80s Franchise Is Aging Better Than Season 5
+
+Comics, Stranger Things, Masked Recs
+
+Sat, 01 Aug 2026 01:00:11 GMT
+
+https://screenrant.com/stranger-things-tmnt-crossover-better-than-season-5/
+
+While certainly out-there as far as team-ups go, this particular collaboration between publishers brings the spirit of the '80s to New York City.
+---------
+
+# A Stephen King Shared Universe Theory Will Make Sense After Mike Flanagan’s Carrie
+
+Streaming TV, Masked Recs
+
+Sat, 01 Aug 2026 01:00:11 GMT
+
+https://screenrant.com/stephen-king-shared-universe-theory-carrie-institute/
+
+One of the most intriguing shared universe theories surrounding Stephen King’s works will make more sense after Mike Flanagan’s upcoming adaptation.
+---------
+
+# Metal Gear Solid Meets Game Of Thrones In New Dark Fantasy RPG
+
+Gaming, Metal Gear Solid, Game of Thrones, Resonance: A Plague Tale Legacy
+
+Sat, 01 Aug 2026 01:00:11 GMT
+
+https://screenrant.com/plague-tale-metal-gear-meets-game-of-thrones/
+
+Fans of Game of Thrones world and story as well as Metal Gear Solid's fantastic stealth gameplay will want to check out this new fantasy RPG.
+---------
+
+# DC Unveils Epic Fantasy Redesign For Batman’s Strongest Villain
+
+DC Comics, Batman
+
+Sat, 01 Aug 2026 00:35:00 GMT
+
+https://screenrant.com/bane-fantasy-redesign-batman-villain-dc-dark-knights-steel/
+
+DC is buffing one of its best and most intimidating Batman villains in a brand-new sequel series that is drawing him out of the depths he was cast to.
+---------
+
+# Disney+’s Newest Canceled Show Signals The End Of An Era
+
+Superheroes, Disney Plus, Marvel Cinematic Universe, Wonder Man
+
+Sat, 01 Aug 2026 00:30:11 GMT
+
+https://screenrant.com/disney-marvel-wonder-man-show-cancel-end-era/
+
+Disney+ has canceled a major TV show ahead of season 2, and the move signals the end of an era for what types of series will be on the streamer.
+---------
+
+# 7 Plotlines Harry Potter Can't Mess Up This Time
+
+Streaming TV, Harry Potter
+
+Sat, 01 Aug 2026 00:30:11 GMT
+
+https://screenrant.com/harry-potter-show-plotlines-cant-mess-up/
+
+It's impossible for a screen adaptation to get it all right, but HBO's Harry Potter TV show will have no excuse if it drops the ball on these stories.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (August 1-2)
+
+Movies, Prime Video, Recommendation
+
+Sat, 01 Aug 2026 00:22:02 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-august-1/
+
+Prime Video's best movies to watch this weekend include a new shark thriller, a video game adventure adaptation, and a spy thriller with Jon Bernthal.
+---------
+
+# The 24-Episode Sci-Fi Masterpiece Based on an Classic Book
+
+Anime, Gankutsuou The Count of Monte Cristo, Sci-Fi
+
+Sat, 01 Aug 2026 02:00:24 GMT
+
+https://www.cbr.com/sci-fi-masterpiece-gankutsuou-count-of-monte-cristo/
+
+Rather than competing with its literary inspiration, Gankutsuou builds a distinct identity that feels impossible to mistake for anything else.
+---------
+
+# 5 Stephen King Books Better Than Salem's Lot
+
+TV, Horror, Stephen King, Salem's Lot, The Shining
+
+Sat, 01 Aug 2026 02:00:24 GMT
+
+https://www.cbr.com/stephen-king-books-better-than-salems-lot-list/
+
+Salem's Lot is without a doubt one of Stephen King's defining works, but the prolific author's catalog is filled with unforgettable classics.
+---------
+
+# 8 Things That Happen In Harry Potter's First Book That Everyone Forgets
+
+Movies, Harry Potter, Harry Potter and the Sorcerer's Stone, Fantasy
+
+Sat, 01 Aug 2026 02:00:24 GMT
+
+https://www.cbr.com/harry-potter-sorcerers-stone-forgotten-facts-list/
+
+Although the movie version of Harry Potter and the Sorcerer's Stone is pretty faithful to the book, there are a few things the movie doesn't include.
+---------
+
+# 10 Greatest Anime Movies of the 2000s, Ranked
+
+Anime, Studio Ghibli
+
+Sat, 01 Aug 2026 01:45:15 GMT
+
+https://www.cbr.com/greatest-anime-movies-of-the-2000s-ranked/
+
+The 2000s changed anime forever, and it was films like Spirited Away and The Girl Who Leapt Through Time are what brought it to the mainstream.
+---------
+
+# 10 Best Anime Crossover Games, Ranked
+
+Anime, mecha, Shonen, Video Games, Shonen Jump
+
+Sat, 01 Aug 2026 01:25:14 GMT
+
+https://www.cbr.com/best-anime-crossover-games-ranked/
+
+Whether it's mecha or shonen, there are plenty of games that prove anime can work in crossovers.
+---------
+
+# Naruto vs. Boruto Is Finally Settled in New Official Anime Ranking
+
+Anime, Naruto, Boruto: Naruto Next Generations
+
+Sat, 01 Aug 2026 01:13:37 GMT
+
+https://www.cbr.com/naruto-vs-boruto-tv-tokyo-anime-ranking/
+
+Japanese broadcaster TV Tokyo’s anime sales data has officially revealed which series performed better.
+---------
+
+# 5 Anime Endings That Are 10/10, No Notes
+
+Anime, Attack on Titan, Fruits Basket
+
+Sat, 01 Aug 2026 00:45:16 GMT
+
+https://www.cbr.com/best-anime-endings-perfect/
+
+Some anime finales disappoint and leave questions unanswered, but these five series have perfect endings.
+---------
+
+# The 25-Episode Sci-Fi Masterpiece is Based On an Award-Winning Book
+
+Anime, From the New World, Fantasy
+
+Sat, 01 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/from-the-new-world-sci-fi-masterpiece-anime-award-winning-book/
+
+From the New World is a groundbreaking sci-fi/fantasy series that explores systemic abuse and oppression through a powerful, provoking lens.
+---------
+
+# Prime Video's 8-Part Retro Sci-Fi Series Is the Best Slow-Burn Show of the Decade
+
+TV, Sci-Fi, Tales from the Loop, Prime Video
+
+Sat, 01 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/tales-from-the-loop-prime-video-best-slow-burn-sci-fi-show/
+
+Based on Simon Stålenhag’s artwork, Prime Video's Tales from the Loop swaps sci-fi action for emotional and atmospheric nostalgia.
+---------
+
+# 5 Anime Heroes With Powers Stronger Than Sukuna
+
+Anime, Jujutsu Kaisen, One Piece, Sailor Moon, Dragon Ball, Naruto, My Hero Academia
+
+Sat, 01 Aug 2026 00:15:15 GMT
+
+https://www.cbr.com/anime-heroes-stronger-than-sukuna-jjk/
+
+Ryomen Sukuna is no match for these anime heroes, who have proved their worth countless times.
+---------
+
+# ‘Dungeons & Dragons’ Officially Announces Star Wars Crossover
+
+Movie News, Star Wars, World of Warcraft, Dungeons and Dragons, Fantasy
+
+Sat, 01 Aug 2026 02:00:24 GMT
+
+https://collider.com/dungeons-and-dragons-star-wars-world-of-warcraft-crossover/
+
+Dungeons & Dragons expands its horizons with Universes Beyond, announcing collaborations with World of Warcraft and Star Wars.
+---------
+
+# 'The Walking Dead' Meets 'Jack Ryan' in Netflix's 5-Part Apocalypse Series
+
+TV Features, The Last Ship, TNT, Netflix, Eric Dane
+
+Sat, 01 Aug 2026 01:55:14 GMT
+
+https://collider.com/the-last-ship-netflix-post-apocalyptic-series/
+
+The hit action-drama TV series The Last Ship presents the perfect mix of apocalyptic drama like The Walking Dead and Jack Ryan-style intrigue.
+---------
+
+# One of Horror’s Most Disturbing Movies Returns in 4K Just in Time for Halloween
+
+Movie News, Horror, Blu-ray, Martyrs, Mylène Jampanoï
+
+Sat, 01 Aug 2026 01:30:15 GMT
+
+https://collider.com/martyrs-horror-movie-4k-blu-ray-release-date-october-2026/
+
+A notorious French horror classic returns in 4K before Halloween, bringing one of the genre’s most unsettling experiences back.
+---------
+
+# Prime Video's 2026 Detective Masterpiece Passes Yet Another Major Milestone
+
+Movie News, The Sheep Detectives, Hugh Jackman, Project Hail Mary, Prime Video
+
+Sat, 01 Aug 2026 01:00:15 GMT
+
+https://collider.com/prime-video-the-sheep-detectives-streaming-success-july-2026/
+
+Hugh Jackman's hit 2026 detective movie continues to score huge numbers on Prime Video. Read on for more.
+---------
+
+# Quentin Tarantino's 'Pulp Fiction' Has a Secret Connection to FX's Newest Thriller
+
+Movie Features, The Rules of Attraction, The Shards, Roger Avary, Pulp Fiction
+
+Sat, 01 Aug 2026 00:45:16 GMT
+
+https://collider.com/ryan-murphy-the-shards-bret-easton-ellis-rules-of-attraction-quentin-tarantino-streaming-free-tubi/
+
+2002's Rules of Attraction saw Pulp Fiction co-writer Roger Avary direct a story by The Shards co-creator Bret Easton Ellis, and it's streaming free.
+---------
+
+# Noah Wyle's Medical Drama Is Still One of the Best Shows Ever Made 32 Years Later
+
+TV Features, ER, The Pitt, Noah Wyle, Michael Crichton
+
+Sat, 01 Aug 2026 00:39:14 GMT
+
+https://collider.com/er-noah-wyle-medical-drama-series-best-show-ever-made/
+
+Noah Wyle's portrayal of Dr. John Carter in the medical drama ER remains a standout performance 32 years later.
+---------
+
+# Forget 'The Lord of the Rings', a $400M Fantasy Epic Just Debuted a Lavish Trailer
+
+Movie News, Ramayana, Ranbir Kapoor, Bollywood, Fantasy
+
+Sat, 01 Aug 2026 00:30:14 GMT
+
+https://collider.com/ramayana-trailer-lord-of-the-rings-replacement-ranbir-kapoor/
+
+The mega-budget mythological epic film Ramayana debuted its first trailer to mixed response ahead of its global theatrical release later this year.
+---------
+
+# 6 Best Superhero Movies Released Since 2010
+
+Movie, Superhero, Spider-Man: Brand New Day, Superman, Spider-Man Into the Spider-Verse
+
+Sat, 01 Aug 2026 00:11:14 GMT
+
+https://collider.com/best-superhero-movies-released-since-2010/
+
+Spider-Man: Brand New Day, Black Panther, and James Gunn's Superman are all among the best superhero movies released since the year 2010.
+---------
+
+# 8 Essential Pokémon Games, Ranked
+
+Gaming, Pokémon, Pokemon Legends   Arceus, Nintendo
+
+Sat, 01 Aug 2026 00:02:15 GMT
+
+https://collider.com/pokemon-games-essential-ranked/
+
+Pokémon Legends: Arceus, Pokémon HeartGold and SoulSilver, and Pokémon Red and Blue are among the best, most essential video games in the franchise.
+---------
+
+# Ridley Scott’s First Sci-Fi Movie in 9 Years Finally Arrives This August
+
+Movie News, The Dog Stars, Ridley Scott, Josh Brolin, Jacob Elordi
+
+Sat, 01 Aug 2026 00:00:14 GMT
+
+https://collider.com/ridley-scott-sci-fi-movie-the-dog-stars-release-date-august-2026/
+
+Ridley Scott's next sci-fi movie, The Dog Stars, which stars Jacob Elordi and Josh Brolin, will officially arrive in theaters this August.
+---------
+
+# 8 Anime Thrillers That Get More Intense With Every Episode
+
+TV Lists, Anime, Thriller
+
+Sat, 01 Aug 2026 02:02:50 GMT
+
+https://movieweb.com/anime-thrillers-better-every-episode/
+
+Keeping the intensity going is a must for any thriller worth its salt, and these anime pull that off impressively. They'll keep viewers hooked.
+---------
+
+# Sequel to Ridley Scott's 9-Part Sci-Fi Epic Series Reportedly Being Scrapped
+
+Movie News, Alien: Romulus, Ridley Scott
+
+Sat, 01 Aug 2026 01:42:56 GMT
+
+https://movieweb.com/ridley-scott-alien-romulus-sequel-delayed-indefinitely/
+
+The next chapter in one of Ridley Scott's biggest hit projects may not move forward, according to a new update.
+---------
+
+# Sequel to Margot Robbie's Record-Breaking Adaptation Faces Setbacks Over Pay Disputes
+
+Movie News, Margot Robbie, Barbie
+
+Sat, 01 Aug 2026 00:38:07 GMT
+
+https://movieweb.com/barbie-2-margot-robbie-return-warner-bros-budget/
+
+One of Margot Robbie's biggest hits might move forward into a sequel, but it is reportedly facing some challenges in the early stages of development.
+---------
+
+# Canceled Fox Sitcom That Became a Streaming Smash Officially Getting a Revival
+
+TV News, New Girl
+
+Sat, 01 Aug 2026 00:29:03 GMT
+
+https://movieweb.com/new-girl-revival-confirmed-max-greenfield/
+
+'New Girl' star Max Greenfield confirms that he's seen scripts for more episodes of the series.
+---------
+
+# How Marvel Beat "Superhero Fatigue" For Another 'Avengers: Endgame'-Level Box Office Event
+
+Features, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 01 Aug 2026 00:00:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-box-office-records/
+
+'Spider-Man: Brand New Day' is set to have one of the biggest opening weekends of all time, showcasing that audiences still love superhero movies.
+---------
+
 # Warner Bros. Running Out Of Time Over Barbie 2 Negotiations In New Report
 
 Movies, Barbie
@@ -5111,389 +5496,4 @@ Thu, 30 Jul 2026 18:02:07 GMT
 https://movieweb.com/leonardo-dicaprio-heat-3-early-talks/
 
 The studio is so confident in the long-awaited action thriller sequel that a third film is in the works.
----------
-
-# Apple TV's Sci-Fi Masterpiece Sets up Perfect Ending After Just 2 Seasons
-
-Features, Dark Matter
-
-Thu, 30 Jul 2026 18:00:12 GMT
-
-https://movieweb.com/dark-matter-season-2-possible-final-season/
-
-Blake Crouch's 'Dark Matter' has been great so far, but that doesn't mean it will run forever. Season 2 looks like the end. Read on for more.
----------
-
-# Tom Holland Confirms 'Spider-Man: Brand New Day' Cut Major Villain Fans Were Convinced Would Make Live-Action Debut
-
-Movie News, Spider-Man: Brand New Day, Tom Holland
-
-Thu, 30 Jul 2026 17:42:58 GMT
-
-https://movieweb.com/spider-man-tom-holland-mcu-man-spider-villain/
-
-According to Tom Holland, one major plot point originally developed for 'Spider-Man: Brand New Day' was nixed for being too scary.
----------
-
-# Alexander Skarsgård Transforms Into a 'Wicker' Husband in Trailer for Raunchy New Fantasy Movie
-
-Movie News, Wicker, Alexander Skarsgard, Olivia Colman
-
-Thu, 30 Jul 2026 17:40:54 GMT
-
-https://movieweb.com/alexander-skarsgard-wicker-trailer/
-
-'Wicker' is a fantasy romantic comedy that sees Alexander Skarsgard play a man made out of wicker.
----------
-
-# Jared Leto Offers Statement After Sexual Assault Allegations
-
-Movie News, Jared Leto
-
-Thu, 30 Jul 2026 17:36:37 GMT
-
-https://movieweb.com/jared-leto-statement-misconduct-allegations/
-
-Jared Leto addresses accusations of sexual misconduct and assault made by four women, including allegations involving teenagers.
----------
-
-# Taylor Sheridan's Lioness Season 4 Fate Seemingly Confirmed Ahead Of 2026 Return
-
-TV, Lioness, Taylor Sheridan, Paramount Plus
-
-Thu, 30 Jul 2026 17:11:30 GMT
-
-https://screenrant.com/taylor-sheridan-lioness-season-4-fate-update-de-oliveira-wagner/
-
-Exclusive: The fate of Taylor Sheridan's Lioness season 4 has seemingly been confirmed by two stars ahead of the show's return in August.
----------
-
-# DC Studios' First Bane Gets New Details From Star
-
-Movies, Masked Recs, Batman, DC Universe
-
-Thu, 30 Jul 2026 17:04:55 GMT
-
-https://screenrant.com/batman-knightfall-bane-first-details-michael-mando/
-
-DC Studios is set to bring Bane into one of its highly anticipated Batman projects, as the actor finally shares new details on the villain's 2026 arc.
----------
-
-# YouTube's Biggest Failure Gave Netflix One Of Its Greatest Shows Ever
-
-Classic TV, Masked Recs
-
-Thu, 30 Jul 2026 17:00:11 GMT
-
-https://screenrant.com/cobra-kai-youtube-failure-netflix-success/
-
-YouTube had a great franchise in its hands but gave it up to Netflix, ensuring that the series would become one of the streamer's greatest franchises.
----------
-
-# 10 Harsh Realities Of Playing Zelda: Ocarina Of Time In 2026
-
-Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda, Triple-A Games
-
-Thu, 30 Jul 2026 17:00:11 GMT
-
-https://screenrant.com/zelda-ocarina-of-time-harsh-realities/
-
-The Legend of Zelda: Ocarina of Time is undoubtedly one of the best games ever made, but well after its debut in 1998, it's starting to show its age.
----------
-
-# 10 Best New Movies Coming To Netflix In August 2026
-
-Movies, Netflix
-
-Thu, 30 Jul 2026 16:45:12 GMT
-
-https://screenrant.com/netflix-best-new-movies-august-2026/
-
-It's a new month and that means a fresh batch of movies are coming to Netflix in the coming weeks. These are the flicks you can't miss this August.
----------
-
-# Mike Flanagan Gives Glowing Review To AMC's Hit Horror Series Already Renewed For Season 4
-
-TV, Interview with the Vampire, Mike Flanagan
-
-Thu, 30 Jul 2026 16:38:48 GMT
-
-https://screenrant.com/mike-flanagan-interview-with-the-vampire-praise/
-
-A hit horror series recently ended its third season on AMC, and Mike Flanagan can’t wait to see what happens next following its season 4 renewal.
----------
-
-# Hugh Jackman's New Record-Breaking R-Rated Thriller Is Conquering Streaming After Just 2 Days
-
-Movies, Masked Recs
-
-Thu, 30 Jul 2026 16:30:10 GMT
-
-https://screenrant.com/hugh-jackman-death-of-robin-hood-pvod-streaming-success-july-2026/
-
-Hugh Jackman's new R-rated thriller is officially one of the biggest movies in the world, conquering streaming thanks to its mature story.
----------
-
-# Apple TV’s Trending New Crime Thriller Series Is One Of Its Most Ambitious
-
-Streaming TV, Masked Recs
-
-Thu, 30 Jul 2026 16:30:11 GMT
-
-https://screenrant.com/lucky-apple-tv-most-ambitious-crime-thriller/
-
-Apple TV's new crime thriller series is an awe-inspiring, cinematic spectacle — and the star-studded, trending show is just three episodes in.
----------
-
-# Pokémon Legends: Z-A: Best Team Comps For Every Starter
-
-Gaming, Pokemon Legends Z-A, Pokemon, Triple-A Games
-
-Thu, 30 Jul 2026 16:21:51 GMT
-
-https://screenrant.com/pokmon-legends-z-a-best-team-comps-for-every-starter/
-
-As battles get harder and harder in Pokémon Legends: Z-A, you'll want the right team with your starter to overcome tough match-ups from strong rivals.
----------
-
-# Matthew Lillard’s New 104-Minute Supernatural Adaptation Releases On Netflix Next Week
-
-Movies, Masked Recs, Netflix
-
-Thu, 30 Jul 2026 16:18:04 GMT
-
-https://screenrant.com/five-nights-at-freddys-2-netflix-streaming-release-date/
-
-Twin Peaks: The Return star Matthew Lillard's new supernatural horror film based on popular IP is getting a new streaming home on Netflix.
----------
-
-# Breath of the Wild Meets Genshin Impact in New Open-World RPG
-
-Games, Genshin Impact, The Legend of Zelda, RPG, Video Games
-
-Thu, 30 Jul 2026 17:15:15 GMT
-
-https://www.cbr.com/breath-of-the-wild-meets-genshin-impact-dragonsword-awakening/
-
-Hound13 Inc.'s DragonSword: Awakening is the hottest new action role-playing and open-world game of the year.
----------
-
-# The Original Masters of the Universe Movie Officially Returns to Streaming After Reboot Bombs
-
-Movies, Masters of the Universe, MGM+
-
-Thu, 30 Jul 2026 17:01:15 GMT
-
-https://www.cbr.com/masters-of-the-universe-1987-movie-streaming-mgm-plus-august-2026/
-
-The original Masters of the Universe movie is back on streaming.
----------
-
-# Eternally Yours Stars Pick Team Edward | SDCC 2026
-
-Movies, Eternally Yours
-
-Thu, 30 Jul 2026 16:30:17 GMT
-
-https://www.cbr.com/video/eternally-yours-stars-pick-team-edward-sdcc-2026/
-
-Eternally Yours stars Ed Weeks, Allegra Edwards, Jaren Lewison, Helen J Shen, and Parker Young break down CBS' hilarious new vampire sitcom at SDCC 2026.The cast discusses what inspired the show's unique blend of supernatural comedy and classic sitcom vibes, why Rose Abdoo steals every scene, and how Eternally Yours puts a fresh spin on vampire lore. They also debate Team Edward vs. Team Jacob, imagine which characters would become social media influencers, share behind-the-scenes audition stories, and reveal what fake blood actually tastes like. If you're looking for a new vampire comedy with heart, this cast interview has plenty to sink your teeth into.
----------
-
-# Paramount+ Revives 1 of the Best '90s Cult Comedy Classics Ever With New Event Series
-
-TV, Clueless, Paramount Plus, Comedy
-
-Thu, 30 Jul 2026 16:25:35 GMT
-
-https://www.cbr.com/clueless-sequel-series-paramount-plus-alicia-silverstone/
-
-Alicia Silverstone is returning for a new Clueless sequel, but there's a catch.
----------
-
-# 5 Anime Transformations Way Stronger Than Ultra Instinct
-
-Anime, Dragon Ball
-
-Thu, 30 Jul 2026 16:15:15 GMT
-
-https://www.cbr.com/anime-transformations-stronger-than-ultra-instinct/
-
-Dragon Ball's Ultra Instinct lets a fighter's body move and counter without any thought, reacting to danger faster than the mind can even register it.
----------
-
-# Marvel Officially Confirms Deadpool Webtoon With An Isekai Title
-
-Comics, Deadpool, webtoon
-
-Thu, 30 Jul 2026 16:00:16 GMT
-
-https://www.cbr.com/marvel-that-time-deadpool-fell-into-webtoon-confirmed/
-
-The title of this Deadpool WEBTOON is perfectly on brand.
----------
-
-# It's Official: Luke and Leia Return to Star Wars In 2027
-
-Movies, Star Wars, Sci-Fi
-
-Thu, 30 Jul 2026 16:00:16 GMT
-
-https://www.cbr.com/star-wars-twin-crossroads-luke-leia/
-
-A new Star Wars story will explore a previously overlooked chapter in Luke and Leia's lives.
----------
-
-# Overhated & Underrated: Werewolf by Night Deserves More Love from Fans
-
-Movies, Werewolf by Night
-
-Thu, 30 Jul 2026 16:00:16 GMT
-
-https://www.cbr.com/overhated-underrated-mcu-werewolf-by-night/
-
-An MCU Ghost Rider movie was announced at SDCC, but this underrated Marvel project deserves more love first.
----------
-
-# Everything We Know About Widow's Bay Season 2
-
-TV, Widow's Bay, Apple TV, Horror
-
-Thu, 30 Jul 2026 16:00:16 GMT
-
-https://www.cbr.com/widows-bay-season-2-release-date-cast/
-
-Widow's Bay is one of the biggest shows of 2026, and it's coming back for a second Season 2 so much more of the story to explore.
----------
-
-# Christopher Nolan Admits He's "Terrified" of Rom-Coms
-
-Movie News, The Odyssey, Christopher Nolan, romcom, romantic comedies
-
-Thu, 30 Jul 2026 17:15:15 GMT
-
-https://collider.com/christopher-nolan-romantic-comedy-comments/
-
-As The Odyssey proves itself as one of 2026's biggest hits, director Christopher Nolan reveals the one film genre he's absolutely "terrified" of.
----------
-
-# Prime Video’s 'Batman: Caped Crusader' Officially Reveals New Look at Batman and Harley Quinn’s Team-Up [Exclusive]
-
-TV News, Batman: Caped Crusader, Prime Video, Jamie Chung, Hamish Linklater
-
-Thu, 30 Jul 2026 17:01:15 GMT
-
-https://collider.com/batman-caped-crusader-season-2-images-harley-quinn/
-
-New images from Batman: Caped Crusader Season 2 tease a potential team-up between Bruce Wayne and Harley Quinn. Check them out here.
----------
-
-# ‘Super Troopers 3’ Is Officially Broken Lizard’s Most Ambitious Project in 37 Years
-
-Exclusives, Super Troopers 3, Super Troopers, Comic-Con, SDCC
-
-Thu, 30 Jul 2026 16:47:06 GMT
-
-https://collider.com/super-troopers-3-cast-most-ambitious-r-rated-movie-broken-lizard/
-
-Broken Lizard explains why Super Troopers 3 pushed into new territory for the comedy troupe and why it deserves to be seen on the big screen.
----------
-
-# Paramount+ Officially Saves Cancelled ‘90s Reboot Series
-
-TV News, Clueless, Alicia Silverstone, Paramount Plus, Josh Schwartz
-
-Thu, 30 Jul 2026 16:27:23 GMT
-
-https://collider.com/clueless-sequel-series-saved-paramount-plus-alicia-silverstone-returning/
-
-After Peacock said "As if" to Alicia Silverstone's cancelled Clueless reboot, the sequel series has been saved and is making a move to Paramount+.
----------
-
-# 10 Most Subversive Sci-Fi Movies of All Time
-
-Movie, Sci-Fi, Starship Troopers, A Clockwork Orange, The Matrix
-
-Thu, 30 Jul 2026 16:21:15 GMT
-
-https://collider.com/most-subversive-sci-fi-movies-ranked/
-
-A Clockwork Orange, Starship Troopers, and The Matrix are all among the most subversive movies ever in the science fiction genre.
----------
-
-# 15 Years Later, Ryan Gosling’s Most Underrated Crime Thriller Gets Official New Anniversary Release [Exclusive]
-
-Movie News, Drive, Ryan Gosling, Nicolas Winding Refn, Bryan Cranston
-
-Thu, 30 Jul 2026 16:00:16 GMT
-
-https://collider.com/ryan-gosling-drive-15th-anniversary-vinyl-release/
-
-Lakeshore Records has announced a new anniversary record release to celebrate 15 years of Ryan Gosling's crime thriller, Drive.
----------
-
-# Ridley Scott's Blade Runner Series Is Already Doing What the Franchise Needs Most
-
-TV Features, Blade Runner 2099, Ridley Scott, Hunter Schafer, Michelle Yeoh
-
-Thu, 30 Jul 2026 15:49:15 GMT
-
-https://collider.com/blade-runner-2099-miniseries-franchise-ridley-scott-prime-video/
-
-Blade Runner 2099's miniseries structure is the best decision for the beloved sci-fi franchise, ensuring a satisfying conclusion.
----------
-
-# Jason Statham's 116-Minute Action Thriller Remains a Global Hit on Streaming
-
-Movie News, Jason Statham, A Working Man, Hot on Streaming, Action, Prime Video
-
-Thu, 30 Jul 2026 17:00:12 GMT
-
-https://movieweb.com/jason-statham-a-working-man-action-streaming-prime-video-july-2026/
-
-Ahead of Jason Statham's 'Mutiny,' one of his best action thrillers continues to be a force to be reckoned with on streaming.
----------
-
-# 10 Best Wordless 'The Far Side' Comics
-
-Movie Lists, The Far Side
-
-Thu, 30 Jul 2026 17:00:12 GMT
-
-https://movieweb.com/far-side-best-wordless/
-
-Larson could make his readers laugh without using a single word: these ten strips prove just that.
----------
-
-# 'The Odyssey' Sparks War Between Experts as Acclaimed Writer Slams Recent Criticism of Nolan's Epic
-
-Movie News, The Odyssey, Christopher Nolan, Joyce Carol Oates: A Body in the Service of Mind, Matt Damon
-
-Thu, 30 Jul 2026 16:26:45 GMT
-
-https://movieweb.com/joyce-carol-oates-slams-the-odyssey-criticism/
-
-The author takes aim at Emily Wilson's scathing review of Nolan's adaptation.
----------
-
-# This Georgie & Mandy Episode Finally Put the Age Gap Issue to Bed
-
-Features, Georgie & Mandy's First Marriage
-
-Thu, 30 Jul 2026 16:02:50 GMT
-
-https://movieweb.com/georgie-mandy-age-gap-solved/
-
-Georgie is more than a decade younger than Mandy in Georgie & Mandy's First Marriage, and still a teen. But this episode proves it doesn't matter.
----------
-
-# Netflix Locks in $500M 'Walking Dead' Streaming Future Until 2032
-
-TV News, The Walking Dead
-
-Thu, 30 Jul 2026 16:00:19 GMT
-
-https://movieweb.com/netflix-walking-dead-streaming-deal/
-
-Starting in 2027, Netflix will be the home to The Walking Dead and its six spin-off series.
 ---------
