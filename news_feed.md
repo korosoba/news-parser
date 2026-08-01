@@ -1,3 +1,146 @@
+# Star Wars: Queen Amidala Officially Returns In 2027
+
+Gaming, Star Wars
+
+Sat, 01 Aug 2026 11:30:11 GMT
+
+https://screenrant.com/star-wars-queen-amidala-statue-2027-release/
+
+Sideshow and Hot Toys have unveiled a stunning Queen Amidala Sixth Scale Collectible Figure, capturing the iconic Star Wars character.
+---------
+
+# 11 Best Sith Battles In Star Wars Canon
+
+Movies, Star Wars
+
+Sat, 01 Aug 2026 11:00:11 GMT
+
+https://screenrant.com/best-sith-battles-star-wars-canon/
+
+The Sith and Jedi fight constantly in Star Wars, but these 11 duels and battles are the absolute best the franchise's canon has to offer.
+---------
+
+# 6 Perfect Video Games You Didn't Know Were Based On Books
+
+Gaming, BioShock, Disco Elysium, Metro 2033, Cyberpunk 2077, Parasite Eve, Lies of P
+
+Sat, 01 Aug 2026 11:00:11 GMT
+
+https://screenrant.com/6-perfect-video-games-based-on-books/
+
+Discover 6 video games inspired by books, from Bioshock's Ayn Rand influence to Metro 2033's post-apocalyptic novel roots.
+---------
+
+# Pokémon Legends: Z-A Free Download Officially Yours Until August 6
+
+Gaming, Pokemon Legends Z-A
+
+Sat, 01 Aug 2026 10:30:11 GMT
+
+https://screenrant.com/pokemon-legends-za-free-download-august-6/
+
+Explore the rules and rewards of Pokémon Legends: Z-A's Season 14 Ranked Battles, featuring Flying-type Pokémon, Mega Evolutions, and more.
+---------
+
+# 10 The Far Side Comics From 1985 That Perfectly Blend Confusion and Comedy
+
+Comics, The Far Side
+
+Sat, 01 Aug 2026 11:00:16 GMT
+
+https://www.cbr.com/the-far-side-comics-from-1985-confusing-but-funny/
+
+The Far Side comics are known to be confusing at times. There are many issues from 1985 that fit the bill, the best of which still prove hilarious.
+---------
+
+# Prime Video Is Officially Rebooting Voltron For a New Generation
+
+Movies, Prime Video, Henry Cavill, Sci-Fi
+
+Sat, 01 Aug 2026 11:00:16 GMT
+
+https://www.cbr.com/prime-video-voltron-movie-reboot-greatest-sci-fi-franchise/
+
+Amazon MGM Studios is finally bringing a classic '80s sci-fi franchise back, and Transformers fans will love it.
+---------
+
+# Matt Reeves Is Completely Rewriting a Classic Batman Villain
+
+TV, Batman, The Riddler, Batman: Caped Crusader, Prime Video
+
+Sat, 01 Aug 2026 10:30:14 GMT
+
+https://www.cbr.com/batman-caped-crusader-season-2-riddler-origin/
+
+The central rogue in in Batman: Caped Crusader Season 2 has a familiar name, but how he got it is an ingenious new approach to a familiar villain.
+---------
+
+# ‘Stranger Things’ Officially Returns to Netflix in 2026 With New Episodes
+
+TV News, Stranger Things: Tales from '85, Stranger Things, Netflix, Duffer Brothers
+
+Sat, 01 Aug 2026 11:30:15 GMT
+
+https://collider.com/stranger-things-tales-from-85-season-2-netflix-release-date-2027/
+
+Netflix has officially confirmed that more episodes of Stranger Things will be released before the end of this year.
+---------
+
+# Netflix’s Darker, More Twisted ‘Knives Out’ Replacement Is Perfect From Start to Finish
+
+TV Features, Master of the House, Knives Out, Thriller, Netflix
+
+Sat, 01 Aug 2026 11:23:16 GMT
+
+https://collider.com/netflix-knives-out-replacement-series-master-of-the-house/
+
+Netflix’s Master of the House blends Knives Out-style mystery with Succession-like family warfare in a dark, twisted thriller.
+---------
+
+# The Western Epic That Quentin Tarantino Called “The Greatest Achievement in Cinema History” Is Officially Free to Stream
+
+Movie News, Quentin Tarantino, The Good, the Bad and the Ugly, Sergio Leone, Western
+
+Sat, 01 Aug 2026 11:00:15 GMT
+
+https://collider.com/the-good-the-bad-and-the-ugly-streaming-pluto-tv-august-2026/
+
+Quentin Tarantino's favorite spaghetti Western, The Good, the Bad and the Ugly, is free to stream this August. Find out where.
+---------
+
+# 35 Years Later, This Game-Changing Album Made Rap-Rock Impossible to Ignore
+
+Music Features, Music, Metal, Aerosmith
+
+Sat, 01 Aug 2026 11:00:15 GMT
+
+https://collider.com/anthrax-public-enemy-bring-the-noise-song/
+
+Anthrax's groundbreaking 1991 cover of Public Enemy's Bring the Noise paved the way for rap-rock fusion, bridging two seemingly disparate genres.
+---------
+
+# 6 Greatest Sci-Fi Shows on Prime Video That Are 10/10, No Notes
+
+TV, Sci-Fi, Science Fiction, Prime Video, The Boys
+
+Sat, 01 Aug 2026 10:52:14 GMT
+
+https://collider.com/greatest-sci-fi-shows-prime-video-no-notes/
+
+From the superhero satire The Boys to the hidden gem series Continuum, we highlight the best sci-fi shows currently streaming on Prime Video.
+---------
+
+# One of the Most Beloved Sports Movies of the '90s Is Officially Heading to Paramount+
+
+Movie News, The Sandlot, Paramount Plus, Streaming, Sports
+
+Sat, 01 Aug 2026 10:30:14 GMT
+
+https://collider.com/the-sandlot-streaming-paramount-plus-august-2026/
+
+The Sandlot, the '90s classic and alternative to Ted Lasso, is about to become available on Paramount+. Find out more here.
+---------
+
 # Stardew Valley Finally Returns January 2027
 
 Gaming, Stardew Valley
@@ -5353,147 +5496,4 @@ Thu, 30 Jul 2026 19:00:11 GMT
 https://screenrant.com/spider-man-games-nobody-remembers/
 
 Some of the best Spider-Man games ever have eclipsed others that are arguably better, resulting in them being forgotten or overlooked for decades.
----------
-
-# Netflix’s 107-Minute Sci-Fi Action Is Still a Worldwide Streaming Hit 5 Months Later
-
-Movies, War Machine, Netflix
-
-Thu, 30 Jul 2026 20:02:04 GMT
-
-https://www.cbr.com/war-machine-sci-fi-netflix-success-july-2026/
-
-The sci-fi action movie is still a worldwide streaming hit on Netflix.
----------
-
-# Mothra and Godzilla Officially Confirmed to Meet Again—But There's an Unexpected Twist
-
-Comics, Godzilla, Mothra
-
-Thu, 30 Jul 2026 20:00:15 GMT
-
-https://www.cbr.com/mothra-godzilla-conquers-the-multiverse-confirmed/
-
-Mothra is officially confirmed to appear in Godzilla's upcoming story - but will she be friend or foe to the legendary kaiju?
----------
-
-# The Best Back to the Future Scene Is Still the Greatest in Sci-Fi Movie History
-
-Movies, Back to the Future
-
-Thu, 30 Jul 2026 20:00:15 GMT
-
-https://www.cbr.com/back-to-the-future-car-chase-greatest-scene/
-
-Marty McFly and Doc Brown elevated the final scene of Back to the Future to the pinnacle of cinematic sci-fi
----------
-
-# Palworld's Official Card Game Takes On the Big TCGs
-
-Games, Palworld
-
-Thu, 30 Jul 2026 20:00:15 GMT
-
-https://www.cbr.com/palworld-official-card-game-preview/
-
-CBR had a chance to play the new Palworld Official Card Game ahead of its launch, which is challenging the titans of the TCG world at their own game.
----------
-
-# Resident Evil Officially Returns With Leon S. Kennedy on August 1
-
-Anime, Resident Evil: Damnation, Resident Evil: Degeneration, Resident Evil, Resident Evil: Death Island, Resident Evil: Vendetta, Tubi
-
-Thu, 30 Jul 2026 19:20:15 GMT
-
-https://www.cbr.com/resident-evil-degeneration-sequels-tubi-august-1/
-
-One of the best quartets in the entire Resident Evil franchise is bringing Leon S. Kennedy back into the spotlight in just a matter of hours.
----------
-
-# Netflix Faces $105 Million Lawsuit Over Stolen Nicolas Cage Movie
-
-Movies, Netflix, Nicolas Cage
-
-Thu, 30 Jul 2026 19:13:20 GMT
-
-https://www.cbr.com/netflix-lawsuit-nicolas-cage-movie/
-
-Netflix is in hot water after an incident involving a stolen Nicolas Cage film.
----------
-
-# 20 Strongest Pokémon from Scarlet & Violet
-
-Games, Pokemon, Video Games, Nintendo, Nintendo Switch, Pokemon Scarlet and Violet
-
-Thu, 30 Jul 2026 19:00:16 GMT
-
-https://www.cbr.com/best-scarlet-violet-pokemon-paldea/
-
-Pokémon Scarlet & Violet's Paldea region expanded the Pokédex to 1000+ species of Pokémon — some of which are incredibly powerful, like Baxcalibur.
----------
-
-# 10 Best Action Anime Like Solo Leveling
-
-Anime, Solo Leveling
-
-Thu, 30 Jul 2026 19:00:15 GMT
-
-https://www.cbr.com/greatest-action-anime-like-solo-leveling/
-
-Solo Leveling might be the biggest action anime of today, yet the genre has plenty of equally high-octane masterpieces to offer its fans.
----------
-
-# Strange New Worlds’ New Horror Episode Teases a Dark Path for an Enterprise Hero
-
-TV, Star Trek, Star Trek: Strange New Worlds
-
-Thu, 30 Jul 2026 19:00:15 GMT
-
-https://www.cbr.com/strange-new-worlds-the-griffin-incident-teases-dark-paths/
-
-In "The Griffin Incident" USS Enterprise heroes have horrifying experiences, but one may have a darker fate beyond the ghost ship.
----------
-
-# 5 True Story Western Movies As Good As Tombstone
-
-Movies, Western, Young Guns, Tombstone
-
-Thu, 30 Jul 2026 19:00:15 GMT
-
-https://www.cbr.com/true-story-western-movies-like-tombstone-list/
-
-Some of the greatest Westerns of all time are based on true stories, but only a few can be called as good as Tombstone.
----------
-
-# Before ‘The Mummy 4,’ This Fantasy Novel Gives the 1999 Classic a Fresh Twist
-
-Books and Comics, The Mummy, Books, Fantasy, Classics
-
-Thu, 30 Jul 2026 20:07:14 GMT
-
-https://collider.com/the-mummy-4-the-darkness-beneath-fantasy-book-valerie-norton/
-
-Before The Mummy 4, Valerie Norton’s debut fantasy novel puts a fresh spin on the beloved 1999 adventure classic.
----------
-
-# ABC’s ‘The Rookie’ Prepared Ahead for Season 9 Cancellation
-
-TV News, The Rookie, ABC, Nathan Fillion, Eric Winter
-
-Thu, 30 Jul 2026 20:02:56 GMT
-
-https://collider.com/the-rookie-season-8-alternate-ending-cancelled-eric-winter/
-
-Star of ABC's police procedural, Eric Winter, has shared details of a Season 8 alternate ending, made in case The Rookie Season 9 was cancelled.
----------
-
-# Liam Neeson Officially Returns to Star Wars for New 2027 Release
-
-Collectibles, Star Wars: Episode I - The Phantom Menace, Liam Neeson, Star Wars, Hot Toys
-
-Thu, 30 Jul 2026 19:57:55 GMT
-
-https://collider.com/star-wars-liam-neeson-hot-toys-2027-release-date-qui-gon-jin/
-
-Liam Neeson's Qui-Gon Jinn officially returns to the Star Wars galaxy with a brand-new release in 2027. Read on for more details.
 ---------
