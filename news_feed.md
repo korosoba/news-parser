@@ -1,3 +1,300 @@
+# Jon Bernthal Teases The Punisher’s MCU Future After Spider-Man: Brand New Day
+
+Movies, The Punisher, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 01 Aug 2026 18:38:55 GMT
+
+https://screenrant.com/punisher-mcu-future-after-spider-man-brand-new-day-jon-bernthal-response/
+
+The Punisher's return to the MCU in Spider-Man: Brand New Day may just be the beginning, as Jon Bernthal teases a deeper take on Frank Castle.
+---------
+
+# The Wait Is Over: My Hero Academia Is Finally Back With A Brand-New Episode In Just 1 Day
+
+Anime, My Hero Academia
+
+Sat, 01 Aug 2026 18:30:11 GMT
+
+https://screenrant.com/my-hero-academia-new-episode-hero-too-release/
+
+My Hero Academia has confirmed the premiere time for the new OVA on Crunchyroll and offered fans a new preview of what to expect from the episode.
+---------
+
+# X-Men Redefines Iconic Hero As Juggernaut's Sister
+
+Marvel Comics, X-Men
+
+Sat, 01 Aug 2026 18:30:11 GMT
+
+https://screenrant.com/x-men-juggernaut-magik-sister-colossus/
+
+Marvel's latest X-Men release reveals Juggernaut now has a sister who shares a deep connection with Cain Marko's lifelong mutant rival.
+---------
+
+# Cyberpunk 2077 TCG: Every Card Confirmed So Far
+
+Gaming, Cyberpunk TCG, Cyberpunk 2077
+
+Sat, 01 Aug 2026 18:30:11 GMT
+
+https://screenrant.com/cyberpunk-2077-tcg-every-card-confirmed-so-far/
+
+Discover the stunning cards unveiled for the Cyberpunk 2077 Trading Card Game, including the rarities for the game.
+---------
+
+# The Last Of Us Is Amazing, But Prime Video's 2-Part Post-Apocalyptic Show Is Even Better
+
+Streaming TV, Masked Recs
+
+Sat, 01 Aug 2026 18:30:11 GMT
+
+https://screenrant.com/fallout-better-than-the-last-of-us-prime-video/
+
+The Last of Us is one of the best shows of the last four years, but there's another post-apocalyptic TV show on Prime Video that's better.
+---------
+
+# 10 Weird '80s Comedy Movies You Forgot About
+
+Movies, Comedy
+
+Sat, 01 Aug 2026 18:30:11 GMT
+
+https://screenrant.com/weird-1980s-comedies-forgotten/
+
+There were so many classic comedy movies in the 1980s that some were bound to be forgotten, but these weird comedies are unforgettable.
+---------
+
+# Alien: Romulus Rumor On Sequel Cancellation Gets Blunt Response From Producer
+
+Movies, Alien: Romulus, Alien
+
+Sat, 01 Aug 2026 18:26:09 GMT
+
+https://screenrant.com/alien-romulus-sequel-cancellation-rumor-debunked-steve-asbell/
+
+A rumor about the Alien: Romulus sequel getting cancelled spread like wildfire, and now a major producer is setting the record straight.
+---------
+
+# Apple TV’s 16-Part Historical Drama With Near-Perfect Rotten Tomatoes Score Is Too Good To Cancel
+
+TV, Masked Recs
+
+Sat, 01 Aug 2026 18:01:11 GMT
+
+https://screenrant.com/apple-tv-pachinko-drama-too-good-to-cancel/
+
+Apple TV's near-perfect historical drama has an almost flawless Rotten Tomatoes score, so why hasn't the acclaimed adaptation been renewed yet?
+---------
+
+# Stranger Things Meets Wednesday In Netflix's 10-Part Horror Series
+
+TV, Masked Recs
+
+Sat, 01 Aug 2026 18:01:11 GMT
+
+https://screenrant.com/the-midnight-club-stranger-things-meets-wednesday-netflix/
+
+One Netflix horror series mixed Wednesday and Stranger Things, but Mike Flanagan's show didn't last long enough to explore its promising vision.
+---------
+
+# Zelda Fans Pumped For New Nintendo Hardware Announcement
+
+Gaming, The Legend of Zelda, Triple-A Games
+
+Sat, 01 Aug 2026 18:00:11 GMT
+
+https://screenrant.com/zelda-switch-2-pro-controller-leak-reaction/
+
+The Legend of Zelda could have a tremendously busy back half of 2026 with its 40th anniversary currently being celebrated, along with new hardware.
+---------
+
+# X-Men Quietly Confirms Marvel's New Professor X Replacement
+
+TV, X-Men '97, X-Men, Marvel
+
+Sat, 01 Aug 2026 18:30:15 GMT
+
+https://www.cbr.com/x-men-97-nightcrawler-best-professor-x-student/
+
+The latest episode of X-Men '97 proved which member of the mutant team best embodies the ideals of Professor Charles Xavier.
+---------
+
+# 5 Sci-Fi Manga to Read After Dungeon Crawler Carl
+
+Anime, Dungeon Crawler Carl, Manga, Alice in Borderland
+
+Sat, 01 Aug 2026 18:15:15 GMT
+
+https://www.cbr.com/sci-fi-manga-like-dungeon-crawler-carl/
+
+Finding series that offer the same experience as Dungeon Crawler Carl isn't easy, but several sci-fi manga manage to achieve the perfect balance.
+---------
+
+# Alex Garland’s George R.R. Martin Dark Fantasy Adaptation Gets Big Update 2 Years From Release
+
+Movies, Elden Ring
+
+Sat, 01 Aug 2026 18:04:39 GMT
+
+https://www.cbr.com/alex-garland-elden-ring-filming-wrap/
+
+The most hotly anticipated dark fantasy adaptation of the decade just got a massive production update, and fans couldn't be happier.
+---------
+
+# Star Trek's Hit Series Is the Most-Watched Title on Paramount+ After 91% RT Score
+
+TV, Star Trek: Strange New Worlds
+
+Sat, 01 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/star-trek-strange-new-worlds-paramount-success-aug-2026/
+
+The beloved Star Trek series is back, and audiences can't get enough of the new episodes that just dropped.
+---------
+
+# Marvel's Midnight Fantastic Four Terrifying Origin Story Confirmed
+
+Comics, Fantastic Four
+
+Sat, 01 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/marvels-midnight-fantastic-four-terrifying-origin-story-confirmed/
+
+Marvel's Midnight Fantastic Four has a horrifying real-life inspiration.
+---------
+
+# Genshin Impact Version 7.0 Heads to Snezhnaya With New Characters, TPS Mode & Free Rewards
+
+Anime, Genshin Impact, open world, RPG
+
+Sat, 01 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/genshin-impact-version-7-0-snezhnaya/
+
+Genshin Impact heads to Snezhnaya this August with a new third-person shooter mode, Odette, Alyosha and more.
+---------
+
+# 5 Jedi More Powerful Than Obi-Wan Kenobi, Ranked
+
+Movies, Star Wars, Sci-Fi, george lucas
+
+Sat, 01 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/star-wars-jedi-stronger-obi-wan-kenobi-ranked-list/
+
+Obi-Wan Kenobi may be a fan-favorite Star Wars character, but he is far from the strongest Jedi in the Skywalker Saga.
+---------
+
+# SDCC 2026: The Biggest Questions Fans Are Still Asking
+
+Comics, Marvel Cinematic Universe, Marvel
+
+Sat, 01 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/biggest-questions-left-unanswered-sdcc-2026/
+
+In the wake of San Diego Comic-Con 2026, fans have burning questions that have been left unanswered.
+---------
+
+# 10 Best Western Books of All Time
+
+Books and Comics, Lonesome Dove, The Dark Tower, Shane, The Assassination of Jesse James by the Coward Robert Ford
+
+Sat, 01 Aug 2026 18:53:14 GMT
+
+https://collider.com/best-western-books-all-time-ranked/
+
+The best Western books ever written include Blood Meridian, Lonesome Dove, and The Assassination of Jesse James by the Coward Robert Ford.
+---------
+
+# ‘Dark Winds’ Is at the End of an Era, but Titus Welliver Could Change That
+
+TV Features, Dark Winds, Titus Welliver, Zahn McClarnon, AMC+
+
+Sat, 01 Aug 2026 18:38:14 GMT
+
+https://collider.com/dark-winds-season-4-titus-welliver-mcnair-return/
+
+Titus Welliver's antagonist, Dominic McNair, returning in Dark Winds Season 5, would add depth to the Western series and its characters.
+---------
+
+# Prime Video’s Best Crime Thriller Abandons the Formula of James Patterson’s Books
+
+TV Features, Cross, Prime Video, Aldis Hodge, James Patterson
+
+Sat, 01 Aug 2026 18:27:14 GMT
+
+https://collider.com/cross-tv-show-prime-video-original-story-james-patterson-books/
+
+Prime Video's Cross diverges from James Patterson's book formula in a significant way, offering a fresh take on the popular series.
+---------
+
+# 33 Years Later, Michael Mann's Timeless 93% Western Masterpiece Is Officially Making a Streaming Comeback
+
+Movie News, The Last of the Mohicans, Daniel Day-Lewis, Western, Michael Mann
+
+Sat, 01 Aug 2026 18:00:14 GMT
+
+https://collider.com/michael-mann-the-last-of-the-mohicans-streaming-success-prime-video-august-2026/
+
+Michael Mann’s The Last of the Mohicans, starring Daniel Day-Lewis, is making its way back to streaming more than three decades after its release.
+---------
+
+# The 6 Greatest Prime Video Series With 4 Episodes or Less
+
+TV, Prime Video, The Unsolved Murder of Beverly Lynn Smith, Spy High, The Last Narc
+
+Sat, 01 Aug 2026 17:57:15 GMT
+
+https://collider.com/best-prime-video-series-4-episodes-or-less/
+
+From LuLaRich to The Last Narc, these short Prime Video series tell unforgettable stories in four episodes or fewer.
+---------
+
+# The Guy Ritchie Crime Thriller We're All Waiting for Releases in Just One Month
+
+Features, Guy Ritchie, The Gentlemen, Crime, Thriller, Netflix, Theo James, Kaya Scodelario, Ray Winstone
+
+Sat, 01 Aug 2026 18:45:12 GMT
+
+https://movieweb.com/guy-ritchie-the-gentlemen-return-september-2026/
+
+After a two-and-a-half-year wait, Guy Ritchie's crime thriller 'The Gentlemen' is finally returning, with Season 2 arriving on Netflix on September 3.
+---------
+
+# Apple TV's 3-Season Space Opera Masterpiece Makes the 'Dune' Franchise Look Small
+
+Features, Dune, Foundation, Sci-Fi, Apple TV
+
+Sat, 01 Aug 2026 18:30:12 GMT
+
+https://movieweb.com/apple-tv-foundation-versus-dune/
+
+Apple TV's sci-fi space opera series beats the Dune franchise in a few ways, despite being less popular.
+---------
+
+# Every Movie Coming to Theaters in August 2026
+
+Features, Movie Theaters
+
+Sat, 01 Aug 2026 18:30:12 GMT
+
+https://movieweb.com/movie-theaters-august-2026/
+
+Here is every movie coming to theaters in August, including original horror, fantasy, and action movies.
+---------
+
+# Netflix’s Forgotten Thriller Beats ‘Haunting of Hill House’ At Its Own Game
+
+Features, The Midnight Club, The Haunting of Hill House, Netflix, Mike Flanagan
+
+Sat, 01 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/midnight-club-haunting-of-hill-house-comparison/
+
+'The Haunting of Hill House,' the Netflix thriller created by Mike Flanagan that began streaming in 2018, stars Victoria Pedretti and Henry Thomas.
+---------
+
 # Robert De Niro's 105-Minute Gritty Crime Thriller Officially Returns To Streaming Today
 
 Movies, Masked Recs
@@ -5199,301 +5496,4 @@ Fri, 31 Jul 2026 09:30:14 GMT
 https://collider.com/sylvester-stallone-armor-streaming-success-tubi-july-2026/
 
 Sylvester Stallone's maligned action movie with a 0% on Rotten Tomatoes has defied unthinkable odds to become a streaming success.
----------
-
-# 3 Perfect Movie Masterpieces Streaming on Netflix This Weekend (Aug 1-2)
-
-Movie, One of Them Days, A Private Life, The Hunger Games, Netflix
-
-Fri, 31 Jul 2026 09:22:14 GMT
-
-https://collider.com/best-netflix-movies-watch-weekend-august-1/
-
-One of Them Days, The Hunger Games, A Private Life, and more make up our list of the best movies to stream on Netflix the weekend of August 1st, 2026.
----------
-
-# These 4 Zoë Kravitz Movies Are Masterpieces
-
-Movie, Zoë Kravitz, The Batman, Spider-Man: Into The Spider-Verse, Mad Max: Fury Road
-
-Fri, 31 Jul 2026 09:13:14 GMT
-
-https://collider.com/best-zoe-kravitz-movies-masterpieces/
-
-Zoë Kravitz is great in everything, but modern movie classics like Mad Max: Fury Road and The Batman stand out as her very best movies.
----------
-
-# Anya Taylor-Joy's Billion Dollar Sci-Fi Sequel Officially Hits Streaming This Week
-
-Movie News, The Super Mario Galaxy Movie, Anya Taylor-Joy, Chris Pratt, Peacock
-
-Fri, 31 Jul 2026 09:00:15 GMT
-
-https://collider.com/the-super-mario-galaxy-movie-streaming-peacock-release-date-july-30-2026/
-
-The first movie of 2026 to earn $1 billion at the global box office is officially set to begin streaming on Peacock this week.
----------
-
-# Game Of Thrones: The Peaceful King Officially Available Now
-
-Gaming, Game of Thrones, Game Of Thrones, House of the Dragon, House of the Dragon - Season 1, PC
-
-Fri, 31 Jul 2026 06:00:11 GMT
-
-https://screenrant.com/game-of-thrones-legends-peaceful-king-proving-ground-update/
-
-Game of Thrones: The Peaceful King is a brand-new release that completely revives House of the Dragon's most beloved character.
----------
-
-# The Witcher Remake's Open-World Size And Scope Has Split Gamers
-
-Gaming, The Witcher, Triple-A Games
-
-Fri, 31 Jul 2026 05:45:11 GMT
-
-https://screenrant.com/witcher-remake-open-world-size-gamers-react/
-
-The original Witcher had its own unique structure that worked for it in 2007, but with a remake on the way, fans are undecided on how it'll work out.
----------
-
-# Zelda: Majora's Mask Switch 2 Remake Highlights A Very Real Problem
-
-Gaming, The Legend of Zelda: Majora's Mask, Nintendo, Nintendo Switch 2, The Legend of Zelda: Ocarina of Time
-
-Fri, 31 Jul 2026 05:30:11 GMT
-
-https://screenrant.com/zelda-majoras-mask-remake-hopes-problems/
-
-A Nintendo Switch 2 remake of The Legend of Zelda: Majora's Mask reveals a huge problem that fans simply cannot ignore any more.
----------
-
-# Iron Lung Meets Stranger Things In Twisted New Horror
-
-Gaming, Stranger Things, Steam, PC, Iron Lung
-
-Fri, 31 Jul 2026 05:00:11 GMT
-
-https://screenrant.com/iron-lung-meets-stranger-things-new-horror/
-
-This absurdly scary new horror game is like stepping into the Upside Down after The Quiet Rapture, and it's available to play on Steam now.
----------
-
-# George R.R. Martin-Approved Cancelled Sci-Fi Show Is Getting A Mass Effect-Style Video Game
-
-Gaming, George R.R. Martin, The Expanse, Mass Effect, Sci-Fi, PC
-
-Fri, 31 Jul 2026 04:45:11 GMT
-
-https://screenrant.com/expanse-osiris-reborn-george-rr-martin-favorite-show/
-
-George R.R. Martin's favorite cancelled sci-fi show will make an official return in 2027 with a Mass Effect-style video game adaptation.
----------
-
-# The Owl House Meets Stardew Valley In 2026 GOTY Contender
-
-Gaming, Stardew Valley, Indie Games, PC
-
-Fri, 31 Jul 2026 04:15:11 GMT
-
-https://screenrant.com/owl-house-meets-stardew-valley-witchbrook/
-
-This upcoming game combines elements of Stardew Valley and The Owl House for a delightfully cozy and magical pixel adventure, and we can't wait.
----------
-
-# Obi-Wan Kenobi Fans Should Keep An Eye On September 2026
-
-Gaming, Star Wars, Triple-A Games
-
-Fri, 31 Jul 2026 04:00:14 GMT
-
-https://screenrant.com/obi-wan-kenobi-september-2026-statue/
-
-Star Wars fans have been following the character of Obi-Wan Kenobi for decades, and now he's making a triumphant return in September.
----------
-
-# Spider-Man’s 10 Most Horrifying Mutations In Marvel History
-
-Comics, Spider-Man, Marvel
-
-Fri, 31 Jul 2026 03:53:14 GMT
-
-https://screenrant.com/spider-man-most-horrific-transformations-marvel/
-
-Spider-Man's great power has almost always meant much heavier personal sacrifices on top of heroic responsibilities and these are the worst yet.
----------
-
-# Anthropic Destroys Rare And Valuable Books To Feed The Machine - The Latest AI Controversy Explained
-
-Books
-
-Fri, 31 Jul 2026 03:45:42 GMT
-
-https://screenrant.com/anthropic-ai-rare-valuable-books-destroyed-controversy-explained/
-
-Anthropic has come under public scrutiny for destroying rare and valuable books to train its AI bot. Here's what's happening and whether it's legal.
----------
-
-# Exactly 32 Years Later, One Of X-Men's Most Powerful Heroes Is Their Newest Leader
-
-Marvel Comics, X-Men
-
-Fri, 31 Jul 2026 03:41:33 GMT
-
-https://screenrant.com/x-men-monet-anniversary-leader/
-
-A powerful X-Men mutant officially rises to co-leader of the Uncanny X-Men just in time to celebrate thirty-two years of comic history.
----------
-
-# Pokémon Card Collection Worth $250,000 Found in Grandma’s House 20 Years Later
-
-Games, Pokemon TCG, Pokemon
-
-Fri, 31 Jul 2026 05:00:15 GMT
-
-https://www.cbr.com/pokemon-card-collection-found-20-years-later-250000/
-
-A veritable treasure trove of classic Pokémon merchandise has been uncovered in one lucky grandmother's home, including $250,00 worth of vintage cards
----------
-
-# New Girl Creator Reveals the ‘Odd’ Way She’d Relax While Working On the Hit Comedy
-
-TV, New Girl, Furious, Hulu
-
-Fri, 31 Jul 2026 04:31:33 GMT
-
-https://www.cbr.com/new-girl-creator-elizabeth-meriwether-furious-crime-thrillers/
-
-New Girl creator Elizabeth Meriwether reveals why crime thrillers helped her unwind and inspired her Hulu series Furious.
----------
-
-# Pokémon Releases Massive New 3-Hour Special Starring 4 Fan-Favorite Pokémon
-
-Anime, Pokemon Trading Card Game Pocket, Pokemon
-
-Fri, 31 Jul 2026 03:59:15 GMT
-
-https://www.cbr.com/pokemon-tcg-pocket-puppy-livestream/
-
-Pokémon TCG Pocket celebrates the release of its latest expansion with a delightfully cozy livestream starring pups like Yamper, Growlithe and more.
----------
-
-# 5 10/10 Anime Movies With Perfect Scores on Rotten Tomatoes
-
-Anime, A Silent Voice, Your Name, Spirited Away
-
-Fri, 31 Jul 2026 03:45:15 GMT
-
-https://www.cbr.com/anime-movies-perfect-scores-rotten-tomatoes/
-
-These anime movies have perfect scores on Rotten Tomatoes because of their flawless narratives and gorgeous animation.
----------
-
-# 8 Most Suspenseful Thriller Movies of All Time, Ranked
-
-Movie, Thriller, Anatomy of a Fall, The Game, Rear Window
-
-Fri, 31 Jul 2026 04:51:14 GMT
-
-https://collider.com/most-suspenseful-thriller-movies-ever-ranked/
-
-Anatomy of a Fall, The Game, Rear Window, Zodiac, and more make up our list of the most suspenseful thriller movies of all time.
----------
-
-# 10 Book Masterpieces That Are Perfectly Written
-
-Books and Comics, Books, The Great Gatsby, One Hundred Years of Solitude, East of Eden
-
-Fri, 31 Jul 2026 04:15:14 GMT
-
-https://collider.com/book-masterpieces-perfectly-written/
-
-From The Great Gatsby to East of Eden, these classic books are masterpieces of literature with vivid, richly detailed, and unforgettable writing.
----------
-
-# 9 Most Perfect Anime of the Last 25 Years
-
-TV, Anime, Fullmetal Alchemist: Brotherhood, Hunter x Hunter, Attack On Titan
-
-Fri, 31 Jul 2026 04:07:14 GMT
-
-https://collider.com/most-perfect-anime-last-25-years-ranked/
-
-Hunter x Hunter, My Hero Academia, and Attack on Titan are among the best anime of the last 25 years, but which series is considered the greatest?
----------
-
-# 4-Part Mystery Series With Near-Perfect RT Score Shows Under The Dome How It's Done
-
-Streaming TV, Masked Recs
-
-Fri, 31 Jul 2026 03:24:54 GMT
-
-https://screenrant.com/from-tv-show-better-under-the-dome/
-
-Under The Dome’s TV series was a massive disappointment, but a 4-part mystery series shows exactly how it should’ve captured the Stephen King story.
----------
-
-# Upcoming Adaptation Of Hit Fantasy Series Is The Witcher Meets Black Panther
-
-Movies, Masked Recs
-
-Fri, 31 Jul 2026 03:00:20 GMT
-
-https://screenrant.com/children-of-blood-and-bone-witcher-meets-black-panther/
-
-An upcoming adaptation of a hit fantasy series seems to combine some of the best narrative ingredients from The Witcher and Black Panther franchises.
----------
-
-# Star Wars’ Massive Reset Completely Changes Daisy Ridley’s Rey Sequel
-
-Movies, Star Wars
-
-Fri, 31 Jul 2026 02:57:02 GMT
-
-https://screenrant.com/star-wars-reset-changes-daisy-ridley-rey-sequel/
-
-A recent Star Wars project has challenged one of the Jedi Order's biggest rules, and it could affect Daisy Ridley's upcoming film.
----------
-
-# Star Trek Meets Michael Jackson’s “Thriller” In Strange New Worlds’ Horror Episode
-
-TV, Star Trek, Star Trek: Strange New Worlds
-
-Fri, 31 Jul 2026 02:48:40 GMT
-
-https://screenrant.com/star-trek-strange-new-worlds-michael-jackson-christina-chong-thriller-dance/
-
-Star Trek: Strange New Worlds went full blown horror with ghosts and zombies, but Christina Chong also turned it into a Michael Jackson tribute.
----------
-
-# Kylo Ren Is Finally Returning For New 5 Part Series, And It's Only 2 Weeks Away
-
-Comics, Star Wars
-
-Fri, 31 Jul 2026 02:30:11 GMT
-
-https://screenrant.com/star-wars-kylo-ren-return-fall-new-series/
-
-Featuring the writing of Charles Soule once more, this latest return depicts Kylo Ren following his ascent to power in an untold canon story.
----------
-
-# Why Netflix's 6-Episode Action Thriller Has Become A Huge #1 Hit Worldwide
-
-Streaming TV, Masked Recs
-
-Fri, 31 Jul 2026 02:30:11 GMT
-
-https://screenrant.com/netflix-elite-force-worldwide-streaming-hit-reason/
-
-There are a few intriguing reasons why Netflix’s #1 trending 6-part action thriller has risen in the ranks to become a massive hit across the globe.
----------
-
-# Oliver Queen's 10 Best Arrow Quotes, Ranked
-
-Classic TV, Arrow, DC, Arrowverse
-
-Fri, 31 Jul 2026 02:15:11 GMT
-
-https://screenrant.com/oliver-queen-best-arrow-quotes/
-
-Arrow's Oliver Queen makes an impact on the people around him and the audience with his memorable quotes, and these are the ten best.
 ---------
