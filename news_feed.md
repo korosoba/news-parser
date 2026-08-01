@@ -1,3 +1,289 @@
+# Netflix's New 'Stranger Things Meets KPop Demon Hunters' Series Is Already The Fantasy Event Of The Summer
+
+Streaming TV, Masked Recs
+
+Sat, 01 Aug 2026 21:15:11 GMT
+
+https://screenrant.com/the-east-palace-netflix-fantasy-event-summer/
+
+This highly anticipated Netflix Original series is the ultimate summer binge for fans of Stranger Things, KPop Demon Hunters, and fantasy horror.
+---------
+
+# 19-Year-Old Sci-Fi Adaptation Stephen King & Mike Flanagan Both Love Has Aged Like Fine Wine
+
+Movies, Masked Recs
+
+Sat, 01 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/the-mist-stephen-king-movie-mike-flanagan-love-aged-well/
+
+One Stephen King movie beloved by both the author and frequent collaborator Mike Flanagan is among the writer's greatest screen adaptations ever.
+---------
+
+# Zelda: Breath Of The Wild Players Discovers You Can Wall-Jump After Nearly A Decade
+
+Gaming, The Legend of Zelda: Breath of the Wild, Triple-A Games
+
+Sat, 01 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/zelda-breath-wild-secret-wall-jump/
+
+The players of Zelda: Breath Of The Wild are particularly crafty, and are still coming up with tech nearly a decade after launch.
+---------
+
+# All 13 Halloween Movies, Ranked By Box Office
+
+Movies, Halloween, Ranking
+
+Sat, 01 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/halloween-movies-box-office-ranking/
+
+The Halloween franchise is one of the longest and most storied in horror history, but which of the Michael Myers flicks made the most money?
+---------
+
+# Did Spider-Man: Brand New Day Just Tease Norman Osborn’s Oscorp?
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 01 Aug 2026 20:45:11 GMT
+
+https://screenrant.com/spiderman-brand-new-day-oscorp-tease/
+
+Oscorp has been missing from the MCU, but a small moment in Spider-Man: Brand New Day might just plant a seed for debuting Norman Osborn's business.
+---------
+
+# How DC's New Joker Compares To Heath Ledger And Joaquin Phoenix
+
+Streaming TV, Masked Recs
+
+Sat, 01 Aug 2026 20:41:31 GMT
+
+https://screenrant.com/matthew-needham-joker-heath-ledger-joaquin-phoenix-comparison/
+
+DC has announced its new Joker, and the actor delivers one of the Batman villains' best performances yet, drawing comparisons to Ledger and Phoenix.
+---------
+
+# The Sopranos Star Vincent Pastore Dies At 80
+
+TV, The Sopranos
+
+Sat, 01 Aug 2026 20:30:22 GMT
+
+https://screenrant.com/the-sopranos-vincent-pastore-dies-80/
+
+Vincent Pastore, the beloved star who played Salvatore Bonpensiero in the popular TV show The Sopranos, has sadly passed away at 80.
+---------
+
+# The MCU's 2027 Hiatus Means Doomsday Can Blip Past An Old Infinity War Problem
+
+Movies, Avengers: Doomsday, Avengers: Infinity War
+
+Sat, 01 Aug 2026 20:30:11 GMT
+
+https://screenrant.com/avengers-doomsday-no-mcu-movies-between-solve-infinity-war-problem/
+
+Only one MCU movie is scheduled for 2027, which should allow Avengers: Doomsday to overcome the single problem that hindered Infinity War.
+---------
+
+# Fast 11 Script Gets First Reaction From Vin Diesel
+
+Movies, Fast Forever, Fast & Furious
+
+Sat, 01 Aug 2026 20:20:57 GMT
+
+https://screenrant.com/fast-11-script-reaction-vin-diesel/
+
+After several hiccups in the last three years, Vin Diesel shares his first reaction to the Fast 11 script as it aims for a 2028 release.
+---------
+
+# 5 Anime Power Systems That Make Cursed Energy Look Simple
+
+Anime, Jujutsu Kaisen, Hunter X Hunter
+
+Sat, 01 Aug 2026 21:16:14 GMT
+
+https://www.cbr.com/anime-power-systems-more-complex-jjk-cursed-energy/
+
+Jujutsu Kaisen's cursed energy is an excellent power system, but it's hardly the most complex in anime.
+---------
+
+# Quentin Tarantino's Banned 108-Minute Genre-Bender Cult Classic Hits New Streaming Home
+
+Movies, Quentin Tarantino, From Dusk Till Dawn
+
+Sat, 01 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/quentin-tarantino-banned-genre-bender-dusk-till-dawn-paramount/
+
+The Tarantino classic has gone from being banned to a major streaming giant.
+---------
+
+# Spider-Man: Brand New Day Breaks Opening Day Record With $168M After Franchise-Best RT Audience Score
+
+Movies, Spider-Man: Brand New Day, box office
+
+Sat, 01 Aug 2026 20:57:26 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-opening-day-record/
+
+It did, however, receive the lowest critics' score in the MCU Spider-Man franchise.
+---------
+
+# Animal Crossing Officially Drops 2 New 25th Anniversary Releases This August
+
+Games, Animal Crossing, Nintendo
+
+Sat, 01 Aug 2026 20:40:14 GMT
+
+https://www.cbr.com/animal-crossing-official-25th-anniversary-release-august-2026/
+
+Animal Crossing fans are being treated to 2 new pieces of merchandise out this August.
+---------
+
+# The Walking Dead's Spinoff Continues Audience Divisive Trend After 100% RT Score
+
+TV, The Walking Dead: Dead City, Rotten Tomatoes
+
+Sat, 01 Aug 2026 20:31:01 GMT
+
+https://www.cbr.com/the-walking-dead-dead-city-critics-audience-rotten-tomatoes-score/
+
+The show just returned for Season 3 and critics loved it.
+---------
+
+# Disney's Beloved '90s Cartoon Returns as a PVOD Hit 29 Years Later
+
+TV, Disney, Disney+, Gargoyles
+
+Sat, 01 Aug 2026 20:30:15 GMT
+
+https://www.cbr.com/disney-beloved-90s-cartoon-gargoyles-returns-as-streaming-hit/
+
+This is the biggest sign yet that Disney needs to bring the Gargoyles series back in 2027.
+---------
+
+# Vincent Pastore, The Sopranos Actor, Dies at 80
+
+TV, obituary, The Sopranos
+
+Sat, 01 Aug 2026 20:21:09 GMT
+
+https://www.cbr.com/vincent-pastore-dead/
+
+Best known for his role on HBO's hit series The Sopranos, Vincent Pastore has passed away.
+---------
+
+# 10 Long Anime Series That Are 10/10 Masterpieces
+
+Anime, Yu Yu Hakusho
+
+Sat, 01 Aug 2026 20:15:14 GMT
+
+https://www.cbr.com/long-anime-series-that-are-flawless-masterpieces/
+
+Long anime can often go downhill over time, but these masterpieces remain flawless from start to finish.
+---------
+
+# 24 Years Later, Christian Bale's 107-Minute Sci-Fi Cult Classic Is Back on Streaming
+
+Movie News, Christian Bale, Equilibrium, Paramount Plus, Sci-Fi
+
+Sat, 01 Aug 2026 21:15:14 GMT
+
+https://collider.com/christian-bale-sci-fi-equilibrium-streaming-paramount-plus-august-2026/
+
+Christian Bale's forgotten sci-fi action film akin to The Matrix is getting a second chance on streaming this month. Find out more here.
+---------
+
+# One Chicago’s Near-Perfect Series Is Finally Available To Binge on Netflix
+
+TV Features, Chicago P.D., One Chicago, Netflix, NBC
+
+Sat, 01 Aug 2026 21:10:14 GMT
+
+https://collider.com/chicago-pd-netflix-streaming-binge/
+
+With over 200 episodes, Chicago P.D. is now streaming on Netflix, giving all One Chicago and Dick Wolf fans a new series to binge.
+---------
+
+# Rebecca Ferguson's Fantasy Epic Officially Sets Prime Video Release
+
+Movie News, Hercules, The Odyssey, Dwayne Johnson, Rebecca Ferguson
+
+Sat, 01 Aug 2026 21:00:15 GMT
+
+https://collider.com/rebecca-ferguson-fantasy-epic-hercules-streaming-prime-video-august-2026/
+
+The forgotten mythological action movie Hercules, starring Dwayne Johnson and Rebecca Ferguson, is coming to Prime Video.
+---------
+
+# 'The Sopranos' Fan-Favorite Dead at 80, Vincent Pastore Remembered
+
+TV News, The Sopranos, James Gandolfini, Obituary, HBO
+
+Sat, 01 Aug 2026 20:57:08 GMT
+
+https://collider.com/the-sopranos-vincent-pastore-dead-at-80/
+
+Vincent Pastore, best known as the star of HBO's The Sopranos, has died at the age of 80. Read on for all of the details.
+---------
+
+# All 4 Versions of 'Cape Fear,' Ranked
+
+TV, Cape Fear, The Simpsons
+
+Sat, 01 Aug 2026 20:51:14 GMT
+
+https://collider.com/cape-fear-movies-tv-shows-ranked/
+
+There have been four versions of the cat-and-mouse psychological thriller Cape Fear across film and TV, and we've ranked them all from worst to best.
+---------
+
+# Forget 'Top Gun,' Tom Cruise's Breakout Hit Is Returning to Streaming 43 Years Later
+
+Movie News, Tom Cruise, Risky Business, Paramount Plus, Streaming
+
+Sat, 01 Aug 2026 20:30:14 GMT
+
+https://collider.com/tom-cruise-risky-business-streaming-paramount-plus-august-2026/
+
+43 years ago, Tom Cruise slid into Hollywood stardom with his breakout performance coming to a new streamer. Find out more here.
+---------
+
+# Netflix’s Smash-Hit Zombie Series Has Officially Made History for the Wrong Reason
+
+TV Features, All Of Us Are Dead, Netflix, Zombie, Horror
+
+Sat, 01 Aug 2026 20:16:14 GMT
+
+https://collider.com/all-of-us-are-dead-longest-netflix-hiatus/
+
+Netflix's high school zombie series, All of Us Are Dead, has officially gone four years without a Season 2.
+---------
+
+# 'Reacher' Season 4 Cast & Character Guide
+
+Features, Reacher
+
+Sat, 01 Aug 2026 20:30:12 GMT
+
+https://movieweb.com/reacher-season-4-cast-character-guide/
+
+With a new novel and storyline to adapt, discover who will join Alan Ritchson in Season 4 of Reacher this August.
+---------
+
+# 'Spider-Man: Brand New Day' Makes History with First-Day Box Office Haul
+
+Movie News, Spider-Man: Brand New Day
+
+Sat, 01 Aug 2026 20:30:03 GMT
+
+https://movieweb.com/spider-man-sets-box-office-record/
+
+Sony's Spider-Man: Brand New Day sets new domestic box office benchmarks with a record-breaking $168 million opening day.
+---------
+
 # 10 Most Powerful Characters In James Gunn's DCU So Far
 
 Movies, DC Universe
@@ -5210,290 +5496,4 @@ Fri, 31 Jul 2026 13:00:54 GMT
 https://screenrant.com/matt-reeves-batman-caped-crusader-season-2-return/
 
 Ahead of The Batman - Part II, Matt Reeves' Batman is back in a DC series on Prime Video, and the Dark Knight fights the Joker, Poison Ivy, and more.
----------
-
-# Superman's Official Venom Form Ranks Among DC's Strongest Kryptonians Ever
-
-Marvel Comics, Spider-Man, Superman, Venom
-
-Fri, 31 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/superman-venom-form-strongest-kryptonian-ever/
-
-In a rare 2026 Marvel and DC crossover, Superman became the most powerful host in symbiote history when he bonded with Venom to fight Spider-Man.
----------
-
-# Spider-Man: Brand New Day's Post-Credits Confirms Tom Holland's MCU Future
-
-Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
-
-Fri, 31 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/spider-man-brand-new-day-post-credits-scene/
-
-At the end of the film, Spider-Man: Brand New Day has a post-credits tease that confirms Tom Holland's Spider-Man will return and hints at when.
----------
-
-# 22 Years Later, The Sopranos' Best Line Is Still Absolutely Devastating
-
-Classic TV, The Sopranos
-
-Fri, 31 Jul 2026 13:00:11 GMT
-
-https://screenrant.com/the-sopranos-best-line-tony-wheres-johnny/
-
-The Sopranos is chock-full of memorable one-liners from TV's most well-written gangsters, but one line in particular captures the show's true purpose.
----------
-
-# Ghosts Stars Tease Season 6’s Halloween Special & Eternally Yours Crossover Potential
-
-Interviews, Ghosts, Ghosts - Season 6, San Diego Comic-Con
-
-Fri, 31 Jul 2026 12:30:11 GMT
-
-https://screenrant.com/video/ghosts-season-6-halloween-special-eternally-yours-crossover-interview-sdcc-2026/
-
-Ghosts stars Utkarsh Ambudkar, Asher Grodman, and Román Zaragoza pal around with our host while debating the upcoming specials before season 6, the brewing sibling rivalry with Eternally Yours, Die Hard’s Christmas movie credentials, and ScreenRant’s penchant for top 10 lists.
----------
-
-# Netflix Users Are Running Out of Time to Watch the Spider-Man Movies as Brand New Day Premieres
-
-Movies, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man 2, Spider-Man 3, Spider-Man: Brand New Day
-
-Fri, 31 Jul 2026 13:40:29 GMT
-
-https://www.cbr.com/netflix-will-lose-iconic-spider-man-movies-before-brand-new-day/
-
-Speaking for Spider-Man fans everywhere: say it isn't so, Netflix.
----------
-
-# Ant-Man Star Reveals What It Would Take for Marvel to Make Ant-Man 4 After Quantumania Failed
-
-Movies, Ant-Man & the Wasp: Quantumania, MCU, Ant-Man
-
-Fri, 31 Jul 2026 13:37:01 GMT
-
-https://www.cbr.com/ant-man-kathryn-newton-ant-man-4-condition/
-
-The third film in the series was both a critical and commercial letdown for the MCU.
----------
-
-# 35 Years Later, Netflix's Hit Action Series Still Follows One Unbreakable Rule
-
-Anime, Baki The Grappler, Baki-Dou: The Invincible Samurai, Netflix
-
-Fri, 31 Jul 2026 13:15:15 GMT
-
-https://www.cbr.com/netflix-hit-action-series-baki-dou-unbreakable-rule-35-years-later/
-
-Baki-Dou shows why Netflix's hit action anime remains so compelling 35 years later by never breaking its core formula.
----------
-
-# Ray Wise's Forgotten Supernatural Series Gave TV Its Greatest Devil
-
-TV, Comedy, Reaper, ABC
-
-Fri, 31 Jul 2026 13:00:15 GMT
-
-https://www.cbr.com/forgotten-supernatural-series-reaper-ray-wise-tv-greatest-devil/
-
-There have been plenty of memorable performances as Satan in film and television, but Ray Wise's Devil may still sit atop the infernal throne.
----------
-
-# 5 Greatest Fantasy Book Trilogies Of The Last 50 Years, Ranked
-
-Movies, Fantasy
-
-Fri, 31 Jul 2026 13:00:15 GMT
-
-https://www.cbr.com/greatest-fantasy-book-trilogies-last-50-years-list/
-
-In the last 50 years, the fantasy genre has evolved from its origins, with these groundbreaking trilogies pushing the boundaries of storytelling.
----------
-
-# Marvel Officially Confirms X-Men Korea WEBTOON That Changes Everything
-
-Comics, X-Men, webtoon
-
-Fri, 31 Jul 2026 12:00:16 GMT
-
-https://www.cbr.com/marvel-confirms-x-men-korea-webtoon/
-
-WEBTOON is delivering the X-Men like you've never seen them before.
----------
-
-# 10 Darkest Joker Stories Ever Published
-
-Comics, Joker
-
-Fri, 31 Jul 2026 12:00:16 GMT
-
-https://www.cbr.com/darkest-joker-stories-ever-published/
-
-These tales of the Clown Prince of Crime are no laughing matter.
----------
-
-# Hadestown's Eva Noblezada and Reeve Carney Spill On All the "Behind the Curtain" Stories
-
-Movie, Hadestown: The Musical, Originals
-
-Fri, 31 Jul 2026 12:45:15 GMT
-
-https://collider.com/video/hadestown-s-eva-noblezada-and-reeve-carney-spill-on-all-the-behind-the-curtain-stories/
-
-Who's the best duo in Hadestown? Take a guess! Eva Noblezada (Eurydice) and Reeve Carney (Orpheus) are real life husband and wife who star in an epic romance based on the greek myth.
----------
-
-# 3 Netflix Masterpieces to Binge This Weekend (Aug 1-2)
-
-TV, The Crown, Hannibal, Solar Opposites, Netflix
-
-Fri, 31 Jul 2026 12:41:15 GMT
-
-https://collider.com/best-netflix-shows-binge-august-1/
-
-The Crown, Hannibal, and Solar Opposites make up our list of the best Netflix shows to binge the weekend of August 1st, 2026.
----------
-
-# 61 Years Ago, the Kinks Were Banned From the U.S. After a Catastrophic Tour
-
-Music Features, The Kinks, Music, Rock, Billboard Hot 100
-
-Fri, 31 Jul 2026 12:30:14 GMT
-
-https://collider.com/the-kinks-1965-us-tour/
-
-The Kinks' tumultuous 1965 US tour led to a ban in America, impacting their career, but ultimately propelling them to create their iconic album, The Village Green Preservation Society.
----------
-
-# 20 Years Later, Zack Snyder’s Greek Epic Is Officially Taking the Streaming Crown
-
-Movie News, Zack Snyder, 300, Gerard Butler, The Odyssey
-
-Fri, 31 Jul 2026 12:30:14 GMT
-
-https://collider.com/zack-snyder-300-streaming-success-vudu-july-2026/
-
-Zack Snyder's historical fantasy movie 300 has risen to the top of the streaming charts after being overtaken at the box office by The Odyssey.
----------
-
-# 10 Slowest Movies of All Time
-
-Movie, 2001: A Space Odyssey, Sátántangó, Memoria, Jeanne Dielman, 23, quai du Commerce, 1080 Bruxelles
-
-Fri, 31 Jul 2026 12:24:15 GMT
-
-https://collider.com/slowest-movies-all-time-ranked/
-
-The slowest-paced movies of all time include the likes of 2001: A Space Odyssey, An Elephant Sitting Still, and Songs from the Second Floor.
----------
-
-# 26 Years Later, George Clooney’s ‘The Odyssey’ Adaptation Is Making a Comeback
-
-Movie News, O Brother, Where Art Thou?, George Clooney, Coen Brothers, John Turturro
-
-Fri, 31 Jul 2026 12:00:16 GMT
-
-https://collider.com/george-clooney-o-brother-where-art-thou-streaming-success-itunes-july-2026/
-
-The Coen Brothers' screwball musical comedy O Brother, Where Art Thou? has been resurrected on iTunes following the success of The Odyssey.
----------
-
-# 'The Rings of Power's New Orc Could Officially Turn the Tide Against Sauron
-
-Exclusives, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Prime Video, SDCC
-
-Fri, 31 Jul 2026 12:00:16 GMT
-
-https://collider.com/rings-of-power-season-3-sauron-marnukh-the-orc/
-
-The cast and creators for Prime Video's The Rings of Power tease character arcs, brand-new faces, and what fans can expect from Season 3.
----------
-
-# Forget 'The Odyssey,' Matt Damon's Crime Thriller Sets New Netflix Record
-
-Movie Features, The Rip, Joe Carnahan, Matt Damon, Ben Affleck
-
-Fri, 31 Jul 2026 11:57:15 GMT
-
-https://collider.com/matt-damon-thriller-sets-netflix-record/
-
-Joe Carnahan's 'The Rip,' starring Matt Damon and Ben Affleck, is one of Netflix's most-watched films of 2026 so far.
----------
-
-# Prime Video's 94-Minute Alan Ritchson Action Hit Is Once Again a Streaming Smash
-
-Movie News, Alan Ritchson, Playdate, Hot on Streaming, Action, Prime Video
-
-Fri, 31 Jul 2026 13:08:22 GMT
-
-https://movieweb.com/playdate-prime-video-action-streaming-july-2026/
-
-Ahead of 'Reacher' Season 4, Alan Ritchson's 2025 action hit is once again a streaming smash on Prime Video.
----------
-
-# Original 'X-Files' Icon Delivers Glowing Verdict on Ryan Coogler's Reboot
-
-TV News, The X-Files, Ryan Coogler, Gillian Anderson
-
-Fri, 31 Jul 2026 13:05:38 GMT
-
-https://movieweb.com/x-files-reboot-gillian-anderson-reaction/
-
-Dana Scully actress Gillian Anderson has praised Ryan Coogler's 'The X-Files' reboot but has not yet confirmed an official return.
----------
-
-# When 'Lioness' Season 3 Releases & Full Schedule
-
-Features, Lioness, Taylor Sheridan
-
-Fri, 31 Jul 2026 12:00:13 GMT
-
-https://movieweb.com/lioness-season-3-release-schedule/
-
-'Lioness' is a Paramount+ action series created by Taylor Sheridan, starring Laysla De Oliveira and Zoe Saldaña.
----------
-
-# Half-Life 3 Can Wait, Half-Life: Alyx Is Now Playable Without VR
-
-Gaming, Half-Life, Half-Life 2, Valve, Virtual Reality, Half-Life: Alyx
-
-Fri, 31 Jul 2026 11:35:53 GMT
-
-https://screenrant.com/half-life-alyx-no-vr-mode/
-
-Half-Life: Alyx is now playable without VR, opening up the acclaimed VR exclusive to a wider audience on PC with mouse and keyboard controls.
----------
-
-# Fallout 5 Can Wait, Fallout: New California Just Got An Official Release
-
-Gaming, Fallout, Fallout: New Vegas
-
-Fri, 31 Jul 2026 11:30:11 GMT
-
-https://screenrant.com/fallout-new-california-gog-release/
-
-Fallout: New California is one of the coolest New Vegas mods around, and you can now play it more easily than ever.
----------
-
-# Star Trek Foreshadowed Kirk’s Greatest Tragedy That Happens Over 20 Years Later
-
-TV, Star Trek, Star Trek: Strange New Worlds
-
-Fri, 31 Jul 2026 11:30:11 GMT
-
-https://screenrant.com/star-trek-strange-new-worlds-kirk-son-david-death-set-up/
-
-Star Trek: Strange New Worlds season 4, episode 2 delves into James T. Kirk's feelings about fatherhood and set up what happens in Star Trek III.
----------
-
-# Pokémon Officially Unveils New Look At Alternate Forms For Classic 'Mon
-
-Gaming, Pokemon
-
-Fri, 31 Jul 2026 11:00:11 GMT
-
-https://screenrant.com/pokemon-alternate-forms-new-look-logos/
-
-Nintendo celebrates 30 years of Pokémon with official alternate logos for iconic Pokémon, including Bulbasaur, Squirtle, and Charmander.
 ---------
