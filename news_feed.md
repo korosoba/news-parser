@@ -1,3 +1,289 @@
+# Pokémon Winds & Waves Gameplay Leak Confirms Beloved Legends Feature
+
+Gaming, Pokemon Winds and Waves, Pokemon, Triple-A Games
+
+Sat, 01 Aug 2026 15:47:44 GMT
+
+https://screenrant.com/pokemon-winds-waves-pokeball-battle-legends/
+
+Pokémon Scarlet & Violet skipped a lot of the best features from Legends: Arceus, but Winds & Waves apparently won't make the same mistake.
+---------
+
+# The Odyssey Box Office Breaks Christopher Nolan's The Dark Knight Record In Week 3
+
+Movies, Box Office, The Odyssey
+
+Sat, 01 Aug 2026 15:36:08 GMT
+
+https://screenrant.com/the-odyssey-2026-box-office-week-3-domestic-result/
+
+The Odyssey's third weekend at the domestic box office sees it earning a record-smashing total despite competition from Spider-Man: Brand New Day.
+---------
+
+# Spider-Man: Brand New Day Box Office Grosses Nearly $1 Billion In A Single Weekend
+
+Movies, Box Office, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 01 Aug 2026 15:33:08 GMT
+
+https://screenrant.com/spider-man-brand-new-day-global-box-office-debut/
+
+Spider-Man: Brand New Day earns the second-biggest global box office debut of all time, behind only its MCU predecessor Avengers: Endgame.
+---------
+
+# Every Romantic Relationship Raj Had In The Big Bang Theory Ranked
+
+Classic TV, The Big Bang Theory
+
+Sat, 01 Aug 2026 15:30:13 GMT
+
+https://screenrant.com/big-bang-theory-raj-relationships-ranked/
+
+Raj had quite a few relationships on The Big Bang Theory and even a few promising girlfriends.- despite his famed inability to talk to women.
+---------
+
+# 5 Action Thriller Shows Better Than Reacher
+
+TV, Reacher, Recommendation
+
+Sat, 01 Aug 2026 15:30:11 GMT
+
+https://screenrant.com/action-thriller-shows-better-reacher/
+
+Prime Video's Reacher is one of the most addictive action thrillers on TV, but there are a handful of series that edge it out in terms of quality.
+---------
+
+# Pokémon Reveals New 30th Anniversary Release For August 7 That Will Sell Out Fast
+
+Gaming, Pokemon
+
+Sat, 01 Aug 2026 15:30:11 GMT
+
+https://screenrant.com/pokemon-classic-concert-tour-pikachu-august-7/
+
+Pokémon has officially revealed a new 30th anniversary release that goes on sale on August 7. It'll likely sell out fast, so mark your calendars now.
+---------
+
+# The Rookie Finally Breaks An ABC Record That Nobody Wanted In Season 9
+
+Network TV, The Rookie
+
+Sat, 01 Aug 2026 15:30:11 GMT
+
+https://screenrant.com/the-rookie-season-9-no-two-part-premiere-break-record/
+
+New details about The Rookie season 8 confirms that it is breaking a record for the first time in its history that nobody wanted in the first place.
+---------
+
+# Why Penny & Leonard Aren’t Together In New Big Bang Theory Spinoff Explained By Creator
+
+TV, Stuart Fails to Save the Universe, Stuart Fails to Save the Universe - Season 1, The Big Bang Theory
+
+Sat, 01 Aug 2026 15:15:28 GMT
+
+https://screenrant.com/stuart-fails-to-save-the-universe-penny-leonard-relationship-prady-response/
+
+Penny and Leonard's relationship is central to The Big Bang Theory franchise, but they aren't together in the new spinoff for an important reason.
+---------
+
+# Forget Horizon, This Is The Kevin Costner Western Series We Want To Return ASAP
+
+Streaming TV, Masked Recs
+
+Sat, 01 Aug 2026 15:15:11 GMT
+
+https://screenrant.com/kevin-costner-civil-war-western-the-gray-house-season-2-return/
+
+Despite its mixed reception, The Gray House, a Prime Video drama executive produced by Kevin Costner, has the potential for a compelling season 2.
+---------
+
+# Spider-Man: Brand New Day Leaves One Huge Peter Parker Storyline Unresolved
+
+Movies, Spider-Man: Brand New Day
+
+Sat, 01 Aug 2026 15:15:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-leaves-one-huge-peter-parker-storyline-unresolved/
+
+Spider-Man: Brand New Day balances many plot lines, but one in particular is left unresolved come the end of the film's story.
+---------
+
+# The Only 2000s HBO Show That Still Outshines The Sopranos Today
+
+TV, Deadwood, hbo, The Sopranos
+
+Sat, 01 Aug 2026 15:31:15 GMT
+
+https://www.cbr.com/hbo-deadwood-still-outshines-the-sopranos-today/
+
+While people point to HBO and The Sopranos for kickstarting the Prestige TV era, another early 2000s series outshines the mob drama to this day.
+---------
+
+# 4 Dark Shonen Anime Where Every Episode Is a Masterpiece
+
+Anime, Berserk, Jujutsu Kaisen, Fullmetal Alchemist Brotherhood, Attack On Titan
+
+Sat, 01 Aug 2026 15:15:15 GMT
+
+https://www.cbr.com/dark-shonen-anime-every-episode-a-masterpiece/
+
+The greatest dark shonen anime are exceptional works of art that every fan needs to watch.
+---------
+
+# Zelda Officially Returns With New 40th Anniversary Release October 2026
+
+Games, The Legend of Zelda
+
+Sat, 01 Aug 2026 15:10:15 GMT
+
+https://www.cbr.com/zelda-official-return-new-anniversary-release-october-2026/
+
+The Legend of Zelda franchise has big new releases coming in October and November.
+---------
+
+# Ryan Gosling's Masterpiece Sci-Fi Thriller Officially Finds New Streaming Home
+
+Movies, Blade Runner 2049, Paramount Plus, ryan gosling
+
+Sat, 01 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/blade-runner-2049-paramount-plus-august-2026/
+
+Ryan Gosling's $276M masterpiece has moved to a new streaming home.
+---------
+
+# 10 X-Men Comics That Desperately Need a Reboot
+
+Comics, X-Men, Marvel, superheroes
+
+Sat, 01 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/xmen-comics-desperately-need-reboot-list/
+
+Explore the
+---------
+
+# 10 Most Disappointing Live Action Anime Adaptations, Ranked
+
+Anime, Shonen, Dragon Ball, Cowboy Bebop (2021)
+
+Sat, 01 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/most-disappointing-live-action-anime-adaptations/
+
+Live action anime adaptations like Dragon Ball Evolution and Cowboy Bebop completely miss the mark, and they aren't the only ones.
+---------
+
+# Solo Leveling's Spider-Man: Brand New Day Cameo Makes Perfect Sense
+
+Anime, Solo Leveling, Spider-Man: Brand New Day
+
+Sat, 01 Aug 2026 14:55:15 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-solo-leveling-cameo/
+
+Solo Leveling's Sung Jinwoo just made an early live-action big screen debut by way of Marvel's new Spider-Man: Brand New Day movie.
+---------
+
+# 10 Farewell Tours That Didn't Stick
+
+Music Features, Music, Frank Sinatra, Elton John, Motley Crue, The Dirt
+
+Sat, 01 Aug 2026 15:33:15 GMT
+
+https://collider.com/10-best-farewell-tours-didnt-stick/
+
+From Frank Sinatra and Elton John to Motley Crue and Kiss to Ozzy and The Who, these farewell concert tours were more a temporary goodbye.
+---------
+
+# Timothy Olyphant’s 6-Part Neo-Western Is So Good, It Even Changed This Character’s Fate in the Books
+
+TV Features, Justified, Timothy Olyphant, Walton Goggins, Justified: City Primeval
+
+Sat, 01 Aug 2026 15:23:15 GMT
+
+https://collider.com/justified-timothy-olyphant-neo-western-changed-boyd-crowder-fate-books/
+
+Justified's decision to keep Boyd Crowder alive shocked fans and even changed Elmore Leonard's final Raylan Givens book.
+---------
+
+# ‘Stranger Things’ Producers Must Get This Right With Netflix’s Next Massive Gaming Series
+
+TV Features, Persona, Stranger Things, The Witcher, Netflix
+
+Sat, 01 Aug 2026 15:20:15 GMT
+
+https://collider.com/netflix-persona-stranger-things-producers-video-game-relationships/
+
+The Persona video games will be getting a television adaptation courtesy of 21 Laps, and there's a key element that producers need to remember.
+---------
+
+# ‘Big Bang Theory’ Favorites React to Sci-Fi Spin-Off Announcement: “We Thought We Were Being Punk’d”
+
+Exclusives, Stuart Fails to Save the Universe, SDCC, The Big Bang Theory, HBO Max
+
+Sat, 01 Aug 2026 14:58:29 GMT
+
+https://collider.com/big-bang-theory-sci-fi-spin-off-stuart-fails-to-save-the-universe-cast-reaction/
+
+The cast of Stuart Fails to Save the Universe break down the Big Bang Theory spin-off's wildest sci-fi moments and tease a potential Season 2.
+---------
+
+# ‘Spider-Man: Brand New Day’ Swings Past ‘Avengers: Endgame’ in Monster Box Office Debut
+
+Movie News, Spider-Man: Brand New Day, Avengers: Endgame, Box Office, Tom Holland
+
+Sat, 01 Aug 2026 14:55:34 GMT
+
+https://collider.com/spider-man-brand-new-day-box-office-168-million/
+
+After beating Avengers: Endgame’s opening box office haul, Spider-Man: Brand New Day isn’t done shattering records yet.
+---------
+
+# 2026’s Sci-Fi Fantasy Bomb Officially Loses #1 Prime Video Spot to New Horror Hit
+
+Movie News, Prime Video, Masters of the Universe, The Devil's Mouth, Horror
+
+Sat, 01 Aug 2026 14:46:15 GMT
+
+https://collider.com/the-devils-mouth-overtakes-masters-of-the-universe-streaming-success-prime-video-august-2026/
+
+Kathryn Netwon’s new horror movie has officially dethroned Masters of the Universe on Prime Video. Read on for all the details.
+---------
+
+# 'Spider-Man: Brand New Day's Record-Setting RT Audience Score Is Off to a Spectacular Start
+
+Movie News, Spider-Man: Brand New Day, Rotten Tomatoes
+
+Sat, 01 Aug 2026 15:31:32 GMT
+
+https://movieweb.com/spider-man-brand-new-day-rotten-tomatoes-audience-score/
+
+'Spider-Man: Brand New Day' is off to a spectacular start, as reviews for the movie have taken it to incredible levels of success.
+---------
+
+# 13 'Fast & Furious' Quotes About Family
+
+Movie Lists, Fast and Furious
+
+Sat, 01 Aug 2026 15:00:13 GMT
+
+https://movieweb.com/fast-and-furious-quotes-about-family/
+
+Dom Toretto has never met a scene he couldn't turn into a speech about family. Here are 13 'Fast & Furious' quotes that define the franchise's soul.
+---------
+
+# The Greatest Sci-Fi Thriller of the 21st Century Is on YouTube For Free
+
+Features, Ex Machina
+
+Sat, 01 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/ex-machina-sci-fi-thriller-youtube-free/
+
+A memorable science-fiction thriller movie from a celebrated director is available to watch on YouTube for free.
+---------
+
 # 10 Movies To Watch If You Love Back To The Future
 
 Movies, Back to the Future, Pleasantville, Bill and Ted, Timecop, The Adam Project, Flight of the Navigator, The Last Starfighter, Peggy Sue Got Married, Blast from the Past, The Goonies, Time Bandits
@@ -5210,290 +5496,4 @@ Thu, 30 Jul 2026 23:00:14 GMT
 https://www.cbr.com/2000s-psychological-thrillers-no-one-remembers-list/
 
 Psychological thrillers have produced plenty of well-known masterpieces, but the 2000s is a haven for forgotten gems nobody talks about anymore.
----------
-
-# The Greatest Action Drama Ever and Its Sequel Are the Perfect Free Binge on Streaming
-
-Movie Features, Top Gun, Tom Cruise, Action, Tony Scott
-
-Thu, 30 Jul 2026 23:48:14 GMT
-
-https://collider.com/top-gun-maverick-streaming-free-pluto-july-2026/
-
-Tom Cruise redefined action films and his own career with 1986's Top Gun, which is streaming for free on Pluto TV along with 2022's Top Gun: Maverick.
----------
-
-# 7 Essential Stephen King Books You Must Read at Least Once
-
-Books and Comics, Stephen King, The Stand, It, Carrie
-
-Thu, 30 Jul 2026 23:39:14 GMT
-
-https://collider.com/stephen-king-essential-books/
-
-From his debut horror novel Carrie to the quintessential coming-of-age story It, these Stephen King books are essential and are worth reading once.
----------
-
-# One of the Best Horror Book of the Decade Is Becoming a Feature Film 5 Years Later
-
-Movie News, Horror, Christopher Landon, Paramount Pictures, Paramount
-
-Thu, 30 Jul 2026 23:31:13 GMT
-
-https://collider.com/the-final-girl-support-group-horror-adaptation-confirmed-chrisopher-landon/
-
-Legendary horror filmmaker Christopher Landon is officially bringing a beloved horror novel to the big screen. Read on for more.
----------
-
-# The 10 Best Fantasy Shows of the 21st Century, Ranked
-
-TV, Fantasy, House of the Dragon, Game Of Thrones, The Witcher
-
-Thu, 30 Jul 2026 23:12:14 GMT
-
-https://collider.com/best-fantasy-tv-shows-21st-century-ranked/
-
-From Merlin to Game of Thrones, these best fantasy shows of the 21st century so far will go down in history as genre-defining modern classics.
----------
-
-# 'GTA 6’s Latest Controversy Enrages PlayStation Fans
-
-Gaming News, GTA V, Grand Theft Auto, Sony PlayStation, PS5
-
-Thu, 30 Jul 2026 23:06:35 GMT
-
-https://collider.com/gta-6-controversy-ps5-download-code-restrictions/
-
-GTA 6 continues to spark controversy ahead of its November release, and this latest wrinkle affects PlayStation users the most.
----------
-
-# Tom Hiddleston’s 3-Part Disney+ Series Makes This Historical Disaster More Relevant
-
-TV Features, Tom Hiddleston, Pompeii: Out of Time with Tom Hiddleston, Disney+, Documentary
-
-Thu, 30 Jul 2026 23:04:15 GMT
-
-https://collider.com/tom-hiddleston-disney-series-pompeii-out-of-time/
-
-On July 23, Hulu and Disney+ premiered Pompeii: Out of Time, a new docuseries featuring Tom Hiddleston as he redefines the tragic eruption of Mount Ve
----------
-
-# Disney’s Twisted Anime Officially Returns With 2026 Release Date
-
-TV News, Disney Twisted-Wonderland the Animation, Disney+, Fantasy, Anime
-
-Thu, 30 Jul 2026 22:59:33 GMT
-
-https://collider.com/disney-twisted-wonderland-season-2-release-date-december-2026/
-
-Disney's anime series Twisted-Wonderland reveals that Season 2, titled "Episode of Savanaclaw," is set for December 2026.
----------
-
-# 'Severance' Season 3's Official Filming Announcement Is the Best News for Even the Most Impatient Fans
-
-TV Features, Severance, Apple TV, Adam Scott, Ben Stiller
-
-Thu, 30 Jul 2026 22:58:14 GMT
-
-https://collider.com/severance-season-3-filming-announcement-good-news-for-fans/
-
-Severance's Dan Erickson confirms that Season 3 filming has begun, possibly promising a quicker return than the 3-year gap between Seasons 1 and 2.
----------
-
-# Stephen King's Supernatural '80s Masterpiece Gets New Release
-
-Movie News, Stephen King, Pet Sematary
-
-Thu, 30 Jul 2026 23:43:32 GMT
-
-https://movieweb.com/stephen-king-pet-sematary-4k-blu-ray-steelbook/
-
-'Pet Sematary' is getting an all-new limited-edition 4K Ultra HD Blu-ray SteelBook release in October.
----------
-
-# 'Tombstone' Meets 'House of the Dragon' 8-Part Sci-Fi Western Adds 'Cobra Kai' Star
-
-TV News, Sci-Fi, Western, Luke Sparke
-
-Thu, 30 Jul 2026 23:00:42 GMT
-
-https://movieweb.com/dinosaurs-of-the-wild-west-martin-kove-cast/
-
-The epic sci-fi Western series from the director of 'Primitive War' is officially building a star-studded cast, including a Cobra Kai alum.
----------
-
-# It's Confirmed: Luke And Leia Are Returning For Epic New Star Wars Story In 2027
-
-Star Wars
-
-Thu, 30 Jul 2026 22:45:12 GMT
-
-https://screenrant.com/star-wars-luke-leia-return-twin-crossroads-2027/
-
-Luke and Leia officially return in 2027's next Star Wars installment, which will explore an untold chapter in the Skywalker family's history.
----------
-
-# 6 Game Of Thrones Characters Who Get Worse & Worse
-
-Streaming TV, Game of Thrones, Game Of Thrones
-
-Thu, 30 Jul 2026 22:30:11 GMT
-
-https://screenrant.com/game-of-thrones-characters-get-worse/
-
-Game of Thrones is notorious for its rocky narrative trajectory, but no arcs feel as downhill as those of these formerly great characters.
----------
-
-# 3 Batman Villains Who Got More Terrifying Over Time & 3 Who Mellowed
-
-Comics, Batman
-
-Thu, 30 Jul 2026 22:30:11 GMT
-
-https://screenrant.com/batman-best-villains-who-got-scarier/
-
-Batman's foes are iconic, but not static.
----------
-
-# A24's New Biopic Movie Debuts With Near-Perfect Rotten Tomatoes Score
-
-Movies, Tony
-
-Thu, 30 Jul 2026 22:08:18 GMT
-
-https://screenrant.com/a24-tony-movie-rotten-tomatoes-score-near-perfect/
-
-A24 has seen major box office and awards show success over the years, and now the production company is set to release a critically acclaimed biopic.
----------
-
-# Netflix's 12-Part Zombie Series With High Rotten Tomatoes Score Is The Perfect Weekend Binge
-
-TV, Masked Recs
-
-Thu, 30 Jul 2026 22:04:58 GMT
-
-https://screenrant.com/all-of-us-are-dead-netflix-series-must-watch/
-
-Netflix's 12-part zombie series that has already been renewed for season 2 is intense, dark, and gruesome, making for an epic weekend binge.
----------
-
-# Casting Meryl For A Live-Action Metal Gear Solid Movie: 7 Perfect Actors
-
-Movies, Metal Gear
-
-Thu, 30 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/metal-gear-solid-movie-meryl-casting-actors/
-
-The live-action Metal Gear movie is back on, and assuming it actually makes it to wider casting this time, we will need to find a Meryl Silverburgh.
----------
-
-# 10 Biggest Marvel Villains Who Can Fill The Void Left By Thanos
-
-Comics, Marvel, Thanos
-
-Thu, 30 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/marvel-villains-replace-thanos/
-
-Thanos had an amazing run, but the franchise needs a new villain just as capable, and these formidable antagonists definitely have what it takes.
----------
-
-# 10 Episodes Of Law & Order: SVU That Aged Like Fine Wine
-
-Network TV, Law & Order: Special Victims Unit
-
-Thu, 30 Jul 2026 21:45:11 GMT
-
-https://screenrant.com/law-order-svu-episodes-aged-like-fine-wine/
-
-Revisit these classic Law & Order: SVU episodes that have stood the test of time, offering gripping narratives and exceptional guest performances.
----------
-
-# Taylor Sheridan's Lioness Stars Address Show's Fate Ahead of Season 3
-
-TV, Lioness
-
-Thu, 30 Jul 2026 22:43:29 GMT
-
-https://www.cbr.com/taylor-sheridan-lioness-season-4-plans-confirmed/
-
-The future of Lioness on Paramount+ gets a big update from the show's stars just days ahead of its Season 3 premiere.
----------
-
-# Anne Hathaway's 119-Minute Disney Sequel Audiences Loved Hits No. 1 on Hulu After Just 1 Day
-
-Movies, The Devil Wears Prada 2
-
-Thu, 30 Jul 2026 22:30:14 GMT
-
-https://www.cbr.com/the-devil-wears-prada-2-comedy-success-hulu-july-2026/
-
-One of the hottest sequels of the year is officially a streaming sensation just one day after making its way onto the platform.
----------
-
-# Netflix's Hit 5-Season Adventure Says Goodbye in Final Season Trailer 1 Month Ahead of Return
-
-TV, Outer Banks, Netflix, Adventure
-
-Thu, 30 Jul 2026 22:17:33 GMT
-
-https://www.cbr.com/outer-banks-season-5-traier/
-
-The final trailer for the final season of Netflix's hit adventure drama series has arrived, and the end of Outer Banks promises to be unforgettable.
----------
-
-# 10 Greatest Anime Glow Ups Of All Time
-
-Anime, Solo Leveling, One Piece, Horimiya
-
-Thu, 30 Jul 2026 22:15:15 GMT
-
-https://www.cbr.com/greatest-anime-glow-ups-all-time/
-
-Physical glow-ups carry so much importance in anime spaces because they signal power, confidence or maturity in an instantly readable way.
----------
-
-# Glen Powell's Audience-Loved 6-Part Hulu Series Returns With New Episodes in Just 1 Month
-
-TV, Chad Powers, Hulu, Glen Powell
-
-Thu, 30 Jul 2026 22:10:38 GMT
-
-https://www.cbr.com/chad-powers-glen-powell-hulu-season-2-premiere-date/
-
-Chad Powers, Hulu's sports comedy starring Glen Powell, returns on Sep. 3
----------
-
-# Spider-Man Writer J. Michael Straczynski Praises Brand New Day's 'Authentic' Feel
-
-Comics, Spider-Man, marvel studios, Marvel Comics
-
-Thu, 30 Jul 2026 22:00:14 GMT
-
-https://www.cbr.com/j-michael-straczynski-praises-spider-man-brand-new-day/
-
-The writer weighs in via his socials and gives the new feature, Spider-Man: Brand New Day, his full support.
----------
-
-# Rick & Morty Makes a Big HBO Comeback 2 Months After Ending
-
-TV, Rick and Morty, HBO Max
-
-Thu, 30 Jul 2026 22:00:14 GMT
-
-https://www.cbr.com/rick-and-morty-sci-fi-scucesss-hbo-max-july-2026/
-
-The biggest animated sitcom sensation of the century is taking over the streaming charts just  months after its latest finale.
----------
-
-# The MCU Phase 6 Breaks the Marvel Formula
-
-Movies, Marvel Cinematic Universe, marvel studios
-
-Thu, 30 Jul 2026 22:00:14 GMT
-
-https://www.cbr.com/mcu-phase-6-breaks-marvel-formula/
-
-Marvel Studios has announced new movies for the MCU's future, and their expected release dates confirm important lessons have been learned.
 ---------
