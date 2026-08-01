@@ -1,3 +1,256 @@
+# Say Goodbye To Rey Skywalker As Star Wars Unleashes A New Era
+
+Streaming TV, Masked Recs, Star Wars
+
+Sat, 01 Aug 2026 16:45:11 GMT
+
+https://screenrant.com/star-wars-lah-kara-new-jedi-era-rey-skywalker/
+
+Sadly, Rey Skywalker may never get the chance to rebuild the Jedi Order, but a new character might, as Star Wars launches a whole new initiative.
+---------
+
+# Who Are The Crime Bosses Spider-Man Defeated In Spider-Man: Brand New Day
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 01 Aug 2026 16:40:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-crime-bosses-explained/
+
+Spider-Man: Brand New Day references crime bosses in New York City, but the villains depicted are not usually bosses. So, who did Spidey take down?
+---------
+
+# Batman's New Villain Is a Gift to Anyone Who Loves the Franchise
+
+Comics, Batman, Sonic the Hedgehog
+
+Sat, 01 Aug 2026 16:30:11 GMT
+
+https://screenrant.com/batman-sonic-metal-knightfall/
+
+There's a brand-new Batman villain in town.
+---------
+
+# 10 Forgotten Cartoons From The Early '00s Still Worth Watching
+
+Classic TV
+
+Sat, 01 Aug 2026 16:30:11 GMT
+
+https://screenrant.com/cartoons-early-2000s-forgotten-worth-watching/
+
+Some great cartoon shows from the 2000s got lost amid some huge now-classic hits, but these forgotten titles are still worth watching today.
+---------
+
+# Disney Villainous Is Still Going Strong Eight Years Later
+
+Gaming, Disney, tabletop games
+
+Sat, 01 Aug 2026 16:30:11 GMT
+
+https://screenrant.com/disney-villainous-success-darkness-brewing-impressions/
+
+Disney Villainous kicked off with Captain Hook, Prince John, Jafar, Queen of Hearts, Ursula, and Maleficent, but it's expanded significantly.
+---------
+
+# Marvel’s Wonder Man Stars React To Cancellation Of Season 2 Renewal
+
+TV, Wonder Man, Wonder Man - Season 1, Marvel Cinematic Universe
+
+Sat, 01 Aug 2026 16:22:05 GMT
+
+https://screenrant.com/wonder-man-season-2-renewal-cancellation-cast-reactions/
+
+After Wonder Man season 2 was renewed and canceled, two of the show's main stars react to the news about the critically acclaimed show's fate.
+---------
+
+# The MCU Just Revealed The 10th Villain Iron Man Accidentally Created
+
+Movies, Marvel Cinematic Universe, Spider-Man: Brand New Day
+
+Sat, 01 Aug 2026 16:20:11 GMT
+
+https://screenrant.com/mcu-iron-man-villain-spider-man-brand-new-day-created/
+
+Iron Man's history of accidentally creating MCU villains have played a role in yet another Marvel antagonist's story and rise to power.
+---------
+
+# Shemar Moore's Hondo Officially Returns To Lead A New S.W.A.T. Generation In First Exiles Trailer
+
+TV, S.W.A.T.
+
+Sat, 01 Aug 2026 16:16:52 GMT
+
+https://screenrant.com/swat-exiles-show-trailer-starz/
+
+Shemar Moore's Hondo returns in the S.W.A.T. Exiles trailer, previewing what to expect when the much-anticipated spinoff debuts on Starz.
+---------
+
+# Spider-Man: Brand New Day Confirms Black Widow’s MCU Replacement
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Sat, 01 Aug 2026 16:11:03 GMT
+
+https://screenrant.com/florence-pugh-yelena-black-widow-spider-man-brand-new-day/
+
+Spider-Man: Brand New Day officially confirms Scarlett Johansson's Black Widow replacement, and the MCU reveal comes at the perfect time.
+---------
+
+# The Legend Of Vox Machina Vs. The Mighty Nein: Which Critical Role Show Is Best?
+
+TV, The Legend of Vox Machina, Critical Role, The Mighty Nein
+
+Sat, 01 Aug 2026 16:02:11 GMT
+
+https://screenrant.com/best-critical-role-tv-show-vox-machina-mighty-nein/
+
+The Legend Of Vox Machina and The Mighty Nein both boast perfect RT scores, but which Critical Role show is the Prime Video franchise's best offering?
+---------
+
+# 6 Biggest Unanswered Questions We Still Have After Avatar: Fire & Ash
+
+Movies, Avatar: Fire and Ash, Avatar, james cameron
+
+Sat, 01 Aug 2026 16:31:14 GMT
+
+https://www.cbr.com/avatar-fire-ash-unanswered-questions-list/
+
+Avatar: Fire and Ash posed some huge questions for James Cameron's epic sci-fi franchise that still haven't been addressed in the months since.
+---------
+
+# Timothy Olyphant's Easy-to-Binge Horror Show Is the Best 3 Seasons in Netflix History
+
+TV, Santa Clarita Diet, Horror, Netflix
+
+Sat, 01 Aug 2026 16:31:14 GMT
+
+https://www.cbr.com/netflix-santa-clarita-diet-bingeable-show/
+
+One Netflix horror-comedy show is an addictive 3-season watch, and actors Timothy Olyphant and Drew Barrymore shine.
+---------
+
+# Netflix's Heated Rivalry Replacement Gets Major Filming Update
+
+TV, Heated Rivalry, Netflix, Off Campus
+
+Sat, 01 Aug 2026 16:26:39 GMT
+
+https://www.cbr.com/netflix-icebreaker-series-filming-update/
+
+Netflix is doubling down on popular adaptations.
+---------
+
+# 5 Masterpiece Shonen Anime That Prove One Piece is Mid
+
+Anime, One Piece, Fullmetal Alchemist: Brotherhood
+
+Sat, 01 Aug 2026 16:15:15 GMT
+
+https://www.cbr.com/masterpiece-shonen-anime-prove-one-piece-mid/
+
+Even a giant like One Piece has worthy rivals, and these shonen masterpieces make a convincing case for themselves.
+---------
+
+# What's Coming to Netflix in August 2026? Everything Arriving This Month
+
+TV, Netflix
+
+Sat, 01 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/what-coming-netflix-august-2026-full-list/
+
+A new month is here, and Netflix has already added a series of hit titles.
+---------
+
+# Star Wars: X-Wing Academy Is A Harry Potter-Inspired Comic
+
+Comics, Star Wars
+
+Sat, 01 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/star-wars-x-wing-academy-comic-harry-potter/
+
+What a magical treat this Star Wars comic will be.
+---------
+
+# Studio Ghibli's Kiki's Delivery Service Glassware Returns as Purrfect Kitchen Collectibles After 8 Years
+
+Anime, Kiki's Delivery Service, Studio Ghibli, merchandise
+
+Sat, 01 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/studio-ghibli-kikis-delivery-service-lemon-flower-series-re-release/
+
+Studio Ghibli's newly re-released Kiki-themed drinkware lets fans relax and greet the hot summer months with their favorite beverage at the ready.
+---------
+
+# 10 Gangster Movies With Absolutely No Flaws
+
+Movie, The Godfather, Goodfellas, City of God, Animal Kingdom
+
+Sat, 01 Aug 2026 16:36:15 GMT
+
+https://collider.com/gangster-movies-no-flaws/
+
+From American classics like The Godfather to international gems like City of God, these crime masterpieces are truly faultless from start to finish.
+---------
+
+# Every Lord of the Rings Book, Ranked by a Casual Fan
+
+Books and Comics, The Lord of the Rings, J.R.R. Tolkien, Fantasy, The Fellowship of the Ring
+
+Sat, 01 Aug 2026 16:19:15 GMT
+
+https://collider.com/the-lord-of-the-rings-books-ranked-casual-fan/
+
+A casual fan's revisit to The Lord of the Rings books reveals the most addictive Middle-earth adventure and the one that demands patience.
+---------
+
+# Christopher Nolan’s ‘The Odyssey’ Officially Takes Down Mel Gibson’s Most Controversial Movie
+
+Movie News, Christopher Nolan, The Odyssey, Box Office, The Passion of the Christ
+
+Sat, 01 Aug 2026 16:15:15 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-overtakes-mel-gibson-passion-of-the-christ-box-office-400-million/
+
+Christopher Nolan’s The Odyssey has beaten Mel Gibson’s Passion of the Christ as Spider-Man: Brand New Day stages a global box office takeover.
+---------
+
+# Every New Movie and TV Show Coming to Netflix in August 2026
+
+Features, Netflix
+
+Sat, 01 Aug 2026 16:30:12 GMT
+
+https://movieweb.com/netflix-new-movie-tv-august-2026/
+
+In August, Netflix brings plenty of new and returning series, along with classic movies and standout original films.
+---------
+
+# Forget 'Lioness,' Paramount's 114-Episode Non-Stop Action Thriller Is One of the Biggest Shows on Streaming
+
+TV News, SEAL Team, Paramount Plus, Hot on Streaming, Lioness, Action
+
+Sat, 01 Aug 2026 16:01:12 GMT
+
+https://movieweb.com/seal-team-lioness-paramount-streaming-success-august-2026-action/
+
+Paramount+'s answer to Taylor Sheridan's hit action thriller is a global streaming hit.
+---------
+
+# Jon Hamm's Crime Thriller Is So Good, You'll Spend the Whole Weekend Watching It
+
+Features, Jon Hamm, Your Friends and Neighbors
+
+Sat, 01 Aug 2026 16:01:12 GMT
+
+https://movieweb.com/jon-hamm-your-friends-and-neighbors-binge/
+
+Jon Hamm's Apple TV series, 'Your Friends & Neighbors,' is super addictive, and it'll soon be back for Season 2.
+---------
+
 # Pokémon Winds & Waves Gameplay Leak Confirms Beloved Legends Feature
 
 Gaming, Pokemon Winds and Waves, Pokemon, Triple-A Games
@@ -5243,257 +5496,4 @@ Fri, 31 Jul 2026 00:19:14 GMT
 https://collider.com/such-sharp-teeth-rachel-harrison-female-werewolf-novel/
 
 Rachel Harrison’s ‘Such Sharp Teeth’ is not a true creature feature. Sadly, it’s a contemporary romance.
----------
-
-# 'Longmire' Already Has the Perfect Story for a Thrilling Revival
-
-TV Features, Longmire, Craig Johnson, Katee Sackhoff, Western
-
-Fri, 31 Jul 2026 00:13:14 GMT
-
-https://collider.com/longmire-revival-story-book-another-mans-moccasins/
-
-Another Man's Moccasins could provide a compelling story for a potential Longmire TV series revival.
----------
-
-# 6 Most Perfect Horror Movies Released Since 2000
-
-Movie, Horror, 28 Days Later, Get Out, Sinners
-
-Fri, 31 Jul 2026 00:11:14 GMT
-
-https://collider.com/most-perfect-horror-movies-since-2000-ranked/
-
-From The Babadook to Sinners, these horror films are the best of the century.
----------
-
-# 3 Binge-Worthy 2026 Sci-Fi Shows You Can Watch This Weekend
-
-TV Lists, Star City, Sci-Fi
-
-Fri, 31 Jul 2026 02:00:22 GMT
-
-https://movieweb.com/sci-fi-tv-shows-2026-binge-weekend/
-
-These sci-fi TV shows released in 2026 include alternate histories, post-apocalyptic fables, and new versions of old classics.
----------
-
-# Was the Night King a Targaryen? 'House of the Dragon's Theory, Explained
-
-Features, House of the Dragon, Game of Thrones, Game Of Thrones
-
-Fri, 31 Jul 2026 01:00:12 GMT
-
-https://movieweb.com/house-of-the-dragon-targaryen-night-king-theory/
-
-'Game of Thrones' leaves a lot of questions about the Night King, and a 'House of the Dragon' theory positing he's a Targaryen tries to fill the gaps.
----------
-
-# Tom Cruise's R-Rated Gothic Thriller Gets New Release After Smash-Hit Reboot
-
-Movie News, Interview with the Vampire, Tom Cruise, Brad Pitt
-
-Fri, 31 Jul 2026 00:40:57 GMT
-
-https://movieweb.com/tom-cruise-interview-with-the-vampire-4k-blu-ray/
-
-Cruise's 'Interview with the Vampire' is coming to 4K Ultra HD Blu-ray in September.
----------
-
-# 9 Years Later, Laurence Fishburne’s Canceled Star Trek Klingon Look Revealed
-
-Classic TV, Star Trek, Star Trek: Discovery
-
-Thu, 30 Jul 2026 23:53:29 GMT
-
-https://screenrant.com/star-trek-discovery-laurence-fishburne-bryan-fuller-klingon/
-
-On Laurence Fishburne's birthday, Star Trek: Discovery's original creator Bryan Fuller reveals what Fishburne would've looked like as a Klingon.
----------
-
-# HBO Max's Space Opera With Near-Perfect Rotten Tomatoes Audience Score Sets Up Sci-Fi Franchise's Hardest Task
-
-Movies, Masked Recs
-
-Thu, 30 Jul 2026 23:38:15 GMT
-
-https://screenrant.com/hbo-max-dune-part-two-sci-fi-franchise-hard-task/
-
-HBO Max's global hit space opera is one of the genre's best ever, and it sets up a daunting task for the sci-fi franchise's next release.
----------
-
-# Christian Bale’s Sequel To Robert De Niro’s Classic 31-Year-Old Crime Thriller On Track For Record-Setting Budget
-
-Movies, Heat, Christian Bale, Robert De Niro, Heat 2
-
-Thu, 30 Jul 2026 23:35:12 GMT
-
-https://screenrant.com/heat-2-budget-report-michael-mann-record/
-
-Christian Bale is confirmed to be one of the lead actors on Heat 2, which is now reported to have a record-breaking budget ahead of production.
----------
-
-# After 11 Years, Black Clover Finally Reveals Asta's Epic Final Look
-
-Anime, Black Clover
-
-Thu, 30 Jul 2026 23:30:11 GMT
-
-https://screenrant.com/black-clover-asta-final-look/
-
-After an incredible 11-year run, the Volume 38 epilogue finally reveals Asta's final look as the series officially ends.
----------
-
-# NCIS Meets Reacher In Network TV’s Most Popular Action Series
-
-TV, Masked Recs
-
-Thu, 30 Jul 2026 23:30:11 GMT
-
-https://screenrant.com/tracker-action-series-like-ncis-reacher/
-
-The action genre has experienced a surge in popularity on network TV recently, with its most successful exponent a cross between NCIS and Reacher.
----------
-
-# Dungeons & Dragons Is Getting Its First M-Rated Setting Next Year
-
-Gaming, Dungeons and Dragons
-
-Thu, 30 Jul 2026 23:15:11 GMT
-
-https://screenrant.com/dungeons-dragons-dark-sun-setting-returns-2027/
-
-Dungeons & Dragons is bringing back one of its classic worlds in 2027, and this new iteration will be D&amp;D's first M-rated setting ever.
----------
-
-# Batman: Caped Crusader Season 2 Debuts To Stellar Rotten Tomatoes Score
-
-TV, Batman: Caped Crusader, Batman, DC Universe
-
-Thu, 30 Jul 2026 23:12:30 GMT
-
-https://screenrant.com/batman-caped-crusader-season-2-rotten-tomatoes-score-debut/
-
-Prime Video's Batman: Caped Crusader season 2 is set to arrive this week, and the show's Rotten Tomatoes score for the new season has finally debuted.
----------
-
-# Dungeons & Dragons 2027 Roadmap Revealed
-
-Gaming, Dungeons and Dragons
-
-Thu, 30 Jul 2026 23:02:11 GMT
-
-https://screenrant.com/dungeons-dragons-2027-roadmap-releases/
-
-Dungeons & Dragons has officially revealed its 2027 Roadmap, which includes the return of two iconic D&amp;D settings for next year's new releases.
----------
-
-# 10 Anime Heroes That Could Easily Destroy Gojo
-
-Anime, Jujutsu Kaisen, The Disastrous Life of Saiki K., Demon Slayer, Dragon Ball, Jojo's Bizarre Adventure, Death Note, Naruto, Mob Psycho 100, One Piece, Solo Leveling, One Punch Man - Season 1
-
-Thu, 30 Jul 2026 23:00:13 GMT
-
-https://screenrant.com/anime-characters-defeat-gojo/
-
-Few characters stand a chance against a sorcerer like Jujutsu Kaisen's Gojo Satoru, but these ten actually have a chance of winning against him.
----------
-
-# Chicago Fire Original Character Exit Spoils Season 15’s Tragedy Twist
-
-Network TV, Chicago Fire
-
-Thu, 30 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/chicago-fire-season-15-joe-cruz-exit-spoil-death-twist/
-
-Chicago Fire is losing one of its original character when it returns for season 15, and the news takes Cruz out of contention for a cliffhanger death.
----------
-
-# An Iconic '80s Sci-Fi Show Just Became an Overnight Hit Decades After Cult Classic Status
-
-TV, Knight Rider, Apple TV
-
-Thu, 30 Jul 2026 23:30:15 GMT
-
-https://www.cbr.com/knight-rider-80s-sci-fi-show-apple-tv-hit-cult-classic/
-
-The cult classic 1980s TV show Knight Rider, starring David Hasselhoff, is the No. 2 top show on Apple TV
----------
-
-# 5 Masterpiece Action Anime Series That Don't Waste a Single Episode
-
-Anime, Gurren Lagann, Vivy: Fluorite Eye's Song
-
-Thu, 30 Jul 2026 23:15:15 GMT
-
-https://www.cbr.com/masterpiece-action-anime-all-episodes-perfect/
-
-These action anime maintain relentless momentum from beginning to end without a single unnecessary detour.
----------
-
-# Dungeons & Dragons Officially Crossing Over With World of Warcraft in 2026
-
-Games, Dungeons and Dragons
-
-Thu, 30 Jul 2026 23:10:15 GMT
-
-https://www.cbr.com/dnd-wow-official-2026-crossover-confirmed/
-
-Azeroth will soon be home to new kinds of adventuring parties, as Dungeons & Dragons is officially crossing over with World of Warcraft in 2026.
----------
-
-# Dragon Ball Officially Makes Super Saiyan 5, 6 and 7 Canon
-
-Anime, Dragon Ball, Dragon Ball Super, Dragon Ball: Sparking! Zero
-
-Thu, 30 Jul 2026 23:06:14 GMT
-
-https://www.cbr.com/dragon-ball-sparking-zero-super-saiyan-67-canon/
-
-In Dragon Ball's latest release, Vegeta vows to surpass Kakarot once and for all, even if that means reaching a form even greater than Super Saiyan 5.
----------
-
-# Game of Thrones' Jon Snow Officially Returns in War for Westeros
-
-Games, Game Of Thrones
-
-Thu, 30 Jul 2026 23:05:14 GMT
-
-https://www.cbr.com/game-of-thrones-jon-snow-official-return-war-for-westeros/
-
-Jon Snow is one of the most popular Game of Thrones characters, and he's officially confirmed to return in War for Westeros.
----------
-
-# NBC's Canceled 3-Season Horror Series Is Now Streaming on Netflix
-
-TV, Hannibal, Netflix, Horror
-
-Thu, 30 Jul 2026 23:00:14 GMT
-
-https://www.cbr.com/hannibal-nbc-horror-series-streaming-on-netflix/
-
-All three seasons of Hannibal are available on Netflix
----------
-
-# Dungeons & Dragons Officially Adding Brand-New Character Class in 2027
-
-Games, Dungeons and Dragons, Tabletop
-
-Thu, 30 Jul 2026 23:00:14 GMT
-
-https://www.cbr.com/dnd-new-character-class-official-2027-psion/
-
-Dungeons & Dragons 5e is adding a brand-new class in 2027, with the Psion making its return in the upcoming Dark Sun campaign setting book.
----------
-
-# 5 2000s Psychological Thrillers Nobody Talks About Anymore
-
-Movies, Thriller, Frailty, Insomnia
-
-Thu, 30 Jul 2026 23:00:14 GMT
-
-https://www.cbr.com/2000s-psychological-thrillers-no-one-remembers-list/
-
-Psychological thrillers have produced plenty of well-known masterpieces, but the 2000s is a haven for forgotten gems nobody talks about anymore.
 ---------
