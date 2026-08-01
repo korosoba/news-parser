@@ -1,3 +1,234 @@
+# Robert De Niro's 105-Minute Gritty Crime Thriller Officially Returns To Streaming Today
+
+Movies, Masked Recs
+
+Sat, 01 Aug 2026 17:47:12 GMT
+
+https://screenrant.com/robert-de-niro-cop-land-movie-paramount-plus-streaming-release-august-2026/
+
+Robert De Niro is known for starring in many critically popular crime movies, and an especially gritty one is now available to stream again.
+---------
+
+# The Last Of Us Season 3 Confirms Key Abby Scene Recreation In New Set Video
+
+TV, The Last of Us
+
+Sat, 01 Aug 2026 17:42:04 GMT
+
+https://screenrant.com/the-last-of-us-season-3-abby-scene-recreation-set-video/
+
+The Last of Us season 3 is back in filming after a brief production pause, and this new set video seemingly depicts an iconic scene for Abby.
+---------
+
+# Alexandra Daddario’s R-Rated Prime Video Series Casting Revealed In Set Photos
+
+TV, Escorted, Escorted - Season 1
+
+Sat, 01 Aug 2026 17:38:35 GMT
+
+https://screenrant.com/alexandra-daddario-prime-video-escorted-set-photos/
+
+Set photos of Prime Video's upcoming R-rated series feature Alexandra Daddario alongside Brett Goldstein, who stars in and writes the show.
+---------
+
+# Robert Downey Jr.'s 10 Best MCU Moments, Ranked
+
+Movies, Marvel Cinematic Universe
+
+Sat, 01 Aug 2026 17:30:11 GMT
+
+https://screenrant.com/robert-downey-jr-best-mcu-moments-ranked/
+
+Robert Downey Jr. is coming back to the Marvel Cinematic Universe to play Doctor Doom, but he has plenty of iconic MCU moments as Iron Man to top.
+---------
+
+# 6 N64 Games That Are Barely Playable In 2026
+
+Gaming, Nintendo, Mario Kart, Mario Party
+
+Sat, 01 Aug 2026 17:30:11 GMT
+
+https://screenrant.com/6-n64-games-unplayable-2026/
+
+These Nintendo 64 games, while perhaps once excellent, are practically unplayable today as they've aged rather poorly.
+---------
+
+# Life Is Strange Live-Action Adaptation Gets Exciting Filming Update
+
+TV, Life Is Strange
+
+Sat, 01 Aug 2026 17:28:45 GMT
+
+https://screenrant.com/life-is-strange-adaptation-update-silas-howard/
+
+Amazon MGM Studios is bringing new life to Life is Strange, as a new set photo seemingly confirms a major setting for the upcoming adaptation.
+---------
+
+# Robert Pattinson & Zendaya's R-Rated Project That's Not The Odyssey Is Officially HBO Max's #1 Movie
+
+Movies, Zendaya, Robert Pattinson, Streaming Charts, Masked Recs
+
+Sat, 01 Aug 2026 17:24:07 GMT
+
+https://screenrant.com/robert-pattinson-the-drama-zendaya-hbo-max-streaming-success-august-2026/
+
+As The Odyssey makes waves in theaters, co-stars Robert Pattinson and Zendaya have an entirely different R-rated movie topping HBO Max's chart.
+---------
+
+# Spider-Man: Brand New Day Officially Sets Up Peter Parker’s Avengers Role In 2 Major Ways
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Sat, 01 Aug 2026 17:15:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-avengers-movie-setup/
+
+Spider-Man: Brand New Day perfectly sets up how Peter Parker can fit into Marvel Studios' upcoming Avengers movies, and there is a huge MCU tease.
+---------
+
+# HBO's True Band Of Brothers Sequel Is Hard To Watch More Than Once
+
+Classic TV, Masked Recs
+
+Sat, 01 Aug 2026 17:15:11 GMT
+
+https://screenrant.com/generation-kill-hard-to-watch-more-than-once-band-of-brothers/
+
+HBO's true successor to Band of Brothers — the Iraq War miniseries Generation Kill — is a harrowing masterpiece that's difficult to rewatch.
+---------
+
+# Overwatch Star Officially Reveals New Detail About Mysterious Character
+
+CBR Exclusives, Overwatch
+
+Sat, 01 Aug 2026 17:36:50 GMT
+
+https://www.cbr.com/carolina-ravassa-overwatch-sombra-lore-to-be-revealed/
+
+One fan-favorite Overwatch character will have her secrets revealed.
+---------
+
+# Barbie Sequel Gets Disappointing Update as Warner Bros. Won't Give Margot Robbie & Ryan Gosling Pay Bumps
+
+Movies, Barbie
+
+Sat, 01 Aug 2026 17:30:16 GMT
+
+https://www.cbr.com/barbie-sequel-warner-bros-boss-margot-robbie-ryan-gosling-salaries/
+
+So far, the Barbie sequel was only a rumor but discussions have been occurring behind the scenes.
+---------
+
+# 5 Open-World RPGs With The Best Exploration Ever
+
+Games, Video Games, Elden Ring, open world, RPG
+
+Sat, 01 Aug 2026 17:15:15 GMT
+
+https://www.cbr.com/open-world-rpgs-with-best-exploration/
+
+Elden Ring and Fallout 4 are perfect examples of open-world exploration done right.
+---------
+
+# Netflix's Hit New 6-Part Action Thriller Gets Massive Season 2 Update
+
+TV, Netflix
+
+Sat, 01 Aug 2026 17:08:03 GMT
+
+https://www.cbr.com/netflix-elite-force-season-2-update/
+
+Netflix's latest worldwide hit just got a major update, and it might just lead to a truly groundbreaking moment in the world of streaming.
+---------
+
+# Kevin Hart's New 105-Minute Netflix Movie Debuts to 22.1M Views Despite Abysmal Reviews
+
+Movies, 72 Hours
+
+Sat, 01 Aug 2026 17:00:15 GMT
+
+https://www.cbr.com/kevin-hart-72-hours-comedy-netflix-popularity-rotten-reviews/
+
+Kevin Hart's new comedy movie has been torn apart by critics, but audiences still can't stop watching it on Netflix.
+---------
+
+# 7 Greatest Battles in 'House of the Dragon'
+
+TV, House of the Dragon, Game Of Thrones, HBO, Fantasy
+
+Sat, 01 Aug 2026 17:19:14 GMT
+
+https://collider.com/best-house-of-the-dragon-battles-ranked/
+
+From Season 1's War for the Stepstones to Season 3's Battle of the Gullet, House of the Dragon has showcased many epic battles in the HBO series.
+---------
+
+# 10 Greatest Video Game Boss Fights of All Time
+
+Gaming, Video Game, Metal Gear Solid, Pokemon Legends   Arceus, Batman: Arkham City
+
+Sat, 01 Aug 2026 17:09:15 GMT
+
+https://collider.com/best-video-game-boss-fights-all-time-ranked/
+
+The best boss fights in video games, like Mr. Freeze in Batman: Arkham Asylum and Sans in Undertale, have become as memorable as the games themselves.
+---------
+
+# A 10/10 Noir Masterpiece by One of Christopher Nolan’s Favorite Directors Is Coming to Prime Video
+
+Movie News, David Lynch, Blue Velvet, Kyle MacLachlan, Prime Video
+
+Sat, 01 Aug 2026 17:00:15 GMT
+
+https://collider.com/david-lynch-neo-noir-blue-velvet-coming-to-prime-video-august-2026/
+
+David Lynch's masterpiece neo-noir movie Blue Velvet is coming to Prime Video this August. Find out more.
+---------
+
+# 10 Movies That Give Away the Ending in the Title
+
+Movie Lists, Saving Private Ryan, Star Wars: Episode V - The Empire Strikes Back
+
+Sat, 01 Aug 2026 17:30:12 GMT
+
+https://movieweb.com/movie-titles-give-away-ending/
+
+Spoiler alert!
+---------
+
+# Every New Movie and TV Show Coming to HBO Max in August 2026
+
+Features, HBO Max
+
+Sat, 01 Aug 2026 17:30:12 GMT
+
+https://movieweb.com/hbo-max-new-movie-tv-august-2026/
+
+Here is everything coming to HBO Max in August 2026, including the highly anticipated release of the 'Lanters' TV series.
+---------
+
+# Zendaya & Robert Pattinson's Controversial 'The Drama' Comes to Streaming
+
+Movie News, The Drama
+
+Sat, 01 Aug 2026 17:22:54 GMT
+
+https://movieweb.com/zendaya-robert-pattinson-drama-hbo-max/
+
+Months after prompting tons of discourse, the A24 hit is now on HBO Max.
+---------
+
+# 'Spider-Man: Brand New Day' Places Peter Parker at the Center of a Dark Comic Book Storyline
+
+Features, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 01 Aug 2026 17:00:12 GMT
+
+https://movieweb.com/spider-man-brand-new-control-collars/
+
+Tom Holland's Spider-Man is still the hero in 'Brand New Day,' but the movie certainly blurs the moral boundaries. Read on for more.
+---------
+
 # Say Goodbye To Rey Skywalker As Star Wars Unleashes A New Era
 
 Streaming TV, Masked Recs, Star Wars
@@ -5265,235 +5496,4 @@ Fri, 31 Jul 2026 02:15:11 GMT
 https://screenrant.com/oliver-queen-best-arrow-quotes/
 
 Arrow's Oliver Queen makes an impact on the people around him and the audience with his memorable quotes, and these are the ten best.
----------
-
-# 9 Sitcom Characters With The Most Unrealistic Jobs
-
-Classic TV
-
-Fri, 31 Jul 2026 02:00:21 GMT
-
-https://screenrant.com/sitcom-characters-unrealistic-jobs/
-
-The outrageousness of sitcoms is all part of what makes them fun. Still, if these characters ever came to the real world, employment would be tough.
----------
-
-# Forget The Matrix, It’s The Best Time To Watch Keanu Reeves’ Underrated Cyberpunk Sci-Fi
-
-Streaming TV, Masked Recs
-
-Fri, 31 Jul 2026 01:33:24 GMT
-
-https://screenrant.com/johnny-mnemonic-keanu-reeves-underrated-cyberpunk/
-
-The Matrix is considered Keanu Reeves’ best sci-fi movie, but it is a far better time to watch another cyberpunk classic that has him as the lead.
----------
-
-# Heat 3 Plans Teased In New Report Ahead Of Long-Awaited Sequel To Robert De Niro’s Crime Thriller
-
-Movies, Heat 2, Heat
-
-Fri, 31 Jul 2026 01:28:21 GMT
-
-https://screenrant.com/heat-3-reported-plans-amazon-mgm/
-
-Michael Mann's Heat 2 is expected to begin filming later this year, but there's already word about Amazon MGM Studios developing Heat 3.
----------
-
-# Timothy Olyphant & Pedro Pascal's Rare Sci-Fi Team-Up Is Already a Modern Classic
-
-TV, The Mandalorian, Sci-Fi, Disney+
-
-Fri, 31 Jul 2026 03:30:14 GMT
-
-https://www.cbr.com/the-mandalorian-timothy-olyphant-pedro-pascal-classic-sci-fi-team-up/
-
-Timothy Olyphant and Pedro Pascal's sci-fi team-up redefined the fan-favorite series, blending sci-fi and Western genres into a modern classic.
----------
-
-# A Nightmare on Elm Street Reboot Race Begins With 2 Different Films in the Works
-
-Movies, A Nightmare on Elm Street
-
-Fri, 31 Jul 2026 03:25:49 GMT
-
-https://www.cbr.com/a-nightmare-on-elm-street-reboot-race-warner-bros-paramount/
-
-Two separate planned reboots of A Nightmare on Elm Street are in a heated race to be the first one developed.
----------
-
-# Spider-Man: Brand New Day Review: An Action-Packed Sequel That Takes a Big MCU Swing
-
-Movies, Spider-Man: Brand New Day
-
-Fri, 31 Jul 2026 03:20:40 GMT
-
-https://www.cbr.com/spider-man-brand-new-day-review/
-
-In his Spider-Man: Brand New Day review, CBR's Sean O'Connell explains why Tom Holland’s fourth MCU solo movie delivers the best Spidey action yet.
----------
-
-# 2027 Is A Whole New Era For Final Fantasy 14
-
-Games, Final Fantasy, final fantasy xiv, Final Fantasy 7 Remake
-
-Fri, 31 Jul 2026 03:15:14 GMT
-
-https://www.cbr.com/final-fantasy-14-new-era-2027/
-
-Final Fantasy 14 is entering a whole new world of danger in Evercold, but the game as a whole is making massive mechanical improvements in 2027.
----------
-
-# How Spider-Man: Brand New Day's Post-Credit Scene Sets Up Avengers: Secret Wars
-
-Movies, Spider-Man: Brand New Day, Avengers: Secret Wars, MCU
-
-Fri, 31 Jul 2026 03:10:15 GMT
-
-https://www.cbr.com/spider-man-brand-new-day-post-credits-avengers-secret-wars-connection/
-
-The end credits scene in Spider-Man: Brand New Day sets up an Avengers sequel, but instead of Doomsday it could be a reference to Secret Wars.
----------
-
-# Solo Leveling Officially Cancels Collaboration Plans to Avoid Manhwa Changes
-
-Anime, Solo Leveling:ARISE, Solo Leveling
-
-Fri, 31 Jul 2026 03:01:14 GMT
-
-https://www.cbr.com/solo-leveling-arise-collaboration-plans-avoid-manhwa-changes/
-
-In the aftermath of Sung Jinwoo and Igris' addition to Fortnite, Solo Leveling has announced it's cancelling any further plans for cross-IP collabs.
----------
-
-# 5 2026 Movies Already Considered Masterpieces
-
-Movies, The Odyssey, Obsession
-
-Fri, 31 Jul 2026 02:45:14 GMT
-
-https://www.cbr.com/2026-movies-must-watch-masterpieces-list/
-
-2026 has been one of the best years for movies in a long time and there are already some films that are perfect masterpieces.
----------
-
-# 7 Modern Cyberpunk Anime Series Every New Fan Needs to Watch Once
-
-Anime, Sci-Fi
-
-Fri, 31 Jul 2026 02:45:14 GMT
-
-https://www.cbr.com/modern-cyberpunk-anime-series-for-new-fans/
-
-Today's cyberpunk anime narratives feel less abstract and more like a standard description of where modern society is headed.
----------
-
-# Big Bang Theory Co-Creator Chuck Lorre's Hit Netflix Sitcom Unveils Season 2 Trailer
-
-TV, Leanne
-
-Fri, 31 Jul 2026 02:37:40 GMT
-
-https://www.cbr.com/netflix-leanne-season-2-official-trailer/
-
-The hit Netflix sitcom from Chuck Lorre is now less than a month away from its streaming return.
----------
-
-# The MCU’s X-Men Reboot Perfect Jubilee is Trinity Jo-Li Bliss
-
-Movies, X-Men, Marvel Cinematic Universe
-
-Fri, 31 Jul 2026 02:30:15 GMT
-
-https://www.cbr.com/mcu-x-men-reboot-jubilee-actor-trinity-jo-li-bliss/
-
-The Avatar franchise features many great talents, and one in particular could deliver even more as a fan-favorite X-Men character.
----------
-
-# 'Spider-Man: Brand New Day' Ending Explained
-
-Movie Features, Spider-Man: Brand New Day, Tom Holland, MCU, Avengers: Secret Wars
-
-Fri, 31 Jul 2026 03:28:06 GMT
-
-https://collider.com/spider-man-brand-new-day-ending-explained-post-credits-spoilers/
-
-After five years of waiting, Tom Holland's Peter Parker is back in action with Spider-Man: Brand New Day.
----------
-
-# Forget Dune, This Overlooked Sci-Fi Book Is the Space Opera Streaming Has Been Waiting For
-
-TV Features, Books, Sci-Fi, Monarch: Legacy of Monsters, Dune: Prophecy
-
-Fri, 31 Jul 2026 03:04:14 GMT
-
-https://collider.com/ancillary-justice-ann-leckie-space-opera-tv-show-adaptation/
-
-Ann Leckie's unique blend of sci-fi and gender exploration in Ancillary Justice makes it a compelling book that's perfect for adapting.
----------
-
-# This 2023 Fantasy Video Game Proves Disney Adaptations Are Playing It Too Safe
-
-Gaming, Video Game, Disney's Pinocchio, Fantasy, Action
-
-Fri, 31 Jul 2026 03:03:14 GMT
-
-https://collider.com/lies-of-p-2023-video-game-best-pinocchio-adaptation/
-
-The 2023 soulslike video game Lies of P is arguably the most creative adaptation of the classic tale of Pinocchio, towering over all other versions.
----------
-
-# Netflix’s New 8-Part Western Is One of the Biggest Hits on Streaming
-
-TV Features, Netflix, Little House on the Prairie, Western, Drama
-
-Fri, 31 Jul 2026 01:36:14 GMT
-
-https://collider.com/little-house-on-the-prairie-netflix-western-streaming-hit/
-
-Netflix's adaptation of Little House on the Prairie is a captivating reboot of the Ingalls' pioneer journey and its most recent streaming hit.
----------
-
-# 5 Mystery Books That Have Aged Like Fine Wine
-
-Books and Comics, Mystery, Books, Agatha Christie, Daphne du Maurier
-
-Fri, 31 Jul 2026 01:24:14 GMT
-
-https://collider.com/mystery-books-aged-like-fine-wine/
-
-The Talented Mr. Ripley, And Then There Were None, and more make our list of mystery novels that deliver twists, suspense, and unforgettable payoffs.
----------
-
-# Hugh Jackman’s Most Unexpected Role Is in Netflix’s Weirdest Overlooked Series
-
-TV Features, Hugh Jackman, Human Resources, Big Mouth, Netflix
-
-Fri, 31 Jul 2026 01:04:14 GMT
-
-https://collider.com/hugh-jackman-human-resources-netflix-addiction-angel-role/
-
-Hugh Jackman plays an unforgettable Addiction Angel in Netflix’s overlooked Human Resources, one of his most surprising roles yet.
----------
-
-# ‘The Rookie’ Creator Officially Confirms New Crossover for ABC Series [Exclusive]
-
-Exclusives, The Rookie, Nathan Fillion, SDCC, Hulu
-
-Fri, 31 Jul 2026 01:00:15 GMT
-
-https://collider.com/the-rookie-season-9-north-spin-off-crossover-confirmed-nathan-fillion/
-
-The cast of The Rookie Season 9 tease the next chapter's biggest surprises while creator Alexi Hawley confirms a new crossover episode is in the works
----------
-
-# Female Werewolves Deserve Better Horror Stories Than 'Such Sharp Teeth'
-
-Books and Comics, Books, Horror, Ginger Snaps, Nightbitch
-
-Fri, 31 Jul 2026 00:19:14 GMT
-
-https://collider.com/such-sharp-teeth-rachel-harrison-female-werewolf-novel/
-
-Rachel Harrison’s ‘Such Sharp Teeth’ is not a true creature feature. Sadly, it’s a contemporary romance.
 ---------
