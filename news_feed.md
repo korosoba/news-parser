@@ -1,3 +1,135 @@
+# Stardew Valley Finally Returns January 2027
+
+Gaming, Stardew Valley
+
+Sat, 01 Aug 2026 10:00:12 GMT
+
+https://screenrant.com/stardew-valley-january-2027-new-release-confirmed/
+
+Discover the latest addition to the beloved Stardew Valley series as the official crochet book launches in January 2027.
+---------
+
+# Cyberpunk 2077: All Is Lost Officially Announced
+
+Gaming, Cyberpunk 2077, PC
+
+Sat, 01 Aug 2026 09:30:11 GMT
+
+https://screenrant.com/cyberpunk-2077-all-is-lost-official-announcement/
+
+Cyberpunk 2077's latest release, titled All is Lost, looks set to blow fans away with its incredible visuals.
+---------
+
+# 30 Years Later, Transformers' Best Comeback Still Beats the Michael Bay Movies in Every Way
+
+TV, Transformers, Beast Wars: Transformers, Sci-Fi
+
+Sat, 01 Aug 2026 10:00:15 GMT
+
+https://www.cbr.com/transformers-beast-wars-michael-bay-movies-comparison/
+
+The Michael Bay movies were a double-edged sword for Transformers, but another once contentious entry proved to be a much better reinvention.
+---------
+
+# The 5 Strongest Hobbits in The Lord of the Rings, Ranked By Power
+
+Movies, The Lord of the Rings, Fantasy, The Hobbit
+
+Sat, 01 Aug 2026 10:00:15 GMT
+
+https://www.cbr.com/lord-of-the-rings-strongest-hobbits-ranked-list/
+
+Hobbits may be very strong creatures, but a fair few of them are quite strong--even strong enough to change the course of history.
+---------
+
+# Anya Taylor-Joy’s Near-Perfect Sci-Fi Masterpiece Is Officially a Must-Watch #1 Hit
+
+Movie News, Furiosa: A Mad Max Saga, Anya Taylor-Joy, HBO Max, Chris Hemsworth
+
+Sat, 01 Aug 2026 10:00:15 GMT
+
+https://collider.com/anya-taylor-joy-sci-fi-thriller-furiosa-streaming-success-hbo-max-july-2026/
+
+Anya Taylor-Joy's near-perfect sci-fi thriller with Chris Hemsworth has officially become a must-watch hit on streaming charts.
+---------
+
+# ‘Nuremberg’ Meets ‘Munich’ in Oscar Isaac’s Overlooked Thriller Officially Coming to Prime Video
+
+Movie News, Operation Finale, Oscar Isaac, Ben Kingsley, Prime Video
+
+Sat, 01 Aug 2026 09:40:15 GMT
+
+https://collider.com/oscar-isaac-operation-finale-streaming-prime-video-august-2026/
+
+Oscar Isaac's overlooked thriller Operation Finale, also featuring Ben Kingsley, is coming to Prime Video. Find out when.
+---------
+
+# Russell Crowe's Cult Classic Naval Adventure Is Officially a Must-Watch for 'Assassin's Creed: Black Flag' Fans
+
+Movie News, Master and Commander: The Far Side of the World, Russell Crowe, History, Ron Howard
+
+Sat, 01 Aug 2026 09:20:15 GMT
+
+https://collider.com/russell-crowe-master-and-commander-streaming-success-august-2026/
+
+Russell Crowe’s Master and Commander: The Far Side of the World is finding a new streaming audience more than two decades after its release.
+---------
+
+# The 10 Best Video Game Endings of All Time, Ranked
+
+TV, Video Game, BioShock Infinite, Portal, Red Dead Redemption 2
+
+Sat, 01 Aug 2026 09:18:14 GMT
+
+https://collider.com/best-video-game-endings-ranked/
+
+Discover the most memorable and impactful video game endings, from acclaimed titles like Silent Hill 2, BioShock Infinite, and The Last of Us.
+---------
+
+# Matt Damon’s Taylor Sheridan-Style Neo-Western Officially Makes Shock Streaming Comeback
+
+Movie News, Stillwater, Matt Damon, The Odyssey, Taylor Sheridan
+
+Sat, 01 Aug 2026 09:00:15 GMT
+
+https://collider.com/matt-damon-neo-western-stillwater-streaming-success-prime-video-july-2026/
+
+Stillwater, the 2021 Matt Damon-led neo-Western co-starring Abigail Breslin, has surged back into the streaming top 10.
+---------
+
+# 32 Years Later, Quentin Tarantino's 154-Minute Crime Masterpiece Officially Returns to Streaming
+
+Movie News, Pulp Fiction, Quentin Tarantino, Prime Video, John Travolta
+
+Sat, 01 Aug 2026 08:40:15 GMT
+
+https://collider.com/quentin-tarantino-masterpiece-pulp-fiction-streaming-prime-video-august-2026/
+
+Quentin Tarantino's magnum opus, Pulp Fiction, is coming to Prime Video. Find out when you can watch the crime classic.
+---------
+
+# 'KPop Demon Hunters' Is Officially Back
+
+Gaming News, KPop Demon Hunters, Netflix, Fantasy, Gaming
+
+Sat, 01 Aug 2026 08:30:14 GMT
+
+https://collider.com/kpop-demon-hunters-spot-it-card-game/
+
+Ahead of the long-awaited sequel, KPop Demon Hunters is officially back with an adorable new release. Read on for more.
+---------
+
+# 'Yellowstone' Fans Are Officially Losing Interest in Netflix's 2-Part Western Romance
+
+TV News, Netflix, Yellowstone, Ransom Canyon, Streaming
+
+Sat, 01 Aug 2026 08:20:15 GMT
+
+https://collider.com/netflix-western-ransom-canyon-season-2-viewership-drop-4-million/
+
+Netflix's Ransom Canyon, starring Josh Duhamel and Minka Kelly, has been hit with a big slump in its sophomore season.
+---------
+
 # Game Of Thrones: Starshower Officially Unveiled
 
 Gaming, Game of Thrones, Game Of Thrones, House of the Dragon, PC
@@ -5364,136 +5496,4 @@ Thu, 30 Jul 2026 19:57:55 GMT
 https://collider.com/star-wars-liam-neeson-hot-toys-2027-release-date-qui-gon-jin/
 
 Liam Neeson's Qui-Gon Jinn officially returns to the Star Wars galaxy with a brand-new release in 2027. Read on for more details.
----------
-
-# 8 Worst MCU Post-Credit Scenes of All Time, Ranked
-
-Movie, MCU, Captain America: Brave New World, The Marvels, Eternals
-
-Thu, 30 Jul 2026 19:52:15 GMT
-
-https://collider.com/worst-mcu-post-credit-scenes-all-time-ranked/
-
-Eternals, Ant-Man and The Wasp: Quantumania, Captain America: Brave New World, and more make our list of the worst MCU post-credit scenes of all time.
----------
-
-# ‘The Big Bang Theory’s New Sci-Fi Spin-Off Is Officially Taking Over the World
-
-TV News, The Big Bang Theory, Stuart Fails to Save the Universe, Sci-Fi, HBO Max
-
-Thu, 30 Jul 2026 19:48:29 GMT
-
-https://collider.com/stuart-fails-to-save-the-universe-streaming-success-hbo-max-july-2026/
-
-The Big Bang Theory's new sci-fi spin-off series on HBO Max, Stuart Fails to Save the Universe, has emerged as an instant hit.
----------
-
-# Disney Officially Scores Its First Billion Dollar Movie of 2026
-
-Movie News, Toy Story 5, Box Office, Pixar, Tom Hanks
-
-Thu, 30 Jul 2026 19:41:47 GMT
-
-https://collider.com/toy-story-5-global-box-office-1-billion/
-
-The year's third billion-dollar blockbuster is here, following The Super Mario Galaxy Movie and Michael. Find out more.
----------
-
-# ‘The Last of Us’ Officially Resurrects Joel Miller for New 2027 Release
-
-Gaming News, The Last of Us, The Last of Us: Part II, Pedro Pascal
-
-Thu, 30 Jul 2026 19:37:29 GMT
-
-https://collider.com/the-last-of-us-joel-miller-statue-prime-1-studios/
-
-The Last of Us is officially bringing Joel Miller back from the dead for a new release coming in 2027. See it here!
----------
-
-# Only 5 Kart Racing Games Are As Good as Mario Kart
-
-Gaming, Video Game, Mario Kart, Adventure, Sports
-
-Thu, 30 Jul 2026 19:33:15 GMT
-
-https://collider.com/kart-racing-video-games-as-good-as-mario-kart/
-
-The kart racing genre has largely been dominated by Mario Kart games for decades, but worthy titles like Blur and Crash Team Racing are just as good.
----------
-
-# ‘Reacher’s Alan Ritchson Officially Announces New Fast and Furious Rival
-
-Movie News, Alan Ritchson, Reacher, Fast and Furious, Fast X
-
-Thu, 30 Jul 2026 19:31:26 GMT
-
-https://collider.com/alan-ritchson-motogp-fast-furious-motorcycle-franchise/
-
-Alan Ritchson reveals he has the rights to MotoGP and wants to build a globe-trotting motorcycle franchise in the vein of Fast & Furious.
----------
-
-# HBO Max’s ‘Harry Potter’ Series Officially Sets Season 2 Filming Start
-
-TV News, Harry Potter, HBO Max, Harry Potter and the Chamber of Secrets
-
-Thu, 30 Jul 2026 19:26:55 GMT
-
-https://collider.com/hbo-max-harry-potter-season-2-filming-start-august-2026/
-
-Harry Potter Season 2 is reportedly set to begin production in 2026, months before Season 1 premieres on HBO Max.
----------
-
-# 'The Odyssey' Officially Extends Its IMAX Run After Record-Breaking Box Office
-
-Movie News, The Odyssey, IMAX, Movie Theaters
-
-Thu, 30 Jul 2026 20:09:57 GMT
-
-https://movieweb.com/the-odyssey-imax-run-extended-september/
-
-You'll have more time to see the movie as it was meant to be seen.
----------
-
-# 33 Years Later, Arnold Schwarzenegger's "Ahead of Its Time" Action Flop Scores Big on Free Streaming
-
-Movie News, Arnold Schwarzenegger, Last Action Hero, Coming/Leaving Streaming
-
-Thu, 30 Jul 2026 20:00:12 GMT
-
-https://movieweb.com/schwarzenegger-last-action-hero-free-streaming-august-2026/
-
-No film in the action star's filmography deserves a re-evaluation more than this one.
----------
-
-# Fate of Taylor Sheridan's Best Action Thriller Gets Major Update
-
-TV News, Lioness
-
-Thu, 30 Jul 2026 19:46:50 GMT
-
-https://movieweb.com/taylor-sheridan-lioness-season-4-update/
-
-Two actors involved in the action series teased a season finale that shouldn't be missed.
----------
-
-# Netflix’s New 'Reacher' Replacement Is an Unpredictable One-Night Binge
-
-Features, Netflix, Reacher
-
-Thu, 30 Jul 2026 19:00:12 GMT
-
-https://movieweb.com/elite-force-reacher-netflix-binge/
-
-'Reacher,' the Amazon Prime Video series starring Alan Ritchson, is popular, but Netflix has a new action thriller that is just as good.
----------
-
-# Prime Video's New 140-Minute Action Epic Is Officially A Global Hit on Streaming
-
-Movie News, Masters of the Universe, Hot on Streaming, Action, Prime Video
-
-Thu, 30 Jul 2026 19:00:12 GMT
-
-https://movieweb.com/masters-of-the-universe-action-prime-video-streaming-july-2026/
-
-It might have flopped in theaters, but Amazon has found the power with its newest global sensation that remakes an '80s cult classic.
 ---------
