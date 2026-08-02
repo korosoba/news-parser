@@ -1,3 +1,212 @@
+# What Happens To Strange New Worlds' Missing Characters During Star Trek: The Original Series? I Think I Know
+
+TV, Star Trek, Star Trek: Strange New Worlds, Op-Ed
+
+Sun, 02 Aug 2026 11:00:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-una-laan-ortegas-division-12-theory/
+
+Star Trek: Strange New Worlds season 4 has already dropped potential clues to where Una, La'an, and Ortegas go when Kirk takes over the Enterprise.
+---------
+
+# Brandon Sanderson's Cosmere Gets Multiple Surprise Releases This Year
+
+Gaming, Brandon Sanderson, The Cosmere, Mistborn, The Stormlight Archive, PC
+
+Sun, 02 Aug 2026 11:00:11 GMT
+
+https://screenrant.com/brandon-sanderson-war-for-roshar-cosmere-release/
+
+Brandon Sanderson's Cosmere universe is about to expand in exciting new ways thanks to several surprise releases later this year.
+---------
+
+# 5 Games Like Crimson Desert But With Much Better Exploration
+
+Gaming, Crimson Desert, Triple-A Games, PC
+
+Sun, 02 Aug 2026 10:30:11 GMT
+
+https://screenrant.com/games-like-crimson-desert-better-exploration/
+
+Crimson Desert is ambitious to a fault, and some of the shortcomings in its sense of exploration are avoided by other huge fantasy RPGs.
+---------
+
+# Jerry O’Connell Says Star Trek: Lower Decks “Is Not Done” & Reveals Ultimate Strange New Worlds Crossover
+
+TV, Star Trek, Star Trek Lower Decks
+
+Sun, 02 Aug 2026 10:00:12 GMT
+
+https://screenrant.com/star-trek-lower-decks-return-hope-strange-new-worlds-crossover-jerry-oconnell/
+
+Jerry O'Connell talks about the possibility of Star Trek: Lower Decks coming back, and pitches his personal Strange New Worlds crossover idea.
+---------
+
+# Hogwarts Legacy: Sword Of Gryffindor Is Yours To Download Now
+
+Gaming, Hogwarts Legacy
+
+Sun, 02 Aug 2026 10:00:12 GMT
+
+https://screenrant.com/hogwarts-legacy-sword-of-gryffindor-fan-expansion/
+
+Hogwarts Legacy is one of the most successful games of the current generation, and there's still plenty of life in it yet.
+---------
+
+# The 10 Best Far Side Comics Set in the Past, Ranked
+
+Comics, The Far Side
+
+Sun, 02 Aug 2026 11:00:16 GMT
+
+https://www.cbr.com/best-far-side-comics-set-in-the-past-ranked/
+
+The Far Side comics are a single-paneled source of hilarity. Gary Larson often incorporates themes, and one of the most effective is history.
+---------
+
+# 5 Action Thrillers Better Than John Wick
+
+Movies, Action, Thriller, John Wick
+
+Sun, 02 Aug 2026 10:30:15 GMT
+
+https://www.cbr.com/action-thriller-movies-better-john-wick-list/
+
+John Wick reinvented the action genre for a new era, but there are still some action thrillers that are even better.
+---------
+
+# 5 Movies Likely to Make $1 Billion in 2027
+
+Movies, MCU, Star Wars, The Legend of Zelda
+
+Sun, 02 Aug 2026 10:00:15 GMT
+
+https://www.cbr.com/2027-movies-likely-to-make-billion-dollars-list/
+
+2027 will be a big year for the film industry, and a few upcoming movies are poised to make over a billion dollars at the box office.
+---------
+
+# The Rings of Power Season 3 Is Finally Delivering the LOTR Epic Fans Want
+
+TV, The Lord of the Rings: The Rings of Power
+
+Sun, 02 Aug 2026 10:00:15 GMT
+
+https://www.cbr.com/rings-of-power-season-3-higher-stakes/
+
+The Rings of Power Season 3 promises to escalate the stakes to grander levels than before
+---------
+
+# 7 Heaviest TV Episodes of the Last 25 Years
+
+TV, Television, Avatar: The Last Airbender, The Last of Us, Buffy The Vampire Slayer
+
+Sun, 02 Aug 2026 11:09:15 GMT
+
+https://collider.com/heaviest-tv-episodes-last-25-years-ranked/
+
+Avatar: The Last Airbender and The Last of Us have hit audiences with brutal moments over the last 25 years, but which TV episode is the heaviest?
+---------
+
+# ‘Bloodborne’ Officially Returns in 6 Months With New Release
+
+Gaming News, Bloodborne, Elden Ring
+
+Sun, 02 Aug 2026 11:00:15 GMT
+
+https://collider.com/bloodborne-official-new-release-january-2027/
+
+With no news of a sequel in sight, Bloodborne fans can look forward to a new release coming early next year. Read on for more details.
+---------
+
+# 10 HBO Shows With the Greatest Main Characters of All Time, Ranked
+
+TV, HBO, The Sopranos, Succession, Game Of Thrones
+
+Sun, 02 Aug 2026 11:00:15 GMT
+
+https://collider.com/hbo-shows-best-main-characters-all-time-ranked/
+
+Dive into the top HBO shows featuring the most captivating and complex main characters, from The Sopranos to Succession.
+---------
+
+# Crunchyroll’s Darkest Anime of 2026 Just Became a Gripping Espionage Thriller
+
+TV Features, Jaadugar: A Witch in Mongolia, Crunchyroll, Anime, Streaming
+
+Sun, 02 Aug 2026 10:51:14 GMT
+
+https://collider.com/crunchyroll-darkest-anime-2026-jaadugar-a-witch-in-mongolia/
+
+Jaadugar: A Witch in Mongolia premiered this month on Crunchyroll, and it may be the darkest new anime of the year.
+---------
+
+# 8 Years Later, Prime Video's Spy Series Is the Best Kind of Cult Show No One Talks About
+
+TV Features, Patriot, Michael Dorman, Terry O'Quinn, Prime Video
+
+Sun, 02 Aug 2026 10:44:18 GMT
+
+https://collider.com/patriot-prime-video-spy-drama-series-cult-show/
+
+Prime Video's forgotten spy series Patriot is still worth watching for its unique take on espionage, dark humor, and character-driven storytelling.
+---------
+
+# Brad Pitt’s 143-Minute Hidden Gem Is Quietly Finding New Life on Streaming
+
+Movie News, Brad Pitt, Babel, Paramount Plus, Streaming
+
+Sun, 02 Aug 2026 10:30:14 GMT
+
+https://collider.com/brad-pitt-babel-streaming-paramount-plus-august-2026/
+
+Brad Pitt's underrated gem alongside Cate Blanchett and Elle Fanning is coming back to streaming 20 years later. Find out more here.
+---------
+
+# 10 Greatest Video Game Tutorials of All Time
+
+Gaming, Video Game, Portal, Legend of Zelda: Breath of the Wild, The Elder Scrolls V: Skyrim
+
+Sun, 02 Aug 2026 10:22:15 GMT
+
+https://collider.com/best-video-game-tutorials-all-time-ranked/
+
+Although tutorials can be long and tiresome, games like Cuphead, Prey, and Portal keep things light and engaging while still presenting all the facts.
+---------
+
+# 6 Animated Series Perfect for Dungeons & Dragons Fans
+
+TV, Animation, Dungeons & Dragons, Avatar: The Last Airbender, Blood of Zeus
+
+Sun, 02 Aug 2026 10:01:14 GMT
+
+https://collider.com/best-animated-series-dungeons-dragons-fans/
+
+From Arcane to Castlevania, these animated fantasy epics deliver the magic, quests, and camaraderie D&amp;D fans crave.
+---------
+
+# Matt Damon Defied the Gods in the Sci-Fi Companion Piece to 'The Odyssey' Officially Coming to Netflix
+
+Movie News, Elysium, Matt Damon, The Odyssey, Netflix Live
+
+Sun, 02 Aug 2026 10:00:15 GMT
+
+https://collider.com/matt-damon-sci-fi-movie-elysium-coming-to-netflix-august-2026/
+
+Matt Damon's sci-fi movie Elysium, directed by Neill Blomkamp, is coming to Netflix amid the box-office domination of The Odyssey.
+---------
+
+# ‘Reacher’ Fans Need To Watch This 2-Part Spy Thriller Exploding on Global Streaming
+
+TV News, The Day of the Jackal, Peacock, Reacher, Lee Child
+
+Sun, 02 Aug 2026 09:40:15 GMT
+
+https://collider.com/the-day-of-the-jackal-streaming-success-peacock-august-2026-season-2-update/
+
+The only spy thriller that's more clever than Reacher is exploding on Peacock streaming charts before its next season.
+---------
+
 # New Zelda: Ocarina Of Time Gameplay Leaves Fans Torn
 
 Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
@@ -5287,213 +5496,4 @@ Fri, 31 Jul 2026 20:22:14 GMT
 https://collider.com/hbo-shows-gold-standard/
 
 Explore HBO's best shows that set the gold standard for prestige entertainment, featuring series like The Sopranos, Game of Thrones, and The Wire.
----------
-
-# Taylor Sheridan's 'Tulsa King' Crime Thriller Expansion Crosses Major Milestone
-
-TV News, Frisco King
-
-Fri, 31 Jul 2026 21:22:41 GMT
-
-https://movieweb.com/taylor-sheridan-frisco-king-production-wrapped/
-
-Taylor Sheridan's upcoming crime thriller 'Frisco King' appears to be nearing the end of production.
----------
-
-# Disney's Live-Action 'Tangled' Movie Images Debut First Look at Kathryn Hahn's Beloved Villain
-
-Movie News, Tangled
-
-Fri, 31 Jul 2026 21:00:54 GMT
-
-https://movieweb.com/disney-tangled-set-photos-kathryn-hahn-mother-gothel/
-
-'Tangled' brings the iconic villain to life in the latest images from the live-action Disney adaptation.
----------
-
-# 8 Near-Perfect Modern HBO Shows You Have to Binge-Watch This Weekend
-
-TV Lists, HBO Max
-
-Fri, 31 Jul 2026 21:00:12 GMT
-
-https://movieweb.com/hbo-shows-2020s-binge-watch/
-
-HBO has released many memorable TV shows during the 2020s, including these thriller, comedy, drama, and horror series for a great weekend binge.
----------
-
-# Harrison Ford’s 163-Minute Sci-Fi Masterpiece Is Getting New Streaming Home At The Perfect Time
-
-Movies, Blade Runner 2049
-
-Fri, 31 Jul 2026 20:04:05 GMT
-
-https://screenrant.com/harrison-ford-blade-runner-2049-paramount-plus-streaming-release-august-2026/
-
-Harrison Ford's acclaimed sci-fi sequel Blade Runner 2049 is set to stream on Paramount+, as anticipation builds for the upcoming Amazon series.
----------
-
-# New Critical Role Campaign Revealed, Led By D&D Legend
-
-Gaming, Critical Role, Dungeons and Dragons, tabletop games
-
-Fri, 31 Jul 2026 20:02:54 GMT
-
-https://screenrant.com/new-critical-role-campaign-reign-weredragon-chris-perkins/
-
-Critical Role is unleashing yet another campaign this year, and this one will be helmed by one of the most influential figures of modern D&amp;D.
----------
-
-# 10 Best Characters In Power Rangers' Entire Franchise
-
-Streaming TV, Power Rangers
-
-Fri, 31 Jul 2026 20:00:13 GMT
-
-https://screenrant.com/power-rangers-franchise-best-characters/
-
-There have been literally dozens of characters across the franchise's 30+ year run, but only a handful can be considered the best in Power Rangers.
----------
-
-# Jujutsu Kaisen's True Successor Just Dropped, And Nobody's Talking About It
-
-Anime, Webtoon, Masked Recs
-
-Fri, 31 Jul 2026 20:00:13 GMT
-
-https://screenrant.com/jujutsu-kaisen-successor-webtoon-infinite-awakening/
-
-Jujutsu Kaisen may have a new successor in this recent release on Webtoon, and it's already looking promising only 25 chapters in.
----------
-
-# Pokémon TCG Pocket: 10 Best Cards In Ruler of the Skies
-
-Gaming, Pokemon Trading Card Game Pocket, Triple-A Games
-
-Fri, 31 Jul 2026 20:00:13 GMT
-
-https://screenrant.com/pokemon-tcg-pocket-best-cards-ruler-of-the-skies/
-
-Ruler of the Skies ushers in more new Pokémon to Pokémon TCG Pocket, including Mega Rayquaza, the actual ruler of the skies in the Pokémon universe.
----------
-
-# 3 New Shows To Watch On Netflix This Weekend (July 31-Aug 2)
-
-Streaming TV, Netflix, What to Watch on Netflix
-
-Fri, 31 Jul 2026 19:57:12 GMT
-
-https://screenrant.com/best-new-netflix-shows-watch-weekend-july-31/
-
-Netflix has several new shows worth checking out this weekend, July 31–August 2, 2026, but these three popular series stand out above the rest.
----------
-
-# Prime Video's New Shark Thriller Takes A Massive Bite Out Of Global Streaming Charts
-
-Movies, Masked Recs, Horror
-
-Fri, 31 Jul 2026 19:47:08 GMT
-
-https://screenrant.com/the-devils-mouth-movie-prime-video-streaming-success-july-2026/
-
-Prime Video's new shark thriller takes a massive bite out of the global streaming charts shortly after its release, making waves worldwide.
----------
-
-# DC Officially Confirms Poison Ivy's New Design For Batman's Return
-
-Streaming TV, Masked Recs
-
-Fri, 31 Jul 2026 19:37:58 GMT
-
-https://screenrant.com/batman-caped-crusader-season-2-prime-video-dc-poison-ivy-reveal/
-
-Poison Ivy sports a different design and comes with a tragic backstory in Batman's return, with the DC release also featuring many other villains.
----------
-
-# Cyberpunk 2077's Johnny Silverhand Officially Returns In New Game Reveal
-
-Gaming, Cyberpunk 2077, Gen Con
-
-Fri, 31 Jul 2026 19:36:19 GMT
-
-https://screenrant.com/cyberpunk-2077-johnny-silverhand-trading-card-game-tcg-reveal/
-
-Discover the latest expansion in the Cyberpunk universe, featuring the iconic Johnny Silverhand.
----------
-
-# Stephen King’s 30-Year-Old Novel Getting New Adaptation From Sam Raimi
-
-Movies, Desperation, Stephen King, Sam Raimi, Horror
-
-Fri, 31 Jul 2026 19:30:26 GMT
-
-https://screenrant.com/stephen-king-desperation-movie-development-sam-raimi-producing/
-
-Sam Raimi is officially teaming up with Stephen King and directing duo Zach Lipovsky and Adam B. Stein for a new adaptation of his 1996 novel.
----------
-
-# One Piece Officially Loses the Crown to the Biggest Series Finale of 2026
-
-Anime, One Piece, Space Brothers
-
-Fri, 31 Jul 2026 20:05:14 GMT
-
-https://www.cbr.com/one-piece-vs-space-brothers-oricon-manga-ranking/
-
-After three weeks at no. 1, One Piece has been knocked from the top of Oricon's manga sales chart by the long-awaited return of Space Brothers.
----------
-
-# Chicago Fire Season 15 Loses Another Series Regular in Major Cast Shakeup
-
-TV, Chicago Fire
-
-Fri, 31 Jul 2026 20:04:46 GMT
-
-https://www.cbr.com/chicago-fire-officially-loses-dermot-mulroney/
-
-Multiple main characters are leaving Chicago Fire in Season 15.
----------
-
-# Igloo Debuts New Peanuts Collection With Surprisingly Affordable Prices
-
-Comics, Peanuts
-
-Fri, 31 Jul 2026 20:00:17 GMT
-
-https://www.cbr.com/igloo-peanuts-snoopy-merchandise/
-
-Peanuts fans have a whole new line of Snoopy merchandise to pick up before the summer is over, and it's all courtesy of another fan-favorite brand.
----------
-
-# Spider-Man Fans Are Running Out of Time to Watch This Disney+ Exclusive Before It Disappears
-
-Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe, Disney+
-
-Fri, 31 Jul 2026 20:00:17 GMT
-
-https://www.cbr.com/generations-the-evolution-of-spider-man-leaving-disney-plus-october-2026/
-
-Fans only have a few months left to watch one of the most unexpected yet highly appreciated pieces of Spider-Man media, and it may not be coming back.
----------
-
-# Andrew Garfield Credits Paddington for the 'Best Night of My Life' After Getting Way Too High
-
-CBR Exclusives, The Magic Faraway Tree
-
-Fri, 31 Jul 2026 19:35:12 GMT
-
-https://www.cbr.com/andrew-garfield-paddington-comfort-movie-story/
-
-Thank you, Paddington Bear.
----------
-
-# Spider-Man Film Book Captures Webslinger's Complete Hollywood History, And CBR Has An Excerpt
-
-Movies, Spider-Man 4
-
-Fri, 31 Jul 2026 19:31:21 GMT
-
-https://www.cbr.com/spider-man-film-book-hollywood-history-excerpt/
-
-CBR Deputy Editor Sean O'Connell has an updated edition of his book about Spider-Man's history in film, and CBR has an exclusive excerpt
 ---------
