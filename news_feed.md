@@ -1,3 +1,256 @@
+# All 5 Upcoming Marvel Shows, Ranked By Hype
+
+Streaming TV, Marvel Cinematic Universe
+
+Sun, 02 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/upcoming-marvel-shows-ranked-by-hype/
+
+From the premiere of VisionQuest to returning seasons of Daredevil: Born Again, there are plenty of exciting Marvel shows on the horizon.
+---------
+
+# 5 Pokémon Spinoffs That Are Better Than The Main Series
+
+Gaming, Pokemon, Triple-A Games
+
+Sun, 02 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/pokemon-spinoffs-better-than-main-series/
+
+With Pokémon Winds & Waves on the horizon, it's a good time to look back on Pokémon spinoffs that are even better than the core games.
+---------
+
+# 8 Superman Variants Stronger Than The Original Man of Steel
+
+Comics
+
+Sun, 02 Aug 2026 18:53:37 GMT
+
+https://screenrant.com/strongest-superman-variants-better-clark/
+
+Superman has seen many iterations over time, with many versions eclipsing his original in strength, and some of the best are featured here.
+---------
+
+# All 7 MCU Movies & TV Shows Set Up By Spider-Man: Brand New Day
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Sun, 02 Aug 2026 18:43:19 GMT
+
+https://screenrant.com/marvel-movies-shows-spider-man-brand-new-day-setup/
+
+Spider-Man: Brand New Day opens the door for exciting MCU movies and TV shows, with major heroes' journeys continuing after their 2026 appearances.
+---------
+
+# Taylor Sheridan Star Joins Netflix Fantasy Franchise In Major Role
+
+TV, Gabby's Dollhouse
+
+Sun, 02 Aug 2026 18:40:04 GMT
+
+https://screenrant.com/netflix-gabbys-dollhouse-series-celestina-harris-cast/
+
+A Netflix fantasy franchise that went to theaters in 2025 has now added a Taylor Sheridan star in an important role for the upcoming season.
+---------
+
+# The 25 Funniest TV Shows Of All Time
+
+Classic TV, Comedy
+
+Sun, 02 Aug 2026 18:30:11 GMT
+
+https://screenrant.com/funniest-tv-shows-of-all-time/
+
+From Seinfeld to Monty Python's Flying Circus to both versions of The Office, these are the funniest shows in the history of television.
+---------
+
+# Marvel Unveils New Wolverine With Epic Fantasy Redesign
+
+Marvel Comics, Wolverine, Marvel
+
+Sun, 02 Aug 2026 18:12:27 GMT
+
+https://screenrant.com/wolverine-the-barbarian-redesign-epic/
+
+Marvel's current crossover event reveals a completely new Wolverine, who resembles a classic fantasy hero more than he does the regular clawed X-Man.
+---------
+
+# Universal Hits Landmark Box Office Milestone As The Odyssey Conquers Theaters
+
+Movies, Box Office, The Odyssey
+
+Sun, 02 Aug 2026 18:11:31 GMT
+
+https://screenrant.com/the-odyssey-universal-global-box-office-milestone/
+
+Christopher Nolan's epic The Odyssey is sailing through to success, as it lands a huge global box office milestone for Universal this year.
+---------
+
+# Tom Holland & Zendaya Set Exceedingly Rare Box Office Record With Spider-Man: Brand New Day
+
+Movies, Box Office, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sun, 02 Aug 2026 18:00:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-the-odyssey-tom-holland-zendaya-jon-bernthal-box-office-record/
+
+Thanks to their new smash hit Spider-Man: Brand New Day, Tom Holland and Zendaya set box office record that has potentially never happened before.
+---------
+
+# The 5 Most Influential Fantasy Books of All Time, Ranked
+
+Movies, Fantasy
+
+Sun, 02 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/most-influential-fantasy-books-ranked-list/
+
+There have been many literary masterpieces within the fantasy genre, but these five books rank among the most influential of all time.
+---------
+
+# Anya Taylor-Joy's Stunt Double for Lucky Was Pulled Over During High-Octane Car Scene: 'The Worst Thing You Could Say'
+
+TV, Lucky
+
+Sun, 02 Aug 2026 18:34:49 GMT
+
+https://www.cbr.com/anya-taylor-joy-stunt-double-lucky-pulled-over/
+
+Anya Taylor-Joy's Lucky co-star recalls being pulled over with stunt double Hayley Wright while filming a key sequence for the hit crime series.
+---------
+
+# 10 Long Anime Series With Zero Bad Seasons
+
+Anime, Attack on Titan, Haikyu!!
+
+Sun, 02 Aug 2026 18:15:15 GMT
+
+https://www.cbr.com/long-anime-series-with-zero-bad-seasons/
+
+It's always impressive when an anime manages to go on for a long time without ever having a bad season.
+---------
+
+# Hit '80s Crime Show Is a Steady PVOD Success Ahead of New Reboot
+
+TV, Miami Vice
+
+Sun, 02 Aug 2026 18:01:15 GMT
+
+https://www.cbr.com/miami-vice-crime-pvod-success-august-2026/
+
+One of the greatest buddy cop shows of all time is lighting up the premium video-on demand charts ahead of the next reboot of the franchise.
+---------
+
+# Sega Sends Frieren on a Magical New Halloween Adventure for Fall 2026
+
+Anime, Frieren: Beyond Journey's End, merchandise
+
+Sun, 02 Aug 2026 18:01:15 GMT
+
+https://www.cbr.com/frieren-sega-luminasta-halloween-figure/
+
+The elven mage, Frieren, swaps out her standard white tunic with classic witch garb for SEGA's upcoming 'LUMINASTA' figure release.
+---------
+
+# Prime Video Scores Quentin Tarantino's Favorite Western Trilogy
+
+Movie News, Quentin Tarantino, Clint Eastwood, Prime Video, Sergio Leone
+
+Sun, 02 Aug 2026 19:00:14 GMT
+
+https://collider.com/clint-eastwood-western-dollars-trilogy-streaming-prime-video-august-2026/
+
+The Western trilogy Quentin Tarantino once described as "perfect" has officially found a home streaming on Prime Video.
+---------
+
+# The Devil’s Mouth: The Caves Could Lock Them Inside | Collider BTS
+
+Movie, The Devil's Mouth
+
+Sun, 02 Aug 2026 18:15:15 GMT
+
+https://collider.com/video/the-devil-s-mouth-the-caves-could-lock-them-inside-collider-bts/
+
+Go behind the scenes of The Devil's Mouth with cinematographer James Kniest, who breaks down the extraordinary challenge of filming Amazon Prime Video's survival thriller in Thailand's caves, rivers, and open ocean.
+---------
+
+# 'Chicago Fire' Season 15 Reveals a New Firehouse 51 Member After Shock Cast Exits
+
+TV News, Chicago Fire, NBC, Drama, Procedural
+
+Sun, 02 Aug 2026 18:00:15 GMT
+
+https://collider.com/chicago-pd-season-15-bts-image-davinchi-marcus-blake/
+
+A fresh roguish and funny firefighter recruit joins Chicago Fire Season 15 in a new behind-the-scenes image. Take a look here.
+---------
+
+# Ridley Scott’s Alien Prequel Is So Good, It’s Already Been Renewed for Season 2
+
+TV Features, Alien: Earth, Alien, Noah Hawley, FX
+
+Sun, 02 Aug 2026 17:58:15 GMT
+
+https://collider.com/alien-earth-season-2-renewed-ridley-scott-prequel-series/
+
+Now that FX's Alien: Earth has officially been renewed for Season 2, it can explore more of the sci-fi franchise's best themes.
+---------
+
+# 'Spider-Man: Brand New Day's Official Popcorn Bucket Almost Spoils the Movie
+
+Features, Brand New Day, Marvel Cinematic Universe
+
+Sun, 02 Aug 2026 19:00:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-popcorn-bucket-spoiler/
+
+Popcorn buckets are a fun way to celebrate a movie's release, but 'Spider-Man: Brand New Day's bucket flies very close to the sun. Read on for more.
+---------
+
+# Vin Diesel Confirms 'Fast 11' Release Date Amid Behind-the-Scenes Conflict
+
+TV News, Fast Forever, Fast & Furious, Vin Diesel
+
+Sun, 02 Aug 2026 18:58:12 GMT
+
+https://movieweb.com/vin-diesel-confirms-fast-11-release-date/
+
+Vin Diesel pins down the release date for 'Fast Forever.'
+---------
+
+# Every New Movie and TV Show Coming to Paramount+ in August 2026
+
+Features, Paramount Plus
+
+Sun, 02 Aug 2026 18:30:12 GMT
+
+https://movieweb.com/paramount-new-movie-tv-august-2026/
+
+Here is everything coming to Paramount+ in August, including the latest season of Taylor Sheridan's 'Lioness'
+---------
+
+# 87 Years Later, the Best Quote in John Wayne's 'Stagecoach' Still Lives Rent-Free
+
+Features, Stagecoach, John Wayne, Western
+
+Sun, 02 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/john-wayne-stagecoach-quote/
+
+John Wayne is responsible for countless memorable lines, but the best one from his star-making 1939 classic remains among the best in the genre.
+---------
+
+# 'Kingdom of the Planet of the Apes' Finds New Streaming Home
+
+Movie News, Kingdom of the Planet of the Apes
+
+Sun, 02 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/planet-of-the-apes-prime-video-august/
+
+The latest sequel in the series joins Prime Video in August, at an interesting moment for the franchise's future.
+---------
+
 # 15 Best Solo Class Builds For Baldur’s Gate 3
 
 Gaming, Baldur's Gate 3, Baldur's Gate, PC
@@ -5243,257 +5496,4 @@ Sat, 01 Aug 2026 03:30:14 GMT
 https://www.cbr.com/avengers-needs-bigger-character-moments-not-bigger-threats/
 
 Marvel's most famous hero team wasn't built off the threats they faced, but the character development that made their plights worth it.
----------
-
-# 6 Near-Perfect Hard Horror Shows Nobody Remembers
-
-TV, Horror, The Exorcist, The Mist
-
-Sat, 01 Aug 2026 03:30:14 GMT
-
-https://www.cbr.com/near-flawless-forgotten-hard-horror-shows-list/
-
-Exceptional hard horror shows like The Exorcist and The Order may have been overshadowed or forgotten, but still offer unforgettable stories.
----------
-
-# 5 PS5 Games That Are Brutally Difficult
-
-Games, Lists, Video Games, PlayStation 5, The Last of Us
-
-Sat, 01 Aug 2026 03:15:15 GMT
-
-https://www.cbr.com/ps5-games-that-are-brutally-difficult/
-
-Games like Ghostrunner and Sifu are some of the toughest on the console.
----------
-
-# The Matrix's Best Line Is Still the Greatest Quote in Sci-Fi History
-
-Movies, The Matrix, Sci-Fi
-
-Sat, 01 Aug 2026 03:15:15 GMT
-
-https://www.cbr.com/the-matrix-greatest-quote-in-sci-fi-history/
-
-Fans continue to quote, and reinterpret this line because it quietly explains everything the movie is trying to say about reality, belief, and Neo.
----------
-
-# Star Wars Officially Returns With Its New 8-Episode Jedi Series on August 5
-
-Anime, Star Wars: Visions Presents - The Ninth Jedi, Star Wars: Visions, Star Wars
-
-Sat, 01 Aug 2026 03:05:15 GMT
-
-https://www.cbr.com/star-wars-visions-ninth-jedi-disney-release-date/
-
-A brand-new Star Wars anime series is about to make its debut, and fans only have a few days left to wait before it arrives on Disney+.
----------
-
-# 10 Greatest Survival Thriller Anime of All Time
-
-Anime, Thriller, survival, Parasyte The Maxim, Attack On Titan
-
-Sat, 01 Aug 2026 02:45:14 GMT
-
-https://www.cbr.com/greatest-survival-thriller-anime-of-all-time/
-
-Survival horror anime works best when the threat reaches past claws and bullets into trust, identity and the systems meant to protect.
----------
-
-# 10 Classic SEGA Genesis Games That Haven't Aged Well
-
-Games, Sega Genesis, sega, Video Games, Sonic the Hedgehog
-
-Sat, 01 Aug 2026 02:15:15 GMT
-
-https://www.cbr.com/sega-genesis-classic-games-aged-poorly/
-
-Sega Genesis games like Sonic 3D Blast and Virtual Racing haven't stood the test of time.
----------
-
-# The Supernatural Horror Movie Stephen King Called the Best of All Time Is Officially Streaming for Free
-
-Movie Features, Horror, The Changeling, George C. Scott, Stephen King
-
-Sat, 01 Aug 2026 04:08:14 GMT
-
-https://collider.com/stephen-king-the-changeling-streaming-free-tubi-july-2026/
-
-1980's The Changeling, which Stephen King called the best supernatural horror film of all time, is streaming for free on Tubi.
----------
-
-# FX's 9-Episode Crime Thriller Masterpiece Is Based on a True Story
-
-TV Features, Say Nothing, Anthony Boyle, Rory Kinnear, FX
-
-Sat, 01 Aug 2026 03:59:15 GMT
-
-https://collider.com/say-nothing-fx-crime-thriller-true-story/
-
-FX's Say Nothing delves into the complex history of The Troubles, offering a nuanced and emotionally impactful exploration of the conflict's impact.
----------
-
-# Forget 'Game of Thrones,' Netflix's Near-Perfect 5-Season Epic Is the Ultimate Weekend Binge
-
-TV Features, The Last Kingdom, The Last Kingdom: Seven Kings Must Die, Netflix, Game Of Thrones
-
-Sat, 01 Aug 2026 03:41:14 GMT
-
-https://collider.com/the-last-kingdom-netflix-weekend-binge/
-
-The Last Kingdom is the ultimate Game of Thrones replacement with its near-perfect 5-season epic adaptation of Bernard Cornwell's historical fiction series.
----------
-
-# The 10 Greatest Movies That Never Take Themselves Too Seriously
-
-Movie, In Bruges, Burn After Reading, Back to the Future, The Big Lebowski
-
-Sat, 01 Aug 2026 03:09:14 GMT
-
-https://collider.com/best-movies-never-take-themselves-too-seriously/
-
-From Guardians of the Galaxy to Burn After Reading, these movies never feel like they're trying to prove anything, remaining enjoyable throughout.
----------
-
-# 10 Greatest Action Comedy Shows of All Time
-
-TV, Action, Comedy, The Boys, Cobra Kai
-
-Sat, 01 Aug 2026 03:02:14 GMT
-
-https://collider.com/best-action-comedy-shows-all-time-ranked/
-
-Prime Video's The Boys, Netflix's Cobra Kai, and HBO Max's Peacemaker are among the best action comedy shows, but which series is the greatest?
----------
-
-# FX’s 2-Part Series Is the Perfect Modern Binge After Christopher Nolan’s ‘The Odyssey’
-
-TV Features, Jeff Bridges, Christopher Nolan, The Old Man, The Odyssey
-
-Sat, 01 Aug 2026 02:44:14 GMT
-
-https://collider.com/fx-hulu-the-old-man-series-modern-odyssey-christopher-nolan/
-
-Christopher Nolan’s The Odyssey shares surprising parallels with FX’s The Old Man, making Jeff Bridges’ thriller the perfect follow-up.
----------
-
-# Jason Statham and Guy Ritchie’s Biggest Action Misfire Finds a Free Streaming Home
-
-Movie News, Revolver, Jason Statham, Guy Ritchie, Pluto TV
-
-Sat, 01 Aug 2026 02:30:14 GMT
-
-https://collider.com/jason-statham-guy-ritchie-revolver-streaming-free-pluto-tv-july-2026/
-
-The historically bad action misfire that brought Guy Ritchie and Jason Statham together back in 2005 is now streaming for free.
----------
-
-# 8 Perfect 1990s TV Shows I Knew Were Masterpieces From The First Scene
-
-TV Lists, Seinfeld
-
-Sat, 01 Aug 2026 02:30:12 GMT
-
-https://movieweb.com/1990s-tv-shows-perfect-first-scenes/
-
-These 1990s TV shows, ranging from dramas to comedies to what has become a sci-fi classic, have memorable first scenes.
----------
-
-# Emilia Clarke’s New Crime Thriller Can Be Her Best Show Since Game Of Thrones
-
-Streaming TV, Masked Recs
-
-Sat, 01 Aug 2026 02:00:21 GMT
-
-https://screenrant.com/emilia-clarke-prime-video-criminal-adaptation/
-
-Emilia Clarke’s upcoming crime thriller on Prime Video seems to have incredible potential and can become her best TV show since HBO’s Game of Thrones.
----------
-
-# Harley Quinn Is Back In 2026 With The Perfect Role For James Gunn's DC Universe
-
-Streaming TV, Masked Recs
-
-Sat, 01 Aug 2026 01:43:49 GMT
-
-https://screenrant.com/harley-quinn-batman-caped-crusader-james-gunn-dc-universe-role/
-
-Harley Quinn is back in Batman's exciting new release, and the 2026 project shows what is her perfect role for James Gunn's DC Universe.
----------
-
-# Forgotten Fantasy TV Masterpiece Can Be Binged In Just 1 Week
-
-Streaming TV, Masked Recs
-
-Sat, 01 Aug 2026 01:15:11 GMT
-
-https://screenrant.com/dead-like-me-forgotten-fantasy-masterpiece-bingeable/
-
-A fantasy from the 2000s is truly a masterpiece in entertainment and dark comedy, but it has been forgotten over time. But it's now free to watch.
----------
-
-# 3 Years Later, Stranger Things' Crossover With A $17 Billion '80s Franchise Is Aging Better Than Season 5
-
-Comics, Stranger Things, Masked Recs
-
-Sat, 01 Aug 2026 01:00:11 GMT
-
-https://screenrant.com/stranger-things-tmnt-crossover-better-than-season-5/
-
-While certainly out-there as far as team-ups go, this particular collaboration between publishers brings the spirit of the '80s to New York City.
----------
-
-# A Stephen King Shared Universe Theory Will Make Sense After Mike Flanagan’s Carrie
-
-Streaming TV, Masked Recs
-
-Sat, 01 Aug 2026 01:00:11 GMT
-
-https://screenrant.com/stephen-king-shared-universe-theory-carrie-institute/
-
-One of the most intriguing shared universe theories surrounding Stephen King’s works will make more sense after Mike Flanagan’s upcoming adaptation.
----------
-
-# Metal Gear Solid Meets Game Of Thrones In New Dark Fantasy RPG
-
-Gaming, Metal Gear Solid, Game of Thrones, Resonance: A Plague Tale Legacy
-
-Sat, 01 Aug 2026 01:00:11 GMT
-
-https://screenrant.com/plague-tale-metal-gear-meets-game-of-thrones/
-
-Fans of Game of Thrones world and story as well as Metal Gear Solid's fantastic stealth gameplay will want to check out this new fantasy RPG.
----------
-
-# DC Unveils Epic Fantasy Redesign For Batman’s Strongest Villain
-
-DC Comics, Batman
-
-Sat, 01 Aug 2026 00:35:00 GMT
-
-https://screenrant.com/bane-fantasy-redesign-batman-villain-dc-dark-knights-steel/
-
-DC is buffing one of its best and most intimidating Batman villains in a brand-new sequel series that is drawing him out of the depths he was cast to.
----------
-
-# Disney+’s Newest Canceled Show Signals The End Of An Era
-
-Superheroes, Disney Plus, Marvel Cinematic Universe, Wonder Man
-
-Sat, 01 Aug 2026 00:30:11 GMT
-
-https://screenrant.com/disney-marvel-wonder-man-show-cancel-end-era/
-
-Disney+ has canceled a major TV show ahead of season 2, and the move signals the end of an era for what types of series will be on the streamer.
----------
-
-# 7 Plotlines Harry Potter Can't Mess Up This Time
-
-Streaming TV, Harry Potter
-
-Sat, 01 Aug 2026 00:30:11 GMT
-
-https://screenrant.com/harry-potter-show-plotlines-cant-mess-up/
-
-It's impossible for a screen adaptation to get it all right, but HBO's Harry Potter TV show will have no excuse if it drops the ball on these stories.
 ---------
