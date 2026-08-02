@@ -1,3 +1,278 @@
+# Samara Weaving Suits Up As X-Men’s Emma Frost In Stunning New MCU Art
+
+Movies, X-Men, Marvel Cinematic Universe, Emma Frost
+
+Sun, 02 Aug 2026 16:40:47 GMT
+
+https://screenrant.com/samara-weaving-x-men-emma-frost-marvel-art/
+
+Only two days after her reported casting, stunning new art showcases Samara Weaving as Emma Frost in the MCU's long-awaited X-Men movie.
+---------
+
+# 10 Greatest Shawshank Redemption Scenes
+
+Movies, The Shawshank Redemption
+
+Sun, 02 Aug 2026 16:40:11 GMT
+
+https://screenrant.com/best-shawshank-redemption-movie-scenes/
+
+The Shawshank Redemption boasts some of the most iconic scenes ever depicted in cinema, with the greatest becoming cultural touchstones.
+---------
+
+# Alan Ritchson Effectively Seals Reacher’s Long-Term Fate On Prime Video
+
+Streaming TV, Reacher, Prime Video
+
+Sun, 02 Aug 2026 16:30:11 GMT
+
+https://screenrant.com/reacher-season-6-7-confirm-alan-ritchson-prime-video-deal/
+
+A brand new exciting update from Alan Ritchson effectively seals the future of Reacher on Amazon Prime Video beyond its guaranteed seasons.
+---------
+
+# Reacher Star's 4-Part Horror Series Is Backrooms Meets Twin Peaks
+
+TV, Channel Zero, Recommendation, Backrooms, Twin Peaks
+
+Sun, 02 Aug 2026 16:20:11 GMT
+
+https://screenrant.com/channel-zero-backrooms-meets-twin-peaks-reacher-star/
+
+Reacher's breakout star got their first big break with this cult 2010s horror series, which is best described as Backrooms meets Twin Peaks.
+---------
+
+# 10 Must-Watch K-Dramas About Ghosts & Spirits
+
+Classic TV, K-Drama
+
+Sun, 02 Aug 2026 16:15:11 GMT
+
+https://screenrant.com/k-dramas-about-ghosts-and-spirits/
+
+Whether it be a romantic fantasy or a thrilling horror story, some of the best K-dramas of the century have supernatural foes like ghosts & spirits.
+---------
+
+# Amazon’s God Of War Reportedly Eyeing Key Season 2 Castings As New Kratos Actor Search Continues
+
+TV, God of War
+
+Sun, 02 Aug 2026 16:12:54 GMT
+
+https://screenrant.com/god-of-war-season-2-recasting-report/
+
+God of War is already looking towards season 2, as a reported casting call is on the hunt for two key roles as the search for a new Kratos continues.
+---------
+
+# 7 Comic Books Way Better Than Their Movie Adaptations
+
+Comics
+
+Sun, 02 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/comics-better-movie-adaptations/
+
+The worst takes on comic books around.
+---------
+
+# The Real Meaning Behind Furiosa Having No Hair In The Mad Max Movies
+
+Movies, Mad Max, Mad Max: Fury Road, Furiosa: A Mad Max Saga
+
+Sun, 02 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/furiosa-no-hair-real-meaning-mad-max/
+
+In the Mad Max movies, Furiosa's shaved head is more than just a stylistic choice, but what does it really represent for the iconic heroine?
+---------
+
+# Breath Of The Wild: Zelda's Ballad Is The Perfect 40th Anniversary Adventure
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Breath of the Wild
+
+Sun, 02 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/zeldas-ballad-botw-fan-expansion/
+
+Experience The Legend of Zelda like never before with the free Breath Of The Wild: Zelda's Ballad mod.
+---------
+
+# Spider-Man: Brand New Day Box Office Makes History With Record-Shattering Debut (Domestic Top 5)
+
+Movies, Box Office, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sun, 02 Aug 2026 15:58:48 GMT
+
+https://screenrant.com/spider-man-brand-new-day-box-office-opening-weekend-domestic-chart-report/
+
+=Spider-Man: Brand New Day debuts with a domestic box office gross that shatters a franchise record and makes history by hitting a staggering high.
+---------
+
+# Stephen King's Forgotten 6-Part Sci-Fi Remake Is Still Better Than the Original in Every Way
+
+TV, The Dead Zone, Stephen King, Horror
+
+Sun, 02 Aug 2026 16:30:15 GMT
+
+https://www.cbr.com/stephen-king-the-dead-zone-forgotten-tv-show/
+
+The success of this underrated Stephen King adaptation paved the way for episodic adaptations of King's work over the last two decades.
+---------
+
+# 5 Greatest Sci-Fi Anime Series of the 2020s, Ranked
+
+Anime, Cyberpunk: Edgerunners, Pluto, Sci-Fi, Science Fiction
+
+Sun, 02 Aug 2026 16:15:15 GMT
+
+https://www.cbr.com/2020s-greatest-sci-fi-anime/
+
+Anime series like Pluto and Cyberpunk: Edgerunners are the best sci-fi titles of the 2020s.
+---------
+
+# One of Star Trek's Most Iconic Aliens Just Got Its Biggest Upgrade in 59 Years
+
+Comics, Star Trek
+
+Sun, 02 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/star-trek-andorians-upgrade-red-shirts-ghost-21st-century/
+
+The newest Star Trek series will finally give one of the franchise's beloved alien races their time to shine.
+---------
+
+# Prime Video's 5-Season Superhero Masterpiece Returns as a Streaming Hit 2 Months After Divisive Finale
+
+TV, The Boys, Prime Video
+
+Sun, 02 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/the-boys-superhero-prime-video-success-august-2026/
+
+Two months after the series finale, The Boys is back as a streaming hit following a brief absence from the Top 10.
+---------
+
+# Pokémon Gives the Nintendo Switch 2 an Official Red & Green Upgrade
+
+Anime, Pokemon, Nintendo Switch
+
+Sun, 02 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/pokemon-switch-2-hori-pixel-art-controller/
+
+Longtime Pokémon fans are getting what might be the best official Nintendo Switch 2 merchandise they could possibly ask for, and it's coming soon.
+---------
+
+# 10 Classic Thrillers That Are Unwatchable Today
+
+Movies, Thriller, Dirty Harry, James Bond
+
+Sun, 02 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/unwatchable-classic-thrillers-list/
+
+The thriller genre may be responsible for some of cinema’s greatest stories, but it has its share of outdated classics that are unwatchable today.
+---------
+
+# NCIS' New Spinoff Goes Viral With First Look as Production Starts as It Replaces Scott Caan's Hawaii Five-0 Role
+
+TV, NCIS: New York, NCIS
+
+Sun, 02 Aug 2026 15:51:51 GMT
+
+https://www.cbr.com/ncis-new-york-filming-scott-caan-danny-williams-fans/
+
+The NCIS universe recently confirmed its return slate.
+---------
+
+# Tom Holland and Zendaya Officially Crowned King and Queen of the Box Office
+
+Movie News, The Odyssey, Christopher Nolan, Tom Holland, Zendaya
+
+Sun, 02 Aug 2026 16:15:15 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-box-office-911-million/
+
+Tom Holland and Zendaya’s The Odyssey is still passing box office milestones as Spider-Man: Brand New Day soars past sky-high expectations.
+---------
+
+# 8 Best Cameos in 'Spider-Man: Brand New Day'
+
+Movie, Spider-Man: Brand New Day, Spider-Man, MCU, Superhero
+
+Sun, 02 Aug 2026 16:07:15 GMT
+
+https://collider.com/spider-man-brand-new-day-cameos-ranked/
+
+Spider-Man: Brand New Day, starring Tom Holland and Zendaya, featured many cameos, including deep cut comics references to familiar MCU faces.
+---------
+
+# 'John Wick' Meets James Bond in This 4-Season Spy Thriller
+
+TV Features, Nikita, La Femme Nikita, Maggie Q
+
+Sun, 02 Aug 2026 15:54:15 GMT
+
+https://collider.com/nikita-the-cw-spy-thriller-series/
+
+Maggie Q is John Wick meets James Bond in Nikita, The CW's excellent take on Luc Besson's 1990 film and the 1997 Canadian TV series of the same name.
+---------
+
+# Starz's New 'MobLand' Crime Thriller Replacement Series Debuts Killer RT Score
+
+TV News, Fightland, STARZ
+
+Sun, 02 Aug 2026 16:30:12 GMT
+
+https://movieweb.com/fightland-season-1-rotten-tomatoes-score/
+
+Watch this show if you love 'MobLand' and 'The Gentlemen.'
+---------
+
+# Every New TV Show and Movie Coming to Hulu and Disney+ in August 2026
+
+Features, Disney+, Hulu
+
+Sun, 02 Aug 2026 16:30:12 GMT
+
+https://movieweb.com/disney-hulu-new-movie-tv-august-2026/
+
+August is packed with returning and notable new series on Disney+ and Hulu, along with some classic movies.
+---------
+
+# Ryan Gosling's Neo-Noir Masterpiece Is Essential Viewing Ahead Of Amazon's Sequel Series
+
+Movie News, Blade Runner
+
+Sun, 02 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/blade-runner-2049-paramount-plus/
+
+'Blade Runner 2049' gained renewed attention ahead of Amazon's 'Blade Runner 2099' series premiere.
+---------
+
+# 10 'The Far Side' Comics That Left Readers Angry or Confused
+
+Movie Lists, The Far Side
+
+Sun, 02 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/far-side-angry-confused-readers/
+
+'The Far Side' comics by Gary Larson are funny and memorable, but some readers left letters sharing their anger and confusion.
+---------
+
+# ‘It: Welcome to Derry’ Creator Teases "Very Different Situation" in Season 2
+
+TV News, It: Welcome to Derry, HBO Max, It, Horror
+
+Sun, 02 Aug 2026 15:40:26 GMT
+
+https://movieweb.com/it-welcome-to-derry-different-season-2/
+
+But it'll probably be a while before we see it.
+---------
+
 # The Odyssey Hits Huge Box Office Milestone Amid Neck-And-Neck Race Toward $1 Billion
 
 Movies, Box Office Milestone, The Odyssey
@@ -5221,279 +5496,4 @@ Sat, 01 Aug 2026 01:55:14 GMT
 https://collider.com/the-last-ship-netflix-post-apocalyptic-series/
 
 The hit action-drama TV series The Last Ship presents the perfect mix of apocalyptic drama like The Walking Dead and Jack Ryan-style intrigue.
----------
-
-# One of Horror’s Most Disturbing Movies Returns in 4K Just in Time for Halloween
-
-Movie News, Horror, Blu-ray, Martyrs, Mylène Jampanoï
-
-Sat, 01 Aug 2026 01:30:15 GMT
-
-https://collider.com/martyrs-horror-movie-4k-blu-ray-release-date-october-2026/
-
-A notorious French horror classic returns in 4K before Halloween, bringing one of the genre’s most unsettling experiences back.
----------
-
-# Prime Video's 2026 Detective Masterpiece Passes Yet Another Major Milestone
-
-Movie News, The Sheep Detectives, Hugh Jackman, Project Hail Mary, Prime Video
-
-Sat, 01 Aug 2026 01:00:15 GMT
-
-https://collider.com/prime-video-the-sheep-detectives-streaming-success-july-2026/
-
-Hugh Jackman's hit 2026 detective movie continues to score huge numbers on Prime Video. Read on for more.
----------
-
-# Quentin Tarantino's 'Pulp Fiction' Has a Secret Connection to FX's Newest Thriller
-
-Movie Features, The Rules of Attraction, The Shards, Roger Avary, Pulp Fiction
-
-Sat, 01 Aug 2026 00:45:16 GMT
-
-https://collider.com/ryan-murphy-the-shards-bret-easton-ellis-rules-of-attraction-quentin-tarantino-streaming-free-tubi/
-
-2002's Rules of Attraction saw Pulp Fiction co-writer Roger Avary direct a story by The Shards co-creator Bret Easton Ellis, and it's streaming free.
----------
-
-# Noah Wyle's Medical Drama Is Still One of the Best Shows Ever Made 32 Years Later
-
-TV Features, ER, The Pitt, Noah Wyle, Michael Crichton
-
-Sat, 01 Aug 2026 00:39:14 GMT
-
-https://collider.com/er-noah-wyle-medical-drama-series-best-show-ever-made/
-
-Noah Wyle's portrayal of Dr. John Carter in the medical drama ER remains a standout performance 32 years later.
----------
-
-# Forget 'The Lord of the Rings', a $400M Fantasy Epic Just Debuted a Lavish Trailer
-
-Movie News, Ramayana, Ranbir Kapoor, Bollywood, Fantasy
-
-Sat, 01 Aug 2026 00:30:14 GMT
-
-https://collider.com/ramayana-trailer-lord-of-the-rings-replacement-ranbir-kapoor/
-
-The mega-budget mythological epic film Ramayana debuted its first trailer to mixed response ahead of its global theatrical release later this year.
----------
-
-# 6 Best Superhero Movies Released Since 2010
-
-Movie, Superhero, Spider-Man: Brand New Day, Superman, Spider-Man Into the Spider-Verse
-
-Sat, 01 Aug 2026 00:11:14 GMT
-
-https://collider.com/best-superhero-movies-released-since-2010/
-
-Spider-Man: Brand New Day, Black Panther, and James Gunn's Superman are all among the best superhero movies released since the year 2010.
----------
-
-# 8 Essential Pokémon Games, Ranked
-
-Gaming, Pokémon, Pokemon Legends   Arceus, Nintendo
-
-Sat, 01 Aug 2026 00:02:15 GMT
-
-https://collider.com/pokemon-games-essential-ranked/
-
-Pokémon Legends: Arceus, Pokémon HeartGold and SoulSilver, and Pokémon Red and Blue are among the best, most essential video games in the franchise.
----------
-
-# Ridley Scott’s First Sci-Fi Movie in 9 Years Finally Arrives This August
-
-Movie News, The Dog Stars, Ridley Scott, Josh Brolin, Jacob Elordi
-
-Sat, 01 Aug 2026 00:00:14 GMT
-
-https://collider.com/ridley-scott-sci-fi-movie-the-dog-stars-release-date-august-2026/
-
-Ridley Scott's next sci-fi movie, The Dog Stars, which stars Jacob Elordi and Josh Brolin, will officially arrive in theaters this August.
----------
-
-# 8 Anime Thrillers That Get More Intense With Every Episode
-
-TV Lists, Anime, Thriller
-
-Sat, 01 Aug 2026 02:02:50 GMT
-
-https://movieweb.com/anime-thrillers-better-every-episode/
-
-Keeping the intensity going is a must for any thriller worth its salt, and these anime pull that off impressively. They'll keep viewers hooked.
----------
-
-# Sequel to Ridley Scott's 9-Part Sci-Fi Epic Series Reportedly Being Scrapped
-
-Movie News, Alien: Romulus, Ridley Scott
-
-Sat, 01 Aug 2026 01:42:56 GMT
-
-https://movieweb.com/ridley-scott-alien-romulus-sequel-delayed-indefinitely/
-
-The next chapter in one of Ridley Scott's biggest hit projects may not move forward, according to a new update.
----------
-
-# Sequel to Margot Robbie's Record-Breaking Adaptation Faces Setbacks Over Pay Disputes
-
-Movie News, Margot Robbie, Barbie
-
-Sat, 01 Aug 2026 00:38:07 GMT
-
-https://movieweb.com/barbie-2-margot-robbie-return-warner-bros-budget/
-
-One of Margot Robbie's biggest hits might move forward into a sequel, but it is reportedly facing some challenges in the early stages of development.
----------
-
-# Canceled Fox Sitcom That Became a Streaming Smash Officially Getting a Revival
-
-TV News, New Girl
-
-Sat, 01 Aug 2026 00:29:03 GMT
-
-https://movieweb.com/new-girl-revival-confirmed-max-greenfield/
-
-'New Girl' star Max Greenfield confirms that he's seen scripts for more episodes of the series.
----------
-
-# How Marvel Beat "Superhero Fatigue" For Another 'Avengers: Endgame'-Level Box Office Event
-
-Features, Spider-Man: Brand New Day, Marvel Cinematic Universe
-
-Sat, 01 Aug 2026 00:00:12 GMT
-
-https://movieweb.com/spider-man-brand-new-day-box-office-records/
-
-'Spider-Man: Brand New Day' is set to have one of the biggest opening weekends of all time, showcasing that audiences still love superhero movies.
----------
-
-# Warner Bros. Running Out Of Time Over Barbie 2 Negotiations In New Report
-
-Movies, Barbie
-
-Fri, 31 Jul 2026 23:51:36 GMT
-
-https://screenrant.com/warner-bros-barbie-2-negotiations/
-
-Warner Bros. is cutting it close as the studio races to secure a sequel to the hit film Barbie before its deal with Mattel expires this December.
----------
-
-# 17 Years Later, Titus Welliver's Lost Role Is Hard To Forgive
-
-Classic TV, Lost
-
-Fri, 31 Jul 2026 23:30:11 GMT
-
-https://screenrant.com/lost-titus-welliver-role-aged-badly/
-
-Titus Welliver played one of Lost's best and most compelling villains, but he did not get the screentime or character development that he deserved.
----------
-
-# 7 Most Iconic Anime Swordswomen
-
-Anime
-
-Fri, 31 Jul 2026 23:30:11 GMT
-
-https://screenrant.com/most-iconic-anime-swordswomen/
-
-More often than not, male swordsmen take the spotlight in anime, but many of their female counterparts are just as popular, if not more so.
----------
-
-# Lovecraftian Horror Meets Jaws In Josh Hartnett’s New Netflix Thriller
-
-Streaming TV, Masked Recs
-
-Fri, 31 Jul 2026 23:15:11 GMT
-
-https://screenrant.com/josh-hartnett-netflix-below-lovecraft-jaws/
-
-An upcoming Netflix thriller show, which stars Josh Hartnett as its lead, seems to combine Lovecraftian horror with some of the best beats from Jaws.
----------
-
-# 3 Best Movies To Watch On Netflix This Weekend (August 1-2)
-
-Movies, Netflix, Recommendation
-
-Fri, 31 Jul 2026 23:07:03 GMT
-
-https://screenrant.com/best-netflix-movies-watch-weekend-august-1/
-
-The best movies to watch on Netflix this weekend are a sci-fi horror, a new comedy, and a fantasy masterpiece that became a box office phenomenon.
----------
-
-# 20 Years Later, Battlestar Galactica's Best Line Still Lives Rent-Free In Our Heads
-
-Classic TV, Battlestar Galactica
-
-Fri, 31 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/battlestar-galactica-greatest-line-quote-remember/
-
-Some quotes just never stop being relevant, and that's even more true for one from Battlestar Galactica that's all about endless cycles.
----------
-
-# 5 Free PlayStation 5 Games You Can Play This Weekend, No PS Plus Needed
-
-Gaming, PlayStation 5
-
-Fri, 31 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/playstation-5-free-games-august-1-weekend/
-
-Discover 5 free PlayStation 5 games to enjoy this weekend without needing a PS Plus subscription, including casual adventures, roguelites, and more.
----------
-
-# 5 MCU Heroes Who Should Team Up With Ryan Gosling's Ghost Rider
-
-Movies, Ghost Rider, Marvel Cinematic Universe
-
-Fri, 31 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/ghost-rider-mcu-heroes-team-up-candidates/
-
-Several existing superheroes in the MCU deserve opportunities to join forces with Ryan Gosling's Ghost Rider on the big screen.
----------
-
-# Every Lantern Corp and Their Powers in DC Canon Explained
-
-Comics, Green Lantern, DC Comics
-
-Fri, 31 Jul 2026 23:00:11 GMT
-
-https://screenrant.com/every-lantern-corp-dc-comics-ranked-weakest-strongest/
-
-Other Lantern Corps, stronger than the Greens, roam the DC universe, some fueled by the very emotions the Guardians sought to suppress.
----------
-
-# 5 Greatest Hard Sci-Fi Anime of the 2020s, Ranked
-
-Anime, 86: EIGHTY-SIX, Dr. Stone, Sci-Fi
-
-Fri, 31 Jul 2026 23:45:14 GMT
-
-https://www.cbr.com/greatest-hard-sci-fi-anime-of-the-2020s-ranked/
-
-The 2020s were full of groundbreaking hard sci-fi anime, like Dr. Stone, that add realism and authenticity to complex technology and science.
----------
-
-# 15 Greatest Endgame Bosses For Your Next D&D Campaign
-
-Games, Tabletop, Dungeons and Dragons, Gaming
-
-Fri, 31 Jul 2026 23:30:15 GMT
-
-https://www.cbr.com/dnd-endgame-campaign-bosses/
-
-Choosing a great end boss is key when designing a D&amp;D campaign. Luckily, 5e has no shortage of great monsters to choose from.
----------
-
-# 5 Masterpiece War Anime Better Than Attack on Titan
-
-Anime, Attack on Titan, Legend Of The Galactic Heroes
-
-Fri, 31 Jul 2026 23:15:14 GMT
-
-https://www.cbr.com/masterpiece-war-anime-better-than-attack-on-titan/
-
-Attack on Titan is a war anime masterpiece, but shows like Legend of the Galactic Heroes handle the theme much better.
 ---------
