@@ -1,3 +1,267 @@
+# 3 Marvel Antiheroes Who Stayed Hardcore & 3 Who Turned Hero
+
+Marvel Comics, Marvel
+
+Sun, 02 Aug 2026 23:20:08 GMT
+
+https://screenrant.com/best-marvel-antiheroes-heroes/
+
+Marvel is packed with antiheroes who can't seem to decide if they want to stay hardcore or make the leap and become a do-gooder superhero.
+---------
+
+# Anne Hathaway's Jurassic World Meets Cloverfield Movie Arrives This Month
+
+Movies, Masked Recs
+
+Sun, 02 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/anne-hathaway-end-of-oak-street-arrives-this-month/
+
+Anne Hathaway's upcoming dinosaur movie puts a suburban neighborhood in a strange world, and might just have a connection to an iconic horror.
+---------
+
+# 10 Strongest Lanterns in DC History
+
+Comics, Green Lantern, DC Comics
+
+Sun, 02 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/strongest-lanterns-dc-comics-history/
+
+Willpower. Rage. Death itself. DC's strongest Lanterns ever have proved their worth in battle.
+---------
+
+# Stardew Valley Meets Studio Ghibli In Gorgeous New Anime Life Sim
+
+Gaming, Stardew Valley, Studio Ghibli, PC, Steam
+
+Sun, 02 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/stardew-valley-meets-studio-ghibli-in-gorgeous-new-anime-life-sim/
+
+Studio Ghibli fans looking for a cozy new adventure should absolutely check out this Stardew Valley-inspired life sim.
+---------
+
+# Matt Reeves' New Batman Release Shockingly Kills One Of The Dark Knight's Biggest Villains
+
+Streaming TV, Masked Recs
+
+Sun, 02 Aug 2026 22:45:11 GMT
+
+https://screenrant.com/batman-caped-crusader-season-2-riddler-death-villains/
+
+Matt Reeves' Batman series just killed one of the Dark Knight's biggest villains, who was key to The Batman, adding to the mature show's death toll.
+---------
+
+# Apple TV’s Cyberpunk Adaptation Is Already 2027’s Most Exciting Sci-Fi Show
+
+TV, Masked Recs
+
+Sun, 02 Aug 2026 22:31:11 GMT
+
+https://screenrant.com/neuromancer-william-gibson-apple-tv-2027-show/
+
+Apple TV's latest trailer has fans buzzing with anticipation for the cyberpunk adaptation that looks set to redefine the sci-fi genre in 2027.
+---------
+
+# Billy Bob Thornton's 5 Best TV Shows, Ranked
+
+TV, Billy Bob Thornton, Ranking
+
+Sun, 02 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/best-billy-bob-thornton-tv-shows-ranked/
+
+Despite making his name on the big screen, Billy Bob Thornton has become one of the biggest stars on television over the past decade and a half.
+---------
+
+# Iconic Superman Villain Debuts Best Design of All Time, Bar None
+
+Comics, Superman
+
+Sun, 02 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/absolute-superman-metallo-redesign-brainiac/
+
+A bold new design
+---------
+
+# 6 Perfect Open-World RPGs That Have Been Lost To Time
+
+Gaming, RPG, PC
+
+Sun, 02 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/perfect-open-world-games-lost-to-time/
+
+These incredible open-world RPGs should have taken the world by storm, but, instead, everyone seems to have forgotten about them.
+---------
+
+# Batman: Caped Crusader Season 2 Makes Villain's Most Infamous Weapon Even More Terrifying
+
+TV, Batman: Caped Crusader
+
+Sun, 02 Aug 2026 22:29:27 GMT
+
+https://screenrant.com/batman-caped-crusader-season-2-joker-laughing-gas-twist/
+
+Batman: Caped Crusader season 2 gives one of the Dark Knight's most terrifying villains of all time a new twist and a more dangerous weapon.
+---------
+
+# 10 Must-Watch Anime With Perfect Final Arcs
+
+Anime, Fruits Basket, Code Geass: Lelouch of the Rebellion, Cowboy Bebop, Steins;Gate (2011)
+
+Sun, 02 Aug 2026 23:15:14 GMT
+
+https://www.cbr.com/greatest-anime-with-perfect-final-arcs/
+
+The greatest anime treat thei final arc as the natural culmination of everything that came before, rewarding every lesson, sacrifice and relationship.
+---------
+
+# Matt Damon's Sleeper Hit Sci-Fi Masterpiece Is Now Streaming on Netflix
+
+Movies, Elysium
+
+Sun, 02 Aug 2026 23:00:14 GMT
+
+https://www.cbr.com/matt-damon-elysium-sci-fi-streaming-netflix-august-2026/
+
+A remarkably underrated Matt Damon film is finally available for streaming on one of the biggest steaming platforms of all time.
+---------
+
+# Netflix's 3-Season Mystery Show Based on a Bestselling Book Series Will Hook You in 5 Minutes
+
+TV, Netflix, A Series of Unfortunate Events, Mystery
+
+Sun, 02 Aug 2026 23:00:14 GMT
+
+https://www.cbr.com/netflix-a-series-of-unfortunate-events-captivating-mystery-show/
+
+Netflix discovered the secret to captivating storytelling, as this mystery series masterfully hooks viewers and keeps them coming back for more.
+---------
+
+# Batman: Caped Crusader Fans Describe New Joker as 'Best Adaptation' of the Villain in Years
+
+TV, Batman: Caped Crusader
+
+Sun, 02 Aug 2026 22:46:28 GMT
+
+https://www.cbr.com/batman-caped-crusader-season-2-joker-reactions/
+
+The newest incarnation of the Joker is wildly different from most other depictions, but that's what many fans love about him.
+---------
+
+# Netflix's Bone-Chilling 3-Part Docuseries Shoots Straight to No. 1 on the Global Charts
+
+TV, Netflix, Crime
+
+Sun, 02 Aug 2026 22:30:14 GMT
+
+https://www.cbr.com/the-idaho-murders-college-nightmare-true-crime-netflix-august-2026/
+
+Netflix's heartbreaking docuseries about one of the most shocking crimes in recent history, The Idaho Murders, is the No. 1 most-watched series.
+---------
+
+# Venom Animated Film Will Fix an Obvious Spider-Man Movie Mistake
+
+Movies, Spider-Man, Spider-Man: Brand New Day, Venom
+
+Sun, 02 Aug 2026 22:30:14 GMT
+
+https://www.cbr.com/venom-animated-movie-fix-spider-verse-mistake/
+
+Spider-Man is swinging back into theaters, but Venom soon doing the same needs to actually involve the Wall-Crawler himself this time around.
+---------
+
+# James Spader’s Hit 10-Part Crime Thriller Is Quietly Dominating Streaming
+
+TV News, Drama, NBC, The Blacklist, James Spader
+
+Sun, 02 Aug 2026 23:15:14 GMT
+
+https://collider.com/james-spader-nbc-the-blacklist-itunes-streaming-success-august-2026/
+
+James Spader carried NBC's crime thriller for a decade, and it is still trending on streaming charts 3 years after ending. Get more details here.
+---------
+
+# 'Tulsa King' Star's Cult Classic Crime Thriller Surges on Paramount+ Ahead of Reboot Series
+
+Movie News, Tulsa King, Sylvester Stallone, Cop Land, Paramount Plus
+
+Sun, 02 Aug 2026 23:00:14 GMT
+
+https://collider.com/sylvester-stallone-cop-land-streaming-paramount-plus-august-2026/
+
+Sylvester Stallone's 10/10 crime movie alongside Robert De Niro and Ray Liotta is coming to streaming soon. Here's everything you should know.
+---------
+
+# 2 Years Later, HBO Max’s 6-Episode Sci-Fi Is Still Worth Watching
+
+TV Features, Dune: Prophecy, Emily Watson, Dune, Olivia Williams
+
+Sun, 02 Aug 2026 22:49:14 GMT
+
+https://collider.com/dune-prophecy-underrated-hbo-max-show/
+
+HBO Max's Dune: Prophecy is more relevant than ever, serving as a warning about artificial intelligence.
+---------
+
+# If You Love 'Shrinking,' Its Creator's Cult-Favorite Show Is the Perfect Next Binge
+
+TV Features, Cougar Town, Shrinking, Bill Lawrence, Courteney Cox
+
+Sun, 02 Aug 2026 22:46:14 GMT
+
+https://collider.com/cougar-town-shrinking-sitcom-perfect-binge/
+
+Bill Lawrence’s Cougar Town, starring Courteney Cox, strikes a unique balance in tone that is most similar to his newest sitcom, Shrinking.
+---------
+
+# The Movie Steven Spielberg Made Instead of 'Harry Potter' Is Coming to a New Streamer
+
+Movie News, Steven Spielberg, Harry Potter, A.I. Artificial Intelligence, Paramount Plus
+
+Sun, 02 Aug 2026 22:45:14 GMT
+
+https://collider.com/steven-spielberg-sci-fi-ai-artificial-intelligence-streaming-paramount-plus-august-2026/
+
+Steven Spielberg chose to make this cult classic sci-fi epic instead of Harry Potter, and now it's coming to a new streaming home. Find out more here.
+---------
+
+# 18 Months Later, Netflix's Sleeper Hit Crime Thriller Is Returning
+
+Movie News, Netflix, Sintonia, Crime, Drama
+
+Sun, 02 Aug 2026 22:30:14 GMT
+
+https://collider.com/nando-between-two-worlds-sintonia-film-netflix-august-13-release-date/
+
+Although it concluded in 2025, Netflix is bringing back Sintonia with a new movie. Here's everything you should know about the follow-up.
+---------
+
+# Jason Statham R-Rated 105-Minute Action Thriller Remains One of the Biggest Hits on Streaming Ahead of Sequel
+
+Movie News, Hot on Streaming, Jason Statham, The Beekeeper
+
+Sun, 02 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/jason-statham-beekeeper-streaming-hit-july-2026/
+
+With one 2026 release behind him and another still to come, this 2024 hit remains one of Statham's most popular movies.
+---------
+
+# A Forgotten Near-Perfect Revenge Thriller Makes 'John Wick' Seem Small
+
+Features, John Wick, Lady Snowblood, Kill Bill, Thriller
+
+Sun, 02 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/lady-snowblood-revenge-thriller-better-john-wick/
+
+Released in 1973, a classic revenge thriller that inspired Quentin Tarantino is a better version of 'John Wick' you have to see.
+---------
+
 # 10 Greatest Buddy Cop Movies Of All Time, Ranked
 
 Classic Movies, Action
@@ -5232,268 +5496,4 @@ Sat, 01 Aug 2026 15:00:13 GMT
 https://movieweb.com/fast-and-furious-quotes-about-family/
 
 Dom Toretto has never met a scene he couldn't turn into a speech about family. Here are 13 'Fast & Furious' quotes that define the franchise's soul.
----------
-
-# The Greatest Sci-Fi Thriller of the 21st Century Is on YouTube For Free
-
-Features, Ex Machina
-
-Sat, 01 Aug 2026 15:00:12 GMT
-
-https://movieweb.com/ex-machina-sci-fi-thriller-youtube-free/
-
-A memorable science-fiction thriller movie from a celebrated director is available to watch on YouTube for free.
----------
-
-# 10 Movies To Watch If You Love Back To The Future
-
-Movies, Back to the Future, Pleasantville, Bill and Ted, Timecop, The Adam Project, Flight of the Navigator, The Last Starfighter, Peggy Sue Got Married, Blast from the Past, The Goonies, Time Bandits
-
-Sat, 01 Aug 2026 14:40:11 GMT
-
-https://screenrant.com/10-movies-to-watch-if-you-love-back-to-the-future/
-
-Back to the Future is a timeless 80s masterpiece. It's a tough act to follow, but fans may enjoy these movies for their similarities to the classic.
----------
-
-# Lord Of The Rings Official Game Announcement Leaked
-
-Gaming, The Lord of the Rings, Triple-A Games
-
-Sat, 01 Aug 2026 14:35:45 GMT
-
-https://screenrant.com/lord-of-the-rings-war-in-the-north-2026-update/
-
-The Lord of the Rings is potentially back in a big way after one of the franchise's most nostalgic games gets a leaked remaster.
----------
-
-# What's Going On With Yellowstone's 1944 Prequel?
-
-Streaming TV, Yellowstone
-
-Sat, 01 Aug 2026 14:30:11 GMT
-
-https://screenrant.com/yellowstone-prequel-1944-status-delay-in-development/
-
-Fans of Taylor Sheridan's Yellowstone universe may be surprised to learn the fate of the original show's planned prequel, 1944, at Paramount.
----------
-
-# 10 Fantasy Movie Heroes Even More Likable Than Harry Potter, Ranked
-
-Movies, Harry Potter
-
-Sat, 01 Aug 2026 14:15:11 GMT
-
-https://screenrant.com/fantasy-movie-heroes-more-likable-harry-potter-ranked/
-
-Harry Potter is one of the most popular fictional characters, but there are plenty of fantasy heroes of all shapes and sizes that are more likable.
----------
-
-# After 7 Years, Mahershala Ali’s Blade Only Appeared Once In 4-Part R-Rated Series Before His MCU Exit
-
-Movies, Blade, Marvel Zombies, Marvel Cinematic Universe
-
-Sat, 01 Aug 2026 14:12:55 GMT
-
-https://screenrant.com/mahershala-ali-blade-mcu-exit-marvel-zombies-appearance/
-
-Mahershala Ali's Blade movie is dead as he officially leaves the MCU, and the character only appeared onscreen once in Marvel's R-rated series.
----------
-
-# Storage Wars: What Happened To Jarrod Schulz & Brandi Passante's Relationship
-
-Reality TV, Storage Wars
-
-Sat, 01 Aug 2026 14:00:13 GMT
-
-https://screenrant.com/storage-wars-jarrod-schulz-brandi-passante-relationship-divorce/
-
-Storage Wars Brandi Passante and Jarrod Schulz called it quits, despite having a business and children together. How did it all go down?
----------
-
-# 7 Classic Snoopy Peanuts Strips That Are Still 10/10 Perfect
-
-Comics, Peanuts
-
-Sat, 01 Aug 2026 14:00:11 GMT
-
-https://screenrant.com/perfect-classic-snoopy-peanuts-strips/
-
-The Peanuts have many classic comics that are amazing, but here are seven comic strips related to Snoopy that are genuine 10/10 masterpieces.
----------
-
-# 10 Movie Trailers That Gave Away Huge Spoilers
-
-Movies
-
-Sat, 01 Aug 2026 14:00:11 GMT
-
-https://screenrant.com/movie-trailers-that-gave-away-huge-spoilers/
-
-Trailers have a habit of giving away too much, because they're desperate to generate hype, but spoilers can ruin the experience of the movie itself.
----------
-
-# It's Official, Final Fantasy 6 Returns October 2026
-
-Gaming, Final Fantasy, Final Fantasy Resonance
-
-Sat, 01 Aug 2026 14:00:11 GMT
-
-https://screenrant.com/final-fantasy-6-resonance-official-return/
-
-Final Fantasy 6 is one of the most beloved games in the series, so it's bound to draw attention from fans any time it crops up.
----------
-
-# Netflix Just Added One Of The Greatest Thriller Shows Ever Made
-
-Streaming TV, Masked Recs
-
-Sat, 01 Aug 2026 13:47:11 GMT
-
-https://screenrant.com/netflix-hannibal-thriller-series-watch/
-
-Netflix just added Hannibal, one of the greatest thriller shows of all time, making it one of the best series to watch on the platform right now.
----------
-
-# 4 Apple TV Shows Better Than Severance
-
-TV, Apple TV, Severance, Foundation
-
-Sat, 01 Aug 2026 14:30:16 GMT
-
-https://www.cbr.com/apple-tv-series-better-than-severance-list/
-
-Apple TV has a few TV masterpieces, like Slow Horses and The Studio, that challenge fan-favorite Severance for the streamer's top spot.
----------
-
-# 10 Most Epic Anime Series of the 21st Century
-
-Anime, Fullmetal Alchemist: Brotherhood, Attack On Titan, Jujutsu Kaisen, shonen anime
-
-Sat, 01 Aug 2026 14:15:15 GMT
-
-https://www.cbr.com/most-epic-anime-series-21st-century/
-
-Epic anime transcends great fight scenes and a high episode count, becoming something so much more than what it began as before all is said and done.
----------
-
-# Spider-Man: Brand New Day is the End of an Era for Peter and MJ
-
-Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man
-
-Sat, 01 Aug 2026 14:00:15 GMT
-
-https://www.cbr.com/mcu-spider-man-end-of-mj-love-interest-era/
-
-Spider-Man: Brand New Day is finally here and it closes the door on one of the MCU's biggest chapters.
----------
-
-# Hatsune Miku's Original Design Finally Returns Ahead of Her 20th Anniversary
-
-Anime, Hatsune Miku, merchandise, toys, Good Smile Company
-
-Sat, 01 Aug 2026 14:00:15 GMT
-
-https://www.cbr.com/hatsune-miku-first-design-model-kit/
-
-Hatsune Miku has been around for nearly 20 years, and fans can celebrate this milestone with a new model kit based on the Vocaloid's first design.
----------
-
-# Disney Quietly Seals Alien: Romulus' Sequel Fate After Director Drops Out
-
-Movies, Alien: Romulus
-
-Sat, 01 Aug 2026 13:51:28 GMT
-
-https://www.cbr.com/alien-romulus-sequel-fate-revealed-fede-alvarez-exit/
-
-The Alien: Romulus sequel gets a surprising update revealing what's been stopping the film from moving forward.
----------
-
-# Obsession's Breakout Star Names Her Desired X-Men Role After Marvel Talks
-
-Movies, X-Men
-
-Sat, 01 Aug 2026 13:31:15 GMT
-
-https://www.cbr.com/inde-navarrette-preferred-marvel-x-men-role/
-
-Inde Navarrette has confirmed having talks with Marvel and reveals the X-Men character she's set her sights on.
----------
-
-# After Just 2 Seasons, HBO's 97% RT Drama Masterpiece Deserves to Be Called a Modern Classic
-
-TV, The Pitt, HBO Max
-
-Sat, 01 Aug 2026 13:31:15 GMT
-
-https://www.cbr.com/hbo-the-pitt-modern-classic-masterpiece-status/
-
-One HBO drama is a modern masterpiece that will undoubtedly go down as one of the platform's best.
----------
-
-# Spider-Man: Brand New Day Goes Back to Basics
-
-Movies, Spider-Man: Brand New Day, Spider-Man, Heroes Journey Podcast
-
-Sat, 01 Aug 2026 13:15:15 GMT
-
-https://www.cbr.com/video/spider-man-brand-new-day-goes-back-to-basics/
-
-Spider-Man: Brand New Day director Destin Daniel Cretton joins Sean O’Connell on Heroes Journey to reveal how Peter Parker’s new MCU chapter was built.
----------
-
-# 5 Greatest Action Anime Series Worth Watching Again and Again
-
-Anime, Demon Slayer: Kimetsu no Yaiba, Hunter x Hunter, Black Lagoon
-
-Sat, 01 Aug 2026 13:15:15 GMT
-
-https://www.cbr.com/best-action-anime-worth-multiple-rewatches/
-
-These action anime become even more rewarding with every rewatch, revealing new details and unforgettable moments.
----------
-
-# Jason Statham Officially Returns With His Biggest Action Movie Yet
-
-Movie News, Jason Statham, Fast & Furious Presents: Hobbs & Shaw, Action, David Leitch
-
-Sat, 01 Aug 2026 14:29:11 GMT
-
-https://collider.com/jason-statham-stole-my-bike-filming-wrap-david-leitch/
-
-Jason Statham's new meta action comedy with John Wick co-director David Leitch has scored its biggest update yet. Read on for more.
----------
-
-# 10 Most Perfect Movie Endings of the 1990s
-
-Movie, Ending, 1990s, The Truman Show, Pulp Fiction
-
-Sat, 01 Aug 2026 14:04:14 GMT
-
-https://collider.com/most-perfect-movie-endings-1990s-ranked/
-
-The Shawshank Redemption, The Lion King, and Pulp Fiction have some of the greatest, genuinely perfect movie endings of the 1990s.
----------
-
-# Chris Pine’s Answer to ‘Reacher’ Surges to #1 on Paramount+
-
-Movie News, Chris Pine, The Contractor, Paramount Plus, Reacher
-
-Sat, 01 Aug 2026 14:00:15 GMT
-
-https://collider.com/chris-pine-reacher-replacement-the-contractor-streaming-success-paramount-plus-august-2026/
-
-Chris Pine’s answer to Reacher, The Contractor, is seeing a major streaming resurgence on Paramount+. Read on for more.
----------
-
-# Anya Taylor-Joy Is the Official Queen of Streaming With 3 Concurrent Hits
-
-Movie News, Anya Taylor-Joy, The Gorge, The Super Mario Galaxy Movie, Lucky
-
-Sat, 01 Aug 2026 13:15:15 GMT
-
-https://collider.com/anya-taylor-joy-lucky-the-gorge-super-mario-galaxy-movie-streaming-success-apple-tv-august-2026/
-
-Anya Taylor-Joy is the queen of streaming, with one series and two movies currently topping overall charts. Read on for more.
 ---------
