@@ -1,3 +1,333 @@
+# Neon's Upcoming Psychological Horror Is Backrooms Meets Dead End
+
+Movies, Masked Recs
+
+Sun, 02 Aug 2026 01:00:12 GMT
+
+https://screenrant.com/it-ends-psychological-horror-movie-backrooms-dead-end/
+
+Neon's horror highlights a growing trend in the genre, reflected in movies like The Backrooms, in which people are trapped in strange circumstances.
+---------
+
+# 10 Greatest War Movie Endings Of All Time, Ranked
+
+Classic Movies, War
+
+Sun, 02 Aug 2026 01:00:12 GMT
+
+https://screenrant.com/best-war-movie-endings/
+
+War movies all lead to a dramatic moment, and this is usually a final giant battle, and these movies stuck the lending more than any other.
+---------
+
+# Fallout: Nuka-Girl Officially Releases March 2027
+
+Gaming, Fallout, Fallout 4, PC
+
+Sun, 02 Aug 2026 01:00:12 GMT
+
+https://screenrant.com/fallout-nuka-girl-rocketsuit-figure-march-2027/
+
+Fallout: Nuka-Girl is making an epic return in a brand-new release scheduled to arrive in March 2027, officially bringing the pin-up icon back.
+---------
+
+# 8 Best Swordfighters In The Lord Of The Rings
+
+TV, The Lord of the Rings
+
+Sun, 02 Aug 2026 00:45:11 GMT
+
+https://screenrant.com/lord-of-the-rings-best-sword-fighters/
+
+The Lord of the Rings franchise and world of Middle Earth has some of the most expansive fantasy lore written, with many heroes and swordfighters.
+---------
+
+# John Wick Meets Shogun In Netflix's 8-Part Action Thriller
+
+Streaming TV, Masked Recs
+
+Sun, 02 Aug 2026 00:30:11 GMT
+
+https://screenrant.com/blue-eye-samurai-john-wick-meets-shogun/
+
+Netflix's animated masterpiece Blue Eye Samurai combines the vengeful thrills of John Wick with the dazzling historical visuals of Shogun.
+---------
+
+# Marvel Completely Rewrites A Major MCU Villain Team
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sun, 02 Aug 2026 00:10:11 GMT
+
+https://screenrant.com/spiderman-brand-new-day-the-hand-change/
+
+Marvel has rewritten a prominent MCU villain team in Spider-Man: Brand New Day, completely changing the nature of their existence and purpose.
+---------
+
+# Disney's 100% RT Fantasy Series Is Harry Potter Meets Adventure Time
+
+Streaming TV, Masked Recs
+
+Sun, 02 Aug 2026 00:00:11 GMT
+
+https://screenrant.com/the-owl-house-disney-harry-potter-adventure-time/
+
+Disney's three-season fantasy series is a fun adventure that rivals some of the most popular fantasy franchises of all time and has a proper ending.
+---------
+
+# 6 Video Games To Play If You Love Blade Runner
+
+Gaming, Blade Runner
+
+Sun, 02 Aug 2026 00:00:11 GMT
+
+https://screenrant.com/5-video-games-like-blade-runner/
+
+Discover the best video games inspired by the Blade Runner franchise, offering dystopian settings, cyberpunk themes, and engaging gameplay.
+---------
+
+# Tom Holland Seemingly Hints Peter Parker's Spider-Man Replacement Is Coming
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Sat, 01 Aug 2026 23:48:12 GMT
+
+https://screenrant.com/spider-man-miles-morales-mcu-timeline-tom-holland/
+
+Following Spider-Man: Brand New Day, Tom Holland opens up about when Peter Parker's replacement is coming to the Marvel Cinematic Universe franchise.
+---------
+
+# IT: Welcome To Derry Season 2’s Most Disturbing Themes Are “The Heart Of Our Story”
+
+TV, It: Welcome to Derry
+
+Sat, 01 Aug 2026 23:46:19 GMT
+
+https://screenrant.com/it-welcome-to-derry-season-2-disturbing-themes-heart-of-story/
+
+IT: Welcome To Derry season 2 will explore one of the most disturbing events in Stephen King's iconic novel and the nightmarish era it is set in.
+---------
+
+# 5 Strongest Melee Weapons in Anime History
+
+Anime, Bleach
+
+Sun, 02 Aug 2026 00:45:15 GMT
+
+https://www.cbr.com/strongest-melee-weapons-in-anime-history/
+
+Anime features a range of unstoppable melee weapons, and the strongest of them all come from series like Bleach and Seven Deadly Sins.
+---------
+
+# Doctor Doom Just Became Marvel’s New Iron Man Ahead of Avengers: Doomsday
+
+Comics, Doctor Doom, Marvel Comics, Avengers
+
+Sun, 02 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/marvel-doomquest-3-doctor-doom-iron-man-setup/
+
+Doom Mania is just getting started, and in the latest series, the tyrant is determined to rewrite history even if he has to resort to Stark-tactics.
+---------
+
+# 5 Greatest High Concept Sci-Fi Anime of All Time
+
+Anime, Neon Genesis Evangelion, Steins;Gate
+
+Sun, 02 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/best-high-concept-sci-fi-anime-of-all-time/
+
+These sci-fi anime captivate audiences with bold concepts that challenge the imagination as much as the characters.
+---------
+
+# 10 Long N64 Games That Take Forever to Complete
+
+Games, Nintendo 64, Paper Mario: The Thousand-Year Door, The Legend of Zelda: Majora's Mask, Nintendo
+
+Sun, 02 Aug 2026 00:15:15 GMT
+
+https://www.cbr.com/n64-games-that-take-forever-to-complete/
+
+The Nintendo 64 not only led to advanced graphics, but even longer play times to achieve full game completion.
+---------
+
+# The Big Bang Theory's Sci-Fi Spinoff Is 1 of the World's Most-Watched Shows
+
+TV, The Big Bang Theory, Stuart Fails to Save the Universe, HBO Max
+
+Sun, 02 Aug 2026 00:00:14 GMT
+
+https://www.cbr.com/stuart-fails-to-save-the-universe-sci-fi-hbo-max-global-success-august-2026/
+
+The sci-fi spinoff is officially one of the most-watched shows in the world over a week after premiering.
+---------
+
+# 5 Strongest One Piece Characters Who Don’t Need Devil Fruits
+
+Anime, One Piece
+
+Sun, 02 Aug 2026 00:00:14 GMT
+
+https://www.cbr.com/strongest-one-piece-characters-dont-need-devil-fruits/
+
+These One Piece characters prove that above everything, skill trumps Devil Fruit in a fight.
+---------
+
+# 5 Greatest High Concept Sci-Fi Movies of All Time, Ranked
+
+Movies, Sci-Fi, 2001: A Space Odyssey, Interstellar
+
+Sun, 02 Aug 2026 00:00:14 GMT
+
+https://www.cbr.com/greatest-high-concept-sci-fi-movies-ranked-list/
+
+From 2001: A Space Odyssey to Arrival, these high concept sci-fi movies have made their mark on pop culture and cinema as a whole.
+---------
+
+# Persona Finally Reunites Joker, Crow and Violet With Matching New Designs
+
+Anime, Persona, merchandise, kotobukiya, Persona 5 Royal
+
+Sun, 02 Aug 2026 00:00:14 GMT
+
+https://www.cbr.com/persona-5-royal-violet-kotobukiya-reveal/
+
+Persona 5 Royal's Violet elegantly storms the castle in one of the newest and most beautiful collectible figurines for Kotobukiya's Oshi Works series.
+---------
+
+# 5 Horror Miniseries Worth Your Entire Weekend
+
+TV, Horror, Midnight Mass, Something Very Bad Is Going to Happen, The Outsider
+
+Sun, 02 Aug 2026 00:00:14 GMT
+
+https://www.cbr.com/horror-miniseries-to-binge-list/
+
+Anyone seeking a terrifying binge this weekend should check out these chilling horror miniseries available on streaming.
+---------
+
+# 7 Forgotten 2000s Anime That Are Perfect From Start to Finish
+
+Anime, Rozen Maiden, Haibane Renmei
+
+Sat, 01 Aug 2026 23:45:14 GMT
+
+https://www.cbr.com/forgotten-2000s-anime-perfect-from-start-to-finish/
+
+The 2000s were a tumultuous period of change for anime, but hidden gems like Noir and Rozen Maiden remain timeless masterpieces.
+---------
+
+# '9-1-1' Officially Confirms the End of an Era
+
+TV Features, 9-1-1, ABC, Procedural, Oliver Stark
+
+Sun, 02 Aug 2026 01:01:14 GMT
+
+https://collider.com/9-1-1-officially-confirms-the-end-of-an-era/
+
+ABC confirms the return of 9-1-1 for Season 10, marking a new chapter for the 118 crew as they navigate post-Bobby dynamics and new roles.
+---------
+
+# 10 Greatest Western Shows Based on Books
+
+TV, Western, Books, Little House on the Prairie, Dark Winds
+
+Sun, 02 Aug 2026 00:34:14 GMT
+
+https://collider.com/best-western-shows-based-on-books/
+
+From the classic series Little House on the Prairie to the modern thriller Dark Winds, these Western TV shows draw its inspiration from books.
+---------
+
+# Taylor Sheridan's War Thriller Officially Reveals Season 4 Status
+
+TV News, Lioness, Taylor Sheridan, Zoe Saldana, Paramount Plus
+
+Sun, 02 Aug 2026 00:00:14 GMT
+
+https://collider.com/taylor-sheridan-war-thriller-lioness-season-4-update/
+
+Returning stars of Taylor Sheridan's war thriller Lioness have recently expressed confidence in a potential Season 4 ahead of Season 3.
+---------
+
+# Forget ‘Dutton Ranch,’ Taylor Sheridan’s Most Thrilling Action Series Is Finally Returning This Week
+
+TV Features, Lioness, Zoe Saldana, Nicole Kidman, Michael Kelly
+
+Sat, 01 Aug 2026 23:52:14 GMT
+
+https://collider.com/lioness-season-3-taylor-sheridan-action-thriller-return/
+
+Taylor Sheridan's Lioness returns with Season 3 this weekend, and the stakes are only about to get higher.
+---------
+
+# 17 Years Later, Peter Jackson's 135-Minute Supernatural Crime Thriller Returns to Streaming
+
+Movie News, Peter Jackson, The Lovely Bones, Paramount Plus, Mark Wahlberg
+
+Sat, 01 Aug 2026 23:45:14 GMT
+
+https://collider.com/peter-jackson-the-lovely-bones-streaming-paramount-plus-august-2026/
+
+Ryan Gosling was replaced by Mark Wahlberg in this Peter Jackson mystery film coming to streaming soon. Here's everything you should know.
+---------
+
+# 'The Rookie' Season 9 Officially Confirms the Biggest Chenford Change To Date
+
+TV Features, The Rookie, ABC, Eric Winter, Melissa O'Neil
+
+Sat, 01 Aug 2026 23:36:14 GMT
+
+https://collider.com/the-rookie-season-9-chenford-tim-lucy-changes/
+
+With The Rookie entering its ninth season, the show is going to make a major change in the premiere compared to previous seasons.
+---------
+
+# 12 Years Later, Arnold Schwarzenegger's Agatha Christie Crime Thriller Is Free to Stream
+
+Movie News, Sabotage, Arnold Schwarzenegger, Agatha Christie, David Ayer
+
+Sat, 01 Aug 2026 23:30:14 GMT
+
+https://collider.com/arnold-schwarzenegger-agatha-christie-sabotage-streaming-pluto-tv-august-2026/
+
+The most unexpected Agatha Christie-inspired movie of recent times, Arnold Schwarzenegger's Sabotage, is coming to free streaming.
+---------
+
+# 5 'Spider-Man: Brand New Day' Details That Set Up Marvel's Future
+
+Features, Spider-Man: Brand New Day, MCU's Movie Order (2008 - 2019) - The Infinity Saga (Iron Man - Spider-Man: Far from Home), X-Men
+
+Sun, 02 Aug 2026 01:00:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-mcu-future-details/
+
+'Spider-Man: Brand New Day' sets up plenty of storylines to carry the MCU past the Multiverse Saga.
+---------
+
+# M. Night Shyamalan's 4-Part Psychological Thriller Is Essential Viewing
+
+Features, Servant, M. Night Shyamalan
+
+Sun, 02 Aug 2026 00:30:12 GMT
+
+https://movieweb.com/m-night-shyamalan-servant-recommendation/
+
+M. Night Shyamalan has built a reputation for making memorable psychological thriller movies, but he made an incredible show too that's worth a watch.
+---------
+
+# 'Sopranos' Star Vincent Pastore Dies at 80
+
+TV News, The Sopranos
+
+Sat, 01 Aug 2026 23:35:24 GMT
+
+https://movieweb.com/vincent-pastore-sopranos-dead-80/
+
+Vincent Pastore, known for his role as Salvatore Bonpensiero on 'The Sopranos,' has passed away at 80.
+---------
+
 # 10 Greatest Thriller Movies That Unfold Over A Single Night, Ranked
 
 Classic Movies, Thriller
@@ -5166,334 +5496,4 @@ Fri, 31 Jul 2026 17:57:54 GMT
 https://www.cbr.com/x-men-97-carolina-ravassa-polaris-future-ideas/
 
 The X-Men '97 actress dreams of a future that Polaris is more than worthy of.
----------
-
-# 10 Coolest Anime Characters of the Last 10 Years, Ranked
-
-Anime, Jujutsu Kaisen, Frieren: Beyond Journey's End, Witch Hat Atelier
-
-Fri, 31 Jul 2026 17:50:15 GMT
-
-https://www.cbr.com/coolest-new-gen-anime-characters-2020s/
-
-New-Gen anime characters like Satoru Gojo and Jolyne Kujoh have redefined "Cool" in anime.
----------
-
-# Breath of the Wild Meets Pirates of the Caribbean in New Game You Can Play for Free Right Now
-
-Games, pirates, The Legend of Zelda, Pirates of the Caribbean, Steam
-
-Fri, 31 Jul 2026 17:40:15 GMT
-
-https://www.cbr.com/breath-of-the-wild-meets-pirates-of-the-caribbean-corsair-cove-free/
-
-Pirates of the Carribbean meets Breath of the Wild in a massive new pirate game with a free demo on Steam.
----------
-
-# Netflix's Ginny & Georgia Needs to Break Its Biggest Formula in Season 4
-
-TV, Ginny & Georgia, Netflix
-
-Fri, 31 Jul 2026 17:30:15 GMT
-
-https://www.cbr.com/netflix-ginny-and-georgia-renewal-future/
-
-With Ginny & Georgia's future uncertain, Season 4 needs to finally answer these long-standing questions to officially close its biggest mystery.
----------
-
-# Heartstopper Forever Had to Make Fans Cry | Collider BTS
-
-TV, Heartstopper Forever
-
-Fri, 31 Jul 2026 18:15:15 GMT
-
-https://collider.com/video/heartstopper-forever-had-to-make-fans-cry-collider-bts/
-
-Heartstopper Forever: Editing the Emotional Finale brings editor Todd Downing behind the scenes of Netflix's highly anticipated conclusion to Nick and Charlie's story.
----------
-
-# Mel Gibson’s Most Divisive Movie Officially Returns With New 2026 Release
-
-Movie News, Mel Gibson, The Passion of the Christ, The Resurrection of the Christ Part 1, Box Office
-
-Fri, 31 Jul 2026 18:15:15 GMT
-
-https://collider.com/mel-gibson-passion-of-the-christ-theater-return-tickets-on-sale-september-2026/
-
-Mel Gibson's most controversial movie, The Passion of the Christ, is officially returning to theaters this year ahead of the 2-part sequel.
----------
-
-# Zendaya Officially Crowned Queen of the Box Office With ‘The Odyssey’s Latest Milestone
-
-Movie News, The Odyssey, Dune: Part Two, Christopher Nolan, Zendaya
-
-Fri, 31 Jul 2026 17:50:50 GMT
-
-https://collider.com/christopher-nolan-the-odyssey-overtakes-dune-part-2-box-office-714-million/
-
-Christopher Nolan's The Odyssey has overtaken one of the greatest sci-fi movies of the decade at the worldwide box office in just two weeks.
----------
-
-# Hulu’s New Twisted 8-Part Crime Drama Is Quietly Becoming One of 2026’s Best
-
-TV Features, Furious, Emmy Rossum, Scoot McNairy, Hulu
-
-Fri, 31 Jul 2026 17:28:15 GMT
-
-https://collider.com/hulu-best-crime-drama-2026-furious-series/
-
-Furious is the next great crime series about a damaged rookie FBI agent who tries to catch a female serial killer against all odds.
----------
-
-# Long-Awaited DCU Superhero Series No Longer Moving Forward After 3 Years
-
-TV News, DCU
-
-Fri, 31 Jul 2026 18:30:31 GMT
-
-https://movieweb.com/dcu-hbo-booster-gold-not-moving-forward/
-
-David Jenkins confirmed his in-development Booster Gold series has been canceled.
----------
-
-# Major 'Game of Thrones' Mysteries Solved With First Lore Update in 4 Years
-
-Features, Game Of Thrones
-
-Fri, 31 Jul 2026 18:00:12 GMT
-
-https://movieweb.com/george-rr-martin-mad-king-game-of-thrones-lore-update/
-
-A new 'Game of Thrones' adaptation is satisfying readers' desires for answers with some major reveals.
----------
-
-# Frank Reynolds' 10 Funniest Quotes from It's Always Sunny in Philadelphia
-
-TV Lists, It's Always Sunny in Philadelphia, Danny DeVito
-
-Fri, 31 Jul 2026 18:00:12 GMT
-
-https://movieweb.com/its-always-sunny-in-philadelphia-frank-reynolds-funniest-quotes/
-
-He may have been a late addition, but fans can't envision Sunny without Frank Reynolds. Let's take a look at his most defining moments in the show.
----------
-
-# ABC's High Potential Replacement Series Continues Streaming Domination Ahead Of Return
-
-TV, Masked Recs
-
-Fri, 31 Jul 2026 17:24:23 GMT
-
-https://screenrant.com/rj-decker-show-high-potential-replacement-streaming-success-july-2026/
-
-ABC's High Potential replacement is building momentum before its return, climbing the streaming charts just weeks ahead of its season 2 premiere.
----------
-
-# Mortal Shell 2 Beta Free For Millions More After Massive Steam Success
-
-Gaming, Mortal Shell, Triple-A Games, PC
-
-Fri, 31 Jul 2026 17:22:44 GMT
-
-https://screenrant.com/mortal-shell-2-beta-ps5-xbox-free/
-
-Mortal Shell 2 made a huge splash with its free beta on PC, and now the popular new soulslike is letting console players in on the action.
----------
-
-# Spider-Man: Brand New Day Soundtrack Guide - Every Song & When They Play
-
-Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
-
-Fri, 31 Jul 2026 17:15:11 GMT
-
-https://screenrant.com/spiderman-brand-new-day-movie-soundtrack-song-guide/
-
-Spider-Man: Brand New Day includes several songs at key moments in the movie that all add up to a great soundtrack. Here's when each song plays.
----------
-
-# Olivia Wilde's Hit New 90-Minute Thriller Sets Digital Release Date
-
-Movies, I Want Your Sex
-
-Fri, 31 Jul 2026 17:10:59 GMT
-
-https://screenrant.com/i-want-your-sex-2026-movie-digital-release-date/
-
-Olivia Wilde's latest thriller, 'I Want Your Sex,' is set to release on digital platforms just weeks after its theatrical debut.
----------
-
-# Tom Holland's Spider-Man: Brand New Day Rotten Tomatoes Score Gets Official Audience Verdict
-
-Movies, Spider-Man: Brand New Day, Spider-Man, Tom Holland, Marvel Cinematic Universe
-
-Fri, 31 Jul 2026 17:04:53 GMT
-
-https://screenrant.com/spider-man-brand-new-day-rotten-tomatoes-audience-score-mcu/
-
-As Spider-Man: Brand New Day is playing in theaters, the audience score for Tom Holland's new MCU film has officially debuted on Rotten Tomatoes.
----------
-
-# Taylor Sheridan's New Crime Thriller Series Frisco King Officially Wraps Filming Ahead Of Franchise Return
-
-TV, Frisco King, Frisco King - Season 1, Tulsa King
-
-Fri, 31 Jul 2026 17:03:21 GMT
-
-https://screenrant.com/taylor-sheridan-frisco-king-season-1-filming-wrap/
-
-Taylor Sheridan's new crime thriller series, Frisco King (a spinoff of Tulsa King), officially wraps filming ahead of the franchise's return.
----------
-
-# The Bear's Fak Family Tree Explained
-
-Streaming TV, The Bear
-
-Fri, 31 Jul 2026 17:00:12 GMT
-
-https://screenrant.com/the-bear-fak-family-tree-explained/
-
-Throughout The Bear, a new member of the Fak family tree seemed to join Neil Fak onscreen every few episodes, making for a crowded field of Faks.
----------
-
-# 5 Games That Make Dark Souls Look Easy
-
-Gaming, Dark Souls
-
-Fri, 31 Jul 2026 17:00:11 GMT
-
-https://screenrant.com/games-that-make-dark-souls-look-easy/
-
-Dark Souls used to be a pinnacle of video game difficulty 15 years ago, but many games that have come out since make it look easy in comparison.
----------
-
-# Landmark Latinx Novel Cemetery Boys Releases a Sequel (Exclusive)
-
-Books, Masked Recs
-
-Fri, 31 Jul 2026 17:00:11 GMT
-
-https://screenrant.com/cemetery-boys-espiritu-aiden-thomas-exclusive/
-
-An innovative sequel.
----------
-
-# 10 Best New Movies Coming To HBO Max In August 2026
-
-Movies, HBO Max, Recommendation
-
-Fri, 31 Jul 2026 16:55:11 GMT
-
-https://screenrant.com/hbo-max-best-new-movies-august-2026/
-
-It's a new month and that means a ton of new movies are coming to HBO Max in the coming weeks. These are the ones you don't want to miss this August.
----------
-
-# Tom Selleck Breaks Down Blue Bloods' 'Frustrating' Cancellation After Boston Blue Season 2 Release Date
-
-TV, Blue Bloods, Boston Blue, CBS
-
-Fri, 31 Jul 2026 17:23:07 GMT
-
-https://www.cbr.com/tom-selleck-blue-blood-frustrating-cancellation/
-
-On the heels of CBS announcing a premiere date for Boston Blue Season 2, Tom Selleck is opening up about Blue Bloods' cancellation.
----------
-
-# Hello Kitty Gets a Giant Robot Makeover With New Mecha Transformation
-
-Anime, sanrio, Hello Kitty, merchandise
-
-Fri, 31 Jul 2026 17:20:15 GMT
-
-https://www.cbr.com/sanrio-hello-kitty-jobraver-transforming-robot-truck/
-
-Hello Kitty gets a mecha makeover with Takara Tomy's new Jobraver transforming robot toy and anime crossover.
----------
-
-# 5 Modern Anime Series Already Considered Masterpieces
-
-Anime, Frieren: Beyond Journey's End, The Apothecary Diaries
-
-Fri, 31 Jul 2026 17:15:15 GMT
-
-https://www.cbr.com/modern-anime-already-considered-masterpieces/
-
-The modern era has produced anime that are already being discussed alongside the medium's greatest classics.
----------
-
-# Starz's New 8-Episode Crime Drama Debuts to Perfect Rotten Tomatoes Score
-
-TV, Fightland
-
-Fri, 31 Jul 2026 17:14:49 GMT
-
-https://www.cbr.com/starz-fightland-season-1-rotten-tomatoes-score/
-
-It's a great time for crime dramas.
----------
-
-# Dexter: Resurrection Season 2 Confirms New Michael C. Hall Replacement
-
-TV, Dexter, Dexter: Resurrection
-
-Fri, 31 Jul 2026 17:02:27 GMT
-
-https://www.cbr.com/dexter-resurrection-season-2-confirms-new-michael-c-hall-replacement/
-
-Dexter: Resurrection Season 2 sets up Michael C. Hall's successor.
----------
-
-# Mahershala Ali Officially Seals Blade's Fate After 7 Years
-
-Movies, Marvel, Marvel Comics, MCU, Blade, Blade II, Blade Trinity
-
-Fri, 31 Jul 2026 16:58:13 GMT
-
-https://www.cbr.com/mahershala-ali-officially-seals-fate-for-marvel-blade/
-
-The would-be Blade actor had a whole lot to say about Marvel's comments.
----------
-
-# The Dink Stars Play We're Not Really Strangers | Jake Johnson & Mary Steenburgen
-
-Movies, The Dink
-
-Fri, 31 Jul 2026 16:24:15 GMT
-
-https://www.cbr.com/video/the-dink-stars-play-we-re-not-really-strangers-jake-johnson-mary-steenburgen/
-
-Jake Johnson and Mary Steenburgen understand the urge to roast and hype up your friends within the same sentence. In The Dink edition of We're Not Really Strangers, we get to the heart of the matter, with the cast.
----------
-
-# 10 Best-Written Anime Anti-Heroes, Ranked
-
-Anime, Attack on Titan, Death Note, Dragon Ball, Naruto
-
-Fri, 31 Jul 2026 16:15:29 GMT
-
-https://www.cbr.com/best-written-anime-anti-heroes-ranked/
-
-Anti-heroes like Vegeta and Sasuke are some of the most popular characters in anime history, and that's in part thanks to their fantastic writing.
----------
-
-# Marvel's X-Men Movie Officially Casts Emma Frost
-
-Movies, X-Men, Marvel Cinematic Universe, superheroes
-
-Fri, 31 Jul 2026 16:11:35 GMT
-
-https://www.cbr.com/x-men-movie-samara-weaving-emma-frost-mcu/
-
-The MCU just added a major mutant antihero in the X-Men movie's first official casting move.
----------
-
-# In Just 1 Day, Anya Taylor-Joy's $1B Adventure Sequel Is Already the Most-Watched Film on Streaming
-
-Movies, The Super Mario Galaxy Movie
-
-Fri, 31 Jul 2026 16:00:28 GMT
-
-https://www.cbr.com/anya-taylor-joy-super-mario-galaxy-peacock-success-july-2026/
-
-It didn't take long for Anya Taylor-Joy's box office smash hit sequel to topple the horror breakout Obsession on the streaming charts.
 ---------
