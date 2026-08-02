@@ -1,3 +1,278 @@
+# Steam Gamers Have 24 Hours To Download 4 Games Completely Free
+
+Gaming, Steam, Triple-A Games
+
+Sun, 02 Aug 2026 04:45:11 GMT
+
+https://screenrant.com/steam-4-games-free-24-hours-august-2026/
+
+If you act fast, you can download these Steam games for free, but you only have 24 hours to get on the promotion before it goes away.
+---------
+
+# 6 Best Free Games Like Minecraft
+
+Gaming, Minecraft, PC
+
+Sun, 02 Aug 2026 04:30:12 GMT
+
+https://screenrant.com/best-free-games-like-minecraft/
+
+Those looking for something just like Minecraft but don't want to break the bank should check out these free alternatives.
+---------
+
+# Dark Souls Finally Returns In Just One Month
+
+Gaming, Dark Souls
+
+Sun, 02 Aug 2026 04:30:12 GMT
+
+https://screenrant.com/dark-souls-redemption-september-2026-psa/
+
+The Dark Souls manga series, set in the universe of the popular video game, continues with the release of Dark Souls: Redemption, Vol. 3.
+---------
+
+# Red Dead Redemption 2 Free Download Officially Yours For Just 24 Hours
+
+Gaming, Red Dead Redemption, Red Dead Online, Red Dead Redemption 2
+
+Sun, 02 Aug 2026 04:15:11 GMT
+
+https://screenrant.com/red-dead-redemption-2-free-download-august-2026/
+
+Red Dead Redemption 2 is still going strong thanks to the game's multiplayer modes, and the latest event is already underway.
+---------
+
+# Coyote Vs. Acme Runtime Officially Sets Record In Looney Tunes Franchise
+
+Movies, Coyote Vs. Acme, Looney Tunes
+
+Sun, 02 Aug 2026 04:05:53 GMT
+
+https://screenrant.com/coyote-vs-acme-runtime-looney-tunes-record/
+
+After being scrapped by Warner Bros. Coyote vs. Acme is weeks away from finally coming out, and it's already set a Looney Tunes franchise record.
+---------
+
+# Mistborn And Stormlight Officially Set For Massive New Crossover
+
+Gaming, Mistborn
+
+Sun, 02 Aug 2026 04:00:14 GMT
+
+https://screenrant.com/stormlight-mistborn-major-crossover-announced/
+
+Discover the secrets of Brandon Sanderson's Mistborn and Stormlight worlds in the new Cosmere RPG.
+---------
+
+# Stephen King's Unmade Adaptation Of 45-Year-Old Horror Story Gets Hopeful Update From Director
+
+Movies, The Jaunt, Stephen King, Andy Muschietti
+
+Sun, 02 Aug 2026 03:59:17 GMT
+
+https://screenrant.com/stephen-king-the-jaunt-adaptation-hopes-andy-muschietti/
+
+Following two unmade attempts to adapt Stephen King's 45-year-old horror story, one filmmaker is keeping the hopes alive with a response.
+---------
+
+# 63 Years Later, Marvel Gives A Founding X-Men Hero Horrific New Powers
+
+Marvel Comics, X-Men
+
+Sun, 02 Aug 2026 03:45:11 GMT
+
+https://screenrant.com/iceman-vampire-powers-founding-xmen-hero/
+
+Marvel's new horror universe has some wild character redesigns in store, and none might be more bold than this Omega-level mutant's powers.
+---------
+
+# 8 Best Sci-Fi Space Opera Books You've Never Heard Of
+
+Books, Sci-Fi
+
+Sun, 02 Aug 2026 03:45:01 GMT
+
+https://screenrant.com/best-space-opera-sci-fi-unknown/
+
+Space Operas are a wildly popular sci-fi subgenre, and these eight obscure and underrated books are ones that you've probably never heard of.
+---------
+
+# DC’s 2 Greatest Lovers Are Finally Reuniting With The Powerful Reunion Fans Have Waited For
+
+DC Comics, DC, Harley Quinn, Batman
+
+Sun, 02 Aug 2026 03:34:44 GMT
+
+https://screenrant.com/dc-harley-quinn-poison-ivy-greatest-lovers-reuniting/
+
+DC is teasing that its two greatest lovers will be able to rekindle their romance in the conclusion to its upcoming 10-week-long crossover event.
+---------
+
+# 10 Most Powerful Transformers of All Time, Ranked
+
+Anime, Transformers
+
+Sun, 02 Aug 2026 03:45:15 GMT
+
+https://www.cbr.com/most-powerful-transformers-of-all-time-ranked/
+
+The strongest Transformers ever rank among the most powerful robots in fiction.
+---------
+
+# A Fan-Favorite X-Men Hero Could Be Marvel’s Biggest Star
+
+Comics, X-Men, magik, New Mutants
+
+Sun, 02 Aug 2026 03:30:15 GMT
+
+https://www.cbr.com/x-men-magik-next-big-star/
+
+Second chances don't come often in Hollywood, but if the rumors are true, Anya Taylor-Joy may be picking up the sword once again and making Magik.
+---------
+
+# JoJo's Bizarre Adventure Producer Confirms Steel Ball Run's Long Wait Is on Purpose
+
+Anime, Jojo's Bizarre Adventure, JoJo's Bizarre Adventure
+
+Sun, 02 Aug 2026 03:30:15 GMT
+
+https://www.cbr.com/jojos-bizarre-adventure-steel-ball-run-release-schedule-producer-explain/
+
+JoJo's Bizarre Adventure anime producer Noriko Dohi breaks down the "incredibly difficult" process of bringing Steel Run to life through animation.
+---------
+
+# 6 Rare TV Detectives Better Than Sherlock Holmes
+
+TV, Crime
+
+Sun, 02 Aug 2026 03:30:15 GMT
+
+https://www.cbr.com/tv-detectives-better-sherlock-holmes-list/
+
+Some TV detectives surpass Sherlock Holmes by using intuition, observation, and unique methods to solve crimes in exciting and surprising ways.
+---------
+
+# 4 PS2 RPGs That Still Haven't Been Topped
+
+Games, Final Fantasy, Kingdom Hearts, RPG, PlayStation 2
+
+Sun, 02 Aug 2026 03:15:15 GMT
+
+https://www.cbr.com/best-unmatched-ps2-rpgs/
+
+Role-playing games have been around for a long time, and some of the best are trapped on old consoles, like the PlayStation 2.
+---------
+
+# Beastmaster Brings Pokémon Into Final Fantasy 14
+
+Games, Pokemon, Final Fantasy, final fantasy xiv
+
+Sun, 02 Aug 2026 02:45:14 GMT
+
+https://www.cbr.com/beastmaster-pokemon-final-fantasy-14/
+
+Final Fantasy 14 is adding the Beastmaster job in Patch 7.56, and its gameplay is the closest thing to Pokémon that Eorzea has ever seen.
+---------
+
+# Netflix's The Debt Collector Shows John Wick How It's Done
+
+Movies, Netflix, John Wick, Action
+
+Sun, 02 Aug 2026 02:40:15 GMT
+
+https://www.cbr.com/netflix-the-debt-collector-better-john-wick-thriller/
+
+Netflix's latest action-packed hit tackles many of the same themes as Keanu Reeves' beloved film franchise.
+---------
+
+# 4 Masterpiece Supernatural Anime Better Than Demon Slayer
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Jujutsu Kaisen, Mob Psycho 100
+
+Sun, 02 Aug 2026 02:30:15 GMT
+
+https://www.cbr.com/masterpiece-supernatural-anime-better-than-demon-slayer/
+
+Demon Slayer has made waves as a top-tier supernatural action anime, yet titles like Jujutsu Kaisen and My Hero Academia reach even greater heights.
+---------
+
+# 5 Masterpiece Fantasy Movies Better Than The Lord of the Rings
+
+Movies, The Lord of the Rings, Fantasy, The Princess Bride
+
+Sun, 02 Aug 2026 02:30:15 GMT
+
+https://www.cbr.com/best-fantasy-movies-better-than-the-lord-of-the-rings-list/
+
+The Lord of the Rings is a modern fantasy classic, but many other movies in the genre could easily take its crown.
+---------
+
+# HBO's Most Underrated Crime Drama Finds a New Audience 29 Years Later
+
+TV, Oz
+
+Sun, 02 Aug 2026 02:00:24 GMT
+
+https://www.cbr.com/oz-prison-drama-hbo-max-success-august-2026/
+
+The underappreciated series that set the stage for The Sopranos and The Wire is finding a new audience after almost three decades.
+---------
+
+# Forget ‘Dungeons & Dragons,’ Netflix’s Best High Fantasy Series Is a Perfect Weekend Binge
+
+TV Features, Dungeons and Dragons: Honor among Thieves, Delicious in Dungeon, Netflix, Anime
+
+Sun, 02 Aug 2026 03:44:14 GMT
+
+https://collider.com/netflix-delicious-in-dungeon-perfect-weekend-binge/
+
+Netflix’s Delicious in Dungeon is a funny, action-packed fantasy anime with inventive worldbuilding, memorable characters, and monster meals.
+---------
+
+# VisionQuest Needs To Fix the MCU’s Biggest Loose End Ahead of ‘Avengers: Doomsday’
+
+TV Features, VisionQuest, WandaVision, Disney Plus, Avengers: Doomsday
+
+Sun, 02 Aug 2026 03:07:14 GMT
+
+https://collider.com/visionquest-avengers-doomsday-scarlet-witch-death/
+
+When VisionQuest makes its debut this October, it should finally address a question that's been haunting MCU fans.
+---------
+
+# 7 Best Sci-Fi Series of 2026 (So Far), Ranked
+
+TV, Sci-Fi, The Boroughs, Paradise, Fallout
+
+Sun, 02 Aug 2026 02:05:15 GMT
+
+https://collider.com/best-sci-fi-shows-2026-ranked/
+
+Paradise, Star City, The Boroughs, Fallout, For All Mankind, and more make up our list of the best sci-fi shows of 2026 so far.
+---------
+
+# Tom Holland Knows When We'll See a Live-Action Miles Morales in the MCU
+
+Movie News, Tom Holland, Spider-Man
+
+Sun, 02 Aug 2026 03:46:07 GMT
+
+https://movieweb.com/tom-holland-live-action-miles-morales-mcu/
+
+MCU star Tom Holland has an idea of when Miles Morales will finally make his live-action debut in a Spider-Man movie.
+---------
+
+# 6 Sci-Fi TV Masterpieces Everyone Has To Try At Least Once
+
+TV Lists, Sci-Fi
+
+Sun, 02 Aug 2026 02:00:22 GMT
+
+https://movieweb.com/sci-fi-tv-masterpieces-everyone-has-to-try/
+
+From UFO mysteries to classic anthologies and more, no one should miss these excellent sci-fi TV series.
+---------
+
 # Neon's Upcoming Psychological Horror Is Backrooms Meets Dead End
 
 Movies, Masked Recs
@@ -5221,279 +5496,4 @@ Fri, 31 Jul 2026 19:26:14 GMT
 https://collider.com/tom-holland-uncharted-streaming-success-prime-video-july-2026/
 
 As Tom Holland promotes his latest Spider-Man installment, his video game adaptation Uncharted sees a resurgence on streaming charts.
----------
-
-# Steven Spielberg’s New Sci-Fi Hit Officially Overtakes the 2026 Horror Movie He “Loved”
-
-Movie News, Disclosure Day, Obsession, Sci-Fi, Steven Spielberg
-
-Fri, 31 Jul 2026 19:15:14 GMT
-
-https://collider.com/steven-spielberg-disclosure-day-streaming-success-prime-video-july-2026/
-
-Steven Spielberg's acclaimed sci-fi movie Disclosure Day has officially soared past Obsession on the streaming charts.
----------
-
-# Netflix Officially Finds Its Next Perfect Thriller Adaptation After Its $2.2B Film Franchise Ended
-
-TV Features, Robert Langdon, Carlton Cuse, Morgan Spector, Netflix
-
-Fri, 31 Jul 2026 19:14:15 GMT
-
-https://collider.com/secret-of-secrets-netflix-dan-brown-adaptation-robert-langdon-franchise/
-
-Netflix has announced a new series in the Robert Langdon franchise, The Secret of Secrets, 10 years after the film trilogy ended.
----------
-
-# The 12 Best Video Games of the 2010s, Ranked
-
-TV, Video Game, Best of the 2010s, Dark Souls, God of War
-
-Fri, 31 Jul 2026 19:08:14 GMT
-
-https://collider.com/best-2010s-video-games-ranked/
-
-Explore the top video games that defined the 2010s, showcasing innovation, creativity, and impact across genres, from Dark Souls to Minecraft.
----------
-
-# The Best '80s Supernatural Thriller Reboot Plans Expand to 2 New Movies
-
-Movie News, A Nightmare on Elm Street, Freddy Krueger
-
-Fri, 31 Jul 2026 20:03:29 GMT
-
-https://movieweb.com/a-nightmare-on-elm-street-reboot-two-movies-freddy-krueger/
-
-Both Paramount and Warner Bros. are reportedly pursuing their own 'A Nightmare on Elm Street' reboots.
----------
-
-# 'Spider-Man: Brand New Day' Ending, Explained – Do MJ & Ned Remember Peter?
-
-Features, Spider-Man: Brand New Day, Marvel Cinematic Universe
-
-Fri, 31 Jul 2026 20:00:14 GMT
-
-https://movieweb.com/spider-man-brand-new-day-ending-explained/
-
-Even though Tom Holland's fourth Spider-Man movie has a satisfying ending, certain things are left ambiguous. Read on for more.
----------
-
-# This Essential 91-Minute Hard Sci-Fi Thriller Just Landed a New Streaming Home
-
-Movie News, Gravity, Coming/Leaving Streaming
-
-Fri, 31 Jul 2026 20:00:14 GMT
-
-https://movieweb.com/gravity-streaming-paramount-plus-august-2026/
-
-When it comes to sci-fi feeling like a desolate and hostile realm, it doesn't really get any better than this movie.
----------
-
-# Star of the Year's Biggest Thriller Eyeing Iconic 'X-Men' Role in MCU Reboot
-
-Movie News, Obsession, X-Men
-
-Fri, 31 Jul 2026 19:30:24 GMT
-
-https://movieweb.com/inde-navarrette-marvel-x-men-reboot-rogue-rumors/
-
-Inde Navarrette's latest comments are reigniting fan theories that she could be in the mix for Marvel's X-Men reboot.
----------
-
-# Sam Raimi Joins Forces With Stephen King in New Supernatural Thriller Adaptation
-
-Movie News, Sam Raimi, Stephen King
-
-Fri, 31 Jul 2026 19:07:08 GMT
-
-https://movieweb.com/sam-raimi-stephen-king-desperation-adaptation/
-
-'Evil Dead' director Sam Raimi is producing an adaptation of one of Stephen King's novels.
----------
-
-# New 97-Minute Horror Reimagining Is Officially a Smash Hit on Streaming
-
-Movie News, Faces of Death, Horror, Hot on Streaming
-
-Fri, 31 Jul 2026 19:00:12 GMT
-
-https://movieweb.com/faces-of-death-horror-streaming-hit-amc-shudder-july-2026/
-
-An updated version of a 1978 horror cult classic has become a streaming smash after failing miserably at the box office.
----------
-
-# The 8 Best Martial Arts Sci-Fi Movies, Ranked
-
-Movie Lists, Martial Arts, Action, Sci-Fi, Science Fiction
-
-Fri, 31 Jul 2026 19:00:12 GMT
-
-https://movieweb.com/martial-arts-sci-fi-movies/
-
-From computer simulations to enhanced fighters, these movies prove sci-fi thrills and martial arts action make for an inspired mash-up.
----------
-
-# Lady Gaga’s Record-Setting $690M Hit Is Dominating Multiple Streaming Platforms
-
-Movies, Masked Recs
-
-Fri, 31 Jul 2026 18:48:09 GMT
-
-https://screenrant.com/lady-gaga-devil-wears-prada-2-hulu-disney-plus-streaming-success-july-2026/
-
-After grossing $690 million at the box office, a new movie featuring a surprise Lady Gaga appearance has become a major hit on streaming.
----------
-
-# Dermot Mulroney Officially Sets Chicago Fire Series Exit
-
-TV, Chicago Fire, One Chicago
-
-Fri, 31 Jul 2026 18:41:40 GMT
-
-https://screenrant.com/chicago-fire-season-15-dermot-mulroney-exit/
-
-Chicago Fire season 15 is saying goodbye to a familiar face, as veteran actor Dermot Mulroney is preparing to exit the long-running procedural.
----------
-
-# Supergirl’s Streaming Redemption Has Begun In A Massive Way After $186M Bombing
-
-Movies, Supergirl, DC Universe
-
-Fri, 31 Jul 2026 18:39:45 GMT
-
-https://screenrant.com/supergirl-movie-streaming-success-fandango-july-2026/
-
-While it struggled at the box office, DC Studios' Supergirl movie with Milly Alcock as Kara Zor-El is finding new success in the world of streaming.
----------
-
-# Andrew Garfield Responds To Brand New Day Post-Credits, Addresses Spider-Man Secret Wars Return
-
-Exclusive, Spider-Man: Brand New Day
-
-Fri, 31 Jul 2026 18:38:54 GMT
-
-https://screenrant.com/spiderman-brand-new-day-post-credits-andrew-garfield-return-future/
-
-EXCLUSIVE: Spider-Man: Brand New Day is opening up a whole new world, as Andrew Garfield responds to that post-credit scene and Secret Wars return.
----------
-
-# Ziva David's 15 Best NCIS Quotes
-
-Network TV, NCIS
-
-Fri, 31 Jul 2026 18:30:11 GMT
-
-https://screenrant.com/ziva-david-best-ncis-quotes/
-
-Dive into the best lines from Ziva David on NCIS, featuring her iconic mix of humor, heart, and toughness as she moved through her work with the MCRT.
----------
-
-# 23 Years Later, Omar Little’s Best Line In The Wire Is Still The Greatest Quote In TV Crime History
-
-TV, The Wire
-
-Fri, 31 Jul 2026 18:30:11 GMT
-
-https://screenrant.com/the-wire-omar-little-best-crime-tv-quote-all-time/
-
-The Wire gave us many of TV crime's greatest moments, but one particular is still the single best line of dialogue in the genre's history.
----------
-
-# Apple TV & Silo Creator Adapting Hit Crime Novel Trilogy Praised By Barack Obama
-
-TV, Silo, Apple TV
-
-Fri, 31 Jul 2026 18:01:17 GMT
-
-https://screenrant.com/apple-tv-harlem-trilogy-series-colson-whitehead-development/
-
-After bring Hugh Howey’s Silo trilogy to life on the small screen, Graham Yost is set to do it all over again, this time for a series of crime novels.
----------
-
-# Avatar's New Movie Was Great, But It Basically Ruined A Fan-Favorite Character
-
-Movies, Avatar Aang: The Last Airbender, Avatar: The Last Airbender
-
-Fri, 31 Jul 2026 18:00:11 GMT
-
-https://screenrant.com/avatar-movie-suki-wasted/
-
-Avatar's biggest mistake continues.
----------
-
-# Dakota Fanning's 6-Part Netflix Psychological Thriller Series Has One Of Its Best Casts
-
-TV, Masked Recs
-
-Fri, 31 Jul 2026 18:00:11 GMT
-
-https://screenrant.com/netflix-the-perfect-couple-thriller-series-cast-best/
-
-Dakota Fanning stars in one of Netflix's most mysterious thriller series, and it boasts one of the best casts on the streaming service.
----------
-
-# A Forgotten Pokémon Game Thought To Be Lost Forever Has Been Found After 20 Years
-
-Gaming, Pokemon, Nintendo, Nintendo DS
-
-Fri, 31 Jul 2026 18:00:11 GMT
-
-https://screenrant.com/pokemon-lost-fishing-game-found/
-
-After 20 years, a piece of Pokémon lost media that barely anyone remembers has finally been recovered and could finally be preserved.
----------
-
-# Scott Snyder And Jock's Acclaimed Series Confirmed to Expand This Fall
-
-Comics, wytches
-
-Fri, 31 Jul 2026 18:49:19 GMT
-
-https://www.cbr.com/scott-snyder-jock-wytches-vol-1-pledge-edition-release-date-confirmed/
-
-This legendary comic book team's scariest book yet is making its way back into the hands of readers.
----------
-
-# 10 Most Obscure Anime No One's Ever Heard Of
-
-Anime
-
-Fri, 31 Jul 2026 18:15:15 GMT
-
-https://www.cbr.com/most-obscure-anime-no-ones-ever-heard-of/
-
-Everyone has seen Dragon Ball, Naruto, and Sailor Moon, but no one has even heard of these obscure anime series.
----------
-
-# In Just 1 Day, JJ Abrams' Cult Spy Classic Will Be Available to Stream for Free
-
-TV, Alias
-
-Fri, 31 Jul 2026 18:01:14 GMT
-
-https://www.cbr.com/jj-abrams-alis-spy-thriller-streaming-free-pluto-aug-2026/
-
-J.J. Abrams helmed this legendary spy thriller TV show, and it'll soon be available to stream for absolutely free.
----------
-
-# Archie Comics Reveals New Variant Cover—But There’s One Big Catch
-
-Comics, Archie Comics
-
-Fri, 31 Jul 2026 18:01:14 GMT
-
-https://www.cbr.com/archie-rose-city-comic-con-variant-cover-revealed/
-
-A brand-new variant cover for the next ongoing Archie comic book series has been unveiled, and it might be the most exclusive of them all.
----------
-
-# X-Men ’97 Star Explains What Polaris Needs for Her Next Marvel Story
-
-CBR Exclusives, X-Men '97
-
-Fri, 31 Jul 2026 17:57:54 GMT
-
-https://www.cbr.com/x-men-97-carolina-ravassa-polaris-future-ideas/
-
-The X-Men '97 actress dreams of a future that Polaris is more than worthy of.
 ---------
