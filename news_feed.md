@@ -1,3 +1,179 @@
+# The Odyssey Hits Huge Box Office Milestone Amid Neck-And-Neck Race Toward $1 Billion
+
+Movies, Box Office Milestone, The Odyssey
+
+Sun, 02 Aug 2026 15:34:54 GMT
+
+https://screenrant.com/the-odyssey-box-office-900-million-global-milestone/
+
+While it races against Spider-Man: Brand New Day to become the next billion-dollar 2026 movie, The Odyssey soars past a huge box office milestone.
+---------
+
+# 6 The Batman Part II Theories We Want To Be True
+
+Movies, The Batman Part II
+
+Sun, 02 Aug 2026 15:30:11 GMT
+
+https://screenrant.com/the-batman-2-best-theories/
+
+From Robin to the Court of Owls to a secret threequel, there are some fan theories for The Batman Part II that I really hope turn out to be true.
+---------
+
+# 10 Classic British Sitcoms Nobody Talks About
+
+TV, Sitcoms, My Hero, Citizen Smith, Gimme Gimme Gimme, The New Statesman, The Brittas Empire, Phoenix Nights, A Touch of Cloth
+
+Sun, 02 Aug 2026 15:30:11 GMT
+
+https://screenrant.com/british-sitcoms-nobody-talks-about/
+
+From forgotten cult favourites to workplace disasters and political chaos, these 10 classic British sitcoms deserve far more attention today.
+---------
+
+# Hideo Kojima Reviews Spider-Man: Brand New Day Amid Record-Breaking Box Office
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe, Hideo Kojima
+
+Sun, 02 Aug 2026 15:10:27 GMT
+
+https://screenrant.com/hideo-kojima-spider-man-brand-new-day-review/
+
+As Spider-Man: Brand New Day continues to break box office records, Hideo Kojima shares his review of the latest Marvel Cinematic Universe movie.
+---------
+
+# Apple TV+'s 93% RT Sci-Fi Series Is Already One Of Its Best Ever
+
+TV, Masked Recs
+
+Sun, 02 Aug 2026 15:02:11 GMT
+
+https://screenrant.com/silo-apple-tv-plus-best-sci-fi-series-rotten-tomatoes/
+
+Lost meets The Expanse in Apple TV's acclaimed underground dystopian sci-fi thriller where an accidental discovery unravels a web of conspiracy.
+---------
+
+# After 10 Years, Tom Holland Finally Nails 1 Key Part Of Playing Spider-Man
+
+Movies, Spider-Man: Brand New Day
+
+Sun, 02 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-tom-holland-accent/
+
+Tom Holland is a brilliant Spider-Man, but in Spider-Man: Brand New Day, he finally nailed one aspect of the character he hadn't excelled at before.
+---------
+
+# Star Wars Jedi 3 Officially Confirmed, Teases Inclusion Of Greatest Jedi Of All
+
+Gaming, Star Wars, Star Wars Jedi: Survivor
+
+Sun, 02 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/star-wars-jedi-3-luke-skywalker-tease/
+
+An brand-new release may feature a meeting between Cal and iconic Jedi Luke Skywalker.
+---------
+
+# 10 Best Martial Arts Shows If You Love Mortal Kombat
+
+Classic TV, Mortal Kombat
+
+Sun, 02 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/best-martial-arts-shows-like-mortal-kombat/
+
+Mortal Kombat is one of the most beloved martial arts franchises out there, and its fans should all check out these similar martial arts TV shows.
+---------
+
+# Carrie Interview with Mike Flanagan & Cast at SDCC 2026
+
+TV, Carrie, Mike Flanagan, San Diego Comic-Con
+
+Sun, 02 Aug 2026 14:41:05 GMT
+
+https://screenrant.com/video/carrie-mike-flanagan-cast-stephen-king-changes-interview-sdcc-2026/
+
+Mike Flanagan and Carrie stars Summer Howell, Samantha Sloya, Siena Agudong, Alison Thornton, Amber Midthunder, and Matthew Lillard explain how their adaptation of Stephen King's novel offers a new perspective on various characters.
+---------
+
+# It: Welcome to Derry Creator Confirms Season 2 'Horrible' Themes Are the 'Heart of Our Story'
+
+Movies, It: Welcome to Derry
+
+Sun, 02 Aug 2026 15:16:17 GMT
+
+https://www.cbr.com/it-welcome-to-derry-creator-season-2-themes/
+
+Months after the show premiered, Season 2 has yet to receive an official confirmation.
+---------
+
+# 7 Forgotten 2000s Anime Series That Have Aged Like Milk
+
+Anime, Eiken, Green Green
+
+Sun, 02 Aug 2026 15:15:15 GMT
+
+https://www.cbr.com/forgotten-2000s-anime-series-aged-like-milk/
+
+The 2000s were an important decade for anime, but overlooked titles like Eiken and Musashi Gundoh deserve to be left in the past.
+---------
+
+# 10 Cutest Anime Kids, Ranked By Cuteness
+
+Anime, Spy x Family, Clannad, Miss Kobayashi's Dragon Maid
+
+Sun, 02 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/cutest-anime-kids-ranked-by-cuteness/
+
+Anime has introduced countless adorable child characters over the years, but being cute involves far more than a chibi design or big expressive eyes.
+---------
+
+# 6 Paramount+ Sci-Fi Shows Every Star Trek Fan Should Watch
+
+TV, Sci-Fi, Star Trek, Paramount+ with Showtime, Halo
+
+Sun, 02 Aug 2026 14:30:15 GMT
+
+https://www.cbr.com/paramount-sci-fi-shows-like-star-trek-list/
+
+Fans of Star Trek should set their phasers to Paramount+ and start watching essential sci-fi series like Battlestar Galactica and Halo.
+---------
+
+# ‘Spider-Man: Brand New Day’ Is Officially the New King of Marvel Movies
+
+Movie News, Spider-Man: Brand New Day, Box Office, Tom Holland, Zendaya
+
+Sun, 02 Aug 2026 15:26:33 GMT
+
+https://collider.com/spider-man-brand-new-day-box-office-debut-875-million/
+
+Spider-Man: Brand New Day is now practically guaranteed to be 2026’s next billion-dollar hit with a record-breaking debut that takes on Marvel’s great
+---------
+
+# Netflix’s New Sci-Fi Thriller Officially Releases this Week
+
+Movie News, Netflix, The Last House, Wagner Moura, Greta Lee
+
+Sun, 02 Aug 2026 14:45:15 GMT
+
+https://collider.com/netflix-sci-fi-the-last-house-release-date-august-2026/
+
+The Last House, starring Greta Lee and Wagner Moura, officially arrives on Netflix this week. Read on for more details about the sci-fi thriller.
+---------
+
+# Martial Arts Action Thriller Hailed as "Best of the Year" Gets Exciting New Release
+
+Movie News, The Furious
+
+Sun, 02 Aug 2026 14:30:12 GMT
+
+https://movieweb.com/the-furious-4k-blu-ray-limited/
+
+Lionsgate announces a limited 4K Ultra HD collector's edition of the action thriller 'The Furious,' arriving August 11, 2026.
+---------
+
 # Todd McFarlane Knows The Secret To Spawn's Longevity
 
 Comics, Todd McFarlane, Spawn, San Diego Comic-Con
@@ -5320,180 +5496,4 @@ Fri, 31 Jul 2026 23:15:14 GMT
 https://www.cbr.com/masterpiece-war-anime-better-than-attack-on-titan/
 
 Attack on Titan is a war anime masterpiece, but shows like Legend of the Galactic Heroes handle the theme much better.
----------
-
-# Sega Officially Unleashes Jujutsu Kaisen's Queen of Curses This November
-
-Anime, Jujutsu Kaisen, merchandise
-
-Fri, 31 Jul 2026 23:05:15 GMT
-
-https://www.cbr.com/sega-jujutsu-kaisen-rika-figure-november-release/
-
-SEGA releases the Queen of Curses in a terrifying new Jujutsu Kaisen figurine featuring Fully Manifested Rika.
----------
-
-# AMC's 10/10 Fantasy Masterpiece Replaces The Walking Dead: Dead City as the Most-Watched TV Show on Streaming
-
-TV, The Vampire Lestat, AMC, The Walking Dead: Dead City
-
-Fri, 31 Jul 2026 23:00:14 GMT
-
-https://www.cbr.com/the-vampire-lestat-surpasses-the-walking-dead-dead-city-amc-july-2026/
-
-AMC's The Vampire Lestat is officially the No. 1 most watched AMC show in the United States
----------
-
-# 10 Greatest Erotic Thrillers of All Time, Ranked
-
-Movies, Thriller, Gone Girl, The Handmaiden
-
-Fri, 31 Jul 2026 23:00:14 GMT
-
-https://www.cbr.com/best-erotic-thrillers-of-all-time-list/
-
-From Hitchcock classics to modern masterpieces, these are the 10 films that perfected the balance between romance, mystery, and suspense.
----------
-
-# 3 Stellar Shows to Binge-Watch on Prime Video This Weekend (August 1-2)
-
-TV, Fallout, The Marvelous Mrs. Maisel, Batman: Caped Crusader, Prime Video
-
-Fri, 31 Jul 2026 23:43:14 GMT
-
-https://collider.com/prime-video-shows-binge-weekend-august-1-2026/
-
-Batman: Caped Crusader, Marvelous Mrs. Maisel, and Fallout make our list of the best Prime Video shows to binge-watch the weekend of August 1, 2026.
----------
-
-# 7 Years Later, Kylo Ren Officially Returns to Star Wars With New 2026 Release
-
-Books and Comics, Kylo Ren, Star Wars, Adam Driver, Comics
-
-Fri, 31 Jul 2026 23:30:14 GMT
-
-https://collider.com/star-wars-the-fall-of-kylo-ren-release-date-august-2026/
-
-Star Wars fans should be excited: Kylo Ren's story is continuing in just a few weeks! Read on for all the details.
----------
-
-# 5 Scariest Movies Released Since 2010
-
-Movie, The Dark and the Wicked, Hereditary, Smile, It Follows
-
-Fri, 31 Jul 2026 23:25:14 GMT
-
-https://collider.com/scariest-movies-since-2010-ranked/
-
-It Follows, The Dark and the Wicked, and Hereditary are among the absolute most terrifying horror movies released since the year 2010.
----------
-
-# This 140-Minute Action Fantasy Is Suddenly Dominating the Streaming Charts
-
-Movie Features, Prime Video, Masters of the Universe, Nicholas Galitzine, Camila Mendes
-
-Fri, 31 Jul 2026 23:05:14 GMT
-
-https://collider.com/masters-of-the-universe-action-fantasy-prime-video-streaming-charts/
-
-2026's Masters of the Universe struggled in theaters, but the winning action-fantasy is now topping Prime Video's streaming charts.
----------
-
-# 7 Best Anime Series Coming to Netflix and Crunchyroll in August
-
-TV, Anime, Netflix, Crunchyroll, The Ribbon Hero
-
-Fri, 31 Jul 2026 23:05:14 GMT
-
-https://collider.com/best-anime-series-coming-netflix-crunchyroll-august-2026/
-
-August brings many great anime to Netflix and Crunchyroll, from new arrivals like The Ribbon Hero to new seasons of shows like Jobless Reincarnation.
----------
-
-# Stephen King 1989 Classic Rises From the Dead With a Brand-New Release
-
-Movie News, Stephen King, Pet Sematary, Blu-ray, SteelBook
-
-Fri, 31 Jul 2026 23:00:14 GMT
-
-https://collider.com/stephen-king-pet-sematary-4k-blu-ray-release-date-october-2026/
-
-We all love a Stephen King adaptation, and one of the best is getting a new 4K Ultra Blu-Ray release! Read on for more.
----------
-
-# R-Rated Reboot of '70s Cult Classic Getting New Release
-
-Movie News, Faces of Death, Dacre Montgomery, Barbie Ferreira
-
-Fri, 31 Jul 2026 23:24:01 GMT
-
-https://movieweb.com/faces-of-death-reboot-blu-ray-release/
-
-The new take on the original 'Faces of Death' is coming to Blu-ray in September.
----------
-
-# All 21 Batman TV Shows, Ranked Worst To Best
-
-Superheroes, Batman, DC Universe
-
-Fri, 31 Jul 2026 22:45:11 GMT
-
-https://screenrant.com/batman-tv-shows-ranked/
-
-There have been quite a few Batman shows over the years, both animated and live-action (and some are much better than others). Here's our ranking.
----------
-
-# 8 Best David Jonsson Roles, Ranked
-
-Movies, Black Panther, David Jonsson
-
-Fri, 31 Jul 2026 22:30:11 GMT
-
-https://screenrant.com/best-david-jonsson-roles-hype-black-panther-3/
-
-The MCU's latest Black Panther has more experience, range and filmography than many give him credit for.
----------
-
-# It: Welcome To Derry Season 2 Is Set Up To Be A Masterclass In Stephen King Storytelling
-
-Streaming TV, Stephen King, It: Welcome to Derry, IT: Welcome to Derry - Season 1
-
-Fri, 31 Jul 2026 22:15:11 GMT
-
-https://screenrant.com/it-welcome-to-derry-season-2-prequel-story-stephen-king-storytelling/
-
-All the reveals and details surrounding It: Welcome to Derry season 2 seem to suggest that it is set to be a masterclass in Stephen King storytelling.
----------
-
-# New Avengers: Doomsday Preview Reveals Best Look Yet At The X-Men’s Costumes
-
-Movies, Avengers: Doomsday
-
-Fri, 31 Jul 2026 22:14:08 GMT
-
-https://screenrant.com/avengers-doomsday-preview-new-xmen-costumes/
-
-A new preview of Avengers: Doomsday offers an up-close and very detailed look at the X-Men's costumes in Marvel Studios' upcoming film.
----------
-
-# Spider-Man's Darkest Venom Variant Makes Peter Parker Absolute Nightmare Fuel
-
-Comics, Spider-Man
-
-Fri, 31 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/spider-man-peter-parker-poison-venom-variant/
-
-The Venom symbiote has limitless potential thanks to a legion of available hosts, but this appearance from nearly 20 years ago may take the cake.
----------
-
-# Zelda Meets The Owl House In New Open-World Game You Can Play Free Now
-
-Gaming, The Legend of Zelda, Triple-A Games
-
-Fri, 31 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/zelda-meets-owl-house-free-open-world-demo/
-
-The Owl House and Zelda are good company - now you can play an open-world game that marries the two right now, and the best part is that it's free.
 ---------
