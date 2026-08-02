@@ -1,3 +1,36 @@
+# Lord Of The Rings Officially Returns September 2026
+
+Gaming, The Lord of the Rings, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Rings of Power, The Lord of the Rings: Shadow of the Past, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings: The Return of the King, The Lord of the Rings: The Fellowship of the Ring, PC
+
+Sun, 02 Aug 2026 07:00:12 GMT
+
+https://screenrant.com/lord-of-the-rings-one-ring-expansions-september-2026/
+
+The Lord of the Rings fans will want to mark their calendars for September 2026, as the franchise is poised to get a trove of new content.
+---------
+
+# 5 Greatest RPGs On PlayStation 2 That Desperately Need Remakes
+
+Gaming, PlayStation 2
+
+Sun, 02 Aug 2026 06:00:11 GMT
+
+https://screenrant.com/ps2-best-rpgs-need-remakes/
+
+We're living in an age of remakes and remasters, but some of the best RPGs on PlayStation 2 are still in desperate need of getting an update.
+---------
+
+# Baldur's Gate 3 Officially Returns On August 11 With Brand-New Release
+
+Gaming, Baldur's Gate 3
+
+Sun, 02 Aug 2026 05:00:11 GMT
+
+https://screenrant.com/baldurs-gate-3-official-release-august-11/
+
+Baldur's Gate 3 has announced an official new release that's arriving on August 11. Fans of the award-winning RPG won't want to miss out.
+---------
+
 # Steam Gamers Have 24 Hours To Download 4 Games Completely Free
 
 Gaming, Steam, Triple-A Games
@@ -5463,37 +5496,4 @@ Fri, 31 Jul 2026 19:59:12 GMT
 https://collider.com/sam-raimi-stephen-king-desperation-movie-adaptation/
 
 Evil Dead icon Sam Raimi is finally making a Stephen King adaptation, with the duo behind Final Destination: Bloodlines attached to direct.
----------
-
-# ‘The Witcher’ Officially Sets Massive Franchise Return for 2027
-
-Gaming News, The Witcher 3: Wild Hunt, The Witcher, Henry Cavill, Liam Hemsworth
-
-Fri, 31 Jul 2026 19:51:46 GMT
-
-https://collider.com/the-witcher-legacy-old-world-release-date-summer-2027/
-
-The next official release from The Witcher franchise is officially confirmed to take more than 50 hours to complete when it launches in 2027.
----------
-
-# 10 Most Intense Horror Books of All Time
-
-Books and Comics, Horror, Pet Sematary, It, The Long Walk
-
-Fri, 31 Jul 2026 19:29:14 GMT
-
-https://collider.com/most-intense-horror-books-all-time-ranked/
-
-If you're after particularly intense horror books, it's worth reading masterpieces like House of Leaves, American Psycho, and The Metamorphosis.
----------
-
-# Tom Holland's Divisive Video Game Adaptation Sees a 'Brand New Day' on Streaming
-
-Movie News, Tom Holland, The Odyssey, Spider-Man: Brand New Day, Uncharted
-
-Fri, 31 Jul 2026 19:26:14 GMT
-
-https://collider.com/tom-holland-uncharted-streaming-success-prime-video-july-2026/
-
-As Tom Holland promotes his latest Spider-Man installment, his video game adaptation Uncharted sees a resurgence on streaming charts.
 ---------
