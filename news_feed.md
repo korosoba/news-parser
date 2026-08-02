@@ -1,3 +1,278 @@
+# Todd McFarlane Knows The Secret To Spawn's Longevity
+
+Comics, Todd McFarlane, Spawn, San Diego Comic-Con
+
+Sun, 02 Aug 2026 14:23:38 GMT
+
+https://screenrant.com/video/todd-mcfarlane-spawn-interview-sdcc-2026/
+
+Todd McFarlane shares some fond SDCC-adjacent memories about his father, and explains what he thinks makes Spawn timeless.
+---------
+
+# 90 Day Fiancé Season 8: Where Are They Now
+
+Reality TV, 90 Day Fiancé
+
+Sun, 02 Aug 2026 14:15:13 GMT
+
+https://screenrant.com/90-day-fiance-season-season-eight-where-are-they-now/
+
+It's been over a year since 90 Day Fiancé viewers last caught up with these long-distance couples, so here's what the cast of season 8 are up to now.
+---------
+
+# Prime Video’s New 8-Part Teen Drama Is The O.C. Meets Outer Banks
+
+TV, Masked Recs
+
+Sun, 02 Aug 2026 14:15:11 GMT
+
+https://screenrant.com/sterling-point-prime-video-like-the-oc-outer-banks/
+
+This August, Prime Video debuts a new teen drama that harks back to a classic noughties series, while rivaling Netflix's hit show Outer Banks.
+---------
+
+# 8 Strongest Swords In Fantasy Movies, Ranked
+
+Movies, King Arthur: Legend of the Sword, Crouching Tiger, Hidden Dragon, Masters of the Universe, Harry Potter, Harry Potter and the Deathly Hallows - Part 2, The Lord of the Rings, The Lord of the Rings: The Return of the King, Pirates of the Caribbean: On Stranger Tides
+
+Sun, 02 Aug 2026 14:15:11 GMT
+
+https://screenrant.com/strongest-swords-fantasy-movies-ranked/
+
+Swords bring altercations up close and personal, but some fantasy swords have special abilities that tilt the odds in their wielders' favor.
+---------
+
+# See DC's New Strongest Hero Use Their Powers for the First Time
+
+Comics, DC
+
+Sun, 02 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/jsa-wildcat-new-spectre-powers/
+
+Very powerful
+---------
+
+# Final Fantasy Meets Pokémon In Huge New Monster-Taming RPG
+
+Gaming, Final Fantasy, Pokemon, RPG, Dragon Quest, Dragon Quest Monsters: The Withered World
+
+Sun, 02 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/final-fantasy-meets-pokemon-dragon-quest-withered-world/
+
+Fans looking for their next monster-taming game will want to check out this new RPG that mixes Final Fantasy with Pokémon .
+---------
+
+# NCIS Officially Confirms Ziva’s Return Path
+
+Network TV, NCIS, NCIS: Tony & Ziva - Season 1
+
+Sun, 02 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/ncis-ziva-david-cote-de-pablo-return-path-confirmed/
+
+Cote de Pablo's return path as Ziva David is now paved after an official update about what's ahead for CBS's much-anticipated NCIS season 24.
+---------
+
+# Paradise Season 3 Set Photos Confirm Major Dead Character’s Return
+
+TV, Paradise, Paradise - Season 3
+
+Sun, 02 Aug 2026 13:55:15 GMT
+
+https://screenrant.com/paradise-season-3-james-marsden-set-photos/
+
+As filming continues for Paradise season 3, set photos confirm the return of a major dead character in the hit Hulu show's final season.
+---------
+
+# 8 Best Episodes Of Spider-Man: The Animated Series To Watch After Brand New Day
+
+Movies, Spider-Man: Brand New Day, Spider-Man: The Animated Series
+
+Sun, 02 Aug 2026 13:45:11 GMT
+
+https://screenrant.com/spiderman-animated-series-episodes-watch-after-brand-new-day/
+
+Spider-Man: Brand New Day feels so much like the 1990s animated series, making now the perfect time to revisit these eight fantastic episodes.
+---------
+
+# Sherlock's Most Underrated Episode Is Also The Hardest To Watch
+
+Classic TV, Sherlock
+
+Sun, 02 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/sherlock-the-lying-detective-underrated-episode-scary/
+
+The BBC's Sherlock has some underrated episodes, and one, in particular, while one of the show's best, is also the hardest one to watch.
+---------
+
+# 10 Masterpiece Anime Series With Zero Filler
+
+Anime, Delicious in Dungeon, Vinland Saga
+
+Sun, 02 Aug 2026 14:15:15 GMT
+
+https://www.cbr.com/masterpiece-anime-zero-filler/
+
+Anime like Frieren and Delicious in Dungeon stayed intriguing without ever leaning on filler to extend the story.
+---------
+
+# Prime Video's Gritty 2-Part Batman Show Is Flying Up the Charts After 89% RT Score
+
+TV, Batman: Caped Crusader
+
+Sun, 02 Aug 2026 14:00:15 GMT
+
+https://www.cbr.com/prime-video-batman-caped-crusader-streaming-success-aug-2026/
+
+Matt Reeves and J.J. Abrams deliver a masterpiece new Batman series as fans wait for The Batman: Part II.
+---------
+
+# Transformers Brings a Forgotten 1986 Movie Decepticon to Life After 40 Years
+
+Anime, Transformers, merchandise, The Transformers: The Movie, toys
+
+Sun, 02 Aug 2026 14:00:15 GMT
+
+https://www.cbr.com/transformers-dr-wu-early-draft-sweep-g2-sideswipe-color-prototypes/
+
+The latest Dr. Wu Transformers toys return to the 80s and the 90s with designs based on Generation 2 and concept art for The Transformers: The Movie.
+---------
+
+# 10 Spider-Man Comics to Read If You Loved Spider-Man: Brand New Day
+
+Movies, Spider-Man: Brand New Day, Marvel Comics, superheroes
+
+Sun, 02 Aug 2026 14:00:15 GMT
+
+https://www.cbr.com/spider-man-comic-books-stoyrlines-like-brand-new-day/
+
+Spider-Man: Brand New Day is now playing in theaters. For fans who loved the film, these comics make for a perfect follow-up.
+---------
+
+# 5 Best Cold War Spy Shows
+
+TV, War, Get Smart, Mission: Impossible, Tinker Tailor Soldier Spy
+
+Sun, 02 Aug 2026 13:30:15 GMT
+
+https://www.cbr.com/great-cold-war-spy-shows-list/
+
+The Cold War era defined the spy genre for a century, and television was quick to capitalize on the audience's love of espionage.
+---------
+
+# 5 Greatest Fantasy Anime Series of the 2020s, Ranked
+
+Anime, Witch Hat Atelier, Frieren: Beyond Journey's End, Chainsaw Man
+
+Sun, 02 Aug 2026 13:15:15 GMT
+
+https://www.cbr.com/2020s-greatest-fantasy-anime/
+
+Anime series like Witch Hat Atelier and Delicious in Dungeon set the standard for fantasy anime in the 2020s.
+---------
+
+# 7 Lord of the Rings Details Only Adults Can Appreciate
+
+Movies, The Lord of the Rings, Fantasy
+
+Sun, 02 Aug 2026 13:01:14 GMT
+
+https://www.cbr.com/lord-of-the-rings-details-different-adult/
+
+Though young viewers can appreciate Peter Jackson's The Lord of the Rings trilogy, some aspects take on a new meaning through the eyes of an adult.
+---------
+
+# Ryan Gosling Was Fired From Peter Jackson's $94M Supernatural Movie That's Now Streaming on Paramount+
+
+Movies, The Lovely Bones
+
+Sun, 02 Aug 2026 13:00:14 GMT
+
+https://www.cbr.com/the-lovely-bones-streaming-paramount-august-2026/
+
+Peter Jackson recently opened up about Gosling being fired from the film on the day that filming was supposed to begin.
+---------
+
+# Alan Ritchson’s ‘Reacher’ Officially Returns in 10 Days
+
+TV News, Alan Ritchson, Reacher, Prime Video, Action
+
+Sun, 02 Aug 2026 14:00:15 GMT
+
+https://collider.com/alan-ritchson-reacher-season-4-release-date-august-2026/
+
+Alan Ritchson’s Reacher Season 4 officially returns to Prime Video in less than 2 weeks. Read on for all the details.
+---------
+
+# 10 Greatest PlayStation 2 Games of All Time
+
+Video Games, Video Game, PlayStation (Original), Resident Evil 4, God of War
+
+Sun, 02 Aug 2026 13:31:14 GMT
+
+https://collider.com/best-playstation-2-games-ranked/
+
+Resident Evil 4, Silent Hill 2, and Shadow of the Colossus are among the best PS2 games of all time.
+---------
+
+# 2026’s Most Overlooked Horror Movie Is Officially Taking Over Apple TV
+
+Movie News, Leviticus, Horror, Obsession, It Follows
+
+Sun, 02 Aug 2026 13:16:14 GMT
+
+https://collider.com/2026-horror-leviticus-streaming-success-apple-tv-august-2026/
+
+Forget Obsession and Backrooms, another 2026 horror movie worthy of being called an absolute must-watch is surging on Apple TV.
+---------
+
+# Tom Hardy’s $100 Million Sci-Fi Masterpiece Is Officially the Biggest Streaming Hit of His Career
+
+Movie News, Mad Max: Fury Road, Tom Hardy, Charlize Theron, George Miller
+
+Sun, 02 Aug 2026 12:45:15 GMT
+
+https://collider.com/tom-hardy-sci-fi-mad-max-fury-road-streaming-success-prime-video-august-2026/
+
+Tom Hardy's greatest sci-fi movie of all time has officially become the biggest streaming hit of his career after 11 years.
+---------
+
+# Sylvester Stallone's Overlooked Crime Thriller Scores New Streaming Home
+
+Movie News, Sylvester Stallone, Cop Land, Coming/Leaving Streaming, Thriller
+
+Sun, 02 Aug 2026 14:00:12 GMT
+
+https://movieweb.com/sylvester-stallone-cop-land-thriller-streaming-paramount-august-2026/
+
+Stallone trades biceps for a belly in an excellent 1997 crime thriller that's officially being rebooted as a series on Paramount+.
+---------
+
+# One of the Most Underrated Crime Thrillers Is Available on YouTube For Free
+
+Features, Jessica Chastain, Molly's Game
+
+Sun, 02 Aug 2026 14:00:12 GMT
+
+https://movieweb.com/mollys-game-youtube-free-streaming/
+
+Ante up and add this movie to your watchlist.
+---------
+
+# 'Chicago Fire' Confirms Another Star Is Exiting When Series Finally Returns
+
+TV News, Chicago Fire
+
+Sun, 02 Aug 2026 12:36:06 GMT
+
+https://movieweb.com/chicago-fire-dermot-mulroney-exit-season-15/
+
+Firehouse 51 loses one of its best in 'Chicago Fire' Season 15.
+---------
+
 # Iron Man Debuts 'Knullbuster' Armor for First Time Against the King in Black
 
 Comics, Iron Man
@@ -5221,279 +5496,4 @@ Fri, 31 Jul 2026 22:00:11 GMT
 https://screenrant.com/zelda-meets-owl-house-free-open-world-demo/
 
 The Owl House and Zelda are good company - now you can play an open-world game that marries the two right now, and the best part is that it's free.
----------
-
-# Prime Video's Reacher Will Never Be The Same
-
-Streaming TV, Reacher
-
-Fri, 31 Jul 2026 22:00:11 GMT
-
-https://screenrant.com/reacher-prime-video-series-change-season-5/
-
-Reacher might be Prime Video's flagship action series, but it is about to take a dark turn, with season 5 adapting Lee Child's most disturbing book.
----------
-
-# Spider-Man: Brand New Day Passes Supergirl's Entire Box Office In 1 Day & Confirms A Harsh DC Truth
-
-Movies, Spider-Man: Brand New Day, Spider-Man, Supergirl, Marvel Cinematic Universe, DC Universe
-
-Fri, 31 Jul 2026 21:46:09 GMT
-
-https://screenrant.com/spider-man-brand-new-day-box-office-supergirl-dc-truth/
-
-Tom Holland's Spider-Man: Brand New Day only needed a day to pass Supergirl's entire box office run, and it confirms a harsh DC Universe truth.
----------
-
-# Daniel Warren Johnson: The Story He Almost Abandoned | SDCC 2026
-
-Comics, image comics
-
-Fri, 31 Jul 2026 22:25:37 GMT
-
-https://www.cbr.com/video/daniel-warren-johnson-the-story-he-almost-abandoned-sdcc-2026/
-
-Daniel Warren Johnson explains why Chain Cat almost never happened and how Dune helped bring the series back to life. At SDCC 2026, the acclaimed creator discusses the eight-year journey behind his new Image Comics series, balancing creator-owned projects with hits like Transformers and Absolute Batman, and why world-building proved to be his biggest challenge.
----------
-
-# 5 Most Anticipated Games Releasing in August 2026, Ranked
-
-Games, Video Games, Marvel, Gaming
-
-Fri, 31 Jul 2026 22:15:14 GMT
-
-https://www.cbr.com/most-anticipated-games-releasing-august-2026/
-
-August is jam packed with so many games from blockbusters to indie releases, but only six of them stand out as the most-anticipated releases.
----------
-
-# Syfy's The Walking Dead Replacement With 90% RT Is Finally Heading to Netflix as Fans Await Season 2
-
-TV, Revival
-
-Fri, 31 Jul 2026 22:14:24 GMT
-
-https://www.cbr.com/revival-season-2-update-netflix-august-2026/
-
-Catch up on the first season of the acclaimed horror series on Netflix to help get the series an official renewal.
----------
-
-# DC Comics Officially Gives Superman His Own Venom Symbiote
-
-Comics, Marvel, Marvel Comics, MCU, DC Comics, Spider-Man, Superman
-
-Fri, 31 Jul 2026 22:00:14 GMT
-
-https://www.cbr.com/dc-comics-officially-gives-superman-venom-symbiote/
-
-The most powerful Venom host ever, Superman, was just revealed by DC Comics.
----------
-
-# Netflix Says Goodbye to the War Movie That Remains the Last Great Masterpiece of Its Kind
-
-Movies, Hacksaw Ridge
-
-Fri, 31 Jul 2026 22:00:14 GMT
-
-https://www.cbr.com/hacksaw-ridge-war-leaving-netflix-august-2026/
-
-Audiences only have a few days left to watch one of the greatest war films of all time before it leaves one of the biggest streaming platforms.
----------
-
-# Any Given Smile: Stephanie Williams on Horror & Football | SDCC 2026
-
-Comics, comics
-
-Fri, 31 Jul 2026 21:49:17 GMT
-
-https://www.cbr.com/video/any-given-smile-stephanie-williams-on-horror-football-sdcc-2026/
-
-Any Given Smile writer Stephanie Williams explains how football, sports gambling, and mental health became the foundation for her terrifying new story set in the Smile universe. Speaking at SDCC 2026, Williams also reflects on her Eisner Award nomination and the inspiration behind bringing horror to the gridiron.
----------
-
-# 10 Perfect Sci-Fi Shows With 5 Seasons or Less
-
-TV, Sci-Fi, Andor, Dark, The Twilight Zone
-
-Fri, 31 Jul 2026 22:44:14 GMT
-
-https://collider.com/perfect-sci-fi-shows-shorter-than-5-seasons/
-
-Explore great sci-fi shows that masterfully tell their stories in five seasons or fewer, proving that sometimes less is more, from Dark to Andor.
----------
-
-# Netflix’s Biggest Sci-Fi Creature Feature Could Succeed Where Apple TV+’s ‘Monarch’ Fell Short
-
-TV Features, Netflix, Below, Josh Hartnett, Monarch: Legacy of Monsters
-
-Fri, 31 Jul 2026 22:34:14 GMT
-
-https://collider.com/netflix-sci-fi-series-below-monarch-replacement/
-
-On October 8, Netflix is premiering Below, a sci-fi series with Josh Hartnett that could be the perfect Monarch: Legacy of Monsters replacement.
----------
-
-# 3 Spider-Man Movie Deaths That Don't Make Any Sense
-
-Movie, Spider-Man, Spider-Man: No Way Home, Amazing Spider-Man, Spider-Man 3
-
-Fri, 31 Jul 2026 22:19:14 GMT
-
-https://collider.com/spider-man-movie-deaths-dont-make-sense/
-
-The character of Peter Parker is largely defined by loss and grief, but some of the major Spider-Man movie deaths don't make sense under scrutiny.
----------
-
-# Spider-Man: Brand New Day' Just Dropped the First Major 'Avengers: Secret Wars' Clue
-
-Movie Features, Spider-Man: Brand New Day, Venom, Avengers: Doomsday, Avengers: Secret Wars
-
-Fri, 31 Jul 2026 22:07:57 GMT
-
-https://collider.com/spider-man-brand-new-day-post-credits-avengers-secret-wars/
-
-The post credits scene for Spider-Man: Brand New Day just hinted at the web-slinger's next appearance - and it's not the movie fans might expect.
----------
-
-# 10 Genuinely Perfect Heist Movies, Ranked
-
-Movie, Snatch, Ocean's Eleven, Heat, Dog Day Afternoon
-
-Fri, 31 Jul 2026 21:59:14 GMT
-
-https://collider.com/perfect-heist-movies/
-
-Snatch, Heat, and Ocean's Eleven are some of the best, genuinely perfect heist thriller movies of all time.
----------
-
-# 3 Beloved Movies To Watch on Prime Video This Weekend (Aug 1-2)
-
-Movie, Primate, Ruthless, How to Lose A Guy In 10 Days, Prime Video
-
-Fri, 31 Jul 2026 21:49:14 GMT
-
-https://collider.com/best-prime-video-movies-watch-weekend-august-1-2026/
-
-Primate, Ruthless, and How to Lose a Guy in 10 Days make up our list of the best movies to stream on Prime Video the weekend of August 1st, 2026.
----------
-
-# 21 ‘Spider-Man: Brand New Day’ Moments With Bigger Marvel Connections
-
-Movie, Spider-Man: Brand New Day, Spider-Man, MCU, Spider-Man 4
-
-Fri, 31 Jul 2026 21:40:33 GMT
-
-https://collider.com/spider-man-brand-new-day-easter-eggs-references-list/
-
-Did you catch these Spider-Man: Brand New Day Easter eggs, references, and callbacks?
----------
-
-# 'New Girl' Star Officially Confirms a Reboot Is Happening
-
-TV News, New Girl, Max Greenfield, Fox, Running Point
-
-Fri, 31 Jul 2026 21:37:12 GMT
-
-https://collider.com/new-girl-reboot-confirmed-max-greenfield/
-
-After years of rumors, New Girl star Max Greenfield has confirmed that a reboot of the hit sitcom is not only in the works, it already has a script.
----------
-
-# 10 Books That Are Perfect From Cover to Cover
-
-Books and Comics, Books, Heated Rivalry, Romance, Thriller
-
-Fri, 31 Jul 2026 21:35:14 GMT
-
-https://collider.com/books-perfect-cover-to-cover/
-
-Heated Rivalry by Rachel Reid, House of Leaves by Mark Z. Danielewski, and The Vanishing Half by Brit Bennett are genuinely perfect books.
----------
-
-# Stephen King's Upcoming Team-up With Sam Raimi Is 42 Years in the Making
-
-Features, Stephen King, Sam Raimi
-
-Fri, 31 Jul 2026 22:00:12 GMT
-
-https://movieweb.com/stephen-king-desperation-sam-raimi/
-
-Two of horror's most recognizable creators are finally coming together on a project for the first time after a near-miss more than 40 years ago.
----------
-
-# 'The Mandalorian' Star Has Official Response to 'Star Wars' Return After Movie Flop
-
-TV News, The Mandalorian, The Mandalorian and Grogu
-
-Fri, 31 Jul 2026 21:55:10 GMT
-
-https://movieweb.com/star-wars-the-mandalorian-timothy-olyphant-return/
-
-Timothy Olyphant played coy about whether we'll see him in the galaxy far, far away again anytime soon.
----------
-
-# Apple TV Officially Sets Gritty New Crime Thriller Series From Oscar-Winning Filmmaker
-
-TV News, Apple TV, Barry Jenkins, Graham Yost
-
-Fri, 31 Jul 2026 21:46:02 GMT
-
-https://movieweb.com/harlem-trilogy-colson-whitehead-apple-tv-adaptation-series/
-
-'Moonlight' director Barry Jenkins is producing an adaptation of Colson Whitehead's 'Harlem' trilogy.
----------
-
-# Original Avengers 5 Director Recalls “Really Fun” Scrapped Kang Plans & MCU Movie Exit
-
-Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe, Destin Daniel Cretton
-
-Fri, 31 Jul 2026 21:13:19 GMT
-
-https://screenrant.com/avengers-5-kang-dynasty-fun-plans-scrapped-exit-destin-daniel-cretton/
-
-Former Avengers 5 director Destin Daniel Cretton reflects on having left the major MCU movie and the "really fun" plans he had for The Kang Dynasty.
----------
-
-# 3 Best Movies To Watch On Disney+ This Weekend (August 1-2)
-
-Movies, Disney+, Recommendation
-
-Fri, 31 Jul 2026 21:01:28 GMT
-
-https://screenrant.com/best-disney-plus-movies-watch-weekend-august-1/
-
-Disney+'s best movies to watch this weekend include the return of a massive franchise, a dark superhero team movie, and a sci-fi adventure film.
----------
-
-# New Gundam Release Officially Confirmed For September 25
-
-Gaming, Gundam, tabletop games
-
-Fri, 31 Jul 2026 20:55:58 GMT
-
-https://screenrant.com/gundam-card-game-starter-deck-release/
-
-Iconic anime franchise Gundam is coming back in just a couple of months, with a new release that has just been revealed at Gen Con 2026.
----------
-
-# Every Emma Frost Actress In Live-Action X-Men Movies
-
-Superheroes, X-Men, Marvel Cinematic Universe
-
-Fri, 31 Jul 2026 20:45:11 GMT
-
-https://screenrant.com/emma-frost-actress-x-men-movies-live-action/
-
-Emma Frost has been in multiple live-action X-Men movies, allowing several actresses to play the mutant, including in the MCU's upcoming reboot.
----------
-
-# New Girl Revival Gets Surprising Writing Update From Original Star 8 Years Later
-
-TV, New Girl
-
-Fri, 31 Jul 2026 20:40:19 GMT
-
-https://screenrant.com/new-girl-revival-writing-update-scripts-max-greenfield/
-
-New Girl has finally got a hopeful update, as one of the main stars has finally given a serious writing update following years of endless banter.
 ---------
