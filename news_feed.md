@@ -1,3 +1,223 @@
+# 10 Most Disturbing Thrillers Of All Time, Ranked
+
+Movies, Thriller, Ranking
+
+Sun, 02 Aug 2026 21:15:11 GMT
+
+https://screenrant.com/most-disturbing-thrillers-ranked/
+
+Perfect thrillers have the power to chill viewers with gripping suspense, but these 10 disturbing flicks are unforgettable nightmare fuel.
+---------
+
+# Spider-Man: Brand New Day Officially Rewrites The MCU Ahead Of X-Men
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Sun, 02 Aug 2026 21:11:01 GMT
+
+https://screenrant.com/spider-man-brand-new-day-rewrites-mcu-jean-grey-xmen/
+
+Spider-Man: Brand New Day is one of the most important MCU movies to date, and it rewrites the franchise ahead of the Marvel X-Men movie reboot.
+---------
+
+# Zelda Meets Subnautica In Gorgeous New Action RPG
+
+Gaming, Steam, Indie Games, PC
+
+Sun, 02 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/tidespawn-zelda-subnautica-rpg/
+
+Tidespawn blends Zelda-style exploration with an enchanting underwater world, cozy pixel art, co-op, and dynamic tides.
+---------
+
+# 10 Best Quotes In Spider-Man: Brand New Day
+
+Superheroes, Marvel Cinematic Universe, Spider-Man, Spider-Man: Brand New Day
+
+Sun, 02 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-movie-quotes/
+
+Spider-Man: Brand New Day features emotional, hilarious, and inspiring dialogue. The best quotes exemplify the movie’s funny but mature tone.
+---------
+
+# The True Story Behind Bob Odenkirk's Seinfeld Cameo
+
+Classic TV, Seinfeld, Bob Odenkirk
+
+Sun, 02 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/bob-odenkirk-seinfeld-cameo-true-story-explained/
+
+Years before Bob Odenkirk started winning acclaim as Saul Goodman on Breaking Bad and Better Call Saul, there was a classic episode of Seinfeld.
+---------
+
+# Netflix’s New 6-Part Action Thriller Is Bloodhounds Meets The Punisher
+
+Streaming TV, Masked Recs
+
+Sun, 02 Aug 2026 20:52:11 GMT
+
+https://screenrant.com/netflix-wrath-series-must-watch/
+
+Wrath, Netflix's new 6-part action thriller series with sports and crime elements, is the perfect watch for fans of Bloodhounds and The Punisher.
+---------
+
+# 10 Greatest Shark Thriller Movies Of All Time, Ranked
+
+Movies, Thriller, Horror, Jaws, Jaws 2, The Devil's Mouth, Bait, Open Water, 47 Meters Down, The Meg, The Reef, The Shallows, Deep Blue Sea
+
+Sun, 02 Aug 2026 20:45:11 GMT
+
+https://screenrant.com/best-shark-thriller-movies-all-time-ranked/
+
+These terrifying shark thrillers might vary in quality, but they’ll all make audiences petrified of going back in the water ever again.
+---------
+
+# Blade Runner's Harrison Ford & Ryan Gosling Replacement Isn't Who We Thought
+
+Streaming TV, Blade Runner 2099
+
+Sun, 02 Aug 2026 20:30:11 GMT
+
+https://screenrant.com/blade-runner-new-harrison-ford-ryan-gosling-hunter-schafer/
+
+Blade Runner 2099 has confirmed that Hunter Schafer, not Michelle Yeoh, is the third franchise lead after Harrison Ford and Ryan Gosling.
+---------
+
+# 10 Naruto Characters Who Deserved Much Better Writing
+
+Anime, Naruto
+
+Sun, 02 Aug 2026 21:15:15 GMT
+
+https://www.cbr.com/naruto-characters-deserved-better-writing/
+
+Naruto has one of the most beloved casts of characters in all of anime, and practically all fans agree that most of them deserved better writing.
+---------
+
+# DC's $126M Box Office Bomb Fails to Stick the Landing After Early Digital Release Date
+
+Movies, Supergirl
+
+Sun, 02 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/supergirl-superhero-pvod-success-august-2026/
+
+The DC Universe was rebooted but its track record so far isn't great.
+---------
+
+# Avengers: Doomsday Is the Last Chance To Redeem Emma Frost
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe, Emma Frost
+
+Sun, 02 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/avengers-doomsday-redeem-x-men-villain-emma-frost/
+
+Avengers: Doomsday is bringing back several characters from Fox's X-Men franchise, but one missing villain needs redemption more than most.
+---------
+
+# Wonder Man Creator Seals the Show's Future After Shocking Season 2 Cancellation
+
+TV, Wonder Man
+
+Sun, 02 Aug 2026 20:33:03 GMT
+
+https://www.cbr.com/wonder-man-creator-clarifies-disney-plus-future/
+
+Wonder Man series creator Andrew Guest clarifies the rumors surrounding the show's fate on Disney+.
+---------
+
+# Supernatural's Most-Watched Episode Is the Most Problematic 42 Minutes of Winchester Lore
+
+TV, Supernatural, Horror, The CW
+
+Sun, 02 Aug 2026 20:30:14 GMT
+
+https://www.cbr.com/supernatural-route-666-most-watched-problematic-episode/
+
+Sam and Dean Winchester's most-watched Supernatural episode is still considered to be controversial among fans.
+---------
+
+# 'Grey's Anatomy' Star's Forgotten Spicy Series Impresses on Streaming Ahead of a New Season
+
+TV News, P-Valley, Drama, STARZ, Crime
+
+Sun, 02 Aug 2026 21:15:14 GMT
+
+https://collider.com/starz-p-valley-streaming-success-august-2026/
+
+Starz's hit drama, which has been on an unplanned hiatus for four years, continues to attract viewers. Get all the details here.
+---------
+
+# The MCU's New 'Ghost Rider' Is Bringing His Sci-Fi Masterpiece to Streaming
+
+Movie News, Ryan Gosling, Sci-Fi, Blade Runner 2049, Paramount Plus
+
+Sun, 02 Aug 2026 21:00:15 GMT
+
+https://collider.com/ryan-gosling-sci-fi-blade-runner-2049-streaming-paramount-plus-august-2026/
+
+Ryan Gosling's genius sci-fi sequel with Harrison Ford and Ana de Armas is coming to a new streamer. Here's everything you should know.
+---------
+
+# Apple TV Scores Big as Its Breakout Hit Is Officially Crowned #1 on Streaming
+
+TV News, Widow's Bay, Apple TV, Drama, Comedy
+
+Sun, 02 Aug 2026 20:30:14 GMT
+
+https://collider.com/apple-tv-widows-bay-streaming-success-august-2026/
+
+Apple TV's genre-bending hit continues to attract viewers following an impressive freshman season run. Get all the details here.
+---------
+
+# This Classic 4-Part Sci-Fi Thriller Officially Gets New Release in 9 Days
+
+TV News, Battlestar Galactica
+
+Sun, 02 Aug 2026 21:04:57 GMT
+
+https://movieweb.com/battlestar-galactica-complete-blu-ray/
+
+Battlestar Galactica: The Complete Series arrives on Blu-ray from Universal on August 11, 2026, featuring all four seasons across 21 discs.
+---------
+
+# Ridley Scott's 87% Rated Crime Thriller Classic Is Streaming for Free
+
+Movie News, Thelma & Louise, Tubi, Hot on Streaming
+
+Sun, 02 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/thelma-and-louise-ridley-scott-stream-free-tubi-august-2026/
+
+Some people forget that Ridley Scott made this movie.
+---------
+
+# Netflix’s 8-Part Harlan Coben Thriller Is So Good, It Beat a Netflix Record
+
+Features, I Will Find You, Netflix, Harlan Coben
+
+Sun, 02 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/i-will-find-you-netflix-thriller-record/
+
+Harlan Coben's novels have been adapted into many popular and memorable thriller TV shows for Netflix.
+---------
+
+# 10 Most Disturbing War Movies of All Time
+
+Movie Lists, War
+
+Sun, 02 Aug 2026 20:30:12 GMT
+
+https://movieweb.com/war-movies-most-disturbing/
+
+The ten most disturbing war movies ever made, from Unit 731 to nuclear Sheffield. Not for casual viewers, but worth watching.
+---------
+
 # 20 Years Later, Marvel Closes A Major Avengers Plothole
 
 Marvel Comics, The Avengers
@@ -5276,224 +5496,4 @@ Sat, 01 Aug 2026 12:20:15 GMT
 https://collider.com/x-men-emma-frost-casting-samara-weaving-emma-scott-jean-love-triangle/
 
 Samara Weaving has just been cast as Emma Frost, which may lead to the underrepresented love triangle featuring the psychic, Cyclops, and Jean Grey.
----------
-
-# ‘The Pitt’ Fans Shouldn’t Miss This Forgotten Medical Drama
-
-TV Features, Red Band Society, The Pitt, Fox, Series
-
-Sat, 01 Aug 2026 12:17:15 GMT
-
-https://collider.com/the-pitt-red-band-society-series-medical-drama/
-
-The Pitt fans looking for another emotional hospital drama should rediscover Fox’s overlooked Red Band Society.
----------
-
-# The Greatest Guy Ritchie Movie of All Time Is Officially Streaming for Free
-
-Movie Features, Snatch, Guy Ritchie, Brad Pitt, Jason Statham
-
-Sat, 01 Aug 2026 12:14:15 GMT
-
-https://collider.com/guy-ritchie-jason-statham-snatch-streaming-free-pluto-tv-august-2026/
-
-Guy Ritchie's 2000 gangster comedy Snatch, the director's best film that also gave Jason Statham his big break, is streaming free on Pluto TV.
----------
-
-# ‘Spider-Man: Brand New Day’ Officially Uses the MCU Better Than Any Marvel Movie Before It
-
-Movie Features, Tom Holland, Spider-Man: Brand New Day, MCU, Spider-Man
-
-Sat, 01 Aug 2026 12:03:14 GMT
-
-https://collider.com/spider-man-brand-new-day-best-mcu-shared-universe/
-
-Spider-Man: Brand New Day succeeds by treating the MCU like a living world around Peter Parker, not the focus of his story.
----------
-
-# This 'Simpsons' Marvel Parody Is Still Funnier Than the Actual Movies
-
-TV Features, The Simpsons, Fox, Marvel, Venom
-
-Sat, 01 Aug 2026 12:03:14 GMT
-
-https://collider.com/the-simpsons-venom-parody-treehouse-of-horror/
-
-The Treehouse of Horror episodes are a Halloween tradition, and this episode focused on a specific pair-up between Homer Simpson and denim.
----------
-
-# 10 Greatest Novellas of All Time
-
-Books and Comics, Books, Animal Farm, Of Mice and Men, The Metamorphosis
-
-Sat, 01 Aug 2026 12:03:14 GMT
-
-https://collider.com/best-novellas-all-time-ranked/
-
-Shorter than a normal book but no less complex, the novella has a unique place in literature, producing classics like Animal Farm and Of Mice and Men.
----------
-
-# 13 Years Later, Guillermo del Toro’s Sci-Fi Powerhouse Is a Global Streaming Sleeper Hit
-
-Movie News, Pacific Rim, Guillermo del Toro, Idris Elba, Charlie Hunnam
-
-Sat, 01 Aug 2026 12:01:14 GMT
-
-https://collider.com/guillermo-del-toro-sci-fi-pacific-rim-streaming-success-prime-video-apple-tv-july-2026/
-
-Guillermo del Toro's overlooked sci-fi thriller has become a global streaming success less than one year after Frankenstein.
----------
-
-# Liam Neeson's $795 Million Action Epic Storms Onto New Streaming Home
-
-Movie News, Liam Neeson, Clash of the Titans, Wrath of the Titans, Coming/Leaving Streaming, Action
-
-Sat, 01 Aug 2026 12:00:12 GMT
-
-https://movieweb.com/liam-neeson-clash-of-the-titans-action-streaming-peacock-august-2026/
-
-Ahead of his new action thrillers, 'The Fix' and 'The Mongoose,' Neeson's blockbuster action epic is set to finally return to streaming.
----------
-
-# Star Wars: Queen Amidala Officially Returns In 2027
-
-Gaming, Star Wars
-
-Sat, 01 Aug 2026 11:30:11 GMT
-
-https://screenrant.com/star-wars-queen-amidala-statue-2027-release/
-
-Sideshow and Hot Toys have unveiled a stunning Queen Amidala Sixth Scale Collectible Figure, capturing the iconic Star Wars character.
----------
-
-# 11 Best Sith Battles In Star Wars Canon
-
-Movies, Star Wars
-
-Sat, 01 Aug 2026 11:00:11 GMT
-
-https://screenrant.com/best-sith-battles-star-wars-canon/
-
-The Sith and Jedi fight constantly in Star Wars, but these 11 duels and battles are the absolute best the franchise's canon has to offer.
----------
-
-# 6 Perfect Video Games You Didn't Know Were Based On Books
-
-Gaming, BioShock, Disco Elysium, Metro 2033, Cyberpunk 2077, Parasite Eve, Lies of P
-
-Sat, 01 Aug 2026 11:00:11 GMT
-
-https://screenrant.com/6-perfect-video-games-based-on-books/
-
-Discover 6 video games inspired by books, from Bioshock's Ayn Rand influence to Metro 2033's post-apocalyptic novel roots.
----------
-
-# Pokémon Legends: Z-A Free Download Officially Yours Until August 6
-
-Gaming, Pokemon Legends Z-A
-
-Sat, 01 Aug 2026 10:30:11 GMT
-
-https://screenrant.com/pokemon-legends-za-free-download-august-6/
-
-Explore the rules and rewards of Pokémon Legends: Z-A's Season 14 Ranked Battles, featuring Flying-type Pokémon, Mega Evolutions, and more.
----------
-
-# 10 The Far Side Comics From 1985 That Perfectly Blend Confusion and Comedy
-
-Comics, The Far Side
-
-Sat, 01 Aug 2026 11:00:16 GMT
-
-https://www.cbr.com/the-far-side-comics-from-1985-confusing-but-funny/
-
-The Far Side comics are known to be confusing at times. There are many issues from 1985 that fit the bill, the best of which still prove hilarious.
----------
-
-# Prime Video Is Officially Rebooting Voltron For a New Generation
-
-Movies, Prime Video, Henry Cavill, Sci-Fi
-
-Sat, 01 Aug 2026 11:00:16 GMT
-
-https://www.cbr.com/prime-video-voltron-movie-reboot-greatest-sci-fi-franchise/
-
-Amazon MGM Studios is finally bringing a classic '80s sci-fi franchise back, and Transformers fans will love it.
----------
-
-# Matt Reeves Is Completely Rewriting a Classic Batman Villain
-
-TV, Batman, The Riddler, Batman: Caped Crusader, Prime Video
-
-Sat, 01 Aug 2026 10:30:14 GMT
-
-https://www.cbr.com/batman-caped-crusader-season-2-riddler-origin/
-
-The central rogue in in Batman: Caped Crusader Season 2 has a familiar name, but how he got it is an ingenious new approach to a familiar villain.
----------
-
-# ‘Stranger Things’ Officially Returns to Netflix in 2026 With New Episodes
-
-TV News, Stranger Things: Tales from '85, Stranger Things, Netflix, Duffer Brothers
-
-Sat, 01 Aug 2026 11:30:15 GMT
-
-https://collider.com/stranger-things-tales-from-85-season-2-netflix-release-date-2027/
-
-Netflix has officially confirmed that more episodes of Stranger Things will be released before the end of this year.
----------
-
-# Netflix’s Darker, More Twisted ‘Knives Out’ Replacement Is Perfect From Start to Finish
-
-TV Features, Master of the House, Knives Out, Thriller, Netflix
-
-Sat, 01 Aug 2026 11:23:16 GMT
-
-https://collider.com/netflix-knives-out-replacement-series-master-of-the-house/
-
-Netflix’s Master of the House blends Knives Out-style mystery with Succession-like family warfare in a dark, twisted thriller.
----------
-
-# The Western Epic That Quentin Tarantino Called “The Greatest Achievement in Cinema History” Is Officially Free to Stream
-
-Movie News, Quentin Tarantino, The Good, the Bad and the Ugly, Sergio Leone, Western
-
-Sat, 01 Aug 2026 11:00:15 GMT
-
-https://collider.com/the-good-the-bad-and-the-ugly-streaming-pluto-tv-august-2026/
-
-Quentin Tarantino's favorite spaghetti Western, The Good, the Bad and the Ugly, is free to stream this August. Find out where.
----------
-
-# 35 Years Later, This Game-Changing Album Made Rap-Rock Impossible to Ignore
-
-Music Features, Music, Metal, Aerosmith
-
-Sat, 01 Aug 2026 11:00:15 GMT
-
-https://collider.com/anthrax-public-enemy-bring-the-noise-song/
-
-Anthrax's groundbreaking 1991 cover of Public Enemy's Bring the Noise paved the way for rap-rock fusion, bridging two seemingly disparate genres.
----------
-
-# 6 Greatest Sci-Fi Shows on Prime Video That Are 10/10, No Notes
-
-TV, Sci-Fi, Science Fiction, Prime Video, The Boys
-
-Sat, 01 Aug 2026 10:52:14 GMT
-
-https://collider.com/greatest-sci-fi-shows-prime-video-no-notes/
-
-From the superhero satire The Boys to the hidden gem series Continuum, we highlight the best sci-fi shows currently streaming on Prime Video.
----------
-
-# One of the Most Beloved Sports Movies of the '90s Is Officially Heading to Paramount+
-
-Movie News, The Sandlot, Paramount Plus, Streaming, Sports
-
-Sat, 01 Aug 2026 10:30:14 GMT
-
-https://collider.com/the-sandlot-streaming-paramount-plus-august-2026/
-
-The Sandlot, the '90s classic and alternative to Ted Lasso, is about to become available on Paramount+. Find out more here.
 ---------
