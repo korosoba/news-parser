@@ -1,3 +1,146 @@
+# 15 Best Solo Class Builds For Baldur’s Gate 3
+
+Gaming, Baldur's Gate 3, Baldur's Gate, PC
+
+Sun, 02 Aug 2026 17:30:12 GMT
+
+https://screenrant.com/baldurs-gate-3-best-solo-class-builds/
+
+Although Baldur's Gate 3 provides a team of companions, some prefer to take on the game solo. These builds will help with that massive task.
+---------
+
+# Marshals Cast Change Solves CBS’s Taylor Sheridan Problem
+
+Network TV, Taylor Sheridan, Yellowstone, Marshals
+
+Sun, 02 Aug 2026 17:30:11 GMT
+
+https://screenrant.com/marshals-season-2-cal-change-taylor-sheridan-problem-solve/
+
+When Marshals returns for season 2, it will feature a major cast change, which will effectively solve its biggest Taylor Sheridan issue.
+---------
+
+# 10 PS1 Games That Aged Like Milk
+
+Gaming, PlayStation, PlayStation (Original), Sony, PC
+
+Sun, 02 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/playstation-1-games-aged-poorly/
+
+These PlayStation 1 games were incredibly popular when they first released, but it's a little hard to see why looking back now.
+---------
+
+# The Godfather Took 28 Years To Pay Off Its Greatest Line
+
+Movies, The Godfather
+
+Sun, 02 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/the-godfather-cannoli-line-payoff/
+
+Everyone remembers the "take the cannoli" line from The Godfather, but Francis Ford Coppola didn't pay it off until The Godfather Part III.
+---------
+
+# As A Star Wars Fan, I'm So Disappointed By This Spider-Man: Brand New Day Decision
+
+Movies, Spider-Man: Brand New Day
+
+Sun, 02 Aug 2026 16:55:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-star-wars-eman-esfandi-disappointed/
+
+Spider-Man: Brand New Day is an excellent movie, but for Star Wars fans, there was one major disappointment, especially based on the trailers.
+---------
+
+# Taylor Sheridan Quietly Makes Acting Return in His Hit Spy Show
+
+TV, Lioness
+
+Sun, 02 Aug 2026 17:51:25 GMT
+
+https://www.cbr.com/taylor-sheridan-acting-return-lioness-season-3/
+
+The TV mogul is generally known for his work as a creator, filmmaker, and writer, but he got his start as an actor.
+---------
+
+# Star Wars' Obi-Wan Kenobi Officially Returns September 2026
+
+Games, Star Wars, Star Wars: Episode II - Attack of the Clones
+
+Sun, 02 Aug 2026 17:35:15 GMT
+
+https://www.cbr.com/star-wars-obi-wan-kenobi-official-return-september-2026/
+
+Star Wars fans are about to get a brand-new Obi-Wan Kenobi release ripped straight out of one of the character's most iconic appearances.
+---------
+
+# Marvel's Wolverine Is Finally Giving The Best X-Men Villain A Starring Role
+
+Games, Marvel's Wolverine, PlayStation 5, X-Men
+
+Sun, 02 Aug 2026 17:15:15 GMT
+
+https://www.cbr.com/marvels-wolverine-gives-best-x-men-villain-starring-role/
+
+Marvel's Wolverine might be missing the X-Men, but one of the team's best villains is finally taking the spotlight after being ignored for so long.
+---------
+
+# Chris Pine's 28 Days Later Replacement Returns as a Streaming Hit 17 Years After Flopping in Theaters
+
+Movies, Carriers
+
+Sun, 02 Aug 2026 17:00:16 GMT
+
+https://www.cbr.com/chris-pine-carriers-post-apocalyptic-paramount-plus-success-august-2026/
+
+One of the most divisive post-apocalyptic thrillers of the past two decades is making a run for the top of the streaming charts after 17 years.
+---------
+
+# The 170-Minute Crime Epic That Inspired 'The Dark Knight' Is Free to Stream
+
+Movie News, Heat, The Dark Knight, Al Pacino, Robert De Niro
+
+Sun, 02 Aug 2026 17:00:15 GMT
+
+https://collider.com/michael-mann-crime-epic-heat-streaming-pluto-tv-august-2026/
+
+Michael Mann's classic crime epic Heat, which inspired Christopher Nolan's The Dark Knight, is coming to free streaming.
+---------
+
+# 'Star Trek ' Meets 'Top Gun' in an Upcoming Space Opera Series I Can't Wait For
+
+Features, Sci-Fi, Star Trek, Top Gun
+
+Sun, 02 Aug 2026 17:30:12 GMT
+
+https://movieweb.com/skyward-brandon-sanderson-star-trek-meets-top-gun/
+
+There's great news for sci-fi fans. Brandon Sanderson’s sci-fi book series is being adapted into a TV show.
+---------
+
+# Every New Movie and TV Show Coming to Peacock in August 2026
+
+Features, Peacock
+
+Sun, 02 Aug 2026 17:30:12 GMT
+
+https://movieweb.com/peacock-new-moive-tv-august-2026/
+
+Peacock is adding a massive catalog of great films alongside new TV series as part of their August 2026 lineup.
+---------
+
+# Movie Theaters Enjoy Biggest Domestic Box Office Weekend in History
+
+Movie News, Spider-Man, Spider-Man: Brand New Day, box office, The Odyssey, Movie Theaters
+
+Sun, 02 Aug 2026 16:55:04 GMT
+
+https://movieweb.com/box-office-record-spider-man-odyssey/
+
+With thanks to 'Spider-Man: Brand New Day' and 'The Odyssey.'
+---------
+
 # Samara Weaving Suits Up As X-Men’s Emma Frost In Stunning New MCU Art
 
 Movies, X-Men, Marvel Cinematic Universe, Emma Frost
@@ -5353,147 +5496,4 @@ Sat, 01 Aug 2026 00:30:11 GMT
 https://screenrant.com/harry-potter-show-plotlines-cant-mess-up/
 
 It's impossible for a screen adaptation to get it all right, but HBO's Harry Potter TV show will have no excuse if it drops the ball on these stories.
----------
-
-# 3 Best Movies To Watch On Prime Video This Weekend (August 1-2)
-
-Movies, Prime Video, Recommendation
-
-Sat, 01 Aug 2026 00:22:02 GMT
-
-https://screenrant.com/best-prime-video-movies-watch-weekend-august-1/
-
-Prime Video's best movies to watch this weekend include a new shark thriller, a video game adventure adaptation, and a spy thriller with Jon Bernthal.
----------
-
-# The 24-Episode Sci-Fi Masterpiece Based on an Classic Book
-
-Anime, Gankutsuou The Count of Monte Cristo, Sci-Fi
-
-Sat, 01 Aug 2026 02:00:24 GMT
-
-https://www.cbr.com/sci-fi-masterpiece-gankutsuou-count-of-monte-cristo/
-
-Rather than competing with its literary inspiration, Gankutsuou builds a distinct identity that feels impossible to mistake for anything else.
----------
-
-# 5 Stephen King Books Better Than Salem's Lot
-
-TV, Horror, Stephen King, Salem's Lot, The Shining
-
-Sat, 01 Aug 2026 02:00:24 GMT
-
-https://www.cbr.com/stephen-king-books-better-than-salems-lot-list/
-
-Salem's Lot is without a doubt one of Stephen King's defining works, but the prolific author's catalog is filled with unforgettable classics.
----------
-
-# 8 Things That Happen In Harry Potter's First Book That Everyone Forgets
-
-Movies, Harry Potter, Harry Potter and the Sorcerer's Stone, Fantasy
-
-Sat, 01 Aug 2026 02:00:24 GMT
-
-https://www.cbr.com/harry-potter-sorcerers-stone-forgotten-facts-list/
-
-Although the movie version of Harry Potter and the Sorcerer's Stone is pretty faithful to the book, there are a few things the movie doesn't include.
----------
-
-# 10 Greatest Anime Movies of the 2000s, Ranked
-
-Anime, Studio Ghibli
-
-Sat, 01 Aug 2026 01:45:15 GMT
-
-https://www.cbr.com/greatest-anime-movies-of-the-2000s-ranked/
-
-The 2000s changed anime forever, and it was films like Spirited Away and The Girl Who Leapt Through Time are what brought it to the mainstream.
----------
-
-# 10 Best Anime Crossover Games, Ranked
-
-Anime, mecha, Shonen, Video Games, Shonen Jump
-
-Sat, 01 Aug 2026 01:25:14 GMT
-
-https://www.cbr.com/best-anime-crossover-games-ranked/
-
-Whether it's mecha or shonen, there are plenty of games that prove anime can work in crossovers.
----------
-
-# Naruto vs. Boruto Is Finally Settled in New Official Anime Ranking
-
-Anime, Naruto, Boruto: Naruto Next Generations
-
-Sat, 01 Aug 2026 01:13:37 GMT
-
-https://www.cbr.com/naruto-vs-boruto-tv-tokyo-anime-ranking/
-
-Japanese broadcaster TV Tokyo’s anime sales data has officially revealed which series performed better.
----------
-
-# 5 Anime Endings That Are 10/10, No Notes
-
-Anime, Attack on Titan, Fruits Basket
-
-Sat, 01 Aug 2026 00:45:16 GMT
-
-https://www.cbr.com/best-anime-endings-perfect/
-
-Some anime finales disappoint and leave questions unanswered, but these five series have perfect endings.
----------
-
-# The 25-Episode Sci-Fi Masterpiece is Based On an Award-Winning Book
-
-Anime, From the New World, Fantasy
-
-Sat, 01 Aug 2026 00:30:15 GMT
-
-https://www.cbr.com/from-the-new-world-sci-fi-masterpiece-anime-award-winning-book/
-
-From the New World is a groundbreaking sci-fi/fantasy series that explores systemic abuse and oppression through a powerful, provoking lens.
----------
-
-# Prime Video's 8-Part Retro Sci-Fi Series Is the Best Slow-Burn Show of the Decade
-
-TV, Sci-Fi, Tales from the Loop, Prime Video
-
-Sat, 01 Aug 2026 00:30:15 GMT
-
-https://www.cbr.com/tales-from-the-loop-prime-video-best-slow-burn-sci-fi-show/
-
-Based on Simon Stålenhag’s artwork, Prime Video's Tales from the Loop swaps sci-fi action for emotional and atmospheric nostalgia.
----------
-
-# 5 Anime Heroes With Powers Stronger Than Sukuna
-
-Anime, Jujutsu Kaisen, One Piece, Sailor Moon, Dragon Ball, Naruto, My Hero Academia
-
-Sat, 01 Aug 2026 00:15:15 GMT
-
-https://www.cbr.com/anime-heroes-stronger-than-sukuna-jjk/
-
-Ryomen Sukuna is no match for these anime heroes, who have proved their worth countless times.
----------
-
-# ‘Dungeons & Dragons’ Officially Announces Star Wars Crossover
-
-Movie News, Star Wars, World of Warcraft, Dungeons and Dragons, Fantasy
-
-Sat, 01 Aug 2026 02:00:24 GMT
-
-https://collider.com/dungeons-and-dragons-star-wars-world-of-warcraft-crossover/
-
-Dungeons & Dragons expands its horizons with Universes Beyond, announcing collaborations with World of Warcraft and Star Wars.
----------
-
-# 'The Walking Dead' Meets 'Jack Ryan' in Netflix's 5-Part Apocalypse Series
-
-TV Features, The Last Ship, TNT, Netflix, Eric Dane
-
-Sat, 01 Aug 2026 01:55:14 GMT
-
-https://collider.com/the-last-ship-netflix-post-apocalyptic-series/
-
-The hit action-drama TV series The Last Ship presents the perfect mix of apocalyptic drama like The Walking Dead and Jack Ryan-style intrigue.
 ---------
