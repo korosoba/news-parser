@@ -1,3 +1,91 @@
+# New Zelda: Ocarina Of Time Gameplay Leaves Fans Torn
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Sun, 02 Aug 2026 09:30:11 GMT
+
+https://screenrant.com/new-zelda-ocarina-of-time-decomp-ai-controversy/
+
+The Ocarina of Time is back in a big way later this year, but while we wait for that, new gameplay has fans torn about whether it was needed at all.
+---------
+
+# Howl's Moving Castle Meets Stardew Valley In This Charming Freebie
+
+Gaming, Howl's Moving Castle, Stardew Valley
+
+Sun, 02 Aug 2026 09:00:12 GMT
+
+https://screenrant.com/howls-moving-castle-stardew-valley-mod/
+
+Discover the enchanting crossover of Howl's Moving Castle and Stardew Valley with a new mod.
+---------
+
+# 10 Essential Sci-Fi Shows You Need To Watch Before You Die
+
+TV, Sci-Fi, The Twilight Zone, The X-Files, Star Trek: The Next Generation
+
+Sun, 02 Aug 2026 09:26:15 GMT
+
+https://collider.com/essential-sci-fi-shows-watch-before-you-die/
+
+Discover the essential sci-fi TV shows that are foundational to the genre, including series like The Twilight Zone, The X-Files, and Doctor Who.
+---------
+
+# The Western Quentin Tarantino Loves Despite His Hatred for Its Director Is Officially Free to Stream
+
+Movie News, John Wayne, John Ford, Stagecoach, Western
+
+Sun, 02 Aug 2026 09:20:15 GMT
+
+https://collider.com/john-wayne-western-stagecoach-1939-streaming-on-kanopy-august-2026/
+
+The classic John Wayne Western Stagecoach, directed by Quentin Tarantino's sworn enemy John Ford, is coming to free streaming.
+---------
+
+# Tom Cruise’s Forgotten $286 Million Sci-Fi Epic Is Quietly Becoming a Global Streaming Sensation
+
+Movie News, Sci-Fi, Oblivion, Tom Cruise, Joseph Kosinski
+
+Sun, 02 Aug 2026 09:00:15 GMT
+
+https://collider.com/tom-cruise-sci-fi-oblivion-streaming-success-itunes-store-august-2026/
+
+Tom Cruise’s $286 million sci-fi epic Oblivion is enjoying another surge in popularity more than a decade after its theatrical release.
+---------
+
+# ‘John Wick’ Meets ‘The Equalizer’ in Jon Bernthal’s 10/10 Action Sleeper Hit Officially on Prime Video
+
+Movie News, The Accountant, Jon Bernthal, The Odyssey, Spider-Man: Brand New Day
+
+Sun, 02 Aug 2026 08:40:15 GMT
+
+https://collider.com/jon-bernthal-the-accountant-streaming-success-prime-video-august-2026/
+
+Jon Bernthal's beloved action movie with shades of both John Wick and The Equalizer has become a must-watch sleeper hit on streaming.
+---------
+
+# Tom Holland's Divisive Adventure Epic Surges to #1 on Hulu
+
+Movie News, Uncharted, Tom Holland, Mark Wahlberg, Spider-Man: Brand New Day
+
+Sun, 02 Aug 2026 08:20:15 GMT
+
+https://collider.com/tom-holland-uncharted-streaming-success-hulu-august-2026/
+
+Tom Holland and Mark Wahlberg's Uncharted movie has surged to #1 on streaming despite no new updates on the planned sequel.
+---------
+
+# Chris Pratt’s $200 Million Sci-Fi Blockbuster Is a Certified Global Streaming Hit
+
+Movie News, The Tomorrow War, Chris Pratt, Prime Video, Sci-Fi
+
+Sun, 02 Aug 2026 08:00:15 GMT
+
+https://collider.com/chris-pratt-sci-fi-the-tomorrow-war-streaming-success-prime-video-august-2026/
+
+The Tomorrow War, Chris Pratt's $200 million sci-fi blockbuster, has become a certified streaming hit on Prime Video.
+---------
+
 # Lord Of The Rings Officially Returns September 2026
 
 Gaming, The Lord of the Rings, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Rings of Power, The Lord of the Rings: Shadow of the Past, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings: The Return of the King, The Lord of the Rings: The Fellowship of the Ring, PC
@@ -5408,92 +5496,4 @@ Fri, 31 Jul 2026 19:31:21 GMT
 https://www.cbr.com/spider-man-film-book-hollywood-history-excerpt/
 
 CBR Deputy Editor Sean O'Connell has an updated edition of his book about Spider-Man's history in film, and CBR has an exclusive excerpt
----------
-
-# Netflix's The Da Vinci Code Follow-Up Casts Godzilla Star as Lead
-
-TV, The Da Vinci Code, The Beauty, Godzilla x Kong: The New Empire
-
-Fri, 31 Jul 2026 19:26:10 GMT
-
-https://www.cbr.com/the-secret-of-secrets-netflix-casts-rebecca-hall/
-
-Netflix has officially signed on the star of Godzilla and The Beauty for a leading role in its The Da Vinci Code sequel series.
----------
-
-# HBO Officially Pulls the Plug on DCU Sci-Fi Series After a 3-Year Wait
-
-TV, DCU, HBO Max, Sci-Fi
-
-Fri, 31 Jul 2026 19:16:31 GMT
-
-https://www.cbr.com/booster-gold-tv-show-canceled-hbo-dcu-dc-studios/
-
-After 3 years of waiting, the highly anticipated DC sci-fi show isn't happening after all.
----------
-
-# 5 Greatest Short Anime Series of the 21st Century
-
-Anime
-
-Fri, 31 Jul 2026 19:15:14 GMT
-
-https://www.cbr.com/greatest-short-anime-series-of-the-21st-century/
-
-The 21st century has brought fans some of the greatest anime of all time, including ones that can be watched in a single day.
----------
-
-# Strange New Worlds May Be Setting Its Best Original Character Up for a Tragic Ending
-
-TV, Star Trek, Star Trek: Strange New Worlds
-
-Fri, 31 Jul 2026 19:00:15 GMT
-
-https://www.cbr.com/strange-new-worlds-setting-up-laan-noonien-singh-tragic-ending/
-
-One of the best original characters in Strange New Worlds isn't in Star Trek: The Original Series, and it may be because she met a tragic fate.
----------
-
-# HBO Max’s Latest Updates Could Mark the End of an Era for the Streamer
-
-TV Features, HBO Max, Warner Bros., HBO, Discovery
-
-Fri, 31 Jul 2026 20:08:14 GMT
-
-https://collider.com/hbo-max-latest-update-end-era-for-streamer-ai-mobile/
-
-HBO Max's new "Enhanced Content Discovery" features will push users towards its mobile app and curate homogenized content for them.
----------
-
-# Before Ryan Gosling's 'Ghost Rider,' Nicolas Cage's Marvel Movies Find a New Streaming Home
-
-Movie News, Ghost Rider, Ghost Rider: Spirit of Vengeance, Tubi, Nicolas Cage
-
-Fri, 31 Jul 2026 20:00:17 GMT
-
-https://collider.com/nicolas-cage-ghost-rider-franchise-free-streaming-tubi-august-2026/
-
-Before Ryan Gosling's Ghost Rider joins the MCU, Nicolas Cage's 2007 and 2012 films find a new free streaming home.
----------
-
-# The Lord of the Rings Officially Brings Back The One Ring for New 2026 Release
-
-Gaming News, The Lord of the Rings, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Fellowship of the Ring, Prime Video
-
-Fri, 31 Jul 2026 19:59:53 GMT
-
-https://collider.com/lord-of-the-rings-the-one-ring-rpg-release-date-september-2026/
-
-Ahead of Rings of Power Season 3 and The Hunt for Gollum, The Lord of the Rings universe is expanding with a new 2026 release.
----------
-
-# Sam Raimi Officially Teams Up With Stephen King for First Time on '90s Horror Adaptation
-
-Movie News, Stephen King, Sam Raimi, Zach Lipovsky, Horror
-
-Fri, 31 Jul 2026 19:59:12 GMT
-
-https://collider.com/sam-raimi-stephen-king-desperation-movie-adaptation/
-
-Evil Dead icon Sam Raimi is finally making a Stephen King adaptation, with the duo behind Final Destination: Bloodlines attached to direct.
 ---------
