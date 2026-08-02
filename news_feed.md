@@ -1,3 +1,245 @@
+# Iron Man Debuts 'Knullbuster' Armor for First Time Against the King in Black
+
+Comics, Iron Man
+
+Sun, 02 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/iron-man-new-armor-knullbuster/
+
+A dark armor.
+---------
+
+# 7 Ways Spider-Man: Brand New Day Sets Up The MCU’s X-Men Movie
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe, Marvel's X-Men
+
+Sun, 02 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/spiderman-brand-new-day-x-men-movie-setup/
+
+The MCU's X-Men movie is making major progress, and Spider-Man: Brand New Day has set up the mutant-led feature in several significant ways.
+---------
+
+# 10 Sitcoms From The '80s That Have Aged Like Fine Wine, Ranked
+
+Classic TV
+
+Sun, 02 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/best-1980s-sitcoms-aged-like-fine-wine-ranked/
+
+These 10 sitcoms from the 1980s have stood the test of time, offering timeless humor & relatable characters that continue to entertain audiences.
+---------
+
+# Wonder Man Showrunner Speaks Out After Brutal Cancellation
+
+TV, Wonder Man
+
+Sun, 02 Aug 2026 12:09:51 GMT
+
+https://screenrant.com/wonder-man-showrunner-andrew-guest-cancellation-response/
+
+The story of Wonder Man's cancellation has taken another devastating turn, as showrunner Andrew Guest reveals his thoughts on the shocking news.
+---------
+
+# Quentin Tarantino's 3-Part Action Horror Franchise Is Officially Streaming On New Home
+
+Movies, Quentin Tarantino, Masked Recs
+
+Sun, 02 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/quentin-tarantino-from-dusk-till-dawn-franchise-paramount-plus-streaming-release-august-2026/
+
+Fans are still waiting for Quentin Tarantino's tenth directorial feature, but they can check out a cut classic he helped create on streaming now.
+---------
+
+# Zelda: Tears Of The Kingdom DLC Officially Arrives Next Month
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Tears of the Kingdom
+
+Sun, 02 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/zelda-tears-of-the-kingdom-mineru-dlc-september-2026/
+
+With all of the hubbub around the Ocarina of Time, you might have missed that there's a new Tears of the Kingdom release on the way.
+---------
+
+# 8 Best Garfield Lasagna Comics That Are Still Hilarious
+
+Comics, Garfield
+
+Sun, 02 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/best-garfield-lasagna-comics-funny/
+
+Garfield is known for his hilarious love of lasagna, but these eight comics prove that Garfield's love for the dish is funnier than you thought.
+---------
+
+# Knives Out Meets Gone Girl In Prime Video’s Underrated 8-Part Crime Thriller
+
+Streaming TV, Masked Recs
+
+Sun, 02 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/prime-video-the-better-sister-thriller-like-knives-out-gone-girl/
+
+Prime Video's underrated, eight-episode miniseries is a masterful crime thriller that combines the best aspects of both Gone Girl and Knives Out.
+---------
+
+# 10 Movies To Watch If You Love Forrest Gump
+
+Movies, Forrest Gump, Big Fish, The Secret Life of Walter Mitty, The Terminal, The Butler, About Time, The Peanut Butter Falcon, The Curious Case of Benjamin Button, Rain Man, Fried Green Tomatoes, Good Morning, Vietnam
+
+Sun, 02 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/movies-like-forrest-gump/
+
+For those who truly loved Forrest Gump, these movies capture the same heartfelt storytelling, unconventional drama, and heartwarming charm.
+---------
+
+# The Only Deadwood Character to Steal the Show From Timothy Olyphant
+
+TV, Deadwood, hbo, Western
+
+Sun, 02 Aug 2026 12:30:15 GMT
+
+https://www.cbr.com/hbo-deadwood-trixie-character-arc/
+
+Timothy Olyphant shines as Sheriff Seth Bullock in HBO's Deadwood, yet another actor still manages to steal the show.
+---------
+
+# Star Wars Confirms The Mandalorian and Grogu's Return After Controversial Movie
+
+Comics, The Mandalorian and Grogu
+
+Sun, 02 Aug 2026 12:00:15 GMT
+
+https://www.cbr.com/the-mandalorian-and-grogu-nightmare-on-nevarro-confirmed/
+
+The Mandalorian and Grogu are set to make their return for an all-new spin-off.
+---------
+
+# The Best Star Trek II Line is Still the Greatest Quote in Sci-Fi Movie History
+
+Movies, Star Trek II: The Wrath of Khan, Star Trek, Sci-Fi
+
+Sun, 02 Aug 2026 11:31:15 GMT
+
+https://www.cbr.com/star-trek-ii-captain-kirk-line-best-sci-fi-movie-quote/
+
+Captain Kirk delivers the single greatest line in sci-fi history in the beloved Star Trek II: Wrath of Khan.
+---------
+
+# Forget ‘Taken,’ Liam Neeson’s Ultimate Action Thriller Is Officially Dominating Streaming
+
+Movie News, The Grey, Liam Neeson, Action, Thriller
+
+Sun, 02 Aug 2026 12:30:14 GMT
+
+https://collider.com/liam-neeson-survival-the-grey-streaming-success-netflix-august-2026/
+
+Liam Neeson’s acclaimed survival thriller The Grey remains an essential streaming watch more than a decade after its release.
+---------
+
+# The 10 Best Video Game Antiheroes of All Time, Ranked
+
+TV, Video Game, BioShock Infinite, The Witcher 3: Wild Hunt, God of War
+
+Sun, 02 Aug 2026 12:21:14 GMT
+
+https://collider.com/best-game-antiheroes-all-time-ranked/
+
+Meet the best video game antiheroes, ranked by their writing and characterization, from The Witcher's Geralt of Rivia to God of War's Kratos.
+---------
+
+# Paramount+'s 'Resurrection' of a Long-Dormant Crime Thriller Is Killing It on Streaming
+
+TV News, Dexter: Resurrection, Michael C. Hall, Paramount Plus, Dexter
+
+Sun, 02 Aug 2026 12:00:15 GMT
+
+https://collider.com/dexter-resurrection-streaming-success-paramount-plus-august-2026/
+
+Michael C. Hall's best new Dexter show over on Paramount is soaring on streaming charts before the premiere of Season 2.
+---------
+
+# 'Severance' Meets 'Fallout' in Apple TV's 3-Part Sci-Fi Series
+
+TV Features, Silo, Apple TV, Severance, Fallout
+
+Sun, 02 Aug 2026 11:57:15 GMT
+
+https://collider.com/silo-apple-tv-sci-fi-series/
+
+Silo blends the post-apocalyptic themes of Fallout with the mind-bending mysteries of Severance to make a thrilling 3-part series.
+---------
+
+# Clint Eastwood's 112-Minute Prison Classic Is Coming to Streaming 47 Years Later
+
+Movie News, Clint Eastwood, Drama, Escape from Alcatraz, Paramount Plus
+
+Sun, 02 Aug 2026 11:45:15 GMT
+
+https://collider.com/clint-eastwood-escape-from-alcaztraz-streaming-paramount-plus-august-2026/
+
+Clint Eastwood's 112-minute prison thriller is coming to a new streamer. Here's everything you should know about Escape From Alcatraz.
+---------
+
+# 10 Forgotten Spider-Man Characters We Need in 2026
+
+Books and Comics, Comic Book, Spider-Man, Superhero, Spider-Man: Brand New Day
+
+Sun, 02 Aug 2026 11:44:15 GMT
+
+https://collider.com/spider-man-forgotten-characters-we-need-2026/
+
+From Rocket Racer to Cardiac, these forgotten Spider-Man characters are good enough to make a long-awaited return to the hero's comic book continuity.
+---------
+
+# 5 Book-to-TV Adaptations That Actually Improved on the Source Material
+
+TV Features, Books, The Queen's Gambit, Big Little Lies, Series
+
+Sun, 02 Aug 2026 11:43:15 GMT
+
+https://collider.com/tv-adaptations-better-than-books/
+
+These five TV adaptations didn’t just honor their source material—they arguably improved on it, from The Leftovers to The Queen’s Gambit.
+---------
+
+# The Star of Guy Ritchie's Best TV Series Is Bringing Her 2019 Creature Feature to Paramount+
+
+Movie News, Kaya Scodelario, Crawl, Paramount Plus, Sam Raimi
+
+Sun, 02 Aug 2026 11:31:15 GMT
+
+https://collider.com/crawl-streaming-paramount-plus-august-2026/
+
+The Gentlemen’s Kaya Scodelario faces off against alligators in the creature feature Crawl, coming to streaming soon. Find out more here.
+---------
+
+# 'G.I. Joe's Official Action Adventure Replacement Adaptation Confirmed
+
+Movie News, GI Joe, Action Man
+
+Sun, 02 Aug 2026 12:13:55 GMT
+
+https://movieweb.com/action-man-movie-adaptations-hasbro-toy/
+
+Hasbro is really all in on making films based on its extensive toy properties.
+---------
+
+# Netflix Scores Big With 86-Minute Horror Sequel That's Officially a Global Smash
+
+Movie News, Quarantine 2: Terminal, Hot on Streaming, Horror, Netflix
+
+Sun, 02 Aug 2026 12:00:12 GMT
+
+https://movieweb.com/quarantine-2-horror-streaming-netflix-august-2026/
+
+Netflix has found a new surprise hit with a divisive horror sequel that critics actually liked more than fans.
+---------
+
 # What Happens To Strange New Worlds' Missing Characters During Star Trek: The Original Series? I Think I Know
 
 TV, Star Trek, Star Trek: Strange New Worlds, Op-Ed
@@ -5254,246 +5496,4 @@ Fri, 31 Jul 2026 20:40:19 GMT
 https://screenrant.com/new-girl-revival-writing-update-scripts-max-greenfield/
 
 New Girl has finally got a hopeful update, as one of the main stars has finally given a serious writing update following years of endless banter.
----------
-
-# In The Wake Of Doomsday, Marvel Announces New Universe
-
-Marvel Comics, Marvel
-
-Fri, 31 Jul 2026 20:30:11 GMT
-
-https://screenrant.com/marvel-new-universe-webtoon-deadpool-xmen-iron-man/
-
-Marvel announces three projects that kick off a new era and promise to launch an entirely new universe, with different takes on familiar characters.
----------
-
-# The Gilded Age Meets Downton Abbey In Apple TV's Lavish 3-Part Period Drama
-
-Streaming TV, Masked Recs
-
-Fri, 31 Jul 2026 20:30:11 GMT
-
-https://screenrant.com/the-buccaneers-apple-tv-gilded-age-downton-abbey-comparison/
-
-The Americans and the Brits collide in Apple TV's stunning three-season period drama, perfect for fans of The Gilded Age and Downton Abbey.
----------
-
-# New X-Files Meets Rick & Morty Sci-Fi Series Is Conquering HBO Max
-
-TV, President Curtis
-
-Fri, 31 Jul 2026 20:18:06 GMT
-
-https://screenrant.com/president-curtis-rick-morty-spinoff-hbo-max-streaming-success-july-2026/
-
-The new Rick and Morty spinoff President Curtis, which also blends in elements of The X-Files, is already a massive success on HBO Max.
----------
-
-# Disney+'s New Space Opera Officially Crowned One of Streaming's Biggest Hits
-
-Movies, Avatar: Fire and Ash, Avatar, Disney+
-
-Fri, 31 Jul 2026 21:33:03 GMT
-
-https://www.cbr.com/avatar-fire-and-ash-sci-fi-disney-plus-billion-minutes-watched-july-2026/
-
-The epic sci-fi movie is a big hit on Disney+.
----------
-
-# Batman: Under the Red Hood Has the Greatest Bruce Wayne Quote
-
-Movies, Batman: Under the Red Hood
-
-Fri, 31 Jul 2026 21:30:14 GMT
-
-https://www.cbr.com/batman-under-the-red-hood-movie-best-bruce-wayne-quote/
-
-Jensen Ackles delivers a powerful line that challenges Batman's no-kill rule, further showcasing the Dark Knight's unwavering commitment to his code.
----------
-
-# USA Network's 7-Season Spy Masterpiece Is Heading to Free Streaming Next Month
-
-TV, Burn Notice
-
-Fri, 31 Jul 2026 21:30:14 GMT
-
-https://www.cbr.com/burn-notice-pluto-tv-free-august-2026/
-
-One of the most beloved spy dramas of the past two decades is about to have a new streaming home while fans wait for a reunion series.
----------
-
-# 7 Most Useless Bankai in Bleach
-
-Anime, Bleach
-
-Fri, 31 Jul 2026 21:16:14 GMT
-
-https://www.cbr.com/bleach-most-useless-bankai/
-
-Every Zanpakuto has a Shikai release, but its true potential is unlocked through Bankai, the weapon's final and most powerful form.
----------
-
-# Sam Raimi Finally Teams Up With Stephen King for Adaptation of 30-Year-Old Novel
-
-Movies, Stephen King
-
-Fri, 31 Jul 2026 21:10:16 GMT
-
-https://www.cbr.com/stephen-king-sam-raimi-desperation-movie/
-
-Horror legends Sam Raimi and Stephen King are finally joining forces for the very first time.
----------
-
-# Taylor Sheridan's Hit Spy Series Finally Returns With Strong Rotten Tomatoes Score
-
-TV, Lioness
-
-Fri, 31 Jul 2026 21:05:34 GMT
-
-https://www.cbr.com/taylor-sheridan-lioness-season-3-rotten-tomatoes-score/
-
-After a two-year wait, the show has impressed critics.
----------
-
-# Star Trek Officially Returns With 30 New Episodes on YouTube This Year
-
-TV, Star Trek, YouTube, Sci-Fi
-
-Fri, 31 Jul 2026 21:05:15 GMT
-
-https://www.cbr.com/star-trek-scouts-season-2-youtube/
-
-Star Trek is back on YouTube.
----------
-
-# 10 Greatest Psychological Thrillers of the Last 50 Years, Ranked
-
-Movies, Thriller, Fight Club, Gone Girl
-
-Fri, 31 Jul 2026 21:00:15 GMT
-
-https://www.cbr.com/best-psychological-thrillers-last-50-years-list/
-
-The last 50 years saw Hollywood turn in one brilliant psychological thriller after another, from surreal mysteries to masterpieces of paranoia.
----------
-
-# Steam Officially Makes 4 Games 100% Free Until August 3, Available Now
-
-Games, Steam, WWE
-
-Fri, 31 Jul 2026 20:45:14 GMT
-
-https://www.cbr.com/steam-4-games-free-until-august-3-official-available-now/
-
-Three underrated indie titles and one hit wrestling game are all officially free on Steam, although they won't be for much longer.
----------
-
-# 10 Marvel Easter Eggs You Missed in Spider-Man: Brand New Day
-
-Movies, Spider-Man: Brand New Day, MCU, Spider-Man
-
-Fri, 31 Jul 2026 20:30:14 GMT
-
-https://www.cbr.com/spider-man-brand-new-day-marvel-easter-eggs-references-list-ranked/
-
-Spider-Man: Brand New Day is finally in theaters. Here are all the easter eggs, references, and details you missed.
----------
-
-# Netflix Scores a Global Hit With Twisty New 90-Minute True-Crime Nightmare
-
-Movie News, Netflix, Crime, The Tinder Swindler, American Nightmare
-
-Fri, 31 Jul 2026 21:30:14 GMT
-
-https://collider.com/netflix-true-crime-a-toxic-love-story-streaming-success-july-2026/
-
-A shocking new true-crime documentary is dominating Netflix charts worldwide, turning one real case into a chilling obsession.
----------
-
-# 'G.I. Joe' Replacement Movie Officially in the Works From 'X-Men '97' Writer
-
-Movie News, Hasbro, Action Man
-
-Fri, 31 Jul 2026 21:25:36 GMT
-
-https://collider.com/gi-joe-replacement-action-man-movie/
-
-As Danny McBride's G.I. Joe movie moves forward, the cult classic figure Action Man is getting his very own film. Read on for more details.
----------
-
-# One ‘Breaking Bad’ Character Proved He Was Better Than Walter White
-
-TV Features, Breaking Bad, Better Call Saul, Bob Odenkirk, Bryan Cranston
-
-Fri, 31 Jul 2026 21:24:14 GMT
-
-https://collider.com/breaking-bad-best-character-saul-goodman-more-redeemable-than-walter-white/
-
-Better Call Saul proves Jimmy McGill is more redeemable than Walter White through the choices that ultimately define both men.
----------
-
-# 6 Best Thriller Movies Released Since 1990
-
-Movie, The Usual Suspects, Thriller, Memento, Se7en
-
-Fri, 31 Jul 2026 21:05:14 GMT
-
-https://collider.com/best-thriller-movies-since-1990-ranked/
-
-Memento, The Silence of the Lambs, and Oldboy are all among the best thriller movies released since the year 1990.
----------
-
-# Netflix’s 10/10 Harlan Coben Adaptation Surges Into Elite Top 10 List
-
-TV News, Harlan Coben, I Will Find You, Sam Worthington, Netflix
-
-Fri, 31 Jul 2026 21:00:14 GMT
-
-https://collider.com/harlan-coben-i-will-find-you-netflix-all-time-top-10-most-watched/
-
-Harlan Coben's I Will Find You, starring Sam Worthington and Britt Lower, has broken into Netflix's all-time top 10 list of most-watched shows.
----------
-
-# 8 Essential Naughty Dog Games, Ranked
-
-Video Games, Video Game, Gaming, Naughty Dog, PlayStation (Original)
-
-Fri, 31 Jul 2026 20:50:14 GMT
-
-https://collider.com/naughty-dog-games-essential-ranked/
-
-Naughty Dog has been celebrated as one of the best video game developers, creating games like Uncharted, Crash Bandicoot, and The Last of Us.
----------
-
-# Mark Ruffalo's Apple TV Movie Scores a Rare 2026 Theatrical Release
-
-Movie News, Sian Heder, Apple TV, Drama, Mark Ruffalo
-
-Fri, 31 Jul 2026 20:30:14 GMT
-
-https://collider.com/being-heumann-apple-tv-release-date-plot-details-mark-ruffalo/
-
-Academy Award winner Siân Heder returns to Apple TV for another heartfelt story. Get all the details here.
----------
-
-# Nicolas Cage's British WWII Thriller Lands Netflix $105 Million Lawsuit
-
-Movie News, Nicolas Cage, War, Netflix, Thriller
-
-Fri, 31 Jul 2026 20:27:50 GMT
-
-https://collider.com/nicolas-cage-fortitude-netflix-105-million-lawsuit/
-
-Netflix has been officially hit with a $105 million lawsuit after Nicolas Cage's new WWII thriller was stolen. Read on for more.
----------
-
-# 10 HBO Shows That Are Still the Gold Standard
-
-TV, HBO, Game Of Thrones, The Sopranos, The Wire
-
-Fri, 31 Jul 2026 20:22:14 GMT
-
-https://collider.com/hbo-shows-gold-standard/
-
-Explore HBO's best shows that set the gold standard for prestige entertainment, featuring series like The Sopranos, Game of Thrones, and The Wire.
 ---------
