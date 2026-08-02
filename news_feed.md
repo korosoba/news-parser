@@ -1,3 +1,256 @@
+# 10 Greatest Buddy Cop Movies Of All Time, Ranked
+
+Classic Movies, Action
+
+Sun, 02 Aug 2026 22:20:15 GMT
+
+https://screenrant.com/best-buddy-cop-movies-ranked/
+
+The best buddy cop movies usually take two cops who are nothing alike and force them to work together to solve crimes, often with great humor.
+---------
+
+# 7 Dragon Ball Villains Super's Next Anime Needs To Make Canon
+
+Anime, Dragon Ball
+
+Sun, 02 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/dragon-ball-villains-super-next-anime-make-canon/
+
+Dragon Ball's movie villains offer potential for the franchise's future, and revisiting these characters could bring fresh excitement to the series.
+---------
+
+# 5 Free Zombie Games You Can Play On Steam Now
+
+Gaming, Steam, PC
+
+Sun, 02 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/best-free-zombies-games-on-steam/
+
+If you're looking for free zombie games, some of the best zombie titles you can play on Steam don't require a single penny to have a good time.
+---------
+
+# 10 Years Later, Stranger Things Season 1 Still Hides A Hard Truth
+
+TV, Stranger Things
+
+Sun, 02 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/stranger-things-season-1-hard-truth-10-years-later/
+
+Now that the dust has settled and the Netflix show is officially over, it's time to admit the hardest truth about Stranger Things and its legacy.
+---------
+
+# These 3 Movies Did Fast Zombies Before 28 Days Later
+
+Movies, 28 Days Later
+
+Sun, 02 Aug 2026 21:55:11 GMT
+
+https://screenrant.com/fast-zombies-before-28-days-later/
+
+It's a commonly held belief that 28 Days Later invented the fast zombie, but that couldn't be further from the truth. These three films did it first.
+---------
+
+# 5 Legend Of Zelda Games That Have Aged Like Milk
+
+Gaming, The Legend of Zelda
+
+Sun, 02 Aug 2026 21:53:41 GMT
+
+https://screenrant.com/legend-of-zelda-games-that-have-aged-like-milk/
+
+The Legend of Zelda is one of gaming's premier franchises, but that hasn't stopped it from producing a few duds.
+---------
+
+# The Lincoln Lawyer's Final Season Will Be Without The Show's Secret Weapon
+
+Streaming TV
+
+Sun, 02 Aug 2026 21:45:11 GMT
+
+https://screenrant.com/the-lincoln-lawyer-season-5-no-legal-elliott-gould/
+
+As The Lincoln Lawyer prepares for its final season, the Netflix series will be missing a key character, Legal Siegel, played by Elliott Gould.
+---------
+
+# Apple TV's Near-Perfect Dystopian Series Makes The Hunger Games Look Small
+
+Streaming TV, Masked Recs
+
+Sun, 02 Aug 2026 21:30:11 GMT
+
+https://screenrant.com/silo-dystopian-sci-fi-series-hunger-games-look-small/
+
+Apple's dystopian sci-fi mystery series has such an ambitious premise that it manages to make even The Hunger Games look small by comparison.
+---------
+
+# Dungeons & Dragons' Strongest Villain Is Returning After 15 Years
+
+Games, Dungeons and Dragons, Tabletop, Dungeons & Dragons
+
+Sun, 02 Aug 2026 22:15:14 GMT
+
+https://www.cbr.com/dnd-strongest-villain-returning-after-15-years/
+
+The most powerful villain in the history of D&amp;D is making a return in 2027, with the dragon of Athas finally coming to 5e.
+---------
+
+# Naruto, Sasuke and Gaara Officially Return for New Limited Edition Collection
+
+Anime, Naruto, Naruto: Shippuden, Boruto: Naruto Next Generations
+
+Sun, 02 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/naruto-youngla-clothing-collection/
+
+Naruto, Sasuke, Gaara, and more headline YoungLA's new official limited edition clothing collection this August.
+---------
+
+# Syfy's Underrated Sci-Fi Series Turns Into an Instant Digital Success After Season 3 Debut
+
+TV, The Ark
+
+Sun, 02 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/the-ark-season-3-sci-fi-digital-success-august-2026/
+
+The "guilty pleasure" sci-fi series is back with a bang.
+---------
+
+# 10 Funniest The Far Side Comics About Geeks and Nerds
+
+Comics, The Far Side
+
+Sun, 02 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/funniest-the-far-side-comics-geeks-nerds/
+
+Many personalities and stock characters graced the panels of The Far Side, but none did it as comedically or as cleverly as geeks and nerds.
+---------
+
+# In Just 1 Day, Robert Pattinson's Controversial $132M Drama Is Officially the Most-Watched Film in the U.S.
+
+Movies, The Drama
+
+Sun, 02 Aug 2026 21:30:14 GMT
+
+https://www.cbr.com/robert-pattinson-the-drama-hbo-max-us-success-august-2026/
+
+After a single day on one of the biggest platforms, Robert Pattinson and Zendaya's controversial Drama is officially the hottest film in the US.
+---------
+
+# Marvel Officially Previews Its New Video Game Series
+
+Comics, Marvel Comics
+
+Sun, 02 Aug 2026 21:28:36 GMT
+
+https://www.cbr.com/marvel-officially-previews-marvel-tokon-fighting-souls/
+
+In a preview of Marvel Tokon: First Strike #1, see a first glimpse at the story of Marvel's upcoming Marvel Tokon: Fighting Souls video game
+---------
+
+# 10 Most Shocking Sitcom Plot Twists of the 2010s
+
+TV, Sitcom, The Good Place, It's Always Sunny in Philadelphia, New Girl
+
+Sun, 02 Aug 2026 22:21:14 GMT
+
+https://collider.com/tv-sitcoms-2010s-plot-twists-most-shocking-ranked/
+
+Comedy shows aren't known for plot twists, but sitcoms in 2010s like It's Always Sunny in Philadelphia and New Girl managed to shock audiences.
+---------
+
+# Before His ‘The Batman' Sequel, Matt Reeves’ Sci-Fi Horror Smash Is a Streaming Must-See
+
+Movie News, The Batman, Cloverfield, Matt Reeves, Paramount Plus
+
+Sun, 02 Aug 2026 22:15:14 GMT
+
+https://collider.com/matt-reeves-cloverfield-streaming-paramount-plus-august-2026/
+
+Matt Reeves' sci-fi horror success, the found-footage film Cloverfield, is coming to a new streamer. Here's everything you should know.
+---------
+
+# 10 Sci-Fi Movie Masterpieces You Can Officially Stream for Free
+
+Movie, Sci-Fi, Science Fiction, Monsters, Ex Machina
+
+Sun, 02 Aug 2026 22:03:14 GMT
+
+https://collider.com/sci-fi-movie-masterpieces-streaming-free/
+
+Ex Machina, Stargate, Everything Everywhere All at Once, Terminator 2: Judgment Day, and more make our list of sci-fi movies you can stream for free.
+---------
+
+# 25 Years Later, HBO’s Greatest Crime Series Is Back on Top of Streaming
+
+TV News, The Sopranos, HBO Max, HBO, Drama
+
+Sun, 02 Aug 2026 22:00:14 GMT
+
+https://collider.com/hbo-drama-the-sopranos-itunes-streaming-success-august-2026/
+
+HBO's groundbreaking series transformed television decades ago, but it still remains a streaming favorite. Get more details here.
+---------
+
+# 8 Essential Star Wars Video Games, Ranked
+
+Gaming, Star Wars, Video Game, Sci-Fi
+
+Sun, 02 Aug 2026 21:55:14 GMT
+
+https://collider.com/star-wars-video-games-essential-ranked/
+
+Star Wars: Knights of the Old Republic, Star Wars Jedi Knight II: Jedi Outcast, and Star Wars Jedi: Fallen Order are the best games in the franchise.
+---------
+
+# Paramount+ Uncovers One of the Greatest Mystery Movies Ever Made
+
+Movie News, Paramount Plus, Clue, Streaming, Tim Curry
+
+Sun, 02 Aug 2026 21:30:14 GMT
+
+https://collider.com/clue-streaming-paramount-plus-august-2026/
+
+Was it Miss Scarlett in the Library with the candlestick? Find out when cult favorite murder mystery Clue returns to streaming.
+---------
+
+# This Forgotten Michael Douglas Thriller Is the Saddest Retelling of 'The Odyssey' Ever Made
+
+Movie Features, Falling Down, The Odyssey, Matt Damon, Christopher Nolan
+
+Sun, 02 Aug 2026 21:23:14 GMT
+
+https://collider.com/falling-down-michael-douglas-90s-thriller/
+
+Michael Douglas's Falling Down is the inverse of The Odyssey, where there is no victory for the non-Matt Damons of the world.
+---------
+
+# Tom Cruise 130-Minute Action Masterpiece Officially Becomes Streaming Smash Hit Ahead of Sequel
+
+Movie News, Tom Cruise, Top Gun: Maverick, Hot on Streaming
+
+Sun, 02 Aug 2026 22:00:12 GMT
+
+https://movieweb.com/top-gun-maverick-streaming-hit-pluto-tv-august-2026/
+
+Years after landing in theaters, the movie that saved cinema is killing it on streaming.
+---------
+
+# Every Spider-Man Movie, Ranked (Including ‘Brand New Day')
+
+Features, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man
+
+Sun, 02 Aug 2026 22:00:12 GMT
+
+https://movieweb.com/every-spider-man-movie-ranked/
+
+Spider-Man has been a box office juggernaut for nearly three decades, but several of his greatest cinematic adventures are truly unforgettable.
+---------
+
 # 10 Most Disturbing Thrillers Of All Time, Ranked
 
 Movies, Thriller, Ranking
@@ -5243,257 +5496,4 @@ Sat, 01 Aug 2026 13:15:15 GMT
 https://collider.com/anya-taylor-joy-lucky-the-gorge-super-mario-galaxy-movie-streaming-success-apple-tv-august-2026/
 
 Anya Taylor-Joy is the queen of streaming, with one series and two movies currently topping overall charts. Read on for more.
----------
-
-# Iconic Horror Series Starring Brad Pitt & Tom Hanks Is Now Streaming Free
-
-TV News, Tales From the Crypt, Coming/Leaving Streaming, Horror, Brad Pitt, Tom Hanks
-
-Sat, 01 Aug 2026 14:00:12 GMT
-
-https://movieweb.com/tales-from-the-crypt-horror-streaming-free-tubi-august-2026/
-
-The legendary horror series featuring a who's who of A-list talent is now streaming free for the first time ever.
----------
-
-# 12 Seriously Smart Movies That Trick You With Two Mind-Blowing Twists
-
-Movie Lists, Thriller, Sci-Fi, Mystery
-
-Sat, 01 Aug 2026 14:00:12 GMT
-
-https://movieweb.com/smart-movies-two-twists/
-
-These clever films are packed with multiple shocking twists and turns that can surprise even hardened cinephiles.
----------
-
-# Ahead of Season 4, Prime Video's Best Action Thriller Officially Becomes a Streaming Smash Hit
-
-TV News, Reacher, Hot on Streaming
-
-Sat, 01 Aug 2026 13:43:42 GMT
-
-https://movieweb.com/reacher-hit-prime-video-streaming-july-2026/
-
-Is there a better action TV series currently streaming? Didn't think so.
----------
-
-# Michael B. Jordan's 'Thomas Crown Affair' Sparks James Bond Comparisons
-
-Movie News, The Thomas Crown Affair
-
-Sat, 01 Aug 2026 13:30:55 GMT
-
-https://movieweb.com/thomas-crown-affair-michael-b-jordan-james-bond/
-
-Michael B. Jordan channels 007 in the first trailer for his new action thriller.
----------
-
-# Marvel's New Thor Is Officially Working For Mephisto
-
-Marvel Comics, Thor
-
-Sat, 01 Aug 2026 13:00:11 GMT
-
-https://screenrant.com/thor-mephisto-red-norvell/
-
-Thor's mortal copycat meets a tragic fate as Mephisto claims him as his very own God of Thunder, possibly leading to the birth of a new villain.
----------
-
-# 5 Lord Of The Rings Games That Are Genuinely Worth Your Time
-
-Gaming, The Lord of the Rings
-
-Sat, 01 Aug 2026 13:00:11 GMT
-
-https://screenrant.com/5-lord-of-the-rings-games-genuinely-worthwhile/
-
-The Lord of the Rings is the most beloved fantasy franchise in history, and it's had some pretty awesome games to suit that status.
----------
-
-# Apple TV's 30-Episode Masterpiece Is The Best Espionage Series Of All Time
-
-TV, Masked Recs
-
-Sat, 01 Aug 2026 12:59:11 GMT
-
-https://screenrant.com/slow-horses-apple-best-espionage-tv-series/
-
-Apple TV's spy drama masterpiece broke all the rules of the genre, offering viewers a fresh, original, and unpredictable look at espionage.
----------
-
-# Mark Ruffalo Breaks Silence About Spider-Man: Brand New Day After Hulk’s Return
-
-Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
-
-Sat, 01 Aug 2026 12:55:18 GMT
-
-https://screenrant.com/spider-man-brand-new-day-hulk-return-success-mark-ruffalo-comment/
-
-On the heels of his return as the Hulk in Spider-Man: Brand New Day, Mark Ruffalo breaks his silence about the success of the Tom Holland's film.
----------
-
-# Spider-Man: Brand New Day Bootleg Leak Watched By Millions
-
-Movies, Spider-Man: Brand New Day
-
-Sat, 01 Aug 2026 12:43:47 GMT
-
-https://screenrant.com/spider-man-brand-new-day-bootleg-leak/
-
-Spider-Man: Brand New Day wasn't watched the way Marvel Studios and Sony intended, as another bootleg leak circulated online reaching millions.
----------
-
-# Resident Evil’s Zach Cregger & Austin Abrams Balance Fidelity To The Games With A New Story
-
-Videos, Resident Evil, San Diego Comic-Con, Zach Cregger
-
-Sat, 01 Aug 2026 12:30:11 GMT
-
-https://screenrant.com/video/resident-evil-zach-cregger-austin-abrams-interview-sdcc-2026/
-
-Resident Evil director Zach Cregger and star Austin Abrams reflect on their journey from Weapons to the present day and share how the movie stays true to the spirit of the games without reusing its iconic lead character.
----------
-
-# The Big Bang Theory Finally Explains Its First-Ever Recast After 20 Years
-
-Network TV, The Big Bang Theory, Stuart Fails to Save the Universe
-
-Sat, 01 Aug 2026 12:30:11 GMT
-
-https://screenrant.com/stuart-fails-to-save-the-universe-penny-kaley-cuoco-the-big-bang-theory-recast-explain/
-
-A decade since the recast happened, Chuck Lorre and Bill Prady effectively explains  why The Big Bang Theory's first-ever recast had to happen.
----------
-
-# 5 DC Heroes So Hardcore, They Got Fired from the Justice League
-
-Comics, Justice League, DC
-
-Sat, 01 Aug 2026 12:30:11 GMT
-
-https://screenrant.com/justice-league-heroes-fired/
-
-These heroes didn't have what it takes to be part of DC's premier team super team
----------
-
-# Henry Cavill's Warhammer 40k Series Writer Makes One Story Adaptation Way More Likely
-
-Movies, Warhammer 40K, Warhammer 40k
-
-Sat, 01 Aug 2026 12:30:11 GMT
-
-https://screenrant.com/warhammer-40k-series-mike-flanagan-eisenhorn-adaptation/
-
-The new writer who is part of the upcoming Prime Video Warhammer 40k adaptation primes the series to be a perfect fit for one major 40k book story.
----------
-
-# All Spider-Man Comic References In Brand New Day, Explained
-
-Comics, Spider-Man: Brand New Day, Spider-Man, Marvel
-
-Sat, 01 Aug 2026 13:00:15 GMT
-
-https://www.cbr.com/every-spider-man-comic-reference-in-brand-new-day-list/
-
-Spider-Man: Brand New Day is packed with easter eggs and nods to the comics that even some of the most die-hard fans might have missed.
----------
-
-# 10 Best Thriller Books Recommended by Stephen King
-
-Movies, Stephen King, Thriller
-
-Sat, 01 Aug 2026 13:00:15 GMT
-
-https://www.cbr.com/best-thriller-books-recommended-by-stephen-king-list/
-
-From classics to modern hidden gems, these are the best thriller books recommended by Stephen King.
----------
-
-# Justin Long's 101-Minute A24 Body Horror Is Now Streaming on HBO Max
-
-Movies, Tusk
-
-Sat, 01 Aug 2026 13:00:15 GMT
-
-https://www.cbr.com/justin-long-tusk-body-horror-streaming-hbo-max-august-2026/
-
-The movie flopped in theaters and had mixed reviews, but it can be discovered by a new audience on its new streaming home.
----------
-
-# 3 Taylor Sheridan Shows Better Than Landman
-
-TV, Landman, Mayor of Kingstown, 1923, Tulsa King
-
-Sat, 01 Aug 2026 12:30:15 GMT
-
-https://www.cbr.com/taylor-sheridan-shows-better-than-landman-list/
-
-Paramount+'s Landman is a fan-favorite series, but a few other Taylor Sheridan shows are even better.
----------
-
-# Absolute Batman Japanese Release Confirms Use of the Series' Best Cover
-
-Comics, Absolute Batman, Batman
-
-Sat, 01 Aug 2026 12:01:14 GMT
-
-https://www.cbr.com/absolute-batman-japanese-release-mark-brooks-cover/
-
-Japan is getting a great look at Absolute Batman.
----------
-
-# Peter Jackson's Canceled Halo Movie Deserves a Second Chance
-
-Movies, Halo, Sci-Fi, peter jackson
-
-Sat, 01 Aug 2026 12:01:14 GMT
-
-https://www.cbr.com/peter-jackson-canceled-halo-movie-deserves-revival/
-
-Now is the perfect time to revive Peter Jackson's plans for his scrapped film adaptation of the Halo video game series.
----------
-
-# 8 Disney Movie Endings That Are Genuine Masterpieces
-
-Movie, Disney, Tangled, Beauty and the Beast, Pirates of the Caribbean: Dead Man's Chest
-
-Sat, 01 Aug 2026 12:46:14 GMT
-
-https://collider.com/disney-movie-endings-masterpieces/
-
-From the animated classic The Lion King to the action sequel Pirates of the Caribbean: Dead Man's Chest, these Disney movie endings are masterpieces.
----------
-
-# Gerard Butler's 129-Minute Action Biopic Makes a Streaming Comeback
-
-Movie News, Gerard Butler, Action, Machine Gun Preacher, Paramount Plus
-
-Sat, 01 Aug 2026 12:45:15 GMT
-
-https://collider.com/gerard-butler-machine-gun-preacher-streaming-paramount-plus-august-2026/
-
-Machine Gun Preacher, Gerard Butler's 129-minute action biopic bomb, is back on streaming. Here's everything you should know.
----------
-
-# Guy Ritchie's Definitive Crime Movie Is Taking Over Streaming Before the Spin-Off Returns
-
-Movie News, Guy Ritchie, Netflix, The Gentlemen
-
-Sat, 01 Aug 2026 12:30:15 GMT
-
-https://collider.com/guy-ritchie-the-gentlemen-movie-streaming-success-netflix-august-2026/
-
-Guy Ritchie’s The Gentlemen is back on the streaming charts ahead of the Netflix spin-off’s Season 2 return in September.
----------
-
-# Marvel's X-Men Casting Just Set Up the Perfect Rivalry After 'Spider-Man: Brand New Day'
-
-Movie Features, Spider-Man: Brand New Day, MCU, X-Men, Samara Weaving
-
-Sat, 01 Aug 2026 12:20:15 GMT
-
-https://collider.com/x-men-emma-frost-casting-samara-weaving-emma-scott-jean-love-triangle/
-
-Samara Weaving has just been cast as Emma Frost, which may lead to the underrepresented love triangle featuring the psychic, Cyclops, and Jean Grey.
 ---------
