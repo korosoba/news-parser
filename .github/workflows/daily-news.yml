@@ -32,13 +32,15 @@ jobs:
         if: steps.check.outputs.has_content == 'true'
         env:
           TELEGRAM_CHAT_ID: ${{ secrets.TELEGRAM_CHAT_ID }}
-          BOT_URL: https://sr-bot-kqwv.onrender.com/process
+          BOT_URL: https://sr-bot-united.onrender.com/process
           TODAY: ${{ steps.date.outputs.today }}
         run: |
           python3 - <<'EOF'
           import json
           import urllib.request
+          import urllib.error
           import os
+          import time
 
           text = open("news_feed.md", encoding="utf-8").read()
           payload = json.dumps({
@@ -47,15 +49,36 @@ jobs:
               "chat_id": os.environ["TELEGRAM_CHAT_ID"]
           }).encode("utf-8")
 
-          req = urllib.request.Request(
-              os.environ["BOT_URL"],
-              data=payload,
-              headers={"Content-Type": "application/json"},
-              method="POST"
-          )
-          with urllib.request.urlopen(req, timeout=30) as resp:
-              print(f"Status: {resp.status}")
-              print(f"Response: {resp.read().decode()}")
+          url = os.environ["BOT_URL"]
+          max_attempts = 5
+          retry_delay = 30  # секунд между попытками
+
+          for attempt in range(1, max_attempts + 1):
+              try:
+                  req = urllib.request.Request(
+                      url,
+                      data=payload,
+                      headers={"Content-Type": "application/json"},
+                      method="POST"
+                  )
+                  with urllib.request.urlopen(req, timeout=30) as resp:
+                      print(f"✅ Попытка {attempt}: Status {resp.status}")
+                      print(f"Response: {resp.read().decode()}")
+                      break  # успех — выходим из цикла
+              except urllib.error.HTTPError as e:
+                  print(f"⚠️ Попытка {attempt}/{max_attempts}: HTTP {e.code}")
+                  if attempt < max_attempts:
+                      print(f"Повтор через {retry_delay} сек...")
+                      time.sleep(retry_delay)
+                  else:
+                      raise
+              except Exception as e:
+                  print(f"⚠️ Попытка {attempt}/{max_attempts}: {e}")
+                  if attempt < max_attempts:
+                      print(f"Повтор через {retry_delay} сек...")
+                      time.sleep(retry_delay)
+                  else:
+                      raise
           EOF
 
       - name: Reset news_feed.md
