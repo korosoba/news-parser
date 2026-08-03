@@ -1,3 +1,366 @@
+# Paramount+'s 10/10 Spy Thriller Series With 393 Million Minutes Viewed Deserves Its Streaming Success
+
+Streaming TV, Masked Recs
+
+Mon, 03 Aug 2026 20:37:55 GMT
+
+https://screenrant.com/paramount-plus-the-agency-million-minutes-watched-success-deserved/
+
+Paramount+'s spy thriller series with a star-studded cast has released its best season yet, and the action-packed show racks up streaming numbers.
+---------
+
+# Lord of the Rings: The Rings of Power Season 3 Interview with EP & Cast at SDCC 2026
+
+Comic-Con, The Lord of the Rings: The Rings of Power, The Lord of the Rings, San Diego Comic-Con
+
+Mon, 03 Aug 2026 20:36:26 GMT
+
+https://screenrant.com/video/lotr-rings-of-power-season-3-jamie-campbell-bower-cast-interview-sdcc-2026/
+
+Jamie Campbell Bower reflects on joining The Lord of the Rings: The Rings Of Power season 3, Owain Arthur teases Durin’s family drama, Ismael Cruz Cordova talks being Galadriel’s right hand man, and showrunner Patrick McKay explains what the time jump means for the story.
+---------
+
+# Scarlett Johansson's New Sci-Fi Movie Is Like If Blade Runner Was Made By Pixar
+
+Movies, Masked Recs
+
+Mon, 03 Aug 2026 20:15:11 GMT
+
+https://screenrant.com/ray-gunn-movie-pixar-version-of-blade-runner/
+
+Scarlett Johansson stars in an upcoming Netflix sci-fi movie that feels like Pixar's version of Blade Runner, and it has great potential.
+---------
+
+# Amazon Officially Teaming With Friends Creator For Their First New Series In 11 YearsAmazon Officially Teaming With Friends Creator For Their First New Series In 11 Years
+
+TV, Amazon Studios
+
+Mon, 03 Aug 2026 20:13:33 GMT
+
+https://screenrant.com/dinks-show-amazon-friends-creator-kauffman-first-new-show-11-years/
+
+Amazon Studios' new series marks a return to the multi-camera sitcom format for Friends co-creator Marta Kauffman after a decade-long hiatus.
+---------
+
+# The Expanse's 7-Year Reign As Prime Video's Best Sci-Fi Series Could End In Less Than 4 Months
+
+TV, Masked Recs
+
+Mon, 03 Aug 2026 20:03:11 GMT
+
+https://screenrant.com/the-expanse-best-prime-video-sci-fi-series-reign-end-blade-runner-2099/
+
+The Expanse's sci-fi throne may be in jeopardy as two upcoming sci-fi streaming shows prepare to challenge the Prime Video series' dominance.
+---------
+
+# Battlestar Galactica Is Officially Getting A New Release Next Week
+
+TV, Battlestar Galactica
+
+Mon, 03 Aug 2026 20:03:03 GMT
+
+https://screenrant.com/battlestar-galactica-the-complete-series-bluray-release-august-2026/
+
+The modern Battlestar Galactica remains one of the most acclaimed sci-fi TV shows, and the reimagining has a new release set for next week.
+---------
+
+# 5 Amazing Turn-Based RPGs With Huge Open Worlds
+
+Gaming, RPG, Triple-A Games, PC
+
+Mon, 03 Aug 2026 20:00:11 GMT
+
+https://screenrant.com/turn-based-rpgs-with-open-worlds/
+
+While the open-world map concept is often associated with action-based games, there are some amazing turn-based RPGs with remarkable open worlds.
+---------
+
+# Russell Crowe's 155-Minute Action Epic Conquers Streaming Charts
+
+Movies, Masked Recs
+
+Mon, 03 Aug 2026 19:52:40 GMT
+
+https://screenrant.com/russell-crowe-action-movie-gladiator-stream-august-2026/
+
+Russell Crowe's 155-minute action epic is conquering the streaming charts and captivating audiences with its intense combat and iconic performances.
+---------
+
+# Harry Potter Is Officially Getting Magical Release Schedule For 25th Anniversary
+
+Movies, Harry Potter
+
+Mon, 03 Aug 2026 19:35:20 GMT
+
+https://screenrant.com/harry-potter-anniversary-movies-release-schedule-regal/
+
+Harry Potter is bringing the magical movies to life in a special way for its 25th anniversary, and ahead of the new HBO series adaptation release.
+---------
+
+# Stephen King's 8-Part 2000s Miniseries Was the Last Great Horror TV Event of Its Kind
+
+TV, Stephen King, Nightmares & Dreamscapes: From the Stories of Stephen King, Horror
+
+Mon, 03 Aug 2026 20:30:14 GMT
+
+https://www.cbr.com/stephen-king-nightmares-and-dreamscape-tv-event/
+
+When it comes to Stephen King's short stories, no adaptations capture their character depth and details better than an anthological series.
+---------
+
+# What's Coming to Hulu in August 2026? Everything Arriving This Month
+
+TV, Hulu
+
+Mon, 03 Aug 2026 20:27:34 GMT
+
+https://www.cbr.com/what-coming-hulu-august-2026-full-list/
+
+Hulu has confirmed its new additions for this month.
+---------
+
+# 5 Westerns That Tried to Be the Next Tombstone (But Failed)
+
+Movies, Tombstone
+
+Mon, 03 Aug 2026 20:15:15 GMT
+
+https://www.cbr.com/tombstone-failed-western-movie-replacements-list/
+
+In 1993, Tombstone became the new blueprint for telling a great Western story, inspiring countless filmmakers to attempt to do the same.
+---------
+
+# 7 Hard Sci-Fi Anime Series That Are Perfect From Start to Finish
+
+Anime, Sci-Fi, Science Fiction, Planetes, Space Brothers
+
+Mon, 03 Aug 2026 20:15:15 GMT
+
+https://www.cbr.com/perfect-hard-sci-fi-anime-series-from-start-to-finish/
+
+Hard sci-fi anime rewards patience in ways few other genres can, providing plausible science rooted in fact.
+---------
+
+# Spider-Man Director's 3-Part True-Crime Docuseries Turns Into Streaming Sensation on Prime Video at the Right Time
+
+TV, Murder 101, Prime Video
+
+Mon, 03 Aug 2026 20:00:14 GMT
+
+https://www.cbr.com/murder-101-docuseries-prime-video-success-august-2026/
+
+It's been a good weekend for the MCU Spider-Man directors.
+---------
+
+# Absolute Batman's Scott Snyder Confirms Azreal Appearance
+
+Comics, Absolute Batman, Batman, azrael
+
+Mon, 03 Aug 2026 20:00:14 GMT
+
+https://www.cbr.com/absolute-batman-azrael-appearance-confirmed/
+
+This Gotham City warrior's Absolute Universe moment is imminent.
+---------
+
+# The Odyssey is a Major Turning Point for Christopher Nolan
+
+Movies, The Odyssey, Christopher Nolan, Oppenheimer
+
+Mon, 03 Aug 2026 20:00:14 GMT
+
+https://www.cbr.com/the-odyssey-confirms-christopher-nolan-greatest-modern-director/
+
+With The Odyssey, the latest Christopher Nolan cinematic epic, the Oscar-winning director proves that he has a siren call like few other filmmakers.
+---------
+
+# Spider-Man: Brand New Day Officially Crowned King of Box Office Openings in the U.S.
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Mon, 03 Aug 2026 19:45:06 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-box-office-record-opening-weekend-us/
+
+Spider-Man: Brand New Day dethrones Avengers: Endgame to claim an all-time box office record.
+---------
+
+# Landman Is Quietly Abandoning Taylor Sheridan's Winning Formula in Season 3
+
+TV, Landman
+
+Mon, 03 Aug 2026 19:43:40 GMT
+
+https://www.cbr.com/landman-season-3-release-shakeup/
+
+The series will undergo a major shakeup.
+---------
+
+# It's Official, Mistborn Returns This November
+
+Games, Mistborn, Brandon Sanderson
+
+Mon, 03 Aug 2026 19:31:14 GMT
+
+https://www.cbr.com/mistborn-the-deckbuilding-game-official-november-2026/
+
+A new Mistborn release perfect for tabletop gaming fans is coming November 18.
+---------
+
+# The Lord of the Rings Officially Brings Back Sauron for New September 2026 Release
+
+Gaming News, The Lord of the Rings, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Hunt for Gollum, Peter Jackson
+
+Mon, 03 Aug 2026 20:30:14 GMT
+
+https://collider.com/the-lord-of-the-rings-the-one-ring-tabletop-rpg-the-white-tower-and-the-hall-of-gold-expansion-sauron-release-date/
+
+Sauron is officially set to return next month in a new expansion for The Lord of the Rings: The One Ring, titled The White Tower and the Hall of Gold.
+---------
+
+# Marvel’s X-Men Reboot May Already Be Breaking Its Biggest Tradition
+
+Movie Features, Spider-Man: Brand New Day, Marvel Studios, Sadie Sink, X-Men
+
+Mon, 03 Aug 2026 20:27:14 GMT
+
+https://collider.com/spider-man-brand-new-day-mcu-x-men-timeline-jean-grey/
+
+Jean Grey’s debut in Spider-Man: Brand New Day could reveal that Marvel Studios is taking the X-Men in a very unexpected direction.
+---------
+
+# 10 Near-Perfect Space Opera TV Shows No One Remembers Today
+
+TV, Science Fiction, Buck Rogers in the 25th Century, Dark Matter, The Expanse
+
+Mon, 03 Aug 2026 20:06:14 GMT
+
+https://collider.com/near-perfect-space-opera-tv-shows-no-one-remembers-today/
+
+Space operas are popular on the small screen, but near-perfect shows like Farscape and Vagrant have become all but forgotten despite their strengths.
+---------
+
+# Paramount+’s Hilarious 'Only Murders in the Building' Replacement Returns in Season 2 Sneak Peek [Exclusive]
+
+TV News, Diarra From Detroit, Paramount Plus, Kenya Barris, Mystery
+
+Mon, 03 Aug 2026 20:00:14 GMT
+
+https://collider.com/diarra-from-detroit-season-2-episode-3-sneak-peek/
+
+Diarra From Detroit is back for season 2, and Collider has an exclusive sneak peek at this week's new episode. Watch it now.
+---------
+
+# 10 Best Stephen King Books That Aren't Supernatural
+
+Books and Comics, Under the Dome, Misery, Stephen King, The Shawshank Redemption
+
+Mon, 03 Aug 2026 19:41:14 GMT
+
+https://collider.com/best-stephen-king-books-not-supernatural-ranked/
+
+Plenty of great Stephen King books don't contain supernatural elements, including classics like Misery and Cujo, and newer releases like Mr. Mercedes.
+---------
+
+# ‘Ted Lasso’s Scrapped Season 4 Story Would Have Changed the Show Completely
+
+TV News, Apple TV, Ted Lasso, Brett Goldstein, Jason Sudeikis
+
+Mon, 03 Aug 2026 19:40:14 GMT
+
+https://collider.com/ted-lasso-season-4-original-plan-different-apple-tv/
+
+3 years later, Ted Lasso returns on Apple TV, but Season 4 nearly looked very different. Here's what you need to know.
+---------
+
+# ‘Ghosts’ Season 6 Could Finally Deliver the Trevor and Hetty Moment Fans Want [Exclusive]
+
+Exclusives, Ghosts, SDCC, Sitcom, CBS
+
+Mon, 03 Aug 2026 19:36:16 GMT
+
+https://collider.com/ghosts-season-6-100-episodes-trevor-hetty-romance-ghost-boundary-flashbacks/
+
+Ghosts stars Asher Grodman, Román Zaragoza, and Utkarsh Ambudkar reflect on hitting 100 episodes and what they're most excited to explore in Season 6.
+---------
+
+# Taylor Sheridan’s War Thriller Officially Suffers Major Blow
+
+TV News, Taylor Sheridan, Rotten Tomatoes, Lioness, Paramount Plus
+
+Mon, 03 Aug 2026 19:20:15 GMT
+
+https://collider.com/lioness-season-3-rotten-tomatoes-is-it-good/
+
+Lioness Season 3 receives mixed reviews from critics on Rotten Tomatoes as fans eagerly await confirmation on Season 4.
+---------
+
+# 3 Beloved Movie Masterpieces To Watch on Netflix This Week (Aug 3-7)
+
+Movie, Fast & Furious, Nightcrawler, Sing, Netflix
+
+Mon, 03 Aug 2026 19:19:15 GMT
+
+https://collider.com/best-netflix-movies-watch-august-3-2026/
+
+Nightcrawler, Sing, and The Fast and the Furious make up our list of the best movies to watch on Netflix the week of August 3rd, 2026.
+---------
+
+# Marvel's Nicolas Cage Reboot Reportedly Wants to Add James Bond Star
+
+Movie News, Ghost Rider, Ryan Gosling, Rosamund Pike
+
+Mon, 03 Aug 2026 20:39:02 GMT
+
+https://movieweb.com/mcu-ghost-rider-rosamund-pike-rumor/
+
+'Gone Girl' star Rosamund Pike is being eyed for a lead role in Marvel Studio's 'Ghost Rider' opposite Ryan Gosling.
+---------
+
+# Sony Boss Confirms It's Officially the End of an Era for 'Spider-Man'
+
+Movie News, Spider-Man, Tom Rothman
+
+Mon, 03 Aug 2026 20:18:23 GMT
+
+https://movieweb.com/spider-man-sony-spin-offs-canceled-mcu/
+
+Sony chairman Tom Rothman confirmed that the company will move in a new direction after the MCU's fourth solo Spider-Man movie.
+---------
+
+# Prime Video's Sci-Fi Video Game Adaptation Just Got Way More Exciting
+
+Features, Sci-Fi, Secret Level, Prime Video
+
+Mon, 03 Aug 2026 20:00:12 GMT
+
+https://movieweb.com/secret-level-warhammer-prime-spinoff/
+
+Prime Video has many great sci-fi TV shows, and one video game adaptation is going to get even better.
+---------
+
+# 'Lioness' Star Offers Season 4 Update as Taylor Sheridan Action Thriller Series Returns
+
+Interviews, Lioness, Paramount Plus, Taylor Sheridan
+
+Mon, 03 Aug 2026 19:39:56 GMT
+
+https://movieweb.com/lioness-season-4-jill-wagner-taylor-sheridan/
+
+Will this Taylor Sheridan action show get a fourth season?
+---------
+
+# 'The Odyssey' Has Already Dethroned One of the Greatest Fantasy Epics Ever Made
+
+Movie News, The Odyssey, The Lord of the Rings: The Return of the King
+
+Mon, 03 Aug 2026 19:25:17 GMT
+
+https://movieweb.com/the-odyssey-the-lord-of-the-rings-return-of-the-king-box-office/
+
+'The Odyssey' has toppled 'The Lord of the Rings: The Return of the King' at the domestic box office.
+---------
+
 # Spider-Man: The X-Men Era Has Already Started
 
 Movies, Originals
