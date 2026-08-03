@@ -1,3 +1,432 @@
+# Spider-Man: The X-Men Era Has Already Started
+
+Movies, Originals
+
+Mon, 03 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/video/spider-man-the-x-men-era-has-already-started/
+
+SPOILERS AHEAD!Spider-Man: Brand New Day does far more than expand Peter Parker's story. The film quietly delivers the MCU's first true mutant origin by revealing Sadie Sink as Jean Grey, creating a launchpad for Marvel's X-Men that feels earned instead of rushed.
+---------
+
+# Attack On Titan 3 Gets Official Release Date & Special Edition Reveal
+
+Gaming, Attack on Titan 3, Triple-A Games, PC
+
+Mon, 03 Aug 2026 18:56:51 GMT
+
+https://screenrant.com/attack-on-titan-3-release-date-special-edition-reveal/
+
+Attack on Titan 3 is officially available for pre-order, with new editions and a trailer that looks the best the series has ever seen.
+---------
+
+# Guy Ritchie’s ‘Breaking Bad Meets Downton Abbey’ Action Thriller Returns In 1 Month
+
+TV, Masked Recs
+
+Mon, 03 Aug 2026 18:30:11 GMT
+
+https://screenrant.com/the-gentlemen-netflix-return-season-2-september-2026/
+
+The past two years have seen Guy Ritchie dominate television on three different platforms, and now his first streaming series is returning to Netflix.
+---------
+
+# The 3-Part Western That Quentin Tarantino Called "The Greatest Achievement" In Cinema History Is Streaming on Prime Video
+
+Movies, The Good, the Bad and the Ugly, A Fistful of Dollars, For A Few Dollars More
+
+Mon, 03 Aug 2026 18:30:11 GMT
+
+https://screenrant.com/dollars-trilogy-western-movies-streaming-prime-video-august-2026/
+
+Amazon Prime subscribers can watch all three of the classic Spaghetti Western movies that Tarantino considers to be the only perfect trilogy.
+---------
+
+# 10 Near-Perfect Sci-Fi Space Opera Movies That No One Remembers Today
+
+Movies, Sci-Fi, Titan A.E., James Cameron, Silent Running
+
+Mon, 03 Aug 2026 18:27:34 GMT
+
+https://screenrant.com/best-sci-fi-space-opera-movies-nobody-remembers/
+
+From Titan A.E. to Enemy Mine, these 10 near-perfect sci-fi movies set in space deserve to be rediscovered.
+---------
+
+# Aemond Targaryen Death Prophecy & Three-Eyed Raven Power Similarity Addressed By HOTD's Alys Rivers Star
+
+TV, House of the Dragon, House of the Dragon - Season 3, Game of Thrones
+
+Mon, 03 Aug 2026 18:23:41 GMT
+
+https://screenrant.com/house-of-the-dragon-alys-aemond-death-prophecy-three-eyed-raven-comparison-gayle-rankin/
+
+EXCLUSIVE: House of the Dragon star Gayle Rankin addresses Aemond Targaryen's prophesied fate and how Alys' powers compare to the Three-Eyed Raven.
+---------
+
+# Ice Cream Man Interview with Eli Roth at SDCC 2026
+
+Videos, Ice Cream Man, Eli Roth, San Diego Comic-Con
+
+Mon, 03 Aug 2026 18:14:47 GMT
+
+https://screenrant.com/video/ice-cream-man-eli-roth-interview-sdcc-2026/
+
+Ice Cream Man director Eli Roth explains how intuitive his child actors are in horror scenes, and highlights how Terrifier 3’s success made him more confident in producing an unrated film.
+---------
+
+# Alan Ritchson’s Next Netflix Movie Confirmed As He Signs Major Deal With Streamer
+
+Movies, Alan Ritchson, Netflix
+
+Mon, 03 Aug 2026 18:13:15 GMT
+
+https://screenrant.com/alan-ritchson-motogp-netflix-movie-deal/
+
+After starring in the hit sci-fi film War Machine, Alan Ritchson has decided to stay with Netflix for his next project as part of a major new deal.
+---------
+
+# Now Is The Perfect Time To Rewatch Netflix's Stranger Things Ahead Of New Episodes
+
+TV, Stranger Things, Stranger Things: Tales from '85, Spider-Man: Brand New Day
+
+Mon, 03 Aug 2026 18:06:41 GMT
+
+https://screenrant.com/netflix-stranger-things-rewatch-tales-from-85-spider-man-brand-new-day/
+
+Netflix's Stranger Things is the perfect hit series to rewatch right now for two major reasons ahead of the Sci-Fi franchise's 2026 return.
+---------
+
+# JJ Abrams' $260 Million Sci-Fi Monster Walked So That Stranger Things Could Run
+
+Movies, Masked Recs
+
+Mon, 03 Aug 2026 18:02:11 GMT
+
+https://screenrant.com/super-8-jj-abrams-walk-stranger-things-netflix-run/
+
+Stranger Things owes a creative debt to JJ Abrams' 2011 monster movie, a rare title that truly replicates the iconic Netflix show's appeal.
+---------
+
+# 10 Greatest High Fantasy Books Of All Time, Ranked
+
+Movies, Fantasy, books, The Lord of the Rings
+
+Mon, 03 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/best-high-fantasy-books-ever-list/
+
+With unforgettable world-building and sweeping stakes, these high fantasy books are epic masterpieces that have shaped the genre for generations
+---------
+
+# Andrew Garfield Reveals His 1 Condition to Return as Spider-Man
+
+Movies, Spider-Man, superheroes, Amazing Spider-Man
+
+Mon, 03 Aug 2026 18:55:47 GMT
+
+https://www.cbr.com/andrew-garfield-spider-man-return-1-condition/
+
+The Amazing Spider-Man star reveals what it will take to get him back in the blue-and-red suit.
+---------
+
+# Taylor Sheridan's Best Show Since Yellowstone Is the #1 Streaming Series in the World
+
+TV, Lioness, Paramount Plus, Thriller
+
+Mon, 03 Aug 2026 18:30:04 GMT
+
+https://www.cbr.com/lioness-taylor-sheridan-paramount-plus-success-august-2026/
+
+The hit spy show is currently the No. 1 Paramount+ show in the world
+---------
+
+# Kevin Costner's 8-Part Prime Video Civil War Show Is a Stealth Masterpiece for Western Fans
+
+TV, The Gray House, Western, kevin costner
+
+Mon, 03 Aug 2026 18:26:15 GMT
+
+https://www.cbr.com/kevin-costner-the-gray-house-masterpiece/
+
+Kevin Costner has been heavily involved in many Westerns, but his 2026 Civil War series is one audiences have been slow to appreciate.
+---------
+
+# 4 Masterpiece Power Fantasy Anime That Prove Solo Leveling Is Mid
+
+Anime, Solo Leveling, Dragon Ball, Classroom of the Elite
+
+Mon, 03 Aug 2026 18:15:15 GMT
+
+https://www.cbr.com/power-fantasy-anime-prove-solo-leveling-is-mid/
+
+Solo Leveling might be a satisfying power fantasy anime, but it is nowhere near the best offerings of the genre.
+---------
+
+# FX's 8-Part Friends Replacement Climbs the Charts 1 Month Ahead of Return
+
+TV, Adults
+
+Mon, 03 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/fx-adults-disney-plus-hulu-global-success-august-2026/
+
+One of the most underseen yet highly rated comedies of the decade is officially a streaming sensation just weeks away from its Season Two debut.
+---------
+
+# It's Officially the End of an Era for Netflix's Extraction Franchise
+
+Movies, Extraction
+
+Mon, 03 Aug 2026 17:30:15 GMT
+
+https://www.cbr.com/end-of-extraction-era-for-netflix/
+
+Extraction has been a major success for Netflix and while a sequel moves ahead, it's evident that the platform's plans are shifting.
+---------
+
+# Furious: Lola Petticrew Breaks Down Catherine's Duality
+
+TV, Furious
+
+Mon, 03 Aug 2026 17:15:15 GMT
+
+https://www.cbr.com/video/furious-lola-petticrew-breaks-down-catherine-s-duality/
+
+Furious actress Lola Petticrew explores the emotional complexity behind Catherine, one of the series' most compelling and unpredictable characters.
+---------
+
+# 10 Most Expensive Grass-Type Pokemon Cards, Ranked by Price
+
+Games, Pokemon, Pokemon TCG, Tabletop
+
+Mon, 03 Aug 2026 17:15:15 GMT
+
+https://www.cbr.com/most-expensive-grass-type-pokemon-tcg-ranked/
+
+Grass-type cards in the Pokemon TCG may vary in utility and rarity, but some of the rarest of the bunch are also the most expensive for collectors.
+---------
+
+# 97-Minute R-Rated Reboot of '70s Cult Classic Gets New Release
+
+Movie News, Faces of Death, Blu-ray
+
+Mon, 03 Aug 2026 19:00:14 GMT
+
+https://collider.com/r-rated-97-minute-reboot-70s-cult-classic-faces-of-death-home-video-release/
+
+The Faces of Death reboot, starring Barbie Ferreira and Dacre Montgomery, is officially set to get a home video release this September.
+---------
+
+# Hulu’s 9-Part Laugh-Out-Loud Comedy Is Even Better When It Breaks Its Own Formula
+
+TV Features, Adults, Hulu, Nick Kroll, Comedy
+
+Mon, 03 Aug 2026 18:56:14 GMT
+
+https://collider.com/hulu-comedy-series-adults-prequel-episode-formula/
+
+Hulu’s comedy series Adults released a laugh-out-loud prequel episode ahead of Season 2 on August 27.
+---------
+
+# 'Reacher's Alan Ritchson Officially Sets 'Fast and Furious' Meets 'F1' Heist Thriller
+
+Movie News, Reacher, Alan Ritchson, Fast and Furious, Netflix
+
+Mon, 03 Aug 2026 18:44:05 GMT
+
+https://collider.com/alan-ritchson-motogp-movie-netflix/
+
+Reacher star Alan Ritchson is developing a MotoGP action movie at Netflix with ambitions to create a global motorcycle franchise.
+---------
+
+# Apple TV’s 4-Part Masterpiece Officially Returns This Week
+
+TV News, Ted Lasso, Apple TV, Jason Sudeikis, Brett Goldstein
+
+Mon, 03 Aug 2026 18:40:15 GMT
+
+https://collider.com/apple-tv-ted-lasso-season-4-release-date-august-5-how-to-watch/
+
+Ted Lasso, Apple TV's massive sleeper hit starring Jason Sudeikis, is finally set to return this week for Season 4.
+---------
+
+# 9 Must-Watch Streaming Shows Coming in Fall 2026
+
+TV, Television, Carrie, VisionQuest, Blade Runner 2099
+
+Mon, 03 Aug 2026 18:22:15 GMT
+
+https://collider.com/must-watch-new-streaming-shows-fall-2026/
+
+From the latest MCU miniseries VisionQuest to Mike Flanagan's adaptation of Carrie, these new streaming shows will be a must-watch this fall.
+---------
+
+# $793M Anime Hit Surges to #1 on Crunchyroll
+
+Movie News, Demon Slayer: Kimetsu no Yaiba Infinity Castle, Demon Slayer: Kimetsu no Yaiba, Anime, Crunchyroll
+
+Mon, 03 Aug 2026 18:20:15 GMT
+
+https://collider.com/the-highest-grossing-anime-movie-of-2025-is-taking-over-streaming/
+
+Demon Slayer: Kimetsu no Yaiba – The Movie: Infinity Castle, the highest-grossing anime film of 2025, tops streaming charts on Crunchyroll.
+---------
+
+# 'Oppenheimer' Set To Rival 'The Odyssey' This Month
+
+Movie News, Christopher Nolan, The Odyssey, Oppenheimer, Peacock
+
+Mon, 03 Aug 2026 18:00:15 GMT
+
+https://collider.com/oppenheimer-streaming-peacock-august-2026/
+
+Christopher Nolan's historical epic The Odyssey dominates the box office, as Oppenheimer gets a new streaming release this month.
+---------
+
+# ‘Battlestar Galactica’ Officially Sets New Release for August 11
+
+TV News, Battlestar Galactica, Star Wars
+
+Mon, 03 Aug 2026 17:45:15 GMT
+
+https://collider.com/battlestar-galactica-blu-ray-2026-release/
+
+Battlestar Galactica, the acclaimed military space opera, returns on Blu-ray this month with a 21-disc set featuring all its installments.
+---------
+
+# The Biggest Pokémon Expansion Yet Officially Releases This Week
+
+Gaming News, Pokémon, Nintendo Switch, Nintendo, Gaming
+
+Mon, 03 Aug 2026 17:30:15 GMT
+
+https://collider.com/pokemon-pokopia-bubbly-basin-dlc-release-date/
+
+Pokémon Pokopia’s first paid DLC, Bubbly Basin, officially launches this week alongside a major free update for all players.
+---------
+
+# Ridley Scott's 'Alien: Romulus' Sequel Is Not Dead Yet
+
+Movie News, Alien, Alien: Romulus, Sci-Fi, Ridley Scott
+
+Mon, 03 Aug 2026 17:15:15 GMT
+
+https://collider.com/alien-romulus-sequel-update-not-cancelled-rumors-response/
+
+Alien: Romulus’ planned sequel has received an encouraging update after reports claimed the sci-fi horror follow-up had been indefinitely shelved.
+---------
+
+# 8-Part Supernatural Thriller Streaming Sensation Confirms All-New Sequel
+
+Movie News, V/H/S, Shudder
+
+Mon, 03 Aug 2026 18:54:42 GMT
+
+https://movieweb.com/v-h-s-franchise-sequel-shudder-mixtape/
+
+A new entry in the long-running 'V/H/S' franchise on Shudder is coming in October.
+---------
+
+# Henry Cavill's New 97-Minute Action Thriller Is Officially a Streaming Smash Hit
+
+Movie News, Henry Cavill, In the Grey, Action, Thriller, Guy Ritchie
+
+Mon, 03 Aug 2026 18:31:12 GMT
+
+https://movieweb.com/in-the-grey-henry-cavill-streaming-hit-august-2026/
+
+The action outing from director Guy Ritchie has found streaming redemption after failing in theaters.
+---------
+
+# Every Must-See Movie Streaming in August 2026
+
+Features, Streaming
+
+Mon, 03 Aug 2026 18:31:12 GMT
+
+https://movieweb.com/every-movie-streaming-august-2026/
+
+Alongside new releases and new-to-streaming titles, August 2026 offers a large collection of classic films.
+---------
+
+# Alan Ritchson Leads New Netflix 'Fast & Furious' Meets 'Point Break' Action Thriller
+
+Movie News, Alan Ritchson
+
+Mon, 03 Aug 2026 18:27:38 GMT
+
+https://movieweb.com/alan-ritchson-motogp-netflix-action-thriller/
+
+Alan Ritchson just scored his own 'Fast & Furious' franchise on Netflix.
+---------
+
+# First Look at Third Installment in Nicolas Cage Warped Crime Thriller Trilogy
+
+Movie News, Bad Lieutenant, Bad Lieutenant: Port of Call - New Orleans, Crime
+
+Mon, 03 Aug 2026 18:23:35 GMT
+
+https://movieweb.com/bad-lieutenant-tokyo-first-look/
+
+An unofficial sequel will now be part of an unofficial trilogy.
+---------
+
+# Director Dies Weeks Before Debut of '70s Supernatural Thriller Classic Sequel
+
+Movie News, The Wicker Man
+
+Mon, 03 Aug 2026 18:11:07 GMT
+
+https://movieweb.com/justin-hardy-died-wrath-of-the-gods/
+
+Justin Hardy has died at age 61 from a heart attack.
+---------
+
+# Every Season of 'Love Is Blind,' Ranked From Worst to Best
+
+TV Lists, Love Is Blind
+
+Mon, 03 Aug 2026 18:00:13 GMT
+
+https://movieweb.com/love-is-blind-best-seasons-ranked/
+
+Between the drama, romance, and love triangles, see where all 10 seasons of Netflix's 'Love Is Blind' rank among one another.
+---------
+
+# Brilliant Performances Transcend Expectations in a Slasher Satire | Review
+
+3.5 star movies, Teenage Sex and Death at Camp Miasma
+
+Mon, 03 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/teenage-sex-and-death-at-camp-miasma-review/
+
+'Teenage Sex and Death at Camp Miasma' explores genre tropes and queer sexuality in an artistically bold horror film.
+---------
+
+# 'Spider-Man: Brand New Day's Biggest Punisher Problem Isn't the PG-13 Rating
+
+Features, Spider-Man, Spider-Man: Brand New Day, The Punisher
+
+Mon, 03 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-punisher-problem/
+
+Spider-Man and The Punisher have great chemistry, but the superhero sequel makes one big mistake with Frank Castle.
+---------
+
+# New 'Star Wars' Series Debuts Epic Final Trailer 2 Days Ahead of Debut
+
+TV News, Star Wars Visions, Star Wars
+
+Mon, 03 Aug 2026 17:57:22 GMT
+
+https://movieweb.com/star-wars-visions-ninth-jedi-final-trailer-premiere/
+
+descriptionLucasfilm has released a final trailer for 'Star Wars: Visions Presents - The Ninth Jedi' ahead of its August 5 Disney+ premiere.
+---------
+
 # Steve Carell's 17-Part The Office Replacement Deserved One More Season From Netflix
 
 Streaming TV, Masked Recs
