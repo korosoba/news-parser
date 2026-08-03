@@ -1,3 +1,69 @@
+# Game Of Thrones Meets Final Fantasy In One Of 2026’s Biggest RPGs
+
+Gaming, Game of Thrones, Final Fantasy
+
+Mon, 03 Aug 2026 07:00:11 GMT
+
+https://screenrant.com/game-of-thrones-meets-final-fantasy-fortunes-weave/
+
+A new RPG is now available to pre-order on the Nintendo store, and it has elements of some classic franchises that could make it a huge success.
+---------
+
+# Lord Of The Rings: Realms Of The South Officially Announced
+
+Gaming, The Lord of the Rings, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings: The Return of the King, PC, The Lord of the Rings: Shadow of the Past
+
+Mon, 03 Aug 2026 06:00:11 GMT
+
+https://screenrant.com/lord-of-the-rings-realms-of-the-south-one-ring-expansion/
+
+Lord of the Rings officially returns in September 2026 with Realms of the South, taking fans into the lands of Gondor and Rohan for a new adventure.
+---------
+
+# Robocop Officially Returns December 2026
+
+Gaming, Robocop
+
+Mon, 03 Aug 2026 05:30:11 GMT
+
+https://screenrant.com/robocop-december-2026-statue-release/
+
+Robocop is one of the most iconic characters in any medium, and his return in a physical format already looks epic.
+---------
+
+# Star Wars Outlaws Limited-Time Free Download Currently Available
+
+Gaming, Star Wars Outlaws
+
+Mon, 03 Aug 2026 05:00:11 GMT
+
+https://screenrant.com/star-wars-outlaws-free-download-august-2026/
+
+Experience the open-world Star Wars adventure Star Wars Outlaws for free on PlayStation.
+---------
+
+# Nightborn Review: Shudder’s Disturbing New Movie Makes Motherhood the Ultimate Body Horror
+
+Movies
+
+Mon, 03 Aug 2026 05:27:32 GMT
+
+https://www.cbr.com/nightborn-review/
+
+Nightborn turns childbirth and new motherhood into visceral body horror in Hanna Bergholm’s unsettling Shudder follow-up to Hatching.
+---------
+
+# Pokémon Officially Drops 11 New Lego Sets On Amazon Right Now
+
+Games, Pokemon, LEGO
+
+Mon, 03 Aug 2026 05:05:14 GMT
+
+https://www.cbr.com/pokemon-official-11new-lego-sets-on-amazon-right-now/
+
+Pokémon fans just got nearly a dozen brand-new LEGO sets, and each and every one of them is available now on the same online storefront.
+---------
+
 # Game Of Thrones: The Bronze Fury Officially Revealed
 
 Gaming, Game of Thrones, Game Of Thrones, House of the Dragon, House of the Dragon - Season 3, PC
@@ -5430,70 +5496,4 @@ Sat, 01 Aug 2026 18:30:12 GMT
 https://movieweb.com/movie-theaters-august-2026/
 
 Here is every movie coming to theaters in August, including original horror, fantasy, and action movies.
----------
-
-# Netflix’s Forgotten Thriller Beats ‘Haunting of Hill House’ At Its Own Game
-
-Features, The Midnight Club, The Haunting of Hill House, Netflix, Mike Flanagan
-
-Sat, 01 Aug 2026 18:00:12 GMT
-
-https://movieweb.com/midnight-club-haunting-of-hill-house-comparison/
-
-'The Haunting of Hill House,' the Netflix thriller created by Mike Flanagan that began streaming in 2018, stars Victoria Pedretti and Henry Thomas.
----------
-
-# Robert De Niro's 105-Minute Gritty Crime Thriller Officially Returns To Streaming Today
-
-Movies, Masked Recs
-
-Sat, 01 Aug 2026 17:47:12 GMT
-
-https://screenrant.com/robert-de-niro-cop-land-movie-paramount-plus-streaming-release-august-2026/
-
-Robert De Niro is known for starring in many critically popular crime movies, and an especially gritty one is now available to stream again.
----------
-
-# The Last Of Us Season 3 Confirms Key Abby Scene Recreation In New Set Video
-
-TV, The Last of Us
-
-Sat, 01 Aug 2026 17:42:04 GMT
-
-https://screenrant.com/the-last-of-us-season-3-abby-scene-recreation-set-video/
-
-The Last of Us season 3 is back in filming after a brief production pause, and this new set video seemingly depicts an iconic scene for Abby.
----------
-
-# Alexandra Daddario’s R-Rated Prime Video Series Casting Revealed In Set Photos
-
-TV, Escorted, Escorted - Season 1
-
-Sat, 01 Aug 2026 17:38:35 GMT
-
-https://screenrant.com/alexandra-daddario-prime-video-escorted-set-photos/
-
-Set photos of Prime Video's upcoming R-rated series feature Alexandra Daddario alongside Brett Goldstein, who stars in and writes the show.
----------
-
-# Robert Downey Jr.'s 10 Best MCU Moments, Ranked
-
-Movies, Marvel Cinematic Universe
-
-Sat, 01 Aug 2026 17:30:11 GMT
-
-https://screenrant.com/robert-downey-jr-best-mcu-moments-ranked/
-
-Robert Downey Jr. is coming back to the Marvel Cinematic Universe to play Doctor Doom, but he has plenty of iconic MCU moments as Iron Man to top.
----------
-
-# 6 N64 Games That Are Barely Playable In 2026
-
-Gaming, Nintendo, Mario Kart, Mario Party
-
-Sat, 01 Aug 2026 17:30:11 GMT
-
-https://screenrant.com/6-n64-games-unplayable-2026/
-
-These Nintendo 64 games, while perhaps once excellent, are practically unplayable today as they've aged rather poorly.
 ---------
