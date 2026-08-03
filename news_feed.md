@@ -1,3 +1,366 @@
+# Marvel Announces Next Blade Appearance, And It's A Big X-Men Crossover
+
+Marvel Comics, Blade, X-Men, Marvel
+
+Mon, 03 Aug 2026 01:00:34 GMT
+
+https://screenrant.com/blade-next-appearance-xmen-crossover/
+
+Blade isn't going anywhere despite his MCU movie cancelation. Later this year, Eric Brooks is teaming up with the X-Men to find his daughter.
+---------
+
+# PlayStation Plus Losing Multiple Games In 24 Hours
+
+Gaming, PlayStation, PlayStation Plus, PlayStation 5
+
+Mon, 03 Aug 2026 01:00:11 GMT
+
+https://screenrant.com/playstation-plus-losing-july-games-august-4/
+
+PlayStation Plus subscribers will want to pay attention, as the service is officially losing several games in just 24 hours time.
+---------
+
+# All 8 Marvel Characters In Spider-Man: Brand New Day, Ranked By Power Level
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Mon, 03 Aug 2026 00:43:33 GMT
+
+https://screenrant.com/spider-man-brand-new-day-characters-ranked-power/
+
+Spider-Man: Brand New Day features several Marvel heroes and villains, but some of these MCU characters are definitely more powerful than the rest.
+---------
+
+# Stephen King's Most Brutal Horror Movie Is Climbing Streaming Charts
+
+Movies, Masked Recs, Stephen King, Lionsgate
+
+Mon, 03 Aug 2026 00:41:12 GMT
+
+https://screenrant.com/stephen-king-the-mist-movie-lionsgate-plus-streaming-success-july-2026/
+
+Several years after its run in theaters, a major Stephen King movie adaptation is now finding new success through the world of streaming in 2026.
+---------
+
+# MCU X-Men Reboot Fan Casting Rumors Gets Shut Down By Star
+
+Movies, Marvel Cinematic Universe, X-Men
+
+Mon, 03 Aug 2026 00:31:19 GMT
+
+https://screenrant.com/x-men-reboot-fan-casting-cyclops-shut-down-cooper-hoffman/
+
+There has been a lot of speculation surrounding the cast of the Marvel Cinematic Universe's X-Men reboot, but one major rumor just got shut down.
+---------
+
+# The One True Heir To KPop Demon Hunters Is Dropping In 2028
+
+TV
+
+Mon, 03 Aug 2026 00:30:11 GMT
+
+https://screenrant.com/kpop-demon-hunters-one-true-heir-new-series-2028/
+
+A new animated series has been announced that is perfect for fans of K-Pop Demon Hunters and could become the K-pop industry's next big hit.
+---------
+
+# 6 Best Invincible Comic Panels Prime Video Still Hasn't Adapted
+
+Streaming TV, Invincible
+
+Mon, 03 Aug 2026 00:30:11 GMT
+
+https://screenrant.com/invincible-best-comic-panels-prime-video-must-adapt/
+
+So far, Prime Video’s hit animated superhero show, Invincible, has been great, but there are still some spectacular comic panels it has yet to adapt.
+---------
+
+# GTA 6 Fans Hyped For Imminent Announcement After Official Update
+
+Gaming, Grand Theft Auto 6
+
+Mon, 03 Aug 2026 00:30:11 GMT
+
+https://screenrant.com/gta-6-website-update-trailer-3-reaction/
+
+Grand Theft Auto 6 is mere months away, and fans have good reason to believe that more marketing will begin quite soon this month.
+---------
+
+# 10 Harry Potter Characters The HBO Reboot Has To Get Right
+
+TV, Harry Potter
+
+Mon, 03 Aug 2026 00:20:10 GMT
+
+https://screenrant.com/harry-potter-chararcters-hbo-has-to-get-right/
+
+The Harry Potter HBO Max series has a lot to get right, and these characters are the ones it needs to really pay attention to for success.
+---------
+
+# 107-Minute Survival Thriller Gets A Sequel Next Month After Becoming A Surprise Streaming Hit
+
+Movies, Masked Recs
+
+Mon, 03 Aug 2026 00:00:11 GMT
+
+https://screenrant.com/fall-2-deadpoint-sequel-netflix-streaming-success/
+
+One of the most claustrophobic and nail-biting survival thrillers from the past five years is getting a sequel after ending with a horrifying twist.
+---------
+
+# 7 Movies More Universally Loved Than Star Wars
+
+Movies, Star Wars
+
+Mon, 03 Aug 2026 01:00:15 GMT
+
+https://www.cbr.com/movies-more-universally-loved-than-star-wars/
+
+It's nearly impossible for a film franchise to match the pop culture impact of Star Wars, but a few individual movies come surprisingly close.
+---------
+
+# The 59-Year-Old Crime Drama That Inspired The Godfather's Most Famous Death Scene Finds a New Streaming Home
+
+Movies, Bonnie and Clyde
+
+Mon, 03 Aug 2026 01:00:15 GMT
+
+https://www.cbr.com/bonnie-and-clyde-mgm-plus-streaming-home-august-2026/
+
+One of the most iconic crime dramas of an entire generation is heading to a new streaming home, and it's only a few weeks away from its next debut.
+---------
+
+# 7 Classic Fantasy Anime Where Every Episode Is a Masterpiece
+
+Anime, Fullmetal Alchemist: Brotherhood, Spice and Wolf
+
+Mon, 03 Aug 2026 00:45:14 GMT
+
+https://www.cbr.com/classic-fantasy-anime-every-episode-a-masterpiece-list/
+
+Beloved fantasy anime series like Mushishi and Spice and Wolf keep viewers hooked from start to finish, becoming classic masterpieces.
+---------
+
+# Interview With the Vampire's Canceled Spinoff Is Finally Heading to Netflix in 3 Weeks
+
+TV, Talamasca: The Secret Order
+
+Mon, 03 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/talamasca-the-secret-order-season-1-netflix-release-august-2026/
+
+The show still gets a chance to shine again despite its cancellation.
+---------
+
+# 10 Anime Series That Get Better With Every Arc
+
+Anime, Black Clover, Hunter X Hunter
+
+Mon, 03 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/anime-series-that-get-better-with-every-arc/
+
+While many long-running anime suffer from inconsistent quality, a select few get better with every single arc.
+---------
+
+# It's Official, Apple TV's New Magic Series Is Already the Fantasy Movie Event of the Decade
+
+Movies, Mistborn, Brandon Sanderson, Fantasy
+
+Mon, 03 Aug 2026 00:15:15 GMT
+
+https://www.cbr.com/mistborn-apple-tv-brandon-sanderson-fantasy-movie-of-the-decade/
+
+Apple TV is primed to not just be the go-to platform for sci-fi, but the new home for one of the best fantasy worlds in a long time.
+---------
+
+# 10 Long RPGs That Make Every Minute Count
+
+Games, Video Games, Persona 5 Royal, The Elder Scrolls V: Skyrim
+
+Mon, 03 Aug 2026 00:15:15 GMT
+
+https://www.cbr.com/long-rpgs-that-make-every-minute-count/
+
+Players will spend a lot of time in Skyrim and Persona 5, but they will never waste it a single second.
+---------
+
+# In Just 1 Day, 50 Cent's New Crime Series Turns Into an Instant Streaming Hit After Strong Reviews
+
+TV, Fightland, Starz, Crime
+
+Mon, 03 Aug 2026 00:00:14 GMT
+
+https://www.cbr.com/50-cent-fightland-boxing-crime-drama-starz-success-august-2026/
+
+50 Cent's crime drama, Fightland, already received positive reviews from critics and is now one of the most-watched shows in the United States.
+---------
+
+# Studio Ghibli Transformers Spirited Away's Masked God Into Stunning New Jewelry Release
+
+Anime, merchandise, Spirited Away, Studio Ghibli
+
+Mon, 03 Aug 2026 00:00:14 GMT
+
+https://www.cbr.com/studio-ghibli-spirited-away-kaguya-sama-earrings/
+
+Studio Ghibli unveils new earrings inspired by one of the many Japanese spirits that Chihiro encounters in Hayao Miyazaki's coming-of-age classic.
+---------
+
+# 10 Times Goku Was Actually a Good Dad
+
+Anime, Dragon Ball
+
+Mon, 03 Aug 2026 00:00:14 GMT
+
+https://www.cbr.com/dragon-ball-goku-actually-a-good-dad/
+
+Dragon Ball fans often slander Goku as a terrible father to Gohan and Goten, even claiming Vegeta to be the superior dad, but this just isn't true.
+---------
+
+# Rebecca Ferguson’s 152-Minute Stephen King Thrill Ride Is Officially Making a Comeback
+
+Movie News, Doctor Sleep, Rebecca Ferguson, Stephen King, Ewan McGregor
+
+Mon, 03 Aug 2026 01:00:15 GMT
+
+https://collider.com/rebecca-ferguson-horror-doctor-sleep-streaming-success-prime-video-apple-tv-july-2026/
+
+Rebecca Ferguson's beloved Stephen King movie is surging on streaming right now alongside Silo Season 3. Read on for more details.
+---------
+
+# Taylor Sheridan's New Series Officially Crowned a Global Hit With 6 Billion Minutes Watched
+
+TV News, Taylor Sheridan, Dutton Ranch, Paramount Plus, Yellowstone
+
+Mon, 03 Aug 2026 00:45:14 GMT
+
+https://collider.com/taylor-sheridan-dutton-ranch-nielsen-ratings-6-billion-minutes-watched/
+
+Taylor Sheridan may not be directly involved in Dutton Ranch, but the show has proven to be a viewership juggernaut for Paramount+. Find out more.
+---------
+
+# Peter Jackson's Acclaimed Sci-Fi Sensation Moves to Free Streaming
+
+Movie News, District 9, Neill Blomkamp, Peter Jackson, Sci-Fi
+
+Mon, 03 Aug 2026 00:30:15 GMT
+
+https://collider.com/peter-jackson-sci-fi-district-9-streaming-pluto-tv-august-2026/
+
+The sci-fi sensation District 9, which scored a Best Picture Oscar nomination, is coming to free streaming over 15 years after its release.
+---------
+
+# Netflix's Whimsical 3-Part Black Comedy Is the Most Underrated Show You Haven't Rewatched
+
+TV Features, A Series of Unfortunate Events, Netflix, Lemony Snicket, Neil Patrick Harris
+
+Mon, 03 Aug 2026 00:20:15 GMT
+
+https://collider.com/a-series-of-unfortunate-events-netflix-rewatch/
+
+Netflix's adaptation of Lemony Snicket's A Series of Unfortunate Events deserves another look because it does everything right as an adaptation.
+---------
+
+# Creator of the Best Sci-Fi Series You've Never Seen Reveals Scrapped Storyline 7 Years Later
+
+TV News, Now Apocalypse, Gregg Araki, Sci-Fi, Horror
+
+Mon, 03 Aug 2026 00:15:14 GMT
+
+https://collider.com/now-apocalypse-gregg-araki-season-2-scripts-written-update/
+
+Seven years after Starz cancelled his sci-fi series, Gregg Araki reveals the surprising Season 2 storyline. Get more details here.
+---------
+
+# 10 Perfect Netflix Shows With 5 Seasons or Less
+
+TV, Netflix, The Queen's Gambit, The Last Kingdom, Arcane
+
+Mon, 03 Aug 2026 00:02:14 GMT
+
+https://collider.com/perfect-netflix-shows-shorter-than-5-seasons/
+
+Discover brilliant Netflix series that deliver a strong, satisfying story within a concise five-season run, from Heartstopper to Sweet Tooth.
+---------
+
+# Cartoon Network's 10/10 Masterpiece Is the New King of Streaming After Being Dumped by HBO Max
+
+TV News, HBO Max, Martial Arts, Samurai Jack, Cartoons
+
+Mon, 03 Aug 2026 00:00:14 GMT
+
+https://collider.com/samurai-jack-streaming-success-apple-tv-store-august-2026/
+
+Once overlooked by younger viewers, this acclaimed animated epic is finding a new audience years after its finale.
+---------
+
+# ‘Mindhunter’ Meets ‘Heat’ in the 100%-Rated Crime Hit That Just Toppled ABC’s Biggest Series
+
+TV News, Furious, Emmy Rossum, Mindhunter, Hulu
+
+Sun, 02 Aug 2026 23:45:14 GMT
+
+https://collider.com/hulu-furious-emmy-rossum-crime-series-streaming-success-august-2026/
+
+A new cat-and-mouse crime thriller, Furious, is taking over the Hulu streaming charts with a 100% Rotten Tomatoes score.
+---------
+
+# Tom Cruise’s 113-Minute Sci-Fi Masterpiece Is the Ultimate Streaming Rewatch
+
+Movie News, Edge of Tomorrow, Tom Cruise, Emily Blunt, Sci-Fi
+
+Sun, 02 Aug 2026 23:30:14 GMT
+
+https://collider.com/tom-cruise-sci-fi-edge-of-tomorrow-streaming-success-itunes-store-august-2026/
+
+Tom Cruise’s $370 million sci-fi masterpiece Edge of Tomorrow remains one of streaming’s most rewatchable action hits.
+---------
+
+# Everyone Who Knows Peter Parker Is Spider-Man in the MCU (After 'Brand New Day')
+
+Features, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Mon, 03 Aug 2026 01:00:12 GMT
+
+https://movieweb.com/peter-parker-spider-man-true-identity-mcu/
+
+'Spider-Man: Brand New Day' acts as a reset button for Peter Parker in the MCU after his identity is forgotten, but he doesn't wind up entirely alone.
+---------
+
+# Forget 'Toy Story 5,' 98-Minute $1-Billion Fantasy Sequel Officially Dominates Streaming
+
+Movie News, The Super Mario Galaxy Movie, Hot on Streaming
+
+Mon, 03 Aug 2026 01:00:12 GMT
+
+https://movieweb.com/super-mario-galaxy-movie-streaming-hit-success-august-2026/
+
+After an impressive theatrical run, this solid sequel keeps toppling the competition.
+---------
+
+# 10 Perfect Anime Series That Will Keep You Hooked From Start to Finish
+
+TV Lists, Anime, Attack on Titan, Fullmetal Alchemist: Brotherhood
+
+Mon, 03 Aug 2026 00:15:12 GMT
+
+https://movieweb.com/anime-series-perfect-start-to-finish/
+
+It's rare to find completed anime series that remain consistently gripping from beginning to end, but these great titles fit the bill.
+---------
+
+# 'Resident Evil' Meets 'Saving Private Ryan' Action War Thriller Has Just Hit Streaming
+
+Movie News, Overlord, Coming/Leaving Streaming
+
+Mon, 03 Aug 2026 00:00:12 GMT
+
+https://movieweb.com/overlord-paramount-plus-streaming-august-2026/
+
+This is not your average WWII movie.
+---------
+
 # 3 Marvel Antiheroes Who Stayed Hardcore & 3 Who Turned Hero
 
 Marvel Comics, Marvel
@@ -5133,367 +5496,4 @@ Sat, 01 Aug 2026 16:00:15 GMT
 https://www.cbr.com/what-coming-netflix-august-2026-full-list/
 
 A new month is here, and Netflix has already added a series of hit titles.
----------
-
-# Star Wars: X-Wing Academy Is A Harry Potter-Inspired Comic
-
-Comics, Star Wars
-
-Sat, 01 Aug 2026 16:00:15 GMT
-
-https://www.cbr.com/star-wars-x-wing-academy-comic-harry-potter/
-
-What a magical treat this Star Wars comic will be.
----------
-
-# Studio Ghibli's Kiki's Delivery Service Glassware Returns as Purrfect Kitchen Collectibles After 8 Years
-
-Anime, Kiki's Delivery Service, Studio Ghibli, merchandise
-
-Sat, 01 Aug 2026 16:00:15 GMT
-
-https://www.cbr.com/studio-ghibli-kikis-delivery-service-lemon-flower-series-re-release/
-
-Studio Ghibli's newly re-released Kiki-themed drinkware lets fans relax and greet the hot summer months with their favorite beverage at the ready.
----------
-
-# 10 Gangster Movies With Absolutely No Flaws
-
-Movie, The Godfather, Goodfellas, City of God, Animal Kingdom
-
-Sat, 01 Aug 2026 16:36:15 GMT
-
-https://collider.com/gangster-movies-no-flaws/
-
-From American classics like The Godfather to international gems like City of God, these crime masterpieces are truly faultless from start to finish.
----------
-
-# Every Lord of the Rings Book, Ranked by a Casual Fan
-
-Books and Comics, The Lord of the Rings, J.R.R. Tolkien, Fantasy, The Fellowship of the Ring
-
-Sat, 01 Aug 2026 16:19:15 GMT
-
-https://collider.com/the-lord-of-the-rings-books-ranked-casual-fan/
-
-A casual fan's revisit to The Lord of the Rings books reveals the most addictive Middle-earth adventure and the one that demands patience.
----------
-
-# Christopher Nolan’s ‘The Odyssey’ Officially Takes Down Mel Gibson’s Most Controversial Movie
-
-Movie News, Christopher Nolan, The Odyssey, Box Office, The Passion of the Christ
-
-Sat, 01 Aug 2026 16:15:15 GMT
-
-https://collider.com/christopher-nolan-the-odyssey-overtakes-mel-gibson-passion-of-the-christ-box-office-400-million/
-
-Christopher Nolan’s The Odyssey has beaten Mel Gibson’s Passion of the Christ as Spider-Man: Brand New Day stages a global box office takeover.
----------
-
-# Every New Movie and TV Show Coming to Netflix in August 2026
-
-Features, Netflix
-
-Sat, 01 Aug 2026 16:30:12 GMT
-
-https://movieweb.com/netflix-new-movie-tv-august-2026/
-
-In August, Netflix brings plenty of new and returning series, along with classic movies and standout original films.
----------
-
-# Forget 'Lioness,' Paramount's 114-Episode Non-Stop Action Thriller Is One of the Biggest Shows on Streaming
-
-TV News, SEAL Team, Paramount Plus, Hot on Streaming, Lioness, Action
-
-Sat, 01 Aug 2026 16:01:12 GMT
-
-https://movieweb.com/seal-team-lioness-paramount-streaming-success-august-2026-action/
-
-Paramount+'s answer to Taylor Sheridan's hit action thriller is a global streaming hit.
----------
-
-# Jon Hamm's Crime Thriller Is So Good, You'll Spend the Whole Weekend Watching It
-
-Features, Jon Hamm, Your Friends and Neighbors
-
-Sat, 01 Aug 2026 16:01:12 GMT
-
-https://movieweb.com/jon-hamm-your-friends-and-neighbors-binge/
-
-Jon Hamm's Apple TV series, 'Your Friends & Neighbors,' is super addictive, and it'll soon be back for Season 2.
----------
-
-# Pokémon Winds & Waves Gameplay Leak Confirms Beloved Legends Feature
-
-Gaming, Pokemon Winds and Waves, Pokemon, Triple-A Games
-
-Sat, 01 Aug 2026 15:47:44 GMT
-
-https://screenrant.com/pokemon-winds-waves-pokeball-battle-legends/
-
-Pokémon Scarlet & Violet skipped a lot of the best features from Legends: Arceus, but Winds & Waves apparently won't make the same mistake.
----------
-
-# The Odyssey Box Office Breaks Christopher Nolan's The Dark Knight Record In Week 3
-
-Movies, Box Office, The Odyssey
-
-Sat, 01 Aug 2026 15:36:08 GMT
-
-https://screenrant.com/the-odyssey-2026-box-office-week-3-domestic-result/
-
-The Odyssey's third weekend at the domestic box office sees it earning a record-smashing total despite competition from Spider-Man: Brand New Day.
----------
-
-# Spider-Man: Brand New Day Box Office Grosses Nearly $1 Billion In A Single Weekend
-
-Movies, Box Office, Spider-Man: Brand New Day, Marvel Cinematic Universe
-
-Sat, 01 Aug 2026 15:33:08 GMT
-
-https://screenrant.com/spider-man-brand-new-day-global-box-office-debut/
-
-Spider-Man: Brand New Day earns the second-biggest global box office debut of all time, behind only its MCU predecessor Avengers: Endgame.
----------
-
-# Every Romantic Relationship Raj Had In The Big Bang Theory Ranked
-
-Classic TV, The Big Bang Theory
-
-Sat, 01 Aug 2026 15:30:13 GMT
-
-https://screenrant.com/big-bang-theory-raj-relationships-ranked/
-
-Raj had quite a few relationships on The Big Bang Theory and even a few promising girlfriends.- despite his famed inability to talk to women.
----------
-
-# 5 Action Thriller Shows Better Than Reacher
-
-TV, Reacher, Recommendation
-
-Sat, 01 Aug 2026 15:30:11 GMT
-
-https://screenrant.com/action-thriller-shows-better-reacher/
-
-Prime Video's Reacher is one of the most addictive action thrillers on TV, but there are a handful of series that edge it out in terms of quality.
----------
-
-# Pokémon Reveals New 30th Anniversary Release For August 7 That Will Sell Out Fast
-
-Gaming, Pokemon
-
-Sat, 01 Aug 2026 15:30:11 GMT
-
-https://screenrant.com/pokemon-classic-concert-tour-pikachu-august-7/
-
-Pokémon has officially revealed a new 30th anniversary release that goes on sale on August 7. It'll likely sell out fast, so mark your calendars now.
----------
-
-# The Rookie Finally Breaks An ABC Record That Nobody Wanted In Season 9
-
-Network TV, The Rookie
-
-Sat, 01 Aug 2026 15:30:11 GMT
-
-https://screenrant.com/the-rookie-season-9-no-two-part-premiere-break-record/
-
-New details about The Rookie season 8 confirms that it is breaking a record for the first time in its history that nobody wanted in the first place.
----------
-
-# Why Penny & Leonard Aren’t Together In New Big Bang Theory Spinoff Explained By Creator
-
-TV, Stuart Fails to Save the Universe, Stuart Fails to Save the Universe - Season 1, The Big Bang Theory
-
-Sat, 01 Aug 2026 15:15:28 GMT
-
-https://screenrant.com/stuart-fails-to-save-the-universe-penny-leonard-relationship-prady-response/
-
-Penny and Leonard's relationship is central to The Big Bang Theory franchise, but they aren't together in the new spinoff for an important reason.
----------
-
-# Forget Horizon, This Is The Kevin Costner Western Series We Want To Return ASAP
-
-Streaming TV, Masked Recs
-
-Sat, 01 Aug 2026 15:15:11 GMT
-
-https://screenrant.com/kevin-costner-civil-war-western-the-gray-house-season-2-return/
-
-Despite its mixed reception, The Gray House, a Prime Video drama executive produced by Kevin Costner, has the potential for a compelling season 2.
----------
-
-# Spider-Man: Brand New Day Leaves One Huge Peter Parker Storyline Unresolved
-
-Movies, Spider-Man: Brand New Day
-
-Sat, 01 Aug 2026 15:15:11 GMT
-
-https://screenrant.com/spider-man-brand-new-day-leaves-one-huge-peter-parker-storyline-unresolved/
-
-Spider-Man: Brand New Day balances many plot lines, but one in particular is left unresolved come the end of the film's story.
----------
-
-# The Only 2000s HBO Show That Still Outshines The Sopranos Today
-
-TV, Deadwood, hbo, The Sopranos
-
-Sat, 01 Aug 2026 15:31:15 GMT
-
-https://www.cbr.com/hbo-deadwood-still-outshines-the-sopranos-today/
-
-While people point to HBO and The Sopranos for kickstarting the Prestige TV era, another early 2000s series outshines the mob drama to this day.
----------
-
-# 4 Dark Shonen Anime Where Every Episode Is a Masterpiece
-
-Anime, Berserk, Jujutsu Kaisen, Fullmetal Alchemist Brotherhood, Attack On Titan
-
-Sat, 01 Aug 2026 15:15:15 GMT
-
-https://www.cbr.com/dark-shonen-anime-every-episode-a-masterpiece/
-
-The greatest dark shonen anime are exceptional works of art that every fan needs to watch.
----------
-
-# Zelda Officially Returns With New 40th Anniversary Release October 2026
-
-Games, The Legend of Zelda
-
-Sat, 01 Aug 2026 15:10:15 GMT
-
-https://www.cbr.com/zelda-official-return-new-anniversary-release-october-2026/
-
-The Legend of Zelda franchise has big new releases coming in October and November.
----------
-
-# Ryan Gosling's Masterpiece Sci-Fi Thriller Officially Finds New Streaming Home
-
-Movies, Blade Runner 2049, Paramount Plus, ryan gosling
-
-Sat, 01 Aug 2026 15:00:15 GMT
-
-https://www.cbr.com/blade-runner-2049-paramount-plus-august-2026/
-
-Ryan Gosling's $276M masterpiece has moved to a new streaming home.
----------
-
-# 10 X-Men Comics That Desperately Need a Reboot
-
-Comics, X-Men, Marvel, superheroes
-
-Sat, 01 Aug 2026 15:00:15 GMT
-
-https://www.cbr.com/xmen-comics-desperately-need-reboot-list/
-
-Explore the
----------
-
-# 10 Most Disappointing Live Action Anime Adaptations, Ranked
-
-Anime, Shonen, Dragon Ball, Cowboy Bebop (2021)
-
-Sat, 01 Aug 2026 15:00:15 GMT
-
-https://www.cbr.com/most-disappointing-live-action-anime-adaptations/
-
-Live action anime adaptations like Dragon Ball Evolution and Cowboy Bebop completely miss the mark, and they aren't the only ones.
----------
-
-# Solo Leveling's Spider-Man: Brand New Day Cameo Makes Perfect Sense
-
-Anime, Solo Leveling, Spider-Man: Brand New Day
-
-Sat, 01 Aug 2026 14:55:15 GMT
-
-https://www.cbr.com/spider-man-brand-new-day-solo-leveling-cameo/
-
-Solo Leveling's Sung Jinwoo just made an early live-action big screen debut by way of Marvel's new Spider-Man: Brand New Day movie.
----------
-
-# 10 Farewell Tours That Didn't Stick
-
-Music Features, Music, Frank Sinatra, Elton John, Motley Crue, The Dirt
-
-Sat, 01 Aug 2026 15:33:15 GMT
-
-https://collider.com/10-best-farewell-tours-didnt-stick/
-
-From Frank Sinatra and Elton John to Motley Crue and Kiss to Ozzy and The Who, these farewell concert tours were more a temporary goodbye.
----------
-
-# Timothy Olyphant’s 6-Part Neo-Western Is So Good, It Even Changed This Character’s Fate in the Books
-
-TV Features, Justified, Timothy Olyphant, Walton Goggins, Justified: City Primeval
-
-Sat, 01 Aug 2026 15:23:15 GMT
-
-https://collider.com/justified-timothy-olyphant-neo-western-changed-boyd-crowder-fate-books/
-
-Justified's decision to keep Boyd Crowder alive shocked fans and even changed Elmore Leonard's final Raylan Givens book.
----------
-
-# ‘Stranger Things’ Producers Must Get This Right With Netflix’s Next Massive Gaming Series
-
-TV Features, Persona, Stranger Things, The Witcher, Netflix
-
-Sat, 01 Aug 2026 15:20:15 GMT
-
-https://collider.com/netflix-persona-stranger-things-producers-video-game-relationships/
-
-The Persona video games will be getting a television adaptation courtesy of 21 Laps, and there's a key element that producers need to remember.
----------
-
-# ‘Big Bang Theory’ Favorites React to Sci-Fi Spin-Off Announcement: “We Thought We Were Being Punk’d”
-
-Exclusives, Stuart Fails to Save the Universe, SDCC, The Big Bang Theory, HBO Max
-
-Sat, 01 Aug 2026 14:58:29 GMT
-
-https://collider.com/big-bang-theory-sci-fi-spin-off-stuart-fails-to-save-the-universe-cast-reaction/
-
-The cast of Stuart Fails to Save the Universe break down the Big Bang Theory spin-off's wildest sci-fi moments and tease a potential Season 2.
----------
-
-# ‘Spider-Man: Brand New Day’ Swings Past ‘Avengers: Endgame’ in Monster Box Office Debut
-
-Movie News, Spider-Man: Brand New Day, Avengers: Endgame, Box Office, Tom Holland
-
-Sat, 01 Aug 2026 14:55:34 GMT
-
-https://collider.com/spider-man-brand-new-day-box-office-168-million/
-
-After beating Avengers: Endgame’s opening box office haul, Spider-Man: Brand New Day isn’t done shattering records yet.
----------
-
-# 2026’s Sci-Fi Fantasy Bomb Officially Loses #1 Prime Video Spot to New Horror Hit
-
-Movie News, Prime Video, Masters of the Universe, The Devil's Mouth, Horror
-
-Sat, 01 Aug 2026 14:46:15 GMT
-
-https://collider.com/the-devils-mouth-overtakes-masters-of-the-universe-streaming-success-prime-video-august-2026/
-
-Kathryn Netwon’s new horror movie has officially dethroned Masters of the Universe on Prime Video. Read on for all the details.
----------
-
-# 'Spider-Man: Brand New Day's Record-Setting RT Audience Score Is Off to a Spectacular Start
-
-Movie News, Spider-Man: Brand New Day, Rotten Tomatoes
-
-Sat, 01 Aug 2026 15:31:32 GMT
-
-https://movieweb.com/spider-man-brand-new-day-rotten-tomatoes-audience-score/
-
-'Spider-Man: Brand New Day' is off to a spectacular start, as reviews for the movie have taken it to incredible levels of success.
----------
-
-# 13 'Fast & Furious' Quotes About Family
-
-Movie Lists, Fast and Furious
-
-Sat, 01 Aug 2026 15:00:13 GMT
-
-https://movieweb.com/fast-and-furious-quotes-about-family/
-
-Dom Toretto has never met a scene he couldn't turn into a speech about family. Here are 13 'Fast & Furious' quotes that define the franchise's soul.
 ---------
