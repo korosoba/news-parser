@@ -1,3 +1,377 @@
+# Historic Debut of New Superman Character: Their Codename and Origin
+
+Comics, Superman
+
+Mon, 03 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/superman-new-character-superpig/
+
+A historic moment.
+---------
+
+# Doctor Doom Has Assembled The Ultimate Team Of Villains Ahead Of Avengers: Doomsday
+
+Gaming, Marvel Tokon: Fighting Souls, Triple-A Games
+
+Mon, 03 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/doctor-doom-knights-of-doom-avengers-doomsday-tokon/
+
+Doctor Doom is gearing up to have an incredible year, and part of that is due to the ultimate team of villains he's devised before Doomsday.
+---------
+
+# Marvel Studios Isn't Waiting Long To Bring Spider-Man Back After Brand New Day
+
+Streaming TV, Masked Recs
+
+Mon, 03 Aug 2026 21:55:30 GMT
+
+https://screenrant.com/your-friendly-neighborhood-spider-man-season-2-after-brand-new-day/
+
+Spider-Man: Brand New Day has become an instant global hit, and Marvel has other plans for its biggest hero, as another Peter Parker returns in 2026.
+---------
+
+# Coach Taylor's 10 Best Quotes In Friday Night Lights, Ranked
+
+Classic TV, Friday Night Lights
+
+Mon, 03 Aug 2026 21:45:11 GMT
+
+https://screenrant.com/coach-taylor-best-friday-night-lights-quotes-ranked/
+
+Ranking the top 10 most inspirational quotes from Coach Taylor, played by Kyle Chandler, in the iconic sports drama series Friday Night Lights.
+---------
+
+# Taylor Sheridan's Action Spy Series Is One Of The Biggest Shows In The World
+
+TV, Masked Recs
+
+Mon, 03 Aug 2026 21:38:54 GMT
+
+https://screenrant.com/taylor-sheridan-lioness-action-show-streaming-august-2026/
+
+Taylor Sheridan's spy thriller is back to being one of the biggest shows in the world shortly after the premiere of its new season on August 2.
+---------
+
+# The Lord of the Rings: The Rings of Power Season 3 Interview with Cast & EP at SDCC 2026
+
+Comic-Con, The Lord of the Rings, The Lord of the Rings: The Rings of Power, San Diego Comic-Con
+
+Mon, 03 Aug 2026 21:35:06 GMT
+
+https://screenrant.com/video/lotr-rings-of-power-season-3-charlie-vickers-daniel-weyman-cast-interview-sdcc-2026/
+
+The Lord of the Rings: The Rings Of Power stars Cynthia Addai-Robinson, Charlie Vickers, Benjamin Walker, Daniel Weyman, and showrunner JD Payne tease Gandalf's coming-of-name story, Sauron's true face, Miriel's faith despite her losses, and Gil-galad's next obstacles in season 3.
+---------
+
+# 10 Sci-Fi Shows With The Deepest Lore
+
+TV, Sci-Fi
+
+Mon, 03 Aug 2026 21:30:11 GMT
+
+https://screenrant.com/sci-fi-tv-shows-deepest-lore/
+
+These sci-fi TV series have the richest and most in-depth lore in the genre, fully immersing viewers in their complex and expansive universes.
+---------
+
+# 8 Years Later, Missing MCU Star Gives Definitive Update On Marvel Return
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe, Jessica Henwick
+
+Mon, 03 Aug 2026 21:24:27 GMT
+
+https://screenrant.com/daredevil-born-again-season-3-colleen-wing-return-update-definitive-henwick/
+
+One of the MCU's biggest missing stars offers a definitive update on their potential return after an 8-year absence and their group's return.
+---------
+
+# Star Wars' 14 Most Intelligent Characters, Ranked
+
+Movies, Star Wars
+
+Mon, 03 Aug 2026 21:15:11 GMT
+
+https://screenrant.com/star-wars-most-intelligent-characters-ranked/
+
+Star Wars is filled with brilliant strategists, combatants who can adapt to anything, and wise old Jedi, but these characters are the smartest.
+---------
+
+# Lanterns Interview with Kyle Chandler, Aaron Pierre & More at SDCC 2026
+
+Comic-Con, San Diego Comic-Con, Lanterns, Kyle Chandler
+
+Mon, 03 Aug 2026 21:14:35 GMT
+
+https://screenrant.com/video/lanterns-kyle-chandler-aaron-pierre-tom-king-cast-interview-sdcc-2026/
+
+Lanterns stars Kyle Chandler, Aaron Pierre, Garret Dillahunt, Poorna Jagannathan, showrunner  Chris Mundy, and EP Tom King break down the dynamic between the show's 3 heroes and how Hal Jordan and John Stewart will be true to the comics.
+---------
+
+# Apple TV's Underrated Crime Drama With 92% RT Returns as a Streaming Hit as Fans Await New Episodes
+
+TV, Bad Monkey, Apple TV, Crime
+
+Mon, 03 Aug 2026 22:00:15 GMT
+
+https://www.cbr.com/bad-monkey-apple-tv-crime-drama-success-august-2026/
+
+Apple TV's Bad Monkey is rising on the Amazon Channel charts, two years after its premiere
+---------
+
+# A24's New Sci-Fi Thriller Combines the Best Parts of Terminator and Aliens
+
+Movies, Sci-Fi, Onslaught, A24
+
+Mon, 03 Aug 2026 22:00:15 GMT
+
+https://www.cbr.com/onslaught-a24-sci-fi-thriller-aliens-meets-terminator/
+
+Combining the strongest elements of Aliens and Terminator, A24’s upcoming Onslaught is a blood-soaked homage to sci-fi’s most iconic classics.
+---------
+
+# Kevin Feige Confirms Spider-Man 5 Plans After Brand New Day's Record-Breaking Opening
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Mon, 03 Aug 2026 21:36:03 GMT
+
+https://www.cbr.com/spider-man-5-kevin-feige-plans-tom-holland/
+
+Kevin Feige breaks his silence on Spider-Man 5 following Brand New Day's record-breaking opening weekend.
+---------
+
+# Alan Ritchson & Netflix Team Up for Fast & Furious Replacement After Sequel Delay
+
+Movies, Fast and Furious
+
+Mon, 03 Aug 2026 21:19:39 GMT
+
+https://www.cbr.com/alan-ritchson-netflix-motogp-movie/
+
+The Fast & Furious franchise will return eventually, but Alan Ritchson scored the best replacement.
+---------
+
+# 10 Spider-Man Comics Marvel Studios Should Use For Tom Holland's Next Major Movie
+
+Movies, Spider-Man: Brand New Day, Marvel Comics, MCU
+
+Mon, 03 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/spider-man-comics-after-brand-new-day-sequel-ideas-list-ranked/
+
+After Spider-Man: Brand New Day, Marvel Studios needs to adapt these comic books for the sequel.
+---------
+
+# 5 Greatest Star Wars Book Trilogies of All Time, Ranked
+
+Movies, Star Wars, Sci-Fi
+
+Mon, 03 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/best-star-wars-book-trilogies-list/
+
+Star Wars became one of the biggest entertainment franchises of all time, expanding its mythology far beyond theaters and onto the pages of countless
+---------
+
+# Netflix's 8-Part Mystery Series With 15.3M Views Gets New Season 2 Update From Creator
+
+TV, The Beast in Me, Netflix, Mystery
+
+Mon, 03 Aug 2026 20:57:05 GMT
+
+https://www.cbr.com/the-beast-in-me-netflix-season-2-update/
+
+Netflix's The Beast in Me, starring Claire Danes and Matthew Rhys, could get a second season.
+---------
+
+# God of War Series Casts Major Marvel Star as Kratos Replacement
+
+TV, God of War, Prime Video
+
+Mon, 03 Aug 2026 20:42:42 GMT
+
+https://www.cbr.com/god-of-war-dave-bautista-kratos/
+
+The live-action God of War has gone big with its replacement for Ryan Hurst as Kratos.
+---------
+
+# Paramount+’s Critically Acclaimed Fantasy Sequel Is Officially Back in the Top 10
+
+TV News, The Legend of Korra, Paramount Plus, Nickelodeon, Avatar: The Last Airbender
+
+Mon, 03 Aug 2026 22:00:14 GMT
+
+https://collider.com/legend-of-korra-paramount-plus-streaming-chart-success-august-2026/
+
+The Avatar franchise is surging on streaming again as fans revisit the acclaimed animated series ahead of its next major chapter.
+---------
+
+# Spider-Man: Brand New Day Officially Addresses the Worst Decision in X-Men History
+
+Movie Features, Spider-Man: Brand New Day, X-Men: The Last Stand, Tom Holland, Sadie Sink
+
+Mon, 03 Aug 2026 21:53:14 GMT
+
+https://collider.com/spider-man-brand-new-day-fixes-x-men-3-the-last-stand/
+
+Spider-Man: Brand New Day improves upon X-Men 3: The Last Stand, which did not stick the landing regarding its themes of self-acceptance.
+---------
+
+# 10 Greatest Horror Movie Endings of the 2020s
+
+Movie, Horror, Obsession, Sinners, Together
+
+Mon, 03 Aug 2026 21:08:14 GMT
+
+https://collider.com/best-horror-movie-endings-2020s/
+
+From Together, to Sinners, to Obsession, these are the best horror movie endings of the 2020s so far.
+---------
+
+# Prime Video Officially Says Goodbye to Rebecca Ferguson’s #1 Sci-Fi Series in 10 Days
+
+TV News, Silo, Prime Video, Rebecca Ferguson, Apple TV
+
+Mon, 03 Aug 2026 21:00:15 GMT
+
+https://collider.com/prime-video-removing-silo-season-1-august-2026/
+
+Prime Video is officially removing the first season of Rebecca Ferguson's Silo as Apple TV continues to release new episodes of Season 3.
+---------
+
+# 10 Mystery Movies That Are Perfect From the First Scene to the Last
+
+Movie, Mystery, Memento, Rear Window, The Nice Guys
+
+Mon, 03 Aug 2026 20:48:14 GMT
+
+https://collider.com/mystery-movies-perfect-first-scene-to-last/
+
+From foundational classics like The Conversation to subversive new comedies like The Nice Guys, these brilliant mystery movies are perfect throughout.
+---------
+
+# 3 Most Exciting Shows to Binge on Netflix This Week
+
+TV, Best Medicine, Big Mistakes, Netflix, Arcane
+
+Mon, 03 Aug 2026 20:47:14 GMT
+
+https://collider.com/netflix-shows-binge-week-august-3-2026/
+
+Best Medicine, Big Mistakes, and Arcane make up our list of the best shows to binge on Netflix the week of August 3rd, 2026.
+---------
+
+# Prime Video’s ‘God of War’ Officially Finds Perfect Kratos Replacement
+
+TV News, God of War, Prime Video, Dave Bautista, Ryan Hurst
+
+Mon, 03 Aug 2026 20:44:36 GMT
+
+https://collider.com/god-of-war-cast-dave-bautista-kratos-replacement-prime-video/
+
+Dave Bautista is reportedly being eyed as Kratos in Prime Video’s live-action God of War series as the streamer searches for Ryan Hurst’s replacement.
+---------
+
+# Taylor Sheridan's Greatest Action Thriller Series Is Better Than Ever
+
+Features, Lioness, Taylor Sheridan
+
+Mon, 03 Aug 2026 22:00:12 GMT
+
+https://movieweb.com/lioness-marshals-taylor-sheridan-comparison/
+
+Taylor Sheridan has created some of the most popular Westerns and action thriller TV series of the past few years.
+---------
+
+# MCU Star Goes Werewolf in Unhinged Supernatural Directorial Debut
+
+Movie News, Kumail Nanjiani
+
+Mon, 03 Aug 2026 21:46:46 GMT
+
+https://movieweb.com/kumail-nanjiani-howl-movie/
+
+Star of 'Eternals' Kumail Nanjiani is directing a werewolf horror-comedy.
+---------
+
+# Sony & Marvel Address 'Spider-Man 5' After Record-Breaking 'Brand New Day'
+
+Movie News, Spider-Man: Brand New Day, MCU's Movie Order (2008 - 2019) - The Infinity Saga (Iron Man - Spider-Man: Far from Home)
+
+Mon, 03 Aug 2026 21:40:07 GMT
+
+https://movieweb.com/spider-man-5-future-updates/
+
+After the record-breaking opening weekend of 'Spider-Man: Brand New Day', Sony's Tom Rothman and Marvel Studios' Kevin Feige weigh in on future films.
+---------
+
+# R-Rated Sci-Fi Erotic Thriller Spin-Off Quietly Debuts on Digital
+
+Movie News, SOULM8TE, M3GAN, M3GAN 2.0
+
+Mon, 03 Aug 2026 21:30:28 GMT
+
+https://movieweb.com/m3gan-spin-off-soulm8te-digital/
+
+The 'M3GAN' spin-off 'SOULM8TE' is now available after initially being scheduled for theatrical release.
+---------
+
+# The Winners & Losers From 'Spider-Man: Brand New Day's Opening Weekend
+
+Features, Spider-Man: Brand New Day
+
+Mon, 03 Aug 2026 21:30:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-opening-weekend-records/
+
+'Spider-Man: Brand New Day' starring Tom Holland and Sadie Sink broke multiple records in its opening weekend.
+---------
+
+# ‘Spider-Man: Brand New Day’ Is Officially Changing Formats
+
+Features, Spider-Man
+
+Mon, 03 Aug 2026 21:00:49 GMT
+
+https://movieweb.com/spider-man-brand-new-day-imax-premiere/
+
+'Spider-Man: Brand New Day,' which stars Tom Holland, Zendaya, and Sadie Sink, had an incredible opening weekend.
+---------
+
+# Prime Video's New Near-Perfect Action Thriller Remains a Streaming Smash
+
+TV News, Ride or Die, Action, Hot on Streaming, Prime Video
+
+Mon, 03 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/ride-or-die-action-prime-video-streaming-hit-august-2026/
+
+After two weeks, Prime Video's latest action-packed series continues to be a massive success on streaming.
+---------
+
+# 'House of the Dragon' Just Broke a 15 Year 'Game of Thrones' Battle Tradition
+
+Features, House of the Dragon, Game of Thrones
+
+Mon, 03 Aug 2026 20:53:53 GMT
+
+https://movieweb.com/house-of-the-dragon-climax-battles-tradition/
+
+You think you know a franchise, but after 15 years, 'House of the Dragon' Season 3's penultimate episode surprised us.
+---------
+
+# Amazon's 'God of War' Finds New Kratos Actor After Shock Recasting
+
+TV News, God of War, Dave Bautista
+
+Mon, 03 Aug 2026 20:45:02 GMT
+
+https://movieweb.com/amazon-god-of-war-dave-bautista-kratos/
+
+'God of War' has found its Kratos (again).
+---------
+
 # Paramount+'s 10/10 Spy Thriller Series With 393 Million Minutes Viewed Deserves Its Streaming Success
 
 Streaming TV, Masked Recs
