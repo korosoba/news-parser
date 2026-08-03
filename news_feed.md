@@ -1,3 +1,289 @@
+# How To Beat Giovanni In Pokémon GO (August 2026)
+
+Gaming, Pokemon GO, Pokemon, Live Service Games, Mobile
+
+Mon, 03 Aug 2026 23:30:11 GMT
+
+https://screenrant.com/pokemon-go-how-to-beat-giovanni-counters-august-2026/
+
+Team Rocket's most notorious figure, Giovanni, returns in Pokémon GO for August 2026 with a familiar team to beat for several great rewards.
+---------
+
+# Taylor Sheridan's Ambitious New Release Is Landman Meets The Martian
+
+Movies, Masked Recs
+
+Mon, 03 Aug 2026 23:30:11 GMT
+
+https://screenrant.com/taylor-sheridan-capture-the-flag-landman-martian/
+
+Taylor Sheridan recently announced two new upcoming movies, and one of them sounds like a fusion of Western and hard science fiction, a first for him.
+---------
+
+# Netflix's Best Fantasy Drama of 2025 Is Making A Comeback In A Whole New Form
+
+TV, Netflix, Masked Recs
+
+Mon, 03 Aug 2026 23:30:11 GMT
+
+https://screenrant.com/bon-appetit-your-majesty-netflix-best-fantasy-drama-comeback/
+
+The time-travel fantasy drama that captivated millions on Netflix last year is back, but in an all-new form that fans can't miss!
+---------
+
+# 5 Best Shows To Watch On Netflix This Week (August 3–7)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Mon, 03 Aug 2026 23:22:11 GMT
+
+https://screenrant.com/best-netflix-shows-watch-week-august-3/
+
+Five of the best shows to watch on Netflix this week, August 3–7, 2026, are brand new releases that include a dating show to a coming-of-age drama.
+---------
+
+# It's Officially The End Of An Era For Sony's Spider-Man Universe
+
+Movies, Sony's Spider-Man Universe, Marvel Cinematic Universe
+
+Mon, 03 Aug 2026 23:00:10 GMT
+
+https://screenrant.com/sony-spider-man-universe-end-era-status-update-tom-rothman/
+
+Sony's Spider-Man Universe has reached the end of an era as studio boss Tom Rothman offers an official status update on the spinoff franchise.
+---------
+
+# 18 Years Later, The Best TV Episode Of All Time Still Keeps Me Awake At Night
+
+TV, Masked Recs
+
+Mon, 03 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/lost-the-constant-awake-at-night/
+
+Playing a pivotal part in TV history while also revealing crucial in-universe lore, this iconic TV episode remains a legendary outing 18 years later.
+---------
+
+# 5 Greatest Spider-Man Comics To Read After Watching Brand New Day
+
+Comics, Marvel, Spider-Man
+
+Mon, 03 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/best-spider-man-comics-read-after-brand-new-day/
+
+Spider-Man: Brand New Day was an amazing movie, and here are 5 Marvel Spider-Man comics that keep the hype going and give some backstory to the film.
+---------
+
+# 9 Ways The SpongeBob Movie Is Basically Just The Odyssey
+
+Movies, The SpongeBob SquarePants Movie, The Odyssey, SpongeBob SquarePants
+
+Mon, 03 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/spongebob-movie-the-odyssey-comparison/
+
+The SpongeBob Movie is a surprisingly accurate reimagining of Homer’s The Odyssey, with both allusions and direct references to the ancient epic.
+---------
+
+# All Ditto Disguises In Pokémon GO (August 2026)
+
+Gaming, Pokemon GO, Pokemon, Mobile, Live Service Games
+
+Mon, 03 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/pokemon-go-all-ditto-disguises-august-2026/
+
+The Normal-type Pokémon Ditto has become easier to find over the summer, with August 2026 having one of the smallest disguise pools for the creature.
+---------
+
+# John Wayne Meets Clint Eastwood In The Best Neo-Western Series Of All Time
+
+TV, Masked Recs
+
+Mon, 03 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/justified-raylan-givens-like-john-wayne-clint-eastwood/
+
+Clint Eastwood and John Wayne are the two greatest icons in Western history, and this timeless TV show manages to combine many of their key traits.
+---------
+
+# Crunchyroll Officially Brings Back Yuri on Ice
+
+Anime, Crunchyroll, Yuri on Ice
+
+Mon, 03 Aug 2026 23:05:14 GMT
+
+https://www.cbr.com/crunchyroll-yuri-on-ice-theatrical-release-date-october-2026/
+
+One of Studio MAPPA's most underrated classics is officially coming to Crunchyroll's Anime Nights theatrical slate this fall.
+---------
+
+# 10 Movies To Watch If You Love The Mummy
+
+Movies, The Mummy, Adventure, Indiana Jones
+
+Mon, 03 Aug 2026 23:00:15 GMT
+
+https://www.cbr.com/must-watch-movies-for-fans-of-the-mummy-list/
+
+Stephen Sommers gave horror and adventure fans alike a modern masterpiece, and there are some movies perfect for fans of the The Mummy.
+---------
+
+# Star Trek Story Will Officially Disappear Forever After August 20
+
+Games, Star Trek
+
+Mon, 03 Aug 2026 22:48:14 GMT
+
+https://www.cbr.com/star-trek-legends-official-shutdown-august-2026/
+
+A Star Trek story will soon be lost to time, as a video game that has been running for two years is about to be sunset and removed from the Internet.
+---------
+
+# Marvel Star Officially Making Directorial Debut With New Werewolf Movie With a Twist
+
+Movies, Eternals, Horror
+
+Mon, 03 Aug 2026 22:18:41 GMT
+
+https://www.cbr.com/kumail-nanjiani-werewolf-movie-howl/
+
+An MCU is stepping behind the camera for a new monster movie.
+---------
+
+# 5 Best Fantasy Anime With Leveling Systems
+
+Anime, Solo Leveling, That Time I Got Reincarnated as a Slime
+
+Mon, 03 Aug 2026 22:15:14 GMT
+
+https://www.cbr.com/best-fantasy-anime-with-leveling-systems/
+
+These fantasy anime make character progression just as exciting as the action itself through well-designed leveling systems.
+---------
+
+# 9 Prime Video Action Shows Where Every Episode Is a Masterpiece
+
+TV, Prime Video, Action, The Boys, Reacher
+
+Mon, 03 Aug 2026 23:14:14 GMT
+
+https://collider.com/prime-video-action-shows-every-episode-masterpiece/
+
+From the beloved animated superhero series Invincible to the crime drama Reacher, every episode of these Prime Video action shows is a masterpiece.
+---------
+
+# Quentin Tarantino's Favorite Zombie Movies Are Officially Streaming for Free
+
+Movie Features, Lucio Fulci, The Beyond, Quentin Tarantino, Zombie
+
+Mon, 03 Aug 2026 23:08:14 GMT
+
+https://collider.com/quentin-tarantino-favorite-zombie-movie-lucio-fulci-streaming-free-tubi-august-2026/
+
+Quentin Tarantino is an unabashed fan of Italian director Lucio Fulci's gory zombie films, which are streaming free on Pluto TV and Tubi.
+---------
+
+# Marvel Officially Brings Back an Iron Man Villain With a Major Upgrade
+
+Books and Comics News, Iron Man 2, Iron Man, Marvel Comics, Superhero
+
+Mon, 03 Aug 2026 23:00:14 GMT
+
+https://collider.com/iron-man-2026-issue-8-marvel-comics-preview-images/
+
+A new preview of Marvel Comics' latest Iron Man issue reintroduces one of Tony Stark's greatest foes in shocking fashion. Check it out here!
+---------
+
+# HBO Quadruples the Dragon Action in an Official First for the Game of Thrones Franchise
+
+TV Features, House of the Dragon, HBO, HBO Max, Game Of Thrones
+
+Mon, 03 Aug 2026 22:41:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-episode-7-sheepstealer-caraxes-syrax-seasmoke-fight/
+
+House of the Dragon delivers a first for the Game of Thrones universe with a fight between four different dragons that ends in a bloody draw.
+---------
+
+# 3 Epic Movies You Need To Stream on Prime Video This Week (Aug 3-7)
+
+Movie, Prime Video, Women Talking, Kingdom of the Planet of the Apes, Interstellar
+
+Mon, 03 Aug 2026 22:34:14 GMT
+
+https://collider.com/best-movies-prime-video-august-3-2026/
+
+Interstellar, Women Talking, and Kingdom of the Planet of the Apes make up our list of the best movies to stream on Prime Video the week of August 3.
+---------
+
+# Scott Eastwood's New WWII Thriller Officially Brings One of the Greatest War Movie Traditions Home
+
+Movie News, Lucky Strike, Prime Video, Scott Eastwood, Colin Hanks
+
+Mon, 03 Aug 2026 22:30:14 GMT
+
+https://collider.com/world-war-2-movie-lucky-strike-digital-release-date-august-4-how-to-watch/
+
+Lucky Strikes, the World War II movie no one caught in theaters, will finally be available to watch on streaming this week.
+---------
+
+# Taylor Sheridan’s First Action Movie in 5 Years Officially Sets Release Date
+
+Movie News, F.A.S.T., Taylor Sheridan, Brandon Sklenar, Juliana Canfield
+
+Mon, 03 Aug 2026 22:24:23 GMT
+
+https://collider.com/taylor-sheridan-fast-movie-release-date/
+
+Taylor Sheridan’s first action movie in 5 years has officially set a release date for 2027. Here’s when you can see it in theaters.
+---------
+
+# It’s Officially the End of an Era for ‘The Simpsons’
+
+TV News, The Simpsons, The Simpsons Movie, Animation, Fox
+
+Mon, 03 Aug 2026 22:15:56 GMT
+
+https://collider.com/the-simpsons-end-of-an-era-new-offices-35-years/
+
+It’s officially the end of an era for The Simpsons as the series makes a major move after 35 years.
+---------
+
+# Disney's $691M Sequel Shatters All-Time Live-Action Streaming Record
+
+Movie News, The Devil Wears Prada 2
+
+Mon, 03 Aug 2026 23:15:10 GMT
+
+https://movieweb.com/devil-wears-prada-2-disney-plus-streaming-record/
+
+'The Devil Wears Prada 2' lands the best live-action Disney+ debut since 'Deadpool & Wolverine' back in 2024.
+---------
+
+# Henry Cavill Finally Confirms Rumors on Long-Awaited Warhammer Adaptation
+
+TV News, Warhammer 40k, Henry Cavill
+
+Mon, 03 Aug 2026 23:08:09 GMT
+
+https://movieweb.com/henry-cavill-warhammer-mike-flanagan/
+
+Henry Cavill assures fans that he's still all-in on the live-action 'Warhammer' adaptation and will also star in it.
+---------
+
+# New "Taylor Sheridan Meets Guy Ritchie" Crime Thriller Quickly Scores #1 Spot on Streaming
+
+TV News, The Westies, Crime, Thriller
+
+Mon, 03 Aug 2026 22:30:12 GMT
+
+https://movieweb.com/the-westies-mgm-stream-august-2026/
+
+This gritty new crime thriller is a must-watch for Taylor Sheridan and 'MobLand' fans.
+---------
+
 # Historic Debut of New Superman Character: Their Codename and Origin
 
 Comics, Superman
