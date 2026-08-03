@@ -1,3 +1,267 @@
+# Pokémon Scarlet & Violet Summer DLC Officially Announced
+
+Gaming, Pokemon Scarlet and Violet, Pokemon
+
+Mon, 03 Aug 2026 11:56:22 GMT
+
+https://screenrant.com/pokemon-scarlet-violet-summer-2026-tera-raids/
+
+Despite releasing almost four years ago at this point, Pokémon Scarlet and Violet are still going strong with events for players.
+---------
+
+# Alys Rivers' Real Age In House Of The Dragon Season 3 Revealed By Star
+
+TV, House of the Dragon, Game of Thrones
+
+Mon, 03 Aug 2026 11:01:54 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-alys-rivers-age-gayle-rankin/
+
+Alys Rivers is one of the most delightfully mysterious characters in Westeros' lore, and Gayle Rankin says she has been around for a long time.
+---------
+
+# Brandon Sanderson's Stormlight Archive Officially Returns With A Huge New Adaptation
+
+Gaming, Brandon Sanderson, The Stormlight Archive
+
+Mon, 03 Aug 2026 11:00:11 GMT
+
+https://screenrant.com/brandon-sanderson-stormlight-war-for-roshar-adaptation/
+
+The Stormlight Archive is arguably Sanderson's most significant work, and a new adaptation is set to take full advantage of that.
+---------
+
+# PlayStation 5 Gets Stardew Valley-Style Farming Sim With Studio Ghibli This Month
+
+Gaming, PlayStation 5, Starsand Island, PC, Triple-A Games
+
+Mon, 03 Aug 2026 10:49:32 GMT
+
+https://screenrant.com/playstation-starsand-island-release-date-confirmed/
+
+A new farming sim that mixes elements from Stardew Valley and Studio Ghibli films is about to hit PlayStation 5 and other platforms in August.
+---------
+
+# Dune: Conspiracy Is Coming Alongside Dune: Part 3
+
+Gaming, Dune, Dune: Part Three
+
+Mon, 03 Aug 2026 10:30:11 GMT
+
+https://screenrant.com/dune-conspiracy-board-game-story-continues/
+
+The third and final part of the Dune movie series is coming later this year, but that isn't the only release coming down the pipeline.
+---------
+
+# GTA 6 Fans, Mark Your Calendars For August 7
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Mon, 03 Aug 2026 10:01:03 GMT
+
+https://screenrant.com/gta-6-august-7-earnings-call/
+
+GTA VI is on the way very soon indeed, but while you wait, you might also want to mark your calendar for August 7.
+---------
+
+# 5 PlayStation 1 Games So Bad They're Good
+
+Gaming
+
+Mon, 03 Aug 2026 09:58:31 GMT
+
+https://screenrant.com/playstation-1-games-so-bad-theyre-good/
+
+The PlayStation 1 had legendary classics, but not every game was a hit. These five stand out for all the wrong reasons.
+---------
+
+# Elden Ring Fans Losing It Over New Expansion Tease
+
+Gaming, Elden Ring
+
+Mon, 03 Aug 2026 09:46:03 GMT
+
+https://screenrant.com/elden-ring-second-expansion-teaser-hopes/
+
+There's no doubt that Elden Ring is one of the best RPGs in recent years, so any potential DLC is bound to draw attention from fans.
+---------
+
+# The Legend Of Zelda Officially Returns In Two Months
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Breath of the Wild, The Legend of Zelda: Tears of the Kingdom
+
+Mon, 03 Aug 2026 09:25:43 GMT
+
+https://screenrant.com/legend-of-zelda-secrets-zonai-october-2026-psa/
+
+The Legend Of Zelda: Secrets of the Zonai is a new release that should bring the Wilds era back to life in a major way.
+---------
+
+# The Tom King Batman Era Began Ten Years Ago
+
+Comics, Batman, CSBG, look back
+
+Mon, 03 Aug 2026 11:43:36 GMT
+
+https://www.cbr.com/batman-tom-king-debut/
+
+A look back to 2016 for the launch of the Tom King era on Batman with Batman: Rebirth #1 and Batman #1
+---------
+
+# My Hero Academia's New Roguelite Action Game Launches This Week After 700,000 Sign-Ups
+
+Anime, My Hero Academia
+
+Mon, 03 Aug 2026 11:05:16 GMT
+
+https://www.cbr.com/my-hero-academia-united-survival-early-release-date-update/
+
+One of the most hotly-anticipated My Hero Academia video games just got a major update after more than 700,000 players signed up ahead of launch.
+---------
+
+# 14 Best Comic Strips to Read If You Love The Far Side
+
+Comics, The Far Side
+
+Mon, 03 Aug 2026 11:00:15 GMT
+
+https://www.cbr.com/best-comic-strips-like-the-far-side-must-read/
+
+Fans who love The Far Side should check out similar side-splitting comic strips, such as Close to Home, Rhymes with Orange, and Non Sequitur.
+---------
+
+# 10 Sci-Fi Movies That Are Definitely Not for Kids
+
+Movie, Sci-Fi, The Thing, Children of Men, Under the Skin
+
+Mon, 03 Aug 2026 11:51:15 GMT
+
+https://collider.com/sci-fi-movies-not-for-kids/
+
+From Upgrade, to  to Children of Men, these sci-fi films use terrifying ideas to explore humanity at its darkest.
+---------
+
+# 10 Greatest Psychological Thrillers of the Last 45 Years
+
+Movie, Thriller, The Silence of the Lambs, Parasite, Get Out
+
+Mon, 03 Aug 2026 11:40:16 GMT
+
+https://collider.com/best-psychological-thrillers-last-45-years-ranked/
+
+From The Silence of the Lambs to Fight Club, these psychological thrillers of the last 45 years have been exceptional.
+---------
+
+# 20 Best Movies for Fans of Ancient Greece
+
+Movie, Iphigenia, Jason And The Argonauts, Medea, History
+
+Mon, 03 Aug 2026 11:38:15 GMT
+
+https://collider.com/movies-about-ancient-greece/
+
+Mythology is a ton of fun and movies about ancient Greece like Troy, 300, and more play around in the universe in interesting ways.
+---------
+
+# 10 R-Rated Comedy Movies That Can Be Called Masterpieces
+
+Movie, Comedy, The Big Lebowski, This is Spinal Tap, Blazing Saddles
+
+Mon, 03 Aug 2026 11:31:15 GMT
+
+https://collider.com/r-rated-comedy-movies-masterpieces/
+
+R-rated comedies like The Hangover and Bridesmaids prove great humor survives trends, decades, and repeat viewings.
+---------
+
+# The 94-Minute Western Quentin Tarantino Called a "Moving Painting" Is Finally Streaming Free
+
+Movie News, Days of Heaven, Richard Gere, Terrence Malick, Quentin Tarantino
+
+Mon, 03 Aug 2026 11:30:15 GMT
+
+https://collider.com/richard-gere-western-days-of-heaven-streaming-pluto-tv-august-2026/
+
+The visually stunning Days of Heaven, directed by Terrence Malick and starring Richard Gere, is coming to free streaming.
+---------
+
+# The 10 Biggest Classic Rock Hits That Never Won Record of the Year, Ranked
+
+Music Features, Rock, Music, The Beatles, Eagles, Queen, Fleetwood Mac
+
+Mon, 03 Aug 2026 11:20:15 GMT
+
+https://collider.com/biggest-classic-rock-hits-record-of-the-year-ranked/
+
+Some of classic rock's greatest songs changed music forever, but these iconic hits never won the Grammy for Record of the Year.
+---------
+
+# All 13 True Blood Books, Ranked From Worst to Best
+
+Books and Comics, Books, Vampire, True Blood, Mystery
+
+Mon, 03 Aug 2026 11:11:15 GMT
+
+https://collider.com/every-true-blood-book-ranked/
+
+Trace the roots of HBO's iconic telepathic protagonist, Sookie Stackhouse, as we rank every True Blood book from worst to best.
+---------
+
+# The MCU Series You've Never Seen Is Officially Returning
+
+Books and Comics News, Runaways, Marvel, What If...?, Comics
+
+Mon, 03 Aug 2026 11:01:15 GMT
+
+https://collider.com/marvels-runaways-what-if-comic-release-date-august-19-2026/
+
+Marvel's Runaways are officially returning for a new installment this month. Here's everything you should know.
+---------
+
+# 10 Forgotten Fantasy Books That Have Aged Like Fine Wine
+
+Books and Comics, Books, Fantasy, Adventure, Action
+
+Mon, 03 Aug 2026 10:32:14 GMT
+
+https://collider.com/forgotten-fantasy-books-aged-like-fine-wine/
+
+Forgotten books like The High King, Tigana, and Dragonsong are among fantasy's best hidden treasures worthy of being rediscovered by modern readers.
+---------
+
+# Leonardo DiCaprio's 'Heat 2' Takes Its Biggest Step Forward Yet
+
+Movie News, Heat, Heat 2, Leonardo DiCaprio, Michael Mann
+
+Mon, 03 Aug 2026 10:30:15 GMT
+
+https://collider.com/heat-2-update-production-start-november-2026/
+
+Michael Mann's Heat 2, starring Leonardo DiCaprio and Christian Bale, is set to begin production in November. Get all the details here.
+---------
+
+# Taylor Sheridan's Best New Action Thriller Is Already One of the Biggest Shows in the World
+
+TV News, Lioness, Paramount Plus, Hot on Streaming, Taylor Sheridan, Action
+
+Mon, 03 Aug 2026 11:00:12 GMT
+
+https://movieweb.com/lioness-season-3-taylor-sheridan-action-streaming-success-paramount-august-2026/
+
+Taylor Sheridan's underrated action thriller is finally getting the attention it deserves on streaming.
+---------
+
+# Amazon's 'God of War' Series Making Another Major Recast After Losing Lead
+
+TV News, God of War, Ryan Hurst
+
+Mon, 03 Aug 2026 10:27:14 GMT
+
+https://movieweb.com/god-of-war-atreus-thrud-recast-season-2/
+
+Amazon's 'God of War' has already recast Kratos, but now casting calls point to an old Atreus and Thrud, and a jump straight to 'Ragnarok.'
+---------
+
 # Game Of Thrones Meets Final Fantasy In One Of 2026’s Biggest RPGs
 
 Gaming, Game of Thrones, Final Fantasy
@@ -5232,268 +5496,4 @@ Sat, 01 Aug 2026 18:30:11 GMT
 https://screenrant.com/my-hero-academia-new-episode-hero-too-release/
 
 My Hero Academia has confirmed the premiere time for the new OVA on Crunchyroll and offered fans a new preview of what to expect from the episode.
----------
-
-# X-Men Redefines Iconic Hero As Juggernaut's Sister
-
-Marvel Comics, X-Men
-
-Sat, 01 Aug 2026 18:30:11 GMT
-
-https://screenrant.com/x-men-juggernaut-magik-sister-colossus/
-
-Marvel's latest X-Men release reveals Juggernaut now has a sister who shares a deep connection with Cain Marko's lifelong mutant rival.
----------
-
-# Cyberpunk 2077 TCG: Every Card Confirmed So Far
-
-Gaming, Cyberpunk TCG, Cyberpunk 2077
-
-Sat, 01 Aug 2026 18:30:11 GMT
-
-https://screenrant.com/cyberpunk-2077-tcg-every-card-confirmed-so-far/
-
-Discover the stunning cards unveiled for the Cyberpunk 2077 Trading Card Game, including the rarities for the game.
----------
-
-# The Last Of Us Is Amazing, But Prime Video's 2-Part Post-Apocalyptic Show Is Even Better
-
-Streaming TV, Masked Recs
-
-Sat, 01 Aug 2026 18:30:11 GMT
-
-https://screenrant.com/fallout-better-than-the-last-of-us-prime-video/
-
-The Last of Us is one of the best shows of the last four years, but there's another post-apocalyptic TV show on Prime Video that's better.
----------
-
-# 10 Weird '80s Comedy Movies You Forgot About
-
-Movies, Comedy
-
-Sat, 01 Aug 2026 18:30:11 GMT
-
-https://screenrant.com/weird-1980s-comedies-forgotten/
-
-There were so many classic comedy movies in the 1980s that some were bound to be forgotten, but these weird comedies are unforgettable.
----------
-
-# Alien: Romulus Rumor On Sequel Cancellation Gets Blunt Response From Producer
-
-Movies, Alien: Romulus, Alien
-
-Sat, 01 Aug 2026 18:26:09 GMT
-
-https://screenrant.com/alien-romulus-sequel-cancellation-rumor-debunked-steve-asbell/
-
-A rumor about the Alien: Romulus sequel getting cancelled spread like wildfire, and now a major producer is setting the record straight.
----------
-
-# Apple TV’s 16-Part Historical Drama With Near-Perfect Rotten Tomatoes Score Is Too Good To Cancel
-
-TV, Masked Recs
-
-Sat, 01 Aug 2026 18:01:11 GMT
-
-https://screenrant.com/apple-tv-pachinko-drama-too-good-to-cancel/
-
-Apple TV's near-perfect historical drama has an almost flawless Rotten Tomatoes score, so why hasn't the acclaimed adaptation been renewed yet?
----------
-
-# Stranger Things Meets Wednesday In Netflix's 10-Part Horror Series
-
-TV, Masked Recs
-
-Sat, 01 Aug 2026 18:01:11 GMT
-
-https://screenrant.com/the-midnight-club-stranger-things-meets-wednesday-netflix/
-
-One Netflix horror series mixed Wednesday and Stranger Things, but Mike Flanagan's show didn't last long enough to explore its promising vision.
----------
-
-# Zelda Fans Pumped For New Nintendo Hardware Announcement
-
-Gaming, The Legend of Zelda, Triple-A Games
-
-Sat, 01 Aug 2026 18:00:11 GMT
-
-https://screenrant.com/zelda-switch-2-pro-controller-leak-reaction/
-
-The Legend of Zelda could have a tremendously busy back half of 2026 with its 40th anniversary currently being celebrated, along with new hardware.
----------
-
-# X-Men Quietly Confirms Marvel's New Professor X Replacement
-
-TV, X-Men '97, X-Men, Marvel
-
-Sat, 01 Aug 2026 18:30:15 GMT
-
-https://www.cbr.com/x-men-97-nightcrawler-best-professor-x-student/
-
-The latest episode of X-Men '97 proved which member of the mutant team best embodies the ideals of Professor Charles Xavier.
----------
-
-# 5 Sci-Fi Manga to Read After Dungeon Crawler Carl
-
-Anime, Dungeon Crawler Carl, Manga, Alice in Borderland
-
-Sat, 01 Aug 2026 18:15:15 GMT
-
-https://www.cbr.com/sci-fi-manga-like-dungeon-crawler-carl/
-
-Finding series that offer the same experience as Dungeon Crawler Carl isn't easy, but several sci-fi manga manage to achieve the perfect balance.
----------
-
-# Alex Garland’s George R.R. Martin Dark Fantasy Adaptation Gets Big Update 2 Years From Release
-
-Movies, Elden Ring
-
-Sat, 01 Aug 2026 18:04:39 GMT
-
-https://www.cbr.com/alex-garland-elden-ring-filming-wrap/
-
-The most hotly anticipated dark fantasy adaptation of the decade just got a massive production update, and fans couldn't be happier.
----------
-
-# Star Trek's Hit Series Is the Most-Watched Title on Paramount+ After 91% RT Score
-
-TV, Star Trek: Strange New Worlds
-
-Sat, 01 Aug 2026 18:00:15 GMT
-
-https://www.cbr.com/star-trek-strange-new-worlds-paramount-success-aug-2026/
-
-The beloved Star Trek series is back, and audiences can't get enough of the new episodes that just dropped.
----------
-
-# Marvel's Midnight Fantastic Four Terrifying Origin Story Confirmed
-
-Comics, Fantastic Four
-
-Sat, 01 Aug 2026 18:00:15 GMT
-
-https://www.cbr.com/marvels-midnight-fantastic-four-terrifying-origin-story-confirmed/
-
-Marvel's Midnight Fantastic Four has a horrifying real-life inspiration.
----------
-
-# Genshin Impact Version 7.0 Heads to Snezhnaya With New Characters, TPS Mode & Free Rewards
-
-Anime, Genshin Impact, open world, RPG
-
-Sat, 01 Aug 2026 18:00:15 GMT
-
-https://www.cbr.com/genshin-impact-version-7-0-snezhnaya/
-
-Genshin Impact heads to Snezhnaya this August with a new third-person shooter mode, Odette, Alyosha and more.
----------
-
-# 5 Jedi More Powerful Than Obi-Wan Kenobi, Ranked
-
-Movies, Star Wars, Sci-Fi, george lucas
-
-Sat, 01 Aug 2026 18:00:15 GMT
-
-https://www.cbr.com/star-wars-jedi-stronger-obi-wan-kenobi-ranked-list/
-
-Obi-Wan Kenobi may be a fan-favorite Star Wars character, but he is far from the strongest Jedi in the Skywalker Saga.
----------
-
-# SDCC 2026: The Biggest Questions Fans Are Still Asking
-
-Comics, Marvel Cinematic Universe, Marvel
-
-Sat, 01 Aug 2026 18:00:15 GMT
-
-https://www.cbr.com/biggest-questions-left-unanswered-sdcc-2026/
-
-In the wake of San Diego Comic-Con 2026, fans have burning questions that have been left unanswered.
----------
-
-# 10 Best Western Books of All Time
-
-Books and Comics, Lonesome Dove, The Dark Tower, Shane, The Assassination of Jesse James by the Coward Robert Ford
-
-Sat, 01 Aug 2026 18:53:14 GMT
-
-https://collider.com/best-western-books-all-time-ranked/
-
-The best Western books ever written include Blood Meridian, Lonesome Dove, and The Assassination of Jesse James by the Coward Robert Ford.
----------
-
-# ‘Dark Winds’ Is at the End of an Era, but Titus Welliver Could Change That
-
-TV Features, Dark Winds, Titus Welliver, Zahn McClarnon, AMC+
-
-Sat, 01 Aug 2026 18:38:14 GMT
-
-https://collider.com/dark-winds-season-4-titus-welliver-mcnair-return/
-
-Titus Welliver's antagonist, Dominic McNair, returning in Dark Winds Season 5, would add depth to the Western series and its characters.
----------
-
-# Prime Video’s Best Crime Thriller Abandons the Formula of James Patterson’s Books
-
-TV Features, Cross, Prime Video, Aldis Hodge, James Patterson
-
-Sat, 01 Aug 2026 18:27:14 GMT
-
-https://collider.com/cross-tv-show-prime-video-original-story-james-patterson-books/
-
-Prime Video's Cross diverges from James Patterson's book formula in a significant way, offering a fresh take on the popular series.
----------
-
-# 33 Years Later, Michael Mann's Timeless 93% Western Masterpiece Is Officially Making a Streaming Comeback
-
-Movie News, The Last of the Mohicans, Daniel Day-Lewis, Western, Michael Mann
-
-Sat, 01 Aug 2026 18:00:14 GMT
-
-https://collider.com/michael-mann-the-last-of-the-mohicans-streaming-success-prime-video-august-2026/
-
-Michael Mann’s The Last of the Mohicans, starring Daniel Day-Lewis, is making its way back to streaming more than three decades after its release.
----------
-
-# The 6 Greatest Prime Video Series With 4 Episodes or Less
-
-TV, Prime Video, The Unsolved Murder of Beverly Lynn Smith, Spy High, The Last Narc
-
-Sat, 01 Aug 2026 17:57:15 GMT
-
-https://collider.com/best-prime-video-series-4-episodes-or-less/
-
-From LuLaRich to The Last Narc, these short Prime Video series tell unforgettable stories in four episodes or fewer.
----------
-
-# The Guy Ritchie Crime Thriller We're All Waiting for Releases in Just One Month
-
-Features, Guy Ritchie, The Gentlemen, Crime, Thriller, Netflix, Theo James, Kaya Scodelario, Ray Winstone
-
-Sat, 01 Aug 2026 18:45:12 GMT
-
-https://movieweb.com/guy-ritchie-the-gentlemen-return-september-2026/
-
-After a two-and-a-half-year wait, Guy Ritchie's crime thriller 'The Gentlemen' is finally returning, with Season 2 arriving on Netflix on September 3.
----------
-
-# Apple TV's 3-Season Space Opera Masterpiece Makes the 'Dune' Franchise Look Small
-
-Features, Dune, Foundation, Sci-Fi, Apple TV
-
-Sat, 01 Aug 2026 18:30:12 GMT
-
-https://movieweb.com/apple-tv-foundation-versus-dune/
-
-Apple TV's sci-fi space opera series beats the Dune franchise in a few ways, despite being less popular.
----------
-
-# Every Movie Coming to Theaters in August 2026
-
-Features, Movie Theaters
-
-Sat, 01 Aug 2026 18:30:12 GMT
-
-https://movieweb.com/movie-theaters-august-2026/
-
-Here is every movie coming to theaters in August, including original horror, fantasy, and action movies.
 ---------
