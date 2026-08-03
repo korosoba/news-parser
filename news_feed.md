@@ -1,3 +1,344 @@
+# Game Of Thrones: The Bronze Fury Officially Revealed
+
+Gaming, Game of Thrones, Game Of Thrones, House of the Dragon, House of the Dragon - Season 3, PC
+
+Mon, 03 Aug 2026 04:30:11 GMT
+
+https://screenrant.com/game-of-thrones-dragonfire-vermithor-reveal/
+
+Game of Thrones has just revealed The Bronze Fury, a stunning new release that brings a fan-favorite dragon back for revenge.
+---------
+
+# Metal Gear Solid 6 Protagonist Splits Gamers
+
+Gaming, Metal Gear Solid
+
+Mon, 03 Aug 2026 04:00:14 GMT
+
+https://screenrant.com/metal-gear-solid-6-snake-replacement-speculation/
+
+As fans await potential Metal Gear Solid 6, discussions rage on about a new protagonist.
+---------
+
+# Spider-Man: Brand New Day Just Made Tom Holland The Best Peter Parker, And It's Not Close
+
+Movies, Spider-Man: Brand New Day, Tom Holland
+
+Mon, 03 Aug 2026 03:59:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-tom-holland-best-actor/
+
+By returning Spider-Man to the streets of New York, Tom Holland finally delivers the most complete live-action Spider-Man to date.
+---------
+
+# 7 Funniest Archie Jughead Strips That Are Aging Like Fine Wine
+
+Comics, Archie Comics
+
+Mon, 03 Aug 2026 03:45:11 GMT
+
+https://screenrant.com/perfect-classic-archie-jughead-strips/
+
+Jughead Jones has arguably aged the best out of any Archie Comics character, and he's had some truly iconic comic strip gags to make the case for him.
+---------
+
+# 16 Years Later, CSI's Most Twisted Episode Still Lives Rent-Free In Our Heads
+
+Classic TV, CSI: Crime Scene Investigation
+
+Mon, 03 Aug 2026 03:15:11 GMT
+
+https://screenrant.com/csi-show-most-twisted-episode-rent-free/
+
+CSI's season 11 episode 'Sqweegel' remains one of the darkest and most unsettling episodes, featuring a contortionist killer & intense investigation.
+---------
+
+# House of the Dragon Star Breaks Down "F***** Up" Scene
+
+TV, House of the Dragon
+
+Mon, 03 Aug 2026 03:09:20 GMT
+
+https://screenrant.com/house-of-the-dragon-aemond-alys-rivers-alicent-dragon-egg-plans-gayle-rankin/
+
+House of the Dragon star discusses one of the HBO series' most messy scenes of season 3 and what it was like to film something so uncomfortable.
+---------
+
+# Marvel Corrupts The Avengers' Logo In Shocking New Image
+
+Marvel Comics, The Avengers
+
+Mon, 03 Aug 2026 03:00:12 GMT
+
+https://screenrant.com/avengers-logo-marvel-zombies/
+
+Marvel's iconic Avengers emblem is flipped upside down in a shocking new image that teases the team's next multiversal crisis installment.
+---------
+
+# A Main Rings Of Power Cast Member Is Officially Switching Roles In Season 3
+
+Streaming TV, The Lord of the Rings: The Rings of Power
+
+Mon, 03 Aug 2026 03:00:12 GMT
+
+https://screenrant.com/the-rings-of-power-robert-aramayo-new-character/
+
+As Rings of Power's timeline expands, it has become necessary for one of the Prime Video TV show's central actors to take on a new role.
+---------
+
+# 6 Best Animal Crossing-Style Games On Non-Nintendo Consoles
+
+Gaming, Animal Crossing, PC, Nintendo
+
+Mon, 03 Aug 2026 03:00:12 GMT
+
+https://screenrant.com/best-animal-crossing-style-games-non-nintendo-platforms/
+
+These games will scratch that Animal Crossing itch, and you don't even need a Nintendo console to play them.
+---------
+
+# Every Mutant In The MCU (Now & Upcoming)
+
+Superheroes, X-Men, Spider-Man: Brand New Day, Marvel Cinematic Universe, Avengers: Doomsday
+
+Mon, 03 Aug 2026 02:42:31 GMT
+
+https://screenrant.com/every-mutant-in-the-mcu-now-and-upcoming-x-men/
+
+As the Marvel Studios prepares to usher in a brand-new age of X-Men, here are the mutants who have already been featured in the MCU (or soon will be).
+---------
+
+# Xbox Consoles Officially Get Another Surprising Price Increase
+
+Games, Xbox Series X (1)
+
+Mon, 03 Aug 2026 03:54:17 GMT
+
+https://www.cbr.com/xbox-series-x-s-price-increase-europe-august-2026/
+
+The price jump is effective immediately.
+---------
+
+# 10 Anime Training Arcs That Are 10/10, No Notes
+
+Anime, Dragon Ball, One Piece, Naruto
+
+Mon, 03 Aug 2026 03:45:15 GMT
+
+https://www.cbr.com/flawless-anime-training-arcs-list/
+
+The anime medium is notorious for its intense training arcs in shonen titles, and these ten examples are the best montage experiences of all time.
+---------
+
+# Justice League Unlimited Has an Impossible Standard to Meet
+
+Comics, Justice League, DC Comics
+
+Mon, 03 Aug 2026 03:45:15 GMT
+
+https://www.cbr.com/justice-league-unlimited-has-huge-expectations-to-meet/
+
+As Mark Waid and Dan Mora continue their success with Justice League Unlimited, it still has huge expectations to meet for DC readers.
+---------
+
+# The Best Lord of the Rings Line is Still the Greatest Quote in Fantasy Movie History
+
+Movies, The Lord of the Rings
+
+Mon, 03 Aug 2026 03:40:14 GMT
+
+https://www.cbr.com/lord-of-the-rings-gandalf-line-greatest-quote-in-fantasy-history/
+
+Gandalf's declaration to the Balrog invokes the foundations of the Tolkien universe
+---------
+
+# Initial D Officially Reunites Takumi and Bunta With New 30th Anniversary Release
+
+Anime, Initial D, merchandise
+
+Mon, 03 Aug 2026 03:30:15 GMT
+
+https://www.cbr.com/initial-d-30th-anniversary-watches/
+
+In honor of 30 years of existence, Initial D is "running in the '90s" one last time with a duo of watches based on the brand's most iconic cars.
+---------
+
+# The Walking Dead Revives a Negan Problem AMC Buried for 8 Years
+
+TV, The Walking Dead, The Walking Dead: Dead City
+
+Mon, 03 Aug 2026 03:30:15 GMT
+
+https://www.cbr.com/the-walking-dead-dead-city-season-3-revives-negan-problem/
+
+One character's decision that divided fans at the end of The Walking Dead Season 8 is reborn in Dead City.
+---------
+
+# 10 Perfect PS2 RPGs Nobody Remembers
+
+Games, PlayStation 2
+
+Mon, 03 Aug 2026 03:15:15 GMT
+
+https://www.cbr.com/best-forgotten-ps2-rpgs-perfect-games-list/
+
+Classic PS2 RPGs like Valkyrie Profile 2 and Suikoden V have been forgotten by modern games.
+---------
+
+# 10 New-Gen Anime That Are Objectively Better Than Solo Leveling
+
+Anime, Solo Leveling
+
+Mon, 03 Aug 2026 03:00:15 GMT
+
+https://www.cbr.com/greatest-new-gen-anime-better-than-solo-leveling-list/
+
+Anime like Chainsaw Man and Frieren are so good they make Solo Leveling look mid.
+---------
+
+# 5 Masterpiece Fantasy Book Series With the Best Heroes
+
+Movies, Fantasy
+
+Mon, 03 Aug 2026 03:00:15 GMT
+
+https://www.cbr.com/perfect-fantasy-book-series-with-best-heroes-list/
+
+The fantasy genre is defined by its heroes, and these book series have the greatest heroes in the genre.
+---------
+
+# 5 Near-Perfect Open World Games You Should Play in 2026
+
+Games, open world
+
+Mon, 03 Aug 2026 02:45:15 GMT
+
+https://www.cbr.com/near-perfect-open-world-games-must-play-2026-list/
+
+Open-world games like Crimson Desert are a testament to how good the genre can be.
+---------
+
+# 10 Most Perfect Miniseries of the Last 30 Years
+
+TV, TV Miniseries, The Queen's Gambit, Band of Brothers, Adolescence
+
+Mon, 03 Aug 2026 03:22:14 GMT
+
+https://collider.com/most-perfect-miniseries-last-30-years-ranked/
+
+The Queen's Gambit, War & Peace, Band of Brothers, and Adolescence are among the greatest miniseries of the last 30 years, but which is the best?
+---------
+
+# 'House of the Dragon's Most Shocking Character Return Is a Game Changer for Westeros
+
+TV Features, House of the Dragon, HBO, HBO Max, Tom Glynn-Carney
+
+Mon, 03 Aug 2026 03:00:15 GMT
+
+https://collider.com/house-of-the-dragon-season-3-episode-7-aegon-sunfyre-resurrection-scene/
+
+House of the Dragon's latest episode includes a shocking character return that could turn the tide in the war between Rhaenyra and Aegon.
+---------
+
+# Jimmy Kimmel’s FCC Fight Could Officially Mark the End of an Era for Late-Night TV
+
+TV Features, Jimmy Kimmel, Jimmy Kimmel Live!, ABC, Hulu
+
+Mon, 03 Aug 2026 02:11:14 GMT
+
+https://collider.com/jimmy-kimmel-fcc-abc-end-of-an-era-meaning/
+
+The FCC is attempting to crack down on Jimmy Kimmel Live and ABC, which could result in a vastly different television landscape.
+---------
+
+# 'House of the Dragon's Gayle Rankin Teases Alys' Ultimate Endgame After That "Weird and Freaky" Dinner Scene
+
+Exclusives, House of the Dragon, HBO, HBO Max, Fantasy
+
+Mon, 03 Aug 2026 02:01:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-episode-7-alys-gayle-rankin-interview/
+
+House of the Dragon's Gayle Rankin talks Episode 7's "weird and freaky" dinner scene and how that betrayal will bring Aemond and Alys even closer.
+---------
+
+# 'House of the Dragon' Season 3's Penultimate Episode Delivers a Major Resurrection That Changes the War | Review
+
+TV Reviews, House of the Dragon, HBO Max, Olivia Cooke, Emma D'Arcy
+
+Mon, 03 Aug 2026 02:00:24 GMT
+
+https://collider.com/house-of-the-dragon-season-3-episode-7-review/
+
+The penultimate episode of House of the Dragon Season 3 has some major developments, including a shocking resurrection and a new ally for Team Green.
+---------
+
+# 7 Classic Sci-Fi Shows That Are Still Better Than Most New Series
+
+TV, Sci-Fi, Star Trek: The Next Generation, The X-Files, Babylon 5
+
+Mon, 03 Aug 2026 01:22:14 GMT
+
+https://collider.com/classic-sci-fi-shows-better-than-new-series/
+
+Explore timeless sci-fi classics that still hold up better than many modern series, from Star Trek: The Next Generation to The Twilight Zone.
+---------
+
+# 10 Fantasy Books With Magic Schools That Deserve Your Attention
+
+Movie Lists, Fantasy, Harry Potter
+
+Mon, 03 Aug 2026 02:30:12 GMT
+
+https://movieweb.com/fantasy-books-magic-school-deserve-attention/
+
+Fantasy lovers who enjoy a magic school setting aren't restricted to reading Harry Potter. There are a lot of novels with that backdrop to dig into.
+---------
+
+# 'House of the Dragon' Finally Reveals Its Most Important Missing Dragon
+
+Features, House of the Dragon, HBO Max, Fantasy
+
+Mon, 03 Aug 2026 02:05:12 GMT
+
+https://movieweb.com/house-of-the-dragon-missing-dragon-dreamfyre/
+
+A missing dragon finally shows up, but not in the way we expected. Here's what the episode reveals and what it foreshadows.
+---------
+
+# 11 Biggest Questions After 'House of the Dragon' Season 3, Episode 7
+
+TV Lists, House of the Dragon
+
+Mon, 03 Aug 2026 02:00:22 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-episode-7-big-questions/
+
+'House of the Dragon' can be confusing, so here are all of your questions answered in one place, without any spoilers.
+---------
+
+# 'House of the Dragon' S3E7 Review: A Major Dragon Battle Sets Up the Finale
+
+TV Reviews, House of the Dragon
+
+Mon, 03 Aug 2026 02:00:22 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-episode-7-review-recap/
+
+The penultimate episode of 'House of the Dragon' Season 3 finally moves the overarching plot forward.
+---------
+
+# 'The Walking Dead' Universe Is Finally Saved
+
+Features, The Walking Dead
+
+Mon, 03 Aug 2026 01:30:12 GMT
+
+https://movieweb.com/the-walking-dead-universe-netflix-merger/
+
+'The Walking Dead' could be coming to an end soon, with potentially only one spin-off left standing by 2027, but hope has arrived.
+---------
+
 # Marvel Announces Next Blade Appearance, And It's A Big X-Men Crossover
 
 Marvel Comics, Blade, X-Men, Marvel
@@ -5155,345 +5496,4 @@ Sat, 01 Aug 2026 17:30:11 GMT
 https://screenrant.com/6-n64-games-unplayable-2026/
 
 These Nintendo 64 games, while perhaps once excellent, are practically unplayable today as they've aged rather poorly.
----------
-
-# Life Is Strange Live-Action Adaptation Gets Exciting Filming Update
-
-TV, Life Is Strange
-
-Sat, 01 Aug 2026 17:28:45 GMT
-
-https://screenrant.com/life-is-strange-adaptation-update-silas-howard/
-
-Amazon MGM Studios is bringing new life to Life is Strange, as a new set photo seemingly confirms a major setting for the upcoming adaptation.
----------
-
-# Robert Pattinson & Zendaya's R-Rated Project That's Not The Odyssey Is Officially HBO Max's #1 Movie
-
-Movies, Zendaya, Robert Pattinson, Streaming Charts, Masked Recs
-
-Sat, 01 Aug 2026 17:24:07 GMT
-
-https://screenrant.com/robert-pattinson-the-drama-zendaya-hbo-max-streaming-success-august-2026/
-
-As The Odyssey makes waves in theaters, co-stars Robert Pattinson and Zendaya have an entirely different R-rated movie topping HBO Max's chart.
----------
-
-# Spider-Man: Brand New Day Officially Sets Up Peter Parker’s Avengers Role In 2 Major Ways
-
-Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
-
-Sat, 01 Aug 2026 17:15:11 GMT
-
-https://screenrant.com/spider-man-brand-new-day-avengers-movie-setup/
-
-Spider-Man: Brand New Day perfectly sets up how Peter Parker can fit into Marvel Studios' upcoming Avengers movies, and there is a huge MCU tease.
----------
-
-# HBO's True Band Of Brothers Sequel Is Hard To Watch More Than Once
-
-Classic TV, Masked Recs
-
-Sat, 01 Aug 2026 17:15:11 GMT
-
-https://screenrant.com/generation-kill-hard-to-watch-more-than-once-band-of-brothers/
-
-HBO's true successor to Band of Brothers — the Iraq War miniseries Generation Kill — is a harrowing masterpiece that's difficult to rewatch.
----------
-
-# Overwatch Star Officially Reveals New Detail About Mysterious Character
-
-CBR Exclusives, Overwatch
-
-Sat, 01 Aug 2026 17:36:50 GMT
-
-https://www.cbr.com/carolina-ravassa-overwatch-sombra-lore-to-be-revealed/
-
-One fan-favorite Overwatch character will have her secrets revealed.
----------
-
-# Barbie Sequel Gets Disappointing Update as Warner Bros. Won't Give Margot Robbie & Ryan Gosling Pay Bumps
-
-Movies, Barbie
-
-Sat, 01 Aug 2026 17:30:16 GMT
-
-https://www.cbr.com/barbie-sequel-warner-bros-boss-margot-robbie-ryan-gosling-salaries/
-
-So far, the Barbie sequel was only a rumor but discussions have been occurring behind the scenes.
----------
-
-# 5 Open-World RPGs With The Best Exploration Ever
-
-Games, Video Games, Elden Ring, open world, RPG
-
-Sat, 01 Aug 2026 17:15:15 GMT
-
-https://www.cbr.com/open-world-rpgs-with-best-exploration/
-
-Elden Ring and Fallout 4 are perfect examples of open-world exploration done right.
----------
-
-# Netflix's Hit New 6-Part Action Thriller Gets Massive Season 2 Update
-
-TV, Netflix
-
-Sat, 01 Aug 2026 17:08:03 GMT
-
-https://www.cbr.com/netflix-elite-force-season-2-update/
-
-Netflix's latest worldwide hit just got a major update, and it might just lead to a truly groundbreaking moment in the world of streaming.
----------
-
-# Kevin Hart's New 105-Minute Netflix Movie Debuts to 22.1M Views Despite Abysmal Reviews
-
-Movies, 72 Hours
-
-Sat, 01 Aug 2026 17:00:15 GMT
-
-https://www.cbr.com/kevin-hart-72-hours-comedy-netflix-popularity-rotten-reviews/
-
-Kevin Hart's new comedy movie has been torn apart by critics, but audiences still can't stop watching it on Netflix.
----------
-
-# 7 Greatest Battles in 'House of the Dragon'
-
-TV, House of the Dragon, Game Of Thrones, HBO, Fantasy
-
-Sat, 01 Aug 2026 17:19:14 GMT
-
-https://collider.com/best-house-of-the-dragon-battles-ranked/
-
-From Season 1's War for the Stepstones to Season 3's Battle of the Gullet, House of the Dragon has showcased many epic battles in the HBO series.
----------
-
-# 10 Greatest Video Game Boss Fights of All Time
-
-Gaming, Video Game, Metal Gear Solid, Pokemon Legends   Arceus, Batman: Arkham City
-
-Sat, 01 Aug 2026 17:09:15 GMT
-
-https://collider.com/best-video-game-boss-fights-all-time-ranked/
-
-The best boss fights in video games, like Mr. Freeze in Batman: Arkham Asylum and Sans in Undertale, have become as memorable as the games themselves.
----------
-
-# A 10/10 Noir Masterpiece by One of Christopher Nolan’s Favorite Directors Is Coming to Prime Video
-
-Movie News, David Lynch, Blue Velvet, Kyle MacLachlan, Prime Video
-
-Sat, 01 Aug 2026 17:00:15 GMT
-
-https://collider.com/david-lynch-neo-noir-blue-velvet-coming-to-prime-video-august-2026/
-
-David Lynch's masterpiece neo-noir movie Blue Velvet is coming to Prime Video this August. Find out more.
----------
-
-# 10 Movies That Give Away the Ending in the Title
-
-Movie Lists, Saving Private Ryan, Star Wars: Episode V - The Empire Strikes Back
-
-Sat, 01 Aug 2026 17:30:12 GMT
-
-https://movieweb.com/movie-titles-give-away-ending/
-
-Spoiler alert!
----------
-
-# Every New Movie and TV Show Coming to HBO Max in August 2026
-
-Features, HBO Max
-
-Sat, 01 Aug 2026 17:30:12 GMT
-
-https://movieweb.com/hbo-max-new-movie-tv-august-2026/
-
-Here is everything coming to HBO Max in August 2026, including the highly anticipated release of the 'Lanters' TV series.
----------
-
-# Zendaya & Robert Pattinson's Controversial 'The Drama' Comes to Streaming
-
-Movie News, The Drama
-
-Sat, 01 Aug 2026 17:22:54 GMT
-
-https://movieweb.com/zendaya-robert-pattinson-drama-hbo-max/
-
-Months after prompting tons of discourse, the A24 hit is now on HBO Max.
----------
-
-# 'Spider-Man: Brand New Day' Places Peter Parker at the Center of a Dark Comic Book Storyline
-
-Features, Spider-Man: Brand New Day, Marvel Cinematic Universe
-
-Sat, 01 Aug 2026 17:00:12 GMT
-
-https://movieweb.com/spider-man-brand-new-control-collars/
-
-Tom Holland's Spider-Man is still the hero in 'Brand New Day,' but the movie certainly blurs the moral boundaries. Read on for more.
----------
-
-# Say Goodbye To Rey Skywalker As Star Wars Unleashes A New Era
-
-Streaming TV, Masked Recs, Star Wars
-
-Sat, 01 Aug 2026 16:45:11 GMT
-
-https://screenrant.com/star-wars-lah-kara-new-jedi-era-rey-skywalker/
-
-Sadly, Rey Skywalker may never get the chance to rebuild the Jedi Order, but a new character might, as Star Wars launches a whole new initiative.
----------
-
-# Who Are The Crime Bosses Spider-Man Defeated In Spider-Man: Brand New Day
-
-Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
-
-Sat, 01 Aug 2026 16:40:11 GMT
-
-https://screenrant.com/spider-man-brand-new-day-crime-bosses-explained/
-
-Spider-Man: Brand New Day references crime bosses in New York City, but the villains depicted are not usually bosses. So, who did Spidey take down?
----------
-
-# Batman's New Villain Is a Gift to Anyone Who Loves the Franchise
-
-Comics, Batman, Sonic the Hedgehog
-
-Sat, 01 Aug 2026 16:30:11 GMT
-
-https://screenrant.com/batman-sonic-metal-knightfall/
-
-There's a brand-new Batman villain in town.
----------
-
-# 10 Forgotten Cartoons From The Early '00s Still Worth Watching
-
-Classic TV
-
-Sat, 01 Aug 2026 16:30:11 GMT
-
-https://screenrant.com/cartoons-early-2000s-forgotten-worth-watching/
-
-Some great cartoon shows from the 2000s got lost amid some huge now-classic hits, but these forgotten titles are still worth watching today.
----------
-
-# Disney Villainous Is Still Going Strong Eight Years Later
-
-Gaming, Disney, tabletop games
-
-Sat, 01 Aug 2026 16:30:11 GMT
-
-https://screenrant.com/disney-villainous-success-darkness-brewing-impressions/
-
-Disney Villainous kicked off with Captain Hook, Prince John, Jafar, Queen of Hearts, Ursula, and Maleficent, but it's expanded significantly.
----------
-
-# Marvel’s Wonder Man Stars React To Cancellation Of Season 2 Renewal
-
-TV, Wonder Man, Wonder Man - Season 1, Marvel Cinematic Universe
-
-Sat, 01 Aug 2026 16:22:05 GMT
-
-https://screenrant.com/wonder-man-season-2-renewal-cancellation-cast-reactions/
-
-After Wonder Man season 2 was renewed and canceled, two of the show's main stars react to the news about the critically acclaimed show's fate.
----------
-
-# The MCU Just Revealed The 10th Villain Iron Man Accidentally Created
-
-Movies, Marvel Cinematic Universe, Spider-Man: Brand New Day
-
-Sat, 01 Aug 2026 16:20:11 GMT
-
-https://screenrant.com/mcu-iron-man-villain-spider-man-brand-new-day-created/
-
-Iron Man's history of accidentally creating MCU villains have played a role in yet another Marvel antagonist's story and rise to power.
----------
-
-# Shemar Moore's Hondo Officially Returns To Lead A New S.W.A.T. Generation In First Exiles Trailer
-
-TV, S.W.A.T.
-
-Sat, 01 Aug 2026 16:16:52 GMT
-
-https://screenrant.com/swat-exiles-show-trailer-starz/
-
-Shemar Moore's Hondo returns in the S.W.A.T. Exiles trailer, previewing what to expect when the much-anticipated spinoff debuts on Starz.
----------
-
-# Spider-Man: Brand New Day Confirms Black Widow’s MCU Replacement
-
-Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
-
-Sat, 01 Aug 2026 16:11:03 GMT
-
-https://screenrant.com/florence-pugh-yelena-black-widow-spider-man-brand-new-day/
-
-Spider-Man: Brand New Day officially confirms Scarlett Johansson's Black Widow replacement, and the MCU reveal comes at the perfect time.
----------
-
-# The Legend Of Vox Machina Vs. The Mighty Nein: Which Critical Role Show Is Best?
-
-TV, The Legend of Vox Machina, Critical Role, The Mighty Nein
-
-Sat, 01 Aug 2026 16:02:11 GMT
-
-https://screenrant.com/best-critical-role-tv-show-vox-machina-mighty-nein/
-
-The Legend Of Vox Machina and The Mighty Nein both boast perfect RT scores, but which Critical Role show is the Prime Video franchise's best offering?
----------
-
-# 6 Biggest Unanswered Questions We Still Have After Avatar: Fire & Ash
-
-Movies, Avatar: Fire and Ash, Avatar, james cameron
-
-Sat, 01 Aug 2026 16:31:14 GMT
-
-https://www.cbr.com/avatar-fire-ash-unanswered-questions-list/
-
-Avatar: Fire and Ash posed some huge questions for James Cameron's epic sci-fi franchise that still haven't been addressed in the months since.
----------
-
-# Timothy Olyphant's Easy-to-Binge Horror Show Is the Best 3 Seasons in Netflix History
-
-TV, Santa Clarita Diet, Horror, Netflix
-
-Sat, 01 Aug 2026 16:31:14 GMT
-
-https://www.cbr.com/netflix-santa-clarita-diet-bingeable-show/
-
-One Netflix horror-comedy show is an addictive 3-season watch, and actors Timothy Olyphant and Drew Barrymore shine.
----------
-
-# Netflix's Heated Rivalry Replacement Gets Major Filming Update
-
-TV, Heated Rivalry, Netflix, Off Campus
-
-Sat, 01 Aug 2026 16:26:39 GMT
-
-https://www.cbr.com/netflix-icebreaker-series-filming-update/
-
-Netflix is doubling down on popular adaptations.
----------
-
-# 5 Masterpiece Shonen Anime That Prove One Piece is Mid
-
-Anime, One Piece, Fullmetal Alchemist: Brotherhood
-
-Sat, 01 Aug 2026 16:15:15 GMT
-
-https://www.cbr.com/masterpiece-shonen-anime-prove-one-piece-mid/
-
-Even a giant like One Piece has worthy rivals, and these shonen masterpieces make a convincing case for themselves.
----------
-
-# What's Coming to Netflix in August 2026? Everything Arriving This Month
-
-TV, Netflix
-
-Sat, 01 Aug 2026 16:00:15 GMT
-
-https://www.cbr.com/what-coming-netflix-august-2026-full-list/
-
-A new month is here, and Netflix has already added a series of hit titles.
 ---------
