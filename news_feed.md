@@ -1,3 +1,366 @@
+# Spider-Man 5 Will Address Brand New Day's Ending Theory With Peter & Ned
+
+Movies, Spider-Man, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Tue, 04 Aug 2026 20:00:06 GMT
+
+https://screenrant.com/spider-man-5-brand-new-day-ending-theory-peter-ned-explained/
+
+The big Brand New Day ending with Peter Parker and Ned Leeds will get proper answers in Spider-Man 5, according to director Destin Daniel Cretton.
+---------
+
+# Julia Roberts' Chilling Netflix Thriller Quickly Overtaken By New Fantasy Hit In Updated Most-Viewed Movie Elite Charts
+
+Movies, Masked Recs, Netflix, Streaming Charts
+
+Tue, 04 Aug 2026 19:55:29 GMT
+
+https://screenrant.com/netflix-swapped-movie-most-popular-movie-list-update-august-2026/
+
+A smash-hit Netflix thriller starring Oscar winner Julia Roberts has its place usurped on the streamer's all-time chart by a new fantasy movie.
+---------
+
+# Jeffrey Dean Morgan's New Prime Video Series Debuts To Rare Rotten Tomatoes Score
+
+TV, Masked Recs
+
+Tue, 04 Aug 2026 19:54:56 GMT
+
+https://screenrant.com/jeffrey-dean-morgan-sterling-point-season-1-rotten-tomatoes-score/
+
+Jeffrey Dean Morgan's latest series is getting great reviews, with critics praising the streaming original and boosting it to a rare score.
+---------
+
+# Best Medicine Cast & Character Guide: Who Stars In Fox's Medical Dramedy
+
+Network TV, Best Medicine
+
+Tue, 04 Aug 2026 19:45:11 GMT
+
+https://screenrant.com/best-medicine-fox-cast-characters/
+
+Best Medicine features an impressive cast, led by actor Josh Charles, who create entertaining characters in the big city meets small town story.
+---------
+
+# Prime Video's Reacher Replacement Falls At The First Hurdle
+
+TV, Masked Recs
+
+Tue, 04 Aug 2026 19:31:11 GMT
+
+https://screenrant.com/scarpetta-prime-video-character-fail-reacher/
+
+Despite an all-star cast led, Prime Video's starry Reacher replacement failed to capture the essence of its psychological thriller source material.
+---------
+
+# Taylor Sheridan Crosses 12.4 Billion Minutes Viewed With Hit Western Crime Series This Year
+
+TV, Landman
+
+Tue, 04 Aug 2026 19:31:06 GMT
+
+https://screenrant.com/taylor-sheridan-landman-2026-minutes-viewed/
+
+Taylor Sheridan's hit Western series has passed 12.4 billion minutes viewed, and it sets up the two-season show to have an exciting future.
+---------
+
+# Netflix's New Thriller Officially Climbs Most-Watched TV Shows Of All Time List With 106.7M Views
+
+Movies, Masked Recs
+
+Tue, 04 Aug 2026 19:25:29 GMT
+
+https://screenrant.com/harlan-coben-i-will-find-you-netflix-most-popular-tv-list-update/
+
+A new Netflix Harlan Coben thriller series has just entered a new stratosphere of popularity, making the streamer’s most-watched shows list.
+---------
+
+# The Truth Behind Marvel Cancelling Emmy-Nominated Series & Potential Movie Return Addressed By Creator
+
+Movies, Wonder Man, Marvel Cinematic Universe, Disney+
+
+Tue, 04 Aug 2026 19:15:39 GMT
+
+https://screenrant.com/wonder-man-season-2-cancellation-movie-destin-daniel-cretton-response/
+
+Disney stunned Marvel viewers when it canceled its most recent MCU series, and now the TV show’s creator is addressing the shocking renewal reversal.
+---------
+
+# Marvel Has Found Iron Man's True Replacement
+
+Movies, Marvel Cinematic Universe
+
+Tue, 04 Aug 2026 19:01:50 GMT
+
+https://screenrant.com/marvel-tom-holland-iron-man-replacement-brand-new-day/
+
+Seven years after Avengers: Endgame, the Marvel Cinematic Universe has finally found its true Iron Man replacement, and it's very well-deserved.
+---------
+
+# Only One Spider-Man Quote Hits Harder Than With Great Power Comes Great Responsbility
+
+Marvel Comics, Spider-Man
+
+Tue, 04 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/one-spider-man-quote-better-great-power-great-responsiblity/
+
+Only a few years ago, Marvel revealed an even better, darker version of the iconic Spider-Man quote, "with great power comes great responsibility."
+---------
+
+# HBO's 96% RT Steamy Surprise Hit Turns Into a Digital Success as Fans Await New Episodes
+
+TV, Heated Rivalry, HBO Max
+
+Tue, 04 Aug 2026 20:01:14 GMT
+
+https://www.cbr.com/hbo-heated-rivalry-pvod-success-august-2026/
+
+The second season of the hockey drama will be coming soon, and fans are staying occupied.
+---------
+
+# Netflix's The Last House is the Thriller of the Summer
+
+Movies, The Last House
+
+Tue, 04 Aug 2026 20:01:14 GMT
+
+https://www.cbr.com/netflix-the-last-house-sci-fi-thriller-of-the-summer/
+
+Fast X's director goes into new territory with this upcoming claustrophobic thriller.
+---------
+
+# Transformers Rumor Hints at Major Crossover With Forgotten Sci-Fi Franchise
+
+Comics, Transformers
+
+Tue, 04 Aug 2026 20:01:14 GMT
+
+https://www.cbr.com/transformers-micronauts-cross-over-speculation/
+
+Transformers is collaborating with a famous sci-fi franchise from the 1970s.
+---------
+
+# Hulu Finally Confirms the Future of Its Sherlock Holmes Replacement With 96% RT
+
+TV, The Artful Dodger
+
+Tue, 04 Aug 2026 19:38:15 GMT
+
+https://www.cbr.com/hulu-the-artful-dodger-season-3-fate/
+
+The series is based on a classic novel with a twist.
+---------
+
+# X-Men ’97 Director Teases the Next X-Men Story Arc He Wants to Adapt
+
+CBR Exclusives, X-Men '97
+
+Tue, 04 Aug 2026 19:33:08 GMT
+
+https://www.cbr.com/x-men-97-jake-castorena-next-story-arc-tease/
+
+Jake Castorena knows what arc he wants the X-Men to follow next, but one major Marvel decision is holding him back.
+---------
+
+# One Piece Officially Delays New Release by 98 Days, Says 'Production Will Require More Time'
+
+Anime, One Piece
+
+Tue, 04 Aug 2026 19:20:15 GMT
+
+https://www.cbr.com/one-piece-heroines-21-delay-december-2026/
+
+The One Piece is real (and delayed).
+---------
+
+# It's Officially the End of an Era for Dragon Ball Fans
+
+Anime, Dragon Ball, Dragon Quest
+
+Tue, 04 Aug 2026 19:01:15 GMT
+
+https://www.cbr.com/dragon-ball-akira-toriyama-final-character-design-dragon-quest/
+
+Dragon Ball creator Akira Toriyama's final design has been revealed.
+---------
+
+# Rings of Power Is Reviving a Lost Tolkien Gandalf Idea Peter Jackson's LOTR Movies Skipped
+
+TV, The Lord of the Rings, The Lord of the Rings: The Rings of Power, Prime Video
+
+Tue, 04 Aug 2026 19:01:15 GMT
+
+https://www.cbr.com/lotr-rings-of-power-gandalf-oliphaunt/
+
+Gandalf's story in the upcoming third season of The Lord of the Rings: The Rings of Power will pay homage to a line from J. R. R. Tolkien's novel.
+---------
+
+# After 2-Year Wait, Amazon Finally Orders Friends Replacement Series
+
+TV, DINKs, Friends, Prime Video
+
+Tue, 04 Aug 2026 18:46:53 GMT
+
+https://www.cbr.com/dinks-amazon-prime-video-friends-replacement-series/
+
+Friends fans will soon get a replacement series on Prime Video.
+---------
+
+# Destin Daniel Cretton Reacts to Wonder Man's Sudden Cancellation: "I'm Heartbroken"
+
+TV, Wonder Man, Marvel Cinematic Universe, Disney+
+
+Tue, 04 Aug 2026 18:39:06 GMT
+
+https://www.cbr.com/wonder-man-canceled-destin-daniel-cretton-reaction/
+
+The Spider-Man: Brand New Day director breaks his silence on Wonder Man's unexpected cancellation.
+---------
+
+# 8 Fantasy Book Series With the Most Masterful World-Building
+
+Books and Comics, Fantasy, Mistborn, The Wheel of Time, The Lord of the Rings
+
+Tue, 04 Aug 2026 19:44:15 GMT
+
+https://collider.com/fantasy-book-series-best-world-building/
+
+Lord of the Rings, Wheel of Time, A Song of Ice and Fire, Mistborn, and more make up our list of fantasy book series with masterful world-building.
+---------
+
+# 10 Forgotten Sci-Fi Books That Have Aged Like Fine Wine
+
+Books and Comics, Books, Science Fiction, Action, Adventure
+
+Tue, 04 Aug 2026 19:23:14 GMT
+
+https://collider.com/forgotten-sci-fi-books-aged-like-fine-wine/
+
+Books like Downbelow Station and Beggars in Spain are stellar entries in the sci-fi genre worthy of your attention, but they've sadly been forgotten.
+---------
+
+# CBS Officially Confirms Major Change for 'Marshals' Season 2
+
+TV News, Yellowstone, Marshals, Taylor Sheridan, Luke Grimes
+
+Tue, 04 Aug 2026 19:14:00 GMT
+
+https://collider.com/marshals-season-2-release-time-change-confirmed-cbs/
+
+CBS has officially confirmed that Season 2 of Taylor Sheridan's Marshals will come with some big changes. Read on for all the details.
+---------
+
+# Netflix’s Long-Running Action Thriller Series Is Officially Getting a Sequel
+
+Movie News, Sniper: Bulletproof, Action, Netflix, Sniper
+
+Tue, 04 Aug 2026 19:12:28 GMT
+
+https://collider.com/netflix-sniper-no-nation-part-2-sequel-confirmed/
+
+Netflix's newest action thriller sleeper hit is officially getting a sequel following an unprecedented streaming run. Read on for more details.
+---------
+
+# 'The X-Files' Officially Returns Next Week With Brand-New R-Rated Release
+
+Movie News, The X-Files: I Want to Believe, Chris Carter, David Duchovny, Gillian Anderson
+
+Tue, 04 Aug 2026 19:01:16 GMT
+
+https://collider.com/the-x-files-i-want-to-believe-directors-cut-trailer/
+
+The X-Files officially returns next week with a brand-new R-rated release. Check out the trailer now.
+---------
+
+# Kevin Costner’s “Imperfect But Deeply Involving” Western Masterpiece Officially Finds a New Streamer
+
+Movie News, Open Range, Kevin Costner, Yellowstone, Western
+
+Tue, 04 Aug 2026 18:56:01 GMT
+
+https://collider.com/open-range-kevin-costner-western-streaming-amc-august-2026/
+
+Kevin Costner’s 10/10 Western masterpiece Open Range, co-starring Diego Luna and Robert Duvall, has officially found a perfect new streaming home.
+---------
+
+# Prime Video's Epic Fantasy Conquers Streaming Despite Divisive Reactions
+
+TV News, The Lord of the Rings: The Rings of Power, Prime Video
+
+Tue, 04 Aug 2026 20:00:12 GMT
+
+https://movieweb.com/the-rings-of-power-prime-video-stream-august-2026/
+
+Prime Video, Netflix, and HBO fought to acquire this high fantasy adaptation.
+---------
+
+# 'Spider-Man: Brand New Day's Best MCU Crossover Character Officially Disproves 11-Year-Old Marvel Theory
+
+Features, Spider-Man: Brand New Day, Marvel Cinematic Universe, Jon Bernthal
+
+Tue, 04 Aug 2026 20:00:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-punisher-theory-disproven/
+
+Frank Castle's 'Spider-Man: Brand New Day' role proves something very specific about Marvel's Netflix era. Read on for more.
+---------
+
+# Netflix's Hit True Crime Thriller Unveils New 'Monster' in Season 4 First Look
+
+TV News, Monster: The Ed Gein Story, Netflix
+
+Tue, 04 Aug 2026 19:39:24 GMT
+
+https://movieweb.com/monster-lizzie-borden-ryan-murphy-netflix/
+
+Ryan Murphy's 'Monsters' drama series returns with a new serial-killer story for Season 4.
+---------
+
+# Netflix's New 8-Part Western Epic Continues To Be a Smash Hit on Streaming
+
+TV News, Little House on the Prairie, Western, Hot on Streaming, Netflix
+
+Tue, 04 Aug 2026 19:16:05 GMT
+
+https://movieweb.com/little-house-on-the-prairie-western-netflix-streaming-august-2026/
+
+One month after its debut, Netflix's hottest new Western series continues to prove it's a force to be reckoned with on streaming.
+---------
+
+# The Best Original Sci-Fi Movie of the Century Is on YouTube for Free
+
+Features, Inception, Christopher Nolan
+
+Tue, 04 Aug 2026 19:00:12 GMT
+
+https://movieweb.com/inception-sci-fi-youtube-free/
+
+Sci-fi has become a popular genre, and one of the greatest movies of the 21st century is now available for free on YouTube.
+---------
+
+# Lost R-Rated 'X-Files' Movie Debuts Trailer Ahead of Its Streaming Release
+
+Movie News, The X-Files, The X-Files: I Want to Believe, David Duchovny, Gillian Anderson, Hulu
+
+Tue, 04 Aug 2026 18:57:34 GMT
+
+https://movieweb.com/the-x-files-i-want-to-believe-r-rated-cut-trailer/
+
+This darker cut of 'The X-Files: I Want to Believe' debuts on Hulu on Aug. 14.
+---------
+
+# 'Star Wars' Officially Recasts Han Solo With Apple TV Star for New Reimagining
+
+Movie News, Star Wars: Episode IV - A New Hope, Matthew Rhys, Rhys Ifans, Star Wars
+
+Tue, 04 Aug 2026 18:35:48 GMT
+
+https://movieweb.com/star-wars-welsh-dub-han-solo-matthew-rhys/
+
+Matthew Rhys is set to voice Han Solo for the first Welsh-language dub of 'Star Wars: A New Hope.'
+---------
+
 # The X-Files’ New R-Rated Release Unveiled In Hulu’s I Want To Believe Director’s Cut Trailer
 
 Movies, The X-Files: I Want to Believe, The X-Files, Hulu
