@@ -1,3 +1,377 @@
+# 52 Episodes Later, Colter Shaw's Best Line Is Still The Greatest Quote In Tracker History
+
+Network TV, Tracker
+
+Tue, 04 Aug 2026 16:45:11 GMT
+
+https://screenrant.com/tracker-colter-shaw-best-quote/
+
+One profound quote from Colter Shaw in Tracker encapsulates his character's experiences and philosophy, as he navigates cases and personal loss.
+---------
+
+# With Sony's Spider-Man Universe Officially Ending An Era, There's Now One Big Winner
+
+Superheroes, Spider-Man, Sony's Spider-Man Universe
+
+Tue, 04 Aug 2026 16:45:11 GMT
+
+https://screenrant.com/sony-spider-man-universe-ended-tom-holland-mcu-winner/
+
+Sony's Spider-Man Universe is over after six movies and making $2.1 billion, and there is a huge winner from this chapter of the franchise closing.
+---------
+
+# With 23.26 Billion Minutes Viewed, Netflix Series Achieves Rare Streaming Feat
+
+TV, Masked Recs
+
+Tue, 04 Aug 2026 16:38:26 GMT
+
+https://screenrant.com/stranger-things-netflix-streaming-success-2026/
+
+Netflix's series dominated 2026, with 23.26 billion minutes viewed, and the original series achieved a rare streaming feat and defeated the rest.
+---------
+
+# Prime Video's 10/10 Sci-Fi Fantasy Masterpiece Succeeds In Its Hardest Task
+
+TV, Masked Recs
+
+Tue, 04 Aug 2026 16:38:14 GMT
+
+https://screenrant.com/prime-video-secret-level-sci-fi-fantasy-series-warhammer-40k-spinoff/
+
+One of Prime Video's most exciting TV shows has just succeeded in its hardest task, and this masterpiece Sci-Fi fantasy series expands immensely.
+---------
+
+# Netflix Is About To Set Theatrical History In 2 Months
+
+Movies, Netflix
+
+Tue, 04 Aug 2026 16:37:16 GMT
+
+https://screenrant.com/la-bola-negra-netflix-theatrical-history-longest-release-october-2026/
+
+After opposing theatrical releases for years, Netflix is about to make theatrical history in two months with an upcoming movie.
+---------
+
+# With One Line, House Of The Dragon Makes Its Rhaena Targaryen Problem Worse
+
+TV, Game of Thrones, House of the Dragon
+
+Tue, 04 Aug 2026 16:31:11 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-rhaena-nettles-problem-worse/
+
+With a reference to the spinoff's controversial character change, House of the Dragon season 3, episode 7 ironically made matters worse for Rhaena.
+---------
+
+# BBC's New Agatha Christie Series Based On Iconic Detective Rounds Out Full Cast With Game Of Thrones Stars
+
+TV, Agatha Christie
+
+Tue, 04 Aug 2026 16:13:22 GMT
+
+https://screenrant.com/bbc-hercule-poirot-casting-jack-gleeson-henry-ashton/
+
+Game of Thrones stars join the cast of the BBC's upcoming Agatha Christie series based on the author's iconic detective Hercule Poirot.
+---------
+
+# Stephen King and George A. Romero’s Creepshow Returns With a New 5-Part Series This Fall
+
+Comics, Creepshow, Stephen King, George Romero
+
+Tue, 04 Aug 2026 16:13:04 GMT
+
+https://screenrant.com/stephen-king-george-romero-creepshow-return-series/
+
+Creepshow is returning with a new series that fans of supernatural horror, dark comedy, and everything that goes bump in the night won’t want to miss.
+---------
+
+# Sydney Sweeney’s Housemaid’s Secret Cast Confirms Key Book Character With Beloved Netflix Star
+
+Movies, The Housemaid's Secret
+
+Tue, 04 Aug 2026 16:08:58 GMT
+
+https://screenrant.com/the-housemaids-secret-brittany-snow-casting/
+
+The Housemaid's Secret has added a deadly addition, as Sydney Sweeney will be joined by a beloved Netflix star for the upcoming sequel.
+---------
+
+# Willem Dafoe Gives A Foreboding Speech In The Birthday Party Clip
+
+Exclusive, The Birthday Party, Willem Dafoe
+
+Tue, 04 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/video/the-birthday-party-willem-dafoe-clip/
+
+Exclusive: ScreenRant presents a clip from The Birthday Party, a new film starring Willem Dafoe as a tycoon with big plans for his daughter.
+---------
+
+# HBO's 7-Part Gripping Crime Series Completes Season 2 Cast
+
+TV, Task
+
+Tue, 04 Aug 2026 16:36:20 GMT
+
+https://www.cbr.com/hbo-task-season-2-cast-tim-blake-nelson-more/
+
+The Season 2 cast for HBO's Emmy-nominated crime series is complete.
+---------
+
+# Bloodborne Officially Returns With 10th Anniversary Release Available Now
+
+Games, Bloodborne
+
+Tue, 04 Aug 2026 16:35:16 GMT
+
+https://www.cbr.com/bloodborne-official-10th-anniversary-release-available-now/
+
+Bloodborne still desperately needs a next-gen port, but fans can still celebrate its 10th anniversary with this stunning new release.
+---------
+
+# Steven Spielberg’s $608 Million Sci-Fi Action Sequel Finally Gets an Update After 8 Years
+
+Movies, Ready Player Two, Ready Player One, Sci-Fi
+
+Tue, 04 Aug 2026 16:31:39 GMT
+
+https://www.cbr.com/ready-player-two-update-zak-penn-steven-spielberg/
+
+There's finally hope for Steven Spielberg's long-awaited cyberpunk sequel.
+---------
+
+# 10 Perfect Dark Fantasy Anime No One Remembers
+
+Anime
+
+Tue, 04 Aug 2026 16:15:15 GMT
+
+https://www.cbr.com/perfect-dark-fantasy-anime-no-one-remembers/
+
+Dark fantasy is currently one of the most popular genres in anime, but not every perfect series is as famous as Jujutsu Kaisen or Hell's Paradise.
+---------
+
+# Netflix's Controversial 5-Season Sci-Fi Series Is the No. 1 Most-Watched Show of 2026
+
+TV, Netflix, Stranger Things
+
+Tue, 04 Aug 2026 16:01:56 GMT
+
+https://www.cbr.com/netflixs-controversial-5-season-sci-fi-series-is-the-no-1-most-watched-show-of-2026/
+
+While Netflix crowned a different series as the most-watched show, a new report traces is back to one of the streamer's biggest shows.
+---------
+
+# HBO's Deadwood: The Movie is the Perfect Western
+
+Movies, Deadwood, Deadwood: The Movie, HBO Max
+
+Tue, 04 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/hbo-deadwood-the-movie-perfect-western/
+
+One of the best standalone Western movies on HBO is often overlooked because it's actually the finale for a beloved three-season TV series.
+---------
+
+# Star Wars Officially Confirms The Bad Batch's Return After Series Cancellation
+
+Comics, Star Wars: The Bad Batch, Star Wars
+
+Tue, 04 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/star-wars-the-bad-batch-hyperspace-stories-tpb-release-date-confirmed/
+
+Star Wars fans will soon be able to get even more of The Bad Batch as the series makes its triumphant return.
+---------
+
+# The 4-Part Sci-Fi Classic That Shows The Expanse & For All Mankind How It's Done
+
+TV, Battlestar Galactica, Sci-Fi
+
+Tue, 04 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/battlestar-galactica-space-tv-blueprint/
+
+One classic sci-fi show paved the way for modern space epics like The Expanse and For All Mankind.
+---------
+
+# Magic: The Gathering Marvel Super Heroes Review
+
+Games, Magic: The Gathering, Marvel, TCG
+
+Tue, 04 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/magic-the-gathering-marvel-super-heroes-review/
+
+Magic: The Gathering's Marvel Super Heroes crossover set does a fantastic job of emulating the feeling of caped warriors clashing with villains.
+---------
+
+# The Sequel to the Best Godzilla Movie Ever Made Sets Early Release
+
+Movies, Godzilla Minus Zero
+
+Tue, 04 Aug 2026 15:51:25 GMT
+
+https://www.cbr.com/godzilla-minus-zero-world-premiere-new-york-film-festival/
+
+Godzilla fans will not want to miss this opportunity.
+---------
+
+# 10 Most Impressive Epic Movies of All Time
+
+Movie, The Odyssey, War and Peace, The Lord of the Rings, Ran
+
+Tue, 04 Aug 2026 16:46:14 GMT
+
+https://collider.com/most-impressive-epic-movies-all-time-ranked/
+
+The most impressive epic movies of all time include classics like Ben-Hur and Lawrence of Arabia alongside newer releases like The Odyssey.
+---------
+
+# The Western Quentin Tarantino Called "The Best-Directed Movie of All Time" Is Officially Streaming on Prime Video
+
+Movie News, Prime Video, Western, The Good, the Bad and the Ugly, Clint Eastwood
+
+Tue, 04 Aug 2026 16:30:14 GMT
+
+https://collider.com/clint-eastwood-western-good-the-bad-the-ugly-streaming-prime-video/
+
+The greatest spaghetti Western of all time, Clint Eastwood's The Good, the Bad and the Ugly, is now on streaming. Find out more here.
+---------
+
+# ‘The Chosen’ Gets Official New Release 5 Days Before Prime Video Return [Exclusive]
+
+TV News, The Chosen, Prime Video, Dallas Jenkins, Bear Grylls
+
+Tue, 04 Aug 2026 16:00:15 GMT
+
+https://collider.com/the-chosen-in-the-wilds-with-bear-grylls-sneak-peek-prime-video/
+
+Prime Video has released a new sneak peek at The Chosen in the Wild with Bear Grylls before the show begins streaming this Sunday.
+---------
+
+# 'Harry Potter's New Hermione Granger Officially Shows Off Season 2 Transformation
+
+TV News, Harry Potter, HBO Max, Fantasy
+
+Tue, 04 Aug 2026 15:30:15 GMT
+
+https://collider.com/harry-potter-series-season-2-hermione-granger-new-look/
+
+As HBO's new Harry Potter series gears up for Season 2, the actress playing Hermione Granger debuts a brand-new look.
+---------
+
+# John Wick Meets Santa Clause in David Harbour's R-Rated Action Thriller Sequel Trailer
+
+Movie News, Violent Night 2, David Harbour, Violent Night, John Wick
+
+Tue, 04 Aug 2026 15:13:40 GMT
+
+https://collider.com/silent-night-2-trailer/
+
+David Harbour's violent Christmas actioner that is John Wick meets Santa Clause is officially back with first sequel trailer.
+---------
+
+# Prime Video’s New 8-Part Mystery Series Is the Perfect One-Night Binge
+
+Features, Sterling Point, Prime Video
+
+Tue, 04 Aug 2026 16:01:12 GMT
+
+https://movieweb.com/sterling-point-prime-mystery-binge/
+
+Amazon Prime Video has released some entertaining TV shows in 2026, including 'Off Campus' and 'Every Year After,' and a new show comes out August 5.
+---------
+
+# 'Minions & Monsters' Officially Confirms Digital Streaming Release Date
+
+Movie News, Minions & Monsters
+
+Tue, 04 Aug 2026 15:57:25 GMT
+
+https://movieweb.com/minions-monsters-digital-streaming-release-date/
+
+Universal and Illumination confirm the digital release date for 'Minions & Monsters.'
+---------
+
+# Steven Spielberg's Sci-Fi Action Sequel Finally Gets Major Update 8 Years Later
+
+Movie News, Ready Player Two, Ready Player One, Steven Spielberg, Sci-Fi
+
+Tue, 04 Aug 2026 15:48:09 GMT
+
+https://movieweb.com/ready-player-two-zak-penn-writing-script/
+
+Zak Penn has confirmed he is working on the script for 'Ready Player Two,' the sequel to Steven Spielberg's 'Ready Player One' adaptation.
+---------
+
+# Penélope Cruz's New Historical Epic Is Officially Breaking a Netflix Record
+
+Movie News, Penelope Cruz, Netflix, Movie Theaters
+
+Tue, 04 Aug 2026 15:43:54 GMT
+
+https://movieweb.com/la-bola-negra-netflix-theatrical-window/
+
+Is Netflix finally coming around on movie theaters?
+---------
+
+# 'Violent Night 2' Trailer Unleashes Long-Awaited Christmas Action Sequel
+
+Movie News, Violent Night 2
+
+Tue, 04 Aug 2026 15:22:23 GMT
+
+https://movieweb.com/violent-night-2-trailer/
+
+David Harbour returns as the heavy-drinking Santa Claus in the first official trailer for the long-awaited 'Violent Night' sequel.
+---------
+
+# Marvel Boss Teases Where & When Spider-Man Will Return in the MCU
+
+Movie News, Spider-Man: Brand New Day
+
+Tue, 04 Aug 2026 15:15:57 GMT
+
+https://movieweb.com/kevin-feige-teases-spider-man-mcu-return/
+
+Kevin Feige said 'Brand New Day' teased Spider-Man's next MCU appearance.
+---------
+
+# One of the Most Iconic Batman Sagas in DC History Gets New R-Rated Release
+
+Movie News, Batman: Knightfall Part 1: Knightfall, Batman
+
+Tue, 04 Aug 2026 15:12:05 GMT
+
+https://movieweb.com/batman-knightfall-part-1-4k-blu-ray-release/
+
+Warner Bros. Home Entertainment is preparing a 4K Blu-ray and Blu-ray release of Jeff Wamester's DC film adaptation, 'Batman: Knightfall – Part 1.'
+---------
+
+# New 2-Part "Rambo Meets Taken" Action Thriller Franchise Dominates Streaming
+
+Movie News, One Mile: Chapter One, Action, Thriller, Ryan Phillippe, Paramount Plus
+
+Tue, 04 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/one-mile-chapter-one-two-stream-action-thriller-hit/
+
+Starring Ryan Phillippe, the action thriller double-bill has flown very much under the radar. Until now.
+---------
+
+# The 10 Best LGBTQ+ BL/Yaoi Anime of All Time
+
+Movie Lists, Anime
+
+Tue, 04 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/best-lgbtq-bl-yaoi-anime/
+
+BL anime serves up engaging tales, unforgettable characters, and relationships so sweet they could make a dentist blush.
+---------
+
 # You Can Get A Guaranteed Anvil Blueprint In Arc Raiders Right Now
 
 Gaming, ARC Raiders
