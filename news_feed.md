@@ -1,3 +1,322 @@
+# Will Ferrell Officially Responds To Reported Elf Conflicts With Jon Favreau 23 Years Later
+
+Movies, Elf, Will Ferrell, Jon Favreau
+
+Tue, 04 Aug 2026 12:07:14 GMT
+
+https://screenrant.com/elf-movie-jon-favreau-conflicts-will-ferrell-response-official/
+
+Will Ferrell has provided his response to the reports that he and director Jon Favreau clashed during the filming of the 2003 Christmas comedy Elf.
+---------
+
+# Blade Runner Meets The Matrix This Fall in a New Neo-Noir Sci-Fi Series
+
+Comics, Masked Recs
+
+Tue, 04 Aug 2026 12:03:11 GMT
+
+https://screenrant.com/the-detective-sci-fi-blade-runner-matrix-series/
+
+Fans of Blade Runner, The Matrix, and Minority Report need to keep this fall's new neo-noir sci-fi series on their radar, as it promises to be epic.
+---------
+
+# Marvel’s New Deadpool Officially Debuts August 6
+
+Gaming, Marvel, Marvel Cinematic Universe, Deadpool
+
+Tue, 04 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/marvel-new-deadpool-tokon-fighting-souls/
+
+Nolan North reprises role as Deadpool in upcoming Marvel Tokon Fighting Souls game, launching August 6.
+---------
+
+# 9 Years Later, Spider-Man: Brand New Day Wastes Scorpion’s Official MCU Debut
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Tue, 04 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-wastes-scorpions-official-mcu-debut/
+
+Scorpion's return in Spider-Man: Brand New Day achieves a years-long MCU dream, but repeats some of the issues with the villain's story previously.
+---------
+
+# Star Trek Sets Up Kirk Demanding A Big USS Enterprise Change After Strange New Worlds
+
+TV, Op-Ed, Star Trek, Star Trek: Strange New Worlds
+
+Tue, 04 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-enterprise-viewscreen-kirk-change-theory/
+
+A traumatic event that James T. Kirk experiences in Star Trek: Strange New Worlds season 4, episode 2 could plug a USS Enterprise canon hole.
+---------
+
+# Attack On Titan Officially Returns December 2026 For A New Finale
+
+Gaming, Attack on Titan
+
+Tue, 04 Aug 2026 11:30:11 GMT
+
+https://screenrant.com/attack-on-titan-new-finale-december-2026/
+
+Get ready for the epic conclusion of the Attack on Titan series with the third game installment.
+---------
+
+# 15 Greatest K-Dramas About School & College Nobody Should Ever Skip
+
+Lists, K-Drama
+
+Tue, 04 Aug 2026 11:15:11 GMT
+
+https://screenrant.com/k-dramas-about-school-college-ranked/
+
+There is no shortage of K-dramas filled with young love, friendship, and teen angst against the backdrop of a high-stress academic setting.
+---------
+
+# Pokémon Officially Unveils New Gengar Redesign After 30 Years
+
+Gaming, Pokemon, Pokémon - Season 1, Pokemon Winds and Waves, PC
+
+Tue, 04 Aug 2026 11:02:16 GMT
+
+https://screenrant.com/pokemon-gengar-redesign-adidas-collection/
+
+To celebrate Pokémon's 30th anniversary, the franchise has introduced a stunning new Gengar redesign that already has fans losing it.
+---------
+
+# Pokémon Legends Z-A Summer DLC Announced Ahead Of Winds & Waves
+
+Gaming
+
+Tue, 04 Aug 2026 11:00:11 GMT
+
+https://screenrant.com/pokemon-legends-za-season-15-teaser/
+
+Pokémon Legends Z-A is about to move into another season, and it definitely contains references to the upcoming Winds and Waves.
+---------
+
+# The Beekeeper Remains a Smash Hit on Streaming
+
+Movies, The Beekeeper, Jason Statham, Prime Video
+
+Tue, 04 Aug 2026 12:00:16 GMT
+
+https://www.cbr.com/jason-statham-the-beekeeper-streaming-success-prime-video-august-2026/
+
+Two years later, Jason Statham's surprise hit maintains a chokehold on the streaming charts.
+---------
+
+# Disney+'s 12-Part Fantasy Adventure Returns as 1 of the Biggest Shows on Streaming
+
+TV, Loki, MCU, Disney+
+
+Tue, 04 Aug 2026 12:00:16 GMT
+
+https://www.cbr.com/loki-fantasy-mcu-streaming-success-disney-plus-august-2026/
+
+Three years after its epic finale, this surprisingly touching fantasy series is dominating Disney+ once again.
+---------
+
+# Marvel Confirms Unexpected Romantic Iron Man WEBTOON Tony's Girl
+
+Comics, Iron Man, Tony Stark, webtoon
+
+Tue, 04 Aug 2026 12:00:16 GMT
+
+https://www.cbr.com/marvel-iron-man-webtoon-tonys-girl/
+
+An unlikely Iron Man story is coming to WEBTOON.
+---------
+
+# Jason Alexander's Favorite Seinfeld Quote Is Still the Funniest Line in Sitcom History
+
+TV, Seinfeld, Comedy, Sitcoms
+
+Tue, 04 Aug 2026 11:30:15 GMT
+
+https://www.cbr.com/seinfeld-jason-alexander-favorite-quote-funniest-sitcom-line-ever/
+
+In the role of George Costanza, Jason Alexander became a sitcom legend, and he has one clear favorite Seinfeld quote still iconic today.
+---------
+
+# Jaafar Jackson Sets Michael Follow-up in New Will Smith Movie
+
+Movies
+
+Tue, 04 Aug 2026 11:00:15 GMT
+
+https://www.cbr.com/jaafar-jackson-will-smith-supermax-role-announced/
+
+Fresh off the success of the Michael Jackson biopic, Jaafar Jackson lands a major new role opposite Will Smith.
+---------
+
+# The 10 Best Multi-Panel Far Side Comics Ever, Ranked
+
+Comics, The Far Side
+
+Tue, 04 Aug 2026 11:00:15 GMT
+
+https://www.cbr.com/best-multi-panel-far-side-comics-ranked/
+
+In the entirety of its run, The Far Side remained a single-panel comic strip, except when it challenged what a single-panel comic could be.
+---------
+
+# Jon Bernthal's 'The Sopranos' Prequel Is Officially a 10/10 Streaming Hit
+
+Movie News, The Sopranos, The Many Saints of Newark, Jon Bernthal, Crime
+
+Tue, 04 Aug 2026 12:17:50 GMT
+
+https://collider.com/jon-bernthal-the-many-saints-of-newark-streaming-success/
+
+Jon Bernthal's The Sorpanos prequel film is officially a 10/10 streaming hit as audiences check it out again.
+---------
+
+# The 10 Best Comedy Movies of the '90s, Ranked
+
+Movie, Comedy, 1990s, The Truman Show, Mrs. Doubtfire
+
+Tue, 04 Aug 2026 12:15:15 GMT
+
+https://collider.com/best-90s-comedy-movies-ranked/
+
+The '90s produced some of the most iconic comedy movies ever, from Oscar-winning classics like My Cousin Vinny to prescient gems like The Truman Show.
+---------
+
+# ‘The Odyssey’ Is Officially One of the Biggest R-Rated Movies in Box Office History
+
+Movie News, The Odyssey, Christopher Nolan, Box Office, Tom Holland
+
+Tue, 04 Aug 2026 12:14:12 GMT
+
+https://collider.com/the-odyssey-biggest-r-rated-movie-box-office-history/
+
+Christopher Nolan's The Odyssey is officially one of the biggest R-rated movies in box office history.
+---------
+
+# ‘Spider-Man: Brand New Day’ Officially Swings Past $1 Billion at the Box Office in Just 5 Days
+
+Movie News, Spider-Man: Brand New Day, Box Office, Tom Holland, Jon Bernthal
+
+Tue, 04 Aug 2026 12:01:15 GMT
+
+https://collider.com/spider-man-brand-new-day-worldwide-box-office-1-billion/
+
+Spider-Man: Brand New Day has passed $1 billion at the global box office in just five days before arriving on IMAX screens.
+---------
+
+# 8 Most Perfect Sitcoms of the 2010s, Ranked
+
+TV, Sitcom, Big Bang Theory, Modern Family, Veep
+
+Tue, 04 Aug 2026 11:52:15 GMT
+
+https://collider.com/most-perfect-sitcoms-2010s-ranked/
+
+Brooklyn Nine-Nine, Broad City, Schitt's Creek, Parks and Recreation, Veep, and more make up our list of the most perfect sitcoms of the 2010s.
+---------
+
+# 10 Action Thrillers That Are Perfect From the First Scene to the Last
+
+Movie, Action, Thriller, Heat, The Driver
+
+Tue, 04 Aug 2026 11:31:16 GMT
+
+https://collider.com/action-thrillers-that-perfect-first-scene-to-last/
+
+From '70s cult classics like The Driver to newer, underrated gems like The Killer, these action thrillers somehow manage to remain perfect throughout.
+---------
+
+# The ‘Ghosts’ Universe May Be About to Get Much Bigger [Exclusive]
+
+Exclusives, Ghosts, SDCC, Eternally Yours, CBS
+
+Tue, 04 Aug 2026 11:30:15 GMT
+
+https://collider.com/ghosts-eternally-yours-crossover-ideas/
+
+Ghosts and Eternally Yours stars share their dream character pairings for a potential crossover between the CBS supernatural comedies.
+---------
+
+# ‘Strange New Worlds’ Just Found the Perfect Way to Reinvent ‘Star Trek’ Sci-Fi
+
+TV Features, Star Trek: Strange New Worlds, Star Trek: Deep Space Nine, Star Trek: Enterprise, Paramount Plus
+
+Tue, 04 Aug 2026 11:18:15 GMT
+
+https://collider.com/star-trek-strange-new-worlds-division-12-sci-fi-reinvention/
+
+Star Trek: Strange New Worlds went full horror in its latest horror, even setting up a potential spinoff.
+---------
+
+# 6 Best Comedies Released Since 2000
+
+Movie, Comedy, Will Ferrell, The Hangover, Anchorman: The Legend of Ron Burgundy
+
+Tue, 04 Aug 2026 11:08:15 GMT
+
+https://collider.com/best-comedies-released-since-2000-ranked/
+
+Anchorman: The Legend of Ron Burgundy, The Hangover, and Mean Girls are among the best, funniest comedy movies released since the year 2000.
+---------
+
+# Forget 'Spider-Man: Brand New Day,' Zendaya's Raw HBO Max Black Comedy Makes MJ and Peter Parker Look Like a Fairy Tale
+
+Movie Features, Spider-Man: Brand New Day, Zendaya, The Drama, Robert Pattinson
+
+Tue, 04 Aug 2026 11:03:15 GMT
+
+https://collider.com/the-drama-streaming-hbo-max-raw-romantic-comedy/
+
+Zendaya stars in The Drama, a romance that is more stressful than Peter Parker and MJ's heartbreaking situation in Spider-Man: Brand New Day.
+---------
+
+# Brandon Sanderson Confirmed the Biggest Problem With 'The Witcher'
+
+Features, The Witcher, Henry Cavill, Brandon Sanderson
+
+Tue, 04 Aug 2026 12:01:12 GMT
+
+https://movieweb.com/brandon-sanderson-witcher-henry-cavill-problem/
+
+When Brandon Sanderson critiqued fantasy TV, he didn’t just pinpoint a genre issue— he explained why The Witcher’s storytelling has declined.
+---------
+
+# Eli Roth's Latest Horror Movie Lands Savage Rotten Tomatoes Score
+
+Movie News, Ice Cream Man, Eli Roth, Horror
+
+Tue, 04 Aug 2026 11:20:06 GMT
+
+https://movieweb.com/ice-cream-man-rotten-tomatoes-score/
+
+Eli Roth's horror film 'Ice Cream Man' has received a frosty critical reception, debuting to a low Rotten Tomatoes score based on initial reviews.
+---------
+
+# The Biggest Action Fantasy Show of 2025 Refuses to Back Down
+
+TV News, Solo Leveling, Crunchyroll, Hot on Streaming, Action, Fantasy
+
+Tue, 04 Aug 2026 11:07:43 GMT
+
+https://movieweb.com/solo-leveling-stream-crunchyroll-august-2026/
+
+In 2025, one action fantasy show dominated pop cutlure. A year later, it's still putting up a fight ahead of the new movie.
+---------
+
+# 'Spider-Man: Brand New Day' Fumbles MCU Character Comeback 9 Years in the Making
+
+Features, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Tue, 04 Aug 2026 11:00:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-scorpion-comeback/
+
+Michael Mando's role as Mac Gargan in 'Spider-Man: Brand New Day' was suggested to be very different. Read on for more.
+---------
+
 # Chrono Trigger Officially Returns March 2027
 
 Gaming, Chrono Trigger
