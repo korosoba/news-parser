@@ -1,3 +1,355 @@
+# The X-Files’ New R-Rated Release Unveiled In Hulu’s I Want To Believe Director’s Cut Trailer
+
+Movies, The X-Files: I Want to Believe, The X-Files, Hulu
+
+Tue, 04 Aug 2026 18:19:41 GMT
+
+https://screenrant.com/the-x-files-i-want-to-believe-r-rated-director-cut-trailer/
+
+The X-Files is back with an R-rated overhaul in the first trailer for Chris Carter's director's cut of I Want to Believe coming to Hulu soon.
+---------
+
+# Jamie Foxx Officially Leads Prime Video's New Action-Packed Thriller
+
+Movies, Jamie Foxx
+
+Tue, 04 Aug 2026 18:18:51 GMT
+
+https://screenrant.com/jamie-foxx-deadlocked-movie-amazon-development/
+
+Jamie Foxx is officially leading Prime Video's new action-packed thriller, returning to streaming releases after Netflix's Back in Action.
+---------
+
+# Jeremy Renner's Scrapped $226M Fantasy Action Sequel Plans & Potential Revival Addressed By Director
+
+Movies, Hansel & Gretel: Witch Hunters 2, Hansel & Gretel: Witch Hunters, Jeremy Renner
+
+Tue, 04 Aug 2026 18:12:51 GMT
+
+https://screenrant.com/jeremy-renner-hansel-gretel-witch-hunters-2-scrapped-plans-revival-chances-wirkola/
+
+Exclusive: Writer/director Tommy Wirkola reflects on his scrapped sequel plans for Jeremy Renner's hit fantasy action film and a potential revival.
+---------
+
+# Anson Mount Was Destined For Star Trek Long Before Strange New Worlds (Profile)
+
+Exclusive, Anson Mount, Star Trek, Star Trek: Strange New Worlds, Cover Story, SR Profile
+
+Tue, 04 Aug 2026 18:11:34 GMT
+
+https://screenrant.com/anson-mount-interview-star-trek-strange-new-worlds/
+
+Anson Mount discusses his biggest acting roles and the thread running throughout that led him to play Captain Pike on Star Trek: Strange New Worlds.
+---------
+
+# NYT Connections Solution And Hints For August 4, 2026
+
+Gaming, Connections, Mobile
+
+Tue, 04 Aug 2026 18:10:50 GMT
+
+https://screenrant.com/nyt-connections-solution-answer-hints-august-4-2026/
+
+The Connections for today ask you to identify concepts based on how they look, challenging your sense of observation for the most sharp-eyed players.
+---------
+
+# Why HBO Max's $949 Million Dystopian Sci-Fi Has Become A Global Streaming Hit
+
+Movies, Masked Recs
+
+Tue, 04 Aug 2026 18:10:37 GMT
+
+https://screenrant.com/hbo-max-the-maze-runner-streaming-charts-rise-august-2026/
+
+HBO Max's dystopian Sci-Fi that is one of the genre's best franchises has returned as a major streaming hit, offering plenty of action and mystery.
+---------
+
+# Only One Of Marvel's Original 6 Avenger Actors Won't Return: The One Who's Had Most Success Post-Endgame
+
+Movies, Marvel, The Avengers
+
+Tue, 04 Aug 2026 18:00:11 GMT
+
+https://screenrant.com/mcu-scarlett-johansson-not-return-most-successful-career/
+
+Avengers: Doomsday is set to be the first Avengers film without the original group, as one star won't return after finding major success post-MCU.
+---------
+
+# New Episodes Of Prime Video’s Hit Batman Series Debut To Stellar Audience RT Score
+
+TV, Masked Recs, Batman, DC Universe, Prime Video
+
+Tue, 04 Aug 2026 17:52:25 GMT
+
+https://screenrant.com/batman-caped-crusader-season-2-rotten-tomatoes-audience-score/
+
+Prime Video's iconic Batman TV show is finally back, and the audience score on Rotten Tomatoes has officially debuted for the DC superhero series.
+---------
+
+# 10 Greatest Sci-Fi Movies With The Best Worldbuilding
+
+Movies, Dark City, Demolition Man, The Fifth Element, Dune, Avatar, Aliens, Star Wars: Episode IV - A New Hope, The Matrix, Blade Runner, Serenity
+
+Tue, 04 Aug 2026 17:45:11 GMT
+
+https://screenrant.com/sci-fi-movies-best-worldbuilding/
+
+Few movie genres boast worlds or settings as wondrous as sci-fi, and these titles take those worldbuilding concepts to the next level.
+---------
+
+# The BBC's 94% RT Sci-Fi Series Is Even Better On Rewatch
+
+Classic TV, Masked Recs
+
+Tue, 04 Aug 2026 17:30:11 GMT
+
+https://screenrant.com/dirk-gentlys-holistic-detective-agency-better-on-rewatch-sci-fi-series/
+
+Discover how this BBC sci-fi series with a 94% Rotten Tomatoes score becomes even better on rewatch, making it even more criminally underrated.
+---------
+
+# 10 Anime to Watch If You Love Jujutsu Kaisen
+
+Anime, Jujutsu Kaisen, My Hero Academia, Demon Slayer: Kimetsu no Yaiba
+
+Tue, 04 Aug 2026 18:15:15 GMT
+
+https://www.cbr.com/best-anime-to-watch-for-jujutsu-kaisen-fans/
+
+While fans of Jujutsu Kaisen wait for Season 4, they can have a great time enjoying similar series like Chainsaw Man and Dandadan.
+---------
+
+# Netflix's Divisive True Crime Anthology Series Sets Return Date After First-Ever Recast
+
+TV, Monster
+
+Tue, 04 Aug 2026 18:00:40 GMT
+
+https://www.cbr.com/netflix-monster-the-lizzie-borden-story-release-date/
+
+The show has been a streaming success although it has received massive backlash.
+---------
+
+# Jon Bernthal's Near-Perfect 5-Season High-Anxiety Drama Returns as a Hulu Streaming Hit
+
+TV, The Bear, Hulu, Disney+
+
+Tue, 04 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/the-bear-hulu-season-5-success-august-2026/
+
+The Bear returns to the Hulu charts as the No. 9 most watched show in the United States.
+---------
+
+# Horizon: An American Saga is the Perfect Yellowstone Replacement
+
+Movies, Horizon: An American Saga - Chapter 1, Yellowstone
+
+Tue, 04 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/kevin-costner-horizon-american-saga-underseen-western/
+
+Since he joined the Western genre in 1985's Silverado, Kevin Costner has cemented himself as a legend in the genre, and his Netflix epic proves it.
+---------
+
+# Marvel Officially Reveals New Wolverine With A Fantasy-Inspired Twist
+
+Comics, Marvel, Marvel Comics, MCU, X-Men, X-Men '97, Wolverine
+
+Tue, 04 Aug 2026 17:49:32 GMT
+
+https://www.cbr.com/marvel-officially-reveals-new-wolverine-redesign/
+
+The fantasy-inspired Wolverine variant is definitely one that should stick around for Marvel.
+---------
+
+# Tom Holland Is Marvel Studios' Future, And Brand New Day Shows Everything He's Learned Since Captain America: Civil War
+
+Movies, Spider-Man, tom holland
+
+Tue, 04 Aug 2026 17:32:39 GMT
+
+https://www.cbr.com/tom-holland-is-marvel-studios-future-brand-new-day-civil-war/
+
+By beating Avengers: Endgame at the box office, Tom Holland shows that he's learned a ton since joining the MCU in the Russo Brothers' Civil War.
+---------
+
+# Year of the Devil: Danny Trejo's Epic Horror Comic Explained
+
+Comics, comics
+
+Tue, 04 Aug 2026 17:30:15 GMT
+
+https://www.cbr.com/video/year-of-the-devil-danny-trejo-s-epic-horror-comic-explained/
+
+Danny Trejo's Year of the Devil brings history, horror, and mythology together in an epic new graphic novel. Danny Trejo joins co-creators Keith Arem and Chris Yates to break down Diego's tragic origin, the real historical events that inspired the story, and why comics were the perfect medium for this supernatural adventure.
+---------
+
+# It's Officially the End of an Era for The Lord of the Rings After Nearly a Century
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum
+
+Tue, 04 Aug 2026 17:30:15 GMT
+
+https://www.cbr.com/the-hunt-for-gollum-end-of-lord-of-the-rings-hero-era/
+
+The Hunt for Gollum focuses on a villain for the first time in LOTR history
+---------
+
+# Chicago Fire Exiting Star Breaks Silence on Unexpected Season 15 Departure: 'They Write the Character Off'
+
+TV, Chicago Fire, NBC, Peacock
+
+Tue, 04 Aug 2026 17:17:26 GMT
+
+https://www.cbr.com/chicago-fire-dermot-mulroney-season-15-departure-nbc/
+
+Dermot Mulroney speaks out on his departure from Chicago Fire.
+---------
+
+# Xbox Price Increase Officially Happening At The Worst Time
+
+Games, Xbox Series X (1), Grand Theft Auto, Video Games
+
+Tue, 04 Aug 2026 17:15:15 GMT
+
+https://www.cbr.com/xbox-official-price-increase-before-grand-theft-auto-6/
+
+Microsoft is jacking up the price of Xbox Series X/S consoles worldwide, at a time when it should be lowering costs, thanks to one big 2026 game.
+---------
+
+# Little House on the Prairie: The Story TV Never Told | Collider BTS
+
+TV, Little House on the Prairie
+
+Tue, 04 Aug 2026 18:15:15 GMT
+
+https://collider.com/video/little-house-on-the-prairie-the-story-tv-never-told-collider-bts/
+
+The creative vision behind Netflix's Little House on the Prairie comes to life in this exclusive interview with executive producer Joy Gorman Wettels.
+---------
+
+# 10 Greatest FPS Games of All Time
+
+Video Games, Video Game, Metroid, Half-Life, GoldenEye 007 Remake
+
+Tue, 04 Aug 2026 17:52:14 GMT
+
+https://collider.com/best-fps-games-all-time-ranked/
+
+Goldeneye 007, Halo 3, and Call of Duty 4: Modern Warfare are among the absolute greatest first-person shooter video games of all time.
+---------
+
+# 'The Mummy 4' Officially Confirms Return of 2 Fan-Favorite Characters
+
+Movie News, The Mummy 4, Oded Fehr, Rachel Weisz, Brendan Fraser
+
+Tue, 04 Aug 2026 17:15:57 GMT
+
+https://collider.com/the-mummy-4-cast-oded-fehr-kevin-j-oconnor-numan-acar/
+
+Brendan Fraser's The Mummy 4 is not only bringing back Oded Fehr's fan-favorite character, but also a beloved villain from the 1999 original.
+---------
+
+# Marvel Officially Brings Back ‘Ironheart’ Character For New Release
+
+Gaming News, Ironheart, Anthony Ramos, Marvel, Spider-Man: Brand New Day
+
+Tue, 04 Aug 2026 17:05:53 GMT
+
+https://collider.com/ironheart-the-hood-marvel-rivals-gameplay-trailer/
+
+1 Year after Ironheart debuted, The Hood is officially back in a new trailer for Marvel Rivals. See the fan-favorite villain's return here!
+---------
+
+# This Beloved 4-Part Sci-Fi Epic Did the Genre Better Than Almost Anything Else
+
+TV Features, Farscape, Sci-Fi, Fantasy, Farscape: The Peacekeeper Wars
+
+Tue, 04 Aug 2026 16:54:16 GMT
+
+https://collider.com/best-sci-fi-epic-series-farscape/
+
+Farscape remains one of television’s best sci-fi series, from its epic romance to its groundbreaking alien creature effects.
+---------
+
+# Jamie Foxx Goes Full 'Die Hard' in New Prime Video Action Thriller
+
+Movie News, Jamie Foxx
+
+Tue, 04 Aug 2026 18:16:32 GMT
+
+https://movieweb.com/jamie-foxx-deadlocked-prime-video-action-thriller/
+
+Jamie Foxx is back in action in a new streaming thriller with shades of 'Die Hard.'
+---------
+
+# Sydney Sweeney's Erotic Thriller Sequel 'The Housemaid's Secret' Officially Recruits Recent Netflix Star
+
+Movie News, The Housemaid's Secret, The Housemaid, Brittany Snow
+
+Tue, 04 Aug 2026 17:48:13 GMT
+
+https://movieweb.com/the-housemaids-secret-brittany-snow/
+
+'The Housemaid's Secret' is staffing up.
+---------
+
+# Viola Davis Leads New Streaming Thriller From Creative Behind Best James Bond
+
+TV News, Viola Davis, John Logan
+
+Tue, 04 Aug 2026 17:38:18 GMT
+
+https://movieweb.com/viola-davis-ascent-paramount-plus-john-logan-thriller/
+
+Paramount+ has greenlit 'Ascent,' a thriller starring Viola Davis and created by 'Skyfall' writer John Logan, who also showruns.
+---------
+
+# Brendan Fraser's 'The Mummy' Sequel Brings Back 2 Stars From OG Franchise
+
+Movie News, The Mummy 4, Oded Fehr
+
+Tue, 04 Aug 2026 17:30:01 GMT
+
+https://movieweb.com/the-mummy-4-oded-fehr-kevin-j-oconnor-return/
+
+A pair of iconic supporting actors from Brendan Fraser's 'The Mummy' franchise will return to their roles for the next chapter in the story.
+---------
+
+# 5 Upcoming Tom Cruise Movies in Various Stages of Production
+
+Movie Lists, Tom Cruise
+
+Tue, 04 Aug 2026 17:00:13 GMT
+
+https://movieweb.com/upcoming-tom-cruise-movies/
+
+Tom Cruise just received an honorary Oscar, and at 63 years old, he isn't slowing down any time soon.
+---------
+
+# New Netflix Hit Is 6-Part Thriller About Real-Life Event That Changed the World
+
+Movie News, Netflix, The Bombing of Pan Am 103, Hot on Streaming
+
+Tue, 04 Aug 2026 17:00:12 GMT
+
+https://movieweb.com/netflix-bombing-pan-am-104-streaming-hit-august-2026/
+
+The miniseries is one of the best shows of 2026 and has quickly become a global streaming success.
+---------
+
+# The 10 Best Samurai Action Epics of All Time, Ranked
+
+Features, Akira Kurosawa
+
+Tue, 04 Aug 2026 17:00:12 GMT
+
+https://movieweb.com/best-samurai-action-epic-movies-ranked/
+
+These are the best samurai action epic movies that feature ambitious character work and action set pieces.
+---------
+
 # 52 Episodes Later, Colter Shaw's Best Line Is Still The Greatest Quote In Tracker History
 
 Network TV, Tracker
