@@ -1,3 +1,344 @@
+# 5 Anime Remakes and Reboots Coming in 2026 and Beyond
+
+Anime
+
+Tue, 04 Aug 2026 01:35:43 GMT
+
+https://screenrant.com/anime-reboots-2026-beyond/
+
+Fans should get ready to embrace nostalgia, as several anime remakes and reboots are currently scheduled for release in 2026 and beyond.
+---------
+
+# A Beloved 1999 PS1 Shooter Has Been Revived After Nearly 3 Decades
+
+Gaming, PlayStation, PlayStation (Original), PC
+
+Tue, 04 Aug 2026 01:00:11 GMT
+
+https://screenrant.com/ps1-classic-syphon-filter-returns-pc/
+
+This PlayStation 1 shooter is one of the best, and, after nearly three decades, has finally be revived for modern players to enjoy.
+---------
+
+# AI Scandal Around $2.4 Million Novel Kills Its Movie Deal & Spells Trouble For Future Adaptations
+
+Books
+
+Tue, 04 Aug 2026 00:46:10 GMT
+
+https://screenrant.com/ai-questions-call-me-ill-hide-the-body-aug-2026-adaptation-problems/
+
+A $2.4 million book deal and a possible movie adaptation have been killed, and the move could have major implications for book-to-screen adaptations.
+---------
+
+# James Bond Gets Official Casting Timeline From New Franchise Boss
+
+Movies, Bond 26, James Bond
+
+Tue, 04 Aug 2026 00:36:18 GMT
+
+https://screenrant.com/james-bond-casting-timeline-update-amy-pascal/
+
+Producer Amy Pascal offers an official casting timeline update on the next James Bond star as she teases the "really methodical" process.
+---------
+
+# DC Finally Introduces A Villain Who Is Darkseid's Equal
+
+DC Comics, Darkseid
+
+Tue, 04 Aug 2026 00:30:11 GMT
+
+https://screenrant.com/superman-new-villain-infinite-man/
+
+Superman travels to the future and discovers a powerful enemy that has transcended the concept of strength, meaning that fighting him is futile.
+---------
+
+# Star Trek: Lower Decks Movie Teased By Series Creator
+
+Movies, Star Trek, Star Trek Lower Decks
+
+Tue, 04 Aug 2026 00:23:22 GMT
+
+https://screenrant.com/star-trek-lower-decks-movie-mike-mcmahan-tease/
+
+Star Trek: Lower Decks creator Mike McMahan responds to Jerry O'Connell's Comic-Con comments by hinting at the possibility of a Lower Decks movie.
+---------
+
+# All Of Helaena's Dreams & Prophecies In House Of The Dragon Season 3, Episode 7 Explained
+
+Streaming TV, House of the Dragon, House of the Dragon - Season 3, Game of Thrones
+
+Tue, 04 Aug 2026 00:15:11 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-episode-7-helaena-dreams-prophecy-explained/
+
+In House of the Dragon season 3, Helaena has begun to dive into some of her dragon dreams. Still, seeing the future won't save the Targaryens.
+---------
+
+# 10 Obscure American Sitcoms Everyone Should Watch
+
+TV, Sitcoms
+
+Tue, 04 Aug 2026 00:00:11 GMT
+
+https://screenrant.com/obscure-american-sitcoms-everyone-should-watch/
+
+American sitcoms can become mega-hits that define a generation, but for every Friends, there is an obscure sitcom that deserves more attention.
+---------
+
+# Stardew Valley Meets Zelda: BOTW In New Farming RPG Hybrid
+
+Gaming, The Legend of Zelda: Breath of the Wild, Harvest Moon, Stardew Valley, RPG, Nintendo, PC
+
+Tue, 04 Aug 2026 00:00:11 GMT
+
+https://screenrant.com/zelda-stardew-valley-open-world-farming-rpg/
+
+Fans of both Stardew Valley and Zelda: Breath of the Wild will absolutely want to check out this cozy merging of farming sim and RPG.
+---------
+
+# Beast of Reincarnation Review - Game Freak Stretches Its Legs Beyond Pokemon
+
+Gaming, Beast of Reincarnation, Triple-A Games
+
+Tue, 04 Aug 2026 00:00:11 GMT
+
+https://screenrant.com/beast-of-reincarnation-review/
+
+Game Freak continues to surprise us, and beyond Pocket Card Jockey and the behemoth that is Pokémon, they have a new action RPG to play.
+---------
+
+# Logan Paul’s $2.7 Million Pokémon Card Gamble Is Officially a Disaster
+
+Games, Pokemon, Pokemon TCG, Tabletop
+
+Tue, 04 Aug 2026 01:45:14 GMT
+
+https://www.cbr.com/logan-paul-pokemon-tcg-disaster/
+
+Internet influencer Logan Paul held a special Pokémon event that only further tarnished his already damaged reputation as an influencer.
+---------
+
+# 10 Shonen Manga That Are 10/10 Masterpieces
+
+Anime, Manga, Shonen, Blue Lock, One Piece, Haikyuu!, Fullmetal Alchemist
+
+Tue, 04 Aug 2026 01:25:15 GMT
+
+https://www.cbr.com/masterpiece-shonen-manga-perfect-10/
+
+Shonen manga has produced some of the most influential anime stories in the history of the medium, but only a handful maintain exceptional quality.
+---------
+
+# Spider-Man: No Way Home Actress Mary Rivera Dies at 82
+
+Movies, obituary, Spider-Man: No Way Home
+
+Tue, 04 Aug 2026 01:20:05 GMT
+
+https://www.cbr.com/mary-rivera-dead/
+
+Mary Rivera, best known to Marvel fans for her role as Ned Leeds' Lola in Spider-Man: No Way Home, has died.
+---------
+
+# D&D's New Character Class Could Be The Best In The Game
+
+Games, Dungeons and Dragons, Tabletop
+
+Tue, 04 Aug 2026 00:45:14 GMT
+
+https://www.cbr.com/dnd-new-character-class-best-in-the-game/
+
+Dungeons & Dragons is introducing a new class to 5e in 2027, and it has the potential to be the most powerful option available to players.
+---------
+
+# Marvel Officially Confirmed Blade's X-Men Crossover That Fans Didn't Expect
+
+Comics, Marvel, Marvel Comics, Blade, X-Men, X-Men '97
+
+Tue, 04 Aug 2026 00:34:42 GMT
+
+https://www.cbr.com/marvel-officially-confirmed-unexpected-blade-x-men-crossover/
+
+Blade fans got terrible news in July, but fantastic news weeks later from Marvel.
+---------
+
+# 36 Years Later, Data's Greatest Star Trek Line Remains the Most Powerful Sci-Fi Quote Ever
+
+TV, Star Trek: The Next Generation, Sci-Fi, Paramount
+
+Tue, 04 Aug 2026 00:30:14 GMT
+
+https://www.cbr.com/star-trek-tng-the-offspring-data-best-line/
+
+Expressing the sentiment that prejudice is a weakness of humanity, Data’s heartfelt speech reflects Star Trek’s value of diversity.
+---------
+
+# Princess Mononoke's Official Live-Action Production Is Streaming for 1 Day Only
+
+Anime, Princess Mononoke, Studio Ghibli
+
+Tue, 04 Aug 2026 00:20:15 GMT
+
+https://www.cbr.com/princess-mononoke-super-kabuku-streaming-release-date/
+
+Princess Mononoke fans outside Japan have only a small window of opportunity to see the celebrated anime film come to life in live-action form.
+---------
+
+# Boromir Was The Lord of the Rings' Best Death Scene
+
+Movies, The Lord of the Rings
+
+Tue, 04 Aug 2026 00:15:14 GMT
+
+https://www.cbr.com/lord-of-the-rings-boromir-best-on-screen-death/
+
+As Peter Jackson's The Lord of the Rings trilogy approaches its 25th anniversary, one death scene remains among the best in cinema history.
+---------
+
+# 5 Weirdest Spells In Frieren's Collection
+
+Anime, Frieren: Beyond Journey's End, Fantasy
+
+Tue, 04 Aug 2026 00:15:14 GMT
+
+https://www.cbr.com/weirdest-spells-frieren-collection/
+
+Frieren’s spellbook holds more than powerful magic, with many of the weirdest spells she's collected often being the most heartwarming.
+---------
+
+# Fallout Officially Drops New Release Available to Preorder Now
+
+Games, Fallout
+
+Tue, 04 Aug 2026 00:10:15 GMT
+
+https://www.cbr.com/fallout-official-new-release-available-now/
+
+Fallout has officially returned with a new release every NCR Power Armor fan needs to preorder today.
+---------
+
+# ‘Ghosts’ Is Finally Becoming a Movie, but the Franchise Should Stop There
+
+TV Features, CBS, Ghosts, BBC, Series
+
+Tue, 04 Aug 2026 01:47:14 GMT
+
+https://collider.com/bbc-ghosts-movie-cbs-remake-should-not-follow/
+
+Why the BBC’s Ghosts movie feels earned, while the CBS adaptation should stay focused on what it already does best.
+---------
+
+# 3 Greatest Series to Binge on Prime Video This Week (August 3-7)
+
+TV, Prime Video, Scarpetta, Make It or Break It, Good Omens
+
+Tue, 04 Aug 2026 01:11:14 GMT
+
+https://collider.com/prime-video-shows-binge-august-3-2026/
+
+Good Omens, Scarpetta, and Make It or Break It make up our list of the best series to binge on Prime Video the week of August 3rd, 2026.
+---------
+
+# 'Game of Thrones’ Meets ‘Stargate’ in Prime Video’s 6-Season Epic Sci-Fi Series
+
+TV Features, The Expanse, Game Of Thrones, Stargate, Prime Video
+
+Tue, 04 Aug 2026 01:07:14 GMT
+
+https://collider.com/the-expanse-epic-sci-fi-game-of-thrones-stargate/
+
+Syfy and Prime Video's The Expanse has the worldbuilding and scale of Game of Thrones, the sci-fi richness of Stargate, and a lot to recommend.
+---------
+
+# 'The Odyssey' Demolishes Peter Jackson’s Biggest Lord of the Rings Hit at the Box Office
+
+Movie News, The Odyssey, Christopher Nolan, Box Office, The Lord of the Rings: The Return of the King
+
+Tue, 04 Aug 2026 01:00:15 GMT
+
+https://collider.com/the-odyssey-box-office-overtakes-peter-jackson-lord-of-the-rings-return-of-the-king/
+
+Christopher Nolan's The Odyssey has overtaken Peter Jackson's highest-grossing Lord of the Rings movie at the domestic box office. Find out more.
+---------
+
+# Henry Cavill’s ‘Warhammer 40,000’ Just Solved One of Its Biggest Adaptation Problems
+
+TV Features, Warhammer 40k, Henry Cavill, Mike Flanagan, Prime Video
+
+Tue, 04 Aug 2026 00:52:14 GMT
+
+https://collider.com/warhammer-40000-henry-cavill-mike-flanagan-prime-video-adapatation/
+
+Henry Cavill's long-gestating adaptation of Warhammer 40,000 scored a major win by signing on Mike Flanagan.
+---------
+
+# ‘Spider-Man: Brand New Day’ Officially Defeats Zack Snyder’s Biggest Superhero Movie
+
+Movie News, Spider-Man: Brand New Day, Box Office, Batman v Superman: Dawn of Justice, Zack Snyder
+
+Tue, 04 Aug 2026 00:00:14 GMT
+
+https://collider.com/spider-man-brand-new-day-box-office-beats-zack-snyder-batman-v-superman/
+
+Spider-Man: Brand New Day's massive box-office debut has put it ahead of Zack Snyder's highest-grossing superhero movie in just one weekend.
+---------
+
+# Apple TV's Epic Sci-Fi Series Succeeded by Ignoring the Books It's Based On
+
+TV Features, Foundation, Apple TV, Science Fiction, David S. Goyer
+
+Mon, 03 Aug 2026 23:52:07 GMT
+
+https://collider.com/foundation-apple-tv-book-changes-good/
+
+Apple TV's Foundation series adapts Isaac Asimov's seminal sci-fi books but makes significant changes to craft the perfect story for TV.
+---------
+
+# James Bond Reboot Producer Gives Promising Update on Casting Daniel Craig Replacement
+
+Movie News, james bond, James Bond
+
+Tue, 04 Aug 2026 01:13:21 GMT
+
+https://movieweb.com/james-bond-casting-timeline-confirmed/
+
+Following Daniel Craig's exit from the role of James Bond, a new update could bring optimism for when his replacement will be announced.
+---------
+
+# Taylor Sheridan's Highly Anticipated Action Thriller Movie's Release Date Delayed
+
+Movie News, F.A.S.T., Taylor Sheridan, Action
+
+Tue, 04 Aug 2026 00:52:30 GMT
+
+https://movieweb.com/taylor-sheridan-fast-release-date/
+
+Taylor Sheridan is gathering some trusted names from the 'Yellowstone' universe for his return to movies.
+---------
+
+# Stephen King's Underrated Sequel to '80s Cult-Classic Masterpiece Gets New Release
+
+Movie News, Creepshow 2, Stephen King
+
+Tue, 04 Aug 2026 00:40:41 GMT
+
+https://movieweb.com/stephen-king-creepshow-2-4k-blu-ray-release/
+
+The 1987 'Creepshow 2' is hitting 4K Ultra HD Blu-ray with a major technical upgrade.
+---------
+
+# Jon Bernthal & Liam Neeson's 130-Minute Action Thriller Epic Scores on Streaming
+
+Movie News, Jon Bernthal, Widows, Action, Crime, Thriller
+
+Tue, 04 Aug 2026 00:00:12 GMT
+
+https://movieweb.com/widows-streaming-bernthal-neeson-august-2026/
+
+The near-perfect crime thriller has found success before being cut from a popular platform.
+---------
+
 # How To Beat Giovanni In Pokémon GO (August 2026)
 
 Gaming, Pokemon GO, Pokemon, Live Service Games, Mobile
