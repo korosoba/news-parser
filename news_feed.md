@@ -1,3 +1,432 @@
+# You Can Get A Guaranteed Anvil Blueprint In Arc Raiders Right Now
+
+Gaming, ARC Raiders
+
+Tue, 04 Aug 2026 14:45:43 GMT
+
+https://screenrant.com/you-can-get-a-guaranteed-anvil-blueprint-in-arc-raiders-right-now/
+
+You can get a guaranteed blueprint for what is arguably Arc Raiders' best gun right now, if you have the materials to trade for it.
+---------
+
+# Netflix's Monster Season 4 Reveals First Look At Next Killer
+
+TV, Monster
+
+Tue, 04 Aug 2026 14:37:50 GMT
+
+https://screenrant.com/netflix-monster-the-lizzie-borden-story-first-images/
+
+Monster season 4 reveals the first look at Lizzie Borden, which enlists a host of familiar faces to deliver a new take on an infamous crime.
+---------
+
+# 10 Best Street-Level Superhero Movies To Watch After Spider-Man: Brand New Day
+
+Movies, Superhero, Spider-Man, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Tue, 04 Aug 2026 14:31:11 GMT
+
+https://screenrant.com/best-street-level-superhero-movies/
+
+After Spider-Man: Brand New Day, revisit 10 great street-level superhero movies where local stakes make the action feel personal.
+---------
+
+# Prime Video's Upcoming Sci-Fi Show Updates One Of The Greatest Cyberpunk Franchises
+
+TV, Masked Recs
+
+Tue, 04 Aug 2026 14:30:11 GMT
+
+https://screenrant.com/prime-video-robocop-series-cyberpunk-franchise-update/
+
+Prime Video is set to bring back an iconic cyberpunk franchise, but its blend of ultraviolent action and dark satire will be tough to replicate.
+---------
+
+# Beast of Reincarnation: Koo Skills & Rapport Guide
+
+Gaming, Beast of Reincarnation, Triple-A Games, PC
+
+Tue, 04 Aug 2026 14:27:20 GMT
+
+https://screenrant.com/beast-of-reincarnation-koo-skills-rapport-guide/
+
+Koo is a useful companion in Game Freak's Beast of Reincarnation. Here's how to make him even more useful by strengthening Emma's Rapport with him.
+---------
+
+# Godzilla Minus Zero Is Officially Releasing Early (But There’s A Catch)
+
+Movies, Godzilla Minus Zero, Godzilla
+
+Tue, 04 Aug 2026 14:27:00 GMT
+
+https://screenrant.com/godzilla-minus-zero-early-release-date-new-york-film-festival/
+
+The. highly-anticipated Godzilla Minus Zero is officially releasing earlier than its planned November dates, though it does come with a catch.
+---------
+
+# A Knight Of The Seven Kingdoms Season 2 Gets Huge New Return Update From Egg Actor After Delays
+
+TV, A Knight Of The Seven Kingdoms, Game of Thrones
+
+Tue, 04 Aug 2026 14:25:56 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-season-2-dexter-sol-ansell-filming-wrap/
+
+A Knight of the Seven Kingdoms season 2 gets a huge new return update from Egg actor Dexter Sol Ansell following a number of production delays.
+---------
+
+# Disney's Historical Crime Series Renewed For Third & Final Season
+
+TV, The Artful Dodger
+
+Tue, 04 Aug 2026 14:14:06 GMT
+
+https://screenrant.com/the-artful-dodger-season-3-renewal/
+
+Disney's historical crime series is officially ending, as a new report shows that the series has been renewed for a third and final season.
+---------
+
+# Naruto Makes Surprise Big-Screen Appearance Ahead Of Live-Action Adaptation
+
+Movies, Naruto
+
+Tue, 04 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/naruto-spider-man-brand-new-day-easter-egg-live-action-movie/
+
+Destin Daniel Cretton has included a Naruto poster as an Easter egg in Spider-Man: Brand New Day ahead of his live-action movie adaptation.
+---------
+
+# 10 Open-World Games That Genuinely Reward Exploration
+
+Gaming, The Legend of Zelda: Breath of the Wild, Triple-A Games, PC
+
+Tue, 04 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/open-world-games-that-genuinely-reward-exploration/
+
+Many open-world games boast massive environments to explore, but few titles truly incentivize players to venture out into their expansive maps.
+---------
+
+# Stephen Amell's '90s Reboot Scores Unexpected Global Streaming Home
+
+TV, Baywatch, Prime Video, Drama
+
+Tue, 04 Aug 2026 14:51:25 GMT
+
+https://www.cbr.com/baywatch-reboot-streaming-stephen-amell-prime-video/
+
+The Stephen Amell-led reboot of a 1990s TV classic has found its streaming home worldwide.
+---------
+
+# Fire Emblem's Greatest Line Is Still the Most Powerful Quote in JRPG History 7 Years Later
+
+Games, Fire Emblem, Fire Emblem: Three Houses
+
+Tue, 04 Aug 2026 14:30:15 GMT
+
+https://www.cbr.com/fire-emblem-three-houses-most-powerful-jrpg-quotes/
+
+Fire Emblem: Three Houses' best quote has only gotten better with age.
+---------
+
+# 5 Forgotten Golden Age Westerns That Are Still Masterpieces Today
+
+Movies, Western
+
+Tue, 04 Aug 2026 14:30:15 GMT
+
+https://www.cbr.com/perfect-golden-age-western-movies-list/
+
+The golden age of cinema produced some of the greatest timeless classics ever made, and the Western genre is no exception, including forgotten gems.
+---------
+
+# 10 Best Batman vs. Bane Comics: The Ultimate Reading Guide
+
+Comics, Batman, bane, DC Comics
+
+Tue, 04 Aug 2026 14:30:15 GMT
+
+https://www.cbr.com/best-batman-vs-bane-stories-every-fan-should-read/
+
+Batman and Bane have been at each other's throats since their first encounter in 1993, and these stories are must-read chapters in that feud.
+---------
+
+# 5 Strongest Anime Transformations in History, Ranked
+
+Anime, Dragon Ball Z, Gurren Lagann, Bleach
+
+Tue, 04 Aug 2026 14:15:15 GMT
+
+https://www.cbr.com/strongest-anime-transformations-ranked/
+
+The strongest transformations in anime naturally belong to some of the most powerful characters ever, like Goku and Simon.
+---------
+
+# Official Star Wars: A New Hope Re-Release Gives the Classic Film an Unexpected New Spin
+
+Comics, Star Wars, Star Wars: Episode IV - A New Hope
+
+Tue, 04 Aug 2026 14:00:15 GMT
+
+https://www.cbr.com/star-wars-a-new-hope-triple-take-graphic-novel/
+
+This is sort of the Star Wars story you are looking for.
+---------
+
+# Lord of the Rings' One Ring Officially Returns in New Fall 2026 Expansion Release
+
+Games, The Lord of the Rings
+
+Tue, 04 Aug 2026 13:15:15 GMT
+
+https://www.cbr.com/lord-of-the-rings-one-ring-returns-fall-2026-release/
+
+The One Ring to rule them all is coming back in what is being dubbed a new era for Lord of the Rings.
+---------
+
+# Masterpiece Anime Even Better Than Solo Leveling
+
+Anime, Solo Leveling, Frieren: Beyond Journey's End
+
+Tue, 04 Aug 2026 13:15:15 GMT
+
+https://www.cbr.com/masterpiece-anime-even-better-than-solo-leveling/
+
+Solo Leveling is one of the defining action anime of its generation, but these masterpieces set an even higher benchmark for many fans.
+---------
+
+# 10 Greatest Sci-Fi Books About First Contact
+
+Movies, Sci-Fi
+
+Tue, 04 Aug 2026 13:01:15 GMT
+
+https://www.cbr.com/best-first-contact-sci-fi-books-list/
+
+Ranging from peaceful visits to devastating wars, humanity's first encounters with extraterrestrial life is one of the most popular tropes in sci-fi
+---------
+
+# The Fate of 'The Artful Dodger' Has Officially Been Decided
+
+TV News, The Artful Dodger, Thomas Brodie Sangster, David Thewlis, Hulu
+
+Tue, 04 Aug 2026 14:51:54 GMT
+
+https://collider.com/the-artful-dodger-season-3-renewed-final-season/
+
+The fate of Hulu's quirky historical romance The Artful Dodger has officially been decided.
+---------
+
+# Star Wars Officially Recasts Luke and Leia in New 2026 Release
+
+Movie News, Star Wars, Star Wars: Episode IV - A New Hope, Matthew Rhys, Rhys Ifans
+
+Tue, 04 Aug 2026 14:47:46 GMT
+
+https://collider.com/star-wars-recast-welsh-dub/
+
+For the first time ever, Star Wars is set to officially release a Welsh dub of the beloved space opera with a brand-new cast.
+---------
+
+# James Bond Will Be Officially Announced This Year
+
+Movie News, James Bond, James Bond 25, Denis Villeneuve, Daniel Craig
+
+Tue, 04 Aug 2026 14:30:15 GMT
+
+https://collider.com/new-james-bond-movie-cast-2026-confirmed-amy-pascal/
+
+Sony's Amy Pascal reveals that the next James Bond will be cast by the end of the year as the search continues.
+---------
+
+# George R.R. Martin Officially Confirms Why 'The Winds of Winter' Is 10+ Years Delayed
+
+Books and Comics News, Game Of Thrones, George R.R. Martin, The Winds of Winter, Books
+
+Tue, 04 Aug 2026 14:30:15 GMT
+
+https://collider.com/george-rr-martin-mental-health-winds-of-winter-delay/
+
+Game of Thrones author George R.R. Martin has revealed the reason behind the delay of his long-awaited novel The Winds of Winter.
+---------
+
+# 60 Years Ago, The Beatles Released an Album That Changed Everything
+
+Music Features, The Beatles, Paul McCartney, John Lennon, George Harrison, Ringo Starr, Music, Rock
+
+Tue, 04 Aug 2026 14:30:15 GMT
+
+https://collider.com/60-years-ago-the-beatles-released-revolver/
+
+The Beatles changed music forever in 1966 with the release of Revolver.
+---------
+
+# RoboCop Officially Returns With New December 2026 Release
+
+Collectibles, RoboCop, Peter Weller, Joel Kinnaman
+
+Tue, 04 Aug 2026 14:01:20 GMT
+
+https://collider.com/robocop-helmet-replica-sideshow-release-date-december-2026/
+
+RoboCop officially returns with an epic new release this December as fan excitement grows for new series.
+---------
+
+# Anya Taylor-Joy's New Apple TV Crime Thriller Officially Debuts New Look [Exclusive]
+
+TV News, Lucky, Anya Taylor-Joy, Apple TV, Timothy Olyphant
+
+Tue, 04 Aug 2026 14:01:20 GMT
+
+https://collider.com/anya-taylor-joy-lucky-episode-5-sneak-peek/
+
+Anya Taylor-Joy stars in a new sneak peek at Lucky, the new crime thriller now streaming on Apple TV.
+---------
+
+# Taylor Sheridan Meets ‘Succession’ in Paramount+’s 2-Season Neo-Western Series
+
+TV Features, Landman, Succession, Paramount Plus, Taylor Sheridan
+
+Tue, 04 Aug 2026 12:37:15 GMT
+
+https://collider.com/landman-taylor-sheridan-neo-western-succession/
+
+Taylor Sheridan's Landman follows the drama of the Norris family in the oil fields of Texas, mixing the world of Succession with neo-Westerns.
+---------
+
+# Steve Carell Saved ‘The Office’ From a Season 2 Crisis That Could Have Ended the Show
+
+TV Features, The Office, Steve Carell, Greg Daniels, Peacock
+
+Tue, 04 Aug 2026 12:31:15 GMT
+
+https://collider.com/steve-carell-saved-the-office-from-a-season-2-crisis-that-could-have-ended-the-show/
+
+Greg Daniels credited Steve Carell with improvising a joke that saved The Office from cancellation in Season 2.
+---------
+
+# 10 Lingering Questions I Have After 'Spider-Man: Brand New Day'
+
+Movie, Spider-Man: Brand New Day, Spider-Man, MCU, Superhero
+
+Tue, 04 Aug 2026 12:27:15 GMT
+
+https://collider.com/spider-man-brand-new-day-lingering-questions/
+
+Spider-Man: Brand New Day, starring Tom Holland, marks a new era of Peter Parker's journey, which has also left us with questions for the franchise.
+---------
+
+# 'Spider-Man: Brand New Day' Screening Evacuated Due to "Rotten" Emergency
+
+Movie News, Spider-Man: Brand New Day
+
+Tue, 04 Aug 2026 14:33:03 GMT
+
+https://movieweb.com/spider-man-brand-new-day-screening-evacuated-rotten-smell/
+
+A screening of Spider-Man: Brand New Day was evacuated in Colombia after a mysterious rotten smell filled the auditorium.
+---------
+
+# Long-Awaited Disney+ Sequel Officially One of the Biggest Streaming Hits Ever
+
+Movie News, The Devil Wears Prada 2
+
+Tue, 04 Aug 2026 14:15:10 GMT
+
+https://movieweb.com/devil-wears-prada-2-disney-streaming-hit/
+
+'The Devil Wears Prada 2' has become one of the biggest streaming hits ever, drawing 15.2 million views after its streaming debut.
+---------
+
+# Michelle Pfeiffer Officially Confirms Retirement From Movies
+
+TV News, Margo's Got Money Troubles, Michelle Pfeiffer
+
+Tue, 04 Aug 2026 14:01:10 GMT
+
+https://movieweb.com/michelle-pfeiffer-retiring-from-movies/
+
+Michelle Pfeiffer explains why she's moving away from starring roles.
+---------
+
+# This Gangster Thriller With Five 'Sopranos' Stars Is Required Viewing
+
+Features, The Sopranos
+
+Tue, 04 Aug 2026 14:00:12 GMT
+
+https://movieweb.com/gotti-sopranos-actors-crime-movie/
+
+It's a perfect gangster crime movie, starring five actors who were part of the cast of HBO's prestige drama 'The Sopranos.'
+---------
+
+# 'Spider-Man: No Way Home' Star Mary Rivera Dies Aged 82
+
+Movie News, Spider-Man: No Way Home
+
+Tue, 04 Aug 2026 13:50:28 GMT
+
+https://movieweb.com/mary-rivera-dies-aged-82/
+
+Mary Rivera, who had a memorable moment in the MCU's 'Spider-Man: No Way Home,' passed away at the age of 82.
+---------
+
+# ‘Baywatch’ Reboot Officially Confirms Streaming Release Details
+
+TV News, Baywatch, Stephen Amell
+
+Tue, 04 Aug 2026 13:49:07 GMT
+
+https://movieweb.com/baywatch-reboot-prime-video-international-streaming-deal/
+
+Amazon has picked up the 'Baywatch' reboot for Prime Video across Europe, Canada, Latin America, and India, plus the full back catalogue.
+---------
+
+# Netflix's Original Must-See Sci-Fi Thriller Officially Releases in 3 Days
+
+Movie News, The Last House, Netflix, Sci-Fi, Thriller
+
+Tue, 04 Aug 2026 13:26:05 GMT
+
+https://movieweb.com/netflix-the-last-house-clip-sci-fi-thriller/
+
+The sci-fi thriller boasts award-winning leads and promises layers and twists you'll never see coming.
+---------
+
+# New Netflix 96-Minute Action Thriller Smash Hit Is Already Getting a Sequel
+
+Movie News, Netflix, Action, Thriller, Sniper: The Last Stand
+
+Tue, 04 Aug 2026 13:03:34 GMT
+
+https://movieweb.com/netflix-sniper-no-nation-part-2-sequel-happening/
+
+The action thriller, which itself is part of one of the longest-running franchises of all time, just made its Netflix debut last month.
+---------
+
+# Kevin Costner's 139-Minute Western Epic Shoots Onto New Streaming Home This Month
+
+Movie News, Kevin Costner, Open Range, Coming/Leaving Streaming, Western
+
+Tue, 04 Aug 2026 13:00:12 GMT
+
+https://movieweb.com/open-range-kevin-costner-western-stream-amc-august-2026/
+
+Costner's Western epic features one of the greatest gunfights of all time, placing it right up there with 'Tombstone' and 'Unforgiven.'
+---------
+
+# 'Spider-Man: Brand New Day's Gwen, Miles & Silk Teases Explained
+
+Features, Spider-Man: Brand New Day, Marvel Cinematic Universe, Tom Holland
+
+Tue, 04 Aug 2026 13:00:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-tom-holland-replacements/
+
+Tom Holland has been talking lately about who will replace Peter Parker in the MCU. 'Spider-Man: Brand New Day' has provided options. Read on.
+---------
+
 # Will Ferrell Officially Responds To Reported Elf Conflicts With Jon Favreau 23 Years Later
 
 Movies, Elf, Will Ferrell, Jon Favreau
