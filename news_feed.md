@@ -1,3 +1,267 @@
+# Tom Holland & Zendaya Saved This Crucial Spider-Man: Brand New Day Scene After Rewrite Request
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Tom Holland, Zendaya
+
+Tue, 04 Aug 2026 23:35:17 GMT
+
+https://screenrant.com/spider-man-brand-new-day-tom-holland-zendaya-saved-peter-parker-ned-scene/
+
+Spider-Man: Brand New Day star Jacob Batalon opened up about how Tom Holland and Zendaya saved one of the Marvel movie's most crucial scenes.
+---------
+
+# It's Official: Marvel's Post-Endgame Era Is Over
+
+Movies, Marvel Cinematic Universe, Avengers: Endgame, Avengers: Doomsday
+
+Tue, 04 Aug 2026 23:30:11 GMT
+
+https://screenrant.com/marvel-post-avengers-endgame-era-over/
+
+The inconsistency and controversy of the MCU's post-Endgame era is over, and the franchise is entering a new era of prosperity ahead of Doomsday
+---------
+
+# Christopher Nolan's The Odyssey Box Office Officially Sets R-Rated Movie History With Domestic Milestone
+
+Movies, The Odyssey, Box Office, Christopher Nolan
+
+Tue, 04 Aug 2026 23:27:21 GMT
+
+https://screenrant.com/christopher-nolan-the-odyssey-box-office-400-million-domestic-record-mpa/
+
+Christopher Nolan's The Odyssey officially reaches a rare feat for an R-rated movie after reaching a major milestone at the domestic box office.
+---------
+
+# Christopher Nolan's Original The Odyssey Trojan Horse Scene Design Revealed In New Book Release Images (Exclusive)
+
+Movies, The Odyssey
+
+Tue, 04 Aug 2026 23:10:11 GMT
+
+https://screenrant.com/christopher-nolan-the-odyssey-companion-book-trojan-horse-images/
+
+EXCLUSIVE: The Odyssey's original design for the Trojan Horse and other never-before-seen images are revealed in the movie's companion books.
+---------
+
+# Netflix's The Sandman Officially Returns In 2 Months With Exciting New Release
+
+TV, The Sandman
+
+Tue, 04 Aug 2026 23:08:05 GMT
+
+https://screenrant.com/netflix-the-sandman-complete-series-blu-ray-release-date/
+
+Netflix's The Sandman officially returns in two months with an exciting new release, a year after the second season was released in July 2025.
+---------
+
+# Paradise Season 3 Confirms Second Major Dead Character Returning In BTS Image
+
+TV, Paradise, Paradise - Season 3
+
+Tue, 04 Aug 2026 23:00:57 GMT
+
+https://screenrant.com/paradise-season-3-billy-jon-beavers-return-confirmed-image/
+
+Ahead of Paradise season 3, creator and showrunner Dan Fogelman has confirmed the return of another dead character in a behind-the-scenes image.
+---------
+
+# 10 Sitcoms From The '90s That Have Aged Like Fine Wine, Ranked
+
+Classic TV
+
+Tue, 04 Aug 2026 23:00:47 GMT
+
+https://screenrant.com/best-1990s-sitcoms-aged-like-fine-wine-ranked/
+
+Discover how these beloved '90s sitcoms have stood the test of time, with our ranked list of the best classic TV shows that have aged like fine wine.
+---------
+
+# After 51 Years, Powerhouse Hero Officially Joins X-Men for First Time
+
+Comics, X-Men
+
+Tue, 04 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/x-men-justice-join-first-time-avengers/
+
+A powerhouse mutant joins Storm's new X-Men team.
+---------
+
+# An Unplayable Metal Gear Solid Game Is Finally Returning After 18 Years
+
+Gaming, Metal Gear Solid, Metal Gear Solid 4: Guns of the Patriots, PC
+
+Tue, 04 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/metal-gear-solid-4-return-august-2026/
+
+After 18 years, this once unplayable Metal Gear Solid game is finally making a comeback, allowing fans and newcomers the chance to finally try it.
+---------
+
+# The Chronicles Of Narnia Meets Stranger Things In HBO's 3-Part Fantasy Series
+
+Streaming TV, Masked Recs
+
+Tue, 04 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/his-dark-materials-narnia-meets-stranger-things-hbo-fantasy/
+
+A 2019 HBO series took the core ideas of The Chronicles of Narnia and put a dark spin on them that Stranger Things fans are guaranteed to love.
+---------
+
+# Anya Taylor-Joy Explains Why Women Don't Method Act
+
+Movies
+
+Tue, 04 Aug 2026 23:56:06 GMT
+
+https://www.cbr.com/anya-taylor-joy-on-method-acting/
+
+Anya Taylor-Joy shares her thoughts on why only male actors are known for method acting.
+---------
+
+# Bloodborne Officially Reveals New Collection Available to Preorder Now
+
+Games, Bloodborne, PlayStation (Original), Video Games
+
+Tue, 04 Aug 2026 23:10:14 GMT
+
+https://www.cbr.com/bloodborne-official-reveal-collection-new-release-preorder-available-now/
+
+Those who wish to adorn themselves like the hunters of Yharnam will soon be able to do so, thanks to a newly revealed Bloodborne collection.
+---------
+
+# McDonald's Confirms a New Set of Pokémon 30th Anniversary Happy Meal Toys in August
+
+Anime, Pokemon, mcdonald's, toys, collectibles
+
+Tue, 04 Aug 2026 23:05:15 GMT
+
+https://www.cbr.com/mcdonalds-pokemon-30th-anniversary-happy-meal-toys-august/
+
+Several iconic Pokémon, including Pikachu and Eevee, unite for a special 30th anniversary collaboration with McDonald's this month.
+---------
+
+# 10 Movies To Watch If You Love Obsession
+
+Movies, Obsession, Horror, Backrooms
+
+Tue, 04 Aug 2026 23:00:15 GMT
+
+https://www.cbr.com/must-watch-movies-for-fans-of-obsession-list/
+
+Since becoming a box office phenomenon in 2026, Obsession is already a modern classic, and there are some great movies to watch if you love it.
+---------
+
+# Marvel Is Officially Back as ‘Spider-Man: Brand New Day’ Sets Record High Debut
+
+Movie News, Spider-Man: Brand New Day, MCU, Box Office, Marvel
+
+Tue, 04 Aug 2026 23:45:14 GMT
+
+https://collider.com/spider-man-brand-new-day-domestic-box-office-record-400-million/
+
+With $400 million in domestic box office revenue, Tom Holland's Spider-Man: Brand New Day has obliterated several records.
+---------
+
+# CBS Officially Confirms 'Marshals' Update That Fixes a Major Taylor Sheridan Problem
+
+TV Features, Marshals, Logan Marshall-Green, Luke Grimes, Yellowstone
+
+Tue, 04 Aug 2026 23:42:14 GMT
+
+https://collider.com/cbs-marshals-taylor-sheridan-problem-cal-cancer-story/
+
+Marshals Season 2 is delving into Cal's cancer diagnosis, offering a deeper character exploration than Yellowstone's cancer plot device.
+---------
+
+# The Best Detective Movie of 2026 Is Officially Taking Over Prime Video
+
+Movie News, The Sheep Detectives, Prime Video, Streaming, Hugh Jackman
+
+Tue, 04 Aug 2026 23:30:15 GMT
+
+https://collider.com/the-sheep-detectives-streaming-success-prime-video-august-2026/
+
+The best detective movie of 2026 continues to be one of the biggest films on Prime Video following its streaming debut. Read on for more.
+---------
+
+# One of Apple TV’s Greatest 5-Part Shows Is Doing Something No Other Streamer Can Match
+
+TV Features, Trying, Apple TV, Music, Series
+
+Tue, 04 Aug 2026 23:29:14 GMT
+
+https://collider.com/apple-tv-greatest-series-trying-original-soundtrack-music-every-season/
+
+Trying proves Apple TV has found a unique way to blend original music and storytelling across five heartfelt seasons.
+---------
+
+# 'Killing Eve' Meets 'The Fall' in Hulu's Twisted 8-Part Crime Thriller
+
+TV Features, Furious, Hulu, Crime, Thriller
+
+Tue, 04 Aug 2026 23:18:14 GMT
+
+https://collider.com/furious-hulu-crime-thriller-killing-eve-meets-the-fall/
+
+Hulu's twisted new serial killer thriller Furious shares elements of Killing Eve and The Fall with its captivating female characters and intense plot.
+---------
+
+# 10 Most Ambitious Albums of All Time
+
+Music Features, Pink Floyd, Quadrophenia, The Beatles, Daft Punk
+
+Tue, 04 Aug 2026 23:15:14 GMT
+
+https://collider.com/most-ambitious-albums-all-time-ranked/
+
+Classic albums like Songs in the Key of Life, Quadrophenia, and Since I Left You all rank among the biggest and most ambitious ever released.
+---------
+
+# Netflix Officially Finds Its New ‘Reacher’ Replacement Thanks to a ‘Dark Knight’ Star
+
+Movie News, Chief of Station, Aaron Eckhart, Olga Kurylenko, Netflix
+
+Tue, 04 Aug 2026 23:15:14 GMT
+
+https://collider.com/netflix-reacher-replacement-chief-of-station-streaming-success-august-2026/
+
+The Dark Knight star Aaron Eckhart's espionage thriller film Chief of Station is having a moment on Netflix, two years after its theatrical release.
+---------
+
+# Netflix's Official 'John Wick Replacement Is a Massive Smash Hit
+
+Movie News, Netflix, John Wick, Daredevil, Action
+
+Tue, 04 Aug 2026 23:00:15 GMT
+
+https://collider.com/netflix-the-debt-collector-action-thriller-streaming-success-august-2026/
+
+The new Netflix action movie The Debt Collector emerged as one of the most-watched titles on the platform in its debut week.
+---------
+
+# ‘Game of Thrones’ Gave Away ‘House of the Dragon’ Season 3’s Sunfyre Twist
+
+Features, House of the Dragon, Game Of Thrones, Game of Thrones
+
+Tue, 04 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/game-of-thrones-gave-away-house-of-the-dragon-sunfyre-twist/
+
+House of the Dragon Season 3, Episode 7 features a big twist involving Aegon's dragon, and Game of Thrones made it inevitable years ago.
+---------
+
+# Mark Wahlberg's "Bourne Meets The Matrix" Action Thriller Is Free Streaming Hit
+
+Movie News, Mark Wahlberg, Action, Thriller, Sci-Fi, Infinite
+
+Tue, 04 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/infinite-mark-wahlberg-free-stream-action-august-2026/
+
+The panned sci-fi action thriller scores big on free streaming.
+---------
+
 # Netflix's 15-Part Fantasy Series Passes 1 Billion Minutes Watched To Set Up Massive Finale
 
 TV, Masked Recs
