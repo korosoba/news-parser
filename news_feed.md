@@ -1,3 +1,179 @@
+# Netflix's 15-Part Fantasy Series Passes 1 Billion Minutes Watched To Set Up Massive Finale
+
+TV, Masked Recs
+
+Tue, 04 Aug 2026 22:33:48 GMT
+
+https://screenrant.com/netflix-avatar-the-last-airbender-billion-minutes-watched-august-2026/
+
+Netflix's 15-part fantasy series based on a major franchise has brought in over a billion minutes in 2026, and the hit show sets up its final chapter.
+---------
+
+# 10 Most Powerful Mutants In X-Men '97 Season 2, Ranked
+
+Streaming TV, X-Men '97, Marvel
+
+Tue, 04 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/most-powerful-mutants-x-men-97-season-2-ranked/
+
+X-Men '97 season 2 has featured various new mutants while making existing ones stronger, but these ten stand above the rest in terms of power.
+---------
+
+# Godzilla's New "Extinction-Level" Redesign Is His Best of All Time
+
+Comics, Godzilla
+
+Tue, 04 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/godzilla-redesign-horror-green/
+
+That green energy has a purpose.
+---------
+
+# X-Men Vs. Avengers Crossover Hopes Fueled Ahead Of The MCU’s Reboot
+
+Superheroes, X-Men, The Avengers, X-Men '97
+
+Tue, 04 Aug 2026 22:13:39 GMT
+
+https://screenrant.com/x-men-97-avengers-crossover-hopes-jake-castorena-response/
+
+Ahead of Avengers: Doomsday and the X-Men reboot's respective releases, there's some new hope for an onscreen Avengers vs. X-Men crossover.
+---------
+
+# 8 DC Roles Perfect For Alan Ritchson That Aren't Batman
+
+Comics, Alan Ritchson, DC Universe
+
+Tue, 04 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/dc-roles-perfect-alan-ritchson-not-batman/
+
+Reacher won't be Batman, but there are plenty of DC characters he would be perfect for
+---------
+
+# 10 Strongest Transformers from the G1 Era, Ranked
+
+Anime, Transformers
+
+Tue, 04 Aug 2026 22:15:15 GMT
+
+https://www.cbr.com/strongest-g1-transformers-ranked/
+
+Right from the beginning of Transformers, it was clear which Autobots and Decepticons were the strongest.
+---------
+
+# 10 Controversial Far Side Comics That Sparked Debate, Ranked
+
+Comics, The Far Side
+
+Tue, 04 Aug 2026 22:00:15 GMT
+
+https://www.cbr.com/most-controversial-the-far-side-comics-of-all-time/
+
+The Far Side always spawned some controversy, but many of the strips happened to be so controversial that they earned widespread attention.
+---------
+
+# Henry Cavill's Warhammer is Star Wars Meets H.P. Lovecraft
+
+Movies, Warhammer 40K, Henry Cavill, H.P. Lovecraft
+
+Tue, 04 Aug 2026 22:00:15 GMT
+
+https://www.cbr.com/henry-cavill-warhammer-movie-star-wars-meets-hp-lovecraft/
+
+Folks who would be down to watch a freaky crossover of Star Wars and H.P. Lovecraft should keep an eye out for this much-anticipated Prime Video show.
+---------
+
+# Battlestar Galactica Officially Returns With New Release in 1 Week
+
+TV, Battlestar Galactica, Sci-Fi
+
+Tue, 04 Aug 2026 21:50:11 GMT
+
+https://www.cbr.com/battlestar-galactica-complete-series-blu-ray-2026/
+
+There's a new Battlstar Galactica release for fans to look out for.
+---------
+
+# This Brilliant 2-Season HBO Sci-Fi Series Is the Perfect Weekend Binge
+
+TV Features, Avenue 5, HBO, Hugh Laurie, Sci-Fi
+
+Tue, 04 Aug 2026 22:46:14 GMT
+
+https://collider.com/hbo-best-sci-fi-series-avenue-5-hugh-laurie/
+
+Hugh Laurie delivers one of his funniest TV performances in this criminally underseen sci-fi comedy about a luxury spaceship disaster.
+---------
+
+# Aerosmith Needed This Album to Restart Their Careers
+
+Music Features, Music, Aerosmith
+
+Tue, 04 Aug 2026 22:41:14 GMT
+
+https://collider.com/aerosmith-album-restarted-their-career-permanent-vacation/
+
+Aerosmith were on the fast track to obscurity in a decade where they should've thrived until 'Permanent Vacation' put them back in the saddle.
+---------
+
+# Anne Hathaway's 'Odyssey' Performance Deserves More Than a Best Supporting Actress Nomination
+
+Movie Features, The Odyssey, Anne Hathaway, Christopher Nolan, Universal Pictures
+
+Tue, 04 Aug 2026 22:21:14 GMT
+
+https://collider.com/anne-hathaway-the-odyssey-best-actress-academy-award-nomination/
+
+Though some say her screen time in The Odyssey only merits a Best Supporting Actress nomination, Anne Hathaway deserves a Best Actress Oscar nod.
+---------
+
+# 10 Most Influential Adventure Books of All Time
+
+Books and Comics, Books, Adventure, The Count of Monte Cristo, The Hobbit
+
+Tue, 04 Aug 2026 21:55:15 GMT
+
+https://collider.com/most-influential-adventure-books-all-time-ranked/
+
+Must-read, all-time literary classics like Treasure Island, Robinson Crusoe, and Moby Dick are among the most influential adventure books ever.
+---------
+
+# Jake Gyllenhaal's Long-Awaited Action Thriller Adaptation Confirms Major Setback
+
+Movie News, Jake Gyllenhaal, The Division
+
+Tue, 04 Aug 2026 22:24:04 GMT
+
+https://movieweb.com/jake-gyllenhaal-the-division-movie-delayed/
+
+A new Tom Clancy adaptation, starring Jake Gyllenhaal, got its first major update in a few years, but it was not the most positive update.
+---------
+
+# Amazon Scores Big With New Taylor Sheridan 3-Part Action Thriller
+
+TV News, Lioness, Prime Video, Hot on Streaming, Action, Taylor Sheridan
+
+Tue, 04 Aug 2026 22:00:12 GMT
+
+https://movieweb.com/lioness-taylor-sheridan-action-stream-prime-august-2026/
+
+Taylor Sheridan's biggest and best new action thriller is dominating on multiple streaming platforms.
+---------
+
+# Marvel's Big Sadie Sink Mystery Confirms a Question I've Had Since 'Iron Man'
+
+Features, Spider-Man: Brand New Day
+
+Tue, 04 Aug 2026 22:00:12 GMT
+
+https://movieweb.com/marvel-spider-man-sadie-sink-introduces-mutants/
+
+Marvel knows how to keep a secret, but the cat is finally out of the bag after 'Brand New Day' landed in theaters last week.
+---------
+
 # We're Not Joking, One Batman Movie Has Aged Better Than The Dark Knight
 
 Movies, DC
