@@ -1,3 +1,245 @@
+# We're Not Joking, One Batman Movie Has Aged Better Than The Dark Knight
+
+Movies, DC
+
+Tue, 04 Aug 2026 21:45:11 GMT
+
+https://screenrant.com/batman-movie-aged-better-than-dark-knight-mask-of-the-phantasm/
+
+The Dark Knight is considered by many as the best Batman movie – but there’s another film featuring the Caped Crusader that has aged better.
+---------
+
+# Former Doctor Who Showrunner Explains The Sci-Fi Show's Competitive Tender Process After Sudden Overhaul
+
+TV, Doctor Who
+
+Tue, 04 Aug 2026 21:28:38 GMT
+
+https://screenrant.com/doctor-who-tender-process-explained-chris-chibnall/
+
+The future of Doctor Who is up in the air ahead of its competitive tender process, and a former showrunner is now speaking out about the situation.
+---------
+
+# Apple TV Starts A New Sci-Fi Era With Near-Perfect Streaming Update
+
+TV, Apple TV
+
+Tue, 04 Aug 2026 21:20:11 GMT
+
+https://screenrant.com/apple-tv-sci-fi-series-streaming-charts-lead/
+
+Apple TV's new streaming chart update stars the era of Sci-Fi shows, and it happens ahead of the release of major genre series like Neuromancer.
+---------
+
+# KPop Demon Hunters 2 Is Already A Win For Netflix
+
+Movies, KPop Demon Hunters
+
+Tue, 04 Aug 2026 21:15:11 GMT
+
+https://screenrant.com/kpop-demon-hunters-2-already-win-netflix/
+
+A sequel to Netflix's KPop Demon Hunters is currently in development, and it's already a huge win for Netflix despite the challenges it's facing.
+---------
+
+# Jake Gyllenhaal & Netflix's Adaptation Of Tom Clancy's The Division Franchise Gets First Status Update In 4 Years
+
+Movies, The Division, Tom Clancy, Jake Gyllenhaal
+
+Tue, 04 Aug 2026 21:02:02 GMT
+
+https://screenrant.com/tom-clancy-the-division-movie-jake-gyllenhaal-netflix-status-update-mccormick/
+
+Exclusive: Producer Kelly McCormick offers the first status update on Jake Gyllenhaal's adaptation of a hit Tom Clancy franchise at Netflix.
+---------
+
+# Why Primate, 2026's Horror Perfect For Stephen King Fans, Has Become A U.S. Streaming Hit
+
+Movies, Primate
+
+Tue, 04 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/primate-movie-prime-video-streaming-success-explained/
+
+Though it has largely been overshadowed by other hit horror films from this year, Primate is finding new success on streaming.
+---------
+
+# Pacific Rim Meets Godzilla In Netflix's 10/10 Sci-Fi Movie
+
+Movies, Masked Recs
+
+Tue, 04 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/ultraman-rising-pacific-rim-meets-godzilla-netflix/
+
+A hugely underappreciated 2024 Netflix movie perfectly links modern kaiju cinema to the genre's charming 20th-century roots and revives a sci-fi icon.
+---------
+
+# 5 Survival Games On Steam That Are Totally Free To Play
+
+Gaming, Steam, Once Human
+
+Tue, 04 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/steam-survival-games-free-to-play/
+
+Steam is full of great games from all genres, but if you're a survival fan, then there are plenty of brilliant options at no cost.
+---------
+
+# Why The Walking Dead's New Season Has 100% On RT, But A 48% Audience Score
+
+Streaming TV, The Walking Dead: Dead City, The Walking Dead
+
+Tue, 04 Aug 2026 20:45:11 GMT
+
+https://screenrant.com/the-walking-dead-dead-city-season-3-rotten-tomatoes-score-explained/
+
+The surprising gap between critics' 100% approval and viewers' 48% score for The Walking Dead: Dead City season 3, explored & analyzed.
+---------
+
+# Say Goodbye To Star Wars As Apple TV Has Found The Better Space Opera
+
+TV, Masked Recs
+
+Tue, 04 Aug 2026 20:32:11 GMT
+
+https://screenrant.com/foundation-best-space-opera-better-than-star-wars/
+
+With an incredibly acclaimed 3-part space opera that can rival even The Expanse, Apple TV has outdone the Star Wars franchise's live-action shows.
+---------
+
+# Agatha Christie's Poirot Is Required Viewing for Mystery Fans
+
+TV, Poirot, Mystery, Crime
+
+Tue, 04 Aug 2026 21:30:15 GMT
+
+https://www.cbr.com/agatha-christie-poirot-essential-mystery-show/
+
+Agatha Christie is the undisputed Queen of Mystery, and the best Christie adaptation, Poirot, is a must-watch for any mystery fan.
+---------
+
+# 18 Years Later, The Matrix Directors' $94M Anime Adaptation Is Streaming for Free on YouTube
+
+Movies, Speed Racer, YouTube, Action
+
+Tue, 04 Aug 2026 21:04:02 GMT
+
+https://www.cbr.com/speed-racer-movie-streaming-free-youtube-august-2026/
+
+The cult-favorite anime adaptation is streaming free on YouTube.
+---------
+
+# 5 Sci-Fi Books That Are 10/10, No Notes
+
+Movies, Sci-Fi
+
+Tue, 04 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/perfect-sci-fi-books-list/
+
+The sci-fi genre has been a literary staple for decades, and there are some books that are still absolutely perfect.
+---------
+
+# After 42 Years, It’s Officially the End of an Era as Disney Abandons Multiple Cable Channels
+
+TV, Disney
+
+Tue, 04 Aug 2026 20:55:11 GMT
+
+https://www.cbr.com/disney-ends-stake-a-e/
+
+In the midst of several mergers, Disney is announcing a new split.
+---------
+
+# Apple TV's 'Unflimable' Sci-Fi Show Officially Broke Isaac Asimov's Formula
+
+TV, Apple TV, Foundation, Sci-Fi
+
+Tue, 04 Aug 2026 20:30:15 GMT
+
+https://www.cbr.com/apple-tv-foundation-canon-book-change/
+
+Apple TV's biggest sci-fi series changes a major aspect of Isaac Asimov's original book, but it makes it work.
+---------
+
+# 10 Greatest Fantasy Anime With A Historical Setting
+
+Anime, Attack on Titan, Berserk, Inuyasha
+
+Tue, 04 Aug 2026 20:15:15 GMT
+
+https://www.cbr.com/greatest-fantasy-anime-with-historical-settings/
+
+From feudal Japan to medieval kingdoms, these fantasy anime sprinkle magic and mythology into their historical settings.
+---------
+
+# 10 Most Fun Comedies of All Time
+
+Movie, Back to the Future, Anchorman: The Legend of Ron Burgundy, Ferris Bueller's Day Off, Tropic Thunder
+
+Tue, 04 Aug 2026 21:42:14 GMT
+
+https://collider.com/most-fun-comedy-movies-all-time-ranked/
+
+If you're after particularly fun comedies, it's worth watching the likes of Tropic Thunder, Back to the Future, and Ferris Bueller's Day Off.
+---------
+
+# Netflix’s 4-Part Cyberpunk Masterpiece Is Setting the Bar for Apple TV’s 'Neuromancer'
+
+TV Features, Love, Death & Robots, David Fincher, Tim Miller, Netflix
+
+Tue, 04 Aug 2026 21:36:14 GMT
+
+https://collider.com/love-death-and-robots-netflix-sci-fi-masterpiece-neuromancer/
+
+Love, Death & Robots paved the way for Apple TV's upcoming Neuromancer, featuring diverse animation styles and genre-blending stories.
+---------
+
+# 6 Most Perfect Thrillers Released Since 2000
+
+Movie, Thriller, Zodiac, No Country for Old Men, Prisoners
+
+Tue, 04 Aug 2026 21:23:14 GMT
+
+https://collider.com/most-perfect-thrillers-since-2000-ranked/
+
+From Nightcrawler to Gone Girl, these flawless thrillers prove the 2000s delivered some of the genre’s finest work.
+---------
+
+# 'The Odyssey' Star's New Monster Thriller Officially Revealed in Tense First Look
+
+Movie News, Logan Marshall-Green
+
+Tue, 04 Aug 2026 21:17:15 GMT
+
+https://movieweb.com/beware-boiuna-logan-marshall-green-first-look/
+
+Logan Marshall-Green stars in 'Beware Boiúna,' a survival horror film about a medical team facing an ancient Amazonian predator.
+---------
+
+# 10 Greatest Thriller Series You Can Stream on Netflix
+
+TV Lists, Thriller, Netflix, The Night Agent
+
+Tue, 04 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/best-netflix-thriller-tv-shows/
+
+Netflix has many entertaining thriller TV series, and these are the best ones on the streaming platform that you can binge watch.
+---------
+
+# 'Spider-Man: Brand New Day' Director Promises to Resolve a Long-Standing MCU Mystery
+
+Movie News, Shang-Chi and the Legend of the Ten Rings, Destin Cretton, Marvel Cinematic Universe
+
+Tue, 04 Aug 2026 20:24:51 GMT
+
+https://movieweb.com/shang-chi-post-credits-cliffhanger-resolved-mcu/
+
+'Spider-Man: Brand New Day' director Destin Daniel Cretton says he plans to resolve the mystery introduced in the 'Shang-Chi' mid-credits scene.
+---------
+
 # Spider-Man 5 Will Address Brand New Day's Ending Theory With Peter & Ned
 
 Movies, Spider-Man, Spider-Man: Brand New Day, Marvel Cinematic Universe
