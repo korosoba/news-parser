@@ -1,3 +1,245 @@
+# Fallout: Sole Survivor Officially Released
+
+Gaming, Fallout, Triple-A Games
+
+Tue, 04 Aug 2026 04:30:11 GMT
+
+https://screenrant.com/fallout-sole-survivor-statue-release/
+
+If you're a Fallout fan, you may want to check out Fallout: Sole Survivor, while you wait for the TV show to return and Fallout 5 to arrive.
+---------
+
+# Disney's Hit Crime Thriller Is Officially Ending With Season 2 Release Date & Trailer Revealed
+
+TV, Disney+, Made in Korea
+
+Tue, 04 Aug 2026 03:55:52 GMT
+
+https://screenrant.com/disney-made-in-korea-season-2-release-date-trailer/
+
+Disney+'s hit crime thriller is officially ending with season 2, as the trailer reveals a huge time jump and the release date for the final episodes.
+---------
+
+# 68 Years Later, Iconic Superman Villain Achieves His Ultimate Form
+
+Comics, Superman
+
+Tue, 04 Aug 2026 03:30:11 GMT
+
+https://screenrant.com/superman-brainiac-upgrade-ultimate-form/
+
+Superman's most brilliant long-running adversary is moving up not just in power levels, but dark ambitions for the multiverse and all known futures.
+---------
+
+# I Saw Spider-Man: Brand New Day In SCREENX (Was It Worth It?)
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Tue, 04 Aug 2026 03:03:45 GMT
+
+https://screenrant.com/i-saw-spider-man-brand-new-day-in-screen-x-was-it-worth-it/
+
+Spider-Man: Brand New Day is the first film in history to have been shot specifically with ScreenX cameras, but was the experience actually worth it?
+---------
+
+# Toonami's Greatest '90s Sci-Fi Mecha & 5 More Classic Anime Finally Return on October 27
+
+Anime, The Big O, toonami
+
+Tue, 04 Aug 2026 03:59:15 GMT
+
+https://www.cbr.com/toonami-the-big-o-discotek-media-release-date/
+
+One of the greatest Toonami anime of all time and numerous other classics are getting some major re-releases in just a matter of months.
+---------
+
+# MGM+'s Perfect Lost Replacement Celebrates Massive Streaming Milestone as Fans Await More Episodes
+
+TV, From
+
+Tue, 04 Aug 2026 03:53:52 GMT
+
+https://www.cbr.com/from-sci-fi-horror-mgm-plus-success-august-2026/
+
+The series continues to be a streaming hit amid the wait for the final season.
+---------
+
+# 5 Greatest PS2 RPGs (& How to Play Them Now)
+
+Games, ps2, PlayStation 2, RPG
+
+Tue, 04 Aug 2026 03:45:14 GMT
+
+https://www.cbr.com/greatest-ps2-rpgs-how-to-play-them-now/
+
+The PlayStation 2 is over twenty-five years old, but its legacy lives on through its best RPGs, which can still be played on modern platforms.
+---------
+
+# Timothy Olyphant & Titus Welliver's Rare HBO Team-Up Is Already a Modern Classic
+
+TV, hbo, Deadwood, Western
+
+Tue, 04 Aug 2026 03:30:14 GMT
+
+https://www.cbr.com/deadwood-timothy-olyphant-titus-welliver-rare-hbo-team-up-modern-classic/
+
+Long before their iconic roles in Bosch and Justified, Timothy Olyphant and Titus Welliver starred in a modern TV classic.
+---------
+
+# 5 Open-World RPGs Where Reputation Actually Changes the Game
+
+Games, Gaming, open world, Role Playing Game
+
+Tue, 04 Aug 2026 03:15:14 GMT
+
+https://www.cbr.com/5-open-world-rpgs-where-reputation-actually-changes-the-game/
+
+Some games require players to carefully build their reputation before they can influence changes across the world they're immersed in.
+---------
+
+# Naruto Officially Confirms Major 2027 Plans for the Anime's 25th Anniversary
+
+Anime, Naruto
+
+Tue, 04 Aug 2026 03:05:15 GMT
+
+https://www.cbr.com/naruto-anime-25th-anniversary-tv-tokyo-confirm/
+
+TV Tokyo has confirmed new projects for Naruto as the anime's 25th anniversary approaches.
+---------
+
+# James Gunn's Superman Spinoff Series Officially Finds Its Female Lead
+
+TV, Superman, DCU
+
+Tue, 04 Aug 2026 02:58:41 GMT
+
+https://www.cbr.com/mary-holland-superman-jimmy-olsen-spinoff/
+
+The Superman spinoff lands another lead star.
+---------
+
+# Anime Protagonists Better Written Than Sung Jinwoo
+
+Anime, Solo Leveling, Attack On Titan
+
+Tue, 04 Aug 2026 02:45:14 GMT
+
+https://www.cbr.com/anime-protagonists-better-written-than-jinwoo/
+
+Sung Jinwoo is one of modern anime's most popular protagonists, but these heroes are even more compelling from a writing perspective.
+---------
+
+# The 10 Most Catastrophic Mistakes in the Harry Potter Franchise, Ranked
+
+Movies, Harry Potter
+
+Tue, 04 Aug 2026 02:45:14 GMT
+
+https://www.cbr.com/biggest-mistakes-in-harry-potter-franchise-list/
+
+The Harry Potter franchise is beloved the world over, but some of the best characters made the biggest mistakes and it cost them dearly.
+---------
+
+# New James Bond Casting Betting Odds Reveal Clear Frontrunner Topping the List
+
+Movies, James Bond
+
+Tue, 04 Aug 2026 02:40:41 GMT
+
+https://www.cbr.com/james-bond-casting-betting-odds-updated-callum-turner/
+
+The updated betting odds for the next James Bond have been updated with one name ranking firmly in the No. 1 spot.
+---------
+
+# 8 R-Rated War Movies That Can Be Called Masterpieces
+
+Movie, War, Apocalypse Now, Saving Private Ryan, Platoon
+
+Tue, 04 Aug 2026 04:05:14 GMT
+
+https://collider.com/r-rated-war-movies-masterpieces/
+
+From Black Hawk Down to Saving Private Ryan, these war classics redefine combat cinema through unforgettable stories.
+---------
+
+# 7 Modern Detective Books That Are Perfect From the First Page to the Last
+
+Books and Comics, Mystery, Books, Stephen King, Jo Nesbø
+
+Tue, 04 Aug 2026 03:55:14 GMT
+
+https://collider.com/modern-detective-books-perfect-first-page-to-last/
+
+From Stephen King's The Outsider to Anthony Horowitz's Magpie Murders, these modern detective books are truly excellent from first page to last.
+---------
+
+# ‘Twin Peaks’ Officially Returns With Its Original Cast in a Big Way
+
+TV Features, Twin Peaks, David Lynch, Kyle MacLachlan, Mark Frost
+
+Tue, 04 Aug 2026 03:50:15 GMT
+
+https://collider.com/twin-peaks-original-cast-david-lynch-birthday-celebration-january-2027-los-angeles/
+
+The upcoming David Lynch birthday celebration reunites the original Twin Peaks cast, highlighting why the iconic series continues to thrive.
+---------
+
+# 'True Detective’ Meets ‘Supernatural’ in This 33-Year-Old Classic Sci-Fi Thriller Series
+
+TV Features, True Detective, Supernatural, The X-Files, Fox
+
+Tue, 04 Aug 2026 03:16:14 GMT
+
+https://collider.com/the-x-files-sci-fi-thriller-true-detective-supernatural/
+
+The X-Files created some of the best moments in TV history, perfect for fans of shows like True Detective and Supernatural.
+---------
+
+# This Is the Greatest Epic Fantasy Book of the Last 10 Years
+
+Books and Comics, Books, Fantasy, The Will of the Many, Thriller
+
+Tue, 04 Aug 2026 03:11:14 GMT
+
+https://collider.com/the-will-of-the-many-best-fantasy-book-last-10-years/
+
+James Islington's The Will of the Many is a genuine epic with fascinating worldbuilding that easily ranks as the best fantasy book of the last decade.
+---------
+
+# 60 Years Later, Mary Jane Is Finally Stepping Out of Spider-Man’s Shadow
+
+Books and Comics News, Spider-Man, Marvel Comics, Spider-Man: Brand New Day, Superhero
+
+Tue, 04 Aug 2026 02:00:24 GMT
+
+https://collider.com/mary-jane-face-it-tiger-issue-1-spider-man-marvel-comics-preview-images/
+
+Marvel Comics is releasing a 60th anniversary comic centered on Mary Jane, and an early preview reimagines Spider-Man's love interest in many ways.
+---------
+
+# 7 Ongoing Prime Video Shows Perfect for Binge-Watching
+
+TV Lists, Prime Video, Reacher, Fallout
+
+Tue, 04 Aug 2026 02:45:26 GMT
+
+https://movieweb.com/prime-video-ongoing-series-binge-watch/
+
+Prime Video is one of the best streaming services for original content, and these ongoing series are ideal binge-watching material.
+---------
+
+# 8 Best James Stewart Western Movies That Are Still 10/10 Masterpieces
+
+Movie Lists, James Stewart, The Man Who Shot Liberty Valance, Western, Winchester '73
+
+Tue, 04 Aug 2026 02:00:22 GMT
+
+https://movieweb.com/james-stewart-best-western-movies/
+
+James Stewart is one of the most celebrated actors of the Western genre, and these are his eight best movies that still hold up.
+---------
+
 # 5 Anime Remakes and Reboots Coming in 2026 and Beyond
 
 Anime
