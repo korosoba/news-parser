@@ -1,3 +1,333 @@
+# 4 Of Supernatural's Highest-Rated Episodes All Share One Thing In Common
+
+Classic TV, Supernatural
+
+Wed, 05 Aug 2026 21:30:11 GMT
+
+https://screenrant.com/supernatural-highest-rated-episodes-common-trait/
+
+Supernatural covered a lot of ground across its 300+ episodes, so it's curious that four cited among the show's best all follow a similar premise.
+---------
+
+# Buddy Interview with Casper Kelly, Keegan-Michael Key & Delaney Quinn at SDCC 2026
+
+Comic-Con, Buddy, Keegan-Michael Key, San Diego Comic-Con
+
+Wed, 05 Aug 2026 21:07:56 GMT
+
+https://screenrant.com/video/buddy-movie-casper-kelly-keegan-michael-key-delaney-quinn-interview-sdcc-2026/
+
+Buddy director Casper Kelly and stars Keegan-Michael Key and Delaney Quinn discuss how Dora the Explorer wound up as an unexpected influence for the horror film, and what makes the world of the story feel so lived-in.
+---------
+
+# Marvel Studios Officially Addresses Kang's Return In 2026 Release After Jonathan Majors Firing
+
+TV, Marvel Cinematic Universe
+
+Wed, 05 Aug 2026 21:05:28 GMT
+
+https://screenrant.com/xmen-97-season-2-kang-variant-jake-castorena-explained/
+
+EXCLUSIVE: After Kang's surprise return in 2026, Marvel Studios finally addresses the comic book villain coming back in one of their biggest projects.
+---------
+
+# GRRM Officially Confirmed Winds Of Winter Will Tell 1 Major White Walker Story GoT Failed To
+
+Books, The Winds of Winter, A Song of Ice and Fire, Game of Thrones
+
+Wed, 05 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/the-winds-of-winter-book-white-walkers-home-story-game-of-thrones/
+
+The Winds of Winter will make the White Walkers a bigger part of the story, and George R.R. Martin confirmed a major difference from Game of Thrones.
+---------
+
+# The Best Movie Reboot Franchise Of The 2010s Started 15 Years Ago (& Its Future Is Confusing)
+
+Movies, Rise of the Planet of the Apes, Masked Recs
+
+Wed, 05 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/rise-planet-of-the-apes-best-movie-reboot-franchise-future/
+
+It has been a decade and a half since one of the best movie reboot series of all time debuted, but its future is not as clear-cut as it seems.
+---------
+
+# 2026 TV Premiere Dates: A Complete Guide For New & Returning Shows
+
+Streaming TV
+
+Wed, 05 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/2026-tv-premiere-dates-calendar/
+
+Your comprehensive guide to 2026's confirmed TV release dates for programming across streaming, cable channels, and broadcast networks.
+---------
+
+# Prime Video's New $683 Million Sci-Fi Movie Racks Up 860 Million Minutes Watched To Succeed In Hard Task
+
+Movies, Masked Recs
+
+Wed, 05 Aug 2026 20:53:55 GMT
+
+https://screenrant.com/prime-video-project-hail-mary-million-minutes-watched-august-2026/
+
+Prime Video's new Sci-Fi movie is racking up streaming numbers, making it even more of a hit after a huge $683 million global box office run.
+---------
+
+# What Happened To Maja Radanovic After My 600-Lb Life Season 7
+
+Reality TV, My 600 Lb Life
+
+Wed, 05 Aug 2026 20:30:12 GMT
+
+https://screenrant.com/maja-radanovic-600-lb-life-season-7-update/
+
+My 600-lb Life season 7 celeb Maja Radanovic has been evolving since her show appearance. Her journey after reality TV fame has been fascinating.
+---------
+
+# 26 Years Later, Vegeta's Best Dragon Ball Z Line Is Still One Of The Coldest Quotes In Anime History
+
+Classic TV, Dragon Ball Z
+
+Wed, 05 Aug 2026 20:30:11 GMT
+
+https://screenrant.com/vegeta-best-dragon-ball-z-quote-coldest-anime-history/
+
+Five simple words perfectly capture why Vegeta isn't just one of the greatest Dragon Ball characters, but the best rival of any Shonen anime.
+---------
+
+# Taylor Sheridan's TV Formula Is Being Rewritten On Paramount+
+
+TV, Taylor Sheridan, Paramount Plus
+
+Wed, 05 Aug 2026 20:24:24 GMT
+
+https://screenrant.com/taylor-sheridan-paramount-plus-tv-shows-female-focus/
+
+Executives have a vision for how they want to expand and evolve Paramount+ after Taylor Sheridan leaves for NBCUniversal in a couple of years.
+---------
+
+# Game of Thrones: Lord of Light Officially Releases August 7
+
+Games, Game Of Thrones
+
+Wed, 05 Aug 2026 21:35:14 GMT
+
+https://www.cbr.com/game-of-thrones-lord-of-light-official-release-august-7/
+
+Game of Thrones fans have a brand-new release to look forward to, and they don't have to wait long before Lord of Light makes its debut.
+---------
+
+# Star Trek: The Motion Picture is the Key to Rebooting the Franchise
+
+Movies, Star Trek: The Motion Picture
+
+Wed, 05 Aug 2026 21:30:14 GMT
+
+https://www.cbr.com/star-trek-the-motion-picture-blueprint-for-movie-reboot/
+
+From the multiple failed scripts to running from its TV legacy, Paramount should look to Star Trek: The Motion Picture to save the franchise.
+---------
+
+# Will Smith and Tommy Lee Jones’ 98-Minute Sci-Fi Team-Up Surges Into the Streaming Charts
+
+Movies, Men in Black
+
+Wed, 05 Aug 2026 21:18:00 GMT
+
+https://www.cbr.com/men-in-black-sci-fi-hulu-success-august-2026/
+
+Amid talks of a reboot, Will Smith and Tommy Lee Jones' epic sci-fi movie becomes a streaming hit.
+---------
+
+# 10 Forgotten Sega Genesis Games That Have Aged Like Fine Wine
+
+Games, sega, Video Games, Sonic the Hedgehog
+
+Wed, 05 Aug 2026 21:15:15 GMT
+
+https://www.cbr.com/best-forgotten-sega-genesis-games-aged-like-fine-wine/
+
+Old as the classic Sega Genesis games may be, the best among them have aged perfectly.
+---------
+
+# 10 Greatest Adventure Movie Franchises of All Time, Ranked
+
+Movies, Adventure, Indiana Jones, The Mummy
+
+Wed, 05 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/best-adventure-movie-franchises-list/
+
+Adventure has come in a variety of forms in cinema, but some stories have ascended to the greatest franchises of all time.
+---------
+
+# The Blair Witch Project Officially Returns With New VHS Release Ahead of Reboot
+
+Movies, The Blair Witch Project
+
+Wed, 05 Aug 2026 20:35:28 GMT
+
+https://www.cbr.com/the-blair-witch-project-new-bluray-vhs-release/
+
+The Blair Witch Project gets an all-new VHS release along with a new limited edition Blu-ray set.
+---------
+
+# Glen Powell Stole the Show in Netflix's 92% RT Jurassic Park Series
+
+TV, Jurassic World: Camp Cretaceous, Glen Powell, Netflix
+
+Wed, 05 Aug 2026 20:30:15 GMT
+
+https://www.cbr.com/glen-powell-jurassic-world-camp-cretaceous/
+
+Glen Powell has become a household name for many, but few know how he was giving a great performance in a beloved Jurassic Park show.
+---------
+
+# The 10 Most Perfect Movies of the Past 10 Years, Ranked
+
+Movies, Sci-Fi, Dune: Part Two, The Holdovers
+
+Wed, 05 Aug 2026 20:30:15 GMT
+
+https://www.cbr.com/best-movies-past-10-years-ranked-list/
+
+The last decade of cinema has given audiences some of the strongest movies of the 21st century, from sci-fi adventure to heartfelt drama.
+---------
+
+# 5 Perfect Netflix Anime Series the Algorithm Buried
+
+Anime, Netflix, Hi Score Girl, BNA: Brand New Animal
+
+Wed, 05 Aug 2026 20:15:14 GMT
+
+https://www.cbr.com/perfect-netflix-anime-series-no-one-remembers/
+
+Netflix is the home for many essential anime hits, but there are also some worthwhile hidden gems that have been lost in the streamer's library.
+---------
+
+# Taylor Sheridan's 121-Minute Action Thriller Masterpiece Is Soaring on HBO Max
+
+Movies, Sicario
+
+Wed, 05 Aug 2026 20:03:42 GMT
+
+https://www.cbr.com/sicario-action-thriller-streaming-success-august-2026/
+
+The Taylor Sheridan thriller that started a franchise is surging on the streaming charts.
+---------
+
+# 8 Upcoming Sci-Fi Shows, Ranked by Anticipation
+
+TV, Sci-Fi, VisionQuest, Neuromancer, Lanterns
+
+Wed, 05 Aug 2026 21:41:14 GMT
+
+https://collider.com/upcoming-sci-fi-shows-ranked-anticipation/
+
+From Lanterns to Neuromancer, we've ranked the biggest upcoming sci-fi shows by just how hyped we are to watch them.
+---------
+
+# 10 Bleakest Book Endings of All Time
+
+Books and Comics, Books, Nineteen Eighty-Four, The Road
+
+Wed, 05 Aug 2026 21:29:14 GMT
+
+https://collider.com/bleakest-book-endings-all-time-ranked/
+
+Books like A Little Life and The Road feature devastating endings to conclude their already tragic stories, leaving readers with much to think about.
+---------
+
+# 10 Most Disturbing Horror Books of All Time
+
+Books and Comics, Horror, American Psycho, It, Let the Right One In
+
+Wed, 05 Aug 2026 20:54:14 GMT
+
+https://collider.com/most-disturbing-horror-books-all-time-ranked/
+
+Horror-heavy books like American Psycho, Blood Meridian, and Tender Is the Flesh can all count themselves among the most disturbing ever published.
+---------
+
+# George Harrison's Guitar Work Turned One '80s Track Into a Masterpiece
+
+Music Features, George Harrison, The Go-Go's, The Beatles, Music, Rock
+
+Wed, 05 Aug 2026 20:34:14 GMT
+
+https://collider.com/george-harrison-belinda-carlisle-leave-a-light-on-song/
+
+George Harrison and Belinda Carlisle elevated Leave a Light On into a pop masterpiece, featuring Harrison's iconic slide guitar solo.
+---------
+
+# 7 Horror Books More Terrifying Than Any Scary Movie
+
+Books and Comics, Horror, It, The Terror, Uzumaki: Spiral into Horror
+
+Wed, 05 Aug 2026 20:28:14 GMT
+
+https://collider.com/horror-books-scarier-than-movies/
+
+Pet Sematary, Uzumaki, The Terror, I’m Thinking of Ending Things, and more make up our list of horror books that are scarier than any movie.
+---------
+
+# This 31-Year-Old Teen Movie Masterpiece Is Officially Streaming for Free
+
+Movie Features, Clueless, Alicia Silverstone, Paul Rudd, Brittany Murphy
+
+Wed, 05 Aug 2026 20:22:15 GMT
+
+https://collider.com/clueless-alicia-silverstone-streaming-free-tubi-netflix-august-2026/
+
+1995's Clueless, one of the all-time greatest teen movies, is streaming free on Tubi and is also available on Netflix.
+---------
+
+# HBO Max Officially Revives ‘Gilmore Girls’ for New Release
+
+TV News, Gilmore Girls, Lauren Graham, Gilmore Girls: A Year in the Life, HBO Max
+
+Wed, 05 Aug 2026 20:11:39 GMT
+
+https://collider.com/hbo-max-gilmore-girls-documentary-lauren-graham-return/
+
+After nearly 2 decades, Gilmore Girls is officially returning with a brand new project, with Lauren Graham confirmed to return. Read on for more.
+---------
+
+# Stephen King Supernatural Reboot Ending Gets Major Change by Mike Flanagan
+
+TV News, Carrie, Stephen King, Mike Flanagan
+
+Wed, 05 Aug 2026 21:33:40 GMT
+
+https://movieweb.com/stephen-king-carrie-reboot-ending-changed-mike-flanagan/
+
+The creator of the new Prime Video series 'Carrie' teases a major shift.
+---------
+
+# Paramount+ Reportedly Abandoning Taylor Sheridan's Western Action Thrillers
+
+TV News, Paramount Plus, Taylor Sheridan
+
+Wed, 05 Aug 2026 20:28:42 GMT
+
+https://movieweb.com/paramount-plus-taylor-sheridan-strategy-change/
+
+As the seminal storyteller's time at the streamer comes to an end, the platform is set to change gears and genres.
+---------
+
+# 'Super Troopers 3' Confirms Broken Lizard Still Brings Some Laughs | Review
+
+Movie Reviews, Super Troopers 3
+
+Wed, 05 Aug 2026 20:20:12 GMT
+
+https://movieweb.com/super-troopers-3-review/
+
+Broken Lizard reunites for raunchy, slapstick shenanigans with ethnic humor and low-brow fun.
+---------
+
 # Fabergé Spider Brooch: Yes, Pawn Stars' Rick Really Paid More Than Asking For The Item (What Was It Worth?)
 
 Reality TV, Pawn Stars
