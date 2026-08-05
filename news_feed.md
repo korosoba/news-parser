@@ -1,3 +1,201 @@
+# The Mandalorian Officially Returns To Disney+ With A New Special Next Month
+
+Streaming TV, The Mandalorian, Star Wars
+
+Wed, 05 Aug 2026 23:30:11 GMT
+
+https://screenrant.com/the-mandalorian-lego-special-disney/
+
+Despite The Mandalorian and Grogu's poor box office performance, Din Djarin and Grogu are returning for a new Star Wars special in September.
+---------
+
+# 5 Beast Of Reincarnation Enemies That’d Make Great Pokémon
+
+Gaming, Pokemon, Beast of Reincarnation, Triple-A Games, PC
+
+Wed, 05 Aug 2026 23:30:11 GMT
+
+https://screenrant.com/beast-of-reincarnation-enemies-as-pokemon/
+
+Beast of Reincarnation is Game Freak's latest non-Pokémon game, but the epic RPG has several enemy designs that would be right at home in Pokémon.
+---------
+
+# Jurassic Park Meets Resident Evil In New Horror You Can Play Free Now
+
+Gaming, Steam, Triple-A Games
+
+Wed, 05 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/jurassic-park-meets-resident-evil-in-new-horror-you-can-play-free-now/
+
+If you've been longing for a new Dino Crisis, this might be the next best thing, and the best part is that you can play it right now.
+---------
+
+# What Masters Of The Universe Redeeming Its $114M Box Office Bomb On Streaming Means For A Sequel
+
+Movies, Masters of the Universe
+
+Wed, 05 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/masters-of-the-universe-box-office-streaming-sequel/
+
+Masters of the Universe may have underperformed in theaters, but it is a hit on Prime Video, with stats suggesting fans are enjoying it at home.
+---------
+
+# Netflix's New Supernatural Drama, Spooky In Love, Is Already Getting A Remake No One Expected
+
+TV, Netflix, Webtoon, Masked Recs
+
+Wed, 05 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/spooky-in-love-netflix-webtoon-remake-august/
+
+As Netflix's Spooky in Love prepares to head into the second half of its run, the series' new remake has just made its global debut as well.
+---------
+
+# David Boreanaz’s 7-Part Military Thriller Is Back as 1 of the World's Most-Watched Shows
+
+TV, SEAL Team, Paramount Plus, Thriller
+
+Wed, 05 Aug 2026 23:30:15 GMT
+
+https://www.cbr.com/seal-team-thriller-paramount-plus-success-august-2026/
+
+Paramount+'s military drama, SEAL Team, is one of the most-watched shows in the world.
+---------
+
+# Steam Officially Makes 9/10 Action RPG Free to Keep Until August 9
+
+Games, Steam
+
+Wed, 05 Aug 2026 23:25:14 GMT
+
+https://www.cbr.com/steam-official-action-rpg-free-to-keep-august-2026/
+
+An action RPG with extremely positive reviews is officially free to play and keep forever until August 9.
+---------
+
+# New Studio Ghibli Movie Finally Makes Howl's Castle Move Again
+
+Anime, Studio Ghibli, Howl's Moving Castle
+
+Wed, 05 Aug 2026 23:05:14 GMT
+
+https://www.cbr.com/studio-ghibli-night-in-the-valley-of-witches-howls-moving-castle-inspire/
+
+Studio Ghibli's latest production revisits one of Hayao Miyazaki's most popular anime films, bringing its titular castle to life on screen once again.
+---------
+
+# Tom Hiddleston’s 3-Part Loki Follow-Up on Disney+ Is an Instant Global Streaming Hit
+
+TV, Pompeii: Out of Time with Tom Hiddleston, Disney+, Loki
+
+Wed, 05 Aug 2026 23:00:14 GMT
+
+https://www.cbr.com/pompeii-out-of-time-with-tom-hiddleston-success-disney-plus-august-2026/
+
+Pompeii: Out of Time with Tom Hiddleston is the No. 2 Disney+ show in the world.
+---------
+
+# 10 Movies To Watch If You Love Star Trek
+
+Movies, Star Trek, Sci-Fi, Star Wars
+
+Wed, 05 Aug 2026 23:00:14 GMT
+
+https://www.cbr.com/must-watch-movies-for-star-trek-fans-list/
+
+Since its 1966 debut, Gene Roddenberry's Star Trek has defined the best of sci-fi, and there are some movies perfect if you love it.
+---------
+
+# Taylor Sheridan’s Most Successful Western Since ‘Yellowstone’ Officially Returns in 2026
+
+TV News, The Madison, Taylor Sheridan, Michelle Pfieffer, Kurt Russell
+
+Wed, 05 Aug 2026 23:45:14 GMT
+
+https://collider.com/taylor-sheridan-the-madison-blu-ray-release-date-october-2026/
+
+Taylor Sheridan's biggest TV launch, The Madison, is set for a new release this fall ahead of its next two seasons.
+---------
+
+# Forget ‘The Odyssey,’ Anne Hathaway’s First Big Movie of 2026 Is Officially a Streaming Sensation
+
+Movie News, Anne Hathaway, The Devil Wears Prada 2, Hulu, Disney+
+
+Wed, 05 Aug 2026 23:30:14 GMT
+
+https://collider.com/anne-hathaway-the-devil-wears-prada-2-streaming-success-disney-hulu-august-2026/
+
+Anne Hathaway's first major hit of 2026, The Devil Wears Prada 2, is still breaking records months after its release.
+---------
+
+# 'House of the Dragon' Officially Confirms Season 4's Darkest Storyline
+
+TV Features, House of the Dragon, Game Of Thrones, HBO Max, George R.R. Martin
+
+Wed, 05 Aug 2026 23:24:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-helaena-visions-dragonpit/
+
+Helaena Targaryen's prophetic dream in House of the Dragon Season 3 points to several storylines from Fire & Blood that should have fans worried.
+---------
+
+# 2026's Most Surprising Box Office Hit Needs To Start a Brand-New Movie Trend
+
+Movie Features, Hadestown: The Musical, Reeve Carney, Broadway, Bleecker Street
+
+Wed, 05 Aug 2026 23:21:14 GMT
+
+https://collider.com/hadestown-stage-film-highest-grossing-broadway-capture-all-time-record/
+
+The stage-to-screen live capture of Broadway hit Hadestown has shattered records previously set by Hamilton, and should be the start of a new trend.
+---------
+
+# Prime Video’s Spider-Man Series Surges on Streaming Following ‘Brand New Day’
+
+TV News, Spider-Noir, Spider-Man, Prime Video, Nicolas Cage
+
+Wed, 05 Aug 2026 23:15:14 GMT
+
+https://collider.com/nicolas-cage-spider-noir-streaming-success-prime-video-august-2026/
+
+Spider-Noir continues to impress Spider-Man fans as Nicolas Cage's acclaimed Prime Video series keeps making waves months after its release.
+---------
+
+# Star Wars Is Officially Coming to Dungeons & Dragons in 2027
+
+Gaming News, Star Wars, Dungeons and Dragons, PlayStation 5, World of Warcraft
+
+Wed, 05 Aug 2026 23:00:14 GMT
+
+https://collider.com/star-wars-dungeons-and-dragons-crossover-release-date-2027/
+
+Lucasfilm and Wizards of the Coast confirm an official Star Wars expansion for Dungeons & Dragons, set in the Rebellion era and launching in 2027.
+---------
+
+# Disney Finally Responds to 'Star Wars' and 'Moana' Flopping at the Box Office
+
+Movie News, The Mandalorian and Grogu, Moana, Disney
+
+Wed, 05 Aug 2026 23:28:42 GMT
+
+https://movieweb.com/disney-response-mandalorian-and-grogu-moana-box-office-flop/
+
+Despite 'The Mandalorian and Grogu' and 'Moana' disappointing at the box office, both movies have been profitable for Disney.
+---------
+
+# 'The Batman's Matt Reeves' Long-Awaited Adaptation Canceled by Streamer
+
+TV News, Matt Reeves, Bonfire of the Vanities, Apple TV
+
+Wed, 05 Aug 2026 23:25:08 GMT
+
+https://movieweb.com/matt-reeves-bonfire-of-the-vanities-adaptation-apple-tv-canceled/
+
+'The Batman' director Matt Reeves' new streaming project has now hit a major snag after behind-the-scenes issues delayed its development.
+---------
+
 # James Bond Creator’s Lost Letter & Rare Image Reveal the First-Ever 007 Design
 
 Movies, James Bond, Bond 26
