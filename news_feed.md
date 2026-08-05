@@ -1,3 +1,388 @@
+# 9 Most Iconic Linus Quotes In Peanuts History
+
+Comics, Peanuts
+
+Wed, 05 Aug 2026 02:15:54 GMT
+
+https://screenrant.com/best-linus-quotes-peanuts-history/
+
+Peanuts' Linus van Pelt is a child with the philosophical depth of an old man who has delivered countless memorable quotes since his debut in 1952.
+---------
+
+# 10 Episodes Of Grey's Anatomy That Aged Like Milk
+
+Network TV, Grey's Anatomy
+
+Wed, 05 Aug 2026 02:15:12 GMT
+
+https://screenrant.com/greys-anatomy-episodes-aged-like-milk/
+
+Grey's Anatomy has been an ABC staple for over two decades, but not every episode in the acclaimed medical drama has stood the test of time.
+---------
+
+# Deadpool Is Changing Genres For New Multiversal Marvel Series
+
+Comics, Deadpool, Webtoon
+
+Wed, 05 Aug 2026 02:00:21 GMT
+
+https://screenrant.com/deadpool-new-genre-isekai-marvel-webtoon/
+
+The Merc with a Mouth is going vertical in a brand-new adventure.
+---------
+
+# Prime Video's The Peripheral Deserved At Least 2 More Seasons
+
+TV, The Peripheral
+
+Wed, 05 Aug 2026 01:32:08 GMT
+
+https://screenrant.com/the-peripheral-deserved-two-more-seasons/
+
+Prime Video's sci-fi show was cyberpunk's answer to HBO's Westworld, and the smart, subversive series deserved another season before its cancellation.
+---------
+
+# 7 Best Open-World Games Based On Real-Life Cities
+
+Gaming, open world, Triple-A Games
+
+Wed, 05 Aug 2026 01:30:11 GMT
+
+https://screenrant.com/best-open-world-games-real-life-cities/
+
+Recreating a real city on a one-to-one scale in a video games is effectively impossible, but these games sure give it an impressive effort.
+---------
+
+# 10 Most Popular Cartoons From The '80s
+
+Classic TV
+
+Wed, 05 Aug 2026 01:15:11 GMT
+
+https://screenrant.com/most-popular-80s-cartoons/
+
+The 1980s saw many great and highly influential cartoons that are now considered classics, with some of them getting reboots many years later.
+---------
+
+# DC Confirms Batman's Biggest Tragedy Is His Daughter, Not His Parents
+
+Comics, Batman
+
+Wed, 05 Aug 2026 01:01:08 GMT
+
+https://screenrant.com/batman-daughter-helena-tragedy/
+
+The Black Mercy strikes again as Batman's investigation of an alien crime exposes old wounds once more.
+---------
+
+# Stranger Things Meets The Division In New Looter Shooter You Can Play Free Now
+
+Gaming, Stranger Things, The Division, PC, Steam
+
+Wed, 05 Aug 2026 01:00:11 GMT
+
+https://screenrant.com/no-such-place-free-demo-stranger-things-meets-division/
+
+The Division's exceptional gameplay meets Stranger Things' surreal and supernatural universe in a new looter shooter that's available right now.
+---------
+
+# Brand New Day Redefines The MCU’s Spider-Man (And It’s What I’ve Always Wanted)
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Wed, 05 Aug 2026 00:30:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-redefines-mcu-spider-man/
+
+There are a lot of big "firsts" that happen in Spider-Man: Brand Day, but one of its most important is something I've been dying to see for 10 years.
+---------
+
+# 8 Classic Western TV Shows Nobody Remembers
+
+Classic TV, Western
+
+Wed, 05 Aug 2026 00:30:11 GMT
+
+https://screenrant.com/classic-western-tv-shows-forgotten/
+
+The neo-Western revival has brought attention to a genre that had fallen out of favor, but some forgotten classic Westerns should also be remembered.
+---------
+
+# 5 Marvel Movies Better Than The Comics They Are Based On
+
+Movies, Marvel
+
+Wed, 05 Aug 2026 02:00:24 GMT
+
+https://www.cbr.com/marvel-movies-better-than-comics-list/
+
+These Marvel Cinematic Multiverse outings took inspiration from the source material and then advanced the quality of those narratives.
+---------
+
+# 5 Best One Piece TCG Booster Expansions, Ranked
+
+Games, One Piece, TCG, Tabletop
+
+Wed, 05 Aug 2026 02:00:24 GMT
+
+https://www.cbr.com/best-one-piece-tcg-booster-expansions-ranked/
+
+Newcomers and veterans of the One Piece TCG alike can find high-value chased cards and tournament monsters in these five booster expansion packs.
+---------
+
+# 7 SNES Games That Are 10/10, No Notes
+
+Games, Nintendo, The Legend of Zelda, Final Fantasy
+
+Wed, 05 Aug 2026 01:45:15 GMT
+
+https://www.cbr.com/snes-games-flawless-start-to-finish/
+
+The SNES broke down barriers and changed console gaming forever, and that's largely thanks to these seven undisputed masterpiece titles.
+---------
+
+# Xbox Game Pass Officially Adds 10 New Games This August
+
+Games, Xbox Series X (1)
+
+Wed, 05 Aug 2026 01:26:41 GMT
+
+https://www.cbr.com/xbox-game-pass-additions-august-2026/
+
+Four Xbox Game Pass games have also been confirmed to be leaving this month.
+---------
+
+# 5 Most Useless Anime Superpowers, Ranked
+
+Anime, One Piece, My Hero Academia
+
+Wed, 05 Aug 2026 01:25:15 GMT
+
+https://www.cbr.com/most-useless-anime-superpowers-ranked/
+
+There have been countless cool superpowers used throughout all of anime history, but these embarrassing standouts are the most useless of them all.
+---------
+
+# Nintendo Rage-Baits Fire Emblem Fans With New Hero Reveal
+
+Games, Fire Emblem, Nintendo
+
+Wed, 05 Aug 2026 00:45:15 GMT
+
+https://www.cbr.com/fire-emblem-fortunes-weave-protagonist-controversy-debate/
+
+Fire Emblem: Fortune's Weave is taking the series' gameplay new places, but it's where the franchise isn't willing to change that has fans concerned.
+---------
+
+# Kate Winslet’s Lord of the Rings Role is the Most Important Since Éowyn
+
+Movies, The Lord of the Rings: The Hunt for Gollum
+
+Wed, 05 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/lotr-hunt-for-gollum-kate-winslet-goldberry-casting/
+
+Kate Winslet is officially joining the Lord of the Rings franchise in a secret role that could change J.R.R. Tolkien's fantasy world forever.
+---------
+
+# Kevin Costner's Yellowstone Replacement Is Even Better Than John Dutton
+
+TV, Dutton Ranch, Paramount, Yellowstone
+
+Wed, 05 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/yellowstone-dutton-ranch-beulah-jackson-john-dutton-replacement/
+
+Taylor Sheridan's neo-Western powerhouse franchise has officially replaced Kevin Costner's leading John Dutton character on Paramount's continuation.
+---------
+
+# Crunchyroll Reverses Course on Hunter x Hunter
+
+Anime, Crunchyroll, Hunter x Hunter, Hunter X Hunter
+
+Wed, 05 Aug 2026 00:20:15 GMT
+
+https://www.cbr.com/crunchyroll-hunter-x-hunter-anime-return/
+
+After four months off the platform, Hunter x Hunter's complete 2011 anime has quietly returned to Crunchyroll with no official announcement.
+---------
+
+# 8 Netflix Anime Series That Are Perfect Masterpieces
+
+Anime, Netflix, Delicious in Dungeon, Komi Can't Communicate, Cyberpunk: Edgerunners
+
+Wed, 05 Aug 2026 00:15:14 GMT
+
+https://www.cbr.com/netflix-anime-series-that-are-perfect-masterpieces/
+
+Netflix is a force to be reckoned with in the anime industry, with Pluto, Cyberpunk: Edgerunners, and Violet Evergarden being some of its best titles.
+---------
+
+# Spider-Man Officially Defeats Tom Hardy’s ‘Venom’ in Colossal Box Office Debut
+
+Movie News, Spider-Man: Brand New Day, Venom, Tom Hardy, Tom Holland
+
+Wed, 05 Aug 2026 02:15:15 GMT
+
+https://collider.com/spider-man-brand-new-day-overtakes-tom-hardy-venom-box-office-1-billion/
+
+Thanks to a record-breaking box-office debut, Spider-Man: Brand New Day has already overtaken Tom Hardy's superhero blockbuster.
+---------
+
+# HBO’s 10/10 Crime Masterpiece Recruits a Bosch Universe Star for Season 2
+
+TV News, HBO, Ballard, Task, Crime
+
+Wed, 05 Aug 2026 02:00:24 GMT
+
+https://collider.com/hbo-task-season-2-cast-ballard-kevin-dunn/
+
+Kevin Dunn, the star of Prime Video's hit Bosch spin-off Ballard, is officially joining the cast of HBO's best crime series.
+---------
+
+# Christopher Nolan’s Sci-Fi Spy Thriller Is Officially Taking Over HBO Max
+
+Movie News, Tenet, Christopher Nolan, The Odyssey, Robert Pattinson
+
+Wed, 05 Aug 2026 01:45:14 GMT
+
+https://collider.com/christopher-nolan-sci-fi-spy-thriller-tenet-streaming-success-hbo-max-august-2026/
+
+Christopher Nolan's $200 million sci-fi experiment is gaining ground on streaming while The Odyssey dominates the box office.
+---------
+
+# This Beloved Fantasy Series Has a Protagonist Unlike Anything Else in the Genre
+
+Books and Comics, Books, The Hobbit: The Desolation of Smaug, House of the Dragon, Fantasy
+
+Wed, 05 Aug 2026 01:43:14 GMT
+
+https://collider.com/age-of-fire-fantasy-book-series-dragon-protagonist/
+
+The Age of Fire book series tells its sprawling fantasy story from the point of view of a dragon, a bold and unique approach to the beloved genre.
+---------
+
+# 6 Must-Read Books Behind TV's Biggest Prestige Dramas
+
+Books and Comics, Books, Dark Matter, Big Little Lies, The Leftovers
+
+Wed, 05 Aug 2026 01:42:14 GMT
+
+https://collider.com/book-adaptation-tv-show-prestige-drama-series/
+
+From Big Little Lies to Dark Matter, the expansive worlds of these prestige dramas began as books and exceeded expectations.
+---------
+
+# ‘Spider-Man: Brand New Day’ Has Almost Doubled the Opening Day Record of ‘Star Wars: The Force Awakens’
+
+Movie News, Spider-Man: Brand New Day, Box Office, Avengers: Endgame, Spider-Man: No Way Home
+
+Wed, 05 Aug 2026 01:30:15 GMT
+
+https://collider.com/spider-man-brand-new-day-opening-weekend-box-office-record-mcu/
+
+With Spider-Man: Brand New Day, the Marvel Cinematic Universe officially owns four of the five biggest opening-weekend hauls in box office history.
+---------
+
+# ‘Game of Thrones’ Most Mysterious Character Officially Returns This Month
+
+Gaming News, Game Of Thrones, Zynga, House of the Dragon, George R.R. Martin
+
+Wed, 05 Aug 2026 01:15:15 GMT
+
+https://collider.com/game-of-thrones-conquest-lord-of-light-event-august-2026/
+
+One of Game of Thrones' most mysterious entities is officially returning for a new release this August. Read on for more details.
+---------
+
+# Netflix Lands Another Sydney Sweeney Project Ahead of Live-Action 'Gundam'
+
+Movie News, Sydney Sweeney, Netflix, Gundam, Immaculate
+
+Wed, 05 Aug 2026 01:00:14 GMT
+
+https://collider.com/sydney-sweeney-immaculate-streaming-netflix-august-13/
+
+One of Sydney Sweeney's few horror movies, Immaculate, is making its way onto Netflix starting next week. Read on for more.
+---------
+
+# 10 Sci-Fi Movies That Will Make You See the World Differently
+
+Movie, Sci-Fi, Arrival, WALL-E, The Matrix
+
+Wed, 05 Aug 2026 00:55:15 GMT
+
+https://collider.com/sci-fi-movies-make-you-see-world-differently/
+
+From 2001: A Space Odyssey to The Matrix, Arrival to WALL-E, these sci-fi films made us look at the world around us differently.
+---------
+
+# Hulu Officially Finds the Perfect ‘Outlander’ Replacement
+
+TV News, Hulu, Fantasy, Romance, Outlander
+
+Wed, 05 Aug 2026 00:45:14 GMT
+
+https://collider.com/hulu-the-poison-daughter-fantasy-romance-adaptation/
+
+Hulu may have found the perfect answer to Outlander with an adaptation of the recent fantasy novel, The Poison Daughter. Read on for more.
+---------
+
+# 7 Masterpiece Crime Thriller Shows You Can Stream For Free
+
+TV Lists, The Fall, Killing Eve, Crime
+
+Wed, 05 Aug 2026 02:00:22 GMT
+
+https://movieweb.com/crime-thriller-tv-shows-stream-free/
+
+These crime thriller TV shows will appeal to viewers looking for a great binge-watch and they can be streamed for free.
+---------
+
+# Taylor Sheridan's Best Action Thriller Returns With Near-Perfect Audience RT Score
+
+TV News, The Lioness, Taylor Sheridan
+
+Wed, 05 Aug 2026 00:31:58 GMT
+
+https://movieweb.com/lioness-taylor-sheridan-season-3-audience-score-rotten-tomatoes/
+
+One of Taylor Sheridan's most exciting new series is ready to return, as its Rotten Tomatoes score is now live.
+---------
+
+# Beloved Cult-Classic '80s Sci-Fi Getting New Release After 42 Years
+
+Movie News, Night of the Comet
+
+Wed, 05 Aug 2026 00:11:24 GMT
+
+https://movieweb.com/night-of-the-comet-4k-steelbook-blu-ray-release/
+
+1984's 'Night of the Comet' is getting an all-new 4K Ultra HD Blu-ray SteelBook.
+---------
+
+# 'Spider-Man: Brand New Day' Has Overtaken Major Superhero Finale at the Box Office
+
+Movie News, Spider-Man: Brand New Day, Spider-Man 3
+
+Wed, 05 Aug 2026 00:00:12 GMT
+
+https://movieweb.com/brand-new-day-beats-spider-man-3-box-office/
+
+'Brand New Day' just toppled a definitive live-action version of Spider-Man.
+---------
+
+# The 10 Greatest War Movie Masterpieces of the 20th Century, Ranked
+
+Movie Lists, Saving Private Ryan, Three Kings, Apocalypse Now, Full Metal Jacket, War
+
+Wed, 05 Aug 2026 00:00:12 GMT
+
+https://movieweb.com/great-war-movie-masterpieces-20th-century/
+
+These 20th-century war movies stand the test of time, with powerful themes, great performances, and enduring appeal.
+---------
+
 # Tom Holland & Zendaya Saved This Crucial Spider-Man: Brand New Day Scene After Rewrite Request
 
 Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Tom Holland, Zendaya
