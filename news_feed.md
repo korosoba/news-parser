@@ -1,3 +1,256 @@
+# God Of War: Atreus Officially Announced
+
+Gaming, God of War, God of War: Ragnarok, God of War Laufey
+
+Wed, 05 Aug 2026 05:00:11 GMT
+
+https://screenrant.com/god-of-war-atreus-statue-unveiled/
+
+Fans of the God of War series can soon pre-order an official 1/3 scale statue of Atreus, featuring his likeness from God of War Ragnarök.
+---------
+
+# Pokémon Scarlet & Violet Free Download Available For 24 Hours
+
+Gaming, Pokemon Scarlet and Violet, Pokemon
+
+Wed, 05 Aug 2026 04:30:11 GMT
+
+https://screenrant.com/pokemon-scarlet-violet-free-download-24-hours-august-6/
+
+Pokémon Scarlet and Violet is still offering up a chance to grab a rare Pokémon, but you only have about 24 more hours to download it to your game.
+---------
+
+# Zelda Meets Final Fantasy In The Best Stardew Valley-Like Ever, And It Launches Today
+
+Gaming, Steam, Triple-A Games
+
+Wed, 05 Aug 2026 04:15:11 GMT
+
+https://screenrant.com/fields-of-mistria-10-zelda-meets-stardew-valley/
+
+vFans of both Stardew Valley and The Legend of Zelda should take note of this new game, which manages to combine both in an exciting way.
+---------
+
+# Game Of Thrones: The Silver Blade Officially Announced
+
+Gaming, Game of Thrones, PC
+
+Wed, 05 Aug 2026 04:00:14 GMT
+
+https://screenrant.com/game-of-thrones-silver-blade-announcement/
+
+A brand-new Game of Thrones project titled The Silver Blade has been officially announced, and fans will want to check it out.
+---------
+
+# Blumhouse's New R-Rated Sci-Fi Thriller Sets Rotten Tomatoes Record For $220M Franchise
+
+Movies, Masked Recs, Blumhouse
+
+Wed, 05 Aug 2026 03:59:00 GMT
+
+https://screenrant.com/blumhouse-soulm8te-movie-rotten-tomatoes-score-m3gan-record/
+
+Blumhouse's new R-rated sci-fi thriller sets a Rotten Tomatoes record for its $220 million franchise after going straight to streaming.
+---------
+
+# If HBO's Harry Potter Changes One Thing From The Books, Please Fix Harry's Future Job
+
+TV, Harry Potter
+
+Wed, 05 Aug 2026 03:45:11 GMT
+
+https://screenrant.com/harry-potter-hbo-series-change-auror-job/
+
+HBO's Harry Potter TV show has the perfect opportunity to fix the job that Harry chooses himself as an adult, compared to the books and films.
+---------
+
+# Netflix's Biggest Action Thriller Of The Year Scored Rare All-Time Achievement
+
+TV, Netflix, Masked Recs
+
+Wed, 05 Aug 2026 03:30:11 GMT
+
+https://screenrant.com/netflix-teach-you-a-lesson-rare-all-time-achievement/
+
+One of the most controversial yet compelling and exciting dramas of the year just left its biggest mark yet on Netflix's charts.
+---------
+
+# 5 PlayStation 1 Horror Games That Have Aged Like Milk
+
+Gaming, PlayStation, Triple-A Games
+
+Wed, 05 Aug 2026 03:00:11 GMT
+
+https://screenrant.com/playstation-1-horror-games-aged-badly/
+
+The original PlayStation birthed some of the greatest horror games and franchises of all time, but not every interesting option has aged well.
+---------
+
+# The Top 10 Highest-Rated Anime of All Time Just Got a Major Update
+
+Anime, Bleach: Thousand Year Blood War, Bleach, myanimelist
+
+Wed, 05 Aug 2026 03:59:15 GMT
+
+https://www.cbr.com/myanimelist-top-10-anime-all-time-bleach-update/
+
+The official list of the top ten highest rated anime of all time has just gotten a major shakeup thanks to the biggest finale of the year.
+---------
+
+# 5 Greatest Psychological Thrillers Of The Last 10 Years, Ranked
+
+Movies, Get Out, Parasite, The Handmaiden
+
+Wed, 05 Aug 2026 03:45:15 GMT
+
+https://www.cbr.com/greatest-psychological-thrillers-last-10-years-ranked-list/
+
+Only the best psychological thrillers are a perfect balance of terrifying and intelligent.
+---------
+
+# 5 Masterpiece Dark Fantasy Anime Better Than Demon Slayer
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Berserk
+
+Wed, 05 Aug 2026 03:45:15 GMT
+
+https://www.cbr.com/masterpiece-dark-fantasy-anime-better-than-demon-slayer/
+
+These dark fantasy series pair haunting atmospheres with exceptional storytelling and unforgettable character arcs better than Demon Slayer does.
+---------
+
+# 6 Space Opera TV Shows Better Than Battlestar Galactica
+
+TV, Battlestar Galactica, Sci-Fi, Firefly
+
+Wed, 05 Aug 2026 03:30:15 GMT
+
+https://www.cbr.com/space-opera-tv-series-better-than-battlestar-galactica-list/
+
+While Battlestar Galactica is a sci-fi benchmark, these sci-fi space opera shows rival it in storytelling, characters, and scope.
+---------
+
+# Zelda: Ocarina of Time's Status as Highest-Rated Game Called Into Question
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Wed, 05 Aug 2026 03:15:15 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-highest-rated-critic-score-challenged/
+
+Ocarina of Time has long been called the single highest-rated game of all time, but that position was apparently fundamentally flawed the whole time.
+---------
+
+# Bandai Officially Reveals the Top 10 Most Wanted Gunpla
+
+Anime, Mobile Suit Gundam, merchandise, toys, bandai
+
+Wed, 05 Aug 2026 03:05:15 GMT
+
+https://www.cbr.com/bandai-top-gunpla-vote-2026/
+
+Fans have cast their ballots and decided the most popular Gundam model kits of 2026, with some of the Top 10 being rather obscure collectibles.
+---------
+
+# Pro Wrestling Meets Ancient Horror in Brand-New Graphic Novel
+
+Comics, Horror
+
+Wed, 05 Aug 2026 03:00:15 GMT
+
+https://www.cbr.com/mad-dog-morgan-release-date-confirmed/
+
+The Lab Press returns with a blood-soaked love letter to Lucha libre, independent wrestling and '80s action-horror classics.
+---------
+
+# 7 Perfect NES Games No One Remembers Today
+
+Games, Nintendo, Video Games
+
+Wed, 05 Aug 2026 02:45:15 GMT
+
+https://www.cbr.com/best-forgotten-nes-games/
+
+As perfect as they are, no one remembers NES classics like Maniac Mansion and R.C. Pro-Am.
+---------
+
+# Original Highlander 6-Season Series Is Streaming for Free Ahead of Henry Cavill's Reboot
+
+TV, Highlander
+
+Wed, 05 Aug 2026 02:39:11 GMT
+
+https://www.cbr.com/highlander-the-series-streaming-free-fandango/
+
+Revisit all six seasons of the Highlander TV series ahead of the all-new feature film reboot.
+---------
+
+# 5 Best Romance Anime for People Who Hate Fan Service
+
+Anime, Fruits Basket, Toradora!
+
+Wed, 05 Aug 2026 02:30:15 GMT
+
+https://www.cbr.com/best-romance-anime-no-fan-service/
+
+Fan service often ruins what would otherwise be perfect romance anime, but these series avoid that pitfall entirely.
+---------
+
+# 7 Perfect Apple TV Shows With No Bad Seasons
+
+TV, Ted Lasso, Shrinking, Severance, Apple TV
+
+Wed, 05 Aug 2026 04:27:14 GMT
+
+https://collider.com/perfect-apple-tv-shows-no-bad-seasons/
+
+SIlo, Severance, Slow Horses, For All Mankind, Shrinking, and more make up our list of perfect Apple TV shows with no bad seasons.
+---------
+
+# Forget Deadpool, Marvel Already Has the Perfect Cameo Replacement for Stan Lee
+
+Movie Features, Spider-Man: Brand New Day, Florence Pugh, MCU, Stan Lee
+
+Wed, 05 Aug 2026 04:14:14 GMT
+
+https://collider.com/spider-man-brand-new-day-florece-pugh-cameo-stan-lee-replacement/
+
+The Marvel Cinematic Universe has the perfect Stan Lee cameo replacement in Florence Pugh’s Yelena Belova.
+---------
+
+# 10 R-Rated Action Movies That Can Be Called Masterpieces
+
+Movie, Action, Mad Max: Fury Road, Terminator 2: Judgment Day, The Matrix
+
+Wed, 05 Aug 2026 04:07:14 GMT
+
+https://collider.com/r-rated-action-movies-that-can-be-called-masterpieces/
+
+From The Matrix to Die Hard, these R-rated action masterpieces prove spectacle means nothing without perfect execution.
+---------
+
+# These 4 Spider-Man Movies Are the Only Ones You Can Watch Without Disney+
+
+Movie Features, Spider-Man: Homecoming, Spider-Man, Tom Holland, Tobey Maguire
+
+Wed, 05 Aug 2026 03:26:14 GMT
+
+https://collider.com/spider-man-brand-new-day-tobey-maguire-streaming-netflix-hulu-august-2026/
+
+Spider-Man: Homecoming is on Netflix and the Tobey Maguire trilogy is on Hulu, making them the only Spider-Man movies available without Disney+.
+---------
+
+# Harry Potter Movies Officially Return to Celebrate 25th Anniversary
+
+Movie News, Harry Potter and the Sorcerer's Stone, Daniel Radcliffe, Chris Columbus, Harry Potter
+
+Wed, 05 Aug 2026 02:30:15 GMT
+
+https://collider.com/harry-potter-theater-return-4dx-august-2026/
+
+As the Harry Potter franchise marks its 25th anniversary, all 8 movies are set to return to theaters. Find out when and where here.
+---------
+
 # 9 Most Iconic Linus Quotes In Peanuts History
 
 Comics, Peanuts
