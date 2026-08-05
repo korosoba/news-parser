@@ -1,3 +1,223 @@
+# James Bond Creator’s Lost Letter & Rare Image Reveal the First-Ever 007 Design
+
+Movies, James Bond, Bond 26
+
+Wed, 05 Aug 2026 22:39:53 GMT
+
+https://screenrant.com/james-bond-creator-lost-letter-rare-image-first-007-design/
+
+James Bond's original design has been uncovered through letters between the creator of the iconic agent and an image from the artist he hired.
+---------
+
+# The Best Movie Of All Time Was Quietly Remade On TV
+
+Classic TV, Citizen Kane
+
+Wed, 05 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/citizen-kane-remade-the-simpsons/
+
+Although the best movie of all time hasn't been remade on the big screen, it has already been quietly remade on TV, but there's a twist.
+---------
+
+# After Today, Marvel's Most Iconic Comic Cover Will Never Be the Same
+
+Comics, Marvel
+
+Wed, 05 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/fantastic-four-comic-cover-iconic-change/
+
+The truth revealed after six decades.
+---------
+
+# George R. R. Martin's Upcoming Movie Is The Fantasy Event Of The Decade
+
+Movies, Elden Ring
+
+Wed, 05 Aug 2026 22:15:11 GMT
+
+https://screenrant.com/george-rr-martin-elden-ring-movie-fantasy-event-decade/
+
+Among George R. R. Martin's upcoming projects is a high-fantasy movie that, if done well, can be the fantasy event that this decade is missing.
+---------
+
+# 10 Most-Watched Episodes In NBC History
+
+Classic TV, NBC
+
+Wed, 05 Aug 2026 22:15:11 GMT
+
+https://screenrant.com/most-watched-nbc-episodes-ranked-viewership/
+
+A list of NBC's highest-rated episodes with record-breaking viewership throughout the years, mostly during the Must-See-TV era of network television.
+---------
+
+# Reacher's Alan Ritchson Officially Starts A New Era On Netflix With Two Releases
+
+TV, Alan Ritchson, War Machine, Ordinary Angels
+
+Wed, 05 Aug 2026 22:05:41 GMT
+
+https://screenrant.com/alan-ritchson-netflix-movies-trending-war-machine-ordinary-angels/
+
+Reacher star Alan Ritchson has become one of the biggest stars on Netflix worldwide, all thanks to two releases that pave the way for his future.
+---------
+
+# Stephen King's 9/10 Detective Series Is A Supernatural Silence Of The Lambs
+
+Classic TV, Masked Recs
+
+Wed, 05 Aug 2026 22:03:11 GMT
+
+https://screenrant.com/mr-mercedes-stephen-king-series-silence-of-the-lambs/
+
+Stephen King's near-perfect detective drama, Mr. Mercedes, puts a chilling supernatural spin on a Silence of the Lambs-style serial killer thriller.
+---------
+
+# Tracker Meets The Rookie In Netflix's 2-Part Espionage Thriller
+
+Streaming TV, Masked Recs
+
+Wed, 05 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/the-recruit-netflix-tracker-meets-the-rookie/
+
+The fish-out-of-water hijinks of John Nolan in The Rookie meet Colter Shaw's tense Tracker missions in a hilarious yet short-lived Netflix gem.
+---------
+
+# 7 Marvel Telepaths Who Could Rival Jean Grey
+
+Comics, Marvel, jean grey
+
+Wed, 05 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/telepaths-rival-jean-grey-marvel-comics/
+
+Jean Grey isn't the only telepath in Marvel with extraordinary abilities. Meet the seven of Marvel's strongest telepaths who could rival her power.
+---------
+
+# This $1 Billion Comedy Franchise Is A Hit On Streaming 13 Years After The Last Movie
+
+Movies, The Hangover
+
+Wed, 05 Aug 2026 21:50:11 GMT
+
+https://screenrant.com/hangover-movies-franchise-trending-on-streaming/
+
+A $1 billion comedy movie franchise is shooting up the streaming charts right now, but why has the trilogy resurfaced after 13 years?
+---------
+
+# The Muppets/Marvel Official Crossover Delivers a ‘Different Kind of Comedy'
+
+Comics, The Muppets, Marvel Comics
+
+Wed, 05 Aug 2026 22:43:58 GMT
+
+https://www.cbr.com/marvel-the-muppets-crossover-chip-zdarsky-interview/
+
+In a CBR exclusive interview with superstar writer Chip Zdarsky, we discuss the approach Zdarsky took with teaming The Muppets with Marvel
+---------
+
+# 3 Classic Sci-Fi Anime That Accurately Predicted The Future
+
+Anime, Akira, Serial Experiments Lain, Ghost in the Shell, Sci-Fi
+
+Wed, 05 Aug 2026 22:15:14 GMT
+
+https://www.cbr.com/classic-sci-fi-anime-accurately-predicted-future/
+
+Sci-fi anime might be entertaining, but it has a funny way of being surprisingly accurate when predicting technology's future.
+---------
+
+# The Fantastic Four Should Be the Face of Marvel Again
+
+Comics, Marvel, Fantastic Four
+
+Wed, 05 Aug 2026 22:00:15 GMT
+
+https://www.cbr.com/the-fantastic-four-marvel-main-team/
+
+The Fantastic Four is the crown jewel in Stan Lee and Jack Kirby's legacy, and it's time for them to reclaim their spot as Marvel's flagship team.
+---------
+
+# Apple TV’s 4-Season Drama Returns After 3 Years With an Exciting Rotten Tomatoes Score
+
+TV, Ted Lasso
+
+Wed, 05 Aug 2026 21:58:56 GMT
+
+https://www.cbr.com/ted-lasso-season-4-rotten-tomatoes-score/
+
+One of the most hotly-anticipated returning series of the year is back with encouraging reviews.
+---------
+
+# Quentin Tarantino's 165-Minute Western Masterpiece Dominates Free Streaming Ahead of Sequel
+
+Movies, Django Unchained, Western
+
+Wed, 05 Aug 2026 21:45:43 GMT
+
+https://www.cbr.com/quentin-tarantino-django-unchained-western-success-pluto-tv-august-2026/
+
+Tarantino's fiery Western is officially a free streaming hit ahead of its unexpected sequel.
+---------
+
+# 7 Great 2026 Emmy-Nominated Shows That Are Actually Worth the Hype
+
+TV, Emmy Awards, Television, The Pitt, Wednesday
+
+Wed, 05 Aug 2026 22:03:14 GMT
+
+https://collider.com/emmy-nominated-shows-2026-worth-the-hype/
+
+From returning favorites like The Pitt to breakout new shows like Widow's Bay, these 2026 Emmy-nominated series are actually worth your time.
+---------
+
+# 8 Sci-Fi Books That Are Perfect From Cover to Cover
+
+Books and Comics, Books, Sci-Fi, Dune, Project Hail Mary
+
+Wed, 05 Aug 2026 21:51:14 GMT
+
+https://collider.com/sci-fi-books-perfect-cover-to-cover/
+
+Sci-fi touchstones like Dune by Frank Herbert and Project Hail Mary by Andy Weir are among the most perfect, must-read books in the genre.
+---------
+
+# Forget 'The Pitt,' One of TV’s Most Underseen Medical Dramas Is Coming to Netflix
+
+TV Features, The Pitt, Best Medicine, Netflix, Fox
+
+Wed, 05 Aug 2026 21:48:14 GMT
+
+https://collider.com/the-pitt-replacement-best-medicine-coming-to-netflix/
+
+While The Pitt has received award-winning recognition, Fox’s new medical drama Best Medicine is a heartfelt remake that deserves a watch.
+---------
+
+# Harlan Coben’s Forgotten Thriller Is Still an Unpredictable One-Night Binge
+
+Features, Harlan Coben's Shelter, Harlan Coben
+
+Wed, 05 Aug 2026 22:00:12 GMT
+
+https://movieweb.com/shelter-harlan-coben-prime-thriller-binge/
+
+Harlan Coben has several thriller TV series based on his popular and bestselling novels on Netflix and Amazon Prime Video.
+---------
+
+# 'Apex's Taron Egerton Officially Confirms Streaming Return for HBO
+
+TV News, I Love LA
+
+Wed, 05 Aug 2026 22:00:05 GMT
+
+https://movieweb.com/taron-egerton-i-love-la-season-2-hbo/
+
+Taron Egerton confirmed for a guest role in Season 2 of HBO's 'I Love LA.'
+---------
+
 # 4 Of Supernatural's Highest-Rated Episodes All Share One Thing In Common
 
 Classic TV, Supernatural
