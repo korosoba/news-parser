@@ -1,3 +1,344 @@
+# Fabergé Spider Brooch: Yes, Pawn Stars' Rick Really Paid More Than Asking For The Item (What Was It Worth?)
+
+Reality TV, Pawn Stars
+
+Wed, 05 Aug 2026 20:00:11 GMT
+
+https://screenrant.com/faberge-spider-brooch-pawn-stars-rick-offer-explained/
+
+When a Fabergé spider brooch came into Rick Harrison's shop on Pawn Stars, he could barely believe it and ended up paying more than he could have.
+---------
+
+# Why Henry Cavill's Forgotten R-Rated Action Thriller Has Become A Worldwide Streaming Hit
+
+Movies, Masked Recs
+
+Wed, 05 Aug 2026 19:55:11 GMT
+
+https://screenrant.com/night-hunter-henry-cavill-paramount-plus-streaming-charts-rise-august-2026/
+
+Henry Cavill shows off his action skills in this thriller featuring Alexandra Daddario, and there are many reasons for its global streaming success.
+---------
+
+# Gilmore Girls Officially Returning With New Release On HBO Max 10 Years After Netflix Revival
+
+TV, Gilmore Girls
+
+Wed, 05 Aug 2026 19:48:00 GMT
+
+https://screenrant.com/gilmore-girls-documentary-lauren-graham-hbo-max/
+
+Celebrate 25 years of Gilmore Girls with a new HBO Max documentary in production.
+---------
+
+# Taron Egerton Sets Major TV Return With Hit HBO Series
+
+TV, I Love LA, Taron Egerton
+
+Wed, 05 Aug 2026 19:47:07 GMT
+
+https://screenrant.com/i-love-la-season-2-hbo-cast-taron-egerton-chung-more/
+
+Taron Egerton's filmography includes a number of TV shows, and it's been revealed his next small screen appearance will be on a popular HBO series.
+---------
+
+# Prime Video's The Boys Replacement Officially Returns With New Episodes In 1 Week
+
+Streaming TV, Masked Recs
+
+Wed, 05 Aug 2026 19:30:11 GMT
+
+https://screenrant.com/reacher-season-4-amazon-prime-video-august-12/
+
+The Boys was Prime Video's flagship TV show for years. Now that it's over, the streamer has turned its eyes to a show that returns next week.
+---------
+
+# Even After 40 Years, Highlander’s Best Sequel Isn’t One Of The Franchise’s 5 Follow-Up Movies
+
+TV, Masked Recs
+
+Wed, 05 Aug 2026 19:02:11 GMT
+
+https://screenrant.com/highlander-the-series-best-movie-sequel-franchise/
+
+Highlander's best spinoff has a longer runtime, making this surprising outing a stronger follow-up to the original movie than any of its sequels.
+---------
+
+# Zelda Meets Pokémon In Gorgeous New RPG You Can Play Free Now
+
+Gaming, Steam, Triple-A Games
+
+Wed, 05 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/zelda-meets-pokemon-leafblade-free-demo/
+
+Zelda has a massive pedigree of its own, but it's also managed to influence tons of great RPGs and adventure games for decades, including this one.
+---------
+
+# Captain America: The First Avenger Sets Up Doomsday
+
+Movies, Originals
+
+Wed, 05 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/video/captain-america-the-first-avenger-sets-up-doomsday/
+
+Avengers: Doomsday could pit two completely different philosophies against each other, and the foundation for that conflict was established all the way back in Captain America: The First Avenger.
+---------
+
+# ABC's 9-Part Crime Show Based on a Book Climbs the Global Streaming Charts 2 Months After Finale
+
+TV, RJ Decker, ABC, Crime
+
+Wed, 05 Aug 2026 20:00:15 GMT
+
+https://www.cbr.com/rj-decker-crime-drama-abc-disney-success-august-2026/
+
+ABC's latest crime drama based on a book, R.J. Decker, returns to the streaming charts ahead of Season 2.
+---------
+
+# Apple TV's Mistborn Film Has a Major Magic System Challenge
+
+Movies, Mistborn, Apple TV, Fantasy
+
+Wed, 05 Aug 2026 20:00:15 GMT
+
+https://www.cbr.com/apple-tv-brandon-sanderson-mistborn-magic-challenge/
+
+One of the greatest aspects of Brandon Sanderson's Mistborn series of novels will be problematic for the upcoming film adaptation.
+---------
+
+# Stephen King's Creepshow Officially Confirms Comic Book Series Return
+
+Comics, Creepshow
+
+Wed, 05 Aug 2026 20:00:15 GMT
+
+https://www.cbr.com/creepshow-vol-5-issue-1-horror-comic-book/
+
+Stephen King's comic book-inspired horror movie returns to comics.
+---------
+
+# Beloved Disney Character's Fate Confirmed After Apparent Death
+
+TV, Wizards Beyond Waverly Place, Disney+, Wizards of Waverly Place
+
+Wed, 05 Aug 2026 19:54:38 GMT
+
+https://www.cbr.com/wizards-beyond-waverly-place-is-alex-dead/
+
+Fans have been left on edge ever since the Disney series seemignly killed off a beloved character.
+---------
+
+# 11 Most Powerful D&D Cantrip & Spell Combos
+
+Games, Dungeons and Dragons, Tabletop
+
+Wed, 05 Aug 2026 19:30:15 GMT
+
+https://www.cbr.com/dnd-best-cantrip-spell-combos/
+
+The best arcane and divine Cantrip and Bonus Action spell combos give D&amp;D players a major edge in combat.
+---------
+
+# Star Wars Officially Returns With Perfect 100% Rotten Tomatoes Score for New 8-Episode Jedi Series
+
+Anime, Star Wars: Visions Presents - The Ninth Jedi, Star Wars: Visions, Star Wars, Rotten Tomatoes
+
+Wed, 05 Aug 2026 19:30:07 GMT
+
+https://www.cbr.com/star-wars-ninth-jedi-debut-rotten-tomatoes-perfect-score/
+
+The latest Star Wars series has officially attained a perfect 100% rating on one of the biggest and most illustrious review aggregators online.
+---------
+
+# Timothy Olyphant's Return Uncertain After Peacock Renews Hit 8-Part Drama
+
+TV, The Five-Star Weekend
+
+Wed, 05 Aug 2026 19:26:41 GMT
+
+https://www.cbr.com/peacock-renews-the-five-star-weekend-season-2-timothy-olyphant-uncertain/
+
+The series has scored a Season 2 renewal, but don't bet on Timothy Olyphant returning.
+---------
+
+# Power Rangers Officially Reveals the Green Ranger's New Design
+
+Comics, Mighty Morphin Power Rangers, Power Rangers
+
+Wed, 05 Aug 2026 19:07:32 GMT
+
+https://www.cbr.com/mighty-morphin-power-rangers-green-ranger-new-design-revealed/
+
+The latest ongoing Mighty Morphin Power Rangers series is finally throwing its Green Ranger into the mix, and fans won't have to wait much longer.
+---------
+
+# DC Comics Confirms The Deadman Isn't Ending As Soon As Fans Think
+
+Comics, DC Comics, Deadman
+
+Wed, 05 Aug 2026 19:03:09 GMT
+
+https://www.cbr.com/dc-comics-confirms-deadman-is-not-ending-soon/
+
+Fantastic news was just delivered by DC Comics about Deadman.
+---------
+
+# It's Official, Animal Crossing Is Over As We Know It
+
+Games, Animal Crossing, Nintendo
+
+Wed, 05 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/animal-crossing-officially-over-pokemon-pokopia/
+
+Animal Crossing was the Nintendo Switch's biggest success story, but its reign is over in the Switch 2 era.
+---------
+
+# 10 Greatest Historical Adventure Movies of All Time
+
+Movie, History, Crouching Tiger, Hidden Dragon, Adventure, Seven Samurai
+
+Wed, 05 Aug 2026 19:19:15 GMT
+
+https://collider.com/best-historical-adventure-movies-all-time-ranked/
+
+From modern gems like The Odyssey to classics like Lawrence of Arabia, these historical adventures are among the finest cinematic feats of all time.
+---------
+
+# Win Tickets to Our Early Screening of Noomi Rapace's 'Hot Spot'
+
+Exclusives, Screening, The Lure, Sci-Fi, Noomi Rapace
+
+Wed, 05 Aug 2026 18:54:50 GMT
+
+https://collider.com/noomi-rapace-hot-spot-screening-agnieszka-smoczynska/
+
+Details on how you can enter for your chance to win free tickets to our early screening of Noomi Rapace's new sci-fi thriller Hot Spot.
+---------
+
+# Rotten Tomatoes’ Best Sci-Fi Show of All Time Still Hasn’t Been Topped
+
+TV Features, Battlestar Galactica, Katee Sackhoff, Tricia Helfer, Edward James Olmos
+
+Wed, 05 Aug 2026 18:28:14 GMT
+
+https://collider.com/battlestar-galactica-best-sci-fi-show-of-all-time/
+
+Battlestar Galactica still reigns supreme as the best sci-fi series thanks to its philosophical themes and impressive lore.
+---------
+
+# Peacock Confirms the Fate of Jennifer Garner's 8-Part Series
+
+TV News, The Five-Star Weekend, Jennifer Garner
+
+Wed, 05 Aug 2026 20:00:22 GMT
+
+https://movieweb.com/the-five-star-weekend-renewed-season-2-peacock/
+
+'Five-Star Weekend' will return for Season 2, with the original cast all set to reprise their roles.
+---------
+
+# A Forgotten 36-Episode Sci-Fi Epic About the End of the World Dominates Streaming
+
+TV News, The Ark
+
+Wed, 05 Aug 2026 20:00:12 GMT
+
+https://movieweb.com/the-ark-vudu-stream-august-2026/
+
+Syfy's hidden gem is a must-watch if you're into survival space operas.
+---------
+
+# 'Spider-Man: Brand New Day' Officially Beats 'No Way Home' in One Major Way
+
+Features, Spider-Man: Brand New Day
+
+Wed, 05 Aug 2026 20:00:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-no-way-home-opening-record/
+
+'Spider-Man: Brand New Day' was released in theaters on July 31, 2026, and it stars Sadie Sink and Tom Holland.
+---------
+
+# New 'Star Wars' Series Debuts With Jaw-Dropping Rotten Tomatoes Score
+
+TV News, Star Wars: Visions Presents - The Ninth Jedi
+
+Wed, 05 Aug 2026 19:23:48 GMT
+
+https://movieweb.com/star-wars-visions-the-ninth-jedi-rotten-tomatoes-score/
+
+The new spin-off is unlike any 'Star Wars' series before it.
+---------
+
+# Prime Video's New 140-Minute Action Epic Remains a Global Hit on Streaming
+
+Movie News, Masters of the Universe, Hot on Streaming, Action, Prime Video
+
+Wed, 05 Aug 2026 19:13:16 GMT
+
+https://movieweb.com/masters-of-the-universe-action-prime-video-streaming-august-2026/
+
+Despite flopping in theaters, Amazon's latest action epic has become the biggest movie in the world on Prime Video.
+---------
+
+# 'Lucky Strike' (2026) Exclusive Clip
+
+Exclusives, Lucky Strike
+
+Wed, 05 Aug 2026 19:03:56 GMT
+
+https://movieweb.com/video/lucky-strike-2026-exclusive-clip/
+
+An exclusive clip from 'Lucky Strike', a war action thriller from Roadside Attractions and Saban Films, starring Scott Eastwood, Colin Hanks, Aunjanue L. Ellis-Taylor, and Taylor John Smith.
+---------
+
+# 'Spider-Man: Brand New Day' Dethrones One of the Biggest Sci-Fi Action Epics of All Time
+
+Movie News, Spider-Man: Brand New Day, Avatar: Fire and Ash
+
+Wed, 05 Aug 2026 19:00:13 GMT
+
+https://movieweb.com/spider-man-brand-new-day-beats-avatar-3-box-office/
+
+The MCU's latest adventure beats another blockbuster at the box office after breaking $1 billion.
+---------
+
+# R-Rated Steamy Sci-Fi Thriller Spin-Off Rotten Tomatoes Score Officially Revealed
+
+Movie News, SOULM8TE, Lily Sullivan
+
+Wed, 05 Aug 2026 18:55:11 GMT
+
+https://movieweb.com/soulm8te-rotten-tomatoes-score-m3gan-spin-off/
+
+The 'M3GAN' spin-off 'SOULM8TE' is off to a rough start with critics.
+---------
+
+# Adam Sandler's Long-Awaited Netflix Comedy Sequel Crosses Major Milestone
+
+Movie News, Grown Ups 2, Grown Ups, Adam Sandler
+
+Wed, 05 Aug 2026 18:48:04 GMT
+
+https://movieweb.com/grown-ups-3-adam-sandler-netflix-filming/
+
+Adam Sandler will be back on Netflix soon with the next chapter in one of his most memorable comedies of the 21st century.
+---------
+
+# James Cameron Officially Addresses His "Last Act" After 'Avatar' Franchise
+
+Movie News, Avatar, James Cameron, Avatar 4
+
+Wed, 05 Aug 2026 18:34:44 GMT
+
+https://movieweb.com/james-cameron-last-act-avatar-franchise/
+
+Cameron has ideas about how to choose what he does next.
+---------
+
 # Mike Flanagan Teases Major Ending Change For Next Stephen King Adaptation: “Everyone Thinks They [Know]”
 
 TV, Carrie, Stephen King, Horror, Prime Video
