@@ -1,3 +1,443 @@
+# 44 Years Later, Sam Malone's Best Cheers Line Is Still A Top 5 Sitcom Quote
+
+Classic TV, Cheers
+
+Wed, 05 Aug 2026 16:45:11 GMT
+
+https://screenrant.com/cheers-sam-malone-best-quote/
+
+Sam Malone's memorable line in the Cheers pilot set the stage for the show's success, establishing his character and the dynamic between him & Diane.
+---------
+
+# Netflix's Rom-Com With 9.9 Billion Minutes Watched Hits Unprecedented Milestone After 7 Weeks
+
+New Movies, Voicemails for Isabelle, Netflix
+
+Wed, 05 Aug 2026 16:45:11 GMT
+
+https://screenrant.com/voicemails-for-isabelle-netflix-rom-com-record/
+
+Netflix has an undisputed hit on its hands with a new rom-com that will go down as one of its biggest ever after hitting an unprecedented milestone.
+---------
+
+# NYT Connections Solution And Hints For August 5, 2026
+
+Gaming, Connections, Mobile
+
+Wed, 05 Aug 2026 16:29:52 GMT
+
+https://screenrant.com/nyt-connections-solution-answer-hints-august-5-2026/
+
+There are a variety of patterns in today's Connections puzzle, forming a challenge that asks players to think about action and styles behind words.
+---------
+
+# Paramount+'s Sequel To 90s Sitcom Gets Release Date 34 Years Later
+
+TV, Martin
+
+Wed, 05 Aug 2026 16:25:03 GMT
+
+https://screenrant.com/martin-spinoff-the-varnell-hill-show-first-images-release-date/
+
+Paramount+ is weeks away from premiering a new comedy that’s a sequel to a five-season sitcom from the ‘90s, and new images have just been revealed.
+---------
+
+# Blumhouse's R-Rated Sci-Fi's RT Record Is The Final Nail In The Coffin For $220M Franchise
+
+Movies, Blumhouse
+
+Wed, 05 Aug 2026 16:15:11 GMT
+
+https://screenrant.com/blumhouse-soulm8te-movie-m3gan-rotten-tomatoes-record-franchise-ended/
+
+Blumhouse's $220 million sci-fi horror franchise is over before it really ever began, and the latest movie's failure is the final nail in the coffin.
+---------
+
+# DC Upgrades A Classic Hero, Now Officially Stronger Than Superman
+
+DC Comics
+
+Wed, 05 Aug 2026 16:14:28 GMT
+
+https://screenrant.com/new-spectre-ted-grant-dc/
+
+One of DC's earliest superheroes takes on the mantle of the universe's most powerful entity for the first time, instantly surpassing Superman's power.
+---------
+
+# Tom Holland's $880 Million Sci-Fi Movie Has Become A Global Streaming Sensation At The Perfect Time
+
+Movies, Masked Recs
+
+Wed, 05 Aug 2026 16:11:06 GMT
+
+https://screenrant.com/spider-man-homecoming-streaming-success-august-2026/
+
+Tom Holland's $880 million sci-fi movie was a hit in theaters, and it has now grown into a global streaming sensation at the perfect time.
+---------
+
+# 2 Years Later, The Bad Batch Returns With New Sequel Comic
+
+Comics, Star Wars: The Bad Batch
+
+Wed, 05 Aug 2026 16:08:14 GMT
+
+https://screenrant.com/bad-batch-sequel-hyperspace-stories-comic/
+
+After the television series concluded in 2024, fans of Star Wars: The Bad Batch are in for a treat as the beloved squad returns in a sequel.
+---------
+
+# All 9 GameCube Games On Nintendo Switch Online, Ranked
+
+Gaming, Nintendo Switch, Nintendo GameCube, Triple-A Games
+
+Wed, 05 Aug 2026 16:07:22 GMT
+
+https://screenrant.com/gamecube-games-nintendo-switch-online-ranked/
+
+The Nintendo Switch Online library includes some of the best GameCube titles of all time, but even the greatest games aren't all equal.
+---------
+
+# 10 Action Movies With Perfect Ensemble Casts
+
+Movies, Action
+
+Wed, 05 Aug 2026 16:00:13 GMT
+
+https://screenrant.com/action-movies-perfect-ensemble-casts/
+
+These 10 action movies have perfect ensemble casts, with every character bringing something essential to the mission.
+---------
+
+# Paramount+ Confirms New 24 Copycat Show With Game of Thrones Star
+
+TV, 24
+
+Wed, 05 Aug 2026 16:44:24 GMT
+
+https://www.cbr.com/paramount-plus-action-thriller-series-trauma/
+
+Jack Bauer needs to step aside for the new action thriller series coming to Paramount+.
+---------
+
+# Taylor Sheridan's 3-Season 'Better Than Yellowstone' Crime Show Is Dominating Streaming
+
+TV, Tulsa King
+
+Wed, 05 Aug 2026 16:35:37 GMT
+
+https://www.cbr.com/tulsa-king-action-series-paramount-plus-success-august-2026/
+
+The Taylor Sheridan series is still going strong three seasons into its run.
+---------
+
+# One Night Only Stars Reveal Their Funniest Set Moments
+
+Movies, One Night Only
+
+Wed, 05 Aug 2026 16:20:39 GMT
+
+https://www.cbr.com/video/one-night-only-stars-reveal-their-funniest-set-moments/
+
+One Night Only stars Callum Turner and Monica Barbaro reveal how they built their chemistry through improvisation, shared plenty of laughs on set, and even tested how well they knew each other's favorite coffee and pizza orders.
+---------
+
+# 10 Greatest Anime Series Since 2021
+
+Anime, Frieren: Beyond Journey's End, Chainsaw Man, The Apothecary Diaries
+
+Wed, 05 Aug 2026 16:15:15 GMT
+
+https://www.cbr.com/greatest-anime-series-since-2021/
+
+The 2020s have been packed with some of the best anime ever, to the point a newcomer to the medium could easily only watch shows made this decade.
+---------
+
+# 10 Reasons Palworld Fans Will Fall in Love With the Official Card Game
+
+Games, Palworld, Tabletop, Video Games
+
+Wed, 05 Aug 2026 16:08:27 GMT
+
+https://www.cbr.com/reasons-palworld-fans-will-fall-in-love-with-the-official-card-game/
+
+The Palworld Official Card Game is here, and fans of the video game have plenty of reasons to be excited about the jump to tabletop.
+---------
+
+# Klara and the Sun Combines the Best Parts of 'E.T.' and 'The Iron Giant'
+
+Movies, Klara and the Sun
+
+Wed, 05 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/klara-and-the-sun-combines-et-and-the-iron-giant/
+
+Jenna Ortega's newest film is taking a page from some of the greatest sci-fi films ever, such as E.T. and The Iron Giant.
+---------
+
+# Award-Winning Absolute Batman 2025 Annual Rushed Back For Fourth Reprinting
+
+Comics, Batman, Absolute Batman
+
+Wed, 05 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/absolute-batman-2025-annual-fourth-reprinting/
+
+A celebrated Batman story is heading back to the shelves.
+---------
+
+# Prime Video's 1-Season Crime Thriller Is Officially Jensen Ackles' Anti-Supernatural Series
+
+TV, Countdown, Prime Video
+
+Wed, 05 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/prime-video-countdown-jensen-ackles-procedural-genre-shift/
+
+After Supernatural, Ackles starred in a Prime Video show, and its cancellation highlights the challenges of changing genres.
+---------
+
+# The Best Action Thriller Show in Prime Video History Returns With New Episodes in 1 Week
+
+TV, Reacher, Prime Video
+
+Wed, 05 Aug 2026 15:55:33 GMT
+
+https://www.cbr.com/reacher-returns-prime-video-new-episodes-1-week/
+
+Prime Video subscribers have been waiting more than a year for the best action thriller show to return, and the wait is finally almost over.
+---------
+
+# Avengers Directors Say "The Gauntlet Has Been Passed" as Spider-Man Breaks Endgame Record
+
+Movies, Spider-Man: Brand New Day, Avengers: Endgame, Marvel Cinematic Universe
+
+Wed, 05 Aug 2026 15:37:32 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-box-office-record-avengers-endgame-russos-react/
+
+The Russo Bros. have officially responded to Spider-Man: Brand New Day breaking Avengers: Endgame's box office record.
+---------
+
+# 'Game of Thrones' Star's New Crime Thriller Officially Makes Major Move
+
+TV News, Richard Madden, Paramount Plus, Prime Video, Thriller
+
+Wed, 05 Aug 2026 16:52:27 GMT
+
+https://collider.com/richard-madden-crime-thriller-trauma-prime-video-paramount-plus/
+
+Prime Video and Paramount+ are joining forces in a rare partnership for Game of Thrones star Richard Madden's new crime thriller.
+---------
+
+# 'Futurama' Season 14 Will Pay Tribute to One of the Sci-Fi Show's Best Guest Stars
+
+Exclusives, Futurama, Screening, Matt Groening, Hulu
+
+Wed, 05 Aug 2026 16:46:15 GMT
+
+https://collider.com/futurama-season-14-matt-groening-david-cohen-billy-west/
+
+The cast and crew of Futurama break down beloved episodes like Jurassic Bark while teasing Season 14 and the upcoming holiday special.
+---------
+
+# 10 Greatest Book Masterpieces of the 20th Century
+
+Books and Comics, Books, Pedro Páramo, Dune, The Lord of the Rings
+
+Wed, 05 Aug 2026 16:34:15 GMT
+
+https://collider.com/best-book-masterpieces-20th-century-ranked/
+
+Whether it's a generation-defining gem like Pedro Páramo or a genre masterpiece like Dune, these books prove why the 20th century was revolutionary.
+---------
+
+# Taylor Sheridan Star’s New War Thriller Is Officially "One of the Best Action Movies of the Year"
+
+Movie News, Taylor Sheridan, Lioness, LaMonica Garrett, Man of War
+
+Wed, 05 Aug 2026 16:30:15 GMT
+
+https://collider.com/man-of-war-best-action-movie-of-the-year/
+
+Man of War, a new action thriller starring LaMonica Garrett from Taylor Sheridan's Lioness, has enjoyed some positive reviews following its premiere.
+---------
+
+# Annette Bening Explains Why Her 'Lucky' Character Is Even Worse Than 'Dutton Ranch's Beulah Jackson
+
+Exclusives, Lucky, Apple TV, Annette Bening, Dutton Ranch
+
+Wed, 05 Aug 2026 16:01:14 GMT
+
+https://collider.com/lucky-apple-tv-annette-bening-priscilla-dutton-ranch-comparisons/
+
+Annette Bening discusses Apple TV's Lucky, working with Timothy Olyphant, and why Priscilla is even worse than Dutton Ranch's Beulah Jackson.
+---------
+
+# Netflix Quietly Made One of the Greatest Sci-Fi Shows of the Last 10 Years
+
+TV Features, Sense8, Netflix, The Matrix, Sci-Fi
+
+Wed, 05 Aug 2026 15:52:15 GMT
+
+https://collider.com/netflix-greatest-underrated-sci-fi-series-sense8/
+
+The Wachowskis’ criminally underrated Netflix sci-fi series Sense8 remains one of the streamer’s most ambitious and emotional originals.
+---------
+
+# HBO’s Biggest Sci-Fi Series of 2026 Officially Arrives in Just 11 Days
+
+TV News, Lanterns, HBO Max, Sci-Fi, Kyle Chandler
+
+Wed, 05 Aug 2026 15:00:15 GMT
+
+https://collider.com/lanterns-release-date-august-2026-how-to-watch/
+
+HBO's biggest sci-fi series of the year officially arrives in just under two weeks as excitement builds.
+---------
+
+# Jimmy Stewart World War II Biopic Officially Lands a Perfect Soundtrack [Exclusive]
+
+Movie News, Jimmy, KJ Apa, Fathom Events, Jimmy Stewart
+
+Wed, 05 Aug 2026 15:00:15 GMT
+
+https://collider.com/jimmy-stewart-ww2-biopic-soundtrack/
+
+The KJ Apa-led Jimmy Stewart biopic Jimmy has revealed the team behind its soundtrack, including The Chosen's MŌRIAH and Grant Fonda.
+---------
+
+# Disney Officially Has Everything Fans Want With This New D23 Collectibles [Exclusive]
+
+Exclusives, D23, Disney, Toys, D23 Expo
+
+Wed, 05 Aug 2026 15:00:15 GMT
+
+https://collider.com/disney-d23-collectible-release-images/
+
+Discover the latest D23 exclusive collectibles, from Marvel and Star Wars must-haves to iconic Disney ears and Pixar-inspired merchandise. See more.
+---------
+
+# Ryan Murphy's New Crime Thriller 'The Shards' Is 'American Horror Story' Meets 'The Breakfast Club' | Review
+
+TV Reviews, The Shards, Ryan Murphy, FX, Thriller
+
+Wed, 05 Aug 2026 15:00:15 GMT
+
+https://collider.com/the-shards-show-review-ryan-murphy-bret-easton-ellis/
+
+Ryan Murphy's new crime thriller The Shards combines the dark twists of American Horror Story with the high school drama of The Breakfast Club.
+---------
+
+# Netflix 95-Minute Action Thriller Crowned One of 2026's Biggest Streaming Hits
+
+Movie News, Netflix, Apex, Action, Thriller
+
+Wed, 05 Aug 2026 16:30:12 GMT
+
+https://movieweb.com/netflix-apex-biggest-action-thriller-streaming-august-2026/
+
+The original action thriller has now hit 2.5 billion minutes viewed.
+---------
+
+# Russell Crowe Is in Action Hero Form in New 'Highlander' Images
+
+Movie News, Highlander, Russell Crowe, Henry Cavill
+
+Wed, 05 Aug 2026 16:26:27 GMT
+
+https://movieweb.com/russell-crowe-action-hero-highlander-images/
+
+Russell Crowe is bringing the big guns in 'Highlander,' where he'll star alongside Henry Cavill and Drew McIntyre.
+---------
+
+# 2026 Has a New Highest-Grossing Movie After Only 1 Week
+
+Movie News, Spider-Man: Brand New Day, box office
+
+Wed, 05 Aug 2026 16:19:49 GMT
+
+https://movieweb.com/spider-man-brand-new-day-highest-grossing-2026/
+
+It only took one week on the big screen for one of the latest major blockbusters to soar to the top of this year's box-office charts.
+---------
+
+# Pixar and Funko Team Up for an Official New Disney Crossover With First-Look Reveal
+
+Exclusives, Pixar, Disney, funko
+
+Wed, 05 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/disney-pixar-funko-pop-collection/
+
+Pixar and Funko have teamed up for a new lineup of Pop! Vinyl figures, featuring characters from 'Monsters, Inc.,' 'Ratatouille,' 'Cars,' and more.
+---------
+
+# 'Ted Lasso' Season 4 Reveals the Fate of Its Best Missing Character
+
+Features, Ted Lasso, Comedy, Jason Sudeikis, Apple TV
+
+Wed, 05 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/ted-lasso-reveals-missing-character-jamie-fate/
+
+Jamie Tartt was a star at A.F.C. Richmond in the first three seasons of 'Ted Lasso,' but thankfully, Season 4 explains what happened to him.
+---------
+
+# 'One Night Only Movie' Review: Sex & Celibacy Satire Falls Flat
+
+2 star movies, One Night Only
+
+Wed, 05 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/one-night-only-review/
+
+Director Will Gluck's latest romcom struggles with its uneven premise and pacing, despite strong performances from Monica Barbaro and Callum Turner.
+---------
+
+# Anne Hathaway Pitches 'Star Wars' Role in Season 2 of Short-Lived Disney+ Series
+
+TV News, Anne Hathaway, Star Wars, Obi-Wan Kenobi
+
+Wed, 05 Aug 2026 15:57:48 GMT
+
+https://movieweb.com/anne-hathaway-star-wars-role-obi-wan-kenobi-pitch/
+
+Anne Hathaway gave Ewan McGregor an idea for how she could potentially join him in the expansive Star Wars universe.
+---------
+
+# 'Godzilla Minus Zero' Runtime Officially Breaks an Epic Franchise Record
+
+Movie News, Godzilla Minus Zero
+
+Wed, 05 Aug 2026 15:39:13 GMT
+
+https://movieweb.com/godzilla-minus-zero-runtime-franchise-record/
+
+The new 'Godzilla' sequel just landed a kaiju-sized runtime.
+---------
+
+# 'Spider-Man: Brand New Day' Star Jacob Batalon Explains That Ambiguous Ending
+
+Movie News, Spider-Man: Brand New Day
+
+Wed, 05 Aug 2026 15:12:54 GMT
+
+https://movieweb.com/spider-man-brand-new-day-ending-jacob-batalon/
+
+Marvel's latest Spider-Man movie's ending has raised a lot of questions amongst fans.
+---------
+
+# HBO's Bloody Hit Is Officially One of the Biggest Shows of the Year
+
+TV News, The Pitt, HBO Max, Hot on Streaming
+
+Wed, 05 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/the-pitt-biggest-streaming-success-hbo-2026/
+
+Season 3 can't arrive soon enough.
+---------
+
 # 6 Perfect Far Side Comics Starring Sharks
 
 Comics, The Far Side
