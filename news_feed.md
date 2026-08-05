@@ -1,3 +1,333 @@
+# 6 Perfect Far Side Comics Starring Sharks
+
+Comics, The Far Side
+
+Wed, 05 Aug 2026 12:40:11 GMT
+
+https://screenrant.com/far-side-shark-comics-perfect-jokes/
+
+Far Side comics that will take a chunk out of you!
+---------
+
+# Metal Gear Solid Remake Teaser Leaves Fans Split, And We See Why
+
+Gaming, Metal Gear, Metal Gear Solid
+
+Wed, 05 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/metal-gear-solid-remake-teaser-reactions/
+
+Fans debate the prospect of a Metal Gear Solid remake, with some hoping for an expanded take on the classic.
+---------
+
+# 10 Years Later, Suicide Squad Was The Beginning Of The End Of The DCEU
+
+Movies, Suicide Squad, DC Universe
+
+Wed, 05 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/suicide-squad-dceu-beginning-of-end/
+
+The DCEU timeline came to an end three years ago, but the first step in its downfall came in a comic book movie that released 10 years ago today.
+---------
+
+# CBS Officially Breaks NCIS's Canon With 10-Year Veteran Return
+
+Network TV, NCIS, NCIS: New York
+
+Wed, 05 Aug 2026 12:15:11 GMT
+
+https://screenrant.com/ncis-new-york-scott-caan-new-character-canon-break/
+
+After playing an iconic character in the franchise, one actor is officially returning for a new NCIS series portraying a different character.
+---------
+
+# Xbox Officially Unveils New Hardware, Pre-Orders Available Now
+
+Gaming, Xbox
+
+Wed, 05 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/xbox-new-controller-8bitdo-pre-orders/
+
+Experience premium gaming with the GameSir Tarantula Pro Xbox controller, now accessible on Amazon.
+---------
+
+# Spock’s Star Trek Death Was Already Foreshadowed By One Ominous Strange New Worlds Quote
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Wed, 05 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-spock-death-wrath-of-khan-set-up/
+
+Star Trek: Strange New Worlds season 4's horror episode plants the seed for Spock's death two decades later in Star Trek II: The Wrath of Khan.
+---------
+
+# Spider-Man: Brand New Day Destroyed The Story Superhero Fans Fear Most
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Wed, 05 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-v-max-twist-good/
+
+Spider-Man: Brand New Day's plot carefully destroys one of the most commonly complained about stories that's used frequently in superhero movies.
+---------
+
+# Star Wars' New Jedi Show Is Officially Streaming On Disney+
+
+Streaming TV, Star Wars: Visions Presents - The Ninth Jedi, Star Wars
+
+Wed, 05 Aug 2026 11:39:18 GMT
+
+https://screenrant.com/star-wars-the-ninth-jedi-now-streaming-disney-plus/
+
+Star Wars' newest Legends show, Visions Presents - The Ninth Jedi, is officially on Disney+, and you can watch all eight episodes right now.
+---------
+
+# Hogwarts Legacy Map Expansion Finally Lets You Explore London
+
+Gaming, Hogwarts Legacy
+
+Wed, 05 Aug 2026 11:30:12 GMT
+
+https://screenrant.com/hogwarts-legacy-diagon-alley-fan-expansion-london/
+
+Fans of Hogwarts Legacy can now explore the magical streets of Diagon Alley and Knockturn Alley.
+---------
+
+# Legend Of Zelda: Wind Waker 2 Finally Confirmed, But There's A Catch
+
+Gaming, The Legend of Zelda, The Legend of Zelda: The Wind Waker
+
+Wed, 05 Aug 2026 11:00:11 GMT
+
+https://screenrant.com/legend-of-zelda-wind-waker-2-cancelled/
+
+Wind Waker has become one of the most highly appreciated Zelda games of all time, and things could easily have been very different.
+---------
+
+# DC Officially Confirms Heartbreaking Batman Fan Theory
+
+Comics, Batman, Alfred Pennyworth
+
+Wed, 05 Aug 2026 12:00:16 GMT
+
+https://www.cbr.com/batman-superman-worlds-finest-annual-1-confirms-alfred-theory/
+
+The debate over a long-pondered Batman/ally dynamic is settled.
+---------
+
+# Event Horizon Officially Reveals The Truth About the Spaceship 27 Years Later
+
+Comics, Event Horizon
+
+Wed, 05 Aug 2026 11:34:32 GMT
+
+https://www.cbr.com/event-horizon-officially-reveals-truth-spaceship/
+
+In a CBR review of Event Horizon: Inferno #3, see how the official sequel to the classic film confirms the truth behind the iconic ship
+---------
+
+# Marvel's New Replacement for The Punisher Is Already Outshining Daredevil: Born Again
+
+TV, The Punisher, Daredevil: Born Again, Spider-Man: Brand New Day, MCU
+
+Wed, 05 Aug 2026 11:30:16 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-perfect-punisher-continuation/
+
+The Punisher has struggled to find his post-Netflix niche, but the MCU has finally found the  right vehicle for him to shine.
+---------
+
+# Heated Rivalry Warns Fans to Give Them 'Space' as Season 2 Filming Nears
+
+TV, Heated Rivalry
+
+Wed, 05 Aug 2026 11:00:15 GMT
+
+https://www.cbr.com/heated-rivalry-season-2-filming-production-update/
+
+The Heated Rivalry producers have a message for fans as the hit romance series starring Hudson Williams and Connor Storrie gears up for Season 2.
+---------
+
+# 10 Best The Far Side Comic Strips From the 1980s, Ranked
+
+Comics, The Far Side
+
+Wed, 05 Aug 2026 11:00:15 GMT
+
+https://www.cbr.com/best-the-far-side-comics-1980s-ranked/
+
+Launching on December 31st, 1979, The Far Side's first ten years were filled with some of the most iconic strips for longtime readers.
+---------
+
+# The 1967 Psychedelic Rock Classic That Defined the Summer of Love
+
+Movie Features, Music, Rock
+
+Wed, 05 Aug 2026 12:42:15 GMT
+
+https://collider.com/the-doors-summer-of-love-light-my-fire/
+
+The Doors' hit psychedelic rock anthem "Light My Fire" was the biggest hit of the 1967 Summer of Love, embodying the counterculture movement
+---------
+
+# After ‘The Odyssey,’ Anne Hathaway Takes on Her Darkest Role in Paramount+’s 6-Part Thriller
+
+TV Features, Anne Hathaway, Paramount Plus, Series, True Crime
+
+Wed, 05 Aug 2026 12:25:15 GMT
+
+https://collider.com/anne-hathaway-fear-not-paramount-plus-the-odyssey/
+
+Anne Hathaway follows The Odyssey with Fear Not, a Paramount+ thriller based on one of true crime’s most unusual survivor stories.
+---------
+
+# 10 Greatest Disco Songs from Rock Artists
+
+Music Features, Music, Disco, Rock, Blondie
+
+Wed, 05 Aug 2026 12:11:15 GMT
+
+https://collider.com/best-disco-songs-rock-artists-ranked/
+
+"Heart of Glass" by Blondie and "I Was Made for Loving You" by Kiss are among the best disco songs from rock music artists.
+---------
+
+# The MCU's 'Avengers: Doomsday' Tie-In Series Resurfaces on Streaming
+
+TV News, Loki, Tom Hiddleston, MCU, Disney+
+
+Wed, 05 Aug 2026 12:00:15 GMT
+
+https://collider.com/mcu-loki-streaming-success-disney-plus-august-2026/
+
+The Loki series, featuring Tom Hiddleston, has resurfaced in the global top 10 streaming charts, captivating fans worldwide.
+---------
+
+# Prime Video's Forgotten Revenge Thriller Is Now Taking Over the Streaming
+
+Movie Features
+
+Wed, 05 Aug 2026 11:51:15 GMT
+
+https://collider.com/prime-videos-forgotten-revenge-ruthless-taking-over-streaming/
+
+Art Camacho's vigilante thriller starring Dermot Mulroney and Melisa Diaz is dominating streaming charts three years later.
+---------
+
+# ABC's Forgotten 22-Episode Sci-Fi Series Is One of TV's Best Thrillers
+
+TV Features, FlashForward, ABC, John Cho, Joseph Fiennes
+
+Wed, 05 Aug 2026 11:49:15 GMT
+
+https://collider.com/flashforward-abc-sci-fi-thriller/
+
+ABC cancelled FlashForward far too soon, but that doesn't mean this thriller series isn't worth revisiting.
+---------
+
+# 7 Crime Show Endings That Are Genuine Masterpieces
+
+TV, Crime, The Sopranos, Breaking Bad, Peaky Blinders
+
+Wed, 05 Aug 2026 11:41:15 GMT
+
+https://collider.com/crime-show-endings-masterpieces/
+
+It's a badge of honor to end a series well, but crime shows like HBO's The Sopranos and AMC's Breaking Bad have endings that are true masterpieces.
+---------
+
+# 10 Most Challenging Movies of All Time
+
+Movie, Babylon, Jeanne Dielman, 23, quai du Commerce, 1080 Bruxelles, Sátántangó, Heaven's Gate
+
+Wed, 05 Aug 2026 11:36:15 GMT
+
+https://collider.com/most-challenging-movies-all-time-ranked/
+
+Some of the longest and most challenging movies of all time include unconventional arthouse classics like Out 1, Satantango, and Eros + Massacre.
+---------
+
+# $3.3 Billion Dystopian Sci-Fi Franchise Finally Returns in 100 Days
+
+Movie News, The Hunger Games: Sunrise on the Reaping, The Hunger Games, Sci-Fi, Box Office
+
+Wed, 05 Aug 2026 11:30:16 GMT
+
+https://collider.com/the-hunger-games-sunrise-on-the-reaping-november-2026/
+
+The Hunger Games franchise's return to theaters is now about 100 days away, bringing fans back to the sci-fi world of Panem.
+---------
+
+# The 10 Greatest Classic Fantasy Movies, Ranked
+
+Movie, Fantasy, The Wizard of Oz, The Seventh Seal, Mary Poppins
+
+Wed, 05 Aug 2026 11:16:15 GMT
+
+https://collider.com/best-classic-fantasy-movies-all-time-ranked/
+
+The Seventh Seal, Mary Poppins, and Sleeping Beauty are among the greatest classic fantasy movies from the golden age of cinema.
+---------
+
+# Jon Bernthal & Taylor Sheridan's 10/10 Action Thriller Shoots to Streaming Success
+
+Movie News, Sicario, Jon Bernthal, Taylor Sheridan, Action, Thriller
+
+Wed, 05 Aug 2026 12:00:12 GMT
+
+https://movieweb.com/sicario-bernthal-sheridan-action-stream-august-2026/
+
+The action outing is nothing less than a modern masterpiece.
+---------
+
+# 'Ted Lasso's Season 4 Debut Rewrites the Apple TV Show's Rules Forever
+
+Features, Ted Lasso, Jason Sudeikis, Apple TV, Comedy, Hannah Waddingham, Juno Temple
+
+Wed, 05 Aug 2026 12:00:12 GMT
+
+https://movieweb.com/ted-lasso-season-4-rewrites-setting-rules/
+
+Three years after its end, Apple TV's 'Ted Lasso' is back for Season 4, but the show surprisingly doesn't revisit the main setting of Richmond first.
+---------
+
+# 'Ted Lasso' Season 4 Rotten Tomatoes Score Officially Revealed
+
+TV News, Ted Lasso, Comedy, Jason Sudeikis, Hannah Waddingham, Rotten Tomatoes, Apple TV
+
+Wed, 05 Aug 2026 11:00:40 GMT
+
+https://movieweb.com/ted-lasso-season-4-rotten-tomatoes-score/
+
+Apple TV's 'Ted Lasso' returns with Season 4, three years after it first ended, but what do Rotten Tomatoes critics have to say about Ted's comeback?
+---------
+
+# New "Taylor Sheridan Meets Guy Ritchie" Crime Thriller Is Worth Catching Up On
+
+Features, The Westies, Crime
+
+Wed, 05 Aug 2026 11:00:12 GMT
+
+https://movieweb.com/the-westies-crime-thriller-mgm/
+
+Taylor Sheridan and Guy Ritchie are two of the top names in crime thrillers, and MGM+'s new show 'The Westies' nails the most iconic themes from both.
+---------
+
+# Netflix's 107-Minute Sci-Fi Action Thriller Named One of 2026's Biggest Hits
+
+Movie News, War Machine, Hot on Streaming, Alan Ritchson, Action, Netflix
+
+Wed, 05 Aug 2026 11:00:12 GMT
+
+https://movieweb.com/war-machine-sci-fi-action-biggest-streaming-netflix-august-2026/
+
+New data has revealed just how big Netflix's hit Alan Ritchson sci-fi action thriller became in the first half of 2026.
+---------
+
 # Pokémon Officially Unveils Mewtwo Redesign For 30th Anniversary
 
 Gaming, Pokemon
