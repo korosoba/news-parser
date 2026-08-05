@@ -1,3 +1,366 @@
+# Mike Flanagan Teases Major Ending Change For Next Stephen King Adaptation: “Everyone Thinks They [Know]”
+
+TV, Carrie, Stephen King, Horror, Prime Video
+
+Wed, 05 Aug 2026 18:08:40 GMT
+
+https://screenrant.com/mike-flanagan-stephen-king-carrie-adaptation-ending-change-tease/
+
+Mike Flanagan teases that his next Stephen King adaptation at Prime Video is making a few major changes from its iconic source material.
+---------
+
+# Timothy Olyphant’s Hit New Series Adaptation Of Bestseller Officially Returning For Season 2
+
+TV
+
+Wed, 05 Aug 2026 18:07:34 GMT
+
+https://screenrant.com/the-five-star-weekend-season-2-renewal-peacock/
+
+There may be more Timothy Olyphant on your screen, as the veteran actor's record-breaking reunion with Jennifer Garner seals its future.
+---------
+
+# This Marvel Superhero Is The Undisputed King Of Flawless Casting
+
+Movies, X-Men
+
+Wed, 05 Aug 2026 18:07:29 GMT
+
+https://screenrant.com/x-men-xavier-best-actors/
+
+Marvel has been phenomenal in terms of its superhero casting choices, but one character has somehow never had a bad actor in the bunch.
+---------
+
+# 3 Greatest Square Enix RPGs From The PS2 Era
+
+Gaming, Square Enix, Kingdom Hearts II, Final Fantasy X, Dragon Quest
+
+Wed, 05 Aug 2026 18:00:11 GMT
+
+https://screenrant.com/greatest-square-enix-rpgs-ps2/
+
+Square Enix had an amazing run on the PlayStation 2, but these three RPGs were the greatest to appear on the console in the early 2000s.
+---------
+
+# Strange New Worlds’ Horror Episode Sets Up 3 Big Star Trek Events
+
+Streaming TV, Star Trek, Star Trek: Strange New Worlds
+
+Wed, 05 Aug 2026 18:00:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-kirk-laan-spock-events-set-up/
+
+"The Griffin Incident" isn't just a scarefest. It also laid down the seeds for major character developments in Star Trek: Strange New Worlds season 4.
+---------
+
+# R-Rated Dystopian Movie With A Genre Twist Stumbles In Rotten Tomatoes Score Debut
+
+Movies, Masked Recs
+
+Wed, 05 Aug 2026 17:59:16 GMT
+
+https://screenrant.com/callum-turner-one-night-only-rotten-tomatoes-score/
+
+A new R-rated dystopian movie with a genre twist stumbles in its Rotten Tomatoes score debut ahead of its release date on Friday, August 7.
+---------
+
+# After 63 Years, Is Marvel Finally Giving Iron Man A Canon Son?
+
+Marvel Comics, Iron Man, Marvel
+
+Wed, 05 Aug 2026 17:50:37 GMT
+
+https://screenrant.com/iron-man-son-tony-stark/
+
+Iron Man may finally be on the verge of having a son of his own, potentially marking a significant shift in Tony Stark's comic book history.
+---------
+
+# 10 Most Popular Spider-Man: Brand New Day Fan Theories, Ranked By How Accurate They Were
+
+Movies, Spider-Man: Brand New Day
+
+Wed, 05 Aug 2026 17:45:11 GMT
+
+https://screenrant.com/spiderman-brand-new-day-fan-theories-ranked-accuracy/
+
+Fans have speculated for so long about Sadie Sink's character, the identity of the main villain, and more in Spider-Man: Brand New Day.
+---------
+
+# Batman: Knightfall Team Explains The New DC Animated Movie's Take On Bane
+
+Comic-Con, Batman: Knightfall Part 1: Knightfall, Batman, San Diego Comic-Con
+
+Wed, 05 Aug 2026 17:28:21 GMT
+
+https://screenrant.com/video/batman-knightfall-bane-michael-mando-interview-sdcc-2026/
+
+Batman: Knightfall star Michael Mando, supervising producer Rick Morales, and producer Jim Krieg break down how they handled the villain that breaks the Bat in the newest DC animated movie.
+---------
+
+# 10 Most Overpowered Anime Villains, Officially Ranked
+
+Anime, Naruto: Shippuden, Hunter x Hunter, Gurren Lagann
+
+Wed, 05 Aug 2026 18:16:14 GMT
+
+https://www.cbr.com/most-op-anime-villains-officially-ranked/
+
+Anime villains break every ceiling within their respective series, turning combat into something closer to collapsing physics.
+---------
+
+# Netflix’s New 6-Part Drama With 100% RT Is the No. 2 Show Worldwide in Just 6 Days
+
+TV, The Bombing of Pan Am 103
+
+Wed, 05 Aug 2026 18:15:50 GMT
+
+https://www.cbr.com/the-bombing-of-pan-am-103-drama-netflix-success-august-2026/
+
+It didn't take long for the highly acclaimed new drama to become a major streaming success.
+---------
+
+# 35 Smartest Anime Characters Of All Time, Ranked
+
+Anime, Death Note, Jojo's Bizarre Adventure, Dr. Stone, Classroom of the Elite, Assassination Classroom (2013), Detective Conan
+
+Wed, 05 Aug 2026 18:00:16 GMT
+
+https://www.cbr.com/smartest-anime-characters-ranked/
+
+Cunning and brilliant characters like Dr. Stone's Senku Ishigami and Death Note's Light Yagami are quick to prove they're the smartest in the room.
+---------
+
+# One Night Only: Este Haim Wants More Acting Roles
+
+Movies, One Night Only
+
+Wed, 05 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/video/one-night-only-este-haim-wants-more-acting-roles/
+
+Este Haim talks One Night Only, acting, and composing the film's score in this exclusive interview. She explains how working as both an actor and composer gave her a unique perspective on the movie and why being on set inspired her creatively.
+---------
+
+# Studio Ghibli Meets Stardew Valley in New RPG Coming This Month
+
+Games, Video Games, Steam
+
+Wed, 05 Aug 2026 17:30:15 GMT
+
+https://www.cbr.com/starsand-island-early-access-steam-august-release/
+
+A new cozy life simulation game coming out this month will put a fledgling studio on the map.
+---------
+
+# Fox's Forgotten 13-Episode Sci-Fi Show Is an Instant '90s Classic
+
+TV, VR.5, Sci-Fi
+
+Wed, 05 Aug 2026 17:30:15 GMT
+
+https://www.cbr.com/fox-vr5-forgotten-90s-sci-fi-show/
+
+VR.5 only aired for thirteen episodes on Fox, but its early focus on virtual reality gives the cult classic sci-fi series lasting appeal today
+---------
+
+# 8 Villains Perfect for Spider-Man 5
+
+Movies, Spider-Man: Brand New Day, MCU, superheroes
+
+Wed, 05 Aug 2026 17:30:15 GMT
+
+https://www.cbr.com/spider-man-5-villains-after-brand-new-day-ranked-list/
+
+After Spider-Man: Brand New Day, we want to see these iconic (or lesser-known) villains face off against Tom Holland's Peter Parker in Spider-Man 5.
+---------
+
+# Japan Officially Crowns Its Greatest Isekai Anime of 2026 (& It’s Not Re:Zero)
+
+Anime, Isekai
+
+Wed, 05 Aug 2026 17:20:25 GMT
+
+https://www.cbr.com/best-isekai-anime-2026-japan-dmm-tv/
+
+New streaming data from Japan has finally settled the debate regarding the best isekai anime of 2026.
+---------
+
+# Marvel's Wolverine Officially Confirms In-Game Purchases Ahead of September 15 Launch Date
+
+Games, Marvel's Wolverine
+
+Wed, 05 Aug 2026 17:20:15 GMT
+
+https://www.cbr.com/marvel-wolverine-official-in-game-purchases-confirmed-september-15/
+
+Marvel's Wolverine's ESRB rating has provided new insight into the game, with a confirmation that the upcoming title will contain in-game purchases.
+---------
+
+# One Night Only: Will Gluck on Finding the Perfect Leads
+
+Movies, One Night Only
+
+Wed, 05 Aug 2026 17:07:22 GMT
+
+https://www.cbr.com/video/one-night-only-will-gluck-on-finding-the-perfect-leads/
+
+One Night Only director Will Gluck breaks down the world-building, romance, and surprising production choices behind the new romantic comedy starring Monica Barbaro and Callum Turner.
+---------
+
+# Lucky: Dutch’s Gunshot Was Designed to Terrify You | Collider BTS
+
+TV, Lucky
+
+Wed, 05 Aug 2026 18:15:15 GMT
+
+https://collider.com/video/lucky-dutch-s-gunshot-was-designed-to-terrify-you-collider-bts/
+
+How do you balance action, emotion, romance, and suspense in a single episode? Aika Miyake, editor of Apple TV+'s Lucky, explains the creative decisions that shaped Episode 2 and why every cut serves the emotional journey of its central character.
+---------
+
+# Peacock's Most Successful Series Ever Officially Returning for Season 2
+
+TV News, Jennifer Garner, Peacock, D'Arcy Carden, The Five-Star Weekend
+
+Wed, 05 Aug 2026 18:00:05 GMT
+
+https://collider.com/peacocks-most-successful-series-ever-officially-returning-for-season-2/
+
+Peacock's most successful original series of all time, Five Star Weekend, has officially had its Season 2 fate decided. Read on for more details!
+---------
+
+# All 10 Charli XCX Albums, Ranked
+
+Music Features, Charli XCX, Music, Wuthering Heights, The Moment
+
+Wed, 05 Aug 2026 17:42:15 GMT
+
+https://collider.com/charli-xcx-albums-ranked/
+
+Charli XCX has released plenty of memorable albums throughout the 2010s and 2020s, including Brat and Music, Fashion, Film, but which is the best?
+---------
+
+# ‘Zero Dark Thirty’ Meets ‘Mindhunter’ in Joel Kinnaman’s New CIA Thriller Officially Arriving Next Month
+
+TV News, Joel Kinnaman, RoboCop, TNT, Thriller
+
+Wed, 05 Aug 2026 17:30:15 GMT
+
+https://collider.com/joel-kinnaman-high-value-target-trailer-release-date/
+
+TNT has released the first trailer for Joel Kinnaman's new CIA thriller, High Value Target: The Hunt for Saddam, which premieres in September.
+---------
+
+# Eli Roth Explains How ‘Terrifier’ Paved the Way for Unrated Horror in Movie Theaters
+
+Exclusives, Ice Cream Man, Eli Roth, SDCC, Snoop Dogg
+
+Wed, 05 Aug 2026 17:09:00 GMT
+
+https://collider.com/eli-roth-ice-cream-man-terrifier-unrated-horror-movie-theaters/
+
+Horror director Eli Roth explains the surprising influence Damien Leone's Terrifier franchise had on his new film, Ice Cream Man.
+---------
+
+# Star Wars Director Officially Teams With 'Love Hypothesis' Author for New Netflix Movie
+
+Movie News, The Love Hypothesis, Netflix, Shawn Levy, Romance
+
+Wed, 05 Aug 2026 17:01:38 GMT
+
+https://collider.com/ali-hazelwood-deep-end-netflix-adaptation-shawn-levy/
+
+Love Hypothesis author Ali Hazelwood and Star Wars director Shawn Levy are officially teaming up for a Netflix adaptation of the novelist's newest rom
+---------
+
+# Disney+ Officially Exploring Major Streaming Platform Change
+
+TV News, Disney+, Disney, Streaming
+
+Wed, 05 Aug 2026 18:04:07 GMT
+
+https://movieweb.com/disney-plus-free-streaming-channel-official/
+
+Will Disney's changes give them an edge in the streaming wars?
+---------
+
+# Taylor Sheridan’s Thriller We’ve Been Waiting For Is Less Than a Year Away
+
+Features, Taylor Sheridan, Lioness
+
+Wed, 05 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/taylor-sheridan-fast-action-thriller-movie/
+
+Taylor Sheridan has created many popular TV shows like 'Yellowstone' and written movies such as 'Sicario,' and his new action thriller is on the way.
+---------
+
+# Netflix's Canceled Gothic Fantasy Epic Reawakens With New Release
+
+TV News, The Sandman, Netflix
+
+Wed, 05 Aug 2026 17:48:21 GMT
+
+https://movieweb.com/netflix-the-sandman-blu-ray-release/
+
+Warner Bros. Home Entertainment is preparing a Blu-ray release for Netflix's canceled gothic fantasy adaptation of Neil Gaiman's 'The Sandman.'
+---------
+
+# Netflix's 5-Part 9/10 Sci-Fi Thriller Is Officially the Year's Biggest Show on Streaming
+
+TV News, Stranger Things, Hot on Streaming, Netflix
+
+Wed, 05 Aug 2026 17:30:12 GMT
+
+https://movieweb.com/stranger-things-netflix-biggest-show-2026-august/
+
+Did anyone really doubt which show would be crowned the biggest series of 2026?
+---------
+
+# Apple TV's New Sci-Fi Action Thriller Adaptation Reaches Major Milestone
+
+Movie News, Yahya Abdul-Mateen II, Vanessa Kirby, Apple TV
+
+Wed, 05 Aug 2026 17:18:10 GMT
+
+https://movieweb.com/apple-tv-liminal-production-update/
+
+There's been a significant update to Apple TV's sci-fi thriller movie.
+---------
+
+# Richard Madden To Lead "Raid Meets Die Hard" Thriller Streaming Series
+
+TV News, Richard Madden
+
+Wed, 05 Aug 2026 17:10:26 GMT
+
+https://movieweb.com/richard-madden-trauma-thriller-paramount-series/
+
+The upcoming action thriller series takes influence from many of the genre's classics.
+---------
+
+# 10 Great Directors With Bad First Movies They Almost Didn't Recover From
+
+Movie Lists, Drama, Comedy, Thriller, Horror
+
+Wed, 05 Aug 2026 17:01:12 GMT
+
+https://movieweb.com/great-directors-bad-first-movies/
+
+From Stanley Kubrick to Zach Cregger, some of the greatest filmmakers of all time got off to a rough start with their directorial debuts.
+---------
+
+# The True Story Behind Guy Ritchie's 'The Covenant,' Explained
+
+Features, Guy Ritchie's The Covenant, Guy Ritchie
+
+Wed, 05 Aug 2026 17:01:12 GMT
+
+https://movieweb.com/guy-ritchie-the-covenant-true-story-explained/
+
+Discover the haunting true story behind Guy Ritchie's 'The Covenant.'
+---------
+
 # 44 Years Later, Sam Malone's Best Cheers Line Is Still A Top 5 Sitcom Quote
 
 Classic TV, Cheers
