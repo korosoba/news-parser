@@ -1,3 +1,377 @@
+# 5 Fantasy K-Dramas That Are 10/10 Perfect
+
+Classic TV, K-Drama, Fantasy
+
+Thu, 06 Aug 2026 01:30:11 GMT
+
+https://screenrant.com/perfect-fantasy-kdramas-ranked/
+
+As understandably one of the biggest sub-genres in the K-drama industry, Korean fantasy is truly on another level with its superb storytelling.
+---------
+
+# 6 Supernatural Comedies Better Than Ghosts
+
+Streaming TV, Ghosts
+
+Thu, 06 Aug 2026 01:15:11 GMT
+
+https://screenrant.com/ghosts-tv-show-supernatural-comedy-better/
+
+The TV show Ghosts is peak supernatural comedy, but these 6 shows do the genre even better, striking a perfect balance between fantasy and humor.
+---------
+
+# Blade Runner Is Abandoning Its Original Premise (& That's A Good Thing)
+
+Streaming TV, Blade Runner, Masked Recs
+
+Thu, 06 Aug 2026 01:00:11 GMT
+
+https://screenrant.com/blade-runner-2099-abandon-original-premise/
+
+Blade Runner 2099 is throwing out the franchise's original premise and evolving its worldbuilding in the aftermath of a replicant uprising.
+---------
+
+# Pokémon Ultra Eclipse Is Taking Players Back To Alola, All Thanks To The Fans
+
+Gaming, Pokemon, Pokemon Sun and Moon, PC
+
+Thu, 06 Aug 2026 01:00:11 GMT
+
+https://screenrant.com/pokemon-ultra-eclipse-alola-return/
+
+Pokémon Ultra Eclipse will take players back to fan-favorite Alola for an overhauled Gen 7 nostalgia trip that's unlike anything we've seen before.
+---------
+
+# Ghost Rider's New Movie Brings The MCU One Step Closer To Forming Two Classic Superhero Teams
+
+Movies, Ghost Rider, Marvel Cinematic Universe
+
+Thu, 06 Aug 2026 01:00:11 GMT
+
+https://screenrant.com/ghost-rider-mcu-classic-teams-form-champions-legion-monsters/
+
+With Ryan Gosling joining the MCU as Ghost Rider, Marvel Studios is one step closer to forming two classic superhero teams from Marvel Comics.
+---------
+
+# Apple TV Cancels Remake Of Bruce Willis' 36-Year-Old Box Office Bomb (But There's A Catch)
+
+TV, The Bonfire of the Vanities, Apple TV
+
+Thu, 06 Aug 2026 00:54:35 GMT
+
+https://screenrant.com/bonfire-of-the-vanities-apple-tv-series-canceled/
+
+Apple TV cancels its remake of Bruce Willis' 36-year-old critical and commercial failure, but there is a catch that might keep it alive.
+---------
+
+# Fallout Season 3 Set Photos Reportedly Reveal A Major Game Organization’s Live-Action Debut
+
+TV, Fallout
+
+Thu, 06 Aug 2026 00:47:56 GMT
+
+https://screenrant.com/fallout-season-3-set-photos-reportedly-reveal-order-of-the-quill-debut/
+
+Reported Fallout season 3 set photos reveal that one of the video games' organizations will make an appearance in the upcoming chapter.
+---------
+
+# After 23 Years, Marvel Solves a Major Spider-Man Mystery For Good
+
+Marvel Comics, Spider-Man
+
+Thu, 06 Aug 2026 00:45:43 GMT
+
+https://screenrant.com/spider-man-future-mary-jane/
+
+Spider-Man's future has already been written, and a beautiful yet heartbreaking new story explains, more or less, how it comes to be for Peter Parker.
+---------
+
+# Star Wars Redefines What It Means To Be A "Gray Jedi"
+
+Streaming TV, Star Wars, Star Wars: Visions Presents - The Ninth Jedi
+
+Thu, 06 Aug 2026 00:30:11 GMT
+
+https://screenrant.com/star-wars-gray-jedi-new-definition-ninth-jedi/
+
+Star Wars' latest series offers a new interpretation of what it means to be a "Gray Jedi," as Disney introduces its own version of Star Wars Legends.
+---------
+
+# Ethan Hawke’s Hit Crime Series Hits Exciting Filming Milestone In Set Photos
+
+TV, The Lowdown, Ethan Hawke
+
+Thu, 06 Aug 2026 00:06:37 GMT
+
+https://screenrant.com/the-lowdown-season-2-ethan-hawke-sterlin-harjo-filming-complete/
+
+Ethan Hawke's TV show The Lowdown earned critical acclaim when it premiered in late 2025, and now there's a big update about season 2's production.
+---------
+
+# 7 Classic SNES RPGs That Are 10/10 Masterpieces
+
+Games, Video Games, Nintendo, Chrono Trigger, Earthbound
+
+Thu, 06 Aug 2026 01:45:14 GMT
+
+https://www.cbr.com/classic-snes-rpgs-1010-masterpieces/
+
+The SNES changed the gaming landscape forever with masterpieces like Chrono Trigger and Secret of Mana.
+---------
+
+# X-Men Star's Forgotten Crime Thriller Becomes a Massive Streaming Hit 3 Years Later
+
+Movies, Asphalt City, Netflix, Thriller
+
+Thu, 06 Aug 2026 01:30:14 GMT
+
+https://www.cbr.com/asphalt-city-crime-thriller-success-netflix-august-2026/
+
+Bad Boys meets The Pitt in this underseen watch.
+---------
+
+# 10 Most Unforgettable Sanji Fights In One Piece
+
+Anime, One Piece
+
+Thu, 06 Aug 2026 01:25:15 GMT
+
+https://www.cbr.com/one-piece-unforgettable-sanji-fights/
+
+Sanji's fights in One Piece range from being visual treats to action-packed masterpieces to devastating and tragic.
+---------
+
+# ABC’s Near-Perfect 2-Part Crime Show Surges on Streaming Ahead of New Episodes
+
+TV, High Potential, Disney+, Crime
+
+Thu, 06 Aug 2026 01:00:15 GMT
+
+https://www.cbr.com/high-potential-crime-success-disney-plus-august-2026/
+
+ABC's High Potential is rising in the streaming charts.
+---------
+
+# 5 Most Powerful One Piece TCG Banned Cards
+
+Games, One Piece, TCG, Tabletop
+
+Thu, 06 Aug 2026 00:45:15 GMT
+
+https://www.cbr.com/5-most-powerful-one-piece-tcg-banned-cards/
+
+When a single card dictates the flow of high-level tournaments, a ban becomes the only solution to maintain a healthy, interactive playing field.
+---------
+
+# Hulu’s 8-Part Thriller With 98% RT Dominates Streaming as the No. 1 Show Worldwide
+
+TV, Furious, Hulu, Disney+
+
+Thu, 06 Aug 2026 00:30:14 GMT
+
+https://www.cbr.com/furious-crime-thriller-disney-plus-hulu-success-august-2026/
+
+Hulu's new crime thriller, Furious, is the No. 1 show in the world.
+---------
+
+# 59 Years Later, Kirk's Best Star Trek Line Is Still the Greatest Quote in Sci-Fi History
+
+TV, Star Trek, Sci-Fi, Paramount
+
+Thu, 06 Aug 2026 00:30:14 GMT
+
+https://www.cbr.com/star-trek-captain-kirk-best-sci-fi-line/
+
+Kirk's iconic speech in a Season 1 episode perfectly explains how humans can acknowledge a dark past while choosing a better path today.
+---------
+
+# Solo Leveling Fans Get First-Look at System Sync Ahead of August 14 Release
+
+Anime, Solo Leveling, Omniscient Reader, merchandise
+
+Thu, 06 Aug 2026 00:20:15 GMT
+
+https://www.cbr.com/solo-leveling-orv-system-sync-first-look/
+
+Solo Leveling teams up with Omniscient Reader's Viewpoint for 'System Sync' on August 14, and manhwa fans just got their first look at what to expect.
+---------
+
+# 5 Manga Masterpieces That Are Perfectly Written
+
+Anime, Manga, Slam Dunk
+
+Thu, 06 Aug 2026 00:15:14 GMT
+
+https://www.cbr.com/manga-masterpieces-that-are-perfectly-written/
+
+These manga masterpieces are undeniably perfect from start to finish.
+---------
+
+# After 4 Years, Dwayne Johnson’s 125-Minute Fantasy Bomb Finds Streaming Redemption on Netflix
+
+Movies, Black Adam, Fantasy, Netflix
+
+Thu, 06 Aug 2026 00:00:14 GMT
+
+https://www.cbr.com/black-adam-fantasy-success-netflix-august-2026/
+
+Dwayne "The Rock" Johnson's fantasy failure is finally finding redemption on streaming.
+---------
+
+# Sydney Sweeney’s New ‘Housemaid’ Sequel Officially Recruits a ‘Hunting Wives’ Favorite
+
+Movie News, Sydney Sweeney, Brittany Snow, The Housemaid's Secret, Thriller
+
+Thu, 06 Aug 2026 01:45:14 GMT
+
+https://collider.com/sydney-sweeney-the-housemaids-secret-cast-brittany-snow/
+
+The Hunting Wives star Brittany Snow has officially joined the cast of Sydney Sweeney's The Housemaid sequel. Read on for more.
+---------
+
+# Christopher Nolan's 'The Odyssey' Officially Doubles the Box-Office Gross of Ridley Scott’s Biggest Period Epic
+
+Movie News, The Odyssey, Ridley Scott, Christopher Nolan, Box Office
+
+Thu, 06 Aug 2026 01:30:14 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-overtakes-ridley-scott-gladiator-box-office-920-million/
+
+Christopher Nolan's The Odyssey has now grossed more than twice as much as Ridley Scott's biggest period epic. Find out more.
+---------
+
+# Marvel Just Brought Back a Forgotten Superpower That the Comics Abandoned
+
+TV Features, X-Men '97, X-Men: The Animated Series, Disney Plus, Captain Marvel
+
+Thu, 06 Aug 2026 01:18:14 GMT
+
+https://collider.com/x-men-97-just-brought-back-a-forgotten-superpower-marvel-abandoned/
+
+X-Men '97 opens its latest episode with a sequence that pays homage to Rogue's hidden superpower.
+---------
+
+# 'Magic: The Gathering' Is Making a Major Change Following Fan Backlash
+
+Gaming News, Magic: The Gathering, Hasbro, Fantasy, Gaming
+
+Thu, 06 Aug 2026 01:15:14 GMT
+
+https://collider.com/magic-the-gathering-secret-lair-scalping-backlash-response/
+
+Wizards of the Coast announces a hybrid release system for Secret Lair products, addressing fan complaints about limited availability and scalpers.
+---------
+
+# 10 Best Adventure Movies in Film History
+
+Movie, Adventure, Dune: Part Two, Indiana Jones and the Last Crusade, Lawrence of Arabia
+
+Thu, 06 Aug 2026 01:03:14 GMT
+
+https://collider.com/best-adventure-movies-film-history/
+
+Indiana Jones and the Last Crusade, Lawrence of Arabia, and Dune: Part Two are among the absolute greatest adventure movies ever made.
+---------
+
+# In 5 Days, 'Spider-Man: Brand New Day' Officially Swings Past the Greatest Superhero Movie of All Time
+
+Movie News, Spider-Man: Brand New Day, Box Office, Tom Holland, The Dark Knight
+
+Thu, 06 Aug 2026 01:00:15 GMT
+
+https://collider.com/spider-man-brand-new-day-overtakes-the-dark-knight-box-office-1-billion/
+
+Spider-Man: Brand New Day has overtaken Christopher Nolan's seminal superhero hit in less than one week of release at the box office. Find out more.
+---------
+
+# 2 ‘Game of Thrones’ Legends Are Officially Joining the Latest Agatha Christie Series
+
+TV News, Agatha Christie, A Knight Of The Seven Kingdoms, Edward Bluemel, Britbox
+
+Thu, 06 Aug 2026 00:45:14 GMT
+
+https://collider.com/agatha-christie-hercule-cast-henry-ashton-jack-gleeson/
+
+2 Game of Thrones franchise stars are officially joining the cast of the BBC's hotly anticipated Agatha Christie prequel, Hercule.
+---------
+
+# 6 Most Perfect Action Movies Released Since 2000
+
+Movie, Action, Mad Max: Fury Road, Mission: Impossible - Fallout, The Raid: Redemption
+
+Thu, 06 Aug 2026 00:31:14 GMT
+
+https://collider.com/most-perfect-action-movies-since-2000-ranked/
+
+From John Wick to Top Gun: Maverick, these action movies prove real stakes and precision beat spectacle every time.
+---------
+
+# 'Doctor Who's Most Divisive Showrunner Sheds Light on the Show's Cancellation
+
+TV News, Doctor Who, BBC, Chris Chibnall, Sci-Fi
+
+Thu, 06 Aug 2026 00:30:14 GMT
+
+https://collider.com/doctor-who-showrunner-chris-chibnall-cancellation-explained/
+
+With the future of Doctor Who now officially on hold, a previous showrunner of the sci-fi show has added some more context.
+---------
+
+# 6 Fantasy Books That Give The Lord of the Rings a Run for Its Money
+
+Books and Comics, Books, Fantasy, The Lord of the Rings, George R.R. Martin
+
+Thu, 06 Aug 2026 00:17:14 GMT
+
+https://collider.com/fantasy-books-give-the-lord-of-the-rings-a-run-for-its-money/
+
+JRR Tolkien's The Lord of the Rings is masterpiece of fantasy, but some great books like A Storm of Swords and The Name of the Wind rival it.
+---------
+
+# 10 Greatest Modern Classic Fantasy TV Shows With Masterful World-Building
+
+TV Lists, Fantasy, Game Of Thrones, The Lord of the Rings: The Rings of Power, The Witcher
+
+Thu, 06 Aug 2026 01:00:12 GMT
+
+https://movieweb.com/modern-classic-fantasy-shows-greatest-world-building/
+
+Many factors contribute to these fantasy shows being modern classics, and masterful world-building is one way they stand out.
+---------
+
+# Iconic Cult-Classic Supernatural Thriller Gets New Release With Unseen Footage
+
+Movie News, Blair Witch Project
+
+Thu, 06 Aug 2026 00:10:00 GMT
+
+https://movieweb.com/blair-witch-project-unseen-remastered-cut-blu-ray-vhs/
+
+The restored and remastered cut of 'The Blair Witch Project' was only shown in theaters in 2024.
+---------
+
+# Matt Damon's Original Netflix Action Thriller Tops 2026's Biggest Movies
+
+Movie News, The Rip, Hot on Streaming, Matt Damon, Ben Affleck, Action, Netflix
+
+Thu, 06 Aug 2026 00:00:12 GMT
+
+https://movieweb.com/the-rip-matt-damon-action-netflix-biggest-streaming-movie/
+
+Released back in January, Damon's action thriller inspired by true events is officially the biggest streaming movie of the year so far.
+---------
+
+# Every Upcoming Marvel Movie Into 2028 & Beyond
+
+Movie Lists, Marvel Cinematic Universe, Spider-Man: Brand New Day
+
+Thu, 06 Aug 2026 00:00:12 GMT
+
+https://movieweb.com/every-upcoming-marvel-movie-2028-beyond/
+
+Here is every Marvel movie currently set for release after 'Spider-Man: Brand New Day.'
+---------
+
 # The Mandalorian Officially Returns To Disney+ With A New Special Next Month
 
 Streaming TV, The Mandalorian, Star Wars
