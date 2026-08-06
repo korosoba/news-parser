@@ -1,3 +1,366 @@
+# Acclaimed 2025 Crime Thriller Returns With Explosive Sequel, And Its First Preview Is Epic (Exclusive)
+
+Books, Thriller, Crime
+
+Thu, 06 Aug 2026 15:05:56 GMT
+
+https://screenrant.com/take-hart-crime-thriller-corey-los-angeles-sequel/
+
+One of 2025's best crime thrillers is officially back with a new sequel and this exclusive first look will have you hooked to check it out.
+---------
+
+# Zelda: Ocarina Of Time Remake Official Release Date Update Shared By Nintendo
+
+Gaming, The Legend of Zelda: Ocarina of Time, Triple-A Games
+
+Thu, 06 Aug 2026 14:59:50 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-release-date-update-official/
+
+While Nintendo has been coy on the release date of the Zelda: Ocarina of Time remake, we just got an official financial update that clues us in.
+---------
+
+# Assassin’s Creed Officially Confirms The Start Of A Brand-New Era
+
+Gaming, Assassin's Creed, Triple-A Games
+
+Thu, 06 Aug 2026 14:57:43 GMT
+
+https://screenrant.com/assassins-creed-new-era-confirmed/
+
+After plenty of ups and downs, Assassin's Creed has announced some news that will guide the franchise's direction for the foreseeable future.
+---------
+
+# Stephen King Sets First Acting Role In 7 Years With Returning Disney Series
+
+TV, Big City Greens - Season 5, Big City Greens
+
+Thu, 06 Aug 2026 14:38:51 GMT
+
+https://screenrant.com/disney-big-green-city-season-5-trailer-release-stephen-king/
+
+Legendary horror author and sometime performer Stephen King picks up his first acting role in seven years in a returning Disney series.
+---------
+
+# Kurt Russell's Forgotten Crime Thriller Is Getting A New Release 38 Years Later
+
+Movies, Masked Recs
+
+Thu, 06 Aug 2026 14:33:52 GMT
+
+https://screenrant.com/kurt-russell-michelle-pfeiffer-tequila-sunrise-4k-uhd-release-september-2026/
+
+Kurt Russell's forgotten crime thriller movie is getting a new, exclusive release 38 years later, with plenty of fresh elements in store.
+---------
+
+# 6 Far Side Comics Set On Desert Islands That Are 10/10 Perfect
+
+Comics, The Far Side
+
+Thu, 06 Aug 2026 14:30:11 GMT
+
+https://screenrant.com/far-side-desert-island-flawless-cartoons/
+
+Classic Far Side desert island comics.
+---------
+
+# The Pitt Season 3 Cast Changes Addressed By Noah Wyle Amid Intense Backlash
+
+TV, The Pitt, HBO Max
+
+Thu, 06 Aug 2026 14:26:24 GMT
+
+https://screenrant.com/the-pitt-season-3-cast-changes-fan-backlash-noah-wyle-response/
+
+The Pitt star and executive producer Noah Wyle addresses the intense backlash to the show's cast changes, signaling that the trend will continue.
+---------
+
+# 28 Years Later, Zelda: Ocarina Of Time’s Best Line Is One Of Gaming’s Most Heartbreaking Quotes
+
+Gaming, The Legend of Zelda: Ocarina of Time, PC, The Legend of Zelda
+
+Thu, 06 Aug 2026 14:22:30 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-greatest-quote/
+
+This Ocarina of Time quote still hits us in the feels 28 years later, and will go down as one of the best lines in Zelda franchise history.
+---------
+
+# Superman: Man Of Tomorrow Gets Early Rave Review From WBD CEO
+
+Movies, Man of Tomorrow, Superman, DC Universe, David Zaslav
+
+Thu, 06 Aug 2026 14:15:49 GMT
+
+https://screenrant.com/superman-man-of-tomorrow-early-review-david-zaslav/
+
+As production continues on James Gunn’s Man of Tomorrow, the head of Warner Bros. Discovery gives his early review of the upcoming Superman sequel.
+---------
+
+# Ted Lasso Season 4 Review: The Reboot Saves Its Future
+
+Featured, Originals
+
+Thu, 06 Aug 2026 14:03:49 GMT
+
+https://screenrant.com/video/ted-lasso-season-4-review-the-reboot-saves-its-future/
+
+Ted Lasso Season 4 Review: A Smart New Beginning. After a three-year break, Ted Lasso returns with a bold new direction that manages to feel both familiar and refreshingly different. Rather than simply continuing where Season 3 left off, the series embraces a soft reboot by shifting much of its attention to AFC Richmond's newly formed women's team, the Lady Greyhounds.
+---------
+
+# Avatar 4 Marks the End of Avatar's Jake Sully Era
+
+Movies, Avatar, james cameron, Sci-Fi
+
+Thu, 06 Aug 2026 15:03:21 GMT
+
+https://www.cbr.com/avatar-4-era-end-new-main-character-kiri/
+
+The recent Avatar announcement strengthens the franchise as an ever-expanding, multi-voiced story unfolding across generations.
+---------
+
+# 10 Anime Better Than Solo Leveling If You Love Overpowered Main Characters
+
+Anime, Solo Leveling, Mashle: Magic and Muscles, Frieren: Beyond Journey's End, Mob Psycho 100
+
+Thu, 06 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/anime-better-than-solo-leveling-with-op-main-characters/
+
+Overpowered anime protagonists live or die by what a story does after the fights get easy. What comes after a hero can no longer lose?
+---------
+
+# GTA 6’s First Gameplay Footage Is Officially Locked Behind Netflix for 6 Hours
+
+Games, Grand Theft Auto, Netflix, Video Games
+
+Thu, 06 Aug 2026 14:46:15 GMT
+
+https://www.cbr.com/netflix-officially-charges-for-gta-6-gameplay-footage/
+
+Grand Theft Auto 6 fans without a Netflix subscription better grab a credit card, as the first gameplay footage will be shown on the service.
+---------
+
+# 5 Greatest R-Rated Detective Thrillers, Ranked
+
+Movies, Thriller
+
+Thu, 06 Aug 2026 14:30:16 GMT
+
+https://www.cbr.com/perfect-r-rated-detective-thrillers-list/
+
+Detectives form the heart of the mystery thriller genre, and these films prove its at its best when it embraces the darker side of R-rated crime.
+---------
+
+# Marvel's New X-Men Strategy Fumbles Gambit Ahead of Avengers: Doomsday
+
+TV, X-Men '97, X-Men, Avengers: Doomsday
+
+Thu, 06 Aug 2026 14:30:16 GMT
+
+https://www.cbr.com/x-men-97-gambit-return-rushed/
+
+Gambit has become one of Marvel's most beloved mutant heroes, but Disney+'s latest X-Men project took a misstep with the character.
+---------
+
+# Nintendo Switch 2 Sales Officially Plummet Ahead of Upcoming Price Hike
+
+Games, Nintendo
+
+Thu, 06 Aug 2026 14:20:16 GMT
+
+https://www.cbr.com/nintendo-switch-2-sales-plummet-price-hike/
+
+Nintendo has released its latest financial report, and the Switch 2 has seen a severe sales slump, even as a massive price spike looms.
+---------
+
+# Event Horizon: Christian Ward Expands the Horror | SDCC 2026
+
+Comics, comics
+
+Thu, 06 Aug 2026 14:15:16 GMT
+
+https://www.cbr.com/video/event-horizon-christian-ward-expands-the-horror-sdcc-2026/
+
+Event Horizon creator Christian Ward reveals where the hit horror comic is headed after Dark Descent and Inferno at SDCC 2026.
+---------
+
+# 10 Greatest Action Anime Series of the 21st Century, Ranked
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Naruto, Attack on Titan
+
+Thu, 06 Aug 2026 14:15:16 GMT
+
+https://www.cbr.com/greatest-action-anime-series-21st-century-ranked/
+
+With animation having only gotten better and flashier in the 21st century, action anime have been able to reach new heights.
+---------
+
+# Dragon Ball Unveils 4 New Official Designs for the Strongest Saiyans in the Galaxy
+
+Anime, Dragon Ball
+
+Thu, 06 Aug 2026 14:02:15 GMT
+
+https://www.cbr.com/dragon-ball-saiyan-spaceship-pod-pouch-official/
+
+Bandai is releasing four new collectible pouches featuring Goku, Vegeta, and other anime heroes.
+---------
+
+# Jake Gyllenhaal's 117-Minute Psychological Thriller Masterpiece Is Now Streaming on Netflix
+
+Movies, Nightcrawler, Netflix
+
+Thu, 06 Aug 2026 14:00:15 GMT
+
+https://www.cbr.com/jake-gyllenhaal-thriller-nightcrawler-netflix-streaming-aug-2026/
+
+Gyllenhaal's cult classic film that saw him being snubbed for Best Actor at the Oscars has just arrived on Netflix.
+---------
+
+# ‘Game of Thrones’ Gets Official New Release Dropping in Less Than 48 Hours
+
+Gaming News, Game Of Thrones, House of the Dragon, A Knight Of The Seven Kingdoms, George R.R. Martin
+
+Thu, 06 Aug 2026 14:30:16 GMT
+
+https://collider.com/game-of-thrones-lord-of-light-release-august-7/
+
+Game of Thrones is officially getting a new release and it arrives in less than 48 hours. Get the details on Lord of Light now.
+---------
+
+# 8 Years Later, Nickelodeon’s Bonkers Superhero Family Returns in New Trailer [Exclusive]
+
+Movie News, The Thundermans, The Thundermans Return, Nickelodeon, Paramount Plus
+
+Thu, 06 Aug 2026 14:30:16 GMT
+
+https://collider.com/clash-of-the-thundermans-trailer-release-date/
+
+Watch the exclusive Clash of the Thundermans trailer as Chloe’s dangerous new power divides the family ahead of its September 3 premiere.
+---------
+
+# Robert Pattinson Takes Down Predators in Intense First Trailer for New Crime Thriller
+
+Movie News, Primetime, Robert Pattinson, The Odyssey, The Batman Part II
+
+Thu, 06 Aug 2026 13:00:15 GMT
+
+https://collider.com/robert-pattinson-primetime-trailer/
+
+A24 has released a gripping new trailer for Primetime, with Robert Pattinson transforming into To Catch a Predator host Chris Hansen.
+---------
+
+# 'Ted Lasso' Season 4 Reignites the Show's Most Heartbreaking Storyline
+
+Features, Ted Lasso, Comedy, Apple TV, Jason Sudeikis
+
+Thu, 06 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/ted-lasso-season-4-panic-attacks-heartbreaking-storyline/
+
+'Ted Lasso's Season 4 debut sees the return of one of the Apple TV comedy's most emotional story arcs, centering on the titular character himself.
+---------
+
+# The "Greatest Western of All Time" Is Back on Free Streaming
+
+Movie News, The Good, the Bad and the Ugly, Tubi, Hot on Streaming, Western
+
+Thu, 06 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/the-good-the-bad-and-the-ugly-western-stream-free-tubi-august-2026/
+
+60 years later, nothing has come close to matching it.
+---------
+
+# 9 TV Shows You Didn’t Know Were Based on Comic Books
+
+TV Lists, comics
+
+Thu, 06 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/tv-shows-didnt-know-were-based-on-comic-books/
+
+The comics these shows are based on don't always get the recognition they deserve.
+---------
+
+# Canceled 'Spider-Man' Movie Concept Art Surfaces Online 13 Years Later
+
+Movie News, Spider-Man
+
+Thu, 06 Aug 2026 14:56:20 GMT
+
+https://movieweb.com/canceled-spider-man-movie-concept-art-sinister-six/
+
+A canceled 'Spider-Man' movie would have seen the hero in a savage land against the Sinister Six.
+---------
+
+# Fate of the DCU Addressed After 'Supergirl' Tanks at the Box Office
+
+Movie News, Supergirl, James Gunn, DCU
+
+Thu, 06 Aug 2026 14:55:34 GMT
+
+https://movieweb.com/zaslav-dcu-future-supergirl-box-office/
+
+Warner Bros. Discovery's CEO addressed DC's future on the Q2 earnings call after 'Supergirl' closed at $125.9 million worldwide.
+---------
+
+# UK Officially Bans Supernatural Reboot and Director Has Perfect Response
+
+Movie News, Lee Cronin's The Mummy
+
+Thu, 06 Aug 2026 14:12:45 GMT
+
+https://movieweb.com/the-mummy-posters-banned-lee-cronin/
+
+2026's surprise horror hit caused quite a stir in the UK.
+---------
+
+# 'Star Trek: Strange New Worlds' Worst Episode Is Now Home to a Pivotal Franchise Storyline
+
+Features, star trek: strange new worlds, Star Trek
+
+Thu, 06 Aug 2026 14:00:12 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-spock-kirk-bonding/
+
+Spock & Kirk's friendship is one of the most important elements of 'Star Trek: The Original Series,' and 'Strange New Worlds' knows it. Read on.
+---------
+
+# Robert Pattinson Is on the Hunt in New Trailer for A24 Thriller 'Primetime'
+
+Movie News, Primetime, Robert Pattinson
+
+Thu, 06 Aug 2026 13:29:26 GMT
+
+https://movieweb.com/primetime-trailer-robert-pattinson/
+
+A24 has officially released the first full-length trailer for its upcoming biographical drama, 'Primetime,' starring Robert Pattinson as Chris Hansen.
+---------
+
+# Taylor Sheridan's New Action Thriller Suffers Streaming Setback on Streaming
+
+TV News, Marshals, Paramount Plus, Hot on Streaming, Taylor Sheridan
+
+Thu, 06 Aug 2026 13:00:12 GMT
+
+https://movieweb.com/marshals-taylor-sheridan-stream-paramount-august-2026/
+
+Taylor Sheridan's worst reviewed show to date suffers another setback before Season 2.
+---------
+
+# 'Star Trek: Strange New Worlds' Season 4 Sets up Brutal 'Original Series' Character Retcon
+
+Features, star trek: strange new worlds, Star Trek, Star Trek: The Original Series
+
+Thu, 06 Aug 2026 13:00:12 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-scotty-ortegas-retcon/
+
+Scotty's Star Trek arc is currently changing, thanks to 'Strange New Worlds.' Is it for the best, though? Read on for more.
+---------
+
 # Super Troopers 3 Review: A Goofy Throwback That Finds Some Solid Laughs Amid Dated Comedy
 
 Movies, Super Troopers 3, Super Troopers
