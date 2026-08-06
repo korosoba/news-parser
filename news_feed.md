@@ -1,3 +1,267 @@
+# A Forgotten 2005 PlayStation 2 Game Just Got A Stealth Remaster
+
+Gaming, PlayStation 2, PC, Steam
+
+Thu, 06 Aug 2026 05:00:11 GMT
+
+https://screenrant.com/a-forgotten-2005-playstation-2-game-just-got-a-stealth-remaster/
+
+A remaster for this long-forgotten PlayStation 2 game has been shadow-dropped, and fans should absolutely check it out.
+---------
+
+# K-Pop Demon Hunters Meets Minecraft In New RPG City Builder
+
+Gaming, KPop Demon Hunters, Minecraft, RPG, PC, Steam
+
+Thu, 06 Aug 2026 04:30:11 GMT
+
+https://screenrant.com/k-pop-demon-hunters-meets-minecraft-in-new-rpg-city-builder/
+
+In a bizarre combination that may just work, the iconic music and style of K-Pop Demon Hunters meets Minecraft to create a brand-new city builder RPG.
+---------
+
+# Fallout: Invaders From Beyond Officially Launches August 18
+
+Gaming, Fallout, Fallout 76, Fallout 4, Fallout 5, Bethesda, PC
+
+Thu, 06 Aug 2026 04:00:13 GMT
+
+https://screenrant.com/fallout-invaders-from-beyond-august-18/
+
+Fallout is officially back on August 18 with the launch of Invaders From Beyond, taking players on an all-new adventure through the wasteland.
+---------
+
+# Netflix’s First Philip K. Dick Show Adapts 1 Of His Weirdest Sci-Fi Masterpieces
+
+Streaming TV, Masked Recs
+
+Thu, 06 Aug 2026 03:02:04 GMT
+
+https://screenrant.com/netflix-future-is-ours-philip-k-dick-weird/
+
+Netflix is all set to deliver its first Philip K. Dick TV adaptation, which is based on one of the weirdest masterpieces written by the sci-fi author.
+---------
+
+# 3 Years After Riverdale's End, Archie Is Finally Ready For His Next Major Reboot
+
+Comics, Riverdale, Masked Recs
+
+Thu, 06 Aug 2026 03:00:11 GMT
+
+https://screenrant.com/riverdale-ending-archie-reboot-september-2026/
+
+Archie Andrews will once again see his adventures spread across the past, present, and future of Riverdale in September's upcoming reboot.
+---------
+
+# 7 Video Games You Should Play If You Miss Stranger Things
+
+Gaming, Stranger Things
+
+Thu, 06 Aug 2026 03:00:11 GMT
+
+https://screenrant.com/video-games-like-stranger-things/
+
+Stranger Things may be finished with its main series, but there are a handful of games that will scratch an itch for anyone who misses it still.
+---------
+
+# Spider-Man: Brand New Day Star Teases Villain's MCU Future
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Venom
+
+Thu, 06 Aug 2026 02:05:47 GMT
+
+https://screenrant.com/spider-man-brand-new-day-michael-mando-scorpion-venom-mcu/
+
+Spider-Man: Brand New Day saw the return of Mac Gargan, and Michael Mando has teased what's next for the villain after finally becoming Scoprion.
+---------
+
+# X-Men '97 Season 2: 12 Easter Eggs, References, & Marvel Cameos In Episode 8
+
+Superheroes, X-Men '97, Marvel Cinematic Universe, X-Men
+
+Thu, 06 Aug 2026 02:00:21 GMT
+
+https://screenrant.com/x-men-97-season-2-episode-8-easter-eggs-references-marvel-cameos/
+
+The penultimate episode of X-Men '97 season 2 is now streaming, featuring a fun collection of Easter eggs, comics references, and Marvel cameos.
+---------
+
+# Gundam's Most Successful Timeline Is Now Free to Watch With All 100 Episodes
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam SEED, Mobile Suit Gundam SEED Destiny
+
+Thu, 06 Aug 2026 03:59:15 GMT
+
+https://www.cbr.com/gundam-seed-destiny-free-streaming-now/
+
+The Cosmic Era is the most successful Gundam alternate universe, and both of its anime shows from the early 2000s can now be watched online for free.
+---------
+
+# The Shards Review: Ryan Murphy Turns ’80s Hollywood Into a Hypnotic Nightmare
+
+TV, The Shards, Ryan Murphy, FX
+
+Thu, 06 Aug 2026 03:46:37 GMT
+
+https://www.cbr.com/the-shards-review/
+
+Read our review of The Shards, FX’s visually sumptuous, superbly acted descent into the secrets and violence of 1980s Los Angeles.
+---------
+
+# 10 Classic PS2 Games That Still Haven't Been Topped
+
+Games, Resident Evil, God of War, Final Fantasy, PlayStation 2
+
+Thu, 06 Aug 2026 03:45:15 GMT
+
+https://www.cbr.com/classic-ps2-games-never-been-topped/
+
+The PS2 had a phenomenal library of prestigious games, and these ten titles provided experiences that are still unmatched by today's market.
+---------
+
+# 6 TV Show Endings Better Than Breaking Bad
+
+TV, Breaking Bad, The Leftovers, Six Feet Under
+
+Thu, 06 Aug 2026 03:30:15 GMT
+
+https://www.cbr.com/tv-show-endings-better-breaking-bad-list/
+
+Breaking Bad has become the benchmark all shows are measured against, but series like Six Feet Under and The Leftovers had better endings overall.
+---------
+
+# Marvel and DC Face the Same Biggest Problem—But Their Solutions Couldn't Be More Different
+
+Comics, Marvel, DC Comics
+
+Thu, 06 Aug 2026 03:30:15 GMT
+
+https://www.cbr.com/marvel-dc-solving-the-same-problem-differently/
+
+With audiences flocking to the cinema, both Marvel and DC are searching for ways to add those fans to their readership.
+---------
+
+# The Lord of the Rings: The Wolves of Mordor Officially Arrives Late 2026
+
+Games, The Lord of the Rings Online, The Lord of the Rings
+
+Thu, 06 Aug 2026 03:15:15 GMT
+
+https://www.cbr.com/lotr-wolves-of-mordor-official-new-release-arrives-late-2026/
+
+A new threat will emerge from Sauron's domain when The Lord of the Rings Online's The Wolves of Mordor expansion arrives later this year.
+---------
+
+# Crunchyroll Drops 9 Major Anime Releases in New October 2026 Update
+
+Anime, Crunchyroll, Kaiju No. 8, A Silent Voice
+
+Thu, 06 Aug 2026 03:05:15 GMT
+
+https://www.cbr.com/crunchyroll-anime-home-release-date-october-2026/
+
+Crunchyroll's upcoming home video release slate includes shonen classics like One Piece as well as underrated cinematic treasures like A Silent Voice.
+---------
+
+# It's Official: Gilmore Girls Is Returning With a New HBO Max Release
+
+TV, Gilmore Girls, HBO Max, Drama
+
+Thu, 06 Aug 2026 02:49:42 GMT
+
+https://www.cbr.com/gilmore-girls-documentary-hbo-max/
+
+Warner Bros. has announced that a Gilmore Girls documentary will be coming to HBO Max, featuring cast and crew, as well as special footage.
+---------
+
+# 5 Strongest Guns in Anime History, Ranked
+
+Anime, Hellsing (2001), Trigun, Outlaw Star
+
+Thu, 06 Aug 2026 02:45:15 GMT
+
+https://www.cbr.com/strongest-guns-in-anime-history-ranked/
+
+Firearms in anime frequently push past the boundaries of traditional ballistics, evolving from simple projectile weapons into legendary artifacts.
+---------
+
+# Every Marvel Hero In Spider-Man: Brand New Day, Ranked By Power Level
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Thu, 06 Aug 2026 02:45:15 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-strongest-heroes-ranked-list/
+
+Spider-Man: Brand New Day boasts a wide array of MCU heroes, from street-level vigilantes to the strongest Avengers.
+---------
+
+# 12 Years Later, Netflix's 10/10 Sitcom Is Still One of the Best on the Streamer
+
+TV Features, BoJack Horseman, Netflix, Animation, Sitcom
+
+Thu, 06 Aug 2026 04:06:14 GMT
+
+https://collider.com/bojack-horseman-netflix-best-sitcom/
+
+Netflix's BoJack Horseman explores dysfunctional families and intergenerational trauma, giving viewers a poignant reflection on existence.
+---------
+
+# HBO’s Ambitious 3-Season Fantasy Series Deserves a Revival
+
+TV Features, HBO, Fantasy, His Dark Materials, Sci-Fi
+
+Thu, 06 Aug 2026 03:09:14 GMT
+
+https://collider.com/hbo-his-dark-materials-deserves-revival-series/
+
+His Dark Materials ended after three seasons, but Philip Pullman's expanded universe gives HBO the perfect opportunity to revive Lyra's story.
+---------
+
+# The Best Sci-Fi Book of the Last 50 Years Is Also Unadaptable, and That's Good
+
+Books and Comics, Books, Science Fiction, Adventure, Sci-Fi
+
+Thu, 06 Aug 2026 03:03:14 GMT
+
+https://collider.com/hyperion-sci-fi-book-dan-simmons-no-movie-adaptation/
+
+Dan Simmons' sci-fi book Hyperion is a masterpiece with a challenging structure and complex narrative that will likely never get a proper adaptation.
+---------
+
+# In Just 3 Days, Netflix’s New Crime Thriller Is a Global Streaming Sensation
+
+TV News, Netflix, The Bombing of Pan Am 103, Peter Mullan, Tony Curran
+
+Thu, 06 Aug 2026 02:15:14 GMT
+
+https://collider.com/netflix-crime-thriller-the-bombing-of-pan-am-103-streaming-success-august-2026/
+
+The Netflix miniseries The Bombing of Pan Am 103 has become a global hit, garnering 30 million hours viewed in just three days.
+---------
+
+# George R.R. Martin’s Favorite ‘Game of Thrones’ Spin-Off Scores an Official Season 2 Update
+
+TV News, A Knight Of The Seven Kingdoms, Game Of Thrones, George R.R. Martin, Dexter Sol Ansell
+
+Thu, 06 Aug 2026 02:00:24 GMT
+
+https://collider.com/george-r-r-martin-game-of-thrones-spin-off-a-knight-of-the-seven-kingdoms-season-2-filming-wrap/
+
+George R.R. Martin's favorite Game of Thrones spin-off, A Knight of the Seven Kingdoms, has just received a colossal Season 2 update.
+---------
+
+# 8 Great Sci-Fi Books That Deserve the 'Expanse' Treatment
+
+TV Lists, Sci-Fi, The Expanse
+
+Thu, 06 Aug 2026 02:00:22 GMT
+
+https://movieweb.com/great-sci-fi-books-the-expanse-treatment/
+
+In a world where sci-fi space operas have constant appeal on TV, I can't believe these books still haven't been adapted.
+---------
+
 # 5 Fantasy K-Dramas That Are 10/10 Perfect
 
 Classic TV, K-Drama, Fantasy
