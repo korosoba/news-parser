@@ -1,3 +1,256 @@
+# American Horror Story’s Fate After Season 13’s Series-Wide Crossover Confirmed
+
+TV, American Horror Story
+
+Fri, 07 Aug 2026 13:39:10 GMT
+
+https://screenrant.com/american-horror-story-season-14-ryan-murphy/
+
+American Horror Story's future could be even more deadly, as Ryan Murphy reveals the fate of the anthology series after its major crossover season.
+---------
+
+# House Of The Dragon Just Revealed Season 4's Darkest Story (It'll Change Targaryens Forever)
+
+Streaming TV, House of the Dragon, Game of Thrones
+
+Fri, 07 Aug 2026 13:38:29 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-helaena-targaryen-dreamfyre-dragonpit-vision/
+
+House of the Dragon season 3 just set up a dark, devastating Targaryen story for its fourth and final season, thanks to Helaena Targaryen's visions.
+---------
+
+# Pokémon Soulgold Is A Love Letter To Johto And Gen 2
+
+Gaming, Pokemon, Triple-A Games
+
+Fri, 07 Aug 2026 13:35:24 GMT
+
+https://screenrant.com/pokemon-soulgold-johto-love-letter/
+
+The second Generation of Pokémon is legendary, to the point where many still consider it the best era of the series, and now it's back.
+---------
+
+# The Same Thing Scotty Joke Now Spans 3 Star Trek Shows Over 165 Years
+
+TV, Star Trek, Star Trek: The Next Generation, Star Trek: Strange New Worlds
+
+Fri, 07 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-scotty-tng-it-is-green/
+
+Star Trek: Strange New Worlds adds to a running gag for Scotty that began in The Original Series and continued in Star Trek: The Next Generation.
+---------
+
+# Alley Cats Review: Ricky Gervais’ Animated Comedy Is An Uninspired, Unfunny Slog
+
+Streaming TV, Alley Cats
+
+Fri, 07 Aug 2026 13:19:32 GMT
+
+https://screenrant.com/alley-cats-netflix-review/
+
+Between narrative flaws and unfunny comedy, Ricky Gervais' Netflix adult animated TV show, Alley Cats, forgets that it's supposed to be entertaining.
+---------
+
+# New Sherlock Holmes Adaptation Reveals Cast & Unique Moriarty Plot Twist
+
+Movies, Moriarty Rising: A Sherlock Holmes Tale
+
+Fri, 07 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/sherlock-holmes-moriarty-rising-cast-plot-origin-story/
+
+Exclusive: Moriarty Rising: A Sherlock Holmes Tale has announced its cast and what this new take on the Sherlock mythology will be about.
+---------
+
+# 33 Years Later, One Of Jurassic Park's Greatest Quotes Should Define Jurassic World's Future
+
+Movies, Jurassic Park
+
+Fri, 07 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/jurassic-park-movie-ian-malcolm-could-should-quote-jurassic-world-5/
+
+One of the best Jurassic Park quotes not only holds up 33 years later, but it also serves as the perfect definition of Jurassic World's future.
+---------
+
+# Marvel Rivals: Season 9.5 Buffs & Nerfs Explained
+
+Gaming, Marvel Rivals, Live Service Games, PC
+
+Fri, 07 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/marvel-rivals-season-9-5-all-buffs-nerfs-characters/
+
+There are some controversies around the balance patch for Season 9.5 of Marvel Rivals, with some heroes' tools being taken away while others prosper.
+---------
+
+# 15 Years Later, Game Of Thrones Season 1 Hides A Difficult Truth
+
+Classic TV, Game Of Thrones
+
+Fri, 07 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/game-of-thrones-season-1-difficult-truth/
+
+15 years on, rewatching Game of Thrones season one is like studying a map whose vivid routes promise endless invention but end at unfinished stops.
+---------
+
+# The 6 Biggest Marvel Villains Right Now
+
+Comics, Marvel
+
+Fri, 07 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/biggest-most-important-marvel-villains-right-now/
+
+Doom, Mephisto and David Colton are reshaping the Marvel Universe.
+---------
+
+# Brendan Fraser’s Mummy Sequel Reveals First Look at Returning Hero
+
+Movies, The Mummy
+
+Fri, 07 Aug 2026 13:45:27 GMT
+
+https://www.cbr.com/brendan-fraser-mummy-sequel-first-look/
+
+Fans of Brendan Fraser's The Mummy just got a major update on the next entry in the franchise, and another fan-favorite is officially returning for it
+---------
+
+# It's Official, Shonen Jump Is Over As We Know It
+
+Anime, weekly shonen jump, One Piece, Manga
+
+Fri, 07 Aug 2026 13:15:15 GMT
+
+https://www.cbr.com/official-shonen-jump-is-over-as-we-know-it/
+
+Weekly Shonen Jump might be the most popular manga magazine worldwide, but in 2026, it has officially entered an era that it might not recover from.
+---------
+
+# Dungeon Crawler Carl Officially Returns With New Release October 2026
+
+Games, Dungeon Crawler Carl
+
+Fri, 07 Aug 2026 13:05:15 GMT
+
+https://www.cbr.com/dungeon-crawler-carl-official-return-new-release-october-2026/
+
+Dungeon Crawler Carl fans have another brand-new title from their favorite franchise to look forward to ahead of the upcoming streaming adaptation.
+---------
+
+# Mark Wahlberg's 116-Minute Action Sleeper Hit Is Officially a Streaming Smash
+
+Movies, Uncharted, Prime Video
+
+Fri, 07 Aug 2026 13:01:15 GMT
+
+https://www.cbr.com/mark-wahlberg-action-uncharted-prime-video-streaming-success-aug-2026/
+
+While critics tore apart Mark Wahlberg's action adventure with Tom Holland, audiences continue to love the film as it climbs the streaming charts.
+---------
+
+# Ridley Scott's 2-Part Sci-Fi Miniseries Based on a Michael Crichton Techno-Thriller
+
+TV, Sci-Fi, The Andromeda Strain, ridley scott
+
+Fri, 07 Aug 2026 13:01:15 GMT
+
+https://www.cbr.com/ridley-scott-the-andromeda-strain-miniseries/
+
+Ridley Scott has been at the helm of some of the best sci-fi stories in Hollywood history, but his Michael Crichton adaptation is a TV masterpiece.
+---------
+
+# 5 Greatest Action Thrillers Of The 2020s, Ranked
+
+Movies, Action, Thriller, John Wick
+
+Fri, 07 Aug 2026 13:01:15 GMT
+
+https://www.cbr.com/greatest-2020s-action-thrillers-ranked-list/
+
+These 5 perfect action thrillers have been the standout of the already stacked 2020s.
+---------
+
+# 3 Addictive Netflix Series to Binge This Weekend (Aug 8-9)
+
+TV, My Life with the Walter Boys, You, Alley Cats, Netflix
+
+Fri, 07 Aug 2026 12:41:15 GMT
+
+https://collider.com/best-netflix-shows-binge-august-8/
+
+My Life With the Walter Boys, Alley Cats, and You make up our list of the best Netflix shows to binge the weekend of August 8th, 2026.
+---------
+
+# Apple TV’s 4-Part Masterpiece Officially Returns to Critical Acclaim
+
+TV News, Ted Lasso, Apple TV, Rotten Tomatoes, Jason Sudeikis
+
+Fri, 07 Aug 2026 12:31:15 GMT
+
+https://collider.com/apple-tv-ted-lasso-season-4-rotten-tomatoes-score-is-it-good/
+
+After a 3-year wait, Apple TV's Ted Lasso is once again winning over critics in a massive Rotten Tomatoes debut.
+---------
+
+# 10 Video Game Masterpieces That Are Perfectly Written
+
+Gaming, Video Game, BioShock Infinite, Until Dawn, Oxenfree
+
+Fri, 07 Aug 2026 12:24:15 GMT
+
+https://collider.com/best-video-game-masterpiece-perfectly-written/
+
+From Grand Theft Auto V to BioShock Infinite, these video game masterpieces all have one thing in common: impeccable writing from beginning to end.
+---------
+
+# Anya Taylor-Joy's 93-Minute Thriller Is Quietly One of the Best Mysteries Streaming
+
+Movie Features, Thoroughbreds, Anya Taylor-Joy, Olivia Cooke, Cory Finley
+
+Fri, 07 Aug 2026 12:09:15 GMT
+
+https://collider.com/anya-taylor-joy-thoroughbreds-best-mystery-thriller/
+
+Anya Taylor-Joy and Olivia Cooke star in Thoroughbreds as two teenage girls who plot to kill one of their stepfathers in a captivating thriller.
+---------
+
+# Ridley Scott's 155-Minute "Instant Classic" Action Epic Scores Big on Streaming
+
+Movie News, Gladiator, Hot on Streaming, Ridley Scott, Action
+
+Fri, 07 Aug 2026 13:00:12 GMT
+
+https://movieweb.com/gladiator-ridley-scott-action-streaming-pluto-august-2026/
+
+Ahead of the release of 'The Dog Stars' later this month, one of Ridley Scott's best movies is making a comeback on streaming.
+---------
+
+# 10 Funniest 'Bloom County' Comic Strips That Proved Its '80s Perfection
+
+Movie Lists
+
+Fri, 07 Aug 2026 13:00:12 GMT
+
+https://movieweb.com/bloom-county-comic-strip-best-80s/
+
+Bloom County delivered politics, absurdity, and silliness unlike any other strip in the 80s; these ten strips prove it.
+---------
+
+# It's The End of an Era For Hollywood, 10 Years Earlier Than Expected
+
+Features, The Odyssey, Obsession, Spider-Man: Brand New Day, Box Office
+
+Fri, 07 Aug 2026 12:30:12 GMT
+
+https://movieweb.com/hollywood-movies-new-era/
+
+After decades dominated by superheroes and franchises, the box office shows signs of change. A New New Hollywood is emerging.
+---------
+
 # CBS’s Historic Decision Fixes NCIS Season 24’s Biggest Problem
 
 Network TV, NCIS
