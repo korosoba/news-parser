@@ -1,3 +1,344 @@
+# 3 Best Movies To Watch On Hulu This Weekend (August 8-9)
+
+Movies, Hulu, Recommendation
+
+Fri, 07 Aug 2026 15:45:12 GMT
+
+https://screenrant.com/best-hulu-movies-watch-weekend-august-8/
+
+For this weekend's Hulu movie list, we're serving up three nostalgic classics from the 1990s that are sure to send you back to the past.
+---------
+
+# It's Officially The Start Of An Era For Gilmore Girls
+
+Classic TV, Gilmore Girls
+
+Fri, 07 Aug 2026 15:30:11 GMT
+
+https://screenrant.com/gilmore-girls-hbo-documentary-book-start-era/
+
+While Gilmore Girls' ending may have been polarizing, the franchise is developing in thrilling ways for fans of all things Stars Hollow.
+---------
+
+# Sadie Sink Finally Breaks Silence On Jean Grey’s Spider-Man: Brand New Day Debut
+
+Movies, Spider-Man: Brand New Day
+
+Fri, 07 Aug 2026 15:19:49 GMT
+
+https://screenrant.com/jean-grey-sadie-sink-breaks-silence-xmen-future-marvel-mcu/
+
+Sadie Sink finally gets to talk about Spider-Man: Brand New Day and her role as the iconic Jean Grey after so much secrecy, and now the truth is out.
+---------
+
+# Jenna Ortega & Natalie Portman’s New Thriller Officially Lands 2026 Release Date
+
+Movies, The Gallerist
+
+Fri, 07 Aug 2026 15:19:44 GMT
+
+https://screenrant.com/jenna-ortega-the-gallerist-movie-release-date-natalie-portman/
+
+Jenna Ortega and Natalie Portman co-star in a new thriller that premiered at the Sundance Film Festival and now has a theatrical release date.
+---------
+
+# Coffee Chats Episode 14 with Jacob Batalon
+
+Videos, Coffee Chats, Spider-Man: Brand New Day, Jacob Batalon
+
+Fri, 07 Aug 2026 15:18:07 GMT
+
+https://screenrant.com/video/coffee-chats-episode-14-jacob-batalon-spider-man-brand-new-day/
+
+Jacob Batalon stops by ScreenRant's Coffee Chats to discuss the return of Ned Leeds in Spider-Man: Brand New Day, his real-life friendships with the cast, and what the future may hold for his character.
+---------
+
+# Why Ted Lasso Season 4 Recast Henry & What It Means For The Show
+
+Streaming TV, Ted Lasso
+
+Fri, 07 Aug 2026 15:15:12 GMT
+
+https://screenrant.com/ted-lasso-season-4-recast-henry-bigger-role-change/
+
+Ted Lasso season 4 has recast Ted and Michelle's son, Henry, as the Lasso family moves across the pond to join Ted for a new London-based adventure.
+---------
+
+# Maya Hawke's New R-Rated Dystopian Movie Was Originally Connected To $533M Horror Franchise
+
+Movies, One Night Only
+
+Fri, 07 Aug 2026 15:13:11 GMT
+
+https://screenrant.com/one-night-only-the-purge-franchise-connections-cut/
+
+Exclusive: A new R-rated dystopian movie starring Maya Hawke once had a connection to a hugely successful horror franchise, confirms the director.
+---------
+
+# 10 Greatest Far Side Cow Comics Of All Time
+
+Comics, The Far Side
+
+Fri, 07 Aug 2026 15:02:42 GMT
+
+https://screenrant.com/greatest-far-side-cow-comics/
+
+The GOATs of Far Side cow comics.
+---------
+
+# School Children Give Off The Eeriest Vibes In New Ice Cream Man Clip
+
+Exclusive, Ice Cream Man, Eli Roth
+
+Fri, 07 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/video/ice-cream-man-eli-roth-children-clip/
+
+Exclusive: ScreenRant presents a clip from Eli Roth's Ice Cream Man, in which a school teacher must deal with a classroom full of zombified children.
+---------
+
+# Venom Just Introduced The Coolest New Symbiote Since Carnage
+
+Marvel Comics, Venom
+
+Fri, 07 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/venom-queen-black-marvel-boy-noh-varr/
+
+Marvel's new symbiote is a powerful cosmic hero-turned-villain who receives a massive redesign and a key role in the latest Venom crossover event.
+---------
+
+# Final Fantasy 7, Metal Gear Solid, and 5 More PS1 Games Return in New Collection Available Now
+
+Games, Final Fantasy VII, Metal Gear Solid, PlayStation 5, Twisted Metal
+
+Fri, 07 Aug 2026 15:35:15 GMT
+
+https://www.cbr.com/ps1-console-heroes-collection-ff7-mgs/
+
+More than a half-dozen beloved PlayStation titles are making an unexpected comeback, and fans and collectors alike won't want to miss it.
+---------
+
+# The First-Ever Billion-Dollar Biopic Gets Sequel Release Window After Dominating Streaming
+
+Movies, Michael
+
+Fri, 07 Aug 2026 15:21:02 GMT
+
+https://www.cbr.com/michael-2-release-window/
+
+Lionsgate Film's Michael is officially on track for a feature film follow-up after raking in more than $1 billion and dominating the streaming world.
+---------
+
+# Evangelion Gives Rei and Asuka Traditional Kimono Redesigns for New 30th Anniversary Project
+
+Anime, Neon Genesis Evangelion, merchandise, collectibles, Rebuild of Evangelion
+
+Fri, 07 Aug 2026 15:20:25 GMT
+
+https://www.cbr.com/evangelion-30th-anniversary-rei-asuka-kimono-figure-release/
+
+The new Evangelion figures will hit the shelves in July 2027.
+---------
+
+# Warner Bros. Officially Confirms New Harry Potter Project After $7.7B Films
+
+TV, Harry Potter, Innovation
+
+Fri, 07 Aug 2026 15:11:17 GMT
+
+https://www.cbr.com/warner-bros-harry-potter-tv-show-expansion/
+
+Since its the first film, Warner Bros. realized how popular the Harry Potter franchise is.
+---------
+
+# Naruto TCG First Look Proves It's Already Best-Looking TCG On The Market
+
+Games, TCG, Naruto, Tabletop
+
+Fri, 07 Aug 2026 15:10:15 GMT
+
+https://www.cbr.com/naruto-tcg-first-look-best-looking-tcg-on-market/
+
+The Naruto Card Game has only had a few pieces of artwork revealed for its debut set, but it's already one of the best-looking TCGs on the market.
+---------
+
+# Disney+'s Canceled Spinoff of Iconic Fantasy Show Returns as 1 of the Biggest Shows on Streaming
+
+TV, Wizards Beyond Waverly Place, Disney+
+
+Fri, 07 Aug 2026 15:06:44 GMT
+
+https://www.cbr.com/wizards-beyond-waverly-place-fantasy-disney-plus-success-august-2026/
+
+The short-lived sequel spinoff of Disney's iconic fantasy show is blowing up on streaming now that it's over.
+---------
+
+# The End of Oak Street Has Better Dinosaurs Than Jurassic Park
+
+Movies, The End of Oak Street
+
+Fri, 07 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/end-of-oak-street-better-dinosaurs-than-jurassic-park/
+
+The Jurassic Park franchise has made one major mistake, but this isn't a mistake J.J. Abrams' much-anticipated upcoming dinosaur flick will make.
+---------
+
+# 10 Most Powerful Autobots of All Time, Officially Ranked
+
+Anime, Transformers, Transformers: Animated
+
+Fri, 07 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/most-powerful-autobots-of-all-time-officially-ranked/
+
+The Autobot empire is run by a strong cast of powerful Transformers, and these ten remain unmatched in terms of pure physical power.
+---------
+
+# 10 Greatest Anime Arcs of All Time, Officially Ranked
+
+Anime, Hunter X Hunter, One Piece, Naruto
+
+Fri, 07 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/greatest-anime-arcs-of-all-time-officially-ranked/
+
+In the long history of anime, these arcs stand out as the greatest of all time.
+---------
+
+# Marvel's 'X-Men' Reboot Officially Confirms the Return of Jean Grey
+
+Movie News, Spider-Man: Brand New Day, Sadie Sink, X-Men, Jake Schreier
+
+Fri, 07 Aug 2026 15:32:00 GMT
+
+https://collider.com/marvel-x-men-cast-jean-grey-sadie-sink/
+
+Sadie Sink has officially revealed if her Spider-Man: Brand New Day character will return for Marvel's X-Men reboot.
+---------
+
+# ‘The Nightmare Before Christmas’ Officially Returns With a New Release [Exclusive]
+
+Exclusives, The Nightmare Before Christmas, Disney, Chris Sarandon, Henry Selick
+
+Fri, 07 Aug 2026 15:30:15 GMT
+
+https://collider.com/the-nightmare-before-christmas-loungefly-collection-images-2026/
+
+Loungefly has unveiled a new collection for The Nightmare Before Christmas featuring Jack Skellington-adorned bags and an Oogie Boogie backpack.
+---------
+
+# Star Trek Officially Returns to Theaters With William Shatner
+
+Movie News, Star Trek, William Shatner, Documentary, Star Trek: The Original Series
+
+Fri, 07 Aug 2026 15:12:15 GMT
+
+https://collider.com/star-trek-new-theatrical-release-william-shatner-doctumentary/
+
+William Shatner returns to the big screen in a new Star Trek release coming to theaters this October during the franchise’s 60th anniversary year.
+---------
+
+# ‘John Wick’ Meets ‘The Good, the Bad and the Ugly’ in Quentin Tarantino’s 10/10 Western Officially Free to Stream
+
+Movie News, Django Unchained, Quentin Tarantino, John Wick, The Good, the Bad and the Ugly
+
+Fri, 07 Aug 2026 15:00:15 GMT
+
+https://collider.com/django-unchained-streaming-free-pluto-tv-august-2026/
+
+Quentin Tarantino’s 10/10 Western that channels John Wick and The Good, The Bad and the Ugly is officially free to stream.
+---------
+
+# 'Monarch of the Glen' Reboot Officially Unveils First Look at New Series After 21 Years
+
+TV News, PBS, Drama, Romance, Comedy
+
+Fri, 07 Aug 2026 14:53:48 GMT
+
+https://collider.com/monarch-of-the-glen-reboot-images/
+
+After 21 years, Monarch of the Glen is officially getting a reboot series and the cast has been officially unveiled.
+---------
+
+# Timothée Chalamet’s Hit $600M Fantasy Franchise Sequel Officially Cancelled
+
+Movie News, Wonka, Timothée Chalamet, Warner Bros., Dune: Part Three
+
+Fri, 07 Aug 2026 14:53:10 GMT
+
+https://collider.com/timothee-chalamet-wonka-2-cancelled/
+
+Timothée Chalamet’s Wonka 2 has been shelved at Warner Bros. as sequel faces an indefinite delay.
+---------
+
+# 12 Years Later, One of the Century's Greatest Sci-Fi Movies Hits Harder Than Ever
+
+Features, Sci-Fi
+
+Fri, 07 Aug 2026 15:31:12 GMT
+
+https://movieweb.com/ex-machina-greatest-sci-fi-hits-harder-than-ever/
+
+As AI continues to grow, certain films begin to become even more cryptic, including this 12-year-old sci-fi masterpiece.
+---------
+
+# New Action Thriller 'The Priest' Promises To Be the British John Wick
+
+Movie News, John Wick
+
+Fri, 07 Aug 2026 15:22:04 GMT
+
+https://movieweb.com/the-priest-british-john-wick-craig-russell/
+
+New action thriller 'The Priest' stars Craig Russell as an ex-operative pulled back into violence.
+---------
+
+# "Martial Arts Masterpiece" Brings Back Action Icon for Epic New Release
+
+Movie News, Blades of the Guardians, Jet Li, Martial Arts
+
+Fri, 07 Aug 2026 15:18:04 GMT
+
+https://movieweb.com/blades-of-the-guardians-4k-blu-ray-release/
+
+Well Go USA has announced a 4K Blu-ray and Blu-ray combo pack of the Jet Li martial arts epic 'Blades of the Guardians: Wind Rises in the Desert.'
+---------
+
+# The Divisive Remake of an '80s Classic That's Now a Hit on Streaming
+
+Movie News, RoboCop, Paramount Plus, Hot on Streaming, Sci-Fi, Action
+
+Fri, 07 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/robocop-remake-scifi-action-stream-paramount-august-2026/
+
+Is it finally time to accept that this remake was a good movie?
+---------
+
+# OG 'Big Bang Theory' Star Talks Surprise Role on 'Stuart Fails to Save the Universe'
+
+TV News, Stuart Fails to Save the Universe
+
+Fri, 07 Aug 2026 14:49:10 GMT
+
+https://movieweb.com/melissa-rauch-role-stuart-fails-to-save-the-universe/
+
+'Stuart Fails to Save the Universe' just brought back Melissa Rauch in a surprise 'Big Bang Theory' return on HBO Max.
+---------
+
+# Netflix's 'The Witcher' Final Season Getting a New Delayed Release Date
+
+Movie News, The Witcher, Netflix
+
+Fri, 07 Aug 2026 14:46:30 GMT
+
+https://movieweb.com/the-witcher-season-5-netflix-delay-2027/
+
+'The Witcher' is heading into its final season, but those new episodes will now be delayed until a later date after a new update.
+---------
+
 # Young Sheldon’s Redeemed Villain Officially Returns In Georgie & Mandy’s First Marriage Season 3
 
 Network TV, Young Sheldon, The Big Bang Theory, Georgie & Mandy's First Marriage
