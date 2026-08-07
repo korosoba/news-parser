@@ -1,3 +1,289 @@
+# The Walking Dead: Dead City Season 4 Prospects Addressed By Maggie Star Lauren Cohan
+
+TV, The Walking Dead: Dead City, The Walking Dead: Dead City - Season 3, The Walking Dead, Lauren Cohan
+
+Fri, 07 Aug 2026 21:30:41 GMT
+
+https://screenrant.com/the-walking-dead-dead-city-season-4-future-lauren-cohan/
+
+As The Walking Dead: Dead City season 3 continues to air on AMC, Lauren Cohan is speaking out about the future of the Walking Dead spinoff.
+---------
+
+# 20 Best Hindi Original Drama Series On Prime Video, Ranked
+
+Streaming TV, Prime Video
+
+Fri, 07 Aug 2026 21:30:12 GMT
+
+https://screenrant.com/best-hindi-original-drama-series-amazon-prime/
+
+India produces superb original content, collaborating with Amazon Prime. There is a bit of everything for everybody, from thrillers to sports dramas.
+---------
+
+# Every Cyclops Actor In Live-Action Marvel Movies
+
+Superheroes, X-Men, Marvel's X-Men
+
+Fri, 07 Aug 2026 21:30:11 GMT
+
+https://screenrant.com/cyclops-actors-marvel-movies-live-action/
+
+Cyclops is a key figure in Marvel movies, and that will continue with the MCU's X-Men movie, which has grown the list of actors to play Scott Summers.
+---------
+
+# Stephen King Meets Mike Flanagan In Netflix's 2-Part Horror Series
+
+Streaming TV, Masked Recs
+
+Fri, 07 Aug 2026 21:30:11 GMT
+
+https://screenrant.com/hellbound-stephen-king-meets-mike-flanagan-netflix/
+
+Netflix's library is overflowing with iconic horror franchises and legendary miniseries, but a two-season masterpiece is hiding in plain sight.
+---------
+
+# Sam Raimi’s Alligator Horror Sequel Movie Ramps Up With Scream & Fear Street Stars Joining Cast
+
+Movies, Crawl, Mason Gooding, Emily Rudd
+
+Fri, 07 Aug 2026 21:23:46 GMT
+
+https://screenrant.com/sam-raimi-crawl-2-cast-mason-gooding-emily-rudd/
+
+Crawl 2 is in the works, and it's been revealed that actors from the Scream and Fear Street franchises are joining the Sam Raimi-produced sequel.
+---------
+
+# Marvel Tōkon: Fighting Souls: How To Unlock The Champion Secret Character
+
+Gaming, Marvel Tokon: Fighting Souls, PC, Triple-A Games
+
+Fri, 07 Aug 2026 21:21:35 GMT
+
+https://screenrant.com/marvel-tokon-fighting-souls-how-unlock-the-champion-secret-character/
+
+The Champion is a hidden 21st character on the roster of Marvel Tōkon: Fighting Souls, but players have to meet certain requirements to play as him.
+---------
+
+# Say Goodbye To Stranger Things As HBO's New Fantasy Show Takes Over
+
+TV, Masked Recs
+
+Fri, 07 Aug 2026 21:02:11 GMT
+
+https://screenrant.com/harry-potter-hbo-next-stranger-things/
+
+A family-friendly HBO Max reboot aims for blockbuster streaming reach with youthward scheduling and broad appeal, but can it outdo Stranger Things?
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (August 8-9)
+
+Movies, Prime Video, Recommendation
+
+Fri, 07 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-august-8/
+
+The best movies on Prime Video this weekend include a gruesome horror, an intense romance, and one of Christopher Nolan's best films ever.
+---------
+
+# 5 SEGA Dreamcast Games That Were 10/10 Masterpieces
+
+Gaming, Sega, Triple-A Games
+
+Fri, 07 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/dreamcast-games-10-rated-masterpieces/
+
+The SEGA Dreamcast was home to plenty of fantastic games, but only a few titles stand out as consistently flawless in any way that matters.
+---------
+
+# Why Dungeons & Dragons 2 Still Isn't Happening After Honor Among Thieves
+
+Featured, Originals
+
+Fri, 07 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/video/why-dungeons-dragons-2-still-isn-t-happening-after-honor-among-thieves/
+
+Will Dungeons & Dragons 2 ever happen? We break down why Dungeons & Dragons: Honor Among Thieves earned strong reviews but still faces a $150 million hurdle that could determine the sequel's future.
+---------
+
+# 5 Masterpiece Movie Trilogies That Nobody Remembers Today
+
+Movies
+
+Fri, 07 Aug 2026 21:31:14 GMT
+
+https://www.cbr.com/best-movie-trilogies-no-one-remembers-list/
+
+Trilogies are a given in the movie industry, and there are three that are iconic and yet so few people remember them.
+---------
+
+# Hulu's 9-Part '80s Serial Killer Show Fails to Impress Critics & Audiences on Rotten Tomatoes
+
+TV, The Shards, Rotten Tomatoes
+
+Fri, 07 Aug 2026 21:23:41 GMT
+
+https://www.cbr.com/hulu-the-shards-rotten-tomatoes-score/
+
+The show comes from American Psycho author and American Horror Story's creator.
+---------
+
+# 10 Short Action Anime That Feel Like Complete Masterpieces
+
+Anime, Cyberpunk: Edgerunners, Vivy: Fluorite Eye's Song, Action
+
+Fri, 07 Aug 2026 21:15:14 GMT
+
+https://www.cbr.com/short-action-anime-masterpieces/
+
+From cyberpunk thrillers to historical adventures and everything in between, short anime goes to great lengths to tell flawless stories in less time.
+---------
+
+# It's Official: Spider-Man: Brand New Day Stunt Coordinator’s ‘Favorite’ Fight Moment Was Cut
+
+CBR Exclusives, Spider-Man: Brand New Day
+
+Fri, 07 Aug 2026 21:14:09 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-favorite-fight-cut/
+
+The Spider-Man: Brand New Day action sequence fans missed out on.
+---------
+
+# Adam Driver's Role in Marvel's X-Men Reboot Movie Revealed In New Report
+
+Movies, X-Men (Film), Marvel Cinematic Universe, X-Men
+
+Fri, 07 Aug 2026 21:12:36 GMT
+
+https://www.cbr.com/x-men-movie-adam-driver-sebastian-shaw-mcu/
+
+Adam Driver is playing a major X-Men villain in the MCU, but not the one fans were expecting.
+---------
+
+# CBR Launches Repackz, a New Way for Collectors to Chase Grail Comics
+
+CBR Exclusives, cbr
+
+Fri, 07 Aug 2026 21:02:49 GMT
+
+https://www.cbr.com/cbr-launches-repackz-a-new-way-for-collectors-to-chase-grail-comics/
+
+Get ready to rip open packs with us, and possibly find the Grail comic you have been searching for all your life.
+---------
+
+# In Just 1 Day, Netflix's Hit 3-Season Drama Is Officially the Biggest Show on Streaming
+
+TV, My Life with the Walter Boys
+
+Fri, 07 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/my-life-with-the-walter-boys-drama-netflix-global-success-august-2026/
+
+After barely 24 hours on the platform, the most hotly-anticipated returning drama of the year is officially the number one show on Netflix.
+---------
+
+# The 6 Greatest Clint Eastwood Anti-Hero Roles Of All Time, Ranked
+
+Movies, Clint Eastwood, Western, The Good, the Bad and the Ugly
+
+Fri, 07 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/best-clint-eastwood-anti-hero-roles-ranked-list/
+
+Clint Eastwood is known for portraying many morally grey characters, but these six roles are by far his best performances as an anti-hero.
+---------
+
+# Tom Cruise’s 130-Minute Action Adventure With 99% Audience RT Surges to No. 1 Streaming Free
+
+Movies, Top Gun: Maverick, Action, Adventure
+
+Fri, 07 Aug 2026 20:43:43 GMT
+
+https://www.cbr.com/top-gun-maverick-action-success-pluto-tv/
+
+Tom Cruise's beloved movie tops the free streaming charts.di
+---------
+
+# 10 R-Rated Slasher Movies That Can Be Called Masterpieces
+
+Movie, Slasher, Halloween, Scream, The Texas Chain Saw Massacre
+
+Fri, 07 Aug 2026 21:05:14 GMT
+
+https://collider.com/r-rated-slasher-movies-masterpieces/
+
+From Child’s Play to Scream, these R-rated slashers mastered suspense, terror, and unforgettable killers that defined horror.
+---------
+
+# ‘Yellowstone’ Star’s Criminally Underrated Western Officially Gets a Second Chance
+
+Movie News, Eddington, Luke Grimes, Taylor Sheridan, Marshals
+
+Fri, 07 Aug 2026 21:00:15 GMT
+
+https://collider.com/yellowstone-star-luke-grimes-western-eddington-streaming-success-hbo-max-august-2026/
+
+Best known for his role in Taylor Sheridan's Yellowstone, Luke Grimes has another Western finding streaming success on HBO Max right now.
+---------
+
+# 10 Best Horror Movie Final Girl Characters of All Time
+
+Movie, Alien, Halloween, Scream, Horror
+
+Fri, 07 Aug 2026 20:50:15 GMT
+
+https://collider.com/best-horror-movie-final-girls/
+
+Maxine Minx from Ti West's X Trilogy, Laurie Strode from Halloween, and Sidney Prescott from Scream are among the best horror final girls ever.
+---------
+
+# Jenna Ortega Confirms New 2026 Release Ahead of 'Wednesday' Season 3
+
+Movie News, Jenna Ortega, The Gallerist, Natalie Portman
+
+Fri, 07 Aug 2026 21:20:38 GMT
+
+https://movieweb.com/the-gallerist-jenna-ortega-natalie-portman-release-date/
+
+Ortega's movie 'The Gallerist' is set to land in theaters in December.
+---------
+
+# Leonardo DiCaprio's 165-Minute Western Epic Shoots to Success on Streaming
+
+Movie News, Django Unchained, Leonardo DiCaprio, Hot on Streaming, Western
+
+Fri, 07 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/django-unchained-leonardo-dicaprio-western-streaming-pluto-tv-august-2026/
+
+Ahead of the recently announced sequel, DiCaprio's Western masterpiece is enjoying newfound success on streaming.
+---------
+
+# The 10 Best Final Fight Scenes in Classic Kung Fu Movies, Ranked
+
+Movie Lists, Action, Martial Arts
+
+Fri, 07 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/best-final-fights-classic-kung-fu-movies/
+
+How do you choose the best final fight scenes from a genre where each entry builds to a climactic martial arts showdown?
+---------
+
+# New 'Game of Thrones' Movie Officially Confirmed as Release Window Revealed
+
+Movie News, Game of Thrones
+
+Fri, 07 Aug 2026 20:33:06 GMT
+
+https://movieweb.com/game-of-thrones-movie-release-window/
+
+'Aegon's Conquest' is officially on the way as the first 'Game of Thrones' feature film sometime beyond 2027.
+---------
+
 # 10 TV Shows To Watch If You Love One Piece
 
 Streaming TV, One Piece
