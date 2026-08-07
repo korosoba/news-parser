@@ -1,3 +1,443 @@
+# Lost's Scrapped Twist That Was Too Bold For ABC Cost The Show A Hollywood Star
+
+Classic TV, Lost
+
+Fri, 07 Aug 2026 00:00:11 GMT
+
+https://screenrant.com/lost-michael-keaton-jack-death-pilot-episode-twist/
+
+ABC's intervention stopped a shocking early death in Lost's pilot, and in doing so traded a Hollywood A-Lister for the show's future anchor.
+---------
+
+# James Cameron Moving On From Avatar Would Be A Good Thing Due To This 29-Year Streak
+
+Movies, Avatar, James Cameron
+
+Fri, 07 Aug 2026 00:00:11 GMT
+
+https://screenrant.com/james-cameron-next-movies-not-avatar-sequels-good/
+
+The Terminator director has recently opened up about the possibility of helming something new instead of Avatar 4, which would be amazing.
+---------
+
+# Grown Ups 3 Photos Announce Major Production Update, New & Returning Cast Members, First Plot Details
+
+Movies, Grown Ups, Grown Ups 2
+
+Thu, 06 Aug 2026 23:50:06 GMT
+
+https://screenrant.com/grown-ups-3-photos-filming-cast-plot-details/
+
+Grown Ups 3 shares its first photos, announcing a major production update, confirming new and returning cast members, and the sequel's plot details.
+---------
+
+# 25 Greatest Enemies-To-Lovers K-Dramas Ever, Ranked
+
+TV, K-Drama
+
+Thu, 06 Aug 2026 23:46:12 GMT
+
+https://screenrant.com/k-dramas-enemies-to-lovers/
+
+A number of great K-dramas employ a romantic theme that calls for the two lead characters to go from hating each other to falling in love.
+---------
+
+# It's The End Of An Era For The Witcher
+
+Streaming TV, The Witcher
+
+Thu, 06 Aug 2026 23:46:11 GMT
+
+https://screenrant.com/the-witcher-end-of-an-era-netflix-show/
+
+Netflix's The Witcher will end with its upcoming fifth season, and while that's the end of an era, it also marks another end for the franchise.
+---------
+
+# Zelda: Breath Of The Wild’s 12 Most Well-Hidden Shrines
+
+Gaming, The Legend of Zelda: Breath of the Wild, The Legend of Zelda
+
+Thu, 06 Aug 2026 23:36:56 GMT
+
+https://screenrant.com/zelda-botw-most-well-hidden-shrines/
+
+Even adventurous players are bound to miss out on the best secret shrines in BOTW, as they either hide behind difficult terrain or obscure quests.
+---------
+
+# Spider-Man: Brand New Day Shatters Two More Box Office Records As Week 1 Ends
+
+Movies, Box Office Milestone, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Thu, 06 Aug 2026 23:18:19 GMT
+
+https://screenrant.com/spider-man-brand-new-day-box-office-500-million-domestic-milestone/
+
+At the tail end of its first week in theaters, Marvel's Spider-Man: Brand New Day adds two more huge box office records to its growing roster.
+---------
+
+# Andrew Garfield’s Explosive Spider-Man Sinister Six Spinoff Unearthed In New Concept Art
+
+Movies, Sinister Six, Spider-Man
+
+Thu, 06 Aug 2026 23:01:15 GMT
+
+https://screenrant.com/andrew-garfield-spider-man-sinister-six-concept-art/
+
+New concept artwork has been shared from the scrapped Sinister Six movie that would have spun out of Andrew Garfield's Spider-Man film series.
+---------
+
+# The Rings Of Power Season 3's Confirmed Story Will Remind Everyone Who The Real Main Character Is
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Thu, 06 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/the-rings-of-power-one-ring-sauron-story-main-character/
+
+The Lord of the Rings: The Rings of Power season 3's story is going to remind everyone watching who the Middle-earth TV show's real main character is.
+---------
+
+# 6 DC Villains Who Have Taken On The Entire Justice League And Won
+
+Comics, DC Comics, Justice League
+
+Thu, 06 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/dc-villains-beat-entire-justice-league/
+
+DC's Justice League may have some of the most powerful and iconic superheroes ever, but the team was completely beat by these six villains.
+---------
+
+# 10 Hard Sci-Fi Movies Better Than Project Hail Mary
+
+Movies, Project Hail Mary
+
+Fri, 07 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/hard-sci-fi-movies-better-than-project-hail-mary-list/
+
+Project Hail Mary took the sci-fi world by storm, but these ten hard sci-fi masterpieces are even better.
+---------
+
+# 6 Hard Sci-Fi Shows That Are 10/10
+
+TV, Sci-Fi, The Expanse, Foundation
+
+Fri, 07 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/best-hard-sci-fi-series-list/
+
+From Earthbound technological dramas to space-based thrillers, these hard sci-fi shows explore plausible ideas and real-world scientific studies.
+---------
+
+# Sailor Moon Debuts Ultra-Rare Chibiusa Design Limited to Just 100 Worldwide
+
+Anime, Sailor Moon, merchandise, collectibles
+
+Fri, 07 Aug 2026 00:20:15 GMT
+
+https://www.cbr.com/sailor-moon-gold-chibiusa-design-figpin-release/
+
+Sailor Moon's newest FiGPiN collection introduces an ultra-rare gold Chibiusa pin limited to just 100 pieces worldwide.
+---------
+
+# 5 Most Powerful Decepticons of All Time, Officially Ranked
+
+Anime, Transformers, Transformers: Animated
+
+Fri, 07 Aug 2026 00:15:15 GMT
+
+https://www.cbr.com/most-powerful-decepticons-of-all-time-officially-ranked/
+
+The Decepticons boast a strong roster of extremely powerful villains, and these five stand above the rest in terms of pure strength.
+---------
+
+# McCoy’s Best Star Trek II Line Is Still the Greatest Quote in Sci-Fi Movie History
+
+Movies, Star Trek, Star Trek II: The Wrath of Khan, Innovation
+
+Fri, 07 Aug 2026 00:00:14 GMT
+
+https://www.cbr.com/star-trek-ii-wrath-of-khan-best-leonard-bones-mccoy-quote/
+
+With southern charm and heightened emotionality, Bones is unafraid to tell it like it is - leading to the most profound quotes in all of Star Trek
+---------
+
+# 5 Masterpiece Dark Supernatural Anime Even Better Than Demon Slayer
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Chainsaw Man, Jujutsu Kaisen
+
+Thu, 06 Aug 2026 23:15:14 GMT
+
+https://www.cbr.com/dark-supernatural-anime-better-than-demon-slayer/
+
+Demon Slayer's international success does not mean it's the best dark supernatural anime. Plenty of series surpass Demon Slayer by a long shot.
+---------
+
+# Dragon Ball Officially Reunites Its OG Cast After 39 Years
+
+Anime, Dragon Ball, weekly shonen jump
+
+Thu, 06 Aug 2026 23:05:14 GMT
+
+https://www.cbr.com/dragon-ball-original-cast-artwork-release/
+
+Dragon Ball has fished out a forgotten 1987 artwork by Akira Toriyama featuring Goku and his early companions.
+---------
+
+# 5 Jedi More Powerful Than Anakin Skywalker, Ranked
+
+Movies, Star Wars, Sci-Fi, Innovation
+
+Thu, 06 Aug 2026 23:00:15 GMT
+
+https://www.cbr.com/jedi-more-powerful-than-anakin-skywalker-list/
+
+Anakin Skywalker had the most raw potential in Star Wars, but his chaotic choices allowed a few disciplined Jedi to surpass his actual power.
+---------
+
+# Ariana Grande's American Horror Story Exit Fully Explained by Ryan Murphy
+
+TV, American Horror Story
+
+Thu, 06 Aug 2026 22:54:37 GMT
+
+https://www.cbr.com/ryan-murphy-comments-ariana-grande-exit-american-horror-story/
+
+Ryan Murphy opens up on Ariana Grande leaving the upcoming season of American Horror Story.
+---------
+
+# 7 Mystery Anime Series Where Every Episode Is a Masterpiece
+
+Anime, The Apothecary Diaries, Monster, Odd Taxi, Mystery
+
+Thu, 06 Aug 2026 22:15:14 GMT
+
+https://www.cbr.com/mystery-anime-every-episode-a-masterpiece/
+
+Mysterious anime plots consume the mind completely and turn casual viewing into active investigation.
+---------
+
+# Netflix’s Official ‘Stranger Things’ Return Is a Game Changer for the Franchise
+
+TV Features, Stranger Things, Stranger Things: Tales from '85, Netflix
+
+Fri, 07 Aug 2026 00:13:14 GMT
+
+https://collider.com/stranger-things-tales-from-85-game-changer/
+
+Tales from '85 revives the Stranger Things legacy with new adventures, characters, and '80s nostalgia, giving fans a worthy replacement for the show.
+---------
+
+# 8 Stephen King Books Only Die-Hard Fans Know
+
+Books and Comics, Stephen King, Silver Bullet, Horror, Thriller
+
+Thu, 06 Aug 2026 23:48:14 GMT
+
+https://collider.com/stephen-king-books-only-die-hard-fans-know/
+
+Obscure Stephen King books that only his die-hard fans will know include epics like Black House and works of non-fiction like Danse Macabre.
+---------
+
+# 10 Most Perfect Thriller Shows of the Last 10 Years
+
+TV, Thriller, Severance, Dark Winds, Paradise
+
+Thu, 06 Aug 2026 23:39:14 GMT
+
+https://collider.com/most-perfect-thriller-shows-last-10-years-ranked/
+
+Hulu's Paradise, AMC's Dark Winds, and Netflix's Squid Game are among the best TV thrillers of the last decade, but which series is the greatest?
+---------
+
+# All 13 Christopher Nolan Movies, Ranked by a Diehard Fan of the Director
+
+Movie, The Odyssey, Christopher Nolan, Inception, The Dark Knight
+
+Thu, 06 Aug 2026 23:21:14 GMT
+
+https://collider.com/christopher-nolan-movies-ranked-by-a-fan/
+
+From The Odyssey, to Oppenheimer, to The Dark Knight, a diehard, longtime fan of Christopher Nolan ranks the director's canon from worst to best.
+---------
+
+# 10 Fantasy Movies Like 'How to Train Your Dragon'
+
+Movie, How to Train Your Dragon, Fantasy, The Sea Beast, Dragon Rider
+
+Thu, 06 Aug 2026 23:12:14 GMT
+
+https://collider.com/movies-like-how-to-train-your-dragon-fantasy/
+
+The How to Train Your Dragon movies were a hit with audiences and critics: if you're looking for more like it, these similar films are right for you.
+---------
+
+# Sunspot Actor Teases His Dream ‘X-Men ’97’ Love Triangle [Exclusive]
+
+TV News, X-Men '97, Marvel Animation, Disney Plus, New Mutants
+
+Thu, 06 Aug 2026 23:00:15 GMT
+
+https://collider.com/x-men-97-season-3-sunspot-new-mutant-crossover-cannonball/
+
+X-Men '97 Sunspot actor Gui Agustini reveals which New Mutant character he would like to see join the action in a future season.
+---------
+
+# 13 Years Later, This Remains the Most Perfect Sci-Fi Show of All Time
+
+TV Features, Fringe, John Noble, Joshua Jackson, Anna Torv
+
+Thu, 06 Aug 2026 22:58:14 GMT
+
+https://collider.com/fringe-most-perfect-sci-fi-show-all-time/
+
+13 years later, Fringe remains one of the most perfect sci-fi series on network television.
+---------
+
+# 8 Essential Fantasy Video Games
+
+Video Games, Gaming, Video Game, Fantasy, Elden Ring
+
+Thu, 06 Aug 2026 22:54:15 GMT
+
+https://collider.com/fantasy-video-games-essential-ranked/
+
+Elden Ring, Shadow of the Colossus, and The Elder Scrolls V: Skyrim are among the best, most essential fantasy video games ever made.
+---------
+
+# Netflix's American David Fincher 'Squid Game' Spin-Off Is Officially Dead
+
+TV News, Squid Game, David Fincher, Cate Blanchett
+
+Thu, 06 Aug 2026 22:13:08 GMT
+
+https://collider.com/netflix-american-squid-game-spin-off-cancelled-david-fincher/
+
+David Fincher's American Squid Game spin-off is no longer moving forward at Netflix after months of development. Read on for more details.
+---------
+
+# Only 5 Classic Rock Albums Are Better Than 'Sgt. Pepper's'
+
+Music Features, The Beatles, David Bowie, Bruce Springsteen, Pink Floyd
+
+Thu, 06 Aug 2026 22:08:14 GMT
+
+https://collider.com/classic-rock-albums-better-than-sgt-peppers-lonely-hearts-club-band/
+
+While Sgt. Pepper's Lonely Hearts Club Band is a classic, some other rock albums, like Born to Run and The Dark Side of the Moon, are even better.
+---------
+
+# Spider-Man: Brand New Day' Officially Shatters Another Box-Office Record
+
+Movie News, Spider-Man: Brand New Day
+
+Fri, 07 Aug 2026 00:20:30 GMT
+
+https://movieweb.com/spider-man-brand-new-day-domestic-box-office-record-star-wars/
+
+'Spider-Man: Brand New Day' crossed the half billion mark in a week of release, one day quicker than 'Avengers: Endgame.'
+---------
+
+# Stephen King's Classic '80s Thriller Getting New Release
+
+Movie News, Stephen King, Cujo
+
+Fri, 07 Aug 2026 00:20:20 GMT
+
+https://movieweb.com/stephen-king-cujo-movie-4k-blu-ray/
+
+A new limited-edition 4K Ultra HD Blu-ray of 'Cujo' will hit shelves in October.
+---------
+
+# 7 Perfect Stephen King TV Shows With No Bad Seasons
+
+TV Lists, Stephen King
+
+Fri, 07 Aug 2026 00:00:12 GMT
+
+https://movieweb.com/stephen-king-tv-shows-perfect/
+
+Stephen King's popular and beloved horror novels have been adapted into many TV shows, and these series are the most impressive.
+---------
+
+# Amazon Makes a Streaming Splash as New 104-Minute "Jaws Meets Scream" Thriller Hits #1
+
+Movie News, The Devil's Mouth, Hot on Streaming
+
+Fri, 07 Aug 2026 00:00:12 GMT
+
+https://movieweb.com/the-devils-mouth-prime-video-streaming-hit-august-2026/
+
+Teens on vacation getting themselves in trouble? Bring it on!
+---------
+
+# Sam Neill's Final Movie Confirmed as Highly Anticipated Video Game Adaptation
+
+Movie News
+
+Thu, 06 Aug 2026 23:13:35 GMT
+
+https://movieweb.com/legend-of-zelda-sam-neill-cast/
+
+Sam Neill's final film role will be in Nintendo and Sony's live-action 'Legend of Zelda,' according to new casting reports.
+---------
+
+# Netflix’s New Streaming Sensation Action Thriller Could Go On Forever
+
+Features, Action
+
+Thu, 06 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/sniper-no-nation-netflix-action-franchise-continue/
+
+Sniper: No Nation is currently topping Netflix charts globally. With a sequel on the way, the film series has a long life ahead.
+---------
+
+# Henry Cavill's 98-Minute Action Thriller Flop Is Global Streaming Smash Hit
+
+Movie News, Henry Cavill, Night Hunter, Hot on Streaming
+
+Thu, 06 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/henry-cavill-night-hunter-stream-action-august-2026/
+
+The sleeper streaming hit only made $1 million at the box office.
+---------
+
+# The Future of David Fincher's 'Squid Game' Reboot at Netflix Reportedly Revealed
+
+TV News, Squid Game, David Fincher, Netflix
+
+Thu, 06 Aug 2026 22:29:10 GMT
+
+https://movieweb.com/squid-game-reboot-canceled-netflix/
+
+A source claims that Netflix is scrapping the American version of the Korean series.
+---------
+
+# M. Night Shyamalan's Forgotten 2-Part Thriller Is a Perfect Weekend Binge
+
+Features, M. Night Shyamalan, Wayward Pines
+
+Thu, 06 Aug 2026 22:00:12 GMT
+
+https://movieweb.com/wayward-pines-thriller-binge-watch/
+
+M. Night Shyamalan has made many memorable horror and thriller movies, including 'The Sixth Sense,' and he worked on this two-season thriller TV show.
+---------
+
+# Noah Wyle Officially Playing Captain Kirk for New 'Star Trek' Celebration
+
+TV News, Star Trek
+
+Thu, 06 Aug 2026 21:33:05 GMT
+
+https://movieweb.com/star-trek-captain-kirk-noah-wyle-table-read/
+
+'Star Trek's 60th-anniversary celebration will include an unexpected new Kirk, with Noah Wyle set to lead a live reading of "The Man Trap."
+---------
+
 # Acclaimed 2025 Crime Thriller Returns With Explosive Sequel, And Its First Preview Is Epic (Exclusive)
 
 Books, Thriller, Crime
