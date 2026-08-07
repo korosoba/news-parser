@@ -1,3 +1,135 @@
+# All 6 of Batman’s Brand New Villains Explained
+
+Comics, Batman
+
+Fri, 07 Aug 2026 23:30:11 GMT
+
+https://screenrant.com/batman-new-villains-assassins/
+
+Batman has faced countless villains in his career, and his latest adventure is set to add some fresh faces to his hit list.
+---------
+
+# Tolkien Meets Terry Pratchett's Discworld In 8-Part Prime Video Fantasy Series
+
+TV, Masked Recs
+
+Fri, 07 Aug 2026 23:30:11 GMT
+
+https://screenrant.com/the-mighty-nein-prime-video-fantasy-series-tolkien-discworld/
+
+Prime's sprawling fantasy show masterpiece perfectly pairs deep, Middle-earth scale worldbuilding with satirical, Discworld-tinged irreverence.
+---------
+
+# 13 Years Later, Percy Jackson Has Recovered From Its $200M Franchise-Killer To Be Better Than Ever
+
+Movies, Percy Jackson & The Olympians, Percy Jackson: Sea of Monsters
+
+Fri, 07 Aug 2026 23:30:11 GMT
+
+https://screenrant.com/percy-jackson-sea-of-monsters-movie-franchise-ended-disney-plus-better/
+
+Percy Jackson has risen from the franchise graveyard following its last 2013 movie, finding renewed popularity as a TV series on Disney+.
+---------
+
+# Kit Connor Suits Up As Cyclops In Striking New MCU X-Men Art
+
+Movies, X-Men, Marvel Cinematic Universe
+
+Fri, 07 Aug 2026 23:28:47 GMT
+
+https://screenrant.com/kit-connor-cyclops-x-men-mcu-art/
+
+New MCU art offers fans a closer look at what Kit Connor's iteration of Cyclops could potentially look like in the upcoming X-Men reboot.
+---------
+
+# 18 Years Later, Marvel's Lowest-Grossing Movie Of All Time Is Aging Like Fine Wine
+
+Movies, Marvel, Masked Recs
+
+Fri, 07 Aug 2026 23:09:31 GMT
+
+https://screenrant.com/punisher-war-zone-marvel-flop-cult-classic/
+
+Though it may have bombed at the box office, Punisher: War Zone's Frank Castle offers a take on the character too brutal for the MCU
+---------
+
+# A Rising Marvel Star Is Back With New Series, And It's Officially A Major Hit
+
+Marvel Comics, Iman Vellani, Marvel
+
+Fri, 07 Aug 2026 23:09:06 GMT
+
+https://screenrant.com/iman-velani-chachu-series-major-hit/
+
+A major Phase 4 and 5 MCU star returns to the world of comics with a project of their own, to resounding success in sales within two days of release.
+---------
+
+# 5 Strongest Demons in Anime History, Ranked
+
+Anime, That Time I Got Reincarnated as a Slime, Demon Slayer, Jujutsu Kaisen, shonen anime, Isekai
+
+Fri, 07 Aug 2026 23:45:15 GMT
+
+https://www.cbr.com/strongest-demons-in-anime-history-ranked/
+
+Some of the most powerful entities in the anime medium just so happen to be demons, with villains like Muzan and Sukuna reigning supreme.
+---------
+
+# 5 Confirmed Changes to Zelda: Ocarina of Time in the Switch 2 Remake
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Fri, 07 Aug 2026 23:20:15 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-remake-changes-confirmed-list/
+
+Nintendo has now confirmed (both directly and indirectly) multiple big changes from the original Ocarina of Time coming to its Switch 2 remake.
+---------
+
+# 5 Hard Sci-Fi Anime You Cannot Miss
+
+Anime, Planetes, Dr. Stone, Sci-Fi
+
+Fri, 07 Aug 2026 23:15:14 GMT
+
+https://www.cbr.com/best-hard-sci-fi-anime-must-watch/
+
+Hard sci-fi anime offer more than action. These series explore science, technology, and humanity in fascinating ways.
+---------
+
+# Transformers Officially Turns Rhinox Evil Again After 30 Years
+
+Anime, Transformers, Beast Wars: Transformers, merchandise, toys, action figures
+
+Fri, 07 Aug 2026 23:05:15 GMT
+
+https://www.cbr.com/transformers-beast-wars-decepticon-rhinox-takara-tomy/
+
+Takara Tomy has revealed a new Transformers: MPG action figure, with this dark, evil redeco of a chief Maximal 30 years in the making.
+---------
+
+# 3 Greatest Series to Binge on Prime Video This Week (August 8-9)
+
+TV, Sterling Point, Tom Clancy's Jack Ryan, Invincible, Prime Video
+
+Fri, 07 Aug 2026 23:43:14 GMT
+
+https://collider.com/prime-video-shows-binge-august-8-2026/
+
+Sterling Point, Invincible, and Jack Ryan make up our list of the best shows to binge on Prime Video the weekend of August 8th, 2026.
+---------
+
+# 'Lost' Favorite Returns in First Look at Post-Apocalyptic Sci-Fi Action Thriller
+
+Movie News, Josh Holloway
+
+Fri, 07 Aug 2026 23:27:36 GMT
+
+https://movieweb.com/one-second-after-josh-holloway-first-look/
+
+Josh Holloway stars in the new movie 'One Second After,' co-written by 'Babylon 5' creator J. Michael Straczynski.
+---------
+
 # 31 Years Later, Square Enix's Greatest RPG Remains A 10/10 Masterpiece
 
 Gaming, Square Enix, RPG, Chrono Trigger, PC
