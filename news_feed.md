@@ -1,3 +1,146 @@
+# The Legend Of Zelda Future Officially Confirmed By Nintendo
+
+Gaming, The Legend of Zelda
+
+Fri, 07 Aug 2026 10:00:11 GMT
+
+https://screenrant.com/legend-of-zelda-future-confirmed-nintendo/
+
+The Legend of Zelda is having a great time as a franchise right now, and Nintendo has already hinted at their plans for the future.
+---------
+
+# Captain Pike’s Face Tattoo Meaning In Star Trek: Strange New Worlds Revealed
+
+TV, Star Trek: Strange New Worlds, Star Trek
+
+Fri, 07 Aug 2026 10:00:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-captain-pike-face-tattoo-translation/
+
+One of the weirdest visuals in Star Trek: Strange New Worlds' The Hangover-inspired episode is Captain Pike inking his face. Here's what it means.
+---------
+
+# Cyberpunk Quadra RC Set Releases September 2026
+
+Gaming, Cyberpunk 2077
+
+Fri, 07 Aug 2026 09:47:45 GMT
+
+https://screenrant.com/cyberpunk-2077-quadra-rc-set-september-2026/
+
+Get ready for the Cyberpunk Quadra RC Set launch on September 4! Pre-order your collector's item today.
+---------
+
+# Marvel's Spider-Man 2 Surprise Update Fixes The Brand-New Day Suit
+
+Gaming, Marvel's Spider-Man 2, Spider-Man
+
+Fri, 07 Aug 2026 09:32:59 GMT
+
+https://screenrant.com/marvels-spider-man-2-update-brand-new-day-suit-fix/
+
+Insomniac Games releases a fix for the Fresh Start suit in Marvel's Spider-Man 2 to enhance gameplay based on player feedback.
+---------
+
+# Elden Ring's Starscourge Radahn Officially Returns With New Release April 2027
+
+Games, Elden Ring
+
+Fri, 07 Aug 2026 10:00:14 GMT
+
+https://www.cbr.com/elden-ring-starscourge-radahn-returns-new-release-april-2027/
+
+Elden Ring's mighty Starscourge Radahn will return as powerful as ever in an exciting new release next year.
+---------
+
+# 5 Near-Perfect Zombie Shows With No Weak Seasons
+
+TV, The Last of Us, Kingdom, Horror, Santa Clarita Diet
+
+Fri, 07 Aug 2026 10:00:14 GMT
+
+https://www.cbr.com/near-perfect-zombie-shows-no-weak-seasons-list/
+
+The best zombie shows like Santa Clarita Diet and Kingdom broke the mold, using the undead to explore deeper themes of grief, identity, and power.
+---------
+
+# Spider-Man: Brand New Day Introduces the MCU's First Anti-Mutant X-Men Villains
+
+Movies, Spider-Man: Brand New Day, X-Men, MCU, Innovation
+
+Fri, 07 Aug 2026 10:00:14 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-x-men-villains-damage-control/
+
+Spider-Man: Brand New Day secretly sets up the future of the MCU's Mutant Saga with a new group of villains with anti-mutant sentiments.
+---------
+
+# 10 Binge-Worthy Miniseries That Deserved Way More Episodes
+
+TV, TV Miniseries, Over the Garden Wall, Firefly, My So-Called Life
+
+Fri, 07 Aug 2026 10:09:14 GMT
+
+https://collider.com/binge-worthy-miniseries-deserved-more-episodes/
+
+These are the most captivating miniseries that left audiences wanting more follow-up seasons, from Firefly to Over the Garden Wall.
+---------
+
+# Forget 'Blue Bloods,' the Best British Detective Series on Streaming Is Officially Back
+
+TV News, Blue Bloods, Blue Lights, Tom Selleck, BBC
+
+Fri, 07 Aug 2026 10:00:14 GMT
+
+https://collider.com/british-detective-series-blue-lights-streaming-success-britbox-august-2026/
+
+The BBC's police procedural, Blue Lights, is becoming a streaming sensation ahead of its fourth season, which premieres in the autumn.
+---------
+
+# 10 Best Directors in Film History
+
+Movie, Martin Scorsese, Alfred Hitchcock, Charlie Chaplin, Directors
+
+Fri, 07 Aug 2026 09:41:14 GMT
+
+https://collider.com/best-movie-directors/
+
+All-time cinematic masters like Alfred Hitchcock, Martin Scorsese, and Akira Kurosawa are among the absolute best movie directors in film history.
+---------
+
+# Mia Goth's Breakout Horror Franchise Officially Slashes Its Way Onto a New Streamer
+
+Movie News, Ti West, Mia Goth, X, MaXXXine
+
+Fri, 07 Aug 2026 09:30:14 GMT
+
+https://collider.com/mia-goth-x-trilogy-horror-streaming-hulu-august-2026/
+
+Mia Goth's legendary X trilogy has officially brought its terrifying brand of horror to a new streamer. Find out which one here.
+---------
+
+# Jason Statham's Next 95-Minute Action Hit Is "John Wick Meets Die Hard" in Explosive New Clip
+
+Movie News, Jason Statham, Mutiny, Action, Thriller
+
+Fri, 07 Aug 2026 10:21:57 GMT
+
+https://movieweb.com/jason-statham-mutiny-clip-action-thriller/
+
+An action-packed new clip teases the action flick, which is due to make a splash in theaters later this month.
+---------
+
+# Ahead of Leonardo DiCaprio Sequel, a 10/10 Action Thriller Masterpiece Is Dominating Free Streaming
+
+Movie News, Heat, Leonardo DiCaprio, Action, Thriller, Hot on Streaming, Heat 2
+
+Fri, 07 Aug 2026 10:00:12 GMT
+
+https://movieweb.com/heat-stream-free-action-thriller-august-2026/
+
+Over the decades, it's become one of the most influential crime sagas ever made.
+---------
+
 # GTA 6 Netflix Special Length Officially Confirmed
 
 Gaming, Grand Theft Auto, Grand Theft Auto 6
