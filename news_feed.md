@@ -1,3 +1,311 @@
+# Top 3 Must-Watch Apple TV Shows This Weekend: August 7–9, 2026
+
+Streaming TV, Apple TV, What to Watch on Apple TV+
+
+Fri, 07 Aug 2026 19:45:11 GMT
+
+https://screenrant.com/best-apple-tv-shows-to-binge-weekend-august-7-2026/
+
+The best Apple TV shows to watch this weekend, August 7–9, 2026, include Silo season 3, Sugar season 2, and the #1 show worldwide, Ted Lasso season 4.
+---------
+
+# The Dink Interview with Jake Johnson & Aaron Chen
+
+Interviews, The Dink, Jake Johnson
+
+Fri, 07 Aug 2026 19:40:09 GMT
+
+https://screenrant.com/video/the-dink-apple-tv-jake-johnson-aaron-chen-interview/
+
+The Dink actors Jake Johnson and Aaron Chen share what they're most competitive about, early experiences with pickleball, and excitement for the final installment of the Spider-Verse.
+---------
+
+# Avengers: Doomsday & Secret Wars Quietly Add 2 Major MCU Writers
+
+Movies, Avengers: Doomsday
+
+Fri, 07 Aug 2026 19:33:53 GMT
+
+https://screenrant.com/avengers-doomsday-secret-wars-chris-mckenna-erik-sommers-writing-update/
+
+Avengers: Doomsday and Secret Wars just got busier, as two new major MCU writers have officially joined the upcoming movies in a new report.
+---------
+
+# Taylor Sheridan’s Original John Dutton Choice For Yellowstone Revealed 8 Years Later
+
+TV, Yellowstone
+
+Fri, 07 Aug 2026 19:28:36 GMT
+
+https://screenrant.com/yellowstone-taylor-sheridan-original-john-dutton-choice/
+
+Yellowstone almost had another leading rancher, as a former Paramount executive reveals another major A-lister was initially picked for John Dutton.
+---------
+
+# Alexandra Daddario Was Wasted In Her 7-Episode Police Procedural Role
+
+TV, Masked Recs
+
+Fri, 07 Aug 2026 19:28:11 GMT
+
+https://screenrant.com/white-collar-waste-alexandra-daddario/
+
+Alexandra Daddario's promising early arc was trimmed with a shocking twist, sidelining a rising star whose presence could have reshaped the show.
+---------
+
+# 3 Best Movies To Watch On Netflix This Weekend (August 8-9)
+
+Movies, Netflix, Recommendation
+
+Fri, 07 Aug 2026 19:20:11 GMT
+
+https://screenrant.com/best-netflix-movies-watch-weekend-august-8/
+
+The best movies on Netflix this weekend are an underrated superhero epic, a scary horror adaptation, and a new sci-fi thriller led by major stars.
+---------
+
+# Zendaya's Athena Role In The Odyssey Perfectly Continues A Decades-Long Nolan Trend
+
+Movies, The Odyssey
+
+Fri, 07 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/the-odyssey-movie-zendaya-athena-troy-role-christopher-nolan/
+
+Zendaya's role as Athena is one of the most memorable performances in The Odyssey, and it continues one of Christopher Nolan's most notable trends.
+---------
+
+# 13 Best Easter Eggs In The Mandalorian (All 3 Seasons)
+
+Streaming TV, The Mandalorian
+
+Fri, 07 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/the-mandalorian-best-easter-eggs-all-seasons/
+
+From Life Day to disintegrations to Operation: Cinder, The Mandalorian is jam-packed with deep cuts and Easter eggs for long-time Star Wars fans.
+---------
+
+# A 39-Year-Old Game From The Metal Gear Solid Studio Has Finally Been Re-Released
+
+Gaming, Konami, Triple-A Games
+
+Fri, 07 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/konami-metal-gear-solid-studio-combat-school-re-release/
+
+If you're into gaming history, this one has been hard to find for a long time, and now it's widely available on multiple platforms.
+---------
+
+# Dungeons & Dragons 2 Has a $150 Million Problem
+
+Featured, Originals
+
+Fri, 07 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/video/dungeons-dragons-2-has-a-150-million-problem/
+
+Dungeons & Dragons 2: The Budget Problem Explained. Despite the success of Honor Among Thieves with critics and audiences, a sequel still hasn't been greenlit—and now we finally know why.
+---------
+
+# Chase Your Comic Book Grails With CBR's New Repackz Partnership
+
+Comics, Absolute Batman, X-Men
+
+Fri, 07 Aug 2026 19:41:34 GMT
+
+https://www.cbr.com/chase-your-comic-book-grails-with-cbrs-new-repackz-partnership/
+
+Our new online experience invites you to rip open virtual packs, and possibly secure some of the coolest comics in the marketplace.
+---------
+
+# Marvel Star's Comic Book Debut Is Officially a Smash Hit
+
+Comics, image comics
+
+Fri, 07 Aug 2026 19:34:41 GMT
+
+https://www.cbr.com/iman-vellani-chachu-1-reprint-release-date-confirmed/
+
+From superhero to superstar, this actress's comic book is in high demand.
+---------
+
+# New 8-Episode Star Wars Series Officially Introduces Its Grogu Replacement
+
+Anime, Star Wars: Visions Presents - The Ninth Jedi, Star Wars, Star Wars: Visions
+
+Fri, 07 Aug 2026 19:20:15 GMT
+
+https://www.cbr.com/star-wars-visions-ninth-jedi-grogu-replacement/
+
+Star Wars' newest show introduces an adorable new character designed to compete with The Mandalorian's beloved Grogu.
+---------
+
+# Disney Officially Revives 32-Year-Old Cult Favorite Fantasy With New Series
+
+TV, Gargoyles, Disney, Disney+
+
+Fri, 07 Aug 2026 19:18:29 GMT
+
+https://www.cbr.com/disney-officially-revives-32-year-old-cult-favorite-gargoyles/
+
+The news fans of the cult classic Gargoyles have waited decades for is finally here.
+---------
+
+# 5 Best-Written Apothecary Diaries Characters
+
+Anime, The Apothecary Diaries
+
+Fri, 07 Aug 2026 19:15:14 GMT
+
+https://www.cbr.com/best-written-apothecary-diaries-characters/
+
+The Apothecary Diaries features some of the best-written and most nuanced characters in all of anime.
+---------
+
+# 5 Forgotten Adventure Movies to Watch If You Love Indiana Jones
+
+Movies, Indiana Jones, Adventure, The Phantom
+
+Fri, 07 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/must-watch-adventure-movies-for-fans-of-indiana-jones-list/
+
+Indiana Jones remains the gold standard for adventure, but there's an endless treasure trove of movies perfect if you love Harrison Ford's hero.
+---------
+
+# Apple TV's Biggest Hit of 2026 Is Officially Coming to Theaters
+
+TV News, Apple TV, AMC, Matthew Rhys, Widow's Bay
+
+Fri, 07 Aug 2026 19:31:14 GMT
+
+https://collider.com/widows-bay-theatrical-screening-apple-tv-amc-theatres/
+
+Widow’s Bay is heading to select AMC Theatres on August 12 for a free one-night-only screening event featuring the final three Season 1 episodes.
+---------
+
+# 10 Perfect Cat-and-Mouse Thriller Movies
+
+Movie, Gone Girl, Se7en, Thriller, North By Northwest
+
+Fri, 07 Aug 2026 19:29:14 GMT
+
+https://collider.com/perfect-cat-and-mouse-thriller-movies-ranked/
+
+Suspenseful classics like Gone Girl, Oldboy, and No Country for Old Men are among the best cat-and-mouse thriller movies ever made.
+---------
+
+# 9 Experimental Memoirs That Are 10/10 Masterpieces
+
+Books and Comics, Books, Mystery, Graphic Novel, History
+
+Fri, 07 Aug 2026 19:20:15 GMT
+
+https://collider.com/experimental-memoirs-masterpieces/
+
+These nine unconventional reads reinvent the memoir through experimental vignettes, comic strips, speculative storytelling, and collage.
+---------
+
+# Marvel’s New ‘Spider-Man’ Just Did What ‘Endgame’ Couldn’t
+
+Movie News, Spider-Man: Brand New Day, Box Office, Tom Holland, Marvel
+
+Fri, 07 Aug 2026 19:15:14 GMT
+
+https://collider.com/spider-man-brand-new-day-box-office-domestic-record-508-million/
+
+Spider-Man: Brand New Day shatters box office records in just seven days, topping domestic and global charts. See how much it's made.
+---------
+
+# 10 Essential Comedy Shows You Need To Watch Before You Die
+
+TV, Comedy, Abbott Elementary, The Office, Friends
+
+Fri, 07 Aug 2026 19:08:15 GMT
+
+https://collider.com/essential-comedy-shows-watch-before-you-die/
+
+These are the essential comedy shows that have left a lasting impact, from timeless classics like Seinfeld to modern favorites like Abbott Elementary.
+---------
+
+# The Best Sci-Fi Series of the '90s Is Officially Getting a Disney+ Reboot
+
+TV News, Animorphs, Sci-Fi, Disney+, Ryan Coogler
+
+Fri, 07 Aug 2026 19:00:15 GMT
+
+https://collider.com/animorphs-disney-plus-reboot-ryan-coogler-update/
+
+Ryan Coogler is officially rebooting Animorphs for Disney+, bringing K.A. Applegate’s beloved sci-fi series back to the screen.
+---------
+
+# 'The Godfather' Is Officially Getting a New Sequel More Than 50 Years Later
+
+Movie News, The Godfather, The Godfather Part II, The Godfather Part III
+
+Fri, 07 Aug 2026 18:45:15 GMT
+
+https://collider.com/the-godfather-connie-sequel-novel-release-date-2027/
+
+The Godfather franchise is officially returning in 2027 with a brand-new authorized sequel centered on Connie Corleone.
+---------
+
+# Dwayne Johnson Officially Addresses the Brutal Reviews of His Most Criticized Movie
+
+Movie News, Moana, Dwayne Johnson
+
+Fri, 07 Aug 2026 19:12:22 GMT
+
+https://movieweb.com/moana-reviews-dwayne-johnson-response/
+
+The star of both the original and the remake reflected on how the reviews "went another way."
+---------
+
+# Robert Pattinson Won't Eclipse This Chilling 'To Catch A Predator' Movie
+
+Features, Primetime, Robert Pattinson
+
+Fri, 07 Aug 2026 19:00:12 GMT
+
+https://movieweb.com/robert-pattinson-primetime-predators-comparison/
+
+Robert Patison's 'Primetime' looks to explore the dark side of 'To Catch a Predator,' but this movie does something it can't.
+---------
+
+# 8 Greatest War Miniseries That No One Talks About
+
+TV Lists, War, Masters of the Air
+
+Fri, 07 Aug 2026 19:00:12 GMT
+
+https://movieweb.com/greatest-war-miniseries-no-one-talks-about/
+
+They deserve more love.
+---------
+
+# 'Heated Rivarly' Season 2 Finds New Cast as Release Window Is Confirmed
+
+TV News, Heated Rivalry
+
+Fri, 07 Aug 2026 18:48:13 GMT
+
+https://movieweb.com/heated-rivarly-season-2-release-window-new-cast/
+
+Justice Smith and Charlie Gillespie have been cast in 'Heated Rivalry' Season 2, which will debut in spring 2027.
+---------
+
+# Disney+'s Best Marvel Show Officially Returns For New Season In 2027
+
+TV News, X-Men '97, Disney+
+
+Fri, 07 Aug 2026 18:45:24 GMT
+
+https://movieweb.com/x-men-97-disney-plus-release-window/
+
+One of Marvel's most celebrated Disney+ shows now has its release schedule set in stone for the foreseeable future.
+---------
+
 # Spider-Man: Brand New Day Is On Track To Become The #1 Movie Of All-Time In America
 
 Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
