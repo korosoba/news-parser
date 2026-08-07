@@ -1,3 +1,179 @@
+# CBS’s Historic Decision Fixes NCIS Season 24’s Biggest Problem
+
+Network TV, NCIS
+
+Fri, 07 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/ncis-season-24-vance-replacement-tony-dinozzo-return-fix/
+
+NCIS season 24 is facing a major crisis but an unexpected historic decision from CBS offers MCRT the perfect way out of the dangerous situation.
+---------
+
+# After 31 Years, Star Trek Voyager's 5-Part Sequel Is Finally The 10/10 Adventure Janeway Deserves
+
+Comics, Star Trek, Star Trek: Voyager
+
+Fri, 07 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/star-trek-voyager-homecoming-final-adventure-janeway/
+
+The best.
+---------
+
+# 3 Kanto Pokémon Everyone Obsessed Over In The '90s
+
+Gaming, Pokemon
+
+Fri, 07 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/kanto-pokemon-everyone-loved-1990s/
+
+Pokémon's Gen 1 games gave us our first batch of beloved monsters, but a few Pokémon from the Kanto were obsessed over by everyone in the '90s.
+---------
+
+# Ned Remembers Peter Parker In Spider-Man: Brand New Day Because Of A No Way Home Detail (MCU Theory)
+
+Superheroes, Spider-Man, Marvel Cinematic Universe, Spider-Man: Brand New Day
+
+Fri, 07 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/spiderman-brand-new-day-ned-remembers-peter-theory/
+
+Peter and Ned's emotional reunion in Spider-Man: Brand New Day may have been secretly set up by a Spider-Man: No Way Home scene years earlier.
+---------
+
+# Chronicles Of The Tomb Raider Officially Releases November 2026
+
+Gaming, Tomb Raider
+
+Fri, 07 Aug 2026 11:30:11 GMT
+
+https://screenrant.com/chronicles-of-the-tomb-raider-arrives-november-2026/
+
+Explore Lara Croft's adventures in the upcoming book, Chronicles of the Tomb Raider, launching November 2026.
+---------
+
+# Silo Season 3 Has Quietly Teased The Algorithm’s Real Identity
+
+Streaming TV, Silo, Silo - Season 3
+
+Fri, 07 Aug 2026 11:30:11 GMT
+
+https://screenrant.com/silo-season-3-episode-6-algorithm-identity-explained/
+
+Many aspects surrounding the Algorithm in Silo remain a mystery in season 3, but the show’s ep. 6 might have given away the truth behind its identity.
+---------
+
+# Dungeons & Dragons Officially Returns With a Brand-New Adventure
+
+Comics, Dungeons and Dragons, Dungeons & Dragons
+
+Fri, 07 Aug 2026 12:00:15 GMT
+
+https://www.cbr.com/dark-horse-dungeons-and-dragons-1-release-date-confirmed/
+
+Dungeons & Dragons fans can officially look forward to a brand-new ongoing series set in their favorite world and helmed by an all-star creative team.
+---------
+
+# The NBC Odyssey Show That Made Sadie Sink a Star 2 Years Before Stranger Things
+
+TV, NBC, Drama
+
+Fri, 07 Aug 2026 11:30:15 GMT
+
+https://www.cbr.com/nbc-american-odyssey-sadie-sink-breakout/
+
+Two years before she appeared in Stranger Things, Spider-Man: Brand New Day star Sadie Sink appeared in a surprising adaptation of The Odyssey.
+---------
+
+# The 67-Year-Old Western That Quentin Tarantino Called "The Greatest Hangout Movie" Is Officially Leaving Streaming
+
+Movie News, Quentin Tarantino, Rio Bravo, John Wayne, HBO Max
+
+Fri, 07 Aug 2026 12:00:15 GMT
+
+https://collider.com/rio-bravo-quentin-tarantino-favorite-western-leaving-streaming-fawesome-august-2026/
+
+The Western classic that Quentin Tarantino called "the greatest hangout movie" is about to leave its streaming home. Find out more.
+---------
+
+# All 13 Episodes From Season 3 of ‘The Sopranos,’ Ranked
+
+TV, The Sopranos, HBO, Crime, James Gandolfini
+
+Fri, 07 Aug 2026 11:57:15 GMT
+
+https://collider.com/the-sopranos-season-3-episodes-ranked/
+
+Season 3 of The Sopranos contained some incredible episodes of television, including "Pine Barrens," "University," and "Employee of the Month."
+---------
+
+# 10 Best Vampire Movies in Film History
+
+Movie, Vampire, What We Do in the Shadows, Only Lovers Left Alive, Dracula
+
+Fri, 07 Aug 2026 11:45:16 GMT
+
+https://collider.com/best-vampire-movies-film-history/
+
+Only Lovers Left Alive, Interview With the Vampire, and Let the Right One In are among the best vampire movies ever made.
+---------
+
+# One of the Greatest WWII Movies of All Time Is Waiting To Be Rediscovered on Free Streaming
+
+Movie Features, A Bridge Too Far, Sean Connery, Richard Attenborough, Robert Redford
+
+Fri, 07 Aug 2026 11:36:15 GMT
+
+https://collider.com/a-bridge-too-far-ww2-movie-free-streaming/
+
+Decades after its release, A Bridge Too Far remains one of the most ambitious and underappreciated World War II movies ever made.
+---------
+
+# Christopher Nolan’s ‘The Odyssey’ Officially Defeats DC's Best Fantasy Movie at the Box Office
+
+Movie News, The Odyssey, Christopher Nolan, Box Office, Wonder Woman
+
+Fri, 07 Aug 2026 11:30:15 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-overtakes-wonder-woman-domestic-box-office-415-million/
+
+Christopher Nolan's The Odyssey has overtaken the DC Extended Universe's Greek myth blockbuster. Find out more.
+---------
+
+# 10 Perfect K-Dramas With 5 Seasons or Less
+
+TV, South Korea, Squid Game, Hospital Playlist, Sweet Home
+
+Fri, 07 Aug 2026 11:22:15 GMT
+
+https://collider.com/perfect-k-drama-shows-shorter-than-5-seasons/
+
+Discover the top K-drama shows that have mastered the art of storytelling across five seasons or fewer, including Squid Game, Kingdom, and Voice.
+---------
+
+# HBO Max's Forgotten 111-Minute Monster Epic Is Taking Over the Streaming Charts
+
+Movie Features, Pacific Rim: Uprising, Cailee Spaeny, HBO Max, Guillermo del Toro
+
+Fri, 07 Aug 2026 11:21:15 GMT
+
+https://collider.com/pacific-rim-uprising-cailee-spaeny-hbo-max/
+
+Pacific Rim: Uprising is charting on HBO Max years after its release, despite being panned by critics and audiences in 2018 when it first came out.
+---------
+
+# Sydney Sweeney R-Rated Thriller Beats Jason Statham Action Hit on Streaming
+
+Movie News, Hot on Streaming, Jason Statham, Sydney Sweeney, The Housemaid, Shelter
+
+Fri, 07 Aug 2026 11:30:12 GMT
+
+https://movieweb.com/sweeney-housemaid-beats-statham-shelter-streaming-august-2026/
+
+We should never underestimate Sydney Sweeney's power, even when she's up against the biggest action star in modern cinema.
+---------
+
 # "Beautiful" New Xbox Hardware Design Leaked Ahead Of Official Reveal
 
 Gaming, Xbox
