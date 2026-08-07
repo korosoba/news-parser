@@ -1,3 +1,25 @@
+# The Last House 2 Chances At Netflix Addressed By Wagner Moura After Shocking Ending
+
+Movies, The Last House
+
+Fri, 07 Aug 2026 07:00:11 GMT
+
+https://screenrant.com/netflix-the-last-house-2-future-wagner-moura-response/
+
+Exclusive: Wagner Moura who portrays Jason in Netflix's new science fiction thriller movie, The Last House, reveals if a sequel could be on the way.
+---------
+
+# The Last House Review: Who Trapped Greta Lee & Wagner Moura In This Movie?
+
+New Movies, The Last House
+
+Fri, 07 Aug 2026 06:59:11 GMT
+
+https://screenrant.com/the-last-house-movie-2026-review/
+
+Despite having plenty going for it, including an intriguing genre premise, Netflix's The Last House is one of the worst films of the year so far.
+---------
+
 # Spirited Away Meets Paper Mario In Stunning New Dark Fantasy
 
 Gaming, Spirited Away, Studio Ghibli, Blue Prince, Indie Games, PC, Steam
