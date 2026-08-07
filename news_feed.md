@@ -1,3 +1,36 @@
+# GTA 6 Netflix Special Length Officially Confirmed
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Fri, 07 Aug 2026 09:09:28 GMT
+
+https://screenrant.com/gta-6-netflix-special-how-long/
+
+Rockstar finally confirmed an extended look at GTA VI is coming, and we now know how long it's going to be.
+---------
+
+# 3 Perfect Movie Masterpieces Streaming on Netflix This Weekend (Aug 8-9)
+
+Movie, In the Land of Saints and Sinners, Minions, Netflix, Five Nights at Freddy's 2
+
+Fri, 07 Aug 2026 09:22:14 GMT
+
+https://collider.com/best-netflix-movies-watch-weekend-august-8/
+
+Five Nights at Freddy's 2, Minions, In the Land of Saints and Sinners, and more make up our list of the best movies streaming on Netflix this weekend.
+---------
+
+# 'Pokémon' Officially Sets New Release for 30th Anniversary
+
+TV News, Pokémon, Cartoons, Anime, Japan
+
+Fri, 07 Aug 2026 09:00:15 GMT
+
+https://collider.com/pokemon-30th-anniversary-mcdonalds-toys-images-release-date-august-2026/
+
+Pikachu, Eevee, and more iconic Pokémon characters are officially reuniting for a new 2026 release to celebrate the franchise’s 30th anniversary.
+---------
+
 # The Last House 2 Chances At Netflix Addressed By Wagner Moura After Shocking Ending
 
 Movies, The Last House
