@@ -1,3 +1,289 @@
+# Very First Stephen King Movie Ever Is Leaving Streaming At The Worst Time
+
+Movies, Masked Recs
+
+Fri, 07 Aug 2026 17:39:29 GMT
+
+https://screenrant.com/stephen-king-carrie-first-ever-movie-leaving-streaming-august-2026/
+
+The very first Stephen King adaptation is set to depart its streaming service, and the move comes right ahead of a significant new release.
+---------
+
+# Ransom Canyon Season 2 Interview with Josh Duhamel & Minka Kelly
+
+TV, Ransom Canyon, Ransom Canyon - Season 2, Minka Kelly, Josh Duhamel
+
+Fri, 07 Aug 2026 17:38:49 GMT
+
+https://screenrant.com/video/ransom-canyon-season-2-josh-duhamel-minka-kelly-interview/
+
+Ransom Canyon stars Josh Duhamel & Minka Kelly explain how Davis' exit changed the game for Staten and Quinn going into season 2.
+---------
+
+# Netflix's High-Concept Sci-Fi Movie Polarizes Critics In Rotten Tomatoes Score Debut
+
+Movies, Masked Recs, Netflix
+
+Fri, 07 Aug 2026 17:30:16 GMT
+
+https://screenrant.com/netflix-the-last-house-movie-rotten-tomatoes-score/
+
+Netflix recently released a new high-concept sci-fi movie, but the first reviews are polarizing, with the Rotten Tomatoes score available.
+---------
+
+# 5 Years Later, Taylor Sheridan's Yellowstone Line About Sam Elliott Has A Whole New Meaning
+
+Streaming TV, Yellowstone, Taylor Sheridan, Sam Elliott
+
+Fri, 07 Aug 2026 17:30:11 GMT
+
+https://screenrant.com/taylor-sheridan-yellowstone-sam-elliott-quote-new-meaning/
+
+Taylor Sheridan's Yellowstone character, Travis Wheatley, mentions Western legend Sam Elliott, and the quote is even more meaningful today.
+---------
+
+# The Odyssey's $1 Billion Box Office Makes History Three Times Over
+
+Movies, Box Office Milestone, The Odyssey
+
+Fri, 07 Aug 2026 17:23:42 GMT
+
+https://screenrant.com/the-odyssey-box-office-billion-dollars-gross-total/
+
+Christopher Nolan's new movie The Odyssey surges past the billion-dollar milestone worldwide, becoming one of the rare 2026 movies to do so.
+---------
+
+# New Sherlock Holmes TV Adaptation Inspired By Major Real-World Figure In Development
+
+TV
+
+Fri, 07 Aug 2026 17:21:06 GMT
+
+https://screenrant.com/sherlocks-secretary-show-development-plot-details/
+
+A new Sherlock Holmes adaptation is in the works, but this one is distinguished by some interesting real-life inspiration and choice of protagonist.
+---------
+
+# Naruto's Biggest Criticism Since The Start Proves Fans Are Missing The Point
+
+Anime, Naruto
+
+Fri, 07 Aug 2026 17:21:05 GMT
+
+https://screenrant.com/naruto-ninja-writing-complaint-missing-the-point/
+
+What everyone gets wrong about Naruto.
+---------
+
+# 3 Best Movies To Watch On Disney+ This Weekend (August 8-9)
+
+Movies, Disney+, Recommendation
+
+Fri, 07 Aug 2026 17:20:11 GMT
+
+https://screenrant.com/best-disney-plus-movies-watch-weekend-august-8/
+
+The best movies on Disney+ this weekend are all timely, including an intense thriller, a superhero epic, and Tom Hardy's action-packed sci-fi.
+---------
+
+# Dwayne Johnson Finally Addresses Moana's Bad Reviews & Underwhelming Box Office
+
+Movies, Moana, Dwayne Johnson
+
+Fri, 07 Aug 2026 17:17:53 GMT
+
+https://screenrant.com/dwayne-johnson-moana-critics-box-office-response/
+
+After Disney’s live-action remake of Moana failed to entice moviegoers or critics, Dwayne Johnson is now reacting to the public’s reception.
+---------
+
+# The Real Hulk Still Hasn't Appeared In The MCU In 11 Years
+
+Movies, Spider-Man: Brand New Day, Hulk, Marvel Cinematic Universe
+
+Fri, 07 Aug 2026 17:11:06 GMT
+
+https://screenrant.com/hulk-real-savage-mcu-missing-spider-man-brand-new-day/
+
+Savage Hulk appears in Spider-Man: Brand New Day, but the character's return doesn't change that we haven't seen the real angry Hulk in over a decade.
+---------
+
+# AMC Is Quietly Abandoning The Walking Dead's Maggie Formula in Dead City Season 3
+
+TV, The Walking Dead: Dead City, AMC, Horror
+
+Fri, 07 Aug 2026 17:30:16 GMT
+
+https://www.cbr.com/amc-twd-dead-city-season-3-abandoning-maggie-formula/
+
+Maggie has always been one of the strongest, most guarded characters in The Walking Dead, but the latest Dead City season signals a huge change.
+---------
+
+# 10 Most Underrated Steampunk Anime, Ranked
+
+Anime
+
+Fri, 07 Aug 2026 17:15:15 GMT
+
+https://www.cbr.com/most-underrated-steampunk-anime-ranked/
+
+Steampunk is far from the most popular anime genre, but its elite series are still worth watching for just about anyone.
+---------
+
+# Zack Snyder's Official Warner Bros. Return Sparks New SnyderVerse Speculation
+
+Movies, zack snyder, Zack Snyder's Justice League, Innovation
+
+Fri, 07 Aug 2026 17:15:11 GMT
+
+https://www.cbr.com/zack-snyder-warner-bros-return-sparks-snyderverse-speculation/
+
+Zack Snyder makes his way back to Warner Bros., and SnyderVerse fans' hopes for a return to the DCEU have been reignited in an instant because of it.
+---------
+
+# GTA 6 Boss Leaves Door Open For Physical Release
+
+Games, Grand Theft Auto
+
+Fri, 07 Aug 2026 17:06:15 GMT
+
+https://www.cbr.com/grand-theft-auto-6-physical-edition-digital-only/
+
+Grand Theft Auto 6 drew a lot of ire for announcing its release would be digital-only, but its parent company has now hinted at a special edition.
+---------
+
+# Studio Ghibli Releases New Kiki's Delivery Service Kitchenware Collection With Retro Jiji Designs
+
+Anime, merchandise, Kiki's Delivery Service, Studio Ghibli
+
+Fri, 07 Aug 2026 17:06:15 GMT
+
+https://www.cbr.com/studio-ghibli-kikis-delivery-service-retro-jiji-kitchenware-collection/
+
+Studio Ghibli unveils a puurfectly lovely tableware series that looks as if it was pulled right out of a famous scene from Kiki's Delivery Service.
+---------
+
+# Sadie Sink Officially Breaks Silence on Jean Grey's MCU X-Men Movie Future
+
+Movies, X-Men (Film), Spider-Man: Brand New Day, Marvel Cinematic Universe, Innovation
+
+Fri, 07 Aug 2026 16:58:32 GMT
+
+https://www.cbr.com/x-men-movie-sadie-sink-jean-grey-mcu/
+
+After months of secrecy, Sadie Sink is finally revealing her future as part of the MCU's X-Men.
+---------
+
+# After 25 Years and 2 Sequels, Cult Classic Police Comedy Returns With Franchise-Best Rotten Tomatoes Score
+
+Movies, Super Troopers 3, Innovation
+
+Fri, 07 Aug 2026 16:48:59 GMT
+
+https://www.cbr.com/super-troopers-3-rotten-tomatoes-score/
+
+A beloved police comedy series is back with its latest sequel, and so far it is proving to be the best of all after some early reviews.
+---------
+
+# New Lord of the Rings Release Officially Explores Sauron's Forgotten Werewolf History
+
+Gaming News, The Lord of the Rings: The Rings of Power, J.R.R. Tolkien, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum
+
+Fri, 07 Aug 2026 17:34:00 GMT
+
+https://collider.com/lord-of-the-rings-online-the-wolves-of-mordor-expansion-sauron/
+
+One of Sauron’s darkest forgotten chapters is finally returning as a new Lord of the Rings release explores his terrifying werewolf era.
+---------
+
+# ‘The Rookie’ Officially Crowned the King of TV With 12.8B Minutes
+
+TV News, The Rookie, ABC, NCIS, Law & Order: Special Victims Unit
+
+Fri, 07 Aug 2026 17:30:03 GMT
+
+https://collider.com/the-rookie-12-billion-minutes-nielsen-ratings/
+
+Ahead of the highly anticipated Season 9, The Rookie amassed 12.8B streaming minutes, outperforming top procedural shows like SVU and NCIS.
+---------
+
+# Prime Video’s ‘Warhammer 40,000’ Universe Is Starting in Exactly the Right Place
+
+TV Features, Warhammer 40k, Secret Level, Prime Video, Henry Cavill
+
+Fri, 07 Aug 2026 17:28:15 GMT
+
+https://collider.com/prime-video-warhammer-40000-deathwatch-secret-level-right-start/
+
+Prime Video’s decision to begin building its Warhammer 40,000 universe around the Deathwatch is the perfect way to introduce the franchise.
+---------
+
+# 'Heated Rivalry' Season 2 Officially Casts Your Favorite Grumpy x Sunshine Couple
+
+TV News, Heated Rivalry, HBO Max, Justice Smith, Charlie Gillespie
+
+Fri, 07 Aug 2026 17:23:49 GMT
+
+https://collider.com/heated-rivalry-season-2-cast-justice-smith-charlie-gillespie-harris-troy/
+
+HBO Max's Heated Rivalry Season 2 has officially cast a duo of key roles alongside Hudson Williams and Conor Storrie. Read on for more.
+---------
+
+# 7 Forgotten Netflix Horror Movies That Are Perfect From Start to Finish
+
+Movie, Netflix, Horror, Bird Box, The Ritual
+
+Fri, 07 Aug 2026 17:04:15 GMT
+
+https://collider.com/forgotten-netflix-horror-movies-perfect-start-to-finish/
+
+From the psychological terror of The Ritual to the post-apocalyptic thriller Bird Box, these forgotten Netflix horror movies are practically flawless.
+---------
+
+# 33 Years Later, a Cult Classic Supernatural Thriller Franchise Returns With New Sequel
+
+Movie News, Leprechaun
+
+Fri, 07 Aug 2026 17:36:12 GMT
+
+https://movieweb.com/leprechaun-sequel-in-the-works/
+
+The long-running cult classic horror fantasy franchise has officially returned.
+---------
+
+# The "Second Greatest Movie Ever Made" Is a Free Streaming Hit
+
+Movie News, The Godfather, Pluto TV, Hot on Streaming
+
+Fri, 07 Aug 2026 17:00:12 GMT
+
+https://movieweb.com/the-godfather-stream-free-pluto-august-2026/
+
+After 54 years, it still only sits in second place.
+---------
+
+# HBO’s Smash Hit Masterpiece Is So Good, It Beat the Greatest Show in Its Genre
+
+Features, The Pitt
+
+Fri, 07 Aug 2026 17:00:12 GMT
+
+https://movieweb.com/the-pitt-streaming-record-greys-anatomy/
+
+HBO has released one of the most popular TV shows of the past few years, and it's even better than another beloved series.
+---------
+
+# Anticipated Timothée Chalamet Sequel Reportedly Delayed Indefinitely
+
+Movie News, Wonka, Timothée Chalamet
+
+Fri, 07 Aug 2026 16:58:22 GMT
+
+https://movieweb.com/timothee-chalamet-wonka-2-delayed/
+
+'Wonka' screenwriter Simon Farnaby says that while Timothée Chalamet wants to make a sequel, his schedule is too full at the moment.
+---------
+
 # The Wait Is Over: Doctor Who Returns With Castling
 
 Gaming, Doctor Who
