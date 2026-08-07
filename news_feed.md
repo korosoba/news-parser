@@ -1,3 +1,333 @@
+# Spider-Man: Brand New Day Is On Track To Become The #1 Movie Of All-Time In America
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Fri, 07 Aug 2026 18:30:11 GMT
+
+https://screenrant.com/spiderman-brand-new-day-box-office-domestic-total-record-on-track/
+
+Spider-Man: Brand New Day's record-breaking box office pace has put it on track to become the highest-grossing movie in U.S. history after 1 week.
+---------
+
+# 24 Years Later, ER Still Has The Best Network TV Death
+
+Network TV, ER
+
+Fri, 07 Aug 2026 18:30:11 GMT
+
+https://screenrant.com/er-mark-greene-death-best-network-tv-unbeaten/
+
+Network TV has brought a lot of memorable deaths to the screen, but there's one in particular that remains unbeaten even after 24 years.
+---------
+
+# Star Trek Doc Featuring William Shatner Hitting Theaters For 60th Anniversary
+
+Movies, Star Trek
+
+Fri, 07 Aug 2026 18:25:50 GMT
+
+https://screenrant.com/william-shatner-star-trek-return-movie-60th-anniversary-doc-regal/
+
+A new Star Trek documentary featuring William Shatner and others is officially hitting theaters this year for the franchise's 60th anniversary.
+---------
+
+# Jim Carrey's Cult Classic That Received Intense Backlash Is Leaving Streaming In 3 Weeks
+
+Movies, Masked Recs
+
+Fri, 07 Aug 2026 18:23:24 GMT
+
+https://screenrant.com/jim-carrey-me-myself-irene-backlash-leaving-streaming-tubi-august-2026/
+
+Jim Carrey's movie did not fit like a glove on this streaming service after 26 years of backlash; this cult classic will officially leave streaming.
+---------
+
+# Pokémon Pokopia: Bubbly Basin DLC Review - Makes A Splash
+
+Gaming, Pokemon Pokopia Expansion Pass - Part 1: Bubbly Basin, Pokemon Pokopia, Pokemon
+
+Fri, 07 Aug 2026 18:07:31 GMT
+
+https://screenrant.com/pokemon-pokopia-bubbly-basin-dlc-review/
+
+Explore Pokémon Pokopia's Bubbly Basin DLC with exciting new features and Water-type Pokémon, which add a ton of complexity to the game.
+---------
+
+# 5 PS3 Games That Are Completely Unplayable Today
+
+Gaming, PlayStation 3, LittleBigPlanet
+
+Fri, 07 Aug 2026 18:00:11 GMT
+
+https://screenrant.com/playstation-3-games-unplayable-today/
+
+The PlayStation 3 was arguably the most difficult generation sony has had to date, and some games never made it out.
+---------
+
+# New Crime Show Based On 19-Book Series Debuts To Underwhelming Score On Rotten Tomatoes
+
+TV, Anna Pigeon, Anna Pigeon - Season 1
+
+Fri, 07 Aug 2026 17:59:58 GMT
+
+https://screenrant.com/anna-pigeon-show-rotten-tomatoes-score-debut/
+
+USA Network's new crime show based on a 19-book series of detective stories debuts to an underwhelming score from critics on Rotten Tomatoes.
+---------
+
+# Netflix's 19-Episode Paranormal Franchise Deserves Its Masterpiece Status
+
+Streaming TV, Masked Recs
+
+Fri, 07 Aug 2026 17:58:11 GMT
+
+https://screenrant.com/netflix-haunting-of-franchise-deserve-masterpiece-status/
+
+Netflix's elegiac 19-part horror masterpiece of haunted families and literary riffs blends profound grief with bone-deep scares and eerie grace.
+---------
+
+# NYT Connections Solution And Hints For August 7, 2026
+
+Gaming, Connections, Mobile
+
+Fri, 07 Aug 2026 17:53:26 GMT
+
+https://screenrant.com/nyt-connections-solution-answer-hints-august-7-2026/
+
+The Connections for today require knowledge of what makes up something else, making the overall puzzle a test of components rather than ideas.
+---------
+
+# GTA 6 Physical Release Gets Official Update
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, Triple-A Games, PC
+
+Fri, 07 Aug 2026 17:47:44 GMT
+
+https://screenrant.com/grand-theft-auto-6-physical-release-take-two/
+
+Take-Two CEO Strauss Zelnick has officially addressed the idea of a digital future, offering some clarification on GTA 6's release plans.
+---------
+
+# 5 OG Pokémon That Are 10/10 Perfect
+
+Anime, Pokemon, Pokémon
+
+Fri, 07 Aug 2026 18:15:15 GMT
+
+https://www.cbr.com/best-perfect-original-pokemon/
+
+Pokémon is a totemic franchise that's come a long way, yet there's still endless love for the franchise's earliest creations and their iconic designs.
+---------
+
+# William Shatner Officially Returns to Star Trek for New 2026 Release
+
+Movies, Star Trek, Innovation
+
+Fri, 07 Aug 2026 18:00:56 GMT
+
+https://www.cbr.com/william-shatner-star-trek-the-sixty-year-mission-documentary-regal/
+
+William Shatner returns for a special Star Trek anniversary event.
+---------
+
+# Marvel Confirms Mary Jane Watson's Next Major Appearance
+
+Comics, Spider-Man, Mary Jane Watson, Marvel Comics
+
+Fri, 07 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/marvel-friendly-neighborhood-mary-jane-release-date-confirmed/
+
+As Spider-Man: Brand New Day dominates the box office, Marvel officially unveils when Peter Parker's classic love interest will be making her debut.
+---------
+
+# Netflix Officially Seals the Fate of David Fincher’s Squid Game Spinoff
+
+TV, Squid Game, Netflix
+
+Fri, 07 Aug 2026 17:58:05 GMT
+
+https://www.cbr.com/david-fincher-squid-game-spinoff-netflix-fate/
+
+David Fincher's American version of Squid Game gets a massive update.
+---------
+
+# Octopath Traveler 3 Officially Teased By Square Enix
+
+Games, Octopath Traveler, Square Enix
+
+Fri, 07 Aug 2026 17:55:15 GMT
+
+https://www.cbr.com/octopath-traveler-3-tease-square-enix/
+
+Square Enix's HD-2D RPG series has already produced a few hits, and the developer and publisher knows there is demand for another game.
+---------
+
+# James Gunn Officially Confirms DCU’s Forgotten Hero's Fate
+
+TV, Blue Beetle, DCU
+
+Fri, 07 Aug 2026 17:45:11 GMT
+
+https://www.cbr.com/blue-beetle-james-gunn-confirms-dcu-animated-series/
+
+James Gunn confirms that the series is still in development.
+---------
+
+# 'Michael' Sequel Is Officially Arriving Sooner Than Expected
+
+Movie News, Michael, Lionsgate, Musical, Box Office
+
+Fri, 07 Aug 2026 18:40:40 GMT
+
+https://collider.com/michael-2-sequel-filming-start-late-2026-early-2027/
+
+After Michael grossed a billion dollars at the box office, work on a sequel is officially underway with filming set to begin soon.
+---------
+
+# Ahead of Henry Cavill's Reboot, Highlander: The Series Is Officially Free to Watch
+
+TV News, Highlander, Henry Cavill, Sean Connery, Dave Bautista
+
+Fri, 07 Aug 2026 18:34:48 GMT
+
+https://collider.com/highlander-the-series-free-streaming-fandango-august-2026/
+
+Ahead of Henry Cavill's Highlander reboot, the franchise's forgotten TV spin-off is now officially free to watch.
+---------
+
+# Diarra from Detroit S2: Heat & Lightning Ruined a Scene | Set Stories
+
+Collider Signature, Diarra From Detroit
+
+Fri, 07 Aug 2026 18:15:15 GMT
+
+https://collider.com/video/diarra-from-detroit-s2-heat-lightning-ruined-a-scene-set-stories/
+
+Diarra from Detroit: Season 2’s Dumpster Secret reveals how Diarra Kilpatrick and her crew stretched their resources with some seriously creative problem-solving.
+---------
+
+# Taylor Sheridan Officially Reveals the Role He Lost to Jon Bernthal
+
+TV News, Taylor Sheridan, Jon Bernthal, The Walking Dead, Yellowstone
+
+Fri, 07 Aug 2026 18:12:28 GMT
+
+https://collider.com/taylor-sheridan-the-walking-dead-shane-role-jon-bernthal/
+
+Taylor Sheridan reflects on losing a pivotal role that shaped his career and his rise in television. Read on for more.
+---------
+
+# New Sherlock Holmes Series Officially in the Works Following Guy Ritchie's Franchise Return
+
+TV News, Psych, USA Network, Sherlock Holmes, Mystery
+
+Fri, 07 Aug 2026 18:10:56 GMT
+
+https://collider.com/sherlocks-secretary-detective-series-andy-berman-usa-network/
+
+Psych producer Andy Berman is working with the USA Network on Sherlock's Secretary, a new detective series based on an unbelievable true story.
+---------
+
+# One of Television’s Most Disturbing Sci-Fi Thrillers Deserved a Third Season
+
+TV Features, Utopia, Channel 4, Sci-Fi
+
+Fri, 07 Aug 2026 18:02:14 GMT
+
+https://collider.com/best-underrated-sci-fi-thriller-utopia-season-3-series/
+
+Utopia is a 100% Rotten Tomatoes sci-fi thriller about a deadly conspiracy, a mysterious graphic novel, and a group forced on the run.
+---------
+
+# 2026 Officially Has a New $1 Billion Hit
+
+Movie News, The Odyssey, Christopher Nolan, Matt Damon, Box Office
+
+Fri, 07 Aug 2026 17:59:49 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-box-office-1-billion/
+
+Just days after Spider-Man: Brand New Day, Tom Holland and Christopher Nolan's The Odyssey has officially grossed over $1 billion at the box office.
+---------
+
+# 'The Invite' Lands Digital Streaming Release Date
+
+Movie News, The Invite
+
+Fri, 07 Aug 2026 18:06:39 GMT
+
+https://movieweb.com/the-invite-lands-digital-streaming-release-date/
+
+After grossing an impressive $40.1 million worldwide, Olivia Wilde's 'The Invite' will be available to stream on Aug. 11, 2026.
+---------
+
+# Every Upcoming Liam Neeson Movie in 2026 and Beyond
+
+Movie Lists, Liam Neeson
+
+Fri, 07 Aug 2026 18:00:13 GMT
+
+https://movieweb.com/every-upcoming-liam-neeson-movie/
+
+Liam Neeson has starred in an average of three movies a year since the turn of the century, and he isn't slowing down.
+---------
+
+# Jon Bernthal's Forgotten 97-Minute Neo-Noir Thriller Is Streaming Free
+
+Features, Jon Bernthal
+
+Fri, 07 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/jon-bernthal-sweet-virginia-free-streaming/
+
+Jon Bernthal starred in the 2026 movies 'Spider-Man: Brand New Day' and 'The Odyssey,' and you can watch his neo-noir thriller for free.
+---------
+
+# Jake Gyllenhaal's Career-Best 95% Thriller Is Now Streaming on Netflix
+
+Movie News, Jake Gyllenhaal, Nightcrawler, Coming/Leaving Streaming
+
+Fri, 07 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/nightcrawler-jake-gyllenhaal-streaming-netflix-august-2026/
+
+Can you find a better performance by Jake Gyllenhaal?
+---------
+
+# 14 Years Later, Raunchy R-Rated Crime Thriller Officially Getting a Sequel
+
+Movie News, Spring Breakers, Bella Thorne
+
+Fri, 07 Aug 2026 17:59:49 GMT
+
+https://movieweb.com/spring-breakers-sequel-bella-thorne-directing/
+
+A follow-up to 'Spring Breakers' will see Bella Thorne writing and directing.
+---------
+
+# Kate Beckinsale To Lead New 'Assault on Precinct 13'-Esque Action Thriller
+
+Movie News, Assault on Precinct 13
+
+Fri, 07 Aug 2026 17:56:51 GMT
+
+https://movieweb.com/kate-beckinsale-drifter-action-thriller/
+
+Kate Beckinsale is set to lead Drifter, a new action thriller that draws clear inspiration from 'Assault on Precinct 13.'
+---------
+
+# 'The Odyssey's Perfect Companion Piece Is a New Historical Epic With 97% on RT
+
+Features, The Samurai and the Prisoner, The Odyssey
+
+Fri, 07 Aug 2026 17:55:07 GMT
+
+https://movieweb.com/the-samurai-and-the-prisoner-kiyoshi-kurosawa-interview/
+
+One of the world's greatest filmmakers delivers a historical war epic with strikingly similar themes to 'The Odyssey'.
+---------
+
 # Very First Stephen King Movie Ever Is Leaving Streaming At The Worst Time
 
 Movies, Masked Recs
