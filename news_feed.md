@@ -1,3 +1,36 @@
+# Spirited Away Meets Paper Mario In Stunning New Dark Fantasy
+
+Gaming, Spirited Away, Studio Ghibli, Blue Prince, Indie Games, PC, Steam
+
+Fri, 07 Aug 2026 06:00:11 GMT
+
+https://screenrant.com/spirited-away-meets-paper-mario-journeys-end/
+
+This new dark fantasy game is directly inspired by Spirited Away, with gameplay mechanics taken straight out of the Paper Mario playbook.
+---------
+
+# Apple TV’s Neuromancer Has The Perfect Follow-Up From A Billion-Dollar Cyberpunk Franchise
+
+Streaming TV, Masked Recs
+
+Fri, 07 Aug 2026 05:31:45 GMT
+
+https://screenrant.com/apple-tv-neuromancer-cyberpunk-2077-live-action-followup/
+
+Even before its premiere on Apple TV, Neuromancer’s adaptation seems to have found its ideal cyberpunk follow-up in a billion-dollar sci-fi franchise.
+---------
+
+# Bleach Officially Returns September 17
+
+Gaming, Bleach, Triple-A Games
+
+Fri, 07 Aug 2026 05:30:11 GMT
+
+https://screenrant.com/bleach-mirrors-high-tokyo-games-show-confirmed/
+
+It's been a while since Bleach fans had much to look forward to, but between the show's new airing and this announcement, there's hope.
+---------
+
 # House Of The Dragon Will Return With A Surprise Mini Arc In Game Of Thrones: Conquest
 
 Gaming, House of the Dragon, Game of Thrones, Game Of Thrones, PC
