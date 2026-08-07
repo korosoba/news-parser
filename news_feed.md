@@ -1,3 +1,179 @@
+# 31 Years Later, Square Enix's Greatest RPG Remains A 10/10 Masterpiece
+
+Gaming, Square Enix, RPG, Chrono Trigger, PC
+
+Fri, 07 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/best-square-enix-rpg-chrono-trigger/
+
+Amazingly, after three decades, Square Enix's greatest RPG has not aged one bit and remains a true masterpiece well worth playing in 2026 and beyond.
+---------
+
+# The Walking Dead's Netflix Deal Gives A Major Boost To Season 12 Hopes
+
+Streaming TV, The Walking Dead
+
+Fri, 07 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/the-walking-dead-netflix-deal-season-12-hopes/
+
+The Walking Dead ran out of steam in later seasons, but Netflix could give the revolutionary zombie series a new lease of life for the future.
+---------
+
+# Spider-Man: Brand New Day Just Dropped A Major Villain Reference That Nobody Noticed
+
+Movies, Spider-Man: Brand New Day
+
+Fri, 07 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-jackal-reference-villain/
+
+Spider-Man: Brand New Day had a shocking major villain reference in the movie that nobody noticed. Here is what it was and why it matters.
+---------
+
+# Every Tom Holland Spider-Man Suit, Ranked By Power Level
+
+Movies, Spider-Man
+
+Fri, 07 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/spider-man-tom-holland-suit-ranked-power-level/
+
+Tom Holland has spent the last decade appearing in Marvel Cinematic Universe movies as Spider-Man, with many different suits along the way.
+---------
+
+# Top 3 Must-Watch Prime Video Shows This Weekend: August 7–9, 2026
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Fri, 07 Aug 2026 22:45:12 GMT
+
+https://screenrant.com/best-prime-video-shows-to-binge-weekend-august-7-2026/
+
+The best Prime Video shows to binge-watch this weekend, August 7–9, 2026, are Batman: Caped Crusader season 2, Ride or Die, and Elle.
+---------
+
+# Marvel Tōkon: Fighting Souls: How To Unlock Every Character Color
+
+Gaming, Marvel Tokon: Fighting Souls, Triple-A Games, PC
+
+Fri, 07 Aug 2026 22:34:40 GMT
+
+https://screenrant.com/marvel-tokon-fighting-souls-how-to-unlock-character-colors/
+
+Every character in Marvel Tōkon: Fighting Souls has multiple color palettes beyond their default looks, including references for players to unlock.
+---------
+
+# Paramount's Upcoming Action Thriller Is Die Hard Meets The Pitt
+
+TV, Masked Recs
+
+Fri, 07 Aug 2026 22:30:12 GMT
+
+https://screenrant.com/paramount-trauma-tv-series-die-hard-pitt/
+
+A tense hospital siege pits a battle-scarred ER doctor against ruthless invaders in a new Paramount+ show that blends The Pitt with Die Hard.
+---------
+
+# 25 Years Later, One Final Fantasy 10 Line Is Still A Top 5 RPG Quote
+
+Gaming, Final Fantasy X, Final Fantasy X-2, Final Fantasy, PC
+
+Fri, 07 Aug 2026 22:27:08 GMT
+
+https://screenrant.com/final-fantasy-10-best-rpg-quote/
+
+After 25 years, this Final Fantasy 10 quote still remains a top contender for best line in RPG history.
+---------
+
+# In Just 1 Day, Ryan Murphy's New Murder Mystery Is a Global Smash Hit Despite Abysmal Reviews
+
+TV, The Shards, Disney+, Ryan Murphy
+
+Fri, 07 Aug 2026 23:00:14 GMT
+
+https://www.cbr.com/the-shards-disney-plus-global-success-august-2026/
+
+Ryan Murphy's new show is one of the most-watched shows on Disney+.
+---------
+
+# 5 MCU Movies Better Than Spider-Man: Brand New Day
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Guardians of the Galaxy, Shang-Chi and the Legend of the Ten Rings, Thunderbolts*, Black Panther, Avengers: Infinity War, Avengers: Endgame
+
+Fri, 07 Aug 2026 23:00:14 GMT
+
+https://www.cbr.com/mcu-movies-better-than-spider-man-brand-new-day-list/
+
+Spider-Man: Brand New Day has quickly become one of the greatest MCU movies yet, but there are a few Marvel Studios flicks that are arguably stronger.
+---------
+
+# Netflix CEO Blames David Fincher for ‘Mindhunter’s Slow Death
+
+TV News, David Fincher, Netflix, Mindhunter, Ted Sarandos
+
+Fri, 07 Aug 2026 23:00:14 GMT
+
+https://collider.com/david-fincher-mindhunter-cancellation-netflix-ceo-explains/
+
+Following David Fincher's comments about an escalating budget, Netflix's Ted Sarandos has given another reason for Mindhunter's cancellation.
+---------
+
+# 'The Exorcist' Gets a Fantasy Twist in HBO Max's 10/10 Sleeper Hit
+
+Movie Features, Practical Magic, Sandra Bullock, Nicole Kidman, The Exorcist
+
+Fri, 07 Aug 2026 22:48:14 GMT
+
+https://collider.com/the-exorcist-fantasy-hbo-max-practical-magic/
+
+Practical Magic follows a family of witches afflicted with a curse that dooms their true loves to die prematurely.
+---------
+
+# 8 Netflix Shows That Are Way Better Than You Remember
+
+TV, Netflix, Julie and the Phantoms, Sense8, Santa Clarita Diet
+
+Fri, 07 Aug 2026 22:44:14 GMT
+
+https://collider.com/netflix-shows-better-than-you-remember/
+
+Discover Netflix shows that are better than remembered, offering hidden strengths and emotional depth on a rewatch, from Ragnarok to Sense8.
+---------
+
+# Netflix Cancelled Its Best ‘Stranger Things’ Replacement After Just 10 Episodes
+
+TV Features, The Midnight Club, Netflix, Mike Flanagan, Stranger Things
+
+Fri, 07 Aug 2026 22:34:14 GMT
+
+https://collider.com/best-stranger-things-replacement-series-midnight-club-mike-flanagan/
+
+Netflix canceled The Midnight Club after one season, but Mike Flanagan’s horror series could have been the perfect Stranger Things successor.
+---------
+
+# Netflix Finds New #1 Series as 3-Part Crime Thriller Dominates Streaming
+
+TV News, Netflix
+
+Fri, 07 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/the-idaho-murders-college-nightmare-netflix-stream-august-2026/
+
+Netflix's latest documentary is a gripping true-crime drama.
+---------
+
+# Marvel's Professor X Candidates & Adam Driver's Reported Villain Role Revealed
+
+Movie News, X-Men, Adam Driver
+
+Fri, 07 Aug 2026 22:58:55 GMT
+
+https://movieweb.com/x-men-adam-driver-casting-rumors/
+
+Bill Skarsgård and Christopher Abbott are in the running to play the X-Men's leader Professor X, while Adam Driver is being eyed for Sebastian Shaw.
+---------
+
 # Live-Action Naruto Movie's Filming Start Window Revealed
 
 Movies, Naruto
