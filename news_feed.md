@@ -1,3 +1,179 @@
+# 10 TV Shows To Watch If You Love One Piece
+
+Streaming TV, One Piece
+
+Fri, 07 Aug 2026 20:30:11 GMT
+
+https://screenrant.com/tv-series-like-one-piece/
+
+One Piece has easily become one of Netflix’s best live-action adaptations. Thankfully, there are other shows that fans of One Piece would like.
+---------
+
+# DC Unveils New Lantern Color, And It's The Strongest One Of All Time
+
+DC Comics, Green Lantern
+
+Fri, 07 Aug 2026 20:10:54 GMT
+
+https://screenrant.com/dc-chrome-lantern-strongest-color-all-time/
+
+DC's new Lantern color surpasses the power of the White Lanterns and the Ultra-Violet Corps, drawing power from the Emotional Entities themselves.
+---------
+
+# One Of Harry Potter's Best Roles Has Become A Poisoned Chalice
+
+Streaming TV, Harry Potter
+
+Fri, 07 Aug 2026 20:00:11 GMT
+
+https://screenrant.com/harry-potter-ginny-weasley-bad-movie-character-hbo-recasting/
+
+One of the best Harry Potter characters has, unfortunately, carried some unfortunate luck for years, and the TV show continues that streak.
+---------
+
+# X-Men '97 Seasons 3 & 4 Release Window Confirmed By Marvel Executive
+
+TV, X-Men '97
+
+Fri, 07 Aug 2026 19:55:22 GMT
+
+https://screenrant.com/xmen-97-season-3-4-release-window-brad-winderbaum/
+
+Marvel executive Brad Winderbaum has shared what the current plan is for releasing X-Men '97 seasons 3 and 4 on Disney+ as season 2 wraps up.
+---------
+
+# Blue Bloods' Major Reagan Family Member Is Reuniting With Danny In Returning Spinoff
+
+TV, Boston Blue, Boston Blue - Season 2, Blue Bloods, Will Estes
+
+Fri, 07 Aug 2026 19:53:33 GMT
+
+https://screenrant.com/boston-blue-season-2-will-estes-jamie-reagan-blue-bloods-return/
+
+Boston Blue is coming back this fall on CBS for season 2, and when it does, Danny Reagan will be reuniting with a fellow Blue Bloods alum.
+---------
+
+# Boston Blue's New Blue Bloods Reunion Paves the Path for a Tom Selleck Return
+
+TV, Blue Bloods, Boston Blue, CBS
+
+Fri, 07 Aug 2026 20:30:44 GMT
+
+https://www.cbr.com/boston-blue-will-estes-blue-bloods-reunion/
+
+Will Estes is confirmed to return for Boston Blue's second season as Jamie Reagan, and the chances of Tom Selleck's return are higher.
+---------
+
+# Yellowstone Quietly Confirmed Monica Dutton's Replacement in Marshals
+
+TV, Marshals, Yellowstone
+
+Fri, 07 Aug 2026 20:30:14 GMT
+
+https://www.cbr.com/yellowstone-marshals-monica-dutton-replacement/
+
+After the premiere of Marshals revealed Monica's tragic fate, it seems the Yellowstone spinoff will take over the role she played in Kayce's life.
+---------
+
+# 4 GameCube RPGs That Are Perfect Masterpieces
+
+Games, Paper Mario: The Thousand-Year Door, Nintendo
+
+Fri, 07 Aug 2026 20:15:15 GMT
+
+https://www.cbr.com/gamecube-rpgs-perfect-masterpieces/
+
+The Nintendo GameCube isn't known for its library of masterpiece RPGs, but the few in its library are truly perfect.
+---------
+
+# Marvel Officially Confirms Guardians of the Galaxy's New Leader
+
+Comics, Guardians of the Galaxy
+
+Fri, 07 Aug 2026 20:00:15 GMT
+
+https://www.cbr.com/imperial-guardians-5-guardians-of-the-galaxy-new-leader/
+
+Who is leading the Guardians of the Galaxy into a new era?
+---------
+
+# The Best Alien 3 Line is Still the Greatest Quote in Sci-Fi Movie History
+
+Movies, Alien 3
+
+Fri, 07 Aug 2026 20:00:15 GMT
+
+https://www.cbr.com/best-alien-3-line-greatest-quote-sci-fi-movie-history/
+
+Alien 3 might be the least liked franchise movie, but a single quote perfectly defined Ellen Ripley's eternal bond with the Xenomorph
+---------
+
+# James Bond Frontrunner's Steamy Purge Replacement Debuts With Divisive Rotten Tomatoes Score
+
+Movies, One Night Only, Innovation
+
+Fri, 07 Aug 2026 19:55:27 GMT
+
+https://www.cbr.com/callum-turner-one-night-only-rotten-tomatoes-score/
+
+Hollywood original films aren't dead, but they're not an instant hit with critics.
+---------
+
+# 25 Best Rock Songs of All Time
+
+Music Features, Music, The Beatles, Queen, Led Zeppelin
+
+Fri, 07 Aug 2026 20:22:14 GMT
+
+https://collider.com/best-rock-songs-all-time-ranked/
+
+"Stairway to Heaven" by Led Zeppelin, "Hotel California" by The Eagles, and "Smells Like Teen Spirit" by Nirvana are among the best rock songs ever.
+---------
+
+# One of the Best Sci-Fi Shows of All Time Is This Near-Perfect 94% Masterpiece
+
+TV Features, Humans, Series, Science Fiction, Rotten Tomatoes
+
+Fri, 07 Aug 2026 20:08:15 GMT
+
+https://collider.com/humans-best-sci-fi-show-rotten-tomatoes-masterpiece/
+
+Humans remains one of sci-fi’s smartest dramas, blending AI thrills with emotional storytelling. Here’s why it deserves more attention.
+---------
+
+# 20 Years Later, One of Gundam's Biggest Sagas Is Free to Stream
+
+TV News, Gundam, Mobile Suit Gundam SEED Destiny, Mobile Suit Gundam SEED, Mobile Suit Gundam SEED Freedom
+
+Fri, 07 Aug 2026 20:00:15 GMT
+
+https://collider.com/gundam-most-successful-timeline-free-youtube/
+
+You can stream Mobile Suit Gundam SEED and Destiny for free and dive into the iconic Cosmic Era timeline. Here's what you need to know!
+---------
+
+# Scrapped 'Star Wars' Movie Now Being Made Into Standalone Sci-fi Adventure
+
+Movie News, Star Wars, Paddington
+
+Fri, 07 Aug 2026 20:17:16 GMT
+
+https://movieweb.com/star-wars-original-sci-fi-disney-movie/
+
+'Paddington 2' screenwriters Simon Farnaby and Paul King pitch for a 'Star Wars' droid movie is being developed into an original film for Disney.
+---------
+
+# 3 Great Harlan Coben Netflix Series You Can Binge in a Weekend
+
+TV Lists, Netflix, Harlan Coben
+
+Fri, 07 Aug 2026 20:00:12 GMT
+
+https://movieweb.com/harlan-coben-netflix-series-binge-watch/
+
+Harlan Coben's novels have been adapted into many Netflix TV adaptations full of plot twists, and these three are perfect to binge watch in a weekend.
+---------
+
 # Top 3 Must-Watch Apple TV Shows This Weekend: August 7–9, 2026
 
 Streaming TV, Apple TV, What to Watch on Apple TV+
