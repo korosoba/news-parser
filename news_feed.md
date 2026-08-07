@@ -1,3 +1,245 @@
+# Live-Action Naruto Movie's Filming Start Window Revealed
+
+Movies, Naruto
+
+Fri, 07 Aug 2026 22:18:11 GMT
+
+https://screenrant.com/naruto-live-action-movie-filming-start-window-revealed/
+
+Lionsgate's upcoming live-action adaptation of the popular manga and anime series, Naruto, finally confirms its official filming start window.
+---------
+
+# Marvel's "New Fantastic Four" Lineup Is Absolutely Wild
+
+Gaming, Marvel Tokon: Fighting Souls, Triple-A Games
+
+Fri, 07 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/marvel-new-fantastic-four-lineup-tokon-fighting-souls/
+
+The Fantastic Four has gone through multiple lineup changes over the years, and hosted several completely different teams, but this reunion is great.
+---------
+
+# 3 Best Movies To Watch On HBO Max This Weekend (August 8-9)
+
+Movies, HBO Max, Recommendation
+
+Fri, 07 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/best-hbo-max-movies-watch-weekend-august-8/
+
+There is so much great new stuff to stream on HBO Max this weekend, but these three films should go straight to the top of your must-watch list.
+---------
+
+# The DCU's Rumored Wonder Woman Is About To Prove She's The Perfect Choice
+
+Movies, Masked Recs
+
+Fri, 07 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/adria-arjona-onslaught-new-dcu-wonder-woman/
+
+Many rumors are circulating about the DC Universe's Wonder Woman, with an upcoming movie possibly proving why one actor is perfect for Diana Prince.
+---------
+
+# Batman Officially Unveils Most Powerful Vehicle of All Time, And It Isn't Close
+
+Comics, Batman
+
+Fri, 07 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/batman-new-vehicle-batmobile-lobo-bike/
+
+Easily his deadliest ride of all time.
+---------
+
+# Top 3 Must-Watch HBO Max Shows This Weekend: August 7–9, 2026
+
+Streaming TV, HBO Max, What to Watch on Max
+
+Fri, 07 Aug 2026 21:45:11 GMT
+
+https://screenrant.com/best-hbo-max-shows-to-binge-weekend-august-7-2026/
+
+The top 3 HBO Max shows worth checking out now are Rick and Morty, Life, Larry and the Pursuit of Unhappiness, and House of the Dragon season 3.
+---------
+
+# X-Men's New MCU Casting Report Details Actors Who Auditioned For Professor X
+
+Movies, X-Men, Marvel Cinematic Universe
+
+Fri, 07 Aug 2026 21:35:21 GMT
+
+https://screenrant.com/x-men-new-mcu-casting-report-professor-x/
+
+Marvel Studios' X-Men reboot is one step closer to finding its new Charles Xavier and a new report reveals the actors who auditioned for the role.
+---------
+
+# Disney+'s 10/10 Superhero Show Returns as the Most-Watched TV Show on Streaming
+
+TV, X-Men '97, Disney+, X-Men
+
+Fri, 07 Aug 2026 22:22:58 GMT
+
+https://www.cbr.com/x-men-97-superhero-success-disney-plus-august-2026/
+
+X-Men '97 is currently the No. 1 most-watched Disney+ show in the U.S.
+---------
+
+# Jon Bernthal’s 2-Season Crime Series Surges on PVOD Streaming After Movie Revival
+
+TV, The Punisher, Marvel Cinematic Universe
+
+Fri, 07 Aug 2026 22:18:06 GMT
+
+https://www.cbr.com/the-punisher-crime-success-pvod-amazon-august-2026/
+
+Jon Bernthal leads a gritty, action-packed crime series to success.
+---------
+
+# After 11 Years, Fox’s Hit Musical Show Gets Encouraging Return Update
+
+TV, Glee, fox, Ryan Murphy
+
+Fri, 07 Aug 2026 22:13:57 GMT
+
+https://www.cbr.com/glee-reboot-update-ryan-murphy/
+
+Gleeks might want to break out the slushies.
+---------
+
+# HBO Max Casts New Heated Rivalry Leads After 97% RT First Season
+
+TV, Heated Rivalry
+
+Fri, 07 Aug 2026 22:04:10 GMT
+
+https://www.cbr.com/hbo-max-casts-harris-troy-heated-rivalry-leads-season-2/
+
+The series is getting closer to Season 2.
+---------
+
+# All of Sukuna's Forms, Ranked by Strength
+
+Anime, Jujutsu Kaisen, Innovation
+
+Fri, 07 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/jjk-sukuna-strongest-forms-ranked-by-power-list/
+
+Ryomen Sukuna, JJK's King of Curses, is incredibly powerful, but only some forms show his true capabilities.
+---------
+
+# 10 Best The Far Side Comic Strips About Musicians, Ranked
+
+Comics, The Far Side
+
+Fri, 07 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/best-far-side-comic-strips-about-musicians/
+
+Music brings society together, but Gary Larson hilariously torments musicians and random maestros in his iconic The Far Side comic strips.
+---------
+
+# 10 Essential 1990s Fantasy Books
+
+Books and Comics, Fantasy, Books, George R.R. Martin, Harry Potter
+
+Fri, 07 Aug 2026 22:01:14 GMT
+
+https://collider.com/fantasy-books-1990s-essential-ranked/
+
+A Game of Thrones by George R.R. Martin and The Golden Compass by Philip Pullman are among the best, most essential fantasy books of the 1990s.
+---------
+
+# 2026’s Most Unhinged Anime Is Now Available to Own
+
+TV News, My Hero Academia, Rooster Fighter, Anime, Blu-ray
+
+Fri, 07 Aug 2026 22:00:14 GMT
+
+https://collider.com/rooster-fighter-season-1-limited-edition-blu-ray/
+
+2026’s most gloriously chaotic anime just landed a collector’s Blu-ray SteelBook release packed with extras, exclusive art, and absolute madness.
+---------
+
+# 51 Years Later, These Are the 10 Best Movies of 1975
+
+Movie, Jaws, One Flew Over the Cuckoo's Nest, Dog Day Afternoon, Best Movies Of The 1970s
+
+Fri, 07 Aug 2026 21:59:14 GMT
+
+https://collider.com/best-movies-1975/
+
+New Hollywood era classics like Dog Day Afternoon, Jaws, and One Flew Over the Cuckoo's Nest are among the best movies of the year 1975.
+---------
+
+# 3 Near-Perfect Movies Officially on Prime Video This Weekend (Aug 8-9)
+
+Movie, Challengers, The Devil's Mouth, Pulp Fiction, Prime Video
+
+Fri, 07 Aug 2026 21:48:14 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-august-8-2026/
+
+Challengers, Pulp Fiction, and The Devil's Mouth make up our list of the best Prime Video movies to watch the weekend of August 8th, 2026.
+---------
+
+# 10 Great Books That Are Real Page-Turners
+
+Books and Comics, Books, The Girl With the Dragon Tattoo, Misery, And Then There Were None
+
+Fri, 07 Aug 2026 21:35:14 GMT
+
+https://collider.com/best-books-real-page-turners/
+
+Whether an addictive sci-fi gem like Project Hail Mary or a timeless classic like The Handmaid's Tale, these books are the definition of page-turners.
+---------
+
+# Modern Cult Classic Survival Thriller Sequel Officially Moving Forward 7 Years Later
+
+Movie News, Crawl
+
+Fri, 07 Aug 2026 22:24:39 GMT
+
+https://movieweb.com/crawl-sequel-emily-rudd-mason-gooding/
+
+The long-awaited follow-up has been in development for two years.
+---------
+
+# New "The Purge Meets Rom-Com" Movie Is a Dystopian Thriller in Disguise
+
+Features, One Night Only
+
+Fri, 07 Aug 2026 22:13:35 GMT
+
+https://movieweb.com/one-night-only-will-gluck-interview/
+
+Read our exclusive interview with the director of the divisive new conceptual rom-com film that's divided critics.
+---------
+
+# Netflix Scores Big With Hard-Hitting New "Rocky Meets Bourne" Action Thriller Series
+
+TV News, Netflix, Action
+
+Fri, 07 Aug 2026 22:00:12 GMT
+
+https://movieweb.com/wrath-netflix-stream-august-2026/
+
+Netflix uses the best action tropes with this hard-hitting MMA thriller.
+---------
+
+# Prime’s Streaming Smash Mystery Series Is So Good, You Won’t Stop Watching
+
+Features, Sterling Point, Prime Video
+
+Fri, 07 Aug 2026 22:00:12 GMT
+
+https://movieweb.com/sterling-point-prime-video-quality-binge/
+
+Prime Video has a new eight-part mystery TV series with a great cast and an intriguing premise, and it makes for a memorable binge-watch.
+---------
+
 # The Walking Dead: Dead City Season 4 Prospects Addressed By Maggie Star Lauren Cohan
 
 TV, The Walking Dead: Dead City, The Walking Dead: Dead City - Season 3, The Walking Dead, Lauren Cohan
