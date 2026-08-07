@@ -1,3 +1,278 @@
+# The Sixth Sense Meets Lovecraftian Horror In Upcoming Indie Game Adaptation
+
+Movies, Masked Recs
+
+Fri, 07 Aug 2026 03:15:11 GMT
+
+https://screenrant.com/dredge-live-action-lovecratian-horror-sixth-sense/
+
+An indie horror game’s upcoming big screen adaptation will seemingly combine Lovecraftian terrors with The Sixth Sense’s chilling twists and turns.
+---------
+
+# Every Marvel Hero Who Could Join The MCU’s Midnight Sons
+
+Superheroes, Ghost Rider, Blade, Doctor Strange, Moon Knight, Marvel Cinematic Universe
+
+Fri, 07 Aug 2026 03:03:11 GMT
+
+https://screenrant.com/every-marvel-hero-who-could-join-the-mcus-midnight-sons/
+
+As Marvel's Midnight Sons becomes more likely for the MCU's post-Secret Wars future, here are the most promising candidates for the new team.
+---------
+
+# Jack Ryan's Ending Promised A Perfect Sequel That Still Hasn't Happened 3 Years Later
+
+Classic TV, Jack Ryan, Tom Clancy's Jack Ryan
+
+Fri, 07 Aug 2026 02:45:11 GMT
+
+https://screenrant.com/jack-ryan-ending-spinoff-rainbow-six-setup-not-happen/
+
+Even though Jack Ryan promised an exciting sequel after season 4 almost three years ago, its follow-up has surprisingly not seen the light of day.
+---------
+
+# Prime Video’s New R-Rated Bosch Replacement Is Ballard’s Perfect Rival
+
+Streaming TV, Masked Recs
+
+Fri, 07 Aug 2026 02:03:10 GMT
+
+https://screenrant.com/neagley-bosch-r-rated-replacement-ballard-rival/
+
+An upcoming crime thriller on Prime Video feels like the perfect Bosch replacement, making it hard not to believe that it is Ballard’s best rival.
+---------
+
+# Michael 2 Gets Major Filming Update As Lionsgate Teases Sequel Release Date
+
+Movies, Michael
+
+Fri, 07 Aug 2026 01:56:55 GMT
+
+https://screenrant.com/michael-2-filming-update-release-date-lionsgate/
+
+The hit 2026 Michael Jackson biopic's upcoming sequel, Michael 2, just got a major production update from Lionsgate and a potential release date.
+---------
+
+# 15 Years Later, Voldemort's Best Harry Potter Line Is Still A Top 5 Fantasy Quote
+
+Movies, Harry Potter
+
+Fri, 07 Aug 2026 01:30:11 GMT
+
+https://screenrant.com/harry-potter-voldemort-best-quote-fantasy-genre/
+
+Lord Voldemort has various quotes throughout the Harry Potter movie saga, but one, in particular, is still one of the best fantasy quotes ever.
+---------
+
+# Deadpool & Wolverine Was Wrong: There Is Another Blade
+
+Movies, Masked Recs
+
+Fri, 07 Aug 2026 01:00:06 GMT
+
+https://screenrant.com/deadpool-wolverine-another-blade-tv-show/
+
+Wesley Snipes delivered one of the most outstanding meta jokes in Deadpool & Wolverine, but technically, he was way off the mark in what he said.
+---------
+
+# Netflix's Flawless 5-Star Horror Thriller Is the Best Zombie Show of the 21st Century
+
+TV, Netflix, Horror, Kingdom
+
+Fri, 07 Aug 2026 03:30:14 GMT
+
+https://www.cbr.com/netflix-kingdom-best-modern-zombie-show/
+
+One of Netflix's best horror shows of the modern age is a genre hybrid that elevated the zombie concept to even greater heights.
+---------
+
+# 5 Most Expensive Fairy-Type Pokémon Cards, Ranked by Price
+
+Games, Pokemon, Pokemon Trading Card Game, Pokemon TCG
+
+Fri, 07 Aug 2026 03:15:15 GMT
+
+https://www.cbr.com/most-expensive-fairy-type-pokemon-cards/
+
+From Pokémon like Jigglypuff and Clefairy, to elegant Pokémon like Sylveon and Gardevoir, Fairy-type Pokémon are some of the franchise's most popular.
+---------
+
+# Star Trek Director Speaks Out After Backlash to Dark X-Files Replacement Episode
+
+TV, Star Trek: Strange New Worlds, Star Trek, Paramount Plus
+
+Fri, 07 Aug 2026 03:06:02 GMT
+
+https://www.cbr.com/star-trek-director-speaks-out-after-backlash-to-dark-x-files-replacement-episode/
+
+The director of the most divisive episode of Season 4 of Star Trek: Strange New Worlds opens up about its unexpected narrative turns.
+---------
+
+# Disney Unveils First Look at Stephen King's Return to Acting After 5 Years
+
+TV, Big City Greens, Stephen King
+
+Fri, 07 Aug 2026 03:06:01 GMT
+
+https://www.cbr.com/disney-big-city-greens-season-3-stephen-king/
+
+Stephen King takes on his first acting role in five years in a Disney series.
+---------
+
+# Crunchyroll Removes Solo Leveling Season 3 Trailer Reveal
+
+Anime, Solo Leveling
+
+Fri, 07 Aug 2026 03:05:15 GMT
+
+https://www.cbr.com/solo-leveling-season-3-beyond-the-system-trailer-remove/
+
+Solo Leveling Season 3 was technically confirmed in an early version of Crunchyroll's Beyond the System movie trailer, but it was inexplicably erased.
+---------
+
+# The 10 Greatest Far Side Comics Published in 1984
+
+Comics, The Far Side
+
+Fri, 07 Aug 2026 03:00:15 GMT
+
+https://www.cbr.com/best-far-side-comics-from-1984-ranked/
+
+The Far Side comics in 1984 saw Larson improving his use of literary devices, the best of which provided exceptional and understandable comedy.
+---------
+
+# The Greatest Sitcom in TV History Is the No. 1 PVOD Show in America 33 Years Later
+
+TV, Cheers, Comedy
+
+Fri, 07 Aug 2026 02:59:31 GMT
+
+https://www.cbr.com/cheers-sitcom-comedy-success-pvod-apple-tv-store-august-2026/
+
+33 years after the series finale, Cheers is the top show on the Apple TV Store, staying steady as the greatest sitcom in history.
+---------
+
+# 7 Forgotten 2010s Anime That Have Already Aged Like Milk
+
+Anime
+
+Fri, 07 Aug 2026 02:45:14 GMT
+
+https://www.cbr.com/forgotten-2010s-anme-already-aged-like-milk/
+
+The 2010s were packed with anime fans were hyping up as new greats of the medium, but some popular series have lost their luster and been forgotten.
+---------
+
+# The Best NES Game is a 10/10 Masterpiece 38 Years Later
+
+Games, Nintendo, Video Games, super mario bros
+
+Fri, 07 Aug 2026 02:15:14 GMT
+
+https://www.cbr.com/best-nes-game-masterpiece-super-mario-bros-3/
+
+The Nintendo Entertainment System is over forty years old, yet one of its last titles is still a 10/10 masterpiece, even 38 years later.
+---------
+
+# TNT's Returning 2-Part Hit Gives a Lord of the Rings Star His Best Fantasy Role in Years
+
+TV, The Librarians: The Next Chapter, The Lord of the Rings, Fantasy
+
+Fri, 07 Aug 2026 02:00:24 GMT
+
+https://www.cbr.com/librarians-the-next-chapter-dominic-monaghan-merlin/
+
+The second season of this underrated fantasy series featured a member of the Fellowship from Peter Jackson's The Lord of the Rings trilogy.
+---------
+
+# Stephen King’s Thrilling 5-Part Supernatural Drama Is Officially Free To Stream
+
+TV Features, Haven, Stephen King, SyFy, Sci-Fi
+
+Fri, 07 Aug 2026 03:04:14 GMT
+
+https://collider.com/haven-stephen-king-supernatural-drama-free-streaming/
+
+Haven is a thrilling adaptation of Stephen King's work, and now is the perfect time to dive into its mysterious, supernatural world for free on Tubi.
+---------
+
+# You Probably Missed This Acclaimed Western Starring Two Beloved (And Award-Winning) Actors — It’s Now Streaming Free
+
+Movie Features, Josh O'Connor, Amy Madigan, Rebuilding, Western
+
+Fri, 07 Aug 2026 03:03:15 GMT
+
+https://collider.com/rebuilding-western-josh-oconnor-streaming-free-august-2026/
+
+The 2025 indie Western Rebuilding, starring Josh O'Connor and Amy Madigan, is now streaming free on Kanopy.
+---------
+
+# Jennifer Garner's Peacock Series Is Officially Its Biggest Streaming Hit With 861M Minutes Watched
+
+TV Features, The Five-Star Weekend, Peacock, Jennifer Garner, Regina Hall
+
+Fri, 07 Aug 2026 01:36:14 GMT
+
+https://collider.com/the-five-star-weekend-jennifer-garner-peacock-biggest-streaming-hit/
+
+Jennifer Garner's Peacock series The Five-Star Weekend has officially become the streamer's biggest hit, and now it's coming back for Season 2.
+---------
+
+# Anya Taylor-Joy's New Action Thriller Beaten by an Upbeat Icon on Streaming
+
+TV News, Lucky, Ted Lasso
+
+Fri, 07 Aug 2026 02:00:22 GMT
+
+https://movieweb.com/lucky-ted-lasso-apple-tv-stream-august-2026/
+
+Apple TV+ scores big with two streaming hits this week.
+---------
+
+# 8 Modern Action Thriller Series That Are Better Than 'Lioness'
+
+TV Lists, Lioness, Thriller
+
+Fri, 07 Aug 2026 02:00:22 GMT
+
+https://movieweb.com/modern-action-thrillers-better-lioness/
+
+'Lioness,' the Taylor Sheridan action thriller starring Zoe Saldaña and Nicole Kidman, is impressive, but these TV shows are better.
+---------
+
+# 'TBBT' Spin-off Reveals Truth Behind One of Its Most Heartbreaking Storylines
+
+Features, Stuart Fails to Save the Universe, The Big Bang Theory, Comedy, HBO Max
+
+Fri, 07 Aug 2026 01:30:12 GMT
+
+https://movieweb.com/tbbt-stuart-spin-off-reveals-truth-heartbreaking-storyline/
+
+'Stuart Fails to Save the Universe' drops a nugget of information in Episode 3 that reveals why Stuart Bloom's life is so heartbreaking.
+---------
+
+# 'Star Wars' Finale Toppled by Modern Action Fantasy Masterpiece at Box Office
+
+Movie News, The Odyssey, Star Wars: Episode III - Revenge of the Sith
+
+Fri, 07 Aug 2026 01:00:12 GMT
+
+https://movieweb.com/star-wars-revenge-of-the-sith-the-odyssey-box-office/
+
+This 'Star Wars' prequel dropped another notch down the box office rankings.
+---------
+
+# Disney Adapting Iconic Attraction Into New TV Series From Beloved Marvel Veteran
+
+TV News, Disney+
+
+Fri, 07 Aug 2026 00:46:49 GMT
+
+https://movieweb.com/spaceship-earth-tv-show-disney-ride-michael-waldron/
+
+Disney's new 'Spaceship Earth' pilot could turn EPCOT's signature attraction into a Disney+ sci-fi adventure series.
+---------
+
 # Lost's Scrapped Twist That Was Too Bold For ABC Cost The Show A Hollywood Star
 
 Classic TV, Lost
