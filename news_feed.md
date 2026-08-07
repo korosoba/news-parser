@@ -1,3 +1,157 @@
+# "Beautiful" New Xbox Hardware Design Leaked Ahead Of Official Reveal
+
+Gaming, Xbox
+
+Fri, 07 Aug 2026 11:00:12 GMT
+
+https://screenrant.com/xbox-new-controller-design-leaked/
+
+Xbox reportedly has some new hardware on the way, and the design is blowing away those who have seen it already.
+---------
+
+# Steam Gamers Have 48 Hours To Get An Incredible Zelda-Like Completely Free
+
+Gaming, Steam, Moonlighter, The Legend of Zelda: The Minish Cap, The Legend of Zelda: A Link to the Past
+
+Fri, 07 Aug 2026 10:59:25 GMT
+
+https://screenrant.com/steam-free-game-24-hours-zelda-like/
+
+Pixel-perfect dungeons and frenetic combat blend with lighter cozy shopkeeping in a loop that feeds progression and obsession. Free now on Steam.
+---------
+
+# Invincible Officially Returns In New Release You Can Check Out Now
+
+Gaming, Invincible
+
+Fri, 07 Aug 2026 10:30:11 GMT
+
+https://screenrant.com/invincible-rpg-pdf-available-now/
+
+Explore the new Invincible RPG and create your own superheroes in this exciting tabletop experience.
+---------
+
+# 10 Best The Far Side Talking Animal Comics, Ranked
+
+Comics, The Far Side
+
+Fri, 07 Aug 2026 11:00:15 GMT
+
+https://www.cbr.com/best-the-far-side-comics-with-talking-animals-ranked/
+
+The Far Side comics consistently present a unique and comical take on themes used by Gary Larson. One such humorous theme involves talking animals.
+---------
+
+# This Is the Real Reason 'Ted Lasso' Is Back for Season 4
+
+TV Features, Ted Lasso, Apple TV, Jason Sudeikis, Hannah Waddingham
+
+Fri, 07 Aug 2026 11:19:16 GMT
+
+https://collider.com/ted-lasso-season-4-return-reason/
+
+Three years after Ted Lasso came to an end after Season 3, the Apple TV series is back following the success of women’s football around the world.
+---------
+
+# 25 Films That Best Capture Male Friendship
+
+Movie, The Shawshank Redemption, Stand by Me, Toy Story, Planes Trains and Automobiles
+
+Fri, 07 Aug 2026 11:07:14 GMT
+
+https://collider.com/25-greatest-films-male-friendship/
+
+Male camaraderie depicted in a variety of cinematic forms.
+---------
+
+# Taylor Sheridan’s Streaming Home Officially Revives the Worst Western of the ‘90s
+
+Movie News, Taylor Sheridan, Western, Wild Wild West, Paramount Plus
+
+Fri, 07 Aug 2026 11:00:15 GMT
+
+https://collider.com/wild-wild-west-streaming-success-paramount-plus-august-2026/
+
+Taylor Sheridan's streaming home is giving new life to a disastrous 1990s Western starring Will Smith. Read on for more.
+---------
+
+# 5 Fantasy Books You Need To Read Before Their TV Adaptations Premiere
+
+TV, Fantasy, Books, Stephen King, Fourth Wing
+
+Fri, 07 Aug 2026 10:47:17 GMT
+
+https://collider.com/fantasy-books-to-read-before-tv-adaptations/
+
+From the LitRPG phenomenon Dungeon Crawler Carl to the popular romantasy Fourth Wing, you must read these fantasy books before their TV adaptation.
+---------
+
+# 8 Book Series Whose Iconic Leads Became TV's Biggest Franchises
+
+TV, Books, Dexter, Reacher, Tracker
+
+Fri, 07 Aug 2026 10:45:17 GMT
+
+https://collider.com/books-tv-show-adaptation-long-running-series-franchise/
+
+From Dexter to Reacher and Tracker to Cross, these strong protagonists led long-running book series before leading the biggest franchises on TV.
+---------
+
+# 10 Most Beloved Fantasy Movies of the 21st Century
+
+Movie, Fantasy, Wicked, Barbie
+
+Fri, 07 Aug 2026 10:38:14 GMT
+
+https://collider.com/most-beloved-fantasy-movies-21st-century/
+
+The new millennium has produced several fantasy movies that are beloved by virtually every type of audience, from Frozen to The Lord of the Rings.
+---------
+
+# Anya Taylor-Joy's Apple TV Crime Thriller Miniseries Is Officially One of the Biggest Hits on Streaming
+
+TV Features, Lucky, Apple TV, Anya Taylor-Joy, Annette Bening
+
+Fri, 07 Aug 2026 10:31:15 GMT
+
+https://collider.com/lucky-apple-tv-anya-taylor-joy-crime-thriller-streaming-hit/
+
+Anya Taylor-Joy's new crime thriller Lucky is one of Apple TV's biggest hits and well worth the binge-watch if you haven't tuned in yet.
+---------
+
+# Taylor Sheridan’s Forgotten Team-Up With Jon Bernthal Officially Surges on Streaming 5 Years Later
+
+Movie News, Those Who Wish Me Dead, Jon Bernthal, Taylor Sheridan, Angelina Jolie
+
+Fri, 07 Aug 2026 10:30:14 GMT
+
+https://collider.com/taylor-sheridan-jon-bernthal-those-who-wish-me-dead-streaming-success-august-2026/
+
+Jon Bernthal's neo-Western action thriller, Those Who Wish Me Dead, directed by Taylor Sheridan and co-starring Angelina Jolie, is a must-watch gem.
+---------
+
+# 'Star Trek: Strange New Worlds' Season 4's Bizarre New Vulcan Mind-Meld Scene, Explained
+
+Features, star trek: strange new worlds, Star Trek
+
+Fri, 07 Aug 2026 11:00:13 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-plant-mind-meld/
+
+Spock's mind melds in 'The Original Series' kickstarted a decades-long Star Trek trend that 'Strange New Worlds' just toyed with. Read on for more.
+---------
+
+# 'Michael 2' Gets Release Date Tease After Record-Breaking Box Office
+
+Movie News, Michael
+
+Fri, 07 Aug 2026 10:38:04 GMT
+
+https://movieweb.com/michael-2-release-date-target/
+
+Lionsgate has penciled in a production window and release date for 'Michael 2,' following the mega success of the Michael Jackson biopic.
+---------
+
 # The Legend Of Zelda Future Officially Confirmed By Nintendo
 
 Gaming, The Legend of Zelda
