@@ -1,3 +1,212 @@
+# Young Sheldon’s Redeemed Villain Officially Returns In Georgie & Mandy’s First Marriage Season 3
+
+Network TV, Young Sheldon, The Big Bang Theory, Georgie & Mandy's First Marriage
+
+Fri, 07 Aug 2026 14:40:28 GMT
+
+https://screenrant.com/georgie-and-mandys-first-marriage-season-3-mary-cooper-zoe-perry-return/
+
+An official update from Georgie & Mandy's First Marriage confirms that Young Sheldon's redeemed villain is coming back in season 3 of the CBS comedy.
+---------
+
+# The Witcher Season 5 Reportedly Delayed From 2026 Release
+
+TV, The Witcher
+
+Fri, 07 Aug 2026 14:36:55 GMT
+
+https://screenrant.com/the-witcher-season-5-release-delay-report/
+
+There was only supposed to be a one-year break between The Witcher seasons 4 and 5, but Netflix reportedly has other plans for the farewell now.
+---------
+
+# Disney Officially Breaks A 15-Year Curse With New Spinoff Movie
+
+Movies, Descendants
+
+Fri, 07 Aug 2026 14:29:39 GMT
+
+https://screenrant.com/descendants-spinoff-movie-hidden-heroes-details-disney-streak-break/
+
+Disney announces a new spinoff movie that will extend a major long-running franchise while breaking a 15-year-curse for the company's projects.
+---------
+
+# Brendan Fraser’s The Mummy 4 Return Gets First Tease From Beloved OG Actor
+
+Movies, The Mummy 4, The Mummy, Oded Fehr
+
+Fri, 07 Aug 2026 14:06:59 GMT
+
+https://screenrant.com/the-mummy-4-oded-fehr-ardeth-bay-return-video-tease/
+
+One of Brendan Fraser's original stars offers the first tease of their return for The Mummy 4 as the long-awaited sequel gears up for filming.
+---------
+
+# The Legend of Korra Ending Explained
+
+SR Originals, The Legend of Korra
+
+Fri, 07 Aug 2026 14:00:12 GMT
+
+https://screenrant.com/legend-korra-series-ending-finale-explained/
+
+The Legend of Korra has recently been added to Netflix, and the ending of the show remains a powerful one.
+---------
+
+# Marvel Rivals: How To Play As The Hood (Abilities, Ultimate, Tips & Tricks)
+
+Gaming, Marvel Rivals, PC, Live Service Games
+
+Fri, 07 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/marvel-rivals-the-hood-build-best-abilities-ultimate-team-comps/
+
+The newest Vanguard in Marvel Rivals is The Hood, a gun-wielding powerhouse with demonic powers and sinister abilities to assist his teammates.
+---------
+
+# 67 Years Later, Supergirl Is Finally More Powerful Than Superman
+
+Comics, Supergirl
+
+Fri, 07 Aug 2026 13:48:11 GMT
+
+https://screenrant.com/supergirl-stronger-than-superman/
+
+Supergirl has officially pulled off a God-level feat (and that is no exaggeration) that not even Superman can claim to have achieved.
+---------
+
+# James Gunn Is Still Developing Sequel To DCEU Movie 3 Years Later
+
+TV, Masked Recs, DC Universe, James Gunn
+
+Fri, 07 Aug 2026 13:47:11 GMT
+
+https://screenrant.com/blue-beetle-dc-tv-show-cancelled-rumors-james-gunn/
+
+Following reports that a big DC Universe TV show with a famous returning superhero has been cancelled, James Gunn finally sets the record straight.
+---------
+
+# 6 10/10 Alien Shows That Can Be Called Perfect
+
+TV, Sci-Fi, The X-Files, Star Trek
+
+Fri, 07 Aug 2026 14:30:15 GMT
+
+https://www.cbr.com/flawless-alien-shows-considered-perfect-list/
+
+Aliens have inspired some of the greatest TV series of all time, but only a few can truly be called perfect television.
+---------
+
+# 5 Most Powerful Dragon Ball Techniques, Ranked
+
+Anime, Dragon Ball, Akira Toriyama, Dragon Ball Super
+
+Fri, 07 Aug 2026 14:15:15 GMT
+
+https://www.cbr.com/dragon-ball-most-powerful-techniques-ranked/
+
+Dragon Ball is full of powerful techniques, but abilities like Hakai and the Super Ultra Spirit Bomb put everything else to shame.
+---------
+
+# James Gunn Shuts Down the Batman: Part II Rumor Fans Wanted to Be True
+
+Movies, The Batman Part II
+
+Fri, 07 Aug 2026 14:04:12 GMT
+
+https://www.cbr.com/james-gunn-shuts-down-the-batman-part-iii-filming-rumor/
+
+DC Studios co-head James Gunn shuts down a major rumor regarding The Batman: Part II, although it isn't what fans were hoping to hear.
+---------
+
+# Disney Is Officially Expanding 11-Year-Old Fantasy Franchise With New Spinoff
+
+Movies, Descendants, Disney
+
+Fri, 07 Aug 2026 14:03:08 GMT
+
+https://www.cbr.com/disney-descendants-hidden-heroes-new-movie/
+
+A major Disney franchise is officially expanding with a new spinoff that fans will love.
+---------
+
+# Official Star Wars Sequel Revives Forgotten Rogue One Characters
+
+Comics, Star Wars, Rogue One: A Star Wars Story
+
+Fri, 07 Aug 2026 14:01:15 GMT
+
+https://www.cbr.com/star-wars-rogue-one-chirrut-and-baze-release-date-confirmed/
+
+The latest Rogue One spinoff title puts two wildly underrated characters in the spotlight, and they deserve every single minute of it.
+---------
+
+# HBO’s 'Harry Potter' Series Officially Changes Footage After Fan Backlash
+
+TV News, Harry Potter, HBO, HBO Max
+
+Fri, 07 Aug 2026 14:36:42 GMT
+
+https://collider.com/hbo-harry-potter-series-footage-change/
+
+HBO's new Harry Potter series officially responded to fan backlash with a surprising change to the previously released first look footage.
+---------
+
+# 2026’s Next Great Horror Slasher Turns the Last Thing You’d Expect Into a Killer
+
+Exclusives, Teenage Sex and Death at Camp Miasma, Jane Schoenbrun, Gillian Anderson, Hannah Einbinder
+
+Fri, 07 Aug 2026 14:27:08 GMT
+
+https://collider.com/best-horror-slasher-2026-camp-miasma-little-death-jane-schoenbrun/
+
+Camp Miasma director Jane Schoenbrun takes us behind the scenes of their meta slasher movie, from killer designs to cut scenes, and more!
+---------
+
+# Jason Statham Officially Returns in 2 Weeks With Blockbuster New Release
+
+Movie News, Mutiny, Jason Statham, Jean-François Richet, Annabelle Wallis
+
+Fri, 07 Aug 2026 14:01:15 GMT
+
+https://collider.com/jason-statham-mutiny-blockbuster-action/
+
+Jason Statham officially returns to action in 2 weeks with a blockbuster new release the audiences have been waiting for.
+---------
+
+# 'Spider-Man: Brand New Day' Introduces The Most Hated Character In Marvel History
+
+Features, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Fri, 07 Aug 2026 14:00:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-mj-boyfriend-paul/
+
+It's rare to find a character unanimously hated by an entire audience group, but Marvel fans detest this brand-new MCU character.
+---------
+
+# Morgan Freeman Reveals Why He's in So Many "Mediocre" Movies
+
+Movie News, Morgan Freeman
+
+Fri, 07 Aug 2026 13:57:13 GMT
+
+https://movieweb.com/morgan-freeman-explains-mediocre-movies/
+
+Makes you wonder which of his films he had in mind when he said that.
+---------
+
+# James Gunn Officially Shuts Down Major Rumor About Matt Reeves' Batman Franchise
+
+Movie News, The Batman, The Batman Part II, James Gunn, Matt Reeves, Robert Pattinson
+
+Fri, 07 Aug 2026 13:51:05 GMT
+
+https://movieweb.com/james-gunn-the-batman-part-ii-major-rumor/
+
+The DC boss addressed a major rumor going around about Matt Reeves' 'The Batman' franchise.
+---------
+
 # American Horror Story’s Fate After Season 13’s Series-Wide Crossover Confirmed
 
 TV, American Horror Story
