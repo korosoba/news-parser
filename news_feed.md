@@ -1,3 +1,245 @@
+# The Wait Is Over: Doctor Who Returns With Castling
+
+Gaming, Doctor Who
+
+Fri, 07 Aug 2026 16:41:50 GMT
+
+https://screenrant.com/doctor-who-castling-release-available-now/
+
+Doctor Who makes an official return today thanks to the release of Castling, a brand-new adventure based on the popular, long-running sci-fi series.
+---------
+
+# Halloween Franchise's "Creative Reset" Plans Addressed By John Carpenter
+
+Horror, Halloween
+
+Fri, 07 Aug 2026 16:38:45 GMT
+
+https://screenrant.com/halloween-franchise-creative-reset-plans-john-carpenter-response/
+
+Following reports that the Halloween franchise is in the midst of a major “creative reset,” John Carpenter shares his thoughts on the IP’s future.
+---------
+
+# Henry Cavill Thriller In Streaming Top 10 Proves He's Guy Ritchie's Jason Statham Replacement
+
+Movies, In the Grey, Henry Cavill, Guy Ritchie
+
+Fri, 07 Aug 2026 16:35:12 GMT
+
+https://screenrant.com/in-the-grey-movie-henry-cavill-guy-ritchie-jason-statham/
+
+The streaming success of the latest Guy Ritchie action thriller confirms that, yes, Henry Cavill has replaced Jason Statham as his go-to leading man.
+---------
+
+# 7 TV Shows Set In The Future That Got A Lot Of Things Right
+
+Classic TV
+
+Fri, 07 Aug 2026 16:30:11 GMT
+
+https://screenrant.com/best-tv-shows-set-in-the-future-most-accurate/
+
+Every future-set show is guessing at a world it hasn't seen yet. Even so, some depictions of the world to come feel more plausible than others.
+---------
+
+# Cookie Queens Review: Girl Scout Cookies Doc Is A Sweet Treat For The Whole Family
+
+New Movies, Documentary, Cookie Queens
+
+Fri, 07 Aug 2026 16:20:16 GMT
+
+https://screenrant.com/cookie-queens-movie-2026-review/
+
+The sweet nature, grounded approach, and understated emotional touches in Cookie Queens make it one of the most adorable films of 2026.
+---------
+
+# All 11 Spider-Man Movies Ranked
+
+Movies, Spider-Man, Marvel Cinematic Universe
+
+Fri, 07 Aug 2026 16:15:12 GMT
+
+https://screenrant.com/spider-man-movies-ranked/
+
+Spider-Man has starred in eleven films in the 21st century. Here's every Spider-Man movie ranked, including both live-action adventures and animation.
+---------
+
+# The Devil's Mouth Interview with Kathryn Newton, Lana Condor & Cast
+
+Horror, The Devil's Mouth, Kathryn Newton, Lana Condor
+
+Fri, 07 Aug 2026 16:01:47 GMT
+
+https://screenrant.com/video/the-devils-mouth-kathryn-newton-lana-condor-cast-interview/
+
+The Devil's Mouth stars Kathryn Newton, Lana Condor, Gavin Casalegno, Nico Hiraga, and Tommi Rose discuss the most challenging aspects of filming their shark thriller and how they felt about THAT ending.
+---------
+
+# Prime Video's 3-Part Fantasy Series Makes Even Game Of Thrones Look Small
+
+TV, Masked Recs
+
+Fri, 07 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/rings-of-power-lore-makes-game-of-thrones-look-small/
+
+One bold move from Prime Video's fantasy makes Game of Thrones seem quaint in comparison, but this show's scope comes with its own set of challenges.
+---------
+
+# Netflix's Emily in Paris Gets Production Update After Actor's Car Accident
+
+TV, Emily in Paris
+
+Fri, 07 Aug 2026 16:38:13 GMT
+
+https://www.cbr.com/netflix-emily-in-paris-production-update-minnie-driver-accident/
+
+Emily in Paris' Academy Award-nominated star suffers a "really bad car accident" in "the middle of France," leading to minor production delays.
+---------
+
+# 5 Fall 2026 Anime Series You Cannot Miss
+
+Anime, The Apothecary Diaries, Black Clover, Dragon Ball Super: Beerus
+
+Fri, 07 Aug 2026 16:15:16 GMT
+
+https://www.cbr.com/fall-2026-anime-series-must-watch/
+
+As the fall 2026 anime season approaches, some of the most anticipated series include Dragon Ball Super: Beerus and the return of Apothecary Diaries.
+---------
+
+# The Walking Dead: Dead City Introduces Maggie's New Best Friend in New Clip
+
+TV, The Walking Dead: Dead City
+
+Fri, 07 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/the-walking-dead-dead-city-maggie-renata-bts-clip/
+
+Exclusive: Maggie is finally happy in The Walking Dead: Dead City again, and it might have something to do with her new bestie.
+---------
+
+# Official DCeased Titans Spin-Off Confirmed, Though Its Fate Is Not Revealed
+
+Comics, #dceased
+
+Fri, 07 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/dceased-titans-spin-off-confirmed-tom-taylor/
+
+Has the DCeased saga not met its end after all?
+---------
+
+# A Quiet Place: Day One Confirms the Future of the Franchise
+
+Movies, Netflix, A Quiet Place, A Quiet Place: Day One
+
+Fri, 07 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/netflix-sci-fi-thriller-future-a-quiet-place-day-one-franchise/
+
+One of the most thrilling sci-fi horrors in recent years is available on Netflix, and may hint at the perfect future for A Quiet Place.
+---------
+
+# Star Trek: Voyager's Creepiest Episode Is the Scariest 46 Minutes in Sci-Fi History
+
+TV, Star Trek, Star Trek: Voyager, Sci-Fi
+
+Fri, 07 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/star-trek-voyager-the-thaw-scariest-episode/
+
+Star Trek: Voyager is the underdog series in the franchise, but it also delivers one of the show's scariest episodes ever.
+---------
+
+# Transformers' Best Movie Officially Returns to Theaters in 1 Month
+
+Movie News, Transformers, The Transformers: The Movie, Hasbro, Fathom Events
+
+Fri, 07 Aug 2026 16:42:37 GMT
+
+https://collider.com/transformers-the-movie-40th-anniversary-theater-return-release-date-september-2026/
+
+Tickets are now officially on-sale for the 40th anniversary theatrical re-release of The Transformers: The Movie. Read on for more
+---------
+
+# Sherlock Holmes Officially Gets an Adults-Only Reboot Series
+
+TV News, Sherlock, Sherlock Holmes, Mystery, Prime Video
+
+Fri, 07 Aug 2026 16:30:15 GMT
+
+https://collider.com/sherlock-holmes-new-series/
+
+A new Sherlock Holmes series is in development from Harry King Television and Shrek's David Lipman that is described as a more darker, adult series.
+---------
+
+# Ahead of ‘Avengers: Doomsday,’ Loki’s Best MCU Quote Has Never Felt More Relevant
+
+TV Features, Marvel, Loki, Avengers: Doomsday, Tom Hiddleston
+
+Fri, 07 Aug 2026 16:12:15 GMT
+
+https://collider.com/best-marvel-loki-quote-season-2-ts-eliot-meaning/
+
+Loki’s best MCU quote takes on new relevance ahead of Avengers: Doomsday, as the multiverse once again becomes Marvel’s biggest threat.
+---------
+
+# Only 10 Marvel Characters Are More Powerful Than Thanos
+
+Movie, MCU, Avengers: Infinity War, Marvel, Superhero
+
+Fri, 07 Aug 2026 16:06:15 GMT
+
+https://collider.com/marvel-characters-more-powerful-than-thanos/
+
+Thanos is widely considered the ultimate threat in the Marvel Universe, but several characters are far more powerful and capable of defeating him.
+---------
+
+# MCU’s New Key Character Confirms "What’s Next" Following 'Spider-Man' Debut
+
+Movie News, Spider-Man: Brand New Day, Sadie Sink, X-Men
+
+Fri, 07 Aug 2026 16:24:37 GMT
+
+https://movieweb.com/sadie-sink-spider-man-brand-new-day-x-men-future/
+
+One of the MCU's biggest new stars already has a bright future ahead after first appearing in the franchise's latest Spider-Man movie.
+---------
+
+# Netflix's 'The Last House' Rotten Tomatoes Score Officially Revealed
+
+Movie Lists, The Last House, Netflix
+
+Fri, 07 Aug 2026 16:05:37 GMT
+
+https://movieweb.com/netflix-the-last-house-rotten-tomatoes-score/
+
+Netflix's newest sci-fi survival thriller 'The Last House' has debuted on Rotten Tomatoes with an abysmally low score based on early critic reviews.
+---------
+
+# Netflix & 'GTA VI' Join Forces for Exclusive Preview
+
+Movie News, Netflix
+
+Fri, 07 Aug 2026 16:02:56 GMT
+
+https://movieweb.com/netflix-gta-vi-exclusive-preview/
+
+Netflix subscribers get dibs over the rest of the internet.
+---------
+
+# Star Trek: 'Strange New Worlds' Season 4's Latest Genre Change Masks Dark Subplot
+
+Features, star trek: strange new worlds, Star Trek
+
+Fri, 07 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-laan-subplot-masked/
+
+'Strange New Worlds' has changed things up yet again, but it hasn't forgotten about one of Season 4's best subplots. Read on for more.
+---------
+
 # 3 Best Movies To Watch On Hulu This Weekend (August 8-9)
 
 Movies, Hulu, Recommendation
