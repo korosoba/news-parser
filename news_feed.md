@@ -1,3 +1,58 @@
+# Apple TV's Murderbot Is More Like Blade Runner Than Blade Runner 2099
+
+Streaming TV, Murderbot, Blade Runner 2099, Blade Runner
+
+Sat, 08 Aug 2026 11:00:11 GMT
+
+https://screenrant.com/apple-tv-murderbot-cyberpunk-more-like-blade-runner-2099/
+
+Blade Runner 2099 is making some big changes to the formula of Ridley Scott's franchise, but Apple TV already has a more faithful cyberpunk show.
+---------
+
+# 10 Greatest The Far Side Insect Comics You Need to Read
+
+Comics, The Far Side
+
+Sat, 08 Aug 2026 11:00:15 GMT
+
+https://www.cbr.com/best-far-side-comics-featuring-insects-ranked/
+
+Insects aren't a species often portrayed in comics. Gary Larson's The Far Side, however, perfectly displays said creatures in the funniest scenarios.
+---------
+
+# One of HBO Max’s Funniest, Most Unhinged Shows of 2026 Has One Colossal Problem
+
+TV Features, Make That Movie, Saturday Night Live UK, Comedy, HBO
+
+Sat, 08 Aug 2026 11:23:15 GMT
+
+https://collider.com/hbo-funniest-comedy-2026-make-that-movie-series/
+
+Make That Movie has been called 2026's funniest TV show, but the acclaimed comedy still isn't streaming in the U.S.
+---------
+
+# Marvel's Biggest Crossover Ever Is Officially Dominating Streaming 5 Years Later
+
+Movie News, Spider-Man: No Way Home, Michael, Streaming, Marvel
+
+Sat, 08 Aug 2026 11:00:15 GMT
+
+https://collider.com/tom-holland-spider-man-no-way-home-streaming-success-itunes-august-2026/
+
+A 2021 Marvel movie has outperformed 2026's Michael on the iTunes charts. Read on for everything you should know about the Tom Holland-led film.
+---------
+
+# One of the Greatest Sci-Fi Action Movies of All-Time Returns to Streaming
+
+Movie News, Predator, Tubi, Coming/Leaving Streaming, Sci-Fi, Action
+
+Sat, 08 Aug 2026 11:00:12 GMT
+
+https://movieweb.com/predator-best-scifi-action-stream-peacock-august-2026/
+
+Even Roger Ebert adored this sci-fi action classic.
+---------
+
 # Batman: Arkham Knight "Definitive Edition" Does What Warner Bros. Won't
 
 Gaming, Batman: Arkham Knight
