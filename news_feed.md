@@ -1,3 +1,157 @@
+# My Life With The Walter Boys Season 3's Cliffhanger Ending Ruins One Of The Show's Best Storylines
+
+Streaming TV, My Life with the Walter Boys
+
+Sat, 08 Aug 2026 20:00:11 GMT
+
+https://screenrant.com/my-life-with-the-walter-boys-season-3-cliffhanger-ruins-story/
+
+My Life with the Walter Boys season 3 undoes one of the show's best narrative choices during its cliffhanger ending. How will this affect season 4?
+---------
+
+# Elden Ring Returns December 2026 With New Malenia-Focused Release For Collectors
+
+Gaming, Elden Ring
+
+Sat, 08 Aug 2026 20:00:11 GMT
+
+https://screenrant.com/elden-ring-malenia-december-2026-statue/
+
+Malenia is arguably the most iconic boss in all of Elden Ring, so it's little surprise to see her return as the center of a new release.
+---------
+
+# Callum Turner's New R-Rated Dystopian Movie Extends Rotten Tomatoes Streak After 6 Years
+
+Movies, Masked Recs, Callum Turner
+
+Sat, 08 Aug 2026 19:56:18 GMT
+
+https://screenrant.com/callum-turner-one-night-only-rotten-tomatoes-audience-score-streak/
+
+Callum Turner's new dystopian movie extends the actor's major Rotten Tomatoes streak after six years, following its release in theaters.
+---------
+
+# One Of Tony Todd's Final Roles Revealed In New Thriller Trailer For Hate Thyself, & The Movie Releases Next Month
+
+Movies, Horror
+
+Sat, 08 Aug 2026 19:52:38 GMT
+
+https://screenrant.com/tony-todd-hate-thyself-movie-trailer/
+
+The new trailer for the horror thriller Hate Thyself previews one of Candyman star Tony Todd's final roles and also reveals the release date.
+---------
+
+# 10 Greatest Anime Series From 1991 to 2000
+
+Anime, Revolutionary Girl Utena, Slam Dunk
+
+Sat, 08 Aug 2026 20:16:15 GMT
+
+https://www.cbr.com/greatest-anime-series-from-1991-to-2000/
+
+Numerous formative anime were released between 1991 and 2000, with titles like Revolutionary Girl Utena and Slam Dunk standing out as true triumphs.
+---------
+
+# Original Star of Disney+'s Canceled Fantasy Spinoff Was 'Disappointed' to Miss Series Finale
+
+TV, Wizards of Waverly Place, Wizards Beyond Waverly Place, Disney+
+
+Sat, 08 Aug 2026 20:10:58 GMT
+
+https://www.cbr.com/wizards-beyond-waverly-place-jake-t-austin-miss-finale/
+
+One star is disappointed not to have been involved with the series finale.
+---------
+
+# TNT's 5-Season Crime Spinoff Series Returns as a Digital Sensation 8 Years After Final Episode
+
+TV, Major Crimes, Crime, The Closer
+
+Sat, 08 Aug 2026 20:01:15 GMT
+
+https://www.cbr.com/tnt-major-crimes-procedural-crime-drama-pvod-success-2026/
+
+One of the best police procedural spin-off series, Major Crimes, is a PVOD hit in the United States 8 years after its series finale.
+---------
+
+# One Piece Unveils Yamato's New Milwaukee Bucks Design in Official NBA Crossover
+
+Anime, One Piece, merchandise
+
+Sat, 08 Aug 2026 20:01:15 GMT
+
+https://www.cbr.com/one-piece-yamato-nba-milwaukee-bucks-design/
+
+The latest entry in the ongoing One Piece crossover with the NBA is unleashing an absolute powerhouse as the next member of the Milwaukee Bucks.
+---------
+
+# 10 Forgotten Superman Villains Who Need a Comeback
+
+Comics, Superman, DC Comics
+
+Sat, 08 Aug 2026 20:01:15 GMT
+
+https://www.cbr.com/superman-villains-who-need-more-attention/
+
+There's more to Superman's rogues' gallery than Lex Luthor and Doomsday.
+---------
+
+# 10 Greatest Sci-Fi Adventure Movies Of All Time, Ranked
+
+Movies, Sci-Fi, Adventure, Back to the Future
+
+Sat, 08 Aug 2026 20:01:15 GMT
+
+https://www.cbr.com/best-sci-fi-adventure-movies-list/
+
+The intersection of sci-fi and adventure has given audiences some of the greatest works of cinema of all time, and some are simply perfect.
+---------
+
+# After 63 Years, ‘Doctor Who’ Has Never Topped This 5-Word Quote
+
+TV Features, Doctor Who, AMC+, Disney+, BBC
+
+Sat, 08 Aug 2026 20:06:15 GMT
+
+https://collider.com/best-doctor-who-quote-genesis-of-the-daleks-greatest-line/
+
+Though Doctor Who is full of iconic quotes, a sentence from a fan-favorite era has come to define the franchise.
+---------
+
+# Paramount+'s 2-Part Spy Thriller Is Officially 2026's Biggest Streaming Sleeper Hit
+
+TV News, The Agency, Paramount Plus, Mindhunter, Jason Bourne
+
+Sat, 08 Aug 2026 20:01:14 GMT
+
+https://collider.com/paramount-spy-thriller-the-agency-streaming-success-august-2026/
+
+Paramount's spy thriller with shades of Mindhunter and Jason Bourne is quietly becoming one of the breakout streaming hits of 2026.
+---------
+
+# William Shatner Returning to the Big Screen in New 'Star Trek' Documentary
+
+Movie News, Star Trek, Star Trek: The Original Series
+
+Sat, 08 Aug 2026 20:05:12 GMT
+
+https://movieweb.com/william-shatner-star-trek-documentary/
+
+And just in time for 'Star Trek's 60th anniversary.
+---------
+
+# Sadie Sink's Jean Grey Officially Confirmed for Marvel's X-Men Reboot
+
+Features, X-Men, Sadie Sink, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 08 Aug 2026 20:00:12 GMT
+
+https://movieweb.com/sadie-sink-jean-grey-confirmed-marvel-x-men-reboot/
+
+With more of the X-Men cast highly anticipated, Sadie Sink's Jean Grey is seemingly set to be the lead of the upcoming reboot.
+---------
+
 # Christopher Nolan Quietly Shaped Prime Video's Fallout In 2 Massive Ways
 
 Streaming TV, Fallout
