@@ -1,3 +1,157 @@
+# Star Trek: TNG Was The Greatest '90s Space Opera, But It Was A Huge Miss Upon Release
+
+Streaming TV, Star Trek: The Next Generation
+
+Sat, 08 Aug 2026 23:15:11 GMT
+
+https://screenrant.com/star-trek-the-next-generation-early-reaction-bad/
+
+Star Trek: The Next Generation is easily one of the most popular and beloved entries in the entire franchise, but it wasn't always that way.
+---------
+
+# 40 Years Later, Stand By Me Is Still The Best Non-Horror Stephen King Movie (Despite What IMDb Says)
+
+Movies, Stand by Me
+
+Sat, 08 Aug 2026 23:15:11 GMT
+
+https://screenrant.com/stand-by-me-best-stephen-king-movie-not-horror/
+
+While many might credit The Shawshank Redemption as the best adaptation of King’s work, Stand by Me remains more impactful for several reasons.
+---------
+
+# We're Finally One Step Closer To Seeing Star Wars' Unreleased Detours Series
+
+Classic TV, Star Wars
+
+Sat, 08 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/star-wars-unreleased-detours-show-september-release/
+
+14 years later, one of Star Wars' most mysterious animated shows is finally getting the attention it deserves. Could it make its way to Disney+?
+---------
+
+# The 6 Biggest DC Villains Right Now
+
+Comics, DC
+
+Sat, 08 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/dc-villains-most-important-biggest-right-now/
+
+The most influential supervillains in DC lore right now.
+---------
+
+# 5 Game Boy Advance Games That Take Forever To Beat
+
+Gaming, Nintendo, Triple-A Games, Nintendo Game Boy Advance
+
+Sat, 08 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/game-boy-advance-games-forever-to-beat/
+
+While the majority of Game Boy Advance titles were somewhat constrained by technical limitations, the Nintendo platform hosted some huge games.
+---------
+
+# 6-Sci Fi Anime Series That Are True Masterpieces
+
+Anime, Sci-Fi, Steins;Gate, Code Geass: Lelouch of the Rebellion, Cowboy Bebop
+
+Sat, 08 Aug 2026 23:15:15 GMT
+
+https://www.cbr.com/sci-fi-anime-series-masterpieces/
+
+Unforgettable science fiction anime masterpieces stretch just beyond the realm of fact into worlds that feel believable.
+---------
+
+# The Simpsons Star Predicts Exactly When the Legendary Series Will End
+
+TV, The Simpsons
+
+Sat, 08 Aug 2026 23:11:54 GMT
+
+https://www.cbr.com/the-simpsons-ending-update-nancy-cartwright/
+
+The voice of Bart Simpson states exactly when she believes the beloved animated series will come to an end.
+---------
+
+# 10 Strongest Members of House Targaryen, Ranked
+
+TV, Game Of Thrones, House of the Dragon
+
+Sat, 08 Aug 2026 23:00:15 GMT
+
+https://www.cbr.com/targaryen-strongest-members-list/
+
+The Targaryens are a powerful family in the Game of Thrones universe, and many of them have showcased their strength.
+---------
+
+# Anne Hathaway's Verity Adaptation Is the Thriller Event of the Year
+
+Movies, Verity
+
+Sat, 08 Aug 2026 23:00:14 GMT
+
+https://www.cbr.com/anne-hathaway-verity-book-adaptation-thriller-event-of-the-year/
+
+Anne Hathaway is on an incredible cinematic run in 2026 and her next book adaptation is set to be a major thriller event.
+---------
+
+# Netflix Officially Welcomes '80s Iconic Horror Franchise in August (With a Major Twist)
+
+Movies, Child's Play, Innovation
+
+Sat, 08 Aug 2026 23:00:14 GMT
+
+https://www.cbr.com/childs-play-franchise-netflix-august-2026/
+
+One of the biggest and bloodiest horror franchises officially has a new streaming home, and fans can binge almost every single entry in one place.
+---------
+
+# 6 Years Later, Anya Taylor-Joy’s Forgotten X-Men Movie Is Officially Finding New Life on Streaming
+
+Movie News, X-Men, The New Mutants, Anya Taylor-Joy, Sci-Fi
+
+Sat, 08 Aug 2026 23:15:14 GMT
+
+https://collider.com/anya-taylor-joy-the-new-mutants-streaming-success-hulu-disney-plus-august-2026/
+
+Anya Taylor-Joy’s forgotten Marvel movie The New Mutants is finding a second life on streaming years after its troubled theatrical release.
+---------
+
+# Guy Ritchie’s 123-Minute War Epic Officially Finds a New Streaming Home
+
+Movie News, Guy Ritchie's The Covenant, Jake Gyllenhaal, Hulu, Guy Ritchie
+
+Sat, 08 Aug 2026 23:00:14 GMT
+
+https://collider.com/jake-gyllenhaal-guy-ritchie-the-covenant-streaming-hulu-august-2026/
+
+Guy Ritchie's Black Hawk Down meets The Hurt Locker war thriller still holds up as one of the best watches on Hulu.
+---------
+
+# Every Ridley Scott War Movie, Ranked
+
+Features, Ridley Scott, War
+
+Sat, 08 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/ridley-scott-war-movies-ranked/
+
+Ridley Scott remains one of, if not the premier working director when it comes to epic war violence and massively-scaled conflict on the big screen.
+---------
+
+# Cillian Murphy's Cult Classic 'Free Fire' Leaves Netflix Very Soon
+
+Movie News, Cillian Murphy, Free Fire
+
+Sat, 08 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/cillian-murphy-free-fire-netflix/
+
+Murphy stars in the action-packed 'Free Fire,' a 1970s-set shootout film that's leaving Netflix shortly.
+---------
+
 # 7 Biggest X-Men Characters Missing From Avengers: Doomsday
 
 Movies, Masked Recs
