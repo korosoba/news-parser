@@ -1,3 +1,146 @@
+# Z Nation Could Have Replaced The Walking Dead, But Fell At The First Hurdle
+
+TV, Z Nation, The Walking Dead
+
+Sat, 08 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/z-nation-syfy-fail-the-walking-dead/
+
+The Walking Dead's best possible replacement on Syfy could have been great, but ultimately fell at the first hurdle right at the very start.
+---------
+
+# Coyote vs. Acme: Looney Tunes Can't Afford to Fail
+
+Featured, Originals, Coyote Vs. Acme
+
+Sat, 08 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/video/coyote-vs-acme-looney-tunes-can-t-afford-to-fail/
+
+Coyote vs. Acme Could Change Warner Bros. Few movies have ever reached theaters after surviving a battle quite like this one. Finished, shelved for a tax write-off, rescued by fans, and finally released years later, Coyote vs. Acme has already made Hollywood history before opening weekend even begins.
+---------
+
+# Fallout: Maximus Statue Set To Release In 2027
+
+Gaming, Fallout
+
+Sat, 08 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/fallout-maximus-2027-statue-release/
+
+Maximus could be one of the most important characters in the Fallout series, and he's about to be immortalized in statue form.
+---------
+
+# CBS’s 2-Part Comedy Could Have Run Forever But Was Quietly Canceled
+
+Network TV, Masked Recs, CBS
+
+Sat, 08 Aug 2026 18:30:11 GMT
+
+https://screenrant.com/b-positive-chuck-lorre-sitcom-cbs-canceled/
+
+CBS quietly canceled this Chuck Lorre sitcom after 2 seasons, just when the comedy unlocked a trick to run forever with a subtle reinvention.
+---------
+
+# The Best Tombstone Line Is Still the Greatest Quote in Western History
+
+Movies, Tombstone, Western
+
+Sat, 08 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/doc-holliday-best-tombstone-line-greatest-quote-western-history/
+
+Tombstone is jam-packed with iconic lines, but this one Doc Holliday quote is the greatest in Western movie history.
+---------
+
+# Netflix's Reboot of NBC's Iconic Western Debuted to 926M Minutes Viewed Amid 'Woke' Criticism
+
+TV, Little House on the Prairie
+
+Sat, 08 Aug 2026 18:43:11 GMT
+
+https://www.cbr.com/little-house-on-the-prairie-netflix-debut-926-million/
+
+The streaming charts prove just how successful Netflix's newest reboot series has turned out to be.
+---------
+
+# 8 Beloved Fantasy Series That Have Already Been Renewed for More Seasons
+
+TV, Fantasy, The Lord of the Rings: The Rings of Power, House of the Dragon, Percy Jackson & the Olympians
+
+Sat, 08 Aug 2026 19:05:15 GMT
+
+https://collider.com/best-fantasy-shows-renewed/
+
+The Rings of Power, House of the Dragon, Percy Jackson and the Olympians, and more make up our list of fantasy shows that have already been renewed.
+---------
+
+# Ridley Scott’s 144-Minute Sci-Fi Masterpiece Is Officially Finding a Massive Streaming Audience
+
+Movie News, The Martian, Sci-Fi, Matt Damon, Ridley Scott
+
+Sat, 08 Aug 2026 19:00:15 GMT
+
+https://collider.com/matt-damon-sci-fi-the-martian-streaming-success-prime-video-hulu-august-2026/
+
+Ridley Scott’s Oscar-nominated sci-fi hit The Martian is once again proving why it’s one of the greatest space adventures ever made.
+---------
+
+# 'Blue Bloods' Never Should Have Ended, and the Brutal Truth Proves It
+
+TV Features, Blue Bloods, Tom Selleck, Boston Blue
+
+Sat, 08 Aug 2026 18:38:14 GMT
+
+https://collider.com/blue-bloods-cancellation-tom-selleck-comments/
+
+Tom Selleck revealed some shocking truths about Blue Bloods, revealing that CBS made a mistake ending the show when it did.
+---------
+
+# 'Reacher' Is Officially Moving Away From Its Winning Formula With Season 5’s Book
+
+TV Features, Reacher, Jack Reacher, Alan Ritchson, Neagley
+
+Sat, 08 Aug 2026 18:27:14 GMT
+
+https://collider.com/reacher-season-5-book-make-me-formula-change/
+
+Reacher just revealed the book that's being adapted for Season 5, which confirms a major change for the Prime Video show's winning formula.
+---------
+
+# 'James Bond' Meets 'The Fugitive' in Jon Bernthal's 9/10 Action Thriller Sleeper Hit on Prime Video
+
+Movie News, Jon Bernthal, Cold Storage, Hot on Streaming
+
+Sat, 08 Aug 2026 19:00:12 GMT
+
+https://movieweb.com/the-amateur-prime-video-streaming-hit-august-2026/
+
+While he only appears in a handful of scenes, Bernthal is mind-blowing as usual.
+---------
+
+# Taylor Sheridan's 'Lioness' Nabs 9/10 Score from Rotten Tomatoes Audiences
+
+TV News, Lioness
+
+Sat, 08 Aug 2026 18:49:38 GMT
+
+https://movieweb.com/lioness-season-3-rotten-tomatoes-audience-score/
+
+Season 3 has earned the best viewer score the series has seen on Rotten Tomatoes.
+---------
+
+# 3 Binge-Worthy Apple TV Masterpieces To Watch This Weekend
+
+TV Lists, Apple TV, Widow's Bay, Maximum Pleasure Guaranteed, Monarch: Legacy of Monsters
+
+Sat, 08 Aug 2026 18:30:12 GMT
+
+https://movieweb.com/apple-tv-best-shows-binge-watch/
+
+If you feel like you’ve already seen all the major hits on Netflix, Prime Video, and HBO Max, you might be looking for some new shows to check out.
+---------
+
 # 10 Movies To Watch If You Love The Raid: Redemption
 
 Movies, The Raid: Redemption, The Raid 2, Monkey Man, Kill, Dredd, Ong Bak: The Thai Warrior, The Protector, Upgrade, Extraction, Undisputed II: Last Man Standing, Headshot, The Night Comes For Us
