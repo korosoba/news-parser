@@ -1,3 +1,102 @@
+# 10 Years Later, MCU Spider-Man Still Can’t Escape Iron Man
+
+Movies, Marvel Cinematic Universe, Spider-Man: Brand New Day
+
+Sat, 08 Aug 2026 20:45:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-mcu-iron-man/
+
+The way in which Spider-Man's story once again builds on his connection to Iron Man proves the hero may be forever tied to his former mentor.
+---------
+
+# Barack Obama's HBO Max Series Cameo With Larry David Resolves 12-Year Controversy
+
+TV, Life, Larry and the Pursuit of Unhappiness
+
+Sat, 08 Aug 2026 20:34:39 GMT
+
+https://screenrant.com/life-larry-the-pursuit-of-unhappiness-barack-obama-cameo-controversy/
+
+Former president Barack Obama goes back in time to revisit a strange moment during his time in office in Larry David's HBO comedy series..
+---------
+
+# 6 Best Miniseries Released In 2026 (So Far)
+
+Streaming TV
+
+Sat, 08 Aug 2026 20:30:11 GMT
+
+https://screenrant.com/best-miniseries-2026/
+
+Eight months into 2026, these seven miniseries stand out amongst the rest as the most entertaining, best written, and most compelling so far.
+---------
+
+# Game of Thrones Prequel Is Officially 1 of the Biggest Shows on Streaming With 969M Minutes Viewed
+
+TV, House of the Dragon, Game Of Thrones
+
+Sat, 08 Aug 2026 20:30:15 GMT
+
+https://www.cbr.com/house-of-the-dragon-season-3-nielsen-charts-july-2026/
+
+Although the prequel has proven to be divisive, it maintained strong viewership for its new entry.
+---------
+
+# Michael Bay's 5-Season Sci-Fi Series Shoots to No. 6 on VOD After Netflix Release
+
+TV, The Last Ship
+
+Sat, 08 Aug 2026 20:21:16 GMT
+
+https://www.cbr.com/the-last-ship-sci-fi-vod-success-august-2026/
+
+Michael Bay's post-apocalyptic sci-fi series becomes a VOD hit after recently resurfacing on Netflix.
+---------
+
+# Pokémon Red, Blue and Yellow Collection Sells for Record $2 Million
+
+Games, Pokemon, Nintendo, Pokémon
+
+Sat, 08 Aug 2026 20:20:15 GMT
+
+https://www.cbr.com/pokemon-red-blue-yellow-collection-sells-record-2-million/
+
+Near-perfect graded copies of Pokémon Red, Blue, and Yellow for the original Game Boy system have sold for a record-breaking $2 million USD.
+---------
+
+# 3 Action Movie Trilogies That Give The Dark Knight a Run for Its Money
+
+Movie, Action, The Dark Knight Trilogy, The Lord of the Rings, Rise of the Planet of the Apes
+
+Sat, 08 Aug 2026 20:53:15 GMT
+
+https://collider.com/action-movie-trilogies-give-the-dark-knight-a-run-for-its-money/
+
+Christopher Nolan's The Dark Knight set the benchmark, but these three action trilogies built worlds and stories just as unforgettable.
+---------
+
+# Ridley Scott's Sci-Fi Box Office Bomb Officially Redeems Itself on Streaming Ahead of Sequel
+
+Movie News, Blade Runner, Blade Runner 2049, Blade Runner 2099, Sci-Fi
+
+Sat, 08 Aug 2026 20:30:14 GMT
+
+https://collider.com/denis-villeneuve-sci-fi-sequel-blade-runner-2049-streaming-success-paramount-plus-august-2026/
+
+Blade Runner 2049 is experiencing a streaming resurgence years after Denis Villeneuve’s acclaimed sci-fi sequel underperformed at the box office.
+---------
+
+# 10 Best Book Antiheroes of All Time
+
+Books and Comics, Books, The Dark Tower, The Maltese Falcon, Conan the Barbarian
+
+Sat, 08 Aug 2026 20:29:14 GMT
+
+https://collider.com/best-book-antiheroes-all-time-ranked/
+
+Antiheroes in literature have been a thing for centuries, as classic characters like Edmond Dantès, Holden Caulfield, and Roland Deschain all show.
+---------
+
 # My Life With The Walter Boys Season 3's Cliffhanger Ending Ruins One Of The Show's Best Storylines
 
 Streaming TV, My Life with the Walter Boys
