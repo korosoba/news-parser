@@ -1,3 +1,124 @@
+# Christopher Nolan Quietly Shaped Prime Video's Fallout In 2 Massive Ways
+
+Streaming TV, Fallout
+
+Sat, 08 Aug 2026 19:30:11 GMT
+
+https://screenrant.com/christopher-nolan-fallout-show-influence/
+
+You won't see Christopher Nolan's name in the credits of Prime Video's Fallout TV series, but he played a massive role behind the scenes.
+---------
+
+# 7 Years Later, Kylo Ren Has Finally Returned To Star Wars With Badass New Fight
+
+Star Wars, Ben Solo/Kylo Ren
+
+Sat, 08 Aug 2026 19:30:02 GMT
+
+https://screenrant.com/kylo-ren-return-star-wars-badass-fight/
+
+Star Wars brings Kylo Ren back into the spotlight to place him at the same level as Darth Vader and Luke Skywalker within a single action scene.
+---------
+
+# Every Jean Grey Actress In Live-Action Marvel Movies
+
+Superheroes, X-Men, Marvel's X-Men, Marvel Cinematic Universe
+
+Sat, 08 Aug 2026 19:25:11 GMT
+
+https://screenrant.com/jean-grey-actress-marvel-movies-live-action/
+
+Jean Grey has been in multiple live-action Marvel movies, primarily thanks to the X-Men franchise, with several actresses playing the mutant.
+---------
+
+# Apple TV’s Buccaneers Season 3 Lands Release Window & First Image
+
+TV, The Buccaneers
+
+Sat, 08 Aug 2026 19:10:09 GMT
+
+https://screenrant.com/the-buccaneers-season-3-apple-tv-filming-update/
+
+The Buccaneers is making a comeback, as Apple TV's perfect Bridgerton replacement lands season 3 release window in new images of the upcoming season.
+---------
+
+# Hugh Jackman Stole the Show in Netflix's 5-Star Adult Sitcom With 90% on Rotten Tomatoes
+
+TV, hugh jackman, Human Resources, Netflix, Innovation
+
+Sat, 08 Aug 2026 19:30:15 GMT
+
+https://www.cbr.com/netflix-hugh-jackman-human-resources-performance/
+
+Hugh Jackman steals the show in Human Resources, bringing unexpected depth and villainous charm to Netflix’s two-season adult animation.
+---------
+
+# God of War Fans Lament TV Show Recasting After Ryan Hurst Shares New Image as Kratos
+
+TV, God of War
+
+Sat, 08 Aug 2026 19:29:04 GMT
+
+https://www.cbr.com/god-of-war-series-ryan-hurst-kratos-new-image/
+
+"Amazon made the biggest mistake," one fan wrote about Kratos being recast for the TV series.
+---------
+
+# USA's 8-Part Untamed Replacement Debuts With Divisive Rotten Tomatoes Score
+
+TV, Rotten Tomatoes, Anna Pigeon, Untamed
+
+Sat, 08 Aug 2026 19:25:36 GMT
+
+https://www.cbr.com/usa-anna-pigeon-rotten-tomatoes-score/
+
+Untamed was a hit for Netflix, so USA Network got its own.
+---------
+
+# 10 Greatest Anime Villains of the 21st Century
+
+Anime, Jujutsu Kaisen, Naruto, Puella Magi Madoka Magica
+
+Sat, 08 Aug 2026 19:15:15 GMT
+
+https://www.cbr.com/greatest-anime-villains-of-the-21st-century/
+
+The anime of the 21st century have introduced some of the greatest villains of all time.
+---------
+
+# 10 Greatest Fantasy Video Games of the '90s
+
+Gaming, Video Game, Fantasy, Final Fantasy, Castlevania
+
+Sat, 08 Aug 2026 19:37:15 GMT
+
+https://collider.com/best-fantasy-video-games-90s-ranked/
+
+Diablo, Chrono Trigger, and The Legend of Zelda: Ocarina of Time are some of the best and most defining fantasy video games to come out in the 1990s.
+---------
+
+# USA Network Scores Big With New Sherlock Holmes Reboot Series With Big Twist
+
+TV News, Sherlock Holmes
+
+Sat, 08 Aug 2026 19:35:45 GMT
+
+https://movieweb.com/usa-sherlock-holmes-secretary-reboot-series/
+
+You didn't see this 'Sherlock Holmes' spin-off coming.
+---------
+
+# Netflix's Near-Perfect Fantasy Adaptation Is a Great Weekend Binge-Watch
+
+Features, Fantasy, One Hundred Years of Solitude, Netflix
+
+Sat, 08 Aug 2026 19:31:12 GMT
+
+https://movieweb.com/one-hundred-years-of-solitude-netflix-binge-watch/
+
+Netflix's adaptation of one of the greatest novels ever written lives up to its source material.
+---------
+
 # Z Nation Could Have Replaced The Walking Dead, But Fell At The First Hurdle
 
 TV, Z Nation, The Walking Dead
