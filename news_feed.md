@@ -1,3 +1,135 @@
+# 27 Years Later, An Inaccessible PlayStation 1 Classic Has Come To Modern Consoles
+
+Gaming, PlayStation, Triple-A Games
+
+Sat, 08 Aug 2026 15:21:08 GMT
+
+https://screenrant.com/ps1-playstation-classic-returns-27-years-later/
+
+This fascinating PlayStation game was unavailable in the West for decades, but that's finally changed with a new port for modern consoles.
+---------
+
+# Spider-Man: Brand New Day’s Week 2 Box Office Is Better Than Most Movies' Debuts
+
+Movies, Box Office, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 08 Aug 2026 15:06:37 GMT
+
+https://screenrant.com/spider-man-brand-new-day-box-office-week-2-domestic-chart-report/
+
+Spider-Man: Brand New Day has a record-setting sophomore weekend at the domestic box office with a haul that is better than all but one 2026 debut.
+---------
+
+# Marvel Is Recreating A Hated MCU Movie, But This Time It Might Succeed
+
+Marvel Comics, Marvel
+
+Sat, 08 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/iron-man-whiplash-saga/
+
+Marvel remakes one of the most unpopular MCU movies with the same heroes, villains, and basic plot elements, but with a much more solid execution.
+---------
+
+# Bruce Willis’ $176M Hit With One Of The Best Time Travel Twists Of All Time Finds New Streaming Home
+
+Movies, Masked Recs
+
+Sat, 08 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/bruce-willis-looper-movie-tubi-streaming-release-august-2026/
+
+One of Bruce Willis' biggest sci-fi hits featuring a unique twist on the time travel genre has found a new streaming home, now available for free.
+---------
+
+# D&D Officially Enters The Dawn Of A New Era In November 2026
+
+Gaming, Dungeons & Dragons, Dungeons and Dragons, PC
+
+Sat, 08 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/dungeons-dragons-dnd-universes-beyond-2026/
+
+Dungeons & Dragons is officially entering a bold new era this year with the launch of several exciting and ambitious initiatives.
+---------
+
+# Henry Cavill's Major New Streaming Franchise Will Make The Witcher Look Small
+
+Streaming TV, Masked Recs
+
+Sat, 08 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/henry-cavill-warhammer-franchise-the-witcher-look-small/
+
+Henry Cavill is involved with a new fantasy franchise that is so expansive, it makes his Netflix series, The Witcher, feel small in comparison.
+---------
+
+# 5 2026 Shonen Anime Already Considered Masterpieces
+
+Anime, shonen anime, Black Torch, Daemons of the Shadow Realm
+
+Sat, 08 Aug 2026 15:15:15 GMT
+
+https://www.cbr.com/2026-shonen-anime-masterpieces/
+
+2026 has been full of groundbreaking shonen successes, with titles like Mao and Akane-banashi destined to become modern classics.
+---------
+
+# 7 Anime With Perfect First Seasons That Fell Apart Later
+
+Anime, The Seven Deadly Sins, The Promised Neverland
+
+Sat, 08 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/perfect-anime-first-season-that-fall-apart-later/
+
+A brilliant first season set high expectations, but these anime lost their magic as the story continued.
+---------
+
+# Apple TV’s Longest-Running Sci-Fi Only Needed 1 Season To Become a Masterpiece
+
+TV Features, For All Mankind, Apple TV, Ronald D. Moore, Sci-Fi
+
+Sat, 08 Aug 2026 15:23:15 GMT
+
+https://collider.com/for-all-mankind-apple-tv-sci-fi-masterpiece/
+
+For All Mankind, one of Apple TV's first-ever sci-fi shows, only needed to air one season to earn masterpiece status.
+---------
+
+# 10 Best Black Netflix Original Shows Available To Stream Right Now
+
+TV Lists, Netflix
+
+Sat, 08 Aug 2026 15:00:13 GMT
+
+https://movieweb.com/best-black-netflix-original-shows-available-to-stream-right-now/
+
+From comedies to dramas, Netflix has created some great original shows with Black culture as the focus.
+---------
+
+# Prime Video's 122-Minute Action Hit Crowned One of the Biggest Movies of 2026
+
+Movie News, The Wrecking Crew, Hot on Streaming, Action, Prime Video
+
+Sat, 08 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/the-wrecking-crew-action-prime-video-streaming-hit-august-2026/
+
+Amazon has struck gold with Dave Bautista and Jason Momoa's action smash, which is now officially one of the biggest movies of the year so far.
+---------
+
+# What Happens to House Velaryon by the Time of ‘Game of Thrones’?
+
+Features, House of the Dragon, HBO Max, Game Of Thrones, Game of Thrones
+
+Sat, 08 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/what-happens-house-velaryon-game-of-thrones/
+
+The Velaryons are one of the most powerful houses in Westeros during 'House of the Dragon,' but they're barely mentioned on 'Game of Thrones.'
+---------
+
 # One Piece's Biggest Day Of 2026 Is Just 2 Weeks Away
 
 Anime, One Piece
