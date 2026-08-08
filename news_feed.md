@@ -1,3 +1,47 @@
+# Netflix Officially Confirms Release Date for New Sherlock Holmes-Inspired Series
+
+Movie News, Netflix, Crime, Mystery, International
+
+Sat, 08 Aug 2026 09:20:14 GMT
+
+https://collider.com/the-final-problem-netflix-series-release-date/
+
+Netflix's thrilling murder mystery inspired by Sherlock Holmes has an official premiere date. Get all the details here.
+---------
+
+# The 10 Best Fantasy Books of All Time, Ranked
+
+TV, Fantasy, The Lord of the Rings, The Odyssey, Books
+
+Sat, 08 Aug 2026 09:18:14 GMT
+
+https://collider.com/best-fantasy-books-all-time-ranked/
+
+Explore the most influential and best fantasy books of all time, ranked by their impact and popularity, from Odyssey to The Return of the King.
+---------
+
+# ‘Spider-Man: Brand New Day’ Is Officially Reviving Tom Holland’s $407 Million Adventure Hit
+
+Movie News, Tom Holland, Spider-Man: Brand New Day, Uncharted, Prime Video
+
+Sat, 08 Aug 2026 09:00:15 GMT
+
+https://collider.com/tom-holland-uncharted-streaming-success-prime-video-august-2026/
+
+Spider-Man: Brand New Day revives Tom Holland's controversial $407 million video game movie on streaming. Here's everything you should know.
+---------
+
+# Apple TV’s Smartest Sci-Fi Thriller Is Officially One of Streaming’s Biggest Hits
+
+TV News, Sci-Fi, Severance, Adam Scott, Apple TV
+
+Sat, 08 Aug 2026 08:40:14 GMT
+
+https://collider.com/apple-tv-sci-fi-series-severance-streaming-success-august-2026/
+
+Apple TV’s Severance continues dominating streaming as one of the smartest and most acclaimed television series of the decade.
+---------
+
 # Say Goodbye To Gerard Butler's 109-Minute Disaster Movie As It Leaves Streaming This Month
 
 Movies, Masked Recs
