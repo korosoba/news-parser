@@ -1,3 +1,212 @@
+# 44 Episodes Later, Jessica Knight's Best NCIS Line Is Still A Top 5 Franchise Quote
+
+Network TV, NCIS
+
+Sat, 08 Aug 2026 22:15:11 GMT
+
+https://screenrant.com/ncis-jessica-knight-best-quote-franchise/
+
+Jessica Knight's most iconic NCIS line, one that resonates with viewers & defines her character in the show's new identity after Gibbs' departure.
+---------
+
+# Amazon Now Owns James Bond, But Prime Video Already Has The Perfect Spy Franchise
+
+Streaming TV, Masked Recs
+
+Sat, 08 Aug 2026 22:06:11 GMT
+
+https://screenrant.com/amazon-james-bond-prime-video-jack-ryan-spy-franchise/
+
+Amazon's acquisition of James Bond may have been game-changing, but the Prime already has a show that set the standard for streaming spy stories.
+---------
+
+# Rewatching Stranger Things' Worst Season, I Realized Vecna Saved The Entire Show
+
+Streaming TV, Stranger Things
+
+Sat, 08 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/stranger-things-worst-season-rewatch-vecna-save-show/
+
+Introducing Vecna in Stranger Things season 4 saved the show and made it the phenomenon it is today after a divisive and lackluster third season.
+---------
+
+# 10 Quotes That Prove The Witcher’s Geralt Is Gaming’s Funniest Character
+
+Gaming, The Witcher 3: Wild Hunt
+
+Sat, 08 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/the-witcher-geralt-funniest-quotes/
+
+The Witcher 3: Wild Hunt gives Geralt some of the best lines in action-RPG history, and more than half of them are as funny as they are witty.
+---------
+
+# Historic New X-Men Roster Officially Announced: All Members and Leader
+
+Comics, X-Men
+
+Sat, 08 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/new-x-men-roster-leader-storm-maximum/
+
+Storm's new team explained.
+---------
+
+# Spider-Man: Brand New Day’s Box Office Hits A Major MCU First
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 08 Aug 2026 21:55:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-box-office-mcu-fourth-movie-solo-hero-1-billion/
+
+The box office success of Spider-Man: Brand New Day has marked a new record for the MCU that bodes well for its longevity and long-term plans.
+---------
+
+# 10 Greatest NES Games Nobody Has Beaten
+
+Games, Nintendo, The Legend of Zelda
+
+Sat, 08 Aug 2026 22:15:14 GMT
+
+https://www.cbr.com/greatest-hard-nes-games/
+
+Some of the best classic games on the NES are ones few gamers have ever actually managed to beat.
+---------
+
+# Paramount's Star Trek Reboot Is the Sci-Fi Event of the Decade
+
+Movies, Star Trek, paramount pictures, Sci-Fi
+
+Sat, 08 Aug 2026 22:15:14 GMT
+
+https://www.cbr.com/paramount-star-trek-movie-reboot-sci-fi-event-of-the-decade/
+
+As Paramount attempts to bring Star Trek back to the screen, a new, fresh film could reinvigorate the space opera and be a sci-fi event to remember.
+---------
+
+# Dragon Ball Officially Reveals Majin Buu’s Successor
+
+Anime, Dragon Ball, Dragon Ball Super, Dragon Ball Z
+
+Sat, 08 Aug 2026 22:00:15 GMT
+
+https://www.cbr.com/dragon-ball-majin-buu-successor-revealed/
+
+Dragon Ball officially names Majin Buu's next successor following the tragic loss of Kozo Shioya.
+---------
+
+# Elisabeth Moss's 94% RT Period Drama Returns as a Streaming Hit on Digital
+
+TV, Mad Men, Drama, AMC
+
+Sat, 08 Aug 2026 22:00:15 GMT
+
+https://www.cbr.com/elisabeth-moss-mad-men-period-drama-pvod-success-august-2026/
+
+Elisabeth Moss's critically acclaimed period drama, Mad Men, is a hit on PVOD 11 years later.
+---------
+
+# Henry Cavill's In the Grey Combines 'John Wick' and 'Ocean's Eleven'
+
+Movies, John Wick, In the Grey, Ocean's Eleven
+
+Sat, 08 Aug 2026 22:00:15 GMT
+
+https://www.cbr.com/henry-cavill-in-the-grey-combines-john-wick-and-oceans-eleven/
+
+Henry Cavill and Jake Gyllenhaal's 'In the Grey' incorporates the best of 'Ocean's Eleven' and 'John Wick'.
+---------
+
+# Witchblade Returns With Epic Crossovers Featuring Invincible, Spawn, and More
+
+Comics, Witchblade, image comics
+
+Sat, 08 Aug 2026 22:00:15 GMT
+
+https://www.cbr.com/witchblade-september-2026-crossover-release-dates-confirmed/
+
+One of the greatest superheroes of an entire generation is about to invade over a dozen other Image Comics titles in an epic variant cover series.
+---------
+
+# Apple TV's Star-Studded Thriller Is Officially Losing Viewers Fast
+
+TV News, Cape Fear, Apple TV, Horror, Thriller
+
+Sat, 08 Aug 2026 22:15:14 GMT
+
+https://collider.com/cape-fear-apple-tv-streaming-drop-august-2026/
+
+Despite having a star-studded cast, Apple TV's crime thriller is struggling to keep viewers invested. Get all the details here.
+---------
+
+# 'Chicago Fire' Officially Confirms 2 Major Casting Changes, but There's a Catch
+
+TV Features, One Chicago, Chicago Fire, Dermot Mulroney, NBC
+
+Sat, 08 Aug 2026 22:10:14 GMT
+
+https://collider.com/chicago-fire-season-15-joe-minoso-dermot-mulroney-leaving/
+
+Chicago Fire reveals two significant cast departures ahead of Season 15, impacting key storylines and character dynamics.
+---------
+
+# 10 Greatest HBO Miniseries of the 2000s
+
+TV, HBO, TV Miniseries, 2000s, Band of Brothers
+
+Sat, 08 Aug 2026 22:08:14 GMT
+
+https://collider.com/best-hbo-miniseries-2000s-ranked/
+
+Band of Brothers, John Adams, Generation Kill, and Angels in America are among the best HBO miniseries of the 2000s, but which is the greatest?
+---------
+
+# 6 Best Action Thrillers Released Since 2010'
+
+Movie, Action Thriller, The Dark Knight Rises, Mad Max: Fury Road, John Wick: Chapter 4
+
+Sat, 08 Aug 2026 22:05:14 GMT
+
+https://collider.com/best-action-thrillers-since-2010-ranked/
+
+From Sicario to Mad Max: Fury Road, these action thrillers blend nerve-shredding tension with unforgettable spectacle.
+---------
+
+# Taylor Sheridan Star's 10/10 Cyberpunk Sci-Fi Thriller Is Officially Netflix's Ultimate Hidden Gem
+
+Movie News, Upgrade, Leigh Whannell, Sci-Fi, Logan Marshall-Green
+
+Sat, 08 Aug 2026 22:00:14 GMT
+
+https://collider.com/leigh-whannell-sci-fi-action-upgrade-streaming-success-netflix-august-2026/
+
+Leigh Whannell’s Upgrade has become one of streaming’s biggest sci-fi hidden gems years after its critically acclaimed theatrical release.
+---------
+
+# Every Jason Statham Revenge Thriller, Ranked
+
+Movie Lists, Jason Statham, Crank, The Mechanic, The Beekeeper, Thriller
+
+Sat, 08 Aug 2026 22:15:12 GMT
+
+https://movieweb.com/every-jason-statham-revenge-thriller-ranked/
+
+Through his gravelly voice, cold stare, and imposing physique, Jason Statham has cemented his status as the undisputed king of the revenge thriller.
+---------
+
+# 'Spider-Man: Brand New Day's Best 'No Way Home' Reference Comes at the Perfect Time
+
+Features, Spider-Man: Brand New Day, Spider-Man: No Way Home, Marvel Cinematic Universe, Spider-Man 3 / Spider-Man: No Way Home
+
+Sat, 08 Aug 2026 22:00:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-peter-2-reference/
+
+'Brand New Day' doesn't reference 'No Way Home' all that often, but when it does, it does it perfectly. Read on for more.
+---------
+
 # The Odyssey Box Office Surpasses Christopher Nolan's Batman Movie For Highest-Grossing Record
 
 Movies, The Odyssey, Christopher Nolan, Box Office Milestone
