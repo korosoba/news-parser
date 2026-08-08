@@ -1,3 +1,36 @@
+# Batman: Arkham Knight "Definitive Edition" Does What Warner Bros. Won't
+
+Gaming, Batman: Arkham Knight
+
+Sat, 08 Aug 2026 10:30:11 GMT
+
+https://screenrant.com/batman-arkham-knight-definitive-edition-mod-download/
+
+Experience the enhanced 'Definitive Edition' of Batman: Arkham Knight with a free mod that adds new content, skins, and quality-of-life improvements.
+---------
+
+# 8 Greatest Classic Detective Books of All Time
+
+Books and Comics, Mystery, Sherlock Holmes, Agatha Christie, The Maltese Falcon
+
+Sat, 08 Aug 2026 10:52:14 GMT
+
+https://collider.com/best-classic-detective-books-all-time-ranked/
+
+The Hound of the Baskervilles and The Murder at the Vicarage are among the best classic detective books ever written, but which is the greatest?
+---------
+
+# 'Fallout' EP's 5-Part Sci-Fi Thriller Is Officially a Sudden Streaming Hit 10 Years Later
+
+TV News, Jonathan Nolan, Sci-Fi, Person of Interest
+
+Sat, 08 Aug 2026 10:30:15 GMT
+
+https://collider.com/cbs-sci-fi-series-person-of-interest-streaming-success-peacock-prime-video-august-2026/
+
+Person of Interest is finding a new audience on streaming as its eerily accurate AI predictions continue to resonate years after the series ended.
+---------
+
 # Karl Urban's Horror Classic With All-Time Great Opening Scene Is Leaving Streaming
 
 Movies, Masked Recs, Karl Urban, Horror
