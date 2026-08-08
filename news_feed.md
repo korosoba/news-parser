@@ -1,3 +1,36 @@
+# Prime Video’s Reacher Is Trading Its Biggest Strength For 1 Bold Franchise Change
+
+Streaming TV, Reacher, Neagley
+
+Sat, 08 Aug 2026 05:00:11 GMT
+
+https://screenrant.com/prime-video-reacher-strength-neagley-trade-off/
+
+By introducing a major franchise change soon, Prime Video’s Reacher is seemingly taking a massive risk and trading off one of its greatest strengths.
+---------
+
+# House Of The Dragon Continues In Game Of Thrones: Moondancer Expansion
+
+Gaming, Game of Thrones, Game Of Thrones, Game Of Thrones: Dragonfire, House of the Dragon, PC
+
+Sat, 08 Aug 2026 05:00:11 GMT
+
+https://screenrant.com/game-of-thrones-moondancer-house-of-the-dragon/
+
+House of the Dragon's 2026 run hasn't ended yet, with the series picking up thanks to a brand-new Moondancer release Game of Thrones fans can't miss.
+---------
+
+# 8 Free Steam Games Like The Legend Of Zelda
+
+Gaming, Steam, The Legend of Zelda
+
+Sat, 08 Aug 2026 04:45:11 GMT
+
+https://screenrant.com/free-steam-games-like-legend-of-zelda/
+
+Explore 8 free games on Steam that draw inspiration from The Legend of Zelda series and offer fun adventures.
+---------
+
 # This Matrix Neo Statue Is A Thing Of Beauty
 
 Gaming, The Matrix
