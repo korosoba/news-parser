@@ -1,3 +1,91 @@
+# Sheldon Cooper's Fate Revealed For New Big Bang Theory Spinoff
+
+TV, Stuart Fails to Save the Universe
+
+Sat, 08 Aug 2026 15:53:21 GMT
+
+https://screenrant.com/stuart-fails-to-save-the-universe-sheldon-cooper-return-bill-prady/
+
+Stuart Fails to Save the Universe finally reveals Sheldon Cooper's fate, as co-creators Chuck Lorre and Bill Prady react to the shocking update.
+---------
+
+# Netflix’s New R-Rated Comedy Sets Major Rotten Tomatoes Record
+
+TV, Masked Recs, Netflix
+
+Sat, 08 Aug 2026 15:50:53 GMT
+
+https://screenrant.com/netflix-alley-cats-rotten-tomatoes-audience-score/
+
+A new R-rated comedy that recently debuted on Netflix earns a Rotten Tomatoes score that breaks an all-time record on the review aggregator site.
+---------
+
+# Netflix's High-Concept Sci-Fi Thriller Defies Polarizing Reviews With Streaming Dominance
+
+Movies, Masked Recs
+
+Sat, 08 Aug 2026 15:39:11 GMT
+
+https://screenrant.com/netflix-the-last-house-streaming-success-august-2026/
+
+Despite some unkind reviews from critics, a new high-concept sci-fi thriller has become a dominating force on Netflix’s top 10 in the U.S.
+---------
+
+# Walton Goggins' 7-Part Breaking Bad Predecessor Has Aged Like Fine Wine
+
+Classic TV, Masked Recs
+
+Sat, 08 Aug 2026 15:30:11 GMT
+
+https://screenrant.com/the-shield-breaking-bad-predecessor-walton-goggins/
+
+Walton Goggins appeared in a seven-season crime drama that has aged like fine wine and paved the way for future crime shows like Breaking Bad.
+---------
+
+# Why 2026’s New Horror Movie Ice Cream Man Is So Controversial
+
+Movies, Ice Cream Man
+
+Sat, 08 Aug 2026 15:30:11 GMT
+
+https://screenrant.com/ice-cream-man-horror-movie-controversial/
+
+The early reception to 2026's Ice Cream Man has cemented a controversial reputation for the new horror movie and its story for more than one reason.
+---------
+
+# Netflix's New 112-Minute Sci-Fi Thriller Debuts to Divisive Rotten Tomatoes Score
+
+Movies, The Last House
+
+Sat, 08 Aug 2026 15:35:46 GMT
+
+https://www.cbr.com/netflix-the-last-house-rotten-tomatoes-score/
+
+Netflix's new sci-fi movie has several familiar faces, but it didn't save it from a mixed reception.
+---------
+
+# Fox's 2-Season Cyberpunk Show Is a 5-Star Masterpiece for Sci-Fi Fans
+
+TV, Dollhouse, Sci-Fi
+
+Sat, 08 Aug 2026 15:30:16 GMT
+
+https://www.cbr.com/fox-dollhouse-cyberpunk-sci-fi-masterpiece/
+
+Two decades before the cyberpunk surge, one Fox series did the genre best.
+---------
+
+# 12 Years Later, Joel Kinnaman’s Sci-Fi Flop Officially Gets a Second Chance on Streaming
+
+Movie News, RoboCop, Joel Kinnaman, Sci-Fi, Paramount Plus
+
+Sat, 08 Aug 2026 15:30:16 GMT
+
+https://collider.com/robocop-2014-joel-kinnaman-paramount-plus-streaming-success-august-2026/
+
+Joel Kinnaman’s divisive RoboCop reboot is finding new life on streaming more than a decade after its disappointing reception.
+---------
+
 # 27 Years Later, An Inaccessible PlayStation 1 Classic Has Come To Modern Consoles
 
 Gaming, PlayStation, Triple-A Games
