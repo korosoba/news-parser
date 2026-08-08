@@ -1,3 +1,289 @@
+# The Simpsons Star Reveals If Season 40 Could Be The Last
+
+TV, The Simpsons
+
+Sat, 08 Aug 2026 01:01:47 GMT
+
+https://screenrant.com/the-simpsons-season-40-potentially-last-nancy-cartwright/
+
+Nancy Cartwright, who voices Bart Simpson on The Simpsons, opened up about whether the long-running animated sitcom could end with season 40.
+---------
+
+# 5 Square Enix SNES Games That Were 10/10 Masterpieces
+
+Gaming
+
+Sat, 08 Aug 2026 01:00:12 GMT
+
+https://screenrant.com/square-enix-snes-games-masterpieces/
+
+Square and Enix were on fire during the Super Nintendo era, and there's no shortage of fantastic titles from both publishers long before they merged.
+---------
+
+# Tom Clancy Meets Taylor Sheridan In Netflix's New Action Thriller
+
+Streaming TV, Masked Recs
+
+Sat, 08 Aug 2026 01:00:12 GMT
+
+https://screenrant.com/elite-force-netflix-like-tom-clancy-taylor-sheridan/
+
+A tight six-episode thriller blends personal drama with tactical realism in ways that guarantee Clancy and Sheridan fans will need to binge it.
+---------
+
+# Say Goodbye To Arcane As Netflix's Best Sci-Fi Show Returns In 2 Months
+
+Streaming TV, Masked Recs
+
+Sat, 08 Aug 2026 00:30:11 GMT
+
+https://screenrant.com/cyberpunk-edgerunners-season-2-netflix-arcane-replacement/
+
+Arcane is beloved by its fans for many reasons, but its status as Netflix's best video game adaptation will be under threat when a hit sci-fi returns.
+---------
+
+# The Lord Of The Rings' New Era Has One Major Change From Peter Jackson's Movies
+
+Movies, The Lord of the Rings
+
+Sat, 08 Aug 2026 00:15:12 GMT
+
+https://screenrant.com/lord-of-the-rings-new-era-different-peter-jackson-movies/
+
+The Lord of the Rings was a perfect adaptation, capturing the spirit of Tolkien's books while making changes, Now, the franchise must be more creative
+---------
+
+# Pokémon Will Bring Ash Back, Just Not The Way Fans Wanted
+
+Anime, Pokemon
+
+Sat, 08 Aug 2026 00:00:13 GMT
+
+https://screenrant.com/pokemon-ash-return-confirmed-caveat-age-up/
+
+An interview with the anime's director suggests that fans haven't seen the last of Ash and Pikachu, which has some major implications for the reboot.
+---------
+
+# 5 Red Dead Redemption 2 Quotes That Prove Arthur Morgan Is Video Game Royalty
+
+Gaming, Red Dead Redemption 2, Red Dead Redemption, PC
+
+Sat, 08 Aug 2026 00:00:11 GMT
+
+https://screenrant.com/red-dead-redemption-2-arthur-morgan-best-quotes/
+
+Arthur Morgan is one of the greatest video game characters ever written, and these five top-tier RDR2 quotes prove he's the GOAT.
+---------
+
+# A Controversial Star Trek Episode That's Hard To Watch Today Changed The Klingons Forever
+
+Classic TV, Star Trek: The Original Series
+
+Sat, 08 Aug 2026 00:00:11 GMT
+
+https://screenrant.com/star-trek-day-of-the-dove-klingons-change/
+
+An episode from season 3 of Star Trek: The Original Series changed the franchise's approach to Klingons forever, but it's not easy to rewatch.
+---------
+
+# 10 Times Doctor Doom Was Actually A Hero In Marvel History
+
+Comics, Doctor Doom
+
+Sat, 08 Aug 2026 00:00:11 GMT
+
+https://screenrant.com/doctor-doom-hero-marvel-comics-history/
+
+Though often evil, Doctor Doom occasionally displays heroic qualities, fighting for good despite sometimes harboring ulterior motives.
+---------
+
+# 5 Classic 2000s Anime Series Where Every Episode Is a Masterpiece
+
+Anime, Gurren Lagann, Monster
+
+Sat, 08 Aug 2026 00:45:15 GMT
+
+https://www.cbr.com/2000s-anime-every-episode-masterpiece/
+
+Anime series like Monster and Gurren Lagann are beloved classics of the 2000s that are perfect from beginning to end.
+---------
+
+# 5 Classic PS1 RPGs That Are Unplayable Today
+
+Games, PlayStation (Original), Video Games, Tomb Raider, Resident Evil
+
+Sat, 08 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/unplayable-classic-ps1-rpgs/
+
+The PlayStation 1 might have been a game-changing console but these titles feel inaccessible today.
+---------
+
+# 5 Sith More Powerful Than Darth Maul
+
+TV, Star Wars, Star Wars: Maul - Shadow Lord, Sci-Fi
+
+Sat, 08 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/star-wars-powerful-sith-not-darth-maul-list/
+
+Darth Maul is one of the most powerful Sith in Star Wars, but these Dark Side users outclass the Shadow Lord in the ways of the Force.
+---------
+
+# Dragon Ball Super's Toyotarou Officially Gets Isekai'd to Another Manga
+
+Anime, Dragon Ball, Dragon Ball Super, That Time I Got Reincarnated as a Slime
+
+Sat, 08 Aug 2026 00:20:15 GMT
+
+https://www.cbr.com/dragon-ball-super-toyotarou-tensura-isekai-slime-art/
+
+With the Dragon Ball Super manga still on hiatus after a year, DBS mangaka Toyotarou has found himself drawing for one of the most iconic isekai ever.
+---------
+
+# 5 Masterpiece Action Anime That Prove Dragon Ball Is Mid
+
+Anime, Dragon Ball, Chainsaw Man, Action, shonen anime, Samurai Champloo
+
+Sat, 08 Aug 2026 00:15:15 GMT
+
+https://www.cbr.com/masterpiece-action-anime-prove-dragon-ball-is-mid/
+
+Modern action anime move beyond Dragon Ball's formula with sharper choreography, richer characterization and more inventive combat design.
+---------
+
+# Alan Ritchson's Motor City is the Action Movie of the Summer
+
+Movies, Motor City, Reacher, Action Movie
+
+Sat, 08 Aug 2026 00:00:15 GMT
+
+https://www.cbr.com/alan-ritchson-motor-city-action-movie-of-the-summer/
+
+The new action film, Motor City, has a very small budget and features almost no dialogue, which is why it's the action movie event of the summer.
+---------
+
+# 10 Hardest '80s Platformers, Officially Ranked
+
+Games, super mario bros, The Legend of Zelda, Teenage Mutant Ninja Turtles, Nintendo
+
+Sat, 08 Aug 2026 00:00:15 GMT
+
+https://www.cbr.com/hardest-80s-platformers-officially-ranked/
+
+The 1980s offered some of the most difficult platformer experiences of all time, with most of them being found on the NES.
+---------
+
+# Marvel's Best New Comic Characters Officially Being Overlooked
+
+Comics, Marvel
+
+Sat, 08 Aug 2026 00:00:15 GMT
+
+https://www.cbr.com/marvel-best-new-characters-ignored/
+
+Marvel continues to introduce new heroes and villains but at some point, the younger generation has to take center stage.
+---------
+
+# Taylor Sheridan’s 10/10 Crime Thriller That Almost Got Banned Is Officially Making a Comeback
+
+Movie News, Sicario, Emily Blunt, Taylor Sheridan, Denis Villeneuve
+
+Sat, 08 Aug 2026 01:00:15 GMT
+
+https://collider.com/taylor-sheridan-sicario-streaming-success-hbo-max-2026/
+
+Taylor Sheridan's critically acclaimed neo-Western masterpiece starring Emily Blunt saw a recent spike in streaming viewership. Find out more here.
+---------
+
+# 'A Knight of the Seven Kingdoms' Season 2 Is Officially Shaping Up To Disappoint Fans
+
+TV Features, A Knight Of The Seven Kingdoms, HBO, HBO Max, Game Of Thrones
+
+Sat, 08 Aug 2026 00:39:14 GMT
+
+https://collider.com/a-knight-of-the-seven-kingdoms-season-2-no-targaryens-disappointment/
+
+Despite early success, A Knight of the Seven Kingdoms Season 2 will take a sharp turn, and Dunk and Egg's story might disappoint Game of Thrones fans.
+---------
+
+# 10 Greatest Batman Movie Villains
+
+Movie, Michelle Pfeiffer, Villains, DC Comics, Heath Ledger
+
+Sat, 08 Aug 2026 00:11:14 GMT
+
+https://collider.com/best-batman-movie-villains-ranked/
+
+Heath Ledger's Joker and Michelle Pfeiffer's Catwoman are among the best, most unforgettable villains in Batman movies.
+---------
+
+# 10 Greatest Shows With Fewer Than 40 Episodes
+
+TV, Television, Peaky Blinders, Band of Brothers, Mindhunter
+
+Sat, 08 Aug 2026 00:02:15 GMT
+
+https://collider.com/best-tv-shows-under-40-episodes/
+
+BBC's Peaky Blinders, HBO's Band of Brothers, and Netflix's The Queen's Gambit are among the best shows that have less than 40 episodes total.
+---------
+
+# Pierce Brosnan’s Final James Bond Villain Officially Reveals Franchise Return Potential [Exclusive]
+
+Exclusives, James Bond, Willem Dafoe, Late Fame, The Birthday Party
+
+Sat, 08 Aug 2026 00:00:14 GMT
+
+https://collider.com/pierce-brosnan-final-james-bond-villain-franchise-return-willem-dafoe/
+
+Willem Dafoe has revealed whether he’d be interested in playing a live-action James Bond villain after previously starring in a 007 video game.
+---------
+
+# '80s Cult Classic That Gathered the Supernatural Avengers Gets New Release
+
+Movie News, The Monster Squad, Shane Black
+
+Sat, 08 Aug 2026 00:43:18 GMT
+
+https://movieweb.com/the-monster-squad-4k-blu-ray/
+
+The beloved monster movie 'The Monster Squad' is coming to 4K Ultra HD Blu-ray in October.
+---------
+
+# Zack Snyder's Warner Bros. Return Ignites Talk of DC's SnyderVerse Revival
+
+Movie News, Zack Snyder, Zack Snyder's Justice League
+
+Sat, 08 Aug 2026 00:28:26 GMT
+
+https://movieweb.com/zack-snyder-warner-bros-visit-snyderverse/
+
+Zack Snyder made an unexpected visit to Warner Bros. studios, igniting chatter from fans who want him to deliver more DC projects.
+---------
+
+# Johnny Depp's $1 Billion Action-Adventure Classic Toppled by Long-Awaited Disney Sequel at the Box Office
+
+Movie News, Toy Story 5, Pirates of the Caribbean: Dead Man's Chest
+
+Sat, 08 Aug 2026 00:00:12 GMT
+
+https://movieweb.com/toy-story-5-pirates-of-the-caribbean-2-box-office/
+
+It's a battle at the box office for two massive Disney franchises.
+---------
+
+# DC's 10 Most Powerful Green Lanterns, Ranked
+
+TV Lists, Green Lantern, Lanterns, DCU
+
+Sat, 08 Aug 2026 00:00:12 GMT
+
+https://movieweb.com/dc-most-powerful-green-lanterns/
+
+Before 'Lanterns' debuts on HBO, let's take a look at the most powerful members of DC Comics' Green Lantern Corps. Read on for more.
+---------
+
 # All 6 of Batman’s Brand New Villains Explained
 
 Comics, Batman
