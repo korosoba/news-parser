@@ -1,3 +1,91 @@
+# Karl Urban's Horror Classic With All-Time Great Opening Scene Is Leaving Streaming
+
+Movies, Masked Recs, Karl Urban, Horror
+
+Sat, 08 Aug 2026 10:00:11 GMT
+
+https://screenrant.com/karl-urban-ghost-ship-leaving-streaming-august-2026/
+
+A horror classic starring Karl Urban and boasting one of the all-time great opening scenes in genre history is getting set to leave streaming.
+---------
+
+# The Last Of Us' Ellie Officially Returns December 2027
+
+Gaming, The Last of Us
+
+Sat, 08 Aug 2026 10:00:11 GMT
+
+https://screenrant.com/last-of-us-ellie-statue-december-2027/
+
+Fans of The Last of Us can now pre-order a highly detailed Ellie Quarter Scale Statue from Sideshow and Prime 1 Studio, with two editions available.
+---------
+
+# God Of War: Young Kratos Statue Is Seriously Impressive
+
+Gaming, God of War
+
+Sat, 08 Aug 2026 09:30:11 GMT
+
+https://screenrant.com/god-of-war-young-kratos-statue-2027/
+
+Discover the stunning Young Kratos 1:3 Scale Statue, showcasing a younger version of the iconic God of War character.
+---------
+
+# ABC's New 9-1-1 Strategy Ends an 8-Year Series Formula After Bobby Nash's Death
+
+TV, 9-1-1, ABC
+
+Sat, 08 Aug 2026 10:00:14 GMT
+
+https://www.cbr.com/911-season-10-bobby-nash-replacement/
+
+Say hello to the new captain of the 118.
+---------
+
+# Every LOTR Villain's Last Words
+
+Movies, The Lord of the Rings, Fantasy, Innovation
+
+Sat, 08 Aug 2026 10:00:14 GMT
+
+https://www.cbr.com/lord-of-the-rings-villains-final-quotes-list/
+
+The final lines of dialogue spoken by The Lord of the Rings' antagonists reveal some fascinating details about the forces of evil in Middle-earth.
+---------
+
+# The 10 Best Thriller TV Shows Where Nobody Can Be Trusted
+
+TV, Thriller, Breaking Bad, House of Cards, Hannibal
+
+Sat, 08 Aug 2026 10:02:14 GMT
+
+https://collider.com/best-thriller-shows-nobody-can-be-trusted/
+
+Discover great thriller shows that feature shocking twists and untrustworthy characters, seen in series like Hannibal, The Americans, and Twin Peaks.
+---------
+
+# Robert Eggers’ New Gothic Horror Gets a “Stunning” Early Reaction [Exclusive]
+
+Exclusives, Robert Eggers, Willem Dafoe, Werwulf, Late Fame
+
+Sat, 08 Aug 2026 10:00:14 GMT
+
+https://collider.com/werwulf-first-reaction-willem-dafoe-robert-eggers/
+
+Although he hasn't seen the full film, Willem Dafoe is already a Werwulf cheerleader and shared why he's so fulfilled working with Robert Eggers.
+---------
+
+# Rebecca Ferguson's 4-Part Sci-Fi Masterpiece Is Officially One of Streaming's Best Shows
+
+TV News, Rebecca Ferguson, Silo, Sci-Fi, Apple TV
+
+Sat, 08 Aug 2026 09:40:14 GMT
+
+https://collider.com/rebecca-ferguson-silo-streaming-success-apple-tv-august-2026/
+
+Rebecca Ferguson’s hit Apple TV series Silo continues dominating streaming as one of television’s best modern sci-fi dramas.
+---------
+
 # Netflix Officially Confirms Release Date for New Sherlock Holmes-Inspired Series
 
 Movie News, Netflix, Crime, Mystery, International
