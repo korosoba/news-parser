@@ -1,3 +1,179 @@
+# The Rookie Humbles ABC After Cancellation Snafu
+
+Network TV, The Rookie
+
+Sat, 08 Aug 2026 14:15:11 GMT
+
+https://screenrant.com/the-rookie-viewership-record-abc-humble/
+
+ABC's decision about The Rookie season 9 forced it to have a contingency plan, but new data reveals how its cancellation would have been disastrous.
+---------
+
+# 27 Years Later, The Sixth Sense Still Has The Best Twist In Horror Movie History
+
+Movies, The Sixth Sense, Bruce Willis, M. Night Shyamalan
+
+Sat, 08 Aug 2026 14:15:11 GMT
+
+https://screenrant.com/the-sixth-sense-movie-best-horror-twist-all-time/
+
+The Sixth Sense has a twist so brilliant that even audiences who've never seen the movie know about it, and here's why it is so influential.
+---------
+
+# All 5 Seasons Of Stranger Things, Ranked Worst To Best
+
+TV, Stranger Things, Ranking, Halloween
+
+Sat, 08 Aug 2026 14:00:12 GMT
+
+https://screenrant.com/stranger-things-seasons-ranked-worst-best/
+
+Stranger Things is one of Netflix’s biggest streaming hits, but when pinned against each other, which Stranger Things seasons are the best and worst?
+---------
+
+# Star Wars Jedi 3 Title Splits Gamers
+
+Gaming, Star Wars Jedi: Survivor, Star Wars
+
+Sat, 08 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/star-wars-jedi-3-title-hopes/
+
+Fans debate the title of the final Star Wars Jedi game, and more importantly, its potential title.
+---------
+
+# Star Wars 6-Part High Republic Series Just Keeps Getting Better
+
+Comics, Star Wars
+
+Sat, 08 Aug 2026 13:58:11 GMT
+
+https://screenrant.com/star-wars-the-high-republic-adventures-pathfinders-explained/
+
+Star Wars fans are deep in the franchise’s latest High Republic adventure, but the journey is now nearing its end.
+---------
+
+# 13 Biggest Pokémon, Ranked By Size
+
+Lists, Pokemon, Pokemon Legends   Arceus, New Pokémon Snap
+
+Sat, 08 Aug 2026 13:47:03 GMT
+
+https://screenrant.com/biggest-pokemon-ranked/
+
+Recent releases like Pokémon Scarlet & Violet, Pokémon Legends: Arceus, and New Pokémon Snap show the vast sizes of the biggest Pocket Monsters.
+---------
+
+# George R.R. Martin’s New Game Of Thrones Prequel Reveals The Mad King & Lore-Accurate Iron Throne
+
+TV, Game of Thrones
+
+Sat, 08 Aug 2026 13:46:42 GMT
+
+https://screenrant.com/game-of-thrones-the-mad-king-stage-play-first-look/
+
+Game of Thrones is going mad, as The Mad King, otherwise known as King Aerys II Targaryen, takes the Iron Throne in a new first look image.
+---------
+
+# Hulk's Ending In Spider-Man: Brand New Day Sets Up The Return Of An MCU Character Who's Been Missing For 18 Years
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Sat, 08 Aug 2026 13:45:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-ending-hulk-doc-samson-mcu-return/
+
+Spider-Man: Brand New Day's ending includes a major change for the Hulk, and the future of Bruce Banner sets up an MCU return after 18 years.
+---------
+
+# Michael Fassbender's Action-Packed Thriller Series' Fate Reportedly Revealed
+
+TV, The Agency
+
+Sat, 08 Aug 2026 13:42:54 GMT
+
+https://screenrant.com/the-agency-season-3-michael-fassbender-return-report/
+
+Months after the spy thriller returned with its best installment yet, Michael Fassbender's two-part series may have just revealed its future.
+---------
+
+# 5 Hard Sci-Fi Anime Series That Are Officially Masterpieces
+
+Anime, Sci-Fi, Space Brothers
+
+Sat, 08 Aug 2026 14:15:15 GMT
+
+https://www.cbr.com/hard-sci-fi-anime-official-masterpieces/
+
+True hard science fiction stays rare in anime because it demands writers willing to let physics, procedure, and bureaucracy carry a story.
+---------
+
+# 2 Avengers Movies Are Streaming Hits Ahead of New Sequel
+
+Movies, Avengers: Infinity War, Avengers: Endgame, Disney+
+
+Sat, 08 Aug 2026 14:00:16 GMT
+
+https://www.cbr.com/avengers-infinity-war-endgame-streaming-success-disney-plus-august-2026/
+
+Two of the greatest sci-fi action epics of the 21st century are massive streaming successes on Disney+.
+---------
+
+# The Legend of Zelda Movie May Include Zelda's Mother
+
+Movies, The Legend of Zelda, Nintendo
+
+Sat, 08 Aug 2026 14:00:16 GMT
+
+https://www.cbr.com/legend-of-zelda-movie-casting-yvonne-strahovski-zelda-mother/
+
+The latest casting news for the live-action adaptation of The Legend of Zelda hints at the inclusion of a never-before-seen character from the lore.
+---------
+
+# Transformers Officially Brings Back Soundwave's Classic G1 Design With 2 First-Time Releases
+
+Anime, Transformers, The Transformers, merchandise, toys, action figures
+
+Sat, 08 Aug 2026 14:00:16 GMT
+
+https://www.cbr.com/transformers-takara-tomy-missing-link-soundwave/
+
+Soundwave presses rewind as the first Decepticon in the retro-themed Transformers Missing Link toyline, complete with a playlist of two evil tracks.
+---------
+
+# Star Wars: Doctor Aphra Is Star Wars Meets Indiana Jones
+
+Comics, Star Wars, Indiana Jones, Doctor Aphra, star wars: doctor aphra
+
+Sat, 08 Aug 2026 14:00:16 GMT
+
+https://www.cbr.com/star-wars-doctor-aphra-comic-indiana-jones-esque/
+
+May the fortune and glory be with you.
+---------
+
+# 14 Years Later, Christopher Nolan Officially Has Another $1 Billion Blockbuster
+
+Movie News, The Odyssey, Christopher Nolan, Box Office, The Dark Knight
+
+Sat, 08 Aug 2026 14:00:16 GMT
+
+https://collider.com/the-odyssey-box-office-1-billion-christopher-nolan/
+
+Christopher Nolan’s The Odyssey crosses $1 billion worldwide, joining The Dark Knight and The Dark Knight Rises in the billion-dollar club.
+---------
+
+# Jon Hamm’s Sci-Fi Thriller TV Special Remains a Masterpiece of Both Genres
+
+Features, Jon Hamm, Black Mirror, Sci-Fi, Thriller
+
+Sat, 08 Aug 2026 14:01:12 GMT
+
+https://movieweb.com/jon-hamm-black-mirror-white-christmas-holds-up/
+
+Missing 'Mad Men'? Missing 'Your Friends and Neighbors'? Sit tight for a Jon Hamm TV special you can watch in one evening.
+---------
+
 # DC Confirms New God Tier Villain For Aquaman's Next Appearance
 
 DC Comics, Aquaman
