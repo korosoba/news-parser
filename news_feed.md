@@ -1,3 +1,201 @@
+# DC Confirms New God Tier Villain For Aquaman's Next Appearance
+
+DC Comics, Aquaman
+
+Sat, 08 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/new-aquaman-villain-poseidon-god-tier/
+
+Aquaman is set to fight the most powerful opponent in his 85-year history in order to cement himself as the true King of the Seven Seas.
+---------
+
+# Transformers Meets Pokémon In This Forgotten 2000s Action Series With 52 Episodes
+
+Classic TV, Masked Recs
+
+Sat, 08 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/transformers-meets-pokemon-medabots-series/
+
+Transformers and Pokémon come together for this forgotten animated action series from the 2000s with 52 episodes, based on a popular Japanese RPG.
+---------
+
+# Fox's New Remake Of Iconic Medical Series Surges On Netflix Ahead Of Season 2 Release
+
+TV, Masked Recs, Streaming Charts, Netflix
+
+Sat, 08 Aug 2026 13:28:12 GMT
+
+https://screenrant.com/best-medicine-season-1-netflix-streaming-charts-august-2026/
+
+Fox's new remake of an iconic 10-season medical dramedy, which became a streaming hit on Hulu earlier this year, is now surging on Netflix too.
+---------
+
+# The Road To El Dorado Leaves Netflix Next Month
+
+Movies, The Road to El Dorado
+
+Sat, 08 Aug 2026 13:15:11 GMT
+
+https://screenrant.com/the-road-to-el-dorado-leaves-netflix-next-month-report/
+
+One of DreamWorks' most praised cult classics is reportedly set to leave Netflix very soon, providing all the more reason to catch it now.
+---------
+
+# Bella Ramsey Reveals Details On The Last Of Us Season 3 Filming Return
+
+TV, The Last of Us
+
+Sat, 08 Aug 2026 13:02:53 GMT
+
+https://screenrant.com/the-last-of-us-season-3-bella-ramsey-filming-update/
+
+The Last of Us star Bella Ramsey gives a hopeful update for fans as the actor confirms a major filming update ahead of season 3's release.
+---------
+
+# Terminator Officially Returns As A Brand-New Era Begins
+
+Gaming, Terminator
+
+Sat, 08 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/terminator-survivors-new-era/
+
+Explore a post-apocalyptic world in Terminator: Survivors, an action RPG inspired by the iconic franchise.
+---------
+
+# 10 Post-Apocalyptic Novels (Without Zombies)
+
+Books, Zombie
+
+Sat, 08 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/best-post-apocalyptic-novels-without-zombies/
+
+Zombies have come to dominate post-apocalyptic fiction, but many of the best novels about armageddon don't feature a single walking corpse.
+---------
+
+# 65 Years Ago Today, Pop Culture Changed Forever
+
+Comics, Masked Recs
+
+Sat, 08 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/marvel-universe-started-today-fantastic-four/
+
+Everything changed August 8, 1961.
+---------
+
+# 7 Marvel Cinematic Universe Villains We Want After Doctor Doom
+
+Superheroes, Marvel Cinematic Universe
+
+Sat, 08 Aug 2026 12:55:12 GMT
+
+https://screenrant.com/marvel-villains-mcu-after-doctor-doom/
+
+Doctor Doom won't be the MCU's last great villain. These Marvel heavyweights would be perfect follow-ups to the mighty foe and the Multiverse Saga.
+---------
+
+# 5 Strongest Martial Arts Heroes In Action Movie History, Ranked
+
+Movies, Action, The Raid: Redemption, Enter the Dragon
+
+Sat, 08 Aug 2026 13:30:15 GMT
+
+https://www.cbr.com/strongest-martial-arts-heroes-in-action-movie-history-ranked/
+
+The greatest martial artists have changed cinema on a fundamental level
+---------
+
+# The Smartest Hard Sci-Fi Series Ever Is a 2-Part Masterpiece With 95% on Rotten Tomatoes
+
+TV, Battlestar Galactica, Sci-Fi
+
+Sat, 08 Aug 2026 13:30:15 GMT
+
+https://www.cbr.com/battlestar-galactica-brilliant-hard-sci-fi/
+
+Streaming-era science fiction needs to reflect on the past if it ever wants to replicate the success one show achieved in just 3 hours.
+---------
+
+# 5 Greatest American Anime of All Time, Ranked
+
+Anime, Avatar: The Last Airbender, Castlevania
+
+Sat, 08 Aug 2026 13:15:15 GMT
+
+https://www.cbr.com/best-american-anime-all-time-ranked/
+
+These American productions embraced the style of anime and delivered stories fans still love years later.
+---------
+
+# Spider-Man Costume Designer Clarifies Tobey And Andrew’s Influence On The Brand New Day Suit
+
+Movies, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man: Brand New Day, Spider-Man 2, Spider-Man 3, The Amazing Spider-Man, The Amazing Spider-Man 2
+
+Sat, 08 Aug 2026 13:00:15 GMT
+
+https://www.cbr.com/spider-man-designer-clarifies-tobey-maguire-andrew-garfield-influence-brand-new-day-suit/
+
+Marvel has finally addressed the speculation involving Tom Holland's new Spider-Man suit in Brand New Day.
+---------
+
+# 10 Most Perfect Movie Plot Twists of the 2010s
+
+Movie, Parasite, A Simple Favor, Gone Girl, Shutter Island
+
+Sat, 08 Aug 2026 13:24:15 GMT
+
+https://collider.com/most-perfect-movie-plot-twists-2010s-ranked/
+
+Modern thriller movie classics Parasite, Shutter Island, and Gone Girl have some of the best, most perfect plot twists from the 2010s decade.
+---------
+
+# Christopher Nolan's 148 Minute Mind Bending Sci-Fi Thriller is Darker Than You Think
+
+Movie Features, Christopher Nolan, Inception, Science Fiction, Leonardo DiCaprio
+
+Sat, 08 Aug 2026 13:24:15 GMT
+
+https://collider.com/christopher-nolan-inception-analysis/
+
+The titular task of "Inception" isn't all it's cracked up to be.
+---------
+
+# ‘A Quiet Place’ Meets ‘War of the Worlds’ in Netflix’s Newest Sci-Fi Smash-Hit
+
+Movie News, The Last House, Wagner Moura, Netflix, Greta Lee
+
+Sat, 08 Aug 2026 13:15:15 GMT
+
+https://collider.com/the-last-house-netflix-sci-fi-thriller-streaming-success-august-2026/
+
+The Last House, starring Wagner Moura and Greta Lee, is taking over Netflix with a claustrophobic new apocalyptic sci-fi thriller.
+---------
+
+# 3 Years Later, Sebastian Stan's Gritty Crime Thriller Is Finally Getting the Attention It Deserves
+
+Movie News, Sebastian Stan, Apple TV, Thriller, Sharper
+
+Sat, 08 Aug 2026 12:45:15 GMT
+
+https://collider.com/sebastian-stan-sharper-streaming-success-apple-tv-august-2026/
+
+Before he heads to Gotham for The Batman sequel, Sebastian Stan's underrated 116-minute crime thriller is an Apple TV hit three years later.
+---------
+
+# Long-Awaited Sequel to Ridley Scott's Sci-Fi Masterpiece Lands on Streaming
+
+Movie News, Blade Runner 2049, Coming/Leaving Streaming, Blade Runner, Sci-Fi, Ridley Scott
+
+Sat, 08 Aug 2026 13:00:12 GMT
+
+https://movieweb.com/blade-runner-2049-ridley-scott-sci-fi-streaming-paramount-august-2026/
+
+Ahead of Prime Video's new reboot, the long-awaited follow-up to Ridley Scott's epic sci-fi masterpiece has landed on streaming.
+---------
+
 # Dragon Age: The Veilguard - The Best Builds For Each Companion
 
 Gaming, Dragon Age: The Veilguard, Dragon Age, PC
