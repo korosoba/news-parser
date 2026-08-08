@@ -1,3 +1,135 @@
+# Spider-Man: Brand New Day’s Kingpin Reference Brings The MCU 1 Step Closer To A Dream Crossover
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 08 Aug 2026 16:20:11 GMT
+
+https://screenrant.com/spiderman-brand-new-day-kingpin-reference-crossover-setup/
+
+Spider-Man: Brand New Day included a sneaky reference to Wilson Fisk, bringing the MCU one step closer to delivering the crossover everyone wants.
+---------
+
+# Horror's Most Iconic Heroine Wouldn't Exist If Not For Stephen King's Wife
+
+Books, Stephen King
+
+Sat, 08 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/horror-icon-carrie-behind-scenes-story-explained-stephen-king-wife/
+
+It's amazing how close we came to one of horror's most influential creators and his breakout creation never arriving on book store shelves.
+---------
+
+# Why Star Trek: Strange New Worlds Season 4 Episode 3’s Guest Star Looks So Familiar
+
+TV, Star Trek, Star Trek: Strange New Worlds, Dave Foley
+
+Sat, 08 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-guest-star-dave-foley/
+
+Star Trek: Strange New Worlds' "Human Best Friend" is a madcap comedy romp that fittingly brought in a talented comedian as a special guest star.
+---------
+
+# Metal Gear Solid Meets Jurassic Park In Terrifying New Dinosaur Survival Horror
+
+Gaming, The Lost Wild, Triple-A Games, PC
+
+Sat, 08 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/metal-gear-solid-meets-jurassic-park-lost-wild/
+
+Dinosaur horror doesn't always get the genre right, but this incredibly immersive experience could be just what the genre needs moving forward.
+---------
+
+# DC’s Hidden Gem Arrowverse Show Black Lightning Leaves Netflix In Just Weeks
+
+TV, Arrowverse, Black Lightning
+
+Sat, 08 Aug 2026 15:55:11 GMT
+
+https://screenrant.com/dc-arrowverse-black-lightning-show-netflix/
+
+One of the most underrated and underappreciated Arrowverse shows is still on Netflix for those who want to catch it - for now, at least.
+---------
+
+# 5 Overpowered Anime Heroes Stronger Than Sung Jinwoo
+
+Anime, Solo Leveling, Dragon Ball, That Time I Got Reincarnated as a Slime
+
+Sat, 08 Aug 2026 16:15:16 GMT
+
+https://www.cbr.com/op-anime-heroes-stronger-than-sung-jinwoo/
+
+Sung Jinwoo may be unbeatable in his world, but against anime's broader power scaling landscape he pales in comparison to other heroes.
+---------
+
+# Olivia Wilde's Comedy Remake Quietly Sets Digital Release Date After Making 3.5x Its Budget
+
+Movies, The Invite, olivia wilde
+
+Sat, 08 Aug 2026 16:13:49 GMT
+
+https://www.cbr.com/olivia-wilde-the-invite-digital-release-date/
+
+The comedy drama boasts a near-perfect score from critics.
+---------
+
+# New Star Trek Series Officially Answers One Major Picard Question
+
+Comics, Star Trek
+
+Sat, 08 Aug 2026 16:01:15 GMT
+
+https://www.cbr.com/new-star-trek-series-will-officially-answer-one-major-picard-question/
+
+One unforgettable Star Trek: Picard cliffhanger finally gets an answer.
+---------
+
+# Sanrio's Hello Kitty Gets Turned Into $365 Toy With World's First Teddy Bear Company
+
+Anime, sanrio, Hello Kitty, toys, collectibles
+
+Sat, 08 Aug 2026 16:01:15 GMT
+
+https://www.cbr.com/sanrio-hello-kitty-steiff-teddy-bear/
+
+Hello Kitty gets one of her most expensive collectibles yet with Steiff's new limited-edition mohair release.
+---------
+
+# As a Spider-Man Fan, Here's How I'd Rank All 11 Movies in the Franchise
+
+Movie, Spider-Man, Spider-Man: Brand New Day, Spider-Man: Into The Spider-Verse
+
+Sat, 08 Aug 2026 16:18:15 GMT
+
+https://collider.com/spider-man-fan-ranks-movies/
+
+I love Spider-Man and the movies he appears in, and here's how I'd rank them all, from Tobey Maguire's first outing to Tom Holland's latest MCU film.
+---------
+
+# Quentin Tarantino’s Favorite Neo-Noir “Character-Study” Is Officially Streaming for Free
+
+Movie News, Quentin Tarantino, Martin Scorsese, Taxi Driver, Robert De Niro
+
+Sat, 08 Aug 2026 16:15:15 GMT
+
+https://collider.com/taxi-driver-streaming-free-pluto-tv-august-2026/
+
+Robert De Niro’s Taxi Driver is now streaming free on Pluto TV after receiving extraordinary praise from Quentin Tarantino.
+---------
+
+# 9 1990s Psychological Thriller Movies That Are Still 10/10 Masterpieces
+
+Movie Lists, Thriller, 1990s
+
+Sat, 08 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/1990s-psychological-thriller-movie-masterpieces/
+
+From serial killers to ghostly mysteries, these intense thrillers are still capable of getting under your skin decades later.
+---------
+
 # Sheldon Cooper's Fate Revealed For New Big Bang Theory Spinoff
 
 TV, Stuart Fails to Save the Universe
