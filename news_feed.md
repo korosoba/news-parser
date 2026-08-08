@@ -1,3 +1,135 @@
+# 10 Movies To Watch If You Love The Raid: Redemption
+
+Movies, The Raid: Redemption, The Raid 2, Monkey Man, Kill, Dredd, Ong Bak: The Thai Warrior, The Protector, Upgrade, Extraction, Undisputed II: Last Man Standing, Headshot, The Night Comes For Us
+
+Sat, 08 Aug 2026 18:05:11 GMT
+
+https://screenrant.com/movies-like-the-raid-redemption/
+
+The Raid: Redemption and The Raid 2 are both adored by fans, but there are several other remarkable action movies boasting similar offerings.
+---------
+
+# 22 Years Later, Star Wars Revives Darth Nihilus
+
+Streaming TV, Star Wars, Star Wars: Visions Presents - The Ninth Jedi, Star Wars: Knights of the Old Republic II - The Sith Lords
+
+Sat, 08 Aug 2026 18:00:11 GMT
+
+https://screenrant.com/22-years-later-star-wars-revives-darth-nihilus/
+
+Darth Nihilus has been one of Star Wars' most iconic villains for decades, and a new show just introduced his spiritual successor 22 years later.
+---------
+
+# Pokémon Ultra Sun & Moon Just Got An Excellent New Fan-Made Expansion
+
+Gaming, Pokemon Sun and Moon, Pokemon
+
+Sat, 08 Aug 2026 18:00:11 GMT
+
+https://screenrant.com/pokemon-sun-moon-fan-expansion/
+
+Pokémon Ultra Sun & Moon deserve to come up in conversation more than they do, but a new release could be about to change all that.
+---------
+
+# How The X-Files Is Still Informing Vince Gilligan's Pluribus Writing Today
+
+Interviews, The X-Files, Pluribus, Vince Gilligan
+
+Sat, 08 Aug 2026 17:59:51 GMT
+
+https://screenrant.com/vince-gilligan-x-files-pluribus-paley-conversation/
+
+Pluribus creator Vince Gilligan details how his early years as a staff writer on The X-Files have helped shape his approach to showrunning today.
+---------
+
+# Iconic Horror Franchise's New Film Lights Up on Streaming After Underwhelming Box Office
+
+Movies, Evil Dead Burn
+
+Sat, 08 Aug 2026 18:15:51 GMT
+
+https://www.cbr.com/evil-dead-burn-horror-streaming-success-august-2026/
+
+The franchise film finds a larger audience on streaming after an underwhelming box office run.
+---------
+
+# Greatest Action Anime of 2026 So Far, Ranked
+
+Anime, Jujutsu Kaisen, Hell's Paradise: Jigokuraku, Fire Force
+
+Sat, 08 Aug 2026 18:15:15 GMT
+
+https://www.cbr.com/best-action-anime-2026-so-far-ranked/
+
+2026 is far from over, but these three titles have already raised the bar for action anime.
+---------
+
+# Marvel Confirms the X-Men Villain Taking Thanos' Place
+
+Comics, X-Men
+
+Sat, 08 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/maximum-x-men-release-date-confirmed-thanos-like-villain/
+
+Marvel Comics confirms that the X-Men are replacing the Avengers in the wake of Armageddon, and they're getting their own Thanos.
+---------
+
+# The Studio Behind Solo Leveling Celebrates Its Hit Anime RPG's 3rd Anniversary With a New Hero
+
+Anime, Tower of God, Tower Of God, Solo Leveling
+
+Sat, 08 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/tower-of-god-new-world-3rd-anniversary-yirang-yeon/
+
+Tower of God: NEW WORLD celebrates its third anniversary with the long-awaited debut of legendary hero Yirang Yeon.
+---------
+
+# Fightland: Exclusive Behind-the-Scenes of 50 Cent's New Crime Drama
+
+TV Features, STARZ, Starz, Fightland
+
+Sat, 08 Aug 2026 18:15:15 GMT
+
+https://collider.com/fightland-50-cent-exclusive/
+
+Explore the making of Fightland, 50 Cent's crime drama set in London, featuring exclusive cast insights and locations.
+---------
+
+# The $317M Horror Gem That Revived a Franchise Is Taking Over the World
+
+Movie News, Final Destination Bloodlines, Horror, Netflix, Streaming
+
+Sat, 08 Aug 2026 18:00:15 GMT
+
+https://collider.com/final-destination-bloodlines-streaming-success-netflix-august-2026/
+
+This $317 million horror gem that revived the Final Destination franchise is a global streaming hit. Here's everything you should know.
+---------
+
+# Every 2026 Prime Video Movie, Ranked Worst to Best
+
+Movie, Prime Video, The Wrecking Crew, Pretty Lethal, The Bluff
+
+Sat, 08 Aug 2026 17:57:15 GMT
+
+https://collider.com/prime-video-movies-2026-ranked/
+
+Find out where Jack Ryan: Ghost War, The Bluff, The Wrecking Crew, Your Fault: London, and more fall on our ranked list of 2026 Prime Video movies.
+---------
+
+# 10 Best 21st Century Sci-Fi TV Series That Keep Getting Better
+
+TV Lists, Sci-Fi, Foundation
+
+Sat, 08 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/best-21st-century-sci-fi-series-that-keep-getting-better/
+
+Every season raises the bar.
+---------
+
 # Netflix's 10/10 Detective Franchise Deserves Its Masterpiece Status
 
 Movies, Masked Recs
