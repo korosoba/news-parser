@@ -1,3 +1,179 @@
+# Hit Stephen King Adaptation That Holds Top 5 Rotten Tomatoes Spot Is Now Streaming For Free
+
+Movies, Masked Recs
+
+Sat, 08 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/stephen-king-the-dead-zone-movie-top-rotten-tomatoes-tubi-streaming-free-august-2026/
+
+One of Stephen King's biggest first hits that still holds a Top 5 spot on his Rotten Tomatoes chart is now officially streaming for free.
+---------
+
+# 6 Best RPGs With Over 200 Hours Of Gameplay
+
+Gaming, RPG, PC, Xenoblade Chronicles
+
+Sat, 08 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/best-rpgs-200-hours-or-more/
+
+For those with too much time on their hands, or those looking for a long game to unwind too, these are the best RPGs with over 200 hours of content.
+---------
+
+# Netflix's 10-Part Sci-Fi Miniseries Is So Good, It's Becoming A Full Series
+
+Streaming TV, Masked Recs
+
+Sat, 08 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/cyberpunk-edgerunners-season-2-netflix-full-series/
+
+One of the best science fiction miniseries on Netflix finished its story in just 10 episodes, but it was so good that it's becoming an anthology.
+---------
+
+# The MCU's Avengers Vs X-Men Setup Officially Has The Perfect Iron Man Replacement Now
+
+Movies, Marvel Cinematic Universe, Spider-Man: Brand New Day
+
+Sat, 08 Aug 2026 16:55:11 GMT
+
+https://screenrant.com/mcu-avengers-vs-xmen-setup-spider-man-iron-man-replacement/
+
+The MCU has just crafted the perfect story setup for a fascinating Avengers Vs X-Men conflict, with a fitting replacement for Iron Man at its helm.
+---------
+
+# Dave Bautista's Prime Video Action Hit Needs To Be A Franchise After 2026 Streaming Record
+
+Movies, Masked Recs
+
+Sat, 08 Aug 2026 16:40:11 GMT
+
+https://screenrant.com/dave-bautista-the-wrecking-crew-movie-sequel-prime-video-2026-streaming-record/
+
+This Dave Bautista Prime Video original action movie was a major hit for the streamer in early 2026, and its success means a sequel needs to happen.
+---------
+
+# Sydney Sweeney & Glen Powell Nearly Made $220M Rom-Com Reunion In One Night Only
+
+Movies, One Night Only
+
+Sat, 08 Aug 2026 16:31:26 GMT
+
+https://screenrant.com/one-night-only-sydney-sweeney-glen-powell-reunion-cut/
+
+EXCLUSIVE: Hollywood favorites Glen Powell and Sydney Sweeney could have reunited in the new movie from the director of their hit rom-com.
+---------
+
+# NYT Connections Solution And Hints For August 8, 2026
+
+Gaming, Connections, Mobile
+
+Sat, 08 Aug 2026 16:30:11 GMT
+
+https://screenrant.com/nyt-connections-solution-answer-hints-august-8-2026/
+
+Expression is a core theme behind today's Connections, with multiple parts of the puzzle relating to how and what you say as you talk to others.
+---------
+
+# 12 Funniest Characters From '80s Sitcoms, Ranked
+
+Classic TV
+
+Sat, 08 Aug 2026 16:30:11 GMT
+
+https://screenrant.com/funniest-1980s-sitcom-characters-ranked/
+
+Discover the funniest characters from ‘80s sitcoms, ranked by their comedic impact and memorable performances, from The Golden Girls to Cheers.
+---------
+
+# Sydney Sweeney's Steamy 131-Minute Thriller Remains One of the Biggest Hits on Streaming
+
+Movies, The Housemaid, STARZ, books
+
+Sat, 08 Aug 2026 17:00:15 GMT
+
+https://www.cbr.com/sydney-sweeney-the-housemaid-thriller-starz-success-august-2026/
+
+The thriller book adaptation continues to succeed on streaming as more details of its sequel emerge.
+---------
+
+# Kingdom Hearts Meets Legend of Zelda in New Action Game You Can Play for Free Right Now
+
+Games, Steam
+
+Sat, 08 Aug 2026 16:36:07 GMT
+
+https://www.cbr.com/duskfade-play-for-free-steam-august-2026/
+
+Check out the unique new game for free right now on Steam, PS5, and Xbox Series X|S.
+---------
+
+# Star Trek Quietly Erased Deep Space Nine's Darkest Sisko Storyline From Trek History
+
+TV, Star Trek, Star Trek: Deep Space Nine, Sci-Fi
+
+Sat, 08 Aug 2026 16:30:15 GMT
+
+https://www.cbr.com/star-trek-erased-deep-space-nine-darkest-sisko-storyline/
+
+Star Trek: Deep Space Nine has a reputation for dark and gritty storytelling, but one of its darkest Sisko details vanished almost immediately.
+---------
+
+# 5 Greatest Fantasy Book Series of All Time, Ranked
+
+Movies, Fantasy
+
+Sat, 08 Aug 2026 16:30:15 GMT
+
+https://www.cbr.com/best-fantasy-book-series-of-all-time-list/
+
+Your TBR pile is about to get a lot longer when you add the greatest fantasy book series of all time to it.
+---------
+
+# 6 Essential Harry Potter Video Games
+
+Video Games, Video Game, Gaming, Fantasy, Harry Potter
+
+Sat, 08 Aug 2026 16:53:15 GMT
+
+https://collider.com/harry-potter-video-games-essential-ranked/
+
+Hogwarts Legacy, Lego Harry Potter Collection, and Harry Potter: Quidditch World Cup are among the best, most essential Harry Potter video games.
+---------
+
+# Insane MCU Theory Suggests Peter Parker's Neighbor Is a Spider-Man Comics Character
+
+Features, Spider-Man: Brand New Day
+
+Sat, 08 Aug 2026 17:00:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-gwen-stacy/
+
+'Spider-Man: Brand New Day' has gotten audiences talking because of Peter Parker's blonde neighbor.
+---------
+
+# Salma Hayek's Very R-Rated Action Thriller Lands on Free Streaming
+
+Movie News, Everly, Tubi, Hot on Streaming, Action, Salma Hayek Pinault
+
+Sat, 08 Aug 2026 17:00:12 GMT
+
+https://movieweb.com/everly-salma-hakey-rrated-stream-free-tubi-august-2026/
+
+Salma Hayek's forgotten R-rated action thriller is now streaming for free.
+---------
+
+# 9 Obscure Cult Classics That Deserve a Bigger Following
+
+Movie Lists
+
+Sat, 08 Aug 2026 16:30:12 GMT
+
+https://movieweb.com/cult-classics-deserve-big-following/
+
+The following cult classics may have fallen under your radar, but it's never too late to start following them as masterful works of art.
+---------
+
 # Spider-Man: Brand New Day’s Kingpin Reference Brings The MCU 1 Step Closer To A Dream Crossover
 
 Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
