@@ -1,3 +1,69 @@
+# One Piece's Biggest Day Of 2026 Is Just 2 Weeks Away
+
+Anime, One Piece
+
+Sat, 08 Aug 2026 14:49:51 GMT
+
+https://screenrant.com/one-piece-day-2026-big/
+
+Several mystery news slots are spread across the two-day August event, this upcoming One Piece event is one of the biggest dates on the 2026 calendar.
+---------
+
+# 10 Most Suspenseful Western Movies Of All Time, Ranked
+
+Movies, Western, Ranking
+
+Sat, 08 Aug 2026 14:46:13 GMT
+
+https://screenrant.com/most-suspenseful-western-movies-ever-ranked/
+
+These 10 Western movies rank among the genre’s most suspenseful, turning isolation, pursuit, and looming violence into pure tension.
+---------
+
+# The Odyssey's Most Memorable Scene Proves Christopher Nolan Needs To Break A 20-Year Trend Next
+
+Movies, The Odyssey
+
+Sat, 08 Aug 2026 14:40:12 GMT
+
+https://screenrant.com/the-odyssey-movie-circe-pig-scene-christopher-nolan-horror/
+
+A viscerally terrifying scene in Nolan's The Odyssey suggests the director should break from his high-scale epics to try his hand at horror.
+---------
+
+# Stephen King's 6 Most Underrated TV Shows
+
+Classic TV, Stephen King
+
+Sat, 08 Aug 2026 14:30:11 GMT
+
+https://screenrant.com/stephen-king-underrated-tv-shows/
+
+There have been many TV adaptations of Stephen King's bibliography; some are great, some are bad, but these six don't get the credit they deserve.
+---------
+
+# 'Spider-Man: Brand New Day' Overtakes One of the Most Divisive MCU Movies Ever in Just 1 Week
+
+Movie News, Spider-Man: Brand New Day, Iron Man 3, Box Office, MCU
+
+Sat, 08 Aug 2026 14:45:15 GMT
+
+https://collider.com/spider-man-brand-new-day-box-office-overtakes-iron-man-3/
+
+Tom Holland’s Spider-Man: Brand New Day officially passes another $1B MCU hit at the worldwide box office after only one week in theaters.
+---------
+
+# All 5 Tom Holland and Zendaya Movies, Ranked
+
+Movie, Spider-Man: Brand New Day, Spider-Man, Zendaya, Tom Holland
+
+Sat, 08 Aug 2026 14:29:15 GMT
+
+https://collider.com/tom-holland-zendaya-movies-ranked/
+
+Tom Holland and Zendaya have both starred in five movies to date, including four Spider-Man films and The Odyssey, but which is the best overall?
+---------
+
 # The Rookie Humbles ABC After Cancellation Snafu
 
 Network TV, The Rookie
