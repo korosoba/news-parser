@@ -1,3 +1,135 @@
+# The Odyssey Box Office Surpasses Christopher Nolan's Batman Movie For Highest-Grossing Record
+
+Movies, The Odyssey, Christopher Nolan, Box Office Milestone
+
+Sat, 08 Aug 2026 21:37:03 GMT
+
+https://screenrant.com/the-odyssey-box-office-christopher-nolan-second-highest-grossing-domestic/
+
+At the domestic box office, The Odyssey officially surpasses Christopher Nolan's Batman movie in the highest-grossing charts and eyes the next record.
+---------
+
+# 10 Years Later, 2016's Best Anime Is More Miraculous Than Ever (Exclusive)
+
+Anime, Mob Psycho 100, Anime Expo
+
+Sat, 08 Aug 2026 21:32:19 GMT
+
+https://screenrant.com/mob-psycho-2016-best-anime-miraculous-development/
+
+Exclusive: The director of the best anime of the 2010s reveals which part of adapting the famous manga was both a challenge and an advantage.
+---------
+
+# Robert Downey Jr.’s Return To TV After 22 Years Resulted In A Genre-Bending Masterpiece
+
+Classic TV, Masked Recs
+
+Sat, 08 Aug 2026 21:30:11 GMT
+
+https://screenrant.com/robert-downey-jr-the-sympathizer-genre-bending-masterpiece/
+
+Robert Downey Jr. might be best known for his MCU work, but an underrated TV show masterpiece set during a war highlights his skill as an actor better
+---------
+
+# Rosario Dawson's Cut Spider-Man: Brand New Day Cameo Clarified By Marvel Writers
+
+Movies, Spider-Man: Brand New Day
+
+Sat, 08 Aug 2026 21:30:01 GMT
+
+https://screenrant.com/spider-man-brand-new-day-clarie-temple-rosario-dawson-cut-cameo-explained-writers/
+
+Spider-Man: Brand New Day's writers reveal new details about Rosario Dawson's deleted Claire Temple cameo and explain why it was cut.
+---------
+
+# Game of Thrones Prequel First Look Unveils a Recast King in the Iron Throne
+
+TV, Game Of Thrones
+
+Sat, 08 Aug 2026 21:31:38 GMT
+
+https://www.cbr.com/game-of-thrones-the-mad-king-first-look-photos/
+
+The first photos of the new Game of Thrones prequel story reveals new actors performing as familiar characters.
+---------
+
+# Netflix's 3-Part Dark Fantasy From Stephen King's Son Is Becoming a Horror Cult Classic
+
+TV, Locke & Key, Innovation, Netflix, Fantasy
+
+Sat, 08 Aug 2026 21:30:14 GMT
+
+https://www.cbr.com/netflix-locke-and-key-joe-hill-dark-fantasy-horror-cult-classic/
+
+It's hard to overlook how quickly Netflix's Locke and Key, an adaptation of Joe Hill's acclaimed comic series, is gathering new momentum with viewers.
+---------
+
+# Netflix’s New 6-Part Action Thriller Is Too Good To Miss for ‘The Night Agent’ Fans
+
+TV Features, Elite Force, Netflix, Thriller, Action
+
+Sat, 08 Aug 2026 21:47:15 GMT
+
+https://collider.com/elite-force-netflix-action-thriller-perfect-for-night-agent-fans/
+
+Netflix's new action thriller Elite Force is the perfect weekend binge for fans of The Night Agent.
+---------
+
+# 5 Netflix Shows That Are Far Better Than Their Reputation Suggests
+
+TV, Netflix, The Dark Crystal: Age of Resistance, 1899, The OA
+
+Sat, 08 Aug 2026 21:41:14 GMT
+
+https://collider.com/netflix-shows-better-than-their-reputation/
+
+Discover Netflix shows that are better than you remember and worth a second look, from Sense8 to The Dark Crystal: Age of Resistance.
+---------
+
+# Steven Spielberg’s WWII Classic Is Officially Extending Its Streaming Stay
+
+Movie News, Saving Private Ryan, Tom Hanks, Steven Spielberg, Tom Sizemore
+
+Sat, 08 Aug 2026 21:30:14 GMT
+
+https://collider.com/tom-hanks-ww2-saving-private-ryan-streaming-success-paramount-plus-august-2026/
+
+The best WW2 movie ever made has been a streaming hit for years, and it isn't going anywhere anytime soon.
+---------
+
+# 10 Greatest Epic Sci-Fi Books of All Time
+
+Books and Comics, Books, Dune, Science Fiction
+
+Sat, 08 Aug 2026 21:30:14 GMT
+
+https://collider.com/best-sci-fi-epic-books-all-time-ranked/
+
+Whether it's an influential classic like Hyperion or an innovative modern gem like Tiamat's Wrath, these are the best sci-fi epic books ever written.
+---------
+
+# Netflix Confirms New Sci-Fi Action Thriller From Director of 2026 Streaming Smash
+
+Movie News, They Will Kill You
+
+Sat, 08 Aug 2026 21:30:12 GMT
+
+https://movieweb.com/netflix-blur-sci-fi-action-thriller-kirill-sokolov/
+
+A new Netflix sci-fi thriller from Kirill Sokolov is in the works, with Shawn Levy's 21 Laps producing.
+---------
+
+# Forget 'Saving Private Ryan,' the Best War Movie Came Out 12 Years Earlier
+
+Features, War
+
+Sat, 08 Aug 2026 21:30:12 GMT
+
+https://movieweb.com/platoon-saving-private-ryan-comparison/
+
+Is Steven Spielberg's 'Saving Private Ryan' the greatest war movie of all time? Oliver Stone might disagree.
+---------
+
 # 5 Long Movie Franchises With No Flops
 
 Movies
