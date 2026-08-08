@@ -1,3 +1,80 @@
+# Pokémon Emerald EX Is Takes Players To An Expanded Hoenn
+
+Gaming, Pokemon
+
+Sat, 08 Aug 2026 11:30:11 GMT
+
+https://screenrant.com/pokemon-emerald-ex-rom-hack-16-gyms/
+
+Discover the expanded Hoenn region in Pokémon Emerald EX, featuring 16 new Gyms, updated Pokémon, and additional towns and routes.
+---------
+
+# Warner Bros. Officially Rebooting 41-Year-Old Fantasy Classic With New Movie
+
+Movies, Thundercats, Fantasy, warner bros
+
+Sat, 08 Aug 2026 11:30:16 GMT
+
+https://www.cbr.com/thundercats-movie-reboot-warner-bros/
+
+A decades-old fantasy franchise is making a comeback.
+---------
+
+# Apple TV's New No. 1 Show Officially Arrives at the Perfect Time
+
+TV, Ted Lasso, Apple TV
+
+Sat, 08 Aug 2026 11:30:16 GMT
+
+https://www.cbr.com/ted-lasso-season-4-top-apple-tv-show/
+
+Apple TV has slowly been the must-watch platform of the summer and the return of a fan-favorite series confirms it.
+---------
+
+# 1 Spider-Man: Brand New Day Moment Officially Vindicates MCU's Tragic Flop
+
+Movie Features, Spider-Man: Brand New Day, Black Widow, Tom Holland, Florence Pugh
+
+Sat, 08 Aug 2026 11:48:15 GMT
+
+https://collider.com/spider-man-brand-new-day-yelena-jean-grey-vindicates-black-widow-natasha-romanoff/
+
+Spider-Man: Brand New Day calls back to Black Widow in a blink-and-you'll-miss-it moment featuring Florence Pugh as Yelena Belova.
+---------
+
+# ‘Yellowstone’ Meets ‘Virgin River’ in Netflix’s 2-Part Neo-Western Series
+
+TV Features, Ransom Canyon, Netflix, Minka Kelly, Josh Duhamel
+
+Sat, 08 Aug 2026 11:48:15 GMT
+
+https://collider.com/ransom-canyon-netflix-neo-western-yellowstone-meets-virgin-river/
+
+Netflix's Ransom Canyon incorporates the best of Yellowstone and Virgin River for a binge-watch that fans of both Westerns and romance can enjoy.
+---------
+
+# Netflix Is Officially Removing Tom Hardy’s $478 Million Sci-Fi Spectacle
+
+Movie News, Venom: The Last Dance, Tom Hardy, Netflix, Venom
+
+Sat, 08 Aug 2026 11:45:15 GMT
+
+https://collider.com/netflix-removing-venom-the-last-dance-tom-hardy-august-2026/
+
+Netflix has announced that the last day to watch Tom Hardy's final Venom movie will be later this month. Find out more details here.
+---------
+
+# Apple TV’s Most Expensive Sci-Fi Series Is Officially a Streaming Phenomenon
+
+TV News, Foundation, Sci-Fi, Apple TV, Lee Pace
+
+Sat, 08 Aug 2026 11:30:15 GMT
+
+https://collider.com/apple-tv-sci-fi-series-foundation-streaming-success-august-2026/
+
+Foundation has become one of Apple TV’s defining originals as the ambitious sci-fi series continues winning over audiences around the world.
+---------
+
 # Apple TV's Murderbot Is More Like Blade Runner Than Blade Runner 2099
 
 Streaming TV, Murderbot, Blade Runner 2099, Blade Runner
