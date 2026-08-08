@@ -1,3 +1,256 @@
+# 8 Greatest Post-Apocalyptic Shows From The Last Decade
+
+Classic TV
+
+Sat, 08 Aug 2026 02:30:11 GMT
+
+https://screenrant.com/best-post-apocalyptic-shows-past-decade/
+
+The post-apocalyptic genre has made a comeback in the past decade, with hit shows like The Last of Us and Fallout taking us to the end of the world.
+---------
+
+# Thanks To Brand New Day, An Adaptation Of Marvel's First Spider-Man & X-Men Story Would Be Even Better
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 08 Aug 2026 02:30:11 GMT
+
+https://screenrant.com/thanks-to-brand-new-day-an-adaptation-of-marvel-would-be-even-better/
+
+Because of what happened in Spider-Man: Brand New Day, the MCU has a chance to add a cool twist to the first-ever fight between Peter and the X-Men.
+---------
+
+# Buffy The Vampire Slayer’s “Lost Episode” Is An Absolute Blast
+
+Gaming, Buffy The Vampire Slayer
+
+Sat, 08 Aug 2026 02:00:21 GMT
+
+https://screenrant.com/buffy-chaos-bleeds-lost-episode/
+
+Explore the lost episode of Buffy with the Chaos Bleeds video game, featuring iconic characters and thrilling gameplay.
+---------
+
+# Christopher Nolan Took 3 Hours To Do What The Simpsons Did In 7 Minutes
+
+Classic TV, Masked Recs
+
+Sat, 08 Aug 2026 01:30:11 GMT
+
+https://screenrant.com/the-simpsons-christopher-nolan-the-odyssey/
+
+The Simpsons adapted and deconstructed The Odyssey in a fraction of the time it took Christopher Nolan to retell Homer's epic poem.
+---------
+
+# One Night Only Has A Post-Credits Surprise (But It's Not A Scene)
+
+Movies, One Night Only
+
+Sat, 08 Aug 2026 01:30:11 GMT
+
+https://screenrant.com/one-night-only-movie-post-credits-scene/
+
+While the romcom One Night Only does not have an post credit scene, audiences may still want to stick around for one last, steamy surprise.
+---------
+
+# Pokémon Officially Brings Ash and Pikachu Back Today (But There's a Catch)
+
+Anime, Pokemon, Nintendo, Disney+
+
+Sat, 08 Aug 2026 03:00:14 GMT
+
+https://www.cbr.com/pokemon-ash-pikachu-disney-plus-streaming/
+
+Pokémon finally finds a new streaming home, but anime fans hoping to experience Ash and Pikachu's humble beginnings may be disappointed.
+---------
+
+# 5 Shonen Anime Series That Get Better With Every Arc
+
+Anime, Attack On Titan, Black Clover, shonen anime
+
+Sat, 08 Aug 2026 02:45:15 GMT
+
+https://www.cbr.com/shonen-anime-better-with-every-arc/
+
+These shonen anime never lose momentum, with every arc raising the stakes and improving on the last.
+---------
+
+# 5 Most Expensive Colorless Pokémon Cards, Ranked By Price
+
+Games, Pokemon, Pokemon TCG, Tabletop, TCG
+
+Sat, 08 Aug 2026 02:15:15 GMT
+
+https://www.cbr.com/most-expensive-colorless-pokemon-cards-ranked/
+
+Normal-type Pokemon cards, often typed as Colorless, are the backbone of the trading card game, and a select few have astounding price tags.
+---------
+
+# 7 Darkest Yu-Gi-Oh! Moments We Never Saw Coming
+
+Anime, Yu-Gi-Oh!
+
+Sat, 08 Aug 2026 02:00:24 GMT
+
+https://www.cbr.com/darkest-yu-gi-oh-moments-we-never-saw-coming/
+
+The card games never stopped Yu-Gi-Oh's anime from getting dark when the story required it.
+---------
+
+# The 10 Most Suspenseful Thriller Movies of the Last 50 Years, Ranked
+
+Movies, Thriller, Se7en, Zodiac
+
+Sat, 08 Aug 2026 02:00:24 GMT
+
+https://www.cbr.com/most-suspenseful-thriller-movies-last-50-years-list/
+
+The last 50 years contains some of the greatest thriller movies ever made, and some are feats of pure suspense cinema still captivating today.
+---------
+
+# These Missing Marvel Heroes Could Easily Defeat Doctor Doom
+
+Comics, Marvel, Marvel Cinematic Universe, Avengers: Doomsday
+
+Sat, 08 Aug 2026 02:00:24 GMT
+
+https://www.cbr.com/missing-marvel-heroes-who-could-destroy-doctor-doom/
+
+Will these heroes dare to face off against Doctor Doom?
+---------
+
+# Milly Alcock Gets the Last Laugh Over Supergirl Critics With Major Award Win
+
+Movies, Supergirl
+
+Sat, 08 Aug 2026 01:58:37 GMT
+
+https://www.cbr.com/supergirl-milly-alcock-wins-critics-choice-super-award/
+
+Milly Alcock gets the last laugh following widespread Supergirl criticism.
+---------
+
+# 5 Strongest Mechs in Anime History, Ranked
+
+Anime, mecha, Gurren Lagann, Turn A Gundam
+
+Sat, 08 Aug 2026 01:45:15 GMT
+
+https://www.cbr.com/strongest-mechs-in-anime-history-ranked/
+
+Cosmic horror, ancient civilizations and nanomachine weapons all feed into mechs whose true ceiling has little to do with armor thickness or firepower
+---------
+
+# 10 Greatest Side-Scrolling Shoot 'Em Ups Ever Made
+
+Games, Super R-Type, Nintendo, Sega Genesis, Video Games
+
+Sat, 08 Aug 2026 01:25:15 GMT
+
+https://www.cbr.com/greatest-side-scrolling-shoot-em-ups-all-time/
+
+The side-scrolling shoot 'em up genre has been a staple in the gaming industry for generations, with some titles standing heads above the rest.
+---------
+
+# SYFY’s Best 4-Part Comic Book Adaptation Is Quietly Making the Case for a Revival
+
+TV Features, Resident Alien, SyFy, Alan Tudyk, Netflix
+
+Sat, 08 Aug 2026 02:02:14 GMT
+
+https://collider.com/resident-alien-syfy-best-comic-book-adaptation-netflix-streaming/
+
+SYFY's Resident Alien, starring Alan Tudyk, is making the case for a revival by quietly climbing Netflix's top streaming charts.
+---------
+
+# 'Jurassic Park' Meets 'High Noon' in New Sci-Fi Western Coming Soon to Streaming
+
+Movie News, Primitive War, High Noon, Jurassic Park, Sci-Fi
+
+Sat, 08 Aug 2026 02:00:24 GMT
+
+https://collider.com/dinosaurs-of-the-wild-west-streaming-series-kickstarter-luke-sparke/
+
+Primitive War director Luke Sparke is returning with Dinosaurs of the Wild West, a unique sci-fi Western series that blends cowboys with dinosaurs.
+---------
+
+# ‘The Pitt’ Meets 'Sherlock' in Fox’s 8-Season Masterpiece Series
+
+TV Features, House, Sherlock, The Pitt, Hugh Laurie
+
+Sat, 08 Aug 2026 01:55:14 GMT
+
+https://collider.com/house-tv-show-masterpiece-the-pitt-sherlock/
+
+House wasn't a perfect series, but the iconic medical drama blended wit and mystery to make a unique show that is a masterpiece.
+---------
+
+# Stephen King's Most "Spellbinding" Story Officially Returns in 2 Months
+
+TV News, Carrie, Horror, Mike Flanagan, Stephen King
+
+Sat, 08 Aug 2026 01:45:14 GMT
+
+https://collider.com/stephen-king-carrie-prime-video-release-date-october-2026/
+
+Stephen King’s iconic horror novel Carrie officially returns this October with Mike Flanagan’s new Prime Video series.
+---------
+
+# 10 R-Rated Drama Movies That Can Be Called Masterpieces
+
+Movie, Drama, The Godfather, Schindler’s List, There Will Be Blood
+
+Sat, 08 Aug 2026 01:41:14 GMT
+
+https://collider.com/r-rated-drama-movies-masterpieces/
+
+From Whiplash to The Shawshank Redemption, these R-rated dramas prove why character-driven cinema never goes out of style.
+---------
+
+# Bring Home a Piece of the Wizarding World as Harry Potter Announces Its Popcorn Bucket Collection
+
+TV News, Harry Potter, Wizarding World of Harry Potter, Fantasy, Harry Potter and the Sorcerer's Stone
+
+Sat, 08 Aug 2026 01:30:14 GMT
+
+https://collider.com/harry-potter-25th-anniversary-popcorn-bucket-collection-images/
+
+To celebrate the fantasy franchise's 25th anniversary, Harry Potter is releasing a new collection of popcorn buckets. See them here!
+---------
+
+# Andrew Garfield and Tobey Maguire Officially Return in New Sony 'Spider-Man' Release
+
+Movie News, Spider-Man: Brand New Day, The Amazing Spider-Man, Spider-Man
+
+Sat, 08 Aug 2026 01:15:14 GMT
+
+https://collider.com/spider-man-new-posters-tom-holland-andrew-garfield-tobey-maguire/
+
+Sony Pictures has released brand new Spider-Man content featuring Tobey Maguire, Andrew Garfield, and Tom Holland. See them here.
+---------
+
+# Prime Video’s #1 Action Thriller Series Deserves a Renewal
+
+TV Features, Ride or Die, Octavia Spencer, Hannah Waddingham, Prime Video
+
+Sat, 08 Aug 2026 01:14:14 GMT
+
+https://collider.com/ride-or-die-prime-video-action-thriller-deserves-season-2-renewal/
+
+Prime Video's #1 action thriller series Ride or Die deserves a renewal for Season 2, especially after that dramatic finale.
+---------
+
+# All Spider-Man Villains That Officially Appear in 'Brand New Day'
+
+Features, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Sat, 08 Aug 2026 02:15:12 GMT
+
+https://movieweb.com/spider-man-villains-in-brand-new-day/
+
+'Spider-Man: Brand New Day' features Spidey as a seasoned crime-fighter, and provides a glimpse at some of the iconic villains he's tangled with.
+---------
+
 # The Simpsons Star Reveals If Season 40 Could Be The Last
 
 TV, The Simpsons
