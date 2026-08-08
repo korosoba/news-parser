@@ -1,3 +1,69 @@
+# 7 Forgotten Toonami Anime That Have Aged Like Milk
+
+Anime, toonami, Transformers, Cartoon Network
+
+Sat, 08 Aug 2026 23:45:14 GMT
+
+https://www.cbr.com/forgotten-toonami-anime-that-aged-like-milk/
+
+Cartoon Network's Toonami block launched a golden age for anime in the West, but not every Toonami offering withstands the test of time.
+---------
+
+# 28 Years Later, Kate Mulgrew's Favorite Star Trek Episode Remains a Sci-Fi Masterpiece
+
+TV, Star Trek: Voyager, Sci-Fi, Paramount
+
+Sat, 08 Aug 2026 23:30:14 GMT
+
+https://www.cbr.com/star-trek-voyager-kate-mulgrew-favorite-episode-counterpoint/
+
+Kate Mulgrew calls this episode her favorite Star Trek: Voyager entry because it showcases Captain Janeway's wit and emotional complexity.
+---------
+
+# Keanu Reeves’ Dark Fantasy Cult Classic Is Officially Surging Before the Sequel
+
+Movie News, Constantine, Constantine 2, Keanu Reeves, Francis Lawrence
+
+Sat, 08 Aug 2026 23:45:14 GMT
+
+https://collider.com/keanu-reeves-fantasy-constantine-streaming-success-hbo-max-hulu-prime-video-august-2026/
+
+Keanu Reeves’ cult-favorite supernatural thriller Constantine is surging on streaming as anticipation builds for the long-awaited sequel.
+---------
+
+# Prime Video’s 4-Part Fantasy Series Is a Masterpiece Perfect for a Weekend Binge
+
+TV Features, The Legend of Vox Machina, Critical Role, Laura Bailey, Prime Video
+
+Sat, 08 Aug 2026 23:36:14 GMT
+
+https://collider.com/legend-of-vox-machina-prime-video-fantasy-series-weekend-binge/
+
+The Legend of Vox Machina is a must-watch fantasy epic that blends humor, heart, and epic storytelling to make the best fantasy series of the decade.
+---------
+
+# Netflix's Newest Breakout Hit Is Officially Crowned #1 on Streaming
+
+Movie News, 72 Hours, Netflix, Comedy, Kevin Hart
+
+Sat, 08 Aug 2026 23:30:14 GMT
+
+https://collider.com/kevin-hart-72-hours-streaming-success-netflix-august-2026/
+
+Despite low critic and viewer reviews, Netflix's latest Kevin Hart comedy is a smash hit on streaming. Here's everything you should know.
+---------
+
+# What Happens To Every Main Character in 'House of the Dragon'
+
+TV Lists, House of the Dragon, Game of Thrones, Game Of Thrones
+
+Sat, 08 Aug 2026 23:45:12 GMT
+
+https://movieweb.com/house-of-the-dragon-main-character-fates/
+
+With just one season of 'House of the Dragon' left, fans will soon know the major characters' fates — and 'Fire & Blood' hints at what they'll be.
+---------
+
 # Star Trek: TNG Was The Greatest '90s Space Opera, But It Was A Huge Miss Upon Release
 
 Streaming TV, Star Trek: The Next Generation
