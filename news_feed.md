@@ -1,3 +1,80 @@
+# 7 Biggest X-Men Characters Missing From Avengers: Doomsday
+
+Movies, Masked Recs
+
+Sat, 08 Aug 2026 22:45:11 GMT
+
+https://screenrant.com/x-men-characters-missing-avengers-doomsday/
+
+The X-Men are some of the most cherished and beloved characters in Marvel history, and while several will show up in Doomsday, many are absent.
+---------
+
+# 5 Action Thriller Shows Better Than The Terminal List
+
+TV, The Terminal List, Recommendation
+
+Sat, 08 Aug 2026 22:31:11 GMT
+
+https://screenrant.com/action-thriller-shows-better-terminal-list/
+
+Chris Pratt's The Terminal List is finally returning to Prime Video in 2026, and here are some action thriller recommendations for genre fans.
+---------
+
+# 5 Far Side Comics Set in Movie Theaters That Are 10/10 Perfect
+
+Comics, The Far Side
+
+Sat, 08 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/5-far-side-comics-set-in-movie-theaters-that-are-1010-perfect/
+
+Starring humans, bugs and ancient Greek gods.
+---------
+
+# Apple TV's New Revival Is Officially the No. 1 Show on Streaming in the U.S.
+
+TV, Ted Lasso, Apple TV
+
+Sat, 08 Aug 2026 22:30:14 GMT
+
+https://www.cbr.com/ted-lasso-drama-apple-tv-us-success-august-2026/
+
+The long-awaited fourth season of Ted Lasso is finally out, and proving to be a hit with audiences as it's officially the top of the streaming charts.
+---------
+
+# 10 Best Horror Movies for Sickos
+
+Movie, The Substance, Climax, Infinity Pool, The Return of the Living Dead
+
+Sat, 08 Aug 2026 22:51:14 GMT
+
+https://collider.com/best-horror-movies-for-sickos-ranked/
+
+Some sicko movies are genuinely very entertaining, including certain horror ones like The Substance, Terrifier 2, and The Return of the Living Dead.
+---------
+
+# Hugh Jackman and Rebecca Ferguson’s Forgotten Sci-Fi Noir Is a Streaming Hidden Gem
+
+Movie News, Reminiscence, Hugh Jackman, Rebecca Ferguson, Sci-Fi
+
+Sat, 08 Aug 2026 22:45:15 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-reminiscence-streaming-success-youtube-itunes-august-2026/
+
+Hugh Jackman and Rebecca Ferguson’s overlooked sci-fi thriller Reminiscence is finally finding the audience it always deserved on streaming.
+---------
+
+# 2026’s Horror Masterpiece Is Officially Unstoppable on Streaming
+
+Movie News, Obsession, Peacock, Inde Navarrette, Curry Barker
+
+Sat, 08 Aug 2026 22:30:14 GMT
+
+https://collider.com/curry-barker-obsession-streaming-success-peacock-august-2026/
+
+The critically acclaimed horror movie that earned more than 630x its budget at the box office is still dominating streaming.
+---------
+
 # 44 Episodes Later, Jessica Knight's Best NCIS Line Is Still A Top 5 Franchise Quote
 
 Network TV, NCIS
