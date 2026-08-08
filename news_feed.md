@@ -1,3 +1,190 @@
+# Dragon Age: The Veilguard - The Best Builds For Each Companion
+
+Gaming, Dragon Age: The Veilguard, Dragon Age, PC
+
+Sat, 08 Aug 2026 12:30:12 GMT
+
+https://screenrant.com/dragon-age-veilguard-best-build-all-companions/
+
+Every companion in Dragon Age: The Veilguard comes with their own set of skills to help Rook in combat. Here's the best way to build each one.
+---------
+
+# Marvel Has Its Perfect Scarlet Witch Replacement
+
+Movies, Marvel Cinematic Universe
+
+Sat, 08 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/mcu-wanda-maximoff-scarlet-witch-jean-grey-replacement/
+
+Wanda Maximoff  has been missing since Doctor Strange in the Multiverse of Madness and Marvel Studios might be setting up her replacement.
+---------
+
+# 10 MCU Characters Who Might Not Actually Be Dead
+
+Superheroes, Marvel Cinematic Universe
+
+Sat, 08 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/marvel-mcu-characters-not-actually-dead/
+
+Though nobody stays dead except Uncle Ben, some MCU deaths are tantalizingly vague or easily undone through established MCU and Marvel Comics lore.
+---------
+
+# 10 Best Zits Comic Strips That Are 10/10 Perfect
+
+Comics
+
+Sat, 08 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/greatest-zits-comics-perfect/
+
+Adolescence isn't forever, but for Jeremy Duncan of Zits, it might as well be.
+---------
+
+# First Movie Adaptation Of Magic: The Gathering Gets Encouraging Update
+
+Movies, Magic: The Gathering
+
+Sat, 08 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/magic-the-gathering-movie-adaptation-progress-status-matt-johnson/
+
+Magic: The Gathering director Matt Johnson shares a promising movie update while explaining the challenges that come with its massive lore.
+---------
+
+# James Gunn Completely Redefined Superman With One Detail Nobody Talks About
+
+Movies, Superman
+
+Sat, 08 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/superman-lonely-detail-one-chair-james-gunn/
+
+Clark Kent is just starting to feel at home.
+---------
+
+# Stranger Things Meets Far Cry In Chilling New FPS
+
+Gaming, Stranger Things, Far Cry, Steam
+
+Sat, 08 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/abyss-break-stranger-things-meets-far-cry/
+
+Explore dangerous parallel worlds and survive horrors in The Abyss Break, a co-op survival FPS with Far Cry-style gameplay, developed by LNJ Studio.
+---------
+
+# 4-Part 'Pirates Of The Caribbean Meets Treasure Island' Adventure Series Gets Better After Season 1
+
+Streaming TV, Masked Recs
+
+Sat, 08 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/black-sails-gets-better-after-season-1/
+
+Starz's Black Sails improved after a slow start in season 1, becoming a respected series with compelling storytelling and complex characters.
+---------
+
+# Why The MCU Waited 8 Years To Confirm Its New Black Widow Officially
+
+Movies, Marvel Cinematic Universe, Spider-Man: Brand New Day, Black Widow
+
+Sat, 08 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/mcu-black-widow-yelena-confirm-spider-man-brand-new-day-wait/
+
+The recent confirmation of the MCU's new Black Widow comes 8 years after the mantle was vacated, and there's more than one reason for this delay.
+---------
+
+# 5 Star Trek Ships Stronger Than the Enterprise
+
+TV, Star Trek, Sci-Fi
+
+Sat, 08 Aug 2026 12:30:15 GMT
+
+https://www.cbr.com/star-trek-ships-more-powerful-than-enterprise-list/
+
+The Enterprise is unquestionably Star Trek's most famous ship, but several vessels across the franchise proved even more dangerous in battle.
+---------
+
+# Marvel Officially Confirms The Spider-Verse’s Comeback With A Twist
+
+Comics, Spider-Man, Spider-Verse, Miles Morales, Spider-Gwen
+
+Sat, 08 Aug 2026 12:00:15 GMT
+
+https://www.cbr.com/marvel-compact-editions-spider-man-miles-morales-spider-gwen/
+
+Marvel offers a way to re-enter the Spider-Verse.
+---------
+
+# Blade Runner Meets Drive In Her Private Hell
+
+Movies, Her Private Hell, Thriller, Blade Runner
+
+Sat, 08 Aug 2026 12:00:15 GMT
+
+https://www.cbr.com/her-private-hell-thriller-is-blade-runner-meets-drive/
+
+This brand-new cyberpunk psychological thriller is perfect for fans of Blade Runner and Drive.
+---------
+
+# Brawl Stars x Adidas Originals Collection Officially Launches, Available Now
+
+Games, Clash of Clans
+
+Sat, 08 Aug 2026 12:00:15 GMT
+
+https://www.cbr.com/brawl-stars-adidas-originals-official-launch-available-now/
+
+Fans can finally get their hands on the latest line of Brawl Stars shoes and apparel from Adidas Originals, and it is perfect for going back to school
+---------
+
+# John Wick Officially Leaves Keanu Reeves Behind
+
+Movie News, Caine, Donnie Yen, John Wick, Keanu Reeves
+
+Sat, 08 Aug 2026 12:31:14 GMT
+
+https://collider.com/next-john-wick-movie-caine-no-keanu-reeves-release-date/
+
+The next John Wick movie coming to theaters will not feature Keanu Reeves. Find out what we know here.
+---------
+
+# Noah Wyle’s Powerful 8-Episode Drama Is Still Painfully Relevant 7 Years Later
+
+TV Features, The Red Line, Noah Wyle, CBS, Drama
+
+Sat, 08 Aug 2026 12:18:16 GMT
+
+https://collider.com/best-noah-wyle-series-the-red-line-drama-series-relevant/
+
+Noah Wyle’s The Red Line remains one of CBS’ most overlooked dramas, and its story feels just as relevant seven years later.
+---------
+
+# All 5 Pirates of the Caribbean Movies, Ranked
+
+Movie, Pirates of the Caribbean: The Curse of the Black Pearl, Pirates of the Caribbean: Dead Man's Chest, Pirates of the Caribbean: At World's End, Pirates of the Caribbean: On Stranger Tides
+
+Sat, 08 Aug 2026 12:03:15 GMT
+
+https://collider.com/pirates-of-the-caribbean-movies-ranked/
+
+The Pirates of the Caribbean movies defined blockbuster filmmaking in the 2000s, but which of the five entries into this unexpected franchise is best?
+---------
+
+# 21 Years Later, Tom Cruise’s 116-Minute Sci-Fi Blockbuster Is Officially Free to Stream
+
+Movie News, War of The Worlds, Steven Spielberg, Tom Cruise, Sci-Fi
+
+Sat, 08 Aug 2026 12:00:15 GMT
+
+https://collider.com/tom-cruise-sci-fi-blockbuster-war-of-the-worlds-streaming-pluto-tv-mgm-plus-august-2026/
+
+Steven Spielberg’s War of the Worlds, starring Tom Cruise, is finding a massive new audience on streaming nearly 20 years after its release.
+---------
+
 # Pokémon Emerald EX Is Takes Players To An Expanded Hoenn
 
 Gaming, Pokemon
