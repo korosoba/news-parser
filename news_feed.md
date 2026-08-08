@@ -1,3 +1,168 @@
+# Netflix's 10/10 Detective Franchise Deserves Its Masterpiece Status
+
+Movies, Masked Recs
+
+Sat, 08 Aug 2026 17:30:11 GMT
+
+https://screenrant.com/netflixs-1010-detective-franchise-deserves-its-masterpiece-status/
+
+Netflix's crowd-pleasing detective films make one of the rare movie franchises that isn't centered on superheroes or big-budget sci-fi spectacle.
+---------
+
+# Final Fantasy, Guitar Hero Collide In New Rhythm RPG You Can Play Free Now
+
+Gaming, Final Fantasy, Triple-A Games, Guitar Hero, Steam
+
+Sat, 08 Aug 2026 17:30:11 GMT
+
+https://screenrant.com/final-fantasy-meets-guitar-hero-nocturne/
+
+If you're a fan of rhythm games or RPGs, you might want to take note of this crossover that works way too well, which is free to try now.
+---------
+
+# After 63 Years, Marvel Unveils Their Darkest X-Men Team Of All Time
+
+Marvel Comics, X-Men
+
+Sat, 08 Aug 2026 17:27:26 GMT
+
+https://screenrant.com/darkest-xmen-team-demonic-marvel/
+
+Marvel introduces a new X-Men team, and they're all evil counterparts of several major mutant heroes, including Wolverine, Gambit, and Nightcrawler.
+---------
+
+# This Thriller Made Chris Pratt An Action Star Before Guardians & Jurassic (& It's Now On Netflix)
+
+Movies, Zero Dark Thirty
+
+Sat, 08 Aug 2026 17:20:11 GMT
+
+https://screenrant.com/chris-pratt-zero-dark-thirty-movie-netflix-action-star/
+
+Chris Pratt’s Zero Dark Thirty role changed how audiences saw him, paving the way for his blockbuster action career.
+---------
+
+# Controversial New Horror Movie Ice Cream Man's Box Office Debut Hits Record Low
+
+Movies, Ice Cream Man, Horror, Box Office
+
+Sat, 08 Aug 2026 17:09:37 GMT
+
+https://screenrant.com/ice-cream-man-2026-box-office-opening-weekend-domestic-result/
+
+The controversial new Eli Roth-directed horror movie Ice Cream Man hits a record low during its opening weekend at the domestic box office.
+---------
+
+# Noah Centineo’s Young Rambo Gets Early Rave Review With Sylvester Stallone Comparison
+
+Movies, John Rambo, Rambo
+
+Sat, 08 Aug 2026 17:09:13 GMT
+
+https://screenrant.com/john-rambo-noah-centineo-sylvester-stallone-comparison-david-harbour/
+
+David Harbour shares a new tease for the upcoming John Rambo prequel movie, comparing Noah Centineo to original star Sylvester Stallone.
+---------
+
+# Ridley Scott Is Officially Working on A Court of Thorns and Roses Replacement
+
+TV, ridley scott, Prime Video
+
+Sat, 08 Aug 2026 17:48:07 GMT
+
+https://www.cbr.com/prime-video-folk-of-the-air-adaptation-ridley-scott/
+
+The fantasy scene is ever-growing.
+---------
+
+# The ‘Dangerous’ Spider-Man: Brand New Day Stunt That Required A Ton Of Prep
+
+CBR Exclusives, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man: Brand New Day
+
+Sat, 08 Aug 2026 17:21:25 GMT
+
+https://www.cbr.com/dangerous-spider-man-brand-new-day-stunt-required-major-prep/
+
+One of the most heart-pounding scenes in Brand New Day was also the most dangerous.
+---------
+
+# It's Official, PlayStation Is Over As We Know It
+
+Games, PlayStation 5
+
+Sat, 08 Aug 2026 17:15:15 GMT
+
+https://www.cbr.com/playstation-officially-over-ps5-disc-warning/
+
+PlayStation's decision to eliminate disc production has proven incredibly unpopular, but the company now seems intent on simply ignoring the outcry.
+---------
+
+# Sony's Killing PlayStation Discs, But Nintendo Isn't Abandoning Physical Games
+
+Games, Nintendo
+
+Sat, 08 Aug 2026 17:12:52 GMT
+
+https://www.cbr.com/nintendo-physical-games-sales-strong/
+
+Nintendo gamers who enjoy owning physical games get some good news following Sony's digital-only future controversy.
+---------
+
+# 10 Essential James McAvoy Movies
+
+Movie, James McAvoy, Split, X-Men: Days of Future Past, Atonement
+
+Sat, 08 Aug 2026 17:52:15 GMT
+
+https://collider.com/james-mcavoy-movies-essential-ranked/
+
+James McAvoy is one of the most underrated and versatile actors of his generation, as proven in movies like Split and Atonement.
+---------
+
+# 7 High Fantasy Shows Where Every Episode Is a Masterpiece
+
+TV, Fantasy, Avatar: The Last Airbender, The Lord of the Rings: The Rings of Power, House of the Dragon
+
+Sat, 08 Aug 2026 17:19:15 GMT
+
+https://collider.com/high-fantasy-shows-every-episode-masterpiece/
+
+From Avatar: The Last Airbender to The Lord of the Rings: The Rings of Power, every episode of these high fantasy series are true masterpieces.
+---------
+
+# 6 Apple TV Shows That Deserve a Place Among TV's All-Time Greatest
+
+TV, Apple TV, Bad Sisters, Pachinko, Lessons In Chemistry
+
+Sat, 08 Aug 2026 17:04:15 GMT
+
+https://collider.com/greatest-apple-tv-shows-all-time/
+
+Discover why Apple TV stands out in the streaming wars with great shows that prioritize quality over quantity, from Severance to Slow Horses.
+---------
+
+# Taylor Sheridan's Spy Series Hits No. 1 on Global Streaming This Week
+
+TV News, Taylor Sheridan, Paramount Plus, Lioness, Streaming
+
+Sat, 08 Aug 2026 17:01:15 GMT
+
+https://collider.com/taylor-sheridan-lioness-paramount-plus-streaming-success-august-2026/
+
+Taylor Sheridan's twisty spy series is a streaming sensation upon its return. Here's everything you should know about the Zoe Saldana-led show.
+---------
+
+# 'Marshals' Season 2: Everything We Know About Taylor Sheridan's Series
+
+Features, Marshals, Taylor Sheridan, Everything We Know
+
+Sat, 08 Aug 2026 17:30:12 GMT
+
+https://movieweb.com/marshals-season-2-confirmation-cast-plot/
+
+'Marshals,' the Taylor Sheridan procedural series stars Logan Marshall-Green as Cal Calvin and Luke Grimes as Kayce Dutton.
+---------
+
 # Hit Stephen King Adaptation That Holds Top 5 Rotten Tomatoes Spot Is Now Streaming For Free
 
 Movies, Masked Recs
