@@ -1,3 +1,157 @@
+# 5 Long Movie Franchises With No Flops
+
+Movies
+
+Sat, 08 Aug 2026 21:10:11 GMT
+
+https://screenrant.com/movie-franchises-with-no-flops/
+
+Long-running movie franchises are bound to drop a few bombs, but these series ran for at least five films and never produced any flops.
+---------
+
+# After 11 Years, 2026 Will Officially Prove Why Black Clover Has The New Gen's Best Shonen Hero (Exclusive)
+
+Anime, Black Clover
+
+Sat, 08 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/black-clover-best-shonen-hero-decade-return/
+
+Perseverance and hard work are staples of any shonen hero, but one particular character committed to it all the way to the end like a champ.
+---------
+
+# Pokémon Officially Unveils Stunning New Rayquaza Redesign
+
+Gaming, Pokemon, Pokémon Horizons: The Series - Season 1, Pokémon Horizons, PC
+
+Sat, 08 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/pokemon-rayaquaza-redesign-adidas/
+
+Pokémon is celebrating its 30th anniversary with a stunning new collab featuring a Rayquaza release redesigned like you've never seen it before.
+---------
+
+# Pokémon Fans Are Already Slamming Game Freak's New RPG
+
+Gaming, Pokemon, Beast of Reincarnation, Triple-A Games, Nintendo
+
+Sat, 08 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/beast-reincarnation-pokemon-fans-criticism/
+
+While Pokémon fans are somewhat used to the state of the modern entries, hopes were far higher for Game Freak's promising new RPG.
+---------
+
+# Only 3 Dragon Ball Characters Can Defeat Ultra Instinct Goku
+
+Anime, Dragon Ball, Goku, Akira Toriyama
+
+Sat, 08 Aug 2026 21:15:14 GMT
+
+https://www.cbr.com/dragon-ball-characters-stronger-than-ultra-instinct-goku/
+
+Goku's Ultra Instinct transformation has rewarded him with unprecedented power, but there are still a few Dragon Ball characters who can defeat him.
+---------
+
+# Apple TV’s Bridgerton Replacement Unveils Release Window & First Look
+
+TV, The Buccaneers
+
+Sat, 08 Aug 2026 21:06:13 GMT
+
+https://www.cbr.com/apple-tv-the-buccaneers-season-3-release-window-first-look/
+
+The show is highly underseen, but it will finally return with new episodes.
+---------
+
+# 5 Greatest American Martial Arts Movies of All Time, Ranked
+
+Movies, The Karate Kid, John Wick: Chapter 4, The Matrix
+
+Sat, 08 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/best-american-martial-arts-movies-ranked-list/
+
+Some of the best martial arts movies ever made are American gems that might surprise moviegoers.
+---------
+
+# Game of Thrones Creator George R.R. Martin Explains 'Winds of Winter' Delay in Heartbreaking Update
+
+TV Features, George R.R. Martin, The Winds of Winter, A Song of Ice and Fire, Game Of Thrones
+
+Sat, 08 Aug 2026 21:20:14 GMT
+
+https://collider.com/game-of-thrones-george-rr-martin-explains-winds-of-winter-delay-heartbreaking/
+
+George R.R. Martin's blog post about grief and depression are a bad sign for progress on The Winds of Winter.
+---------
+
+# 4 Years Later, Anya Taylor-Joy's Horror Masterpiece Is Officially Crowned a Global Streaming Hit
+
+Movie News, Anya Taylor-Joy, The Menu, Nicholas Hoult, Ralph Fiennes
+
+Sat, 08 Aug 2026 21:15:14 GMT
+
+https://collider.com/anya-taylor-joy-the-menu-streaming-success-hulu-august-2026/
+
+The Menu, starring Anya Taylor-Joy and Ralph Fiennes, is enjoying a major streaming resurgence years after becoming one of horror’s biggest hits.
+---------
+
+# ‘Game of Thrones’ Officially Confirms Jon Snow's Return for 2027 Release
+
+Gaming News, Game Of Thrones, Kit Harington, George R.R. Martin, House of the Dragon
+
+Sat, 08 Aug 2026 21:00:14 GMT
+
+https://collider.com/game-of-thrones-jon-snow-return-war-for-westeros-2027-release-date/
+
+Jon Snow is officially returning in Game of Thrones: War for Westeros, a new strategy game set to be released in 2027. Read on for more.
+---------
+
+# Disney Officially Reviving Cult-Classic Gothic Fantasy Series 29 Years Later
+
+TV News, Gargoyles, Disney
+
+Sat, 08 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/disney-gargoyles-revival-reboot-happening/
+
+Disney pushed the boundaries of family-friendly programming with this '90s show.
+---------
+
+# Guy Ritchie's Hit "Indiana Jones Wannabe" Smashes Major Milestone
+
+Movie News, Fountain of Youth, Apple TV, Hot on Streaming, Action, Guy Ritchie
+
+Sat, 08 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/fountain-of-youth-guy-ritchie-action-stream-apple-august-2026/
+
+Guy Ritchie's latest action-adventure movie might be the next Indiana Jones on streaming.
+---------
+
+# Liam Neeson's 99-Minute Certified Fresh Sci-Fi Thriller Becomes Streaming Hit on Prime Video
+
+Movie News, Cold Storage, Hot on Streaming, Liam Neeson
+
+Sat, 08 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/cold-storage-liam-neeson-streaming-hit-prime-video-august-2026/
+
+In one of his most underrated movies in recent years, Neeson faces another kind of threat.
+---------
+
+# Netflix’s 5-Part Thriller Nobody Remembers Has One of the Greatest Casts
+
+Features, Sirens, Netflix
+
+Sat, 08 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/sirens-netflix-best-cast/
+
+Netflix has released many unforgettable thriller series, including one from 2025 that has a talented and famous cast.
+---------
+
 # 10 Years Later, MCU Spider-Man Still Can’t Escape Iron Man
 
 Movies, Marvel Cinematic Universe, Spider-Man: Brand New Day
