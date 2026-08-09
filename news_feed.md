@@ -1,3 +1,102 @@
+# 30 Years After Tamagotchi, This New Virtual Pet Is the Best of All Time
+
+Gaming, Tamagotchi
+
+Sun, 09 Aug 2026 22:45:11 GMT
+
+https://screenrant.com/bitzee-aquarium-digital-pet-like-tamagotchi/
+
+Bitzee Aquarium uses a century-old optical illusion in an awesome way.
+---------
+
+# Star Trek Gets A Gothic Twist In Gloriously Dark New Special
+
+Comics, Star Trek
+
+Sun, 09 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/star-trek-deviations-evermore-edgar-allen-poe/
+
+Quote the Raven
+---------
+
+# Battlestar Galactica Wasted A Forgotten Character And Star Wars Proves It
+
+TV, Battlestar Galactica
+
+Sun, 09 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/battlestar-galactica-sam-witwer-crashdown-wasted/
+
+Sam Witwer's performance on Battlestar Galactica is seriously underrated, especially since he became a legend as part of the Star Wars TV world.
+---------
+
+# My Life With The Walter Boys Season 3 Is Officially Netflix’s New #1 Series
+
+TV, My Life with the Walter Boys
+
+Sun, 09 Aug 2026 22:28:33 GMT
+
+https://screenrant.com/my-life-with-the-walter-boys-season-3-streaming-success-august-2026/
+
+The hit Netflix series My Life With the Walter Boys' newest season is making waves on the streaming service, taking the top spot on the platform.
+---------
+
+# Marvel Officially Confirms Plans For 'Next Wolverine' That Never Happened
+
+Comics, Marvel, Marvel Comics, MCU, Wolverine, X-Men, X-Men '97
+
+Sun, 09 Aug 2026 22:50:58 GMT
+
+https://www.cbr.com/marvel-officially-confirms-plans-for-next-wolverine/
+
+Believe it — Marvel thought they could replace Wolverine with this character.
+---------
+
+# Netflix’s 10-Episode Legal Drama Is Already One of 2026’s Best Weekend Binges
+
+TV Features, Netflix, Drama, The Lincoln Lawyer, Crime
+
+Sun, 09 Aug 2026 22:49:14 GMT
+
+https://collider.com/best-legal-drama-2026-netflix-losing-judgment-series/
+
+Netflix’s new series Losing Judgment strikes a balance between legal drama, family mystery, and an emotionally driven character story.
+---------
+
+# 'Game of Thrones' Censorship Controversy Changed How People Watch TV
+
+TV Features, Game Of Thrones, HBO, A Song of Ice and Fire, Fantasy
+
+Sun, 09 Aug 2026 22:46:14 GMT
+
+https://collider.com/game-of-thrones-censorship-episodes-meaning/
+
+Game of Thrones' mature scenes are about more than sex and violence, but countries that cut the scenes for decency laws left viewers confused.
+---------
+
+# Rebecca Ferguson's Sci-Fi Masterpiece Is Officially Dominating Apple TV
+
+Movie News, Rebecca Ferguson, Dune, Denis Villeneuve, HBO Max
+
+Sun, 09 Aug 2026 22:45:14 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-dune-global-streaming-success-apple-tv-store-august-2026/
+
+With the third installment slated for release later this year, Rebecca Ferguson's Dune is burying streaming competition on HBO Max.
+---------
+
+# ‘Brand New Day’ Hype Is Officially Reviving Tom Holland’s $880 Million Spider-Man Blockbuster
+
+Movie News, Spider-Man: Brand New Day, HBO Max, Spider-Man: Homecoming, Streaming
+
+Sun, 09 Aug 2026 22:30:14 GMT
+
+https://collider.com/spider-man-homecoming-streaming-success-hbo-max-august-2026/
+
+Tom Holland's latest outing as Peter Parker in Spider-Man: Brand New Day is transforming streaming charts as fans revisit previous installments.
+---------
+
 # DC Debuts New Design for Superman's Strongest Villain of All Time
 
 Comics, Superman
