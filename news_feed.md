@@ -1,3 +1,179 @@
+# One Night Only Interviews with Callum Turner, Monica Barbaro & Will Gluck
+
+Videos, One Night Only, Callum Turner, Monica Barbaro
+
+Sun, 09 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/video/one-night-only-callum-turner-monica-barbaro-will-gluck-interview/
+
+One Night Only stars Callum Turner and Monica Barbaro (and screenwriter Will Gluck) reveal how cheekily earlier drafts of their new rom-com called back to The Purge franchise, and why they think the uniquely humorous angle is the perfect "in" for a romance.
+---------
+
+# Alien Officially Returns In 2026
+
+Gaming, Alien, Aliens, Alien 3, Alien: Earth, PC
+
+Sun, 09 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/alien-rpg-free-league-unbound-update-early-access/
+
+Ridley Scott's iconic Alien franchise officially returns with a brand-new RPG experience that gamers can check out now.
+---------
+
+# Rapunzel Meets Six Of Crows In New Dark Fantasy
+
+Books, Masked Recs
+
+Sun, 09 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/tangled-magic-rapunzel-six-crows/
+
+A stunning tale of bone magic, undead armies, and a telepathic raven named Baldbeak is here in this new dark fantasy mix of Rapunzel and Six of Crows.
+---------
+
+# 50 First Dates Meets Your Name In Netflix's 10/10 Movie Remake
+
+Movies, Masked Recs
+
+Sun, 09 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/even-if-this-love-disappears-from-the-world-netflix-remake/
+
+Movie remakes are notoriously hard to get right, but one of Netflix's most recent ventures is a must-watch romance you'll never forget.
+---------
+
+# The Complete Evolution Of Reed Richards' Live-Action On-Screen Appearances
+
+Superheroes
+
+Sun, 09 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/reed-richards-live-action-appearances-evolution/
+
+Mister Fantastic has been seen in live-action Marvel movies for over 30 years, varying wildly between each in terms of comic book fidelity.
+---------
+
+# Star Trek: Strange New Worlds Season 4 Interviews with Akiva Goldsman, Henry Alonso Myers & Cast
+
+Videos, Star Trek: Strange New Worlds, Star Trek: Strange New Worlds - Season 4
+
+Sun, 09 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/video/star-trek-strange-new-worlds-season-4-akiva-goldsman-henry-alonso-myers-cast-interview/
+
+Star Trek: Strange New Worlds EPs Akiva Goldsman, Henry Alonso Myers, and stars Babs Olusanmokun and Martin Quinn break down their favorite aspects of season 4 and tease what to expect in season 5's final episodes.
+---------
+
+# 12 Most Powerful Star Wars Characters In The Clone Wars
+
+Classic TV, Star Wars: The Clone Wars, Star Wars
+
+Sun, 09 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/most-powerful-star-wars-clone-wars-characters/
+
+The Clone Wars was filled with powerful Jedi and Sith, but these 12 Star Wars characters were the strongest in the galaxy during the animated show.
+---------
+
+# Lord Of The Rings Meets Dark Souls In This Epic Dark Fantasy RPG
+
+Gaming, The Lord of the Rings, Dark Souls, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings: The Return of the King, Dark Souls 2, Dark Souls 3, PC, Steam
+
+Sun, 09 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/lord-of-the-rings-dark-souls-mistfall-hunter-rpg/
+
+Lord of the Rings fans looking for a unique soulslike experience in an epic dark fantasy world can check out this new Steam release now.
+---------
+
+# The Mummy's Unofficial Sequel Is A Great Watch While Waiting For Brendan Fraser's Mummy 4
+
+Movies, The Mummy
+
+Sun, 09 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/the-mummy-4-movie-wait-watch-van-helsing/
+
+Many people forget The Mummy's unofficial sequel from the 2000s, but it's a great movie to watch while waiting for Brendan Fraser's Mummy 4 return.
+---------
+
+# Marvel Officially Teases Avengers vs. X-Men Ahead of Avengers: Doomsday
+
+Comics, X-Men '97
+
+Sun, 09 Aug 2026 12:31:15 GMT
+
+https://www.cbr.com/x-men-97-season-2-strike-files-infinity-comic-6-avengers-x-force-fight/
+
+The Avengers take on fearsome mutant forces before potentially facing off on the big screen.
+---------
+
+# 5 Best Sherlock Holmes Books With the Greatest Mysteries
+
+TV, Mystery, Sherlock Holmes
+
+Sun, 09 Aug 2026 12:31:15 GMT
+
+https://www.cbr.com/best-sherlock-holmes-book-mysteries-list/
+
+Sir Arthur Conan Doyle's Sherlock Holmes is the greatest detective in fiction because his mysteries still surprise readers more than a century later.
+---------
+
+# Timothée Chalamet’s Long-Awaited Fantasy Sequel Gets Disappointing Update After 3-Year Wait
+
+Movies
+
+Sun, 09 Aug 2026 12:01:15 GMT
+
+https://www.cbr.com/timothe-chalamet-wonka-sequel-disappointing-update/
+
+The director doesn't have much hope that this Timothée Chalamet box office hit will get the sequel fans are craving.
+---------
+
+# An 'Avengers: Doomsday' Star's New 104-Minute Horror Is Prime Video's Latest Global Sensation
+
+Movie News, The Devil's Mouth, Prime Video, Avengers: Doomsday, Streaming
+
+Sun, 09 Aug 2026 12:31:15 GMT
+
+https://collider.com/prime-video-shark-movie-the-devils-mouth-streaming-success-august-2026/
+
+Prime Video's latest global hit is a 104-minute horror movie starring Kathryn Newton. Here's everything you should know.
+---------
+
+# Every PlayStation Console, Ranked
+
+TV, Video Game, PlayStation 5, PlayStation 3, PlayStation 4
+
+Sun, 09 Aug 2026 12:21:16 GMT
+
+https://collider.com/every-playstation-console-ranked/
+
+Dive into the legacy and rankings of every PlayStation console ever made, from the PS1 to the PS5. Which is the best one?
+---------
+
+# 6 Best Adventure Movies Released Since 2010
+
+Movie, Adventure, Top Gun: Maverick, Mission: Impossible - Fallout, Mad Max: Fury Road
+
+Sun, 09 Aug 2026 12:18:15 GMT
+
+https://collider.com/best-adventure-movies-since-2010-ranked/
+
+From Life of Pi to The Martian, these adventure movies provided timeless thrills we'll be talking about for decades to come.
+---------
+
+# Mark Wahlberg's Forgotten 'Reacher' Predecessor Is Officially Hitting Netflix
+
+Movie News, Mile 22, Mark Wahlberg, Netflix, Peter Berg
+
+Sun, 09 Aug 2026 12:00:15 GMT
+
+https://collider.com/mark-wahlberg-mile-22-neo-western-streaming-netflix-august-1-2026/
+
+The forgotten neo-Western film Mile 22, starring Mark Wahlberg, is now streaming on Netflix. Find out everything you should know.
+---------
+
 # 40 Years Later, One Zelda Line Remains The Greatest Quote In Gaming History
 
 Gaming, The Legend of Zelda, Triple-A Games
