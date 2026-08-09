@@ -1,3 +1,223 @@
+# Dungeons & Dragons Meets Star Wars In Disney's Forgotten 8-Part Fantasy Series
+
+TV, Masked Recs
+
+Sun, 09 Aug 2026 21:32:11 GMT
+
+https://screenrant.com/disney-willow-fantasy-series-star-wars-dungeons-and-dragons/
+
+Dungeons & Dragons meets Star Wars in this forgotten, 8-part fantasy series released by Disney based on a classic adventure movie.
+---------
+
+# Netflix's 4-Part Sci-Fi Series Is So Good, There's Nothing Else Like It In Hollywood
+
+Streaming TV, Masked Recs
+
+Sun, 09 Aug 2026 21:30:11 GMT
+
+https://screenrant.com/love-death-and-robots-unique-sci-fi-show-netflix/
+
+One fearless anthology sci-fi show on Netflix redefined what terms like "ambitious" and "experimental" truly mean when it comes to television.
+---------
+
+# Spider-Man: Brand New Day’s Revelation About The Hand Is Bigger Than You Realize
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sun, 09 Aug 2026 21:30:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-the-hand-mcu-history-and-future/
+
+Spider-Man: Brand New Day features members of The Hand, and the ninja clan's current MCU status quo is a much bigger deal than it seems.
+---------
+
+# 58 Years Later, Iron Man’s Classic Suit Makes The Perfect Return
+
+Gaming, Iron Man
+
+Sun, 09 Aug 2026 21:30:11 GMT
+
+https://screenrant.com/iron-man-marvel-tokon-fighting-souls-design/
+
+Iron Man has an infinite number of suits of armor, but none beat the classic red-and-gold look, and Tony Stark's newest appearance confirms that.
+---------
+
+# Lethal Weapon 5 Gets Long-Awaited Update 27 Years Later From Mel Gibson
+
+Movies, Lethal Weapon
+
+Sun, 09 Aug 2026 21:21:21 GMT
+
+https://screenrant.com/lethal-weapon-5-mel-gibson-script-update/
+
+After years of speculation and back-and-forth progress, Mel Gibson has finally given fans a long-awaited update on the status of Lethal Weapon 5.
+---------
+
+# Spider-Man: Brand New Day Star's Venom Plans Can Solve 2 MCU Problems At Once
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sun, 09 Aug 2026 21:15:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-scorpion-venom-solve-mcu-problems/
+
+One of the MCU's actors has referenced an ideal way to bring Venom into the franchise that also addresses some of the issues surrounding the matter.
+---------
+
+# Marvel Just Set Up 2 Huge X-Men Storylines Ahead Of The MCU Movie
+
+Movies, Marvel Cinematic Universe, X-Men, Spider-Man: Brand New Day, Spider-Man
+
+Sun, 09 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/marvel-mcu-xmen-storylines-setup-spiderman-brand-new-day/
+
+The MCU’s X-Men movie is more within sight than ever before, with Marvel’s latest major release already establishing 2 major X-Men stories.
+---------
+
+# Dragon Ball Z's Perfect Live-Action Movie Came Out 13 Years Ago
+
+Movies, Masked Recs
+
+Sun, 09 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/man-of-steel-perfect-live-action-dragon-ball-z-movie/
+
+Following one of Hollywood's most infamous flops, a bold superhero film proved it was possible to bring the intense energy of DBZ to live-action.
+---------
+
+# 10 Best Apothecary Diaries Characters Who Aren't Maomao
+
+Anime, The Apothecary Diaries, seinen
+
+Sun, 09 Aug 2026 21:15:14 GMT
+
+https://www.cbr.com/best-apothecary-diaries-characters-not-maomao/
+
+It's time for Maomao to take a back seat so some of the best characters from The Apothecary Diaries can shine.
+---------
+
+# Paul Walker’s Daughter Addresses Rumors of Selling Furious 7 Car
+
+Movies, Furious 7, Fast and Furious
+
+Sun, 09 Aug 2026 21:06:32 GMT
+
+https://www.cbr.com/furious-7-car-paul-walker-daughter-meadow/
+
+It's time to set the record straight about the situation with Paul Walker's Furious 7 car.
+---------
+
+# Jonathan Bailey's Underseen 6-Part Comedy Is Quietly Leaving Netflix Next Month
+
+TV, Crashing, Bridgerton
+
+Sun, 09 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/jonathan-bailey-crashing-leaving-netflix-september-2026/
+
+The highly underrated comedy has limited time to win over the audience.
+---------
+
+# New Pokémon's MMO Is the Game Fans Waited 30 Years For
+
+Games, Pokemon, Nintendo
+
+Sun, 09 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/pokmon-mmorpg-fan-game-green-trainers-online/
+
+An exciting new era for Pokemon is here in the form of a new-free-to-play MMO available on mobile.
+---------
+
+# Gore Verbinski’s “Gleeful” Sci-Fi Hit Is Officially Taking Over Streaming
+
+Movie News, Good Luck, Have Fun, Don't Die, Gore Verbinski, Sci-Fi, Hulu
+
+Sun, 09 Aug 2026 21:30:14 GMT
+
+https://collider.com/gore-verbinski-sci-fi-good-luck-have-fun-dont-die-global-streaming-success-apple-tv-store-august-2026/
+
+Gore Verbinski's critically acclaimed sci-fi movie Good Luck, Have Fun, Don't Die was overlooked in theaters, but it's now streaming on Hulu.
+---------
+
+# 10 Best Superhero Movies in Film History
+
+Movie, Superhero, The Dark Knight, Spider-Man: Across the Spider-Verse, Captain America: The Winter Soldier
+
+Sun, 09 Aug 2026 21:23:14 GMT
+
+https://collider.com/best-superhero-movies-in-film-history/
+
+From The Dark Knight to Spider-Man 2, these superhero masterpieces set a standard the genre still struggles to match.
+---------
+
+# Zendaya and Robert Pattinson Officially Reunite With New Prime Video Hit
+
+Movie News, Zendaya, The Drama, Prime Video, Robert Pattinson
+
+Sun, 09 Aug 2026 21:15:14 GMT
+
+https://collider.com/zendaya-the-drama-streaming-success-prime-video-august-2026/
+
+Zendaya's most underrated movie from 2026, costarring Robert Pattinson, is lighting up the streaming charts. Find out more here.
+---------
+
+# Gene Roddenberry's 5-Part Lesser-Known Sci-Fi Series Is Worth Watching After Star Trek
+
+TV Features, Gene Roddenberry, Star Trek, Earth: Final Conflict, Sci-Fi
+
+Sun, 09 Aug 2026 21:14:14 GMT
+
+https://collider.com/earth-final-conflict-gene-roddenberry/
+
+Earth: Final Conflict was Gene Roddenberry’s follow-up to Star Trek, but the series never reached the heights of its predecessor.
+---------
+
+# One of Last Year’s Wildest Horror Hits Is Officially a Global Streaming Smash
+
+Movie News, Jai Courtney, Dangerous Animals, Hulu, Thriller
+
+Sun, 09 Aug 2026 21:00:15 GMT
+
+https://collider.com/dangerous-animals-global-streaming-success-prime-video-hbo-max-august-2026/
+
+Zodiac meets Jaws in the critically acclaimed Dangerous Animals, which combines creature feature horror with serial killer thrills.
+---------
+
+# 6 Great Fantasy Anime Where Every Episode Is a Masterpiece
+
+TV Lists, Fantasy, Anime, Demon Slayer, Attack on Titan
+
+Sun, 09 Aug 2026 21:30:12 GMT
+
+https://movieweb.com/fantasy-anime-every-episode-masterpiece/
+
+With the extensive world-building they have to do, it's hard for fantasy anime to always be on top of their game — but these series pull it off.
+---------
+
+# Sean Penn's Overlooked Action Thriller 'The Gunman' Is Leaving Netflix
+
+Movie News, The Gunman
+
+Sun, 09 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/sean-penn-the-gunman-leaving-netflix/
+
+'The Gunman' is leaving Netflix soon, which makes now a good time to revisit 'Taken' director Pierre Morel's Penn-led effort.
+---------
+
+# 'Spider-Man: Brand New Day' Theory Explains How Ned Remembers Peter
+
+Features, Spider-Man, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man: No Way Home
+
+Sun, 09 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-ned-ending-theory/
+
+A new 'Spider-Man: Brand New Day' theory makes a compelling case for how Ned Leeds miraculously gets his memory of Peter back.
+---------
+
 # Doctor Strange Unveils New God-Tier Super Power, And It's Disgusting
 
 Marvel Comics, Doctor Strange
