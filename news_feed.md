@@ -1,3 +1,113 @@
+# Game Of Thrones: Battle Of Blackwater Bay Officially Releases August 13
+
+Gaming, Game of Thrones, Game Of Thrones, PC, House of the Dragon
+
+Sun, 09 Aug 2026 11:00:11 GMT
+
+https://screenrant.com/game-of-thrones-legends-battle-of-blackwater-bay-august-13/
+
+Game of Thrones: Battle of Blackwater Bay will see the return of Davos Seaworth and take fans back to the iconic showdown outside King's Landing.
+---------
+
+# The Last Starfighter Meets Armored Core In Huge New Sci-Fi Mech Game
+
+Gaming, The Last Starfighter, Armored Core 6: Fires of Rubicon, Gundam, PC
+
+Sun, 09 Aug 2026 11:00:11 GMT
+
+https://screenrant.com/gundam-rogue-orbit-last-starfighter-meets-armored-core/
+
+This new sci-fi mech game combines the scale of The Last Starfighter with Armored Core's incredible customizability for one massive experience.
+---------
+
+# 6 Biggest Stranger Things Reveals NOT From The Main Netflix Show
+
+Classic TV, Stranger Things
+
+Sun, 09 Aug 2026 10:30:12 GMT
+
+https://screenrant.com/stranger-things-reveals-not-tv-show/
+
+Stranger Things possesses a rich and expansive story that goes way beyond what was seen in the TV series, with spin-offs adding depth to the world.
+---------
+
+# 29 Years Later, One Fallout Line Is Gaming's Most Chilling Quote
+
+Gaming, Fallout
+
+Sun, 09 Aug 2026 10:30:12 GMT
+
+https://screenrant.com/fallout-greatest-quote-in-gaming-history/
+
+Fallout has plenty of iconic moments and lines from over the years, but one in particular will always stand above the rest.
+---------
+
+# YouTube Settles Court Case With $7.5 Million Worth of Refunds for Subscribers
+
+TV, YouTube
+
+Sun, 09 Aug 2026 11:00:15 GMT
+
+https://www.cbr.com/youtube-tv-settlement-refunds-for-subscribers-details/
+
+Americans who tuned in to YouTube could be getting a payday as a multi-million dollar settlement moves forward.
+---------
+
+# 10 Sweetest The Far Side Comics That Will Make You Smile
+
+Comics, The Far Side
+
+Sun, 09 Aug 2026 11:00:15 GMT
+
+https://www.cbr.com/the-far-side-comics-that-are-surprisingly-sweet/
+
+The Far Side is well known for its sardonic humor, but now and then a shockingly sweet and wholesome moment appears.
+---------
+
+# Stephen King’s Favorite 2025 Sci-Fi Adaptation Is Officially Becoming a Global Streaming Hit
+
+Movie News, Stephen King, The Running Man, Paramount Plus, Glen Powell
+
+Sun, 09 Aug 2026 11:00:15 GMT
+
+https://collider.com/the-running-man-streaming-success-paramount-plus-august-2026/
+
+A 2025 big-budget Stephen King adaptation continues to prove popular on streaming. Here's everything you should know.
+---------
+
+# Marvel Officially Set Up This 10/10 Storyline With Its X-Men Casting
+
+Movie Features, Spider-Man: Brand New Day, Thunderbolts*, X-Men, Jake Schreier
+
+Sun, 09 Aug 2026 10:51:18 GMT
+
+https://collider.com/marvel-studios-x-men-casting-perfect-comic-book-storyline/
+
+The latest X-Men casting news hints that Marvel Studios will be adapting the Astonishing X-Men comics.
+---------
+
+# Everything To Know About AMC's 'Queen of the Damned' Based on the Book
+
+TV Features, Interview with the Vampire, The Vampire Lestat, Sam Reid, AMC+
+
+Sun, 09 Aug 2026 10:44:15 GMT
+
+https://collider.com/queen-of-the-damned-interview-with-the-vampire-season-4-book-plot/
+
+Before Akasha returns in AMC's Queen of the Damned, here's everything you need to know from the book.
+---------
+
+# Nicolas Cage’s 101-Minute Horror Nightmare Is Officially a Global Streaming Sensation
+
+Movie News, Longlegs, Nicolas Cage, Maika Monroe, Hulu
+
+Sun, 09 Aug 2026 10:30:14 GMT
+
+https://collider.com/nicolas-cage-longlegs-global-streaming-success-apple-tv-store-august-2026/
+
+Starring Nicolas Cage and Maika Monroe, the horror hit Longlegs is officially streaming, as a sequel is in development. Find out more.
+---------
+
 # 10 Years Later, Game Of Thrones' Best Battle Is Still A Top 5 Fantasy Scene
 
 Classic TV, Game Of Thrones
