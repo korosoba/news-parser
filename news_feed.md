@@ -1,3 +1,157 @@
+# Star Trek: Strange New Worlds Season 4 Interview with Anson Mount, Rebecca Romijn & Carol Kane
+
+Interviews, Star Trek: Strange New Worlds, Star Trek: Strange New Worlds - Season 4
+
+Sun, 09 Aug 2026 17:01:38 GMT
+
+https://screenrant.com/video/star-trek-strange-new-worlds-season-4-anson-mount-rebecca-romijn-carol-kane-interview/
+
+Star Trek: Strange New Worlds cast members Anson Mount, Rebecca Romijn, and Carol Kane reflect on season 4's highs and lows, Pike's fateful accident, and where the show is headed as it approaches its final season.
+---------
+
+# After Liam Neeson & Bob Odenkirk, Your Next Surprise Action Hero Is Anna Kendrick
+
+Streaming TV, Masked Recs
+
+Sun, 09 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/embassy-anna-kendrick-action-thriller-series-surprise-hero/
+
+Anna Kendrick is moving past her Pitch Perfect days to become an action hero on television, following in the footsteps of Bob Odenkirk and more.
+---------
+
+# 10 Marvel & DC Video Games Every Comics Fan Should Try At Least Once
+
+Gaming, Marvel, DC, Triple-A Games
+
+Sun, 09 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/best-marvel-dc-video-games-comics-fans/
+
+Marvel and DC games aren't always a fond representation of the comic book source material they're supposedly inspired by, but these ones are.
+---------
+
+# 12 Action Thrillers From The 21st Century That Are Perfect From Beginning To End
+
+Movies, John Wick, Inception, Action, The Raid, Oldboy, Ichi the Killer, Sicario, Mad Max: Fury Road, The Dark Knight, Dredd, Collateral, The Bourne Ultimatum, Mission: Impossible - Fallout
+
+Sun, 09 Aug 2026 16:55:11 GMT
+
+https://screenrant.com/action-thrillers-movies-21st-century/
+
+The last 26 years have produced some of the absolute finest action thrillers movies cinema ever produced, influencing countless others in their wake.
+---------
+
+# 10 Movies To Watch If You Love The Godfather
+
+Movies, The Departed, The Godfather, Casino, Once Upon a Time in America, Battles Without Honor and Humanity, New World, American Gangster, The Bad Sleep Well, Goodfellas, The Irishman, Carlito's Way
+
+Sun, 09 Aug 2026 16:40:11 GMT
+
+https://screenrant.com/movies-like-the-godfather/
+
+The Godfather is impossible to surpass, but several other movies, from the gangster genre and beyond, would make perfect follow-ups for fans.
+---------
+
+# Star Wars' Darth Vader Replacement Makes The Sith Obsolete
+
+Streaming TV, Star Wars, Darth Maul
+
+Sun, 09 Aug 2026 16:30:11 GMT
+
+https://screenrant.com/darth-maul-replaces-darth-vader-sith-obsolete/
+
+Star Wars' best (and only) Darth Vader replacement proves that the galaxy far, far away doesn't need the Sith to tell a great or terrifying story.
+---------
+
+# Anya Taylor-Joy’s 7-Part Crime Thriller Is 1 of the Most-Streamed Shows in the World on Apple TV
+
+TV, Lucky
+
+Sun, 09 Aug 2026 17:01:15 GMT
+
+https://www.cbr.com/anya-taylor-joy-lucky-apple-tv-global-success-august-2026/
+
+The latest series starring Anya Taylor-Joy is officially one of the most-watched shows in the entire world on Apple TV.
+---------
+
+# The Expanse Creators’ Next Prime Video Series Is Coming to Save Sci-Fi
+
+TV, Prime Video, Sci-Fi
+
+Sun, 09 Aug 2026 16:31:15 GMT
+
+https://www.cbr.com/prime-video-the-captives-war-next-sci-fi-hit/
+
+The creators of The Expanse have an upcoming series that could be the next big sci-fi drama on streaming.
+---------
+
+# The Biggest Awards Season Snub of 2025 Is Finally a Streaming Hit
+
+Movie News, No Other Choice, HBO Max, Streaming, Park Chan-wook
+
+Sun, 09 Aug 2026 17:01:15 GMT
+
+https://collider.com/no-other-choice-streaming-success-hbo-max-august-2026/
+
+The biggest snub from this year's Oscars, Park Chan-wook's No Other Choice, is bouncing back on streaming. Find out more details here.
+---------
+
+# George R.R. Martin-Backed Sci-Fi Novel Is Officially Becoming a TV Series
+
+TV Features, George R.R. Martin, Apple TV, HBO, Game Of Thrones
+
+Sun, 09 Aug 2026 16:44:15 GMT
+
+https://collider.com/george-rr-martin-luminous-silvia-park-sci-fi-novel-becoming-tv-series/
+
+George R.R. Martin's Sense of Wonder scholarship helps groundbreaking stories like Silvia Park's Luminous reach Hollywood.
+---------
+
+# 'Spider-Man: Brand New Day' Creates an MCU Timeline Problem 10 Years in the Making
+
+Features, Spider-Man: Brand New Day, Marvel Cinematic Universe, Captain America: Civil War
+
+Sun, 09 Aug 2026 17:00:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-hulk-timeline-problem/
+
+The Hulk's return in 'Spider-Man: Brand New Day' has been a long time coming, but it comes with a continuity issue. Read on for more.
+---------
+
+# 10-Part Late-Night Hit Is an R-Rated Sensation on Streaming
+
+TV News, Three Women, STARZ, Hot on Streaming
+
+Sun, 09 Aug 2026 17:00:12 GMT
+
+https://movieweb.com/three-women-streaming-success-starz/
+
+One of the biggest shows on streaming this year is an R-rated hit.
+---------
+
+# Owen Wilson’s 92%-Rated Netflix Favorite Is Days Away From Disappearing
+
+Movie News, Marry Me, Owen Wilson
+
+Sun, 09 Aug 2026 17:00:12 GMT
+
+https://movieweb.com/owen-wilson-marry-me-leaving-netflix/
+
+Owen Wilson's 'Marry Me,' a 92% audience-rated rom-com with Jennifer Lopez, is set to leave Netflix.
+---------
+
+# 'Spider-Man: Brand New Day' Officially Dethrones Disney's Divisive 2019 Live-Action Remake at the Worldwide Box Office
+
+Movie News, Spider-Man: Brand New Day, The Lion King, Box Office
+
+Sun, 09 Aug 2026 16:40:20 GMT
+
+https://movieweb.com/spider-man-brand-new-day-box-office-second-weekend/
+
+The MCU's newest 'Spider-Man' movie took down a massive Disney live-action remake on the all-time box office charts in its second weekend.
+---------
+
 # Brand New Day's Box Office Win Makes Three Other $1B MCU Movies Even More Impressive
 
 Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
