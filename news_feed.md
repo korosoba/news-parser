@@ -1,3 +1,168 @@
+# Hideo Kojima Reviews Christopher Nolan’s The Odyssey As It Reaches $1B Box Office Milestone
+
+Movies, The Odyssey
+
+Sun, 09 Aug 2026 19:08:37 GMT
+
+https://screenrant.com/the-odyssey-movie-hideo-kojima-review/
+
+The iconic video game designer shares his thoughts on The Odyssey, the massive blockbuster that has now achieved a coveted box office milestone.
+---------
+
+# Every Marvel’s Spider-Man 2 Suit For Peter & Where It’s From
+
+Gaming, Marvel's Spider-Man 2, Spider-Man, Marvel's Spider-Man
+
+Sun, 09 Aug 2026 19:00:12 GMT
+
+https://screenrant.com/every-marvels-spider-man-2-suit-peter-parker/
+
+Including its pre-order content, Digital Deluxe Edition, and updates, Marvel's Spider-Man 2 features 39 different suits for Peter Parker to wear.
+---------
+
+# Will A Multiverse Spider-Man Appear In Avengers: Doomsday
+
+Movies, Avengers: Doomsday
+
+Sun, 09 Aug 2026 18:55:11 GMT
+
+https://screenrant.com/avengers-doomsday-spider-man-multiverse-explained/
+
+Spider-Man: Brand New Day has seemingly set the stage for Spider-Man to appear in Avengers: Doomsday, but not the Spider-Man most expect.
+---------
+
+# Ridley Scott & Amazon Are Teaming To Adapt Bestselling 6-Book Fantasy Franchise
+
+TV, Ridley Scott
+
+Sun, 09 Aug 2026 18:51:56 GMT
+
+https://screenrant.com/amazon-folk-of-the-air-series-adaptation-holly-black/
+
+Amazon and Ridley Scott are teaming up for a new adaptation of a bestselling six-book fantasy franchise, with the original author on board.
+---------
+
+# Prime Video’s New Mystery Drama Is An Instant #1 Hit After Near-Perfect RT Debut
+
+TV, Masked Recs
+
+Sun, 09 Aug 2026 18:44:05 GMT
+
+https://screenrant.com/prime-video-sterling-point-streaming-success-august-2026/
+
+Prime Video's new series has solved a big mystery as the drama is an instant streaming sensation after a surprising Rotten Tomatoes score.
+---------
+
+# The Last House’s Polarizing Ending Addressed By Netflix Sci-Fi Thriller Star
+
+Movies, The Last House
+
+Sun, 09 Aug 2026 18:38:13 GMT
+
+https://screenrant.com/the-last-house-netflix-ending-wagner-moura/
+
+Wagner Moura addresses the ending of Netflix’s new sci-fi thriller The Last House, sharing his thoughts on the film’s polarizing final moments.
+---------
+
+# 7 Greatest Classic Crime Thriller Anime of All Time
+
+Anime, Monster, Death Note, Crime
+
+Sun, 09 Aug 2026 19:15:15 GMT
+
+https://www.cbr.com/best-classic-crime-thriller-anime/
+
+Classic anime like Monster and Death Note are the greatest exemplars of the crime thriller genre in the medium.
+---------
+
+# Netflix's Divisive Workplace Comedy Series Finally Returns In 1 Week
+
+TV, Tires, Netflix
+
+Sun, 09 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/netflix-tires-season-3-release-date/
+
+Following a rough first season and declining viewership for Season 2, Season 3 of Tires is set to premiere in less than one week on Netflix.
+---------
+
+# 8 Things That Happen In Harry Potter And the Chamber of Secrets That Everyone Forgets
+
+Movies, Harry Potter, Harry Potter and the Chamber of Secrets, books
+
+Sun, 09 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/harry-potter-chamber-of-secrets-book-forgotten-facts-list/
+
+Although the movie version of Harry Potter and the Chamber of Secrets is relatively faithful to the book, there are a few details it didn't include.
+---------
+
+# HBO Max's 2026 Fantasy Sequel Refuses To Stay Down as It Officially Surges on Streaming
+
+Movie News, Mortal Kombat II, HBO Max, Streaming, Karl Urban
+
+Sun, 09 Aug 2026 19:00:15 GMT
+
+https://collider.com/karl-urban-mortal-kombat-ii-streaming-success-hbo-max-august-2026/
+
+A frustrating 2026 fantasy flop is being resurrected for another match, this time knocking out the competition on streaming. Read on for more.
+---------
+
+# 8 Best Alternate History Movies That Leave Period Pieces in the Dust
+
+Movie, Anastasia, District 9, History, Period Piece
+
+Sun, 09 Aug 2026 18:49:15 GMT
+
+https://collider.com/alternate-history-movies-better-than-period-piece/
+
+Richard III, District 9, Anastasia, Never Let Me Go, and more make up our list of alternate history movies better than any period piece.
+---------
+
+# 8 Best Movie Scores of the 2020s So Far
+
+Movie, The Odyssey, Babylon, Sinners, Dune: Part Two
+
+Sun, 09 Aug 2026 18:40:15 GMT
+
+https://collider.com/best-2020s-movie-scores-so-far-ranked/
+
+The best composed scores for movies from the 2020s so far include those heard in The Odyssey, Babylon, and Spider-Man: Across the Spider-Verse.
+---------
+
+# These 10 Mystery Thriller Shows Are So Good, You Have To Watch Twice
+
+TV, Mystery, Thriller, Twin Peaks, Fargo
+
+Sun, 09 Aug 2026 18:33:15 GMT
+
+https://collider.com/mystery-thriller-tv-shows-watch-twice/
+
+Great mystery thriller shows get better with a rewatch, which is true for series like HBO's Sharp Objects, FX's Fargo, and ABC's Twin Peaks.
+---------
+
+# Taylor Sheridan's 122-Minute "Masterpiece" Action Thriller Explodes Onto Streaming
+
+Movie News, Sicario: Day Of The Soldado, Taylor Sheridan, Coming/Leaving Streaming, Action
+
+Sun, 09 Aug 2026 19:00:12 GMT
+
+https://movieweb.com/taylor-sheridan-sicario-2-streaming-free-tubi-september-2026/
+
+Before 'Special Ops: Lioness,' Sheridan had a hand in bringing one of the best action thriller franchises of the century to the big screen.
+---------
+
+# Forget 'Tracker': These Are the 8 Best Ongoing Crime Thriller TV Shows
+
+TV Lists, Tracker
+
+Sun, 09 Aug 2026 19:00:12 GMT
+
+https://movieweb.com/tracker-crime-thriller-tv-replacements/
+
+'Tracker' is one of the best new crime thrillers, but there are other similar shows to watch once you've run out of episodes.
+---------
+
 # Game Of Thrones: All 22 Kings And Queens Who Appeared In The Show
 
 Classic TV, Game Of Thrones
