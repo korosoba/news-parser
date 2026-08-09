@@ -1,3 +1,91 @@
+# 10 Best Moments Of Spider-Man: Brand New Day
+
+Movies, Spider-Man: Brand New Day
+
+Sun, 09 Aug 2026 19:55:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-best-moments/
+
+The latest chapter in the ever-expanding Marvel Cinematic Universe, Spider-Man: Brand New Day features a number of memorable moments.
+---------
+
+# 16 Years Later, The BBC Has Officially Found Its Sherlock Replacement
+
+Streaming TV, Masked Recs
+
+Sun, 09 Aug 2026 19:30:11 GMT
+
+https://screenrant.com/bbc-agatha-christie-poirot-prequel-sherlock-replacement/
+
+The BBC may have finally found the perfect replacement for Sherlock, as another world-famous detective returns to the small screen with a twist.
+---------
+
+# 25 Years Later, This N64 RPG Remains A 10/10 Masterpiece
+
+Gaming, Nintendo, Paper Mario, Super Mario, RPG
+
+Sun, 09 Aug 2026 19:30:11 GMT
+
+https://screenrant.com/nintendo-64-masterpiece-rpg-paper-mario/
+
+Of all the phenomenal Nintendo 64 RPGs, this iconic title still remains a genuine classic that is well worth playing even 25 years later.
+---------
+
+# Square Enix Officially Surprises Fans With Chrono Trigger 31st Anniversary Release Available Now
+
+Games, Chrono Trigger
+
+Sun, 09 Aug 2026 19:30:15 GMT
+
+https://www.cbr.com/chrono-trigger-anniversary-new-release-one-mark-collection-available-now/
+
+The Chrono Trigger One Mark Collection is the perfect way to celebrate the game's 31st anniversary.
+---------
+
+# AMC's 4-Part Neo-Western Turns Into a Netflix Hit With 681M Minutes Viewed
+
+TV, Dark Winds, AMC, Netflix
+
+Sun, 09 Aug 2026 19:30:15 GMT
+
+https://www.cbr.com/amc-dark-winds-neo-western-netflix-nielsen-charts-july-2026/
+
+Ahead of Season 5, Dark Winds is climbing up the charts on Netflix with nearly 700 million minutes viewed for the first four seasons.
+---------
+
+# 6 Near-Perfect Spy Shows Everyone Forgot
+
+TV, Burn Notice, Counterpart, Mystery, Berlin Station
+
+Sun, 09 Aug 2026 19:30:15 GMT
+
+https://www.cbr.com/forgotten-spy-shows-list/
+
+While Homeland and 24 are big names in the espionage game, these forgotten spy shows are just as entertaining to watch.
+---------
+
+# A Divisive ‘Star Trek’ Series’ Final Season Is Officially Making a Major Genre Shift
+
+TV Features, Star Trek: Starfleet Academy, Star Trek: Strange New Worlds, Paramount Plus
+
+Sun, 09 Aug 2026 19:55:15 GMT
+
+https://collider.com/star-trek-starfleet-academy-robert-picardo-medical-thriller/
+
+Star Trek: Starfleet Academy is slated to tackle a different genre in one episode, according to Robert Picardo.
+---------
+
+# Netflix's Biggest Romance Series of 2026 Is Still Crushing Charts With 889M Hours Watched
+
+TV Features, Bridgerton, Netflix, Romance, Nicola Coughlan
+
+Sun, 09 Aug 2026 19:41:14 GMT
+
+https://collider.com/bridgerton-netflix-streaming-hours-watched-2026/
+
+Bridgerton's latest season continues to dominate Netflix with 889 million hours watched so far in 2026.
+---------
+
 # Hideo Kojima Reviews Christopher Nolan’s The Odyssey As It Reaches $1B Box Office Milestone
 
 Movies, The Odyssey
