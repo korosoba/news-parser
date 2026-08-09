@@ -1,3 +1,113 @@
+# Star Trek’s 2 Captain Pike Actors Finally Cross Over In Real Life
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Sun, 09 Aug 2026 23:53:03 GMT
+
+https://screenrant.com/star-trek-anson-mount-bruce-greenwood-captain-pike-meet/
+
+Anson Mount, who plays Captain Pike in Star Trek: Strange New Worlds, comes face-to-face with his Star Trek movie predecessor, Bruce Greenwood.
+---------
+
+# Blade Runner Meets Dune In The 2-Part Sci-Fi Series HBO Max Threw Away
+
+Streaming TV, Masked Recs
+
+Sun, 09 Aug 2026 23:30:11 GMT
+
+https://screenrant.com/raised-by-wolves-dune-meets-blade-runner-hbo-max-series/
+
+A haunting sci-fi blended android parenthood with galactic prophecy for a viewing experience that felt both cinematic and deeply intimate.
+---------
+
+# Skyrim Meets Ultima In New Turn-Based RPG You Can Try Free Now
+
+Gaming, Steam, Triple-A Games
+
+Sun, 09 Aug 2026 23:30:11 GMT
+
+https://screenrant.com/skyrim-meets-ultimate-new-free-rpg-demo/
+
+Although Skyrim has dominated RPG charts for decades now, there's a ton of other alternatives to try, including this on-point mashup.
+---------
+
+# Tom Hanks' New World War II Series Hits #1 On Streaming Chart After Quiet Release
+
+TV, Masked Recs
+
+Sun, 09 Aug 2026 23:30:01 GMT
+
+https://screenrant.com/tom-hanks-world-war-2-series-stream-success-apple-tv/
+
+Tom Hanks has had his name tied to several successful World War II projects, and his latest series is becoming a quiet streaming success.
+---------
+
+# 10 Complete Manga That Are Perfect From the First Page to the Last
+
+Anime, Fullmetal Alchemist, Death Note, Akira, Manga
+
+Sun, 09 Aug 2026 23:45:15 GMT
+
+https://www.cbr.com/complete-manga-perfect-from-start-to-finish/
+
+From the first panels on the opening page to the final chapter, these manga titles captured the hearts of readers until the very end.
+---------
+
+# 27 Years Later, Ross' Greatest Friends Line Is Still the Funniest Quote in Sitcom History
+
+TV, Friends, Sitcoms, NBC
+
+Sun, 09 Aug 2026 23:30:14 GMT
+
+https://www.cbr.com/friends-ross-pivot-funniest-sitcom-quote-ever/
+
+Ross may not always be the most beloved cast member on Friends, but that is exactly why this moment is remembered three decades later.
+---------
+
+# Ben Jones, The Dukes of Hazzard Actor, Dies at 84
+
+TV, obituary, The Dukes of Hazzard
+
+Sun, 09 Aug 2026 23:28:40 GMT
+
+https://www.cbr.com/ben-jones-dead/
+
+The death of Ben Jones has been announced by one of his Dukes of Hazzard co-stars.
+---------
+
+# Anne Hathaway Is Officially Having a Monster 2026 as Her Latest Sequel Dominates Streaming
+
+Movie News, The Odyssey, Anne Hathaway, The Devil Wears Prada 2, Disney+
+
+Sun, 09 Aug 2026 23:45:14 GMT
+
+https://collider.com/anne-hathaway-the-devil-wears-prada-2-streaming-success-disney-plus-august-2026/
+
+Anne Hathaway reunites with Meryl Streep and Emily Blunt in the legacy sequel catwalking up the streaming charts. Here's everything you should know.
+---------
+
+# NBC's Gritty 14-Part Crime Thriller Becomes a Global Netflix Hit
+
+TV News, Chicago P.D., NBC, Netflix, Procedural
+
+Sun, 09 Aug 2026 23:30:14 GMT
+
+https://collider.com/chicago-pd-streaming-success-netflix-august-2026/
+
+NBC's hit procedural with 14 seasons under its belt is now arresting viewers on Netflix. Get all the details here.
+---------
+
+# 8 Perfect Thriller Books That Will Hook You From First Chapter to Last
+
+TV Lists, Thriller
+
+Sun, 09 Aug 2026 23:30:12 GMT
+
+https://movieweb.com/thriller-books-perfect-first-chapter-last/
+
+Thriller books that grip readers from beginning to end usually have strong hooks. These are perfect examples, delivering surprises throughout.
+---------
+
 # How Old Goku Is In Every Dragon Ball Anime & Saga: A Complete Timeline
 
 TV, Dragon Ball
