@@ -1,3 +1,146 @@
+# Prime Video’s #1 New Mystery Series’ Season 2 Story Plans Revealed By Creator
+
+TV, Sterling Point
+
+Sun, 09 Aug 2026 17:47:28 GMT
+
+https://screenrant.com/sterling-point-season-2-megan-park-plans/
+
+Prime Video has just debuted a hit new young adult romance mystery series, and the creator has some promising story ideas for season 2.
+---------
+
+# Shameless: Fiona's Greatest Love Interests, Ranked
+
+Classic TV, Shameless
+
+Sun, 09 Aug 2026 17:45:12 GMT
+
+https://screenrant.com/shameless-fiona-gallagher-best-lovers-boyfriends-love-interests-ranked/
+
+Fiona famously made some bad calls with her boyfriends on Shameless. They weren't always great choices, but it wasn't all bad.
+---------
+
+# A24's Sci-Fi, The Onslaught, Looks Like A Great Remake Of Jean-Claude Van Damme's '90s Action Hit
+
+Movie Trailers, Onslaught, Universal Soldier
+
+Sun, 09 Aug 2026 17:45:11 GMT
+
+https://screenrant.com/a24-the-onslaught-movie-universal-soldier-remake/
+
+Onslaught looks like A24's take on Universal Soldier, bringing back the kind of sci-fi action Hollywood left behind.
+---------
+
+# Solo Leveling's Sequel Is Officially Returning And It's 3 Days Away
+
+Anime
+
+Sun, 09 Aug 2026 17:40:32 GMT
+
+https://screenrant.com/solo-leveling-ragnarok-return-tapas-august/
+
+Two years after its release, Solo Leveling's sequel is celebrating its anniversary with a major return from hiatus after eight months.
+---------
+
+# 30 Years Later, Power Rangers Still Can't Escape Mighty Morphin
+
+Classic TV, Power Rangers
+
+Sun, 09 Aug 2026 17:30:11 GMT
+
+https://screenrant.com/power-rangers-still-cant-escape-mighty-morphin-30-years-later/
+
+There have been 23 distinct versions of Power Rangers, but for some reason the franchise keeps ignoring everything that came after the early 1990s.
+---------
+
+# My Life With The Walter Boys Season 3 Returns With Major Rotten Tomatoes Record
+
+TV, My Life with the Walter Boys
+
+Sun, 09 Aug 2026 17:24:09 GMT
+
+https://screenrant.com/my-life-with-the-walter-boys-season-3-rotten-tomatoes-score/
+
+My Life with the Walter Boys season 3 has come back with a bang, and Netflix has another major Rotten Tomatoes record for the popular romance.
+---------
+
+# 44 Years Later, Norm's Best Cheers Line Is Still One Of The Funniest Sitcom Quotes Ever
+
+Classic TV, Cheers
+
+Sun, 09 Aug 2026 17:15:11 GMT
+
+https://screenrant.com/cheers-quotes-norm-funniest-sitcom-lines/
+
+Norm's best Cheers line remains a classic sitcom moment, one that feels unparalleled by today's sitcoms because of Norm's warmth, humor, and charm.
+---------
+
+# Prime Video's $683M Hit Is The Best Sci-Fi Movie Of 2026, And Only One Film Can Beat It
+
+Movies, Masked Recs
+
+Sun, 09 Aug 2026 17:15:11 GMT
+
+https://screenrant.com/project-hail-mary-2026-best-sci-fi-movie-dune-3/
+
+2026 has already been exceptional for movies, and while we've already had some sci-fi hits, the best may not arrive until the end of the year.
+---------
+
+# A24's Death Stranding Is the Adventure Movie of the Decade
+
+Movies, Death Stranding, A24, Sci-Fi
+
+Sun, 09 Aug 2026 17:31:15 GMT
+
+https://www.cbr.com/a24-death-stranding-adventure-movie-of-the-2020s/
+
+A24 has quickly become a premier studio in Hollywood, and its upcoming adventure film can be the movie of the decade.
+---------
+
+# 5 Classic PS1 Games No One Wants to See a Remake Of
+
+Games, PlayStation (Original), Video Games
+
+Sun, 09 Aug 2026 17:16:15 GMT
+
+https://www.cbr.com/ps1-unnecessary-remakes-no-one-wants/
+
+PS1 classics like Silent Hill and PaRappa the Rapper truly don't need remakes in the 2020s.
+---------
+
+# Disney's Negative Reviews for $280M Live-Action Remake Addressed by Franchise Star
+
+Movies, Moana
+
+Sun, 09 Aug 2026 17:03:11 GMT
+
+https://www.cbr.com/disney-moana-live-action-negaive-reviews-dwayne-johnson/
+
+The huge franchise just received an underwhelming remake.
+---------
+
+# 10 Best Children's Picture Books of All Time
+
+Books and Comics, Books, Family, Fantasy, Adventure
+
+Sun, 09 Aug 2026 17:03:15 GMT
+
+https://collider.com/best-childrens-picture-books-all-time-ranked/
+
+From The Cat in the Hat to Goodnight Moon, these picture books shaped childhoods and still enchant readers today.
+---------
+
+# 'Bluey' Is Officially the Biggest Streaming Series of 2026 So Far
+
+TV News, Bluey
+
+Sun, 09 Aug 2026 17:40:11 GMT
+
+https://movieweb.com/bluey-biggest-streaming-series-2026/
+
+'Bluey' is once again proving to be one of the most dominant shows in streaming, topping Nielsen's chart for the first half of 2026.
+---------
+
 # Star Trek: Strange New Worlds Season 4 Interview with Anson Mount, Rebecca Romijn & Carol Kane
 
 Interviews, Star Trek: Strange New Worlds, Star Trek: Strange New Worlds - Season 4
