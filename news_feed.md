@@ -1,3 +1,212 @@
+# Brand New Day's Box Office Win Makes Three Other $1B MCU Movies Even More Impressive
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sun, 09 Aug 2026 16:20:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-box-office-1-billion-non-sequels-more-impressive/
+
+Spider-Man: Brand New Day crossing the $1 billion threshold and showing just how big the MCU series is makes some other $1B hits look even better too.
+---------
+
+# Dave Foley Fulfilled A Lifelong Dream By Playing "A Geeky Hugh Hefner" In Star Trek: Strange New Worlds
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Sun, 09 Aug 2026 16:01:14 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-dave-foley-interview/
+
+Dave Foley tells ScreenRant about his hilarious guest spot in Star Trek: Strange New Worlds, and hints that Anson Mount isn't as handsome as he looks.
+---------
+
+# August 29th Is Going To Be A Good Day For Jujutsu Kaisen Fans Excited About Season 4
+
+Anime, Jujutsu Kaisen
+
+Sun, 09 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/jujutsu-kaisen-season-4-news-august/
+
+August 29th is bringing a massive franchise event packed with unexpected Season 4 reveals and long-awaited anime teasers.
+---------
+
+# Blade: Marvel’s 7-Year Plan Has Fallen Apart
+
+Featured, Originals, Blade
+
+Sun, 09 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/video/blade-marvel-s-7-year-plan-has-fallen-apart/
+
+Blade Movie Canceled: Mahershala Ali Is Officially Out. After years of rewrites, director changes, delays, and endless rumors, Marvel's long-troubled Blade reboot appears to have finally reached its conclusion. Mahershala Ali has confirmed he won't be starring in the project, bringing one of the MCU's most infamous development sagas to an end.
+---------
+
+# Star Wars’ New Jedi Already Has One Foot In The Grave
+
+Gaming, Star Wars Zero Company, Star Wars, Triple-A Games
+
+Sun, 09 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/star-wars-zero-company-playable-jedi-death/
+
+Star Wars Zero Company hasn't shared a lot in terms of its Jedi unit, and it has been officially confirmed that players may not have them for long.
+---------
+
+# HBO's 4-Season 'The Umbrella Academy Meets Smallville' Action Series Deserved Better
+
+TV, Masked Recs
+
+Sun, 09 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/titans-hbo-series-deserve-better/
+
+Lesser-known heroes collided with R-rated brutality, unexpected emotional punch, and oddball charm in Alan Ritchson's underrated HBO superhero series.
+---------
+
+# 7 Harry Potter Artifacts More Powerful Than The Deathly Hallows
+
+Movies, Harry Potter
+
+Sun, 09 Aug 2026 15:55:11 GMT
+
+https://screenrant.com/harry-potter-artifacts-more-powerful-than-deathly-hallows/
+
+The Deathly Hallows are legendary, but Harry Potter's wizarding world contains several artifacts with powers that arguably surpass even Death's gifts.
+---------
+
+# 5 '80s Anime Movies That Are 10/10 Masterpieces
+
+Anime, Akira, Kiki's Delivery Service, Studio Ghibli
+
+Sun, 09 Aug 2026 16:15:15 GMT
+
+https://www.cbr.com/80s-anime-movie-masterpieces/
+
+The 1980s were a great decade for anime movies, and a select few stand out as true masterpieces.
+---------
+
+# Sydney Sweeney's Forgotten R-Rated Horror Is Finally Heading to Netflix
+
+Movies, Immaculate
+
+Sun, 09 Aug 2026 16:01:15 GMT
+
+https://www.cbr.com/sydney-sweeney-immaculate-horror-netflix-august-2026/
+
+The horror was a mild success, but it's largely forgotten from Sweeney's filmography.
+---------
+
+# Origins Of Marvel Midnight's 'True Horror Line' Comic Releasing In Fall
+
+Comics, Marvel Comics, Horror
+
+Sun, 09 Aug 2026 16:01:15 GMT
+
+https://www.cbr.com/marvel-midnight-horror-comic-line-origin/
+
+The ominous origin story behind Marvel Midnight.
+---------
+
+# August 28 Will Be a Great Day for Pokémon Fans
+
+Anime, Pokemon
+
+Sun, 09 Aug 2026 16:01:15 GMT
+
+https://www.cbr.com/pokemon-xp-convention-date/
+
+Pokémon fans are just weeks away from what might be the single most exciting event of the year, especially during the franchise's 30th anniversary.
+---------
+
+# 10 Psychological Thrillers That Are 10/10, No Notes
+
+Movies, Thriller, Chinatown, Eyes Wide Shut
+
+Sun, 09 Aug 2026 16:01:15 GMT
+
+https://www.cbr.com/best-psychological-thriller-movies-list/
+
+Since the golden age of cinema, psychological thrillers have kept audiences hooked on the darker side of human nature, and some are perfect 10/10s.
+---------
+
+# In Just 24 Days, The Odyssey Officially Breaks All-Time Christopher Nolan Record
+
+Movies, box office, The Odyssey, Christopher Nolan, Innovation
+
+Sun, 09 Aug 2026 15:57:15 GMT
+
+https://www.cbr.com/the-odyssey-christopher-nolan-box-office-record/
+
+Christopher Nolan keeps outdoing himself.
+---------
+
+# 'Spider-Man: Brand New Day’ Officially Swings Past Marvel's $1.3B R-Rated Smash
+
+Movie News, Spider-Man: Brand New Day, Deadpool & Wolverine, Box Office, Tom Holland
+
+Sun, 09 Aug 2026 16:15:15 GMT
+
+https://collider.com/spider-man-brand-new-day-box-office-overtakes-deadpool-and-wolverine/
+
+Tom Holland’s Spider-Man: Brand New Day passes Deadpool & Wolverine at the worldwide box office as its record-breaking run continues.
+---------
+
+# 15 Best MCU Duos
+
+Movie, MCU, Spider-Man: Brand New Day, Thunderbolts*, Guardians of the Galaxy
+
+Sun, 09 Aug 2026 16:06:15 GMT
+
+https://collider.com/best-mcu-duos-ranked/
+
+From Spider-Man and the Punisher to Rocket and Groot, these are the greatest and most memorable MCU duos that we simply can't get enough of.
+---------
+
+# ‘Supernatural’ Meets ‘Hannibal’ in CBS’s Chilling 4-Part Crime Series
+
+TV Features, Evil, Mike Colter, Katja Herbers, Aasif Mandvi
+
+Sun, 09 Aug 2026 15:54:15 GMT
+
+https://collider.com/evil-cbs-supernatural-hannibal-crime-series/
+
+Evil is a chilling blend of faith and horror, making it a unique paranormal procedural that is well worth watching.
+---------
+
+# 'Seinfeld’s Line Nobody Remembers Is Still One of the Greatest TV Quotes
+
+Features, Seinfeld, Great Line
+
+Sun, 09 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/seinfeld-jerry-reality-tv-best-quote/
+
+'Seinfeld,' the sitcom that aired from 1989 to 1999, has some hilarious quotes, including this underrated one that feels relevant now.
+---------
+
+# This Pivotal 'Train Dreams' Moment Is Heartbreaking
+
+Features, Train Dreams, Joel Edgerton
+
+Sun, 09 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/train-dreams-kate-return-scene-is-it-real/
+
+'Train Dreams' is one of Netflix's best films, and one pivotal scene raises major questions.
+---------
+
+# Netflix's 3-Season Action Thriller Series Named One of the Year's Biggest Shows
+
+TV News, The Night Agent
+
+Sun, 09 Aug 2026 15:45:12 GMT
+
+https://movieweb.com/the-night-agent-nielsen-2026-streaming-rankings/
+
+With 8.82 billion minutes viewed across three seasons, The Night Agent ranked among the biggest Netflix originals of the first half of 2026.
+---------
+
 # 26 Years Later, This PS1 RPG Is A 10/10 Experience That Needs A Remake
 
 Gaming, PlayStation, PlayStation (Original), RPG, Final Fantasy, Final Fantasy 9
