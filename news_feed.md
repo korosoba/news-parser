@@ -1,3 +1,69 @@
+# The Odyssey Gets An Epic Sci-Fi Twist In 12-Part Series That's Aging Like Fine Wine
+
+Comics, Masked Recs
+
+Sun, 09 Aug 2026 14:46:11 GMT
+
+https://screenrant.com/odyssey-epic-sci-fi-ody-c-aging-wine-free/
+
+Nolan’s The Odyssey has fans craving more, and this wild sci-fi reimagining may be the perfect fix for anyone looking for their next epic adventure.
+---------
+
+# The Odyssey Box Office Breaks All-Time Christopher Nolan Record In Just 24 Days
+
+Movies, Box Office, The Odyssey
+
+Sun, 09 Aug 2026 14:39:20 GMT
+
+https://screenrant.com/the-odyssey-box-office-christopher-nolan-highest-grossing-movie-record/
+
+Christopher Nolan's new feature The Odyssey breaks an all-time record for the director, surging past the Dark Knight movies at the box office.
+---------
+
+# Star Trek Finally Shouts Out Tom Cruise (In An Unexpectedly Funny Way)
+
+TV, Star Trek, Star Trek: Strange New Worlds, Tom Cruise, Cocktail
+
+Sun, 09 Aug 2026 14:30:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-tom-cruise-cocktail/
+
+Star Trek and Tom Cruise have been Paramount staples and moneymakers for decades, and Strange New Worlds winks at one of Cruise's classic roles.
+---------
+
+# Karl Urban’s Underrated Sci-Fi Horror Adaptation Is Officially Streaming For Free
+
+Movies, Masked Recs, Karl Urban
+
+Sun, 09 Aug 2026 14:29:33 GMT
+
+https://screenrant.com/karl-urban-priest-movie-tubi-streaming-free-august-2026/
+
+Karl Urban has a range of beloved adaptations to his name, and one of his more underrated is back as a certain sci-fi horror movie streams for free.
+---------
+
+# Hulu’s ‘Mindhunter’ Replacement Is Officially Taking Over Streaming
+
+TV News, Furious, Emmy Rossum, Hulu, Mindhunter
+
+Sun, 09 Aug 2026 14:45:15 GMT
+
+https://collider.com/furious-hulu-crime-thriller-streaming-success-august-2026/
+
+Emmy Rossum’s critically acclaimed Hulu crime thriller following an FBI agent on the trail of a female serial killer is taking over streaming.
+---------
+
+# Ricky Gervais' New Netflix Hangout Sitcom Debuts with Dismal RT Score
+
+TV News, Alley Cats, Netflix, Ricky Gervais
+
+Sun, 09 Aug 2026 14:42:57 GMT
+
+https://movieweb.com/netflix-ricky-gervais-alley-cats-rotten-tomatoes/
+
+Ricky Gervis' new animated show is as dismal as its Rotten Tomatoes score.
+---------
+
 # 58 Years Later, 2001: A Space Odyssey's Best Quote Is The Most Chilling In Sci-Fi Movie History
 
 Movies, 2001: A Space Odyssey
