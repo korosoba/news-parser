@@ -1,3 +1,201 @@
+# 26 Years Later, This PS1 RPG Is A 10/10 Experience That Needs A Remake
+
+Gaming, PlayStation, PlayStation (Original), RPG, Final Fantasy, Final Fantasy 9
+
+Sun, 09 Aug 2026 15:30:11 GMT
+
+https://screenrant.com/ps1-perfect-rpg-final-fantasy-9/
+
+One of the very best PlayStation 1 RPGs remains a truly exceptional experience that is still very much in need of a remake.
+---------
+
+# Every MCU Character Who Knows Peter Parker's Identity After Spider-Man: Brand New Day
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sun, 09 Aug 2026 15:30:11 GMT
+
+https://screenrant.com/mcu-character-peter-parker-identity-spiderman-brand-new-day/
+
+Doctor Strange made everyone forget Peter Parker's identity, but Spider-Man: Brand New Day allows several MCU characters to learn who he is.
+---------
+
+# Spider-Man: Brand New Day Box Races Past Nearly Unheard-Of Box Office Milestone In Just 12 Days
+
+Movies, Box Office Milestone, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sun, 09 Aug 2026 15:11:37 GMT
+
+https://screenrant.com/spider-man-brand-new-day-box-office-billion-dollar-international-milestone/
+
+Spider-Man: Brand New Day is one of the quickest movies to pass a big box office milestone, which is so high that just 15 movies have ever crossed it.
+---------
+
+# Severance Meets The Bourne Identity In This Masterpiece 5-Part Sci-Fi Thriller
+
+Classic TV, Masked Recs
+
+Sun, 09 Aug 2026 15:03:11 GMT
+
+https://screenrant.com/orphan-black-severance-meets-bourne-identity/
+
+This acclaimed five-season series combines the identity-centric thrills of The Bourne Identity with Severance's conspiracy sci-fi elements.
+---------
+
+# NYT Connections Solution And Hints For August 9, 2026
+
+Gaming, Connections, Mobile
+
+Sun, 09 Aug 2026 15:00:12 GMT
+
+https://screenrant.com/nyt-connections-solution-answer-hints-august-9-2026/
+
+Themes of entertainment and purpose are behind today's Connections with specific words, which are easy to confuse if you don't know their meaning.
+---------
+
+# Diablo Set To Return September 2026 With Brand-New Release
+
+Gaming, Diablo, Diablo 4
+
+Sun, 09 Aug 2026 15:00:12 GMT
+
+https://screenrant.com/diablo-4-nintendo-switch-2-release-date-leak/
+
+Diablo 4 is still doing well, a few years since servers went live, and it could be about to get a major new release.
+---------
+
+# 10 Forgotten Sitcoms That Have Aged Like Milk
+
+Classic TV
+
+Sun, 09 Aug 2026 15:00:12 GMT
+
+https://screenrant.com/forgotten-sitcoms-aged-badly/
+
+Humor is specific to time and place, and these 10 sitcoms prove that forgotten shows especially can age less like wine and more like milk.
+---------
+
+# The 8-Episode Netflix Sci-Fi Series That Deserves to Be Called TV's Smartest Time-Travel Show
+
+TV, Bodies, Netflix, Sci-Fi, Innovation
+
+Sun, 09 Aug 2026 15:31:15 GMT
+
+https://www.cbr.com/netflix-bodies-smart-time-travel-series/
+
+Netflix's Bodies tells one of television's most ambitious time-travel stories while remaining surprisingly easy to follow.
+---------
+
+# 5 Anime Transformations Even Stronger Than Gear 5 Luffy
+
+Anime, Bleach, Dragon Ball, Puella Magi Madoka Magica, One Piece
+
+Sun, 09 Aug 2026 15:15:15 GMT
+
+https://www.cbr.com/anime-transformations-stronger-than-gear-5-luffy/
+
+Gear 5 Luffy is an overpowered One Piece character, but he could never challenge several anime transformations
+---------
+
+# One Piece Chapter 1190 Established Luffy as the Future Pirate King
+
+Anime, One Piece, Manga, Eiichiro Oda
+
+Sun, 09 Aug 2026 15:00:16 GMT
+
+https://www.cbr.com/one-piece-chapter-1190-scopper-gaban-luffy-pirate-king/
+
+Scopper Gaban reminds Luffy in One Piece Chapter 1190 about the sky-high stakes of becoming the Pirate King
+---------
+
+# 5 Anime Power Systems That Set the Absolute Gold Standard
+
+Anime, Jujutsu Kaisen, Hunter x Hunter, JoJo's Bizarre Adventure
+
+Sun, 09 Aug 2026 15:00:16 GMT
+
+https://www.cbr.com/best-anime-power-systems-set-gold-standard/
+
+The best anime power systems reward strategy over raw strength, and these five perfected the formula.
+---------
+
+# Christopher Nolan’s ‘The Odyssey’ Officially Becomes His Biggest Movie of All Time
+
+Movie News, The Odyssey, Christopher Nolan, The Dark Knight Rises, Box Office
+
+Sun, 09 Aug 2026 15:05:15 GMT
+
+https://collider.com/the-odyssey-box-office-dark-knight-rises-christopher-nolan-biggest-movie/
+
+Christopher Nolan’s The Odyssey passes The Dark Knight Rises at the worldwide box office to become the director’s biggest movie ever.
+---------
+
+# 10 Best Spy Movies of the 1960s
+
+Movie
+
+Sun, 09 Aug 2026 15:04:15 GMT
+
+https://collider.com/best-1960s-spy-movies-ranked/
+
+The 1960s was an unusually good decade for spy movies, as the likes of Goldfinger, The Ipcress File, and Army of Shadows all go to show.
+---------
+
+# Steamy Sci-Fi Sequel Sent Straight to Streaming Gets 5-Star Response From Audiences
+
+Movie News, SOULM8TE
+
+Sun, 09 Aug 2026 15:15:12 GMT
+
+https://movieweb.com/soulm8te-rotten-tomatoes-divided-reviews/
+
+Soulm8te is proving divisive on Rotten Tomatoes, where the film’s critical response has been mixed even as early audience reaction appears warmer.
+---------
+
+# Rebecca Ferguson 104-Minute Underrated Sci-Fi Alien Thriller Lands on Streaming
+
+Movie News, Life, Coming/Leaving Streaming, Rebecca Ferguson
+
+Sun, 09 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/life-rebecca-ferguson-hulu-streaming-august-2026/
+
+This is one of the best alien invasion movies in recent years, and now's your chance to watch it.
+---------
+
+# Robert De Niro Was in One of the Best Religious Films of All Time 40 Years Ago
+
+Features, Robert De Niro
+
+Sun, 09 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/robert-de-niro-best-religious-film-the-mission/
+
+Robert De Niro may be best known for his gangster roles, but this religious movie remains one of his most underrated performances.
+---------
+
+# Every M. Night Shyamalan Psychological Thriller Movie, Ranked
+
+Movie Lists, M. Night Shyamalan, Thriller, Horror
+
+Sun, 09 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/m-night-shyamalan-psychological-thriller-movies/
+
+From 'The Sixth Sense' to 'Knock at the Cabin', how do director M. Night Shyamalan's twisty psychological thrillers stack up?
+---------
+
+# The Non-Stop Sci-Fi Action Thriller That's Now Streaming for Free
+
+Movie News, Looper, Tubi, Hot on Streaming, Sci-Fi, Action
+
+Sun, 09 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/looper-scifi-stream-peacock-august-2026/
+
+14 years later and it's still a near-perfect sci-fi film.
+---------
+
 # The Odyssey Gets An Epic Sci-Fi Twist In 12-Part Series That's Aging Like Fine Wine
 
 Comics, Masked Recs
