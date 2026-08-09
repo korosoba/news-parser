@@ -1,3 +1,102 @@
+# Doctor Strange Unveils New God-Tier Super Power, And It's Disgusting
+
+Marvel Comics, Doctor Strange
+
+Sun, 09 Aug 2026 20:48:27 GMT
+
+https://screenrant.com/doctor-strange-new-god-tier-power-gross/
+
+Doctor Strange's latest magical ability is so incredibly overpowered that it's absurd to watch, which suggests it may come with a great cost.
+---------
+
+# 2026's New Apocalypse Comedy The End Is Zootopia For Adults
+
+Movies, Zootopia
+
+Sun, 09 Aug 2026 20:45:11 GMT
+
+https://screenrant.com/the-end-stop-motion-movie-zootopia-for-adults/
+
+2026's new stop-motion movie is effectively a darker look at the kind of stories that would be possible in an on-screen world like Zootopia.
+---------
+
+# Jujutsu Kaisen's Satoru Gojo Returns With New Official Design
+
+Games, Jujutsu Kaisen
+
+Sun, 09 Aug 2026 20:50:14 GMT
+
+https://www.cbr.com/jujutsu-kaisen-monster-strike-new-2026-update/
+
+Satoru Gojo officially returns in a JJK x Monster Strike crossover.
+---------
+
+# How Spider-Man Officially Met THAT Major Brand New Day Character
+
+Comics, Spider-Man
+
+Sun, 09 Aug 2026 20:30:15 GMT
+
+https://www.cbr.com/how-spider-man-met-jean-grey-explained/
+
+Here's how the two fan-favorite characters actually crossed paths in Marvel's comics.
+---------
+
+# 5 Greatest High Fantasy Book Trilogies Of All Time, Ranked
+
+Movies, Fantasy, books, The Lord of the Rings
+
+Sun, 09 Aug 2026 20:30:15 GMT
+
+https://www.cbr.com/greatest-high-fantasy-book-trilogies-list/
+
+The best things come in threes and these high fantasy trilogies are masterfully crafted with meticulous world-building and intricate magic systems.
+---------
+
+# 8 Best Stephen King Psychological Thriller Books
+
+Books and Comics, Cujo, The Running Man, Stephen King, Misery
+
+Sun, 09 Aug 2026 20:56:14 GMT
+
+https://collider.com/best-stephen-king-psychological-thriller-books-ranked/
+
+Stephen King has thrived within the psychological thriller genre, as classic books like The Dark Half, Misery, and The Running Man all go to show.
+---------
+
+# This 5-Part Sci-Fi Masterpiece Perfected What ‘Battlestar Galactica’ Started
+
+TV Features, Sci-Fi, Babylon 5, Battlestar Galactica, Science Fiction
+
+Sun, 09 Aug 2026 20:53:14 GMT
+
+https://collider.com/babylon-5-better-ending-than-battlestar-galactica/
+
+Babylon 5 is a five-season sci-fi epic with intergalactic war, rich character arcs, and a far more satisfying ending than Battlestar Galactica.
+---------
+
+# Pam Grier’s Cinematic Legacy Is Iron-Clad Thanks to These 3 Classic Movies
+
+Movie, Pam Grier, Coffy, Foxy Brown, Jackie Brown
+
+Sun, 09 Aug 2026 20:47:14 GMT
+
+https://collider.com/best-pam-grier-movies/
+
+The iconic Pam Grier's cinematic legacy is written in stone, thanks in particular to a select few classic movies like Coffy and Jackie Brown.
+---------
+
+# Pierce Brosnan’s Post-‘James Bond’ Thriller Is Officially Dominating Netflix Worldwide
+
+Movie News, Netflix, Fast Charlie, Streaming, Pierce Brosnan
+
+Sun, 09 Aug 2026 20:30:15 GMT
+
+https://collider.com/pierce-brosnan-fast-charlie-global-streaming-success-netflix-august-2026/
+
+John Wick meets James Bond in this Netflix hit that stars an actual 007, Pierce Brosnan. Here's everything you should know about the crime thriller.
+---------
+
 # Masters Of The Universe Repeats This $208M Bomb (& They Have A Combined 96 Years Of Lore)
 
 Movies, Masters of the Universe, Dungeons & Dragons, Dungeons & Dragons: Honor Among Thieves
