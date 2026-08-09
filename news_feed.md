@@ -1,3 +1,168 @@
+# 58 Years Later, 2001: A Space Odyssey's Best Quote Is The Most Chilling In Sci-Fi Movie History
+
+Movies, 2001: A Space Odyssey
+
+Sun, 09 Aug 2026 14:15:11 GMT
+
+https://screenrant.com/2001-a-space-odyssey-hal-9000-sorry-dave-afraid-quote/
+
+Even after 58 years, HAL 9000's famous line from 2001: A Space Odyssey remains one of the most unsettling quotes in sci-fi history.
+---------
+
+# A Genius Sherlock Quote Foreshadowed The BBC Show's Own Downfall
+
+Classic TV, Sherlock
+
+Sun, 09 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/sherlock-three-quote-foreshadow-show-downfall/
+
+The BBC's Sherlock has some great quotes, but one from season 3 is not only genius but also foreshadowed the show's chaotic downfall.
+---------
+
+# Even Stan Lee Admitted One DC Hero Was So Good They Actually Belong With Marvel
+
+Comics, Stan Lee, Lobo
+
+Sun, 09 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/stan-lee-dc-lobo-should-be-marvel/
+
+Marvel icon Stan Lee praised an outrageously violent DC bounty hunter for feeling like a perfect Marvel antihero, and here is who it is.
+---------
+
+# 5 Dungeons & Dragons: World Of Warcraft Races That Will Change D&D Forever
+
+Tabletop, Dungeons and Dragons, Dungeons & Dragons, World of Warcraft, tabletop games
+
+Sun, 09 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/dungeons-dragons-world-warcraft-races-changing-meta-classes/
+
+In November, Dungeons and Dragons is getting 16 species character options from World of Warcraft, and some of them are already quite promising.
+---------
+
+# 5 Strongest Dragons in Anime History, Ranked
+
+Anime, Dragon Ball, That Time I Got Reincarnated as a Slime, Re:Zero -Starting Life in Another World-
+
+Sun, 09 Aug 2026 14:15:16 GMT
+
+https://www.cbr.com/strongest-dragons-in-all-of-anime-ranked/
+
+The anime medium is home to several of the strongest dragons in all of fiction.
+---------
+
+# New Star Trek Series Officially Confirms Its Timeline After Picard's Finale
+
+Comics, Star Trek, Star trek, Star Trek: The Next Generation
+
+Sun, 09 Aug 2026 14:00:15 GMT
+
+https://www.cbr.com/new-star-trek-series-officially-confirms-timeline-after-picard-finale/
+
+The burning question that's hung over Picard for years will finally be answered.
+---------
+
+# Transformers Adds a New Dinosaur to Its Official Combiner Team
+
+Anime, Transformers, merchandise
+
+Sun, 09 Aug 2026 14:00:15 GMT
+
+https://www.cbr.com/transformers-wild-king-w-energy-beasts-hydrophant-lightning-ver-gaia-knuckles/
+
+Transformers Wild King adds two more beasts into the mix, with one of them taking a previous release and giving the character a whole new element.
+---------
+
+# 10 Must-Read Spider-Man Comics for Every Marvel Cinematic Universe Fan
+
+Comics, Spider-Man
+
+Sun, 09 Aug 2026 14:00:15 GMT
+
+https://www.cbr.com/spider-man-comics-every-mcu-fan-should-read/
+
+The MCU has produced a definitive screen Spider-Man, but these comics will help showcase the character to those unfamiliar with the source material.
+---------
+
+# Timothée Chalamet’s Long-Awaited Fantasy Sequel Gets Disappointing Update After 3-Year Wait
+
+Movies
+
+Sun, 09 Aug 2026 12:01:15 GMT
+
+https://www.cbr.com/timothee-chalamet-wonka-sequel-disappointing-update/
+
+The director doesn't have much hope that this Timothée Chalamet box office hit will get the sequel fans are craving.
+---------
+
+# One of the Most Notorious 'X-Files' Episodes Almost Didn't Make It to Air
+
+TV News, The X-Files, Vince Gilligan, Sci-Fi, Ryan Coogler
+
+Sun, 09 Aug 2026 14:00:15 GMT
+
+https://collider.com/vince-gilligan-x-files-season-2-episode-13-irresistible-unacceptable-for-broadcast/
+
+X-Files producer Vince Gilligan reveals secrets behind the hit sci-fi series' most controversial episode and how they got it on the air.
+---------
+
+# 'Euphoria' Fans Are Already Obsessed With Ryan Murphy’s New 'Scream' Replacement
+
+TV News, The Shards, Ryan Murphy, Kaia Gerber, Euphoria
+
+Sun, 09 Aug 2026 14:00:15 GMT
+
+https://collider.com/the-shards-ryan-murphy-hulu-thriller-streaming-success-august-2026/
+
+Ryan Murphy’s Euphoria replacement brings Bret Easton Ellis’ serial-killer thriller to Hulu, and audiences can’t get enough.
+---------
+
+# Every 'Game of Thrones' Main Character's First and Last Lines, Ranked
+
+TV, Game Of Thrones, Fantasy, HBO, George R.R. Martin
+
+Sun, 09 Aug 2026 13:59:15 GMT
+
+https://collider.com/game-of-thrones-main-characters-quotes-first-last/
+
+Revisit the Game of Thrones quotes that showcased the character development of fan favorites like Daenerys Targaryen, Jon Snow, and Cersei Lannister.
+---------
+
+# Marvel's X-Men Casting Paves the Way for This Fan-Favorite Superhero's Return to the MCU
+
+Movie Features, X-Men, Ms. Marvel, The Marvels, Avengers: Secret Wars
+
+Sun, 09 Aug 2026 13:55:15 GMT
+
+https://collider.com/marvel-x-men-casting-iman-vellani-ms-marvel-return-explained/
+
+Fans have noticed that the characters being cast in Marvel Studios' X-Men reboot are close in age to Iman Vellani's Ms. Marvel, hinting at her return.
+---------
+
+# Netflix's #1 Action Movie Officially One of the Biggest Streaming Events of 2026
+
+Movie News, KPop Demon Hunters, Netflix, Hot on Streaming
+
+Sun, 09 Aug 2026 14:11:30 GMT
+
+https://movieweb.com/netflix-kpop-demon-hunters-tops-nielsen-chart/
+
+One of 2025's sleeper hits is still dominating the streaming charts.
+---------
+
+# 10 Funniest 'Far Side' Comics That Break the Fourth Wall
+
+Movie Lists, The Far Side, comics
+
+Sun, 09 Aug 2026 14:00:12 GMT
+
+https://movieweb.com/far-side-best-break-fourth-wall/
+
+Larson seldom broke the fourth wall in 'The Far Side,' but when he did, it was always uproarious.
+---------
+
 # 10 Classic Star Trek: The Original Series Episodes Nobody Remembers Today
 
 TV, Star Trek: The Original Series
