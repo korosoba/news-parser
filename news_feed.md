@@ -1,3 +1,201 @@
+# 10 Classic Star Trek: The Original Series Episodes Nobody Remembers Today
+
+TV, Star Trek: The Original Series
+
+Sun, 09 Aug 2026 13:40:11 GMT
+
+https://screenrant.com/classic-star-trek-tos-episodes-forgotten/
+
+Many episodes of Star Trek: The Original Series are beloved classics that everyone knows, but these 10 hidden gems are all but forgotten today.
+---------
+
+# Lioness Season 3 Interview with Laysla De Oliveira & Jill Wagner
+
+Interviews, Lioness, Lioness - Season 3
+
+Sun, 09 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/video/lioness-season-3-laysla-de-oliveira-jill-wagner-interview/
+
+Lioness stars Laysla De Oliveira and Jill Wagner discuss Bobby's would-be eyepatch, Cruz's path to potentially leading a mission, and the show's chances of a season 4 renewal.
+---------
+
+# After 19 Years, Portal Still Has One Of Gaming’s Funniest Lines
+
+Gaming, Portal, Valve, Steam, PC
+
+Sun, 09 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/portal-best-funniest-quote/
+
+Portal is full of phenomenal one-liners, with its very best being deserving of so much praise as it remains one of gaming's funniest lines.
+---------
+
+# NCIS Season 24 Major Cast Shake-Up Best Explains Ziva's Absence
+
+Network TV, NCIS
+
+Sun, 09 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/ncis-season-24-tony-dinozzo-return-ziva-absence-reason/
+
+Ziva David's absence in NCIS season 24 despite Tony Dinozzo's return has become a major talking point among fans. Thankfully, CBS has a way out.
+---------
+
+# You’ve Only Got One Month Left To Watch All Of Sylvester Stallone’s Rocky Movies On Netflix
+
+Movies, Rocky
+
+Sun, 09 Aug 2026 13:15:11 GMT
+
+https://screenrant.com/rocky-movie-series-sylvester-stallone-netflix/
+
+One of Sylvester Stallone's most beloved movie series is reportedly due to leave Netflix in the next few coming weeks, making it more of a must-watch
+---------
+
+# 7 Massive Bestselling Books You Didn't Know Were Free On Kindle Unlimited
+
+Books
+
+Sun, 09 Aug 2026 13:13:11 GMT
+
+https://screenrant.com/7-massive-bestselling-books-you-didnt-know-were-free-on-kindle-unlimited/
+
+Must-read titles you can't miss on Kindle Unlimited.
+---------
+
+# Rhaenyra Faces The Cost Of Major GOT Battle In House Of The Dragon Season 3 Finale Teaser
+
+TV, House of the Dragon
+
+Sun, 09 Aug 2026 13:12:45 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-finale-teaser/
+
+House of the Dragon is preparing for war with the season 3 finale fast approaching, and Rhaenyra is preparing to pay the price of bloodshed.
+---------
+
+# Star Trek: Strange New Worlds Season 4 Interview Ethan Peck, Paul Wesley & Christina Chong
+
+Videos, Star Trek: Strange New Worlds, Star Trek: Strange New Worlds - Season 4
+
+Sun, 09 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/video/star-trek-strange-new-worlds-season-4-ethan-peck-paul-wesley-christina-chong-interview/
+
+Star Trek: Strange New Worlds stars Ethan Peck, Paul Wesley, and Christina Chong dive into their season 4 storylines, especially Kirk being a father.
+---------
+
+# 3 PlayStation 2 Games Everyone Owned In The 2000s
+
+Gaming, PlayStation 2, PlayStation, Final Fantasy X
+
+Sun, 09 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/ps2-games-everyone-owned-2000s/
+
+The PlayStation 2 had a lot of great games, but there were a few video games that anyone with a PS2 was playing back in the 2000s. Did you?
+---------
+
+# Prime Video's 8-Part Superhero Anthology Is A Rare Series Where Every Episode Is 10/10
+
+Classic TV, Masked Recs
+
+Sun, 09 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/the-boys-diabolical-prime-video-every-episode-good/
+
+There's an eight-part Prime Video superhero anthology TV show where every episode is unique and compelling, and not one episode is a misstep.
+---------
+
+# Dutch's Predator Line is the Best Quote in Sci-Fi Movie History
+
+Movies, Predator, Sci-Fi, Action
+
+Sun, 09 Aug 2026 13:30:15 GMT
+
+https://www.cbr.com/predator-arnold-schwarzenegger-dutch-best-quote-sci-fi-movie-history/
+
+The original Predator movie assembled Hollywood's greatest action heroes, priming Arnold Schwarzenegger to deliver the best quote in sci-fi history.
+---------
+
+# 'Deserved More': George RR Martin Hailed Prime Video's 1-Season Fantasy Series With 94% RT
+
+TV, My Lady Jane, Fantasy, Prime Video
+
+Sun, 09 Aug 2026 13:30:15 GMT
+
+https://www.cbr.com/prime-video-my-lady-jane-george-rr-martin-recommendation/
+
+The king of fantasy himself has a lot to say about the tragic demise of one of Prime Video's best shows.
+---------
+
+# 10 Anime to Watch Before Black Clover Season 2
+
+Anime, Black Clover, Naruto
+
+Sun, 09 Aug 2026 13:15:15 GMT
+
+https://www.cbr.com/anime-to-watch-before-black-clover-season-2/
+
+These anime are the perfect way to pass the time before Black Clover Season 2 finally arrives.
+---------
+
+# 50+ Years Later, the Greatest Conspiracy Thriller Ever Made Is Officially Free to Stream
+
+Movie News, Three Days Of The Condor, Pluto TV, Sydney Pollack, Robert Redford
+
+Sun, 09 Aug 2026 13:15:15 GMT
+
+https://collider.com/three-days-of-the-condor-streaming-free-pluto-tv-august-2026/
+
+A classic Robert Redford conspiracy thriller, is now streaming for free on Pluto TV.
+---------
+
+# Netflix Officially Says Goodbye to a Beloved Horror Trilogy This Weekend
+
+Movie News, Scream, Scream 2, Scream 3, Horror
+
+Sun, 09 Aug 2026 12:45:15 GMT
+
+https://collider.com/netflix-removing-scream-trilogy-august-2026/
+
+Netflix has announced it is removing the first three Scream movies from the platform this month despite the recent success of Scream 7.
+---------
+
+# 5 Movies Tom Cruise Should Have Won an Oscar For
+
+Movie, Eyes Wide Shut, Tom Cruise, Tropic Thunder, Magnolia
+
+Sun, 09 Aug 2026 12:34:16 GMT
+
+https://collider.com/movies-tom-cruise-should-have-won-an-oscar-for/
+
+There are some Tom Cruise movies he should've won an Oscar for, including the performances he gave in Magnolia, Eyes Wide Shut, and Tropic Thunder.
+---------
+
+# Scarlett Johansson's $872 Million Sci-Fi Action Hit Named One of 2026's Biggest Films
+
+Movie News, Scarlett Johansson, Jurassic World Rebirth, Hot on Streaming, Action, Sci-Fi
+
+Sun, 09 Aug 2026 13:00:12 GMT
+
+https://movieweb.com/scarlett-johansson-jurassic-world-rebirth-streaming-hit-2026/
+
+Thanks to Netflix, Johansson's blockbuster action sequel has officially been crowned one of the year's biggest streaming movies.
+---------
+
+# Taylor Sheridan 2-Part Western Is One of the Year's Biggest Streaming Shows
+
+TV News, Landman, Taylor Sheridan, Hot on Streaming
+
+Sun, 09 Aug 2026 13:00:12 GMT
+
+https://movieweb.com/taylor-sheridan-landman-biggest-shows-2026-august/
+
+Sheridan's storytelling empire has exponentially grown, and 2026 delivered yet another heavy hitter of the streaming wars.
+---------
+
 # One Night Only Interviews with Callum Turner, Monica Barbaro & Will Gluck
 
 Videos, One Night Only, Callum Turner, Monica Barbaro
