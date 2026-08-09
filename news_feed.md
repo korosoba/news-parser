@@ -1,3 +1,102 @@
+# Masters Of The Universe Repeats This $208M Bomb (& They Have A Combined 96 Years Of Lore)
+
+Movies, Masters of the Universe, Dungeons & Dragons, Dungeons & Dragons: Honor Among Thieves
+
+Sun, 09 Aug 2026 20:15:11 GMT
+
+https://screenrant.com/masters-of-the-universe-dungeons-dragons-honor-among-thieves-similar/
+
+It's hard not to draw similarities between Masters of the Universe's performance and another promising fantasy movie released in 2023.
+---------
+
+# Blade Runner Meets Cyberpunk 2077 In Noir Thriller You Can Play Free August 17
+
+Gaming, Blade Runner, Cyberpunk 2077, Steam, PC
+
+Sun, 09 Aug 2026 20:00:11 GMT
+
+https://screenrant.com/blade-runner-cyberpunk-2077-mandated-fate-demo-announcement/
+
+Blade Runner and Cyberpunk 2077 collide in a new noir-style thriller you can try out for free starting August 17 on Steam.
+---------
+
+# Nearly 30 Years Ago, ER Aired The Riskiest TV Episode Of The '90s
+
+Classic TV, ER
+
+Sun, 09 Aug 2026 20:00:11 GMT
+
+https://screenrant.com/nearly-30-years-ago-er-aired-the-riskiest-tv-episode-of-the-90s/
+
+NBC's ER aired a revolutionary episode that was filmed live two times in one night, in a risky move in the '90s that many shows wouldn't try today.
+---------
+
+# 5 Anime Weapons Powerful Enough to End The World
+
+Anime, Bleach, One Piece, Gurren Lagann
+
+Sun, 09 Aug 2026 20:16:15 GMT
+
+https://www.cbr.com/powerful-anime-weapons-to-end-the-world/
+
+From devastating Bankai to mecha who hold galaxies in the palm of their hand, the most powerful anime weapons can utterly destroy the world.
+---------
+
+# Solo Leveling: Ragnarok Officially Returns in 72 Hours
+
+Anime, Solo Leveling
+
+Sun, 09 Aug 2026 20:00:15 GMT
+
+https://www.cbr.com/solo-leveling-ragnarok-chapter-69-back-hiatus-end/
+
+Solo Leveling: Ragnarok, the hit manhwa sequel to Jinwoo’s original story, finally ends its 7-month-long hiatus with Chapter 69 dropping August 12.
+---------
+
+# Netflix's New 10 Cloverfield Lane Meets A Quiet Place Sci-Fi Is the No. 1 Film in the World
+
+Movies, The Last House, Netflix, Sci-Fi
+
+Sun, 09 Aug 2026 20:00:15 GMT
+
+https://www.cbr.com/the-last-house-sci-fi-netflix-global-succes-august-2026/
+
+The ambitious new sci-fi has captured audiences around the world.
+---------
+
+# Netflix Officially Revives 'Stranger Things' Star's Forgotten Fantasy Epic
+
+TV News, The Mortal Instruments: City of Bones, Cassandra Clare, Netflix, Jamie Campbell Bower
+
+Sun, 09 Aug 2026 20:00:15 GMT
+
+https://collider.com/mortal-instruments-city-of-bones-streaming-netflix-august-2026/
+
+Netflix has renewed its license for one of the most underrated supernatural stories made in the 2010s. Get all the details here.
+---------
+
+# 6 Christopher Nolan Movies That Are 10/10, No Notes
+
+Movie, Christopher Nolan, The Dark Knight, Inception, Interstellar
+
+Sun, 09 Aug 2026 19:56:14 GMT
+
+https://collider.com/christopher-nolan-movies-perfect-no-notes/
+
+From the sci-fi masterpiece Interstellar to the game-changing superhero film The Dark Knight, these Christopher Nolan movies are truly flawless.
+---------
+
+# There's Only One True Sci-Fi Masterpiece & It's About To Get Even Better
+
+Features, The X-Files, The X-Files: I Want to Believe, Sci-Fi
+
+Sun, 09 Aug 2026 20:00:12 GMT
+
+https://movieweb.com/the-x-files-holds-up-believe-directors-cut/
+
+A unique new movie release is the first step in the sci-fi franchise's renaissance, reinvigorating a classic series with fresh takes.
+---------
+
 # 10 Best Moments Of Spider-Man: Brand New Day
 
 Movies, Spider-Man: Brand New Day
