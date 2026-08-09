@@ -1,3 +1,102 @@
+# How Old Goku Is In Every Dragon Ball Anime & Saga: A Complete Timeline
+
+TV, Dragon Ball
+
+Sun, 09 Aug 2026 23:00:12 GMT
+
+https://screenrant.com/dragon-ball-goku-age-how-old-sagas/
+
+The Dragon Ball franchise has encompassed over 30 years of adventures for Goku and the Z-Warriors. Here's how old the character is in every saga.
+---------
+
+# 10 Hardest '90s Games Ranked
+
+Gaming, Dark Souls, Triple-A Games, PC
+
+Sun, 09 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/hardest-90s-video-games-ranked/
+
+If today's soulslikes are failing to offer the true challenge you're seeking, the toughest games of the 1990s prove how much harder games can get.
+---------
+
+# 10 Anime That Are Perfect From the First Scene to the Last
+
+Anime, Fullmetal Alchemist, Code Geass: Lelouch of the Rebellion, Cowboy Bebop
+
+Sun, 09 Aug 2026 23:15:14 GMT
+
+https://www.cbr.com/perfect-anime-from-start-to-finish/
+
+Not all anime series can claim to be perfect from the debut to the finale, but these ten titles are undeniable masterpieces with no bad episodes.
+---------
+
+# The Walking Dead: Dead City's Lauren Cohan Addresses Season 4 Chances
+
+TV, The Walking Dead: Dead City
+
+Sun, 09 Aug 2026 22:59:42 GMT
+
+https://www.cbr.com/the-walking-dead-dead-city-season-4-update-lauren-cohan/
+
+Lauren Cohan comments on the future of the Walking Dead spinoff following Negan and Maggie.
+---------
+
+# Netflix’s 6-Part True Crime Miniseries Is Already One of the Biggest Hits on Streaming
+
+TV Features, The Bombing of Pan Am 103, Netflix, True Crime, Patrick J. Adams
+
+Sun, 09 Aug 2026 23:27:14 GMT
+
+https://collider.com/bombing-of-pan-am-103-netflix-true-crime-miniseries-streaming-hit/
+
+Netflix's must-watch 6-part true crime miniseries explores the gripping investigation of the Lockerbie bombing, a case that remains open today.
+---------
+
+# Robert Pattinson's Detective Epic Is Officially Taking Over Apple TV Ahead of the Sequel
+
+Movie News, The Batman, Matt Reeves, Robert Pattinson, HBO Max
+
+Sun, 09 Aug 2026 23:15:14 GMT
+
+https://collider.com/robert-pattinson-the-batman-global-streaming-success-apple-tv-store-august-2026/
+
+Matt Reeves' ambitious superhero epic The Batman, starring Robert Pattinson, is streaming on HBO Max. Find out more.
+---------
+
+# History's First Billion-Dollar Biopic Is About to Be Your Next Streaming Obsession
+
+Movie News, Michael, STARZ, Biopic, Streaming
+
+Sun, 09 Aug 2026 23:00:14 GMT
+
+https://collider.com/michael-jackson-biopic-streaming-starz-august-10-2026/
+
+The record-breaking Michael, the Michael Jackson biopic from Antoine Fuqua, is finally coming to streaming next week.
+---------
+
+# '90s Icon's Comeback Thriller 18 Years in the Making Streaming on Netflix
+
+Movie News, Lazareth
+
+Sun, 09 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/ashley-judd-lazareth-netflix-august-2026/
+
+'Lazareth' gives Ashley Judd a notable return to thriller lead territory after years away from the spotlight.
+---------
+
+# 12 1980s Action Thriller Movies That Are Still 10/10 Masterpieces
+
+Movie Lists, 1980s, Action, Thriller
+
+Sun, 09 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/1980s-action-thriller-movie-masterpieces/
+
+From star-studded classics to hidden gems, these 1980s action thrillers remain genre masterpieces decades later.
+---------
+
 # 30 Years After Tamagotchi, This New Virtual Pet Is the Best of All Time
 
 Gaming, Tamagotchi
