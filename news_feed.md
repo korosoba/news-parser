@@ -1,3 +1,223 @@
+# Game Of Thrones: All 22 Kings And Queens Who Appeared In The Show
+
+Classic TV, Game Of Thrones
+
+Sun, 09 Aug 2026 18:30:12 GMT
+
+https://screenrant.com/game-thrones-every-king-queen-westeros-explained/
+
+Game of Thrones features as many as 18 kings and queens, with HotD introducing more rulers of Westeros both on the Iron Throne and elsewhere.
+---------
+
+# House Of The Dragon Season 4: Story, Release Window & Everything We Know
+
+Streaming TV, House of the Dragon, Game of Thrones
+
+Sun, 09 Aug 2026 18:30:11 GMT
+
+https://screenrant.com/house-of-the-dragon-season-4-explained/
+
+Thankfully, House of the Dragon has been renewed for season 4, as Rhaenyra loses control of King's Landing and the Greens fight back against her rule.
+---------
+
+# Catching Up With World Of Warcraft: Midnight - "We Hear People Love These Amani Trolls So Much"
+
+Gaming, World of Warcraft, Triple-A Games
+
+Sun, 09 Aug 2026 18:30:11 GMT
+
+https://screenrant.com/world-of-warcraft-wow-midnight-curse-of-ulatek-interview/
+
+Explore new quests, lore, and content in the Curse of Ula'tek update for WoW: Midnight, launching August 11, 2026.
+---------
+
+# Brand New Day Finally Confirms The One Spider-Man Villain More Evil Than Green Goblin
+
+Movies, Spider-Man: Brand New Day, Spider-Man
+
+Sun, 09 Aug 2026 18:03:19 GMT
+
+https://screenrant.com/spider-man-brand-new-day-confirms-mysterio/
+
+The MCU officially crowned its official best Spider-Man villain long before Brand New Day, and they're unlikely to ever be dethroned in this new era.
+---------
+
+# The Witcher Season 4 Cast & Character Guide
+
+Streaming TV, The Witcher
+
+Sun, 09 Aug 2026 18:00:12 GMT
+
+https://screenrant.com/witcher-season-4-cast-characters-guide/
+
+The Witcher season 4 brings most of its main and supporting cast back, accompanied by new allies and villains, as well as some key recasts.
+---------
+
+# 15 Greatest Crime Dramas Of The 21st Century
+
+Classic TV
+
+Sun, 09 Aug 2026 18:00:11 GMT
+
+https://screenrant.com/best-crime-drama-series-21st-century/
+
+From The Wire to The Shield to Breaking Bad to most of The Sopranos, these are the greatest TV crime dramas of the 21st century so far.
+---------
+
+# The Walking Dead’s New Adventure Is Reliving Its Saddest Character Death
+
+Gaming, The Walking Dead, Dead by Daylight
+
+Sun, 09 Aug 2026 18:00:11 GMT
+
+https://screenrant.com/walking-dead-glenn-dead-by-daylight-skin/
+
+The Walking Dead still has pop culture in a chokehold, and its latest crossover collab is a reminder of how traumatic one character's death was.
+---------
+
+# 8 Best Anime Mentors Who Died Way Too Soon
+
+Anime
+
+Sun, 09 Aug 2026 18:00:11 GMT
+
+https://screenrant.com/best-anime-mentors-early-death/
+
+Explore the impact of 8 influential anime mentors who tragically died, leaving a lasting legacy on their heroes and the story.
+---------
+
+# Power Rangers' Best Stories Officially Come Together For Must-See Collection
+
+Comics, Power Rangers
+
+Sun, 09 Aug 2026 18:18:27 GMT
+
+https://www.cbr.com/power-rangers-best-stories-officially-come-together-new-collection/
+
+This is a must-have collection ahead of the Power Rangers series reboot.
+---------
+
+# 7 Crunchyroll Anime Series Where Every Episode Is a Masterpiece
+
+Anime, Crunchyroll
+
+Sun, 09 Aug 2026 18:15:15 GMT
+
+https://www.cbr.com/crunchyroll-anime-masterpiece-every-episode/
+
+Crunchyroll is home to some of the best anime in the world, and these 7 series don't have a dull moment in any of their exciting episodes.
+---------
+
+# Sony's Harry Potter Meets Twilight Fantasy Has Quietly Joined Netflix 13 Years After Flopping
+
+Movies, The Mortal Instruments: City of Bones
+
+Sun, 09 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/the-mortal-instruments-city-of-bones-netflix-august-2026/
+
+One of the most critically-bemoaned young adult fantasy adaptations of the past decade finally has another shot in the world of streaming.
+---------
+
+# Sailor Moon Brings Back Its Classic '90s Anime Designs for New Official 2027 Release
+
+Anime, Sailor Moon, merchandise
+
+Sun, 09 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/sailor-moon-2027-calendar-release/
+
+Sailor Moon's countdown to 2027 has officially begun with two new collectible calendars celebrating the beloved Sailor Moon R anime.
+---------
+
+# The Witcher Season 5 Quietly Delayed by Netflix After Abysmal Reviews
+
+TV, The Witcher
+
+Sun, 09 Aug 2026 17:57:45 GMT
+
+https://www.cbr.com/the-witcher-season-5-delayed-2027/
+
+The fantasy series started off strong, but it has lost the plot.
+---------
+
+# Teenage Sex and Death at Camp Miasma: Kris’s Clothes Hid Her Fate | Collider BTS
+
+Exclusives, Teenage Sex and Death at Camp Miasma
+
+Sun, 09 Aug 2026 18:15:15 GMT
+
+https://collider.com/video/teenage-sex-and-death-at-camp-miasma-kris-s-clothes-hid-her-fate-collider-bts/
+
+Costume designer Kendra Terpenning explains how a Twin Peaks reference helped unlock one of Teenage Sex and Death at Camp Miasma’s most complicated costumes.
+---------
+
+# Mel Gibson Officially Reveals First Plot Details for 'Lethal Weapon 5' [Exclusive]
+
+Exclusives, Lethal Weapon, Lethal Weapon 5, Richard Donner, Mel Gibson
+
+Sun, 09 Aug 2026 18:00:15 GMT
+
+https://collider.com/mel-gibson-lethal-weapon-5-script-plot-details/
+
+Mel Gibson says the Lethal Weapon 5 script is better than the previous films and remains hopeful he can direct the sequel with Danny Glover.
+---------
+
+# ‘Joker’ Meets ‘Collateral’ in 95% RT Crime Thriller Officially Streaming on Netflix
+
+Movie News, Jake Gyllenhaal, Nightcrawler, Netflix, Thriller
+
+Sun, 09 Aug 2026 18:00:15 GMT
+
+https://collider.com/jake-gyllenhaal-nightcrawler-streaming-netflix-august-2026/
+
+The psychological thriller Nightcrawler, starring Jake Gyllenhaal, is now streaming on Netflix. Find out more.
+---------
+
+# One of the Most Iconic 2-Part Book Adaptations Is Quietly Surging on Streaming
+
+TV Features, Anne of Green Gables, Prime Video, Megan Follows, Drama
+
+Sun, 09 Aug 2026 17:58:15 GMT
+
+https://collider.com/anne-of-green-gables-1985-tv-movie-streaming-prime-video/
+
+1985's made-for-TV miniseries adaptation of Anne of Green Gables, starring Megan Follows, is still winning over viewers on streaming.
+---------
+
+# Sam's Greatest 'Lord of the Rings' Line Is Still the Most Emotional Quote in Fantasy
+
+Features, The Lord of the Rings, Fantasy
+
+Sun, 09 Aug 2026 18:30:12 GMT
+
+https://movieweb.com/lord-of-the-rings-great-sam-quote/
+
+'The Lord of the Rings' places a huge emphasis on friendship and unity, and Sam's most emotional quote drives it home the best.
+---------
+
+# Fans React Strongly to Rumored Recast for Prime Video's 'God of War' Series
+
+TV News, God of War, Prime Video
+
+Sun, 09 Aug 2026 18:21:19 GMT
+
+https://movieweb.com/fans-react-david-bautista-god-of-war/
+
+It's not yet confirmed, but the news has already caused controversy.
+---------
+
+# The 10 Greatest Samurai Movie Stars, Ranked
+
+Movie Lists, lone wolf and cub
+
+Sun, 09 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/samurai-actors-best-ranked/
+
+Samurai movies and the warrior spirit were defined by these talented actors, and they starred in the genre's greatest films.
+---------
+
 # Prime Video’s #1 New Mystery Series’ Season 2 Story Plans Revealed By Creator
 
 TV, Sterling Point
