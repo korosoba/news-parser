@@ -1,3 +1,190 @@
+# DC Debuts New Design for Superman's Strongest Villain of All Time
+
+Comics, Superman
+
+Sun, 09 Aug 2026 22:06:11 GMT
+
+https://screenrant.com/superman-mxyzptlk-redesign-supergirl/
+
+Superman’s most powerful villain has no competition, and now this iconic foe has made history with their most radical redesign yet in DC Comics.
+---------
+
+# American Horror Story Is Lasting One Season Too Long
+
+Streaming TV, American Horror Story
+
+Sun, 09 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/american-horror-story-season-14-too-long/
+
+Despite there being a perfect exit ramp for AHS's extraordinary decade-and-a-half run, Ryan Murphy's horror anthology simply refuses to stop.
+---------
+
+# 10 Classic SNES Games That Have Aged Like Fine Wine
+
+Gaming, SNES, Triple-A Games
+
+Sun, 09 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/classic-snes-games-aged-like-fine-wine/
+
+The Super Nintendo Entertainment System is one of the most iconic consoles of all time, and there are countless great games for it that still hold up.
+---------
+
+# The Legend Of Zelda Movie’s New Cast Confirmations  Were Worth The Year-Long Wait
+
+Movies, The Legend of Zelda
+
+Sun, 09 Aug 2026 21:55:12 GMT
+
+https://screenrant.com/the-legend-of-zelda-movie-new-cast-report-good/
+
+The Legend of Zelda movie's new cast updates paint a promising picture of what's to come for the upcoming 2027 fantasy movie adaptation.
+---------
+
+# Ted Lasso Season 4 Gets Official Audience Verdict On Rotten Tomatoes
+
+TV, Ted Lasso, Jason Sudeikis
+
+Sun, 09 Aug 2026 21:49:38 GMT
+
+https://screenrant.com/ted-lasso-season-4-rotten-tomatoes-audience-score-debut/
+
+As Ted Lasso season 4 has finally premiered on Apple TV, the audience score on Rotten Tomatoes for the Emmy-winning series has officially debuted.
+---------
+
+# X-Men's Filming Start Window & Jean Grey's Marvel Arc Revealed By Sadie Sink
+
+Superheroes, Marvel's X-Men, Spider-Man: Brand New Day, Marvel Cinematic Universe, X-Men
+
+Sun, 09 Aug 2026 21:49:22 GMT
+
+https://screenrant.com/marvel-studios-x-men-filming-start-jean-grey-arc-sadie-sink/
+
+After her debut in Spider-Man: Brand New Day, Sadie Sink drops filming news for her return as Jean Gray in the upcoming MCU X-Men reboot.
+---------
+
+# Steve Rogers' Avengers: Doomsday Story Arc Revealed By Chris Evans
+
+Movies, Avengers: Doomsday
+
+Sun, 09 Aug 2026 21:46:29 GMT
+
+https://screenrant.com/avengers-doomsday-chris-evans-steve-rogers-arc/
+
+Chris Evans reveals what's in store for Steve Rogers in the upcoming film, Avengers: Doomsday, and things aren't looking too great for the superhero.
+---------
+
+# DC Introduces Superman's Best Weakness of All Time, Bar None
+
+Comics, Superman
+
+Sun, 09 Aug 2026 21:40:24 GMT
+
+https://screenrant.com/superman-new-weakness-infinity/
+
+While Kryptonite has been Superman's most well-known weakness for decades, there's a new one that has surpassed the irradiated remnants of Krypton.
+---------
+
+# 5 Most Expensive Pokémon Cards Released in 2026, Ranked by Price
+
+Games, Pokemon, Pokemon TCG, Pokemon Trading Card Game, Tabletop
+
+Sun, 09 Aug 2026 22:15:14 GMT
+
+https://www.cbr.com/most-valuable-2026-pokemon-cards/
+
+So far, The Pokémon Company has released four TCG expansions in 2026. These are the most valuable cards of the year.
+---------
+
+# Dakota Johnson's R-Rated 117-Minute Sleeper Hit Returns as a 1 of the Biggest Films on HBO Max
+
+Movies, Materialists
+
+Sun, 09 Aug 2026 22:00:15 GMT
+
+https://www.cbr.com/dakota-johnson-materialists-rom-com-hbo-max-success-august-2026/
+
+The movie was a success and is appeal continues on streaming.
+---------
+
+# 10 Marvel Movies & TV Shows We’ll Never See, Including Mahershala Ali’s Blade
+
+Movies, Marvel Cinematic Universe
+
+Sun, 09 Aug 2026 22:00:15 GMT
+
+https://www.cbr.com/mcu-movies-tv-shows-that-will-never-happen-list/
+
+Some of Marvel's most exciting possible movies and TV shows have unfortunately been confirmed to never be coming to fruition.
+---------
+
+# Dragon Ball Z Officially Brings Back Goku & Frieza's Final Namek Battle
+
+Anime, Dragon Ball Z, Dragon Ball, merchandise
+
+Sun, 09 Aug 2026 22:00:15 GMT
+
+https://www.cbr.com/dragon-ball-z-goku-frieza-namek-final-battle-figure/
+
+Dragon Ball Z fans can finally recreated Goku and Frieza's infamous final battle in pitch-perfect fashion courtesy of the next S.H.Figuart release.
+---------
+
+# The Greatest Fantasy Trilogy Ever Made Is Officially Dominating Disney+ Worldwide
+
+Movie News, The Lord of the Rings, Peter Jackson, HBO Max, Fantasy
+
+Sun, 09 Aug 2026 22:15:14 GMT
+
+https://collider.com/lord-of-the-rings-trilogy-global-streaming-success-disney-plus-august-2026/
+
+Peter Jackson's original Lord of the Rings trilogy is streaming on HBO Max ahead of next year's live-action comeback vehicle.
+---------
+
+# Prime Video's 'Heated Rivalry' Replacement Is Still a Global Streaming Hit
+
+TV News, Off Campus, Prime Video, Streaming, Ella Bright
+
+Sun, 09 Aug 2026 22:00:15 GMT
+
+https://collider.com/off-campus-streaming-success-prime-video-august-2026/
+
+Prime Video's steamiest series is back on top of the global streaming charts. Here's everything you should know about Off Campus.
+---------
+
+# 10 Best-Looking Movies of All Time
+
+Movie, Avatar, Spider-Man Into the Spider-Verse, Kill Bill: Vol. 1, 2001: A Space Odyssey
+
+Sun, 09 Aug 2026 21:55:14 GMT
+
+https://collider.com/best-looking-movies-all-time-ranked/
+
+The best-booking movies of all time include classics like Days of Heaven and Ran alongside newer releases like Spider-Man: Into the Spider-Verse.
+---------
+
+# 10 Genuinely Perfect Fantasy Movies
+
+Movie, Fantasy, The Dark Crystal, The Lord of the Rings: The Return of the King, The Lord of the Rings: The Two Towers
+
+Sun, 09 Aug 2026 21:42:14 GMT
+
+https://collider.com/perfect-fantasy-movies/
+
+From The Princess Bride to Spirited Away, these fantasy masterpieces prove some movies simply cannot be improved.
+---------
+
+# Netflix’s Underrated Thriller Makes 'The Haunting of Hill House' Feel Small
+
+Features, The Haunting of Bly Manor, The Haunting of Hill House, Netflix
+
+Sun, 09 Aug 2026 22:00:13 GMT
+
+https://movieweb.com/haunting-of-bly-manor-hill-house-netflix-comparison/
+
+'The Haunting of Hill House,' Mike Flanagan's Netflix thriller/horror series starring Victoria Pedretti, was released in 2018.
+---------
+
 # Dungeons & Dragons Meets Star Wars In Disney's Forgotten 8-Part Fantasy Series
 
 TV, Masked Recs
