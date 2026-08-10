@@ -1,3 +1,366 @@
+# Boston Blue Season 2's Best Blue Bloods Cameo Is Looking Unlikely
+
+Network TV, Boston Blue, Blue Bloods
+
+Mon, 10 Aug 2026 21:30:11 GMT
+
+https://screenrant.com/boston-blue-season-2-tom-selleck-blue-bloods-cameo-unlikely/
+
+Tom Selleck's return as Frank Reagan in Boston Blue season 2 seems unlikely amid his difficult feelings on Blue Bloods' cancellation.
+---------
+
+# After Just 10 Days, Spider-Man: Brand New Day Is Bigger Than The MCU's Last 3 Movies Combined
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe, Box Office
+
+Mon, 10 Aug 2026 21:20:11 GMT
+
+https://screenrant.com/spiderman-brand-new-day-box-office-bigger-mcu-movies-combined/
+
+Spider-Man: Brand New Day is doing so well at the box office that it has already outgrossed the MCU's last three movies combined in just 10 days.
+---------
+
+# New 19-Book Crime Series Adaptation Instantly Dominates Streaming Despite Lackluster Reviews
+
+TV, Masked Recs
+
+Mon, 10 Aug 2026 21:18:20 GMT
+
+https://screenrant.com/anna-pigeon-series-lackluster-reviews-fandango-streaming-success-august-2026/
+
+TV's latest crime series adapting a decades-spanning book franchise is already dominating streaming charts in spite of facing poor reviews.
+---------
+
+# Reacher Enters A New Era This Week With Biggest Season Yet
+
+Streaming TV, Reacher
+
+Mon, 10 Aug 2026 21:13:39 GMT
+
+https://screenrant.com/prime-video-reacher-season-4-release-august-2026/
+
+Prime Video's best action thriller series is coming back with new episodes this week, and it will mark the start of its most intense era yet.
+---------
+
+# 8 Years Later, The Walking Dead Reveals What Negan Really Thinks About Rick Grimes
+
+Streaming TV, Masked Recs
+
+Mon, 10 Aug 2026 21:12:11 GMT
+
+https://screenrant.com/the-walking-dead-negan-rick-grimes-insult/
+
+Rick and Negan had one of the most heated feuds in The Walking Dead, and eight years later, Negan has revealed his true thoughts on his former foe.
+---------
+
+# Tim Burton’s Fantasy Remake Slammed As An “Insult” By Original Star Is Back & Crushing Global Streaming Charts
+
+Movies, Masked Recs
+
+Mon, 10 Aug 2026 21:05:25 GMT
+
+https://screenrant.com/tim-burton-charlie-chocolate-factory-remake-gene-wilder-insult-netflix-streaming-success-august-2026/
+
+Tim Burton has created movies like Beetlejuice and Sweeney Todd. One of his fantasy films from 20+ years ago has found renewed streaming success.
+---------
+
+# Every Actor Cast In The Legend Of Zelda Movie, & Which Game Character They're Playing
+
+New Movies, The Legend of Zelda
+
+Mon, 10 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/legend-of-zelda-live-action-movie-cast-actors-game-characters/
+
+Sony and Nintendo's live-action The Legend of Zelda movie has assembled a notable cast, with the actors tasked with playing major game characters.
+---------
+
+# The Pokémon MMO We Always Wanted Has Arrived
+
+Gaming, Pokemon, PC, Nintendo, Nintendo Switch
+
+Mon, 10 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/pokemon-mmo-green-trainers-online/
+
+After a very long wait, the Pokémon MMO of our dreams has finally arrived, allowing fans to finally battle each other in one shared world.
+---------
+
+# The Last Of Us Meets Dead Island In New Free PlayStation Plus Hit
+
+Gaming, The Last of Us, Dead Island, PlayStation, PlayStation Plus, Dying Light, Dying Light 2 Stay Human
+
+Mon, 10 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/playstation-plus-last-of-us-meets-dead-island/
+
+Fans of The Last of Us and Dead Island will absolutely want to check out this massive free game on PlayStation Plus that users are loving.
+---------
+
+# Taylor Sheridan's New #1 Show With Its Best Cast Makes Yellowstone Look Small
+
+Streaming TV, Masked Recs
+
+Mon, 10 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/taylor-sheridan-lioness-best-cast-yellowstone-small/
+
+Taylor Sheridan's returning three-season show is much bigger in scope and scale than Yellowstone is, and it features an even better star-studded cast.
+---------
+
+# Fox's New House Replacement Jumps to #3 on Netflix Ahead of New Episodes
+
+TV, Best Medicine, Netflix, House
+
+Mon, 10 Aug 2026 21:30:15 GMT
+
+https://www.cbr.com/best-medicine-medical-netflix-success-august-2026/
+
+Fox's medical series is a Netflix streaming hit.
+---------
+
+# Star Trek V: The Final Frontier Gave Kirk the Best Quote in Sci-Fi History
+
+Movies, Star Trek V: The Final Frontier
+
+Mon, 10 Aug 2026 21:30:15 GMT
+
+https://www.cbr.com/star-trek-v-the-final-frontier-captain-kirk-greatest-quote-sci-fi-history/
+
+Captain James T. Kirk is an iconic sci-fi hero, and in what's seen as Star Trek's 'worst' movie, he delivers his and, possibly sci-fi's greatest line.
+---------
+
+# Every Batman Cartoon In Chronological Order
+
+TV, Batman, Animation, DC Comics
+
+Mon, 10 Aug 2026 21:30:15 GMT
+
+https://www.cbr.com/batman-every-animated-series-chronological-order/
+
+From Brave and the Bold's light-hearted adventures to the renowned hit Batman: The Animated Series, Batman has many great cartoons to his name.
+---------
+
+# Amy Poehler's Parks & Recreation Replacement Finally Sets Release Date
+
+TV, Parks and Recreation, amy poehler
+
+Mon, 10 Aug 2026 21:27:26 GMT
+
+https://www.cbr.com/amy-poehler-dig-peacock-release-date/
+
+Amy Poehler's next hotly-anticipated series finally has a release date, and fans won't have to wait long before they can stream it on Peacock.
+---------
+
+# The Free-to-Play Game With 100 Million Daily Players and a 18-Minute Sci-Fi Streaming Gem
+
+Games, Secret Level, Video Games, Mobile
+
+Mon, 10 Aug 2026 21:15:15 GMT
+
+https://www.cbr.com/free-to-play-game-sci-fi-streaming-gem/
+
+Secret Level dove deep into some of the most interesting and undiscovered stories in gaming, and it did very well with this popular franchise.
+---------
+
+# Tedde Moore, A Christmas Story Actress, Dies at 79
+
+Movies, A Christmas Story, obituary
+
+Mon, 10 Aug 2026 21:11:50 GMT
+
+https://www.cbr.com/tedde-moore-dead/
+
+Tedde Moore, best known for playing Ralphie's teacher in A Christmas Story, has passed away.
+---------
+
+# New Harry Potter Star Breaks Silence on J.K. Rowling's Controversial Views: 'Strongly Disagree'
+
+TV, Harry Potter, J.K. Rowling
+
+Mon, 10 Aug 2026 21:09:53 GMT
+
+https://www.cbr.com/harry-potter-bel-powley-jk-rowling-views/
+
+So far, several new Harry Potter actors addressed their different views.
+---------
+
+# NBC's Hit 11-Season Comedy That Kicked Off a Franchise Is 1 of the Most-Watched Shows on Digital
+
+TV, NBC, Peacock, Cheers
+
+Mon, 10 Aug 2026 21:01:14 GMT
+
+https://www.cbr.com/nbc-hit-11-season-comedy-cheers-most-watched-streaming-shows/
+
+One the most awarded and iconic shows of all-time, Cheers, is suddenly taking over streaming.
+---------
+
+# 5 Near-Perfect Western Movies on Free Streaming Now
+
+Movies, Western, The Good, the Bad and the Ugly, Clint Eastwood
+
+Mon, 10 Aug 2026 21:01:14 GMT
+
+https://www.cbr.com/near-perfect-western-movies-free-streaming-list/
+
+The Western has given audiences some of the greatest movies ever made, and Tubi has a small treasure trove perfect for Wild West fans.
+---------
+
+# One Piece Is Officially Copying Pokémon On August 22
+
+Games, One Piece, Pokemon, Pokemon Trading Card Game
+
+Mon, 10 Aug 2026 20:46:15 GMT
+
+https://www.cbr.com/one-piece-tcg-official-pokemon-rule-change-august-22/
+
+The owners of the One Piece Card Game are taking a cue from The Pokémon Company and are cracking down on scalpers and people buying up stock.
+---------
+
+# 'Obsession' Officially Takes Down Tom Hardy's Sci-Fi Franchise Ender at the Box Office
+
+Movie News, Obsession, Venom: The Last Dance, Tom Hardy, Box Office
+
+Mon, 10 Aug 2026 21:31:14 GMT
+
+https://collider.com/obsession-box-office-475-million/
+
+Obsession breaks box office records, surpassing Venom and gaining awards buzz. Discover its impact on cinema today.
+---------
+
+# ‘Reacher’ Season 4 Officially Changes Alan Ritchson’s Prime Video Series, Plus 5 Things We Learned From Set
+
+Collider Signature, Reacher, Alan Ritchson, Prime Video, Lee Child
+
+Mon, 10 Aug 2026 21:31:14 GMT
+
+https://collider.com/reacher-season-4-set-visit-alan-ritchson-interview/
+
+Reacher Season 4 takes Alan Ritchson to Philadelphia with new enemies, more fights, and a mystery that puts Jack Reacher on the back foot.
+---------
+
+# ‘Die Hard’ Meets ‘Olympus Has Fallen’ in Overlooked Actioner Seeking Redemption on HBO Max
+
+Movie News, Cleaner, Daisy Ridley, Martin Campbell, HBO Max
+
+Mon, 10 Aug 2026 21:31:14 GMT
+
+https://collider.com/daisy-ridley-cleaner-streaming-hbo-max-august-2026/
+
+An overlooked action movie directed by James Bond veteran Martin Campbell and starring Daisy Ridley is now streaming on HBO Max.
+---------
+
+# 10 Most Beloved Thrillers of the 21st Century
+
+Movie, Thriller, Mulholland Drive, Parasite, Obsession
+
+Mon, 10 Aug 2026 21:31:14 GMT
+
+https://collider.com/most-beloved-thriller-movies-21st-century/
+
+From Gone Girl to Get Out, these fan-favorite thriller movies have become some of the most universally beloved pictures of the 21st century so far.
+---------
+
+# 10 Great Movies You Didn't Realize Were Based on Books
+
+Movie, Goodfellas, Vertigo, Schindler's List, Crouching Tiger, Hidden Dragon
+
+Mon, 10 Aug 2026 21:05:14 GMT
+
+https://collider.com/best-movies-actually-based-on-books/
+
+Classic movies like Goodfellas, Vertigo, and Eyes Wide Shut have all exceeded the popularity of the more obscure books they were based on.
+---------
+
+# Anya Taylor-Joy’s ‘Ex Machina’ Meets ‘Jason Bourne’ Sci-Fi Mistake Is Officially Streaming on HBO Max
+
+Movie News, Anya Taylor-Joy, Morgan, HBO Max, Sci-Fi
+
+Mon, 10 Aug 2026 21:00:15 GMT
+
+https://collider.com/anya-taylor-joy-morgan-streaming-hbo-max/
+
+Anya Taylor-Joy’s $8M sci-fi thriller resurfaces as streaming surprise — what's the hidden truth behind this unexpected comeback?
+---------
+
+# ‘Arrival’ Meets ‘Alien’ in Overlooked Sci-Fi Stunner Officially Streaming on Hulu
+
+Movie News, Kaitlyn Dever, No One Will Save You, Sci-Fi, Hulu
+
+Mon, 10 Aug 2026 21:00:15 GMT
+
+https://collider.com/kaitlyn-dever-sci-fi-no-one-will-save-you-streaming-hulu-august-2026/
+
+The overlooked sci-fi film No One Will Save You, starring Kaitlyn Dever, is officially streaming on Hulu. Here's everything you should know.
+---------
+
+# New '70s Crime Thriller Officially Brings Jon Hamm Back to TV Next Month
+
+TV News, American Hostage, Jon Hamm, Giovanni Ribisi, William Jackson Harper
+
+Mon, 10 Aug 2026 20:56:41 GMT
+
+https://collider.com/american-hostage-trailer-jon-hamm-release-date-mgm-plus/
+
+Watch the American Hostage trailer starring Jon Hamm and Giovanni Ribisi ahead of the true-story thriller’s September 20 premiere on MGM+.
+---------
+
+# 10 Most Intense Movies of the Last 10 Years
+
+Movie, The Substance, 10 Cloverfield Lane, Hereditary, Uncut Gems
+
+Mon, 10 Aug 2026 20:48:14 GMT
+
+https://collider.com/most-intense-movies-last-10-years-ranked/
+
+From The Substance to The Invisible Man, these movies from the last decade push the limits of intensity with their relentless narratives and visuals.
+---------
+
+# 3 Greatest Series to Binge on Netflix This Week
+
+TV, The Witcher, Heartstopper, Baby Reindeer, Netflix
+
+Mon, 10 Aug 2026 20:47:14 GMT
+
+https://collider.com/netflix-shows-binge-week-august-10-2026/
+
+Baby Reindeer, The Witcher, and Heartstopper make up our list of the best shows to watch on Netflix the week of August 10th, 2026.
+---------
+
+# What Happens to Ulf in 'House of the Dragon'? His Book Fate, Explained
+
+Features, House of the Dragon, HBO Max, Fantasy
+
+Mon, 10 Aug 2026 21:19:31 GMT
+
+https://movieweb.com/ulf-house-of-the-dragon-book-fate-tv-changes/
+
+Ulf White has become one of the most entertaining characters on 'House of the Dragon.' Where is his story going?
+---------
+
+# Steamy 78-Episode 'Game of Thrones' Knockoff Arrives on Free Streaming
+
+TV News, Reign, Coming/Leaving Streaming, Game of Thrones, Pluto TV
+
+Mon, 10 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/reign-game-of-thrones-replacement-streaming-free-pluto-tv-august-2026/
+
+With 'House of the Dragon' Season 3 now over, this four-season replacement is the perfect binge-watch on free streaming.
+---------
+
+# Jason Statham's Biggest Ever Action Thriller Is Still a Streaming Smash
+
+Features, The Meg, Jason Statham
+
+Mon, 10 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/jason-statham-the-meg-streaming-hit/
+
+Jason Statham has starred in many memorable and popular action thriller movies, and this film is still popular.
+---------
+
 # 12 Funniest Characters From '90s Sitcoms
 
 Classic TV
