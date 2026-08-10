@@ -1,3 +1,201 @@
+# After 19 Years, Marvel Is Finally Bringing Spider-Man And MJ Back Together
+
+Comics, Spider-Man, Marvel
+
+Mon, 10 Aug 2026 18:41:21 GMT
+
+https://screenrant.com/mj-loves-spider-man-new-marvel-book/
+
+Marvel is finally bringing back Spider-Man's most iconic romance with MJ in this new 2027 release that every Spider-Man will not want to miss.
+---------
+
+# How Many Dragons Survive The Dance Of The Dragons (& What Happens To Them)
+
+Streaming TV, House of the Dragon, Game of Thrones
+
+Mon, 10 Aug 2026 18:30:11 GMT
+
+https://screenrant.com/how-many-dragons-survive-in-house-dragon/
+
+House of the Dragon centers around the Targaryen civil war: the Dance of Dragons. Here is every dragon that survives the major conflict in Westeros.
+---------
+
+# 4 Years After Cancellation, The Expanse Returns in December With Its Post-Season 6 Continuation
+
+Comics, The Expanse
+
+Mon, 10 Aug 2026 18:13:54 GMT
+
+https://screenrant.com/the-expanse-return-omnibus-details/
+
+Despite its impressive 6-season run, plenty of fans were still left wanting more. Luckily, this December, The Expanse is returning in a massive way.
+---------
+
+# Miles Morales Is Back As Spider-Man, And His Return Already Looks Perfect
+
+Comics, Miles Morales, Spider-Man, Marvel
+
+Mon, 10 Aug 2026 18:11:15 GMT
+
+https://screenrant.com/miles-morales-spider-man-return-marvel/
+
+Miles Morales is officially back as Marvel's Spider-Man in a new series that looks perfect. Here is everything you need to know about it.
+---------
+
+# Stranger Things Meets The Expanse In Disney+'s 8-Part Sci-Fi Series
+
+TV, Masked Recs
+
+Mon, 10 Aug 2026 18:01:11 GMT
+
+https://screenrant.com/skeleton-crew-disney-stranger-things-meets-the-expanse/
+
+Nostalgic '80s friendship energy collides with space opera scale as kids hop planets while forming deep bonds in this Stranger Things-style series.
+---------
+
+# HBO's Highly Anticipated New 8-Part Crime Thriller Series Releases This Week
+
+Streaming TV, Masked Recs
+
+Mon, 10 Aug 2026 17:55:47 GMT
+
+https://screenrant.com/lanterns-hbo-crime-thriller-series-release-dc-universe/
+
+HBO's new crime thriller series is one of its most anticipated releases of the year, and the gritty detective show will finally debut this week.
+---------
+
+# Hellboy Returns With Two Brand-New Series Confirmed
+
+Comics, Hellboy
+
+Mon, 10 Aug 2026 18:40:29 GMT
+
+https://www.cbr.com/hellboy-nothing-but-blood-parade-of-horrors-release-dates-confirmed/
+
+Aw, crap, Hellboy's back.
+---------
+
+# The Odyssey Officially Gets An Epic Sci-Fi Twist After Christopher Nolan's Movie
+
+Comics, The Odyssey, Christopher Nolan
+
+Mon, 10 Aug 2026 18:33:41 GMT
+
+https://www.cbr.com/the-odyssey-officially-gets-epic-sci-fi-twist-after-christopher-nolan/
+
+This is The Odyssey like you've never, ever seen it before.
+---------
+
+# Jon Hamm's New 8-Part Crime Drama From The Night Agent Creator Unveils High-Stakes Trailer
+
+TV, American Hostage, MGM+, Jon Hamm
+
+Mon, 10 Aug 2026 18:17:39 GMT
+
+https://www.cbr.com/american-hotage-trailer-jon-hamm-crime-drama/
+
+Jon Hamm stars in American Hostage, a new crime thriller coming out Sep. 20.
+---------
+
+# 10 Must-Watch Supernatural Anime Series That Have Zero Bad Arcs
+
+Anime, Mob Psycho 100, Frieren: Beyond Journey's End, Fullmetal Alchemist: Brotherhood
+
+Mon, 10 Aug 2026 18:15:15 GMT
+
+https://www.cbr.com/supernatural-anime-series-zero-bad-arcs/
+
+Supernatural anime thrives on unpredictability, with series like Mob Psycho 100 and Frieren: Beyond Journey's End perfectly executing their stories.
+---------
+
+# Just 1 Day After Finale, House of the Dragon Season 3 Sets 4K Blu-ray Release Date
+
+TV, House of the Dragon, Fantasy, HBO Max
+
+Mon, 10 Aug 2026 17:46:25 GMT
+
+https://www.cbr.com/house-of-the-dragon-season-3-blu-ray-4k/
+
+House of the Dragon Season 3 is coming home.
+---------
+
+# Paramount+ Officially Revives Gary Oldman’s 12-Year-Old Cyberpunk Reboot
+
+Movie News, RoboCop, Gary Oldman, Paramount Plus
+
+Mon, 10 Aug 2026 18:30:15 GMT
+
+https://collider.com/gary-oldman-cyberpunk-reboot-robocop-paramount-streaming-sucess-august-2026/
+
+Gary Oldman and Joel Kinnaman's cyberpunk reboot, RoboCop, surges on Paramount+ 12 years after its theatrical release.
+---------
+
+# This Star Trek Episode Was Actually a 23-Hour Nightmare to Film [Exclusive]
+
+TV News, Star Trek: The Next Generation, Gates McFadden, Star Trek, Fan Expo
+
+Mon, 10 Aug 2026 18:15:15 GMT
+
+https://collider.com/star-trek-the-next-generation-series-finale-all-good-things-gates-mcfadden/
+
+Star Trek: The Next Generation's last episode couldn't have come any sooner for Gates McFadden. Read on for more.
+---------
+
+# Marvel Officially Confirms The Punisher's Past Is Coming Back to Haunt Him
+
+Books and Comics News, Marvel Comics, The Punisher, Superhero, Punisher
+
+Mon, 10 Aug 2026 17:45:15 GMT
+
+https://collider.com/punisher-2026-issue-7-preview-images-collateral-damage-marvel-comics/
+
+Marvel Comics shared a preview of The Punisher #7 that has Frank Castle in the sights of a new villain with a connection to the vigilante's past.
+---------
+
+# 25 Years Later, Bradley Cooper’s Cult Classic Masterpiece Officially in Talks for New Revival at Netflix
+
+Movie News, Bradley Cooper, Wet Hot American Summer
+
+Mon, 10 Aug 2026 18:37:04 GMT
+
+https://movieweb.com/wet-hot-american-summer-bradley-cooper-netflix-sequel/
+
+Bradley Cooper cult classic officially in talks for new revival at Netflix.
+---------
+
+# Apple TV Finally Moving Forward With Supernatural Thriller 9 Years in the Making
+
+TV News, Apple TV, Alfonso Cuarón
+
+Mon, 10 Aug 2026 18:25:44 GMT
+
+https://movieweb.com/apple-tv-alfonso-cuaron-ascension-tv-series/
+
+This new Apple TV series 'Ascension' is another joint collaboration with Oscar-winning director Alfonso Cuarón.
+---------
+
+# 'Spider-Man' Star's New 100%-Rated Crime Thriller Wages War on Streaming
+
+Movie News, Wardriver, Hot on Streaming, Dane DeHaan, Thriller
+
+Mon, 10 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/wardriver-dane-dehaan-thriller-streaming-paramount-august-2026/
+
+'Spider-Man's Dane DeHaan stars in a crime thriller you've never heard of that's come from behind to become a streaming hit.
+---------
+
+# Every Tom Hardy Action Movie, Ranked
+
+Movie Lists, Tom Hardy, Venom, Mad Max, Batman, Havoc
+
+Mon, 10 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/every-tom-hardy-action-movie-ranked/
+
+Tom Hardy has starred in several memorable action movies over his career, and this is a ranking of every single one.
+---------
+
 # Kurt Russell's New Crime Thriller Gets New Look After Near-Perfect Rotten Tomatoes Score
 
 Movies, The Rivals of Amziah King
