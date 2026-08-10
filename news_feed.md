@@ -1,3 +1,201 @@
+# 12 Funniest Characters From '90s Sitcoms
+
+Classic TV
+
+Mon, 10 Aug 2026 20:30:11 GMT
+
+https://screenrant.com/funniest-90s-sitcom-characters/
+
+These are 12 unforgettable comedic performances from some of the best sitcoms of the 1990s, from neurotic rants to absurd physical comedy.
+---------
+
+# 10 Praiseworthy Supernatural Thriller Movies No One Ever Talks About
+
+Movies, The Mothman Prophecies, Stir of Echoes, The Autopsy of Jane Doe, Oculus, Malevolent, The Ritual, Deliver Us from Evil, The Changeling, The Taking of Deborah Logan, Lake Mungo
+
+Mon, 10 Aug 2026 20:30:11 GMT
+
+https://screenrant.com/great-supernatural-thriller-movies-no-one-talks-about/
+
+Supernatural thrillers often rely on suspense rather than cheap jump scares, and there are many great titles in the genre you may have missed.
+---------
+
+# Marvel Unveils Brand-New Spider-Man Power, And It’s Absolutely Heartbreaking
+
+Marvel Comics, Spider-Man, Marvel
+
+Mon, 10 Aug 2026 20:18:57 GMT
+
+https://screenrant.com/marvel-spider-man-power-new-heartbreaking/
+
+Spider-Man's brand-new spider power is maybe the saddest superpower that he's ever had, and he wields it with his love for Mary Jane Watson.
+---------
+
+# Scarlett Johansson's Mysterious New Movie Sees Jacob Elordi Circling Role
+
+Movies, Scarlett Johansson, Jacob Elordi
+
+Mon, 10 Aug 2026 20:18:34 GMT
+
+https://screenrant.com/jacob-elordi-joins-scarlett-johansson-scapegoat-ari-aster/
+
+One of Scarlett Johansson's upcoming movies is the A24 thriller Scapegoat, and Jacob Elordi is reportedly in talks to star alongside her.
+---------
+
+# 44 Years Later, The Greatest Opening Line In Sitcom History Is Still Undefeated
+
+TV, Cheers
+
+Mon, 10 Aug 2026 20:02:11 GMT
+
+https://screenrant.com/cheers-greatest-sitcom-opening-line-still-undefeated/
+
+A sardonic barroom exchange unexpectedly introduces a charmingly flawed lead and quietly seeds a warm yet bittersweet decades-long sitcom legacy.
+---------
+
+# Alex Ross and Paul Dini's Shazam! Power of Hope is a Comic You Should Be Reading
+
+Comics, alex ross, Comics You Should Be Reading, Shazam
+
+Mon, 10 Aug 2026 20:30:14 GMT
+
+https://www.cbr.com/alex-ross-shazam-power-of-hope-comic-you-should-be-reading/
+
+Shazam! Power of Hope is a poignant graphic novel by Dini and Ross about heroism and humanity that highlights the best aspects of the DC character.
+---------
+
+# Mel Gibson Confirms Lethal Weapon 5 Plot & Ideal Release Window
+
+Movies, Lethal Weapon 5
+
+Mon, 10 Aug 2026 20:25:54 GMT
+
+https://www.cbr.com/lethal-weapon-5-plot-details-release-update/
+
+Mel Gibson shares a big update on the long-gestating sequel Lethal Weapon 5.
+---------
+
+# 5 Darkest Witch Hat Atelier Secrets Hidden In Plain Sight
+
+Anime, Witch Hat Atelier
+
+Mon, 10 Aug 2026 20:16:15 GMT
+
+https://www.cbr.com/darkest-witch-hat-atelier-secrets-hidden-in-plain-sight/
+
+Witch Hat Atelier is a much darker series than it appears at first glance, but many of its most harrowing secrets hide in plain sight.
+---------
+
+# Coyote vs. Acme: The Looney Tunes Rules They Kept
+
+Movies, Coyote Vs. Acme
+
+Mon, 10 Aug 2026 20:00:15 GMT
+
+https://www.cbr.com/video/coyote-vs-acme-the-looney-tunes-rules-they-kept/
+
+Coyote vs. Acme brings classic Looney Tunes rules to live action, and director Dave Green and Eric Bauza reveal how they pulled it off.Coyote vs Acme hits theaters August 28, 2026.
+---------
+
+# Lord of the Rings Meets H.P. Lovecraft in Elden Ring
+
+Movies, Elden Ring, The Lord of the Rings, H.P. Lovecraft
+
+Mon, 10 Aug 2026 20:00:15 GMT
+
+https://www.cbr.com/elden-ring-combines-lord-of-the-rings-and-lovecraft/
+
+This upcoming film produced by A Game of Thrones' author will blend traditional high fantasy with eldritch horror.
+---------
+
+# X-Men Just Confirmed the Tragic Death of a Fan-Favorite Villain
+
+Comics, sabretooth, X-Men, Wolverine
+
+Mon, 10 Aug 2026 20:00:15 GMT
+
+https://www.cbr.com/uncanny-x-men-33-sabretooth-death-confirmed/
+
+All good things end; the long-time rivalry between Wolverine and Sabretooth may finally be done, as the feral villain crosses into the light.
+---------
+
+# Lost 2005 Sci-Fi Game Expansion Is Finally Playable After 21 Years
+
+Games, Quake
+
+Mon, 10 Aug 2026 19:55:15 GMT
+
+https://www.cbr.com/quake-4-awakening-expansion-found-released/
+
+Quake 4's lone, in-development expansion was canceled before it saw the light of day, but a miraculous coincidence means Awakening is now playable.
+---------
+
+# 'The Witcher' Officially Hit With Major Delay
+
+TV News, The Witcher, Netflix, Henry Cavill, Liam Hemsworth
+
+Mon, 10 Aug 2026 20:30:14 GMT
+
+https://collider.com/the-witcher-season-5-delay-2027-potential-premiere-window/
+
+Season 5 of Netflix's 4-part fantasy series, The Witcher, has been delayed, although filming has reportedly wrapped. Here's all to know.
+---------
+
+# Apple TV’s 10/10 Stephen King-Approved Masterpiece Officially Breaks Past Major Streaming Milestone
+
+TV News, Widow's Bay, Apple TV, Matthew Rhys, Katie Dippold
+
+Mon, 10 Aug 2026 20:15:14 GMT
+
+https://collider.com/widows-bay-apple-tv-masterpiece-streaming-milestone-100-days/
+
+Apple TV's critically acclaimed horror-comedy series, Widow's Bay, has passed a major streaming milestone following its Emmy nomination success.
+---------
+
+# 10 Greatest Anime Thrillers of All Time
+
+TV, Anime, Monster, Paranoia Agent, Parasyte The Maxim
+
+Mon, 10 Aug 2026 20:05:15 GMT
+
+https://collider.com/best-anime-thrillers-all-time-ranked/
+
+From offbeat gems like Odd Taxi to groundbreaking masterpieces like Monster, these are the best, most complex and gripping anime thrillers ever made.
+---------
+
+# ‘House of the Dragon’ Season 3 Officially Ends With a Major Change for Fans
+
+TV News, House of the Dragon, Game Of Thrones, Fantasy, HBO Max
+
+Mon, 10 Aug 2026 20:00:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-finale-imdb-rating/
+
+House of the Dragon Season 3 concludes with one of the series’ highest-rated episodes, setting up an epic final season.
+---------
+
+# Taylor Sheridan's No. 1 Worldwide Action Thriller Is a Must-Watch Series
+
+Features, Taylor Sheridan, Lioness
+
+Mon, 10 Aug 2026 20:00:12 GMT
+
+https://movieweb.com/lioness-taylor-sheridan-streaming-hit-recommendation/
+
+Taylor Sheridan, who created the hit Western TV series 'Yellowstone,' has another hit action thriller series that is a streaming success.
+---------
+
+# 2026's Biggest Sci-Fi Movie Gets New Release After Record-Breaking Success
+
+Movie News, Project Hail Mary, Ryan Gosling, Blu-ray
+
+Mon, 10 Aug 2026 19:58:59 GMT
+
+https://movieweb.com/the-furious-4k-blu-ray-steelbook-limited-edition/
+
+'Project Hail Mary' finally arrives on 4K Ultra HD Blu-ray on Aug. 11.
+---------
+
 # Marvel Completely Reinvents The X-Men With Dark New Team That Breaks One Sacred Franchise Rule
 
 Marvel Comics, X-Men
