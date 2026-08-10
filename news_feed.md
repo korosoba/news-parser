@@ -1,3 +1,91 @@
+# Doctor Who & 007 Are Both Starting New Eras After 60+ Years
+
+Streaming TV, Doctor Who, James Bond
+
+Mon, 10 Aug 2026 23:45:11 GMT
+
+https://screenrant.com/doctor-who-james-bond-uk-franchises-new-era/
+
+Some of the most beloved British IPs ever made are about to undergo major changes, and it could spell the end of an era for these staples of film/TV.
+---------
+
+# A24's New Remake Officially Welcomes Streaming Release This Week After $42 Million Success
+
+Movies, Masked Recs, A24
+
+Mon, 10 Aug 2026 23:33:21 GMT
+
+https://screenrant.com/the-invite-movie-digital-streaming-release-confirmed/
+
+A24's new remake officially sets its digital release on streaming and welcomes new viewers after the comedy became a $42 million box-office success.
+---------
+
+# James Gunn's DCU Enters A New Era This Week
+
+Streaming TV, Lanterns, DC Universe
+
+Mon, 10 Aug 2026 23:30:11 GMT
+
+https://screenrant.com/james-gunn-dcu-new-era-lanterns/
+
+The DCU is about to change genres thanks to an upcoming show, and it could be exactly what the franchise needs to start a new, more successful era.
+---------
+
+# Why Prime Video's New 8-Part Mystery Series With Stellar Rotten Tomatoes Audience Score Has Become A Global Hit
+
+TV, Masked Recs
+
+Mon, 10 Aug 2026 23:15:32 GMT
+
+https://screenrant.com/sterling-point-prime-video-streaming-charts-rise-august-2026/
+
+Prime Video's new mystery series has proven itself a global streaming hit due to its addictive storyline, its talented cast, its darkness, and more.
+---------
+
+# All 6 Mike Flanagan And Stephen King Collaborations (Past & Upcoming)
+
+TV, Stephen King, Mike Flanagan
+
+Mon, 10 Aug 2026 23:15:11 GMT
+
+https://screenrant.com/all-stephen-king-mike-flanagan-movies-tv-shows-upcoming/
+
+Many of Stephen King's books have been considered "unadaptable," but his collaborations with director Mike Flanagan have proven that this is not true.
+---------
+
+# Harry Potter: Defenders of Hogwarts Officially Launches October 2026
+
+Games, Harry Potter
+
+Mon, 10 Aug 2026 23:50:14 GMT
+
+https://www.cbr.com/harry-potter-official-new-game-releasing-october-2026/
+
+An official new Harry Potter game is releasing this October.
+---------
+
+# Jon Cypher, Masters of the Universe and Hill Street Blues Star, Dies at 94
+
+Movies, Hill Street Blues, Masters of the Universe, obituary
+
+Mon, 10 Aug 2026 23:08:59 GMT
+
+https://www.cbr.com/jon-cypher-dead/
+
+Actor Jon Cypher, who had dozens of film and TV roles during his career, has passed away.
+---------
+
+# Prime Video Officially Sets Next Fantasy Series With Ridley Scott
+
+TV News, Prime Video, Ridley Scott, The Wheel of Time, A Court of Thorns and Roses
+
+Mon, 10 Aug 2026 23:30:14 GMT
+
+https://collider.com/prime-video-fantasy-franchise-adaptation-ridley-scott-folk-of-the-air-holly-black/
+
+Over a year after The Wheel of Time's cancellation, Prime Video has set its next fantasy adaptation with Holly Black's Folk of the Air series.
+---------
+
 # Henry Cavill's Upcoming Prime Video Sci-Fi Series Will Make Star Wars Look Small
 
 TV, Masked Recs
