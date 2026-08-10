@@ -1,3 +1,168 @@
+# 6 Years Later, Joel's Final Words In The Last Of Us Part 2 Are Truly Chilling
+
+Gaming, The Last of Us
+
+Mon, 10 Aug 2026 11:00:12 GMT
+
+https://screenrant.com/last-of-us-part-2-joel-final-words/
+
+We explore the impact of Joel's last words in The Last of Us Part II six years later.
+---------
+
+# It's Official: GTA 6 Will Be Unplayable For Millions Under New Restrictions
+
+Gaming, Grand Theft Auto 6, PC
+
+Mon, 10 Aug 2026 10:45:46 GMT
+
+https://screenrant.com/gta-6-australia-age-verifcation-official/
+
+With Grand Theft Auto 6's release imminent, unfortunately, millions of players will be unable to play it due to new restrictive policies.
+---------
+
+# Pokémon Officially Unveils Beautiful Meowth Redesign For 30th Anniversary
+
+Gaming, Pokemon
+
+Mon, 10 Aug 2026 10:30:11 GMT
+
+https://screenrant.com/pokemon-meowth-redesign-30th-anniversary/
+
+Discover Meowth's stunning redesign for Pokémon's 30th anniversary and the new TCG cards launching soon.
+---------
+
+# Xbox Is Officially Leaving Millions Of Gamers Behind In August 2026
+
+Gaming, Xbox, Xbox Series X/S
+
+Mon, 10 Aug 2026 10:04:19 GMT
+
+https://screenrant.com/xbox-age-verification-changes-australia-august-2026/
+
+Xbox is going through a huge transformation right now, but one rule change could leave plenty of players behind before we get to the new era.
+---------
+
+# Picard Showrunner Reveals Unmade Star Trek: Legacy Spinoff’s Worf & Klingon Story
+
+TV, Star Trek: Picard, Star Trek
+
+Mon, 10 Aug 2026 10:00:11 GMT
+
+https://screenrant.com/star-trek-picard-terry-matalas-worf-klingon-legacy-story/
+
+Star Trek: Picard season 3 showrunner Terry Matalas reveals his Worf and Klingon-centric story plans for Star Trek: Legacy at STLV: Trek to Vegas.
+---------
+
+# Disney Officially Announces New FX Series From KPop Demon Hunters Writers
+
+TV, FX, KPop Demon Hunters
+
+Mon, 10 Aug 2026 11:00:15 GMT
+
+https://www.cbr.com/kpop-demon-hunters-writers-new-fx-comedy-drama-series/
+
+The KPop Demon Hunter scribes turn their sights from Korea to tell a comedic new story about an American in London.
+---------
+
+# The Far Side Comics Ranked by Decade: The Best of Gary Larson
+
+Comics, The Far Side
+
+Mon, 10 Aug 2026 11:00:15 GMT
+
+https://www.cbr.com/the-far-side-ranked-by-decade/
+
+From its 1980s peak to the surprising resurgence in the 2020s, see how Gary Larson's genius left a lasting impression on The Far Side fans.
+---------
+
+# Miles Morales Officially Gets a Brand New Day as Spider-Man
+
+Comics, Spider-Man
+
+Mon, 10 Aug 2026 03:59:27 GMT
+
+https://www.cbr.com/miles-morales-brand-new-spider-man-preview/
+
+In a CBR preview of MIles Morales: Spider-Man #1, see the beginning of Miles' next stage as Spider-Man
+---------
+
+# ‘The Wheel of Time’s Next Chapter Officially Gets a Major Update
+
+Gaming News, The Wheel of Time, Prime Video, The Lord of the Rings: The Rings of Power
+
+Mon, 10 Aug 2026 11:00:15 GMT
+
+https://collider.com/the-wheel-of-time-2027-release-war-of-dragon-pre-order-dire-wolf/
+
+The latest The Wheel of Time release, War of the Dragon, is available for pre-orders alongside Dire Wolf's The One Power edition.
+---------
+
+# 10 Non-Fiction Books You Must Read in 2026
+
+Movie, Books, Angela's Ashes (1999), In Cold Blood, Killers of the Flower Moon
+
+Mon, 10 Aug 2026 10:32:14 GMT
+
+https://collider.com/non-fiction-books-must-read-2026/
+
+Non-fiction books might not be exactly popular with mainstream readers, but works like H Is for Hawke and Angela's Ashes are still must-reads in 2026.
+---------
+
+# Final Fantasy's Biggest Game Is Officially Free to Play
+
+Gaming News, Final Fantasy, Nintendo, Fantasy, Nintendo Switch
+
+Mon, 10 Aug 2026 10:30:14 GMT
+
+https://collider.com/final-fantasy-xiv-nintendo-switch-2-release-free-trial-how-to-play/
+
+Final Fantasy XIV has officially launched on Nintendo Switch 2, and its famous free trial is available to try out, too. Here's what we know.
+---------
+
+# 6 Worst Sci-Fi Movies of the 1990s
+
+Movie, Inspector Gadget, The Postman, Star Trek: Insurrection, Memoirs of an Invisible Man
+
+Mon, 10 Aug 2026 10:11:14 GMT
+
+https://collider.com/worst-sci-fi-movies-90s-ranked/
+
+Critical and commercial failures like Inspector Gadget and The Postman are among the worst science fiction movies of the 1990s.
+---------
+
+# 2 Years Later, Tom Hardy’s Sci-Fi Franchise-Ender Is Officially Back on Streaming
+
+Movie News, Tom Hardy, Venom, Venom: The Last Dance, Spider-Man
+
+Mon, 10 Aug 2026 10:01:14 GMT
+
+https://collider.com/tom-hardy-venom-the-last-dance-streaming-disney-plus-august-25-2026/
+
+Tom Hardy’s $1.84 billion superhero trilogy is finally bringing its final chapter to a major streamer, ending an unlikely hit run.
+---------
+
+# Paramount+ Scores Big With Taylor Sheridan Action Thriller Replacement
+
+TV News, SEAL Team, Paramount Plus, Hot on Streaming, Taylor Sheridan, Action
+
+Mon, 10 Aug 2026 10:30:12 GMT
+
+https://movieweb.com/seal-team-action-streaming-success-paramount-august-2026/
+
+Forget Taylor Sheridan's 'Lioness'; this is the action thriller to watch on Paramount+.
+---------
+
+# 'Lethal Weapon 5' Finally Gets First Plot Details Courtesy of Mel Gibson
+
+Movie News, Lethal Weapon 5, Mel Gibson
+
+Mon, 10 Aug 2026 10:05:03 GMT
+
+https://movieweb.com/lethal-weapon-5-plot-details-mel-gibson/
+
+Mel Gibson has shared the first details about the script and plot of 'Lethal Weapon 5,' as the long-awaited action sequel moves closer to reality.
+---------
+
 # The Legend Of Zelda: Glass Of Fate Arrives February 2027
 
 Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
