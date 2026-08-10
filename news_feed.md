@@ -1,3 +1,311 @@
+# Marvel Completely Reinvents The X-Men With Dark New Team That Breaks One Sacred Franchise Rule
+
+Marvel Comics, X-Men
+
+Mon, 10 Aug 2026 19:31:45 GMT
+
+https://screenrant.com/dark-new-xmen-xorcist-break-rule-dark-fantasy/
+
+Marvel introduces a brand-new X-Men team, which gathers one major hero and two powerful former supervillains to fight supernatural threats.
+---------
+
+# Lost Has 121 Episodes, And You Should Watch 120 Of Them
+
+Classic TV, Lost
+
+Mon, 10 Aug 2026 19:30:11 GMT
+
+https://screenrant.com/lost-tv-show-skip-one-episode/
+
+Lost had some really weak episodes throughout its run — they gave Jack's tattoos an origin story — but there's only one that's so bad you can skip it.
+---------
+
+# Morgan’s High Potential Season 3 Return Revealed Ahead Of Era-Changing 2027 Return
+
+TV, High Potential
+
+Mon, 10 Aug 2026 19:27:21 GMT
+
+https://screenrant.com/high-potential-season-3-morgan-return-filming-start-image-kaitlin-olson/
+
+As the hit ABC procedural prepares to enter a new era, in more ways than one, Kaitlin Olson marks her return as High Potential's Morgan Gillory.
+---------
+
+# The Odyssey's Box Office Is A Career-First For Christopher Nolan After 26 Years
+
+Movies, The Odyssey
+
+Mon, 10 Aug 2026 19:23:14 GMT
+
+https://screenrant.com/the-odyssey-movie-box-office-christopher-nolan-billion-dollars-non-batman/
+
+The Odyssey's box office has become one of the most important in Christopher Nolan's career, marking a first for the director after 26 years.
+---------
+
+# Britain’s Stephen King-Inspired Bestseller Officially Getting Adapted By Apple TV
+
+TV, Apple TV
+
+Mon, 10 Aug 2026 19:16:51 GMT
+
+https://screenrant.com/ascension-apple-tv-adaptation-stephen-king-inspiration-caitrona-balfe/
+
+Apple TV is moving forward with an adaptation that will appeal to Stephen King devotees, with major talent in front of and behind the camera.
+---------
+
+# The Game Awards 2026 Date & Time Announced
+
+Gaming, The Game Awards, PC
+
+Mon, 10 Aug 2026 19:13:30 GMT
+
+https://screenrant.com/the-game-awards-2026-date-time-confirmed/
+
+Gaming's most-watched award ceremony, The Game Awards, has officially announced the scheduled air date and time for this year's broadcast.
+---------
+
+# Welcome to Derry S2: The Massacre Changes Pennywise
+
+Featured, Originals, It: Welcome to Derry
+
+Mon, 10 Aug 2026 19:12:23 GMT
+
+https://screenrant.com/video/welcome-to-derry-s2-the-massacre-changes-pennywise/
+
+IT: Welcome to Derry Season 2’s Massacre Explained as the series travels deeper into Derry’s past and puts the infamous Bradley Gang massacre at the center of Pennywise’s next feeding cycle.
+---------
+
+# Marvel Unveils Daredevil's Next Major Villains, And They're Brutal
+
+Marvel Comics, Daredevil
+
+Mon, 10 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/daredevil-next-villains-big-guns-event-punisher-deadpool/
+
+Daredevil's next arc pits Matt Murdock against several street-level criminals he rarely fights directly, including multiple Spider-Man villains.
+---------
+
+# Pokémon's Official New 30th Anniversary Release Covers All Nine Generations
+
+Gaming, Pokemon, Nintendo, Nintendo Switch
+
+Mon, 10 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/pokemon-30th-anniversary-national-pokedex/
+
+Pokémon is set to cover all nine generations in one massive in one absolutely humungous release designed to celebrate the 30th anniversary.
+---------
+
+# Alexander Skarsgård's 'Edward Scissorhands Meets The Shape Of Water' Is Already Impressing Critics
+
+Movies, Masked Recs
+
+Mon, 10 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/wicker-movie-critics-reaction-rotten-tomatoes/
+
+Alexander Skarsgård and Olivia Colman are two of the most accomplished working actors today, and their bizarre fantasy romance is exciting news.
+---------
+
+# The Big Bang Theory's Best Spinoff Returns as an HBO Max Streaming Hit Ahead of New Episodes
+
+TV, Georgie & Mandy's First Marriage, The Big Bang Theory
+
+Mon, 10 Aug 2026 19:30:15 GMT
+
+https://www.cbr.com/georgie-and-mandys-first-marriage-hbo-max-success-august-2026/
+
+The best spinoff of The Big Bang Theory is lighting up the streaming charts all over again, and all while fans wait for its next season to arrive.
+---------
+
+# Transformers Finally Brings Back Canceled Cosmos Toy in New Official Release
+
+Anime, Transformers, Transformers: EarthSpark, merchandise, toys
+
+Mon, 10 Aug 2026 19:21:14 GMT
+
+https://www.cbr.com/transformers-new-legends-earthspark-cosmos-takara-tomy/
+
+Two figures from Transformers: EarthSpark that received a muted U.S. release (or no release at all) are finally set to roll out soon.
+---------
+
+# Backrooms Replacement Officially in the Works With AI Company
+
+Movies, Backrooms, Horror, Artificial Intelligence
+
+Mon, 10 Aug 2026 19:11:18 GMT
+
+https://www.cbr.com/promise-ai-horror-touch-grass/
+
+Backrooms was one of the biggest titles of the year, so naturally, AI is jumping the trend.
+---------
+
+# Michael J. Fox's 7-Season Sitcom Masterpiece Finds a New Life as a Digital Streaming Hit
+
+TV, Family Ties, Comedy, Michael J. Fox
+
+Mon, 10 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/family-ties-michael-j-fox-sitcom-streaming-hit-august-2026/
+
+The popular 1980s sitcom is rising in the streaming charts.
+---------
+
+# The MCU's Best Martial Artists, Ranked
+
+Movies, MCU, Avengers, Daredevil
+
+Mon, 10 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/marvel-cinematic-universe-best-martial-artists-list/
+
+From deadly assassins to mystical monks, these are the Marvel Cinematic Universe's strongest masters of unarmed martial arts.
+---------
+
+# Coyote vs Acme: John Cena Calls Its Release a Win
+
+Movies, Coyote Vs. Acme
+
+Mon, 10 Aug 2026 18:53:44 GMT
+
+https://www.cbr.com/video/coyote-vs-acme-john-cena-calls-its-release-a-win/
+
+Coyote vs Acme stars John Cena and Will Forte reflect on the fan-driven fight that helped bring the shelved movie back to theaters.Coyote vs Acme hits theaters August 28, 2026.
+---------
+
+# Alan Ritchson Officially Returns as Reacher in 48 Hours
+
+TV News, Reacher, Alan Ritchson, Prime Video, Neagley
+
+Mon, 10 Aug 2026 19:45:15 GMT
+
+https://collider.com/alan-ritchson-reacher-season-4-release-date-august-12/
+
+Alan Ritchson is set to reprise his career-defining role as Lee Child's Jack Reacher in the upcoming fourth season of Prime Video's hit series.
+---------
+
+# 10 Best Hong Kong Martial Arts Movies of the 1980s
+
+Movie, Police Story, The 8 Diagram Pole Fighter, Magnificent Warriors, Five Element Ninjas
+
+Mon, 10 Aug 2026 19:41:15 GMT
+
+https://collider.com/best-hong-kong-martial-arts-movies-1980s-ranked/
+
+Some great martial arts movies were made in Hong Kong during the 1980s, including Police Story, Magnificent Warriors, and The Seventh Curse.
+---------
+
+# 'The Odyssey' Slays the Greatest Star Wars Movie of All Time at the Box Office
+
+Movie News, The Odyssey, Box Office, Christopher Nolan, Star Wars: Episode IV - A New Hope
+
+Mon, 10 Aug 2026 19:30:15 GMT
+
+https://collider.com/the-odyssey-box-office-overtakes-star-wars-new-hope/
+
+Christopher Nolan's The Odyssey has surpassed the domestic box office haul of the greatest Star Wars movie ever made. Find out more.
+---------
+
+# 3 Biggest Movies To Watch on Netflix This Week (Aug 10-14)
+
+Movie, Spider-Man: Homecoming, The Last House, Netflix, Asphalt City
+
+Mon, 10 Aug 2026 19:19:15 GMT
+
+https://collider.com/best-netflix-movies-watch-august-10-2026/
+
+Spider-Man: Homecoming, The Last House, and Asphalt City make up our list of the best movies to watch on Netflix the week of August 10th, 2026.
+---------
+
+# 'Law & Order: SVU' Is Officially Marking a New Era for Mariska Hargitay Next Month
+
+TV News, Law & Order, Law & Order: Special Victims Unit, NBC, Mariska Hargitay
+
+Mon, 10 Aug 2026 19:00:15 GMT
+
+https://collider.com/law-order-svu-season-28-mariska-hargitay-marathon-nbc/
+
+Law & Order: SVU returns to NBC with a special Mariska Hargitay marathon celebrating her Emmy-winning performances before Season 28.
+---------
+
+# Netflix's Best 2026 Crime Series Is Crushing the Streaming Charts With 454M Hours Watched
+
+TV Features, His & Hers, Netflix, Jon Bernthal, Tessa Thompson
+
+Mon, 10 Aug 2026 18:56:15 GMT
+
+https://collider.com/netflix-best-crime-series-2026-his-and-hers/
+
+In January 2026, Netflix released one of its most compelling crime thrillers to date in His & Hers starring Jon Bernthal and Tessa Thompson.
+---------
+
+# Spider-Man Star Officially Confirms the Truth Behind That Handshake
+
+Movie News, Spider-Man, Spider-Man: Brand New Day, Jacob Batalon, Tom Holland
+
+Mon, 10 Aug 2026 18:45:15 GMT
+
+https://collider.com/spider-man-brand-new-day-ned-peter-handshake-explained-jacob-batalon/
+
+Spider-Man: Brand New Day star Jacob Batalon has addressed the ending handshake between Ned and Peter, revealing what he thinks it really means.
+---------
+
+# Alexander Skarsgård's Raunchy Fantasy Movie Boasts Magical Rotten Tomatoes Score
+
+Movie News, Alexander Skarsgard, Wicker
+
+Mon, 10 Aug 2026 19:45:17 GMT
+
+https://movieweb.com/wicker-rotten-tomatoes-score/
+
+After the viral trailer, the raunchy new fantasy movie 'Wicker' has debuted a magical score on Rotten Tomatoes.
+---------
+
+# Apple TV's Monsterverse Franchise Officially Expands With Two New Additions
+
+TV News, Apple TV, Monsterverse, Connie Nielsen, Stana Katic
+
+Mon, 10 Aug 2026 19:41:04 GMT
+
+https://movieweb.com/apple-tv-monsterverse-spin-off-connie-nielsen-stana-katic/
+
+Apple TV's Monsterverse added two new actors to its roster to join franchise regular Wyatt Russell.
+---------
+
+# Amy Poehler Returns to TV in First Look at New Adventure Streaming Series
+
+TV News, Dig, Amy Poehler, Peacock, Hugh Laurie, Parks and Recreation
+
+Mon, 10 Aug 2026 19:35:10 GMT
+
+https://movieweb.com/amy-poehler-dig-peacock-parks-recreation/
+
+The team behind 'Parks and Recreation' unites for this new Peacock sitcom.
+---------
+
+# HBO Officially Puts a New Spin on 'Game of Thrones' Season 8
+
+Features, House of the Dragon, Game Of Thrones
+
+Mon, 10 Aug 2026 19:06:41 GMT
+
+https://movieweb.com/house-of-the-dragon-rhaenyra-prince-that-was-promised-arc/
+
+'Game of Thrones' fans may be having déjà vu, as a new storyline seems all too similar to the Daenerys arc in Season 8.
+---------
+
+# 'Beatles' Biopic Star Is Unrecognizable as John Lennon in New Images
+
+Movie News, The Beatles - Four Films
+
+Mon, 10 Aug 2026 18:58:28 GMT
+
+https://movieweb.com/beatles-biopic-john-lennon-images/
+
+New set photos from Sam Mendes' Beatles project offer the clearest look yet at Harris Dickinson as John Lennon.
+---------
+
 # After 19 Years, Marvel Is Finally Bringing Spider-Man And MJ Back Together
 
 Comics, Spider-Man, Marvel
