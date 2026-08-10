@@ -1,3 +1,69 @@
+# The Legend Of Zelda: Glass Of Fate Arrives February 2027
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Mon, 10 Aug 2026 09:35:54 GMT
+
+https://screenrant.com/legend-zelda-glass-fate-fan-game-2027/
+
+The Legend Of Zelda: The Glass Of Fate is a new fan that takes a darker approach than the classic 3D games ever did.
+---------
+
+# Metal Gear Solid 1 Remake Unleashed With Playable Demo
+
+Gaming, Metal Gear Solid
+
+Mon, 10 Aug 2026 09:29:40 GMT
+
+https://screenrant.com/metal-gear-solid-1-fan-remake-playable-demo/
+
+Download the unofficial Metal Gear Solid remake by Maxime THOMAS LE DEORE and relive classic gameplay moments.
+---------
+
+# It's Officially the End of an Era for Netflix's Best 'Bosch' Replacement
+
+TV News, The Lincoln Lawyer, Netflix, Bosch, Michael Connelly
+
+Mon, 10 Aug 2026 09:30:15 GMT
+
+https://collider.com/netflix-bosch-replacement-the-lincoln-lawyer-final-season-release-date/
+
+It's officially the end of an era for Netflix's binge-worth Bosch replacement, which is releasing its final season soon. Here's everything to know.
+---------
+
+# 20 Best Dragons From 'Game of Thrones' and 'House of the Dragon'
+
+TV, Game Of Thrones, House of the Dragon, Fantasy, HBO
+
+Mon, 10 Aug 2026 09:11:14 GMT
+
+https://collider.com/game-of-thrones-house-of-the-dragon-best-dragons/
+
+From Dreamfyre to Drogon, these are the strongest and most powerful dragons from Game of Thrones and House of the Dragon.
+---------
+
+# One of Netflix's Biggest Action Thrillers of All Time Is Officially Getting a Sequel
+
+Movie News, Ad Vitam, Netflix, Action, Thriller
+
+Mon, 10 Aug 2026 09:38:50 GMT
+
+https://movieweb.com/netflix-ad-vitam-sequel-happening-action-thriller/
+
+The 95-minute no-nonsense action thriller is finally getting a follow-up after becoming one of Netflix's biggest streaming hits ever.
+---------
+
+# 'House of the Dragon' Season 3 Finale Review: Finally, the Real Dance Is Here
+
+TV Reviews, House of the Dragon
+
+Mon, 10 Aug 2026 09:04:59 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-episode-8-finale-review-recap/
+
+After a series of fits and starts, the 'House of the Dragon' Season 3 finale barrels the Targaryen civil war forward with a definitive roar.
+---------
+
 # 4 Years Later, One Stoic Reacher Line Remains The Greatest Quote In Crime Thriller History
 
 Streaming TV, Reacher
