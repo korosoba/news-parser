@@ -1,3 +1,333 @@
+# All 9 Members Of Reacher's 110th Special Investigations Unit Explained
+
+Streaming TV, Reacher
+
+Mon, 10 Aug 2026 01:48:09 GMT
+
+https://screenrant.com/reacher-special-investigations-110-unit-members-explained/
+
+Reacher season 2 introduces Jack Reacher's former military team, the 110th Special Investigations Unit, composed of highly-skilled members.
+---------
+
+# Ranking The Odyssey's 6 Most Powerful Characters After Nolan Cut Most Of The Gods
+
+Movies, The Odyssey, Christopher Nolan
+
+Mon, 10 Aug 2026 01:45:11 GMT
+
+https://screenrant.com/the-odyssey-movie-most-powerful-characters-gods-monsters-ranked/
+
+Because Christopher Nolan's The Odyssey keeps the gods in the background, here are the most powerful characters we see that are actually on-screen.
+---------
+
+# 5 Marvel Comics For Everyone To Start With In 2026
+
+Comics, Marvel
+
+Mon, 10 Aug 2026 01:42:33 GMT
+
+https://screenrant.com/best-marvel-comics-start-2026/
+
+Getting into Marvel Comics can be overwhelming, but these self-contained runs and modern starting points make it easier for new readers to jump in.
+---------
+
+# 6 Action TV Characters Stronger Than Jack Reacher
+
+Streaming TV, Reacher
+
+Mon, 10 Aug 2026 01:30:11 GMT
+
+https://screenrant.com/characters-stronger-than-jack-reacher/
+
+Jack Reacher is an action TV icon but while he often appears superhuman, this is not the case, and other action TV show characters are stronger.
+---------
+
+# Tom Hardy's R-Rated Gangster Series Officially Returns With New Episodes Next Month
+
+Streaming TV, Masked Recs
+
+Mon, 10 Aug 2026 01:15:11 GMT
+
+https://screenrant.com/mobland-return-season-2-september-2026/
+
+Tom Hardy’s highly acclaimed R-rated gangster thriller is all set to return soon with a whole new set of episodes and crime drama in September 2026.
+---------
+
+# I Want To Believe That The X-Files' New 2026 Release Can Finally Fix Its $68M Failure
+
+Movies, The X-Files, The X-Files: I Want to Believe
+
+Mon, 10 Aug 2026 01:00:11 GMT
+
+https://screenrant.com/the-x-files-i-want-to-believe-movie-directors-cut-release-fix/
+
+The X-Files is gaining momentum again as Chris Carter's darker director's cut of the franchise’s biggest flop arrives ahead of Ryan Coogler's reboot.
+---------
+
+# Marvel’s Spider-Man 3 Is Now Facing A Much Bigger Challenge
+
+Gaming, Marvel's Spider-Man 3, Marvel's Spider-Man, Spider-Man: Brand New Day
+
+Mon, 10 Aug 2026 01:00:11 GMT
+
+https://screenrant.com/marvels-spider-man-3-brand-new-day-inspiration/
+
+As if Marvel's Spider-Man 3 didn't already have a ton of pressure to succeed, Insomniac's Spider-Man franchise now holds the MCU on its back, too.
+---------
+
+# Star Wars: Starfighter Actor Reveals The Experience That Blew Him Away
+
+Movies, Star Wars: Starfighter
+
+Mon, 10 Aug 2026 00:52:59 GMT
+
+https://screenrant.com/star-wars-starfighter-experience-blew-him-away-aaron-pierre/
+
+Star Wars: Starfighter actor discusses his relationship with his franchise and the experience that made him fall in love with the Star Wars universe.
+---------
+
+# Prime Video's 8-Part Series From Gossip Girl Creators Gets Stellar Audience RT Score
+
+TV, Masked Recs
+
+Mon, 10 Aug 2026 00:47:47 GMT
+
+https://screenrant.com/sterling-point-show-rotten-tomatoes-audience-score/
+
+The creators of Gossip Girl have a new show that premiered on Prime Video, and it already has an outstanding Rotten Tomatoes audience score.
+---------
+
+# It's Official, One Piece Is Over As We Know It
+
+Anime, One Piece, Netflix, Innovation
+
+Mon, 10 Aug 2026 01:50:14 GMT
+
+https://www.cbr.com/one-piece-official-over-as-fans-know-it-netflix-wit-studios/
+
+One Piece is getting a brand-new anime from Netflix, charting a new course for the beloved series.
+---------
+
+# 10 Perfect Mecha Anime Series No One Remembers
+
+Anime, The Big O, Space Runaway Ideon
+
+Mon, 10 Aug 2026 01:45:15 GMT
+
+https://www.cbr.com/perfect-forgotten-mecha-anime-series-list/
+
+Overlooked mecha anime series offer complex storytelling, emotional depth, and unique perspectives that make them worth rediscovering.
+---------
+
+# Netflix's New Crime Hit With 10.8M Hours Streamed Is 1 of the World's Most-Watched Shows
+
+TV, Netflix
+
+Mon, 10 Aug 2026 01:30:15 GMT
+
+https://www.cbr.com/wrath-crime-series-netflix-global-success-august-2026/
+
+The series is perfect for Rocky and The Punisher fans.
+---------
+
+# It's Official, The MCU Just Cast The Mutant Saga's Most Important Hero
+
+Movies, X-Men, MCU, superheroes
+
+Mon, 10 Aug 2026 01:30:15 GMT
+
+https://www.cbr.com/cyclops-casting-mcu-mutant-saga-most-important-hero/
+
+A new member of the X-Men has arrived, and he may be the new "Iron Man" of the MCU's Mutant Saga.
+---------
+
+# 5 Most Useless Jujutsu Kaisen Cursed Techniques, Ranked
+
+Anime, Jujutsu Kaisen
+
+Mon, 10 Aug 2026 01:25:15 GMT
+
+https://www.cbr.com/jujutsu-kaisen-most-useless-cursed-techniques-ranked-list/
+
+The weakest Cursed Techniques in Jujutsu Kaisen are abilities that barely function in combat and rank as the most useless in the series.
+---------
+
+# NBC's Forgotten Emmy-Winning Version of The Odyssey Is Streaming for Free
+
+TV, The Odyssey
+
+Mon, 10 Aug 2026 01:17:13 GMT
+
+https://www.cbr.com/nbc-the-odyssey-tv-series-streaming-tubi-youtube-august-2026/
+
+The TV version of The Odyssey can be streamed for free as Christopher Nolan's new film is playing in theaters.
+---------
+
+# 10 Crunchyroll Anime Series Where Every Episode Is a Masterpiece
+
+Anime, Crunchyroll
+
+Mon, 10 Aug 2026 00:45:15 GMT
+
+https://www.cbr.com/crunchyroll-anime-series-masterpiece-episodes-list/
+
+Crunchyroll anime like Vinland Saga and Frieren deliver emotional depth from beginning to end, with every episode contributing to the narrative.
+---------
+
+# Amazon’s 140-Minute Fantasy Reboot Returns as the No. 1 on Prime Video in the World
+
+Movies, Masters of the Universe, Innovation
+
+Mon, 10 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/masters-of-the-universe-fantasy-prime-video-global-success-august-2026/
+
+The fantasy film didn't find its audience in theaters, but it's thriving on streaming.
+---------
+
+# Elysium Proves Neill Blomkamp Was Perfect For an Alien Sequel
+
+Movies, Elysium, Alien, Neill Blomkamp
+
+Mon, 10 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/elysium-proved-neill-blomkamp-perfect-for-alien-sequel/
+
+13 years ago, Matt Damon starred in a thrilling sci-fi adventure that could have formed the blueprint for a new Alien sequel that wasn't meant to be.
+---------
+
+# 5 Hardest NES RPGs, Officially Ranked
+
+Games, Nintendo, RPG, JRPG
+
+Mon, 10 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/hardest-nes-rpgs-officially-ranked/
+
+The RPG genre may not have been born on the NES, but it produced some of the era's most brutal games, which still challenge fans today.
+---------
+
+# The 10 Best Book Series of All Time, Ranked
+
+TV, Books, The Lord of the Rings, J.K. Rowling, J.R.R. Tolkien
+
+Mon, 10 Aug 2026 01:22:15 GMT
+
+https://collider.com/best-book-series-all-time-ranked/
+
+Discover the best book series that immerse readers in unforgettable worlds and characters, including The Lord of the Rings, Harry Potter, and Dune.
+---------
+
+# HBO’s Disturbing 8-Episode Horror-Comedy Is Too Good To Stay Forgotten
+
+TV Features, The Baby, HBO Max, Horror, Comedy
+
+Mon, 10 Aug 2026 01:20:14 GMT
+
+https://collider.com/the-baby-hbo-horror-comedy-tv-series/
+
+HBO's The Baby is a horror-comedy that delves into the struggles of being a mother but adds a supernatural twist.
+---------
+
+# 10 Best Greek Mythology Movies to Watch After 'The Odyssey'
+
+Movie, The Odyssey, The Return, Ulysses, Hercules
+
+Mon, 10 Aug 2026 00:41:14 GMT
+
+https://collider.com/best-greek-mythology-movies-like-the-odyssey/
+
+Hercules, Clash of the Titans, Troy, The Return, Ulysses, and more make up our list of the best Greek mythology movies to watch after The Odyssey.
+---------
+
+# 'House of the Dragon' Star's Most Overlooked Role Officially Finds a New Streaming Home
+
+TV News, Vanity Fair, Britbox, Streaming, Olivia Cooke
+
+Mon, 10 Aug 2026 00:30:15 GMT
+
+https://collider.com/vanity-fair-2018-streaming-britbox-august-2026/
+
+House of the Dragon and Bridgerton star's team up for this 2018 period drama that's coming to BritBox this month. Here's everything you should know.
+---------
+
+# 2 Marvel Epics Are Officially Conquering Disney+ Worldwide Before 'Avengers: Doomsday'
+
+Movie News, Avengers: Doomsday, Avengers: Infinity War, Avengers: Endgame, Disney+
+
+Mon, 10 Aug 2026 00:15:15 GMT
+
+https://collider.com/avengers-infinity-war-endgame-streaming-success-disney-plus-august-2026/
+
+Four months from release, Avengers: Doomsday is impacting Disney+ on a global stage, sending previous installments up the streaming charts.
+---------
+
+# 10 Netflix Shows That Are Still the Gold Standard
+
+TV, Netflix, Stranger Things, Sense8, The Punisher
+
+Mon, 10 Aug 2026 00:02:15 GMT
+
+https://collider.com/netflix-shows-gold-standard/
+
+Explore the Netflix shows that set the standard for streaming excellence, including Mindhunter, Stranger Things, and Narcos.
+---------
+
+# James Gunn Officially Shuts Down a Major ‘The Batman’ Sequel Rumor
+
+Movie News, James Gunn, The Batman, The Batman Part II, Robert Pattinson
+
+Mon, 10 Aug 2026 00:00:14 GMT
+
+https://collider.com/james-gunn-the-batman-part-2-delay-rumor/
+
+It has been widely reported that The Batman Part II is the second installment in a planned trilogy, and now James Gunn has weighed in.
+---------
+
+# 'Heated Rivalry' Author Dismisses Negativity Surrounding Season 2 Casting
+
+TV News, Heated Rivalry
+
+Mon, 10 Aug 2026 01:29:11 GMT
+
+https://movieweb.com/heated-rivalry-rachel-reid-season-2-casting/
+
+'Heated Rivalry' is facing a new wave of criticism as Season 2 ramps up filming.
+---------
+
+# 2006 Crime Thriller That Broke a Major Box-Office Record Exits Netflix Soon
+
+Movie News
+
+Mon, 10 Aug 2026 01:00:12 GMT
+
+https://movieweb.com/bon-cop-bad-cop-leaving-netflix-august-2026/
+
+Before it leaves Netflix, 'Bon Cop, Bad Cop' is worth revisiting as the Canadian hit that made national history.
+---------
+
+# Tom Hardy’s Steven Spielberg War Series Outshines Every Show in Its Genre
+
+Features, Band of Brothers, Tom Hardy, Steven Spielberg, War
+
+Mon, 10 Aug 2026 01:00:12 GMT
+
+https://movieweb.com/band-of-brothers-tom-hardy-spielberg-miniseries/
+
+Tom Hardy made his small-screen debut in Steven Spielberg's epic HBO saga, commonly known as the best war miniseries ever made.
+---------
+
+# 23 Years Later, Clint Eastwood’s Masterpiece Thriller Hits Harder Than Ever
+
+Features, Clint Eastwood, Mystic River, Thriller
+
+Mon, 10 Aug 2026 00:15:12 GMT
+
+https://movieweb.com/mystic-river-clint-eastwood-holds-up-today/
+
+Two decades after Roger Ebert lauded Clint Eastwood's masterpiece thriller, the gripping crime story still holds up incredibly well in 2026
+---------
+
 # Star Trek’s 2 Captain Pike Actors Finally Cross Over In Real Life
 
 TV, Star Trek, Star Trek: Strange New Worlds
