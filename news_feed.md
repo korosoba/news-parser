@@ -1,3 +1,234 @@
+# Why Netflix's $79.9 Million Live-Action Dragon Movie Has Become A Global Streaming Sensation
+
+Movies, Masked Recs
+
+Mon, 10 Aug 2026 14:45:11 GMT
+
+https://screenrant.com/netflix-dragon-wars-streaming-charts-rise-august-2026/
+
+This live-action dragon movie is trending on Netflix worldwide, becoming one of the biggest streaming hits, and there is a specific reason why.
+---------
+
+# Minecraft Officially Returns October 2026 With Brand-New Release
+
+Gaming, Minecraft, Triple-A Games
+
+Mon, 10 Aug 2026 14:41:42 GMT
+
+https://screenrant.com/minecraft-october-2026-switch-2-release/
+
+Whether you're a current or lapsed Minecraft player, you'll want to mark your calendars for this October, as a brand-new release is coming.
+---------
+
+# The Walking Dead Clarifies When Dead City Season 3 Takes Place In The Franchise Timeline
+
+TV, The Walking Dead: Dead City, The Walking Dead
+
+Mon, 10 Aug 2026 14:37:11 GMT
+
+https://screenrant.com/the-walking-dead-dead-city-season-3-timeline/
+
+The Walking Dead finally clarifies when Dead City season 3 takes place on the franchise timeline by using one important fact about a new character.
+---------
+
+# What Happens To Ulf The White: How He Dies & How House Of The Dragon Rewrites His Story
+
+Streaming TV, House of the Dragon, Game of Thrones
+
+Mon, 10 Aug 2026 14:31:08 GMT
+
+https://screenrant.com/how-ulf-the-white-dies-in-house-of-the-dragon/
+
+House of the Dragon's season 3 finale has major implications for Ulf the White's future in season 4, but may change his fate from the book.
+---------
+
+# How HBO’s Next DC Series Connects To James Gunn’s Superman Sequel Man Of Tomorrow Addressed By Showrunner
+
+TV, Lanterns, DC Universe
+
+Mon, 10 Aug 2026 14:30:28 GMT
+
+https://screenrant.com/hbo-lanterns-series-superman-man-of-tomorrow-connection-dc-showrunner/
+
+Lanterns showrunner Chris Mundy reveals how the HBO DC superhero series connects to James Gunn's upcoming Superman sequel, Man of Tomorrow.
+---------
+
+# Batgirl Officially Debuts New Logo & Costume, Permanently Rewriting Batman Lore
+
+DC Comics, Batgirl
+
+Mon, 10 Aug 2026 14:26:06 GMT
+
+https://screenrant.com/batgirl-new-logo-costume-absolute/
+
+Batgirl's iconic bat chest insignia has just undergone its most radical redesign yet, with DC completely abandoning the bat motif altogether.
+---------
+
+# 22 Years Later, This Game Boy Advance RPG Is Still One Of The Best-Looking Games Ever Made
+
+Gaming, Nintendo Game Boy Advance, Nintendo
+
+Mon, 10 Aug 2026 14:24:11 GMT
+
+https://screenrant.com/best-looking-game-boy-advance-game-minish-cap/
+
+A 20-year-old Game Boy Advance classic is still one of the best-looking video games of all time thanks to its unique aesthetic choices.
+---------
+
+# Arnold Schwarzenegger Still Has Two Of The Top 5 Quotes In Sci-Fi Movie History
+
+Movies, Arnold Schwarzenegger, Sci-Fi, Terminator, Predator
+
+Mon, 10 Aug 2026 14:12:31 GMT
+
+https://screenrant.com/arnold-schwarzenegger-terminator-predator-best-quotes-sci-fi-movies/
+
+Arnold Schwarzenegger still owns two of sci-fi movie history’s most iconic quotes thanks to The Terminator and Predator.
+---------
+
+# 10 Highest-Grossing Horror Movies Since 2000, Ranked By Box Office
+
+Movies, Horror, Ranking
+
+Mon, 10 Aug 2026 14:10:11 GMT
+
+https://screenrant.com/highest-grossing-horror-movies-since-2000-ranked/
+
+Horror has become a massive industry in recent decades, and these are the 10 highest-grossing horror movies since the year 2000.
+---------
+
+# House Of The Dragon Officially Sets New Release With Extended Episodes This December
+
+TV, House of the Dragon, Game of Thrones
+
+Mon, 10 Aug 2026 14:06:28 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-bluray-dvd-release-date/
+
+Warner Bros. Discovery has announced an exciting new release for House of the Dragon arriving in December 2026 with exclusive extended content.
+---------
+
+# Marvel Just Confirmed Spider-Man Fans’ Biggest Fear
+
+Comics, Spider-Man
+
+Mon, 10 Aug 2026 14:30:15 GMT
+
+https://www.cbr.com/amazing-spider-man-1000-delayed/
+
+Spider-Man is in a jam.
+---------
+
+# 10 Best-Written Anime Movies That Set the Absolute Gold Standard
+
+Anime, Studio Ghibli, Makoto Shinkai, Satoshi Kon, Perfect Blue, Spirited Away
+
+Mon, 10 Aug 2026 14:15:16 GMT
+
+https://www.cbr.com/gold-standard-anime-movies-with-best-writing/
+
+Over the years, directors like Hayao Miyazaki, Satoshi Kon and Makoto Shinkai have brought numerous gold standard anime movies to the big screen.
+---------
+
+# Nintendo Officially Makes Switch and Switch 2 Game Free Until August 13
+
+Games, Nintendo
+
+Mon, 10 Aug 2026 14:10:15 GMT
+
+https://www.cbr.com/nintendo-official-free-switch-2-game-august-2026/
+
+Nintendo is offering a completely free game for Switch and Switch 2 for a limited time only.
+---------
+
+# 'Now That’s a Fellowship!' The Lord of the Rings Stars Have Unofficial Reunion Ahead of New Movie
+
+Movies, The Lord of the Rings, Innovation
+
+Mon, 10 Aug 2026 14:01:40 GMT
+
+https://www.cbr.com/the-lord-of-the-rings-actors-unofficial-reunion/
+
+Some of fans' favorite stars from The Lord of the Rings take the time to reunite before the franchise's next most hotly-anticipated entries arrive.
+---------
+
+# Riverdale Star's $22M Slasher Sequel Finds Redemption as an HBO Max Streaming Hit
+
+Movies, The Strangers: Chapter 2, Horror, HBO Max
+
+Mon, 10 Aug 2026 14:00:15 GMT
+
+https://www.cbr.com/the-strangers-chapter-two-streaming-success-hbo-max-august-2026/
+
+One of the worst-reviewed slasher films of 2025 is officially a streaming sensation.
+---------
+
+# Scott Eastwood's WWII Thriller Is Officially Taking Over the World
+
+Movie News, World War II, Lucky Strike, Scott Eastwood, Colin Hanks
+
+Mon, 10 Aug 2026 14:45:15 GMT
+
+https://collider.com/scott-eastwood-world-war-2-thriller-lucky-strike-digital-itunes-success-august-2026/
+
+The WW2 thriller Lucky Strike, starring Scott Eastwood and Colin Hanks, has debuted among the most popular titles on digital.
+---------
+
+# HBO's Greatest Masterpiece Deserves a Remake, and 'X-Files' Gillian Anderson Is the Obvious Choice
+
+Exclusives, Gillian Anderson, Hannah Einbinder, Ladies Night, Teenage Sex and Death at Camp Miasma
+
+Mon, 10 Aug 2026 14:34:11 GMT
+
+https://collider.com/gillian-anderson-sopranos-remake-camp-miasma/
+
+While on Ladies Night, Gillian Anderson and Hannah Einbinder fan cast each other in the franchises of their choice, and discussed making Camp Miasma.
+---------
+
+# 'Star Trek' Icon Officially Returns to Acting After Announcing Retirement
+
+Features, Stuart Fails to Save the Universe, Star Trek, Star Trek: The Next Generation, Wil Wheaton, The Big Bang Theory, Comedy, Sci-Fi, HBO Max
+
+Mon, 10 Aug 2026 14:25:37 GMT
+
+https://movieweb.com/tar-trek-wil-wheaton-returns-big-bang-theory/
+
+Two years after announcing he was stepping away from on-camera acting, 'Star Trek's Wil Wheaton returns to 'TBBT' franchise to help Stuart Bloom.
+---------
+
+# 'House of the Dragon' Season 4: Everything We Know About the Hit HBO Series
+
+Features, House of the Dragon
+
+Mon, 10 Aug 2026 14:05:53 GMT
+
+https://movieweb.com/house-of-the-dragon-season-4-everything-we-know/
+
+In the immortal words of Lin-Manuel Miranda, "Who lives, who dies, who tells House Targaryen's story?"
+---------
+
+# In Just 2 Days, Netflix Lands New #1 Streaming Hit With Original 112-Minute Sci-Fi Thriller
+
+Movie News, The Last House, Netflix, Sci-Fi, Thriller
+
+Mon, 10 Aug 2026 14:00:12 GMT
+
+https://movieweb.com/netflix-last-house-sci-fi-thriller-stream-august-2026/
+
+Clearly, audiences cannot help but be drawn to this twisted mystery.
+---------
+
+# New 'Game of Thrones' Prequel Hailed as an Action-Packed "Spectacle"
+
+TV News, Game of Thrones, Game Of Thrones, A Knight Of The Seven Kingdoms, George R.R. Martin
+
+Mon, 10 Aug 2026 13:54:31 GMT
+
+https://movieweb.com/game-of-thrones-mad-king-prequel-action-packed-spectacle/
+
+The prequel to 'Game of Thrones' opens at the RSC, with George RR Martin attending the opening night
+---------
+
 # JJ Abrams’ End Of Oak Street First Reactions Are Officially In
 
 Movies, The End of Oak Street
