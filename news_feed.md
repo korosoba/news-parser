@@ -1,3 +1,256 @@
+# 10 Best-Selling Books Of All Time
+
+Books
+
+Mon, 10 Aug 2026 15:50:23 GMT
+
+https://screenrant.com/best-selling-books-all-time-explained/
+
+The all-time ranking of bestselling books.
+---------
+
+# Denzel Washington & Robert Pattinson’s New Netflix Heist Movie Here Comes The Flood Delayed To 2027
+
+Movies, Denzel Washington, Robert Pattinson
+
+Mon, 10 Aug 2026 15:47:04 GMT
+
+https://screenrant.com/here-comes-the-flood-denzel-washington-release-window/
+
+Denzel Washington and Robert Pattinson will be starring in a new heist movie together, but new reporting indicates the project has now been delayed.
+---------
+
+# Why Ted Lasso Season 4 Is Trending Worldwide After Its Rotten Tomatoes Audience Score
+
+TV, Ted Lasso
+
+Mon, 10 Aug 2026 15:40:18 GMT
+
+https://screenrant.com/apple-tv-ted-lasso-season-4-streaming-charts-rise-august-2026/
+
+Ted Lasso season 4 recently got its audience score on Rotten Tomatoes, and it helps explain why the Apple TV series has returned as a global hit.
+---------
+
+# NYT Connections Solution And Hints For August 10, 2026
+
+Gaming, Connections, Mobile
+
+Mon, 10 Aug 2026 15:31:14 GMT
+
+https://screenrant.com/nyt-connections-solution-answer-hints-august-10-2026/
+
+There's a mixture of chaos and organized professionalism in today's Connections, creating categories that ask you to imagine ordered ideas together.
+---------
+
+# Power Rangers Unveils New Green Ranger Design Ahead of Tommy Oliver’s Return
+
+Comics, Power Rangers
+
+Mon, 10 Aug 2026 15:28:56 GMT
+
+https://screenrant.com/new-mighty-morphin-power-ranger-green-redesign/
+
+2026 is a huge year for Mighty Morphin Power Rangers’ Tommy Oliver, as the iconic Green Ranger returns in not one, but two new series.
+---------
+
+# Jujutsu Kaisen's Satoru Gojo Is Back With A Brand-New Look
+
+Gaming, Jujutsu Kaisen, Triple-A Games
+
+Mon, 10 Aug 2026 15:09:03 GMT
+
+https://screenrant.com/jujutsu-kaisen-monster-strike-2026-collab/
+
+Fans haven't seen Satoru Gojo for a while, but thanks to a new official release, Jujutsu Kaisen is bringing the character back.
+---------
+
+# 5 Free Steam Games Like The Walking Dead
+
+Gaming, Steam, No More Room in Hell 2, The Walking Dead
+
+Mon, 10 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/5-free-steam-games-like-the-walking-dead/
+
+The Walking Dead is still one of the best zombie adaptations around, but there are still plenty of great games that touch on the same notes.
+---------
+
+# The White Lotus Star to Lead BBC Adaptation of 179-Year-Old Classic Novel
+
+TV, bbc
+
+Mon, 10 Aug 2026 15:44:04 GMT
+
+https://www.cbr.com/bbc-joins-jane-eyre-tv-show-aimee-lou-wood/
+
+The White Lotus star's series adaptation of a classic novel gets a major update.
+---------
+
+# Pokémon's New Official Pokédex Is Finally Complete With 1,025 Pokémon After 30 Years
+
+Anime, Pokemon, merchandise
+
+Mon, 10 Aug 2026 15:36:15 GMT
+
+https://www.cbr.com/pokemon-pokedex-complete-30th-anniversary/
+
+Pokémon finally creates the ultimate reference text for Pokémon masters-in-training for its 30th anniversary.
+---------
+
+# 33 Years Ago, Frasier Delivered the Funniest Line in Sitcom History With Just 2 Words
+
+TV, Frasier, Comedy, Sitcoms
+
+Mon, 10 Aug 2026 15:30:26 GMT
+
+https://www.cbr.com/frasier-funniest-sitcom-line-ever/
+
+Running for an incredible 11 years, Frasier earned its place as the funniest series of the '90s, and just two words captured its hysterical essence.
+---------
+
+# 10 Best Long Anime Like One Piece
+
+Anime, One Piece, shonen anime
+
+Mon, 10 Aug 2026 15:15:15 GMT
+
+https://www.cbr.com/best-long-anime-like-one-piece/
+
+Long-running adventure anime present a leader chasing one specific goal  and a group of allies willing to do whatever it takes to reach that goal.
+---------
+
+# Sam Raimi's 2019 Survival Horror Is Officially Getting a Sequel With Scream & Fear Street Stars
+
+Movies, Crawl, sam raimi, Horror
+
+Mon, 10 Aug 2026 15:13:52 GMT
+
+https://www.cbr.com/sam-raimi-crawl-sequel-cast-mason-gooding-emily-rudd/
+
+An acclaimed horror hit from 2019 is finally getting a sequel, albeit with a new cast.
+---------
+
+# Paramount+'s 10/10 Spy Hit Is 1 of the Most-Watched Shows in the U.S. After Prime Video Takeover
+
+TV, Lioness
+
+Mon, 10 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/taylor-sheriden-lioness-prime-video-success-august-2026/
+
+Taylor Sheridan's can't-miss spy series is taking over the world after being added to both Prime Video and Paramount+.
+---------
+
+# 5 Masterpiece Anime With Better Fights Than JJK
+
+Anime, Jujutsu Kaisen, JoJo's Bizarre Adventure, Hunter x Hunter, Naruto
+
+Mon, 10 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/masterpiece-anime-better-fights-jjk/
+
+Jujutsu Kaisen's fights are tough to surpass, but these five anime feature clashes that viewers will never forget.
+---------
+
+# Everything to Remember About Reacher Before Season 4 Hits Prime Video This Week
+
+TV, Reacher, Prime Video, Crime
+
+Mon, 10 Aug 2026 14:53:41 GMT
+
+https://www.cbr.com/reacher-season-4-everything-to-know/
+
+Ahead of the fourth season of Prime Video's hit series, Reacher, here is everything viewers need to remember about his past adventures.
+---------
+
+# Jon Bernthal's Sleeper Hit Spy Thriller Is Officially Dominating Prime Video
+
+Movie News, Jon Bernthal, The Amateur, Rami Malek, Spider-Man: Brand New Day
+
+Mon, 10 Aug 2026 15:30:15 GMT
+
+https://collider.com/jon-bernthal-spy-movie-the-amateur-prime-video-streaming-success-august-2026/
+
+Jon Bernthal is having a moment with the back-to-back hits The Odyssey and Spider-Man: Brand New Day. His 2025 thriller is enjoying a resurgence.
+---------
+
+# Steven Spielberg's Colossal 4-Part Netflix Series Surges Toward 100M Viewing Hours in 2026
+
+TV Features, The Dinosaurs, Steven Spielberg, Netflix, Morgan Freeman
+
+Mon, 10 Aug 2026 15:27:15 GMT
+
+https://collider.com/the-dinosaurs-netflix-steven-spielberg-2026-streaming-hours/
+
+Steven Spielberg's colossal Netflix docuseries The Dinosaurs has already surged toward 100 million viewing hours in the first half of 2026.
+---------
+
+# New 'Heat' Meets 'The Town' Video Game Adaptation Moving Forward
+
+TV News, 50 Cent, Heat, The Town, video games
+
+Mon, 10 Aug 2026 15:32:05 GMT
+
+https://movieweb.com/payday-video-game-tv-50-cent/
+
+50 Cent is producing a TV adaptation of this long-running series of action video games.
+---------
+
+# 'House of the Dragon' Season 3 Ends With Most Tragic Twist Yet
+
+TV News, House of the Dragon, HBO Max
+
+Mon, 10 Aug 2026 15:10:31 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-finale/
+
+'House of the Dragon's Season 3 finale ended with a gut-wrenching twist.
+---------
+
+# Tom Hardy's Taylor Sheridan-Esque Crime Thriller Sets New Release
+
+TV News, MobLand, Tom Hardy
+
+Mon, 10 Aug 2026 15:05:29 GMT
+
+https://movieweb.com/mobland-season-1-blu-ray-release/
+
+The first season of 'MobLand' is officially coming to Blu-ray, with Paramount Pictures UK scheduling the home media release for September.
+---------
+
+# Thirteen Ghosts: All the Ghosts of the Zodiac, Explained
+
+Movie Lists, Thir13en Ghosts
+
+Mon, 10 Aug 2026 15:00:13 GMT
+
+https://movieweb.com/thirteen-ghosts-every-ghost-explained/
+
+Now a cult favorite among horror fans, renewed interest in 13 Ghosts has led to an exciting future for this once-forgotten horror film from 2001.
+---------
+
+# 10 Actors With the Most Movies in 2026
+
+Movie Lists, The Odyssey, Robert Pattinson, Zendaya Coleman
+
+Mon, 10 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/actors-most-movies-2026/
+
+2026 has seen the release of some incredible and successful movies, including 'The Odyssey' and 'Spider-Man: Brand New Day.'
+---------
+
+# 'House of the Dragon' Season 3 Makes Major Book Change Ahead of "Worthy" Final Season
+
+TV News, House of the Dragon
+
+Mon, 10 Aug 2026 14:55:49 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-fire-and-blood-book-changes/
+
+'House of the Dragon' Season 3 has already seen some changes, and more is on the way.
+---------
+
 # Why Netflix's $79.9 Million Live-Action Dragon Movie Has Become A Global Streaming Sensation
 
 Movies, Masked Recs
