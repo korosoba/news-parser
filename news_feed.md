@@ -1,3 +1,179 @@
+# Henry Cavill's Upcoming Prime Video Sci-Fi Series Will Make Star Wars Look Small
+
+TV, Masked Recs
+
+Mon, 10 Aug 2026 23:01:11 GMT
+
+https://screenrant.com/henry-cavill-warhammer-prime-video-star-wars-lore/
+
+An epic grimdark saga spanning 40 millennia of brutal wars and shifting histories awaits viewers in Henry Cavill's dystopian fantasy show.
+---------
+
+# John Wick's Next Movie Starts A New Era That Could Make Or Break The Keanu Reeves Franchise
+
+Movies, John Wick, Keanu Reeves, Donnie Yen, Caine, John Wick: Chapter 4
+
+Mon, 10 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/john-wick-caine-movie-spinoff-no-keanu-reeves-new-era/
+
+The John Wick universe is ripe for expansion, but time will tell if audiences want to know more or only show up for Keanu Reeves as the Baba Yaga.
+---------
+
+# Marvel Quietly Sets Up The Defenders' Return In Avengers: Secret Wars
+
+Movies, Avengers: Secret Wars, Marvel Cinematic Universe
+
+Mon, 10 Aug 2026 22:45:11 GMT
+
+https://screenrant.com/marvel-defenders-return-avengers-secret-wars-setup/
+
+Although the cast of Avengers: Secret Wars hasn't been announced yet, Marvel has quietly set up the long-awaited return of the Defenders in it.
+---------
+
+# Top 5 Must-Watch Prime Video Shows This Week: August 10–14, 2026
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Mon, 10 Aug 2026 22:45:11 GMT
+
+https://screenrant.com/best-prime-video-shows-to-binge-week-august-10-2026/
+
+Here's what to watch on Prime Video this week: Reacher season 4, Sterling Point, Murder 101, Spider-Noir, and The Chosen In The Wild With Bear Grylls.
+---------
+
+# Prime Video Has Found The Boys' Replacement In New Dark Sci-Fi Series
+
+Streaming TV, Masked Recs
+
+Mon, 10 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/robocop-prime-video-the-boys-replacement/
+
+There is a new science fiction TV show coming to Amazon Prime, and it could be the perfect dark satire to replace The Boys now that it's ended.
+---------
+
+# Crunchyroll Adds 16 New Series Today in Major Platform Update
+
+Anime, Crunchyroll, Bocchi the Rock!, Tougen Anki, Welcome To Demon School Iruma Kun
+
+Mon, 10 Aug 2026 23:05:15 GMT
+
+https://www.cbr.com/crunchyroll-manga-august-update/
+
+Crunchyroll expands its library with 16 new titles, including new entries for Bocchi the Rock!, Tougen Anki and other major fan-favorite series.
+---------
+
+# Apple TV's 10-Part Horror Show With 97% RT Is Returning as a Major Streaming Hit
+
+TV, Widow's Bay, Apple TV, Horror
+
+Mon, 10 Aug 2026 23:00:15 GMT
+
+https://www.cbr.com/widows-bay-apple-tv-10-streaming-milestone-august-2026/
+
+Widow's Bay is celebrating 100 days on Apple TV's top 10 shows.
+---------
+
+# 10 Movies To Watch If You Love Transformers
+
+Movies, Transformers, Sci-Fi, Action
+
+Mon, 10 Aug 2026 23:00:15 GMT
+
+https://www.cbr.com/must-watch-movies-for-fans-of-transformers-list/
+
+Ever since they became a powerhouse of pop culture in the 80s, the Transformers have commanded sci-fi action, and some films are perfect for its fans.
+---------
+
+# Matthew Lillard's Awkward Horror Con Interaction Goes Viral: 'You Lost Me as a Fan'
+
+Movies, Horror
+
+Mon, 10 Aug 2026 22:52:26 GMT
+
+https://www.cbr.com/matthew-lillard-awkward-fan-convention-encounter/
+
+Things got awkward for the Scream star at a recent horror fan convention.
+---------
+
+# ‘Pirates of the Caribbean’ Officially Gets New Release
+
+Movie News, Pirates of the Caribbean, Pirates of the Caribbean: The Curse of the Black Pearl, Pirates of the Caribbean: At World's End, Hans Zimmer
+
+Mon, 10 Aug 2026 23:05:08 GMT
+
+https://collider.com/pirates-of-the-caribbean-soundtrack-vinyl-release-date-september-2026/
+
+Pirates of the Caribbean is officially back next month with a brand new release from Walt Disney Records. Get the details here.
+---------
+
+# Netflix’s 10/10 TV-MA Superhero Series Is Officially Dominating Streaming Charts Again
+
+TV News, Jon Bernthal, The Punisher, Spider-Man: Brand New Day, The Odyssey
+
+Mon, 10 Aug 2026 23:00:15 GMT
+
+https://collider.com/jon-bernthal-the-punisher-itunes-digital-success/
+
+Following the success of Spider-Man: Brand New Day, audiences are revisiting Jon Bernthal's debut as the scene-stealing anti-hero The Punisher.
+---------
+
+# 'House of the Dragon's Biggest Tumbleton Change Gives Season 3 Exactly What It Needed
+
+TV Features, House of the Dragon, HBO, HBO Max, George R.R. Martin
+
+Mon, 10 Aug 2026 22:41:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-finale-tumbleton-book-change-ulf-hugh-betrayal/
+
+House of the Dragon makes a small but pivotal change to the Battle of Tumbleton, reshaping the stakes for Season 4.
+---------
+
+# 3 Perfect Movies To Stream on Prime Video This Week (Aug 10-14)
+
+Movie, Prime Video, Licorice Pizza, Fighting With My Family, Scarface
+
+Mon, 10 Aug 2026 22:34:14 GMT
+
+https://collider.com/best-movies-prime-video-august-10-2026/
+
+Fighting With My Family, Licorice Pizza, and Scarface make up our list of the best movies to stream on Prime Video the week of August 10th, 2026.
+---------
+
+# ‘Spider-Man: Brand New Day’ Officially Makes Box Office History
+
+Movie News, Marvel, Spider-Man: Brand New Day, Box Office, Tom Holland
+
+Mon, 10 Aug 2026 22:30:15 GMT
+
+https://collider.com/spider-man-brand-new-day-box-office-record-india/
+
+Tom Holland's latest Marvel film, Spider-Man: Brand New Day, achieves record-breaking box office success, becoming a global sensation.
+---------
+
+# 12 Years Ago, One of the Raunchiest & Bloodiest Fantasy Shows Made Its Debut
+
+Features, Outlander, Fantasy
+
+Mon, 10 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/outlander-fantasy-show-holds-up/
+
+A beloved fantasy TV show premiered 12 years ago, and it continues to be a stand-out thanks to its premise, characters, and world-building.
+---------
+
+# Disney's New 10/10 Sequel Breaks Franchise Record at the Box Office
+
+Movie News, Toy Story 5, Box Office Milestones
+
+Mon, 10 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/toy-story-5-highest-grossing-sequel/
+
+The future is looking very bright for Disney's tentpole franchise.
+---------
+
 # 9-1-1's Future Hinges On ABC Avoiding A Post-Bobby Nash Mistake
 
 Network TV, 9-1-1
