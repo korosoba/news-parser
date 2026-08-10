@@ -1,3 +1,256 @@
+# JJ Abrams’ End Of Oak Street First Reactions Are Officially In
+
+Movies, The End of Oak Street
+
+Mon, 10 Aug 2026 13:48:26 GMT
+
+https://screenrant.com/the-end-of-oak-street-movie-jj-abrams-anne-hathaway-first-reactions/
+
+The End of Oak Street is already making its mark, as first reactions to J.J. Abrams' new star-studded sci-fi movie give fans an early insight.
+---------
+
+# GOT Fans Are Split Over House Of The Dragon S3 Finale’s Biggest Death Change That GRRM Criticized
+
+TV, House of the Dragon
+
+Mon, 10 Aug 2026 13:40:48 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-finale-death-change-reactions/
+
+House of the Dragon's season 3 finale has left fans divided, as the biggest death change that George R.R. Martin criticized comes to fruition.
+---------
+
+# 12 Years After It Began, The MCU’s Guardians Of The Galaxy Trilogy Is More Important Than Ever
+
+Movies, Marvel Cinematic Universe, Guardians of the Galaxy
+
+Mon, 10 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/mcu-guardians-of-the-galaxy-trilogy-dc-universe-creation-importance/
+
+The MCU's trilogies are all important on some level, but only one is responsible for helping define two major franchises thanks to its story.
+---------
+
+# 6 Classic Sci-Fi Movies From 1982 That Prove It's The Genre's Greatest Year Ever
+
+Movies, Sci-Fi
+
+Mon, 10 Aug 2026 13:20:53 GMT
+
+https://screenrant.com/sci-fi-movies-1982-classics-genre-best-year/
+
+The '80s is arguably the best decade for sci-fi, and the year 1982 saw the release of six of the genre's all-time greats.
+---------
+
+# One Of Netflix's Biggest Action Movies Of All Time Is Officially Getting A Sequel
+
+Movies, Netflix, Ad Vitam
+
+Mon, 10 Aug 2026 13:12:06 GMT
+
+https://screenrant.com/netflix-action-movie-sequel-ad-vitam-2-development-confirmed/
+
+One of Netflix's biggest action movies of all time will officially get a sequel, as new details about the follow-up film are revealed.
+---------
+
+# 10 Classic British Comedies Nobody Talks About
+
+Classic TV, Comedy
+
+Mon, 10 Aug 2026 13:00:12 GMT
+
+https://screenrant.com/classic-british-comedies-nobody-talks-about/
+
+From Spaced to Peep Show to Friday Night Dinner, these underappreciated British TV comedies deserve a lot more love from audiences overseas.
+---------
+
+# Marvel Officially Announces Codename Change for X-Men's Cyclops
+
+Comics, X-Men
+
+Mon, 10 Aug 2026 13:00:12 GMT
+
+https://screenrant.com/x-men-cyclops-new-codename-midnight/
+
+Here's what Cyclops will be called from now on.
+---------
+
+# The Birthday Party Review: Willem Dafoe Can’t Save This Odd, Inert Drama
+
+New Movies, The Birthday Party
+
+Mon, 10 Aug 2026 13:00:12 GMT
+
+https://screenrant.com/the-birthday-party-movie-2025-review/
+
+As great as Willem Dafoe always is, The Birthday Party’s layers of intrigue might’ve worked better if he wasn’t in it quite as much.
+---------
+
+# 3 Greatest RPGs Turning 20 In 2026
+
+Gaming, RPG, Final Fantasy, The Elder Scrolls, Kingdom Hearts II
+
+Mon, 10 Aug 2026 12:54:06 GMT
+
+https://screenrant.com/greatest-rpgs-turning-20-2026/
+
+This year, a number of classic RPGs are turning 20 in 2026. It's hard to believe that some of these incredible games have been around that long.
+---------
+
+# GTA Online's Post-GTA 6 Future Officially Confirmed
+
+Gaming, Grand Theft Auto 5, Grand Theft Auto, Grand Theft Auto 6, Grand Theft Auto Online
+
+Mon, 10 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/gta-online-future-after-gta-6/
+
+Discover GTA Online's future after GTA VI. New content and support will continue! Steady player engagement and update hits keep the cash cow alive.
+---------
+
+# One of Netflix's Biggest Action Thrillers of All Time Is Finally Getting a Sequel
+
+Movies, Ad Vitam, Netflix
+
+Mon, 10 Aug 2026 13:41:43 GMT
+
+https://www.cbr.com/netflix-ad-vitam-sequel/
+
+The action film joined Netflix's prestigious list in just one month after its release.
+---------
+
+# Unlikely X-Men Actor Castings
+
+Comics, X-Men, CSBG, The Line It Is Drawn
+
+Mon, 10 Aug 2026 13:07:06 GMT
+
+https://www.cbr.com/unlikely-x-men-actor-castings/
+
+In a brand-new Line it is Drawn, our artists drew your suggestions for some unusual X-Men actor castings
+---------
+
+# Netflix Is Saying Goodbye to 1 of Its Last The CW Superhero Series
+
+TV, Arrowverse, Black Lightning, Netflix
+
+Mon, 10 Aug 2026 13:00:15 GMT
+
+https://www.cbr.com/black-lightning-superhero-show-leaving-netflix-august-2026/
+
+After losing most of the CW's Arrowverse shows, Netflix is losing yet another superhero show in just a few weeks.
+---------
+
+# Spider-Man: Brand New Day's Best Line Is Already the Greatest Quote in MCU History
+
+Movies, Spider-Man 4, tom holland, MCU
+
+Mon, 10 Aug 2026 13:00:15 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-greatest-quote-in-mcu-history/
+
+One again, Peter Parker has proven that he is the superhero meant to heal the world.
+---------
+
+# The Expanse Officially Returns Years After Its Controversial Cancellation
+
+Comics, The Expanse
+
+Mon, 10 Aug 2026 12:15:15 GMT
+
+https://www.cbr.com/the-expanse-omnibus-release-date-confirmed/
+
+For those who want to catch up on all the extended adventures in The Expanse universe, your time comes this year.
+---------
+
+# Willem Dafoe Breaks Down His Two Very Different Sides in 'Late Fame' and 'The Birthday Party'
+
+Movie, Willem Dafoe, Late Fame, The Birthday Party, Werwulf
+
+Mon, 10 Aug 2026 13:11:47 GMT
+
+https://collider.com/willem-dafoe-late-fame-the-birthday-party-interview/
+
+Willem Dafoe chats with Collider about James Bond and Werwulf ahead of his new movies, Late Fame and The Birthday Party.
+---------
+
+# Anya Taylor-Joy’s "Glorious and Breathless" Sci-Fi Epic Storms HBO Max
+
+Movie News, Anya Taylor-Joy, Furiosa: A Mad Max Saga, Chris Hemsworth, HBO Max
+
+Mon, 10 Aug 2026 13:00:15 GMT
+
+https://collider.com/anya-taylor-joy-sci-fi-epic-furiosa-mad-max-saga-streaming-hbo-max-august-2026/
+
+Director George Miller's Furiosa: A Mad Max Saga, starring Anya Taylor-Joy, is streaming toward Valhalla on HBO Max.
+---------
+
+# 'The Summer I Turned Pretty' Star's Sundance Hit Coming-of-Age Drama Gets Sizzling First Trailer [Exclusive]
+
+Exclusives, Big Girls Don't Cry, Drama, Sundance Film Festival, The Summer I Turned Pretty
+
+Mon, 10 Aug 2026 13:00:15 GMT
+
+https://collider.com/big-girls-dont-cry-trailer/
+
+The official trailer for the coming-of-age drama Big Girls Don't Cry follows Ani Miller's transformative summer of self-discovery with Rain Spencer.
+---------
+
+# Agatha Christie Officially Returns With a New Detective Series Next Year
+
+TV News, A Haunting in Venice, Poirot, Agatha Christie, Mystery
+
+Mon, 10 Aug 2026 12:34:13 GMT
+
+https://collider.com/new-agatha-christie-series-hercule-release-2027/
+
+Agatha Christie's most iconic detective series officially returns next year with a brand-new release.
+---------
+
+# Netflix's New Sci-Fi Thriller Officially Gets a Sequel Update From Wagner Moura
+
+Exclusives, The Last House, Wagner Moura, Netflix, Greta Lee
+
+Mon, 10 Aug 2026 12:23:48 GMT
+
+https://collider.com/netflix-sci-fi-thriller-the-last-house-sequel-wagner-moura/
+
+Wagner Moura has given a very positive update on a potential sequel to his new Netflix sci-fi thriller, The Last House. Read on for more.
+---------
+
+# All 11 Spider-Man Movies, Ranked According to Letterboxd
+
+Movie, Spider-Man, Spider-Man: Brand New Day, Spider-Man: Into The Spider-Verse
+
+Mon, 10 Aug 2026 12:20:15 GMT
+
+https://collider.com/spider-man-movies-letterboxd-ranked/
+
+From Sam Raimi's original Marvel trilogy to Tom Holland's latest outing Brand New Day, here's how Letterboxd users rank every Spider-Man movie.
+---------
+
+# When 'Reacher' Season 4 Releases on Streaming & Full Release Schedule
+
+Features, Reacher, Prime Video, Coming/Leaving Streaming
+
+Mon, 10 Aug 2026 13:00:12 GMT
+
+https://movieweb.com/reacher-season-4-release-schedule/
+
+'Reacher,' the Amazon Prime Video action series starring Alan Ritchson as Jack Reacher and based on Lee Child's book series, returns for Season 4.
+---------
+
+# 'John Wick' Icons Collide Once Again in Brutal New Action Thriller
+
+Movie News, Scott Adkins, Marko Zaror, Action, Thriller
+
+Mon, 10 Aug 2026 12:56:55 GMT
+
+https://movieweb.com/brutal-scott-adkins-marko-zaror-action-thriller/
+
+Underrated action icons Scott Adkins and Marko Zaror are now working on a new action movie.
+---------
+
 # A 2006 PlayStation 2 Classic Is Officially Coming To PlayStation Plus This Month
 
 Gaming, PlayStation 2, Onimusha, Onimusha: Dawn of Dreams
