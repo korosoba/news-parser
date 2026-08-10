@@ -1,3 +1,245 @@
+# Daemon & Corlys’ House Of The Dragon Season 4 Story After Battle Of Tumbleton Teased By Star
+
+TV, House of the Dragon, Game of Thrones
+
+Mon, 10 Aug 2026 16:24:05 GMT
+
+https://screenrant.com/house-of-the-dragon-season-4-daemon-corlys-tumbleton-steve-toussaint/
+
+EXCLUSIVE: One of House of the Dragon's main cast members addresses the complex relationship between Corlys and Daemon and their arc's future.
+---------
+
+# Ted Lasso's New AFC Richmond Stars Address Season 5 & Beyond Chances (Exclusive)
+
+TV, Ted Lasso, Apple TV
+
+Mon, 10 Aug 2026 16:17:23 GMT
+
+https://screenrant.com/ted-lasso-season-5-future-chances-afc-richmond-marsay-hern-mack/
+
+Exclusive: New AFC Richmond stars Faye Marsay, Abbie Hern and Jude Mack address the chances of Ted Lasso season 5 and beyond after its return.
+---------
+
+# Scarlett Johansson's New Crime Thriller Revealed In First Paper Tiger Trailer
+
+Movies, Paper Tiger
+
+Mon, 10 Aug 2026 16:03:21 GMT
+
+https://screenrant.com/paper-tiger-movie-trailer-scarlett-johansson/
+
+A trailer for James Gray's Paper Tiger has been released, revealing new details about the Scarlett Johansson-led crime thriller movie.
+---------
+
+# Zelda: Ocarina Of Time Remake Great Fairy Design Set For Major Change
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda, Nintendo
+
+Mon, 10 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-great-fairy-fears/
+
+The upcoming Zelda remake could alter designs to ensure family-friendly content. Find out why the Fairies might look very different in the remake!
+---------
+
+# It's Always Sunny In Philadelphia Season 18 Review: The LOLs Are Fewer, But The Mischief Is Still Fun
+
+Streaming TV, It's Always Sunny in Philadelphia, It's Always Sunny in Philadelphia - Season 18
+
+Mon, 10 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/its-always-sunny-in-philadelphia-season-18-review/
+
+Though not completely dead in the water, It's Always Sunny in Philadelphia season 18 does show signs of the end potentially being on the horizon.
+---------
+
+# 10 Best Sports Anime For People Who Don't Even Like Sports
+
+Anime, Sports, Kuroko's Basketball, Haikyuu!!, Hajime no Ippo: Rising
+
+Mon, 10 Aug 2026 16:15:15 GMT
+
+https://www.cbr.com/best-sports-anime-for-people-who-hate-sports/
+
+Even people who cringe at the very idea of athleticism can enjoy the biggest masterpieces of the sports anime genre for their outstanding stories.
+---------
+
+# Netflix's New Off Campus Replacement Confirms Mission: Impossible, Marshals & Quantum Leap Stars
+
+TV, Netflix
+
+Mon, 10 Aug 2026 16:13:58 GMT
+
+https://www.cbr.com/netflix-the-sticks-cast-update/
+
+Netflix's Off Campus replacement show unveils full cast and new story details.
+---------
+
+# Star Trek: Deviations: Evermore Goes Goth For Bold New Era
+
+Comics, Star Trek
+
+Mon, 10 Aug 2026 16:01:15 GMT
+
+https://www.cbr.com/star-trek-deviations-evermore-horror-comic/
+
+A comic book that will Poe like no Star Trek story ever has before.
+---------
+
+# 5 Reasons Wrath of Khan Is Still the Greatest Star Trek Movie of All Time
+
+Movies, Star Trek, Star Trek II: The Wrath of Khan, Star Trek: The Original Series
+
+Mon, 10 Aug 2026 16:01:15 GMT
+
+https://www.cbr.com/reason-why-wrath-of-khan-is-the-best-star-trek-movie-list/
+
+Across dozens of films and series, Star Trek is an epic saga with diverse characters and stories, but The Wrath of Khan remains its best one yet.
+---------
+
+# It’s Always Sunny in Philadelphia Season 18 Review: 21 Years Later, the Gang Is Funnier Than Ever
+
+TV, It's Always Sunny in Philadelphia
+
+Mon, 10 Aug 2026 16:00:28 GMT
+
+https://www.cbr.com/its-always-sunny-in-philadelphia-season-18-review/
+
+Season 18 brings 10 episodes of political satire, outrageous schemes and standout work from Glenn Howerton and Kaitlin Olson.
+---------
+
+# 'Avengers: Doomsday' Officially Shows Off New Look at Doctor Doom [Exclusive]
+
+Exclusives, Disney, D23, Avengers: Doomsday, Doctor Doom
+
+Mon, 10 Aug 2026 16:30:14 GMT
+
+https://collider.com/iron-studios-d23-figurines-doctor-doom-walt-disney-images/
+
+Discover a first look at Iron Studios' exclusive figurines at D23, featuring Disney icons and Avengers: Doomsday collectibles.
+---------
+
+# ‘Dragon Ball’ Star Officially Confirms New 2026 Return [Exclusive]
+
+Exclusives, Dragon Ball Super, Dragon Ball Super: Beerus, Dragon Ball, Big Lick Comic Con
+
+Mon, 10 Aug 2026 16:15:15 GMT
+
+https://collider.com/dragon-ball-super-jason-douglas-beerus-return-new-series-fall-release/
+
+Jason Douglas confirmed his return for the new Dragon Ball Super: Beerus anime series and teased a return to the character's more intimidating side.
+---------
+
+# 5 Fantasy Book Masterpieces Better Than The Lord of the Rings
+
+Books and Comics, Fantasy, Books, The Lord of the Rings, Philip Pullman
+
+Mon, 10 Aug 2026 16:12:14 GMT
+
+https://collider.com/fantasy-book-masterpieces-better-than-the-lord-of-the-rings/
+
+The Lord of the Rings set the standard, but fantasy book classics like The Earthsea Cycle prove the genre never stopped evolving.
+---------
+
+# Adam Driver and Scarlett Johansson Officially Reunite in New Crime Thriller Trailer
+
+Movie News, Paper Tiger, Adam Driver, James Gray, Scarlett Johansson
+
+Mon, 10 Aug 2026 16:02:35 GMT
+
+https://collider.com/paper-tiger-trailer-adam-driver-scarlett-johansson/
+
+The first trailer for Adam Driver and Scarlett Johansson's crime thriller Paper Tiger has arrived, following brothers entangled with the Russian mob.
+---------
+
+# Amy Poehler's New 10-Part 'Parks & Rec' Replacement Officially Sets Release Date
+
+TV News, Peacock, Amy Poehler, Hugh Laurie, Geraldine Viswanathan
+
+Mon, 10 Aug 2026 16:01:11 GMT
+
+https://collider.com/peacock-new-amy-poehler-show-dig-release-date-november-2026-first-images/
+
+Peacock has released the first batch of images from its new series, Dig, starring Amy Poehler opposite Hugh Laurie.
+---------
+
+# Jon Hamm Leads First Trailer for New Thriller Based on True Life-Or-Death Story
+
+TV Trailers, American Hostage, Jon Hamm, Crime
+
+Mon, 10 Aug 2026 16:29:58 GMT
+
+https://movieweb.com/jon-hamm-american-hostage-mgm/
+
+Once again, Jon Hamm wears a sharp suit in a period TV show.
+---------
+
+# Shocking 'House of the Dragon' Season 3 Finale Sparks Divisive Reactions
+
+TV News, House of the Dragon
+
+Mon, 10 Aug 2026 16:12:36 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-finale-reactions/
+
+The Season 3 finale gave House of the Dragon one of its biggest battles yet.
+---------
+
+# Anne Hathaway's New Sci-Fi Thriller Hailed as "Best Dinosaur Movie in Decades"
+
+Movie News, The End of Oak Street, Anne Hathaway
+
+Mon, 10 Aug 2026 16:10:59 GMT
+
+https://movieweb.com/end-of-oak-street-first-reactions/
+
+The first reactions to Anne Hathaway's new sci-fi thriller 'The End of Oak Street' have hailed it as the "best dinosaur movie in decades."
+---------
+
+# Liam Neeson's 106-Minute Action Thriller That's Better Than 'Taken' Is a Streaming Smash Hit On Netflix
+
+Movie News, Liam Neeson, In the Land of Saints and Sinners, Hot on Streaming, Action, Thriller, Netflix
+
+Mon, 10 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/in-land-saints-sinners-streaming-hit-netflix-august-2026/
+
+The revenge thriller is officially the actor's highest-rated action movie.
+---------
+
+# 10 Best Coming-of-Age Movies To Watch Like 'The Goonies'
+
+Movie Lists, The Goonies
+
+Mon, 10 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/best-coming-of-age-movies-like-the-goonies/
+
+If you love 'The Goonies,' you should check out these other coming-of-age movies.
+---------
+
+# Every Major House of the Dragon Season 3 Finale Character Death
+
+TV Lists, House of the Dragon, Game of Thrones
+
+Mon, 10 Aug 2026 16:00:10 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-finale-deaths/
+
+House of the Dragon Season 3 comes to a close with another battle episode, and the finale features several major character deaths.
+---------
+
+# Netflix Officially Sets Release Date for Danny Boyle's New Historical Thriller
+
+Movie News, Danny Boyle, Netflix
+
+Mon, 10 Aug 2026 15:52:04 GMT
+
+https://movieweb.com/ink-danny-boyle-thriller-netflix-release-date/
+
+Director/producer Danny Boyle is linked up with Netflix for a new movie centered on a thrilling story based on real-world events.
+---------
+
 # 10 Best-Selling Books Of All Time
 
 Books
