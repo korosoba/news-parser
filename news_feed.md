@@ -1,3 +1,234 @@
+# 9-1-1's Future Hinges On ABC Avoiding A Post-Bobby Nash Mistake
+
+Network TV, 9-1-1
+
+Mon, 10 Aug 2026 22:15:11 GMT
+
+https://screenrant.com/911-season-10-avoid-post-bobby-nash-mistake/
+
+There are many ways 9-1-1 can rebuild itself in its landmark tenth season, even after the controversial death of Bobby Nash, its main character.
+---------
+
+# Netflix's Harry Potter Replacement Sets Up The Fantasy Streaming Battle Of The Decade
+
+TV, Masked Recs
+
+Mon, 10 Aug 2026 22:02:11 GMT
+
+https://screenrant.com/one-piece-netflix-harry-potter-fantasy-streaming-battle/
+
+Netflix's sprawling epic has endless lore, and the franchise's new live action momentum positions itself as a streaming rival to HBO's Harry Potter.
+---------
+
+# After 47 Years, Gundam Is Breaking Its Most Sacred Rule, And We Finally Know Why (Exclusive)
+
+Anime, Gundam
+
+Mon, 10 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/gundam-rg-xarx-zero-aliens-break-sacred-rule/
+
+Gundam is breaking its biggest rule for the franchise's upcoming anime. In an exclusive Screen Rant interview, director Kenji Kamiyama explained why.
+---------
+
+# Game Of Thrones: The Rise Of Dragons Arrives To Conquest On August 17
+
+Gaming, Game of Thrones, Game of Thrones: Conquest, Game Of Thrones, House of the Dragon, PC
+
+Mon, 10 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/game-of-thrones-conquest-the-rise-of-dragons-august-17/
+
+Game of Thrones: The Rise of Dragons launches on August 17, taking players back to experience Targaryen history once again.
+---------
+
+# Why Aegon Doesn't Kill Aemond In House Of The Dragon's Season 3 Finale
+
+TV, House of the Dragon, Game of Thrones, House of the Dragon - Season 3
+
+Mon, 10 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/why-aegon-doesnt-kill-aemond-house-of-the-dragon-season-3-finale-ryan-condal/
+
+House of the Dragon showrunner Ryan Condal clarifies why Aegon Targaryen chooses not to kill his brother Aemond in the season 3 finale.
+---------
+
+# Liam Neeson's 106-Minute Action Movie Brought Back To Life On Streaming 3 Years Later
+
+Movies, Masked Recs
+
+Mon, 10 Aug 2026 21:55:13 GMT
+
+https://screenrant.com/liam-neeson-in-the-land-saints-sinners-netflix-streaming-success-august-2026/
+
+Liam Neeson's 106-minute action movie has been brought back to life as a streaming hit on Netflix three years after its original release in 2023.
+---------
+
+# NBC's New Series Line Of Fire Is The Best Of Both Network TV Worlds
+
+TV, Line of Fire
+
+Mon, 10 Aug 2026 21:42:42 GMT
+
+https://screenrant.com/line-of-fire-show-procedural-serialized-details-episodes/
+
+NBC's upcoming crime procedural series, Line of Fire, with feature elements from two of the most popular storytelling formats on television.
+---------
+
+# Timothy Olyphant's 6-Episode HBO Thriller Is a Stealth Masterpiece
+
+TV, HBO Max, Full Circle, Thriller, Innovation
+
+Mon, 10 Aug 2026 22:23:15 GMT
+
+https://www.cbr.com/hbo-full-circle-thriller-masterpiece/
+
+Timothy Olyphant's star-studded 6-episode masterpiece on HBO Max is a must-watch for fans of gritty crime dramas.
+---------
+
+# 113-Episode Sci-Fi Anime Finally Returns After 48 Years With New Movie
+
+Anime, Galaxy Express 999, Space Pirate Captain Harlock
+
+Mon, 10 Aug 2026 22:15:14 GMT
+
+https://www.cbr.com/galaxy-express-999-returns-48-years-later-with-new-movie/
+
+Galaxy Express 999 returns after nearly 50 years. Explore the history, legacy and lasting influence of Leiji Matsumoto's sci-fi anime classic.
+---------
+
+# 6 Cheesiest '80s TV Shows, Ranked
+
+TV, MacGyver, Knight Rider, Innovation
+
+Mon, 10 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/cheesy-80s-tv-shows-list/
+
+Many shows from the 1980s are cemented in pop culture history, including the decade's fun, cheesy shows like MacGyver.
+---------
+
+# HBO Max's 2-Part Space Opera Masterpiece Is Still The Greatest Sci-Fi of the Decade
+
+Movies, Dune, Dune: Part Two
+
+Mon, 10 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/hbo-maxs-space-opera-masterpiece-dune-denis-villeneuve/
+
+Before it's epic conclusion, fans have come to HBO Max in droves to relive the epic sci-fi franchise all over again.
+---------
+
+# 10 Best Joker Stories That Outshine Every Movie Appearance
+
+Comics, Joker, DC Comics, Batman
+
+Mon, 10 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/joker-stories-better-than-his-movie-appearances/
+
+Joker has been one of the greatest comic book villains since his 1940 debut, and some of his finest comics outshine his movie appearances handily.
+---------
+
+# The Camp Rock 3 Cast Plays We're Not Really Strangers
+
+Movies, Camp Rock, Disney, Originals
+
+Mon, 10 Aug 2026 21:55:20 GMT
+
+https://www.cbr.com/video/the-camp-rock-3-cast-plays-we-re-not-really-strangers/
+
+Lock-IN and get to know the new cast of Camp Rock 3: Malachi Barton (Fletch), Liamani (Sage), Orlando Lucas (Daniel) and Ella Lucas (Danielle)! Experience the inside jokes, the music and the friendship of these amazing young stars.
+---------
+
+# Law & Order: SVU Gets Special Olivia Benson Event 1 Month Before Season Premiere
+
+TV, Law & Order: Special Victims Unit, NBC, Crime
+
+Mon, 10 Aug 2026 21:41:25 GMT
+
+https://www.cbr.com/law-order-svu-nbc-olivia-benson-episodes-marathon/
+
+Law & Order is giving Benson the spotlight.
+---------
+
+# The 6 Worst R-Rated Thriller Movies of the 2020s So Far
+
+Movie, Psycho Killer, The Front Room, The Alto Knights, Thriller
+
+Mon, 10 Aug 2026 22:15:14 GMT
+
+https://collider.com/worst-r-rated-thriller-movies-2020s/
+
+It's surprising that movies this bad get a wide release in present day.
+---------
+
+# Free Streaming Officially Revives One of Mark Wahlberg's Worst Sci-Fi Movies
+
+Movie News, Infinite, Mark Wahlberg, Paramount Plus, Antoine Fuqua
+
+Mon, 10 Aug 2026 22:00:14 GMT
+
+https://collider.com/infinite-mark-wahlberg-sci-fi-movie-streaming-success-august-2026/
+
+The critically panned sci-fi movie Infinite, starring Mark Wahlberg and directed by Antoine Fuqua, is staging a comeback on free streaming.
+---------
+
+# Netflix's Greatest Action Series Is Officially Crushing 2026's Charts With 224 Million Hours Watched
+
+TV Features, Netflix, Man on Fire, Action, Steven Caple Jr.
+
+Mon, 10 Aug 2026 21:42:14 GMT
+
+https://collider.com/netflix-greatest-action-series-man-on-fire-224m-hours-watched/
+
+Netflix's 'Man on Fire,' starring Yahya Abdul-Mateen II and Billie Boulette, is dominating streaming charts.
+---------
+
+# Every Major 'House of the Dragon' Season 3 Death, Ranked
+
+TV, House of the Dragon, Game Of Thrones, HBO, Fantasy
+
+Mon, 10 Aug 2026 21:36:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-deaths-ranked/
+
+House of the Dragon Season 3 wraps up with even more loss than before, and we rank the most notable character deaths of the Game of Thrones prequel.
+---------
+
+# Prime Video's 6-Part Hard Sci-Fi Masterpiece Officially Returns With a New Release
+
+TV News, The Expanse
+
+Mon, 10 Aug 2026 22:06:09 GMT
+
+https://movieweb.com/he-expanse-comic-book-omnibus/
+
+'The Expanse Omnibus' collects multiple comic book series set in the compelling world.
+---------
+
+# HBO Just Revealed the 'Game of Thrones' Movie's First Star
+
+Features, House of the Dragon, Game of Thrones, HBO Max
+
+Mon, 10 Aug 2026 22:00:12 GMT
+
+https://movieweb.com/game-of-thrones-movie-aegon-conquest-alys-rivers/
+
+'Game of Thrones,' the HBO fantasy franchise based on the novels by George R.R. Martin, is getting an exciting movie, too.
+---------
+
+# Prime Video's Near-Perfect Action Thriller Dethroned on Streaming
+
+TV News, Ride or Die, Sterling Point, Prime Video, Streamer Comparisons, Action
+
+Mon, 10 Aug 2026 22:00:12 GMT
+
+https://movieweb.com/ride-or-die-action-stream-prime-video-sterling-point/
+
+Prime Video's hit 'Reacher' replacement faces a new foe on streaming.
+---------
+
 # Boston Blue Season 2's Best Blue Bloods Cameo Is Looking Unlikely
 
 Network TV, Boston Blue, Blue Bloods
