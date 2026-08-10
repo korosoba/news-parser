@@ -1,3 +1,322 @@
+# 5 Stephen King Shows Better Than It: Welcome To Derry
+
+Streaming TV, It: Welcome to Derry, 11.22.63, The Outsider, Castle Rock, Storm of the Century, Mr. Mercedes
+
+Mon, 10 Aug 2026 03:45:11 GMT
+
+https://screenrant.com/stephen-king-shows-better-than-it-welcome-to-derry/
+
+It: Welcome to Derry is easily one of the best takes on Stephen King’s works, but a handful of other TV adaptations of his books are arguably better.
+---------
+
+# 7 DC Heroes Who Fought Superman And Won
+
+Comics, DC Comics, Superman
+
+Mon, 10 Aug 2026 03:30:11 GMT
+
+https://screenrant.com/dc-heroes-fought-superman-won/
+
+The Man of Steel has never been infallible and these DC heroes have more than tested his fallibility.
+---------
+
+# 5 Standalone Comic Books That Are Considered Complete Masterpieces
+
+Comics
+
+Mon, 10 Aug 2026 03:15:11 GMT
+
+https://screenrant.com/best-standalone-comic-books-masterpieces/
+
+Explore five self-contained horror comics that deliver unforgettable stories and unique artistry.
+---------
+
+# 63-Episode 'Twilight Meets Queen Charlotte' Fantasy Series Is Perfect From Start To Finish
+
+Classic TV, Masked Recs
+
+Mon, 10 Aug 2026 03:03:11 GMT
+
+https://screenrant.com/fruits-basket-perfect-start-to-finish/
+
+Romantic fantasy is all the rage nowadays, but one of the best love stories of the century is a criminally underrated gem that's nearly a decade old.
+---------
+
+# Babylon 5 Was As Good As The Biggest '90s Space Opera But Had A Fraction Of Its Success
+
+Classic TV, Babylon 5
+
+Mon, 10 Aug 2026 03:00:12 GMT
+
+https://screenrant.com/babylon-5-deserve-star-trek-success/
+
+A space opera from the ‘90s was arguably as compelling and brilliant as some of the best sci-fi shows of its time, but it achieved little success.
+---------
+
+# 10 Surprising DC Characters Who Became Lanterns
+
+Comics, Green Lantern, DC Comics
+
+Mon, 10 Aug 2026 03:00:12 GMT
+
+https://screenrant.com/surprising-dc-characters-become-lanterns/
+
+The powers of the Emotional Spectrum are, in truth, open to all; it doesn't take much to become a Lantern in DC Comics.
+---------
+
+# Major House Of The Dragon Death Sends Rhaenyra Down An Irreversible Path, Star Explains
+
+TV, House of the Dragon
+
+Mon, 10 Aug 2026 02:37:27 GMT
+
+https://screenrant.com/house-of-the-dragon-helaena-death-seals-rhaenyras-fate-emma-darcy/
+
+One of the most tragic deaths in the Game of Thrones franchise occurs in House of the Dragon's season 3 finale and it seals Rhaenyra's fate.
+---------
+
+# The Walking Dead: Dead City Season 3, Episode 3 Ending Explained: Why Maggie Gives Hershel The Watch
+
+Streaming TV, The Walking Dead: Dead City, The Walking Dead
+
+Mon, 10 Aug 2026 02:30:11 GMT
+
+https://screenrant.com/the-walking-dead-dead-city-season-3-episode-3-ending-explained-hershel-watch/
+
+Dead City season 3's latest episode saw Maggie give her son an important family heirloom, setting up a big future for Hershel in The Walking Dead.
+---------
+
+# Every Death In House Of The Dragon Season 3's Finale Explained
+
+Streaming TV, House of the Dragon, House of the Dragon - Season 3, Game of Thrones
+
+Mon, 10 Aug 2026 02:20:11 GMT
+
+https://screenrant.com/who-dies-in-house-of-the-dragon-season-3/
+
+Another season of House of the Dragon has come and gone, and with season 3 at a close, so are the lives of several key GOT characters.
+---------
+
+# Why Aegon's Song Of Ice & Fire Dream Is Missing From GOT Despite Rhaenyra's Speech Clarified By Ryan Condal
+
+TV, House of the Dragon, House of the Dragon - Season 3, Game of Thrones
+
+Mon, 10 Aug 2026 02:15:11 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-finale-aegons-dream-missing-got-ryan-condal/
+
+Showrunner Ryan Condal explains why Aegon's Dream is completely absent from Game of Thrones despite Rhaenyra's public HOTD season 3 finale speech.
+---------
+
+# 5 American Anime Series That Are Unwatchable Today
+
+Anime, Kappa Mikey, Super Duper Sumos
+
+Mon, 10 Aug 2026 03:45:15 GMT
+
+https://www.cbr.com/american-anime-series-unwatchable-today/
+
+From cringe-worthy plots to shallow characters, American anime series like Kappa Mikey and Spiral Zone haven't aged well over the years.
+---------
+
+# Spock’s Best Star Trek II Line Is Still the Greatest Quote in Sci-Fi Movie History
+
+Movies, Star Trek II: The Wrath of Khan, Star Trek, Sci-Fi
+
+Mon, 10 Aug 2026 03:40:15 GMT
+
+https://www.cbr.com/star-trek-ii-wrath-of-khan-best-spock-quote/
+
+The legendary Leonard Nemoy delivers the single greatest sci-fi quote ever in Star Trek II: The Wrath of Khan
+---------
+
+# Frieren: Beyond Journey's End Creator Recommends the Next Hit Action Fantasy Series
+
+Anime, Frieren: Beyond Journey's End, yen press
+
+Mon, 10 Aug 2026 03:30:15 GMT
+
+https://www.cbr.com/frieren-creator-recommends-nemu-corpse-bearer-manga/
+
+Frieren: Beyond Journey's End manga writer Kanehito Yamada praises a new fantasy manga with a morbid yet moving storyline.
+---------
+
+# The Best Recurring Themes in The Far Side Comics That Fans Love
+
+Comics, The Far Side
+
+Mon, 10 Aug 2026 03:30:15 GMT
+
+https://www.cbr.com/the-far-side-best-recurring-themes-gary-larson/
+
+While Gary Larson's The Far Side doesn't feature recurring characters, it does feature recurring themes that fans love to see time and time again.
+---------
+
+# The 10 Greatest Fantasy Books of the Last 10 Years, Ranked
+
+Movies, Fantasy, Adventure, Children of Blood and Bone
+
+Mon, 10 Aug 2026 03:30:15 GMT
+
+https://www.cbr.com/best-fantasy-books-last-decade-list/
+
+These books are must-read masterpieces of the popular genre. Despite only being recently published, they are already modern fantasy classics.
+---------
+
+# 6 Near-Perfect Dark Fantasy Shows Nobody Remembers
+
+TV, Fantasy, Roar, Brimstone
+
+Mon, 10 Aug 2026 03:30:15 GMT
+
+https://www.cbr.com/near-perfect-forgotten-dark-fantasy-series-list/
+
+Dark but forgotten fantasy series like Roar and Brimstone featured strong stories and bold ideas, but never got the lasting attention they deserved.
+---------
+
+# 7 Long Open-World RPGs That Take Forever to Complete
+
+Games, Video Games, Cyberpunk 2077, RPG, open world
+
+Mon, 10 Aug 2026 03:15:15 GMT
+
+https://www.cbr.com/open-world-rpgs-take-forever-to-complete/
+
+RPGs like Xenoblade and Elder Scrolls have near never ending tasks to complete, which means they are going to take a very long time to finish.
+---------
+
+# Spider-Man: Brand New Day’s Costume Designer Had ‘So Much Fun’ Working On One Scene That Didn’t Even Involve the Spidey Suit
+
+CBR Exclusives, Spider-Man: Brand New Day
+
+Mon, 10 Aug 2026 03:11:39 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-hospital-scene-costume-designer/
+
+Costume designer Sanja Milkovic Hays explains how homemade Spider-Man merch helped shape Brand New Day’s emotional hospital scene.
+---------
+
+# Sugar Star Reveals the Most Shocking Part of Her Character’s Season 2 Arc
+
+CBR Exclusives, Sugar
+
+Mon, 10 Aug 2026 02:48:17 GMT
+
+https://www.cbr.com/sugar-season-2-mireille-enos-djen-twist/
+
+Mireille Enos breaks down Djen’s shocking betrayal of John Sugar and what it reveals about her transformation in the Season 2 finale.
+---------
+
+# 5 '90s Turn-Based RPGs That Still Hold Up Today
+
+Games, RPG, JRPG, PlayStation (Original), Nintendo
+
+Mon, 10 Aug 2026 02:45:15 GMT
+
+https://www.cbr.com/90s-turn-based-rpgs-hold-up-today/
+
+The video game industry shifted away from turn-based RPGs for a long time, despite the '90s producing some all-time classics in the genre.
+---------
+
+# 24 Years Later, ‘The Wire’s Most Iconic Quote Is More Relevant Than Ever
+
+TV Features, The Wire, HBO, Idris Elba, Dominic West
+
+Mon, 10 Aug 2026 03:32:14 GMT
+
+https://collider.com/the-wire-best-quote-stringer-bell-relevant-today/
+
+The Wire remains relevant 24 years later, especially one iconic Stringer Bell quote that became a rule for real-world political scandals.
+---------
+
+# 5 Romance Books You Need To Read Before Their TV Adaptations Premiere
+
+TV, Romance, Books, Heated Rivalry, Pride & Prejudice
+
+Mon, 10 Aug 2026 03:22:15 GMT
+
+https://collider.com/romance-books-to-read-before-tv-adaptations/
+
+From the Heated Rivalry sequel The Long Game to the YA thriller Shatter Me, these are the romance books you must read before their TV adaptation.
+---------
+
+# 'House of the Dragon' Star Explains Corlys' Pivotal Role in Season 3's Brutal Finale Battle
+
+Exclusives, House of the Dragon, Steve Toussaint, HBO, HBO Max
+
+Mon, 10 Aug 2026 02:15:15 GMT
+
+https://collider.com/house-of-the-dragon-season-3-finale-corlys-steve-toussaint-interview/
+
+House of the Dragon's Steve Toussaint explains Corlys' key role in Season 3's finale battle and the potential succession conflict looming in Season 4.
+---------
+
+# 'House of the Dragon's Abubakar Salim Explains Alyn's Most Shocking Season 3 Finale Act
+
+Exclusives, House of the Dragon, Abubakar Salim, HBO, HBO Max
+
+Mon, 10 Aug 2026 02:11:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-finale-alyn-kills-high-septon-abubakar-salim/
+
+House of the Dragon's Abubakar Salim discusses Alyn's most shocking act in the Season 3 finale and the deeper motivations at play.
+---------
+
+# 'House of the Dragon's Stunning Finale Battle Sets Up an Epic Final Season | Review
+
+TV Reviews, House of the Dragon, HBO Max, Emma D'Arcy, Matt Smith
+
+Mon, 10 Aug 2026 02:10:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-finale-review/
+
+The Season 3 finale of House of the Dragon brings a satisfying end to the Game of Thrones spin-off's penultimate chapter.
+---------
+
+# 8 Horror TV Shows More Terrifying Than Any Movie
+
+TV Lists, Horror, Yellowjackets, From
+
+Mon, 10 Aug 2026 02:45:40 GMT
+
+https://movieweb.com/horror-tv-shows-more-scary-than-movies/
+
+Horror TV shows have more time to build suspense and dread, and these series prove scarier than many movies on at least one front.
+---------
+
+# 'House of the Dragon' Season 3 Ending & Who Wins the Battle, Explained
+
+Features, House of the Dragon
+
+Mon, 10 Aug 2026 02:05:12 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-ending-explained/
+
+So much just happened in 'House of the Dragon' Season 3's finale. Let's break down that big battle, some important character fates, and more.
+---------
+
+# Christopher Nolan Officially Breaks Major Worldwide Milestone With 'The Odyssey'
+
+Movie News, The Odyssey, Christopher Nolan
+
+Mon, 10 Aug 2026 02:04:07 GMT
+
+https://movieweb.com/the-odyssey-christopher-nolan-highest-grossing-movie-box-office/
+
+'The Odyssey' has made huge waves in box office figures following its release in July.
+---------
+
+# 20 Biggest Questions After 'House of the Dragon' Season 3, Episode 8
+
+TV Lists, House of the Dragon
+
+Mon, 10 Aug 2026 02:00:23 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-episode-8-big-questions/
+
+All of your pressing finale questions in one place, with no book spoilers to ruin Season 4!
+---------
+
 # All 9 Members Of Reacher's 110th Special Investigations Unit Explained
 
 Streaming TV, Reacher
