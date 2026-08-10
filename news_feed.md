@@ -1,3 +1,223 @@
+# Kurt Russell's New Crime Thriller Gets New Look After Near-Perfect Rotten Tomatoes Score
+
+Movies, The Rivals of Amziah King
+
+Mon, 10 Aug 2026 17:31:31 GMT
+
+https://screenrant.com/the-rivals-of-amziah-king-kurt-russell-new-images/
+
+Kurt Russell's new crime thriller receives a new look after earning a near-perfect Rotten Tomatoes score following its premiere at SXSW.
+---------
+
+# Every Game Of Thrones Franchise Season, Ranked
+
+Streaming TV, Game of Thrones, Game Of Thrones, House of the Dragon, A Knight Of The Seven Kingdoms
+
+Mon, 10 Aug 2026 17:30:11 GMT
+
+https://screenrant.com/every-game-of-thrones-franchise-season-ranked/
+
+Between Game of Thrones, House of the Dragon, and A Knight of the Seven Kingdoms, HBO's fantasy franchise has yielded both great and terrible seasons.
+---------
+
+# Gritty 97-Minute Neo-Western Is Making A Stand On Streaming After Sneak Release
+
+Movies, Masked Recs
+
+Mon, 10 Aug 2026 17:23:54 GMT
+
+https://screenrant.com/western-movie-last-stand-of-ellen-cole-paramount-plus-stream-august-2026/
+
+Paramount+ is host to several Western and neo-Western TV shows and films, and one movie in particular is surging up the streaming charts right now.
+---------
+
+# 41 Years Later, Transformers Changes Superion Forever by Adding an Iconic Decepticon
+
+Comics, Transformers
+
+Mon, 10 Aug 2026 17:03:18 GMT
+
+https://screenrant.com/new-superion-reveal-thundercracker/
+
+Transformers is making history once again by shaking up Superion in a major way: adding an iconic Decepticon to the legendary Autobot combiner.
+---------
+
+# DC Names Batman's Worst Robin, And You Won't Believe Who
+
+DC Comics, Batman
+
+Mon, 10 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/batman-worst-robin-nightwing-absolue/
+
+DC reveals that the most traditionally beloved Robin is now the least popular as Batman's sidekicks continue their fight against the Dark Knight.
+---------
+
+# Disney Just Confirmed the Next Planet of the Apes Saga
+
+Movies, Planet of the Apes, Sci-Fi, Kingdom of the Planet of the Apes
+
+Mon, 10 Aug 2026 17:30:16 GMT
+
+https://www.cbr.com/planet-of-the-apes-new-saga-sequel-changes-franchise/
+
+The next Planet of the Apes saga is officially on the way--and it kicks off an entirely new era for the franchise.
+---------
+
+# 6 Spy Shows That Are 10/10 Masterpieces
+
+TV, Thriller, Slow Horses, The Americans
+
+Mon, 10 Aug 2026 17:30:16 GMT
+
+https://www.cbr.com/spy-shows-flawless-masterpieces-list/
+
+From Cold War thrillers to slow-burn looks at the War on Terror, television has given the world some of the greatest spy shows ever made.
+---------
+
+# American Hostage (MGM+ 2026 Series) Official Trailer
+
+TV, American Hostage
+
+Mon, 10 Aug 2026 17:28:29 GMT
+
+https://www.cbr.com/video/american-hostage-trailer/
+
+MGM+ unveiled the trailer for American Hostage
+---------
+
+# Steam Refunds Battlefield 6 Player After 470 Hours Over Removed Game Modes
+
+Games, Battlefield
+
+Mon, 10 Aug 2026 17:26:15 GMT
+
+https://www.cbr.com/steam-battlefield-6-refund-removed-game-modes-live-service/
+
+One aggrieved, longtime Battlefield 6 player was granted a refund for the game on Steam over content being removed from the first-person shooter.
+---------
+
+# 5 Most Expensive Dragon-Type Pokémon Cards, Ranked by Price
+
+Games, Pokemon, Pokemon Trading Card Game, Pokemon TCG, Tabletop, TCG
+
+Mon, 10 Aug 2026 17:15:15 GMT
+
+https://www.cbr.com/most-expensive-dragon-type-pokemon-cards/
+
+What constitutes a Dragon-type Pokémon card may surprise players as much as the price these cards go for on the market.
+---------
+
+# Danny Boyle’s New Netflix Drama Breaks Format With Rare Limited Theatrical Release
+
+Movies, Netflix
+
+Mon, 10 Aug 2026 17:09:54 GMT
+
+https://www.cbr.com/danny-boyle-ink-netflix-limited-theatrical-release/
+
+Another Netflix movie is breaking tradition by receiving a limited release in theaters, and every cinephile knows why.
+---------
+
+# 42 Years Later, Studio Ghibli's Nausicaa of the Valley of the Wind Gets a Major New Expansion
+
+Anime, Nausicaä of the Valley of the Wind, Studio Ghibli
+
+Mon, 10 Aug 2026 17:05:09 GMT
+
+https://www.cbr.com/ghibli-park-nausicaa-expansion/
+
+Studio Ghibli winds back the clock over four decades to revisit the world of Hayao Miyazaki's epic anime film, Nausicaa of the Valley of the Wind.
+---------
+
+# Netflix's New 8-Part Crime Drama With 106.7M Views Remains 1 of the Biggest Shows in the World
+
+TV, I Will Find You, Netflix
+
+Mon, 10 Aug 2026 17:00:16 GMT
+
+https://www.cbr.com/i-will-find-you-netflix-us-milestone-august-2026/
+
+Nearly two months after its premiere, Harlan Coben's I Will Find You is remaining one of the biggest shows in the world with over 106 million views.
+---------
+
+# In Just 12 Days, ‘Spider-Man: Brand New Day’ Beats Marvel’s Original Blockbuster at the Box Office
+
+Movie News, Spider-Man: Brand New Day, Box Office, MCU, The Avengers
+
+Mon, 10 Aug 2026 17:15:15 GMT
+
+https://collider.com/spider-man-brand-new-day-box-office-overtakes-the-avengers-joss-whedon/
+
+Spider-Man: Brand New Day has overtaken the original MCU team-up blockbuster at the global box office in under two weeks of release.
+---------
+
+# Marvel Officially Brings Back One of Spider-Man’s Most Powerful Villains
+
+Books and Comics News, Marvel Comics, Venom: Let There Be Carnage, Superhero
+
+Mon, 10 Aug 2026 17:15:15 GMT
+
+https://collider.com/the-amazing-spider-man-spider-versity-issue-5-preview-red-goblin/
+
+A new preview for The Amazing Spider-Man: Spider-Versity's final issue fully unleashes the Red Goblin, bonding Norman Osborn and Carnage.
+---------
+
+# 10 Most Perfect Movie Plot Twists of the 2020s So Far
+
+Movie, Strange Darling, Barbarian, Bugonia, Caddo Lake (2024)
+
+Mon, 10 Aug 2026 17:15:15 GMT
+
+https://collider.com/most-perfect-movie-plot-twists-2020s-so-far/
+
+From Project Hail Mary to Barbarian, these 2020s movies delivered jaw-dropping twists that completely rewired the story.
+---------
+
+# The 10 Most Underrated '90s Fantasy Movies, Ranked
+
+Movie, Fantasy, 1990s, Pleasantville, A Little Princess
+
+Mon, 10 Aug 2026 17:12:15 GMT
+
+https://collider.com/most-underrated-90s-fantasy-movies/
+
+Fantasy movies of the '90s, like Dragonheart and Death Becomes Her, weren't huge hits at the time but became underrated classics in the years to come.
+---------
+
+# 'The Boys' Star Officially Confirms Season 1 Easter Egg in His Brutal Season 5 Death [Exclusive]
+
+TV News, The Boys, Prime Video, Jessie T. Usher, Big Lick Comic Con
+
+Mon, 10 Aug 2026 16:46:15 GMT
+
+https://collider.com/the-boys-season-5-jessie-t-usher-explains-a-train-death-homelander-fight/
+
+The Boys star Jessie T-Usher explains a "blink and you'll miss it" Season 5 moment that calls back to a key episode from Season 1.
+---------
+
+# Scarlett Johansson Leads Riveting First Trailer for "Masterful" New Crime Thriller
+
+Movie News, Paper Tiger
+
+Mon, 10 Aug 2026 17:24:13 GMT
+
+https://movieweb.com/scarlett-johansson-paper-tiger-teaser-trailer/
+
+The first teaser trailer teases incredible tension and mesmerizing performances from its talented cast.
+---------
+
+# This Gothic Thriller Still Has the Most Celebrated Twist in Genre History
+
+Features, The Others
+
+Mon, 10 Aug 2026 17:00:12 GMT
+
+https://movieweb.com/the-others-thriller-best-plot-twist/
+
+25 years ago in 2001, a Gothic thriller movie was released, and it has a memorable plot twist that still holds up today.
+---------
+
 # Daemon & Corlys’ House Of The Dragon Season 4 Story After Battle Of Tumbleton Teased By Star
 
 TV, House of the Dragon, Game of Thrones
