@@ -1,3 +1,25 @@
+# Peter Jackson’s Horror Classic That Changed Cinema Forever Is Quickly Soaring Up Streaming Charts
+
+Movies, Masked Recs, Horror
+
+Tue, 11 Aug 2026 08:00:11 GMT
+
+https://screenrant.com/peter-jackson-the-frighteners-cinema-changed-shudder-streaming-success-august-2026/
+
+An iconic Peter Jackson horror movie that quietly changed cinema forever in one way is quickly climbing streaming charts for a unique reason.
+---------
+
+# The Walking Dead: Eclipse Dune Officially Unveiled
+
+Gaming, The Walking Dead, PC, The Walking Dead: Dead City
+
+Tue, 11 Aug 2026 07:00:12 GMT
+
+https://screenrant.com/walking-dead-no-mans-land-eclipse-dune-campaign/
+
+The Walking Dead returns with Eclipse Dune, a brand-new adventure for longtime fans of the iconic zombie franchise.
+---------
+
 # Game Of Thrones: The Cold & The Dark Releases August 18
 
 Gaming, Game of Thrones, Game Of Thrones, Game of Thrones: Conquest, Game Of Thrones: Dragonfire, House of the Dragon, PC
