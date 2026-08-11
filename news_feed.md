@@ -1,3 +1,300 @@
+# 'Rambo Meets The Fugitive' 94-Minute Action Thriller Punches Its Way Up Streaming Charts
+
+Movies, Masked Recs
+
+Tue, 11 Aug 2026 15:42:03 GMT
+
+https://screenrant.com/the-hunted-rambo-meets-the-fugitive-paramount-plus-streaming-success-august-2026/
+
+A brisk R-rated action thriller compared to both Rambo and The Fugitive is reconnecting with audiences and is now a top 10 streaming success.
+---------
+
+# NYT Connections Solution And Hints For August 11, 2026
+
+Gaming, Connections, Mobile
+
+Tue, 11 Aug 2026 15:30:11 GMT
+
+https://screenrant.com/nyt-connections-solution-answer-hints-august-11-2026/
+
+There are plenty of conclusions involved with today's Connections, with a sense of finality forming categories that can be hard to find without clues.
+---------
+
+# Train To Busan's 2026 Release Is Perfectly Timed
+
+Movies, Train to Busan
+
+Tue, 11 Aug 2026 15:30:11 GMT
+
+https://screenrant.com/train-to-busan-movie-theatrical-rerelease-colony/
+
+Train to Busan is one of the greatest zombie movies of the 21st century, and its new theatrical release couldn't be more perfectly timed.
+---------
+
+# 10 Books To Read Before You Die
+
+Books
+
+Tue, 11 Aug 2026 15:22:09 GMT
+
+https://screenrant.com/must-read-books-death-dying/
+
+Books that make life better and death easier.
+---------
+
+# HBO's Next Game Of Thrones Show Is The Opposite Of House Of The Dragon
+
+Streaming TV, Masked Recs
+
+Tue, 11 Aug 2026 15:15:11 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-season-2-opposite-house-of-the-dragon/
+
+The next show in HBO's Game of Thrones universe will be much different than House of the Dragon or even Game of Thrones, and it will be here soon.
+---------
+
+# After 6 Years, Umbrella Academy’s Delayed Sequel Series Finally Gets Major Update
+
+Comics, The Umbrella Academy
+
+Tue, 11 Aug 2026 15:04:09 GMT
+
+https://screenrant.com/umbrella-academy-plan-b-release-update/
+
+After a six-year wait and multiple delays, The Umbrella Academy’s latest sequel finally gets a major update that signals its long-awaited finale.
+---------
+
+# 2026 Is The Year Of This Old School Star Trek Alien
+
+Streaming TV, Star Trek, Star Trek: Strange New Worlds, Star Trek: Starfleet Academy
+
+Tue, 11 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-starfleet-academy-mugato/
+
+No one could have guessed how much Star Trek would comedically tribute the Mugato in 2026, but Starfleet Academy and Strange New Worlds both did it.
+---------
+
+# 5 Free Steam Games Like Hogwarts Legacy
+
+Gaming, Hogwarts Legacy
+
+Tue, 11 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/steam-free-games-like-hogwarts-legacy/
+
+Missing Hogwarts Legacy? These 5 free Steam games bring the magic, monsters, and open-world adventure without burning your budget.
+---------
+
+# Disney+’s Cancelled Revival Of Beloved 33-Year Franchise & Potential Future Addressed By Star
+
+Movies, The Sandlot
+
+Tue, 11 Aug 2026 14:56:26 GMT
+
+https://screenrant.com/the-sandlot-disney-plus-revival-series-cancelled-future-patrick-renna/
+
+The Sandlot star Patrick Renna addresses the beloved nostalgic baseball comedy franchise’s future in light of Disney+ canceling a planned revival.
+---------
+
+# Daredevil: Born Again Season 3 Time Jump Length Revealed
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe, Vincent D'Onofrio
+
+Tue, 11 Aug 2026 14:53:57 GMT
+
+https://screenrant.com/daredevil-born-again-season-3-time-jump-kingpin-fate-vincent-donofrio/
+
+There was a time jump between Daredevil: Born Again seasons 1 and 2, and how one of the stars reveals details about the next time jump on the show.
+---------
+
+# Outlander Star's New Horror Series Is Replacing Widow's Bay as Apple TV's Best Horror Show
+
+TV, Outlander, Widow's Bay, Apple TV
+
+Tue, 11 Aug 2026 15:47:10 GMT
+
+https://www.cbr.com/caitriona-balfe-alfonso-cuaron-apple-tv-ascension/
+
+Apple TV has ordered a new horror series with a beloved Outlander star.
+---------
+
+# Neon Genesis Evangelion's New Official Asuka Keyboard Is Just Your Type
+
+Anime, Neon Genesis Evangelion, merchandise
+
+Tue, 11 Aug 2026 15:20:15 GMT
+
+https://www.cbr.com/evangelions-asuka-keyboard-melgeek/
+
+Neon Genesis Evangelion fans just got a brand-new way to celebrate one of the franchise's most iconic characters in decidedly incognito style.
+---------
+
+# Netflix's New 8-Part Jennifer's Body Meets Carrie Series Confirms Release Date
+
+TV, Netflix, Jennifer's Body, Carrie
+
+Tue, 11 Aug 2026 15:19:16 GMT
+
+https://www.cbr.com/netflix-the-body-release-date/
+
+A new teen horror-comedy titled The Body, is coming to Netflix this November.
+---------
+
+# 10 Best Complete Anime Series of the 21st Century, Ranked
+
+Anime, Death Note, Attack on Titan, Fullmetal Alchemist
+
+Tue, 11 Aug 2026 15:15:15 GMT
+
+https://www.cbr.com/best-complete-anime-21st-century-ranked/
+
+With unforgettable characters and satisfying endings, these complete anime series stand among the best of the 21st century.
+---------
+
+# The Magic Faraway Tree: Garfield & Foy Get Nostalgic
+
+Movies, The Magic Faraway Tree
+
+Tue, 11 Aug 2026 15:13:19 GMT
+
+https://www.cbr.com/video/the-magic-faraway-tree-garfield-foy-get-nostalgic/
+
+The Magic Faraway Tree stars Andrew Garfield and Claire Foy get nostalgic about the movies, TV and music that still feel like home.
+---------
+
+# Anya Taylor-Joy & Timothy Olyphant Argue It Out in Exclusive Lucky Clip 1 Week Ahead of Finale
+
+CBR Exclusives, Lucky, Apple TV, Crime, Innovation
+
+Tue, 11 Aug 2026 15:00:16 GMT
+
+https://www.cbr.com/lucky-season-1-episode-6-clip-anya-taylor-joy-timothy-olyphant/
+
+"That's not even my real name."
+---------
+
+# 10 Greatest Anime Series From 2001 to 2010
+
+Anime
+
+Tue, 11 Aug 2026 15:00:16 GMT
+
+https://www.cbr.com/greatest-anime-series-2000s/
+
+The 2000s introduced the world to what are still many of the greatest anime of all time.
+---------
+
+# Final Fantasy 7's Cloud Officially Returns in New Game October 22
+
+Games, Final Fantasy, Final Fantasy 7 Remake, Final Fantasy VII
+
+Tue, 11 Aug 2026 14:55:15 GMT
+
+https://www.cbr.com/final-fantasy-7-cloud-official-return-new-game-resonance-october-22/
+
+Cloud Strife is making his return to the Final Fantasy series in October 2026, fighting with comrades and enemies ahead of Final Fantasy 7 Revelation.
+---------
+
+# Star Wars and Marvel Officially Confirm First-Ever Franchise Crossover
+
+Books and Comics News, Marvel, Star Wars, Marvel Comics, Lucasfilm
+
+Tue, 11 Aug 2026 15:25:10 GMT
+
+https://collider.com/star-wars-marvel-crossover-comic/
+
+Star Wars and Marvel officially unite for first ever crossover with new Kevin Smith release launching in January 2027.
+---------
+
+# Channing Tatum's New Crime Thriller Officially Sets Release Date
+
+Movie News, Josephine, Channing Tatum, Gemma Chan, Sundance Film Festival
+
+Tue, 11 Aug 2026 15:04:05 GMT
+
+https://collider.com/channing-tatum-crime-thriller-josephine-trailer/
+
+The first trailer for Channing Tatum's new crime thriller Josephine sees the psychological weight of a violent crime take a toll on Mason Reeves.
+---------
+
+# ‘Minions & Monsters’ Officially Comes to Life in New Release [Exclusive]
+
+Movie News, Minions & Monsters, Zoey Deutch, Animation, Illumination
+
+Tue, 11 Aug 2026 15:00:16 GMT
+
+https://collider.com/minions-and-monsters-zoey-deutch-featurette/
+
+Zoey Deutch lends her voice to Minions & Monsters in a new behind-the-scenes featurette. Watch it now.
+---------
+
+# ‘Dopesick’ Meets ‘Painkiller’ in Noah Centineo’s New Movie Officially Out This Week [Exclusive]
+
+Exclusives, Union County, Noah Centineo, Will Poulter, Drama
+
+Tue, 11 Aug 2026 15:00:16 GMT
+
+https://collider.com/union-county-sneak-peek-noah-centineo-will-poulter/
+
+A new sneak peek at the opioid recovery drama Union County sees Noah Centineo brought before the court to explain his failed drug screening.
+---------
+
+# 2 Years Later, Anne Hathaway Reveals Details of Upcoming Time Travel Thriller
+
+Movie News, Anne Hathaway
+
+Tue, 11 Aug 2026 15:46:34 GMT
+
+https://movieweb.com/anne-hathaway-yesteryear-movie-adaptation-update/
+
+Anne Hathaway's involvement in 'Yesteryear' has been known since 2024.
+---------
+
+# Anne Hathaway Is at the Center of a Seductive Mystery in 'Verity' Trailer
+
+Movie Trailers, Verity, Anne Hathaway, Dakota Johnson
+
+Tue, 11 Aug 2026 15:30:01 GMT
+
+https://movieweb.com/anne-hathaway-verity-trailer/
+
+The year of Anne Hathaway is almost over.
+---------
+
+# 30 Years Later, Tim Burton's Zany Sci-Fi Cult Classic Debuts New Release
+
+Movie News, Mars Attacks!, Tim Burton, Blu-ray, Sci-Fi
+
+Tue, 11 Aug 2026 15:18:15 GMT
+
+https://movieweb.com/tim-burton-mars-attacks-4k-blu-ray/
+
+Tim Burton's sci-fi cult classic 'Mars Attacks!' has officially landed on 4K Ultra HD Blu-ray for the first time ahead of the film's 30th anniversary.
+---------
+
+# Stephen King's 130-Minute Dystopian Action Thriller Is One of 2026's Biggest Streaming Hits
+
+Movie News, Stephen King, The Running Man, Hot on Streaming, Action, Sci-Fi
+
+Tue, 11 Aug 2026 15:01:15 GMT
+
+https://movieweb.com/running-man-stephen-king-biggest-streaming-august-2026/
+
+While more faithful than the original adaptation from the 1980s, this one failed to captivate critics. Fortunately, it found redemption on streaming.
+---------
+
+# 18 Best Feel-Good Movies to Watch on Disney+
+
+Movie Lists, Disney+
+
+Tue, 11 Aug 2026 15:01:15 GMT
+
+https://movieweb.com/feel-good-movies-on-disney-plus/
+
+If you're feeling blue or are planning a cozy movie night in with the family, check out these feel-good movies on Disney+.
+---------
+
 # Stephen King’s Hit R-Rated Dystopian Thriller Continues Streaming Dominance On New Platform
 
 Movies, Masked Recs
