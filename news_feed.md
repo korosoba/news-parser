@@ -1,3 +1,25 @@
+# Diablo 5 Is Coming Whether You're Ready Or Not
+
+Gaming, Diablo 4, Triple-A Games
+
+Tue, 11 Aug 2026 05:30:12 GMT
+
+https://screenrant.com/diablo-5-diablo-4-sales/
+
+Blizzard has opened the curtain a bit to explain just how big of a success Diablo 4 is, and the result is that Diablo 5 is basically a guarantee.
+---------
+
+# This Star Wars: Knights Of The Old Republic Remake Footage Is Stunning
+
+Gaming, Star Wars: Knights of the Old Republic, Triple-A Games
+
+Tue, 11 Aug 2026 05:00:11 GMT
+
+https://screenrant.com/star-wars-kotor-fan-remake-footage/
+
+It feels like we've been waiting years for a Star Wars: Knights Of The Old Republic remake, but now we can get a stunning glimpse of the galaxy.
+---------
+
 # Square Enix Officially Announces Chrono Trigger: One Mark
 
 Gaming, Chrono Trigger, Triple-A Games
