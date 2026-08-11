@@ -1,3 +1,113 @@
+# 6 Unforgettable Far Side Comics Starring Fish
+
+Comics, The Far Side
+
+Tue, 11 Aug 2026 10:21:12 GMT
+
+https://screenrant.com/far-side-best-fist-comics/
+
+The funniest Far Side fish jokes.
+---------
+
+# Steam Adds 12 Free Downloads You Have Until August 13 To Nab
+
+Gaming, Steam
+
+Tue, 11 Aug 2026 09:54:39 GMT
+
+https://screenrant.com/steam-12-free-demos-wholesome-fest-august-13/
+
+Discover 14 cozy game demos on Steam for free until August 13!
+---------
+
+# The Legend Of Zelda: Moonrise Regalia Takes Zelda Back To Its Roots
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Oracle of Ages
+
+Tue, 11 Aug 2026 09:48:57 GMT
+
+https://screenrant.com/legend-of-zelda-moonrise-regalia-announced/
+
+The Legend of Zelda: Moonrise Regalia is a ROM hack of one of the more underappreciated games in the series, and it could be one of the best ever.
+---------
+
+# Netflix Is Ditching Its Perfect Release Strategy for Charlie Hunnam's Returning Horror Show
+
+TV, Monster, Netflix, Horror, Innovation
+
+Tue, 11 Aug 2026 10:01:14 GMT
+
+https://www.cbr.com/netflix-monster-fall-release-strategy/
+
+Netflix's best horror anthology series made a change with its third season that made it even better, but the fourth season is going back to its roots.
+---------
+
+# It's Officially the End of an Era for the Jurassic Park Movies
+
+Movies, Jurassic World Rebirth, Jurassic Park, gareth edwards
+
+Tue, 11 Aug 2026 10:01:14 GMT
+
+https://www.cbr.com/end-of-jurassic-park-rebirth-movie-era/
+
+The newest update about a sequel to Jurassic World Rebirth marks another major shift for the Jurassic franchise and the end of its shortest era.
+---------
+
+# 10 Greatest Historical Adventure Video Games of All Time
+
+Gaming, Video Game, Assassin's Creed, History, Ghost of Tsushima
+
+Tue, 11 Aug 2026 10:24:14 GMT
+
+https://collider.com/best-historical-adventure-video-games-all-time-ranked/
+
+Video games like Assassin's Creed II and Pentiment do a great job of setting thrilling stories in distinct periods, blending history and adventure.
+---------
+
+# Star Wars Officially Continues ‘The Last Jedi’ With a New Spin-Off
+
+Books and Comics News, Marvel Comics, Star Wars, Star Wars: Episode VIII - The Last Jedi, Kylo Ren
+
+Tue, 11 Aug 2026 10:00:14 GMT
+
+https://collider.com/star-wars-the-fall-of-kylo-ren-comic-preview-august-2026/
+
+Marvel’s The Fall of Kylo Ren officially reveals what happened after The Last Jedi as Kylo Ren takes control of a fractured First Order.
+---------
+
+# Marvel Officially Confirms Who Is the Best Spider-Man
+
+Books and Comics, Spider-Man, Spider-Man: Into The Spider-Verse, Comics, Spider-Man: Across the Spider-Verse
+
+Tue, 11 Aug 2026 09:30:15 GMT
+
+https://collider.com/miles-morales-spider-man-comic-preview-august-2026/
+
+Marvel’s new Miles Morales: Spider-Man comic shows why Miles has become one of the franchise’s most compelling and unique Spider-Man heroes.
+---------
+
+# Matthew McConaughey's "Best Movie in a Decade" Reveals New Look
+
+Movie News, The Rivals of Amziah King, Matthew McConaughey, Kurt Russell, Crime, Thriller
+
+Tue, 11 Aug 2026 10:22:24 GMT
+
+https://movieweb.com/rivals-amziah-king-matthew-mcconaughey-new-images/
+
+Matthew McConaughey is back on screen in 'The Rivals of Amziah King,' and new images from the crime thriller give us a closer look.
+---------
+
+# Robert Pattinson's Upcoming Netflix Heist Thriller Gets New Release Date
+
+Movie News, Robert Pattinson, Netflix
+
+Tue, 11 Aug 2026 09:28:40 GMT
+
+https://movieweb.com/here-comes-the-flood-release-date-delay/
+
+Netflix has delayed its highly anticipated heist thriller, 'Here Comes the Flood,' starring Robert Pattinson, moving it from its late 2026 slot.
+---------
+
 # Cyberpunk 2077 Multiplayer Trailer Promises Night City Chaos With Friends
 
 Gaming, Cyberpunk 2077
