@@ -1,3 +1,322 @@
+# Netflix’s New Crime Thriller Gentle Monster Turns A Happy Home Into A Tense Nightmare In New Trailer
+
+Movies, Netflix
+
+Tue, 11 Aug 2026 13:45:11 GMT
+
+https://screenrant.com/gentle-monster-new-netflix-trailer/
+
+Netflix's upcoming crime thriller movie just released a brand-new trailer that sees the deterioration of a once seemingly happy family.
+---------
+
+# 21 Years Later, Resident Evil 4’s Best Line Is The Greatest Leon Kennedy Quote
+
+Gaming, Resident Evil 4, Triple-A Games
+
+Tue, 11 Aug 2026 13:40:46 GMT
+
+https://screenrant.com/resident-evil-leon-kennedy-greatest-quote/
+
+While there are tons of great cheesy quotes to choose from in the Resident Evil series, Leon has become the king of wisecracking.
+---------
+
+# HBO Max's R-Rated Psychological Thriller Continues Sydney Sweeney's Global Streaming Domination
+
+Movies, Masked Recs
+
+Tue, 11 Aug 2026 13:34:44 GMT
+
+https://screenrant.com/sydney-sweeney-hbo-max-movies-trending-the-voyeurs-americana/
+
+Sydney Sweeney's spicy psychological thriller has found new life as a global streaming sensation on HBO Max, and it cements her streaming domination.
+---------
+
+# The Legend Of Zelda: Tears Of The Kingdom Online Multiplayer Is Coming
+
+Gaming, The Legend of Zelda: Tears of the Kingdom, The Legend of Zelda, Nintendo
+
+Tue, 11 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/legend-of-zelda-tears-kingdom-online-multiplayer-mod/
+
+Play Zelda with your friends. Explore the upcoming multiplayer mod for Tears of the Kingdom, launching August 18, 2026, with exciting new gameplay.
+---------
+
+# Reacher Season 4 Review: Alan Ritchson Is Still A Cut Above The Rest
+
+Streaming TV, Reacher, Reacher - Season 4
+
+Tue, 11 Aug 2026 13:07:08 GMT
+
+https://screenrant.com/reacher-season-4-review/
+
+Alan Ritchson returns for a fourth season leading Prime Video's Reacher, fending off the competition to retain its action thriller crown.
+---------
+
+# Power Rangers Officially Announces Tommy Oliver's New Codename
+
+Comics, Power Rangers
+
+Tue, 11 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/power-rangers-tommy-oliver-new-codename-mmpr/
+
+MMPR brings back the ultimate lone wolf hero.
+---------
+
+# Star Wars Galactic Racer Preview: Now This Is Pod Racing
+
+Gaming, Star Wars, Star Wars: Galactic Racer
+
+Tue, 11 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/star-wars-galactic-racer-single-player-preview/
+
+Star Wars: Galactic Racer might not only be the best racer in the franchise to date, it could easily be one of the best games.
+---------
+
+# 24 Years Later, Ray Barone's Best Everybody Loves Raymond Line Is Still A Top 10 Sitcom Quote
+
+Classic TV, Everybody Loves Raymond
+
+Tue, 11 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/ray-barone-best-everybody-loves-raymond-quote/
+
+24 years after it aired, Ray Barone's best line in Everybody Loves Raymond remains one of the greatest lines and deliveries in sitcom history.
+---------
+
+# Why Corlys Velaryon Still Wants Rhaenyra To Be Queen After House Of The Dragon Season 3's Ending
+
+Exclusive, House of the Dragon, Game of Thrones
+
+Tue, 11 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-finale-corlys-rhaenyra-loyalty-steve-toussaint-explanation/
+
+EXCLUSIVE: Steve Toussaint weighs in on why Corlys still supports Rhaenyra after their disagreements and the final battle in HOTD season 3.
+---------
+
+# 3 PlayStation 1 Games Everyone Owned In The '90s
+
+Gaming, PlayStation (Original), PlayStation
+
+Tue, 11 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/most-popular-ps1-games-1990s/
+
+The original Sony PlayStation had an incredible library of games, and if you owned a PS1 in the 1990s, the odds are good that you owned these three.
+---------
+
+# Prime Video's Reacher Season 4 Score Sealed by Critics on Rotten Tomatoes
+
+TV, Reacher
+
+Tue, 11 Aug 2026 13:38:38 GMT
+
+https://www.cbr.com/prime-video-reacher-season-4-rotten-tomatoes-score/
+
+The hit action series returns with another installment soon, and critics have spoken.
+---------
+
+# Apple TV's New Crime Thriller Based on 15-Year-Old Book Unveils First Trailer
+
+TV, Last Seen, Apple TV, Thriller
+
+Tue, 11 Aug 2026 13:12:02 GMT
+
+https://www.cbr.com/apple-tv-last-seen-trailer/
+
+Apple TV has shared the first trailer for the thriller Last Seen.
+---------
+
+# Fallout Officially Drops $299 New Release Available for Preorder Now
+
+Games, Fallout
+
+Tue, 11 Aug 2026 13:05:16 GMT
+
+https://www.cbr.com/fallout-official-new-release-overseer-pipboy-preorder-now/
+
+Die-hard Fallout fans and collectors have the chance to pick up what might be the franchise's most iconic piece of gear, and it is absolutely perfect.
+---------
+
+# Reacher Season 4 Review: Alan Ritchson’s Biggest & Most Brutal Season Yet
+
+TV, Reacher
+
+Tue, 11 Aug 2026 13:00:25 GMT
+
+https://www.cbr.com/reacher-season-4-review/
+
+Reacher Season 4 adapts Lee Child’s Gone Tomorrow into eight episodes of elaborate stunts, dark twists and commanding Alan Ritchson charisma.
+---------
+
+# Keanu Reeves’ $83.5M Genre-Defining Action Film Is Now Streaming for Free Ahead Theatrical Return
+
+Movies
+
+Tue, 11 Aug 2026 13:00:15 GMT
+
+https://www.cbr.com/keanu-reeves-action-point-break-streaming-free-pluto-tv-august-2026/
+
+This 90s classic starring Keanu Reeves is heading back to theaters later this month, but fans don't have to wait to stream it for free.
+---------
+
+# 10 Anime Series With Zero Filler and No Bad Arcs
+
+Anime, Hunter X Hunter, Innovation
+
+Tue, 11 Aug 2026 13:00:15 GMT
+
+https://www.cbr.com/anime-series-zero-filler-no-bad-arcs/
+
+There aren't many anime series that can rightfully say that they have zero filler whatsoever, but these 10 fit the bill masterfully.
+---------
+
+# 10 Greatest Science Fantasy Books of All Time, Ranked
+
+Movies, Science Fiction, Fantasy, books
+
+Tue, 11 Aug 2026 13:00:15 GMT
+
+https://www.cbr.com/best-science-fantasy-books-of-all-time-list/
+
+Blending sci-fi tech and fantasy magic, some of the greatest works of speculative fiction fall into the fascinating hybrid genre of science fantasy
+---------
+
+# It’s Official: Absolute Batman Is Basically 'Fan Fiction'
+
+Comics, Batman
+
+Tue, 11 Aug 2026 12:30:15 GMT
+
+https://www.cbr.com/absolute-batman-scott-snyder-fan-fiction/
+
+Absolute Batman scribe Scott Snyder explains how he and artist Nick Dragotta craft the series, and it's all about treating it like one big fanfic.
+---------
+
+# Acclaimed 'Until Dawn' Horror Game Studio Officially Announces Mass Layoffs
+
+Gaming News, Until Dawn, Sony Pictures, PlayStation 5
+
+Tue, 11 Aug 2026 13:37:53 GMT
+
+https://collider.com/supermassive-games-restructuring-layoffs/
+
+The critically acclaimed and award-winning game studio behind horror hits like Until Dawn has officially announced mass layoffs.
+---------
+
+# Alan Ritchson's 'Reacher' Season 4 Is the Prime Video Series' Most Ruthless Installment | Review
+
+TV Reviews, Reacher, Alan Ritchson, Prime Video, Action
+
+Tue, 11 Aug 2026 13:00:15 GMT
+
+https://collider.com/reacher-season-4-review-alan-ritchson-prime-video/
+
+Reacher Season 4 is the Prime Video series' most ruthless installment, led by an impressively physical Alan Ritchson.
+---------
+
+# 'The Simpsons' Took Its Best Tradition From This Beloved Sci-Fi TV Series
+
+TV Features, The Simpsons, The Twilight Zone, Matt Groening, Science Fiction
+
+Tue, 11 Aug 2026 12:36:16 GMT
+
+https://collider.com/the-simpsons-twilight-zone-pop-culture-parody/
+
+The Simpsons' Treehouse of Horror episodes are a classic now, but when it first started, the segments were inspired by The Twilight Zone
+---------
+
+# HBO’s ‘Big Little Lies’ Season 3 Still Faces a Major Problem, Even With a Sequel Book
+
+Books and Comics, Books, Liane Moriarty, Big Little Lies, HBO
+
+Tue, 11 Aug 2026 12:31:15 GMT
+
+https://collider.com/liane-moriarty-sequel-book-big-little-lies-season-3/
+
+Liane Moriarty's 'Big Little Truths' arrives August 25 with the Monterey Five's next chapter.
+---------
+
+# Netflix Officially Confirms Its Next Returning Action Franchise
+
+Movie News, Netflix, Crime, Ad Vitam, Thriller
+
+Tue, 11 Aug 2026 12:30:15 GMT
+
+https://collider.com/ad-vitam-sequel-in-development-netflix/
+
+Netflix is developing an Ad Vitam sequel with Guillaume Canet returning after the French action thriller drew 54.5 million views in its first month.
+---------
+
+# 10 Greatest Telltale Games, Ranked
+
+Video Games, Borderlands, The Walking Dead, Video Game, Gaming
+
+Tue, 11 Aug 2026 12:27:15 GMT
+
+https://collider.com/best-telltale-video-games-ranked/
+
+From The Walking Dead Season One, to The Wolf Among Us, to Batman: The Enemy Within, these are the greatest Telltale video games ever made.
+---------
+
+# 15 Best Political Thriller Shows of All Time, Ranked
+
+TV, House of Cards, 24, The Americans, Thriller
+
+Tue, 11 Aug 2026 12:14:16 GMT
+
+https://collider.com/political-thriller-shows-best-ranked/
+
+The best political thriller TV shows will keep you guessing and on the edge of your seat, from groundbreaking shows like 24 to gems like Paradise.
+---------
+
+# 'Reacher' Season 4 Debuts With Knockout Rotten Tomatoes Score
+
+TV News, Reacher, Rotten Tomatoes
+
+Tue, 11 Aug 2026 13:48:43 GMT
+
+https://movieweb.com/reacher-season-4-rotten-tomatoes-score/
+
+Prime Video's 'Reacher' is back for Season 4, and its initial Rotten Tomatoes score should have fans eager to see what's coming.
+---------
+
+# Jason Statham's Hit 116-Minute Action Thriller Passes Major Streaming Milestone
+
+Movie News, A Working Man, Hot on Streaming, Jason Statham, Action
+
+Tue, 11 Aug 2026 13:00:12 GMT
+
+https://movieweb.com/a-working-man-jason-statham-action-stream0mgm-august-2026/
+
+The Stath is back in action in this American streaming hit.
+---------
+
+# Why Star Trek Still Hasn't Mastered Stories About a Key Starfleet Position
+
+Features, Star Trek
+
+Tue, 11 Aug 2026 13:00:12 GMT
+
+https://movieweb.com/star-trek-security-chief-position-not-mastered/
+
+Chief of Security is a vital position aboard a Starfleet vessel, but Star Trek still struggles to build stories around this role. Read on for more.
+---------
+
+# Ridley Scott Teams With Amazon for Massive New Fantasy Adaptation
+
+TV News, Ridley Scott, Prime Video, Fantasy
+
+Tue, 11 Aug 2026 12:35:05 GMT
+
+https://movieweb.com/amazon-folk-of-the-air-series-adaptation-ridley-scott/
+
+Amazon is developing an adaptation of Holly Black's bestselling fantasy book series, 'The Folk of the Air,' in collaboration with Ridley Scott.
+---------
+
 # Game Of Thrones Officially Returns In 2027 With A Brand-New Finale
 
 Gaming, Game of Thrones, Game of Thrones: War for Westeros
