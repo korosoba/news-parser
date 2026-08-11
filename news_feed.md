@@ -1,3 +1,223 @@
+# 10 Best Hulu Shows Released In 2026 (So Far)
+
+Streaming TV, Hulu
+
+Tue, 11 Aug 2026 21:30:11 GMT
+
+https://screenrant.com/best-hulu-shows-2026/
+
+Gritty finales, fresh franchises, legacy revivals, and genre-bending experiments make up Hulu’s 2026 lineup one of the best in streaming.
+---------
+
+# Harry Potter Season 2 Officially Casts Gilderoy Lockhart For Chambers Of Secrets
+
+TV, Harry Potter
+
+Tue, 11 Aug 2026 21:25:10 GMT
+
+https://screenrant.com/harry-potter-season-2-nicholas-hoult-gilderoy-lockhart-casting/
+
+Nicholas Hoult has joined HBO's Harry Potter season 2 in a major role, as filming reportedly will begin ahead of season 1's release.
+---------
+
+# Brandon Sanderson Officially Announces New Special Edition Cosmere Release For 2026
+
+Books, Brandon Sanderson, The Cosmere
+
+Tue, 11 Aug 2026 21:22:41 GMT
+
+https://screenrant.com/brandon-sanderson-cosmere-fires-december-sprayed-edge-special-edition-illumicrate-release/
+
+Fantasy author Brandon Sanderson has partnered with a popular book company to produce a special edition Cosmere novel which releases later this year.
+---------
+
+# 31 Years Later, Calvin and Hobbes’ Greatest Quote Still Has No Equal
+
+Comics, Calvin and Hobbes
+
+Tue, 11 Aug 2026 21:09:11 GMT
+
+https://screenrant.com/calvin-and-hobbes-greatest-quote/
+
+The perspective of a mischievous six-year-old boy and his imaginary tiger has resulted in some of the greatest quotes in comic strip history.
+---------
+
+# Everything We Know About Sony & Marvel’s Spider-Man 5
+
+Movies, Spider-Man, Marvel Cinematic Universe
+
+Tue, 11 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/mcu-spider-man-5-updates-news-story-cast/
+
+After Spider-Man: Brand New Day, Tom Holland has addressed Spider-Man 5, and we already know what to expect from key elements of the MCU movie.
+---------
+
+# HBO Is Changing Forever After 20 Years
+
+Streaming TV, HBO Max
+
+Tue, 11 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/hbo-seasons-shortening-length-2020s-trend/
+
+In the 20 years since the fourth season of The Wire, there has been a slight but noticeable shift on HBO, with many shows following a similar pattern.
+---------
+
+# 5 NES Games That Were Impossible To Beat As A Kid
+
+Gaming, Nintendo, nes, PC, Super Mario Bros. 2, Contra, Teenage Mutant Ninja Turtles
+
+Tue, 11 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/nes-games-impossible-to-beat-for-kids/
+
+These games were absolutely not kid-friendly and damn near impossible to beat on the NES back in the day, but that doesn't mean we didn't try.
+---------
+
+# J. J. Abrams Officially Addresses End of Oak Street's Cloverfield Connection
+
+Movies, The End of Oak Street
+
+Tue, 11 Aug 2026 21:27:47 GMT
+
+https://www.cbr.com/jj-abrams-end-of-oak-streets-cloverfield-connection/
+
+Acclaimed filmmaker J. J. Abrams directly addresses the rumors that The End of Oak Street shares connections to the Cloverfield franchise.
+---------
+
+# 5 Masterpiece NES Games No One Remembers
+
+Games, Nintendo, Video Games
+
+Tue, 11 Aug 2026 21:15:14 GMT
+
+https://www.cbr.com/forgotten-nes-masterpieces/
+
+Casual NES fans are unlikely to have ever heard of Abadox or Crystalis.
+---------
+
+# 11 Star Trek Games We Need ASAP
+
+Games, Star Trek, Star Trek: The Next Generation, Star Trek: Voyager, Star Trek: Deep Space Nine
+
+Tue, 11 Aug 2026 21:05:15 GMT
+
+https://www.cbr.com/star-trek-video-game-ideas/
+
+Star Trek is a pretty diverse series that would be the perfect basis for all kinds of different types of great games.
+---------
+
+# 10 Greatest Detective Thrillers Of All Time, Ranked
+
+Movies, Thriller, The Silence of the Lambs, L.A. Confidential
+
+Tue, 11 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/best-detective-thrillers-of-all-time-list/
+
+Detectives have been the cornerstone of thriller movies since the 1930s, and some of these mysteries are the greatest of all time for the genre.
+---------
+
+# Prime Video's Fan-Favorite Series With Third Best Release Quietly Set for Another Season
+
+TV, Off Campus
+
+Tue, 11 Aug 2026 20:46:45 GMT
+
+https://www.cbr.com/prime-video-off-campus-season-3-report/
+
+The show turned into a global phenomenon.
+---------
+
+# HBO's 'Harry Potter' Officially Casts Kenneth Branagh's Replacement
+
+TV News, Harry Potter, Harry Potter and the Chamber of Secrets, Kit Harington
+
+Tue, 11 Aug 2026 21:32:02 GMT
+
+https://collider.com/hbo-harry-potter-reboot-cast-nicolas-hoult-gilderoy-lockhart/
+
+HBO's Harry Potter reboot has officially cast Superman star Nicholas Hoult as a major Chamber of Secrets character. Read on for more.
+---------
+
+# 6 Best Movie Performances Since 2000
+
+Movie, Actors, Philip Seymour Hoffman, The Dark Knight, Daniel Day-Lewis
+
+Tue, 11 Aug 2026 21:23:15 GMT
+
+https://collider.com/best-movie-performances-since-2000-ranked/
+
+The greatest movie performances since the year 2000 include turns from Heath Ledger in The Dark Knight and Philip Seymour Hoffman in The Master.
+---------
+
+# The Series That Gave Us ‘NCIS’ Is Officially Ready for a Reboot [Exclusive]
+
+TV News, JAG, CBS, NCIS, Big Lick Comic Con
+
+Tue, 11 Aug 2026 21:01:14 GMT
+
+https://collider.com/jag-reboot-catherine-bell-patrick-labyorteaux/
+
+JAG, the legal drama that spawned NCIS, is ripe for a reboot, say the show's original stars. Read on for more.
+---------
+
+# CBS’s 4-Season Hit Fixes the ‘Reacher’ Formula’s Biggest Problem
+
+TV Features, Tracker, Reacher, CBS, Thriller
+
+Tue, 11 Aug 2026 20:52:14 GMT
+
+https://collider.com/tracker-reacher-formula-does-one-thing-better/
+
+Tracker uses a similar formula to Reacher, but CBS’s hit gives Colter Shaw a more human, emotionally grounded edge.
+---------
+
+# The 10 Most Perfect Guitar Solos in Classic Rock History, Ranked
+
+Music Features, The Beatles, Led Zeppelin, Pink Floyd, Music, Rock
+
+Tue, 11 Aug 2026 20:38:14 GMT
+
+https://collider.com/most-perfect-guitar-solos-classic-rock-history-ranked/
+
+From The Eagles to Led Zeppelin, these iconic rock bands created guitar solos that defined generations and remain the greatest in rock history.
+---------
+
+# 'The Office' Star Lucy Davis Shares Tragic Cancer Diagnosis
+
+TV News, The Office, Lucy Davis
+
+Tue, 11 Aug 2026 21:18:20 GMT
+
+https://movieweb.com/the-office-lucy-davis-cancer-diagnosis/
+
+Lucy Davis provided a shocking health update to her fans, indicating that she is dealing with a serious cancer diagnosis.
+---------
+
+# New 9/10 Batman Series Beats Amazon's Best Action Thriller on Streaming
+
+TV News, Batman: Caped Crusader, Reacher, Hot on Streaming
+
+Tue, 11 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/batman-caped-crusader-reacher-prime-video-stream-august-2026/
+
+Prime Video scored big with its darker reimagining of the Batman mythos.
+---------
+
+# The 10 Greatest Final Lines in Crime Thriller Movie History, Ranked
+
+Movie Lists, Crime, Thriller
+
+Tue, 11 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/final-lines-crime-thriller-movie-history/
+
+From classic noir to modern masterpieces, these are the best quotes from movie history to ever cap off a crime thriller.
+---------
+
 # The Elder Scrolls 6 Title Officially Teased
 
 Gaming, The Elder Scrolls 6, The Elder Scrolls, Triple-A Games, PC
