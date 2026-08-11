@@ -1,3 +1,278 @@
+# Spider-Man: Brand New Day Box Office Officially Hits Rare Milestone In Less Than 3 Weeks
+
+Movies, Spider-Man: Brand New Day
+
+Tue, 11 Aug 2026 19:41:56 GMT
+
+https://screenrant.com/spider-man-brand-new-day-box-office-700-million-domestic-milestone/
+
+The box office success continues for Spider-Man: Brand New Day, as the Tom Holland-starring MCU movie has hit another massive milestone after 3 weeks.
+---------
+
+# Reacher Season 4 Review: The Action Has Never Been Better
+
+TV, Originals, Reacher
+
+Tue, 11 Aug 2026 19:34:56 GMT
+
+https://screenrant.com/video/reacher-season-4-review-the-action-has-never-been-better/
+
+Reacher Season 4: The Action Is Better Than Ever. Prime Video's action thriller returns with eight episodes of brutal fights, ambitious stunts, and some of the most inventive set pieces Jack Reacher has faced yet.
+---------
+
+# The Witcher Is Ending, But Amazon Already Has The Perfect Replacement
+
+Streaming TV, Masked Recs
+
+Tue, 11 Aug 2026 19:30:11 GMT
+
+https://screenrant.com/god-of-war-fantasy-show-amazon-prime-the-witcher-replacement/
+
+It won't be long before Netflix's The Witcher comes to a close, but don't fret; Amazon's Prime Video is already working on a successor.
+---------
+
+# 5 John Carpenter Movies That Deserve A Second Look
+
+Classic Movies, John Carpenter
+
+Tue, 11 Aug 2026 19:20:11 GMT
+
+https://screenrant.com/john-carpenter-movies-second-look/
+
+John Carpenter has some of the best horror and sci-fi movies in the genre, yet many of those films remain underrated and overlooked by fans.
+---------
+
+# The Last House's Twist Ending & The Creatures Explained
+
+Movies, The Last House
+
+Tue, 11 Aug 2026 19:20:11 GMT
+
+https://screenrant.com/the-last-house-movie-ending-explained/
+
+The Last House is Netflix’s latest surprising thriller, and the film’s terrifying and unusual monsters are one of its most interesting features.
+---------
+
+# Netflix's Hit New Sci-Fi Thriller Dominates With 27.5 Million Views In Just 3 Days
+
+Movies, The Last House
+
+Tue, 11 Aug 2026 19:18:22 GMT
+
+https://screenrant.com/the-last-house-netflix-viewership-numbers-opening-weekend/
+
+Netflix's hit new sci-fi thriller dominates with 27.5 million views in just three days since its debut on the streaming service on August 7.
+---------
+
+# Anne Hathaway's Queen Mia Of Genovia Won't Reunite With Major Royal Character In Princess Diaries 3
+
+Movies, The Princess Diaries 3, The Princess Diaries
+
+Tue, 11 Aug 2026 19:17:02 GMT
+
+https://screenrant.com/princess-diaries-3-julie-andrews-queen-clarisse-renaldi-not-returning/
+
+Unfortunately, Anne Hathaway's Queen Mia won't reunite with a key royal character in Princess Diaries 3, and the veteran star explains why.
+---------
+
+# IDW's You'll Never Leave This Place Alive Is One of the Year's Best Horror Comics (Exclusive)
+
+Comics, IDW Publishing
+
+Tue, 11 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/youll-never-leave-this-place-alive-exclusive/
+
+Watch out
+---------
+
+# James Bond Meets Jason Bourne In Prime Video's 107-Minute Action Thriller
+
+Streaming TV, Masked Recs
+
+Tue, 11 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/tom-clancy-jack-ryan-ghost-war-bond-meets-bourne-movie/
+
+Tom Clancy's Jack Ryan felt like a throwback to the Bourne movies and Daniel Craig's Bond films — and so does its new sequel movie, Ghost War.
+---------
+
+# Far Cry 3: Project Medusa Gameplay Unveiled
+
+Gaming, Far Cry, PC
+
+Tue, 11 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/far-cry-3-project-medusa-gameplay-showcase/
+
+After a lot of waiting, fans can finally catch a glimpse of Far Cry 3: Project Medusa's official gameplay through a new showcase.
+---------
+
+# Google's Free Streaming Service Adds 10,000 Titles to Compete With Tubi & Pluto TV
+
+TV, google, Tubi TV
+
+Tue, 11 Aug 2026 19:42:47 GMT
+
+https://www.cbr.com/google-tv-freeplay-10000-free-titles/
+
+There's a new streaming war going on, but for free services.
+---------
+
+# Avatar: The Last Airbender Releases New Official Look at Korra's Successor Ahead of Seven Havens
+
+Anime, Avatar: The Last Airbender, Avatar: Seven Havens, Paramount Plus
+
+Tue, 11 Aug 2026 19:20:15 GMT
+
+https://www.cbr.com/avatar-seven-havens-pavi-new-look/
+
+Fans just got their best look yet at the Avatar: The Last Airbender franchise's next animated series, and Seven Havens may be just what it needs.
+---------
+
+# The Best Anime War Movie Belongs to The Darkest Franchise Since Berserk
+
+Anime, Attack on Titan, Attack on Titan: The Last Attack, Berserk
+
+Tue, 11 Aug 2026 19:01:15 GMT
+
+https://www.cbr.com/best-anime-war-movie-darker-than-berserk-attack-on-titan/
+
+The best anime war film gives Berserk a run for its money as the industry's darkest franchise in the new-gen era.
+---------
+
+# Apple TV's Ted Lasso Replacement Sends Scott Into a Spiral After Therapy in New Exclusive Clip
+
+TV, Trying
+
+Tue, 11 Aug 2026 19:01:14 GMT
+
+https://www.cbr.com/apple-tv-trying-scott-spiral-after-therapy-clip/
+
+Exclusive: As Season 5 nears its finale, Scott's storyline gets even more intense.
+---------
+
+# The 5 Strongest Characters In Brandon Sanderson's Mistborn Books, Ranked By Power
+
+Movies, Mistborn
+
+Tue, 11 Aug 2026 19:01:14 GMT
+
+https://www.cbr.com/strongest-brandon-sanderson-mistborn-characters-ranked-list/
+
+Brandon Sanderson's famous Mistborn series has more than a few powerful characters, but these five are the strongest of them all.
+---------
+
+# 5 Epic Books To Read if You Love ‘The Odyssey’
+
+Books and Comics, Books, The Odyssey, Christopher Nolan, Action
+
+Tue, 11 Aug 2026 19:45:14 GMT
+
+https://collider.com/books-like-the-odyssey/
+
+From ancient epics to revenge classics, these unforgettable books deliver the adventure, tragedy, and scale that made The Odyssey timeless.
+---------
+
+# Thrilljoy's Next Sci-Fi Line Is Perfect for 'Blade Runner' and 'Tron' Fans
+
+Exclusives, SDCC, Tron, Blade Runner, Merchandise
+
+Tue, 11 Aug 2026 19:25:06 GMT
+
+https://collider.com/thrilljoy-blade-runner-tron-collectibles-brian-mariotti/
+
+The team behind Thrilljoy break down the secrets behind their new collectible company's success, and tease their upcoming collabs with Blade Runner an
+---------
+
+# 10 Forgotten Thrillers That Are Perfect To Watch in 2026
+
+Movie, Thriller, You Were Never Really Here, Killer Joe, A Simple Plan
+
+Tue, 11 Aug 2026 19:23:14 GMT
+
+https://collider.com/forgotten-thriller-movies-perfect-watch-2026/
+
+Exceptional movies like Narc and Killer Joe are hidden gems of the thriller genre that have unfairly been forgotten but deserve a rediscovery in 2026.
+---------
+
+# India's Biggest Fantasy Epic Since 'Baahubali' Is One of the Most Ambitious Movies of 2026
+
+Exclusives, Ramayana, SDCC, Ranbir Kapoor, Sony Pictures
+
+Tue, 11 Aug 2026 19:17:23 GMT
+
+https://collider.com/ramayana-sony-fantasy-epic-ranbir-kapoor-nitesh-tiwari/
+
+Ranbir Kapoor and the team behind Ramayama break down their upcoming fantasy epic and why it's one of India's most ambitious movies ever.
+---------
+
+# Beloved 9-Part Fantasy Franchise Star Is Officially Ready for Reboot Movie [Exclusive]
+
+Movie News, The Good Witch, Fantasy, Hallmark
+
+Tue, 11 Aug 2026 19:00:15 GMT
+
+https://collider.com/the-good-witch-reboot-catherine-bell-chris-potter/
+
+The Good Witch stars Chris Potter and Catherine Bell are officially ready to return to the beloved fantasy series for a new reboot movie.
+---------
+
+# Apple TV's Long-Awaited Epic Fantasy Adaptation Gets Disappointing Update
+
+Movie News, Mistborn
+
+Tue, 11 Aug 2026 19:37:48 GMT
+
+https://movieweb.com/mistborn-script-draft-status-update-brandon-sanderson/
+
+Brandon Sanderson has provided news on the script for Apple tV's 'Mistborn.'
+---------
+
+# Chris Evans Confirms a Brutal 'Avengers: Doomsday' Story for Steve Rogers
+
+Movie News, Avengers: Doomsday
+
+Tue, 11 Aug 2026 19:33:25 GMT
+
+https://movieweb.com/chris-evans-avengers-doomsday-steve-rogers-brutal-story/
+
+The MCU actor teased an intense character arc in the upcoming superhero ensemble.
+---------
+
+# 13 Seismic Changes 'House of the Dragon' Season 3's Finale Makes to the Lore
+
+TV Lists, House of the Dragon, Game of Thrones
+
+Tue, 11 Aug 2026 19:04:47 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-finale-lore-changes/
+
+Some would say this is no longer an adaptation. 'House of the Dragon' has taken its own direction, with each minor change stacking up.
+---------
+
+# Amazon's Raunchy R-Rated Hit Falls to New 9/10 Binge-Worthy Favorite on Streaming
+
+TV News, Sterling Point, Off Campus, Streamer Comparisons, Prime Video
+
+Tue, 11 Aug 2026 19:00:12 GMT
+
+https://movieweb.com/sterling-point-beats-off-campus-streaming-prime-video-august-2026/
+
+Prime Video's new Megan Park series has finally managed to dethrone the juggernaut that is 'Off Campus' on streaming.
+---------
+
+# Alan Ritchson's Unique New Action Thriller Gets Digital Streaming Release Date
+
+Movie News, Motor City, Alan Ritchson
+
+Tue, 11 Aug 2026 18:56:42 GMT
+
+https://movieweb.com/alan-ritchson-motor-city-digital-release-date/
+
+This year's 'Motor City' is set to hit Digital on Aug. 25.
+---------
+
 # Ted Lasso Spinoff Story Rumors Clarified By Jason Sudeikis & Apple TV Exec
 
 TV, Ted Lasso, Ted Lasso - Season 4, Jason Sudeikis
