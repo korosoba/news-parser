@@ -1,3 +1,366 @@
+# 6 Sword & Sorcery Fantasy Shows To Watch Like Masters Of The Universe
+
+Classic TV, Masters of the Universe
+
+Tue, 11 Aug 2026 01:30:11 GMT
+
+https://screenrant.com/fantasy-shows-like-masters-of-the-universe/
+
+Masters of the Universe may not have succeeded at the box office, but people who saw it loved it, and they'll love these sword & sorcery shows too.
+---------
+
+# Disney+ Just Dropped An 8-Episode Sci-Fi Masterpiece, And Anime Fans Didn't Even Notice
+
+Anime, Star Wars, Star Wars: Visions Presents - The Ninth Jedi, Disney+
+
+Tue, 11 Aug 2026 01:30:11 GMT
+
+https://screenrant.com/disney-star-wars-visions-ninth-jedi-masterpiece/
+
+Production I.G's new eight-episode anime series delivers an incredible sci-fi adventure completely free from decades of Star Wars continuity.
+---------
+
+# Brandon Sanderson Showdown: Which Of The Authors 2 Highest-Rated Books Is Better?
+
+Books, Brandon Sanderson
+
+Tue, 11 Aug 2026 01:24:36 GMT
+
+https://screenrant.com/brandon-sanderson-the-way-of-kings-words-of-radiance-best-books/
+
+Two Brandon Sanderson books tie for first place across book rating platforms, but one of them barely edges the other out and takes the crown.
+---------
+
+# Jax Teller's 10 Best Quotes In Sons of Anarchy
+
+Classic TV, Sons of Anarchy
+
+Tue, 11 Aug 2026 01:15:11 GMT
+
+https://screenrant.com/sons-of-anarchy-best-jax-teller-quotes/
+
+Sons of Anarchy has many memorable quotes throughout its seven seasons, most of them delivered by Jax, who went through a lot in the show.
+---------
+
+# Why I’m Glad Daredevil Wasn’t In Spider-Man: Brand New Day
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe, Daredevil
+
+Tue, 11 Aug 2026 01:00:11 GMT
+
+https://screenrant.com/i-am-glad-daredevil-was-not-in-spider-man-brand-new-day/
+
+When all is said and done, I think it's for the best that Matt Murdock's Daredevil wasn't in Spider-Man: Brand New Day (for a few key reasons).
+---------
+
+# The Rings Of Power Is About To Beat Game Of Thrones At Its Own Game
+
+Streaming TV, The Lord of the Rings: The Rings of Power
+
+Tue, 11 Aug 2026 01:00:11 GMT
+
+https://screenrant.com/the-rings-of-power-complicated-family-tree-beat-game-of-thrones/
+
+Rings of Power doesn't cross the branches of its family trees in quite the same way as Game of Thrones, but things are still about to get weird.
+---------
+
+# 16 Years Later, Castiel's Best Line Is Still A Top 3 Supernatural Quote
+
+Classic TV, Supernatural
+
+Tue, 11 Aug 2026 00:45:11 GMT
+
+https://screenrant.com/castiel-best-line-supernatural-quote/
+
+Discover the best line of Castiel's from his 11-season run on The CW's Supernatural, and take a look at its lasting impact on the fandom as a whole.
+---------
+
+# DC's New Joker Honors Heath Ledger's Dark Knight Villain
+
+Streaming TV, Masked Recs
+
+Tue, 11 Aug 2026 00:40:15 GMT
+
+https://screenrant.com/batman-caped-crusader-joker-heath-ledger-dark-knight/
+
+DC's Joker in Batman TV show on Prime Video finally showcases what Heath Ledger's Joker could have looked like in Christopher Nolan's The Dark Knight.
+---------
+
+# Disney's New Star Wars Saga Is Already Better Than The Sequel Trilogy
+
+Streaming TV, Masked Recs
+
+Tue, 11 Aug 2026 00:30:11 GMT
+
+https://screenrant.com/star-wars-ninth-jedi-better-sequel-trilogy/
+
+Star Wars' newest show tells the story the sequel trilogy promised to but never did, and it is easily one of the best shows Disney has made.
+---------
+
+# Holly Hunter “Loved” William Shatner’s Defense Of Divisive Star Trek Series
+
+TV, Star Trek, Star Trek: Starfleet Academy
+
+Tue, 11 Aug 2026 00:27:01 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-holly-hunter-william-shatner/
+
+Holly Hunter speaks out about the accusations of Star Trek: Starfleet Academy being "woke" and praises William Shatner's defense of the series.
+---------
+
+# 10 Greatest Anime Detectives More Clever Than Sherlock Holmes
+
+Anime, Death Note, Bungo Stray Dogs, The Millionaire Detective – Balance: UNLIMITED, Gosick, Case Closed, Mystery, Sherlock Holmes
+
+Tue, 11 Aug 2026 01:25:15 GMT
+
+https://www.cbr.com/anime-detectives-more-clever-than-sherlock-holmes/
+
+These anime characters are incredibly smart in their own unique ways, defying the blueprint set by Sherlock Holmes.
+---------
+
+# 1 of the Best Sci-Fi Series in TV History Is Quietly Leaving Netflix
+
+TV, Orphan Black, Netflix
+
+Tue, 11 Aug 2026 01:00:15 GMT
+
+https://www.cbr.com/best-sci-fi-series-orphan-black-quietly-leaving-netflix/
+
+Netflix is officially taking an ax to one of the best sci-fi thrillers to ever exist: Orphan Black.
+---------
+
+# Reggie Bannister, Phantasm Star and Horror Icon, Dies at 80
+
+Movies, Phantasm, obituary, Horror
+
+Tue, 11 Aug 2026 00:53:00 GMT
+
+https://www.cbr.com/reggie-bannister-dead/
+
+Phantasm franchise star Reggie Bannister has passed away.
+---------
+
+# 5 Masterpiece Open World RPGs With the Best Characters
+
+Games, Video Games, Fallout, RPG, open world
+
+Tue, 11 Aug 2026 00:46:14 GMT
+
+https://www.cbr.com/masterpiece-open-world-rpgs-with-best-characters/
+
+Cyberpunk and Horizon introduce unforgettable characters that keep players fully invested in the game.
+---------
+
+# Jeffrey Dean Morgan Confirms Losing Reservoir Dogs Role: 'I Still Can't Believe It'
+
+Movies, Reservoir Dogs
+
+Tue, 11 Aug 2026 00:41:09 GMT
+
+https://www.cbr.com/jeffrey-dean-morgan-nearly-cast-reservoir-dogs/
+
+The Walking Dead star Jeffrey Dean Morgan came close to playing one of the robbers in Reservoir Dogs.
+---------
+
+# The Seven Deadly Sins Officially Brings Derieri to Its Open-World RPG
+
+Anime, The Seven Deadly Sins, Netflix
+
+Tue, 11 Aug 2026 00:35:15 GMT
+
+https://www.cbr.com/seven-deadly-sins-origin-derieri-open-world-rpg/
+
+The Seven Deadly Sins officially welcomes Derieri this August as a new playable character alongside new quests, raids and more.
+---------
+
+# 27 Years Later, Tony's Greatest Sopranos Line Is Still the Most Powerful Quote in Crime TV History
+
+TV, The Sopranos, Crime, hbo
+
+Tue, 11 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/the-sopranos-tony-best-crime-tv-quote/
+
+This line from the first episode of The Sopranos introduced audiences to Tony's worldview, setting up his arc for the entire iconic HBO series.
+---------
+
+# 10 Complete Action Anime Series That Are 10/10, No Notes
+
+Anime, Action, Attack On Titan, Fullmetal Alchemist: Brotherhood
+
+Tue, 11 Aug 2026 00:15:15 GMT
+
+https://www.cbr.com/perfect-complete-action-anime-10-10-no-notes/
+
+The perfect action anime manage to maintain raise audience adrenaline, all while keeping them invested from start to finish.
+---------
+
+# Sean Connery's has the Best Indiana Jones Quote
+
+Movies, Indiana Jones, Adventure, sean connery
+
+Tue, 11 Aug 2026 00:00:15 GMT
+
+https://www.cbr.com/indiana-jones-sean-connery-greatest-quote-in-adventure-movies/
+
+When Sean Connery joined the Indiana Jones franchise in 1989, he delivered the single greatest quote in adventure movie history.
+---------
+
+# 57 Years Later, the Best Sitcom Ever Made Still Deserves a Reboot
+
+TV Features, Sitcom, The Brady Bunch, ABC, Comedy
+
+Tue, 11 Aug 2026 01:22:15 GMT
+
+https://collider.com/the-brady-bunch-iconic-sitcom-deserves-a-reboot/
+
+The Brady Bunch is primed for a modern reboot, and now is the best time for TV's best blended family to come back.
+---------
+
+# 3 Greatest Series to Binge on Prime Video This Week (August 10-14)
+
+TV, Prime Video, Desperate Housewives, 12 Monkeys, Death Note
+
+Tue, 11 Aug 2026 01:11:14 GMT
+
+https://collider.com/prime-video-shows-binge-august-10-2026/
+
+12 Monkeys, Desperate Housewives, and Death Note make up our list of the best shows to binge on Prime Video the week of August 10th, 2026.
+---------
+
+# 10 Greatest XBox 360 Games of All Time
+
+Gaming, Video Game, Xbox 360, Gears of War, Halo
+
+Tue, 11 Aug 2026 01:11:14 GMT
+
+https://collider.com/best-xbox-360-games-all-time-ranked/
+
+Halo 3, Call of Duty 4: Modern Warfare, and Call of Duty 4: Modern Warfare are among the absolute best games released on the Xbox 360 console.
+---------
+
+# 10 Greatest Movies That Won Both Best Picture and Director Oscars
+
+Movie, Parasite, The Lord of the Rings: The Return of the King, The Godfather: Part II, Academy Awards
+
+Tue, 11 Aug 2026 01:11:14 GMT
+
+https://collider.com/greatest-movies-won-best-picture-director-oscars/
+
+Classics like Parasite, It Happened One Night, and The Apartment are among the best movies that won Oscars for Best Picture and Best Director.
+---------
+
+# If ‘Avatar: Aang’ Left You Wanting More, These Books Expand the World Better Than You Think
+
+Books and Comics, Avatar Aang: The Last Airbender, Avatar: The Last Airbender, Books, Series
+
+Tue, 11 Aug 2026 00:52:14 GMT
+
+https://collider.com/avatar-aang-last-airbender-books-kyoshi-yangchen-roku/
+
+Explore the best Avatar: The Last Airbender books, from Kyoshi and Yangchen to Roku and City of Echoes, after Avatar: Aang.
+---------
+
+# 'House of the Dragon' Just Revealed Its Direct Connection to the 'Aegon's Conquest' Movie
+
+TV Features, House of the Dragon, HBO, HBO Max, Game Of Thrones
+
+Tue, 11 Aug 2026 00:39:15 GMT
+
+https://collider.com/house-of-the-dragon-aegons-conquest-alys-harrenhal/
+
+Alys Rivers' tragic past as the Lady of Harrenhal in House of the Dragon could be a direct link to Harren the Black in the Aegon's Conquest movie.
+---------
+
+# James Bond Officially Narrows the List for Next 007
+
+Movie News, James Bond, Denis Villeneuve, Steven Knight, Daniel Craig
+
+Tue, 11 Aug 2026 00:30:15 GMT
+
+https://collider.com/james-bond-casting-search-next-round-of-auditions-happening-now/
+
+Amazon is now conducting the next round of auditions for the new James Bond, who will take over the role of 007 from Daniel Craig.
+---------
+
+# 6 Most Perfect Gangster Movies Released Since 2000
+
+Movie, City of God, The Departed, The Irishman, A Prophet (2009)
+
+Tue, 11 Aug 2026 00:09:14 GMT
+
+https://collider.com/most-perfect-gangster-movies-since-2000-ranked/
+
+From The Departed to The Irishman, these gangster masterpieces showcase the crime genre at its most powerful.
+---------
+
+# ‘Elden Ring’ Officially Brings Back Epic Boss for a New 2026 Release
+
+Gaming News, Elden Ring, A24, George R.R. Martin
+
+Tue, 11 Aug 2026 00:00:15 GMT
+
+https://collider.com/elden-ring-malenia-statue-release-date-december-2026/
+
+Elden Ring's most menacing boss, Malenia, officially returns in a brand-new release coming later this year.
+---------
+
+# In Just 5 Days, Disney's Best 'Star Wars' Series Slices Its Way to Streaming Success
+
+TV News, Star Wars: Visions Presents - The Ninth Jedi, Hot on Streaming
+
+Tue, 11 Aug 2026 01:00:12 GMT
+
+https://movieweb.com/star-wars-visions-presents-the-ninth-jedi-disney-plus-stream-august-2026/
+
+'Star Wars' latest spin-off subverts the rules of the Force.
+---------
+
+# Scarlett Johansson's Sci-Fi Thriller From Elite Horror Director Recruits Jacob Elordi
+
+Movie News, Scarlett Johansson, Ari Aster, Jacob Elordi
+
+Tue, 11 Aug 2026 00:33:37 GMT
+
+https://movieweb.com/scarlett-johnasson-ari-aster-sci-fi-thriller-jacob-elordi/
+
+The new Ari Aster genre-bender is now an even more anticipated event.
+---------
+
+# 'Law and Order: SVU' Officially Confirms Epic 3-Part Special Event This Fall
+
+TV News, Law & Order: Special Victims Unit
+
+Tue, 11 Aug 2026 00:21:41 GMT
+
+https://movieweb.com/law-and-order-svu-mariska-hargitay-marathon/
+
+The longest-running primetime live-action scripted series ever will bring a little something extra when it comes back for its next season.
+---------
+
+# Amazon Scores Big With Rebecca Ferguson's 10/10 Sci-Fi Masterpiece
+
+TV News, Silo, Hot on Streaming, Rebecca Ferguson
+
+Tue, 11 Aug 2026 00:00:12 GMT
+
+https://movieweb.com/silo-prime-video-august-2026/
+
+Rebecca Ferguson's science fiction epic leaves Prime Video this week.
+---------
+
+# 'House of the Dragon' Delivers the Helaena Moment George R.R. Martin Warned About
+
+Features, House of the Dragon, Game of Thrones, Game Of Thrones
+
+Tue, 11 Aug 2026 00:00:12 GMT
+
+https://movieweb.com/house-of-the-dragon-moment-george-r-r-martin-warned-about/
+
+House of the Dragon Season 3 finally delivers the scene that George R.R. Martin's now-deleted blog post talked about, and it unfolds as he said.
+---------
+
 # Doctor Who & 007 Are Both Starting New Eras After 60+ Years
 
 Streaming TV, Doctor Who, James Bond
