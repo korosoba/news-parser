@@ -1,3 +1,278 @@
+# Stephen King’s Hit R-Rated Dystopian Thriller Continues Streaming Dominance On New Platform
+
+Movies, Masked Recs
+
+Tue, 11 Aug 2026 14:45:56 GMT
+
+https://screenrant.com/stephen-king-the-long-walk-prime-video-charts-august-2026/
+
+Stephen King's R-rated dystopian thriller recently got its first movie in 47 years, and it has now become a global hit on a new streaming service.
+---------
+
+# New R-Rated Movie With How To Train Your Dragon Star Debuts To Stellar Rotten Tomatoes Score
+
+Movies, Masked Recs
+
+Tue, 11 Aug 2026 14:44:54 GMT
+
+https://screenrant.com/nimrods-movie-rotten-tomatoes-score/
+
+How to Train Your Dragon star Mason Thames leads a new R-rated movie with a surprising premise, and critics are so far impressed by the venture.
+---------
+
+# PlayStation Officially Announces New Hardware Alongside Impending Pre-Order Date
+
+Gaming, PlayStation 5, Triple-A Games
+
+Tue, 11 Aug 2026 14:42:39 GMT
+
+https://screenrant.com/playstation-wolverine-new-hardware-announced/
+
+If you're a fan of PlayStation, you'll want to follow this new hardware drop closely, as it has an impending pre-order date that's coming up.
+---------
+
+# A Court of Thorns And Roses Officially Returns October 6
+
+Gaming, A Court of Thorns and Roses
+
+Tue, 11 Aug 2026 14:30:43 GMT
+
+https://screenrant.com/court-of-thorns-and-roses-board-game-october-2026/
+
+Discover new ACOTAR releases coming this October, immersing fans in the world of Prythian.
+---------
+
+# Reacher Season 4 Debuts With Record-Setting Rotten Tomatoes Score
+
+TV, Reacher, Alan Ritchson, Prime Video
+
+Tue, 11 Aug 2026 14:21:09 GMT
+
+https://screenrant.com/reacher-season-4-rotten-tomatoes-score-debut-prime-video/
+
+Reacher season 4 is about to premiere this week on Prime Video, as the Rotten Tomatoes score for Alan Ritchson's hit TV show has officially debuted.
+---------
+
+# Toy Story 5 Digital Release Date Confirmed
+
+Movies, Toy Story 5
+
+Tue, 11 Aug 2026 14:16:09 GMT
+
+https://screenrant.com/toy-story-5-digital-release-date-confirmed/
+
+Toy Story 5 is coming home, as Disney officially announces the digital release date for the extremely successful and beloved latest addition.
+---------
+
+# Gary Oldman’s $242M Sci-Fi That Prime Video Is Rebooting Returns As Global Streaming Sensation
+
+Movies, Masked Recs
+
+Tue, 11 Aug 2026 14:08:13 GMT
+
+https://screenrant.com/robocop-paramount-plus-streaming-success-august-2026/
+
+Gary Oldman's sci-fi movie that earned $242 million and is being rebooted by Prime Video returns as a worldwide streaming sensation.
+---------
+
+# Oni Press' Psychedelic MIND MGMT Returns with the Perfect Jumping-On Point (Exclusive)
+
+Exclusive, Masked Recs
+
+Tue, 11 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/mind-mgmt-returns-oni-press/
+
+The perfect place.
+---------
+
+# 2026's Dunesday Battle Means Zendaya & Tom Holland Can Both Make Box Office History
+
+Movies, Avengers: Doomsday, Dune: Part Three
+
+Tue, 11 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/zendaya-tom-holland-dunesdox-box-office-history/
+
+The looming "Dunesday" battle of 2026 will be massive for the year's box office, etching stars Tom Holland and Zendaya into cinematic history.
+---------
+
+# 10 Years Later, Hellboy Announces New Sequel Comic That Will Return Him to Hell
+
+Comics, Hellboy
+
+Tue, 11 Aug 2026 13:57:17 GMT
+
+https://screenrant.com/hellboy-in-hell-parade-of-horrors-series-details/
+
+Hellboy’s original creator is returning to give the Red Devil himself an unexpected sequel to one of the franchise’s greatest stories.
+---------
+
+# 5 Forgotten Action Thrillers That Are Perfect From Start to Finish
+
+Movies, Action
+
+Tue, 11 Aug 2026 14:30:16 GMT
+
+https://www.cbr.com/best-action-thrillers-no-one-remembers-list/
+
+The mash-up of action and thriller has given audiences some of the most gripping movie experiences ever made, but some of the best are forgotten.
+---------
+
+# 8 Biggest Changes House of the Dragon Season 3 Made From the Book
+
+TV, House of the Dragon, Game Of Thrones, Fantasy
+
+Tue, 11 Aug 2026 14:30:16 GMT
+
+https://www.cbr.com/house-of-the-dragon-biggest-changes-fire-blood-book-list-ranked/
+
+House of the Dragon Season 3 included major changes from George R.R. Martin's Fire & Blood.
+---------
+
+# Resident Evil Officially Drops New $1,699 Release Coming This Fall
+
+Games, Resident Evil, Video Games, Resident Evil 4
+
+Tue, 11 Aug 2026 14:30:16 GMT
+
+https://www.cbr.com/resident-evil-officially-drops-new-expensive-release-fall-2026/
+
+Leon S. Kennedy fans who want to drop $1,699 on an amazing replica of the Resident Evil 4 hero now have the chance, thanks to a gorgeous new release.
+---------
+
+# Power Rangers Officially Reveals the Green Ranger’s New Era
+
+Comics, Power Rangers, boom! studios, comics
+
+Tue, 11 Aug 2026 14:30:16 GMT
+
+https://www.cbr.com/power-rangers-green-ranger-new-era/
+
+The Green Ranger is back for an all-new Power Rangers adventure.
+---------
+
+# 5 Anime Villains Stronger Than Muzan Kibutsuji
+
+Anime, Demon Slayer, Dragon Ball, Naruto
+
+Tue, 11 Aug 2026 14:15:15 GMT
+
+https://www.cbr.com/anime-villains-stronger-than-muzan-kibutsuji/
+
+Muzan Kibutsuji may be one of the most feared entities in Demon Slayer, but his strength can't compare to that of other anime villains.
+---------
+
+# Star Wars Is Switching Genres With New Galactic Racer Game
+
+Games, Star Wars
+
+Tue, 11 Aug 2026 14:00:15 GMT
+
+https://www.cbr.com/star-wars-galactic-racer-first-look-preview/
+
+CBR had the chance to preview the Campaign in Star Wars: Galactic Racer, which turned out to be far more in-depth and replayable than expected.
+---------
+
+# Disney's Most Dashing Double-Crossers Join Ravensburger's Disney Villainous
+
+Games, Disney, Tabletop, Gaming
+
+Tue, 11 Aug 2026 14:00:15 GMT
+
+https://www.cbr.com/ravensburger-disney-villainous-success-at-any-cost-review/
+
+The ninth expansion in Ravensburger's Disney Villainous board game is finally here, and these dashing villains will win at any cost!
+---------
+
+# Xbox Officially Celebrates 25th Anniversary With Free Download for All Players
+
+Games, Xbox (Original), Innovation
+
+Tue, 11 Aug 2026 13:51:15 GMT
+
+https://www.cbr.com/xbox-official-25th-anniversary-free-badge-download-all-players/
+
+Xbox gamers can officially celebrate their favorite console's 25th anniversary with a whole host of free downloads ahead of the Xbox FanFest tour.
+---------
+
+# ‘Toy Story 5’ Officially Sets Digital Release
+
+Movie News, Toy Story 5, Toy Story, Toy Story 3, Toy Story 4
+
+Tue, 11 Aug 2026 14:22:58 GMT
+
+https://collider.com/toy-story-5-digital-4k-blu-ray-release-date/
+
+Toy Story 5 has officially set release dates for digital and 4K UHD, Blu-ray, and DVD. Here's when you can own the Pixar movie.
+---------
+
+# Netflix Officially Reveals New Psychological Thriller Trailer
+
+Movie News, Lea Seydoux, Netflix, Cannes Film Festival, TIFF
+
+Tue, 11 Aug 2026 14:14:23 GMT
+
+https://collider.com/gentle-monster-trailer-lea-seydoux-netflix/
+
+Watch the Gentle Monster trailer starring Léa Seydoux ahead of the psychological thriller’s November 18 release on Netflix.
+---------
+
+# Netflix's New "Carrie Meets Jennifer's Body" Thriller Gets First Look & Release Date
+
+TV News, Netflix
+
+Tue, 11 Aug 2026 14:47:05 GMT
+
+https://movieweb.com/netflix-the-body-first-look-release-date/
+
+The new Netflix thriller was inspired by the likes of 'Carrie' and 'Jennifer's Body.'
+---------
+
+# 'Toy Story 5' Officially Confirms August Digital Streaming Release Date
+
+Movie News, Toy Story 5
+
+Tue, 11 Aug 2026 14:42:47 GMT
+
+https://movieweb.com/toy-story-5-digital-streaming-release-date/
+
+Disney and Pixar's newest 'Toy Story' movie will soon be available to watch at home after a record-breaking box office run.
+---------
+
+# A Father Fights To Find His Daughter in First Trailer for Apple TV Thriller
+
+TV News, Last Seen, Apple TV
+
+Tue, 11 Aug 2026 14:28:09 GMT
+
+https://movieweb.com/last-seen-trailer-patrick-brammall-apple-tv/
+
+Patrick Brammall leads Apple TV thriller 'Last Seen' as a dispatcher chasing a call from his missing daughter. The first trailer is here.
+---------
+
+# Prime Video's 84-Minute Statham Meets Bourne Action Thriller Soars on Streaming
+
+Movie News, Agent Zero, Hot on Streaming, Action, Prime Video
+
+Tue, 11 Aug 2026 14:00:12 GMT
+
+https://movieweb.com/agent-zero-badh-action-prime-video-streaming-hit-august-2026/
+
+Prime Video has scored big with a new action thriller that combines every Jason Statham movie from the past 5 years with a little Jason Bourne.
+---------
+
+# Netflix’s Divisive Smash Hit Sci-Fi Thriller Is Still Worth Watching
+
+Features, The Last House, Wagner Moura
+
+Tue, 11 Aug 2026 14:00:12 GMT
+
+https://movieweb.com/the-last-house-netflix-divisive-thriller/
+
+Netflix's sci-fi thriller continues to soar on the streaming charts, even with low critic and audience ratings.
+---------
+
 # Netflix’s New Crime Thriller Gentle Monster Turns A Happy Home Into A Tense Nightmare In New Trailer
 
 Movies, Netflix
