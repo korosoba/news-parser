@@ -1,3 +1,113 @@
+# Brandon Sanderson's Stormlight Archive Officially Returns As A Brand-New Era Begins
+
+Gaming, The Stormlight Archive
+
+Tue, 11 Aug 2026 11:00:11 GMT
+
+https://screenrant.com/brandon-sanderson-stormlight-archive-war-for-roshar-new-era/
+
+Discover War for Roshar, an epic board game set in Sanderson's Stormlight Archives, launching in Fall 2026.
+---------
+
+# Pokémon Officially Releases New Eeveelution Set For 30th Anniversary
+
+Gaming, Pokemon, PC, Pokémon - Season 1
+
+Tue, 11 Aug 2026 10:53:31 GMT
+
+https://screenrant.com/pokemon-new-eeveelution-collectors-release/
+
+Pokémon fans can claim a brand-new 30th anniversary special Eeveelution release now thanks to a unique new collector's line.
+---------
+
+# Star Wars Legend Mace Windu Officially Returns August 21
+
+Gaming, Star Wars, Mace Windu
+
+Tue, 11 Aug 2026 10:30:11 GMT
+
+https://screenrant.com/star-wars-legion-mace-windu-jedi-council-expansion/
+
+Mace Windu is one of the coolest characters in Star Wars canon, so it's always going to be exciting when he returns in a new release.
+---------
+
+# 10 Best Far Side Comics From 1981 That Prove Gary Larson Was a Genius
+
+Comics, The Far Side
+
+Tue, 11 Aug 2026 11:00:16 GMT
+
+https://www.cbr.com/the-far-side-comics-1981-gary-larson-genius/
+
+In its sophomore year, Gary Larson continued making hilarious comics that made readers think long after the laughs faded.
+---------
+
+# Prime Video's New Horror TV Event Is Burying a 52-Year-Old Stephen King Classic
+
+TV, Carrie, Stephen King, Prime Video
+
+Tue, 11 Aug 2026 10:41:41 GMT
+
+https://www.cbr.com/stephen-king-carrie-needs-faithful-adaptation-prime-video-mike-flanagan/
+
+After five decades, this Stephen King classic horror story still hasn't had the adaptation that it deserves.
+---------
+
+# 6 Best Horror Movies Released Since 2010
+
+Movie, Evil Dead Rise, The Sadness, Sinister, The Babadook
+
+Tue, 11 Aug 2026 11:03:14 GMT
+
+https://collider.com/best-horror-movies-since-2010-ranked/
+
+The Babadook, Evil Dead Rise, and Sinister are among the absolute best horror movies released since the year 2000.
+---------
+
+# HBO Max Officially Brings Back 'True Detective' With Superpowers This Weekend
+
+TV News, HBO Max, Lanterns, Aaron Pierre, Kyle Chandler
+
+Tue, 11 Aug 2026 11:00:16 GMT
+
+https://collider.com/hbo-max-true-detective-replacement-lanterns-release-date-august-2026/
+
+HBO Max officially launches a True Detective replacement with a superhero spin this weekend with DC's new Lanterns series. Get the details.
+---------
+
+# Tom Hanks' New WWII Series Officially Dominates Global Streaming Charts
+
+TV News, Tom Hanks, Saving Private Ryan, Greyhound, Nuremberg
+
+Tue, 11 Aug 2026 10:30:14 GMT
+
+https://collider.com/ww2-with-tom-hanks-global-streaming-success-august-2026/
+
+Tom Hanks' docu-series on World War 2, WWII With Tom Hanks, which covers key events and leaders, is officially a streaming success.
+---------
+
+# 'House of the Dragon' Repeats Massive 'Game of Thrones' Season 7 Mistake
+
+Features, House of the Dragon, Game Of Thrones, Game of Thrones
+
+Tue, 11 Aug 2026 11:00:13 GMT
+
+https://movieweb.com/house-of-the-dragon-ormund-mishandled/
+
+"The Treasons at Tumbleton" makes a strange change to 'Fire & Blood,' resulting in an uncharacteristic character death. Read on for more.
+---------
+
+# Amazon's 107-Minute Action-Packed Spy Thriller Is One of the Year's Biggest Movies on Streaming
+
+Movie News, Tom Clancy's Jack Ryan: Ghost War, Hot on Streaming
+
+Tue, 11 Aug 2026 11:00:13 GMT
+
+https://movieweb.com/jack-ryan-ghost-war-biggest-stream-action-august-2026/
+
+The newest film adaptation of a classic action franchise has become a streaming triumph.
+---------
+
 # 6 Unforgettable Far Side Comics Starring Fish
 
 Comics, The Far Side
