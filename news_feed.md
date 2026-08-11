@@ -1,3 +1,168 @@
+# The Elder Scrolls 6 Title Officially Teased
+
+Gaming, The Elder Scrolls 6, The Elder Scrolls, Triple-A Games, PC
+
+Tue, 11 Aug 2026 20:32:15 GMT
+
+https://screenrant.com/elder-scrolls-6-title-teaser-asha-sharma-xbox/
+
+Eight years the reveal of The Elder Scrolls 6, a significant Xbox figure has finally teased the full title of the long-awaited fantasy RPG.
+---------
+
+# 12 Essential Horror Movies To Watch From The 12 Greatest Horror Directors Of All Time
+
+Movies, Horror
+
+Tue, 11 Aug 2026 20:30:11 GMT
+
+https://screenrant.com/best-horror-movie-directors-essential-films-watch/
+
+Throughout the history of horror, there have been a select few filmmakers whose works have had a lasting impact on the genre.
+---------
+
+# Wednesday Season 3’s Timeline & New Addams Family Story Teased By Jenna Ortega
+
+TV, Wednesday, Addams Family
+
+Tue, 11 Aug 2026 20:20:53 GMT
+
+https://screenrant.com/wednesday-season-3-time-jump-addams-family-story-jenna-ortega/
+
+Jenna Ortega reveals when Wednesday season 3 is set while also teasing a key aspect of the Addams family's story after season 2's big twists.
+---------
+
+# Ted Lasso Season 5 Renewal Teased By Apple TV Exec (Exclusive)
+
+TV, Ted Lasso
+
+Tue, 11 Aug 2026 20:04:01 GMT
+
+https://screenrant.com/ted-lasso-season-5-return-response-eddy-cue-apple-tv/
+
+EXCLUSIVE: Echoing recent comments by star Jason Sudeikis, the head of Apple TV opens up about Ted Lasso’s chances of scoring season 5.
+---------
+
+# 26 Years Later, A 10/10 PlayStation 2 RPG Is Free Via PlayStation Plus
+
+Gaming, PlayStation Plus, Triple-A Games
+
+Tue, 11 Aug 2026 20:00:11 GMT
+
+https://screenrant.com/playstation-plus-10-rated-ps2-rpg/
+
+Even if you aren't a fan of the classic era of PlayStation, this game is worth checking out immediately for PlayStation Plus users.
+---------
+
+# Was The Trawler A Real Serial Killer? How Much of Ryan Murphy’s The Shards Is True
+
+TV, The Shards, Ryan Murphy
+
+Tue, 11 Aug 2026 20:00:11 GMT
+
+https://screenrant.com/shards-trawler-real-killer-true-story-explained/
+
+The Trawler's murders and Bret Easton Ellis's misspent youth: How much of Ryan Murphy's new FX thriller series The Shards is a true story?
+---------
+
+# Pokémon Winds & Waves To End Three-Generation Tradition
+
+Games, Pokemon
+
+Tue, 11 Aug 2026 20:35:14 GMT
+
+https://www.cbr.com/pokemon-winds-waves-new-directors-gen-10/
+
+Pokémon Winds and Waves will begin the monolithic franchise's 10th generation next year, and they're bringing an unexpected change from previous gens.
+---------
+
+# 19 Years Later, NCIS' Darkest Ziva Episode Hits 5x as Hard
+
+TV, NCIS
+
+Tue, 11 Aug 2026 20:30:15 GMT
+
+https://www.cbr.com/ncis-darkest-ziva-episode-dead-man-walking/
+
+NCIS delivered some heavy episodes over the years, but Ziva David’s saddest Season 4 storyline hits so much harder after watching her story unfold.
+---------
+
+# These 10/10 Sci-Fi Anime All Have Perfect Scores on Rotten Tomatoes
+
+Anime, Neon Genesis Evangelion, Cyberpunk: Edgerunners, Dandadan
+
+Tue, 11 Aug 2026 20:15:15 GMT
+
+https://www.cbr.com/sci-fi-anime-perfect-scores-on-rotten-tomatoes/
+
+Not all sci-fi anime can claim the 100% rating on Rotten Tomatoes, but these titles have been deemed perfect by fans and critics alike.
+---------
+
+# Paramount's Remake of 45-Year-Old Cult Horror Movie Officially Scores Release Date
+
+Movies, Possession, Horror, paramount pictures
+
+Tue, 11 Aug 2026 20:02:57 GMT
+
+https://www.cbr.com/paramount-possession-remake-release-date/
+
+The Creature compels you to theaters next year.
+---------
+
+# Gerard Butler's 109-Minute Intense Revenge Thriller Explodes as Netflix Hit 17 Years Later
+
+Movies, Law Abiding Citizen, Gerard Butler
+
+Tue, 11 Aug 2026 20:00:15 GMT
+
+https://www.cbr.com/gerard-butler-law-abiding-citizen-thriller-netflix-success-august-2026/
+
+It took 17 years, but Gerard Butler's intense revenge thriller is finally a hit on streaming.
+---------
+
+# After 41 Years, Transformers Officially Rewrites Its Lore
+
+Comics, Transformers
+
+Tue, 11 Aug 2026 20:00:15 GMT
+
+https://www.cbr.com/skybound-transformers-superion-lore-change-revealed/
+
+A first look at this September's upcoming Transformers story brings some major lore changes along with it.
+---------
+
+# Spider-Man: Brand New Day's Biggest Twist Was Already Secretly Explained
+
+Movies, Spider-Man: Brand New Day, MCU, superheroes
+
+Tue, 11 Aug 2026 20:00:15 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-twist-ending-secret-wizard-connection/
+
+Spider-Man: Brand New Day's big ending twist might have been explained in this fan-favorite 2021 film.
+---------
+
+# Paramount+’s New True-Crime Series Officially Turns Dominic Cooper Into a Charming Con Man
+
+TV News, Dominic Cooper, Paramount Plus, Simone Kessell, Podcasts
+
+Tue, 11 Aug 2026 20:00:15 GMT
+
+https://collider.com/paramount-miniseries-thriller-who-the-hell-is-hamish-dominic-cooper/
+
+Dominic Cooper stars as a serial fraudster in Who the Hell Is Hamish, a new Paramount+ miniseries. Read on for more.
+---------
+
+# 'Spider-Man: Brand New Day' Already Set to Dethrone James Cameron's $2 Billion Epic at the Box Office
+
+Movie News, Spider-Man: Brand New Day, Titanic, Box Office Milestones, James Cameron
+
+Tue, 11 Aug 2026 20:00:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-titanic-domestic-box-office/
+
+'Spider-Man: Brand New Day' is about to surpass a James Cameron milestone.
+---------
+
 # Spider-Man: Brand New Day Box Office Officially Hits Rare Milestone In Less Than 3 Weeks
 
 Movies, Spider-Man: Brand New Day
