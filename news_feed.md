@@ -1,3 +1,102 @@
+# Square Enix Officially Announces Chrono Trigger: One Mark
+
+Gaming, Chrono Trigger, Triple-A Games
+
+Tue, 11 Aug 2026 04:30:11 GMT
+
+https://screenrant.com/chrono-trigger-one-mark-31st-anniversary-collection/
+
+During the 31st anniversary of Chrono Trigger, Square Enix has unveiled a new release, which hardcore fans will want to keep tabs on.
+---------
+
+# 5 Free Steam Games Like Final Fantasy
+
+Gaming, Steam, Final Fantasy
+
+Tue, 11 Aug 2026 04:00:14 GMT
+
+https://screenrant.com/steam-free-games-like-final-fantasy/
+
+Discover five free Steam games that capture the essence of Final Fantasy.
+---------
+
+# 3 Years Later, Gundam SEED Completely Rebuilds Its Most Powerful Mecha
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam SEED Destiny, Mobile Suit Gundam SEED, merchandise, toys
+
+Tue, 11 Aug 2026 03:59:15 GMT
+
+https://www.cbr.com/gundam-seed-strike-freedom-new-mold/
+
+A Cosmic Era mobile suit returns to the Gundam Universe toy line, with this updated version of the Strike Freedom better than ever.
+---------
+
+# The Greatest Fantasy RPG of All Time Is a 10/10 Masterpiece 30 Years Later
+
+Games, Role Playing Game, Nintendo, Chrono Trigger, Innovation
+
+Tue, 11 Aug 2026 03:45:15 GMT
+
+https://www.cbr.com/greatest-fantasy-rpg-all-time-masterpiece-chrono-trigger-snes/
+
+The best RPG on the Super Nintendo has only gotten better with age.
+---------
+
+# 10 Strongest Autobots in Transformers, Officially Ranked
+
+Anime, Transformers, Innovation
+
+Tue, 11 Aug 2026 03:30:15 GMT
+
+https://www.cbr.com/transformers-official-strongest-autobots-ranked-list/
+
+Optimus Prime isn't actually the most powerful Autobot in the Transformers franchise.
+---------
+
+# Star Trek's Best Borg Line Will Go Down as the Greatest Quote in Sci-Fi History
+
+TV, Star Trek: The Next Generation, Sci-Fi, Paramount
+
+Tue, 11 Aug 2026 03:30:15 GMT
+
+https://www.cbr.com/star-trek-tng-greatest-borg-quote-best-of-both-worlds/
+
+Going against Star Trek's principles, the Borg’s most famous line shifted the franchise's trajectory toward a darker tone.
+---------
+
+# 10 Early The Far Side Comics That Will Make You Question Reality
+
+Comics, The Far Side
+
+Tue, 11 Aug 2026 03:30:15 GMT
+
+https://www.cbr.com/reality-questioning-early-far-side-comics/
+
+Reality is about perception. Because Gary Larson’s is unlike any other, many early issues of The Far Side make readers question their perspective.
+---------
+
+# 5 Classic Detective Books That Are Perfect From the First Page to the Last
+
+Books and Comics, Mystery, Crime, Agatha Christie, Sherlock Holmes
+
+Tue, 11 Aug 2026 04:18:14 GMT
+
+https://collider.com/classic-detective-books-perfect-first-page-to-last/
+
+From Agatha Christie's The Murder of Roger Ackroyd to Samuel Dashiell Hammett's The Maltese Falcon, these classic detective books are flawless.
+---------
+
+# 7 Netflix Miniseries Without a Single Flaw
+
+TV, Netflix, TV Miniseries, The Haunting of Hill House, The Queen's Gambit
+
+Tue, 11 Aug 2026 03:55:15 GMT
+
+https://collider.com/netflix-miniseries-without-flaws/
+
+There are too few Netflix miniseries that we can confidently say have absolutely no flaws, like The Haunting of Hill House and The Queen's Gambit.
+---------
+
 # Новости кино и сериалов — 2026-08-11
 
 Файл очищен после ежедневной отправки.
