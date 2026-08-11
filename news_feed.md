@@ -1,3 +1,36 @@
+# Cyberpunk 2077 Multiplayer Trailer Promises Night City Chaos With Friends
+
+Gaming, Cyberpunk 2077
+
+Tue, 11 Aug 2026 09:20:14 GMT
+
+https://screenrant.com/cyberpunk-2077-multiplayer-mod/
+
+Explore the CyberMP mod for Cyberpunk 2077 and its multiplayer features.
+---------
+
+# Taylor Sheridan’s No. 1 Spy Thriller Is Officially Free to Watch
+
+TV News, Lioness, Taylor Sheridan, Prime Video, Zoe Saldana
+
+Tue, 11 Aug 2026 09:00:15 GMT
+
+https://collider.com/taylor-sheridan-lioness-streaming-free-prime-video-first-3-episodes/
+
+Lioness, the #1 spy thriller in the world from writer Taylor Sheridan, is officially streaming for free. Here's how you can watch it.
+---------
+
+# 15 Spider-Man Villains More Interesting Than Green Goblin
+
+Movie, Spider-Man, Superhero, Comic Book
+
+Tue, 11 Aug 2026 08:58:14 GMT
+
+https://collider.com/spider-man-villains-better-than-green-goblin/
+
+Green Goblin is Spider-Man's nemesis, but he's become tiresome, especially compared to villains like Mysterio and Prowler, who are far more engaging.
+---------
+
 # Peter Jackson’s Horror Classic That Changed Cinema Forever Is Quickly Soaring Up Streaming Charts
 
 Movies, Masked Recs, Horror
