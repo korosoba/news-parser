@@ -1,3 +1,267 @@
+# Guy Ritchie's Sherlock Prequel Series Has Fully Replaced Watson
+
+TV, Masked Recs
+
+Tue, 11 Aug 2026 23:31:11 GMT
+
+https://screenrant.com/young-sherlock-series-guy-ritchie-replace-watson/
+
+Prime Video's bold reimagining pairs young Holmes with another pivotal character whose shifting loyalty blurs the lines between hero and villain.
+---------
+
+# Marvel Officially Debuts New Redesigns For Iconic Avengers Heroes
+
+Marvel Comics, The Avengers
+
+Tue, 11 Aug 2026 23:30:11 GMT
+
+https://screenrant.com/avengers-redesigns-realmguard/
+
+Marvel's new universe reimagines several iconic Avengers in a setting that Earth's Mightiest Heroes rarely find themselves fighting in.
+---------
+
+# After 3 Seasons, Paramount+ Has Changed Lioness' Format
+
+Streaming TV, Lioness
+
+Tue, 11 Aug 2026 23:15:11 GMT
+
+https://screenrant.com/paramount-lioness-season-3-format-change/
+
+Lioness season 3 introduces two timelines, changing its storytelling approach while deepening Joe's character and changing the trajectory of the show.
+---------
+
+# 111-Episode Time Travel Franchise Officially Returns With A New Season Next Month
+
+Streaming TV, Masked Recs
+
+Tue, 11 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/outlander-franchise-blood-of-my-blood-spinoff-prequel-return-september-2026/
+
+A time travel franchise that now includes 111 episodes and nine combined seasons is returning in September to keep the show's universe alive.
+---------
+
+# Venom's New Armored Redesign Officially Revealed by Marvel
+
+Comics, Venom
+
+Tue, 11 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/venom-redesign-new-armor-costume/
+
+New gauntlets, new armor, new symbiote?
+---------
+
+# Jason Statham's R-Rated Action Thriller That's Still A Streaming Hit Deserves 5+ Sequels
+
+Movies, Masked Recs
+
+Tue, 11 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/jason-statham-a-working-man-prime-video-streaming-charts-sequels/
+
+A Working Man wasn't a huge box office hit, but Prime Video audiences keep coming back. Could Levon Cade be Jason Statham's next big action franchise?
+---------
+
+# 5 10/10 Turn-Based RPGs Where Your Choices Matter
+
+Gaming, RPG, Triple-A Games, PC
+
+Tue, 11 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/turn-based-rpgs-where-choices-matter/
+
+Choices affecting stories and the world around you are pretty common, and some 10/10 turn-based RPGs do a remarkable job in that sense.
+---------
+
+# 18 Years Later, The Greatest Opening Sequence In Crime Thriller TV History Is Still Undefeated
+
+Classic TV, Breaking Bad
+
+Tue, 11 Aug 2026 22:45:11 GMT
+
+https://screenrant.com/breaking-bad-opening-sequence-best-crime-thriller-tv-history/
+
+The crime thriller genre is home to some of the best TV shows of all time, among them one that has the greatest opening sequence in the genre.
+---------
+
+# The Office Star Reveals Incurable Cancer Diagnosis
+
+TV, The Office, Shaun of the Dead
+
+Tue, 11 Aug 2026 23:17:32 GMT
+
+https://www.cbr.com/the-office-star-lucy-davis-cancer-diagnosis/
+
+The Office and Shaun of the Dead star Lucy Davis opens up about her cancer diagnosis.
+---------
+
+# Hello Kitty Officially Returns to McDonald's U.S. This Summer With New Happy Meal Toys
+
+Anime, sanrio, Hello Kitty, mcdonald's, Godzilla
+
+Tue, 11 Aug 2026 23:05:14 GMT
+
+https://www.cbr.com/hello-kitty-mcdonalds-usa-happy-meal-toys-august-18/
+
+Hello Kitty returns to McDonald's for a new Happy Meal toy collection that kaiju fans will really be able to sink their teeth into.
+---------
+
+# 7 Forgotten 2000s Anime Series That Aged Like Fine Wine
+
+Anime, Innovation
+
+Tue, 11 Aug 2026 23:00:14 GMT
+
+https://www.cbr.com/forgotten-2000s-anime-series-that-aged-well-list/
+
+Anime like Ergo Proxy might be overlooked today, but they've aged better than many classics.
+---------
+
+# Prime Video's 8-Part Hit Series Based on Bestselling Novel Returns to the Top 10 Ahead of New Season
+
+TV, Every Year After, Prime Video, Romance
+
+Tue, 11 Aug 2026 23:00:14 GMT
+
+https://www.cbr.com/every-year-after-prime-video-success-august-2026/
+
+Every Year After is back in the streaming charts.
+---------
+
+# 5 Greatest Movie Reboots Of the Last 10 Years, Ranked
+
+Movies, Dune
+
+Tue, 11 Aug 2026 23:00:14 GMT
+
+https://www.cbr.com/best-movie-reboots-last-10-years-list/
+
+While some reboots are a waste of time, there have been a select few in the past decade that have been stunning and even outdone their predecessors.
+---------
+
+# The Walking Dead Is Quietly Replacing Glenn After 10 Years
+
+TV, The Walking Dead: Dead City, The Walking Dead, Innovation
+
+Tue, 11 Aug 2026 23:00:14 GMT
+
+https://www.cbr.com/the-walking-dead-dead-city-maggie-replacing-glenn/
+
+The Glenn and Maggie romance was one of the most beloved on The Walking Dead, but it has been 15+ years, and it's time for her to move on.
+---------
+
+# Disney’s Reboot of an 18-Year-Old Classic Officially Confirms Fan-Favorite Return
+
+Movie News, Disney, Demi Lovato, Camp Rock, Disney+
+
+Tue, 11 Aug 2026 23:30:14 GMT
+
+https://collider.com/disney-camp-rock-3-demi-lovato-return-confirmed/
+
+With Disney's Camp Rock 3 officially just 2 days away, the movie has finally confirmed the return of a fan-favorite character.
+---------
+
+# 'Reacher' Season 3 Recap: What To Remember Before Prime Video's Best Action Thriller Returns
+
+TV Features, Reacher, Alan Ritchson, Maria Sten, Anthony Michael Hall
+
+Tue, 11 Aug 2026 23:18:14 GMT
+
+https://collider.com/reacher-season-3-recap-prime-video/
+
+Catch up on Reacher Season 3's most thrilling twists before Season 4 premieres this week.
+---------
+
+# Former Hulk Director Officially Confirms “Darker Cut” With Shock MCU Cameos [Exclusive]
+
+Movie News, The Incredible Hulk, Louis Leterrier, MCU, Spider-Man: Brand New Day
+
+Tue, 11 Aug 2026 23:16:30 GMT
+
+https://collider.com/the-incredible-extended-darker-cut-deleted-scenes-iron-man-captain-america/
+
+The Incredible Hulk director Louis Leterrier reveals there's a much darker cut of the film featuring cameos from Iron Man and Captain America.
+---------
+
+# NBC’s Cancelled ‘True Blood’ Replacement Officially Returns From the Dead
+
+TV News, True Blood, Midnight, Texas, NBC, François Arnaud
+
+Tue, 11 Aug 2026 23:15:14 GMT
+
+https://collider.com/nbc-true-blood-replacement-midnight-texas-streaming-success-amc-plus-august-2026/
+
+Eight years after cancellation, a forgotten vampire thriller is haunting the streaming charts and proving cult hits never die.
+---------
+
+# DC Officially Confirms New Sci-Fi Series After Scrapping 'Booster Gold'
+
+TV News, Blue Beetle, James Gunn, DCU
+
+Tue, 11 Aug 2026 23:00:46 GMT
+
+https://collider.com/dc-blue-beetle-series-confirmed-james-gunn/
+
+Ahead of Xolo Maridueña's return as Blue Beetle in Man of Tomorrow, James Gunn has confirmed the status of the character's long-developing spin-off.
+---------
+
+# ‘Buffy the Vampire Slayer’ Star Officially Confirms the Show’s Surprising Connection to ‘Hamlet’ [Exclusive]
+
+TV News, James Marsters, Buffy The Vampire Slayer, William Shakespeare, Fan Expo
+
+Tue, 11 Aug 2026 23:00:14 GMT
+
+https://collider.com/buffy-the-vampire-slayer-hamlet-connection-explained-james-marsters/
+
+James Marsters explains the surprising connection between Buffy the Vampire Slayer and Hamlet and why the series remains his favorite sci-fi.
+---------
+
+# ‘Everybody Loves Raymond’ Had 1 Major Sitcom Problem, According to Ray Romano
+
+TV Features, Ray Romano, Everybody Loves Raymond, CBS, Sitcom
+
+Tue, 11 Aug 2026 22:46:14 GMT
+
+https://collider.com/ray-romano-everybody-loves-raymond-major-problem-sitcom-title/
+
+Ray Romano revealed the major problem he saw with Everybody Loves Raymond and why he worried the sitcom could turn viewers against him.
+---------
+
+# The Taylor Sheridan-Esque Crime Thriller Series You've Never Heard of Is Now Dominating Streaming
+
+TV News, Anna Pigeon, Hot on Streaming
+
+Tue, 11 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/anna-pigeon-vudu-stream-august-2026/
+
+Vudu scored big with this grounded and gritty procedural.
+---------
+
+# 22-Year-Old Sci-Fi Series Is the Key to the MCU's Mysterious X-Men Origin per New Theory
+
+Features, Marvel Cinematic Universe, X-Men, Spider-Man: Brand New Day
+
+Tue, 11 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/mcu-x-men-blip-origin-theory/
+
+'The 4400' boasted a compelling premise that seems oddly fitting for an MCU theory about the new X-Men characters. Read on for more.
+---------
+
+# Jenna Ortega Offers Major Update on 'Wednesday' Season 3's Timeline Change
+
+TV News, Wednesday, Jenna Ortega
+
+Tue, 11 Aug 2026 22:39:04 GMT
+
+https://movieweb.com/jenna-ortega-wednesday-season-3-timeline/
+
+Jenna Ortega teased some of what to expect from 'Wednesday' Season 3, specifically looking at her character getting a little older.
+---------
+
 # Iconic X-Men Hero Unveils New Logo for the First Time
 
 Comics, X-Men
