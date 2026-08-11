@@ -1,3 +1,256 @@
+# 10 Greatest Steamy Romantic Comedies Of All Time, Ranked
+
+Movies, Romantic Comedy, Ranking
+
+Tue, 11 Aug 2026 17:39:11 GMT
+
+https://screenrant.com/best-steamy-romantic-comedies-all-time-ranked/
+
+The 10 greatest steamy romantic comedies ever made, ranked by chemistry, sexual tension, laughs, and romantic payoff.
+---------
+
+# Netflix’s Shōgun Replacement Is So Good, It’s Officially Returning For Season 2
+
+Streaming TV, Masked Recs
+
+Tue, 11 Aug 2026 17:30:11 GMT
+
+https://screenrant.com/blue-eye-samurai-shogun-replacement-officially-returning-season-2/
+
+Netflix's version of Shōgun is perfect for fans of the gritty historical fiction series, and its long-awaited second season is nearly ready.
+---------
+
+# Paramount's Possession Remake Lands Official Release Date
+
+Movies, Possession
+
+Tue, 11 Aug 2026 17:24:18 GMT
+
+https://screenrant.com/possession-movie-remake-release-date-paramount/
+
+Paramount's Possession remake starring Callum Turner and Margaret Qualley lands an official release date, opening against a potential blockbuster.
+---------
+
+# Game Of Thrones’ New Targaryen & Stark Prequel First Reactions Are In
+
+TV, Game of Thrones
+
+Tue, 11 Aug 2026 17:19:53 GMT
+
+https://screenrant.com/game-of-thrones-mad-king-reactions/
+
+As House of the Dragon season 3 ended on HBO, a new Game of Thrones story made its debut over the weekend, and critics are now speaking out.
+---------
+
+# Godzilla Returns in New 5-Part Series, Continuing One of His Greatest Eras
+
+Comics, Godzilla
+
+Tue, 11 Aug 2026 17:02:57 GMT
+
+https://screenrant.com/godzilla-revenge-of-the-deadzone-series-details/
+
+Godzilla is officially returning to one of the King of the Monsters’ greatest eras with a brand-new, five-part series launching this fall.
+---------
+
+# How Rhaenyra Targaryen Dies & Will It Happen In House Of The Dragon?
+
+TV, House of the Dragon, Game of Thrones
+
+Tue, 11 Aug 2026 17:00:12 GMT
+
+https://screenrant.com/how-when-rhaenyra-targaryen-dies-house-of-the-dragon/
+
+Rhaenyra Targaryen obviously has to die at some point long before Game of Thrones, and George R.R. Martin previously revealed how and when it happens.
+---------
+
+# Holly Black Announces Multiple New Faerie Universe Releases Starting In November 2026
+
+Books
+
+Tue, 11 Aug 2026 16:50:15 GMT
+
+https://screenrant.com/holly-black-new-releases-faerie-universe-game-book-tarot-november-2026/
+
+Holly Black announces multiple new releases in the Faerie Universe starting in November 2026, as the fictional world continues to expand.
+---------
+
+# The Best Classic Sci-Fi Show in TV History Gets a New Full-Series Release Today
+
+TV, Battlestar Galactica
+
+Tue, 11 Aug 2026 17:49:05 GMT
+
+https://www.cbr.com/battlestar-galactica-full-series-blu-ray-2006-release/
+
+Battlestar Galactica gets a full-series blu-ray release.
+---------
+
+# New Pokémon 30th Anniversary Crocs Get First Look Ahead of August 28
+
+Anime, Pokemon, Clothing, merchandise
+
+Tue, 11 Aug 2026 17:35:15 GMT
+
+https://www.cbr.com/pokemon-crocs-poke-ball-classic-clog-first-look/
+
+Pokémon fans are about to get another way to celebrate the 30th anniversary of their favorite franchise in both comfort and style.
+---------
+
+# Star Trek Fans Can Stream 5 Series and 13 Movies Free for 60th Anniversary Event
+
+TV, Star Trek, Sci-Fi, Innovation
+
+Tue, 11 Aug 2026 17:34:12 GMT
+
+https://www.cbr.com/star-trek-shows-movies-streaming-free-pluto-tv/
+
+Star Trek is celebrating its anniversary with a free streaming event.
+---------
+
+# Apple TV's Thriller 'Maximum Pleasure Guaranteed' Is An Addictive Binge
+
+TV, Maximum Pleasure Guaranteed, Apple TV, Thriller, Innovation
+
+Tue, 11 Aug 2026 17:30:15 GMT
+
+https://www.cbr.com/apple-tv-maximum-pleasure-guaranteed-addictive-thriller/
+
+Apple TV has some of the most critically acclaimed series, and Maximum Pleasure Guaranteed is an intense thriller that is the perfect weekend binge.
+---------
+
+# 38 Years Later, This Remains the Most Perfect NES Platformer of All Time
+
+Games, Nintendo, Super Mario Bros. 3, Innovation
+
+Tue, 11 Aug 2026 17:15:15 GMT
+
+https://www.cbr.com/nes-perfect-platformer-super-mario-bros-3/
+
+Nearly four decades later, many platformers still fail to meet the lofty bar set by the Nintendo Entertainment System's most perfect genre entrant.
+---------
+
+# Grand Theft Auto Replacement TV Show Moves Forward With 50 Cent
+
+TV, Payday 3
+
+Tue, 11 Aug 2026 17:13:44 GMT
+
+https://www.cbr.com/50-cent-payday-adaptation/
+
+There's a brand-new video game adaptation on the way from one of the television's most underrated creative forces, and it's perfect for GTA fans.
+---------
+
+# Hacks Stars Have New Reunion 3 Months After Finale (With a Twist)
+
+TV, Hacks, HBO Max, Comedy
+
+Tue, 11 Aug 2026 17:05:09 GMT
+
+https://www.cbr.com/hacks-reunion-on-stage/
+
+Hacks is coming to the stage for one night only.
+---------
+
+# REVIEW: Power Rangers: Green #1 Is Better Than a Last Ronin-Style Story
+
+Comics, Power Rangers
+
+Tue, 11 Aug 2026 17:00:15 GMT
+
+https://www.cbr.com/power-rangers-green-1-review/
+
+BOOM! Studios' Power Rangers: Green #1 introduces readers to a whole new breed of Green Ranger while paving the way for a terrifying future.
+---------
+
+# ‘Fallout’ Season 3 First Look Officially Reveals the Ghoul’s Biggest Challenge Yet
+
+Movie News, Fallout, Prime Video, Walton Goggins, Ella Purnell
+
+Tue, 11 Aug 2026 17:12:51 GMT
+
+https://collider.com/fallout-season-3-walton-goggins-ghoul-first-look/
+
+New Fallout Season 3 images reveal Walton Goggins’ return as The Ghoul as production moves forward on the Prime Video series.
+---------
+
+# Bruce Willis Action Classic 'The Last Boy Scout' Gets an Upgrade in Arrow Video's 4K Restoration Trailer (Exclusive)
+
+Movie Features, The Last Boy Scout, Bruce Willis, Damon Wayans, 4K Blu-ray
+
+Tue, 11 Aug 2026 17:09:04 GMT
+
+https://collider.com/last-boy-scout-bruce-willis-movie-4k-trailer-arrow-video/
+
+Tony Scott and Shane Black's The Last Boy Scout comes to 4K UHD on October 13th.
+---------
+
+# Netflix Unleashes a New 'Monster' in First Trailer for 'The Lizzie Borden Story'
+
+TV Trailers, Lizzie Borden, Netflix, Ryan Murphy, Monster
+
+Tue, 11 Aug 2026 17:33:22 GMT
+
+https://movieweb.com/netflix-monster-lizzie-borden-story-trailer/
+
+The gruesome Netflix series is coming back.
+---------
+
+# Viral Creepypasta Officially Becoming a Movie as Latest 'Backrooms' Replacement
+
+Movie News, Backrooms
+
+Tue, 11 Aug 2026 17:06:37 GMT
+
+https://movieweb.com/backrooms-jeff-the-killer-creepypasta-movie/
+
+'Jeff The Killer' is the latest internet horror story to join Kane Parson's 'Backrooms'.
+---------
+
+# Channing Tatum's Near-Perfect Thriller Gets Tense First Trailer
+
+Movie News, Josephine, Channing Tatum, Gemma Chan
+
+Tue, 11 Aug 2026 17:04:22 GMT
+
+https://movieweb.com/channing-tatum-thriller-josephine-trailer/
+
+The first look at the intense Sundance drama has now been released online.
+---------
+
+# Crunchyroll's New Shonen Hit Is Officially One of the Biggest Shows on Streaming
+
+TV News, Black Torch, Crunchyroll, Hot on Streaming, Anime, Action
+
+Tue, 11 Aug 2026 17:00:13 GMT
+
+https://movieweb.com/black-torch-action-streaming-success-crunchyroll-august-2026/
+
+Crunchyroll has just found its next 'Jujutsu Kaisen.'
+---------
+
+# Prime Video's Action Thriller Series Everyone's Been Waiting For Returns
+
+Features, Reacher, Prime Video
+
+Tue, 11 Aug 2026 17:00:13 GMT
+
+https://movieweb.com/reacher-season-4-returns/
+
+Prime Video has a popular action thriller TV series that is finally coming back in August 2026.
+---------
+
+# Ernest Movies in Order Chronologically and By Release Date
+
+Movie Lists, Ernest Collection
+
+Tue, 11 Aug 2026 17:00:13 GMT
+
+https://movieweb.com/watch-all-9-ernest-movies-in-order/
+
+Jim Varney's Ernest P. Worrell character was a pop culture icon. Here are all nine Ernest movies he starred in and what order you should watch them.
+---------
+
 # Genshin Impact: Alyosha Character Builds (Weapons, Artifacts, Team Comps, Stats)
 
 Gaming, Genshin Impact, PC, Live Service Games
