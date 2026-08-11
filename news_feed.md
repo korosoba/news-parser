@@ -1,3 +1,311 @@
+# Ted Lasso Spinoff Story Rumors Clarified By Jason Sudeikis & Apple TV Exec
+
+TV, Ted Lasso, Ted Lasso - Season 4, Jason Sudeikis
+
+Tue, 11 Aug 2026 18:35:16 GMT
+
+https://screenrant.com/ted-lasso-season-4-spinoff-rumors-jason-sudeikis/
+
+EXCLUSIVE: Ted Lasso is back for season 4, but co-creator and star Jason Sudeikis is revealing the truth behind a major spinoff rumor.
+---------
+
+# Anne Hathaway's New Dinosaur Movie Breaks A Major 12-Year R-Rated Streak
+
+Movies, Masked Recs
+
+Tue, 11 Aug 2026 18:33:04 GMT
+
+https://screenrant.com/the-end-of-oak-street-david-robert-mitchel-r-rating-streak/
+
+Anne Hathaway's new dinosaur movie might just be the surprise of the summer, and it breaks a long-running R-rated streak with a bloody story.
+---------
+
+# The Walking Dead's Next Major Villain Is Hiding In Plain Sight
+
+Streaming TV, The Walking Dead: Dead City, The Walking Dead
+
+Tue, 11 Aug 2026 18:30:11 GMT
+
+https://screenrant.com/the-walking-dead-city-season-3-villain-dillard/
+
+Things seem to be going relatively smoothly in The Walking Dead: Dead City, but an unassuming survivor may be about to emerge as the next big villain.
+---------
+
+# Jessie & Emily's Deleted Toy Story 5 Reunion Finally Revealed As Director Explains
+
+Movies, Toy Story 5, Toy Story, Pixar
+
+Tue, 11 Aug 2026 18:21:26 GMT
+
+https://screenrant.com/toy-story-5-emily-jessie-deleted-reunion-explained-andrew-stanton/
+
+Toy Story 5 explores Jessie's complicated history with Emily, and the director Andrew Stanton explains why the reunion scene was deleted.
+---------
+
+# Stranger Things' Other Eleven Was Hiding In Plain Sight
+
+Classic TV, Stranger Things
+
+Tue, 11 Aug 2026 18:09:20 GMT
+
+https://screenrant.com/stranger-things-sadie-sink-jean-grey-eleven-similar/
+
+As it turns out, Stranger Things' other Eleven had been hiding in plain sight the entire time, but there's a fun catch in all this.
+---------
+
+# JJ Abrams' The End Of Oak Street Is The Twilight Zone Meets Steven Spielberg's Poltergeist (Exclusive)
+
+Movies, The End of Oak Street, J.J. Abrams
+
+Tue, 11 Aug 2026 18:08:57 GMT
+
+https://screenrant.com/jj-abrams-the-end-of-oak-street-twilight-zone-steven-spielberg-poltergeist-inspiration/
+
+Exclusive: David Robert Mitchell and J.J. Abrams share how The End of Oak Street mixes the thrills of The Twilight Zone and Poltergeist.
+---------
+
+# 10 Harry Potter Movie Scenes That Won’t Be In HBO’s TV Show
+
+Streaming TV, Harry Potter
+
+Tue, 11 Aug 2026 18:00:11 GMT
+
+https://screenrant.com/harry-potter-movie-scenes-not-in-hbo-remake/
+
+The Harry Potter movies made several additions that you might have even forgotten aren't canon. HBO's TV remake is all but guaranteed to skip them.
+---------
+
+# 6 Officially Confirmed Changes In The Zelda: Ocarina Of Time Remake
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Tue, 11 Aug 2026 18:00:11 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-confirmed-changes/
+
+Discover the 6 exciting changes in The Legend of Zelda: Ocarina of Time remake for Nintendo Switch 2.
+---------
+
+# House Of The Dragon Retcons The Prince That Was Promised & Explains A Game Of Thrones Mystery
+
+Streaming TV, House of the Dragon, Game of Thrones
+
+Tue, 11 Aug 2026 17:57:51 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-prince-that-was-promised-aegons-dream-rhaenyra/
+
+The House of the Dragon season 3 finale's reveal about Aegon's dream and the Prince That Was Promised will have consequences for Game of Thrones.
+---------
+
+# Pluribus Season 2 Scripts Get New Update From Apple TV Exec As Vince Gilligan Reveals Huge Milestone
+
+TV, Pluribus, Apple TV
+
+Tue, 11 Aug 2026 17:51:29 GMT
+
+https://screenrant.com/pluribus-season-2-vince-gilligan-script-update-apple-tv-eddy-cue/
+
+Apple TV executive Eddy Cue shares a new update on Pluribus season 2 as creator Vince Gilligan reaches a major milestone ahead of filming.
+---------
+
+# The Lord of the Rings: War in the North Officially Returns in Surprise Release
+
+Games, The Lord of the Rings, Video Games, The Lord of the Rings: The Fellowship of the Ring
+
+Tue, 11 Aug 2026 18:50:15 GMT
+
+https://www.cbr.com/lotr-war-in-the-north-official-return-surprise-new-release/
+
+A classic Middle-earth video game has returned, as The Lord of the Rings: War in the North - Legacy Edition is available on all platforms.
+---------
+
+# Zelda's First 40th Anniversary Release Looks Way Better Than Expected
+
+Games, The Legend of Zelda, Nintendo
+
+Tue, 11 Aug 2026 18:45:15 GMT
+
+https://www.cbr.com/zelda-40th-anniversary-switch-2-controller-console-leak/
+
+The first look at Nintendo's upcoming Zelda-themed controller and console has leaked online, and it looks way better than any of the rumors suggested.
+---------
+
+# The Princess Diaries 3 Seals Julie Andrews' Fate
+
+Movies, The Princess Diaries 3, Disney
+
+Tue, 11 Aug 2026 18:45:12 GMT
+
+https://www.cbr.com/princess-diaries-3-julie-andrews-wont-appear/
+
+Julie Andrews reveals if she will reunite with Anne Hathaway in Disney's forthcoming The Princess Diaries 3.
+---------
+
+# 5 Summer 2026 Anime Series That Are Masterpieces So Far, Ranked
+
+Anime, The Ghost in the Shell, Sparks of Tomorrow
+
+Tue, 11 Aug 2026 18:15:15 GMT
+
+https://www.cbr.com/summer-2026-anime-masterpieces-ranked/
+
+Anime's Summer 2026 season has been full of exciting titles, but hits like Ghost in the Shell and Goodbye, Lara are destined to be modern classics.
+---------
+
+# Jeffrey Dean Morgan’s “Absurd” Survival Thriller Is Leaving Netflix at the Worst Time
+
+Movies, jeffrey dean morgan, Fall, Fall 2: Deadpoint, Netflix
+
+Tue, 11 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/jeffrey-dean-morgan-fall-leaving-netflix-august-2026/
+
+One of Jeffrey Dean Morgan's wildest survival thrillers is leaving Netflix at the worst possible time.
+---------
+
+# Absolute Batman Creator Scott Snyder Reveals Biggest Comics Creator Mistake
+
+Comics, Absolute Batman, scott snyder
+
+Tue, 11 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/absolute-batman-creator-reveals-comic-creator-mistakes/
+
+The guy behind one of DC's greatest successes offers his expert advice.
+---------
+
+# Star Wars Keeps Proving Yoda and Obi-Wan Were Wrong About Order 66
+
+Movies, Star Wars
+
+Tue, 11 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/star-wars-keeps-proving-two-original-trilogy-heroes-were-wrong/
+
+Obi-Wan Kenobi and Yoda are seen as wise Jedi Masters, but modern Star Wars stories suggest they were wrong to go into hiding and not fight the Empire
+---------
+
+# 10 Best Non-Superhero Comics Of The 2020s So Far, Ranked
+
+Comics, DC Comics, Marvel, image comics
+
+Tue, 11 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/best-non-superhero-comics-2020s-ranked-list/
+
+The 2020s have given readers countless incredible non-superhero comics, and these 10 stand out as the very best of the decade, so far.
+---------
+
+# Alan Ritchson Officially Returns With R-Rated 'Reacher' Replacement in 2 Weeks
+
+Movie News, Reacher, Jack Reacher, Alan Ritchson, Motor City
+
+Tue, 11 Aug 2026 18:22:46 GMT
+
+https://collider.com/motor-city-alan-ritchson-digital-release-date-august-2026/
+
+Alan Ritchson’s action thriller Motor City, starring Shailene Woodley, Pablo Schreiber and Ben Foster, arrives on digital this month.
+---------
+
+# Prime Video's Best Sci-Fi Franchise Officially Returns With New 2026 Release
+
+TV News, The Expanse, Sci-Fi, Prime Video
+
+Tue, 11 Aug 2026 18:17:45 GMT
+
+https://collider.com/prime-video-the-expanse-comics-omnibus-release-date-december-2026/
+
+The Expanse, a beloved six-season sci-fi series on Prime Video is officially coming back with a new release in December. Get the details.
+---------
+
+# Fightland: A Tight Prison Cell Changed Duke’s Boxing | Collider Access
+
+Exclusives, Fightland
+
+Tue, 11 Aug 2026 18:15:15 GMT
+
+https://collider.com/video/fightland-a-tight-prison-cell-changed-duke-s-boxing-collider-access/
+
+Stunt coordinator Crispin Layfield explains why making Fightland fights feel real sometimes meant making the choreography look less choreographed.
+---------
+
+# 40 Years Later, This '80s Cult Classic Star Officially Wants a Reboot, 'Cobra Kai' Style [Exclusive]
+
+Movie News, Fan Expo, Big Trouble in Little China, John Carpenter, Cobra Kai
+
+Tue, 11 Aug 2026 18:00:15 GMT
+
+https://collider.com/big-trouble-in-little-china-reboot-sequel-series-comments-james-pax/
+
+Big Trouble in Little China star James Pax knows exactly how he'd make a sequel to the cult classic movie. Read on for more.
+---------
+
+# 'The Last House's Secret 'E.T.' Reference Is Only 1 of the Netflix Sci-Fi's Million Easter Eggs
+
+Interviews, The Last House, Louis Leterrier, Wagner Moura, Screening
+
+Tue, 11 Aug 2026 17:59:49 GMT
+
+https://collider.com/netflix-the-last-house-et-easter-eggs-director-louis-leterrier/
+
+The Last House director Louis Leterrier shares the secrets behind the toughest movie of his career and teases the final Fast and Furious movie.
+---------
+
+# Alan Ritchson's New 4-Part Prime Video Series Is Officially the Best Yet
+
+TV News, Reacher, Jack Reacher, Alan Ritchson, Prime Video
+
+Tue, 11 Aug 2026 17:51:51 GMT
+
+https://collider.com/reacher-season-4-rotten-tomatoes-score-is-it-good/
+
+Reacher Season 4 officially lands a perfect 100% Rotten Tomatoes critics score ahead of Alan Ritchson’s August 12 return on Prime Video.
+---------
+
+# Classic '80s Supernatural Thriller Remake Officially Sets 2027 Release Date
+
+Movie News, Possession, Margaret Qualley, Callum Turner
+
+Tue, 11 Aug 2026 18:24:21 GMT
+
+https://movieweb.com/possession-remake-release-date-2027/
+
+Paramount has dated Parker Finn's 'Possession' remake, starring Margaret Qualley and Callum Turner, for June 11, 2027, opposite a family blockbuster.
+---------
+
+# Netflix Crime Thriller Forces Léa Seydoux To Face a Monstrous Truth in Gripping First Trailer
+
+Movie News, Lea Seydoux
+
+Tue, 11 Aug 2026 18:08:51 GMT
+
+https://movieweb.com/gentle-monster-trailer-lea-seydoux-netflix/
+
+Léa Seydoux leads 'Gentle Monster,' a new Netflix crime thriller about a concert pianist whose family life begins to unravel under police scrutiny.
+---------
+
+# Rebecca Ferguson Spotted Filming Lesbian Rom-Com in London
+
+Movie News, Rebecca Ferguson
+
+Tue, 11 Aug 2026 18:02:57 GMT
+
+https://movieweb.com/rebecca-ferguson-greta-lee-rom-com/
+
+Rebecca Ferguson and 'Past Lives' star Greta Lee are rumored to star in an untitled rom-com.
+---------
+
+# Every Deleted Scene Cut From 'Spider-Man Brand New Day'
+
+Movie Lists, Spider-Man: Brand New Day
+
+Tue, 11 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-deleted-scenes-cut/
+
+'Spider-Man: Brand New Day' stars Tom Holland, Jon Bernthal, Zendaya, and Sadie Sink, and is the latest entry in the popular 'Spider-Man' franchise.
+---------
+
 # 10 Greatest Steamy Romantic Comedies Of All Time, Ranked
 
 Movies, Romantic Comedy, Ranking
