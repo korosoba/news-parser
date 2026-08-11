@@ -1,3 +1,234 @@
+# There's Actually A Good Reason Spider-Man Isn't In The New Avengers
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe, Thunderbolts*
+
+Tue, 11 Aug 2026 03:15:10 GMT
+
+https://screenrant.com/why-spider-man-isnt-in-the-new-avengers-mcu/
+
+One would think Tom Holland's Spider-Man has more than earned a place on the New Avengers roster, but there's a good reason he's not on the MCU team.
+---------
+
+# Stranger Things' Resurfacing Spinoff Revisits The Alternate Hawkins Fans Deserved
+
+Comics, Stranger Things
+
+Tue, 11 Aug 2026 03:00:11 GMT
+
+https://screenrant.com/stranger-things-six-webtoon-spinoff-alternate-hawkins/
+
+Beyond adventures in the Upside Down, Stranger Things had plenty of world-building in one particular spinoff worth diving into.
+---------
+
+# Fable Meets Stardew Valley In Acclaimed PC Sandbox RPG That's Finally Hit Consoles
+
+Gaming, Stardew Valley, Fable, PC, RPG
+
+Tue, 11 Aug 2026 03:00:11 GMT
+
+https://screenrant.com/fable-meets-stardew-valley-kynseed-consoles/
+
+A huge new sandbox RPG that blends the British humor and fantasy setting of Fable with Stardew Valley's life sim gameplay is finally on consoles.
+---------
+
+# Star Trek’s WWE Superstar No Longer Wants Intergalactic Championship
+
+TV, Star Trek, Star Trek: Starfleet Academy
+
+Tue, 11 Aug 2026 02:44:15 GMT
+
+https://screenrant.com/star-treks-wwe-superstar-officially-no-longer-wants-intergalactic-championship/
+
+Star Trek: Starfleet Academy crossover star Becky Lynch is moving past the "WWE Intergalactic Championship" and has eyes on a bigger prize.
+---------
+
+# Jack Ryan Star's New Horror Mystery Movie Was "One Of The Most Challenging Things" Ever
+
+Interviews, Time of Death
+
+Tue, 11 Aug 2026 02:25:15 GMT
+
+https://screenrant.com/time-of-death-movie-michael-kelly-most-challenging-ever/
+
+Michael Kelly reveals one of the most challenging aspects of filming his newest psychological horror film and how it benefited him.
+---------
+
+# 10 High Fantasy Movies That Can Be Called Masterpieces
+
+Movies, Fantasy, The Hobbit, The Lord of the Rings, Pokémon Home, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King, The Lord of the Rings: The Fellowship of the Ring, The Last Unicorn, The 7th Voyage of Sinbad, How to Train Your Dragon, The Thief of Bagdad, Shrek
+
+Tue, 11 Aug 2026 02:00:21 GMT
+
+https://screenrant.com/high-fantasy-movies-masterpieces/
+
+From Middle-Earth to Far Far Away, these high fantasy movies boast unforgettable worlds, iconic heroes, and storytelling worthy of masterpiece status.
+---------
+
+# 33 Years Later, Frasier's Best Line Is Still One Of The Greatest Sitcom Quotes Of All Time
+
+Classic TV, Frasier
+
+Tue, 11 Aug 2026 01:45:11 GMT
+
+https://screenrant.com/frasier-best-line-greatest-sitcom-quote/
+
+Discover an iconic quote from Frasier that showcases the comedy of the series and the main character's sense of depth in this classic sitcom.
+---------
+
+# 10 Classic Xbox 360 Games That Are Unplayable Today
+
+Games, xbox 360, Video Games
+
+Tue, 11 Aug 2026 03:15:14 GMT
+
+https://www.cbr.com/unplayable-xbox-360-classics/
+
+It's physically impossible for Xbox 360 users to play games like Final Fantasy XI or The Crew these days.
+---------
+
+# Crunchyroll Officially Welcomes Genshin Impact on August 12
+
+Anime, Genshin Impact, Crunchyroll
+
+Tue, 11 Aug 2026 03:05:15 GMT
+
+https://www.cbr.com/crunchyroll-genshin-impact-7-0-snezhnaya-collaboration/
+
+The leading anime streaming service is officially welcoming the global open-world RPG phenomenon this August.
+---------
+
+# Every Incarnated Ancient Sorcerer In Jujutsu Kaisen, Ranked By Power
+
+Anime, Jujutsu Kaisen, shonen anime
+
+Tue, 11 Aug 2026 02:46:15 GMT
+
+https://www.cbr.com/jjk-incarnated-ancient-sorcerers-ranked-by-power/
+
+Death isn't always the end for Jujutsu Kaisen's sorcerers, with the Culling Game arc bringing plenty of dangerous, ancient sorcerers back into play.
+---------
+
+# 5 Adventure Movies To Watch If You Love The Princess Bride
+
+Movies, Adventure, The Princess Bride, Zorro
+
+Tue, 11 Aug 2026 02:46:15 GMT
+
+https://www.cbr.com/must-watch-adventure-movies-for-fans-of-the-princess-bride/
+
+Rob Reiner's adaptation of The Princess Bride has endured as a timeless adventure classic, and there are some perfect movies to watch if you love it.
+---------
+
+# Halloween: The Game Officially Gets a Ban for a Surprising Reason
+
+Games, Halloween
+
+Tue, 11 Aug 2026 02:37:22 GMT
+
+https://www.cbr.com/halloween-the-game-banned-australia-new-zealand/
+
+Halloween: The Game has gotten a ban, but not for the reason fans would expect.
+---------
+
+# 3 Superhero Trilogies Better Than Christopher Nolan's Batman
+
+Movies, The Dark Knight
+
+Tue, 11 Aug 2026 02:30:14 GMT
+
+https://www.cbr.com/superhero-trilogies-better-than-christopher-nolan-batman-list/
+
+Christopher Nolan's Dark Knight Trilogy is the gold standard for many people, but there are a few trilogies that are better than even Nolan's work.
+---------
+
+# 5 Whimsical TTRPGs That Feel Just Like A Studio Ghibli Movie
+
+Games, Studio Ghibli, Tabletop, Dungeons and Dragons
+
+Tue, 11 Aug 2026 02:30:14 GMT
+
+https://www.cbr.com/ttrpgs-that-feel-like-studio-ghibli/
+
+It's fun to find TTRPGs that emulate a specific style of storytelling, and these are certainly comparable to Studio Ghibli's output.
+---------
+
+# Mike Flanagan's New Amazon Show Based on 1 of Stephen King's Best Is Horror TV's Next Big Event
+
+TV, Carrie, Stephen King, Mike Flanagan, Innovation
+
+Tue, 11 Aug 2026 02:00:24 GMT
+
+https://www.cbr.com/mike-flanagan-carrie-horror-tv-event/
+
+Expanding a 1974 novel, Mike Flanagan’s new Stephen King show will finally give a horror classic the adaptation it deserves.
+---------
+
+# 5 Masterpiece Power Fantasy Anime Better Than Sword Art Online
+
+Anime, Sword Art Online, Solo Leveling
+
+Tue, 11 Aug 2026 02:00:24 GMT
+
+https://www.cbr.com/best-power-fantasy-anime-better-than-sao/
+
+Sword Art Online is a genre favorite, but these power fantasy anime make a strong case for being even better.
+---------
+
+# Apple TV's Matchbox: The Movie Combines 'John Wick' and 'Barbie'
+
+Movies, Matchbox the Movie
+
+Tue, 11 Aug 2026 02:00:24 GMT
+
+https://www.cbr.com/apple-tv-matchbox-combines-john-wick-and-barbie/
+
+Apple TV's next big blockbuster action movie is looking to combine the style of two of the most unlikely properties.
+---------
+
+# Kevin Costner’s Best ‘Yellowstone’ Quote Still Defines Taylor Sheridan’s Western 7 Years Later
+
+TV Features, Yellowstone, Taylor Sheridan, Kevin Costner, Paramount Plus
+
+Tue, 11 Aug 2026 03:19:14 GMT
+
+https://collider.com/taylor-sheridan-best-yellowstone-quote-kevin-costner-john-dutton/
+
+John Dutton has many profound quotes in Yellowstone, but one is the perfect summation of the entire series.
+---------
+
+# 'The X-Files' Meets 'Grimm' in Fox's 4-Part Underrated Supernatural Mystery Series
+
+TV Features, Sleepy Hollow, The X-Files, Grimm, Fox
+
+Tue, 11 Aug 2026 03:16:14 GMT
+
+https://collider.com/sleepy-hollow-tv-series-x-files-grimm/
+
+Sleepy Hollow's mix of horror, history, and fantasy makes the underrated series worth the binge on Hulu.
+---------
+
+# This Sam Rockwell Crime-Comedy Found a New Home on Netflix
+
+Netflix, Sam Rockwell, The Bad Guys, DreamWorks Animation
+
+Tue, 11 Aug 2026 03:11:14 GMT
+
+https://collider.com/sam-rockwell-crime-comedy-on-netflix/
+
+Four years after Pierre Perifel's 'The Bad Guys' hit theaters, the Sam Rockwell-starring crime-comedy remains a streaming success on Netflix.
+---------
+
+# 'Extraction' Meets 'Man on Fire' in Explosive New Trailer for Action Revenge Thriller
+
+Movie Trailers, Action, War, Extraction
+
+Tue, 11 Aug 2026 01:46:17 GMT
+
+https://movieweb.com/no-paradise-killed-by-woman-trailer/
+
+This new war film has an interesting premise and a world-class title.
+---------
+
 # 6 Sword & Sorcery Fantasy Shows To Watch Like Masters Of The Universe
 
 Classic TV, Masters of the Universe
