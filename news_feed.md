@@ -1,3 +1,234 @@
+# Genshin Impact: Alyosha Character Builds (Weapons, Artifacts, Team Comps, Stats)
+
+Gaming, Genshin Impact, PC, Live Service Games
+
+Tue, 11 Aug 2026 16:49:45 GMT
+
+https://screenrant.com/genshin-impact-alyosha-builds-weapons-artifacts-team-comps/
+
+If you want the new 4-star F2P Electro support character, Alyosha, to thrive in your team comps, you’ll need to build him appropriately.
+---------
+
+# Legend Of Zelda 40th Anniversary Release Appears Online Ahead Of Official Reveal
+
+Gaming, The Legend of Zelda, Nintendo, Nintendo Switch 2
+
+Tue, 11 Aug 2026 16:39:50 GMT
+
+https://screenrant.com/legend-of-zelda-40th-anniversary-release-leak/
+
+It looks like Nintendo has been beaten to the punch, as a new Legend of Zelda 40th Anniversary release has been leaked online.
+---------
+
+# An Iconic Lord Of The Rings Game Is Officially Getting A Remaster, Out Today
+
+Gaming, The Lord of the Rings
+
+Tue, 11 Aug 2026 16:33:30 GMT
+
+https://screenrant.com/lord-of-the-rings-war-in-the-north-remaster-announced/
+
+A remaster of a classic The Lord of the Rings game is out today, in a surprise announcement that is sure to thrill all the LOTR fans out there.
+---------
+
+# Scully’s X-Files Return Seemingly Revealed By Original Creator
+
+TV, The X-Files, Gillian Anderson
+
+Tue, 11 Aug 2026 16:30:49 GMT
+
+https://screenrant.com/scully-x-files-reboot-return-seemingly-revealed-chris-carter/
+
+Original X-Files creator Chris Carter seemingly reveals that Gillian Anderson is returning as Dana Scully for the sci-fi franchise's next chapter.
+---------
+
+# What Book Reacher Season 4 Is Based On: Spoilers & Everything To Expect With The Plot
+
+Streaming TV, Reacher
+
+Tue, 11 Aug 2026 16:30:11 GMT
+
+https://screenrant.com/reacher-season-4-lee-child-gone-tomorrow-book-spoilers/
+
+The book choice for Reacher season 4 has finally been confirmed, which reveals how the Amazon Prime Video show will unfold in its next installment.
+---------
+
+# Alan Ritchson’s Gritty New R-Rated Revenge Thriller Sets Major Release In 2 Weeks
+
+Movies, Masked Recs
+
+Tue, 11 Aug 2026 16:25:31 GMT
+
+https://screenrant.com/alan-ritchson-motor-city-movie-digital-release-august-2026/
+
+A supercharged R-rated thriller starring Alan Ritchson is now confirmed to be getting an exciting new release weeks after its theatrical debut.
+---------
+
+# Sadie Sink Addresses MCU's Cyclops Casting After Jean Grey Debut In Spider-Man
+
+Movies, Marvel's X-Men, Spider-Man: Brand New Day, Spider-Man, X-Men, Marvel Cinematic Universe
+
+Tue, 11 Aug 2026 16:17:20 GMT
+
+https://screenrant.com/xmen-movie-kit-connor-cyclops-casting-sadie-sink-response/
+
+Spider-Man: Brand New Day's Sadie Sink opens up about Marvel Studios having reportedly cast its new Cyclops for the X-Men reboot in the MCU franchise.
+---------
+
+# Michael Bay's 91-Minute Genre Thriller Returns As Global Streaming Hit
+
+Movies, Masked Recs
+
+Tue, 11 Aug 2026 16:15:55 GMT
+
+https://screenrant.com/michael-bay-horsemen-movie-lionsgate-plus-global-streaming-success-august-2026/
+
+Michael Bay has made several horror films, thrillers, and action flicks over the years, and one of his thrillers is now a hit on the streaming charts.
+---------
+
+# Star Wars & Marvel Officially Confirm First Ever Crossover
+
+Comics, Star Wars, Marvel
+
+Tue, 11 Aug 2026 16:08:25 GMT
+
+https://screenrant.com/star-wars-marvel-officially-confirm-first-ever-crossover/
+
+To commemorate 50 years of Star Wars, a very special crossover is coming in 2027.
+---------
+
+# Pokémon Fans Losing It Over Mysterious HeartGold & SoulSilver Teaser
+
+Gaming, Pokemon, Triple-A Games
+
+Tue, 11 Aug 2026 16:01:13 GMT
+
+https://screenrant.com/pokemon-heartgold-soulsilver-return-tease/
+
+Thanks to a new official teaser, it seems like Pokémon fans are going wild over a return of Pokémon HeartGold and SoulSilver.
+---------
+
+# Marvel’s Wolverine Is Fully Playable Offline on Disc, But “Perfectionists” At Insomniac Recommend Day-One Patch
+
+Games, Marvel's Wolverine, Wolverine
+
+Tue, 11 Aug 2026 16:35:15 GMT
+
+https://www.cbr.com/marvels-wolverine-disc-day-one-patch/
+
+Insomniac Games promises that Marvel's Wolverine will have a proper physical release, playable out of the box, but a download is still recommended.
+---------
+
+# The Magic Faraway Tree: How Its Worlds Came Alive
+
+Movies, The Magic Faraway Tree
+
+Tue, 11 Aug 2026 16:30:15 GMT
+
+https://www.cbr.com/video/the-magic-faraway-tree-how-its-worlds-came-alive/
+
+The Magic Faraway Tree worlds were built to feel spectacular, tactile and real, including one completely edible set.Director Ben Gregor breaks down the creative process behind bringing Enid Blyton’s fantasy worlds to life, from a K-pop-inspired take on The Wizard of Oz for the Land of Goodies to the nighttime design of the Land of Birthdays. He also reveals why real sets were so important for the film’s young cast and how Malta became the backdrop for the Land of Doom.
+---------
+
+# Jamie Lee Curtis Compares 'Awful' New Girl Experience to Her New 'Dream' Sitcom
+
+TV, New Girl, NBC, Sitcoms
+
+Tue, 11 Aug 2026 16:26:21 GMT
+
+https://www.cbr.com/jamie-lee-curtis-compares-new-girl-newlyweds/
+
+Jamie Lee Curtis has been itching to do a multi-camera showing, calling her New Girl experience "awful."
+---------
+
+# Pixar's Latest $1B Movie Is Finally Heading to Streaming
+
+Movies, Toy Story 5
+
+Tue, 11 Aug 2026 16:24:41 GMT
+
+https://www.cbr.com/pixar-toy-story-5-digital-blu-ray-release-dates/
+
+After a successful theatrical run, it's time for Pixar's latest animated film to head to streaming.
+---------
+
+# Star Wars and Marvel Confirm First-Ever Crossover: Here's What We Know
+
+Comics, Star Wars, Marvel
+
+Tue, 11 Aug 2026 16:17:40 GMT
+
+https://www.cbr.com/star-wars-marvel-hope-assembles-release-confirmed/
+
+Fans are finally getting the official Star Wars and Marvel Comics crossover that they were almost certain would never see the light of day.
+---------
+
+# 10 Ways Fullmetal Alchemist's Successor is Better Than the Original
+
+Anime, Fullmetal Alchemist, Daemons of the Shadow Realm
+
+Tue, 11 Aug 2026 16:15:15 GMT
+
+https://www.cbr.com/fullmetal-alchemist-successor-better-than-original/
+
+Daemons of the Shadow Realm is the new and improved formula version of Fullmetal Alchemist.
+---------
+
+# The Best Se7en Line Is Still The Greatest Quote In Thriller History
+
+Movies, Se7en, Thriller, david fincher
+
+Tue, 11 Aug 2026 16:00:16 GMT
+
+https://www.cbr.com/best-se7en-line-greatest-quote-in-thriller-history/
+
+This legendary final line from David Fincher's Se7en remains the greatest quote in cinematic thriller history.
+---------
+
+# 10 Superman Villains Who Are Genuinely More Interesting Than Lex Luthor
+
+Books and Comics, Superman, Man of Tomorrow, Comics
+
+Tue, 11 Aug 2026 16:46:15 GMT
+
+https://collider.com/superman-villains-more-interesting-than-lex-luthor/
+
+Lex Luthor might be the Man of Steel's most infamous foe, but Superman villains like Darkseid, General Zod, and Brainiac are far more interesting.
+---------
+
+# Quentin Tarantino’s First Movie in 7 Years Officially Sets Theatrical Release
+
+Movie News, Quentin Tarantino, Once Upon a Time in Hollywood, The Adventures of Cliff Booth, Brad Pitt
+
+Tue, 11 Aug 2026 16:30:15 GMT
+
+https://collider.com/quentin-tarantino-the-adventures-of-cliff-booth-theatrical-release-imax-netflix/
+
+Quentin Tarantino’s first movie in 7 years officially heads to IMAX as Netflix confirms limited run of the Brad Pitt-led feature ahead of streaming.
+---------
+
+# Willem Dafoe’s Twisted New Mystery Movie Officially Releases This Week [Exclusive]
+
+Movie News, Willem Dafoe, The Birthday Party, Drama, Mystery
+
+Tue, 11 Aug 2026 16:01:15 GMT
+
+https://collider.com/the-birthday-party-willem-dafoe-sneak-peek/
+
+Watch Willem Dafoe clash with Vic Carmen Sonne in an exclusive The Birthday Party sneak peek ahead of the film’s August 14 release.
+---------
+
+# 'Star Wars' & Marvel Crossover Officially Announced
+
+Movie News, Star Wars, MCU's Movie Order (2008 - 2019) - The Infinity Saga (Iron Man - Spider-Man: Far from Home), Kevin Smith
+
+Tue, 11 Aug 2026 16:09:25 GMT
+
+https://movieweb.com/star-wars-marvel-crossover-kevin-smith/
+
+To celebrate the 50th anniversary of 'Star Wars', Marvel Comics has brought in Kevin Smith to write an epic five-issue limited comic series.
+---------
+
 # 'Rambo Meets The Fugitive' 94-Minute Action Thriller Punches Its Way Up Streaming Charts
 
 Movies, Masked Recs
