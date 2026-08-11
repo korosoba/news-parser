@@ -1,3 +1,322 @@
+# Iconic X-Men Hero Unveils New Logo for the First Time
+
+Comics, X-Men
+
+Tue, 11 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/x-men-psylocke-ghostlocke-redesign-logo/
+
+As X-Men's Psylocke becomes Ghostlocke, she debuts a new solo logo.
+---------
+
+# ABC Is Repeating 9-1-1’s Most Hated Storyline 8 Years Later
+
+Network TV, 9-1-1: Nashville, 9-1-1
+
+Tue, 11 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/911-nashville-don-cheating-story-hen-repeat/
+
+One relationship storyline in the original 9-1-1 series came with controversy. Is 9-1-1: Nashville doing something similar in season 2?
+---------
+
+# 12 Years Later, ATLA Fans Need To Admit We Were Too Harsh On Korra
+
+Classic TV, The Legend of Korra, Avatar: The Last Airbender
+
+Tue, 11 Aug 2026 22:15:11 GMT
+
+https://screenrant.com/legend-of-korra-aged-well-avatar-franchise/
+
+The Legend of Korra was initially hated, but after years of remakes and troubles for The Last Airbender, it's time to realize how great Korra was.
+---------
+
+# My Hero Academia Creator's Next Manga Is Here, And It's A Huge Genre Change
+
+Anime, My Hero Academia
+
+Tue, 11 Aug 2026 22:01:54 GMT
+
+https://screenrant.com/my-hero-academia-next-series-horror/
+
+The new manga in Shonen Jump from the creator of My Hero Academia is a whole different genre but is already showing its promising future.
+---------
+
+# Kurt Russell's 2-Part Sci-Fi Series With Strong Rotten Tomatoes Audience Score Is The Perfect Weekend Binge
+
+TV, Masked Recs
+
+Tue, 11 Aug 2026 22:01:22 GMT
+
+https://screenrant.com/monarch-legacy-of-monsters-apple-tv-sci-fi-series-must-watch/
+
+Kurt Russell's innovative Sci-Fi series is one of the genre's most ambitious releases, and the 2-part show makes for the perfect weekend binge.
+---------
+
+# Sword Art Online Officially Returns Winter 2026
+
+Gaming, Sword Art Online, PC
+
+Tue, 11 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/sword-art-online-winter-2026-echoes-dlc/
+
+Sword Art Online is back in a big way this Winter, so fans should absolutely get prepared, as they'll want to check it out as soon as it drops.
+---------
+
+# Netflix's 10/10 Sci-Fi Show Only Needed 26 Episodes To Be Considered A Masterpiece
+
+Classic TV, Masked Recs
+
+Tue, 11 Aug 2026 21:59:11 GMT
+
+https://screenrant.com/dark-netflix-26-episodes-sci-fi-show-masterpiece/
+
+In Netflix's sci-fi masterpiece, a tightly woven time travel thriller unfolds across generations of characters into a haunting small town mystery.
+---------
+
+# Liam Neeson's 106-Minute Thriller Is Getting Redemption as 1 the Most-Watched Films on Netflix
+
+Movies, In the Land of Saints and Sinners
+
+Tue, 11 Aug 2026 22:31:14 GMT
+
+https://www.cbr.com/liam-neeson-in-the-land-of-saints-and-sinners-netflix-success-august-2026/
+
+A wildly underrated Liam Neeson thriller is taking over the streaming charts on a major platform ahead of the star's next cinematic outing.
+---------
+
+# Gojo's Best JJK Line Is Still the Greatest Quote in Anime History
+
+Anime, Jujutsu Kaisen
+
+Tue, 11 Aug 2026 22:15:14 GMT
+
+https://www.cbr.com/jjk-gojo-greatest-quote-anime-history/
+
+Gojo’s greatest Jujutsu Kaisen quote captures the exact moment he transcends his limits and becomes the legendary “Honored One.”
+---------
+
+# Zack Snyder’s Return to Warner Bros. Isn’t What DC Fans Hoped
+
+Movies, DC Extended Universe, superheroes, DCU
+
+Tue, 11 Aug 2026 22:05:37 GMT
+
+https://www.cbr.com/zack-snyder-warner-bros-return-reason-not-dc/
+
+Not so fast, Snyderverse fans.
+---------
+
+# After 1 Week, Netflix’s New Sci-Fi Thriller Is Its Most-Streamed Movie in the World
+
+Movies, The Last House
+
+Tue, 11 Aug 2026 22:01:14 GMT
+
+https://www.cbr.com/the-last-house-sci-fi-netflix-success-august-2026/
+
+Netflix's new sci-fi thriller is now the streaming platform's most popular movie in the world.
+---------
+
+# 10 Far Side Comics With the Best Artwork, Ranked
+
+Comics, The Far Side
+
+Tue, 11 Aug 2026 22:01:14 GMT
+
+https://www.cbr.com/best-drawn-the-far-side-comic-strips-ranked/
+
+Though Gary Larson's The Far Side is mostly praised for its humor and range, its stunning art is an often-forgotten part of the strip.
+---------
+
+# Henry Cavill's Voltron is Star Wars Meets Transformers
+
+Movies, Voltron (Live-Action), Star Wars, Transformers
+
+Tue, 11 Aug 2026 22:01:14 GMT
+
+https://www.cbr.com/henry-cavill-voltron-combines-star-wars-transformers/
+
+A new iteration of Voltron is set to take the brand into live-action, and it might draw from the successes of two other sci-fi movies franchises.
+---------
+
+# S.W.A.T. Revival's Future Confirmed 2 Months Before It Even Premieres
+
+TV, S.W.A.T., S.W.A.T. Exiles, Starz
+
+Tue, 11 Aug 2026 21:39:19 GMT
+
+https://www.cbr.com/swat-exiles-season-2-starz-renewed/
+
+Starz has already decided the fate of Shemar Moore's upcoming S.W.A.T. revival.
+---------
+
+# Nicholas Hoult Officially Joins Harry Potter Season 2 in a Major Role
+
+TV, Harry Potter
+
+Tue, 11 Aug 2026 21:38:25 GMT
+
+https://www.cbr.com/nicholas-hoult-harry-potter-season-2-gilderoy-lockhart/
+
+The actor has a long history with the franchise, and he's finally confirmed.
+---------
+
+# 10 Action Movie Masterpieces So Great They Became the Blueprint
+
+Movie, Action, The Matrix, Seven Samurai, Die Hard
+
+Tue, 11 Aug 2026 22:21:14 GMT
+
+https://collider.com/action-movies-masterpieces-became-blueprint/
+
+From classic epics like Seven Samurai to the precise thrills of Die Hard, these action gems were so brilliant that they set a new norm for the genre.
+---------
+
+# The Best Sci-Fi Movie of 2026 Officially Sets New Release
+
+Movie News, Project Hail Mary, Prime Video, Ryan Gosling, Sci-Fi
+
+Tue, 11 Aug 2026 22:16:04 GMT
+
+https://collider.com/ryan-gosling-sci-fi-masterpiece-project-hail-mary-blu-ray-release-date/
+
+The best sci-fi movie of 2026 is finally coming home thanks to a brand-new release. Read on for all the details.
+---------
+
+# Marvel & Star Wars' Big Crossover Has a Major Issue That Could Hurt Both Franchises
+
+Movie Features, Star Wars: Episode IV - A New Hope, Avengers: Doomsday, Marvel Comics, Lucasfilm
+
+Tue, 11 Aug 2026 22:01:14 GMT
+
+https://collider.com/star-wars-marvel-comics-crossover-timeline-problem/
+
+While the idea of Star Wars and Marvel crossing over seems like a fanboy dream come true, there's one issue that comes to the forefront.
+---------
+
+# Forget Lois Lane, This Is Officially Amy Adams' Wildest Superhero Role [Exclusive]
+
+TV News, Smallville, Tom Welling, Michael Rosenbaum, Fan Expo
+
+Tue, 11 Aug 2026 22:00:15 GMT
+
+https://collider.com/smallville-amy-adams-deer-episode-cast-reaction/
+
+The Smallville cast remembers Amy Adams’ bizarre Season 1 episode and reveals which "freak-of-the-week" stories still stand out decades later.
+---------
+
+# 6 Best Fantasy Movies Released Since 2010
+
+Movie, Fantasy, Poor Things, The Boy and the Heron, All of Us Strangers
+
+Tue, 11 Aug 2026 21:55:15 GMT
+
+https://collider.com/best-fantasy-movies-since-2010-ranked/
+
+From The Tale of the Princess Kaguya to The Shape of Water, these fantasy movies prove magic works best with heart.
+---------
+
+# ‘House of the Dragon’ Quietly Changes Aegon’s Most Important Book Storyline
+
+TV Features, House of the Dragon, Tom Glynn-Carney, Ewan Mitchell, George R.R. Martin
+
+Tue, 11 Aug 2026 21:53:22 GMT
+
+https://collider.com/house-of-the-dragon-season-3-finale-aegon-harrenhal-aemond-book/
+
+House of the Dragon changed Aegon's storyline from Fire & Blood in the Season 3 finale, moving his location from Dragonstone to Harrenhal.
+---------
+
+# The Perfect 'Sopranos' Cast if the Crime Show Were Made in 2026
+
+TV, The Sopranos, HBO, Crime, Drama
+
+Tue, 11 Aug 2026 21:44:14 GMT
+
+https://collider.com/the-sopranos-cast-made-today-2026/
+
+From Oscar nominees to critically acclaimed thespians, these actors would fit perfectly into HBO's The Sopranos if the crime series were cast today.
+---------
+
+# 8 Most Prophetic Sci-Fi Books of All Time
+
+Books and Comics, Books, Sci-Fi, George Orwell, Neuromancer
+
+Tue, 11 Aug 2026 21:42:14 GMT
+
+https://collider.com/most-prophetic-sci-fi-books-all-time-ranked/
+
+Neuromancer by William Gibson and The Shockwave Rider by John Brunner are among the most prophetic sci-fi books that predicted the future.
+---------
+
+# HBO's 'Harry Potter' Officially Casts Kenneth Branagh's Replacement
+
+TV News, Harry Potter, Harry Potter and the Chamber of Secrets, Kit Harington
+
+Tue, 11 Aug 2026 21:32:02 GMT
+
+https://collider.com/hbo-harry-potter-reboot-cast-nicholas-hoult-gilderoy-lockhart/
+
+HBO's Harry Potter reboot has officially cast Superman star Nicholas Hoult as a major Chamber of Secrets character. Read on for more.
+---------
+
+# 'House of the Dragon' Hidden Detail Sets up Ormund Hightower's Season 4 Replacement
+
+Features, House of the Dragon, Game of Thrones
+
+Tue, 11 Aug 2026 22:30:12 GMT
+
+https://movieweb.com/house-of-the-dragon-jon-roxton-ormund-hightower-replacement/
+
+Lord Ormund Hightower finally gets his comeuppance in the House of the Dragon Season 3 finale, but the episode also establishes his replacement.
+---------
+
+# Anne Hathaway's Long-Awaited Sequel Loses Beloved Original Cast Member
+
+Movie News, The Princess Diaries 3, Anne Hathaway
+
+Tue, 11 Aug 2026 22:03:50 GMT
+
+https://movieweb.com/princes-diaries-3-julie-andrews-exit/
+
+Legendary actress Julie Andrews confirms she will not appear in Disney's 'The Princess Diaries' sequel.
+---------
+
+# Ryan Murphy’s New 9-Part Thriller Is So Unforgettable, You Won’t Stop Watching
+
+Features, The Shards, Ryan Murphy
+
+Tue, 11 Aug 2026 22:01:12 GMT
+
+https://movieweb.com/the-shards-ryan-murphy-thriller-binge-watch/
+
+Ryan Murphy has created many popular TV shows, including 'Glee' and 'American Horror Story,' and he has a new thriller series out now.
+---------
+
+# 'Superman's Nicholas Hoult Taking Over Iconic Harry Potter Role for Season 2
+
+TV News, Nicholas Hoult, Harry Potter
+
+Tue, 11 Aug 2026 21:44:56 GMT
+
+https://movieweb.com/harry-potter-nicholas-hoult-professor-lockhart/
+
+Nicholas Hoult will play the iconic Defense Against the Dark Arts teacher, Gilderoy Lockhart, in the upcoming HBO reboot.
+---------
+
+# 'The X-Files' Creator Finally Reveals If the Original Cast Returns for New Reboot
+
+TV News, The X-Files, Chris Carter
+
+Tue, 11 Aug 2026 21:42:45 GMT
+
+https://movieweb.com/the-x-files-reboot-chris-carter-cast-return/
+
+Chris Carter implies that David Duchovny and Gillian Anderson will return.
+---------
+
 # 10 Best Hulu Shows Released In 2026 (So Far)
 
 Streaming TV, Hulu
