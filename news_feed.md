@@ -1,3 +1,14 @@
+# Game Of Thrones: The Cold & The Dark Releases August 18
+
+Gaming, Game of Thrones, Game Of Thrones, Game of Thrones: Conquest, Game Of Thrones: Dragonfire, House of the Dragon, PC
+
+Tue, 11 Aug 2026 06:00:11 GMT
+
+https://screenrant.com/game-of-thrones-conquest-cold-dark-release-august-18/
+
+Game of Thrones: The Cold & The Dark is a unique upcoming release that fans of the franchise shouldn't miss out on, arriving August 18.
+---------
+
 # Diablo 5 Is Coming Whether You're Ready Or Not
 
 Gaming, Diablo 4, Triple-A Games
