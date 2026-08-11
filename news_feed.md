@@ -1,3 +1,102 @@
+# Game Of Thrones Officially Returns In 2027 With A Brand-New Finale
+
+Gaming, Game of Thrones, Game of Thrones: War for Westeros
+
+Tue, 11 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/game-of-thrones-war-for-westeros-finale/
+
+Game Of Thrones: War For Westeros is one of the more exciting releases tied to the IP, and it might even fix that disastrous ending.
+---------
+
+# 10 Greatest DC Elseworlds Stories Considered Masterpieces
+
+Comics, DC Comics
+
+Tue, 11 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/greatest-dc-elseworlds-stories-masterpieces/
+
+Elseworlds has been one of DC Comics' most popular imprints for decades, and these 10 alternate continuity stories rank among the masterpieces.
+---------
+
+# Gundam: Raging Onslaught Officially Arrives September 2026
+
+Gaming, Gundam
+
+Tue, 11 Aug 2026 11:30:11 GMT
+
+https://screenrant.com/gundam-raging-onslaught-september-2026/
+
+There's always a lot going on around Gundam as a franchise, and a new release serves as an original game for fans to enjoy.
+---------
+
+# Say Goodbye to ABC's High Potential Formula in 2026
+
+TV, High Potential, ABC
+
+Tue, 11 Aug 2026 11:26:00 GMT
+
+https://www.cbr.com/abc-high-potential-season-3-short-midseason-run/
+
+ABC has officially dropped its formula for High Potential, despite the success of Kaitlin Olson's hit procedural series and its Season 3 renewal.
+---------
+
+# Apple TV's Twisted Sci-Fi Masterpiece Officially Returns in Just 17 Days
+
+TV News, Apple TV, Dark Matter, Streaming, Sci-Fi
+
+Tue, 11 Aug 2026 12:00:15 GMT
+
+https://collider.com/dark-matter-season-2-streaming-apple-tv-release-date-august-28/
+
+Dark Matter Season 2 officially premieres this month on Apple TV, bringing Joel Edgerton and Jennifer Connelly back for 10 new episodes.
+---------
+
+# Forget ‘House of the Dragon,’ Here Are the 8 Best Fantasy Series To Stream
+
+TV, House of the Dragon, Game Of Thrones, The Lord of the Rings: The Rings of Power, Fantasy
+
+Tue, 11 Aug 2026 11:53:15 GMT
+
+https://collider.com/fantasy-shows-better-than-house-of-the-dragon/
+
+The Wheel of Time, The Legend of Vox Machina, The Rings of Power, and more make up our list of fantasy shows better than House of the Dragon.
+---------
+
+# 10 Fantasy Books That I Knew Would Be Masterpieces From the First 10 Pages
+
+Books and Comics, Books, Fantasy, The Hobbit, Brandon Sanderson
+
+Tue, 11 Aug 2026 11:32:16 GMT
+
+https://collider.com/fantasy-books-masterpieces-first-10-pages/
+
+Fantasy has many masterful books, including a few that establish their quality from the opening pages, such as The Way of Kings and Prince of Thorns.
+---------
+
+# Jon Bernthal’s R-Rated WWII Hit Is Officially a Streaming Favorite Again
+
+Movie News, Fury, Jon Bernthal, Scott Eastwood, World War II
+
+Tue, 11 Aug 2026 11:30:16 GMT
+
+https://collider.com/fury-jon-bernthal-brutal-ww2-thriller-streaming-success-august-2026/
+
+Fury, the acclaimed World War II movie starring Brad Pitt, Jon Bernthal, and Scott Eastwood, has become an international streaming sleeper hit.
+---------
+
+# This Jason Bourne Spin-off Deserves a Second Shot Amid Matt Damon Recast Rumor
+
+Features, The Bourne Legacy, Bourne, Matt Damon, Jason Bourne
+
+Tue, 11 Aug 2026 12:00:12 GMT
+
+https://movieweb.com/matt-damon-recast-bourne-legacy-spin-off/
+
+Matt Damon has become synonymous with Jason Bourne, but the action movie franchise spin-off deserves better after 14 years.
+---------
+
 # Brandon Sanderson's Stormlight Archive Officially Returns As A Brand-New Era Begins
 
 Gaming, The Stormlight Archive
