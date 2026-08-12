@@ -1,3 +1,311 @@
+# 129 Episodes Later, Tim Bradford's Best Line Is Still The Greatest Quote In The Rookie History
+
+Network TV, The Rookie
+
+Wed, 12 Aug 2026 20:30:11 GMT
+
+https://screenrant.com/the-rookie-tim-bradford-best-quote/
+
+The Rookie's Tim Bradford has had some impactful quotes throughout the show's run, but his best line is an all-timer for the hit ABC series so far.
+---------
+
+# 5 Things To Know About Verity Before Watching The Colleen Hoover Movie Adaptation
+
+Movies, Verity
+
+Wed, 12 Aug 2026 20:30:11 GMT
+
+https://screenrant.com/verity-movie-colleen-hoover-things-to-know/
+
+Think It Ends With Us was dark? Verity goes somewhere much more twisted. Here’s what to know before watching Hoover’s thriller adaptation.
+---------
+
+# Coyote vs. Acme Review: WB Was Wrong to Bury It
+
+Movies, Originals
+
+Wed, 12 Aug 2026 20:26:43 GMT
+
+https://screenrant.com/video/coyote-vs-acme-review-wb-was-wrong-to-bury-it/
+
+Coyote vs. Acme: The Movie That Refused to Die. After years of uncertainty, industry backlash, petitions, and a proposed tax write-off, the completed Looney Tunes movie has finally escaped limbo and made its way to theaters.
+---------
+
+# Netflix’s The Lincoln Lawyer Officially Sets First-Ever Spinoff Series
+
+TV, The Lincoln Lawyer, Netflix
+
+Wed, 12 Aug 2026 20:13:01 GMT
+
+https://screenrant.com/lincoln-lawyer-spinoff-cobie-smulders-netflix-development-report/
+
+As Lincoln Lawyer eyes the end of the series with season 5, Netflix is not done with the universe yet, with a new spinoff in development.
+---------
+
+# Sony Officially Deletes One Of Tom Holland's Spider-Man Suits From Existence
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe, Spider-Man: No Way Home
+
+Wed, 12 Aug 2026 20:12:58 GMT
+
+https://screenrant.com/spider-man-brand-new-day-suit-no-way-home-retcon/
+
+Spider-Man: Brand New Day retroactively removed one of Tom Holland's most beloved and popular Spider-Man suits from a previous MCU movie.
+---------
+
+# The Iconic 80s Action Franchise Street Fighter Returns With A New Movie In 2026
+
+New Movies, Street Fighter
+
+Wed, 12 Aug 2026 20:08:25 GMT
+
+https://screenrant.com/new-street-fighter-movie-release-2026/
+
+Hollywood is reviving an iconic 80s action franchise in 2026, as Street Fighter returns with a new movie after being off-screen for decades.
+---------
+
+# An Underrated 2008 Disney Movie PlayStation 2 Tie-In Is Free Via PS Plus Now
+
+Gaming, WALL-E, Disney, PlayStation, PlayStation 2, PlayStation Plus
+
+Wed, 12 Aug 2026 20:00:11 GMT
+
+https://screenrant.com/2008-disney-ps2-game-free-playstation-plus/
+
+One of the most underrated movie tie-in games from the PS2 era has finally been made playable for free via PlayStation Plus.
+---------
+
+# The Continental Is The Weak Link In A Perfect 12-Year Franchise
+
+TV, John Wick, The Continental
+
+Wed, 12 Aug 2026 19:59:11 GMT
+
+https://screenrant.com/john-wick-franchise-continental-weak-link/
+
+A glossy cinematic universe of iconic action thrillers lost momentum in a slower small screen detour that leans on lore instead of punchy set pieces.
+---------
+
+# New 5-Part Supernatural Thriller Debuts To Rare Rotten Tomatoes Score
+
+TV, Masked Recs
+
+Wed, 12 Aug 2026 19:55:03 GMT
+
+https://screenrant.com/possession-2026-show-rotten-tomatoes-score/
+
+The strong year for horror-infused supernatural thrillers continues, with a new five-part series garnering praise and drawing comparisons to Jaws.
+---------
+
+# Dragon Ball Launches Another New Series With 4 Different Goku Forms
+
+Anime, Dragon Ball, merchandise, bandai
+
+Wed, 12 Aug 2026 20:21:14 GMT
+
+https://www.cbr.com/dragon-ball-goku-figure-series-bandai-gashapon-release/
+
+The new release recreates Goku’s iconic moments from across the Dragon Ball franchise for enthusiastic collectors.
+---------
+
+# Yahya Abdul-Mateen II Returns in Gritty Crime Drama Trailer 2 Weeks After MCU Series Cancellation
+
+Movies, Marvel, MCU, Wonder Man, By Any Means
+
+Wed, 12 Aug 2026 20:17:39 GMT
+
+https://www.cbr.com/yahya-abdul-mateen-ii-returns-in-gritty-crime-drama-trailer-2-weeks-after-mcu-series-cancellation/
+
+Wonder Man isn't returning, so Abdul-Mateen decided to get gritty in his upcoming film.
+---------
+
+# 5 Forgotten Toonami Anime That Have Aged Like Fine Wine
+
+Anime, toonami, Lycoris Recoil, Casshern Sins
+
+Wed, 12 Aug 2026 20:15:15 GMT
+
+https://www.cbr.com/forgotten-toonami-anime-aged-like-fine-wine/
+
+Toonami is a prolific programming block that introduced audiences to totemic anime, but certain gems like Casshern Sins are now long forgotten!
+---------
+
+# Reacher Fans Turn Tom Cruise's Ill-Fated Action Sequel Into a Streaming Hit as New Season Debuts
+
+Movies, Jack Reacher: Never Go Back
+
+Wed, 12 Aug 2026 20:05:58 GMT
+
+https://www.cbr.com/jack-reacher-never-go-back-paramount-plus-streaming-hit-august-2026/
+
+The fourth season premiere of Reacher on Prime Video is having a halo effect on the rest of the action franchise.
+---------
+
+# Hit 4-Part Pirate Epic With 100% RT Score Sails Again as 1 of the Biggest Shows on Digital
+
+TV, Black Sails
+
+Wed, 12 Aug 2026 20:01:55 GMT
+
+https://www.cbr.com/black-sails-fantasy-series-success-august-2026/
+
+The acclaimed pirate epic resurfaces nearly a decade after its conclusion.
+---------
+
+# Star Trek Officially Rewrites the Federation’s Future Forever
+
+Comics, Star Trek
+
+Wed, 12 Aug 2026 20:01:15 GMT
+
+https://www.cbr.com/star-trek-zero-point-2-release-date-confirmed-variant-covers/
+
+CBR can officially give fans their first look at the absolutely awe-striking covers set to grace the second issue of the next Star Trek series.
+---------
+
+# The Dog Stars is Mad Max Meets I Am Legend
+
+Movies, The Dog Stars
+
+Wed, 12 Aug 2026 20:01:15 GMT
+
+https://www.cbr.com/the-dog-stars-perfect-dystopian-sci-fi-movie/
+
+The Dog Stars is an upcoming dystopian sci-fi film perfect for fans of the Mad Max franchise or Will Smith's 2007 post-apocalyptic movie, I Am Legend.
+---------
+
+# The Lord of the Rings: Ascension Endgame Officially Begins August 13
+
+Games, The Lord of the Rings
+
+Wed, 12 Aug 2026 19:55:15 GMT
+
+https://www.cbr.com/lord-of-the-rings-ascension-endgame-official-start-august-13/
+
+Gamers have one final chance to get in on The Lord of the Rings: Ascension, and it will be up to them to decide how long the Endgame lasts.
+---------
+
+# Iman Vellani Officially Confirms Why Her Most Personal Story Worked Best As a Comic
+
+CBR Exclusives, Ms. Marvel
+
+Wed, 12 Aug 2026 19:33:57 GMT
+
+https://www.cbr.com/iman-vellani-writes-new-comic-chachu/
+
+The Ms. Marvel star needed to find herself outside of the MCU, leading to a personal but entertaining Neo-noir comic arc from Image.
+---------
+
+# 47 Years Later, Disco Demolition Night Remains Music's Most Controversial Event
+
+Music Features, Music, Disco, Saturday Night Fever
+
+Wed, 12 Aug 2026 20:34:15 GMT
+
+https://collider.com/disco-demolition-night-white-sox-comiskey-park/
+
+Disco Demolition Night shocked Chicago in 1979, but there was much more to the infamous event than blowing up disco records at Comiskey Park.
+---------
+
+# Tom Holland Is Officially Battling Himself at the Worldwide Box Office
+
+Movie News, The Odyssey, Spider-Man: Far from Home, Box Office, Christopher Nolan
+
+Wed, 12 Aug 2026 20:30:14 GMT
+
+https://collider.com/the-odyssey-box-office-spider-man-far-from-home-1-billion/
+
+Christopher Nolan’s The Odyssey passes one of Marvel’s biggest Spider-Man movies at the worldwide box office in its blockbuster theatrical run.
+---------
+
+# 7 Near-Perfect Prime Video Miniseries Nobody Remembers
+
+TV, TV Miniseries, Prime Video, The English, Tales from the Loop
+
+Wed, 12 Aug 2026 20:28:14 GMT
+
+https://collider.com/prime-video-miniseries-nobody-remembers/
+
+Tales from the Loop, Solos, The English, The Kettering Incident, and more make up our list of near-perfect Prime Video miniseries nobody remembers.
+---------
+
+# 'Top Gun: Maverick' Director's 'Miami Vice' Remake Officially Casts Star Wars Favorite in Major Role
+
+Movie News, Alden Ehrenreich, Miami Vice, Michael B. Jordan, Austin Butler
+
+Wed, 12 Aug 2026 20:08:26 GMT
+
+https://collider.com/miami-vice-remake-cast-alden-ehrenreich/
+
+Alden Ehrenreich, the star of Solo and Weapons, has officially been cast in Michael B. Jordan and Austin Butler's Miami Vice remake.
+---------
+
+# 10 Modern Anime Where Every Episode Is a Masterpiece
+
+TV, Anime, Frieren: Beyond Journey's End, City the Animation, Pluto
+
+Wed, 12 Aug 2026 20:06:15 GMT
+
+https://collider.com/modern-anime-every-episode-masterpiece/
+
+The 21st century has produced many consistently great anime where every episode is truly masterful, including Pluto and Frieren: Beyond Journey's End.
+---------
+
+# ‘Shōgun’ Fans Officially Have a Very Different Japan-Set Series Coming to Hulu
+
+TV News, Shogun, Hulu, Joseph Gordon-Levitt, Chef's Table: Noodles
+
+Wed, 12 Aug 2026 20:00:14 GMT
+
+https://collider.com/joseph-gordon-levitt-new-hulu-series-gaijin/
+
+After a period-defining hit, Hulu leans into Japan again with a contemporary story coming soon. Get all the details here.
+---------
+
+# 'Wonder Woman' Series Officially Dead at DC
+
+TV News, DC Comics, Warner Bros., Paradise Lost, Waller (DCU)
+
+Wed, 12 Aug 2026 19:49:46 GMT
+
+https://collider.com/dc-wonder-woman-series-paradise-lost-cancelled/
+
+DC is no longer moving forward with its Wonder Woman series Paradise Lost nor its Amanda Waller spin-off, signaling an uncertain future for the DCU.
+---------
+
+# 'Barbie 2' in Jeopardy as Margot Robbie & Crew Reject "Life-Changing Money"
+
+Movie News, Barbie
+
+Wed, 12 Aug 2026 20:08:27 GMT
+
+https://movieweb.com/barbie-2-paused-production-delays/
+
+Behind-the-scenes disputes between the 'Barbie' creative team and Warner Bros. could prevent a sequel, leading to a full reboot.
+---------
+
+# 'Reacher' Season 4's Hilarious New Quote Perfectly Summarizes Alan Ritchson's Character
+
+Features, Reacher
+
+Wed, 12 Aug 2026 20:00:12 GMT
+
+https://movieweb.com/reacher-season-4-sherlock-holmes-quote/
+
+Jack Reacher can be a tricky man to sum up in just a few words, but 'Reacher' Season 4 just pulled it off. Read on for more.
+---------
+
+# Harrison Ford's "Expert" Action Thriller That Roger Ebert Gave 10/10 Scores Big on Free Streaming
+
+Movie News, Harrison Ford, The Fugitive, Hot on Streaming
+
+Wed, 12 Aug 2026 20:00:12 GMT
+
+https://movieweb.com/the-fugitive-streaming-hit-pluto-tv-august-2026/
+
+There is nothing quite like '90s action cinema, right?
+---------
+
 # Alan Ritchson’s Reacher Officially Returns On Prime Video The Same Day Season 4 Ends
 
 Streaming TV, Reacher, Reacher - Season 4, Neagley
