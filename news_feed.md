@@ -1,3 +1,311 @@
+# Anne Hathaway’s New Jurassic Park Meets Cloverfield Sci-Fi Debuts To Stellar Rotten Tomatoes Score
+
+Movies, Masked Recs, Anne Hathaway
+
+Wed, 12 Aug 2026 15:25:48 GMT
+
+https://screenrant.com/the-end-of-oak-street-rotten-tomatoes-score-debut/
+
+As The End of Oak Street releases in theaters this month, the Rotten Tomatoes score for Anne Hathaway and Ewan McGregor's film has officially debuted.
+---------
+
+# Timothy Olyphant’s 101-Minute Sci-Fi Horror Movie ls Killing It On Streaming Charts
+
+Movies, Masked Recs, Horror, Streaming Charts, Timothy Olyphant
+
+Wed, 12 Aug 2026 15:23:36 GMT
+
+https://screenrant.com/timothy-olyphant-the-crazies-remake-lionsgate-plus-global-streaming-success-august-2026/
+
+A critically well-regarded sci-fi horror movie starring Justified's Timothy Olyphant earns a strong position on a major streaming chart.
+---------
+
+# The Walking Dead Is Briefly Switching Genres For One Night Only
+
+Streaming TV, Masked Recs
+
+Wed, 12 Aug 2026 15:15:11 GMT
+
+https://screenrant.com/the-walking-dead-switching-genres-dead-city-medical-drama/
+
+Everyone knows The Walking Dead as a zombie horror franchise, but it's switching to a surprising (and very different) genre for one episode only.
+---------
+
+# Stardew Valley Officially Returns February 2027 With Brand-New Release
+
+Gaming, Stardew Valley, Indie Games, PC
+
+Wed, 12 Aug 2026 15:11:17 GMT
+
+https://screenrant.com/stardew-valley-switch-2-edition-february-2027/
+
+Stardew Valley still hasn't given up its spotlight, and a new release planned for next year proves that it won't be happening any time soon.
+---------
+
+# A Tale Of Two Cities Trailer Reveals Kit Harington's Adaptation Of 167-Year-Old Classic
+
+TV
+
+Wed, 12 Aug 2026 15:06:34 GMT
+
+https://screenrant.com/kit-harington-a-tale-of-two-cities-trailer-release-date/
+
+Kit Harington is back for his first leading TV role since Game of Thrones ended in May 2019, with an adaptation of an all-time classic novel.
+---------
+
+# Warner Bros.' $1.4B Heist Franchise Return Gets Surprising Filming Update From Star
+
+Movies, Ocean's
+
+Wed, 12 Aug 2026 15:01:04 GMT
+
+https://screenrant.com/warner-bros-oceans-prequel-filming-start-confirmed-wagner-moura/
+
+A star of Warner Bros.' highly-anticipated upcoming return movie for an acclaimed $1.4 billion franchise offers a surprising filming update.
+---------
+
+# Neagley’s New Case & Alan Ritchson’s Genre-Changing Reacher Return Revealed In Prime Video Spinoff Trailer
+
+TV, Neagley, Jack Reacher
+
+Wed, 12 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/neagley-reacher-spinoff-prime-video-trailer/
+
+The new trailer for Neagley has been released, revealing more about her new case and Alan Ritchson's genre-changing Reacher return in the spinoff.
+---------
+
+# Coyote vs. Acme Review: A Fun, Shaky Movie Under Way Too Much Pressure
+
+New Movies, Coyote Vs. Acme
+
+Wed, 12 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/coyote-vs-acme-movie-review/
+
+As great as it is that Coyote vs. Acme survived its cancellation attempt by WB, this movie wasn't built for the weight of expectation that created.
+---------
+
+# Don't Say Good Luck Review: Sunny Sandler's Gorgeously Gut-Wrenching Dramedy Demands A Watch
+
+Movies, Don't Say Good Luck
+
+Wed, 12 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/dont-say-good-luck-movie-review/
+
+Netflix's new teen dramedy starring Adam Sandler's youngest daughter, Sunny, will take audiences by surprise in the best way.
+---------
+
+# The End Of Oak Street Review: Jurassic Park Finally Has A Worthy Spiritual Successor
+
+Movies, The End of Oak Street
+
+Wed, 12 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/the-end-of-oak-street-movie-review/
+
+The new dinosaur thriller from writer-director David Robert Mitchell is a wildly entertaining, if somewhat flawed sci-fi blockbuster.
+---------
+
+# Attack on Titan Confirmed to Be Behind 2026's Dark Fantasy Series Delay
+
+Anime, Attack on Titan, Attack On Titan, Dorohedoro
+
+Wed, 12 Aug 2026 15:20:01 GMT
+
+https://www.cbr.com/attack-on-titan-final-season-dorohedoro-delay-confirm/
+
+Several MAPPA staff members break down why fans had to wait six years to see a fan-favorite dark fantasy anime return to the airwaves for Season 2.
+---------
+
+# Bleach TYBW Season 4, Episode 4 Release Date & Time
+
+Anime, Bleach: Thousand Year Blood War
+
+Wed, 12 Aug 2026 15:15:15 GMT
+
+https://www.cbr.com/bleach-tybw-season-4-episode-4-the-calamity-release-date-time/
+
+The final battle continues in Bleach TYBW. Here's everything to know about Season 4, Episode 4's release date, time, and streaming details.
+---------
+
+# Absolute Harley Quinn's Official Origin is Revealed
+
+Comics, Absolute Batman
+
+Wed, 12 Aug 2026 15:09:58 GMT
+
+https://www.cbr.com/absolute-batman-23-review-harley-quinn-origin-revealed/
+
+In a CBR review of Absolute Batman #22, learn the shocking new origin of Harley Quinn in the Absolute Universe
+---------
+
+# The End of Oak Street Review: Anne Hathaway Sends Blockbuster Season Out With a Roar
+
+Movies, The End of Oak Street
+
+Wed, 12 Aug 2026 15:00:21 GMT
+
+https://www.cbr.com/the-end-of-oak-street-review/
+
+The End of Oak Street pairs Anne Hathaway and Ewan McGregor with dinosaurs in David Robert Mitchell’s thrilling survival film.
+---------
+
+# 5 Jedi Stronger Than Yoda, Ranked
+
+Movies, Star Wars
+
+Wed, 12 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/jedi-more-powerful-than-yoda-list/
+
+Yoda is a powerful Jedi Master, but nothing compared to a few Jedi with their own immense strength.
+---------
+
+# USA's Canceled 5-Season Spy Series With 92% RT Dominates PVOD Charts 11 Years Later
+
+TV, Covert Affairs, usa network, Apple TV
+
+Wed, 12 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/usa-covert-affairs-pvod-success-august-2026/
+
+Another canceled USA Network drama is becoming a hit.
+---------
+
+# 10 Anime to Watch If You Love Cowboy Bebop
+
+Anime, Cowboy Bebop, Trigun, Samurai Champloo
+
+Wed, 12 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/anime-to-watch-if-you-love-cowboy-bebop/
+
+Fans seeking a similar anime experience to Cowboy Bebop need look no further than series like Trigun and Samurai Champloo.
+---------
+
+# ‘Reacher’ Officially Returns With a Brand-New Spin-Off 1 Week After Season 4
+
+TV News, Neagley, Reacher, Alan Ritchson, Maria Sten
+
+Wed, 12 Aug 2026 15:00:15 GMT
+
+https://collider.com/prime-video-reacher-spin-off-neagley-trailer-release-date/
+
+Prime Video has officially released the first trailer for Neagley, starring Maria Sten, with Alan Ritchson set to guest star as Jack Reacher.
+---------
+
+# Anne Hathaway's 'The End of Oak Street' Is an Action-Packed Amblin Throwback | Review
+
+Movie Reviews, The End of Oak Street, Ewan McGregor, Anne Hathaway, David Robert Mitchell
+
+Wed, 12 Aug 2026 15:00:15 GMT
+
+https://collider.com/end-of-oak-street-review-anne-hathaway-ewan-mcgregor/
+
+Anne Hathaway's survival thriller The End of Oak Street features superb action, great performances, and a lot of mystery.
+---------
+
+# ‘Reacher’ Meets ‘Thelma & Louise’ in Prime Video’s Epic New Action Series Officially Taking Over [Exclusive]
+
+TV News, Ride or Die, Hannah Waddingham, Octavia Spencer, Prime Video
+
+Wed, 12 Aug 2026 15:00:15 GMT
+
+https://collider.com/prime-video-ride-or-die-featurette-hannah-waddingham-octavia-spencer/
+
+Go behind the scenes of Prime Video’s Ride or Die with Hannah Waddingham and Octavia Spencer in an exclusive new featurette.
+---------
+
+# ‘Coyote vs. Acme’ Review: Warner Bros.' Shelved Looney Tunes Movie Was Worth the Wait
+
+Movie, Coyote Vs. Acme, Will Forte, Looney Tunes, John Cena
+
+Wed, 12 Aug 2026 15:00:15 GMT
+
+https://collider.com/coyote-vs-acme-looney-tunes-movie-review/
+
+Will Forte, John Cena, and the Looney Tunes star in Coyote vs. Acme, a mix of animation and live-action that’s one of the year’s best comedies.
+---------
+
+# Yahya Abdul-Mateen II's New True Crime Thriller Officially Debuts Epic Trailer
+
+Movie News, By Any Means, Yahya Abdul-Mateen II, Mark Wahlberg, Paramount
+
+Wed, 12 Aug 2026 14:16:18 GMT
+
+https://collider.com/by-any-means-trailer/
+
+Wonder Man's Yahya Abdul-Mateen II officially debuts new trailer for his true crime thriller By Any Means.
+---------
+
+# Ben Affleck Will Stop at Nothing To Rescue His Son in New Netflix Thriller
+
+Movie News, Ben Affleck, Kerry Washington
+
+Wed, 12 Aug 2026 15:22:04 GMT
+
+https://movieweb.com/ben-affleck-animals-netflix-trailer-release-date/
+
+Netflix has released the first teaser for 'Animals,' the kidnapping thriller Ben Affleck directs and stars in with Kerry Washington, out Oct. 9.
+---------
+
+# 29 Years Later, Val Kilmer's Forgotten Action Thriller Reboot Sets New Release
+
+Movie News, The Saint, Val Kilmer, Blu-ray, Action
+
+Wed, 12 Aug 2026 15:15:29 GMT
+
+https://movieweb.com/val-kilmer-the-saint-4k-blu-ray/
+
+Paramount Home Media Distribution is preparing a 4K Blu-ray release of Phillip Noyce's divisive action thriller 'The Saint,' starring Val Kilmer.
+---------
+
+# Anne Hathaway's New Sci-Fi Dinosaur Epic Lands a Roaring Rotten Tomatoes Score
+
+Movie News, The End of Oak Street, Anne Hathaway
+
+Wed, 12 Aug 2026 15:14:04 GMT
+
+https://movieweb.com/anne-hathaway-end-of-oak-street-rotten-tomatoes/
+
+The epic dinosaur thriller just landed a T-Rex-sized score on Rotten Tomatoes.
+---------
+
+# Why the 'Yellowstone' Finale Has a Melanie Olmstead Tribute
+
+Features, Yellowstone, Taylor Sheridan
+
+Wed, 12 Aug 2026 15:00:13 GMT
+
+https://movieweb.com/why-yellowstone-finale-has-a-melanie-olmstead-tribute/
+
+Discover what went into the touching dedication to Yellowstone's production member, Melanie Olmstead.
+---------
+
+# 'The End of Oak Street' Is a Thrilling Dino Throwback to '80s Amblin | Review
+
+Movie Reviews, The End of Oak Street, Ewan McGregor, Anne Hathaway
+
+Wed, 12 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/the-end-of-oak-street-review/
+
+Anne Hathaway helps sell the genre-bending vibes of thrilling family-centric adventures.
+---------
+
+# Netflix's 10/10 Action Thriller Series Confirms Season 5 Release Date
+
+TV News, Fauda
+
+Wed, 12 Aug 2026 14:39:29 GMT
+
+https://movieweb.com/netflix-fauda-season-5-release-date/
+
+Netflix lists 'Fauda' as returning globally on September 8, with Raz and co-creator Avi Issacharoff continuing the story of Doron and his team.
+---------
+
 # Netflix's 2025 Fantasy Hit Has A Successor Coming With Possibly Its Biggest Star In Tow
 
 Anime, Netflix, K-Drama
