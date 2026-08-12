@@ -1,3 +1,344 @@
+# What Happened To The EDITH Glasses In MCU Spider-Man’s Movies
+
+Movies, Marvel Cinematic Universe, Spider-Man, Spider-Man: No Way Home, Spider-Man: Far from Home
+
+Wed, 12 Aug 2026 01:00:11 GMT
+
+https://screenrant.com/edith-glasses-spiderman-mcu-what-happened/
+
+Iron Man’s EDITH glasses were essential for Spider-Man: Far From Home, but quickly disappeared despite how helpful they would have been.
+---------
+
+# Say Goodbye To The Clone Wars As Disney Launches A New Star Wars Generation
+
+Streaming TV, Masked Recs
+
+Wed, 12 Aug 2026 00:30:11 GMT
+
+https://screenrant.com/star-wars-animated-shows-visions-clone-wars/
+
+Star Wars animation has been heavily inspired by The Clone Wars for nearly two decades, but a new show may usher in a new age for the franchise.
+---------
+
+# I’m No Longer Worried About My Biggest MCU Doctor Doom Concern
+
+Movies, Avengers: Doomsday, Doctor Doom, Marvel Cinematic Universe, Fantastic Four
+
+Wed, 12 Aug 2026 00:20:26 GMT
+
+https://screenrant.com/avengers-doomsday-doctor-doom-fantastic-four-connection-mcu/
+
+Thanks to exclusive Avengers: Doomsday footage released at San Diego Comic-Con, I'm no longer worried about one of my biggest Doctor Doom concerns.
+---------
+
+# New Reboot Of A 3x Cancelled CBS Franchise Looks So Good, It's Renewed For Season 2 Before It Even Starts
+
+Network TV, S.W.A.T. Exiles
+
+Wed, 12 Aug 2026 00:15:11 GMT
+
+https://screenrant.com/swat-exiles-early-renewal-season-2-cbs-canceled/
+
+SWAT Exiles, a revival of the original CBS network TV show starring Shemar Moore, secured a season 2 renewal ahead of its September 2026 debut.
+---------
+
+# 10 Xbox Game Pass Games To Play If You Love Red Dead Redemption 2
+
+Gaming, Xbox Game Pass, Red Dead Redemption 2, Triple-A Games, PC
+
+Wed, 12 Aug 2026 00:00:12 GMT
+
+https://screenrant.com/xbox-game-pass-red-dead-redemption-2-alternatives/
+
+Red Dead Redemption 2 is a hard act to follow, but the Xbox Game Pass library has its fair share of games that can scratch a similar itch.
+---------
+
+# The Twilight Zone's Worst Episode Started One Of Hollywood's Biggest Rivalries
+
+Classic TV, The Twilight Zone
+
+Wed, 12 Aug 2026 00:00:11 GMT
+
+https://screenrant.com/the-twilight-zone-the-bard-burt-reynolds-marlon-brando-feud/
+
+One episode from The Twilight Zone season 4 is widely regarded as the worst of the show, but it made way for one of Hollywood's biggest feuds.
+---------
+
+# The Walking Dead Star Almost Left The Franchise After Dead City Season 2
+
+TV, The Walking Dead: Dead City
+
+Tue, 11 Aug 2026 23:35:35 GMT
+
+https://screenrant.com/the-walking-dead-dead-city-jeffrey-dean-morgan-almost-left-after-season-2/
+
+The Walking Dead: Dead City almost lost one of its stars over creative differences after filming the second season of the spinoff show.
+---------
+
+# Brandon Sanderson's Mistborn Era 3 Gets Major Update
+
+Books, Brandon Sanderson, Mistborn, The Cosmere
+
+Tue, 11 Aug 2026 23:33:07 GMT
+
+https://screenrant.com/brandon-sanderson-ghostbloods-mistborn-era-3-writing-announcement/
+
+Brandon Sanderon may have spent the past six months focused on the Mistborn movie script, but he's finally provided a much-needed update on Era 3.
+---------
+
+# 5 Most Expensive Fighting-Type Pokémon Cards, Ranked By Price
+
+Games, Pokemon, Tabletop, Pokemon Trading Card Game
+
+Wed, 12 Aug 2026 00:45:14 GMT
+
+https://www.cbr.com/most-expensive-fighting-type-pokemon-cards-ranked-by-price/
+
+Fighting-type Pokémon collectors may be in for a tough time when it comes to shelling out money, as these five cards pack a punch to any wallet.
+---------
+
+# 10 Best James Bond Movies, Ranked
+
+Movies, James Bond
+
+Wed, 12 Aug 2026 00:30:14 GMT
+
+https://www.cbr.com/james-bond-movies-list/
+
+James Bond has been entertaining the world since his 1953 creation, and these movies are his absolute best on-screen adventures.
+---------
+
+# John Wick Meets Taken In Overlooked Action Thriller That's Conquering Streaming
+
+Movies, Agent Zero
+
+Wed, 12 Aug 2026 00:30:14 GMT
+
+https://www.cbr.com/badh-action-prime-video-success-august-2026/
+
+A wildly underrated action thriller is making its way up the streaming charts on a major platform, and it's part of a new trend that audiences adore.
+---------
+
+# 6 Near-Perfect Hard Sci-Fi Shows Nobody Remembers
+
+TV, Sci-Fi, Space: Above and Beyond, Odyssey 5
+
+Wed, 12 Aug 2026 00:30:14 GMT
+
+https://www.cbr.com/best-forgotten-hard-sci-fi-series-list/
+
+Some of the best hard sci-fi TV shows ever made slipped through the cracks, and these near-perfect series deserve another look from modern fans.
+---------
+
+# 4 Months Later, A New Transformers Project Is Officially Canceled
+
+Anime, Transformers, merchandise, toys
+
+Wed, 12 Aug 2026 00:20:15 GMT
+
+https://www.cbr.com/transformers-big-convoy-flame-toys-cancel/
+
+A previously announced model kit for one of the most overlooked Maximals in the Transformers franchise is sadly no longer set for release.
+---------
+
+# 5 Anime Characters Sung Jinwoo Could Never Defeat
+
+Anime, Solo Leveling, One Punch Man, Sailor Moon
+
+Wed, 12 Aug 2026 00:15:15 GMT
+
+https://www.cbr.com/solo-leveling-anime-characters-sung-jinwoo-cant-beat/
+
+Sung Jinwoo is the strongest hunter, but even he can't handle what the most powerful anime characters can throw at him.
+---------
+
+# James Van Der Beek's Final Film Quietly Turns Into Prime Video Streaming Hit
+
+Movies, The Gates
+
+Wed, 12 Aug 2026 00:00:14 GMT
+
+https://www.cbr.com/the-gates-thriller-prime-video-streaming-success-august-2026/
+
+James Van Der Beek played his darkest role in his final movie that's now rising on Prime Video.
+---------
+
+# Thorin's Final Words Are the Best Quote From The Hobbit
+
+Movies, The Lord of the Rings, The Hobbit, The Hobbit: The Battle of the Five Armies
+
+Wed, 12 Aug 2026 00:00:14 GMT
+
+https://www.cbr.com/the-hobbit-thorin-oakenshield-dying-words-best-fantasy-movie-quote/
+
+In Peter Jackson's The Hobbit: The Battle of the Five Armies, Thorin Oakenshield delivered the trilogy's greatest line of dialogue.
+---------
+
+# The Modern King of Sci-Fi Officially Returns to Theaters After 7 Years
+
+Movie Features, The End of Oak Street, J.J. Abrams, Ewan McGregor, Anne Hathaway
+
+Wed, 12 Aug 2026 01:12:14 GMT
+
+https://collider.com/jj-abrams-theatrical-return-the-end-of-oak-street/
+
+J.J. Abrams produced The End of Oak Street, a subversive horror film from the director of It Follows.
+---------
+
+# 55 Years Later, No Actor Has Topped This Iconic Performance
+
+Movie, Willy Wonka and the Chocolate Factory, Gene Wilder, Charlie and the Chocolate Factory, Roald Dahl
+
+Wed, 12 Aug 2026 01:12:14 GMT
+
+https://collider.com/willy-wonka-and-the-chocolate-factory-gene-wilder-performance-analysis/
+
+Gene Wilder's Willy Wonka nailed the eccentric candyman to the point that no other actor can compare.
+---------
+
+# Forget ‘The Night Agent,’ Netflix’s Best Spy Series Is Officially Returning
+
+TV News, Black Doves, Reacher, Netflix, James Bond
+
+Wed, 12 Aug 2026 01:00:15 GMT
+
+https://collider.com/netflix-spy-thriller-black-doves-season-2-release-date-winter-2026/
+
+Netflix's Black Doves, a gripping spy thriller, could return for its highly anticipated second season in Winter 2026.
+---------
+
+# The Greatest Comedy Show From Every Year of the Past Decade
+
+TV, Comedy, Abbott Elementary, What We Do in the Shadows, The Studio
+
+Wed, 12 Aug 2026 00:55:15 GMT
+
+https://collider.com/best-comedy-show-every-year-past-decade/
+
+Fleabag, Derry Girls, Ted Lasso, Abbott Elementary, The Studio, and more make our list of the best comedy shows from every year of the past decade.
+---------
+
+# 6 Best R-Rated Horror Movie Trilogies
+
+Movie, Horror, The Evil Dead, Night of the Living Dead, The Thing
+
+Wed, 12 Aug 2026 00:32:14 GMT
+
+https://collider.com/best-r-rated-horror-movie-trilogies-ranked/
+
+From the X Trilogy to the Dead Trilogy, these are the greatest R-rated horror movie three-part stories ever made, ranked from good to perfect.
+---------
+
+# New ‘Harry Potter’ Star Officially Slams J.K. Rowling Ahead of HBO Reboot
+
+TV News, Harry Potter, J.K. Rowling, Bel Powley, HBO
+
+Wed, 12 Aug 2026 00:30:14 GMT
+
+https://collider.com/hbo-harry-potter-series-jk-rowling-response-bel-powley/
+
+A major cast member from HBO's Harry Potter reboot series has broken her silence on J.K. Rowling's controversial political views.
+---------
+
+# Forget Alan Ritchson’s 'War Machine,' Netflix Officially Has a New Action Blockbuster
+
+Movie News, Dhurandhar, Bollywood, Netflix, Action
+
+Wed, 12 Aug 2026 00:15:14 GMT
+
+https://collider.com/netflix-dhurandhar-streaming-success-august-2026/
+
+Netflix's Ted Sarandos revealed the biggest non-English movie on the platform this year, and it's perfect for fans of James Bond and The Godfather.
+---------
+
+# Steven Spielberg’s 2026 Sci-Fi Return Officially Crowned a #1 Streaming Hit
+
+Movie News, Disclosure Day, Sci-Fi, Steven Spielberg, Emily Blunt
+
+Wed, 12 Aug 2026 00:00:14 GMT
+
+https://collider.com/steven-spielberg-sci-fi-disclosure-day-streaming-success-itunes-august-2026/
+
+The most divisive sci-fi tentpole of 2026 is staging a resurgence on streaming after an underwhelming box-office run. Find out more here.
+---------
+
+# Apple TV’s “Mind-Melting” Sci-Fi Masterpiece Surges Past Major Streaming Milestone
+
+TV News, Severance, Adam Scott, Apple TV, Sci-Fi
+
+Tue, 11 Aug 2026 23:45:14 GMT
+
+https://collider.com/severance-apple-tv-sci-fi-masterpiece-streaming-success-august-2026/
+
+Apple TV's platform-defining sci-fi series has passed a monumental streaming milestone. Find out more.
+---------
+
+# 'House of the Dragon' Is Finally Giving Fans the Ultimate Version of Rhaenyra and Daemon
+
+TV Features, House of the Dragon, Emma D'Arcy, Matt Smith, HBO Max
+
+Tue, 11 Aug 2026 23:42:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-finale-rhaenyra-daemon-relationship/
+
+House of the Dragon Season 3 finally puts Daemon and Rhaenyra on the same page by the finale, but is that really a good thing?
+---------
+
+# Jon Hamm Officially Confirms He's the King of TV Next Month
+
+Features, Jon Hamm, American Hostage
+
+Wed, 12 Aug 2026 01:00:12 GMT
+
+https://movieweb.com/jon-hamm-american-hostage-king-of-tv/
+
+Jon Hamm has starred in many popular TV shows, including 'Mad Men,' 'Fargo,' and the Apple TV series 'Your Friends & Neighbors.'
+---------
+
+# A Great Jeff Daniels Performance Delivers a Tense Historical Showdown | Review
+
+Movie Reviews, The Brink of War, Jeff Daniels, Jared Harris, J.K. Simmons
+
+Wed, 12 Aug 2026 01:00:12 GMT
+
+https://movieweb.com/the-brink-of-war-review/
+
+'The Brink of War' could have been a much more generic adaptation of a real-life encounter if not for the talented cast.
+---------
+
+# 10/10 Action Thriller Hailed "Best of the Year" Finally Gets New Release
+
+Movie News, The Furious, Blu-ray
+
+Wed, 12 Aug 2026 00:38:16 GMT
+
+https://movieweb.com/the-furious-4k-blu-ray-collectors-edition-release/
+
+'The Furious' is out now on 4K Ultra HD Blu-ray.
+---------
+
+# Paramount's Forgotten 8-Part Crime Thriller Is a Shocking One-Night Binge
+
+Features, Happy Face, Crime, Paramount Plus
+
+Wed, 12 Aug 2026 00:00:12 GMT
+
+https://movieweb.com/happy-face-thriller-paramount-binge-watch/
+
+Paramount+ has many memorable thriller TV series, and while this one is underrated, it makes for a great one-night binge-watch.
+---------
+
+# Chris Evans Reveals How 'Avengers: Doomsday' Completely Changes Steve Rogers Forever
+
+Exclusives, Avengers: Doomsday, Chris Evans
+
+Tue, 11 Aug 2026 23:44:29 GMT
+
+https://movieweb.com/chris-evans-avengers-doomsday-steve-rogers-changes/
+
+Chris Evans set fans up for an intense new chapter in Steve Rogers' journey when he returns to the MCU in 'Avengers: Doomsday.'
+---------
+
 # Guy Ritchie's Sherlock Prequel Series Has Fully Replaced Watson
 
 TV, Masked Recs
