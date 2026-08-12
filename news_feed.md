@@ -1,3 +1,300 @@
+# Tracker Season 4 Is Still Missing CBS' Secret Ingredient
+
+Network TV, Tracker
+
+Wed, 12 Aug 2026 21:30:11 GMT
+
+https://screenrant.com/tracker-season-4-missing-jensen-ackles-russel-shaw-unconfirmed/
+
+Tracker's success hinges on Jensen Ackles’ return in season 4, but he remains unconfirmed for the show's next season despite being an absolute need.
+---------
+
+# 10 Years Later, Taylor Sheridan's 102-Minute Thriller Is Better Than Any Of His Western Shows
+
+Movies, Hell or High Water
+
+Wed, 12 Aug 2026 21:20:11 GMT
+
+https://screenrant.com/taylor-sheridan-hell-or-high-water-western-tv-shows-better/
+
+Arguably Taylor Sheridan's greatest Western movie turned 10 years old in 2026, and it beats out even his most acclaimed television series.
+---------
+
+# 33 Years Later, Charlie Brown’s Best Line Is Still the Funniest Quote in Peanuts History
+
+Comics, Peanuts, Charlie Brown
+
+Wed, 12 Aug 2026 21:11:11 GMT
+
+https://screenrant.com/peanuts-best-funny-charlie-brown-quote/
+
+Charlie Brown has countless iconic lines, but we’ve narrowed down what might just be his funniest quote from Peanuts.
+---------
+
+# Marvel Officially Addresses X-Men's Shocking Death & Major MCU Connections
+
+Exclusive
+
+Wed, 12 Aug 2026 21:07:39 GMT
+
+https://screenrant.com/xmen-97-season-2-nightcrawler-death-explained/
+
+EXCLUSIVE: A major character from Marvel Studios' beloved X-Men project has officially been killed off, as one of the producers opens up on the death.
+---------
+
+# Mortal Kombat 3's Chances Just Got A Boost Despite $129M Box Office Disappointment
+
+New Movies, Mortal Kombat II, Mortal Kombat
+
+Wed, 12 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/mortal-kombat-2-movie-hbo-max-streaming-success-sequel-chances/
+
+Mortal Kombat 3 took a hit after Mortal Kombat II's disappointing box office performance, but the sequel's chances have now received a major boost.
+---------
+
+# 10 Biggest Changes House Of The Dragon Season 3 Makes To GRRM's Book
+
+Streaming TV, House of the Dragon
+
+Wed, 12 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-biggest-book-changes-fire-and-blood/
+
+House of the Dragon season 3 has ended, and now we can take stock of the many changes the show has made to George R.R. Martin's Fire & Blood.
+---------
+
+# 3 Nintendo DS Games Every Gamer Had In The 2000s
+
+Gaming, Nintendo DS, Nintendo, Triple-A Games
+
+Wed, 12 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/nintendo-ds-games-every-gamer-owned/
+
+The Nintendo DS was a true cultural sensation in the 2000s, and a few games felt like they had a presence in virtually every household.
+---------
+
+# CBS Developing Strike Force Series From Jerry Bruckheimer & Chicago Alums
+
+TV, One Chicago, CBS
+
+Wed, 12 Aug 2026 20:59:27 GMT
+
+https://screenrant.com/strike-force-jesse-lee-soffer-development-cbs/
+
+CBS is reportedly developing a new series titled Strike Force in collaboration with Jerry Bruckheimer and One Chicago veterans.
+---------
+
+# Miles Morales New Era Officially Begins Today
+
+Marvel Comics, Spider-Man, Miles Morales
+
+Wed, 12 Aug 2026 20:52:25 GMT
+
+https://screenrant.com/spider-man-miles-morales-1-new-era/
+
+Miles Morales' Spider-Man is joining Peter Parker in entering a brand-new era, though what it's leaving behind could turn out to be detrimental.
+---------
+
+# Beloved 1990s Fantasy Movie Jumanji Gets A New Sequel In Theaters This Year
+
+Movies, Masked Recs
+
+Wed, 12 Aug 2026 20:51:52 GMT
+
+https://screenrant.com/jumanji-open-world-fantasy-movie-sequel-popular-franchise/
+
+A fantasy movie franchise that delivered a classic in the 1990s will return with a star-studded sequel in 2026, and the new film ends the universe.
+---------
+
+# Michael Myers Actor Tyler Mane Completes Chemo Following Cancer Diagnosis
+
+Movies, Halloween
+
+Wed, 12 Aug 2026 21:35:41 GMT
+
+https://www.cbr.com/tyler-mane-completes-chemotherapy-after-cancer-diagnosis/
+
+Halloween and X-Men star Tyler Mane shares an update on his chemotherapy months after announcing his cancer diagnosis.
+---------
+
+# Spawn Officially Returns With Two Must-Have Variant Covers
+
+Comics, Spawn, Spawn (1997-1999)
+
+Wed, 12 Aug 2026 21:22:24 GMT
+
+https://www.cbr.com/spawn-officially-returns-with-two-must-have-covers/
+
+True and diehard Spawn fans are going to run to the shelves for these covers.
+---------
+
+# 10 Greatest Video Games Since 2021
+
+Games, The Legend of Zelda, God of War, Final Fantasy
+
+Wed, 12 Aug 2026 21:16:14 GMT
+
+https://www.cbr.com/greatest-video-games-2020s-so-far/
+
+Since 2021, console gaming has evolved into a cinematic form of pure fun, and these ten titles reign supreme above all others from the decade.
+---------
+
+# CBS Is Quietly Dropping Its NCIS Formula by Replacing Its Most Important Show
+
+TV, NCIS, Innovation
+
+Wed, 12 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/ncis-origins-season-3-mark-harmon-gibbs-return/
+
+CBS is giving an NCIS spinoff more prominence, dropping the franchise's formula heading into the 2026-2027 TV cycle.
+---------
+
+# 10 Greatest Mystery Books of the Last 25 Years, Ranked
+
+Movies, Mystery, Gone Girl, The Thursday Murder Club
+
+Wed, 12 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/best-mystery-books-last-25-years-ranked-list/
+
+Mystery novels have some of the most addictive and memorable stories, and there have been many great additions to the genre in the last 25 years.
+---------
+
+# DC Studios’ Superman Series Future Gets Worrying Update Just 4 Days Before Finale
+
+TV, My Adventures With Superman, Superman
+
+Wed, 12 Aug 2026 20:48:00 GMT
+
+https://www.cbr.com/my-adventures-with-superman-season-4-not-renewed/
+
+DC's Superman series gets bad news just days before its finale.
+---------
+
+# ‘House of the Dragon’ Season 3 Finale Officially Sends Fans Back to ‘Game of Thrones’
+
+TV News, House of the Dragon, Game Of Thrones, Apple TV, Streaming
+
+Wed, 12 Aug 2026 21:30:14 GMT
+
+https://collider.com/game-of-thrones-streaming-hit-apple-tv-store-august-2026/
+
+Game of Thrones returns to No. 1 on the worldwide Apple TV Store following the House of the Dragon Season 3 finale.
+---------
+
+# 25 Best Books of the 20th Century
+
+Books and Comics, 1984, The Stand, The Lord of the Rings, Dune
+
+Wed, 12 Aug 2026 21:29:14 GMT
+
+https://collider.com/best-books-20th-century-ranked/
+
+The very best books of the 20th century include undeniable classics like To Kill a Mockingbird, The Catcher in the Rye, and Nineteen Eighty-Four.
+---------
+
+# The 'Verity' Trailer Is Here, and It Embraces Colleen Hoover’s Most Disturbing Elements
+
+Books and Comics, Movie Trailers, Verity, Books, Colleen Hoover
+
+Wed, 12 Aug 2026 21:09:14 GMT
+
+https://collider.com/verity-official-trailer-colleen-hoover-book/
+
+The 'Verity' trailer reveals Anne Hathaway as Colleen Hoover's most unpredictable character, and the adaptation isn't toning down the book's horror.
+---------
+
+# 10 Best Spooky Cop Shows of All Time
+
+TV, The X-Files, Supernatural, Fringe, Twin Peaks
+
+Wed, 12 Aug 2026 21:07:15 GMT
+
+https://collider.com/best-spooky-cop-shows-ranked/
+
+Fox's The X-Files and Sleepy Hollow, and ABC's Twin Peaks, are among the best spooky cop TV shows ever made.
+---------
+
+# ‘Harry Potter’ Officially Sets Massive Return 1 Month Before HBO Release
+
+TV News, Harry Potter, HBO, HBO Max
+
+Wed, 12 Aug 2026 21:00:15 GMT
+
+https://collider.com/harry-potter-largest-uk-store-open-hbo-reboot/
+
+The UK’s biggest official Harry Potter store opens ahead of HBO's reboot, bringing Diagon Alley, Butterbeer, a Knight Bus and more to Oxford Street.
+---------
+
+# 7 Stephen King Books Even His Biggest Fans Might Struggle to Finish
+
+Books and Comics, Stephen King, Dreamcatcher, Cell, The Tommyknockers
+
+Wed, 12 Aug 2026 20:54:15 GMT
+
+https://collider.com/stephen-king-books-fans-struggle-to-finish/
+
+There are some challenging and flawed books to be found within Stephen King's vast body of work, including Dreamcatcher, Cell, and The Tommyknockers.
+---------
+
+# Netflix Officially Confirms New 'Lincoln Lawyer' Spin-Off
+
+TV News, The Lincoln Lawyer, Netflix, Bosch, Cobie Smulders
+
+Wed, 12 Aug 2026 20:42:45 GMT
+
+https://collider.com/netflix-the-lincoln-lawyer-spin-off-cobie-smulders/
+
+After the shock announcement that The Lincoln Lawyer would end with Season 5, Netflix is expanding the franchise with a new spin-off series.
+---------
+
+# Netflix's New 3-Part Crime Thriller Miniseries Is Officially the Biggest Hit on Streaming
+
+TV News, Netflix, Hot on Streaming
+
+Wed, 12 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/the-idaho-murders-college-nightmare-netflix-top-stream-august-2026/
+
+Netflix's latest true crime documentary revisits a grisly, high-profile murder case.
+---------
+
+# Jon Bernthal’s 8 Best Action Thriller Movies, Ranked
+
+Movie Lists, Jon Bernthal, Action, Thriller
+
+Wed, 12 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/jon-bernthal-best-action-movies-ranked/
+
+Jon Bernthal, who starred in 'Spider-Man: Brand New Day' and 'The Odyssey,' is always an unforgettable addition to any action thriller movie.
+---------
+
+# Friday the 13th's Canceled Movie Was a "Super Hard-R" Jason Origin Story
+
+Movie News, Friday The 13th, Friday the 13th
+
+Wed, 12 Aug 2026 20:53:06 GMT
+
+https://movieweb.com/friday-the-13th-canceled-sequel-plans/
+
+Brad Fuller and Andrew Form, producers of 2009's 'Friday the 13th' reboot still don't know why the sequel was shutdown.
+---------
+
+# Ethan Hawke's Crime Noir Series 'The Lowdown' Officially Confirms Its Return to FX
+
+TV News, The Lowdown
+
+Wed, 12 Aug 2026 20:37:49 GMT
+
+https://movieweb.com/the-lowdown-ethan-hawke-season-2-premiere-date/
+
+The acclaimed series 'The Lowdown' starring Ethan Hawke premieres Season 2 on Oct. 14 on FX and Hulu.
+---------
+
 # 129 Episodes Later, Tim Bradford's Best Line Is Still The Greatest Quote In The Rookie History
 
 Network TV, The Rookie
