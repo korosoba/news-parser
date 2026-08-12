@@ -1,3 +1,25 @@
+# Game Of Thrones: Honor Of The Old Gods Officially Arrives August 24
+
+Gaming, Game of Thrones, Game Of Thrones, Game of Thrones: Conquest, House of the Dragon, PC
+
+Wed, 12 Aug 2026 06:00:11 GMT
+
+https://screenrant.com/game-of-thrones-conquest-honor-of-the-old-gods-august-24/
+
+Game of Thrones officially returns on August 24 with Honor of the Old Gods, a special event that longtime fans will want to mark on their calendars.
+---------
+
+# Fallout: Into the Wasteland Is A Huge New Single-Player Expansion
+
+Gaming, Fallout, PC, Bethesda
+
+Wed, 12 Aug 2026 05:30:11 GMT
+
+https://screenrant.com/fallout-into-the-wasteland-2026-release-date/
+
+Fans looking for even more Fallout content should check out its brand-new single-player expansion, Into the Wasteland.
+---------
+
 # The Wait Is Over, Terminator Officially Returns This Month
 
 Gaming, Terminator, Triple-A Games
