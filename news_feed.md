@@ -1,3 +1,278 @@
+# Ethan Hawke's The Lowdown Season 2 Lands Official Release Date
+
+TV, The Lowdown
+
+Wed, 12 Aug 2026 18:14:56 GMT
+
+https://screenrant.com/ethan-hawke-the-lowdown-season-2-release-date/
+
+Ethan Hawke's The Lowdown season 2 lands an official release date on FX, with the first looks at Tommy Lee Jones and Betty Gilpin also revealed.
+---------
+
+# Dragon Ball Meets Vampire Survivors In Wild New Co-Op Anime Game
+
+Gaming, Steam, Indie Games
+
+Wed, 12 Aug 2026 18:00:11 GMT
+
+https://screenrant.com/dragon-ball-meets-vampire-survivors-kage/
+
+This is a mashup made in heaven for a lot of fans, and this game manages to include a ton of anime homages in an absolutely packed way.
+---------
+
+# 17 Years Ago, Star Trek Confirmed Its Multiverse Was Different From Marvel’s
+
+Movies, Star Trek
+
+Wed, 12 Aug 2026 18:00:11 GMT
+
+https://screenrant.com/star-trek-multiverse-different-marvel/
+
+Star Trek created the alternate Kelvin timeline in 2009's reboot, which laid down different rules for its multiverse than what the MCU established.
+---------
+
+# For All Mankind Nears End Of Long Apple TV Run With Season 6 Filming Update
+
+TV, For All Mankind, Apple TV
+
+Wed, 12 Aug 2026 17:53:30 GMT
+
+https://screenrant.com/apple-tv-for-all-mankind-season-6-filming-update-coral-pena/
+
+It's the end of an era for Apple's defining sci-fi saga, with an actor sharing an update that will leave viewers feeling a little bit nostalgic.
+---------
+
+# Jim & Pam’s The Office Replacements Revealed In Season 2 Trailer For The Paper
+
+TV, The Paper
+
+Wed, 12 Aug 2026 17:34:03 GMT
+
+https://screenrant.com/peacock-the-paper-season-2-trailer/
+
+The Office spinoff The Paper is back on September 9, and with less than a month go to, Peacock shares the official season 2 trailer with fans.
+---------
+
+# DC Unleashes Iconic Hero's Ultimate Form, Stronger Than The Gods
+
+DC Comics
+
+Wed, 12 Aug 2026 17:30:34 GMT
+
+https://screenrant.com/aquaman-new-power-level-strongest-hero/
+
+DC brings a famous Justice League hero to a godlike power level that surpasses the strongest heroes in the universe, including Superman himself.
+---------
+
+# The Perfect BBC Sherlock Replacement With Rare 100% RT Score Returns In 2 Months
+
+Network TV, Masked Recs
+
+Wed, 12 Aug 2026 17:30:11 GMT
+
+https://screenrant.com/maigret-pbs-perfect-bbc-sherlock-replacement/
+
+The BBC's Sherlock changed the character forever, and another world-famous detective was recently updated for the 21st century in the same way.
+---------
+
+# 28 Years Later, This 10/10 N64 RPG Is Free On Nintendo Switch
+
+Gaming, The Legend of Zelda: Ocarina of Time, Triple-A Games
+
+Wed, 12 Aug 2026 17:30:11 GMT
+
+https://screenrant.com/n64-10-rated-perfect-rpg-free-nintendo-switch-online/
+
+This classic 10/10 N64 RPG is turning 28 this year, and it's an absolute classic that's free on the Nintendo Switch console family.
+---------
+
+# Rob Liefeld's Awkward Absolute Batman Criticism Receives Backlash After Youngblood Cover
+
+Comics, Absolute Batman, rob liefeld, Batman, youngblood
+
+Wed, 12 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/rob-liefeld-absolute-batman-criticism-youngblood-cover/
+
+The Deadpool co-creator has made his thoughts on Absolute Batman known.
+---------
+
+# DC Studios Reportedly Scraps 2 DCU Series, but There’s Hope for Another
+
+TV, DCU, Booster Gold, Paradise Lost (DC), Waller (DCU)
+
+Wed, 12 Aug 2026 17:45:21 GMT
+
+https://www.cbr.com/dcu-paradise-lost-waller-dead-booster-gold-still-alive/
+
+DC Studios' 10-year plan for the DC Universe continues to evolve, with two more shows no longer moving forward.
+---------
+
+# Spider-Man And Wolverine Lead Brand New Era For The Avengers
+
+Comics, Spider-Man, Wolverine, Avengers
+
+Wed, 12 Aug 2026 17:30:15 GMT
+
+https://www.cbr.com/avengers-1-spider-man-wolverine-lead-brand-new-era/
+
+The future of Marvel's mightiest heroes leans on an unlikely duo.
+---------
+
+# The 5 Biggest Changes to Aragorn in the LOTR Movies
+
+Movies, The Lord of the Rings, Fantasy
+
+Wed, 12 Aug 2026 17:30:15 GMT
+
+https://www.cbr.com/lord-of-the-rings-movie-aragorn-differences-list/
+
+Peter Jackson's The Lord of the Rings film trilogy made some surprising changes to Aragorn when adapting J. R. R. Tolkien's novel for the big screen.
+---------
+
+# 5 PS2 RPGs That Are 10/10 Masterpieces
+
+Games, Video Games, PlayStation 2, Kingdom Hearts, Final Fantasy X|X-2 HD Remaster
+
+Wed, 12 Aug 2026 17:30:15 GMT
+
+https://www.cbr.com/masterpiece-ps2-rpgs-10-10/
+
+Masterpiece RPGs like Kingdom Hearts and Dragon Quest ruled the PlayStation 2.
+---------
+
+# 'Seinfeld' Officially Renewed on Netflix
+
+TV News, Seinfeld, Netflix, Jerry Seinfeld, Julia Louis-Dreyfus
+
+Wed, 12 Aug 2026 18:18:43 GMT
+
+https://collider.com/seinfeld-renewed-netflix-streaming/
+
+Keep those cabana shirts packed, because Seinfeld isn't going anywhere on it's current homes at Netflix and Paramount. Read on for more.
+---------
+
+# X-Men '97 S2: A Wolverine Line Changed Ross Marquand's Life | Set Stories
+
+Exclusives, X-Men '97
+
+Wed, 12 Aug 2026 18:16:14 GMT
+
+https://collider.com/video/x-men-97-s2-a-wolverine-line-changed-ross-marquand-s-life-set-stories/
+
+Ross Marquand reveals how the original X-Men animated series, metal singers, and even Jesse Ventura helped shape his voice for Apocalypse in X-Men '97.
+---------
+
+# 'Pluribus' Best Carol Quote Perfectly Explains Vince Gilligan's Apple TV Sci-Fi Series
+
+TV Features, Pluribus, Vince Gilligan, Rhea Seehorn, Karolina Wydra
+
+Wed, 12 Aug 2026 18:11:14 GMT
+
+https://collider.com/pluribus-apple-tv-best-carol-quote-vince-gilligan/
+
+Carol Sturka's best Pluribus quote perfectly explains the message at the heart of Vince Gilligan's Apple TV sci-fi series.
+---------
+
+# ‘Fallout’ Officially Brings Back Maximus in 2027 for Brand-New Release
+
+TV News, Fallout, Prime Video, Fallout 76, Walton Goggins
+
+Wed, 12 Aug 2026 18:01:14 GMT
+
+https://collider.com/fallout-maximus-state-releasing-2027/
+
+Maximus from Fallout on Prime Video officially returns for a new release around the same time that Season 3 will begin streaming.
+---------
+
+# All 10 Hayao Miyazaki Fantasy Movies, Ranked
+
+Movie, Hayao Miyazaki, Spirited Away, Fantasy, Howl's Moving Castle
+
+Wed, 12 Aug 2026 17:41:15 GMT
+
+https://collider.com/hayao-miyazaki-fantasy-movies-ranked/
+
+Hayao Miyazaki is one of the all-time best fantasy directors, producing gems like Porco Rosso and Spirited Away, but which of his movies is the best?
+---------
+
+# 'The Office' Spin-Off Officially Returns With New Season 2 Trailer
+
+TV News, The Paper, The Office, Peacock, Domhnall Gleeson
+
+Wed, 12 Aug 2026 17:35:28 GMT
+
+https://collider.com/peacock-the-office-spin-off-paper-season-2-trailer/
+
+The Paper, Peacock's divisive spin-off of the smash-hit sitcom The Office, has officially debuted its first trailer for Season 2. See it here!
+---------
+
+# Netflix Officially Sets New Theatrical Release From ’28 Years Later’ Director
+
+Movie News, Danny Boyle, Claire Foy, Netflix, Jack O'Connell
+
+Wed, 12 Aug 2026 17:30:15 GMT
+
+https://collider.com/netflix-theatrical-release-danny-boyle-ink-jack-oconnell/
+
+Danny Boyle's upcoming film Ink sets a December theatrical release date, ahead of its hotly anticipated Netflix release.
+---------
+
+# Anthony Mackie Leads New Sci-Fi Thriller From 'Project Hail Mary' Creator
+
+Movie News, Anthony Mackie, Project Hail Mary
+
+Wed, 12 Aug 2026 18:20:42 GMT
+
+https://movieweb.com/anthony-mackie-sci-fi-thriller-audible-exoplanet/
+
+Anthony Mackie fights to survive hostile planet in a new sci-fi thriller project from creator behind 'Project Hail Mary.'
+---------
+
+# 'Waller' and 'Paradise Lost' Reportedly Dead as DCU Loses 2 More Shows
+
+TV News, Waller (DCU), DCU, Lanterns
+
+Wed, 12 Aug 2026 18:03:59 GMT
+
+https://movieweb.com/dcu-waller-paradise-lost-series-dead-report/
+
+A new report claims DC Studios has killed 'Waller' and 'Paradise Lost,' two series from James Gunn's original 2023 DCU slate.
+---------
+
+# 'Ted Lasso' Season 4 Officially Replaces Roy Kent
+
+Features, Ted Lasso, Apple TV, Comedy, Jason Sudeikis, Brett Goldstein
+
+Wed, 12 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/ted-lasso-season-4-alice-roy-replacement/
+
+'Ted Lasso' Season 4 introduces new coach Alice Chilton, whose backstory is rather similar to the journey Roy Kent goes through in the original show.
+---------
+
+# Sydney Sweeney's Steamy R-Rated Sleeper Hit Thriller Is One of the Biggest Movies on Streaming
+
+Movie News, Sydney Sweeney, The Voyeurs, Hot on Streaming, Thriller
+
+Wed, 12 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/sydney-sweeney-voyeurs-streaming-hbo-august-2026/
+
+The psychological thriller takes inspiration from a Hitchcock classic.
+---------
+
+# Taika Waititi's Charlie and the Chocolate Factory Confirms Book Change & Release Date
+
+Movie News, Netflix, Charlie vs. the Chocolate Factory
+
+Wed, 12 Aug 2026 17:41:49 GMT
+
+https://movieweb.com/netflix-charlie-vs-chocolate-factory-relase-date/
+
+'Charlie vs. The Chocolate Factory', an animated sequel to the beloved Roald Dahl tale, is getting a wide theatrical release in November 2027.
+---------
+
 # Rebecca Ferguson’s Underrated 104-Minute Sci-Fi Horror Finds New Life On Streaming
 
 Movies, Masked Recs
