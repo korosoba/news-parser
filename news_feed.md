@@ -1,3 +1,58 @@
+# 5 Hard Sci-Fi Books That Are Perfectly Written
+
+Books and Comics, Sci-Fi, Books, Project Hail Mary, 3 Body Problem
+
+Wed, 12 Aug 2026 09:34:14 GMT
+
+https://collider.com/hard-sci-fi-books-perfectly-written/
+
+From Project Hail Mary to The Three-Body Problem, these hard sci-fi masterpieces prove big ideas and great storytelling can coexist.
+---------
+
+# HBO's 10/10 'Downton Abbey' Replacement Officially Returns in 2026
+
+Movie News, Downton Abbey, The Gilded Age, HBO, Drama
+
+Wed, 12 Aug 2026 09:30:14 GMT
+
+https://collider.com/hbo-the-gilded-age-season-4-release-window-2026/
+
+HBO has officially confirmed The Gilded Age Season 4 will premiere later this year, with new footage teasing the next chapter of the hit series.
+---------
+
+# 35 Best Enemies-to-Lovers Movies, Ranked
+
+Movie, Romance, The Proposal, The Sound of Music, Avatar
+
+Wed, 12 Aug 2026 09:24:14 GMT
+
+https://collider.com/best-enemies-to-lovers-movies/
+
+The "enemies to lovers" trope is a staple in romance movies across the board, with films like The Proposal and Clueless standing as classics.
+---------
+
+# Xbox Officially Implements Mandatory 18+ Age Verification
+
+Gaming News, Microsoft Xbox, Xbox Series X/S, Microsoft, Australia
+
+Wed, 12 Aug 2026 09:01:14 GMT
+
+https://collider.com/xbox-age-verification-required-australia/
+
+Xbox is now requiring gamers in Australia to verify their age to play 18+ content, sparking privacy concerns ahead of GTA 6.
+---------
+
+# Starz Renews Crime Thriller Spin-off for a Season 2 Before It Premieres
+
+TV News, S.W.A.T., S.W.A.T. Exiles
+
+Wed, 12 Aug 2026 09:34:16 GMT
+
+https://movieweb.com/swat-exiles-renewed-starz/
+
+'S.W.A.T. Exiles' has been renewed for Season 2 by Sony Pictures Television, five weeks ahead of its Starz premiere on Sept. 25.
+---------
+
 # Red Dead Redemption 2 Free Download Officially Available Now For Limited-Time
 
 Gaming, Red Dead Redemption 2
