@@ -1,3 +1,25 @@
+# Red Dead Redemption 2 Free Download Officially Available Now For Limited-Time
+
+Gaming, Red Dead Redemption 2
+
+Wed, 12 Aug 2026 08:04:44 GMT
+
+https://screenrant.com/red-dead-redemption-2-free-ps-plus-psa/
+
+Get Red Dead Redemption 2 free on PlayStation Plus Extra—limited time offer for open-world RPG fans!
+---------
+
+# Carrie Fisher's Divisive Slasher Remake Is Getting A New Release At The Perfect Time
+
+Movies, Masked Recs, Horror
+
+Wed, 12 Aug 2026 08:00:11 GMT
+
+https://screenrant.com/carrie-fisher-sorority-row-remake-4k-re-release-september-2026/
+
+Carrie Fisher's divisive slasher remake is getting a new release at the perfect time, as an unexpected development brings it back into focus.
+---------
+
 # Game Of Thrones: Honor Of The Old Gods Officially Arrives August 24
 
 Gaming, Game of Thrones, Game Of Thrones, Game of Thrones: Conquest, House of the Dragon, PC
