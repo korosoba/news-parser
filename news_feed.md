@@ -1,3 +1,267 @@
+# Mistborn Meets BioShock In Huge New Steampunk RPG
+
+Gaming, Mistborn, BioShock, BioShock Infinite, BioShock 2, PC, The Cosmere, Brandon Sanderson, Steam, Xbox Game Pass, Xbox, RPG, Clockwork Revolution
+
+Wed, 12 Aug 2026 12:51:02 GMT
+
+https://screenrant.com/mistborn-meets-bioshock-clockwork-revolution/
+
+Mistborn fans looking for something very Sanderson-esque will find a lot to love in this upcoming Steampunk RPG inspired by BioShock.
+---------
+
+# Hogwarts Legacy 2 Officially Announced By Warner Bros.
+
+Gaming, Hogwarts Legacy
+
+Wed, 12 Aug 2026 12:49:13 GMT
+
+https://screenrant.com/hogwarts-legacy-2-officially-announced/
+
+It's official: a sequel to the hit Harry Potter RPG is coming
+---------
+
+# Brandon Sanderson's Mistborn Official November 2026 Return Now Available To Pre-Order
+
+Gaming, Mistborn, Brandon Sanderson
+
+Wed, 12 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/brandon-sanderson-mistborn-legacy-pre-orders-november-2026/
+
+Mistborn is now one of the two most impactful releases in the Cosmere series, and it's about to get an entirely new iteration.
+---------
+
+# 40 Years Later, This Far Side Comic Is Still the Greatest Comic Strip of All Time
+
+Comics, The Far Side
+
+Wed, 12 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/far-side-best-comic-strip-all-time/
+
+Larson's mastery is indisputable.
+---------
+
+# A 10/10 PlayStation 2 Masterpiece From 2005 Is Now Free With PS Plus
+
+Gaming, PlayStation Plus, PlayStation 2, PC, TimeSplitters
+
+Wed, 12 Aug 2026 12:02:36 GMT
+
+https://screenrant.com/playstation-2-10-rated-2005-masterpiece-ps-plus/
+
+This PlayStation 2 game was an absolute masterpiece back in 2005, and it's now available to play entirely for free with PlayStation Plus.
+---------
+
+# Terminator Survivors Officially Replaces Sarah Connor
+
+Gaming, Terminator
+
+Wed, 12 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/terminator-survivors-sarah-connor-replacement/
+
+Sarah Connor is as important to the Terminator franchise as any character in any series, but she won't be in the latest release.
+---------
+
+# The X-Files' New R-Rated Movie Runtime Confirmed After Cutting OG Scenes
+
+Movies, The X-Files: I Want to Believe, The X-Files
+
+Wed, 12 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/the-x-files-i-want-to-believe-r-rated-cut-runtime-confirmed/
+
+Exclusive: Writer/director Chris Carter confirms The X-Files' new R-rated movie runtime as he explains why he cut certain original scenes.
+---------
+
+# Maika Monroe's It Follows 2 Gets Exciting New Filming Update After Major Delay (Exclusive)
+
+Movies, They Follow, It Follows, Horror, Maika Monroe
+
+Wed, 12 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/it-follows-2-they-follow-maika-monroe-filming-update-mitchell/
+
+Exclusive: Writer/director David Robert Mitchell offers an exciting new filming update on It Follows 2 after the Maika Monroe sequel was delayed.
+---------
+
+# CBS Forces FBI To Finally Make Maggie & OA’s Romance Happen In Season 9
+
+Network TV, FBI
+
+Wed, 12 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/fbi-season-9-maggie-oa-romance-happen-force-cbs/
+
+FBI needs to finally tackle the long-gestating romantic tension between Maggie and OA in season 9 in light of its long-term future on CBS.
+---------
+
+# Spider-Man: Brand New Day’s New Box Office Record Proves It’s The Reset The MCU Needed
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Wed, 12 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-new-box-office-record-mcu-reset/
+
+The newest box office heights Spider-Man: Brand New Day has reached cement its status as exactly what the MCU needed at this point in its run.
+---------
+
+# Absolute Batman's Official First Joker Confrontation Revealed
+
+Comics, Absolute Batman
+
+Wed, 12 Aug 2026 12:43:22 GMT
+
+https://www.cbr.com/absolute-batman-21-review-joker-batman-first-confrontation/
+
+In a CBR review of Absolute Batman #21, see the shocking first confrontation between Absolute Batman and Absolute Joker
+---------
+
+# Tom Hanks' $50M Saving Private Ryan Replacement Surges on Streaming Again Ahead of Sequel
+
+Movies, Greyhound, Tom Hanks, Apple TV
+
+Wed, 12 Aug 2026 12:00:15 GMT
+
+https://www.cbr.com/greyhound-tom-hanks-streaming-success-apple-tv-august-2026/
+
+Twenty-eight years after Saving Private Ryan, this Tom Hanks-led replacement film is surging on streaming.
+---------
+
+# Overwatch Officially Launches a Free New Series
+
+Comics, Overwatch
+
+Wed, 12 Aug 2026 12:00:15 GMT
+
+https://www.cbr.com/overwatch-vol-2-comics-youtube-streaming/
+
+Overwatch has released an eight-part animated comic series that is available for free.
+---------
+
+# Apple TV's 8-Episode Noir Gem Is Streaming's Undisputed Mystery TV Masterpiece
+
+TV, Sugar, Innovation, Apple TV, Crime
+
+Wed, 12 Aug 2026 12:00:15 GMT
+
+https://www.cbr.com/apple-tv-sugar-undisputed-mystery-tv-masterpiece/
+
+Sugar is an unusual streaming show that keeps audiences on their toes and is proving to be one of Apple TV's best.
+---------
+
+# Netflix's 10/10 Sci-Fi Masterpiece Series Officially Returns This Year
+
+TV News, Netflix, 3 Body Problem, Eiza Gonzalez, Liam Cunningham
+
+Wed, 12 Aug 2026 12:30:15 GMT
+
+https://collider.com/netflix-sci-fi-3-body-problem-release-date-2026/
+
+Netflix's sci-fi masterpiece, The 3 Body Problem, is poised to debut Season 2 later this year on the streamer.
+---------
+
+# Netflix's 8-Part Sci-Fi Series Officially Dominated 2026 With 188M Hours Watched
+
+TV Features, Netflix, The WONDERfools, Sci-Fi, Superhero
+
+Wed, 12 Aug 2026 12:24:15 GMT
+
+https://collider.com/netflix-sci-fi-series-the-wonderfools-188-million-hours/
+
+In the first six months of 2026, Netflix’s new sci-fi series The WONDERfools garnered a whopping 188 million hours viewed and 20 million viewers.
+---------
+
+# 'The Dark Knight's Greatest Line Wasn’t Written by Christopher Nolan, and It Still Bothers Him
+
+Movie Features, The Dark Knight, Christopher Nolan, Jonathan Nolan, Aaron Eckhart
+
+Wed, 12 Aug 2026 12:20:15 GMT
+
+https://collider.com/the-dark-knight-most-famous-line-christopher-nolan-harvey-dent-two-face/
+
+Christopher Nolan said he is "plagued" by the fact that he didn't write one of The Dark Knight's most famous lines.
+---------
+
+# 'Heated Rivalry' Author Officially Breaks Silence on Season 2 Casting Backlash
+
+TV News, Heated Rivalry, HBO Max, Hudson Williams, Streaming
+
+Wed, 12 Aug 2026 12:00:15 GMT
+
+https://collider.com/heated-rivalry-season-2-casting-backlash-author-rachel-reid/
+
+Heated Rivalry author Rachel Reid has defended Season 2's newest casting additions amid online backlash. Read on for more.
+---------
+
+# 10 Best Sci-Fi Books of the 2000s
+
+Books and Comics, Books, Sci-Fi, Three-Body Problem, Cloud Atlas
+
+Wed, 12 Aug 2026 11:51:14 GMT
+
+https://collider.com/best-sci-fi-books-2000s-ranked/
+
+Never Let Me Go by Kazuo Ishiguro, Cloud Atlas by David Mitchell, and The Three-Body Problem by Liu Cixin are among the best 2000s sci-fi books.
+---------
+
+# ‘The Americans’ Meets ‘The Expanse’ in Disney’s 2-Part Thrilling War Series
+
+TV Features, Andor, Star Wars, Tony Gilroy, Diego Luna
+
+Wed, 12 Aug 2026 11:49:15 GMT
+
+https://collider.com/andor-star-wars-series-the-americans-expanse/
+
+Andor elevates Star Wars with its mature themes and complex characters, making it a perfect series for those who love The Americans and The Expanse.
+---------
+
+# 'House of the Dragon's Final Season Needs To Address These 9 Important Mysteries
+
+TV, House of the Dragon, Game Of Thrones, HBO, Fantasy
+
+Wed, 12 Aug 2026 11:41:15 GMT
+
+https://collider.com/house-of-the-dragon-season-4-mysteries/
+
+As the dust settles on House of the Dragon Season 3, there are some pressing issues that need to be addressed in the final season of the HBO series.
+---------
+
+# Jason Statham Meets 'John Wick' in Chaotic Trailer for Unique New Action Thriller
+
+Movie News, Action, Thriller, John Hannah, Jason Statham, John Wick
+
+Wed, 12 Aug 2026 12:31:12 GMT
+
+https://movieweb.com/bad-day-office-trailer-action-thriller/
+
+The Stath meets Wick meets video games in this new POV action thriller that puts you squarely in the driving seat.
+---------
+
+# Netflix’s Must-See ‘John Wick’ Replacement Is One of Streaming’s Biggest Hits
+
+Movie News, The Debt Collector, Netflix, Hot on Streaming, Action
+
+Wed, 12 Aug 2026 12:00:12 GMT
+
+https://movieweb.com/the-debt-collector-action-stream-netflix-tudum/
+
+"You think you're John Wick?" - Literally a line from the movie.
+---------
+
+# Steven Spielberg’s Underrated Sci-Fi Thriller Remains a Flawless Binge-Watchimage
+
+Features, Sci-Fi, Falling Skies, Steven Spielberg
+
+Wed, 12 Aug 2026 12:00:12 GMT
+
+https://movieweb.com/falling-skies-sci-fi-thriller-binge-watch/
+
+Steven Spielberg produced a sci-fi thriller TV series that is still an impressive show that many will enjoy binge-watching.
+---------
+
 # Halo: Ghosts Of Onyx Officially Arrives November 2026
 
 Gaming, Halo
