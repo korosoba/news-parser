@@ -1,3 +1,267 @@
+# I'll Say It: James Gunn's DCU Wonder Woman Casting Is More Exciting Than The Next Batman
+
+Streaming TV, DC Universe
+
+Wed, 12 Aug 2026 23:30:11 GMT
+
+https://screenrant.com/dcu-wonder-woman-casting-more-exciting-than-batman/
+
+The DCU will inevitably have a Batman front and center, but I'm more excited for Wonder Woman to take the spotlight for a number of reasons.
+---------
+
+# Reacher Season 4, Episode 3 Ending Explained: Why Sampson's Chief Of Staff Does THAT
+
+Streaming TV, Reacher
+
+Wed, 12 Aug 2026 23:15:11 GMT
+
+https://screenrant.com/reacher-season-4-episode-3-ending-explained-nolan-cahill-death/
+
+Reacher season 4, episode 3 ends with a shock that even disturbs Reacher, revealing that one of the show's main characters may have a secret.
+---------
+
+# Nathan Fillion’s The Rookie Gets Epic Remake In New Fan Film
+
+Network TV, The Rookie
+
+Wed, 12 Aug 2026 23:02:35 GMT
+
+https://screenrant.com/the-rookie-show-season-5-lego-art/
+
+Watch an iconic scene from season 5 of The Rookie, reimagined in an animated Lego format by fan Trevor Carlee for an epic remake.
+---------
+
+# The 20 Earliest Reality TV Shows, In Chronological Order
+
+Reality TV
+
+Wed, 12 Aug 2026 22:45:12 GMT
+
+https://screenrant.com/earliest-reality-tv-shows-chronological-order/
+
+From the early days of Candid Camera and MTV's The Real World, here are 10 of the earliest reality TV shows to debut, listed in chronological order.
+---------
+
+# HBO's 10/10 War Drama From 25 Years Ago Makes Band Of Brothers' Best Episode Even Better
+
+Classic TV, Masked Recs
+
+Wed, 12 Aug 2026 22:45:11 GMT
+
+https://screenrant.com/band-of-brothers-best-episode-hbo-conspiracy-film/
+
+There is a war drama on HBO that was made 25 years ago, and it makes the best episode of Band of Brothers even better with its insights.
+---------
+
+# Taylor Sheridan's 121-Minute Action Thriller Masterpiece Keeps Dominating HBO Max Charts
+
+Movies
+
+Wed, 12 Aug 2026 23:28:28 GMT
+
+https://www.cbr.com/sicario-action-thriller-success-hbo-max-august-2026/
+
+One of Taylor Sheridan's earliest hits is dominating the HBO Max charts, and remains one of the biggest action movies of the generation.
+---------
+
+# Jenna Ortega Teases Mysterious Character in J.J. Abrams' Fantasy Film: 'A Freak in a Different Way'
+
+Movies, The Great Beyond, Wednesday
+
+Wed, 12 Aug 2026 23:21:08 GMT
+
+https://www.cbr.com/the-great-beyond-jenna-ortega-character-jj-abrams/
+
+Jenna Ortega opens up about her role in J.J. Abrams' upcoming fantasy epic The Great Beyond, promising audiences "a freak" who isn't Wednesday Addams.
+---------
+
+# Naruto Team 7 LEGO Set Achieves Major Milestone
+
+Anime, Naruto, LEGO
+
+Wed, 12 Aug 2026 23:20:14 GMT
+
+https://www.cbr.com/naruto-team-7-lego-brickheadz-milestone-update/
+
+A fan-favorite Naruto Team 7 LEGO Set design just crossed one of the most important milestones in the entire LEGO Ideas program.
+---------
+
+# Wednesday Season 3’s Time Jump & Release Window Confirmed by Jenna Ortega
+
+TV, Wednesday, Netflix, Fantasy
+
+Wed, 12 Aug 2026 23:15:41 GMT
+
+https://www.cbr.com/wednesday-season-3-time-jump-release-window-jenna-ortega/
+
+Wednesday Season 3 is coming in 2027.
+---------
+
+# Ted Lasso Season 5 Fate Teased By Apple TV Exec After Revival
+
+TV, Ted Lasso, Apple TV, Comedy
+
+Wed, 12 Aug 2026 23:11:33 GMT
+
+https://www.cbr.com/ted-lasso-season-5-fate-teased-by-apple-tv-exec-after-revival/
+
+One of Apple TV's top executives just teased the future of Ted Lasso following the overwhelming success of the series' surprise return.
+---------
+
+# Stanley Kubrick Hailed This 37-Year-Old Miniseries As 'The Best TV Show of All Time'
+
+TV, Dekalog, Stanley Kubrick, Drama
+
+Wed, 12 Aug 2026 23:00:15 GMT
+
+https://www.cbr.com/stanley-kubrick-praised-dekalog-miniseries/
+
+The legendary Stanley Kubrick created some of the greatest movies of all time, but when it comes to TV, this 1989 miniseries was his favorite.
+---------
+
+# These 6 Villains Would Make a Perfect Sinister Six for Tom Holland's Spider-Man
+
+Movies, Spider-Man, MCU, Sinister Six
+
+Wed, 12 Aug 2026 23:00:15 GMT
+
+https://www.cbr.com/spider-man-mcu-sinister-six-villains-ranked-list/
+
+The MCU may be building up to the first live-action Sinister Six--and these villains would make a perfect team to defeat Tom Holland's Spider-Man.
+---------
+
+# Star Wars Meets Final Fantasy Tactics in Zero Company
+
+Games, Star Wars
+
+Wed, 12 Aug 2026 23:00:15 GMT
+
+https://www.cbr.com/star-wars-meets-final-fantasy-tactics-zero-company-preview/
+
+The legends behind the XCOM franchise are back and they're making the most ambitious Star Wars game to date.
+---------
+
+# Marvel's #1 TV Series Just Brought Its Biggest Fan Theory To Life
+
+TV Features, X-Men '97, Avengers: Doomsday, X-Men: The Animated Series, Disney Plus
+
+Wed, 12 Aug 2026 23:27:14 GMT
+
+https://collider.com/x-men-97-season-2-finale-mystique-fan-theory-explained/
+
+X-Men '97 brings back an iconic foe for its Season 2 finale, and in the process confirms a long-running fan theory.
+---------
+
+# 'God of War's TV Adaptation Has To Get This One Thing About Kratos Right
+
+TV Features, God of War, Prime Video, Ronald D. Moore, Video Game
+
+Wed, 12 Aug 2026 23:24:14 GMT
+
+https://collider.com/god-of-war-tv-adaptation-kratos-history-greek-gods/
+
+God of War is getting an official TV adaptation, but in order to honor Kratos' past, the show must explore his Greek history.
+---------
+
+# 10 Best Turn-Based RPGs of All Time
+
+Video Games, Video Game, Persona 5, Pokémon, Final Fantasy
+
+Wed, 12 Aug 2026 23:21:14 GMT
+
+https://collider.com/best-turn-based-rpg-games-ranked/
+
+Baldur's Gate 3, Chrono Trigger, and Final Fantasy X are among the best turn-based RPG video games of all time.
+---------
+
+# 'Hogwarts Legacy 2' Officially Confirmed Ahead of HBO's 'Harry Potter' Reboot
+
+Gaming News, Hogwarts Legacy, Harry Potter, Warner Bros., Fantasy
+
+Wed, 12 Aug 2026 23:08:04 GMT
+
+https://collider.com/hogwarts-legacy-2-confirmed/
+
+Warner Bros. has confirmed that Hogwarts Legacy, the smash-hit Harry Potter prequel game, is officially getting a sequel. Read on for more.
+---------
+
+# Disney’s Next Big ‘Star Wars’ Story Could Bring Back One of Its Most Legendary Characters
+
+TV Features, Obi-Wan Kenobi, Ewan McGregor, Star Wars, Disney+
+
+Wed, 12 Aug 2026 22:57:14 GMT
+
+https://collider.com/disney-star-wars-bring-back-legendary-characters-obi-wan/
+
+Ewan McGregor is eager to reprise the role of Obi-Wan Kenobi. A second season of his series could be a hit, or he could fit into another production.
+---------
+
+# The Best Rock Album From Every Year of the 2000s
+
+Music Features, Music, Rock, 2000s, Radiohead
+
+Wed, 12 Aug 2026 22:44:14 GMT
+
+https://collider.com/best-rock-albums-2000s-every-year/
+
+When discussing the best rock albums from every year of the 2000s, timeless classics like Radiohead's Kid A and Vampire Weekend's debut will come up.
+---------
+
+# 'Obi-Wan Kenobi's Ewan McGregor Is Pushing Disney to Let Him Return to 'Star Wars'
+
+TV News, Obi-Wan Kenobi, Ewan McGregor
+
+Wed, 12 Aug 2026 23:18:08 GMT
+
+https://movieweb.com/ewan-mcgregor-star-wars-return-demand-obi-wan-kenobi/
+
+The legendary 'Star Wars' actor sees a potential future in the franchise for his character.
+---------
+
+# Every Marvel Comic Panel 'Spider-Man: Brand New Day' Recreates Shot for Shot
+
+Movie Lists, Spider-Man, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Wed, 12 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-marvel-comic-panels/
+
+'Spider-Man: Brand New Day paid tribute to the character's history by lovingly recreating famous comic book panels.
+---------
+
+# Forget 'MobLand,' Pierce Brosnan's 90-Minute Netflix Action Thriller Is Streaming Smash Hit
+
+Movie News, Pierce Brosnan, Fast Charlie, Hot on Streaming, Netflix, Action, Thriller
+
+Wed, 12 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/fast-charlie-netflix-streaming-hit-august-2026/
+
+This is Guy Ritchie meets James Bond in the American South. Do you need anything else?
+---------
+
+# Michael B. Jordan's 'Miami Vice' Adds the Most Underrated 'Star Wars' Actor
+
+Movie News, Miami Vice
+
+Wed, 12 Aug 2026 22:50:34 GMT
+
+https://movieweb.com/michael-b-jordan-miami-vice-reboot-alden-ehrenreich/
+
+Universal’s 'Miami Vice' reboot was already stacked, but Alden Ehrenreich gives it a fresh jolt of interest.
+---------
+
+# Dafne Keen Confirms Interest in Reprising X-23 Role in the MCU
+
+Movie News, Dafne Keen, X-Men
+
+Wed, 12 Aug 2026 22:38:04 GMT
+
+https://movieweb.com/dafne-keen-x-23-mcu-future/
+
+Dafne Keen, best known for her two appearances as Marvel's X-23, has her sights set on continuing her work in the MCU.
+---------
+
 # Spider-Man: Brand New Day's Two Best Quotes Explain Why It's The Best Peter Parker Movie Yet
 
 Superheroes, Marvel Cinematic Universe, Spider-Man, Spider-Man: Brand New Day
