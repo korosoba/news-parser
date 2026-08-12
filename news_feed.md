@@ -1,3 +1,311 @@
+# Netflix's 2025 Fantasy Hit Has A Successor Coming With Possibly Its Biggest Star In Tow
+
+Anime, Netflix, K-Drama
+
+Wed, 12 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/netflix-bon-appetit-your-majesty-successor-cha-eun-woo/
+
+One of the most popular fantasy K-dramas of 2025 has a spiritual successor on the way featuring one of Netflix's biggest recent stars.
+---------
+
+# Lioness' Potential Crossovers With Other Taylor Sheridan Series Addressed By Star
+
+TV, Lioness, Taylor Sheridan, Michael Kelly
+
+Wed, 12 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/lioness-taylor-sheridan-series-crossovers-chances-michael-kelly/
+
+EXCLUSIVE: While several of Taylor Sheridan’s shows are in the same universe, Lioness is not. One cast member wants that to change in the future.
+---------
+
+# The Sci-Fi Event Of The Decade Is Happening Very Soon
+
+Movies, Avengers: Doomsday, Dune: Part Three
+
+Wed, 12 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/sci-fi-event-decade-avengers-doomsday-dune-3/
+
+Could December 18, 2026 be the biggest sci-fi movie day in years? Avengers: Doomsday and Dune: Part Three are about to find out.
+---------
+
+# Ben Affleck's Next Netflix Movie Revealed In First Trailer After The Rip's 4.4 Billion Minute Success
+
+Movies, Ben Affleck
+
+Wed, 12 Aug 2026 13:48:24 GMT
+
+https://screenrant.com/ben-affleck-animals-movie-trailer-netflix/
+
+After starring in The Rip earlier this year, Ben Affleck is back at Netflix for a new thriller, and the teaser trailer has just been revealed.
+---------
+
+# Shrek Spinoff Series’ Return After $1 Billion Box Office Conquest Gets Optimistic Update
+
+Movies, Puss in Boots: The Last Wish, Shrek
+
+Wed, 12 Aug 2026 13:46:54 GMT
+
+https://screenrant.com/shrek-puss-in-boots-3-update-optimistic-mercado-crawford/
+
+The return of a Shrek spinoff series after its $1 billion box office conquest has earned an optimistic update from one of its directors.
+---------
+
+# Spider-Man's New MJ Design Is A Gift To Marvel Cosplayers
+
+Marvel Comics, Spider-Man
+
+Wed, 12 Aug 2026 13:45:34 GMT
+
+https://screenrant.com/spider-man-mj-watson-redesign-realmguard/
+
+Marvel cosplayers have a new Spider-Man-themed costume to replicate, as Mary Jane debuts a brand-new superhero identity alongside Peter Parker.
+---------
+
+# JJ Abrams' 100+ Episode Thriller Series Has Aged Surprisingly Well For Its Genre
+
+Classic TV, Masked Recs
+
+Wed, 12 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/alias-jj-abrams-aged-well-spy-thriller/
+
+J.J. Abrams made a 105-episode thriller series in the early 2000s, and despite the spy genre being a constantly changing one, the show still holds up.
+---------
+
+# 7 Best Time Travel Movies Of The 1980s, Ranked
+
+Movies
+
+Wed, 12 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/best-time-travel-movies-1980s-ranked/
+
+Time travel was one of the most popular sci-fi concepts in 1980s cinema, and these seven films are the best of the decade.
+---------
+
+# It's Official: Marvel Just Confirmed a Major Avengers Death
+
+Comics, The Avengers
+
+Wed, 12 Aug 2026 13:27:32 GMT
+
+https://screenrant.com/avengers-new-hero-death-spider-man/
+
+One of Earth's Mightiest Heroes will fall...
+---------
+
+# 5 Masterpiece Dark Shonen Anime Better Than Jujutsu Kaisen
+
+Anime, Jujutsu Kaisen
+
+Wed, 12 Aug 2026 14:15:15 GMT
+
+https://www.cbr.com/masterpiece-dark-shonen-anime-better-than-jujutsu-kaisen/
+
+Jujutsu Kaisen is a remarkable dark shonen anime, but it is not one of the best of the genre.
+---------
+
+# Netflix’s 4-Season Crime Anthology Returns With Bloody New Trailer
+
+TV, Monster: The Ed Gein Story
+
+Wed, 12 Aug 2026 14:09:22 GMT
+
+https://www.cbr.com/netflix-monster-season-4-trailer/
+
+Netflix's controversial crime anthology series is coming back with a brand-new season, and its blood-soaked trailer is absolutely dripping in tension.
+---------
+
+# Tommy Lee Jones' Panned 'Rambo Rehash' Fights Back as a Paramount+ Hit 23 Years Later
+
+Movies, The Hunted
+
+Wed, 12 Aug 2026 14:00:15 GMT
+
+https://www.cbr.com/tommy-lee-jones-the-hunted-paramount-streaming-success-august-2026/
+
+Tommy Lee Jones starred in this box office bomb that critics hated, but audiences are finally rediscovering it more than 20 years later.
+---------
+
+# DC's Absolute Batman Confirms Dick Grayson As The Worst Robin
+
+Comics, Absolute Batman, Batman, Robin
+
+Wed, 12 Aug 2026 14:00:15 GMT
+
+https://www.cbr.com/absolute-batman-23-dick-grayson-lowest-rated-robin/
+
+The least popular Robin according to this DC series may surprise you.
+---------
+
+# 5 Isaac Asimov Books Better Than Foundation
+
+TV, Foundation, Sci-Fi, Apple TV
+
+Wed, 12 Aug 2026 14:00:15 GMT
+
+https://www.cbr.com/isaac-asimov-books-better-than-foundation-list/
+
+Isaac Asimov's science fiction remains relevant to this day, featuring stories that continue to stand out decades after their original publication.
+---------
+
+# Peacock's Friday the 13th Prequel Creator Teases Satisfying 'Series of Kills' After Major Canon Change
+
+TV, Crystal Lake, Friday The 13th
+
+Wed, 12 Aug 2026 13:46:58 GMT
+
+https://www.cbr.com/peacock-friday-the-13th-prequel-creator-satisfying-kills-canon-change/
+
+The new Friday the 13th prequel series starring Linda Cardellini won't be holding back when it comes to its thrills and chills.
+---------
+
+# Ben Affleck's New Netflix Thriller Confirms Release Date After The Rip Success
+
+Movies, Ben Affleck, Netflix
+
+Wed, 12 Aug 2026 13:17:17 GMT
+
+https://www.cbr.com/ben-affleck-netflix-thriller-animals-release-date-first-look/
+
+Ben Affleck reunites with Netflix for a new political thriller, and the streamer just dropped a first look and its release date.
+---------
+
+# One Vegeta Line Remains the Greatest Quote in Dragon Ball History
+
+Anime, Dragon Ball, Dragon Ball Z, Dragon Ball Super
+
+Wed, 12 Aug 2026 13:15:15 GMT
+
+https://www.cbr.com/dragon-ball-vegeta-best-quote/
+
+Vegeta has always been one of the best characters in Dragon Ball, and this quote perfectly encapsulates the absolute peak of his character arc.
+---------
+
+# Animals   Official Teaser
+
+Movies, Animals (2025)
+
+Wed, 12 Aug 2026 13:13:07 GMT
+
+https://www.cbr.com/video/animals-official-teaser/
+
+Netflix unveils the official teaser for Animals
+---------
+
+# Spider-Man: Brand New Day Proves Superhero Fatigue Is a Myth
+
+Movies, Spider-Man: Brand New Day, MCU, marvel studios
+
+Wed, 12 Aug 2026 13:01:15 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-superhero-fatigue-myth/
+
+Spider-Man: Brand New Day's success proves that "superhero fatigue" is really something else entirely.
+---------
+
+# 'Yellowstone's Josh Holloway Officially Debuts Gritty New Western With First Trailer [Exclusive]
+
+Movie News, Western, Josh Holloway, Sarah Gadon, Mike Vogel
+
+Wed, 12 Aug 2026 14:01:15 GMT
+
+https://collider.com/josh-holloway-new-western-flint-trailer/
+
+Watch Josh Holloway return to the Old West in the official trailer for Flint, a new adaptation of Louis L’Amour’s classic Western novel.
+---------
+
+# Spider-Man Is Officially Not Marvel’s Strongest Web-Slinger Anymore
+
+Books and Comics News, Marvel Comics, Spider-Man, Superhero, Spider-Verse
+
+Wed, 12 Aug 2026 13:30:15 GMT
+
+https://collider.com/amazing-spider-man-spider-versity-5-spider-girl-new-form-marvel-comics/
+
+Marvel's fifth and final issue of The Amazing Spider-Man: Spider-Versity gives Spider-Girl a fearsome new transformation to rival Red Goblin.
+---------
+
+# Ben Affleck's New Netflix Crime Thriller Officially Sets Theatrical Release Date
+
+Movie News, Animals (2025), Ben Affleck, The Rip, Netflix
+
+Wed, 12 Aug 2026 13:25:56 GMT
+
+https://collider.com/ben-affleck-animals-theatrical-release-date-netflix/
+
+Ben Affleck's new Netflix crime thriller with Kerry Washington has officially set a theatrical release date with its first trailer.
+---------
+
+# New 'X-Men '97' Release Officially Fixes One of Season 2's Biggest Mistakes
+
+Books and Comics News, X-Men '97, Marvel Animation, Marvel Comics, Brad Winderbaum
+
+Wed, 12 Aug 2026 13:16:15 GMT
+
+https://collider.com/x-men-97-season-2-comic-opal-of-ozymandias-apocalpyse-flashbacks/
+
+An official new release for X-Men '97 Season 2 shines a light on the Opal of Ozymandias, changing everything we know about Apocalypse.
+---------
+
+# Inside the Canceled ‘Friday the 13th’ Reboot That Got Pulled Weeks Before Filming
+
+Exclusives, SDCC, Brad Fuller, Simon Kinberg, Andrew Form
+
+Wed, 12 Aug 2026 13:11:15 GMT
+
+https://collider.com/friday-the-13th-cancelled-movie-brad-fuller-andrew-form-interview/
+
+Producers Brad Fuller, Andrew Form, and Simon Kinberg chat with Collider about some of their biggest films, including X-Men, The Martian, and more.
+---------
+
+# Marvel Officially Confirms Kingpin Is Returning to Get Revenge on The Punisher
+
+Books and Comics News, Marvel Comics, Punisher, Daredevil, Superhero
+
+Wed, 12 Aug 2026 13:00:15 GMT
+
+https://collider.com/the-punisher-issue-7-kingpin-return-revenge-frank-castle/
+
+The latest issue of The Punisher reveals the return of The Kingpin, setting the stage for his next clash with Frank Castle. Here's what we know.
+---------
+
+# Netflix's New 112-Minute Sci-Fi Thriller Scores Big With Nearly 28M Views
+
+Movie News, The Last House, Hot on Streaming, Sci-Fi, Horror, Netflix
+
+Wed, 12 Aug 2026 14:01:12 GMT
+
+https://movieweb.com/the-last-house-sci-fi-thriller-horror-netflix-streaming-hit-august-2026/
+
+Netflix's newest sci-fi thriller that mixes Stephen King and H.P. Lovecraft has officially become a global smash on streaming.
+---------
+
+# 'X-Men '97's Post-Credits Scene Finally Confirms a 2-Year Fan Theory With a Twist
+
+Features, X-Men '97
+
+Wed, 12 Aug 2026 14:01:12 GMT
+
+https://movieweb.com/x-men-97-season-2-ending-post-credits-explained/
+
+'X-Men: 97' Season 2 just ended on Disney+, and the Marvel TV show features the voices of Jennifer Hale and Ray Chase.
+---------
+
+# 'Reacher' Season 4 Breaks a Surprising Record for the Alan Ritchson's Prime Video Series
+
+Features, Reacher, Alan Ritchson
+
+Wed, 12 Aug 2026 13:00:12 GMT
+
+https://movieweb.com/reacher-season-4-love-interest-record/
+
+Jack Reacher has no shortage of love interests in the Amazon series so far, but the latest woman he's fallen for could be very bad news. Read on.
+---------
+
 # Mistborn Meets BioShock In Huge New Steampunk RPG
 
 Gaming, Mistborn, BioShock, BioShock Infinite, BioShock 2, PC, The Cosmere, Brandon Sanderson, Steam, Xbox Game Pass, Xbox, RPG, Clockwork Revolution
