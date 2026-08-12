@@ -1,3 +1,344 @@
+# Alan Ritchson’s Reacher Officially Returns On Prime Video The Same Day Season 4 Ends
+
+Streaming TV, Reacher, Reacher - Season 4, Neagley
+
+Wed, 12 Aug 2026 19:30:11 GMT
+
+https://screenrant.com/alan-ritchson-jack-reacher-neagley-spin-off-return/
+
+The same day Reacher season 4 ends its run, Alan Ritchson’s Jack Reacher will return to the small screen in a whole new spin-off show on Prime Video.
+---------
+
+# The End Of Oak Street Can Finally Start A New Era For Dinosaur Movies
+
+Movies, The End of Oak Street
+
+Wed, 12 Aug 2026 19:20:11 GMT
+
+https://screenrant.com/the-end-of-oak-street-dinosaur-movies-new-era-jurassic-park/
+
+Dinosaurs are strangely underused in movies. There could be many reasons for this, though The End of Oak Street may just rejuvenate interest.
+---------
+
+# The 10 Highest-Rated Law & Order: SVU Episodes (So Far)
+
+Network TV, Law & Order: Special Victims Unit
+
+Wed, 12 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/law-and-order-svu-highest-rated-episodes/
+
+Nearly 600 episodes of Law & Order: SVU have aired on NBC after 27 seasons, but there are ten that have been rated the highest since 1999.
+---------
+
+# How Green Day Pulled From Their Touring Memories For New Coming-Of-Age Classic Nimrods
+
+Exclusive, Nimrods, Green Day
+
+Wed, 12 Aug 2026 18:53:57 GMT
+
+https://screenrant.com/nimrods-green-day-biopic-homage-interview/
+
+Green Day's Billie Joe Armstrong, Mike Dirnt, and Tré Cool explain how their new movie Nimrods mixes fact with fiction for a music-filled spectacular.
+---------
+
+# Nathan Fillion’s Green Lantern Confirmed For New DC Series After HBO’s Lanterns
+
+TV, DC Universe, Lanterns
+
+Wed, 12 Aug 2026 18:52:05 GMT
+
+https://screenrant.com/nathan-fillion-mister-miracle-series-guy-gardner-casting-confirmed/
+
+Nathan Fillion's Green Lantern is set to return in HBO's Lanterns series after debuting in Superman, but he has now been confirmed for another show.
+---------
+
+# Kurt Russell Broke Career Rule For New Crime Thriller With Major The Godfather Comparison
+
+Movies, The Rivals of Amziah King, Kurt Russell
+
+Wed, 12 Aug 2026 18:46:10 GMT
+
+https://screenrant.com/rivals-of-amziah-king-kurt-russell-career-rule-godfather-comparison/
+
+Exclusive: In an interview with ScreenRant's Liam Crowley, Kurt Russell describes reshaping his summer plans around a new exciting crime thriller.
+---------
+
+# Green Lantern Lore Officially Introduces Permanent New Lantern Color: All Details
+
+DC Comics, Green Lantern
+
+Wed, 12 Aug 2026 18:45:15 GMT
+
+https://screenrant.com/green-lantern-new-color-explained/
+
+DC's new Lantern color gets its own Corps, costume, and oath, with multiple famous ring wearers swearing loyalty to its pure source of power.
+---------
+
+# Yellowstone Star’s Gritty New Western Revealed In Trailer For 66-Year-Old Book Adaptation
+
+Movies, Flint, Western
+
+Wed, 12 Aug 2026 18:35:41 GMT
+
+https://screenrant.com/flint-movie-trailer-yellowstone-josh-holloway-western-return/
+
+A gritty new Western drama adapted from a classic book, and headlined by a star of Yellowstone who makes his Montana return, gets a haunting trailer.
+---------
+
+# NYT Connections Solution And Hints For August 12, 2026
+
+Gaming, Connections, Mobile
+
+Wed, 12 Aug 2026 18:31:34 GMT
+
+https://screenrant.com/nyt-connections-solution-answer-hints-august-12-2026/
+
+There are layers of red herrings in today's puzzle, with many terms trying to play on your instincts while hiding the proper Connections clues.
+---------
+
+# Reacher Season 4 Cast & Character Guide: All New Actors Explained
+
+Streaming TV, Reacher
+
+Wed, 12 Aug 2026 18:30:11 GMT
+
+https://screenrant.com/reacher-season-4-cast-character-guide/
+
+Alan Ritchson may be the face of Reacher, but the latest action-packed season features some well-known actors who you may also recognize.
+---------
+
+# 5 Classic NES Games That Are 100% Unplayable Today
+
+Games, Nintendo
+
+Wed, 12 Aug 2026 19:30:15 GMT
+
+https://www.cbr.com/unplayable-classic-nes-games-list/
+
+Many of the best games on the NES haven't stood the test of time.
+---------
+
+# Resident Evil Officially Returns With Leon S. Kennedy on September 29
+
+Anime, Resident Evil: Death Island, Resident Evil
+
+Wed, 12 Aug 2026 19:20:15 GMT
+
+https://www.cbr.com/resident-evil-death-island-titan-comics-trailer-release-date/
+
+One of the most underrated Resident Evil stories of all time is returning in a brand-new format, and Leon S. Kennedy is back in the spotlight for it.
+---------
+
+# Game of Thrones’ Kit Harington Returns in Trailer for 4-Part Adaptation of Classic Book
+
+TV, A Tale Of Two Cities, MGM+, Drama
+
+Wed, 12 Aug 2026 19:11:32 GMT
+
+https://www.cbr.com/a-tale-of-two-cities-trailer-mgm-plus-kit-harington/
+
+Game of Thrones' Jon Snow actor returns in an adaptation of a beloved book.
+---------
+
+# Netflix Is Officially Changing Ghostbusters' Rules for How Sequels Work
+
+TV, Ghostbusters, Ghostbusters: Night Shift, Netflix, Innovation
+
+Wed, 12 Aug 2026 19:06:15 GMT
+
+https://www.cbr.com/netflix-ghostbusters-night-shift-animated-horror/
+
+Ghostbusters' upcoming installment will take the franchise in a new direction as Netflix focuses on its original characters.
+---------
+
+# Taylor Sheridan's Hit Spy Series Is the #1 Streaming Series in the World
+
+TV, Lioness, Thriller, Paramount Plus
+
+Wed, 12 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/taylor-sheridan-lioness-spy-thriller-paramount-success-august-2026/
+
+Taylor Sheridan's spy thriller with a star-studded cast, Lioness, is a global streaming hit.
+---------
+
+# 9 Canadian Anime That Can Be Called Masterpieces, Ranked
+
+Anime, Invincible
+
+Wed, 12 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/canadian-anime-masterpieces-ranked-list/
+
+Canada has created amazing series that genuinely feel like anime, like Totally Spies! and Invincible.
+---------
+
+# 10 Star Wars Books Better Than the Movies
+
+Movies, Star Wars
+
+Wed, 12 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/star-wars-books-better-than-movies-list/
+
+While once there was the expanded universe, now Star Wars' canon continuity plays host to a beautiful range of incredible stories on the page.
+---------
+
+# J.J. Abrams’ New Dinosaur Movie Called Best Since Jurassic Park in Glowing Reviews
+
+Movies, The End of Oak Street
+
+Wed, 12 Aug 2026 18:46:50 GMT
+
+https://www.cbr.com/the-end-of-oak-street-dinosaur-movie-glowing-reviews/
+
+The new film produced by J.J. Abrams is being called the best dinosaur movie since Jurassic Park.
+---------
+
+# 5 Strongest Power Ups in Anime History, Ranked
+
+Anime, mecha, Dragon Ball, Naruto
+
+Wed, 12 Aug 2026 18:45:15 GMT
+
+https://www.cbr.com/strongest-power-ups-in-anime-history-ranked/
+
+The most iconic heroes in all of anime come equipped with some of the strongest power ups in fiction.
+---------
+
+# The Barbie Sequel Is in Danger at Warner Bros. as Crucial Deadline Looms
+
+Movies, Barbie
+
+Wed, 12 Aug 2026 18:35:12 GMT
+
+https://www.cbr.com/barbie-sequel-in-danger-at-warner-bros-as-crucial-deadline-looms/
+
+The worst possible news might be coming for Barbie.
+---------
+
+# 'Spider-Man: Brand New Day' Is Officially One of the Biggest Movies of All Time
+
+Movie News, Spider-Man: Brand New Day, Box Office, Tom Holland, Zendaya
+
+Wed, 12 Aug 2026 19:31:14 GMT
+
+https://collider.com/spider-man-brand-new-day-box-office-top-10-all-time-worldwide/
+
+Spider-Man: Brand New Day has broken into an elite box-office list in less than two weeks of release in theaters worldwide. Find out more.
+---------
+
+# DC Officially Confirms the Return of Nathan Fillion's Green Lantern in New Series
+
+TV News, Nathan Fillion, DC Comics, Superman, Lanterns
+
+Wed, 12 Aug 2026 19:19:58 GMT
+
+https://collider.com/nathan-fillion-green-lantern-return-mister-miracle/
+
+Ahead of the premiere of Lanterns, Nathan Fillion will officially reprise his role as Guy Gardner in a new DC spin-off series. Read on for more.
+---------
+
+# 9 Best Noir Video Games of All Time
+
+Video Games, Film Noir, Video Game, Gaming, Thriller
+
+Wed, 12 Aug 2026 19:19:15 GMT
+
+https://collider.com/best-noir-video-games-ranked/
+
+The Wolf Among Us, L.A. Noire, and Heavy Rain are all among the the very best noir video games ever made.
+---------
+
+# 'Ted Lasso's Best Season 4 Quote Signifies a Return to Form for Apple TV
+
+TV Features, Ted Lasso, Brett Goldstein, Jason Sudeikis, Juno Temple
+
+Wed, 12 Aug 2026 18:44:15 GMT
+
+https://collider.com/ted-lasso-season-4-quote-roy-keeley/
+
+Roy and Keeley reunite in a touching Ted Lasso moment that hints at more of a romantic future for the former couple.
+---------
+
+# 'Euphoria' Meets 'American Horror Story' in Disney+’s Newest Streaming Hit
+
+TV News, The Shards, Ryan Murphy, Disney+, Horror
+
+Wed, 12 Aug 2026 18:30:15 GMT
+
+https://collider.com/the-shards-disney-plus-august-2026-streaming-success/
+
+Barely a week since its release, FX's new show is a streaming hit despite negative reviews. Get all the details here.
+---------
+
+# Hulu's 'Tulsa King' Replacement Officially Confirms Season 2 Release Date
+
+TV News, The Lowdown, Ethan Hawke, Hulu, Tommy Lee Jones
+
+Wed, 12 Aug 2026 18:24:07 GMT
+
+https://collider.com/the-lowdown-season-2-release-date-first-look-hulu/
+
+Hulu's smash-hit Tulsa King rival, The Lowdown, has officially revealed the first images, plot details, and 2026 release date for Season 2.
+---------
+
+# 'Superman' Star Nathan Fillion Confirms DCU Series Return After HBO's 'Lan
+
+TV News, Nathan Fillion, DCU, Lanterns
+
+Wed, 12 Aug 2026 19:15:38 GMT
+
+https://movieweb.com/nathan-fillion-mister-miracle-animated-series/
+
+The 'Mister Miracle' animated series will feature Guy Gardner, making Nathan Fillion's Green Lantern the DCU character with the most appearances.
+---------
+
+# Kit Harington Leads First Trailer for Adaptation of 167-Year-Old Classic
+
+TV News, Kit Harington
+
+Wed, 12 Aug 2026 19:12:49 GMT
+
+https://movieweb.com/kit-harington-tale-of-two-cities-trailer/
+
+Kit Harington returns to period drama in Dickens' classic, premiering September 6 on MGM+.
+---------
+
+# The Funniest Cult Classic of All Time Remains Essential Viewing [Exclusive]
+
+Exclusives, Wet Hot American Summer, Netflix, Comedy, David Wain
+
+Wed, 12 Aug 2026 19:00:12 GMT
+
+https://movieweb.com/wet-hot-american-summer-david-wain-still-holds-up/
+
+From box-office flop to cult classic, the director is diving into new details and the potential for another entry as it celebrates 25 years.
+---------
+
+# Denzel Washington's New Netflix Movie Is an "Unconventional" Heist Thriller
+
+Movie News, Denzel Washington, Simon Kinberg
+
+Wed, 12 Aug 2026 18:49:57 GMT
+
+https://movieweb.com/simon-kinberg-heist-denzel-washington/
+
+Simon Kinberg confirmed the tone of Denzel Washington's Netflix heist movie 'Here Comes the Flood' at Comic-Con, and the title is not final.
+---------
+
+# Matt Damon's Sci-Fi Masterpiece Originally Had a Different Ending
+
+Movie News, The Martian, Matt Damon, Simon Kinberg
+
+Wed, 12 Aug 2026 18:39:33 GMT
+
+https://movieweb.com/the-martian-original-ending-matt-damon-speech-missing/
+
+Producer Simon Kinberg confirmed 'The Martian' nearly left out one of the movie's more memorable payoffs.
+---------
+
 # Ethan Hawke's The Lowdown Season 2 Lands Official Release Date
 
 TV, The Lowdown
