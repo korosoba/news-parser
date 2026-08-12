@@ -1,3 +1,135 @@
+# Halo: Ghosts Of Onyx Officially Arrives November 2026
+
+Gaming, Halo
+
+Wed, 12 Aug 2026 11:30:11 GMT
+
+https://screenrant.com/halo-ghosts-of-onyx-november-2026-rerelease/
+
+Halo is very much back in the public consciousness right now, and there's another release on the way that should further that.
+---------
+
+# Fallout: New California RPG Officially Confirmed, Fallout 5 Can Wait
+
+Gaming, Fallout
+
+Wed, 12 Aug 2026 11:00:11 GMT
+
+https://screenrant.com/fallout-new-california-rpg-setting-rulebook/
+
+There are a ton of new releases on the way around the wider Fallout franchise, including a very exciting update for the existing RPG.
+---------
+
+# Bruce Willis' Best Die Hard Replacement Officially Returns With Massive Upgrade In 2 Months
+
+Movies, Masked Recs
+
+Wed, 12 Aug 2026 11:00:11 GMT
+
+https://screenrant.com/bruce-willis-last-boy-scout-die-hard-replacement-4k-collectors-edition-october-2026/
+
+A Bruce Willis action classic that still stands as his best Die Hard replacement is about to get a massive upgrade in time for a major anniversary.
+---------
+
+# Zelda: Ocarina Of Time Remake Gameplay Splits Gamers
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Wed, 12 Aug 2026 10:56:34 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-gameplay-unreal-engine-5/
+
+With the new announcement from Nintendo, it's easy to forget that there are plenty of Ocarina of Time fan projects already on the way.
+---------
+
+# 10 Best Far Side Comics From the ’70s, Ranked
+
+Comics, The Far Side
+
+Wed, 12 Aug 2026 11:00:16 GMT
+
+https://www.cbr.com/best-far-side-comic-strips-1970s-ranked/
+
+While The Far Side officially debuted in 1980, Gary Larson's early work developed his skills into the master storyteller he would become.
+---------
+
+# 10 Greatest Film Noirs of the Last 80 Years
+
+Movie, Film Noir, No Country for Old Men, Sunset Boulevard, Chinatown
+
+Wed, 12 Aug 2026 11:37:15 GMT
+
+https://collider.com/best-film-noir-movies-last-80-years-ranked/
+
+From Old Hollywood classics like The Third Man to neo-noir gems like Chinatown, these film noirs embody the essence and excellence of the genre.
+---------
+
+# Star Wars Officially Cancels Another Movie
+
+Movie News, Paddington, Wonka, Sci-Fi, Star Wars
+
+Wed, 12 Aug 2026 11:31:15 GMT
+
+https://collider.com/star-wars-cancelled-movie-simon-farnaby-paul-king/
+
+Disney and Lucasfilm have officially scrapped another planned Star Wars movie, with the filmmakers now reworking the idea into a new sci-fi project.
+---------
+
+# Marvel Still Can't Figure Out How To Adapt the X-Men's Most Powerful Villain
+
+TV Features, X-Men '97, X-Men, X-Men: The Animated Series, Disney+
+
+Wed, 12 Aug 2026 11:27:14 GMT
+
+https://collider.com/x-men-97-season-2-finale-wastes-apocalypse-villain/
+
+X-Men '97 Season 2 ends in underwhelming fashion, mishandling one of the team's greatest villains in the process.
+---------
+
+# The 20 Greatest Crime Movies of All Time, Ranked According to IMDb
+
+Movie, Crime, The Godfather, The Dark Knight, Pulp Fiction
+
+Wed, 12 Aug 2026 11:16:14 GMT
+
+https://collider.com/best-crime-movies-all-time-ranked-imdb/
+
+IMDb users have chosen the must-see top crime movies through their ratings, from 1995’s Se7en to 1972’s The Godfather.
+---------
+
+# The Best WW2 Series of the 2020s Is Officially America’s Streaming Favorite
+
+TV News, SAS: Rogue Heroes, Steven Knight, Jack O'Connell, Peaky Blinders
+
+Wed, 12 Aug 2026 11:00:15 GMT
+
+https://collider.com/sas-rogue-heroes-ww2-series-streaming-success-mgm-plus-august-2026/
+
+Ahead of Season 3, the acclaimed WW2 series, SAS: Rogue Heroes, has become a streaming sensation in America. Here's all to know.
+---------
+
+# Christopher Nolan Reveals Key 'Star Wars' Easter Egg in 'The Odyssey'
+
+Movie News, The Odyssey, Star Wars, Christopher Nolan
+
+Wed, 12 Aug 2026 11:00:19 GMT
+
+https://movieweb.com/the-odyssey-star-wars-easter-egg/
+
+Christopher Nolan has revealed the 'Star Wars' Easter egg he planted in 'The Odyssey,' and why he paid tribute to George Lucas' sci-fi masterpiece.
+---------
+
+# 10 Best Book Trilogies Of All Time, Ranked
+
+TV Lists, Foundation, The Hunger Games
+
+Wed, 12 Aug 2026 11:00:12 GMT
+
+https://movieweb.com/best-book-trilogies/
+
+These are the best book trilogies that readers of fantasy and science-fiction will enjoy adding to their lists.
+---------
+
 # Marvel's Spider-Man 3 Teaser Surfaces Online
 
 Gaming, Marvel's Spider-Man 3, Marvel's Spider-Man
