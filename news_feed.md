@@ -1,3 +1,113 @@
+# Marvel's Spider-Man 3 Teaser Surfaces Online
+
+Gaming, Marvel's Spider-Man 3, Marvel's Spider-Man
+
+Wed, 12 Aug 2026 10:00:16 GMT
+
+https://screenrant.com/marvels-spider-man-3-imdb-listing/
+
+Marvel's Spider-Man 3 is definitely happening at some point, and a new teaser online might have confirmed some details about the game.
+---------
+
+# Pokémon Ruby & Sapphire Nintendo Switch Port Release Date Teased
+
+Gaming, Pokemon
+
+Wed, 12 Aug 2026 09:41:03 GMT
+
+https://screenrant.com/pokemon-ruby-sapphire-nintendo-switch-september-release-leak/
+
+Pokémon Ruby & Sapphire are still seen as two of the best games in the series, and we may have a release date for Switch versions.
+---------
+
+# Justin Hartley's 3-Word Tracker Quote Is 1 of the Coldest Lines in TV History
+
+TV, Tracker, CBS, Crime
+
+Wed, 12 Aug 2026 10:00:15 GMT
+
+https://www.cbr.com/tracker-justin-hartley-quote-coldest-tv-line-ever/
+
+Colter Shaw proves his mettle every week in Tracker, but three words in one compelling Season 3 episode solidify that he is one of TV's best.
+---------
+
+# Scarlett Johansson Is Officially Rebooting The Exorcist
+
+Movies, The Exorcist
+
+Wed, 12 Aug 2026 10:00:15 GMT
+
+https://www.cbr.com/scarlett-johansson-rebooting-exorcist/
+
+Scarlett Johansson and Mike Flanagan team up to launch The Exorcist franchise into a brand new era.
+---------
+
+# 10 Sci-Fi Video Game Masterpieces So Great They Became the Blueprint
+
+Gaming, Video Game, Star Wars: Knights of the Old Republic, Metroid, Half-Life
+
+Wed, 12 Aug 2026 10:38:14 GMT
+
+https://collider.com/sci-fi-video-game-masterpieces-became-blueprint/
+
+From Halo to Portal, these video game masterpieces were so influential and groundbreaking that they set a blueprint for every sci-fi game to follow.
+---------
+
+# 'House of the Dragon' Officially Sets New 2026 Release Following Explosive Season 3 Finale
+
+TV News, House of the Dragon, George R.R. Martin, A Knight Of The Seven Kingdoms, Game Of Thrones
+
+Wed, 12 Aug 2026 10:30:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-blu-ray-release-date-december-2026/
+
+HBO has officially announced a new release for House of the Dragon Season 3, which is set to launch globally in December 2026.
+---------
+
+# 'The X-Files' Meets 'True Detective' in Deborah Ann Woll's New Shudder Horror Thriller
+
+Exclusives, Deborah Ann Woll, SDCC, Shudder, The Cycle
+
+Wed, 12 Aug 2026 10:15:14 GMT
+
+https://collider.com/deborah-ann-woll-the-cycle-jordan-downey-daredevil-born-again-season-3/
+
+The Cycle star Deborah Ann Woll and director Jordan Downey talk their new Shudder horror film, Downey's upcoming sci-fi project, and Woll's Daredevil
+---------
+
+# Netflix’s Forgotten 10/10 Sci-Fi Series Officially Expands for Season 2
+
+TV News, The Eternaut, Netflix, Sci-Fi, Science Fiction
+
+Wed, 12 Aug 2026 10:00:14 GMT
+
+https://collider.com/netflix-sci-fi-the-eternaut-season-2-update/
+
+The Eternaut Season 2 is officially moving forward at Netflix, with the streamer teasing a much bigger story and the possibility of a third season.
+---------
+
+# Next James Bond Revealed "For Definite" as Casting for Amazon Reboot Reaches Final Stages
+
+Movie News, james bond, James Bond, Action, Slow Horses
+
+Wed, 12 Aug 2026 10:51:59 GMT
+
+https://movieweb.com/james-bond-reboot-cast-jack-lowden-odds/
+
+A new favorite has emerged for 007 reboot with a certain 'Slow Horses' star reportedly being "strongly considered."
+---------
+
+# Netflix's 6-Part Action Thriller Officially Crowned a Hit on Streaming
+
+TV News, Elite Force, Netflix, Hot on Streaming, Action
+
+Wed, 12 Aug 2026 10:00:12 GMT
+
+https://movieweb.com/elite-force-netflix-action-streaming-tudum/
+
+Netflix's hit new action thriller isn't slowing down on streaming.
+---------
+
 # 5 Hard Sci-Fi Books That Are Perfectly Written
 
 Books and Comics, Sci-Fi, Books, Project Hail Mary, 3 Body Problem
