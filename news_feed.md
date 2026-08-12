@@ -1,3 +1,267 @@
+# After 64 Years, Marvel Kills Spider-Man
+
+Marvel Comics, Spider-Man
+
+Wed, 12 Aug 2026 16:18:57 GMT
+
+https://screenrant.com/marvel-kills-spider-man-last-stand/
+
+Marvel confirms how exactly Spider-Man dies in the tragic final battle of his decades-long superhero career, leaving Mary Jane Watson a widow.
+---------
+
+# Lanterns: John Stewart Is DCU’s Real Endgame
+
+TV, Originals, Lanterns
+
+Wed, 12 Aug 2026 16:15:11 GMT
+
+https://screenrant.com/video/lanterns-john-stewart-is-dcu-s-real-endgame/
+
+Jon Stewart: Lanterns Is Setting Up DCU’s Future. Aaron Pierre and Kyle Chandler are being marketed side by side, but DC may already be telling us which Green Lantern is meant to carry this franchise forward.
+---------
+
+# Matt Damon Starts A New Era After 113-Minute Thriller Confirmed As 2026's Biggest Streaming Hit
+
+Movies, The Rip, Matt Damon
+
+Wed, 12 Aug 2026 16:15:11 GMT
+
+https://screenrant.com/matt-damon-movies-new-era-the-rip-netflix-streaming-hit/
+
+Between the huge success of The Odyssey and his taut Netflix thriller, Matt Damon just firmly re-established his A-list star power in 2026.
+---------
+
+# Coyote Vs. Acme Rotten Tomatoes Score Revealed After WB’s Infamous Cancellation
+
+Movies, Coyote Vs. Acme, Looney Tunes
+
+Wed, 12 Aug 2026 16:11:38 GMT
+
+https://screenrant.com/coyote-vs-acme-rotten-tomatoes-score/
+
+The Rotten Tomatoes score for Coyote vs. Acme has been revealed following the movie's infamous cancellation by Warner Bros.
+---------
+
+# J.J. Abrams’ New Sci-Fi Movie’s Potential Cloverfield Connection Gets Definitive Response
+
+Movies, The End of Oak Street, Cloverfield, J.J. Abrams
+
+Wed, 12 Aug 2026 16:05:05 GMT
+
+https://screenrant.com/the-end-of-oak-street-jj-abrams-cloverfield-connection-definitive-response/
+
+Social media is filled with speculation that The End of Oak Street is J.J. Abrams’ newest Cloverfield film. Now the producer is breaking his silence.
+---------
+
+# PlayStation Plus Announces 10 More Free Games For August 2026
+
+Gaming, PlayStation Plus
+
+Wed, 12 Aug 2026 16:04:28 GMT
+
+https://screenrant.com/playstation-plus-free-games-august-2026-catalog/
+
+PlayStation Plus has just unveiled a long list of Game Catalog additions for this month, including some major hits of the past few years.
+---------
+
+# Mckenna Grace & Stars Get Hype For PAW Patrol The Dino Movie
+
+Exclusive, PAW Patrol: The Dino Movie, Mckenna Grace, PAW Patrol
+
+Wed, 12 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/video/paw-patrol-dino-movie-mckenna-grace-jennifer-hudson-cast/
+
+Exclusive: Mckenna Grace welcomes her new PAW Patrol costars - including Jennifer Hudson, Terry Crews, Bill Nye, and more - to the beloved franchise.
+---------
+
+# The Wrong Girls Review: An Unfunny Foray Into A Genre That Has Overstayed Its Welcome
+
+Movies, The Wrong Girls
+
+Wed, 12 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/the-wrong-girls-movie-review/
+
+Despite Oscar-nominated actor Kristen Stewart leading this psychedelic comedy, the jokes fall so flat that viewers may not even crack a smile.
+---------
+
+# Netflix's 16-Episode Fantasy Series Proves What Fans Have Been Saying For Years
+
+Streaming TV, Masked Recs
+
+Wed, 12 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/one-piece-netflix-prove-fans-right-adaptation/
+
+Giant monsters, deep friendships, and treasure-hunting adventures combine in Netflix's 93% fantasy series, pleasing fans and proving them right.
+---------
+
+# Kate Winslet Officially Starring In Netflix’s New Willy Wonka Reboot Next Year
+
+Movies, Willy Wonka
+
+Wed, 12 Aug 2026 15:56:19 GMT
+
+https://screenrant.com/netflix-willy-wonka-reboot-movie-release-date-cast/
+
+A new update has arrived for Netflix’s upcoming Willy Wonka reboot movie, and Kate Winslet is now confirmed to be starring in the project.
+---------
+
+# 10 Greatest Sci-Fi Anime Series From 2011 to 2020
+
+Anime, Sci-Fi
+
+Wed, 12 Aug 2026 16:15:15 GMT
+
+https://www.cbr.com/greatest-sci-fi-anime-series-2010s/
+
+From artistic wonders like Steins;Gate to Shonen adventures like Dr. Stone, the 2010s were packed with outstanding sci-fi anime.
+---------
+
+# NCIS: Origins Lead Confirms Major Format Differences Before CBS Debut
+
+TV, NCIS: Origins
+
+Wed, 12 Aug 2026 16:08:53 GMT
+
+https://www.cbr.com/ncis-origins-was-developed-for-streaming/
+
+NCIS fans were almost given an entirely different version of Origins before it became part of CBS's lineup.
+---------
+
+# Robert Pattinson and Zendaya's The Drama is the Best Romantic Thriller
+
+Movies, The Drama, robert pattinson, zendaya, A24
+
+Wed, 12 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/robert-pattinson-zendaya-best-romantic-thriller-the-drama/
+
+Robert Pattinson and Zendaya teamed earlier this year for one of the most intense yet underseen new romantic thrillers from A24.
+---------
+
+# The X-Files Note Chris Carter Got From Executives That 'Came As A Complete Shock'
+
+Movies, The X-Files: I Want to Believe
+
+Wed, 12 Aug 2026 15:57:40 GMT
+
+https://www.cbr.com/xfiles-chris-carter-studio-note-film-complete-shock/
+
+Chris Carter is doing a Director's Cut of the 2008 film, The X-Files: I Want to Believe, and he explains the shocking first note he got from execs
+---------
+
+# All 6 FAN EXPO Chicago Panels Being Moderated By CBR
+
+CBR Exclusives, conventions
+
+Wed, 12 Aug 2026 15:31:15 GMT
+
+https://www.cbr.com/cbr-fan-expo-chicago-2026-panels-supernatural-halloween-batman/
+
+Join CBR at Fan Expo Chicago 2026 for exclusive conversations and interactive Q&amp;As with pop culture's biggest names.
+---------
+
+# J.J. Abrams' First Sci-Fi Movie Since 'The Rise of Skywalker' Officially Redeems Him
+
+Movie News, The End of Oak Street, Rotten Tomatoes, Anne Hathaway, Ewan McGregor
+
+Wed, 12 Aug 2026 16:01:31 GMT
+
+https://collider.com/anne-hathaway-jj-abrams-sci-fi-end-of-oak-street-rotten-tomatoes-score-is-it-good/
+
+Anne Hathaway and Ewan McGregor's sci-fi dinosaur movie The End of Oak Street is officially winning over critics in a massive RT debut.
+---------
+
+# 4 Decades Later, Green Day Is Still Chasing Their Pre-Fame High With ‘Nimrods’
+
+Collider Signature, profile, Green Day, Nimrods, Music
+
+Wed, 12 Aug 2026 16:01:15 GMT
+
+https://collider.com/green-day-nimrods-movie-interview/
+
+Green Day opens up about Nimrods, the new movie inspired by the band’s early years, plus new music, nostalgia and life after 35 years.
+---------
+
+# Stephen King’s ‘X-Files’ Episode Broke From Its Usual Sci-Fi Formula 28 Years Ago
+
+TV Features, The X-Files, David Duchovny, Gillian Anderson, Sci-Fi
+
+Wed, 12 Aug 2026 15:52:15 GMT
+
+https://collider.com/stephen-king-the-x-files-episode-chinga/
+
+Stephen King's The X-Files episode "Chinga" gave Scully a creepy standalone case shaped by both King and Chris Carter.
+---------
+
+# Kit Harington’s New Charles Dickens Adaptation Officially Gets First Trailer
+
+TV News, A Tale of Two Cities, Kit Harington, MGM, Drama
+
+Wed, 12 Aug 2026 15:51:16 GMT
+
+https://collider.com/a-tale-of-two-cities-trailer-kit-harington-mgm-plus/
+
+Watch the trailer for MGM+’s A Tale of Two Cities, starring Kit Harington, François Civil and Mirren Mack ahead of its September 6 premiere.
+---------
+
+# Mark Wahlberg & Yahya Abdul-Mateen II Unleash Fury in New Action Thriller Trailer
+
+Movie News, By Any Means, Mark Wahlberg, Yahya Abdul-Mateen II
+
+Wed, 12 Aug 2026 16:19:39 GMT
+
+https://movieweb.com/mark-wahlberg-yahya-abdul-mateen-ii-by-any-means-final-trailer/
+
+The final trailer for Elegance Bratton's violent crime procedural promises an unlikely alliance taking on a deadly conspiracy.
+---------
+
+# 'Coyote vs. Acme' Lands Perfect Rotten Tomatoes Debut
+
+Movie News, Coyote Vs. Acme
+
+Wed, 12 Aug 2026 16:10:14 GMT
+
+https://movieweb.com/coyote-vs-acme-rotten-tomatoes-score/
+
+'Coyote vs. Acme' has debuted with a perfect 100% score on Rotten Tomatoes following the first critical reviews for the Looney Tunes courtroom drama.
+---------
+
+# Netflix's New 6-Part MMA Action Thriller Officially Crowned a Streaming Smash
+
+TV News, Action, Hot on Streaming, Netflix
+
+Wed, 12 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/wrath-furia-action-thriller-netflix-streaming-hit-august-2026/
+
+Netflix has scored big with their new six-episode MMA action thriller that's quickly become a smash hit on streaming.
+---------
+
+# Jon Hamm's Near-Perfect Star-Studded Crime Thriller Still Holds Up
+
+Features, Thriller, The Town, Jon Hamm
+
+Wed, 12 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/the-town-jon-hamm-crime-thriller-holds-up/
+
+The intense action, dramatic tension, and stellar cast helped turn the crime thriller into a new genre masterpiece that still holds up.
+---------
+
+# New 'Reacher' Spin-Off Unleashes Action-Packed Trailer Month Ahead of Debut
+
+TV News, Neagley, Reacher, Prime Video
+
+Wed, 12 Aug 2026 15:46:55 GMT
+
+https://movieweb.com/neagley-reacher-prime-video-trailer/
+
+Prime Video's new 'Reacher' spin-off has a thrilling trailer out, teasing some of the intense action that will take the screen in the next few weeks.
+---------
+
 # Anne Hathaway’s New Jurassic Park Meets Cloverfield Sci-Fi Debuts To Stellar Rotten Tomatoes Score
 
 Movies, Masked Recs, Anne Hathaway
