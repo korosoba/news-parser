@@ -1,3 +1,333 @@
+# Rebecca Ferguson’s Underrated 104-Minute Sci-Fi Horror Finds New Life On Streaming
+
+Movies, Masked Recs
+
+Wed, 12 Aug 2026 17:20:31 GMT
+
+https://screenrant.com/rebecca-ferguson-life-movie-underrated-hulu-streaming-success-august-2026/
+
+Before starring on Apple TV’s Silo, Rebecca Ferguson appeared in a 2017 sci-fi/horror film that’s now finding a brand-new audience on Hulu.
+---------
+
+# Sylvester Stallone & Amazon Adapting Bourbon & Lies Into TV Show
+
+TV, Sylvester Stallone, Prime Video
+
+Wed, 12 Aug 2026 17:14:58 GMT
+
+https://screenrant.com/sylvester-stallone-bourbon-and-lies-show-adaptation-amazon-mgm/
+
+Sylvester Stallone and Amazon are officially teaming up to adapt a bestselling, three-book novel series into a TV show.
+---------
+
+# The Big Bang Theory: The Tallest (& Shortest) Actors In The Cast
+
+TV, The Big Bang Theory
+
+Wed, 12 Aug 2026 17:00:12 GMT
+
+https://screenrant.com/big-bang-theory-tallest-shortest-actors/
+
+You don't have to be tall to get a Ph. D., but height does often play a factor for cast members, and here are Big Bang Theory's tallest and shortest.
+---------
+
+# 5 Hard PlayStation 1 Games Nobody Could Beat As A Kid
+
+Gaming, Tomb Raider, Crash Bandicoot, PlayStation
+
+Wed, 12 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/hard-playstation-ps1-games-for-kids/
+
+Pixel perfect platforming and rope bridge horrors made cartoon worlds feel like pulse pounding trials of pure skill and endless retries.
+---------
+
+# X-Men Confirms Permanent New Superpower for Founding Hero
+
+Comics, X-Men
+
+Wed, 12 Aug 2026 16:54:39 GMT
+
+https://screenrant.com/x-men-beast-immortal-new-powers/
+
+A shock hero is now "immortal."
+---------
+
+# Bloomsbury Reveals New ACOTAR 6 Release Guide - & It Hints At The Book's Court
+
+Books, A Court of Thorns and Roses, A Court of Thorns and Roses (2015)
+
+Wed, 12 Aug 2026 16:54:17 GMT
+
+https://screenrant.com/new-acotar-6-release-guide-revealed-autumn-court-setting/
+
+Bloomsbury has revealed an official A Court of Thorns and Roses 5 release guide for the Autumn Equinox, and it may hint at the book's court.
+---------
+
+# Fourth Wing's New 2026 Release Will Finally Tell The Xaden Story I've Wanted For 3 Years
+
+Books, Fourth Wing (2023), The Empyrean Series
+
+Wed, 12 Aug 2026 16:47:10 GMT
+
+https://screenrant.com/fourth-wing-threshing-day-book-xaden-sgaeyl-story/
+
+Fourth Wing's upcoming book, Threshing Day, can finally tell one of the biggest stories about Xaden Riorson ahead of the 4th Empyrean Series novel.
+---------
+
+# Game Of Thrones: The Brown Terror Officially Unveiled
+
+Gaming, Game Of Thrones: Dragonfire, Game Of Thrones, Game of Thrones, PC, House of the Dragon
+
+Wed, 12 Aug 2026 16:45:31 GMT
+
+https://screenrant.com/game-of-thrones-dragonfire-brown-terror-announcement/
+
+Game of Thrones: The Brown Terror brings back one of House of the Dragon's most vicious and unpredictable dragons, available to check out now.
+---------
+
+# 7 Most Powerful Dark Wizards In The Harry Potter Movies, Ranked
+
+Movies, Harry Potter, Ranking, Voldemort
+
+Wed, 12 Aug 2026 16:44:10 GMT
+
+https://screenrant.com/harry-potter-movies-most-powerful-dark-wizards-ranked/
+
+oldemort reigns supreme, but which Death Eaters come closest? Here are the 7 most powerful dark wizards in the Harry Potter movies.
+---------
+
+# Disney+'s Best Marvel Show Officially Returns In 2027
+
+Streaming TV, Masked Recs
+
+Wed, 12 Aug 2026 16:27:54 GMT
+
+https://screenrant.com/x-men-97-season-3-release-date-disney-plus-2027/
+
+Marvel Studios' best TV show on Disney+ will return with a new season in 2027, and it brings back a few of the most beloved heroes in the franchise.
+---------
+
+# Pokémon Ruby, Emerald, and Sapphire Are Finally Returning After 24 Years
+
+Games, Pokemon, Nintendo, Pokémon
+
+Wed, 12 Aug 2026 17:20:15 GMT
+
+https://www.cbr.com/pokemon-ruby-emerald-sapphire-leak-finally-returning-24-years/
+
+A new leak claims that modern ports of Pokémon Ruby, Emerald, and Sapphire are finally coming to the Nintendo Switch and Switch 2 later in 2026.
+---------
+
+# Transformers Officially Creates 5 New Autobots for a Brand-New Combiner Team
+
+Anime, Transformers, merchandise, toys
+
+Wed, 12 Aug 2026 17:20:15 GMT
+
+https://www.cbr.com/transformers-takara-tomy-magna-regulus/
+
+The most breathtaking Combiner toy in Transformers history is now receiving an unexpected redeco as a completely new set of animal-based warriors.
+---------
+
+# Reacher Returns in New Trailer for Spinoff Releasing in Just 1 Month
+
+TV, Neagley
+
+Wed, 12 Aug 2026 17:17:37 GMT
+
+https://www.cbr.com/reacher-neagley-spinoff-new-trailer/
+
+In one month, Alan Ritchson's Reacher will appear to lend a helping hand (or punch) in the show's first spinoff.
+---------
+
+# New Stardew Valley Release Officially Coming to Nintendo Switch 2
+
+Games, Stardew Valley
+
+Wed, 12 Aug 2026 17:10:15 GMT
+
+https://www.cbr.com/new-stardew-valley-release-coming-to-nintendo-switch-2/
+
+ConcernedApe's beloved farming sim, Stardew Valley, is receiving a new edition, coming exclusively to the Nintendo Switch 2 early next year.
+---------
+
+# Neagley Season 1 Official Trailer
+
+TV, Neagley
+
+Wed, 12 Aug 2026 17:07:05 GMT
+
+https://www.cbr.com/video/neagley-season-1-official-trailer/
+
+Prime Video debuts the official Season 1 trailer for Neagley.
+---------
+
+# Lord of the Rings Officially Returns With Classic Releases Coming Soon
+
+Games, The Lord of the Rings, Video Games, The Hobbit, Innovation
+
+Wed, 12 Aug 2026 17:00:16 GMT
+
+https://www.cbr.com/lotr-games-official-return-third-age/
+
+Many classic Lord of the Rings video games are still locked to older consoles, but one company has officially promised that more will return.
+---------
+
+# CBS Is Abandoning Justin Hartley's Best Tracker Story With a Historic Strategy Shift
+
+TV, Tracker, CBS
+
+Wed, 12 Aug 2026 17:00:16 GMT
+
+https://www.cbr.com/tracker-season-4-move-to-los-abandons-colter-shaw-story/
+
+Justin Hartley's CBS show is making television history with Tracker Season 4, but the achievement comes at the cost of an overdue Colter Shaw story.
+---------
+
+# Timothy Olyphant's 8-Part Drama Series Turns Into U.S. Digital Hit After Recent Renewal
+
+TV, Peacock, Apple TV, The Five-Star Weekend
+
+Wed, 12 Aug 2026 17:00:16 GMT
+
+https://www.cbr.com/timothy-olyphant-the-five-star-weekend-pvod-success-august-2026/
+
+The Five-Star Weekend is dominating the digital charts after dominating Peacock.
+---------
+
+# =10 Best Spider-Man Variants That Beat the Original
+
+Comics, Spider-Man
+
+Wed, 12 Aug 2026 17:00:16 GMT
+
+https://www.cbr.com/alternate-versions-of-spider-man-better-than-the-original/
+
+Earth 616's Peter Parker might have started it all, but there have been countless variants since the first, who may even be better!
+---------
+
+# Jeffrey Dean Morgan's Gunning to Play Snake in Zack Snyder's Escape from New York Remake
+
+Movies, Escape From New York
+
+Wed, 12 Aug 2026 16:51:01 GMT
+
+https://www.cbr.com/jeffrey-dean-morgan-eyes-escape-from-new-york-remake-snake-role/
+
+Jeffrey Dean Morgan sets his sights on an iconic role in the John Carpenter movie remake.
+---------
+
+# 'Coyote vs. Acme' Officially Proves It Was Worth Saving
+
+Movie News, Coyote Vs. Acme, Will Forte, John Cena, Warner Bros.
+
+Wed, 12 Aug 2026 17:19:48 GMT
+
+https://collider.com/john-cena-coyote-vs-acme-rotten-tomatoes-score-is-it-good/
+
+After being shelved by WB, Coyote vs. Acme is now being showered with praise thanks to a perfect debut on Rotten Tomatoes. Read on for more.
+---------
+
+# With 1 Comic Panel, Marvel Just Turned Gambit Into One of Its Worst Characters Ever
+
+Books and Comics, Marvel, X-Men, Comics, Gambit
+
+Wed, 12 Aug 2026 17:00:15 GMT
+
+https://collider.com/x-men-of-apocalypse-omega-made-gambit-worst-character/
+
+Gambit's portrayal in Marvel's now-complete X-Men of Apocalypse comic run completely undermines his character and legacy.
+---------
+
+# 2026's Most Ambitious Fantasy Movie Officially Scores Sequel Update
+
+Movie News, Mortal Kombat, Mortal Kombat II, Simon McQuoid, Fantasy
+
+Wed, 12 Aug 2026 17:00:15 GMT
+
+https://collider.com/mortal-kombat-franchise-future-update-simon-mcquoid/
+
+Mortal Kombat 3 gets an uncertain update from director Simon McQuoid following Mortal Kombat 2’s disappointing $129 million box office run.
+---------
+
+# ‘SNL UK’ Just Found the Winning Formula To Keep Momentum Going in Season 2
+
+TV Features, Saturday Night Live, Saturday Night Live UK, NBC, Peacock
+
+Wed, 12 Aug 2026 16:48:44 GMT
+
+https://collider.com/snl-saturday-night-live-uk-season-2-schedule-cast/
+
+Saturday Night Live UK Season 2 has a winning schedule that could keep momentum high while giving its cast room to grow.
+---------
+
+# Broken Lizard Gives an Official Status Update on ‘Super Troopers 4’ and ‘Beerfest 2’
+
+Exclusives, Super Troopers 3, Screening, Super Troopers, Broken Lizard
+
+Wed, 12 Aug 2026 16:43:24 GMT
+
+https://collider.com/super-troopers-4-beerfest-sequel-broken-lizard/
+
+Broken Lizard talks with Collider about the possibilities of Super Troopers 4 and a Beerfest sequel. Read on for more details.
+---------
+
+# 10 Greatest Soft Sci-Fi Books of All Time
+
+Books and Comics, Science Fiction, Dune, Books
+
+Wed, 12 Aug 2026 16:34:15 GMT
+
+https://collider.com/best-soft-sci-fi-books-all-time-ranked/
+
+Brave New World, Dune, and The Dispossessed are among the all-time best soft sci-fi books, evocative works that are as thoughtful as they're moving.
+---------
+
+# 'Supernatural' Officially Returns in 2 Weeks
+
+Books and Comics News, Supernatural, Jensen Ackles, Jared Padalecki, Misha Collins
+
+Wed, 12 Aug 2026 16:30:15 GMT
+
+https://collider.com/supernatural-finale-comic-august-26-2026/
+
+Supernatural officially returns in just 2 weeks with a brand-new release. Get ready for Sam and Dean's final showdown.
+---------
+
+# Ridley Scott’s $350M Horror Blockbuster Is Officially Free To Stream
+
+Movie News, Hannibal, Ridley Scott, The Dog Stars, Anthony Hopkins
+
+Wed, 12 Aug 2026 16:30:15 GMT
+
+https://collider.com/ridley-scott-hannibal-streaming-free-pluto-tv-tubi-august-2026/
+
+Hannibal, the Ridley Scott-directed blockbuster that grossed over $350 million at the box office, has landed on several free streaming platforms.
+---------
+
+# Josh Holloway Ditches 'Yellowstone' in Trailer for Gritty New Western
+
+Movie News, Josh Holloway
+
+Wed, 12 Aug 2026 17:17:12 GMT
+
+https://movieweb.com/josh-holloway-flint-trailer-gritty-western/
+
+The 'Flint' trailer positions Josh Holloway in the kind of rugged Western role that has long seemed a natural fit.
+---------
+
+# Anne Hathaway Battles Dinosaurs in the Sci-Fi Thriller Everyone's Waited For
+
+Features, The End of Oak Street, Anne Hathaway
+
+Wed, 12 Aug 2026 17:00:12 GMT
+
+https://movieweb.com/anne-hathaway-end-of-oak-street-out-this-week/
+
+Anne Hathaway's new movie is an epic sci-fi thriller movie about dinosaurs with an all-star cast and from a beloved writer/director.
+---------
+
 # After 64 Years, Marvel Kills Spider-Man
 
 Marvel Comics, Spider-Man
