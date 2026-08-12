@@ -1,3 +1,322 @@
+# Spider-Man: Brand New Day's Box Office Explained - 8 Reasons It's An Endgame-Level Success
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Wed, 12 Aug 2026 03:00:12 GMT
+
+https://screenrant.com/spiderman-brand-new-day-movie-box-office-success-reasons-explained/
+
+Everyone knew Spider-Man: Brand New Day would hit a billion, but let's talk about why it's set to reach Endgame-levels of success at the box office.
+---------
+
+# Mistborn Movie Gets Bittersweet Update From Brandon Sanderson
+
+Movies, Mistborn, Brandon Sanderson
+
+Wed, 12 Aug 2026 02:47:41 GMT
+
+https://screenrant.com/brandon-sanderson-mistborn-movie-bittersweet-update/
+
+Apple TV's upcoming film adaptation of Brandon Sanderson's Mistborn gets a bittersweet update after the completion of the first draft of its script.
+---------
+
+# NCIS: Origins Star Explains Why He Almost Turned Down Playing Young Gibbs
+
+TV, NCIS: Origins, Austin Stowell
+
+Wed, 12 Aug 2026 02:41:39 GMT
+
+https://screenrant.com/ncis-origins-austin-stowell-young-gibbs/
+
+Austin Stowell, who plays the young Leroy Jethro Gibbs on NCIS: Origins, explained why he initially didn't want to star in the prequel series.
+---------
+
+# 3 Star Wars Predictions For This Week's D23 Disney Showcase
+
+Movies, Star Wars
+
+Wed, 12 Aug 2026 02:30:11 GMT
+
+https://screenrant.com/star-wars-predictions-d23-2026-disney-showcase/
+
+Disney's biannual fan celebration event takes place this weekend in Anaheim, California, and promises plenty of news and reveals.
+---------
+
+# Prime Video's Bosch Franchise Update Confirms A Harsh Reality
+
+Streaming TV, Ballard, Bosch
+
+Wed, 12 Aug 2026 02:00:21 GMT
+
+https://screenrant.com/harry-bosch-ballard-prime-video-minor-character/
+
+Amazon MGM Studios has expanded its Bosch franchise, with a simultaneous prequel & sequel, but an update from Titus Welliver confirms a harsh reality.
+---------
+
+# Reacher Meets GTA In New Open-World Detective Game
+
+Gaming, Steam, Triple-A Games
+
+Wed, 12 Aug 2026 02:00:21 GMT
+
+https://screenrant.com/reacher-meets-gta-ocean-city-killer/
+
+It's a mashup that tons of fans would love to see, but Grand Theft Auto mashes with Reacher in this brand-new open-world adventure.
+---------
+
+# MCU Fans Discovered A Character Curse, And Now I Can't Unsee It
+
+Movies, Marvel Cinematic Universe
+
+Wed, 12 Aug 2026 02:00:21 GMT
+
+https://screenrant.com/mcu-blonde-redhead-sibling-curse/
+
+After Spider-Man: Brand New Day introduced new characters, one MCU character curse seems undeniable—and it never gets any less brutal to watch.
+---------
+
+# Scott Bakula Officially Accepts Nomination As Star Trek President
+
+TV, Star Trek, Star Trek: Enterprise
+
+Wed, 12 Aug 2026 01:18:26 GMT
+
+https://screenrant.com/star-trek-enterprise-scott-bakula-accepts-federation-president-archer-nomination/
+
+Scott Bakula responds in person to the fan movement UNITE4ARCHER and agrees to represent Star Trek's United Federation of Planets as President.
+---------
+
+# Mike Flanagan's Upcoming Reboot of an All-Time Classic Is the Perfect Yellowjackets Replacement
+
+TV, Yellowjackets, Carrie, Horror
+
+Wed, 12 Aug 2026 03:30:15 GMT
+
+https://www.cbr.com/mike-flanagan-carrie-reboot-best-yellowjackets-replacement/
+
+The crimes of teenagers have been well documented and now Mike Flanagan is going to make them more terrifying.
+---------
+
+# Marvel’s Darkest Stories Could Officially Become Its Best
+
+Comics, Marvel
+
+Wed, 12 Aug 2026 03:30:15 GMT
+
+https://www.cbr.com/marvel-dark-comics-could-be-best/
+
+As the Midnight Universe draws near, Marvel has the chance to enter a new era where their darkest stories are the best books being published.
+---------
+
+# 5 2026 Games Already Considered Masterpieces
+
+Games, Video Games, Pokemon, Resident Evil
+
+Wed, 12 Aug 2026 03:15:15 GMT
+
+https://www.cbr.com/2026-games-already-considered-masterpieces/
+
+These games have already cemented themselves as masterpieces of 2026, and they won't be forgotten.
+---------
+
+# First New Sailor Moon Design in 3 Years Finally Gets Official U.S. Release
+
+Anime, Sailor Moon, merchandise
+
+Wed, 12 Aug 2026 03:05:15 GMT
+
+https://www.cbr.com/sailor-moon-usagi-sh-figuarts-usa-release/
+
+The long wait for a new Sailor Moon Usagi figure from S.H. Figuarts has finally come to an end with the latest update.
+---------
+
+# Bruce Willis & Brad Pitt’s 12 Monkeys is Still the Best Time Travel Movie
+
+Movies, 12 Monkeys, Brad Pitt, bruce willis, Sci-Fi
+
+Wed, 12 Aug 2026 02:45:15 GMT
+
+https://www.cbr.com/12-monkeys-best-time-travel-movie/
+
+Back in 1995, two of the biggest action stars of the decade teamed up for one of the greatest time travel movies of all time.
+---------
+
+# 5 Masterpiece N64 Games Better Than Super Mario 64
+
+Games, Nintendo 64, The Legend of Zelda: Ocarina of Time, Super Smash Bros
+
+Wed, 12 Aug 2026 02:45:15 GMT
+
+https://www.cbr.com/masterpiece-n64-games-better-than-super-mario-64/
+
+The Nintendo 64 might not be the most memorable Nintendo console, but it was a home for some of the best games of the late '90s and early 2000s.
+---------
+
+# 10 Movies to Watch If You Love Studio Ghibli
+
+Anime, Studio Ghibli
+
+Wed, 12 Aug 2026 02:30:15 GMT
+
+https://www.cbr.com/movies-studio-ghibli-fans-must-watch/
+
+Studio Ghibli has the greatest library of anime movies ever, but there are also non-Ghibli films Miyazaki fans will definitely love.
+---------
+
+# Dutton Ranch's New Season 2 Strategy Is Finally Rewriting a Historic Yellowstone Error
+
+TV, Dutton Ranch, Yellowstone
+
+Wed, 12 Aug 2026 02:00:25 GMT
+
+https://www.cbr.com/dutton-ranch-season-2-fix-ed-harris-everett-mckinney-mistake/
+
+Taylor Sheridan's latest Yellowstone spinoff is making a major course correction in Dutton Ranch Season 2, fixing the franchise's unwelcome milestone.
+---------
+
+# 7 Classic PS2 RPGs That Are 10/10 Masterpieces
+
+Games, PlayStation 2, PlayStation (Original), Video Games
+
+Wed, 12 Aug 2026 02:00:25 GMT
+
+https://www.cbr.com/classic-ps2-rpg-masterpieces/
+
+The PlayStation 2 was home to some 10/10 RPGs, with titles that helped define the genre for future generations and remain awesome to this day.
+---------
+
+# The 5 Greatest Horror Movies of 2026 (So Far), Ranked
+
+Movies, Horror, Obsession, Backrooms
+
+Wed, 12 Aug 2026 02:00:25 GMT
+
+https://www.cbr.com/best-horror-movies-2026-so-far-list/
+
+Horror has been dominating the box office for over a year, and 2026 has already given audiences a strong assortment of terrifying stories to watch.
+---------
+
+# The Best X-Men Comic Book of the Last 10 Years Is 'Game of Thrones' With Mutants
+
+Books and Comics, Marvel Comics, Superhero, Comic Book, X-Men
+
+Wed, 12 Aug 2026 03:26:14 GMT
+
+https://collider.com/immortal-x-men-comic-book-best-storyline-last-10-years/
+
+"Immortal X-Men" blends political intrigue, complex character dynamics, and even soapy drama to create the team's best storyline in the last decade.
+---------
+
+# Apple TV's Greatest Horror Has the Best 4 Minutes of TV
+
+TV Features, Widow's Bay, Matthew Rhys, Apple TV, Kate O'Flynn
+
+Wed, 12 Aug 2026 03:19:15 GMT
+
+https://collider.com/widows-bay-best-4-minutes-episode-8-boogeyman-final-girl-scene/
+
+Widow's Bay subverts all final girl tropes in an important sequence where Patricia finally bests the Boogeyman.
+---------
+
+# 35 Years Ago, Metallica Changed Metal Forever with a Classic Album
+
+Music Features, Metallica, A Year and a Half in the Life of Metallica, James Hetfield, Metal, Rock
+
+Wed, 12 Aug 2026 03:01:14 GMT
+
+https://collider.com/metallica-black-album-changed-metal-forever/
+
+Metallica's The Black Album is the best-selling Heavy Metal album in history.
+---------
+
+# ‘Spider-Man: Brand New Day’ Officially Swings Toward Its Biggest Box Office Milestone Yet
+
+Movie News, Spider-Man: Brand New Day, MCU, Marvel, Box Office
+
+Wed, 12 Aug 2026 02:00:24 GMT
+
+https://collider.com/spider-man-brand-new-day-10-highest-grossing-movies-all-time/
+
+Spider-Man: Brand New Day is officially set to enter an elite box office list after shattering several records already.
+---------
+
+# 10 Greatest Adventure Video Games of the 21st Century
+
+Video Games, Gaming, Video Game, Adventure, Legend of Zelda: Breath of the Wild
+
+Wed, 12 Aug 2026 01:43:14 GMT
+
+https://collider.com/best-adventure-video-games-21st-century-ranked/
+
+Uncharted 2: Among Thieves and The Legend of Zelda: Breath of the Wild are among the very best adventure video games of the 21st century.
+---------
+
+# ‘Reacher’ Season 4 Is Officially Bringing Back a Character You Never Even Knew Existed [Exclusive]
+
+TV Features, Reacher, Neagley, Alan Ritchson, Prime Video
+
+Wed, 12 Aug 2026 01:42:14 GMT
+
+https://collider.com/reacher-season-4-trish-character-reveal-meaning/
+
+Reacher set designer Nazgol Goshtasbpour revealed that certain locations have teased a character who hasn't yet appeared on screen.
+---------
+
+# Mel Gibson’s WW2 Comeback Is Officially a Streaming Hit 10 Years Later
+
+Movie News, Hacksaw Ridge, Mel Gibson, Tom Hardy, Braveheart
+
+Wed, 12 Aug 2026 01:30:14 GMT
+
+https://collider.com/mel-gibson-hacksaw-ridge-streaming-success-fandango-august-2026/
+
+Mel Gibson's WW2 epic Hacksaw Ridge, starring Andrew Garfield, is a streaming sensation over a decade later.
+---------
+
+# First Look at 'Fallout' Season 3 Reveals Return of Fan-Favorite Character
+
+TV News, Fallout, Walton Goggins, Prime Video
+
+Wed, 12 Aug 2026 02:48:52 GMT
+
+https://movieweb.com/fallout-season-3-walton-goggins-ghoul/
+
+He's finally back!
+---------
+
+# 'House of the Dragon's Main Characters Ranked by Power Ahead of Season 4
+
+TV Lists, House of the Dragon, Game of Thrones
+
+Wed, 12 Aug 2026 02:30:12 GMT
+
+https://movieweb.com/house-of-the-dragon-characters-power-ranking/
+
+'House of the Dragon' Season 3's finale will likely turn the tables on some of its main characters, but here's how they rank ahead of Season 4.
+---------
+
+# 5 Perfect Sci-Fi TV Shows That Get More Intense With Every Episode
+
+TV Lists, Westworld
+
+Wed, 12 Aug 2026 02:00:22 GMT
+
+https://movieweb.com/sci-fi-tv-shows-better-every-episode/
+
+These sc-fi TV shows are not only some of the most memorable that have been released, but their character arcs and storylines get more intense.
+---------
+
+# Marvel Filmmaker Confirms Darker Cut of Original Movie With Scrapped MCU Cameos
+
+Movie News, The Incredible Hulk, Louis Leterrier
+
+Wed, 12 Aug 2026 01:31:01 GMT
+
+https://movieweb.com/the-incredible-hulk-darker-cut-louis-leterrier/
+
+'The Incredible Hulk' director Louis Leterrier revealed his darker cut of the MCU's second film, one that featured a Captain America cameo.
+---------
+
 # What Happened To The EDITH Glasses In MCU Spider-Man’s Movies
 
 Movies, Marvel Cinematic Universe, Spider-Man, Spider-Man: No Way Home, Spider-Man: Far from Home
