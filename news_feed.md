@@ -1,3 +1,278 @@
+# Grey’s Anatomy Bolsters Cristina Yang’s Return Chances For Season 23
+
+Network TV, Grey's Anatomy
+
+Thu, 13 Aug 2026 12:30:36 GMT
+
+https://screenrant.com/greys-anatomy-season-23-cristina-yang-sandra-oh-return-tease/
+
+Ahead of ABC's fall 2026 return, Grey's Anatomy unexpectedly boosts the chances of seeing Sandra Oh as Cristina Yang return in season 23.
+---------
+
+# Elden Ring: Tower Of Judgement Released And Available Now
+
+Gaming, Elden Ring
+
+Thu, 13 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/elden-ring-tower-of-judgement-challenge/
+
+Discover the Tower of Judgment mod for Elden Ring, featuring new challenges and gameplay enhancements for an epic experience.
+---------
+
+# Glen Powell Gets Redemption After His 133-Minute Sci-Fi Movie Sets Streaming Record
+
+Classic Movies, The Running Man
+
+Thu, 13 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/glen-powell-the-running-man-paramount-plus-viewership-redemption/
+
+Glen Powell has found some redemption, as his 133-minute sci-fi movie, which audiences previously rejected, has claimed a major streaming record.
+---------
+
+# 7 Flawless Far Side Comics Set On Airplanes
+
+Comics, The Far Side
+
+Thu, 13 Aug 2026 12:25:11 GMT
+
+https://screenrant.com/7-flawless-far-side-comics-set-on-airplanes/
+
+The sky is the limit for these Far Sides.
+---------
+
+# 26 Years Later, Pokemon Gold Just Got An Unexpected Port
+
+Gaming, Pokemon
+
+Thu, 13 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/pokemon-gold-pc-port-3d-support/
+
+Pokemon Gold is one of the greatest games in the history of the series, and it has just made a wholly unexpected return via a new port.
+---------
+
+# 10 Dune Quotes That Prove Frank Herbert Was Ahead Of His Time
+
+Books, Dune, Sci-Fi, Dune: Prophecy
+
+Thu, 13 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/best-dune-quotes-prove-frank-herbert-ahead-of-his-time/
+
+Dune may be one of the most iconic science fiction novels ever written, but Frank Herbert's depth extends far beyond "Fear is the mind killer."
+---------
+
+# Indiana Jones Meets Firefly In Disney+'s 132-Minute Sci-Fi Movie
+
+Movies, Masked Recs
+
+Thu, 13 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-disney-sci-fi-movie-space-western/
+
+Disney+ has a new 2-hour movie that combines the adventure and excitement of Indiana Jones with the gritty space Western feel of Firefly
+---------
+
+# 6 Most Iconic Alfred E. Neuman MAD Magazine Covers
+
+Comics, mad
+
+Thu, 13 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/most-iconic-alfred-e-neuman-mad-magazine-covers/
+
+What, him worry? Not when he's the star of these classic covers from the iconic periodical!
+---------
+
+# Brand New Day’s New Box Office Win Means No Way Home’s Spider-Man Movie Record Might Be Over
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Thu, 13 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-box-office-no-way-home-record-biggest-challenge/
+
+Spider-Man: Brand New Day's immense box office rise in the past days mean it grows nearer and nearer to the biggest Spider-Man record of all.
+---------
+
+# Starz's New $1B Drama Shoots to No. 1 After Record-Breaking Run
+
+Movies, Michael, Starz
+
+Thu, 13 Aug 2026 12:00:15 GMT
+
+https://www.cbr.com/michael-jackson-biopic-starz-streaming-success-august-2026/
+
+There's a new king in town--and he's taking center stage on Starz.
+---------
+
+# Reacher Season 4 Revives a Lee Child Book Detail That Prime Video Abandoned
+
+TV, Jack Reacher, Reacher, Prime Video, Innovation
+
+Thu, 13 Aug 2026 12:00:15 GMT
+
+https://www.cbr.com/prime-video-reacher-season-4-book-accurate/
+
+One aspect of the Lee Child novels has been absent from the Reacher series on Prime Video, but Season 4 finally delivers that kind of story to viewers
+---------
+
+# Absolute Batman Homages A Death In The Family With Shocking New Twist
+
+Comics, Absolute Batman, Batman
+
+Thu, 13 Aug 2026 12:00:15 GMT
+
+https://www.cbr.com/absolute-batman-23-death-in-the-family-homage/
+
+Absolute Batman delivers a startling, but slightly familiar, climax.
+---------
+
+# 15 Darkest Sci-Fi Movies, Ranked
+
+Movie, Sci-Fi, The Man Who Fell to Earth, A Clockwork Orange, The Thing
+
+Thu, 13 Aug 2026 12:33:15 GMT
+
+https://collider.com/sci-fi-movies-darkest-ranked/
+
+Bleak science fiction movies can be equal parts captivating and upsetting, as demonstrated by classics like The Thing and A Clockwork Orange.
+---------
+
+# ‘Smile’ Director’s Remake of an ‘80s Horror Classic Officially Sets Release Date
+
+Movie News, Margaret Qualley, Horror, Possession, Paramount
+
+Thu, 13 Aug 2026 12:31:15 GMT
+
+https://collider.com/smile-director-parker-finn-possession-remake-june-2027/
+
+Smile director Parker Finn's upcoming horror remake, starring Callum Turner and Margaret Qualley, has officially set a 2027 release date.
+---------
+
+# 10 Best Western Movies in Film History
+
+Movie, Western, John Wayne, Django Unchained, Clint Eastwood
+
+Thu, 13 Aug 2026 12:17:15 GMT
+
+https://collider.com/best-western-movies-film-history/
+
+Unforgiven, Once Upon a Time in the West, and No Country for Old Men are all among the very best Western movies ever made.
+---------
+
+# 10 Netflix Shows Everyone Knew Would Be Masterpieces After the First 10 Minutes
+
+TV, Netflix, Stranger Things, Squid Game, Wednesday
+
+Thu, 13 Aug 2026 12:08:15 GMT
+
+https://collider.com/netflix-shows-masterpieces-first-10-minutes/
+
+Netflix series like Stranger Things, Squid Game, Wednesday, and A Series of Unfortunate Events, kick off in amazing fashion and then never let up.
+---------
+
+# Tom Cruise’s Best Sci-Fi Movie Since ‘Minority Report’ Is Officially Taking Over the World
+
+Movie News, Edge of Tomorrow, Tom Cruise, Emily Blunt, Netflix
+
+Thu, 13 Aug 2026 12:01:14 GMT
+
+https://collider.com/tom-cruise-sci-fi-edge-of-tomorrow-streaming-success-netflix-august-2026/
+
+Tom Cruise's 10/10 sci-fi movie is officially surging on Netflix, proving once again why the legendary cult classic still needs a sequel.
+---------
+
+# Only 3 Spy Movies Are Better Than James Bond
+
+Movie, Thriller, James Bond, The Conversation, Notorious
+
+Thu, 13 Aug 2026 11:56:14 GMT
+
+https://collider.com/spy-movies-better-than-james-bond-films/
+
+James Bond has long been the gold standard of spy movies, but a few masterpieces, like Notorious and The Conversation, are even better.
+---------
+
+# ‘Star Wars’ Next Best Sci-Fi Just Cracked Open a Completely New Future for the Force
+
+TV Features, Star Wars: Visions, Star Wars: Visions Presents - The Ninth Jedi, Disney Plus, Star Wars: Episode VIII - The Last Jedi
+
+Thu, 13 Aug 2026 11:46:15 GMT
+
+https://collider.com/star-wars-the-ninth-jedi-villain-force-philosophy-meaning/
+
+Star Wars: The Ninth Jedi introduces an entirely new concept to the Force that could reshape the franchise.
+---------
+
+# Charlie Brown’s Greatest Failure Is Exactly Why ‘Peanuts’ Still Matters
+
+TV Features, Peanuts, Books, Cartoons, Series
+
+Thu, 13 Aug 2026 11:46:15 GMT
+
+https://collider.com/charlie-brown-peanuts-failure-perseverance/
+
+Charlie Brown’s endless failures are exactly what make Peanuts timeless, turning disappointment, rejection and perseverance into universal lessons.
+---------
+
+# 10 Best Fantasy Books of the 2000s
+
+Books and Comics, Books, Fantasy, Harry Potter, George R.R. Martin
+
+Thu, 13 Aug 2026 11:43:14 GMT
+
+https://collider.com/best-fantasy-books-2000s-ranked/
+
+The Amber Spyglass by Philip Pullman and A Storm of Swords by George R.R. Martin are among the best fantasy books of the 2000s decade.
+---------
+
+# Zack Snyder's Remake of an 80s Sci-Fi Action Classic May Have Just Found the Perfect Lead
+
+Movie News, Zack Snyder, Jeffrey Dean Morgan, Action, Sci-Fi, Escape from New York, Escape From New York
+
+Thu, 13 Aug 2026 12:13:57 GMT
+
+https://movieweb.com/zack-snyder-escape-new-york-remake-jeffrey-dean-morgan/
+
+Recasting the iconic role is no easy feat, but this 'Walking Dead' star would be a flawless choice.
+---------
+
+# When 'Lanterns' Releases on HBO & Full Release Schedule
+
+Features, Lanterns
+
+Thu, 13 Aug 2026 12:00:12 GMT
+
+https://movieweb.com/lanterns-hbo-release-schedule/
+
+'Lanterns,' the new HBO series, stars Aaron Pierre and Kyle Chandler and tells the story of DC's Green Lantern characters John Stewart and Hal Jordan.
+---------
+
+# Jason Statham New Action Thriller Unleashes One of His Best Fight Scenes
+
+Movie News, Jason Statham, Mutiny, Action, Thriller
+
+Thu, 13 Aug 2026 11:45:36 GMT
+
+https://movieweb.com/jason-statham-mutiny-clip-best-fight-action/
+
+The action icon finds himself in a deadly face-off in a new clip from this month's 'Mutiny.'
+---------
+
+# 30 Years Later, Sylvester Stallone's Underrated Action Gem Sets New Release
+
+Movie News, Daylight, Sylvester Stallone, Blu-ray, Action
+
+Thu, 13 Aug 2026 11:40:36 GMT
+
+https://movieweb.com/sylvester-stallone-daylight-4k-blu-ray/
+
+Kino Lorber is preparing a 4K Blu-ray release of the '90s action thriller 'Daylight,' starring Sylvester Stallone in one of his most underrated roles.
+---------
+
 # A 10/10 2006 Adventure Game Is Completely Free To Keep On Steam
 
 Gaming, Steam
