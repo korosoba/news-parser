@@ -1,3 +1,289 @@
+# Spider-Man: Brand New Day Is Officially One Of The Highest-Grossing Movies Ever
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Thu, 13 Aug 2026 15:19:44 GMT
+
+https://screenrant.com/spider-man-brand-new-day-box-office-top-10-highest-grossing-movies-global/
+
+Spider-Man: Brand New Day isn't slowing down at the box office and is now officially one of the highest-grossing movies of all time ahead of week 3.
+---------
+
+# Terminator's Return Is Making The T-800 Scarier Than Ever
+
+Gaming, Terminator: Survivors, Terminator, Triple-A Games, PC
+
+Thu, 13 Aug 2026 15:15:55 GMT
+
+https://screenrant.com/terminator-survivors-t800-return-threat/
+
+The T-800 is coming back, and this time, the fear factor is going to be a lot more personal than it was in the biggest Terminator hits.
+---------
+
+# HBO Officially Reveals John Stewart's Green Lanterns Origin Story In 5-Minute Clip
+
+TV, Lanterns, DC Universe
+
+Thu, 13 Aug 2026 15:14:59 GMT
+
+https://screenrant.com/lanterns-show-first-five-minutes-clip-hbo-max/
+
+HBO has officially released the first 5 minutes of Lanterns online, showing Hal Jordan in the Green Lantern costume and John Stewart's origins.
+---------
+
+# Animal Crossing Returns In New Limited-Time Event Starting August 14
+
+Gaming, Animal Crossing New Horizons, Animal Crossing, PC
+
+Thu, 13 Aug 2026 15:05:04 GMT
+
+https://screenrant.com/animal-crossing-new-horizons-august-2026-event/
+
+Animal Crossing: New Horizons is officially returning with a new limited-time event starting tomorrow, August 14, and fans will not want to miss it.
+---------
+
+# Sabrina the Teenage Witch's New Era Is Here With Wicked First Look (Exclusive)
+
+Comics, Sabrina the Teenage Witch
+
+Thu, 13 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/sabrina-the-teenage-witch-oni-first-look/
+
+Totally enchanting
+---------
+
+# Of Star Trek's Original 3 Heroes, Only One Got The Ending They Deserved
+
+Classic TV, Star Trek
+
+Thu, 13 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/star-trek-original-main-characters-spock-best-ending/
+
+Star Trek started out with three original heroes — Kirk, Spock, and Bones — but only one of those O.G.s ended up getting the ending they deserved.
+---------
+
+# Dungeon Crawler Carl: Funniest Achievements In The Entire Series (So Far)
+
+Books, Dungeon Crawler Carl, Dungeon Crawler Carl - Season 1
+
+Thu, 13 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/dungeon-crawler-carl-funniest-new-achievement/
+
+Explore some of the funniest achievements earned by Carl in the Dungeon Crawler Carl book series, an apocalyptic adventure filled with humor.
+---------
+
+# 7 Gangster Movies From The 1970s That Are True Masterpieces
+
+Movies, Crime, The Godfather
+
+Thu, 13 Aug 2026 14:56:56 GMT
+
+https://screenrant.com/gangster-movies-1970s-masterpieces/
+
+From The Godfather to Mean Streets, these 7 gangster movies from the 1970s remain true masterpieces of the crime genre.
+---------
+
+# Nimrods Review: Green Day's Fun Teen Movie Is All About Its Great Young Leads
+
+New Movies, Nimrods
+
+Thu, 13 Aug 2026 14:52:00 GMT
+
+https://screenrant.com/nimrods-movie-review-2025/
+
+Though there's something odd about this being set in the present day, Nimrods' cast are more than enough reason to enjoy this breezy road movie.
+---------
+
+# A 10/10 Turn-Based Space Opera RPG From 2005 Is Currently Free With PlayStation Plus
+
+Gaming, PlayStation Plus
+
+Thu, 13 Aug 2026 14:33:01 GMT
+
+https://screenrant.com/playstation-ps2-10-rated-sci-fi-rpg-free-ps-plus/
+
+If you're a gamer looking for a truly unique sci-fi RPG, you might want to consider stepping back in time and checking out this PS2 classic.
+---------
+
+# 5 Modern Shonen Anime Better Than Black Clover
+
+Anime, Black Clover, shonen anime
+
+Thu, 13 Aug 2026 15:15:15 GMT
+
+https://www.cbr.com/modern-shonen-anime-better-than-black-clover/
+
+While the wait for Black Clover anime's return is still on, five modern shonen anime have already surpassed the series.
+---------
+
+# In Just 1 Day, Amazon's Returning 94% RT Action Series Becomes 1 of the Most-Watched Shows in the US
+
+TV, Reacher, Prime Video
+
+Thu, 13 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/reacher-prime-video-streaming-success-august-2026/
+
+It didn't take long for Prime Video's returning high-octane series to climb back up the streaming charts.
+---------
+
+# 5 Most Useful Devil Fruits in One Piece, Ranked
+
+Anime, One Piece
+
+Thu, 13 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/one-piece-most-useful-devil-fruits-ranked/
+
+The usefulness of One Piece's Devil Fruits often has nothing to do with strength
+---------
+
+# Tom Hardy’s 10/10 Paramount+ Crime Thriller Returns for New Episodes in 1 Month
+
+TV, MobLand, Crime, Paramount Plus
+
+Thu, 13 Aug 2026 14:56:29 GMT
+
+https://www.cbr.com/mobland-season-2-trailer-release-date/
+
+Tom Hardy officially returns to Paramount+ in one month.
+---------
+
+# FX Confirms Historic American Horror Story Upgrade for Season 13
+
+TV, American Horror Story
+
+Thu, 13 Aug 2026 14:37:47 GMT
+
+https://www.cbr.com/american-horror-story-season-13-historic-upgrade/
+
+Fans will not to miss the new season of American Horror Story.
+---------
+
+# The Lord of the Rings: The Hunt for Gollum Is Replacing Tauriel
+
+Movies, The Lord of the Rings: The Hunt for Gollum
+
+Thu, 13 Aug 2026 14:30:16 GMT
+
+https://www.cbr.com/lotr-hunt-for-gollum-seren-replaces-hobbit-tauriel/
+
+Anya Taylor-Joy's recently announced role in The Lord of the Rings: The Hunt for Gollum takes the place of a divisive figure from The Hobbit trilogy.
+---------
+
+# Game of Thrones: The Cold & the Dark Officially Premieres August 18
+
+Games, Game Of Thrones
+
+Thu, 13 Aug 2026 14:30:16 GMT
+
+https://www.cbr.com/game-of-thrones-conquest-the-cold-the-dark-official-release-august-18/
+
+Game of Thrones: Conquest fans have a brand-new event to look forward to this month, and it is only a matter of days before it arrives.
+---------
+
+# Sanrio Releases First Look at New Converse Sneaker Designs for Hello Kitty, Kuromi & Pompompurin
+
+Anime, Hello Kitty, sanrio, Clothing, merchandise
+
+Thu, 13 Aug 2026 14:20:15 GMT
+
+https://www.cbr.com/sanrio-hello-kitty-kuromi-pompompurin-converse-sneaker-collection/
+
+Sanrio just gave Hello Kitty fans their first look at the next line of Converse sneakers inspired by the iconic mascot and all her kawaii friends.
+---------
+
+# Glen Powell's 6-Part 'Mrs. Doubtfire' Replacement Officially Returns Next Month
+
+TV News, Chad Powers, Glen Powell, Hulu, Michael Waldron
+
+Thu, 13 Aug 2026 15:16:39 GMT
+
+https://collider.com/chad-powers-season-2-trailer-glen-powell-release-date/
+
+Watch the Chad Powers Season 2 trailer starring Glen Powell ahead of all 6 new episodes arriving September 3 on Hulu.
+---------
+
+# 3 'Doctor Who' Stars Officially Set To Reunite in New Murder Mystery
+
+TV News, Only Murders in the Building, Peter Capaldi, David Tennant, Jodie Whittaker
+
+Thu, 13 Aug 2026 15:01:00 GMT
+
+https://collider.com/only-murders-in-the-building-season-6-peter-capaldi-doctor-who-reunion/
+
+Peter Capaldi joins Only Murders in the Building Season 6, bringing a 3rd Doctor Who star to the Hulu mystery series.
+---------
+
+# Disney Confirms New Live-Action Fantasy Epic Based on Bestselling Book
+
+Movie News, Disney, Fantasy
+
+Thu, 13 Aug 2026 15:15:49 GMT
+
+https://movieweb.com/dallergut-dream-department-store-disney-adaptation/
+
+Disney is developing a live-action feature film adaptation of 'The Dallergut Dream Department Store,' the hit South Korean fantasy novel by Miye Lee.
+---------
+
+# Prime Video's New 124-Minute Dystopian Action Thriller Soars on Streaming
+
+Movie News, Action, Hot on Streaming, Prime Video
+
+Thu, 13 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/beast-race-action-prime-video-streaming-hit-august-2026/
+
+Prime Video has scored big with a new action thriller that mixes 'The Running Man' and 'The Hunger Games' together for our entertainment.
+---------
+
+# 'Star Trek: Strange New Worlds' Season 4 Officially Replaces Captain Pike
+
+Features, star trek: strange new worlds, Star Trek
+
+Thu, 13 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-captain-pike-replaced/
+
+Captain Pike has been framed as the main character of 'Star Trek: Strange New Worlds' for four years, but his run is over. Read on for more.
+---------
+
+# Everyone Forgets About the 6th 'Die Hard' Movie Starring Denzel Washington
+
+Features, Denzel Washington
+
+Thu, 13 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/denzel-washington-die-hard-ricochet/
+
+One of Denzel Washington's little-known '90s movies is connected to 'Die Hard.' Here's how.
+---------
+
+# CBS Confirms New Crime Thriller Spin-off Series to One of the Network's Biggest Ever Shows
+
+TV News, Chicago P.D.
+
+Thu, 13 Aug 2026 14:25:49 GMT
+
+https://movieweb.com/cbs-strike-force-jesse-lee-soffer-matt-olmstead/
+
+CBS is moving ahead with 'Strike Force,' a DEA drama from  'Chicago P.D.'s Jesse Lee Soffer and written by Matt Olmstead, for the 2027-28 season.
+---------
+
+# Brad Pitt Takes on One Last Mission in New Trailer for Action-Adventure Thriller
+
+Movie News, Heart of the Beast, Brad Pitt
+
+Thu, 13 Aug 2026 14:21:56 GMT
+
+https://movieweb.com/brad-pitt-heart-of-the-beast-new-trailer/
+
+Brad Pitt battles against nature and the deadly enemies in the new look at David Ayer's survival thriller.
+---------
+
 # Ted Lasso's Most Divisive Character Is Weirder Than Ever In Season 4
 
 Streaming TV, Ted Lasso
