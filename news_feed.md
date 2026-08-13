@@ -1,3 +1,212 @@
+# Gerard Butler's 109-Minute Action Thriller Is One Of Netflix's Biggest Movies
+
+Movies, Masked Recs
+
+Thu, 13 Aug 2026 20:30:18 GMT
+
+https://screenrant.com/gerard-butler-law-abiding-citizen-netflix-global-streaming-success-august-2026/
+
+Gerard Butler leads a major action thriller with a Spider-Man franchise star that has become a Netflix streaming hit, taking over the charts.
+---------
+
+# 10 Best Apple TV Shows Released In 2026 (So Far)
+
+Streaming TV, Apple TV
+
+Thu, 13 Aug 2026 20:30:11 GMT
+
+https://screenrant.com/best-apple-tv-shows-2026/
+
+All of the best Apple TV shows of 2026 so far, featuring thrilling new releases and returning favorites from the high quality streaming platform.
+---------
+
+# X-Men’s Biggest Mystique Fan Casting Beautifully Comes To Life In New MCU Art
+
+Movies, X-Men, Marvel Cinematic Universe, Inde Navarrette
+
+Thu, 13 Aug 2026 20:27:56 GMT
+
+https://screenrant.com/xmen-mcu-fan-cast-inde-navarrette-mystique-fan-art/
+
+The casting process is underway for the MCU’s X-Men film, and a fan has created an illustration showing one of the rumored actors as Mystique.
+---------
+
+# 11 Years Later, Peacock Has Found The Perfect Parks & Rec Replacement
+
+TV, Masked Recs
+
+Thu, 13 Aug 2026 20:02:11 GMT
+
+https://screenrant.com/dig-sitcom-peacock-parks-and-recreation-replacement/
+
+Amy Poehler is set to reunite with Parks and Recreation's creator for a sunny archaeological romp on Peacock that blends heart with comic mystery.
+---------
+
+# Kurt Russell's New Western Thriller The Rivals Of Amziah King Is Officially His First R-Rated Movie In 7 Years
+
+Movies, The Rivals of Amziah King, Kurt Russell
+
+Thu, 13 Aug 2026 19:58:25 GMT
+
+https://screenrant.com/the-rivals-of-amziah-king-mpa-rating-kurt-russell-streak/
+
+Veteran actor Kurt Russell is set to star in an upcoming Western thriller, which is officially his first R-rated movie in seven years.
+---------
+
+# A Knight Of The Seven Kingdoms Season 2 Finally Overcomes Filming Challenges & Delays With Major Update
+
+TV, A Knight Of The Seven Kingdoms, HBO Max, Game of Thrones
+
+Thu, 13 Aug 2026 19:53:47 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-season-2-filming-wrap-update-peter-claffey/
+
+A Knight of the Seven Kingdoms has finally fought its way through filming challenges, as it gets a major update ahead of season 2.
+---------
+
+# Prime Video's Crime Movie Nets 1.5 Billion Viewership After Poor Box Office
+
+Movies, Masked Recs, Prime Video
+
+Thu, 13 Aug 2026 19:45:40 GMT
+
+https://screenrant.com/the-sheep-detective-prime-video-viewership-streaming-august-2026/
+
+A new crime movie finds a huge audience on Prime Video after its disappointing box office run, reaching an impressive streaming milestone.
+---------
+
+# It’s Officially the End of an Era for Netflix After 2 Studio Closures
+
+Games, Netflix
+
+Thu, 13 Aug 2026 20:26:14 GMT
+
+https://www.cbr.com/netflix-games-studio-closures-night-school-moonloot/
+
+Netflix's endeavors into gaming have resulted in yet more layoffs, with the streaming giant now closing another two development studios.
+---------
+
+# 3 Years Later, Netflix Is Finally Giving Yu Yu Hakusho the Sequel It Deserves
+
+Anime, Netflix, Yu Yu Hakusho
+
+Thu, 13 Aug 2026 20:15:15 GMT
+
+https://www.cbr.com/netflix-yu-yu-hakusho-sequel/
+
+Netflix's Yu Yu Hakusho live action is getting a sequel, giving the series a chance to redeem itself after season one.
+---------
+
+# Star Trek VI Gives Spock the Greatest Quote in Sci-Fi History
+
+Movies, Star Trek, Star Trek: The Original Series, Star Trek VI: The Undiscovered Country
+
+Thu, 13 Aug 2026 20:00:15 GMT
+
+https://www.cbr.com/star-trek-vi-the-undiscovered-country-spock-greatest-quote-sci-fi-history/
+
+The cast of Star Trek: The Original Series are all legends on and off screen, which is why one Spock line from their final film is simply the best.
+---------
+
+# The Energon Universe Is Officially Copying Marvel Comics
+
+Comics, Skybound Entertainment, image comics, Transformers, G.I. Joe
+
+Thu, 13 Aug 2026 20:00:15 GMT
+
+https://www.cbr.com/robert-kirkman-energon-universe-marvel-formula/
+
+Image Comics and Skybound are eyeing a decades-long future for the Energon Universe, and Robert Kirkman knows exactly how to build it.
+---------
+
+# Jason Voorhees Is Back in First Look at Peacock’s Friday the 13th Prequel Series
+
+TV, Crystal Lake
+
+Thu, 13 Aug 2026 19:34:59 GMT
+
+https://www.cbr.com/crystal-lake-peacock-character-posters-jason-voorhees/
+
+A new look at Jason Voorhees is officially revealed ahead of the Friday the 13th prequel's debut.
+---------
+
+# Apple TV’s 10-Part Sci-Fi Series Had a Great Premise With One Big Problem
+
+TV Features, Strange Planet, Apple TV, Animation, Series
+
+Thu, 13 Aug 2026 20:07:15 GMT
+
+https://collider.com/strange-planet-apple-tv-series-premise-problem/
+
+Apple TV’s Strange Planet had a brilliant sci-fi comedy premise, but its clever webcomic concept struggles to sustain a 10-episode series.
+---------
+
+# Owen Wilson Is in a Mosh Pit With Travis Scott in Wild New Movie Trailer
+
+Movie News, Owen Wilson, Movie Trailers, Stick, Loki
+
+Thu, 13 Aug 2026 20:02:59 GMT
+
+https://collider.com/rolling-loud-movie-trailer-owen-wilson-matt-rife-travis-scott/
+
+Watch the Rolling Loud the Movie trailer starring Owen Wilson, Matt Rife and Travis Scott ahead of its October 2 theatrical release.
+---------
+
+# 5 Horror Comedy Shows Even Better Than ‘Widow’s Bay'
+
+TV, Horror, Comedy, Widow's Bay, Shining Vale
+
+Thu, 13 Aug 2026 19:52:14 GMT
+
+https://collider.com/horror-comedy-shows-better-than-widows-bay/
+
+From Chucky to What We Do in the Shadows, these horror-comedy gems deliver even bigger laughs, stranger worlds, and sharper scares than Widow's Bay.
+---------
+
+# ‘X-Men ’97’ Officially Confirms Which Psylocke Is in the Series
+
+TV News, X-Men '97, X-Men, Disney+, Marvel
+
+Thu, 13 Aug 2026 19:42:36 GMT
+
+https://collider.com/x-men-97-psylocke-betsy-braddock-identity-confirmed/
+
+X-Men ’97 officially confirms Psylocke’s true identity, resolving a major Marvel mystery surrounding the fan-favorite mutant.
+---------
+
+# 10 Greatest Video Games on Steam Right Now
+
+Gaming, Video Game, Steam, Valve, Avatar: The Last Airbender
+
+Thu, 13 Aug 2026 19:33:14 GMT
+
+https://collider.com/best-video-games-on-steam-august-2026/
+
+From the pop culture hit that is Marvel Rivals to the severely underrated Subnautica 2, these are the best video games available on Steam right now.
+---------
+
+# 'Ted Lasso' Finds a Better Roy Kent With Its Most Promising Story Yet
+
+Features, Ted Lasso
+
+Thu, 13 Aug 2026 20:30:12 GMT
+
+https://movieweb.com/ted-lasso-roy-kent-alice-replacement-improvement/
+
+'Ted Lasso's Roy Kent replacement is off to a great start, bringing the Apple TV series back to its roots.
+---------
+
+# Netflix’s 10/10 Smash Hit Thriller Series Finally Returns in 1 Week
+
+Features, Outer Banks, Netflix
+
+Thu, 13 Aug 2026 20:01:12 GMT
+
+https://movieweb.com/outer-banks-netflix-season-5-returns/
+
+Netflix has several thriller series that have been released in 2026, including Harlan Coben's 'I Will Find You,' and a beloved series is returning.
+---------
+
 # Where You Recognize Reacher Season 4's Congressman Sampson From (He's A '90s Icon)
 
 Streaming TV, Reacher
