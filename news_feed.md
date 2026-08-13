@@ -1,3 +1,245 @@
+# Where You Recognize Reacher Season 4's Congressman Sampson From (He's A '90s Icon)
+
+Streaming TV, Reacher
+
+Thu, 13 Aug 2026 19:30:11 GMT
+
+https://screenrant.com/reacher-season-4-congressman-sampson-actor-marc-blucas/
+
+There's a reason that Reacher season 4's Congressman Sampson might look very familiar to 90s kids, as he played a major role in an iconic 90s TV show.
+---------
+
+# Alan Ritchson's 8-Episode Action Thriller Is Already Climbing Prime Video's Chart 24 Hours After Premiere
+
+TV, Alan Ritchson, Prime Video
+
+Thu, 13 Aug 2026 19:09:56 GMT
+
+https://screenrant.com/alan-ritchson-reacher-season-4-streaming-success-premiere-august-2026/
+
+After nearly a year, Alan Ritchson's beloved action TV show is back on Prime Video, and the premiere has already become a streaming success.
+---------
+
+# Ted Lasso Season 4 Officially Sets Apple TV Viewership Record In Just 2 Days
+
+TV, Ted Lasso
+
+Thu, 13 Aug 2026 19:08:59 GMT
+
+https://screenrant.com/ted-lasso-season-4-apple-tv-viewership-launch-record/
+
+Ted Lasso season 4 brings back one of the most popular shows in the world, and the sports comedy has broken a massive Apple TV viewership record.
+---------
+
+# X-Men: Marvel Is Putting Cyclops Back at the Center
+
+Movies, Originals, X-Men
+
+Thu, 13 Aug 2026 19:00:12 GMT
+
+https://screenrant.com/video/x-men-marvel-is-putting-cyclops-back-at-the-center/
+
+MCU X-Men: Why Cyclops Could Be the Team’s Heart. Marvel’s latest reported casting may reveal much more about its X-Men reboot than simply who will wear Cyclops’ visor.
+---------
+
+# Absolute Batman Gets A Dark Fantasy Redesign In New Art That Is 10/10 Perfect
+
+Comics, Batman, Absolute Batman
+
+Thu, 13 Aug 2026 19:00:12 GMT
+
+https://screenrant.com/batman-dark-fantasy-redesign-berserk-fanart/
+
+Batman's latest DC series has inspired new readers and artists in many ways, including one particularly skilled dark fantasy illustrator.
+---------
+
+# 10 Best-Selling Video Games Of All Time
+
+Gaming, PC, Minecraft, The Elder Scrolls V: Skyrim, Grand Theft Auto 5
+
+Thu, 13 Aug 2026 19:00:12 GMT
+
+https://screenrant.com/best-selling-video-games-all-time-explained/
+
+These video games are some of the most popular and best-selling games ever created, and there are a few unexpected industry leaders here.
+---------
+
+# Does Star Trek: Strange New Worlds Season 4 Feel Weird So Far? Here’s Why
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Thu, 13 Aug 2026 19:00:12 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-episode-order-different-weird/
+
+Star Trek: Strange New Worlds season 4's first four episodes are four different genres, but something else is rhythmically off. Here's why.
+---------
+
+# Wednesday Season 3 Detail Promises Big Changes For The Show's Future
+
+Streaming TV, Wednesday
+
+Thu, 13 Aug 2026 18:30:11 GMT
+
+https://screenrant.com/wednesday-season-3-nevermore-story-change-show-future/
+
+Jenna Ortega recently dropped a major plot detail regarding Wednesday season 3, and it could have a ripple effect for the Addams Family show.
+---------
+
+# In Just 4 Days, the Greatest Sitcom of the Past 20 Years Finally Returns With New Episodes
+
+TV, It's Always Sunny in Philadelphia, FX, Hulu
+
+Thu, 13 Aug 2026 19:21:36 GMT
+
+https://www.cbr.com/its-aways-sunny-in-philadelphia-season-18-return-date/
+
+The Gang is back with new episodes of It's Always Sunny in Philadelphia.
+---------
+
+# Netflix's New 'The One Piece' Anime Is Officially a Reboot, Not a Remake, Studio President Says
+
+Anime, One Piece, The One Piece
+
+Thu, 13 Aug 2026 19:20:15 GMT
+
+https://www.cbr.com/netflix-the-one-piece-anime-reboot-vs-remake/
+
+Netflix's upcoming The One Piece anime series is right around the corner, and Wit Studio's president has just confirmed it's not actually a remake.
+---------
+
+# MTG: 10 Best Cards From The Hobbit Set
+
+Games, Magic: The Gathering, The Hobbit, Tabletop
+
+Thu, 13 Aug 2026 19:16:14 GMT
+
+https://www.cbr.com/mtg-best-cards-the-hobbit/
+
+Magic: The Gathering's set based on The Hobbit is adding some incredibly powerful cards to the game, including one of Middle-earth's greatest gems.
+---------
+
+# JJ Abrams' Smart 5-Part Cult Sci-Fi Show Returns as a Streaming Success 18 Years Later
+
+TV, Fringe, jj abrams
+
+Thu, 13 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/jj-abrams-fringe-sci-fi-apple-tv-success-august-2026/
+
+One of JJ Abrams' biggest shows is finding a whole new audience on streaming 13 years after its finale.
+---------
+
+# 10 Greatest Portal Fantasy Books of All Time, Ranked
+
+Movies, Fantasy, books, The Chronicles of Narnia
+
+Thu, 13 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/best-portal-fantasy-books-of-all-time-list/
+
+Leaving an ordinary world for a realm filled with magic and wonder, portal fantasy books have always been the ultimate escapist sub-genre
+---------
+
+# Jaws Meets Anaconda in Trailer for Lionsgate’s New 2026 Horror Adventure
+
+Movies, Horror
+
+Thu, 13 Aug 2026 18:51:34 GMT
+
+https://www.cbr.com/beware-boiuna-horror-movie-official-trailer/
+
+Lionsgate is making gigantic snakes scary again after Sony's humorous Anaconda reboot.
+---------
+
+# Christy Knowings, Nickelodeon's All That Star and Comedian, Dead at 46
+
+TV, All That, Nickelodeon, Comedy
+
+Thu, 13 Aug 2026 18:39:48 GMT
+
+https://www.cbr.com/christy-knowings-dead-46-all-that/
+
+Christy Knowings, actor and comedian, has died.
+---------
+
+# Quit Laughing, Shijima Review
+
+Anime, My Hero Academia, Shonen Jump
+
+Thu, 13 Aug 2026 18:25:15 GMT
+
+https://www.cbr.com/quit-laughing-shijima-manga-analysis-review/
+
+My Hero Academia’s Kohei Horikoshi returns with Quit Laughing Shijima, a new one-shot manga that really needs to become its own series.
+---------
+
+# 'Ted Lasso' Season 4 Officially Makes Apple TV History After 3 Year Gap
+
+TV News, Ted Lasso, Apple TV, Jason Sudeikis, Brett Goldstein
+
+Thu, 13 Aug 2026 19:25:16 GMT
+
+https://collider.com/ted-lasso-season-4-apple-tv-biggest-premiere-ever/
+
+Ted Lasso Season 4 is already breaking records, becoming Apple TV's most watched streaming debut of all time! Read on for more details.
+---------
+
+# HBO’s 7-Part Crime Masterclass Is Anchored by a Career-Making Performance
+
+TV Features, Mare of Easttown, Kate Winslet, Cailee Spaeny, HBO
+
+Thu, 13 Aug 2026 18:58:14 GMT
+
+https://collider.com/hbo-greatest-masterclass-series-mare-of-easttown/
+
+Mare of Easttown is HBO’s 7-episode crime drama starring Kate Winslet, blending a murder mystery with devastating family drama.
+---------
+
+# Forget ‘Bridgerton,’ Netflix’s New Period Romance Is Officially a Must-Watch
+
+TV News, Netflix, Rotten Tomatoes, My Brilliant Career, Bridgerton
+
+Thu, 13 Aug 2026 18:51:41 GMT
+
+https://collider.com/my-brilliant-career-rotten-tomatoes-score-is-it-good/
+
+Netflix's new adaptation of My Brilliant Career is officially coming for Bridgerton's crown with a stellar debut on Rotten Tomatoes.
+---------
+
+# ‘Chicago P.D.’ Reunion Officially Set at CBS
+
+TV News, Jesse Lee Soffer, Chicago P.D., CBS, Procedural
+
+Thu, 13 Aug 2026 18:30:15 GMT
+
+https://collider.com/chicago-pd-jesse-lee-soffer-new-cbs-series/
+
+Chances for Jesse Lee Soffer's return to Chicago P.D. have been called into question with the announcement of a brand-new crime series.
+---------
+
+# Prime Video's "John Wick Meets Rambo" Action Thriller Remains a Streaming Smash
+
+Movie News, Action, Hot on Streaming, Prime Video
+
+Thu, 13 Aug 2026 19:00:12 GMT
+
+https://movieweb.com/vengeance-action-streaming-hit-prime-video-august-2026/
+
+Four months after its release, Amazon's ambitious action thriller refuses to back down on streaming.
+---------
+
+# James Gunn's DCU Ignites Backlash After 'Supergirl' BTS Video Shows AI Use
+
+Movie News, Supergirl, DCU
+
+Thu, 13 Aug 2026 18:52:20 GMT
+
+https://movieweb.com/james-gunn-dcu-supergirl-ai-lobo/
+
+A now-deleted video showed 'Supergirl' director Craig Gillespie showcasing AI-generated artwork of Jason Momoa's Lobo for 'Supergirl.'
+---------
+
 # Christian Bale's Rumored Patrick Bateman Replacement Accidentally Reveals Script Reaction For New American Psycho Movie
 
 Movies, American Psycho
