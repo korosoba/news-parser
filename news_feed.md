@@ -1,3 +1,245 @@
+# Christian Bale's Rumored Patrick Bateman Replacement Accidentally Reveals Script Reaction For New American Psycho Movie
+
+Movies, American Psycho
+
+Thu, 13 Aug 2026 18:22:30 GMT
+
+https://screenrant.com/american-psycho-remake-drew-starkey-patrick-bateman-casting-rumor-script/
+
+An actor accidentally reveals that he's read Luca Guadagnino's American Psycho script while addressing Patrick Bateman casting rumors.
+---------
+
+# Marvel's Wolverine Is Changing X-Men Lore In A Big Way
+
+Gaming, Marvel's Wolverine
+
+Thu, 13 Aug 2026 18:13:03 GMT
+
+https://screenrant.com/marvels-wolverine-x-men-lore-change/
+
+Insomniac crafts an original mutant saga that foregrounds mystery trauma and character reinvention for longtime fans.
+---------
+
+# New Netflix Movie Debuts With Rare Rotten Tomatoes Score Tying All-Time Record
+
+Movies, Masked Recs
+
+Thu, 13 Aug 2026 18:08:12 GMT
+
+https://screenrant.com/dont-say-good-luck-rotten-tomatoes-score-debut-netflix-record-tied/
+
+A new Netflix movie debuts with a rare Rotten Tomatoes score tying an all-time record ahead of its release on Friday, August 14.
+---------
+
+# The Power Universe's Official Fifth Series Will Redefine The Franchise
+
+TV, Power, Power: Origins
+
+Thu, 13 Aug 2026 18:02:11 GMT
+
+https://screenrant.com/power-fifth-show-origins-change-franchise/
+
+Produced by 50 Cent, the Power franchise's upcoming prequel looks like a perfect blend of crime thriller and nostalgic early '00s gangster epic.
+---------
+
+# George R.R. Martin Meets Berserk In 10/10 Dark Fantasy RPG Releasing August 28
+
+Gaming, RPG, Elden Ring, Triple-A Games, Berserk, George R.R. Martin
+
+Thu, 13 Aug 2026 18:00:11 GMT
+
+https://screenrant.com/george-martin-meets-berserk-elden-ring-august-2026/
+
+A 10/10 dark fantasy RPG is set to be released later this month, and it mixes elements from George R.R. Martin’s work and the legendary Berserk manga.
+---------
+
+# Lioness Season 3 Is The Real Sequel To Taylor Sheridan’s Best Movie
+
+Streaming TV, Lioness, Taylor Sheridan, Sicario
+
+Thu, 13 Aug 2026 17:30:11 GMT
+
+https://screenrant.com/lioness-season-3-better-sicario-day-of-the-soldado-taylor-sheridan/
+
+Lioness is one of Taylor Sheridan's most unique shows, but it also serves as a near-perfect follow-up to one of his movies that already has a sequel.
+---------
+
+# Glen Powell’s Secret Is Under Threat In New Chad Powers Season 2 Trailer
+
+TV, Chad Powers, Chad Powers - Season 2, Glen Powell
+
+Thu, 13 Aug 2026 17:28:38 GMT
+
+https://screenrant.com/glen-powell-chad-powers-season-2-trailer-hulu/
+
+Hulu releases the official trailer for Chad Powers season 2, with star Glen Powell returning as the titular football player on September 3.
+---------
+
+# Steam Officially Makes 9/10 Hit Game Free to Keep Until August 20
+
+Games, Steam
+
+Thu, 13 Aug 2026 18:18:15 GMT
+
+https://www.cbr.com/steam-official-game-free-to-keep-august-2026-deponia/
+
+Deponia is officially free on Steam for a limited time.
+---------
+
+# 17 Years Later, Roy Mustang's Best Fullmetal Alchemist Line Is Still the Greatest Quote in Anime History
+
+Anime, Fullmetal Alchemist, Fullmetal Alchemist: Brotherhood
+
+Thu, 13 Aug 2026 18:16:15 GMT
+
+https://www.cbr.com/roy-mustang-fullmetal-alchemist-greatest-quote/
+
+Roy Mustang's “It’s a terrible day for rain” still remains one of Fullmetal Alchemist's most powerful and iconic anime quotes.
+---------
+
+# NC-17 Horror Classic Guillermo del Toro Calls “Insane” and “Epic” Gets New Release Trailer
+
+Movies, The Devils
+
+Thu, 13 Aug 2026 18:05:16 GMT
+
+https://www.cbr.com/ken-russells-the-devils-nc17-4k-restoration/
+
+This officially marks the first ever NC-17 release in Warner Bros. history.
+---------
+
+# Kylo Ren's Best Last Jedi Line Hits Harder Than Any Sci-Fi Quote Since
+
+Movies, Star Wars, Star Wars: The Last Jedi
+
+Thu, 13 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/kylo-ren-the-last-jedi-best-quote-star-wars-movies/
+
+Back in 2017, Rian Johnson changed Star Wars history when he gave Kylo Ren the defining quote of the Star Wars sequel trilogy under Disney.
+---------
+
+# Batman's Secret Team, Society of the Midnight Key, Is Officially Revealed
+
+Comics, Batman
+
+Thu, 13 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/batman-12-society-midnight-key/
+
+Looks like the Bat-Family is bigger than we thought.
+---------
+
+# First Look at Disney+’s Epic New Fantasy Show Based on 50+ Book Series Revealed
+
+TV, Warrior Cats, Disney+, Fantasy, Innovation
+
+Thu, 13 Aug 2026 17:54:16 GMT
+
+https://www.cbr.com/warrior-cats-disney-plus-series-first-look/
+
+The beloved fantasy series is heading to Disney+, and fans can't wait.
+---------
+
+# Kurt Russell's 2-Season Creature Feature Is Quietly Becoming a Global Streaming Powerhouse
+
+TV, Monarch: Legacy of Monsters, Apple TV, kurt russell
+
+Thu, 13 Aug 2026 17:42:29 GMT
+
+https://www.cbr.com/kurt-russell-creature-feature-monarch-streaming-powerhouse/
+
+The world literally can not get enough of Kurt Russell's smash hit on streaming.
+---------
+
+# 'A Fresh & Nostalgic Feeling': AJ Beckles & Ryan Colt Levy Talk About What Makes BLACK TORCH Special
+
+CBR Exclusives, Anime, Black Torch, Interviews
+
+Thu, 13 Aug 2026 17:30:15 GMT
+
+https://www.cbr.com/aj-beckles-ryan-colt-levy-black-torch-interview/
+
+In an exclusive CBR interview, AJ Beckles and Ryan Colt Levy discuss the appeal of BLACK TORCH and its vibrant heroes.
+---------
+
+# Taylor Sheridan’s Biggest 'Yellowstone' Spin-Off Officially Expands Season 2 Cast
+
+TV News, Marshals, CBS, Yellowstone, Taylor Sheridan
+
+Thu, 13 Aug 2026 18:23:34 GMT
+
+https://collider.com/marshals-season-2-morgan-lindholm-cal-daughter-expanded-role/
+
+Taylor Sheridan and CBS' hit Yellowstone spin-off Marshals is officially giving more screen time to an underrated character. Get all the details here.
+---------
+
+# Forget ‘Jurassic Park,’ J.J. Abrams’ New Sci-Fi Dinosaur Movie Officially Debuts in 48 Hours
+
+Movie News, J.J. Abrams, The End of Oak Street, Anne Hathaway, Ewan McGregor
+
+Thu, 13 Aug 2026 18:18:56 GMT
+
+https://collider.com/jj-abrams-sci-fi-end-of-oak-street-release-date-august-2026/
+
+The J.J. Abrams-produced sci-fi movie The End of Oak Street, starring Anne Hathaway and Ewan McGregor, is officially around the corner.
+---------
+
+# Mattel Officially Announces New Hot Wheels and Uno Adaptations
+
+Gaming News, Mattel, Video Game, Hot Wheels, Barbie
+
+Thu, 13 Aug 2026 18:10:47 GMT
+
+https://collider.com/mattel-game-studios-hot-wheels-uno/
+
+Following the releases of Barbie and Masters of the Universe, Mattel has announced a new division that will focus on adaptations for Hot Wheels, Uno,
+---------
+
+# Star Wars’ New 10/10 Sci-Fi Fantasy Spin-Off Is Officially Taking Over the World
+
+TV News, Star Wars: Visions Presents - The Ninth Jedi, Star Wars, Star Wars: Visions, Disney+
+
+Thu, 13 Aug 2026 18:00:34 GMT
+
+https://collider.com/star-wars-visions-the-ninth-jedi-streaming-success-disney-plus-august-2026/
+
+Star Wars' newest series, The Ninth Jedi, is captivating audiences on Disney+, where it continues to rank on global charts. Find out more here.
+---------
+
+# Google TV Officially Lands Massive Win With 10,000 New Free Streaming Titles
+
+Movie News, Streaming, Doctor Who, Lady Bird, Labyrinth
+
+Thu, 13 Aug 2026 17:40:15 GMT
+
+https://collider.com/google-tv-freeplay-10000-free-movies-shows/
+
+Google TV Freeplay now offers 10,000 movies and shows to stream for free, with no subscription required and more titles coming throughout the year.
+---------
+
+# Disney+'s 'Agatha All Along' Replacement Officially Sets Release Date
+
+TV News, Agatha All Along, Disney+, Disney, Tim Federle
+
+Thu, 13 Aug 2026 17:31:53 GMT
+
+https://collider.com/coven-academy-trailer-disney-plus-hulu-release-date/
+
+Watch the first trailer for Disney+’s new Agatha All Along replacement before it arrives on the streamer this October.
+---------
+
+# Paramount Officially Making Action Fantasy Version of Classic John Carpenter Thriller
+
+Movie News, Assault on Precinct 13, John Carpenter
+
+Thu, 13 Aug 2026 17:39:44 GMT
+
+https://movieweb.com/paramount-tower-defense-action-fantasy-assault-on-precinct-13/
+
+The classic John Carpenter action thriller is getting an exciting new twist.
+---------
+
 # Sydney Sweeney's R-Rated Horror With One Of Her Best Performances Is Now On Netflix
 
 Movies, Masked Recs, Sydney Sweeney, Immaculate
