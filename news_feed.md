@@ -1,3 +1,212 @@
+# The Rings Of Power Season 3 Brings Back The Original LOTR Villain
+
+Streaming TV, The Lord of the Rings: The Rings of Power
+
+Thu, 13 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/the-rings-of-power-season-3-brings-witch-king-original-lotr-villain/
+
+Sauron might be the headlining act in The Rings of Power season 3, but Prime Video's series is bringing back the first Lord of the Rings villain.
+---------
+
+# All 7 Factions & Agencies In Reacher Season 4's Plot Explained
+
+Streaming TV, Reacher
+
+Thu, 13 Aug 2026 22:15:11 GMT
+
+https://screenrant.com/reacher-season-4-all-factions-explained/
+
+Prime Video’s Reacher is back with a fourth installment filled with mayhem, a new team, and more bad guys for the titular hero to take down.
+---------
+
+# Why Paramount’s New Epic Fantasy Movie Lost Support From Author Detailed In Children Of Blood & Bone Report
+
+Movies, Children of Blood and Bone
+
+Thu, 13 Aug 2026 22:15:04 GMT
+
+https://screenrant.com/children-blood-bone-tomi-adeyemi-loss-support-explained-report/
+
+Despite the high anticipation for the Children of Blood and Bone movie, author Tomi Adeyemi has made it known she's not supporting the adaptation.
+---------
+
+# James Spader Officially Returns To Television In 2 Months
+
+Streaming TV, VisionQuest, Marvel Cinematic Universe, James Spader
+
+Thu, 13 Aug 2026 22:11:11 GMT
+
+https://screenrant.com/visionquest-james-spader-ultron-return-marvel-television/
+
+Three years after The Blacklist ended, James Spader is taking on a familiar role in an upcoming sci-fi show that's only two months away.
+---------
+
+# Even By Stephen King Standards, It: Welcome To Derry Season 2 Is Set To Be Bleak
+
+TV, It: Welcome to Derry, Stephen King
+
+Thu, 13 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/it-welcome-to-derry-season-2-story-timeline-bleak/
+
+As if Stephen King's most lethal villain wasn't bad enough, the main characters of It: Welcome to Derry season 2 have a whole new horror to face.
+---------
+
+# 8 DC Characters Who Are Better Martial Artists Than Batman
+
+Comics, DC Comics
+
+Thu, 13 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/dc-characters-better-fighters-batman/
+
+Though Batman is unquestionably one of DC Comics' greatest fighters, there are eight characters who surpass him when it comes to martial arts.
+---------
+
+# Tony Stark's New Iron Man Codename Officially Revealed by Marvel
+
+Comics, Iron Man
+
+Thu, 13 Aug 2026 21:53:11 GMT
+
+https://screenrant.com/iron-man-new-codename-realmguard/
+
+Marvel has just reimagined Tony Stark in a major way, resulting in not only the latest variation of his Iron Man armor but a new codename as well.
+---------
+
+# Short Sci-Fi Anime Where Every Episode Is a Masterpiece
+
+Anime, Cyberpunk: Edgerunners, Pluto
+
+Thu, 13 Aug 2026 22:16:15 GMT
+
+https://www.cbr.com/short-sci-fi-anime-all-episodes-masterpiece/
+
+Short but unforgettable, these brilliant sci-fi anime make every single episode count.
+---------
+
+# Peacock’s The Office Spinoff Returns With Season 2 Trailer 1 Month Before Premiere
+
+TV, The Paper, The Office
+
+Thu, 13 Aug 2026 22:14:42 GMT
+
+https://www.cbr.com/peacocks-the-office-spinoff-returns-with-season-2-trailer-1-month-before-premiere/
+
+Peacock's fan-favorite spinoff of The Office just unveiled the trailer for Season 2, and things at The Paper are more chaotic than ever.
+---------
+
+# The Only FBI Show to Make Mindhunter Look Tame Is 1 of the World's Most-Watched Series
+
+TV, Criminal Minds, Mindhunter, Crime
+
+Thu, 13 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/criminal-minds-crime-police-procedural-paramount-success-august-2026/
+
+Mindhunter remains one of the best Netflix shows of all time, but another crime drama with a similar premise, Criminal Minds, is dominating streaming.
+---------
+
+# Toy Story 5's Ending Was Almost The Most Heartbreaking in the Franchise
+
+Movies, Toy Story 5, Pixar
+
+Thu, 13 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/toy-story-5-deleted-scene-emotional-alternate-ending/
+
+Toy Story 5 is an absolute tear-jerker, but one newly revealed deleted scene would have left every fan bawling.
+---------
+
+# Disney Says Goodbye to Its Fan-Favorite Animated Hit
+
+Comics, Disney, Beauty and the Beast
+
+Thu, 13 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/disney-villains-gaston-5-finale-out-now/
+
+Disney's latest villain-centric comic book series has come to a close just in time for fans to catch up before the next collected edition arrives.
+---------
+
+# Francis Ford Coppola Reveals the Secret Behind 1 of The Godfather Trilogy’s Most Iconic Scenes
+
+Movies, The Godfather: Part II, The Godfather
+
+Thu, 13 Aug 2026 21:52:36 GMT
+
+https://www.cbr.com/godfather-2-stuck-door-secret-francis-ford-coppola/
+
+Francis Ford Coppola breaks down the on-set sleight of hand that he employed to craft one of The Godfather Part II's most memorable sequences.
+---------
+
+# YouTube's Jeff the Killer Creepypasta Getting Backrooms Treatment With New Movie
+
+Movies
+
+Thu, 13 Aug 2026 21:40:14 GMT
+
+https://www.cbr.com/jeff-the-killer-movie/
+
+One of the internet's oldest and most notorious creepypastas is getting turned into a horror movie.
+---------
+
+# 7 '90s Romantic Movies That Are Perfect From Start to Finish
+
+Movie, Romance, 1990s, Chungking Express, 10 Things I Hate About You
+
+Thu, 13 Aug 2026 22:09:15 GMT
+
+https://collider.com/romantic-movies-1990s-perfect-start-to-finish/
+
+10 Things I Hate About You, Chungking Express, and Before Sunrise are among the best, genuinely perfect romantic movies of the 1990s decade.
+---------
+
+# 8 HBO Miniseries Without a Single Flaw
+
+TV, HBO, TV Miniseries, Band of Brothers, The Penguin
+
+Thu, 13 Aug 2026 21:52:14 GMT
+
+https://collider.com/hbo-miniseries-without-flaws/
+
+There are too few HBO miniseries that we can confidently say have absolutely no flaws, like Band of Brothers, Scavengers Reign, and Chernobyl.
+---------
+
+# If These 6 Modern Movies Aren’t Classics in 100 Years, I’ll Eat My Hat
+
+Movie, The Odyssey, Better Man, All of Us Strangers, Babylon
+
+Thu, 13 Aug 2026 21:45:14 GMT
+
+https://collider.com/modern-movies-will-be-classics-100-years/
+
+I'm happy to go out on a limb and say that movies like Better Man, The Odyssey, and All of Us Strangers will stand the test of time amazingly well.
+---------
+
+# Disney Scores Big With Seductive New Thriller That's Taken Over Streaming
+
+TV News, The Shards, Disney+, Hot on Streaming
+
+Thu, 13 Aug 2026 22:00:12 GMT
+
+https://movieweb.com/the-shards-disney-plus-stream-august-2026/
+
+Watch this slick teen drama if you loved 'Euphoria.'
+---------
+
+# Jack Reacher's Season 4 Kill Count: Everyone He Has Taken Down So Far
+
+TV Lists, Reacher
+
+Thu, 13 Aug 2026 22:00:12 GMT
+
+https://movieweb.com/jack-reacher-season-4-kill-count/
+
+Alan Ritchson's Jack Reacher is already back taking lives in Season 4, to varying levels of brutality. Read on for more.
+---------
+
 # 1 Doctor Who Spinoff Remains Unaffected By BBC Overhaul As Production Officially Begins
 
 TV, Doctor Who
