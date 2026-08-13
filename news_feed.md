@@ -1,3 +1,278 @@
+# Ted Lasso's Most Divisive Character Is Weirder Than Ever In Season 4
+
+Streaming TV, Ted Lasso
+
+Thu, 13 Aug 2026 14:15:11 GMT
+
+https://screenrant.com/ted-lasso-season-4-coach-beard-weirder-than-ever/
+
+Ted Lasso season 4 has brought back several of the show's original, wholesome characters, along with one who's not quite like the rest.
+---------
+
+# Full Explanation Of Aegon's Dream & How It Retcons Game Of Thrones
+
+Streaming TV, House of the Dragon, Game of Thrones
+
+Thu, 13 Aug 2026 14:10:11 GMT
+
+https://screenrant.com/house-dragon-aegon-song-ice-fire-white-walkers-retcon/
+
+All three House of the Dragon seasons have dealt with Aegon the Conqueror's A Song of Ice and Fire dream, which has a big impact on Game of Thrones.
+---------
+
+# Apple TV Just Added 3 Sci-Fi Movies That Are All 10/10 Masterpieces (& They're "Free")
+
+Movies, Sci-Fi, Apple TV, Masked Recs
+
+Thu, 13 Aug 2026 14:02:37 GMT
+
+https://screenrant.com/apple-tv-sci-fi-movie-masterpieces-free-subscription/
+
+Three landmark Sci-Fi movies have just arrived on Apple TV, including a Steven Spielberg classic and two of the genre's modern greats.
+---------
+
+# 5 Essential Facts About Tommy Oliver's Power Rangers Return
+
+Comics, Power Rangers
+
+Thu, 13 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/power-rangers-green-tommy-oliver-return/
+
+Tommy Oliver is back for the BOOM Studios! series Power Rangers: Green, and there are five key facts to know about the former Green Ranger.
+---------
+
+# 29 Years Later, This Bruce Willis Classic Still Has One Of The Best Sci-Fi Movie Futures
+
+Movies, Bruce Willis, Sci-Fi, The Fifth Element, RoboCop, Blade Runner
+
+Thu, 13 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/the-fifth-element-sci-fi-movie-future-best/
+
+This Bruce Willis sci-fi action classic still holds up with a remarkable portrayal of the future that's different from similar movies of the time.
+---------
+
+# Heated Rivalry Star Says They're Filming 12 Episodes This Time
+
+TV, Heated Rivalry
+
+Thu, 13 Aug 2026 13:56:30 GMT
+
+https://screenrant.com/heated-rivalry-season-2-filming-12-episodes-dylan-walsh/
+
+One of the stars of the popular hockey romance series Heated Rivalry reveals that they are shooting twice as many episodes as season 1.
+---------
+
+# Brad Pitt Fights To Survive Feral Wilderness In New Trailer For Action Movie Heart Of The Beast
+
+Movies, Heart of the Beast, Brad Pitt
+
+Thu, 13 Aug 2026 13:51:06 GMT
+
+https://screenrant.com/heart-of-the-beast-movie-brad-pitt-trailer-2/
+
+Paramount releases a brand-new trailer for Brad Pitt’s upcoming survival thriller Heart of the Beast, which is in theaters September 25.
+---------
+
+# Disney’s New Fantasy Adaptation Of Bestselling 23-Year-Old Novel Franchise Gets Official First Images
+
+TV, Warrior Cats
+
+Thu, 13 Aug 2026 13:35:37 GMT
+
+https://screenrant.com/disney-warrior-cats-show-adaptation-first-images/
+
+Disney's new fantasy adaptation of a bestselling, 23-year-old novel franchise gets first official images as production on the animated show continues.
+---------
+
+# 5 Free Steam Games That Are Officially 10/10 Masterpieces
+
+Gaming, Steam
+
+Thu, 13 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/steam-free-games-10-rated-masterpieces-keep-forever/
+
+Discover 5 free Steam games with exceptional reviews. Play quality titles without spending a dime!
+---------
+
+# Star Trek: Strange New Worlds Season 4 Episode 4 Ending Explained: Nothing Is Black & White
+
+TV, Star Trek: Strange New Worlds, Star Trek
+
+Thu, 13 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-episode-4-ending-explained/
+
+Commander Una Chin-Riley, Dr. M'Benga, and Ensign Uhura are caught in a Klingon occupation in Star Trek: Strange New Worlds' film noir episode.
+---------
+
+# 10 Anime Arcs That Are 10/10, No Notes
+
+Anime, Jujutsu Kaisen, Hunter X Hunter
+
+Thu, 13 Aug 2026 14:15:16 GMT
+
+https://www.cbr.com/most-perfect-anime-arcs-flawless-start-to-finish/
+
+The most perfect arcs in all of anime come from shonen series like Jujutsu Kaisen, Hunter X Hunter, and Bleach.
+---------
+
+# In Just 1 Day, Seth Rogen's Comedy Remake With 96% RT Score Soars on Digital After Box Office Hit
+
+Movies, The Invite
+
+Thu, 13 Aug 2026 14:00:14 GMT
+
+https://www.cbr.com/seth-rogen-comedy-the-invite-pvod-success-august-2026/
+
+Seth Rogen's latest A24 film with Olivia Wilde is proving to be just as successful on PVOD as it was at the box office.
+---------
+
+# Camp Rock 3 Stars Take Over Each Other's Social Media, and Their Ideas Are Wild
+
+CBR Exclusives, Camp Rock
+
+Thu, 13 Aug 2026 14:00:14 GMT
+
+https://www.cbr.com/camp-rock-3-cast-wild-social-media-idea/
+
+Social media strategy is serious business at Camp Rock.
+---------
+
+# 5 Saddest Game of Thrones Franchise Deaths
+
+TV, House of the Dragon, A Knight Of The Seven Kingdoms, Game Of Thrones, Innovation
+
+Thu, 13 Aug 2026 14:00:14 GMT
+
+https://www.cbr.com/saddest-game-of-thrones-franchise-deaths-list/
+
+HBO Max's Game of Thrones television franchise is no stranger to brutal deaths, but these demises changed the trajectory of the series.
+---------
+
+# Clair Obscur’s “Untranslatable” Inspiration Officially Gets an English Release After 22 Years
+
+Games
+
+Thu, 13 Aug 2026 13:55:16 GMT
+
+https://www.cbr.com/clair-obscur-expedition-33-inspiration-novel-translated/
+
+22 years after it was first published in French, Horde of the Counterwind, Clair Obscur's biggest influence, is receiving an English translation.
+---------
+
+# 5 Strongest Dragons in the Dragon Ball Franchise, Ranked
+
+Anime, Dragon Ball, Akira Toriyama, Dragon Ball Z, Dragon Ball Super
+
+Thu, 13 Aug 2026 13:15:15 GMT
+
+https://www.cbr.com/dragon-ball-strongest-dragons-ranked/
+
+Dragon Ball is full of strong warriors, but when it comes to its various dragons there are some especially powerful and deadly individuals.
+---------
+
+# 10 Movies To Watch If You love Die Hard
+
+Movies, Die Hard, Action, The Last Boy Scout
+
+Thu, 13 Aug 2026 13:00:15 GMT
+
+https://www.cbr.com/must-watch-movies-for-fans-of-die-hard/
+
+A film that continues to influence action cinema to this day, Die Hard is the ultimate 80s blockbuster, and its fans need to see these movies.
+---------
+
+# Marvel Officially Reveals the Most Dangerous Xenomorph Yet [Exclusive]
+
+Books and Comics News, X-Men, Alien, alien, Marvel Comics
+
+Thu, 13 Aug 2026 14:00:14 GMT
+
+https://collider.com/marvel-alien-vs-x-men-preview-images/
+
+Marvel's Alien vs. X-Men comic run redefines horror with Storm acting as Ripley to take on a terrifying new breed of Xenomorph.
+---------
+
+# Marvel Officially Recalls Viral Captain America and Fantastic Four Releases
+
+Collectibles, Marvel, Captain America: Brave New World, The Fantastic Four: First Steps, MCU
+
+Thu, 13 Aug 2026 13:44:27 GMT
+
+https://collider.com/marvel-popcorn-bucket-recall/
+
+Marvel's viral movie merch, including popcorn buckets and other collectibles, have been recalled nationwide.
+---------
+
+# HBO’s Cancelled Sci-Fi Masterpiece Officially Surges on Streaming Ahead of Remake
+
+TV News, Westworld, HBO, Sci-Fi, Western
+
+Thu, 13 Aug 2026 13:31:14 GMT
+
+https://collider.com/hbo-sci-fi-westworld-streaming-success-itunes-august-2026/
+
+A beloved HBO sci-fi thriller resurfaces on streaming charts despite never getting the ending it deserved. Get more details here.
+---------
+
+# Tom Hardy's 2-Part Crime Saga Officially Sets Return With Explosive First Trailer
+
+TV News, MobLand, Tom Hardy, Guy Ritchie, Pierce Brosnan
+
+Thu, 13 Aug 2026 13:01:15 GMT
+
+https://collider.com/mobland-season-2-trailer-release-date/
+
+Tom Hardy, Pierce Brosnan and Helen Mirren return in the official trailer for MobLand Season 2, premiering on Paramount+ this September.
+---------
+
+# 'The Rookie' Season 9: Everything We Know About ABC's Hit Action Thriller
+
+Features, The Rookie, Everything We Know
+
+Thu, 13 Aug 2026 14:00:12 GMT
+
+https://movieweb.com/the-rookie-season-9-everything-we-know/
+
+'The Rookie,' the ABC action thriller starring Nathan Fillion as John Nolan, is returning for Season 9 with exciting new storylines.
+---------
+
+# 'Bourne' Director's New Real-Life Underwater Thriller Adds Two Oscar Winners
+
+Movie News, Doug Liman, Sean Penn, Adrien Brody
+
+Thu, 13 Aug 2026 13:54:02 GMT
+
+https://movieweb.com/doug-liman-snake-island-adrien-brody-sean-penn/
+
+Filming has ramped up for Doug Liman's upcoming political thriller.
+---------
+
+# New 98% Rated Action Fantasy Giant Dominates on Netflix Ahead of Long-Awaited Sequel
+
+Movie News, Demon Slayer: Kimetsu no Yaiba Infinity Castle, Netflix, Hot on Streaming, Action, Anime
+
+Thu, 13 Aug 2026 13:01:12 GMT
+
+https://movieweb.com/demon-slayer-infinity-castle-stream-netflix-tudum/
+
+After grossing $800 million worldwide, the action-packed fantasy movie is dominating on Netflix.
+---------
+
+# Star Trek's New Film Noir Episode Leaves Its Biggest Mystery Completely Unresolved
+
+Features, star trek: strange new worlds, Star Trek
+
+Thu, 13 Aug 2026 13:01:12 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-una-doppelganger/
+
+There's a mystery at the heart of Star Trek's latest effort, and even though an explanation feels necessary, one never arrives. Read on for more.
+---------
+
 # Grey’s Anatomy Bolsters Cristina Yang’s Return Chances For Season 23
 
 Network TV, Grey's Anatomy
