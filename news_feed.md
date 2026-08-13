@@ -1,3 +1,201 @@
+# Star Wars' Best 2 TV Shows Are The Only Ones Honoring George Lucas' Premise
+
+Classic TV, Star Wars
+
+Thu, 13 Aug 2026 23:30:11 GMT
+
+https://screenrant.com/star-wars-best-tv-shows-honoring-george-lucas-premise/
+
+It's surprising that only two Star Wars shows truly honor the franchise's core premise. It's less surprising that they're also the best two.
+---------
+
+# 14 Years Later, Sherlock's Best Line Is Still One Of The Greatest Quotes In TV History
+
+Classic TV, Sherlock
+
+Thu, 13 Aug 2026 23:15:11 GMT
+
+https://screenrant.com/sherlock-benedict-cumberbatch-best-quote/
+
+The best line in the BBC's Sherlock is delivered by its best character in the show's best episode, and it's still one of the greatest TV quotes.
+---------
+
+# 10 Years Later, Star Wars' New Last Jedi Sequel Is Here, And It's 10/10 Perfect
+
+Comics, Star Wars, Star Wars: Episode VIII - The Last Jedi
+
+Thu, 13 Aug 2026 23:12:11 GMT
+
+https://screenrant.com/star-wars-new-last-jedi-sequel-fall-kylo-ren/
+
+Now, Kylo Ren has returned for an official sequel to The Last Jedi, providing fans with a much-needed missing chapter.
+---------
+
+# Andy Weir’s Next Sci-Fi Project Revealed With MCU Star After Project Hail Mary’s $684M Success
+
+TV
+
+Thu, 13 Aug 2026 23:07:19 GMT
+
+https://screenrant.com/andy-weir-exoplanets-sci-fi-audiobook-audible-mcu-anthony-mackie/
+
+The Martian and Project Hail Mary's author is taking a step away from the novelist role with his next project, which takes a different medium.
+---------
+
+# The Mummy 4's Potential Genre Change Can Take The Franchise Back To Its Roots
+
+Movies, The Mummy 4, The Mummy
+
+Thu, 13 Aug 2026 23:03:08 GMT
+
+https://screenrant.com/the-mummy-4-movie-horror-genre-change-franchise/
+
+Brendan Fraser is back for The Mummy 4, and an update could lead to the adventure movie making a genre change that would take it back to its roots.
+---------
+
+# 6 PS2 Games Free With PlayStation Plus That Are Genuine 10/10 Masterpieces
+
+Gaming, PlayStation Plus, PlayStation 2, Triple-A Games
+
+Thu, 13 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/playstation-ps2-10-rated-masterpieces-free-ps-plus/
+
+The PlayStation Plus Game Catalog includes a nice variety of PlayStation 2 classics, and some of the selections are truly legendary games.
+---------
+
+# Supernatural Meets Buffy In The Most Underrated Fantasy Show Of The 21st Century
+
+Classic TV, Masked Recs
+
+Thu, 13 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/the-magicians-supernatural-meets-buffy-fantasy-show/
+
+Anyone that's wished for a show that combines Supernatural and Buffy can finally uncross their fingers, because Syfy already made it years ago.
+---------
+
+# 5 Seasons Later, Every NCIS Episode Still Secretly Honors Mark Harmon's Leroy Jethro Gibbs
+
+Network TV, NCIS
+
+Thu, 13 Aug 2026 22:45:11 GMT
+
+https://screenrant.com/ncis-episodes-honor-mark-harmon-jethro-leroy-gibbs/
+
+NCIS pays tribute to Mark Harmon's legacy with each episode even after Gibbs' departure in a way that allows the cast to feel like he's still leading.
+---------
+
+# Netflix's New 6-Episode Historical Series Based On 125-Year-Old Classic Novel Debuts To Rare Rotten Tomatoes Score
+
+TV, Masked Recs
+
+Thu, 13 Aug 2026 22:39:59 GMT
+
+https://screenrant.com/netflix-my-brilliant-career-show-rotten-tomatoes-score/
+
+Netflix's new six-episode historical series based on a 125-year-old classic novel debuts to a rare Rotten Tomatoes score on the day of its release.
+---------
+
+# Dragon Ball Unearths Akira Toriyama's Forgotten Panda Design After 37 Years
+
+Anime, Dragon Ball, Dragon Ball Z, Akira Toriyama
+
+Thu, 13 Aug 2026 23:20:15 GMT
+
+https://www.cbr.com/dragon-ball-akira-toriyama-forgotten-bubbles-panda-design/
+
+One of the Dragon Ball franchise's animal characters almost looked totally different.
+---------
+
+# 8 One Piece Mysteries That Still Need To Be Solved Before The Manga Ends
+
+Anime, One Piece
+
+Thu, 13 Aug 2026 23:15:14 GMT
+
+https://www.cbr.com/unsolved-one-piece-mysteries-to-solve-before-manga-ends/
+
+Eiichiro Oda has raised several questions that demand answers from One Piece's Final Saga
+---------
+
+# 33 Years Later, Star Trek's Scariest Episode Deserves to Be Called a Horror Masterpiece
+
+TV, Star Trek: The Next Generation, Paramount, Sci-Fi, Innovation
+
+Thu, 13 Aug 2026 23:00:15 GMT
+
+https://www.cbr.com/star-trek-tng-frame-of-mind-scariest-horror-episode/
+
+While Star Trek: The Next Generation isn't a horror series, there's one disturbing episode that still gives us nightmares.
+---------
+
+# The Best Battle of Helm's Deep Moments in LOTR
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Two Towers, Fantasy
+
+Thu, 13 Aug 2026 23:00:15 GMT
+
+https://www.cbr.com/lord-of-the-rings-best-helms-deep-moments-list/
+
+The Battle of Helm's Deep from The Lord of the Rings: The Two Towers included some of the best scenes in Peter Jackson's trilogy.
+---------
+
+# DC Studios Pulls Supergirl Release Amid AI Use Backlash
+
+Movies, Supergirl
+
+Thu, 13 Aug 2026 22:48:20 GMT
+
+https://www.cbr.com/supergirl-ai-allegations-backlash/
+
+Supergirl generates another round of backlash following its disastrous box office run.
+---------
+
+# The 10 Greatest Comedy Movies Based on Books, Ranked
+
+Movie, Comedy, Election, The Princess Bride, Silver Linings Playbook
+
+Thu, 13 Aug 2026 23:12:14 GMT
+
+https://collider.com/best-comedy-movies-based-on-books-ranked/
+
+The best comedies based on books manage to respect their literary origins while making a mark of their own, from The Princess Bride to Election.
+---------
+
+# ‘Justified’s Best Walton Goggins Quote Is Still One of Television’s Greatest Villain Lines
+
+TV Features, Justified, Walton Goggins, Timothy Olyphant, FX
+
+Thu, 13 Aug 2026 22:58:14 GMT
+
+https://collider.com/justified-best-walton-goggins-quote-boyd-crowder-villain/
+
+Walton Goggins' best quote in Justified emphasizes Boyd Crowder's complexity as a villain and his dynamic with Timothy Olyphant's Raylan Givens.
+---------
+
+# Matthew McConaughey Is Working on the Real 'True Detective' Season 2
+
+TV News, True Detective
+
+Thu, 13 Aug 2026 23:06:11 GMT
+
+https://movieweb.com/true-detective-season-2-matthew-mcconaughey-plans/
+
+McConaughey hints at possible return of Rust Cohle and Marty Hart in True Detective's future seasons.
+---------
+
+# Josh Holloway Almost Played Gambit – Until One Call Changed It All
+
+Exclusives, X-Men, X-Men Origins: Wolverine, Josh Holloway
+
+Thu, 13 Aug 2026 22:57:58 GMT
+
+https://movieweb.com/x-men-josh-holloway-gambit/
+
+'Lost' icon Josh Holloway spoke about the chance he had to play one of Marvel's most popular X-Men before things went in a different direction.
+---------
+
 # The Rings Of Power Season 3 Brings Back The Original LOTR Villain
 
 Streaming TV, The Lord of the Rings: The Rings of Power
