@@ -1,3 +1,113 @@
+# A 10/10 2006 Adventure Game Is Completely Free To Keep On Steam
+
+Gaming, Steam
+
+Thu, 13 Aug 2026 11:30:11 GMT
+
+https://screenrant.com/steam-free-10-rated-adventure-game-knytt-classic/
+
+Explore Knytt Classic, a free atmospheric platformer on Steam celebrating 20 years of indie gaming.
+---------
+
+# Star Wars Officially Unveils Our New Anakin Skywalker
+
+Gaming, Star Wars
+
+Thu, 13 Aug 2026 11:00:16 GMT
+
+https://screenrant.com/star-wars-rogue-company-new-look-anakin-skywalker/
+
+Anakin Skywalker is now one of the most iconic characters in cinema, and he has a whole new look in the latest Star Wars project.
+---------
+
+# Se7en Writer's New Serial Killer Movie Begins Streaming Redemption After $2.5M Bombing
+
+Movies, Masked Recs, Horror
+
+Thu, 13 Aug 2026 11:00:16 GMT
+
+https://screenrant.com/psycho-killer-movie-se7en-writer-disney-plus-global-streaming-success-august-2026/
+
+Se7en writer Andrew Kevin Walker's new serial killer movie begins a streaming redemption after bombing at the box office with just $2.5 million.
+---------
+
+# The 10 Best The Far Side Collections, Ranked
+
+Comics, The Far Side
+
+Thu, 13 Aug 2026 11:00:19 GMT
+
+https://www.cbr.com/best-the-far-side-collections-ranked/
+
+There are plenty of collected editions of The Far Side for fans of Gary Larson's absurdist comic strip, but they aren't all created equally.
+---------
+
+# 4 ‘Game of Thrones’ Icons Are Officially Back From the Dead for New ‘House of the Dragon’ Release
+
+Gaming News, House of the Dragon, George R.R. Martin, HBO Max, Game Of Thrones
+
+Thu, 13 Aug 2026 11:30:15 GMT
+
+https://collider.com/game-of-thrones-legends-house-of-the-dragon-rooks-rest-update/
+
+Game of Thrones: Legends is preparing a special new event arriving this month that highlights one of House of the Dragon's most notorious episodes.
+---------
+
+# 9 Years Later, the Anya Taylor-Joy Thriller Everyone Missed Is Finally Available To Watch on Streaming
+
+Movie Features, Marrowbone, Anya Taylor-Joy, George MacKay, Mia Goth
+
+Thu, 13 Aug 2026 11:21:15 GMT
+
+https://collider.com/anya-taylor-joy-thriller-marrowbone-streaming-free-xumo-august-2026/
+
+Anya Taylor-Joy's 2017 psychological thriller Marrowbone is difficult to find on streaming, but it is free to watch on Xumo Play.
+---------
+
+# 10 Sci-Fi Book Masterpieces So Great They Became the Blueprint
+
+Books and Comics, Science Fiction, Frankenstein, Twenty Thousand Leagues Under the Sea, Dune
+
+Thu, 13 Aug 2026 11:04:15 GMT
+
+https://collider.com/sci-fi-book-masterpieces-became-blueprint/
+
+Whether it's The Forever War or Rendezvous With Rama, these sci-fi books are revolutionary masterpieces that set a new standard for the genre overall.
+---------
+
+# Nintendo’s New Legend of Zelda Release Officially Leaks Online
+
+Gaming News, The Legend of Zelda, Nintendo, Video Game, Fantasy
+
+Thu, 13 Aug 2026 11:01:19 GMT
+
+https://collider.com/legend-of-zelda-nintendo-switch-2-console/
+
+Ahead of the upcoming movie and the Ocarina of Time remake, a new Nintendo Switch 2 console based on The Legend of Zelda has leaked online
+---------
+
+# Jason Statham's 'John Wick'-Style Action Thriller Needs a Sequel as It Continues to Dominate Streaming
+
+Movie News, Jason Statham, A Working Man, Hot on Streaming
+
+Thu, 13 Aug 2026 11:00:17 GMT
+
+https://movieweb.com/statham-working-man-sequel-streaming-hit-august-2026/
+
+One of Statham's best movies has everything needed to become a franchise-starter. So, where's the sequel?
+---------
+
+# The Greatest Fantasy Epic Officially Returns This Month With a Stacked Cast
+
+Features, The Magic Faraway Tree
+
+Thu, 13 Aug 2026 11:00:17 GMT
+
+https://movieweb.com/the-magic-faraway-tree-fantasy-great-cast/
+
+An upcoming fantasy movie based on a beloved book series is being released in theaters in August 2026 and has a famous, talented cast.
+---------
+
 # Super Mario Sunshine 4K Is The Only Way To Play
 
 Gaming, Super Mario Sunshine, Super Mario
