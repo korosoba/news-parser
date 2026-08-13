@@ -1,3 +1,278 @@
+# Brandon Sanderson Ranks The Matrix Directors’ Failed Cult Classic
+
+Movies, Brandon Sanderson, Speed Racer
+
+Thu, 13 Aug 2026 01:13:52 GMT
+
+https://screenrant.com/brandon-sanderson-ranks-matrix-director-speed-racer/
+
+Critically acclaimed fantasy author, Brandon Sanderson, reveals his true feelings regarding a fail cult classic nearly two decades later.
+---------
+
+# Marvel Officially Kills A Major X-Men Character 4 Months Before Their MCU Debut
+
+Superheroes, X-Men '97, Avengers: Doomsday, Marvel Cinematic Universe
+
+Thu, 13 Aug 2026 00:45:12 GMT
+
+https://screenrant.com/x-men-97-season-2-nightcrawler-death-before-doomsday/
+
+With only four months to go before Avengers: Doomsday's release, Marvel Studios just killed a major X-Men hero before their imminent debut in the MCU.
+---------
+
+# 15 Most Romantic TV Shows Of All Time
+
+Classic TV
+
+Thu, 13 Aug 2026 00:30:11 GMT
+
+https://screenrant.com/best-romance-tv-shows-all-time/
+
+The 15 most romantic TV shows that capture epic love stories, unforgettable couples, and emotional depth from modern series and classics all at once.
+---------
+
+# Fox's 13-Part Medical Drama Is A Must-Binge On Netflix Ahead Of Its Season 2 Return Next Month
+
+Streaming TV, Masked Recs
+
+Thu, 13 Aug 2026 00:15:11 GMT
+
+https://screenrant.com/netflix-best-medicine-fox-show-trending-before-season-2-return/
+
+One of the best new medical TV shows returns for season 2 next month, and it's the perfect time to binge all thirteen episodes on Netflix.
+---------
+
+# One Surprising Marvel Hero Is Beating Spider-Man & X-Men 2 Weeks Into Its Release
+
+Comics, Marvel, Webtoon
+
+Thu, 13 Aug 2026 00:10:11 GMT
+
+https://screenrant.com/jeff-the-land-shark-webtoon-beating-spider-man-x-men/
+
+One of the most surprising breakout stars of Marvel's collective of heroes has taken over, not content with just gaming and print stardom.
+---------
+
+# Star Wars Genesis Is The Ultimate Open-World Sci-Fi RPG
+
+Gaming, Star Wars, Triple-A Games
+
+Thu, 13 Aug 2026 00:00:11 GMT
+
+https://screenrant.com/star-wars-genesis-ultimate-open-world-rpg/
+
+If you've been searching for a Star Wars open-world RPG, Star Wars Genesis might be the game you're looking for, especially at this stage.
+---------
+
+# Lorelai Gilmore's 10 Best Quotes In Gilmore Girls
+
+Classic TV, Gilmore Girls
+
+Thu, 13 Aug 2026 00:00:11 GMT
+
+https://screenrant.com/gilmore-girls-lorelai-best-quotes/
+
+On Gilmore Girls, banter expert Lorelai is always ready with a witty quip or one-liner, whether the topic is love, family, food, coffee, or even snow.
+---------
+
+# Netflix's 95-Minute Thriller Being One Of 2026's Biggest Hits Makes Up For A 2025 Letdown
+
+Movies, Netflix, Apex, The Old Guard 2
+
+Thu, 13 Aug 2026 00:00:11 GMT
+
+https://screenrant.com/netflix-apex-movie-2026-streaming-views-charlize-theron-old-guard-2/
+
+A new film that has been sweeping the charts on Netflix with a familiar star is the perfect watch after the streamer’s disappointing 2025 sequel.
+---------
+
+# 10 Most Popular Canadian Cartoons Of All Time
+
+Classic TV
+
+Wed, 12 Aug 2026 23:45:11 GMT
+
+https://screenrant.com/most-popular-canadian-cartoons-all-time/
+
+Many of the best animated TV shows of all time are Canadian productions, and they go from superhero classics to educational shows and more.
+---------
+
+# Superman Lore Introduces Bold New Kryptonian Superpower
+
+DC Comics, Superman
+
+Wed, 12 Aug 2026 23:33:41 GMT
+
+https://screenrant.com/superman-new-power-general-zod/
+
+One of Superman's biggest villains unveils a new Kryptonian power they can use against the Man of Steel and his family, and it's not Lex Luthor.
+---------
+
+# Star Wars Star Joins Michael B. Jordan & Austin Butler’s Miami Vice Reboot
+
+Movies, Miami Vice
+
+Thu, 13 Aug 2026 01:03:44 GMT
+
+https://www.cbr.com/alden-ehrenreich-joins-miami-vice-85-reboot/
+
+Miami Vice is once again being reimagined with some big names in the cast.
+---------
+
+# 5 Hardest SNES RPGs, Officially Ranked
+
+Games, Role Playing Game, Nintendo, Video Games
+
+Thu, 13 Aug 2026 00:45:15 GMT
+
+https://www.cbr.com/official-hardest-snes-rpgs/
+
+The hardest RPGs on the SNES are nearly impossible to complete.
+---------
+
+# The 10 Greatest Sci-Fi Books of the Last 10 Years, Ranked
+
+Movies, Sci-Fi
+
+Thu, 13 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/perfect-sci-fi-books-last-10-years-list/
+
+While these books were only published in the last 10 years, they are modern sci-fi masterpieces that will become future classics of the genre.
+---------
+
+# Solo Leveling Drops the Coldest Official Trailer of 2026: 'A New Legend Begins'
+
+Anime, Solo Leveling
+
+Thu, 13 Aug 2026 00:20:15 GMT
+
+https://www.cbr.com/solo-leveling-on-ice-coldest-trailer-2026/
+
+It's safe to say no anime-adjacent trailer released this year is as cold as that of the new show Solo Leveling on ICE.
+---------
+
+# 10 Long Action Anime Series That Are 10/10 Masterpieces
+
+Anime, Hunter x Hunter, Attack On Titan
+
+Thu, 13 Aug 2026 00:15:14 GMT
+
+https://www.cbr.com/long-action-anime-masterpieces/
+
+Maintaining a respectable amount of action across a long anime series isn't easy, but these masterpiece anime do it with style.
+---------
+
+# Chris Carter Reveals Why He Cut Two Mulder And Scully Kisses From the Official X-Files Director's Cut
+
+Movies, The X-Files: I Want to Believe
+
+Wed, 12 Aug 2026 23:38:26 GMT
+
+https://www.cbr.com/chris-carter-reveals-cut-mulder-scully-kisses/
+
+In an exclusive interview with CBR, Chris Carter explained why his Director's Cut of The X-Files: I Want to Believe cut a lot of Mulder/Scully romance
+---------
+
+# Ethan Hawke’s Gritty 8-Part Neo-Noir With 98% RT Returns With New Episodes in 2 Months
+
+TV, The Lowdown, fx, ethan hawke
+
+Wed, 12 Aug 2026 23:32:51 GMT
+
+https://www.cbr.com/ethan-hawkes-gritty-8-part-neo-noir-with-98-rt-returns-with-new-episodes-in-2-months/
+
+FX has announced that Season 2 of Ethan Hawke's gritty neo-noir The Lowdown will premiere in October.
+---------
+
+# 6 'Twilight Zone' Actors Who Also Appeared on 'Seinfeld'
+
+TV, The Twilight Zone, Seinfeld, Jerry Seinfeld, Rod Serling
+
+Thu, 13 Aug 2026 00:44:14 GMT
+
+https://collider.com/twilight-zone-actors-appeared-on-seinfeld/
+
+Peggy Stewart, Jesse White, and Jason Wingreen are among the most notable actors who appeared on both CBS's Twilight Zone and NBC's Seinfeld.
+---------
+
+# 10 Most Universally Beloved Superhero Movies of All Time
+
+Movie, Spider-Man: Brand New Day, Superhero, The Dark Knight, Guardians of the Galaxy
+
+Thu, 13 Aug 2026 00:31:14 GMT
+
+https://collider.com/most-universally-beloved-superhero-movies-all-time-ranked/
+
+Spider-Man: Brand New Day, Iron Man, and The Dark Knight are among most universally beloved superhero movies ever made.
+---------
+
+# Pokémon Officially Unveils New Release Covering All 1,025 Monsters
+
+Gaming News, Pokémon, Video Game, Nintendo, Japan
+
+Thu, 13 Aug 2026 00:30:14 GMT
+
+https://collider.com/pokemon-30th-anniversary-national-pokedex/
+
+A new Pokémon release celebrating 30 years of iconic creatures and the latest franchise updates is officially on the way.
+---------
+
+# 'The X-Files' Season 12 Is Officially Happening After 8 Years
+
+Features, The X-Files, Sci-Fi, Chris Carter
+
+Thu, 13 Aug 2026 01:00:12 GMT
+
+https://movieweb.com/the-x-files-sci-fi-series-season-12/
+
+Eight years after the finale of the revival seasons, 'The X-Files' is officially getting another season, according to series creator Chris Carter.
+---------
+
+# 'The Lincoln Lawyer' Season 5 Is No Longer the End of the Netflix Series
+
+TV News, The Lincoln Lawyer
+
+Thu, 13 Aug 2026 00:41:51 GMT
+
+https://movieweb.com/the-lincoln-lawyer-season-5-cobie-smulders-spinoff/
+
+Netflix plans a spin-off featuring Emi Finch after 'The Lincoln Lawyer's final season.
+---------
+
+# 40 Years Later, Cult-Classic '80s Sci-Fi Reboot Gets New Release
+
+Movie News, Rick Moranis, Blu-ray, Little Shop of Horrors
+
+Thu, 13 Aug 2026 00:33:30 GMT
+
+https://movieweb.com/little-shop-of-horrors-4k-ultra-hd-blu-ray/
+
+A new 4K Ultra HD Blu-ray release of 'Little Shop of Horrors' will hit shelves in October.
+---------
+
+# Netflix's 10-Part 'John Wick' Meets 'Taken' Action Thriller Is Still a Knockout on Streaming
+
+TV News, Agent Kim Reactivated, Netflix, Hot on Streaming
+
+Thu, 13 Aug 2026 00:00:12 GMT
+
+https://movieweb.com/agent-kim-reactivated-netflix-stream-august-2026/
+
+This hard-hitting thriller stars "the Korean John Wick."
+---------
+
+# What Happens to Every Remaining Dragon in 'House of the Dragon'
+
+TV Lists, House of the Dragon, Game of Thrones
+
+Thu, 13 Aug 2026 00:00:12 GMT
+
+https://movieweb.com/house-of-the-dragon-remaining-dragon-fates/
+
+House of the Dragon Season 4 will reveal what becomes of every remaining dragon, and viewers can anticipate tragic fates for many of them.
+---------
+
 # I'll Say It: James Gunn's DCU Wonder Woman Casting Is More Exciting Than The Next Batman
 
 Streaming TV, DC Universe
