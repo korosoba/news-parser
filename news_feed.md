@@ -1,3 +1,289 @@
+# 5 Anime Characters With the Most Ridiculously OP Powers Ever
+
+Anime
+
+Thu, 13 Aug 2026 03:30:11 GMT
+
+https://screenrant.com/anime-characters-most-ridiculously-overpowered-abilities/
+
+Explore the most overpowered anime characters with godlike powers that defy all limits and expectations.
+---------
+
+# Stephen King Meets H.P. Lovecraft In Netflix’s 8-Part Horror Series
+
+Classic TV, Masked Recs
+
+Thu, 13 Aug 2026 03:15:11 GMT
+
+https://screenrant.com/archive-18-netflix-stephen-king-meets-lovecraft/
+
+Netflix is the streaming home of an acclaimed 8-part horror series that combines Lovecraftian terrors with some of the best Stephen King tropes.
+---------
+
+# Harry Potter Officially Fixes A Major Character With DC Star
+
+Streaming TV, Harry Potter
+
+Thu, 13 Aug 2026 03:00:11 GMT
+
+https://screenrant.com/harry-potter-fix-character-age-gilderoy-lockhart-nicholas-hoult/
+
+Another important Harry Potter character has been cast for HBO's TV remake, and the fit truly couldn't be any better than with this DC star.
+---------
+
+# Game Of Thrones: The Song Of Ice & Fire Officially Announced
+
+Gaming, Game of Thrones, Game Of Thrones, Game of Thrones: Conquest, PC
+
+Thu, 13 Aug 2026 03:00:11 GMT
+
+https://screenrant.com/game-of-thrones-song-of-ice-and-fire-august-2026/
+
+Game of Thrones officially returns this month with The Song of Ice and Fire, better acquainting fans with the franchise's core prophecy.
+---------
+
+# Patton Oswalt Predicted New Star Wars/Marvel Crossover: What Did He Get Right?
+
+Comics, Star Wars, Marvel
+
+Thu, 13 Aug 2026 02:35:55 GMT
+
+https://screenrant.com/star-wars-marvel-crossover-patton-oswalt/
+
+A Star Wars/Marvel crossover is finally happening in 2027, something that was predicted by Patton Oswalt over a decade ago (will his pitch be close?)
+---------
+
+# 14 Years Later, Disney Is Finally Merging Marvel And Star Wars Into One Universe
+
+Comics, Star Wars, Marvel
+
+Thu, 13 Aug 2026 02:30:11 GMT
+
+https://screenrant.com/disney-marvel-star-wars-universes-merged/
+
+A galaxy far, far away is colliding with Earth-616 in an utterly unique crossover, and it's only five months away.
+---------
+
+# Reacher Subtly Explains Why Jack Reacher Doesn't Call The Special Investigators For Help In Season 4
+
+Streaming TV, Reacher, Reacher - Season 4
+
+Thu, 13 Aug 2026 02:15:47 GMT
+
+https://screenrant.com/reacher-season-4-no-special-investigators-reason/
+
+Reacher season 4 features a subtle scene in which Alan Ritchson’s Jack Reacher discloses why he did not seek helps from the Special Investigators.
+---------
+
+# CBS Officially Announces Marshals Casting Changes For Season 2
+
+Network TV, Marshals, Yellowstone
+
+Thu, 13 Aug 2026 02:08:10 GMT
+
+https://screenrant.com/marshals-season-2-cast-changes-morgan-lindholm-marque-richardson-cbs/
+
+As production for Marshals season 2 continue, CBS has officially announced two big casting changes for Luke Grimes' Yellowstone sequel spinoff.
+---------
+
+# One Avengers: Endgame Line Is The Key To Doomsday According To MCU Theory
+
+Movies, Avengers: Endgame, Avengers: Doomsday
+
+Thu, 13 Aug 2026 02:00:21 GMT
+
+https://screenrant.com/avengers-endgame-doomsday-tony-stark-time-line/
+
+MCU fans are eager to find out what happens in Avengers: Doomsday, but a key hint about the movie's plot may have been revealed in Avengers: Endgame.
+---------
+
+# 5 Near-Perfect HBO Shows Nobody Remembers
+
+TV, hbo, Oz, Sharp Objects
+
+Thu, 13 Aug 2026 03:30:15 GMT
+
+https://www.cbr.com/near-perfect-forgotten-hbo-shows-list/
+
+HBO has produced some of the most iconic TV series over the years, but not every hidden gem sees enough time in the spotlight.
+---------
+
+# 10 Surprising Facts About Gary Larson’s The Far Side
+
+Comics, The Far Side
+
+Thu, 13 Aug 2026 03:30:15 GMT
+
+https://www.cbr.com/obscure-facts-about-the-far-side-comic-strip/
+
+Even super fans of The Far Side by Gary Larson might not know all of these interesting and obscure facts about the popular comic strip series.
+---------
+
+# 1 Year After Selling Out, Gundam Wing Returns With New Limited-Edition Gaming PC Design
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam Wing, merchandise
+
+Thu, 13 Aug 2026 03:20:15 GMT
+
+https://www.cbr.com/gundam-wing-hyte-pc-case-return/
+
+A popular 2025 Gundam Wing PC accessory is back in a new form, with several similar peripherals based on the anime also returning to the market.
+---------
+
+# 10 Hardest GameCube Games, Officially Ranked
+
+Games, Video Games, Nintendo, Gaming, super monkey ball, Mario
+
+Thu, 13 Aug 2026 03:15:15 GMT
+
+https://www.cbr.com/hardest-gamecube-games-officially-ranked/
+
+Retro gamers can count on Mega Man and F-Zero to deliver challenging GameCube experiences.
+---------
+
+# 5 Netflix Original Anime That Are 10/10 Masterpieces
+
+Anime, Netflix
+
+Thu, 13 Aug 2026 02:45:14 GMT
+
+https://www.cbr.com/netflix-original-anime-flawless-masterpieces/
+
+Netflix has become an anime powerhouse, with millions tuning in worldwide, in part because of their amazing catalogue of original series.
+---------
+
+# 10 Hardest SNES Platformers, Officially Ranked
+
+Games, Prince of Persia, Nintendo, Star Wars
+
+Thu, 13 Aug 2026 02:30:15 GMT
+
+https://www.cbr.com/hardest-snes-platformers-ranked/
+
+The SNES era was rich with exciting platforming experiences, with plenty of titles that provided hardcore gamers with the most difficult challenges.
+---------
+
+# 4 One Piece Pirate Crews Are Even Stronger Than the Straw Hats
+
+Anime, One Piece, shonen anime
+
+Thu, 13 Aug 2026 02:15:15 GMT
+
+https://www.cbr.com/one-piece-pirate-crews-stronger-than-straw-hats/
+
+Luffy and the Straw Hat Pirates are incredibly powerful, but these pirate crews are on another level in One Piece.
+---------
+
+# 5 Greatest Star Trek Books Of All Time, Ranked
+
+Movies, Star Trek, Star Trek: The Original Series, Star Trek: The Next Generation
+
+Thu, 13 Aug 2026 02:00:24 GMT
+
+https://www.cbr.com/best-star-trek-books-of-all-time-ranked-list/
+
+From episode novelizations to expansions, these Star Trek books are essential reading for every fan looking to explore more of the Final Frontier.
+---------
+
+# MTG: 10 Best Commanders From The Hobbit Set
+
+Games, Magic: The Gathering, The Hobbit, Tabletop
+
+Thu, 13 Aug 2026 01:45:15 GMT
+
+https://www.cbr.com/mtg-hobbit-set-best-commanders/
+
+Magic: The Gathering's crossover set based on The Hobbit is adding several incredibly powerful new Middle-earth Commander cards to the game.
+---------
+
+# 10 Strongest Versions of Optimus Prime, Ranked
+
+Anime, Transformers
+
+Thu, 13 Aug 2026 01:25:15 GMT
+
+https://www.cbr.com/transformers-strongest-versions-of-optimus-prime-ranked/
+
+The face of Transformers, Optimus Prime is one of the most iconic heroes in fiction, but not every version of him is created equal.
+---------
+
+# 3 Years Later, Netflix’s 8-Part Horror Series Is Even More Unsettling
+
+TV Features, Red Rose, Netflix, Horror, Thriller
+
+Thu, 13 Aug 2026 03:26:14 GMT
+
+https://collider.com/netflix-most-unsettling-series-red-rose-techno-horror/
+
+Red Rose is Netflix’s 8-episode horror series about a deadly app that turns social media, smartphones, and modern technology against teens.
+---------
+
+# 5 Years Later, Prime Video's Best Hard Sci-Fi Show Is Still Unmatched
+
+TV Features, The Expanse, Sci-Fi, Prime Video, SyFy
+
+Thu, 13 Aug 2026 03:15:14 GMT
+
+https://collider.com/the-expanse-prime-video-best-hard-sci-fi-show/
+
+5 years later, The Expanse still stands as one of the best sci-fi journeys worth taking on Prime Video.
+---------
+
+# The Movie Quentin Tarantino Called "One of the Great Westerns" Is Officially Streaming Uncut
+
+Movie Features
+
+Thu, 13 Aug 2026 03:03:14 GMT
+
+https://collider.com/the-great-silence-quentin-tarantino-hateful-eight-streaming-mubi-august-2026/
+
+Sergio Corbucci's Western The Great Silence, which inspired The Hateful Eight and was difficult to find in the U.S., is now streaming uncut on Mubi.
+---------
+
+# 9 Spy Shows Where Every Episode Is a Masterpiece
+
+TV, Homeland, The Agency, Slow Horses, The Americans
+
+Thu, 13 Aug 2026 03:01:14 GMT
+
+https://collider.com/spy-shows-every-episode-masterpiece/
+
+From the hit political thriller Homeland to the sci-fi espionage series Counterpart, every episode of these spy shows are genuine masterpieces.
+---------
+
+# Paramount Officially Confirms That There's More 'Avatar: Aang' To Go Around
+
+TV Features, Avatar Aang: The Last Airbender, Avatar: The Last Airbender, Books, Movie
+
+Thu, 13 Aug 2026 02:47:14 GMT
+
+https://collider.com/avatar-aang-last-airbender-art-book-novelization/
+
+Avatar Aang: The Last Airbender gets an art book and novelization, offering new scenes, character insights and more Team Avatar.
+---------
+
+# The 10 Best 'House of the Dragon' Season 3 Performances, Ranked
+
+TV Lists, House of the Dragon, Game of Thrones
+
+Thu, 13 Aug 2026 02:30:57 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-best-performances/
+
+House of the Dragon Season 3 features many incredible performances, but the best of them come from its most transformative character arcs.
+---------
+
+# Forget 'Severance': These Are the 10 Best Sci-Fi Mystery Thriller Series
+
+TV Lists, Severance, Silo
+
+Thu, 13 Aug 2026 02:00:22 GMT
+
+https://movieweb.com/sci-fi-thriller-tv-shows-better-than-severance/
+
+These sci-fi mystery series are even better than 'Severance,' the hit Apple TV show starring Britt Lower and Adam Scott.
+---------
+
 # Brandon Sanderson Ranks The Matrix Directors’ Failed Cult Classic
 
 Movies, Brandon Sanderson, Speed Racer
