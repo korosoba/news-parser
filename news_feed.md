@@ -1,3 +1,36 @@
+# Donnie Yen's New Role Is A Callback To His Legendary 2004 Performance
+
+Gaming, Donnie Yen, Phantom Blade Zero, PC, Triple-A Games
+
+Thu, 13 Aug 2026 08:00:11 GMT
+
+https://screenrant.com/donnie-yen-new-role-phantom-blade-zero/
+
+The legendary Hong Kong actor Donnie Yen is starring in a brand-new role this October, and it’s already a callback to a 2004 performance.
+---------
+
+# 3 Nintendo 3DS Games Everyone Played In The 2010s
+
+Gaming, Nintendo 3DS, Mario Kart, Animal Crossing, Pokemon
+
+Thu, 13 Aug 2026 07:00:11 GMT
+
+https://screenrant.com/nintendo-3ds-games-everyone-owned-2010s/
+
+The Nintendo 3DS had an expansive library of games, including many first-party titles, but there were a few games everyone played in the 2010s.
+---------
+
+# Netflix's 'My Brilliant Career' Remake Is Your Next Period Drama Obsession | Review
+
+TV Reviews, My Brilliant Career, Netflix, Drama, Romance
+
+Thu, 13 Aug 2026 07:01:14 GMT
+
+https://collider.com/my-brilliant-career-netflix-review/
+
+Netflix's My Brilliant Career delivers a fresh take on the classic novel, led by an utterly fearless performance from Philippa Northeast.
+---------
+
 # Game Of Thrones: Robb’s War Officially Launches August 27
 
 Gaming, Game of Thrones, Game Of Thrones, Game Of Thrones - Season 1, PC
