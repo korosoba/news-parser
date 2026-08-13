@@ -1,3 +1,25 @@
+# Game Of Thrones: Robb’s War Officially Launches August 27
+
+Gaming, Game of Thrones, Game Of Thrones, Game Of Thrones - Season 1, PC
+
+Thu, 13 Aug 2026 06:00:11 GMT
+
+https://screenrant.com/game-of-thrones-legends-robbs-war-august-27/
+
+One of Game of Thrones' most iconic and beloved characters officially returns in Robb's War, set to arrive later this month on August 27.
+---------
+
+# Dragon Ball Z Officially Returns August 26
+
+Gaming, Dragon Ball Xenoverse 3, Dragon Ball Z
+
+Thu, 13 Aug 2026 05:30:11 GMT
+
+https://screenrant.com/dragon-ball-z-august-2026-demo-release/
+
+Dragon Ball officially returns on August 26 thanks to a new announcement from Bandai Namco that reveals a Xenoverse 3 demo is on the way.
+---------
+
 # Halo: Fireteam Noble Officially Launches In 2027
 
 Gaming, Halo, Triple-A Games
