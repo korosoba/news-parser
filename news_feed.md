@@ -1,3 +1,190 @@
+# Super Mario Sunshine 4K Is The Only Way To Play
+
+Gaming, Super Mario Sunshine, Super Mario
+
+Thu, 13 Aug 2026 10:30:12 GMT
+
+https://screenrant.com/super-mario-sunshine-4k-texture-pack-opinion/
+
+Super Mario Sunshine might be one of the more divisive 3D games, but it has never looked better than this.
+---------
+
+# Game Of Thrones: War For The Throne Officially Releases August 21
+
+Gaming, Game of Thrones
+
+Thu, 13 Aug 2026 10:00:11 GMT
+
+https://screenrant.com/game-of-thrones-conquest-war-for-throne-august-21/
+
+Discover the thrilling August events in Game of Thrones: Conquest and keep busy during the House of the Dragon hiatus.
+---------
+
+# 25 Years Later, A Star Trek: Enterprise Promotion Finally Happens Live
+
+TV, Star Trek: Enterprise, Star Trek
+
+Thu, 13 Aug 2026 10:00:11 GMT
+
+https://screenrant.com/star-trek-enterprise-promotion-linda-park-hoshi-sato-live-stlv/
+
+Star Trek: Enterprise celebrated its 25th anniversary at STLV by giving Ensign Hoshi Sato a long-awaited promotion, performed live by Linda Park.
+---------
+
+# Tires Season 3 Review: Shane Gillis' Hit Netflix Comedy Delivers Its Best Season Yet
+
+Streaming TV, Tires, Tires - Season 3
+
+Thu, 13 Aug 2026 10:00:11 GMT
+
+https://screenrant.com/netflix-tires-season-3-review/
+
+Netflix's hit workplace comedy series Tires has come a long way from its modest 6-episode first season in 2024. Now, it may be Netflix's best comedy.
+---------
+
+# How To Actually Beat Hades (Tips, Tricks, & Strategies)
+
+Gaming, Hades, PC
+
+Thu, 13 Aug 2026 09:41:14 GMT
+
+https://screenrant.com/hades-how-to-beat-win-tips-tricks-strategies/
+
+Hades can be quite difficult to beat, as it will take every trick and strategy you can think of to succeed on multiple runs to reach the true ending.
+---------
+
+# FF7 Rebirth: Should You Choose Bovine Flesh or Monster Flesh For Condor Food?
+
+Gaming, Final Fantasy 7 Rebirth, Final Fantasy
+
+Thu, 13 Aug 2026 09:38:41 GMT
+
+https://screenrant.com/ff7-rebirth-bovine-meat-or-monster-flesh-condor/
+
+During the FF7 Rebirth side quest “Dreaming of Blue Skies,” players choose what to feed a condor. But which is better: Bovine Meat or Monster Flesh?
+---------
+
+# NCIS Quietly Confirmed How Gibbs Dies Years Before Mark Harmon's Return
+
+TV, NCIS, NCIS: Origins, CBS
+
+Thu, 13 Aug 2026 10:22:05 GMT
+
+https://www.cbr.com/ncis-season-19-tobias-fornell-predicts-gibbs-death/
+
+NCIS quietly teases exactly how Leroy Jethro Gibbs dies in the flagship series, and the prediction hits differently as Mark Harmon returns in Origins.
+---------
+
+# Paramount+ Is Changing Taylor Sheridan's Lioness Strategy in Season 3 With a Yellowstone Recast
+
+TV, Lioness
+
+Thu, 13 Aug 2026 10:18:36 GMT
+
+https://www.cbr.com/lioness-season-3-formula-change-with-ian-bohen-grady/
+
+As a key Yellowstone star joins Zoe Saldana's action series, Paramount+ expands the formula for Taylor Sheridan's CIA thriller in Lioness Season 3.
+---------
+
+# The MCU Avengers Era Is Over As We Know It
+
+Movies, Marvel Cinematic Universe, Avengers, X-Men
+
+Thu, 13 Aug 2026 10:01:14 GMT
+
+https://www.cbr.com/mcu-end-of-avengers-era/
+
+After the MCU's most recent Spider-Man adventure, there's no doubt that Marvel Studios is heading in a wild new direction.
+---------
+
+# 7 Greatest Series to Stream With 4 Episodes or Less
+
+TV, Adolescence, When They See Us, Death By Lightning, Landscapers
+
+Thu, 13 Aug 2026 10:53:15 GMT
+
+https://collider.com/best-shows-4-episodes-or-less/
+
+Death by Lightning, Adolescence, When They See Us, Landscapers, and more make up our list of the best shows with four episodes or fewer.
+---------
+
+# Karl Urban’s Action Hit is Officially One of the Biggest Debuts on Streaming
+
+Movie Features, Mortal Kombat, Mortal Kombat II, Karl Urban, Action
+
+Thu, 13 Aug 2026 10:42:14 GMT
+
+https://collider.com/karl-urban-action-mortal-kombat-2-streaming-hbo-max-august-2026/
+
+Mortal Kombat II, Karl Urban's 2026 action adventure, has topped HBO Max's streaming charts since its release.
+---------
+
+# Every Soulsborne Game, Ranked From Worst to Best
+
+TV, Video Game, Dark Souls, Sekiro, Elden Ring
+
+Thu, 13 Aug 2026 10:36:15 GMT
+
+https://collider.com/soulsborne-games-ranked/
+
+We've ranked every Soulsborne game from worst to best, including Dark Souls, Bloodborne, and Elden Ring.
+---------
+
+# Forget Alan Ritchson’s ‘War Machine,’ Netflix Officially Has a New #1 Sci-Fi Hit
+
+Movie News, Louis Leterrier, Greta Lee, The Last House, Netflix
+
+Thu, 13 Aug 2026 10:30:15 GMT
+
+https://collider.com/netflix-sci-fi-thriller-the-last-house-streaming-success-august-2026/
+
+Netflix and Louis Letterier's new sci-fi thriller The Last House is officially taking over the world as a #1 streaming hit.
+---------
+
+# ‘Frasier’s Biggest Crossover Episode Fixed a Major ‘Cheers’ Mistake
+
+TV Features, Cheers, Frasier, NBC, Sitcom
+
+Thu, 13 Aug 2026 10:29:14 GMT
+
+https://collider.com/frasier-cheers-martin-crane-plot-hole-details/
+
+Frasier created a major Cheers continuity error with Martin Crane, then cleverly explained why Frasier once claimed his father was dead.
+---------
+
+# 25 Best Scary Ocean Thriller Movies
+
+Movie, Thriller, Jaws, The Shallows, All Is Lost
+
+Thu, 13 Aug 2026 10:03:14 GMT
+
+https://collider.com/scary-ocean-movies-thrillers/
+
+From Underwater to Cold Skin, these deep sea thriller movies will make you afraid of the water!
+---------
+
+# David Tennant’s 10/10 Hulu Series Officially Returns in 2026
+
+TV News, Hulu, Rivals, David Tennant, Aidan Turner
+
+Thu, 13 Aug 2026 10:01:14 GMT
+
+https://collider.com/rivals-season-2-part-2-streaming-hulu-november-2026/
+
+One of Hulu's most popular series finally returns in just 3 months, continuing the story of David Tennant's beloved drama.
+---------
+
+# Taylor Sheridan's 10/10 Neo-Western Thriller Officially Surges on Streaming
+
+Movie Features, Taylor Sheridan, Denis Villeneuve, Sicario, Benicio Del Toro
+
+Thu, 13 Aug 2026 09:51:14 GMT
+
+https://collider.com/taylor-sheridan-sicario-crime-thriller-hbo-max-streaming-august-2026/
+
+Taylor Sheridan's screenwriting debut, 2015's Sicario starring Emily Blunt and Josh Brolin, is climbing HBO Max's streaming charts.
+---------
+
 # Legend Of Zelda: Tears Of The Kingdom September DLC Marks The End Of An Era
 
 Gaming, The Legend of Zelda, The Legend of Zelda: Tears of the Kingdom
