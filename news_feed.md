@@ -1,3 +1,311 @@
+# Sydney Sweeney's R-Rated Horror With One Of Her Best Performances Is Now On Netflix
+
+Movies, Masked Recs, Sydney Sweeney, Immaculate
+
+Thu, 13 Aug 2026 17:24:30 GMT
+
+https://screenrant.com/immaculate-movie-sydney-sweeney-now-streaming-netflix/
+
+A perfect Sydney Sweeney horror movie is finally dropping on Netflix, following a stint of acclaimed performances across the horror genre.
+---------
+
+# Why Superman Series With A Perfect Rotten Tomatoes Score Hasn't Received A Season 4 Renewal Yet
+
+TV, My Adventures With Superman, Superman, DC
+
+Thu, 13 Aug 2026 17:21:41 GMT
+
+https://screenrant.com/my-adventures-with-superman-season-4-no-renewal-update-jake-wyatt/
+
+A critically acclaimed Superman TV show is still waiting on word of a renewal, and the showrunner is now speaking out on the major uncertainty.
+---------
+
+# New X-Files Series Lands Release Date as Franchise Veteran Returns for Next Major Release
+
+Comics, The X-Files
+
+Thu, 13 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/x-files-returns-dynamite-series-veteran-returns/
+
+The truth is still out there.
+---------
+
+# NYT Connections Solution And Hints For August 13, 2026
+
+Gaming, Connections, Mobile
+
+Thu, 13 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/nyt-connections-solution-answer-hints-august-13-2026/
+
+Being careful is a core part of today's Connections, creating a puzzle that requires players to be patient when finding the right solutions.
+---------
+
+# Forget Yellowstone, Landman Season 3 Needs To Be More Like Breaking Bad
+
+TV, Landman, Yellowstone, Breaking Bad
+
+Thu, 13 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/landman-season-3-more-breaking-bad-less-yellowstone/
+
+Crime-ridden oilfields and cartel ties? Taylor Sheridan's Landman season 3 needs to a morally gray crime saga instead of just Yellowstone lite.
+---------
+
+# Tomb Raider Catalyst Gets Official Release Date Update
+
+Gaming, Tomb Raider: Catalyst, Triple-A Games, PC
+
+Thu, 13 Aug 2026 16:51:57 GMT
+
+https://screenrant.com/tomb-raider-catalyst-official-release-date-update/
+
+After being officially delayed, Tomb Raider Catalyst just got a major release date update from the Embracer Group, the owner of the franchise’s IP.
+---------
+
+# The End of Oak Street Interview with David Robert Mitchell & JJ Abrams
+
+Movies, The End of Oak Street, J.J. Abrams
+
+Thu, 13 Aug 2026 16:39:44 GMT
+
+https://screenrant.com/video/end-of-oak-street-david-robert-mitchell-jj-abrams-interview/
+
+The End of Oak Street director David Robert Mitchell and producer J.J. Abrams share some of the more surprising influences for their new dinosaur adventure, starring Anne Hathaway and Ewan McGregor.
+---------
+
+# Kaley Cuoco's New HBO Series How To Survive Without Me Poised For Pickup After Positive Studio Reactions
+
+TV, How to Survive Without Me
+
+Thu, 13 Aug 2026 16:31:01 GMT
+
+https://screenrant.com/kaley-cuoco-how-to-survive-without-me-hbo-max-series-pickup-report/
+
+Kaley Cuoco's new HBO show, How To Survive Without Me, appears poised for a series pickup following positive reactions from the studio.
+---------
+
+# Disney+'s 'Clone Wars Meets Star Wars Rebels' Series Officially Returns In 2027
+
+Streaming TV, Masked Recs
+
+Thu, 13 Aug 2026 16:30:11 GMT
+
+https://screenrant.com/ahsoka-season-3-2027-return/
+
+Disney+'s Star Wars: The Clone Wars and Star Wars Rebels crossover (and sequel) series is finally set to return with brand-new episodes in 2027.
+---------
+
+# New Nicole Kidman Thriller Moves Ahead At Paramount+ With Elle Fanning & Josh Lucas
+
+TV, Paramount Plus
+
+Thu, 13 Aug 2026 16:30:11 GMT
+
+https://screenrant.com/discretion-paramount-nicole-kidman-elle-fanning-production-begins/
+
+Amid her success with shows like Lioness and Scarpetta, Nicole Kidman has a new thriller series hitting Paramount+ with Elle Fanning and Josh Lucas.
+---------
+
+# Star Wars Director Reveals How New 8-Episode Series Finally Fixes Lightsaber Fights
+
+Anime, Star Wars: Visions Presents - The Ninth Jedi, Star Wars, Star Wars: Visions
+
+Thu, 13 Aug 2026 17:20:15 GMT
+
+https://www.cbr.com/star-wars-visions-ninth-jedi-lightsaber-fight-fix/
+
+The director of Star Wars: Visions Presents — The Ninth Jedi explains how the series approached fixing one of the franchise's most glaring issues.
+---------
+
+# 5 Classic PS1 RPGs That Are 10/10 Masterpieces
+
+Games, PlayStation (Original), Role Playing Game, Video Games, Final Fantasy
+
+Thu, 13 Aug 2026 17:16:14 GMT
+
+https://www.cbr.com/best-classic-ps1-rpgs/
+
+The PS1 enjoyed a treasured selection of RPGs, from Final Fantasy VII to Xenogears.
+---------
+
+# Mulder and Scully Officially Return for New X-Files Series
+
+Comics, The X-Files
+
+Thu, 13 Aug 2026 17:04:50 GMT
+
+https://www.cbr.com/mulder-scully-officially-return-new-xfiles-series/
+
+Dynamite Entertainment returns to the world of The X-Files for a new ongoing comic book series starring Mulder and Scully
+---------
+
+# Taylor Sheridan’s 3-Season Thriller Officially Scores a History-Making Global TV Win
+
+TV, Lioness
+
+Thu, 13 Aug 2026 17:00:15 GMT
+
+https://www.cbr.com/taylor-sheridan-lioness-global-streaming-success-august-2026/
+
+Forget Yellowstone, there may be a new crown jewel in Taylor Sheridan's epic media empire.
+---------
+
+# HBO's New Harry Potter Update Replaces Voldemort as Season 2's Scariest Villain
+
+TV, Harry Potter, nicholas hoult
+
+Thu, 13 Aug 2026 17:00:15 GMT
+
+https://www.cbr.com/hbo-harry-potter-nicholas-hoult-gilderoy-lockhart-villain-role/
+
+Voldemort represents all the evil in the world but this Harry Potter villain has the potential to be much more insidious.
+---------
+
+# 29 Years Later, Jean Grey's Best Fight Might Have Returned In Brand New Day
+
+Comics, Spider-Man: Brand New Day
+
+Thu, 13 Aug 2026 17:00:15 GMT
+
+https://www.cbr.com/jean-grey-the-hulk-spider-man-brand-new-day/
+
+One of Brand New Day's most memorable fight scenes may have been inspired directly by one obscure comic.
+---------
+
+# Pokémon Will Change Forever In February 2027
+
+Games, Pokemon
+
+Thu, 13 Aug 2026 16:56:15 GMT
+
+https://www.cbr.com/pokemon-bank-end-of-service-february-2027/
+
+Early next year, a major change is coming to the Pokémon games, irreversibly affecting players' ability to transfer certain Pokémon to other games.
+---------
+
+# Netflix Is Officially Losing One of the Best Sci-Fi Shows of the 2010s
+
+TV News, Netflix, Orphan Black, Tatiana Maslany, Sci-Fi
+
+Thu, 13 Aug 2026 17:20:15 GMT
+
+https://collider.com/netflix-has-sealed-the-fate-of-one-of-the-best-sci-fi-thrillers/
+
+Orphan Black, a thrilling sci-fi series, is leaving Netflix on Aug. 31. Discover its captivating story before it's gone!
+---------
+
+# 10 Best NCIS Franchise Characters, Ranked
+
+TV, NCIS, NCIS: Los Angeles, NCIS: New Orleans
+
+Thu, 13 Aug 2026 17:18:15 GMT
+
+https://collider.com/best-ncis-franchise-characters-ranked/
+
+From Ziva David to Abby Sciuto, Jethro Gibbs to Tony DiNozzo, find out where your favorite NCIS characters fall on our ranked list.
+---------
+
+# 10 Greatest Fantasy Video Games of the Last 10 Years
+
+Gaming, Video Game, Fantasy, Final Fantasy VII Remake, Elden Ring
+
+Thu, 13 Aug 2026 17:08:18 GMT
+
+https://collider.com/best-fantasy-video-games-last-10-years-ranked/
+
+Roguelike dungeon crawlers like Hades and bleak action RPGs like Elden Ring are among the greatest fantasy video games released over the last decade.
+---------
+
+# Ewan McGregor Confirms He’s Not Officially Done With Star Wars as He Pushes for Return
+
+Movie News, Ewan McGregor, Star Wars, Obi-Wan Kenobi, The End of Oak Street
+
+Thu, 13 Aug 2026 17:00:15 GMT
+
+https://collider.com/obi-wan-kenobi-ewan-mcgregor-star-wars-return-update/
+
+Ewan McGregor says he is ready for more Obi-Wan Kenobi stories and wants to continue playing the Star Wars icon for years to come.
+---------
+
+# Star Wars Officially Brings Back Mace Windu for New 2026 Release
+
+Collectibles, Samuel L. Jackson, Star Wars, Star Wars: Episode III - Revenge of the Sith, George Lucas
+
+Thu, 13 Aug 2026 16:40:15 GMT
+
+https://collider.com/star-wars-legion-jedi-council-figures-mace-windu-samuel-l-jackson/
+
+Samuel L. Jackson's Mace Windu officially returns to Star Wars with a new release confirmed to launch before the end of 2026.
+---------
+
+# Ridley Scott’s ‘Blade Runner’ Officially Sets 4 New Releases Coming This Year [Exclusive]
+
+Books and Comics News, Blade Runner 2099, Blade Runner 2049, Ridley Scott, Blade Runner
+
+Thu, 13 Aug 2026 16:34:00 GMT
+
+https://collider.com/ridley-scott-blade-runner-tokyo-nexus-die-with-honor-release-date-2026/
+
+Ridley Scott's Blade Runner is returning this November for four new comics, Blade Runner: Tokyo Nexus: Die With Honor.
+---------
+
+# 'Mario Kart' Is Officially No Longer a Nintendo Exclusive
+
+Gaming News, Mario Kart, Nintendo, Wii, Mario
+
+Thu, 13 Aug 2026 16:30:15 GMT
+
+https://collider.com/mario-kart-not-nintendo-exclusive-wii-pc-port-beta/
+
+Look out, Luigi.
+---------
+
+# 'The Odyssey' Star Battles Against a Giant Snake in Survival Thriller Trailer
+
+Movie News, The Odyssey, Thriller
+
+Thu, 13 Aug 2026 17:06:58 GMT
+
+https://movieweb.com/beware-boiuna-trailer/
+
+Lionsgate has released the first trailer for its upcoming survival thriller 'Beware Boiúna,' teasing the giant snake creature feature.
+---------
+
+# Jon Bernthal's New $1 Billion Action Epic Officially Dethrones 'Star Wars' at the Box Office
+
+Movie News, The Odyssey, Star Wars: Episode IV - A New Hope, Box Office Milestones
+
+Thu, 13 Aug 2026 17:00:12 GMT
+
+https://movieweb.com/bernthal-odyssey-beat-star-wars-a-new-hope-box-office/
+
+Jon Bernthal is batting two-for-two in 2026 with two blockbuster films added to his credits.
+---------
+
+# Forget The Avengers, This Jason Statham Team-up Is More Epic Than the MC
+
+Features, Jason Statham, The Expendables
+
+Thu, 13 Aug 2026 17:00:12 GMT
+
+https://movieweb.com/jason-statham-expendables-epic-team-up/
+
+The Avengers movies feature excellent team-ups between beloved Hollywood stars, but this Jason Statham movie is even better.
+---------
+
+# Another 'Doctor Who' Legend Joins 'Only Murders in the Building' Season 6
+
+TV News, Only Murders in the Building, Peter Capaldi
+
+Thu, 13 Aug 2026 16:42:35 GMT
+
+https://movieweb.com/peter-capaldi-only-murders-in-the-building-season-6/
+
+The popular myster series adds another 'Doctor Who' legend to it's sixth season cast.
+---------
+
 # HBO's The Pitt-Style Police Series Hits Major Roadblock At Studio
 
 TV
