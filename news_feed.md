@@ -1,3 +1,47 @@
+# Legend Of Zelda: Tears Of The Kingdom September DLC Marks The End Of An Era
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Tears of the Kingdom
+
+Thu, 13 Aug 2026 09:31:48 GMT
+
+https://screenrant.com/zelda-tears-of-the-kingdom-september-dlc-end-of-era/
+
+The WIlds era has largely drawn to a close for The Legend of Zelda, but we do have one more reason to return before we say goodbye.
+---------
+
+# Star Wars: Jedi Survivor Is Officially Free For Millions Right Now
+
+Gaming, Star Wars Jedi: Survivor, Star Wars
+
+Thu, 13 Aug 2026 09:31:00 GMT
+
+https://screenrant.com/star-wars-jedi-survivor-free-download-limited-time/
+
+Play Star Wars Jedi: Survivor for free with EA Play subscription. Discover epic adventures without the usual price.
+---------
+
+# Prime Video Officially Lands Fox's New '9-1-1' Replacement
+
+TV News, Baywatch, Prime Video, Fox, 9-1-1
+
+Thu, 13 Aug 2026 09:30:15 GMT
+
+https://collider.com/baywatch-reboot-prime-video-streaming/
+
+Prime Video has officially picked up the international streaming rights to FOX's anticipated Baywatch reboot, premiering in 2027.
+---------
+
+# Forget ‘The Punisher,’ Jon Bernthal’s Best Crime Series Is Still a 10/10 Hit
+
+TV News, We Own This City, Jon Bernthal, HBO Max, David Simon
+
+Thu, 13 Aug 2026 09:00:15 GMT
+
+https://collider.com/jon-bernthal-we-own-this-city-streaming-success-august-2026/
+
+As Brand New Day dominates theaters, Jon Bernthal's hit crime thriller explores the effects of unchecked police power. Get more details here.
+---------
+
 # Donnie Yen's New Role Is A Callback To His Legendary 2004 Performance
 
 Gaming, Donnie Yen, Phantom Blade Zero, PC, Triple-A Games
