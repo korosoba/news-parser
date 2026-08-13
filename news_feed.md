@@ -1,3 +1,278 @@
+# 1 Doctor Who Spinoff Remains Unaffected By BBC Overhaul As Production Officially Begins
+
+TV, Doctor Who
+
+Thu, 13 Aug 2026 21:32:18 GMT
+
+https://screenrant.com/doctor-who-animated-spinoff-production-update/
+
+The Doctor Who revival won’t return to the air for at least a few years, but there’s a new spinoff in the works, and a director has just been hired.
+---------
+
+# 8 Years Later, Hulu's Cult Classic Rom-Com Finally Has Its Successor
+
+Anime, Hulu, K-Drama
+
+Thu, 13 Aug 2026 21:30:11 GMT
+
+https://screenrant.com/hulu-rom-com-secretary-kim-successor-iseops-romance/
+
+One of the most iconic office romance K-dramas of all time finally has a successor coming in a new webtoon K-drama adaptation.
+---------
+
+# 7 One Chicago Characters Who Disappeared Without A Trace
+
+Network TV, One Chicago
+
+Thu, 13 Aug 2026 21:30:11 GMT
+
+https://screenrant.com/one-chicago-characters-disappeared-from-the-franchise/
+
+The One Chicago franchise spans nearly 40 seasons and counting, and all three current shows have cut characters without full explanations for why.
+---------
+
+# Netflix's New R-Rated Fantasy Series With 7.14 Billion Minutes Watched & Rare Rotten Tomatoes Score Keeps Major Trend Alive
+
+TV, Masked Recs
+
+Thu, 13 Aug 2026 21:22:21 GMT
+
+https://screenrant.com/netflix-the-east-palace-billion-minutes-watched-august-2026/
+
+Netflix's new R-rated fantasy series has taken over the streaming service's global charts, racking up billions of minutes watched, continuing a trend.
+---------
+
+# The Dog Doesn't Die In The End Of Oak Street, But It's Not Entirely Pet Friendly
+
+Movies, The End of Oak Street
+
+Thu, 13 Aug 2026 21:20:11 GMT
+
+https://screenrant.com/the-end-of-oak-street-does-dog-die/
+
+The End of Oak Street features a few family pets amid the dinosaur carnage and while the dog is safe, the movie isn't otherwise pet friendly.
+---------
+
+# 5 Nintendo Switch Online Free Games That Are 10/10 Masterpieces
+
+Gaming, Nintendo Switch, Triple-A Games
+
+Thu, 13 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/nintendo-switch-online-free-games-masterpieces/
+
+Some of the absolute best games on the Nintendo Switch platforms are available with a NSO membership, and they all stand the test of time.
+---------
+
+# 6 Westerns From The Last 30 Years That Rival The Genre's Golden Age
+
+Movies, Western
+
+Thu, 13 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/best-westerns-movies-last-30-years/
+
+Though the heyday of the western genre is long gone, these six modern movies rival anything that came out during the Golden Age.
+---------
+
+# Stuart Fails To Save The Universe's Baffling Cameo Creates A The Big Bang Theory Plot Hole
+
+Network TV, Stuart Fails to Save the Universe, The Big Bang Theory
+
+Thu, 13 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/stuart-fails-to-save-the-universe-penn-cameo-the-big-bang-theory-plot-hole/
+
+Despite its multiversal story, Stuart Fails to Save the Universe manages to create a The Big Bang Theory plot hole because of a mind-boggling cameo.
+---------
+
+# Disney’s $389M Avatar Replacement Topped Summer Charts With Over 2.6B Views
+
+Movies, Masked Recs
+
+Thu, 13 Aug 2026 20:59:58 GMT
+
+https://screenrant.com/pixar-hoppers-disney-viewership-streaming-charts-august-2026/
+
+After grossing $389 million worldwide, Disney's movie with strong parallels to Avatar dominated this summer's streaming charts.
+---------
+
+# Netflix's Megahit Action Thriller Counterattack With 69M Views Is Expanding Into A Major Franchise
+
+Movies, Netflix
+
+Thu, 13 Aug 2026 20:44:26 GMT
+
+https://screenrant.com/netflix-counterattack-movie-franchise-plans-report/
+
+Netflix's megahit action thriller is expanding into a major franchise after the movie cracked the all-time Most Popular List with 69 million views.
+---------
+
+# Frieren Beyond Journey's End Gets First-Ever Official MMORPG Crossover on September 9
+
+Anime, Frieren: Beyond Journey's End, MapleStory
+
+Thu, 13 Aug 2026 21:20:15 GMT
+
+https://www.cbr.com/frieren-maplestory-mmorpg-collab/
+
+Frieren: Beyond Journey’s End has joined forces with MapleStory to bring anime’s most beloved elfen mage into her first big MMORPG adventure.
+---------
+
+# 5 Open-World Action RPGs That Are 10/10 Masterpieces
+
+Games, action rpg, RPG, The Witcher 3: Wild Hunt, Fallout New Vegas
+
+Thu, 13 Aug 2026 21:15:15 GMT
+
+https://www.cbr.com/open-world-action-rpg-masterpieces/
+
+Action role-playing games are one of the most impactful subgenres of the traditional RPG, so let's take a look at the best of the best.
+---------
+
+# Project Hail Mary Creator’s New Space Opera Casts Anthony Mackie in Lead Role
+
+Movies, Project Hail Mary, Sci-Fi, Innovation, Audible
+
+Thu, 13 Aug 2026 21:09:16 GMT
+
+https://www.cbr.com/exoplanet-anthony-mackie-andy-weir-bejamin-percy/
+
+Andy Weir's Exoplanet recruits some top talent.
+---------
+
+# Jurassic Park Meets Resident Evil in New Survival Horror Game Out Today
+
+Games, Steam
+
+Thu, 13 Aug 2026 21:00:16 GMT
+
+https://www.cbr.com/clawed-survival-horror-game-available-steam/
+
+Try to survive in a world inhabited by dinosaurs in the new horror game that's just been released.
+---------
+
+# JJ Abrams' 5-Season Cyberpunk Series With 92% RT Conquers the PVOD Charts 15 Years Later
+
+TV, Person of Interest, Sci-Fi, Crime
+
+Thu, 13 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/jj-abrams-person-of-interest-sci-fi-crime-drama-success-august-2026/
+
+Person of Interest, considered one of the best sci-fi series ever broadcast, is back as a PVOD hit.
+---------
+
+# The 8 Strongest Weapons In Disney Movies, Ranked
+
+Movies, Disney, Disney+, Animation
+
+Thu, 13 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/strongest-weapons-disney-movies-ranked-list/
+
+Disney's animated movies have no shortage of powerful weapons or magical tools, but these eight weapons are the strongest of the bunch.
+---------
+
+# Zelda: Majora's Mask Finally Gets the Sequel Fans Waited 25 Years For
+
+Games, The Legend of Zelda: Majora's Mask, The Legend of Zelda, Nintendo
+
+Thu, 13 Aug 2026 20:39:15 GMT
+
+https://www.cbr.com/zelda-glass-of-fate-fan-game-majoras-mask-sequel/
+
+Majora's Mask left some loose ends in the Hero of Time’s story, so The Legend of Zelda: Glass of Fate has lots to cover when it arrives February 2026.
+---------
+
+# 10 Best Fantasy Books of the 1980s
+
+Books and Comics, Fantasy, Books, 1980s, Stephen King
+
+Thu, 13 Aug 2026 21:19:14 GMT
+
+https://collider.com/best-fantasy-books-1980s-ranked/
+
+Fevre Dream by George R.R. Martin and The Gunslinger by Stephen King are among the best fantasy books of the 1980s decade.
+---------
+
+# 10 Best Gangster Movies in Film History
+
+Movie, Goodfellas, The Godfather, The Godfather: Part II, City of God
+
+Thu, 13 Aug 2026 21:09:14 GMT
+
+https://collider.com/best-gangster-movies-in-film-history/
+
+The best gangster movies in cinema history include all-timers like the first two Godfather films, Scarface, and Once Upon a Time in America.
+---------
+
+# 10 Most Impressive Action Movies of All Time
+
+Movie, Mad Max: Fury Road, The Matrix, The Raid 2, The Odyssey
+
+Thu, 13 Aug 2026 20:57:14 GMT
+
+https://collider.com/most-impressive-action-movies-all-time-ranked/
+
+Masterful action movies like Seven Samurai, Mad Max: Fury Road, and Crouching Tiger, Hidden Dragon rank among the most impressive of all time.
+---------
+
+# HBO Max Confirms Lackluster Fate of 'The Pitt'-Esque Series
+
+TV News, Milo Ventimiglia
+
+Thu, 13 Aug 2026 21:23:12 GMT
+
+https://movieweb.com/american-blue-hbo-max-canceled/
+
+HBO Max passes on the pilot of 'American Blue,' signaling shift in streaming strategy.
+---------
+
+# 'House of the Dragon': 9 Major Book Events That Season 4 Must Adapt
+
+TV Lists, House of the Dragon
+
+Thu, 13 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/house-of-the-dragon-season-4-book-events/
+
+It's still possible to close out this story properly and satisfy book fans.
+---------
+
+# Sydney Sweeney Meets Tarantino in This R-Rated 107-Minute Western Thriller That's a Hit on Streaming
+
+Movie News, Sydney Sweeney, Americana, Hot on Streaming, Western, Thriller
+
+Thu, 13 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/sydney-sweeney-americana-hbo-max-august-2026/
+
+The 'Euphoria' and 'Housemaid star takes the lead in this wildly entertaining modern-day western.
+---------
+
+# Ridley Scott's 'Blade Runner' Confirms Another Sci-Fi Spin-Off for 2026
+
+Movie News, Blade Runner, Blade Runner 2099
+
+Thu, 13 Aug 2026 20:55:20 GMT
+
+https://movieweb.com/blade-runner-spin-off-tokyo-nexus-die-with-honor-comic/
+
+A new comic series set in the world of 'Blade Runner' is arriving in November.
+---------
+
+# Michael Fassbender Sci-Fi Action Movie Debuts Chaotic New Look at the Epic
+
+Movie News, Hope
+
+Thu, 13 Aug 2026 20:41:51 GMT
+
+https://movieweb.com/hope-bts-promo-video/
+
+Neon has provided a small glimpse at the ambitious scale of the production of 'Hope.'
+---------
+
 # Gerard Butler's 109-Minute Action Thriller Is One Of Netflix's Biggest Movies
 
 Movies, Masked Recs
