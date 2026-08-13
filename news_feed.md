@@ -1,3 +1,344 @@
+# HBO's The Pitt-Style Police Series Hits Major Roadblock At Studio
+
+TV
+
+Thu, 13 Aug 2026 16:06:49 GMT
+
+https://screenrant.com/hbos-the-pitt-style-police-series-hits-major-roadblock-at-studio/
+
+After generating buzz upon its announcement, HBO’s The Pitt-style police series, American Blue, has just hit a major snag in development.
+---------
+
+# Why Batman's Underrated 13-Episode Show Was Really Cancelled
+
+TV, Gotham Knights, Gotham Knights - Season 1, Misha Collins, DC
+
+Thu, 13 Aug 2026 16:05:03 GMT
+
+https://screenrant.com/batman-gotham-knights-series-cancelled-why-explained-misha-collins/
+
+The Batman franchise has been adapted numerous times. One short-lived TV show was axed for a very specific reason, according to a cast member.
+---------
+
+# The BBC's 36-Part Gangster Series Is A Rare Show With No Bad Episodes
+
+Classic TV, Masked Recs
+
+Thu, 13 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/peaky-blinders-no-bad-episodes/
+
+Even some of the greatest shows of all time have a few outings that fall below par, but this British masterpiece had a flawless 36-episode run.
+---------
+
+# Taylor Sheridan's Yellowstone Spinoff With Matthew McConaughey Gets First Update In 2 Years
+
+TV, Yellowstone
+
+Thu, 13 Aug 2026 15:59:59 GMT
+
+https://screenrant.com/yellowstone-spinoff-matthew-mcconaughey-reports-update/
+
+Matthew McConaughey has set the record straight on his Yellowstone future, offering an update on talks with franchise creator Taylor Sheridan.
+---------
+
+# Hogwarts Legacy Officially Switches Genres In This Free DLC
+
+Gaming, Hogwarts Legacy, Hogwarts Legacy 2, PC, Harry Potter
+
+Thu, 13 Aug 2026 15:59:56 GMT
+
+https://screenrant.com/hogwarts-legacy-horror-dlc-haunted-hogsmede/
+
+Hogwarts Legacy is officially getting a sequel, but this free DLC you can play now gives players a completely different experience.
+---------
+
+# How To Train Your Dragon 2 Gets Glowing Early Review From Hiccup Actor
+
+Movies, How To Train Your Dragon 2, How to Train Your Dragon, Mason Thames
+
+Thu, 13 Aug 2026 15:55:43 GMT
+
+https://screenrant.com/how-to-train-your-dragon-2-early-review-glowing-mason-thames/
+
+Exclusive: Hiccup actor Mason Thames offers a glowing early review for How to Train Your Dragon 2 as he teases "new level" for the sequel.
+---------
+
+# Game Of Thrones: War For Westeros Official Trailer Released
+
+Gaming, Game of Thrones: War for Westeros, Game of Thrones, Game Of Thrones, PC
+
+Thu, 13 Aug 2026 15:54:58 GMT
+
+https://screenrant.com/game-of-thrones-war-for-westeros-trailer-reveal/
+
+Game of Thrones: War for Westeros just unveiled an official trailer, with an extended gameplay reveal expected to arrive later this month at Gamescom.
+---------
+
+# How Powerful Is Jean Grey In The MCU Compared To Sentry & Franklin Richards?
+
+Movies, Marvel Cinematic Universe, Spider-Man: Brand New Day
+
+Thu, 13 Aug 2026 15:50:11 GMT
+
+https://screenrant.com/jean-grey-mcu-mavel-powers-abilities-sentry-franklin-richards-comparison/
+
+Jean Grey is already one of the MCU's most powerful mutants, but how does she compare to Sentry and Franklin Richards as her powers continue to grow?
+---------
+
+# It's The End Of An Era For Netflix's Smash Hit With 9.9 Billion Minutes Viewed
+
+New Movies, Voicemails for Isabelle
+
+Thu, 13 Aug 2026 15:50:11 GMT
+
+https://screenrant.com/voicemails-for-isabelle-netflix-end-era/
+
+Netflix's Voicemails for Isabelle has been a global smash hit, earning 9.9 billion minutes viewed, but the Zoey Deutch rom-com has ended an era.
+---------
+
+# Horror Icon John Carpenter Comes to Comics for His New Masterpiece, CATHEDRAL (Review)
+
+Comics, John Carpenter
+
+Thu, 13 Aug 2026 15:30:11 GMT
+
+https://screenrant.com/john-carpenter-cathedral-storm-king-review/
+
+Go below
+---------
+
+# 10 Anime Arcs With the Darkest Endings
+
+Anime, Attack on Titan, Berserk, Neon Genesis Evangelion
+
+Thu, 13 Aug 2026 16:15:15 GMT
+
+https://www.cbr.com/anime-arcs-with-darkest-endings/
+
+Not all anime arcs end on a happy note, and these ten endings proved that the darkest conclusions often stay in the memories of viewers the most.
+---------
+
+# The Lowest-Grossing Despicable Me Movie Gets Redemption as the #1 Film on Digital
+
+Movies, Despicable Me, Minions & Monsters
+
+Thu, 13 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/despicable-me-minions-monsters-movie-pvod-success-august-2026/
+
+The box office for the latest Minions movie hints audiences have lost interest in the Despicable Me franchise, but the streaming charts beg to differ.
+---------
+
+# Overhated & Underrated: Jurassic World Rebirth Is Better Than Audiences Say
+
+Movies, Overhated & Underrated, Jurassic World Rebirth
+
+Thu, 13 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/overhated-underrated-jurassic-world-rebirth/
+
+Jurassic Park has many sequels but one of the best remains overhated by the franchise's fans.
+---------
+
+# Power Rangers Just Changed the Green Ranger's Name Forever
+
+Comics, Power Rangers
+
+Thu, 13 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/power-rangers-green-new-name-revealed/
+
+Tommy Oliver has a brand-new mantle, and he's carrying it into a terrifying future as best he can alongside some surprising allies.
+---------
+
+# PlayStation Officially Makes 10/10 Masterpiece PS2 Game Free On PS Plus
+
+Games, TimeSplitters, PlayStation (Original)
+
+Thu, 13 Aug 2026 15:35:15 GMT
+
+https://www.cbr.com/playstation-free-games-timesplitters-free-on-ps-plus/
+
+One of the best PlayStation 2 games of all time is officially free to play for PlayStation Plus subscribers, at least for the time being.
+---------
+
+# Every Best Director Oscar Winner of the 1980s, Ranked
+
+Movie, Reds, Academy Awards, Directors, Out of Africa
+
+Thu, 13 Aug 2026 16:21:15 GMT
+
+https://collider.com/oscars-best-director-winners-1980s-ranked/
+
+From Miloš Forman's work on Amadeus to Oliver Stone helming Platoon, we've ranked every Best Director Oscar winner of the 1980s decade.
+---------
+
+# The Fate of ‘S.W.A.T.’s Reboot Has Officially Been Decided
+
+TV News, S.W.A.T., S.W.A.T. Exiles, Starz
+
+Thu, 13 Aug 2026 16:20:15 GMT
+
+https://collider.com/swat-reboot-swat-exiles-season-2-renewed/
+
+It has officially been decided whether the reboot of CBS' hit procedural S.W.A.T will return for a second season or not. Here's what you need to know.
+---------
+
+# Rebecca Ferguson's Apple TV Sci-Fi Series Officially Reveals a Major Secret in New Look [Exclusive]
+
+Exclusives, Silo, Colin Hanks, Rebecca Ferguson, Apple TV
+
+Thu, 13 Aug 2026 16:15:15 GMT
+
+https://collider.com/silo-season-3-episode-7-colin-hanks-rebecca-ferguson-apple-tv/
+
+A new sneak peek at Silo Season 3, Episode 7 welcomes Colin Hanks as a billionaire with the "world's most important secret" to share.
+---------
+
+# The NC-17 Horror Movie Guillermo del Toro Called “Insane” Gets New 4K Trailer
+
+Movie News, The Devils, Vanessa Redgrave, Guillermo del Toro, Horror
+
+Thu, 13 Aug 2026 16:02:57 GMT
+
+https://collider.com/the-devils-4k-trailer-re-release-directors-cut/
+
+Watch the restored trailer for Ken Russell’s The Devils, returning to theaters uncut for one week beginning October 16.
+---------
+
+# New ‘The Walking Dead: Dead City’ Sneak Peek Officially Puts Negan Back to Work [Exclusive]
+
+TV News, Jeffrey Dean Morgan, The Walking Dead: Dead City, The Walking Dead, Lauren Cohan
+
+Thu, 13 Aug 2026 16:00:15 GMT
+
+https://collider.com/walking-dead-dead-city-season-3-episode-4-sneak-peek/
+
+Watch an exclusive The Walking Dead: Dead City Season 3, Episode 4 sneak peek teasing the strange connection between Negan and Maggie.
+---------
+
+# One of The Lord of the Rings Most Iconic Releases Is Officially Back
+
+Gaming News, The Lord of the Rings, Peter Jackson, PlayStation 5, The Lord of the Rings: The Hunt for Gollum
+
+Thu, 13 Aug 2026 15:50:15 GMT
+
+https://collider.com/the-lord-of-the-rings-war-in-the-north-legacy-edition-next-generation-release/
+
+The Lord of the Rings: War in the North has been remastered for next-generation consoles with a new Legacy Edition release out now.
+---------
+
+# The Best Fantasy TV Adaptation Is Hiding in Plain Sight After Netflix Quietly Cancelled It
+
+TV Features, Fantasy, Netflix, Books, Redwall
+
+Thu, 13 Aug 2026 15:49:16 GMT
+
+https://collider.com/redwall-best-fantasy-tv-adaptation-netflix-cancelled/
+
+One of the best fantasy book series of all time still deserves another adaptation in the wake of Netflix quietly scrapping its plans.
+---------
+
+# 'Rings of Power' Is Officially Destroying Its Winning Formula in Season 3
+
+TV News, The Lord of the Rings: The Rings of Power, Prime Video, The Lord of the Rings: The Hunt for Gollum, Peter Jackson
+
+Thu, 13 Aug 2026 15:37:20 GMT
+
+https://collider.com/lord-of-the-rings-rings-of-power-season-3-release-schedule-change/
+
+The Lord of the Rings: The Rings of Power is changing its winning formula with a controversial Season 3 release schedule change.
+---------
+
+# 13 Best 'Ted Lasso' Characters
+
+TV, Ted Lasso, Apple TV, Comedy, Television
+
+Thu, 13 Aug 2026 15:36:15 GMT
+
+https://collider.com/best-ted-lasso-characters-ranked/
+
+From new faces like Coach Chilton to fan favorites like Keeley Jones, practically every character on Apple TV's Ted Lasso is a joy to watch.
+---------
+
+# Kathy Bates Returns to Horror in Teaser for Hit Thriller Streaming Series
+
+TV News, Kathy Bates, American Horror Story
+
+Thu, 13 Aug 2026 16:18:35 GMT
+
+https://movieweb.com/american-horror-story-season-13-teaser-trailer-kathy-bates/
+
+'American Horror Story' Season 13 sees Kathy Bates and several other stars return.
+---------
+
+# Dafne Keen Gives Seal of Approval to Former Co-Star's MCU 'X-Men' Casting
+
+Movie News, Dafne Keen, X-Men
+
+Thu, 13 Aug 2026 16:16:12 GMT
+
+https://movieweb.com/dafne-keen-kit-connor-x-men/
+
+With new stars about to take on major X-Men characters, MCU veteran Dafne Keen shared her feelings about him taking on such a massive role.
+---------
+
+# CBS Officially Reveals Major 'Marshals' Season 2 Casting Announcement
+
+TV News, Marshals, Yellowstone
+
+Thu, 13 Aug 2026 16:13:58 GMT
+
+https://movieweb.com/cbs-marshals-season-2-marque-richardson-cast/
+
+'Marshals' Season 2 adds Marque Richardson as a recurring Assistant U.S. Attorney, and expands Morgan Lindholm's role as Cal's estranged daughter.
+---------
+
+# Banned Psychological Thriller Masterpiece Finally Reveals Trailer 55 Years Later
+
+Movie News, The Devils
+
+Thu, 13 Aug 2026 16:05:05 GMT
+
+https://movieweb.com/warner-bros-clockwork-the-devils-4k-release-trailer/
+
+The intense new look at the restoration promises a tour de force of filmmaking.
+---------
+
+# Tom Hardy & Pierce Brosnan Go to War in the Explosive 'MobLand' Season 2 Trailer
+
+TV Trailers, MobLand, Tom Hardy, Pierce Brosnan, Paramount Plus
+
+Thu, 13 Aug 2026 16:01:52 GMT
+
+https://movieweb.com/tom-hardy-pierce-brosnan-mobland-season-2-trailer/
+
+War is here in the new trailer for 'MobLand' Season 2.
+---------
+
+# 7 Ways 'Ted Lasso' Season 4 Reveals AFC Richmond Has Changed Since Season 3
+
+TV Lists, Ted Lasso, Apple TV, Comedy
+
+Thu, 13 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/ted-lasso-season-4-changes-since-season-3/
+
+As 'Ted Lasso' returns, it's worth looking at what has changed with the Apple TV show's central location and characters in the years since Season 3.
+---------
+
+# HBO Officially Releases First 5 Minutes of DC's 'Lanterns'
+
+TV News, Lanterns, HBO Max
+
+Thu, 13 Aug 2026 15:28:43 GMT
+
+https://movieweb.com/lanterns-hbo-first-five-minutes-video/
+
+DC Studios and Warner Bros. released the longest piece of new material yet from 'Lanterns,' highlighting the show's first five minutes of footage.
+---------
+
 # Spider-Man: Brand New Day Is Officially One Of The Highest-Grossing Movies Ever
 
 Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
