@@ -1,3 +1,212 @@
+# Tracker Special Cast Addition Revealed For Season 4
+
+Network TV, Tracker
+
+Fri, 14 Aug 2026 12:46:41 GMT
+
+https://screenrant.com/tracker-season-4-jane-morris-cast-guest/
+
+A few weeks before CBS's primetime lineup returns with fresh episodes, new information reveals an exciting guest addition for Tracker season 4.
+---------
+
+# Jojo's Bizarre Adventure Has Officially Returned
+
+Gaming, JoJo’s Bizarre Adventure
+
+Fri, 14 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/jojos-bizarre-adventure-golden-spirit/
+
+Download JoJo’s Bizarre Adventure: Golden Spirit RPG on mobile today!
+---------
+
+# 59 Years Later, Star Trek Finally Reveals The Deadly Weapon Klingons Used On Nimoy’s Spock
+
+TV, Star Trek, Star Trek: Strange New Worlds, Star Trek: The Original Series
+
+Fri, 14 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-klingon-mind-scanner-tos-spock-reveal/
+
+Star Trek: Strange New Worlds season 4's noir episode is a precursor to TOS' "Errand of Mercy" and finally reveals the Klingons' famed mind scanner.
+---------
+
+# Avatar's One Earthbender Stronger Than Toph Is Ridiculously Overpowered
+
+TV, Avatar: The Last Airbender
+
+Fri, 14 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/avatar-yun-stronger-earthbender-toph/
+
+One regular Earthbender easily overshadows Toph and Aang himself in Avatar: The Last Airbender, and yet they're virtually lost to history.
+---------
+
+# One Of The 21st Century's Best Sci-Fi Movies Released 17 Years Ago & We Still Need A Sequel
+
+Classic Movies, District 9
+
+Fri, 14 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/district-9-best-sci-fi-movies-21st-century-sequel/
+
+An incredible sci-fi movie that holds up as one of the 21st century's best came out 17 years ago today, and it still deserves praise and a sequel.
+---------
+
+# Star Trek’s New Scotty Pays Tribute To O.G. Actor James Doohan
+
+TV, Star Trek, Star Trek: The Original Series, Star Trek: Strange New Worlds
+
+Fri, 14 Aug 2026 12:01:31 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-scotty-martin-quinn-james-doohan-tribute/
+
+Martin Quinn plays Scotty on Star Trek: Strange New Worlds, and the Scottish actor took the time to homage his predecessor, James Doohan.
+---------
+
+# Star Wars: Masters Of The Force Officially Announced
+
+Gaming, Star Wars, Star Wars: The Old Republic
+
+Fri, 14 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/star-wars-old-republic-masters-of-the-force-announced/
+
+Discover new features in SWTOR's 8.0 update: Masters of the Force, level cap increase, and more!
+---------
+
+# Mickey Haller's Weirdest Case Will Never Happen In The Lincoln Lawyer
+
+Streaming TV, The Lincoln Lawyer
+
+Fri, 14 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/the-lincoln-lawyer-reversal-case-not-in-netflix-show/
+
+Mickey Haller's most bizarre case won't appear in The Lincoln Lawyer series on Netflix, but there's a genuine reason behind its total disappearance.
+---------
+
+# Star Wars/Marvel Crossover Must Deliver This 1 Fight
+
+Comics, Star Wars, Marvel, Anakin Skywalker/Darth Vader, Hulk
+
+Fri, 14 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/star-wars-marvel-crossover-hulk-darth-vader/
+
+Marvel Comics' Star Wars/Marvel: Hope Assembles launches at the beginning of 2027, and there's a specific fight the crossover should feature.
+---------
+
+# Ben Affleck's Top 2026 Streaming Movie Is A Great Sign For Netflix's Upcoming Crime Thriller
+
+New Movies, Animals, Ben Affleck
+
+Fri, 14 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/ben-affleck-netflix-movies-the-rip-success-animals/
+
+Ben Affleck starred in 2026's biggest streaming movie, and the film's success should be a sign of things to come for another Netflix crime thriller.
+---------
+
+# After 19 Years, Marvel Officially Confirms Peter Parker and Mary Jane Are Back Together
+
+Comics, Spider-Man
+
+Fri, 14 Aug 2026 12:15:15 GMT
+
+https://www.cbr.com/mj-loves-spider-man-release-date-confirmed/
+
+Marvel is finally giving Peter Parker and Mary Jane Watson the chance to live happily ever after, and it only took nearly two decades of heartbreak.
+---------
+
+# HBO Changed George RR Martin's Game of Thrones Canon to Erase a HOTD Controversy 2 Years Later
+
+TV, Game Of Thrones, House of the Dragon, George R.R. Martin, Innovation
+
+Fri, 14 Aug 2026 12:00:15 GMT
+
+https://www.cbr.com/hbo-house-of-the-dragon-blood-and-cheese-plot/
+
+HBO's House of the Dragon has strayed from book canon a time or two, but this time, it paid off.
+---------
+
+# 3 Near-Perfect Netflix Series To Binge This Weekend (Aug 15-16)
+
+TV, My Brilliant Career, Tires, I Am Not Okay with This, Netflix
+
+Fri, 14 Aug 2026 12:42:15 GMT
+
+https://collider.com/netflix-best-shows-to-binge-august-15-2026/
+
+My Brilliant Career, Tires, and I Am Not Okay With This make up our list of the best Netflix shows to binge the weekend of August 15th, 2026.
+---------
+
+# 10 Greatest Magical Realism Books of All Time
+
+Books and Comics, Books, One Hundred Years of Solitude, Like Water for Chocolate, Pedro Páramo
+
+Fri, 14 Aug 2026 12:23:14 GMT
+
+https://collider.com/best-magical-realism-books-all-time-ranked/
+
+Foundational masterpieces like Pedro Páramo and modern classics like One Hundred Years of Solitude are among the all-time best magical realism books.
+---------
+
+# The Most Terrifying Horror Franchise of the Decade Officially Returns Next Month
+
+Books and Comics News, Smile, Smile 2, Horror, Comics
+
+Fri, 14 Aug 2026 12:00:14 GMT
+
+https://collider.com/smile-prequel-comic-preview-any-given-smile-1995-horror/
+
+The Smile franchise heads back to 1995 in Any Given Smile, a new prequel that brings its supernatural curse into the world of professional football.
+---------
+
+# 10 Forgettable Performances That Somehow Won Oscars
+
+Movie, Academy Awards, The Artist, Gary Oldman, Renée Zellweger
+
+Fri, 14 Aug 2026 11:57:16 GMT
+
+https://collider.com/forgettable-movie-performances-won-oscars/
+
+Gary Oldman on an Oscar for Darkest Hour. Renée Zellweger won an Oscar for Judy. Nobody really remembers these movies at all anymore, though.
+---------
+
+# Forget Yellowstone, the Best Neo-Western on Streaming Is Officially Back
+
+Movie Reviews, Yellowstone, Sicario, Taylor Sheridan, Emily Blunt
+
+Fri, 14 Aug 2026 11:46:15 GMT
+
+https://collider.com/sicario-better-neo-western-than-yellowstone-taylor-sheridan/
+
+Sicario beats Yellowstone as the best neo-Western in a film about an FBI agent who is pulled into hunting a Mexican drug cartel.
+---------
+
+# The Best Rock Song of Every Year of the 1990s
+
+Music Features, Music, 1990s, Nirvana, Rock
+
+Fri, 14 Aug 2026 11:41:14 GMT
+
+https://collider.com/best-rock-songs-1990s-every-year/
+
+When discussing the best rock songs of every year of the 1990s, "Smells Like Teen Spirit" by Nirvana and "Creep" by Radiohead inevitably will come up.
+---------
+
+# Why We Still Need a Sequel to This Modern Action Sci-Fi Masterpiece 17 Years Later
+
+Features, District 9, Neill Blomkamp
+
+Fri, 14 Aug 2026 12:00:12 GMT
+
+https://movieweb.com/district-9-needs-sequel-17-years/
+
+Celebrating its 17th anniversary this August, Neill Blomkamp's politically charged sci-fi epic 'District 9' deserves a big-screen sequel.
+---------
+
 # Honkai Star Rail 4.5 Update: Release Date, Livestream Codes, New Characters, Banners, & More
 
 Gaming, Honkai: Star Rail, PC, Live Service Games
