@@ -1,3 +1,190 @@
+# Honkai Star Rail 4.5 Update: Release Date, Livestream Codes, New Characters, Banners, & More
+
+Gaming, Honkai: Star Rail, PC, Live Service Games
+
+Fri, 14 Aug 2026 11:33:40 GMT
+
+https://screenrant.com/honkai-star-rail-45-release-codes-characters-banners/
+
+All of the main details about Honkai: Star Rail 4.5 have been officially revealed by HoYoverse, including its release date, new characters, and more.
+---------
+
+# Game Of Thrones X House Of The Dragon Crossover Officially Arrives Next Week
+
+Gaming, Game of Thrones, House of the Dragon
+
+Fri, 14 Aug 2026 11:30:12 GMT
+
+https://screenrant.com/game-of-thrones-house-of-dragon-crossover/
+
+Discover how Game of Thrones: Legends integrates characters from House of the Dragon in its upcoming expansion.
+---------
+
+# Brandon Sanderson's Stormlight: Tidebreakers Officially Announced, Coming October 2027
+
+Gaming, The Cosmere RPG, The Stormlight Archive, The Cosmere, Brandon Sanderson, PC
+
+Fri, 14 Aug 2026 11:26:50 GMT
+
+https://screenrant.com/brandon-sanderson-stormlight-tidebreakers-october-2027/
+
+Brandon Sanderson's Stormlight: Tidebreakers is a brand-new adventure expected to release in October 2027 as an official follow-up to Stonewalkers.
+---------
+
+# Pokémon Scarlet & Violet Free Download Officially Available Until August 20
+
+Gaming, Pokemon
+
+Fri, 14 Aug 2026 11:01:11 GMT
+
+https://screenrant.com/pokemon-scarlet-violet-tera-raid-august-2026-live-details/
+
+Join the limited-time Pokémon Scarlet & Violet events featuring Annihilape and Tera Raids until August 20!
+---------
+
+# Paramount's G.I. Joe Reboot Return Chances Addressed By Star After Crossover Plans
+
+Movies, G.I. Joe
+
+Fri, 14 Aug 2026 11:01:11 GMT
+
+https://screenrant.com/paramount-gi-joe-reboot-return-crossover-tease-michael-kelly/
+
+Exclusive: A recent G.I. Joe star addresses their potential franchise return for Paramount's reboot after the tease of a Transformers crossover.
+---------
+
+# 10 Funniest The Far Side Comics About the Afterlife
+
+Comics, The Far Side
+
+Fri, 14 Aug 2026 11:00:18 GMT
+
+https://www.cbr.com/funniest-the-far-side-comics-set-in-the-afterlife/
+
+The Far Side was always a go-to for fans of absurdist humor, especially when it came to macabre jokes and unforgettable strips about the afterlife.
+---------
+
+# 10 Genuinely Perfect Superhero Movies
+
+Movie, Superhero, The Dark Knight, The Incredibles, Black Panther
+
+Fri, 14 Aug 2026 11:36:14 GMT
+
+https://collider.com/perfect-superhero-movies/
+
+From Black Panther to The Incredibles, these superhero movies are simply the best.
+---------
+
+# 10 Crime Shows That Are the Perfect Weekend Binge
+
+TV, Crime, Escape At Dannemora, Dopesick, Mare of Easttown
+
+Fri, 14 Aug 2026 11:22:16 GMT
+
+https://collider.com/crime-shows-perfect-weekend-binge/
+
+Discover short, gripping crime TV series perfect for binge-watching over one weekend, from Mare of Easttown to Escape at Dannemora.
+---------
+
+# 10 Greatest Cult Classic Books of All Time
+
+Books and Comics, Books, The Hitchhiker's Guide to the Galaxy, Science Fiction, Thriller
+
+Fri, 14 Aug 2026 11:22:16 GMT
+
+https://collider.com/best-cult-classic-books-all-time-ranked/
+
+The best cult classic books remain loved deeply, if not widely, including titles like A Confederacy of Dunces and We Have Always Lived in the Castle.
+---------
+
+# CW's Fan-Favorite Horror Comedy Makes Its Return to Free Streaming
+
+TV Features, iZombie, The CW, Rose McIver, Rob Thomas
+
+Fri, 14 Aug 2026 11:20:15 GMT
+
+https://collider.com/izombie-rose-mciver-pluto-free-streaming/
+
+Before Ghosts, Rose McIver starred as a crime-solving zombie on the CW. Now, iZombie returns to a new streaming service years after leaving Netflix!
+---------
+
+# 10 Best Screenplays in Film History
+
+Movie, All About Eve, Eternal Sunshine of the Spotless Mind, Casablanca, The Godfather
+
+Fri, 14 Aug 2026 11:08:15 GMT
+
+https://collider.com/best-screenplays-film-history/
+
+Essential, classic movies like Casablanca, All About Eve, and Pulp Fiction have some of the best screenplays in the history of cinema.
+---------
+
+# Marvel’s Most Infamous Cancelled Series Officially Resurfaces 9 Years Later
+
+TV News, New Warriors, Milana Vayntrub, Squirrel Girl, Marvel
+
+Fri, 14 Aug 2026 11:00:18 GMT
+
+https://collider.com/marvel-cancelled-new-warriors-series-images/
+
+Marvel’s cancelled New Warriors series, which would have introduced Squirrel Girl to the MCU, has resurfaced online almost a decade later.
+---------
+
+# Kristen Stewart and Alia Shawkat on Their "Beavis and Butt-Head" Chemistry in This Wild New Stoner Comedy
+
+Exclusives, The Wrong Girls, Kristen Stewart, Alia Shawkat, Neon
+
+Fri, 14 Aug 2026 11:00:18 GMT
+
+https://collider.com/the-wrong-girls-kristen-stewart-alia-shawkat-interview/
+
+Kristen Stewart and Alia Shawkat discuss their on-screen Beavis and Butt-Head energy, director Dylan Meyer, and why it was an unbelievable production.
+---------
+
+# One of Netflix's Biggest Ever Action Thrillers Is Officially Launching a New Streaming Franchise
+
+Movie News, Netflix, Action, Thriller
+
+Fri, 14 Aug 2026 11:06:48 GMT
+
+https://movieweb.com/netflix-counterattack-franchise-expansion-action/
+
+An expansion is now in the works after the first outing became one of Netflix's biggest movies of all time.
+---------
+
+# Netflix Finds New Action Hit With Gerard Butler's 109-Minute Revenge-Fueled Thriller
+
+Movie News, Law Abiding Citizen, Hot on Streaming, Gerard Butler
+
+Fri, 14 Aug 2026 11:00:16 GMT
+
+https://movieweb.com/law-abiding-citizen-streaming-hit-netflix-august-2026/
+
+There is simply no other project as controversial for Hollywood star Gerard Butler.
+---------
+
+# Henry Cavill's Overlooked Action Spy Thriller Remake Deserved a Huge Franchise
+
+Features, Henry Cavill, The Man From U.N.C.L.E.
+
+Fri, 14 Aug 2026 11:00:16 GMT
+
+https://movieweb.com/henry-cavill-man-from-uncle-james-bond-franchise/
+
+Henry Cavill never needed James Bond.
+---------
+
+# Disney Finds 'Harry Potter' Replacement With Trailer for New Fantasy Series
+
+TV News, Disney+, Harry Potter
+
+Fri, 14 Aug 2026 10:50:47 GMT
+
+https://movieweb.com/disney-coven-academy-trailer/
+
+Disney+ has released the first teaser trailer for 'Coven Academy,' a supernatural series about a magic boarding school in the vein of 'Harry Potter.'
+---------
+
 # Zelda: Ocarina Of Time Remake November 2026 Release Date Basically Just Confirmed
 
 Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
