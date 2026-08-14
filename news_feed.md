@@ -1,3 +1,113 @@
+# Steam Makes 9/10 2012 Adventure Game 100% Free To Keep Forever Until August 20
+
+Gaming, Steam
+
+Fri, 14 Aug 2026 09:24:24 GMT
+
+https://screenrant.com/steam-2012-adventure-game-free-august-20/
+
+Grab Deponia for free on Steam! Enjoy its humor, puzzles, and art until August 20.
+---------
+
+# Netflix Officially Confirms The End Of An Era
+
+Gaming, Netflix
+
+Fri, 14 Aug 2026 09:03:22 GMT
+
+https://screenrant.com/netflix-night-school-shutdown-end-of-era/
+
+Netflix has grown far beyond its original purpose, but one of its more recent initiatives is being scaled back significantly.
+---------
+
+# What Happened To Lukas Kyle & Patrick Kennedy In Silo Season 3, Episode 7?
+
+Streaming TV, Silo, Silo - Season 3
+
+Fri, 14 Aug 2026 09:00:11 GMT
+
+https://screenrant.com/silo-season-3-episode-7-lukas-kyle-patrick-kennedy-fate-explained/
+
+Silo season 3’s episode 7 maintains an air of mystery surrounding Lukas Kyle and Patrick Kennedy’s fate, but it seems obvious what happened to them.
+---------
+
+# Pokémon Type Chart: Every Pokémon Type’s Weaknesses & Resistances
+
+Gaming, Pokemon
+
+Fri, 14 Aug 2026 08:56:21 GMT
+
+https://screenrant.com/pokemon-type-chart-strong-weak-immune/
+
+Pokémon's 18 types are at the core of the franchise's battle mechanic, each with its own weaknesses and resistances for Trainers to learn.
+---------
+
+# FF7 Rebirth: Should You Pay 2,000 Gil To Get The Protorelic From The Bandits?
+
+Gaming, Final Fantasy 7 Rebirth, Final Fantasy
+
+Fri, 14 Aug 2026 08:48:59 GMT
+
+https://screenrant.com/ff7-rebirth-2000-gil-beck-bandits-protorelic-quest/
+
+In FF7 Rebirth's first Protorelic quest, players can choose whether to pay off bandit-turned-businessman Beck. Here's how the choices compare.
+---------
+
+# One of Final Fantasy’s Best Characters Officially Returns in 2027
+
+Gaming News, Video Game, Action, Fantasy, Final Fantasy
+
+Fri, 14 Aug 2026 09:30:14 GMT
+
+https://collider.com/final-fantasy-7-aerith-statue-release-date-2027/
+
+Ahead of the Final Fantasy 7 remake's third and final chapter, Square Enix is expanding the beloved franchise with a brand-new release.
+---------
+
+# 3 Greatest Movies To Watch on Netflix This Weekend (Aug 15-16)
+
+Movie, Immaculate, Chief of Station, Don't Say Good Luck, Netflix
+
+Fri, 14 Aug 2026 09:22:14 GMT
+
+https://collider.com/best-netflix-movies-watch-weekend-august-15/
+
+Immaculate, Don't Say Good Luck, and Chief of Station make up our list of the best movies to watch on Netflix the weekend of August 15th, 2026.
+---------
+
+# 27 Years Later, Brendan Fraser's Fan-Favorite Action-Adventure Trilogy Is the Perfect Weekend Binge
+
+Movie Features, The Mummy, Brendan Fraser, Rachel Weisz, Stephen Sommers
+
+Fri, 14 Aug 2026 09:12:14 GMT
+
+https://collider.com/brendan-fraser-the-mummy-trilogy-streaming-hbo-max-august-2026/
+
+All of Brendan Fraser's Mummy trilogy is streaming on HBO Max, including 1999's The Mummy, The Mummy Returns & The Mummy: Tomb of the Dragon Emperor.
+---------
+
+# ‘Shrek 5’ Officially Score Its Biggest Update Yet After a 16-Year Wait
+
+Movie News, Shrek 5, Shrek, DreamWorks, Fantasy
+
+Fri, 14 Aug 2026 09:00:15 GMT
+
+https://collider.com/shrek-5-milestone-voice-recording-complete/
+
+Shrek is back! Voice recording on the long-awaited fifth movie is complete, reuniting the original cast for a new adventure in Further, Further Away.
+---------
+
+# 8 Perfect Netflix Series You Can Binge in a Weekend
+
+TV, Netflix, The Boroughs, The Residence, Beef
+
+Fri, 14 Aug 2026 08:32:14 GMT
+
+https://collider.com/perfect-netflix-shows-binge-one-weekend/
+
+Beef, The Fall of the House of Usher, The Residence, Dracula, and more make up our list of perfect Netflix shows you can binge in a weekend.
+---------
+
 # ‘Silo’ Star Jessica Henwick Breaks Down Helen’s Chilling Episode 7 Discovery
 
 Exclusives, Silo, Apple TV, Jessica Henwick, Science Fiction
