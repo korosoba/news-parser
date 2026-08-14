@@ -1,3 +1,245 @@
+# House Of The Dragon’s Major Targaryen Dragon Change Will Have Huge Consequences For Season 4
+
+Streaming TV, House of the Dragon, Game of Thrones
+
+Fri, 14 Aug 2026 03:30:11 GMT
+
+https://screenrant.com/house-of-the-dragon-helaena-dreamfyre-change-death-season-4/
+
+House of the Dragon season 3's ending was noticeably missing a key dragon moment from the books. But don't worry, it will be even more powerful in S4.
+---------
+
+# The Marvelous Mrs. Maisel Meets Hacks In Prime Video Masterpiece You Can Binge In 1 Day
+
+Streaming TV, Masked Recs
+
+Fri, 14 Aug 2026 03:24:57 GMT
+
+https://screenrant.com/the-marvelous-mrs-maisel-hacks-fleabag-prime-video-comedy-masterpiece/
+
+Prime Video's masterpiece show is the embodiment of the "messy girl" comedy show, blending the styles of The Marvelous Mrs. Maisel and Hacks.
+---------
+
+# Black Mirror’s Greatest Cyberpunk Episode Gives The Matrix A Run For Its Money
+
+Classic TV, Black Mirror
+
+Fri, 14 Aug 2026 03:00:11 GMT
+
+https://screenrant.com/black-mirror-cyberpunk-fifteen-million-merits-the-matrix/
+
+One of the greatest cyberpunk episodes in Netflix’s Black Mirror is so good that even gives The Matrix a run for its money in more ways than one.
+---------
+
+# Game Of Thrones: The Iron Throne Officially Releases August 21
+
+Gaming, Game of Thrones, Game Of Thrones, Game of Thrones: Conquest, PC
+
+Fri, 14 Aug 2026 03:00:11 GMT
+
+https://screenrant.com/game-of-thrones-iron-throne-conquest-august-21/
+
+Game of Thrones officially returns on August 21 with the launch of The Iron Throne, a unique new event that gives fans a shot at greatness.
+---------
+
+# Disney's New Live-Action Power Rangers Series Is Dead
+
+TV, Power Rangers
+
+Fri, 14 Aug 2026 02:33:42 GMT
+
+https://screenrant.com/disney-live-action-power-ranger-series-canceled/
+
+A live-action Power Rangers series is no longer moving forward at Disney, with the project canceled after being in the development stage.
+---------
+
+# 6 X-Men Characters Who Would Be Great Fits For Spider-Man's Next MCU Movie
+
+Movies, Spider-Man: Brand New Day
+
+Fri, 14 Aug 2026 02:00:21 GMT
+
+https://screenrant.com/spider-man-next-mcu-movie-xmen-characters-candidates/
+
+If mutants are going to be crucial to the MCU's future, it won't be a surprise if Marvel puts even more X-Men characters in Spider-Man's next movie.
+---------
+
+# 33 Years Ago, Cheers Changed Sitcoms Forever With 1 Shocking Choice
+
+Classic TV, Cheers
+
+Fri, 14 Aug 2026 01:45:11 GMT
+
+https://screenrant.com/cheers-sam-diane-sitcom-no-happily-ever-after-shocking/
+
+The iconic sitcom Cheers changed the genre in many ways, and one of the most impactful happened 33 years ago, when the writers made 1 shocking choice.
+---------
+
+# Prime Video's Cyberpunk Sleeper From the Creators of Westworld Is a Time Travel Masterpiece
+
+TV, The Peripheral, Prime Video, Westworld
+
+Fri, 14 Aug 2026 03:30:15 GMT
+
+https://www.cbr.com/prime-video-the-peripheral-time-travel-cyberpunk-masterpiece/
+
+This forgotten-too-soon Prime Video sci-fi series approached time travel in a unique way, making it a must-watch cyberpunk show.
+---------
+
+# 10 Hilarious Car Trips From The Far Side, Ranked
+
+Comics, The Far Side
+
+Fri, 14 Aug 2026 03:30:15 GMT
+
+https://www.cbr.com/funniest-car-trips-in-the-far-side-ranked/
+
+Gary Larson’s unique comedy and use of relatable themes drive The Far Side’s success. A concept often revisited in humorous style is car trips.
+---------
+
+# PlayStation Plus Is Having One Of Its Best Months Ever
+
+Games, PlayStation 5
+
+Fri, 14 Aug 2026 03:15:15 GMT
+
+https://www.cbr.com/playstation-plus-august-2026-game-catalog-additions/
+
+August 2026 could go down as one of the best months to be a PlayStation Plus subscriber, with numerous incredible games coming to each tier.
+---------
+
+# Gundam SEED Transforms Its Most Iconic Mecha With Exclusive Gunpla Redesign
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam SEED, merchandise, toys, bandai
+
+Fri, 14 Aug 2026 03:05:15 GMT
+
+https://www.cbr.com/gundam-seed-freedom-mecha-gunpla-transparent/
+
+The first permanent Gundam statue outside Japan is immortalized further in a new Bandai model kit coming exclusively to Gundam Base locations.
+---------
+
+# 30 Years Later, Scream Stars Finally Address One Longstanding Ghostface Mystery
+
+Movies, Scream
+
+Fri, 14 Aug 2026 02:59:44 GMT
+
+https://www.cbr.com/scream-stars-address-tatum-riley-mystery/
+
+Matthew Lillard and Skeet Ulrich weigh in on one mystery that has perplexed Scream fans for the past three decades.
+---------
+
+# 5 Masterpiece Fantasy Anime Better Than Black Clover
+
+Anime, Black Clover, Ranking of Kings, Dororo
+
+Fri, 14 Aug 2026 02:45:14 GMT
+
+https://www.cbr.com/masterpiece-fantasy-anime-better-than-black-clover/
+
+Fans of Black Clover should check out these five fantasy masterpieces that bring even more to the genre.
+---------
+
+# CBS Finally Fixes an Obvious NCIS Mistake 23 Years Later
+
+TV, NCIS, NCIS: New York, Innovation
+
+Fri, 14 Aug 2026 02:15:14 GMT
+
+https://www.cbr.com/cbs-ncis-new-york-spin-off/
+
+CBS is finally fixing a mistake NCIS has made for the last 23 years, launching a new era for the franchise in 2026.
+---------
+
+# 10 Long Open-World RPGs That Take Forever to Complete
+
+Games, open world, RPG, Gaming, Video Games
+
+Fri, 14 Aug 2026 02:15:14 GMT
+
+https://www.cbr.com/long-open-world-rpgs-take-forever-to-complete/
+
+An intricate open-world RPG generally has plenty of elements to keep players busy, but some RPGs can take forever to complete.
+---------
+
+# 5 Masterpiece Isekai Anime Better Than Sword Art Online
+
+Anime, Isekai
+
+Fri, 14 Aug 2026 02:00:24 GMT
+
+https://www.cbr.com/masterpiece-isekai-anime-better-than-sword-art-online-list/
+
+Sword Art Online kicked off the isekai boom, but some of the anime that followed in its footsteps are even better.
+---------
+
+# The 10 Greatest Erotic Movies of All Time, Ranked
+
+Movies, Thriller, Drama, Basic Instinct
+
+Fri, 14 Aug 2026 02:00:24 GMT
+
+https://www.cbr.com/greatest-erotic-movies-all-time-ranked-list/
+
+Cinema and sensuality go hand-in-hand, and these 10 masterpieces are easily the greatest erotic movies ever made.
+---------
+
+# George R.R. Martin's Latest 'Game of Thrones' Update Proves 'House of the Dragon' Right
+
+TV Features, House of the Dragon, Game Of Thrones, HBO, A Song of Ice and Fire
+
+Fri, 14 Aug 2026 03:04:15 GMT
+
+https://collider.com/game-of-thrones-the-mad-king-play-house-of-the-dragon-aegon-prophecy/
+
+The Mad King play highlights the prophecy that was created for House of the Dragon, bringing Aegon's dream into the larger canon.
+---------
+
+# Forget 'Ocarina of Time', Nintendo's 'Zelda' Movie Needs to Pull From a Different Game
+
+Movie Features, Nintendo, The Legend of Zelda, Games
+
+Fri, 14 Aug 2026 03:03:14 GMT
+
+https://collider.com/legend-of-zelda-movie-ocarina-of-time-wind-waker-ganondorf/
+
+The Legend of Zelda movie cast points toward Ocarina of Time, but The Wind Waker offers a blueprint it needs for Ganondorf.
+---------
+
+# George R. R. Martin's New Game of Thrones Release Officially Confirms a Popular Westeros Fan Theory
+
+TV Features, Game Of Thrones, George R.R. Martin, HBO Max, HBO
+
+Fri, 14 Aug 2026 01:36:14 GMT
+
+https://collider.com/the-mad-king-play-game-of-thrones-lyanna-stark-knight-laughing-tree-theory/
+
+Game of Thrones' new stage play, The Mad King, officially confirms one of Westeros' longest-kept secrets from the Tourney at Harrenhal.
+---------
+
+# Prime Video’s Newest Surging 8-Part Drama Proves the Streamer Has Found Its YA Formula
+
+TV Features, Prime Video, Sterling Point, The Summer I Turned Pretty, YA
+
+Fri, 14 Aug 2026 01:29:14 GMT
+
+https://collider.com/prime-video-young-adult-genre-formula/
+
+With the release of Prime Video’s latest hit Sterling Point, the platform is establishing itself as the go-to place for YA drama.
+---------
+
+# 3 Thriller Series On Netflix That Are Better Than 'Mindhunter'
+
+TV Lists, Netflix, Mindhunter, Hannibal, Killing Eve, Homeland
+
+Fri, 14 Aug 2026 02:00:22 GMT
+
+https://movieweb.com/netflix-thrillers-better-than-mindhunter/
+
+'Mindhunter' streamed for three seasons on Netflix and stars Jonathan Groff and Holt McCallany.
+---------
+
 # Agatha Christie Meets Philip K. Dick In 7-Part Hulu Sci-Fi Series
 
 TV, Masked Recs
