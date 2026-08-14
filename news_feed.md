@@ -1,3 +1,256 @@
+# Stephen King & Guillermo Del Toro’s Praise For Apple TV’s New Horror Series Gets Cast Reaction
+
+TV, Widow's Bay, Widow's Bay - Season 1
+
+Fri, 14 Aug 2026 15:10:57 GMT
+
+https://screenrant.com/widows-bay-stephen-king-guillermo-del-toro-praise-dale-dickey-response/
+
+Exclusive: A star of Apple TV's acclaimed horror series Widow's Bay reacts to Stephen King and Guillermo Del Toro's effusive praise of the show.
+---------
+
+# 8 Pokémon ROM Hacks That Completely Reinvent Kanto
+
+Gaming, Pokemon, Triple-A Games
+
+Fri, 14 Aug 2026 15:00:12 GMT
+
+https://screenrant.com/pokemon-kanto-rom-hacks/
+
+Discover the best Kanto Pokémon ROM hacks, from faithful upgrades to open-world reworks that reinvent Pokémon Red, Blue, Yellow, and their remakes.
+---------
+
+# Rewatching Dragon Ball's Newest Movie After 4 Years, I Had A Very Different Reaction
+
+Movies, Dragon Ball Super: Super Hero
+
+Fri, 14 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/dragon-ball-super-hero-movie-rewatch-reaction/
+
+A Dragon Ball film released 4 years ago was a great addition to the franchise, but some of its positive attributes begin to fall apart on a rewatch.
+---------
+
+# The End Of Oak Street Doesn't Have A Post-Credits Scene, But There's A Reason To Stay
+
+New Movies, The End of Oak Street
+
+Fri, 14 Aug 2026 14:55:11 GMT
+
+https://screenrant.com/the-end-of-oak-street-post-credits-scene/
+
+The End of Oak Street has all the makings of a new dinosaur sci-fi franchise, and while there's no post-credits scene, you should stick around.
+---------
+
+# Gary Larson’s 10 Best Comics, Ranked
+
+Comics, The Far Side
+
+Fri, 14 Aug 2026 14:46:16 GMT
+
+https://screenrant.com/gary-larson-best-far-side-comics-ranked/
+
+Ranking Gary Larson's best Far Sides ever.
+---------
+
+# SWAT's Best Character Dynamic Can Officially Return Almost 10 Years Later
+
+Network TV, S.W.A.T.
+
+Fri, 14 Aug 2026 14:45:11 GMT
+
+https://screenrant.com/swat-best-dynamic-chris-street-return-exiles/
+
+SWAT Exiles has the opportunity to revisit the original CBS series' best dynamic in the new Starz reboot, bringing a secondary Chris & Street to life.
+---------
+
+# Madden NFL 27 Review - Impressive Franchise Return Marred By The Same Old Issues
+
+Gaming, Madden
+
+Fri, 14 Aug 2026 14:40:30 GMT
+
+https://screenrant.com/madden-27-review/
+
+Madden NFL is back for another year, and while there are some notable improvements this time around, the same old problems still linger.
+---------
+
+# New Dinosaur Movie In $15B Action Franchise Debuts To Stellar Rotten Tomatoes Score
+
+Movies, Masked Recs
+
+Fri, 14 Aug 2026 14:33:01 GMT
+
+https://screenrant.com/paw-patrol-the-dino-movie-rotten-tomatoes-score-debut/
+
+A new dinosaur movie that is the latest installment in a franchise that has earned more than $15 billion earns a stellar Rotten Tomatoes score.
+---------
+
+# All 9 Seinfeld Seasons, Ranked
+
+Classic TV, Seinfeld
+
+Fri, 14 Aug 2026 14:30:12 GMT
+
+https://screenrant.com/seinfeld-seasons-ranked-worst-best/
+
+Deemed one of the greatest sitcoms ever, Seinfeld was a show about nothing for 9 seasons, but which season contained the best shows about nothing?
+---------
+
+# No, Spider-Man: Brand New Day Was NOT Teasing Battleworld (MCU Theory Explained)
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe, Avengers: Doomsday, Avengers: Secret Wars
+
+Fri, 14 Aug 2026 14:30:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-post-credits-mcu-theory-not-battleworld/
+
+While Spider-Man: Brand New Day's post-credits has generated lots of discussion and debate, I sincerely doubt it's teasing Secret Wars' Battleworld.
+---------
+
+# Star Wars’ First Movie in 7 Years Finally Gets Disney+ Release Date
+
+Movies, The Mandalorian and Grogu, Star Wars, Disney+
+
+Fri, 14 Aug 2026 15:12:09 GMT
+
+https://www.cbr.com/the-mandalorian-and-grogu-disney-release-date/
+
+Disney+ is finally getting a new Star Wars cinematic adventure.
+---------
+
+# Apple TV's 10/10 Horror Masterpiece Hailed as 1 of 2026's Best Shows Is Surging on Streaming
+
+TV, Widow's Bay, Apple TV, Horror
+
+Fri, 14 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/widows-bay-apple-tv-surging-on-streaming/
+
+The hit horror show is still dominating the streaming charts.
+---------
+
+# Vampire Survivors Sequel Officially Confirmed With An Unexpected Twist
+
+CBR Exclusives, Vampire Survivors
+
+Fri, 14 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/vampire-survivors-comic-book-trailer/
+
+Acclaimed horror video game Vampire Survivors is resurrected as a new comic book.
+---------
+
+# 5 Classic Adult Swim Anime That Have Aged Like Fine Wine
+
+Anime, Inuyasha, Cowboy Bebop
+
+Fri, 14 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/classic-adult-swim-anime-aged-like-fine-wine/
+
+These iconic Adult Swim anime remain just as entertaining today, proving that great stories never truly go out of style.
+---------
+
+# Cowboy Bebop's Swordfish II LEGO Set Hits New Milestone
+
+Anime, Cowboy Bebop, LEGO
+
+Fri, 14 Aug 2026 14:20:15 GMT
+
+https://www.cbr.com/cowboy-bebop-swordfish-ii-lego-new-milestone/
+
+Spike Spiegel's iconic spacecraft is now one big step closer to hitting store shelves as an official LEGO set.
+---------
+
+# Studio Ghibli Meets Your Name in Netflix's 122-Minute Fantasy Masterpiece
+
+Anime, Suzume, Studio Ghibli
+
+Fri, 14 Aug 2026 14:15:16 GMT
+
+https://www.cbr.com/makoto-shinkai-suzume-studio-ghibli-meets-your-name/
+
+Makoto Shinkai's Suzume is a modern anime masterpiece that operates like the perfect fusion of his past films and Studio Ghibli's cinematic endeavors.
+---------
+
+# HBO's Harry Potter Officially Returns to Hogwarts 2 Weeks Early
+
+TV News, Harry Potter, Harry Potter and the Sorcerer's Stone, HBO Max
+
+Fri, 14 Aug 2026 15:03:32 GMT
+
+https://collider.com/harry-potter-season-2-filming-update/
+
+HBO's Harry Potter series officially returns to Hogwarts 2 weeks early in a magical new update.
+---------
+
+# Gerard Butler's Most Unhinged Performance Is Officially a Netflix Smash 17 Years Later
+
+Movie News, Gerard Butler, Law Abiding Citizen, Netflix, Streaming
+
+Fri, 14 Aug 2026 15:00:15 GMT
+
+https://collider.com/law-abiding-citizen-streaming-hit-netflix-august-2026/
+
+Gerard Butler’s wildest action movie is a surprise Netflix hit, 17 years after the $131 million revenge thriller debuted.
+---------
+
+# Gillian Anderson’s New Horror Movie Officially Dethrones ‘Obsession’
+
+Movie News, Obsession, Horror, Teenage Sex and Death at Camp Miasma, Rotten Tomatoes
+
+Fri, 14 Aug 2026 14:36:39 GMT
+
+https://collider.com/camp-miasma-rotten-tomatoes-score-is-it-good/
+
+Gillian Anderson and Hannah Einbinder’s new horror movie has officially dethroned Obsession on Rotten Tomatoes. See its critic score now.
+---------
+
+# 'Star Trek: Strange New Worlds' Season 4's Newest Gimmick Only Makes Sense at the End
+
+Features, star trek: strange new worlds, Star Trek
+
+Fri, 14 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-noir-gimmick/
+
+Star Trek just returned to a black-and-white medium, but I'm not convinced the visual shift was necessary. Read on for more.
+---------
+
+# Netflix Finds New Global Smash Hit With Tom Cruise's "Masterpiece" Sci-Fi Thriller
+
+Movie News, Tom Cruise, Edge of Tomorrow, Hot on Streaming
+
+Fri, 14 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/edge-of-tomorrow-streaming-hit-netflix-global-august-2026/
+
+This is, without question, Tom Cruise's most underrated film. But, where's the sequel?
+---------
+
+# 'The Mandalorian and Grogu' Officially Confirms Streaming Release Date
+
+Movie News, The Mandalorian and Grogu, Star Wars, Disney+
+
+Fri, 14 Aug 2026 14:52:24 GMT
+
+https://movieweb.com/the-mandalorian-and-grogu-disney-plus-date/
+
+Disney+ has set the streaming release date for 'Star Wars: The Mandalorian and Grogu,' three months after the movie made its theatrical debut.
+---------
+
+# Christian Bale's Likely Replacement for Classic Thriller Remake Confirmed
+
+Movie News, American Psycho
+
+Fri, 14 Aug 2026 14:31:01 GMT
+
+https://movieweb.com/american-psycho-remake-drew-starkey/
+
+The frontrunner to take on Christian Bale's iconic role has been revealed, as 'Queer' star Drew Starkey has arrived with an update on the remake.
+---------
+
 # The Guardians Of The Galaxy's Replacement In Avengers: Doomsday Makes A Lot Of Sense
 
 Movies, Avengers: Doomsday, Marvel Cinematic Universe, Guardians of the Galaxy
