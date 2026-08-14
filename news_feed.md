@@ -1,3 +1,91 @@
+# Sydney Sweeney's Upcoming Anime Movie Is Officially Releasing At The Right Time
+
+Movies, Masked Recs
+
+Fri, 14 Aug 2026 21:03:11 GMT
+
+https://screenrant.com/sydney-sweeney-gundam-movie-perfect-timing/
+
+A-list Sydney Sweeney is betting big on a sprawling sci-fi mecha epic adapted from an iconic anime, and it may revive giant robot cinema worldwide.
+---------
+
+# Pokémon's New Secretlab 30th Anniversary Collab Is A Thing Of Beauty
+
+Gaming, Secretlab, Pokemon
+
+Fri, 14 Aug 2026 21:01:59 GMT
+
+https://screenrant.com/pokmon-new-secretlab-skins-are-a-thing-of-beauty/
+
+Pixel art Pokémon bring grass, fire and water types to life on TITAN Evo sleeves with nostalgic handcrafted detail.
+---------
+
+# 3 Best Movies To Watch On HBO Max This Weekend (August 15-16)
+
+Movies, HBO Max, Recommendation
+
+Fri, 14 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/best-hbo-max-movies-watch-weekend-august-15/
+
+Don't waste your whole weekend scrolling through countless streaming services to find something to watch, check out these gems on HBO Max instead.
+---------
+
+# 7 Shonen Anime That Are Perfect From Start to Finish
+
+Anime, Shonen, Frieren: Beyond Journey's End, Jujutsu Kaisen
+
+Fri, 14 Aug 2026 21:15:15 GMT
+
+https://www.cbr.com/perfect-best-shonen-anime/
+
+The shōnen genre is extensive, and these seven anime represent some of the best it has to offer.
+---------
+
+# 5 Perfect Action Thrillers Better Than Die Hard
+
+Movies, Action, Die Hard
+
+Fri, 14 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/action-thrillers-better-than-die-hard-list/
+
+Die Hard sets the standard for iconic action thriller movies, but there are flawless adrenaline rides that push the stakes even higher.
+---------
+
+# 8 Thrillers To Watch if You Love Netflix's 'The Last House'
+
+Movie, The Last House, Thriller, A Quiet Place, Nope
+
+Fri, 14 Aug 2026 21:05:14 GMT
+
+https://collider.com/thriller-movies-like-the-last-house-netflix/
+
+A Quiet Place, Leave the World Behind, and Nope are perfect thrillers to watch if you love the Netflix movie The Last House, starring Greta Lee.
+---------
+
+# Disney Reveals Trailer for New 'Star Wars: The Mandalorian' Special
+
+TV News, The Mandalorian, LEGO, Star Wars
+
+Fri, 14 Aug 2026 21:03:34 GMT
+
+https://movieweb.com/star-wars-the-mandalorin-lego-special-trailer/
+
+The original special 'LEGO Star Wars: The Mandalorian' will hit Disney+ on Sep. 2.
+---------
+
+# 9 Major Canon Changes in the New 'The X-Files: I Want to Believe' Director's Cut
+
+Movie Lists, The X-Files, The X-Files: I Want to Believe
+
+Fri, 14 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/the-x-files-i-want-to-believe-directors-cut-changes/
+
+After 18 years, what did series creator Chris Carter change in the new 'The X-Files: I Want to Believe' R-rated director's cut?
+---------
+
 # An Investigation Into Whether The End Of Oak Street Is Secretly A Cloverfield Movie
 
 New Movies, The End of Oak Street
