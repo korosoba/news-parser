@@ -1,3 +1,80 @@
+# 10 Most Brutal Fights In Invincible
+
+Streaming TV, Invincible
+
+Fri, 14 Aug 2026 21:30:11 GMT
+
+https://screenrant.com/invincible-most-brutal-fights/
+
+Throughout its four seasons, Invincible has featured shocking and brutal fights that put even the most gruesome and violent shows to shame.
+---------
+
+# The Walking Dead: Dead City Season 3, Episode 4 Clip: Maggie Remembers Eugene
+
+TV, The Walking Dead: Dead City
+
+Fri, 14 Aug 2026 21:17:53 GMT
+
+https://screenrant.com/video/the-walking-dead-dead-city-season-3-episode-4-clip/
+
+Maggie recalls a memory of Eugene in a clip for The Walking Dead: Season 3, Episode 4.
+---------
+
+# Hulu Pulls the Plug on 2-Season Series With 100% Rotten Tomatoes Score
+
+TV, Deli Boys
+
+Fri, 14 Aug 2026 21:35:46 GMT
+
+https://www.cbr.com/hulu-cancels-deli-boys-2-seasons/
+
+Critics are in love with the series, but that wasn't enough to save it from getting the axe.
+---------
+
+# Steve Toussaint Reacts to Rhaenyra Targaryen’s Worst Moments in House of the Dragon Season 3 Finale
+
+CBR Exclusives, House of the Dragon, Game Of Thrones, HBO Max
+
+Fri, 14 Aug 2026 21:22:52 GMT
+
+https://www.cbr.com/house-of-the-dragon-rhaenyra-season-3-finale-steve-toussaint/
+
+Steve Toussaint reacts to Rhaenyra’s darker turn in the House of the Dragon Season 3 finale and what it could mean for Corlys.
+---------
+
+# Widow's Bay Horror Icon Was Almost Killed Off in Season 1, Creator Confirms
+
+TV, Widow's Bay
+
+Fri, 14 Aug 2026 21:19:16 GMT
+
+https://www.cbr.com/widows-bay-jeff-hiller-dale-almost-killed-off-season-1/
+
+Widow's Bay turned into one of the surprise hits of 2026, and the show experienced many changes.
+---------
+
+# 10 Greatest Adventure Video Games of the Last 10 Years
+
+Gaming, Video Game, Legend of Zelda: Breath of the Wild, Red Dead Redemption 2, Star Wars Jedi: Survivor
+
+Fri, 14 Aug 2026 21:35:14 GMT
+
+https://collider.com/best-adventure-video-games-last-10-years-ranked/
+
+Star Wars Jedi: Survivor, Outer Wilds, Red Dead Redemption 2, and Elden Ring are among the best adventure video games to come out in the last decade.
+---------
+
+# Netflix’s Near-Perfect 8-Part Horror Thriller Is a Nightmare You’ll Binge in One Weekend
+
+TV Features, Netflix, Archive 81, Horror, Thriller
+
+Fri, 14 Aug 2026 21:25:15 GMT
+
+https://collider.com/netflix-best-horror-thriller-archive-81-series-streaming/
+
+Archive 81 is Netflix’s 87% RT horror thriller, delivering eight episodes of Lovecraftian mystery, analog horror, and cosmic dread.
+---------
+
 # Sydney Sweeney's Upcoming Anime Movie Is Officially Releasing At The Right Time
 
 Movies, Masked Recs
