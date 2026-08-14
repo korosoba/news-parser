@@ -1,3 +1,25 @@
+# Game Of Thrones: The Great Hunt Officially Arrives August 18
+
+Gaming, Game of Thrones, Game of Thrones: Conquest, Game Of Thrones, PC
+
+Fri, 14 Aug 2026 06:00:11 GMT
+
+https://screenrant.com/game-of-thrones-conquest-the-great-hunt-august-18/
+
+Game of Thrones fans will want to mark their calendars for the upcoming launch of The Great Hunt, a unique new release slated to arrive on August 18.
+---------
+
+# 30 Years Later, A 10/10 PS1 Masterpiece Is Free Now On PlayStation Plus
+
+Gaming, PlayStation Plus, Triple-A Games
+
+Fri, 14 Aug 2026 05:30:11 GMT
+
+https://screenrant.com/playstation-ps1-masterpiece-ps-plus-resident-evil/
+
+If you haven't played this absolute classic, then walk, don't run, to your PlayStation Plus account, and try it out for free soon.
+---------
+
 # Fallout Officially Returns In 2027 With Multiple New Settings
 
 Gaming, Fallout, Triple-A Games
