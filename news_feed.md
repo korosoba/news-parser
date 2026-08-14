@@ -1,3 +1,311 @@
+# The Guardians Of The Galaxy's Replacement In Avengers: Doomsday Makes A Lot Of Sense
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe, Guardians of the Galaxy
+
+Fri, 14 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/guardians-of-the-galaxy-team-replacement-fantastic-four-avengers-doomsday/
+
+Avengers: Doomsday isn't expected to feature the Guardians of the Galaxy, but the MCU has already set up their perfect superhero replacement team.
+---------
+
+# Battlestar Galactica Waited 14 Years To Get Revenge On Star Trek
+
+Classic TV, Battlestar Galactica
+
+Fri, 14 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/battlestar-galactica-cylon-revenge-star-trek-borg/
+
+After Star Trek: The Next Generation took some notes from the original Battlestar Galactica, Adama and the gang waited 14 years for their revenge
+---------
+
+# Zelda Meets Animal Crossing In Huge New Free Open-World RPG Coming September 2026
+
+Gaming, RPG, Live Service Games, PC
+
+Fri, 14 Aug 2026 13:38:38 GMT
+
+https://screenrant.com/zelda-meets-animal-crossing-aniimo-release-date/
+
+A huge open-world RPG is arriving for free in September, and fans of Pokémon, Zelda, and Animal Crossing will want to have it on their radars.
+---------
+
+# 24 Years Later, Spider-Man Movies' Greatest Quote Still Stands In A League Of Its Own
+
+Movies, Spider-Man, Marvel Cinematic Universe
+
+Fri, 14 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/marvel-spider-man-movies-greatest-quote/
+
+24 years after Tobey Maguire's first Spider-Man movie, looking at all of Peter Parker's live-action films, this Marvel quote is still without a match.
+---------
+
+# Emma Frost's Demon Redesign Is a Gift to X-Men Cosplayers
+
+Comics, X-Men
+
+Fri, 14 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/emma-frosts-demon-redesign-is-a-gift-to-x-men-cosplayers/
+
+The White Queen turns demonic.
+---------
+
+# Alien: Earth Season 2's Greatest Challenge Doesn't Involve Xenomorphs
+
+Streaming TV, Alien: Earth
+
+Fri, 14 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/alien-earth-season-2-challenge-eyeball-monster/
+
+Alien: Earth 2 is expected to arrive sometime in 2027, and there are already high expectations, especially regarding the non-Xenomorph creatures.
+---------
+
+# HBO’s Lanterns Season 2 Fate Seemingly Revealed By DCU Show Creator
+
+TV, Lanterns, DC Universe
+
+Fri, 14 Aug 2026 13:02:45 GMT
+
+https://screenrant.com/lanterns-dcu-hbo-season-2-fate-damon-lindelof/
+
+EXCLUSIVE: Lanterns season 2's fate has seemingly been revealed, as co-creator Damon Lindelof explains where DC's new Green Lantern series stands.
+---------
+
+# 8 Timeless Nancy Strips That Are Aging Like Fine-Wine
+
+Comics
+
+Fri, 14 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/timeless-nancy-strips-aging-well/
+
+Ernie Bushmiller's Nancy comic strips only get better with time, and nine decades later, they're still pulling off humor that stands the test of time.
+---------
+
+# The Conjuring's New Movie Subtly Retcons Last Rites
+
+Movies, The Conjuring Universe
+
+Fri, 14 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/conjuring-new-movie-retcons-last-rites/
+
+After the blockbuster success of The Conjuring: Last Rites, the franchise is already getting a prequel — and it's bringing a major retcon with it.
+---------
+
+# 11 Years Later, Henry Cavill's James Bond Replacement Needs A Sequel (& A 2020s Trend Confirms It)
+
+Movies, The Man From U.N.C.L.E.
+
+Fri, 14 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/henry-cavill-the-man-from-uncle-sequel-movie-guy-ritchie/
+
+Henry Cavill's James Bond replacement needs a sequel to happen 11 years later, and a trend across the 2020s confirms why it should happen.
+---------
+
+# 27 Years Later, Sheik's Greatest Ocarina of Time Line Is Still the Best Quote in Zelda History
+
+Games, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Fri, 14 Aug 2026 14:00:15 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-most-powerful-quotes-sheik/
+
+The Legend of Zelda: Ocarina of Time's best quote will be even more powerful in the upcoming remake.
+---------
+
+# Leonardo DiCaprio’s 132-Minute Dual-Role Action Adventure Returns as a Free Streaming Hit
+
+Movies, Leonardo DiCaprio, The Man in the Iron Mask
+
+Fri, 14 Aug 2026 14:00:15 GMT
+
+https://www.cbr.com/leonardo-dicaprio-the-man-in-the-iron-mask-tubi-success-august-2026/
+
+One of Leonardo DiCaprio's earliest roles is available for free on streaming, and doing very well.
+---------
+
+# Apple TV Shows That Are 10/10 Stealth Masterpieces
+
+TV, Apple TV, Maximum Pleasure Guaranteed, Margo's Got Money Troubles
+
+Fri, 14 Aug 2026 14:00:15 GMT
+
+https://www.cbr.com/best-underrated-apple-tv-shows-list/
+
+Apple TV has many hidden masterpieces, some that slowly earn a loyal fanbase or cult following through word of mouth.
+---------
+
+# The X-Files Creator Teases Possible Reunion With David Duchovny & Gillian Anderson
+
+TV, The X-Files, gillian anderson, chris carter
+
+Fri, 14 Aug 2026 13:43:46 GMT
+
+https://www.cbr.com/the-x-files-chris-carter-duchovny-gillian-anderson-possible-reunion/
+
+Amid The X-Files' potential reboot, original series creator Chris Carter teased a possible reunion with David Duchovny and Gillian Anderson.
+---------
+
+# Lord of the Rings Meets Skyrim In New Open-World RPG
+
+Games, open world
+
+Fri, 14 Aug 2026 13:35:15 GMT
+
+https://www.cbr.com/fatekeeper-lord-of-the-rings-skyrim-hybrid-rpg/
+
+Steam's new open-world RPG blends the best elements of Lord of the Rings with Skyrim.
+---------
+
+# 110 Long Fantasy Anime Series That Are 10/10 Masterpieces
+
+Anime, One Piece, Fantasy, Black Clover
+
+Fri, 14 Aug 2026 13:15:15 GMT
+
+https://www.cbr.com/long-fantasy-anime-series-flawless-masterpieces/
+
+Some of the longest fantasy anime series in history also stand among the absolute greatest.
+---------
+
+# 5 Greatest Robert Pattinson Movies Since Twilight
+
+Movies, robert pattinson, The Batman, The Lighthouse, The Drama, Good Time, The Odyssey
+
+Fri, 14 Aug 2026 13:00:15 GMT
+
+https://www.cbr.com/best-robert-pattinson-movies-since-twilight-list/
+
+In the 14 years since his final Twilight Saga appearance, Robert Pattinson has made some unique career choices to star in these incredible movies.
+---------
+
+# Mistborn Officially Returns With New Cosmere Release November 4
+
+Games, Mistborn
+
+Fri, 14 Aug 2026 12:56:15 GMT
+
+https://www.cbr.com/mistborn-official-return-new-cosmere-release-november-4/
+
+Mistborn fans are about to get one of the most exciting and surprising releases in the entire history of the hit Brandon Sanderson franchise.
+---------
+
+# 'The X-Files' Creator Chris Carter Still Wants To Continue Mulder and Scully's Story
+
+Exclusives, The X-Files, The X-Files: I Want to Believe, Chris Carter, Hulu
+
+Fri, 14 Aug 2026 14:00:15 GMT
+
+https://collider.com/the-x-files-i-want-to-believe-vrach-frankenshteyn-directors-cut-chris-carter-interview/
+
+The X-Files creator Chris Carter breaks down his new R-rated cut of I Want to Believe and why he still wants to continue Mulder and Scully's story.
+---------
+
+# ‘The Mandalorian and Grogu’ Officially Sets Disney+ Streaming Release Date [Exclusive]
+
+Movie News, The Mandalorian and Grogu, Disney+, The Mandalorian, Pedro Pascal
+
+Fri, 14 Aug 2026 14:00:15 GMT
+
+https://collider.com/the-mandalorian-and-grogu-disney-plus-streaming-release-date/
+
+Star Wars announced this afternoon that The Mandalorian and Grogu is officially coming to Disney Plus in September. Find out more information here.
+---------
+
+# ‘High Potential’ Season 3 Just Teased the Story Fans Have Been Waiting For
+
+TV Features, High Potential, Kaitlin Olson, ABC, Daniel Sunjata
+
+Fri, 14 Aug 2026 13:12:15 GMT
+
+https://collider.com/high-potential-season-3-romance-storyline/
+
+After two seasons teasing chemistry between Morgan and Karadec, High Potential Season 3 is reportedly finally addressing it.
+---------
+
+# 'Percy Jackson and the Olympians' Showrunners' New Series Cancelled at Disney+
+
+TV News, Percy Jackson & the Olympians, Mighty Morphin Power Rangers, Disney+, Fantasy
+
+Fri, 14 Aug 2026 13:09:25 GMT
+
+https://collider.com/power-rangers-series-cancelled-disney-plus/
+
+Disney+'s live-action Power Rangers series from Percy Jackson and the Olympians' showrunners has been officially cancelled.
+---------
+
+# 8 Sci-Fi Space Opera TV Shows That Are Better Than 'Dune'
+
+TV Lists, Sci-Fi, Dune, The Expanse
+
+Fri, 14 Aug 2026 14:00:12 GMT
+
+https://movieweb.com/sci-fi-space-opera-tv-shows-better-than-dune/
+
+'Dune,' the sci-fi movie trilogy by Denis Villeneuve, stars Zendaya and Timothée Chalamet, and 'Dune: Part Three' will be released in 2026.
+---------
+
+# 'Ted Lasso' Season 4 Shatters Viewership Records with 297 Million Minutes Watched
+
+TV News, Ted Lasso, Jason Sudeikis, Apple TV
+
+Fri, 14 Aug 2026 13:53:34 GMT
+
+https://movieweb.com/ted-lasso-season-4-shatters-streaming-record/
+
+The hit Apple TV series 'Ted Lasso' returned with record-high viewership after a three-year hiatus.
+---------
+
+# Taylor Sheridan's New 'Yellowstone' Spin-Off Plans Finally Get an Update
+
+TV News, Yellowstone, Taylor Sheridan, Matthew McConaughey
+
+Fri, 14 Aug 2026 13:49:08 GMT
+
+https://movieweb.com/matthew-mcconaughey-taylor-sheridan-yellowstone-spin-off-update/
+
+Will Matthew McConaughey get a shot at a 'Yellowstone' show?
+---------
+
+# 'Reacher' Season 4 Quickly Puts Alan Ritchson Action Thriller Back at the Top of the Streaming Ranks
+
+TV News, Reacher, Hot on Streaming, Alan Ritchson
+
+Fri, 14 Aug 2026 13:00:12 GMT
+
+https://movieweb.com/amazon-reacher-streaming-hit-august-2026/
+
+TV's most important action star has returned to Prime Video, and viewers are going crazy.
+---------
+
+# Alan Ritchson's Upcoming Action Thriller Is His Most Exciting 2026 Release
+
+Features, Reacher, Runner, Alan Ritchson
+
+Fri, 14 Aug 2026 13:00:12 GMT
+
+https://movieweb.com/runner-alan-ritchson-2026-action-movie/
+
+Alan Ritchson, the star of Amazon Prime Video's action thriller series 'Reacher,' has another release coming in 2026.
+---------
+
+# Disney+ Confirms Future of 'Power Rangers' Reboot on Streaming
+
+TV News, Mighty Morphin Power Rangers, Power Rangers, Mighty Morphin' Power Rangers, Disney+
+
+Fri, 14 Aug 2026 12:50:24 GMT
+
+https://movieweb.com/power-rangers-series-reboot-canceled-disney/
+
+Disney+ has officially confirmed the fate of its planned live-action 'Power Rangers' reboot series after a lengthy development period.
+---------
+
 # Tracker Special Cast Addition Revealed For Season 4
 
 Network TV, Tracker
