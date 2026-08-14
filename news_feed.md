@@ -1,3 +1,102 @@
+# Zelda: Ocarina Of Time Remake November 2026 Release Date Basically Just Confirmed
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Fri, 14 Aug 2026 10:30:11 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-release-date-leak-november-12/
+
+The announcement of the Ocarina of Time Remake was an exciting one, and we might now have a release date to look forward to.
+---------
+
+# Murder, She Wrote Is A Mystery Show Every Agatha Christie Fan Must Watch
+
+TV, Murder, She Wrote, Mystery
+
+Fri, 14 Aug 2026 10:01:14 GMT
+
+https://www.cbr.com/murder-she-wrote-must-watch-agatha-christie-fans/
+
+Agatha Christie fans must watch the mystery series Murder, She Wrote, which shares a unique connection to Christie's canon.
+---------
+
+# The Legend of Zelda is The Lord of the Rings Meets Avatar
+
+Movies, The Legend of Zelda
+
+Fri, 14 Aug 2026 10:01:14 GMT
+
+https://www.cbr.com/the-legend-of-zelda-movie-combines-lord-of-the-rings-and-avatar/
+
+Nintendo's highly anticipated upcoming fantasy film, The Legend of Zelda, is the biggest fantasy movie event of 2027.
+---------
+
+# 10 Most Perfect Sci-Fi Shows of the Last 15 Years
+
+TV, Sci-Fi, Science Fiction, Silo, Stranger Things
+
+Fri, 14 Aug 2026 10:47:14 GMT
+
+https://collider.com/most-perfect-sci-fi-shows-last-15-years-ranked/
+
+Silo, Stranger Things, and Black Mirror are among the best sci-fi shows of the last 15 years, but which series is the most perfect among them?
+---------
+
+# 10 Saddest Movie Endings of All Time
+
+Movie, Titanic, Dancer in the Dark, The Mist, La La Land
+
+Fri, 14 Aug 2026 10:38:14 GMT
+
+https://collider.com/saddest-movie-endings-all-time-ranked/
+
+The saddest endings in cinema history can be found in classic movies like Titanic, Dancer in the Dark, and Twin Peaks: Fire Walk with Me.
+---------
+
+# Alan Ritchson’s 101-Minute Sci-Fi Thriller Breaks Out on Streaming Alongside ‘Reacher’ Season 4
+
+Movie News, Teenage Mutant Ninja Turtles, Alan Ritchson, Reacher, War Machine
+
+Fri, 14 Aug 2026 10:30:14 GMT
+
+https://collider.com/alan-ritchson-sci-fi-thriller-teenage-mutant-ninja-turtles-streaming-success-paramount-plus-august-2024/
+
+Alan Ritchson's blockbuster sci-fi thriller is scoring big on streaming alongside the release of Reacher Season 4 on Prime Video.
+---------
+
+# 10 Netflix Shows That Quietly Became Modern Classics
+
+TV, Netflix, Midnight Mass, The Sandman, Ozark
+
+Fri, 14 Aug 2026 10:09:14 GMT
+
+https://collider.com/netflix-shows-became-modern-classics/
+
+Explore great Netflix shows that transformed television with timeless storytelling and innovative formats, including Dark, The Crown, and Ozark.
+---------
+
+# ‘Pokémon’ Officially Brings Back a Forgotten Version of Pikachu
+
+Gaming News, Pokémon, Video Game, Nintendo, Anime
+
+Fri, 14 Aug 2026 10:00:14 GMT
+
+https://collider.com/pokemon-30th-anniversary-card-fat-pikachu/
+
+A forgotten rendition of Pikachu is officially making a comeback for Pokémon's 30th anniversary. Read on for all the details.
+---------
+
+# This Sci-Fi Prequel Revived a 40-Year-Old Franchise With a Genius Twist
+
+Movie Features, Rise of the Planet of the Apes, James Franco, John Lithgow, Andy Serkis
+
+Fri, 14 Aug 2026 09:41:14 GMT
+
+https://collider.com/rise-of-the-planet-of-the-apes-prequel-hulu-august-2026/
+
+2011's Rise of the Planet of the Apes completely flipped the script on the sci-fi franchise, reviving it for a new generation.
+---------
+
 # Steam Makes 9/10 2012 Adventure Game 100% Free To Keep Forever Until August 20
 
 Gaming, Steam
