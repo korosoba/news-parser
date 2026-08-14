@@ -1,3 +1,278 @@
+# Spider-Man: Beyond The Spider-Verse Trailer Leak Gets Official Response From Marvel Writer
+
+Movies, Spider-Man: Beyond the Spider-Verse
+
+Fri, 14 Aug 2026 16:09:02 GMT
+
+https://screenrant.com/spider-man-beyond-the-spider-verse-trailer-leak-chris-miller-response/
+
+Spider-Man: Beyond the Spider-Verse is the latest victim of hacking, as new leaks for the trailer get an official response from this Marvel writer.
+---------
+
+# Judge Dredd Returns Fall 2026 With New Release For Gamers
+
+Gaming, Judge Dredd, Triple-A Games
+
+Fri, 14 Aug 2026 16:01:16 GMT
+
+https://screenrant.com/judge-dredd-pinball-fx-fall-2026/
+
+Even though Judge Dredd has hung up the badge a few times in the past while waiting in creative limbo, a new release is coming this fall.
+---------
+
+# 26 Years Later, The Sopranos' Best Season Still Hasn't Been Topped
+
+Classic TV, The Sopranos
+
+Fri, 14 Aug 2026 16:00:12 GMT
+
+https://screenrant.com/the-sopranos-best-season-never-beat/
+
+The Sopranos hit its stride in its second season. It's not just the gold standard of the series; it defined the Golden Age of Television.
+---------
+
+# 10 Magic: The Gathering - The Hobbit Cards Worth The Most Money
+
+Gaming, Magic: The Gathering
+
+Fri, 14 Aug 2026 16:00:12 GMT
+
+https://screenrant.com/magic-the-gathering-mtg-hobbit-cards-worth-the-most-money/
+
+Discover the highest-valued cards from Magic: The Gathering - The Hobbit set and their current market prices.
+---------
+
+# Lanterns Review: James Gunn's DCU Enters Its Brightest Day With The Perfect Hal Jordan & John Stewart
+
+Streaming TV, Lanterns, DC Universe, Lanterns - Season 1
+
+Fri, 14 Aug 2026 16:00:12 GMT
+
+https://screenrant.com/lanterns-tv-review/
+
+DC's Lanterns presents the perfect blend between cosmic Green Lantern action and the gritty crime thrillers that HBO knows well — beware their power!
+---------
+
+# Everywhere You Can Read Books For Free Online (Without Pirating Sites)
+
+Books
+
+Fri, 14 Aug 2026 16:00:12 GMT
+
+https://screenrant.com/free-books-online-websites-resources/
+
+A complete list of every free (and legal) site for finding books to read online, as well as information about what kind of books each site has.
+---------
+
+# Its The End Of An 20 Year Era For Hunter x Hunter, And That's A Good Thing
+
+Anime, Hunter X Hunter, Hunter x Hunter
+
+Fri, 14 Aug 2026 15:52:28 GMT
+
+https://screenrant.com/hunter-x-hunter-end-era-20-years-hiatus/
+
+After decades of frustrating delays, Yoshihiro Togashi's latest updates prove Hunter x Hunter finally has a stable future.
+---------
+
+# Sydney Sweeney & Glen Powell's $220 Million Rom-Com Anyone But You Now Has A Secret Sequel
+
+New Movies, Anyone But You, One Night Only
+
+Fri, 14 Aug 2026 15:45:11 GMT
+
+https://screenrant.com/one-night-only-sydney-sweeney-cameo-anyone-but-you-sequel/
+
+Anyone But You gave Sydney Sweeney and Glen Powell a potential rom-com franchise after its success, and now the movie has a surprise sequel.
+---------
+
+# Call Of Duty: Warzone Officially Returns With Game-Changing Modern Warfare Map
+
+Gaming, Call of Duty: Warzone
+
+Fri, 14 Aug 2026 15:30:16 GMT
+
+https://screenrant.com/call-of-duty-warzone-resurgence-zodiac-map/
+
+Call Of Duty: Warzone officially returns with a new map as part of the Modern Warfare 4 Open Beta.
+---------
+
+# Moira Rose's 20 Most Hilarious Quotes In Schitt's Creek
+
+Classic TV, Schitt's Creek
+
+Fri, 14 Aug 2026 15:30:12 GMT
+
+https://screenrant.com/schitts-creek-moira-rose-best-lines-funny/
+
+Catherine O'Hara's Moira Rose is totally out there, with the fan-favorite character having some of the best and funniest quotes in Schitt's Creek.
+---------
+
+# Backrooms Meets Blockbuster in New Horror Game You Can Play for Free
+
+Games, Steam, Backrooms
+
+Fri, 14 Aug 2026 16:12:16 GMT
+
+https://www.cbr.com/games-like-backrooms-victors-video-vault-steam/
+
+Fans of Blockbuster and liminal horror experiences like Backrooms can officially step into what might be their next favorite horror game.
+---------
+
+# Sandra Bullock's 104-Minute Fantasy Based on Hit Novel Returns to the Charts Ahead of Sequel
+
+Movies, Practical Magic
+
+Fri, 14 Aug 2026 16:00:16 GMT
+
+https://www.cbr.com/sandra-bullock-practical-magic-streaming-success-august-2026/
+
+Sandra Bullock returns to one of her most memorable roles for a sequel next month, and audiences are now streaming the classic film to prepare.
+---------
+
+# Lanterns Review: The DCU's Best Project to Date
+
+TV, Lanterns
+
+Fri, 14 Aug 2026 16:00:16 GMT
+
+https://www.cbr.com/lanterns-review/
+
+In his review of Lanterns Season 1, CBR's Sean O'Connell says Lanterns benefits from brilliant casting and exquisite narrative pacing.
+---------
+
+# Reacher Meets Top Gun In Netflix's New Action Thriller
+
+Movies, Netflix
+
+Fri, 14 Aug 2026 16:00:16 GMT
+
+https://www.cbr.com/alan-ritchson-motogp-movie-is-reacher-meets-top-gun/
+
+Alan Ritchson's next big Netflix project is going to combine Reacher and Top Gun for an unforgettable thriller.
+---------
+
+# Kylo Ren’s Next Chapter Confirmed: Star Wars Reveals Brutal New Threats
+
+Comics, Star Wars
+
+Fri, 14 Aug 2026 16:00:16 GMT
+
+https://www.cbr.com/the-fall-kylo-ren-3-release-date-confirmed/
+
+A ruthless Supreme Leader returns to a crumbling First Order and decimates rivals while forbidden artifacts surface.
+---------
+
+# HBO's Harry Potter Series Slammed by Black Mirrors & Loki Directors: 'They Asked Me Twice'
+
+TV, Harry Potter
+
+Fri, 14 Aug 2026 15:58:05 GMT
+
+https://www.cbr.com/hbo-harry-potter-series-criticism-ally-pankiw-kate-herron/
+
+It's a big week for Harry Potter, but it's also filled with backlash.
+---------
+
+# HBO's Lanterns Fate Teased by Creator Ahead of Season 1 Release
+
+TV, Lanterns
+
+Fri, 14 Aug 2026 15:45:21 GMT
+
+https://www.cbr.com/hbo-lanterns-season-2-fate/
+
+The co-creator of HBO's Lanterns teases big things to come for the next DCU streaming series, and just days ahead of its premiere.
+---------
+
+# 10 Most Universally Beloved Movie Masterpieces of the 2000s
+
+Movies, Fantasy
+
+Fri, 14 Aug 2026 15:30:15 GMT
+
+https://www.cbr.com/beloved-perfect-movies-2000s-list/
+
+The 2000s were a golden age of universally-beloved entertainment, producing treasured family films, epic fantasy and the revival of the Western.
+---------
+
+# Kirk's Single Darkest Star Trek Line Hits Harder Than Any Sci-Fi Quote Since
+
+TV, Star Trek, Star Trek: The Original Series, Sci-Fi, Innovation
+
+Fri, 14 Aug 2026 15:30:15 GMT
+
+https://www.cbr.com/star-trek-tos-captain-kirk-dark-anti-war-quote/
+
+This Star Trek episode contains Kirk’s most haunting line, transforming a simple quote into a timeless warning about conflict that transcends sci-fi.
+---------
+
+# The Last Airbender's Controversial Sequel Is Officially a Streaming Hit
+
+Anime, Avatar: The Last Airbender
+
+Fri, 14 Aug 2026 15:15:16 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-controversial-sequel-official-streaming-hit/
+
+Despite a rocky release and divisive reviews, Avatar: The Last Airbender's latest sequel is dominating streaming charts worldwide.
+---------
+
+# The Greatest Character Arc in Sci-Fi Comes Down to Just 6 Words
+
+Movie Features, The Iron Giant, Brad Bird, Animation, Warner Bros. Animation
+
+Fri, 14 Aug 2026 16:06:15 GMT
+
+https://collider.com/the-iron-giant-greatest-character-arc-animation-six-words/
+
+The Iron Giant delivers one of animation’s greatest character arcs through six words that perfectly capture the movie’s message.
+---------
+
+# ‘Conan O’Brien Must Go’ Season 3 Is Delightfully Unhinged When It Lets Conan Be Conan | Review
+
+TV Reviews, Conan O'Brien Must Go, Conan O'Brien, Documentary, HBO
+
+Fri, 14 Aug 2026 16:00:16 GMT
+
+https://collider.com/conan-obrien-must-go-season-3-review/
+
+Conan O’Brien Must Go Season 3 is a hilarious return that works best when it trusts Conan O’Brien to create the chaos himself.
+---------
+
+# Jason Statham Officially Returns to Theaters With New 95-Minute Action Movie Next Week
+
+Movie News, Jason Statham, Mutiny, Action, Annabelle Wallis
+
+Fri, 14 Aug 2026 15:30:15 GMT
+
+https://collider.com/mutiny-jason-statham-95-minute-new-action-movie-release-date-august-21/
+
+Jason Statham's new action movie, Mutiny, is just around the corner. Find out when the film will be released in theaters.
+---------
+
+# 'TBBT' Spin-off Theory Completely Rewrites Sheldon's History After 9 Years
+
+Features, Comedy, Sci-Fi, The Big Bang Theory, Stuart Fails to Save the Universe, Young Sheldon, Jim Parsons, HBO Max
+
+Fri, 14 Aug 2026 16:00:13 GMT
+
+https://movieweb.com/tbbt-stuart-spin-off-young-sheldon-multiverse-theory/
+
+This theory suggests that 'Stuart Fails to Save the Universe' could explain why Sheldon Cooper's backstory in 'TBBT' doesn't quite make sense.
+---------
+
+# Taylor Sheridan's Best Action Thriller Officially Dominates Streaming
+
+TV News, Lioness
+
+Fri, 14 Aug 2026 15:30:43 GMT
+
+https://movieweb.com/taylor-sheridan-lioness-season-3-paramount/
+
+The epic action thriller series just surpassed its own viewership numbers in 7 days.
+---------
+
 # Stephen King & Guillermo Del Toro’s Praise For Apple TV’s New Horror Series Gets Cast Reaction
 
 TV, Widow's Bay, Widow's Bay - Season 1
