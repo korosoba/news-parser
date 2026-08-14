@@ -1,3 +1,333 @@
+# Marvel Reveals Radical New Spider-Man And Wolverine Redesigns For New Reboot Universe
+
+Marvel Comics, Spider-Man, Wolverine, Marvel
+
+Fri, 14 Aug 2026 19:21:49 GMT
+
+https://screenrant.com/spider-man-wolverine-new-redesigns-manga-universe/
+
+Spider-Man and Wolverine will be at the center of Marvel's new continuity, sporting drastic redesigns and transformations of their own.
+---------
+
+# Major Holmes Family Member’s Young Sherlock Season 2 Return With New Character Revealed In Set Images
+
+TV, Young Sherlock
+
+Fri, 14 Aug 2026 19:17:04 GMT
+
+https://screenrant.com/young-sherlock-season-2-max-irons-sophie-skelton-set-photo/
+
+Young Sherlock season 2 will see the return of one major person from the Holmes family, and a set photo reveals him with a newer face.
+---------
+
+# TBBT’s Stuart Fails To Save The Universe Season 2 Fate Sealed By HBO Max
+
+TV, Stuart Fails to Save the Universe, The Big Bang Theory
+
+Fri, 14 Aug 2026 19:13:19 GMT
+
+https://screenrant.com/stuart-fails-save-the-universe-season-2-hbo-max-renewed-confirmed/
+
+The Big Bang Theory spinoff Stuart Fails to Save the Universe has only released four episodes so far, but its future has just been decided by HBO Max.
+---------
+
+# Kit Harington's Upcoming A Tale Of Two Cities Series Is What GOT Fans Have Been Waiting For
+
+TV, Game Of Thrones, Kit Harington
+
+Fri, 14 Aug 2026 19:02:11 GMT
+
+https://screenrant.com/kit-harington-tale-of-two-cities-historical-drama-game-of-thrones/
+
+A starry supporting cast and grand historical scope promise layered arcs and high-stakes drama in Game of Thrones star Kit Harington's next show.
+---------
+
+# Smile Is Back With New Sequel, And It's Near-Perfect
+
+Comics, Smile
+
+Fri, 14 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/any-given-smile-prequel-idw/
+
+Don't smile.
+---------
+
+# 25 Years Later, This 10/10 PS2 Platformer Is Worth Playing On PlayStation Plus
+
+Gaming, PlayStation 2, PlayStation, PlayStation Plus, Jak and Daxter
+
+Fri, 14 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/playstation-plus-free-ps2-10-rated-classic/
+
+After 25 years, this incredible PlayStation 2 platformer has finally been added to PS Plus, and users should absolutely check it out.
+---------
+
+# Alan Ritchson's 8-Part Action Thriller Is Officially One Of Prime Video's Biggest Global Hits
+
+TV, Masked Recs, Alan Ritchson, Prime Video
+
+Fri, 14 Aug 2026 18:56:57 GMT
+
+https://screenrant.com/alan-ritchson-reacher-show-season-4-action-hit-prime-video-august-2026/
+
+The latest 8-episode run for Alan Ritchson's popular action TV series has officially become one of the biggest titles of all time on Prime Video.
+---------
+
+# 3 Best Movies To Watch On Disney+ This Weekend (August 15-16)
+
+Movies, Disney+, Recommendation
+
+Fri, 14 Aug 2026 18:47:05 GMT
+
+https://screenrant.com/best-disney-plus-movies-watch-weekend-august-15/
+
+Disney+'s best movies this weekend include the return of a major franchise, an animated film full of heart, and a timely $1.4 billion sci-fi epic.
+---------
+
+# Hannah Einbinder On Camp Miasma: Finding The Perfect Follow-Up For A Post-Hacks Future
+
+Movies, Teenage Sex and Death at Camp Miasma
+
+Fri, 14 Aug 2026 18:46:56 GMT
+
+https://screenrant.com/teenage-sex-and-death-at-camp-miasma-hannah-einbinder-interview/
+
+Hannah Einbinder found the perfect follow-up to Hacks in her collaboration with director Jane Schoenbrun, Teenage Sex and Death at Camp Miasma.
+---------
+
+# Marshals Season 2 Story Direction Is A Great Sign For Yellowstone Fans
+
+Network TV, Marshals, Yellowstone
+
+Fri, 14 Aug 2026 18:30:11 GMT
+
+https://screenrant.com/marshals-season-2-story-yellowstone-good/
+
+While still a few weeks away from returning, the direction of Marshals season 2's story would please those who miss Taylor Sheridan's Yellowstone.
+---------
+
+# You're Not Imagining It, Your Anime Shows Are Officially AI-Powered
+
+Anime, Artificial Intelligence
+
+Fri, 14 Aug 2026 19:20:15 GMT
+
+https://www.cbr.com/anipops-ai-anime-streaming-platform-launch/
+
+Japan launches its first official 'AI-powered' anime streaming service -- an unprecedented move that could change the industry forever.
+---------
+
+# 10 Pokémon Episodes Every '90s Kid Remembers
+
+Anime, Pokémon, Pokemon
+
+Fri, 14 Aug 2026 19:16:14 GMT
+
+https://www.cbr.com/unforgettable-pokemon-episodes-90s-kids-remember/
+
+As one of the most unforgettable anime series of the '90s, Pokémon influenced an entire generation of young viewers with stunning writing.
+---------
+
+# Paramount’s R-Rated Stephen King-esque Horror Continues Prime Video Streaming Dominance
+
+Movies, Primate
+
+Fri, 14 Aug 2026 19:11:35 GMT
+
+https://www.cbr.com/primate-horror-prime-video-success-august-2026/
+
+The brutal R-rated horror flick is having very long legs on streaming.
+---------
+
+# Disney's New Easy-to-Binge Supernatural Show Is Beating HBO to the Punch on Harry Potter
+
+TV, Disney+, Harry Potter
+
+Fri, 14 Aug 2026 19:01:36 GMT
+
+https://www.cbr.com/disney-coven-academy-first-look-release-date/
+
+Later this year, Harry Potter returns, but Disney+ has its own replacement series before.
+---------
+
+# Disney's Hit X-Men Series Thrives on Streaming Ahead of New MCU Movie
+
+TV, X-Men '97, Disney+, X-Men
+
+Fri, 14 Aug 2026 19:01:15 GMT
+
+https://www.cbr.com/x-men-97-disney-plus-thrives-on-streaming/
+
+The series continues to be a smash streaming hit.
+---------
+
+# Yellowstone Officially Replaced Beth in Dutton Ranch Season 1's Finale
+
+TV, Yellowstone, Dutton Ranch, Innovation
+
+Fri, 14 Aug 2026 19:01:15 GMT
+
+https://www.cbr.com/yellowstone-dutton-ranch-oreana-replaces-beth/
+
+The Yellowstone franchise ushered in its replacement for Beth Dutton in the Season 1 finale of Dutton Ranch.
+---------
+
+# 5 Most Perfect Adventure Movie Endings of All Time
+
+Movies, Adventure, Indiana Jones, The Lord of the Rings
+
+Fri, 14 Aug 2026 19:01:15 GMT
+
+https://www.cbr.com/perfect-adventure-movie-endings-list/
+
+Crafting a perfect adventure story has always been a hard task for filmmakers, and it's even more impressive when these movies have perfect endings.
+---------
+
+# HBO’s New 8-Part Sci-Fi Mystery Thriller Overcomes Backlash With Glowing Reviews
+
+TV, DCU, DC Comics, Lanterns
+
+Fri, 14 Aug 2026 18:25:20 GMT
+
+https://www.cbr.com/lanterns-season-1-rotten-tomatoes-score/
+
+It looks like James Gunn is about to have the last laugh — this time.
+---------
+
+# 10 Anime to Watch Before Apothecary Diaries Season 3
+
+Anime, The Apothecary Diaries, Raven of the Inner Palace
+
+Fri, 14 Aug 2026 18:15:20 GMT
+
+https://www.cbr.com/anime-to-watch-before-apothecary-diaries-season-3/
+
+With The Apothecary Diaries returning in the Fall 2026 Anime Season, fans in search of a similar watch to tide them over need look no further.
+---------
+
+# 10 Essential Thriller Shows That Belong on Every Fan's Bucket List
+
+TV, Thriller, Hannibal, Dark, Severance
+
+Fri, 14 Aug 2026 19:08:17 GMT
+
+https://collider.com/essential-thriller-shows-watch-bucket-list/
+
+Discover the essential thriller shows that redefine the genre and keep you on the edge of your seat, including Hannibal, Mindhunter, and Dark.
+---------
+
+# The Fate of 'The Big Bang Theory's Sci-Fi Spin-Off Officially Revealed by HBO Max
+
+TV News, Stuart Fails to Save the Universe, The Big Bang Theory, HBO Max, HBO
+
+Fri, 14 Aug 2026 19:08:15 GMT
+
+https://collider.com/stuart-fails-to-save-the-universe-season-2-renewed/
+
+The fate of HBO Max's sci-fi Big Bang Theory spin-off has officially been revealed.
+---------
+
+# Taylor Sheridan’s ’The Sopranos’ Replacement Is Officially Blowing Up on Streaming
+
+TV News, Tulsa King, The Sopranos, Yellowstone, Taylor Sheridan
+
+Fri, 14 Aug 2026 19:00:14 GMT
+
+https://collider.com/taylor-sheridan-crime-thriller-tulsa-king-streaming-success-paramount-plus-august-2026/
+
+Taylor Sheridan's top 10 crime thriller on Paramount+ is perfect for Sopranos and Yellowstone fans.
+---------
+
+# A New 'Far Side' Comic Has Officially Appeared After Weeks-Long Absence
+
+Books and Comics News, Tales from the Far Side, Comics, Sci-Fi, Comedy
+
+Fri, 14 Aug 2026 19:00:11 GMT
+
+https://collider.com/new-far-side-comic-post-daily-dose-absence/
+
+The Far Side, a dedicated site to Gary Larson's beloved comic strip, has finally updated after weeks of silence.
+---------
+
+# 6 Best TV Shows Released Since 2020
+
+TV, The Bear, The Pitt, The Rehearsal, House of the Dragon
+
+Fri, 14 Aug 2026 18:31:15 GMT
+
+https://collider.com/best-tv-shows-since-2020-ranked/
+
+From The Pitt to House of the Dragon, these exceptional TV shows prove the golden age of television is thriving.
+---------
+
+# Christopher Nolan’s Twisted $109 Million Sci-Fi Thriller Re-Release Is Officially a Streaming Hit
+
+Movie News, Christopher Nolan, The Prestige, The Odyssey, IMAX
+
+Fri, 14 Aug 2026 18:30:15 GMT
+
+https://collider.com/christopher-nolan-the-prestige-streaming-success-august-2026-theatrical-re-release/
+
+Ahead of The Prestige's theatrical re-release to mark its 20th anniversary, it is experiencing a global streaming resurgence. Here's all to know.
+---------
+
+# Why 'The End of Oak Street' Feels Like a 'Cloverfield' Movie (Even Though It Isn't)
+
+Movie Features, J.J. Abrams, The End of Oak Street, Cloverfield, 10 Cloverfield Lane
+
+Fri, 14 Aug 2026 18:26:59 GMT
+
+https://collider.com/jj-abrams-sci-fi-end-of-oak-street-cloverfield-connection/
+
+The End of Oak Street may not technically be part of the Cloverfield universe, but many details make it feel like a spiritual successor.
+---------
+
+# X-Men '97 S2: Magneto Was Hidden in Polaris's Theme | Collider BTS
+
+TV, X-Men '97
+
+Fri, 14 Aug 2026 18:15:20 GMT
+
+https://collider.com/video/x-men-97-s2-magneto-was-hidden-in-polaris-s-theme-collider-bts/
+
+Carolina Ravassa reveals how a secretive audition left her completely unaware she was playing Magneto's daughter until after she booked the role.
+---------
+
+# HBO Max Officially Confirms Future of ‘Stuart Fails to Save the Universe’
+
+TV News, Stuart Fails to Save the Universe, The Big Bang Theory
+
+Fri, 14 Aug 2026 19:14:47 GMT
+
+https://movieweb.com/stuart-fails-to-save-the-universe-renewed-season-2/
+
+'The Big Band Theory' spin-off will return with more episodes in a Season 2.
+---------
+
+# The Ending of 'The End of Oak Street' Explained
+
+Features, The End of Oak Street
+
+Fri, 14 Aug 2026 19:00:12 GMT
+
+https://movieweb.com/the-end-of-oak-street-ending-explained/
+
+'The End of Oak Street' features a sci-fi mystery in addition to non-stop dinosaur action, but it's mind-bending finale requires some clarification.
+---------
+
+# 2027 'Spider-Man' Movie Leak Sparks Official Response From Producer
+
+Movie News, Spider-Man: Beyond the Spider-Verse
+
+Fri, 14 Aug 2026 18:19:40 GMT
+
+https://movieweb.com/spider-man-beyond-the-spider-verse-trailer-leak-chris-miller/
+
+'Spider-Man: Beyond the Spider-Verse' was one of many victims of online leaks.
+---------
+
 # A 10/10 GameCube Game From 2002 Is Free Via Nintendo Switch Online Now
 
 Gaming, Nintendo Switch, Nintendo GameCube, Triple-A Games
