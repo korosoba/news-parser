@@ -1,3 +1,80 @@
+# Top 3 Must-Watch Prime Video Shows This Weekend: August 14–16, 2026
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Fri, 14 Aug 2026 22:45:11 GMT
+
+https://screenrant.com/best-prime-video-shows-to-binge-weekend-august-14-2026/
+
+The 3 best Prime Video shows worth a weekend binge right now include Jury Duty Presents: Company Retreat, Sterling Point, and Reacher season 4.
+---------
+
+# Lioness Season 3 Is Why Taylor Sheridan Shows Are Becoming Hard To Watch
+
+Streaming TV, Lioness, Taylor Sheridan
+
+Fri, 14 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/lioness-controversial-scene-taylor-sheridan/
+
+Taylor Sheridan is no stranger to controversy, but the most recent episode of Lioness season 3 explains why his shows have gotten more uncomfortable.
+---------
+
+# Brandon Sanderson Meets Tolkien In Netflix's 7-Part High Fantasy Series
+
+Classic TV, Masked Recs
+
+Fri, 14 Aug 2026 22:15:11 GMT
+
+https://screenrant.com/the-dragon-prince-netflix-brandon-sanderson-meets-tolkien/
+
+A seven-part high fantasy show on Netflix feels like a perfect combination of the worlds of Tolkien and Brandon Sanderson, and it's a must-watch.
+---------
+
+# Ridley Scott’s 142-Minute Hard Sci-Fi Thriller Shoots Up Streaming Rankings 11 Years Later
+
+Movies, The Martian, Apple TV, Sci-Fi
+
+Fri, 14 Aug 2026 22:14:54 GMT
+
+https://www.cbr.com/the-martian-sci-fi-success-apple-tv-august-2026/
+
+Ridley Scott's critically acclaimed sci-fi is a streaming hit more than a decade later.
+---------
+
+# 10 Perfect Fantasy Shows With 5 Seasons or Less
+
+TV, Fantasy, House of the Dragon, The Wheel of Time, Arcane
+
+Fri, 14 Aug 2026 22:44:14 GMT
+
+https://collider.com/perfect-fantasy-shows-shorter-than-5-seasons/
+
+Discover great fantasy TV series with five seasons or fewer that deliver exceptional storytelling, from House of the Dragon to The Wheel of Time.
+---------
+
+# Netflix’s New 8-Part Sci-Fi Adaptation Could Usher in a New Era for the Streamer
+
+TV Features, Netflix, Philip K. Dick, Squid Game, Stranger Things
+
+Fri, 14 Aug 2026 22:16:14 GMT
+
+https://collider.com/netflix-the-future-is-ours-philip-k-dick-sci-fi-adaptation-details/
+
+Philip K. Dick's The Future is Ours is getting a Netflix adaptation, which could help the streamer stand out in a packed sci-fi landscape.
+---------
+
+# 'The Purge' Only Happened Because the Filmmakers Accused Jason Blum of Stealing
+
+Movie News, The Purge, Jason Blum, Andrew Form
+
+Fri, 14 Aug 2026 22:37:25 GMT
+
+https://movieweb.com/the-purge-franchise-origins-jason-blum-stolen-career/
+
+Producers Brad Fuller and Andrew Form joked that Blum caused their careers to stagnate, leading to a fateful collaboration.
+---------
+
 # 3 Best Movies To Watch On Netflix This Weekend (August 15-16)
 
 Movies, Netflix, Recommendation
