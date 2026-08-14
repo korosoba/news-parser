@@ -1,3 +1,14 @@
+# ‘Silo’ Star Jessica Henwick Breaks Down Helen’s Chilling Episode 7 Discovery
+
+Exclusives, Silo, Apple TV, Jessica Henwick, Science Fiction
+
+Fri, 14 Aug 2026 07:00:15 GMT
+
+https://collider.com/silo-season-3-episode-7-jessica-henwick-final-minutes-meaning/
+
+Silo star Jessica Henwick breaks down Helen’s Episode 7 discovery, her shifting morals, and the chilling truth behind the silos.
+---------
+
 # Game Of Thrones: The Great Hunt Officially Arrives August 18
 
 Gaming, Game of Thrones, Game of Thrones: Conquest, Game Of Thrones, PC
