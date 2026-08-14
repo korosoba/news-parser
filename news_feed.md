@@ -1,3 +1,58 @@
+# 52 Years Later, Stephen King's Iconic Debut Novel Is Getting The Update It Deserves
+
+Streaming TV, Masked Recs
+
+Fri, 14 Aug 2026 23:30:11 GMT
+
+https://screenrant.com/carrie-stephen-king-update-tv-show-deserved/
+
+Stephen King's debut novel will resonate with anyone who has ever felt like an outcast, but while the theme is timeless, the story needs updating.
+---------
+
+# Apple TV's Best Drama Is Now 1 of the Most-Watched Shows in the U.S. After Prime Video Takeover
+
+TV, Ted Lasso, Apple TV, Prime Video
+
+Fri, 14 Aug 2026 23:30:14 GMT
+
+https://www.cbr.com/ted-lasso-apple-tv-prime-video-success-august-2026/
+
+The beloved series is rising in the Prime Video charts.
+---------
+
+# Naruto Editor Reveals Why Kishimoto Got Sick Every Week: 'I Had to Lie'
+
+Anime, Naruto, masashi kishimoto
+
+Fri, 14 Aug 2026 23:20:15 GMT
+
+https://www.cbr.com/naruto-masashi-kishimoto-editor-lie/
+
+Naruto creator Masashi Kishimoto fell sick so frequently during the manga's serialization that his editor believed he would eventually collapse.
+---------
+
+# 10 Best Isekai Anime of the 21st Century, Ranked
+
+Anime, Isekai, KonoSuba: God's Blessing on This Wonderful World!
+
+Fri, 14 Aug 2026 23:15:15 GMT
+
+https://www.cbr.com/official-best-isekai-anime-of-the-21st-century-ranked/
+
+Isekai has exploded as an anime genre in the 21st century, and it's produced some of the greatest series of all time.
+---------
+
+# 3 Greatest Series to Binge on Prime Video This Week (August 15-16)
+
+TV, Overcompensating, Reacher, Good Girls Revolt, Prime Video
+
+Fri, 14 Aug 2026 23:43:14 GMT
+
+https://collider.com/prime-video-shows-binge-august-15-2026/
+
+Reacher, Overcompensating, and Good Girls Revolt make up our list of the best series to binge on Prime Video the weekend of August 15th, 2026.
+---------
+
 # 10 Best Cult Classic Books Of All Time
 
 Books
