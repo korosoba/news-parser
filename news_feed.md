@@ -1,3 +1,168 @@
+# 2026 Has Proven James Gunn's DCU Doesn't Need Its Own Batman
+
+Movies, DC Universe
+
+Fri, 14 Aug 2026 20:00:11 GMT
+
+https://screenrant.com/james-gunn-dcu-batman-robert-pattinson/
+
+Many have wondered when the DC Universe will unveil its Batman, but several projects from 2026 have proven that it doesn't need to just yet.
+---------
+
+# New Political Thriller With Star-Studded Cast Debuts To Solid Rotten Tomatoes Score
+
+Movies, Masked Recs
+
+Fri, 14 Aug 2026 19:58:04 GMT
+
+https://screenrant.com/the-brink-of-war-rotten-tomatoes-score/
+
+A brand-new political thriller with a star-studded cast debuts with a solid Rotten Tomatoes score on the day of its release, August 14.
+---------
+
+# The Far Side's Creator Turns 76 Today & Still Hasn't Explained Why He Walked Away At 44
+
+Comics, The Far Side
+
+Fri, 14 Aug 2026 19:55:47 GMT
+
+https://screenrant.com/the-far-sides-creator-turns-76-today-still-hasnt-explained-why-he-walked-away-at-44/
+
+Happy birthday, Gary Larson!
+---------
+
+# 12 Years Later, Jake Gyllenhaal’s Disturbing Thriller Is Still A Must-Watch
+
+Movies, Masked Recs
+
+Fri, 14 Aug 2026 19:47:38 GMT
+
+https://screenrant.com/ake-gyllenhaal-nightcrawler-movie-streaming-netflix-must-watch/
+
+Jake Gyllenhaal gives one of his most unsettling performances in this disturbing 2014 thriller, now streaming on Netflix.
+---------
+
+# The $271 Million Sci-Fi Fantasy Movie Stephen King Hailed As "Special" Changed A Major Franchise
+
+Movies, Masked Recs
+
+Fri, 14 Aug 2026 19:38:33 GMT
+
+https://screenrant.com/the-flash-movie-stephen-king-praise-dc-universe-change/
+
+This $271 million Sci-Fi fantasy movie that ended up changing a major franchise was praised by Stephen King, but its hero's return will take time.
+---------
+
+# The X-Files: I Want To Believe's Fight For PG-13 Rating Against Studio Execs & MPA
+
+Movies, The X-Files: I Want to Believe, The X-Files, Chris Carter
+
+Fri, 14 Aug 2026 19:32:25 GMT
+
+https://screenrant.com/the-x-files-i-want-to-believe-pg-13-rating-fight-studio-execs-mpa-chris-carter/
+
+Writer/director Chris Carter talks The X-Files: I Want to Believe's new R-rated director's cut and his previous battles with studio execs and the MPA.
+---------
+
+# 4-Season Superhero Series Returning Next Month Is The Incredibles Meets Sky High
+
+Streaming TV, Masked Recs
+
+Fri, 14 Aug 2026 19:30:11 GMT
+
+https://screenrant.com/the-thundermans-movie-return-incredibles-sky-high/
+
+An underrated four-season superhero TV show feels like a perfect mix of The Incredibles and Sky High, and it's coming back very soon.
+---------
+
+# It’s Official: Marvel’s Ultimate Universe Is Better Than Earth-616
+
+Comics, Marvel
+
+Fri, 14 Aug 2026 20:00:15 GMT
+
+https://www.cbr.com/marvel-ultimate-universe-better-than-earth-616/
+
+Marvel's Ultimate Universe revisited an old concept and may have surpassed the continuity that fans have been following for decades.
+---------
+
+# Spider-Man: Brand New Day Has Already Set Up the Perfect Way to Redeem Sony's Biggest Failure
+
+Movies, Spider-Man: Brand New Day, MCU, Madame Web
+
+Fri, 14 Aug 2026 20:00:15 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-madame-web-sony-failure/
+
+Tom Holland's new Spider-Man trilogy has a way to redeem Sony's biggest catastrophe.
+---------
+
+# 5 Smartest Borg in Star Trek
+
+TV, Star Trek, Sci-Fi, Paramount, Innovation
+
+Fri, 14 Aug 2026 20:00:15 GMT
+
+https://www.cbr.com/star-trek-smartest-borg-list/
+
+The Borg are a formidable, nearly unstoppable threat, partly because they have massive intelligence. Here are five of the smartest Borg of all.
+---------
+
+# HBO Max Seals the Fate of Its Sci-Fi The Big Bang Theory Spinoff in Just 3 Weeks
+
+TV, The Big Bang Theory, Stuart Fails to Save the Universe
+
+Fri, 14 Aug 2026 19:35:03 GMT
+
+https://www.cbr.com/hbo-max-stuart-fails-to-save-the-universe-fate/
+
+The show hasn't even reached its halfway mark before HBO Max decided its fate.
+---------
+
+# ‘Creed’ Meets ‘Warrior’ in Russell Crowe’s New Streaming Sensation
+
+Movie News, Russell Crowe, Beast, Luke Hemsworth, Sports
+
+Fri, 14 Aug 2026 19:30:15 GMT
+
+https://collider.com/beast-russell-crowe-mma-sports-movie-streaming-success-august/
+
+Russell Crowe plays the Burgess Meredith role in the new MMA movie Beast, which has emerged as a major hit on streaming. Find out more.
+---------
+
+# 10 Grittiest Thrillers of All Time
+
+Movie, Thriller, No Country for Old Men, Funny Games, Good Time
+
+Fri, 14 Aug 2026 19:29:15 GMT
+
+https://collider.com/grittiest-thriller-movies-all-time-ranked/
+
+Many exceptionally gritty thriller movies have come out over the years, from long-lasting classics like Chinatown to recent efforts like Prisoners.
+---------
+
+# Netflix Revives 20-Year-Old Sci-Fi Cult Classic to Become Major Streaming Hit
+
+TV News, Heroes, Netflix, Hot on Streaming, Sci-Fi
+
+Fri, 14 Aug 2026 20:01:12 GMT
+
+https://movieweb.com/heroes-stream-netflix-scifi-nielsen/
+
+One of the most iconic and divisive sci-fi shows ever made is finding new life on Netflix.
+---------
+
+# 'Star Trek: Strange New Worlds' Season 4 Drops Huge Piece of Klingon Lore
+
+Features, star trek: strange new worlds, Star Trek
+
+Fri, 14 Aug 2026 20:01:12 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-klingon-cloaking-tech/
+
+Klingons are often framed as great villains, but all their advantages didn't come at once. 'Strange New Worlds' just debuted one of them. Read on.
+---------
+
 # Marvel Reveals Radical New Spider-Man And Wolverine Redesigns For New Reboot Universe
 
 Marvel Comics, Spider-Man, Wolverine, Marvel
