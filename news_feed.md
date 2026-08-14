@@ -1,3 +1,223 @@
+# An Investigation Into Whether The End Of Oak Street Is Secretly A Cloverfield Movie
+
+New Movies, The End of Oak Street
+
+Fri, 14 Aug 2026 20:45:11 GMT
+
+https://screenrant.com/the-end-of-oak-street-cloverfield-movie-explained/
+
+The End of Oak Street has drawn speculation due to its potential status as a secret Cloverfield movie. An investigation leads to an official verdict.
+---------
+
+# Top 3 Must-Watch Netflix Shows This Weekend: August 14–16, 2026
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Fri, 14 Aug 2026 20:45:11 GMT
+
+https://screenrant.com/best-netflix-shows-to-binge-weekend-august-14-2026/
+
+The top 3 shows to binge-watch this weekend on Netflix include My Life with the Walter Boys, Tires season 3, and The Idaho Murders: College Nightmare.
+---------
+
+# Rebooted Scrubs Season 2 Is Hiring A New Nurse For Turk's Team
+
+TV, Scrubs, Keyla Monterroso Mejia
+
+Fri, 14 Aug 2026 20:41:18 GMT
+
+https://screenrant.com/scrubs-season-2-keyla-monterroso-nurse-casting-details/
+
+Some cast members on the Scrubs reboot aren’t returning for the upcoming second season, but the hospital will welcome a new surgical nurse.
+---------
+
+# Jason Bourne Meets Blade Runner In Netflix’s 2-Part Sci-Fi Series
+
+Classic TV, Masked Recs
+
+Fri, 14 Aug 2026 20:30:11 GMT
+
+https://screenrant.com/altered-carbon-jason-bourne-meets-blade-runner-netflix/
+
+Jason Bourne and Blade Runner don't normally go together, but Netflix's two season cyberpunk show blends them into a near-perfect series.
+---------
+
+# Disney Dreamlight Valley Teases Jack Sparrow In New Update
+
+Gaming, Disney Dreamlight Valley, Disney, Triple-A Games, PC
+
+Fri, 14 Aug 2026 20:30:11 GMT
+
+https://screenrant.com/disney-dreamlight-valley-keepsake-sea-jack-sparrow-d23/
+
+Disney Dreamlight Valley has a lot on the horizon, and the next major expansion is set to introduce the worst pirate you've ever heard of.
+---------
+
+# Lanterns Review: DC Finally Gets Green Lantern Right
+
+TV, Lanterns, Originals
+
+Fri, 14 Aug 2026 20:27:32 GMT
+
+https://screenrant.com/video/lanterns-review-dc-finally-gets-green-lantern-right/
+
+Lanterns Review: DC Finally Gets Green Lantern Right. HBO’s new DC series delivers the live-action Green Lantern adaptation fans have been waiting for, while proving its biggest creative risks were worth taking.
+---------
+
+# Rebecca Yarros Announces Surprise Early Release For New Fourth Wing Book
+
+Books, Fourth Wing (2023)
+
+Fri, 14 Aug 2026 20:26:28 GMT
+
+https://screenrant.com/fourth-wing-graphic-novel-release-date-rebecca-yarros/
+
+Fourth Wing is coming back sooner than fans thought, as Rebecca Yarros announces a surprise early release for a new addition to her series.
+---------
+
+# The Wrong Girls Lives Up To A Comedy Style That's Been Underserved For Years
+
+Movies, The Wrong Girls
+
+Fri, 14 Aug 2026 20:20:11 GMT
+
+https://screenrant.com/the-wrong-girls-stoner-comedy-legacy/
+
+The Wrong Girls is a wacky comedy that feels like it's drawing on a style of humor that hasn't been in the forefront of the genre for years.
+---------
+
+# 12 Best Steamy Movies Of The 21st Century That Are Great From Start To Finish
+
+Movies, Romance
+
+Fri, 14 Aug 2026 20:20:11 GMT
+
+https://screenrant.com/best-steamy-movies-21st-century-ranked/
+
+Contemporary audiences have been titillated and thrilled by these twelve fantastic films, featuring some great stories and incredible sexual tension.
+---------
+
+# Deli Boys Season 3's Fate Officially Decided By Hulu
+
+TV, Deli Boys
+
+Fri, 14 Aug 2026 20:08:21 GMT
+
+https://screenrant.com/deli-boys-canceled-hulu/
+
+After two seasons and a near-perfect 98% score from critics on Rotten Tomatoes, the fate of Hulu's Deli Boys has been officially decided.
+---------
+
+# Star Trek Writer Confirms Goals For Seven of Nine’s Bold New Adventure
+
+CBR Exclusives, Star Trek
+
+Fri, 14 Aug 2026 20:38:37 GMT
+
+https://www.cbr.com/star-trek-christopher-cantwell-seven-of-nine/
+
+Chris Cantwell launches a new era with Star Trek #1, and takes time to tell us about his new book's inspirations and goals.
+---------
+
+# Gundam Writer's Cult Classic Series Returns 17 Years Later With New Steam Release
+
+Anime, Phantom: Requiem for the Phantom, Steam
+
+Fri, 14 Aug 2026 20:35:15 GMT
+
+https://www.cbr.com/phantom-of-inferno-new-steam-release/
+
+A fan-favorite 2000s anime series sees new life as a fresh Steam video game release nearly two decades later.
+---------
+
+# PlayStation Officially Makes 10/10 Masterpiece PS1 Game Free On PS Plus
+
+Games, Resident Evil, PlayStation (Original)
+
+Fri, 14 Aug 2026 20:24:18 GMT
+
+https://www.cbr.com/resident-evil-directors-cut-free-playstation-plus-august-2026/
+
+One of the very best PS1 games can be revisited for free via PlayStation Plus.
+---------
+
+# Adam Sandler's New Netflix Movie Debuts to a Near-Perfect Rotten Tomatoes Score
+
+Movies, Don't Say Good Luck, Rotten Tomatoes
+
+Fri, 14 Aug 2026 20:19:40 GMT
+
+https://www.cbr.com/netflix-dont-say-good-luck-rotten-tomatoes-score/
+
+Netflix's new drama has thoroughly impressed critics.
+---------
+
+# Footage of Sony’s Next Spider-Man Movie After Brand New Day Leaks Online Ahead of 2027 Release
+
+Movies, Spider-Man: Beyond the Spider-Verse, Spider-Verse, Spider-Man
+
+Fri, 14 Aug 2026 20:15:32 GMT
+
+https://www.cbr.com/spider-man-beyond-the-spider-verse-leaked-footage/
+
+A new look at the next Spider-Man move found its way online before it was ready.
+---------
+
+# Best D&D 5.5e Subclasses For New Players, Ranked
+
+Games, Dungeons and Dragons, Tabletop
+
+Fri, 14 Aug 2026 20:15:15 GMT
+
+https://www.cbr.com/best-dnd-5e-subclasses-new-players-ranked/
+
+Dungeons & Dragons 5e can be a tricky game to master, but there are some character classes that are an ideal fit for teaching new players the ropes.
+---------
+
+# 1998 Was the Best Year for Video Games, and These 10 Titles Prove It
+
+Gaming, Video Game, Baldur's Gate, Metal Gear Solid, The Legend of Zelda
+
+Fri, 14 Aug 2026 20:50:14 GMT
+
+https://collider.com/best-video-games-1998/
+
+Fans and critics often point to 1998 as the single best year for gaming ever, thanks to classics like Resident Evil 2 and Half-Life.
+---------
+
+# All 4 Avengers Movies, Ranked by Impact
+
+Movie, The Avengers, Avengers: Age of Ultron, Avengers: Infinity War, Avengers: Endgame
+
+Fri, 14 Aug 2026 20:05:14 GMT
+
+https://collider.com/avengers-movies-mcu-impact-ranked/
+
+Every Avengers movie had repercussions, both in-universe and in the cultural and industry landscapes in real life, but which had the biggest impact?
+---------
+
+# ‘The Simpsons Movie 2’ Reveals Official New Title & Confirms 2027 Release
+
+Movie News, The Simpsons 2
+
+Fri, 14 Aug 2026 20:50:04 GMT
+
+https://movieweb.com/the-simpsons-movie-2-title-confirmed/
+
+Disney’s 'The Simpsons' sequel is headed for September 3, 2027 release, with D23 also suggesting the film may be titled 'The New Simpsons Movie.'
+---------
+
+# Matt Damon's New Sci-Fi Action Thriller Is a 'Power Ranger'-Esque Blockbuster
+
+Movie News, Matt Damon
+
+Fri, 14 Aug 2026 20:37:07 GMT
+
+https://movieweb.com/matt-damon-the-daniels-sci-fi-film-power-rangers/
+
+The Daniels' new sci-fi action thriller is actually an epic 'Power Ranger'-like blockbuster starring Matt Damon.
+---------
+
 # 2026 Has Proven James Gunn's DCU Doesn't Need Its Own Batman
 
 Movies, DC Universe
