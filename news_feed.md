@@ -1,3 +1,289 @@
+# 5 Hard PlayStation 2 Games Nobody Could Beat As A Kid
+
+Gaming, PlayStation 2
+
+Fri, 14 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/5-hard-playstation-2-games-nobody-could-beat-kid/
+
+The PlayStation 2 is arguably the best console of all time, but there were plenty of games that stoically stood in our way as children.
+---------
+
+# NCIS’s Lost Storyline Needs To Make A Comeback In Season 24
+
+Network TV, NCIS
+
+Fri, 14 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/ncis-palmer-knight-torres-love-triangle-lost-story/
+
+NCIS spent part of season 23 hinting at a love triangle between Knight, Palmer, and Torres before the whole thing fell to the wayside.
+---------
+
+# Only Murders In The Building Season 6 Seemingly Gets First Retitle In Show’s History
+
+TV, Only Murders in the Building
+
+Fri, 14 Aug 2026 16:50:42 GMT
+
+https://screenrant.com/only-murders-in-the-building-season-6-title-change-history-first/
+
+When Only Murders in the Building returns to Hulu for season 6, the show will unveil a new title that’s very fitting for the upcoming storyline.
+---------
+
+# 10 The Rookie Characters Who Deserve More Screen Time In Season 9
+
+Network TV, The Rookie
+
+Fri, 14 Aug 2026 16:45:11 GMT
+
+https://screenrant.com/the-rookie-season-9-characters-deserve-more-screen-time/
+
+10 characters from The Rookie that need to see more screen time in the upcoming season 9, whether to further their plot or for better storytelling.
+---------
+
+# The Last Of Us-Like R-Rated Sci-Fi Thriller Emerges As Netflix Global Hit
+
+Movies, Masked Recs
+
+Fri, 14 Aug 2026 16:38:35 GMT
+
+https://screenrant.com/extinction-2015-movie-lost-matthew-fox-netflix-global-streaming-success-august-2026/
+
+The Last of Us isn’t the only hit post-apocalyptic thriller in recent years. A film from 2015 has found renewed success on the streaming charts.
+---------
+
+# 3 Best Movies To Watch On Hulu This Weekend (August 15-16)
+
+Movies, Hulu, Recommendation
+
+Fri, 14 Aug 2026 16:35:11 GMT
+
+https://screenrant.com/best-hulu-movies-watch-weekend-august-15/
+
+Hulu has something for everyone to watch this weekend, but these three amazing movies are the best of what the streamer is offering.
+---------
+
+# J.J. Abrams & James Wan Teaming With Netflix For New 8-Episode Supernatural Drama
+
+TV, Netflix, J.J. Abrams, James Wan, Horror
+
+Fri, 14 Aug 2026 16:34:16 GMT
+
+https://screenrant.com/sid-and-zoey-netflix-series-jj-abrams-james-wan/
+
+J.J. Abrams and James Wan are officially joining forces with Netflix for a new eight-episode supernatural drama that will be your next obsession.
+---------
+
+# HBO's Lanterns Redeems James Gunn's DC Era With Stellar Rotten Tomatoes Score
+
+TV, Lanterns, DC Universe, Green Lantern
+
+Fri, 14 Aug 2026 16:33:25 GMT
+
+https://screenrant.com/lanterns-show-hbo-dc-rotten-tomatoes-score-james-gunn/
+
+DC Studios' Lanterns TV show debuts this week, as the Rotten Tomatoes score has finally officially debuted for the upcoming superhero series on HBO.
+---------
+
+# PlayStation Plus Gamers Shouldn't Miss This 10/10 Cyberpunk Masterpiece From 2002
+
+Gaming, PlayStation Plus, PC, Deus Ex, PlayStation 2
+
+Fri, 14 Aug 2026 16:33:03 GMT
+
+https://screenrant.com/playstation-plus-2002-ps2-free-game-deus-ex/
+
+While there are a ton of great gems on PlayStation Plus, Cyberpunk fans shouldn't sleep on this 10/10 banger from 2002.
+---------
+
+# The Waltons Cast Deaths & Who's Still Alive
+
+Classic TV, The Waltons
+
+Fri, 14 Aug 2026 16:30:12 GMT
+
+https://screenrant.com/the-waltons-cast-deaths-still-alive-main-actors/
+
+The Waltons is a '70s drama show that follows the titular family; while there have been some deaths in the cast, everyone leaves a memorable legacy.
+---------
+
+# Transformers Rolls Out Bumblebee, Soundwave & 10 More in New Vehicle Collection
+
+Anime, Transformers, merchandise
+
+Fri, 14 Aug 2026 17:20:15 GMT
+
+https://www.cbr.com/transformers-blokees-wheels-august-2026/
+
+The newest wave of Blokees Wheels model kits features several classic G1 Transformers, along with Autobots and Decepticons from other timelines.
+---------
+
+# It's Official, One Piece Is Giving Luffy New Mythical Zoan Powers
+
+Anime, One Piece, Eiichiro Oda, Manga, Shonen
+
+Fri, 14 Aug 2026 17:15:15 GMT
+
+https://www.cbr.com/one-piece-luffy-new-mythical-zoan-powers/
+
+Luffy's Gear Five transformation came with a litany of new powers, and somehow, it looks like the Emperor of the Sea has even more abilities in store.
+---------
+
+# 6-Part Sci-Fi Show With the Most Controversial Finale in TV History Returns as a Streaming Hit
+
+TV, Lost, ABC, Apple TV
+
+Fri, 14 Aug 2026 17:00:15 GMT
+
+https://www.cbr.com/lost-fantasy-streaming-hit-august-2026/
+
+The hit series is rising in the streaming charts.
+---------
+
+# Alexandra Daddario’s New 8-Part Prime Video Show Already Sounds Like 2026's Steamiest Series
+
+TV, Escorted, Innovation, Prime Video
+
+Fri, 14 Aug 2026 17:00:15 GMT
+
+https://www.cbr.com/prime-video-escorted-steamy-series/
+
+Prime Video's upcoming series may rival recent steamy streaming shows like Heated Rivalry, and its cast has us excited.
+---------
+
+# 10 X-Men Heroes Who Need Their Own Solo Series
+
+Comics, Marvel Comics, X-Men
+
+Fri, 14 Aug 2026 17:00:15 GMT
+
+https://www.cbr.com/x-men-heroes-who-deserve-their-own-solo-series/
+
+More X-Men than Wolverine can manage their own comic series.
+---------
+
+# Pokémon Pokopia Is Officially Leaving Other Switch 2 Games in the Dust
+
+Games, Pokemon
+
+Fri, 14 Aug 2026 16:55:16 GMT
+
+https://www.cbr.com/pokemon-pokopia-sales-milestone-switch-2-games/
+
+Pokémon Pokopia was an immediate hit, but a new sales milestone shows its popularity may be outpacing other Switch 2 games by a wide margin.
+---------
+
+# USA's 8-Part Untamed Replacement Debuts With Best Ratings in 8 Years
+
+TV, Anna Pigeon, USA, Untamed
+
+Fri, 14 Aug 2026 16:31:03 GMT
+
+https://www.cbr.com/anna-pigeon-usa-best-ratings-2026/
+
+USA's Anna Pigeon has proved to be a hit.
+---------
+
+# 10 Strongest Versions of Megatron, Ranked
+
+Anime, Transformers
+
+Fri, 14 Aug 2026 16:15:15 GMT
+
+https://www.cbr.com/transformers-strongest-versions-of-megatron-ranked/
+
+Megatron is an infamously powerful anime villain, but some versions of the Decepticon leader are stronger than others.
+---------
+
+# 10 Game of the Year Winners That Aged Like Fine Wine
+
+Gaming, Video Game, Batman: Arkham Asylum, Legend of Zelda: Breath of the Wild, Portal
+
+Fri, 14 Aug 2026 17:04:16 GMT
+
+https://collider.com/game-of-the-year-winners-aged-like-fine-wine/
+
+Not all video games hold up perfectly, but Game of the Year winners like Portal 2 and The Legend of Zelda: Breath of the Wild have aged very well.
+---------
+
+# The Sci-Fi Blockbuster That Roger Ebert Called “An Assault on the Eyes, the Ears, and the Brain” Is a Streaming Super-Hit
+
+Movie News, Armageddon, Michael Bay, Ben Affleck, Roger Ebert
+
+Fri, 14 Aug 2026 17:00:15 GMT
+
+https://collider.com/armageddon-sci-fi-blockbuster-roger-ebert-hated-streaming-success-august/
+
+One of the defining blockbusters of the 1990s, Michael Bay's Armageddon, is having a resurgence on home video. Find out more.
+---------
+
+# David Boreanaz's New Reboot of 52-Year-Old Detective Series Officially Confirmed
+
+TV News, The Rockford Files, David Boreanaz, NBC, Bones
+
+Fri, 14 Aug 2026 16:30:15 GMT
+
+https://collider.com/david-boreanaz-the-rockford-files-release-schedule/
+
+NBC has officially confirmed David Boreanaz's new reboot of the 52-year-old detective series The Rockford Files. Find out when you can tune in.
+---------
+
+# Apple TV’s Biggest Sci-Fi Series Ever Gets Official Return Update
+
+TV News, Pluribus, Apple TV, Severance, Vince Gilligan
+
+Fri, 14 Aug 2026 16:30:15 GMT
+
+https://collider.com/apple-tv-sci-fi-show-pluribus-season-2-filming-update-vince-gilligan/
+
+The creator of Apple TV's biggest sci-fi show ever finally reveals when the next season will resume production.
+---------
+
+# 'The X-Files' Confirms Another New Series Ahead of Ryan Coogler Reboot
+
+TV News, The X-Files
+
+Fri, 14 Aug 2026 17:12:23 GMT
+
+https://movieweb.com/the-x-files-comic-series-dynamite-joe-harris/
+
+Dynamite is also bringing back an 'X-Files' veteran writer for the new comic series.
+---------
+
+# Ryan Reynolds' 94% RT Rated Action Movie Deserves a Franchise
+
+Features, Free Guy, Deadpool, Ryan Reynolds
+
+Fri, 14 Aug 2026 17:00:12 GMT
+
+https://movieweb.com/free-guy-sequel-potential/
+
+Disney, you know what to do.
+---------
+
+# "Punisher Meets Power Rangers" in New 115-Minute Action Thriller Now Streaming Free on YouTube
+
+Movie News, Action, Thriller, YouTube
+
+Fri, 14 Aug 2026 16:31:12 GMT
+
+https://movieweb.com/spades-full-movie-stream-free-youtube-action-thriller/
+
+To bring his daughter home, he must descend into the darkness.
+---------
+
+# 'The Matrix' Overshadowed This Underrated Sci-Fi Movie from the Same Year
+
+Features, Sci-Fi, The Matrix
+
+Fri, 14 Aug 2026 16:31:12 GMT
+
+https://movieweb.com/matrix-1999-13th-floor-sci-fi-movies/
+
+Given a different release date, this gem could have been hailed as one of the best sci-fi movies of the '90s
+---------
+
 # Spider-Man: Beyond The Spider-Verse Trailer Leak Gets Official Response From Marvel Writer
 
 Movies, Spider-Man: Beyond the Spider-Verse
