@@ -1,3 +1,333 @@
+# Agatha Christie Meets Philip K. Dick In 7-Part Hulu Sci-Fi Series
+
+TV, Masked Recs
+
+Fri, 14 Aug 2026 01:15:11 GMT
+
+https://screenrant.com/a-murder-at-the-end-of-the-world-hulu-sci-fi-mystery-series/
+
+With its rare combination of perplexing mystery and dystopian sci-fi, this hidden gem of a miniseries is a must-watch for fans of Christie and Dick.
+---------
+
+# Netflix's New Sci-Fi Thriller Getting A Sequel Looks Likely After 51.4 Million Hours Viewed
+
+Movies, Masked Recs
+
+Fri, 14 Aug 2026 01:01:19 GMT
+
+https://screenrant.com/the-last-house-2-movie-sequel-happen-netflix-streaming-success/
+
+Netflix's new Sci-Fi thriller has quickly grown into a global hit, and the movie's performance on the streaming service makes a sequel in order.
+---------
+
+# It's The Start Of An Era For Rick And Morty
+
+TV, Rick and Morty, President Curtis
+
+Fri, 14 Aug 2026 01:00:11 GMT
+
+https://screenrant.com/rick-and-morty-president-curtis-spinoff-franchise-expansion/
+
+HBOMax's huge hit spinoff series President Curtis brings a more grounded type of absurdity to Rick and Morty's universe with a quirky new cast.
+---------
+
+# A 10/10 Masterpiece RPG Trilogy Is Completely Free On Xbox Game Pass
+
+Gaming, Xbox Game Pass
+
+Fri, 14 Aug 2026 01:00:11 GMT
+
+https://screenrant.com/a-1010-sci-fi-rpg-trilogy-is-completely-free-on-xbox-game-pass/
+
+Relive the moments that made a generation love cinematic role playing with memorable allies and unforgettable set pieces.
+---------
+
+# The End Of Oak Street Ending And Time Travel Explained: What Really Happened & Who Survives
+
+Movies, The End of Oak Street
+
+Fri, 14 Aug 2026 01:00:11 GMT
+
+https://screenrant.com/the-end-of-oak-street-movie-ending-explained/
+
+The End of Oak Street, a film about an average suburban neighborhood being attacked by dinosaurs, debuts in theaters this weekend.
+---------
+
+# Frozen 3 Reveals First Look At Elsa, Anna & Kristoff
+
+Movies, Frozen III, Frozen
+
+Fri, 14 Aug 2026 00:47:24 GMT
+
+https://screenrant.com/frozen-3-elsa-anna-kristoff-olaf-sven-first-look/
+
+More than a year ahead of Frozen 3's theatrical release, a first look has been revealed at the sequel's designs for Elsa, Anna, and Kristoff.
+---------
+
+# Reacher Season 4 Confirms Which Book Character Alan Ritchson Should Play Next
+
+Streaming TV, Reacher
+
+Fri, 14 Aug 2026 00:45:11 GMT
+
+https://screenrant.com/reacher-season-4-sherlock-holmes-joke-alan-ritchson/
+
+Alan Ritchson's career-making performance as Jack Reacher proves that he has the potential to play another literary icon in a very experimental reboot
+---------
+
+# 8 DC Comics Heroes Stronger Than The Hulk
+
+Comics, DC Comics
+
+Fri, 14 Aug 2026 00:30:22 GMT
+
+https://screenrant.com/dc-heroes-stronger-hulk/
+
+Hulk is one of Marvel's strongest characters, but these DC Comics heroes have enough power to challenge the Jade Giant and emerge victorious.
+---------
+
+# Apple TV's 3-Part Space Opera Changes The Meaning Of Hard Sci-Fi
+
+Streaming TV, Masked Recs
+
+Fri, 14 Aug 2026 00:30:11 GMT
+
+https://screenrant.com/apple-tv-foundation-hard-sci-fi-show/
+
+Ambitious worldbuilding and rigorous ideas power a galaxy-spanning drama that pushes the boundaries of cerebral sci-fi like nothing else on TV.
+---------
+
+# Jon Bernthal's R-Rated Disney+ Show Is The Perfect Binge After Spider-Man: Brand New Day (#10 Trending In The U.S.)
+
+Classic TV, Masked Recs
+
+Fri, 14 Aug 2026 00:15:11 GMT
+
+https://screenrant.com/the-punisher-disney-plus-jon-bernthal-watch-after-brand-new-day/
+
+Jon Bernthal's latest turn as Frank Castle has got people tuning in to watch him in previous roles, with one particular show returning to the charts.
+---------
+
+# 5 Anime Movies That Are 100% Unwatchable Today
+
+Anime, Ocean Waves, Blood: The Last Vampire
+
+Fri, 14 Aug 2026 01:00:15 GMT
+
+https://www.cbr.com/anime-movies-unwatchable-today/
+
+There are no shortage of anime movies that have redefined the medium, but titles like Wicked City and Ocean Waves are discouraging disappointments.
+---------
+
+# Silo & Fallout Are Quietly Changing Sci-Fi's Post-Apocalyptic TV Strategy
+
+TV, Silo, Fallout, Sci-Fi, Innovation
+
+Fri, 14 Aug 2026 01:00:15 GMT
+
+https://www.cbr.com/silo-fallout-post-apocalyptic-sci-fi-tv-change/
+
+The post-apocalyptic genre is quietly shifting, and the TV sci-fi series Silo and Fallout are paving the way.
+---------
+
+# James Bond's Thunderball Scene is the Most Important In all Spy Movies
+
+Movies, James Bond
+
+Fri, 14 Aug 2026 00:30:14 GMT
+
+https://www.cbr.com/james-bond-thunderball-most-important-spy-movie/
+
+Sean Connery remains the blueprint for a good James Bond story, and this single scene from 007 from the star defined spy movies forever.
+---------
+
+# Marvel Confirms the X-Men's Strongest Mutant Ahead of the Their Official MCU Debut
+
+TV, X-Men '97, MCU, X-Men
+
+Fri, 14 Aug 2026 00:25:14 GMT
+
+https://www.cbr.com/x-men-97-finale-rogue-strongest-mutant/
+
+The Season 2 finale of X-Men '97 turned one of the mutant heroes into the most powerful character the series has ever seen.
+---------
+
+# Sailor Moon's Classic Nintendo Game Boy Release Finally Returns After 34 Years
+
+Anime, Sailor Moon, Pretty Soldier Sailor Moon
+
+Fri, 14 Aug 2026 00:20:15 GMT
+
+https://www.cbr.com/pretty-soldier-sailor-moon-game-boy-english-translation/
+
+Sailor Moon's first-ever video game is finally playable in English after 33 years thanks to a new fan translation with expanded features.
+---------
+
+# Spider-Man: Brand New Day Actor Opens Up About “Frustrating” Marvel Experience
+
+Movies, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man: Brand New Day
+
+Fri, 14 Aug 2026 00:15:39 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-actor-frustrating-marvel-experience/
+
+Marvel nearly scared off one of the eventual stars of Spider-Man: Brand New Day.
+---------
+
+# 10 Greatest 50+ Episode Anime Series of the 21st Century, Ranked
+
+Anime, JoJo's Bizarre Adventure, Fullmetal Alchemist: Brotherhood, Hunter x Hunter
+
+Fri, 14 Aug 2026 00:15:15 GMT
+
+https://www.cbr.com/greatest-50-episode-anime-series-21st-century/
+
+Many long-running anime lose momentum as their episode count grows, but the 21st Century has managed to produces some of the greatest longform series.
+---------
+
+# Spider-Man: Brand New Day Makes Massive Changes to the X-Men
+
+Movies, Spider-Man: Brand New Day, X-Men, MCU
+
+Fri, 14 Aug 2026 00:00:14 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-biggest-mcu-x-men-changes/
+
+Spider-Man: Brand New Day may have had a bigger impact on the future of the MCU's X-Men than we realize.
+---------
+
+# Tom Hardy and Guy Ritchie Epic 2-Part Crime Saga Will Officially Stream for Free
+
+TV News, MobLand, Tom Hardy, Guy Ritchie, Paramount Plus
+
+Fri, 14 Aug 2026 00:45:14 GMT
+
+https://collider.com/tom-hardy-mobland-free-streaming-paramount-plus-august-2026/
+
+Tom Hardy, Pierce Brosnan, and Helen Mirren’s hit Paramount+ crime thriller MobLand will be officially free to stream this month. Read on for more.
+---------
+
+# ‘Game of Thrones’ and ‘House of the Dragon’ Are Officially Crossing Over in 1 Week
+
+Gaming News, Game Of Thrones, House of the Dragon, A Knight Of The Seven Kingdoms, George R.R. Martin
+
+Fri, 14 Aug 2026 00:22:27 GMT
+
+https://collider.com/game-of-thrones-house-of-the-dragon-crossover-release-date-august-2026/
+
+Game of Thrones and House of the Dragon are officially crossing over for a brand new 2026 release. Read on for more details.
+---------
+
+# 'Tracker' Is So Good Because It Is Unlike Any Other Procedural on CBS
+
+TV Features, Tracker, CBS, Procedural, Justin Hartley
+
+Fri, 14 Aug 2026 00:13:14 GMT
+
+https://collider.com/tracker-tv-show-procedural-episodic/
+
+Tracker finds the perfect balance between exploring character depth and standalone, episodic plots.
+---------
+
+# 10 Most Beloved Sci-Fi Movies of the 21st Century
+
+Movie, Science Fiction, Dune: Part Two, Interstellar, Project Hail Mary
+
+Fri, 14 Aug 2026 00:11:14 GMT
+
+https://collider.com/most-beloved-sci-fi-movies-21st-century/
+
+21st-century sci-fi gems like WALL-E and Project Hail Mary have been uniformly adored by critics and audiences, cementing their enduring legacies.
+---------
+
+# Rebecca Ferguson Officially Returns to the Fantasy Genre in 10 Days
+
+Movie News, The Magic Faraway Tree, Rebecca Ferguson, Andrew Garfield, Claire Foy
+
+Fri, 14 Aug 2026 00:00:14 GMT
+
+https://collider.com/rebecca-ferguson-fantasy-magic-faraway-tree-release-date-august-2026/
+
+Rebecca Ferguson's upcoming fantasy adaptation, The Magic Faraway Tree, is around the corner. Find out when the new film will be released here.
+---------
+
+# ‘God of War’ Star Takes a Shot at Studios That Don’t Respect Their Fans [Exclusive]
+
+Exclusives, God of War, PlayStation (Original), Fan Expo, Action
+
+Fri, 14 Aug 2026 00:00:14 GMT
+
+https://collider.com/god-of-war-christopher-judge-greek-trilogy-remake-praise-fans-santa-monica-studio/
+
+Christopher Judge discussed the upcoming God of War trilogy remake and how it represents Sony Santa Monica's dedication to the fans and TC Carson.
+---------
+
+# So, How Powerful Is Doctor Doom Actually?
+
+Books and Comics, Marvel Comics, Comic Book, Superhero, Avengers: Doomsday
+
+Thu, 13 Aug 2026 23:48:14 GMT
+
+https://collider.com/marvel-comics-doctor-doom-how-powerful/
+
+The evil Doctor Doom is among the mightiest supervillains in Marvel Comics, but how strong is he compared to the universe's other heroes and villains?
+---------
+
+# 7 Essential Fantasy Books for Beginners
+
+Books and Comics, Fantasy, Harry Potter, Children of Blood and Bone, J.R.R. Tolkien
+
+Thu, 13 Aug 2026 23:39:14 GMT
+
+https://collider.com/essential-fantasy-books-beginners/
+
+For readers exploring the fantasy genre for the first time, books like Children of Blood and Bone and The Hobbit are a great place to start.
+---------
+
+# Liam Neeson's 10 Greatest Action Movies, Ranked
+
+Movie Lists, Liam Neeson, Action
+
+Fri, 14 Aug 2026 01:00:12 GMT
+
+https://movieweb.com/liam-neeson-action-movies-ranked/
+
+'Taken' made Liam Neeson a prolific action star, with the actor racking up an eclectic mix of thrilling movies to rank.
+---------
+
+# 45 Years Later, Cult-Classic Supernatural Thriller Getting New Release
+
+Movie News, An American Werewolf In London, Blu-ray
+
+Fri, 14 Aug 2026 00:58:44 GMT
+
+https://movieweb.com/an-american-werewolf-in-london-4k-blu-ray-release/
+
+'An American Werewolf in London' is getting an all-new 4K Ultra HD Blu-ray in October.
+---------
+
+# 'Reacher' Season 4's Triple-Episode Premiere Perfectly Sets up New Prime Video Spin-off
+
+Features, Reacher, Neagley, Prime Video
+
+Fri, 14 Aug 2026 00:00:12 GMT
+
+https://movieweb.com/reacher-season-4-neagley-missing/
+
+Neagley has yet to show up in 'Reacher' Season 4, but that's actually a good thing, given the franchise's larger plan. Read on for more.
+---------
+
+# A24's Redesign of All-Time Most Iconic Horror Villain Officially Revealed
+
+TV News, Crystal Lake, Friday The 13th
+
+Thu, 13 Aug 2026 23:56:52 GMT
+
+https://movieweb.com/friday-the-13th-jason-voorhees-reboot-first-look-crystal-lake/
+
+We now have our first official look at Jason Voorhees in "Crystal Lake.'
+---------
+
 # Star Wars' Best 2 TV Shows Are The Only Ones Honoring George Lucas' Premise
 
 Classic TV, Star Wars
