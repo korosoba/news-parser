@@ -1,3 +1,157 @@
+# 10 Best Cult Classic Books Of All Time
+
+Books
+
+Fri, 14 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/best-essential-cult-classic-books/
+
+From dystopian stories to satirical fairy tales, here are ten cult classic books that every reader needs to read at least once in their life.
+---------
+
+# 13 Greatest Mr. Burns Quotes In The Simpsons
+
+Classic TV, The Simpsons
+
+Fri, 14 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/the-simpsons-greatest-mr-burns-quotes/
+
+Mr. Burns is one of the funniest characters in The Simpsons' massive ensemble, and he's responsible for some of the show's greatest quotes.
+---------
+
+# The Mandalorian & Grogu’s New Episode Trailer Reveals Recast Din Djarin
+
+TV, The Mandalorian, Star Wars, Lego Star Wars, The Mandalorian and Grogu
+
+Fri, 14 Aug 2026 22:57:41 GMT
+
+https://screenrant.com/lego-star-wars-the-mandalorian-trailer/
+
+The Mandalorian and Grogu are getting a brand-new episode on Disney+ this year, but the trailer reveals that Din won't be voiced by Pedro Pascal.
+---------
+
+# Lanterns Episode Schedule: Full HBO & Streaming Plan
+
+Streaming TV, Lanterns, DC Universe
+
+Fri, 14 Aug 2026 22:49:15 GMT
+
+https://screenrant.com/lanterns-hbo-episode-schedule-streaming-release/
+
+Lanterns will debut on HBO soon, and the new Green Lantern series will change James Gunn's DC Universe in major ways, introducing fan-favorite heroes.
+---------
+
+# Peacock's New Epic Science Fantasy Series Is Coming to Dethrone Star Wars for Good
+
+TV, Dungeon Crawler Carl, Star Wars, Peacock
+
+Fri, 14 Aug 2026 23:00:14 GMT
+
+https://www.cbr.com/peacock-dungeon-crawler-carl-sci-fi-fantasy-dethrone-star-wars/
+
+Peacock's upcoming science fantasy series is set to shake up the streaming world with the adaptation's unique blend of high fantasy and sci-fi.
+---------
+
+# Frasier Is Resurrected as a Streaming Hit 1 Year After Reboot Cancellation
+
+TV, Frasier, Paramount Plus
+
+Fri, 14 Aug 2026 23:00:14 GMT
+
+https://www.cbr.com/frasier-streaming-hit-paramount-plus-august-2026/
+
+The classic sitcom is one of Paramount+'s Top 10 shows.
+---------
+
+# 5 Must-Watch Movies Before Batman: Knightfall Part 1
+
+Movies, Batman: Knightfall Part 1: Knightfall, Batman, DC Comics
+
+Fri, 14 Aug 2026 23:00:14 GMT
+
+https://www.cbr.com/must-watch-movies-before-batman-knightfall-list/
+
+As fans await the release of the first chapter in DC's Batman: Knightfall animated trilogy, there are some essential movies to watch first.
+---------
+
+# 4-Season Neo-Western That’s Better Than Yellowstone Surges on Streaming Ahead of New Episodes
+
+TV, Dark Winds, Western, AMC
+
+Fri, 14 Aug 2026 22:47:37 GMT
+
+https://www.cbr.com/dark-winds-western-success-amc-plus-august-2026/
+
+This masterpiece neo-Western has lived in Yellowstone's shadow for too long.
+---------
+
+# 6 Best Movies Released Since 2015
+
+Movie, Mad Max: Fury Road, Parasite, Moonlight, Portrait of a Lady on Fire
+
+Fri, 14 Aug 2026 23:05:14 GMT
+
+https://collider.com/best-movies-since-2015-ranked/
+
+From Parasite to Oppenheimer, these modern masterpieces have outlived the hype and earned their place among cinema's best.
+---------
+
+# 'Yellowjackets' Season 4 Will Officially Top Season 3's Top-Rated Episode [Exclusive]
+
+Exclusives, Yellowjackets, Paramount Plus, Jennifer Morrison, Ladies Night
+
+Fri, 14 Aug 2026 23:00:14 GMT
+
+https://collider.com/yellowjackets-season-4-jennifer-morrison-directing/
+
+Jennifer Morrison teases an especially wild Yellowjackets Season 4 episode as the thriller prepares for its final season.
+---------
+
+# All 20 Stephen King Fantasy Books, Ranked
+
+Books and Comics, The Dark Tower, The Stand, It, Doctor Sleep
+
+Fri, 14 Aug 2026 22:48:14 GMT
+
+https://collider.com/stephen-king-fantasy-books-ranked/
+
+There are 20 books Stephen King has written that count as works of fantasy, including Fairy Tale and The Eyes of the Dragon, but which is the best?
+---------
+
+# 'House of the Dragon': Who Actually Wins the Dance of the Dragons
+
+Features, House of the Dragon, Game of Thrones
+
+Fri, 14 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/house-of-the-dragon-who-wins-dance-dragons/
+
+The Dance of the Dragons isn't kind to any of its major players, but 'House of the Dragon's Targaryen civil war technically has a winner.
+---------
+
+# Jason Statham’s Remake of a 70s Action Cult Classic Makes a Streaming Comeback
+
+Movie News, Death Race, Apple TV, Hot on Streaming, Action, Jason Statham
+
+Fri, 14 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/death-race-jason-statham-action-stream-apple-store-august-2026/
+
+Jason Statham's cult classic action thriller is racing its way onto our screens on streaming.
+---------
+
+# Apple TV's Popular Sci-Fi Thriller Finally Moving Forward After Long Wait
+
+TV News, Pluribus, Vince Gilligan, Apple TV
+
+Fri, 14 Aug 2026 22:52:32 GMT
+
+https://movieweb.com/pluribus-season-2-update-vince-gilligan/
+
+Vince Gilligan's 'Pluribus' Season 2 is progressing as filming begins soon, following the successful first season.
+---------
+
 # Top 3 Must-Watch Prime Video Shows This Weekend: August 14–16, 2026
 
 Streaming TV, Prime Video, What to Watch on Prime Video
