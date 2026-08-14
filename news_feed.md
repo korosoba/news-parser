@@ -1,3 +1,179 @@
+# 3 Best Movies To Watch On Netflix This Weekend (August 15-16)
+
+Movies, Netflix, Recommendation
+
+Fri, 14 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/best-netflix-movies-watch-weekend-august-15/
+
+Netflix subscribers can find the best movies on the streaming service in a Daniel Craig R-rated thriller, a new true-crime story, and a strong drama.
+---------
+
+# A 1995 10/10 PS1 Multiplayer Classic Is Free On PlayStation Plus
+
+Gaming, PlayStation Plus, Tekken, Triple-A Games
+
+Fri, 14 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/playstation-ps1-1995-10-rated-classic-free-ps-plus/
+
+Multiplayer classics can sometimes go overlooked, but the PlayStation Plus Catalog offers the perfect way to compete with your friends.
+---------
+
+# Power Rangers Retcons Zeo Out Of Existence
+
+Classic TV, Power Rangers, Mighty Morphin Power Rangers
+
+Fri, 14 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/mighty-morphin-power-rangers-sequel-retcons-zeo/
+
+The most iconic team outside of Mighty Morphin still has scores of dedicated fans, but Power Rangers keeps pretending it never happened.
+---------
+
+# Spider-Gwen Unleashes New Superpower in Marvel Lore
+
+Comics, Marvel, Gwen Stacy, ghost spider
+
+Fri, 14 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/spider-gwen-new-power-hypnosis/
+
+In Spider-Versity's latest release, Marvel gives Spider-Gwen a throwback power from an iconic circus villain that many fans forgot about.
+---------
+
+# Pokémon's New Secretlab 30th Anniversary Collab Is A Thing Of Beauty
+
+Gaming, Secretlab, Pokemon
+
+Fri, 14 Aug 2026 21:01:59 GMT
+
+https://screenrant.com/pokemon-new-secretlab-skins-are-a-thing-of-beauty/
+
+Pixel art Pokémon bring grass, fire and water types to life on TITAN Evo sleeves with nostalgic handcrafted detail.
+---------
+
+# Bruce Willis' Overlooked $176M Sci-Fi Thriller Soars on Streaming 14 Years Later
+
+Movies, bruce willis, Looper, Apple TV
+
+Fri, 14 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/bruce-willis-sci-fi-looper-apple-tv-success-august-2026/
+
+One of Bruce Willis' often overlooked masterpieces is performing very well on streaming.
+---------
+
+# Honkai: Star Rail's Yao Guang Powers Up New Limited Edition U.S. Release
+
+Anime, RPG, JRPG, Genshin Impact
+
+Fri, 14 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/honkai-star-rail-yao-guang-ugreen-collection/
+
+Honkai: Star Rail's Yao Guang gets a near-perfect tribute in this new limited edition collection.
+---------
+
+# 64 Years After His Debut, Marvel Confirms Spider-Man’s Death
+
+Comics, Spider-Man
+
+Fri, 14 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/mary-jane-face-it-tiger-spider-man-death-confirmed/
+
+One of Marvel's most beloved heroes has finally met his end in a new comic that reveals Spider-Man's death.
+---------
+
+# ‘Wheel of Time’s Replacement Officially Sets New 2027 Release
+
+Books and Comics News, The Wheel of Time, Fourth Wing, Fantasy
+
+Fri, 14 Aug 2026 22:11:29 GMT
+
+https://collider.com/fourth-wing-graphic-novel-release-date-april-2027/
+
+Fourth Wing is officially becoming a graphic novel in April 2027, and Rebecca Yarros’ Signed Deluxe Edition has already sold out on Amazon.
+---------
+
+# Star Trek Is Officially Giving Seven of Nine the Adventure Fans Wanted
+
+Books and Comics News, Star Trek, Star Trek: Voyager, Star Trek: Picard, Comic Book
+
+Fri, 14 Aug 2026 22:00:14 GMT
+
+https://collider.com/star-trek-seven-of-nine-enterprise-g-new-comic-series-legacy/
+
+Star Trek is bringing back Seven of Nine and the Enterprise-G for a new adventure that continues threads left behind by Picard.
+---------
+
+# What Actually Happened at the End of ‘The End of Oak Street’?
+
+Movie Features, The End of Oak Street, Ewan McGregor, Anne Hathaway, David Robert Mitchell
+
+Fri, 14 Aug 2026 21:59:14 GMT
+
+https://collider.com/the-end-of-oak-street-ending-analysis/
+
+We break down the ending of The End of Oak Street, what Denise changes in the past, and what the new timeline actually means.
+---------
+
+# 3 Amazing Movies To Watch on Prime Video This Weekend (Aug 15-16)
+
+Movie, Joy Ride, Red Sonja, Prime Video, RoboCop
+
+Fri, 14 Aug 2026 21:48:14 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-august-15-2026/
+
+Joy Ride, RoboCop, and Red Sonja make up our list of the best movies to watch on Prime Video the weekend of August 15th, 2026.
+---------
+
+# ‘Dungeon Crawler Carl’s Adaptation Is Already Avoiding Hollywood’s Biggest Mistake
+
+TV Features, Dungeon Crawler Carl, Peacock, Science Fiction, Fantasy
+
+Fri, 14 Aug 2026 21:47:14 GMT
+
+https://collider.com/dungeon-crawler-carl-series-adaptation-avoiding-hollywood-mistake/
+
+Dungeon Crawler Carl's upcoming TV adaptation is already off to a good start with the announcement of its head writer.
+---------
+
+# Apple TV Breathes New Life into One of the Greatest Action Thrillers Ever Made
+
+Movie News, The Bourne Identity, Hot on Streaming, Action, Bourne, Apple TV
+
+Fri, 14 Aug 2026 22:00:12 GMT
+
+https://movieweb.com/the-bourne-identity-action-streaming-hit-apple-tv-august-2026/
+
+Matt Damon's seminal 2002 action thriller is finding new life on streaming ahead of the highly anticipated sixth entry in the franchise.
+---------
+
+# 'Spider-Man: Brand New Day' Sets Up 3 Hulk Alter Egos Marvel Has Been Afraid To Touch For 23 Years
+
+Features, Spider-Man: Brand New Day, Hulk, Marvel Cinematic Universe
+
+Fri, 14 Aug 2026 22:00:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-hulk-alter-egos/
+
+'Spider-Man: Brand New Day' has huge implications for the Hulk's MCU future, possibly teasing the arrival of Devil Hulk and the Maestro.
+---------
+
+# Hulu Officially Cancels 2-Part 98% RT-Rated Crime Series
+
+TV News, Hulu, Deli Boys, Crime
+
+Fri, 14 Aug 2026 21:50:53 GMT
+
+https://movieweb.com/hulu-cancels-deli-boys/
+
+'Deli Boys' received universal praise from critics and fans, so obviously it had to go.
+---------
+
 # 10 Most Brutal Fights In Invincible
 
 Streaming TV, Invincible
