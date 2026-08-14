@@ -1,3 +1,223 @@
+# A 10/10 GameCube Game From 2002 Is Free Via Nintendo Switch Online Now
+
+Gaming, Nintendo Switch, Nintendo GameCube, Triple-A Games
+
+Fri, 14 Aug 2026 18:06:13 GMT
+
+https://screenrant.com/gamecube-10-rated-game-free-switch-online-now/
+
+The GameCube library housed a few true masterpieces, and one of them is included in the Nintendo Switch Online library for Expansion Pack subscribers.
+---------
+
+# NYT Connections Solution And Hints For August 14, 2026
+
+Gaming, Connections, Mobile
+
+Fri, 14 Aug 2026 18:00:12 GMT
+
+https://screenrant.com/nyt-connections-solution-answer-hints-august-14-2026/
+
+A strange mixture of art and collective response to it defines today's Connections, forming an odd puzzle with seemingly no patterns without clues.
+---------
+
+# Pokémon Giving Away 30th Anniversary Free Download To All Gamers For A Limited Time
+
+Gaming, Pokemon, Pokemon GO, Nintendo, Nintendo Switch
+
+Fri, 14 Aug 2026 18:00:12 GMT
+
+https://screenrant.com/pokemon-go-anniversary-free-download-september-2026/
+
+Pokémon fans should absolutely check out this free download being handed out in celebration of the franchise's 30th anniversary.
+---------
+
+# Marvel Just Had Its X-Men Equivalent Of Civil War
+
+Streaming TV, X-Men
+
+Fri, 14 Aug 2026 18:00:12 GMT
+
+https://screenrant.com/x-men-97-season-2-mutant-civil-war/
+
+Captain America: Civil War is one of Marvel's most influential movies, and the studio just gave the X-Men their own equivalent of this story.
+---------
+
+# 10 Best New Summer Romances To Keep The Heat Going Through Fall
+
+Books, Romance
+
+Fri, 14 Aug 2026 18:00:12 GMT
+
+https://screenrant.com/best-new-summer-romance-books-2026/
+
+Explore the best new summer romance novels to enjoy before fall, including some you've likely never heard of!
+---------
+
+# Christopher Nolan's The Odyssey Officially Breaks All-Time Box Office Record For IMAX
+
+Movies, Box Office, The Odyssey
+
+Fri, 14 Aug 2026 17:51:04 GMT
+
+https://screenrant.com/christopher-nolan-the-odyssey-box-office-highest-grossing-imax-record/
+
+The new Christopher Nolan adventure movie The Odyssey breaks an all-time IMAX box office record after less than a single month in theaters.
+---------
+
+# First Look At James Spader’s Ultron Return In VisionQuest Reveals Marvel Villain’s Human Form
+
+TV, VisionQuest, Marvel Cinematic Universe
+
+Fri, 14 Aug 2026 17:46:32 GMT
+
+https://screenrant.com/visionquest-james-spader-ultron-return-first-look/
+
+James Spader's Ultron officially returns in human form in the first look at the villain in VisionQuest, which continues Marvel's WandaVision trilogy.
+---------
+
+# 25 Years Later, Star Wars Finally Confirms “Gray Jedi” Make No Sense In Canon
+
+Star Wars, Star Wars: Visions Presents - The Ninth Jedi
+
+Fri, 14 Aug 2026 17:45:11 GMT
+
+https://screenrant.com/star-wars-confirms-gray-jedi-make-no-sense-ninth-jedi-dark-side/
+
+There have long been two main definitions for "Gray Jedi", and the Star Wars franchise is finally pushing back on the one that makes zero sense.
+---------
+
+# 33 Years Later, Nightmare Before Christmas' Disney-Approved Sequel Is Here, And It's 10/10 Perfect
+
+Comics, The Nightmare Before Christmas
+
+Fri, 14 Aug 2026 17:39:32 GMT
+
+https://screenrant.com/nightmare-before-christmas-all-hail-the-pumpkin-king-series-review/
+
+Disney and Tim Burton’s The Nightmare Before Christmas: All Hail the Pumpkin King is finally here with its first release, and it's already perfect.
+---------
+
+# Coach Chilton Is More Than Ted Lasso's Roy Kent Replacement
+
+Streaming TV, Ted Lasso, Ted Lasso - Season 4
+
+Fri, 14 Aug 2026 17:30:11 GMT
+
+https://screenrant.com/ted-lasso-season-3-coach-chilton-roy-kent-replacement/
+
+The Lady Greyhounds' surly assistant coach, Ted Lasso's season 4's Alice Chilton is drawing comparisons to Roy Kent, which aren't entirely fair.
+---------
+
+# Marvel Officially Reveals the Next Spider-Man/Hulk Story After Brand New Day
+
+Comics, Spider-Man 4, Spider-Man, Hulk
+
+Fri, 14 Aug 2026 17:57:21 GMT
+
+https://www.cbr.com/marvel-previews-hulk-spider-man-series/
+
+In a CBR preview of Spider-Man/Hulk: Fire and Brimstone #1, see the first Spider-Man/Hulk story post Brand New Day!
+---------
+
+# The Mandalorian’s New Disney+ Special Gets First Trailer 1 Month Ahead of Debut
+
+TV, Lego Star Wars, The Mandalorian, Disney+
+
+Fri, 14 Aug 2026 17:41:13 GMT
+
+https://www.cbr.com/lego-star-wars-the-mandalorian-trailer/
+
+The new Mandalorian special finally gets a trailer.
+---------
+
+# Game of Thrones: War for Westeros Officially Drops Teaser Trailer
+
+Games, Game Of Thrones
+
+Fri, 14 Aug 2026 17:35:15 GMT
+
+https://www.cbr.com/game-of-thrones-war-for-westeros-officially-releases-teaser-trailer/
+
+First revealed over a year ago, a new teaser trailer for Game of Thrones: War For Westeros has finally been released.
+---------
+
+# Ridley Scott Is Officially a "Cinematic Hero" in New Sci-Fi Movie Sneak Peek
+
+Movie News, The Dog Stars, Jacob Elordi, Josh Brolin, Ridley Scott
+
+Fri, 14 Aug 2026 18:00:15 GMT
+
+https://collider.com/ridley-scott-new-sci-fi-movie-the-dog-stars-sneak-peek-filming-style/
+
+A new behind-the-scenes featurette for The Dog Stars teases the directorial style that has left Ridley Scott's collaborators divided.
+---------
+
+# 12 Years Later, Hulu’s 3-Part Witch Thriller Is One of TV’s Most Overlooked Horror Shows
+
+TV Features, Hulu, Horror, Salem, Witches
+
+Fri, 14 Aug 2026 17:46:15 GMT
+
+https://collider.com/hulu-best-horror-series-salem-witches-thriller/
+
+Hulu's most underrated horror series captures Janet Montgomery as a coven leader in a kitschy reimagining of the Salem Witch Trials.
+---------
+
+# 'VisionQuest' Could Officially Mark the End of an Era for Marvel [Exclusive]
+
+TV News, VisionQuest, MCU, Disney+, Kevin Feige
+
+Fri, 14 Aug 2026 17:30:15 GMT
+
+https://collider.com/marvel-disney-plus-streaming-change-after-visionquest/
+
+VisionQuest may be Marvel’s final new big-budget live-action Disney+ series as the MCU changes its approach to new streaming shows.
+---------
+
+# 5 Netflix Miniseries Masterpieces You Can Watch in One Weekend
+
+TV Lists, Netflix, Adolescence
+
+Fri, 14 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/netflix-miniseries-masterpieces-watch-one-weekend/
+
+Netflix has some great miniseries, but only a handful of them can be considered masterpieces and will keep you invested enough to binge.
+---------
+
+# Ridley Scott's Massive 140-Minute Action Epic Makes a Comeback on Netflix
+
+Movie News, Ridley Scott, Robin Hood, Hot on Streaming, Action, Netflix
+
+Fri, 14 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/ridley-scott-robin-hood-action-streaming-hit-netflix-august-2026/
+
+Ridley Scott and Russell Crowe bring a legend to life in Netflix's newest global hit.
+---------
+
+# Hugh Jackman's 96% 'Knives Out'-Style Mystery Thriller Sets New Release
+
+Movie News, The Sheep Detectives, Hugh Jackman, Blu-ray
+
+Fri, 14 Aug 2026 17:40:44 GMT
+
+https://movieweb.com/hugh-jackman-sheep-detectives-blu-ray/
+
+Alliance Entertainment has set a Blu-ray release of one of Hugh Jackman's most acclaimed films, the murder mystery comedy 'The Sheep Detectives.'
+---------
+
+# DC's 'Lanterns' Rotten Tomatoes Score Officially Revealed
+
+TV News, Lanterns
+
+Fri, 14 Aug 2026 17:35:10 GMT
+
+https://movieweb.com/lanterns-dcu-rotten-tomatoes-score/
+
+'Lanterns' has received praise for the chemistry of its two lead actors, though it has been criticized for its pacing.
+---------
+
 # 5 Hard PlayStation 2 Games Nobody Could Beat As A Kid
 
 Gaming, PlayStation 2
