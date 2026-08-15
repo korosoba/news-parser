@@ -1,3 +1,168 @@
+# 3 Years After Henry Cavill's Exit, The Witcher Finally Returns To Its Roots For Next Major Release
+
+Comics, The Witcher
+
+Sat, 15 Aug 2026 16:01:55 GMT
+
+https://screenrant.com/the-witcher-last-wish-new-graphic-novel-return-roots/
+
+The Witcher fans have been left in an odd place ever since Henry Cavill's exit from the Netflix series, but a new comic is promising a return to form.
+---------
+
+# A 2001 PlayStation 1 Classic Is Free Via PlayStation Plus Right Now
+
+Gaming, PlayStation
+
+Sat, 15 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/playstation-ps1-2001-classic-ps-plus/
+
+Download Alone in the Dark: The New Nightmare free on PS5 with PlayStation Plus and enjoy classic survival horror nostalgia.
+---------
+
+# 5 Years Later, Yellowstone's Controversial Villain Death Makes No Sense (& The Actor Agrees)
+
+Classic TV, Yellowstone
+
+Sat, 15 Aug 2026 15:58:11 GMT
+
+https://screenrant.com/yellowstone-roarke-death-plot-hole-josh-holloway/
+
+One implausible Yellowstone death robbed a memorable antagonist of a proper sendoff, fueling criticism over Taylor Sheridan's narrative choices.
+---------
+
+# Buffy The Vampire Slayer Returns In 2027 With Wild New Release
+
+TV, Buffy The Vampire Slayer
+
+Sat, 15 Aug 2026 15:57:17 GMT
+
+https://screenrant.com/buffy-the-vampire-slayer-2027-new-novel/
+
+A new Buffy the Vampire Slayer story with a wild twist is coming in 2027 after Hulu canceled the New Sunnydale sequel series earlier this year.
+---------
+
+# Netflix’s New Movie Series Revival Proves Spider-Man: Brand New Day Is 2026's Biggest Film
+
+Movies, Netflix, Spider-Man: Brand New Day
+
+Sat, 15 Aug 2026 15:55:11 GMT
+
+https://screenrant.com/netflix-spider-man-movie-revivals-brand-new-day-2026-biggest/
+
+Netflix's new movie series revival on the streaming platform further helps to underline what the biggest movie of 2026 has been so far.
+---------
+
+# Fallout Star Confirms Season 3 Return With Filming Update
+
+TV, Fallout, Prime Video
+
+Sat, 15 Aug 2026 16:11:21 GMT
+
+https://www.cbr.com/popular-fallout-star-confirms-season-3-return/
+
+One of the most well-known Fallout characters will indeed return for Season 3.
+---------
+
+# The Apothecary Diaries Officially Brings Maomao Back on October 2
+
+Anime, The Apothecary Diaries
+
+Sat, 15 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/the-apothecary-diaries-season-3-october-2-premiere/
+
+The Apothecary Diaries finally reveals the first official look at Season 3, featuring Maomao ahead of her long-awaited return this October.
+---------
+
+# Emma Stone’s $117M R-Rated Sci-Fi Drama Is Leaving Netflix in 3 Weeks
+
+Movies, emma stone, Poor Things, Netflix
+
+Sat, 15 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/emma-stone-poor-things-leaving-netflix-september-2026/
+
+Emma Stone's award-winning science-fiction drama will be leaving Netflix early next month.
+---------
+
+# Power Rangers Officially Reveals the White Psycho Ranger’s Nightmare Form
+
+Comics, Power Rangers
+
+Sat, 15 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/power-rangers-unlimited-2-white-psycho-ranger-revealed/
+
+The Power Rangers franchise finally has a White Psycho Ranger, and not only are they more powerful than expected, they are nearly untouchable.
+---------
+
+# This 9-Part Sitcom Classic Has Officially Ruled Paramount+ for More Than 2 Years
+
+TV News, Everybody Loves Raymond, Sitcom, Paramount Plus, Streaming
+
+Sat, 15 Aug 2026 16:00:15 GMT
+
+https://collider.com/everybody-loves-raymond-streaming-success-750-days-paramount-plus-august-2026/
+
+This classic American sitcom starring Ray Romano is breaking streaming milestones, over 10 years after coming to a close. Find out more here.
+---------
+
+# ‘X-Men ’97’ Season 3 Is Officially Setting Up Another Messy Love Triangle [Exclusive]
+
+TV News, X-Men '97, X-Men, Disney+, Marvel
+
+Sat, 15 Aug 2026 16:00:15 GMT
+
+https://collider.com/x-men-97-season-3-bishop-polaris-havok-romance/
+
+X-Men ’97 may be setting up a Bishop, Polaris and Havok love triangle after Isaac Robinson-Smith teased more from the unexpected romance.
+---------
+
+# ‘Star Trek: Strange New Worlds’ Cast Reacts to Reading the Series Finale Script
+
+Exclusives, Star Trek: Strange New Worlds, SDCC, Paramount Plus, Star Trek
+
+Sat, 15 Aug 2026 15:51:18 GMT
+
+https://collider.com/star-trek-strange-new-worlds-season-4-cast-series-finale-reaction/
+
+It is officially the beginning of the end for Star Trek: Strange New Worlds, with the team behind the hit prequel teasing to Collider what's next.
+---------
+
+# Prime’s Hit 8-Part Action Thriller Is So Good, It Even Beat ‘Reacher’
+
+Features, Reacher, Ride or Die, Prime Video
+
+Sat, 15 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/ride-or-die-beat-reacher-prime-streaming/
+
+'Reacher' Season 4, starring Alan Ritchson as Jack Reacher, is now streaming on Amazon Prime Video.
+---------
+
+# Chris Evans Reveals the 1.1 Billion Movie That Gave Him His Dream Role
+
+Movie News, Deadpool & Wolverine, Chris Evans, Fantastic Four, Fantastic Four: Rise of the Silver Surfer
+
+Sat, 15 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/chris-evans-deadpool-wolverine-johnny-storm-dream-role/
+
+Here's hoping he plays that character in 'Avengers: Secret Wars.'
+---------
+
+# Liam Neeson's 104-Minute Non-Stop Action Thriller Shoots Onto New Streaming Home
+
+Movie News, The Commuter, Liam Neeson, Coming/Leaving Streaming
+
+Sat, 15 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/liam-neeson-the-commuter-streaming-hulu-august-2026/
+
+When will the bad guys learn that Neeson is simply not to be messed with?
+---------
+
 # The Odyssey Box Office Hits Rare Box Office Milestone That Only 1 Other Nolan Movie Has Reached
 
 Movies, Box Office Milestone, The Odyssey
