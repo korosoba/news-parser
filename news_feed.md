@@ -1,3 +1,135 @@
+# Warner Bros. Officially Re-Releasing Controversial The Devils With The Rarest Rating Ever
+
+Movies, The Devils
+
+Sat, 15 Aug 2026 22:11:43 GMT
+
+https://screenrant.com/warner-bros-the-devils-directors-cut-rating-trailer-release-date/
+
+One of the most controversial movies in horror history is officially being re-released, this time with the rarest rating possible in the U.S.
+---------
+
+# 12 Greatest RPGs On Nintendo Switch 2
+
+Gaming, Nintendo Switch 2, Triple-A Games, RPG
+
+Sat, 15 Aug 2026 22:00:12 GMT
+
+https://screenrant.com/nintendo-switch-2-best-rpgs/
+
+In addition to inheriting the original Switch library of RPGs, the Nintendo Switch 2 has amassed its own strong collection of upgrades.
+---------
+
+# 5 Anti-Superhero Series That Are 10/10 Replacements for The Boys
+
+Comics, The Boys
+
+Sat, 15 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/boys-best-replacement-series-superhero-homelander/
+
+The best series with a satirical or subversive attitude to superheroes.
+---------
+
+# HBO's 10/10 Fantasy Series Only Needed 6 Episodes To Become A Masterpiece
+
+Streaming TV, Masked Recs
+
+Sat, 15 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-six-episodes-hbo-masterpiece/
+
+A handful of short episodes is all it will take to make you fall in love with an HBO fantasy series that fills a long-empty void within the genre.
+---------
+
+# Netflix's 39-Episode Action Series Keeps Getting Better 7 Years After Ending
+
+Streaming TV, Masked Recs
+
+Sat, 15 Aug 2026 21:45:11 GMT
+
+https://screenrant.com/marvel-jessica-jones-netflix-getting-better/
+
+Netflix's action-packed series may have ended nearly a decade ago, but the 39-episode run was so well-done that Jessica Jones stands the test of time.
+---------
+
+# Avatar: The Last Airbender Officially Brings Back Iroh & Zuko in Brand-New Episode
+
+Anime, Avatar: The Last Airbender
+
+Sat, 15 Aug 2026 22:00:15 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-chibi-minis-new-episode-august-2026/
+
+Avatar: The Last Airbender fans just got a whole different take on Aang's iconic origin story thanks to the franchise's latest returning series.
+---------
+
+# Anne Hathaway's Yesteryear is the Book Adaptation of the Decade
+
+Movies, Thriller
+
+Sat, 15 Aug 2026 22:00:15 GMT
+
+https://www.cbr.com/anne-hathaway-yesteryear-book-adaptation-of-the-decade/
+
+Anne Hathaway's time-bending satire is looking like it will be the best book adaptation of the decade.
+---------
+
+# Prime Video's New Sci-Fi Mystery Is Coming to Take Fallout's Place for Good
+
+TV, Life Is Strange, Prime Video, Sci-Fi
+
+Sat, 15 Aug 2026 22:00:15 GMT
+
+https://www.cbr.com/prime-video-life-is-strange-fallout-replacement/
+
+Prime Video has an upcoming show based on a popular video series that has the potential to dethrone Fallout.
+---------
+
+# 6 Greatest Western Shows on Paramount+ That Are 10/10, No Notes
+
+TV, Western, Paramount Plus, Gunsmoke, 1923
+
+Sat, 15 Aug 2026 22:08:14 GMT
+
+https://collider.com/best-western-tv-shows-paramount-plus-perfect/
+
+From the TV classic Gunsmoke to the thrilling Taylor Sheridan prequel series 1883, we highlight the best Western shows streaming on Paramount+.
+---------
+
+# The Top Fantasy Movie From Every Decade
+
+Movie, The Wizard of Oz, Willy Wonka and the Chocolate Factory, The Lord of the Rings: The Fellowship of the Ring, Fantasy
+
+Sat, 15 Aug 2026 22:05:14 GMT
+
+https://collider.com/best-fantasy-movies-every-decade/
+
+When discussing the best fantasy movies from every decade in cinema, one will inevitably mention classics like The Wizard of Oz and The Seventh Seal.
+---------
+
+# Say Goodbye to the 5-Part Sci-Fi Thriller That Made Tatiana Maslany a Star
+
+TV News, Tatiana Maslany, Orphan Black, Sci-Fi, Netflix
+
+Sat, 15 Aug 2026 22:00:14 GMT
+
+https://collider.com/tatiana-maslany-sci-fi-series-orphan-black-leaving-netflix-september-2026/
+
+The critically acclaimed sci-fi series that announced Tatiana Maslany to the world is about to be removed from Netflix. Find out when.
+---------
+
+# The 10 Best Sci-Fi Thriller Movies of the 21st Century
+
+Movie Lists, Sci-Fi, Thriller
+
+Sat, 15 Aug 2026 22:00:12 GMT
+
+https://movieweb.com/sci-fi-thriller-best-21st-century/
+
+Sci-fi is one genre that continues to improve decade after decade; these ten thrillers show that the 21st century has the best films in the genre.
+---------
+
 # MCU Fans Were Right About Marvel Editing Out Characters From The Spider-Man: Brand New Day Poster
 
 Superheroes, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
