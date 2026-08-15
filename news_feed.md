@@ -1,3 +1,102 @@
+# 6 Star Trek Episodes with Straight-Up Body Horror
+
+TV, Star Trek
+
+Sat, 15 Aug 2026 23:30:12 GMT
+
+https://screenrant.com/star-trek-best-body-horror-episodes/
+
+Can you stomach it?
+---------
+
+# The Last Of Us Fell From 86% To 39% With Audiences On RT & Season 3 Is Leaning Into Why
+
+Streaming TV, The Last of Us
+
+Sat, 15 Aug 2026 23:30:12 GMT
+
+https://screenrant.com/the-last-of-us-rotten-tomatoes-season-3-abby-story-risk/
+
+The Last of Us' audience reception took a nosedive last season, and season 3 is just doubling down on all the show's biggest criticisms.
+---------
+
+# Blue Bloods' 10 Best Characters, Ranked
+
+Network TV, Blue Bloods
+
+Sat, 15 Aug 2026 23:15:11 GMT
+
+https://screenrant.com/blue-bloods-best-characters-ranked/
+
+The characters on CBS' Blue Bloods brought life to the show, and while there were some better than others, they created a rich world for the series.
+---------
+
+# 10 Greatest Villain Speeches In Movie History, Ranked
+
+Movies, The Dark Knight, Blade Runner, The Devil's Advocate, The Shining, A Few Good Men, Pirates of the Caribbean: The Curse of the Black Pearl, The Fifth Element, The Matrix, The Lion King
+
+Sat, 15 Aug 2026 23:15:11 GMT
+
+https://screenrant.com/best-movie-villain-speeches-monologues-all-time-ranked/
+
+Many of the greatest villains of all time are wordsmiths, but some give speeches so exceptional they become the highlight of the movie.
+---------
+
+# First Scrubs Season 2 Trailer Reveals The Return Of An OG Character
+
+TV, Scrubs
+
+Sat, 15 Aug 2026 23:14:37 GMT
+
+https://screenrant.com/scrubs-season-2-first-trailer-sean-scott-foley-return/
+
+The first official trailer for the second season of Scrubs reveals that a character from the original series will be returning for the reboot.
+---------
+
+# 5 One Piece Villain Designs That Are 10/10 Perfect
+
+Anime, One Piece
+
+Sat, 15 Aug 2026 23:15:14 GMT
+
+https://www.cbr.com/perfect-one-piece-villain-designs/
+
+One Piece has no shortage of memorable villains, but these five stand out with some of the anime's best character designs.
+---------
+
+# Peacock's Near-Perfect 7-Part Crime Series Is Leaving Streaming Too Soon
+
+TV Features, Andre Braugher, Homicide: Life on the Street, Homicide: The Movie, Peacock
+
+Sat, 15 Aug 2026 23:36:14 GMT
+
+https://collider.com/homicide-life-on-the-street-andre-braugher-crime-drama-leaving-streaming/
+
+Homicide: Life on the Street is leaving Peacock on August 18; it's time to catch the full run of Andre Braugher's award-winning series.
+---------
+
+# Tom Hardy’s 106-Minute ‘The Sopranos’-Style Thriller Is Officially Taking Over Digital
+
+Movie News, Tom Hardy, The Drop, James Gandolfini
+
+Sat, 15 Aug 2026 23:30:14 GMT
+
+https://collider.com/tom-hardy-the-drop-streaming-digital-august-2026/
+
+Tom Hardy and James Gandolfini’s acclaimed 88%-rated crime thriller The Drop is a quietly brilliant neo-noir deserving of a rediscovery.
+---------
+
+# 7 Years Later, Netflix’s 125-Minute Action Thriller Is Officially Making a Comeback
+
+Movie News, Triple Frontier, Netflix
+
+Sat, 15 Aug 2026 23:15:14 GMT
+
+https://collider.com/ben-affleck-triple-frontier-netflix-streaming-success-august-2026/
+
+Netflix’s all-star action thriller led by Ben Affleck and Pedro Pascal is finding a new audience years after its blockbuster streaming debut.
+---------
+
 # 10 Greatest Far Side Comics With No Words
 
 Comics, The Far Side
