@@ -1,3 +1,179 @@
+# The End Of Oak Street Box Office Set To Earn One Of Anne Hathaway's Lowest Debuts Ever
+
+Movies, Box Office, The End of Oak Street
+
+Sat, 15 Aug 2026 17:06:36 GMT
+
+https://screenrant.com/the-end-of-oak-street-box-office-opening-weekend-domestic-result/
+
+Anne Hathaway's new sci-fi adventure adventure movie The End of Oak Street earns one of the worst wide release debuts in history for the star.
+---------
+
+# The Goldbergs True Story: What Each Character Looks Like In Real-Life
+
+Classic TV, The Goldbergs
+
+Sat, 15 Aug 2026 17:00:13 GMT
+
+https://screenrant.com/goldbergs-true-story-real-life-family-characters-look-like/
+
+The Goldbergs is based on the life of series creator Adam F. Goldberg. Here's what each main character looks like in real life compared to the show.
+---------
+
+# Sam Axe's Burn Notice Revival Return & Potential New Movie Addressed By Bruce Campbell
+
+TV, Burn Notice, Bruce Campbell
+
+Sat, 15 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/burn-notice-revival-sam-axe-return-new-movie-bruce-campbell-response/
+
+Exclusive: Bruce Campbell weighs in on the chances of a Burn Notice revival return and a potential new movie after leading the sole spinoff.
+---------
+
+# Donnie Darko Meets Inside Out In Netflix's 93-Minute Fantasy Masterpiece
+
+Movies, Masked Recs
+
+Sat, 15 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/orion-and-the-dark-netflix-movie-donnie-darko-inside-out/
+
+Donnie Darko and Inside Out come together for an animated fantasy adventure on Netflix that runs 93 minutes and plays with story conventions.
+---------
+
+# 17 Years Later, The Nintendo DS Is Still Home To The Greatest Remake Ever Made
+
+Gaming, Nintendo DS, Triple-A Games, Pokemon
+
+Sat, 15 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/nintendo-ds-greatest-remake-ever-made/
+
+The Nintendo DS was the home of some of the best games ever made, but it made history as it housed the greatest remake the industry has ever seen.
+---------
+
+# The Shawshank Redemption's Best Line Is Still The Greatest Stephen King Movie Quote Ever
+
+Movies, Masked Recs
+
+Sat, 15 Aug 2026 16:55:11 GMT
+
+https://screenrant.com/the-shawshank-redemption-get-busy-living-dying-best-stephen-king-movie-quote/
+
+The most moving line from 1994 prison drama The Shawshank Redemption might just be the greatest quote of any Stephen King movie adaptation.
+---------
+
+# Star Wars Sets Up Ewan McGregor's Obi-Wan Kenobi Return
+
+Star Wars
+
+Sat, 15 Aug 2026 16:52:55 GMT
+
+https://screenrant.com/star-wars-ahsoka-season-2-ewan-mcgregor-obi-wan-clone-wars/
+
+Ewan McGregor's long-awaited return as Obi-Wan Kenobi could happen much sooner than you think, as Star Wars gears up for an important new release.
+---------
+
+# Goku's Single Greatest DBZ Line Hits Harder Than Any Dragon Ball Quote Since
+
+Anime, Dragon Ball Z, Dragon Ball, Innovation
+
+Sat, 15 Aug 2026 17:01:15 GMT
+
+https://www.cbr.com/goku-single-greatest-dbz-line-hardest-best-dragon-ball-quote/
+
+Goku's best quote from the Frieza Saga keeps getting better with age.
+---------
+
+# J.J. Abrams & James Wan Team Up for 8-Part Netflix Genre-Bending Drama
+
+TV, Netflix
+
+Sat, 15 Aug 2026 16:53:55 GMT
+
+https://www.cbr.com/jj-abrams-james-wan-netflix-supernatural-drama-sid-and-zoey/
+
+Two incredible creative forces are teaming up to bring Netflix's next genre-bending teen drama to life, and it sounds absolutely incredible.
+---------
+
+# Marvel's Forgotten Star Wars Series Officially Confirmed To Return
+
+Comics, Star Wars, The Empire Strikes Back
+
+Sat, 15 Aug 2026 16:53:03 GMT
+
+https://www.cbr.com/marvel-star-wars-forgotten-series-confirmed-return/
+
+Fifty years later, Marvel is bringing back the Star Wars series only the most diehard fans remember.
+---------
+
+# 10 Movies With the Most Perfect CGI
+
+Movie, CGI, Blockbuster, Titanic, Pirates of the Caribbean: Dead Man's Chest
+
+Sat, 15 Aug 2026 17:09:16 GMT
+
+https://collider.com/movies-most-perfect-cgi/
+
+Special effects-driven blockbuster movies like Titanic, Inception, and Pirates of the Caribbean: Dead Man's Chest are notable for having perfect CGI.
+---------
+
+# The 10 Best Memoir Books of All Time, Ranked
+
+TV, Books, Stephen King, Maya Angelou, Malcolm X
+
+Sat, 15 Aug 2026 17:04:15 GMT
+
+https://collider.com/best-memoir-books-all-time-ranked/
+
+Discover the best memoirs that offer profound insights and engaging storytelling, from I'm Glad My Mom Died to Persepolis: The Story of a Childhood.
+---------
+
+# Prime Video's 8-Part Romantic Series Quietly Becomes One of America's Biggest Streaming Hits
+
+TV News, Prime Video, Romance, Every Year After, Streaming
+
+Sat, 15 Aug 2026 17:00:15 GMT
+
+https://collider.com/every-year-after-streaming-success-prime-video-august-2026/
+
+Prime Video's romantic 8-part series is back in the streaming charts. Here's everything you should know about Every Year After.
+---------
+
+# All 16 Live-Action Spider-Man Villains, Ranked by How Badly They Hurt Him
+
+Movie, Spider-Man, Spider-Man: Brand New Day, Spider-Man 2, Superhero
+
+Sat, 15 Aug 2026 16:52:15 GMT
+
+https://collider.com/spider-man-villains-live-action-how-badly-they-hurt-him-ranked/
+
+Spider-Man has faced his fair share of enemies in live-action over the years, but villains like Green Goblin and Doc Ock have hurt him significantly.
+---------
+
+# 'Tangled' Unveils First Official Look at Rapunzel, Flynn Rider, & Mother Gothel
+
+Movie News, Tangled, Milo Manheim
+
+Sat, 15 Aug 2026 17:08:11 GMT
+
+https://movieweb.com/tangled-live-action-first-look-d23/
+
+Disney revealed an exciting look into development on the live-action 'Tangled,' including footage of the cast in their new costumes
+---------
+
+# Taylor Sheridan's Best Action Thriller Has the Greatest Quote in Action History
+
+Features, Sicario, Taylor Sheridan
+
+Sat, 15 Aug 2026 17:00:12 GMT
+
+https://movieweb.com/sicario-taylor-sherdian-best-quote/
+
+One scene says it all.
+---------
+
 # 9 Years Ago, Fox Killed Ghosted Before Canceling It For Good
 
 Network TV, Ghosted, FOX
