@@ -1,3 +1,36 @@
+# HBO Has Finally Found The True Successor To Succession
+
+TV, Masked Recs
+
+Sat, 15 Aug 2026 19:30:11 GMT
+
+https://screenrant.com/war-hbo-new-succession-corporate-thriller-family-drama/
+
+Three years after we last heard from the Roy family, a new internecine corporate satire is coming to HBO with major similarities to Succession.
+---------
+
+# 10 Classic Comedy Movies You Must Watch in 2026
+
+Movie, Comedy, Some Like It Hot, Fargo, What's Up, Doc?
+
+Sat, 15 Aug 2026 19:36:14 GMT
+
+https://collider.com/classic-comedy-movies-must-watch-2026/
+
+Among the many great classic comedies of the past, beloved masterpieces like Some Like It Hot, Fargo, and Duck Soup deserve to be revisited in 2026.
+---------
+
+# Paramount’s Streaming Sensation Crime Thriller Is Still a Must-Watch
+
+Features, Crime, Criminal Minds, Paramount Plus, Thriller
+
+Sat, 15 Aug 2026 19:30:12 GMT
+
+https://movieweb.com/criminal-minds-trending-paramount-holds-up/
+
+One of the longest-running crime thrillers of all time is more enjoyable than ever, and the streaming numbers prove it.
+---------
+
 # Marvel's VisionQuest Trailer Sparks Frustration Over 1 Comic Inaccuracy For New Character
 
 TV, VisionQuest, Marvel Cinematic Universe
