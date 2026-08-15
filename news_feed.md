@@ -1,3 +1,25 @@
+# Chris Pratt’s 116-Minute Sci-Fi Flop Is Officially Leaving Netflix
+
+Movie News, Chris Pratt, Jennifer Lawrence, Passengers, Netflix
+
+Sat, 15 Aug 2026 08:40:14 GMT
+
+https://collider.com/chris-pratt-jennifer-lawrence-sci-fi-movie-passengers-leaving-netflix-september-2026/
+
+Chris Pratt said that he was "caught off guard" by the negative reception of his 2016 sci-fi movie Passengers, which is about to leave Netflix.
+---------
+
+# Netflix Is Officially Losing Brad Pitt's $100M Sports Blockbuster
+
+Movie News, Moneyball, Brad Pitt, Netflix, Robin Wright
+
+Sat, 15 Aug 2026 08:20:14 GMT
+
+https://collider.com/netflix-removing-brad-pitt-moneyball-last-day-to-watch-august-31/
+
+Netflix is removing Moneyball, the $100 million blockbuster starring Brad Pitt and Jonah Hill, at the end of August. Find out more information here.
+---------
+
 # Star Trek Is Officially Doing the 1 Thing Paramount+ Failed to Do
 
 Books and Comics, Star Trek, Star Trek: Picard, Terry Matalas, Comics
