@@ -1,3 +1,113 @@
+# Jean Grey Officially Returns In 1 Month After Spider-Man: Brand New Day
+
+Movies, Spider-Man: Brand New Day, Marvel's Wolverine
+
+Sat, 15 Aug 2026 20:38:28 GMT
+
+https://screenrant.com/jean-grey-marvel-wolverine-game-return-spider-man-brand-new-day/
+
+Sadie Sink officially debuted as the MCU's Jean Grey in Spider-Man: Brand New Day, and the Marvel hero will next appear in a new way in September.
+---------
+
+# Reacher Season 4 Repeats The Night Agent's Opening Scene, But Better
+
+Streaming TV, Reacher
+
+Sat, 15 Aug 2026 20:30:11 GMT
+
+https://screenrant.com/reacher-season-4-night-agent-opening-scene-copy/
+
+Reacher and the Night Agent are often compared, but the two action shows have actually been extremely different, until now, with Reacher season 4.
+---------
+
+# Netflix Reportedly Expanding Hit Fantasy Series Bon Appétit, Your Majesty With New Lead Star & Story
+
+TV, Bon Appétit, Your Majesty, Netflix
+
+Sat, 15 Aug 2026 20:28:45 GMT
+
+https://screenrant.com/netflix-bon-appetit-your-majesty-series-companion-development-report/
+
+Netflix is reportedly expanding a hit fantasy series with a brand-new companion story, and a lead star has apparently been cast.
+---------
+
+# Star Trek's Next Era Is Less Than 1 Month Away, And A Fan Favorite Hero Is The Series' New Lead
+
+Star Trek
+
+Sat, 15 Aug 2026 20:23:41 GMT
+
+https://screenrant.com/star-trek-60th-anniversary-new-era-seven-of-nine-lead/
+
+A new Star Trek project arrives this September, launching a new era for the franchise with a familiar hero at the center, commanding their own ship.
+---------
+
+# 59 Years Later, Spock's Best Star Trek Line Is Still the Greatest Quote in Sci-Fi History
+
+TV, Star Trek, Paramount, Sci-Fi
+
+Sat, 15 Aug 2026 20:30:15 GMT
+
+https://www.cbr.com/star-trek-spock-amok-time-best-sci-fi-quote/
+
+With just one word, this Star Trek quote speaks to Spock's character and how consciously he has to work to be a perfect, logical Vulcan.
+---------
+
+# 4 Years Later, Ewan McGregor Says Obi-Wan Kenobi's Star Wars Story Still Isn't Over
+
+TV, Obi-Wan Kenobi, Star Wars
+
+Sat, 15 Aug 2026 20:25:13 GMT
+
+https://www.cbr.com/ewan-mcgregor-talks-obi-wan-kenobi-star-wars-future/
+
+Ewan McGregor comments on Obi-Wan Kenobi's Star Wars future.
+---------
+
+# 5 Strongest Black Clover Magic Knight Captains, Ranked
+
+Anime, Black Clover
+
+Sat, 15 Aug 2026 20:15:15 GMT
+
+https://www.cbr.com/black-clover-strongest-magic-knight-captains-ranked/
+
+Black Clover's Magic Knight Captains are all powerful, but these five are clearly the strongest.
+---------
+
+# 10 Times ‘Supernatural’ Unknowingly Predicted Its Own Future
+
+TV, Supernatural, Jared Padalecki, Jensen Ackles, The CW
+
+Sat, 15 Aug 2026 20:42:14 GMT
+
+https://collider.com/supernatural-predicted-its-future/
+
+The long-running series Supernatural predicted its own future a.number of times, from the Winchester brothers' fates to their actors' future roles.
+---------
+
+# 10 Scariest Movies in Film History
+
+Movie, Hereditary, Horror, Jacob's Ladder
+
+Sat, 15 Aug 2026 20:29:14 GMT
+
+https://collider.com/scariest-movies-film-history/
+
+All-time horror classics like Hereditary, The Exorcist, and John Carpenter's Halloween are among the absolute scariest movies ever made.
+---------
+
+# 10 Best Grunge Songs of All Time
+
+Music Features, Music, Nirvana, Pearl Jam, Grunge
+
+Sat, 15 Aug 2026 20:21:14 GMT
+
+https://collider.com/best-grunge-songs-all-time-ranked/
+
+"Smells Like Teen Spirit" by Nirvana, "Alive" by Pearl Jam, and "Violet" by Hole are among the best grunge songs of all time.
+---------
+
 # Batman Just Gave Fans The Best Supervillain Introduction Since Galactus
 
 DC Comics, Batman
