@@ -1,3 +1,135 @@
+# Elden Ring: The Tree Sentinel Officially Unveiled
+
+Gaming, Elden Ring, Elden Ring: Tarnished Edition, Elden Ring: Shadow of the Erdtree, PC
+
+Sat, 15 Aug 2026 18:00:11 GMT
+
+https://screenrant.com/elden-ring-tree-sentinel-statue-prime-1-studios/
+
+Elden Ring's Tree Sentinel enemy is among the most loathed in the game, and will be immortalized in an upcoming new release.
+---------
+
+# After 43 Years, Diane Chambers' Best Cheers Line Is Still A True Sitcom Classic
+
+Classic TV, Cheers
+
+Sat, 15 Aug 2026 18:00:11 GMT
+
+https://screenrant.com/cheers-diane-chambers-best-quote/
+
+The best line spoken by Diane Chambers on Cheers over the course of the show's run is a true sitcom classic, distilling her character into a quote.
+---------
+
+# Aliens Officially Returns With $8,699 New Release Coming November 2027
+
+Movies, Aliens, Alien
+
+Sat, 15 Aug 2026 18:15:15 GMT
+
+https://www.cbr.com/aliens-officially-returns-with-8699-new-release-coming-november-2027/
+
+Die-hard fans of the Alien franchise are about to get one of the most terrifying collectibles off all time, and it comes with a price tag to match.
+---------
+
+# Every Solo Leveling Monarch, Ranked by Strength
+
+Anime, Solo Leveling, manhwa
+
+Sat, 15 Aug 2026 18:15:15 GMT
+
+https://www.cbr.com/solo-leveling-monarchs-ranked-by-strength/
+
+Analyzing Monarchs in Solo Leveling means looking past titles and army sizes toward the actual fights, kills, and losses each one experienced.
+---------
+
+# Daniel Craig's $233M Knives Out Replacement Is Streaming on Netflix Now
+
+Movies, The Girl With the Dragon Tattoo
+
+Sat, 15 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/daniel-craig-the-girl-with-the-dragon-tattoo-netflix-august-2026/
+
+One of the greatest thrillers of an entire decade just made its way to a major streaming platform 15 years after its release.
+---------
+
+# Solo Leveling Gives Sung Jinwoo a New Shadow Monarch Release With Igris and Beru
+
+Anime, Solo Leveling, merchandise
+
+Sat, 15 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/solo-leveling-sung-jinwoo-shadow-monarch-igris-beru-figure/
+
+Solo Leveling's Sung Jinwoo is given new life through the upcoming Hot Toys figure, which is armed with weapons, energy and even Shadow Soldiers.
+---------
+
+# ‘The Lord of the Rings’ Star’s 33-Year-Old Cult Classic Is Officially Leaving Netflix
+
+Movie News, The Good Son, Netflix, Elijah Wood, Macaulay Culkin
+
+Sat, 15 Aug 2026 18:00:15 GMT
+
+https://collider.com/elijah-wood-the-good-son-leaving-netflix-august-31-last-day-to-watch/
+
+The Good Son, which stars a pre-Lord of the Rings Elijah Wood, is leaving Netflix at the end of this month. Find out more information here.
+---------
+
+# 8 Suspenseful Heist Thrillers Packed With Genius Twists
+
+Movie, Reservoir Dogs, The Italian Job, Thriller, Ocean's 8
+
+Sat, 15 Aug 2026 17:57:15 GMT
+
+https://collider.com/heist-thriller-movies-best-plot-twists/
+
+Reservoir Dogs, The Italian Job, Ocean's 8, American Animals, and more make up our list of suspenseful heist thrillers packed with genius twists.
+---------
+
+# All 3 Jane Schoenbrun Movies, Ranked
+
+Movie, Teenage Sex and Death at Camp Miasma, I Saw the TV Glow, We're All Going to the World's Fair, Jane Schoenbrun
+
+Sat, 15 Aug 2026 17:52:16 GMT
+
+https://collider.com/jane-schoenbrun-movies-ranked/
+
+Jane Schoenbrun has directed three movies to date, including I Saw the TV Glow and Teenage Sex and Death at Camp Miasma, but which is the best?
+---------
+
+# 10 Best TV Thrillers Like 'We Were Liars' on Prime
+
+TV Lists, We Were Liars, Thriller, Prime Video
+
+Sat, 15 Aug 2026 18:00:13 GMT
+
+https://movieweb.com/best-shows-like-we-were-liars-on-prime/
+
+With only eight episodes, fans of 'We Were Liars' are likely looking for their next thrilling fix.
+---------
+
+# In Defense of Jean Grey in 'Spider-Man: Brand New Day'
+
+Features, Spider-Man: Brand New Day
+
+Sat, 15 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/jean-grey-spider-man-brand-new-day-innocent/
+
+Jean Grey caused a lot of destruction in 'Spider-Man: Brand New Day', but did she actually kill anyone?
+---------
+
+# Chris Pratt's 10/10 Taylor Sheridan-Esque Action Thriller Blasts Onto Streaming
+
+Movie News, Zero Dark Thirty, Netflix, Coming/Leaving Streaming, Action, Taylor Sheridan
+
+Sat, 15 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/zero-dark-thirty-action-stream-netflix-august-2026/
+
+Chris Pratt + 'Sicario' = Netflix's latest addition.
+---------
+
 # The Vampire Diaries' 20 Major Differences Between The Books & The TV Show
 
 Classic TV, The Vampire Diaries
