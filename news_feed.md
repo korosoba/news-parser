@@ -1,3 +1,36 @@
+# 5 Most Perfect Comfort Shows of the 2020s So Far
+
+TV, Ted Lasso, Abbott Elementary, Innovation
+
+Sat, 15 Aug 2026 11:30:15 GMT
+
+https://www.cbr.com/best-comfort-shows-2020s-list/
+
+From Only Murders in the Building to Ted Lasso, these 2020s titles already rank among the best comfort shows.
+---------
+
+# Ridley Scott’s 10/10 Sci-Fi Masterpiece Surges on Paramount+ Before New Release
+
+Movie News, Blade Runner 2049, Ridley Scott, Blade Runner 2099, Blade Runner
+
+Sat, 15 Aug 2026 11:30:14 GMT
+
+https://collider.com/ridley-scott-blade-runner-2049-streaming-success-paramount-plus-august-2026/
+
+Ridley Scott's near-perfect sci-fi masterpiece is surging on streaming right now before the franchise returns in November with a new release.
+---------
+
+# ‘Black Mirror’ Meets ‘Don’t Worry Darling’ in HBO’s 2-Part Sci-Fi Series
+
+TV Features, Made For Love, HBO, Sci-Fi, Black Mirror
+
+Sat, 15 Aug 2026 11:23:19 GMT
+
+https://collider.com/made-for-love-hbo-max-sci-fi-series-cristin-milioti/
+
+Made for Love stars Cristin Milioti in a 2-part sci-fi series that blends Black Mirror-style tech horror with dark comedy.
+---------
+
 # Love, Death & Robots Meets Inception In Huge New RPG
 
 Gaming, Love, Death & Robots, Inception, Control Resonant
