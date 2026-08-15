@@ -1,3 +1,179 @@
+# 10 Movies To Watch If You Love Jurassic Park
+
+Movies, Jurassic Park
+
+Sat, 15 Aug 2026 13:45:11 GMT
+
+https://screenrant.com/movies-like-jurassic-park/
+
+Looking for your next Jurassic Park fix? These 10 movies bring the creatures, chaos, and survival tension.
+---------
+
+# Dragon Ball Z Officially Replaces Goku After 41 Years
+
+Gaming, Dragon Ball Z, Dragon Ball
+
+Sat, 15 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/dragon-ball-z-goku-replacement-xenoverse-3/
+
+Dragon Ball Z has a lot of iconic characters, but Goku remains the biggest of the bunch, though he won't be around as much for the next outing.
+---------
+
+# Star Wars Just Fixed A Hated Rise Of Skywalker Moment
+
+Star Wars, Star Wars: Episode IX - The Rise of Skywalker
+
+Sat, 15 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/star-war-close-rise-skywalker-plothole-hux/
+
+One of Star Wars: The Rise of Skywalker's many lingering questions finally gets a solid Canon answer thanks to a new official revelation.
+---------
+
+# The 10 Most Powerful Sci-Fi Creatures In The Alien Franchise
+
+Movies, Alien
+
+Sat, 15 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/alien-franchise-most-powerful-creatures/
+
+The Alien franchise is filled with amazing and terrifying science fiction creatures, each lethal in their own way but these 10 are the most powerful.
+---------
+
+# The 106-Minute 83% Liam Neeson Thriller Everyone Forgot Is Dominating On Netflix
+
+Movies, Masked Recs
+
+Sat, 15 Aug 2026 13:27:26 GMT
+
+https://screenrant.com/liam-neeson-movie-land-of-saints-and-sinners-netflix-stream-august-2026/
+
+Liam Neeson is a beloved star, but he made one majorly forgotten movie a couple years ago. Now, the film is surprisingly dominant on Netflix.
+---------
+
+# Star Wars' Dave Filoni Gestures Jedi Mind Trick When Asked About The Fate Of Adam Driver's Kylo Ren Movie
+
+Movies, Star Wars, Ben Solo/Kylo Ren
+
+Sat, 15 Aug 2026 13:24:16 GMT
+
+https://screenrant.com/star-wars-the-hunt-for-ben-solo-movie-update-dave-filoni-jedi-gesture/
+
+The Hunt for Ben Solo may live again, as Star Wars' Dave Filoni uses a Jedi mind trick gesture when addressing the status of the film.
+---------
+
+# The Next James Bond Actor List Is Narrowing, And This Is The Perfect Casting Choice
+
+Movies, James Bond
+
+Sat, 15 Aug 2026 13:15:11 GMT
+
+https://screenrant.com/next-james-bond-actor-casting-actor-name-best-choice/
+
+The new James Bond should be announced by the end of this year, and we have the perfect choice for who should play Agent 007 in the next movies.
+---------
+
+# Justin Hartley's Darkest Tracker Episode Hits Twice as Hard Ahead of Season 4
+
+TV, Tracker
+
+Sat, 15 Aug 2026 13:30:16 GMT
+
+https://www.cbr.com/tracker-darkest-episode-monster/
+
+Tracker has taken dark turns, and as Season 4 is set to premiere this fall, it's worth revisiting the most disturbing episode.
+---------
+
+# Disney Confirms Sequel & Returning Cast For Its $1.8B Blockbuster Franchise
+
+Movies, Zootopia 2, Innovation
+
+Sat, 15 Aug 2026 13:21:08 GMT
+
+https://www.cbr.com/zootopia-3-confirmed-disney-d23-entertainment-showcase/
+
+Disney reveals major news for one of its biggest franchises at the D23 Entertainment Showcase.
+---------
+
+# 5 Anime With 50+ Episodes That Are 10/10 Masterpieces
+
+Anime, Yu Yu Hakusho, Gintama
+
+Sat, 15 Aug 2026 13:15:15 GMT
+
+https://www.cbr.com/masterpiece-anime-with-over-50-episodes/
+
+Some of the best anime require a little patience. These long-running masterpieces are worth every minute.
+---------
+
+# 8 Essential Kid-Friendly Video Games
+
+Gaming, Video Game, Super Mario Odyssey, Animal Crossing New Horizons, Untitled Goose Game
+
+Sat, 15 Aug 2026 13:41:15 GMT
+
+https://collider.com/kid-friendly-video-games-essential-ranked/
+
+Video games like LEGO Star Wars: The Skywalker Saga, Minecraft, and Animal Crossing: New Horizons appeal to gamers of all ages.
+---------
+
+# Netflix’s ‘Bird Box’ Meets ‘Arrival’ Sci-Fi Thriller Officially Scores 27.5M Views in Just 3 Days
+
+Movie News, The Last House, Greta Lee, Wagner Moura, Netflix
+
+Sat, 15 Aug 2026 13:31:15 GMT
+
+https://collider.com/the-last-house-netflix-streaming-success-august-2026/
+
+Netflix sci-fi thriller The Last House becomes a global streaming hit despite poor reviews, reaching No. 1 worldwide.
+---------
+
+# Christopher Nolan's Near-Perfect Masterpiece Is Finally Coming to Streaming
+
+Movie, Christopher Nolan, Oppenheimer, Cillian Murphy, Robert Downey Jr
+
+Sat, 15 Aug 2026 13:24:16 GMT
+
+https://collider.com/christopher-nolan-oppenheimer-streaming-peacock-august-2026/
+
+Christopher Nolan's Oppenheimer, which was previously only available as a rental, will stream on Peacock beginning August 16.
+---------
+
+# 'Coco 2' Officially Announced and Dated by Pixar
+
+Movie News, Coco 2, Coco, Pixar
+
+Sat, 15 Aug 2026 13:40:26 GMT
+
+https://movieweb.com/coco-2-release-date/
+
+It was a long wait, but we're finally getting a sequel.
+---------
+
+# Star Wars Officially Redesigns Logo For The First Time in 50 Years
+
+Movie News, Star Wars: Starfighter
+
+Sat, 15 Aug 2026 13:31:34 GMT
+
+https://movieweb.com/star-wars-starfighter-new-logo-d23/
+
+'Star Wars: Starfighter' has its first official logo — and it represents a break in a half-century tradition.
+---------
+
+# 'Percy Jackson' Debuts New Footage in Epic Season 3 Trailer
+
+TV Trailers, Percy Jackson & the Olympians, Walker Scobell, Disney+
+
+Sat, 15 Aug 2026 13:19:36 GMT
+
+https://movieweb.com/percy-jackson-season-3-d23-trailer/
+
+'Percy Jackson and the Olympians' Season 3 debuts its first full-length teaser trailer for a saga based on Rick Riordan's 'The Titan's Curse' novel.
+---------
+
 # 5 Free Steam Games Like Halo You Can Play Now
 
 Gaming, Halo
