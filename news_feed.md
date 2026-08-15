@@ -1,3 +1,25 @@
+# Every Actor Cast In The MCU's New X-Men Movie (So Far)
+
+Superheroes, Marvel's X-Men, Marvel Cinematic Universe
+
+Sat, 15 Aug 2026 05:25:12 GMT
+
+https://screenrant.com/marvel-mcu-xmen-movie-cast-characters/
+
+Marvel Studios is casting actors for the MCU's X-Men movie, and here's everyone who is in the movie so far and which Marvel character they're playing.
+---------
+
+# Walton Goggins’ First-Ever Disney Animated Movie Role Revealed In New Fantasy Footage For Hexed
+
+Movies, Hexed
+
+Sat, 15 Aug 2026 05:23:25 GMT
+
+https://screenrant.com/disney-hexed-movie-walton-goggins-jodie-foster-characters/
+
+Jodie Foster and Walton Goggins join Disney’s Hexed as new footage reveals their characters and Billie’s journey into a magical world.
+---------
+
 # Frozen 3's Royal Wedding Crashed & Villain Revealed In First Disney Sequel Footage
 
 Movies, Frozen III, D23
